@@ -2,60 +2,38 @@
 ---
 
 
-## Omicron变体最早发现于完全疫苗接种者
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1704576/)
+## 视频| 数字货币会成为人类之王
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1704629/)
 
-**作者**：纽约香草山信息部- 诺雅
+## 摘自2021.11.26郭先生大直播
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-5-768x103-3.jpg)
-
-
+制作：香草山视频部，香草山香港部
 
 
 
-1月25日，博茨瓦纳政府公开声明称，该国的Omicron新突变病毒，最先在四名接受两剂ccp病毒疫苗的患者中发现。这四名患者于11月7日进入博茨瓦纳执行外交任务，在11月11日准备回国时对中共病毒检测呈阳性。
+喜币，就从第一天就有的。他有7个功能已经定的，有11个版本已经在准备中。
+第二个，所有的喜币他没有支付，就像我说币安一样，很多人炒币不了，他没有支付的系统的结果一定空的！
+第三个，我再告诉你，只要没有实体空间的支付，最后这个所有的数字货币都会归零！
+第四个，任何作为洗钱、犯罪工具的币都会归零！
+最后我要再告诉你，一定全人类没有一个政府不在监管你的数字货币的，但恰恰你要看到一个问题，所有的颠覆之后恰恰数字货币会成为人类之王！你越不让干的就是这国人民最想干的。而且关键是数字货币的区块链你管不了。那么喜币的结构里面接下来，稳定币绝不仅是喜美元，他是喜很多元，更重要的是他的支付系统，支付系统点到点的支付，就现在很简单，就像那个扫码支付，你可以管，你能管得住吗？而且喜币的一系列的升级当中，对你人之间的交换，加密的交换，包括实物的交换，包括计算，包括数字抵押，数字抵押就是根本不需要第三方，完全去中心化的！那么，抵押不仅限你喜联储。我们战友之间就可以做抵押，而且我们之间就可以互动，就解决大家的问题，这就需要一点点时间，你知道吗，所以说这个结构大家记住，喜联储和喜币的结构你们完全不了解，慢慢你就会发现一系列的升级，咱们最慢不会超过60天，或者更快，咱们的Hpay就要上线。你一定要现在找好你周围的店，加入了以后，愿意加入的先让去开个账号去KYC，KYC完(成)了，然后都是扫码技术，直接接受支付，就那个时候机构投资者就进来了。咱也让他进来了，就是现在不让机构者进来，就是我们把这2.5亿个的所谓不确定币和机构投资者愿意自己抛出来的币，这个价格区间越低越好。就是喜币不能涨钱。要让我们更多的战友从二级市场中进来，最后达到一定时间，支付系统已经可以了，各种版本的喜币的功能都上线了，大家能用、适用、广泛应用，而且价格稳定的时候，而且大的投资进来了，这就可以了，这个结构还早着呢，慢慢来吧。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/261121botswana.jpg)
 
-声明中还指出，新毒株的变异传染性很广，它不仅存在于博茨瓦纳，更多非洲国家和其他地区也已经检测到该变种。
 
-据11月26日的世卫组织宣布，Omicron是第五个需要关注突变。因传言称该毒株传染性是德尔塔毒株的三倍，并且很可能对疫苗及人体免疫力有抵抗能力，随后周五全球金融市场暴跌，美国、加拿大、英国和欧盟等纷纷宣布对南部非洲国家实施新的旅行禁令。
+发稿：雪梨
 
-截至27日晚间，比利时、以色列、香港、英国已经确认发现新变种感染病例，德国和捷克也报告了疑似病例。
-
-参阅链接：
-
-[https://gettr.com/post/pi0ogq0f02](https://gettr.com/post/pi0ogq0f02)
-
-[https://www.reuters.com/business/healthcare-pharmaceuticals/japan-tighten-border-controls-s-africa-others-new-virus-variant-jiji-2021-11-26/](https://www.reuters.com/business/healthcare-pharmaceuticals/japan-tighten-border-controls-s-africa-others-new-virus-variant-jiji-2021-11-26/)
-
-[https://nypost.com/2021/11/27/omicron-variant-found-in-uk-germany-czech-republic/](https://nypost.com/2021/11/27/omicron-variant-found-in-uk-germany-czech-republic/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-4.jpg)
-
-***总编：正义的小新***
-
-***编辑：文特***
-
-***校对/发稿：遍地开花***
+![This image has an empty alt attribute; its file name is 8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-5-768x103-3.jpg)
-
-
-
-
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

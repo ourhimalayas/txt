@@ -2,38 +2,61 @@
 ---
 
 
-## 郭先生谈一定会让疫苗接种停止的四件事
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1704552/)
+## Omicron变体最早发现于完全疫苗接种者
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1704576/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-在11月26日的大直播中，郭先生谈到，有四件事一定会让全球的疫苗接种停止。
+**作者**：纽约香草山信息部- 诺雅
 
-第一：到两个月以前，全世界已经有60%的人打了疫苗，现在这些打疫苗的人里有一半在反对疫苗。综合起来，现在全世界有超过一半的人在反对疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-5-768x103-3.jpg)
 
-第二：美日澳相关官员向郭先生表示，共产党在海外安排的华人组织全部都会被取缔。另外多个国家都有人因为听了爆料革命建议没打疫苗而感恩万分。这些人是推动疫苗停止的重要力量。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture282.jpg)
-第三：当疫苗危机爆发的时候，政府、军队、警察、医生等很多生命都会消失，没有了这些服务，人民无法生活，因此他们一定会反对疫苗。疫苗危机结束时，所有推广疫苗的人都将面临全世界的大审判。
 
-第四：疫苗灾难来临时，未来的世界金融一定会大崩溃！现在世界最有钱势的阶层很多人打了疫苗，他们的万贯家产未来都可能变成无主之地。因此他们也会强力反对疫苗。
 
-郭先生重申，新中国联邦在人类历史上最伟大的成就就是不让人们打疫苗！
 
-参考链接：[郭先生谈一定会让疫苗接种停止的四件事](https://gtv.org/video/id=61a0daac44c1fe7a6c39814d)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+1月25日，博茨瓦纳政府公开声明称，该国的Omicron新突变病毒，最先在四名接受两剂ccp病毒疫苗的患者中发现。这四名患者于11月7日进入博茨瓦纳执行外交任务，在11月11日准备回国时对中共病毒检测呈阳性。
 
-总编：飞虹
-编辑：飞虹
-校对/发稿：Hetangyuese
+![](https://assets.gnews.org/wp-content/uploads/2021/11/261121botswana.jpg)
+
+声明中还指出，新毒株的变异传染性很广，它不仅存在于博茨瓦纳，更多非洲国家和其他地区也已经检测到该变种。
+
+据11月26日的世卫组织宣布，Omicron是第五个需要关注突变。因传言称该毒株传染性是德尔塔毒株的三倍，并且很可能对疫苗及人体免疫力有抵抗能力，随后周五全球金融市场暴跌，美国、加拿大、英国和欧盟等纷纷宣布对南部非洲国家实施新的旅行禁令。
+
+截至27日晚间，比利时、以色列、香港、英国已经确认发现新变种感染病例，德国和捷克也报告了疑似病例。
+
+参阅链接：
+
+[https://gettr.com/post/pi0ogq0f02](https://gettr.com/post/pi0ogq0f02)
+
+[https://www.reuters.com/business/healthcare-pharmaceuticals/japan-tighten-border-controls-s-africa-others-new-virus-variant-jiji-2021-11-26/](https://www.reuters.com/business/healthcare-pharmaceuticals/japan-tighten-border-controls-s-africa-others-new-virus-variant-jiji-2021-11-26/)
+
+[https://nypost.com/2021/11/27/omicron-variant-found-in-uk-germany-czech-republic/](https://nypost.com/2021/11/27/omicron-variant-found-in-uk-germany-czech-republic/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-4.jpg)
+
+***总编：正义的小新***
+
+***编辑：文特***
+
+***校对/发稿：遍地开花***
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-5-768x103-3.jpg)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
