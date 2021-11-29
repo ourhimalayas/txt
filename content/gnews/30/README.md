@@ -2,40 +2,50 @@
 ---
 
 
-## 全接种疫苗者占英国染疫死亡人数的81%
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1704071/)
+## 参议员汤姆·科顿： 世卫就是个笑话，他们对中共产感情的关注，更甚于对公众健康
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1704123/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+参议员汤姆·科顿： 世卫组织WHO就是个笑话。 他们对 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 的感情的关注，更甚于对公众健康的关注。 拜登总统再也不应该在没改革之前资助这个腐败的，[#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的傀儡组织。
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/11/E.jpg)reddit.com
-《门道专家》发表文章，题目是“报告：完全接种疫苗的（死亡）人数占英国中共病毒死亡人数的81%”。
 
-全文如下：
 
-根据最新数据，（英国）超过5000万人接受了首剂疫苗接种，约占12岁以上人口的88%；超过4600万人完成了两剂接种，占12岁以上人口的80%。
+> The WHO is a joke. 
+> 
+> They're more concerned about the feelings of the Chinese Communist Party than they are about public health. 
+> 
+> President Biden should never have resumed funding to this corrupt puppet of the CCP without reform.
+> — Tom Cotton (@TomCottonAR) [November 27, 2021](https://twitter.com/TomCottonAR/status/1464609398693769222?ref_src=twsrc%5Etfw)
 
-《每日曝光》（The Daily Expose）报道：
 
-英国卫生安全局（UKSA）公布了一份每周的“疫苗监测报告”，其中包括过去四周内英国接种疫苗情况下的中共病毒感染病例、住院和死亡的情况。
 
-他们于11月25日星期四发布的最新报告涵盖了2021年第43周至第46周（10月25日至11月21日）的有关感染、住院和死亡的数据。
+参议员泰德·克鲁兹： 福奇是一位未经选举产生的技术官僚，他歪曲科学和事实，以便对数百万美国人实行独裁控制。 他生活在一个自由主义的世界里，他自鸣得意的“我代表科学”的态度受到了赞扬。 事实如下：5月11日，福奇在参议院委员会作证说，“国家卫生研究院从来没有，现在也没有资助 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 武毒所的’功能增强’研究。”10月20日，国家卫生研究院写道，他们资助了武汉实验室的一项实验，测试“在 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 传播的自然发生的蝙蝠冠状病毒的棘突蛋白是否能够与小鼠模型中的人类ACE2受体结合。”这就是功能增强研究.福奇的声明和国家卫生研究院10月20日的信件不可能都是真的。这些说法是直接矛盾的。 （4）《美国法典》第18卷第1001节规定，向国会撒谎是重罪，最高可判处5年监禁。再多的人身攻击也无济于事，民主党的论据无法使蝠奇摆脱这一矛盾。 福奇要么需要详细说明实质内容，并提供具体的事实佐证，否则司法部应考虑起诉他，因为他向国会做虚假陈述。
 
-报告显示，从10月25日至11月21日，中共病毒感染者确诊833,332例，住院9,094人，死亡3,700人，其中，未接种疫苗确诊者占确诊人数的39%，占住院人数的34%，占死亡人数的19%，因此，接种疫苗的人占所有病例的61%，所有住院人数的66%，所有死亡人数的81%。
 
-原文附上了相关图表：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-224.png)
-随着新的Xi-Omicron中共病毒变种在西方成为头条新闻，完全接种疫苗的人可能想留在家里几个月，以保护其他人群。
 
-（原文完）
+> (1) On May 11, Fauci testified before a Senate Committee that “the NIH has not ever and does not now fund gain-of-function research in the Wuhan Institute of Virology.”
+> — Ted Cruz (@tedcruz) [November 28, 2021](https://twitter.com/tedcruz/status/1465085974849937413?ref_src=twsrc%5Etfw)
 
-文章最后一句充满了调侃与讽刺。第一层是对世卫组织给病毒变异命名时跳过本来顺序上的Xi，直接用Omicron冠名给了嘲讽，他们如此自我审查，替习解难啊。第二层的讽刺是这个新病毒只在完全接种疫苗的人群之间传染，他们待在家里才能对防止新疫情爆发起到现实的作用啊。
 
-另外，发人深省的是文章内容，数据摆在这里，主管机构放出这些数据的本意是要恐吓打过疫苗者接着打第三、第四剂，第五剂、直到打死拉倒，而觉醒者从中解读到了真实信息，希望唤醒还不清醒者。
 
-原文链接：
+参议员泰德·克鲁兹： 这是对我们的盟友和伙伴的一个不幸而残酷的提醒，提醒人们 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的资金是他们用来侵蚀其他国家主权和夺取其关键基础设施的有毒债务陷阱。 【转“坦桑尼亚更新”的推文：[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 将接管乌干达的恩德培(Entebbe) 国际机场以抵偿债务。…【转“坦桑尼亚更新”的推文：[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 将接管乌干达的恩德培(Entebbe) 国际机场以抵偿债务。 中共国拒绝了乌干达提出的对六年前为机场扩建项目所选择的2亿美元贷款中的有毒条款进行重新谈判的要求。 此机场是该国唯一的国际机场】
 
-[https://www.thegatewaypundit.com/2021/11/report-fully-vaccinated-account-81-covid-deaths-uk/](https://www.thegatewaypundit.com/2021/11/report-fully-vaccinated-account-81-covid-deaths-uk/)
+
+
+> This is an unfortunate and brutal reminder to our allies and partners that Chinese money is a toxic debt trap they use to erode other countries' sovereignty and seize their critical infrastructure. [https://t.co/YyVLzqQmwf](https://t.co/YyVLzqQmwf)
+> — Ted Cruz (@tedcruz) [November 28, 2021](https://twitter.com/tedcruz/status/1465040109359837184?ref_src=twsrc%5Etfw)
+
+
+
+参议员玛莎·布莱克本： [#共产中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD?src=hashtag_click) 的债务陷阱外交正在起作用。 他们得寸进尺。 【转“坦桑尼亚更新”的推文： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 将接管乌干达的恩德培国际机场以抵偿债务。 中共国拒绝了乌干达提出的对六年前为机场扩建项目所选择的2亿美元贷款中的有毒条款进行重新谈判的要求。 此机场是该国唯一的国际机场】
+
+
+
+> Communist China’s debt trap diplomacy at work. 
+> 
+> Give them an inch, and they’ll take a mile. [https://t.co/I1PEkTgyhA](https://t.co/I1PEkTgyhA)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [November 27, 2021](https://twitter.com/MarshaBlackburn/status/1464724579226722306?ref_src=twsrc%5Etfw)
+
+
 
  
 

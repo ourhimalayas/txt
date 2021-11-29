@@ -2,45 +2,77 @@
 ---
 
 
-## 佛罗里达州全美人均中共病毒病例最少
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1704219/)
+## 蛆嘴之罪
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1704244/)
 
-作者：纽约香草山文艺部 – 宁文静
+作者：纽约香草山农场美食部-新世界的一员
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-5-768x103-3.jpg)
 
 
 
-据11月26日佛罗里达州官方报告，该州本周中共病毒感染数为每10万人中6例，较上两周下降20%，为全美50个州感染率最低州。与此相比，民主党各州实施严格的封锁令，病例却在激增。密歇根州报告每10万人30例，而纽约州为每10万34例。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1.2-11.jpg)
-据悉，此前，佛州州长德桑蒂斯因处理病毒的“另类”方式备受主流媒体的批评。疫情早期，他曾经因为反对政府强制实施口罩和疫苗政策而被民主党政客称为“死亡天使”。同时，佛州在今年8月份开设了25个单克隆抗体站点，并向全州超过15万人免费提供医疗救治，挽救了数千人的生命。从那时起，病例下降了95%以上，却对民众的自由没有设置任何限制。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1.1-13.jpg)
-参考链接：
-[Florida reports lowest daily coronavirus cases per capita in nation](https://www.foxnews.com/politics/florida-reports-lowest-daily-coronavirus-cases-per-capita-in-nation)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
 
-总编：AN
-编辑：文特
-校对/发稿：为真不破20
+![](https://assets.gnews.org/wp-content/uploads/2021/11/23-4.png)
+
+公知是毒蜘
+张牙舞爪泯人性
+胡言乱语伤国人
+牛催战力混视听
+黑口血牙乱民魂
+
+头顶公知名
+怀揣虎狼心
+国贼无良知
+全球拉仇恨
+无辜华人受其害
+共党恶奴无廉耻
+善良面前魔鬼脸
+跪舔强权丧天良
+
+掀起反华潮
+罪比李斯秦桧高
+对内全靠欺和瞒
+对外瘫软夹尾巴
+缩头缩龟比狗贱
+德不配位枉为人
+
+司马蛆南居公厕
+喜钻粪池方舟子
+蛔虫转世胡锡进
+一帮臭丑摆台戏
+祸害无辜何其多
+
+天道有轮回
+败类遭天谴
+因果报应在今朝
+蓝剑出鞘惩妖孽
+天地万物呈祥瑞
+
+尘归尘，土归土
+华人同敲祈福钟
+翻身做主人
+自由民主法治国
+福泽后世神州欢！
+
+校对/编辑/发稿: Amanda艾曼达
+终审：飞虹
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-3.jpg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-5-768x103-3.jpg)
 
 
 

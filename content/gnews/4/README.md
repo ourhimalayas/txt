@@ -2,51 +2,44 @@
 ---
 
 
-## 电价普涨 小麦进口创新高 戳破中共宣传谎言
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1704262/)
+## 两名已接种新冠疫苗的乘客到悉尼后测出Omicron变种阳性
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1704308/)
 
-作者：日本方舟农场 – Andy5
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Omicron-Coronavirus-Variant-2111281622.jpg)
 
 
-
-11月28日，本台综合墙内多家媒体的消息后发现，中共在10月大肆宣传保持电价稳定以及粮食大丰收之后，11月却爆出了完全相反的数据。
-
-10月下旬以来，墙内31省份中已经有26个陆续宣布电价上涨，其中7个省份上涨超过50%，内蒙古更是上涨了80%。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-133.jpg)
-另外根据中共海关的数据，今年1到10月，中共小麦进口量已经达到808万吨，全年超越2020年的838万吨的纪录几乎可以板上钉钉了。相对于2010年的120万吨、2019年的349万吨，中共前10年进口增长比较平稳，近两年则出现了跳跃式增长，而官方人口数没有大幅增加。电费上涨、粮食进口量激增的事实已经戳破了中共的谎言。
-
-参考链接：
-1. [冬奥会来袭：重工企业关停至3月！塑化巨头连发涨价函！](https://www.163.com/dy/article/GPQ19VO905509P99.html?f=post1603_tab_news)
-2. [11月中旬：粮价全面上涨 生产资料价格首次大幅度下降](https://www.163.com/dy/article/GPNBOU750552IAYT.html?f=post2020_dy_recommends)
-3. [观望氛围浓厚 麦价高位“拉锯”](https://finance.sina.com.cn/money/future/roll/2021-11-25/doc-ikyamrmy4968524.shtml)
-4.[商务部：扩大先进技术、重要设备等进口，鼓励优质消费品进口](https://finance.sina.com.cn/roll/2021-11-24/doc-iktzqtyu9271644.shtml?cre=tianyi&amp;mod=pcpager_fin&amp;loc=3&amp;r=0&amp;rfunc=58&amp;tj=cxvertical_pc_pager_spt&amp;tr=164)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+ 
+图片来源：www.businessinsiderbd.com/Representational
 
 
+#### 编译：小红帽
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+随着越来越多的国家开始限制旅行，一种新冠病毒（COVID-19）变种-Omicron已经在澳大利亚的主要城市–悉尼被检测出来。
 
+约有260人与2名对Omicron变种检测呈阳性的乘客乘坐同一航班抵达新南威尔士，现在必须进行隔离。
 
+当局已经通知他们，无论检测结果是否为阴性，都必须呆在家里14天。
+
+两名Omicron阳性的乘客，周六晚上乘坐卡塔尔航空公司QR908航班从多哈出发，现在被隔离在特别医疗设施中。两名乘客已经完全接种了新冠病毒疫苗，并没有出现症状。
+
+世界卫生组织上周将Omicron称为 “值得关注的变种”，它的发现引发了全世界的担忧，即它可能抵抗新冠疫苗并延长近两年的新冠病毒大流行。
+
+该变体首先在南非被发现，随后在英国、德国、意大利、比利时、博茨瓦纳、以色列、香港以及现在的澳大利亚被发现。
+
+暂停航班是世界各国为减缓Omicron变种的传播，而实施的众多限制中最引人注目的一项。许多国家已经实施或正在计划实施相关限制措施。
+
+**参考新闻：**[COVID: Omicron variant detected in Sydney and London (thenewdaily.com.au)](https://thenewdaily.com.au/news/world/2021/11/29/omicron-covid-sydney-london/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

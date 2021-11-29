@@ -2,148 +2,72 @@
 ---
 
 
-## 联盟委员会和各农场主要对新中国联邦和战友们负责
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1703996/)
+## 2018年5月31日郭文贵先生报平安直播
+` 温哥华扬帆农场七哥直播全文听写组` [轉載自GNews](https://gnews.org/zh-hans/1704051/)
 
-[https://gtv.org/video/id=61a36ae83ff6481adce57d90](https://gtv.org/video/id=61a36ae83ff6481adce57d90)
+视频链接：https://www.youtube.com/watch?v=-bqz1rDUJl
+![](https://assets.gnews.org/wp-content/uploads/2021/11/0-10.png)
+**郭文贵先生：**尊敬的战友们好，这是5月31号，文贵的报平安视频。这几天来一直在忙闭门听证会的所有的事情。有时候这个很多想法呢特别想分享给所有的战友们，但是由于确实时间和精力有限，有些事情只能等到这个事情完了以后再给大家分享。
 
-**郭文贵**
-**Miles Guo**
+**●0：24****不要将“六四”悲剧变喜剧，甚至变成某些人的发财工具**
 
-另外一个，我再重申一遍
-Another one, I reiterate
+**郭文贵先生：**这几天最重要的事情就是关于很多人都来问我关于“六四”就这几天就到了，我对“六四”的看法，和我想说什么。呃，六月二号我可能会上澳大利亚的邱岳首和安红女士的一个新的频道的一个节目，在那个时候，我可能会讲一些我的观点。
 
-任何战友，特别是投资战友不准随便发言
-Any comrades, especially ones with investment are not allowed to comment freely
+但是，我想今天和大家分享的事情是，昨天晚上我和一位老领导通电话。我老领导当年在“六四”的之前，我说五月中的时候，我说：我和您在一起，我去捐钱。您告诉我说：这很可能将是邓小平和赵紫阳之间的一个政治交量，都是牺牲品。”然后，后来学生的事件你很担心，后来都让你预测对了。
 
-你要承担法律后果
-You will be bearded the legal consequences
+我现在都29年过去了，海外现在很多人都在谈论着“六四”，您怎么看法呢？老领导呀作为安徽人用了安徽腔给我发音，我别学了，我一学，你们受不了啊。哈哈嘿。
 
-你要承担法律（后果）
-You have to bear the legal consequences
+然后呐就说，他说：“这事我也看了一些，最好啊，”他说：“这个‘六四’呀，是我们这个民族的一个悲剧，”他说：“在海外呀，大家都可以说，去认真去探讨这个悲剧发生的原因，和避免悲剧再发生的各种手段。但是，不要把这个悲剧变成了喜剧；不要说把这个‘六四’的悲剧变成了某些人的发财工具。不要认为很多人就好像过年一样到‘六四’，大家去抹点芥末，掉两滴眼泪，然后呐去讲讲话，然后拉些人在摄相头里面照照相，弄十几个人，七、八个人搞个什么噱头，然后就是一如既往地、把29年不变的捐款。”
 
-你是战友，因为你拿的一毛钱买的币，这是跟给你没啥两样
-You are a comrade in arms because of you have the HCoins with ten cents purchase price benefit which is no different from giving you for nothing,
+老人家的话让我感触颇深，我想起了当年在看守所里面被枪毙的那个……那几个人。我多次说过有个孩子，枪毙的时候定的罪行叫强奸幼女碎尸罪。这个人一再给我说、一再给我说：“中国民主、文化、人民，就像干柴烈火一样需要我们去点燃！”永远没忘过！从来没见过他妥协，从来没见过求饶过。几乎所有的犯人被打就地跪下，他经常我们听到拉他到外面打去，只听到“咕嗵嗵、咕嗵嗵的”，“嗷……嗷……”这么叫一叫，但没有听到他求啊、磕头呀，“求求你了、别打我了”，没听见过！
 
-倒贴钱给你，你还在那块儿
-and also back paying you the money. You are still there to criticize
+因为我们那个监号和墙、深墙之间相隔就是5米，5米一个是高墙铁网，然后5米这边是个监号的平顶，平顶上面笼子，武警在上面走，也是放风的地方。然后，这个笼子的后面是高的关囚犯的地方。所以就那么近，每天都听到。我感触太深了，永远不能忘了，这是个绝对的、了不起的真正的英雄！希望不要把这些无名的英雄的悲剧，变成我们某些人的发财的工具和变成了喜剧。这是真的老领导说得太好了！
 
-哎呦，真把自己当成投资者身份了
-Wow, you really identified yourself as investors
+**●3：54中共治下的中国无信仰，无道德；中共不灭，啥都是假的**
 
-然后在那块儿批评，你以为你是伪类啊
-and then, criticize here and there. You thought you are under-covered communist?
+**郭文贵先生：**另外一个，我跟老领导顺便问了一句，我说：“现在很多人呀都在谈文贵到底该反不反习？反不反共产党？”他说：“你不是说了嘛，成天反乌托邦嘛！你不是成天要反乌托邦，乌托邦不就是共产党嘛！”老人家当然有忌讳了不许说多，实际上中国现在的问题，只要这个乌托邦体制，共产党不被灭了、不被改变，中国谈啥都是假的。
 
-是不是？你想骂就骂，你想干啥就干啥
-Don’t you? You can criticize whatever you want and do whatever you want
+这也是为什么中国大地上今天，真的必须变成假的，假的必须变成伟大的。真的没有活路，真的没有机会，真的没有尊严！假的发财升官、有女人、有票子，还有权力，还有尊严，荒不荒唐啊？不就来自于乌托邦吗！在中国善的被欺负，善的没未来，善的甚至没有生命，还没有安全！恶的有大钱，有大权，有美女，还有美食，还能得到尊重，何等的荒唐啊！善恶颠倒、真假不分！这不是一个民族国家人类的悲剧嘛！来自于哪里呀？不就是来自于乌托邦共产主义嘛，也就是今天的共产党嘛。
 
-你拿了一毛钱的币，你就必须维护这个币
-You have gotten the coin at a dime, you must defend the coin
+所以呀，这感触太深了，29年前的一切都历历在目，仿佛就在前天、昨天。可是，我们29年了，为了发财，为了赚钱，为了统治，这个国家竟然不让有信仰！一个没有信仰的国家，怎么可能有安全、有尊严、有公平，有真假之分、善恶之分！一个没有信仰的国家，不允许信仰，他信谁呀？他只能信钱！信钱的结果是什么呀？就没有道德。道德是做人的底线，人和畜牲之别就是德道。道就是手段，德是标准。做人的手段和标准都没了！就谈什么法律和信仰呀、还谈什么善恶呀！
 
-这点要求一点不过分吧？
-This is not too much to ask, right?
+那么今天就因为如此，中国现在社会上都是现实主义当道，一切以钱为主。这是为什么“六四”的时候，那么多人死了以后，没有人记得他们的名字，到今天29年了，到底死多少人？那个坦克人到底是怎么回事？没人说出真相！大家都在抹着鼻子掉着泪、伸着手、拿着钱、弄点名，弄成民主民运，还什么民主民运律师，大家靠它发财。为什么？
 
-特别是对铁血组，特别是对联盟委员会
-Especially to the Iron Blood Group and the Farm Alliance Committee,
+因为没有廉耻，没有真假善恶之分，没有真假善恶的标准，没有道、没有德！没有起码的对死者的敬畏，对悲剧的这种反思，因为没有信仰、没有宗教。没有宗教没问题，你不能没信仰。对上天之敬意，对几千年来人类上集结的各种宗教这种敬畏之心，都没有！一切都否定，只相信钞票！今朝有酒今朝醉，都是这种思路，官场上哪个不是这样？
 
-你要保持配合和尊重
-you have to maintain cooperation and respect
+我原来说过那个岳文海、岳文海，那个财政部的王宝安部长，包括抓起来的邹来振，包括大帅哥张副部长张少春，全都是岳文海介绍给我的。这些人都被抓了，岳文海啥事没有，啥事没有！这不是不荒唐吗？原因是啥呀？安全部、中纪委，有河南帮在帮助他们。还有一个，他送了太多人的字画，给太多人送了美女，没有人查他。
 
-我们接下来最关键的事情
-The next most critical thing for us
+所以说，什么叫反腐呀？反的谁家腐呀？对不对呀。你不就是选择反腐吗？反腐是一个政治斗争的工具！根本不是为人民所争取的公平和正义，或者争取利益，或者是保护党的、国家的、人民的利益，都是瞎扯的！这是个最简单的例子，太多了这个例子，我举不完。
 
-以最快的时间把每个农场的代持的币一个不能少
-is to clarify the coins held by each farm as soon as possible, not one less
+**●8：20****马哈蒂尔想用“马航事件”和中共做交换**
 
-这个代持币会是天大的事儿
-The coins will be a huge deal
+**郭文贵先生：**关于爆料，文贵正在等待着一个最佳的时机，现在把所有的目光和精力都让给委内瑞拉、马来西亚、马航！大家注意到了吗？马航，马哈蒂尔前天说了：“只要是有新的证据，马航事情就重新调查。”什么意思？跟中国做交换，把刘特佐给送回来，马航的事情我可以咱们商量着来，不送回来，我就把马航重新调查。马航事件是文贵爆料的一个关键点、关键事件！一旦马航事件重新调查，有重新的真相出来，这个爆料革命将走向新一个台阶。
 
-这真是一币难求
-It’s really hard to acquire another coin
+亲爱的战友们，一切都是刚刚开始！不要着急，啊，不要着急。你看看我现在每天十几个小时，我做那么多事情，很多不能跟你们分享，因为都是签法律协议的。但，未来你们都会慢慢知道。行动！行动！行动！大于一切。29年，我们如果大家都行动，今天一切都将不同。
 
-接下来就是一币可以毁人呐
-then, it may destroy others just for one coin
+今天的委内瑞拉就是中国的、有可能是下一个中国的翻版，所以我们要制止。今天的马来西亚说明了中国对外扩张的失败，我们人民不能被绑上战车。我们正在做，一切“阳谷莘县县搭县”，咱最后看结果说了算！
 
-这个事儿，老班长在这呢，我求求你了
-Please Old Squad Leader
+谢谢亲爱的战友们！
 
-你再不弄，下次直播我就天天在那喊你
-if you don’t do that, I’ll call you out each time on the future live broadcast
+**\*\*\*\*\*\*END\*\*\*\*\*\***
 
-因为后果是你先负责，第二就是长岛哥，然后就是联盟委员会，农场主
-Because you are the first one for the responsibility of the consequence, then Brother Long Island, and following by the Alliance Committee, the farm owner
+**温哥华扬帆农场七哥直播听写组**
 
-你农场主，你不能拿着钱你不干事儿
-As the farm owner you cannot take the money without doing anything
+**听写：**
 
-而且我们真的要清除农场里的很多坏人
-And we really need to remove a lot of bad people in the farm
+温哥华扬帆农场：Mia笑咪咪
 
-就我们现在农场主说啥事，共产党就知道
-because now we have farm owners who say anything and the CCP know it right away
+**校对/要点提取：**
 
-这是很可怕的
-It’s very scary
+温哥华扬帆农场：闻喜
 
-把代持的币，还有一些所谓的假义工报的币，各农场你真要查清楚
-You really have to check the coins held on behalf of the farms and the coins reported by the so-called fake volunteers
+**审核/发布：**
 
-这假义工报的币，就刚才我说那个例子，这很多了
-There are a lot of fake volunteer coins, just like the example I mentioned earlier
+温哥华扬帆农场：Shuang
 
-他拿了币一定不干别的，就砸你
-They will not do any others but destroying the market after they got the coins
+**全文发布稿总审核：**
 
-还有没有签合同的，是吧？
-And also they haven’t signed a contract, right?
-
-你必须得把他的币给他收了
-You have to confiscate their coins
-
-因为你整个联盟委员会要负责任
-because your entire Farm Alliance Committee is responsible for it
-
-人家喜联储不管你那个
-Himalaya Reserve won’t care about that
-
-反正我的币给你了，你爱怎么弄怎么弄，它才不管呢
-They provided you coins, you can do whatever you like, and they don’t care
-
-但是你老班长，你长岛哥，各农场主
-But you all, Old Squad Leader, Brother Long Island, the farm owners
-
-你要是把这个币给错了，他们拿这个币来砸的时候
-if you give these coins to wrong individuals, when they use this coin to destroy our market
-
-对不起，你们必须负责任
-Sorry, you must be responsible for it
-
-这是七哥要求你要为新中国联邦负责
-This is my demand that asking you to be responsible for the New Federal State of China,
-
-你要为七万七千个战友负责任
-and to our 77,000 comrades
-
-**原视频链接：**[https://twitter.com/se1y7cblljselva/status](https://twitter.com/se1y7cblljselva/status)
-
-Date: 11/10/2021
-原视频标题: 联盟委员会和各农场主要对新中国联邦和战友们负责
-The Farm Alliance Committee and the owners of the farms are accountable to the New Federal State of China and to their comrades in arms
-原视频日期：2021/11/05
-原视频链接：https://twitter.com/se1y7cblljselva/status/1457477829294055428?s=24
-任务编号：2809
-视频时间段 : 0:00-1:57
-
-英听校：洛杉矶盘古农场 – Mike Li
-翻译: 洛杉矶盘古农场 – Mike Li
-翻译终校：洛杉矶盘古农场 – 郭班之樱
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+温哥华扬帆农场：文敏
 
  
 

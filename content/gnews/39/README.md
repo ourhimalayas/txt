@@ -2,56 +2,42 @@
 ---
 
 
-## 美共和党特尼议员：中共国比80年代的苏联更糟糕
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1703890/)
+## 郭文贵直播摘要和音频 2021.11.28
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1703977/)
 
-作者：纽约香草山农场 – 四季
+摘要撰稿人：文俊
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
+音频提供者：左媛
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5555-1.jpg)
 
 
-纽约共和党人克劳迪娅·特尼（Claudia Tenney）议员11月26日在Newsmax节目中说，中共国“比20世纪80年代的苏联更糟糕”，美国必须站出来反对中共国在台湾和其他问题上的侵略行为。
+### **视频链接：**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1547-1.jpg)图片来源：Newsmax
+[https://gtv.org/video/id=61a3828b44c1fe7a6c3aaf29](https://gtv.org/video/id=61a3828b44c1fe7a6c3aaf29)
 
-她在Newsmax的“国家报告”上说，作为美国人，我们需要站起来，认识到中共不仅是美国的敌人，而且是世界的敌人，是世界的规范和基于规则秩序的敌人。
+### **音频链接：**
 
-就在她发表评论之际，一个由五名众议院代表组成的两党小组于11月25日前往台湾，会见台湾总统和其他领导人，并在台湾面临来自中共国的压力时对其表示支持。
+### 摘要：
 
-与此同时，台湾国防部表示，台湾空军周日再次出动，警告27架进入台湾防空区的中共国飞机，同时部署导弹系统以监视它们。这是敏感的台湾海峡两岸紧张局势的最新升级。
-
-**参考阅读：**
-
-1. [Rep. Tenney to Newsmax: China ‘Worse Than the Soviet Union’ of the 1980s | Newsmax.com](https://www.newsmax.com/newsmax-tv/claudia-tenney-china-taiwan-russia/2021/11/26/id/1046324/)
-2. [Taiwan Reports 27 Chinese Air Force Planes in Air Defense Zone | Newsmax.com](https://www.newsmax.com/newsfront/taiwan-china-air-defense-zone-planes/2021/11/28/id/1046418/)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+- 新变种病毒Omicron從南非向欧洲和北美：非洲不可能是传染源，但是要嫁祸非洲，目的制造种族仇恨，真正的传染源还是在美国西部，两三周前就开始了
+- 这更加证明了中共正在向全球释放新的病毒，病毒就是解放军的生化武器，昌平生化部队1998年建立，2012年习上台后大肆扩张
+- 所有这次感染的人都是打了两针的人，是打了疫苗之间的人相互传染
+- 这次又开始全球放毒习近平已经彻底疯了，希特勒名言：我以梦游者的自信走向我的命运，习近平崇拜希特勒，习大神的中国梦就来自希特勒的名言，所有独裁者都会编辑一个自己是神的谎言
+- CCP放毒制造世界动乱，全球供应链崩溃，当世界陷入彻底的混乱所有的金钱都失去了价值和意义，饿死人比病死人更可怕
+- 共产党放毒就是为了制造动乱，目的是台湾。通过解药，要挟各国参加奥运会
+- 习近平这次是真要挑战美国 而且还拉俄罗斯一起干，习是真疯了 他是真要灭美国 真心想要打台湾
+- 谷歌告诉你的 是它想让你看到的 而不是你想知道 很多真相是无法搜索到的
+- 关于福利币：当初大家是集体决定就应该服从所有人的利益 谁牺牲战友的利益 谁就是我们的敌人 七哥会不惜一切代价来维护战友们的利益 我们要一起吃肉、一起吃丸子、不要兑水！
+- 郭七条一定要坚持，不反国家 不反民族，反对以黑治国、以警治国
+- 当超市供应出问题了、汽油的价格和加油的供应出了问题、股票市场出现了起伏和暴跌暴涨的时候，就是经济危机了，这次经济危机+疫苗灾难，会有3年-5年困难期，5-10年的调整期
+- 所罗门骚乱事件是美国操作的事件，目的把中共在所罗门军事基地赶出去
 
 
 
 
+
+
+编辑发布：闪电训练
 
  
 
