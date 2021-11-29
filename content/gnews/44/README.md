@@ -2,18 +2,20 @@
 ---
 
 
-## 奥密克戎来袭 东京股市暴跌
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1704968/)
+## 一切资产都要归党管！中共北京数字资产交易所来了
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1704979/)
 
-撰稿: 东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1212.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fstock.gucheng.com%2FUploadFiles_7844%2F202105%2F2021051315235556.jpg&amp;imgrefurl=https%3A%2F%2Fstock.gucheng.com%2F202105%2F4042280.shtml&amp;tbnid=0YpAzrVsdUdQbM&amp;vet=12ahUKEwjttL3rmb30AhU6TPUHHd_RApoQMyg1egQIARAV..i&amp;docid=fzN71SGMH3o7EM&amp;w=780&amp;h=479&amp;q=%E6%97%A5%E6%9C%AC%E8%82%A1%E5%B8%82%E6%9A%B4%E8%B7%8C&amp;ved=2ahUKEwjttL3rmb30AhU6TPUHHd_RApoQMyg1egQIARAV)
-29日，由于担心中共病毒的变种“奥密克戎”毒株在全球蔓延，东京股市暴跌，日经指数比前一个周末下跃逾500日元。收盘价为28,283.92日元，下跌467.70日元。
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12122.png)[图片来源](https://www.ledgerinsights.com/coinbase-ftx-us-join-crowded-nft-marketplace-sector/)
+11月26日，中共国务院印发《关于支持北京城市副中心高质量发展的意见》(以下简称《意见》)，提出要加快推进法定数字货币试点，探索建设数字资产交易场所。
 
-由于对“奥米克戎”变异病毒的警戒，日经指数开盘下跌超过400日元，之后又被回购，指数出现了片刻上涨。但是随着岸田文雄首相宣布全面禁止外国人入境时，下跌趋势明显加快。
+借助区块链技术，特别是“非同质化代币（NFT）”数字资产的出现，赋予了数字资产权属明确、可交易的新特性，开启了数字资产交易的新时代。
 
-当日本政府以牺牲股市为代价，正面面对新变异病毒时，中共国却开始标榜自己是“当今世界抵抗病毒传播的真正铜墙铁壁”，高调宣扬所谓的“动态清零路线”，是可忍孰不可忍！难道让全世界效仿你的草菅人命，学习你的独裁暴政，以病毒•疫苗为手段戕害人类？!在变异病毒蔓延之时，只有释放病毒的始作俑者，才会有这样的“胸有成竹”吧！
+鉴于数字资产以数字货币作为计价和交易基础。随着企业和个人资产的数字确权和交易，相当于中共用数字人民币全面掌控中共国一切资产。
 
-[信息源：](https://news.yahoo.co.jp/articles/a0d523ec156c92ec058f169a3871fac6b9d0372a)
+信息来源：
+
+[北京城市副中心再迎新发展！推进数字货币试点探索建设数字资产交易场所](https://finance.eastmoney.com/a/202111262195105265.html)
 
 *校对：东京樱花团/知了知了*
 *发布：东京樱花团/tdownc2p*

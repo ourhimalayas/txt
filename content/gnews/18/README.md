@@ -2,35 +2,39 @@
 ---
 
 
-## 中共释放变种病毒 祸乱世界 意在台湾
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1705754/)
+## 英国国际投资公司启动， 对抗 “一带一路”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1705783/)
 
-作者：纽约香草山农场 -文真
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-Omicron变种病毒的迅速蔓延再次造成世界各国恐慌。11月28日，郭文贵先生在大直播中再次发出警告，病毒是中共解放军的生化武器。中共和邪恶势力勾结，有预谋、有计划地释放新的变种病毒。
+作者： 纽约香草山健身部 – Ivy001
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide1-23.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-225.png)
 
-郭先生爆料称，新变种病毒的真正传染源在三周之前，被中共释放到了美国西部。近期中共派王毅、杨洁篪到访非洲，中共的军机飞抵中东、非洲等地，都是为释放新病毒做准备。中共嫁祸非洲，使之成为新变种病毒发源地，目的是要激化欧洲本地居民和非法非洲移民之间的种族矛盾。中共和历史上所有的大独裁者一样，通过煽动种族仇恨，分化人类，加强集权统治。
+11月25日，英国外交大臣利兹·特拉斯在伦敦证券交易所正式启动英国国际投资公司，也就是BII机构，该机构可以动员私人资本，投资亚洲、非洲和加勒比地区，向全球提供一种替代方案，来取代专制政权和非市场经济体的中共，在之前提出的有附加条件的贷款方式，直接剑指中共的“一带一路”倡议。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/9-26.jpg)
+根据BII的公告，英国政府计划到2025年，每年动员80亿英镑的公共和私营部门资本，投资于相应的国际项目。同时，它计划着重帮助私营部门参与该项目，包括与资本市场和主权财富基金合作，扩大融资规模。
 
- 郭先生说，中共再次释放致命变种病毒，第一个目的是转移中共国内部的经济矛盾和政治矛盾，另一个目的是要搞乱、搞弱美国和欧洲，断掉经济供应链，制造恐惧，甚至是饥荒，从而导致西方国家内部的局部动乱。中共企图用病毒解药要挟全世界，而且与俄罗斯合谋，趁西方国家内乱之际，两方同时攻打台湾和乌克兰。
+推动此机构启动的英国外交大臣称，这是利用经济学作为外交政策的工具，来更加发挥英国对全球的影响。
 
-参考链接：[2021年11月28日 文贵大直播：新变种Omicron 如临大敌；青蒿素妙药必将解救众生；中共国世界股票剧烈震荡；新中国联邦坚守唯真不破](https://gtv.org/video/id=61a3828b44c1fe7a6c3aaf29)
+参考链接：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+- [UK seeks to counter China’s influence with new development investment arm](https://www.ft.com/content/93de6cc1-451a-465d-8233-8c9b903cedd4)
+- [英国拿90亿英镑组建国际投资机构“对抗中国影响力”？专家：夸张！](https://news.sina.com.cn/c/2021-11-25/doc-ikyamrmy5040712.shtml)
+- [UK overhauls development investment body to challenge influence of Chinese loans](https://www.cityam.com/uk-overhauls-development-investment-body-to-challenge-influence-of-chinese-loans/)
 
-总编：Jack Li文阳
-编辑：Jack Li文阳
-校正/发稿：谐趣园
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-10.jpg)
+
+总编：飞虹
+校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-225.png)
 
  
 

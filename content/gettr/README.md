@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/29/2021 7:53 PM (UTC)`
+
+11月29号：我得乖乖嘞，这共产党的四个自信，去哪儿啦？不是无神论吗？干嘛怕一个龙头建筑呢，怕到这个样子……这也是真的相信了，文贵的视频中讲的……黑色白蛇的事实了！
+![img](https://media.gettr.com/group30/getter/2021/11/29/19/53/62bae4d1-0b5b-493f-510e-ea71e12cfd49/f0e953d27790f6562b7e07faf94cec6b.jpg)
+
+---
+
 `@miles 11/29/2021 4:07 PM (UTC)`
 
 <br/>11月29号：全世界的经济即将崩溃之时，随之而来的是社会动乱……政治危机，以及局域战争的开始……新中国联邦人要团结在一起，共同渡过这个人类的世纪大灾难！
@@ -147,13 +154,6 @@ NBA球员埃内斯·坎特：我需要成为那些无法发声的无辜者的代
 
 11/26/2021 Miles Guo: The CCP established an organization in the UN to oppose the anti-Winter Olympics; where are Yang Jiechi and Xu Qiliang? Whoever wants to attack Taiwan gets ill - “cuckold” Wang Hongguang contracted the virus; top secret intelligence shows that CCP troops participating in recent exercises think they can't defeat Taiwan<br/><br/>11/26/2021 文贵直播：中共在联合国成立了“反对反冬奥会的组织”；杨洁篪和许其亮去哪儿了? 谁喊打台湾谁染病 - 绿帽子王染病了；绝密情报：中共近期参加演习的部队自认为打不赢台湾<br/>
 ![img](https://media.gettr.com/group17/getter/2021/11/27/03/24/f4f417e4-2653-9f09-f8b6-38239efcfd12/out.jpg)
-
----
-
-`@miles 11/27/2021 12:59 AM (UTC)`
-
-11/26/2021 Miles Guo: Changpeng Zhao handed over the Binance users’ personal information to the CCP, the US, Japan, and some countries in Europe and Middle East; many of Binance’s bank accounts were closed due to the US dollar’s long arm jurisdiction; the CCP is threatening Dubai to turn in Changpeng Zhao’s money<br/><br/>11/26/2021 文贵直播：赵长鹏将币安用户的个人信息交给了中共、美国、日本、欧洲和中东等国；币安的多个银行账号因美元长臂管辖而遭关闭；中共正在威胁迪拜交出赵长鹏的钱<br/>
-![img](https://media.gettr.com/group17/getter/2021/11/27/00/59/b9a8342b-64da-0217-f218-5449dec3eee4/out.jpg)
 
 ---
 

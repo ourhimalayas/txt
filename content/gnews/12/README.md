@@ -2,30 +2,37 @@
 ---
 
 
-## GTV新闻访谈简报|2021年11月29日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1705930/)
+## 中共国“团结非洲”为其提供10亿支疫苗
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1705942/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-421.jpeg)
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-8.png)
+图片来源于本文链接
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-30.png)
-文章仅代表作者本人观点，与Gnews无关
+据日本产经新闻报道，由中共国和53个非洲国家参加的中非合作论坛部长级会议11月29日起连续两天在塞内加尔首都达喀尔召开。
 
-视频参看：2021.11.29早GTV新闻访谈
+29日开幕，中共国国家主席习近平在线出席会议，宣布向非洲国家提供10亿剂中共病毒疫苗。6亿剂将免费提供，其余4亿剂将由中共国企业和非洲国家联合生产。
 
-[https://gtv.org/video/id=61a4d5a544c1fe7a6c3b5b43](https://gtv.org/video/id=61a4d5a544c1fe7a6c3b5b43)
+中共国一直在通过经济援助与非洲国家建立密切的关系，习政府打算利用疫苗供应进一步加强其对非洲的影响力。鉴于中共国的动向，拜登政府在非洲外交上也积极进取。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+该论坛每三年举行一次，在中共国和非洲轮流举行，这一次，持续到30日，习近平强调，中共国和非洲“将在抗击传染病方面保持团结”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-419.jpeg)
+中共国通过用经济援助包围非洲来扩大其影响力的同时，国际社会对“债务陷阱”感到担忧，即发展中共国家由于中共国的过度贷款而负债累累，从而被迫遵守中共国的政治要求。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+作为回应，美国国务卿布林肯本月中旬访问了肯尼亚、尼日利亚和塞内加尔三个非洲国家。 布林肯20日在塞内加尔参加了美国企业总投资额10亿美元的合同签订仪式。虽然美国与非洲的外交在上届特朗普政府时期停滞不前，但针对中共，拜登政府采取了与前总统川普时代不同的基调。
+
+关键词：中共国 中非论坛 团结 疫苗 债务陷阱
+
+摘要：由中共国和53个非洲国家参加的中非合作论坛部长级会议11月29日起连续两天在塞内加尔首都达喀尔召开，中共国国家主席习近平在线出席会议，宣布向非洲国家提供10亿剂中共病毒疫苗。
+
+信息源：
+
+**[中国「アフリカと団結」　ワクチン１０億回分提供へ](https://news.yahoo.co.jp/articles/fbae1258fbd8f8dac3202fd922438c96b9fd437f)**
+
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht-1-1.png)
+
 
  
 
