@@ -2,30 +2,10 @@
 ---
 
 
-## GTV新闻访谈简报|2021年11月29日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1705930/)
+## 11/28/2021 文贵直播：大家不要忘記病毒是源自中共軍方的生化武器（粤语配音版）
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1705940/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-421.jpeg)
-
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-30.png)
-文章仅代表作者本人观点，与Gnews无关
-
-视频参看：2021.11.29早GTV新闻访谈
-
-[https://gtv.org/video/id=61a4d5a544c1fe7a6c3b5b43](https://gtv.org/video/id=61a4d5a544c1fe7a6c3b5b43)
-
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-419.jpeg)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+秘密翻译组-北美组
 
  
 

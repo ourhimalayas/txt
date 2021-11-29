@@ -2,39 +2,35 @@
 ---
 
 
-## 伊利诺伊州面临退休债务危机
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1705753/)
+## 中共释放变种病毒 祸乱世界 意在台湾
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1705754/)
 
-作者： 纽约香草山健身部 – Ivy001
+作者：纽约香草山农场 -文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+Omicron变种病毒的迅速蔓延再次造成世界各国恐慌。11月28日，郭文贵先生在大直播中再次发出警告，病毒是中共解放军的生化武器。中共和邪恶势力勾结，有预谋、有计划地释放新的变种病毒。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-225.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide1-23.jpeg)
 
-11月21日，美国零对冲报导, 2021年，伊利诺伊州的每个家庭平均要背负高达 11万 美元的政府雇员退休金债务，在2019 年，伊利诺伊州每个家庭的负担只有 9万美元。截至 2020 年 6 月 30 日，美国最大的养老基金缺口就在伊利诺伊州，缺口总额达 3130 亿美元。伊利诺伊州在退休债务方面也是全美最高的，已增加到 5千亿美元。不断增长的债务表示，超过 100 万伊利诺伊州政府工作人员和退休人员将会失去退休保障。根据皮尤慈善信托基金的数据，伊利诺伊州的州级养老金只有 39% 的资金到位，居全美最低。
+郭先生爆料称，新变种病毒的真正传染源在三周之前，被中共释放到了美国西部。近期中共派王毅、杨洁篪到访非洲，中共的军机飞抵中东、非洲等地，都是为释放新病毒做准备。中共嫁祸非洲，使之成为新变种病毒发源地，目的是要激化欧洲本地居民和非法非洲移民之间的种族矛盾。中共和历史上所有的大独裁者一样，通过煽动种族仇恨，分化人类，加强集权统治。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/8-36.jpg)
+ 郭先生说，中共再次释放致命变种病毒，第一个目的是转移中共国内部的经济矛盾和政治矛盾，另一个目的是要搞乱、搞弱美国和欧洲，断掉经济供应链，制造恐惧，甚至是饥荒，从而导致西方国家内部的局部动乱。中共企图用病毒解药要挟全世界，而且与俄罗斯合谋，趁西方国家内乱之际，两方同时攻打台湾和乌克兰。
 
-此前，文贵先生多次在大直播里分析，中共国房地产业的雪崩式爆雷和债务违约，必将对美国的养老保险金和退休金产生巨大的冲击。伊利诺伊州债台高筑，是美国退休金债务危机的缩影。
+参考链接：[2021年11月28日 文贵大直播：新变种Omicron 如临大敌；青蒿素妙药必将解救众生；中共国世界股票剧烈震荡；新中国联邦坚守唯真不破](https://gtv.org/video/id=61a3828b44c1fe7a6c3aaf29)
 
-参考链接：
-
-- [伊利诺伊州面临退休债务危机](https://gettr.com/post/phw727b8f9)
-- [Illinois Pension Shortfall Surpasses $500 Billion, Average Debt Burden Now $110,000 Per Household](https://www.zerohedge.com/markets/illinois-pension-shortfall-surpasses-500-billion-average-debt-burden-now-110000-household)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-10.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
 总编：Jack Li文阳
 编辑：Jack Li文阳
-校正/发稿：海阔天空1
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-225.png)
 
  
 

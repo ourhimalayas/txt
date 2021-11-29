@@ -2,40 +2,39 @@
 ---
 
 
-## 再有27名俄罗斯外交官被美国驱逐出境
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1705693/)
+## 超过76000港人获得英国BNO签证
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1705705/)
 
-#### 作者：日本东京方舟农场 子辰
+作者： 东京樱花团 – 在远方
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-225.png)
+外媒11月27日消息，据英国内政部最新数据，今年年初以来BNO签证计划已经有接近9万香港人申请，其中超过76000人已经获批。此外，今年一至三季度还有96宗港人的政治庇护申请。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/C41FEDB4-C21B-4368-8528-29A4EB4E818B.jpeg)图片来自网络
+![](https://assets.gnews.org/wp-content/uploads/2021/11/7-12.png)
 
-据CNA11月28日报道，俄罗斯驻美国大使证实，又有 27 名俄罗斯外交官及其家属被美国驱逐出境，并被限定于明年1 月 30 日前离开美国。
+近日，有英国议员提出修订BNO签证计划，如果被通过，将帮助97年以后出生，没有BNO护照的年轻人。他们可以利用父母的BNO身份移民因英国。
 
-俄罗斯驻美大使阿纳托利·安东诺夫（Anatoly Antonov）11月27日在接受《 Soloviev Live Youtube 》视频采访时称：“我们的外交官正在被驱逐，我们正面临严重的人员短缺问题”。
+据悉，英国的BNO签证政策是在中共在香港强推《国安法》之后推出的。根据这项政策，成功申请并得到签证的人士将可以在英国生活五年后申请永久居民身份，获得定居身份12个月后可以申请英国国籍。国安法实施一年多以来，港人移民浪潮还在持续。
 
-在此前的8月，安东诺夫曾表示，由于签证到期，美国要求24名俄罗斯外交官在9月初离开美国。
+参考链接：
 
-俄罗斯外交部发言人玛丽亚·扎哈罗娃表示，自2016年两国关系恶化以来，已有近100名外交官及其家属被迫离开了美国。截至10月29日，只有近200名俄罗斯外交官在美国工作，其中包括俄罗斯驻联合国代表团的工作人员。
-
-反观另一方面，美国政府上个月表示，经过一系列的被驱逐和限制后，美国驻俄罗斯代表团的工作人员已从2017年初的1200人缩减到120人。
-
-据悉，美国驻莫斯科大使馆今年起停止办理非外交签证，并将俄罗斯人列入可在第三国申请签证的“无家可归者”（Homeless Nationals）名单。
-
-根据美国国务院网站上公布的文件，“无家可归者”并非是指申请者没有“家”，而是指美国没有在这些国家设立领事馆；或因政治局势不稳定导致美国外交官无法审议签证申请。
-
-*新闻链接：*
-
-1. [*https://www.channelnewsasia.com/world/russia-diplomats-leave-us-embassy-expel-visa-2343691*](https://www.channelnewsasia.com/world/russia-diplomats-leave-us-embassy-expel-visa-2343691)
-2. [*https://www.epochtimes.com/gb/21/11/28/n13404354.htm*](https://www.epochtimes.com/gb/21/11/28/n13404354.htm)
+- [英国BNO签证1月31日起生效 北京、港府称“不再承认”BNO护照](https://www.bbc.com/zhongwen/simp/uk-55851549)
+- [近9万人申请BNO签证 超过8成人已获批](https://www.voachinese.com/a/almost-90-000-have-applied-for-bno-visa-with-over-80-approved-20211126/6329482.html)
 
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-10.jpg)
 
-*素材采编：子辰*
+总编：木白
+编辑：木白
+校正/发稿：海阔天空1
 
-*编辑：青衣青青*
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-*发布：miumiu*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-225.png)
 
  
 
