@@ -2,43 +2,68 @@
 ---
 
 
-## 推特（Twitter）创始人杰克·多尔西(Jack Dorsey)辞去CEO一职
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1708921/)
+## 格雷格·波波维奇称赞埃内斯·坎特直言不讳地谈论中国
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1708965/)
 
-**【译者按】**郭*文贵先生三年前曾经拥有推特账户，而且一个星期内就有40万的关注，然而推特很快就封掉了文贵先生的账户；2020年4月，Twitter封了Steve Bannon先生的平台WarroomPandemic账号；2021 年 1 月，Twitter决定永久封禁时任总统川普的推特账号；2021年7月，新西兰一位学者在嘲讽中共党魁之后，推特限制了她的账户；此外，Twitter也封禁了无数新中国联邦战友的账户……Twitter的种种恶行或许可以用文贵先生在2020年12月4日的直播来解释“Twitter所有打的算盘，就是中共答应把中国的搜索和所有的整个中国市场对其全面开放，然后让Twitter作为中共的数字人民币的承销商”。Twitter想成为世界媒体老大，如今来看，简直就是痴心妄想。*
+埃内斯·坎特 (Enes Kanter) 是对中国发声的最著名的体育明星之一
 
-据《大纪元》记者Jack Phillips，2021年11月29日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-982-e1638292826803.png)Twitter 首席执行官兼 Square 联合创始人兼首席执行官 Jack Dorsey 于 2021 年 6 月 4 日在佛罗里达州迈阿密的 Mana 会议中心参加了加密货币会议《2021年比特币大会-Bitcoin 2021 Convention。
-图片来源：Marco Bello/AFP via Getty Images
-**据Twitter称，该公司CEO兼联合创始人 Jack Dorsey 将卸任这家社交媒体公司的首席执行官，并将由首席技术官帕拉格·阿格拉瓦尔（Parag Agrawal） 接任，立即生效。**
+**【简评：】***2017年郭文贵先生就爆料中共3F计划和BGY计划，其中包括利用中国庞大的市场资源来绑架美国，用金钱和市场利益收买美国的政治家、华尔街、硅谷、文化和体育界，要他们对中共对香港、新疆、西藏等人权问题沉默，最终达到其邪恶目的。对于2020年的新冠病毒流行和2021年的疫苗灾难，美国的政界、商界、科技界、文化界全部噤声，这就是中共经济渗透、文化渗透的结果。但我们也看到，NBA火箭队经理穆雷为2019年的“光复香港时代革命”运动发声，2021年NBA凯尔特人队球星坎特为中共对新疆、西藏等人权问题发声，说明美国各界有越来越多的人认识到中共及其幕后黑暗势力搞乱美国、统治世界的种种恶行。新中国联邦和全球正义人士正在集结，等美国为首的西方国家完成全球正义力量的集结，对中共犯下科技军事偷盗、经济文化侵略、人权侵犯、释放生物武器和毒疫苗戕害全球等罪行进行清算的时候，就是中共灭亡时。*
 
-“我已经决定离开 Twitter，因为我相信公司已经准备好离开它的创始人继续前进” 。多尔西在2006年帮助创立了Twitter，他在11月29日发布的一份声明中说， “作为 Twitter 的 CEO，我对帕拉格非常信任。他在过去 10 年的工作具有变革性。我对他的技能、心灵和灵魂深表感谢。现在是时候让他（帕拉格）来领导Twitter”。
+据《Fox News》记者Alejandro Avila 2021 年 11 月27日报道：
 
-该公司发布的一份声明称，阿格拉瓦尔已在 Twitter 工作了十多年，自 2017 年以来一直担任首席技术官。
+**本赛季，埃内斯·坎特 (Enes Kanter) 将 NBA 及其所有精英球队都放在了聚光灯下。波士顿凯尔特人中心一直公开表示他反对中共国侵犯人权的行为：与黑命贵运动的支持者所看到的广受赞誉的社会激进主义相比，这一信息已经变得更加“像在房间里的大象”。**
 
-根据Twitter的声明，这家总部位于旧金山的公司，其董事会一致批准阿格拉瓦尔担任CEO。 该公司表示，多尔西也是支付公司 Square 的CEO，他将继续担任 Twitter 董事会成员，直到明年任期届满。
+虽然协会对支持发声保持沉默让坎特沮丧，但圣安东尼奥马刺队主教练格雷格波波维奇现在选择与凯尔特人队中锋站在一起。
 
-在宣布离职之前，多尔西于 11 月 28 日在社交媒体平台上写道，“我喜欢Twitter”。此外，关于自己的离职，多尔西还发布了一封致 Twitter 员工的电子邮件。
+波波赞扬了这位 29 岁的年轻人在他的信息中坚定不移——知道外界的议论已经导致对坎特形象的审查，同时也可能影响他在球场上的时间。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-983-e1638294579347.png)马萨诸塞州波士顿 – 10 月 22 日：在 2021 年 10 月 22 日在马萨诸塞州波士顿举行的凯尔特人队主场揭幕战对阵多伦多猛龙队的比赛中，波士顿凯尔特人队的第 13 号球员埃内斯·坎特 (Enes Kanter) 前瞻。
+（麦迪迈耶/盖蒂图片社）
+“我很高兴埃内斯在他认为正确的时候站出来说话。我认为这很棒。没有理由不这样做，”波波维奇评论说，看着坎特在网上发起的积极的活动以寻求支持，反对中共对维吾尔人和其他群体的虐待。
 
-** “这是我自己的决定”，多尔西写道，“这对我来说很难过” 。**
+尽管波波维奇在回应激烈的反共活动时拒绝直接提及中国，但他无法对坎特强调的海外发生的不公正现象视而不见。
 
-此外，Bret Taylor接替了前任Patrick Pichette，被任命为董事会的新主席，后者将继续留在董事会，并继续担任审计委员会主席。
+坎特最近追击的虚伪的目标是布鲁克林篮网队的老板蔡崇信。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-984-e1638294632818.png)2021 年 10 月 22 日星期五在波士顿举行的 NBA 篮球比赛下半场，波士顿凯尔特人队的埃内斯·坎特 (13) 对阵多伦多猛龙队的艾萨克·邦加。 (美联社)
+**“@brooklynNets @joetsai1999 的老板是懦夫也是中共政府的傀儡，”坎特在周三（11 月 24 日）凯尔特人队与篮网队的比赛前通过 Twitter 宣布。“反中共并不意味着反亚洲，不仇视亚洲人和对中共说不，是可以同时存在的。”**
 
-现年45岁的多尔西在2020年曾面临“逼宫”，当时Twitter的股东埃利奥特管理公司(Elliott Management)试图取代他的CEO职务，因为埃利奥特管理公司的创始人保罗·辛格(Paul Singer)曾质疑多尔西是否应该同时职掌两家上市公司（Square和Twitter），呼吁他辞去其中一间公司的CEO职务。
+随着NBA将自己定位为中国共产党雄厚财力的受益人——从国际市场获得的年收入近5亿美元——坎特不得不指出，该协会及其最杰出的明星在引起人们对美国社会不公正现象的关注时，使用了双重标准没有却没有点名中共国。
 
-2006年，多尔西与诺亚·格拉斯(Noah Glass)、比兹·斯通(Biz Stone)和埃文·威廉姆斯(Evan Williams)共同创立了Twitter，此后多尔西一直担任该公司的CEO，直到2008年被解职。2015年，前CEO迪克·科斯特罗(Dick Costolo) 卸任后，多尔西重新担任该公司的CEO。
+坎特邀请洛杉矶湖人队的勒布朗·詹姆斯和退役的伟大的迈克尔·乔丹等人参加中共国之行，并了解他的信息的重要性——最重要的是，一份声明旨在将任何受中国暴政影响的人从他们的道德标准中解放出来。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-985-e1638294676787.png)圣安东尼奥马刺队主教练格雷格波波维奇（右）在 2021 年 10 月 8 日星期五在圣安东尼奥举行的季前赛对阵迈阿密热火队的 NBA 篮球比赛的下半场与马刺后卫德章泰穆雷交谈。
+（美联社照片/达伦阿巴特）
+**埃内斯继续质疑那些对中共国政府视而不见的企业人物和媒体人士，中共政府在监督奴隶运营和其他对自由的攻击的同时签署支票。**
 
-**2021 年 1 月，Twitter决定永久封禁时任总统川普的推特账号，此举让多尔西受到保守派和言论自由支持者的严厉批评。当时，多尔西也承认“这个时刻可能需要这种行为，但长期而言，此举将破坏开放互联网的崇高目标和理想”。**
+*波波称赞埃内斯**·坎特 (Enes Kanter) 直言世界各地的侵犯人权行为。*
 
-**多年来，多尔西一直与Facebook首席执行官马克·扎克伯格以及谷歌的高管一起出现在电视直播的国会听证会上。在听证会上，他们会被问及，他们的平台是否对所谓的虚假信息的传播负有责任，或者平台是否在积极压制与主流大众相反的观点。**
+*“我很高兴埃内斯在他认为正确的时候说出来。我认为这很棒。没有理由不这样做。”*
 
-11月29日，Twitter的股价收盘时下跌了近3%。
 
-原文连接：[https://www.theepochtimes.com/twitter-founder-jack-dorsey-steps-down-as-ceo-effective-immediately\_4128818.html?slsuccess=1](https://www.theepochtimes.com/twitter-founder-jack-dorsey-steps-down-as-ceo-effective-immediately_4128818.html?slsuccess=1)
 
-翻译&评论：洛杉矶盘古农场 – 比格渣餐厅老板の娘
+> Pop praised Enes Kanter for speaking up about human rights abuses around the world.
+> 
+> "I am glad that Enes speaks up when he feels like it. I think it’s great. No reason not to."
+> — Tom Orsborn (@tom\_orsborn) [November 27, 2021](https://twitter.com/tom_orsborn/status/1464391753897807877?ref_src=twsrc%5Etfw)
 
-校对&编辑：洛杉矶盘古农场 – 小象の奶瓶
+
+
+**NBA 球员埃内斯·坎特 (Enes Kanter)：“像国际奥委会这样的组织在即将到来的冬天在中共国举办奥运会感到羞耻，而中共国现在正处于独裁统治之中。[…] 我们需要抵制冬奥会。”**
+
+
+
+> NBA player Enes Kanter: "Shame on organizations like the International Olympic Committee that's setting up an Olympic Games this upcoming winter in China where there's a dictatorship happening right now. […] We need to boycott the Winter Olympics." [pic.twitter.com/WQjWp7u6fV](https://t.co/WQjWp7u6fV)
+> — The Hill (@thehill) [November 23, 2021](https://twitter.com/thehill/status/1463202183885774855?ref_src=twsrc%5Etfw)
+
+
+
+文章来源：[https://www.foxnews.com/sports/gregg-popovich-enes-kanter-speaking-out-china](https://www.foxnews.com/sports/gregg-popovich-enes-kanter-speaking-out-china)
+
+翻译：洛杉矶盘古农场 – Raul
+
+校对：洛杉矶盘古农场 –  73stolencountry
+
+评论：洛杉矶盘古农场 – 73stolencountry
+
+编辑：洛杉矶盘古农场-小象の奶瓶
 
 
 ![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)

@@ -2,45 +2,43 @@
 ---
 
 
-## 发现欧米克龙变的医生说，即使未接种疫苗异症状也“轻微”
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1709067/)
+## 拜登在疫苗强制的信息战中败下阵来
+` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1709092/)
 
-作者：Drea Humphrey
-翻译：HimaFAFA
+加拿大扬帆农场 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2021/11/vax_protest-1.jpg)图片来源： Times Higher Education
+根据《CNBC》11月30日于华盛顿报道，在美国，超过70%的成年人已经完全接种了冠状病毒疫苗。但根据上个月的全国广播公司新闻调查，只有不到一半的美国人支持强制接种疫苗。
+
+根据民意调查，47%的美国人支持要求所有符合条件的人必须接种Covid-19疫苗，而50%的人则反对这一要求。
+
+以下是按政党、年龄、种族和教育程度划分的调查结果：
+所有成年人：47%的人赞成，50%的人反对。
+民主党人：80%的人赞成，18%的人反对。
+独立人士：47%赞成，51%反对。
+共和党人：20%赞成，77%反对。
+18-34: 45%赞成，51%反对。
+35-49岁：41%赞成，56%反对。
+50-64岁：44%赞成，53%反对。
+65岁以上：60%赞成，38%反对。
+白人：40%赞成，56%反对。
+黑人：64%赞成，34%反对。
+拉美裔：59%赞成，39%反对。
+非大学毕业的白人：35%赞成，61%反对。
+白人大学毕业生：52%赞成，46%反对。
+接种疫苗：65%赞成，31%反对。
+未接种疫苗：6%赞成，92%反对。
+白人福音派：19%赞成，78%反对。
+
+综上所述，反对疫苗强制者占据了主导地位，而强制疫苗支持者，包括白宫都不占多数，可见全美人民对疫苗的认识和觉醒。政府，大药厂和媒体很难进一步推进强制疫苗。
+
+原文链接：
+[https://www.nbcnews.com/politics/meet-the-press/how-biden-lost-vaccine-mandate-messaging-fight-n1285077](https://www.nbcnews.com/politics/meet-the-press/how-biden-lost-vaccine-mandate-messaging-fight-n1285077)
+
+* * *
+
+发稿 Spirit
 
 
-
-有一种新的新冠变种，称为欧米克龙，但如果您发现它，这实际上意味着什么？你不会从许多主流媒体的头条新闻中了解到它，但到目前为止，它的症状似乎非常轻微，无论一个人的疫苗接种状态如何。
-
-南非医学会全国主席安吉丽·库切博士是第一个发现感染这种变异的患者。从那以后，库切观察到了一组也感染了该病毒的患者的症状和对治疗的反应。
-
-“通常你会看到氧气水平有时并不是像你认为的很低，在这情况下，目前为止，我们还没有任何患者的氧气水平非常低，” 库切说当。
-
-库切说欧米克龙变体的常见症状包括身体疼痛和头痛。目前，他们相当确定他们可以处理在医院外感染它的患者。
-
-观看我的采访，了解库切博士讨论了目前在临床水平上针对欧米克龙变异体对接种疫苗和未接种疫苗的人，我们所看到的症状都是轻微的，但它对 30 多个突变可能产生的未知影响也值得担忧。
-
-一些欧姆克龙变体的案例现在已经在世界各地的加拿大、日本和英国等地出现。
-
-来源：[https://www.rebelnews.com/omicron\_variant\_symptoms\_mild\_even\_for\_unvaccinated\_says\_doctor\_who\_discovered\_it](https://www.rebelnews.com/omicron_variant_symptoms_mild_even_for_unvaccinated_says_doctor_who_discovered_it)
-
-（文章仅代表作者个人观点）
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

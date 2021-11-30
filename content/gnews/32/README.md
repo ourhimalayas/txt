@@ -2,23 +2,19 @@
 ---
 
 
-## 美P-8A罕见纵贯台海 疑因中共核潜舰通过
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1708824/)
+## 美准备重启与东盟的首脑会议以抗衡中共
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1708828/)
 
-作者：台湾宝岛农场 鬥陣來拼
+作者：日本方舟农场 Andy5
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美国海军研究所(USNI) 专栏作家、军事专家萨顿（H I Sutton），11月29日通过社交媒体发布了消息，欧洲太空总署卫星「哨兵2号」拍到中共09IV型核潜舰，从海南岛亚龙湾潜舰基地出发向北航行，并有另外一艘水面舰护航。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-30-下午11.51.54.png)
-无独有偶，中共「南海战略态势感知计划」29日也发布了航迹图，指称美军P-8A海神式海上巡逻机29日从日本三泽基地起飞，绕过台湾南部巴士海峡，自南向北穿越台湾海峡。
-
-对此，前台湾海军官校教官吕礼诗分析，美国海军一架P-8A海神式海上巡逻机（AE6832）29日自南向北飞越台湾海峡，这可能与这艘中共潜舰浮航通过台海有关。
-
-美军此次在台海的罕见行动，引发国际各界关注，美中角力战也将再掀另一场波澜。
+近日，美国拜登政府再次向东盟抛出了橄榄枝。11月29日，美国负责东亚事务的助理国务卿康达，到访印尼首都雅加达。美国国务院在当日的声明中强调，康达的此次出访表明美国支持“印太基于规则的秩序”，并且会跟东南亚国家讨论人权方面的挑战，增强东盟在地区事务治理和地区稳定中的角色。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-30-下午11.52.18.png)
+据悉，美国政府正在就明年1月在华盛顿重启美国东盟特别首脑峰会进行协调，并且在峰会召开之前将派出国务卿布林肯出访东南亚。这是继拜登总统10月27日参加东盟峰会后，美国做出的第二次拉拢东盟的举动。有分析指出，近期美国对东盟的频繁示好，旨在针对日益染指东盟事务的中共当局。
 
 参考链接：
-1）[衛星影像曝光！美P-8A罕見縱貫台海 疑因中國核潛艦通過](https://news.ltn.com.tw/news/politics/breakingnews/3752457)
-2）[https://twitter.com/CovertShores/status/1465304379423084546](https://twitter.com/CovertShores/status/1465304379423084546)
-3）[https://www.facebook.com/100000495994105/posts/5504449352914877/?d=n](https://www.facebook.com/100000495994105/posts/5504449352914877/?d=n)
+1）[獨家：美國就舉行特別首腦會談詢問東盟意向](https://tchina.kyodonews.net/news/2021/11/7a268fa68956.html)
+2）[美国首席东亚事务外交官抵达雅加达开始东南亚四国之行](https://www.voachinese.com/a/top-us-diplomat-for-asia-to-visit-four-asean-countries-20111126/6329558.html)
+3）[拜登参加东盟峰会 美国将制定印太经济框架](https://www.voachinese.com/a/us-to-develop-indo-pacific-economic-framework-20211027/6288143.html)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 

@@ -2,196 +2,50 @@
 ---
 
 
-## 中共的股票完全是擀面杖子经济，是假的
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1709287/)
+## 美国必须为与中共国在台湾问题上的战争做好准备
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1709336/)
 
-[https://gtv.org/video/id=61a64b9b3ff6481adce67f18](https://gtv.org/video/id=61a64b9b3ff6481adce67f18)
+编译：土饭团
 
-大家現在要看到中国现在所有的股市
-Todos tienen que ver el mercado de las acciones de China en estos momentos
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-8-9.jpg)图片来源：xuehua.us
 
-11万多亿美元的市值
-Son más de 11 billones de dólares en valor de mercado
+中共国对人民解放军(PLA)的大规模投资可能表明，中共国正准备从根本上改变现状，并为可能与美国在台湾问题上与之发生战争做准备。为了威慑中共国，美国必须迅速加强在太平洋地区的力量，继续加强该地区的军事联盟，以确保在冲突发生时能够进入基地，并加快向台湾交付所购买的军事装备。
 
-美国市值多少钱
-Cuánto es el de los Estados Unidos
+台湾对美国具有重要的地缘政治意义。其蓬勃发展的民主使其成为地球上最自由的社会之一。正如二战时美国海军司令欧内斯特金所说，台湾是日本的“瓶塞”。谁控制了台湾，谁就控制了日本和韩国的航运命脉。中共国对台湾的控制将使其对日本和韩国产生巨大的影响，从根本上改变东亚的战略演算，并使中共国获得长期寻求的将这两个国家“芬兰化”的机会。
 
-美国是它将近四、五倍的市值
-Estados Unidos es casi cuatro a cinco veces mayor que su valor del mercado
+也许最重要的是，台湾是先进半导体的生产中心；台湾半导体制造公司（TSMC）炫耀它拥有世界上最先进的代工厂。中共国对台积电的控制将为其提供巨大的经济利益，并将导致世界在先进半导体方面依赖一个独裁政权——而这一切都意味着供应链的完整性。先进的半导体是数字时代的石油。美国决不能让一个一心想取代美国的独裁政权夺取这些重要的生产设施。
 
-就这它也增长了20～30%
-Y así creció el 20-30%
+时间不在我们这边。台湾国防部长邱国正10月6日在其国会作证说：“中共国将把成本损耗降到最低。它现在有这个能力，但它不会轻易发动战争，必须考虑许多其他因素。”正如邱所说，中共国可能已经认为自己有能力夺取台湾。
 
-共产党过去的3年
-El PCCh durante los últimos 3 años
+中共国对使用武力对付台湾的考虑是复杂的，涉及到（但不限于）国内稳定、台湾发展和军事动态。中国共产党（CCP）创造了一种流行的民族主义说法，即中华民族的伟大复兴将通过统一台湾来实现。中国国家主席习近平一直专注于吞并台湾。在2022年秋季的党代会上，他很可能取得前所未有的第三个五年任期，这让他有了使用武力实现其统一目标的内部政治自由。
 
-它的GDP 绝对是降的，不可能涨的
-Su PIB definitivamente está bajando, es imposible aumentar
+习近平将努力缓解中美关系中的紧张局势，以确保2022年初在北京成功举办冬奥会，并通过2022年秋季再次被选为党魁。一旦他的地位得到保证，习近平将在2024年初的台湾总统选举前加大对台湾的压力，使2023年成为一个潜在的危险年。
 
-它两样东西涨了
-Sus dos cosas aumentaron
+北京不希望台湾总统蔡英文的职位在2024年初由其副总统赖清德接任。赖清德是一位深受欢迎的政治家，他对人权和台湾的主权及国家地位有着深刻的承诺。他接替蔡英文的预期无疑会使北京加快其夺取台湾的努力。
 
-股票涨了
-Las acciones aumentaron
+台湾一直在努力将自己变成一只“带刺的豪猪”，自主生产非对称武器，并购买美国制造的新系统。根据已披露的武器销售协议，这些新的美制系统中有许多要到2020年代中后期才会在台湾服役，这为北京在2023年或2024年试图攻占台湾提供了一个窗口。加快关键非对称系统的交付速度可能有助于改变北京的算计。
 
-哇噻 那你股票哪来的啊
-Wow y de dónde vienen las acciones
+台湾需要为其人民做好应对冲突的准备，确保有足够的应急物资在中共国的进攻中生存。还迫切需要增加台湾安全局的资源来收集关于中共国的情报，以及调查和破坏中共国在台湾进一步发展和使用第五纵队的努力。
 
-就是印发钞票
-De imprimir y emitir billetes
+美国高级军官对解放军的快速转型感到震惊。美国武装部队正在努力改变，以便在太平洋地区更好地与解放军作战，但在台湾的情况下面临着困难的后勤和力量投射问题。太平洋的庞大规模使得美国在冲突时其盟友承诺使用该地区的基地是至关重要的。在后杜特尔特时代修补与菲律宾的关系以获得克拉克空军基地和苏比克湾的使用权可能是有益的。确保美国在日本的基地在冲突时的使用是至关重要的。
 
-M2 太厉害了
-El M2 es poderoso
+然而，地理空间和后勤问题将使美国难以做出及时的军事反应；美国可能需要数周的时间才能在该地区拥有足够的武力，在台湾周围的战斗空间挑战解放军。在太平洋地区驻扎更多的部队可能有助于加快美国的反应速度。
 
-它过去仅仅今年和去年
-Anteriormente con sólo el año pasado y este año
+如果中共国要攻击台湾，他们可能会使用大规模的网络和电子战攻击来瘫痪该岛。他们将结合对关键军事和政府中心的导弹袭击，以斩首台湾的领导层。解放军还将使用特种部队的攻击、空降及海上登陆，以能够迅速击败台湾。在美国军队到达之前，延长台湾的有效抵抗应该是美国安全政策的一个关键目标。
 
-就干了40多万亿
-Hizo más de 40 billones
+拜登总统至少在三个场合表示，如果台湾受到中共国的攻击，美国将保卫台湾。他的政府需要向美国人民阐明为什么台湾的防御对美国至关重要，并部署必要的资源来阻止中共国攻击台湾。
 
-就是降准
-Quiere decir bajar las reservas
+因此，美国需要加强我们在该地区的军事力量，与台湾合作，迅速将其转变为一个真正的有弹性的“刺豪猪”，使其能够坚持很长一段时间，并确保我们有坚定的盟友承诺，允许美国使用盟国领土上的基地。时间不在我们这边。我们必须现在就行动。
 
-股市才涨多少
-Las acciones sólo aumentaron cuánto
+**参考资料：**[thehill][America must prepare for war with China over Taiwan](https://thehill.com/opinion/national-security/582767-america-must-prepare-for-war-with-china-over-taiwan?rl=1)
 
-它涨了20～30% 十几万亿美元
-Él incrementó el 20-30%, decenas de billones de dólares
+* * *
 
-它体现了市场多少呢
-¿Cuánto refleja el mercado?
+*审核：Aries的星
+校对：阿伯塔
+发布：信心的选择*
 
-大概20万亿美元
-Alrededor de 20 billones de dólares
-
-那20万亿美元呢
-Y esos 20 billones de dólares
-
-没进入股市
-No entraron al mercado de valores
-
-那美国是多少钱呢
-Cuánto es eso en Estados Unidos
-
-将近20万亿美元
-Aproximadamente 20 billones
-
-大家永远不要忘了人民币这个本质
-Nunca olviden la esencia del RMB
-
-人民币叫什么 叫本币
-Cómo se llama el RMB, se llama moneda local
-
-人家美元叫什么
-Cómo se llama el dólar
-
-人家美元叫国际流通货币
-Al dólar se le llama moneda internacional
-
-叫流通法币，国际的是全世界认可
-Es denominada Moneda de Circulación Legal, es reconocida internacionalmente por todo el mundo
-
-人民币到今天来讲
-Hasta hoy hablando de RMB
-
-不是全世界认可的钱
-No es un dinero reconocido a nivel mundial
-
-不要搞错了
-No se confundan
-
-人民币在海外所有的（钱）叫做海外人民币，叫非本币
-La propiedad (dinero) del renminbi en el extranjero se llama renminbi en el extranjero, llamado moneda no local
-
-大概3万多亿美元
-Aproximadamente 3 billones de dólares
-
-就是全世界只认你这3万多亿美元的资产
-Significa que todo el mundo sólo reconoce sus activos de más de 3 billones de dólares
-
-现在已经变成2万亿了
-Ahora se ha convertido en 2 billones
-
-共产党今年所有的本币市场多印了20万亿人民币
-El PCCh imprimió 20 billones de RMB más en todo el mercado de moneda local de este año
-
-体现在股市的钱
-Reflejado en el dinero de las acciones
-
-那中国的GDP 不是说6%吗
-¿No dicen que el PIB de China es de un 6%?
-
-这几个数据放在一起
-Si juntas estos datos
-
-你再看看中国老百姓的通货膨胀和通缩指数
-Y luego miras el índice de inflación y deflación del pueblo chino
-
-特别是通货膨胀
-Especialmente la inflación
-
-再加上出口贸易
-Sumando el comercio de exportación
-
-中国只有一样东西是赚钱的
-En China hay una sola cosa que genera dinero
-
-就是出口 就是血汗钱
-Y es la exportación, es dinero de sangre y sudor
-
-那降了多少
-Y cuánto bajó
-
-中国官方地说
-Oficialmente en China dicen
-
-有涨有升
-Hay aumento
-
-总体来讲是下降
-En general está bajando
-
-总体下降
-Disminución general
-
-过去一年就是5千亿
-500 mil millones en el último año
-
-就按保住你的5千亿美元（计算）
-Conservando sus 500 mil millones de dólares (en cálculo)
-
-那么这几个帐一算就知道了
-Entonces puedes saber estas cuentas al sacarlas
-
-中共国现在14亿人口
-La República Popular de China tiene 1.400 millones de habitantes
-
-还是10亿人口
-O 1000 millones de habitantes
-
-你这个股票市场完全是杆面杖子经济 是假的
-Todo el mercado de valores es completamente un rodillo de amasar y son falsas
-
-**原视频网址**：[https://gettr.com/post/phzypq2813](https://gettr.com/post/phzypq2813)
-
-日期：11/29/2021
-原视频标题：中共的股票完全是擀面杖子经济，是假的
-Las acciones del PCCh son completamente un rodillo de amasar y son falsas
-原视频日期：11/26/2021
-原视频网址：https://gettr.com/post/phzypq2813
-任务编号：KC295（3024）
-视频时间段：0:00-2:20
-
-西听校：洛杉矶盘古农场 – 小文萱
-翻译：洛杉矶盘古农场- 霙霙（文霙）
-翻译终校：洛杉矶盘古农场 – 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-2.jpeg)
 
  
 
