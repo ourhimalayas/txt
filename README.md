@@ -15,101 +15,101 @@
 
 ---
 
-### [银河快讯:日本航空不会取消或暂停国际航班；日本禁止外国游客入境1个月](/content/gnews/1/README.md)
+### [西喜时事新闻简报 — 美国时事篇](/content/gnews/1/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [昆士兰学校、托儿所工作人员和志愿者的疫苗接种任务](/content/gnews/2/README.md)
+ ` 走进澳洲`
+
+### [银河快讯:日本航空不会取消或暂停国际航班；日本禁止外国游客入境1个月](/content/gnews/3/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [拜登在疫苗强制的信息战中败下阵来](/content/gnews/2/README.md)
+### [拜登在疫苗强制的信息战中败下阵来](/content/gnews/4/README.md)
  ` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)`
 
-### [10月待售房屋销售增长7.5%，扭转了9月的下降趋势](/content/gnews/3/README.md)
+### [10月待售房屋销售增长7.5%，扭转了9月的下降趋势](/content/gnews/5/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [发现欧米克龙变的医生说，即使未接种疫苗异症状也“轻微”](/content/gnews/4/README.md)
+### [发现欧米克龙变的医生说，即使未接种疫苗异症状也“轻微”](/content/gnews/6/README.md)
  ` MG FARM`
 
-### [推特联合创始人兼CEO杰克·多尔西宣布辞职](/content/gnews/5/README.md)
+### [推特联合创始人兼CEO杰克·多尔西宣布辞职](/content/gnews/7/README.md)
  ` 日本东京方舟农场`
 
-### [《辛普森一家》涉天安门事件剧集在香港被删除](/content/gnews/6/README.md)
+### [《辛普森一家》涉天安门事件剧集在香港被删除](/content/gnews/8/README.md)
  ` 日本东京方舟农场`
 
-### [格雷格·波波维奇称赞埃内斯·坎特直言不讳地谈论中国](/content/gnews/7/README.md)
+### [格雷格·波波维奇称赞埃内斯·坎特直言不讳地谈论中国](/content/gnews/9/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [CDC以Omicron变体为由催打加强针](/content/gnews/8/README.md)
+### [CDC以Omicron变体为由催打加强针](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [推特（Twitter）创始人杰克·多尔西(Jack Dorsey)辞去CEO一职](/content/gnews/9/README.md)
+### [推特（Twitter）创始人杰克·多尔西(Jack Dorsey)辞去CEO一职](/content/gnews/11/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [小肯尼迪告诉新美国人：福奇的“黑暗历史” 必须曝光（3/3）](/content/gnews/10/README.md)
+### [小肯尼迪告诉新美国人：福奇的“黑暗历史” 必须曝光（3/3）](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [近三分之一美国卫生部门员工未接种疫苗](/content/gnews/11/README.md)
+### [近三分之一美国卫生部门员工未接种疫苗](/content/gnews/13/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [澳门赌场老板周焯华因犯跨境赌博罪被逮捕](/content/gnews/12/README.md)
+### [澳门赌场老板周焯华因犯跨境赌博罪被逮捕](/content/gnews/14/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [法官叫停拜登针对10个州医疗工作者的疫苗强制令](/content/gnews/13/README.md)
+### [法官叫停拜登针对10个州医疗工作者的疫苗强制令](/content/gnews/15/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [欧盟要求中共公布可验证的彭帅安全的证据](/content/gnews/14/README.md)
+### [欧盟要求中共公布可验证的彭帅安全的证据](/content/gnews/16/README.md)
  ` HimalayaRussia`
 
-### [小肯尼迪告诉新美国人：福奇的“黑暗历史” 必须曝光（2/3）](/content/gnews/15/README.md)
+### [小肯尼迪告诉新美国人：福奇的“黑暗历史” 必须曝光（2/3）](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [日本因“奥密克戎”变种病毒禁止全球旅客入境](/content/gnews/16/README.md)
+### [日本因“奥密克戎”变种病毒禁止全球旅客入境](/content/gnews/18/README.md)
  ` GTV新闻访谈`
 
-### [中共收买世界主流媒体 无视阿富汗人道危机](/content/gnews/17/README.md)
+### [中共收买世界主流媒体 无视阿富汗人道危机](/content/gnews/19/README.md)
  ` GTV新闻访谈`
 
-### [文贵警告：警惕世界经济的大崩溃](/content/gnews/18/README.md)
+### [文贵警告：警惕世界经济的大崩溃](/content/gnews/20/README.md)
  ` GTV新闻访谈`
 
-### [美准备重启与东盟的首脑会议以抗衡中共](/content/gnews/19/README.md)
+### [美准备重启与东盟的首脑会议以抗衡中共](/content/gnews/21/README.md)
  ` GTV新闻访谈`
 
-### [美P-8A罕见纵贯台海 疑因中共核潜舰通过](/content/gnews/20/README.md)
+### [美P-8A罕见纵贯台海 疑因中共核潜舰通过](/content/gnews/22/README.md)
  ` GTV新闻访谈`
 
-### [密苏里州法官裁定终止强制医护人员接种疫苗的行政命令](/content/gnews/21/README.md)
+### [密苏里州法官裁定终止强制医护人员接种疫苗的行政命令](/content/gnews/23/README.md)
  ` GTV新闻访谈`
 
-### [GTV新闻访谈简报|2021年11月30日早](/content/gnews/22/README.md)
+### [GTV新闻访谈简报|2021年11月30日早](/content/gnews/24/README.md)
  ` 纽约香草山MOS01`
 
-### [2021/11/30 大卫作战室直播精要](/content/gnews/23/README.md)
+### [2021/11/30 大卫作战室直播精要](/content/gnews/25/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [CCP病毒1998](/content/gnews/24/README.md)
+### [CCP病毒1998](/content/gnews/26/README.md)
  ` 骄子`
 
-### [中共出新法将提供“翻墙”服务入罪](/content/gnews/25/README.md)
+### [中共出新法将提供“翻墙”服务入罪](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [路透社：11月19日荷兰已出现不明来历奥米克戎病毒](/content/gnews/26/README.md)
+### [路透社：11月19日荷兰已出现不明来历奥米克戎病毒](/content/gnews/28/README.md)
  ` 丁过`
 
-### [运油20首次参与27架中共军机扰台，台外长表示绝不屈服于中共压力](/content/gnews/27/README.md)
+### [运油20首次参与27架中共军机扰台，台外长表示绝不屈服于中共压力](/content/gnews/29/README.md)
  ` 纽约香草山MOS01`
 
-### [金融时报：莫德纳CEO称疫苗对奥米克戎有效性有限](/content/gnews/28/README.md)
+### [金融时报：莫德纳CEO称疫苗对奥米克戎有效性有限](/content/gnews/30/README.md)
  ` 丁过`
 
-### [共匪不灭，教育就没有未来](/content/gnews/29/README.md)
- ` 银河勇气之星`
-
-### [2021/11/30 墙内世界](/content/gnews/30/README.md)
+### [2021/11/30 墙内世界](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [拜登曾表示希望日本防卫费增加以遏制中共](/content/gnews/31/README.md)
+### [拜登曾表示希望日本防卫费增加以遏制中共](/content/gnews/32/README.md)
  ` 纽约香草山MOS01`
-
-### [11/30/21 香港快讯 【官派律师】多名被告未能提名律师 法援署：已委派 20 位律师、19 位大律师处理国安案件](/content/gnews/32/README.md)
- ` 英喜-粵語組`
 
 ### [七哥说—第32期](/content/gnews/33/README.md)
  ` 西班牙巴塞罗那喜悦农场`

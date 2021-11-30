@@ -2,45 +2,50 @@
 ---
 
 
-## 近三分之一美国卫生部门员工未接种疫苗
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1708907/)
+## 推特（Twitter）创始人杰克·多尔西(Jack Dorsey)辞去CEO一职
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1708921/)
 
-翻译： Jenny Ball
+**【译者按】**郭*文贵先生三年前曾经拥有推特账户，而且一个星期内就有40万的关注，然而推特很快就封掉了文贵先生的账户；2020年4月，Twitter封了Steve Bannon先生的平台WarroomPandemic账号；2021 年 1 月，Twitter决定永久封禁时任总统川普的推特账号；2021年7月，新西兰一位学者在嘲讽中共党魁之后，推特限制了她的账户；此外，Twitter也封禁了无数新中国联邦战友的账户……Twitter的种种恶行或许可以用文贵先生在2020年12月4日的直播来解释“Twitter所有打的算盘，就是中共答应把中国的搜索和所有的整个中国市场对其全面开放，然后让Twitter作为中共的数字人民币的承销商”。Twitter想成为世界媒体老大，如今来看，简直就是痴心妄想。*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-981.png)图片来源： theepochtimes.com 带有 CDC 标志的讲台。 （凯文 C. 考克斯/盖蒂图片社）
+据《大纪元》记者Jack Phillips，2021年11月29日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-982-e1638292826803.png)Twitter 首席执行官兼 Square 联合创始人兼首席执行官 Jack Dorsey 于 2021 年 6 月 4 日在佛罗里达州迈阿密的 Mana 会议中心参加了加密货币会议《2021年比特币大会-Bitcoin 2021 Convention。
+图片来源：Marco Bello/AFP via Getty Images
+**据Twitter称，该公司CEO兼联合创始人 Jack Dorsey 将卸任这家社交媒体公司的首席执行官，并将由首席技术官帕拉格·阿格拉瓦尔（Parag Agrawal） 接任，立即生效。**
 
-美国疾病控制与预防中心 (CDC) 在一项分析中透露，美国约有 30% 的医护人员仍未接种中共病毒疫苗。
+“我已经决定离开 Twitter，因为我相信公司已经准备好离开它的创始人继续前进” 。多尔西在2006年帮助创立了Twitter，他在11月29日发布的一份声明中说， “作为 Twitter 的 CEO，我对帕拉格非常信任。他在过去 10 年的工作具有变革性。我对他的技能、心灵和灵魂深表感谢。现在是时候让他（帕拉格）来领导Twitter”。
 
-根据 11 月 17 日发表在《美国感染控制杂志》上的 CDC 分析，进行分析的 CDC 团队成员汉娜·瑞斯 (Hannah Reses) 透露，从 12 月到 4 月，卫生工作者稳步上升的“疫苗接种率”在再次减速。
+该公司发布的一份声明称，阿格拉瓦尔已在 Twitter 工作了十多年，自 2017 年以来一直担任首席技术官。
 
-该分析研究了向美国卫生与公众服务部 (HHS) 报告的数据，这些数据来自美国各地的 2,086 个设施，涉及超过 330 万名员工。
+根据Twitter的声明，这家总部位于旧金山的公司，其董事会一致批准阿格拉瓦尔担任CEO。 该公司表示，多尔西也是支付公司 Square 的CEO，他将继续担任 Twitter 董事会成员，直到明年任期届满。
 
-受雇于医院治疗儿童的专业人员的疫苗接种率最高，约为 77%。在关键通道医院中发现的比例最低，约为 64%。其他设施包括, 短期急症护理医院和长期急症护理医院的员工，这两个部门约有 30% 的人仍未接种疫苗。
+在宣布离职之前，多尔西于 11 月 28 日在社交媒体平台上写道，“我喜欢Twitter”。此外，关于自己的离职，多尔西还发布了一封致 Twitter 员工的电子邮件。
 
-分析显示，今年 1 月至 4 月期间，医疗保健专业人员 (HCP) 的疫苗接种率从 36% 增加到 60%，然后放缓，截至 9 月达到 70%。
+** “这是我自己的决定”，多尔西写道，“这对我来说很难过” 。**
 
-“我们的分析显示，美国医院 HCP 的疫苗覆盖率在最初接受后显著停滞，” 瑞斯在声明中说。她补充说：“现在需要做出更多努力来提高 HCP 疫苗的覆盖率，并降低 SARS-CoV-2 传播给患者和其他医院工作人员的风险。”
+此外，Bret Taylor接替了前任Patrick Pichette，被任命为董事会的新主席，后者将继续留在董事会，并继续担任审计委员会主席。
 
-在调查中发现，HCP 拒绝接种 CCP 病毒疫苗的原因与疫苗的功效、不良反应及其发展速度有关。
+现年45岁的多尔西在2020年曾面临“逼宫”，当时Twitter的股东埃利奥特管理公司(Elliott Management)试图取代他的CEO职务，因为埃利奥特管理公司的创始人保罗·辛格(Paul Singer)曾质疑多尔西是否应该同时职掌两家上市公司（Square和Twitter），呼吁他辞去其中一间公司的CEO职务。
 
-“不想接种疫苗的**HCP **报告称，他们对监管机构和政府的信任度很低，**”****CDC **分析援引调查称。
+2006年，多尔西与诺亚·格拉斯(Noah Glass)、比兹·斯通(Biz Stone)和埃文·威廉姆斯(Evan Williams)共同创立了Twitter，此后多尔西一直担任该公司的CEO，直到2008年被解职。2015年，前CEO迪克·科斯特罗(Dick Costolo) 卸任后，多尔西重新担任该公司的CEO。
 
-该分析未包括 HHS 统一医院数据监控系统中的所有设施，数量超过 5,000。它仅使用了 2,086 个设施的信息，即 41.0%，这些设施向 HHS 报告了全面的数据。
+**2021 年 1 月，Twitter决定永久封禁时任总统川普的推特账号，此举让多尔西受到保守派和言论自由支持者的严厉批评。当时，多尔西也承认“这个时刻可能需要这种行为，但长期而言，此举将破坏开放互联网的崇高目标和理想”。**
 
-本月早些时候，美国十多个州就总统乔·拜登 (Joe Biden) 的政府为医护人员提供的 COVID-19 疫苗授权提起诉讼，对其合法性提出质疑。拜登政府官员表示，对这项任务和其他类似任务最终战胜法律挑战充满信心。
+**多年来，多尔西一直与Facebook首席执行官马克·扎克伯格以及谷歌的高管一起出现在电视直播的国会听证会上。在听证会上，他们会被问及，他们的平台是否对所谓的虚假信息的传播负有责任，或者平台是否在积极压制与主流大众相反的观点。**
 
-美国 HCP 接种 COVID-19 疫苗的截止日期是 2022 年 1 月 4 日。与目前被法院阻止的对私人雇主的授权不同，没有测试替代疫苗的选项。
+11月29日，Twitter的股价收盘时下跌了近3%。
 
-**点评：战胜邪恶是真相，保护权利是宪法。行动起来，还有1/3清醒的医护人员在战斗着！**
+原文连接：[https://www.theepochtimes.com/twitter-founder-jack-dorsey-steps-down-as-ceo-effective-immediately\_4128818.html?slsuccess=1](https://www.theepochtimes.com/twitter-founder-jack-dorsey-steps-down-as-ceo-effective-immediately_4128818.html?slsuccess=1)
 
-新闻来源 **：**[theepochtimes.com] [Nearly One-Third of US Employees in Health Sector Remain Unvaccinated: CDC](https://www.theepochtimes.com/mkt_morningbrief/nearly-one-third-of-us-employees-in-health-sector-remain-unvaccinated-cdc_4129118.html?utm_source=Morningbrief&amp;utm_medium=email&amp;utm_campaign=mb-2021-11-30&amp;mktids=e3ffdcdc5ef282b9d305eafa32e996b7&amp;est=QAx66cE1IYJ4wPRonVNRIFhQC6fzXBYt%2FlrkowoFWAWSa27JkWmPDQybpioNopsNlA%2B6Cg%3D%3D)
+翻译&评论：洛杉矶盘古农场 – 比格渣餐厅老板の娘
 
-* * *
+校对&编辑：洛杉矶盘古农场 – 小象の奶瓶
 
-*审核：文乐
-校对: 阿伯塔
-发稿: Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-2.jpeg)
+
+![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入: (或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,20 +2,22 @@
 ---
 
 
-## 金融时报：莫德纳CEO称疫苗对奥米克戎有效性有限
-` 丁过` [轉載自GNews](https://gnews.org/zh-hans/1708702/)
+## 路透社：11月19日荷兰已出现不明来历奥米克戎病毒
+` 丁过` [轉載自GNews](https://gnews.org/zh-hans/1708722/)
 
-#### 温哥华农场 丁过
-![](https://assets.gnews.org/wp-content/uploads/2021/11/maxresdefault-7.jpg)来源：YouTube
-路透社11月30日报道，疫苗制造商莫德纳(Moderna）首席执行官斯蒂芬·班塞尔 （Stéphane Bancel）在接受金融时报采访时称，现有中共病毒疫苗对刚刚出现的中共变异病毒奥米克戎 （Omicron）的防护作用有限。
+#### 温哥华农场 向真
+![](https://assets.gnews.org/wp-content/uploads/2021/11/RTX7O413.jpg.jpeg)来源：半岛电视台
+据路透社11月30日报道，荷兰政府卫生官员30日表示，“我们在11月19日和11月23日的两个病例测试样本中发现了奥米克戎 （Omicron）中共病毒变体”。荷兰国家公共卫生研究所(RIVM)证实了以上消息，并称“目前还不清楚这些人是否去过非洲南部”。
 
-班塞尔说，“我认为会是明显下降，我还不知道下降程度有多大，因为还需要等待数据。所有和我交谈过的科学家都觉得这可不妙”。班塞尔此言一出，其他疫苗制造商将不得不出来说明自家产疫苗对Omicron的有效性如何。
-![灭共集结号已吹响！海外华人请尽快归队！ – GNEWS](https://assets.gnews.org/wp-content/uploads/2020/10/%E9%9B%86%E7%BB%93%E5%8F%B7.jpg)来源：Gnews
-如果现有疫苗对Omicron作用有限最终被证实，更大的恐慌不安将笼罩全世界，人们仅存的一点点对政府和疫苗制造商虚幻的信任将丧失殆尽，随之而来的是反思、觉醒和追责，消灭中共和国际罪恶势力的大潮就会滚滚而来。这叫向死而生，这往往是一种历史规律！
+也就是说，在11月26日从南非约翰内斯堡和开普敦飞抵荷兰的两个航班上发现至少有14人感染了Omicron病毒变体之前，荷兰已存在Omicron变体感染病例。
+![img](https://media.gettr.com/group34/origin/2021/08/26/16/bf2713ff-0091-6b60-4d79-39681516bf40/aba01548012a37b3e1c22dcdf15a3ce7.jpg)来源：Gettr
+新中国联邦创始人郭文贵先生在11月19日的直播中指出，中共即将在非洲释放新的病毒，然后和西方关系较为密切的南非就出现了初步确定传染性更强的Omicron病毒。
+
+此前郭先生根据可靠情报曾经发出警告，中共将在非洲和美国西部放毒。而荷兰出现不明来历的Omicron病毒，说明中共极有可能正在全球范围内多点放毒和释放多种病毒！
 
 参考来源：
 
-[莫德纳CEO称疫苗对于Omicron的有效性可能会下降–英国金融时报](https://cn.reuters.com/article/moderna-ceo-vaccine-omicron-1130-idCNKBS2IF0FB)
+[荷兰当局称11月19日检测样本已出现Omicron变体踪迹](https://cn.reuters.com/article/netherland-covid-omicron-1130-idCNKBS2IF0XA)
 
  
 
