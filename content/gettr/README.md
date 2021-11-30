@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/30/2021 4:46 AM (UTC)`
+
+11/29/2021 Miles Guo’s GETTR: In fact, the CCP released the new virus in the Western US (including Hawaii) and South America, and the new virus will soon appear in the Eastern US and Canada; all dictators play the same trick - serve as the second in power before replacing the chief and then instigate racial conflicts and social turmoil, and wage wars<br/><br/>11/29/2021 文贵盖特：中共实际上是在美西(包括夏威夷)和南美放毒，新病毒将很快出现在美东和加拿大；独裁者的套路都是先当副手再取代一把手，进而制造种族冲突、社会动荡和发动战争<br/>
+![img](https://media.gettr.com/group34/getter/2021/11/30/04/46/adb788e3-4481-2009-8cc3-cb9dffac1546/out.jpg)
+
+---
+
 `@miles 11/30/2021 1:47 AM (UTC)`
 
 11/29/2021 Miles Guo’s GETTR: Why must Xi Jinping eliminate Wang Qishan? The essence of the CCP’s system is the bad money turns the good one into the evilest one, whereas it is now popular in the CCP to have private conversations on the Himalaya Coin and the New Federal State of China<br/><br/>11/29/2021 文贵盖特：为什么说习近平必须灭掉王岐山？中共体制的本质是劣币把良币变成恶币，而中共党内流行私下谈喜币和新中国联邦<br/>
@@ -147,13 +154,6 @@ NBA球员埃内斯·坎特：我需要成为那些无法发声的无辜者的代
 
 澳国防部长达顿警告：为避免在印太地区发生冲突，澳大利亚必须警惕中共的军事规模和野心<br/><br/>Minister for Defence of Australia Peter Dutton warns: To avoid conflict in the Indo-Pacific region, Australia must stay alert for the CCP’s military scale and ambition<br/>
 ![img](https://media.gettr.com/group18/getter/2021/11/27/13/21/7c8e423f-4094-bf3a-74bc-f622feef9446/out.jpg)
-
----
-
-`@miles 11/27/2021 4:05 AM (UTC)`
-
-11/26/2021 Miles Guo: Four indicators showing the CCP is bound to be over: 1) the US military deployment in the Asia-Pacific; 2) Bipartisan legislators arrived in Taiwan on a U.S. diplomatic jet; 3) the US is divesting from Communist China; 3) the US government’s the actual deeds; the New Federal State of China will protect Taiwan to keep it intact<br/><br/>11/26/2021 文贵直播: 四个指标说明中共必灭：1) 美国在亚太的军事部署；2) 两党议员乘美国外交专机抵台；3) 美国从中共国撤资；4) 美国政府的实质行动；新中国联邦会保护台湾完好无损！<br/>
-![img](https://media.gettr.com/group12/getter/2021/11/27/04/05/d3e0cd2a-c0e6-3bbf-a6ed-8600a015de0c/out.jpg)
 
 ---
 
