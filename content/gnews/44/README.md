@@ -2,31 +2,12 @@
 ---
 
 
-## GTV新闻访谈简报|2021年11月29日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1707050/)
+## 病毒变种和为中共病毒起源的掩盖是他们的政治议程
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1707051/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/11/新.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/1129text-SC.png)
+11/26/20201 病毒变种和为中共病毒起源的掩盖是他们的政治议程。一个病毒变种大爆发，欧洲已经开始封锁了。这是最后的致命一击，因为我们马上就进行投票了。
 
-
-
-
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-视频参看：[11.29  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61a57e4e44c1fe7a6c3b9392)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-424.jpeg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

@@ -2,43 +2,43 @@
 ---
 
 
-## 维基百科要删除“共产主义政权下的大屠杀”引发质疑
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1707636/)
+## 秘翻在线: Twitter首席执行官杰克‧多尔西为什么离职?
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1707666/)
 
-撰稿：小湫
+撰稿:牛小妹
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Image-1-3.jpg)
+图片:GETTY　IMAGES
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/444-3.jpg)
+**Twitter禁言川普，多尔西承认失败**
 
-网络截图
+2021年 1 月，在美国国会大厦遭到袭击之后，Twitter禁止川普发言，Twitter首席执行官杰克·多尔西（Jack Dorsey）坚称川普的推文「分裂了美国」，但之后承认这是推特在促进自由言论方面的失败。根据美国广播公司商业频道（CNBC）的报导，多尔西已辞去首席执行官。
 
-维基百科正在考虑删除关于共产主义政权在整个20世纪犯下的大屠杀的页面，理由是存在偏见。  这个页面标题为：共产主义政权下的大规模屠杀，细描述了斯大林、毛泽东和波尔布特等独裁者的暴行。由于编辑们指责维基百科不符合公司标准，该页面可能会从在线百科全书中删除。
+**推特成立比特币专属加密支付**
 
-目前该页面警告状态，警告写道:“根据维基百科的删除政策，这篇文章正在考虑被删除。请在这篇文章的删除讨论页面上分享你对这个问题的看法。”
+Facebook曾试图「铸造」自己的「货币」，推出Libra的新型稳定币，最终遭监管机构扼杀。Twitter没有行使Facebook的垄断权力，也不「铸造」自己的「货币」，而是选择加密支付工具「比特币」。
 
-该网页上的另一个警告称：这篇文章有多个问题，包括其中立的声明，存在需要核实的争议，文章中的一些来源可能不可靠。
+多尔西一直是比特币的支持者，9月24日，Twitter宣布向旗下3亿个活跃用户推出「小费」打赏服务，允许通过共享钱包或使用「Strik」应用程序，来发送或接收比特币。
 
-据英国《每日电讯报》报道，一位支持删除该页面的人在维基百科的讨论页面上写道：共产主义意识形态在某种程度上是一种暴力的观点，这将推动反共产主义的情绪。
+Twitter还宣布了另一项计划，让用户将他们的比特币钱包连接到与其身份相关的非同质化代币（Non-fungible token NFT），此计划促使数以千万计的人尝试使用比特币。
 
-另一位赞成删除这一页的人写道：正确的史学是根据上下文来讨论事件，而不是简单地假设事件是由任何特定的意识形态驱动的。
+**Twitter比特币加密支付问题重重**
 
-另一个赞成删除的人写道，目前这篇文章的存在纯粹是为了推动极端的反共情绪，反对全世界数十亿人已经接受的政治制度。
+Twitter的「小费/打赏」功能依赖使用过程繁琐的Strike，Strike也没有准备好应付全球支付网路相关的监管问题。另外，Strike是萨尔瓦多政府推出比特币支付服务的合作夥伴，相关税收规则一团糟，导致 Twitter 「小费/打赏」功能无法被大规模普及应用。
 
-一些编辑反对删除这篇文章，其中一位写到：删除这篇文章的行为，将是真正的乔治奥威尔式的，删除这篇文章是一种试图粉饰共产主义的政治行为。
+另一方面，Twitter「只选择」比特币的做法，引发以太坊社群和DeFi支持者的反对。Twitter在用户的Twitter帐号上显示与他们钱包相关联的、基于NFT的徽章，但比特币区块链似乎无法胜任这项任务。Twitter也拒绝解释如何支持此项功能，不透明的政策必然导致失败的结果。
 
-另一位反对者写道：社交媒体上的批评者抨击维基百科考虑删除该页面，指责其带有左翼偏见。其他人指出，维基百科上一篇类似的文章，标题是“反共大屠杀”，目前没有争议。 维基百科没有中央编辑委员会，但管理员有权限可以从普通视图中删除文章和其他维基百科页面，并恢复之前删除的页面。 维基百科称，多数决定不是通过多数人投票做出的，而是通过贡献者之间的讨论达成共识。
+**盖特GETTR将远远超过推特TWITTER**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/4441.jpg)
+“你们不知道喜联储会有多牛!”郭文贵先生骄傲地说，横空而出的盖特远远超越Twitter。文贵先生设计的喜联储拥有自己的铸币权，即将上市的GETTR PAY 可以迅速与H COIN,H DOLLAR 相连接，形成一个中心化管理、去中心化无国界支付系统。
 
-图片来自网络
+所以，Twitter首席执行官杰克‧多尔西的离职，可能与Twitter不透明的比特币计划预见的失败有关?
 
-在“共产主义政权下的大规模屠杀”页面的讨论页面上，一名管理员或编辑在周一下午启动了关闭讨论的程序，结果很快就会公布。  维基百科没有立即回应福克斯新闻数字频道的置评请求。
+消息来源:
+[https://www.abmedia.io/20210607-jack-dorsey-would-leave-twitter-for-bitcoin](https://www.abmedia.io/20210607-jack-dorsey-would-leave-twitter-for-bitcoin)
 
-本文内容仅代表个人观点, 与GNews无关
+[https://www.cnbc.com/2021/11/29/twitter-ceo-jack-dorsey-is-expected-to-step-down-sources-say.htmlCNBC](https://www.cnbc.com/2021/11/29/twitter-ceo-jack-dorsey-is-expected-to-step-down-sources-say.htmlCNBC)
 
-参考信息 
-[Wikipedia page on ‘Mass killings under communist regimes’ considered for deletion, prompting bias accusations](https://www.foxnews.com/politics/wikipedia-page-mass-killings-communist-regimes-deletion-bias)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-3.jpg)
 
  
 
