@@ -2,44 +2,43 @@
 ---
 
 
-## 对澳大利亚实施贸易禁令,令中共国品尝苦果
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1707649/)
+## 秘翻在线: Twitter首席执行官杰克‧多尔西为什么离职?
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1707666/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-142.jpg)图片来源：ABCNEWS
-整理报道：Lish
-编辑：文泓
+撰稿:牛小妹
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Image-1-3.jpg)
+图片:GETTY　IMAGES
 
-11月29日，《澳洲新闻》报道，中共国试图通过贸易抵制使澳大利亚在经济上屈服的计划正适得其反。因为随着能源危机的恶化，该国不得不收回一些政策。中共国已咽下它自己说的话，这对共产主义国家来说是尴尬的，但对澳大利亚来说是一次明显的胜利。
+**Twitter禁言川普，多尔西承认失败**
 
-自今年9月以来，这个亚洲超级大国一直在努力应对导致全国各地轮流停电和工厂停产的电力供应危机。有些地区停电非常严重，以至于国民不得不在没有交通灯和电话信号的情况下生活。即便中共国三分之二以上的电力来自于燃煤电厂，但仍拒绝购买任何澳大利亚煤炭。
+2021年 1 月，在美国国会大厦遭到袭击之后，Twitter禁止川普发言，Twitter首席执行官杰克·多尔西（Jack Dorsey）坚称川普的推文「分裂了美国」，但之后承认这是推特在促进自由言论方面的失败。根据美国广播公司商业频道（CNBC）的报导，多尔西已辞去首席执行官。
 
-去年，在澳洲总理斯科特·莫里森呼吁对新冠病毒进行溯源调查后，中共国对包括铁矿石、葡萄酒、牛肉、大麦甚至龙虾在内的澳大利亚产品实施了一系列贸易禁令，给澳洲制造“经济困境”。去年11月实施的煤炭禁令后，使澳洲出口减少了10亿澳元。
+**推特成立比特币专属加密支付**
 
-最新的海关报告显示，上个月中国进口了278万吨澳大利亚煤炭，这可能是（临时）放松禁令，但也是中方的一次重大让步。这也是自2020年12月以来，澳大利亚的进口首次被纳入中共国海关总署发布的月度报告数据中。
+Facebook曾试图「铸造」自己的「货币」，推出Libra的新型稳定币，最终遭监管机构扼杀。Twitter没有行使Facebook的垄断权力，也不「铸造」自己的「货币」，而是选择加密支付工具「比特币」。
 
-联邦银行的矿业和能源经济学家维夫克·达尔告诉《澳洲新闻》，这对该行业来说应该是个好消息。然而，澳大利亚的煤炭生产商不应过于兴奋，因为这可能是一次性的事情。
+多尔西一直是比特币的支持者，9月24日，Twitter宣布向旗下3亿个活跃用户推出「小费」打赏服务，允许通过共享钱包或使用「Strik」应用程序，来发送或接收比特币。
 
-在一年多的时间里，澳大利亚的运煤船一直停泊在中国港口，但中共国政府拒绝处理这些煤炭。达尔先生说，这些货物出现在数据中，只是因为产品最终完成通关了，并不意味着他们会开始张开双臂欢迎澳大利亚的煤炭。
+Twitter还宣布了另一项计划，让用户将他们的比特币钱包连接到与其身份相关的非同质化代币（Non-fungible token NFT），此计划促使数以千万计的人尝试使用比特币。
 
-洛伊研究所澳中关系项目主任皮特·蔡此前告诉澳洲新闻，（如果）中共国随意将与澳洲关系冰封起来，这是在自取灭亡。他说：“一些货物完全有可能通过第三国出售，以规避非官方禁令。”
+**Twitter比特币加密支付问题重重**
 
-报道称，中共国为煤炭支付了每吨595澳元的价格，这比澳大利亚煤炭生产商每吨274澳元的售价高出一倍多。这也意味着中共国的需求仍然存在，如此推动了煤炭价格的上涨。
+Twitter的「小费/打赏」功能依赖使用过程繁琐的Strike，Strike也没有准备好应付全球支付网路相关的监管问题。另外，Strike是萨尔瓦多政府推出比特币支付服务的合作夥伴，相关税收规则一团糟，导致 Twitter 「小费/打赏」功能无法被大规模普及应用。
 
-澳大利亚战略政策研究所估计，中共国通过第三方支付溢价来接收（澳洲）商品，每周自己损失20亿澳元。
+另一方面，Twitter「只选择」比特币的做法，引发以太坊社群和DeFi支持者的反对。Twitter在用户的Twitter帐号上显示与他们钱包相关联的、基于NFT的徽章，但比特币区块链似乎无法胜任这项任务。Twitter也拒绝解释如何支持此项功能，不透明的政策必然导致失败的结果。
 
-该研究所写道，“由于中共国的钢厂每天使用近200万吨煤炭，它所支付的高于世界其他地方的煤炭成本的溢价，每周约为20亿美元”。
+**盖特GETTR将远远超过推特TWITTER**
 
-参考链接：[Chinese plan to cause Australia ‘economic pain’ from trade bans backfires](https://www.news.com.au/finance/markets/world-markets/chinese-plan-to-cause-australia-economic-pain-from-trade-bans-backfires/news-story/8d57642a517ed808c1ace717438f856e)
+“你们不知道喜联储会有多牛!”郭文贵先生骄傲地说，横空而出的盖特远远超越Twitter。文贵先生设计的喜联储拥有自己的铸币权，即将上市的GETTR PAY 可以迅速与H COIN,H DOLLAR 相连接，形成一个中心化管理、去中心化无国界支付系统。
 
-**发布：kk**
+所以，Twitter首席执行官杰克‧多尔西的离职，可能与Twitter不透明的比特币计划预见的失败有关?
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+消息来源:
+[https://www.abmedia.io/20210607-jack-dorsey-would-leave-twitter-for-bitcoin](https://www.abmedia.io/20210607-jack-dorsey-would-leave-twitter-for-bitcoin)
+
+[https://www.cnbc.com/2021/11/29/twitter-ceo-jack-dorsey-is-expected-to-step-down-sources-say.htmlCNBC](https://www.cnbc.com/2021/11/29/twitter-ceo-jack-dorsey-is-expected-to-step-down-sources-say.htmlCNBC)
+
+
 
  
 

@@ -2,24 +2,57 @@
 ---
 
 
-## 参议员汤姆·科顿：我怀疑福奇向国会作证时当场撒谎
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1707814/)
+## 2021年11月30日新闻集
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1707829/)
 
-#### 撰稿：彩虹       
+撰稿人：文远Bruce
 
-#### 责编：胡天
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-957.png)图片来源：福克斯新闻
-11月29日，《新闻极限》报道，周一，来自阿肯色州的参议员汤姆·科顿（Tom Cotton）在参加“福克斯和朋友”节目时，抨击白宫首席医疗顾问安东尼·福奇（Anthony Fauci），称他是一个对科学自以为是的权威官僚。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture1-20.png)
 
-根据报道，福奇在接受CBS采访时说：“他们真的在批评科学，因为我就代表着科学。对我来说，这比向我投掷箭矢的行为更危险。我不会永远在这里，但科学将永远在这里。如果你破坏了科学，在我离开后很久，你们就会做一些对社会非常有害的事情，这是我所担心的事情”。
+1. **中共转30万预备役为前线战斗部队**
 
-对此，科顿断言指出：“他（福奇）所在的机构几周前刚刚承认：他们确实资助了病毒功能性增强研究。所以，这就存在一个谎言，在他的机构拖延了几个月后给国会写信承认病毒功能性增强研究后，要么是福奇向国会撒了谎，要么是他的机构撒谎。我则怀疑托尼·福奇在向国会作证时当场撒谎。”
 
-另据《纽约邮报》报道，科顿加入了由肯塔基州兰德·保罗（Rand Paul）和德克萨斯州的泰德·克鲁兹（Ted Cruz）针对福奇向国会撒谎的指控。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture2222.png)
 
-**新闻来源**
+**2.华夏幸福(代码600340)累积未能偿还本息合计1013.4亿元，目前市值131亿人民币**
 
-[Sen. Cotton Claims Fauci Thinks He Has Control Over Science](https://www.newsmax.com/politics/fauci-tomcotton-covid-19/2021/11/29/id/1046626/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture3333.png)
+
+**3.纽约联储启动创新中心，研究央行数字货币**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture4444.png)
+
+**4.美国10年国债5年国债走势图**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture5555.png)
+
+**5.Exxon Mobil埃克森美孚企业债走势图**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture6666.png)
+
+**6.Shell壳牌企业债走势图**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture6666-1.png)
+
+**7.5G基站耗电量为4G基站3倍**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture888.png)
+
+**8.VR设备——触感手套**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture9999.png)
+
+**9.水幕投影技术应用**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture10-5.png)
+
+**10.11.历史上的人物活在今天是啥样？艺术家与设计师 Becca Saladin决定复原一下，并且越做越起劲，做成了一个项目Royalty Now**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture11-5.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture12-5.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-3.jpg)
 
  
 
