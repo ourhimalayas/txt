@@ -2,23 +2,22 @@
 ---
 
 
-## 秘翻在线：日本封国！将禁止全世界外国人入境
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1704611/)
+## 奥密克戎来袭 东京股市暴跌
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1704968/)
 
-翻译：文字燒
-![](https://assets.gnews.org/wp-content/uploads/2021/11/16381658161.png)图片来源：原文链接
-为了应对中共病毒的一个新变种–Omicron株的全球蔓延，岸田首相已宣布全面暂停所有外籍人士入境。
+撰稿: 东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1212.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fstock.gucheng.com%2FUploadFiles_7844%2F202105%2F2021051315235556.jpg&amp;imgrefurl=https%3A%2F%2Fstock.gucheng.com%2F202105%2F4042280.shtml&amp;tbnid=0YpAzrVsdUdQbM&amp;vet=12ahUKEwjttL3rmb30AhU6TPUHHd_RApoQMyg1egQIARAV..i&amp;docid=fzN71SGMH3o7EM&amp;w=780&amp;h=479&amp;q=%E6%97%A5%E6%9C%AC%E8%82%A1%E5%B8%82%E6%9A%B4%E8%B7%8C&amp;ved=2ahUKEwjttL3rmb30AhU6TPUHHd_RApoQMyg1egQIARAV)
+29日，由于担心中共病毒的变种“奥密克戎”毒株在全球蔓延，东京股市暴跌，日经指数比前一个周末下跃逾500日元。收盘价为28,283.92日元，下跌467.70日元。
 
-岸田首相表示：作为一项紧急预防措施，从11月30日午夜0点开始，日本将禁止全世界外国人进入日本。
+由于对“奥米克戎”变异病毒的警戒，日经指数开盘下跌超过400日元，之后又被回购，指数出现了片刻上涨。但是随着岸田文雄首相宣布全面禁止外国人入境时，下跌趋势明显加快。
 
-到目前为止，政府已经在9个国家加强了隔离措施，包括南非，那里已经确认了Omicron菌株，并且已经停止了新的入境者。 岸田首相进一步加强了这一措施，并宣布将暂时停止所有外国公民的入境，包括暂停从本月8日开始破例允许以商务为目的的短期访客、外国学生和技术实习生进入日本。 此外，从已确认为Omicron菌株的国家返回的日本国民将被要求在指定设施中进行隔离。
+当日本政府以牺牲股市为代价，正面面对新变异病毒时，中共国却开始标榜自己是“当今世界抵抗病毒传播的真正铜墙铁壁”，高调宣扬所谓的“动态清零路线”，是可忍孰不可忍！难道让全世界效仿你的草菅人命，学习你的独裁暴政，以病毒•疫苗为手段戕害人类？!在变异病毒蔓延之时，只有释放病毒的始作俑者，才会有这样的“胸有成竹”吧！
 
-岸田首相还透露，更严格的控制措施所针对的国家之一–纳米比亚的一人被怀疑对中共病毒检测呈 “阳性”。 然而，目前还不知道他是否感染了Omicron菌株。
+[信息源：](https://news.yahoo.co.jp/articles/a0d523ec156c92ec058f169a3871fac6b9d0372a)
 
-信息来源：[https://news.tbs.co.jp/newseye/tbs\_newseye4415498.html](https://news.tbs.co.jp/newseye/tbs_newseye4415498.html)
-
-责编：待命（文晓）
-
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

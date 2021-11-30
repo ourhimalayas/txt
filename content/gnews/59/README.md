@@ -2,17 +2,22 @@
 ---
 
 
-## 【文贵先生大直播PPT】青蒿素功效
-` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1703384/)
+## 秘翻在线：日本封国！将禁止全世界外国人入境
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1704611/)
 
-撰稿：飞飞及团队
-审核：三票先生，顽童先生，舒平风
+翻译：文字燒
+![](https://assets.gnews.org/wp-content/uploads/2021/11/16381658161.png)图片来源：原文链接
+为了应对中共病毒的一个新变种–Omicron株的全球蔓延，岸田首相已宣布全面暂停所有外籍人士入境。
 
-【2021年11月28日文贵先生大直播PPT：青蒿素功效】
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-196.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/2-132.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/3-110.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/4-73.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/5-56.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/6-48.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/7-41.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/8-32.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/9-24.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/10-13.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/11-17.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/12-14.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/13-6.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/14-7.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/15-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/16-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/17-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/18-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/19-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/20-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/21-14.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/22-11.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/23-10.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/24-8.jpg)
-* * *
+岸田首相表示：作为一项紧急预防措施，从11月30日午夜0点开始，日本将禁止全世界外国人进入日本。
 
-上传：云起时
+到目前为止，政府已经在9个国家加强了隔离措施，包括南非，那里已经确认了Omicron菌株，并且已经停止了新的入境者。 岸田首相进一步加强了这一措施，并宣布将暂时停止所有外国公民的入境，包括暂停从本月8日开始破例允许以商务为目的的短期访客、外国学生和技术实习生进入日本。 此外，从已确认为Omicron菌株的国家返回的日本国民将被要求在指定设施中进行隔离。
+
+岸田首相还透露，更严格的控制措施所针对的国家之一–纳米比亚的一人被怀疑对中共病毒检测呈 “阳性”。 然而，目前还不知道他是否感染了Omicron菌株。
+
+信息来源：[https://news.tbs.co.jp/newseye/tbs\_newseye4415498.html](https://news.tbs.co.jp/newseye/tbs_newseye4415498.html)
+
+责编：待命（文晓）
 
  
 

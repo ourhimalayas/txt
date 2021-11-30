@@ -2,68 +2,36 @@
 ---
 
 
-## 众议员迈克·沃尔茨:摩根CEO以牺牲自己的价值观和美国国家安全向习屈膝
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1706979/)
+## 福奇自称“我是科学”遭参议员克鲁兹和保罗炮轰“惊人的专制”
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1707226/)
 
-众议员迈克·沃尔茨： 摩根大通首席执行官杰米·戴蒙曾对 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 的寿命开了个玩笑，但现在却为贬低 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的残暴政权而道歉？ 又一位 CEO 以牺牲自己的价值观和美国国家安全为代价，为了下一季度的收益而向习近平卑躬屈膝。 真可悲。【转华尔街日报推文：“我刚在香港开玩笑说，共产党正在庆祝建党一百周年，摩根大通也是如此。 我打赌我们能持续时间更长，”杰米·戴蒙说。】
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-44.png)
+图片来源：
 
+零对冲网11月29日报道，福奇再次自称他代表科学，而泰徳·克鲁兹和兰徳·保罗炮轰他是“一个未被选举的狂妄自大的技术官僚。” 警告他已经为了实施独裁控制而“扭曲了科学”。
 
+福奇在CBS新闻访谈中对着整个国家宣称，说：“任何人谎话连篇，来自参议院调查委员会以及兰徳·保罗之流的威胁，都是毫无道理的。”
 
-> JP Morgan Chase’s CEO Jamie Dimon made a joke about the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)’s longevity but now is apologizing for disparaging China’s brutal regime? Yet another CEO bowing at the alter of Xi for their next quarterly earnings at the expense of their values and US national security. Pathetic. [https://t.co/3gZXVqKBLW](https://t.co/3gZXVqKBLW)
-> — Rep. Mike Waltz (@michaelgwaltz) [November 29, 2021](https://twitter.com/michaelgwaltz/status/1465356467242876932?ref_src=twsrc%5Etfw)
+他进一步自称：“如果你要攻击我，你是在攻击科学。”
 
+这已经不是福奇第一次声称他就是科学。在针对克罗兹建议福奇需要被审判一事，福奇说：“我不得不笑了，我应该被审判？参议员，1月6日发生了什么？”
 
+克罗兹和保罗很快作出了反应，保罗发推说：“这绝对是狂妄自大的人居然自称代表科学，这是惊人的而且警示人们一个公众健康官僚居然会如此自称，尤其是一个拼命想要忽略天然免疫科学的人。” 克罗兹发推说：“福奇是一个未经选举的技术官僚，他为了对千百万美国人实施独裁控制，已经扭曲了科学和事实。”
 
-美前国务卿迈克·蓬佩奥： 我们的政府管理层明白，安抚敌人会招致损害美国人安全的结果。我们于强硬的立场上与他们打交道，并为美国人民确保了一个更安全、更和平的世界和更好的结果。 【附相关视频，批拜登政府不敢对抗 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 】
+克鲁兹罗列了一系列事实：
 
+1. 5月11日福奇发誓说“国立卫生研究院NIH从未，而且现在也不会资助在武汉病毒研究所进行的“功能增强试验”。
 
+2. 10月20日，NIH写了他们资助了武汉实验室进行的实验，题目是“来自自然的中国蝙蝠冠状病毒刺突蛋白是否能与在小鼠动物模型上的人类ACE2受体结合”。
 
-> Our Admin understood that appeasing adversaries would lead to outcomes detrimental to the safety & security of Americans. We dealt with them from a position of strength and secured a safer, more peaceful world & better outcomes for the American people.[https://t.co/nQDtgoAful](https://t.co/nQDtgoAful)
-> — Mike Pompeo (@mikepompeo) [November 30, 2021](https://twitter.com/mikepompeo/status/1465489877542260739?ref_src=twsrc%5Etfw)
+3. 福奇的声明与10月20日NIH写的信不可能两者都是真实的，福奇的声明是自相矛盾的
 
+4. 根据美国宪法第18条1001条款，对国会撒谎是重罪，最高可判入狱5年。
 
+福奇应该或者作一个详细的基于事实澄清，或者司法部应该考虑因他对国会撒谎而对他进行审判。
 
-参议员卢比奥新闻办： 毫不奇怪，乌干达 [#Uganda](https://twitter.com/hashtag/Uganda?src=hashtag_click) 被迫将其唯一的国际机场交给 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click)，因为他们掉进了掠夺性贷款计划的陷阱导致违约。 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) “一带一路”计划的贷款只是为了增加 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 在海外的腐蚀性影响，而不是帮助需要帮助的国家。 【附 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 接管乌干达机场的相关推文】
-
-
-
-> No surprise that [#Uganda](https://twitter.com/hashtag/Uganda?src=hash&amp;ref_src=twsrc%5Etfw) is forced to surrender its only international airport to the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) for defaulting on their predatory loan scheme. 
-> 
-> Loans from China's Belt & Road Initiative are only intended to increase the CCP's corrosive influence abroad, not help countries in need. [https://t.co/flkB2giWqj](https://t.co/flkB2giWqj)
-> — Senator Rubio Press (@SenRubioPress) [November 29, 2021](https://twitter.com/SenRubioPress/status/1465455532982996994?ref_src=twsrc%5Etfw)
-
-
-
-参议员吉姆·英霍夫： 拜登政府再次对核政策充耳不闻。[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 正在以极快的速度建造数百枚新型洲际弹道导弹，而俄罗斯的武器库已经超过了我们的武器库。我们必须使我们的核力量现代化，以遏制这些日益增长的威胁。 【附自由灯塔新闻：拜登安排核裁军支持者研究洲际弹道导弹替代品】
-
-
-
-> The Biden administration is yet again tone deaf on nuclear policy. China is building hundreds of new ICBMs at a breakneck pace, and Russia’s arsenal already surpasses ours. We must modernize our nuclear forces to deter these growing threats. [https://t.co/SJjhMWsTBA](https://t.co/SJjhMWsTBA)
-> — Sen. Jim Inhofe (@JimInhofe) [November 29, 2021](https://twitter.com/JimInhofe/status/1465411777051742215?ref_src=twsrc%5Etfw)
-
-
-
-参议员罗杰·马歇尔： 突发新闻：联邦法院暂时停止了医疗保险和医疗补助服务中心的疫苗强制令。 如果颁布，拜登的该强制令将导致政府引发的劳动力短缺和我们无法承受的护理危机。 【附布隆伯格法律新闻：密苏里州联邦法院停止了拜登的疫苗强制令
-
-
-
-> BREAKING: A federal court has temporarily halted the Centers for Medicare & Medicaid Services vaccine mandate.
->  
-> If enacted, Biden's CMS mandate will lead to a gov-induced labor shortage & an access to care crisis we can’t afford. [https://t.co/8F6ZJGHeYx](https://t.co/8F6ZJGHeYx)
-> — Dr. Roger Marshall (@RogerMarshallMD) [November 29, 2021](https://twitter.com/RogerMarshallMD/status/1465402522596777998?ref_src=twsrc%5Etfw)
-
-
-
-众议员肯·巴克： 美国的公司不应该向 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 低头。 【转每日电信：迪士尼+从香港媒体平台撤下“辛普森一家”嘲讽中共国的剧集 据多家报道，迪士尼的流媒体服务从其香港平台上撤下了《辛普森一家》中的一集，因为它嘲笑中共国对天安门广场大屠杀的审查制度。】
-
-
-
-> American companies should not be bowing down to the CCP. [https://t.co/ctbTowiFUg](https://t.co/ctbTowiFUg)
-> — Rep. Ken Buck (@RepKenBuck) [November 29, 2021](https://twitter.com/RepKenBuck/status/1465364034623094787?ref_src=twsrc%5Etfw)
-
-
-
-
+新闻来源： [Sens. Cruz, Paul Blast “Astounding Authoritarian” Fauci For “I Am Science” Claim](https://www.zerohedge.com/political/sens-cruz-paul-blast-astounding-authoritarian-fauci-i-am-science-claim)
 
  
 

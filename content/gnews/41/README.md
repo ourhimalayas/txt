@@ -2,13 +2,13 @@
 ---
 
 
-## 理查德·巴里斯讲解民调结果：多数人反对疫苗强制令
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1706790/)
+## 不到2周时间，十几国检出中共病毒新变种
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1707094/)
 
-11/24/2021 理查德·巴里斯讲解了他团队所做的有关中共病毒疫苗的民意调查结果。大多数的参与者反对雇主疫苗强制令。在此强制令下，雇主必须开除不接种疫苗的员工，否则雇主将受到严厉的惩罚。巴里斯的团队也跟踪了人们接种中共疫苗后产生严重不良反应的相关数据。他们发现越年轻的群体，接种疫苗后遭受的不良影响越严重。
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
-
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1130-2-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
