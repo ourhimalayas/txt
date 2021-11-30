@@ -2,32 +2,22 @@
 ---
 
 
-## 疑涉及新疆强迫劳动 法国Zara遭禁止扩店
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1708597/)
+## 路透社：11月19日荷兰已出现不明来历奥米克戎病毒
+` 丁过` [轉載自GNews](https://gnews.org/zh-hans/1708722/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/F5704625-D066-4DE3-B0AF-C208F69A774D_w1023_r1_s-7.jpg)图片来自：德国之声
-据德国之声中文网11月30日报道，法国一间Zara服饰店的扩店计划遭地区委员否决，法国官员29日称Zara母公司Inditex可能涉入新疆强迫劳动。今年6月，法国司法单位就开始调查Zara等4家时尚品牌，称他们涉嫌从强迫维吾尔族劳动中获益。法媒称，这是法国检警单位第一次针对维吾尔人权迫害议题展开行动。
+#### 温哥华农场 向真
+![](https://assets.gnews.org/wp-content/uploads/2021/11/RTX7O413.jpg.jpeg)来源：半岛电视台
+据路透社11月30日报道，荷兰政府卫生官员30日表示，“我们在11月19日和11月23日的两个病例测试样本中发现了奥米克戎 （Omicron）中共病毒变体”。荷兰国家公共卫生研究所(RIVM)证实了以上消息，并称“目前还不清楚这些人是否去过非洲南部”。
 
-新疆棉花产量占全世界棉花供应量的五分之一，是国际时尚产业的重要原物料供应地。而这次遭指控的四间企业包含了Zara的西班牙母公司Inditex丶日本迅销（Fast Retailing）旗下的法国Uniqlo公司丶法国时装集团SMCP以及美国运动鞋品牌Skechers。
+也就是说，在11月26日从南非约翰内斯堡和开普敦飞抵荷兰的两个航班上发现至少有14人感染了Omicron病毒变体之前，荷兰已存在Omicron变体感染病例。
+![img](https://media.gettr.com/group34/origin/2021/08/26/16/bf2713ff-0091-6b60-4d79-39681516bf40/aba01548012a37b3e1c22dcdf15a3ce7.jpg)来源：Gettr
+新中国联邦创始人郭文贵先生在11月19日的直播中指出，中共即将在非洲释放新的病毒，然后和西方关系较为密切的南非就出现了初步确定传染性更强的Omicron病毒。
 
-反对扩建的委员会成员阿兰·卡尼尔（Alain Garnier）表示，这是该委员会的一个政治决定。“通过阻止那些无法充分掌控自家供应商的商店进行扩张，我们希望发出一个强烈的信号。”另一位委员桑德琳·雅科托（Sandrine Jacotot）也表示，因涉嫌新疆强迫劳动，Zara的项目违反了委员会考虑的可持续发展标准。
+此前郭先生根据可靠情报曾经发出警告，中共将在非洲和美国西部放毒。而荷兰出现不明来历的Omicron病毒，说明中共极有可能正在全球范围内多点放毒和释放多种病毒！
 
-Inditex当时否认这项指控，并在一封公开声明中表示：“在Inditex，我们对一切形式的强迫劳动持零容忍态度。我们也制定了相关政策和规定，确保这件事情不会出现在我们的供应链之中。”
+参考来源：
 
-新闻参考链接：
-
-[疑涉及新疆强迫劳动 法国Zara遭禁止扩店](https://www.dw.com/zh/%E7%96%91%E6%B6%89%E5%8F%8A%E6%96%B0%E7%96%86%E5%BC%BA%E8%BF%AB%E5%8A%B3%E5%8A%A8-%E6%B3%95%E5%9B%BDzara%E9%81%AD%E7%A6%81%E6%AD%A2%E6%89%A9%E5%BA%97/a-59974682)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+[荷兰当局称11月19日检测样本已出现Omicron变体踪迹](https://cn.reuters.com/article/netherland-covid-omicron-1130-idCNKBS2IF0XA)
 
  
 

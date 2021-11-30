@@ -2,34 +2,29 @@
 ---
 
 
-## 推特CEO辞职
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1708527/)
+## 中非论坛开幕 ，习近平再撒币
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1708605/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月29日，杰克·多西发布了辞职公开信，辞去推特首席执行官一职。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/CEO.jpg)
-推特股价在开盘前上涨12%。消息人士称，推特股价上涨是因为市场认为多西的辞职标志着很快将出现对推特的并购案。但相反意见则认为，推特面临铺天盖地的诉讼和天文数额的赔偿，前景黯淡。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/CEO-1.jpg)
-近年来，以推特、脸书为首的“硅谷大科技寡头”无视美国宪法第一修正案，打压自由言论，利用有政治或利益倾向的言论审查禁言、删帖，直到永久封号。推特因此官司缠身，多西多次被国会传唤参加听证会。分析人士称，多西辞职有利于他从争议和诉讼中脱身。
+撰稿：子喜太一
+![](https://assets.gnews.org/wp-content/uploads/2021/11/121A.jpg)图片制作：澳喜农场©森森
+2021年11月29日，中非论坛第八届部长级会议开幕，习近平以视频方式出席并讲话。除了一些冠冕堂皇的大空话之外，重点是向非洲无偿援助6亿剂疫苗，年底到期未还的无息贷款继续从国际货币基金组织提款100亿美元转借给非洲，未来3年从非洲进口总额力争达到3000亿美元，还特别强调了非洲27亿人的磅礴力量！
 
-参考链接：
-1) . [Jack Dorsey Steps Down As Twitter CEO, Chooses Parag Agrawal As Successor](https://www.zerohedge.com/technology/jack-dorsey-step-down-twitter-ceo-cnbc-reports)
-2) . [Twitter CEO Jack Dorsey Steps Downhttp](https://www.newsmax.com/newsfront/dorsey-twitter-stepping-down/2021/11/29/id/1046527/)
+习近平在中非论坛的表态三个目的，一个结果！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
+目的一：习近平虽然不敢迈出国门，但是也很想让世界知道自己多么强大，多么有实力，是真正的世界之王！
 
-总编：AN
-编辑：文真
-校正/发稿：Fei797
+目的二：让美国和欧洲看看，别想孤立我，非洲还有27亿穷兄弟支持我，想看我笑话，不可能！
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+目的三：通过毒疫苗彻底控制非洲，用解药来要挟非洲，让非洲成为CCP的奴隶！
+
+可惜的是，有爆料革命在，习近平的这些都只是痴心妄想，不可能实现，最终只有一个结果，非洲拿了钱就翻脸，全世界特别是欧美彻底看清CCP的野心，彻底放弃对CCP的一丝幻想，坚定、加快铲除CCP的步伐！
+
+共产党，无论你怎么表演，都只是一个小丑的滑稽剧，世界在觉醒，正义的力量在集结，共产党死亡之神已经抓住了你的衣襟，你完蛋了！
+
+新闻参考链接：
+
+[联合新闻网](https://udn.com/news/story/7331/5925651)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/TA1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
