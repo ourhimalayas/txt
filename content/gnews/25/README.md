@@ -2,68 +2,26 @@
 ---
 
 
-## 众议员迈克·沃尔茨:摩根CEO以牺牲自己的价值观和美国国家安全向习屈膝
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1706979/)
+## 【小雨】专栏在路上046——神仙篇
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1707200/)
 
-众议员迈克·沃尔茨： 摩根大通首席执行官杰米·戴蒙曾对 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 的寿命开了个玩笑，但现在却为贬低 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的残暴政权而道歉？ 又一位 CEO 以牺牲自己的价值观和美国国家安全为代价，为了下一季度的收益而向习近平卑躬屈膝。 真可悲。【转华尔街日报推文：“我刚在香港开玩笑说，共产党正在庆祝建党一百周年，摩根大通也是如此。 我打赌我们能持续时间更长，”杰米·戴蒙说。】
+加拿大温哥华扬帆农场 小雨
+![](https://assets.gnews.org/wp-content/uploads/2021/11/专栏图.png)
+小时候最喜欢看《西游记》，虽然看不懂其中的道理，但是其中打打杀杀、神仙鬼怪，尤其是腾云驾雾、变化多端、呼风唤雨的情节，让人流连忘返。好像每个人都有个神仙梦，小孩子模仿其中形象更是惟妙惟肖，抓耳挠腮，上蹦下窜，还有特别热心的，会按照剧中角色给别人起绰号。比如老妖，就是因为他鬼点子多，平时喜欢装神弄鬼，所以大家给个绰号老妖，他也乐享其成，渐渐地叫开了，有时候去他家喊他“老妖”，他父母也跟着喊，至于各种原因，只有我们几个知道。
 
+一岁两岁是心肝，三岁四岁有点烦，五岁六岁老捣蛋，七岁八岁狗都嫌。刚好那段时间我们在七八岁阶段，每天要么人手一个棍子，美曰“金箍棒”，要么人手一个弹弓，每天好像有无穷精力，想着法折腾、发泄。膨胀的老妖，自从有此雅号，好像已经忘乎所以，以为自己已成得道神仙似的，有点找不到北了；别人呜枪弄棒，他偏不，不知道从哪里搞了一本练习气功的宝典，有点像周星驰《功夫》电影演绎的“葵花宝典”味道。每天神神秘秘地又是瞪目站桩，又是呼呼运气，一副我行我素的神仙派头。
 
+我们戏笑他走火入魔，越是嘲笑，他越是反其道而行之，人有时候就是这样奇怪。比如，你苦口婆心劝他人别打疫苗，他反而还觉得你杞人忧天、小心过度，或着说你别有用心、居心不良、阴谋论，更有什者说你偏激、着魔了。这个时候只能尽力而为，发自肺腑，耐心细心，多在具体方法上多下功夫。比如，遇到别人油盐不进的情况，只要对方还肯和我交流，我会心平气和摆一些双方能统一的共识。首先不反对成熟疫苗，但要知道即使成熟疫苗也不是百分之百安全，并且还有些并发症；其次在两年内紧急推出的不成熟疫苗，再加上国内外已经有诸多致病、致死情况，事关生死，如果一定要打能否等待成熟后再打也不迟，不着急这一时半刻，更犯不着冒这么大风险，这样说来基本对方都能接受。做了该做的说了该说的，剩下的只有问心无愧了。
 
-> JP Morgan Chase’s CEO Jamie Dimon made a joke about the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)’s longevity but now is apologizing for disparaging China’s brutal regime? Yet another CEO bowing at the alter of Xi for their next quarterly earnings at the expense of their values and US national security. Pathetic. [https://t.co/3gZXVqKBLW](https://t.co/3gZXVqKBLW)
-> — Rep. Mike Waltz (@michaelgwaltz) [November 29, 2021](https://twitter.com/michaelgwaltz/status/1465356467242876932?ref_src=twsrc%5Etfw)
+这些道理也是现在才知道，可惜那时候我们只是对老妖嘲笑和讽刺，可怜的老妖好像也暗暗憋着一股气，大家越不看好自己，就越要表现自己的与众不同，每天愈加发奋练功。还不知道从哪里搞来了几个石敦，每天费劲吧啦地搬来抬去。我们几个倒真像看妖怪一样看老妖了，不被认可的老妖更是愤恨，从开始的口角辩论，到后面的不再理喻。
 
+记得有一天，我们几个在外面玩，不知道怎么就引到老妖练气功，哥几个就争先恐后说笑起来。好汉难敌四手，可怜的老妖被气得满脸通红无话可说，刚好旁边有半个破损的石磨盘斜靠在墙根。老妖为了证明自己，指着石磨盘恨恨地说：谁能搬动？大家更笑了，都知道搬不动，就更故意嘲讽：老妖会气功能搬动。可怜的老妖被大家放到火上烤，搬不动也要搬，在大家嘲讽中奋力搬磨盘，自然纹丝不动，引来更尖厉地大笑。虽然搬不动，因为石磨是斜靠墙壁，还是能费力搬正的，这时候老妖刚把石磨搬正，就听呼天抢地的“哎呦”声，老妖被滑倒的石磨压在下面。
 
+后来的情况是腿被压的骨折，幸亏没有生命危险，老妖也因此在家养伤一年，我们几个私下谈起此事也是愧疚难当，觉得对不住好兄弟。
 
-美前国务卿迈克·蓬佩奥： 我们的政府管理层明白，安抚敌人会招致损害美国人安全的结果。我们于强硬的立场上与他们打交道，并为美国人民确保了一个更安全、更和平的世界和更好的结果。 【附相关视频，批拜登政府不敢对抗 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 】
+老妖气功神仙梦没练成，倒是赔了夫人又折兵。在我们的实际工作中，不能只当顺毛驴，听不得半点指正之言。凡事发生有利有弊，一个项目方案也是如此，唯真不破在实践中就是实事求是。稍微提一些合理化建议，或提出不同方案，就偏信偏疑，轻者拉开距离打入冷宫，重者打成伪类。在具体实际工作中，少讲点“主义”，多在具体方法论上下文章，即使有思想不坚定的战友，也会因为您得当的工作方法而回归正道，团结最广大战友，实事求是，是我们工作最好的捷径。
 
-
-
-> Our Admin understood that appeasing adversaries would lead to outcomes detrimental to the safety & security of Americans. We dealt with them from a position of strength and secured a safer, more peaceful world & better outcomes for the American people.[https://t.co/nQDtgoAful](https://t.co/nQDtgoAful)
-> — Mike Pompeo (@mikepompeo) [November 30, 2021](https://twitter.com/mikepompeo/status/1465489877542260739?ref_src=twsrc%5Etfw)
-
-
-
-参议员卢比奥新闻办： 毫不奇怪，乌干达 [#Uganda](https://twitter.com/hashtag/Uganda?src=hashtag_click) 被迫将其唯一的国际机场交给 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click)，因为他们掉进了掠夺性贷款计划的陷阱导致违约。 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) “一带一路”计划的贷款只是为了增加 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 在海外的腐蚀性影响，而不是帮助需要帮助的国家。 【附 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 接管乌干达机场的相关推文】
-
-
-
-> No surprise that [#Uganda](https://twitter.com/hashtag/Uganda?src=hash&amp;ref_src=twsrc%5Etfw) is forced to surrender its only international airport to the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) for defaulting on their predatory loan scheme. 
-> 
-> Loans from China's Belt & Road Initiative are only intended to increase the CCP's corrosive influence abroad, not help countries in need. [https://t.co/flkB2giWqj](https://t.co/flkB2giWqj)
-> — Senator Rubio Press (@SenRubioPress) [November 29, 2021](https://twitter.com/SenRubioPress/status/1465455532982996994?ref_src=twsrc%5Etfw)
-
-
-
-参议员吉姆·英霍夫： 拜登政府再次对核政策充耳不闻。[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 正在以极快的速度建造数百枚新型洲际弹道导弹，而俄罗斯的武器库已经超过了我们的武器库。我们必须使我们的核力量现代化，以遏制这些日益增长的威胁。 【附自由灯塔新闻：拜登安排核裁军支持者研究洲际弹道导弹替代品】
-
-
-
-> The Biden administration is yet again tone deaf on nuclear policy. China is building hundreds of new ICBMs at a breakneck pace, and Russia’s arsenal already surpasses ours. We must modernize our nuclear forces to deter these growing threats. [https://t.co/SJjhMWsTBA](https://t.co/SJjhMWsTBA)
-> — Sen. Jim Inhofe (@JimInhofe) [November 29, 2021](https://twitter.com/JimInhofe/status/1465411777051742215?ref_src=twsrc%5Etfw)
-
-
-
-参议员罗杰·马歇尔： 突发新闻：联邦法院暂时停止了医疗保险和医疗补助服务中心的疫苗强制令。 如果颁布，拜登的该强制令将导致政府引发的劳动力短缺和我们无法承受的护理危机。 【附布隆伯格法律新闻：密苏里州联邦法院停止了拜登的疫苗强制令
-
-
-
-> BREAKING: A federal court has temporarily halted the Centers for Medicare & Medicaid Services vaccine mandate.
->  
-> If enacted, Biden's CMS mandate will lead to a gov-induced labor shortage & an access to care crisis we can’t afford. [https://t.co/8F6ZJGHeYx](https://t.co/8F6ZJGHeYx)
-> — Dr. Roger Marshall (@RogerMarshallMD) [November 29, 2021](https://twitter.com/RogerMarshallMD/status/1465402522596777998?ref_src=twsrc%5Etfw)
-
-
-
-众议员肯·巴克： 美国的公司不应该向 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 低头。 【转每日电信：迪士尼+从香港媒体平台撤下“辛普森一家”嘲讽中共国的剧集 据多家报道，迪士尼的流媒体服务从其香港平台上撤下了《辛普森一家》中的一集，因为它嘲笑中共国对天安门广场大屠杀的审查制度。】
-
-
-
-> American companies should not be bowing down to the CCP. [https://t.co/ctbTowiFUg](https://t.co/ctbTowiFUg)
-> — Rep. Ken Buck (@RepKenBuck) [November 29, 2021](https://twitter.com/RepKenBuck/status/1465364034623094787?ref_src=twsrc%5Etfw)
-
-
-
-
+编审：文敏     发布：文敏
 
  
 

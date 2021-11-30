@@ -2,29 +2,22 @@
 ---
 
 
-## 中共国是全世界的敌人
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1704896/)
+## 奥密克戎来袭 东京股市暴跌
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1704968/)
 
-#### 撰稿：彩虹
+撰稿: 东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1212.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fstock.gucheng.com%2FUploadFiles_7844%2F202105%2F2021051315235556.jpg&amp;imgrefurl=https%3A%2F%2Fstock.gucheng.com%2F202105%2F4042280.shtml&amp;tbnid=0YpAzrVsdUdQbM&amp;vet=12ahUKEwjttL3rmb30AhU6TPUHHd_RApoQMyg1egQIARAV..i&amp;docid=fzN71SGMH3o7EM&amp;w=780&amp;h=479&amp;q=%E6%97%A5%E6%9C%AC%E8%82%A1%E5%B8%82%E6%9A%B4%E8%B7%8C&amp;ved=2ahUKEwjttL3rmb30AhU6TPUHHd_RApoQMyg1egQIARAV)
+29日，由于担心中共病毒的变种“奥密克戎”毒株在全球蔓延，东京股市暴跌，日经指数比前一个周末下跃逾500日元。收盘价为28,283.92日元，下跌467.70日元。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-2-19.jpg)图片来源：纽约时报
-克劳迪亚·特尼（Claudia Tenney）是美国纽约州的一位共和党政治家，2017年至2019年以及2021年起，她成为纽约州第22国会选区的美国众议院议员，从政之前，她曾是一位律师。
+由于对“奥米克戎”变异病毒的警戒，日经指数开盘下跌超过400日元，之后又被回购，指数出现了片刻上涨。但是随着岸田文雄首相宣布全面禁止外国人入境时，下跌趋势明显加快。
 
-周五，特尼众议员在《新闻极限》的“国家报告（National Report）”节目中说，中共国“比二十世纪八十年代的苏联更坏”，美国必须站出来反对中共国在台湾和其他问题上的侵略行为。
+当日本政府以牺牲股市为代价，正面面对新变异病毒时，中共国却开始标榜自己是“当今世界抵抗病毒传播的真正铜墙铁壁”，高调宣扬所谓的“动态清零路线”，是可忍孰不可忍！难道让全世界效仿你的草菅人命，学习你的独裁暴政，以病毒•疫苗为手段戕害人类？!在变异病毒蔓延之时，只有释放病毒的始作俑者，才会有这样的“胸有成竹”吧！
 
-根据11月26日《新闻极限》的报道文章，特尼指，“作为美国人，我们需要站起来，认识到这（中共国）不仅是美国的敌人，而且是世界的敌人，是世界规范和基于规则秩序的世界的敌人”。
+[信息源：](https://news.yahoo.co.jp/articles/a0d523ec156c92ec058f169a3871fac6b9d0372a)
 
-在她发表该言论的时候，一个由五名众议院代表组成的两党小组于周四前往台湾，会见台湾总统和其他领导人，并在台湾面临来自中共国压力时对其表示支持。该代表团成员包括：密歇根州的艾丽莎·斯洛特金（Elissa Slotkin）、加州的马克·塔卡诺（Mark Takano）、德州的科林·阿雷德（Colin Allred）、加州的萨拉·雅各布斯（Sara Jacobs）和南希·梅斯（Nancy Mace）。
-
-对中共国侵略台湾，特尼说：“如果中（共）国选择这么做，它可以几个小时内就能接管台湾。中（共）国非常有胆量，非常有侵略性。他们正在向世界各地进军，无论是在非洲国家，还是在东南亚……中共国利用经济实力和全球主导地位来撬动这些国家。通过‘一带一路’……通过基础设施等杠杆，以便让他们（这些国家）支持中国共产党”。
-
-对于香港问题，特尼认为美国没有为香港站出来，没有做任何事情。“我们允许（香港）这种情况发生，允许中共国采取的许多其他侵略性行为。（但）现在是（我们）采取行动的时候了”。
-
-**新闻来源**
-
-[Rep. Tenney to Newsmax: China ‘Worse Than the Soviet Union’ of the 1980s](https://www.newsmax.com/newsmax-tv/claudia-tenney-china-taiwan-russia/2021/11/26/id/1046324/)
-
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,10 +2,10 @@
 ---
 
 
-## 世界经济论坛发布疫苗气泡枪视频，可发射疫苗进行接种
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1706946/)
+## 瑞士马路上设立分隔栏区分接种过疫苗的和未接种的人通行
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1707134/)
 
-11/24/2021 迪安娜·洛林：世界经济论坛发布了一个视频宣扬疫苗气泡枪，可以向人发射疫苗进行接种
+11/28/2021 瑞士马路上设立了分隔栏区分接种过疫苗的和未接种的人通行
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

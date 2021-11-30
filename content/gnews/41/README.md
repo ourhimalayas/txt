@@ -2,30 +2,12 @@
 ---
 
 
-## GTV新闻访谈简报|2021年11月29日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1705930/)
+## 理查德·巴里斯讲解民调结果：多数人反对疫苗强制令
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1706790/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-421.jpeg)
+11/24/2021 理查德·巴里斯讲解了他团队所做的有关中共病毒疫苗的民意调查结果。大多数的参与者反对雇主疫苗强制令。在此强制令下，雇主必须开除不接种疫苗的员工，否则雇主将受到严厉的惩罚。巴里斯的团队也跟踪了人们接种中共疫苗后产生严重不良反应的相关数据。他们发现越年轻的群体，接种疫苗后遭受的不良影响越严重。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-30.png)
-文章仅代表作者本人观点，与Gnews无关
-
-视频参看：2021.11.29早GTV新闻访谈
-
-[https://gtv.org/video/id=61a4d5a544c1fe7a6c3b5b43](https://gtv.org/video/id=61a4d5a544c1fe7a6c3b5b43)
-
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-419.jpeg)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

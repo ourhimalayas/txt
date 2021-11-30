@@ -2,37 +2,30 @@
 ---
 
 
-## 福奇自称“我是科学”遭参议员克鲁兹和保罗炮轰“惊人的专制”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1707226/)
+## 港共政府加强媒体政治审查，《辛普森一家》遭殃
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1707401/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-44.png)
-图片来源：
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3-112.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fimgsrv2.voi.id%2FARpOk5R3_7V-1qtoReHYZShPw4xyZdVx6CIU1JEOCwo%2Fauto%2F1200%2F675%2Fsm%2F1%2FbG9jYWw6Ly8vcHVibGlzaGVycy8yMzM5OC8yMDIwMTIxNzEyMjQtbWFpbi5jcm9wcGVkXzE2MDgxODI3MjIuanBn.jpg&amp;imgrefurl=https%3A%2F%2Fvoi.id%2Fzh%2Fmemori%2F23398%2Fdecember-17th-in-history-the-simpsons-debut-zh&amp;tbnid=DRpQpyHJVVUoIM&amp;vet=12ahUKEwjoqpWmjb_0AhWxiZ4KHTVsCTwQMygJegUIARC7AQ..i&amp;docid=jeE9PrkhknmahM&amp;w=1200&amp;h=675&amp;q=%E3%80%8A%E8%BE%9B%E6%99%AE%E6%A3%AE%E4%B8%80%E5%AE%B6%E3%80%8B&amp;ved=2ahUKEwjoqpWmjb_0AhWxiZ4KHTVsCTwQMygJegUIARC7AQ)
+迪士尼最近在香港推出流媒体服务，然而，并非所有内容都对香港观众开放，因为订阅者发现《辛普森一家》至少有一集因提及天安门事件而被删除。这加剧了人们对香港言论自由和批评空间缩小的担忧。
 
-零对冲网11月29日报道，福奇再次自称他代表科学，而泰徳·克鲁兹和兰徳·保罗炮轰他是“一个未被选举的狂妄自大的技术官僚。” 警告他已经为了实施独裁控制而“扭曲了科学”。
+《辛普森一家》本月在香港随迪士尼流媒体服务首次亮相，但第16季的节目直接从第11集跳到第13集，跳过了辛普森一家前往北京的第12集《咕咕改盘》。
 
-福奇在CBS新闻访谈中对着整个国家宣称，说：“任何人谎话连篇，来自参议院调查委员会以及兰徳·保罗之流的威胁，都是毫无道理的。”
+这一集至少有两次提到天安门事件。在一场戏中，辛普森一家参观毛泽东的遗体时，荷马·辛普森称毛泽东为“杀死5000万人的小天使”。在另一个场景中，一家人经过天安门广场，那里有一块牌匾，上面写着“1989 年，在这个地方什么也没发生”，显示对中共国政府试图压制公众对天安门事件的记忆的抨击。
 
-他进一步自称：“如果你要攻击我，你是在攻击科学。”
+自去年6月北京在香港实施全面的《国家安全法》以镇压长达数月的反政府抗议活动以来，对审查制度的担忧在香港迅速增长。许多自由已经消失，新闻媒体被禁言，歌曲被禁止，博物馆受到严格监管，包括《经济学人》和《金融时报》在内的外国记者也不得续签香港工作签证。
 
-这已经不是福奇第一次声称他就是科学。在针对克罗兹建议福奇需要被审判一事，福奇说：“我不得不笑了，我应该被审判？参议员，1月6日发生了什么？”
+政府今年还扩大了电影审查权，使其能够阻止被认为有损国家安全的国内或国外电影的发行。最近颁布的新电影审查法已经被用来禁止在电影节上放映政府评论电影。
 
-克罗兹和保罗很快作出了反应，保罗发推说：“这绝对是狂妄自大的人居然自称代表科学，这是惊人的而且警示人们一个公众健康官僚居然会如此自称，尤其是一个拼命想要忽略天然免疫科学的人。” 克罗兹发推说：“福奇是一个未经选举的技术官僚，他为了对千百万美国人实施独裁控制，已经扭曲了科学和事实。”
+目前尚不清楚是迪士尼选择省略这一集，还是政府监管机构要求其这样做。香港商务及经济发展局在一份给纽约时报的声明中表示，电影审查条例仅适用于电影，不适用于流媒体服务。
 
-克鲁兹罗列了一系列事实：
+消息来源:
 
-1. 5月11日福奇发誓说“国立卫生研究院NIH从未，而且现在也不会资助在武汉病毒研究所进行的“功能增强试验”。
+[美剧因提及天安门事件而在香港被删除](https://www.voachinese.com/a/simpson-disney-hong-kong-20211129/6332521.html)
 
-2. 10月20日，NIH写了他们资助了武汉实验室进行的实验，题目是“来自自然的中国蝙蝠冠状病毒刺突蛋白是否能与在小鼠动物模型上的人类ACE2受体结合”。
-
-3. 福奇的声明与10月20日NIH写的信不可能两者都是真实的，福奇的声明是自相矛盾的
-
-4. 根据美国宪法第18条1001条款，对国会撒谎是重罪，最高可判入狱5年。
-
-福奇应该或者作一个详细的基于事实澄清，或者司法部应该考虑因他对国会撒谎而对他进行审判。
-
-新闻来源： [Sens. Cruz, Paul Blast “Astounding Authoritarian” Fauci For “I Am Science” Claim](https://www.zerohedge.com/political/sens-cruz-paul-blast-astounding-authoritarian-fauci-i-am-science-claim)
-
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

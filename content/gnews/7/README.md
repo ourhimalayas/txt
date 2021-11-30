@@ -2,43 +2,30 @@
 ---
 
 
-## 最早发现Omicron变种的医生称该病毒表现 “温和”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1707302/)
+## 多国抵制北京冬奥会，中共辩解没发出邀请
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1707410/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5-61.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.rfa.org%2Fmandarin%2Fpinglun%2Ffushenqi%2Ffs-03012021091552.html%2F%40%40images%2Fimage&amp;imgrefurl=https%3A%2F%2Fwww.rfa.org%2Fmandarin%2Fpinglun%2Ffushenqi%2Ffs-03012021091552.html&amp;tbnid=LYjqnkjPsik88M&amp;vet=12ahUKEwjHuYmRi7_0AhWNqp4KHS92BZIQMygCegUIARC0AQ..i&amp;docid=xBDfZoO5gZsYVM&amp;w=620&amp;h=348&amp;q=%E6%8A%B5%E5%88%B6%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E4%BC%9A&amp;ved=2ahUKEwjHuYmRi7_0AhWNqp4KHS92BZIQMygCegUIARC0AQ)
+多国出于人权因素，正在考虑对北京2022年冬季奥运会进行外交抵制。中共官媒星期一（11月29日）报道说，中共国从未向美国政客发出过出席北京2022年冬奥会的邀请，也没有大规模邀请外宾出席的计划。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Omicron-Coronavirus-Variant-2111281622-1.jpg)图片来源：www.businessinsiderbd.com/Representational
+《环球时报》援引消息人士的话说，目前中共病毒疫情防控形势严峻，并不适合大规模邀请外宾前往中共国从而增加疫情传播风险。这位消息人士说：“运动员才是这次北京冬奥会的主角。”他还说，一些西方政客在中共国未邀请的情况下“炒作外交抵制”冬奥会，此举不仅是把奥运会政治化，还是“自作多情、自我炒作、哗众取宠”。
 
+美国等国目前出于人权因素，正在考虑对北京2022年冬季奥运会进行外交抵制。美国政府指责中共国在新疆地区对维吾尔人及其他穆斯林民族进行了“种族灭绝”。
 
-#### 编译：小红帽
+拜登总统两周前在白宫回应记者有关是否在考虑对北京冬奥会进行外交抵制的问题时说：“这是我们正在考虑的。”美国众议院议长佩洛西和担任过2002年美国盐湖城冬季奥运会组委会执行长的共和党籍联邦参议员罗姆尼（Mitt Romney）都主张美国政府对北京冬奥会实行外交抵制，认为这样既对中共践踏人权做出回应，又不会损害运动员的利益。
 
-**最早发现新冠病毒（COVID-19）的Omicron变种的医生说，该变种表现 “温和”，并没有造成住院人数的增加，这是对全球恐慌的反驳。**
+另据《悉尼先驱晨报》上周报道，由于越来越多的议员呼吁对北京冬奥进行外交抵制，澳大利亚方面也正在考虑不派遣任何政府官员出席北京冬奥会。
 
-世界各国政府正在实施新的旅行禁令和其他病毒限制措施，以应对新病毒株传播性更强且比德尔塔（delta）病毒更致命的说法。
+《华盛顿邮报》日前报道说，立陶宛外交部在访问华盛顿期间曾表示，立陶宛尚未决定抵制北京冬奥会，但计划与美国和欧盟协调任何行动。
 
-然而，那些在南非当地拥有最多专业知识的人都在说相反的话。
+消息来源:
 
-部长级疫苗咨询委员会主席巴里·舒布(Barry Schoub) 告诉天空新闻，这种恐慌是错误的。
+[中共国官媒称未向美国政客发出冬奥邀请](https://www.voachinese.com/a/china-winter-olympics-diplomatic-boycott/6331872.html)
 
-“到目前为止发生的病例都是轻度病例，轻度至中度病例，这是一个好兆头”。
-
-舒布再次反驳了新菌株可能比德尔塔更危险的说法，他还指出，omicron可能很快成为主要病株，因此与德尔塔菌株相比，不太 “合适”。
-
-南非医学协会主席安吉丽·库切（Angelique Coetzee）对舒布的观点表示赞同，她指出，感染omicron的病人“症状（与）我以前治疗过的病人有很大不同，而且非常轻微”。
-
-当被问及当局是否在进行不必要的恐慌时，库切回答说 “当然”，并试图消除危言耸听的恐惧。
-
-**参考新闻：**[Doctor Who First Discovered Omicron Variant Says It’s “Mild,” Hasn’t Caused Uptick in Hospitalizations – Summit News](https://summit.news/2021/11/29/doctor-who-first-discovered-omicron-variant-says-its-mild-hasnt-caused-uptick-in-hospitalizations/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

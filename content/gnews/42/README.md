@@ -2,32 +2,57 @@
 ---
 
 
-## 不打疫苗的是智民
-` 骄子` [轉載自GNews](https://gnews.org/zh-hans/1705576/)
+## 秘翻在线：美科技巨头们大比例抛售所持股份，意欲何为？
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1706475/)
 
-文｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-138.jpg)
-文贵先生28日大直播中，小新问到的问题，打疫苗的人都是社会精英，都很顺从地去打了疫苗，不打疫苗的人大多数都是像我们爆料革命这样独立思考批判政府的人，看起来就不顺从了。这些打过疫苗的人都会死去，可这些恰好是共产党和邪恶组织需要的那些人，不打疫苗的不会死去，但并不是他们想要的人，这部分人才是最应该被消灭的人。文贵先生回答说，有一种思维叫逆向思维，这些打了疫苗的人才不是什么社会精英，他们都是为了一口饭而已，不打疫苗的人是智民。判断一个人是不是精英，看的是善和恶，看的是不是真正的人类的信仰，不是什么外在的东西。
+编译：雨季仰光
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11Picture1.png)图片来源：网络
+据零对冲（Zerohedge）报道，上周在短短两天时间内，与亚马逊老板杰夫.贝索斯（Jeff Bezos）及埃隆.马斯克（Elon Musk）一道，微软CEO萨蒂亚.纳德拉（Satya Nadella）也加入了巨头们抛售所持股份的队列，所售股份占约占其持有总额的一半。
 
-自从CCP病毒和毒疫苗以来，尤其是毒疫苗期间，那些平时耳熟能详的大咖们明星们，个个都去打疫苗，有的还去表演打疫苗。有那么一瞬间会感觉这个世界到底是真的还是假的？这些所谓的“精英”才是最不应该去打的，怎么打疫苗比谁都积极，还打三针？按道理说，“精英”无论是掌握的知识，还是人生经历，或者对事情的判断都应该是最准确的啊，在疫苗这件事上怎么能这么无脑地就接受了，起码病毒从哪儿来的你们都不知道呢怎么这么快就都打上疫苗了？最让人心痛的是曾经的大大美女徐若瑄，最近她进医院了，看样子很像是疫苗后遗症，表现为出血不规律。还有一个曾经粉了很久的YouTuber，不仅打了疫苗还在评论区里骂人，因为有粉丝告诉他说那个疫苗就是黑暗势力用来毁灭人类的手段，他回复人家说不要阴谋论，另外就算真得有这回事，黑暗势力也应该先把你们这些不听话的灭掉，我们这些听话的应该能活下来。种种奇怪的迹象，只能越来越让人惊讶，这些“精英”到底是怎么回事啊，他们怎么同时脑子都坏掉了？徐若瑄看过医生以后，可能是看到网上有人讲她那个症状应该是打疫苗才出的问题，她非常严重地警告网友，你们再造谣我就告到法庭去了。更让人大惊失色，她怎么了？就算你那个症状不是因为打疫苗，网友只是在讨论啊，这么大的腕儿一笑而过就行了啊，没必要还贴那么长的法律声明出来啊，而且全篇没有敢提到疫苗这两个字。
+亚马逊的贝索斯也售出相当大的份额。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/截屏2021-11-29-22.15.08-1.png)图源：网路
+下图所示为亚马逊股票走势图及贝索斯的几处重要卖点（译者注）。
+![](https://cms.zerohedge.com/s3/files/inline-images/bfm360B.jpg?itok=oLPN3KCK)
+特斯拉的马斯克同时也更为积极地（公开地）抛售其所持股份。
 
-文贵先生直播中说，如果没遇到爆料革命没遇到文贵先生，战友几乎99percent的人都会去打疫苗，而且争着抢着打，哈哈哈，是的，就凭社会这种极其不正常的风气，自己会憋出神经病来的。那本著名的书叫《乌合之众》，这种社会性的集体运动，持不同意见的个人很难坚持下去，要不了多久，人都会从众的。人是群居动物，人人都团结起来可以干成很多事，有好事也有坏事。文贵先生的直播中经常说的一个观点，很多事情不要要求别人去做，自己对自己的要求不要强加给别人。比如不要奉献，而要献奉，发自内心的自己，去面对每个人，无论别人有没有发自内心，自己是自己，别人是别人。打过疫苗的很多人除了怕死，除了懦弱，除了怕挣不到钱了，根本上来说都是没有自己的人，就是文贵先生说的没有人的信仰。长久以来我们这个社会，被定义为“精英”这一个族群的人类，都是赚钱多，长得帅，个人生活非常精致的人，实际这个人什么样我们都不知道，这些外表全都是媒体吹吹打打编出来的，这些没有信仰的精英，成为了社会称颂的典范。典范的意义就是你得摆出点姿态来，这个姿态是符合大多数人口味的，比如打疫苗就是，这么看来，他们当之无愧会成为打疫苗最多的人，尤其共产党和邪恶组织还把打疫苗美化，甚至给小朋友做动画片来骗家长带孩子们去打疫苗。文贵先生的比喻太贴切了，他们自己打了疫苗还不行，还要到处劝人去打，自己本来就是在吃屎，还要劝人和他一起吃屎，人类社会的风气因为疫苗这件事变成了前所未有的匪夷所思的样子，原来社会真得可以这么变态。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/905491f5238a100e6124f376574e86c2.jpg)
-再回过头去说那个问题，只有这些听话的人去顺从地打疫苗了，那些不听话的不打疫苗的才会被逼着去打，精英典范的作用就是这样的。没有文贵先生爆料革命的出现，没有一个团体的抵制疫苗的行动，单打独斗作战很快就败下阵来了。共产党和邪恶组织的目的是给所有人打上疫苗，人为地把基因锁打开，随时编译，随时操控，再也没有上帝了，共产党和邪恶组织就是上帝就是菩萨习神更是当代佛祖，他们拿着你的基因密码，想让你干什么就干什么，想让你什么死就什么时候死。而先期打疫苗死去的一部分人本来就是这个计划的一部分，因为媒体都不会报道那是疫苗死的人，都报道那是染病毒死去的人，老百姓的恐慌都是像病毒一样可以传染的，越害怕越会去打，越打越多，形成了流水线。
+下图为特斯拉股票走势图并标示了马斯克的股票抛售点位。
 
-此篇讨论的打疫苗和不打疫苗的两种行为，不包括共产党和邪恶组织，他们也永远不会打疫苗。但他们可不是人啊，人的信仰是善，永远不会打疫苗；魔鬼的信仰是恶，要给全人类都打上疫苗。
+[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfmA433_2.jpg?itok=L_I51-qr)](https://www.zerohedge.com/s3/files/inline-images/bfmA433_2.jpg?itok=L_I51-qr)
 
-* * *
+而当下，微软的萨蒂亚.纳德拉在11月22至23号售出其所持有的普通股的份额达83.86万股。下图为纳德拉抛售微软股份的点位及股票走势图。
 
-作者：骄子
-发布：骄子
+[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfmC295_0.jpg?itok=qLIJQ-7v)](https://www.zerohedge.com/s3/files/inline-images/bfmC295_0.jpg?itok=qLIJQ-7v)
 
-欢迎订阅[gnews银河勇气之星](_wp_link_placeholder)
+下图所示为纳德拉在11月的这连续两天所售股份明细
 
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/欢迎战友回家.jpeg)
+[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfmF65E.jpg?itok=2oNTF1mR)](https://www.zerohedge.com/s3/files/inline-images/bfmF65E.jpg?itok=2oNTF1mR)
+
+[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfmC21E.jpg?itok=Nv_JOA_6)](https://www.zerohedge.com/s3/files/inline-images/bfmC21E.jpg?itok=Nv_JOA_6)
+
+这些销售行为与期权及10b5-1计划\*无关，是他有史以来的最大抛售行为。
+
+导致微软股价走低。这些股权的变化在11月24号收市后披露，势必将引发周五更大的抛压…
+[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfm9FA6_0.jpg?itok=s2y8xb3O)](https://www.zerohedge.com/s3/files/inline-images/bfm9FA6_0.jpg?itok=s2y8xb3O)
+上图为纳德拉抛售的具体股价部位及相应市场上周五个交易日走势变化
+
+是微软在这个价位已经太贵了吗？（上图为微软长周期走势）
+
+[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfmC474.jpg?itok=rK8tIxdg)](https://www.zerohedge.com/s3/files/inline-images/bfmC474.jpg?itok=rK8tIxdg)
+[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfm4DED_1.jpg?itok=EDCJ8cqK)](https://www.zerohedge.com/s3/files/inline-images/bfm4DED_1.jpg?itok=EDCJ8cqK)![](https://cms.zerohedge.com/s3/files/inline-images/bfmED4B.jpg?itok=zPFJ3gjt)
+
+
+
+
+他们知道些什么（内幕）了吗？上两图显示从大周期看，目前点位在技术分析上看是一个碗形底的右碗边关键点位，属于底部形态的阶段最高点，后期一般经过一段时间调整将继续上行（译者注）
+
+作为不缺钱的大佬们同一时间步调一致地大规模减持所持股份，是真的在做技术上的高抛低吸吗？译者认为应该不会，大佬们不会在意高抛低吸那点散碎银子，大钱的走向或去留一般是在诠释资本对市场的态度，如此步调一致地，高比例减持股份，想必是他们洞察到资本市场未来的某些不确定性或巨大危机，从而先兑现筹码，落袋为安。
+
+从文贵先生对世界经济当前局势的分析可以预知，货币超发，大水漫灌之后的股市叠加疫情和疫苗的反复蹂躏，世界即将迎来的是类似上世纪20年代末的股市崩盘及随之而来的大萧条时代，历史何其相似！站在未来说历史是荒谬可笑的，但是总结历史事件，结合当下发生的现实事件，总可以找到规律性的蛛丝马迹来引导和准备我们今天的行为。
+
+新闻来源：[Why Did Satya Nadella Suddenly Dump Half His Microsoft Holdings Last Week?](https://www.zerohedge.com/markets/why-did-satya-nadella-suddenly-dump-half-his-microsoft-holdings-last-week)
+
+校对发布：Shifter
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
