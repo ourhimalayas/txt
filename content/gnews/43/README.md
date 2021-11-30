@@ -2,30 +2,27 @@
 ---
 
 
-## GTV开始提供短视频服务
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1707758/)
+## 全球态势评估：关岛和澳大利亚的军事基地将进行改进
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1707931/)
 
-作者：纽约香草山医疗部 – 云豹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月29日，GTV 推出了短影音视频功能，满足用户更广泛的影音视频需要。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture104-1.jpg)
-短时间内，十多个短视频节目就出现在了GTV线上，每个长度在3分钟以内，可以自动重复播放。 虽然该功能刚启用，但获得了很多观众的好评。 新推出的短视频，画质细致，声音清晰，影像传播流畅，超越了同类型的其他视频软体。
+#### 撰稿：彩虹
 
-参考链接：[GTV开始提供短视频服务](https://www.gtv.org/video/id=61a0f4453ff6481adce494f3)
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-52.jpg)
+11月29日，《新闻极限》报道说，根据全球军事资源的非保密审查评估，美国在关岛和澳大利亚的军事基地将进行改进，以有助于对抗中共国。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+根据《华尔街日报》的报道，这份全球军事资源审查评估报告将于周一晚些时候发布，该报告认为没有（必要建议）对部队进行重大调整以阻止中共国，同时也试图威慑俄罗斯，以及在中东和非洲打击恐怖主义。
 
-总编：飞虹
-编辑：木白
-校对/发稿：Hetangyuese
+根据国防部官员的说法，全球态势审查评估要求改善美国在关岛和澳大利亚基地的机场和其他基础设施。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+而另一位高级国防官员告诉《华尔街日报》说，全球态势审查没有发现需要进行大规模调整，在明年初的新国防战略之后可能会有变化。这位官员说：“一开始有一种感觉，有可能进行一些重大的部队态势调整，然后，随着我们工作的逐渐深入，我们总体上意识到世界各地的部队态势是正确的”。
+
+此外，《华尔街日报》报道消息人士说，将继续分析（美国）军队在中东、欧洲和非洲的态势，而阿富汗则经历了一次单独的机构间审查评估。此外，网络和核能力也正在进行审查评估中。
+
+**新闻来源**
+
+[US Bases in Guam, Australia to Get Upgrades to Offset China](https://www.newsmax.com/us/military-bases-guam-australia/2021/11/29/id/1046597/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

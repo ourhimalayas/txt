@@ -2,33 +2,30 @@
 ---
 
 
-## 法国民议会压倒性通过决议案 挺台参与国际组织
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1707635/)
+## GTV开始提供短视频服务
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1707758/)
 
-![法國民議會壓倒性通過決議案 挺台參與國際組織](https://static.rti.org.tw/assets/thumbnails/2021/11/30/20211130000005M.jpg)*法國國民議會29日表決通過「台灣參與國際組織工作與多邊合作論壇」決議案，出席44位議員中39票贊成、不屈法國2票反對，共產黨則棄權。不屈法國與現場議員與政府代表多次言詞激烈交鋒，需主席維持秩序。 (圖：中央社)*
-据台湾中央广播电台11月30日报道，法国国民议会29日以39票赞成、2票反对、3票弃权通过“台湾参与国际组织工作与多边合作论坛”决议案，敦促政府以外交手段支持台湾参与国际组织。今年5月法国参议院以304票赞成、0票反对一致通过“台湾参与国际组织工作”决议。法国上下两院今年皆通过挺台决议，具有历史意义。
+作者：纽约香草山医疗部 – 云豹
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+11月29日，GTV 推出了短影音视频功能，满足用户更广泛的影音视频需要。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture104-1.jpg)
+短时间内，十多个短视频节目就出现在了GTV线上，每个长度在3分钟以内，可以自动重复播放。 虽然该功能刚启用，但获得了很多观众的好评。 新推出的短视频，画质细致，声音清晰，影像传播流畅，超越了同类型的其他视频软体。
 
-外交部国务员勒莫因强调，台湾为法国在亚洲的重要伙伴，也是当前地缘政治的核心，台法共享人权价值，且台湾抗疫表现堪为模范。台湾参与国际将对国际社会带来益处，法国立场清楚，将继续支持台湾参加国际组织。
+参考链接：[GTV开始提供短视频服务](https://www.gtv.org/video/id=61a0f4453ff6481adce494f3)
 
-国民议会为“直接选举”选出，是法国最高的民意机关。作为法国政府领导人的总理，需要出自国民议会选举之多数党。此外，国民议会也是唯一可对内阁行使倒阁权的宪政机关。根据法国第五共和宪法，若国会两院对法案意见不合，最终由国民议会享有“最后议决权”。中共通过蓝金黄搞定了全世界大多数国家和国际组织，但是中共买通不了民意。西方的民主和选举是基于民意，民意是不能违背的。水能载舟 亦能覆舟在中共国是一句玩笑，在西方是能够真实演绎的。比如现在政府推行的强制接种疫苗，一定会在民意的抗议中结束，最终政客们会受到审判。台湾是主权国家，不是中共的附属国。西方的民主体制不会接受西方对台湾，然后对其他国家的霸凌。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-新闻参考链接：[https://cn.rti.org.tw/news/view/id/2118137](https://cn.rti.org.tw/news/view/id/2118137)
+总编：飞虹
+编辑：木白
+校对/发稿：Hetangyuese
 
-关键字：支持台湾 法国挺台
-
-编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

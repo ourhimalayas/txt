@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@musclecat 11/30/2021 9:36 AM (UTC)`
+
+【守币人宣言】<br/>开始大声朗读，做个守币人<br/>利空将至  开始守币  至死方休<br/>我将不抛币<br/>不套现、不做空、不看价格、不问涨跌<br/>尽忠持币  生死不抛<br/>ps：哪位战友做的？佩服佩服<br/>#hcoin
+![img](https://media.gettr.com/group13/origin/2021/11/30/09/36/ff0ebd99-5f91-aa3c-2273-e11adaab5c93/out.jpg)
+
+---
+
 `@miles 11/30/2021 2:46 PM (UTC)`
 
 G Fashion 最特别的帽子即将登场，这些帽子都是跟那些大牌同一家工厂生产出来的，是世界最一流的工厂@gfashion@DDNYC✌️✌️✌️🥳🥳🥳🥰🥰🥰
@@ -147,13 +156,6 @@ G Fashion 最特别的帽子即将登场，这些帽子都是跟那些大牌同�
 
 11/26/2021 Miles Guo: Why did I tell the world that darkness was coming in 2017? Because the CCP has long wanted to use biowarfare to eliminate their “natural enemies” - the Christians and Catholics of the West; the CCP definitely dares to release the viruses to various sources of drinking water in the US<br/><br/>11/26/2021 文贵直播：文贵为什么在2017年告诉世界黑暗即将到来？这是因为共产党早就想用生物战消灭其“天然的敌人” - 西方的基督教徒和天主教徒；中共绝对敢在美国各饮用水源地放毒
 ![img](https://media.gettr.com/group45/getter/2021/11/27/14/51/6a29e78c-50f0-2faf-0a09-508a60a44c00/out.jpg)
-
----
-
-`@miles 11/27/2021 1:46 PM (UTC)`
-
-NBA球员埃内斯·坎特：我需要成为那些无法发声的无辜者的代言人；派运动员参加中共冬奥会是一种耻辱，发生在中共国的事情100%是种族灭绝。<br/>NBA player Enes Kanter: I need to be the voice of all those innocent people out there who don't have a voice. It is a shame to send athletes to Beijing Olympics, what has happened over there in China, it is 100% genocide.
-![img](https://media.gettr.com/group13/getter/2021/11/27/13/46/0adcd99e-6b10-536d-8abc-a64dc3e3015c/out.jpg)
 
 ---
 
