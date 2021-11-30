@@ -15,121 +15,121 @@
 
 ---
 
-### [八旬老人向逝去亲人的哭诉:我们的处境比日本时期还难受](/content/gnews/1/README.md)
- ` NewFOC`
-
-### [全球疫苗灾难情况更新](/content/gnews/2/README.md)
- ` 澳喜农场`
-
-### [西媒头条 — 第119期](/content/gnews/3/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [中共病毒新变种奥密克戎是全球经济崩溃在即的讯号](/content/gnews/4/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [高官厚禄的诱惑](/content/gnews/5/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [小肯尼迪告诉新美国人：福奇的“黑暗历史”必须曝光（1/3）](/content/gnews/6/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [国际要闻汇编 11月30日](/content/gnews/7/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [墙内要闻汇编 11月30日](/content/gnews/8/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [嗜血经济的背后，谁在掩盖艾滋病的真实传播路径？](/content/gnews/9/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [苍凉与渴望](/content/gnews/10/README.md)
- ` 澳喜农场`
-
-### [日本要闻汇编 11月30日](/content/gnews/11/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [英国为所有成年人提供加强剂](/content/gnews/12/README.md)
- ` 澳喜特战旅Gnews`
-
-### [肺移植？先接种！COVID康复者注射第二剂后死亡](/content/gnews/13/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [疫苗问题的突破点一定是社会动乱](/content/gnews/14/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [逆向思维 独立思维](/content/gnews/15/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共12月起施行的流氓新规](/content/gnews/16/README.md)
- ` 儒为`
-
-### [中共释放新一轮病毒的真实意图](/content/gnews/17/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [每个国家和城市的反政府动乱是今天中共最希望看到的](/content/gnews/18/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [心理生物战：OMICRON完全是一种驱使人们自杀的心理游戏](/content/gnews/19/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [币安赵长鹏（一）：王岐山派出的赵长鹏，下场将王健不如](/content/gnews/20/README.md)
- ` 墨尔本雅典娜农场`
-
-### [所有独裁者一定干的两件事](/content/gnews/21/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [所有独裁统治的必然结果](/content/gnews/22/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [国际上的排华事件已经开始发生](/content/gnews/23/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [上天真要灭共，才来了习近平](/content/gnews/24/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [2020年人口普查结果显示在日外国人数创历史新高](/content/gnews/25/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [联邦法官在 10 个州阻止拜登疫苗授权](/content/gnews/26/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [剑指中共，日本首相表态本国自卫队要有攻击敌方基地的能力](/content/gnews/27/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [超过10000澳大利亚人对冠状病毒疫苗伤害索赔](/content/gnews/28/README.md)
- ` 澳喜农场`
-
-### [博彩大亨被拘澳门赌彩股暴跌](/content/gnews/29/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [媒体称越来越多足球运动员倒地是“巧合”跟疫苗无关](/content/gnews/30/README.md)
- ` 墨尔本雅典娜农场`
-
-### [远东董事长被迫表态：希望两岸“维持现状”，粉红：维持现状也是“独”](/content/gnews/31/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [Omicron病毒威胁美国经济，鲍威尔耶伦各说各的](/content/gnews/32/README.md)
- ` 墨尔本雅典娜农场`
-
-### [马来西亚禁播《长津湖》，共产主义危害国家安全](/content/gnews/33/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [全球态势评估：关岛和澳大利亚的军事基地将进行改进](/content/gnews/34/README.md)
+### [秘翻在线：被中共株连九族的王立科们](/content/gnews/1/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [法国议会通过决议案支持台湾参加 WHO大会](/content/gnews/35/README.md)
+### [CCP金融灾难的五宗罪（上）](/content/gnews/2/README.md)
+ ` 澳喜农场`
+
+### [从南部非洲抵达澳大利亚的两例Omicron患者均已完全接种疫苗](/content/gnews/3/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [加拿大科学家出书追查Omicron病毒起源](/content/gnews/4/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [众议院将很快推进《美国创新与竞争法案》](/content/gnews/5/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [超一百多个时尚品牌与砍伐森林有关](/content/gnews/6/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [再见米兰，再见旧世界](/content/gnews/7/README.md)
+ ` 波士顿五月花农场`
+
+### [八旬老人向逝去亲人的哭诉:我们的处境比日本时期还难受](/content/gnews/8/README.md)
+ ` NewFOC`
+
+### [全球疫苗灾难情况更新](/content/gnews/9/README.md)
+ ` 澳喜农场`
+
+### [西媒头条 — 第119期](/content/gnews/10/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [中共病毒新变种奥密克戎是全球经济崩溃在即的讯号](/content/gnews/11/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [高官厚禄的诱惑](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [继续掩盖还是别有用心？法国吹哨人披露广东台山核电站重磅问题](/content/gnews/36/README.md)
+### [小肯尼迪告诉新美国人：福奇的“黑暗历史”必须曝光（1/3）](/content/gnews/13/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [国际要闻汇编 11月30日](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共再玩“虚”，继搞乱世界再忽悠世界](/content/gnews/37/README.md)
+### [墙内要闻汇编 11月30日](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国外汇局以违规为由对腾讯子公司罚款](/content/gnews/38/README.md)
+### [嗜血经济的背后，谁在掩盖艾滋病的真实传播路径？](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美伊重返核谈，以色列称西方不要屈服“核讹诈”](/content/gnews/39/README.md)
+### [苍凉与渴望](/content/gnews/17/README.md)
+ ` 澳喜农场`
+
+### [日本要闻汇编 11月30日](/content/gnews/18/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [英国为所有成年人提供加强剂](/content/gnews/19/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [肺移植？先接种！COVID康复者注射第二剂后死亡](/content/gnews/20/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [疫苗问题的突破点一定是社会动乱](/content/gnews/21/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [逆向思维 独立思维](/content/gnews/22/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共12月起施行的流氓新规](/content/gnews/23/README.md)
+ ` 儒为`
+
+### [中共释放新一轮病毒的真实意图](/content/gnews/24/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [每个国家和城市的反政府动乱是今天中共最希望看到的](/content/gnews/25/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [心理生物战：OMICRON完全是一种驱使人们自杀的心理游戏](/content/gnews/26/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [币安赵长鹏（一）：王岐山派出的赵长鹏，下场将王健不如](/content/gnews/27/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [所有独裁者一定干的两件事](/content/gnews/28/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [2020年人口普查结果显示在日外国人数创历史新高](/content/gnews/29/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [联邦法官在 10 个州阻止拜登疫苗授权](/content/gnews/30/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [剑指中共，日本首相表态本国自卫队要有攻击敌方基地的能力](/content/gnews/31/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [超过10000澳大利亚人对冠状病毒疫苗伤害索赔](/content/gnews/32/README.md)
+ ` 澳喜农场`
+
+### [媒体称越来越多足球运动员倒地是“巧合”跟疫苗无关](/content/gnews/33/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [远东董事长被迫表态：希望两岸“维持现状”，粉红：维持现状也是“独”](/content/gnews/34/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [马来西亚禁播《长津湖》，共产主义危害国家安全](/content/gnews/35/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [全球态势评估：关岛和澳大利亚的军事基地将进行改进](/content/gnews/36/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [法国议会通过决议案支持台湾参加 WHO大会](/content/gnews/37/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [继续掩盖还是别有用心？法国吹哨人披露广东台山核电站重磅问题](/content/gnews/38/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共国外汇局以违规为由对腾讯子公司罚款](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [中共在英华人团体伦敦集会 与抗议港人发生冲突](/content/gnews/40/README.md)
