@@ -2,62 +2,56 @@
 ---
 
 
-## 美国汽车制造商尚未强制要求工会工人接种疫苗
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1706462/)
+## 秘翻在线：美科技巨头们大比例抛售所持股份，意欲何为？
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1706475/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/112907.jpg)2021 年 3 月 16 日，在美国密歇根州底特律的通用汽车总部外墙上可以看到新的通用汽车标志。路透社/Rebecca Cook摄
-来自《路透社》2021年11月24日报道
+编译：雨季仰光
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11Picture1.png)图片来源：网络
+据零对冲（Zerohedge）报道，上周在短短两天时间内，与亚马逊老板杰夫.贝索斯（Jeff Bezos）及埃隆.马斯克（Elon Musk）一道，微软CEO萨蒂亚.纳德拉（Satya Nadella）也加入了巨头们抛售所持股份的队列，所售股份占约占其持有总额的一半。
 
-**摘要翻译：**
+亚马逊的贝索斯也售出相当大的份额。
 
-华盛顿，11月23日（路透社）——底特律的三大汽车制造商尚未强制要求数千名工会工人接种疫苗，尽管他们在周二与美国汽车工人联合会的联合声明中表示，他们将扩大对工人在工作场所戴口罩的要求。
+下图所示为亚马逊股票走势图及贝索斯的几处重要卖点（译者注）。
+![](https://cms.zerohedge.com/s3/files/inline-images/bfm360B.jpg?itok=oLPN3KCK)
+特斯拉的马斯克同时也更为积极地（公开地）抛售其所持股份。
 
-通用汽车公司、福特汽车、克莱斯勒母公司和美国汽车工人联合会表示，他们已同意要求加入工会的汽车工人在自愿的基础上报告疫苗接种情况，但不是作为一项要求，他们还同意继续在工作场所带口罩。
+下图为特斯拉股票走势图并标示了马斯克的股票抛售点位。
 
-白宫希望雇主强制接种疫苗。
+[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfmA433_2.jpg?itok=L_I51-qr)](https://www.zerohedge.com/s3/files/inline-images/bfmA433_2.jpg?itok=L_I51-qr)
 
-劳工部于11月5日发布的规定要求所有拥有100名或更多员工的公司在1月4日之前强制要求对几乎所有员工进行疫苗接种或定期检测，但联邦上诉法院已暂停执行该规定。周二，拜登政府要求法院解除中止。
+而当下，微软的萨蒂亚.纳德拉在11月22至23号售出其所持有的普通股的份额达83.86万股。下图为纳德拉抛售微软股份的点位及股票走势图。
 
-白宫新冠病毒响应协调员杰夫·齐恩斯(Jeff Zients)周一表示：“疫苗接种要求有效，它们可以在不受干扰的情况下实施。而且他们会提高疫苗接种率。”
+[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfmC295_0.jpg?itok=qLIJQ-7v)](https://www.zerohedge.com/s3/files/inline-images/bfmC295_0.jpg?itok=qLIJQ-7v)
 
-美国汽车工人工会拒绝接受其同意疫苗规定的建议。
+下图所示为纳德拉在11月的这连续两天所售股份明细
 
-美国汽车工人联合会总裁雷·库里（Ray Curry）在9月份告诉成员，“在上述各种规则最终确定之前，美国汽车工人工会的谈判立场仍然是强烈鼓励接种疫苗，但这是个人选择。”
+[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfmF65E.jpg?itok=2oNTF1mR)](https://www.zerohedge.com/s3/files/inline-images/bfmF65E.jpg?itok=2oNTF1mR)
 
-拜登努力赢得汽车工人的支持，部分原因是美国汽车工人工会成员对于赢得密歇根州和其他中西部州的选举至关重要。
+[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfmC21E.jpg?itok=Nv_JOA_6)](https://www.zerohedge.com/s3/files/inline-images/bfmC21E.jpg?itok=Nv_JOA_6)
 
-但美国汽车工人工会不愿支持疫苗接种要求，这反映出许多工会对拜登政府的政策存在更广泛的抵制。
+这些销售行为与期权及10b5-1计划\*无关，是他有史以来的最大抛售行为。
 
-上周，斯泰兰蒂斯表示将要求其所有14,000名美国受薪非工会员工在1月5日之前完全接种新冠病毒疫苗，为明年分阶段重新开放其美国办事处做准备。
+导致微软股价走低。这些股权的变化在11月24号收市后披露，势必将引发周五更大的抛压…
+[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfm9FA6_0.jpg?itok=s2y8xb3O)](https://www.zerohedge.com/s3/files/inline-images/bfm9FA6_0.jpg?itok=s2y8xb3O)
+上图为纳德拉抛售的具体股价部位及相应市场上周五个交易日走势变化
 
-本月早些时候，福特表示将要求其32,000名美国受薪劳动力中的大部分人接种疫苗。
+是微软在这个价位已经太贵了吗？（上图为微软长周期走势）
 
-这家美国第二大汽车制造商本月早些时候表示，超过84%的美国受薪员工已经接种了疫苗。
-
-**简评：**
-
-美国，它控制住了绝大多数的媒体。它们让你听不到任何关于疫苗副作用的信息，再加以利益诱惑，让超过半数的美国百姓去打了疫苗。医疗系统、各种媒体，各国政府，这几个大家都看到的权力之外，还有一股什么力量能推动强制接种疫苗这件事？
-
-不让你工作，饿死你，生存权都失去了，还谈什么追求幸福？天赋人权，没人能下命令左右人们的自由，全世界的人们都在慢慢的觉醒！
-
-新闻链接：[U.S. automakers not yet mandating vaccines for union workers](https://www.reuters.com/business/autos-transportation/us-automakers-will-extend-mask-requirements-auto-plants-2021-11-23/)
-
-***编辑:****希望*
-
-***校对**: clau*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfmC474.jpg?itok=rK8tIxdg)](https://www.zerohedge.com/s3/files/inline-images/bfmC474.jpg?itok=rK8tIxdg)
+[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfm4DED_1.jpg?itok=EDCJ8cqK)](https://www.zerohedge.com/s3/files/inline-images/bfm4DED_1.jpg?itok=EDCJ8cqK)![](https://cms.zerohedge.com/s3/files/inline-images/bfmED4B.jpg?itok=zPFJ3gjt)
 
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
+他们知道些什么（内幕）了吗？上两图显示从大周期看，目前点位在技术分析上看是一个碗形底的右碗边关键点位，属于底部形态的阶段最高点，后期一般经过一段时间调整将继续上行（译者注）
+
+作为不缺钱的大佬们同一时间步调一致地大规模减持所持股份，是真的在做技术上的高抛低吸吗？译者认为应该不会，大佬们不会在意高抛低吸那点散碎银子，大钱的走向或去留一般是在诠释资本对市场的态度，如此步调一致地，高比例减持股份，想必是他们洞察到资本市场未来的某些不确定性或巨大危机，从而先兑现筹码，落袋为安。
+
+从文贵先生对世界经济当前局势的分析可以预知，货币超发，大水漫灌之后的股市叠加疫情和疫苗的反复蹂躏，世界即将迎来的是类似上世纪20年代末的股市崩盘及随之而来的大萧条时代，历史何其相似！站在未来说历史是荒谬可笑的，但是总结历史事件，结合当下发生的现实事件，总可以找到规律性的蛛丝马迹来引导和准备我们今天的行为。
+
+新闻来源：[Why Did Satya Nadella Suddenly Dump Half His Microsoft Holdings Last Week?](https://www.zerohedge.com/markets/why-did-satya-nadella-suddenly-dump-half-his-microsoft-holdings-last-week)
+
+校对发布：Shifter
 
  
 

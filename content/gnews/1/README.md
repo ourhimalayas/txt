@@ -2,48 +2,76 @@
 ---
 
 
-## 美联邦法院叫停10个州对医护人员的疫苗强制令
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1706590/)
+## 中共的杀富“济贫”是依法抢劫
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1706611/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+[https://gtv.org/video/id=61a49b3b3ff6481adce5e566](https://gtv.org/video/id=61a49b3b3ff6481adce5e566)
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/11/S-3.jpg)wyo4news.com
-《华盛顿观察》（The Washington Examiner）发表文章，题目是，“联邦法院停止10个州对医护人员的疫苗强制令”。
+**郭文贵
+Miles Guo**
 
-全文如下：
+你让我发自内心地说，马云绝不应该是如此
+let me say from the bottom of my heart, Jack Ma should never be treated like this
 
-一个联邦法院星期一（11月29日）阻止了拜登政府在10个州实施的对医护人员强制接种中共病毒疫苗的政策。
+柳传志也不罪该如此，他女儿滴滴也不应该罪该如此
+Liu Chuanzhi should not deserve such a sentence, nor should his daughter’s Didi deserve such a sentence
 
-美国密苏里州东区地方法院对这项要求医护人员在1月4日前接种疫苗的行政令发布了初步禁令。 这项临时裁决源于密苏里州诉拜登一案。
+那么这本质和这交易所是什么关系，它是一场大掠夺的开始
+So what does this essence have to do with this exchange? It is the beginning of a great plunder
 
-根据法庭记录，初步禁令适用于“阿拉斯加州、阿肯色州、爱荷华州、堪萨斯州、密苏里州、内布拉斯加州、新罕布什尔州、北达科他州、南达科他州和怀俄明州的医疗保险和医疗补助认证提供者和供应商”的医疗机构。
+它是共产党的杀富济贫，什么叫作共享财富，就是杀富济贫嘛
+It is the Communist Party’s killing the rich and helping the poor, what is meant by sharing wealth? It is just killing the rich and helping the poor
 
-这10个州已经起诉拜登政府，声称疫苗强制令是违宪的，如果禁令被上诉，它将进入第八巡回法庭，该巡回法庭的14名法官中，有一名由民主党总统任命的在职或高级法官。
+它关键是，是不是杀富济了贫，贫的会更贫，富的会没有
+The key point is whether you can help the poor by killing the rich, the poor will become poorer, and the rich will not exist
 
-拜登政府的强制令是与“医疗保险和医疗救助中心”（the Centers for Medicare & Medicaid Services）联合发布，强制令要求雇主考虑疫苗的宗教和医疗豁免，但仍要求那些在强制令生效时每周对豁免的人进行中共病毒测试。
+只有共产党会富有，就像杀掉200多万个地主
+Only the Communist Party will be richer, like killing more than 2 million landloads
 
-由时任总统唐纳德·川普提名的联邦法官马修·舍尔普（Matthew Schelp）表示，他的裁决将有利于公众，“因为这将确保联邦机构的权力不会超出国会的明确授权。”
+中国人最后文化大革命，大跃进，死了将近8千万到1亿人
+In the end of China Cultural Revolution, the Great Leap Forward, killed nearly 80 million to 100 million people
 
-舍尔普补充说，这项行政令将对“医疗机构提供适当护理从而拯救生命的能力”构成严重的障碍。
+而且土地尽归共产党，到今天都是共产党的
+And the land is all attributed by the Communist Party, and it’s still owned by the Communist Party today
 
-拜登已经在各级政府实施了几项疫苗强制令，最近在实施“职业安全与健康管理局”（Occupational Safety and Health Administration）紧急标准方面遇到了挫折，该标准要求雇用100名或100名以上雇员的公司的工作人员要么接种疫苗，要么每周进行中共病毒检测。
+然后你现在你还没有土地产权，让你纳房地产税
+And the people still don’t have land property right now, and they have to pay real estate tax
 
-要求执行医疗保健任务的机构说，该规则影响到全国各地约76,000家医疗机构的1700万名工人。
+这一场革命所谓的杀富豪分土地，从所有的开始它叫依法抢劫
+The so-called killing of the rich and dividing the land in this revolution is called robbery according to law from the beginning
 
-11月23日，美国政府称，疫苗强制令已被证明是有效的，近350万联邦政府工作人员达到了“96.5%的遵守率”。
+这话是谁先说的，我告诉你，这最早是王沪宁给习说的
+Who said this first? let me tell you, it was first said by Wang Huning to Xi
 
-至少59%的美国居民接受了中共病毒疫苗的完全接种，近70%的人至少接种了一剂疫苗。
+我们不能再杀地主分田地了
+We can no longer kill landlords to divide lands
 
-《华盛顿观察》联系了医疗保险和医疗补助服务中心，但尚未收到回复。
+但我们会通过市场行为,合法地将财富来个均贫富，这是王沪宁的原话
+But CCP will legally equalize wealth of the rich and the poor through market behavior, this is the original words of Wang Huning
 
-（全文完）
+啥时候说的2006年，那时候王沪宁牛着呢
+When did he say it? that was 2006, at that time Wang Huning was pretty powerful
 
-又向第二个突破口迈进了一步，第一个突破口是第五巡回法院中止了针对百人及以上企业的疫苗强制令，这次又叫停了拜登政府对联邦医疗机构雇员的强制令，如果拜登政府不服判决（估计不会就此罢休），将由第八巡回法院判决。无论结果怎样，现阶段的消息是令人振奋的，这是10个州的行动，在对阴谋集团说不，也是新中国联邦在揭露中共病毒、疫苗真相过程又一个阶段性成果。阴谋还没有停止，战友仍需努力。
+**原视频链接**:[https://gettr.com/post/phybfv5cb6](https://gettr.com/post/phybfv5cb6)
 
-原文链接：
+Date:11/27/2021
+原视频标题: 中共的杀富“济贫”是依法抢劫
+The CCP’s “killing the rich and helping the poor” is a robbery in accordance with the law
+原视频日期：2021/11/24
+原视频链接https://gettr.com/post/phybfv5cb6
+任务编号：KC292(3026)
+视频时间段 : 0:00-1:30
 
-[https://www.washingtonexaminer.com/news/federal-court-halts-vaccine-mandate-for-healthcare-workers](https://www.washingtonexaminer.com/news/federal-court-halts-vaccine-mandate-for-healthcare-workers)
+中听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

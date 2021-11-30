@@ -15,98 +15,98 @@
 
 ---
 
-### [美联邦法院叫停10个州对医护人员的疫苗强制令](/content/gnews/1/README.md)
+### [中共的杀富“济贫”是依法抢劫](/content/gnews/1/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [澳洲央行警告，巨大的经济下滑已迫在眉睫](/content/gnews/2/README.md)
+ ` 走进澳洲`
+
+### [美联邦法院叫停10个州对医护人员的疫苗强制令](/content/gnews/3/README.md)
  ` HimalayaRussia`
 
-### [【信仰之声】约瑟的启示（三）：唯真的心，与神同行，化解危机](/content/gnews/2/README.md)
+### [【信仰之声】约瑟的启示（三）：唯真的心，与神同行，化解危机](/content/gnews/4/README.md)
  ` 纽约香草山MOS03`
 
-### [新变种病毒Omicron 到达北美](/content/gnews/3/README.md)
+### [新变种病毒Omicron 到达北美](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【#G时新闻】密苏里州法官裁定去年以来实施的COVID限制为非法](/content/gnews/4/README.md)
+### [【#G时新闻】密苏里州法官裁定去年以来实施的COVID限制为非法](/content/gnews/6/README.md)
  ` G-时新闻`
 
-### [针对新冠变种奥米克戎（Omicron)，采用地毯式追踪，可能需要第四剂新冠疫苗](/content/gnews/5/README.md)
+### [针对新冠变种奥米克戎（Omicron)，采用地毯式追踪，可能需要第四剂新冠疫苗](/content/gnews/7/README.md)
  ` xiaobaige`
 
-### [秘翻在线：美科技巨头们大比例抛售所持股份，意欲何为？](/content/gnews/6/README.md)
+### [秘翻在线：美科技巨头们大比例抛售所持股份，意欲何为？](/content/gnews/8/README.md)
  ` 秘密翻译组-原创组`
 
-### [联邦法官暂停了拜登对10个州的医务工作者的强制疫苗规定](/content/gnews/7/README.md)
+### [联邦法官暂停了拜登对10个州的医务工作者的强制疫苗规定](/content/gnews/9/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国汽车制造商尚未强制要求工会工人接种疫苗](/content/gnews/8/README.md)
+### [美国汽车制造商尚未强制要求工会工人接种疫苗](/content/gnews/10/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [杰克·多尔西下台后，有些人发誓要为盖特服务](/content/gnews/9/README.md)
+### [杰克·多尔西下台后，有些人发誓要为盖特服务](/content/gnews/11/README.md)
  ` MG FARM`
 
-### [不要忘记喜币是打击中共的武器](/content/gnews/10/README.md)
+### [不要忘记喜币是打击中共的武器](/content/gnews/12/README.md)
  ` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)`
 
-### [喜币永远不会贬值，只会升值](/content/gnews/11/README.md)
+### [喜币永远不会贬值，只会升值](/content/gnews/13/README.md)
  ` MG 澳喜农场多语组`
 
-### [2021/11/28 文贵先生直播精要](/content/gnews/12/README.md)
+### [2021/11/28 文贵先生直播精要](/content/gnews/14/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [阿富汗大规模饥荒迫在眉睫，塔利班寻求帮助并抨击前政权](/content/gnews/13/README.md)
+### [阿富汗大规模饥荒迫在眉睫，塔利班寻求帮助并抨击前政权](/content/gnews/15/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [灾难让人民觉醒系列：银行里的钱取不出来的国家是有信用的吗？（5）](/content/gnews/14/README.md)
+### [灾难让人民觉醒系列：银行里的钱取不出来的国家是有信用的吗？（5）](/content/gnews/16/README.md)
  ` 澳喜农场`
 
-### [“爆二代”首次接触喜交所和见证喜币上市的感想](/content/gnews/15/README.md)
+### [“爆二代”首次接触喜交所和见证喜币上市的感想](/content/gnews/17/README.md)
  ` 澳喜农场`
 
-### [民声！民意！民权！我们有知道真相的要求和权力！](/content/gnews/16/README.md)
+### [民声！民意！民权！我们有知道真相的要求和权力！](/content/gnews/18/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [2021/11/29 大卫作战室直播精要](/content/gnews/17/README.md)
+### [2021/11/29 大卫作战室直播精要](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [灾难让人民觉醒系列：当没饭吃变成现实将如何面对（4）](/content/gnews/18/README.md)
+### [灾难让人民觉醒系列：当没饭吃变成现实将如何面对（4）](/content/gnews/20/README.md)
  ` 澳喜农场`
 
-### [青蒿素是皇家特工007，精准打击病原体](/content/gnews/19/README.md)
+### [青蒿素是皇家特工007，精准打击病原体](/content/gnews/21/README.md)
  ` zuzu`
 
-### [科顿抨击世卫组织相比公共卫生“更关心”维护中共国政府的“感受”](/content/gnews/20/README.md)
+### [科顿抨击世卫组织相比公共卫生“更关心”维护中共国政府的“感受”](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [揭露残暴独裁者萨达姆·侯赛因等鲜为人知的罪行](/content/gnews/21/README.md)
+### [揭露残暴独裁者萨达姆·侯赛因等鲜为人知的罪行](/content/gnews/23/README.md)
  ` YALUN 亚伦`
 
-### [加拿大首两例欧姆龙变种病例在渥太华确诊](/content/gnews/22/README.md)
+### [加拿大首两例欧姆龙变种病例在渥太华确诊](/content/gnews/24/README.md)
  ` MG FARM`
 
-### [Eglise医生讲解伊维菌素等用药时机](/content/gnews/23/README.md)
+### [Eglise医生讲解伊维菌素等用药时机](/content/gnews/25/README.md)
  ` HimalayaRussia`
 
-### [香港抗议影片《时代革命》在金马奖中获最佳纪录片奖](/content/gnews/24/README.md)
+### [香港抗议影片《时代革命》在金马奖中获最佳纪录片奖](/content/gnews/26/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [油价下跌10美元/桶，创2020年4月以来最大单日跌幅](/content/gnews/25/README.md)
+### [油价下跌10美元/桶，创2020年4月以来最大单日跌幅](/content/gnews/27/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [班农“不睬民主党人国会调查委员会”案新进展](/content/gnews/26/README.md)
+### [班农“不睬民主党人国会调查委员会”案新进展](/content/gnews/28/README.md)
  ` HimalayaRussia`
 
-### [在比利时发现欧洲首例新的中共病毒变异体](/content/gnews/27/README.md)
+### [在比利时发现欧洲首例新的中共病毒变异体](/content/gnews/29/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [川普呼吁就2020年大选进行公开辩论](/content/gnews/28/README.md)
+### [川普呼吁就2020年大选进行公开辩论](/content/gnews/30/README.md)
  ` HimalayaRussia`
 
-### [“WHO为何在命名新的变体时跳过字母“Xi”](/content/gnews/29/README.md)
+### [“WHO为何在命名新的变体时跳过字母“Xi”](/content/gnews/31/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [前职业球员呼吁“调查”足球运动员在比赛时突然倒地事件](/content/gnews/30/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [临床研究证明 接种疫苗会导致患心脏病风险显著增加](/content/gnews/31/README.md)
- ` 温哥华扬帆农场 Michael.Tonny`
 
 ### [11/28/2021 文贵直播：大家不要忘記病毒是源自中共軍方的生化武器（粤语配音版）](/content/gnews/32/README.md)
  ` 秘密翻译组-北美组`
