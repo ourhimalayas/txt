@@ -2,38 +2,26 @@
 ---
 
 
-## 郭先生谈逆向思维、独立思维 认为打疫苗的人是弱民
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1707757/)
+## 中共国外汇局以违规为由对腾讯子公司罚款
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1707861/)
 
-作者：纽约香草山农场福音部 – 恩永存
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月28日，郭先生在大直播中回答有关顺民、精英为什么都打疫苗的问题时，强调我们应该具有逆向思维和独立思维的能力，才能透过现象，看清一些事物的本质。郭先生认为这些所谓的顺民、精英都是弱民。
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-231.png)[图片来源](https://famousdnm.com/%E7%BB%8F%E6%B5%8E/60270215/%E5%9B%A0%E5%A4%96%E6%B1%87%E4%B8%9A%E5%8A%A1%E8%BF%9D%E8%A7%84%E8%85%BE%E8%AE%AF%E8%B4%A2%E4%BB%98%E9%80%9A%E5%90%83278%E4%B8%87%E5%85%83%E4%BA%BA%E6%B0%91%E5%B8%81%E7%BD%9A%E5%8D%95)
+路透社上海29日消息：中共国国家外汇管理局（SAFE）宣布，已对腾讯控股旗下的在线支付服务“财付通”给予罚款，原因是违规。
 
-其一，中共没有一个良好的教育体系。中共强调党文化，弱化传统文化，强调斗争思想，训练出了很多自私、怕死、依赖性强的人。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture101.jpg)
-其二，中共没有一个良好的医疗体系，百姓无法寻求正确的医疗途径。
+据外管局网站26日发布的文件显示，“财付通”被外管局深圳市分局勒令支付278万元人民币（43.6万美元）。 据说存在欺诈行为，例如进行注册以外的外汇业务。
 
-其三，一些所谓的顺民、精英不辨是非，不查病毒出处，不问疫苗疗效，不追究疫苗危害的责任，不听疫苗危害的警告，而是盲目相信政府，相信所谓的科学和权威。
+外管局还警告“财付通”，称已下令纠正非法活动并没收其欺诈性利润。
 
-其四，这些人不抗强权。一些医生、律师都因为怕死打了疫苗，即使了解了疫苗真相也因为畏惧强权不敢说出。
+“财付通”29日向路透社解释说，已立即针对2019-20年度例行检查中发现的问题制定了整改计划，并已完成迄今为止的所有工作。 还将在国家外汇管理局深圳市分局的指导下，进一步加强合规管理。
 
-在这样的环境下，那些打了疫苗的人应该被称为弱民，他们平时赖以生存的思维方式这次却让他们受到了惩罚。只有那些愿意独立思考、不接受打疫苗的人才是智民，是真正的精英。而那些在病毒疫苗上助纣为虐的恶人必将受到正义的审判。
+信息来源：
 
-参考链接：[郭先生谈逆向思维、独立思维 认为打疫苗的人是弱民](https://gettr.com/post/pi5gfs500d)
+[腾讯旗下财付通因外汇业务违规遭外管局深圳分局罚款278万元](https://www.reuters.com/article/idCNL4S2SK152?edition-redirect=ca)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-
-总编：飞虹
-编辑：飞虹
-校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

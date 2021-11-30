@@ -2,28 +2,51 @@
 ---
 
 
-## 日本岸田首相对“奥密克戎”采取的措施展示出其迅速反应的能力
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1707875/)
+## 媒体称越来越多足球运动员倒地是“巧合”跟疫苗无关
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1708034/)
 
-编译：东京樱花团/Orange文橘
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-143.jpg)[图片来源](https://www.japantimes.co.jp/news/2021/11/30/national/politics-diplomacy/kishida-quick-reactions/)
-岸田首相正在利用“奥密克戎”在国外的传播作为一个机会，展示出他做出迅速反应的能力。
+**【雅典娜快讯】，紧贴时事脉搏**
 
-周一，岸田宣布，日本将原则上禁止来自世界任何地方的外国公民新的入境。这一的快速反应反映出岸田从前任首相菅义伟汲取了教训，后者曾多次因对病毒大流行反应迟缓而受到批评。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/TELEMMGLPICT000278659282_trans_NvBQzQNjv4Bqg0QhGUrJBLC1cMiJLC7a79HhMh81Y8GqX3ipA8YMo0k.jpeg)
 
-目前仍不清楚日本是否能够防止新变种的传播，在日本国内岸田并没有收紧人们活动的限制，比如参加各种活动的人数及外出就餐等限制。岸田表示，政府将主要对从国外返回日本的日本人采取严格的检疫措施。“奥密克戎”的特点以及现有中共病毒疫苗是否对其有效仍是未知数。对此，一位与政府有关的官员警告说，政府有可能重新实施限制人们行动的措施。
 
-一个相关政府机构的高级官员说，在媒体报道欧洲和澳大利亚确认了“奥密克戎”的感染病例后，岸田在上周日发出了加强边境管制的指示。该官员又补充，具有高度的谨慎意识是岸田的风格。自民党的一名议员赞扬岸田，说他在制定对策方面比菅义伟和安倍晋三行动更快。
+ 
+图片来源：www.telegraph.co.uk
 
-“奥密克戎”可能是经济的不稳定因素，希望岸田首相的迅速对应能让日本经济躲过“奥密克戎”的直面冲击。
 
-信息源：
+#### 编译：小红帽
 
-[Kishida showcases swiftness amid omicron variant scare](https://www.japantimes.co.jp/news/2021/11/30/national/politics-diplomacy/kishida-quick-reactions/)
+媒体对最近一连串备受瞩目的足球运动员，在比赛中突然因心脏问题倒下的事件，作出了回应，得出的结论认为这只是一个 “巧合”。
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+在最近几周和几个月里，无数的足球明星以及其他运动员都神秘地遭受了严重心脏问题。
+
+这促使德国的《柏林日报》发表一篇报道，试图回答为什么“最近出现了异常多的职业和业余足球运动员倒地的事件”。
+
+上周，当谢菲尔德联队的约翰·弗莱克（John Fleck）倒地和谢里夫·蒂拉斯波尔的边锋阿达马·特拉奥雷（Adama Traore）在欧洲冠军联赛，与皇家马德里的比赛接近尾声时倒下。
+
+根据亚法·希尔·拉兹（Yaffa Shir-Raz）博士的一份报告，“2021年国际足联球员心脏性猝死的情况增加了5倍”。
+
+然而，根据《每日邮报》的一项调查称，“这很可怕，但这是一个‘巧合’，没有必要 ‘恐慌’。”
+
+该报告称，“根据一位著名的心脏病专家的说法，最近几周职业足球运动员中出现的一系列备受瞩目的心脏问题和晕倒情况很可能是巧合，而不是表明球员正在努力应对高强度的比赛。”
+
+尽管承认心肌炎是 “罕见”病例中的疫苗副作用，但整个报告甚至没有提到疫苗的负作用可能与正在发生的事情有关。
+
+然而，正如克里斯·梅纳汉（Chris Menahan）所指出的，评论区里挤满了提出这个想法的人。这可以解释为什么这么多网站要完全取消评论区了。
+
+当一位前职业球员敢于在直播现场中提出球员倒地与疫苗有关时，他马上被实时审查。
+
+**参考新闻：** [Media Says Rise in Football Players Suddenly Collapsing is a “Coincidence” – Summit News](https://summit.news/2021/11/29/media-says-rise-in-football-players-suddenly-collapsing-is-a-coincidence/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

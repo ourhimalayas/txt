@@ -2,30 +2,24 @@
 ---
 
 
-## GTV开始提供短视频服务
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1707758/)
+## 中共再玩“虚”，继搞乱世界再忽悠世界
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1707888/)
 
-作者：纽约香草山医疗部 – 云豹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月29日，GTV 推出了短影音视频功能，满足用户更广泛的影音视频需要。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture104-1.jpg)
-短时间内，十多个短视频节目就出现在了GTV线上，每个长度在3分钟以内，可以自动重复播放。 虽然该功能刚启用，但获得了很多观众的好评。 新推出的短视频，画质细致，声音清晰，影像传播流畅，超越了同类型的其他视频软体。
+撰稿/配图：东京樱花团/ Ob
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3-114.jpg)图片来源与本文链接
+共同社11月29日电，在迎来明年2至3月的北京冬奥会和冬残奥会之前，中共国驻日本大使馆29日在东京中共国文化中心（东京都港区）推出了展示设施，在此可使用眼镜型虚拟现实（VR）终端体验赛场或模拟冰壶等比赛。
 
-参考链接：[GTV开始提供短视频服务](https://www.gtv.org/video/id=61a0f4453ff6481adce494f3)
+驻日大使孔铉佑在开幕式上致辞，期待通过该展示设施加深日中交流。他提及作为新冠防疫对策北京冬奥会不接纳来自海外的观众一事，强调中共国的观众将给各国选手加油。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+日本奥委会（JOC）主席山下泰裕及前首相福田康夫等人出席了开幕式，福田鼓励称“期待举办一届出色的冬奥会和冬残奥会”。该设施开设至12月5日，参观免费。
 
-总编：飞虹
-编辑：木白
-校对/发稿：Hetangyuese
+玩斗争策略，中共说第二没人敢说第一。萝卜加大棒更是中共的惯用伎俩；不过更高的是中共的“萝卜”往往都是梦和幻想，虽然口惠而经常实不至，但是，是梦就没有边界，是幻想就如梦如幻，往往都能成功引人侧目，进而循循善诱。每次作恶，中共都巧妙运用策略转移话题，用未来和希望转移眼球，用眼球转移焦点，用焦点转移思想，个人思想稍不清晰和意志稍不坚定者，就被共匪带走思路，放弃原有想法和主张，从而化解了本来的敌意。就是在中共这样不断地压缩推送，压缩推送下，世界被注入邪恶进程，一步一步被带入恶魔之路。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+[消息来源](https://china.kyodonews.net/news/2021/11/81e84d8ea125.html)
+
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

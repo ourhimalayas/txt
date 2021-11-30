@@ -2,58 +2,28 @@
 ---
 
 
-## 2021年11月30日新闻集
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1707829/)
+## 远东董事长被迫表态：希望两岸“维持现状”，粉红：维持现状也是“独”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1707974/)
 
-撰稿人：文远Bruce
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-964.png)[图片来源](https://tw.news.yahoo.com/%E9%81%A0%E6%9D%B1%E9%9B%86%E5%9C%98%E8%A2%AB%E4%B8%AD%E5%9C%8B%E7%BD%B0%E6%AC%BE-%E5%9C%8B%E5%8F%B0%E8%BE%A6-%E7%B5%95%E4%B8%8D%E5%85%81%E8%A8%B1%E6%94%AF%E6%8C%81%E5%8F%B0%E7%8D%A8%E7%9A%84%E4%BA%BA%E5%9C%A8%E5%A4%A7%E9%99%B8%E8%B3%BA%E9%8C%A2-135220534.html)
+台湾远东集团在中共国投资企业此前因违法违规被依法查处，董事长徐旭东29日投书媒体表示，“盼两岸关系维持现状”，“一向反对台独”，并支持“九二共识”。徐旭东称，台湾产业应对大陆市场有合理的认识和判断，“不该让意识形态挂帅，凌驾一切”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture1-20.png)
+据此前报道，台湾远东集团旗下化纤纺织、水泥企业在大陆5省市存在违法、违规行为，被依法处以约4.74亿元人民币罚款，并收回部分闲置建设用地。
 
-1. **中共转30万预备役为前线战斗部队**
+台媒30日报道称，台远东集团遭裁罚后，徐旭东29日出席公开活动，但未接受媒体采访。不过，徐旭东随后投书台湾《联合报》，表达对两岸关系与产业政策看法，也是远东集团在大陆被依法处罚后，首度发表相关评论。
 
+徐旭东称，台湾许多机构进行针对台湾人对于两岸关系的调查，其中“维持现状”是最多数台湾人主流民意；他跟多数台湾人一样，希望两岸关系“维持现状”，“更一向反对台独”，并支持“九二共识”，也支持一中原则。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture2222.png)
+徐旭东还称，台湾近年“逢中必反”似乎有扩大迹象，也令人忧心。近来两岸政治进入零互动、关系急冻，但两岸经贸往来却愈来愈热络。
 
-**2.华夏幸福(代码600340)累积未能偿还本息合计1013.4亿元，目前市值131亿人民币**
+对于徐旭东投书表态反对“台独”，希望两岸关系“维持现状”，中共国内网络上小粉红却不买账，表示维持现状就是“台独”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-965.png)
+消息来源：[台媒：台远东集团董事长徐旭东投书表态反对“台独”](https://news.sina.com.cn/c/2021-11-30/doc-ikyakumx1096309.shtml)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture3333.png)
-
-**3.纽约联储启动创新中心，研究央行数字货币**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture4444.png)
-
-**4.美国10年国债5年国债走势图**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture5555.png)
-
-**5.Exxon Mobil埃克森美孚企业债走势图**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture6666.png)
-
-**6.Shell壳牌企业债走势图**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture6666-1.png)
-
-**7.5G基站耗电量为4G基站3倍**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture888.png)
-
-**8.VR设备——触感手套**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture9999.png)
-
-**9.水幕投影技术应用**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture10-5.png)
-
-**10.11.历史上的人物活在今天是啥样？艺术家与设计师 Becca Saladin决定复原一下，并且越做越起劲，做成了一个项目Royalty Now**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture11-5.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture12-5.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-3.jpg)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
