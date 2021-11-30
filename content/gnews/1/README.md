@@ -2,61 +2,56 @@
 ---
 
 
-## 英国和以色列签署为期10年的贸易和防务协议
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1709341/)
+## 新变种病毒Omicron出现，引发各国升级应对措施
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1709459/)
 
-**这笔交易是在越来越多的指控中提出的，即以色列间谍软件被用来入侵外国官员和记者**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/14-ak8dr-ljk66.jpg)**在英国宣布哈马斯为“恐怖主义”组织（法新社）后，英国和以色列宣布了贸易和国防协定**
-据《中东之眼》 2021 年 11 月29日报道
+作者：纽约香草山农场 – 四季
 
-英国定于周一与以色列签署一项为期 10 年的贸易和国防协定，双方将在网络安全方面进行合作，并承诺在新谈判前夕阻止伊朗获得核武器。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-这笔交易是在越来越多的证据表明以色列间谍软件被用来攻击中东之眼并监视为迪拜统治者的前妻哈雅公主提供咨询的英国律师的。
 
-英国外交大臣利兹·特拉斯和以色列外长亚伊尔·拉皮德周一在《电讯报》的联合文章中宣布了谅解备忘录。
 
-两位部长都表示，该协议将“推动技术突破”，并且“以色列将正式成为英国的一级网络合作伙伴”。
 
-特拉斯和拉皮德说，英国和以色列将在 2022 年初开始就全面贸易协议进行谈判。目前，两国之间的贸易额为 50 亿美元。
 
-该协议还通过谴责在伦敦经济学院外针对以色列大使 Tzipi Hotovely 的抗议活动并支持英国禁止哈马斯为恐怖组织的决定，进一步强化了英国打击反犹太主义的承诺。
+据路透社11月30日报道，欧洲疾病预防和控制中心（ECDC）主席安德里亚·阿蒙（Andrea Ammon）说，迄今为止在10个欧盟国家确认的42个变种病例，是在较年轻的群体中发生的、温和或无症状的。然而新近出现的变种病毒Omicron引发了全球市场震荡。
 
-“世界上没有反犹太主义的地方。这就是为什么英国在这场斗争中通过全面禁止哈马斯来果断地支持以色列，”两人写道。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1570-1.jpg)
 
-他们强调了英国对最近几个阿拉伯国家和以色列之间的正常化协议的支持，推翻了几十年来一直保密的关系。
+世界卫生组织将Omicron归类为“值得关注的变体”，因为它的变异数量可能有助于它的传播或逃避先前由于感染或接种疫苗已产生的抗体。
 
-他们写道：“英国是最早公开庆祝由以色列、阿拉伯联合酋长国、巴林和摩洛哥领导并由美国调停的中东正常化这一历史性步骤的国家之一。” “一年过去了，英国继续在支持以色列方面发挥自己的作用，因为它与该地区的合作伙伴更密切地合作。”
+制药商Moderna的首席执行官周二警告说，现有的COVID-19疫苗对新型Omicron变体的效果将不如对Delta的效果好。对此Moderna和其他制药商BioNTech以及强生公司已经在研究专门针对Omicron的疫苗。Moderna也一直在测试其现有强化剂的更高剂量。
 
-拉皮德周日抵达伦敦，对英国和法国进行为期两天的访问，这是与伊朗重启核谈判的前一天。
+关于新变种的不确定性引发了一些国家的边境管制，这给大流行病带来的新生经济复苏蒙上了阴影。令南非感到愤怒的是，许多旅行限制的重点是禁止往返南部非洲的航班。
 
-预计以色列外交部长将在周一与特拉斯签署协议，然后与英国首相鲍里斯约翰逊会面，他们都将发表演讲。
+英国和美国都推动了他们的加强计划以应对新的病毒变体。英国再次强制要求在商店和公共交通工具上佩戴口罩，伦敦表示国际旅行者到达后必须进行自我隔离，直到他们的PCR测试结果显示阴性。希腊宣称，60岁以上的人将被强制接种疫苗。邻国奥地利上周因感染率激增而实施了第四次全面封锁。与此同时，在目前热点还是前一个重要变种Delta的德国，为减缓传播而采取了新的限制措施。
 
-以色列第 13 频道报道称，拉皮德的访问旨在确保在与伊朗的会谈期间不会解除银行制裁。
+**参考阅读：**
 
-英国对以色列间谍软件保持沉默
-本月早些时候，英国政府拒绝透露是否已经或将要向以色列投诉，因为有报道称 MEE 是与 Candiru 相关的网络攻击目标之一，Candiru 是一家在美国受到制裁的特拉维夫间谍软件公司。
+[https://www.reuters.com/world/asia-pacific/hong-kong-expands-travel-curbs-omicron-fears-australia-reports-5-cases-2021-11-30/](https://www.reuters.com/world/asia-pacific/hong-kong-expands-travel-curbs-omicron-fears-australia-reports-5-cases-2021-11-30/)
 
-此前有报道称 NSO Group 的 Pegasus 软件被用于攻击英国的手机，一家网络安全公司表示，此次攻击与 Candiru 有“密切联系”，Candiru 是一家高度保密的以色列公司，只向政府出售其间谍软件。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
 
-英国高等法院还发现，在法庭听证会上为哈雅公主提供咨询的律师 Fiona Shackleton 和 Nick Manners 被以色列间谍软件公司 Pegasus 的软件入侵。
+编辑/校对/发稿：小鹿
 
-法院认为，对哈雅公主及其律师的 Pegasus 黑客攻击是迪拜统治者谢赫穆罕默德下令进行的，谢赫穆罕默德否认了这一说法。
 
-军事和国防协议出台之际，英国在首相鲍里斯·约翰逊 (Boris Johnson) 的领导下加强了与以色列的军事关系，英国军方与以色列无人机技术公司 Elbit Systems 签署了一份价值 1.37 亿美元的合同，以提供远程瞄准系统。
 
-据《泰晤士报》报道，英国皇家空军还在 10 月份与以色列空军一起参加了在内盖夫沙漠上空的训练演习，这是自 1948 年以来的第一次。
+**更多资讯，更多关注**
 
-该协议是在国际社会与伊朗开始谈判以在维也纳中断五个月后重启核谈判之际达成的。
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**文章来源：**[https://www.middleeasteye.net/news/britain-and-israel-sign-historic-ten-year-trade-and-defence-deal](https://www.middleeasteye.net/news/britain-and-israel-sign-historic-ten-year-trade-and-defence-deal)
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-翻译：洛杉矶盘古农场 – Raul
-编辑&校对：洛杉矶盘古农场–小象の奶瓶
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 

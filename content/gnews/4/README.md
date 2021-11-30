@@ -2,197 +2,41 @@
 ---
 
 
-## 中共的股票完全是擀面杖子经济，是假的
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1709287/)
+## 莫德纳Moderna 首席执行官重申疫苗对 Omicron 不起作用
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1709399/)
 
-[https://gtv.org/video/id=61a64b9b3ff6481adce67f18](https://gtv.org/video/id=61a64b9b3ff6481adce67f18)
+翻译： 真北007
+![](https://assets.gnews.org/wp-content/uploads/2021/11/WSJ_0-edited.jpg)图片来源：网络
+来自零对冲（ZERO HEDGE） 星期二11月30日的新闻报道：
 
-大家現在要看到中国现在所有的股市
-Todos tienen que ver el mercado de las acciones de China en estos momentos
+在昨天接受了几乎所有美国主要新闻机构的采访后，Moderna 首席执行官 Stephane Bancel 周二预计疫苗对阻止 omicron 变体无能为力，此评论大幅下挫了他自己公司的股票。
 
-11万多亿美元的市值
-Son más de 11 billones de dólares en valor de mercado
+Bancel 在接受英国《金融时报》采访时警告说，现有的疫苗在应对 omicron 方面的效果不如对早期的 COVID 病毒，制药公司可能需要几个月的时间才能大规模生产新的特定变种的疫苗。
 
-美国市值多少钱
-Cuánto es el de los Estados Unidos
+这位 CEO 预测当前疫苗在对抗 omicron 方面的功效将“大幅下降”。
 
-美国是它将近四、五倍的市值
-Estados Unidos es casi cuatro a cinco veces mayor que su valor del mercado
+鉴于 omicron 的刺突蛋白（这对病毒感染人类细胞的能力至关重要）中存在大量突变，以及这种新变种在南非的“快速传播”，班塞尔(Bancel)认为当前批次疫苗需要修改。
 
-就这它也增长了20～30%
-Y así creció el 20-30%
+Bancel 在 Moderna 总部接受采访时告诉英国《金融时报》，“还没有疫苗对抗Omicron能有像对抗Dalta一样的水平”。 Bancel 补充说，大多数专家认为，这种高度突变的变种在一两年内不会出现（显然“砖家”打脸了）。
 
-共产党过去的3年
-El PCCh durante los últimos 3 años
+有些人可能会纳闷，为什么 Bancel 似乎如此急于对自己的产品提出质疑？请记住：这与公共服务无关。 Omicron 是 Moderna 和辉瑞的福音，因为它最终将使他们能够销售更多的疫苗。
 
-它的GDP 绝对是降的，不可能涨的
-Su PIB definitivamente está bajando, es imposible aumentar
+当前的疫苗（包括 Moderna 的）侧重于刺突蛋白，这就是为什么在 omicron 中看到的大量突变可能使疫苗无法阻止它而无效，即使对于同时接种疫苗和加强剂的患者也是如此。
 
-它两样东西涨了
-Sus dos cosas aumentaron
+Bancel 补充说，预计将在未来两周内发布更多详细说明 omicron 是否会导致接种疫苗的患者出现严重疾病的数据。一旦获得新数据，Moderna 预计将在几个月内准备好下一批疫苗。
 
-股票涨了
-Las acciones aumentaron
+值得注意的是，班塞尔并不是唯一一位重申对 omicron 担忧的 Moderna 高管。
 
-哇噻 那你股票哪来的啊
-Wow y de dónde vienen las acciones
+联合创始人Noubar Afeyan 告诉彭博社，在 omicron 中看到的许多突变表明需要新的疫苗， “这种病毒的突变数量令人惊讶，”Afeyan 说。
 
-就是印发钞票
-De imprimir y emitir billetes
+人们不禁感到，这种“更具传染性、更不致命”的病毒变异突现，以及对如此低病例数的疯狂和同步反应， 与疫苗接种率放缓这一事实和疫苗制造商需要新的收入来源绝非巧合（记得昨天，英国卫生部长建议公民每 3 个月需要一次加强针）。
 
-M2 太厉害了
-El M2 es poderoso
+原文链接：[https://www.zerohedge.com/covid-19/markets-edge-after-moderna-ceo-repeats-vaccine-wont-work-omicron](https://www.zerohedge.com/covid-19/markets-edge-after-moderna-ceo-repeats-vaccine-wont-work-omicron)
 
-它过去仅仅今年和去年
-Anteriormente con sólo el año pasado y este año
+编辑/发布：LILY
 
-就干了40多万亿
-Hizo más de 40 billones
-
-就是降准
-Quiere decir bajar las reservas
-
-股市才涨多少
-Las acciones sólo aumentaron cuánto
-
-它涨了20～30% 十几万亿美元
-Él incrementó el 20-30%, decenas de billones de dólares
-
-它体现了市场多少呢
-¿Cuánto refleja el mercado?
-
-大概20万亿美元
-Alrededor de 20 billones de dólares
-
-那20万亿美元呢
-Y esos 20 billones de dólares
-
-没进入股市
-No entraron al mercado de valores
-
-那美国是多少钱呢
-Cuánto es eso en Estados Unidos
-
-将近20万亿美元
-Aproximadamente 20 billones
-
-大家永远不要忘了人民币这个本质
-Nunca olviden la esencia del RMB
-
-人民币叫什么 叫本币
-Cómo se llama el RMB, se llama moneda local
-
-人家美元叫什么
-Cómo se llama el dólar
-
-人家美元叫国际流通货币
-Al dólar se le llama moneda internacional
-
-叫流通法币，国际的是全世界认可
-Es denominada Moneda de Circulación Legal, es reconocida internacionalmente por todo el mundo
-
-人民币到今天来讲
-Hasta hoy hablando de RMB
-
-不是全世界认可的钱
-No es un dinero reconocido a nivel mundial
-
-不要搞错了
-No se confundan
-
-人民币在海外所有的（钱）叫做海外人民币，叫非本币
-La propiedad (dinero) del renminbi en el extranjero se llama renminbi en el extranjero, llamado moneda no local
-
-大概3万多亿美元
-Aproximadamente 3 billones de dólares
-
-就是全世界只认你这3万多亿美元的资产
-Significa que todo el mundo sólo reconoce sus activos de más de 3 billones de dólares
-
-现在已经变成2万亿了
-Ahora se ha convertido en 2 billones
-
-共产党今年所有的本币市场多印了20万亿人民币
-El PCCh imprimió 20 billones de RMB más en todo el mercado de moneda local de este año
-
-体现在股市的钱
-Reflejado en el dinero de las acciones
-
-那中国的GDP 不是说6%吗
-¿No dicen que el PIB de China es de un 6%?
-
-这几个数据放在一起
-Si juntas estos datos
-
-你再看看中国老百姓的通货膨胀和通缩指数
-Y luego miras el índice de inflación y deflación del pueblo chino
-
-特别是通货膨胀
-Especialmente la inflación
-
-再加上出口贸易
-Sumando el comercio de exportación
-
-中国只有一样东西是赚钱的
-En China hay una sola cosa que genera dinero
-
-就是出口 就是血汗钱
-Y es la exportación, es dinero de sangre y sudor
-
-那降了多少
-Y cuánto bajó
-
-中国官方地说
-Oficialmente en China dicen
-
-有涨有升
-Hay aumento
-
-总体来讲是下降
-En general está bajando
-
-总体下降
-Disminución general
-
-过去一年就是5千亿
-500 mil millones en el último año
-
-就按保住你的5千亿美元（计算）
-Conservando sus 500 mil millones de dólares (en cálculo)
-
-那么这几个帐一算就知道了
-Entonces puedes saber estas cuentas al sacarlas
-
-中共国现在14亿人口
-La República Popular de China tiene 1.400 millones de habitantes
-
-还是10亿人口
-O 1000 millones de habitantes
-
-你这个股票市场完全是杆面杖子经济 是假的
-Todo el mercado de valores es completamente un rodillo de amasar y son falsas
-
-**原视频网址**：[https://gettr.com/post/phzypq2813](https://gettr.com/post/phzypq2813)
-
-日期：11/29/2021
-原视频标题：中共的股票完全是擀面杖子经济，是假的
-Las acciones del PCCh son completamente un rodillo de amasar y son falsas
-原视频日期：11/26/2021
-原视频网址：https://gettr.com/post/phzypq2813
-任务编号：KC295（3024）
-视频时间段：0:00-2:20
-
-西听校：洛杉矶盘古农场 – 小文萱
-翻译：洛杉矶盘古农场- 霙霙（文霙）
-翻译终校：洛杉矶盘古农场 – 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+20211130
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

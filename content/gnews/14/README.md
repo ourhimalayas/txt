@@ -2,36 +2,22 @@
 ---
 
 
-## 昆士兰学校、托儿所工作人员和志愿者的疫苗接种任务
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1709113/)
+## 秘翻在线: 3000亿市值的医药巨头恒瑞被监管
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1709211/)
 
-**翻译：Ronnie O’Sullivan
-编辑：Candy**
+撰稿：西枫westca
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/疫苗-1.png)图片来源：9news
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/11/unnamed-18.jpg)图片来源：网络照片
+据证券日报12月1日报道，3000亿市值的医药巨头恒瑞医药收到上交所发布的对其监管工作函。恒瑞医药近期发布了会计变更公告，将研发费用资本化引入财务报表。由此可能引发了此次被监管的行动。
 
+恒瑞医药表示此次被监管的原因是关于“研发费用资本化”处理 的监管要求、研发支出的帐目要准确完整，属于交易所日常履职，并没有涉及行政处罚。一向以自体开放为主的恒瑞医药，目前加大了创新药物的市场化数量。
 
-根据最新规定，昆士兰州学校和托儿所的所有工作人员及志愿者，都需在12月17之前接种第一剂疫苗，并在明年1月23日之前全面接种。而获得适当医疗豁免的人士不必接种。
+恒瑞医药和豪森制药这对夫妻档，连续多年蝉联中共国医药领域财富榜首，稳稳地站在了国内医药行业第一的位置。如果恒瑞无违规、没过错，只是例行监管，为什么要自我披露呢？与此同时，股票市场上的大牛股巴安水务也公告称，因违规对外提供担保，公司股票或被实施风险警示； 另一家上市公司禾盛新材老板因涉黑被判无期徒刑。
 
-昆士兰州教育部长格蕾丝（Grace）说，此举是为了“保护昆士兰州学校里超过50万名还不能接种疫苗的12岁以下儿童，以及更多早期儿童中心”。
+一方面以恒大、花样年为代表负债最高的房地产公司随时破产，另一方面各行各业的上市公司不断爆雷，中共国的经济已经在一个活动的火山口上，随时都有爆发的可能。而这个爆发很可能给全球经济带来不可逆的影响。
 
-该规则将使昆士兰与澳大利亚其它州及领地保持政策一致。它将涉及公立和私立学校以及托儿所。
-
-除了西澳，昆士兰州的疫苗接种率是全国最低的，只有76.1%符合条件的昆士兰人接种了两剂中共病毒疫苗。但是，此州在过去24小时内没有任何本地新感染病例记录。
-
-昆士兰州长安娜斯塔西娅·帕拉什丘克（Annastacia Palaszczuk ）表示，虽然Omicron 中共病毒变种已抵达澳州，但完全接种疫苗的国人依然可以免隔离而进行州际旅行。
-
-她说，昆士兰州在防疫方面之所以“处于如此有利的地位”，是因为他们对中共病毒持有谨慎态度。此州规定，最近从Omicron变种病毒传播的国家抵达昆士兰的任何人都将在昆士兰州的酒店进行隔离。
-
-原文链接：[https://www.9news.com.au/national/coronavirus-update-queensland-vaccine-mandates-teachers-school-staff-childcare-children-covid19-vaccinations/48172cb4-87aa-4fd1-bced-95ef284330eb](https://www.9news.com.au/national/coronavirus-update-queensland-vaccine-mandates-teachers-school-staff-childcare-children-covid19-vaccinations/48172cb4-87aa-4fd1-bced-95ef284330eb)
-
-***发布：Candy***
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**新闻来源：**[3000亿市值医药巨头被监管 “老实人动心思”有助提升业绩？ (baidu.com)](https://baijiahao.baidu.com/s?id=1717872098945558966&amp;wfr=spider&amp;for=pc)
 
  
 

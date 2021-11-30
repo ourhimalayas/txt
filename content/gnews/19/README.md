@@ -2,32 +2,36 @@
 ---
 
 
-## 推特联合创始人兼CEO杰克·多尔西宣布辞职
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1709048/)
+## 昆士兰学校、托儿所工作人员和志愿者的疫苗接种任务
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1709113/)
 
-**撰稿：日本东京方舟农场  老孙**
+**翻译：Ronnie O’Sullivan
+编辑：Candy**
 
-11月29日，推特宣布其联合创始人兼CEO杰克·多尔西将在2022年期满后卸任CEO一职，由原推特CTO阿格·拉瓦尔接任。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/疫苗-1.png)图片来源：9news
 
-多尔西在担任CEO期间，实行对推特信息进行言论审查，披着打击虚假信息的外衣，通过删除、冻结用户账号，压制言论自由。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/jack_dorsey_on_new_twitter_CEO_parag_agrawal_1638205443404_1638205443704.jpg)图片来源于网络
+根据最新规定，昆士兰州学校和托儿所的所有工作人员及志愿者，都需在12月17之前接种第一剂疫苗，并在明年1月23日之前全面接种。而获得适当医疗豁免的人士不必接种。
 
-3月26日，多尔西曾在众议院能源和商业委员会关于社交媒体进行信息误导的听证会上，否认推特有言论审查行为，杰克在听证会上狡辩称，这种做法目的无非是要用户纠正其错误，并不是推特要用特殊方式专门针对这些用户，之前的这些公司行为只是纯粹的工作规程错误。
+昆士兰州教育部长格蕾丝（Grace）说，此举是为了“保护昆士兰州学校里超过50万名还不能接种疫苗的12岁以下儿童，以及更多早期儿童中心”。
 
-众所周知，推特公司与中共有千丝万缕的联系，在干扰美国大选、中共疫苗发源地等重大事件中都扮演着中共走狗的角色，实行双重标准，根据实际需要，对符合中共利益的用户和推文给与保护，即使是彻头彻尾的虚假信息也允许被转发。
+该规则将使昆士兰与澳大利亚其它州及领地保持政策一致。它将涉及公立和私立学校以及托儿所。
 
-*参考链接：*
+除了西澳，昆士兰州的疫苗接种率是全国最低的，只有76.1%符合条件的昆士兰人接种了两剂中共病毒疫苗。但是，此州在过去24小时内没有任何本地新感染病例记录。
 
-[Twitter CEO 杰克·多尔西离职，CTO 接任](https://mbd.baidu.com/newspage/data/landingsuper?context=%7B%22nid%22%3A%22news_9751037287940627843%22%7D&amp;n_type=1&amp;p_from=4)
+昆士兰州长安娜斯塔西娅·帕拉什丘克（Annastacia Palaszczuk ）表示，虽然Omicron 中共病毒变种已抵达澳州，但完全接种疫苗的国人依然可以免隔离而进行州际旅行。
 
-* * *
+她说，昆士兰州在防疫方面之所以“处于如此有利的地位”，是因为他们对中共病毒持有谨慎态度。此州规定，最近从Omicron变种病毒传播的国家抵达昆士兰的任何人都将在昆士兰州的酒店进行隔离。
 
-*素材采编：老孙*
+原文链接：[https://www.9news.com.au/national/coronavirus-update-queensland-vaccine-mandates-teachers-school-staff-childcare-children-covid19-vaccinations/48172cb4-87aa-4fd1-bced-95ef284330eb](https://www.9news.com.au/national/coronavirus-update-queensland-vaccine-mandates-teachers-school-staff-childcare-children-covid19-vaccinations/48172cb4-87aa-4fd1-bced-95ef284330eb)
 
-*编辑：文顺*
+***发布：Candy***
 
-*发布：Ranting*
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,74 +2,43 @@
 ---
 
 
-## 格雷格·波波维奇称赞埃内斯·坎特直言不讳地谈论中国
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1708965/)
+## 拜登在疫苗强制的信息战中败下阵来
+` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1709092/)
 
-埃内斯·坎特 (Enes Kanter) 是对中国发声的最著名的体育明星之一
+加拿大扬帆农场 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2021/11/vax_protest-1.jpg)图片来源： Times Higher Education
+根据《CNBC》11月30日于华盛顿报道，在美国，超过70%的成年人已经完全接种了冠状病毒疫苗。但根据上个月的全国广播公司新闻调查，只有不到一半的美国人支持强制接种疫苗。
 
-**【简评：】***2017年郭文贵先生就爆料中共3F计划和BGY计划，其中包括利用中国庞大的市场资源来绑架美国，用金钱和市场利益收买美国的政治家、华尔街、硅谷、文化和体育界，要他们对中共对香港、新疆、西藏等人权问题沉默，最终达到其邪恶目的。对于2020年的新冠病毒流行和2021年的疫苗灾难，美国的政界、商界、科技界、文化界全部噤声，这就是中共经济渗透、文化渗透的结果。但我们也看到，NBA火箭队经理穆雷为2019年的“光复香港时代革命”运动发声，2021年NBA凯尔特人队球星坎特为中共对新疆、西藏等人权问题发声，说明美国各界有越来越多的人认识到中共及其幕后黑暗势力搞乱美国、统治世界的种种恶行。新中国联邦和全球正义人士正在集结，等美国为首的西方国家完成全球正义力量的集结，对中共犯下科技军事偷盗、经济文化侵略、人权侵犯、释放生物武器和毒疫苗戕害全球等罪行进行清算的时候，就是中共灭亡时。*
+根据民意调查，47%的美国人支持要求所有符合条件的人必须接种Covid-19疫苗，而50%的人则反对这一要求。
 
-据《Fox News》记者Alejandro Avila 2021 年 11 月27日报道：
+以下是按政党、年龄、种族和教育程度划分的调查结果：
+所有成年人：47%的人赞成，50%的人反对。
+民主党人：80%的人赞成，18%的人反对。
+独立人士：47%赞成，51%反对。
+共和党人：20%赞成，77%反对。
+18-34: 45%赞成，51%反对。
+35-49岁：41%赞成，56%反对。
+50-64岁：44%赞成，53%反对。
+65岁以上：60%赞成，38%反对。
+白人：40%赞成，56%反对。
+黑人：64%赞成，34%反对。
+拉美裔：59%赞成，39%反对。
+非大学毕业的白人：35%赞成，61%反对。
+白人大学毕业生：52%赞成，46%反对。
+接种疫苗：65%赞成，31%反对。
+未接种疫苗：6%赞成，92%反对。
+白人福音派：19%赞成，78%反对。
 
-**本赛季，埃内斯·坎特 (Enes Kanter) 将 NBA 及其所有精英球队都放在了聚光灯下。波士顿凯尔特人中心一直公开表示他反对中共国侵犯人权的行为：与黑命贵运动的支持者所看到的广受赞誉的社会激进主义相比，这一信息已经变得更加“像在房间里的大象”。**
+综上所述，反对疫苗强制者占据了主导地位，而强制疫苗支持者，包括白宫都不占多数，可见全美人民对疫苗的认识和觉醒。政府，大药厂和媒体很难进一步推进强制疫苗。
 
-虽然协会对支持发声保持沉默让坎特沮丧，但圣安东尼奥马刺队主教练格雷格波波维奇现在选择与凯尔特人队中锋站在一起。
+原文链接：
+[https://www.nbcnews.com/politics/meet-the-press/how-biden-lost-vaccine-mandate-messaging-fight-n1285077](https://www.nbcnews.com/politics/meet-the-press/how-biden-lost-vaccine-mandate-messaging-fight-n1285077)
 
-波波赞扬了这位 29 岁的年轻人在他的信息中坚定不移——知道外界的议论已经导致对坎特形象的审查，同时也可能影响他在球场上的时间。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-983-e1638294579347.png)马萨诸塞州波士顿 – 10 月 22 日：在 2021 年 10 月 22 日在马萨诸塞州波士顿举行的凯尔特人队主场揭幕战对阵多伦多猛龙队的比赛中，波士顿凯尔特人队的第 13 号球员埃内斯·坎特 (Enes Kanter) 前瞻。
-（麦迪迈耶/盖蒂图片社）
-“我很高兴埃内斯在他认为正确的时候站出来说话。我认为这很棒。没有理由不这样做，”波波维奇评论说，看着坎特在网上发起的积极的活动以寻求支持，反对中共对维吾尔人和其他群体的虐待。
+* * *
 
-尽管波波维奇在回应激烈的反共活动时拒绝直接提及中国，但他无法对坎特强调的海外发生的不公正现象视而不见。
-
-坎特最近追击的虚伪的目标是布鲁克林篮网队的老板蔡崇信。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-984-e1638294632818.png)2021 年 10 月 22 日星期五在波士顿举行的 NBA 篮球比赛下半场，波士顿凯尔特人队的埃内斯·坎特 (13) 对阵多伦多猛龙队的艾萨克·邦加。 (美联社)
-**“@brooklynNets @joetsai1999 的老板是懦夫也是中共政府的傀儡，”坎特在周三（11 月 24 日）凯尔特人队与篮网队的比赛前通过 Twitter 宣布。“反中共并不意味着反亚洲，不仇视亚洲人和对中共说不，是可以同时存在的。”**
-
-随着NBA将自己定位为中国共产党雄厚财力的受益人——从国际市场获得的年收入近5亿美元——坎特不得不指出，该协会及其最杰出的明星在引起人们对美国社会不公正现象的关注时，使用了双重标准没有却没有点名中共国。
-
-坎特邀请洛杉矶湖人队的勒布朗·詹姆斯和退役的伟大的迈克尔·乔丹等人参加中共国之行，并了解他的信息的重要性——最重要的是，一份声明旨在将任何受中国暴政影响的人从他们的道德标准中解放出来。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-985-e1638294676787.png)圣安东尼奥马刺队主教练格雷格波波维奇（右）在 2021 年 10 月 8 日星期五在圣安东尼奥举行的季前赛对阵迈阿密热火队的 NBA 篮球比赛的下半场与马刺后卫德章泰穆雷交谈。
-（美联社照片/达伦阿巴特）
-**埃内斯继续质疑那些对中共国政府视而不见的企业人物和媒体人士，中共政府在监督奴隶运营和其他对自由的攻击的同时签署支票。**
-
-*波波称赞埃内斯**·坎特 (Enes Kanter) 直言世界各地的侵犯人权行为。*
-
-*“我很高兴埃内斯在他认为正确的时候说出来。我认为这很棒。没有理由不这样做。”*
-
-
-
-> Pop praised Enes Kanter for speaking up about human rights abuses around the world.
-> 
-> "I am glad that Enes speaks up when he feels like it. I think it’s great. No reason not to."
-> — Tom Orsborn (@tom\_orsborn) [November 27, 2021](https://twitter.com/tom_orsborn/status/1464391753897807877?ref_src=twsrc%5Etfw)
+发稿 Spirit
 
 
-
-**NBA 球员埃内斯·坎特 (Enes Kanter)：“像国际奥委会这样的组织在即将到来的冬天在中共国举办奥运会感到羞耻，而中共国现在正处于独裁统治之中。[…] 我们需要抵制冬奥会。”**
-
-
-
-> NBA player Enes Kanter: "Shame on organizations like the International Olympic Committee that's setting up an Olympic Games this upcoming winter in China where there's a dictatorship happening right now. […] We need to boycott the Winter Olympics." [pic.twitter.com/WQjWp7u6fV](https://t.co/WQjWp7u6fV)
-> — The Hill (@thehill) [November 23, 2021](https://twitter.com/thehill/status/1463202183885774855?ref_src=twsrc%5Etfw)
-
-
-
-文章来源：[https://www.foxnews.com/sports/gregg-popovich-enes-kanter-speaking-out-china](https://www.foxnews.com/sports/gregg-popovich-enes-kanter-speaking-out-china)
-
-翻译：洛杉矶盘古农场 – Raul
-
-校对：洛杉矶盘古农场 –  73stolencountry
-
-评论：洛杉矶盘古农场 – 73stolencountry
-
-编辑：洛杉矶盘古农场-小象の奶瓶
-
-
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
