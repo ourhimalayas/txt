@@ -2,31 +2,34 @@
 ---
 
 
-## 拜登曾表示希望日本防卫费增加以遏制中共
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1708599/)
+## 中共出新法将提供“翻墙”服务入罪
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1708727/)
 
-作者：东京樱花团—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-外媒11月27日消息，日前美国政府人士透露，美国总统拜登在10月上旬与日本首相岸田文雄的会谈中表示，希望日方能增加防卫费用。因美国政府需要遏制作为唯一竞争对手的中共，希望日本在安全领域能够负担更多。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/20211005053326987.jpeg)图片来源：阿波罗网
-岸田在当选首相之前，就表示防卫费不应该被数字束缚。而拜登基于岸田的发言，对日本切实推进防卫力调整表示了期待。
+撰稿：东京樱花团/天路天道
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5-18.png)
+图片源自网络
 
-据悉，日本防卫费在2016年首次超过5万亿日元，2021年加上补充预算则达到6万亿日元，很有可能超过GDP的1%。有意见认为，如果实现首次美日首脑会谈，日本增加防卫费用一事将成为主要议题。
+据“新唐人”11月30日消息，中共网信办近日公开一份《网络数据管理草案》，其中规定个人和组织不得提供翻墙工具和相关服务，否则将受严惩。
 
-参考链接：[独家：拜登曾向岸田表示期待日本防卫费增额](https://china.kyodonews.net/news/2021/11/ec4ff208fa1d.html)
+草案中一些比较敏感的条款规定值得关注。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+例如，草案中第41条规定：“国家建立数据跨境安全网关，对来源于中华人民共和国境外、法律和行政法规禁止发布或者传输的信息予以阻断传播。任何个人和组织不得提供用于穿透、绕过数据跨境安全网关的程序、工具、线路等，不得为穿透、绕过数据跨境安全网关提供互联网接入、服务器托管、技术支持、传播推广、支付结算、应用下载等服务。境内用户访问境内网络的，其流量不得被路由至境外。”
 
-总编：正义的小新
-编辑/校正/发稿：呼吸的雾霾（文小呼吸）
+第66条又规定：“个人和组织违反第41条的规定，由有关主管部门责令改正，给予警告、没收违法所得；拒不改正的，处违法所得一倍以上十倍以下的罚款，没有违法所得的，对直接负责的主管人员和其他直接负责人员，处5万元以上50万元以下罚款；情节严重的，由有关主管部门依照相关法律、行政法规的规定，责令其暂停相关业务、停业整顿、吊销相关业务许可证或者吊销营业执照；构成犯罪的，依照相关法律、行政法规的规定处罚。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+正如网友反呛“要抓先抓胡锡进”一样，中共只准自己“翻墙”，不许百姓上外网。由此也表明中共真正恐惧的就是老百姓了解真相，更怕越来越多老百姓了解爆料革命和新中国联邦。
+
+信息来源：
+
+[强化信息封锁 中共推新法欲正式将“翻墙”入罪](http://cn.ntdtv.com/gb/2021/11/29/a103280748.html)
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht-1-1.png)
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

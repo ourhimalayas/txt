@@ -15,107 +15,107 @@
 
 ---
 
-### [日本因“奥密克戎”变种病毒禁止全球旅客入境](/content/gnews/1/README.md)
- ` GTV新闻访谈`
+### [推特（Twitter）创始人杰克·多尔西(Jack Dorsey)辞去CEO一职](/content/gnews/1/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共收买世界主流媒体 无视阿富汗人道危机](/content/gnews/2/README.md)
- ` GTV新闻访谈`
+### [小肯尼迪告诉新美国人：福奇的“黑暗历史” 必须曝光（3/3）](/content/gnews/2/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [文贵警告：警惕世界经济的大崩溃](/content/gnews/3/README.md)
- ` GTV新闻访谈`
+### [近三分之一美国卫生部门员工未接种疫苗](/content/gnews/3/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [美准备重启与东盟的首脑会议以抗衡中共](/content/gnews/4/README.md)
- ` GTV新闻访谈`
+### [澳门赌场老板周焯华因犯跨境赌博罪被逮捕](/content/gnews/4/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美P-8A罕见纵贯台海 疑因中共核潜舰通过](/content/gnews/5/README.md)
- ` GTV新闻访谈`
-
-### [密苏里州法官裁定终止强制医护人员接种疫苗的行政命令](/content/gnews/6/README.md)
- ` GTV新闻访谈`
-
-### [GTV新闻访谈简报|2021年11月30日早](/content/gnews/7/README.md)
- ` 纽约香草山MOS01`
-
-### [2021/11/30 大卫作战室直播精要](/content/gnews/8/README.md)
+### [法官叫停拜登针对10个州医疗工作者的疫苗强制令](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [CCP病毒1998](/content/gnews/9/README.md)
- ` 骄子`
+### [欧盟要求中共公布可验证的彭帅安全的证据](/content/gnews/6/README.md)
+ ` HimalayaRussia`
 
-### [中共出新法将提供“翻墙”服务入罪](/content/gnews/10/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [小肯尼迪告诉新美国人：福奇的“黑暗历史” 必须曝光（2/3）](/content/gnews/7/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [路透社：11月19日荷兰已出现不明来历奥米克戎病毒](/content/gnews/11/README.md)
- ` 丁过`
+### [日本因“奥密克戎”变种病毒禁止全球旅客入境](/content/gnews/8/README.md)
+ ` GTV新闻访谈`
 
-### [运油20首次参与27架中共军机扰台，台外长表示绝不屈服于中共压力](/content/gnews/12/README.md)
+### [中共收买世界主流媒体 无视阿富汗人道危机](/content/gnews/9/README.md)
+ ` GTV新闻访谈`
+
+### [文贵警告：警惕世界经济的大崩溃](/content/gnews/10/README.md)
+ ` GTV新闻访谈`
+
+### [美准备重启与东盟的首脑会议以抗衡中共](/content/gnews/11/README.md)
+ ` GTV新闻访谈`
+
+### [美P-8A罕见纵贯台海 疑因中共核潜舰通过](/content/gnews/12/README.md)
+ ` GTV新闻访谈`
+
+### [密苏里州法官裁定终止强制医护人员接种疫苗的行政命令](/content/gnews/13/README.md)
+ ` GTV新闻访谈`
+
+### [GTV新闻访谈简报|2021年11月30日早](/content/gnews/14/README.md)
  ` 纽约香草山MOS01`
 
-### [金融时报：莫德纳CEO称疫苗对奥米克戎有效性有限](/content/gnews/13/README.md)
+### [2021/11/30 大卫作战室直播精要](/content/gnews/15/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [CCP病毒1998](/content/gnews/16/README.md)
+ ` 骄子`
+
+### [中共出新法将提供“翻墙”服务入罪](/content/gnews/17/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [路透社：11月19日荷兰已出现不明来历奥米克戎病毒](/content/gnews/18/README.md)
  ` 丁过`
 
-### [共匪不灭，教育就没有未来](/content/gnews/14/README.md)
+### [运油20首次参与27架中共军机扰台，台外长表示绝不屈服于中共压力](/content/gnews/19/README.md)
+ ` 纽约香草山MOS01`
+
+### [金融时报：莫德纳CEO称疫苗对奥米克戎有效性有限](/content/gnews/20/README.md)
+ ` 丁过`
+
+### [共匪不灭，教育就没有未来](/content/gnews/21/README.md)
  ` 银河勇气之星`
 
-### [2021/11/30 墙内世界](/content/gnews/15/README.md)
+### [2021/11/30 墙内世界](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中非论坛开幕 ，习近平再撒币](/content/gnews/16/README.md)
+### [中非论坛开幕 ，习近平再撒币](/content/gnews/23/README.md)
  ` 澳喜特战旅Gnews`
 
-### [拜登曾表示希望日本防卫费增加以遏制中共](/content/gnews/17/README.md)
+### [拜登曾表示希望日本防卫费增加以遏制中共](/content/gnews/24/README.md)
  ` 纽约香草山MOS01`
 
-### [疑涉及新疆强迫劳动 法国Zara遭禁止扩店](/content/gnews/18/README.md)
+### [疑涉及新疆强迫劳动 法国Zara遭禁止扩店](/content/gnews/25/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [习近平正在篡改历史，试图控制现在控制过去](/content/gnews/19/README.md)
+### [习近平正在篡改历史，试图控制现在控制过去](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [11/30/21 香港快讯 【官派律师】多名被告未能提名律师 法援署：已委派 20 位律师、19 位大律师处理国安案件](/content/gnews/20/README.md)
+### [11/30/21 香港快讯 【官派律师】多名被告未能提名律师 法援署：已委派 20 位律师、19 位大律师处理国安案件](/content/gnews/27/README.md)
  ` 英喜-粵語組`
 
-### [西媒头条 — 第120期](/content/gnews/21/README.md)
+### [西媒头条 — 第120期](/content/gnews/28/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥说—第32期](/content/gnews/22/README.md)
+### [七哥说—第32期](/content/gnews/29/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [推特CEO辞职](/content/gnews/23/README.md)
+### [推特CEO辞职](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [2021/11/29 文贵先生盖特精要](/content/gnews/24/README.md)
+### [2021/11/29 文贵先生盖特精要](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共用独裁思想洗脑百姓 权贵却向往自由法治之地](/content/gnews/25/README.md)
+### [中共用独裁思想洗脑百姓 权贵却向往自由法治之地](/content/gnews/32/README.md)
  ` 纽约香草山MOS01`
 
-### [法国民议会通过挺台参与国际组织议案](/content/gnews/26/README.md)
- ` GTV新闻访谈`
-
-### [DC每日热点1130](/content/gnews/27/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [秘翻在线：日本各地多人患上“疫苗后遗症”](/content/gnews/28/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [美军开启全球部署 中共战狼贼喊捉贼](/content/gnews/29/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [7国协助台湾建造潜舰，抵抗中共军事恐吓](/content/gnews/30/README.md)
- ` G-NEWS TAIWAN`
-
-### [习的使命](/content/gnews/31/README.md)
- ` 骄子`
-
-### [11/30/2021国际财经快讯：鲍威尔和耶伦国会质询，通胀升温、病毒变异；德国通胀率创数十年来新高](/content/gnews/32/README.md)
+### [11/30/2021国际财经快讯：鲍威尔和耶伦国会质询，通胀升温、病毒变异；德国通胀率创数十年来新高](/content/gnews/33/README.md)
  ` 秘密翻译组金融团队`
 
-### [从南部非洲抵达澳大利亚的两例Omicron患者均已完全接种疫苗](/content/gnews/33/README.md)
+### [从南部非洲抵达澳大利亚的两例Omicron患者均已完全接种疫苗](/content/gnews/34/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中共公开否认对新疆维吾尔族妇女强制绝育的指控](/content/gnews/34/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [八旬老人向逝去亲人的哭诉:我们的处境比日本时期还难受](/content/gnews/35/README.md)
  ` NewFOC`
