@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/30/2021 1:40 AM (UTC)`
+
+11/29/2021 Miles Guo’s GETTR: All dictatorships claim they are always right; facing the economic collapse, they will wage wars, create racial conflicts and social unrests, and eventually make a small group of people the scapegoat; the CCP has completely ended up being a rogue regime<br/><br/>11/29/2021 文贵盖特：所有独裁政府都说自己永远正确；面对经济崩溃，他们将发动战争、制造种族矛盾和社会动乱，最终找一小部分人当替罪羊；中共成了彻头彻尾的流氓<br/>
+![img](https://media.gettr.com/group10/getter/2021/11/30/01/40/2b040d58-1751-59e0-0e57-25695c5782ab/out.jpg)
+
+---
+
 `@miles 11/29/2021 7:53 PM (UTC)`
 
 11月29号：我得乖乖嘞，这共产党的四个自信，去哪儿啦？不是无神论吗？干嘛怕一个龙头建筑呢，怕到这个样子……这也是真的相信了，文贵的视频中讲的……黑色白蛇的事实了！
@@ -147,13 +154,6 @@ NBA球员埃内斯·坎特：我需要成为那些无法发声的无辜者的代
 
 11/26/2021 Miles Guo: The smallpox virus is a biochemical weapon, which is easy to make, and the CCP dares to and will surely release it. The only question is, on what scale the CCP will drop the virus; the whole world is silent when it comes to the truth about the origins of the CCP virus and its vaccines, with the Whistleblowers’ Movement being the only one spreading the truth - We are taking down both the CCP and the whole world’s dark forces<br/><br/>11/26/2021 文贵直播：天花病毒是生化武器，易制造，共产党敢放且一定会放，只是规模多大的问题；全世界在病毒和疫苗上噤声，唯有爆料革命在传播真相 - 我们灭的是中共和全球黑暗力量!<br/>
 ![img](https://media.gettr.com/group24/getter/2021/11/27/03/53/ac2fbe49-45cd-174f-f124-9c4d46bebb4a/out.jpg)
-
----
-
-`@miles 11/27/2021 3:24 AM (UTC)`
-
-11/26/2021 Miles Guo: The CCP established an organization in the UN to oppose the anti-Winter Olympics; where are Yang Jiechi and Xu Qiliang? Whoever wants to attack Taiwan gets ill - “cuckold” Wang Hongguang contracted the virus; top secret intelligence shows that CCP troops participating in recent exercises think they can't defeat Taiwan<br/><br/>11/26/2021 文贵直播：中共在联合国成立了“反对反冬奥会的组织”；杨洁篪和许其亮去哪儿了? 谁喊打台湾谁染病 - 绿帽子王染病了；绝密情报：中共近期参加演习的部队自认为打不赢台湾<br/>
-![img](https://media.gettr.com/group17/getter/2021/11/27/03/24/f4f417e4-2653-9f09-f8b6-38239efcfd12/out.jpg)
 
 ---
 
