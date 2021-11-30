@@ -2,30 +2,58 @@
 ---
 
 
-## GTV开始提供短视频服务
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1707758/)
+## 2021年11月30日新闻集
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1707829/)
 
-作者：纽约香草山医疗部 – 云豹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月29日，GTV 推出了短影音视频功能，满足用户更广泛的影音视频需要。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture104-1.jpg)
-短时间内，十多个短视频节目就出现在了GTV线上，每个长度在3分钟以内，可以自动重复播放。 虽然该功能刚启用，但获得了很多观众的好评。 新推出的短视频，画质细致，声音清晰，影像传播流畅，超越了同类型的其他视频软体。
+撰稿人：文远Bruce
 
-参考链接：[GTV开始提供短视频服务](https://www.gtv.org/video/id=61a0f4453ff6481adce494f3)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture1-20.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+1. **中共转30万预备役为前线战斗部队**
 
-总编：飞虹
-编辑：木白
-校对/发稿：Hetangyuese
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture2222.png)
+
+**2.华夏幸福(代码600340)累积未能偿还本息合计1013.4亿元，目前市值131亿人民币**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture3333.png)
+
+**3.纽约联储启动创新中心，研究央行数字货币**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture4444.png)
+
+**4.美国10年国债5年国债走势图**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture5555.png)
+
+**5.Exxon Mobil埃克森美孚企业债走势图**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture6666.png)
+
+**6.Shell壳牌企业债走势图**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture6666-1.png)
+
+**7.5G基站耗电量为4G基站3倍**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture888.png)
+
+**8.VR设备——触感手套**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture9999.png)
+
+**9.水幕投影技术应用**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture10-5.png)
+
+**10.11.历史上的人物活在今天是啥样？艺术家与设计师 Becca Saladin决定复原一下，并且越做越起劲，做成了一个项目Royalty Now**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture11-5.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture12-5.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-3.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

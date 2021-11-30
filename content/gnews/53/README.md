@@ -2,26 +2,34 @@
 ---
 
 
-## 台湾前线｜多国接续访台 台外交部：不屈服于解放军威胁
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1705079/)
+## 新变种病毒Omicron 到达北美
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1706573/)
 
-**台灣寶島農場 港台前線關注組 / 發佈時間｜29/11/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/photo_2021-11-07-14.32.38.jpeg)
-**更多資訊請關注官方蓋特｜please follow our Gettr （[https://gettr.com/user/hktwfrontline](https://gettr.com/user/hktwfrontline)）**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-43.png)图片来源：雅典娜农场设计组
+翻译：楞次
+编辑：楞次
 
-28日，经台湾国防部证实有27架解放军机侵入台湾防空识别区，其中包含刚服役不到两个月的运20加油机。面对中共恶意侵扰，台湾外交部长吴钊燮于29日受访时强调，外交部立场很清楚，我们不会在威胁下低头，不会在威胁下屈服，外交部会持续和其他爱好民主国家连结和强化关系。
+加拿大已经确认了两例Omicron变种患者，尽管目前尚不清楚它是否比其他变体更具危险性，拜登总统还在权衡美国将如何应对这个严重变异的Covid-19变体。
 
-## 美议员访台：台湾共和国
-![](https://assets.gnews.org/wp-content/uploads/2021/11/20211126095409-b6527742.png)圖／Rep. Nancy Mace twitter
-共和党籍众议员梅斯（Nancy Mace），25日抵达台湾后PO了一张她与专家在停机坪的照片，写刚抵达“台湾共和国”（Republic of Taiwan）。她本人接受新闻采访表示，就是“百分之百”刻意使用台湾共和国这个词，表示很多人台湾人谢谢她这么做。
+“今天，安大略省已确认渥太华发生了两例COVID-19的Omicron变体病例，这两例病例都来自最近从尼日利亚过来的旅行者”*。*安大略省政府周日在一份声明中表示。
 
-## 立陶宛国会议员28日访台 
+加拿大已经对过去两周访问过七个南部非洲国家的外国旅客禁止飞行而且关闭边境，但安大略省卫生官员克里斯蒂娜·埃利奥特（Christine Elliott）和基兰·摩尔（Kieran Moore）呼吁采取更严厉的方法来抵制这个变种。
 
-立陶宛、爱沙尼亚及拉脱维亚的国会议员28日抵达台湾，将参加在台北举行的“2021年开放国会论坛”，其中立陶宛的议员更要台湾人民自己决定台湾的未来，更霸气表示“对于被中国列黑名单很骄傲”。
+“我们继续敦促联邦政府采取必要措施，强制要求所有旅行者进行到达点测试，无论他们来自哪里，”他们说。 安大略省的病例是北美首次报告的Omicron感染，尽管白宫冠状病毒顾问Anthony Fauci博士表示，如果新变种已经出现在美国，他也”不会感到惊讶”。
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2021/11/港台前線-（TW）-9.jpg)
-來源｜[三立](https://tw.news.yahoo.com/27%E6%9E%B6%E5%85%B1%E6%A9%9F%E6%93%BE%E5%8F%B0-%E5%90%B3%E9%87%97%E7%87%AE-%E4%B8%8D%E6%9C%83%E5%B1%88%E6%9C%8D-025011567.html)/[TVBS](https://news.tvbs.com.tw/world/1646586)
+美国没有禁止来自非洲的航班，但禁止在过去14天内去过那里的外国人入境。拜登总统周日亲自会见了福奇，起草了有关美国政府抗疫应对措施的最新情况，预计将于周一宣布。
+
+由于担心新变体可能对现有疫苗具有抗药性，Fauci在多次采访中坚持认为接种疫苗和加强剂仍然是最好的防御措施。
+
+与此同时，墨西哥当局称旅行限制和边境关闭”不是很有用的措施”，称这些措施”影响国民的经济和福祉”大于有助于遏制病毒传播。世界卫生组织还警告各国不要关闭边境和”不必要的侵入性”限制，以防止”对生命和生计造成沉重负担”。
+
+发布：Peter Xin
+
+**更多****资讯****，****请关****注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

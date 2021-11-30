@@ -2,34 +2,30 @@
 ---
 
 
-## 新变种病毒Omicron 到达北美
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1706573/)
+## 河南省计划针对记者和外国学生建立新的监控系统
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1707328/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-43.png)图片来源：雅典娜农场设计组
-翻译：楞次
-编辑：楞次
+![北京一家商店外的摄像头与中国国旗。（资料照片）](https://gdb.voanews.com/64D3B0D3-6D4F-47E8-B24E-FF2B21BD69EF_w1023_r1_s.jpg)
+据美国之音11月30日报道，中共国河南省政府7月29日发布的一份招标文件详细介绍了一个网络监控系统。该系统可以使用3000台连接到各个国家和地区数据库的面部识别摄像头，汇编来到河南的相关人员，跟踪记者、国际学生和其他“可疑人员”。另一份文件显示，中共国科技公司东软集团9月17日获得了一份价值500万元（约合78.2万美元）的合同，要求在两个月内完成监控系统的建设。该系统将由至少2000名官员和警察进行操作，记者将按风险等级由高到低分为红色、黄色和绿色三类。如果记者在河南登记入住酒店、购票或跨省，将会受到警告。
 
-加拿大已经确认了两例Omicron变种患者，尽管目前尚不清楚它是否比其他变体更具危险性，拜登总统还在权衡美国将如何应对这个严重变异的Covid-19变体。
+中共国正在建立监控网络，在公共场所设置数百万个摄像头，能够为面部被口罩或眼镜遮住的个人建立相对准确的文件，并通过上传图片或搜索其面部属性在数据库中搜索目标。这是世界上最复杂的监控技术网络之一。监控研究公司IPVM密切跟踪该网络的扩张，发现在河南的这份文件中，记者被指定为监控目标。
 
-“今天，安大略省已确认渥太华发生了两例COVID-19的Omicron变体病例，这两例病例都来自最近从尼日利亚过来的旅行者”*。*安大略省政府周日在一份声明中表示。
+自2012年习近平上任以来，中共便加强了对媒体的管控。在2020年更是采取了严格的措施限制外国记者报道新冠病毒真相。一直强调大国自信的中共国，是世界上唯一一个在国内高筑防火墙，并在全世界范围内监控自己国民和窃取他国信息的独裁国家。中共建有先进的网络系统，不是为了科技，是为了管控国民，控制国内和全球的话语权。不只是中共国民，哪怕跨境路过的外国公民也会受到监控。中共藐视人权、非法窃取和搜集私人信息，应该被制裁。全球释放病毒，应该被消灭。数罪并罚，铲除中共。
 
-加拿大已经对过去两周访问过七个南部非洲国家的外国旅客禁止飞行而且关闭边境，但安大略省卫生官员克里斯蒂娜·埃利奥特（Christine Elliott）和基兰·摩尔（Kieran Moore）呼吁采取更严厉的方法来抵制这个变种。
+新闻参考链接：[https://www.voachinese.com/a/chinese-province-targets-journalists-foreign-students-with-planned-new-surveillance-system-20211130/6332176.html?utm\_source=twitter&utm\_medium=social&utm\_campaign=dlvr.it](https://www.voachinese.com/a/chinese-province-targets-journalists-foreign-students-with-planned-new-surveillance-system-20211130/6332176.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
 
-“我们继续敦促联邦政府采取必要措施，强制要求所有旅行者进行到达点测试，无论他们来自哪里，”他们说。 安大略省的病例是北美首次报告的Omicron感染，尽管白宫冠状病毒顾问Anthony Fauci博士表示，如果新变种已经出现在美国，他也”不会感到惊讶”。
+编辑：胖丁
 
-美国没有禁止来自非洲的航班，但禁止在过去14天内去过那里的外国人入境。拜登总统周日亲自会见了福奇，起草了有关美国政府抗疫应对措施的最新情况，预计将于周一宣布。
+* * *
 
-由于担心新变体可能对现有疫苗具有抗药性，Fauci在多次采访中坚持认为接种疫苗和加强剂仍然是最好的防御措施。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-与此同时，墨西哥当局称旅行限制和边境关闭”不是很有用的措施”，称这些措施”影响国民的经济和福祉”大于有助于遏制病毒传播。世界卫生组织还警告各国不要关闭边境和”不必要的侵入性”限制，以防止”对生命和生计造成沉重负担”。
 
-发布：Peter Xin
+编辑：【英国伦敦喜庄园编辑部】
 
-**更多****资讯****，****请关****注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

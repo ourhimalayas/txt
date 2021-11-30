@@ -2,32 +2,25 @@
 ---
 
 
-## 中共早有计划以生化武器攻击基督教和天主教
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1707755/)
+## 参议员汤姆·科顿：我怀疑福奇向国会作证时当场撒谎
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1707814/)
 
-作者：纽约香草山 – DM
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月26日，郭文贵先生在大直播中爆料，中共储存、释放天花病毒是由来已久的计划，并曾准备以这种生化武器来攻击西方的基督教和天主教。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture100-2.jpg)
-郭先生透露，早在2004年，一位中共党内地位非常高的理论派、有背景的教授就告诉郭先生，基督教、天主教是中共憎恨的天敌，中共决不允许这些宗教用“天主”“基督”等取代中共在国民心中的地位，必须对这些宗教教派和教众进行打压，如果无法用温和的手段说服他们放弃自己的信仰，接受中共的领导，则打算用天花这样的生化武器屠杀基督徒和天主教徒。
+#### 撰稿：彩虹       
 
-在中共向全世界不停放毒的情况下，郭先生强调，中共及邪恶犯罪团伙的目的，就是促使人们打疫苗，而毒疫苗是比病毒更致命的武器，会带来更大的灾难。
+#### 责编：胡天
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-957.png)图片来源：福克斯新闻
+11月29日，《新闻极限》报道，周一，来自阿肯色州的参议员汤姆·科顿（Tom Cotton）在参加“福克斯和朋友”节目时，抨击白宫首席医疗顾问安东尼·福奇（Anthony Fauci），称他是一个对科学自以为是的权威官僚。
 
-参考链接：[中共早有计划以生化武器攻击基督教和天主教](https://gnews.org/zh-hans/1701178/)
+根据报道，福奇在接受CBS采访时说：“他们真的在批评科学，因为我就代表着科学。对我来说，这比向我投掷箭矢的行为更危险。我不会永远在这里，但科学将永远在这里。如果你破坏了科学，在我离开后很久，你们就会做一些对社会非常有害的事情，这是我所担心的事情”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+对此，科顿断言指出：“他（福奇）所在的机构几周前刚刚承认：他们确实资助了病毒功能性增强研究。所以，这就存在一个谎言，在他的机构拖延了几个月后给国会写信承认病毒功能性增强研究后，要么是福奇向国会撒了谎，要么是他的机构撒谎。我则怀疑托尼·福奇在向国会作证时当场撒谎。”
 
-总编：飞虹
-编辑：飞虹
-校对/发稿：Hetangyuese
+另据《纽约邮报》报道，科顿加入了由肯塔基州兰德·保罗（Rand Paul）和德克萨斯州的泰德·克鲁兹（Ted Cruz）针对福奇向国会撒谎的指控。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+**新闻来源**
+
+[Sen. Cotton Claims Fauci Thinks He Has Control Over Science](https://www.newsmax.com/politics/fauci-tomcotton-covid-19/2021/11/29/id/1046626/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

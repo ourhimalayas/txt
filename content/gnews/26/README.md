@@ -2,24 +2,40 @@
 ---
 
 
-## 香港Disney+删除知名动画《辛普森一家》访问天安门一集是向中共屈服？
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1707612/)
+## 埃内斯·坎特 (Enes Kanter) 取得公民身份前合法地将姓氏更改为“自由”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1707668/)
 
-韩国首尔天池农场
-翻译：zzballack
-上传：追着曙光跑
+![One's Edges](https://media.breitbart.com/media/2019/10/AFP-Photo_Tim-Bradbury-640x480.jpg)AFP Photo/Tim Bradbury
+直言不讳的人权倡导者和中共国奴隶劳工批评者埃内斯·坎特 (Enes Kanter) 周一成为美国公民后，合法地将他的姓氏改为“自由”。
 
-据《华盛顿自由灯塔》（Washington Free Beacon）11月29日报道，迪士尼影音串流平台Disney+ 今年11月登陆香港，但是知名动画片《辛普森一家》的其中一集被该平台删除，该集涉及1989年的六四大屠杀。这是好莱坞屈服于中共政府的审查要求的又一例子。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-30-at-14.52.32.jpeg)图片来源：原新闻
-据报道，香港Disney+流媒体服务的用户注意到，《辛普森一家》2005年播出的题为《咕咕鸡饭》（Goo Goo Gai Pan）的一集在该平台上消失了。在该集的一个场景中，辛普森一家拜访北京天安门广场，那里是1989年六四大屠杀的所在地。其中一幅漫画上有一个标语，上面写着“在这个地点，1989年，什么也没发生”。这句话讽刺了中共一直在不遗余力地抹除人们的六四记忆。该集还让玛吉的妹妹站在坦克前，暗示著名的“坦克人”，以及批评了毛泽东、中共镇压西藏以及文化大革命。
+在他的NBA职业生涯中，坎特一直直言不讳地谈论社会不公和腐败的政府制度，尤其是土耳其总统雷杰普·塔伊普·埃尔多安在他的家乡的统治。2017年，坎特在海外旅行时土耳其政府取消了他的土耳其护照，他的父亲被土耳其政府短暂监禁。坎特最近将矛头对准了勒布朗·詹姆斯与耐克的关系，以及该公司在中共国涉嫌强迫劳动的做法。
 
-目前尚不清楚Disney+删除这一集，是因为收到了中共当局的指令，还是在登陆香港时就主动删除这一集。这一决定凸显了中共对香港的严格控制，以及好莱坞愿意自我审查以维护其在中共国的票房。
+自从坎特公开抗议北京之后，凯尔特人队大幅削减了他的上场时间，形成了一种“影子板凳”，让这位明星和他的反共鞋远离比赛球场。
 
-今年10月27日，香港立法会通过了《电影检查修订条例草案》，要求不利国家安全的电影将被禁止上映。港共当局审查员命令导演进行剪辑，并拒绝允许某些电影向公众放映。尽管这些规则目前不包括流媒体服务，但当局警告说，在线平台受其它规则的约束，包括新的国家安全法。上周，港共特首林郑月娥表示要“主动堵塞香港互联网漏洞”，并出台“假新闻”规定。她的评论加剧了人们对中共可能会将庞大的互联网和新闻审查制度扩展到香港的担忧。
+勒布朗詹姆斯拒绝直接回应坎特对他与耐克和中共国关系的批评，而是选择指责这位即将成为美国公民的人试图用他的名字“为自己创造机会”。
 
-迪士尼一直在讨好中共。2020年因在新疆拍摄电影《花木兰》的部分内容而受到抨击，中共当局正在那里进行种族灭绝行为；2016年，迪士尼在其电影《奇异博士》中用凯尔特人取代了一个西藏僧侣角色，以避免在西藏主权问题上的争议。
+尽管勒布朗和 NBA 都声明致力于人权和社会正义，但他们都没有支持坎特的抗议。
 
-原新闻：[Disney Blocks Tiananmen Square Simpsons Episode in Hong Kong](https://freebeacon.com/media/disney-blocks-tiananmen-square-simpsons-episode-in-hong-kong/)
+个人评论：
+
+这篇文章充分说明了CCP的“蓝金黄”对于NBA这个商业联盟的影响。随着爆料革命的不断传播，更多的CCP对体育界，影视界，及文艺界的侵蚀被揭露。坎特是孤独的，但是他从未放弃，一直坚持，利用自己的影响力揭露CCP对NBA的侵蚀和双重标准，特别是和勒布朗这阳样明星大腕形成鲜明的对比，坎特更显得弥足珍贵。揭露CCP在新疆犯下的强迫劳改，建立集中营，强奸维族妇女等暴行，为真不破，我们会继续支持他在盖特上发声，与他同行，Take Down the CCP！
+
+原文链接：[https://www.breitbart.com/sports/2021/11/28/report-enes-kanter-legally-changes-last-name-to-freedom-ahead-of-us-citizenship/](https://www.breitbart.com/sports/2021/11/28/report-enes-kanter-legally-changes-last-name-to-freedom-ahead-of-us-citizenship/)
+
+翻译/简评: Johnston2021
+
+PR: clau
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

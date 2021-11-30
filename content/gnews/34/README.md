@@ -2,30 +2,23 @@
 ---
 
 
-## 美国最高法院拒绝麻州医护人员疫苗暂停申请
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1707500/)
+## 疫苗将导致人类想象不到的大劫难
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1707617/)
 
-撰稿/新闻采集：纽约香草山 – AlexZ
-![](https://assets.gnews.org/wp-content/uploads/2021/11/新.png)
-11月29日，美国最高法院拒绝对马萨诸塞州综合医院（Mass General Brigham）的医护人员给予救济。第一巡回法庭极左派大法官布雷耶，并没有做出任何解释，而拒绝了医护人员紧急禁令的请求。 该医院工作人员因拒绝接种疫苗并被解雇或无薪休假。员工们寻求宗教或医疗豁免，但遭到拒绝。员工称，医院的强制疫苗政策侵犯了他们的宗教自由，或会对他们的健康构成威胁。所以，他们以该医院违反了禁止歧视的联邦法律为由提起诉讼。 但最终，这一诉讼还是被布雷耶大法官驳回。据悉，上个月布雷耶也曾拒绝审理一项试图阻止缅因州医护人员强制疫苗的紧急上诉。
+凡他(共产党)不让谈的都是大事，那意味着什么？疫苗将导致人类再次的，你想象不到的大劫难。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11301-1.png)
-![](https://www.thegatewaypundit.com/wp-content/uploads/supreme-court.jpg)
-新闻链接：[US Supreme Court Refuses to Block Vaccine Mandate For Massachusetts Hospital Workers](US%20Supreme%20Court%20Refuses%20to%20Block%20Vaccine%20Mandate%20For%20Massachusetts%20Hospital%20Workers)
+**【郭先生直播摘要】****2021****年****11****月****17****日疫苗将导致人类想象不到的大劫难**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-419.jpeg)
+**郭先生：**
 
-總編：文徬
+凡他(共产党)不让谈的都是大事，那意味着什么？疫苗将导致人类再次的，你想象不到的大劫难。共产党的核心目的，不让谈病毒但谈疫苗，就你多打疫苗，多打疫苗多死人嘛！而且我会告诉你，拜登会之后，不论是美国或中共内部，是一个炸裂性的，这次是绝对失败的一个所谓的视频会议，其中一条就是冠状病毒，说冠状病毒，习这一次的讲话，意义深远 ，没有人解读，这个冠状病毒的解读就证明了，冠状病毒和疫苗，它是一个母子武器。或者说是阴阳武器，就是杀人的，而且就是它的核心目的。
 
-校正/发稿：浪迹天涯
+所以说兄弟  我们具体要防什么？你们做好最坏的准备  没工作了、没钱了，走到大街上，就像几个月以前我说，你们不相信 。我说你可能走上街，餐厅不让你进，牵着狗不让你逛公园，车不让你开，大家现在刚才，天池妹妹做的PPT。咱们战友做的PPT 你们看到了，已经发生了，在很多国家，所以说要做好最坏的时刻的到来，你能活下去的准备。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/新.png)
+我现在我说实话，你除了跟新中国联邦能连在一起，很多战友，不知道你们想干什么？你能干什么？这就是我今天要说的，新中国联邦是世界上惟一一个，揭露疫苗真相，病毒真相，能把我们同胞战友连在一起的，唯一能抱团取暖的一个群体，如果你不信  那你就赶快离去，你信，咱就继续相互维持在一起，谢谢！
+
+视频剪辑：小蜜蜂 |听写：小蜜蜂 | 翻译：阿基米德 |校对：烟波浩淼 | 视频制作：芥末 |编辑&发布：断播
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
