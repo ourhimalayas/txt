@@ -2,36 +2,27 @@
 ---
 
 
-## 独裁者都具有精神与人格的双重缺陷
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1705860/)
+## 联邦法官暂停了拜登对10个州的医务工作者的强制疫苗规定
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1706468/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在11月28日的文贵大直播中，郭先生深刻剖析了凡独裁者都具有的共同特征，即精神与人格的双重缺陷。绝对自卑导致绝对自负，导致给个人和国家，以及世界带来深重的灾难。
+**撰稿：Grace**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide3-19.jpeg)
+**校对：Grace**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-11-16-at-10.58.19-PM.jpeg)图片来源：ussanews
+据The Hill 11月29日报道，在今日, 密苏里州的一名联邦法官暂时停止了拜登政府对接受联邦资助的医院的医务工作者的强制中共病毒疫苗的规定。
 
-郭先生说，人类历史上出现的独裁者，如斯大林、希特勒、卡扎菲、毛泽东等，都有着相似的人生轨迹。一旦权力在握，首先编造故事，篡改历史。自称秉持上天赋予的使命，不死之躯，无所不能；然后用洗脑、废法等工具，笼络人心；挑起种族仇恨，构建所谓人类命运共同体；最后，当面临国内严重的经济与政治危机时，在极度恐惧中挑起战争，把仇恨和杀戮引向外部，最终导致极权政府的灭亡。
- 
-郭先生指出，习的“中国梦”源于希特勒名言，“我以梦游者的自信，走向我的命运”。习挑战美国、经济脱钩、再次放毒、收复台湾等疯狂举动，同样来自他精神与人格的双重缺陷。 
+报道称，这位联邦法官的裁决适用于10个州的起诉阻止拜登政府的11月5日的强制疫苗规定的医护人员。这些州包括了阿拉斯加、阿肯色、爱荷华、堪萨斯、密苏里、内布拉斯加、新罕布什尔、北达科他、南达科他和怀俄明。
 
-郭先生痛心地警告，习继续下去，中国人民将为此付出难以想象的沉重代价。
+报道说，川普总统任命的这位美国联邦法官马修·斯凯普(Matthew Schelp)似乎认为, 拜登的这项强制疫苗规定将导致医护人员的短缺。
 
-参考链接：[2021年11月28日 文贵大直播：新变种Omicron 如临大敌；青蒿素妙药必将解救众生；中共国世界股票剧烈震荡；新中国联邦坚守唯真不破](https://gtv.org/video/id=61a3828b44c1fe7a6c3aaf29)
+斯凯普在一份32页的命令中写道:  “天平明显支持医疗机构在有一些未接种疫苗的员工、工作人员、受训人员、学生、志愿者和承包商的情况下运作，而不是要求医疗机构在提供不合格的医疗服务，或根本不提供医疗服务，这两个不理想的选择中做出选择  从而造成迅速的、不可补救的影响。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+据报道，在美国卫生与公众服务部(Department of Health and Human Services)的一个机构推出其疫苗规则的几天后，由这 10 个州的州检察长组成的联盟向联邦法院提起了诉讼。这些州检察长认为，这项强制规定侵犯了各州的权利，超出了该机构的权限，而且其颁布没有遵循适当的程序。
 
-总编：文真
-编辑：Kathy文艺
-校正/发稿：谐趣园
+该案件还在进行的过程中，但是这项裁决为这10个州的，接受医疗补助或医疗补助资金的医疗机构中，反对接种疫苗的工作人员带来了暂时的胜利。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**新闻来源：****[Judge halts Biden vaccine mandate for health workers in 10 states](https://thehill.com/regulation/583397-judge-halts-biden-vaccine-mandate-for-health-workers-in-10-states?rl=1)**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

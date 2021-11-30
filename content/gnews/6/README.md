@@ -2,13 +2,13 @@
 ---
 
 
-## 日本决定封国以应对中共病毒扩散
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1707088/)
+## 约翰·巴拉索: 拜的登疫苗强制令是错误的，造成国家分裂
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1707112/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11._30-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
+11/28/2021 共和党参议员约翰·巴拉索：作为一名医生，我反对强制疫苗令。 现在出现Omicron新型变种病毒，将来还会继续有新的变种病毒出现。我认为总统的强制令是错误的。总统的强制令实际已经造成国家分裂。
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,88 +2,168 @@
 ---
 
 
-## 币圈新闻动态：喜币（HCN）价格目前在34.119 HDO
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1706824/)
+## 每日快报：又一联邦法官反对，白宫悄悄推迟强制疫苗
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1706888/)
 
-*喜马拉雅华盛顿DC 编辑：aQ*
+*作者：*冰川
 
-![](http://himalayawashingtondc.org/wp-content/uploads/2021/07/ScreenShot-2021-07-31-at-16.20.22@2x.png)
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/每日快报.png)
 
+# ***今日摘要***
 
-
-## 每日一问
-
-
-
-
-
-交易市场震荡时如何吸筹？
+1. 又一联邦法官反对，白宫悄悄推迟强制疫苗
+2. 美联储主席警告说omicron可能使供应链问题恶化
+3. 司法部阻止了史蒂夫-班农关于透明度和解封文件的要求
+4. NBA球员、活动家成为美国公民，将改名为Enes Kanter Freedom
 
 
+# 重要事件
+
+- ** 11.29. Zerohedge：**[又一联邦法官反对，白宫悄悄推迟强制疫苗 White House Quietly Delays Vaccine Mandate As Another Federal Judge Objects](https://www.zerohedge.com/political/another-federal-judge-blocks-biden-vaccine-mandate-omicron-emerges)
+另一家联邦法院已经决定阻止拜登白宫的强制COVID，这次法官聚焦在要求保健工作人员要么接受注射，要么告别他们的工作。
+
+本月早些时候，德克萨斯州的一名法官阻止了白宫通过大公司的方式执行其部分任务。现在，一位不同的联邦地区法官，这次是在密苏里州，正在阻止拜登政府对大约10个州的医护人员实施疫苗授权。同时，根据媒体周一获得的一份备忘录，随着越来越多的法院反对这项强制，白宫正在悄悄地告诉联邦机构，他们可以推迟解雇不遵守强制疫苗的联邦工作人员，直到假期结束。报道称，该决定的来源是白宫管理和预算办公室（OMB）。据喜欢拜登的ABC新闻报道，这一变化尚未公开宣布，因为拜登总统正在向私人雇主施压，要求他们推出自己的任务。
+
+密苏里州东区联邦地方法院周一对要求卫生工作者在2022年1月4日前接种疫苗的强制发布了初步禁令。法律观察家们说，如果该禁令被上诉，它将落入第八巡回法庭，该法庭在14名法官中只有一名由民主党人任命的现任或资深法官。拜登早在9月就宣布，政府正在推出这项规则，要求所有拥有100名或以上雇员的私人雇主强制注射COVID-19疫苗或每周进行病毒测试。在他们的文件中，政府律师辩称，推迟强制疫苗 “将危及成千上万的人，并可能每天损失许多生命。随着工作场所的重新开放和高度传播的Delta变体的出现，对工人的威胁是持续的和压倒性的”。
+- ** 11.29. Washington Examiner：**[美联储主席警告说omicron可能使供应链问题恶化 Fed chairman warns omicron could worsen supply chain problems](https://www.washingtonexaminer.com/news/powell-omicron-inflation-hampering-economy)
+美联储主席杰罗姆-鲍威尔将作证说，COVID-19的omicron变体最终可能会损害经济并使通货膨胀恶化。
+
+最近刚刚被总统乔-拜登重新提名继续掌舵央行的鲍威尔，将于周二与财政部长珍妮特-耶伦一起在参议院银行委员会作证，除了其他询问外，他还将被问及有关新的omicron变体的问题。”最近COVID-19病例的增加和omicron变体的出现给就业和经济活动带来了下行风险，并增加了通胀的不确定性，”鲍威尔在为周二的证词准备的发言中说。”对病毒的更大担忧可能会降低人们亲自工作的意愿，这将减慢劳动力市场的进展，并加剧供应链的中断。
+
+周五，在投资者受到omicron的惊吓后，市场出现了2021年的最大跌幅，世界卫生组织将其称为 “令人担忧的变种”。几个国家已经确认了这种新变种的病例，据信这种变种首先出现在非洲南部。拜登决定封锁来自几个非洲国家的旅行，因为担心omicron可能比以前的菌株更致命或对疫苗接种更有抵抗力，尽管专家认为可能需要几天或几周的时间来确定它对国家构成多大的威胁。如果该病毒让人们感到足够恐惧，导致公众呆在家里，不在商店和剧院消费，例如，经济增长几乎肯定会放缓。变异体对通货膨胀的可能影响更为复杂。在截至10月的一年中，通货膨胀率为6.2%，是三十年来的最高水平。9月份大约有440万人辞职，略高于前一个月的另一个记录。离职人数是美国大约20年前开始记录以来的最高数字，相当于国家劳动力的3%左右。
+- **11.29. Gateway Pundit：**[腐败的司法部阻止了史蒂夫-班农关于透明度和解封文件的要求–政权被人民和真相吓坏了 Corrupt DOJ Blocks Steve Bannon’s Request for Transparency and to Unseal Documents — Regime Frightened by the People and the Truth](https://www.thegatewaypundit.com/2021/11/corrupt-doj-blocks-steve-bannons-request-transparency-unseal-documents-regime-frightened-people-truth/)
+司法部周一拒绝了史蒂夫-班农关于透明度的要求和他从司法部解封有关虚假的J-6委员会调查文件的权利。司法部称这是史蒂夫-班农试图通过公开所有文件和材料来 “在媒体上审判此案”，以便美国人能够自己做出决定。该政权并不希望这样。
+
+联邦检察官周日晚间提出动议，阻止川普前顾问史蒂夫-班农公开他从司法部收到的文件，他们指控这是企图 “在媒体上而不是在法庭上审判此案”。班农因拒绝与调查1月6日叛乱的委员会合作而被指控犯有两项藐视国会罪，他此前已宣布将对这些指控 “发起进攻”。检察官在文件中写道：”辩方的误导性主张、未进行协商、未解释的全盘反对以及法外声明，都清楚地表明了辩方的真正目的：滥用刑事证据，在媒体而不是法庭上审判此案。“班农的律师正在努力解封本案的所有证据，包括大陪审团的证词，联邦检察官对此表示反对，声称这样做将相当于 “篡改证人”。
+- ** 11.29. Zerohedge：**[NBA球员、活动家成为美国公民，将改名为埃内斯-坎特 -自由 NBA Player, Activist To Change Name To Enes Kanter Freedom, Become US Citizen](https://www.zerohedge.com/geopolitical/nba-player-activist-change-name-enes-kanter-freedom-become-us-citizen)
+据媒体报道，波士顿凯尔特人队中锋埃内斯-坎特（Enes Kanter）将于周一成为美国公民，并将其名字合法地改为埃内斯-坎特 -自由（Enes Kanter Freedom） 。坎特的经纪人告诉美联社，这位29岁的NBA球员将在完成入籍宣誓仪式后正式改名。今后，坎特将是他的中间名，而自由将是他的新姓氏。
+
+坎特是土耳其人，但由于他的政治观点，总统埃尔多安的政府禁止他回国旅行。土耳其在2017年撤销了他的护照。最近几个月，坎特一直对中国的人权问题发表意见，并批评中国共产党（CCP）对维吾尔人的待遇。人权团体、研究人员、前居民和一些西方立法者说，新疆当局在西北地区的营地网络中任意拘留了约100万维吾尔人和其他少数民族，为强迫劳动提供了便利。坎特还称中国领导人习近平为 “残暴的独裁者”，导致凯尔特人队的比赛被中国媒体撤下。他还为西藏人民发声。
 
 
-
-## 喜马拉雅交易所要闻
-
-
-
-
-
-- 喜交所网站行情显示，喜币（HCN）价格目前在34.119 HDO，24H最高价格为37.555 HDO，24H最低价格为30.915 HDO，24H成交量约为354,271.996 HCN。
-
-
-
-
-
-
-## 新闻动态
-
-
-
-
-
-1. BitcoinNews报道，俄罗斯Brand Analytics是一家专门从事CIS地区媒体监控的公司，最近发布了一份报告根据它们在社交媒体上的俄语对话中出现的频率，对最受欢迎的加密货币进行排名。其中，比特币是最受欢迎的10种数字货币中排名第一，提及次数为4,415,200。稳定USDT以855,800位居第二，莱特币(LTC)以424,300位居第三，ETH以417,900次被提及位居第四。
-2. 官方消息，DeFi聚合器XY Finance完成1,200万美元融资，Circle、Infinity Ventures Crypto、Mechanism Capital、Morningstar Ventures、YGG(Yield Guild Games)、Animoca Brands、MEXC Global、TRON Foundation、gCC、Lemniscap、Evernew Capital、PANONY、Axia8和Looksrare.vc等多家交易所、风投机构、研究公司、GameFi DAOs和游戏开发商参与投资。新资金将用于探索DeFi、NFT和GameFi等领域。
-3. Businesswire报道，比特币矿池运营商Titan的去中心化算力路由协议Lumerin完成600万美元私人销售，投资方和战略合作伙伴包括Cadenza Ventures、Fundamental Labs、Outlier Ventures、Tribe Capital、Digital Finance Group和Caballeros Capital等。据悉，Lumerin通过智能合约将比特币算力商品化，Lumerin协议允许比特币算力成为一种可交易的、流动的金融资产。
-4. TheBlock报道，云银行初创公司Thought Machine完成2亿美元融资，以帮助银行进入云时代，该轮融资由Nyca Partners领投。Thought Machine计划利用资金在全球扩张，尤其是在亚洲马来西亚和日本。Thought Machine由前Google员工Paul Taylor于2014年创立，作为银行业的基础设施即服务运营，它旨在帮助传统参与者进入云原生核心银行业务。
-5. 11月30日消息，加密交易公司Satori Research宣布已完成A轮融资，具体融资金额未披露，Alameda Research和Alan Howard参投。
-6. 官方信息，MetaVisa近日宣布完成500万美元种子轮及私募轮投资。据悉，MetaVisa是建立在以太坊上致力于发展元宇宙去中心化身份及信用体系的第三层中间件协议。通过分析区块链数据，帮助用户建立和显示可靠的链上身份和信用记录。
-7. KoreaHerald报道，韩国电信巨头SK电讯旗下投资公司SK Square周一宣布斥资900亿韩元（7550万美元）收购韩国四大加密货币交易所之一的Korbit 35%股权，成为其第二大股东。Korbit最大股东是韩国游戏厂商Nexon的控股公司NXC。SKSquare称通过此次投资，公司将与Korbit进一步升级服务，为更多虚拟资产投资者提供更准确可靠的投资信息和安全的交易环境。
-8. 11月29日消息，NFT元宇宙平台Dvision Network与NFT社交平台DeFine达成战略合作，所有在Dvision Marketplace上购买的NFT都可以在DeFine的平台上进一步交易。Dvision NFT扩展到DeFine的生态系统使Dvision元宇宙相关的数字资产具有更广泛可用性、可交易性和外展性。
-9. CoinDesk报道，资产管理公司Wisdom Tree已在瑞士证券交易所SIX和法兰克福交易所Xetra上市了三只加密货币篮子交易所交易产品（ETPs）。据悉，这些ETP追踪由Wisdom Tree开发的专有指数，分别是Wisdom Tree Crypto Market（BLOC）、Wisdom Tree Crypto Altcoins（WALT）和Wisdom Tree Crypto Mega Cap Equal Weight（MEGA）。
-10. Forkast报道，日本作家Miyuki Ono的科幻小说“Pure”NFT版本目前在OpenSeaNFT市场上出售。
-11. 卫报报道，伦敦皇家芭蕾舞团舞者Natalia Osipova将拍卖世界上第一部芭蕾舞NFT，以“扩大芭蕾的吸引力”。据悉，Osipova演奏了三支作品，两首为Giselle，一首为当代二重唱《Leftbehind》，并与未婚夫Jason Kittelberger共舞。这三支作品将共同组成Natalia Osipova:Triptych，并于12月10日在Bonhams拍卖。
-12. 11月30日消息，EVIO今天宣布将与Chroma Signet合作，为其客户提供区块链验证服务。EVIO将提供验证服务并协助其客户加入Chroma Signet的去中心化自治组织(DAO)。该DAO将通过帮助他们获得一种特殊形式的NFT来为其成员提供服务，使客户能够轻松验证整个大麻供应链中大麻产品所附的加密签名的来源。
-13. 11月30日消息，意大利豪华游艇VIANNE的所有者宣布将出售该游艇，客户在支付10%的法币（欧元或美元）押金后，销售的余额可以用任何主要的加密货币支付，包括BTC、ETH、DOGE、SOL、FTM、BNB和顶级NFT，包括Cryptopunks、BAYC Apes等。VIANNE售价为890万欧元。
-14. 11月30日消息，加密交易所Kraken已增加了对ShibaInu（SHIB）的支持。目前已开启存款，最低存款额为373,000SHIB。交易将于周二上线，Kraken用户将能够用美元和欧元购买和交易SHIB。
-15. Investmentweek报道，景顺Invesco正在推出现货比特币ETP，年费固定为0.99%。比特币将由Zodia Custody代表Invesco ETP持有，Zodia Custody是一家英国数字资产托管公司，该公司根据英国反洗钱法规在FCA注册加密资产业务。
-16. 11月29日，据官方消息，以太坊隐私交易平台Tornado.Cash计划部署至Arbitrum。Tornado的智能合约已经全部设置完成，只需通过社区的帮助完成部署和启动。此前Tornado.Cash已成功部署至Binance Smart Chain、Polygon、xDAI Chain和Avalanche。
-17. 11月29日，据官方消息，Cryptocom的EVM兼容链Cronos宣布其主网测试版上线3周TVL突破10亿美元。Cronos主网测试版共有46个项目，13万个独立地址，其中有5个协议TVL均超过5000万美元。
-18. 官方消息，HSC虎符智能链上项目PuddingSwap将于11月30日21:00（GMT+8）新增GALA-HOO、GALA-PUD流动性矿池。Gala Games由游戏和区块链行业的大咖创立。
-19. 11月29日消息，去中心化跨链NFT平台NFTrade宣布集成Tezos，Tezos费用低速度快的优势可以让用户或开发团队轻松创建、购买、出售、点对点交换NFT
-20. DGAP报道，绿色数据中心开发商Soluna Holdings布，现在为清洁能源发电厂所有者和开发商提供定制评估服务，以减少成本高昂的限电问题。自定义限电评估是一项受NDA保护的专有项目级数据审查服务，通过Soluna的模块化数据中心（MDC）对缩减的电力进行灵活的分输，估算损失和可收回的收入。
-21. 官方消息，TRC20-USDC已正式上线交易所KuCoin。USD Coin（USDC）是一个完全可抵押的对标美元的稳定币，它提供详细的财务和运营透明度，并在美国货币流通法的框架内运行，而且跟多家银行机构和审计团队合作。2018年10月，Circle和Coinbase共同宣布成立Centre联盟，这是Centre的第一个稳定币开源项目。
-22. 11月29日消息，StarkWare推出的以太坊Rollup扩容方案StarkNet Alpha今日上线以太坊主网。StarkNet是一个无需许可的以太坊L2网络去中心化Rollup扩容方案。StarkNet允许任何dApp实现其计算规模，而不会影响可组合性和安全性，它依赖于安全和具可扩展性的加密证明系统STARK。StarkNet建立在Cairo编程语言之上，Cairo和STARK均由StarkWare内部开发，并为生产级应用程序提供支持。
-23. 官方消息，Algorand基金会已在DeFi衍生品平台Theta Nuts开启ALGO期权金库，QCP Capital为做市商。Algorand基金会表示，该期权金库为最大山寨币期权金库。据悉，Theta Nuts是一个DeFi衍生品协议，通过结构化产品为用户提供机构级投资服务。该协议目前拥有BTC、ETH和多种山寨币期权金库。
-24. 11月30日消息，加密货币集团Galaxy Digital周一宣布，同意将3%的优先票据出售给合格的机构买家。这些票据可兑换为新成立的特拉华州控股公司Galaxy Digital的股份。除非提前交换、赎回或回购，否则这些票据将于2026年12月15日到期。
-25. 泰晤士报报道,由于担心该行业缺乏监管，英超联赛已承诺调查俱乐部与加密货币公司签署的越来越多的交易。该消息是在曼城不得不搁置其与加密货币初创公司3Key的交易之后发布的。然而，该联盟也承认，其正在考虑与一个提供“数字收藏品”(NFT)的平台建立合作伙伴关系。
-26. 11月30日消息，为了深化电子奈拉(e-naira)的采用，尼日利亚中央银行(CBN)已要求支付服务提供商、金融机构和金融科技公司开发和推出基于其数字货币的产品。CBN信息技术部门主管Rakiya Mohammed在向参加央行会议的金融机构和金融科技公司发表讲话时还向与会者保证，央行不会与金融机构或支付系统中的其他参与者竞争。
-27. 11月29日消息，法国财长勒梅尔表示，法国的首要任务之一将是建立数字欧元。
-28. Coindesk报道，印度《经济时报》报道，印度财政部表示，印度储备银行(RBI)在努力分阶段实施中央银行数字货币(CBDC)。央行计划在2022年试点测试CBDC。印度议会将在周一开始的冬季会议上讨论政府提出的备受期待的加密货币法案。根据11月23日的议会公告，该法案将禁止所有私人加密货币，只允许一些人推广基础技术，但还将寻求为RBI支持的数字货币建立一个框架。
-29. Bitcoin报道，英国央行行长安德鲁•贝利在在剑桥大学学生会发表讲话时，对萨尔瓦多将比特币作为法币表示担忧。贝利表示：“我担心一个国家会选择它作为本国货币。我最担心的是，萨尔瓦多公民是否了解他们拥有的货币的性质和波动性。”
-30. 路透社报道，以色列央行行长Amir Yaron周一表示，以色列央行正在加快研究、研究和准备可能发行数字谢克尔，旨在创建一个更有效的支付系统。
-31. 11月30日消息，荷兰百万富翁、该国左翼绿党前成员Zihni Özdil在推特上表示，他在短期内看好SHIB和DOGE。他还补充说，如果利率真的开始再次上升，你应该远离加密货币，而转向蓝筹股。
-32. 11月30日消息，推特宣布任命Parag Agrawal为首席执行官，接替Jack Dorsey。Jack Dorsey表示，“我已经决定离开Twitter，因为我相信这家公司已经准备好离开它的创始人。我深信Parag Agrawal能够胜任Twitter首席执行官，现在是由他领导的时候了。”
+# 每日文贵说
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/11/image0-1-1024x576.jpg)
+# 每日推特文摘
 
 
 
 
 
-*编辑：aQ
-发布：文顾*
 
 
- 
+
+
+拜习会刚结束,国内认为美中间的紧张关系似乎渐缓。但拜登政府首先近日称将考虑外交抵制北京冬奥会。11月23日美军伯克级驱逐舰又穿越台湾海峡。似乎美中关系紧张程度不降反升。11月24白宫再公布将邀请台湾代表参加12月9/10日举行的首届民主峰会Summit of Democracy，但没邀请中国,中共对此表示强烈抗议!
+
+
+
+
+
+> 拜习会刚结束,国内认为美中间的紧张关系似乎渐缓。但拜登政府首先近日称将考虑外交抵制北京冬奥会。11月23日美军伯克级驱逐舰又穿越台湾海峡。似乎美中关系紧张程度不降反升。11月24白宫再公布将邀请台湾代表参加12月9/10日举行的首届民主峰会Summit of Democracy，但没邀请中国,中共对此表示强烈抗议! [pic.twitter.com/mugqG1N3RP](https://t.co/mugqG1N3RP)
+> — Bo Lu II (文龍） (@BoLu213) [November 29, 2021](https://twitter.com/BoLu213/status/1465324136985776138?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+2016年3月28日彼得·达扎克描述在中国实验室制造导致全球疫情的病毒:”我们在蝙蝠中发现了冠状病毒,与 SARS 非常相似，我们对附着在细胞上的刺突蛋白进行了测序。我在中国的同事从这些病毒中创建刺突蛋白，与人体细胞结合。”文件表明了他和福奇在与武汉的中国病毒学家合作工作。
+
+
+
+
+
+> 2016年3月28日彼得·达扎克描述在中国实验室制造导致全球疫情的病毒:"我们在蝙蝠中发现了冠状病毒,与 SARS 非常相似，我们对附着在细胞上的刺突蛋白进行了测序。我在中国的同事从这些病毒中创建刺突蛋白，与人体细胞结合。"文件表明了他和福奇在与武汉的中国病毒学家合作工作。[https://t.co/i9TB6Tgv2y](https://t.co/i9TB6Tgv2y)
+> — Bo Lu II (文龍） (@BoLu213) [November 29, 2021](https://twitter.com/BoLu213/status/1465421025265528836?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+推特CEO 杰克·多西即将下台！ 2020年大选期间，推特恶毒地对川普的推特账号贴黄标，最后干脆封号，为欺诈选举推波助澜。 标普股指今年以来高升23%，而推特股价暴跌近10%，迫使多西引咎辞职。 这是不是报应？
+
+
+
+
+
+> 推特CEO 杰克·多西即将下台！
+> 2020年大选期间，推特恶毒地对川普的推特账号贴黄标，最后干脆封号，为欺诈选举推波助澜。
+> 标普股指今年以来高升23%，而推特股价暴跌近10%，迫使多西引咎辞职。
+> 这是不是报应？[https://t.co/vnUh3s23WV](https://t.co/vnUh3s23WV)
+> — 瞿水台 Qu Shuitai (@QuShuitai) [November 29, 2021](https://twitter.com/QuShuitai/status/1465422539979640836?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+我只是在想我最想看到的其他被赶出Twitter的人……
+
+就像这位与中国共产党有联系的人工智能专家，他想隐藏 “秘密 “武器合同
+
+
+
+
+
+> Just thinking about other people I'd love to see booted from Twitter…
+> 
+> Like this Chinese Communist Party-Linked AI expert who wanted to hide "secret" weapons contracts[https://t.co/XtacZfCWZo](https://t.co/XtacZfCWZo)
+> — Natalie Winters (@nataliegwinters) [November 29, 2021](https://twitter.com/nataliegwinters/status/1465421061072162816?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+慎重考虑是否接受疫苗护照的概念
+
+
+
+
+
+> Think Carefully About Accepting The Concept Of Vaccine Passports [https://t.co/HXmyMk6ENI](https://t.co/HXmyMk6ENI)
+> — zerohedge (@zerohedge) [November 29, 2021](https://twitter.com/zerohedge/status/1465450587131101192?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+*编辑：冰川
+审核发布：文顾*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

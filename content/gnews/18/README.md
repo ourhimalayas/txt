@@ -2,10 +2,10 @@
 ---
 
 
-## Enes Kanter calls for US to boycott 2022 Beijing Winter Olympic
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1706880/)
+## 11/24郭文贵直播：赵长鹏藏身迪拜和中共勾兑（粤语配音）
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1706977/)
 
-11/24/2021 波士顿凯尔特人队中锋伊内斯·坎特呼吁抵制2022年北京冬奥会，并寄语所有运动员，你的价值观、原则和道德比世界上任何金牌更重要
+11/24/2021 郭文贵直播：赵长鹏藏身迪拜便于和中共勾兑且不会被遣返，他的新任务是打压喜币；请全世界在币安开过账号的人站出来并集体起诉赵长鹏；我们会和美欧政府合作将其绳之以法。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

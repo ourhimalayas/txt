@@ -2,12 +2,31 @@
 ---
 
 
-## 11/26郭文贵直播：中共在联合国成立了“反对反冬奥会组织”（粤语配音）
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1706978/)
+## GTV新闻访谈简报|2021年11月29日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1707050/)
 
-11/26/2021 郭文贵直播：中共在联合国成立了“反对反冬奥会的组织”；杨洁篪和许其亮去哪儿了？谁喊打台湾谁染病──绿帽子王染病了；绝密情报：中共近期参加演习的部队自认为打不赢台湾。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/11/新.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/1129text-SC.png)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
+
+
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+视频参看：[11.29  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61a57e4e44c1fe7a6c3b9392)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-424.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

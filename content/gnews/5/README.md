@@ -2,8 +2,10 @@
 ---
 
 
-## 英卫生大臣：中共病毒新变种可能对公众健康构成实质性威胁
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1707092/)
+## 瑞士马路上设立分隔栏区分接种过疫苗的和未接种的人通行
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1707134/)
+
+11/28/2021 瑞士马路上设立了分隔栏区分接种过疫苗的和未接种的人通行
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

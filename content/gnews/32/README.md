@@ -2,33 +2,13 @@
 ---
 
 
-## 美国为与中共争夺东盟 询问东盟会谈意向
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1706687/)
+## 理查德·巴里斯讲解民调结果：多数人反对疫苗强制令
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1706790/)
 
-作者：东京樱花团 – 在远方
-![](https://assets.gnews.org/wp-content/uploads/2021/11/新.png)
-11月28日，多名外交相关人士透露，针对中共不断与东盟加强关系的频频举动！拜登政府询问东盟意向，能否于明年1月中旬，在华盛顿与美国政府举行面对面首脑会议。此举更加凸显美国高度重视亚洲地区的政治局势的发展！
-![](https://assets.gnews.org/wp-content/uploads/2021/11/gettyimages-1229769415-2560x1707-1.jpeg)
-据悉，本月22日，中共与东盟举行了视频连线纪念峰会。在视频会上，中共党魁习近平宣布双方关系正式升级为“全面战略伙伴关系”！同时，美国为了争取与东盟的合作关系和在亚洲地区的战略布局，就此与中共展开了激烈的拉锯战。
+11/24/2021 理查德·巴里斯讲解了他团队所做的有关中共病毒疫苗的民意调查结果。大多数的参与者反对雇主疫苗强制令。在此强制令下，雇主必须开除不接种疫苗的员工，否则雇主将受到严厉的惩罚。巴里斯的团队也跟踪了人们接种中共疫苗后产生严重不良反应的相关数据。他们发现越年轻的群体，接种疫苗后遭受的不良影响越严重。
 
-相关消息人士透露，预计美国和东盟的特别首脑会议，将不会邀请非国际社会认可的缅甸军政府！而布林肯拟定于12月中旬访问印尼和泰国，展开相关协调准备工作。
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-**参考阅读：**[https://china.kyodonews.net/news/2021/11/7a268fa68956.html](https://china.kyodonews.net/news/2021/11/7a268fa68956.html)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-419.jpeg)
-编辑/校对/发稿：文留
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/新.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

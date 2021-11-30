@@ -2,10 +2,8 @@
 ---
 
 
-## 维多利亚州大规模抗议反对疫苗强制接种及相关法案
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1707019/)
-
-11/26/2021 根据澳大利亚天空新闻现场报道，作为澳大利亚全国抗议活动的一部分，数十万维多利亚州民众聚集在国库花园进行大规模抗议示威，反对疫苗强制接种令和拟议中的流行病法案。示威民众来自不同的职业背景
+## 英卫生大臣：中共病毒新变种可能对公众健康构成实质性威胁
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1707092/)
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
