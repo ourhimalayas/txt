@@ -16,6 +16,18 @@
 ---
 ## 頁面 8/37 [**<**](/content/README-7.md) [1](/content/README.md) ... [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) **8** [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) ... [37](/content/README-37.md) [**>**](/content/README-9.md) [查看全部](/content/README-all.md)
 
+[文字版：2020年11月21日文贵先生直播视频](/content/2020/12/20201209-6376875867883726682.md)
+
+[文字版：2020年11月20日郭文贵先生直播视频](/content/2020/12/20201209-19876771016008543.md)
+
+[文字版2020年12月8日郭先生GTV直播](/content/2020/12/20201208-672086.md)
+
+[文字版2020年12月6日郭先生GTV直播](/content/2020/12/20201206-671333.md)
+
+[文字版2020年12月4日郭先生GTV直播](/content/2020/12/20201204-669763.md)
+
+[文字版2020年12月3日郭先生GTV直播](/content/2020/12/20201203-669633.md)
+
 [文字版2020年12月2日郭先生GTV直播](/content/2020/12/20201202-669524.md)
 
 [2020年12月1日郭先生盖特视频文字版](/content/2020/12/20201201-613214.md)
@@ -53,18 +65,6 @@
 [文字版:2020年9月26日郭先生GTV直播](/content/2020/10/20201003-1014274309500025995.md)
 
 [文字版：2020年9月25日郭先生GTV盖特视频](/content/2020/10/20201003-8061043817760123963.md)
-
-[文字版:2020年9月24日郭先生GTV直播](/content/2020/10/20201003-8524459119651508821.md)
-
-[文字版:2020年9月20日郭先生GTV直播](/content/2020/09/20200926-3423558412983946225.md)
-
-[文字版:2020年9月19日郭先生GTV直播](/content/2020/09/20200926-954028387970316580.md)
-
-[文字版:2020年9月17日郭先生GTV直播](/content/2020/09/20200926-1150166459194589190.md)
-
-[文字版:2020年9月13日郭先生GTV直播](/content/2020/09/20200926-5663801126723482334.md)
-
-[文字版:2020年9月9日郭先生GTV直播](/content/2020/09/20200926-1971840848005876799.md)
 
 
 ## 頁面 8/37 [**<**](/content/README-7.md) [1](/content/README.md) ... [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) **8** [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) ... [37](/content/README-37.md) [**>**](/content/README-9.md) [查看全部](/content/README-all.md)
