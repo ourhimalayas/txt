@@ -2,30 +2,28 @@
 ---
 
 
-## 美国最高法院拒绝麻州医护人员疫苗暂停申请
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1707500/)
+## 美军紧锣密鼓开启全球部署剑指中共
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1707594/)
 
-撰稿/新闻采集：纽约香草山 – AlexZ
-![](https://assets.gnews.org/wp-content/uploads/2021/11/新.png)
-11月29日，美国最高法院拒绝对马萨诸塞州综合医院（Mass General Brigham）的医护人员给予救济。第一巡回法庭极左派大法官布雷耶，并没有做出任何解释，而拒绝了医护人员紧急禁令的请求。 该医院工作人员因拒绝接种疫苗并被解雇或无薪休假。员工们寻求宗教或医疗豁免，但遭到拒绝。员工称，医院的强制疫苗政策侵犯了他们的宗教自由，或会对他们的健康构成威胁。所以，他们以该医院违反了禁止歧视的联邦法律为由提起诉讼。 但最终，这一诉讼还是被布雷耶大法官驳回。据悉，上个月布雷耶也曾拒绝审理一项试图阻止缅因州医护人员强制疫苗的紧急上诉。
+撰稿：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-955.png)[图片来源](https://www.bbc.com/japanese/55226830)
+美国国防部29日宣布，已完成对拜登政府推动的全球美军部署系统的审查。为遏制中共国的侵略性行为，并应对正在开发核武器和导弹的朝鲜所构成的威胁，印太地区被定位为“重中之重”。该审查包括扩大美国在澳大利亚以及关岛军事基地的设施及功能。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11301-1.png)
-![](https://www.thegatewaypundit.com/wp-content/uploads/supreme-court.jpg)
-新闻链接：[US Supreme Court Refuses to Block Vaccine Mandate For Massachusetts Hospital Workers](US%20Supreme%20Court%20Refuses%20to%20Block%20Vaccine%20Mandate%20For%20Massachusetts%20Hospital%20Workers)
+审查的大部分内容是保密的，没有公开。2月，拜登总统指示国防部长奥斯汀编写这份文件，该文件是在与包括日本、韩国和北大西洋公约组织（NATO）在内的盟友协商后整合编制的。这也将反映在美国政府目前正在制定的国防战略中。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-419.jpeg)
+五角大楼的一名高级官员在29日的新闻发布会上，就该计划做了简单陈述。一些工作已经开始。9月，美澳政府同意扩大在澳大利亚巡逻的美军用飞机规模。还决定将在韩国驻扎一支攻击型直升机部队。
 
-總編：文徬
+关于中东问题，报告评估了针对正在开发核武器的伊朗的应对措施，以及美国在阿富汗撤军后的反恐对策。该计划还强调了，在消灭伊拉克和叙利亚境内的伊斯兰国（IS）武装组织的行动中，支持伊拉克部队等方面的必要性。
 
-校正/发稿：浪迹天涯
+在欧洲，针对俄罗斯军事恐吓导致乌克兰局势紧张，美方应“加强威慑，使北约部队能够更有效地运作”。2月，拜登政府撤回了前特朗普政府宣布的减少驻德美军的计划。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/新.png)
+项庄舞剑意在沛公，美方如此紧锣密鼓，携手同盟国，全球部署部队，意在谁，大家都心知肚明。中共，你真的完了!
+
+信息源：[回顾全球扩张，通过在美国、澳大利亚和关岛扩大军备来威慑中国](https://news.yahoo.co.jp/articles/19d2969fed9eac37b9a8dc33105dc350e31056f1)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

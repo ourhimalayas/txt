@@ -2,36 +2,42 @@
 ---
 
 
-## 福奇自称“我是科学”遭参议员克鲁兹和保罗炮轰“惊人的专制”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1707226/)
+## 最早发现Omicron变种的医生称该病毒表现 “温和”
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1707302/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-44.png)
-图片来源：
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-零对冲网11月29日报道，福奇再次自称他代表科学，而泰徳·克鲁兹和兰徳·保罗炮轰他是“一个未被选举的狂妄自大的技术官僚。” 警告他已经为了实施独裁控制而“扭曲了科学”。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Omicron-Coronavirus-Variant-2111281622-1.jpg)图片来源：www.businessinsiderbd.com/Representational
 
-福奇在CBS新闻访谈中对着整个国家宣称，说：“任何人谎话连篇，来自参议院调查委员会以及兰徳·保罗之流的威胁，都是毫无道理的。”
 
-他进一步自称：“如果你要攻击我，你是在攻击科学。”
+#### 编译：小红帽
 
-这已经不是福奇第一次声称他就是科学。在针对克罗兹建议福奇需要被审判一事，福奇说：“我不得不笑了，我应该被审判？参议员，1月6日发生了什么？”
+**最早发现新冠病毒（COVID-19）的Omicron变种的医生说，该变种表现 “温和”，并没有造成住院人数的增加，这是对全球恐慌的反驳。**
 
-克罗兹和保罗很快作出了反应，保罗发推说：“这绝对是狂妄自大的人居然自称代表科学，这是惊人的而且警示人们一个公众健康官僚居然会如此自称，尤其是一个拼命想要忽略天然免疫科学的人。” 克罗兹发推说：“福奇是一个未经选举的技术官僚，他为了对千百万美国人实施独裁控制，已经扭曲了科学和事实。”
+世界各国政府正在实施新的旅行禁令和其他病毒限制措施，以应对新病毒株传播性更强且比德尔塔（delta）病毒更致命的说法。
 
-克鲁兹罗列了一系列事实：
+然而，那些在南非当地拥有最多专业知识的人都在说相反的话。
 
-1. 5月11日福奇发誓说“国立卫生研究院NIH从未，而且现在也不会资助在武汉病毒研究所进行的“功能增强试验”。
+部长级疫苗咨询委员会主席巴里·舒布(Barry Schoub) 告诉天空新闻，这种恐慌是错误的。
 
-2. 10月20日，NIH写了他们资助了武汉实验室进行的实验，题目是“来自自然的中国蝙蝠冠状病毒刺突蛋白是否能与在小鼠动物模型上的人类ACE2受体结合”。
+“到目前为止发生的病例都是轻度病例，轻度至中度病例，这是一个好兆头”。
 
-3. 福奇的声明与10月20日NIH写的信不可能两者都是真实的，福奇的声明是自相矛盾的
+舒布再次反驳了新菌株可能比德尔塔更危险的说法，他还指出，omicron可能很快成为主要病株，因此与德尔塔菌株相比，不太 “合适”。
 
-4. 根据美国宪法第18条1001条款，对国会撒谎是重罪，最高可判入狱5年。
+南非医学协会主席安吉丽·库切（Angelique Coetzee）对舒布的观点表示赞同，她指出，感染omicron的病人“症状（与）我以前治疗过的病人有很大不同，而且非常轻微”。
 
-福奇应该或者作一个详细的基于事实澄清，或者司法部应该考虑因他对国会撒谎而对他进行审判。
+当被问及当局是否在进行不必要的恐慌时，库切回答说 “当然”，并试图消除危言耸听的恐惧。
 
-新闻来源： [Sens. Cruz, Paul Blast “Astounding Authoritarian” Fauci For “I Am Science” Claim](https://www.zerohedge.com/political/sens-cruz-paul-blast-astounding-authoritarian-fauci-i-am-science-claim)
+**参考新闻：**[Doctor Who First Discovered Omicron Variant Says It’s “Mild,” Hasn’t Caused Uptick in Hospitalizations – Summit News](https://summit.news/2021/11/29/doctor-who-first-discovered-omicron-variant-says-its-mild-hasnt-caused-uptick-in-hospitalizations/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

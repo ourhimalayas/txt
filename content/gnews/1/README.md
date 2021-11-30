@@ -2,28 +2,44 @@
 ---
 
 
-## 美军紧锣密鼓开启全球部署剑指中共
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1707594/)
+## 秘翻在线: Twitter首席执行官杰克‧多尔西为什么离职?
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1707666/)
 
-撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-955.png)[图片来源](https://www.bbc.com/japanese/55226830)
-美国国防部29日宣布，已完成对拜登政府推动的全球美军部署系统的审查。为遏制中共国的侵略性行为，并应对正在开发核武器和导弹的朝鲜所构成的威胁，印太地区被定位为“重中之重”。该审查包括扩大美国在澳大利亚以及关岛军事基地的设施及功能。
+撰稿:牛小妹
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Image-1-3.jpg)
+图片:GETTY　IMAGES
 
-审查的大部分内容是保密的，没有公开。2月，拜登总统指示国防部长奥斯汀编写这份文件，该文件是在与包括日本、韩国和北大西洋公约组织（NATO）在内的盟友协商后整合编制的。这也将反映在美国政府目前正在制定的国防战略中。
+**Twitter禁言川普，多尔西承认失败**
 
-五角大楼的一名高级官员在29日的新闻发布会上，就该计划做了简单陈述。一些工作已经开始。9月，美澳政府同意扩大在澳大利亚巡逻的美军用飞机规模。还决定将在韩国驻扎一支攻击型直升机部队。
+2021年 1 月，在美国国会大厦遭到袭击之后，Twitter禁止川普发言，Twitter首席执行官杰克·多尔西（Jack Dorsey）坚称川普的推文「分裂了美国」，但之后承认这是推特在促进自由言论方面的失败。根据美国广播公司商业频道（CNBC）的报导，多尔西已辞去首席执行官。
 
-关于中东问题，报告评估了针对正在开发核武器的伊朗的应对措施，以及美国在阿富汗撤军后的反恐对策。该计划还强调了，在消灭伊拉克和叙利亚境内的伊斯兰国（IS）武装组织的行动中，支持伊拉克部队等方面的必要性。
+**推特成立比特币专属加密支付**
 
-在欧洲，针对俄罗斯军事恐吓导致乌克兰局势紧张，美方应“加强威慑，使北约部队能够更有效地运作”。2月，拜登政府撤回了前特朗普政府宣布的减少驻德美军的计划。
+Facebook曾试图「铸造」自己的「货币」，推出Libra的新型稳定币，最终遭监管机构扼杀。Twitter没有行使Facebook的垄断权力，也不「铸造」自己的「货币」，而是选择加密支付工具「比特币」。
 
-项庄舞剑意在沛公，美方如此紧锣密鼓，携手同盟国，全球部署部队，意在谁，大家都心知肚明。中共，你真的完了!
+多尔西一直是比特币的支持者，9月24日，Twitter宣布向旗下3亿个活跃用户推出「小费」打赏服务，允许通过共享钱包或使用「Strik」应用程序，来发送或接收比特币。
 
-信息源：[回顾全球扩张，通过在美国、澳大利亚和关岛扩大军备来威慑中国](https://news.yahoo.co.jp/articles/19d2969fed9eac37b9a8dc33105dc350e31056f1)
+Twitter还宣布了另一项计划，让用户将他们的比特币钱包连接到与其身份相关的非同质化代币（Non-fungible token NFT），此计划促使数以千万计的人尝试使用比特币。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
+**Twitter比特币加密支付问题重重**
+
+Twitter的「小费/打赏」功能依赖使用过程繁琐的Strike，Strike也没有准备好应付全球支付网路相关的监管问题。另外，Strike是萨尔瓦多政府推出比特币支付服务的合作夥伴，相关税收规则一团糟，导致 Twitter 「小费/打赏」功能无法被大规模普及应用。
+
+另一方面，Twitter「只选择」比特币的做法，引发以太坊社群和DeFi支持者的反对。Twitter在用户的Twitter帐号上显示与他们钱包相关联的、基于NFT的徽章，但比特币区块链似乎无法胜任这项任务。Twitter也拒绝解释如何支持此项功能，不透明的政策必然导致失败的结果。
+
+**盖特GETTR将远远超过推特TWITTER**
+
+“你们不知道喜联储会有多牛!”郭文贵先生骄傲地说，横空而出的盖特远远超越Twitter。文贵先生设计的喜联储拥有自己的铸币权，即将上市的GETTR PAY 可以迅速与H COIN,H DOLLAR 相连接，形成一个中心化管理、去中心化无国界支付系统。
+
+所以，Twitter首席执行官杰克‧多尔西的离职，可能与Twitter不透明的比特币计划预见的失败有关?
+
+消息来源:
+[https://www.abmedia.io/20210607-jack-dorsey-would-leave-twitter-for-bitcoin](https://www.abmedia.io/20210607-jack-dorsey-would-leave-twitter-for-bitcoin)
+
+[https://www.cnbc.com/2021/11/29/twitter-ceo-jack-dorsey-is-expected-to-step-down-sources-say.htmlCNBC](https://www.cnbc.com/2021/11/29/twitter-ceo-jack-dorsey-is-expected-to-step-down-sources-say.htmlCNBC)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,12 +2,31 @@
 ---
 
 
-## 鲍比·肯尼迪的《真正的安东尼·福奇》揭示两股推手
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1707006/)
+## GTV新闻访谈简报|2021年11月29日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1707050/)
 
-11/24/2021 纳瓦罗：鲍比·肯尼迪的《真正的安东尼·福奇》揭示两股力量推福奇：美国医疗与公共健康官僚机构四巨头——前美国卫生及公共服务部部长阿萨尔，前疾病预防与控制中心主任雷德菲尔德，国立卫生研究院院长柯林斯，前食品药品管理局局长哈恩。更甚者是白宫办公厅的前代理幕僚长，麦克·马瓦尼和新闻通讯团队。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/11/新.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/1129text-SC.png)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
+
+
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+视频参看：[11.29  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61a57e4e44c1fe7a6c3b9392)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-424.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

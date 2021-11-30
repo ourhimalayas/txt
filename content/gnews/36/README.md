@@ -2,42 +2,40 @@
 ---
 
 
-## 最早发现Omicron变种的医生称该病毒表现 “温和”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1707302/)
+## 中共国紫光集团破产 负债近2000亿多家金融机构踩雷
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1707336/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+#### 撰稿：日本东京方舟农场  海星
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Omicron-Coronavirus-Variant-2111281622-1.jpg)图片来源：www.businessinsiderbd.com/Representational
+![](https://assets.gnews.org/wp-content/uploads/2021/11/28505DDC-161D-4059-817A-EFD7EED37D77.jpeg)图片来源：美联社
+
+据《自由时报》11月29日报道，中（共）国企业紫光集团已进入破产重整阶段，总负债近2000亿人民币，多家金融机构“踩雷”。
+
+紫光集团是中共国国内最大的校企，依托清华大学资源，多年来发展迅猛。然而在高负债的无序扩张之下，吹起的泡沫终于破裂。
+
+《自由时报》报道称，紫光集团7家企业债权申报金额高达1869亿人民币。其中，抵押债券近200亿人民币，多家金融机构“踩雷”。
+
+报道指出，债权人申报的担保债权有196亿人民币。其中，北京一家城商行清华园支行申报的债权达80亿人民币；中国银行北京市分行申报债权约22亿人民币；进出口银行申报的债权近39亿人民币；交通银行湖北分行对应的债权也有20亿人民币。
+
+而在普通债权中，国家开发银行湖北分行申报债权达65亿人民币；南京银行北京分行的债权敞口是21亿人民币；建行湖北分行申报债权17亿人民币；上海农商行申报债权13亿人民币；南京银行申报债权10亿人民币；江苏银行的风险暴露为12.4亿人民币。
+
+紫光集团破产不仅让银行“踩雷”，也令40多家持有紫光债权的私募基金、多家公募基金以及国民信托旗下的10多只信托计划“入坑”。
+
+此外，紫光集团还发行了大量美元债。据悉，仅花旗国际银行申报的2020/2021/2023/2028等4笔债权，规模就达约170亿人民币。
+
+*参考链接：*
+
+1. [*https://ec.ltn.com.tw/article/breakingnews/3751236*](https://ec.ltn.com.tw/article/breakingnews/3751236)
+2. [*http://finance.ce.cn/stock/gsgdbd/202111/29/t20211129\_37123789.shtml*](http://finance.ce.cn/stock/gsgdbd/202111/29/t20211129_37123789.shtml)
 
 
-#### 编译：小红帽
+* * *
 
-**最早发现新冠病毒（COVID-19）的Omicron变种的医生说，该变种表现 “温和”，并没有造成住院人数的增加，这是对全球恐慌的反驳。**
+*素材采编：海星*
 
-世界各国政府正在实施新的旅行禁令和其他病毒限制措施，以应对新病毒株传播性更强且比德尔塔（delta）病毒更致命的说法。
+*编辑：青衣青青*
 
-然而，那些在南非当地拥有最多专业知识的人都在说相反的话。
-
-部长级疫苗咨询委员会主席巴里·舒布(Barry Schoub) 告诉天空新闻，这种恐慌是错误的。
-
-“到目前为止发生的病例都是轻度病例，轻度至中度病例，这是一个好兆头”。
-
-舒布再次反驳了新菌株可能比德尔塔更危险的说法，他还指出，omicron可能很快成为主要病株，因此与德尔塔菌株相比，不太 “合适”。
-
-南非医学协会主席安吉丽·库切（Angelique Coetzee）对舒布的观点表示赞同，她指出，感染omicron的病人“症状（与）我以前治疗过的病人有很大不同，而且非常轻微”。
-
-当被问及当局是否在进行不必要的恐慌时，库切回答说 “当然”，并试图消除危言耸听的恐惧。
-
-**参考新闻：**[Doctor Who First Discovered Omicron Variant Says It’s “Mild,” Hasn’t Caused Uptick in Hospitalizations – Summit News](https://summit.news/2021/11/29/doctor-who-first-discovered-omicron-variant-says-its-mild-hasnt-caused-uptick-in-hospitalizations/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+*发布：miumiu*
 
  
 
