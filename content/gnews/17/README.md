@@ -2,56 +2,26 @@
 ---
 
 
-## 美伊重返核谈，以色列称西方不要屈服“核讹诈”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1707854/)
+## 法国议会通过决议案支持台湾参加 WHO大会
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1707903/)
 
-#### 作者：东京樱花团｜捆绑CCP一千年
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/54-1.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fucpnz.co.nz%2Fwp-content%2Fuploads%2F2021%2F05%2Fe6b395e59bbde58f82e8aeaee999a2e4bba5e58e8be58092e680a7e5a49ae695b0e9809ae8bf87e694afe68c81e58fb0e6b9bee58f82e4b88ee59bbde99985e7bb84.jpg&amp;imgrefurl=https%3A%2F%2Fucpnz.co.nz%2F2021%2F05%2F07%2F%25E6%25B3%2595%25E5%259B%25BD%25E5%258F%2582%25E8%25AE%25AE%25E9%2599%25A2%25E4%25BB%25A5%25E5%258E%258B%25E5%2580%2592%25E6%2580%25A7%25E5%25A4%259A%25E6%2595%25B0%25E9%2580%259A%25E8%25BF%2587%25E6%2594%25AF%25E6%258C%2581%25E5%258F%25B0%25E6%25B9%25BE%25E5%258F%2582%25E4%25B8%258E%25E5%259B%25BD%25E9%2599%2585%25E7%25BB%2584%2F&amp;tbnid=vDqZBHawwx6RkM&amp;vet=12ahUKEwjr1JCEv7_0AhVRHjQIHUuXBRsQMygBegQIARB8..i&amp;docid=pCdtl4S_KXtldM&amp;w=1920&amp;h=1277&amp;q=%E6%B3%95%E5%9B%BD%20%E5%8F%B0%E6%B9%BE%20WHO&amp;ved=2ahUKEwjr1JCEv7_0AhVRHjQIHUuXBRsQMygBegQIARB8)
+欧洲各国正在加强与台湾的关系，在此背景下，法国国会下议院以多数赞成通过了一份支持台湾参加世界卫生组织（WHO）大会等内容的决议案。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2伊核协议谈判.png)[图片来源](https://asiatimes.com/2021/11/whos-afraid-of-chinas-nukes/)
+法国国会下议院、国民议会11月29日通过了一份决议案。决议案支持台湾参与世卫组织大会等国际机构的事务，并期待法国政府为实现这一目标不断作出外交努力。
 
-**拜登政府企图利用重返伊核谈判遏制伊朗的“核野心”并阻止德黑兰制造“大规模杀伤性武器”的努力将会遇到超党派的反对。 对此，以色列总理贝内特说：这是“伊朗的核讹诈”与 “伊朗讨价还价交易以换取他们的暴行” ，“我呼吁盟友：不要屈服。”**
+以前台湾曾以观察员身份出席世卫组织大会，不过，自从被认为有强烈独立意向的蔡英文政府上台后，台湾就再也没有受到邀请。法国政府的立场是，在不违背“一个中国”原则的范围内，支持台湾参与国际机构的事务。本次国民议会通过决议，以推动政府的相关举措。
 
-据美国国会山消息，美国正在与伊朗[“重返 2015 年核协议谈判桌](https://thehill.com/policy/defense/583471-us-iran-return-to-same-negotiating-table?utm_source=&amp;utm_medium=email&amp;utm_campaign=44983)”，11月29日（周一）对第七轮间接会谈展开讨论。两国上次会谈是在维也纳举行的，五个多月之后美伊重返会谈。这是拜登向中国共产党领导的五大邪恶轴心联盟的屈服吗？
+关于法国与台湾的关系，法国4名参议院议员刚刚于10月访问过台湾，并与台湾总统蔡英文举行了会谈。欧洲各国正在不断强化与台湾的关系。11月，波罗的海三国之一的立陶宛设立了以“台湾”冠名的办事机构，中共政府为表示抗议，宣布降级与立陶宛的外交关系。
 
-- *延展阅读：*[*谁害怕中国的核武器？*](https://asiatimes.com/2021/11/whos-afraid-of-chinas-nukes/)[*拜登承诺朝鲜和平，美韩会谈结束战争宣言*](https://www.newsweek.com/biden-commits-north-korea-peace-us-south-korea-talk-end-war-declaration-1654115)*。*
+消息来源:
 
+[法国议会通过决议支持台湾参加WHO大会](https://www3.nhk.or.jp/nhkworld/zh/news/335513/)
 
-拜登政府强调，“与伊朗的外交是遏制其核野心并阻止德黑兰制造大规模杀伤性武器的最后也是最好的机会。”这一论调多么像小布什政府针对伊拉克的政策。不幸的是，美国共和党并不愿意看到这一幕重演，在拜登的国防支出法案上设置障碍。
-
-29日，几位共和党参议员阻止了该方案。其中包括一项与北溪 2 管道相关的制裁提案，[麦康奈尔说](https://thehill.com/homenews/senate/583487-senate-gop-blocks-defense-bill-throwing-it-into-limbo?utm_source=&amp;utm_medium=email&amp;utm_campaign=44983)， “这位民主党领导人似乎想把国家安全放在最后。我的同事试图通过将两周的账单塞进两三天的时间来纠正不周计划。我想如果事实证明这是不可能的，那么可能会有人指责共和党人，”
-
-该消息称，“[官员们淡化了有关他们正在考虑与伊朗达成临时协议的报道。](https://thehill.com/policy/defense/583471-us-iran-return-to-same-negotiating-table?utm_source=&amp;utm_medium=email&amp;utm_campaign=44983)”，“我们的目标没有改变，它仍然是限制伊朗核计划的最佳选择，并提供一个平台来解决伊朗破坏稳定的行为，”
-
-白宫新闻秘书 珍·普萨基 周一告诉记者。“我们正在与我们的欧洲伙伴同步合作，当然我们将继续敦促采取外交途径。”
-
-- *延展阅读：*[*中共国和伊朗签署为期25年的合作协议，将加强两国的全方位合作，弱化美国孤立伊朗的努力*](https://www.bbc.com/zhongwen/simp/world-56561203)*。*
-
-
-由于前总统“特朗普于 2018 年退出伊朗协议，称伊朗于 2019 年开始违反协议条款。” 拜登打算重返美伊核协议。
-
-消息称，共和党和以色列仍然坚决反对该协议。以色列总理纳夫塔利·贝内特 (Naftali Bennett) 周一在一份声明中说：这是“[伊朗的核讹诈](https://nypost.com/2021/11/29/israel-pm-warns-nations-to-be-wary-of-irans-nuclear-blackmail/)”， “伊朗不应得到任何奖励、讨价还价交易和制裁救济以换取他们的暴行”， “我呼吁我们在世界各地的盟友：不要屈服。”
-
-伊朗外交部长侯赛因·阿米尔-阿卜杜拉希安在一份声明中说：“美国仍然未能正确理解这样一个事实，即在美国离开后，如果没有可核查和有效地解除对伊朗国家实施的所有制裁，就无法重返伊核协议。”
-
-然而，这一幕幕核谈判似乎都在中共国的主导下完成的，对此，中共国[新华社对此表示](http://www.news.cn/2021-11/30/c_1128113820.htm)，“[伊核谈判首要任务是美国解除制裁](http://www.news.cn/video/2021-11/30/c_1211467214.htm)。”这就是以色列总理所称的“[核讹诈](https://www.timesofisrael.com/as-iran-talks-begin-bennett-urges-world-powers-resist-regimes-nuclear-blackmail/)”。问题是，美国首先需要重启对伊朗的制裁而不是重启谈判，若伊朗以欺骗方式获得解除，中共国的核野心便可以联合伊朗进一步核威胁美国及其盟友。对此，美国拜登政府显然是置国家安全于危险中。
-
-该消息透漏，“[伊朗核计划现在比以往任何时候都更接近核武器，伊朗在该地区更加咄咄逼人，在国内更加镇压](https://thehill.com/policy/defense/583471-us-iran-return-to-same-negotiating-table?utm_source=&amp;utm_medium=email&amp;utm_campaign=44983)，”伊朗项目主管兼国际危机组织总裁高级顾问阿里·瓦兹说。
-
-对此轮核谈，中共新华社27日援引伊朗外长阿卜杜拉希扬的话说，“尽管美国和欧洲国家违反伊核协议，伊朗仍将‘怀着诚意’参加即将重启的伊核谈判，希望能达成一份‘良好且可核查’”的协议。
-
-- *延展阅读：*[*伊朗核弹之父暗杀细节曝光，杀死他的，是千里之外的人工智能*](https://k.sina.com.cn/article_2549228714_97f224aa01900xy47.html)*。*
-
-
-“良好且可核查”，多美丽的谎言也无法遮掩伊朗与中共合谋上演“中俄伊联手”牵制美军实现中共武力侵台的战略野心，同时，俄罗斯进军乌克兰，伊朗若得到解除制裁令，则可协同作战，对美国及其北约领导的新大西洋盟军进行三面包抄，企图实现共产社会主义阵营与民主联盟阵营决一死战。特别是在惧怕揭露 COVID-19病毒以及疫苗灾难失控和因此引爆的全面经济危机的前提下，正义与邪恶联盟对垒将有可能陷世界于深重灾难中。
-
-其实，解决伊朗核威胁，美前总统作出了非常有效的正确的决策。“[特朗普总统说，这个协议”烂透了”](https://www.bbc.com/zhongwen/simp/world-44048520)，令包括他自己在内的所有美国公民蒙羞。“因为伊朗的弹道导弹项目将令其2025年以后的核活动以及在也门和叙利亚冲突中的角色都不会受到任何制约”。特朗普政府并于2020年1月份[斩首苏莱曼尼](https://www.bbc.com/zhongwen/simp/world-51020173)，使其核野心得到遏制，不幸的是，此时此刻，[中共国向世界发动了全面生物战争—](https://www.voachinese.com/a/Covid-origin-who-investigation-china-pompeo-miles-yu-great-leap-forward-20210228/5796026.html)—[第三次世界大战](https://www.bbc.com/zhongwen/simp/world-51006414)。
-
-正如郭文贵（ MILES GUO ）先生所言，“中共彻底沦为流氓政权”，[面对经济崩溃，中共将发动战争，制造种族冲突和社会动荡，最终让一小撮人成为替罪羊](https://www.gettr.com/post/piaefad1ee)。”
-
-2021年11月30日
-
-*校对、发布：东京樱花团 / 野猫*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-4.png)
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

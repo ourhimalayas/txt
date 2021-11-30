@@ -2,36 +2,41 @@
 ---
 
 
-## 郭先生谈邪恶的媒体与世界大范围灾难
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1707756/)
+## 世界第一起起诉比尔·盖茨的疫苗谋杀案在印度立案
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1707762/)
 
-作者：纽约香草山 – 飞虹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月28日，郭先生在大直播中谈到独裁者的共性时提及，邪恶的媒体是协助他们造成大范围灾难的重要因素。
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-51.jpg)图片来源：dailyexpose.uk
+**翻译：**小鱼儿
+**编辑：**翼族
 
-斯大林时期，斯大林曾买通《纽约时报》驻莫斯科的一位记者，帮他掩盖乌克兰的真相，把他吹捧成一个人类的英雄；二战时期，犹太人在集中营大量死亡，希特勒曾请《纽约时报》以及《伦敦日报》等各大报纸的记者帮他写犹太人如何在工厂安静地工作、吃饭、踢球等粉饰太平的文章。这些记者随后都被消失了。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture102.jpg)
-在近两年发生的疫情、疫苗等灾难中，与当年纳粹的情形一样，全世界的媒体都被邪恶势力收买了。中共的放毒、疫苗真相，以及当前正在发生的阿富汗人正在遭受的非人待遇，没有任何一家主流媒体进行报道。
+2021年11月25日，印度律师协会报道，印度高等法院已对阿斯利康公司Covid-19疫苗注射液Covishield的亿万富翁资助者比尔·盖茨提出谋杀指控，原因是一名23岁的男子注射该疫苗后死亡。
 
-正是因为收买了媒体，邪恶势力才能肆无忌惮地在可能的范围内制造各种灾难，因为他们根本不怕走漏消息，不担心受到正义力量的追责，也就不担心自己受到惩罚。
+另一名被告是阿达尔·波纳瓦拉。阿达尔·波纳瓦拉是印度血清研究所的首席执行官。印度血清公司是世界上最大的疫苗生产公司，它向170个国家出口各种疫苗，估计世界上三分之二的儿童都接种过它的疫苗。未命名的被告是“其他政府官员和领导人”。
 
-郭先生认为，没有邪恶的媒体，就不会有一战、二战，不会有后来的种种大范围灾难。
+印度政府的免疫不良事件委员会最近承认，Snehal Lunawat博士的死亡是由于Covishield注射的副作用造成的，这证明了“疫苗集团”关于疫苗完全安全的说法是错误的。
 
-参考链接：[郭先生谈邪恶的媒体与世界大范围灾难](https://gtv.org/video/id=61a3828b44c1fe7a6c3aaf29)
+据印度律师协会报道，死者注射了阿斯利康公司的疫苗，因为相信了它是完全安全的错误说法。并且由于铁路部门只允许双重接种的人乘坐，死者不得不被迫接种。预计到2021年底，阿斯利康的Covishield疫苗产量将超过10亿剂。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+指控中提到了此前针对比尔·盖茨的案件，这些案件涉及在人类乳头瘤病毒疫苗（Gardasil）的疫苗试验中谋杀8名女性儿童，以及比尔·盖茨在印度的脊髓灰质炎疫苗计划。
 
-总编：木白
-编辑：木白
-校对/发稿：Hetangyuese
+根据印度律师协会的说法，比尔·盖茨和阿达尔·波纳瓦拉是大规模谋杀的同谋，如果罪名成立，他们将面临死刑。此外，印度律师协会指出，比尔1盖茨的保释将被拒绝，他在印度的资产将很快被没收，印度公民有权对比尔·盖茨和阿达尔·波纳瓦拉进行逮捕，将他们移交给当局。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+原告要求获得1.34亿美元的赔偿，并要求被告接受测谎和麻醉分析测试。麻醉分析作为一种调查工具，几十年来一直是一个有争议的话题。该测试假定通过注射特定剂量的麻醉药物使受试者进入“催眠状态”。据推测在这种状态下，当事人的想象力被中和，然后她会泄露她认为是真实的信息。这被看作是在需要当事人做出紧急反应的情况下获取信息的一种手段。
+
+在印度，预计很快会有数以千计的赔偿要求被提出。
+
+**参考新闻：**[World’s first Covid Injection Murder Case against Bill Gates filed in India](https://dailyexpose.uk/2021/11/28/worlds-first-covid-injection-murder-case-against-bill-gates-filed/)
+
+*发布：翼族*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
