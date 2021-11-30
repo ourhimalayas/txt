@@ -15,128 +15,128 @@
 
 ---
 
-### [世界第一起起诉比尔·盖茨的疫苗谋杀案在印度立案](/content/gnews/1/README.md)
- ` 墨尔本雅典娜农场`
+### [DC大中华时事：自封统帅，习在军委会议上讲话引起热烈反响](/content/gnews/1/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [【#G时新闻】马来西亚荒唐的疫苗有效期延期政策](/content/gnews/2/README.md)
+### [秘翻在线：日本确诊首例中共病毒新变种—Omicron感染者](/content/gnews/2/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [参议员汤姆·科顿：我怀疑福奇向国会作证时当场撒谎](/content/gnews/3/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [推特的首席执行官终于下台了](/content/gnews/4/README.md)
+ ` 澳喜农场`
+
+### [【#G时新闻】半个中共国为北京冬奥会停工停产](/content/gnews/5/README.md)
  ` G-时新闻`
 
-### [郭先生谈邪恶的媒体与世界大范围灾难](/content/gnews/3/README.md)
+### [世界第一起起诉比尔·盖茨的疫苗谋杀案在印度立案](/content/gnews/6/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [【#G时新闻】马来西亚荒唐的疫苗有效期延期政策](/content/gnews/7/README.md)
+ ` G-时新闻`
+
+### [中共在英华人团体伦敦集会 与抗议港人发生冲突](/content/gnews/8/README.md)
  ` GTV新闻访谈`
 
-### [中共早有计划以生化武器攻击基督教和天主教](/content/gnews/4/README.md)
+### [GTV开始提供短视频服务](/content/gnews/9/README.md)
  ` GTV新闻访谈`
 
-### [2018年11月20日郭文贵先生、班农先生关于王健之死新闻发布会全文字版](/content/gnews/5/README.md)
+### [郭先生谈逆向思维、独立思维 认为打疫苗的人是弱民](/content/gnews/10/README.md)
+ ` GTV新闻访谈`
+
+### [郭先生谈邪恶的媒体与世界大范围灾难](/content/gnews/11/README.md)
+ ` GTV新闻访谈`
+
+### [中共早有计划以生化武器攻击基督教和天主教](/content/gnews/12/README.md)
+ ` GTV新闻访谈`
+
+### [2018年11月20日郭文贵先生、班农先生关于王健之死新闻发布会全文字版](/content/gnews/13/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [澳洲企业开辟亚欧新市场狠狠打脸中共的贸易报复](/content/gnews/6/README.md)
+### [澳洲企业开辟亚欧新市场狠狠打脸中共的贸易报复](/content/gnews/14/README.md)
  ` 澳喜农场`
 
-### [麦卡洛医生反对在工作场所区别对待接种和未接种疫苗者](/content/gnews/7/README.md)
+### [麦卡洛医生反对在工作场所区别对待接种和未接种疫苗者](/content/gnews/15/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [麦卡洛：中共病毒疫苗对于正在发生的第三波疫情无效](/content/gnews/8/README.md)
+### [麦卡洛：中共病毒疫苗对于正在发生的第三波疫情无效](/content/gnews/16/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [埃内斯·坎特 (Enes Kanter) 取得公民身份前合法地将姓氏更改为“自由”](/content/gnews/9/README.md)
+### [埃内斯·坎特 (Enes Kanter) 取得公民身份前合法地将姓氏更改为“自由”](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [秘翻在线: Twitter首席执行官杰克‧多尔西为什么离职?](/content/gnews/10/README.md)
+### [秘翻在线: Twitter首席执行官杰克‧多尔西为什么离职?](/content/gnews/18/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [比尔·盖茨通过向中国提供赠款直接资助了新冠肺炎疫情](/content/gnews/11/README.md)
+### [比尔·盖茨通过向中国提供赠款直接资助了新冠肺炎疫情](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [由于疫苗强制令 德约科维奇“可能不会”参加2022年的澳网](/content/gnews/12/README.md)
+### [由于疫苗强制令 德约科维奇“可能不会”参加2022年的澳网](/content/gnews/20/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [对澳大利亚实施贸易禁令,令中共国品尝苦果](/content/gnews/13/README.md)
+### [对澳大利亚实施贸易禁令,令中共国品尝苦果](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [维基百科要删除“共产主义政权下的大屠杀”引发质疑](/content/gnews/14/README.md)
+### [维基百科要删除“共产主义政权下的大屠杀”引发质疑](/content/gnews/22/README.md)
  ` 澳喜农场`
 
-### [法国民议会压倒性通过决议案 挺台参与国际组织](/content/gnews/15/README.md)
+### [法国民议会压倒性通过决议案 挺台参与国际组织](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [疫苗灾难：中共与世界黑暗势力的勾结](/content/gnews/16/README.md)
+### [疫苗灾难：中共与世界黑暗势力的勾结](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [疫苗将导致人类想象不到的大劫难](/content/gnews/17/README.md)
+### [疫苗将导致人类想象不到的大劫难](/content/gnews/25/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [香港Disney+删除知名动画《辛普森一家》访问天安门一集是向中共屈服？](/content/gnews/18/README.md)
+### [香港Disney+删除知名动画《辛普森一家》访问天安门一集是向中共屈服？](/content/gnews/26/README.md)
  ` 首尔天池农场`
 
-### [美军紧锣密鼓开启全球部署剑指中共](/content/gnews/19/README.md)
+### [美军紧锣密鼓开启全球部署剑指中共](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新中国联邦的正道主义](/content/gnews/20/README.md)
+### [新中国联邦的正道主义](/content/gnews/28/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [11/29/2021 文贵盖特：中共实际上是在美西(包括夏威夷)和南美放毒，新病毒将很快出现在美东和加拿大](/content/gnews/21/README.md)
+### [11/29/2021 文贵盖特：中共实际上是在美西(包括夏威夷)和南美放毒，新病毒将很快出现在美东和加拿大](/content/gnews/29/README.md)
  ` 秘密翻译组-北美组`
 
-### [《辛普森家庭》因提及“六四”事件在香港遭言论审查](/content/gnews/22/README.md)
+### [《辛普森家庭》因提及“六四”事件在香港遭言论审查](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [北京户口能预防艾滋病？](/content/gnews/23/README.md)
+### [北京户口能预防艾滋病？](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [吴先生生命垂危，但医院仍然仍然以各种理由拒绝使用伊维菌素](/content/gnews/24/README.md)
+### [吴先生生命垂危，但医院仍然仍然以各种理由拒绝使用伊维菌素](/content/gnews/32/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [娱乐大亨周焯华被逮捕，澳门博彩业股价暴跌](/content/gnews/25/README.md)
+### [娱乐大亨周焯华被逮捕，澳门博彩业股价暴跌](/content/gnews/33/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [视频| 制造矛盾是独裁者最重要的手段](/content/gnews/26/README.md)
- ` MOSREC`
-
-### [中共强推延长产假，使女性就业更加困难](/content/gnews/27/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美国最高法院拒绝麻州医护人员疫苗暂停申请](/content/gnews/28/README.md)
+### [美国最高法院拒绝麻州医护人员疫苗暂停申请](/content/gnews/34/README.md)
  ` 纽约香草山MOS01`
 
-### [视频| 习近平“中国梦”的由来](/content/gnews/29/README.md)
- ` MOSREC`
-
-### [体制作恶，华为应用商店内藏木马](/content/gnews/30/README.md)
+### [体制作恶，华为应用商店内藏木马](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美议员称台湾为“台湾共和国” 是有意打脸中共](/content/gnews/31/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [多国抵制北京冬奥会，中共辩解没发出邀请](/content/gnews/32/README.md)
+### [中共高调扫赌，周焯华被捕，澳门博彩股暴跌](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [港共政府加强媒体政治审查，《辛普森一家》遭殃](/content/gnews/33/README.md)
+### [意料之中，恒大汽车股票暴跌](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共高调扫赌，周焯华被捕，澳门博彩股暴跌](/content/gnews/34/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [意料之中，恒大汽车股票暴跌](/content/gnews/35/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [福奇说：任何批评他的人都是在批评科学](/content/gnews/36/README.md)
+### [福奇说：任何批评他的人都是在批评科学](/content/gnews/38/README.md)
  ` 墨尔本雅典娜农场`
 
-### [泽连科医生在拉比法庭前的证词](/content/gnews/37/README.md)
+### [泽连科医生在拉比法庭前的证词](/content/gnews/39/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [中共国紫光集团破产 负债近2000亿多家金融机构踩雷](/content/gnews/38/README.md)
+### [中共国紫光集团破产 负债近2000亿多家金融机构踩雷](/content/gnews/40/README.md)
  ` 日本东京方舟农场`
 
-### [河南省计划针对记者和外国学生建立新的监控系统](/content/gnews/39/README.md)
+### [河南省计划针对记者和外国学生建立新的监控系统](/content/gnews/41/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [福奇自称“我是科学”遭参议员克鲁兹和保罗炮轰“惊人的专制”](/content/gnews/40/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [联盟工作汇报文字版2021.11.28](/content/gnews/41/README.md)
- ` 纽约香草山MOS02`
 
 ### [新的病毒变种将带来新一轮的旅行禁令、封锁和刺激计划](/content/gnews/42/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`

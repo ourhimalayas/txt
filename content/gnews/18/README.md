@@ -2,24 +2,43 @@
 ---
 
 
-## 香港Disney+删除知名动画《辛普森一家》访问天安门一集是向中共屈服？
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1707612/)
+## 秘翻在线: Twitter首席执行官杰克‧多尔西为什么离职?
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1707666/)
 
-韩国首尔天池农场
-翻译：zzballack
-上传：追着曙光跑
+撰稿:牛小妹
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Image-1-3.jpg)
+图片:GETTY　IMAGES
 
-据《华盛顿自由灯塔》（Washington Free Beacon）11月29日报道，迪士尼影音串流平台Disney+ 今年11月登陆香港，但是知名动画片《辛普森一家》的其中一集被该平台删除，该集涉及1989年的六四大屠杀。这是好莱坞屈服于中共政府的审查要求的又一例子。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-30-at-14.52.32.jpeg)图片来源：原新闻
-据报道，香港Disney+流媒体服务的用户注意到，《辛普森一家》2005年播出的题为《咕咕鸡饭》（Goo Goo Gai Pan）的一集在该平台上消失了。在该集的一个场景中，辛普森一家拜访北京天安门广场，那里是1989年六四大屠杀的所在地。其中一幅漫画上有一个标语，上面写着“在这个地点，1989年，什么也没发生”。这句话讽刺了中共一直在不遗余力地抹除人们的六四记忆。该集还让玛吉的妹妹站在坦克前，暗示著名的“坦克人”，以及批评了毛泽东、中共镇压西藏以及文化大革命。
+**Twitter禁言川普，多尔西承认失败**
 
-目前尚不清楚Disney+删除这一集，是因为收到了中共当局的指令，还是在登陆香港时就主动删除这一集。这一决定凸显了中共对香港的严格控制，以及好莱坞愿意自我审查以维护其在中共国的票房。
+2021年 1 月，在美国国会大厦遭到袭击之后，Twitter禁止川普发言，Twitter首席执行官杰克·多尔西（Jack Dorsey）坚称川普的推文「分裂了美国」，但之后承认这是推特在促进自由言论方面的失败。根据美国广播公司商业频道（CNBC）的报导，多尔西已辞去首席执行官。
 
-今年10月27日，香港立法会通过了《电影检查修订条例草案》，要求不利国家安全的电影将被禁止上映。港共当局审查员命令导演进行剪辑，并拒绝允许某些电影向公众放映。尽管这些规则目前不包括流媒体服务，但当局警告说，在线平台受其它规则的约束，包括新的国家安全法。上周，港共特首林郑月娥表示要“主动堵塞香港互联网漏洞”，并出台“假新闻”规定。她的评论加剧了人们对中共可能会将庞大的互联网和新闻审查制度扩展到香港的担忧。
+**推特成立比特币专属加密支付**
 
-迪士尼一直在讨好中共。2020年因在新疆拍摄电影《花木兰》的部分内容而受到抨击，中共当局正在那里进行种族灭绝行为；2016年，迪士尼在其电影《奇异博士》中用凯尔特人取代了一个西藏僧侣角色，以避免在西藏主权问题上的争议。
+Facebook曾试图「铸造」自己的「货币」，推出Libra的新型稳定币，最终遭监管机构扼杀。Twitter没有行使Facebook的垄断权力，也不「铸造」自己的「货币」，而是选择加密支付工具「比特币」。
 
-原新闻：[Disney Blocks Tiananmen Square Simpsons Episode in Hong Kong](https://freebeacon.com/media/disney-blocks-tiananmen-square-simpsons-episode-in-hong-kong/)
+多尔西一直是比特币的支持者，9月24日，Twitter宣布向旗下3亿个活跃用户推出「小费」打赏服务，允许通过共享钱包或使用「Strik」应用程序，来发送或接收比特币。
+
+Twitter还宣布了另一项计划，让用户将他们的比特币钱包连接到与其身份相关的非同质化代币（Non-fungible token NFT），此计划促使数以千万计的人尝试使用比特币。
+
+**Twitter比特币加密支付问题重重**
+
+Twitter的「小费/打赏」功能依赖使用过程繁琐的Strike，Strike也没有准备好应付全球支付网路相关的监管问题。另外，Strike是萨尔瓦多政府推出比特币支付服务的合作夥伴，相关税收规则一团糟，导致 Twitter 「小费/打赏」功能无法被大规模普及应用。
+
+另一方面，Twitter「只选择」比特币的做法，引发以太坊社群和DeFi支持者的反对。Twitter在用户的Twitter帐号上显示与他们钱包相关联的、基于NFT的徽章，但比特币区块链似乎无法胜任这项任务。Twitter也拒绝解释如何支持此项功能，不透明的政策必然导致失败的结果。
+
+**盖特GETTR将远远超过推特TWITTER**
+
+“你们不知道喜联储会有多牛!”郭文贵先生骄傲地说，横空而出的盖特远远超越Twitter。文贵先生设计的喜联储拥有自己的铸币权，即将上市的GETTR PAY 可以迅速与H COIN,H DOLLAR 相连接，形成一个中心化管理、去中心化无国界支付系统。
+
+所以，Twitter首席执行官杰克‧多尔西的离职，可能与Twitter不透明的比特币计划预见的失败有关?
+
+消息来源:
+[https://www.abmedia.io/20210607-jack-dorsey-would-leave-twitter-for-bitcoin](https://www.abmedia.io/20210607-jack-dorsey-would-leave-twitter-for-bitcoin)
+
+[https://www.cnbc.com/2021/11/29/twitter-ceo-jack-dorsey-is-expected-to-step-down-sources-say.htmlCNBC](https://www.cnbc.com/2021/11/29/twitter-ceo-jack-dorsey-is-expected-to-step-down-sources-say.htmlCNBC)
+
+
 
  
 

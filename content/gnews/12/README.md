@@ -2,25 +2,32 @@
 ---
 
 
-## 由于疫苗强制令 德约科维奇“可能不会”参加2022年的澳网
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1707650/)
+## 中共早有计划以生化武器攻击基督教和天主教
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1707755/)
 
-#### 翻译/撰稿：zzballack
+作者：纽约香草山 – DM
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+11月26日，郭文贵先生在大直播中爆料，中共储存、释放天花病毒是由来已久的计划，并曾准备以这种生化武器来攻击西方的基督教和天主教。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture100-2.jpg)
+郭先生透露，早在2004年，一位中共党内地位非常高的理论派、有背景的教授就告诉郭先生，基督教、天主教是中共憎恨的天敌，中共决不允许这些宗教用“天主”“基督”等取代中共在国民心中的地位，必须对这些宗教教派和教众进行打压，如果无法用温和的手段说服他们放弃自己的信仰，接受中共的领导，则打算用天花这样的生化武器屠杀基督徒和天主教徒。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-50.jpg)图片来源：澳大利亚广播公司
-据《布雷特巴特新闻网》（Breitbart News）11月29日报道，现今男子网球第一人诺瓦克·德约科维奇(Novak Djokovic)的父亲斯尔詹·德约科维奇（Srdjan Djokovic）11月28日在接受塞尔维亚的PRVA电视台采访时说，由于疫苗强制令，他的儿子可能不会参加明年1月份的澳大利亚网球公开赛，并将强制令称为“勒索”。
+在中共向全世界不停放毒的情况下，郭先生强调，中共及邪恶犯罪团伙的目的，就是促使人们打疫苗，而毒疫苗是比病毒更致命的武器，会带来更大的灾难。
 
-德约科维奇的父亲说：“我们是否接种新冠疫苗是我们每个人的个人权利，没人有权利介入私人的医疗决定，这是受宪法保护的。连我都不知道诺瓦克是否接种了疫苗，就算我知道，我也不会在电视上谈论这事。我的儿子当然想全心全意地去参加比赛，但在这种勒索和限制条件下，我真的不知道他是否会参赛。”
+参考链接：[中共早有计划以生化武器攻击基督教和天主教](https://gnews.org/zh-hans/1701178/)
 
-之前，澳大利亚联邦政府、维多利亚州政府和澳大利亚网协就明年澳网的疫苗接种政策达成一致。各方确认后的最终政策是，球员必须持新冠疫苗的完全接种证明方可入境澳州参加明年的澳网。通常来说，需要接种两剂疫苗才算完全接种，首剂与第二剂之间的接种间隔要在3周及以上。根据已公布的赛事日历，明年的澳网将于1月17-30日举行，报名截止日期是比赛前六周，也就是12月6日。澳网的首席执行官克雷格·泰利（Craig Tiley）11月27日表示，如果德约科维奇要来参加明年的澳网，他就必须接种疫苗，而现在留给他的时间已经不多了，“现在已经有超过85%的运动员接种了疫苗，到明年1月会有90%-95%的运动员打了疫苗，如果你不打疫苗，肯定是无法参赛的。”
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-德约科维奇上周表示：“选择的自由对每个人都至关重要，无论是对我还是其他人。在这种特殊情况下，人们有权决定想把什么东西放进自己的身体。”虽然没有透露自己的疫苗接种状况，但是德约科维奇2020年4月曾在脸书上表示，自己不想接种疫苗，也不希望被别人强制接种疫苗，以便能够旅行。“如果疫苗接种成为强制性的，会发生什么？我不知道，但我对这个问题有自己的想法。我已经表达了我的观点，因为我有权这样做，我也觉得有责任强调网球届的某些重要话题。”
+总编：飞虹
+编辑：飞虹
+校对/发稿：Hetangyuese
 
-德约科维奇2020年6月在参加一项赛事时曾感染过新冠病毒，但没有任何症状。很多科学研究表明，自然免疫力能提供比疫苗更强的保护力。
-
-新闻来源：[Father: Novak Djokovic ‘Probably Won’t’ Play Australian Open over Vaccine ‘Blackmail’](https://www.breitbart.com/health/2021/11/29/father-novak-djokovic-probably-wont-play-australian-open-vaccine-blackmail/)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

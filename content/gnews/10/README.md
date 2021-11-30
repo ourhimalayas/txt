@@ -2,44 +2,38 @@
 ---
 
 
-## 秘翻在线: Twitter首席执行官杰克‧多尔西为什么离职?
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1707666/)
+## 郭先生谈逆向思维、独立思维 认为打疫苗的人是弱民
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1707757/)
 
-撰稿:牛小妹
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Image-1-3.jpg)
-图片:GETTY　IMAGES
+作者：纽约香草山农场福音部 – 恩永存
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+11月28日，郭先生在大直播中回答有关顺民、精英为什么都打疫苗的问题时，强调我们应该具有逆向思维和独立思维的能力，才能透过现象，看清一些事物的本质。郭先生认为这些所谓的顺民、精英都是弱民。
 
-**Twitter禁言川普，多尔西承认失败**
+其一，中共没有一个良好的教育体系。中共强调党文化，弱化传统文化，强调斗争思想，训练出了很多自私、怕死、依赖性强的人。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture101.jpg)
+其二，中共没有一个良好的医疗体系，百姓无法寻求正确的医疗途径。
 
-2021年 1 月，在美国国会大厦遭到袭击之后，Twitter禁止川普发言，Twitter首席执行官杰克·多尔西（Jack Dorsey）坚称川普的推文「分裂了美国」，但之后承认这是推特在促进自由言论方面的失败。根据美国广播公司商业频道（CNBC）的报导，多尔西已辞去首席执行官。
+其三，一些所谓的顺民、精英不辨是非，不查病毒出处，不问疫苗疗效，不追究疫苗危害的责任，不听疫苗危害的警告，而是盲目相信政府，相信所谓的科学和权威。
 
-**推特成立比特币专属加密支付**
+其四，这些人不抗强权。一些医生、律师都因为怕死打了疫苗，即使了解了疫苗真相也因为畏惧强权不敢说出。
 
-Facebook曾试图「铸造」自己的「货币」，推出Libra的新型稳定币，最终遭监管机构扼杀。Twitter没有行使Facebook的垄断权力，也不「铸造」自己的「货币」，而是选择加密支付工具「比特币」。
+在这样的环境下，那些打了疫苗的人应该被称为弱民，他们平时赖以生存的思维方式这次却让他们受到了惩罚。只有那些愿意独立思考、不接受打疫苗的人才是智民，是真正的精英。而那些在病毒疫苗上助纣为虐的恶人必将受到正义的审判。
 
-多尔西一直是比特币的支持者，9月24日，Twitter宣布向旗下3亿个活跃用户推出「小费」打赏服务，允许通过共享钱包或使用「Strik」应用程序，来发送或接收比特币。
+参考链接：[郭先生谈逆向思维、独立思维 认为打疫苗的人是弱民](https://gettr.com/post/pi5gfs500d)
 
-Twitter还宣布了另一项计划，让用户将他们的比特币钱包连接到与其身份相关的非同质化代币（Non-fungible token NFT），此计划促使数以千万计的人尝试使用比特币。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-**Twitter比特币加密支付问题重重**
+总编：飞虹
+编辑：飞虹
+校对/发稿：Hetangyuese
 
-Twitter的「小费/打赏」功能依赖使用过程繁琐的Strike，Strike也没有准备好应付全球支付网路相关的监管问题。另外，Strike是萨尔瓦多政府推出比特币支付服务的合作夥伴，相关税收规则一团糟，导致 Twitter 「小费/打赏」功能无法被大规模普及应用。
-
-另一方面，Twitter「只选择」比特币的做法，引发以太坊社群和DeFi支持者的反对。Twitter在用户的Twitter帐号上显示与他们钱包相关联的、基于NFT的徽章，但比特币区块链似乎无法胜任这项任务。Twitter也拒绝解释如何支持此项功能，不透明的政策必然导致失败的结果。
-
-**盖特GETTR将远远超过推特TWITTER**
-
-“你们不知道喜联储会有多牛!”郭文贵先生骄傲地说，横空而出的盖特远远超越Twitter。文贵先生设计的喜联储拥有自己的铸币权，即将上市的GETTR PAY 可以迅速与H COIN,H DOLLAR 相连接，形成一个中心化管理、去中心化无国界支付系统。
-
-所以，Twitter首席执行官杰克‧多尔西的离职，可能与Twitter不透明的比特币计划预见的失败有关?
-
-消息来源:
-[https://www.abmedia.io/20210607-jack-dorsey-would-leave-twitter-for-bitcoin](https://www.abmedia.io/20210607-jack-dorsey-would-leave-twitter-for-bitcoin)
-
-[https://www.cnbc.com/2021/11/29/twitter-ceo-jack-dorsey-is-expected-to-step-down-sources-say.htmlCNBC](https://www.cnbc.com/2021/11/29/twitter-ceo-jack-dorsey-is-expected-to-step-down-sources-say.htmlCNBC)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

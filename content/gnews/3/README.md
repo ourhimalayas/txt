@@ -2,36 +2,25 @@
 ---
 
 
-## 郭先生谈邪恶的媒体与世界大范围灾难
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1707756/)
+## 参议员汤姆·科顿：我怀疑福奇向国会作证时当场撒谎
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1707814/)
 
-作者：纽约香草山 – 飞虹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月28日，郭先生在大直播中谈到独裁者的共性时提及，邪恶的媒体是协助他们造成大范围灾难的重要因素。
+#### 撰稿：彩虹       
 
-斯大林时期，斯大林曾买通《纽约时报》驻莫斯科的一位记者，帮他掩盖乌克兰的真相，把他吹捧成一个人类的英雄；二战时期，犹太人在集中营大量死亡，希特勒曾请《纽约时报》以及《伦敦日报》等各大报纸的记者帮他写犹太人如何在工厂安静地工作、吃饭、踢球等粉饰太平的文章。这些记者随后都被消失了。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture102.jpg)
-在近两年发生的疫情、疫苗等灾难中，与当年纳粹的情形一样，全世界的媒体都被邪恶势力收买了。中共的放毒、疫苗真相，以及当前正在发生的阿富汗人正在遭受的非人待遇，没有任何一家主流媒体进行报道。
+#### 责编：胡天
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-957.png)图片来源：福克斯新闻
+11月29日，《新闻极限》报道，周一，来自阿肯色州的参议员汤姆·科顿（Tom Cotton）在参加“福克斯和朋友”节目时，抨击白宫首席医疗顾问安东尼·福奇（Anthony Fauci），称他是一个对科学自以为是的权威官僚。
 
-正是因为收买了媒体，邪恶势力才能肆无忌惮地在可能的范围内制造各种灾难，因为他们根本不怕走漏消息，不担心受到正义力量的追责，也就不担心自己受到惩罚。
+根据报道，福奇在接受CBS采访时说：“他们真的在批评科学，因为我就代表着科学。对我来说，这比向我投掷箭矢的行为更危险。我不会永远在这里，但科学将永远在这里。如果你破坏了科学，在我离开后很久，你们就会做一些对社会非常有害的事情，这是我所担心的事情”。
 
-郭先生认为，没有邪恶的媒体，就不会有一战、二战，不会有后来的种种大范围灾难。
+对此，科顿断言指出：“他（福奇）所在的机构几周前刚刚承认：他们确实资助了病毒功能性增强研究。所以，这就存在一个谎言，在他的机构拖延了几个月后给国会写信承认病毒功能性增强研究后，要么是福奇向国会撒了谎，要么是他的机构撒谎。我则怀疑托尼·福奇在向国会作证时当场撒谎。”
 
-参考链接：[郭先生谈邪恶的媒体与世界大范围灾难](https://gtv.org/video/id=61a3828b44c1fe7a6c3aaf29)
+另据《纽约邮报》报道，科顿加入了由肯塔基州兰德·保罗（Rand Paul）和德克萨斯州的泰德·克鲁兹（Ted Cruz）针对福奇向国会撒谎的指控。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+**新闻来源**
 
-总编：木白
-编辑：木白
-校对/发稿：Hetangyuese
+[Sen. Cotton Claims Fauci Thinks He Has Control Over Science](https://www.newsmax.com/politics/fauci-tomcotton-covid-19/2021/11/29/id/1046626/)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
