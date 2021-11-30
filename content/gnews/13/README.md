@@ -2,37 +2,43 @@
 ---
 
 
-## 美P-8A罕见纵贯台海 疑因中共核潜舰通过
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1708824/)
+## 欧盟要求中共公布可验证的彭帅安全的证据
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1708892/)
 
-作者：台湾宝岛农场 鬥陣來拼
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美国海军研究所(USNI) 专栏作家、军事专家萨顿（H I Sutton），11月29日通过社交媒体发布了消息，欧洲太空总署卫星「哨兵2号」拍到中共09IV型核潜舰，从海南岛亚龙湾潜舰基地出发向北航行，并有另外一艘水面舰护航。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-30-下午11.51.54.png)
-无独有偶，中共「南海战略态势感知计划」29日也发布了航迹图，指称美军P-8A海神式海上巡逻机29日从日本三泽基地起飞，绕过台湾南部巴士海峡，自南向北穿越台湾海峡。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-对此，前台湾海军官校教官吕礼诗分析，美国海军一架P-8A海神式海上巡逻机（AE6832）29日自南向北飞越台湾海峡，这可能与这艘中共潜舰浮航通过台海有关。
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/11/P-8.jpg)northernriversonlinenews.com.au
+欧盟今天（11月30日）发表声明，要求中共公布彭帅安全的“可验证的证据”，MSN转载了美联社的消息。
 
-美军此次在台海的罕见行动，引发国际各界关注，美中角力战也将再掀另一场波澜。
+全文如下：
 
-参考链接：
-1）[衛星影像曝光！美P-8A罕見縱貫台海 疑因中國核潛艦通過](https://news.ltn.com.tw/news/politics/breakingnews/3752457)
-2）[https://twitter.com/CovertShores/status/1465304379423084546](https://twitter.com/CovertShores/status/1465304379423084546)
-3）[https://www.facebook.com/100000495994105/posts/5504449352914877/?d=n](https://www.facebook.com/100000495994105/posts/5504449352914877/?d=n)
+布鲁塞尔（美联社讯）欧盟周二（11月30日）表示，希望中共公布网球运动员彭帅安全的“可核实的证据”，并对其性侵指控进行彻底、透明的调查。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+彭帅曾三次参加奥运会，曾是网球双打冠军，她在指控一名前共产党官员性侵后退出了公众视线。
 
-总编：木白
-编辑：木白
-校正/发稿：呼吸的雾霾（文小呼吸）
+自本月早些时候她从公众视线中消失以来，她只与中共国以外的官员有过几次直接接触，她在11月21日从北京打来的视频电话中告诉奥运会官员，她很安全。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+一位欧盟发言人说：“她最近再次公开的露面并不能缓解人们对她的安全和自由的担忧。”
+
+彭帅在网上对前中共政治局常委张高丽提出了性侵指控，这位网球运动员的文章在几分钟内被删除，她也不再公开露面。
+
+欧盟在一份声明中说：“欧盟加入了包括体育专业人士在内的日益增长的国际要求，要求保证她的自由不受威胁。本着这种精神，欧盟要求中共政府提供可核实的证据，证明彭帅的安全、健康和下落。欧盟敦促中共当局对彭帅的性侵指控进行全面、公正和透明的调查。”
+
+近年来，越来越多的中共国商人、活动家和普通民众在批评党的人物、打击腐败、支持民主和劳工权利运动后，从公众视野中消失。
+
+欧盟表示：“欧盟强烈反对使用强迫失踪和任意拘留的做法……并呼吁中共遵守国内法和国际法规定的人权义务。”
+
+（全文完）
+
+看来欧盟不像其他国际组织，如世卫、联合国人权、奥委会等，几乎被中共彻底渗透，至少在欧盟有勇于对中共说不的人士，提供“可验证”的证据，进行“彻底、公正、透明”的调查，这些用词均点到了中共的死穴，了解到了“越来越多的中共国商人、活动家和普通民众在批评党的人物、打击腐败、支持民主和劳工权利运动后，从公众视野中消失”的情况，反映出世界对邪魔中共的认知，更是中共死到临头的征兆。
+
+欧盟此举是否可解读为抵制北京冬奥会的前奏，拭目以待。
+
+原文链接：
+
+[https://www.msn.com/en-ca/sports/tennis/eu-wants-verifiable-proof-chinese-tennis-player-is-safe/ar-AARiPoS?ocid=msedgntp](https://www.msn.com/en-ca/sports/tennis/eu-wants-verifiable-proof-chinese-tennis-player-is-safe/ar-AARiPoS?ocid=msedgntp)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

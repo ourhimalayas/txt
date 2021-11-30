@@ -2,31 +2,23 @@
 ---
 
 
-## 拜登曾表示希望日本防卫费增加以遏制中共
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1708599/)
+## 路透社：11月19日荷兰已出现不明来历奥米克戎病毒
+` 丁过` [轉載自GNews](https://gnews.org/zh-hans/1708722/)
 
-作者：东京樱花团—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-外媒11月27日消息，日前美国政府人士透露，美国总统拜登在10月上旬与日本首相岸田文雄的会谈中表示，希望日方能增加防卫费用。因美国政府需要遏制作为唯一竞争对手的中共，希望日本在安全领域能够负担更多。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/20211005053326987.jpeg)图片来源：阿波罗网
-岸田在当选首相之前，就表示防卫费不应该被数字束缚。而拜登基于岸田的发言，对日本切实推进防卫力调整表示了期待。
+#### 温哥华农场 向真
+![](https://assets.gnews.org/wp-content/uploads/2021/11/RTX7O413.jpg.jpeg)来源：半岛电视台
+据路透社11月30日报道，荷兰政府卫生官员30日表示，“我们在11月19日和11月23日的两个病例测试样本中发现了奥米克戎 （Omicron）中共病毒变体”。荷兰国家公共卫生研究所(RIVM)证实了以上消息，并称“目前还不清楚这些人是否去过非洲南部”。
 
-据悉，日本防卫费在2016年首次超过5万亿日元，2021年加上补充预算则达到6万亿日元，很有可能超过GDP的1%。有意见认为，如果实现首次美日首脑会谈，日本增加防卫费用一事将成为主要议题。
+也就是说，在11月26日从南非约翰内斯堡和开普敦飞抵荷兰的两个航班上发现至少有14人感染了Omicron病毒变体之前，荷兰已存在Omicron变体感染病例。
+![img](https://media.gettr.com/group34/origin/2021/08/26/16/bf2713ff-0091-6b60-4d79-39681516bf40/aba01548012a37b3e1c22dcdf15a3ce7.jpg)来源：Gettr
+新中国联邦创始人郭文贵先生在11月19日的直播中指出，中共即将在非洲释放新的病毒，然后和西方关系较为密切的南非就出现了初步确定传染性更强的Omicron病毒。
 
-参考链接：[独家：拜登曾向岸田表示期待日本防卫费增额](https://china.kyodonews.net/news/2021/11/ec4ff208fa1d.html)
+此前郭先生根据可靠情报曾经发出警告，中共将在非洲和美国西部放毒。而荷兰出现不明来历的Omicron病毒，说明中共极有可能正在全球范围内多点放毒和释放多种病毒！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+参考来源：
 
-总编：正义的小新
-编辑/校正/发稿：呼吸的雾霾（文小呼吸）
+[荷兰当局称11月19日检测样本已出现Omicron变体踪迹](https://cn.reuters.com/article/netherland-covid-omicron-1130-idCNKBS2IF0XA)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

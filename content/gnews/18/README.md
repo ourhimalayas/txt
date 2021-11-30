@@ -2,34 +2,33 @@
 ---
 
 
-## 中共出新法将提供“翻墙”服务入罪
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1708727/)
+## 美准备重启与东盟的首脑会议以抗衡中共
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1708828/)
 
-撰稿：东京樱花团/天路天道
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5-18.png)
-图片源自网络
+作者：日本方舟农场 Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+近日，美国拜登政府再次向东盟抛出了橄榄枝。11月29日，美国负责东亚事务的助理国务卿康达，到访印尼首都雅加达。美国国务院在当日的声明中强调，康达的此次出访表明美国支持“印太基于规则的秩序”，并且会跟东南亚国家讨论人权方面的挑战，增强东盟在地区事务治理和地区稳定中的角色。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-30-下午11.52.18.png)
+据悉，美国政府正在就明年1月在华盛顿重启美国东盟特别首脑峰会进行协调，并且在峰会召开之前将派出国务卿布林肯出访东南亚。这是继拜登总统10月27日参加东盟峰会后，美国做出的第二次拉拢东盟的举动。有分析指出，近期美国对东盟的频繁示好，旨在针对日益染指东盟事务的中共当局。
 
-据“新唐人”11月30日消息，中共网信办近日公开一份《网络数据管理草案》，其中规定个人和组织不得提供翻墙工具和相关服务，否则将受严惩。
+参考链接：
+1）[獨家：美國就舉行特別首腦會談詢問東盟意向](https://tchina.kyodonews.net/news/2021/11/7a268fa68956.html)
+2）[美国首席东亚事务外交官抵达雅加达开始东南亚四国之行](https://www.voachinese.com/a/top-us-diplomat-for-asia-to-visit-four-asean-countries-20111126/6329558.html)
+3）[拜登参加东盟峰会 美国将制定印太经济框架](https://www.voachinese.com/a/us-to-develop-indo-pacific-economic-framework-20211027/6288143.html)
 
-草案中一些比较敏感的条款规定值得关注。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-例如，草案中第41条规定：“国家建立数据跨境安全网关，对来源于中华人民共和国境外、法律和行政法规禁止发布或者传输的信息予以阻断传播。任何个人和组织不得提供用于穿透、绕过数据跨境安全网关的程序、工具、线路等，不得为穿透、绕过数据跨境安全网关提供互联网接入、服务器托管、技术支持、传播推广、支付结算、应用下载等服务。境内用户访问境内网络的，其流量不得被路由至境外。”
+总编：木白
+编辑：木白
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-第66条又规定：“个人和组织违反第41条的规定，由有关主管部门责令改正，给予警告、没收违法所得；拒不改正的，处违法所得一倍以上十倍以下的罚款，没有违法所得的，对直接负责的主管人员和其他直接负责人员，处5万元以上50万元以下罚款；情节严重的，由有关主管部门依照相关法律、行政法规的规定，责令其暂停相关业务、停业整顿、吊销相关业务许可证或者吊销营业执照；构成犯罪的，依照相关法律、行政法规的规定处罚。”
-
-正如网友反呛“要抓先抓胡锡进”一样，中共只准自己“翻墙”，不许百姓上外网。由此也表明中共真正恐惧的就是老百姓了解真相，更怕越来越多老百姓了解爆料革命和新中国联邦。
-
-信息来源：
-
-[强化信息封锁 中共推新法欲正式将“翻墙”入罪](http://cn.ntdtv.com/gb/2021/11/29/a103280748.html)
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht-1-1.png)
-
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

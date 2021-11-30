@@ -2,20 +2,30 @@
 ---
 
 
-## 金融时报：莫德纳CEO称疫苗对奥米克戎有效性有限
-` 丁过` [轉載自GNews](https://gnews.org/zh-hans/1708702/)
+## GTV新闻访谈简报|2021年11月30日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1708821/)
 
-#### 温哥华农场 丁过
-![](https://assets.gnews.org/wp-content/uploads/2021/11/maxresdefault-7.jpg)来源：YouTube
-路透社11月30日报道，疫苗制造商莫德纳(Moderna）首席执行官斯蒂芬·班塞尔 （Stéphane Bancel）在接受金融时报采访时称，现有中共病毒疫苗对刚刚出现的中共变异病毒奥米克戎 （Omicron）的防护作用有限。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-768x103-11.jpg)
 
-班塞尔说，“我认为会是明显下降，我还不知道下降程度有多大，因为还需要等待数据。所有和我交谈过的科学家都觉得这可不妙”。班塞尔此言一出，其他疫苗制造商将不得不出来说明自家产疫苗对Omicron的有效性如何。
-![灭共集结号已吹响！海外华人请尽快归队！ – GNEWS](https://assets.gnews.org/wp-content/uploads/2020/10/%E9%9B%86%E7%BB%93%E5%8F%B7.jpg)来源：Gnews
-如果现有疫苗对Omicron作用有限最终被证实，更大的恐慌不安将笼罩全世界，人们仅存的一点点对政府和疫苗制造商虚幻的信任将丧失殆尽，随之而来的是反思、觉醒和追责，消灭中共和国际罪恶势力的大潮就会滚滚而来。这叫向死而生，这往往是一种历史规律！
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-31.png)
+文章仅代表作者本人观点，与Gnews无关
 
-参考来源：
+视频参看：2021.11.30早GTV新闻访谈
 
-[莫德纳CEO称疫苗对于Omicron的有效性可能会下降–英国金融时报](https://cn.reuters.com/article/moderna-ceo-vaccine-omicron-1130-idCNKBS2IF0FB)
+[https://gtv.org/broadcast/watch/61a626ff44c1fe7a6c3bf4d4](https://gtv.org/broadcast/watch/61a626ff44c1fe7a6c3bf4d4)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-13.jpg)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

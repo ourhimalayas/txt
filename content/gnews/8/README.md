@@ -2,86 +2,49 @@
 ---
 
 
-## 小肯尼迪告诉新美国人：福奇的“黑暗历史” 必须曝光（2/3）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1708889/)
+## 推特（Twitter）创始人杰克·多尔西(Jack Dorsey)辞去CEO一职
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1708921/)
 
-翻译： Jenny Ball
+**【译者按】**郭*文贵先生三年前曾经拥有推特账户，而且一个星期内就有40万的关注，然而推特很快就封掉了文贵先生的账户；2020年4月，Twitter封了Steve Bannon先生的平台WarroomPandemic账号；2021 年 1 月，Twitter决定永久封禁时任总统川普的推特账号；2021年7月，新西兰一位学者在嘲讽中共党魁之后，推特限制了她的账户；此外，Twitter也封禁了无数新中国联邦战友的账户……Twitter的种种恶行或许可以用文贵先生在2020年12月4日的直播来解释“Twitter所有打的算盘，就是中共答应把中国的搜索和所有的整个中国市场对其全面开放，然后让Twitter作为中共的数字人民币的承销商”。Twitter想成为世界媒体老大，如今来看，简直就是痴心妄想。*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip04-2.png)图片来源：childrenshealthdefense.org
+据《大纪元》记者Jack Phillips，2021年11月29日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-982-e1638292826803.png)Twitter 首席执行官兼 Square 联合创始人兼首席执行官 Jack Dorsey 于 2021 年 6 月 4 日在佛罗里达州迈阿密的 Mana 会议中心参加了加密货币会议《2021年比特币大会-Bitcoin 2021 Convention。
+图片来源：Marco Bello/AFP via Getty Images
+**据Twitter称，该公司CEO兼联合创始人 Jack Dorsey 将卸任这家社交媒体公司的首席执行官，并将由首席技术官帕拉格·阿格拉瓦尔（Parag Agrawal） 接任，立即生效。**
 
-【接上一篇：[小肯尼迪告诉新美国人：福奇的“黑暗历史”必须曝光（1/3）](https://gnews.org/zh-hans/1708231/)】
+“我已经决定离开 Twitter，因为我相信公司已经准备好离开它的创始人继续前进” 。多尔西在2006年帮助创立了Twitter，他在11月29日发布的一份声明中说， “作为 Twitter 的 CEO，我对帕拉格非常信任。他在过去 10 年的工作具有变革性。我对他的技能、心灵和灵魂深表感谢。现在是时候让他（帕拉格）来领导Twitter”。
 
-纽曼：那么比尔·盖茨在这里面的地位如何？他是一个穿着毛背心看上去友好的人，为了改善公共健康而捐赠了数十亿美元，然而你的书表明这一切都有阴暗的一面。
+该公司发布的一份声明称，阿格拉瓦尔已在 Twitter 工作了十多年，自 2017 年以来一直担任首席技术官。
 
-肯尼迪：2000 年，盖茨将安东尼·福奇 (Anthony Fauci) 召集到，他位于西雅图华盛顿湖岸边的价值 8700 万美元的豪宅中。并提议两人之间建立合作伙伴关系，最终要求到 2020 年，对地球上每个男人、女人和儿童进行一连串不同的疫苗接种。
+根据Twitter的声明，这家总部位于旧金山的公司，其董事会一致批准阿格拉瓦尔担任CEO。 该公司表示，多尔西也是支付公司 Square 的CEO，他将继续担任 Twitter 董事会成员，直到明年任期届满。
 
-他们将 2009 年的努力重新命名为“疫苗十年”。他们承诺到 2020 年，地球上的每个人，包括儿童，都将接种疫苗，而且不仅一种疫苗，而且接种[一整套疫苗](https://childrenshealthdefense.org/defender/vaers-cdc-injuries-covid-vaccines-fda-pfizer-moderna-bosters/) 。
+在宣布离职之前，多尔西于 11 月 28 日在社交媒体平台上写道，“我喜欢Twitter”。此外，关于自己的离职，多尔西还发布了一封致 Twitter 员工的电子邮件。
 
-盖茨几乎对所有生产疫苗的公司都进行了大量投资。他利用他的慈善事业——他称之为慈善资本主义（[Philanthrocapitalism](https://childrenshealthdefense.org/defender/bill-gates-tech-monopolizer-rebranded-philanthrocapitalist/)），因为它不是真正的慈善事业。
+** “这是我自己的决定”，多尔西写道，“这对我来说很难过” 。**
 
-他拿走** 330 **亿美元并用它来避税，所以我们实际上是在为他的保单买单。然后，他用这笔钱来控制全球公共卫生政策。WHO基本上归他拥有。
+此外，Bret Taylor接替了前任Patrick Pichette，被任命为董事会的新主席，后者将继续留在董事会，并继续担任审计委员会主席。
 
-他创建了一系列准政府组织，负责制定全球卫生政策（[GAVI](https://www.gavi.org/)）、注册保险欺诈调查员(CIFI)和其他他大力投资和控制的组织，例如布莱顿合作组织（[Brighton Collaboration](https://brightoncollaboration.us/)）。
+现年45岁的多尔西在2020年曾面临“逼宫”，当时Twitter的股东埃利奥特管理公司(Elliott Management)试图取代他的CEO职务，因为埃利奥特管理公司的创始人保罗·辛格(Paul Singer)曾质疑多尔西是否应该同时职掌两家上市公司（Square和Twitter），呼吁他辞去其中一间公司的CEO职务。
 
-他利用他对这些机构的控制，要求发展中国家——非洲、亚洲、拉丁美洲——向他们的人口强制接种疫苗。
+2006年，多尔西与诺亚·格拉斯(Noah Glass)、比兹·斯通(Biz Stone)和埃文·威廉姆斯(Evan Williams)共同创立了Twitter，此后多尔西一直担任该公司的CEO，直到2008年被解职。2015年，前CEO迪克·科斯特罗(Dick Costolo) 卸任后，多尔西重新担任该公司的CEO。
 
-这些国家，例如非洲国家，严重依赖WHO提供支持其卫生部和艾滋病毒项目的资金。
+**2021 年 1 月，Twitter决定永久封禁时任总统川普的推特账号，此举让多尔西受到保守派和言论自由支持者的严厉批评。当时，多尔西也承认“这个时刻可能需要这种行为，但长期而言，此举将破坏开放互联网的崇高目标和理想”。**
 
-盖茨和**WHO**做的就是告诉这些国家，对于盖茨的脊髓灰质炎疫苗和他的百白破疫苗，你必须有一定的摄入量。
+**多年来，多尔西一直与Facebook首席执行官马克·扎克伯格以及谷歌的高管一起出现在电视直播的国会听证会上。在听证会上，他们会被问及，他们的平台是否对所谓的虚假信息的传播负有责任，或者平台是否在积极压制与主流大众相反的观点。**
 
-例如，如果人口中有 70% 或 80% 没有接种这些疫苗，就无法获得卫生部的资金。
+11月29日，Twitter的股价收盘时下跌了近3%。
 
-他们购买的疫苗是由他个人投资和盖茨基金会个人投资的公司生产的疫苗。
+原文连接：[https://www.theepochtimes.com/twitter-founder-jack-dorsey-steps-down-as-ceo-effective-immediately\_4128818.html?slsuccess=1](https://www.theepochtimes.com/twitter-founder-jack-dorsey-steps-down-as-ceo-effective-immediately_4128818.html?slsuccess=1)
 
-当像丹麦政府这样的独立组织，实际调查这些疫苗是否能挽救生命时——盖茨声称——他控制的调查组织发现事实恰恰相反。
+翻译&评论：洛杉矶盘古农场 – 比格渣餐厅老板の娘
 
-例如，世界上最流行的疫苗，百白破疫苗（白喉、破伤风和百日咳），盖茨多年来一直在非洲和亚洲推广，以挽救数千万儿童的生命。
+校对&编辑：洛杉矶盘古农场 – 小象の奶瓶
 
-当丹麦政府在 2017 年资助的一项研究——丹麦政府加上丹麦的国家血清研究所（ Statens Serum Institut ）和另一家疫苗公司——资助一项研究时，他们查看了非洲 30 年的记录，看看孩子们的情况——已经得到了疫苗与没有接种的儿童相比。
 
-他们发现：接种了这种疫苗的女孩——虽然她们可以预防白喉、破伤风和百日咳——但死亡率是未接种疫苗的女孩的** ****10 **倍。
+![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入: (或点击上方图片）
 
-疫苗可以保护他们免受某些传染病的某些毒株的侵害，但它已经消灭了他们的免疫系统，使他们极易受到轻微感染，尤其是呼吸道感染。
-
-营养不良、贫血、疟疾——其他导致许多非洲儿童死亡的因素，事实证明，接种疫苗的儿童，他们的能力要低得多，与免疫系统没有受到干扰的儿童相比，抵御疾病的能力要差得多。
-
-纽曼：那简直太可怕了。
-
-肯尼迪：让我再补充一点，盖茨基本上将WHO从过去的环境卫生和经济发展机构，变成了一个基本上进行疫苗接种的机构。
-
-WHO预算的 50% 用于盖茨的虚荣项目，即脊髓灰质炎疫苗，世界上大多数疫苗专家——非常支持疫苗——从一开始就告诉他——这是行不通的。你不会根除脊髓灰质炎。
-
-而今天WHO承认，当今世界上 70% 的脊髓灰质炎病例，是由盖茨的疫苗引起的。
-
-它不仅没有消除疾病，反而加剧了问题。 它在已经根除脊髓灰质炎的国家引起流行病，例如刚果和阿富汗，以及许多其他国家。
-
-纽曼：《美联社》甚至根据WHO的数据报道了这一点， 我在 2019 年 11 月也看到了。所以，所有这一切都引出了一个问题，这些人是故意这样做的吗？他们是邪恶的疯子吗？ 或者这只是善意的愚蠢政策，你认为他们的最终议程是什么？** **只是为了赚钱？** **他们的计划是什么？
-
-肯尼迪：这对我来说并不神秘。自古以来，同样的动机一直激励着人们，也就是积蓄力量。
-
-公共卫生权力和促进生物安全，现在基本上取代了外交政策的所有其他目标。
-
-这是故意的。这是有目的的。它是由这两个人——盖茨和福奇——推动的，但他们有很多很多盟友。
-
-[正如我在书中所展示的](https://www.amazon.com/Real-Anthony-Fauci-Democracy-Childrens/dp/1510766804)，情报机构与福奇博士和比尔盖茨有着深厚的联盟。CIA 实际上从 2000 年开始，就宣传了一系列涉及数十万人的模拟，盖茨和福奇参与了这些活动。他们总是受到情报机构，以及军队和大型制药公司的推动。
-
-我在书中记录的非常非常险恶的联盟方式[document in the book](https://www.amazon.com/Real-Anthony-Fauci-Democracy-Childrens/dp/1510766804)。顺便说一下，[书中有 2,200 个脚注](https://www.amazon.com/Real-Anthony-Fauci-Democracy-Childrens/dp/1510766804)。我的每一句话，每一个事实陈述，都有仔细、详细地记录。任何人都可以查看它们。
-
-他们推广了这些大流行模拟，这些模拟培训了欧洲、美国、澳大利亚和加拿大的一线工作人员、医院医生、医疗官员、情报官员、执法官员、一线工作人员。
-
-如果还不感到惊诧，在文章最后一部分，我们看看“实际上，他们每年都会进行这些模拟”的细节。
-
-**接下一篇：**[小肯尼迪告诉新美国人：福奇的“黑暗历史” 必须曝光（3/3）](https://gnews.org/zh-hans/1708917/)
-
-**新闻来源**：[childrenshealthdefense.org][RFK, Jr. Tells The New American: Fauci Has ‘Dark History’ That Must Be Exposed](https://childrenshealthdefense.org/defender/rfk-jr-alex-newman-fauci-gates-covid/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=42313e5d-3a92-4f7f-b998-9c5ce7efb7b3)
-
-* * *
-
-*审核：文乐
-校对：信心满满
-发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-2.jpeg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

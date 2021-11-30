@@ -2,32 +2,52 @@
 ---
 
 
-## 疑涉及新疆强迫劳动 法国Zara遭禁止扩店
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1708597/)
+## 运油20首次参与27架中共军机扰台，台外长表示绝不屈服于中共压力
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1708718/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/F5704625-D066-4DE3-B0AF-C208F69A774D_w1023_r1_s-7.jpg)图片来自：德国之声
-据德国之声中文网11月30日报道，法国一间Zara服饰店的扩店计划遭地区委员否决，法国官员29日称Zara母公司Inditex可能涉入新疆强迫劳动。今年6月，法国司法单位就开始调查Zara等4家时尚品牌，称他们涉嫌从强迫维吾尔族劳动中获益。法媒称，这是法国检警单位第一次针对维吾尔人权迫害议题展开行动。
-
-新疆棉花产量占全世界棉花供应量的五分之一，是国际时尚产业的重要原物料供应地。而这次遭指控的四间企业包含了Zara的西班牙母公司Inditex丶日本迅销（Fast Retailing）旗下的法国Uniqlo公司丶法国时装集团SMCP以及美国运动鞋品牌Skechers。
-
-反对扩建的委员会成员阿兰·卡尼尔（Alain Garnier）表示，这是该委员会的一个政治决定。“通过阻止那些无法充分掌控自家供应商的商店进行扩张，我们希望发出一个强烈的信号。”另一位委员桑德琳·雅科托（Sandrine Jacotot）也表示，因涉嫌新疆强迫劳动，Zara的项目违反了委员会考虑的可持续发展标准。
-
-Inditex当时否认这项指控，并在一封公开声明中表示：“在Inditex，我们对一切形式的强迫劳动持零容忍态度。我们也制定了相关政策和规定，确保这件事情不会出现在我们的供应链之中。”
-
-新闻参考链接：
-
-[疑涉及新疆强迫劳动 法国Zara遭禁止扩店](https://www.dw.com/zh/%E7%96%91%E6%B6%89%E5%8F%8A%E6%96%B0%E7%96%86%E5%BC%BA%E8%BF%AB%E5%8A%B3%E5%8A%A8-%E6%B3%95%E5%9B%BDzara%E9%81%AD%E7%A6%81%E6%AD%A2%E6%89%A9%E5%BA%97/a-59974682)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+作者：纽约香草山医疗部—云豹
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-768x103-9.jpg)
+
+
+
+当地时间11月28 日晚上，台湾国防部公布当天总共有27架中共军机，分别侵扰台湾西南及东南防空识别区。特别要留意的是，首次有运油20机加入扰台机队。台湾外交部长吴钊燮对此表示，“我们永远不会屈服于中共的压力！永远、永远、永远不会！”
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2000x1191_0673345042318.jpg)图片来源：国防部网页mnd.gov.tw
+当天侵扰台湾东南空域的有3组共机，分别为2架空警500、及1架运9通信对抗机。5架轰6、及4架歼10。1架运油20、及2架歼16。另外侵扰台湾西南空域的为1组共机，包括4架歼11、2架歼10、及6架歼16。
+
+研究中共军力的学者林颖佑表示，运油20的空中加油能力可以延伸中共军机的打击航程，并深入台湾东南方，势必对台湾的防卫造成影响与压力。
+
+前台湾空军副司令张延廷中将表示，“这是有计划、有步骤的演练，包含整个作战模式。”中共若要对台作战，必须先透过电战机掌控电磁权，接续再透过轰6、歼10、歼16等掌握制海及制空权。因此，运油20将会在巴士海峡一带形成空中加油走廊，替歼16战机进行加油，以达“战机掩护加油机，加油机替战机加油”的目的。 张延廷建议，台湾必须从中共整个用兵模式理清中共的企图与能力，从中了解弱点，并强化战力的保存与防护。
+
+参考链接：
+
+[學者：運油20服役建遠征型空軍 台空防壓力倍增](https://www.cna.com.tw/news/firstnews/202111280185.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+
+[27架共機擾台 吳釗燮：台灣永不屈服中共壓力](https://www.cna.com.tw/news/aipl/202111280202.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-12.jpg)
+
+编辑/校对/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-768x103-10.jpg)
+
+
 
  
 
