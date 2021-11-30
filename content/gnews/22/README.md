@@ -2,46 +2,20 @@
 ---
 
 
-## 超一百多个时尚品牌与砍伐森林有关
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1708375/)
+## 7国协助台湾建造潜舰，抵抗中共军事恐吓
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1708474/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+台湾宝岛农场 Amitofu
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/3bbabe012b9d16da2fff4996ce665b7c.jpg)
+2016年台湾蔡英文总统启动潜舰国造IDS后，潜舰国造IDS原型舰随着81主装备，在2021年初终于得到美方确认，愿意输出国造计画中难度最高的「红区装备」，即战斗系统整合、数位式声纳系统、潜望镜等辅助装备，潜舰国造IDS原型舰设计图于今年5月间，经海军聘请国外技术顾问团队后，已交由建造潜舰舰体的国外制造商转换施工图，进入舰体船段建造阶段，目标是在2025年交付8艘潜舰中的第1艘。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/RTX31XDO-400x225-1.jpg)
+路透社报导指出，在英国海外属地直布罗陀（Gibraltar）注册的一家Gavron Limited公司，在2013年提供了关键的人才管道。由两位董事为以色列人古柏（GilYossefCooper）和贝泽尔（ArieBeizer）的公司GavronLimited赢得提供技术建议给台湾国际造船股份有限公司（CSBC）的合约，由英国皇家海军潜艇舰队退役准将麦吉（CommodoreIanMcGhie）担任潜舰计画人员招募工作的关键人物，其中有许多顾问来自英国皇家海军专业潜舰人员，也聘请到来自澳洲、韩国、印度、西班牙、加拿大等其他5国的工程师、技师人员与海军退役军官在台船规划的海昌行政大楼进行作业，以高雄港为基地，向台湾海军与负责打造潜舰的台船提供专业建议，共同为打造国造潜舰的目标而努力。
 
+本文仅代表个人立场
+祈祷万佛万神加持文贵先生与新中国联邦战友
+审核:Athena雅典娜 发布:Amitofu
 
-
-图片来源：www.rti.org.tw
-
-
-#### 编译：小红帽
-
-一份报告指出，LVMH、普拉达、H&M、Zara、阿迪达斯和耐克等品牌与制革厂和其他参与生产皮革和皮革制品的公司有联系，而这些公司与亚马逊森林的砍伐有关联。
-
-在供应链研究公司Stand.earth周一发表的一份研究报告中指出，数十个家庭品牌被指控导致世界上最重要的热带雨林–亚马逊的森林砍伐。
-
-研究人员指出，亚马逊雨林的森林砍伐主要由养牛业驱动，而养牛业又依赖于对牛肉和皮革的需求。“巴西的皮革被世界各地的制革厂和制造商用来制造无数面向消费者的品牌产品，包括鞋类和高端时尚产品，”该研究称。
-
-在一个 “供应链可视化工具”中，Stand.earth显示了几十个高端和街头品牌如何与加工商合作，其中许多是中国制造商，而这些加工商反过来使用来自制革厂的产品，而这些制革厂本身又使用巴西皮革。
-
-研究人员分析了近50万行海关数据，发现包括阿迪达斯、耐克、新百伦、梯瓦、UGG和芬迪等品牌都与巴西的牛有联系。
-
-超过50个品牌在其供应链中与巴西最大的皮革出口商JBS有多方面的联系。
-
-众所周知，JBS公司参与了亚马逊雨林的砍伐，并在最近承诺到2035年，在其自身供应链中实现零砍伐。
-
-在贾伊尔·博尔索纳罗（Jair Bolsonaro）总统的领导下，巴西因未能对持续砍伐雨林采取行动而受到严厉批评。
-
-**参考新闻：**[Over 100 fashion brands tied to deforestation — RT World News](https://www.rt.com/news/541733-brazil-fashion-brands-cattle-climate/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[T-DAY: The Battle for Taiwan](https://www.reuters.com/investigates/special-report/taiwan-china-submarines/)
 
  
 

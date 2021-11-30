@@ -2,26 +2,23 @@
 ---
 
 
-## 法国民议会通过挺台参与国际组织议案
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1708498/)
+## 拜登曾表示希望日本防卫费增加以遏制中共
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1708599/)
 
-作者：纽约香草山医疗部 – 云豹
+作者：东京樱花团—在远方
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-法国国民议会于当地时间11月29日，以39票赞成、2票反对、3票弃权通过支持「台湾参与国际组织工作与多边合作论坛」决议案。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/法国.jpg)
-今年5月，法国参议院以304票赞成、0票反对一致通过支持「台湾参与国际组织工作」决议，当时即遭到中共的强烈抗议。 今日由「直接选举」方式产生，及代表多数执政党意志的国民议会，也同样通过支持台湾参与国际组织的议案。
+外媒11月27日消息，日前美国政府人士透露，美国总统拜登在10月上旬与日本首相岸田文雄的会谈中表示，希望日方能增加防卫费用。因美国政府需要遏制作为唯一竞争对手的中共，希望日本在安全领域能够负担更多。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/20211005053326987.jpeg)图片来源：阿波罗网
+岸田在当选首相之前，就表示防卫费不应该被数字束缚。而拜登基于岸田的发言，对日本切实推进防卫力调整表示了期待。
 
-对此，台湾驻法国代表吴志中表示，这是「台法关系重大历史突破」。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/法国-1.jpg)
-法方人士表示：支持台湾不仅是支持世界的多边主义合作，也是向国际社会清楚传达法国外交支持民主价值的方式。台湾是法国在亚洲的重要伙伴，也是当前地缘政治核心。 台法共享人权价值，且台湾抗疫表现堪为模范。 台湾参与国际组织将对国际社会带来益处。 法国的立场清楚，将继续支持台湾参加国际组织。
+据悉，日本防卫费在2016年首次超过5万亿日元，2021年加上补充预算则达到6万亿日元，很有可能超过GDP的1%。有意见认为，如果实现首次美日首脑会谈，日本增加防卫费用一事将成为主要议题。
 
-参考链接：[法國國民議會壓倒性通過決議案 挺台參與國際組織\[影\]](https://www.cna.com.tw/news/firstnews/202111300009.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+参考链接：[独家：拜登曾向岸田表示期待日本防卫费增额](https://china.kyodonews.net/news/2021/11/ec4ff208fa1d.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-总编：文徬
-编辑：Lakeman(文仁)
-校正/发稿：Fei797
+总编：正义的小新
+编辑/校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

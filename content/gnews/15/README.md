@@ -2,44 +2,34 @@
 ---
 
 
-## 裁员降薪——中共国经济寒冬已经到来
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1708450/)
+## 推特CEO辞职
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1708527/)
 
-作者：顺其自然
-编辑：文泓
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-208.jpg)图片来源：China Daily
-先提示下，在中共国关于裁员降薪的新闻在官媒上一定不会正式发表，笔者都是在一些博主的评论里找到的，然后再通过其他消息去验证。现在，企业绝对不会说是裁员，叫做“末位淘汰”。中国的汉字博大精深，在最近几年发挥的淋漓尽致，同样一件事情，总会给你换个说法。
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月29日，杰克·多西发布了辞职公开信，辞去推特首席执行官一职。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/CEO.jpg)
+推特股价在开盘前上涨12%。消息人士称，推特股价上涨是因为市场认为多西的辞职标志着很快将出现对推特的并购案。但相反意见则认为，推特面临铺天盖地的诉讼和天文数额的赔偿，前景黯淡。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/CEO-1.jpg)
+近年来，以推特、脸书为首的“硅谷大科技寡头”无视美国宪法第一修正案，打压自由言论，利用有政治或利益倾向的言论审查禁言、删帖，直到永久封号。推特因此官司缠身，多西多次被国会传唤参加听证会。分析人士称，多西辞职有利于他从争议和诉讼中脱身。
 
-就目前所知，阿里、字节跳动、鹅厂、美团、百度和支付宝，也就是之前一直高喊“996福报”的大公司，都在年底实行“末位淘汰”制，裁员10%到25%不等。传闻阿里是裁员2万人，腾讯正在计划中，目前人数未知，但裁员是一定的。以下是一些博主的相关评论。
+参考链接：
+1) . [Jack Dorsey Steps Down As Twitter CEO, Chooses Parag Agrawal As Successor](https://www.zerohedge.com/technology/jack-dorsey-step-down-twitter-ceo-cnbc-reports)
+2) . [Twitter CEO Jack Dorsey Steps Downhttp](https://www.newsmax.com/newsfront/dorsey-twitter-stepping-down/2021/11/29/id/1046527/)
 
-“风中的厂长”博主发帖，刚才听一个投资的朋友说，有几个大公司准备裁员，人数还不少。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
 
-贴下的评论里有人留言，上海链家年底前关了400家门店；平安也在裁员，医药行业大企业也在裁员，保险行业已经有100万人员自动不干了；房地产行业也在裁员。
+总编：AN
+编辑：文真
+校正/发稿：Fei797
 
-现在建筑工地（工资）都是日结。那些建筑工人想通了，日结（最多）也就损失一天的工资呗，总比一年或几个月的工资都拿不到的好。所以工地不给日结的，都开不了工，而建筑设计行业已经裁了一波了。现在距年底还有一段时间，广东很多中小企业现在就已经放春节的假期了。
-
-所以现在都说，“宇宙的尽头是公务员”。996互联网企业虽然薪水高，但过了35岁就都面临裁员。现在看来还是公务员好，今年又会有很多人报考公务员。但你知道吗，很多地方的公务员虽然基本工资没有降，但是年终奖要交税，很多人一下子就少了上万的收入，再加上奖金只发一半，绩效要取消，更惨的连基本工资都要降低5%到15%。现在降薪5%到15%大部分公务员还能承受得住，如果再降，就真的影响生活了。
-
-大家别把公务员的收入看得有多高，超过90%的公务员都是没有外快的，清水衙门，想捞都捞不到，所以这些人的收入真的就只是靠死工资，他们也都背着房贷呢，但是他们的房贷月供因为有公积金还好一些，如果降薪达到了30%，那基本的生活开支就都不够了。
-
-另据第一财经日报报道，劳动年龄人口年均净减700万（人），数据来自人力资源和社会保障部。“十四五”期间中国新退休人数将超过4000万人（年均增加800万人以上），劳动年龄人口累计将净减少3500万人（年均净减少约700万人）。必然导致医疗保险基金支出增加与社保筹资来源减少，基本医保制度在财务可持续性面临重大挑战。换言之，就是退休人员增多了，能干活的劳动力减少了。这也是前不久前，中共国务院发文，提倡家庭养老，要子女陪父母一起生活的原因。之前承诺的，“只生一个好，政府来养老”，早变成了历史性文件。
-
-这些令人艳羡的大企业都裁员了，可想而知中国的就业情况有多严峻。何止这些，还有地产的上下游行业，以及出口创汇血汗工厂破产倒闭。加上公务员降薪、奖金上税，也就是说几乎各行各业收入都在减少，有些人甚至收入完全没有保障。
-
-不只国内，世界各国现在都一样。附近与我关系较好朋友这两年收入都在下降。主要是疫情封城，他们都不能出去工作，若这次（南非）新病毒一来政府再启动封锁，那真的会逼得本地老百姓作出一些过激的事情。
-
-澳大利亚新南威尔士州政府非常恶心，今天发了50元的餐券，有啥用？你把病毒来源、疫苗危机整明白了，让民众可以正常上班，商铺、饭店正常营业，这比什么都强！然而，现在世界各国政府都是一堆流氓政客把持，以前我还曾想川普（下届）上台，可以扭转这个局势，现在看来，人类不经历一场大灾难真的不会清醒。
-
-油管视频资料来源：[闲聊澳洲 – YouTube](https://www.youtube.com/channel/UCPxB0vpNpmHN0hORXK4gj2A)
-
-发布：kk
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

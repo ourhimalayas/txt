@@ -2,34 +2,33 @@
 ---
 
 
-## 推特CEO辞职
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1708527/)
+## 2021/11/30 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1708618/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月29日，杰克·多西发布了辞职公开信，辞去推特首席执行官一职。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/CEO.jpg)
-推特股价在开盘前上涨12%。消息人士称，推特股价上涨是因为市场认为多西的辞职标志着很快将出现对推特的并购案。但相反意见则认为，推特面临铺天盖地的诉讼和天文数额的赔偿，前景黯淡。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/CEO-1.jpg)
-近年来，以推特、脸书为首的“硅谷大科技寡头”无视美国宪法第一修正案，打压自由言论，利用有政治或利益倾向的言论审查禁言、删帖，直到永久封号。推特因此官司缠身，多西多次被国会传唤参加听证会。分析人士称，多西辞职有利于他从争议和诉讼中脱身。
+1. 11月27日，上海黄浦区曙光医院开始进行封闭管理。
+2. 11月28日，黑龙江齐齐哈尔讷河市，全员核酸检测。学校听课，公共交通停止运输。
+3. 11月27日，乌鲁木齐乌拉泊北收费站，一货车司机突发不适，左半身麻木，无法动弹。
+4. 11月25日，河南信阳商城县华儒小区附近，一男子街头倒地。
+5. 11月24日，黑龙江木兰县大贵镇，村民爆料当地养猪场偷排污水，严重污染环境！
+6. 11月23日，河北张家口高铁站，所有人都需要提供核酸检测。未提供者，现场检测140元一次。
+7. 成立20余年的，打印机巨头OKI搬迁至泰国，深圳关厂，遣散700员工。
+8. 11月26日，河南郑州巩义市。几个月前那场暴雨灾难冲走的汽车“长”在了地里。
+9. 河南新乡，市民吐槽医院服务差：患者排长队，工作人员却着急下班数钱对账。
+10. 湖北武汉，女子拿到医院诊断书后，在医院走廊当场崩溃的一幕。
+11. 11月27日，辽宁锦州。疑因学生上课玩手机，被老师当众掌掴。
 
-参考链接：
-1) . [Jack Dorsey Steps Down As Twitter CEO, Chooses Parag Agrawal As Successor](https://www.zerohedge.com/technology/jack-dorsey-step-down-twitter-ceo-cnbc-reports)
-2) . [Twitter CEO Jack Dorsey Steps Downhttp](https://www.newsmax.com/newsfront/dorsey-twitter-stepping-down/2021/11/29/id/1046527/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
+* * *
 
-总编：AN
-编辑：文真
-校正/发稿：Fei797
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,55 +2,34 @@
 ---
 
 
-## CCP金融灾难的五宗罪（上）
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1708430/)
+## 法国民议会通过挺台参与国际组织议案
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1708498/)
 
-撰稿：木本水源
+作者：纽约香草山医疗部 – 云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+法国国民议会于当地时间11月29日，以39票赞成、2票反对、3票弃权通过支持「台湾参与国际组织工作与多边合作论坛」决议案。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/法国.jpg)
+今年5月，法国参议院以304票赞成、0票反对一致通过支持「台湾参与国际组织工作」决议，当时即遭到中共的强烈抗议。 今日由「直接选举」方式产生，及代表多数执政党意志的国民议会，也同样通过支持台湾参与国际组织的议案。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/99999.jpg)
+对此，台湾驻法国代表吴志中表示，这是「台法关系重大历史突破」。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/法国-1.jpg)
+法方人士表示：支持台湾不仅是支持世界的多边主义合作，也是向国际社会清楚传达法国外交支持民主价值的方式。台湾是法国在亚洲的重要伙伴，也是当前地缘政治核心。 台法共享人权价值，且台湾抗疫表现堪为模范。 台湾参与国际组织将对国际社会带来益处。 法国的立场清楚，将继续支持台湾参加国际组织。
 
-图片摘自网络
+参考链接：[法國國民議會壓倒性通過決議案 挺台參與國際組織\[影\]](https://www.cna.com.tw/news/firstnews/202111300009.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-**一宗罪：超发货币**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
 
-政府超发货币不能追查、不受监管。
+总编：文徬
+编辑：Lakeman(文仁)
+校正/发稿：Fei797
 
-中共国仅仅2020年印钞10万亿美元（约67亿元），其中2.8万亿美元放到新加坡。
-
-广东省2020年GDP约1.56万亿美元（10万亿元），超发的货币相当于6个广东省的GDP。
-
-上海市2020年GDP约0.58万亿美元（3.87万亿元），超发的货币相当于17个上海市的GDP。
-
-**二宗罪：房地产巨额负债**
-
-中共国的16家知名房企整个的负债统计表如下。其中，恒大是最大的负债房地产公司，达2万亿元。 16家知名房企负债总额是约5.17万亿元，相当于广东省2020年GDP的一半，也是上海市2020年GDP的1.3倍。郭文贵先生同期的直播说过，融创债务排名第一，主要是隐形债务。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/10-1-1.jpg)
-
-图片来自2021年10月29日郭文贵先生直播全文字版
-
-从现在起至2023年末，中共国的地产商合计要偿付约合0.77万亿元的美元债务。
-
-当CCP假大空的95万亿的房地产要崩塌的时候，带动整个金融行业一系列的蝴蝶效应就在发酵中，银行崩、保险崩、海外基金崩、欧美各国养老基金崩，其中严重的是很大一部分投资到了海外的中概股，包括其他的一些票据，然后再导致全球的金融危机，再到社会动荡跟人道主义危机。
-
-明年是爆雷开始，最严重应该是5月份，最夸张的就是7月份。注意，这跟明年的二十大和两会是息息相关。
-
-对香港汇丰来讲，对平安集团来讲，对民生银行来讲，对招商银行来讲，对中国银行来讲，所有的票据都会爆雷。这时所有老百姓买的保险，分毛儿没有！
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/10-3-1.jpg)
-
-图片来自 2021年10月29日郭文贵先生直播全文字版
-
-（待续）
-
-资料来源： 
-[文章一](https://gnews.org/zh-hans/1628810/) 
-[文章二](https://gnews.org/zh-hans/1667321/)
-
-发稿：Hong
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-3.jpg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,74 +2,41 @@
 ---
 
 
-## 小肯尼迪告诉新美国人：福奇的“黑暗历史”必须曝光（1/3）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1708231/)
+## 八旬老人向逝去亲人的哭诉:我们的处境比日本时期还难受
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1708280/)
 
-**翻译： Jenny Ball**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/捕获2_副本-1.png)
+每一个当下都是未来的历史，每一个当下都是历史的延续，而一位八旬老人面对苍天的哭诉——“他们政府是个大骗子，骗了我们喽，可把我们骗苦喽！我们没有活路喽！我这一见穿着黑衣裳的我就哆嗦哟！我就哆嗦哟！”也正是当下的历史。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip04-2.png)
+据[**l****海阔天空**](https://gettr.com/user/beyond11)@Beyond11[发表于 1:19 下午 · 11月 30日, 2021](https://gettr.com/post/pi9w99e6a8)发布的盖特——
 
-在“重要的对话”一集中，《真正的安东尼·福奇》一书的作者小罗伯特·肯尼迪告诉主持人亚历克斯·纽曼，福奇有一段“黑暗的历史”，必须曝光。
+别样的悼念： 80岁老人向南京牺牲的抗日英雄哭诉痛斥： 爷爷 我们被骗了。政府是个大骗子。比日本时期还狠。不让我们出入。把我们一辈子的心血全骗了。 你没想到这个结局吧！？他们比日本人还坏！ 转
 
-在“重要的对话”一集中，小罗伯特·肯尼迪告诉主持人亚历克斯·纽曼，安东尼·福奇博士、比尔·盖茨和他们的盟友，正在利用 COVID 将人类置于全球极权统治之下。
+让我们一起聆听老人的哭诉——
 
-肯尼迪是儿童健康保护委员会主席兼首席法律顾问，他的畅销书《真正的安东尼·福奇：比尔·盖茨、大型制药公司以及全球民主和公共卫生战争》。肯尼迪告诉纽曼，福奇——是“公共卫生的埃德加·胡佛（Edgar Hoover）”——有一段必须曝光的黑暗历史。
+爷爷、叔叔、大哥，今天是日本鬼子南京大屠杀纪念日，爷爷你也知道，你的孙子已经八十多岁了，把全部的心血买的镇政府的房，为的是在这安度晚年，可是到现在也是他们又来拆我们的房，不让我们住，现在我们的处境比日本时期还难受！我们没有人身自由，不让我们出入，你们为抗日战争牺牲的全体将士们，你们的在天之灵保佑我们，不能让他们把我们砸死，我已经八十多岁，可能要死在自己的人手里，我这一辈子的心血呀！我这一辈子的心血都投在这里了，他们政府是个大骗子，骗了我们喽，可把我们骗苦喽！我们没有活路喽！我这一见穿着黑衣裳的我就哆嗦哟！我就哆嗦哟！……唉！死了也值了！上辈人，为抗日战争，献出了生命，抛头颅洒热血，你们不知道………
 
-肯尼迪说：
+撰稿：喜马拉雅的肉夹馍
 
-福奇精心策划了 HHS [美国卫生与公共服务部]，从公共卫生机构到医药产品孵化器和[大型制药厂](https://childrenshealthdefense.org/defender_category/big-pharma/)议程的推动者。
+审核：喜马拉雅的馍夹肉
 
-[我在书中表明](https://www.amazon.com/Real-Anthony-Fauci-Democracy-Childrens/dp/1510766804)，他成功地在任 50 年，并不是因为在公共卫生领域取得了任何可衡量的成功，而是通过为制药公司的利益服务——因为**在他的统治下，公共卫生急剧下降，他**通过帮助实现这一目标， 让我们是世界上最依赖药物的国家。”
+校对：Maarago
 
-我们服用的药物是其他西方国家平均水平的三倍。
+（文章内容仅代表作者个人观点）
 
-肯尼迪说，儿童尤其成为受害者，尽管美国在“健康”方面的支出比其他国家多，但美国的健康结果，现在在工业化国家中垫底。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-“向每个人兜售越来越多的疫苗是危险的，必须停止，”肯尼迪说。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-他是公共卫生领域的埃德加·胡佛（Edgar Hoover）。
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-我们为这些药物支付了[最高的价格](https://childrenshealthdefense.org/defender/big-pharma-ripping-off-u-s-consumers/)，迄今为止，我们的健康结果是整个发达国家中最糟糕的。就我们的总体健康结果而言，我们在世界上排名第 79 位。
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-在福奇统治期间成年的这一代儿童——自 1984 年以来——是历史上病情最严重的一代。
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-当他进入 NIH 时，我们国家 [我们的孩子] 的慢性病发病率约为 6%。今天他们是 54%。
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-慢性病，我的意思是，不仅仅是肥胖，还有神经发育疾病，如注意力缺失症、多动症、语言发育迟缓、抽搐、嗜睡症、图雷特综合症、自闭症。
-
-**自闭症已经从我这一代人中的每 10,000 人中就有一个——今天仍然如此——到我这一代，每 34 个孩子中就有一个**。
-
-在福奇执政期间，1989 年出现了食物过敏。花生过敏、乳糜泻、小麦过敏、所有这些其他食物过敏，然后是自身免疫性疾病：类风湿性关节炎、青少年糖尿病、狼疮成为流行病。
-
-**这些都是 1960 年代基本未知的疾病，科学将它们追溯到福奇控制的创新。**
-
-你不能完全责怪托尼·福奇——一个人——造成这种级联反应，这场慢性病的海啸。
-
-福奇在 NIAID [国家过敏和传染病研究所] 的工作，是研究这些慢性疾病和免疫疾病以及过敏性疾病的来源，然后帮助我们消除它们——找出原因。
-
-我们知道这是一种环境毒素，它必须是， 基因不会引起流行病。
-
-我在书中展示的是，他没有进行这项研究，而是花费了几乎全部 77 亿美元的预算，为制药公司开发新药，并为五角大楼和军工联合体进行生物武器研究。
-
-他每年预算中有 16 亿美元主要用于武器开发——**生物武器研究**。
-
-他是联邦政府中收入最高的人。他每年收到 434,000 美元——比美国总统多 34,000 美元。 除了那份工作，**他还有很多很多其他的收入来源**。
-
-该预算的 68% 来自他对生物武器研究的管理，这就是为什么他被迫在武汉进行[功能获得性研究](https://childrenshealthdefense.org/defender/francis-collins-cnn-pamela-brown-nih-gain-of-function-research/)，并在中共国武汉进行管理，因为五角大楼正在付钱给他们做那种研究，否则他将失去大部分薪水。
-
-**我们将在文章的第二部分，看比尔·盖茨**[**Bill Gates**](https://childrenshealthdefense.org/defender/bill-gates-neo-feudalism-farmer-bill/)**在这其中的角色**。
-
-**新闻来源**：[childrenshealthdefense.org][RFK, Jr. Tells The New American: Fauci Has ‘Dark History’ That Must Be Exposed](https://childrenshealthdefense.org/defender/rfk-jr-alex-newman-fauci-gates-covid/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=42313e5d-3a92-4f7f-b998-9c5ce7efb7b3)
-
-* * *
-
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-2.jpeg)
-
-
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
