@@ -2,27 +2,60 @@
 ---
 
 
-## 灾难让人民觉醒系列：当没饭吃变成现实将如何面对（4）
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1706331/)
+## 中共国的经济是家天下党天下
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1706663/)
 
-撰稿：喜妈
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5E1D9A0C-FC98-4058-93B8-69AD51E056F3.jpeg)来自网络截图
-最近一个墙内的朋友，告诉笔者一件很新鲜的事情。作为一个来自天府之国，生猪饲养大省的居民，在早上10点钟的闹市区菜市场，发现猪肉摊没有猪肉卖了。原因就是政府发了一个公告，让大家准备紧急状态。这可是他长到至今为止的前所未有的事情。这对于笔者也是前所未闻的事情。
+[https://gtv.org/video/id=61a49c1e3ff6481adce5e5a4](https://gtv.org/video/id=61a49c1e3ff6481adce5e5a4)
 
-此外，他还告诉笔者，现在经过新一波的疫情和新的不确定动态所带来的恐慌，他已经开始准备物资了。这个朋友经过笔者在不同阶段不断地分享爆料革命的资讯，从完全不相信，到有所觉悟，到现在比较能够接受动态，是靠他从自己身边逐渐在变化的社会氛围和各种生活观察所带来的。
+**郭文贵**
+**Miles Guo**
 
-除了在猪肉大省大白天和最热闹的时段居然猪肉买断，他还有一个发现，就是物价的确是都在涨价。虽然政府都说是疫情的原因造成，好像也说得过去，可是他还是觉得这里总有一些东西是他说不清楚，也讲不明白的。他开始有所预备，并让自己的媳妇儿也开始在猪肉恢复正常供应后，多多灌点香肠，多做点腊肉。
+像牟其中（张宝胜）还有当年七哥这号人，那都是属于幸运者创下来的
+People like Mou Qizhong (Zhang Baosheng) and I back then were all created by the luck
 
-如果对方已经有了一些觉悟，笔者的任务就轻松很多，我肯定他的做法。同时，我还告诉他，你应该这样为有可能的危机做好打算。他告诉笔者，自己是从来没有饿过的人，即使生在六十年代末，也因为自己在一个特别会操持家务的外婆管理下，还有老家农村亲戚经常带来各种山里的出产，并没有什么饥饿的记忆。
+七哥是最早的老革命，1983年去贩卖鸽子、牛仔裤、电子表、邓丽君录像带
+I was one of the first private entrepreneurs in China, in 1983, I was selling pi-geons, jeans, electronic watches, and Teresa Teng video tapes
 
-可是他又喜欢吃肉，一顿没有肉就心慌；如果将来有一天买不到肉，同时买不到米，也没有油，他可是想也不敢想。可是，经过那天空荡荡的肉摊，他开始有点不安了。加上他开始印证了并感受到一些我之前给他说的话，慢慢有点对当下和未来的忧虑了。他发现，自己那个原本效益很好的体制内单位，大家都对每一项津贴和额外的奖金特别期待。
+到现在能活下来，能活下来还有几个呀，所有都是领导的孩子
+I can survive so far till now, how many entrepreneurs can survive now? All those who can live are the children of the leaders
 
-虽然过去大家对有钱可拿也同样开心欢乐，可是最近大家都在发钱之前的几周就热烈地讨论着，期待着，还是说明大家的口袋似乎不像之前那样的厚实了。最糟糕的是，原本说在本月有一次几千元的津贴，后来取消了，大家都很沮丧。
+邓朴方人家活着吗？活着呢，邓楠活着呢
+Is Deng Pufang still alive? alive, Deng Nan is alive
 
-笔者认为，对于体制内和改革之后的人们来说，饥饿已经淡出了人们的视野。他们没有饥饿的印象了。对那些城市里和体制内的人们来说，一份稳定的公务员工作是一辈子都不愁吃喝的。可是现在，这位朋友经过一些恐慌和突如其来的冲击，对安稳的生活能否继续有所保留了。他开始积极准备着有可能的饥饿突然发生。尽管他也告诉我，他不敢跟他老婆说实话；他只能告诉他老婆，你买得到的话，多买一点肉，做香肠腊肉云云。
+保利越来越强大，就共产党的一部分先富起来了
+Poly Group became stronger and stronger, and only the Communist Party be-came the rich first as part of the policy
 
-他说，没人会相信会没有肉，会没有米，没有油；他也希望不会，但愿不会，可是他开始有点不安了。我也回应，谁也不希望，谁也不愿意，可是有些事情，做坏的打算，往糟糕的准备，也许不是坏事情。他能积极去行动，对我来说，也是莫大的安慰。总归算是又能让一个人稍稍清醒一点。希望我们的同胞们不要到没饭吃的境地，我们希望灭共的努力能够拯救更多的同胞。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-3.jpg)
+最后所谓的到了邓（小平）之后，江泽民的深圳南部、局部开发
+In the end, it’s after Deng (Xiaoping), Jiang Zemin’s southern part of Shenzhen and partial was developed
+
+大部分开放，然后有了私人企业家，私人企业家占了国家86%的税收
+Later most of them were open, and then there were private entrepreneurs who accounted for 86% of the country’s tax revenue
+
+解决了将近60%到80%到就业问题，
+And solved nearly 60% to 80% of the employment problem
+
+习王来了, 国有企业要唱主角，也就是把国家经济家天下、党天下
+Xi (Jinping) and Wang (Qishan) are in power, state-owned enterprises should play the leading role, that means that the national economy become the Family World and the Party World
+
+Date:11/28/2021
+原视频标题: 中共国的经济是家天下 党天下
+The economy of the Chinese Communist Party is the family world and the Party world
+原视频日期：2021/11/26
+原视频链接https://gettr.com/post/pi1e4n0758
+任务编号：3033
+视频时间段 : 0:00-0:49
+
+中听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

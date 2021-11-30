@@ -2,17 +2,30 @@
 ---
 
 
-## 【文贵先生大直播PPT】青蒿素功效
-` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1703384/)
+## 2021/11/28 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1703695/)
 
-撰稿：飞飞及团队
-审核：三票先生，顽童先生，舒平风
+1. 11月25日，网曝武汉一民警疑似酒后执法打人引发民众不满。
+2. 11月23日，辽宁抚顺。爷爷给孙女“算帐”，称再活10年能多见孙女20回。年轻人被背井离乡远离家人的常态。
+3. 网传老人因为交不起老伴的住院费而失控大哭。
+4. 来自一个普通年轻人的自嘲，突然发觉自己闯过生活种种困难只是为了成为一个普通人。
+5. 河南新乡一学校学生餐后集体呕吐，校长痛哭：配餐公司无法自主更换，因为是“教育局招标的”。
+6. 疫情让断供潮持续上升，因为无法正常续交贷款成片的月供房变成了法拍房。
+7. 11月25日，河南郑州。郑州特大暴雨4个月后，车主在几十公里外找到自己的车。
+8. 中共国城管的执法常态。
+9. 随意被污染的环境使死鱼铺满河流。
 
-【2021年11月28日文贵先生大直播PPT：青蒿素功效】
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-196.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/2-132.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/3-110.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/4-73.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/5-56.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/6-48.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/7-41.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/8-32.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/9-24.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/10-13.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/11-17.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/12-14.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/13-6.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/14-7.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/15-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/16-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/17-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/18-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/19-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/20-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/21-14.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/22-11.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/23-10.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/24-8.jpg)
+
 * * *
 
-上传：云起时
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

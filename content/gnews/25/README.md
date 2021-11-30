@@ -2,19 +2,35 @@
 ---
 
 
-## “爆二代”首次接触喜交所和见证喜币上市的感想
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1706355/)
+## 英国发现两例欧米茄新变种病例
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1706688/)
 
-撰稿：喜安娜
-![](https://assets.gnews.org/wp-content/uploads/2021/11/FCB4EF56-8C89-43E3-9D9D-38AF58F1B64B.jpeg)来自网络截图
-作为爆料革命的第二代小战友，我非常荣幸能够见证喜币的上市。喜币上市对每个战友来说，都是一件令我们非常开心和值得庆祝的事。但我觉得，喜币上市对我们“爆二代”来说是极为有特殊意义的。我们之所以要灭共，就是因为要追求自由、人权和民主，我们灭共，是为了我们的未来，为了我们的子子孙孙，我们的后代不会再被奴役。所以这次喜币的上市和喜交所的成立，让我们向我们的目标又前进了一步。
+作者：纽约香草山 – Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/新.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/61a246fd06de3.jpg)
+英国卫生部长萨吉德·贾维德表示，切姆斯福德和诺丁汉发现了两例新冠病毒欧米茄新变种病例！
 
-首先，喜交所的成立让我们看到了奇迹的发生。在短短的一到两年的时间内，整个喜交所的平台构思和框架就已形成；这是难以想象的。整个平台呈现出了大气、利落、专业的外形，而喜交所内部的构成程序和内部团队也是及其高效和富有专业精神的。喜交所平台的特点为每位用户都提供了一个特别又从来未有过的交易经历。
+同时，卫生与社会福利部表示，检测呈阳性的个人及其所有家庭成员正在接受重新测试，并被告知在进一步检测和接触者追踪期间要求进行自我隔离。
 
-喜币的上市让每一位支持正义且加入了农场做义工的战友都拥有了财富，这让我们拥有了更多去帮助他人，和传播正义的力量。只有当金钱是在有正义、善良之心的人掌控之中，金钱才能发挥最大助人助己的作用。 有了喜币，我们就有了对未来的掌控力。有了喜币，我们就有了对未来的希望。
+该部门表示：“英国卫生安全局正在阳性病例可能具有传染性的地点进行有针对性的检测。”
 
-对于我们新一代战友而言，喜交所的成立让大家看到了正义人士集结后的力量，这更加鼓舞我们继续前进。而喜币的上市让每一位战友都增添了去发挥自己最大的潜力和各方面能力的翅膀。这让我们更加坚定灭共决心，坚持不懈传播真相，继续见证奇迹的发生。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-2.jpg)
+“为应对当前新冠病毒欧米茄新变种的发展形势，英国正在积极采取果断行动保护公共卫生。正在跟进已确认的病例和联系人，并要求隔离并在必要时接受测试。现在将在病例周边地区进行强化测试。‘’
+
+**参考阅读：**[https://www.hulldailymail.co.uk/news/uk-world-news/two-cases-omicron-variant-found-6270731?utm\_source=ground.news&utm\_medium=referral](https://www.hulldailymail.co.uk/news/uk-world-news/two-cases-omicron-variant-found-6270731?utm_source=ground.news&amp;utm_medium=referral)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-419.jpeg)
+编辑/校对/发稿：文留
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/新.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

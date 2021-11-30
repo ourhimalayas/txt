@@ -2,56 +2,40 @@
 ---
 
 
-## 秘翻在线：美科技巨头们大比例抛售所持股份，意欲何为？
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1706475/)
+## 法官阻止了10个州对医护人员的疫苗强制令
+` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1706806/)
 
-编译：雨季仰光
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11Picture1.png)图片来源：网络
-据零对冲（Zerohedge）报道，上周在短短两天时间内，与亚马逊老板杰夫.贝索斯（Jeff Bezos）及埃隆.马斯克（Elon Musk）一道，微软CEO萨蒂亚.纳德拉（Satya Nadella）也加入了巨头们抛售所持股份的队列，所售股份占约占其持有总额的一半。
+加拿大扬帆农场 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5702cb66-c0d9-4844-91f5-9072b2d8645f_1920x1080.jpg)图片来源： KSDK
+根据《CNN》11月29日报道，密苏里州的联邦法官今天发布命令，部分阻止拜登政府对某些医护人员实施强制疫苗。
 
-亚马逊的贝索斯也售出相当大的份额。
+该法官的命令涵盖了提起诉讼的10个州：阿拉斯加、阿肯色州、爱荷华州、堪萨斯州、密苏里州、内布拉斯加州、新罕布什尔州、北达科他州、南达科他州和怀俄明州。
 
-下图所示为亚马逊股票走势图及贝索斯的几处重要卖点（译者注）。
-![](https://cms.zerohedge.com/s3/files/inline-images/bfm360B.jpg?itok=oLPN3KCK)
-特斯拉的马斯克同时也更为积极地（公开地）抛售其所持股份。
+被阻止的的疫苗强制令来自美国卫生与公众服务部的医疗保险和医疗补助服务中心，涵盖了参与医疗保险和医疗补助计划的供应商的某些医疗保健人员，并为这些工作人员接受第一剂Covid-19疫苗设定了12月6日的最后期限。
 
-下图为特斯拉股票走势图并标示了马斯克的股票抛售点位。
+特朗普总统任命的法官马修-谢尔普(Matthew Schelp)在一份32页的命令中说，挑战这项疫苗强制令的人很可能会成功，他们的论点是CMS不具备实施强制疫苗的权力。他还说，政府在推出疫苗强制政策的过程中可能违反了行政法。在发布初步禁令时，Schelp法官提到挑战者声称，如果不阻止项强制令，医疗机构将遭受严重的人员短缺。
 
-[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfmA433_2.jpg?itok=L_I51-qr)](https://www.zerohedge.com/s3/files/inline-images/bfmA433_2.jpg?itok=L_I51-qr)
+法官写到：”总之，原告的证据表明，医疗机构，尤其是农村医疗机构可能会面临护理标准的危机，或者别无选择，只能对新病人关闭或完全关闭，这两种情况都会对原告的公民造成重大的、不可弥补的伤害“。
 
-而当下，微软的萨蒂亚.纳德拉在11月22至23号售出其所持有的普通股的份额达83.86万股。下图为纳德拉抛售微软股份的点位及股票走势图。
+疫苗已被广泛宣传是阻止Covid-19传播的一个重要途径，然而Schelp法官指出，在公布任务的监管文件中，有一句话指出了疫苗效果的不确定性，包括”接种者传播疾病 “。Schelp在他的命令中反复提到了这句话。他说：”虽然根据CMS的说法，目前还不知道该疫苗在防止接种者传播疾病方面的效果，但根据法院所掌握的证据，该强制令将对原告所在州的大量医疗机构，特别是农村地区的医疗机构产生破坏性影响。法官说，CMS在制定这一要求时，过于依赖长期护理设施的数据，以证明对其他类型的提供者实施这一任务的合理性。
 
-[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfmC295_0.jpg?itok=qLIJQ-7v)](https://www.zerohedge.com/s3/files/inline-images/bfmC295_0.jpg?itok=qLIJQ-7v)
+Schelp法官写道：”虽然广泛的强制令在长期护理设施方面可能是有意义的，但根据CMS的证据，CMS没有提出类似的证据来支持对其他14个设施实施该强制令”。
 
-下图所示为纳德拉在11月的这连续两天所售股份明细
+此案是上个月由密苏里州和其他九个州提出的。这是反击疫苗强制的几起诉讼之一，拜登政府还面临着对联邦政府试图实施的其疫苗强制的法律挑战。在佛罗里达州针对疫苗强制提起的另一起案件中，法官驳回了佛罗里达州阻止该强制疫苗的请求。
 
-[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfmF65E.jpg?itok=2oNTF1mR)](https://www.zerohedge.com/s3/files/inline-images/bfmF65E.jpg?itok=2oNTF1mR)
+在命令发布后的新闻发布会上，密苏里州总检察长埃里克-施密特称法官的命令 “意义重大”，是 “首例 “裁决。他说，他预计司法部将对此案提出上诉，并最终提交给最高法院。
 
-[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfmC21E.jpg?itok=Nv_JOA_6)](https://www.zerohedge.com/s3/files/inline-images/bfmC21E.jpg?itok=Nv_JOA_6)
+施密特被问及新的Omicron病毒变体，该变体是在密苏里州案件中关于初步禁令请求的简报结束时才被检测出来。
 
-这些销售行为与期权及10b5-1计划\*无关，是他有史以来的最大抛售行为。
+施密特说”我们应该继了解更多关于任何变体的信息，事实是，Covid与我们共存，总会有新的变体，但我认为人们已经受够了政府对人们的封锁，受够了政府制定的疫苗要求。因此，每当政府行为过分时，我们就会进行反击”。
 
-导致微软股价走低。这些股权的变化在11月24号收市后披露，势必将引发周五更大的抛压…
-[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfm9FA6_0.jpg?itok=s2y8xb3O)](https://www.zerohedge.com/s3/files/inline-images/bfm9FA6_0.jpg?itok=s2y8xb3O)
-上图为纳德拉抛售的具体股价部位及相应市场上周五个交易日走势变化
+法官阻止这十个州的疫苗强制令意义重大，不能让政府为所欲为，唤醒更多人反抗政府暴政，尽早结束强制疫苗。
 
-是微软在这个价位已经太贵了吗？（上图为微软长周期走势）
+https://www.cnn.com/2021/11/29/politics/biden-cms-mandate-missouri-order/index.html
 
-[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfmC474.jpg?itok=rK8tIxdg)](https://www.zerohedge.com/s3/files/inline-images/bfmC474.jpg?itok=rK8tIxdg)
-[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfm4DED_1.jpg?itok=EDCJ8cqK)](https://www.zerohedge.com/s3/files/inline-images/bfm4DED_1.jpg?itok=EDCJ8cqK)![](https://cms.zerohedge.com/s3/files/inline-images/bfmED4B.jpg?itok=zPFJ3gjt)
+* * *
 
-
-
-
-他们知道些什么（内幕）了吗？上两图显示从大周期看，目前点位在技术分析上看是一个碗形底的右碗边关键点位，属于底部形态的阶段最高点，后期一般经过一段时间调整将继续上行（译者注）
-
-作为不缺钱的大佬们同一时间步调一致地大规模减持所持股份，是真的在做技术上的高抛低吸吗？译者认为应该不会，大佬们不会在意高抛低吸那点散碎银子，大钱的走向或去留一般是在诠释资本对市场的态度，如此步调一致地，高比例减持股份，想必是他们洞察到资本市场未来的某些不确定性或巨大危机，从而先兑现筹码，落袋为安。
-
-从文贵先生对世界经济当前局势的分析可以预知，货币超发，大水漫灌之后的股市叠加疫情和疫苗的反复蹂躏，世界即将迎来的是类似上世纪20年代末的股市崩盘及随之而来的大萧条时代，历史何其相似！站在未来说历史是荒谬可笑的，但是总结历史事件，结合当下发生的现实事件，总可以找到规律性的蛛丝马迹来引导和准备我们今天的行为。
-
-新闻来源：[Why Did Satya Nadella Suddenly Dump Half His Microsoft Holdings Last Week?](https://www.zerohedge.com/markets/why-did-satya-nadella-suddenly-dump-half-his-microsoft-holdings-last-week)
-
-校对发布：Shifter
+发稿 Spirit
 
  
 

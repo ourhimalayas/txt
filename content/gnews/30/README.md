@@ -2,44 +2,76 @@
 ---
 
 
-## 科顿抨击世卫组织相比公共卫生“更关心”维护中共国政府的“感受”
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1706296/)
+## 中共的杀富“济贫”是依法抢劫
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1706611/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/F5704625-D066-4DE3-B0AF-C208F69A774D_w1023_r1_s-3.jpg)网络图片
-共和党参议员汤姆·科顿(Tom Cotton)在周六的一条推文中表示，与公共卫生相比，世界卫生组织(WHO)更关心保护中共国政府的“感受”。
+[https://gtv.org/video/id=61a49b3b3ff6481adce5e566](https://gtv.org/video/id=61a49b3b3ff6481adce5e566)
 
-这条推文是在世卫组织确认在命名其新的新冠病毒变体时跳过了希腊字母“nu”和“xi”之后发布的，它被称为“奥米龙（omicron）”变体，尽管目前尚不清楚科顿的推文是否针对的是该组织的变体名称选择。
+**郭文贵
+Miles Guo**
 
-“世卫组织是个笑话”科顿说，“他们更关心中国共产党的感受，而不是公共卫生。拜登总统不应该在没有改革的情况下恢复对中共这个腐败傀儡的资助。”
+你让我发自内心地说，马云绝不应该是如此
+let me say from the bottom of my heart, Jack Ma should never be treated like this
 
-在周六的另一条推文中，这位阿肯色州共和党人表示，中共国国家主席习近平“对中国共产党在全世界释放的病毒有联系持防御的态度。”
+柳传志也不罪该如此，他女儿滴滴也不应该罪该如此
+Liu Chuanzhi should not deserve such a sentence, nor should his daughter’s Didi deserve such a sentence
 
-谁跳过希腊字母“NU”和“XI”，命名新变体奧米克戎“OMICRON”？
+那么这本质和这交易所是什么关系，它是一场大掠夺的开始
+So what does this essence have to do with this exchange? It is the beginning of a great plunder
 
-世卫组织发言人在周六的一份声明中告诉福克斯新闻，它跳过了希腊字母“nu”和“xi”，因为“’nu’太容易与’new’混淆，’xi’没有被使用，因为它让人想到一个人的姓名。”
+它是共产党的杀富济贫，什么叫作共享财富，就是杀富济贫嘛
+It is the Communist Party’s killing the rich and helping the poor, what is meant by sharing wealth? It is just killing the rich and helping the poor
 
-发言人说：“世卫组织命名疾病的最佳做法建议避免‘冒犯任何文化、社会、国家、地区、专业或种族群体’。”
+它关键是，是不是杀富济了贫，贫的会更贫，富的会没有
+The key point is whether you can help the poor by killing the rich, the poor will become poorer, and the rich will not exist
 
-据世卫组织网站称，世卫组织建议使用希腊字母使病毒命名过程更容易。受监控的变体包括alpha（B.1.1.7 和 Q 谱系）、beta（B.1.351和后代谱系）、gamma（P.1 和后代谱系）、epsilon（B.1.427 和 B.1.429）、eta（B. .1.525),iota (B.1.526),kappa(B.1.617.1),zeta(P.2)和mu(B.1.621, B.1.621.1)，是nu前的最后一个字母，后面接着是xi和omicron。
+只有共产党会富有，就像杀掉200多万个地主
+Only the Communist Party will be richer, like killing more than 2 million landloads
 
-共和党众议员肯·巴克说：“这种新病毒应该被称为Xi变种，因为中共国一开始就撒谎并传播新冠病毒！”
+中国人最后文化大革命，大跃进，死了将近8千万到1亿人
+In the end of China Cultural Revolution, the Great Leap Forward, killed nearly 80 million to 100 million people
 
-简评：在这次新病毒的命名过程中世卫组织特地将病毒名称中的希腊字母“NU”和“XI”有意去掉，让全世界认清了这帮蛀虫的嘴脸，中共病毒奧米克戎变体Omicron本月早些时候首次出现在南部非洲，并被世界卫生组织（WHO）指定为令人担忧的变体，称其可能比Delta和Alpha病毒株更具传播性。
+而且土地尽归共产党，到今天都是共产党的
+And the land is all attributed by the Communist Party, and it’s still owned by the Communist Party today
 
-新闻链接：
+然后你现在你还没有土地产权，让你纳房地产税
+And the people still don’t have land property right now, and they have to pay real estate tax
 
-[Cotton drags WHO for being ‘more concerned’ about protecting ‘feelings’ of Chinese gov. than public health](https://www.foxnews.com/politics/cotton-world-health-organization-china)
+这一场革命所谓的杀富豪分土地，从所有的开始它叫依法抢劫
+The so-called killing of the rich and dividing the land in this revolution is called robbery according to law from the beginning
 
-* * *
+这话是谁先说的，我告诉你，这最早是王沪宁给习说的
+Who said this first? let me tell you, it was first said by Wang Huning to Xi
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+我们不能再杀地主分田地了
+We can no longer kill landlords to divide lands
 
+但我们会通过市场行为,合法地将财富来个均贫富，这是王沪宁的原话
+But CCP will legally equalize wealth of the rich and the poor through market behavior, this is the original words of Wang Huning
 
-编辑：【英国伦敦喜庄园编辑部】
+啥时候说的2006年，那时候王沪宁牛着呢
+When did he say it? that was 2006, at that time Wang Huning was pretty powerful
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**原视频链接**:[https://gettr.com/post/phybfv5cb6](https://gettr.com/post/phybfv5cb6)
+
+Date:11/27/2021
+原视频标题: 中共的杀富“济贫”是依法抢劫
+The CCP’s “killing the rich and helping the poor” is a robbery in accordance with the law
+原视频日期：2021/11/24
+原视频链接https://gettr.com/post/phybfv5cb6
+任务编号：KC292(3026)
+视频时间段 : 0:00-1:30
+
+中听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

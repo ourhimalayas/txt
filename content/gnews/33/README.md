@@ -2,50 +2,56 @@
 ---
 
 
-## 香港抗议影片《时代革命》在金马奖中获最佳纪录片奖
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1706148/)
+## 秘翻在线：美科技巨头们大比例抛售所持股份，意欲何为？
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1706475/)
 
-**【简评】***“我真的很希望有一天，我们的国家可以被当成一个真正独立的个体来看待，这是我身为一个台湾人最大的愿望” ，2018年11月17日晚，台湾纪录片导演傅榆在金马奖颁奖礼上的这番话，导致中共当局指令导演和演员抵制金马奖，此后，大陆商业电影和一些广告商纷纷避走。2019年，金马奖提名名单上再无大陆电影。而金马奖也顺应成为抵御北京审查制度的堡垒，成了一个自由出口，支持在中国内地和香港遭禁的电影。正如周冠威导演所说，希望这部电影能给留在香港的人们、流亡海外的香港人，甚至是监狱里的香港抗议者，给予一份安慰、一份拥抱。*
+编译：雨季仰光
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11Picture1.png)图片来源：网络
+据零对冲（Zerohedge）报道，上周在短短两天时间内，与亚马逊老板杰夫.贝索斯（Jeff Bezos）及埃隆.马斯克（Elon Musk）一道，微软CEO萨蒂亚.纳德拉（Satya Nadella）也加入了巨头们抛售所持股份的队列，所售股份占约占其持有总额的一半。
 
-据《路透社》记者：Ben Blanchard，2021年11月27日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-938-e1638209986529.png)2020年6月19日，香港电影导演周冠威在接受路透社采访后拍照留影。图片来源：路透社/Tyrone Siu
-路透台北11月27日电：**一部关于香港民主抗议活动的纪录片于周六在台湾举行的第58届金马奖（华语世界的奥斯卡奖）颁奖典礼上获得了一个备受瞩目的奖项。**
+亚马逊的贝索斯也售出相当大的份额。
 
-**在台北举行的这场盛大的活动中，周冠威的《时代革命》（Revolution of Our Times）获得最佳纪录片奖，观众报以长时间的掌声表示对影片及对香港的支持，更有人高声喊出“香港加油”。**
+下图所示为亚马逊股票走势图及贝索斯的几处重要卖点（译者注）。
+![](https://cms.zerohedge.com/s3/files/inline-images/bfm360B.jpg?itok=oLPN3KCK)
+特斯拉的马斯克同时也更为积极地（公开地）抛售其所持股份。
 
-周冠威从香港发来了预先录制的信息，表达了对该奖项的感谢，他把这部电影献给了香港人民，说他希望影片能给香港人带来一些安慰。
+下图为特斯拉股票走势图并标示了马斯克的股票抛售点位。
 
-“制作这部电影时，我哭了很多次；我多次用这部电影来安慰自己，来表达我的愤怒、仇恨，来面对我的恐惧和创伤”，他说。他的声音因情绪激动而哽咽。
+[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfmA433_2.jpg?itok=L_I51-qr)](https://www.zerohedge.com/s3/files/inline-images/bfmA433_2.jpg?itok=L_I51-qr)
 
-香港人周冠威的这部电影讲述了2019年示威期间几名抗议者与警察的冲突，他此前曾告诉路透社，他希望这部纪录片能帮助这场民主运动继续下去。
+而当下，微软的萨蒂亚.纳德拉在11月22至23号售出其所持有的普通股的份额达83.86万股。下图为纳德拉抛售微软股份的点位及股票走势图。
 
-《时代革命》在今年的戛纳电影节上意外亮相。
+[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfmC295_0.jpg?itok=qLIJQ-7v)](https://www.zerohedge.com/s3/files/inline-images/bfmC295_0.jpg?itok=qLIJQ-7v)
 
-一年多前，中共为香港制定并推出了一项全面的国家安全法，以打击中共认为的颠覆、分裂主义、恐怖主义和与外国势力勾结的行为。
+下图所示为纳德拉在11月的这连续两天所售股份明细
 
-从那时起，电影院、大学和美术馆都取消了放映或展览与抗议有关的作品。
+[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfmF65E.jpg?itok=2oNTF1mR)](https://www.zerohedge.com/s3/files/inline-images/bfmF65E.jpg?itok=2oNTF1mR)
 
-抗议者在民主统治的台湾赢得了广泛的支持和同情。
+[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfmC21E.jpg?itok=Nv_JOA_6)](https://www.zerohedge.com/s3/files/inline-images/bfmC21E.jpg?itok=Nv_JOA_6)
 
-中共国声称台湾是其领土，并在2019年阻止中国电影和人员参加金马奖。金马奖成立于1962年，每年在台湾举行。
+这些销售行为与期权及10b5-1计划\*无关，是他有史以来的最大抛售行为。
 
-2018年颁奖典礼上，一名台湾导演傅榆曾在发表获奖感言时呼吁台湾独立（这触到了北京的红线），引发中共当局的愤怒，并在中共国明星间引发轩然大波。
+导致微软股价走低。这些股权的变化在11月24号收市后披露，势必将引发周五更大的抛压…
+[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfm9FA6_0.jpg?itok=s2y8xb3O)](https://www.zerohedge.com/s3/files/inline-images/bfm9FA6_0.jpg?itok=s2y8xb3O)
+上图为纳德拉抛售的具体股价部位及相应市场上周五个交易日走势变化
 
-原文连接[：https://www.lifesitenews.com/news/kansas-passes-bill-to-protect-workers-from-bidens-covid-mandate/](https://www.lifesitenews.com/news/kansas-passes-bill-to-protect-workers-from-bidens-covid-mandate/)
+是微软在这个价位已经太贵了吗？（上图为微软长周期走势）
 
-翻译：洛杉矶盘古农场–比格渣餐厅老板の娘
-
-校对：洛杉矶盘古农场–Mike Li
-
-评论：洛杉矶盘古农场–比格渣餐厅老板の娘
-
-编辑：洛杉矶盘古农场–心照
+[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfmC474.jpg?itok=rK8tIxdg)](https://www.zerohedge.com/s3/files/inline-images/bfmC474.jpg?itok=rK8tIxdg)
+[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfm4DED_1.jpg?itok=EDCJ8cqK)](https://www.zerohedge.com/s3/files/inline-images/bfm4DED_1.jpg?itok=EDCJ8cqK)![](https://cms.zerohedge.com/s3/files/inline-images/bfmED4B.jpg?itok=zPFJ3gjt)
 
 
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+他们知道些什么（内幕）了吗？上两图显示从大周期看，目前点位在技术分析上看是一个碗形底的右碗边关键点位，属于底部形态的阶段最高点，后期一般经过一段时间调整将继续上行（译者注）
+
+作为不缺钱的大佬们同一时间步调一致地大规模减持所持股份，是真的在做技术上的高抛低吸吗？译者认为应该不会，大佬们不会在意高抛低吸那点散碎银子，大钱的走向或去留一般是在诠释资本对市场的态度，如此步调一致地，高比例减持股份，想必是他们洞察到资本市场未来的某些不确定性或巨大危机，从而先兑现筹码，落袋为安。
+
+从文贵先生对世界经济当前局势的分析可以预知，货币超发，大水漫灌之后的股市叠加疫情和疫苗的反复蹂躏，世界即将迎来的是类似上世纪20年代末的股市崩盘及随之而来的大萧条时代，历史何其相似！站在未来说历史是荒谬可笑的，但是总结历史事件，结合当下发生的现实事件，总可以找到规律性的蛛丝马迹来引导和准备我们今天的行为。
+
+新闻来源：[Why Did Satya Nadella Suddenly Dump Half His Microsoft Holdings Last Week?](https://www.zerohedge.com/markets/why-did-satya-nadella-suddenly-dump-half-his-microsoft-holdings-last-week)
+
+校对发布：Shifter
 
  
 
