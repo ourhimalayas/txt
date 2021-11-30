@@ -2,28 +2,51 @@
 ---
 
 
-## 远东董事长被迫表态：希望两岸“维持现状”，粉红：维持现状也是“独”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1707974/)
+## 媒体称越来越多足球运动员倒地是“巧合”跟疫苗无关
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1708034/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-964.png)[图片来源](https://tw.news.yahoo.com/%E9%81%A0%E6%9D%B1%E9%9B%86%E5%9C%98%E8%A2%AB%E4%B8%AD%E5%9C%8B%E7%BD%B0%E6%AC%BE-%E5%9C%8B%E5%8F%B0%E8%BE%A6-%E7%B5%95%E4%B8%8D%E5%85%81%E8%A8%B1%E6%94%AF%E6%8C%81%E5%8F%B0%E7%8D%A8%E7%9A%84%E4%BA%BA%E5%9C%A8%E5%A4%A7%E9%99%B8%E8%B3%BA%E9%8C%A2-135220534.html)
-台湾远东集团在中共国投资企业此前因违法违规被依法查处，董事长徐旭东29日投书媒体表示，“盼两岸关系维持现状”，“一向反对台独”，并支持“九二共识”。徐旭东称，台湾产业应对大陆市场有合理的认识和判断，“不该让意识形态挂帅，凌驾一切”。
+**【雅典娜快讯】，紧贴时事脉搏**
 
-据此前报道，台湾远东集团旗下化纤纺织、水泥企业在大陆5省市存在违法、违规行为，被依法处以约4.74亿元人民币罚款，并收回部分闲置建设用地。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/TELEMMGLPICT000278659282_trans_NvBQzQNjv4Bqg0QhGUrJBLC1cMiJLC7a79HhMh81Y8GqX3ipA8YMo0k.jpeg)
 
-台媒30日报道称，台远东集团遭裁罚后，徐旭东29日出席公开活动，但未接受媒体采访。不过，徐旭东随后投书台湾《联合报》，表达对两岸关系与产业政策看法，也是远东集团在大陆被依法处罚后，首度发表相关评论。
 
-徐旭东称，台湾许多机构进行针对台湾人对于两岸关系的调查，其中“维持现状”是最多数台湾人主流民意；他跟多数台湾人一样，希望两岸关系“维持现状”，“更一向反对台独”，并支持“九二共识”，也支持一中原则。
+ 
+图片来源：www.telegraph.co.uk
 
-徐旭东还称，台湾近年“逢中必反”似乎有扩大迹象，也令人忧心。近来两岸政治进入零互动、关系急冻，但两岸经贸往来却愈来愈热络。
 
-对于徐旭东投书表态反对“台独”，希望两岸关系“维持现状”，中共国内网络上小粉红却不买账，表示维持现状就是“台独”。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-965.png)
-消息来源：[台媒：台远东集团董事长徐旭东投书表态反对“台独”](https://news.sina.com.cn/c/2021-11-30/doc-ikyakumx1096309.shtml)
+#### 编译：小红帽
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
+媒体对最近一连串备受瞩目的足球运动员，在比赛中突然因心脏问题倒下的事件，作出了回应，得出的结论认为这只是一个 “巧合”。
+
+在最近几周和几个月里，无数的足球明星以及其他运动员都神秘地遭受了严重心脏问题。
+
+这促使德国的《柏林日报》发表一篇报道，试图回答为什么“最近出现了异常多的职业和业余足球运动员倒地的事件”。
+
+上周，当谢菲尔德联队的约翰·弗莱克（John Fleck）倒地和谢里夫·蒂拉斯波尔的边锋阿达马·特拉奥雷（Adama Traore）在欧洲冠军联赛，与皇家马德里的比赛接近尾声时倒下。
+
+根据亚法·希尔·拉兹（Yaffa Shir-Raz）博士的一份报告，“2021年国际足联球员心脏性猝死的情况增加了5倍”。
+
+然而，根据《每日邮报》的一项调查称，“这很可怕，但这是一个‘巧合’，没有必要 ‘恐慌’。”
+
+该报告称，“根据一位著名的心脏病专家的说法，最近几周职业足球运动员中出现的一系列备受瞩目的心脏问题和晕倒情况很可能是巧合，而不是表明球员正在努力应对高强度的比赛。”
+
+尽管承认心肌炎是 “罕见”病例中的疫苗副作用，但整个报告甚至没有提到疫苗的负作用可能与正在发生的事情有关。
+
+然而，正如克里斯·梅纳汉（Chris Menahan）所指出的，评论区里挤满了提出这个想法的人。这可以解释为什么这么多网站要完全取消评论区了。
+
+当一位前职业球员敢于在直播现场中提出球员倒地与疫苗有关时，他马上被实时审查。
+
+**参考新闻：** [Media Says Rise in Football Players Suddenly Collapsing is a “Coincidence” – Summit News](https://summit.news/2021/11/29/media-says-rise-in-football-players-suddenly-collapsing-is-a-coincidence/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
