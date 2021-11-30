@@ -2,32 +2,67 @@
 ---
 
 
-## 莫德纳宣布将推出针对奥米克戎的疫苗加强针
-` 丁过` [轉載自GNews](https://gnews.org/zh-hans/1706654/)
+## 青蒿素对未打疫苗感染者的功效
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1706774/)
 
-#### 温哥华农场 丁过
-![](https://assets.gnews.org/wp-content/uploads/2021/11/截屏2021-11-29-下午7.27.08.png)来源：BBC
-中共新病毒奥米克戎 （Omicron）刚刚被发现不到一个月，就被发现已传播到13个国家。在南非奥米克戎已经迅速取代Delta成为优势毒株，占到南非感染率的76%，值得注意的是，南非的感染者以年轻人和已经感染过中共病毒的人为主。
+[https://gtv.org/video/id=61a49cde3ff6481adce5e5d3](https://gtv.org/video/id=61a49cde3ff6481adce5e5d3)
 
-世卫将中共病毒变异株标记为三个层次，一是需要担忧的变异毒株（VOC）；二是“需要关注的变异毒株（VOI）；三是需要监测的变异毒株（VUM）。
+**郭文贵**
+**Miles Guo**
 
-奥米克戎得到世卫组织史上最快命名，上周五被标记为VOC后，今天又宣布它在全球传播的风险”很高”。支撑世卫如此定性的是，科学家们发现该病毒有大量的刺突蛋白突变，这意味着它的传染性可能高于已知的其他变体。
+这个我最近跟咱们欧洲的科学家进行了多方位的探讨
+I recently conducted a multi-faceted discussion with our European scientists
 
-欧盟疾控中心认为，奥米克戎在欧洲传播的风险属于”高到很高”。做事一向谨慎的日本政府日前宣布“禁止所有外国人入境日本”，也说明了奥米克戎可能比肆虐全球的Delta更加可怕。
+首先是他非常清楚青蒿素这个事情，他说特别是没打过疫苗染了病毒的人
+First of all, he knows about artemisinin very well that especially for people who have not been vaccinated and have contracted the virus
 
-德国传染病学家乌尔里西斯悲观地认为，相较之前的病毒株，奥米克戎出现大量的、明显的变异，这有可能使之越过现有疫苗的免疫屏障，可能导致疫情失控。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/59774584.jpg)来源： Bambino Gesù Hospital in Rome 
-另一位德国病毒专家德罗斯滕则认为，有理由相信现有疫苗对奥米克戎也有防护效力，尤其是能预防出现重症，所以“最好是打过疫苗，打过加强针就更好”。
+就是未来这个精子卵子是不是健康，他非常明确地说
+He said very clearly that the sperm and the egg would not be healthy in the fu-ture
 
-以上两位专家的意见是相互矛盾的，代表了当前反对和支持中共疫苗两大阵营的态度，可悲的是，全世界几乎所有的政府都在极力推动中共疫苗普及和加强针注射。
+短期内肯定不健康，他说需要一个周期，最起码需要个两到三年
+It will definitely be unhealthy in the short period time, he said human body needs a cycle of recovery, at least two to three years
 
-尤其值得注意的是，与辉瑞合作开发第一款mRNA疫苗的德国生物科技公司Biontech宣布，已开始研究其疫苗对奥米克戎的防护效力，结果将在两周内出炉。而美国的莫德纳公司已宣布，将推出针对奥米克戎的加强针。
+他说最起码两到三年，人的生理周期每三年到五年是一个最重要的
+He said that at least two to three years, the number of menstrual cycles every three to five years is the most important period
 
-众所周知，一种安全有效的疫苗推出需要数年的时间，但是，在奥米克戎变种病毒刚刚发现不到一个月，其突变多达几十种，众多病毒专家承认对奥米克戎变异“了解相对较少，传染性和逃避免疫能力还未有定论”的情况下，Biontech和莫德纳就神速宣布将推出针对奥米克戎的加强针，难道这还不是草菅人命和有备而来吗？
+他说女性一般来讲的是四年，男性一般都是五年左右
+He said that women generally are about four years, and men generally are about five years
 
-参考来源：
+它是一个大的生理调整期，他说最坏的说是八年
+It is a big period of physiological adjustment, he said that the worst case is about eight years
 
-[奥米克戎新冠变体令各国恐慌 世卫忧全球传播](https://www.dw.com/zh/奥米克戎新冠变体令各国恐慌-世卫忧全球传播/a-59970264)
+他说这是肯定不会超过八年，他说身体上有一个大的调整
+He said it will definitely not exceed eight years, and he said there is a major ad-justment in human body
+
+他说如果吃青蒿素，不要吃太多的药剂的话，吃青蒿素调整
+He said that if you take artemisinin, don’t take too much medicine, take arte-misinin to improve health adjustment
+
+病毒就在你身体不会有任何的残留，残留着身体里，
+The virus will not have any residue in your body
+
+但短期内肯定不行，肯定不行，就是你好了也不行
+But it won’t work in the short period time, it won’t work, even if you have recovered, it still won’t work
+
+**原视频链接**[:](https://gettr.com/post/pi1l59905e)[https://gettr.com/post/pi1l59905e](https://gettr.com/post/pi1l59905e)
+
+Date:11/28/2021
+原视频标题: 青蒿素对未打疫苗感染者的功效
+The effect of artemisinin on people who have not been vaccinated and infected with the virus
+原视频日期：2021/11/26
+原视频链接 https://gettr.com/post/pi1l59905e
+任务编号：KC294（3034）
+视频时间段 : 0:00-1:00
+
+中听校：洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

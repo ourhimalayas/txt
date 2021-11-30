@@ -2,10 +2,8 @@
 ---
 
 
-## 11/24郭文贵直播：赵长鹏藏身迪拜和中共勾兑（粤语配音）
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1706977/)
-
-11/24/2021 郭文贵直播：赵长鹏藏身迪拜便于和中共勾兑且不会被遣返，他的新任务是打压喜币；请全世界在币安开过账号的人站出来并集体起诉赵长鹏；我们会和美欧政府合作将其绳之以法。
+## 英卫生大臣：中共病毒新变种可能对公众健康构成实质性威胁
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1707092/)
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

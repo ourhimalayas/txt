@@ -15,101 +15,101 @@
 
 ---
 
-### [维多利亚州大规模抗议反对疫苗强制接种及相关法案](/content/gnews/1/README.md)
+### [瑞士马路上设立分隔栏区分接种过疫苗的和未接种的人通行](/content/gnews/1/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [鲍比·肯尼迪的《真正的安东尼·福奇》揭示两股推手](/content/gnews/2/README.md)
+### [约翰·巴拉索: 拜的登疫苗强制令是错误的，造成国家分裂](/content/gnews/2/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [众议员迈克·沃尔茨:摩根CEO以牺牲自己的价值观和美国国家安全向习屈膝](/content/gnews/3/README.md)
+### [中共病毒疫苗会导致各种不良反应，包括促使癌症恶化](/content/gnews/3/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [不到2周时间，十几国检出中共病毒新变种](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [英卫生大臣：中共病毒新变种可能对公众健康构成实质性威胁](/content/gnews/5/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [日本决定封国以应对中共病毒扩散](/content/gnews/6/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [众议员安迪·哈里斯表达对儿童疫苗强制令的担忧](/content/gnews/7/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [辉瑞内部邮件显示其试图掩盖疫苗含有氧化石墨烯](/content/gnews/8/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [维多利亚州大规模抗议反对疫苗强制接种及相关法案](/content/gnews/9/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [鲍比·肯尼迪的《真正的安东尼·福奇》揭示两股推手](/content/gnews/10/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [众议员迈克·沃尔茨:摩根CEO以牺牲自己的价值观和美国国家安全向习屈膝](/content/gnews/11/README.md)
  ` 美国政要直译推`
 
-### [11/26郭文贵直播：中共在联合国成立了“反对反冬奥会组织”（粤语配音）](/content/gnews/4/README.md)
+### [11/26郭文贵直播：中共在联合国成立了“反对反冬奥会组织”（粤语配音）](/content/gnews/12/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [11/24郭文贵直播：赵长鹏藏身迪拜和中共勾兑（粤语配音）](/content/gnews/5/README.md)
+### [11/24郭文贵直播：赵长鹏藏身迪拜和中共勾兑（粤语配音）](/content/gnews/13/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [世界经济论坛发布疫苗气泡枪视频，可发射疫苗进行接种](/content/gnews/6/README.md)
+### [世界经济论坛发布疫苗气泡枪视频，可发射疫苗进行接种](/content/gnews/14/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [世界经济论坛暗示将发动网络攻击切断银行帐号访问](/content/gnews/7/README.md)
+### [一份接种新冠疫苗不久后就被截肢的人员名单](/content/gnews/15/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [世界经济论坛暗示将发动网络攻击切断银行帐号访问](/content/gnews/16/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [每日快报：又一联邦法官反对，白宫悄悄推迟强制疫苗](/content/gnews/8/README.md)
+### [每日快报：又一联邦法官反对，白宫悄悄推迟强制疫苗](/content/gnews/17/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [Enes Kanter calls for US to boycott 2022 Beijing Winter Olympic](/content/gnews/9/README.md)
+### [Enes Kanter calls for US to boycott 2022 Beijing Winter Olympic](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [11.26文贵爆料 不要被世俗的感恩迷惑，真正的感恩是自发的和绝对的](/content/gnews/10/README.md)
+### [11.26文贵爆料 不要被世俗的感恩迷惑，真正的感恩是自发的和绝对的](/content/gnews/19/README.md)
  ` 秘密翻译组-原创组`
 
-### [埃内斯·坎特呼吁更多运动员和国家挺身而出对抗中共](/content/gnews/11/README.md)
+### [埃内斯·坎特呼吁更多运动员和国家挺身而出对抗中共](/content/gnews/20/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [加拿大BC省24小时内出现13个婴儿胎死腹中的情况](/content/gnews/12/README.md)
+### [加拿大BC省24小时内出现13个婴儿胎死腹中的情况](/content/gnews/21/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [币圈新闻动态：喜币（HCN）价格目前在34.119 HDO](/content/gnews/13/README.md)
+### [币圈新闻动态：喜币（HCN）价格目前在34.119 HDO](/content/gnews/22/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中共继续利用变种病毒“奥密克戎(Omicron)”攻击全世界](/content/gnews/14/README.md)
+### [中共继续利用变种病毒“奥密克戎(Omicron)”攻击全世界](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [为避免印太冲突，澳大利亚必须警惕中共军事规模和野心](/content/gnews/15/README.md)
+### [为避免印太冲突，澳大利亚必须警惕中共军事规模和野心](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [法官阻止了10个州对医护人员的疫苗强制令](/content/gnews/16/README.md)
+### [法官阻止了10个州对医护人员的疫苗强制令](/content/gnews/25/README.md)
  ` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)`
 
-### [未申报药企大额礼物，昆州卫生医疗机构人员涉嫌腐败](/content/gnews/17/README.md)
+### [未申报药企大额礼物，昆州卫生医疗机构人员涉嫌腐败](/content/gnews/26/README.md)
  ` 走进澳洲`
 
-### [G时评207期（11.29）直播摘要](/content/gnews/18/README.md)
+### [G时评207期（11.29）直播摘要](/content/gnews/27/README.md)
  ` GISELLE`
 
-### [理查德·巴里斯讲解民调结果：多数人反对疫苗强制令](/content/gnews/19/README.md)
+### [理查德·巴里斯讲解民调结果：多数人反对疫苗强制令](/content/gnews/28/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [11/29/2021 文贵盖特：所有独裁政府都说自己永远正确,面对经济崩溃，他们将发动战争、制造种族矛盾和社会动乱](/content/gnews/20/README.md)
- ` 秘密翻译组-北美组`
-
-### [青蒿素对未打疫苗感染者的功效](/content/gnews/21/README.md)
+### [青蒿素对未打疫苗感染者的功效](/content/gnews/29/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [雅典娜时报-第128期](/content/gnews/22/README.md)
+### [雅典娜时报-第128期](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
 
-### [安德鲁斯政府拉到选票，大流行病法案经修改有望通过](/content/gnews/23/README.md)
- ` 走进澳洲`
-
-### [华夏幸福：累计未能如期偿还债务合计1013亿元](/content/gnews/24/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [英国发现两例欧米茄新变种病例](/content/gnews/25/README.md)
+### [英国发现两例欧米茄新变种病例](/content/gnews/31/README.md)
  ` 纽约香草山MOS01`
 
-### [美国为与中共争夺东盟 询问东盟会谈意向](/content/gnews/26/README.md)
+### [美国为与中共争夺东盟 询问东盟会谈意向](/content/gnews/32/README.md)
  ` 纽约香草山MOS01`
-
-### [7·24系列——病毒来源在昌平防化学院](/content/gnews/27/README.md)
- ` 墨尔本雅典娜农场`
-
-### [中共国的经济是家天下党天下](/content/gnews/28/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [莫德纳宣布将推出针对奥米克戎的疫苗加强针](/content/gnews/29/README.md)
- ` 丁过`
-
-### [中共的杀富“济贫”是依法抢劫](/content/gnews/30/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [澳洲央行警告，巨大的经济下滑已迫在眉睫](/content/gnews/31/README.md)
- ` 走进澳洲`
-
-### [【信仰之声】约瑟的启示（三）：唯真的心，与神同行，化解危机](/content/gnews/32/README.md)
- ` 纽约香草山MOS03`
 
 ### [秘翻在线：美科技巨头们大比例抛售所持股份，意欲何为？](/content/gnews/33/README.md)
  ` 秘密翻译组-原创组`
