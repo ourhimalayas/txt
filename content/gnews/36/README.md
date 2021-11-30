@@ -2,18 +2,20 @@
 ---
 
 
-## 美国为与中共争夺东盟 询问东盟会谈意向
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1706687/)
+## 英国发现两例欧米茄新变种病例
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1706688/)
 
-作者：东京樱花团 – 在远方
-![](https://assets.gnews.org/wp-content/uploads/2021/11/新.png)
-11月28日，多名外交相关人士透露，针对中共不断与东盟加强关系的频频举动！拜登政府询问东盟意向，能否于明年1月中旬，在华盛顿与美国政府举行面对面首脑会议。此举更加凸显美国高度重视亚洲地区的政治局势的发展！
-![](https://assets.gnews.org/wp-content/uploads/2021/11/gettyimages-1229769415-2560x1707-1.jpeg)
-据悉，本月22日，中共与东盟举行了视频连线纪念峰会。在视频会上，中共党魁习近平宣布双方关系正式升级为“全面战略伙伴关系”！同时，美国为了争取与东盟的合作关系和在亚洲地区的战略布局，就此与中共展开了激烈的拉锯战。
+作者：纽约香草山 – Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/新.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/61a246fd06de3.jpg)
+英国卫生部长萨吉德·贾维德表示，切姆斯福德和诺丁汉发现了两例新冠病毒欧米茄新变种病例！
 
-相关消息人士透露，预计美国和东盟的特别首脑会议，将不会邀请非国际社会认可的缅甸军政府！而布林肯拟定于12月中旬访问印尼和泰国，展开相关协调准备工作。
+同时，卫生与社会福利部表示，检测呈阳性的个人及其所有家庭成员正在接受重新测试，并被告知在进一步检测和接触者追踪期间要求进行自我隔离。
 
-**参考阅读：**[https://china.kyodonews.net/news/2021/11/7a268fa68956.html](https://china.kyodonews.net/news/2021/11/7a268fa68956.html)
+该部门表示：“英国卫生安全局正在阳性病例可能具有传染性的地点进行有针对性的检测。”
+
+“为应对当前新冠病毒欧米茄新变种的发展形势，英国正在积极采取果断行动保护公共卫生。正在跟进已确认的病例和联系人，并要求隔离并在必要时接受测试。现在将在病例周边地区进行强化测试。‘’
+
+**参考阅读：**[https://www.hulldailymail.co.uk/news/uk-world-news/two-cases-omicron-variant-found-6270731?utm\_source=ground.news&utm\_medium=referral](https://www.hulldailymail.co.uk/news/uk-world-news/two-cases-omicron-variant-found-6270731?utm_source=ground.news&amp;utm_medium=referral)
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-419.jpeg)
 编辑/校对/发稿：文留
 
@@ -27,7 +29,7 @@
 
 [**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/新.png)
  
 

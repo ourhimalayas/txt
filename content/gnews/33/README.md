@@ -2,67 +2,92 @@
 ---
 
 
-## 青蒿素对未打疫苗感染者的功效
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1706774/)
+## 中共继续利用变种病毒“奥密克戎(Omicron)”攻击全世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1706820/)
 
-[https://gtv.org/video/id=61a49cde3ff6481adce5e5d3](https://gtv.org/video/id=61a49cde3ff6481adce5e5d3)
+![Omicron Variant Continues Spread as Europe, Israel Enact New Mandates](https://www.newsmax.com/CMSPages/GetFile.aspx?guid=ee44a009-3d3d-4a51-a209-2251c56ff9ab&amp;SiteName=Newsmax&amp;maxsidesize=600)*2021 年 11 月 26 日星期六，一个人在南非约翰内斯堡接受 COVID-19 测试。随着世界努力应对 COVID-19 新变种的出现，南非的科学家们（首次发现 omicron 的地方）正在争先恐后 以对抗其在全国的蔓延。 （美联社照片/杰罗姆）*
+#### 来自NEWMAX网站11月28日的报道，
 
-**郭文贵**
-**Miles Guo**
+正当更多国家试图通过实施旅行限制来封闭自己的时候，周日，新的奥密克戎(Omicron)中共病毒变种继续在世界范围内传播，在荷兰发现了13个病例，在丹麦和澳大利亚各发现2例。
 
-这个我最近跟咱们欧洲的科学家进行了多方位的探讨
-I recently conducted a multi-faceted discussion with our European scientists
+荷兰卫生当局宣布，周五，在从南非飞抵阿姆斯特丹的航班上的乘客中发现了13例该变种病毒病例。
 
-首先是他非常清楚青蒿素这个事情，他说特别是没打过疫苗染了病毒的人
-First of all, he knows about artemisinin very well that especially for people who have not been vaccinated and have contracted the virus
+当局对这两架航班上的所有600多名乘客进行了检测，发现了61例中共病毒病例，并继续对这些病例进行新变种检测。
 
-就是未来这个精子卵子是不是健康，他非常明确地说
-He said very clearly that the sperm and the egg would not be healthy in the fu-ture
+“在荷兰出现更多的病例并不是不可能。”卫生部长胡戈·德容赫(Hugo de Jonge)在鹿特丹的一场新闻发布会上说。“目前这种状况可能只是冰山一角。”
 
-短期内肯定不健康，他说需要一个周期，最起码需要个两到三年
-It will definitely be unhealthy in the short period time, he said human body needs a cycle of recovery, at least two to three years
+该变异毒株最初是在南非被发现的，现在已在英国、德国、意大利、荷兰、丹麦、比利时、博茨瓦纳、以色列、澳大利亚和香港被发现。
 
-他说最起码两到三年，人的生理周期每三年到五年是一个最重要的
-He said that at least two to three years, the number of menstrual cycles every three to five years is the most important period
+上周被世界卫生组织称为“值得关注的变种”奥密克戎(Omicron)的发现，引发了全世界的担忧，即它可能会抵抗疫苗的作用，并延长已出现近两年的中共病毒大流行。
 
-他说女性一般来讲的是四年，男性一般都是五年左右
-He said that women generally are about four years, and men generally are about five years
+奥密克戎(Omicron)可能比以前的变种更具传染性，尽管专家们尚不知道与其它变种相比，它是否会引起更多的（或是更少的）中共病毒严重病例。
 
-它是一个大的生理调整期，他说最坏的说是八年
-It is a big period of physiological adjustment, he said that the worst case is about eight years
+丹麦传染病管理局周日表示，已在来自南非的旅客中登记了两例该变种病例。
 
-他说这是肯定不会超过八年，他说身体上有一个大的调整
-He said it will definitely not exceed eight years, and he said there is a major ad-justment in human body
+澳大利亚人口最多的州新南威尔士州的卫生官员表示，周六晚上从南部非洲抵达悉尼的两名乘客被检测出该变种病毒呈阳性。
 
-他说如果吃青蒿素，不要吃太多的药剂的话，吃青蒿素调整
-He said that if you take artemisinin, don’t take too much medicine, take arte-misinin to improve health adjustment
+奥地利周日正在调查一例疑似病例，法国卫生部长奥利维耶·韦朗(Olivier Veran)表示，该变种病毒可能已经正在法国传播。
 
-病毒就在你身体不会有任何的残留，残留着身体里，
-The virus will not have any residue in your body
+各国已对南部非洲实施了一波旅行禁令或限制措施，以试图阻止该（变种病毒）传播。金融市场周五暴跌，因为投资者担心该变种病毒可能会阻碍全球经济复苏。油价每桶暴跌了约10美元。
 
-但短期内肯定不行，肯定不行，就是你好了也不行
-But it won’t work in the short period time, it won’t work, even if you have recovered, it still won’t work
+周日，大多数海湾地区股市早盘都大幅下跌，沙特指数遭遇近两年来最大单日跌幅。
 
-**原视频链接**[:](https://gettr.com/post/pi1l59905e)[https://gettr.com/post/pi1l59905e](https://gettr.com/post/pi1l59905e)
+以色列的措施
 
-Date:11/28/2021
-原视频标题: 青蒿素对未打疫苗感染者的功效
-The effect of artemisinin on people who have not been vaccinated and infected with the virus
-原视频日期：2021/11/26
-原视频链接 https://gettr.com/post/pi1l59905e
-任务编号：KC294（3034）
-视频时间段 : 0:00-1:00
+为了尽最大努力阻止该变种病毒的出现，以色列在周六晚些时候宣布，该国将禁止所有外国人入境，并重新采用反恐电话跟踪技术，以遏制该变种病毒的传播。
 
-中听校：洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+总理纳夫塔利·贝内特(Naftali Bennett)表示，在政府批准之前，该禁令将持续14天。官员们希望，在此期间，会有更多关于疫苗对奥密克戎(Omicron)的有效性的信息。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+许多国家已经限制了（或正在计划限制）来自南部非洲的旅行。南非政府周六谴责此举不公平，并称可能对其经济有害——声称南非因早期识别中共病毒变种的科学能力而正在受到惩罚。
+
+在英国，周六发现的两例奥密克戎(Omicron)相关病例与前往南部非洲的旅行有关，政府宣布了试图遏制传播的措施，包括对抵达该国的人员实施更严格的检测规定，以及要求在某些情况下戴口罩。
+
+英国卫生部长萨吉德·贾维德 (Sajid Javid) 周日表示，他预计将很快收到有关政府是否可以扩大向完全接种疫苗的人提供疫苗加强针计划的建议，以试图削弱该变种的影响。
+
+德国巴伐利亚州周六也宣布了两例该变种病毒感染的确诊病例。在意大利，国家卫生研究所表示，在米兰发现了一名来自莫桑比克的人感染了这种新变种病毒的病例。
+
+据中共国国家电视台周日报道，中共国呼吸系统疾病专家钟南山表示，可能需要一段时间才能就新变种病毒的危害性得出结论。
+
+疫苗差异性
+
+尽管流行病学家表示，旅行限制可能为时已晚，无法阻止奥密克戎(Omicron)的传播，但许多国家（包括美国、巴西、加拿大、欧盟国家、澳大利亚、日本、韩国和泰国）已经宣布了对南部非洲实施旅行禁令或限制。
+
+周日，更多国家实施了此类限制措施，包括印度尼西亚和沙特阿拉伯。
+
+墨西哥卫生部副部长雨果·洛佩斯·盖特尔(Hugo Lopez Gatell)表示，旅行限制对应对这种新的变种病毒几乎没有用，并称一些国家采取的措施“不合理”。
+
+“它没有被证明具有更强的毒性或可以逃避疫苗诱导的免疫反应。这些措施会影响经济和人们的福祉。”他周六在推特上发帖说。
+
+在许多欧洲国家正在应对中共病毒感染人数激增，其中一些国家正重新对社会活动实施限制，以试图阻止传播之际，奥密克戎(Omicron)出现了。
+
+这种新变种病毒还引起了人们对全球疫苗接种率差异巨大的关注。据医疗和人权组织称，尽管许多发达国家正在注射第三剂疫苗加强针，但在那些低收入国家，只有不到7%的人接种了他们的第一剂中共病毒疫苗。
+
+全球疫苗免疫联盟(GAVI)与世卫组织共同领导了推动公平分配疫苗的“2019冠状病毒病疫苗实施计划(COVAX)”的倡议，该联盟首席执行官塞思·伯克利(Seth Berkley)表示，这对于阻止出现更多的中共病毒变种至关重要。
+
+他在周六给路透社的一份声明中说：“虽然我们仍然需要更多地了解有关奥密克戎(Omicron)的情况，但我们确实知道，只要世界上大部分人口未接种疫苗，变异就会继续出现，大流行病将继续延长。”
+
+简评：
+
+郭文贵先生早有预测说中共政权有可能继续放毒毒害全世界，不出所料，新的病毒变种奥密克戎(Omicron)现在已经开始在全世界范围内传播。可怜世界各国仍然停留在防止病毒传播和继续接种毒疫苗这个层面，受感染的国家几乎都在忽略中共病毒溯源问题以及毒疫苗对人类造成的危害。但是，如果一直“找不到”或者不愿意去寻找病毒的源头，所谓的“变种病毒”就可能无穷无尽，因为中共外交部长王毅嘴里的“潘多拉盒子”已经被邪恶的中共政权打开，不能关闭它，就只能任由中共政权利用它继续毒害全世界。
+
+看着这些国际级的专家们和机构，一本正经的推崇利用毒疫苗阻止病毒传播的理论，深感中共政权及其背后的黑暗力量布局是如此之深，以我们爆料革命为代表的世界正义力量，仍然需要继续扩大对中共政权制毒放毒罪恶行径的宣传，以期世界各国能够尽早了解病毒真相，汇集力量一起消灭真正的病毒源头—中国共产党，将世界人民从邪共制造的病毒及疫苗灾难中解救出来。
+
+新闻链接：[https://www.newsmax.com/headline/omicron-variant-spread-israel/2021/11/28/id/1046416/](https://www.newsmax.com/headline/omicron-variant-spread-israel/2021/11/28/id/1046416/)
+
+翻译/简评：Harvey (叶知秋)
+
+PR：Julia Win
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

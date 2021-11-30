@@ -2,10 +2,10 @@
 ---
 
 
-## Enes Kanter calls for US to boycott 2022 Beijing Winter Olympic
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1706880/)
+## 维多利亚州大规模抗议反对疫苗强制接种及相关法案
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1707019/)
 
-11/24/2021 波士顿凯尔特人队中锋伊内斯·坎特呼吁抵制2022年北京冬奥会，并寄语所有运动员，你的价值观、原则和道德比世界上任何金牌更重要
+11/26/2021 根据澳大利亚天空新闻现场报道，作为澳大利亚全国抗议活动的一部分，数十万维多利亚州民众聚集在国库花园进行大规模抗议示威，反对疫苗强制接种令和拟议中的流行病法案。示威民众来自不同的职业背景
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

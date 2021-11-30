@@ -2,21 +2,12 @@
 ---
 
 
-## 雅典娜时报-第128期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1706759/)
+## 理查德·巴里斯讲解民调结果：多数人反对疫苗强制令
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1706790/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+11/24/2021 理查德·巴里斯讲解了他团队所做的有关中共病毒疫苗的民意调查结果。大多数的参与者反对雇主疫苗强制令。在此强制令下，雇主必须开除不接种疫苗的员工，否则雇主将受到严厉的惩罚。巴里斯的团队也跟踪了人们接种中共疫苗后产生严重不良反应的相关数据。他们发现越年轻的群体，接种疫苗后遭受的不良影响越严重。
 
-#### 编辑：精靈藍
-排版：小蚂蚁614
-![](https://assets.gnews.org/wp-content/uploads/2021/11/773_x_1151_px_31.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/773_x_1151_px1.png)
-***发布：小红帽***
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

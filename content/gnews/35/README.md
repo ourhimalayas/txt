@@ -2,35 +2,68 @@
 ---
 
 
-## 英国发现两例欧米茄新变种病例
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1706688/)
+## 青蒿素对未打疫苗感染者的功效
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1706774/)
 
-作者：纽约香草山 – Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/新.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/61a246fd06de3.jpg)
-英国卫生部长萨吉德·贾维德表示，切姆斯福德和诺丁汉发现了两例新冠病毒欧米茄新变种病例！
+[https://gtv.org/video/id=61a49cde3ff6481adce5e5d3](https://gtv.org/video/id=61a49cde3ff6481adce5e5d3)
 
-同时，卫生与社会福利部表示，检测呈阳性的个人及其所有家庭成员正在接受重新测试，并被告知在进一步检测和接触者追踪期间要求进行自我隔离。
+**郭文贵**
+**Miles Guo**
 
-该部门表示：“英国卫生安全局正在阳性病例可能具有传染性的地点进行有针对性的检测。”
+这个我最近跟咱们欧洲的科学家进行了多方位的探讨
+I recently conducted a multi-faceted discussion with our European scientists
 
-“为应对当前新冠病毒欧米茄新变种的发展形势，英国正在积极采取果断行动保护公共卫生。正在跟进已确认的病例和联系人，并要求隔离并在必要时接受测试。现在将在病例周边地区进行强化测试。‘’
+首先是他非常清楚青蒿素这个事情，他说特别是没打过疫苗染了病毒的人
+First of all, he knows about artemisinin very well that especially for people who have not been vaccinated and have contracted the virus
 
-**参考阅读：**[https://www.hulldailymail.co.uk/news/uk-world-news/two-cases-omicron-variant-found-6270731?utm\_source=ground.news&utm\_medium=referral](https://www.hulldailymail.co.uk/news/uk-world-news/two-cases-omicron-variant-found-6270731?utm_source=ground.news&amp;utm_medium=referral)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-419.jpeg)
-编辑/校对/发稿：文留
+就是未来这个精子卵子是不是健康，他非常明确地说
+He said very clearly that the sperm and the egg would not be healthy in the fu-ture
 
-**更多资讯，更多关注**
+短期内肯定不健康，他说需要一个周期，最起码需要个两到三年
+It will definitely be unhealthy in the short period time, he said human body needs a cycle of recovery, at least two to three years
 
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+他说最起码两到三年，人的生理周期每三年到五年是一个最重要的
+He said that at least two to three years, the number of menstrual cycles every three to five years is the most important period
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+他说女性一般来讲的是四年，男性一般都是五年左右
+He said that women generally are about four years, and men generally are about five years
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+它是一个大的生理调整期，他说最坏的说是八年
+It is a big period of physiological adjustment, he said that the worst case is about eight years
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+他说这是肯定不会超过八年，他说身体上有一个大的调整
+He said it will definitely not exceed eight years, and he said there is a major ad-justment in human body
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/新.png)
+他说如果吃青蒿素，不要吃太多的药剂的话，吃青蒿素调整
+He said that if you take artemisinin, don’t take too much medicine, take arte-misinin to improve health adjustment
+
+病毒就在你身体不会有任何的残留，残留着身体里，
+The virus will not have any residue in your body
+
+但短期内肯定不行，肯定不行，就是你好了也不行
+But it won’t work in the short period time, it won’t work, even if you have recovered, it still won’t work
+
+**原视频链接**[:](https://gettr.com/post/pi1l59905e)[https://gettr.com/post/pi1l59905e](https://gettr.com/post/pi1l59905e)
+
+Date:11/28/2021
+原视频标题: 青蒿素对未打疫苗感染者的功效
+The effect of artemisinin on people who have not been vaccinated and infected with the virus
+原视频日期：2021/11/26
+原视频链接 https://gettr.com/post/pi1l59905e
+任务编号：KC294（3034）
+视频时间段 : 0:00-1:00
+
+中听校：洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
