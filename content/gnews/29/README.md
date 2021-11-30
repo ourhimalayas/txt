@@ -2,26 +2,26 @@
 ---
 
 
-## 港共政府加强媒体政治审查，《辛普森一家》遭殃
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1707401/)
+## 多国抵制北京冬奥会，中共辩解没发出邀请
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1707410/)
 
 撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-112.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fimgsrv2.voi.id%2FARpOk5R3_7V-1qtoReHYZShPw4xyZdVx6CIU1JEOCwo%2Fauto%2F1200%2F675%2Fsm%2F1%2FbG9jYWw6Ly8vcHVibGlzaGVycy8yMzM5OC8yMDIwMTIxNzEyMjQtbWFpbi5jcm9wcGVkXzE2MDgxODI3MjIuanBn.jpg&amp;imgrefurl=https%3A%2F%2Fvoi.id%2Fzh%2Fmemori%2F23398%2Fdecember-17th-in-history-the-simpsons-debut-zh&amp;tbnid=DRpQpyHJVVUoIM&amp;vet=12ahUKEwjoqpWmjb_0AhWxiZ4KHTVsCTwQMygJegUIARC7AQ..i&amp;docid=jeE9PrkhknmahM&amp;w=1200&amp;h=675&amp;q=%E3%80%8A%E8%BE%9B%E6%99%AE%E6%A3%AE%E4%B8%80%E5%AE%B6%E3%80%8B&amp;ved=2ahUKEwjoqpWmjb_0AhWxiZ4KHTVsCTwQMygJegUIARC7AQ)
-迪士尼最近在香港推出流媒体服务，然而，并非所有内容都对香港观众开放，因为订阅者发现《辛普森一家》至少有一集因提及天安门事件而被删除。这加剧了人们对香港言论自由和批评空间缩小的担忧。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5-61.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.rfa.org%2Fmandarin%2Fpinglun%2Ffushenqi%2Ffs-03012021091552.html%2F%40%40images%2Fimage&amp;imgrefurl=https%3A%2F%2Fwww.rfa.org%2Fmandarin%2Fpinglun%2Ffushenqi%2Ffs-03012021091552.html&amp;tbnid=LYjqnkjPsik88M&amp;vet=12ahUKEwjHuYmRi7_0AhWNqp4KHS92BZIQMygCegUIARC0AQ..i&amp;docid=xBDfZoO5gZsYVM&amp;w=620&amp;h=348&amp;q=%E6%8A%B5%E5%88%B6%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E4%BC%9A&amp;ved=2ahUKEwjHuYmRi7_0AhWNqp4KHS92BZIQMygCegUIARC0AQ)
+多国出于人权因素，正在考虑对北京2022年冬季奥运会进行外交抵制。中共官媒星期一（11月29日）报道说，中共国从未向美国政客发出过出席北京2022年冬奥会的邀请，也没有大规模邀请外宾出席的计划。
 
-《辛普森一家》本月在香港随迪士尼流媒体服务首次亮相，但第16季的节目直接从第11集跳到第13集，跳过了辛普森一家前往北京的第12集《咕咕改盘》。
+《环球时报》援引消息人士的话说，目前中共病毒疫情防控形势严峻，并不适合大规模邀请外宾前往中共国从而增加疫情传播风险。这位消息人士说：“运动员才是这次北京冬奥会的主角。”他还说，一些西方政客在中共国未邀请的情况下“炒作外交抵制”冬奥会，此举不仅是把奥运会政治化，还是“自作多情、自我炒作、哗众取宠”。
 
-这一集至少有两次提到天安门事件。在一场戏中，辛普森一家参观毛泽东的遗体时，荷马·辛普森称毛泽东为“杀死5000万人的小天使”。在另一个场景中，一家人经过天安门广场，那里有一块牌匾，上面写着“1989 年，在这个地方什么也没发生”，显示对中共国政府试图压制公众对天安门事件的记忆的抨击。
+美国等国目前出于人权因素，正在考虑对北京2022年冬季奥运会进行外交抵制。美国政府指责中共国在新疆地区对维吾尔人及其他穆斯林民族进行了“种族灭绝”。
 
-自去年6月北京在香港实施全面的《国家安全法》以镇压长达数月的反政府抗议活动以来，对审查制度的担忧在香港迅速增长。许多自由已经消失，新闻媒体被禁言，歌曲被禁止，博物馆受到严格监管，包括《经济学人》和《金融时报》在内的外国记者也不得续签香港工作签证。
+拜登总统两周前在白宫回应记者有关是否在考虑对北京冬奥会进行外交抵制的问题时说：“这是我们正在考虑的。”美国众议院议长佩洛西和担任过2002年美国盐湖城冬季奥运会组委会执行长的共和党籍联邦参议员罗姆尼（Mitt Romney）都主张美国政府对北京冬奥会实行外交抵制，认为这样既对中共践踏人权做出回应，又不会损害运动员的利益。
 
-政府今年还扩大了电影审查权，使其能够阻止被认为有损国家安全的国内或国外电影的发行。最近颁布的新电影审查法已经被用来禁止在电影节上放映政府评论电影。
+另据《悉尼先驱晨报》上周报道，由于越来越多的议员呼吁对北京冬奥进行外交抵制，澳大利亚方面也正在考虑不派遣任何政府官员出席北京冬奥会。
 
-目前尚不清楚是迪士尼选择省略这一集，还是政府监管机构要求其这样做。香港商务及经济发展局在一份给纽约时报的声明中表示，电影审查条例仅适用于电影，不适用于流媒体服务。
+《华盛顿邮报》日前报道说，立陶宛外交部在访问华盛顿期间曾表示，立陶宛尚未决定抵制北京冬奥会，但计划与美国和欧盟协调任何行动。
 
 消息来源:
 
-[美剧因提及天安门事件而在香港被删除](https://www.voachinese.com/a/simpson-disney-hong-kong-20211129/6332521.html)
+[中共国官媒称未向美国政客发出冬奥邀请](https://www.voachinese.com/a/china-winter-olympics-diplomatic-boycott/6331872.html)
 
 *校对：东京樱花团/知了知了*
 *发布：东京樱花团/tdownc2p*

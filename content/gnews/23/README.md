@@ -2,18 +2,20 @@
 ---
 
 
-## 澳洲总理、国防部长发言要对抗中共
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1707457/)
+## 美国最高法院拒绝麻州医护人员疫苗暂停申请
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1707500/)
 
-撰稿：纽约香草山医疗部-云豹
+撰稿/新闻采集：纽约香草山 – AlexZ
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/新.png)
-11月28日，澳洲总理莫里森于当地时间表示，他支持国防部长杜登关于强硬制衡中共的警示，并强调澳洲切忌向中共的日益好战示弱。 杜登26日在澳洲全国记者俱乐部（National Press Club）发表演说时表示，面对中共的扩张威胁，不能采取姑息政策；他提醒，中共要是拿下台湾，接着将会主宰整个印太地区，区域内各国恐怕将会沦为中共的“附庸国”（tributary states）。 莫里森表示，中共日益好战，他完全认同杜登的看法。杜登“清楚地说明了”目前印太地区充满了不确定性的现况。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-948.png)
-新闻连接：[挺防長抗中言論 澳洲總理：不得向中國示弱](https://www.cna.com.tw/news/aopl/202111290017.aspx)
+11月29日，美国最高法院拒绝对马萨诸塞州综合医院（Mass General Brigham）的医护人员给予救济。第一巡回法庭极左派大法官布雷耶，并没有做出任何解释，而拒绝了医护人员紧急禁令的请求。 该医院工作人员因拒绝接种疫苗并被解雇或无薪休假。员工们寻求宗教或医疗豁免，但遭到拒绝。员工称，医院的强制疫苗政策侵犯了他们的宗教自由，或会对他们的健康构成威胁。所以，他们以该医院违反了禁止歧视的联邦法律为由提起诉讼。 但最终，这一诉讼还是被布雷耶大法官驳回。据悉，上个月布雷耶也曾拒绝审理一项试图阻止缅因州医护人员强制疫苗的紧急上诉。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-424.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11301-1.png)
+![](https://www.thegatewaypundit.com/wp-content/uploads/supreme-court.jpg)
+新闻链接：[US Supreme Court Refuses to Block Vaccine Mandate For Massachusetts Hospital Workers](US%20Supreme%20Court%20Refuses%20to%20Block%20Vaccine%20Mandate%20For%20Massachusetts%20Hospital%20Workers)
 
-总编: 木白
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-419.jpeg)
+
+總編：文徬
 
 校正/发稿：浪迹天涯
 

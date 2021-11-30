@@ -2,26 +2,28 @@
 ---
 
 
-## 体制作恶，华为应用商店内藏木马
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1707426/)
+## 澳洲总理、国防部长发言要对抗中共
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1707457/)
 
-撰稿/配图：东京樱花团/ Ob
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-230.png)
-看中国2021年11月30日讯，一家俄罗斯反病毒厂商Doctor Web的研究人员称，他们在华为应用程序商店AppGallery里发现190多个app带有木马，该木马会收集敏感的用户个人信息。这些app已有大约930万次用户安装。
+撰稿：纽约香草山医疗部-云豹
+![](https://assets.gnews.org/wp-content/uploads/2021/11/新.png)
+11月28日，澳洲总理莫里森于当地时间表示，他支持国防部长杜登关于强硬制衡中共的警示，并强调澳洲切忌向中共的日益好战示弱。 杜登26日在澳洲全国记者俱乐部（National Press Club）发表演说时表示，面对中共的扩张威胁，不能采取姑息政策；他提醒，中共要是拿下台湾，接着将会主宰整个印太地区，区域内各国恐怕将会沦为中共的“附庸国”（tributary states）。 莫里森表示，中共日益好战，他完全认同杜登的看法。杜登“清楚地说明了”目前印太地区充满了不确定性的现况。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-948.png)
+新闻连接：[挺防長抗中言論 澳洲總理：不得向中國示弱](https://www.cna.com.tw/news/aopl/202111290017.aspx)
 
-Doctor Web检测到该木马为“Android.Cynos.7.origin”，是旨在收集用户数据的Cynos恶意软件的修改版本。研究人员披露，华为将恶意软件隐藏在安卓应用程序中，伪装成模拟器、街机游戏、平台游戏、RTS策略以及面向俄语、中文或英语用户的射击游戏。由于这些app都提供了原本应该有的功能，所以用户很难发现自己的手机已经中招。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-424.jpeg)
 
-华为应用商店中，含有此木马的下载量最大的三款app是：快点躲起来（下载量达2,000,000），猫冒险（下载量达427,000），驾驶学校模拟器（下载量达142,000）。 Doctor Web已通知华为，并展示了带有木马的app列表。目前这些app已被下架删除。
+总编: 木白
 
-自由亚洲电台网络技术专门记者李建军表示：“华为位处没有法治的中国，用户一般难以透过法律程序向华为索偿，如果有关程式是在中共指令下上架，你就根本不用指望有关程式会下架，或推推出移除木马的版本，所以你不能够指望AppGallery具备与苹果App Store，或者谷歌Play Store一样的安全水平。这不只是华为企业文化的问题，也是中国体制的问题，中国不可能有真正的网络安全，因为中国当局惯性利用黑客对人民作出监控，网络安全最大隐患来源，正是中国政府本身。”李建军表示，最安全的办法，就是不用华为手机。
+校正/发稿：浪迹天涯
 
-毫无疑问这个世界最大的毒源就是中共，无论是真实的病毒，还是“经济病毒”，“信仰上的病毒”抑或“政治上的病毒”都正以排山倒海之势袭来，“能力低下”，“又毫无信仰”，作恶就是其唯一“杀手锏”。作恶是中共的遗传基因，体制作恶正是其势力强大的根本原因，不间断利用一切可能作恶是其对全体人类的最大威胁，没有妥协，只有较量。只有消灭中共才是最安全的办法，其他一切都是权宜之计，无法从根本上解决问题。
-
-[消息来源](https://m.secretchina.com/news/gb/2021/11/30/990955.html)
-
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/新.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,44 +2,40 @@
 ---
 
 
-## 对澳大利亚实施贸易禁令,令中共国品尝苦果
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1707649/)
+## 埃内斯·坎特 (Enes Kanter) 取得公民身份前合法地将姓氏更改为“自由”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1707668/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-142.jpg)图片来源：ABCNEWS
-整理报道：Lish
-编辑：文泓
+![One's Edges](https://media.breitbart.com/media/2019/10/AFP-Photo_Tim-Bradbury-640x480.jpg)AFP Photo/Tim Bradbury
+直言不讳的人权倡导者和中共国奴隶劳工批评者埃内斯·坎特 (Enes Kanter) 周一成为美国公民后，合法地将他的姓氏改为“自由”。
 
-11月29日，《澳洲新闻》报道，中共国试图通过贸易抵制使澳大利亚在经济上屈服的计划正适得其反。因为随着能源危机的恶化，该国不得不收回一些政策。中共国已咽下它自己说的话，这对共产主义国家来说是尴尬的，但对澳大利亚来说是一次明显的胜利。
+在他的NBA职业生涯中，坎特一直直言不讳地谈论社会不公和腐败的政府制度，尤其是土耳其总统雷杰普·塔伊普·埃尔多安在他的家乡的统治。2017年，坎特在海外旅行时土耳其政府取消了他的土耳其护照，他的父亲被土耳其政府短暂监禁。坎特最近将矛头对准了勒布朗·詹姆斯与耐克的关系，以及该公司在中共国涉嫌强迫劳动的做法。
 
-自今年9月以来，这个亚洲超级大国一直在努力应对导致全国各地轮流停电和工厂停产的电力供应危机。有些地区停电非常严重，以至于国民不得不在没有交通灯和电话信号的情况下生活。即便中共国三分之二以上的电力来自于燃煤电厂，但仍拒绝购买任何澳大利亚煤炭。
+自从坎特公开抗议北京之后，凯尔特人队大幅削减了他的上场时间，形成了一种“影子板凳”，让这位明星和他的反共鞋远离比赛球场。
 
-去年，在澳洲总理斯科特·莫里森呼吁对新冠病毒进行溯源调查后，中共国对包括铁矿石、葡萄酒、牛肉、大麦甚至龙虾在内的澳大利亚产品实施了一系列贸易禁令，给澳洲制造“经济困境”。去年11月实施的煤炭禁令后，使澳洲出口减少了10亿澳元。
+勒布朗詹姆斯拒绝直接回应坎特对他与耐克和中共国关系的批评，而是选择指责这位即将成为美国公民的人试图用他的名字“为自己创造机会”。
 
-最新的海关报告显示，上个月中国进口了278万吨澳大利亚煤炭，这可能是（临时）放松禁令，但也是中方的一次重大让步。这也是自2020年12月以来，澳大利亚的进口首次被纳入中共国海关总署发布的月度报告数据中。
+尽管勒布朗和 NBA 都声明致力于人权和社会正义，但他们都没有支持坎特的抗议。
 
-联邦银行的矿业和能源经济学家维夫克·达尔告诉《澳洲新闻》，这对该行业来说应该是个好消息。然而，澳大利亚的煤炭生产商不应过于兴奋，因为这可能是一次性的事情。
+个人评论：
 
-在一年多的时间里，澳大利亚的运煤船一直停泊在中国港口，但中共国政府拒绝处理这些煤炭。达尔先生说，这些货物出现在数据中，只是因为产品最终完成通关了，并不意味着他们会开始张开双臂欢迎澳大利亚的煤炭。
+这篇文章充分说明了CCP的“蓝金黄”对于NBA这个商业联盟的影响。随着爆料革命的不断传播，更多的CCP对体育界，影视界，及文艺界的侵蚀被揭露。坎特是孤独的，但是他从未放弃，一直坚持，利用自己的影响力揭露CCP对NBA的侵蚀和双重标准，特别是和勒布朗这阳样明星大腕形成鲜明的对比，坎特更显得弥足珍贵。揭露CCP在新疆犯下的强迫劳改，建立集中营，强奸维族妇女等暴行，为真不破，我们会继续支持他在盖特上发声，与他同行，Take Down the CCP！
 
-洛伊研究所澳中关系项目主任皮特·蔡此前告诉澳洲新闻，（如果）中共国随意将与澳洲关系冰封起来，这是在自取灭亡。他说：“一些货物完全有可能通过第三国出售，以规避非官方禁令。”
+原文链接：[https://www.breitbart.com/sports/2021/11/28/report-enes-kanter-legally-changes-last-name-to-freedom-ahead-of-us-citizenship/](https://www.breitbart.com/sports/2021/11/28/report-enes-kanter-legally-changes-last-name-to-freedom-ahead-of-us-citizenship/)
 
-报道称，中共国为煤炭支付了每吨595澳元的价格，这比澳大利亚煤炭生产商每吨274澳元的售价高出一倍多。这也意味着中共国的需求仍然存在，如此推动了煤炭价格的上涨。
+翻译/简评: Johnston2021
 
-澳大利亚战略政策研究所估计，中共国通过第三方支付溢价来接收（澳洲）商品，每周自己损失20亿澳元。
+PR: clau
 
-该研究所写道，“由于中共国的钢厂每天使用近200万吨煤炭，它所支付的高于世界其他地方的煤炭成本的溢价，每周约为20亿美元”。
+* * *
 
-参考链接：[Chinese plan to cause Australia ‘economic pain’ from trade bans backfires](https://www.news.com.au/finance/markets/world-markets/chinese-plan-to-cause-australia-economic-pain-from-trade-bans-backfires/news-story/8d57642a517ed808c1ace717438f856e)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-**发布：kk**
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
