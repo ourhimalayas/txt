@@ -2,38 +2,25 @@
 ---
 
 
-## 郭先生谈逆向思维、独立思维 认为打疫苗的人是弱民
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1707757/)
+## 参议员汤姆·科顿：我怀疑福奇向国会作证时当场撒谎
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1707814/)
 
-作者：纽约香草山农场福音部 – 恩永存
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月28日，郭先生在大直播中回答有关顺民、精英为什么都打疫苗的问题时，强调我们应该具有逆向思维和独立思维的能力，才能透过现象，看清一些事物的本质。郭先生认为这些所谓的顺民、精英都是弱民。
+#### 撰稿：彩虹       
 
-其一，中共没有一个良好的教育体系。中共强调党文化，弱化传统文化，强调斗争思想，训练出了很多自私、怕死、依赖性强的人。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture101.jpg)
-其二，中共没有一个良好的医疗体系，百姓无法寻求正确的医疗途径。
+#### 责编：胡天
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-957.png)图片来源：福克斯新闻
+11月29日，《新闻极限》报道，周一，来自阿肯色州的参议员汤姆·科顿（Tom Cotton）在参加“福克斯和朋友”节目时，抨击白宫首席医疗顾问安东尼·福奇（Anthony Fauci），称他是一个对科学自以为是的权威官僚。
 
-其三，一些所谓的顺民、精英不辨是非，不查病毒出处，不问疫苗疗效，不追究疫苗危害的责任，不听疫苗危害的警告，而是盲目相信政府，相信所谓的科学和权威。
+根据报道，福奇在接受CBS采访时说：“他们真的在批评科学，因为我就代表着科学。对我来说，这比向我投掷箭矢的行为更危险。我不会永远在这里，但科学将永远在这里。如果你破坏了科学，在我离开后很久，你们就会做一些对社会非常有害的事情，这是我所担心的事情”。
 
-其四，这些人不抗强权。一些医生、律师都因为怕死打了疫苗，即使了解了疫苗真相也因为畏惧强权不敢说出。
+对此，科顿断言指出：“他（福奇）所在的机构几周前刚刚承认：他们确实资助了病毒功能性增强研究。所以，这就存在一个谎言，在他的机构拖延了几个月后给国会写信承认病毒功能性增强研究后，要么是福奇向国会撒了谎，要么是他的机构撒谎。我则怀疑托尼·福奇在向国会作证时当场撒谎。”
 
-在这样的环境下，那些打了疫苗的人应该被称为弱民，他们平时赖以生存的思维方式这次却让他们受到了惩罚。只有那些愿意独立思考、不接受打疫苗的人才是智民，是真正的精英。而那些在病毒疫苗上助纣为虐的恶人必将受到正义的审判。
+另据《纽约邮报》报道，科顿加入了由肯塔基州兰德·保罗（Rand Paul）和德克萨斯州的泰德·克鲁兹（Ted Cruz）针对福奇向国会撒谎的指控。
 
-参考链接：[郭先生谈逆向思维、独立思维 认为打疫苗的人是弱民](https://gettr.com/post/pi5gfs500d)
+**新闻来源**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+[Sen. Cotton Claims Fauci Thinks He Has Control Over Science](https://www.newsmax.com/politics/fauci-tomcotton-covid-19/2021/11/29/id/1046626/)
 
-总编：飞虹
-编辑：飞虹
-校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

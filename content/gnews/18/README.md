@@ -2,30 +2,19 @@
 ---
 
 
-## GTV开始提供短视频服务
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1707758/)
+## 秘翻在线：日本确诊首例中共病毒新变种—Omicron感染者
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1707815/)
 
-作者：纽约香草山医疗部 – 云豹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月29日，GTV 推出了短影音视频功能，满足用户更广泛的影音视频需要。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture104-1.jpg)
-短时间内，十多个短视频节目就出现在了GTV线上，每个长度在3分钟以内，可以自动重复播放。 虽然该功能刚启用，但获得了很多观众的好评。 新推出的短视频，画质细致，声音清晰，影像传播流畅，超越了同类型的其他视频软体。
+撰稿：待命（文暁）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/画像1-13.png)（图片源自本文链接）
+每日新闻11月30日报道：据相关人员透露, 30日，一名从纳米比亚抵达日本成田机场的30多岁男子被发现感染了中共病毒新变种–Omicron。这是日本首例。
 
-参考链接：[GTV开始提供短视频服务](https://www.gtv.org/video/id=61a0f4453ff6481adce494f3)
+Omicron菌株已在南非、纳米比亚以及一些欧洲国家接连不断出现新病例。相关部门称，该男子于11月28日晚抵达成田机场，之后国家传染病研究所（NIID）开始了他的基因组分析，以确定该病毒是否为Omicron毒株。该男子有发烧症状，现正在检疫局提供的设施中康复。与他在同行的两名家庭成员的检测结果为阴性。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+世界卫生组织（WHO）已将Omicron菌株与德尔塔以及其它菌株一起定为 “关注变种（VOC）”，并承认全球风险级别为 “非常高”。 有人指出，该菌株的变异可能比传统菌株更具传染力，各国已开始加强其隔离措施。日本也从30日开始全面禁止来自世界各地的外国人入境。
 
-总编：飞虹
-编辑：木白
-校对/发稿：Hetangyuese
+信息来源：[オミクロン株、国内初確認　ナミビアから成田に到着の男性が感染（毎日新聞） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/b05abd989b891e9235cb65de064c56ad4cd282f2)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

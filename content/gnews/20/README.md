@@ -2,36 +2,27 @@
 ---
 
 
-## 郭先生谈邪恶的媒体与世界大范围灾难
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1707756/)
+## 推特的首席执行官终于下台了
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1707781/)
 
-作者：纽约香草山 – 飞虹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月28日，郭先生在大直播中谈到独裁者的共性时提及，邪恶的媒体是协助他们造成大范围灾难的重要因素。
+撰稿：正常人
 
-斯大林时期，斯大林曾买通《纽约时报》驻莫斯科的一位记者，帮他掩盖乌克兰的真相，把他吹捧成一个人类的英雄；二战时期，犹太人在集中营大量死亡，希特勒曾请《纽约时报》以及《伦敦日报》等各大报纸的记者帮他写犹太人如何在工厂安静地工作、吃饭、踢球等粉饰太平的文章。这些记者随后都被消失了。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture102.jpg)
-在近两年发生的疫情、疫苗等灾难中，与当年纳粹的情形一样，全世界的媒体都被邪恶势力收买了。中共的放毒、疫苗真相，以及当前正在发生的阿富汗人正在遭受的非人待遇，没有任何一家主流媒体进行报道。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/TWV-2.jpg)
 
-正是因为收买了媒体，邪恶势力才能肆无忌惮地在可能的范围内制造各种灾难，因为他们根本不怕走漏消息，不担心受到正义力量的追责，也就不担心自己受到惩罚。
+图片来源盖特
 
-郭先生认为，没有邪恶的媒体，就不会有一战、二战，不会有后来的种种大范围灾难。
+2021 年 11 月 29 日 Twitter 首席执行官杰克·多尔西 (Jack Dorsey) 宣布辞职 。 GETTR 的首席执行官杰森·米勒 (Jason Miller) 今天发表了以下声明：
 
-参考链接：[郭先生谈邪恶的媒体与世界大范围灾难](https://gtv.org/video/id=61a3828b44c1fe7a6c3aaf29)
+“作为一家社交媒体初创公司的 CEO，我知道日常运营公司是多么困难。当你总是试图寻找新的方法来践踏言论自由时，它肯定更难。但多年来 ，杰克·多尔西一直是多任务处理的大师：审查他不喜欢的意见，取消用户，让美国最古老的报纸之一闭嘴，不公平地影响总统选举。多尔西扼杀言论自由是 GETTR 需要存在的原因，并且为了 我想我们都应该心存感激。 如果没有大型科技寡头的残酷压迫和美德信号，来自世界各地的数百万人将不会寻找新的社交媒体之家。 与 Dorsey 不同，GETTR 将继续存在，我们将始终保护人们畅所欲言的权利。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+二个媒体公司的CEO的鲜明不同的对待自由民主发声平台的态度，决定了这媒体平台的发展方向，一个是打压不同声音，取消用户，不公平的影响总统选举，掩盖CCP 病毒的真相，禁止疫苗受害者发声，而盖特的CEO杰森.米勒却每天在盖特上欢迎所有来盖特平台上发声的人们，他总是说我们是自由民主的平台欢迎所有不同声音的人来这里。当然这结果是显而易见的，一个是被迫辞职，一个是大受拥待。
 
-总编：木白
-编辑：木白
-校对/发稿：Hetangyuese
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+[新闻参考来源](https://gettr.com/post/pi8igye5b3)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-3.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
