@@ -19,6 +19,15 @@
 
 **:arrows_clockwise: miles 已轉發**
 
+`@davidy 11/30/2021 8:51 PM (UTC)`
+
+GETTR IS GOING TO BE FATHER OF TWITTER!!!
+![img](https://media.gettr.com/group24/getter/2021/11/30/20/51/a58696d6-4c2f-ea03-849c-91adaf6d2d79/2b33405861d93c8542f99cfe207bb198.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
 `@musclecat 11/30/2021 9:36 AM (UTC)`
 
 【守币人宣言】<br/>开始大声朗读，做个守币人<br/>利空将至  开始守币  至死方休<br/>我将不抛币<br/>不套现、不做空、不看价格、不问涨跌<br/>尽忠持币  生死不抛<br/>ps：哪位战友做的？佩服佩服<br/>#hcoin
@@ -149,13 +158,6 @@ G Fashion 最特别的帽子即将登场，这些帽子都是跟那些大牌同�
 
 11月27号：尊敬的战友们好……你们建身了吗？你们传播CCP病毒和疫苗解药的真相了吗？一切都已经开始!
 ![img](https://media.gettr.com/group20/getter/2021/11/27/14/53/a10c7982-7aee-42c3-f087-fc4e419fdd17/out.jpg)
-
----
-
-`@miles 11/27/2021 2:51 PM (UTC)`
-
-11/26/2021 Miles Guo: Why did I tell the world that darkness was coming in 2017? Because the CCP has long wanted to use biowarfare to eliminate their “natural enemies” - the Christians and Catholics of the West; the CCP definitely dares to release the viruses to various sources of drinking water in the US<br/><br/>11/26/2021 文贵直播：文贵为什么在2017年告诉世界黑暗即将到来？这是因为共产党早就想用生物战消灭其“天然的敌人” - 西方的基督教徒和天主教徒；中共绝对敢在美国各饮用水源地放毒
-![img](https://media.gettr.com/group45/getter/2021/11/27/14/51/6a29e78c-50f0-2faf-0a09-508a60a44c00/out.jpg)
 
 ---
 

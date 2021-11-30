@@ -2,51 +2,62 @@
 ---
 
 
-## 运油20首次参与27架中共军机扰台，台外长表示绝不屈服于中共压力
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1708718/)
+## 2021/11/30 大卫作战室直播精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1708778/)
 
-作者：纽约香草山医疗部—云豹
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-768x103-9.jpg)
+**主播**：大卫｜**嘉宾**：无双柳薇薇、Nick
 
 
 
-当地时间11月28 日晚上，台湾国防部公布当天总共有27架中共军机，分别侵扰台湾西南及东南防空识别区。特别要留意的是，首次有运油20机加入扰台机队。台湾外交部长吴钊燮对此表示，“我们永远不会屈服于中共的压力！永远、永远、永远不会！”
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2000x1191_0673345042318.jpg)图片来源：国防部网页mnd.gov.tw
-当天侵扰台湾东南空域的有3组共机，分别为2架空警500、及1架运9通信对抗机。5架轰6、及4架歼10。1架运油20、及2架歼16。另外侵扰台湾西南空域的为1组共机，包括4架歼11、2架歼10、及6架歼16。
+**板块1–国际政治**
 
-研究中共军力的学者林颖佑表示，运油20的空中加油能力可以延伸中共军机的打击航程，并深入台湾东南方，势必对台湾的防卫造成影响与压力。
+1. 英国军情六处局长理查德摩尔警告中共国债务陷阱和数据陷阱，军情六处需要科技部门合作才能在和中共国和俄罗斯人工智能中获胜。
 
-前台湾空军副司令张延廷中将表示，“这是有计划、有步骤的演练，包含整个作战模式。”中共若要对台作战，必须先透过电战机掌控电磁权，接续再透过轰6、歼10、歼16等掌握制海及制空权。因此，运油20将会在巴士海峡一带形成空中加油走廊，替歼16战机进行加油，以达“战机掩护加油机，加油机替战机加油”的目的。 张延廷建议，台湾必须从中共整个用兵模式理清中共的企图与能力，从中了解弱点，并强化战力的保存与防护。
+中共国和英国大学领域（牛津大学/剑桥大学/帝国理工大学等）、航空领域（各大航展）、能源领域有深度合作。英国开始将中共国和俄罗斯放到同一级别（敌对）对待，直接关注核心问题（经济、军事），期待英国后期实际行动落实到位。
 
-参考链接：
+2.中共长期在海外培养“蛇、燕子”，让其藏身在华人圈和侨界，在合适的时机“捅刀子”。
 
-[學者：運油20服役建遠征型空軍 台空防壓力倍增](https://www.cna.com.tw/news/firstnews/202111280185.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+3.中共国在“一带一路”的“隐性债务”超过3850亿美元。
 
-[27架共機擾台 吳釗燮：台灣永不屈服中共壓力](https://www.cna.com.tw/news/aipl/202111280202.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+一带一路开发过程中破坏各国自然资源、地缘政治（相邻各国）关系和谐。“一带一路”实质已名存实亡，全球供应链大危机的背景下，中共不计后果在非洲放毒让供应链危机加重，不符合发展“一带一路”逻辑。中共放宽“一带一路”国家贷款，配合当年陈薇在非洲研究埃博拉病毒经验，合理推断新变种病毒在非洲释放“合情合理”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-12.jpg)
+4.欧盟计划筹集3000亿欧元全球基础建设支出对抗中共国的“一带一路”。
 
-编辑/校对/发稿：兰兰
+中共国在非洲耕耘的“一带一路”负面作用开始显现，欧盟被迫采取“亡羊补牢式”挽救措施。“一带一路”导致当地国民众失业被迫出国就业。
 
-**更多资讯，更多关注**
+**板块2–中共病毒**
 
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+在Omicron变种后，中共国承诺向非洲提供10亿计疫苗，北京还将为贸易和基础建设拨款10亿美元，派遣医疗队和专家。
 
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+中共花血本拿下北非目的在于欧洲。对国内急需资金支持的省份不管不问。
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+**板块3–香港台湾**
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+英国国会议员呼吁修改法律帮助香港人逃往英国，已有90000香港人申请英国签证。
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+中共最在意年轻人（劳动力），用大湾区诱惑年轻人去就业，香港年轻人接受英国主流价值观，普遍不接受中共的统治。中共利用华人组织在英国制造华人被排斥假象，削弱年轻人去往英国的决心和促使英国人反感所有华人。
+
+**板块4–国内政治**
+
+中央政法委书记过郭声琨称严打非法收入，吹捧共同富裕运动，指出贫富差距的“隐藏危险”。
+
+**大卫作战室每周一到周六直播：英国时间12点；美东早7点；盘古19点.**
+
+- [欢迎关注GTV-大卫作战室](https://gtv.org/user/5e86008377d0e42087e2a56d#home)
+- [欢迎关注YouTube-大卫作战室](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
+- [欢迎关注YouTube-大卫作战室 备用直播号](https://www.youtube.com/channel/UCSjAwTM1autpHTLVihdJHHg)
+- [欢迎关注GETTR-大卫作战室](https://gettr.com/user/davidswarroom)
+
+[![](https://spark.adobe.com/page/6wJLLW7eKG2Hm/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)](https://spark.adobe.com/page/6wJLLW7eKG2Hm/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)
+*听写：call me uncle | 校对：乐禧禧 | Page：我是球大哥*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
 
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-768x103-10.jpg)
-
+*编辑：【英国伦敦喜庄园编辑部】*
+[![](https://spark.adobe.com/page/6wJLLW7eKG2Hm/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/6wJLLW7eKG2Hm/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
 
 
  

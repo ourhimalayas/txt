@@ -2,43 +2,37 @@
 ---
 
 
-## 拜登在疫苗强制的信息战中败下阵来
-` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1709092/)
+## 澳洲军队参与土著地区疫情强制隔离
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1709173/)
 
-加拿大扬帆农场 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2021/11/vax_protest-1.jpg)图片来源： Times Higher Education
-根据《CNBC》11月30日于华盛顿报道，在美国，超过70%的成年人已经完全接种了冠状病毒疫苗。但根据上个月的全国广播公司新闻调查，只有不到一半的美国人支持强制接种疫苗。
+澳洲新闻时事动态，尽在雅典娜【澳洲热点】
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-140.png)图片来源：Natural News
+翻译： 小鱼儿
+编辑： 守望黎明
 
-根据民意调查，47%的美国人支持要求所有符合条件的人必须接种Covid-19疫苗，而50%的人则反对这一要求。
+澳大利亚北部地区的居民正被强行带离他们的家园，并被带到政府设立的新冠 “隔离营 “。
 
-以下是按政党、年龄、种族和教育程度划分的调查结果：
-所有成年人：47%的人赞成，50%的人反对。
-民主党人：80%的人赞成，18%的人反对。
-独立人士：47%赞成，51%反对。
-共和党人：20%赞成，77%反对。
-18-34: 45%赞成，51%反对。
-35-49岁：41%赞成，56%反对。
-50-64岁：44%赞成，53%反对。
-65岁以上：60%赞成，38%反对。
-白人：40%赞成，56%反对。
-黑人：64%赞成，34%反对。
-拉美裔：59%赞成，39%反对。
-非大学毕业的白人：35%赞成，61%反对。
-白人大学毕业生：52%赞成，46%反对。
-接种疫苗：65%赞成，31%反对。
-未接种疫苗：6%赞成，92%反对。
-白人福音派：19%赞成，78%反对。
+在仅有的九个人被糊弄人的PCR测试查出阳性后，澳大利亚军队就将他们包围起来，并将他们带到位于达尔文市霍华德泉的检疫营。
 
-综上所述，反对疫苗强制者占据了主导地位，而强制疫苗支持者，包括白宫都不占多数，可见全美人民对疫苗的认识和觉醒。政府，大药厂和媒体很难进一步推进强制疫苗。
+北领地首席部长迈克尔·冈纳（Michael Gunner）宣布：”宾贾里和罗克洞地区的居民原来可以离开家的五个理由不再有效。现在他们只能因医疗、紧急情况或法律要求才能出门。” 他还说：”今天极有可能有更多的居民被送到霍华德泉，要么是检测阳性，要么是密切接触者。”
 
-原文链接：
-[https://www.nbcnews.com/politics/meet-the-press/how-biden-lost-vaccine-mandate-messaging-fight-n1285077](https://www.nbcnews.com/politics/meet-the-press/how-biden-lost-vaccine-mandate-messaging-fight-n1285077)
+值得注意的是，生活在澳大利亚北部地区的大多数人都是澳洲原住民——就是澳大利亚的本地土著人，很像最初独占美国的印第安人。
 
-* * *
+为什么澳大利亚讨厌这些棕色人种？明确地说，这就是法西斯主义，它针对的是资源匮乏、人数不多又缺少反抗能力的边缘群体。
 
-发稿 Spirit
+根据澳大利亚卫生福利研究所的数据，许多生活在北部地区的人口都非常贫穷。目前有五分之一生活在过度拥挤的居所中，这其中土著澳大利亚人占了95%。
 
+就在中共病毒的 “阳性 “病例被拖到新冠隔离营的前几天，北领地参议员马拉迪里·麦卡锡刚好在对当地媒体大肆鼓噪该地区如何存在过度拥挤的 “重大问题”。现在把人都拖到集中营去，会不会就是政府解决这些人居住拥挤的 “补救措施”啊？
 
+参考链接：[Australian army begins relocating covid-“positive” cases to quarantine (concentration) camps](https://www.naturalnews.com/2021-11-28-australia-relocating-covid-positive-cases-quarantine-camps.html)
+
+发布：Peter Xin
+
+**更多****资讯****，****请关****注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

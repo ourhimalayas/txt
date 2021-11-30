@@ -2,54 +2,45 @@
 ---
 
 
-## CDC以Omicron变体为由催打加强针
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1708934/)
+## 发现欧米克龙变的医生说，即使未接种疫苗异症状也“轻微”
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1709067/)
 
-翻译：**Lulumi**
+作者：Drea Humphrey
+翻译：HimaFAFA
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-54.jpg)2021年11月4日，美国疾病控制和预防中心主任罗谢尔·瓦伦斯基在华盛顿的国会山。(Chip Somodevilla/Getty Images)
 
-美国疾病控制和预防中心（CDC）周一更新了关于COVID-19疫苗接种的建议，说现在每个18岁及以上的人“都应该接受加强针注射”。
 
-由CDC主任罗谢尔·瓦伦斯基博士宣布的这一更新，引用了最近出现的中共病毒Omicron变体。
+有一种新的新冠变种，称为欧米克龙，但如果您发现它，这实际上意味着什么？你不会从许多主流媒体的头条新闻中了解到它，但到目前为止，它的症状似乎非常轻微，无论一个人的疫苗接种状态如何。
 
-瓦伦斯基在一份声明中说：“ CDC正在更新关于COVID-19疫苗接种的建议：每个18岁及以上的人都应该接受加强针注射。”我们还需要进一步了解Omicron变体，但我们知道，COVID-19疫苗是我们避免严重疾病和住院的最佳工具。”
+南非医学会全国主席安吉丽·库切博士是第一个发现感染这种变异的患者。从那以后，库切观察到了一组也感染了该病毒的患者的症状和对治疗的反应。
 
-她补充说：“Omicron变体的出现进一步强调了为防止COVID-19所需的疫苗接种、加强针和预防工作的重要性。我强烈鼓励尚未接种疫苗的4700万成年人尽快接种疫苗。”
+“通常你会看到氧气水平有时并不是像你认为的很低，在这情况下，目前为止，我们还没有任何患者的氧气水平非常低，” 库切说当。
 
-根据CDC的网站，从周一开始，每个18岁或以上的人在完成其主要的辉瑞-生物科技公司或莫德纳COVID-19系列疫苗接种后至少6个月，或完成其主要的强生公司的COVID-19系列疫苗接种后至少2个月，“应该接受加强针接种”。
+库切说欧米克龙变体的常见症状包括身体疼痛和头痛。目前，他们相当确定他们可以处理在医院外感染它的患者。
 
-人们可以选择“任何一种COVID-19疫苗作为他们的加强针”。
+观看我的采访，了解库切博士讨论了目前在临床水平上针对欧米克龙变异体对接种疫苗和未接种疫苗的人，我们所看到的症状都是轻微的，但它对 30 多个突变可能产生的未知影响也值得担忧。
 
-“有些人可能更喜欢他们最初接受的疫苗类型，而其他人可能更喜欢接受不同的加强针。CDC现在的建议允许这种混合和匹配剂量的加强针”该网站说。
+一些欧姆克龙变体的案例现在已经在世界各地的加拿大、日本和英国等地出现。
 
-“接种COVID-19疫苗后，你可能会遇到副作用，”网站上说。“这些是你的身体正在建立对COVID-19的保护的正常迹象”。
+来源：[https://www.rebelnews.com/omicron\_variant\_symptoms\_mild\_even\_for\_unvaccinated\_says\_doctor\_who\_discovered\_it](https://www.rebelnews.com/omicron_variant_symptoms_mild_even_for_unvaccinated_says_doctor_who_discovered_it)
 
-加强针与目前在美国上市的COVID-19疫苗的配方相同。
+（文章仅代表作者个人观点）
 
-接受莫德纳COVID-19疫苗的人将只接受初级疫苗系列中的一半剂量。
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-据CDC称，人们在接受加强针后报告的反应“与两针或单剂量初级系列的反应相似”。该机构表示，人们可以使用v-safe，一个基于智能手机的工具，告诉CDC任何副作用。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-2-18.jpg)2021年11月29日，总统乔·拜登在华盛顿白宫罗斯福厅就名为Omicron的中共病毒COVID-19变体发表讲话时回答了一个问题。(AP Photo/Evan Vucci)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-美国总统乔·拜登周一称Omicron变体是一个值得关注的问题，但“不是恐慌的原因”。他说，他预计不会有任何封锁，但敦促美国人全面接种疫苗，包括打加强针，在公共场合也要在室内戴口罩。
+**关注我们**
 
-此前，CDC说，那些65岁及以上的人，以及18岁及以上的人，如果有潜在的医疗条件，生活在长期护理环境中，或在高风险环境中工作或生活，应该接受加强针。
+Discord 账号
 
-除非涉及**“**故意不当行为**”**，否则疫苗制造商对任何不良反应都是免责的。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-法律规定，注射中共病毒COVID-19疫苗的医疗机构必须向美国卫生与公众服务部主办的疫苗不良事件报告系统（VAERS）报告任何严重的不良反应或疫苗接种错误。
+Gettr 账号
 
-参考资料：[theepochtimes][CDC Pushes Booster Shot for All Adults, Cites Omicron Variant](https://www.theepochtimes.com/cdc-pushes-booster-shot-for-all-adults-cites-omicron-variant_4129715.html)
-
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-2.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

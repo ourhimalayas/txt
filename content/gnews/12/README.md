@@ -2,68 +2,44 @@
 ---
 
 
-## 格雷格·波波维奇称赞埃内斯·坎特直言不讳地谈论中国
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1708965/)
+## 10月待售房屋销售增长7.5%，扭转了9月的下降趋势
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1709075/)
 
-埃内斯·坎特 (Enes Kanter) 是对中国发声的最著名的体育明星之一
+据《www.theepochtimes.com》作者：Tom Ozimek，2021年11月29报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-986-e1638296517531.png)2021年6月23日，伊利诺伊州诺斯布鲁克市，一个建筑用地的广告牌矗立在一个新房建筑工地前。(Nam Y. Huh/AP Photo)
+**据美国全国房地产经纪人协会(NAR)称，美国10月份的待售房屋销售量大幅上升，超过了预测值，并扭转了9月份的下降趋势，因为潜在的购房者试图在预期的抵押贷款利率上升和租金快速上涨之前锁定销售。**
 
-**【简评：】***2017年郭文贵先生就爆料中共3F计划和BGY计划，其中包括利用中国庞大的市场资源来绑架美国，用金钱和市场利益收买美国的政治家、华尔街、硅谷、文化和体育界，要他们对中共对香港、新疆、西藏等人权问题沉默，最终达到其邪恶目的。对于2020年的新冠病毒流行和2021年的疫苗灾难，美国的政界、商界、科技界、文化界全部噤声，这就是中共经济渗透、文化渗透的结果。但我们也看到，NBA火箭队经理穆雷为2019年的“光复香港时代革命”运动发声，2021年NBA凯尔特人队球星坎特为中共对新疆、西藏等人权问题发声，说明美国各界有越来越多的人认识到中共及其幕后黑暗势力搞乱美国、统治世界的种种恶行。新中国联邦和全球正义人士正在集结，等美国为首的西方国家完成全球正义力量的集结，对中共犯下科技军事偷盗、经济文化侵略、人权侵犯、释放生物武器和毒疫苗戕害全球等罪行进行清算的时候，就是中共灭亡时。*
+该协会基于合同签署的待售房屋销售指数（PHSI），是未来房屋销售的前瞻性指标，10月份的读数跃升至125.2，与9月份相比增长了7.5%，9月份的指数比上个月下降了2.3%。
 
-据《Fox News》记者Alejandro Avila 2021 年 11 月27日报道：
+FXStreet引用的共识预测显示，10月份的指数将上升1.0%，但幅度要小得多。
 
-**本赛季，埃内斯·坎特 (Enes Kanter) 将 NBA 及其所有精英球队都放在了聚光灯下。波士顿凯尔特人中心一直公开表示他反对中共国侵犯人权的行为：与黑命贵运动的支持者所看到的广受赞誉的社会激进主义相比，这一信息已经变得更加“像在房间里的大象”。**
+NAR的首席经济学家Lawrence Yun在一份声明中说，对抵押贷款利率上升的预期可能是推高合同签署率的一个因素。
 
-虽然协会对支持发声保持沉默让坎特沮丧，但圣安东尼奥马刺队主教练格雷格波波维奇现在选择与凯尔特人队中锋站在一起。
+Yun说：”在快速上涨的租金和预期的抵押贷款利率上升的激励下，财务状况良好的消费者正在签署购房合同，宜早不宜迟。”
 
-波波赞扬了这位 29 岁的年轻人在他的信息中坚定不移——知道外界的议论已经导致对坎特形象的审查，同时也可能影响他在球场上的时间。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-983-e1638294579347.png)马萨诸塞州波士顿 – 10 月 22 日：在 2021 年 10 月 22 日在马萨诸塞州波士顿举行的凯尔特人队主场揭幕战对阵多伦多猛龙队的比赛中，波士顿凯尔特人队的第 13 号球员埃内斯·坎特 (Enes Kanter) 前瞻。
-（麦迪迈耶/盖蒂图片社）
-“我很高兴埃内斯在他认为正确的时候站出来说话。我认为这很棒。没有理由不这样做，”波波维奇评论说，看着坎特在网上发起的积极的活动以寻求支持，反对中共对维吾尔人和其他群体的虐待。
+根据Bankrate的数据，11月29日的基准30年固定抵押贷款利率为3.32%，与一周前相比下降了约4个基点，但高于9月中旬3.02%的利率。
 
-尽管波波维奇在回应激烈的反共活动时拒绝直接提及中国，但他无法对坎特强调的海外发生的不公正现象视而不见。
+**NAR在其最新的季度经济展望（pdf）中预测，30年期固定抵押贷款的平均利率将在2022年第一季度升至3.3%，在明年最后一个季度升至3.7%。**
 
-坎特最近追击的虚伪的目标是布鲁克林篮网队的老板蔡崇信。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-984-e1638294632818.png)2021 年 10 月 22 日星期五在波士顿举行的 NBA 篮球比赛下半场，波士顿凯尔特人队的埃内斯·坎特 (13) 对阵多伦多猛龙队的艾萨克·邦加。 (美联社)
-**“@brooklynNets @joetsai1999 的老板是懦夫也是中共政府的傀儡，”坎特在周三（11 月 24 日）凯尔特人队与篮网队的比赛前通过 Twitter 宣布。“反中共并不意味着反亚洲，不仇视亚洲人和对中共说不，是可以同时存在的。”**
+Yun补充说：”这种稳固的购买证明了需求仍然相对较高，因为它是在库存仍然明显较低的时候发生的。”
 
-随着NBA将自己定位为中国共产党雄厚财力的受益人——从国际市场获得的年收入近5亿美元——坎特不得不指出，该协会及其最杰出的明星在引起人们对美国社会不公正现象的关注时，使用了双重标准没有却没有点名中共国。
+Yun预测，虽然住房市场可能会继续强劲，但随着抵押贷款利率的上升，未来几个月的房价将以较慢的速度上涨。NAR在另一份报告中说，10月份现有房屋价格中位数同比增长了13.1%，达到353,900美元。
 
-坎特邀请洛杉矶湖人队的勒布朗·詹姆斯和退役的伟大的迈克尔·乔丹等人参加中共国之行，并了解他的信息的重要性——最重要的是，一份声明旨在将任何受中国暴政影响的人从他们的道德标准中解放出来。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-985-e1638294676787.png)圣安东尼奥马刺队主教练格雷格波波维奇（右）在 2021 年 10 月 8 日星期五在圣安东尼奥举行的季前赛对阵迈阿密热火队的 NBA 篮球比赛的下半场与马刺后卫德章泰穆雷交谈。
-（美联社照片/达伦阿巴特）
-**埃内斯继续质疑那些对中共国政府视而不见的企业人物和媒体人士，中共政府在监督奴隶运营和其他对自由的攻击的同时签署支票。**
+NAR的数据显示，截至10月底，现有住房库存总量为125万套，比9月份下降0.8%，比一年前下降12.0%。NAR估计，按照10月份的销售速度，这意味着大约2.4个月的供应量。
 
-*波波称赞埃内斯**·坎特 (Enes Kanter) 直言世界各地的侵犯人权行为。*
+美国人口普查局的数据显示，10月份的新房销售总库存为38.9万套，高于前一个月的37.8万套，按10月份的销售速度计算，约为6.3个月的供应量。根据该机构的数据，10月份的新房销售价格中位数为407,700美元。
 
-*“我很高兴埃内斯在他认为正确的时候说出来。我认为这很棒。没有理由不这样做。”*
+**由于美国人寻求人口密度较低的地区，以获得更大的住房，以适应在线教育和在家工作，因此住房需求在大流行的早期飙升。**
 
+**虽然随着工人返回办公室和学校重新开学，购买热潮有所降温，但Yun表示，年度住房销售总额有望达到十多年来的最佳表现。**
 
+Yun说：”10月份的显著增长保证了2021年现有房屋销售总额将超过600万，这将成为15年来的最佳表现。”
 
-> Pop praised Enes Kanter for speaking up about human rights abuses around the world.
-> 
-> "I am glad that Enes speaks up when he feels like it. I think it’s great. No reason not to."
-> — Tom Orsborn (@tom\_orsborn) [November 27, 2021](https://twitter.com/tom_orsborn/status/1464391753897807877?ref_src=twsrc%5Etfw)
+原文连接：[https://www.theepochtimes.com/pending-home-sales-jump-by-forecast-beating-7-5-percent-in-october-reversing-september-decline\_4128722.html](https://www.theepochtimes.com/pending-home-sales-jump-by-forecast-beating-7-5-percent-in-october-reversing-september-decline_4128722.html)
 
+翻译：洛杉矶盘古农场- TrueSky
 
-
-**NBA 球员埃内斯·坎特 (Enes Kanter)：“像国际奥委会这样的组织在即将到来的冬天在中共国举办奥运会感到羞耻，而中共国现在正处于独裁统治之中。[…] 我们需要抵制冬奥会。”**
-
-
-
-> NBA player Enes Kanter: "Shame on organizations like the International Olympic Committee that's setting up an Olympic Games this upcoming winter in China where there's a dictatorship happening right now. […] We need to boycott the Winter Olympics." [pic.twitter.com/WQjWp7u6fV](https://t.co/WQjWp7u6fV)
-> — The Hill (@thehill) [November 23, 2021](https://twitter.com/thehill/status/1463202183885774855?ref_src=twsrc%5Etfw)
-
-
-
-文章来源：[https://www.foxnews.com/sports/gregg-popovich-enes-kanter-speaking-out-china](https://www.foxnews.com/sports/gregg-popovich-enes-kanter-speaking-out-china)
-
-翻译：洛杉矶盘古农场 – Raul
-
-校对：洛杉矶盘古农场 –  73stolencountry
-
-评论：洛杉矶盘古农场 – 73stolencountry
-
-编辑：洛杉矶盘古农场-小象の奶瓶
+编辑&校对：洛杉矶盘古农场 – 小象の奶瓶
 
 
 ![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)

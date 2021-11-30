@@ -2,45 +2,75 @@
 ---
 
 
-## 近三分之一美国卫生部门员工未接种疫苗
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1708907/)
+## 格雷格·波波维奇称赞埃内斯·坎特直言不讳地谈论中国
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1708965/)
 
-翻译： Jenny Ball
+埃内斯·坎特 (Enes Kanter) 是对中国发声的最著名的体育明星之一
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-981.png)图片来源： theepochtimes.com 带有 CDC 标志的讲台。 （凯文 C. 考克斯/盖蒂图片社）
+**【简评：】***2017年郭文贵先生就爆料中共3F计划和BGY计划，其中包括利用中国庞大的市场资源来绑架美国，用金钱和市场利益收买美国的政治家、华尔街、硅谷、文化和体育界，要他们对中共对香港、新疆、西藏等人权问题沉默，最终达到其邪恶目的。对于2020年的新冠病毒流行和2021年的疫苗灾难，美国的政界、商界、科技界、文化界全部噤声，这就是中共经济渗透、文化渗透的结果。但我们也看到，NBA火箭队经理穆雷为2019年的“光复香港时代革命”运动发声，2021年NBA凯尔特人队球星坎特为中共对新疆、西藏等人权问题发声，说明美国各界有越来越多的人认识到中共及其幕后黑暗势力搞乱美国、统治世界的种种恶行。新中国联邦和全球正义人士正在集结，等美国为首的西方国家完成全球正义力量的集结，对中共犯下科技军事偷盗、经济文化侵略、人权侵犯、释放生物武器和毒疫苗戕害全球等罪行进行清算的时候，就是中共灭亡时。*
 
-美国疾病控制与预防中心 (CDC) 在一项分析中透露，美国约有 30% 的医护人员仍未接种中共病毒疫苗。
+据《Fox News》记者Alejandro Avila 2021 年 11 月27日报道：
 
-根据 11 月 17 日发表在《美国感染控制杂志》上的 CDC 分析，进行分析的 CDC 团队成员汉娜·瑞斯 (Hannah Reses) 透露，从 12 月到 4 月，卫生工作者稳步上升的“疫苗接种率”在再次减速。
+**本赛季，埃内斯·坎特 (Enes Kanter) 将 NBA 及其所有精英球队都放在了聚光灯下。波士顿凯尔特人中心一直公开表示他反对中共国侵犯人权的行为：与黑命贵运动的支持者所看到的广受赞誉的社会激进主义相比，这一信息已经变得更加“像在房间里的大象”。**
 
-该分析研究了向美国卫生与公众服务部 (HHS) 报告的数据，这些数据来自美国各地的 2,086 个设施，涉及超过 330 万名员工。
+虽然协会对支持发声保持沉默让坎特沮丧，但圣安东尼奥马刺队主教练格雷格波波维奇现在选择与凯尔特人队中锋站在一起。
 
-受雇于医院治疗儿童的专业人员的疫苗接种率最高，约为 77%。在关键通道医院中发现的比例最低，约为 64%。其他设施包括, 短期急症护理医院和长期急症护理医院的员工，这两个部门约有 30% 的人仍未接种疫苗。
+波波赞扬了这位 29 岁的年轻人在他的信息中坚定不移——知道外界的议论已经导致对坎特形象的审查，同时也可能影响他在球场上的时间。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-983-e1638294579347.png)马萨诸塞州波士顿 – 10 月 22 日：在 2021 年 10 月 22 日在马萨诸塞州波士顿举行的凯尔特人队主场揭幕战对阵多伦多猛龙队的比赛中，波士顿凯尔特人队的第 13 号球员埃内斯·坎特 (Enes Kanter) 前瞻。
+（麦迪迈耶/盖蒂图片社）
+“我很高兴埃内斯在他认为正确的时候站出来说话。我认为这很棒。没有理由不这样做，”波波维奇评论说，看着坎特在网上发起的积极的活动以寻求支持，反对中共对维吾尔人和其他群体的虐待。
 
-分析显示，今年 1 月至 4 月期间，医疗保健专业人员 (HCP) 的疫苗接种率从 36% 增加到 60%，然后放缓，截至 9 月达到 70%。
+尽管波波维奇在回应激烈的反共活动时拒绝直接提及中国，但他无法对坎特强调的海外发生的不公正现象视而不见。
 
-“我们的分析显示，美国医院 HCP 的疫苗覆盖率在最初接受后显著停滞，” 瑞斯在声明中说。她补充说：“现在需要做出更多努力来提高 HCP 疫苗的覆盖率，并降低 SARS-CoV-2 传播给患者和其他医院工作人员的风险。”
+坎特最近追击的虚伪的目标是布鲁克林篮网队的老板蔡崇信。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-984-e1638294632818.png)2021 年 10 月 22 日星期五在波士顿举行的 NBA 篮球比赛下半场，波士顿凯尔特人队的埃内斯·坎特 (13) 对阵多伦多猛龙队的艾萨克·邦加。 (美联社)
+**“@brooklynNets @joetsai1999 的老板是懦夫也是中共政府的傀儡，”坎特在周三（11 月 24 日）凯尔特人队与篮网队的比赛前通过 Twitter 宣布。“反中共并不意味着反亚洲，不仇视亚洲人和对中共说不，是可以同时存在的。”**
 
-在调查中发现，HCP 拒绝接种 CCP 病毒疫苗的原因与疫苗的功效、不良反应及其发展速度有关。
+随着NBA将自己定位为中国共产党雄厚财力的受益人——从国际市场获得的年收入近5亿美元——坎特不得不指出，该协会及其最杰出的明星在引起人们对美国社会不公正现象的关注时，使用了双重标准没有却没有点名中共国。
 
-“不想接种疫苗的**HCP **报告称，他们对监管机构和政府的信任度很低，**”****CDC **分析援引调查称。
+坎特邀请洛杉矶湖人队的勒布朗·詹姆斯和退役的伟大的迈克尔·乔丹等人参加中共国之行，并了解他的信息的重要性——最重要的是，一份声明旨在将任何受中国暴政影响的人从他们的道德标准中解放出来。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-985-e1638294676787.png)圣安东尼奥马刺队主教练格雷格波波维奇（右）在 2021 年 10 月 8 日星期五在圣安东尼奥举行的季前赛对阵迈阿密热火队的 NBA 篮球比赛的下半场与马刺后卫德章泰穆雷交谈。
+（美联社照片/达伦阿巴特）
+**埃内斯继续质疑那些对中共国政府视而不见的企业人物和媒体人士，中共政府在监督奴隶运营和其他对自由的攻击的同时签署支票。**
 
-该分析未包括 HHS 统一医院数据监控系统中的所有设施，数量超过 5,000。它仅使用了 2,086 个设施的信息，即 41.0%，这些设施向 HHS 报告了全面的数据。
+*波波称赞埃内斯**·坎特 (Enes Kanter) 直言世界各地的侵犯人权行为。*
 
-本月早些时候，美国十多个州就总统乔·拜登 (Joe Biden) 的政府为医护人员提供的 COVID-19 疫苗授权提起诉讼，对其合法性提出质疑。拜登政府官员表示，对这项任务和其他类似任务最终战胜法律挑战充满信心。
+*“我很高兴埃内斯在他认为正确的时候说出来。我认为这很棒。没有理由不这样做。”*
 
-美国 HCP 接种 COVID-19 疫苗的截止日期是 2022 年 1 月 4 日。与目前被法院阻止的对私人雇主的授权不同，没有测试替代疫苗的选项。
 
-**点评：战胜邪恶是真相，保护权利是宪法。行动起来，还有1/3清醒的医护人员在战斗着！**
 
-新闻来源 **：**[theepochtimes.com] [Nearly One-Third of US Employees in Health Sector Remain Unvaccinated: CDC](https://www.theepochtimes.com/mkt_morningbrief/nearly-one-third-of-us-employees-in-health-sector-remain-unvaccinated-cdc_4129118.html?utm_source=Morningbrief&amp;utm_medium=email&amp;utm_campaign=mb-2021-11-30&amp;mktids=e3ffdcdc5ef282b9d305eafa32e996b7&amp;est=QAx66cE1IYJ4wPRonVNRIFhQC6fzXBYt%2FlrkowoFWAWSa27JkWmPDQybpioNopsNlA%2B6Cg%3D%3D)
+> Pop praised Enes Kanter for speaking up about human rights abuses around the world.
+> 
+> "I am glad that Enes speaks up when he feels like it. I think it’s great. No reason not to."
+> — Tom Orsborn (@tom\_orsborn) [November 27, 2021](https://twitter.com/tom_orsborn/status/1464391753897807877?ref_src=twsrc%5Etfw)
 
-* * *
 
-*审核：文乐
-校对: 阿伯塔
-发稿: Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-2.jpeg)
+
+**NBA 球员埃内斯·坎特 (Enes Kanter)：“像国际奥委会这样的组织在即将到来的冬天在中共国举办奥运会感到羞耻，而中共国现在正处于独裁统治之中。[…] 我们需要抵制冬奥会。”**
+
+
+
+> NBA player Enes Kanter: "Shame on organizations like the International Olympic Committee that's setting up an Olympic Games this upcoming winter in China where there's a dictatorship happening right now. […] We need to boycott the Winter Olympics." [pic.twitter.com/WQjWp7u6fV](https://t.co/WQjWp7u6fV)
+> — The Hill (@thehill) [November 23, 2021](https://twitter.com/thehill/status/1463202183885774855?ref_src=twsrc%5Etfw)
+
+
+
+文章来源：[https://www.foxnews.com/sports/gregg-popovich-enes-kanter-speaking-out-china](https://www.foxnews.com/sports/gregg-popovich-enes-kanter-speaking-out-china)
+
+翻译：洛杉矶盘古农场 – Raul
+
+校对：洛杉矶盘古农场 –  73stolencountry
+
+评论：洛杉矶盘古农场 – 73stolencountry
+
+编辑：洛杉矶盘古农场-小象の奶瓶
+
+
+![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入: (或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

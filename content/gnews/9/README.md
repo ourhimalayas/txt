@@ -2,45 +2,36 @@
 ---
 
 
-## 发现欧米克龙变的医生说，即使未接种疫苗异症状也“轻微”
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1709067/)
+## 昆士兰学校、托儿所工作人员和志愿者的疫苗接种任务
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1709113/)
 
-作者：Drea Humphrey
-翻译：HimaFAFA
+**翻译：Ronnie O’Sullivan
+编辑：Candy**
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/疫苗-1.png)图片来源：9news
 
 
+根据最新规定，昆士兰州学校和托儿所的所有工作人员及志愿者，都需在12月17之前接种第一剂疫苗，并在明年1月23日之前全面接种。而获得适当医疗豁免的人士不必接种。
 
-有一种新的新冠变种，称为欧米克龙，但如果您发现它，这实际上意味着什么？你不会从许多主流媒体的头条新闻中了解到它，但到目前为止，它的症状似乎非常轻微，无论一个人的疫苗接种状态如何。
+昆士兰州教育部长格蕾丝（Grace）说，此举是为了“保护昆士兰州学校里超过50万名还不能接种疫苗的12岁以下儿童，以及更多早期儿童中心”。
 
-南非医学会全国主席安吉丽·库切博士是第一个发现感染这种变异的患者。从那以后，库切观察到了一组也感染了该病毒的患者的症状和对治疗的反应。
+该规则将使昆士兰与澳大利亚其它州及领地保持政策一致。它将涉及公立和私立学校以及托儿所。
 
-“通常你会看到氧气水平有时并不是像你认为的很低，在这情况下，目前为止，我们还没有任何患者的氧气水平非常低，” 库切说当。
+除了西澳，昆士兰州的疫苗接种率是全国最低的，只有76.1%符合条件的昆士兰人接种了两剂中共病毒疫苗。但是，此州在过去24小时内没有任何本地新感染病例记录。
 
-库切说欧米克龙变体的常见症状包括身体疼痛和头痛。目前，他们相当确定他们可以处理在医院外感染它的患者。
+昆士兰州长安娜斯塔西娅·帕拉什丘克（Annastacia Palaszczuk ）表示，虽然Omicron 中共病毒变种已抵达澳州，但完全接种疫苗的国人依然可以免隔离而进行州际旅行。
 
-观看我的采访，了解库切博士讨论了目前在临床水平上针对欧米克龙变异体对接种疫苗和未接种疫苗的人，我们所看到的症状都是轻微的，但它对 30 多个突变可能产生的未知影响也值得担忧。
+她说，昆士兰州在防疫方面之所以“处于如此有利的地位”，是因为他们对中共病毒持有谨慎态度。此州规定，最近从Omicron变种病毒传播的国家抵达昆士兰的任何人都将在昆士兰州的酒店进行隔离。
 
-一些欧姆克龙变体的案例现在已经在世界各地的加拿大、日本和英国等地出现。
+原文链接：[https://www.9news.com.au/national/coronavirus-update-queensland-vaccine-mandates-teachers-school-staff-childcare-children-covid19-vaccinations/48172cb4-87aa-4fd1-bced-95ef284330eb](https://www.9news.com.au/national/coronavirus-update-queensland-vaccine-mandates-teachers-school-staff-childcare-children-covid19-vaccinations/48172cb4-87aa-4fd1-bced-95ef284330eb)
 
-来源：[https://www.rebelnews.com/omicron\_variant\_symptoms\_mild\_even\_for\_unvaccinated\_says\_doctor\_who\_discovered\_it](https://www.rebelnews.com/omicron_variant_symptoms_mild_even_for_unvaccinated_says_doctor_who_discovered_it)
+***发布：Candy***
 
-（文章仅代表作者个人观点）
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

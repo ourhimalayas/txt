@@ -2,46 +2,49 @@
 ---
 
 
-## 法官叫停拜登针对10个州医疗工作者的疫苗强制令
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1708897/)
+## 推特（Twitter）创始人杰克·多尔西(Jack Dorsey)辞去CEO一职
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1708921/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/F5704625-D066-4DE3-B0AF-C208F69A774D_w1023_r1_s-9.jpg)图片来源：AP Photo/Jerome Delay
-来自《国会山报》11月29日的消息称，美国联邦法院在周一暂停了拜登政府对接受联邦资助的医院的医疗工作者的中共病毒疫苗强制令。
+**【译者按】**郭*文贵先生三年前曾经拥有推特账户，而且一个星期内就有40万的关注，然而推特很快就封掉了文贵先生的账户；2020年4月，Twitter封了Steve Bannon先生的平台WarroomPandemic账号；2021 年 1 月，Twitter决定永久封禁时任总统川普的推特账号；2021年7月，新西兰一位学者在嘲讽中共党魁之后，推特限制了她的账户；此外，Twitter也封禁了无数新中国联邦战友的账户……Twitter的种种恶行或许可以用文贵先生在2020年12月4日的直播来解释“Twitter所有打的算盘，就是中共答应把中国的搜索和所有的整个中国市场对其全面开放，然后让Twitter作为中共的数字人民币的承销商”。Twitter想成为世界媒体老大，如今来看，简直就是痴心妄想。*
 
-密苏里州一名联邦法官的裁决适用于10个州的医疗保健雇员，这些州要求法庭阻止拜登政府11月5日的规定。这些州包括阿拉斯加、阿肯色州、爱荷华州、堪萨斯州、密苏里州、内布拉斯加州、新罕布什尔州、北达科他州、南达科他州和怀俄明州。
+据《大纪元》记者Jack Phillips，2021年11月29日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-982-e1638292826803.png)Twitter 首席执行官兼 Square 联合创始人兼首席执行官 Jack Dorsey 于 2021 年 6 月 4 日在佛罗里达州迈阿密的 Mana 会议中心参加了加密货币会议《2021年比特币大会-Bitcoin 2021 Convention。
+图片来源：Marco Bello/AFP via Getty Images
+**据Twitter称，该公司CEO兼联合创始人 Jack Dorsey 将卸任这家社交媒体公司的首席执行官，并将由首席技术官帕拉格·阿格拉瓦尔（Parag Agrawal） 接任，立即生效。**
 
-川普任命的美国地区法官马修·舍尔普(Matthew Schelp)似乎被各州认为疫苗强制令将导致人员短缺的论点所说服。
+“我已经决定离开 Twitter，因为我相信公司已经准备好离开它的创始人继续前进” 。多尔西在2006年帮助创立了Twitter，他在11月29日发布的一份声明中说， “作为 Twitter 的 CEO，我对帕拉格非常信任。他在过去 10 年的工作具有变革性。我对他的技能、心灵和灵魂深表感谢。现在是时候让他（帕拉格）来领导Twitter”。
 
-舍尔普在一份32页的法院命令中写道：“该措施明显有利于那些拥有一些未接种疫苗的雇员、员工、培训生、学生、志愿者和承包商的医疗机构，而不是因要求医疗机构在两种不受欢迎的选项中做出选择—提供不合格医疗服务，或者根本无法提供医疗服务—而产生的迅速、不可补救的影响。”
+该公司发布的一份声明称，阿格拉瓦尔已在 Twitter 工作了十多年，自 2017 年以来一直担任首席技术官。
 
-在本案继续进行的同时，这项裁决使在10个州接受医疗补助计划或医疗补助计划资助的医疗保健机构中那些反对疫苗的工人获得了暂时的胜利。
+根据Twitter的声明，这家总部位于旧金山的公司，其董事会一致批准阿格拉瓦尔担任CEO。 该公司表示，多尔西也是支付公司 Square 的CEO，他将继续担任 Twitter 董事会成员，直到明年任期届满。
 
-就在美国卫生和公众服务部(the Department of Health and Human Services)的一个机构实施疫苗规定几天后，这些州的挑战者在联邦法院提起了诉讼。这些州认为，该疫苗强
+在宣布离职之前，多尔西于 11 月 28 日在社交媒体平台上写道，“我喜欢Twitter”。此外，关于自己的离职，多尔西还发布了一封致 Twitter 员工的电子邮件。
 
-制令侵犯了各州的权利，超出了该机构（白宫）的权限，其颁布没有遵循适当的程序。
+** “这是我自己的决定”，多尔西写道，“这对我来说很难过” 。**
 
-拜登政府认为，这项规定对于减缓中共病毒在数百万医疗保健工作者、医疗保险和医疗补助患者中的传播是必要的。
+此外，Bret Taylor接替了前任Patrick Pichette，被任命为董事会的新主席，后者将继续留在董事会，并继续担任审计委员会主席。
 
-当被问及他们是否打算上诉时，为拜登政府辩护此案的司法部律师并没有立即作出回应。
+现年45岁的多尔西在2020年曾面临“逼宫”，当时Twitter的股东埃利奥特管理公司(Elliott Management)试图取代他的CEO职务，因为埃利奥特管理公司的创始人保罗·辛格(Paul Singer)曾质疑多尔西是否应该同时职掌两家上市公司（Square和Twitter），呼吁他辞去其中一间公司的CEO职务。
 
-简评：
+2006年，多尔西与诺亚·格拉斯(Noah Glass)、比兹·斯通(Biz Stone)和埃文·威廉姆斯(Evan Williams)共同创立了Twitter，此后多尔西一直担任该公司的CEO，直到2008年被解职。2015年，前CEO迪克·科斯特罗(Dick Costolo) 卸任后，多尔西重新担任该公司的CEO。
 
-郭文贵先生曾经说过，11月6日美国联邦第五巡回上诉法庭对拜登政府疫苗强制令的禁令，标志着美国全面停止强制疫苗接种的开始。如今，拜登的疫苗强制令又在美国的10个州范围内遭到禁止，虽然此次裁决暂时来看只是针对这10个州的医疗保健雇员，但是可以推断，以这种趋势发展下去，美国全面停止强制疫苗接种将只是时间问题。希望美国法院的这一行动可以成为世界其他国家效仿的例子，以期可以尽快阻断中共及其背后黑暗力量想要通过新冠病毒和毒疫苗毁灭人类的计划。
+**2021 年 1 月，Twitter决定永久封禁时任总统川普的推特账号，此举让多尔西受到保守派和言论自由支持者的严厉批评。当时，多尔西也承认“这个时刻可能需要这种行为，但长期而言，此举将破坏开放互联网的崇高目标和理想”。**
 
-新闻链接：
+**多年来，多尔西一直与Facebook首席执行官马克·扎克伯格以及谷歌的高管一起出现在电视直播的国会听证会上。在听证会上，他们会被问及，他们的平台是否对所谓的虚假信息的传播负有责任，或者平台是否在积极压制与主流大众相反的观点。**
 
-[Omicron Variant Continues Spread as Europe, Israel Enact New Mandates](https://www.newsmax.com/headline/omicron-variant-spread-israel/2021/11/28/id/1046416/)
+11月29日，Twitter的股价收盘时下跌了近3%。
 
-* * *
+原文连接：[https://www.theepochtimes.com/twitter-founder-jack-dorsey-steps-down-as-ceo-effective-immediately\_4128818.html?slsuccess=1](https://www.theepochtimes.com/twitter-founder-jack-dorsey-steps-down-as-ceo-effective-immediately_4128818.html?slsuccess=1)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+翻译&评论：洛杉矶盘古农场 – 比格渣餐厅老板の娘
+
+校对&编辑：洛杉矶盘古农场 – 小象の奶瓶
 
 
-编辑：【英国伦敦喜庄园编辑部】
+![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入: (或点击上方图片）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

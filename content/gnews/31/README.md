@@ -2,22 +2,30 @@
 ---
 
 
-## 路透社：11月19日荷兰已出现不明来历奥米克戎病毒
-` 丁过` [轉載自GNews](https://gnews.org/zh-hans/1708722/)
+## GTV新闻访谈简报|2021年11月30日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1708821/)
 
-#### 温哥华农场 向真
-![](https://assets.gnews.org/wp-content/uploads/2021/11/RTX7O413.jpg.jpeg)来源：半岛电视台
-据路透社11月30日报道，荷兰政府卫生官员30日表示，“我们在11月19日和11月23日的两个病例测试样本中发现了奥米克戎 （Omicron）中共病毒变体”。荷兰国家公共卫生研究所(RIVM)证实了以上消息，并称“目前还不清楚这些人是否去过非洲南部”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-768x103-11.jpg)
 
-也就是说，在11月26日从南非约翰内斯堡和开普敦飞抵荷兰的两个航班上发现至少有14人感染了Omicron病毒变体之前，荷兰已存在Omicron变体感染病例。
-![img](https://media.gettr.com/group34/origin/2021/08/26/16/bf2713ff-0091-6b60-4d79-39681516bf40/aba01548012a37b3e1c22dcdf15a3ce7.jpg)来源：Gettr
-新中国联邦创始人郭文贵先生在11月19日的直播中指出，中共即将在非洲释放新的病毒，然后和西方关系较为密切的南非就出现了初步确定传染性更强的Omicron病毒。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-31.png)
+文章仅代表作者本人观点，与Gnews无关
 
-此前郭先生根据可靠情报曾经发出警告，中共将在非洲和美国西部放毒。而荷兰出现不明来历的Omicron病毒，说明中共极有可能正在全球范围内多点放毒和释放多种病毒！
+视频参看：2021.11.30早GTV新闻访谈
 
-参考来源：
+[https://gtv.org/broadcast/watch/61a626ff44c1fe7a6c3bf4d4](https://gtv.org/broadcast/watch/61a626ff44c1fe7a6c3bf4d4)
 
-[荷兰当局称11月19日检测样本已出现Omicron变体踪迹](https://cn.reuters.com/article/netherland-covid-omicron-1130-idCNKBS2IF0XA)
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-13.jpg)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -2,30 +2,35 @@
 ---
 
 
-## GTV新闻访谈简报|2021年11月30日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1708821/)
+## 文贵警告：警惕世界经济的大崩溃
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1708851/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-768x103-11.jpg)
+作者：纽约香草山农场福音部 – 恩永存
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-977.png)
+11月28日，郭文贵先生通过盖特视频警告世界：中共正在全球释放病毒，意在限世界经济于大崩溃之中。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-31.png)
-文章仅代表作者本人观点，与Gnews无关
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide1-24.jpeg)
 
-视频参看：2021.11.30早GTV新闻访谈
+郭先生表示，当病毒在世界再次爆发时，各国会闭关锁国，物资紧缺，供应链必定断裂，导致经济大崩溃，随之而来的是社会动荡。独裁政府因经济破产，为转移政治危机，一定会制造种族矛盾、社会安全事件，控制媒体和舆论，把一切过错都推给民众，找替罪羊，以及发动局部战争。与中共勾兑的华尔街人现在比谁都害怕，惶惶不可终日。
 
-[https://gtv.org/broadcast/watch/61a626ff44c1fe7a6c3bf4d4](https://gtv.org/broadcast/watch/61a626ff44c1fe7a6c3bf4d4)
+郭先生再次提醒新中国联邦人，一定要团结在一起，共同渡过即将到来的人类世纪大灾难。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+参考链接：[https://gettr.com/post/pi9mpi52e6](https://gettr.com/post/pi9mpi52e6)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-13.jpg)
+![This image has an empty alt attribute; its file name is 11月小图-1.png](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+
+总编：文恩
+编辑：文真
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
 
  
 

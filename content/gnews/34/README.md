@@ -2,31 +2,33 @@
 ---
 
 
-## 拜登曾表示希望日本防卫费增加以遏制中共
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1708599/)
+## 2021/11/30 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1708618/)
 
-作者：东京樱花团—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-外媒11月27日消息，日前美国政府人士透露，美国总统拜登在10月上旬与日本首相岸田文雄的会谈中表示，希望日方能增加防卫费用。因美国政府需要遏制作为唯一竞争对手的中共，希望日本在安全领域能够负担更多。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/20211005053326987.jpeg)图片来源：阿波罗网
-岸田在当选首相之前，就表示防卫费不应该被数字束缚。而拜登基于岸田的发言，对日本切实推进防卫力调整表示了期待。
+1. 11月27日，上海黄浦区曙光医院开始进行封闭管理。
+2. 11月28日，黑龙江齐齐哈尔讷河市，全员核酸检测。学校听课，公共交通停止运输。
+3. 11月27日，乌鲁木齐乌拉泊北收费站，一货车司机突发不适，左半身麻木，无法动弹。
+4. 11月25日，河南信阳商城县华儒小区附近，一男子街头倒地。
+5. 11月24日，黑龙江木兰县大贵镇，村民爆料当地养猪场偷排污水，严重污染环境！
+6. 11月23日，河北张家口高铁站，所有人都需要提供核酸检测。未提供者，现场检测140元一次。
+7. 成立20余年的，打印机巨头OKI搬迁至泰国，深圳关厂，遣散700员工。
+8. 11月26日，河南郑州巩义市。几个月前那场暴雨灾难冲走的汽车“长”在了地里。
+9. 河南新乡，市民吐槽医院服务差：患者排长队，工作人员却着急下班数钱对账。
+10. 湖北武汉，女子拿到医院诊断书后，在医院走廊当场崩溃的一幕。
+11. 11月27日，辽宁锦州。疑因学生上课玩手机，被老师当众掌掴。
 
-据悉，日本防卫费在2016年首次超过5万亿日元，2021年加上补充预算则达到6万亿日元，很有可能超过GDP的1%。有意见认为，如果实现首次美日首脑会谈，日本增加防卫费用一事将成为主要议题。
 
-参考链接：[独家：拜登曾向岸田表示期待日本防卫费增额](https://china.kyodonews.net/news/2021/11/ec4ff208fa1d.html)
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-总编：正义的小新
-编辑/校正/发稿：呼吸的雾霾（文小呼吸）
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
