@@ -15,83 +15,83 @@
 
 ---
 
-### [澳洲企业开辟亚欧新市场狠狠打脸中共的贸易报复](/content/gnews/1/README.md)
+### [2018年11月20日郭文贵先生、班农先生关于王健之死新闻发布会全文字版](/content/gnews/1/README.md)
+ ` 温哥华扬帆农场七哥直播全文听写组`
+
+### [澳洲企业开辟亚欧新市场狠狠打脸中共的贸易报复](/content/gnews/2/README.md)
  ` 澳喜农场`
 
-### [麦卡洛医生反对在工作场所区别对待接种和未接种疫苗者](/content/gnews/2/README.md)
+### [麦卡洛医生反对在工作场所区别对待接种和未接种疫苗者](/content/gnews/3/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [麦卡洛：中共病毒疫苗对于正在发生的第三波疫情无效](/content/gnews/3/README.md)
+### [麦卡洛：中共病毒疫苗对于正在发生的第三波疫情无效](/content/gnews/4/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [埃内斯·坎特 (Enes Kanter) 取得公民身份前合法地将姓氏更改为“自由”](/content/gnews/4/README.md)
+### [埃内斯·坎特 (Enes Kanter) 取得公民身份前合法地将姓氏更改为“自由”](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [秘翻在线: Twitter首席执行官杰克‧多尔西为什么离职?](/content/gnews/5/README.md)
+### [秘翻在线: Twitter首席执行官杰克‧多尔西为什么离职?](/content/gnews/6/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [比尔·盖茨通过向中国提供赠款直接资助了新冠肺炎疫情](/content/gnews/6/README.md)
+### [比尔·盖茨通过向中国提供赠款直接资助了新冠肺炎疫情](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [由于疫苗强制令 德约科维奇“可能不会”参加2022年的澳网](/content/gnews/7/README.md)
+### [由于疫苗强制令 德约科维奇“可能不会”参加2022年的澳网](/content/gnews/8/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [对澳大利亚实施贸易禁令,令中共国品尝苦果](/content/gnews/8/README.md)
+### [对澳大利亚实施贸易禁令,令中共国品尝苦果](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [维基百科要删除“共产主义政权下的大屠杀”引发质疑](/content/gnews/9/README.md)
+### [维基百科要删除“共产主义政权下的大屠杀”引发质疑](/content/gnews/10/README.md)
  ` 澳喜农场`
 
-### [法国民议会压倒性通过决议案 挺台参与国际组织](/content/gnews/10/README.md)
+### [法国民议会压倒性通过决议案 挺台参与国际组织](/content/gnews/11/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [疫苗灾难：中共与世界黑暗势力的勾结](/content/gnews/11/README.md)
+### [疫苗灾难：中共与世界黑暗势力的勾结](/content/gnews/12/README.md)
  ` 墨尔本雅典娜农场`
 
-### [疫苗将导致人类想象不到的大劫难](/content/gnews/12/README.md)
+### [疫苗将导致人类想象不到的大劫难](/content/gnews/13/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [香港Disney+删除知名动画《辛普森一家》访问天安门一集是向中共屈服？](/content/gnews/13/README.md)
+### [香港Disney+删除知名动画《辛普森一家》访问天安门一集是向中共屈服？](/content/gnews/14/README.md)
  ` 首尔天池农场`
 
-### [美军紧锣密鼓开启全球部署剑指中共](/content/gnews/14/README.md)
+### [美军紧锣密鼓开启全球部署剑指中共](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新中国联邦的正道主义](/content/gnews/15/README.md)
+### [新中国联邦的正道主义](/content/gnews/16/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [11/29/2021 文贵盖特：中共实际上是在美西(包括夏威夷)和南美放毒，新病毒将很快出现在美东和加拿大](/content/gnews/16/README.md)
+### [11/29/2021 文贵盖特：中共实际上是在美西(包括夏威夷)和南美放毒，新病毒将很快出现在美东和加拿大](/content/gnews/17/README.md)
  ` 秘密翻译组-北美组`
 
-### [《辛普森家庭》因提及“六四”事件在香港遭言论审查](/content/gnews/17/README.md)
+### [《辛普森家庭》因提及“六四”事件在香港遭言论审查](/content/gnews/18/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [北京户口能预防艾滋病？](/content/gnews/18/README.md)
+### [北京户口能预防艾滋病？](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [吴先生生命垂危，但医院仍然仍然以各种理由拒绝使用伊维菌素](/content/gnews/19/README.md)
+### [吴先生生命垂危，但医院仍然仍然以各种理由拒绝使用伊维菌素](/content/gnews/20/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [娱乐大亨周焯华被逮捕，澳门博彩业股价暴跌](/content/gnews/20/README.md)
+### [娱乐大亨周焯华被逮捕，澳门博彩业股价暴跌](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [视频| 制造矛盾是独裁者最重要的手段](/content/gnews/21/README.md)
+### [视频| 制造矛盾是独裁者最重要的手段](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [中共强推延长产假，使女性就业更加困难](/content/gnews/22/README.md)
+### [中共强推延长产假，使女性就业更加困难](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国最高法院拒绝麻州医护人员疫苗暂停申请](/content/gnews/23/README.md)
+### [美国最高法院拒绝麻州医护人员疫苗暂停申请](/content/gnews/24/README.md)
  ` 纽约香草山MOS01`
 
-### [视频| 习近平“中国梦”的由来](/content/gnews/24/README.md)
+### [视频| 习近平“中国梦”的由来](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [跟随爆料革命你需要的只是“坚信”](/content/gnews/25/README.md)
+### [跟随爆料革命你需要的只是“坚信”](/content/gnews/26/README.md)
  ` 澳喜农场`
-
-### [澳洲总理、国防部长发言要对抗中共](/content/gnews/26/README.md)
- ` 纽约香草山MOS01`
 
 ### [体制作恶，华为应用商店内藏木马](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

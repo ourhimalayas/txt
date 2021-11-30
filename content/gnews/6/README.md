@@ -2,56 +2,43 @@
 ---
 
 
-## 比尔·盖茨通过向中国提供赠款直接资助了新冠肺炎疫情
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1707661/)
+## 秘翻在线: Twitter首席执行官杰克‧多尔西为什么离职?
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1707666/)
 
-翻译：love miles
-编辑：李易通
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-113.jpg)图片来源：NaturalNews.com
-自然新闻报道，自武汉冠状病毒 (Covid-19) 大流行开始以来，比尔和梅琳达·盖茨基金会已向中国的各种“全球健康”项目捐赠了5400万美元，其中包括中国共产党 (CCP) 控制的机构和武汉病毒研究所（WIV）的合作者。
+撰稿:牛小妹
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Image-1-3.jpg)
+图片:GETTY　IMAGES
 
-据国家脉动报道，自2019年12月全球主义者首次向世界公布中共病毒以来，比尔和梅琳达·盖茨基金会已经资助了93项单独的捐款，总额达 54,573,428美元。
+**Twitter禁言川普，多尔西承认失败**
 
-获得这些赠款的有许多是中共办的高等院校，还有农业部、中国疾病预防控制中心（CDC）和科技部等官方机构。
+2021年 1 月，在美国国会大厦遭到袭击之后，Twitter禁止川普发言，Twitter首席执行官杰克·多尔西（Jack Dorsey）坚称川普的推文「分裂了美国」，但之后承认这是推特在促进自由言论方面的失败。根据美国广播公司商业频道（CNBC）的报导，多尔西已辞去首席执行官。
 
-明确地说，中国疾控中心在福奇流感大戏中发挥了主导作用。许多人认为病毒起源于武汉病毒研究所（WIV），尽管西方媒体一再称这是由所谓的大流行病否认者传播的疯狂“阴谋论” 。
+**推特成立比特币专属加密支付**
 
-事实证明，就在今年1月，WIV（武汉病毒研究所）从盖茨那里收到了 127,650美元。哪些学校在病毒流行后需要这笔钱尚不清楚，但我们确实知道，WIV（武汉病毒研究所）正在托尼·福奇 (Tony Fauci) 的要求下对蝙蝠冠状病毒进行研究。
+Facebook曾试图「铸造」自己的「货币」，推出Libra的新型稳定币，最终遭监管机构扼杀。Twitter没有行使Facebook的垄断权力，也不「铸造」自己的「货币」，而是选择加密支付工具「比特币」。
 
-“盖茨基金会的一些捐款旨在使中国能够在全球健康和治理中发挥更大的作用，尽管该政权阻挠了揭开COVID-19起源的努力” ，《国家脉搏》报道。
+多尔西一直是比特币的支持者，9月24日，Twitter宣布向旗下3亿个活跃用户推出「小费」打赏服务，允许通过共享钱包或使用「Strik」应用程序，来发送或接收比特币。
 
-比尔和梅琳达·盖茨是助长全球恐怖主义和种族灭绝的人间恶魔。
+Twitter还宣布了另一项计划，让用户将他们的比特币钱包连接到与其身份相关的非同质化代币（Non-fungible token NFT），此计划促使数以千万计的人尝试使用比特币。
 
-10月，比尔和梅琳达·盖茨 (Bill and Melinda Gates) 又向中国科技交流中心捐赠了150,000美元，用于资助“通过加强政府与工业和学术界的伙伴关系，提高中国研发对全球健康和发展的贡献”的项目。
+**Twitter比特币加密支付问题重重**
 
-另有30万美元被捐赠给国家直接控制的中国农业大学，据称是为了帮助“营造支持中国参与全球卫生事业的有利环境”。
+Twitter的「小费/打赏」功能依赖使用过程繁琐的Strike，Strike也没有准备好应付全球支付网路相关的监管问题。另外，Strike是萨尔瓦多政府推出比特币支付服务的合作夥伴，相关税收规则一团糟，导致 Twitter 「小费/打赏」功能无法被大规模普及应用。
 
-2020年8月，比尔和梅琳达·盖茨向清华大学寄出了30万美元的支票，以“建立智库，为疫苗生态系统建设提供监管科学研究和技术支持”。
+另一方面，Twitter「只选择」比特币的做法，引发以太坊社群和DeFi支持者的反对。Twitter在用户的Twitter帐号上显示与他们钱包相关联的、基于NFT的徽章，但比特币区块链似乎无法胜任这项任务。Twitter也拒绝解释如何支持此项功能，不透明的政策必然导致失败的结果。
 
-据《国家脉搏》报道，这笔拨款和其它几笔拨款实际上被用来扩大中共在未来的流行病研究和传播新“疫苗”方面的作用，而在时机成熟时，盖茨和福奇等人很可能会推出这种疫苗。
+**盖特GETTR将远远超过推特TWITTER**
 
-顺便说一下，清华大学是现任中共领导人习近平的母校。该学校还涉嫌对美国政府发起网络攻击。
+“你们不知道喜联储会有多牛!”郭文贵先生骄傲地说，横空而出的盖特远远超越Twitter。文贵先生设计的喜联储拥有自己的铸币权，即将上市的GETTR PAY 可以迅速与H COIN,H DOLLAR 相连接，形成一个中心化管理、去中心化无国界支付系统。
 
-根据国防情报局前高级情报官和国务院官员尼古拉斯·埃夫蒂米亚德斯 (Nicholas Eftimiades) 的说法，“清华大学与中国国家技术和工业管理局之间也有着明确的联系 ，它们还讨论可以做些什么来帮助中国提升国家安全。”
+所以，Twitter首席执行官杰克‧多尔西的离职，可能与Twitter不透明的比特币计划预见的失败有关?
 
-2020年5月，比尔和梅琳达·盖茨向中国疾控中心捐赠了60万美元，“用于支持应急响应和评估，这为中国应对潜在的大流行病做好准备，不仅有助于疾病控制和遏制，而且将为全球健康贡献中国的经验。”
+消息来源:
+[https://www.abmedia.io/20210607-jack-dorsey-would-leave-twitter-for-bitcoin](https://www.abmedia.io/20210607-jack-dorsey-would-leave-twitter-for-bitcoin)
 
-比尔和梅琳达·盖茨甚至向中国提供现金，以帮助支持其“农业转型”，中国政府可以利用它来取代美国成为农业超级大国。
+[https://www.cnbc.com/2021/11/29/twitter-ceo-jack-dorsey-is-expected-to-step-down-sources-say.htmlCNBC](https://www.cnbc.com/2021/11/29/twitter-ceo-jack-dorsey-is-expected-to-step-down-sources-say.htmlCNBC)
 
-名单上很多显示，几乎每个盖茨资金的接受者都参与了大流行病的某些方面。换句话说，支持全球恐怖主义和种族灭绝的大部分现金是来自于叛国的盖茨家族，由于盖茨基金会构建了复杂的资本关系，他们这些现金似乎永远不会用完。
 
-关于中共病毒的最新新闻报道可以在[Pandemic.news](http://pandemic.news/)上找到。
-
-文章来源：[https://www.naturalnews.com/2021-11-29-bill-gates-funded-covid-plandemic-money-china.html](https://www.naturalnews.com/2021-11-29-bill-gates-funded-covid-plandemic-money-china.html)
-
-发布：kk
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
