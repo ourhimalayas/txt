@@ -2,30 +2,50 @@
 ---
 
 
-## GTV新闻访谈简报|2021年11月29日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1705930/)
+## 香港抗议影片《时代革命》在金马奖中获最佳纪录片奖
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1706148/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-421.jpeg)
+**【简评】***“我真的很希望有一天，我们的国家可以被当成一个真正独立的个体来看待，这是我身为一个台湾人最大的愿望” ，2018年11月17日晚，台湾纪录片导演傅榆在金马奖颁奖礼上的这番话，导致中共当局指令导演和演员抵制金马奖，此后，大陆商业电影和一些广告商纷纷避走。2019年，金马奖提名名单上再无大陆电影。而金马奖也顺应成为抵御北京审查制度的堡垒，成了一个自由出口，支持在中国内地和香港遭禁的电影。正如周冠威导演所说，希望这部电影能给留在香港的人们、流亡海外的香港人，甚至是监狱里的香港抗议者，给予一份安慰、一份拥抱。*
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-30.png)
-文章仅代表作者本人观点，与Gnews无关
+据《路透社》记者：Ben Blanchard，2021年11月27日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-938-e1638209986529.png)2020年6月19日，香港电影导演周冠威在接受路透社采访后拍照留影。图片来源：路透社/Tyrone Siu
+路透台北11月27日电：**一部关于香港民主抗议活动的纪录片于周六在台湾举行的第58届金马奖（华语世界的奥斯卡奖）颁奖典礼上获得了一个备受瞩目的奖项。**
 
-视频参看：2021.11.29早GTV新闻访谈
+**在台北举行的这场盛大的活动中，周冠威的《时代革命》（Revolution of Our Times）获得最佳纪录片奖，观众报以长时间的掌声表示对影片及对香港的支持，更有人高声喊出“香港加油”。**
 
-[https://gtv.org/video/id=61a4d5a544c1fe7a6c3b5b43](https://gtv.org/video/id=61a4d5a544c1fe7a6c3b5b43)
+周冠威从香港发来了预先录制的信息，表达了对该奖项的感谢，他把这部电影献给了香港人民，说他希望影片能给香港人带来一些安慰。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+“制作这部电影时，我哭了很多次；我多次用这部电影来安慰自己，来表达我的愤怒、仇恨，来面对我的恐惧和创伤”，他说。他的声音因情绪激动而哽咽。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-419.jpeg)
+香港人周冠威的这部电影讲述了2019年示威期间几名抗议者与警察的冲突，他此前曾告诉路透社，他希望这部纪录片能帮助这场民主运动继续下去。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+《时代革命》在今年的戛纳电影节上意外亮相。
+
+一年多前，中共为香港制定并推出了一项全面的国家安全法，以打击中共认为的颠覆、分裂主义、恐怖主义和与外国势力勾结的行为。
+
+从那时起，电影院、大学和美术馆都取消了放映或展览与抗议有关的作品。
+
+抗议者在民主统治的台湾赢得了广泛的支持和同情。
+
+中共国声称台湾是其领土，并在2019年阻止中国电影和人员参加金马奖。金马奖成立于1962年，每年在台湾举行。
+
+2018年颁奖典礼上，一名台湾导演傅榆曾在发表获奖感言时呼吁台湾独立（这触到了北京的红线），引发中共当局的愤怒，并在中共国明星间引发轩然大波。
+
+原文连接[：https://www.lifesitenews.com/news/kansas-passes-bill-to-protect-workers-from-bidens-covid-mandate/](https://www.lifesitenews.com/news/kansas-passes-bill-to-protect-workers-from-bidens-covid-mandate/)
+
+翻译：洛杉矶盘古农场–比格渣餐厅老板の娘
+
+校对：洛杉矶盘古农场–Mike Li
+
+评论：洛杉矶盘古农场–比格渣餐厅老板の娘
+
+编辑：洛杉矶盘古农场–心照
+
+
+![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入: (或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

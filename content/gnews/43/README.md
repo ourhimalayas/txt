@@ -2,28 +2,26 @@
 ---
 
 
-## COVID-19 最新情報｜台灣青少年接種BNT 部分無法上學、需住院
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1705053/)
+## 台湾前线｜多国接续访台 台外交部：不屈服于解放军威胁
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1705079/)
 
-**台灣寶島農場 疫情關注組 / 發佈時間｜29/11/2021**
+**台灣寶島農場 港台前線關注組 / 發佈時間｜29/11/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/photo_2021-11-07-14.32.38.jpeg)
+**更多資訊請關注官方蓋特｜please follow our Gettr （[https://gettr.com/user/hktwfrontline](https://gettr.com/user/hktwfrontline)）**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+28日，经台湾国防部证实有27架解放军机侵入台湾防空识别区，其中包含刚服役不到两个月的运20加油机。面对中共恶意侵扰，台湾外交部长吴钊燮于29日受访时强调，外交部立场很清楚，我们不会在威胁下低头，不会在威胁下屈服，外交部会持续和其他爱好民主国家连结和强化关系。
 
+## 美议员访台：台湾共和国
+![](https://assets.gnews.org/wp-content/uploads/2021/11/20211126095409-b6527742.png)圖／Rep. Nancy Mace twitter
+共和党籍众议员梅斯（Nancy Mace），25日抵达台湾后PO了一张她与专家在停机坪的照片，写刚抵达“台湾共和国”（Republic of Taiwan）。她本人接受新闻采访表示，就是“百分之百”刻意使用台湾共和国这个词，表示很多人台湾人谢谢她这么做。
 
-台灣中央流行疫情指揮中心29日宣布，12至17歲人口於9月22日起開始接種第一劑BNT疫苗，10月底前陸續屆滿4週可打第2劑，但考量心肌炎風險，經ACIP專家討論後，認為當時國內疫情算平穩，且有待蒐集更多資料討論，因此緩打。
+## 立陶宛国会议员28日访台 
 
-據統計，12至17歲已接種BNT疫苗第一劑約110萬人，其中17例通報發生心肌炎，包含14男3女。
-
-據台媒報導，台灣小兒感染科醫師發現青少施打BNT疫苗後部分出現偏頭痛，有人1、2個月還未改善，頭痛、頭暈、噁心、嘔吐、倦怠、發燒症狀，甚至無法上學、上課，須住院治療。
-
-台灣青少年接種BNT疫苗後心肌炎比例比歐美高，台中榮總小兒感染科主任陳伯彥指出，部分民眾接種後出現頭痛、頭暈、噁心、發燒等副作用，前3天較嚴重，已有5、6名青少年施打後症狀持續1、2週，在診所就醫未改善，轉來中榮就診，甚至有半數頭暈、頭痛到無法上課，症狀持續2個月。他推測是因為mRNA疫苗有賦型劑PEG（聚乙二醇）過敏成份，就診的青少年有半數有過敏體質，加上過敏沒好好控制，可能誘發不適。
-
-Covid-19偏頭痛就診的青少年從12到17都有，也有19歲患者，依美國建議指引給予較強的止痛消炎藥，以及使用抗織胺、止吐藥，仍有2人未好轉，因此會診中醫，進行中醫及針灸療，增強免疫力及放鬆肌肉，症狀較緩解。
+立陶宛、爱沙尼亚及拉脱维亚的国会议员28日抵达台湾，将参加在台北举行的“2021年开放国会论坛”，其中立陶宛的议员更要台湾人民自己决定台湾的未来，更霸气表示“对于被中国列黑名单很骄傲”。
 
 * * *
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-Space-Channel-Banner-21.jpg)
-來源｜[自由健康網](https://health.ltn.com.tw/article/breakingnews/3751004)/[自由時報](https://news.ltn.com.tw/news/life/breakingnews/3751407)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/港台前線-（TW）-9.jpg)
+來源｜[三立](https://tw.news.yahoo.com/27%E6%9E%B6%E5%85%B1%E6%A9%9F%E6%93%BE%E5%8F%B0-%E5%90%B3%E9%87%97%E7%87%AE-%E4%B8%8D%E6%9C%83%E5%B1%88%E6%9C%8D-025011567.html)/[TVBS](https://news.tvbs.com.tw/world/1646586)
 
  
 

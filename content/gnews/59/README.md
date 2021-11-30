@@ -2,40 +2,24 @@
 ---
 
 
-## 班农提出动议 要求公开法庭案件中的所有文件
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1699695/)
+## 秘翻在线：卡塔尔的一项研究发现，新冠康复者再次感染和患上重症的风险非常低
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1702543/)
 
-**编译：Jenny Ball**
+#### 翻译/撰稿：zzballack
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip81.png)调查 1 月 6 日在国会大厦发生的未遂叛乱的众议院特别委员会面临着与前特朗普政府官员的艰苦战斗。 （布莱尔公会/华盛顿邮报）
+#### 校对：胡天
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-866.png)图片来源：CNN
+据《新唐人》11月27日报道，《新英格兰医学杂志》（New England Journal of Medicine）11月24日发表的一项研究发现，新冠康复者再次感染新冠病毒的风险很低，患上重症的概率也微乎其微。如果一个人在第一次感染后至少90天内检测出阳性，则算作再次感染。
 
-前川普白宫顾问斯蒂夫·班农 (Stephen K. Bannon) , 已向美国地方法院提出反对标准的发现保护令，该命令禁止任何一方公开发布文件或证据。
+卡塔尔的研究人员对国家数据库中收录的35.3万名经核酸测试后确认感染新冠的患者进行研究，这些患者在2020 年 2 月28日至 2021 年 4 月28期间感染了新冠病毒。在拥有自然免疫力且没有接种疫苗的人中，仅有1304名再次感染者，只占0.4%；另有4位重症患者，占总人数的0.1%。这意味着那些具有自然免疫力的新冠康复者再次感染新冠和患上重症的风险几乎没有。再次感染的人中，没有死亡病例记录。本次统计没有计入大约8万7500名接种过新冠疫苗的人。
 
-67 岁的班农上周对藐视国会的指控表示不认罪，他的法律团队此前争辩道，如果同意检方的发现保护令，案件会更加复杂。
+卡塔尔威尔康奈尔医学院（Weill Cornell Medicine–Qatar）的研究员莱斯·J·阿布-拉达德 (Laith J. Abu-Raddad)和卡塔尔公共卫生部的罗伯托·贝托里尼 (Roberto Bertolini)博士，之前评估自然免疫对预防再感染的有效性为85%或更高。 他们说：“相对来说，新冠康复者比没感染过新冠的人低，前者发生严重再感染的风险只有后者的大概1%。”
 
-律师代表班农向《华盛顿邮报》提供的一份声明说：“公众应该根据所有事实，才能对美国司法部是否致力于公正做出他们自己的独立判断。”“在今天提出的反对意见中，班农先生要求法官遵循正常程序，并允许不受限制地访问和使用文件。”
+加利福尼亚大学旧金山分校（University of California, San Francisco）的传染病学教授莫妮卡·甘地 (Monica Gandhi)表示，这项研究和其它越来越多的研究表明，新冠康复者有很高的免疫力水平，甚至对重症和死亡有更高的保护力。
 
-美国助理检察官阿曼达·沃恩（Amanda R. Vaughn）表示，将提供“少于 20 份文件”，但班农律师埃文·科克兰（Evan Corcoran）告诉记者，辩方可能需要找到更多文件和证人。
+自然免疫是强大的，之前辉瑞的科学家在接受记者暗访时也承认自然免疫强过疫苗。人们不要再被媒体、政客、制药寡头和所谓学术权威炮制的恐慌和科学数据欺骗，合理使用硫酸羟氯喹、伊维菌素等廉价有效药物做好预防，安全地渡过这场人类大劫难。
 
-班农的法律团队称，政府没有提供任何理由不让公众看到这些文件，并补充说，在本案中，许多受拟议保护令限制的文件已经公开。
-
-“政府没有提供任何理由限制班农先生的律师使用这些文件准备辩护，”班农的声明说。
-
-班农拒绝遵守调查 1 月 6 日国会大厦袭击事件的众议院特别委员会的命令，以提供有关他在袭击前的行为的记录和证词。委员会有兴趣就 1 月 6 日之前一周内，班农在威拉德酒店的活动向他提问。
-
-**评论：所有伟人都是经历的巨大的磨难，如果班农先生没有在中共渗透和控制的美国司法走一遭，他永远不会真切地认识到中共对美国影响的灾难到了什么程度！不在痛苦中生，必将在痛苦中亡！**
-
-**新闻来源**：[washingtonpost.com][Stephen K. Bannon files motion to request all documents in court case be made public](https://www.washingtonpost.com/politics/stephen-k-bannons-lawyers-file-opposition-to-keeping-documents-from-being-released/2021/11/25/29889174-4e3e-11ec-b73b-a00d6e559a6e_story.html?utm_campaign=wp_post_most&amp;utm_medium=email&amp;utm_source=newsletter&amp;wpisrc=nl_most&amp;carta-url=https%3A%2F%2Fs2.washingtonpost.com%2Fcar-ln-tr%2F3561315%2F61a114979d2fdab56ba15957%2F5e2dde419bbc0f6326309bfd%2F39%2F72%2F61a114979d2fdab56ba15957)
-
-* * *
-
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
-
-
+新闻来源：[Naturally Immune People at Little Risk of Reinfection, Severe Disease From COVID-19: Study](https://www.ntd.com/naturally-immune-people-at-little-risk-of-reinfection-severe-disease-from-covid-19-study_707080.html)
 
  
 

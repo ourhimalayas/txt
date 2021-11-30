@@ -15,198 +15,198 @@
 
 ---
 
-### [华夏幸福：累计未能如期偿还债务合计1013亿元](/content/gnews/1/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [理查德·巴里斯讲解民调结果：多数人反对疫苗强制令](/content/gnews/1/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [7·24系列——病毒来源在昌平防化学院](/content/gnews/2/README.md)
+### [11/29/2021 文贵盖特：所有独裁政府都说自己永远正确,面对经济崩溃，他们将发动战争、制造种族矛盾和社会动乱](/content/gnews/2/README.md)
+ ` 秘密翻译组-北美组`
+
+### [雅典娜时报-第128期](/content/gnews/3/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共国的经济是家天下党天下](/content/gnews/3/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [莫德纳宣布将推出针对奥米克戎的疫苗加强针](/content/gnews/4/README.md)
- ` 丁过`
-
-### [中共的杀富“济贫”是依法抢劫](/content/gnews/5/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [澳洲央行警告，巨大的经济下滑已迫在眉睫](/content/gnews/6/README.md)
+### [安德鲁斯政府拉到选票，大流行病法案经修改有望通过](/content/gnews/4/README.md)
  ` 走进澳洲`
 
-### [美联邦法院叫停10个州对医护人员的疫苗强制令](/content/gnews/7/README.md)
+### [华夏幸福：累计未能如期偿还债务合计1013亿元](/content/gnews/5/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [7·24系列——病毒来源在昌平防化学院](/content/gnews/6/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [中共国的经济是家天下党天下](/content/gnews/7/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [莫德纳宣布将推出针对奥米克戎的疫苗加强针](/content/gnews/8/README.md)
+ ` 丁过`
+
+### [中共的杀富“济贫”是依法抢劫](/content/gnews/9/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [澳洲央行警告，巨大的经济下滑已迫在眉睫](/content/gnews/10/README.md)
+ ` 走进澳洲`
+
+### [美联邦法院叫停10个州对医护人员的疫苗强制令](/content/gnews/11/README.md)
  ` HimalayaRussia`
 
-### [【信仰之声】约瑟的启示（三）：唯真的心，与神同行，化解危机](/content/gnews/8/README.md)
+### [【信仰之声】约瑟的启示（三）：唯真的心，与神同行，化解危机](/content/gnews/12/README.md)
  ` 纽约香草山MOS03`
 
-### [新变种病毒Omicron 到达北美](/content/gnews/9/README.md)
+### [新变种病毒Omicron 到达北美](/content/gnews/13/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【#G时新闻】密苏里州法官裁定去年以来实施的COVID限制为非法](/content/gnews/10/README.md)
+### [【#G时新闻】密苏里州法官裁定去年以来实施的COVID限制为非法](/content/gnews/14/README.md)
  ` G-时新闻`
 
-### [针对新冠变种奥米克戎（Omicron)，采用地毯式追踪，可能需要第四剂新冠疫苗](/content/gnews/11/README.md)
+### [针对新冠变种奥米克戎（Omicron)，采用地毯式追踪，可能需要第四剂新冠疫苗](/content/gnews/15/README.md)
  ` xiaobaige`
 
-### [秘翻在线：美科技巨头们大比例抛售所持股份，意欲何为？](/content/gnews/12/README.md)
+### [秘翻在线：美科技巨头们大比例抛售所持股份，意欲何为？](/content/gnews/16/README.md)
  ` 秘密翻译组-原创组`
 
-### [联邦法官暂停了拜登对10个州的医务工作者的强制疫苗规定](/content/gnews/13/README.md)
+### [联邦法官暂停了拜登对10个州的医务工作者的强制疫苗规定](/content/gnews/17/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国汽车制造商尚未强制要求工会工人接种疫苗](/content/gnews/14/README.md)
+### [美国汽车制造商尚未强制要求工会工人接种疫苗](/content/gnews/18/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [杰克·多尔西下台后，有些人发誓要为盖特服务](/content/gnews/15/README.md)
+### [杰克·多尔西下台后，有些人发誓要为盖特服务](/content/gnews/19/README.md)
  ` MG FARM`
 
-### [不要忘记喜币是打击中共的武器](/content/gnews/16/README.md)
+### [不要忘记喜币是打击中共的武器](/content/gnews/20/README.md)
  ` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)`
 
-### [喜币永远不会贬值，只会升值](/content/gnews/17/README.md)
+### [喜币永远不会贬值，只会升值](/content/gnews/21/README.md)
  ` MG 澳喜农场多语组`
 
-### [2021/11/28 文贵先生直播精要](/content/gnews/18/README.md)
+### [2021/11/28 文贵先生直播精要](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [阿富汗大规模饥荒迫在眉睫，塔利班寻求帮助并抨击前政权](/content/gnews/19/README.md)
+### [阿富汗大规模饥荒迫在眉睫，塔利班寻求帮助并抨击前政权](/content/gnews/23/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [灾难让人民觉醒系列：银行里的钱取不出来的国家是有信用的吗？（5）](/content/gnews/20/README.md)
+### [灾难让人民觉醒系列：银行里的钱取不出来的国家是有信用的吗？（5）](/content/gnews/24/README.md)
  ` 澳喜农场`
 
-### [“爆二代”首次接触喜交所和见证喜币上市的感想](/content/gnews/21/README.md)
+### [“爆二代”首次接触喜交所和见证喜币上市的感想](/content/gnews/25/README.md)
  ` 澳喜农场`
 
-### [民声！民意！民权！我们有知道真相的要求和权力！](/content/gnews/22/README.md)
+### [民声！民意！民权！我们有知道真相的要求和权力！](/content/gnews/26/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [2021/11/29 大卫作战室直播精要](/content/gnews/23/README.md)
+### [2021/11/29 大卫作战室直播精要](/content/gnews/27/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [灾难让人民觉醒系列：当没饭吃变成现实将如何面对（4）](/content/gnews/24/README.md)
+### [灾难让人民觉醒系列：当没饭吃变成现实将如何面对（4）](/content/gnews/28/README.md)
  ` 澳喜农场`
 
-### [青蒿素是皇家特工007，精准打击病原体](/content/gnews/25/README.md)
+### [青蒿素是皇家特工007，精准打击病原体](/content/gnews/29/README.md)
  ` zuzu`
 
-### [科顿抨击世卫组织相比公共卫生“更关心”维护中共国政府的“感受”](/content/gnews/26/README.md)
+### [科顿抨击世卫组织相比公共卫生“更关心”维护中共国政府的“感受”](/content/gnews/30/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [揭露残暴独裁者萨达姆·侯赛因等鲜为人知的罪行](/content/gnews/27/README.md)
+### [揭露残暴独裁者萨达姆·侯赛因等鲜为人知的罪行](/content/gnews/31/README.md)
  ` YALUN 亚伦`
 
-### [Eglise医生讲解伊维菌素等用药时机](/content/gnews/28/README.md)
+### [Eglise医生讲解伊维菌素等用药时机](/content/gnews/32/README.md)
  ` HimalayaRussia`
 
-### [香港抗议影片《时代革命》在金马奖中获最佳纪录片奖](/content/gnews/29/README.md)
+### [香港抗议影片《时代革命》在金马奖中获最佳纪录片奖](/content/gnews/33/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [油价下跌10美元/桶，创2020年4月以来最大单日跌幅](/content/gnews/30/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [班农“不睬民主党人国会调查委员会”案新进展](/content/gnews/31/README.md)
+### [班农“不睬民主党人国会调查委员会”案新进展](/content/gnews/34/README.md)
  ` HimalayaRussia`
 
-### [11/28/2021 文贵直播：大家不要忘記病毒是源自中共軍方的生化武器（粤语配音版）](/content/gnews/32/README.md)
+### [11/28/2021 文贵直播：大家不要忘記病毒是源自中共軍方的生化武器（粤语配音版）](/content/gnews/35/README.md)
  ` 秘密翻译组-北美组`
 
-### [GTV新闻访谈简报|2021年11月29日早](/content/gnews/33/README.md)
+### [GTV新闻访谈简报|2021年11月29日早](/content/gnews/36/README.md)
  ` 纽约香草山MOS01`
 
-### [独裁者都具有精神与人格的双重缺陷](/content/gnews/34/README.md)
+### [独裁者都具有精神与人格的双重缺陷](/content/gnews/37/README.md)
  ` GTV新闻访谈`
 
-### [世界经济濒临崩溃的三大指征](/content/gnews/35/README.md)
+### [世界经济濒临崩溃的三大指征](/content/gnews/38/README.md)
  ` GTV新闻访谈`
 
-### [英国国际投资公司启动， 对抗 “一带一路”](/content/gnews/36/README.md)
+### [英国国际投资公司启动， 对抗 “一带一路”](/content/gnews/39/README.md)
  ` GTV新闻访谈`
 
-### [不打疫苗的是智民](/content/gnews/37/README.md)
+### [不打疫苗的是智民](/content/gnews/40/README.md)
  ` 骄子`
 
-### [11/28/2021 文贵直播：中共在上海封医院，世界媒体都被中共和邪恶势力收买来掩盖真相、推卸责任](/content/gnews/38/README.md)
- ` 秘密翻译组-北美组`
-
-### [11/28/2021 文贵直播：中共将摧垮美欧经济并制造动乱以掩护其攻台，然后将继续放毒](/content/gnews/39/README.md)
- ` 秘密翻译组-北美组`
-
-### [在台湾问题上，我们不应该听从中共国的要求](/content/gnews/40/README.md)
+### [在台湾问题上，我们不应该听从中共国的要求](/content/gnews/41/README.md)
  ` 墨尔本雅典娜农场`
 
-### [11/29/2021国际财经快讯：华尔街中共病毒担忧再次出现;加密货币交易所Coinstore进入印度](/content/gnews/41/README.md)
+### [11/29/2021国际财经快讯：华尔街中共病毒担忧再次出现;加密货币交易所Coinstore进入印度](/content/gnews/42/README.md)
  ` 秘密翻译组金融团队`
 
-### [台湾前线｜多国接续访台 台外交部：不屈服于解放军威胁](/content/gnews/42/README.md)
+### [台湾前线｜多国接续访台 台外交部：不屈服于解放军威胁](/content/gnews/43/README.md)
  ` G&#124;News TAIWAN`
 
-### [COVID-19 最新情報｜台灣青少年接種BNT 部分無法上學、需住院](/content/gnews/43/README.md)
+### [COVID-19 最新情報｜台灣青少年接種BNT 部分無法上學、需住院](/content/gnews/44/README.md)
  ` G&#124;News TAIWAN`
 
-### [一切资产都要归党管！中共北京数字资产交易所来了](/content/gnews/44/README.md)
+### [一切资产都要归党管！中共北京数字资产交易所来了](/content/gnews/45/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [奥密克戎来袭 东京股市暴跌](/content/gnews/45/README.md)
+### [奥密克戎来袭 东京股市暴跌](/content/gnews/46/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [腾讯财付通涉2千元外汇违规，被重罚278万元](/content/gnews/46/README.md)
+### [腾讯财付通涉2千元外汇违规，被重罚278万元](/content/gnews/47/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国将重启东盟特别首脑会议，意在拿掉中共区域主导权](/content/gnews/47/README.md)
+### [美国将重启东盟特别首脑会议，意在拿掉中共区域主导权](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国是全世界的敌人](/content/gnews/48/README.md)
+### [中共国是全世界的敌人](/content/gnews/49/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [韩国暂不考虑全面禁止外国人入境](/content/gnews/49/README.md)
+### [韩国暂不考虑全面禁止外国人入境](/content/gnews/50/README.md)
  ` 首尔天池农场`
 
-### [全球性急速蔓延的新毒株震荡数字货币市场](/content/gnews/50/README.md)
+### [全球性急速蔓延的新毒株震荡数字货币市场](/content/gnews/51/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线：日本封国！将禁止全世界外国人入境](/content/gnews/51/README.md)
+### [秘翻在线：日本封国！将禁止全世界外国人入境](/content/gnews/52/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [香港反送中《时代革命》夺得金马奖最佳纪录片奖](/content/gnews/52/README.md)
+### [香港反送中《时代革命》夺得金马奖最佳纪录片奖](/content/gnews/53/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中概股暴跌，爱奇艺跌幅达85%](/content/gnews/53/README.md)
+### [中概股暴跌，爱奇艺跌幅达85%](/content/gnews/54/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [郭文贵直播摘要和音频 2021.11.28](/content/gnews/54/README.md)
+### [郭文贵直播摘要和音频 2021.11.28](/content/gnews/55/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [2021/11/28 墙内世界](/content/gnews/55/README.md)
+### [2021/11/28 墙内世界](/content/gnews/56/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【文贵先生大直播PPT】青蒿素功效](/content/gnews/56/README.md)
+### [【文贵先生大直播PPT】青蒿素功效](/content/gnews/57/README.md)
  ` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)`
 
-### [你拥有喜币是因为你要灭共，这是个承诺](/content/gnews/57/README.md)
+### [你拥有喜币是因为你要灭共，这是个承诺](/content/gnews/58/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线：卡塔尔的一项研究发现，新冠康复者再次感染和患上重症的风险非常低](/content/gnews/58/README.md)
+### [秘翻在线：卡塔尔的一项研究发现，新冠康复者再次感染和患上重症的风险非常低](/content/gnews/59/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [班农提出动议 要求公开法庭案件中的所有文件](/content/gnews/59/README.md)
+### [班农提出动议 要求公开法庭案件中的所有文件](/content/gnews/60/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [平明运动的本质就是一人一票](/content/gnews/60/README.md)
+### [平明运动的本质就是一人一票](/content/gnews/61/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [班农的愿景－川普耳边人正在组织一场平民主义革命](/content/gnews/61/README.md)
+### [班农的愿景－川普耳边人正在组织一场平民主义革命](/content/gnews/62/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [班农先生的人格魅力是我们中国人最为缺少的](/content/gnews/62/README.md)
+### [班农先生的人格魅力是我们中国人最为缺少的](/content/gnews/63/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [班农先生在11·20大直播谈加密货币及喜币](/content/gnews/63/README.md)
+### [班农先生在11·20大直播谈加密货币及喜币](/content/gnews/64/README.md)
  ` 纽约香草山MOS01`
 
-### [秘翻在线：《周刊》杂志无耻抹黑、攻击班农先生](/content/gnews/64/README.md)
+### [秘翻在线：《周刊》杂志无耻抹黑、攻击班农先生](/content/gnews/65/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [背叛 betray](/content/gnews/65/README.md)
- ` 骄子`
 

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/30/2021 1:47 AM (UTC)`
+
+11/29/2021 Miles Guo’s GETTR: Why must Xi Jinping eliminate Wang Qishan? The essence of the CCP’s system is the bad money turns the good one into the evilest one, whereas it is now popular in the CCP to have private conversations on the Himalaya Coin and the New Federal State of China<br/><br/>11/29/2021 文贵盖特：为什么说习近平必须灭掉王岐山？中共体制的本质是劣币把良币变成恶币，而中共党内流行私下谈喜币和新中国联邦<br/>
+![img](https://media.gettr.com/group43/getter/2021/11/30/01/47/0126729b-ae93-607b-a25b-6e7be24b1ecc/out.jpg)
+
+---
+
 `@miles 11/30/2021 1:40 AM (UTC)`
 
 11/29/2021 Miles Guo’s GETTR: All dictatorships claim they are always right; facing the economic collapse, they will wage wars, create racial conflicts and social unrests, and eventually make a small group of people the scapegoat; the CCP has completely ended up being a rogue regime<br/><br/>11/29/2021 文贵盖特：所有独裁政府都说自己永远正确；面对经济崩溃，他们将发动战争、制造种族矛盾和社会动乱，最终找一小部分人当替罪羊；中共成了彻头彻尾的流氓<br/>
@@ -147,13 +154,6 @@ NBA球员埃内斯·坎特：我需要成为那些无法发声的无辜者的代
 
 11/26/2021 Miles Guo: Four indicators showing the CCP is bound to be over: 1) the US military deployment in the Asia-Pacific; 2) Bipartisan legislators arrived in Taiwan on a U.S. diplomatic jet; 3) the US is divesting from Communist China; 3) the US government’s the actual deeds; the New Federal State of China will protect Taiwan to keep it intact<br/><br/>11/26/2021 文贵直播: 四个指标说明中共必灭：1) 美国在亚太的军事部署；2) 两党议员乘美国外交专机抵台；3) 美国从中共国撤资；4) 美国政府的实质行动；新中国联邦会保护台湾完好无损！<br/>
 ![img](https://media.gettr.com/group12/getter/2021/11/27/04/05/d3e0cd2a-c0e6-3bbf-a6ed-8600a015de0c/out.jpg)
-
----
-
-`@miles 11/27/2021 3:53 AM (UTC)`
-
-11/26/2021 Miles Guo: The smallpox virus is a biochemical weapon, which is easy to make, and the CCP dares to and will surely release it. The only question is, on what scale the CCP will drop the virus; the whole world is silent when it comes to the truth about the origins of the CCP virus and its vaccines, with the Whistleblowers’ Movement being the only one spreading the truth - We are taking down both the CCP and the whole world’s dark forces<br/><br/>11/26/2021 文贵直播：天花病毒是生化武器，易制造，共产党敢放且一定会放，只是规模多大的问题；全世界在病毒和疫苗上噤声，唯有爆料革命在传播真相 - 我们灭的是中共和全球黑暗力量!<br/>
-![img](https://media.gettr.com/group24/getter/2021/11/27/03/53/ac2fbe49-45cd-174f-f124-9c4d46bebb4a/out.jpg)
 
 ---
 
