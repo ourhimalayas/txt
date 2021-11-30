@@ -2,56 +2,112 @@
 ---
 
 
-## 秘翻在线：美科技巨头们大比例抛售所持股份，意欲何为？
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1706475/)
+## 【信仰之声】约瑟的启示（三）：唯真的心，与神同行，化解危机
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1706577/)
 
-编译：雨季仰光
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11Picture1.png)图片来源：网络
-据零对冲（Zerohedge）报道，上周在短短两天时间内，与亚马逊老板杰夫.贝索斯（Jeff Bezos）及埃隆.马斯克（Elon Musk）一道，微软CEO萨蒂亚.纳德拉（Satya Nadella）也加入了巨头们抛售所持股份的队列，所售股份占约占其持有总额的一半。
+作者：纽约香草山福音部 — 决明子
 
-亚马逊的贝索斯也售出相当大的份额。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-6.jpg)
 
-下图所示为亚马逊股票走势图及贝索斯的几处重要卖点（译者注）。
-![](https://cms.zerohedge.com/s3/files/inline-images/bfm360B.jpg?itok=oLPN3KCK)
-特斯拉的马斯克同时也更为积极地（公开地）抛售其所持股份。
+约瑟是雅各最爱的妻子拉结生的儿子，从小“恃宠而骄”，经常去告哥哥们恶行丑事的状，但他说的是真的。他说出的梦境暗示哥哥们都将是他的仆人，后来证明也是真的。哥哥们心中有恶，害怕面对真相，一起把约瑟卖到了埃及。
 
-下图为特斯拉股票走势图并标示了马斯克的股票抛售点位。
+虽然流落他乡为奴，但约瑟没有因为孤独无助，就用谎言去讨好主人。他对神坚定的信靠，让他蒙福，让他赢得信任而被重用。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-944.png)
+（创世记经文）
 
-[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfmA433_2.jpg?itok=L_I51-qr)](https://www.zerohedge.com/s3/files/inline-images/bfmA433_2.jpg?itok=L_I51-qr)
+39:3 他主人见耶和华与他同在，又见耶和华使他手里所办的尽都顺利，
 
-而当下，微软的萨蒂亚.纳德拉在11月22至23号售出其所持有的普通股的份额达83.86万股。下图为纳德拉抛售微软股份的点位及股票走势图。
+39:4 约瑟就在主人眼前蒙恩，伺候他主人，并且主人派他管理家务，把一切所有的都交在他手里。
 
-[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfmC295_0.jpg?itok=qLIJQ-7v)](https://www.zerohedge.com/s3/files/inline-images/bfmC295_0.jpg?itok=qLIJQ-7v)
+39:5 自从主人派约瑟管理家务和他一切所有的，耶和华就因约瑟的缘故赐福与那埃及人的家；凡家里和田间一切所有的都蒙耶和华赐福。
 
-下图所示为纳德拉在11月的这连续两天所售股份明细
+39:6 波提乏将一切所有的都交在约瑟的手中，除了自己所吃的饭，别的事一概不知。约瑟原来秀雅俊美。
 
-[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfmF65E.jpg?itok=2oNTF1mR)](https://www.zerohedge.com/s3/files/inline-images/bfmF65E.jpg?itok=2oNTF1mR)
+主人对约瑟绝对的信任原因就是约瑟信靠神的智慧，说真话，做实实在在的事。
 
-[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfmC21E.jpg?itok=Nv_JOA_6)](https://www.zerohedge.com/s3/files/inline-images/bfmC21E.jpg?itok=Nv_JOA_6)
+所以即使他被主人妻子诬陷强奸未遂入狱，他依然信靠神，在监狱依然被别人信任和重用。
 
-这些销售行为与期权及10b5-1计划\*无关，是他有史以来的最大抛售行为。
+（创世记经文）
 
-导致微软股价走低。这些股权的变化在11月24号收市后披露，势必将引发周五更大的抛压…
-[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfm9FA6_0.jpg?itok=s2y8xb3O)](https://www.zerohedge.com/s3/files/inline-images/bfm9FA6_0.jpg?itok=s2y8xb3O)
-上图为纳德拉抛售的具体股价部位及相应市场上周五个交易日走势变化
+39:22 司狱就把监里所有的囚犯都交在约瑟的手下，他们在那里所办的事都是经他的手。
 
-是微软在这个价位已经太贵了吗？（上图为微软长周期走势）
+39:23 凡在约瑟手下的事，司狱一概不察，因为耶和华与约瑟同在，耶和华使他所做的尽都顺利。
 
-[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfmC474.jpg?itok=rK8tIxdg)](https://www.zerohedge.com/s3/files/inline-images/bfmC474.jpg?itok=rK8tIxdg)
-[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfm4DED_1.jpg?itok=EDCJ8cqK)](https://www.zerohedge.com/s3/files/inline-images/bfm4DED_1.jpg?itok=EDCJ8cqK)![](https://cms.zerohedge.com/s3/files/inline-images/bfmED4B.jpg?itok=zPFJ3gjt)
+接下来，他两次唯真解梦是他能拯救埃及和自己家族，渡过饥荒的七年，非常重要的事件。
 
+（创世记经文）
 
+40:13 三天之内，法老必提你出监，叫你官复原职，你仍要递杯在法老的手中，和先前作他的酒政一样。
 
+40:19 三天之内，法老必斩断你的头，把你挂在木头上，必有飞鸟来吃你身上的肉。”
 
-他们知道些什么（内幕）了吗？上两图显示从大周期看，目前点位在技术分析上看是一个碗形底的右碗边关键点位，属于底部形态的阶段最高点，后期一般经过一段时间调整将继续上行（译者注）
+40:20 到了第三天，是法老的生日，他为众臣仆设摆筵席，把酒政和膳长提出监来，
 
-作为不缺钱的大佬们同一时间步调一致地大规模减持所持股份，是真的在做技术上的高抛低吸吗？译者认为应该不会，大佬们不会在意高抛低吸那点散碎银子，大钱的走向或去留一般是在诠释资本对市场的态度，如此步调一致地，高比例减持股份，想必是他们洞察到资本市场未来的某些不确定性或巨大危机，从而先兑现筹码，落袋为安。
+40:21 使酒政官复原职，他仍旧递杯在法老手中。
 
-从文贵先生对世界经济当前局势的分析可以预知，货币超发，大水漫灌之后的股市叠加疫情和疫苗的反复蹂躏，世界即将迎来的是类似上世纪20年代末的股市崩盘及随之而来的大萧条时代，历史何其相似！站在未来说历史是荒谬可笑的，但是总结历史事件，结合当下发生的现实事件，总可以找到规律性的蛛丝马迹来引导和准备我们今天的行为。
+40:22 但把膳长挂起来，正如约瑟向他们所解的话。
 
-新闻来源：[Why Did Satya Nadella Suddenly Dump Half His Microsoft Holdings Last Week?](https://www.zerohedge.com/markets/why-did-satya-nadella-suddenly-dump-half-his-microsoft-holdings-last-week)
+有时候真话很残酷，我们常常不想说出来，怕听的人不高兴。约瑟只说事实，真实地解梦，并没有用谎言去安慰膳长。事实早晚要面对，结果最终会验证。这让出狱的酒政信任约瑟，在法老的梦需要人解的时候，大力推荐约瑟，约瑟才得以出狱。这就是真话产生的信任改变事态的走向，往利好发展。
 
-校对发布：Shifter
+约瑟在面对法老的梦的时候，并没有因为法老掌握着他的生杀大权而恐惧，去讨好。他依然是按照神的指示，唯真解梦。
+
+（创世记经文）
+
+41:26 七只好母牛是七年；七个好穗子也是七年。这梦乃是一个。
+
+41:27 那随后上来的七只又乾瘦又丑陋的母牛是七年；那七个虚空、被东风吹焦的穗子也是七年，都是七个荒年。
+
+41:28 这就是我对法老所说：　神已将所要做的事显明给法老了。
+
+41:29 埃及遍地必来七个大丰年；
+
+41:30 随后又要来七个荒年，甚至在埃及地都忘了先前的丰收，全地必被饥荒所灭。
+
+这次的解梦让我们更了解了约瑟。他不顾忌任何人喜不喜欢他说出的真相，也不在乎说出真相会给他带来什么。他在乎的是真实，说出神指示的，不可以说谎。他如此唯真，信靠神的智慧，让他赢得了法老的信任。
+
+（创世记经文）
+
+41:38 法老对臣仆说：“像这样的人，有　神的灵在他里头，我们岂能找得着呢？”
+
+41:39 法老对约瑟说：“　神既将这事都指示你，可见没有人像你这样有聪明有智慧。
+
+41:40 你可以掌管我的家，我的民都必听从你的话，惟独在宝座上我比你大。”
+
+41:41 法老又对约瑟说：“我派你治理埃及全地。”
+
+所以传播真相、面对真相，对于解决灾难和化解危机是多么重要！
+
+约瑟真实地说出了神的暗示，法老接受了真相，重用约瑟当宰相，让埃及在丰收年充分地储备粮食，顺利度过七年的饥荒。
+
+对于雅各家族，更是受益约瑟信靠神的唯真。如果约瑟在埃及撒谎成性，根本不会被信任，更不可能当宰相。拯救埃及后，约瑟让本来对希伯来人反感的埃及人，接纳和尊重自己的家族，甚至把埃及最好的地，给他们住。在雅各死后，埃及人为他哭了70天。
+
+这对当下海外同胞面临排华危机，非常有启发。文贵先生唯真不破的正道主义，正是和约瑟一样，需要我们有坚固信靠神的心、唯真的心，真诚地帮助各国。我们所要做的就是传播病毒疫苗的真相，唤醒所在国家的民众，告诉他们病毒和疫苗的解药，拯救他们的生命。这样我们才能在共产党制造的灾难中，减少各国民众对华人的误解和仇恨，化解排华。
+
+爆料革命一定会在神的指引下，拯救各国的人民，拯救我们的民族，让海外华人像雅各家族一样，被信任和尊重，顺利度过当下史无前例的排华危机。
+
+2021年11月29日
+
+（本文仅代表作者个人观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1.jpg)
+
+*编辑 /校对*：德州牛仔
+
+*发稿：Yuki*jiang
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

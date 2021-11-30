@@ -2,34 +2,76 @@
 ---
 
 
-## 新变种病毒Omicron 到达北美
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1706573/)
+## 中共的杀富“济贫”是依法抢劫
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1706611/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-43.png)图片来源：雅典娜农场设计组
-翻译：楞次
-编辑：楞次
+[https://gtv.org/video/id=61a49b3b3ff6481adce5e566](https://gtv.org/video/id=61a49b3b3ff6481adce5e566)
 
-加拿大已经确认了两例Omicron变种患者，尽管目前尚不清楚它是否比其他变体更具危险性，拜登总统还在权衡美国将如何应对这个严重变异的Covid-19变体。
+**郭文贵
+Miles Guo**
 
-“今天，安大略省已确认渥太华发生了两例COVID-19的Omicron变体病例，这两例病例都来自最近从尼日利亚过来的旅行者”*。*安大略省政府周日在一份声明中表示。
+你让我发自内心地说，马云绝不应该是如此
+let me say from the bottom of my heart, Jack Ma should never be treated like this
 
-加拿大已经对过去两周访问过七个南部非洲国家的外国旅客禁止飞行而且关闭边境，但安大略省卫生官员克里斯蒂娜·埃利奥特（Christine Elliott）和基兰·摩尔（Kieran Moore）呼吁采取更严厉的方法来抵制这个变种。
+柳传志也不罪该如此，他女儿滴滴也不应该罪该如此
+Liu Chuanzhi should not deserve such a sentence, nor should his daughter’s Didi deserve such a sentence
 
-“我们继续敦促联邦政府采取必要措施，强制要求所有旅行者进行到达点测试，无论他们来自哪里，”他们说。 安大略省的病例是北美首次报告的Omicron感染，尽管白宫冠状病毒顾问Anthony Fauci博士表示，如果新变种已经出现在美国，他也”不会感到惊讶”。
+那么这本质和这交易所是什么关系，它是一场大掠夺的开始
+So what does this essence have to do with this exchange? It is the beginning of a great plunder
 
-美国没有禁止来自非洲的航班，但禁止在过去14天内去过那里的外国人入境。拜登总统周日亲自会见了福奇，起草了有关美国政府抗疫应对措施的最新情况，预计将于周一宣布。
+它是共产党的杀富济贫，什么叫作共享财富，就是杀富济贫嘛
+It is the Communist Party’s killing the rich and helping the poor, what is meant by sharing wealth? It is just killing the rich and helping the poor
 
-由于担心新变体可能对现有疫苗具有抗药性，Fauci在多次采访中坚持认为接种疫苗和加强剂仍然是最好的防御措施。
+它关键是，是不是杀富济了贫，贫的会更贫，富的会没有
+The key point is whether you can help the poor by killing the rich, the poor will become poorer, and the rich will not exist
 
-与此同时，墨西哥当局称旅行限制和边境关闭”不是很有用的措施”，称这些措施”影响国民的经济和福祉”大于有助于遏制病毒传播。世界卫生组织还警告各国不要关闭边境和”不必要的侵入性”限制，以防止”对生命和生计造成沉重负担”。
+只有共产党会富有，就像杀掉200多万个地主
+Only the Communist Party will be richer, like killing more than 2 million landloads
 
-发布：Peter Xin
+中国人最后文化大革命，大跃进，死了将近8千万到1亿人
+In the end of China Cultural Revolution, the Great Leap Forward, killed nearly 80 million to 100 million people
 
-**更多****资讯****，****请关****注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+而且土地尽归共产党，到今天都是共产党的
+And the land is all attributed by the Communist Party, and it’s still owned by the Communist Party today
+
+然后你现在你还没有土地产权，让你纳房地产税
+And the people still don’t have land property right now, and they have to pay real estate tax
+
+这一场革命所谓的杀富豪分土地，从所有的开始它叫依法抢劫
+The so-called killing of the rich and dividing the land in this revolution is called robbery according to law from the beginning
+
+这话是谁先说的，我告诉你，这最早是王沪宁给习说的
+Who said this first? let me tell you, it was first said by Wang Huning to Xi
+
+我们不能再杀地主分田地了
+We can no longer kill landlords to divide lands
+
+但我们会通过市场行为,合法地将财富来个均贫富，这是王沪宁的原话
+But CCP will legally equalize wealth of the rich and the poor through market behavior, this is the original words of Wang Huning
+
+啥时候说的2006年，那时候王沪宁牛着呢
+When did he say it? that was 2006, at that time Wang Huning was pretty powerful
+
+**原视频链接**:[https://gettr.com/post/phybfv5cb6](https://gettr.com/post/phybfv5cb6)
+
+Date:11/27/2021
+原视频标题: 中共的杀富“济贫”是依法抢劫
+The CCP’s “killing the rich and helping the poor” is a robbery in accordance with the law
+原视频日期：2021/11/24
+原视频链接https://gettr.com/post/phybfv5cb6
+任务编号：KC292(3026)
+视频时间段 : 0:00-1:30
+
+中听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
