@@ -2,41 +2,40 @@
 ---
 
 
-## 八旬老人向逝去亲人的哭诉:我们的处境比日本时期还难受
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1708280/)
+## 众议院将很快推进《美国创新与竞争法案》
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1708407/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/捕获2_副本-1.png)
-每一个当下都是未来的历史，每一个当下都是历史的延续，而一位八旬老人面对苍天的哭诉——“他们政府是个大骗子，骗了我们喽，可把我们骗苦喽！我们没有活路喽！我这一见穿着黑衣裳的我就哆嗦哟！我就哆嗦哟！”也正是当下的历史。
+整理报道：七彩光
+![](https://assets.gnews.org/wp-content/uploads/2021/11/static.politico.com_.jpg)图片来源：政客
+11月29日，《新闻极限》引述《政客》周日的报道，指众议院将很快推进参议院多数党领袖查克·舒默（Chuck Schumer）2500亿美元的《美国创新与竞争法案》（USICA）。6月份，该法案在两党的支持下于参议院通过。
 
-据[**l****海阔天空**](https://gettr.com/user/beyond11)@Beyond11[发表于 1:19 下午 · 11月 30日, 2021](https://gettr.com/post/pi9w99e6a8)发布的盖特——
+由于微芯片的缺乏伤害了全球汽车制造商、电话生产商和家电制造商，这项立法于5月份进入公众视野，旨在挑战中共国日益增长的全球影响力，
 
-别样的悼念： 80岁老人向南京牺牲的抗日英雄哭诉痛斥： 爷爷 我们被骗了。政府是个大骗子。比日本时期还狠。不让我们出入。把我们一辈子的心血全骗了。 你没想到这个结局吧！？他们比日本人还坏！ 转
+对此，中国共产党的官员愤怒地叫嚣，如果该法案成为了法律，中共国将进行报复，但却没有详细说明将从哪些方面采取行动。
 
-让我们一起聆听老人的哭诉——
+有专家告诉《政客》，中共国可以使用的报复手段，包括故意扰乱美国制造商的零部件进口供应和遏制中共国对美国出口产品的购买。
 
-爷爷、叔叔、大哥，今天是日本鬼子南京大屠杀纪念日，爷爷你也知道，你的孙子已经八十多岁了，把全部的心血买的镇政府的房，为的是在这安度晚年，可是到现在也是他们又来拆我们的房，不让我们住，现在我们的处境比日本时期还难受！我们没有人身自由，不让我们出入，你们为抗日战争牺牲的全体将士们，你们的在天之灵保佑我们，不能让他们把我们砸死，我已经八十多岁，可能要死在自己的人手里，我这一辈子的心血呀！我这一辈子的心血都投在这里了，他们政府是个大骗子，骗了我们喽，可把我们骗苦喽！我们没有活路喽！我这一见穿着黑衣裳的我就哆嗦哟！我就哆嗦哟！……唉！死了也值了！上辈人，为抗日战争，献出了生命，抛头颅洒热血，你们不知道………
+彼得森国际经济研究所高级研究员玛丽·洛夫利(Mary Lovely)说：“中国现在没有多少可以不损害自身而只损害美国的报复手段，但通过减少电动汽车的战略投入，将是一个可能的报复途径。由于美国的政策方向大体已经确定，因此中国领导人认为西方正在减少对中国的依赖，从而中国可以利用这些供应链来施加伤害，而增加中国供应的不确定性却不会对中国造成过大的损失”。
 
-撰稿：喜马拉雅的肉夹馍
+文章报道，《美国创新与竞争法案》是将多个针对中共国的法案整合为一项立法。例如，一项名为《无尽边界法案》的法案被纳入舒默的法案中，该法案旨在新兴技术方面“超越中国”。该法案由来自印第安纳州的参议员托德·扬（Todd Young）提出。扬告诉《政客》，“鉴于我们的相互依赖性，不可能在短期内使得美国企业和消费者完全不受中共国报复的影响。最终，通过《美国创新与竞争法案》，确保美国在这些关键领域的领导地位，是我们能够在长期使我们的企业和消费者免受影响的最佳方式……这要求我们在短期内承担一些风险”。
 
-审核：喜马拉雅的馍夹肉
+此外，《政客》报道，《美国创新与竞争法案》将为各类企业注入数十亿美元的纳税人资金，这些企业包括半导体制造业，以及“购买美国货”要求所涉及到的联邦资助的基础设施项目。
 
-校对：Maarago
+该项法案还涉及到中共国的威胁，包括国家行为的知识产权盗窃和恶意网络攻击。同时，该法案还将禁止政府机构购买中共国制造的无人机，以及禁止政府硬件用来下载中国社交网络视频平台抖音（TikTok）。
 
-（文章内容仅代表作者个人观点）
+对此，一些美国商界人士认为，如果该法案成为了法律，中共国的报复行为是不可避免的。正如一位商业组织代表所说：“中共正在变得咄咄逼人、更具侵略性……他们将不惜一切代价来赢得胜利”。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+**新闻来源**
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+[Schumer’s ‘Innovation Act’ Angers China](https://www.newsmax.com/newsfront/china-schumer-innovation-act/2021/11/29/id/1046539/)
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+发布：七彩光
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多****资讯****，****请关****注：**
+[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
