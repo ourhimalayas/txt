@@ -2,33 +2,31 @@
 ---
 
 
-## 疑涉及新疆强迫劳动 法国Zara遭禁止扩店
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1708597/)
+## 拜登曾表示希望日本防卫费增加以遏制中共
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1708599/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/F5704625-D066-4DE3-B0AF-C208F69A774D_w1023_r1_s-7.jpg)图片来自：德国之声
-据德国之声中文网11月30日报道，法国一间Zara服饰店的扩店计划遭地区委员否决，法国官员29日称Zara母公司Inditex可能涉入新疆强迫劳动。今年6月，法国司法单位就开始调查Zara等4家时尚品牌，称他们涉嫌从强迫维吾尔族劳动中获益。法媒称，这是法国检警单位第一次针对维吾尔人权迫害议题展开行动。
+作者：东京樱花团—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+外媒11月27日消息，日前美国政府人士透露，美国总统拜登在10月上旬与日本首相岸田文雄的会谈中表示，希望日方能增加防卫费用。因美国政府需要遏制作为唯一竞争对手的中共，希望日本在安全领域能够负担更多。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/20211005053326987.jpeg)图片来源：阿波罗网
+岸田在当选首相之前，就表示防卫费不应该被数字束缚。而拜登基于岸田的发言，对日本切实推进防卫力调整表示了期待。
 
-新疆棉花产量占全世界棉花供应量的五分之一，是国际时尚产业的重要原物料供应地。而这次遭指控的四间企业包含了Zara的西班牙母公司Inditex丶日本迅销（Fast Retailing）旗下的法国Uniqlo公司丶法国时装集团SMCP以及美国运动鞋品牌Skechers。
+据悉，日本防卫费在2016年首次超过5万亿日元，2021年加上补充预算则达到6万亿日元，很有可能超过GDP的1%。有意见认为，如果实现首次美日首脑会谈，日本增加防卫费用一事将成为主要议题。
 
-反对扩建的委员会成员阿兰·卡尼尔（Alain Garnier）表示，这是该委员会的一个政治决定。“通过阻止那些无法充分掌控自家供应商的商店进行扩张，我们希望发出一个强烈的信号。”另一位委员桑德琳·雅科托（Sandrine Jacotot）也表示，因涉嫌新疆强迫劳动，Zara的项目违反了委员会考虑的可持续发展标准。
+参考链接：[独家：拜登曾向岸田表示期待日本防卫费增额](https://china.kyodonews.net/news/2021/11/ec4ff208fa1d.html)
 
-Inditex当时否认这项指控，并在一封公开声明中表示：“在Inditex，我们对一切形式的强迫劳动持零容忍态度。我们也制定了相关政策和规定，确保这件事情不会出现在我们的供应链之中。”
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-新闻参考链接：
+总编：正义的小新
+编辑/校正/发稿：呼吸的雾霾（文小呼吸）
 
-[疑涉及新疆强迫劳动 法国Zara遭禁止扩店](https://www.dw.com/zh/%E7%96%91%E6%B6%89%E5%8F%8A%E6%96%B0%E7%96%86%E5%BC%BA%E8%BF%AB%E5%8A%B3%E5%8A%A8-%E6%B3%95%E5%9B%BDzara%E9%81%AD%E7%A6%81%E6%AD%A2%E6%89%A9%E5%BA%97/a-59974682)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

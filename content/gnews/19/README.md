@@ -2,52 +2,22 @@
 ---
 
 
-## 运油20首次参与27架中共军机扰台，台外长表示绝不屈服于中共压力
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1708718/)
+## 路透社：11月19日荷兰已出现不明来历奥米克戎病毒
+` 丁过` [轉載自GNews](https://gnews.org/zh-hans/1708722/)
 
-作者：纽约香草山医疗部—云豹
+#### 温哥华农场 向真
+![](https://assets.gnews.org/wp-content/uploads/2021/11/RTX7O413.jpg.jpeg)来源：半岛电视台
+据路透社11月30日报道，荷兰政府卫生官员30日表示，“我们在11月19日和11月23日的两个病例测试样本中发现了奥米克戎 （Omicron）中共病毒变体”。荷兰国家公共卫生研究所(RIVM)证实了以上消息，并称“目前还不清楚这些人是否去过非洲南部”。
 
+也就是说，在11月26日从南非约翰内斯堡和开普敦飞抵荷兰的两个航班上发现至少有14人感染了Omicron病毒变体之前，荷兰已存在Omicron变体感染病例。
+![img](https://media.gettr.com/group34/origin/2021/08/26/16/bf2713ff-0091-6b60-4d79-39681516bf40/aba01548012a37b3e1c22dcdf15a3ce7.jpg)来源：Gettr
+新中国联邦创始人郭文贵先生在11月19日的直播中指出，中共即将在非洲释放新的病毒，然后和西方关系较为密切的南非就出现了初步确定传染性更强的Omicron病毒。
 
+此前郭先生根据可靠情报曾经发出警告，中共将在非洲和美国西部放毒。而荷兰出现不明来历的Omicron病毒，说明中共极有可能正在全球范围内多点放毒和释放多种病毒！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-768x103-9.jpg)
+参考来源：
 
-
-
-当地时间11月28 日晚上，台湾国防部公布当天总共有27架中共军机，分别侵扰台湾西南及东南防空识别区。特别要留意的是，首次有运油20机加入扰台机队。台湾外交部长吴钊燮对此表示，“我们永远不会屈服于中共的压力！永远、永远、永远不会！”
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2000x1191_0673345042318.jpg)图片来源：国防部网页mnd.gov.tw
-当天侵扰台湾东南空域的有3组共机，分别为2架空警500、及1架运9通信对抗机。5架轰6、及4架歼10。1架运油20、及2架歼16。另外侵扰台湾西南空域的为1组共机，包括4架歼11、2架歼10、及6架歼16。
-
-研究中共军力的学者林颖佑表示，运油20的空中加油能力可以延伸中共军机的打击航程，并深入台湾东南方，势必对台湾的防卫造成影响与压力。
-
-前台湾空军副司令张延廷中将表示，“这是有计划、有步骤的演练，包含整个作战模式。”中共若要对台作战，必须先透过电战机掌控电磁权，接续再透过轰6、歼10、歼16等掌握制海及制空权。因此，运油20将会在巴士海峡一带形成空中加油走廊，替歼16战机进行加油，以达“战机掩护加油机，加油机替战机加油”的目的。 张延廷建议，台湾必须从中共整个用兵模式理清中共的企图与能力，从中了解弱点，并强化战力的保存与防护。
-
-参考链接：
-
-[學者：運油20服役建遠征型空軍 台空防壓力倍增](https://www.cna.com.tw/news/firstnews/202111280185.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-
-[27架共機擾台 吳釗燮：台灣永不屈服中共壓力](https://www.cna.com.tw/news/aipl/202111280202.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-12.jpg)
-
-编辑/校对/发稿：兰兰
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-768x103-10.jpg)
-
-
+[荷兰当局称11月19日检测样本已出现Omicron变体踪迹](https://cn.reuters.com/article/netherland-covid-omicron-1130-idCNKBS2IF0XA)
 
  
 

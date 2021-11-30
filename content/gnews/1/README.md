@@ -2,49 +2,54 @@
 ---
 
 
-## 推特（Twitter）创始人杰克·多尔西(Jack Dorsey)辞去CEO一职
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1708921/)
+## CDC以Omicron变体为由催打加强针
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1708934/)
 
-**【译者按】**郭*文贵先生三年前曾经拥有推特账户，而且一个星期内就有40万的关注，然而推特很快就封掉了文贵先生的账户；2020年4月，Twitter封了Steve Bannon先生的平台WarroomPandemic账号；2021 年 1 月，Twitter决定永久封禁时任总统川普的推特账号；2021年7月，新西兰一位学者在嘲讽中共党魁之后，推特限制了她的账户；此外，Twitter也封禁了无数新中国联邦战友的账户……Twitter的种种恶行或许可以用文贵先生在2020年12月4日的直播来解释“Twitter所有打的算盘，就是中共答应把中国的搜索和所有的整个中国市场对其全面开放，然后让Twitter作为中共的数字人民币的承销商”。Twitter想成为世界媒体老大，如今来看，简直就是痴心妄想。*
+翻译：**Lulumi**
 
-据《大纪元》记者Jack Phillips，2021年11月29日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-982-e1638292826803.png)Twitter 首席执行官兼 Square 联合创始人兼首席执行官 Jack Dorsey 于 2021 年 6 月 4 日在佛罗里达州迈阿密的 Mana 会议中心参加了加密货币会议《2021年比特币大会-Bitcoin 2021 Convention。
-图片来源：Marco Bello/AFP via Getty Images
-**据Twitter称，该公司CEO兼联合创始人 Jack Dorsey 将卸任这家社交媒体公司的首席执行官，并将由首席技术官帕拉格·阿格拉瓦尔（Parag Agrawal） 接任，立即生效。**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-54.jpg)2021年11月4日，美国疾病控制和预防中心主任罗谢尔·瓦伦斯基在华盛顿的国会山。(Chip Somodevilla/Getty Images)
 
-“我已经决定离开 Twitter，因为我相信公司已经准备好离开它的创始人继续前进” 。多尔西在2006年帮助创立了Twitter，他在11月29日发布的一份声明中说， “作为 Twitter 的 CEO，我对帕拉格非常信任。他在过去 10 年的工作具有变革性。我对他的技能、心灵和灵魂深表感谢。现在是时候让他（帕拉格）来领导Twitter”。
+美国疾病控制和预防中心（CDC）周一更新了关于COVID-19疫苗接种的建议，说现在每个18岁及以上的人“都应该接受加强针注射”。
 
-该公司发布的一份声明称，阿格拉瓦尔已在 Twitter 工作了十多年，自 2017 年以来一直担任首席技术官。
+由CDC主任罗谢尔·瓦伦斯基博士宣布的这一更新，引用了最近出现的中共病毒Omicron变体。
 
-根据Twitter的声明，这家总部位于旧金山的公司，其董事会一致批准阿格拉瓦尔担任CEO。 该公司表示，多尔西也是支付公司 Square 的CEO，他将继续担任 Twitter 董事会成员，直到明年任期届满。
+瓦伦斯基在一份声明中说：“ CDC正在更新关于COVID-19疫苗接种的建议：每个18岁及以上的人都应该接受加强针注射。”我们还需要进一步了解Omicron变体，但我们知道，COVID-19疫苗是我们避免严重疾病和住院的最佳工具。”
 
-在宣布离职之前，多尔西于 11 月 28 日在社交媒体平台上写道，“我喜欢Twitter”。此外，关于自己的离职，多尔西还发布了一封致 Twitter 员工的电子邮件。
+她补充说：“Omicron变体的出现进一步强调了为防止COVID-19所需的疫苗接种、加强针和预防工作的重要性。我强烈鼓励尚未接种疫苗的4700万成年人尽快接种疫苗。”
 
-** “这是我自己的决定”，多尔西写道，“这对我来说很难过” 。**
+根据CDC的网站，从周一开始，每个18岁或以上的人在完成其主要的辉瑞-生物科技公司或莫德纳COVID-19系列疫苗接种后至少6个月，或完成其主要的强生公司的COVID-19系列疫苗接种后至少2个月，“应该接受加强针接种”。
 
-此外，Bret Taylor接替了前任Patrick Pichette，被任命为董事会的新主席，后者将继续留在董事会，并继续担任审计委员会主席。
+人们可以选择“任何一种COVID-19疫苗作为他们的加强针”。
 
-现年45岁的多尔西在2020年曾面临“逼宫”，当时Twitter的股东埃利奥特管理公司(Elliott Management)试图取代他的CEO职务，因为埃利奥特管理公司的创始人保罗·辛格(Paul Singer)曾质疑多尔西是否应该同时职掌两家上市公司（Square和Twitter），呼吁他辞去其中一间公司的CEO职务。
+“有些人可能更喜欢他们最初接受的疫苗类型，而其他人可能更喜欢接受不同的加强针。CDC现在的建议允许这种混合和匹配剂量的加强针”该网站说。
 
-2006年，多尔西与诺亚·格拉斯(Noah Glass)、比兹·斯通(Biz Stone)和埃文·威廉姆斯(Evan Williams)共同创立了Twitter，此后多尔西一直担任该公司的CEO，直到2008年被解职。2015年，前CEO迪克·科斯特罗(Dick Costolo) 卸任后，多尔西重新担任该公司的CEO。
+“接种COVID-19疫苗后，你可能会遇到副作用，”网站上说。“这些是你的身体正在建立对COVID-19的保护的正常迹象”。
 
-**2021 年 1 月，Twitter决定永久封禁时任总统川普的推特账号，此举让多尔西受到保守派和言论自由支持者的严厉批评。当时，多尔西也承认“这个时刻可能需要这种行为，但长期而言，此举将破坏开放互联网的崇高目标和理想”。**
+加强针与目前在美国上市的COVID-19疫苗的配方相同。
 
-**多年来，多尔西一直与Facebook首席执行官马克·扎克伯格以及谷歌的高管一起出现在电视直播的国会听证会上。在听证会上，他们会被问及，他们的平台是否对所谓的虚假信息的传播负有责任，或者平台是否在积极压制与主流大众相反的观点。**
+接受莫德纳COVID-19疫苗的人将只接受初级疫苗系列中的一半剂量。
 
-11月29日，Twitter的股价收盘时下跌了近3%。
+据CDC称，人们在接受加强针后报告的反应“与两针或单剂量初级系列的反应相似”。该机构表示，人们可以使用v-safe，一个基于智能手机的工具，告诉CDC任何副作用。
 
-原文连接：[https://www.theepochtimes.com/twitter-founder-jack-dorsey-steps-down-as-ceo-effective-immediately\_4128818.html?slsuccess=1](https://www.theepochtimes.com/twitter-founder-jack-dorsey-steps-down-as-ceo-effective-immediately_4128818.html?slsuccess=1)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-2-18.jpg)2021年11月29日，总统乔·拜登在华盛顿白宫罗斯福厅就名为Omicron的中共病毒COVID-19变体发表讲话时回答了一个问题。(AP Photo/Evan Vucci)
 
-翻译&评论：洛杉矶盘古农场 – 比格渣餐厅老板の娘
+美国总统乔·拜登周一称Omicron变体是一个值得关注的问题，但“不是恐慌的原因”。他说，他预计不会有任何封锁，但敦促美国人全面接种疫苗，包括打加强针，在公共场合也要在室内戴口罩。
 
-校对&编辑：洛杉矶盘古农场 – 小象の奶瓶
+此前，CDC说，那些65岁及以上的人，以及18岁及以上的人，如果有潜在的医疗条件，生活在长期护理环境中，或在高风险环境中工作或生活，应该接受加强针。
 
+除非涉及**“**故意不当行为**”**，否则疫苗制造商对任何不良反应都是免责的。
 
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
+法律规定，注射中共病毒COVID-19疫苗的医疗机构必须向美国卫生与公众服务部主办的疫苗不良事件报告系统（VAERS）报告任何严重的不良反应或疫苗接种错误。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+参考资料：[theepochtimes][CDC Pushes Booster Shot for All Adults, Cites Omicron Variant](https://www.theepochtimes.com/cdc-pushes-booster-shot-for-all-adults-cites-omicron-variant_4129715.html)
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-2.jpeg)
 
  
 
