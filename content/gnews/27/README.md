@@ -2,33 +2,30 @@
 ---
 
 
-## 中共出新法将提供“翻墙”服务入罪
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1708727/)
+## GTV新闻访谈简报|2021年11月30日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1708821/)
 
-撰稿：东京樱花团/天路天道
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5-18.png)
-图片源自网络
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-768x103-11.jpg)
 
-据“新唐人”11月30日消息，中共网信办近日公开一份《网络数据管理草案》，其中规定个人和组织不得提供翻墙工具和相关服务，否则将受严惩。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-31.png)
+文章仅代表作者本人观点，与Gnews无关
 
-草案中一些比较敏感的条款规定值得关注。
+视频参看：2021.11.30早GTV新闻访谈
 
-例如，草案中第41条规定：“国家建立数据跨境安全网关，对来源于中华人民共和国境外、法律和行政法规禁止发布或者传输的信息予以阻断传播。任何个人和组织不得提供用于穿透、绕过数据跨境安全网关的程序、工具、线路等，不得为穿透、绕过数据跨境安全网关提供互联网接入、服务器托管、技术支持、传播推广、支付结算、应用下载等服务。境内用户访问境内网络的，其流量不得被路由至境外。”
+[https://gtv.org/broadcast/watch/61a626ff44c1fe7a6c3bf4d4](https://gtv.org/broadcast/watch/61a626ff44c1fe7a6c3bf4d4)
 
-第66条又规定：“个人和组织违反第41条的规定，由有关主管部门责令改正，给予警告、没收违法所得；拒不改正的，处违法所得一倍以上十倍以下的罚款，没有违法所得的，对直接负责的主管人员和其他直接负责人员，处5万元以上50万元以下罚款；情节严重的，由有关主管部门依照相关法律、行政法规的规定，责令其暂停相关业务、停业整顿、吊销相关业务许可证或者吊销营业执照；构成犯罪的，依照相关法律、行政法规的规定处罚。”
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-正如网友反呛“要抓先抓胡锡进”一样，中共只准自己“翻墙”，不许百姓上外网。由此也表明中共真正恐惧的就是老百姓了解真相，更怕越来越多老百姓了解爆料革命和新中国联邦。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-13.jpg)
 
-信息来源：
-
-[强化信息封锁 中共推新法欲正式将“翻墙”入罪](http://cn.ntdtv.com/gb/2021/11/29/a103280748.html)
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht-1-1.png)
-
-
-
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

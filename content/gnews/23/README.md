@@ -2,26 +2,26 @@
 ---
 
 
-## 密苏里州法官裁定终止强制医护人员接种疫苗的行政命令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1708823/)
+## 文贵警告：警惕世界经济的大崩溃
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1708851/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月29日，密苏里州东区法院的法官马修·斯库尔普颁布了一项裁决，阻止了拜登政府要求医护人员接种COVID-19疫苗的行政令。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-30-下午11.50.45.png)
-此前，密苏里州检察长埃瑞克-施密特，与内布拉斯加、阿肯色、堪萨斯、爱荷华等九个州的检察长联合发起了这项反对强制医护工作者接种疫苗的诉讼。
+作者：纽约香草山农场福音部 – 恩永存
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-977.png)
+11月28日，郭文贵先生通过盖特视频警告世界：中共正在全球释放病毒，意在限世界经济于大崩溃之中。
 
-斯库尔普法官在裁决中表示：“医疗保险和医疗援助中心CMS”所制定的法规，既没有得到国会的批准，也没有设定标准的公众评议期。同时CMS并没有提供有效的证据，证明疫苗接种状态直接影响到医疗设施中的中共病毒的传播。他强调，“CMS试图超越国家传统权威领域，要求以联邦命令支配数百万美国人的私人医疗决定，这种行动挑战了传统联邦制的概念。”
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide1-24.jpeg)
 
-截止11月下旬，美国已有半数以上的州针对拜登政府的疫苗强制令进行了法律诉讼。
+郭先生表示，当病毒在世界再次爆发时，各国会闭关锁国，物资紧缺，供应链必定断裂，导致经济大崩溃，随之而来的是社会动荡。独裁政府因经济破产，为转移政治危机，一定会制造种族矛盾、社会安全事件，控制媒体和舆论，把一切过错都推给民众，找替罪羊，以及发动局部战争。与中共勾兑的华尔街人现在比谁都害怕，惶惶不可终日。
 
-参考链接：[Judge Blocks CMS Vaccine Mandate for Healthcare Workers in 10 States](https://www.newsmax.com/us/vaccine-mandates-osha-healthcare-workers/2021/11/29/id/1046600/)
+郭先生再次提醒新中国联邦人，一定要团结在一起，共同渡过即将到来的人类世纪大灾难。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+参考链接：[https://gettr.com/post/pi9mpi52e6](https://gettr.com/post/pi9mpi52e6)
 
-总编：Zion文恩
-编辑：文徬
-校正/发稿：呼吸的雾霾（文小呼吸）
+![This image has an empty alt attribute; its file name is 11月小图-1.png](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+
+总编：文恩
+编辑：文真
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -30,6 +30,8 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
