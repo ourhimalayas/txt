@@ -2,41 +2,34 @@
 ---
 
 
-## 2021/11/29 文贵先生盖特精要
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1708516/)
+## 推特CEO辞职
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1708527/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-976.png)[盖特直播链接](https://gettr.com/post/pi9mpi52e6)
-世界真地发生大变了，所有情报的变化都与新病毒有关。非洲放毒是一方面，利用非洲打击欧洲，美国西部其实已经有了，从西到夏威夷，从西到南美的整个辐射，再从西到东，覆盖到美东不会超过感恩节后的48小时，同样的时间新病毒也会到达加拿大。
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月29日，杰克·多西发布了辞职公开信，辞去推特首席执行官一职。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/CEO.jpg)
+推特股价在开盘前上涨12%。消息人士称，推特股价上涨是因为市场认为多西的辞职标志着很快将出现对推特的并购案。但相反意见则认为，推特面临铺天盖地的诉讼和天文数额的赔偿，前景黯淡。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/CEO-1.jpg)
+近年来，以推特、脸书为首的“硅谷大科技寡头”无视美国宪法第一修正案，打压自由言论，利用有政治或利益倾向的言论审查禁言、删帖，直到永久封号。推特因此官司缠身，多西多次被国会传唤参加听证会。分析人士称，多西辞职有利于他从争议和诉讼中脱身。
 
-新病毒的肆掠产生的效果肯定和世界经济紧密相联。原本全球化的经济模式再次受到新疫情的打击，各国陷入闭关隔离的状态，经济会有多糟糕，那些流氓政客只想着利益，只要没钱、没了权力就装不下去了… 全世界的独裁玩得都是同样的套路，先潜伏、当副手、爱人民、最后都是把老大干掉；然后许诺给人民自由法治；最后兑现不了，饥饿；就开始发动种族矛盾、政治矛盾、社会阶级矛盾，社会安全事件；让大家闭嘴。国家权力开始膨胀，控制媒体，控制人的言论；控制银行，控制人们的钱袋子；控制法院，控制人们捍卫正义的权利；最后建立秘密部门控制人们的人身自由，甚至搞暗杀；同时给人们洗脑，告诉人们你个人的财富是国家的，你个人的身体是国家的，国家却是我个人的，这就是所谓的家天下，也就是独裁体制。这个时候一定伴随着大饥荒、经济衰退、种族矛盾、社会动乱以及各种矛盾，最后发动战争。
+参考链接：
+1) . [Jack Dorsey Steps Down As Twitter CEO, Chooses Parag Agrawal As Successor](https://www.zerohedge.com/technology/jack-dorsey-step-down-twitter-ceo-cnbc-reports)
+2) . [Twitter CEO Jack Dorsey Steps Downhttp](https://www.newsmax.com/newsfront/dorsey-twitter-stepping-down/2021/11/29/id/1046527/)
 
-所有产生的问题和坏结果以及承担的责任都推给老百姓或找一些特定的替罪羊，政府永远英明，永远没有问题也不会有任何错。就像打疫苗一样，打了两针不管用，要打第三针。政府最终做了独裁者，所有的矛盾推给替罪羊。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
 
-即将到来的全球性经济危机所带来的风险是让每个国家都不安全，每个人的日子都不好过。比尔盖茨，华尔街他们做得恶，他们都清楚。共产党的下场会像卡扎菲、萨达姆一样，其实早就已经就结束了，主要看是以一种什么方式，什么时间。
+总编：AN
+编辑：文真
+校正/发稿：Fei797
 
-司马南、方舟子这些祸害攻击柳传志这两天引起整个体制内人们的众怒，很多人为私人企业家像马云、马化腾、马明哲等打抱不平，强调这是体制的原因导致的，而非个人的问题；还有对疫苗，很多人提出的反对的声音，为什么只有这几家企业垄断了疫苗，因为背后股东全是你们中南坑的家人；张高丽玩弄彭帅事件惊动世界，把一个国家所谓政治奥运都给毁掉了，共产党想把全世界都变成强奸犯，最后发现自己才是彻彻底底的流氓。
-
-王岐山很聪明，因为他知道萨达姆、卡扎菲、乌干达的阿明、斯大林、希特勒这些人是怎么篡权上台的。习难道不知道吗？所以习必须灭王！
-
-一个好的体制可以让人变得优秀，反之，一个坏的体制可以让人变得愚蠢邪恶，中共就是劣币驱逐良币，把良币变成劣币。我们新中国联邦让人们脱离了共产党的魔爪，人们一旦醒脑、开智、懂得辨真假和是非后都是人中龙凤，这也是我们要灭共产党的主要原因。
-
-*听写：阿甘*
-
-*校对: 小雨*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

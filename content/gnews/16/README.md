@@ -2,31 +2,29 @@
 ---
 
 
-## 拜登曾表示希望日本防卫费增加以遏制中共
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1708599/)
+## 中非论坛开幕 ，习近平再撒币
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1708605/)
 
-作者：东京樱花团—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-外媒11月27日消息，日前美国政府人士透露，美国总统拜登在10月上旬与日本首相岸田文雄的会谈中表示，希望日方能增加防卫费用。因美国政府需要遏制作为唯一竞争对手的中共，希望日本在安全领域能够负担更多。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/20211005053326987.jpeg)图片来源：阿波罗网
-岸田在当选首相之前，就表示防卫费不应该被数字束缚。而拜登基于岸田的发言，对日本切实推进防卫力调整表示了期待。
+撰稿：子喜太一
+![](https://assets.gnews.org/wp-content/uploads/2021/11/121A.jpg)图片制作：澳喜农场©森森
+2021年11月29日，中非论坛第八届部长级会议开幕，习近平以视频方式出席并讲话。除了一些冠冕堂皇的大空话之外，重点是向非洲无偿援助6亿剂疫苗，年底到期未还的无息贷款继续从国际货币基金组织提款100亿美元转借给非洲，未来3年从非洲进口总额力争达到3000亿美元，还特别强调了非洲27亿人的磅礴力量！
 
-据悉，日本防卫费在2016年首次超过5万亿日元，2021年加上补充预算则达到6万亿日元，很有可能超过GDP的1%。有意见认为，如果实现首次美日首脑会谈，日本增加防卫费用一事将成为主要议题。
+习近平在中非论坛的表态三个目的，一个结果！
 
-参考链接：[独家：拜登曾向岸田表示期待日本防卫费增额](https://china.kyodonews.net/news/2021/11/ec4ff208fa1d.html)
+目的一：习近平虽然不敢迈出国门，但是也很想让世界知道自己多么强大，多么有实力，是真正的世界之王！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+目的二：让美国和欧洲看看，别想孤立我，非洲还有27亿穷兄弟支持我，想看我笑话，不可能！
 
-总编：正义的小新
-编辑/校正/发稿：呼吸的雾霾（文小呼吸）
+目的三：通过毒疫苗彻底控制非洲，用解药来要挟非洲，让非洲成为CCP的奴隶！
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+可惜的是，有爆料革命在，习近平的这些都只是痴心妄想，不可能实现，最终只有一个结果，非洲拿了钱就翻脸，全世界特别是欧美彻底看清CCP的野心，彻底放弃对CCP的一丝幻想，坚定、加快铲除CCP的步伐！
+
+共产党，无论你怎么表演，都只是一个小丑的滑稽剧，世界在觉醒，正义的力量在集结，共产党死亡之神已经抓住了你的衣襟，你完蛋了！
+
+新闻参考链接：
+
+[联合新闻网](https://udn.com/news/story/7331/5925651)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/TA1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
