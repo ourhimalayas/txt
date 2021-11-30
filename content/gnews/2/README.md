@@ -2,32 +2,196 @@
 ---
 
 
-## 【小雨专栏】在路上047——好吃篇
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1709264/)
+## 中共的股票完全是擀面杖子经济，是假的
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1709287/)
 
-加拿大温哥华扬帆农场   小雨
-![](https://assets.gnews.org/wp-content/uploads/2021/11/专栏图.png)
-村里家家都有自己的小菜地，感觉花样品种大同小异，夏天多是西红柿、黄瓜、西葫芦、辣椒、葱等等，秋冬天则是菠菜、萝卜、大白菜等。北方多面食，我们家早上多是小米粥、馒头、包子和小菜，中午多是各种面食，比如卤面、打卤面、汤面、手擀面等等，晚上以清淡为主。偶然也有吃米饭算是换换口味，一方水土养一方人，适合自己的就好。比如到西北宁夏吃当地的大米，出人意料的香甜可口；只是我们家比较中意面食，长大后经常到南方出差，妈妈总是念叨，南方每天吃米饭也太遭罪了，怪不得瘦人多，我每次听了总是哭笑不得。
+[https://gtv.org/video/id=61a64b9b3ff6481adce67f18](https://gtv.org/video/id=61a64b9b3ff6481adce67f18)
 
-印象中，小时候上课到最后一堂，基本上是坐不住的，肚子一直咕咕叫，回家大约有三里多地，铃声一响很多都是飞奔回家，好像这点距离根本没感觉，因此阴差阳错练就一身好长跑；每次到家基本都是满头大汗，家里无论做什么饭，永远都是风卷残云，都是好吃。
+大家現在要看到中国现在所有的股市
+Todos tienen que ver el mercado de las acciones de China en estos momentos
 
-因此从小吃饭快，反而觉得饭更香，长大后工作应酬，最怕一顿饭吃几个小时，应酬的时候好像很饱，什么都吃不进去，饭后其实还饿着肚皮；后来还观察发现，很多有吃饭快特点的多是苦孩子出身，当然也不能以偏概全。不过每次狼吞虎咽，奶奶总是笑骂，饿死鬼托生，慢慢吃，小心噎着。其实奶奶最喜欢看我们大口吃饭的样子，总说看不够，不停的问够不够，因此奶奶越是骂，我们越是我行我素，反倒没了奶奶的骂还不自在。
+11万多亿美元的市值
+Son más de 11 billones de dólares en valor de mercado
 
-后来到城里，除去信仰原因，听说吃饭还有很多忌口，还有人吃东西过敏，我就很惊诧，心想这绝对是吃饱撑着了，或者是饿的轻。现在想想我的观点是有些偏激，也可能是孤陋寡闻，不过我们小时候的确没见过有人吃东西过敏或有什么忌口，好像永远都是风卷残云，争先恐后盛饭，满头大汗吃饭，心满意足打嗝，简单的一顿饭吃得酣酣淋漓，是那么的知足，让做饭的妈妈每次都很有成就感。
+美国市值多少钱
+Cuánto es el de los Estados Unidos
 
-一顿饭而已，知足常乐其实就是那么简单。
+美国是它将近四、五倍的市值
+Estados Unidos es casi cuatro a cinco veces mayor que su valor del mercado
 
-小时候简单的生活经历，养成一个奇怪的习惯：吃的快、拉得快、行动快。比如拉得快，别人小便的时间，我已经提裤子结束战斗，奶奶总是骂我是直肠子。
+就这它也增长了20～30%
+Y así creció el 20-30%
 
-小时候家里虽然能吃饱，但很少肉类，因此小时候能吃上肉，就像过年一样稀罕。记得有一次邻家婶婶不知道什么原因，送了两只烧鸡过来，妈妈就把烧鸡放在盆里外出了。那天也很奇怪，就我一个人在家，禁不住烧鸡的诱惑，一会就过去扯一小块肉解解馋，又考虑到弟弟妹妹们，因此在内心剧烈纠结中，一只鸡就稀里糊涂进了肚子。
+共产党过去的3年
+El PCCh durante los últimos 3 años
 
-很多时候有了第一次，就会有第二次，可能也是惯性使然吧，想要自我打破惯性，其实是蛮难的。我是俗人，也是如此，吃了第一只鸡，自然就想着第二只，对于一个六、七岁的孩子来讲，虽然已经很饱了，但还是止不住自己的欲望，硬生生塞了两只烧鸡进肚。
+它的GDP 绝对是降的，不可能涨的
+Su PIB definitivamente está bajando, es imposible aumentar
 
-后来还是奶奶发现我躺在床上一动不动，被撑的不能自拔，一直说口渴要喝水，结果才发现小小年纪硬是吃了两只鸡，幸亏当时没有多喝水，否则后果不堪设想；吐也吐不出来，估计是不舍得吐吧，据说被撑地翻白眼。这个哭笑不得的经历成了我永远的痛，每次奶奶骂小孩吃饭，都会把我当年的糗事再复习一遍，此事也成了我们家永远的笑柄。
+它两样东西涨了
+Sus dos cosas aumentaron
 
-事后，奶奶再问我烧鸡好吃吗？我也懵圈了，小小年纪好像懂了贪心不足蛇吞象。过犹不及，有时候“过”比“不及”更可怕。
+股票涨了
+Las acciones aumentaron
 
-编审：  文敏     发布：文敏
+哇噻 那你股票哪来的啊
+Wow y de dónde vienen las acciones
+
+就是印发钞票
+De imprimir y emitir billetes
+
+M2 太厉害了
+El M2 es poderoso
+
+它过去仅仅今年和去年
+Anteriormente con sólo el año pasado y este año
+
+就干了40多万亿
+Hizo más de 40 billones
+
+就是降准
+Quiere decir bajar las reservas
+
+股市才涨多少
+Las acciones sólo aumentaron cuánto
+
+它涨了20～30% 十几万亿美元
+Él incrementó el 20-30%, decenas de billones de dólares
+
+它体现了市场多少呢
+¿Cuánto refleja el mercado?
+
+大概20万亿美元
+Alrededor de 20 billones de dólares
+
+那20万亿美元呢
+Y esos 20 billones de dólares
+
+没进入股市
+No entraron al mercado de valores
+
+那美国是多少钱呢
+Cuánto es eso en Estados Unidos
+
+将近20万亿美元
+Aproximadamente 20 billones
+
+大家永远不要忘了人民币这个本质
+Nunca olviden la esencia del RMB
+
+人民币叫什么 叫本币
+Cómo se llama el RMB, se llama moneda local
+
+人家美元叫什么
+Cómo se llama el dólar
+
+人家美元叫国际流通货币
+Al dólar se le llama moneda internacional
+
+叫流通法币，国际的是全世界认可
+Es denominada Moneda de Circulación Legal, es reconocida internacionalmente por todo el mundo
+
+人民币到今天来讲
+Hasta hoy hablando de RMB
+
+不是全世界认可的钱
+No es un dinero reconocido a nivel mundial
+
+不要搞错了
+No se confundan
+
+人民币在海外所有的（钱）叫做海外人民币，叫非本币
+La propiedad (dinero) del renminbi en el extranjero se llama renminbi en el extranjero, llamado moneda no local
+
+大概3万多亿美元
+Aproximadamente 3 billones de dólares
+
+就是全世界只认你这3万多亿美元的资产
+Significa que todo el mundo sólo reconoce sus activos de más de 3 billones de dólares
+
+现在已经变成2万亿了
+Ahora se ha convertido en 2 billones
+
+共产党今年所有的本币市场多印了20万亿人民币
+El PCCh imprimió 20 billones de RMB más en todo el mercado de moneda local de este año
+
+体现在股市的钱
+Reflejado en el dinero de las acciones
+
+那中国的GDP 不是说6%吗
+¿No dicen que el PIB de China es de un 6%?
+
+这几个数据放在一起
+Si juntas estos datos
+
+你再看看中国老百姓的通货膨胀和通缩指数
+Y luego miras el índice de inflación y deflación del pueblo chino
+
+特别是通货膨胀
+Especialmente la inflación
+
+再加上出口贸易
+Sumando el comercio de exportación
+
+中国只有一样东西是赚钱的
+En China hay una sola cosa que genera dinero
+
+就是出口 就是血汗钱
+Y es la exportación, es dinero de sangre y sudor
+
+那降了多少
+Y cuánto bajó
+
+中国官方地说
+Oficialmente en China dicen
+
+有涨有升
+Hay aumento
+
+总体来讲是下降
+En general está bajando
+
+总体下降
+Disminución general
+
+过去一年就是5千亿
+500 mil millones en el último año
+
+就按保住你的5千亿美元（计算）
+Conservando sus 500 mil millones de dólares (en cálculo)
+
+那么这几个帐一算就知道了
+Entonces puedes saber estas cuentas al sacarlas
+
+中共国现在14亿人口
+La República Popular de China tiene 1.400 millones de habitantes
+
+还是10亿人口
+O 1000 millones de habitantes
+
+你这个股票市场完全是杆面杖子经济 是假的
+Todo el mercado de valores es completamente un rodillo de amasar y son falsas
+
+**原视频网址**：[https://gettr.com/post/phzypq2813](https://gettr.com/post/phzypq2813)
+
+日期：11/29/2021
+原视频标题：中共的股票完全是擀面杖子经济，是假的
+Las acciones del PCCh son completamente un rodillo de amasar y son falsas
+原视频日期：11/26/2021
+原视频网址：https://gettr.com/post/phzypq2813
+任务编号：KC295（3024）
+视频时间段：0:00-2:20
+
+西听校：洛杉矶盘古农场 – 小文萱
+翻译：洛杉矶盘古农场- 霙霙（文霙）
+翻译终校：洛杉矶盘古农场 – 小文萱
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -2,32 +2,30 @@
 ---
 
 
-## 2021/11/30 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1708618/)
+## GTV新闻访谈简报|2021年11月30日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1708821/)
 
-1. 11月27日，上海黄浦区曙光医院开始进行封闭管理。
-2. 11月28日，黑龙江齐齐哈尔讷河市，全员核酸检测。学校听课，公共交通停止运输。
-3. 11月27日，乌鲁木齐乌拉泊北收费站，一货车司机突发不适，左半身麻木，无法动弹。
-4. 11月25日，河南信阳商城县华儒小区附近，一男子街头倒地。
-5. 11月24日，黑龙江木兰县大贵镇，村民爆料当地养猪场偷排污水，严重污染环境！
-6. 11月23日，河北张家口高铁站，所有人都需要提供核酸检测。未提供者，现场检测140元一次。
-7. 成立20余年的，打印机巨头OKI搬迁至泰国，深圳关厂，遣散700员工。
-8. 11月26日，河南郑州巩义市。几个月前那场暴雨灾难冲走的汽车“长”在了地里。
-9. 河南新乡，市民吐槽医院服务差：患者排长队，工作人员却着急下班数钱对账。
-10. 湖北武汉，女子拿到医院诊断书后，在医院走廊当场崩溃的一幕。
-11. 11月27日，辽宁锦州。疑因学生上课玩手机，被老师当众掌掴。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-768x103-11.jpg)
 
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-31.png)
+文章仅代表作者本人观点，与Gnews无关
 
-* * *
+视频参看：2021.11.30早GTV新闻访谈
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+[https://gtv.org/broadcast/watch/61a626ff44c1fe7a6c3bf4d4](https://gtv.org/broadcast/watch/61a626ff44c1fe7a6c3bf4d4)
 
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-编辑：【英国伦敦喜庄园编辑部】
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-13.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

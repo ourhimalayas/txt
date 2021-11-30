@@ -2,38 +2,43 @@
 ---
 
 
-## 中共收买世界主流媒体 无视阿富汗人道危机
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1708855/)
+## 欧盟要求中共公布可验证的彭帅安全的证据
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1708892/)
 
-作者：纽约香草山农场 – 文真
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-978.png)
-近期郭文贵先生多次在直播中爆料，中共没有能力支持塔利班的粮食和能源需求，阿富汗的人道危机会持续恶化。塔利班领导人每天多次强奸幼女、残害妇女，滥杀无辜。阿富汗粮食和能源短缺正在加剧，导致平民大量死亡。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide4-12.jpeg)
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/11/P-8.jpg)northernriversonlinenews.com.au
+欧盟今天（11月30日）发表声明，要求中共公布彭帅安全的“可验证的证据”，MSN转载了美联社的消息。
 
-郭先生在11月17日直播中揭示，阿富汗至少有几万人死亡，在以后的80天，预计还有80-100万人死去。预计今年在阿富汗会有两千三百万人会挨冻挨饿，甚至100-300百万人被饿死。
+全文如下：
 
-在11月28日，郭先生再次透露，阿富汗死亡平民已达十几万人，2300-2500万人处于饥饿中。阿富汗已经出现了用处女换粮食的现象，“人吃人”的惨剧也一定会发生。
+布鲁塞尔（美联社讯）欧盟周二（11月30日）表示，希望中共公布网球运动员彭帅安全的“可核实的证据”，并对其性侵指控进行彻底、透明的调查。
 
-中共以及其扶植的塔利班势力是导致阿富汗人道危机的根源。但是全世界的主流媒体被邪恶势力收买和控制，漠视塔利班政权的腐败残暴，集体噤声阿富汗人道危机。
+彭帅曾三次参加奥运会，曾是网球双打冠军，她在指控一名前共产党官员性侵后退出了公众视线。
 
-参考链接：
-1）[https://gettr.com/streaming/pi5gfs500d](https://gettr.com/streaming/pi5gfs500d)
-2）[2021年11月17日 文贵大直播：再谈全球疫苗灾难；习拜视频会议信息；喜联储结构再分析；秦刚及美欧日动向](https://gtv.org/video/id=6194fda8e7e7703792363972)
+自本月早些时候她从公众视线中消失以来，她只与中共国以外的官员有过几次直接接触，她在11月21日从北京打来的视频电话中告诉奥运会官员，她很安全。
 
-![This image has an empty alt attribute; its file name is 11月小图-1.png](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+一位欧盟发言人说：“她最近再次公开的露面并不能缓解人们对她的安全和自由的担忧。”
 
-总编：文恩
-编辑：Lakeman(文仁)
-校正/发稿：谐趣园
+彭帅在网上对前中共政治局常委张高丽提出了性侵指控，这位网球运动员的文章在几分钟内被删除，她也不再公开露面。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+欧盟在一份声明中说：“欧盟加入了包括体育专业人士在内的日益增长的国际要求，要求保证她的自由不受威胁。本着这种精神，欧盟要求中共政府提供可核实的证据，证明彭帅的安全、健康和下落。欧盟敦促中共当局对彭帅的性侵指控进行全面、公正和透明的调查。”
+
+近年来，越来越多的中共国商人、活动家和普通民众在批评党的人物、打击腐败、支持民主和劳工权利运动后，从公众视野中消失。
+
+欧盟表示：“欧盟强烈反对使用强迫失踪和任意拘留的做法……并呼吁中共遵守国内法和国际法规定的人权义务。”
+
+（全文完）
+
+看来欧盟不像其他国际组织，如世卫、联合国人权、奥委会等，几乎被中共彻底渗透，至少在欧盟有勇于对中共说不的人士，提供“可验证”的证据，进行“彻底、公正、透明”的调查，这些用词均点到了中共的死穴，了解到了“越来越多的中共国商人、活动家和普通民众在批评党的人物、打击腐败、支持民主和劳工权利运动后，从公众视野中消失”的情况，反映出世界对邪魔中共的认知，更是中共死到临头的征兆。
+
+欧盟此举是否可解读为抵制北京冬奥会的前奏，拭目以待。
+
+原文链接：
+
+[https://www.msn.com/en-ca/sports/tennis/eu-wants-verifiable-proof-chinese-tennis-player-is-safe/ar-AARiPoS?ocid=msedgntp](https://www.msn.com/en-ca/sports/tennis/eu-wants-verifiable-proof-chinese-tennis-player-is-safe/ar-AARiPoS?ocid=msedgntp)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
