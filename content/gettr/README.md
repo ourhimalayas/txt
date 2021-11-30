@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/30/2021 12:48 PM (UTC)`
+
+11月30号：尊敬的战友们好，从这个病毒命名排序的丢人现眼的小事上，你就能看出共产党的做贼心虚……和共产党的这种无知，和没有常识的流氓嘴脸，但是就是这种流氓和这种无知手里掌握着强和掌握着货币权，他就掌握着14人民的命运，还要掌握全世界的命运，但是天意不可违呀，你能把盘古的龙头，变成鸟头，你不可能把全世界的一切都给罩住盖．都变成鸟头．改变一切的东西的规则和标准！冥冥之中的天意，注定了一切必然的发生！
+![img](https://media.gettr.com/group21/getter/2021/11/30/12/48/283ecca7-4c32-0170-2855-8e06146ce731/out.jpg)
+
+---
+
 `@miles 11/30/2021 4:46 AM (UTC)`
 
 11/29/2021 Miles Guo’s GETTR: In fact, the CCP released the new virus in the Western US (including Hawaii) and South America, and the new virus will soon appear in the Eastern US and Canada; all dictators play the same trick - serve as the second in power before replacing the chief and then instigate racial conflicts and social turmoil, and wage wars<br/><br/>11/29/2021 文贵盖特：中共实际上是在美西(包括夏威夷)和南美放毒，新病毒将很快出现在美东和加拿大；独裁者的套路都是先当副手再取代一把手，进而制造种族冲突、社会动荡和发动战争<br/>
@@ -147,13 +154,6 @@ NBA球员埃内斯·坎特：我需要成为那些无法发声的无辜者的代
 
 加拿大BC省24小时内出现了13个婴儿胎死腹中的情况；医院里80%-90%的死者都是接种过疫苗的<br/><br/>13 stillborn deaths within 24 hours in BC Canada；80%-90% of people who died in hospital were vax people 
 ![img](https://media.gettr.com/group2/getter/2021/11/27/13/36/f783c939-4fff-dfda-a941-1b39a4d0c2aa/out.jpg)
-
----
-
-`@miles 11/27/2021 1:21 PM (UTC)`
-
-澳国防部长达顿警告：为避免在印太地区发生冲突，澳大利亚必须警惕中共的军事规模和野心<br/><br/>Minister for Defence of Australia Peter Dutton warns: To avoid conflict in the Indo-Pacific region, Australia must stay alert for the CCP’s military scale and ambition<br/>
-![img](https://media.gettr.com/group18/getter/2021/11/27/13/21/7c8e423f-4094-bf3a-74bc-f622feef9446/out.jpg)
 
 ---
 
