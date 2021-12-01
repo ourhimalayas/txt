@@ -2,39 +2,40 @@
 ---
 
 
-## 芯片短缺将延续到2022年, 格芯股票稳步提高
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1709991/)
+## 菲律宾政府称地方政府有权强制人民接种新冠疫苗
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1710066/)
 
-作者：香草山金融部 – 闲聊钱币
+#### **【雅典娜快讯】，紧贴时事脉搏**
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/philippines.jpg)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
+
+图片来源：Reuters
 
 
-拥有近百年历史的瑞典汽车制造商沃尔沃(VOLCARb.ST)周二警告称，整个汽车行业的半导体芯片短缺将持续到明年。
+#### 编译：小红帽
 
-今年10月29日沃尔沃公开募股，成为欧洲迄今为止最大的IPO。尽管股价在早盘下跌2.9%，但是整体来说自上市以来股价已飙升近30%。位于哥德堡的汽车制造商表示，供应链仍然受到限制。芯片短缺已经迫使包括沃尔沃在内的全球许多汽车制造商削减生产。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture2-29.jpg)
-该公司确认了第三季度营业利润为33亿瑞典克朗（3.626亿美元），而去年同期则为46亿瑞典克朗。沃尔沃的控股股东是中共国的吉利控股（GEELY.UL）。随着全世界进一步抵制和脱钩与中共国的贸易，沃尔沃的生产和投资人的利益必然受到影响。
+菲律宾地方政府部门（LGU）有权强制人民接种新冠（Covid-19）疫苗，以消除人民对新冠疫苗的犹豫不决和对某个疫苗品牌的偏好。
 
-芯片的短缺必然利好芯片制造企业。格芯（GlobalFoundries NASDAQ: GFS) 股价已经从一个月前IPO时的47美元稳步上升至69美元，涨幅高达46.8%。
+内政和地方政府部（DILG）秘书爱德华多·阿诺（Eduardo Año）表示，根据《地方政府法》第16条，地方行政长官有自主权。也就是说，可以发布行政命令和法令。
 
-跟着共产党，走进火葬场。着实为那些投资了沃尔沃但并不知道中共是它背后金主的小投资者捏把汗啊！
+“因此，虽然我们不能真正实施强制性法律，因为我们没有法律，没有国家法律，但至少通过《地方政府法》第16条，地方行政长官可以发布行政命令或法令，以保护其选民。这被认为是合法的，除非被法院阻止。”周一晚上，阿诺在马拉坎南宫与国家抗击新冠病毒工作组、医学专家的会议上告诉罗德里戈·杜特尔特（Rodrigo Duterte）总统。
 
-参考来源：[芯片短缺将延续到2022年, 格芯股票稳步提高](https://www.reuters.com/business/autos-transportation/volvo-cars-sees-supply-situation-improving-after-q3-profit-drop-2021-11-30/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=30-11-21&amp;utm_campaign=30-11-21)
+阿诺表示：“我们已经有地方政府部门宣布强制接种新冠疫苗，实际上，我们正在鼓励他们这样做。未接种新冠疫苗的选民会被限制到其他城镇旅行。让他们感受到压力、艰辛和困难，然后他们才会愿意接受疫苗接种”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
+在另一次采访中，菲律宾内政部副部长乔纳森·马来亚(Jonathan Malaya)指出，一些地方政府机构已经制定了地方法令，限制其未接种新冠疫苗的选民的行动。
 
-编辑/校对/发稿：Hetangyuese
+**参考新闻：** [LGUs can order mandatory vaccination: DILG | Philippine News Agency (pna.gov.ph)](https://www.pna.gov.ph/articles/1161370)
 
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+***发布：小红帽***
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

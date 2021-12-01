@@ -2,32 +2,29 @@
 ---
 
 
-## 台湾与立陶宛考虑组建“被中共国制裁者联盟”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1709570/)
+## 腾讯+阿里+美团+京东市值蒸发超3000亿港元
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1709627/)
 
-作者：纽约香草山 – 斗阵来拼
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-台湾媒体11月29日报道，立陶宛国会友台小组主席马尔德基斯率领的国会议员团28日清晨抵台，总统蔡英文于当地29日上午亲自接见，盼分享民主经验，促进台湾和波海3国建立稳健、紧密关系。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture4-21.jpg)
-台湾外交部长吴钊燮在29日下午通过外交部推特发文表示，很开心今天跟立陶宛国会议员见面，“我们正考虑组成一个‘被中共国制裁者联盟’，借此扩大国际间的合作，保护自由与民主，对抗威权主义”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Unknown-31.jpg)腾讯+阿里+美团+京东市值蒸发超3000亿港元 网络图片
+据AI财经社11月30日报道，恒生科技指数30日跌幅扩大，美团盘中跌近6%，京东超5%，阿里巴巴近5%、腾讯控股一度跌近3%。
 
-参考链接：
-1. [台湾与立陶宛考虑组建“被中共国制裁者联盟”](https://www.ftvnews.com.tw/news/detail/2021B29W0191)
-2. [台湾与立陶宛考虑组建“被中共国制裁者联盟”](https://twitter.com/MOFA_Taiwan/status/1465218691209961477)
+若按盘中最大跌幅计算，腾讯控股、阿里巴巴市值蒸发均超千亿港元，美团市值蒸发约850亿港元，京东超550亿港元。四家科技巨头合计蒸发市值超过3000亿港元。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+跌跌跌，一路跌。进入12月份，恒生股指开启新一轮“跌”模式。跌是正常的，不跌拿什么支撑呢？本来就是面条产业，又细又薄，还没有科技含量，除了卖假货就是偷的科技。这个寒冬很多人会倾家荡产，很多人会因为继续强推疫苗而失去生命。这个世界还要继续容忍中共的假骗偷和草菅人命到多久呢？
 
-总编：飞虹
-编辑：飞虹
-校对/发稿：Hetangyuese
+新闻参考链接：[https://c.m.163.com/news/a/GQ2JFTJA0519D3BI.html?spss=newsapp](https://c.m.163.com/news/a/GQ2JFTJA0519D3BI.html?spss=newsapp)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
 
 
  

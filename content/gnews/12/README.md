@@ -2,89 +2,39 @@
 ---
 
 
-## 视频| 习近平是怎样成为独裁之王的（下）
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1709984/)
+## 芯片短缺将延续到2022年, 格芯股票稳步提高
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1709991/)
 
-## 摘自2021.11.28郭先生大直播
-
-制作：香草山视频部
+作者：香草山金融部 – 闲聊钱币
 
 
-
-大家千万别忘了
-北朝鲜是他上台以后
-几乎中共已经跟北朝鲜撕裂了
-这个唯一的联盟关系就是你要有战争我帮你
-就跟北朝鲜他没有延续嘛
-习访问北朝鲜以后习在现场就说了句话
-你们金家是人类历史上人类的一级文明的唯一成功者
-你给我找人类独裁几个有后的
-而且没有几乎独裁没有到第二代
-只有一个人类的传奇
-就是北朝鲜金家经到了三代
-就是金家搞的是今天严格讲说
-他就是一个所谓的可继承化的皇族体系
-他成功了啊
-所以习近平说你看你把人类的另外一端的文明
-也就是稳定的政治社会的政治系统
-你成功了北朝鲜
-习近平跟金正恩见面的时候
-说你完成了你家和北朝鲜最关键的一步
-就是拥有核武器终极武器
-金家的在北朝鲜的事业千秋万代
-我习近平将支持你
-你们没有意识到习近平去俄罗斯
-那场访问习近平到北朝鲜的访问
-把习近平一下子变成了
-世界上独裁中的独裁叫独裁之王
-在这个之前啊他的人格是不完整
-他对人生的规划是不确定的
-他对世界的认知是很狭隘的
-甚至对事业对政治对能力是不自信的
-但到了美国被奥巴马给羞辱之后
-转嫁俄罗斯普京跟他结为战友
-绝对战友咱俩一起死磕
-这个世界就是咱的了
-更重要的他去伊朗墨索里尼
-墨索里尼上台之后
-特别是记住啊
-伊朗第一修宪的法律是什么
-修改结婚的年龄
-大家知道吗
-结婚年龄7岁
-从16岁改为7岁可以结婚女孩
-女性成了男性的工具
-这个时候他你看他对阿富汗的事
-都跟他有关系的人格障碍
-为什么他搞阿富汗呢
-大家你看他支持阿富汗呢
-他认为美国的死穴是阿富汗
-中国的丝绸之路阿富汗
-他认为我把中东伊朗巴基斯坦
-阿富汗这个能拿过来以后
-那我未来我就是可以统治东亚南亚到中东
-然后马六甲海峡一带一路
-他是一带一路的真的他想他认为能成功的
-所以你看俄罗斯北朝鲜伊朗哈梅内伊
-这个开完会回去以后整个中国就变天了
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
 
 
+拥有近百年历史的瑞典汽车制造商沃尔沃(VOLCARb.ST)周二警告称，整个汽车行业的半导体芯片短缺将持续到明年。
 
-发稿：雪梨
+今年10月29日沃尔沃公开募股，成为欧洲迄今为止最大的IPO。尽管股价在早盘下跌2.9%，但是整体来说自上市以来股价已飙升近30%。位于哥德堡的汽车制造商表示，供应链仍然受到限制。芯片短缺已经迫使包括沃尔沃在内的全球许多汽车制造商削减生产。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture2-29.jpg)
+该公司确认了第三季度营业利润为33亿瑞典克朗（3.626亿美元），而去年同期则为46亿瑞典克朗。沃尔沃的控股股东是中共国的吉利控股（GEELY.UL）。随着全世界进一步抵制和脱钩与中共国的贸易，沃尔沃的生产和投资人的利益必然受到影响。
 
-![This image has an empty alt attribute; its file name is 8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg)
+芯片的短缺必然利好芯片制造企业。格芯（GlobalFoundries NASDAQ: GFS) 股价已经从一个月前IPO时的47美元稳步上升至69美元，涨幅高达46.8%。
+
+跟着共产党，走进火葬场。着实为那些投资了沃尔沃但并不知道中共是它背后金主的小投资者捏把汗啊！
+
+参考来源：[芯片短缺将延续到2022年, 格芯股票稳步提高](https://www.reuters.com/business/autos-transportation/volvo-cars-sees-supply-situation-improving-after-q3-profit-drop-2021-11-30/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=30-11-21&amp;utm_campaign=30-11-21)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
+
+编辑/校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
  
 

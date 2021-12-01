@@ -2,40 +2,32 @@
 ---
 
 
-## 菲律宾政府称地方政府有权强制人民接种新冠疫苗
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1710066/)
+## 美联储将减少经济刺激措施
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1710112/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+**撰稿：Grace**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/philippines.jpg)
+**校对：Grace**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-11-30-at-11.52.33-PM.jpeg)图片来源：gateway pundit
+据Omaha World-Herald 11月30日报道，美联储主席杰罗姆·鲍威尔（Jerome Powell）周二表示，美联储将考虑更快地采取行动，缩减其超低利率政策，以应对更高的通货膨胀。鲍威尔认为，通货膨胀可能会持续到明年。
 
+报道称，在鲍威尔发表上述言论之前，最近几周其他美联储官员已经表示，美联储应考虑比目前计划更快地结束超低利率政策。 他们提到了对通胀的担忧，美国的通货膨胀已经跃升至三十年来的高点。
 
+鲍威尔承认，价格上涨比美联储预期的要严重，而且会比政策制定者最初想象的持续时间更长。他表示，”过渡性 “一词不再能作为对通货膨胀的描述，现在可能是让这个词退休的时候了。
 
-图片来源：Reuters
+另外，为了降低长期借贷成本，美联储已经开始减少其每月的债券购买量，并将在明年6月份结束这些购买。但鲍威尔明确表示，美联储官员将在12月中旬的下一次会议上讨论更快地削减这些购买量。
 
+报道指出，美联储这样的做法，将使美联储最早于明年上半年开始提高其关键短期利率。更高的美联储利率将反过来提高抵押贷款、信用卡和一些商业贷款的借贷成本。
 
-#### 编译：小红帽
+鲍威尔还说，美联储应该在下一次会议上，及时了解更多关于变种中共病毒omicron的潜在经济影响。他表示，就目前而言，omicron还没有被纳入美联储经济前景的考虑范围。
 
-菲律宾地方政府部门（LGU）有权强制人民接种新冠（Covid-19）疫苗，以消除人民对新冠疫苗的犹豫不决和对某个疫苗品牌的偏好。
+据报道，股价在鲍威尔的评论后暴跌，道琼斯工业平均指数在午盘下跌约1.5%。许多投资者曾希望，鲍威尔会发出信号，表明美联储将推迟任何政策变化，直到omicron变体的影响变得更加清晰。可是相反，鲍威尔暗示美联储已经果断地转向减少经济刺激措施。
 
-内政和地方政府部（DILG）秘书爱德华多·阿诺（Eduardo Año）表示，根据《地方政府法》第16条，地方行政长官有自主权。也就是说，可以发布行政命令和法令。
+在上周，美联储发布的11月会议记录显示，17位美联储决策者中的一些人支持更快减少债券购买，尤其是在通胀恶化的情况下。这将使美联储有机会最早在明年上半年提高其基准利率。
 
-“因此，虽然我们不能真正实施强制性法律，因为我们没有法律，没有国家法律，但至少通过《地方政府法》第16条，地方行政长官可以发布行政命令或法令，以保护其选民。这被认为是合法的，除非被法院阻止。”周一晚上，阿诺在马拉坎南宫与国家抗击新冠病毒工作组、医学专家的会议上告诉罗德里戈·杜特尔特（Rodrigo Duterte）总统。
+当时，投资者预计明年会有三次加息，但自从新的中共病毒变种出现后，这么多次加息的几率已经急剧下降了。
 
-阿诺表示：“我们已经有地方政府部门宣布强制接种新冠疫苗，实际上，我们正在鼓励他们这样做。未接种新冠疫苗的选民会被限制到其他城镇旅行。让他们感受到压力、艰辛和困难，然后他们才会愿意接受疫苗接种”。
-
-在另一次采访中，菲律宾内政部副部长乔纳森·马来亚(Jonathan Malaya)指出，一些地方政府机构已经制定了地方法令，限制其未接种新冠疫苗的选民的行动。
-
-**参考新闻：** [LGUs can order mandatory vaccination: DILG | Philippine News Agency (pna.gov.ph)](https://www.pna.gov.ph/articles/1161370)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**新闻来源：[Powell says Fed may accelerate pullback in economic support](https://omaha.com/news/national/powell-covid-19-variant-clouds-inflation-economic-outlook/article_ea40b850-b710-5fa8-8c38-b4fd98ae8693.html)**
 
  
 

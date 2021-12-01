@@ -2,22 +2,32 @@
 ---
 
 
-## 日本首例新型病毒感染的密切接触者70人中40人住在东京
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1709736/)
+## GTV新闻访谈简报|2021年11月30日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1709777/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-990.png)[图片来源](https://news.yahoo.co.jp/articles/a05c41de9298551fa906e66d55ad44b1e22b8c4e)
-每日新闻11月30日晚发表记者齐川瞳的报道，全文如下：
+作者：香草山翻译部
 
-东京都政府（TMG）宣布，与日本首例中共病毒新变种Omicron的感染者有过密切接触的70人中，约有40名是东京居民，他们被认定是同一架飞机上的乘客。尽管所有这些人都已被机场检疫确认为阴性，但东京都府还是要求将其中约40人得东京居民转移到留宿护理机构，进行一段时间的隔离。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-768x103-9.jpg)
 
-东京都政府出于谨慎考虑，建议他们留宿住宅式护理机构，不要居家度过隔离期。
 
-信息来源：[オミクロン株感染者の濃厚接触40人は都内在住　都が隔離要請（毎日新聞） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/a05c41de9298551fa906e66d55ad44b1e22b8c4e)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1130text-SC.png)
+校对：Stay文苑
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+视频参看：[11.30  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61a6cfd644c1fe7a6c3c3c0b)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-13.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
