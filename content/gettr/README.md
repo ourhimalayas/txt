@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/1/2021 9:31 PM (UTC)`
+
+CZ_Binance's acquisition of a Swiss bank failed!<br/>Where is Binance's money? 60% of Binance's money was taken away by the CCP. <br/>⚠️Because Binance sold all customer information to the Chinese Communist Party, all Binance customers are in danger. The Committee of Himalaya Alliance and its team of lawyers are organizing a Global Binance Victim Class Action Lawsuit to protect your identity, money, and safety.<br/><br/>币安欲收购瑞士一家银行失败！<br/>币安的钱去哪儿了？币安60%的钱被中共拿去了。<br/>⚠️因币安将所有客户资料出卖给中共，致所有币安客户于危险之中，喜马拉雅联盟委员会将与专业律师团一起组织发起全球币安受害者的集体诉讼。<br/><br/>【Binance Lawsuit】<br/>🌈Getter:  https://gettr.com/user/binancelawsuit<br/>🌈Discord Server:  https://discord.gg/8KpdftBPsu<br/>🌈Basic Information Registration Form:<br/>➡️Chinese form:  https://forms.gle/4RXBPL5BfqYYJhS29<br/>➡️English form:  https://forms.gle/Xk5LELQ2y1uKYr6V8
+![img](https://media.gettr.com/group5/origin/2021/12/01/21/31/cbb6d418-9dee-fe48-0dc6-62993c5696c9/out.jpg)
+
+---
+
 `@miles 12/1/2021 7:35 PM (UTC)`
 
 12月1号：新病毒到达美国的时间！和我预测的时间相差多少？兄弟姐妹们！
@@ -151,13 +158,6 @@ G Fashion 最特别的帽子即将登场，这些帽子都是跟那些大牌同�
 
 2021年11月28日 文贵大直播：新变种Omicron 如临大敌；青蒿素妙药必将解救众生；中共国世界股票剧烈震荡；新中国联邦坚守唯真不破
 ![img](https://media.gettr.com/group13/origin/2021/11/28/13/65dc806d-b317-97f9-6725-d105cbbd7b84/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 11/28/2021 12:48 AM (UTC)`
-
-11/26/2021 Miles Guo: Smallpox cases appeared in hospitals in Shanghai and Hangzhou; doctors from a secret military base in Changzhou were suddenly picked up; The evilness of Sun Lijun, Meng Jianzhu, Wang Qishan, and Fu Zhenghua are unprecedented, and the world would be ruined if they were not arrested<br/><br/>11/26/2021 文贵直播：上海和杭州有医院出现天花病例，位于常州的秘密军事基地的医生被突然接走；孙力军、孟建柱、王岐山、傅政华的邪恶史无前例，不抓他们，世界都将被毁掉<br/>
-![img](https://media.gettr.com/group33/getter/2021/11/28/00/48/e70e3232-7340-2803-61fd-7be14e63832c/out.jpg)
 
 ---
 
