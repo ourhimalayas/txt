@@ -2,36 +2,30 @@
 ---
 
 
-## 弗林将军称QAnon是“中情局的造谣活动”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1710750/)
+## GETTR首席执行官指责Twitter前任CEO扼杀言论自由
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1710845/)
 
-翻译：**Lulumi**
+#### 撰稿：日本东京方舟农场  幽蘭自得
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-5.jpg)图片来源：zerohedge.com
+![](https://assets.gnews.org/wp-content/uploads/2021/12/A6D8D7A4-7B72-4E70-A0B2-1F3C58145808.jpeg)（图片来自Gnews）
 
-据《每日邮报》报道，在与亲川普的律师林·伍德的私人电话交谈中，迈克尔·弗林将QAnon斥为“完全是一派胡言”，但这一点尚未得到独立核实。
+GETTR首席执行官杰森·米勒（Jason Miller）11月29日发表声明，指责刚卸任Twitter首席执行官的杰克·多尔西（Jack Dorsey）“扼杀言论自由”。
 
-周六，伍德将这段对话发布到他的Telegram频道。确切的通话时间尚不清楚，不过通话中提到了11月2日发表的一篇哈尔·特纳的文章。
+据《The Street》报道，Twitter在29日宣布，杰克·多尔西将卸任Twitter 首席执行官一职。该职位由Twitter 现任首席技术官阿格拉瓦尔（Parag Agrawal）接任。
 
-“我认为这是一场造谣运动。我认为这是一场由中情局制造的假情报运动。这就是我所相信的，”据说是弗林的人在录音中说。“那么，我不知道这是不是事实，但我认为这就是事实。”
+同日，杰森·米勒在Twitter上发表了一份声明指出，多年来，杰克·多尔西一直是多任务处理“大师”：审查他不喜欢的意见；取消用户；让美国最古老的报纸之一保持沉默，以及不公平地影响政治选举等。
 
-在电话的后面，可以听到同一个人说，阴谋运动是如何得‘完全无稽之谈’，称它是‘左派制造的虚假信息运动’。
+米勒表示，多尔西对言论自由的扼杀正是 GETTR 需要存在的原因。他说：“我想我们都应该为此心存感激。如果没有大型科技寡头的残酷压迫和（所谓的）道德指向，来自世界各地的数百万人将不会寻找新的社交媒体。”
 
-“我认为这是一场造谣运动。事实上，今天有一篇非常有趣的文章被寄给我，我会寄给你。关于QAnon运动如何失败等等。但我认为这完全是无稽之谈，我认为这是一场由左派发起的虚假宣传活动，”他说。——每日邮报
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/unknown-4.png)
-
-虽然录音中听到的人有可能不是弗林，但当其他媒体联系到这位退休的陆军将军时，他没有否认。
-
-参考资料：[zerohedge][Michael Flynn Reportedly Calls QAnon A ‘CIA Disinformation Campaign’](https://www.zerohedge.com/political/michael-flynn-reportedly-calls-qanon-cia-disinformation-campaign)
+*参考链接：[https://www.thestreet.com/investing/rightwing-platform-gettr-blasts-twitters-dorsey-for-strangling-free-expression](https://www.thestreet.com/investing/rightwing-platform-gettr-blasts-twitters-dorsey-for-strangling-free-expression)*
 
 * * *
 
-*审核：文乐
-校对：阿伯塔
-发布：信心的选择*
+*素材采编：幽蘭自得*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3.jpeg)
+*编辑：青衣青青*
+
+*发布：miumiu*
 
  
 

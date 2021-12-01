@@ -2,46 +2,46 @@
 ---
 
 
-## 有声|推特CEO辞职
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1710205/)
+## 中共国出口产品普惠制待遇，今起正式被取消
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1710285/)
 
-配音：香草山美食部 – 玫瑰园
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-5.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.rfa.org%2Fmandarin%2Fyataibaodao%2Fjingmao%2Fac-11022021065352.html%2Fm1102ac1.jpg&amp;imgrefurl=https%3A%2F%2Fwww.rfa.org%2Fmandarin%2Fyataibaodao%2Fjingmao%2Fac-11022021065352.html&amp;tbnid=YjghegwkpAvqbM&amp;vet=12ahUKEwiuiYy5_sH0AhWKxGEKHSC0CD4QMygQegUIARC-AQ..i&amp;docid=KyFpxO6a2Z504M&amp;w=1500&amp;h=844&amp;itg=1&amp;q=%E6%99%AE%E6%83%A0%E5%88%B6&amp;ved=2ahUKEwiuiYy5_sH0AhWKxGEKHSC0CD4QMygQegUIARC-AQ)
+自2021年12月1日起，中共国海关不再对输欧盟成员国、英国、加拿大、土耳其、乌克兰等32个国家货物签发普惠制原产地证书。
 
+这是今年10月底，海关总署发布的一则《关于不再对输欧盟成员国、英国、加拿大、土耳其、乌克兰和列支敦士登等国家货物签发普惠制原产地证书的公告》（2021年第84号公告）的核心内容。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+这则公告，对于普通百姓似乎没有引起太多注意，但是对于中共国很多制造型企业尤其是出口企业却事关重大。因为其背后是包括欧盟成员国、英国、加拿大、土耳其、乌克兰和列支敦士登等在内的世界32国取消对中共国出口商品的普惠制待遇，即将中共国视同发达国家进行贸易，不再给予普惠制关税优惠。
 
+据业内人士介绍，普遍优惠制度（GeneralizedSystemofPreferences）简称普惠制（GSP），是发达国家（给惠国）对发展中国家及地区（受惠国）出口制成品和半制成品给予普遍的、非歧视的、非互惠的关税优惠制度。自1978年普惠制实施以来，先后有40个国家给予我国普惠制关税优惠，其中大多是中共国的重要贸易伙伴，如欧盟成员国及英国、俄罗斯、加拿大、日本等。我国也积极利用普惠制扩大向发达国家的出口，在外贸增长和产业发展等方面发挥了重要作用。
 
-11月29日，杰克·多西发布了辞职公开信，辞去推特首席执行官一职。
+**取消普惠制关税优惠对中共打击巨大**
 
-推特股价在开盘前上涨12%。消息人士称，推特股价上涨是因为市场认为多西的辞职标志着很快将出现对推特的并购案。但相反意见则认为，推特面临铺天盖地的诉讼和天文数额的赔偿，前景黯淡。
+给予过中共国普惠制关税优惠的40个国家分别为：欧盟27国（法国、德国、意大利、荷兰、卢森堡、比利时、丹麦、爱尔兰、希腊、葡萄牙、西班牙、瑞典、芬兰、奥地利、波兰、捷克、斯洛伐克、匈牙利、马耳他、斯洛文尼亚、立陶宛、拉脱维亚、爱沙尼亚、塞浦路斯、保加利亚、罗马尼亚、克罗地亚）、英国、欧亚经济联盟3国（俄罗斯、白俄罗斯、哈萨克斯坦）、土耳其、乌克兰、加拿大、瑞士、列支敦士登、日本、挪威、新西兰、澳大利亚。
 
-近年来，以推特、脸书为首的“硅谷大科技寡头”无视美国宪法第一修正案，打压自由言论，利用有政治或利益倾向的言论审查禁言、删帖，直到永久封号。推特因此官司缠身，多西多次被国会传唤参加听证会。分析人士称，多西辞职有利于他从争议和诉讼中脱身。
+从12月1日起，中共国海关不再签发普惠制原产地证书的国家范围除了欧盟成员国以外，还包括加拿大、土耳其、乌克兰、列支敦士登，也包括已经脱离欧盟的英国。据了解，从12月1日开始，仍然保留给予中共国普惠制待遇的国家仅剩挪威、新西兰、澳大利亚3国。
 
-原文链接：[推特CEO辞职](https://gnews.org/zh-hans/1708527/)
+专业人士称32国对中共国取消普惠制关税将给带来经济上和政治上的双重打击，而且是巨大的。因为3%～20%的税率是非常大的，这对中国下一步再重新进入这个市场，或者是占领这个市场，设置了一个非常大的壁垒。
 
-音频处理：喜山必胜Maverick
-发稿：Daxia
+普惠制与双边的最惠国待遇不同，它完全是单方面的。而最惠国待遇是双边的，双方既有利益也有义务，不能单方面取消。所以，一旦这32个国家取消对华优惠政策，中共没有任何理由、或者是没有办法反过来去制裁这些欧洲国家。
 
-[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
+**欧美谴责****中共在新疆侵犯人权**
 
-**更多资讯，更多关注**
+今年3月，美国、欧盟、英国、加拿大、澳大利亚和新西兰等西方国家先后发表声明，谴责中共在新疆侵犯人权，美国和欧盟并对中共相关责任官员和机构实施制裁；中共方面马上进行了反制，对欧盟议员、学者等祭出反制裁措施。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+欧盟则马上就暂停了与中国的《中欧全面投资协定》的审批程式。对于欧盟的反应，中方官员声称对欧盟的对抗要“奉陪到底”。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+5月，欧洲议会投票，正式冻结了《中欧全面投资协定》的审批程式。这个经过长达7年磋商、35轮谈判的协定，本来是要代替25项欧盟成员国与中国的双边投资协定，减少欧洲投资者在中国投资的不确定性和不公平待遇。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+10月31日，欧盟与美国还就取消钢铝产品关税达成协议，化解了之前双方的贸易争端。有中国媒体对此解读说，美国一方面取消了对欧盟的关税，同时又在增加中国相关产品的关税，这会使中国的钢铁产品优势没有以前那么大，认为欧美此举是为了联手将中供踢出欧美市场。
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+消息来源：[今天起32国取消中国出口产品普惠制待遇仅剩澳大利亚等3国仍保留](https://news.sina.com.cn/c/2021-12-01/doc-ikyamrmy6070758.shtml)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[多国取消对华关税优惠对中共打击巨大](https://www.epochtimes.com/gb/21/11/13/n13372915.htm)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-6.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-6.jpg)
-
-
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

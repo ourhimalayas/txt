@@ -2,31 +2,44 @@
 ---
 
 
-## 机密文件曝光，指出新疆迫害与习近平有关
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1710697/)
+## 维州“大流行病法案”辩论结束，周四将进行投票
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1710771/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1CBDFE10-CD98-480E-A19D-D572BBCA9551_cx0_cy8_cw0_w1023_r1_s-1.jpg)图片来源：法新社
-据自由亚洲电台11月30日报道，中共政府迫害新疆维吾尔人受到国际谴责，不过中共政府对此矢口否认。近日德国学者郑国恩公布一批新疆文件，其中包含习近平在2014年4月所发表的三篇讲话内容，涉及安全、人口控制与惩罚维吾尔人的必要。提到对新疆维吾尔人进行再教育和搬迁，以解决新疆维吾尔族和汉族人口之间的不平等问题。
+**【雅典娜快讯】，紧贴时事脉搏**
 
-专研新疆议题的美国共产主义受难者纪念基金会学者郑国恩表示，这些文件表明北京是新疆暴行的幕后黑手。文件显示，习近平在2014年前往新疆考察，表示一带一路倡议需要稳定的国土安全环境，要求在全国范围内防止新疆暴恐活动蔓延到中共国其他地区。文件还包括国务院总理李克强、时任中共中央政治局常委俞正声以及新疆党委书记陈全国的谈话内容，显示中共高层有迫害维吾尔族的长期意图。
-
-这些总共317页的文件是由匿名人士分享给设在英国的独立人民法庭“维吾尔法庭”，该法庭委托郑国恩进行分析。维吾尔法庭表示，中共国大使馆已收到书面通知，不过外交部并未回应。中共国对于新疆事件一向装聋作哑，只有涉及到台湾或者自身利益时，外交部才会跳出来谴责，甚至撒泼耍赖。中共政府一向视人命如草芥，对内杀了几亿中国人民毫不手软，全球释放病毒更是毫无顾忌。自由世界的人们，再不行动起来，新疆的今天就是全世界的明天。
-
-新闻参考链接：
-
-[机密文件曝光指新疆迫害与习近平有关](https://www.rfa.org/mandarin/yataibaodao/shaoshuminzu/cm1130a-11302021054240.html)
-
-编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/澳洲.png)图片来源：澳洲新闻网
 
 
-编辑：【英国伦敦喜庄园编辑部】
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**翻译：**小鱼儿
+**编辑：**翼族
+
+维多利亚州一项有争议的立法，将授予该州州长丹·安德鲁斯无限期宣布大流行病和紧急状态的权力，经过议会的多次辩论，周四该法案的修正案将由维州上议院作出最后决定。
+
+据《先驱太阳报》报道，辩论结束后，该法案现在被送回下议院，议员们将对修正案进行投票，并在周四回到上议院进行最后的投票。
+
+维多利亚州经历了数周的抗议活动，数十万维多利亚州人每个周末都聚集在议会的台阶上，抗议州长借大流行病拥有压倒性的权力，这基本上让州长成为了独裁者。
+
+如果法案获得通过，还将使该州的卫生部长有能力发布广泛的公共卫生命令，并授予被授权的官员拘留人员的权力。
+
+《先驱太阳报》报道：州议员们慢慢通过了80多项拟议的修正案，并对每一项修正案进行了投票。安德鲁斯政府的前部长阿德姆·索姆尤雷克（Adem Somyurek）意外返回议会引发了该法案的延迟，并导致疯狂的政府拼命争取额外的支持票。
+
+这项有争议的法案引发了大规模的抗议。周六，大量人群再次在墨尔本市中心游行，许多人呼吁安德鲁斯下台。
+
+在州议会投票通过后，必须经过维多利亚州总督的御准，该法案才会被颁布为法律。
+
+以下是“杀死法案”活动的详细信息：[https://www.rebelnews.com/kill\_dans\_bill](https://www.rebelnews.com/kill_dans_bill)
+
+**参考新闻：**[Marathon pandemic powers bill debate ends with vote due Thursday](https://www.rebelnews.com/marathon_pandemic_powers_bill_debate_ends_with_vote_due_thursday)
+
+*发布：翼族*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

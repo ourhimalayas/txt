@@ -2,40 +2,32 @@
 ---
 
 
-## 主媒加入，申请解除司法部阻止班农分享千份文件
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1710142/)
+## COVID-19 最新情报｜欧盟多国拟对未接种者采取更严厉措施 违者或面临罚款和监禁
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1710180/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/https___cdn.cnn_.com_cnnnext_dam_assets_211115191924-01-bannon-1115.jpg)图片来源：CNN
-**翻译：**小鱼儿
-**编辑：**翼族
+**撰文｜ 台湾宝岛农场 疫情关注组 / 发布时间｜1/12/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-班农本月被起诉，并被指控藐视国会，因为他没有遵守众议院1月6日委员会的传票。
+随着 COVID-19 新变体 Omicron 突然引爆的全球恐慌，各国政府似乎将矛头进一步对准未接种疫苗人士，尤其 60 岁以上的未接种者，欧盟多国陆续传出消息指，将对国内未接种者采取更严厉的强制措施，违者将面临高额罚款或者监禁。
 
-目前检察官正在寻求一项保护令，禁止班农或其团队披露“藐视国会案”的案件材料，但媒体团体提交动议，站在班农一方辩解。
+#### **奥地利：违者最高罚款 7200 欧元或监禁四周**
 
-该命令将严格限制班农分享信息，这些信息是联邦调查局作为正常取证程序的一部分，并且已经开始移交给法庭。根据政府先前的文件，这些信息包括1000多页的证人证词、大陪审团材料，甚至包括众议院1月6日调查国会暴乱的委员会工作人员的电子邮件。
+奥地利总理亚历山大·沙伦伯格（Alexander Schallenberg）早前宣布，从明年 2 月 1 日起，COVID-19 疫苗将成为奥地利的强制性疫苗。据一份被泄露给当地媒体的《COVID-19 疫苗接种保护法》草案显示，届时，任何拒绝接种疫苗的人都会收到地方当局的正式传票，要求接种疫苗，若仍然未有按时接种，他们将在接下来的四个星期内再次被传唤。
 
-一个主流媒体公司的联盟提交了一份法律简报，支持史蒂文·班农。
+“如果第二次官方传唤也被忽略，该人将面临 3,600 欧元的罚款或四个星期的监禁。任何因违反疫苗接种传唤而被罚款两次的人，罚款将增加到 7,200 欧元每次。”
 
-新闻集团认为，政府提议的命令将违反美国第一修正案。加入申请的还有CNN、ABC、NBC、《纽约时报》和《华盛顿邮报》等主要媒体。
+不仅如此，虽然草案指出，孕妇及 12 岁以下的儿童，包括接种疫苗后会引发“危及生命或健康”的人可申请拥有豁免权，但是，根据所陈列的执行细则，其严格程度，令获得豁免权变的相当困难，即使是那些有严重健康问题的人亦是如此。另外，草案对宗教豁免问题更是只字未提。
 
-周日，联邦政府在自己的动议中认为，班农正在寻求“在媒体上，而不是在法庭上审理此案”。
+#### **希腊：对未接种者罚款，是对已接种者的一项正义之举**
 
-班农在法院外说：”我现在告诉你，对于梅里克·加兰、南希·佩洛西和乔·拜登来说，这将是来自地狱的罪。
+与此同时，希腊也在继续采取强制措施，总理基里亚科斯·米佐塔基斯周二（30日）宣布，强制 60 岁以上未接种者必须在 1 月 16 日之前预约第一剂疫苗，否则他们将面临每月 100 欧元的行政罚款。
 
-**参考新闻：**[EXCLUSIVE: CNN, ABC, and more than a dozen media companies file legal brief JOINING Steve Bannon’s bid to lift the DOJ’s order stopping him sharing 1,000 files in his contempt of Congress case](CNN,%20ABC,%20and%20more%20than%20a%20dozen%20media%20companies%20file%20legal%20brief%20JOINING%20Steve%20Bannon’s%20bid%20to%20lift%20the%20DOJ’s%20order%20stopping%20him%20sharing%201,000%20files%20in%20his%20contempt%20of%20Congress%20case)
+总理米佐塔基斯强调，“这不是惩罚，我会称之为医疗费。这是对已接种疫苗者的一项正义之举。”目前，该项新措施仍需待国会投票通过，但相信成事机会很大。希腊当地 1,100 万人口中，约 63% 已打齐疫苗，60 岁以上未接种者有 52 万人。希腊成为欧洲首个强制某年龄组别打疫苗的国家。
 
-*发布：翼族*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
-
+无独有偶，中共卫健委周二亦突然带动舆论风向，指全国仍有 20%，约 5000 万 60 岁以上人士未接种疫苗，恐成为防疫最大漏洞。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-Space-Channel-Banner-22.jpg)
+来源｜[RT](https://www.rt.com/news/541687-austria-vaccination-resist-fine-bill/) / [草案](https://www.docdroid.net/azC8XSF/entwurf-impfpflicht-pdf#page=2)
 
  
 
