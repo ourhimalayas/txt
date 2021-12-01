@@ -15,104 +15,104 @@
 
 ---
 
-### [媒体集团响应班农 要求司法部公开调查文件](/content/gnews/1/README.md)
+### [法官阻止拜登对联邦承包商的疫苗强制令](/content/gnews/1/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [2021/12/01大卫作战室直播精要](/content/gnews/2/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [媒体集团响应班农 要求司法部公开调查文件](/content/gnews/3/README.md)
  ` HimalayaRussia`
 
-### [研究：新冠“疫苗”在怀孕的前三个月杀死了十分之九的婴儿](/content/gnews/2/README.md)
+### [研究：新冠“疫苗”在怀孕的前三个月杀死了十分之九的婴儿](/content/gnews/4/README.md)
  ` MG FARM`
 
-### [2018年6月15日郭文贵先生直播全文字版](/content/gnews/3/README.md)
+### [2018年6月15日郭文贵先生直播全文字版](/content/gnews/5/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [加拿大税务局：2022年您需要考虑的 3项税收减免变化](/content/gnews/4/README.md)
+### [加拿大税务局：2022年您需要考虑的 3项税收减免变化](/content/gnews/6/README.md)
  ` MG FARM`
 
-### [文贵爆料1201：青蒿药用针剂防病毒还解疫苗，新中国联邦人有特权优先使用](/content/gnews/5/README.md)
+### [文贵爆料1201：青蒿药用针剂防病毒还解疫苗，新中国联邦人有特权优先使用](/content/gnews/7/README.md)
  ` 秘密翻译组-原创组`
 
-### [GTV新闻访谈简报|2021年12月1日早](/content/gnews/6/README.md)
+### [GTV新闻访谈简报|2021年12月1日早](/content/gnews/8/README.md)
  ` 纽约香草山MOS01`
 
-### [有声|美国最高法院拒绝麻州医护人员疫苗暂停申请](/content/gnews/7/README.md)
+### [有声|美国最高法院拒绝麻州医护人员疫苗暂停申请](/content/gnews/9/README.md)
  ` MOSREC`
 
-### [有声|美国为与中共争夺东盟 询问东盟会谈意向](/content/gnews/8/README.md)
+### [有声|美国为与中共争夺东盟 询问东盟会谈意向](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [瑞银称，中国低迷的房地产市场将迎来更多坏消息](/content/gnews/9/README.md)
+### [瑞银称，中国低迷的房地产市场将迎来更多坏消息](/content/gnews/11/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [有声|澳洲总理、国防部长发言要对抗中共](/content/gnews/10/README.md)
+### [有声|澳洲总理、国防部长发言要对抗中共](/content/gnews/12/README.md)
  ` MOSREC`
 
-### [文贵爆料 12.1：喜联储的两个数字银行已成型，一个数字帝国正在崛起](/content/gnews/11/README.md)
+### [文贵爆料 12.1：喜联储的两个数字银行已成型，一个数字帝国正在崛起](/content/gnews/13/README.md)
  ` 秘密翻译组-原创组`
 
-### [韩国计划将加密货币税收推迟至2023年开始征收](/content/gnews/12/README.md)
+### [韩国计划将加密货币税收推迟至2023年开始征收](/content/gnews/14/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [12月1日文贵大直播快讯——我们清楚地知道中共要干什么](/content/gnews/13/README.md)
+### [12月1日文贵大直播快讯——我们清楚地知道中共要干什么](/content/gnews/15/README.md)
  ` 澳喜特战旅Gnews`
 
-### [12月1日文贵大直播快讯——习现在连一根毛都还没动着](/content/gnews/14/README.md)
+### [12月1日文贵大直播快讯——习现在连一根毛都还没动着](/content/gnews/16/README.md)
  ` 澳喜特战旅Gnews`
 
-### [2021年12月1日文贵先生直播大雨围城速记](/content/gnews/15/README.md)
+### [2021年12月1日文贵先生直播大雨围城速记](/content/gnews/17/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [中共秘密将“医生、科学家和工程师”送过墨西哥边境](/content/gnews/16/README.md)
+### [中共秘密将“医生、科学家和工程师”送过墨西哥边境](/content/gnews/18/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2021年12月1日文贵先生直播小飞象大雨围城速记](/content/gnews/17/README.md)
+### [2021年12月1日文贵先生直播小飞象大雨围城速记](/content/gnews/19/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [美日12月开启对抗中共导弹战的联合军演](/content/gnews/18/README.md)
+### [美日12月开启对抗中共导弹战的联合军演](/content/gnews/20/README.md)
  ` GTV新闻访谈`
 
-### [五国34舰联合军演守护印太](/content/gnews/19/README.md)
+### [五国34舰联合军演守护印太](/content/gnews/21/README.md)
  ` GTV新闻访谈`
 
-### [美军完成全球军力部署评估 重点应对中共](/content/gnews/20/README.md)
+### [美军完成全球军力部署评估 重点应对中共](/content/gnews/22/README.md)
  ` GTV新闻访谈`
 
-### [【粤语配音】2021年11月26日：青蒿素的功效](/content/gnews/21/README.md)
+### [【粤语配音】2021年11月26日：青蒿素的功效](/content/gnews/23/README.md)
  ` MOS香港部`
 
-### [日本全面暂停12月份抵日国际航班机位新增预订](/content/gnews/22/README.md)
+### [日本全面暂停12月份抵日国际航班机位新增预订](/content/gnews/24/README.md)
  ` 日本东京方舟农场`
 
-### [中共河南省拟建立新监控系统控制民众](/content/gnews/23/README.md)
+### [中共河南省拟建立新监控系统控制民众](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [文贵大直播 12/1 澳门洗米华背后 爆料革命的重大价值又一例证](/content/gnews/24/README.md)
+### [文贵大直播 12/1 澳门洗米华背后 爆料革命的重大价值又一例证](/content/gnews/26/README.md)
  ` 秘密翻译组-原创组`
 
-### [谎言背后的艾滋村 艾滋病真相触目惊心](/content/gnews/25/README.md)
+### [谎言背后的艾滋村 艾滋病真相触目惊心](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新冠新变种病例症状轻微但不容轻视](/content/gnews/26/README.md)
+### [新冠新变种病例症状轻微但不容轻视](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [欧盟力推“全球通道”基建战略对抗中共“一带一路”](/content/gnews/27/README.md)
+### [欧盟力推“全球通道”基建战略对抗中共“一带一路”](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [矢板明夫谈中国政治中的拍马屁文化](/content/gnews/28/README.md)
+### [矢板明夫谈中国政治中的拍马屁文化](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [疫苗乱象再现，重庆被爆近300人打假疫苗医护突“消失”](/content/gnews/29/README.md)
+### [疫苗乱象再现，重庆被爆近300人打假疫苗医护突“消失”](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [DC每日热点1201](/content/gnews/30/README.md)
+### [DC每日热点1201](/content/gnews/32/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中共将“援助”非洲10亿剂毒疫苗](/content/gnews/31/README.md)
- ` GTV新闻访谈`
-
-### [12/01/2021 国际财经快讯：鲍威尔称将加快结束债券购买；投资者押住中共病毒新变种影响不大，股市轰然走高](/content/gnews/32/README.md)
+### [12/01/2021 国际财经快讯：鲍威尔称将加快结束债券购买；投资者押住中共病毒新变种影响不大，股市轰然走高](/content/gnews/33/README.md)
  ` 秘密翻译组金融团队`
-
-### [圣路易斯联邦法庭阻止医疗人员强制疫苗令](/content/gnews/33/README.md)
- ` GTV新闻访谈`
 
 ### [西媒头条 — 第121期](/content/gnews/34/README.md)
  ` 西班牙巴塞罗那喜悦农场`

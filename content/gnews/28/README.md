@@ -2,54 +2,47 @@
 ---
 
 
-## 矢板明夫谈中国政治中的拍马屁文化
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1711209/)
+## 新冠新变种病例症状轻微但不容轻视
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1711222/)
 
-编译：Hopkins
+作者：纽约香草山信息部 – 诺雅
 
-【编者按】矢板明夫**（**1972年10月－），[日本](https://zh.wikipedia.org/wiki/%E6%97%A5%E6%9C%AC)知名记者、作家、外交专家、[时事评论员](https://zh.wikipedia.org/wiki/%E6%99%82%E4%BA%8B%E8%A9%95%E8%AB%96%E5%93%A1)，[栃木县](https://zh.wikipedia.org/wiki/%E6%A0%83%E6%9C%A8%E7%B8%A3)[矢板市](https://zh.wikipedia.org/wiki/%E7%9F%A2%E6%9D%BF%E5%B8%82)人，生于[中国](https://zh.wikipedia.org/wiki/%E4%B8%AD%E5%9C%8B)[天津市](https://zh.wikipedia.org/wiki/%E5%A4%A9%E6%B4%A5%E5%B8%82)，现为[产经新闻](https://zh.wikipedia.org/wiki/%E7%94%A2%E7%B6%93%E6%96%B0%E8%81%9E)[台北](https://zh.wikipedia.org/wiki/%E5%8F%B0%E5%8C%97)支局长，是知名的[中国通](https://zh.wikipedia.org/wiki/%E4%B8%AD%E5%9C%8B%E9%80%9A)。精通[华语](https://zh.wikipedia.org/wiki/%E8%8F%AF%E8%AA%9E)，[华语](https://zh.wikipedia.org/wiki/%E8%8F%AF%E8%AA%9E)有[第一语言](https://zh.wikipedia.org/wiki/%E7%AC%AC%E4%B8%80%E8%AA%9E%E8%A8%80)的程度，腔调属[北京官话](https://zh.wikipedia.org/wiki/%E5%8C%97%E4%BA%AC%E5%AE%98%E8%A9%B1)。曾经出版《习近平：共产中国最弱势的领袖》、《人民解放军的真相：中共200万私军的威胁、腐败与野心》、《曾经以为中国最幸福》等著作。对中国时事有独特的看法。现选编“矢板明夫俱樂部 Yaita Akio”的文章转发，供参考。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-9.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/2-5.jpg)
-照片出处：新华社网络资料
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-分析中国政治，周末跟大家聊聊拍马屁文化，该何时拍丶怎么拍丶和忍住不拍，都是官场重要一环。
+在11月30日更新的欧洲疫情简报中，欧洲疾病预防和控制中心表示，11个欧盟和欧洲经济区一共确诊了44起新冠病毒新变种病例，值得注意的是，这些病例均表现为无症状或症状轻微。截止目前，欧洲疾控中心还没有接到有关新变种病毒的严重病例或死亡报告。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/8.jpg)
+同日，最早发现新冠病毒奥密克戎变种的南非医学协会主席——安吉利克-科兹博士——在接受采访时表示，南非当地的大多数新变种病例都较为温和。科兹博士提到，新变种感染病例的初期症状信息包括最初两天感到疲倦或萎靡不振、喉咙发痒、身体酸痛、头痛，但感染者初期并不会咳嗽，也没有出现丧失嗅觉和味觉的现象。
 
-中国有几个人物的动向是我长年观察的，天津市委书记丶政治局委员李鸿忠是其中之一，我认为他是非习派的政要之中，政治敏感度最高的，又爱表现自己，从他的言行之中，可以看出一些新的风向。
+科兹博士进一步指出，对于奥密克戎变种来说，目前其仍然处于非常早期的阶段。此时，往往年轻人会先被感染，然后扩散至其他年龄层。对此，科兹博士强调，当民众出现上述类似症状时，应立即警觉并尽早寻求治疗，从而减少未来严重病例的出现。
 
-前不久，在李鸿忠的主导下，天津市政府连续举办了两场研讨会，都是学习 彭丽媛教授贺信精神，箇中值得玩味。
+参考链接：
+1) .[All Confirmed Cases of Omicron in Europe Are People Who Are “Asymptomatic or With Mild Symptoms”](https://www.infowars.com/posts/all-confirmed-cases-of-omicron-in-europe-are-people-who-are-asymptomatic-or-with-mild-symptoms/)
+2) . [Epidemiological update: Omicron variant of concern (VOC) – data as of 30 November 2021 (12.00)](https://www.ecdc.europa.eu/en/news-events/epidemiological-update-omicron-data-30-november-2021)
+3) . [Omicron cases have been “extremely mild” so far, South African doctor says](https://edition.cnn.com/world/live-news/omicron-covid-19-variant-11-30-21/h_801ead91dbb027b2e7f223a02b357b2d)
+4) . [Omicron symptoms mild so far, says South African doctor who spotted it](https://www.bbc.com/news/av/uk-59450988)
+5) . [What Dr. Angelique Coetzee Actually Said About Omicron Variant](https://www.snopes.com/news/2021/11/29/angelique-coetzee-omicron-variant/)
+6) . [South Africa Medical Chief Says New COVID Mutation Has Only Produced “Very Mild Cases”](https://www.infowars.com/posts/south-africa-medical-chief-says-new-covid-mutation-has-only-produced-very-mild-cases/)
 
-美国纽约的著名表演艺术学院茱莉亚学院，和中方在天津办了一个分校，10月26日落成，习近平夫人彭丽媛当天发了一封贺信，彭丽媛本身是学艺术的歌唱家，以前访美时参观过茱莉亚学院，发贺信本来是一件很正常的事情。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-我看了一下内容，就是一般的贺电，毫无亮点。但是，李鸿忠竟然把这封信位阶提升到，为新形势下开展对美人文交流指明了方向 的高度，把封贺信标榜成新的中美“乒乓外交”，引发了广泛讨论。
+总编：Irene木木
+编辑：Kathy文艺
+校正/发稿：Fei797
 
-很多的海外的中文媒体，把这件事当做娱乐新闻来看。因为李曾经说过“忠诚不绝对，就是绝对不忠诚”的言论，拥有“天下第一忠臣”的外号。
+**更多资讯，更多关注**
 
-所以这一次，李又被嘲讽为「把马屁拍到了新高度」，还有分析说今年65岁的李为了在明年的20大更上一层楼，已经赤膊上阵了，甚至还有人说李有“低级红、高级黑”之嫌。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-我认为，事情没这么简单。
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-李鸿忠本来是太子党李铁映的秘书，到广东挂职后得到了江派的提拔，然后又游走于团派和习派之间。从惠州市长丶到深圳市委书记丶湖北省委书记，步步高升，一路顺风顺水，他的成功绝不仅仅是靠拍马屁就能上来的。
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-要知道，中共的所有官员都擅长拍马屁，但要做到像李这样，在四十多年的仕途中，该拍的时候拍，不该拍的时候绝对不拍，是非常难的。
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-在政治上效忠表态，一般是越早越好。但是彭丽媛的贺信发出的2个星期后，6中全会闭幕当天，李才开始展开学习贺信运动。我认为，李是经过仔细研究分析了习的想法，甚至得到了某种暗示后才开始行动的。
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-我从李的行动中看到了三个新迹象：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
-第一，是对习的个人崇拜运动将全面展开；
-
-第二，是由中国官方主导的反美运动将渐渐收尾；
-
-第三，是第一夫人彭丽媛有可能走上政治的前台。
-
-记得文化大革命初期，毛泽东夫人江青，就是这样被一群马屁精拉出来的。大家不妨多方观察。
-
-信息来源：[**矢板明夫俱樂部**** Yaita Akio**](https://www.facebook.com/YaitaAkio/posts/127982869657623)
-
-**作者简介：**庆应义塾大学文学部,松下政经塾第18期,中国社会科学院(哲学)博士修了.产经新闻北京特派员(2007-2016),产经新闻台北支局长(2020起)。本专页仅阐述矢板明夫个人意见,不代表产经新闻的立场。
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.png)
 
 
  

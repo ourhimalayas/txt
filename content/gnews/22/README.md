@@ -2,35 +2,32 @@
 ---
 
 
-## 日本全面暂停12月份抵日国际航班机位新增预订
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1711257/)
+## 美军完成全球军力部署评估 重点应对中共
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1711306/)
 
-**撰稿：日本东京方舟农场 Kevin wang**
+作者：东京樱花团—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月29日，美国国防部宣布，美国已经完成了对全球军力部署的评估，随后，拜登也接纳了这份评估。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-01-下午11.53.30.png)
+有五角大楼官员表示，这份机密文件注重于亚太地区军力部署的调整，用以应对中共步步紧逼的挑战。 为此，该评估是美国军方在长达几个月的时间里与全球盟友协调后完成的。
 
-受到中共病毒新变异株Omicron在全球扩散的影响，日本政府再度收紧边境管制。12月1日，日本政府要求各家航空公司在12月内全面暂停接受抵日国际航班机位的新增预订。
+据悉，美国国防部国防政策副次长卡琳与国防部长主要聚焦中共，并将其视为步步紧逼的挑战，因此，这份全球军力部署评估的重点关注地区是印太地区。卡琳强调，该评估的结论显示，美国将加强与地区盟友和伙伴的合作，推进各项措施以增进地区稳定，遏阻中共潜在的军事侵略。
 
-据《中央社》报道，日本国土交通省已要求各家航空公司在12月1日至31日的一个月内，全面暂停接受抵日国际航班机位的新增预订。
+参考链接：[美国宣布完成全球军力部署评估 重点应对中国“步步紧逼的挑战”](https://www.voachinese.com/a/pentagon-global-posture-review-20211130/6333138.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-2.png)图片来自Photo AC
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-不过，在12月1日之前已完成机位预订者，其机位将不会被取消。由于暂停新增预约机位的对象包括旅居海外的日本人，因此尚未预订机位的日本人将无法在12月份内返国。
+总编：文特
+编辑：文特
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-据悉，日本本次边境管控措施原则上是暂停接受新的外国人的入境申请，同时将每日入境日本的人数上限调降到3500人左右。
-
-针对2022年1月以后的新增机位预订措施，日本国土交通省表示，将视疫情状况进行讨论，并于随后宣布。
-
-*参考链接：*
-
-[日本再嚴控邊境 暫停12月抵日航班機位新增預約](https://www.cna.com.tw/news/aopl/202112010260.aspx)
-
-* * *
-
-*素材采编：Kevin wang*
-
-*编辑：青衣青青*
-
-*发布：Ranting*
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
