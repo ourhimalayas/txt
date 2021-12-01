@@ -2,48 +2,16 @@
 ---
 
 
-## 新冠新变种病例症状轻微但不容轻视
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1711222/)
+## 【粤语配音】2021年11月26日：青蒿素的功效
+` MOS香港部` [轉載自GNews](https://gnews.org/zh-hans/1711296/)
 
-作者：纽约香草山信息部 – 诺雅
+纽约香草山-香港部
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-在11月30日更新的欧洲疫情简报中，欧洲疾病预防和控制中心表示，11个欧盟和欧洲经济区一共确诊了44起新冠病毒新变种病例，值得注意的是，这些病例均表现为无症状或症状轻微。截止目前，欧洲疾控中心还没有接到有关新变种病毒的严重病例或死亡报告。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/8.jpg)
-同日，最早发现新冠病毒奥密克戎变种的南非医学协会主席——安吉利克-科兹博士——在接受采访时表示，南非当地的大多数新变种病例都较为温和。科兹博士提到，新变种感染病例的初期症状信息包括最初两天感到疲倦或萎靡不振、喉咙发痒、身体酸痛、头痛，但感染者初期并不会咳嗽，也没有出现丧失嗅觉和味觉的现象。
-
-科兹博士进一步指出，对于奥密克戎变种来说，目前其仍然处于非常早期的阶段。此时，往往年轻人会先被感染，然后扩散至其他年龄层。对此，科兹博士强调，当民众出现上述类似症状时，应立即警觉并尽早寻求治疗，从而减少未来严重病例的出现。
-
-参考链接：
-1) .[All Confirmed Cases of Omicron in Europe Are People Who Are “Asymptomatic or With Mild Symptoms”](https://www.infowars.com/posts/all-confirmed-cases-of-omicron-in-europe-are-people-who-are-asymptomatic-or-with-mild-symptoms/)
-2) . [Epidemiological update: Omicron variant of concern (VOC) – data as of 30 November 2021 (12.00)](https://www.ecdc.europa.eu/en/news-events/epidemiological-update-omicron-data-30-november-2021)
-3) . [Omicron cases have been “extremely mild” so far, South African doctor says](https://edition.cnn.com/world/live-news/omicron-covid-19-variant-11-30-21/h_801ead91dbb027b2e7f223a02b357b2d)
-4) . [Omicron symptoms mild so far, says South African doctor who spotted it](https://www.bbc.com/news/av/uk-59450988)
-5) . [What Dr. Angelique Coetzee Actually Said About Omicron Variant](https://www.snopes.com/news/2021/11/29/angelique-coetzee-omicron-variant/)
-6) . [South Africa Medical Chief Says New COVID Mutation Has Only Produced “Very Mild Cases”](https://www.infowars.com/posts/south-africa-medical-chief-says-new-covid-mutation-has-only-produced-very-mild-cases/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
-
-总编：Irene木木
-编辑：Kathy文艺
-校正/发稿：Fei797
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+我今天的建议你们是一定要记住，打了疫苗的一定要吃好的青蒿素，在医嘱的情况下，这个是太管用了，打了疫苗的要吃。
+第二、女性绝对美容。
+第三、绝对壮阳。
+第四、对癌症绝对有绝效
+还有一个，更重要的兄弟姐妹，你看咱们G-Fashion马上推出了我用了几十年的秘诀：青蒿素和玉米地的咱们的化妆品，无色，男女适用，咱就要出来了，那就是青蒿素，还有一个大家要记住的：老人到老年所有的综合症青蒿素绝对管用。这是今天告诉青蒿素，特别是打了疫苗的，特别是有病的（感染ccp病毒的），我再重申一遍，所有羟氯喹不治病，羟氯喹是一个工具，羟氯喹+锌+伊维菌素绝对是防冠状病毒，治冠状病毒，这是他完全承认的，国内的战友，说，那位大胡子医生讲得是非常好的，他说，但是我告诉你，未来解疫苗他说它管用，它管用没那么厉害，青蒿素解疫苗绝对比它厉害。再一个，青蒿素吃了，吃正确了，几乎所有疫苗所有病毒没有任何可能侵害你身体，再告诉大家，你要天天吃羟氯喹+锌会吃死你的，一定记住！青蒿素不能天天吃，羟氯喹+锌绝对不能天天吃，伊维菌素一定要有中间2-3周的停止期，否则一定会吃死你的，所以说我今天再次告诉，这是救命啊！所以兄弟姐妹们一定要记住，铁，缺铁缺锌还有一个女性，还有一个不能天天吃，还要吃对，再一个就一定记住，青蒿素可以单独吃，然后补铁补啥的你看Eglise医生的那建议非常好！越来越发现青蒿素不仅是解药，不仅是病毒的解药它还治癌症，还壮阳，还壮（滋）阴，哇塞，神药！
 
  
 

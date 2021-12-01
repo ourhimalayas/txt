@@ -2,59 +2,54 @@
 ---
 
 
-## 研究：新冠“疫苗”在怀孕的前三个月杀死了十分之九的婴儿
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1711498/)
+## 英国监管机构命令 Facebook（Meta）出售 Giphy
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1711544/)
 
-作者：Dreddymd
-翻译：HimaFAFA
+编译：西班牙巴塞罗那喜悦农场-wenwu
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/研究.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-6.jpg)路透社/达多·鲁维奇
 
-发表在《 新英格兰医学杂志》  （NEJM）上的新研究发现，武汉冠状病毒（Covid-19）“疫苗”对孕妇接种来说还差得很远，并不像美国疾病控制与预防中心（CDC）声称的那样。
+竞争和市场管理局**(CMA)**表示，它发现去年对**Giphy**的收购将减少社交媒体平台之间以及显示广告方面的竞争。
 
-奥克兰大学高级讲师西蒙·索恩利博士和同样来自新西兰的阿莱莎·布洛克博士，对数据重新进行了分析，清楚地表明，不应为孕妇注射疫苗。
+最近被重新命名为**Meta Platforms**的**Facebook**表示，它可以对**CMA**的决定提出上诉。它有四周的时间进行上诉。
 
-证明，在接受疫苗后，新生儿的流产率高达 9% 。
+**CMA**对**Facebook-Giphy**的独立调查主席**Stuart McIntosh**说：**“****Facebook**和**Giphy**之间的合作已经消除了显示广告市场上的一个潜在挑战者；通过要求**Facebook**出售**Giphy**，我们正在保护数百万社交媒体用户，并促进数字广告的竞争和创新。**”**
 
-根据这些数据，新西兰研究人员计算出在怀孕 20 周前注射疫苗的女性自然流产率为 81.9% 至 91.2%。（相关： 最新科学证据：中国病毒注射导致更多疾病。）
+**Facebook**说它不同意该决定。
 
-“我们质疑支持在怀孕早期使用 mRNA 疫苗的结论，现在疫苗已经匆忙地被纳入许多国际疫苗使用指南，包括在新西兰，”研究人员写道。
+**“**我们正在审查这一决定，并考虑所有的选择，包括上诉，**”****Meta**的一位发言人在一份声明中说。
 
-“在妊娠晚期人员中的接种来代表整个怀孕期间接种影响假设是有问题的，并且忽略了过去使用沙利度胺等药物的经验。在确定对这些人员进行追踪，至少到围产期或怀孕期间，接种疫苗的母亲所生婴儿的长期安全性之前，无法确定该产品在妊娠早期和中期使用时的安全性证据。”
+**CMA**在**10**月对该公司进行了创纪录的**7000**万美元的[罚款](https://www.reuters.com/technology/britain-fines-facebook-70-mln-breaching-order-giphy-deal-2021-10-20/)，因为它违反了在调查收购期间实施的命令，它在**8**月说，它可能需要**Facebook**出售**Giphy**（[**GIF**制造商](https://www.reuters.com/technology/facebook-may-have-sell-giphy-britains-competition-concerns-2021-08-12/)）。
 
-##### **辉瑞承认小数据不支持孕妇接种疫苗**
+竞争对手接入
 
-为了给自己辩护，辉瑞暗示网站上的某些事实，并承认最新数据“给孕妇接种疫苗不足以证明怀孕期与疫苗相关的风险”。
+据报道，Facebook在2020年5月以4亿美元的价格收购了制作和分享动画图片（即GIFs）的网站Giphy，以便将该业务与其Instagram照片分享应用整合。它已向CMA为该交易进行了辩护。
 
-同时，根据其研究人员的说法，对于怀孕的女性接种疫苗目前没有任何明显的不安全的信号，因此他们在此已获批准。
+GIFs的另一个主要供应商是谷歌的Tenor。
 
-“我们知道，一些数据已被用于计算更高的流产率，”疾控中心在首次授权将这种注射剂用于孕妇时声称。
+然而，监管机构担心Meta可能会拒绝竞争对手进入Giphy GIFs，或迫使TikTok、Twitter和Snapchat等公司进入;监管机构还表示，Giphy在交易前在美国推出的创新广告服务可能会扩展到其他市场，比如英国，Meta控制着70亿英镑（93亿美元）的显示广告市场的近一半;CMA一直在加强对大科技领域的监管。
 
-“根据现有数据，这不是一个适当的计算，因为有 1,000 多例怀孕正在进行中，并且在报告发布时无法获得其结果数据。 大约 10-25% 的已知怀孕以流产告终。 疾控中心的专家将继续研究新冠疫苗接种对怀孕的影响，并密切监测任何安全问题。” 疾控中心正在加倍努力为注射辩护，声称流产风险完全在被认为在可以接受的“范围”内。该机构还表示，怀孕期间注射的“好处”远远“超过任何已知或潜在的风险” 。
+上周，Alphabet公司的谷歌承诺对其Chrome浏览器的数据使用进行更多限制，以解决CMA对禁止广告商用来追踪消费者的第三方cookies计划的担忧。
 
-除了少数例外，疾控中心表示，所有孕妇都应该卷起袖子，快速接种疫苗 。它仍在推动这样一种说法，即如果新冠病毒的检测结果呈“阳性”，则不接种会增加“死亡或严重后果”的风险。
+**简评：**
 
-“没有人应该服用这种毒药，”大纪元时报的一位评论者指出，  这些注射不适合任何人体，无论是孕妇还是其他人。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-7.jpg)REUTERS/Dado Ruvic/Illustration
 
-来源：https://dreddymd.com/2021/11/06/covid-vaccines-kill-nine-out-of-10-babies-in-first-trimester-of-pregnancy/
+**一则[路透社](https://www.reuters.com/technology/facebook-risks-meta-flop-metaverse-developers-say-2021-12-01/)的相关报道。**
 
-（文章仅代表作者个人观点）
+**元空间参与者怀疑脸书是否准备好接受推动元宇宙的创造力和利润的精神（元宇宙的投资者和建设者，也是Animoca Brands的主席和联合创始人Yat Siu表示：脸书的元宇宙是假的）。**
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+**基于区块链的资产交易产品，不可伪造的代币（NFTs）在很大程度上是不受监管的，欺诈者潜伏其中。任何人都可以创建和出售NFT，而且对其价值没有任何保证。**
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)](https://www.gettr.com/user/7UPgogo)
+**里德·史密斯律师事务所（Reed Smith）专门从事技术和媒体法的合伙人索菲·古森斯（Sophie Goossens）说：“这让法律界人士有点头疼，他们试图将词汇与实际发生的情况相协调；法律术语中的所有权意味着……（通常）对一种资源的垄断，这种垄断由国家强制执行；你被授予对国家信托基金的数字所有权的权利类型略有不同。你可能没有权利完全控制你作为NFTs拥有的资产。”（可见，我们喜币可追查的强大）**
 
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+**新闻来源：**[reuters.com] [UK watchdog orders Facebook owner Meta to sell Giphy](https://www.reuters.com/technology/britain-regulator-directs-facebook-sell-gif-maker-giphy-2021-11-30/) | 发布时间：2021年11月30日
 
-**关注我们**
+* * *
 
-Discord 账号
+*发稿：信心的选择*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-1.jpeg)
 
  
 
