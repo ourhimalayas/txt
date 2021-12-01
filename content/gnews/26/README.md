@@ -2,43 +2,49 @@
 ---
 
 
-## 服务业成本创新高，英国12月即将进入加息周期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1710179/)
+## 有声|英国发现两例欧米茄新变种病例
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1710211/)
 
-**【雅典娜快讯】，紧贴时代脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1.jpg)图片来源：The Wall Street Journal
-整理报道：月映万川
-编辑：文泓
+配音：香草山美食部 – 玫瑰园
 
-11月30日，据路透社报道，周二公布的一项商业调查显示，英国服务业企业的（经营）成本正以20多年来最快的速度上升，这表明英国央行可能很快就会加息。
 
-英国工业联合会（CBI）表示，服务业的季度调查显示，自1998年开始调查以来，商业和消费服务行业企业的成本目前的增长速度是最快的。
 
-劳埃德银行的数据显示，创纪录的有50%的企业计划提高价格，其中四分之一的企业预计在未来12个月内加薪3%或更多。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
 
-CBI经济学家夏洛特·丹迪说：“成本的创纪录增长，有可能在下个季度给服务业的复苏带来巨大的消极影响。”
 
-这两项调查都是在11月上旬进行的，近日关于新冠Omicron变种病毒的消息挫伤了金融市场投资者的信心，现在市场认为英国央行在12月加息的可能性约为60%。
 
-英国消费者价格通货膨胀率在10月份创下10年来的新高，达到4.2%，英国央行预计明年将达到近5%。
+英国卫生部长萨吉德·贾维德表示，切姆斯福德和诺丁汉发现了两例新冠病毒欧米茄新变种病例！
 
-在短期内，更高的利率不会减少因全球能源价格飙升和供应链困难而造成的通胀压力。因为如果公司提高价格，工人要求提高工资，预计通货膨胀率将长期升高，就会产生连锁反应。
+同时，卫生与社会福利部表示，检测呈阳性的个人及其所有家庭成员正在接受重新测试，并被告知在进一步检测和接触者追踪期间要求进行自我隔离。
 
-周二的英国工业联合会数据显示，企业已经认为他们将无法完全转嫁更高的成本。尽管平均销售价格预计将创下新高，但由于（经营）成本上升，未来三个月服务业公司的利润增长预计将停滞。
+该部门表示：“英国卫生安全局正在阳性病例可能具有传染性的地点进行有针对性的检测。”
 
-CBI报告称，自2015年以来，目前的商业和专业服务企业的招聘速度是最快的。
+“为应对当前新冠病毒欧米茄新变种的发展形势，英国正在积极采取果断行动保护公共卫生。正在跟进已确认的病例和联系人，并要求隔离并在必要时接受测试。现在将在病例周边地区进行强化测试。‘’
 
-招聘网站Indeed周二发布的数据显示，兽医、验光师、审计师、动画师和卡车技师是他们的客户认为最紧缺的职位。
+原文链接：[英国发现两例欧米茄新变种病例](https://gnews.org/zh-hans/1706688/)
 
-原文链接：[UK services industry sees record cost inflation – CBI](https://www.reuters.com/markets/europe/uk-services-industry-sees-record-cost-inflation-cbi-2021-11-30/)
+音频处理：喜山必胜Maverick
+发稿：Daxia
 
-发布：kk
+[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-6.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-6.jpg)
+
+
 
  
 

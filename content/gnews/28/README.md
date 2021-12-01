@@ -2,38 +2,43 @@
 ---
 
 
-## 主媒加入，申请解除司法部阻止班农分享千份文件
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1710142/)
+## 有声|推特CEO辞职
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1710205/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/https___cdn.cnn_.com_cnnnext_dam_assets_211115191924-01-bannon-1115.jpg)图片来源：CNN
-**翻译：**小鱼儿
-**编辑：**翼族
+配音：香草山美食部 – 玫瑰园
 
-班农本月被起诉，并被指控藐视国会，因为他没有遵守众议院1月6日委员会的传票。
 
-目前检察官正在寻求一项保护令，禁止班农或其团队披露“藐视国会案”的案件材料，但媒体团体提交动议，站在班农一方辩解。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-该命令将严格限制班农分享信息，这些信息是联邦调查局作为正常取证程序的一部分，并且已经开始移交给法庭。根据政府先前的文件，这些信息包括1000多页的证人证词、大陪审团材料，甚至包括众议院1月6日调查国会暴乱的委员会工作人员的电子邮件。
 
-一个主流媒体公司的联盟提交了一份法律简报，支持史蒂文·班农。
+11月29日，杰克·多西发布了辞职公开信，辞去推特首席执行官一职。
 
-新闻集团认为，政府提议的命令将违反美国第一修正案。加入申请的还有CNN、ABC、NBC、《纽约时报》和《华盛顿邮报》等主要媒体。
+推特股价在开盘前上涨12%。消息人士称，推特股价上涨是因为市场认为多西的辞职标志着很快将出现对推特的并购案。但相反意见则认为，推特面临铺天盖地的诉讼和天文数额的赔偿，前景黯淡。
 
-周日，联邦政府在自己的动议中认为，班农正在寻求“在媒体上，而不是在法庭上审理此案”。
+近年来，以推特、脸书为首的“硅谷大科技寡头”无视美国宪法第一修正案，打压自由言论，利用有政治或利益倾向的言论审查禁言、删帖，直到永久封号。推特因此官司缠身，多西多次被国会传唤参加听证会。分析人士称，多西辞职有利于他从争议和诉讼中脱身。
 
-班农在法院外说：”我现在告诉你，对于梅里克·加兰、南希·佩洛西和乔·拜登来说，这将是来自地狱的罪。
+原文链接：[推特CEO辞职](https://gnews.org/zh-hans/1708527/)
 
-**参考新闻：**[EXCLUSIVE: CNN, ABC, and more than a dozen media companies file legal brief JOINING Steve Bannon’s bid to lift the DOJ’s order stopping him sharing 1,000 files in his contempt of Congress case](CNN,%20ABC,%20and%20more%20than%20a%20dozen%20media%20companies%20file%20legal%20brief%20JOINING%20Steve%20Bannon’s%20bid%20to%20lift%20the%20DOJ’s%20order%20stopping%20him%20sharing%201,000%20files%20in%20his%20contempt%20of%20Congress%20case)
+音频处理：喜山必胜Maverick
+发稿：Daxia
 
-*发布：翼族*
+[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-6.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-6.jpg)
 
 
 

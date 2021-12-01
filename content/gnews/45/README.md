@@ -2,21 +2,23 @@
 ---
 
 
-## 动物学家彼得-达扎克承认在中共实验室制造冠状病毒
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1709569/)
+## 台湾与立陶宛考虑组建“被中共国制裁者联盟”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1709570/)
 
-作者：纽约香草山 – 童谣
+作者：纽约香草山 – 斗阵来拼
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-消息媒体11月28日报道，有文件和电子邮件证据表明，彼得-达扎克承认他和蝠奇在武汉病毒实验室，同中共病毒学家合作开展工作。2016年3月28日，彼得-达扎克确切地描述了科学家如何在中共的实验室里制造，能够导致全球病毒大流行的冠状病毒。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture3-25.jpg)
-彼得-达扎克说：我们在蝙蝠身上发现了一大堆冠状病毒，其中一些看起来与SARS非常相似，所以我们对刺突蛋白进行测序。然后从这些病毒中创造出一种，能够轻易与人体细胞结合的刺突蛋白。每走一步，都会越来越接近可以对人产生致病性的病毒。
+台湾媒体11月29日报道，立陶宛国会友台小组主席马尔德基斯率领的国会议员团28日清晨抵台，总统蔡英文于当地29日上午亲自接见，盼分享民主经验，促进台湾和波海3国建立稳健、紧密关系。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture4-21.jpg)
+台湾外交部长吴钊燮在29日下午通过外交部推特发文表示，很开心今天跟立陶宛国会议员见面，“我们正考虑组成一个‘被中共国制裁者联盟’，借此扩大国际间的合作，保护自由与民主，对抗威权主义”。
 
-参考链接：[动物学家彼得-达扎克承认在中共实验室制造冠状病毒](https://www.thegatewaypundit.com/2021/11/flashback-2016-faucis-cohort-peter-daszak-explains-scientists-can-perfectly-create-coronavirus-china-lab-can-lead-global-pandemic/)
+参考链接：
+1. [台湾与立陶宛考虑组建“被中共国制裁者联盟”](https://www.ftvnews.com.tw/news/detail/2021B29W0191)
+2. [台湾与立陶宛考虑组建“被中共国制裁者联盟”](https://twitter.com/MOFA_Taiwan/status/1465218691209961477)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-总编：文特
-编辑：木白
+总编：飞虹
+编辑：飞虹
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**

@@ -2,40 +2,40 @@
 ---
 
 
-## 菲律宾政府称地方政府有权强制人民接种新冠疫苗
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1710066/)
+## 主媒加入，申请解除司法部阻止班农分享千份文件
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1710142/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/https___cdn.cnn_.com_cnnnext_dam_assets_211115191924-01-bannon-1115.jpg)图片来源：CNN
+**翻译：**小鱼儿
+**编辑：**翼族
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/philippines.jpg)
+班农本月被起诉，并被指控藐视国会，因为他没有遵守众议院1月6日委员会的传票。
 
+目前检察官正在寻求一项保护令，禁止班农或其团队披露“藐视国会案”的案件材料，但媒体团体提交动议，站在班农一方辩解。
 
+该命令将严格限制班农分享信息，这些信息是联邦调查局作为正常取证程序的一部分，并且已经开始移交给法庭。根据政府先前的文件，这些信息包括1000多页的证人证词、大陪审团材料，甚至包括众议院1月6日调查国会暴乱的委员会工作人员的电子邮件。
 
-图片来源：Reuters
+一个主流媒体公司的联盟提交了一份法律简报，支持史蒂文·班农。
 
+新闻集团认为，政府提议的命令将违反美国第一修正案。加入申请的还有CNN、ABC、NBC、《纽约时报》和《华盛顿邮报》等主要媒体。
 
-#### 编译：小红帽
+周日，联邦政府在自己的动议中认为，班农正在寻求“在媒体上，而不是在法庭上审理此案”。
 
-菲律宾地方政府部门（LGU）有权强制人民接种新冠（Covid-19）疫苗，以消除人民对新冠疫苗的犹豫不决和对某个疫苗品牌的偏好。
+班农在法院外说：”我现在告诉你，对于梅里克·加兰、南希·佩洛西和乔·拜登来说，这将是来自地狱的罪。
 
-内政和地方政府部（DILG）秘书爱德华多·阿诺（Eduardo Año）表示，根据《地方政府法》第16条，地方行政长官有自主权。也就是说，可以发布行政命令和法令。
+**参考新闻：**[EXCLUSIVE: CNN, ABC, and more than a dozen media companies file legal brief JOINING Steve Bannon’s bid to lift the DOJ’s order stopping him sharing 1,000 files in his contempt of Congress case](CNN,%20ABC,%20and%20more%20than%20a%20dozen%20media%20companies%20file%20legal%20brief%20JOINING%20Steve%20Bannon’s%20bid%20to%20lift%20the%20DOJ’s%20order%20stopping%20him%20sharing%201,000%20files%20in%20his%20contempt%20of%20Congress%20case)
 
-“因此，虽然我们不能真正实施强制性法律，因为我们没有法律，没有国家法律，但至少通过《地方政府法》第16条，地方行政长官可以发布行政命令或法令，以保护其选民。这被认为是合法的，除非被法院阻止。”周一晚上，阿诺在马拉坎南宫与国家抗击新冠病毒工作组、医学专家的会议上告诉罗德里戈·杜特尔特（Rodrigo Duterte）总统。
+*发布：翼族*
 
-阿诺表示：“我们已经有地方政府部门宣布强制接种新冠疫苗，实际上，我们正在鼓励他们这样做。未接种新冠疫苗的选民会被限制到其他城镇旅行。让他们感受到压力、艰辛和困难，然后他们才会愿意接受疫苗接种”。
-
-在另一次采访中，菲律宾内政部副部长乔纳森·马来亚(Jonathan Malaya)指出，一些地方政府机构已经制定了地方法令，限制其未接种新冠疫苗的选民的行动。
-
-**参考新闻：** [LGUs can order mandatory vaccination: DILG | Philippine News Agency (pna.gov.ph)](https://www.pna.gov.ph/articles/1161370)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
+**更多资讯，请关注：
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
 
  
 
