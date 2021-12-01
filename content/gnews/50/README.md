@@ -2,44 +2,30 @@
 ---
 
 
-## 希腊将对60岁以上未接种疫苗者罚款
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1709321/)
+## 腾讯+阿里+美团+京东市值蒸发超3000亿港元
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1709627/)
 
-**翻译：月映万川**
-**编辑：Candy**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Unknown-31.jpg)腾讯+阿里+美团+京东市值蒸发超3000亿港元 网络图片
+据AI财经社11月30日报道，恒生科技指数30日跌幅扩大，美团盘中跌近6%，京东超5%，阿里巴巴近5%、腾讯控股一度跌近3%。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/希腊.png)图片来源：perthnow.com.au
+若按盘中最大跌幅计算，腾讯控股、阿里巴巴市值蒸发均超千亿港元，美团市值蒸发约850亿港元，京东超550亿港元。四家科技巨头合计蒸发市值超过3000亿港元。
+
+跌跌跌，一路跌。进入12月份，恒生股指开启新一轮“跌”模式。跌是正常的，不跌拿什么支撑呢？本来就是面条产业，又细又薄，还没有科技含量，除了卖假货就是偷的科技。这个寒冬很多人会倾家荡产，很多人会因为继续强推疫苗而失去生命。这个世界还要继续容忍中共的假骗偷和草菅人命到多久呢？
+
+新闻参考链接：[https://c.m.163.com/news/a/GQ2JFTJA0519D3BI.html?spss=newsapp](https://c.m.163.com/news/a/GQ2JFTJA0519D3BI.html?spss=newsapp)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-希腊人在60岁以上、尚未接种冠状病毒疫苗的，如果想避免高额的罚款，就必须在1月16日之前接种第一针疫苗。
+编辑：【英国伦敦喜庄园编辑部】
 
-希腊总理基里亚科斯·米佐塔基斯（Kyriakos Mitsotakis）周二宣布，每个60岁以上拒绝接种疫苗的公民，将被处以每月100欧元（159澳元）的罚款，这对许多希腊退休人员来说是一笔不小的数目。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-“目前只有一个年龄段的人仍然坚持等待而不接种疫苗，即：在58万名60岁以上未接种疫苗的公民中，只有6万名在11月接种了疫苗。而不幸的是，正是这些60岁以上的人生病和死亡。”米佐塔基斯说。
 
-为了追踪那些不愿意接受注射的人，该国的安全机构将把他们的数据传递给税务局，然后由税务局收取罚款。
-
-然后，这笔钱将被用于医院。
-
-总理说：“这不是一种惩罚，而是对健康的奖励，是一种正义的行为。”
-
-根据欧盟卫生机构ECDC的数据，希腊1100万居民中有62%的人已经完全接种疫苗。
-
-到目前为止，政府还没有计划实施另一次封锁来对抗冠状病毒。
-
-相反，希腊政府已经对未接种疫苗的人实施了更为严格的限制，包括在访问公共机构时强制进行新冠病毒测试。
-
-而未接种者也被拒绝进入文化场所，健身中心和餐厅。
-
-原文链接：[Greece to fine unvaccinated people over 60](https://www.perthnow.com.au/news/coronavirus/greece-to-fine-unvaccinated-people-over-60-c-4764550)
-
-***发布：Candy***
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

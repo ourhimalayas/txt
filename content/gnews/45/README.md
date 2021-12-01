@@ -2,28 +2,37 @@
 ---
 
 
-## 中共国11月制造业PMI指数创三个月最低
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1709800/)
+## 视频| 灾难恐一触即发
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1709990/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-993.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.haojingui.com%2Fd%2Ffile%2Fpmizhishu%2F2016-07-01%2Fea5c400b7c21ab6ac2db674506a9c4ad.jpg&amp;imgrefurl=https%3A%2F%2Fwww.haojingui.com%2Fpmi%2F1310.html&amp;tbnid=_r8wOjxGh_N0MM&amp;vet=12ahUKEwinvaWsysH0AhWVwIsBHaGeAYMQMygQegUIARC9AQ..i&amp;docid=1Hq6DmFghXeLYM&amp;w=386&amp;h=277&amp;itg=1&amp;q=PMI%E6%8C%87%E6%95%B0&amp;ved=2ahUKEwinvaWsysH0AhWVwIsBHaGeAYMQMygQegUIARC9AQ)
-财新/Markit周三联合公布，11月经季节性调整的中共国制造业采购经理人指数(PMI)降至49.9，创三个月最低。
+## 摘自2021.11.28郭先生大直播
 
-该指数时隔两个月再度跌破荣枯线，主因疫情反复及产品售价高等，导致需求相对低迷。11月制造业新订单分项指数为三个月来首次跌破50，亦创三个月低点。
+制作：香草山视频部
 
-Markit网站刊登的新闻稿并显示，11月制造业产出分项指数返回50上方，此前连续三个月在50下方的萎缩区域徘徊。新闻稿并指出，顾客需求低迷，成本上扬，部分企业用电受限，拖累了整体增速。
 
-由于调查样本侧重点不同，中共国官方和财新制造业PMI通常会出现背离。昨日公布的中国11月官方制造业采购经理人指数(PMI)优预期重返扩张区间，升至50.1，追平8月的50.1，不过仅生产指数高于临界点，其余四大分类指数均低于临界点。
 
-受中共病毒疫情爆发影响，财新制造业PMI在2020年2月曾大幅降至40.3，创2004年4月本项调查开启以来纪录最低。
+你觉得美国这经济能好下去吗现在？各国隔离状态下的经济金融能稳定吗，我告诉你最大的问题就是共产党所希望的——每个国家每个城市真正地开始起了反政府动乱！这种动乱是完全不可预测不可控的，一秒钟“啪”就出现了，你都想像不到出什么（事）！接着，伴随来的灾难在人类上从来没有单独发生过，你看一战二战，一战之后，整个西班牙大病毒，死了人家多少人，一战经济大萧条，“咵”这个经济大生长，然后是大病毒。到了二战，差点把人类给灭了！二战之后，经济又出现了一个大膨胀的大萧条。战争和天灾，和人祸和传染疾病，从来没有一次出现过，单独出现过，他都是伴随着一、二、三一起出现的。你觉得这种情况下的人类经济能好下去？
 
-中国财新传媒2015年6月底宣布获得Markit公司编制的PMI在中国的冠名权，财新中国PMI于当年8月起正式发布，更名后PMI统计方法不变。PMI高于50表示扩张，低于50则表明萎缩。
+我今天告诉战友们，我没想要你们钱，我只想要你们有智慧，我想让你们安全。你们所有的行为，兄弟姐妹们，90%以上的人都是天真得跟小孩子级的。绝对不是你家里边抽屉里边土里埋点现金，弄点什么青蒿素弄点什么伊维菌素，然后藏点散银子你就能活下去，绝对不是！首要就两条，第一条，一定要和新中国联邦农场联合一起行动。你们别听我的，看看一战二战和所有这些国家乱的时候，当时利比亚我好几个哥们在那，就是卡扎菲在临死前被内乱军队到处追杀的时候，被抢劫的外国人，被强奸的被杀害的，没有一个人报道，没有一个人记得的，而且很多也是华人，还有台湾人和日本人。没有人记得，你都在那块待几十年了，谁还记得你，你跟这都断了谁记得你！所以我们要有集体的大家的力量，第二、集体的给你帮助是你个人无法实现的。中国的经济危机将遍延全世界，只有喜系列绝对是能让大家把经济和生活紧紧地连在一起。
 
-消息来源：**[中国11月制造业PMI跌破荣枯线至49.9 产出回暖但新订单低迷–财新](https://cn.reuters.com/article/caixin-manufacturing-pmi-1201-wedn-idCNKBS2IG2SL?il=0)**
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
+
+发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
