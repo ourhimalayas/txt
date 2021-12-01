@@ -2,32 +2,40 @@
 ---
 
 
-## 美联储将减少经济刺激措施
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1710112/)
+## 主媒加入，申请解除司法部阻止班农分享千份文件
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1710142/)
 
-**撰稿：Grace**
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/https___cdn.cnn_.com_cnnnext_dam_assets_211115191924-01-bannon-1115.jpg)图片来源：CNN
+**翻译：**小鱼儿
+**编辑：**翼族
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-11-30-at-11.52.33-PM.jpeg)图片来源：gateway pundit
-据Omaha World-Herald 11月30日报道，美联储主席杰罗姆·鲍威尔（Jerome Powell）周二表示，美联储将考虑更快地采取行动，缩减其超低利率政策，以应对更高的通货膨胀。鲍威尔认为，通货膨胀可能会持续到明年。
+班农本月被起诉，并被指控藐视国会，因为他没有遵守众议院1月6日委员会的传票。
 
-报道称，在鲍威尔发表上述言论之前，最近几周其他美联储官员已经表示，美联储应考虑比目前计划更快地结束超低利率政策。 他们提到了对通胀的担忧，美国的通货膨胀已经跃升至三十年来的高点。
+目前检察官正在寻求一项保护令，禁止班农或其团队披露“藐视国会案”的案件材料，但媒体团体提交动议，站在班农一方辩解。
 
-鲍威尔承认，价格上涨比美联储预期的要严重，而且会比政策制定者最初想象的持续时间更长。他表示，”过渡性 “一词不再能作为对通货膨胀的描述，现在可能是让这个词退休的时候了。
+该命令将严格限制班农分享信息，这些信息是联邦调查局作为正常取证程序的一部分，并且已经开始移交给法庭。根据政府先前的文件，这些信息包括1000多页的证人证词、大陪审团材料，甚至包括众议院1月6日调查国会暴乱的委员会工作人员的电子邮件。
 
-另外，为了降低长期借贷成本，美联储已经开始减少其每月的债券购买量，并将在明年6月份结束这些购买。但鲍威尔明确表示，美联储官员将在12月中旬的下一次会议上讨论更快地削减这些购买量。
+一个主流媒体公司的联盟提交了一份法律简报，支持史蒂文·班农。
 
-报道指出，美联储这样的做法，将使美联储最早于明年上半年开始提高其关键短期利率。更高的美联储利率将反过来提高抵押贷款、信用卡和一些商业贷款的借贷成本。
+新闻集团认为，政府提议的命令将违反美国第一修正案。加入申请的还有CNN、ABC、NBC、《纽约时报》和《华盛顿邮报》等主要媒体。
 
-鲍威尔还说，美联储应该在下一次会议上，及时了解更多关于变种中共病毒omicron的潜在经济影响。他表示，就目前而言，omicron还没有被纳入美联储经济前景的考虑范围。
+周日，联邦政府在自己的动议中认为，班农正在寻求“在媒体上，而不是在法庭上审理此案”。
 
-据报道，股价在鲍威尔的评论后暴跌，道琼斯工业平均指数在午盘下跌约1.5%。许多投资者曾希望，鲍威尔会发出信号，表明美联储将推迟任何政策变化，直到omicron变体的影响变得更加清晰。可是相反，鲍威尔暗示美联储已经果断地转向减少经济刺激措施。
+班农在法院外说：”我现在告诉你，对于梅里克·加兰、南希·佩洛西和乔·拜登来说，这将是来自地狱的罪。
 
-在上周，美联储发布的11月会议记录显示，17位美联储决策者中的一些人支持更快减少债券购买，尤其是在通胀恶化的情况下。这将使美联储有机会最早在明年上半年提高其基准利率。
+**参考新闻：**[EXCLUSIVE: CNN, ABC, and more than a dozen media companies file legal brief JOINING Steve Bannon’s bid to lift the DOJ’s order stopping him sharing 1,000 files in his contempt of Congress case](CNN,%20ABC,%20and%20more%20than%20a%20dozen%20media%20companies%20file%20legal%20brief%20JOINING%20Steve%20Bannon’s%20bid%20to%20lift%20the%20DOJ’s%20order%20stopping%20him%20sharing%201,000%20files%20in%20his%20contempt%20of%20Congress%20case)
 
-当时，投资者预计明年会有三次加息，但自从新的中共病毒变种出现后，这么多次加息的几率已经急剧下降了。
+*发布：翼族*
 
-**新闻来源：[Powell says Fed may accelerate pullback in economic support](https://omaha.com/news/national/powell-covid-19-variant-clouds-inflation-economic-outlook/article_ea40b850-b710-5fa8-8c38-b4fd98ae8693.html)**
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
 
  
 

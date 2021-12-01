@@ -2,33 +2,34 @@
 ---
 
 
-## 多国秘密协助台湾研发自制潜艇
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1709943/)
+## 视频| 习近平是怎样成为独裁之王的（上）
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1709975/)
 
-作者：纽约香草山 – 飞虹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月29日，有媒体发表了一篇有关台湾秘密潜艇国产计划进展，以及各国秘密提供或协助台湾研发关键技术的特别报道。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture5-9.jpg)
-报道称，美国是台湾最大的武器供应国，但由于长期只生产核动力潜艇，在向台湾提供急需的潜艇方面力不从心。目前，鉴于中共对台湾的军事恫吓日益升级，多个国家的潜艇技术公司，在征得各自政府的批准后，正在秘密协助台湾的自制潜艇计划。
+## 摘自2021.11.28郭先生大直播
 
-台湾的潜舰生产计划始于2017年，自动工以来，已经从至少7个国家秘密采购或征集到了潜艇设计建造所需的关键技术、部件和专业人才。美国、英国、澳大利亚、韩货等都向台湾提供了支持。
+制作：香草山视频部
 
-参考链接：[多国秘密协助台湾研发自制潜艇](https://www.voachinese.com/a/as-china-menaces-taiwan-the-island-s-friends-aid-its-secretive-submarine-project-20211129/6332255.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-总编：文特
-编辑：木白
-校对/发稿：Hetangyuese
+他（习近平）在福建的时候他就想把台湾给弄下来，而且习近平在总参的时候，作为一个普通的军人的时候就写过一本中国共产党的历史责任就是要尽快解放台湾，很多人不知道这件事，我对习近平实在太了解了，因为他老婆是我老家郓城人，我是古城的。我们俩目视距离，就是曼哈顿南边到北边那么远，他妻子是我的说的那个就是我的宋先生的父亲把他妻子给带出去的，他父亲是个当地武装部的干部，他家里的人我们都很熟，是在我之后认识他们之后才认识习近平，习当时是离婚之后很惨的，他就是想自杀了，不想活了，他那个时候是个没人理的人，这个人是一个变态的性格，他是屡次从小三次被抓，父亲吃屎，母亲对他的整个地不能照顾，还有他在社会上被打压，到了总参在总参也被打压，他最早学得是什么概念呢，最早就从毛主席的著作开始的，毛泽东的著作里面很多没有公开应对台湾的陈述，说台湾对中国的边际作用，他就学那一门啦，他就认为台湾是我的大事，所以他就最早在总参就说出了要拿回台湾是中国共产党的历史性任务和责任。习就觉得台湾事大，就研究台湾，所以他在河北正定专门写台湾对中华人民14亿中国人民，我们要有共同的选举权。这是习近平写的，本身就是魔，没有人可以来影响他，他就是一心觉得打了台湾我就是中国秦始皇！
+
+
+
+发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg)
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

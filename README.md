@@ -15,140 +15,140 @@
 
 ---
 
-### [影响到数百万美国人的疫苗强制令被暂时阻止](/content/gnews/1/README.md)
+### [国防部长奥斯汀要求国民警卫队接种疫苗 否则不得领取工资](/content/gnews/1/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [英军情六处：中共日益成为英国及其盟国的最大威胁](/content/gnews/2/README.md)
+### [影响到数百万美国人的疫苗强制令被暂时阻止](/content/gnews/2/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [南非医生认为新冠“疫苗”是为了减少人口而有意设计](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [英军情六处：中共日益成为英国及其盟国的最大威胁](/content/gnews/4/README.md)
  ` 日本东京方舟农场`
 
-### [秘翻在线：【速报】日本确诊第二例新变异病毒感染者](/content/gnews/3/README.md)
+### [秘翻在线：【速报】日本确诊第二例新变异病毒感染者](/content/gnews/5/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [兰州中国银行倒闭了！](/content/gnews/4/README.md)
+### [兰州中国银行倒闭了！](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [DC大中华时事：上海检察机关依法对尹家绪提起公诉](/content/gnews/5/README.md)
+### [DC大中华时事：上海检察机关依法对尹家绪提起公诉](/content/gnews/7/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [欧盟呼吁中共政府“确实”保证彭帅的安全](/content/gnews/6/README.md)
+### [欧盟呼吁中共政府“确实”保证彭帅的安全](/content/gnews/8/README.md)
  ` 日本东京方舟农场`
 
-### [每日快报：英国首相称将招募军人志愿者协助疫苗加强针注射](/content/gnews/7/README.md)
+### [每日快报：英国首相称将招募军人志愿者协助疫苗加强针注射](/content/gnews/9/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [香港文学奖参赛诗集因涉及雨伞运动及刘晓波遭下架](/content/gnews/8/README.md)
+### [香港文学奖参赛诗集因涉及雨伞运动及刘晓波遭下架](/content/gnews/10/README.md)
  ` 日本东京方舟农场`
 
-### [郭文贵健身短直播音频 2021.11.30](/content/gnews/9/README.md)
+### [郭文贵健身短直播音频 2021.11.30](/content/gnews/11/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [相信CCP病毒疫苗 就是相信魔鬼](/content/gnews/10/README.md)
+### [相信CCP病毒疫苗 就是相信魔鬼](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [法官发布禁令暂停三个州执行拜登政府针对联邦承包商的疫苗强制令](/content/gnews/11/README.md)
+### [法官发布禁令暂停三个州执行拜登政府针对联邦承包商的疫苗强制令](/content/gnews/13/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [郭文贵盖特音频 2021.11.29](/content/gnews/12/README.md)
+### [郭文贵盖特音频 2021.11.29](/content/gnews/14/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [币圈新闻动态：美国财长耶伦称，稳定币需要适当的监管](/content/gnews/13/README.md)
+### [币圈新闻动态：美国财长耶伦称，稳定币需要适当的监管](/content/gnews/15/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [港闻前线｜太阳城集团今起所有赌厅暂停运作 洗米华案另一涉案被告早一年被捕](/content/gnews/14/README.md)
+### [港闻前线｜太阳城集团今起所有赌厅暂停运作 洗米华案另一涉案被告早一年被捕](/content/gnews/16/README.md)
  ` G&#124;News TAIWAN`
 
-### [中共国出口产品普惠制待遇，今起正式被取消](/content/gnews/15/README.md)
+### [中共国出口产品普惠制待遇，今起正式被取消](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本经济从“改善”下调为“停滞”](/content/gnews/16/README.md)
+### [日本经济从“改善”下调为“停滞”](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [CNN等十多家媒体加入班农这一边请求法院不公布有关藐视国会案的1000份文件](/content/gnews/17/README.md)
+### [CNN等十多家媒体加入班农这一边请求法院不公布有关藐视国会案的1000份文件](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [“不给钱都得死”，房地产大放水](/content/gnews/18/README.md)
+### [“不给钱都得死”，房地产大放水](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [以色列银行正加快中央银行数字货币的筹备工作](/content/gnews/19/README.md)
+### [以色列银行正加快中央银行数字货币的筹备工作](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2日开始，来自南非等10个国家的外国人将被拒绝入境](/content/gnews/20/README.md)
+### [2日开始，来自南非等10个国家的外国人将被拒绝入境](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [郭文贵盖特音频 2021.11.25](/content/gnews/21/README.md)
+### [郭文贵盖特音频 2021.11.25](/content/gnews/23/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [伊利诺伊州法官责令医院给垂死的病人用伊维菌素治疗](/content/gnews/22/README.md)
+### [伊利诺伊州法官责令医院给垂死的病人用伊维菌素治疗](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [赵长鹏问鼎“杀猪榜”，结局会比王健还惨](/content/gnews/23/README.md)
+### [赵长鹏问鼎“杀猪榜”，结局会比王健还惨](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文·贵天成——文贵先生谈“疫苗”（二十七）](/content/gnews/24/README.md)
+### [文·贵天成——文贵先生谈“疫苗”（二十七）](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
 
-### [加快推动老年人CCP病毒疫苗注射](/content/gnews/25/README.md)
+### [加快推动老年人CCP病毒疫苗注射](/content/gnews/27/README.md)
  ` 澳喜特战旅Gnews`
 
-### [有声|英国发现两例欧米茄新变种病例](/content/gnews/26/README.md)
+### [有声|英国发现两例欧米茄新变种病例](/content/gnews/28/README.md)
  ` MOSREC`
 
-### [文·贵天成——文贵先生谈“疫苗”（二十六）](/content/gnews/27/README.md)
+### [文·贵天成——文贵先生谈“疫苗”（二十六）](/content/gnews/29/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|推特CEO辞职](/content/gnews/28/README.md)
+### [有声|推特CEO辞职](/content/gnews/30/README.md)
  ` MOSREC`
 
-### [两名感染者从荷兰隔离酒店中逃跑被捕](/content/gnews/29/README.md)
- ` 澳喜农场`
-
-### [COVID-19 最新情报｜欧盟多国拟对未接种者采取更严厉措施 违者或面临罚款和监禁](/content/gnews/30/README.md)
+### [COVID-19 最新情报｜欧盟多国拟对未接种者采取更严厉措施 违者或面临罚款和监禁](/content/gnews/31/README.md)
  ` G&#124;News TAIWAN`
 
-### [有声|【信仰之声】约瑟的启示（三）：唯真的心，与神同行，化解危机](/content/gnews/31/README.md)
+### [有声|【信仰之声】约瑟的启示（三）：唯真的心，与神同行，化解危机](/content/gnews/32/README.md)
  ` MOSREC`
 
-### [主媒加入，申请解除司法部阻止班农分享千份文件](/content/gnews/32/README.md)
+### [主媒加入，申请解除司法部阻止班农分享千份文件](/content/gnews/33/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美联储将减少经济刺激措施](/content/gnews/33/README.md)
+### [美联储将减少经济刺激措施](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [什么样的社会会屠杀无辜者而不被追究？](/content/gnews/34/README.md)
+### [什么样的社会会屠杀无辜者而不被追究？](/content/gnews/35/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [菲律宾政府称地方政府有权强制人民接种新冠疫苗](/content/gnews/35/README.md)
+### [菲律宾政府称地方政府有权强制人民接种新冠疫苗](/content/gnews/36/README.md)
  ` 墨尔本雅典娜农场`
 
-### [芯片短缺将延续到2022年, 格芯股票稳步提高](/content/gnews/36/README.md)
+### [芯片短缺将延续到2022年, 格芯股票稳步提高](/content/gnews/37/README.md)
  ` 纽约香草山MOS01`
 
-### [视频| 灾难恐一触即发](/content/gnews/37/README.md)
+### [视频| 灾难恐一触即发](/content/gnews/38/README.md)
  ` MOSREC`
 
-### [秘翻在线：新变异毒株还没搞清楚日本就急着开始了第三剂疫苗接种](/content/gnews/38/README.md)
+### [秘翻在线：新变异毒株还没搞清楚日本就急着开始了第三剂疫苗接种](/content/gnews/39/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [视频| 习近平是怎样成为独裁之王的（上）](/content/gnews/39/README.md)
+### [视频| 习近平是怎样成为独裁之王的（上）](/content/gnews/40/README.md)
  ` MOSREC`
 
-### [多国秘密协助台湾研发自制潜艇](/content/gnews/40/README.md)
+### [多国秘密协助台湾研发自制潜艇](/content/gnews/41/README.md)
  ` GTV新闻访谈`
 
-### [中共国11月制造业PMI指数创三个月最低](/content/gnews/41/README.md)
+### [中共国11月制造业PMI指数创三个月最低](/content/gnews/42/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日美欧认定中共是流氓，决定不跟中共玩了！](/content/gnews/42/README.md)
+### [日美欧认定中共是流氓，决定不跟中共玩了！](/content/gnews/43/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [强生中共病毒疫苗引发血栓致死，被斯洛文尼亚永久禁用](/content/gnews/43/README.md)
+### [强生中共病毒疫苗引发血栓致死，被斯洛文尼亚永久禁用](/content/gnews/44/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [腾讯+阿里+美团+京东市值蒸发超3000亿港元](/content/gnews/44/README.md)
+### [腾讯+阿里+美团+京东市值蒸发超3000亿港元](/content/gnews/45/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [台湾与立陶宛考虑组建“被中共国制裁者联盟”](/content/gnews/45/README.md)
- ` GTV新闻访谈`
 
 ### [英国和以色列签署为期10年的贸易和防务协议](/content/gnews/46/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
