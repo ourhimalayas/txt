@@ -2,36 +2,23 @@
 ---
 
 
-## 日本因“奥密克戎”变种病毒禁止全球旅客入境
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1708871/)
+## 秘翻在线: 3000亿市值的医药巨头恒瑞被监管
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1709211/)
 
-作者：香草山农场 -文徬
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-979.png)
-11月28日，日本国立感染症研究所把新冠病毒新型变异毒株“奥密克戎” 升至最高警惕级别，列为“需要关注的变异株”。此前，世界卫生组织和欧洲疾病预防控制中心已决定把“奥密克戎”视为最需警惕的变异毒株。
+撰稿：西枫westca
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide7-19.jpeg)
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/11/unnamed-18.jpg)图片来源：网络照片
+据证券日报12月1日报道，3000亿市值的医药巨头恒瑞医药收到上交所发布的对其监管工作函。恒瑞医药近期发布了会计变更公告，将研发费用资本化引入财务报表。由此可能引发了此次被监管的行动。
 
-日本首相岸田文雄在11月29日表示，日本将于11月30日起禁止所有海外旅客入境。并且，在11月8日重新开放的商务人士短期停留、以及全国性的留学生和技能实习生的入境许可等，都将停止。
+恒瑞医药表示此次被监管的原因是关于“研发费用资本化”处理 的监管要求、研发支出的帐目要准确完整，属于交易所日常履职，并没有涉及行政处罚。一向以自体开放为主的恒瑞医药，目前加大了创新药物的市场化数量。
 
-有国际问题专家指出，随着更多奥密克戎感染者的出现，还会有更多的国家加入“禁航”乃至全线封锁的行列，全球将重回大封锁时代。
+恒瑞医药和豪森制药这对夫妻档，连续多年蝉联中共国医药领域财富榜首，稳稳地站在了国内医药行业第一的位置。如果恒瑞无违规、没过错，只是例行监管，为什么要自我披露呢？与此同时，股票市场上的大牛股巴安水务也公告称，因违规对外提供担保，公司股票或被实施风险警示； 另一家上市公司禾盛新材老板因涉黑被判无期徒刑。
 
-参考链接：
-1）[日本将“奥密克戎”列为最高警惕级别变异毒株](https://china.kyodonews.net/news/2021/11/3f6e87c2ba55.html)
-2）[详讯：日本30日起禁止外国人入境 为临时措施](https://china.kyodonews.net/news/2021/11/f1acce2e42cb-30-.html)
+一方面以恒大、花样年为代表负债最高的房地产公司随时破产，另一方面各行各业的上市公司不断爆雷，中共国的经济已经在一个活动的火山口上，随时都有爆发的可能。而这个爆发很可能给全球经济带来不可逆的影响。
 
-![This image has an empty alt attribute; its file name is 11月小图-1.png](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+**新闻来源：**[3000亿市值医药巨头被监管 “老实人动心思”有助提升业绩？ (baidu.com)](https://baijiahao.baidu.com/s?id=1717872098945558966&amp;wfr=spider&amp;for=pc)
 
-总编：文特
-编辑：文特
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,197 +2,128 @@
 ---
 
 
-## 中共的股票完全是擀面杖子经济，是假的
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1709287/)
+## 回顾爆料革命：30分钟内了解2017年郭文贵爆料主要内容
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1709511/)
 
-[https://gtv.org/video/id=61a64b9b3ff6481adce67f18](https://gtv.org/video/id=61a64b9b3ff6481adce67f18)
+作者：推推党宣传部长
 
-大家現在要看到中国现在所有的股市
-Todos tienen que ver el mercado de las acciones de China en estos momentos
+这篇文章是让新入门战友们快速的了解郭文贵2017年爆料主要内容，2017年是历史上伟大的一年，这年开启了伟大的爆料革命。郭文贵以大量事实，大量证据，揭露中共高层令人怵目惊心的贪污腐败罪行，打响了灭共的第一枪。到今天为止，爆料革命在2017年中爆的所有中共高官已经全部“落马”。17年的“预言”也几乎都实现呢 （王岐山倒台，海航破产等. 为了把所有爆料的内容浓缩在30分钟，也为更让普通的人更容易了解,大量的人物事件和细节被砍掉。本文章反应内容不到所有爆料内容千分之一.
 
-11万多亿美元的市值
-Son más de 11 billones de dólares en valor de mercado
+2017年文贵2017年1月到9月, 郭文贵先后六次接受海外中文媒体明镜的电视直播专访。一次美国之音采访。四次全球发布会。时间顺序如下：明鏡專訪郭文貴第一期 (2017月1月23日 )，明鏡專訪郭文貴第二期 (2017年 3月8日)，《美国之音》采访（2017年4月19日），明鏡專訪郭文貴第三期 (2017年 6月16日)， 明鏡專訪郭文貴第四期 (2017 年 7月17日)，明鏡專訪郭文貴第五期 (2017年 8月 18日)，明鏡專訪郭文貴第六期 (2017年 9月 19日)，文贵爆料中国盗国贼首场全球信息发“不”会（9月24日），盛顿国家中心记者招待会 （10月4日），郭文贵全球发“不”会第四集 （2017年10月14日）
 
-美国市值多少钱
-Cuánto es el de los Estados Unidos
+**明鏡專訪郭文貴第一期****(1****月****23****日****)****和第二期****(3****月****8****日****)****简介**
 
-美国是它将近四、五倍的市值
-Estados Unidos es casi cuatro a cinco veces mayor que su valor del mercado
+- 高调披露司法部部长傅政华涉嫌贪腐丑闻。
+- 杨澜和吴征为中共高级间谍。 吴征操控海内外媒体的消息
+- 海外民运的“博讯网”由中共控制,收集浏览者的IP。
 
-就这它也增长了20～30%
-Y así creció el 20-30%
 
-共产党过去的3年
-El PCCh durante los últimos 3 años
+附录1： 2015年1月10日吴征代表中纪委的身分威胁郭文贵电话录音 链接   https://www.youtube.com/watch?v=UntmZMQSens
 
-它的GDP 绝对是降的，不可能涨的
-Su PIB definitivamente está bajando, es imposible aumentar
+附录2 郭文贵与公安部副部长傅政华高清通话录音
 
-它两样东西涨了
-Sus dos cosas aumentaron
 
-股票涨了
-Las acciones aumentaron
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1664.png)
+**接受《美国之音》采访 4月19日 ：**
 
-哇噻 那你股票哪来的啊
-Wow y de dónde vienen las acciones
+- 郭文贵接受“美国之音”访问中，首次指控前中纪委书记现国家副主席王岐山。指控他家人是上市公司海航集团的股东之一，而且王的家人在美 国拥有美国身份，并在加州拥有多处豪宅。
+- 當天直播预计進行3小時，但播出到約80分鐘時便突然中斷。原因是美国之音受到中国政府指令强行断播。
 
-就是印发钞票
-De imprimir y emitir billetes
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片137854.png)
+**明鏡專訪郭文貴第三期(2017年6月16日)：**
 
-M2 太厉害了
-El M2 es poderoso
+- 爆料内容是披露王岐山多个亲属的美国公民身份和房产资产、海航集团的金融网络与关联公司、海航主要负责人身 份和贪污贷款所涉及的银行账号和交易记录。
+- 郭文贵在访谈中称,相关人士所涉及的资产总值高达20万亿元
+- 王岐山实际掌控中建投(中国建银投资,实际控制人为中国财政部)对过去20年共50兆人民币的不良资产拍卖交易
+- 查贪官的时候把中石油在瑞士的帐户上面几百亿美元全部归为己有
+- 私生子女无数,房产多藏美国
+- 王岐山玩女明星,范冰冰,许晴等
+- 王岐山部分家族成员信息其妻姚明珊,养女孙瑶,私生子之一贯军(非姚明珊生),神秘人物刘呈杰
 
-它过去仅仅今年和去年
-Anteriormente con sólo el año pasado y este año
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片16486545.png)
+**明鏡專訪郭文貴第四期(2017年7月17日)：**
 
-就干了40多万亿
-Hizo más de 40 billones
+- 报料王岐山家族以及曾经下属腐败的证据链。
 
-就是降准
-Quiere decir bajar las reservas
 
-股市才涨多少
-Las acciones sólo aumentaron cuánto
+节目中,除了披露了海航集团董事局主席陈峰及其子陈超、侄子陈晓峰与亲信姚庆、王健 (大家要记住这个人王健) 等人的关系网,他还公开他们的姓名、出生年月、身份证号码及护照号码等信息、在海内外各大银行账户余额 和直接或间接控股公司信息。
 
-它涨了20～30% 十几万亿美元
-Él incrementó el 20-30%, decenas de billones de dólares
+- 他还进一步公布了王岐山家族在美多处房产的地址和房主。
 
-它体现了市场多少呢
-¿Cuánto refleja el mercado?
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片16545.png)
+附录:王岐山家族部分美国房产3D动图链接
 
-大概20万亿美元
-Alrededor de 20 billones de dólares
 
-那20万亿美元呢
-Y esos 20 billones de dólares
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1895.png)
+- 海航集团,渤海金控王歧山洗钱大本营.1993年,海航创业资产仅有1000万元; 2002年王岐山出任海南省委书记,更获王岐山曾主政的海南省政府大力关照。海航集团成立24年来, 创造了奇迹般的增长。 2016年, 其收入则超过了6000亿元。资产两万亿。
+- 海航股东包括两位董事陈峰,王健和王歧山的养女孙瑶,私生子贯君,和神秘人物刘呈杰
+- **王岐山的最关键的白手套之一王健（已死亡）**王健则有356个银行帐户并且控制69亿美元存款，每个月都负责调钱给许多官二代但王健和其他常委也有联系，有些人还是王歧山的政敌，包括现任及前任7到8位政治局常委，王健定期为这些常委的女人，情妇，私生子送钱
 
-没进入股市
-No entraron al mercado de valores
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片17954.png)
+**明鏡專訪郭文貴第五期**** ****（****2017****年****8****月****18****日）：**
 
-那美国是多少钱呢
-Cuánto es eso en Estados Unidos
+- 中共特工控制无人机干扰郭文贵游艇Lady May系统事件 （这个行动引起美国情报部门重视）
+- 揭露中共高层在美国大规模布置的间谍和情报人员，以及网络骇客人员
 
-将近20万亿美元
-Aproximadamente 20 billones
 
-大家永远不要忘了人民币这个本质
-Nunca olviden la esencia del RMB
+如果王岐山十九大留任常委将加速国家分裂，王岐山在海外布局一直想取代习近平。拥有**“潘多拉盒子**”如果“打开”，5分钟可以中共政权土崩瓦解，重申不想让中国乱，希望中国好。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片135457.png)
+**郭文贵****YOUTUBE****直播爆料孟建柱第一集**** ****（****9****月****1****日****）：**
 
-人民币叫什么 叫本币
-Cómo se llama el RMB, se llama moneda local
+- 揭露中央政法委书记**孟建柱**，**孙力军**（孙为孟心腹）发家、贪腐荒淫的内幕。以及其后台老板江绵恒！
 
-人家美元叫什么
-Cómo se llama el dólar
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-141.png)
+**郭文贵****YOUTUBE****直播爆料孟建柱第二集（****9****月****14****日****）**
 
-人家美元叫国际流通货币
-Al dólar se le llama moneda internacional
+- 中央政法委书记孟建柱的最爱的情人: 王芳（红歌歌手) ，杨澜（央视主持人)，周小平（网络名人，王芳法律上的老公）
+- 雷洋死亡内幕
 
-叫流通法币，国际的是全世界认可
-Es denominada Moneda de Circulación Legal, es reconocida internacionalmente por todo el mundo
 
-人民币到今天来讲
-Hasta hoy hablando de RMB
 
-不是全世界认可的钱
-No es un dinero reconocido a nivel mundial
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片264564.png)
+**明鏡專訪郭文貴第六期（****2017****年****9****月****19****日****）**
 
-不要搞错了
-No se confundan
+- 孟建柱女儿孟海晶是美国公民，掌握财产惊天
+- 袁宝璟案内幕
+- 雷洋案内幕更多的细节
+- 这是明镜最后一次采访郭文贵，在八月明镜已经被中共以投资形式（一亿美元）收买。 斯坦福大学胡佛研究所重量级报告 关于中共对海外媒体证实这点。这次采访目的是试图套取文贵手中情报（个人猜想）
 
-人民币在海外所有的（钱）叫做海外人民币，叫非本币
-La propiedad (dinero) del renminbi en el extranjero se llama renminbi en el extranjero, llamado moneda no local
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片27878.png)
+**文贵爆料中国盗国贼首场全球信息发****“****不****”****会**** ****（****9****月****24****日****）**
 
-大概3万多亿美元
-Aproximadamente 3 billones de dólares
+- 提供更多关于王岐山．孟建柱．孙力军的巨额财富．私生子．非法身份等盗国事实证据和细节
+- 王岐山．孟建柱．孙力军在海外利用信托基金疯狂洗钱
+- 孟建柱和情人、私生子在澳洲和美国拥有大量的财产和海外信托。其中孟建柱的情人王梅女士与私生子在澳洲拥有信托、银行账号等。
+- 公布了孟建柱情人王梅女士在澳洲的十五处房地产信息，并称这只是她拥有的其中的一部分。
+- 孟建柱的女儿孟海晶，文贵称其拥有美国绿卡，现居住美国旧金山。名下持有多个信托，账号现金约100多亿美元。
 
-就是全世界只认你这3万多亿美元的资产
-Significa que todo el mundo sólo reconoce sus activos de más de 3 billones de dólares
 
-现在已经变成2万亿了
-Ahora se ha convertido en 2 billones
+孟建柱家族在美国的其中一个信托Quan Family Trust，孟建柱当时处理几个大案收缴的财产都转移到了美国这个信托名下。这个机构负责给美国的沉默力量输送资金。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2395.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2698774.png)
+**华盛顿国家中心记者招待会**** ****（****10****月****4****日）**
 
-共产党今年所有的本币市场多印了20万亿人民币
-El PCCh imprimió 20 billones de RMB más en todo el mercado de moneda local de este año
+- 10月3日美国最重要智库**哈德逊 Hudson Institute **迫于北京压力取消原定于10月4日郭文贵关于中共高层腐败的演讲
+- 10月4日郭文贵在华盛顿国家中心记者招待会出示中共派遣特工来美捉拿郭文贵的机密文件
 
-体现在股市的钱
-Reflejado en el dinero de las acciones
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片24765.png)
+**郭文贵全球发****“****不****”****会第四集**** ****（****2017****年****10****月****14****日**）
 
-那中国的GDP 不是说6%吗
-¿No dicen que el PIB de China es de un 6%?
+- 提供更多的证据揭发王岐山,孟建柱，孙力军，傅政华的腐败
+- 提供王岐山家族上万小时豪华客机787 的飞行记录
 
-这几个数据放在一起
-Si juntas estos datos
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片3877.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/图片367.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1678-1.png)
+**郭文貴接受某自媒体採訪**** ****（****2017****年****10****月****31****日****）**
 
-你再看看中国老百姓的通货膨胀和通缩指数
-Y luego miras el índice de inflación y deflación del pueblo chino
+爆料前国务院副总理  **刘延东**黑金帝国是怎样炼成的，怎么操弄房地产加配医疗教育概念让资产升值几倍，如何统战海外利益输出。
 
-特别是通货膨胀
-Especialmente la inflación
 
-再加上出口贸易
-Sumando el comercio de exportación
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-47.png)
+郭文爆料是2017年最重大的政治事件。郭文贵爆料成为震撼的特大新闻。他以大量事实，大量证据，揭露中共高层令人怵目惊心的贪污腐败罪行，特别是王岐山家族及海航的巨额资产。他的爆料已经和正在影响中国社会政治发展进程，并将继续发酵，对中国的社会转型的影响不可估量，郭文贵的名字已经载入史册。
 
-中国只有一样东西是赚钱的
-En China hay una sola cosa que genera dinero
+编辑/发布：LILY
 
-就是出口 就是血汗钱
-Y es la exportación, es dinero de sangre y sudor
-
-那降了多少
-Y cuánto bajó
-
-中国官方地说
-Oficialmente en China dicen
-
-有涨有升
-Hay aumento
-
-总体来讲是下降
-En general está bajando
-
-总体下降
-Disminución general
-
-过去一年就是5千亿
-500 mil millones en el último año
-
-就按保住你的5千亿美元（计算）
-Conservando sus 500 mil millones de dólares (en cálculo)
-
-那么这几个帐一算就知道了
-Entonces puedes saber estas cuentas al sacarlas
-
-中共国现在14亿人口
-La República Popular de China tiene 1.400 millones de habitantes
-
-还是10亿人口
-O 1000 millones de habitantes
-
-你这个股票市场完全是杆面杖子经济 是假的
-Todo el mercado de valores es completamente un rodillo de amasar y son falsas
-
-**原视频网址**：[https://gettr.com/post/phzypq2813](https://gettr.com/post/phzypq2813)
-
-日期：11/29/2021
-原视频标题：中共的股票完全是擀面杖子经济，是假的
-Las acciones del PCCh son completamente un rodillo de amasar y son falsas
-原视频日期：11/26/2021
-原视频网址：https://gettr.com/post/phzypq2813
-任务编号：KC295（3024）
-视频时间段：0:00-2:20
-
-西听校：洛杉矶盘古农场 – 小文萱
-翻译：洛杉矶盘古农场- 霙霙（文霙）
-翻译终校：洛杉矶盘古农场 – 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+20211130
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

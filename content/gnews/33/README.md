@@ -2,35 +2,43 @@
 ---
 
 
-## 昆士兰学校、托儿所工作人员和志愿者的疫苗接种任务
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1709113/)
+## 希腊将对60岁以上未接种疫苗者罚款
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1709321/)
 
-**翻译：Ronnie O’Sullivan
-编辑：Candy**
+**翻译：月映万川**
+**编辑：Candy**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/疫苗-1.png)图片来源：9news
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/希腊.png)图片来源：perthnow.com.au
 
 
-根据最新规定，昆士兰州学校和托儿所的所有工作人员及志愿者，都需在12月17之前接种第一剂疫苗，并在明年1月23日之前全面接种。而获得适当医疗豁免的人士不必接种。
+希腊人在60岁以上、尚未接种冠状病毒疫苗的，如果想避免高额的罚款，就必须在1月16日之前接种第一针疫苗。
 
-昆士兰州教育部长格蕾丝（Grace）说，此举是为了“保护昆士兰州学校里超过50万名还不能接种疫苗的12岁以下儿童，以及更多早期儿童中心”。
+希腊总理基里亚科斯·米佐塔基斯（Kyriakos Mitsotakis）周二宣布，每个60岁以上拒绝接种疫苗的公民，将被处以每月100欧元（159澳元）的罚款，这对许多希腊退休人员来说是一笔不小的数目。
 
-该规则将使昆士兰与澳大利亚其它州及领地保持政策一致。它将涉及公立和私立学校以及托儿所。
+“目前只有一个年龄段的人仍然坚持等待而不接种疫苗，即：在58万名60岁以上未接种疫苗的公民中，只有6万名在11月接种了疫苗。而不幸的是，正是这些60岁以上的人生病和死亡。”米佐塔基斯说。
 
-除了西澳，昆士兰州的疫苗接种率是全国最低的，只有76.1%符合条件的昆士兰人接种了两剂中共病毒疫苗。但是，此州在过去24小时内没有任何本地新感染病例记录。
+为了追踪那些不愿意接受注射的人，该国的安全机构将把他们的数据传递给税务局，然后由税务局收取罚款。
 
-昆士兰州长安娜斯塔西娅·帕拉什丘克（Annastacia Palaszczuk ）表示，虽然Omicron 中共病毒变种已抵达澳州，但完全接种疫苗的国人依然可以免隔离而进行州际旅行。
+然后，这笔钱将被用于医院。
 
-她说，昆士兰州在防疫方面之所以“处于如此有利的地位”，是因为他们对中共病毒持有谨慎态度。此州规定，最近从Omicron变种病毒传播的国家抵达昆士兰的任何人都将在昆士兰州的酒店进行隔离。
+总理说：“这不是一种惩罚，而是对健康的奖励，是一种正义的行为。”
 
-原文链接：[https://www.9news.com.au/national/coronavirus-update-queensland-vaccine-mandates-teachers-school-staff-childcare-children-covid19-vaccinations/48172cb4-87aa-4fd1-bced-95ef284330eb](https://www.9news.com.au/national/coronavirus-update-queensland-vaccine-mandates-teachers-school-staff-childcare-children-covid19-vaccinations/48172cb4-87aa-4fd1-bced-95ef284330eb)
+根据欧盟卫生机构ECDC的数据，希腊1100万居民中有62%的人已经完全接种疫苗。
+
+到目前为止，政府还没有计划实施另一次封锁来对抗冠状病毒。
+
+相反，希腊政府已经对未接种疫苗的人实施了更为严格的限制，包括在访问公共机构时强制进行新冠病毒测试。
+
+而未接种者也被拒绝进入文化场所，健身中心和餐厅。
+
+原文链接：[Greece to fine unvaccinated people over 60](https://www.perthnow.com.au/news/coronavirus/greece-to-fine-unvaccinated-people-over-60-c-4764550)
 
 ***发布：Candy***
 
 **更多资讯，请关注：**
 [澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
