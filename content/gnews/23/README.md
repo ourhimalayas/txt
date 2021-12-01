@@ -2,31 +2,36 @@
 ---
 
 
-## GTV新闻访谈简报|2021年11月30日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1709777/)
+## 2020年日本人口高龄化比例高达28.6% 创历史新高
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1709835/)
 
-作者：香草山翻译部
+**撰稿：日本东京方舟农场  Kevin wang**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-768x103-9.jpg)
+日本总务省11月30日发布公告称，2020年日本总人口共1亿2614万6099人。其中，65岁以上高龄人口比例增至28.6%，创下历史新高。
 
+据《中央社》报道，日本总务省11月30日公告了2020年国势调查最终确定数字。数字显示，截至去年10月1日，日本国内包含外国人在内的总人口为1亿2614万6099人。其中，日本本国人有1亿2339万8962人。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1130text-SC.png)
-校对：Stay文苑
+最新公布的总人口数相比2015年的调查数据减少了94万8646人，减少比例约为0.7%。日本已连续2次人口调查的总人口数呈现负增长。
 
-编辑：Stay文苑
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-210.jpg)图片来自网络
 
-发稿：Stay文苑
+从地区分布来看，仅埼玉、千叶、东京、神奈川、爱知、滋贺、福冈、冲绳等8都县的人口有所增加，其他39道府县的人口均在减少。在全国1719个市町村中，有1419个市町村的人口在减少，比例达82.5%。
 
-视频参看：[11.30  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61a6cfd644c1fe7a6c3c3c0b)
+总务省的公告还指出，65岁以上人口在总人口中的比例，比2015年增加了2个百分点，达到28.6%，创下历史新高。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-13.jpg)
+有学者表示，日本65岁以上人口的总占比超过28%，已位列世界第一。高龄化的人口结构将带来需求下降，会造成家庭消费和企业投资的减少，以及社会创新能力的下降。
 
-**更多资讯，更多关注**
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+*参考链接：*
+
+[日本2020年總人口1.26億 高齡比例28.6%創新高](https://www.cna.com.tw/news/aopl/202111300326.aspx)
+
+* * *
+
+*素材采编：Kevin wang*
+
+*编辑：青衣青青*
+
+*发布：Ranting*
 
  
 
