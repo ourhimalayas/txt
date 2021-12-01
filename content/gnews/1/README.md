@@ -2,45 +2,54 @@
 ---
 
 
-## CDC资助的研究显示，是否接种疫苗对病毒传播没有明显影响
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1711135/)
+## 矢板明夫谈中国政治中的拍马屁文化
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1711209/)
 
-作者：纽约香草山 – AlexZ
+编译：Hopkins
 
+【编者按】矢板明夫**（**1972年10月－），[日本](https://zh.wikipedia.org/wiki/%E6%97%A5%E6%9C%AC)知名记者、作家、外交专家、[时事评论员](https://zh.wikipedia.org/wiki/%E6%99%82%E4%BA%8B%E8%A9%95%E8%AB%96%E5%93%A1)，[栃木县](https://zh.wikipedia.org/wiki/%E6%A0%83%E6%9C%A8%E7%B8%A3)[矢板市](https://zh.wikipedia.org/wiki/%E7%9F%A2%E6%9D%BF%E5%B8%82)人，生于[中国](https://zh.wikipedia.org/wiki/%E4%B8%AD%E5%9C%8B)[天津市](https://zh.wikipedia.org/wiki/%E5%A4%A9%E6%B4%A5%E5%B8%82)，现为[产经新闻](https://zh.wikipedia.org/wiki/%E7%94%A2%E7%B6%93%E6%96%B0%E8%81%9E)[台北](https://zh.wikipedia.org/wiki/%E5%8F%B0%E5%8C%97)支局长，是知名的[中国通](https://zh.wikipedia.org/wiki/%E4%B8%AD%E5%9C%8B%E9%80%9A)。精通[华语](https://zh.wikipedia.org/wiki/%E8%8F%AF%E8%AA%9E)，[华语](https://zh.wikipedia.org/wiki/%E8%8F%AF%E8%AA%9E)有[第一语言](https://zh.wikipedia.org/wiki/%E7%AC%AC%E4%B8%80%E8%AA%9E%E8%A8%80)的程度，腔调属[北京官话](https://zh.wikipedia.org/wiki/%E5%8C%97%E4%BA%AC%E5%AE%98%E8%A9%B1)。曾经出版《习近平：共产中国最弱势的领袖》、《人民解放军的真相：中共200万私军的威胁、腐败与野心》、《曾经以为中国最幸福》等著作。对中国时事有独特的看法。现选编“矢板明夫俱樂部 Yaita Akio”的文章转发，供参考。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-9.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/2-5.jpg)
+照片出处：新华社网络资料
 
+分析中国政治，周末跟大家聊聊拍马屁文化，该何时拍丶怎么拍丶和忍住不拍，都是官场重要一环。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+中国有几个人物的动向是我长年观察的，天津市委书记丶政治局委员李鸿忠是其中之一，我认为他是非习派的政要之中，政治敏感度最高的，又爱表现自己，从他的言行之中，可以看出一些新的风向。
 
+前不久，在李鸿忠的主导下，天津市政府连续举办了两场研讨会，都是学习 彭丽媛教授贺信精神，箇中值得玩味。
 
+美国纽约的著名表演艺术学院茱莉亚学院，和中方在天津办了一个分校，10月26日落成，习近平夫人彭丽媛当天发了一封贺信，彭丽媛本身是学艺术的歌唱家，以前访美时参观过茱莉亚学院，发贺信本来是一件很正常的事情。
 
-近日，美国疾病控制和预防中心的中共病毒应对团队发表了一项研究, 是由冷泉港实验室、耶鲁大学和全球医疗保健知识供应商BMJ联合开展的合作项目。结论是，在2021年7月至8月德尔塔病毒爆发期间，联邦监狱中感染该变种病毒的疫苗接种者和未接种者的传播潜力没有明显差异。
+我看了一下内容，就是一般的贺电，毫无亮点。但是，李鸿忠竟然把这封信位阶提升到，为新形势下开展对美人文交流指明了方向 的高度，把封贺信标榜成新的中美“乒乓外交”，引发了广泛讨论。
 
-该研究指出，对于高风险环境中的人或密切接触者，应采取预防和缓解措施，而不应考虑疫苗接种状况。即使在疫苗接种覆盖率较高的情况下，在聚集场所时，接种者仍有可能被大规模感染。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.3.jpg)
-参考链接：
-[CDC Funded Study Shows No Significant Difference in COVID-19 Transmission Between Vaccinated and Unvaccinated](https://www.thegatewaypundit.com/2021/11/cdc-funded-study-shows-no-significant-difference-covid-19-transmission-vaccinated-unvaccinated/)
+很多的海外的中文媒体，把这件事当做娱乐新闻来看。因为李曾经说过“忠诚不绝对，就是绝对不忠诚”的言论，拥有“天下第一忠臣”的外号。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+所以这一次，李又被嘲讽为「把马屁拍到了新高度」，还有分析说今年65岁的李为了在明年的20大更上一层楼，已经赤膊上阵了，甚至还有人说李有“低级红、高级黑”之嫌。
 
-总编/编辑：飞虹
-校对/发稿：为真不破20
+我认为，事情没这么简单。
 
-**更多资讯，更多关注**
+李鸿忠本来是太子党李铁映的秘书，到广东挂职后得到了江派的提拔，然后又游走于团派和习派之间。从惠州市长丶到深圳市委书记丶湖北省委书记，步步高升，一路顺风顺水，他的成功绝不仅仅是靠拍马屁就能上来的。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+要知道，中共的所有官员都擅长拍马屁，但要做到像李这样，在四十多年的仕途中，该拍的时候拍，不该拍的时候绝对不拍，是非常难的。
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+在政治上效忠表态，一般是越早越好。但是彭丽媛的贺信发出的2个星期后，6中全会闭幕当天，李才开始展开学习贺信运动。我认为，李是经过仔细研究分析了习的想法，甚至得到了某种暗示后才开始行动的。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+我从李的行动中看到了三个新迹象：
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+第一，是对习的个人崇拜运动将全面展开；
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+第二，是由中国官方主导的反美运动将渐渐收尾；
 
+第三，是第一夫人彭丽媛有可能走上政治的前台。
 
+记得文化大革命初期，毛泽东夫人江青，就是这样被一群马屁精拉出来的。大家不妨多方观察。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+信息来源：[**矢板明夫俱樂部**** Yaita Akio**](https://www.facebook.com/YaitaAkio/posts/127982869657623)
 
+**作者简介：**庆应义塾大学文学部,松下政经塾第18期,中国社会科学院(哲学)博士修了.产经新闻北京特派员(2007-2016),产经新闻台北支局长(2020起)。本专页仅阐述矢板明夫个人意见,不代表产经新闻的立场。
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.png)
 
 
  
