@@ -17,15 +17,6 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
-**:arrows_clockwise: miles 已轉發**
-
-`@valeriyal 12/1/2021 6:14 PM (UTC)`
-
-Are you doing some sport? 😊 I’m dancer my whole life. I started with a ballet, gymnastics, bellydance, latino dance and finally I’ve found something that’s the best for me. Pole dance and acrobacy🥰<br/><br/>#russiangirl #sexygirl #poledance #dancer #dance #sport #exoticdance #poledancer #exoticdancer #passion #proffessionaldancer #gymnastics #acrobacy 
-![img](https://media.gettr.com/group2/getter/2021/12/01/18/14/7706d741-e8e6-7197-6b75-78c930936e2f/out.jpg)
-
----
-
 `@miles 12/1/2021 7:35 PM (UTC)`
 
 12月1号：新病毒到达美国的时间！和我预测的时间相差多少？兄弟姐妹们！
@@ -160,6 +151,13 @@ G Fashion 最特别的帽子即将登场，这些帽子都是跟那些大牌同�
 
 2021年11月28日 文贵大直播：新变种Omicron 如临大敌；青蒿素妙药必将解救众生；中共国世界股票剧烈震荡；新中国联邦坚守唯真不破
 ![img](https://media.gettr.com/group13/origin/2021/11/28/13/65dc806d-b317-97f9-6725-d105cbbd7b84/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 11/28/2021 12:48 AM (UTC)`
+
+11/26/2021 Miles Guo: Smallpox cases appeared in hospitals in Shanghai and Hangzhou; doctors from a secret military base in Changzhou were suddenly picked up; The evilness of Sun Lijun, Meng Jianzhu, Wang Qishan, and Fu Zhenghua are unprecedented, and the world would be ruined if they were not arrested<br/><br/>11/26/2021 文贵直播：上海和杭州有医院出现天花病例，位于常州的秘密军事基地的医生被突然接走；孙力军、孟建柱、王岐山、傅政华的邪恶史无前例，不抓他们，世界都将被毁掉<br/>
+![img](https://media.gettr.com/group33/getter/2021/11/28/00/48/e70e3232-7340-2803-61fd-7be14e63832c/out.jpg)
 
 ---
 
