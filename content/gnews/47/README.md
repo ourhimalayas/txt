@@ -2,50 +2,44 @@
 ---
 
 
-## 10月待售房屋销售增长7.5%，扭转了9月的下降趋势
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1709075/)
+## 希腊将对60岁以上未接种疫苗者罚款
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1709321/)
 
-据《www.theepochtimes.com》作者：Tom Ozimek，2021年11月29报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-986-e1638296517531.png)2021年6月23日，伊利诺伊州诺斯布鲁克市，一个建筑用地的广告牌矗立在一个新房建筑工地前。(Nam Y. Huh/AP Photo)
-**据美国全国房地产经纪人协会(NAR)称，美国10月份的待售房屋销售量大幅上升，超过了预测值，并扭转了9月份的下降趋势，因为潜在的购房者试图在预期的抵押贷款利率上升和租金快速上涨之前锁定销售。**
+**翻译：月映万川**
+**编辑：Candy**
 
-该协会基于合同签署的待售房屋销售指数（PHSI），是未来房屋销售的前瞻性指标，10月份的读数跃升至125.2，与9月份相比增长了7.5%，9月份的指数比上个月下降了2.3%。
-
-FXStreet引用的共识预测显示，10月份的指数将上升1.0%，但幅度要小得多。
-
-NAR的首席经济学家Lawrence Yun在一份声明中说，对抵押贷款利率上升的预期可能是推高合同签署率的一个因素。
-
-Yun说：”在快速上涨的租金和预期的抵押贷款利率上升的激励下，财务状况良好的消费者正在签署购房合同，宜早不宜迟。”
-
-根据Bankrate的数据，11月29日的基准30年固定抵押贷款利率为3.32%，与一周前相比下降了约4个基点，但高于9月中旬3.02%的利率。
-
-**NAR在其最新的季度经济展望（pdf）中预测，30年期固定抵押贷款的平均利率将在2022年第一季度升至3.3%，在明年最后一个季度升至3.7%。**
-
-Yun补充说：”这种稳固的购买证明了需求仍然相对较高，因为它是在库存仍然明显较低的时候发生的。”
-
-Yun预测，虽然住房市场可能会继续强劲，但随着抵押贷款利率的上升，未来几个月的房价将以较慢的速度上涨。NAR在另一份报告中说，10月份现有房屋价格中位数同比增长了13.1%，达到353,900美元。
-
-NAR的数据显示，截至10月底，现有住房库存总量为125万套，比9月份下降0.8%，比一年前下降12.0%。NAR估计，按照10月份的销售速度，这意味着大约2.4个月的供应量。
-
-美国人口普查局的数据显示，10月份的新房销售总库存为38.9万套，高于前一个月的37.8万套，按10月份的销售速度计算，约为6.3个月的供应量。根据该机构的数据，10月份的新房销售价格中位数为407,700美元。
-
-**由于美国人寻求人口密度较低的地区，以获得更大的住房，以适应在线教育和在家工作，因此住房需求在大流行的早期飙升。**
-
-**虽然随着工人返回办公室和学校重新开学，购买热潮有所降温，但Yun表示，年度住房销售总额有望达到十多年来的最佳表现。**
-
-Yun说：”10月份的显著增长保证了2021年现有房屋销售总额将超过600万，这将成为15年来的最佳表现。”
-
-原文连接：[https://www.theepochtimes.com/pending-home-sales-jump-by-forecast-beating-7-5-percent-in-october-reversing-september-decline\_4128722.html](https://www.theepochtimes.com/pending-home-sales-jump-by-forecast-beating-7-5-percent-in-october-reversing-september-decline_4128722.html)
-
-翻译：洛杉矶盘古农场- TrueSky
-
-编辑&校对：洛杉矶盘古农场 – 小象の奶瓶
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/希腊.png)图片来源：perthnow.com.au
 
 
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
+希腊人在60岁以上、尚未接种冠状病毒疫苗的，如果想避免高额的罚款，就必须在1月16日之前接种第一针疫苗。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+希腊总理基里亚科斯·米佐塔基斯（Kyriakos Mitsotakis）周二宣布，每个60岁以上拒绝接种疫苗的公民，将被处以每月100欧元（159澳元）的罚款，这对许多希腊退休人员来说是一笔不小的数目。
+
+“目前只有一个年龄段的人仍然坚持等待而不接种疫苗，即：在58万名60岁以上未接种疫苗的公民中，只有6万名在11月接种了疫苗。而不幸的是，正是这些60岁以上的人生病和死亡。”米佐塔基斯说。
+
+为了追踪那些不愿意接受注射的人，该国的安全机构将把他们的数据传递给税务局，然后由税务局收取罚款。
+
+然后，这笔钱将被用于医院。
+
+总理说：“这不是一种惩罚，而是对健康的奖励，是一种正义的行为。”
+
+根据欧盟卫生机构ECDC的数据，希腊1100万居民中有62%的人已经完全接种疫苗。
+
+到目前为止，政府还没有计划实施另一次封锁来对抗冠状病毒。
+
+相反，希腊政府已经对未接种疫苗的人实施了更为严格的限制，包括在访问公共机构时强制进行新冠病毒测试。
+
+而未接种者也被拒绝进入文化场所，健身中心和餐厅。
+
+原文链接：[Greece to fine unvaccinated people over 60](https://www.perthnow.com.au/news/coronavirus/greece-to-fine-unvaccinated-people-over-60-c-4764550)
+
+***发布：Candy***
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,49 +2,26 @@
 ---
 
 
-## 有声|英国发现两例欧米茄新变种病例
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1710211/)
+## 法官发布禁令暂停三个州执行拜登政府针对联邦承包商的疫苗强制令
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1710305/)
 
-配音：香草山美食部 – 玫瑰园
+#### 翻译/撰稿：zzballack
 
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1.jpg)图片来源：Defense News
+据 《真正美国之声》（Real America’s Vocie）12月1日报道，肯塔基州的地方法院法官格雷戈里・范・塔滕霍夫（Gregory Van Tatenhove）11月30日下发初步禁令，阻止肯塔基州、俄亥俄州和田纳西州执行拜登政府针对联邦承包商的疫苗强制令。
 
+肯塔基州总检察长丹尼尔·卡梅隆 (Daniel Cameron)说：“这是一项重要的裁决，因为它使得与联邦政府签订合同或为联邦承包商工作的肯塔基人立即摆脱了联邦政府的疫苗要求。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+塔滕霍夫法官在长达29页的判决书中写道：“这个案子与疫苗是否有效无关，也与政府是否在某种程度或某些情况下可以要求公民接种疫苗无关。这里提出的问题是很具体的，即总统能否利用国会授予的管理联邦机构采购商品和服务的权力，来强制联邦承包商和分包商的雇员接种疫苗？这个问题的答案很可能是否定的。”
 
+9月9日，拜登签署了一项总统行政命令。几周后，白宫要求联邦机构的承包商强迫所有员工接种新冠疫苗，否则将失去工作，除非他们获得了疫苗接种豁免。那些没有在12月8日截止日期前遵守疫苗强制令的承包商，将失去政府的采购和业务。
 
+肯塔基州、俄亥俄州和田纳西州于11月4日提起诉讼。诉讼说：“针对联邦承包商的疫苗强制令是不合法和违宪的。它可能造成劳动力流失，而联邦承包商占了全美国五分之一的劳动力。强制令会对许多州的经济造成重大影响，以及导致更多的供应链问题。”
 
-英国卫生部长萨吉德·贾维德表示，切姆斯福德和诺丁汉发现了两例新冠病毒欧米茄新变种病例！
+俄亥俄州检察长戴夫·约斯特（Dave Yost）在一份声明中表示：“这不是关于疫苗的问题，而是关于总统令的问题。法官的意见清楚地表明，我们的立场一直都是，总统不能把这些命令强加给人民。”
 
-同时，卫生与社会福利部表示，检测呈阳性的个人及其所有家庭成员正在接受重新测试，并被告知在进一步检测和接触者追踪期间要求进行自我隔离。
-
-该部门表示：“英国卫生安全局正在阳性病例可能具有传染性的地点进行有针对性的检测。”
-
-“为应对当前新冠病毒欧米茄新变种的发展形势，英国正在积极采取果断行动保护公共卫生。正在跟进已确认的病例和联系人，并要求隔离并在必要时接受测试。现在将在病例周边地区进行强化测试。‘’
-
-原文链接：[英国发现两例欧米茄新变种病例](https://gnews.org/zh-hans/1706688/)
-
-音频处理：喜山必胜Maverick
-发稿：Daxia
-
-[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-6.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-6.jpg)
-
-
+新闻来源：[U.S. judge imposes injunction against federal contractor vaccination mandate in three states](https://americasvoice.news/justthenews/injunction-ordered-against-federal-contractor-vaccination-mandate-kentucky-ohio-and/)
 
  
 

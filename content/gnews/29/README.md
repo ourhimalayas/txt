@@ -2,28 +2,31 @@
 ---
 
 
-## 中共国11月制造业PMI指数创三个月最低
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1709800/)
+## 中纪委公开通报十起粮食购销领域违纪案例目的何在
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1710128/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-993.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.haojingui.com%2Fd%2Ffile%2Fpmizhishu%2F2016-07-01%2Fea5c400b7c21ab6ac2db674506a9c4ad.jpg&amp;imgrefurl=https%3A%2F%2Fwww.haojingui.com%2Fpmi%2F1310.html&amp;tbnid=_r8wOjxGh_N0MM&amp;vet=12ahUKEwinvaWsysH0AhWVwIsBHaGeAYMQMygQegUIARC9AQ..i&amp;docid=1Hq6DmFghXeLYM&amp;w=386&amp;h=277&amp;itg=1&amp;q=PMI%E6%8C%87%E6%95%B0&amp;ved=2ahUKEwinvaWsysH0AhWVwIsBHaGeAYMQMygQegUIARC9AQ)
-财新/Markit周三联合公布，11月经季节性调整的中共国制造业采购经理人指数(PMI)降至49.9，创三个月最低。
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2021/12/101.jpg)图片来源：Pexels免费照片资料库；摄影：icon0.com
+11月30日，中共国中央纪委国家监委突然通过党媒喉舌新华网连续通报十起发生在粮食销购领域的违纪违法案例。这些通报涉及中央部门以及八个地方省份，包括湖北、陕西、重庆、云南、贵州、山西、黑龙江、广东——可以说是从北到南几乎全方位涵盖。
 
-该指数时隔两个月再度跌破荣枯线，主因疫情反复及产品售价高等，导致需求相对低迷。11月制造业新订单分项指数为三个月来首次跌破50，亦创三个月低点。
+违纪行为包括串通投标、收取回扣、挪用公款、滥用职权等，贪污受贿金额从100万到6000万人民币不等，至于处罚结果则从有期徒刑6年到19年不等，当然也有贪污数百万主动投诚者未被判刑处理，仅仅是撤销党内职务，贬官至副主任科员了事。
 
-Markit网站刊登的新闻稿并显示，11月制造业产出分项指数返回50上方，此前连续三个月在50下方的萎缩区域徘徊。新闻稿并指出，顾客需求低迷，成本上扬，部分企业用电受限，拖累了整体增速。
+然而笔者认为这个时间点官媒突然放出一系列与粮食采购领域相关的贪污受贿案例，其目的仍以转移民众注意力为主。如果观察中共国10月份的CPI数据，我们会发现蔬菜、淡水鱼、鸡蛋和食用植物油价格的同比上涨幅度都在大约10%或以上，仅猪肉价格出现较大跌幅。
 
-由于调查样本侧重点不同，中共国官方和财新制造业PMI通常会出现背离。昨日公布的中国11月官方制造业采购经理人指数(PMI)优预期重返扩张区间，升至50.1，追平8月的50.1，不过仅生产指数高于临界点，其余四大分类指数均低于临界点。
+而根据荷兰合作银行11月30日发布的报告，全球的粮食通胀仍将延续。同时新型变异毒株更是让这种情况雪上加霜。在这样的情况下，中纪委突然通报大量粮食领域的贪污受贿案件似乎就是一种定向引导矛盾的策略和手段。
 
-受中共病毒疫情爆发影响，财新制造业PMI在2020年2月曾大幅降至40.3，创2004年4月本项调查开启以来纪录最低。
+中共诱导百姓认为当前食品价格高昂的原因是少数公职人员贪腐所造成——与最高领导、国家政策、体制因素均无关联，为未来粮食继续涨价提前打好预防针。然而纸包不住火，当全球供应链崩塌、能源粮油发生危机的时候，社会的动荡与不安，以及人们对于政体的怀疑，迟早都会如火山喷发一般出现。
 
-中国财新传媒2015年6月底宣布获得Markit公司编制的PMI在中国的冠名权，财新中国PMI于当年8月起正式发布，更名后PMI统计方法不变。PMI高于50表示扩张，低于50则表明萎缩。
+参考链接：
 
-消息来源：**[中国11月制造业PMI跌破荣枯线至49.9 产出回暖但新订单低迷–财新](https://cn.reuters.com/article/caixin-manufacturing-pmi-1201-wedn-idCNKBS2IG2SL?il=0)**
+[新华网](https://mp.weixin.qq.com/s/Sm84qR5_NHqkKkCaqZd9HA)（中共国官媒）
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
+[联合早报](https://www.zaobao.com.sg/news/world/story20211201-1218699)
+
+[大纪元](https://www.epochtimes.com/gb/21/11/21/n13388686.htm)
+
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

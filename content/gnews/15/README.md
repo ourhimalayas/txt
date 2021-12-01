@@ -2,31 +2,52 @@
 ---
 
 
-## 中纪委公开通报十起粮食购销领域违纪案例目的何在
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1710128/)
+## 伊利诺伊州法官责令医院给垂死的病人用伊维菌素治疗
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1710232/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2021/12/101.jpg)图片来源：Pexels免费照片资料库；摄影：icon0.com
-11月30日，中共国中央纪委国家监委突然通过党媒喉舌新华网连续通报十起发生在粮食销购领域的违纪违法案例。这些通报涉及中央部门以及八个地方省份，包括湖北、陕西、重庆、云南、贵州、山西、黑龙江、广东——可以说是从北到南几乎全方位涵盖。
+翻译：皮特
+编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3.jpg)图片来源：Sam’s Alfresco Coffee
+**三天前，美国伊利诺伊州的一户家庭确信是伊维菌素挽救了因****新冠病毒****住院家人的生命。****这个家庭通过赢得司法诉讼，让医院对病重家人使用伊维菌素治疗。**
 
-违纪行为包括串通投标、收取回扣、挪用公款、滥用职权等，贪污受贿金额从100万到6000万人民币不等，至于处罚结果则从有期徒刑6年到19年不等，当然也有贪污数百万主动投诚者未被判刑处理，仅仅是撤销党内职务，贬官至副主任科员了事。
+克里斯汀·埃里克森律师谈了这一家人为了让内珀维尔医院给病重的祖父使用伊维菌素而展开持续的抗争。
 
-然而笔者认为这个时间点官媒突然放出一系列与粮食采购领域相关的贪污受贿案例，其目的仍以转移民众注意力为主。如果观察中共国10月份的CPI数据，我们会发现蔬菜、淡水鱼、鸡蛋和食用植物油价格的同比上涨幅度都在大约10%或以上，仅猪肉价格出现较大跌幅。
+伊利诺伊州内珀维尔，在11月初，伊利诺伊州的一个家庭深爱的祖父因新冠病毒住院且病危。这位吴先生从香港来到芝加哥探望他的女儿和家人，不幸他感染了新冠病毒，几天后，他就在内珀维尔的爱德华医院住院并使用了呼吸机。
 
-而根据荷兰合作银行11月30日发布的报告，全球的粮食通胀仍将延续。同时新型变异毒株更是让这种情况雪上加霜。在这样的情况下，中纪委突然通报大量粮食领域的贪污受贿案件似乎就是一种定向引导矛盾的策略和手段。
+他的女儿吴文君（Man Kwan Ng）博士非常绝望。她希望医院使用伊维菌素，但被医院拒绝了；理由是依据国家医疗指南，该药物无效，可能会有副作用；订购伊维菌素将违反其政策。
 
-中共诱导百姓认为当前食品价格高昂的原因是少数公职人员贪腐所造成——与最高领导、国家政策、体制因素均无关联，为未来粮食继续涨价提前打好预防针。然而纸包不住火，当全球供应链崩塌、能源粮油发生危机的时候，社会的动荡与不安，以及人们对于政体的怀疑，迟早都会如火山喷发一般出现。
+律师克尔斯汀·埃里克森说：“这张照片是11月4日拍摄的，吴先生濒临死亡。但医院仍然拒绝使用伊维菌素。”
 
-参考链接：
+这里还有一场关于是否可以使用伊维菌素的诉讼。
 
-[新华网](https://mp.weixin.qq.com/s/Sm84qR5_NHqkKkCaqZd9HA)（中共国官媒）
+11月8日，这家人赢得了法律诉讼，伊利诺伊州杜佩奇县的一名法官保罗·富勒顿（Paul Fullerton）对此作出了裁决，最终责令医院给71岁的吴先生使用这种有争议的药物（伊维菌素），他自10月19日以来一直使用呼吸机（在ICU病房）。
 
-[联合早报](https://www.zaobao.com.sg/news/world/story20211201-1218699)
+法官允许艾伦·贝恩 （Alan Bain）医生使用伊维菌素治疗。这位艾伦医生也没有接种疫苗，未打疫苗是不允许进入医院的，但是，艾伦医生用伊维菌素治愈了很多感染新冠的患者。
 
-[大纪元](https://www.epochtimes.com/gb/21/11/21/n13388686.htm)
+经过法院裁决和艾伦医生提供了阴性核酸测试结果后，11月8日晚上伊维菌素治疗开始了，15天每天一次注射24毫克。
 
-*发稿：mgjxs*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1.jpg)
+吴先生的律师表示，吴先生的病情几乎立刻好转。
+
+埃里克森律师说：“今天（11月9日）他通过了呼吸测试，这是他在过去三周内都没能通过的。而且他看起来更加清醒和明白。所以我说第一剂伊维菌素就已经起效。”
+
+吴的家人说，自11月8日至12日吴先生接受了伊维菌素治疗，在11月27日他就出院了。
+
+吴先生的家人说他现在已完全康复在家享受天伦之乐了。
+
+新闻链接：
+
+1、[Illinois family credits Ivermectin with saving life of father hospitalized with COVID-19 (fox32chicago.com)](https://www.fox32chicago.com/news/illinois-family-credits-ivermectin-with-saving-life-of-father-hospitalized-with-covid-19)
+
+2、[Serious – Courageous Judge Paul Fullerton Orders Chicago Hospital To Eat Shit And Die! | Sam’s Alfresco Coffee (sammyboy.com)](https://www.sammyboy.com/threads/courageous-judge-paul-fullerton-orders-chicago-hospital-to-eat-shit-and-die.313009/)
+
+发布：kk
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

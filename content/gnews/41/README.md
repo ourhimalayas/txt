@@ -2,32 +2,22 @@
 ---
 
 
-## 动物学家彼得-达扎克承认在中共实验室制造冠状病毒
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1709569/)
+## 日美欧认定中共是流氓，决定不跟中共玩了！
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1709754/)
 
-作者：纽约香草山 – 童谣
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-消息媒体11月28日报道，有文件和电子邮件证据表明，彼得-达扎克承认他和蝠奇在武汉病毒实验室，同中共病毒学家合作开展工作。2016年3月28日，彼得-达扎克确切地描述了科学家如何在中共的实验室里制造，能够导致全球病毒大流行的冠状病毒。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture3-25.jpg)
-彼得-达扎克说：我们在蝙蝠身上发现了一大堆冠状病毒，其中一些看起来与SARS非常相似，所以我们对刺突蛋白进行测序。然后从这些病毒中创造出一种，能够轻易与人体细胞结合的刺突蛋白。每走一步，都会越来越接近可以对人产生致病性的病毒。
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-991.png)[图片来源](https://www.yomiuri.co.jp/economy/20211130-OYT1T50318/)
+11月30日读卖新闻消息：日本、美国和欧盟的贸易部长于11月30日举行视频会议。鉴于中共国不透明的行业补贴及掩盖其国内真实数据，会议就扭曲市场公平竞争环境的贸易行为明确了今后的对应政策。
 
-参考链接：[动物学家彼得-达扎克承认在中共实验室制造冠状病毒](https://www.thegatewaypundit.com/2021/11/flashback-2016-faucis-cohort-peter-daszak-explains-scientists-can-perfectly-create-coronavirus-china-lab-can-lead-global-pandemic/)
+参加会议的有日本经济产业大臣萩生田，美国贸易代表（USTR）凯瑟琳-戴，以及欧盟执行机构——欧盟委员会负责贸易的高级副主席东布罗夫斯基。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+用老百姓的话说，就是日本、美国、欧盟国家已认定中共是流氓，决定不跟中共玩了！
 
-总编：文特
-编辑：木白
-校对/发稿：Hetangyuese
+信息来源：[中国念頭に不公正な貿易慣行に対処…日米欧が貿易相会合 : 経済 : ニュース : 読売新聞オンライン (yomiuri.co.jp)](https://www.yomiuri.co.jp/economy/20211130-OYT1T50318/)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
-
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

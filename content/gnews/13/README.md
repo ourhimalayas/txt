@@ -2,41 +2,24 @@
 ---
 
 
-## 主媒加入，申请解除司法部阻止班农分享千份文件
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1710142/)
+## 2日开始，来自南非等10个国家的外国人将被拒绝入境
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1710254/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/https___cdn.cnn_.com_cnnnext_dam_assets_211115191924-01-bannon-1115.jpg)图片来源：CNN
-**翻译：**小鱼儿
-**编辑：**翼族
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-2.png)[图片来源](https://gnews.org/wp-admin/post-new.php#imgrc=ACLnCCJc8_k3jM&amp;imgdii=nsOBl0Czr9HxNM)
+11月30日，日本出现第一例Omicron的确诊病例后，政府宣布包括全面禁止来自南非和其他国家的具有居留身份的外国人重新入境。
 
-班农本月被起诉，并被指控藐视国会，因为他没有遵守众议院1月6日委员会的传票。
+新措施将涵盖10个新国家：南非、埃斯瓦蒂尼、津巴布韦、纳米比亚、博茨瓦纳、莱索托、莫桑比克、马拉维、赞比亚和安哥拉。
 
-目前检察官正在寻求一项保护令，禁止班农或其团队披露“藐视国会案”的案件材料，但媒体团体提交动议，站在班农一方辩解。
+此外，包括瑞典和西班牙在内的四个新增加国家也被列入到必须在指定住宿点等待三天的名单中。
 
-该命令将严格限制班农分享信息，这些信息是联邦调查局作为正常取证程序的一部分，并且已经开始移交给法庭。根据政府先前的文件，这些信息包括1000多页的证人证词、大陪审团材料，甚至包括众议院1月6日调查国会暴乱的委员会工作人员的电子邮件。
+这些措施都将在2月2日午夜生效，一些尚未作出安排的国家除外。
 
-一个主流媒体公司的联盟提交了一份法律简报，支持史蒂文·班农。
+信息源：[2日から南アなど10カ国　再入国を原則拒否へ](https://news.yahoo.co.jp/articles/27f6e0cf0151424ba0da18d8dd0415717a842cd3#:~:text=)
 
-新闻集团认为，政府提议的命令将违反美国第一修正案。加入申请的还有CNN、ABC、NBC、《纽约时报》和《华盛顿邮报》等主要媒体。
-
-周日，联邦政府在自己的动议中认为，班农正在寻求“在媒体上，而不是在法庭上审理此案”。
-
-班农在法院外说：”我现在告诉你，对于梅里克·加兰、南希·佩洛西和乔·拜登来说，这将是来自地狱的罪。
-
-**参考新闻：**[EXCLUSIVE: CNN, ABC, and more than a dozen media companies file legal brief JOINING Steve Bannon’s bid to lift the DOJ’s order stopping him sharing 1,000 files in his contempt of Congress case](CNN,%20ABC,%20and%20more%20than%20a%20dozen%20media%20companies%20file%20legal%20brief%20JOINING%20Steve%20Bannon’s%20bid%20to%20lift%20the%20DOJ’s%20order%20stopping%20him%20sharing%201,000%20files%20in%20his%20contempt%20of%20Congress%20case)
-
-*发布：翼族*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
-
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

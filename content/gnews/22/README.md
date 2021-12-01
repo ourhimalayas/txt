@@ -2,40 +2,25 @@
 ---
 
 
-## 芯片短缺将延续到2022年, 格芯股票稳步提高
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1709991/)
+## 两名感染者从荷兰隔离酒店中逃跑被捕
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1710204/)
 
-作者：香草山金融部 – 闲聊钱币
+撰稿：文媛
 
+据荷兰卫生当局周日通报，两架来自南非的航班上有61名乘客在抵达阿姆斯特丹时被检测出冠状病毒阳性，其中13人经证实感染了奥密克戎变种病毒。 已经检测出阳性的旅客被安排在机场附近的一家酒店里隔离。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1638338981.png)网络截图
+今天，荷兰警方突然传出一则新闻：一对夫妻从隔离酒店中逃离，警方最终在阿姆斯特丹史基浦机场的飞机上将这对夫妇逮捕。 据荷兰《电讯报》报道，在隔离酒店中等待检测结果的人只能呆在自己的房间里，有专门的安全人员进行监督和检查。目前还不清楚这对夫妇是如何离开酒店的，也不知道警方是如何得知他们逃跑的。 这对夫妇不仅成功从隔离酒店中“逃离”，还成功到达机场、坐上了飞往西班牙的飞机。就在他们的飞机就要起飞的时候，几名执法人员将他们逮捕。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
+据荷兰媒体报道：暂时还还不知道这对夫妇是否会被起诉。理论上来说，他们由于违反了隔离规定可能会面临长达四年的监禁。
 
+各国政府利用疫情控制人们的自由，自二战后人权从未如此遭到这样的破坏，执法环境非常恶劣，向独裁国家又靠近了一步，现在有一部分人已经看清政府在干什么，只要共产党不灭病毒会一波一波的袭击，在2017年郭文贵先生就向西方预警，黑暗已经来临，你们准备好了吗？
 
-拥有近百年历史的瑞典汽车制造商沃尔沃(VOLCARb.ST)周二警告称，整个汽车行业的半导体芯片短缺将持续到明年。
+新闻来源：
 
-今年10月29日沃尔沃公开募股，成为欧洲迄今为止最大的IPO。尽管股价在早盘下跌2.9%，但是整体来说自上市以来股价已飙升近30%。位于哥德堡的汽车制造商表示，供应链仍然受到限制。芯片短缺已经迫使包括沃尔沃在内的全球许多汽车制造商削减生产。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture2-29.jpg)
-该公司确认了第三季度营业利润为33亿瑞典克朗（3.626亿美元），而去年同期则为46亿瑞典克朗。沃尔沃的控股股东是中共国的吉利控股（GEELY.UL）。随着全世界进一步抵制和脱钩与中共国的贸易，沃尔沃的生产和投资人的利益必然受到影响。
+[https://mp.weixin.qq.com/s/LHngYHEll90iTl7c4IEzFQ](https://mp.weixin.qq.com/s/LHngYHEll90iTl7c4IEzFQ)
 
-芯片的短缺必然利好芯片制造企业。格芯（GlobalFoundries NASDAQ: GFS) 股价已经从一个月前IPO时的47美元稳步上升至69美元，涨幅高达46.8%。
-
-跟着共产党，走进火葬场。着实为那些投资了沃尔沃但并不知道中共是它背后金主的小投资者捏把汗啊！
-
-参考来源：[芯片短缺将延续到2022年, 格芯股票稳步提高](https://www.reuters.com/business/autos-transportation/volvo-cars-sees-supply-situation-improving-after-q3-profit-drop-2021-11-30/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=30-11-21&amp;utm_campaign=30-11-21)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
-
-编辑/校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
-
+编辑：五饼二鱼
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
