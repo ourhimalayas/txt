@@ -2,44 +2,47 @@
 ---
 
 
-## 疫苗乱象再现，重庆被爆近300人打假疫苗医护突“消失”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1711183/)
+## 新冠新变种病例症状轻微但不容轻视
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1711222/)
 
-撰稿/配图：东京樱花团/ Ob
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-1.png)
-综合大陆媒体报导，重庆市一家医院的周姓护士声称，有“上面派的疫苗”，向吕姓同学收取4500多元人民币施打费用，先后给吕同学接种2针HPV疫苗。
+作者：纽约香草山信息部 – 诺雅
 
-据吕同学表示，“（去年）11月6号交的款，今年的4月28日才去接种了第一针。”但是第1针在未签署任何资料的情况下，在对方办公室私下接种，第2针则是在周姓护士的车上接种，到准备接种第3针时突然连络不上对方。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-根据吕同学描述，周姓护士给她接种时，还特意从医师身边药柜拿疫苗，拿药处还刻意选在接种武汉肺炎疫苗的地方，并在她面前拆包装取信，因此吕同学起初对周姓护士深信不疑，事后才知原来自己被骗。
+在11月30日更新的欧洲疫情简报中，欧洲疾病预防和控制中心表示，11个欧盟和欧洲经济区一共确诊了44起新冠病毒新变种病例，值得注意的是，这些病例均表现为无症状或症状轻微。截止目前，欧洲疾控中心还没有接到有关新变种病毒的严重病例或死亡报告。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/8.jpg)
+同日，最早发现新冠病毒奥密克戎变种的南非医学协会主席——安吉利克-科兹博士——在接受采访时表示，南非当地的大多数新变种病例都较为温和。科兹博士提到，新变种感染病例的初期症状信息包括最初两天感到疲倦或萎靡不振、喉咙发痒、身体酸痛、头痛，但感染者初期并不会咳嗽，也没有出现丧失嗅觉和味觉的现象。
 
-类似情况不仅发生在吕姓同学身上，还有多达百人也在周姓护士处接种HPV疫苗，但有人甚至1针都尚未施打。
+科兹博士进一步指出，对于奥密克戎变种来说，目前其仍然处于非常早期的阶段。此时，往往年轻人会先被感染，然后扩散至其他年龄层。对此，科兹博士强调，当民众出现上述类似症状时，应立即警觉并尽早寻求治疗，从而减少未来严重病例的出现。
 
-事情曝光后引发社会不小争议。为此，中共国卫健委、刑事单位皆介入调查，其后涉事医院也发出通过，强调周姓护士4月就被停职，目前院方愿承担退款责任，没打到针的个案以退款与诈欺案处理，已打针者的情况则较为复杂，待案件侦破后才能处理。
+参考链接：
+1) .[All Confirmed Cases of Omicron in Europe Are People Who Are “Asymptomatic or With Mild Symptoms”](https://www.infowars.com/posts/all-confirmed-cases-of-omicron-in-europe-are-people-who-are-asymptomatic-or-with-mild-symptoms/)
+2) . [Epidemiological update: Omicron variant of concern (VOC) – data as of 30 November 2021 (12.00)](https://www.ecdc.europa.eu/en/news-events/epidemiological-update-omicron-data-30-november-2021)
+3) . [Omicron cases have been “extremely mild” so far, South African doctor says](https://edition.cnn.com/world/live-news/omicron-covid-19-variant-11-30-21/h_801ead91dbb027b2e7f223a02b357b2d)
+4) . [Omicron symptoms mild so far, says South African doctor who spotted it](https://www.bbc.com/news/av/uk-59450988)
+5) . [What Dr. Angelique Coetzee Actually Said About Omicron Variant](https://www.snopes.com/news/2021/11/29/angelique-coetzee-omicron-variant/)
+6) . [South Africa Medical Chief Says New COVID Mutation Has Only Produced “Very Mild Cases”](https://www.infowars.com/posts/south-africa-medical-chief-says-new-covid-mutation-has-only-produced-very-mild-cases/)
 
-对此，民间议论纷纷。有网友留言，“不太敢相信单单一个护士可以操作这么多，毕竟还有很多都是正常程序也可以照样打的假的，太多奇怪的点，需要相关部门一个透明的交代，严查严查严查……。”
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-也有网友质疑说，“谁能想到在社区医院工作时间，竟打的是假疫苗，难道这跟医院没关系？周能够在医院一手遮天？…你品你细品…。”
+总编：Irene木木
+编辑：Kathy文艺
+校正/发稿：Fei797
 
-还有网友披露，“身为当事人，我就属于三针都打完了，均在接种室打的，就是查不到记录，请医院不要联系我退钱！我们需要真相，为什么可以在医院正常缴费、排队、药房送疫苗过来、护士接种！”“良心简直被狗吃了，目前为止骗了接近三百人了，希望有关部门能够重视，给我一个说法。”不少网友气愤表示，“看把人都逼成啥样了…这个疫苗不知道为啥一直缺货”、“假的就算了，就怕她的针不卫生，多人使用，弄个传染病就完了”、“没良心，假的打完的后果是什么？针管干净卫生吗？”
+**更多资讯，更多关注**
 
-事实上，中共国疫苗致死、致残事件频发，仅从2010至2018年的8年间，假、毒疫苗导致的群体性疫苗事件就不下8起。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-其中最轰动民间的是长春长生生物技术有限公司制造的狂犬病疫苗，导致数十万儿童受害。2018年亦曾传出，长生生物的百白破疫苗事件中，有25万支劣质疫苗流入市场。
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-根据《纽约时报》的分析，从2018年到2020年，中共至少有59起涉及疫苗公司的腐败诉讼，其中54起涉及贿赂地方官员。而这次武汉肺炎大爆发之后，进入武肺疫苗三期试验的中共国制药公司中，除了中共国“国药集团”，武汉生物制品研究所和科兴公司也都涉及过疫苗丑闻。
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-今年初再曝光4起涉假疫苗案例。其中最受瞩目的是用生理食盐水、矿泉水伪装疫苗。据报导，嫌犯先是透过网络搜寻，确认疫苗的针剂、包装样式，接着再购买预灌封注射器，以生理食盐水、矿泉水当作材料，制作假疫苗。仅这一批假疫苗就多达5.8万支流入市面中，涉及范围包括江苏、北京、山东等地，涉及金额约有1800万元人民币。
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-上海复旦大学附属华山医院感染科主任张文宏去年12月在一次会议上说了一番话令人玩味。他说，“你有10%接种也好、20%接种也好，其实我们都不着急的”、“谁要应该先打？我个人觉得，现在要打是领导干部要先打”。但疫情持续至今，却从未见中共高层领导人带头接种中共国疫苗。
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-中共疫苗可信不可信明眼人心里都明白，一个从来没自己研制成功过一款疫苗的国度“大跃进式”的开发出中共病毒疫苗，24号非洲把新病毒上报给世卫，世卫25号定为一般病毒（估计在想名字呢？），世卫26号定为omicron，今天中共香港就分离出变种病毒毒珠。神一般的操作，已不只是挑战人们的智商问题。人心之毒远甚于病毒。至今还跳不出人心，在病毒疫苗乱象里找真假，其不可悲哉！！！
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
-消息来源：**[重庆被爆近300人打假疫苗 医护突“消失”](https://m.secretchina.com/news/gb/2021/12/01/991044.html)**
-
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.png)
 
 
  
