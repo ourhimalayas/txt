@@ -2,31 +2,28 @@
 ---
 
 
-## 机密文件曝光，指出新疆迫害与习近平有关
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1710697/)
+## 今日起，欧亚联盟不再给予中共国优惠待遇
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1710773/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1CBDFE10-CD98-480E-A19D-D572BBCA9551_cx0_cy8_cw0_w1023_r1_s-1.jpg)图片来源：法新社
-据自由亚洲电台11月30日报道，中共政府迫害新疆维吾尔人受到国际谴责，不过中共政府对此矢口否认。近日德国学者郑国恩公布一批新疆文件，其中包含习近平在2014年4月所发表的三篇讲话内容，涉及安全、人口控制与惩罚维吾尔人的必要。提到对新疆维吾尔人进行再教育和搬迁，以解决新疆维吾尔族和汉族人口之间的不平等问题。
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-6.jpg)
+[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fmedia.dwnews.net%2Fdw%2FlhiUvu70sEHL3PlU8C33GXpvSfQ%253D%2F320*0%2Fmedia%2Fimages%2Fdw%2F1daa2be1400d5e6dc33e12a42e79a217.jpg&amp;imgrefurl=https%3A%2F%2Fwww.dwnews.com%2F%25E5%2585%25A8%25E7%2590%2583%2F60270483%2F32%25E5%259B%25BD%25E4%25B8%25BA%25E4%25BD%2595%25E5%258F%2596%25E6%25B6%2588%25E5%25AF%25B9%25E5%258D%258E%25E6%2599%25AE%25E6%2583%25A0%25E5%2588%25B6%25E5%25BE%2585%25E9%2581%2587%25E4%25B8%2593%25E5%25AE%25B6%25E8%25A7%25A3%25E6%259E%2590%25E4%25B8%25AD%25E5%259B%25BD%25E5%25B7%25B2%25E6%25AF%2595%25E4%25B8%259A&amp;tbnid=pfoVX3eHsSl3CM&amp;vet=12ahUKEwjWkJqdtsL0AhVLUJQKHWfWCFsQMygLegUIARC1AQ..i&amp;docid=0ufsOYnrN02BeM&amp;w=1920&amp;h=1080&amp;itg=1&amp;q=%E6%99%AE%E6%83%A0%E5%88%B6&amp;ved=2ahUKEwjWkJqdtsL0AhVLUJQKHWfWCFsQMygLegUIARC1AQ)
 
-专研新疆议题的美国共产主义受难者纪念基金会学者郑国恩表示，这些文件表明北京是新疆暴行的幕后黑手。文件显示，习近平在2014年前往新疆考察，表示一带一路倡议需要稳定的国土安全环境，要求在全国范围内防止新疆暴恐活动蔓延到中共国其他地区。文件还包括国务院总理李克强、时任中共中央政治局常委俞正声以及新疆党委书记陈全国的谈话内容，显示中共高层有迫害维吾尔族的长期意图。
+每日经济新闻报道，自2021年12月1日起，欧亚经济联盟宣布不再给予中共国普惠制关税优惠待遇，对相关货物，海关不再签发普惠制原产地证书。目前有32个国家取消对中共国普惠制待遇，仍有挪威、新西兰、澳大利亚3国给予普惠制待遇。
 
-这些总共317页的文件是由匿名人士分享给设在英国的独立人民法庭“维吾尔法庭”，该法庭委托郑国恩进行分析。维吾尔法庭表示，中共国大使馆已收到书面通知，不过外交部并未回应。中共国对于新疆事件一向装聋作哑，只有涉及到台湾或者自身利益时，外交部才会跳出来谴责，甚至撒泼耍赖。中共政府一向视人命如草芥，对内杀了几亿中国人民毫不手软，全球释放病毒更是毫无顾忌。自由世界的人们，再不行动起来，新疆的今天就是全世界的明天。
+普遍优惠制度简称普惠制（GSP），是发达国家（给惠国）对发展中国家及地区（受惠国）出口制成品和半制成品给予普遍的、非歧视的、非互惠的关税优惠制度。对自受惠国进口的相关产品给予最惠国税率基础上的关税减让，甚至零关税的准入待遇。
 
-新闻参考链接：
+中共独裁者控制媒体，长期渲染中共经济总量世界排名第二，公布的数据人均GDP已经超过了一万美元，按照标准，已不再是发展中国家，已把自我表述为比资本主还富裕和强大的国家，深受CCP病毒毒害的国家会一起联合，把中共国踢出WTO，排除在世界贸易之外。
 
-[机密文件曝光指新疆迫害与习近平有关](https://www.rfa.org/mandarin/yataibaodao/shaoshuminzu/cm1130a-11302021054240.html)
+信息来源：
 
-编辑：胖丁
+[32个国家取消对我国普惠制待遇，仅剩3国保留！今日起，海关也将不再签发这项证书，中国企业如何应对？](https://mr.baidu.com/r/xi63kA0Io0?f=cp&amp;rs=687858668&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=1e9af646511ff357)
 
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.png)
 
 
-编辑：【英国伦敦喜庄园编辑部】
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

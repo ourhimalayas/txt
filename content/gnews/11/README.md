@@ -2,30 +2,43 @@
 ---
 
 
-## 文贵视角: Twitter首席执行官杰克‧多尔西(Jack Dorsey)的离职是一场骗局
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1710692/)
+## 维州“大流行病法案”辩论结束，周四将进行投票
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1710771/)
 
-撰稿:牛小妹
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Image-1-3.jpg)
-**Twitter首席执行官杰克的离职吸走几十亿美金**
+**【雅典娜快讯】，紧贴时事脉搏**
 
-据美国广播公司商业频道（CNBC）报导，Twitter及Square创始人、首席执行官杰克·多尔西（Jack Dorsey）已辞去Twitter首席执行官，但仍保留Square创首席执行官一职。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/澳洲.png)图片来源：澳洲新闻网
 
-“Twitter首席执行官杰克的离职是一场骗局!”郭文贵先生在直播中说。”主要原因是背后暗黑势力要把Twitter的股票炒高，已经拿走了几十亿美元。”文贵先生爆料说。
 
-**背后股东黑石集团被中共深度”蓝、金、黄**“
+**翻译：**小鱼儿
+**编辑：**翼族
 
-“TWITTER、STRIPE、PAYPAL的背后是同一个股东黑石集团。”文贵先生说。据《美国之音》指出，美国金融大鳄索罗斯最近批评黑石集团大举投资中共国是一种错误的做法，可能会给该公司的客户造成损失，也损害美国和其他民主国家的国家安全利益。索罗斯表示，习近平提出「共同富裕」，改变了基本的发展方向，对于外国投资者是一个不详的预兆。
+维多利亚州一项有争议的立法，将授予该州州长丹·安德鲁斯无限期宣布大流行病和紧急状态的权力，经过议会的多次辩论，周四该法案的修正案将由维州上议院作出最后决定。
 
-然而黑石集团完全不理会索罗斯的警告，持续进行对中共国基金筹募计划。「黑石中共国新视野混合型证券投资基金」8月30日正式开始，参加此次募集的投资机构总数多达11万1千多个，是第一家外资独资的公募基金，被认为是中共国公募基金行业进入了中共国与外资企业同台竞技的新阶段。
+据《先驱太阳报》报道，辩论结束后，该法案现在被送回下议院，议员们将对修正案进行投票，并在周四回到上议院进行最后的投票。
 
-**杰克的离职与Stripe、Square、Paypal的整合有关?**
+维多利亚州经历了数周的抗议活动，数十万维多利亚州人每个周末都聚集在议会的台阶上，抗议州长借大流行病拥有压倒性的权力，这基本上让州长成为了独裁者。
 
-由于实体店面逐步转型至网上商店，现有的不同支付平台Stripe、Square及Paypal 提供不同对象的在线服务。
+如果法案获得通过，还将使该州的卫生部长有能力发布广泛的公共卫生命令，并授予被授权的官员拘留人员的权力。
 
-Stripe提供一种在线支付API，最适合高科技企业对消费者的电子商务公司。 PayPal提供在线支付的电子商务公司的轻松在线结帐体验，发票和亲自付款。 Square则提供POS系统，在线结帐体验以及实体店开票的发票。
+《先驱太阳报》报道：州议员们慢慢通过了80多项拟议的修正案，并对每一项修正案进行了投票。安德鲁斯政府的前部长阿德姆·索姆尤雷克（Adem Somyurek）意外返回议会引发了该法案的延迟，并导致疯狂的政府拼命争取额外的支持票。
 
-“如果成功并购STRIPE、PAYPAL， Square首席执行官杰克可能在明年5月份再度回到TWITTER。”文贵先生说。”大家不要搞错了!”文贵先生提醒。
+这项有争议的法案引发了大规模的抗议。周六，大量人群再次在墨尔本市中心游行，许多人呼吁安德鲁斯下台。
+
+在州议会投票通过后，必须经过维多利亚州总督的御准，该法案才会被颁布为法律。
+
+以下是“杀死法案”活动的详细信息：[https://www.rebelnews.com/kill\_dans\_bill](https://www.rebelnews.com/kill_dans_bill)
+
+**参考新闻：**[Marathon pandemic powers bill debate ends with vote due Thursday](https://www.rebelnews.com/marathon_pandemic_powers_bill_debate_ends_with_vote_due_thursday)
+
+*发布：翼族*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

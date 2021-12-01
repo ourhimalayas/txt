@@ -2,34 +2,28 @@
 ---
 
 
-## 美军突然瞄准南中国海
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1710506/)
+## 英军情六处公开表示 中共过度自信误判国际形势
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1710525/)
 
-#### 作者：东京樱花团丨捆绑CCP一千年
+撰稿:东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3.png)[图片源](https://news.yahoo.co.jp/articles/0b0ffe32a102f554868c3faa1f4947072f74bdcc/images/000)
+英国对外情报机构—军情六处总干事摩尔30日首次发表讲话，指出中共国政府过于自信，可能误判国际形势。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/南.png)[*图片来源*](https://scx2.b-cdn.net/gfx/news/hires/2020/3-space.jpg)
+“中共政府相信其大外宣对西方国家脆弱性的宣传，低估了美国政府的决心，”他说，“中国因过度自信而面临误判风险，这已成不争的事实。”
 
-**五角大楼基于拜登政府应对中共国这一“最大的地缘政治考验”中得出的结论——是时候应对中共国的威胁 。特别是“今年夏天中国的高超音速武器环球试验震惊了美军。”认为这一事态与应对1957年 “前苏联卫星危机” 的影响相提并论。**
+“适应一个受中共国崛起而饱受影响的世界，是军情六处的首要任务，”摩尔断言。他将台湾问题列为中共加强侵略的第一个领域，并表示，中共希望“必要时以武力解决”，是“对世界稳定与和平的严重挑战”。
 
-据[朝日新闻](https://www.asahi.com/articles/ASPCZ6TZXPCZUHBI013.html)12月1日消息称，美国国防部“全球军力部署评估”（GPR）中清楚地表明了美军向中共国的转变。评估得出的一个结论是美国将加强与地区盟友和伙伴们的合作，推进各项措施以增进地区稳定，遏阻中国潜在的军事侵略和朝鲜的威胁。认为是时候应对中共国的威胁并需要努力加强在美国关岛和澳大利亚的军事基地。五角大楼官员强调，美军不会为此削弱中东等地区的军事威慑。但这一重大转变给一些人带来震撼。
+中共国还剥夺了香港公民的权利，侵犯了新疆维吾尔自治区的人权，并“试图扭曲世界各地的公共言论和政治决策”。
 
-- 延展阅读：[专家说：拜登与习近平会面看起来像是世界大战的开始](https://katv.com/news/nation-world/meeting-between-biden-and-chinas-xi-jinping-produced-very-little-says-china-export)
+路透社要求中共驻伦敦大使馆对摩尔先生的言论发表评论，但没有得到答复。
 
+愚蠢的中共政府搞的闭目塞耳，阻塞言论的“大外宣”治国，终于还是自掘坟墓了。古人还讲“偏听则暗”呢。习总加速师周围，“宦官弄权”，谎话连篇，习是听舒服了，野心越来越大，岂知大祸也临头了。西方世界也终于捅破窗户纸，亮剑了！多行不义必自毙，中共，出来混总是要还的！
 
-消息认为，五角大楼在印太地区增加军事部署的意图是基于拜登政府应对中共国这一“[最大地缘政治考验](https://www.cnbc.com/2021/03/04/biden-administration-singles-out-china-as-biggest-geopolitical-test.html)”中得出的结论。中共国在南中国海针对台湾以及周边积极的军事活动令人担忧，最近的核导弹迅速发展的态势表明，这一军事调整迫在眉睫。特别是“[今年夏天中国的高超音速武器试验震惊了美军](https://www.cbsnews.com/news/china-hypersonic-weapons-test-details-united-states-military/)。”参谋长联席会议主席米莉甚至将这一事态与1957年 “[斯普特尼克危机](https://en.wikipedia.org/wiki/Sputnik_crisis)” 的影像相提并论。“斯普特尼克危机” 是前苏联第一次人造卫星发射成功，以此为例，认为中共国在今年夏季发射的[高超音速武器试射成功](https://www.usatoday.com/in-depth/graphics/2021/11/04/china-hypersonic-missile-sputnik-moment-icbm-mach-5-weapon/8581971002/)威胁到美军的军事实力。美军二号人物海腾将军相信“中共国有朝一日有能力对美国发动突然的核攻击。”
+[信息源](https://news.yahoo.co.jp/articles/d968bec9a9b45601a6266020b890e656b7e2e7d6)
 
-- ***延展阅读：***[***高超音速导弹试验揭示了中共前所未有的军事能力***](https://thehill.com/policy/defense/582629-chinese-hypersonic-missile-test-revealed-unprecedented-military-capability)
-
-
-该消息认为美国看到了切实的威胁，拜登总统早在2月份就指示国防部长奥斯汀起草GPR，以应对中共国的威胁。美军认为，关岛和澳大利亚是中共国战略要地。关岛基地是美国面向中国的前沿，拥有安德森空军基地等重要设施。
-
-由于关岛处于中国弹道导弹射程之内，美国印太陆军已表示将加强导弹防御以保护关岛。而澳大利亚是美国最值得信赖的长期盟友之一，地处印太地区，因此，需要通过美英安全合作框架“AUKUS”向澳大利亚提供核潜艇技术，以加强这一地区的军事力量，并针对中共国在南海的军事活动，美国还需要增加以美军为首的军事演习，提高对中共国解放军的威慑力度。
-
-2021年12月1日
-
-*编辑：东京樱花团 / 東洋武士
-发布：东京樱花团 / 野猫*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.png)
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
