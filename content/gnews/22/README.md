@@ -2,50 +2,39 @@
 ---
 
 
-## 中共的教育政策之学生使用手机
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1709900/)
+## 芯片短缺将延续到2022年, 格芯股票稳步提高
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1709991/)
 
-作者：纽约香草山农场 – 静水流深
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
+作者：香草山金融部 – 闲聊钱币
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
 
-2021年1月18日，中共教育部办公厅印发了一则名为《教育部办公厅关于加强中小学生手机管理工作》的通知。其中，中共认为手机的普及影响学校对学生的管理和学生自身的发展，同时，中共也将学生的身心健康归咎于手机。为此，中共在该通知中表示，为了加强对学生使用手机的管理，当局将限制学生将手机带入校园并细化管理措施，还要加强对学生的教育引导并做好家校沟通，有效强化对学生的督导检查。在中共当局的强势推进下，一些学校甚至在全校范围内开展了所谓“拒绝手机诱惑，健康快乐成长”的倡议书，还要求全体学生签字并举行了全校学生的宣誓活动。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/59.jpg)图源网络
+拥有近百年历史的瑞典汽车制造商沃尔沃(VOLCARb.ST)周二警告称，整个汽车行业的半导体芯片短缺将持续到明年。
 
-对此，笔者不禁想问，难道手机就只能成为学生命运的绊脚石吗？事实上，看待任何事物都不能只有一个观点。所以说，中共对学生使用手机就如此惧怕吗？非也非也。中共要求学生在学校里不能使用手机，这样就能让他们时时刻刻都接受中共的洗脑教育了。
+今年10月29日沃尔沃公开募股，成为欧洲迄今为止最大的IPO。尽管股价在早盘下跌2.9%，但是整体来说自上市以来股价已飙升近30%。位于哥德堡的汽车制造商表示，供应链仍然受到限制。芯片短缺已经迫使包括沃尔沃在内的全球许多汽车制造商削减生产。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture2-29.jpg)
+该公司确认了第三季度营业利润为33亿瑞典克朗（3.626亿美元），而去年同期则为46亿瑞典克朗。沃尔沃的控股股东是中共国的吉利控股（GEELY.UL）。随着全世界进一步抵制和脱钩与中共国的贸易，沃尔沃的生产和投资人的利益必然受到影响。
 
-另一方面，尽管学生不能在学校里使用手机，但在家里却还有漏网之鱼。这时候，中共的政策又来了。有消息称，每到周五的时候，学校总会让班主任提醒学生在家学习中共推行的“青年大学习”、“红领巾爱学习”等微信公众号上面的内容，还包括“青骄课堂”（青少年禁毒教育的学习网站）、“学宪法，讲宪法”（青少年普法网）等网站内容的学习。
+芯片的短缺必然利好芯片制造企业。格芯（GlobalFoundries NASDAQ: GFS) 股价已经从一个月前IPO时的47美元稳步上升至69美元，涨幅高达46.8%。
 
-现如今，对于中共墙内的学生来说，学校里，他们被严禁使用手机，全封闭式全身心地接受中共的洗脑教育；在家中，他们又有各种网络学习的任务，他们需要按时用手机完成，继续网络接受中共的洗脑教育。
+跟着共产党，走进火葬场。着实为那些投资了沃尔沃但并不知道中共是它背后金主的小投资者捏把汗啊！
 
-对于是否允许学生用手机这看似矛盾的管理政策，完全彰显了中共的居心叵测——他们时时刻刻地让学生接受其洗脑教育。说来说去，中共就是通过控制学生使用手机来洗脑中小学生。
+参考来源：[芯片短缺将延续到2022年, 格芯股票稳步提高](https://www.reuters.com/business/autos-transportation/volvo-cars-sees-supply-situation-improving-after-q3-profit-drop-2021-11-30/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=30-11-21&amp;utm_campaign=30-11-21)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
 
-***编辑/校对/发稿：Irene木木***
+编辑/校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
  
 

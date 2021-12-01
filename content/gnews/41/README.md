@@ -2,23 +2,21 @@
 ---
 
 
-## “奥密克戎” 变体症状被用来掩盖疫苗副作用
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1709568/)
+## 动物学家彼得-达扎克承认在中共实验室制造冠状病毒
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1709569/)
 
 作者：纽约香草山 – 童谣
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-据外媒11月28日报道，博茨瓦纳政府宣布，四名疫苗完全接种者感染 “奥密克戎”，该病毒变体的症状之一包括与心脏有关的并发症，如心力衰竭、心律失常、心脏炎症和血凝块。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture2-28.jpg)
-上列症状恰好是疫苗的主要副作用之一。2021年，国际足联球员因心脏猝死和不明原因，导致的死亡增加了5倍。自2020年12月以来，已有183名职业运动员和教练员突然倒下，其中108人死亡。
+消息媒体11月28日报道，有文件和电子邮件证据表明，彼得-达扎克承认他和蝠奇在武汉病毒实验室，同中共病毒学家合作开展工作。2016年3月28日，彼得-达扎克确切地描述了科学家如何在中共的实验室里制造，能够导致全球病毒大流行的冠状病毒。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture3-25.jpg)
+彼得-达扎克说：我们在蝙蝠身上发现了一大堆冠状病毒，其中一些看起来与SARS非常相似，所以我们对刺突蛋白进行测序。然后从这些病毒中创造出一种，能够轻易与人体细胞结合的刺突蛋白。每走一步，都会越来越接近可以对人产生致病性的病毒。
 
-消息媒体称，官僚们已经在利用“奥密克戎”变体，来掩盖疫苗接种者中，快速增长的心脏病死亡；一些运动员开始公开质疑主流媒体对疫苗引起心脏并发症致死事件的误导性掩盖。
-
-参考链接：&lt;a href="http://“奥密克戎” 变体症状被用来掩盖疫苗副作用
+参考链接：[动物学家彼得-达扎克承认在中共实验室制造冠状病毒](https://www.thegatewaypundit.com/2021/11/flashback-2016-faucis-cohort-peter-daszak-explains-scientists-can-perfectly-create-coronavirus-china-lab-can-lead-global-pandemic/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-总编：文徬
-编辑：DM
+总编：文特
+编辑：木白
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**

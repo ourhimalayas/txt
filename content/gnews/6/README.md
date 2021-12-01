@@ -2,32 +2,45 @@
 ---
 
 
-## 美联储将减少经济刺激措施
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1710112/)
+## 有声|推特CEO辞职
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1710205/)
 
-**撰稿：Grace**
+配音：香草山美食部 – 玫瑰园
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-11-30-at-11.52.33-PM.jpeg)图片来源：gateway pundit
-据Omaha World-Herald 11月30日报道，美联储主席杰罗姆·鲍威尔（Jerome Powell）周二表示，美联储将考虑更快地采取行动，缩减其超低利率政策，以应对更高的通货膨胀。鲍威尔认为，通货膨胀可能会持续到明年。
 
-报道称，在鲍威尔发表上述言论之前，最近几周其他美联储官员已经表示，美联储应考虑比目前计划更快地结束超低利率政策。 他们提到了对通胀的担忧，美国的通货膨胀已经跃升至三十年来的高点。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-鲍威尔承认，价格上涨比美联储预期的要严重，而且会比政策制定者最初想象的持续时间更长。他表示，”过渡性 “一词不再能作为对通货膨胀的描述，现在可能是让这个词退休的时候了。
 
-另外，为了降低长期借贷成本，美联储已经开始减少其每月的债券购买量，并将在明年6月份结束这些购买。但鲍威尔明确表示，美联储官员将在12月中旬的下一次会议上讨论更快地削减这些购买量。
+11月29日，杰克·多西发布了辞职公开信，辞去推特首席执行官一职。
 
-报道指出，美联储这样的做法，将使美联储最早于明年上半年开始提高其关键短期利率。更高的美联储利率将反过来提高抵押贷款、信用卡和一些商业贷款的借贷成本。
+推特股价在开盘前上涨12%。消息人士称，推特股价上涨是因为市场认为多西的辞职标志着很快将出现对推特的并购案。但相反意见则认为，推特面临铺天盖地的诉讼和天文数额的赔偿，前景黯淡。
 
-鲍威尔还说，美联储应该在下一次会议上，及时了解更多关于变种中共病毒omicron的潜在经济影响。他表示，就目前而言，omicron还没有被纳入美联储经济前景的考虑范围。
+近年来，以推特、脸书为首的“硅谷大科技寡头”无视美国宪法第一修正案，打压自由言论，利用有政治或利益倾向的言论审查禁言、删帖，直到永久封号。推特因此官司缠身，多西多次被国会传唤参加听证会。分析人士称，多西辞职有利于他从争议和诉讼中脱身。
 
-据报道，股价在鲍威尔的评论后暴跌，道琼斯工业平均指数在午盘下跌约1.5%。许多投资者曾希望，鲍威尔会发出信号，表明美联储将推迟任何政策变化，直到omicron变体的影响变得更加清晰。可是相反，鲍威尔暗示美联储已经果断地转向减少经济刺激措施。
+原文链接：[推特CEO辞职](https://gnews.org/zh-hans/1708527/)
 
-在上周，美联储发布的11月会议记录显示，17位美联储决策者中的一些人支持更快减少债券购买，尤其是在通胀恶化的情况下。这将使美联储有机会最早在明年上半年提高其基准利率。
+音频处理：喜山必胜Maverick
+发稿：Daxia
 
-当时，投资者预计明年会有三次加息，但自从新的中共病毒变种出现后，这么多次加息的几率已经急剧下降了。
+[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
 
-**新闻来源：[Powell says Fed may accelerate pullback in economic support](https://omaha.com/news/national/powell-covid-19-variant-clouds-inflation-economic-outlook/article_ea40b850-b710-5fa8-8c38-b4fd98ae8693.html)**
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-6.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-6.jpg)
+
+
 
  
 

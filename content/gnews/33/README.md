@@ -2,34 +2,44 @@
 ---
 
 
-## 新的推特执行长的首个决定：禁止恶意的氛围
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1709713/)
+## 美国联邦法官阻止拜登对全国医护人员实施疫苗强制令
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1709723/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-143.png)
-图片来源： gnews.org
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-零对冲网11月30日报道，新的推特执行长帕拉格刚上任后一天，就违背第一修正案，该公司宣布不再允许人们分享没有得到同意的私人照片和视频，理由是“有越来越多的担心这些媒体和信息被错误地用于骚扰，威胁和揭露个人的身份。”
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/biden-vaccine-mandates-osha-comp-1.jpg)
 
-我们可以假设这将包括那些抗议及骚乱者的照片，在路易威登店的抢劫照片，休闲越野车冲向人群的照片，包括非公众人物的走红氛围。
 
-在我们的私人信息政策中，在你没有获得允许之下，你不能分享如下信息：
+ 
+图片来源：New York Post
 
-1. 家庭住址和全球定位的位置，以及其他与身份相关的信息，这是私人信息
 
-2. 身份文件包括政府出具的身份号码，社安号或其他身份号码
+#### 编译：小红帽
 
-3. 联系信息包括非公众性的私人电话号码和电子邮件地址
+美国路易斯安那州的一名联邦法官周二发布了一项全国性的初步禁令，反对拜登总统对医护人员实施的新冠病毒（COVID-19）疫苗强制令。
 
-4. 金融账号包括银行和信用卡号等
+美国路易斯安那州西区地方法院的特里·A·道蒂（Terry A. Doughty）法官裁定，支持路易斯安那州共和党总检察长杰夫·兰德里（Jeff Landry）的请求，以阻止医疗保险和医疗补助服务中心于11月4日发布的一项紧急条例。该条例要求几乎所有接受医疗补助或医疗资助资金的医疗机构的全职雇员、兼职雇员、志愿者和承包商都要接种新冠疫苗。
 
-5. 其他信息如生物数据或就医记录等
+路易斯安那州和其他13个州的总检察长一起参与了诉讼。
 
-如今推特新加入了未经允许的人物描绘的私人媒体，推特提供了自己的标准，那些推特账号拥有者可能分享了私人照片和视频促使某人陷入危机状态，例如爆乱事件的后果，或者是公众感兴趣的价值观的新闻价值部分，以及可能超出某人的安全范围等。
+职业安全与健康管理局（OSHA）暂停执行对大型企业的新冠疫苗强制令。
 
-谁做出这个决定的？对某嫌犯的种族是不是一个因素？这是不让公众看到在抗议中发生了什么，或者在犯罪现场的情形，而这一切都是由媒体来决定能不能公布！
+道蒂在裁决中认为，拜登政府没有宪法权力绕过国会发布这样的授权。
 
-##### **新闻来源： **[New Twitter CEO’s First Decision: Ban Mean Memes](https://www.zerohedge.com/political/new-twitter-ceos-first-decision-ban-mean-memes)
+道蒂补充道：“如果允许行政部门篡夺立法部门制定法律的权力，那么我们的宪法所赋予的三项权力中的两项将掌握在同一个人手中。如果说人性和历史教导了我们什么，那就是当政府宣布无限期的紧急状态时，公民自由会面临严重的风险”。
+
+道蒂的裁决与美国地区法官马修·施乐普（Matthew Schelp）的裁决相呼应，他于周一发布了一份32页的命令，阻止拜登政府对10个州的卫生保健工作者的新冠疫苗强制令。
+
+**参考新闻：** [Federal judge blocks Biden vaccine mandate for health care workers nationwide (msn.com)](https://www.msn.com/en-au/news/us/federal-judge-blocks-biden-vaccine-mandate-for-health-care-workers-nationwide/ar-AARjCWT?ocid=msedgntp)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

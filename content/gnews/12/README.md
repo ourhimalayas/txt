@@ -2,39 +2,49 @@
 ---
 
 
-## 芯片短缺将延续到2022年, 格芯股票稳步提高
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1709991/)
+## 有声|【信仰之声】约瑟的启示（三）：唯真的心，与神同行，化解危机
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1710169/)
 
-作者：香草山金融部 – 闲聊钱币
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
+配音：香草山香港部 – 文凯琳
 
 
-拥有近百年历史的瑞典汽车制造商沃尔沃(VOLCARb.ST)周二警告称，整个汽车行业的半导体芯片短缺将持续到明年。
 
-今年10月29日沃尔沃公开募股，成为欧洲迄今为止最大的IPO。尽管股价在早盘下跌2.9%，但是整体来说自上市以来股价已飙升近30%。位于哥德堡的汽车制造商表示，供应链仍然受到限制。芯片短缺已经迫使包括沃尔沃在内的全球许多汽车制造商削减生产。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture2-29.jpg)
-该公司确认了第三季度营业利润为33亿瑞典克朗（3.626亿美元），而去年同期则为46亿瑞典克朗。沃尔沃的控股股东是中共国的吉利控股（GEELY.UL）。随着全世界进一步抵制和脱钩与中共国的贸易，沃尔沃的生产和投资人的利益必然受到影响。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-6.jpg)
 
-芯片的短缺必然利好芯片制造企业。格芯（GlobalFoundries NASDAQ: GFS) 股价已经从一个月前IPO时的47美元稳步上升至69美元，涨幅高达46.8%。
 
-跟着共产党，走进火葬场。着实为那些投资了沃尔沃但并不知道中共是它背后金主的小投资者捏把汗啊！
 
-参考来源：[芯片短缺将延续到2022年, 格芯股票稳步提高](https://www.reuters.com/business/autos-transportation/volvo-cars-sees-supply-situation-improving-after-q3-profit-drop-2021-11-30/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=30-11-21&amp;utm_campaign=30-11-21)
+约瑟是雅各最爱的妻子拉结生的儿子，从小“恃宠而骄”，经常去告哥哥们恶行丑事的状，但他说的是真的。他说出的梦境暗示哥哥们都将是他的仆人，后来证明也是真的。哥哥们心中有恶，害怕面对真相，一起把约瑟卖到了埃及。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
+虽然流落他乡为奴，但约瑟没有因为孤独无助，就用谎言去讨好主人。他对神坚定的信靠，让他蒙福，让他赢得信任而被重用。
 
-编辑/校对/发稿：Hetangyuese
+（创世记经文）
+
+39:3 他主人见耶和华与他同在，又见耶和华使他手里所办的尽都顺利，
+
+39:4 约瑟就在主人眼前蒙恩，伺候他主人，并且主人派他管理家务，把一切所有的都交在他手里。
+
+原文链接：[约瑟的启示（三）：唯真的心，与神同行，化解危机](https://gnews.org/zh-hans/1706577/)
+
+音频处理：喜山必胜Maverick
+发稿：Daxia
+
+[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
 
 **更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-6.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-6.jpg)
 
  
 
