@@ -2,46 +2,97 @@
 ---
 
 
-## 日本东京方舟农场文化灭共「力挺班农」
-` WindTalker` [轉載自GNews](https://gnews.org/zh-hans/1711799/)
+## 中共的体制让习近平也生活在恐惧中
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1711865/)
 
-——日本东京方舟农场战友「方舟柒公子」言：积跬步，致千里，每天做一点，不虚度光阴。
+[https://gtv.org/video/id=61a7071c3ff6481adce6dea3](https://gtv.org/video/id=61a7071c3ff6481adce6dea3)
 
-**设计/策划/撰文：宇宙之泾 **
+所有这些的背后是什么
+Qué hay detrás de todo esto
 
-**绘画/书法/篆刻：方舟柒公子**
+战友们, 今天都能看到
+Compañeros luchadores, hoy pueden ver
 
-**书法：Livre 动漫画：星空**
+是共产党这个魔鬼的体制
+Es el sistema de demonio del Partido Comunista
 
-近期，日本东京方舟文化灭共组我们有关注到美国影子政府鬼魅势力与邪魔中国共产党明来暗往的勾结，就是对于我们新中国联邦最坚定的战友，美国天主教徒，美国政坛和世界政坛的领袖级人物班农先生的污蔑诋毁和政治迫害。对此，战友们作为新中国联邦的小水滴也迅速作出了回应和行动。班农先生倡导的平民主义和文贵先生一直挂在嘴边的正道主义不谋而合，都是为了我们平民草根在发声和奔走呼告，而班农先生在法治基金成立三周年大直播中，我们尊敬的文贵先生专门提起：班农先生认为「平民主义」运动和路线一定是来自于社会各个阶层并不单是一个阶层。
+才能培养出一个这样的人
+Para poder entrenar a una persona así
 
-在说到我们每个战友非常敬佩和喜爱的班农先生时，有说起班农先生对中国人真挚的爱和疼惜，媒体平台直播不要任何他经常提到的中国「老百姓」的打赏，拒绝文贵先生的生日「红包」等等细节描述，七哥说：“中国共产党永远不会知道这个世界还有灵魂如此高贵的人物”！我们不禁又重新·把文贵先生2018年11月20日信息发布会的视频找出来再一次见证奇迹和震撼的演讲内容，历历在目，时过境迁今天再一次体会到什么是唯真不破，昨天的怒吼犹在耳旁，今天的病毒和疫苗灾难已经活生生，血淋淋呈现在各位眼前。
+才是习近平今天能全天下而不顾(的原因)
+Y es la razón por la cual hoy Xi Jinping puede dejar al mundo entero
 
-今年的1120当天，看完十几个小时的大直播后，我在盖特写下这么一段文字：各位战友和灭共者，今天是新中国联邦法治基金成立三周年。我们跟随七哥一直以来，坚持正道主义，平民主义，坚持揭露中国共产党的邪恶和集权独裁杀人政权，揭露真相，追求真相和信仰。经历了十几个小时的【七哥&班农先生】大直播，我们看到了文贵先生和班农先生的大智慧和勇气，灭共的自信和决心！让我们一起携手互爱互助，有钱出钱有力出力，没力出时间。把法治基金，法治社会建设得更加坚实和完善。
+他自己连门都不敢出了
+Él mismo no se atreve de salir de la puerta de su casa
 
-以下是日本东京方舟农场文化灭共组近期支持班农先生，「力挺班农」的平面作品如下：
+习近平连国都不敢出了
+Xi Jinping no se atreve a salir del país
 
+连中南坑里都不让人知道我在哪
+Hasta la cueva del PCCh no saben dónde estoy
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/80AD72DC-4EFC-4E89-AE67-EBCDEC829568_1_201_a.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/F4983E9C-0416-4BA0-8874-DE4839B0E706.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/00343A9F-BEEB-4B64-9BF2-C9F6C2346CDB_1_102_o.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/7AC28DA0-AAAC-4832-9C15-18FFB95B0E0C_1_102_o.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/28326041-352A-48DF-A85F-6CB512C66357_1_102_o.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/1C9341BF-3B1B-4170-B029-EC299AE44039.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/85A9DBF3-4860-4C4F-8B7B-962289F759D4_1_100_o-1-scaled.jpeg)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/73A43459-2029-4DBE-89E4-993EF95E97A9_1_201_a.jpeg)
+真的, 习从过去2020年的1月份到现在
+Es verdad, Xi desde enero de 2020 hasta ahora
 
-- **只有那些疯狂到认为自己可以改变世界的人，才能真正改变这个世界。**
+习几乎是居无定所
+Casi no tiene un hogar permanente
 
+四处流窜
+Ha estado corriendo por todas partes
 
+掩人耳目
+Cubriéndose
 
+装神弄鬼
+Haciendo trucos
 
+这就是习近平过去一年的生活
+Esta es la vida de Xi en este último año
 
+他绝不敢让任何人知道他住在哪
+Él absolutamente no se atreve a decirle a ninguna persona dónde se está viviendo
 
-2021年12月| 一 | 二 | 三 | 四 | 五 | 六 | 日 |
-| --- | --- | --- | --- | --- | --- | --- |
-|   | [1](https://gnews.org/zh-hans/date/2021/12/01/) | 2 | 3 | 4 | 5 |
-| 6 | 7 | 8 | 9 | 10 | 11 | 12 |
-| 13 | 14 | 15 | 16 | 17 | 18 | 19 |
-| 20 | 21 | 22 | 23 | 24 | 25 | 26 |
-| 27 | 28 | 29 | 30 | 31 |   |
+他也不敢说他在哪
+O dónde está
 
-[« 11月](https://gnews.org/zh-hans/date/2021/11/)  
- 
+他也不敢告诉人家吃啥
+Tampoco le dice a las personas qué come
+
+有病看医生, 恨不得一天都换100个医生
+Si se enferma, desea cambiar 100 doctores en un sólo día
+
+然后天天要管理全世界
+Y todos los días quiere administrar el mundo
+
+然后抓来抓去
+Arrestando a las personas
+
+他就是毛泽东, 斯大林, 希特勒的一个总和的结果都没有习今天疯狂
+Él es el resultado final del conjunto de Mao Zedong, Stalin y Hitler, y ninguno es tan loco como lo es Xi hoy
+
+而且他的恐惧超过任何人
+Y su miedo supera a cualquier otra persona
+
+**原视频网址：**[https://gettr.com/post/pi1ce5056a](https://gettr.com/post/pi1ce5056a)
+
+日期：11/30/2021
+原视频标题：中共的体制让习近平也生活在恐惧中
+El sistema del PCCh hace que Xi Jinping también viva con miedo原视频日期：11/26/2021
+**原视频网址：**https://gettr.com/post/pi1ce5056a
+任务编号：3025
+视频时间段：0:00-1:11
+
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 -青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

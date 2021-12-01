@@ -2,42 +2,159 @@
 ---
 
 
-## 从新变种病毒命名排序看共产党的做贼心虚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1711838/)
+## 中共释放新一轮病毒的真实意图
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1711913/)
 
-作者：纽约香草山农场 –晓仙女
+[https://gtv.org/video/id=61a7076f3ff6481adce6ded3](https://gtv.org/video/id=61a7076f3ff6481adce6ded3)
 
+实际上习的思维
+En realidad, el pensamiento de Xi
 
+我知道它共产党包括这些
+Sé que el PCCh incluye estos
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/LOGO-1.jpg)
+很清楚他这个战略要干嘛
+Sé claramente que está haciendo con esta estrategia
 
+把这一波（病毒）再撂向美国、欧洲
+Envía esta ola (virus) a Estados Unidos y Europa
 
+让你经济供应链断掉
+Haciendo que tu cadena de suministro económico se corte
 
-2021年11月30日，郭文贵先生盖文发布一则关于新变种病毒命名的视频，视频中主持人说：这个新变种的命名本身非同寻常，据《电讯报》报道，世卫组织官员跳过了希腊字母Xi，以避免污名化中共国领导人。丹尼斯先生表示：世界卫生组织开始选择用希腊字母命名病毒时，由于没有预见到希腊字母Xi，跟中共国主席习近平的习协同，便把应称之为Xi变体病毒的新变体换了名称。 文贵先生表示，从病毒命名排序的小事上，看出共产党的做贼心虚，世界命运不会被无知流氓行径的共产党掌握，这既是冥冥之中的天意。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/111.png)
-新闻链接：[https://gettr.com/post/piadug0aa8](https://gettr.com/post/piadug0aa8)
+让你们活在恐惧之中
+Hacer que vivan en el temor
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/rili.png)
+特别是让你们内乱
+Especialmente provocarles conflicto interno
 
-编辑/校对/发稿：祈祷新生
+他关键要制造内部的局部的动乱和国家内部动乱
+Su clave es crear disturbios locales y disturbios internos dentro del país
 
-**更多资讯，更多关注**
+然后呢 意在台湾
+Y luego, la intención está en Taiwán
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+为啥我说他一定十月到十二月份来放这个毒呢
+¿Por qué digo que seguramente de octubre a diciembre soltará este virus?
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+放这个毒
+El propósito de propagar este virus
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+第一、 以毒威胁你参不参加奥运会
+Primero, amenazarte con este virus para ver si participas en los Juegos Olímpicos
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+我有解药
+Yo tengo el antídoto
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+以解药要挟你 来吧
+Amenazarte con el antídoto, ¡venga!
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/LOGO-1.jpg)
+第二
+Segundo
 
+我既然有解药让你来参加奥运会
+Ya que tengo el antídoto para que vengas a participar en los Juegos Olímpicos
 
+我也有解药能帮你未来
+También tengo el antídoto para tu futuro
 
+我要打台湾
+Yo voy a atacar Taiwán
 
+一切的一切都是要打台湾
+Todo por atacar a Taiwán
+
+你看俄罗斯这个对乌克兰的动作
+Mira los movimientos de Rusia hacia Ucrania
+
+我啥时候说的
+¿Cuándo fue que lo dije?
+
+看看我去年爆料 我说过两三次
+Vaya a ver mi manifestación del año pasado, lo dije 2 a 3 veces
+
+俄罗斯的哥们给我打电话
+Un amigo ruso me hizo una llamada
+
+文贵最好别提到我们老大 就是普京
+“Wengui, mejor no menciones a nuestro boss” quiere decir Putín
+
+也别提我们
+Tampoco nos menciones
+
+我很好的这位女朋友
+Una muy buena amiga
+
+她在北京常住
+Ella vive en Beijing la mayoría del tiempo
+
+是普京的好姐妹吧 咱就这么说
+Digamos que es una buena hermana de Putín
+
+一定我说过
+Yo seguro dije que
+
+共产党对台湾的动作
+El PCCh habrá movimiento hacia Taiwán
+
+一定跟俄罗斯和乌克兰同时动作
+Y seguro será al mismo tiempo que Rusia hacia Ucrania
+
+我去取乌克兰 你取你的台湾
+Yo tomo mi Ucrania, tu tomas tu Taiwán
+
+美国没有任何情况
+Estados Unidos no habrá ninguna situación
+
+没有任何可能同时打两场战争
+No habrá ninguna posibilidad de tomar 2 guerras al mismo tiempo
+
+也不可能同时对中俄开战
+Y tampoco es posible abrir fuego hacia China y Rusia al mismo tiempo
+
+这是绝对的 这个是真的
+Esto en lo absoluto es verdadero
+
+所以不存在任何其他
+Por eso no existe otra cosa
+
+一切为了台湾和中俄是协调行动
+Todo esto es por Taiwán y por coordinar acciones de Rusia y China
+
+局部的动乱
+Causar disturbios locales
+
+然后掩盖他的真实行动
+Y omitir su verdadera acción
+
+然后继续放毒
+Luego seguir soltando virus
+
+而且我告诉你解药管用
+Además, te digo que el antídoto si funciona
+
+谢谢舒先生（舒屏风）
+Gracias Sr. Shu (Shu Pingfeng)
+
+**原视频网址：**[https://gettr.com/post/pi9b9ucbe8](https://gettr.com/post/pi9b9ucbe8)
+
+日期：11/30/2021
+原视频标题：中共释放新一轮病毒的真实意图
+La verdadera intención del PCCh de soltar el nuevo virus原视频日期：11/29/2021
+原视频网址：https://gettr.com/post/pi9b9ucbe8
+任务编号：3058
+视频时间段：0:00-1:46
+
+西听校：洛杉矶盘古农场- 小文萱
+翻译：洛杉矶盘古农场- 霙霙（文霙）
+翻译终校：洛杉矶盘古农场- 小文萱
+字幕+视频制作：洛杉矶盘古农场 -青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

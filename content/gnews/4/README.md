@@ -2,51 +2,54 @@
 ---
 
 
-## 加拿大在未经您的同意下，您 5 岁的孩子是否可以接种疫苗
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1711857/)
+## 面对中共日益增长的威胁，五角大楼计划扩充军事基地
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1711914/)
 
-作者：Drea Humphrey
-翻译：HimaFAFA
+![](https://assets.gnews.org/wp-content/uploads/2021/12/120109.jpg)美国海军/法新社/盖蒂图片社
+来自《每日邮报》2021年11月29日报道
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-7.png)
+**摘要翻译：**
 
-11 月 19 日，加拿大卫生部批准将辉瑞疫苗用于 5 至 11 岁的儿童。
+在对全球军事资源进行了为期九个月的评估后，美国官员周一宣布，五角大楼计划改善其在关岛和澳大利亚的基地，以应对来自中共国日益增长的威胁。
 
-但这是否意味着可以在未经父母同意的情况下在加拿大为年仅 5 岁的儿童接种新冠疫苗？
+但他们表示，美国的全球军事态势不需要做出重大变化，他们不会公布总体调查结果。
 
-令人震惊的是，在不列颠哥伦比亚省，答案是肯定的。
+为期九个月的评估，旨在协调国家庞大的军事能力与拜登政府的战略重点，最主要的是应对中共国日益增强的自信及其力量集结。
 
-那是因为卑诗省有一个偷偷摸摸的父母权利问题，称为“婴儿法”，该法概述了关于 19 岁以下儿童“成熟的未成年人同意和免疫”的法律立场。
+五角大楼在一份声明中说：“在印-太地区，这份评估指导与盟国的合作伙伴开展更多合作，推进有助于该地区稳定的举措，并遏制中共国潜在的军事侵略和来自朝鲜的威胁。”
 
-即使父母因与此类治疗（包括绝育）有相关潜在健康风险而反对时，该法律也可用于允许医生帮助识别为跨性别的孩子进行医疗过渡。
+“这些举措包括为军事伙伴关系活动寻求更大的区域准入；加强澳大利亚和太平洋岛屿的基础设施；并计划在澳大利亚轮流部署飞机，正如9月宣布的那样。
 
-在这份完整的报告中，您将更好地了解这项法律，正如宪法自由司法中心的诉讼主管杰伊·卡梅伦 (Jay Cameron)所解释的那样。
+关岛距中共国约3000英里，是距离中共国最近的美国军事基地。
 
-您还将从南丁格尔患者护理倡导的创始人凡妮莎·福勒（Vannessa Fowler）那里了解到确保您的孩子在接受这些疫苗时获得知情和同意的重要性。
+本月早些时候，重新聚焦关岛的细节浮出水面，计划在岛上建造以色列“铁穹”导弹防御系统。
 
-在不久的将来，这两种信息来源可能会变得非常重要，因为您还将在本报告中了解到，小学被认为是儿童接种疫苗的便利地点。此外，像BC 疾病控制中心医学主任莫妮卡·瑙斯（Monika Naus） 博士这样的某些权力，使指定的卫生专业人员可以更方便地在未经父母同意的情况下为 11 岁或以下的儿童接种疫苗。
+负责战略、计划和军力的助理国防部长玛拉·卡林告诉记者：“在印度-太平洋地区，我们正在稍作调整。”
 
-如果您担心公共卫生领主和官僚们使用不道德的强制手段迫使人们（包括儿童）接受实验性疫苗接种，请加入我们的斗争，以结束将疫苗护照和疫苗接种强制要求作为的就业条件。
+据《突破防线》报道，玛拉·卡林说国防部正在向澳大利亚派遣战斗机和轰炸机，并且正在投资后勤、燃料和弹药库，以及在关岛、澳大利亚和北马里亚纳群岛的机场进行升级。
 
-来源：[https://www.rebelnews.com/can\_your\_5-year-old\_kid\_be\_jabbed\_for\_covid\_without\_your\_consent\_in\_canada](https://www.rebelnews.com/can_your_5-year-old_kid_be_jabbed_for_covid_without_your_consent_in_canada)
+**简评：**
 
-（文章仅代表作者个人观点）
+美国五角大楼计划扩充其在关岛和澳大利亚的基地，以应对来自中共国日益增长的威胁。中共称霸地区及世界的野心日益扩张，其周边的印-太地区现况充满了不确定性，周边国家均受到威胁，为了维护世界的安全，相应的国家应该及早做好准备，防范中共国狗急跳墙发动战争。
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+新闻链接：[Pentagon announces plans to bulk up bases in Guam and Australia to confront China’s growing threat but won’t shuffle troops around the world](https://www.dailymail.co.uk/news/article-10256203/Pentagon-plans-bulk-bases-Guam-Australia-confront-Chinas-growing-threat.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+*翻译/简评：希望*
 
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+*校对：Julia Win*
 
-**关注我们**
+* * *
 
-Discord 账号
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-Gettr 账号
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

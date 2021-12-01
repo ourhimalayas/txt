@@ -2,97 +2,69 @@
 ---
 
 
-## 中共的体制让习近平也生活在恐惧中
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1711865/)
+## 【草根访谈】第284期新闻概要
+` WindTalker` [轉載自GNews](https://gnews.org/zh-hans/1711916/)
 
-[https://gtv.org/video/id=61a7071c3ff6481adce6dea3](https://gtv.org/video/id=61a7071c3ff6481adce6dea3)
+**——日本东京方舟农场GTV直播组出品**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/17D8B8A1-1AB3-48CD-858F-70EA8C0FA5E6.png)
+【草根访谈】第284期新闻概要：
 
-所有这些的背后是什么
-Qué hay detrás de todo esto
+**1**，**嘉宾来自于我们方舟农场日语翻译组组长「文拓先生」**。分享日本地区中共病毒感染疫苗注射加强第三针和日本政府的腐败跟中共眉来眼去的勾兑恶行，及日本各阶层的昏睡状态
 
-战友们, 今天都能看到
-Compañeros luchadores, hoy pueden ver
+** 2，日本民众患上「疫苗后遗症」，比「疫苗后遗症」更大的灾难还没真正到来。**一位来自仙台市的23岁女性向 “与读者特别报告室 ”发送信息，让人们知道她在接种疫苗后的大约两个月里连续遭受严重的疲劳和其他症状。 河北新报在17日的早报中报道了这位女士的经历，标题是《了解“疫苗后遗症”》。
 
-是共产党这个魔鬼的体制
-Es el sistema de demonio del Partido Comunista
+**3，中共对世界的毒害是全方位立体的，中共一天不除世界永无宁日。**以下文字来自于文贵先生11月30日盖特：尊敬的战友们好，从这个病毒命名排序的丢人现眼的小事上，你就能看出共产党的做贼心虚……和共产党的这种无知，和没有常识的流氓嘴脸，但是就是这种流氓和这种无知手里掌握着强和掌握着货币权，他就掌握着14人民的命运，还要掌握全世界的命运，但是天意不可违呀，你能把盘古的龙头，变成鸟头，你不可能把全世界的一切都给罩住盖．都变成鸟头．改变一切的东西的规则和标准！冥冥之中的天意，注定了一切必然的发生！
 
-才能培养出一个这样的人
-Para poder entrenar a una persona así
+**4，中国在河南运用交通绿橙红灯对记者进行监控和识别，而其实中共国境内几乎没有任何记者，中共在河南人为制造灭门大洪水之后，所谓监控不过是幌子而是监控有正义感勇敢的市民**。[华盛顿邮报](https://www.washingtonpost.com/technology/2020/12/08/huawei-tested-ai-software-that-could-recognize-uighur-minorities-alert-police-report-says/)称，电信巨头华为测试了一款人工智能软件，可以识别维吾尔人并向警方报警。人权观察组织中国部主任索菲·理查森（Sophie Richardson）说：“这一目标令人不寒而栗，它确保每个人都知道他们可以并将被监控，而他们永远不知道什么可能引发敌意。”
 
-才是习近平今天能全天下而不顾(的原因)
-Y es la razón por la cual hoy Xi Jinping puede dejar al mundo entero
+** 5，巴巴多斯放弃英国女王管辖，成为最年轻共和国。**在巴巴多斯独立55周年之际，首都比里奇顿夜间举行建国仪式，桑德拉·梅森女爵士（Dame Sandra Mason）宣誓成为共和国总统。在建国仪式上，巴巴多斯向英国女王伊丽莎白二世最后致敬后，象征英国王室的王旗（the Royal Standard）降落，取而代之的是巴巴多斯国旗。
 
-他自己连门都不敢出了
-Él mismo no se atreve de salir de la puerta de su casa
+** 6，期待几个小时之后的「文贵大直播」，战友需要恐龙血 。**
 
-习近平连国都不敢出了
-Xi Jinping no se atreve a salir del país
+主持人：@WindTalker 「宇宙之泾」
 
-连中南坑里都不让人知道我在哪
-Hasta la cueva del PCCh no saben dónde estoy
+嘉宾战友：@WenTuo 「健康文拓」
 
-真的, 习从过去2020年的1月份到现在
-Es verdad, Xi desde enero de 2020 hasta ahora
+Every day we spreading the truth about CCPvirus (COVID-19)and CCP vaccines, every day is Shouting for the people of Hong Kong who killed from CCP. Welcome to our New Federal State of the China.
 
-习几乎是居无定所
-Casi no tiene un hogar permanente
+Welcome to our Himalaya Tokyo JHL. **👏👏👏**
 
-四处流窜
-Ha estado corriendo por todas partes
+【草根访谈】日本东京方舟农场欢迎你！
 
-掩人耳目
-Cubriéndose
+GTV直播组节目：【草根访谈】【方舟有你】【方舟歌汇】
 
-装神弄鬼
-Haciendo trucos
+【方舟品读时光】【有问必答专访朴司令】【果色添香】
 
-这就是习近平过去一年的生活
-Esta es la vida de Xi en este último año
+美东时间晚上11:30 东京时间中午1:30 北京时间中午12:30
 
-他绝不敢让任何人知道他住在哪
-Él absolutamente no se atreve a decirle a ninguna persona dónde se está viviendo
 
-他也不敢说他在哪
-O dónde está
 
-他也不敢告诉人家吃啥
-Tampoco le dice a las personas qué come
 
-有病看医生, 恨不得一天都换100个医生
-Si se enferma, desea cambiar 100 doctores en un sólo día
 
-然后天天要管理全世界
-Y todos los días quiere administrar el mundo
 
-然后抓来抓去
-Arrestando a las personas
+![](https://assets.gnews.org/wp-content/uploads/2021/12/73A43459-2029-4DBE-89E4-993EF95E97A9_1_201_a.jpeg)
 
-他就是毛泽东, 斯大林, 希特勒的一个总和的结果都没有习今天疯狂
-Él es el resultado final del conjunto de Mao Zedong, Stalin y Hitler, y ninguno es tan loco como lo es Xi hoy
 
-而且他的恐惧超过任何人
-Y su miedo supera a cualquier otra persona
+> **只有那些疯狂到认为自己可以改变世界的人，才能真正改变这个世界。**
 
-**原视频网址：**[https://gettr.com/post/pi1ce5056a](https://gettr.com/post/pi1ce5056a)
 
-日期：11/30/2021
-原视频标题：中共的体制让习近平也生活在恐惧中
-El sistema del PCCh hace que Xi Jinping también viva con miedo原视频日期：11/26/2021
-**原视频网址：**https://gettr.com/post/pi1ce5056a
-任务编号：3025
-视频时间段：0:00-1:11
 
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 -青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
+
+
+
+
+2021年12月| 一 | 二 | 三 | 四 | 五 | 六 | 日 |
+| --- | --- | --- | --- | --- | --- | --- |
+|   | [1](https://gnews.org/zh-hans/date/2021/12/01/) | 2 | 3 | 4 | 5 |
+| 6 | 7 | 8 | 9 | 10 | 11 | 12 |
+| 13 | 14 | 15 | 16 | 17 | 18 | 19 |
+| 20 | 21 | 22 | 23 | 24 | 25 | 26 |
+| 27 | 28 | 29 | 30 | 31 |   |
+
+[« 11月](https://gnews.org/zh-hans/date/2021/11/)  
+ 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

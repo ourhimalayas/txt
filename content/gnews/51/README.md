@@ -2,29 +2,25 @@
 ---
 
 
-## 民主人士因所谓“颠覆”罪再度出庭受审
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1709968/)
+## 台湾退休将军亲共言论遭岛内谴责
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1709989/)
 
-作者：纽约香草山文艺部 – 宁文静
+作者：台湾宝岛农场 -斗阵来拼
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月29日，香港47名民主人士再次出庭受审。
+当地时间11月29日，据台湾媒体报道，台湾立法院内政委员会当天进行了一场专题报告，对日前台湾退休空军上将夏瀛洲的言论进行了批评。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide2.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide3.jpeg)
 
-据了解，这些民主人士因组织和参与2020年的民主初选而被港共政府指控为所谓的“颠覆国家政权罪”。自今年三月起，他们之中的多数就被拘押，其中有14人获准保释，另有33人继续还押候讯。
+本月早些时候，夏瀛洲在接受采访时曾表示，中共战机出现在台湾西南空域是在自己的国土上进行的，所以他们完全有巡逻的权利。对此，台湾国防部立即表示，夏瀛洲的言论不代表国防部立场，同时，国军捍卫台湾安全的核心价值也不会因此受到任何影响。
 
-资料显示，为了最大限度地提高民主阵营在议会选举中的影响，2020年7月，这47位民主人士参与了民主派“35+”初选。当时，约有60万名香港市民参加了该初选投票，选举秩序井然。
+据悉，在11月29日的专题报告会上，多名立法院委员对夏瀛洲的不当言论进行了批评。而台湾陆委会副主任委员邱垂正更是表示：“这种言论至为不当，应给予严厉谴责。”
 
-然而在今年1月，港警突然大规模地搜捕参与民主派初选的相关人员，这也导致多位民主人士入狱或被迫流亡海外。其后，这47名被捕人士被港共政府指控违反了《港区国安法》下的“串谋颠覆国家政权罪”。至于此次庭审，则是这些民主人士的第三次提讯，倘若该罪名成立，这些人可能会被判处终身监禁。
-
-有媒体评论表示，中共将政府极权主义植入到香港这个开放的社会，而《国安法》下的香港司法和民主现状令人失望。
-
-参考链接：[https://twitter.com/voachinese/status/1465398473667354626?s=21](https://twitter.com/voachinese/status/1465398473667354626?s=21)
+参考链接：[退將親中言論惹議擬修法 邱垂正：朝比例原則規範](https://www.cna.com.tw/news/aipl/202111290118.aspx)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
 
-总编：AN 
-编辑：Lakeman(文仁)
+总编：飞虹
+编辑：飞虹
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**
@@ -34,6 +30,8 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

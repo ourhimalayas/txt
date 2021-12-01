@@ -2,46 +2,54 @@
 ---
 
 
-## 在悉尼买投资房, 是赚还是亏？
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1711824/)
+## 那些为“无苗”离职人员提供失业救济的福利州
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1711909/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/f2c5cfa70f56c4fc.jpeg)
-整理：顺其自然
-编辑：守望黎明
+编译：西班牙巴塞罗那喜悦农场-wenwu
 
-图片来源：网络图片
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-8.jpg)迈克埃尔曼/盖蒂图片社
 
-今天早晨，一位朋友给了我以前我们租过房子的那个房东的信息，说他买了六七套房子，可有钱了。恰巧头几天，我的另一朋友刚卖了自己的一套投资房，正在准备接着卖第二套。所以今天就聊聊这几年在悉尼做投资房是亏还是赚的问题。
+一些州开始向因拒绝接种疫苗而辞职或被解雇的人，提供失业福利。这与几个月前的趋势相反，当时一系列由共和党领导的多数州过早地[选择退出](https://www.businessinsider.com/republican-states-cutting-unemployment-benefits-expanded-300-weekly-biden-stimulus-2021-5)联邦失业福利。在许多情况下，这完全停止了对零时工、自由职业者和[新近符合条件](https://www.businessinsider.com/75-million-workers-will-lose-all-unemployment-benefits-in-september-2021-8)的长期失业者的福利。
 
-前些天我说过，有个朋友在微信的朋友圈儿里发出信息，说自己的外甥得了白血病，在水滴筹上筹款，后来我上他们家去为这个小男孩儿捐了点款表示了一下心意。刚刚卖了投资房的就是这个朋友。
+现在，一些共和党领导的州正在率先抵制（毒）疫苗强制令，并通过立法禁止它们。以下是这些变化的梳理，重点是失业援助。
 
-他在2017年到2019年这两年间先后买了两套投资房，一套前两天卖掉了。他买的价格是61万，卖的时候是62万，是两房的unit，是在2019年买的。看着账面儿上是赚了1万，实际上他是亏了，至少亏了3万块钱，我和他一起算过这个账。有人会说，不是多卖了一万么，不赚也不应该亏啊。我们知道在澳洲投资房主要是用来出租的，用收的租金冲抵各种费用。他当时就是这么想的，所以买了房子之后就租了出去。但是你要知道，在悉尼房子除了贷款利息之外的，要交市政费的，还有物业管理费。市政费每个季度都要交三百左右。然后房东还要要出水费的，所以这三项费用中，他的房客的租金只能冲抵掉银行的利息。水费、市政费、物业费这三个费用是抵不掉的。这些费用再加上点维修费，房子再每年有个两三周到四五周的的空置，一年下来亏5000左右，两年就亏一万澳币。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-9.jpg)Charlie Neibergall /美联社照片
 
-而在澳洲买房子的时候是要交印花费的，在卖房子的时候还有百分之一到二左右要给卖房子的中介钱的，再加上点律师费，这就是三万又出去了。总共是亏了四万。所以他家2019年买的房子，两年多以后卖出去，账面上赚了一万，实际上亏了三万多。这个还算好呢。他买的另一个投资房才叫惨呢！
+1，爱荷华州（Kim Reynolds州长，如图）是[最早由共和党领导的](https://www.businessinsider.com/republican-states-cutting-unemployment-benefits-expanded-300-weekly-biden-stimulus-2021-5)首批在夏季结束时候，为雇员提供的大流行失业福利州之一；于6月12日前，每周 300 美元的额外支票以及使自由职业者和长期失业者，有资格获得福利[的计划](https://www.businessinsider.com/four-states-cut-off-stimulus-jobless-aid-biden-white-house-2021-6)。
 
-他买的另一套是海边的海景房，公寓新房，2017年买的楼花、2019年交房，到现在也就两年多。他买的时候128万，光印花税就交了将近六万。大家知道现在悉尼的租金很低的，他的房子每周租出去只能收700澳元，租金高了根本租不出去。这么低的租金，他每月要往里搭1500澳元才能还上银行的利息。这就是一年亏18000，两年就亏掉36000了。作为豪华公寓的海景新房，物业费还贼高，一个季度1500，一年6000，两年就是12000，加上两年的市政费2000多。所以到目前为止，一共已经往里搭了11万澳元左右。他现在只盼着快点把这个房子卖出去早点脱手。
+但是，虽然爱荷华州的自由职业者和零时工工人几个月来无法领取福利，但未接种疫苗的工人现在有资格领取。10 月 29 日，雷诺兹（Kim Reynolds）州长[签署了一项法案](https://www.legis.iowa.gov/legislation/BillBook?ga=89&amp;ba=hf902)，称“因拒绝接种中共病毒（COVID-19）疫苗而被解雇”的人，不会因为他们的主动离职而被“取消福利资格”。
 
-这两年悉尼的house（相当国内独门独户的别墅）房型涨的比较多，townhouse（相当于联体别墅）只长了一点，而unit（相当于占地很小的密集型house），尤其是公寓的价格是往下降的。即便价格不降，他还按原来的价格128万卖出去，那给中介至少也要1万5。所以他的房子若按原价卖出去，两年也是亏了12万多，除非房价到涨140万，他才不亏钱。而在悉尼也只有house有可能涨这么多。
+雷诺兹在一份[声明中](https://governor.iowa.gov/press-release/governor-reynolds-signs%C2%A0bipartisan%C2%A0vaccine-mandate%C2%A0bill-into-law%C2%A0%C2%A0)说，该立法“让员工保证，尽管他们因坚持自己的信仰而被解雇，但他们仍将获得失业救济金。” 她补充说，虽然她认为（毒）疫苗是对抗 COVID-19 的“最佳防御”，但“爱荷华州（雇员）不应因 COVID-19 疫苗而被迫失去工作或生计。”
 
-还有我儿子的一个同学，租的两房unit，水电网络煤气全包，每周400澳元。我给她算了一下，她的房东只相当于每周赚租金260左右。因为在悉尼，水电煤气网络、市政费、物业费，每年下来至少要7000元，折算到每周就是一百三四左右，这都是房东出的。所以400元的租金，刨去140左右的各种缴费，房东只赚260元。那个房子买得早，应该不会亏，但若把钱存银行吃定期利息，也差不了多少。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-10.jpg)Paul Hennessy / SOPA Images / LightRocket via Getty Images
 
-今天早晨给我发消息的那个朋友说，我们之前的房东买了六七套投资房，他也是听别人说的，具体情况也不清楚，但他就认为那个房东肯定是赚了很多钱的。
+2，佛罗里达州[于 11 月 19 日批准了一项法案，](https://www.jacksonlewis.com/sites/default/files/docs/FloridaHB-1B.pdf)将失业援助扩大到“无苗族”，作为禁止中共疫苗强制令的立法方案的一部分。 罗恩·德桑蒂斯州长 (Ron DeSantis，如图) 在最近的一份声明中说：“任何人都不应该因中共病毒的强硬命令而失业，我们有责任保护佛罗里达州人民的生计。”佛州将失业援助资金扩大到“无苗族”已引起佛罗里达州民主党人的批评。州众议员安娜·埃斯卡马尼( Anna Eskamani) 在接受当地报纸《佛罗里达凤凰》(Florida Phoenix) 采访时，[称其为“笑话”](https://floridaphoenix.com/2021/11/11/a-remarkable-precedent-fl-republicans-want-to-pay-workers-who-refuse-to-submit-to-vaccine-mandates/)。
 
-因为我不是很清楚具体情况，只能在这里猜测一下。我的这位前房东买了六七套房，我知道他在国内有几套拆迁房卖了，把钱拿到了澳洲。他买的第二套房是house，但是之后再购房的话，我估计根据现在悉尼的房价，House的房价随随便便就一百五六十万，他不可能这五六套房买的都是house做投资，肯定有些是公寓或者是unit。而且他家的情况我也是很清楚的，这五六套房子他不可能是全款买的，只能是付首付办贷款，或者是前两三套房子升值了，然后再用这些房子做再抵押贷款，这种情况再去买后边的第四套、第五套等等。在悉尼很多人是这样操作的。而且他的房子出租情况怎么样，收到的租金能覆盖了多少费用，以前每年往里搭了多少，这几套房子都是哪年买的，这些我都不清楚，所以我的这位前房东投资的这几套房是赚了还是亏了，真的说不清楚。
+3，田纳西州立法者[批准了一项法案，](https://www.capitol.tn.gov/Bills/112/CCRReports/CC9002.pdf)禁止政府机构、私营企业和学校等主动去要求接种 COVID-19 疫苗，或要求提供疫苗接种证明；该法案的一部分还扩大了对“无苗族”的失业援助，并授权对符合条件的人进行追溯支付。
 
-我再说一下我的邻居，是个律师，我旁边的房子是他其中一套投资房，在2012年45万买的，是今年初73万5卖掉的。他每年平均大概有三分之一的时间空置，这让他每年租金损失一万澳元左右，但他的租金还是能抵掉几乎所有的费用，所以往里搭的只是房子空置时的租金损失，每年一万左右，九年搭9万。45万买，73.5万卖，赚了28万5，刨去损失的租金9万，还剩19万5，再减去印花税，卖房子时给中介的钱大概2万多，这九年下来赚了17万。 这没算他卖房后交的资本利得税，因为各家情况不同，这税也不同，总之他投资房产是赚钱了。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-11.jpg) 美联社照片/马克汉弗莱，文件
 
-所以若是五六年前在悉尼买房的，无论是house，unit，还是apartment投资，一般都是赚的，即使不赚也不会亏。但最近这三四年买的房，除了运气好买到增值多的house，其他基本是亏的。但最主要一点，不要看纸面价格，要看你卖出去时的实际价格是多少。
+比尔·李州长（Bill Lee，如图）本月早些时候签署了该法案，试图扭转拜登政府在要求该州私营部门接种疫苗时，[所谓](https://www.newschannel5.com/news/gov-bill-lee-expected-to-sign-covid-19-special-session-omnibus-bill-today)的“越权”。
 
-现在由于疫情影响，全世界老百姓兜里都没钱了，房价在明年肯定会下行，新病毒又一拨一拨地到来，没办法放开国境，到时若是经济很差，房价暴跌，那投资房子的收益又会减少很多。忘了说一句，这投资的房子租出去总还算是好的呢，还有些人家的房子根本租不出去的！
+4，堪萨斯州立法者于11月23日成功通过了一项措施，确保被解雇的“无苗族”仍能获得失业福利。
 
-发布：Peter Xin
+如果雇员“拒绝接受需要符合 COVID-19 疫苗要求的工作”或疫苗豁免请求被拒绝，他们“不会失去领取福利的资格或被取消领取福利的资格”。
 
-**更多****资讯****，****请关****注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-12.jpg)约翰汉纳/美联社
+
+民主党州长劳拉·凯利（Laura Kelly）将该法案签署为法律。她选择不在[该州](https://www.kwch.com/2021/09/01/out-of-work-kansans-wondering-whats-next-after-end-federal-unemployment-benefits/)在夏季[提前](https://www.kwch.com/2021/09/01/out-of-work-kansans-wondering-whats-next-after-end-federal-unemployment-benefits/)结束增强的失业福利。
+
+凯利在一份[声明中](https://governor.kansas.gov/governor-laura-kelly-signs-bill-in-response-to-federal-vaccine-mandate/)说：“我知道有些堪萨斯州的人认为这项立法走得不够远，还有一些人认为这项立法还不够深入；但我被选为领导，领导意味着寻求妥协。”
+
+**新闻来源：**[businessinsider.com] [Here are all the states providing unemployment benefits for people who quit or were fired because they refused to get vaccinated](https://www.businessinsider.com/states-providing-unemployment-aid-vaccine-mandate-2021-11) |发布时间：2021年11月30日
+
+* * *
+
+*发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-1.jpeg)
+
+
 
  
 

@@ -2,50 +2,256 @@
 ---
 
 
-## 媒体集团响应班农 要求司法部公开调查文件
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1711504/)
+## 你们都感觉像他们感觉过的吗
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1711519/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+[https://gtv.org/video/id=61a6f86c3ff6481adce6d4b7](https://gtv.org/video/id=61a6f86c3ff6481adce6d4b7)
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/12/B.jpg)djhjmedia.com
-令笔者惊讶的是，那些左媒，甚至是极左媒体也加入了此行列，包括《有线电视新闻网》（CNN）、《美国广播公司》（ABC）、《纽约时报》（NYT）、《华盛顿邮报》（WaPo）、《华尔街日报》等。
+**Andrew Cuomo (Former NY governor)**
+**安德鲁·科莫（前纽约州州长）**
 
-《门道专家》文章的题目是“包括CNN、ABC、NYT和WaPo在内的《媒体集团》（Media Group），提交了法律诉求摘要，加入了‘班农先生不睬案’而要求公开司法部文件的诉讼”。【1】
+I think it’s going to be a very skeptical American public about taking the vaccine
+我认为美国公众对接种疫苗持怀疑态度
 
-笔者注，“班农先生不睬案”乃“班农‘不睬民主党人国会调查委员会’案”，参见Gnews文章：班农“不睬民主党人国会调查委员会”案新进展【2】。
+and it should be
+而且应该提出质疑
 
-《门道专家》的全文如下：
+Ilhan Omar (Minnesota Representative)
+伊尔汗·奥马尔（明尼苏达州众议员）
 
-周一（11月30日），美国司法部拒绝了史蒂夫·班农（Steve Bannon）关于透明度的要求，并（试图）剥夺他要求公开司法部有关虚假的1.6委员会调查文件的权利。
+we can’t trust the president and take his word
+我们不能相信总统并相信他的话
 
-司法部称这是班农“通过媒体审理此案”的一次尝试，他要将所有文件和材料公开，以便美国人民能够了解情况，并对案件的是非曲直做出自己的判断。但朝鲜政权不希望这样，毕竟，如果真相泄露，政权应该如何控制话语权？
+and take a vaccine that might cause harm to us.
+而且接种可能对我们造成伤害的疫苗
 
-史蒂夫·班农因拒绝与利兹·切尼（Liz Cheney）的垃圾的1.6委员会合作而被指控藐视国会。
+Joe Biden (US president)
+乔·拜登（美国总统）
 
-但周二（11月30日），美国几家主要媒体提交了一份法律诉求摘要，支持班农及其向美国公众公开的努力。
+If and when the vaccine comes
+如果真的有疫苗研制出来
 
-《每日邮报》（The Daily Mail）报道：
+it’s not likely to go through all the tests
+它不太可能通过所有测试
 
-一个主要媒体公司联盟提交了一份法律诉求摘要，支持前川普白宫首席策略师史蒂夫·班农在法庭上反对一项拟议的保护令，该保护令将阻止他公布1月6日的文件和信息。
+the trails that are needed to be done
+以及需要完成的途径
 
-《媒体集团》——包括CNN、ABC、NBC、华盛顿邮报、纽约时报和《华尔街日报》的母公司——提出了一项干预动议，因为班农反对政府提出的命令，这是他藐视国会案的一部分。
+Dana Bash (CNN anchor)
+达娜·巴什（CNN 主播）
 
-这项命令将严重限制班农利用政府信息库的能力，而政府的这些信息必须作为正常取证过程的一部分进行共享，并且应该已经开始移交。根据之前的一份政府文件，这包括1000多页的证人证词、大陪审团材料，甚至“众议院1月6日调查国会暴乱委员会”（the House Jan. 6th Committee investigating the Capitol riot）工作人员的电子邮件。
+Let’s just say there’s a vaccine
+假设有一款疫苗被研制出来
 
-该新闻集团认为，政府提出的命令将违反第一修正案——并引用了政府自己的观点，即允许班农使用这些材料将导致审前宣传，可能会玷污陪审团成员。
+that is approved and even distributed before the election.
+在选举前获得批准甚至分发
 
-（全文完）
+Would you get it?
+你会用它吗？
 
-笔者前天（11月29日）的文章，对拜登政府司法部的逻辑，“允许班农使用这些材料将导致审前宣传，可能会玷污陪审团成员”，表示过愤怒与无奈，“花纳税人巨额资金供养的司法部竟然堕落到了如此地步，如此荒诞的逻辑居然好意思公开发表，而且如此贬低公众，低估公众的智商，无语了！看看法官怎样判决吧！”【2】。经过几天的反思，媒体清醒了？不想成为被愚弄的一部分？不想生活在“中共和朝鲜”的环境？看来“大觉醒”进入到“媒体醒悟”阶段，竟然大左媒也不甘受辱了！
+Kamala Harris (Vice President)
+卡马拉·哈里斯（副总统）
 
-需要订正一下《门道专家》此文的不当一处，利兹·切尼（Liz Cheney）在“垃圾委员会”的角色只是个帮凶，共和党的叛徒，祸根是佩洛西。佩洛西在成立这个垃圾1.6委员会时，利用权力将共和党主管推荐的公正人员排除，自己挑选了几个共和党叛徒，构成了号称是个“两党的委员会”，她是陷害川普、班农的罪魁祸首。
+Well, I think that’s gonna be an issue for all of us.
+好吧，我认为这对我们所有人来说都是一个问题
 
-原文链接：
+Joe Biden
+乔·拜登
 
-【1】[https://www.thegatewaypundit.com/2021/11/media-group-including-cnn-abc-nyt-wapo-file-legal-brief-joining-steve-bannons-bid-unseal-documents-doj-contempt-congress-case/](https://www.thegatewaypundit.com/2021/11/media-group-including-cnn-abc-nyt-wapo-file-legal-brief-joining-steve-bannons-bid-unseal-documents-doj-contempt-congress-case/)
+When we finally do God willing, get a vaccine, who’s gonna take the shot?
+当我们最终做了上帝的旨意，该接种疫苗时，谁会注射呢？
 
-【2】[https://gnews.org/zh-hans/1706104/](https://gnews.org/zh-hans/1706104/)
+Who’s gonna take the shot？
+谁会注射呢？
+
+CNN guest
+CNN嘉宾
+
+we will need to have access to the vaccine results
+我们需要获得疫苗结果
+
+so that we can make our independent assessment to make sure
+以便我们可以进行独立评估以确保
+
+that Donald Trump’s fingerprints are not on it.
+唐纳德·川普的痕迹不在上面
+
+Joe Biden
+乔·拜登
+
+You can be the first one to say put me, sign me up?
+你可以第一个说把我，登记我吗？
+
+They now say it’s okay.
+他们现在说没关系
+
+Andrew Cuomo
+安德鲁·科莫
+
+Is the vaccine safe? Frankly, I’m not going to trust the federal government’s opinion.
+疫苗安全吗？坦率地说，我不会相信联邦政府的意见
+
+And I wouldn’t recommend the New Yorkers based on the federal govern-ment’s opinion
+我不会根据联邦政府的意见来推荐给纽约人
+
+Joe Biden
+乔·拜登
+
+and the question of whether it’s real when it’s there
+以及它是否真实的，什么时候它会出现的问题
+
+that requires enormous transparency.
+这需要极大的透明度
+
+Dana Bash
+达娜·巴什
+
+Would you trust that vaccines？
+你会相信疫苗吗
+
+Kamala Harris
+卡马拉·哈里斯
+
+there’s very little that we can trust that comes out of Donald Trump’s mouth.
+从唐纳德·川普的嘴里说出来的，我们可以相信的很少
+
+Patty Murray (Senator)
+帕蒂·默里（参议员）
+
+We cannot take for granted this process will be free of political influence.
+我们不能想当然地认为这个过程将不受政治影响
+
+Andrew Cuomo
+安德鲁·科莫
+
+I don’t trust the President and I don’t trust the FDA.
+我不信任总统，也不信任食品和药物管理局
+
+Joe Biden
+乔·拜登
+
+If Donald Trump can’t give answers
+如果唐纳德·川普不能给出答案
+
+and his administration can’t give answers to these three questions.
+而且他的政府无法回答这三个问题
+
+The American people should not have confidence.
+美国人民不应该有信心
+
+Andrew Cuomo
+安德鲁·科莫
+
+You’re going to say to the American people now.
+你现在要对美国人民说
+
+Here’s a vaccine, It was new, it was done quickly.
+这是一种疫苗，它是新的，很快地完成的
+
+But trust this federal administration and their health administration that it’s safe.
+但是要相信这个联邦政府和他们的卫生行政部门是安全的
+
+Kamala Harris
+卡马拉·哈里斯
+
+I will say that I would not trust Donald Trump.
+我会说我不会相信唐纳德·川普
+
+George Stephanopoulos (ABC co-anchor on Good Morning America)
+乔治·斯蒂芬诺普洛斯（美国广播公司早安美国联合主播）
+
+how confident are you in the approval process the FDA right now?
+你现在对食品和药物管理局的批准程序有多大信心？
+
+Andrew Cuomo
+安德鲁·科莫
+
+How confident am I? I’m not confident?
+我有多确信？我没信心？
+
+Yes, I would be hesitant, but I’m gonna ask a lot of questions.
+是的，我会犹豫，但我会问很多问题
+
+Andrew Cuomo
+安德鲁·科莫
+
+You’re going to need someone other than this FDA.
+除了这个食品和药物管理局，你将需要其他人
+
+And this CDC saying it’s safe
+而这个疾病预防与控制中心说它是安全的
+
+Joe Biden
+乔·拜登
+
+You’ve got to make all of it available to other experts across the nation.
+你必须把所有疫苗的信息提供给全国的其他专家
+
+So they can look and see. There’s consensus this is a safe vaccine.
+所以他们可以进行检查， 一致认为这是一款安全的疫苗
+
+Tina Smith (Senator D-Minnesota)
+蒂娜·史密斯（明尼苏达州民主党参议员）
+
+What I’m worried about is that there’s some sort of October surprise
+我担心的是十月会有什么惊喜
+
+and that there is a pressure put on the decision makers here
+并且这里的决策者承受着压力
+
+to announce a vaccine in October 2020.
+在2020年10月来宣布一款疫苗
+
+Andrew Cuomo
+安德鲁·科莫
+
+We’re going to put together our own group
+我们要组建我们自己的
+
+of doctors and medical experts to review
+的医生和医学专家小组进行审查
+
+the vaccine and the efficacy and the protocol.
+疫苗、功效和方案
+
+And if they say it’s safe,
+如果他们说这是安全的
+
+then I’ll go to the people of New York
+然后我会去和纽约人说
+
+and I will say it’s safe,
+我会说这是安全的
+
+Kamala Harris
+卡马拉·哈里斯
+
+but it Donald Trump tells us that we should taken it
+但唐纳德·川普告诉我们，我们应该接种它
+
+I’m not taking it
+我不会用的
+
+**原视频链接**:[https://gettr.com/post/pi7phu2ed0](https://gettr.com/post/pi7phu2ed0)
+
+Date:11/29/2021
+原视频标题: Do y’all Feel like they Felt????
+你们都感觉像他们感觉过的吗？ ？ ？ ？
+原视频日期：2021/11/28
+原视频链接: https://gettr.com/post/pi7phu2ed0
+任务编号：KE349(3048)
+视频时间段 : 0:00-2:35
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

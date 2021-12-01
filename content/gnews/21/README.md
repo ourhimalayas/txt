@@ -2,50 +2,26 @@
 ---
 
 
-## 欧盟将在全球注资3000亿欧元以替代中共“一带一路”倡议
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1711634/)
+## 缅甸昂山素季再次受到腐败指控
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1711680/)
 
-作者：纽约香草山农场 – 四季
+俄罗斯莫斯科喀秋莎农场  银河
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/12/M.jpg)efe.com
+缅甸当局通过官方媒体发布，被罢黜的缅甸领导人昂山素季(Aung San Suu Kyi)11月30日再次被控腐败。
 
+昂山素季已经被10多项刑事指控，其中包括涉嫌违反殖民时期的官方保密法。如果所有罪名成立，这位被拘留的领导人可能被判处100年以上监禁。
 
+昂山素季在军方政变后被控违反反腐法，在一架直升机的租赁和购买中滥用权力，导致国家资金损失。在其他指控中，昂山素季还因非法进口对讲机而受审。她再度面临腐败指控，涉嫌收受60万美元和黄金，以及滥用职权租用土地和建筑。
 
+据知情人士透露，缅甸首都奈比多的一个特别法庭原定于11月30日对昂山素季煽动和违反中共病毒限制措施一案作出判决，但推迟到12月6日。
 
+在今年2月的缅甸军事政变之前，昂山素季一直担任缅甸政府的国务顾问。在受到多项罪名指控的同时，缅甸当局已经警告昂山素季的律师不要公开讨论她的案情。
 
-据[路透社](https://www.reuters.com/markets/rates-bonds/eu-unveils-300-bln-euro-global-investment-scheme-2021-12-01/)12月1日报道，欧盟委员会周三公布了一项计划，到2027年在全球范围内投资3000亿欧元用于基础设施、数字和气候项目，**以替代中共“一带一路”倡议。**欧盟的资金将来自欧盟机构、政府，以及欧盟金融机构和国家开发银行。
+参考链接:
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1580-1.jpg)2020年12月24日，在比利时布鲁塞尔举行的英国脱欧谈判的欧盟委员会总部外飘扬的欧盟旗帜。(REUTERS/Yves Herman)
-
-欧盟委员会主席乌苏拉·冯德莱恩在新闻发布会上表示，这是对中共国“一带一路”倡议的一个真正的替代方案。
-
-这项名为“全球通道”的计划旨在加强欧洲的供应链，促进欧盟贸易，并帮助应对气候变化。其重点是数字化、卫生、气候和能源、运输行业，以及教育和研究领域。该计划将侧重于有形基础设施，如光纤电缆、清洁运输走廊、清洁电力传输线，以加强数字、运输和能源网络。
-
-欧盟委员会在一份声明中说，欧盟将以公平和有利的条件提供融资，以限制债务困扰的风险。欧盟官员表示，北京提供的融资条件往往是不利和不透明的，它使一些较贫穷的国家，特别是非洲国家，通过债务依赖于中共国。而欧盟的全球通道计划的目的是与其他国家建立联系，而不产生依赖性。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月.png)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+[https://english.kyodonews.net/news/2021/12/ad52503d57d4-myanmars-suu-kyi-slapped-with-new-corruption-charge.html](https://english.kyodonews.net/news/2021/12/ad52503d57d4-myanmars-suu-kyi-slapped-with-new-corruption-charge.html)
 
  
 
