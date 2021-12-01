@@ -16,6 +16,10 @@
 ---
 ## 頁面 17/37 [**<**](/content/README-16.md) [1](/content/README.md) ... [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) **17** [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) ... [37](/content/README-37.md) [**>**](/content/README-18.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年12月3日郭先生报平安](/content/2019/12/20191204-1258843651620864623.md)
+
+[文字版：2019年12月2日郭文贵先生报平安直播：国内做好准备囤食物囤美金，保护好自己！](/content/2019/12/20191203-2918612896973787175.md)
+
 [文字版：2019年12月1日郭先生报平安直播](/content/2019/12/20191203-2633135332131965317.md)
 
 [文字版：2019年11月30日文贵直播](/content/2019/12/20191201-7479279258492241579.md)
@@ -61,10 +65,6 @@
 [文字版：2019年11月7日文贵直播，投资郭媒体的基金相信共党必灭，苏世民等人要挑战班农](/content/2019/11/20191111-8774490754599223874.md)
 
 [文字版：2019年11月9日文贵报平安谈尹队长上路德节目打响以共灭共第一枪](/content/2019/11/20191110-4503525737047042543.md)
-
-[文字版：2019年11月6日文贵与路德直播 ](/content/2019/11/20191108-3252264516615100238.md)
-
-[文字版：2019年11月6郭先生喜马拉雅直播(第二部分)](/content/2019/11/20191108-5173281267885078042.md)
 
 
 ## 頁面 17/37 [**<**](/content/README-16.md) [1](/content/README.md) ... [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) **17** [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) ... [37](/content/README-37.md) [**>**](/content/README-18.md) [查看全部](/content/README-all.md)
