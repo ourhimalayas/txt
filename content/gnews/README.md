@@ -15,134 +15,134 @@
 
 ---
 
-### [美日12月开启对抗中共导弹战的联合军演](/content/gnews/1/README.md)
+### [韩国计划将加密货币税收推迟至2023年开始征收](/content/gnews/1/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [12月1日文贵大直播快讯——我们清楚地知道中共要干什么](/content/gnews/2/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [12月1日文贵大直播快讯——习现在连一根毛都还没动着](/content/gnews/3/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [中共秘密将“医生、科学家和工程师”送过墨西哥边境](/content/gnews/4/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [美日12月开启对抗中共导弹战的联合军演](/content/gnews/5/README.md)
  ` GTV新闻访谈`
 
-### [五国34舰联合军演守护印太](/content/gnews/2/README.md)
+### [五国34舰联合军演守护印太](/content/gnews/6/README.md)
  ` GTV新闻访谈`
 
-### [美军完成全球军力部署评估 重点应对中共](/content/gnews/3/README.md)
+### [美军完成全球军力部署评估 重点应对中共](/content/gnews/7/README.md)
  ` GTV新闻访谈`
 
-### [【粤语配音】2021年11月26日：青蒿素的功效](/content/gnews/4/README.md)
+### [【粤语配音】2021年11月26日：青蒿素的功效](/content/gnews/8/README.md)
  ` MOS香港部`
 
-### [日本全面暂停12月份抵日国际航班机位新增预订](/content/gnews/5/README.md)
+### [日本全面暂停12月份抵日国际航班机位新增预订](/content/gnews/9/README.md)
  ` 日本东京方舟农场`
 
-### [中共河南省拟建立新监控系统控制民众](/content/gnews/6/README.md)
+### [中共河南省拟建立新监控系统控制民众](/content/gnews/10/README.md)
  ` GTV新闻访谈`
 
-### [文贵大直播 12/1 澳门洗米华背后 爆料革命的重大价值又一例证](/content/gnews/7/README.md)
+### [文贵大直播 12/1 澳门洗米华背后 爆料革命的重大价值又一例证](/content/gnews/11/README.md)
  ` 秘密翻译组-原创组`
 
-### [谎言背后的艾滋村 艾滋病真相触目惊心](/content/gnews/8/README.md)
+### [谎言背后的艾滋村 艾滋病真相触目惊心](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新冠新变种病例症状轻微但不容轻视](/content/gnews/9/README.md)
+### [新冠新变种病例症状轻微但不容轻视](/content/gnews/13/README.md)
  ` GTV新闻访谈`
 
-### [欧盟力推“全球通道”基建战略对抗中共“一带一路”](/content/gnews/10/README.md)
+### [欧盟力推“全球通道”基建战略对抗中共“一带一路”](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [矢板明夫谈中国政治中的拍马屁文化](/content/gnews/11/README.md)
+### [矢板明夫谈中国政治中的拍马屁文化](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [疫苗乱象再现，重庆被爆近300人打假疫苗医护突“消失”](/content/gnews/12/README.md)
+### [疫苗乱象再现，重庆被爆近300人打假疫苗医护突“消失”](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [DC每日热点1201](/content/gnews/13/README.md)
+### [DC每日热点1201](/content/gnews/17/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [波士顿凯尔特人队中锋埃坎特怒怼中共，改名为“埃内斯·坎特·自由”](/content/gnews/14/README.md)
+### [波士顿凯尔特人队中锋埃坎特怒怼中共，改名为“埃内斯·坎特·自由”](/content/gnews/18/README.md)
  ` GTV新闻访谈`
 
-### [美国参议员要求司法部调查福奇](/content/gnews/15/README.md)
+### [美国参议员要求司法部调查福奇](/content/gnews/19/README.md)
  ` GTV新闻访谈`
 
-### [中共将“援助”非洲10亿剂毒疫苗](/content/gnews/16/README.md)
+### [中共将“援助”非洲10亿剂毒疫苗](/content/gnews/20/README.md)
  ` GTV新闻访谈`
 
-### [CDC资助的研究显示，是否接种疫苗对病毒传播没有明显影响](/content/gnews/17/README.md)
+### [CDC资助的研究显示，是否接种疫苗对病毒传播没有明显影响](/content/gnews/21/README.md)
  ` GTV新闻访谈`
 
-### [台湾防长称中共敌情特别严峻](/content/gnews/18/README.md)
+### [台湾防长称中共敌情特别严峻](/content/gnews/22/README.md)
  ` GTV新闻访谈`
 
-### [12/01/2021 国际财经快讯：鲍威尔称将加快结束债券购买；投资者押住中共病毒新变种影响不大，股市轰然走高](/content/gnews/19/README.md)
+### [12/01/2021 国际财经快讯：鲍威尔称将加快结束债券购买；投资者押住中共病毒新变种影响不大，股市轰然走高](/content/gnews/23/README.md)
  ` 秘密翻译组金融团队`
 
-### [32个国家今起取消对中共国普惠制关税优惠](/content/gnews/20/README.md)
+### [32个国家今起取消对中共国普惠制关税优惠](/content/gnews/24/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [“欧米克龙”变种病毒重重迷雾](/content/gnews/21/README.md)
+### [“欧米克龙”变种病毒重重迷雾](/content/gnews/25/README.md)
  ` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)`
 
-### [新加坡的过去四个月离奇车祸视频](/content/gnews/22/README.md)
+### [新加坡的过去四个月离奇车祸视频](/content/gnews/26/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [圣路易斯联邦法庭阻止医疗人员强制疫苗令](/content/gnews/23/README.md)
+### [圣路易斯联邦法庭阻止医疗人员强制疫苗令](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [令人担忧的中共智能汽⻋](/content/gnews/24/README.md)
+### [令人担忧的中共智能汽⻋](/content/gnews/28/README.md)
  ` 纽约香草山MOS03`
 
-### [西媒头条 — 第121期](/content/gnews/25/README.md)
+### [西媒头条 — 第121期](/content/gnews/29/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [秘翻在线：中共国刷短视频也要收费了](/content/gnews/26/README.md)
+### [秘翻在线：中共国刷短视频也要收费了](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [16省份修改计划生育条例 父母均可享受带薪育儿假](/content/gnews/27/README.md)
- ` GTV新闻访谈`
-
-### [2021/11/30文贵先生GTV直播](/content/gnews/28/README.md)
+### [2021/11/30文贵先生GTV直播](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [乌干达唯一国际机场恐被中共接管](/content/gnews/29/README.md)
- ` GTV新闻访谈`
-
-### [没有人权的「勤劳」](/content/gnews/30/README.md)
+### [没有人权的「勤劳」](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【#G时新闻】中共故意释放OMICRON新病毒！](/content/gnews/31/README.md)
+### [【#G时新闻】中共故意释放OMICRON新病毒！](/content/gnews/33/README.md)
  ` G-时新闻`
 
-### [FBI警告洛杉矶县领导，指福尔金特遗传学公司受中共控制](/content/gnews/32/README.md)
+### [FBI警告洛杉矶县领导，指福尔金特遗传学公司受中共控制](/content/gnews/34/README.md)
  ` 墨尔本雅典娜农场`
 
-### [黑色星期五令人失望，网络星期一销售额首次下降](/content/gnews/33/README.md)
+### [黑色星期五令人失望，网络星期一销售额首次下降](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
 
-### [文贵视角: Twitter首席执行官杰克‧多尔西(Jack Dorsey)的离职是一场骗局](/content/gnews/34/README.md)
+### [文贵视角: Twitter首席执行官杰克‧多尔西(Jack Dorsey)的离职是一场骗局](/content/gnews/36/README.md)
  ` 秘密翻译组-原创组`
 
-### [墙内要闻汇编 12月1日](/content/gnews/35/README.md)
+### [墙内要闻汇编 12月1日](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [COVID-19 最新情报｜CNBC 主持人 Jim Kramer 咆哮式建议交由军队执行疫苗强制令 称未接种者是“神经病”](/content/gnews/36/README.md)
+### [COVID-19 最新情报｜CNBC 主持人 Jim Kramer 咆哮式建议交由军队执行疫苗强制令 称未接种者是“神经病”](/content/gnews/38/README.md)
  ` G&#124;News TAIWAN`
 
-### [英军情六处公开表示 中共过度自信误判国际形势](/content/gnews/37/README.md)
+### [英军情六处公开表示 中共过度自信误判国际形势](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [英国军情六处曝光中共的“数据陷阱”“债务陷阱”](/content/gnews/38/README.md)
+### [英国军情六处曝光中共的“数据陷阱”“债务陷阱”](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [南非医生认为新冠“疫苗”是为了减少人口而有意设计](/content/gnews/39/README.md)
+### [南非医生认为新冠“疫苗”是为了减少人口而有意设计](/content/gnews/41/README.md)
  ` 墨尔本雅典娜农场`
 
-### [港闻前线｜太阳城集团今起所有赌厅暂停运作 洗米华案另一涉案被告早一年被捕](/content/gnews/40/README.md)
+### [港闻前线｜太阳城集团今起所有赌厅暂停运作 洗米华案另一涉案被告早一年被捕](/content/gnews/42/README.md)
  ` G&#124;News TAIWAN`
 
-### [中共国出口产品普惠制待遇，今起正式被取消](/content/gnews/41/README.md)
+### [中共国出口产品普惠制待遇，今起正式被取消](/content/gnews/43/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [有声|英国发现两例欧米茄新变种病例](/content/gnews/42/README.md)
- ` MOSREC`
-
-### [有声|推特CEO辞职](/content/gnews/43/README.md)
- ` MOSREC`
 
 ### [COVID-19 最新情报｜欧盟多国拟对未接种者采取更严厉措施 违者或面临罚款和监禁](/content/gnews/44/README.md)
  ` G&#124;News TAIWAN`

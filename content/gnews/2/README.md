@@ -2,36 +2,21 @@
 ---
 
 
-## 五国34舰联合军演守护印太
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1711307/)
+## 12月1日文贵大直播快讯——我们清楚地知道中共要干什么
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1711358/)
 
-作者：东京樱花团—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月30日的消息称，11月21日至30日，由日本主办，美、日、澳、加、德五国共34艘军舰协同参与的联合军演在菲律宾海举行。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-01-下午11.53.38.png)
-相关报道表示，此次演习科目包括通信战术演练、反潜作战、空战演练、海上补给、跨舰甲板飞行演练以及海上拦截演习等。
+撰稿：Gradient Boost
 
-对此，美国前海军官员强调，近年来，由于中共在印太地区持续的威胁行动越来越激进，为此，包括五个国家在内的34艘军舰进行了长达十天的应对演习，当中，不但军演的真实感倍增，也充分说明了此次演习的重要性。
+视频：小小的张麻子
 
-另外，有评论指，此次演习的地点选择菲律宾海显然与中共海警船用水炮攻击菲律宾补给船有关，加之中共在南中国海的威胁不断上升，日本自卫队的军演频率和强度也随之调整。专家认为，中共的威胁使年度联合军演产生了很大变化，未来，南中国海将是频繁联演的重点区域。
+美东时间当地12月1日，文贵先生在大直播当中谈澳门地下钱庄，以及孟建柱在东南亚的涉黑布局。文贵先生强调，新中国联邦爆料革命不仅知道中共的游戏规则以及情报，同时也清楚知道这帮家伙想要干什么、尤其是对每个人物的个性把握，这是极为关键的。
 
-而对于美国和日本以及其他西方国家在这个区域的频繁演习，评论也表示，这是美日向中共传达的信号，即美国和日本不会被中共解放军所威胁。
+印度总理尼赫鲁，当年与英国总理夫人偷情，他曾说过一句著名的话：“这个世界是坏人说了算，而不是好人说了算。”
 
-参考链接：[战争感迫近：五国34舰联合军演守护印太](https://www.voachinese.com/a/SDF-led-Annualex-2021-who-and-whats-new-20211130/6331158.html?withmediaplayer=1)
+世界上历史的改变，往往都是因为某一个人的性格与行为决定的——世界虽然很大，但是现实却就是如此，例如希特勒、斯大林、毛泽东、天皇等。因此我们需要对于某些个人有足够的了解才能掌握世界的动向。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
-
-总编：文特
-编辑：Lakeman(文仁)
-校正/发稿：呼吸的雾霾（文小呼吸）
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+人类的命运，就是因为某个人的疯狂、病态、神经病或者善念所改变的。国家主义、人类、宗教这些华人媒体常说的大型话题实际上多是胡扯，它们并不能清晰把握局势的走向和脉络。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

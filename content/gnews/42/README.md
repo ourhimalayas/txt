@@ -2,49 +2,34 @@
 ---
 
 
-## 有声|英国发现两例欧米茄新变种病例
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1710211/)
+## 港闻前线｜太阳城集团今起所有赌厅暂停运作 洗米华案另一涉案被告早一年被捕
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1710289/)
 
-配音：香草山美食部 – 玫瑰园
+**撰文/ 台湾宝岛农场 港台前线关注组｜发布日期/ 1/12/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Bank-Manager-Banner.jpg)
+**更多资讯请关注官方盖特｜please follow our Gettr （[https://gettr.com/user/hktwfrontline](https://gettr.com/user/hktwfrontline)）**
 
+人称“洗米华”的澳门“太阳城集团”主席周焯华，上周被温州警方点名通缉，指其涉跨境赌博犯罪，上周六（27 日）遭澳门司警拘捕，其后被送往路环监狱羁押。昨日深夜（30 日），澳门广播电视报道指，太阳城集团所有赌厅于今日（12 月 1 日）零时起全面暂停运作。
 
+#### **太阳城集团股价狂跌**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+太阳城集团（1383）昨日复牌后大跌，旗下凯升（0102）亦于周一早上停牌，公司指待发出有关周焯华、构成内幕消息的通告，今日复牌同样股价大跌，一度跌五成。另一间周焯华任大股东的上市公司太阳娱乐（8082）本周日（28 日）发公告指，事件无对集团财务状况、业务或营运产生任何重大影响，强调新闻报道仅涉周生个人事务。
 
+#### **另一涉案被告张宁宁早于一年前被捕**
 
+《香港01》今早释出独家消息指，另一涉案被告张宁宁其实早在 2020 年 7 月于温州被拘捕，张母表示，张宁宁去年被捕后，家属一直没有收到任何官方通知，只有律师传来消息，至温州公布洗米华案件前，都不知道她被捕的原因，“我知道她在温州，但她在温州哪里、到什么程度我也不知，前几天才知道指控她开赌场。”
 
-英国卫生部长萨吉德·贾维德表示，切姆斯福德和诺丁汉发现了两例新冠病毒欧米茄新变种病例！
+张母又指，张宁宁过往五年期间，一直于太阳城旗下公司工作，约两年前被调任至集团的深圳公司。不过，她强调自己不清楚女儿工作的详情，只知和地产有关，女儿出事后，公司曾为她聘请律师：“公司打来我们才知道她被捕，只说她没事，很快可以出来。”
 
-同时，卫生与社会福利部表示，检测呈阳性的个人及其所有家庭成员正在接受重新测试，并被告知在进一步检测和接触者追踪期间要求进行自我隔离。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/BFrukETTM9ilkAO72aEi1w6H4XdErgYfyIuu-siLrvo.jpeg)图片来源：香港01 
 
-该部门表示：“英国卫生安全局正在阳性病例可能具有传染性的地点进行有针对性的检测。”
+据内地查册，张宁宁曾担任太阳城系内，多间内地公司的法定代表人或高层，包括深圳的太阳世纪地产、紫瑞房地产、太阳华创实业等。
 
-“为应对当前新冠病毒欧米茄新变种的发展形势，英国正在积极采取果断行动保护公共卫生。正在跟进已确认的病例和联系人，并要求隔离并在必要时接受测试。现在将在病例周边地区进行强化测试。‘’
+#### **“洗米华”曾被怀疑出资支持“港独”**
 
-原文链接：[英国发现两例欧米茄新变种病例](https://gnews.org/zh-hans/1706688/)
-
-音频处理：喜山必胜Maverick
-发稿：Daxia
-
-[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-6.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-6.jpg)
-
-
+2020 年 7 月，网上流传指太阳城集团资助香港“黑暴分子”、支持港独。周焯华发放片段澄清消息为谣言，强调自己一直“心系祖国”，“我有什么理由、有什么动机去资助香港人，或者资助香港暴乱分子，我有什么动机去危害国家呢？”
+![](https://assets.gnews.org/wp-content/uploads/2021/12/港台前線-（HK模板）.jpg)
+来源｜[01獨家](https://www.hk01.com/01偵查/706802/01獨家-洗米華案-港人女骨幹張寧寧身份曝光-17個月前溫州落網)
 
  
 

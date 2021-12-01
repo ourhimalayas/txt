@@ -2,31 +2,29 @@
 ---
 
 
-## 16省份修改计划生育条例 父母均可享受带薪育儿假
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1710970/)
+## 圣路易斯联邦法庭阻止医疗人员强制疫苗令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1711061/)
 
-信息采集：日本方舟农场 – Andy5
-作者：纽约香草山农场 – 飞虹
+作者：MOS 柳是多水土透
 
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
+11月29日，据媒体报道显示，美国圣路易斯联邦地区法庭公布裁决认定，美国卫生部下属机构联邦医疗服务中共CMS发布的、针对医疗人员的新冠疫苗强制接种令很可能超出其所获得的法律授权。因此，在十个州的医护人员完成相关的司法诉讼前，CMS不得对医护人员执行此疫苗强制令。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/7.jpg)
+资料显示，CMS曾于11月4日发布法规表示，全国七万六千个医疗护理机构和透析中心约一千万的工作人员、志愿者以及承包商必须在12月6日前注射第一针新冠疫苗，同时，所有人必须在1月4日前完成全部新冠病毒免疫程序，否则，他们将失去联邦医疗资金的支持。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+据报道，此次圣路易斯联邦地区法庭的裁决是政府强制疫苗令的第二次法庭挫折。11月初，新奥尔良联邦上诉法庭也阻止了一个针对百名雇员以上企业实施的新冠疫苗强制令。
 
-
-
-据墙内媒体11月27日报道，针对中共“三孩政策”的推出，截至11月26日，已有16个省份通过了当地修改后的计划生育条例，删去了一些旧的规定，如，社会抚养费、违反计划生育政策将被处分的规定等，进一步明确了三孩政策的落地与执行，涉及延长产假、增设父母育儿假等具体举措。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1.2.jpg)
-分析人士称，中共面对日益严峻的生育形势，不得不推出优惠政策，试图鼓励民众提高生育数量。但在中共层层盘剥的生活压力下，不堪重负的老百姓大多已经选择或开始选择躺平，中共的努力恐怕只能落空。
-
-分析人士称，中共面对日益严峻的生育形势，不得不推出优惠政策，试图鼓励民众提高生育数量。但在中共层层盘剥的生活压力下，不堪重负的老百姓大多已经选择或开始选择躺平，中共的努力恐怕只能落空。
+为此，共和党州检察长起诉拜登政府称，CMS的强制新冠病毒免疫要求，即新冠疫苗强制接种令将导致全美医务人员的大规模短缺。而由川普总统任命的法官马修也认为，CMS忽视了新冠疫苗强制令给美国社会带来的极大代价，同时，该法令也改变了联邦和州政府之间的权力平衡。
 
 参考链接：
-[已有16省份修改计划生育条例，父母均可享受带薪育儿假](https://www.sohu.com/a/503847660_616825)
+[Judge blocks U.S. COVID-19 vaccine rule for health workers in 10 states](https://www.reuters.com/world/us/judge-blocks-us-covid-19-vaccine-rule-health-workers-10-states-2021-11-29/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-总编/编辑：DM
-校对/发稿：为真不破20
+总编：文特
+编辑：Kathy文艺
+校正/发稿：Fei797
 
 **更多资讯，更多关注**
 
@@ -40,13 +38,7 @@
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-
-
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
-
 
  
 

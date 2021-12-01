@@ -2,43 +2,50 @@
 ---
 
 
-## 32个国家今起取消对中共国普惠制关税优惠
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1711119/)
+## 中共将“援助”非洲10亿剂毒疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1711136/)
 
-**By:秘翻新闻**
+作者：纽约香草山教育部 – Noemi
 
-***2021-12-01***
-[![](https://assets.gnews.org/wp-content/uploads/2021/12/1201-2.jpg)](https://gtv.org/broadcast/watch/61a73a0844c1fe7a6c3c7596)点击图片观看视频
-**新闻摘要:**
 
-1.《绝密新疆文件》指控以习近平为首的中共最高层参与种族灭绝
 
-2. 河南深夜不明物体爆亮坠落
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-3. 中共国爱滋病患者超105万人 中老年染病10年内升至44％
 
-4. 受贿超4.5亿元 贵州政协前主席王富玉受审
 
-5.32个国家今起取消对中共国普惠制关税优惠
+当地时间11月29日，中共党魁习近平在中非峰会上声称，将以捐赠或支持当地生产的形式，向非洲再提供10亿剂量的CCP毒疫苗，以填补非洲大陆目前的 “疫苗真空”。
 
-6. 美航母领军：五国35艘军舰联合军演震慑中共
+据报道，由于极低的中共毒疫苗接种率和伊维菌素的广泛使用，一直使非洲地区的疫情维持在了较低水平。但自11月23日以来，非洲因中共放毒新变种奥密克戎再度出现病例激增。仅南非地区，23日当日感染病例就达到了一万八千多例，是平常新增病例数的将近十倍。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3.1.jpg)
+近日，文贵先生披露，中共在非洲放毒实际上是意图祸乱整个欧洲，以奥密克戎要挟到整个西方世界，以此达到其真正的独裁目的。
 
-7. 英国情报机构对中共的威胁向全世界发出警告
+参考链接：
+[中非峰会：习近平许诺10亿剂中国疫苗](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211129-%E4%B8%AD%E9%9D%9E%E5%B3%B0%E4%BC%9A-%E4%B9%A0%E8%BF%91%E5%B9%B3%E8%AE%B8%E8%AF%BA10%E4%BA%BF%E5%89%82%E4%B8%AD%E5%9B%BD%E7%96%AB%E8%8B%97)
 
-8. 三剂疫苗也无效 以色列证实2例Omicron病例
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-9. 美联邦法官周二裁决  禁止全美疫苗强制令
+总编：文徬
+编辑：木白
+校对/发稿：为真不破20
 
-10. 脸书加密货币高管将离职
+**更多资讯，更多关注**
 
-**GTV链接：**[https://gtv.org/broadcast/watch/61a73a0844c1fe7a6c3c7596](https://gtv.org/broadcast/watch/61a73a0844c1fe7a6c3c7596)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-发布: 文橙
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-* * *
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-**更多资讯,敬请关注**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/IMAGE-2021-08-12-195949.jpg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
