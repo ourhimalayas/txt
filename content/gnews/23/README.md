@@ -2,28 +2,34 @@
 ---
 
 
-## 不止港澳，台湾人也被“送中”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1710495/)
+## 美军突然瞄准南中国海
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1710506/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-4.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg3.secretchina.com%2Fpic%2F2021%2F10-20%2Fp3025701a344892417-ss.jpg&amp;imgrefurl=https%3A%2F%2Fwww.secretchina.com%2Fnews%2Fgb%2F2021%2F12%2F01%2F991071.html&amp;tbnid=uKKS4ZjnMOeDQM&amp;vet=12ahUKEwi6uunKm8L0AhUO1ZQKHQEID38QMygBegUIARCcAQ..i&amp;docid=95dxYozW8rP5kM&amp;w=494&amp;h=277&amp;itg=1&amp;q=%E5%8F%B0%E6%B9%BE%E4%BA%BA%20%E9%80%81%E4%B8%AD&amp;ved=2ahUKEwi6uunKm8L0AhUO1ZQKHQEID38QMygBegUIARCcAQ)
-人权组织保护卫士星期二（11月30日）发布的最新调查称，中共国通过引渡和强迫遣送至中共国等方式“猎捕”台湾人。
+#### 作者：东京樱花团丨捆绑CCP一千年
 
-保护卫士在调查分析中表示：“中共国益加地表现出视法治为无物、会毫不犹豫地违反国际规范，追击世界各地的反对者。通过跨国镇压和正式引渡，中共国追捕了经济逃犯、维吾尔难民、人权捍卫者，和流亡港人。但另外还有一个受到关注明显较少的群体：台湾人。”
+![](https://assets.gnews.org/wp-content/uploads/2021/12/南.png)[*图片来源*](https://scx2.b-cdn.net/gfx/news/hires/2020/3-space.jpg)
 
-这份调查分析记录了2016年至2019年间约610起海外台湾国人被从亚洲、非洲和欧洲国家引渡或强制遣送的案件，但他们并未被遣返回台湾，而是被送往中共国。保护卫士称，这些遣送通常发生在遣送国政府拒绝台湾领事馆尝试在当地提供援助或联系之后。有时在这些台湾人被送往中共国之后，台湾政府官员或家属甚至依旧持续被拒绝和这些台湾人联络。这些强制遣送将台湾国民置于人权遭侵犯的风险之下。来自中共的这种压力同时也是中共国对于在《海峡两岸共同打击犯罪及司法互助协议》下应承担义务的直接否定。
+**五角大楼基于拜登政府应对中共国这一“最大的地缘政治考验”中得出的结论——是时候应对中共国的威胁 。特别是“今年夏天中国的高超音速武器环球试验震惊了美军。”认为这一事态与应对1957年 “前苏联卫星危机” 的影响相提并论。**
 
-该组织在调查分析中提到，中共国存在任意监禁、酷刑、强迫失踪和强迫电视认罪等行为，将台湾人引渡到中共国应当被明确地视为“侵犯他们接受公平审判和免受酷刑的权利”。“这种对台湾国民的国际迫害相当于对台湾主权的攻击，同时也是习近平领导下利用引渡条约、相互执法协议和其他多边机构来服务中共政治目标的更大规模全球行动当中的一环。”该组织表示。保护卫士还敦促国际社会立即采取行动干预这种作法，并立即表达反对将台湾国民引渡到中共国。这样的反对甚至无须涉足“一个中共国”，而应仅基于国际规范和国家义务。
+据[朝日新闻](https://www.asahi.com/articles/ASPCZ6TZXPCZUHBI013.html)12月1日消息称，美国国防部“全球军力部署评估”（GPR）中清楚地表明了美军向中共国的转变。评估得出的一个结论是美国将加强与地区盟友和伙伴们的合作，推进各项措施以增进地区稳定，遏阻中国潜在的军事侵略和朝鲜的威胁。认为是时候应对中共国的威胁并需要努力加强在美国关岛和澳大利亚的军事基地。五角大楼官员强调，美军不会为此削弱中东等地区的军事威慑。但这一重大转变给一些人带来震撼。
 
-这个人权组织还在调查分析中表示，国际社会需要采取行动允许台湾派出代表参加国际论坛。“虽然国际警察协调组织已被威权政府武器化用以追捕政敌，但现在是让台湾加入国际刑警组织的时候了。无论是科学、气候、和平还是法合作，都必定有台湾参加国际机构和重要国际会议的空间。”
+- 延展阅读：[专家说：拜登与习近平会面看起来像是世界大战的开始](https://katv.com/news/nation-world/meeting-between-biden-and-chinas-xi-jinping-produced-very-little-says-china-export)
 
-消息来源:
 
-[人权组织调查：台湾人也是中国海外“猎捕”对象](https://www.voachinese.com/a/investigation-exposes-PRC-hunting-Taiwanese-overseas-20211130/6333593.html)
+消息认为，五角大楼在印太地区增加军事部署的意图是基于拜登政府应对中共国这一“[最大地缘政治考验](https://www.cnbc.com/2021/03/04/biden-administration-singles-out-china-as-biggest-geopolitical-test.html)”中得出的结论。中共国在南中国海针对台湾以及周边积极的军事活动令人担忧，最近的核导弹迅速发展的态势表明，这一军事调整迫在眉睫。特别是“[今年夏天中国的高超音速武器试验震惊了美军](https://www.cbsnews.com/news/china-hypersonic-weapons-test-details-united-states-military/)。”参谋长联席会议主席米莉甚至将这一事态与1957年 “[斯普特尼克危机](https://en.wikipedia.org/wiki/Sputnik_crisis)” 的影像相提并论。“斯普特尼克危机” 是前苏联第一次人造卫星发射成功，以此为例，认为中共国在今年夏季发射的[高超音速武器试射成功](https://www.usatoday.com/in-depth/graphics/2021/11/04/china-hypersonic-missile-sputnik-moment-icbm-mach-5-weapon/8581971002/)威胁到美军的军事实力。美军二号人物海腾将军相信“中共国有朝一日有能力对美国发动突然的核攻击。”
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+- ***延展阅读：***[***高超音速导弹试验揭示了中共前所未有的军事能力***](https://thehill.com/policy/defense/582629-chinese-hypersonic-missile-test-revealed-unprecedented-military-capability)
+
+
+该消息认为美国看到了切实的威胁，拜登总统早在2月份就指示国防部长奥斯汀起草GPR，以应对中共国的威胁。美军认为，关岛和澳大利亚是中共国战略要地。关岛基地是美国面向中国的前沿，拥有安德森空军基地等重要设施。
+
+由于关岛处于中国弹道导弹射程之内，美国印太陆军已表示将加强导弹防御以保护关岛。而澳大利亚是美国最值得信赖的长期盟友之一，地处印太地区，因此，需要通过美英安全合作框架“AUKUS”向澳大利亚提供核潜艇技术，以加强这一地区的军事力量，并针对中共国在南海的军事活动，美国还需要增加以美军为首的军事演习，提高对中共国解放军的威慑力度。
+
+2021年12月1日
+
+*编辑：东京樱花团 / 東洋武士
+发布：东京樱花团 / 野猫*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
