@@ -2,40 +2,51 @@
 ---
 
 
-## 主媒加入，申请解除司法部阻止班农分享千份文件
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1710142/)
+## 伊利诺伊州法官责令医院给垂死的病人用伊维菌素治疗
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1710232/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/https___cdn.cnn_.com_cnnnext_dam_assets_211115191924-01-bannon-1115.jpg)图片来源：CNN
-**翻译：**小鱼儿
-**编辑：**翼族
+翻译：皮特
+编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3.jpg)图片来源：Sam’s Alfresco Coffee
+**三天前，美国伊利诺伊州的一户家庭确信是伊维菌素挽救了因****新冠病毒****住院家人的生命。****这个家庭通过赢得司法诉讼，让医院对病重家人使用伊维菌素治疗。**
 
-班农本月被起诉，并被指控藐视国会，因为他没有遵守众议院1月6日委员会的传票。
+克里斯汀·埃里克森律师谈了这一家人为了让内珀维尔医院给病重的祖父使用伊维菌素而展开持续的抗争。
 
-目前检察官正在寻求一项保护令，禁止班农或其团队披露“藐视国会案”的案件材料，但媒体团体提交动议，站在班农一方辩解。
+伊利诺伊州内珀维尔，在11月初，伊利诺伊州的一个家庭深爱的祖父因新冠病毒住院且病危。这位吴先生从香港来到芝加哥探望他的女儿和家人，不幸他感染了新冠病毒，几天后，他就在内珀维尔的爱德华医院住院并使用了呼吸机。
 
-该命令将严格限制班农分享信息，这些信息是联邦调查局作为正常取证程序的一部分，并且已经开始移交给法庭。根据政府先前的文件，这些信息包括1000多页的证人证词、大陪审团材料，甚至包括众议院1月6日调查国会暴乱的委员会工作人员的电子邮件。
+他的女儿吴文君（Man Kwan Ng）博士非常绝望。她希望医院使用伊维菌素，但被医院拒绝了；理由是依据国家医疗指南，该药物无效，可能会有副作用；订购伊维菌素将违反其政策。
 
-一个主流媒体公司的联盟提交了一份法律简报，支持史蒂文·班农。
+律师克尔斯汀·埃里克森说：“这张照片是11月4日拍摄的，吴先生濒临死亡。但医院仍然拒绝使用伊维菌素。”
 
-新闻集团认为，政府提议的命令将违反美国第一修正案。加入申请的还有CNN、ABC、NBC、《纽约时报》和《华盛顿邮报》等主要媒体。
+这里还有一场关于是否可以使用伊维菌素的诉讼。
 
-周日，联邦政府在自己的动议中认为，班农正在寻求“在媒体上，而不是在法庭上审理此案”。
+11月8日，这家人赢得了法律诉讼，伊利诺伊州杜佩奇县的一名法官保罗·富勒顿（Paul Fullerton）对此作出了裁决，最终责令医院给71岁的吴先生使用这种有争议的药物（伊维菌素），他自10月19日以来一直使用呼吸机（在ICU病房）。
 
-班农在法院外说：”我现在告诉你，对于梅里克·加兰、南希·佩洛西和乔·拜登来说，这将是来自地狱的罪。
+法官允许艾伦·贝恩 （Alan Bain）医生使用伊维菌素治疗。这位艾伦医生也没有接种疫苗，未打疫苗是不允许进入医院的，但是，艾伦医生用伊维菌素治愈了很多感染新冠的患者。
 
-**参考新闻：**[EXCLUSIVE: CNN, ABC, and more than a dozen media companies file legal brief JOINING Steve Bannon’s bid to lift the DOJ’s order stopping him sharing 1,000 files in his contempt of Congress case](CNN,%20ABC,%20and%20more%20than%20a%20dozen%20media%20companies%20file%20legal%20brief%20JOINING%20Steve%20Bannon’s%20bid%20to%20lift%20the%20DOJ’s%20order%20stopping%20him%20sharing%201,000%20files%20in%20his%20contempt%20of%20Congress%20case)
+经过法院裁决和艾伦医生提供了阴性核酸测试结果后，11月8日晚上伊维菌素治疗开始了，15天每天一次注射24毫克。
 
-*发布：翼族*
+吴先生的律师表示，吴先生的病情几乎立刻好转。
+
+埃里克森律师说：“今天（11月9日）他通过了呼吸测试，这是他在过去三周内都没能通过的。而且他看起来更加清醒和明白。所以我说第一剂伊维菌素就已经起效。”
+
+吴的家人说，自11月8日至12日吴先生接受了伊维菌素治疗，在11月27日他就出院了。
+
+吴先生的家人说他现在已完全康复在家享受天伦之乐了。
+
+新闻链接：
+
+1、[Illinois family credits Ivermectin with saving life of father hospitalized with COVID-19 (fox32chicago.com)](https://www.fox32chicago.com/news/illinois-family-credits-ivermectin-with-saving-life-of-father-hospitalized-with-covid-19)
+
+2、[Serious – Courageous Judge Paul Fullerton Orders Chicago Hospital To Eat Shit And Die! | Sam’s Alfresco Coffee (sammyboy.com)](https://www.sammyboy.com/threads/courageous-judge-paul-fullerton-orders-chicago-hospital-to-eat-shit-and-die.313009/)
+
+发布：kk
 
 **更多资讯，请关注：
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
-
 
  
 

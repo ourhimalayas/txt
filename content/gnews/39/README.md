@@ -2,20 +2,49 @@
 ---
 
 
-## 秘翻在线：新变异毒株还没搞清楚日本就急着开始了第三剂疫苗接种
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1709985/)
+## 有声|【信仰之声】约瑟的启示（三）：唯真的心，与神同行，化解危机
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1710169/)
 
-撰稿：待命（文暁）
-![](https://assets.gnews.org/wp-content/uploads/2021/11/画像1-15.png)（图片源自本文链接）
-每日新闻12月日发表横田爱的署名消息：1日上午，中共病毒疫苗的第三剂补充接种在日本全国各地展开，记者在东京的一家医疗机构看到了接种情况。
+配音：香草山香港部 – 文凯琳
 
-据宣传，该疫苗旨在重新建立随时间推移而下降的疫苗效力，18岁及以上者在完成两剂疫苗后的8个月内可以接种。第三剂疫苗正值对中共病毒新变种Omicron菌株的有效性尚不清楚的情况下，开始实施接种的。
 
-首相官邸称，截至11月30日，约有9700万人接种了两剂疫苗，12月，将仅限于医护人员的优先接种，明年1月起将扩大到老人和普通民众，并从3月起按行业划分顺次扩大接种范围。根据第一轮疫苗接种记录，第三轮疫苗接种的高峰预计将集中在明年3月至4月，按照每月约2000万例接种的话，政府设定的免费接种期将到明年9月底为止。
 
-医护人员优先接种，以及最后这句，让笔者感到毛骨悚然！因为最后一句会诱使很多民众急着去接种，而优先接种的医护人员又成了最危险的人群。细思极恐！
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-6.jpg)
 
-信息来源：[ワクチンの3回目接種始まる　オミクロン株への有効性不明の中（毎日新聞） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/a2a70583e40da3adf339638dcd363461dc0426c0)
+
+
+约瑟是雅各最爱的妻子拉结生的儿子，从小“恃宠而骄”，经常去告哥哥们恶行丑事的状，但他说的是真的。他说出的梦境暗示哥哥们都将是他的仆人，后来证明也是真的。哥哥们心中有恶，害怕面对真相，一起把约瑟卖到了埃及。
+
+虽然流落他乡为奴，但约瑟没有因为孤独无助，就用谎言去讨好主人。他对神坚定的信靠，让他蒙福，让他赢得信任而被重用。
+
+（创世记经文）
+
+39:3 他主人见耶和华与他同在，又见耶和华使他手里所办的尽都顺利，
+
+39:4 约瑟就在主人眼前蒙恩，伺候他主人，并且主人派他管理家务，把一切所有的都交在他手里。
+
+原文链接：[约瑟的启示（三）：唯真的心，与神同行，化解危机](https://gnews.org/zh-hans/1706577/)
+
+音频处理：喜山必胜Maverick
+发稿：Daxia
+
+[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-6.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-6.jpg)
 
  
 

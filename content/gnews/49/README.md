@@ -2,35 +2,44 @@
 ---
 
 
-## 文贵警告：警惕世界经济的大崩溃
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1708851/)
+## 希腊将对60岁以上未接种疫苗者罚款
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1709321/)
 
-作者：纽约香草山农场福音部 – 恩永存
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-977.png)
-11月28日，郭文贵先生通过盖特视频警告世界：中共正在全球释放病毒，意在限世界经济于大崩溃之中。
+**翻译：月映万川**
+**编辑：Candy**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide1-24.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/希腊.png)图片来源：perthnow.com.au
 
-郭先生表示，当病毒在世界再次爆发时，各国会闭关锁国，物资紧缺，供应链必定断裂，导致经济大崩溃，随之而来的是社会动荡。独裁政府因经济破产，为转移政治危机，一定会制造种族矛盾、社会安全事件，控制媒体和舆论，把一切过错都推给民众，找替罪羊，以及发动局部战争。与中共勾兑的华尔街人现在比谁都害怕，惶惶不可终日。
 
-郭先生再次提醒新中国联邦人，一定要团结在一起，共同渡过即将到来的人类世纪大灾难。
+希腊人在60岁以上、尚未接种冠状病毒疫苗的，如果想避免高额的罚款，就必须在1月16日之前接种第一针疫苗。
 
-参考链接：[https://gettr.com/post/pi9mpi52e6](https://gettr.com/post/pi9mpi52e6)
+希腊总理基里亚科斯·米佐塔基斯（Kyriakos Mitsotakis）周二宣布，每个60岁以上拒绝接种疫苗的公民，将被处以每月100欧元（159澳元）的罚款，这对许多希腊退休人员来说是一笔不小的数目。
 
-![This image has an empty alt attribute; its file name is 11月小图-1.png](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+“目前只有一个年龄段的人仍然坚持等待而不接种疫苗，即：在58万名60岁以上未接种疫苗的公民中，只有6万名在11月接种了疫苗。而不幸的是，正是这些60岁以上的人生病和死亡。”米佐塔基斯说。
 
-总编：文恩
-编辑：文真
-校正/发稿：谐趣园
+为了追踪那些不愿意接受注射的人，该国的安全机构将把他们的数据传递给税务局，然后由税务局收取罚款。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+然后，这笔钱将被用于医院。
 
+总理说：“这不是一种惩罚，而是对健康的奖励，是一种正义的行为。”
+
+根据欧盟卫生机构ECDC的数据，希腊1100万居民中有62%的人已经完全接种疫苗。
+
+到目前为止，政府还没有计划实施另一次封锁来对抗冠状病毒。
+
+相反，希腊政府已经对未接种疫苗的人实施了更为严格的限制，包括在访问公共机构时强制进行新冠病毒测试。
+
+而未接种者也被拒绝进入文化场所，健身中心和餐厅。
+
+原文链接：[Greece to fine unvaccinated people over 60](https://www.perthnow.com.au/news/coronavirus/greece-to-fine-unvaccinated-people-over-60-c-4764550)
+
+***发布：Candy***
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,28 +2,40 @@
 ---
 
 
-## 中共国11月制造业PMI指数创三个月最低
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1709800/)
+## 芯片短缺将延续到2022年, 格芯股票稳步提高
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1709991/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-993.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.haojingui.com%2Fd%2Ffile%2Fpmizhishu%2F2016-07-01%2Fea5c400b7c21ab6ac2db674506a9c4ad.jpg&amp;imgrefurl=https%3A%2F%2Fwww.haojingui.com%2Fpmi%2F1310.html&amp;tbnid=_r8wOjxGh_N0MM&amp;vet=12ahUKEwinvaWsysH0AhWVwIsBHaGeAYMQMygQegUIARC9AQ..i&amp;docid=1Hq6DmFghXeLYM&amp;w=386&amp;h=277&amp;itg=1&amp;q=PMI%E6%8C%87%E6%95%B0&amp;ved=2ahUKEwinvaWsysH0AhWVwIsBHaGeAYMQMygQegUIARC9AQ)
-财新/Markit周三联合公布，11月经季节性调整的中共国制造业采购经理人指数(PMI)降至49.9，创三个月最低。
+作者：香草山金融部 – 闲聊钱币
 
-该指数时隔两个月再度跌破荣枯线，主因疫情反复及产品售价高等，导致需求相对低迷。11月制造业新订单分项指数为三个月来首次跌破50，亦创三个月低点。
 
-Markit网站刊登的新闻稿并显示，11月制造业产出分项指数返回50上方，此前连续三个月在50下方的萎缩区域徘徊。新闻稿并指出，顾客需求低迷，成本上扬，部分企业用电受限，拖累了整体增速。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
 
-由于调查样本侧重点不同，中共国官方和财新制造业PMI通常会出现背离。昨日公布的中国11月官方制造业采购经理人指数(PMI)优预期重返扩张区间，升至50.1，追平8月的50.1，不过仅生产指数高于临界点，其余四大分类指数均低于临界点。
 
-受中共病毒疫情爆发影响，财新制造业PMI在2020年2月曾大幅降至40.3，创2004年4月本项调查开启以来纪录最低。
+拥有近百年历史的瑞典汽车制造商沃尔沃(VOLCARb.ST)周二警告称，整个汽车行业的半导体芯片短缺将持续到明年。
 
-中国财新传媒2015年6月底宣布获得Markit公司编制的PMI在中国的冠名权，财新中国PMI于当年8月起正式发布，更名后PMI统计方法不变。PMI高于50表示扩张，低于50则表明萎缩。
+今年10月29日沃尔沃公开募股，成为欧洲迄今为止最大的IPO。尽管股价在早盘下跌2.9%，但是整体来说自上市以来股价已飙升近30%。位于哥德堡的汽车制造商表示，供应链仍然受到限制。芯片短缺已经迫使包括沃尔沃在内的全球许多汽车制造商削减生产。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture2-29.jpg)
+该公司确认了第三季度营业利润为33亿瑞典克朗（3.626亿美元），而去年同期则为46亿瑞典克朗。沃尔沃的控股股东是中共国的吉利控股（GEELY.UL）。随着全世界进一步抵制和脱钩与中共国的贸易，沃尔沃的生产和投资人的利益必然受到影响。
 
-消息来源：**[中国11月制造业PMI跌破荣枯线至49.9 产出回暖但新订单低迷–财新](https://cn.reuters.com/article/caixin-manufacturing-pmi-1201-wedn-idCNKBS2IG2SL?il=0)**
+芯片的短缺必然利好芯片制造企业。格芯（GlobalFoundries NASDAQ: GFS) 股价已经从一个月前IPO时的47美元稳步上升至69美元，涨幅高达46.8%。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
+跟着共产党，走进火葬场。着实为那些投资了沃尔沃但并不知道中共是它背后金主的小投资者捏把汗啊！
+
+参考来源：[芯片短缺将延续到2022年, 格芯股票稳步提高](https://www.reuters.com/business/autos-transportation/volvo-cars-sees-supply-situation-improving-after-q3-profit-drop-2021-11-30/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=30-11-21&amp;utm_campaign=30-11-21)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
+
+编辑/校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

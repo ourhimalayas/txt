@@ -2,22 +2,22 @@
 ---
 
 
-## 影响到数百万美国人的疫苗强制令被暂时阻止
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1710451/)
+## COVID-19 最新情报｜CNBC 主持人 Jim Kramer 咆哮式建议交由军队执行疫苗强制令 称未接种者是“神经病”
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1710532/)
 
-#### 翻译/撰稿：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-2.jpg)图片来源：deseret news
-根据路透社（Reuters）11月30日的报道，两项涉及到数百万美国工人的拜登疫苗强制令，周二被法院阻止。
+**撰文｜ 台湾宝岛农场 疫情关注组 / 发布时间｜1/12/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-路易斯安那州门罗市的地方法官特里·杜特迪（Terry Doughty）暂时阻止了医疗保险和医疗补助服务中心（CMS）对其医护人员的疫苗强制令。杜特迪的判决在全国适用。而且在这之前已有十个州在圣路易斯的一名联邦法官先前的命令下，CMS已经被阻止执行疫苗强制令。杜特迪表示，CMS没有权力发布一项涉及到200万医护人员强制接种疫苗的命令。
+美国 CNBC 电视新闻台的节目主持人吉姆·克莱默 (Jim Kramer) 周一在“疯狂金钱”的节目中，咆哮式建议拜登政府应开放使用通用疫苗授权，强制所有美国人在全国范围内接种新冠疫苗。
 
-肯塔基州法兰克福的美国地方法官格雷戈里・范・塔滕霍夫（Gregory Van Tatenhove）也阻止了拜登政府针对联邦承包商的疫苗强制令。该诉讼判决适用于肯塔基州、俄亥俄州和田纳西州。这是全国十三个针对疫苗强制令的其中一项诉讼，这也是第一个针对承包商的反疫苗强制令诉讼。
+他认为，联邦政府应该在 1 月 1 日之前确保所有美国接种疫苗，包括加强剂。“那些有声望的反疫苗少数派，总是抢着麦克风，这场骗局必须结束了，政府必须要求接种疫苗。”
 
-拜登政府的疫苗强制令在法律上受阻，白宫拒绝发表评论。
+他还指“未接种者”是变种病毒的培养皿，这些有病的人合法的到处乱跑，导致已接种者染上病毒，根本是神经病。因此，他咆哮道“是时候了，我们必须与新冠病毒开战了，开放通用疫苗授权，让军队来接管执行。如果有人不想接种疫苗，就准备好到法庭上证明自己是一个良心拒服兵役者，即便如此，他也要一直待在家里，直至我们战胜病毒。”
 
-拜登九月份公布疫苗计划，将美国成年人的接种率提高到71%以应对中共病毒。共和党的州检察长、保守派团体和贸易组织对此已经提起诉讼，以阻止这些规定。周二的判决使拜登的疫苗强制令接连受挫。11月初，联邦上诉法院还阻止一个针对百人及以上的企业工作场所的疫苗或检测强制令。
-
-新闻来源：[Courts block two Biden administration COVID vaccine mandates](https://www.reuters.com/legal/government/us-judge-blocks-vaccine-mandate-contractors-three-states-2021-11-30/)
+注：良心拒服兵役（conscientious objector）：是指由于思想自由，个人良心或者宗教信仰等的道义理由，而要求拒绝履行军事服务权利的个人，该词含义也被延伸至因良心不安而拒绝为整个军事工业复合体服务的人。（参考自维基百科）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Cha333nnel-Banner.jpg)
+来源｜[Breaking911](https://breaking911.com/cnbcs-jim-cramer-demands-joe-biden-fore-vaccine-on-all-americans-have-the-military-run-it/)
 
  
 

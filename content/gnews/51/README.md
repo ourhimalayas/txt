@@ -2,32 +2,35 @@
 ---
 
 
-## 2021/11/30 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1708618/)
+## 文贵警告：警惕世界经济的大崩溃
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1708851/)
 
-1. 11月27日，上海黄浦区曙光医院开始进行封闭管理。
-2. 11月28日，黑龙江齐齐哈尔讷河市，全员核酸检测。学校听课，公共交通停止运输。
-3. 11月27日，乌鲁木齐乌拉泊北收费站，一货车司机突发不适，左半身麻木，无法动弹。
-4. 11月25日，河南信阳商城县华儒小区附近，一男子街头倒地。
-5. 11月24日，黑龙江木兰县大贵镇，村民爆料当地养猪场偷排污水，严重污染环境！
-6. 11月23日，河北张家口高铁站，所有人都需要提供核酸检测。未提供者，现场检测140元一次。
-7. 成立20余年的，打印机巨头OKI搬迁至泰国，深圳关厂，遣散700员工。
-8. 11月26日，河南郑州巩义市。几个月前那场暴雨灾难冲走的汽车“长”在了地里。
-9. 河南新乡，市民吐槽医院服务差：患者排长队，工作人员却着急下班数钱对账。
-10. 湖北武汉，女子拿到医院诊断书后，在医院走廊当场崩溃的一幕。
-11. 11月27日，辽宁锦州。疑因学生上课玩手机，被老师当众掌掴。
+作者：纽约香草山农场福音部 – 恩永存
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-977.png)
+11月28日，郭文贵先生通过盖特视频警告世界：中共正在全球释放病毒，意在限世界经济于大崩溃之中。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide1-24.jpeg)
 
-* * *
+郭先生表示，当病毒在世界再次爆发时，各国会闭关锁国，物资紧缺，供应链必定断裂，导致经济大崩溃，随之而来的是社会动荡。独裁政府因经济破产，为转移政治危机，一定会制造种族矛盾、社会安全事件，控制媒体和舆论，把一切过错都推给民众，找替罪羊，以及发动局部战争。与中共勾兑的华尔街人现在比谁都害怕，惶惶不可终日。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+郭先生再次提醒新中国联邦人，一定要团结在一起，共同渡过即将到来的人类世纪大灾难。
 
+参考链接：[https://gettr.com/post/pi9mpi52e6](https://gettr.com/post/pi9mpi52e6)
 
-编辑：【英国伦敦喜庄园编辑部】
+![This image has an empty alt attribute; its file name is 11月小图-1.png](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+总编：文恩
+编辑：文真
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
 
  
 

@@ -2,19 +2,16 @@
 ---
 
 
-## 郭文贵盖特音频 2021.11.29
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1710300/)
+## 秘翻在线：【速报】日本确诊第二例新变异病毒感染者
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1710437/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2222222.jpg)
+撰稿：待命（文暁）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/画像1.png)（图片源自本文链接）
+12月1日雅虎网站刚刚发布的消息称：日本发现第二例子新变异病毒Omicron感染者。
 
+据几位政府官员说，11月29日一位秘鲁入境者被发现感染了Omicron菌株。而且，第二例感染者不是第一例那位从纳米比亚入境的男子的密切接触者，日本厚生省正在调查该病例的细节。
 
-**音频链接：**
-
-
-
-
-
-编辑发布：闪电训练
+信息来源：[【速報】オミクロン株 国内2例目の感染確認　ペルーから入国（FNNプライムオンライン） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/a3fb9247feddf6a5fab0f149a3e2d52ada1c436a)
 
  
 

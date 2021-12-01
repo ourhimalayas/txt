@@ -2,10 +2,10 @@
 ---
 
 
-## 郭文贵盖特音频 2021.11.25
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1710239/)
+## 郭文贵盖特音频 2021.11.29
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1710300/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/out.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2222222.jpg)
 
 
 **音频链接：**
