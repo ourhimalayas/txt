@@ -2,32 +2,21 @@
 ---
 
 
-## 美军完成全球军力部署评估 重点应对中共
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1711306/)
+## 12月1日文贵大直播快讯——我们清楚地知道中共要干什么
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1711358/)
 
-作者：东京樱花团—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月29日，美国国防部宣布，美国已经完成了对全球军力部署的评估，随后，拜登也接纳了这份评估。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-01-下午11.53.30.png)
-有五角大楼官员表示，这份机密文件注重于亚太地区军力部署的调整，用以应对中共步步紧逼的挑战。 为此，该评估是美国军方在长达几个月的时间里与全球盟友协调后完成的。
+撰稿：Gradient Boost
 
-据悉，美国国防部国防政策副次长卡琳与国防部长主要聚焦中共，并将其视为步步紧逼的挑战，因此，这份全球军力部署评估的重点关注地区是印太地区。卡琳强调，该评估的结论显示，美国将加强与地区盟友和伙伴的合作，推进各项措施以增进地区稳定，遏阻中共潜在的军事侵略。
+视频：小小的张麻子
 
-参考链接：[美国宣布完成全球军力部署评估 重点应对中国“步步紧逼的挑战”](https://www.voachinese.com/a/pentagon-global-posture-review-20211130/6333138.html)
+美东时间当地12月1日，文贵先生在大直播当中谈澳门地下钱庄，以及孟建柱在东南亚的涉黑布局。文贵先生强调，新中国联邦爆料革命不仅知道中共的游戏规则以及情报，同时也清楚知道这帮家伙想要干什么、尤其是对每个人物的个性把握，这是极为关键的。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+印度总理尼赫鲁，当年与英国总理夫人偷情，他曾说过一句著名的话：“这个世界是坏人说了算，而不是好人说了算。”
 
-总编：文特
-编辑：文特
-校正/发稿：呼吸的雾霾（文小呼吸）
+世界上历史的改变，往往都是因为某一个人的性格与行为决定的——世界虽然很大，但是现实却就是如此，例如希特勒、斯大林、毛泽东、天皇等。因此我们需要对于某些个人有足够的了解才能掌握世界的动向。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+人类的命运，就是因为某个人的疯狂、病态、神经病或者善念所改变的。国家主义、人类、宗教这些华人媒体常说的大型话题实际上多是胡扯，它们并不能清晰把握局势的走向和脉络。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

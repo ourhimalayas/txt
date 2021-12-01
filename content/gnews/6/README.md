@@ -2,36 +2,33 @@
 ---
 
 
-## 五国34舰联合军演守护印太
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1711307/)
+## 韩国计划将加密货币税收推迟至2023年开始征收
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1711369/)
 
-作者：东京樱花团—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月30日的消息称，11月21日至30日，由日本主办，美、日、澳、加、德五国共34艘军舰协同参与的联合军演在菲律宾海举行。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-01-下午11.53.38.png)
-相关报道表示，此次演习科目包括通信战术演练、反潜作战、空战演练、海上补给、跨舰甲板飞行演练以及海上拦截演习等。
+简评：***早在2020年7月，韩国财政部便公布了税法修订案：自2021年10月起，当地纳税居民若从加密货币交易中收益超过250万韩元，韩国政府将对其征收20％的资本利得税。随后又将征税时间推迟至2022年1月，如今再次推迟到2023年1月。 韩国政府说：“当虚拟资产交易产生资本利得时，为了促进税收平等我们不得不征税” 。然而，韩国此举是明显的税收先于监管。其人民力量党代表赵明熙直言不讳地说，“在虚拟货币的法律定义不明确的时候先征税是不对的” 。这让笔者想起郭文贵先生一句话“没有一个政府生产一块钱财富，所有的财富都是人民创造的” 。***
 
-对此，美国前海军官员强调，近年来，由于中共在印太地区持续的威胁行动越来越激进，为此，包括五个国家在内的34艘军舰进行了长达十天的应对演习，当中，不但军演的真实感倍增，也充分说明了此次演习的重要性。
+据《路透社》记者：Joori Roh，2021年11月30日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-4.png)2021年6月25日，在瑞士苏黎世的比特币和区块链商店—中本聪之家（the House of Satoshi），比特币（BTH）、以太币（ETH）、莱特币（LTC）和门罗币（XMR）的汇率和标识在Bity（区块链支付服务提供商）的加密货币ATM机上显示。图片来源：REUTERS/Arnd Wiegmann//File Photo
+首尔，11月30日路透社：韩国财政部周二表示，国民议会通过了一项法案，将对加密货币交易的资本利得征税计划推迟一年。
 
-另外，有评论指，此次演习的地点选择菲律宾海显然与中共海警船用水炮攻击菲律宾补给船有关，加之中共在南中国海的威胁不断上升，日本自卫队的军演频率和强度也随之调整。专家认为，中共的威胁使年度联合军演产生了很大变化，未来，南中国海将是频繁联演的重点区域。
+一旦该法案在全体会议上获得批准，韩国政府将从2023年1月开始，对任何通过加密货币交易获得的年收入超过250万美元的收益征收20%的资本利得税。
 
-而对于美国和日本以及其他西方国家在这个区域的频繁演习，评论也表示，这是美日向中共传达的信号，即美国和日本不会被中共解放军所威胁。
+韩国政府早些时候曾表示将从明年一月开始征税。
 
-参考链接：[战争感迫近：五国34舰联合军演守护印太](https://www.voachinese.com/a/SDF-led-Annualex-2021-who-and-whats-new-20211130/6331158.html?withmediaplayer=1)
+国民议会预计将于12月2日举行全体会议。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+原文连接：[https://www.reuters.com/markets/europe/skorea-set-delay-crypto-taxation-by-one-year-begin-2023-2021-11-30/?taid=61a5f3ce9a8dbd0001050d8a&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/markets/europe/skorea-set-delay-crypto-taxation-by-one-year-begin-2023-2021-11-30/?taid=61a5f3ce9a8dbd0001050d8a&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
-总编：文特
-编辑：Lakeman(文仁)
-校正/发稿：呼吸的雾霾（文小呼吸）
+翻译：洛杉矶盘古农场–比格渣餐厅老板の娘
+校对：洛杉矶盘古农场–Mike Li
+评论：洛杉矶盘古农场–比格渣餐厅老板の娘
+编辑：洛杉矶盘古农场–心照
+发布：洛杉矶盘古农场–恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
