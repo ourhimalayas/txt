@@ -2,47 +2,43 @@
 ---
 
 
-## 中概股暴跌 ，爱奇艺跌幅达85%
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1711006/)
+## 32个国家今起取消对中共国普惠制关税优惠
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1711119/)
 
-作者：美国波士顿五月花农场 – DM
+**By:秘翻新闻**
 
+***2021-12-01***
+[![](https://assets.gnews.org/wp-content/uploads/2021/12/1201-2.jpg)](https://gtv.org/broadcast/watch/61a73a0844c1fe7a6c3c7596)点击图片观看视频
+**新闻摘要:**
 
+1.《绝密新疆文件》指控以习近平为首的中共最高层参与种族灭绝
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+2. 河南深夜不明物体爆亮坠落
 
+3. 中共国爱滋病患者超105万人 中老年染病10年内升至44％
 
+4. 受贿超4.5亿元 贵州政协前主席王富玉受审
 
-据墙内媒体11月27日报道，美股道琼斯指数当日大跌，中概股跌幅超过10%的公司有8家。其中，市值一度超过300亿美元的爱奇艺，股价跌幅达85.85%。现在，该公司总市值仅为51.62亿美元，约合人民币330亿元。
+5.32个国家今起取消对中共国普惠制关税优惠
 
-据报道，2021年中共出手打击中概股，导致多家知名公司股价腰斩，爱奇艺业绩持续亏损。做空机构Wolfpack则指出，爱奇艺虚增了2019年的收入及用户数量，还夸大了其为内容、其他资产和收购支付的成本，通过烧假钱，向审计师和投资者隐藏了它的欺诈行为。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1.1.jpg)
-参考链接：
-[中概股遭遇寒冬！1900亿巨头再创新低，股价距高点暴跌85%](https://c.m.163.com/news/a/GPR4I7JU0519B826.html?spss=newsapphttps%3A%2F%2Fgnews.org%2Fzh-hans%2F1704062%2F)
+6. 美航母领军：五国35艘军舰联合军演震慑中共
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+7. 英国情报机构对中共的威胁向全世界发出警告
 
-总编/编辑：飞虹
-校对/发稿：为真不破20
+8. 三剂疫苗也无效 以色列证实2例Omicron病例
 
-**更多资讯，更多关注**
+9. 美联邦法官周二裁决  禁止全美疫苗强制令
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+10. 脸书加密货币高管将离职
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+**GTV链接：**[https://gtv.org/broadcast/watch/61a73a0844c1fe7a6c3c7596](https://gtv.org/broadcast/watch/61a73a0844c1fe7a6c3c7596)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+发布: 文橙
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+* * *
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+**更多资讯,敬请关注**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/IMAGE-2021-08-12-195949.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

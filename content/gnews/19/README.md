@@ -2,30 +2,36 @@
 ---
 
 
-## GETTR首席执行官指责Twitter前任CEO扼杀言论自由
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1710845/)
+## FBI警告洛杉矶县领导，指福尔金特遗传学公司受中共控制
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1710918/)
 
-#### 撰稿：日本东京方舟农场  幽蘭自得
+整理报道：七彩光
+![](https://assets.gnews.org/wp-content/uploads/2021/12/0_202012271407011kX9w.jpg)图片来源：人在洛杉矶
+11月30日，《国家脉动》发表文章，指洛杉矶县警长亚历克斯·维拉纽瓦（Alex Villanueva）通知洛杉矶县监事会，他不会与福尔金特遗传学公司（Fulgent Therapeutics LLC）合作，对现场应急人员进行中共病毒（COVID-19）的强制测试和登记，因为最近在联邦调查局的简报中，他被警告说该公司与中共国有联系。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/A6D8D7A4-7B72-4E70-A0B2-1F3C58145808.jpeg)（图片来自Gnews）
+维拉纽瓦警长在给监事会人员的信中说，联邦调查局大规模杀伤性武器协调员就福尔金特遗传学公司带来的重大风险与他联系。联邦调查局与维拉纽瓦联系的明确目的，是与洛杉矶县内的其他领导人会面，分享有关福尔金特公司与中共国之间关系的信息。
 
-GETTR首席执行官杰森·米勒（Jason Miller）11月29日发表声明，指责刚卸任Twitter首席执行官的杰克·多尔西（Jack Dorsey）“扼杀言论自由”。
+福尔金特公司“与华大基因（BGI）、药明康德和华为有密切联系，这些公司都与中国医学科学院、中华人民共和国国务院有联系，并受中华人民共和国控制”。根据公开报道，2016年，中共国西陇科学股份公司的孙公司Xi Long USA, Inc.完成了收购福尔金特公司15%的股权。而福尔金特公司是美国CLIA及CAP认证的临床分子诊断标准化基因检测服务机构,凭借基因大数据库和顶尖技术装备,向全球提供最全面的基因检测服务。在美国国立健康机构NIH的基因检测数据库系统上, 福尔金特是提供基因检测数量最多的机构(单基因检测提供4637个检测项目,多基因组合分析提供170多个检测项目),服务遍及美国,加拿大,澳大利亚,欧洲,南美及亚洲多个国家和地区。
 
-据《The Street》报道，Twitter在29日宣布，杰克·多尔西将卸任Twitter 首席执行官一职。该职位由Twitter 现任首席技术官阿格拉瓦尔（Parag Agrawal）接任。
+文章说，在信中，维拉纽瓦表达了他的震惊，即福尔金特公司将把通过洛杉矶县执法部门的强制测试和登记获得的基因信息用于未来的研究。而福尔金特网站上的声明写着：“我也允许将我的标本和临床信息用于福尔金特公司的非识别研究，并在适当的时候进行出版”。
 
-同日，杰森·米勒在Twitter上发表了一份声明指出，多年来，杰克·多尔西一直是多任务处理“大师”：审查他不喜欢的意见；取消用户；让美国最古老的报纸之一保持沉默，以及不公平地影响政治选举等。
+报道指，中共国2017年的《网络安全法》允许中共国扣押任何存储在中共国境内的数据，或由任何在中共国境内的实体存储在中共国境外的数据。
 
-米勒表示，多尔西对言论自由的扼杀正是 GETTR 需要存在的原因。他说：“我想我们都应该为此心存感激。如果没有大型科技寡头的残酷压迫和（所谓的）道德指向，来自世界各地的数百万人将不会寻找新的社交媒体。”
+维拉纽瓦在信中斥骂监事会缺乏审查。维拉纽瓦进一步指出，洛杉矶的现场应急人员联系了福尔金特的联络人本·坎普纳（Ben Kempner），问他为什么他们被命令向与中共国有联系的公司交出个人和基因数据，否则将面临解雇。坎普纳拒绝回答这个问题。
 
-*参考链接：[https://www.thestreet.com/investing/rightwing-platform-gettr-blasts-twitters-dorsey-for-strangling-free-expression](https://www.thestreet.com/investing/rightwing-platform-gettr-blasts-twitters-dorsey-for-strangling-free-expression)*
+在联邦调查局与洛杉矶县领导举行紧急简报会后，维拉纽瓦表示，监事会缺乏监督，“击毁了我的人员对县里（新冠病毒疫苗接种和测试）强制执行整个过程的信心”。 维拉纽瓦在信的结尾说，他的部门将从与福尔金特公司的合作中脱离出来，继续从事专有登记系统的工作。洛杉矶县警察局将继续与“经过适当审查的与福尔金特公司没有关系的测试公司合作”。
 
-* * *
+**新闻来源**
 
-*素材采编：幽蘭自得*
+[Los Angeles County Sheriff Rejects Gene Firm Partnership over China Links](https://thenationalpulse.com/news/los-angeles-county-sheriff-rejects-gene-firm-partnership-over-china-links/)
 
-*编辑：青衣青青*
+发布：七彩光
 
-*发布：miumiu*
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

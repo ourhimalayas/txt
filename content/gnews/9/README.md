@@ -2,15 +2,18 @@
 ---
 
 
-## 【#G时新闻】中共故意释放OMICRON新病毒！
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/1710950/)
+## 西媒头条 — 第121期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1710983/)
 
-**加拿大温哥华扬帆农场** 播报：莉李鲤 制作：文雅
+制作：喜妹
 
-🔥郭文贵先生惊世爆料：中共故意释放OMICRON新病毒！嫁祸非洲的目的就是挑起欧洲与非洲的种族矛盾，制造欧洲动乱。
+**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
 
-盖特链接：[https://gettr.com/post/pi94ptee68](https://gettr.com/post/pi94ptee68)
-编辑/上传：七觉花
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2021.12.1.pptx.jpg)
+
+发稿：信心的选择
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3.jpeg)
 
  
 

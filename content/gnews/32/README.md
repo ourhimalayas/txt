@@ -2,28 +2,43 @@
 ---
 
 
-## 美国与中共国正进行一场军备竞赛
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1710623/)
+## 维州“大流行病法案”辩论结束，周四将进行投票
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1710771/)
 
-#### 撰稿：彩虹
+**【雅典娜快讯】，紧贴时事脉搏**
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-2.jpg)图片来源：油管
-11月30日，《新闻极限》发布文章，报道美国空军部长于周二说，由于中共国和美国正在建造和测试越来越多的下一代高速武器，美国和中共国正在进行一场军备竞赛，以开发最致命的高超音速武器。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/澳洲.png)图片来源：澳洲新闻网
 
-文章引述《路透社》的报道，空军部长弗兰克·肯德尔（Frank Kendall）接受采访时说，“这是一场持续了很长一段时间的军备竞赛，中共国一直在非常积极地进行该竞赛”。
 
-报道说，美国军方今年举行了几次高超音速武器试验，取得了不同程度的成功。10月份，海军成功地测试了一个助推火箭发动机，该发动机将被用于为携带高超音速武器的运载火箭提供动力。
+**翻译：**小鱼儿
+**编辑：**翼族
 
-肯德尔认为，美国军方将资金集中于伊拉克和阿富汗，但在高超音速武器方面的注意力却不够。他说：“这并不是说我们什么都没做，而是我们做的还不够”。
+维多利亚州一项有争议的立法，将授予该州州长丹·安德鲁斯无限期宣布大流行病和紧急状态的权力，经过议会的多次辩论，周四该法案的修正案将由维州上议院作出最后决定。
 
-文章指，随着五角大楼进入2023年的年度预算周期，肯德尔希望通过退役老旧和维护昂贵的系统来筹集资金，以支持新系统（的研制），包括高超音速发展计划。而对于国防承包商来说，他们则希望利用向高超音速武器的转变，不仅要制造此类武器，还要开发新的探测和击溃机制。
+据《先驱太阳报》报道，辩论结束后，该法案现在被送回下议院，议员们将对修正案进行投票，并在周四回到上议院进行最后的投票。
 
-文章透露，五角大楼希望国防承包商削减高超音速武器的最终成本，研发负责人表示，目前正在开发的下一代超高速导弹每枚成本达数千万美元。
+维多利亚州经历了数周的抗议活动，数十万维多利亚州人每个周末都聚集在议会的台阶上，抗议州长借大流行病拥有压倒性的权力，这基本上让州长成为了独裁者。
 
-**新闻来源**
+如果法案获得通过，还将使该州的卫生部长有能力发布广泛的公共卫生命令，并授予被授权的官员拘留人员的权力。
 
-[US in Hypersonic Weapon ‘Arms Race’ With China -Air Force Secretary](https://www.newsmax.com/newsfront/arms/2021/11/30/id/1046785/)
+《先驱太阳报》报道：州议员们慢慢通过了80多项拟议的修正案，并对每一项修正案进行了投票。安德鲁斯政府的前部长阿德姆·索姆尤雷克（Adem Somyurek）意外返回议会引发了该法案的延迟，并导致疯狂的政府拼命争取额外的支持票。
+
+这项有争议的法案引发了大规模的抗议。周六，大量人群再次在墨尔本市中心游行，许多人呼吁安德鲁斯下台。
+
+在州议会投票通过后，必须经过维多利亚州总督的御准，该法案才会被颁布为法律。
+
+以下是“杀死法案”活动的详细信息：[https://www.rebelnews.com/kill\_dans\_bill](https://www.rebelnews.com/kill_dans_bill)
+
+**参考新闻：**[Marathon pandemic powers bill debate ends with vote due Thursday](https://www.rebelnews.com/marathon_pandemic_powers_bill_debate_ends_with_vote_due_thursday)
+
+*发布：翼族*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

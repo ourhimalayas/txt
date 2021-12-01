@@ -2,22 +2,30 @@
 ---
 
 
-## COVID-19 最新情报｜CNBC 主持人 Jim Kramer 咆哮式建议交由军队执行疫苗强制令 称未接种者是“神经病”
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1710532/)
+## 文贵视角: Twitter首席执行官杰克‧多尔西(Jack Dorsey)的离职是一场骗局
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1710692/)
 
-**撰文｜ 台湾宝岛农场 疫情关注组 / 发布时间｜1/12/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+撰稿:牛小妹
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Image-1-3.jpg)
+**Twitter首席执行官杰克的离职吸走几十亿美金**
 
-美国 CNBC 电视新闻台的节目主持人吉姆·克莱默 (Jim Kramer) 周一在“疯狂金钱”的节目中，咆哮式建议拜登政府应开放使用通用疫苗授权，强制所有美国人在全国范围内接种新冠疫苗。
+据美国广播公司商业频道（CNBC）报导，Twitter及Square创始人、首席执行官杰克·多尔西（Jack Dorsey）已辞去Twitter首席执行官，但仍保留Square创首席执行官一职。
 
-他认为，联邦政府应该在 1 月 1 日之前确保所有美国接种疫苗，包括加强剂。“那些有声望的反疫苗少数派，总是抢着麦克风，这场骗局必须结束了，政府必须要求接种疫苗。”
+“Twitter首席执行官杰克的离职是一场骗局!”郭文贵先生在直播中说。”主要原因是背后暗黑势力要把Twitter的股票炒高，已经拿走了几十亿美元。”文贵先生爆料说。
 
-他还指“未接种者”是变种病毒的培养皿，这些有病的人合法的到处乱跑，导致已接种者染上病毒，根本是神经病。因此，他咆哮道“是时候了，我们必须与新冠病毒开战了，开放通用疫苗授权，让军队来接管执行。如果有人不想接种疫苗，就准备好到法庭上证明自己是一个良心拒服兵役者，即便如此，他也要一直待在家里，直至我们战胜病毒。”
+**背后股东黑石集团被中共深度”蓝、金、黄**“
 
-注：良心拒服兵役（conscientious objector）：是指由于思想自由，个人良心或者宗教信仰等的道义理由，而要求拒绝履行军事服务权利的个人，该词含义也被延伸至因良心不安而拒绝为整个军事工业复合体服务的人。（参考自维基百科）
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Cha333nnel-Banner.jpg)
-来源｜[Breaking911](https://breaking911.com/cnbcs-jim-cramer-demands-joe-biden-fore-vaccine-on-all-americans-have-the-military-run-it/)
+“TWITTER、STRIPE、PAYPAL的背后是同一个股东黑石集团。”文贵先生说。据《美国之音》指出，美国金融大鳄索罗斯最近批评黑石集团大举投资中共国是一种错误的做法，可能会给该公司的客户造成损失，也损害美国和其他民主国家的国家安全利益。索罗斯表示，习近平提出「共同富裕」，改变了基本的发展方向，对于外国投资者是一个不详的预兆。
+
+然而黑石集团完全不理会索罗斯的警告，持续进行对中共国基金筹募计划。「黑石中共国新视野混合型证券投资基金」8月30日正式开始，参加此次募集的投资机构总数多达11万1千多个，是第一家外资独资的公募基金，被认为是中共国公募基金行业进入了中共国与外资企业同台竞技的新阶段。
+
+**杰克的离职与Stripe、Square、Paypal的整合有关?**
+
+由于实体店面逐步转型至网上商店，现有的不同支付平台Stripe、Square及Paypal 提供不同对象的在线服务。
+
+Stripe提供一种在线支付API，最适合高科技企业对消费者的电子商务公司。 PayPal提供在线支付的电子商务公司的轻松在线结帐体验，发票和亲自付款。 Square则提供POS系统，在线结帐体验以及实体店开票的发票。
+
+“如果成功并购STRIPE、PAYPAL， Square首席执行官杰克可能在明年5月份再度回到TWITTER。”文贵先生说。”大家不要搞错了!”文贵先生提醒。
 
  
 

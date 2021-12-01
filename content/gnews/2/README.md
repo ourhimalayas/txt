@@ -2,31 +2,49 @@
 ---
 
 
-## 中共病毒最新动态：各国相继发现奥米克隆（Omicron）变种，德国发现该变种能在完全接种疫苗者之间传播
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1711023/)
+## 台湾防长称中共敌情特别严峻
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1711134/)
 
-韩国首尔天池农场—GoergeC（乔治）
-校对/上传—无明逆流
+作者：东京樱花团—在远方
 
-自11月24日奥米克隆（Omicron）中共病毒变种首次在南非有确诊病例以来，目前已在至少23个国家发现了这种传播能力极强的新变种，这引发了人们对中共病毒进一步爆发的担忧。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/21312d5050.jpg)
-周一，世界卫生组织（WHO）警告说，奥米克隆中共病毒变种在全球传播的风险非常高，并敦促194个成员国加快向高危人群提供疫苗接种。世界卫生组织补充说，尚未有与奥米克隆中共病毒变种相关的死亡病例报告，还需要进一步的研究来评估其逃避疫苗和先前感染引起的自身免疫保护的可能性。
 
-**德国发现变种在接种疫苗者之间传播**：德国南部有四人确诊奥米克隆变种，尽管他们已经完全接种了中共病毒疫苗。 巴登-符腾堡州公共卫生办公室表示，其中三名感染者分别于11月26日和11月27日从南非出差返回，第四人是其中一名返回者的家庭成员，并补充说，所有四人都表现出中度症状并处于隔离状态。
 
-**日本宣布停止所有已预定的入境航班**：日本交通省表示，由于对奥米克隆变种的担忧，已要求航空公司从12月1日起停止新的航班预订。现有预订暂停不会受到的影响。 到目前为止，日本已报告了两例确诊奥米克隆变种的病例。本周早些时候，日本收紧了边境管控，禁止来自10个南部非洲国家的所有非日本公民入境。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-**韩国发现****5****例****奥****米克隆****变种确诊****病例：**韩国在12月1日报告了创纪录的单日新增5000例中共病毒感染病例，同时正在努力遏制重症患者的急剧上升并避免奥米克隆变种。 韩国医学会（KMA）敦促政府暂时暂停对某些入境人员的隔离豁免，以防止奥米克隆变种携带者入境韩国。 到目前为止，韩国已报5例奥米克隆变种确诊病例。
 
-**现有奥****米克隆中共病毒****变种确诊病例的国****家****和****地****区****：** 澳大利亚、奥地利、比利时、博茨瓦纳、加拿大、捷克共和国、丹麦、德国、香港、以色列、意大利、日本、荷兰、尼日利亚、葡萄牙、留尼汪岛、沙特阿拉伯、南非、西班牙、瑞典、瑞士、英国和韩国。
 
-新闻来源：
+当地时间11月29日，台湾国防部长邱国正表示，最近中共敌情特别严峻，几乎没有停止，台湾国防部会适时发布特别动态。
 
-1.[Map: Tracking the Omicron variant](https://www.aljazeera.com/news/2021/11/30/map-tracking-the-omicron-variant-interactive)
+前一日，中共又派遣了27架军机侵犯台湾，而且首次包括了“运油20”空中加油机，使台湾空防压力大幅增加。而据邱国正透漏，中共不仅在昨天派出大量军机扰台，一些零星的扰台军机几乎从未停止过。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.2.jpg)
+邱国正指出，共军的用意就是慢慢消耗，让台湾知道中共有一定的实力。但是台湾也会展现“你有力量，我有应对”的策略，对中共的机型和机种都会充分掌握，并进行研究分析，作为以后军事行动方案的参考。
 
-2.[Travellers from outside EU require negative Covid-19 test to enter France](https://www.france24.com/en/health/20211201-live-germany-detects-omicron-cases-among-vaccinated-japan-halts-new-incoming-flights)
+参考链接：
+[中共「運油-20」增我空防壓力 邱國正：敵情特別嚴峻](https://news.ltn.com.tw/news/politics/breakingnews/3751494)
 
-3. [South Korea reports five Omicron cases on flight from Nigeria](https://www.reuters.com/business/healthcare-pharmaceuticals/south-korea-reports-daily-record-over-5000-new-covid-19-infections-2021-12-01/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+
+总编：木白
+编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
