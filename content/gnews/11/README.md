@@ -2,43 +2,30 @@
 ---
 
 
-## 维州“大流行病法案”辩论结束，周四将进行投票
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1710771/)
+## GETTR首席执行官指责Twitter前任CEO扼杀言论自由
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1710845/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
+#### 撰稿：日本东京方舟农场  幽蘭自得
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/澳洲.png)图片来源：澳洲新闻网
+![](https://assets.gnews.org/wp-content/uploads/2021/12/A6D8D7A4-7B72-4E70-A0B2-1F3C58145808.jpeg)（图片来自Gnews）
 
+GETTR首席执行官杰森·米勒（Jason Miller）11月29日发表声明，指责刚卸任Twitter首席执行官的杰克·多尔西（Jack Dorsey）“扼杀言论自由”。
 
-**翻译：**小鱼儿
-**编辑：**翼族
+据《The Street》报道，Twitter在29日宣布，杰克·多尔西将卸任Twitter 首席执行官一职。该职位由Twitter 现任首席技术官阿格拉瓦尔（Parag Agrawal）接任。
 
-维多利亚州一项有争议的立法，将授予该州州长丹·安德鲁斯无限期宣布大流行病和紧急状态的权力，经过议会的多次辩论，周四该法案的修正案将由维州上议院作出最后决定。
+同日，杰森·米勒在Twitter上发表了一份声明指出，多年来，杰克·多尔西一直是多任务处理“大师”：审查他不喜欢的意见；取消用户；让美国最古老的报纸之一保持沉默，以及不公平地影响政治选举等。
 
-据《先驱太阳报》报道，辩论结束后，该法案现在被送回下议院，议员们将对修正案进行投票，并在周四回到上议院进行最后的投票。
+米勒表示，多尔西对言论自由的扼杀正是 GETTR 需要存在的原因。他说：“我想我们都应该为此心存感激。如果没有大型科技寡头的残酷压迫和（所谓的）道德指向，来自世界各地的数百万人将不会寻找新的社交媒体。”
 
-维多利亚州经历了数周的抗议活动，数十万维多利亚州人每个周末都聚集在议会的台阶上，抗议州长借大流行病拥有压倒性的权力，这基本上让州长成为了独裁者。
+*参考链接：[https://www.thestreet.com/investing/rightwing-platform-gettr-blasts-twitters-dorsey-for-strangling-free-expression](https://www.thestreet.com/investing/rightwing-platform-gettr-blasts-twitters-dorsey-for-strangling-free-expression)*
 
-如果法案获得通过，还将使该州的卫生部长有能力发布广泛的公共卫生命令，并授予被授权的官员拘留人员的权力。
+* * *
 
-《先驱太阳报》报道：州议员们慢慢通过了80多项拟议的修正案，并对每一项修正案进行了投票。安德鲁斯政府的前部长阿德姆·索姆尤雷克（Adem Somyurek）意外返回议会引发了该法案的延迟，并导致疯狂的政府拼命争取额外的支持票。
+*素材采编：幽蘭自得*
 
-这项有争议的法案引发了大规模的抗议。周六，大量人群再次在墨尔本市中心游行，许多人呼吁安德鲁斯下台。
+*编辑：青衣青青*
 
-在州议会投票通过后，必须经过维多利亚州总督的御准，该法案才会被颁布为法律。
-
-以下是“杀死法案”活动的详细信息：[https://www.rebelnews.com/kill\_dans\_bill](https://www.rebelnews.com/kill_dans_bill)
-
-**参考新闻：**[Marathon pandemic powers bill debate ends with vote due Thursday](https://www.rebelnews.com/marathon_pandemic_powers_bill_debate_ends_with_vote_due_thursday)
-
-*发布：翼族*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+*发布：miumiu*
 
  
 

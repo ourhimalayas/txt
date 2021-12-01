@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/1/2021 1:13 PM (UTC)`
+
+2021年12月1日 文贵大直播：香港股市经济；澳门地下钱庄；变种病毒疫苗；数字货币监管
+![img](https://media.gettr.com/group5/origin/2021/12/01/12/83bb6743-7284-88dd-e6ee-bca369e4ce5d/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 12/1/2021 1:42 AM (UTC)`
 
 11月30号：唐萍老师刚刚让我撤掉让大家打榜的盖文，因为这只是卡拉OK版．让我们等到正式的合唱版出来再开始打榜！刚刚过去20分钟，我们就在爱尔兰．澳大利亚……有这样的成绩了感恩全球所有战友们……【郭先生！您的新歌刚上线在爱尔兰hip-pop/rap榜就排名第一！<br/><br/>澳洲说唱歌曲已经第二名了👏👏👏】
@@ -151,13 +158,6 @@ G Fashion 最特别的帽子即将登场，这些帽子都是跟那些大牌同�
 
 11/26/2021 Miles Guo: Something big happened in several hospitals in Shanghai, with various factions in the CCP retaliating against each other by releasing viruses, and these are all resulted from the evilness of the CCP’s system; the video footages of the interrogation of the arrested CCP’s officials will demonstrate how great the Whistleblowers’ Movement is<br/><br/>11/26/2021 文贵直播：上海数家医院出大事了，中共各派通过放毒报复对方，这一切都源于中共体制的邪恶；中共审讯被抓官员的视频将体现爆料革命的伟大<br/>
 ![img](https://media.gettr.com/group34/getter/2021/11/28/00/e284e700-e7e7-6411-5017-3c7fc537200d/out.jpg)
-
----
-
-`@miles 11/27/2021 6:43 PM (UTC)`
-
-11月27号：共产党的放毒战略……要想成功，现有自宫！【昨天上海被封的醫院】
-![img](https://media.gettr.com/group7/getter/2021/11/27/18/43/ba031565-e81f-bc77-1ce1-21d053404b62/259f20e3a1ab23b217b9fd94a19be037.jpg)
 
 ---
 
