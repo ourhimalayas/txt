@@ -2,42 +2,34 @@
 ---
 
 
-## 以色列银行正加快中央银行数字货币的筹备工作
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1710259/)
+## 港闻前线｜太阳城集团今起所有赌厅暂停运作 洗米华案另一涉案被告早一年被捕
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1710289/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+**撰文/ 台湾宝岛农场 港台前线关注组｜发布日期/ 1/12/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Bank-Manager-Banner.jpg)
+**更多资讯请关注官方盖特｜please follow our Gettr （[https://gettr.com/user/hktwfrontline](https://gettr.com/user/hktwfrontline)）**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/bank-of-israel4.jpeg)
+人称“洗米华”的澳门“太阳城集团”主席周焯华，上周被温州警方点名通缉，指其涉跨境赌博犯罪，上周六（27 日）遭澳门司警拘捕，其后被送往路环监狱羁押。昨日深夜（30 日），澳门广播电视报道指，太阳城集团所有赌厅于今日（12 月 1 日）零时起全面暂停运作。
 
+#### **太阳城集团股价狂跌**
 
- 
-图片来源：www.centralbanking.com
+太阳城集团（1383）昨日复牌后大跌，旗下凯升（0102）亦于周一早上停牌，公司指待发出有关周焯华、构成内幕消息的通告，今日复牌同样股价大跌，一度跌五成。另一间周焯华任大股东的上市公司太阳娱乐（8082）本周日（28 日）发公告指，事件无对集团财务状况、业务或营运产生任何重大影响，强调新闻报道仅涉周生个人事务。
 
+#### **另一涉案被告张宁宁早于一年前被捕**
 
-#### 编译：小红帽
+《香港01》今早释出独家消息指，另一涉案被告张宁宁其实早在 2020 年 7 月于温州被拘捕，张母表示，张宁宁去年被捕后，家属一直没有收到任何官方通知，只有律师传来消息，至温州公布洗米华案件前，都不知道她被捕的原因，“我知道她在温州，但她在温州哪里、到什么程度我也不知，前几天才知道指控她开赌场。”
 
-以色列央行行长阿米尔·亚龙（Amir Yaron ）周一表示，为了创建一个更有效的支付系统，以色列央行正在加快研究和准备可能发行的数字谢克尔。
+张母又指，张宁宁过往五年期间，一直于太阳城旗下公司工作，约两年前被调任至集团的深圳公司。不过，她强调自己不清楚女儿工作的详情，只知和地产有关，女儿出事后，公司曾为她聘请律师：“公司打来我们才知道她被捕，只说她没事，很快可以出来。”
 
-亚龙在一次会议上表示，该银行与其他中央银行一样，尚未决定是否发行数字货币，但仍在研究该问题。 “我们致力于走在该领域的经济和技术知识的前沿。”
+![](https://assets.gnews.org/wp-content/uploads/2021/12/BFrukETTM9ilkAO72aEi1w6H4XdErgYfyIuu-siLrvo.jpeg)图片来源：香港01 
 
-以色列银行于2017年底开始考虑发行中央银行数字货币(CBDC)的可能性，但一年后成立的一个研究小组建议不要在近期发行中央银行数字货币。
+据内地查册，张宁宁曾担任太阳城系内，多间内地公司的法定代表人或高层，包括深圳的太阳世纪地产、紫瑞房地产、太阳华创实业等。
 
-5月，央行表示，再次考虑发行数字谢克尔。
+#### **“洗米华”曾被怀疑出资支持“港独”**
 
-亚龙表示，随着与央行货币基础无关的支付方式的发展，央行驾驭货币政策的能力可能会受到削弱。
-
-“因此，中央银行在防止碎片化和确保支付系统变得更加统一和高效方面可以发挥独特的作用。我们可以通过中央银行数字货币实现这点”。亚龙强调。
-
-**参考新闻：**[Bank of Israel accelerating preparations for digital currency -governor | Reuters](https://www.reuters.com/markets/currencies/bank-israel-accelerating-preparations-digital-currency-governor-2021-11-29/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+2020 年 7 月，网上流传指太阳城集团资助香港“黑暴分子”、支持港独。周焯华发放片段澄清消息为谣言，强调自己一直“心系祖国”，“我有什么理由、有什么动机去资助香港人，或者资助香港暴乱分子，我有什么动机去危害国家呢？”
+![](https://assets.gnews.org/wp-content/uploads/2021/12/港台前線-（HK模板）.jpg)
+来源｜[01獨家](https://www.hk01.com/01偵查/706802/01獨家-洗米華案-港人女骨幹張寧寧身份曝光-17個月前溫州落網)
 
  
 

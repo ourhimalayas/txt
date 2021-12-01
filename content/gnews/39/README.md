@@ -2,28 +2,22 @@
 ---
 
 
-## 有声|【信仰之声】约瑟的启示（三）：唯真的心，与神同行，化解危机
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1710169/)
+## 有声|推特CEO辞职
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1710205/)
 
-配音：香草山香港部 – 文凯琳
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-6.jpg)
+配音：香草山美食部 – 玫瑰园
 
 
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-约瑟是雅各最爱的妻子拉结生的儿子，从小“恃宠而骄”，经常去告哥哥们恶行丑事的状，但他说的是真的。他说出的梦境暗示哥哥们都将是他的仆人，后来证明也是真的。哥哥们心中有恶，害怕面对真相，一起把约瑟卖到了埃及。
 
-虽然流落他乡为奴，但约瑟没有因为孤独无助，就用谎言去讨好主人。他对神坚定的信靠，让他蒙福，让他赢得信任而被重用。
+11月29日，杰克·多西发布了辞职公开信，辞去推特首席执行官一职。
 
-（创世记经文）
+推特股价在开盘前上涨12%。消息人士称，推特股价上涨是因为市场认为多西的辞职标志着很快将出现对推特的并购案。但相反意见则认为，推特面临铺天盖地的诉讼和天文数额的赔偿，前景黯淡。
 
-39:3 他主人见耶和华与他同在，又见耶和华使他手里所办的尽都顺利，
+近年来，以推特、脸书为首的“硅谷大科技寡头”无视美国宪法第一修正案，打压自由言论，利用有政治或利益倾向的言论审查禁言、删帖，直到永久封号。推特因此官司缠身，多西多次被国会传唤参加听证会。分析人士称，多西辞职有利于他从争议和诉讼中脱身。
 
-39:4 约瑟就在主人眼前蒙恩，伺候他主人，并且主人派他管理家务，把一切所有的都交在他手里。
-
-原文链接：[约瑟的启示（三）：唯真的心，与神同行，化解危机](https://gnews.org/zh-hans/1706577/)
+原文链接：[推特CEO辞职](https://gnews.org/zh-hans/1708527/)
 
 音频处理：喜山必胜Maverick
 发稿：Daxia
@@ -45,6 +39,8 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 ![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-6.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-6.jpg)
+
+
 
  
 

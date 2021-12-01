@@ -2,51 +2,32 @@
 ---
 
 
-## 伊利诺伊州法官责令医院给垂死的病人用伊维菌素治疗
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1710232/)
+## CNN等十多家媒体加入班农这一边请求法院不公布有关藐视国会案的1000份文件
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1710265/)
 
-翻译：皮特
-编辑：文泓
-![](https://assets.gnews.org/wp-content/uploads/2021/12/3.jpg)图片来源：Sam’s Alfresco Coffee
-**三天前，美国伊利诺伊州的一户家庭确信是伊维菌素挽救了因****新冠病毒****住院家人的生命。****这个家庭通过赢得司法诉讼，让医院对病重家人使用伊维菌素治疗。**
+#### 翻译：  Evalu
 
-克里斯汀·埃里克森律师谈了这一家人为了让内珀维尔医院给病重的祖父使用伊维菌素而展开持续的抗争。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-2.jpg)图片来源： http://www.iask.c
+英国《每日邮报》（Daily Mail）11月30日报道，一些主流媒体公司联合发起法律请求，支持川普总统的白宫战略家史蒂夫·班农（Steven Bannon），并向法庭提出保护令以阻止他公布1月6日的文件信息。
 
-伊利诺伊州内珀维尔，在11月初，伊利诺伊州的一个家庭深爱的祖父因新冠病毒住院且病危。这位吴先生从香港来到芝加哥探望他的女儿和家人，不幸他感染了新冠病毒，几天后，他就在内珀维尔的爱德华医院住院并使用了呼吸机。
+这些媒体公司包括CNN, ABC, NBC以及华盛顿邮报，纽约时报和其母公司华尔街日报等。该动议将干预班农反抗政府的拟议命令算作班农藐视国会案的一部分。
 
-他的女儿吴文君（Man Kwan Ng）博士非常绝望。她希望医院使用伊维菌素，但被医院拒绝了；理由是依据国家医疗指南，该药物无效，可能会有副作用；订购伊维菌素将违反其政策。
+这个要求将很大程度限制了班农所能披露的信息，而在正常情况下联邦必须分享整个过程，根据之前政府的文件，约有1000多页有关证人的证词的文件，大陪审团的材料甚至有参议院委员会对1月6日国会骚乱的调查中来自工作人员的电子邮件等。
 
-律师克尔斯汀·埃里克森说：“这张照片是11月4日拍摄的，吴先生濒临死亡。但医院仍然拒绝使用伊维菌素。”
+每日邮报获得了这些主流媒体律师们于11月26日向法院发送的禁止令并提供给工作人员的电子邮件，该禁止令将“阻止班农和他的顾问向媒体和公众公布任何在取证期间政府提供的（敏感）文件。”
 
-这里还有一场关于是否可以使用伊维菌素的诉讼。
+这个律师备案文件使得这些主流媒体完全站在了班农这一边，因为班农以前说过《泰晤士报》等媒体应该感到羞愧和难堪，并称这些媒体是“反对派”。
 
-11月8日，这家人赢得了法律诉讼，伊利诺伊州杜佩奇县的一名法官保罗·富勒顿（Paul Fullerton）对此作出了裁决，最终责令医院给71岁的吴先生使用这种有争议的药物（伊维菌素），他自10月19日以来一直使用呼吸机（在ICU病房）。
+媒体注意到首席法官贝丽尔·A·豪厄尔 (Beryl A. Howell)要求从另一个1月6日案中调出视频，认为应该让公众介入此案，称班农想要与媒体和公众谈论关于政府迫害他的事。
 
-法官允许艾伦·贝恩 （Alan Bain）医生使用伊维菌素治疗。这位艾伦医生也没有接种疫苗，未打疫苗是不允许进入医院的，但是，艾伦医生用伊维菌素治愈了很多感染新冠的患者。
+司法部认为，班农试图通过取证程序将他的案件从法院转移到媒体上，并且指责班农在法院外的言论。班农在法院外说：“梅里克·加兰 (Merrick Garland) ，南希·佩洛西 (Nancy Pelosi)，乔·拜登 (Joe Biden)，我现在告诉你们，这是来自地狱的控告。这是乔·拜登命令梅里克·加兰对我的起诉，我们将展开反击，我们厌倦了防守。我们将在这个问题上发起进攻。”
 
-经过法院裁决和艾伦医生提供了阴性核酸测试结果后，11月8日晚上伊维菌素治疗开始了，15天每天一次注射24毫克。
+检查官写道：“允许被告向公众发布证人陈述的报告将带来附加作用，证人会因为公众对他们的评论而改变他们的证词，也会使证人在看到其他证人的证词时对同一事件发生重新评估。”
 
-吴先生的律师表示，吴先生的病情几乎立刻好转。
+关于法律上的争吵也发生在调查1月6日国会骚乱案委员会上，民主党众议院委员会主席班尼·汤普森（Bennie Thompson）表示，川普的前白宫办公厅主任马克·梅多斯（Mark Meadow）与此事有关，在一个安排下，可以允许他拒绝回答关于川普认为是行政特权方面的敏感问题。
 
-埃里克森律师说：“今天（11月9日）他通过了呼吸测试，这是他在过去三周内都没能通过的。而且他看起来更加清醒和明白。所以我说第一剂伊维菌素就已经起效。”
-
-吴的家人说，自11月8日至12日吴先生接受了伊维菌素治疗，在11月27日他就出院了。
-
-吴先生的家人说他现在已完全康复在家享受天伦之乐了。
-
-新闻链接：
-
-1、[Illinois family credits Ivermectin with saving life of father hospitalized with COVID-19 (fox32chicago.com)](https://www.fox32chicago.com/news/illinois-family-credits-ivermectin-with-saving-life-of-father-hospitalized-with-covid-19)
-
-2、[Serious – Courageous Judge Paul Fullerton Orders Chicago Hospital To Eat Shit And Die! | Sam’s Alfresco Coffee (sammyboy.com)](https://www.sammyboy.com/threads/courageous-judge-paul-fullerton-orders-chicago-hospital-to-eat-shit-and-die.313009/)
-
-发布：kk
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻来源： [EXCLUSIVE: CNN, ABC, and more than a dozen media companies file legal brief JOINING Steve Bannon’s bid to lift the DOJ’s order stopping him sharing 1,000 files in his contempt of Congress case](https://www.dailymail.co.uk/news/article-10259683/Media-coalition-files-legal-brief-JOINING-Bannons-fight-against-DOJ-protective-order.html)
 
  
 
