@@ -2,37 +2,31 @@
 ---
 
 
-## 澳洲军队参与土著地区疫情强制隔离
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1709173/)
+## 动物学家彼得-达扎克承认在中共实验室制造冠状病毒
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1709569/)
 
-澳洲新闻时事动态，尽在雅典娜【澳洲热点】
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-140.png)图片来源：Natural News
-翻译： 小鱼儿
-编辑： 守望黎明
+作者：纽约香草山 – 童谣
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+消息媒体11月28日报道，有文件和电子邮件证据表明，彼得-达扎克承认他和蝠奇在武汉病毒实验室，同中共病毒学家合作开展工作。2016年3月28日，彼得-达扎克确切地描述了科学家如何在中共的实验室里制造，能够导致全球病毒大流行的冠状病毒。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture3-25.jpg)
+彼得-达扎克说：我们在蝙蝠身上发现了一大堆冠状病毒，其中一些看起来与SARS非常相似，所以我们对刺突蛋白进行测序。然后从这些病毒中创造出一种，能够轻易与人体细胞结合的刺突蛋白。每走一步，都会越来越接近可以对人产生致病性的病毒。
 
-澳大利亚北部地区的居民正被强行带离他们的家园，并被带到政府设立的新冠 “隔离营 “。
+参考链接：[动物学家彼得-达扎克承认在中共实验室制造冠状病毒](https://www.thegatewaypundit.com/2021/11/flashback-2016-faucis-cohort-peter-daszak-explains-scientists-can-perfectly-create-coronavirus-china-lab-can-lead-global-pandemic/)
 
-在仅有的九个人被糊弄人的PCR测试查出阳性后，澳大利亚军队就将他们包围起来，并将他们带到位于达尔文市霍华德泉的检疫营。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-北领地首席部长迈克尔·冈纳（Michael Gunner）宣布：”宾贾里和罗克洞地区的居民原来可以离开家的五个理由不再有效。现在他们只能因医疗、紧急情况或法律要求才能出门。” 他还说：”今天极有可能有更多的居民被送到霍华德泉，要么是检测阳性，要么是密切接触者。”
+总编：文特
+编辑：木白
+校对/发稿：Hetangyuese
 
-值得注意的是，生活在澳大利亚北部地区的大多数人都是澳洲原住民——就是澳大利亚的本地土著人，很像最初独占美国的印第安人。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
-为什么澳大利亚讨厌这些棕色人种？明确地说，这就是法西斯主义，它针对的是资源匮乏、人数不多又缺少反抗能力的边缘群体。
-
-根据澳大利亚卫生福利研究所的数据，许多生活在北部地区的人口都非常贫穷。目前有五分之一生活在过度拥挤的居所中，这其中土著澳大利亚人占了95%。
-
-就在中共病毒的 “阳性 “病例被拖到新冠隔离营的前几天，北领地参议员马拉迪里·麦卡锡刚好在对当地媒体大肆鼓噪该地区如何存在过度拥挤的 “重大问题”。现在把人都拖到集中营去，会不会就是政府解决这些人居住拥挤的 “补救措施”啊？
-
-参考链接：[Australian army begins relocating covid-“positive” cases to quarantine (concentration) camps](https://www.naturalnews.com/2021-11-28-australia-relocating-covid-positive-cases-quarantine-camps.html)
-
-发布：Peter Xin
-
-**更多****资讯****，****请关****注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

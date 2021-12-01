@@ -2,44 +2,89 @@
 ---
 
 
-## 美国联邦法官阻止拜登对全国医护人员实施疫苗强制令
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1709723/)
+## 视频| 习近平是怎样成为独裁之王的（下）
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1709984/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+## 摘自2021.11.28郭先生大直播
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/biden-vaccine-mandates-osha-comp-1.jpg)
-
-
- 
-图片来源：New York Post
+制作：香草山视频部
 
 
-#### 编译：小红帽
 
-美国路易斯安那州的一名联邦法官周二发布了一项全国性的初步禁令，反对拜登总统对医护人员实施的新冠病毒（COVID-19）疫苗强制令。
+大家千万别忘了
+北朝鲜是他上台以后
+几乎中共已经跟北朝鲜撕裂了
+这个唯一的联盟关系就是你要有战争我帮你
+就跟北朝鲜他没有延续嘛
+习访问北朝鲜以后习在现场就说了句话
+你们金家是人类历史上人类的一级文明的唯一成功者
+你给我找人类独裁几个有后的
+而且没有几乎独裁没有到第二代
+只有一个人类的传奇
+就是北朝鲜金家经到了三代
+就是金家搞的是今天严格讲说
+他就是一个所谓的可继承化的皇族体系
+他成功了啊
+所以习近平说你看你把人类的另外一端的文明
+也就是稳定的政治社会的政治系统
+你成功了北朝鲜
+习近平跟金正恩见面的时候
+说你完成了你家和北朝鲜最关键的一步
+就是拥有核武器终极武器
+金家的在北朝鲜的事业千秋万代
+我习近平将支持你
+你们没有意识到习近平去俄罗斯
+那场访问习近平到北朝鲜的访问
+把习近平一下子变成了
+世界上独裁中的独裁叫独裁之王
+在这个之前啊他的人格是不完整
+他对人生的规划是不确定的
+他对世界的认知是很狭隘的
+甚至对事业对政治对能力是不自信的
+但到了美国被奥巴马给羞辱之后
+转嫁俄罗斯普京跟他结为战友
+绝对战友咱俩一起死磕
+这个世界就是咱的了
+更重要的他去伊朗墨索里尼
+墨索里尼上台之后
+特别是记住啊
+伊朗第一修宪的法律是什么
+修改结婚的年龄
+大家知道吗
+结婚年龄7岁
+从16岁改为7岁可以结婚女孩
+女性成了男性的工具
+这个时候他你看他对阿富汗的事
+都跟他有关系的人格障碍
+为什么他搞阿富汗呢
+大家你看他支持阿富汗呢
+他认为美国的死穴是阿富汗
+中国的丝绸之路阿富汗
+他认为我把中东伊朗巴基斯坦
+阿富汗这个能拿过来以后
+那我未来我就是可以统治东亚南亚到中东
+然后马六甲海峡一带一路
+他是一带一路的真的他想他认为能成功的
+所以你看俄罗斯北朝鲜伊朗哈梅内伊
+这个开完会回去以后整个中国就变天了
 
-美国路易斯安那州西区地方法院的特里·A·道蒂（Terry A. Doughty）法官裁定，支持路易斯安那州共和党总检察长杰夫·兰德里（Jeff Landry）的请求，以阻止医疗保险和医疗补助服务中心于11月4日发布的一项紧急条例。该条例要求几乎所有接受医疗补助或医疗资助资金的医疗机构的全职雇员、兼职雇员、志愿者和承包商都要接种新冠疫苗。
 
-路易斯安那州和其他13个州的总检察长一起参与了诉讼。
 
-职业安全与健康管理局（OSHA）暂停执行对大型企业的新冠疫苗强制令。
+发稿：雪梨
 
-道蒂在裁决中认为，拜登政府没有宪法权力绕过国会发布这样的授权。
+![This image has an empty alt attribute; its file name is 8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg)
 
-道蒂补充道：“如果允许行政部门篡夺立法部门制定法律的权力，那么我们的宪法所赋予的三项权力中的两项将掌握在同一个人手中。如果说人性和历史教导了我们什么，那就是当政府宣布无限期的紧急状态时，公民自由会面临严重的风险”。
+**更多资讯，更多关注**
 
-道蒂的裁决与美国地区法官马修·施乐普（Matthew Schelp）的裁决相呼应，他于周一发布了一份32页的命令，阻止拜登政府对10个州的卫生保健工作者的新冠疫苗强制令。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**参考新闻：** [Federal judge blocks Biden vaccine mandate for health care workers nationwide (msn.com)](https://www.msn.com/en-au/news/us/federal-judge-blocks-biden-vaccine-mandate-for-health-care-workers-nationwide/ar-AARjCWT?ocid=msedgntp)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-***发布：小红帽***
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
