@@ -2,41 +2,45 @@
 ---
 
 
-## 莫德纳Moderna 首席执行官重申疫苗对 Omicron 不起作用
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1709399/)
+## Coinstore进入印度，尽管尚未取缔加密货币
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1709439/)
 
-翻译： 真北007
-![](https://assets.gnews.org/wp-content/uploads/2021/11/WSJ_0-edited.jpg)图片来源：网络
-来自零对冲（ZERO HEDGE） 星期二11月30日的新闻报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12-ak8dr-ljk66-2.jpg)**在2021年10月19日拍摄的这张图片插图中，可以看到虚拟加密货币比特币的代表。路透社/Edgar Su/照片文件**
+11月28日路透社孟买报道，总部位于新加坡的虚拟货币交易所Coinstore已经开始在印度运营，此时印度政府正在准备立法，意图有效禁止大多数私人加密货币。
 
-在昨天接受了几乎所有美国主要新闻机构的采访后，Moderna 首席执行官 Stephane Bancel 周二预计疫苗对阻止 omicron 变体无能为力，此评论大幅下挫了他自己公司的股票。
+Coinstore管理层表示，Coinstore已经推出了其网络和应用程序平台，并计划在班加罗尔、新德里和孟买设立分支机构，这些分支机构将作为其在印度的基地，用于未来的扩张。
 
-Bancel 在接受英国《金融时报》采访时警告说，现有的疫苗在应对 omicron 方面的效果不如对早期的 COVID 病毒，制药公司可能需要几个月的时间才能大规模生产新的特定变种的疫苗。
+Coinstore的营销主管Charles Tan告诉路透社：“我们平台总活跃用户的近四分之一来自印度，我们向市场扩张是有意义的。”
 
-这位 CEO 预测当前疫苗在对抗 omicron 方面的功效将“大幅下降”。
+当被问到为什么Coinstore要在印度开展业务，尽管对加密货币的取缔尚未完成，Charles Tan讲道：“政策一直在翻转，但我们希望事情会变得积极，我们乐观地认为印度政府将为加密货币提供一个健康的框架。”
 
-鉴于 omicron 的刺突蛋白（这对病毒感染人类细胞的能力至关重要）中存在大量突变，以及这种新变种在南非的“快速传播”，班塞尔(Bancel)认为当前批次疫苗需要修改。
+两位消息人士本月早些时候告诉路透社，新德里政府正计划通过征收高额的资本利得税和其他税收来阻止加密货币的交易。
 
-Bancel 在 Moderna 总部接受采访时告诉英国《金融时报》，“还没有疫苗对抗Omicron能有像对抗Dalta一样的水平”。 Bancel 补充说，大多数专家认为，这种高度突变的变种在一两年内不会出现（显然“砖家”打脸了）。
+它表示，根据定于本月晚些时候开始的冬季会议的立法议程，它将只允许某些加密货币来促进基础技术及其用途。
 
-有些人可能会纳闷，为什么 Bancel 似乎如此急于对自己的产品提出质疑？请记住：这与公共服务无关。 Omicron 是 Moderna 和辉瑞的福音，因为它最终将使他们能够销售更多的疫苗。
+Charles Tan表示，Coinstore计划在印度招聘约100名员工，并斥资2000万美元用于印度市场的营销、招聘和加密货币相关产品和服务的开发。
 
-当前的疫苗（包括 Moderna 的）侧重于刺突蛋白，这就是为什么在 omicron 中看到的大量突变可能使疫苗无法阻止它而无效，即使对于同时接种疫苗和加强剂的患者也是如此。
+Coinstore是最近几个月进入印度的第二家全球交易所，紧随CrossTower的脚步，后者在9月推出了其本地部门。
 
-Bancel 补充说，预计将在未来两周内发布更多详细说明 omicron 是否会导致接种疫苗的患者出现严重疾病的数据。一旦获得新数据，Moderna 预计将在几个月内准备好下一批疫苗。
+自今年年初以来，世界上市值最大的加密货币比特币的价格已经上涨了一倍多，吸引了成群的印度投资者。
 
-值得注意的是，班塞尔并不是唯一一位重申对 omicron 担忧的 Moderna 高管。
+业内人士估计，印度有1500万到2000万加密货币投资者，加密货币的总持有量约为4000亿卢比（53.3亿美元）。
 
-联合创始人Noubar Afeyan 告诉彭博社，在 omicron 中看到的许多突变表明需要新的疫苗， “这种病毒的突变数量令人惊讶，”Afeyan 说。
+据Charles Tan称，Coinstore还计划扩展到日本、韩国、印度尼西亚和越南。
+(1美元=75.0400印度卢比)
+报道： Nupur Anand; 编辑： Mark Heinrich
 
-人们不禁感到，这种“更具传染性、更不致命”的病毒变异突现，以及对如此低病例数的疯狂和同步反应， 与疫苗接种率放缓这一事实和疫苗制造商需要新的收入来源绝非巧合（记得昨天，英国卫生部长建议公民每 3 个月需要一次加强针）。
+**原文链接：**[https://www.reuters.com/technology/cryptocurrency-exchange-coinstore-enters-india-despite-pending-curbs-trade-2021-11-28/](https://www.reuters.com/technology/cryptocurrency-exchange-coinstore-enters-india-despite-pending-curbs-trade-2021-11-28/)
 
-原文链接：[https://www.zerohedge.com/covid-19/markets-edge-after-moderna-ceo-repeats-vaccine-wont-work-omicron](https://www.zerohedge.com/covid-19/markets-edge-after-moderna-ceo-repeats-vaccine-wont-work-omicron)
+翻译：洛杉矶盘古农场 –KY
+校对：洛杉矶盘古农场 –Mike Li
+编辑：洛杉矶盘古农场 – 小象の奶瓶
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-编辑/发布：LILY
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-20211130
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

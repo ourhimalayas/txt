@@ -2,32 +2,33 @@
 ---
 
 
-## 昆士兰学校、托儿所工作人员和志愿者的疫苗接种任务
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1709113/)
+## 澳洲军队参与土著地区疫情强制隔离
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1709173/)
 
-**翻译：Ronnie O’Sullivan
-编辑：Candy**
+澳洲新闻时事动态，尽在雅典娜【澳洲热点】
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-140.png)图片来源：Natural News
+翻译： 小鱼儿
+编辑： 守望黎明
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/疫苗-1.png)图片来源：9news
+澳大利亚北部地区的居民正被强行带离他们的家园，并被带到政府设立的新冠 “隔离营 “。
 
+在仅有的九个人被糊弄人的PCR测试查出阳性后，澳大利亚军队就将他们包围起来，并将他们带到位于达尔文市霍华德泉的检疫营。
 
-根据最新规定，昆士兰州学校和托儿所的所有工作人员及志愿者，都需在12月17之前接种第一剂疫苗，并在明年1月23日之前全面接种。而获得适当医疗豁免的人士不必接种。
+北领地首席部长迈克尔·冈纳（Michael Gunner）宣布：”宾贾里和罗克洞地区的居民原来可以离开家的五个理由不再有效。现在他们只能因医疗、紧急情况或法律要求才能出门。” 他还说：”今天极有可能有更多的居民被送到霍华德泉，要么是检测阳性，要么是密切接触者。”
 
-昆士兰州教育部长格蕾丝（Grace）说，此举是为了“保护昆士兰州学校里超过50万名还不能接种疫苗的12岁以下儿童，以及更多早期儿童中心”。
+值得注意的是，生活在澳大利亚北部地区的大多数人都是澳洲原住民——就是澳大利亚的本地土著人，很像最初独占美国的印第安人。
 
-该规则将使昆士兰与澳大利亚其它州及领地保持政策一致。它将涉及公立和私立学校以及托儿所。
+为什么澳大利亚讨厌这些棕色人种？明确地说，这就是法西斯主义，它针对的是资源匮乏、人数不多又缺少反抗能力的边缘群体。
 
-除了西澳，昆士兰州的疫苗接种率是全国最低的，只有76.1%符合条件的昆士兰人接种了两剂中共病毒疫苗。但是，此州在过去24小时内没有任何本地新感染病例记录。
+根据澳大利亚卫生福利研究所的数据，许多生活在北部地区的人口都非常贫穷。目前有五分之一生活在过度拥挤的居所中，这其中土著澳大利亚人占了95%。
 
-昆士兰州长安娜斯塔西娅·帕拉什丘克（Annastacia Palaszczuk ）表示，虽然Omicron 中共病毒变种已抵达澳州，但完全接种疫苗的国人依然可以免隔离而进行州际旅行。
+就在中共病毒的 “阳性 “病例被拖到新冠隔离营的前几天，北领地参议员马拉迪里·麦卡锡刚好在对当地媒体大肆鼓噪该地区如何存在过度拥挤的 “重大问题”。现在把人都拖到集中营去，会不会就是政府解决这些人居住拥挤的 “补救措施”啊？
 
-她说，昆士兰州在防疫方面之所以“处于如此有利的地位”，是因为他们对中共病毒持有谨慎态度。此州规定，最近从Omicron变种病毒传播的国家抵达昆士兰的任何人都将在昆士兰州的酒店进行隔离。
+参考链接：[Australian army begins relocating covid-“positive” cases to quarantine (concentration) camps](https://www.naturalnews.com/2021-11-28-australia-relocating-covid-positive-cases-quarantine-camps.html)
 
-原文链接：[https://www.9news.com.au/national/coronavirus-update-queensland-vaccine-mandates-teachers-school-staff-childcare-children-covid19-vaccinations/48172cb4-87aa-4fd1-bced-95ef284330eb](https://www.9news.com.au/national/coronavirus-update-queensland-vaccine-mandates-teachers-school-staff-childcare-children-covid19-vaccinations/48172cb4-87aa-4fd1-bced-95ef284330eb)
+发布：Peter Xin
 
-***发布：Candy***
-
-**更多资讯，请关注：**
+**更多****资讯****，****请关****注：**
 [澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord

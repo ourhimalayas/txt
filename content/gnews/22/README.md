@@ -2,43 +2,36 @@
 ---
 
 
-## 拜登在疫苗强制的信息战中败下阵来
-` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1709092/)
+## 昆士兰学校、托儿所工作人员和志愿者的疫苗接种任务
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1709113/)
 
-加拿大扬帆农场 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2021/11/vax_protest-1.jpg)图片来源： Times Higher Education
-根据《CNBC》11月30日于华盛顿报道，在美国，超过70%的成年人已经完全接种了冠状病毒疫苗。但根据上个月的全国广播公司新闻调查，只有不到一半的美国人支持强制接种疫苗。
+**翻译：Ronnie O’Sullivan
+编辑：Candy**
 
-根据民意调查，47%的美国人支持要求所有符合条件的人必须接种Covid-19疫苗，而50%的人则反对这一要求。
-
-以下是按政党、年龄、种族和教育程度划分的调查结果：
-所有成年人：47%的人赞成，50%的人反对。
-民主党人：80%的人赞成，18%的人反对。
-独立人士：47%赞成，51%反对。
-共和党人：20%赞成，77%反对。
-18-34: 45%赞成，51%反对。
-35-49岁：41%赞成，56%反对。
-50-64岁：44%赞成，53%反对。
-65岁以上：60%赞成，38%反对。
-白人：40%赞成，56%反对。
-黑人：64%赞成，34%反对。
-拉美裔：59%赞成，39%反对。
-非大学毕业的白人：35%赞成，61%反对。
-白人大学毕业生：52%赞成，46%反对。
-接种疫苗：65%赞成，31%反对。
-未接种疫苗：6%赞成，92%反对。
-白人福音派：19%赞成，78%反对。
-
-综上所述，反对疫苗强制者占据了主导地位，而强制疫苗支持者，包括白宫都不占多数，可见全美人民对疫苗的认识和觉醒。政府，大药厂和媒体很难进一步推进强制疫苗。
-
-原文链接：
-[https://www.nbcnews.com/politics/meet-the-press/how-biden-lost-vaccine-mandate-messaging-fight-n1285077](https://www.nbcnews.com/politics/meet-the-press/how-biden-lost-vaccine-mandate-messaging-fight-n1285077)
-
-* * *
-
-发稿 Spirit
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/疫苗-1.png)图片来源：9news
 
 
+根据最新规定，昆士兰州学校和托儿所的所有工作人员及志愿者，都需在12月17之前接种第一剂疫苗，并在明年1月23日之前全面接种。而获得适当医疗豁免的人士不必接种。
+
+昆士兰州教育部长格蕾丝（Grace）说，此举是为了“保护昆士兰州学校里超过50万名还不能接种疫苗的12岁以下儿童，以及更多早期儿童中心”。
+
+该规则将使昆士兰与澳大利亚其它州及领地保持政策一致。它将涉及公立和私立学校以及托儿所。
+
+除了西澳，昆士兰州的疫苗接种率是全国最低的，只有76.1%符合条件的昆士兰人接种了两剂中共病毒疫苗。但是，此州在过去24小时内没有任何本地新感染病例记录。
+
+昆士兰州长安娜斯塔西娅·帕拉什丘克（Annastacia Palaszczuk ）表示，虽然Omicron 中共病毒变种已抵达澳州，但完全接种疫苗的国人依然可以免隔离而进行州际旅行。
+
+她说，昆士兰州在防疫方面之所以“处于如此有利的地位”，是因为他们对中共病毒持有谨慎态度。此州规定，最近从Omicron变种病毒传播的国家抵达昆士兰的任何人都将在昆士兰州的酒店进行隔离。
+
+原文链接：[https://www.9news.com.au/national/coronavirus-update-queensland-vaccine-mandates-teachers-school-staff-childcare-children-covid19-vaccinations/48172cb4-87aa-4fd1-bced-95ef284330eb](https://www.9news.com.au/national/coronavirus-update-queensland-vaccine-mandates-teachers-school-staff-childcare-children-covid19-vaccinations/48172cb4-87aa-4fd1-bced-95ef284330eb)
+
+***发布：Candy***
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
