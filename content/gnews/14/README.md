@@ -2,46 +2,40 @@
 ---
 
 
-## 欧盟将在全球注资3000亿欧元以替代中共“一带一路”倡议
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1711634/)
+## 日本东京方舟农场文化灭共组作品欣赏
+` WindTalker` [轉載自GNews](https://gnews.org/zh-hans/1711685/)
 
-作者：纽约香草山农场 – 四季
+————日本东京方舟农场战友「方舟柒公子」言：积跬步，致千里，每天做一点，不虚度光阴。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+设计/策划/撰文：宇宙之泾
 
+绘画/书法/篆刻：方舟柒公子
 
+书法：Livre 动漫画：星空
 
-
-
-据[路透社](https://www.reuters.com/markets/rates-bonds/eu-unveils-300-bln-euro-global-investment-scheme-2021-12-01/)12月1日报道，欧盟委员会周三公布了一项计划，到2027年在全球范围内投资3000亿欧元用于基础设施、数字和气候项目，**以替代中共“一带一路”倡议。**欧盟的资金将来自欧盟机构、政府，以及欧盟金融机构和国家开发银行。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1580-1.jpg)2020年12月24日，在比利时布鲁塞尔举行的英国脱欧谈判的欧盟委员会总部外飘扬的欧盟旗帜。(REUTERS/Yves Herman)
-
-欧盟委员会主席乌苏拉·冯德莱恩在新闻发布会上表示，这是对中共国“一带一路”倡议的一个真正的替代方案。
-
-这项名为“全球通道”的计划旨在加强欧洲的供应链，促进欧盟贸易，并帮助应对气候变化。其重点是数字化、卫生、气候和能源、运输行业，以及教育和研究领域。该计划将侧重于有形基础设施，如光纤电缆、清洁运输走廊、清洁电力传输线，以加强数字、运输和能源网络。
-
-欧盟委员会在一份声明中说，欧盟将以公平和有利的条件提供融资，以限制债务困扰的风险。欧盟官员表示，北京提供的融资条件往往是不利和不透明的，它使一些较贫穷的国家，特别是非洲国家，通过债务依赖于中共国。而欧盟的全球通道计划的目的是与其他国家建立联系，而不产生依赖性。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月.png)
-
-编辑/校对/发稿：小鹿
+日本东京方舟文化灭共组致力新中国联邦文化事业的投入和发展，在农场成立初期吸引了音乐，绘画，书法，篆刻，摄影，诗词歌赋写作方面的人才，扎根于农场最基础的工作和建设。文化灭共是全方位立体灭共的核武器，新中国联邦应运而生，爆料革命的战友是富有使命感和历史重任的，我们每一天的一点点付出，是为了我们自身的健康和生命，为了我们的子孙后代和未来在拼搏和拼命。同时我们的付出也迎来了更加美好的明天和世界人民的认可，我们在传播病毒和疫苗的真相，我们在揭露中国共产党的杀人事实和邪恶嘴脸。我们正在拯救人类和人类文明，同时拯救了中华民族和我们自己。【12/01/2021】
+![](https://assets.gnews.org/wp-content/uploads/2021/12/8DB6A7AD-A06A-4F46-8922-37BB79F7BFEB_1_102_o.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/9D5259CC-02B9-4636-9885-ED5A916D096A_1_102_o.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/A8FE1543-0424-4847-8D02-35C05E2A38E7_1_102_o.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/53D09D2A-D96A-41E3-AD25-87C432F99414_1_102_o.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/4CBB8AE9-DD30-4DC7-B10D-CA0261088049_1_102_o.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/E6774032-3520-44BE-9DD4-9089B81FABDE_1_102_o.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/85A9DBF3-4860-4C4F-8B7B-962289F759D4_1_100_o-scaled.jpeg)
 
 
 
-**更多资讯，更多关注**
 
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+2021年12月| 一 | 二 | 三 | 四 | 五 | 六 | 日 |
+| --- | --- | --- | --- | --- | --- | --- |
+|   | [1](https://gnews.org/zh-hans/date/2021/12/01/) | 2 | 3 | 4 | 5 |
+| 6 | 7 | 8 | 9 | 10 | 11 | 12 |
+| 13 | 14 | 15 | 16 | 17 | 18 | 19 |
+| 20 | 21 | 22 | 23 | 24 | 25 | 26 |
+| 27 | 28 | 29 | 30 | 31 |   |
 
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[« 11月](https://gnews.org/zh-hans/date/2021/11/)  
 
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/06/1ADF5F44-6C2A-42A2-8316-C3898C426B4F-1.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+> 只有那些疯狂到认为自己可以改变世界的人，才能真正改变这个世界。
+
 
 
 

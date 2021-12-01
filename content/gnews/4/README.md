@@ -2,41 +2,51 @@
 ---
 
 
-## 有声|澳国防部长警告 必须警惕中共的军事规模和野心
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1711734/)
+## 加拿大在未经您的同意下，您 5 岁的孩子是否可以接种疫苗
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1711857/)
 
-配音：香草山香港部 – 文凯琳
+作者：Drea Humphrey
+翻译：HimaFAFA
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-7.png)
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-近日，澳大利亚国防部长达顿在新闻发布会上发出警告，为避免在印太地区发生冲突，澳大利亚必须警惕中共的军事规模和野心。
+11 月 19 日，加拿大卫生部批准将辉瑞疫苗用于 5 至 11 岁的儿童。
 
-达顿指出，世界正面临着二战以来最重大的战略环境变化，澳大利亚再次处于全球战略竞争的中心区域。印太地区紧张局势持续上升，中共病毒疫情又加剧了局势的恶化。
+但这是否意味着可以在未经父母同意的情况下在加拿大为年仅 5 岁的儿童接种新冠疫苗？
 
-达顿进一步表示，中共政府一贯谎称维护和确保印太地区和世界的稳定繁荣，维护航行自由和海上航线的安全，和平协商解决领土争端。但事实却完全相反。中共政府所采取的行动都不是以和平为目的，令人警觉。
+令人震惊的是，在不列颠哥伦比亚省，答案是肯定的。
 
-中共2020年核弹头储备数量估计为二百枚，未来十年间，预计达到七十万一千枚。包括霍巴特在内的所有澳大利亚主要城市，都在中共导弹射程内。
+那是因为卑诗省有一个偷偷摸摸的父母权利问题，称为“婴儿法”，该法概述了关于 19 岁以下儿童“成熟的未成年人同意和免疫”的法律立场。
 
-中共干涉印太地区安全和经济的野心非常明显，将导致澳大利亚和周边很多国家的军事和经济状况处于非常危险的境地。达顿呼吁，为维护国家主权和国际法，所有友好国家应齐心协力，向中共政府施压，并尽最大努力避免军事冲突。否则，误解、误判或敌意将导致灾难性冲突。
+即使父母因与此类治疗（包括绝育）有相关潜在健康风险而反对时，该法律也可用于允许医生帮助识别为跨性别的孩子进行医疗过渡。
 
-文字版原文：[澳国防部长警告 必须警惕中共的军事规模和野心](https://gnews.org/zh-hans/1703468/)
+在这份完整的报告中，您将更好地了解这项法律，正如宪法自由司法中心的诉讼主管杰伊·卡梅伦 (Jay Cameron)所解释的那样。
 
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
-**更多资讯，更多关注**
+您还将从南丁格尔患者护理倡导的创始人凡妮莎·福勒（Vannessa Fowler）那里了解到确保您的孩子在接受这些疫苗时获得知情和同意的重要性。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+在不久的将来，这两种信息来源可能会变得非常重要，因为您还将在本报告中了解到，小学被认为是儿童接种疫苗的便利地点。此外，像BC 疾病控制中心医学主任莫妮卡·瑙斯（Monika Naus） 博士这样的某些权力，使指定的卫生专业人员可以更方便地在未经父母同意的情况下为 11 岁或以下的儿童接种疫苗。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+如果您担心公共卫生领主和官僚们使用不道德的强制手段迫使人们（包括儿童）接受实验性疫苗接种，请加入我们的斗争，以结束将疫苗护照和疫苗接种强制要求作为的就业条件。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+来源：[https://www.rebelnews.com/can\_your\_5-year-old\_kid\_be\_jabbed\_for\_covid\_without\_your\_consent\_in\_canada](https://www.rebelnews.com/can_your_5-year-old_kid_be_jabbed_for_covid_without_your_consent_in_canada)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+（文章仅代表作者个人观点）
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

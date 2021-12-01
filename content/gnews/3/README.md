@@ -2,56 +2,96 @@
 ---
 
 
-## 美海军司令呼吁在太平洋部署更多航母威慑中俄避免冲突
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1711756/)
+## 中共的体制让习近平也生活在恐惧中
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1711865/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/120105-1.jpg)图片：来自TEHRAN (FNA)
-**摘要翻译：**
+[https://gtv.org/video/id=61a7071c3ff6481adce6dea3](https://gtv.org/video/id=61a7071c3ff6481adce6dea3)
 
-来自《国会山报》12月30日的报道，
+所有这些的背后是什么
+Qué hay detrás de todo esto
 
-美国海军第七舰队司令呼吁在太平洋部署更多航空母舰，以威慑中共国和俄罗斯，防止发生军事冲突。
+战友们, 今天都能看到
+Compañeros luchadores, hoy pueden ver
 
-据《华尔街日报》报道，在美国结束与日本、澳大利亚、加拿大和德国为期10天的海军演习后，卡尔·托马斯(Karl Thomas)中将发表了上述评论。
+是共产党这个魔鬼的体制
+Es el sistema de demonio del Partido Comunista
 
-该报报道，当被问及来自中共国和俄罗斯的威胁时，托马斯表示，向“可能更具侵略性和专制性的其他国家”展示统一战线很重要。
+才能培养出一个这样的人
+Para poder entrenar a una persona así
 
-他补充说，美国和盟国应该利用联合演习来“阻止其中某些显现出新兴力量的国家的侵略，并告诉这些国家也许当下不是他们侵略的时机。”
+才是习近平今天能全天下而不顾(的原因)
+Y es la razón por la cual hoy Xi Jinping puede dejar al mundo entero
 
-本月早些时候，美国海军研究所表示，中共正在建造美国海军舰艇模型，作为中国人民解放军开发的一个新靶场的一部分。
+他自己连门都不敢出了
+Él mismo no se atreve de salir de la puerta de su casa
 
-五角大楼在其提交给国会的年度报告中称，中共国于2019年底启用了其第一艘国产航母，第二艘航母预计将于2024年投入服役。
+习近平连国都不敢出了
+Xi Jinping no se atreve a salir del país
 
-与此同时，俄罗斯周一宣布成功测试了一枚锆石巡航导弹，据信该导弹的飞行速度是音速的五倍以上，这加剧了人们对莫斯科在其与乌克兰的边境附近集结军队的担忧。
+连中南坑里都不让人知道我在哪
+Hasta la cueva del PCCh no saben dónde estoy
 
-托马斯在一年一度的年度海军演习结束时发表了上述言论，该演习于11月21日在日本海岸附近的菲律宾海开始。
+真的, 习从过去2020年的1月份到现在
+Es verdad, Xi desde enero de 2020 hasta ahora
 
-澳大利亚皇家海军、加拿大皇家海军、德国海军和日本海上自卫队加入了美国海军。
+习几乎是居无定所
+Casi no tiene un hogar permanente
 
-据《华尔街日报》报道，托马斯说联合部队代表了“令人难以置信的力量”，并补充说“想想我们可能要如何作战，这是一片很大的水域，四艘航空母舰是一个不错的数量，但六、七或八艘会更好。”
+四处流窜
+Ha estado corriendo por todas partes
 
-**简评：**
+掩人耳目
+Cubriéndose
 
-就拜登政府执政以来的对中政策和行动来看，如果让他决定与中共政权在太平洋地区开战，恐怕会很有难度。但是看美国及其盟国不断通过军事演习展示其在太平洋海域的军事存在，并向中俄发出明确的威慑信号，似乎美国政府内部仍然有在积极推动维护太平洋海域稳定的力量。希望这股力量能够左右拜登政府在中俄挑起冲突时做出积极反应，维护美国及其盟友的区域安全和利益，也可以让这一区域的人民免受战争之苦。
+装神弄鬼
+Haciendo trucos
 
-新闻链接：[US Navy commander calls for more aircraft carriers in Pacific to dissuade China, Russia from conflict](https://thehill.com/policy/defense/navy/583550-us-navy-commander-calls-for-more-aircraft-carriers-in-pacific-to-dissuade)
+这就是习近平过去一年的生活
+Esta es la vida de Xi en este último año
 
-*翻译/简评：Harvey (叶知秋)*
+他绝不敢让任何人知道他住在哪
+Él absolutamente no se atreve a decirle a ninguna persona dónde se está viviendo
 
-*校对：感恩*
+他也不敢说他在哪
+O dónde está
 
-* * *
+他也不敢告诉人家吃啥
+Tampoco le dice a las personas qué come
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+有病看医生, 恨不得一天都换100个医生
+Si se enferma, desea cambiar 100 doctores en un sólo día
 
+然后天天要管理全世界
+Y todos los días quiere administrar el mundo
 
-编辑：【英国伦敦喜庄园编辑部】
+然后抓来抓去
+Arrestando a las personas
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+他就是毛泽东, 斯大林, 希特勒的一个总和的结果都没有习今天疯狂
+Él es el resultado final del conjunto de Mao Zedong, Stalin y Hitler, y ninguno es tan loco como lo es Xi hoy
 
+而且他的恐惧超过任何人
+Y su miedo supera a cualquier otra persona
 
+**原视频网址：**[https://gettr.com/post/pi1ce5056a](https://gettr.com/post/pi1ce5056a)
+
+日期：11/30/2021
+原视频标题：中共的体制让习近平也生活在恐惧中
+El sistema del PCCh hace que Xi Jinping también viva con miedo原视频日期：11/26/2021
+**原视频网址：**https://gettr.com/post/pi1ce5056a
+任务编号：3025
+视频时间段：0:00-1:11
+
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 -青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

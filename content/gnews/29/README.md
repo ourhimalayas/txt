@@ -2,33 +2,53 @@
 ---
 
 
-## 有声|美国最高法院拒绝麻州医护人员疫苗暂停申请
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1711442/)
+## 希腊对60岁以上未接种疫苗者处以每月 144 元的罚款
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1711509/)
 
-配音：香草山香港部 – 文凯琳
+作者：Dakota Christensen
+翻译：HimaFAFA
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-10.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-11月29日，美国最高法院拒绝对马萨诸塞州综合医院（Mass General Brigham）的医护人员给予救济。第一巡回法庭极左派大法官布雷耶，并没有做出任何解释，而拒绝了医护人员紧急禁令的请求。 该医院工作人员因拒绝接种疫苗并被解雇或无薪休假。员工们寻求宗教或医疗豁免，但遭到拒绝。员工称，医院的强制疫苗政策侵犯了他们的宗教自由，或会对他们的健康构成威胁。所以，他们以该医院违反了禁止歧视的联邦法律为由提起诉讼。 但最终，这一诉讼还是被布雷耶大法官驳回。据悉，上个月布雷耶也曾拒绝审理一项试图阻止缅因州医护人员强制疫苗的紧急上诉。
+据彭博社报道，希腊总理基里亚科斯·米佐塔基斯 (Kyriakos Mitsotakis) 周二在雅典举行的内阁会议前宣布，所有 60 岁以上的希腊人都必须接种新冠疫苗。
 
-文字版原文：[美国最高法院拒绝麻州医护人员疫苗暂停申请](https://gnews.org/zh-hans/1707500/)
+从 1 月 16 日开始，那些拒绝接受新冠注射的人必须每月支付 100 欧元（144 加元）的罚款，因为他们没有接种疫苗。
 
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
-**更多资讯，更多关注**
+总理说，罚款将由税务机关执行，资金将提供给希腊医院。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+“这不是惩罚，”米佐塔基斯说。“我会说这是健康费。”
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+100 欧元的罚款相当于希腊平均每​​月养老金 730 欧元的近七分之一。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+米佐塔基斯说：“[这个决定]折磨了我，但我觉得有很大的责任站在那些最脆弱的人身边，即使这可能会短暂地让他们不悦。”
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+“这是为健康付出的代价，”总理宣称。
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+希腊约有 520,000 名 60 岁以上的人仍未接种疫苗。希腊在这个年龄段的疫苗接种率约为 83%，而葡萄牙为 98%。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+“专家估计，就公共卫生而言，疫苗对 70 岁老人的重要性相当于为年轻人接种 34 次疫苗，”米佐塔基斯说。
+
+这是在德国宣布计划仅对未接种疫苗的人实施封锁限制以及奥地利对其全体人口实施强制性新冠疫苗并重新实施全国全面封锁之后，希腊出台了针对老年人的强制性疫苗接种规则 。
+
+来源：https://www.rebelnews.com/greece\_to\_impose\_144\_monthly\_fine\_on\_unvaccinated\_people\_over\_age\_60
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
