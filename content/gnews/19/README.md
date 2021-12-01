@@ -2,48 +2,34 @@
 ---
 
 
-## 新冠新变种病例症状轻微但不容轻视
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1711222/)
+## 日本全面暂停12月份抵日国际航班机位新增预订
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1711257/)
 
-作者：纽约香草山信息部 – 诺雅
+**撰稿：日本东京方舟农场 Kevin wang**
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+受到中共病毒新变异株Omicron在全球扩散的影响，日本政府再度收紧边境管制。12月1日，日本政府要求各家航空公司在12月内全面暂停接受抵日国际航班机位的新增预订。
 
-在11月30日更新的欧洲疫情简报中，欧洲疾病预防和控制中心表示，11个欧盟和欧洲经济区一共确诊了44起新冠病毒新变种病例，值得注意的是，这些病例均表现为无症状或症状轻微。截止目前，欧洲疾控中心还没有接到有关新变种病毒的严重病例或死亡报告。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/8.jpg)
-同日，最早发现新冠病毒奥密克戎变种的南非医学协会主席——安吉利克-科兹博士——在接受采访时表示，南非当地的大多数新变种病例都较为温和。科兹博士提到，新变种感染病例的初期症状信息包括最初两天感到疲倦或萎靡不振、喉咙发痒、身体酸痛、头痛，但感染者初期并不会咳嗽，也没有出现丧失嗅觉和味觉的现象。
+据《中央社》报道，日本国土交通省已要求各家航空公司在12月1日至31日的一个月内，全面暂停接受抵日国际航班机位的新增预订。
 
-科兹博士进一步指出，对于奥密克戎变种来说，目前其仍然处于非常早期的阶段。此时，往往年轻人会先被感染，然后扩散至其他年龄层。对此，科兹博士强调，当民众出现上述类似症状时，应立即警觉并尽早寻求治疗，从而减少未来严重病例的出现。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-2.png)图片来自Photo AC
 
-参考链接：
-1) .[All Confirmed Cases of Omicron in Europe Are People Who Are “Asymptomatic or With Mild Symptoms”](https://www.infowars.com/posts/all-confirmed-cases-of-omicron-in-europe-are-people-who-are-asymptomatic-or-with-mild-symptoms/)
-2) . [Epidemiological update: Omicron variant of concern (VOC) – data as of 30 November 2021 (12.00)](https://www.ecdc.europa.eu/en/news-events/epidemiological-update-omicron-data-30-november-2021)
-3) . [Omicron cases have been “extremely mild” so far, South African doctor says](https://edition.cnn.com/world/live-news/omicron-covid-19-variant-11-30-21/h_801ead91dbb027b2e7f223a02b357b2d)
-4) . [Omicron symptoms mild so far, says South African doctor who spotted it](https://www.bbc.com/news/av/uk-59450988)
-5) . [What Dr. Angelique Coetzee Actually Said About Omicron Variant](https://www.snopes.com/news/2021/11/29/angelique-coetzee-omicron-variant/)
-6) . [South Africa Medical Chief Says New COVID Mutation Has Only Produced “Very Mild Cases”](https://www.infowars.com/posts/south-africa-medical-chief-says-new-covid-mutation-has-only-produced-very-mild-cases/)
+不过，在12月1日之前已完成机位预订者，其机位将不会被取消。由于暂停新增预约机位的对象包括旅居海外的日本人，因此尚未预订机位的日本人将无法在12月份内返国。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+据悉，日本本次边境管控措施原则上是暂停接受新的外国人的入境申请，同时将每日入境日本的人数上限调降到3500人左右。
 
-总编：Irene木木
-编辑：Kathy文艺
-校正/发稿：Fei797
+针对2022年1月以后的新增机位预订措施，日本国土交通省表示，将视疫情状况进行讨论，并于随后宣布。
 
-**更多资讯，更多关注**
+*参考链接：*
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[日本再嚴控邊境 暫停12月抵日航班機位新增預約](https://www.cna.com.tw/news/aopl/202112010260.aspx)
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+* * *
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+*素材采编：Kevin wang*
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+*编辑：青衣青青*
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+*发布：Ranting*
 
  
 

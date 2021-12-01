@@ -2,22 +2,32 @@
 ---
 
 
-## 文贵大直播 12/1 澳门洗米华背后 爆料革命的重大价值又一例证
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1711240/)
+## 美军完成全球军力部署评估 重点应对中共
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1711306/)
 
-撰稿： 回响 【秘翻Gnews原创组】
-![](https://assets.gnews.org/wp-content/uploads/2021/12/snapshot6.jpg)
-图片来源：GTV
-12月1日的文贵大直播，让几百万听众观众和现场嘉宾几乎目瞪口呆。爆料革命发起人郭文贵先生再次重申爆料革命的重大价值和意义。
+作者：东京樱花团—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月29日，美国国防部宣布，美国已经完成了对全球军力部署的评估，随后，拜登也接纳了这份评估。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-01-下午11.53.30.png)
+有五角大楼官员表示，这份机密文件注重于亚太地区军力部署的调整，用以应对中共步步紧逼的挑战。 为此，该评估是美国军方在长达几个月的时间里与全球盟友协调后完成的。
 
-面对嘉宾及背后团队展示的资料，郭先生把之前三段直播视频放出来，包括2018年8月23日和2020年5月5日对中共国高官孟建柱在湄公河、整个东南亚以黑治国的庞大势力爆料。郭先生把整个澳门洗米华背后中共绞肉机体制中，各个派系角斗的来龙去脉。
+据悉，美国国防部国防政策副次长卡琳与国防部长主要聚焦中共，并将其视为步步紧逼的挑战，因此，这份全球军力部署评估的重点关注地区是印太地区。卡琳强调，该评估的结论显示，美国将加强与地区盟友和伙伴的合作，推进各项措施以增进地区稳定，遏阻中共潜在的军事侵略。
 
-重点在于，爆料革命、新中国联邦过去所说的事实，一件件100%可以被验证。如果在大陆，中共所说的也是这样，中国人的命运会像现在这么可悲吗？！
+参考链接：[美国宣布完成全球军力部署评估 重点应对中国“步步紧逼的挑战”](https://www.voachinese.com/a/pentagon-global-posture-review-20211130/6333138.html)
 
-【原文链接】https://gtv.org/broadcast/watch/61a774e244c1fe7a6c3c9bae
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-发布： 回响
+总编：文特
+编辑：文特
+校正/发稿：呼吸的雾霾（文小呼吸）
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

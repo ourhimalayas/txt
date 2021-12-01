@@ -2,36 +2,21 @@
 ---
 
 
-## 美日12月开启对抗中共导弹战的联合军演
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1711308/)
+## 12月1日文贵大直播快讯——习现在连一根毛都还没动着
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1711345/)
 
-作者：日本方舟农场 Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月27日，据日本媒体消息显示，美国和日本将再度于12月4日在日本青森县开启为期两周的联合演习。此前，日本陆上自卫队刚刚结束了为期两个月、动员10万兵力且为28年来最大规模的针对中共的军事演习。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-01-下午11.53.45.png)
-报道提及，此次美日联合军演将首次在日本本土使用最尖端的高机动多管火箭炮HIMARS系统。同时，为了针对中共的导弹威胁，双方将以“远征前沿基地作战EABO”手册为蓝本，模拟在日本最南端的冲绳县远岛附近发生战事时，美国海军陆战队利用HIMARS系统与日本自卫队路基反舰导弹共同对抗中共的情形。
+撰稿：Gradient Boost
 
-报道称，此次联合军演中，日本陆上自卫队将投入一千四百人，而美国海军陆战队则将投入两千六百五十人。
+视频：小小的张麻子
 
-日本陆上自卫队幕僚长吉田圭秀也在相关消息中指出，本次演习的焦点是包括宇宙、网络、电磁波领域的协同作战，以及实施EABO作战的构想。
+美东时间当地12月1日，文贵先生在大直播当中谈澳门地下钱庄，以及孟建柱在东南亚的涉黑布局。在谈到虚拟货币问题时，文贵先生表示，有将近三分之一的比特币事实上是由江家所控制——这是一个疯狂的世界。
 
-参考链接：
-1）[＜独自＞米軍が最新鋭砲空輸へ　離島防衛を想定](https://news.yahoo.co.jp/articles/6fad2677009786eeaf58d1b5a16c9ac7434c93d4)
-2）[动员兵力10万 日本陆上自卫队将举行28年来最大军演](https://www.voachinese.com/a/Japan-to-stage-largest-ground-self-defense-force-drills-in-28-years-20210910/6221268.html)
+一个孟建柱，火币是他的；而币安赵长鹏，百分之百背后是孟家和江家的势力。他们控制了现代化的数字货币，还有黑帮杀人帮等势力——这就是一支海外部队。在缅甸和泰国，那些所谓的地方军事实上都是有火箭导弹的正规部队，因此孟江还控制着毒品贩卖和人口贩卖。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+而在现在这个房地产企业频繁爆雷的时间点，绿城却似乎置身事外没有听说半点出事的消息——这个公司仅仅在纽约就投了几百亿的项目，却丝毫没事，也没有出现贷款违约的情况。
 
-总编：文徬
-编辑：DM
-校正/发稿：呼吸的雾霾（文小呼吸）
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+而绿城背后的上海实业、上海信托、上海银行也没有出事。因此文贵先生评论，毫不夸张的讲，习到现在连一根毛都还没有动着。习在上海势力的眼中就是一个笑话，一个傻子。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

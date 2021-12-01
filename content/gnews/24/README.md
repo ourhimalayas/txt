@@ -2,49 +2,28 @@
 ---
 
 
-## 波士顿凯尔特人队中锋埃坎特怒怼中共，改名为“埃内斯·坎特·自由”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1711159/)
+## 欧盟力推“全球通道”基建战略对抗中共“一带一路”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1711218/)
 
-作者：纽约香草山农场 – 007
+撰稿:东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3-3.jpg)
+图片源：[欧盟2021年度咨文: 中国是竞争者、对手、合作伙伴](https://www.dw.com/zh/%E6%AC%A7%E7%9B%9F2021%E5%B9%B4%E5%BA%A6%E5%92%A8%E6%96%87-%E4%B8%AD%E5%9B%BD%E6%98%AF%E7%AB%9E%E4%BA%89%E8%80%85%E5%AF%B9%E6%89%8B%E5%90%88%E4%BD%9C%E4%BC%99%E4%BC%B4/a-59189635)
 
+欧盟1日宣布了一项重要的投资计划，即“全球通道”，以帮助在欧盟以外的地区建设道路、桥梁等其他基础设施。预计到2027年投资将高达3000亿欧元（约38万亿日元），以对抗中共国“一带一路”倡议。
 
+欧盟最近开始以民主和人权等问题为由，与中共国保持距离。今年6月，七国集团峰会还就一项价值数千亿美元的基础设施投资的新倡议达成一致。西方国家正在寻求通过基础设施援助扩大其在发展中国家的影响力。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+等所有市场都被夺回，等中共“一带一路”的“债务陷阱”被揭穿，还有多少曾与之为伍的国家会为其摇旗呐喊，还有多少国家会因中共这个债主而在真相面前三缄其口，正义只会晚来，但永远不会缺席！
 
+摘要：欧盟1日宣布了一项名为“全球通道”的重要的投资计划，以对抗中共“一带一路”。
 
+信息源：
 
-当地时间11月29日下午，波士顿凯尔特人队中锋埃内斯·坎特，参加了美国公民宣誓仪式，同时将自己的名字改为“埃内斯·坎特·自由”，以此庆祝成为美国公民。
+**[EU、38兆円インフラ支援　中国「一帯一路」に対抗](https://news.yahoo.co.jp/articles/2a7f1d6c949cada816d6b2ea5b5998745c1264ef)**
 
-29岁的坎特从2019年公开支持香港民主运动开始，不断通过盖特等媒体平台，声讨中共独裁政权，为西藏、新疆人权问题发声，支持台湾的自由和民主，呼吁抵制北京冬奥会。今年10月份，坎特和他所在的凯尔特人队，遭中共封杀。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-4.jpg)
-随后，在盖特拥有56万粉丝的坎特，发出一段宣誓的视频，并称，作为一个美国人，我很自豪，这里是自由之地，勇敢者之乡。而他的盖特名字，也已经修改为他新的法定名字，“Enes Kanter FREEDOM”。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/3-2.jpg)
-参考链接：
-1. [I am proud to be an American. Greatest nation in the world.](https://gettr.com/post/pi8v1y99f1)
-2. [因NBA球员坎特发表支持西藏自由言论 中共封杀凯尔特人队](https://gnews.org/zh-hans/1611909/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
-
-总编：文特
-编辑：木白
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.png)
 
 
  

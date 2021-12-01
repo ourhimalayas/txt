@@ -2,22 +2,34 @@
 ---
 
 
-## 韩国计划将加密货币税收推迟至2023年开始征收
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1711369/)
+## 瑞银称，中国低迷的房地产市场将迎来更多坏消息
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1711419/)
 
-简评：***早在2020年7月，韩国财政部便公布了税法修订案：自2021年10月起，当地纳税居民若从加密货币交易中收益超过250万韩元，韩国政府将对其征收20％的资本利得税。随后又将征税时间推迟至2022年1月，如今再次推迟到2023年1月。 韩国政府说：“当虚拟资产交易产生资本利得时，为了促进税收平等我们不得不征税” 。然而，韩国此举是明显的税收先于监管。其人民力量党代表赵明熙直言不讳地说，“在虚拟货币的法律定义不明确的时候先征税是不对的” 。这让笔者想起郭文贵先生一句话“没有一个政府生产一块钱财富，所有的财富都是人民创造的” 。***
+简评：***郭文贵先生直播中一再强调，中共国国内的经济一塌糊涂。再也没有说明节日能掀起波澜，就连著名的双11节都惨淡无比。2021年11月12日直播中更是提到，中国47家大银行中的近40家银行股票跌破净资产；近70家国家级金融机构几乎百分百赔钱；保险公司兑付率不超过百分之十，百分之八十几违约，这不是破产问题，是没有人能撑下去！另外，中国的股市完全是假的，香港的股市跌破了23000点，说明已经玩不下去了，中共的骗局马上就要被揭穿……当前，没有比GTV、喜币、GClub等G系列再好的投资了。这一切都会验证。***
 
-据《路透社》记者：Joori Roh，2021年11月30日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-4.png)2021年6月25日，在瑞士苏黎世的比特币和区块链商店—中本聪之家（the House of Satoshi），比特币（BTH）、以太币（ETH）、莱特币（LTC）和门罗币（XMR）的汇率和标识在Bity（区块链支付服务提供商）的加密货币ATM机上显示。图片来源：REUTERS/Arnd Wiegmann//File Photo
-首尔，11月30日路透社：韩国财政部周二表示，国民议会通过了一项法案，将对加密货币交易的资本利得征税计划推迟一年。
+据《福布斯新闻》记者：Simon Constable，2021年11月30日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-5.png)中国北京2014年10月27日，一名中国士兵守卫在紫禁城外的天安门门前。图片来源：Kevin Frayer/Getty Images
+中共国的经济正在持续受到冲击。
 
-一旦该法案在全体会议上获得批准，韩国政府将从2023年1月开始，对任何通过加密货币交易获得的年收入超过250万美元的收益征收20%的资本利得税。
+这一次的消息是，该国已经陷入困境的房地产行业将迎来更多坏消息。
 
-韩国政府早些时候曾表示将从明年一月开始征税。
+瑞士联合银行（UBS）最近的一份报告称：“未来几个季度，中共国房地产市场可能会进一步萎靡，如果不施行宽松政策，到2022年，房地产销售和开工率可能会下降20%或更多。”
 
-国民议会预计将于12月2日举行全体会议。
+报告解释说，当前和近期中共国房地产行业的萎靡由多种原因导致，包括今年早些时候的恒大债务危机、中共国政府的政策收紧以及国内的需求变化等。
 
-原文连接：[https://www.reuters.com/markets/europe/skorea-set-delay-crypto-taxation-by-one-year-begin-2023-2021-11-30/?taid=61a5f3ce9a8dbd0001050d8a&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/markets/europe/skorea-set-delay-crypto-taxation-by-one-year-begin-2023-2021-11-30/?taid=61a5f3ce9a8dbd0001050d8a&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+反过来，房地产市场的放缓可能对整体经济造成沉重打击，使经济增速降至4%甚至更低。从中共国的角度来看，这是一种经济活动的停滞。
+
+换言之，如果中共国政府不迅速采取行动，该国经济可能很快就会硬着陆。
+
+瑞银报告称：“我们的基线预测是（中共国将）逐步放宽政策，但政策放宽延迟或不足的风险很大。”
+
+政策宽松可能意味着中共国国内企业的借贷成本降低，或者贷款标准更宽松。
+
+尽管如此，这一消息是在今年早些时候中国钢铁产量急剧收缩的背景下发布的，而与此同时，世界其他主要钢铁生产商的产量出现了增长。
+
+这对中国经济整体而言并不是好兆头，因此，近期中国或香港股票的投资者需要保持谨慎。
+
+原文连接：[https://www.forbes.com/sites/simonconstable/2021/11/30/more-bad-news-for-chinas-sorry-real-estate-market-ubs-says/?sh=5ae0ff716a4c](https://www.forbes.com/sites/simonconstable/2021/11/30/more-bad-news-for-chinas-sorry-real-estate-market-ubs-says/?sh=5ae0ff716a4c)
 
 翻译：洛杉矶盘古农场–比格渣餐厅老板の娘
 校对：洛杉矶盘古农场–Mike Li

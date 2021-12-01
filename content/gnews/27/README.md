@@ -2,46 +2,37 @@
 ---
 
 
-## CDC资助的研究显示，是否接种疫苗对病毒传播没有明显影响
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1711135/)
+## DC每日热点1201
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1711182/)
 
-作者：纽约香草山 – AlexZ
+编辑：楚门门
+![](https://assets.gnews.org/wp-content/uploads/2021/12/FD0F7FE2-7062-4497-A1B8-7A68E08C3082-scaled.jpeg)
+道琼斯指数 34483.72 ▼2.57%
+纳斯达克指数 15537.69 ▼2.05%
+WTI纽约原油CFD 66.972 ▼4.26%
+布伦特原油CFD 70.199 ▼4.13%
+标普中概股50指数 3,366.85CNY▼-31.09%
+美元兑人民币 1USD=6.368 RMB
+美元兑港币 1USD=7.792 HKD
+国际黄金 1788.97美元/盎司
+全球CCP病毒感染人数 263,249,085例
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-近日，美国疾病控制和预防中心的中共病毒应对团队发表了一项研究, 是由冷泉港实验室、耶鲁大学和全球医疗保健知识供应商BMJ联合开展的合作项目。结论是，在2021年7月至8月德尔塔病毒爆发期间，联邦监狱中感染该变种病毒的疫苗接种者和未接种者的传播潜力没有明显差异。
-
-该研究指出，对于高风险环境中的人或密切接触者，应采取预防和缓解措施，而不应考虑疫苗接种状况。即使在疫苗接种覆盖率较高的情况下，在聚集场所时，接种者仍有可能被大规模感染。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.3.jpg)
-参考链接：
-[CDC Funded Study Shows No Significant Difference in COVID-19 Transmission Between Vaccinated and Unvaccinated](https://www.thegatewaypundit.com/2021/11/cdc-funded-study-shows-no-significant-difference-covid-19-transmission-vaccinated-unvaccinated/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+1、安倍：日美不会对中国武装攻台袖手旁观
+2、美国祝贺洪都拉斯人选出首位女总统 新政府与北京建交并非定数
+3、白宫: 美国境内暂无奥密克戎病毒，续助非洲国家接种疫苗
+4、美国国会周二就顽固的高通胀以及新的新冠病毒变体奥密克戎可能产生的经济影响举行听证，美联储主席鲍威尔称，美国通胀可能不是暂时性的
+5、美英警告中共国将量子计算用于破解机密情报
+6、军情六处：中共国是英国一个最大威胁，北京误判能够导致战争
+7、德国政界和各州州长周二召开新冠会议，商讨对策。限制交际和强制接种疫苗政策正在酝酿中
+8、香港民主派47人国安法案押后明年3月再讯 学者批未审先囚逾一年
+9、消除竞争性壁垒和限制，腾讯宣布将允许微信群组分享竞争对手电商链接
+10、欧盟投资3000亿欧元促进全球可持续战略
+11、上海与台北双城论坛今短时间视讯开会 上海市长再说两岸一家亲
+12、澳大利亚参议院全票通过马格尼茨基人权法
+13、中共国军机11月扰台159架次 核打击轰6也上阵
+14、调查：港青到大湾区工作兴趣下降 82%拒赴粤做全职
+15、港大：Omicron可能经空气传播 日葡瑞非港人周五起禁入港境
+16、辉瑞和莫德纳都表示将开发应对奥密克戎毒株的新疫苗
 
  
 
