@@ -2,43 +2,50 @@
 ---
 
 
-## 32个国家今起取消对中共国普惠制关税优惠
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1711119/)
+## 台湾防长称中共敌情特别严峻
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1711134/)
 
-**By:秘翻新闻**
+作者：东京樱花团—在远方
 
-***2021-12-01***
-[![](https://assets.gnews.org/wp-content/uploads/2021/12/1201-2.jpg)](https://gtv.org/broadcast/watch/61a73a0844c1fe7a6c3c7596)点击图片观看视频
-**新闻摘要:**
 
-1.《绝密新疆文件》指控以习近平为首的中共最高层参与种族灭绝
 
-2. 河南深夜不明物体爆亮坠落
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-3. 中共国爱滋病患者超105万人 中老年染病10年内升至44％
 
-4. 受贿超4.5亿元 贵州政协前主席王富玉受审
 
-5.32个国家今起取消对中共国普惠制关税优惠
+当地时间11月29日，台湾国防部长邱国正表示，最近中共敌情特别严峻，几乎没有停止，台湾国防部会适时发布特别动态。
 
-6. 美航母领军：五国35艘军舰联合军演震慑中共
+前一日，中共又派遣了27架军机侵犯台湾，而且首次包括了“运油20”空中加油机，使台湾空防压力大幅增加。而据邱国正透漏，中共不仅在昨天派出大量军机扰台，一些零星的扰台军机几乎从未停止过。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.2.jpg)
+邱国正指出，共军的用意就是慢慢消耗，让台湾知道中共有一定的实力。但是台湾也会展现“你有力量，我有应对”的策略，对中共的机型和机种都会充分掌握，并进行研究分析，作为以后军事行动方案的参考。
 
-7. 英国情报机构对中共的威胁向全世界发出警告
+参考链接：
+[中共「運油-20」增我空防壓力 邱國正：敵情特別嚴峻](https://news.ltn.com.tw/news/politics/breakingnews/3751494)
 
-8. 三剂疫苗也无效 以色列证实2例Omicron病例
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-9. 美联邦法官周二裁决  禁止全美疫苗强制令
+总编：木白
+编辑：飞虹
+校对/发稿：为真不破20
 
-10. 脸书加密货币高管将离职
+**更多资讯，更多关注**
 
-**GTV链接：**[https://gtv.org/broadcast/watch/61a73a0844c1fe7a6c3c7596](https://gtv.org/broadcast/watch/61a73a0844c1fe7a6c3c7596)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-发布: 文橙
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-* * *
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-**更多资讯,敬请关注**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/IMAGE-2021-08-12-195949.jpg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

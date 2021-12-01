@@ -2,10 +2,10 @@
 ---
 
 
-## CDC资助的研究显示，是否接种疫苗对病毒传播没有明显影响
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1711135/)
+## 美国参议员要求司法部调查福奇
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1711158/)
 
-作者：纽约香草山 – AlexZ
+作者：银河勇气星—骄子
 
 
 
@@ -13,16 +13,20 @@
 
 
 
-近日，美国疾病控制和预防中心的中共病毒应对团队发表了一项研究, 是由冷泉港实验室、耶鲁大学和全球医疗保健知识供应商BMJ联合开展的合作项目。结论是，在2021年7月至8月德尔塔病毒爆发期间，联邦监狱中感染该变种病毒的疫苗接种者和未接种者的传播潜力没有明显差异。
+11月28日，美国德克萨斯州的参议员克鲁兹称，福奇是“未经选举产生的技术官僚，歪曲科学和事实以便对数百万美国人实施权威控制”。
 
-该研究指出，对于高风险环境中的人或密切接触者，应采取预防和缓解措施，而不应考虑疫苗接种状况。即使在疫苗接种覆盖率较高的情况下，在聚集场所时，接种者仍有可能被大规模感染。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.3.jpg)
+包括克鲁兹和肯塔基州参议员兰德·保罗在内的一些共和党人指责福奇向国会撒谎，因为他在5月份否认国家卫生研究院资助了中国武汉一家病毒学实验室的 “功能增强”研究。
+
+克鲁兹已经敦促美国司法部长梅里克·加兰任命一名特别检察官来调查福奇。克鲁兹指出，“司法部应该考虑起诉福奇向国会做虚假陈述”。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.4.jpg)
 参考链接：
-[CDC Funded Study Shows No Significant Difference in COVID-19 Transmission Between Vaccinated and Unvaccinated](https://www.thegatewaypundit.com/2021/11/cdc-funded-study-shows-no-significant-difference-covid-19-transmission-vaccinated-unvaccinated/)
+1. [参议员克鲁兹：司法部应该起诉福奇](https://gnews.org/zh-hans/1704967/)
+2. [Sen. Cruz Responds to Fauci Attack: Unelected Technocrat With Distorted Science](https://www.newsmax.com/politics/ted-cruz-anthony-fauci-department-of-justice/2021/11/28/id/1046476/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-总编/编辑：飞虹
+总编：文徬
+编辑：木白
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**
