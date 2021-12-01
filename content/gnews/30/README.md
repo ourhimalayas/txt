@@ -2,21 +2,37 @@
 ---
 
 
-## 文贵大直播 12/1 澳门洗米华背后 爆料革命的重大价值又一例证
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1711240/)
+## 有声|美国为与中共争夺东盟 询问东盟会谈意向
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1711434/)
 
-撰稿： 回响 【秘翻Gnews原创组】
-![](https://assets.gnews.org/wp-content/uploads/2021/12/snapshot6.jpg)
-图片来源：GTV
-12月1日的文贵大直播，让几百万听众观众和现场嘉宾几乎目瞪口呆。爆料革命发起人郭文贵先生再次重申爆料革命的重大价值和意义。
+配音：香草山香港部 – 文凯琳
 
-面对嘉宾及背后团队展示的资料，郭先生把之前三段直播视频放出来，包括2018年8月23日和2020年5月5日对中共国高官孟建柱在湄公河、整个东南亚以黑治国的庞大势力爆料。郭先生把整个澳门洗米华背后中共绞肉机体制中，各个派系角斗的来龙去脉。
 
-重点在于，爆料革命、新中国联邦过去所说的事实，一件件100%可以被验证。如果在大陆，中共所说的也是这样，中国人的命运会像现在这么可悲吗？！
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+11月28日，多名外交相关人士透露，针对中共不断与东盟加强关系的频频举动！拜登政府询问东盟意向，能否于明年1月中旬，在华盛顿与美国政府举行面对面首脑会议。此举更加凸显美国高度重视亚洲地区的政治局势的发展！
 
-【原文链接】https://gtv.org/broadcast/watch/61a774e244c1fe7a6c3c9bae
+据悉，本月22日，中共与东盟举行了视频连线纪念峰会。在视频会上，中共党魁习近平宣布双方关系正式升级为“全面战略伙伴关系”！同时，美国为了争取与东盟的合作关系和在亚洲地区的战略布局，就此与中共展开了激烈的拉锯战。
 
-发布： 回响
+相关消息人士透露，预计美国和东盟的特别首脑会议，将不会邀请非国际社会认可的缅甸军政府！而布林肯拟定于12月中旬访问印尼和泰国，展开相关协调准备工作。
+
+文字版原文：[美国为与中共争夺东盟 询问东盟会谈意向](https://gnews.org/zh-hans/1706687/)
+
+音频处理：喜山必胜Maverick
+发稿：Tom Li
+[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -2,32 +2,50 @@
 ---
 
 
-## 韩国计划将加密货币税收推迟至2023年开始征收
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1711369/)
+## 法官阻止拜登对联邦承包商的疫苗强制令
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1711535/)
 
-简评：***早在2020年7月，韩国财政部便公布了税法修订案：自2021年10月起，当地纳税居民若从加密货币交易中收益超过250万韩元，韩国政府将对其征收20％的资本利得税。随后又将征税时间推迟至2022年1月，如今再次推迟到2023年1月。 韩国政府说：“当虚拟资产交易产生资本利得时，为了促进税收平等我们不得不征税” 。然而，韩国此举是明显的税收先于监管。其人民力量党代表赵明熙直言不讳地说，“在虚拟货币的法律定义不明确的时候先征税是不对的” 。这让笔者想起郭文贵先生一句话“没有一个政府生产一块钱财富，所有的财富都是人民创造的” 。***
+翻译：**Lulumi**
 
-据《路透社》记者：Joori Roh，2021年11月30日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-4.png)2021年6月25日，在瑞士苏黎世的比特币和区块链商店—中本聪之家（the House of Satoshi），比特币（BTH）、以太币（ETH）、莱特币（LTC）和门罗币（XMR）的汇率和标识在Bity（区块链支付服务提供商）的加密货币ATM机上显示。图片来源：REUTERS/Arnd Wiegmann//File Photo
-首尔，11月30日路透社：韩国财政部周二表示，国民议会通过了一项法案，将对加密货币交易的资本利得征税计划推迟一年。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/biden-speaks-with-mics-700x420-1.jpg)2021年11月22日，美国总统乔·拜登在华盛顿的一次宣布会上发言。(Susan Walsh/AP Photo)
 
-一旦该法案在全体会议上获得批准，韩国政府将从2023年1月开始，对任何通过加密货币交易获得的年收入超过250万美元的收益征收20%的资本利得税。
+一名法官周二阻止了总统乔·拜登对联邦承包商的COVID-19疫苗强制令，认为拜登很可能没有权力强迫他们接种疫苗。
 
-韩国政府早些时候曾表示将从明年一月开始征税。
+“这不是一个关于疫苗是否有效的案件。它们是有效的。这也不是一个关于政府在某些层面和某些情况下是否可以要求公民接种疫苗的案件。它可以，”乔治·W·布什提名的美国地区法官格雷戈里·范·塔滕霍夫在29页的命令中写道。
 
-国民议会预计将于12月2日举行全体会议。
+“这里提出的问题是狭义的。总统能否利用国会授权的管理联邦商品和服务采购的权力，对联邦承包商和分包商的雇员强制注射疫苗？很可能，这个问题的答案是否定的，”他说。
 
-原文连接：[https://www.reuters.com/markets/europe/skorea-set-delay-crypto-taxation-by-one-year-begin-2023-2021-11-30/?taid=61a5f3ce9a8dbd0001050d8a&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/markets/europe/skorea-set-delay-crypto-taxation-by-one-year-begin-2023-2021-11-30/?taid=61a5f3ce9a8dbd0001050d8a&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+法官批准了肯塔基州、俄亥俄州和田纳西州的总检察长提出的初步禁令请求。
 
-翻译：洛杉矶盘古农场–比格渣餐厅老板の娘
-校对：洛杉矶盘古农场–Mike Li
-评论：洛杉矶盘古农场–比格渣餐厅老板の娘
-编辑：洛杉矶盘古农场–心照
-发布：洛杉矶盘古农场–恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+白宫没有立即回应评论请求。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+“俄亥俄州总检察长戴夫·约斯特在一份声明中说：“这不是关于疫苗的问题，而是关于授权的问题。法官的意见清楚地说明了这一点，而且我们的立场一直是，总统不能把这些任务强加给人民。”
+
+拜登于9月9日签署了一项行政命令，几周后，白宫要求承包商强制其所有工人接种中共病毒COVID-19疫苗，除非该工人有权获得例外。
+
+该命令最初设定的最后期限为12月8日，不遵守命令的承包商可能会失去政府业务。
+
+各州指控疫苗强制令是非法和违宪的，部分原因是它的实施没有考虑到“围绕强制令的重要方面，包括但不限于经济影响、国家的成本、公民的成本、劳动力和供应链的中断、COVID-19目前的风险，以及工人之间的基本区别，如那些对COVID-19有自然免疫力的工人和那些远程工作或亲自接触有限的工人，以及其他方面。”
+
+政府不同意此观点，律师认为总统确实有权根据《联邦财产和行政服务法》监管承包商，因为法院已经裁定总统可以追求“高效和经济”的采购。
+
+范·塔滕霍夫支持各州的诉求。
+
+他说，被告未能指出一个例子，即服务法被用来“颁布如此广泛和全面的公共卫生条例，如对所有联邦承包商和分包商的强制性疫苗接种”。他还援引宪法第十修正案，对该强制令“侵入了传统上保留给各州的领域”表示关切。
+
+初步禁令意味着该疫苗强制令目前在这三个州被阻止，但有可能成为永久阻止或最终被允许生效。
+
+对拜登政府的医疗工作者疫苗强制令和对私营企业的类似强制令已经发出了初步禁令。
+
+**参考资料：**[theepochtimes][Judge Blocks Biden’s COVID-19 Vaccine Mandate for Federal Contractors](https://www.theepochtimes.com/judge-blocks-bidens-covid-19-vaccine-mandate-for-federal-contractors_4131618.html?utm_source=CCPVirusNewsletter&amp;utm_medium=email&amp;utm_campaign=2021-12-01)
+
+* * *
+
+*审核：文乐
+校对：信心满满
+发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3.jpeg)
 
  
 

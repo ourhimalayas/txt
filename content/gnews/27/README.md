@@ -2,32 +2,23 @@
 ---
 
 
-## 美军完成全球军力部署评估 重点应对中共
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1711306/)
+## 文贵爆料1201：青蒿药用针剂防病毒还解疫苗，新中国联邦人有特权优先使用
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1711472/)
 
-作者：东京樱花团—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月29日，美国国防部宣布，美国已经完成了对全球军力部署的评估，随后，拜登也接纳了这份评估。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-01-下午11.53.30.png)
-有五角大楼官员表示，这份机密文件注重于亚太地区军力部署的调整，用以应对中共步步紧逼的挑战。 为此，该评估是美国军方在长达几个月的时间里与全球盟友协调后完成的。
+撰稿：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Q.jpg)
+2021年12月1号，郭文贵先生直播的重大消息是：经过欧洲科学家的试验证实：青蒿素药用针剂不但解病毒，还解疫苗，青蒿素和伊维菌素一起，一定会把这次病毒给解决。欧洲科学家还说青蒿素可能对癌症、糖尿病、艾滋病，受环境污染导致的脑血栓、心血管病，会有巨大的帮助，甚至彻底消灭。但是对生育能力的恢复有待研究。美国产的青蒿素最好。
 
-据悉，美国国防部国防政策副次长卡琳与国防部长主要聚焦中共，并将其视为步步紧逼的挑战，因此，这份全球军力部署评估的重点关注地区是印太地区。卡琳强调，该评估的结论显示，美国将加强与地区盟友和伙伴的合作，推进各项措施以增进地区稳定，遏阻中共潜在的军事侵略。
+但是Eglise医生提醒大家：和其他药物一样，药用青蒿素也具有副作用。因为青蒿素是百分之百经过肝脏代谢，对肝脏有绝对的毒性。青蒿素针剂不是什么人都能用的，一定要在医生监护下使用。 青蒿素哌喹的不良反应主要是由于按照治疗恶性疟疾的治疗量级使用，超量了。青蒿素保健品对糖尿病、高血压、痛经等都有疗效，有很多战友反馈青蒿素改善睡眠。医生也提醒大家在用青蒿素的同时，特别是女性的战友需要先补铁，减少因食用青蒿素引起的缺铁症状。
 
-参考链接：[美国宣布完成全球军力部署评估 重点应对中国“步步紧逼的挑战”](https://www.voachinese.com/a/pentagon-global-posture-review-20211130/6333138.html)
+郭先生已经安排如水战友在大量采购，给所有Gclub会员、法治基金大额捐款者、GTV投资者，给所有的战友用美国最好的青蒿素、保健品和药，全部保证供应啊。但是郭先生说，“你必须是真正的战友才能加入团队，保障战友使用高质量的青蒿素”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+郭先生希望战友们：追求新中国联邦的灭共事业，坚信信仰、坚信帮助他人，我们要把战友的家人特别是有老人的人，我们帮他们吃青蒿素、灭疫苗、防病毒、保护孩子，这是一个最伟大的行动。是人，我们会觉醒，我们会觉悟。
 
-总编：文特
-编辑：文特
-校正/发稿：呼吸的雾霾（文小呼吸）
+来源：[20211201大直播](https://gtv.org/video/id=61a774e244c1fe7a6c3c9bad)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

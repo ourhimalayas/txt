@@ -2,38 +2,53 @@
 ---
 
 
-## 有声|美国为与中共争夺东盟 询问东盟会谈意向
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1711434/)
+## CDC 已发现美国首例 Omicron 变体病例
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1711614/)
 
-配音：香草山香港部 – 文凯琳
+作者：泰勒·杜登
 
+翻译：沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2021/12/alg113021dAPR20211130034504-1-edited.jpg)图片来源：网络
+据一位消息人士称，美国有线电视新闻网的白宫首席记者凯特兰柯林斯在推特上说，疾控中心已经在美国加利福尼亚州发现了第一例 Omicron 病例。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-11月28日，多名外交相关人士透露，针对中共不断与东盟加强关系的频频举动！拜登政府询问东盟意向，能否于明年1月中旬，在华盛顿与美国政府举行面对面首脑会议。此举更加凸显美国高度重视亚洲地区的政治局势的发展！
+但是，但是，但是，加州不是都蒙面了吗？
 
-据悉，本月22日，中共与东盟举行了视频连线纪念峰会。在视频会上，中共党魁习近平宣布双方关系正式升级为“全面战略伙伴关系”！同时，美国为了争取与东盟的合作关系和在亚洲地区的战略布局，就此与中共展开了激烈的拉锯战。
+CDC 报告说，此人是一名从南非返回的旅行者。
 
-相关消息人士透露，预计美国和东盟的特别首脑会议，将不会邀请非国际社会认可的缅甸军政府！而布林肯拟定于12月中旬访问印尼和泰国，展开相关协调准备工作。
+该人已完全接种疫苗并出现轻微症状。
 
-文字版原文：[美国为与中共争夺东盟 询问东盟会谈意向](https://gnews.org/zh-hans/1706687/)
+该个人现在正在自我隔离。
 
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
-**更多资讯，更多关注**
+福奇解释…
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+疾控中心声明
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+美国发现首例Omicron变种确诊病例
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+加利福尼亚州和旧金山公共卫生部证实，加利福尼亚州最近发生的一例 COVID-19 病例是由 Omicron 变体 (B. 1.1.529) 引起的。
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+此人是一名旅行者，于 2021 年 11 月 22 日从南非返回。
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+该人已完全接种疫苗且症状轻微，正在改善，正在自我隔离，此后检测结果呈阳性。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+所有密切接触者均已联系上了，检测结果呈阴性。
 
+基因组测序在加州大学旧金山分校进行，该序列在 CDC 确认与 Omicron 变体一致，这将是首例由在美国检测到的 Omicron 变体引起的 COVID-19 确诊病例。
+
+2021 年 11 月 26 日，世界卫生组织 (WHO) 将新变种 B.1.1.529 归类为关注变种，并将其命名为 Omicron，2021 年 11 月 30 日，美国也将其归类为“关注变种”。 CDC 一直在积极监测和准备这种变体，我们将继续与其他美国和全球公共卫生和行业合作伙伴一起努力了解更多信息。
+
+尽管检测到 Omicron，Delta 仍然是美国的主要菌株。
+
+我们有一个词：“顶住……”
+
+我们只能想象公共卫生官员现在会做什么。
+
+来源链接：[https://t.co/iKib2o610i](https://t.co/iKib2o610i)
+
+编辑/发布：LILY
+
+20211201
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

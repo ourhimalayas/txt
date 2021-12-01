@@ -2,22 +2,38 @@
 ---
 
 
-## 日美欧认定中共是流氓，决定不跟中共玩了！
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1709754/)
+## 民主人士因所谓“颠覆”罪再度出庭受审
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1709968/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-991.png)[图片来源](https://www.yomiuri.co.jp/economy/20211130-OYT1T50318/)
-11月30日读卖新闻消息：日本、美国和欧盟的贸易部长于11月30日举行视频会议。鉴于中共国不透明的行业补贴及掩盖其国内真实数据，会议就扭曲市场公平竞争环境的贸易行为明确了今后的对应政策。
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间11月29日，香港47名民主人士再次出庭受审。
 
-参加会议的有日本经济产业大臣萩生田，美国贸易代表（USTR）凯瑟琳-戴，以及欧盟执行机构——欧盟委员会负责贸易的高级副主席东布罗夫斯基。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide2.jpeg)
 
-用老百姓的话说，就是日本、美国、欧盟国家已认定中共是流氓，决定不跟中共玩了！
+据了解，这些民主人士因组织和参与2020年的民主初选而被港共政府指控为所谓的“颠覆国家政权罪”。自今年三月起，他们之中的多数就被拘押，其中有14人获准保释，另有33人继续还押候讯。
 
-信息来源：[中国念頭に不公正な貿易慣行に対処…日米欧が貿易相会合 : 経済 : ニュース : 読売新聞オンライン (yomiuri.co.jp)](https://www.yomiuri.co.jp/economy/20211130-OYT1T50318/)
+资料显示，为了最大限度地提高民主阵营在议会选举中的影响，2020年7月，这47位民主人士参与了民主派“35+”初选。当时，约有60万名香港市民参加了该初选投票，选举秩序井然。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
+然而在今年1月，港警突然大规模地搜捕参与民主派初选的相关人员，这也导致多位民主人士入狱或被迫流亡海外。其后，这47名被捕人士被港共政府指控违反了《港区国安法》下的“串谋颠覆国家政权罪”。至于此次庭审，则是这些民主人士的第三次提讯，倘若该罪名成立，这些人可能会被判处终身监禁。
+
+有媒体评论表示，中共将政府极权主义植入到香港这个开放的社会，而《国安法》下的香港司法和民主现状令人失望。
+
+参考链接：[https://twitter.com/voachinese/status/1465398473667354626?s=21](https://twitter.com/voachinese/status/1465398473667354626?s=21)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
+
+总编：AN 
+编辑：Lakeman(文仁)
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

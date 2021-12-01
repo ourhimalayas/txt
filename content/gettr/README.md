@@ -17,6 +17,28 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/1/2021 10:16 PM (UTC)`
+
+MI6 chief Richard Moore has warned of China's "debt traps and data traps" in his first live broadcast interview. He warned China has the capability to "harvest data from around the world" and uses money to "get people on the hook", and pointed out these traps threatened to erode sovereignty and have prompted defensive measures.<br/><br/>军情六处负责人理查德·摩尔在他的第一次直播采访中就警告中共的“债务陷阱和数据陷阱”。 他警告说中共有能力“从世界各地收集数据”，并用钱“让人们陷入困境”。他还指出，这些陷阱有可能侵蚀国家的主权，并促使采取防御措施。
+![img](https://media.gettr.com/group18/origin/2021/12/01/22/16/e1e495b8-dce7-e164-059a-13857df66c1d/out.jpg)
+
+---
+
+`@miles 12/1/2021 9:48 PM (UTC)`
+
+Do you remember this video? On November 28, 2021, Mr. Miles Guo warned that the CCP would release a new virus in the Western US. On November 29, he confirmed that the virus was already released by the CCP in the Western US. Just Forty-eight hours later, today, on December 1st, the media reported that the first case of the COVID variant, Omicron, was confirmed in California.<br/><br/>大家还记得这个视频吗？2021年11月28日，郭先生说中共将在美西释放新病毒，并于11月29日再次确认中共已在美西放毒。仅在48小时后的今天，12月1日，媒体报道了第一例变种的Omicron病毒在美西加州被确诊。
+![img](https://media.gettr.com/group33/getter/2021/12/01/21/48/cdc850a2-0774-f452-afa2-535f94a71825/out.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@jasonmillerindc 12/1/2021 7:46 PM (UTC)`
+
+Welcome to #GETTR, Congressman @madisoncawthorn!!! Great addition to our community!
+
+---
+
 `@miles 12/1/2021 9:31 PM (UTC)`
 
 CZ_Binance's acquisition of a Swiss bank failed!<br/>Where is Binance's money? 60% of Binance's money was taken away by the CCP. <br/>⚠️Because Binance sold all customer information to the Chinese Communist Party, all Binance customers are in danger. The Committee of Himalaya Alliance and its team of lawyers are organizing a Global Binance Victim Class Action Lawsuit to protect your identity, money, and safety.<br/><br/>币安欲收购瑞士一家银行失败！<br/>币安的钱去哪儿了？币安60%的钱被中共拿去了。<br/>⚠️因币安将所有客户资料出卖给中共，致所有币安客户于危险之中，喜马拉雅联盟委员会将与专业律师团一起组织发起全球币安受害者的集体诉讼。<br/><br/>【Binance Lawsuit】<br/>🌈Getter:  https://gettr.com/user/binancelawsuit<br/>🌈Discord Server:  https://discord.gg/8KpdftBPsu<br/>🌈Basic Information Registration Form:<br/>➡️Chinese form:  https://forms.gle/4RXBPL5BfqYYJhS29<br/>➡️English form:  https://forms.gle/Xk5LELQ2y1uKYr6V8
@@ -137,27 +159,6 @@ G Fashion 最特别的帽子即将登场，这些帽子都是跟那些大牌同�
 
 11/28/2021 Miles Guo: Why did Yang Jiechi and Wang Yi go to Africa not long ago? How do dictators manage to rule the people? The outbreak of the new variant said to originate from South Africa only occurred among the vaccinated who got at least two shots<br/><br/>11/28/2021 文贵直播：中共杨洁篪和王毅前段时间为什么去非洲？世界独裁者奴役人民的套路是什么？所谓从南非出来的新病毒变种只在打了两针疫苗的人之间传播<br/>
 ![img](https://media.gettr.com/group15/getter/2021/11/29/02/11/5ee1d924-4aa6-25fd-8c33-49b5051bf7f7/out.jpg)
-
----
-
-`@miles 11/28/2021 10:52 PM (UTC)`
-
-11/28/2021 Miles Guo: We shall never forget the COVID virus originated from the CCP military’s biochemical weapons; The Chemical Defense College of PLA locates at Changping, Beijing and was built in 1998 and started its expansion since Xi Jinping took power<br/><br/>11/28/2021 文贵直播：大家不要忘记病毒是源自中共军方的生化武器，北京昌平的解放军防化学院建于1998年，其大肆发展是从习上台以后<br/>
-![img](https://media.gettr.com/group30/getter/2021/11/28/22/52/a3f30abe-d838-25ab-c6c4-3df927e4fe09/out.jpg)
-
----
-
-`@miles 11/28/2021 10:45 PM (UTC)`
-
-七哥在9月26日就曾警告过：中共将在非洲放新病毒，放毒之时既是中美较量开启之日 - 科技战、医疗战、病毒战、疫苗战、货币战，黑暗时刻已经到来，一切皆在中共的计划之中<br/><br/>On September 26, Mr. Miles Guo warned that the CCP would release new virus in Africa and that the moment when the CCP releases the virus would be the beginning of the battle between the US and the CCP - the technological warfare, medical warfare, virus warfare, vaccine warfare, and currency warfare will start, and the darkness has arrived, with everything following the CCP’s agenda
-![img](https://media.gettr.com/group13/getter/2021/11/28/22/45/ccae3198-ba5a-cbe6-1423-35db5c996c68/out.jpg)
-
----
-
-`@miles 11/28/2021 1:23 PM (UTC)`
-
-2021年11月28日 文贵大直播：新变种Omicron 如临大敌；青蒿素妙药必将解救众生；中共国世界股票剧烈震荡；新中国联邦坚守唯真不破
-![img](https://media.gettr.com/group13/origin/2021/11/28/13/65dc806d-b317-97f9-6725-d105cbbd7b84/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

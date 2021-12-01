@@ -2,57 +2,42 @@
 ---
 
 
-## 2021/12/01大卫作战室直播精要
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1711515/)
+## 日本东京方舟农场文化灭共组作品欣赏
+` WindTalker` [轉載自GNews](https://gnews.org/zh-hans/1711685/)
 
-**主播**：大卫｜**嘉宾**：舒平风
+————日本东京方舟农场战友「方舟柒公子」言：积跬步，致千里，每天做一点，不虚度光阴。
 
+设计/策划/撰文：宇宙之泾
 
+绘画/书法/篆刻：方舟柒公子
 
-**板块1–病毒疫苗**
+书法：Livre 动漫画：星空
 
-1. 联邦法官阻止拜登为医护人员在全国范围内接种疫苗。
-
-医疗人员在病毒肆虐非常时期十分关键，停止接种疫苗对医护人员是种保护。
-
-2.中共国已经做好应对Omicron变异毒株的技术准备。
-
-中共国病毒研究所所长徐文波表示新变异毒株存在新氨基酸突变，中共国欲制造“世界大乱、唯我独好”的假象，并紧随其后推新疫苗技术、国际合作，反证“一切都是提前安排”。
-
-3.英国Omicron变异毒株新增6例子，总计14例子。英国政府敦促人们预定加强针。
-
-在英国战友及时向周边人传递病毒真相信息，并做好最佳防护措施。加强针对Omicron无效，政府采取无效措施管控疫情进入恶性循环模式，可能引发新一波对政府政策的反对声。中共本轮放毒三大“有利因素”：秋冬季节适合病毒传播；西方大节日前夕出行增加；疫苗推广导致人们戒备心降低。
-
-4.日本暂停所有入境航班新预定。
-
-日本吸取之前被中共国错误信息导致的病毒扩散经验，面对本次新变异毒株快速反应。日本情报能力不可小看。
-
-5.英喜最近救助很多人包括非战友。
-
-**板块2–网络科技**
-
-1. 河南省政府购买东软集团价值500万元监控系统，针对外国记者和学生制定新的监控系统。
-
-**大卫作战室每周一到周六直播：英国时间12点；美东早7点；盘古19点.**
-
-- [欢迎关注GTV-大卫作战室](https://gtv.org/user/5e86008377d0e42087e2a56d#home)
-- [欢迎关注YouTube-大卫作战室](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
-- [欢迎关注YouTube-大卫作战室 备用直播号](https://www.youtube.com/channel/UCSjAwTM1autpHTLVihdJHHg)
-- [欢迎关注GETTR-大卫作战室](https://gettr.com/user/davidswarroom)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/大卫作战室.jpg)
-*听写：call me uncle | 校对：乐禧禧 | Page：我是球大哥*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+日本东京方舟文化灭共组致力新中国联邦文化事业的投入和发展，在农场成立初期吸引了音乐，绘画，书法，篆刻，摄影，诗词歌赋写作方面的人才，扎根于农场最基础的工作和建设。文化灭共是全方位立体灭共的核武器，新中国联邦应运而生，爆料革命的战友是富有使命感和历史重任的，我们每一天的一点点付出，是为了我们自身的健康和生命，为了我们的子孙后代和未来在拼搏和拼命。同时我们的付出也迎来了更加美好的明天和世界人民的认可，我们在传播病毒和疫苗的真相，我们在揭露中国共产党的杀人事实和邪恶嘴脸。我们正在拯救人类和人类文明，同时拯救了中华民族和我们自己。【12/01/2021】
+![](https://assets.gnews.org/wp-content/uploads/2021/12/8DB6A7AD-A06A-4F46-8922-37BB79F7BFEB_1_102_o.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/9D5259CC-02B9-4636-9885-ED5A916D096A_1_102_o.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/A8FE1543-0424-4847-8D02-35C05E2A38E7_1_102_o.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/53D09D2A-D96A-41E3-AD25-87C432F99414_1_102_o.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/4CBB8AE9-DD30-4DC7-B10D-CA0261088049_1_102_o.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/E6774032-3520-44BE-9DD4-9089B81FABDE_1_102_o.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/85A9DBF3-4860-4C4F-8B7B-962289F759D4_1_100_o-scaled.jpeg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+2021年12月| 一 | 二 | 三 | 四 | 五 | 六 | 日 |
+| --- | --- | --- | --- | --- | --- | --- |
+|   | [1](https://gnews.org/zh-hans/date/2021/12/01/) | 2 | 3 | 4 | 5 |
+| 6 | 7 | 8 | 9 | 10 | 11 | 12 |
+| 13 | 14 | 15 | 16 | 17 | 18 | 19 |
+| 20 | 21 | 22 | 23 | 24 | 25 | 26 |
+| 27 | 28 | 29 | 30 | 31 |   |
+
+[« 11月](https://gnews.org/zh-hans/date/2021/11/)  
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/06/1ADF5F44-6C2A-42A2-8316-C3898C426B4F-1.jpeg)
+
+
+> 只有那些疯狂到认为自己可以改变世界的人，才能真正改变这个世界。
+
+
+
 
 
 

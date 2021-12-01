@@ -2,36 +2,64 @@
 ---
 
 
-## 五国34舰联合军演守护印太
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1711307/)
+## 加拿大税务局：2022年您需要考虑的 3项税收减免变化
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1711473/)
 
-作者：东京樱花团—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月30日的消息称，11月21日至30日，由日本主办，美、日、澳、加、德五国共34艘军舰协同参与的联合军演在菲律宾海举行。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-01-下午11.53.38.png)
-相关报道表示，此次演习科目包括通信战术演练、反潜作战、空战演练、海上补给、跨舰甲板飞行演练以及海上拦截演习等。
+作者：Aditya Raghunath
+翻译：HimaFAFA
 
-对此，美国前海军官员强调，近年来，由于中共在印太地区持续的威胁行动越来越激进，为此，包括五个国家在内的34艘军舰进行了长达十天的应对演习，当中，不但军演的真实感倍增，也充分说明了此次演习的重要性。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/加拿大税务局.jpg)
 
-另外，有评论指，此次演习的地点选择菲律宾海显然与中共海警船用水炮攻击菲律宾补给船有关，加之中共在南中国海的威胁不断上升，日本自卫队的军演频率和强度也随之调整。专家认为，中共的威胁使年度联合军演产生了很大变化，未来，南中国海将是频繁联演的重点区域。
+随着经济继续重新开放，投资者担心近期通胀数据会上升。联邦政府支持的量化宽松措施以及消费者支出的增加意味着加拿大上个月的通胀率飙升至 4.7%，为近二十年来的最高水平。
 
-而对于美国和日本以及其他西方国家在这个区域的频繁演习，评论也表示，这是美日向中共传达的信号，即美国和日本不会被中共解放军所威胁。
+为了减轻财政负担，加拿大税务局 (CRA) 对 2022 年的一些税收减免进行了更改。 CRA 已将明年的指数化率从 2021 年的 1% 上调至 2.4%。
 
-参考链接：[战争感迫近：五国34舰联合军演守护印太](https://www.voachinese.com/a/SDF-led-Annualex-2021-who-and-whats-new-20211130/6331158.html?withmediaplayer=1)
+#### **2022 年的税收减免变化**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+##### 个人基本金额
 
-总编：文特
-编辑：Lakeman(文仁)
-校正/发稿：呼吸的雾霾（文小呼吸）
+CRA 将 2022 年的基本个人金额增加从590 元至 14,398 元。如果您的应税收入低于 155,625 元，您将有资格节省 2,160 元，即 14,398 元的 15%。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+##### 最低应纳税额
+
+CRA 将最低应纳税额从 49,020 元增加到 50,197 元。因此，如果您的应税金额低于阈值，则适用 15% 的联邦税率。
+
+##### 年龄金额
+
+CRA 还为 65 岁以上的老年人提供税收抵免。年龄金额已增加到 7,898 元，使您可以减少 1,185 元的税单，即年龄金额的 15%。
+
+#### 将节税投资于购买派息股票
+
+如果您的应税收入低于 50,197 元，税收减免的总节省将接近 302 元。这些储蓄和更多应该投资于派息股票，这将使您能够创造被动收入流。此外，如果您在免税储蓄账户 (TFSA) 中持有这些股票，则资本收益或股息收入方面的任何回报都将免征 CRA 税。2022 年的 TFSA 供款限额为 6,000 元，举个例子：可用于将Enbridge (TSX:ENB) (NYSE:ENB)等股息股票添加到您的投资组合中。
+
+加拿大最大的公司之一 Enbridge 为投资者提供 6.7% 的远期收益率。因此，对 ENB 股票投资 6,000 元将使投资者产生超过 400 元的年度股息。
+
+作为能源基础设施的重量级企业，Enbridge 83% 的 EBITDA来自石油和天然气管道，其余来自天然气公用事业和可再生能源资产。它运输北美生产的原油的四分之一，使其能够在整个商业周期中产生可预测的现金流。在过去的 26 年中，Enbridge 以每年 10% 的速度增加了股息。
+
+Enbridge 的大部分现金流都由长期资产支持，这使得该公司的股息支付极其可靠。Enbridge 的目标是将派息率维持在 60% 至 70% 之间，而其现金流量预计到 2023 年将增加 5% 至 7%。因此，投资者可以预期短期内派息会增加。
+
+Enbridge 相对不受商品价格的影响，该公司继续扩大其可再生能源资产基础，使其成为长期投资者的可靠赌注。随着时间的推移，其可观的股息收益率将帮助您击败通胀率，投资者也有机会从资本收益中受益。
+
+来源：[https://www.fool.ca/2021/11/26/canada-revenue-agency-3-tax-break-changes-you-need-to-consider-for-2022/amp/](https://www.fool.ca/2021/11/26/canada-revenue-agency-3-tax-break-changes-you-need-to-consider-for-2022/amp/)
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

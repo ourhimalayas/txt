@@ -2,34 +2,33 @@
 ---
 
 
-## 日本全面暂停12月份抵日国际航班机位新增预订
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1711257/)
+## 有声|美国最高法院拒绝麻州医护人员疫苗暂停申请
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1711442/)
 
-**撰稿：日本东京方舟农场 Kevin wang**
+配音：香草山香港部 – 文凯琳
 
-受到中共病毒新变异株Omicron在全球扩散的影响，日本政府再度收紧边境管制。12月1日，日本政府要求各家航空公司在12月内全面暂停接受抵日国际航班机位的新增预订。
 
-据《中央社》报道，日本国土交通省已要求各家航空公司在12月1日至31日的一个月内，全面暂停接受抵日国际航班机位的新增预订。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+11月29日，美国最高法院拒绝对马萨诸塞州综合医院（Mass General Brigham）的医护人员给予救济。第一巡回法庭极左派大法官布雷耶，并没有做出任何解释，而拒绝了医护人员紧急禁令的请求。 该医院工作人员因拒绝接种疫苗并被解雇或无薪休假。员工们寻求宗教或医疗豁免，但遭到拒绝。员工称，医院的强制疫苗政策侵犯了他们的宗教自由，或会对他们的健康构成威胁。所以，他们以该医院违反了禁止歧视的联邦法律为由提起诉讼。 但最终，这一诉讼还是被布雷耶大法官驳回。据悉，上个月布雷耶也曾拒绝审理一项试图阻止缅因州医护人员强制疫苗的紧急上诉。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-2.png)图片来自Photo AC
+文字版原文：[美国最高法院拒绝麻州医护人员疫苗暂停申请](https://gnews.org/zh-hans/1707500/)
 
-不过，在12月1日之前已完成机位预订者，其机位将不会被取消。由于暂停新增预约机位的对象包括旅居海外的日本人，因此尚未预订机位的日本人将无法在12月份内返国。
+音频处理：喜山必胜Maverick
+发稿：Tom Li
+[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
+**更多资讯，更多关注**
 
-据悉，日本本次边境管控措施原则上是暂停接受新的外国人的入境申请，同时将每日入境日本的人数上限调降到3500人左右。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-针对2022年1月以后的新增机位预订措施，日本国土交通省表示，将视疫情状况进行讨论，并于随后宣布。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-*参考链接：*
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[日本再嚴控邊境 暫停12月抵日航班機位新增預約](https://www.cna.com.tw/news/aopl/202112010260.aspx)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-* * *
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-*素材采编：Kevin wang*
-
-*编辑：青衣青青*
-
-*发布：Ranting*
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
