@@ -2,56 +2,28 @@
 ---
 
 
-## 新变种病毒Omicron出现，引发各国升级应对措施
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1709459/)
+## 以色列两名感染Omicron的医生均已注射过三针疫苗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1709669/)
 
-作者：纽约香草山农场 – 四季
+**作者:****  **青衣
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-142.png)
+（图片来自网络）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+据《大纪元》2021年12月1日报道，两名以色列医生周二（11月30日）被证实染上了中共病毒新变种Omicron，而他们两人之前都已经分别注射过三针辉瑞疫苗。
 
+据特拉维夫附近“谢巴医疗中心”的一位发言人证实，两名以色列医生感染上了Omicron。其中一名医生上周刚从伦敦开会回来，医院认为这名医生很可能已经感染了其他同事。
 
+医院表示，染疫的两名医生都已经接种过三剂辉瑞疫苗（包括加强针）。而到目前为止，他们都表现出轻微的COVID-19（中共病毒）症状。
 
+此外，以色列的卫生官员证实，还有另外两人被确认携带这种新的Omicron变种病毒。其中一名来自马拉维的游客接种过阿斯利康（AZ）疫苗。
 
+以色列上周六开始对来自所有国家的外国人关闭边境14天，以遏制Omicron的传播。同时还重新引入了反恐电话跟踪技术，以追踪少数可能已被感染人士的接触者。
 
-据路透社11月30日报道，欧洲疾病预防和控制中心（ECDC）主席安德里亚·阿蒙（Andrea Ammon）说，迄今为止在10个欧盟国家确认的42个变种病例，是在较年轻的群体中发生的、温和或无症状的。然而新近出现的变种病毒Omicron引发了全球市场震荡。
+除以色列之外，日本也采取了封国措施，以应对Omicron可能带来的危机。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1570-1.jpg)
+值得注意的是，世界多国所发现的中共病毒新变种Omicron感染病例，几乎都是已经接种过两针、甚至三针疫苗的人。人们是否该问：疫苗有用吗？既然无用，那么各国政府为何还要再推行强制疫苗接种？
 
-世界卫生组织将Omicron归类为“值得关注的变体”，因为它的变异数量可能有助于它的传播或逃避先前由于感染或接种疫苗已产生的抗体。
-
-制药商Moderna的首席执行官周二警告说，现有的COVID-19疫苗对新型Omicron变体的效果将不如对Delta的效果好。对此Moderna和其他制药商BioNTech以及强生公司已经在研究专门针对Omicron的疫苗。Moderna也一直在测试其现有强化剂的更高剂量。
-
-关于新变种的不确定性引发了一些国家的边境管制，这给大流行病带来的新生经济复苏蒙上了阴影。令南非感到愤怒的是，许多旅行限制的重点是禁止往返南部非洲的航班。
-
-英国和美国都推动了他们的加强计划以应对新的病毒变体。英国再次强制要求在商店和公共交通工具上佩戴口罩，伦敦表示国际旅行者到达后必须进行自我隔离，直到他们的PCR测试结果显示阴性。希腊宣称，60岁以上的人将被强制接种疫苗。邻国奥地利上周因感染率激增而实施了第四次全面封锁。与此同时，在目前热点还是前一个重要变种Delta的德国，为减缓传播而采取了新的限制措施。
-
-**参考阅读：**
-
-[https://www.reuters.com/world/asia-pacific/hong-kong-expands-travel-curbs-omicron-fears-australia-reports-5-cases-2021-11-30/](https://www.reuters.com/world/asia-pacific/hong-kong-expands-travel-curbs-omicron-fears-australia-reports-5-cases-2021-11-30/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+新闻链接：[https://www.epochtimes.com/gb/21/11/30/n13408369.htm](https://www.epochtimes.com/gb/21/11/30/n13408369.htm)
 
  
 
