@@ -2,48 +2,28 @@
 ---
 
 
-## 台湾防长称中共敌情特别严峻
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1711134/)
+## 欧盟力推“全球通道”基建战略对抗中共“一带一路”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1711218/)
 
-作者：东京樱花团—在远方
+撰稿:东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3-3.jpg)
+图片源：[欧盟2021年度咨文: 中国是竞争者、对手、合作伙伴](https://www.dw.com/zh/%E6%AC%A7%E7%9B%9F2021%E5%B9%B4%E5%BA%A6%E5%92%A8%E6%96%87-%E4%B8%AD%E5%9B%BD%E6%98%AF%E7%AB%9E%E4%BA%89%E8%80%85%E5%AF%B9%E6%89%8B%E5%90%88%E4%BD%9C%E4%BC%99%E4%BC%B4/a-59189635)
 
+欧盟1日宣布了一项重要的投资计划，即“全球通道”，以帮助在欧盟以外的地区建设道路、桥梁等其他基础设施。预计到2027年投资将高达3000亿欧元（约38万亿日元），以对抗中共国“一带一路”倡议。
 
+欧盟最近开始以民主和人权等问题为由，与中共国保持距离。今年6月，七国集团峰会还就一项价值数千亿美元的基础设施投资的新倡议达成一致。西方国家正在寻求通过基础设施援助扩大其在发展中国家的影响力。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+等所有市场都被夺回，等中共“一带一路”的“债务陷阱”被揭穿，还有多少曾与之为伍的国家会为其摇旗呐喊，还有多少国家会因中共这个债主而在真相面前三缄其口，正义只会晚来，但永远不会缺席！
 
+摘要：欧盟1日宣布了一项名为“全球通道”的重要的投资计划，以对抗中共“一带一路”。
 
+信息源：
 
-当地时间11月29日，台湾国防部长邱国正表示，最近中共敌情特别严峻，几乎没有停止，台湾国防部会适时发布特别动态。
+**[EU、38兆円インフラ支援　中国「一帯一路」に対抗](https://news.yahoo.co.jp/articles/2a7f1d6c949cada816d6b2ea5b5998745c1264ef)**
 
-前一日，中共又派遣了27架军机侵犯台湾，而且首次包括了“运油20”空中加油机，使台湾空防压力大幅增加。而据邱国正透漏，中共不仅在昨天派出大量军机扰台，一些零星的扰台军机几乎从未停止过。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.2.jpg)
-邱国正指出，共军的用意就是慢慢消耗，让台湾知道中共有一定的实力。但是台湾也会展现“你有力量，我有应对”的策略，对中共的机型和机种都会充分掌握，并进行研究分析，作为以后军事行动方案的参考。
-
-参考链接：
-[中共「運油-20」增我空防壓力 邱國正：敵情特別嚴峻](https://news.ltn.com.tw/news/politics/breakingnews/3751494)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
-
-总编：木白
-编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.png)
 
 
  

@@ -2,32 +2,25 @@
 ---
 
 
-## 波士顿凯尔特人队中锋埃坎特怒怼中共，改名为“埃内斯·坎特·自由”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1711159/)
+## 中共河南省拟建立新监控系统控制民众
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1711249/)
 
-作者：纽约香草山农场 – 007
+作者：东京樱花团 – 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间11月30，有关媒体报道称，据中共文件显示，中共河南省公安厅正在招标建立一个新的监视系统。据了解，中共通过该系统可以使用三千台连接到国家和地区数据库的面部识别摄像头，用来跟踪记者、国际学生和所谓的“可疑人员”。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/9.jpg)
+报道提及，中共东软集团曾于9月获得了一份价值约为78万美元的合同文件。当中，东软集团被要求在两个月内完成新监控系统的建设。该合同中要求，该监控系统中的摄像机必须能够为佩戴口罩和眼镜的人建立档案，并且可以在数据库中搜索目标。
 
+报道指出，该系统将交由至少两千名中共官员和警察操作，他们会根据记者风险将其划分至对应监管等级。倘若有记者在河南省登记入住酒店、购票或者进行跨省新闻报道，该记者将会受到中共河南政府的警告。
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-当地时间11月29日下午，波士顿凯尔特人队中锋埃内斯·坎特，参加了美国公民宣誓仪式，同时将自己的名字改为“埃内斯·坎特·自由”，以此庆祝成为美国公民。
-
-29岁的坎特从2019年公开支持香港民主运动开始，不断通过盖特等媒体平台，声讨中共独裁政权，为西藏、新疆人权问题发声，支持台湾的自由和民主，呼吁抵制北京冬奥会。今年10月份，坎特和他所在的凯尔特人队，遭中共封杀。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-4.jpg)
-随后，在盖特拥有56万粉丝的坎特，发出一段宣誓的视频，并称，作为一个美国人，我很自豪，这里是自由之地，勇敢者之乡。而他的盖特名字，也已经修改为他新的法定名字，“Enes Kanter FREEDOM”。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/3-2.jpg)
 参考链接：
-1. [I am proud to be an American. Greatest nation in the world.](https://gettr.com/post/pi8v1y99f1)
-2. [因NBA球员坎特发表支持西藏自由言论 中共封杀凯尔特人队](https://gnews.org/zh-hans/1611909/)
+[路透：河南省计划针对记者和外国学生建立新的监控系统](https://www.voachinese.com/a/chinese-province-targets-journalists-foreign-students-with-planned-new-surveillance-system-20211130/6332176.html)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
 总编：文特
-编辑：木白
-校对/发稿：为真不破20
+编辑：Lakeman (文仁)
+校正/发稿：Fei797
 
 **更多资讯，更多关注**
 
@@ -40,8 +33,6 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 

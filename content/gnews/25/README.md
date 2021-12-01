@@ -2,47 +2,18 @@
 ---
 
 
-## 乌干达唯一国际机场恐被中共接管
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1710964/)
+## 西媒头条 — 第121期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1710983/)
 
-作者：东京樱花团—在远方
+制作：喜妹
 
+**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2021.12.1.pptx.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+发稿：信心的选择
 
-
-
-外媒11月27日消息，曾于2015年向中共进出口银行，贷款进行扩建的乌干达恩德培国际机场，日前传出，因无力偿还贷款，希望重新就贷款协议中有争议的条款进行谈判，却遭到中共断然拒绝。因此，该国这座唯一的国际机场，很可能将由中共进出口银行接管。
-
-据悉，向中共借贷而无力偿还的国家，并不少见。2017年，斯里兰卡因无力偿还中共数十亿美元贷款，被迫将其汉班托塔港，以99年的租期转让给了中共。类似情况也曾在肯尼亚发生，但肯尼亚政府出面澄清，即使该国无法如期偿还中共超过32亿美元的贷款，该国的重要经济港口蒙巴萨港，也绝不会落入中共手中。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-7.jpg)
-参考链接：
-[烏干達機場無力償還貸款 延期談判失敗可能由中資接管](https://www.chinatimes.com/realtimenews/20211128003094-260409?chdtv)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
-
-总编：文特
-编辑：Kathy文艺
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3.jpeg)
 
  
 

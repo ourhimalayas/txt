@@ -2,30 +2,36 @@
 ---
 
 
-## 欧盟力推“全球通道”基建战略对抗中共“一带一路”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1711218/)
+## 五国34舰联合军演守护印太
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1711307/)
 
-撰稿:东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/3-3.jpg)
-图片源：[欧盟2021年度咨文: 中国是竞争者、对手、合作伙伴](https://www.dw.com/zh/%E6%AC%A7%E7%9B%9F2021%E5%B9%B4%E5%BA%A6%E5%92%A8%E6%96%87-%E4%B8%AD%E5%9B%BD%E6%98%AF%E7%AB%9E%E4%BA%89%E8%80%85%E5%AF%B9%E6%89%8B%E5%90%88%E4%BD%9C%E4%BC%99%E4%BC%B4/a-59189635)
+作者：东京樱花团—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间11月30日的消息称，11月21日至30日，由日本主办，美、日、澳、加、德五国共34艘军舰协同参与的联合军演在菲律宾海举行。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-01-下午11.53.38.png)
+相关报道表示，此次演习科目包括通信战术演练、反潜作战、空战演练、海上补给、跨舰甲板飞行演练以及海上拦截演习等。
 
-欧盟1日宣布了一项重要的投资计划，即“全球通道”，以帮助在欧盟以外的地区建设道路、桥梁等其他基础设施。预计到2027年投资将高达3000亿欧元（约38万亿日元），以对抗中共国“一带一路”倡议。
+对此，美国前海军官员强调，近年来，由于中共在印太地区持续的威胁行动越来越激进，为此，包括五个国家在内的34艘军舰进行了长达十天的应对演习，当中，不但军演的真实感倍增，也充分说明了此次演习的重要性。
 
-欧盟最近开始以民主和人权等问题为由，与中共国保持距离。今年6月，七国集团峰会还就一项价值数千亿美元的基础设施投资的新倡议达成一致。西方国家正在寻求通过基础设施援助扩大其在发展中国家的影响力。
+另外，有评论指，此次演习的地点选择菲律宾海显然与中共海警船用水炮攻击菲律宾补给船有关，加之中共在南中国海的威胁不断上升，日本自卫队的军演频率和强度也随之调整。专家认为，中共的威胁使年度联合军演产生了很大变化，未来，南中国海将是频繁联演的重点区域。
 
-等所有市场都被夺回，等中共“一带一路”的“债务陷阱”被揭穿，还有多少曾与之为伍的国家会为其摇旗呐喊，还有多少国家会因中共这个债主而在真相面前三缄其口，正义只会晚来，但永远不会缺席！
+而对于美国和日本以及其他西方国家在这个区域的频繁演习，评论也表示，这是美日向中共传达的信号，即美国和日本不会被中共解放军所威胁。
 
-摘要：欧盟1日宣布了一项名为“全球通道”的重要的投资计划，以对抗中共“一带一路”。
+参考链接：[战争感迫近：五国34舰联合军演守护印太](https://www.voachinese.com/a/SDF-led-Annualex-2021-who-and-whats-new-20211130/6331158.html?withmediaplayer=1)
 
-信息源：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-**[EU、38兆円インフラ支援　中国「一帯一路」に対抗](https://news.yahoo.co.jp/articles/2a7f1d6c949cada816d6b2ea5b5998745c1264ef)**
+总编：文特
+编辑：Lakeman(文仁)
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.png)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

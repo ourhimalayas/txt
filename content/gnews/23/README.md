@@ -2,40 +2,43 @@
 ---
 
 
-## 2021/11/30文贵先生GTV直播
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1710966/)
+## 圣路易斯联邦法庭阻止医疗人员强制疫苗令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1711061/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/113010.jpg)[GTV直播链接](https://gtv.org/video/id=61a637e144c1fe7a6c3bff88)
-兄弟姐妹们大家好!
+作者：MOS 柳是多水土透
 
-大家看到新病毒有多夸张了吗? 爆料革命准确地告诉你们情报。为了全家人的健康，一定要小心，待在家里，少出去。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-现在的股票、石油是庄家在坐庄，抛抛进进都是庄家在操弄，包括推特作局把CEO杰克辞退，把股票价格抬起来。很有可能杰克会再回来的，因为杰克并购了Paypal和Stripe, 他们都是黑石、先锋集团背后同一个股东的。12% 是多少钱? 几十亿美元被套走了。炒掉杰克的是共产党，因为中共对杰克不满意，认为杰克在打击爆料革命和反对美国共和党的事情上不彻底。这一切都是骗局，千万不要投机！你抄底的心态就把你毁了，轮不到你抄底！
+11月29日，据媒体报道显示，美国圣路易斯联邦地区法庭公布裁决认定，美国卫生部下属机构联邦医疗服务中共CMS发布的、针对医疗人员的新冠疫苗强制接种令很可能超出其所获得的法律授权。因此，在十个州的医护人员完成相关的司法诉讼前，CMS不得对医护人员执行此疫苗强制令。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/7.jpg)
+资料显示，CMS曾于11月4日发布法规表示，全国七万六千个医疗护理机构和透析中心约一千万的工作人员、志愿者以及承包商必须在12月6日前注射第一针新冠疫苗，同时，所有人必须在1月4日前完成全部新冠病毒免疫程序，否则，他们将失去联邦医疗资金的支持。
 
-这世界都乱了！香港的股市跌破了23000点，港币是和美元挂钩的，中共的骗局要被戳穿了。
+据报道，此次圣路易斯联邦地区法庭的裁决是政府强制疫苗令的第二次法庭挫折。11月初，新奥尔良联邦上诉法庭也阻止了一个针对百名雇员以上企业实施的新冠疫苗强制令。
 
-兄弟姐妹们，千万要沉住气，不要鼠目寸光，要看长远利益。看看格芯的股票已经涨到67美元多了。文贵先生当时花6000美元买的方正的股票(3.5/股)，海通每股11、部分13人民币进的；全世界就这2个股没有赔钱啊。战友们不要买格芯，因为价格太高，赚钱是有限的。
+为此，共和党州检察长起诉拜登政府称，CMS的强制新冠病毒免疫要求，即新冠疫苗强制接种令将导致全美医务人员的大规模短缺。而由川普总统任命的法官马修也认为，CMS忽视了新冠疫苗强制令给美国社会带来的极大代价，同时，该法令也改变了联邦和州政府之间的权力平衡。
 
-没有再比GTV、喜币和G-CLUB 再好的了。所有G系列的未来，是沉甸甸的、扎扎实实的果实（习语）。
+参考链接：
+[Judge blocks U.S. COVID-19 vaccine rule for health workers in 10 states](https://www.reuters.com/world/us/judge-blocks-us-covid-19-vaccine-rule-health-workers-10-states-2021-11-29/)
 
-很多战友都在买喜币，但还是有很多战友的KYC没过，不过一定都会通过的，只是时间问题。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-***听写**：wisteria*
+总编：文特
+编辑：Kathy文艺
+校正/发稿：Fei797
 
-***校对**： 小雨*
+**更多资讯，更多关注**
 
-* * *
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-编辑：【英国伦敦喜庄园编辑部】
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 
