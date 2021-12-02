@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/2/2021 5:51 AM (UTC)`
+
+12/1/2021 Miles Guo: Meng Jianzhu has been treating Xi Jinping as an idiot, thinking he can live longer than Xi, who had not made any appearances in the CCP or signed any paperwork for almost 300 days; Meng Jianzhu’s political wisdom is comparable to that of Zeng Qinghong, and both of them are the most healthy CCP kleptocrats<br/><br/>12/1/2021 文贵直播：孟建柱一直把习近平当傻子，他认为一定能熬死习，习有近300天未在党内露面且未签署任何文件；孟建柱的政治智慧和曾庆红齐名，他俩是身体最好的老杂毛<br/><br/>
+![img](https://media.gettr.com/group44/getter/2021/12/02/05/51/2f111a63-08e6-ba6f-3198-a0887fc21ba3/out.jpg)
+
+---
+
+`@miles 12/2/2021 5:44 AM (UTC)`
+
+12/1/2021 Miles Guo: The Omicron variant virus was released by the Guangdong faction of the CCP. Although it is easy to spread, it has a low death rate and does less long-term damages; the antidotes like artemisinin and ivermectin provided by the New Federal State of China will cure both the viral infection and the side effects of the COVID vaccines; naming the new variant “Omicron” is God’s will<br/><br/>12/1/2021 文贵直播：欧米克戎变种病毒是中共广东帮放的，它虽易传染，但致死率和致残率低；新中国联邦提供的青蒿素、伊维菌素等解药将治愈病毒感染和疫苗副作用；给新病毒取欧米克戎这个名字是天意<br/><br/>
+![img](https://media.gettr.com/group38/getter/2021/12/02/05/44/4a7b1614-1f1a-8fad-68ae-fb24434f2040/out.jpg)
+
+---
+
+`@miles 12/2/2021 5:39 AM (UTC)`
+
+12/1/2021 Miles Guo: Meng Jianzhu ordered Alvin Chau to take over all the mafias in the entire Southeast Asia to control the drug money and human trafficking; Meng Jianzhu has established an invisible kingdom that stretches across Eurasia, controlling all the human trafficking, drug smuggling, and money laundering in the local areas<br/><br/>12/1/2021 文贵直播：孟建柱要求洗米华拿下整个东南亚的黑帮从而控制毒资和人口贩卖；孟建柱建立了横跨欧亚大陆的隐形王国并控制了当地的人口贩卖、毒品走私和洗黑钱<br/>
+![img](https://media.gettr.com/group47/getter/2021/12/02/05/39/ae8d0d85-297c-5cc2-2de1-8085d9b0d8c2/out.jpg)
+
+---
+
 `@miles 12/2/2021 1:31 AM (UTC)`
 
 12/1/2021 Miles Guo: All I said in the live broadcasts many years ago has been verified, whereas none of the CCP’s words can stand the test of time; I completely changed the lifestyle of the CCP by using cameras to record the videos of the CCP cadres’ obscenity<br/><br/>12/1/2021 文贵直播：文贵几年前在直播中说的话100%得到验证，而中共却没有一句话经得起时间的检验；通过录制中共官员的淫乱视频，文贵用摄像机彻底改变了中共的生活方式<br/>
@@ -138,27 +159,6 @@ G Fashion 最特别的帽子即将登场，这些帽子都是跟那些大牌同�
 
 11月29号：我得乖乖嘞，这共产党的四个自信，去哪儿啦？不是无神论吗？干嘛怕一个龙头建筑呢，怕到这个样子……这也是真的相信了，文贵的视频中讲的……黑色白蛇的事实了！
 ![img](https://media.gettr.com/group30/getter/2021/11/29/19/53/62bae4d1-0b5b-493f-510e-ea71e12cfd49/f0e953d27790f6562b7e07faf94cec6b.jpg)
-
----
-
-`@miles 11/29/2021 4:07 PM (UTC)`
-
-<br/>11月29号：全世界的经济即将崩溃之时，随之而来的是社会动乱……政治危机，以及局域战争的开始……新中国联邦人要团结在一起，共同渡过这个人类的世纪大灾难！
-![img](https://media.gettr.com/group18/getter/2021/11/29/16/07/71fddaf8-2915-92fb-2b5c-094ddebf098e/out.jpg)
-
----
-
-`@miles 11/29/2021 8:43 AM (UTC)`
-
-11/28/2021 Miles Guo: Everything the CCP does is to invade Taiwan; the CCP’s invasion of Taiwan and Russia’s military operations against Ukraine will happen at the same time; the CCP will crash the economy and create unrests in the US and EU to cover up its attack on Taiwan, and then it will keep releasing viruses. However, the antidotes will still be effective!<br/><br/>11/28/2021 文贵直播：中共一切行动皆为打台湾；中共打台湾和俄罗斯针对乌克兰的行动将同时进行；中共将摧垮美欧经济并制造动乱以掩护其攻台，然后将继续放毒，但解药会依旧管用！<br/>
-![img](https://media.gettr.com/group49/getter/2021/11/29/08/43/43184a4d-3430-6ec2-4f79-0750fef5ea57/out.jpg)
-
----
-
-`@miles 11/29/2021 8:38 AM (UTC)`
-
-11/28/2021 Miles Guo: The CCP has closed many hospitals in Shanghai, and the world’s media outlets are all bought off by the CCP and the evil forces to cover up the truth and shift the blame; however, no one is reporting on the massive deaths occurring in Afghanistan and Communist China, and such things sound exactly the same as what Hitler and Stalin did<br/><br/>11/28/2021 文贵直播：中共在上海封医院，世界媒体都被中共和邪恶势力收买来掩盖真相、推卸责任；正在阿富汗和中共国发生的大量死亡却无人报道，这与希特勒、斯大林的做法如出一辙<br/>
-![img](https://media.gettr.com/group23/getter/2021/11/29/08/38/243fc74f-d0ac-1d64-8126-721075b8f586/out.jpg)
 
 ---
 
