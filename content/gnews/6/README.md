@@ -2,38 +2,32 @@
 ---
 
 
-## 中共国的高超音速武器比想象中的还要危险
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1714519/)
+## 七哥的袖扣
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1714571/)
 
-**编译：蚂蚁兄弟**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip15.png)中国高超音速滑翔机渲染图
-五角大楼宣布，7月份测试的神秘的中共国高超音速武器比最初想象的更加危险。据美国太空部队的一位高级官员说，这种核武器可以在轨道上停留很长时间，以便进行不易被发现的打击。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-这是美国太空部队空间、网络和核行动副主任萨尔茨曼中将说的，他再次表示对中共国的新能力感到震惊。
+这个袖扣就是干这个的，后来我知道这个袖扣被他们广泛的用在了澳门。
+因为澳门的叠马仔还有发牌的人是要戴，你看都要戴袖扣的，很多人戴的，特别是VVIP厅，就是这个袖扣，就是录像手段之一。最重要的事情，这个袖扣带着，后面带着的时候，有人看牌，就能把别人的牌传到那个监控室去，那个是能够大赢的，那想赢你啥就是啥！这个扣子用途很多，大家不要想着这个镜头是一直晃的，你记住，这个袖扣戴上的时候，有的人手在这一放，他就这么一搁，他就不用动，而且是超稳定的那种镜头，高清的，在当时就很高清了，你知道吗。噢，很厉害，今天给你们解密它是监控镜头。
 
-“这是无与伦比的攻击性武器”，萨尔茨曼重申，根据美国军机掌握的数据，这种高超音速滑翔机，及其在以高超音速向目标降落时发射不明弹丸的能力明显违背了物理学规律。
+校对：HimaFaFA
+发布：HimaBoy
 
-正如《战争地带》所指出的，更加严重的是——它还“能够维持在零星的轰炸轨道上”。他在美国空军米切尔研究所举行的一次活动中对听众说：“这是一个绝对不同的系统，因为分段式轨道与亚轨道是不同的。”
+[![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)](https://www.gettr.com/user/7UPgogo)
 
-分段式轨道轰击轨道（FOBS）意味着中共国已经实现了一种高超音速飞行器，“只要用户决定，就可以在轨道上停留，然后作为飞行计划的一部分脱离轨道”。换句话说：中共国今天可以在太空中放置核武器，并在没有警告的情况下发动不可接受的攻击。
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-事实上，它可以在轨道上运行数次，并使用低飞行姿态从任何矢量进行攻击，也可能从敌人的探测和防御线后面轰炸敌人。
+**关注我们**
 
-据军事专家称，有了这种武器，中共国可以用单个或多个弹头攻击多个目标，而对方不可能有任何反应。
+Discord 账号
 
-这种能力完全破坏了相互保守的摧毁原则：如果美国不能及时发现攻击，中共国可以发动大规模的打击，而美国人没有时间用他们的常规武库来回应。由于中共国高超音速武器在高超音速大气层飞行过程中发射射弹，因此危险性甚至更大。这个装置究竟是如何工作的，以及中共国如何设法解决了美国人未能解决的问题（至少美国人是这么说的），还增加了以前无法想象的高超音速弹丸发射，这些细节仍是未知数。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-**新闻来源**：[elconfidencial.com][China puede lanzar un ataque nuclear imparable desde el espacio](https://www.elconfidencial.com/tecnologia/novaceno/2021-12-01/china-arma-hipersonica-nuclear-espacial-orbita_3334475/)
+Gettr 账号
 
-* * *
-
-***审核：Aries的星
-校对：阿伯塔
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3.jpeg)
-
-
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

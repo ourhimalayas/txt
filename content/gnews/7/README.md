@@ -2,32 +2,25 @@
 ---
 
 
-## 喜交所给地邮件战友可以放心的签署
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1714500/)
+## 他们计划用普通流感杀死数十亿人：Covid疫苗导致免疫崩溃
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1714570/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+翻译： Jenny Ball
 
-喜交所给地邮件战友是否可以放心的签署。第一，喜交所给的文件放心签署。第二，GTV新公司叫FMV，是整个的代持。还有我再告诉，只要你币少任何一个，七哥负责。只要喜交所给你的文件，联盟委员会给的文件，七哥全负责。还有现在收到农场发出的表格只是委托喜交所转交HCOIN给FMV公司，但是没有FMV公司给我们签署的代持协议，是否该先跟FMV签署完代持协议，再到喜交所上转账。不是的，这次的代持转让是福利币，并不是你二级市场的币，福利币是给予，是有条件的，也没跟你签署协议，现在你愿意，你可以不愿意，你可以不愿意。你要愿意，你就签。我再告诉你，FMV是战友的公司，不是任何人的，FMV公司未来是喜交所的，喜联储的5% 的股东，他也会是GETTR的头控股公司的5%的股东。所以说兄弟姐妹们，没有问题，七哥担保啊。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-86.png)图片来源 : brighteon.com
 
-校对：HimaFaFA
-发布：HimaBoy
+那些接受新冠疫苗注射的人已经变成了疫苗诱导的“艾滋病”患者，他们对一切事物的免疫力都在崩溃。这使他们非常容易受到故意释放的中度流感毒株的影响，这种毒株通常只会杀死虚弱的老人。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+为什么全球主义者会选择这条路线？ 因为他们不想用一种真正恶性的病原体来“毁灭”这个星球，因为这种病原体从长远来看会威胁到他们自己的孩子。他们想把真正危险的病原体保存在冰箱里，同时，想办法杀死带有轻微病原体的人。只有说服容易上当的群众排队接受 mRNA 刺突蛋白疫苗注射，他们才能成功。
 
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+新闻来源: [ brighteon.com] [Situation Update, Dec 1, 2021 – Billions of victims of vaccine-induced AIDS will soon emerge to the horror of humanity](https://www.brighteon.com/02ed1877-6dc1-4b6d-8f0f-ad92b54eea19)
 
-**关注我们**
+* * *
 
-Discord 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
-
+*审核：文乐 
+校对：信心满满
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
