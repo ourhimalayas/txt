@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/2/2021 12:04 AM (UTC)`
+
+12/1/2021 Miles Guo: Macao is one of the most important battle grounds between the CCP and the world; Alvin Chau’s first boss was Ma Jian, and he later joined Sun Lijun; After buying off Meng Jianzhu’s nephew, Alvin Chau became Meng’s subordinate<br/><br/>12/1/2021 文贵直播：澳门是中共与世界较量的最重要的阵地之一；洗米华的第一个老板是马建，他后来转投孙力军；在搞定孟建柱的亲外甥后，洗米华成了孟的人<br/>
+![img](https://media.gettr.com/group20/getter/2021/12/02/00/04/ee39b5de-ec0c-b0d4-00c8-83e5d75355ac/out.jpg)
+
+---
+
 `@miles 12/1/2021 10:16 PM (UTC)`
 
 MI6 chief Richard Moore has warned of China's "debt traps and data traps" in his first live broadcast interview. He warned China has the capability to "harvest data from around the world" and uses money to "get people on the hook", and pointed out these traps threatened to erode sovereignty and have prompted defensive measures.<br/><br/>军情六处负责人理查德·摩尔在他的第一次直播采访中就警告中共的“债务陷阱和数据陷阱”。 他警告说中共有能力“从世界各地收集数据”，并用钱“让人们陷入困境”。他还指出，这些陷阱有可能侵蚀国家的主权，并促使采取防御措施。
@@ -152,13 +159,6 @@ G Fashion 最特别的帽子即将登场，这些帽子都是跟那些大牌同�
 
 11月28号：尊敬的战友们好！共产党这指东打西．和七哥的指南打西有什么不同？兄弟姐妹们……你们看出其中的猫腻了吗？【七哥，您9月26号大直播中说的在中共要在非洲放病毒😊木兰】
 ![img](https://media.gettr.com/group15/getter/2021/11/29/03/19/1de2885e-8d07-ce30-1e53-c728c3620e9e/out.jpg)
-
----
-
-`@miles 11/29/2021 2:11 AM (UTC)`
-
-11/28/2021 Miles Guo: Why did Yang Jiechi and Wang Yi go to Africa not long ago? How do dictators manage to rule the people? The outbreak of the new variant said to originate from South Africa only occurred among the vaccinated who got at least two shots<br/><br/>11/28/2021 文贵直播：中共杨洁篪和王毅前段时间为什么去非洲？世界独裁者奴役人民的套路是什么？所谓从南非出来的新病毒变种只在打了两针疫苗的人之间传播<br/>
-![img](https://media.gettr.com/group15/getter/2021/11/29/02/11/5ee1d924-4aa6-25fd-8c33-49b5051bf7f7/out.jpg)
 
 ---
 
