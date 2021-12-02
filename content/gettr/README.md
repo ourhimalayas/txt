@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/2/2021 1:31 AM (UTC)`
+
+12/1/2021 Miles Guo: All I said in the live broadcasts many years ago has been verified, whereas none of the CCP’s words can stand the test of time; I completely changed the lifestyle of the CCP by using cameras to record the videos of the CCP cadres’ obscenity<br/><br/>12/1/2021 文贵直播：文贵几年前在直播中说的话100%得到验证，而中共却没有一句话经得起时间的检验；通过录制中共官员的淫乱视频，文贵用摄像机彻底改变了中共的生活方式<br/>
+![img](https://media.gettr.com/group49/getter/2021/12/02/01/31/f48f68ab-135b-bd1a-0549-80eb40b78d72/out.jpg)
+
+---
+
 `@miles 12/2/2021 12:04 AM (UTC)`
 
 12/1/2021 Miles Guo: Macao is one of the most important battle grounds between the CCP and the world; Alvin Chau’s first boss was Ma Jian, and he later joined Sun Lijun; After buying off Meng Jianzhu’s nephew, Alvin Chau became Meng’s subordinate<br/><br/>12/1/2021 文贵直播：澳门是中共与世界较量的最重要的阵地之一；洗米华的第一个老板是马建，他后来转投孙力军；在搞定孟建柱的亲外甥后，洗米华成了孟的人<br/>
@@ -152,13 +159,6 @@ G Fashion 最特别的帽子即将登场，这些帽子都是跟那些大牌同�
 
 11/28/2021 Miles Guo: The CCP has closed many hospitals in Shanghai, and the world’s media outlets are all bought off by the CCP and the evil forces to cover up the truth and shift the blame; however, no one is reporting on the massive deaths occurring in Afghanistan and Communist China, and such things sound exactly the same as what Hitler and Stalin did<br/><br/>11/28/2021 文贵直播：中共在上海封医院，世界媒体都被中共和邪恶势力收买来掩盖真相、推卸责任；正在阿富汗和中共国发生的大量死亡却无人报道，这与希特勒、斯大林的做法如出一辙<br/>
 ![img](https://media.gettr.com/group23/getter/2021/11/29/08/38/243fc74f-d0ac-1d64-8126-721075b8f586/out.jpg)
-
----
-
-`@miles 11/29/2021 3:19 AM (UTC)`
-
-11月28号：尊敬的战友们好！共产党这指东打西．和七哥的指南打西有什么不同？兄弟姐妹们……你们看出其中的猫腻了吗？【七哥，您9月26号大直播中说的在中共要在非洲放病毒😊木兰】
-![img](https://media.gettr.com/group15/getter/2021/11/29/03/19/1de2885e-8d07-ce30-1e53-c728c3620e9e/out.jpg)
 
 ---
 
