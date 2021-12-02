@@ -2,48 +2,24 @@
 ---
 
 
-## 欧洲某金融强国主动给予喜联储数字银行牌照，与中共决裂
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1712857/)
+## COVID-19 最新情报｜欧盟委员会主席：欧盟是时候该为所有公民强制接种疫苗
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1713037/)
 
-作者：新西兰伊甸农场Gnews组 财经G乐部 – 亚伦
+**撰文｜ 台湾宝岛农场 疫情关注组 / 发布时间｜2/12/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1.jpg)
+更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/LOGO-1.jpg)
+尽管世界各地疫苗伤害的个案数目不断攀升，各国政府依然对推动疫苗接种的热枕不减。
 
+欧盟委员会主席乌尔苏拉·冯·德莱恩（Ursula von der Leyen）周三表示，鉴于过去几日“具有高传染性”的 Omicron 变种病毒发现病例不断增加，欧盟国家是时候开始评估为所有公民强制接种COVID-19 疫苗，各成员国应展开讨论以寻求共识。
 
+她续指，欧盟 27 个成员国应迅速部署加强剂的接种计划，并建议各国“暂时”执行旅行前 PCR 检测，以有效规管欧盟人的行动自由，回归欧盟的基本价值。
 
+尽管她在当日的发言中提及，“… … 不是每个人都可以接种疫苗的——例如儿童或有特殊疾病的人——但绝大多数人可以。”但这位医生出身的德国籍政客，仍然在周三高调宣布，5～11 岁辉瑞儿童疫苗将于 12 月 13 日可交付使用，建议各国就如何鼓励接种展开讨论。
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/大直播.png)
-
-12月1日，郭文贵先生在大直播中透露，三周前收到某欧洲国家元首的电话表示，“我们这个国家，决定给喜联储一个数字银行牌照”。郭先生指出，一个数字银行牌照意味着巨大的利益，甚至比喜联储还值钱。目前一切都在按部就班地走程序中，还需要四周时间完成，但这位国家元首已用自己的私人手机发来签完字的文件。
-
-这将是世界上第一个主权国家批准的数字银行牌照，这个牌照在欧洲，这个国家是在世界金融领域排名前三的国家。对新中国联邦来说，这是拥有国家银行、国家储备系统和法币链接的最稳定的桥梁，而且排除了中转行。此事意义深远，同时也意味着这个国家将和中共决裂。
-
-
-
-参考链接：
-
-[https://gtv.org/video/id=61a774e244c1fe7a6c3c9bad](https://gtv.org/video/id=61a774e244c1fe7a6c3c9bad)
-
-编辑/校对/发稿：有莫举名
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/rili.png)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/LOGO-1.jpg)
-
-
+较早前，希腊和奥地利已率先就强制性疫苗接种推行更严厉措施，任何不遵守强制令的人都会被罚款或监禁。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner.jpg)
+来源｜[MP](https://en.mercopress.com/2021/12/01/ursula-von-der-leyen-says-time-europe-eyed-mandatory-vaccination) / [Politico](https://www.politico.eu/article/commission-president-childrens-vaccines-coming-in-mid-december/)
 
  
 

@@ -2,51 +2,36 @@
 ---
 
 
-## 澳门是世界与中共较量的最重要阵地之一,所有投资会赔死
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1712991/)
+## 火箭发动机存在问题，马斯克警告SpaceX有破产风险
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1713202/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/002211.png)
-据[2021年12月1日 文贵大直播：Hcoin To The Moon伴奏 荣登iTunes榜首；香港股市经济；澳门地下钱庄，孟建柱在东南亚的涉黑布局；Omicron变种病毒及疫苗灾难和青蒿素功效；数字货币监管及加密货币市场走向](https://gtv.org/video/id=61a774e244c1fe7a6c3c9bad)时间点1：05：44——
+【雅典娜快讯】，紧贴时代脉搏
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2-7.jpg)图片来源：World War Wings
+翻译：钢豆奶油面包
+编辑：文泓
 
-**郭文贵先生：**你到澳门去整个赌场，什么威尼斯、永利你去看一看去，你们都是没有到那赌博过的，七哥往那儿一去，送码都送一个亿，——文贵来了，给你一个亿码，随便玩儿。就是给我一亿码随便，如果有人不坚定的话就把这码就换成现金就走了，绝大多数人会干这种事情，七哥从来没碰过。
+12月1日，伊隆·马斯克通知员工们周末加班，因为他发现火箭发动机“猛禽”（Raptor）存在问题远比以前想到的严重。
 
-2014年我到澳门去，我住在威尼斯人整个两层，一两百个在全世界运来的美女都有，因为我去的是陪着某国家的几个领导人，北京就派去了100多个人负责安保，秘密安保，就负责我们那一次。
+在假期周末，SpaceX员工收到了这封噩梦般的邮件。伊隆·马斯克说如果猛禽发动机生产中的问题不能解决，将酝酿危机，公司可能会破产。邮件敦促员工在周末加班加点，增加发动机的产量，为下一代星际飞船Starship运载火箭提供动力。
 
-2014年我说的这个事儿，我已经没回国了，那时候已经不回国了，到澳门去，十几架直升飞机，你知道在澳门当时我跟那所有的那些想要投资的人说，我说你记住，澳门将是世界与中共的较量的最重要的阵地之一。
+“不幸的是问题远比几星期前糟糕”，马斯克写道，“随着我们对前任高管离职后的问题进行深入调查，不幸的是，这些问题比报告的情况要严重得多。这一点是无法掩盖的。”
 
-我们看了四个酒店项目，他们想买，我说所有这些项目以后都会赔死，当天晚上他们就Steve Wynn专程从美国过去跟他们一起吃饭，他眼睛不好使，他眼有点瞎你知道吗？他就认不清谁是谁，他就看不清楚的Steve Wynn，但老爱买画，这个画儿好，那是候Steve Wynn牛着呢！所有的这些大佬们就接待这几个我的朋友去。
+同期，SpaceX没有即刻回应Gizmodo网站的置评要求。
 
-然后我当天晚上三条船在外面，咵~等着我。大家都以为我上船了，实际上我是另外两架直升机直接回香港。
+周二，马斯克发推说，星际飞船是设计用来将人类送到火星（和月亮）上生活，这需要（达到）比目前所有地球火箭加起来多1000倍的有效载荷才能进入轨道。他对破产一事不置可否。
 
-我对澳门的理解告诉大家，你们刚才所有人看着表演，洗钱、赌博、情报收集、蓝金黄是吧？这是你们所有的理解，战友们如果你们今天还这么理解的时候，你们就错了。
+马斯克警告说星际飞船必须在2022年每两周往返一次，不然一定会面临破产的危险。猛禽发动机是星际飞船运载火箭的关键组成部分，也是星际飞船运载火箭是否能完成往火星、月球运送货物和人类的能力和目标，SpaceX能否能实现马斯克对普通人类多次往返星际的承诺，以及星际飞船Starship的下一代卫星进入轨道的关键。
 
-要钱干什么？孟建柱，要录像干什么？蓝金黄干什么？澳门赌场只有郭文贵有资格说，从第一天澳门谁拿来的我不方便说，这是我个人的太私人的关系，他现在也在看直播。澳门第一天拿来七哥就清楚是谁，第一届特首怎么诞生、什么诞生的，七哥太清楚了。
+新闻链接：[Elon Musk Email Warns of Potential SpaceX Bankruptcy (gizmodo.com)](https://gizmodo.com/elon-musk-frantically-warns-employees-of-potential-spac-1848139856)
 
-你们不知道盘古的背后的主人和盘古当时的最牛的人是谁，澳门真正的两个王你们都是不知道的，明面儿是何鸿燊，何鸿燊前边儿是霍英东，霍英东是真正的老王，那真正的霍英东之后才是何鸿燊，他是个打工的马仔，代表共产党的两个人物在，你们从来没有记忆过，你们不知道。
+发布：kk
 
-（以下暂略）
-
-撰稿：喜马拉雅的肉夹馍；
-
-审核：喜马拉雅的馍夹肉；
-
-校对：Maarago；
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

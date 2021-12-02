@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/2/2021 7:25 AM (UTC)`
+
+12/1/2021 Miles Guo:  Wang Qishan wants to be the boss by killing Xi, while Meng Jianzhu is confident that he can wait till the downfall of the CCP’s power center - Zhongnanhai Pit; both Wang Qishan and Meng Jianzhu are the key figures behind the colossal disaster brought by Xi to the Chinese and the entire world<br/><br/>12/1/2021 文贵直播：王岐山想干掉习当老大，而孟建柱很有信心能等到中南坑灭亡；习近平给中国人和全世界带来的巨大灾难背后的关键人物就是王岐山和孟建柱<br/>
+![img](https://media.gettr.com/group29/getter/2021/12/02/07/25/3c1dfa1b-81de-b1b1-632a-2cfb0714dc4a/out.jpg)
+
+---
+
 `@miles 12/2/2021 5:51 AM (UTC)`
 
 12/1/2021 Miles Guo: Meng Jianzhu has been treating Xi Jinping as an idiot, thinking he can live longer than Xi, who had not made any appearances in the CCP or signed any paperwork for almost 300 days; Meng Jianzhu’s political wisdom is comparable to that of Zeng Qinghong, and both of them are the most healthy CCP kleptocrats<br/><br/>12/1/2021 文贵直播：孟建柱一直把习近平当傻子，他认为一定能熬死习，习有近300天未在党内露面且未签署任何文件；孟建柱的政治智慧和曾庆红齐名，他俩是身体最好的老杂毛<br/><br/>
@@ -152,13 +159,6 @@ G Fashion 最特别的帽子即将登场，这些帽子都是跟那些大牌同�
 
 11/29/2021 Miles Guo’s GETTR: All dictatorships claim they are always right; facing the economic collapse, they will wage wars, create racial conflicts and social unrests, and eventually make a small group of people the scapegoat; the CCP has completely ended up being a rogue regime<br/><br/>11/29/2021 文贵盖特：所有独裁政府都说自己永远正确；面对经济崩溃，他们将发动战争、制造种族矛盾和社会动乱，最终找一小部分人当替罪羊；中共成了彻头彻尾的流氓<br/>
 ![img](https://media.gettr.com/group10/getter/2021/11/30/01/40/2b040d58-1751-59e0-0e57-25695c5782ab/out.jpg)
-
----
-
-`@miles 11/29/2021 7:53 PM (UTC)`
-
-11月29号：我得乖乖嘞，这共产党的四个自信，去哪儿啦？不是无神论吗？干嘛怕一个龙头建筑呢，怕到这个样子……这也是真的相信了，文贵的视频中讲的……黑色白蛇的事实了！
-![img](https://media.gettr.com/group30/getter/2021/11/29/19/53/62bae4d1-0b5b-493f-510e-ea71e12cfd49/f0e953d27790f6562b7e07faf94cec6b.jpg)
 
 ---
 
