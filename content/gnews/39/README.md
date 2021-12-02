@@ -2,50 +2,35 @@
 ---
 
 
-## 媒体集团响应班农 要求司法部公开调查文件
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1711504/)
+## 谷歌工程师宣称因恪守“不作恶”而被解雇
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1711885/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+**翻译：Ronnie O’Sullivan
+编辑：Candy**
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/12/B.jpg)djhjmedia.com
-令笔者惊讶的是，那些左媒，甚至是极左媒体也加入了此行列，包括《有线电视新闻网》（CNN）、《美国广播公司》（ABC）、《纽约时报》（NYT）、《华盛顿邮报》（WaPo）、《华尔街日报》等。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/谷歌1.png)图片来源：Alex Castro / The Verge
 
-《门道专家》文章的题目是“包括CNN、ABC、NYT和WaPo在内的《媒体集团》（Media Group），提交了法律诉求摘要，加入了‘班农先生不睬案’而要求公开司法部文件的诉讼”。【1】
 
-笔者注，“班农先生不睬案”乃“班农‘不睬民主党人国会调查委员会’案”，参见Gnews文章：班农“不睬民主党人国会调查委员会”案新进展【2】。
+三名前谷歌员工宣称，谷歌有合同性义务遵守其众所周知的“不作恶”政策。他们正在起诉该公司，据说他们因指责谷歌的“邪恶”行为而被解雇。
 
-《门道专家》的全文如下：
+前员工苏菲·沃尔德曼(Sophie Waldman)、丽贝卡·里弗斯(Rebecca Rivers)、保罗·杜克(Paul Duke)及劳伦斯·伯兰德（Laurence Berland）于2019年11月因涉嫌违反公司的数据安全政策而被解雇。
 
-周一（11月30日），美国司法部拒绝了史蒂夫·班农（Steve Bannon）关于透明度的要求，并（试图）剥夺他要求公开司法部有关虚假的1.6委员会调查文件的权利。
+然而，他们宣称并没有泄露任何机密信息。 今年早些时候，美国国家劳资关系委员会代理负责人表示，谷歌解雇三名员工，可以说是违反了美国《劳动法》，称谷歌是为了报复他们的激进行为而解雇了这些员工。
 
-司法部称这是班农“通过媒体审理此案”的一次尝试，他要将所有文件和材料公开，以便美国人民能够了解情况，并对案件的是非曲直做出自己的判断。但朝鲜政权不希望这样，毕竟，如果真相泄露，政权应该如何控制话语权？
+在加利福尼亚州提起的诉讼中，该团队指控谷歌参与了“邪恶”活动，并随后因揭发该公司而被谷歌惩罚。诉讼称，沃尔德曼、里弗斯和杜克被谷歌聘用时，他们都签署了一份包含“不作恶”规则的合同。因此，2019 年，当谷歌与川普政府的海关和边境巡逻队签订了有争议性的云计算合同时，该团队提出质疑。他们认为边境可能出现侵犯人权的情况，并认为自己遵守了此合同。
 
-史蒂夫·班农因拒绝与利兹·切尼（Liz Cheney）的垃圾的1.6委员会合作而被指控藐视国会。
+自 2000 年代初以来，“不作恶”一直是谷歌行为准则的一部分。尽管谷歌的母公司 Alphabet 在 2015 年将其替换为“做正确的事”，但该短语在谷歌最新的行为准则中仍然有效。并指出：“记住……不要作恶，如果你看到你认为不对的事情——说出来！”
 
-但周二（11月30日），美国几家主要媒体提交了一份法律诉求摘要，支持班农及其向美国公众公开的努力。
+原文链接：[https://www.theverge.com/2021/11/30/22809577/google-employees-sue-dont-be-evil-policy](https://www.theverge.com/2021/11/30/22809577/google-employees-sue-dont-be-evil-policy)
 
-《每日邮报》（The Daily Mail）报道：
+***发布：Candy***
 
-一个主要媒体公司联盟提交了一份法律诉求摘要，支持前川普白宫首席策略师史蒂夫·班农在法庭上反对一项拟议的保护令，该保护令将阻止他公布1月6日的文件和信息。
-
-《媒体集团》——包括CNN、ABC、NBC、华盛顿邮报、纽约时报和《华尔街日报》的母公司——提出了一项干预动议，因为班农反对政府提出的命令，这是他藐视国会案的一部分。
-
-这项命令将严重限制班农利用政府信息库的能力，而政府的这些信息必须作为正常取证过程的一部分进行共享，并且应该已经开始移交。根据之前的一份政府文件，这包括1000多页的证人证词、大陪审团材料，甚至“众议院1月6日调查国会暴乱委员会”（the House Jan. 6th Committee investigating the Capitol riot）工作人员的电子邮件。
-
-该新闻集团认为，政府提出的命令将违反第一修正案——并引用了政府自己的观点，即允许班农使用这些材料将导致审前宣传，可能会玷污陪审团成员。
-
-（全文完）
-
-笔者前天（11月29日）的文章，对拜登政府司法部的逻辑，“允许班农使用这些材料将导致审前宣传，可能会玷污陪审团成员”，表示过愤怒与无奈，“花纳税人巨额资金供养的司法部竟然堕落到了如此地步，如此荒诞的逻辑居然好意思公开发表，而且如此贬低公众，低估公众的智商，无语了！看看法官怎样判决吧！”【2】。经过几天的反思，媒体清醒了？不想成为被愚弄的一部分？不想生活在“中共和朝鲜”的环境？看来“大觉醒”进入到“媒体醒悟”阶段，竟然大左媒也不甘受辱了！
-
-需要订正一下《门道专家》此文的不当一处，利兹·切尼（Liz Cheney）在“垃圾委员会”的角色只是个帮凶，共和党的叛徒，祸根是佩洛西。佩洛西在成立这个垃圾1.6委员会时，利用权力将共和党主管推荐的公正人员排除，自己挑选了几个共和党叛徒，构成了号称是个“两党的委员会”，她是陷害川普、班农的罪魁祸首。
-
-原文链接：
-
-【1】[https://www.thegatewaypundit.com/2021/11/media-group-including-cnn-abc-nyt-wapo-file-legal-brief-joining-steve-bannons-bid-unseal-documents-doj-contempt-congress-case/](https://www.thegatewaypundit.com/2021/11/media-group-including-cnn-abc-nyt-wapo-file-legal-brief-joining-steve-bannons-bid-unseal-documents-doj-contempt-congress-case/)
-
-【2】[https://gnews.org/zh-hans/1706104/](https://gnews.org/zh-hans/1706104/)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

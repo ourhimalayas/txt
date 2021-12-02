@@ -2,28 +2,36 @@
 ---
 
 
-## 英军情六处公开表示 中共过度自信误判国际形势
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1710525/)
+## 美日12月开启对抗中共导弹战的联合军演
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1711308/)
 
-撰稿:东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/3.png)[图片源](https://news.yahoo.co.jp/articles/0b0ffe32a102f554868c3faa1f4947072f74bdcc/images/000)
-英国对外情报机构—军情六处总干事摩尔30日首次发表讲话，指出中共国政府过于自信，可能误判国际形势。
+作者：日本方舟农场 Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间11月27日，据日本媒体消息显示，美国和日本将再度于12月4日在日本青森县开启为期两周的联合演习。此前，日本陆上自卫队刚刚结束了为期两个月、动员10万兵力且为28年来最大规模的针对中共的军事演习。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-01-下午11.53.45.png)
+报道提及，此次美日联合军演将首次在日本本土使用最尖端的高机动多管火箭炮HIMARS系统。同时，为了针对中共的导弹威胁，双方将以“远征前沿基地作战EABO”手册为蓝本，模拟在日本最南端的冲绳县远岛附近发生战事时，美国海军陆战队利用HIMARS系统与日本自卫队路基反舰导弹共同对抗中共的情形。
 
-“中共政府相信其大外宣对西方国家脆弱性的宣传，低估了美国政府的决心，”他说，“中国因过度自信而面临误判风险，这已成不争的事实。”
+报道称，此次联合军演中，日本陆上自卫队将投入一千四百人，而美国海军陆战队则将投入两千六百五十人。
 
-“适应一个受中共国崛起而饱受影响的世界，是军情六处的首要任务，”摩尔断言。他将台湾问题列为中共加强侵略的第一个领域，并表示，中共希望“必要时以武力解决”，是“对世界稳定与和平的严重挑战”。
+日本陆上自卫队幕僚长吉田圭秀也在相关消息中指出，本次演习的焦点是包括宇宙、网络、电磁波领域的协同作战，以及实施EABO作战的构想。
 
-中共国还剥夺了香港公民的权利，侵犯了新疆维吾尔自治区的人权，并“试图扭曲世界各地的公共言论和政治决策”。
+参考链接：
+1）[＜独自＞米軍が最新鋭砲空輸へ　離島防衛を想定](https://news.yahoo.co.jp/articles/6fad2677009786eeaf58d1b5a16c9ac7434c93d4)
+2）[动员兵力10万 日本陆上自卫队将举行28年来最大军演](https://www.voachinese.com/a/Japan-to-stage-largest-ground-self-defense-force-drills-in-28-years-20210910/6221268.html)
 
-路透社要求中共驻伦敦大使馆对摩尔先生的言论发表评论，但没有得到答复。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-愚蠢的中共政府搞的闭目塞耳，阻塞言论的“大外宣”治国，终于还是自掘坟墓了。古人还讲“偏听则暗”呢。习总加速师周围，“宦官弄权”，谎话连篇，习是听舒服了，野心越来越大，岂知大祸也临头了。西方世界也终于捅破窗户纸，亮剑了！多行不义必自毙，中共，出来混总是要还的！
+总编：文徬
+编辑：DM
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-[信息源](https://news.yahoo.co.jp/articles/d968bec9a9b45601a6266020b890e656b7e2e7d6)
-
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

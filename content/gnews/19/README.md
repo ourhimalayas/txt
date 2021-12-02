@@ -2,22 +2,42 @@
 ---
 
 
-## WTA声明取消在中共国的所有赛事
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1712203/)
+## 川普任命的法官阻止了拜登对 10 个州的医护人员强制疫苗令
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1712273/)
 
-撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-11.jpg)[图片源](https://news.yahoo.co.jp/articles/071cb8ace0f9a172c21cbe26976af3d6edeb6db9)
-负责女子网球巡回赛的女子网球协会（WTA）1日宣布,取消包括香港在内的在中共国的所有比赛。因为彭帅的人身安全至今尚未确认。首席执行官史蒂夫·西蒙在声明中指出了中共政府进行审查和恐吓的可能性，称球员们“非常担心风险”。
+据《网关专家》作者克里斯蒂娜·莱拉（ Cristina Laila ）2021 年 11 月 29报道
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image002.jpg)图片来自网络
+周一，川​​普任命的一名法官阻止了乔·拜登对10 个州的医护人员的疫苗强制令。
 
-国际奥委会虽然宣布，巴赫主席已通过视频通话确认了彭帅的安全，但首席执行官西蒙表示，“我严重怀疑她是否真正自由与安全，以及她是否受到了审查、胁迫或威胁”。
+密苏里州东区的美国地区法官马修·斯凯普（ Matthew Schelp ）阻止了联邦政府强制要求密苏里州、内布拉斯加州、阿肯色州、堪萨斯州、爱荷华州、怀俄明州、阿拉斯加州、南达科他州、北达科他州和新罕布什尔州的医护人员接受COVID疫苗注射。
 
-非常庆幸WTA能站在正义一方，为国际奥委会刚直不阿地上了一堂示范课。
+密苏里州共和党总检察长埃里克·施密特（ Eric Schmitt ）为首带领其他 9 个州共同起诉了拜登政府。
 
-[信息源](https://news.yahoo.co.jp/articles/8a663efe724e357719407a4a1d727b731f533e1f)
+斯凯普法官表示，医疗保险和医疗补助服务中心 (CMS) 无权制定规则下达各州，因为它们从未得到国会的批准。
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+斯凯普写道：“确实，这项强制令的影响远远超出了中共病毒CMS 试图通过施加前所未有的强制要求，来超越传统的州权力范围，由联邦政府决定数百万美国人的私人医疗决定。这一行为挑战了传统的联邦制观念。”
+
+斯凯普还表示，CMS 没有提供证据表明疫苗接种情况“对中共病毒的传播有直接影响”。
+
+他写道：“没有人质疑保护患者和医护人员免于感染中共病毒是一项值得称赞的目标。”  “即使出于好意，法院也不能允许 CMS 制定一项史无前例的，缺乏已发现的事实与做出的选择之间的合理联系的强制令”
+
+总检察长施密特在斯凯普法官基于他的诉讼发布了初步禁令后，进行了庆祝。
+
+
+
+> BREAKING: After Missouri was the first to lead a coalition of states in filing a lawsuit, the Court today issued a preliminary injunction HALTING the Biden Administration's vaccine mandate on healthcare workers. 
+> 
+> Full injunction here: [https://t.co/whbsrZe6YE](https://t.co/whbsrZe6YE) [pic.twitter.com/g5QW3cS53r](https://t.co/g5QW3cS53r)
+> — Attorney General Eric Schmitt (@AGEricSchmitt) [November 29, 2021](https://twitter.com/AGEricSchmitt/status/1465360192866963457?ref_src=twsrc%5Etfw)
+
+
+*总检察长埃里克·施密特@AGEricSchmitt*
+*突发：在密苏里州率先引领州联盟提起诉讼之后，法院今天发布了一项初步禁令，暂停拜登政府对医护人员的疫苗强制令。*
+
+原文链接：[https://www.thegatewaypundit.com/2021/11/trump-appointed-judge-blocks-bidens-vaccine-mandate-healthcare-workers-10-states/](https://www.thegatewaypundit.com/2021/11/trump-appointed-judge-blocks-bidens-vaccine-mandate-healthcare-workers-10-states/)
+
+翻译：Nick｜校对：JS709｜编辑&发布：断播
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

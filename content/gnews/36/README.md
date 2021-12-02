@@ -2,20 +2,44 @@
 ---
 
 
-## 秘翻在线: 中共大型加油机首现台海上空
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1711653/)
+## 电力危机下，中国一年内首次购买澳煤
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1712108/)
 
-撰稿：西枫westca
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2.jpg)图片来源：Daily Mail
+**翻译：**小鱼儿
+**编辑：**翼族
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/12/unnamed-1.jpg)图片来源：观察者网
-据网易12月1日报道，中共解放军“运油-20”大型加油机曝光台海，加入了11月28日27架次进入台海防空识别区的巡航行列，
+中国严重的电力短缺问题，迫使中共政权不得不放弃对澳大利亚煤炭的禁令。
 
-运-20空中加油机是以运-20大型军用运输机为平台改装的空中加油机，可同时采用飞椼式和飞锚式的空中加油技术，运-20与两架歼16战机同行穿越台湾海峡，疑似是在演练空中加油的战术。此次对台空域的巡航，不仅距离远，数目多，且深入台湾东南海域，显示了一只体系化的打击机群。有中共军事专家表示，“我们已处在空天时代，台独势力将无藏身之地。“
+北京去年11月封锁了澳洲煤炭的进口，以惩罚堪培拉，因为澳政府建议对中共病毒（Covid-19）大流行病的起源进行国际调查。
 
-大陆军机在台海周边不论是例行性飞行，还是威慑性巡航，其目的绝不仅仅是为了从空中包围台湾，更为关键性的是为了阻止美军从太平洋上介入台海战争。郭文贵先生一再在大直播中提醒世界，邪恶的中共要以武力侵台的意愿丝毫未减。台海开战之刻，必是中共灭亡之时。
+中共的经济胁迫活动还涉及澳洲的大麦、葡萄酒、棉花、海产品、木材和铜等关键产品，对它们进口中国实施了类似的禁令，旨在惩罚澳大利亚的言论。
 
-**新闻来源：**[刘和平：解放军大型加油机现身台海 台湾已无“险”可守|美军\_网易订阅 (163.com)](https://www.163.com/dy/article/GQ5JMO160514FGV8.html)
+然而由此造成严重的电力短缺，数千万中国人在黑暗中瑟瑟发抖，强硬的“战狼”外交官悄悄软化了他们的立场，上个月开始允许进口了280万吨澳大利亚煤炭。
+
+联邦银行全球市场研究部分析师Vivek Dhar周二表示，这“看起来是中（共）国政策制定者的务实之举”。
+
+高盛（Goldman Sachs）估计约44%的工业活动将受到电力短缺的影响，同时也给百姓的活动带来担忧。
+
+禁运澳煤也由此造成中国的煤炭价格飞涨。冶金煤从禁令出台时的每吨100澳元左右跃升至10月份的每吨274澳元。
+
+澳大利亚战略政策研究所一篇文章中写到：每一百万吨煤会让中国的钢厂多付出超过4亿美元的代价，而其它地方的钢厂则多支付了大约2.5亿美元。
+
+部分价格上涨还归因于中国买家从第三方国家转道购买澳大利亚煤炭，以规避禁令。
+
+最近，中共政府在煤炭成本暴涨之前，对能源供应商施加了价格上限的限制。
+
+参考新闻：[Power crisis forces China to snap up Australian coal for the first time in a YEAR – despite Beijing vowing to ban the commodity in trade war sparked by Covid inquiry call](https://www.dailymail.co.uk/news/article-10257149/Power-crisis-forces-China-snap-Australian-coal-time-YEAR.html)
+
+*发布：翼族*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
