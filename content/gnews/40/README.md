@@ -2,44 +2,81 @@
 ---
 
 
-## 锁定MH370准确位置，专家认为飞行员策划恐怖袭击
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1712310/)
+## 众议员迈克·华尔兹： 我们知道中共正试图收集美国的 DNA 数据,国会需要答案
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1712338/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
-![](https://assets.gnews.org/wp-content/uploads/2021/12/5472.jpg)**图片来源：ABCNEWS** 
-**整理报道：月映万川**
-**编辑：文泓**
+众议员迈克·华尔兹： 我们知道 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 正试图收集美国的 DNA 数据。如果一家美国公司在获得政府合同的同时还与 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 共享数据——国会需要答案。 【附自由灯塔新闻报道：FBA警告,一加州遗传（测序）公司很可能与中共国分享美国人的健康数据】
 
-12月1日，一位英国航空航天工程师声称已经破解了有史以来最伟大的航空之谜之一：失踪的马来西亚航空公司370航班的最终坠落地点。
-周三，非政府组织MH370独立调查小组的创始成员理查德·戈弗雷表示，他非常有信心，**在新的测绘技术帮助下，小组已经确定了这架客机位于澳大利亚珀斯以西2000公里处的南印度洋坠毁地点**。
 
-马航MH370是在2014年3月8日在吉隆坡飞往北京的途中消失的，机上载有239名乘客，其中有6名澳大利亚人。
-在多年搜索未果后，新的技术可能会为我们提供答案。
 
-**戈弗雷先生的新报告使用基于****“微弱****信号传播****”****数据技术的软件**，并称这架飞机（残骸）应该在南印度洋的海底山区地带约4公里处，以前的搜索尝试都没有发现。
+> We know the CCP is trying to collect American DNA data. If an American company is receiving government contracts while also sharing data with China – Congress needs answers. [https://t.co/K9HDdnLPAw](https://t.co/K9HDdnLPAw)
+> — Rep. Mike Waltz (@michaelgwaltz) [December 1, 2021](https://twitter.com/michaelgwaltz/status/1466173713653579779?ref_src=twsrc%5Etfw)
 
-戈弗雷先生说，结合卫星、天气、洋流和飞机性能数据，新技术应该会引发新的搜索。
-他说：“（这些）数据压倒性的支持了以南纬33.177度、东经95.300度为主要坠机地点重新进行搜索的理论。”
-“拟议的搜索区域由以主要坠机地点为中心点覆盖半径为40海里的圆圈界定。”
 
-多年来，MH370的各种碎片被冲到非洲南部和印度洋的岛屿上，而似乎验证了目前的所流行的理论，即飞机在澳大利亚以西的偏远水域坠毁。
-戈弗雷先生告诉记者，**他的理论分析，基本上这次坠机是由一名飞行员发动的恐怖袭击**（这一理论已被澳大利亚专家拒绝）。
-**“这是一起劫持事件。在我看来，这是一种恐怖主义行为”**，戈弗雷先生说：“但你知道，我不是法庭。如果当局想透露他们可能掌握的更多信息，我仍然持开放态度。”
 
-澳大利亚运输安全局在马航MH370飞机失踪后不久，为马来西亚政府提供了援助并协调了一项耗资2亿美元、为期三年的搜索行动。
-该任务在2014年至2017年期间使用高分辨率声纳搜索了超过12万平方公里的印度洋海底，不幸的是，没有任何收获；接着由马来西亚政府资助的第二次搜索行动也无果而终。
+众议员玛乔丽·泰勒·格林： 保护选举和制止选举舞弊是共和党基础的首要问题。 通货膨胀排在前五位。 疫苗强制、边境、阿富汗、批判种族理论、阻止 [#共产主义](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89?src=hashtag_click)、击败 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)、供应链和把美国放在首位都是首要问题。
 
-在其最终报告中，澳大利亚运输安全局确定了一个不到25,000平方公里的区域，并认为是“最有可能MH370坠机的位置”。
-造成马航机组成员没有反应或者缺氧情况的发生，最可能的解释是因飞机舱内的压力迅速下降而导致的。
 
-原文链接： [MH370 breakthrough as expert ‘pinpoints’ precise location](https://www.news.com.au/travel/travel-updates/health-safety/british-expert-pinpoints-precise-resting-spot-of-missing-flight-mh370/news-story/b8e48bf96eaf6d7eabeb4924ff591019)
 
-**发布：文泓**
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+> Protecting elections and stopping election fraud is the number one issue to the Republican base.
+> 
+> Inflation is in the top 5.
+> 
+> Vaccine Mandates, Border, Afghanistan, CRT, Stopping Communism, Defeating the CCP, Supply Chain, and Putting America First are all top issues.
+> — Marjorie Taylor Greene 🇺🇸 (@mtgreenee) [December 1, 2021](https://twitter.com/mtgreenee/status/1466195068130402308?ref_src=twsrc%5Etfw)
+
+
+
+众议员吉姆·班克斯： 终于 — 有一个不会向 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 低头的组织！做个笔记吧，[@NBA](https://twitter.com/NBA)… 【附华盛顿自由灯塔推文： 世界女子网球协会宣布立即暂停在中共国，包括香港举行的所有赛事。原因是中国女网运动员彭帅在指控中共高官性侵后消失】
+
+
+
+> Finally – an organization that won’t bow down to Communist China! Take notes, [@NBA](https://twitter.com/NBA?ref_src=twsrc%5Etfw)… [https://t.co/qjEKLw2YX4](https://t.co/qjEKLw2YX4)
+> — Jim Banks (@RepJimBanks) [December 1, 2021](https://twitter.com/RepJimBanks/status/1466165625932419074?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿蓬佩奥： 史蒂夫·西蒙和世界女网协会支持他们的球员并坚持正确的做法 – 无论财务影响如何。 轮到你了，[@NBA](https://twitter.com/NBA) 【附女网官网的新闻：史蒂夫·西蒙宣布暂停女网在中共国的所有赛事】
+
+
+
+> Steve Simon and the [@WTA](https://twitter.com/WTA?ref_src=twsrc%5Etfw) support their players and stand up for what is right – regardless of the financial impact.
+> 
+> Your turn, [@NBA](https://twitter.com/NBA?ref_src=twsrc%5Etfw). [https://t.co/TFiIpZMdNc](https://t.co/TFiIpZMdNc)
+> — Mike Pompeo (@mikepompeo) [December 1, 2021](https://twitter.com/mikepompeo/status/1466161081865449482?ref_src=twsrc%5Etfw)
+
+
+
+参议员瑞克·斯科特： 世界女子网球协会做出了正确的决定。我们都必须尽一切努力追究 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 一再侵犯人权的责任。我敦促奥委会为我们运动员的安全和保障效仿（女网），现在就将 2022 年奥运会从共产主义中国移走。 【转法新社推文：世界女网暂停在 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的所有赛事】
+
+
+
+> The [@WTA](https://twitter.com/WTA?ref_src=twsrc%5Etfw) is making the right call. We must all do everything we can to hold Communist China accountable for its repeated human rights abuses. I urge the [@IOC](https://twitter.com/ioc?ref_src=twsrc%5Etfw) to follow suit for the safety & security of our athletes & move the 2022 Olympics out of Communist China NOW. [https://t.co/5HS5SI15N0](https://t.co/5HS5SI15N0)
+> — Rick Scott (@SenRickScott) [December 1, 2021](https://twitter.com/SenRickScott/status/1466155080005083136?ref_src=twsrc%5Etfw)
+
+
+
+参议员汤姆·科顿： 这就是我们所说的以身作则。 为女子网球协会(WTA)喝彩。 拜登总统、美国奥委会和美国企业都应该效仿。 【转法新社通讯社推文：突发新闻，一位官员称，国际女子网球协会彭帅事件“暂停在 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的所有赛事”。】
+
+
+
+> This is what we call leading by example. Bravo to the WTA.
+> 
+> President Biden, the USOPC, and Corporate America should follow suit. [https://t.co/Fkm1Fboy2X](https://t.co/Fkm1Fboy2X)
+> — Tom Cotton (@SenTomCotton) [December 1, 2021](https://twitter.com/SenTomCotton/status/1466142519545245700?ref_src=twsrc%5Etfw)
+
+
+
+参议员乔什·霍利： 国际女子网球协会[@WTA](https://twitter.com/WTA) 做得很棒 – 比[@NBA](https://twitter.com/NBA) 更有骨气 【转法新社通讯社：突发新闻，国际女子网球协会因彭帅事件“暂停在 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的所有赛事”，一位官员称】
+
+
+
+> Good for the [@WTA](https://twitter.com/WTA?ref_src=twsrc%5Etfw) – More backbone than the [@NBA](https://twitter.com/NBA?ref_src=twsrc%5Etfw) [https://t.co/Ur5HCwLrTp](https://t.co/Ur5HCwLrTp)
+> — Josh Hawley (@HawleyMO) [December 1, 2021](https://twitter.com/HawleyMO/status/1466128650722492417?ref_src=twsrc%5Etfw)
+
+
+
+
 
  
 

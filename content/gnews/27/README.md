@@ -2,10 +2,10 @@
 ---
 
 
-## 近期大量运动员倒地的新闻报道集锦
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1712930/)
+## 世卫组织在给中共病毒新变种命名时跳过了希腊字母XI
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1712934/)
 
-11/25/2021 近期大量运动员倒地的新闻报道集锦。
+11/29/2021 天空新闻：世卫组织在给中共病毒新变种命名时跳过了希腊字母XI，以避免冒犯中共。世卫组织从这场大流行开始就向中共国磕头，现在他们并没有停止。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

@@ -2,47 +2,48 @@
 ---
 
 
-## 中共国就台湾问题召见日本大使
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1712724/)
+## 欧洲某金融强国主动给予喜联储数字银行牌照，与中共决裂
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1712857/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+作者：新西兰伊甸农场Gnews组 财经G乐部 – 亚伦
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/21_07_2019_18_24_17_5963168.jpg)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/12/LOGO-1.jpg)
 
 
-图片来源：www.devdiscourse.com
 
 
-#### 编译：小红帽
 
-日本前首相安倍晋三表示，如果中共国采取措施收回台湾，日本不会袖手旁观。随后，日本驻北京大使被中共召见紧急会议。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/大直播.png)
 
-该大使于周三被中共国外交部召见，中共国外交部部长助理华春莹抗议表示，安倍的警告“公开挑战中共国的主权，公然支持台独势力”。
+12月1日，郭文贵先生在大直播中透露，三周前收到某欧洲国家元首的电话表示，“我们这个国家，决定给喜联储一个数字银行牌照”。郭先生指出，一个数字银行牌照意味着巨大的利益，甚至比喜联储还值钱。目前一切都在按部就班地走程序中，还需要四周时间完成，但这位国家元首已用自己的私人手机发来签完字的文件。
 
-中共国外交部的一份声明说，中共国 “坚决反对”安倍的言论，并已向日本提出“严正交涉”。
+这将是世界上第一个主权国家批准的数字银行牌照，这个牌照在欧洲，这个国家是在世界金融领域排名前三的国家。对新中国联邦来说，这是拥有国家银行、国家储备系统和法币链接的最稳定的桥梁，而且排除了中转行。此事意义深远，同时也意味着这个国家将和中共决裂。
 
-周三，安倍在台湾智库国家政策研究所的论坛上向中共国国家主席习近平发出警告后，引发了这场争论。
 
-安倍在讲话中表示，“台湾的紧急情况是日本的紧急情况，因此也是日美联盟的紧急情况”，然后警告说，如果中共国试图对该岛采取军事行动，那将是“经济自杀”。
 
-安倍在2012年12月至2020年9月期间担任首相，之后由菅义伟和最近的岸田文雄接任。
+参考链接：
 
-根据一个中国政策，北京将台湾视为其领土不可分割的一部分，而该岛支持独立的领导人得到了华盛顿的支持，台北经常接待高调的美国代表团。
+[https://gtv.org/video/id=61a774e244c1fe7a6c3c9bad](https://gtv.org/video/id=61a774e244c1fe7a6c3c9bad)
 
-东京一直表示支持台湾海峡的现状，对该地区的 “危机感”敲响了警钟。在其最新的白皮书中，日本国防部称维护该地区的稳定和安全是日本的首要任务之一。
+编辑/校对/发稿：有莫举名
 
-**参考新闻：**[China summons Japanese ambassador in Taiwan row — RT World News](https://www.rt.com/news/541925-china-summons-japanese-ambassador/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/rili.png)
 
-***发布：小红帽***
+**更多资讯，更多关注**
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/LOGO-1.jpg)
+
+
 
  
 
