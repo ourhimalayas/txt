@@ -2,32 +2,39 @@
 ---
 
 
-## 爱尔兰通过决议力挺台湾，谴责中共侵害人权
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1713550/)
+## 疫苗引发心脏病的研究结果被掩盖
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1713984/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-61.png)[图片来源](https://news.creaders.net/world/2021/12/01/2425711.html)
-爱尔兰参议院2021年12月1日无异议通过谴责中共侵害人权、支持台湾参与国际组织，并重申反对中共寻求“武统”的决议。决议文也敦促爱尔兰政府增进与台湾政府和民众的互动。
+作者：香草山健身部 – 童谣
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间11月30日，英国著名心脏病专家阿希姆-马贺拉爆料称，根据一位英国著名机构的研究人员向他提供的消息显示，该机构拒绝公布心脏疾病与新冠疫苗之间关联的研究结果，其原因在于，他们担心失去研究经费。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/9-1.jpg)
+最近发表在美国心脏协会科学会议上的一项研究表明，在新冠疫苗的接种者中，他们患有急性冠状动脉综合征的风险显著增加，其中，接受辉瑞和莫德纳新冠疫苗的民众患心脏疾病的风险从11%增加到了25%。
 
-爱尔兰参议院有60席议员，决议案由前副总理、现任参议员麦道威（Michael McDowell）等共计17位参议员联署提出。根据决议文，除了第1项呼吁爱尔兰政府持续坚定反对中共国境内持续发生的人权侵害，以及第4项强烈谴责中共对待新疆维吾尔人的方式外，其余5项内容皆与台湾有关。
+有消息媒体称，而自新冠疫苗上市以来，英国因心脏疾病死亡的人数大幅增加，在那些所谓“值得信赖的专家”忙于掩盖他们发现的疫苗严重危险性时，辉瑞公司正在以每秒1000美元的盈利大赚特赚。
 
-决议文指出，参议院呼吁爱尔兰政府持续坚定支持台湾民众享有人身与政治自由，并重申不得以武力寻求中共与台湾统一，要求政府比照多数欧洲联盟（EU）国家的作法，增进与台湾政府和人民的互动，包括善用欧盟驻台代表处。
+参考链接：
+[Leading Cardiologist Says Researchers Are Refusing to Publish Supporting Study Results That Show Covid Vaccine’s Link To Massive Increase In Heart Attacks](https://www.thegatewaypundit.com/2021/11/ready-must-watch-leading-cardiologist-says-researchers-refusing-publish-supporting-study-results-show-covid-vaccines-link-massive-increase-heart-attacks-afraid/)
 
-决议文也提到，参议院拒绝任何企图妨碍爱尔兰国会议员与台湾政府和民众互动的不当干涉，并谴责所有试图阻挠台湾政府和民众参与国际组织或国际人道倡议的作为。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-麦道威1日在国会辩论期间对中共军机频扰台表达高度关切，并强调作为欧盟成员国，爱尔兰有权利、也应当强化与民主盟友台湾的连结。
+总编/编辑：Ivy001
+校正/发稿：Fei797
 
-提案参议员之一的威尔森（Diarmuid Wilson）则表示，台湾与欧盟国家同为共享民主、法治、自由、人权等普世价值的好伙伴，爱尔兰政府不应畏惧中共压力、自我限缩与台湾的互动。
+**更多资讯，更多关注**
 
-对于爱尔兰参议院通过广泛支持自由民主台湾及发展爱台双边关系的决议，中华民国驻爱尔兰代表杨子葆表示欢迎与感谢，并期盼台湾与爱尔兰未来能持续积极全方位合作、共同因应各项全球性挑战。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-爱尔兰参议院曾于2015年通过决议，呼吁欧盟执委会与台湾洽签台欧盟双边投资协议（BIA）；此前则于2013年通过决议，支持台湾有意义参与国际组织及台欧盟洽签“经济合作协定”（ECA）。1日通过的决议则是更进一步支持台湾保有自由民主制度、谴责将台湾孤立于国际组织之外，并敦促爱尔兰政府增进对台关系。
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-消息来源：[爱尔兰参院通过挺台决议 谴责中共侵害人权](https://www.epochtimes.com/gb/21/12/2/n13411479.htm)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

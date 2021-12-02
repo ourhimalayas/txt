@@ -2,29 +2,36 @@
 ---
 
 
-## 七哥谈：Omicron和灭共
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1714884/)
+## 澳洲退伍军人谈为什么要参加游行抗议
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1714911/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+翻译：June（文舜）
+视频来自电报群
+今天我在此是为了人类的基本权利-自由而战！
 
-Omicron出来以后，他这个人很迷信，我发现科学家到最后全都迷信，医学家最后全都不信医学，全都迷信。他说你不要看这次习这个字啊，他说我觉得这是天意啊，轮就轮到习那去了。他咋就世界了，他是百亿分之概率啊，视为组织就没想到这么一事，轮到了这个病毒叫XI病毒，他说这是名副其实啊，这最重要的是搞了一个叫Omicron，他说Omicron这个词实际上是很多国家的语言，Omicron真的不是个好事，实际上就是结束的意思。他说这都是天意啊，他说这就是结束的意思啊，Omicron就是结束。然后战友居然说这是灭共，粤语什么O灭共，然后科学家跟我说，也就三周前我直播，他告诉我，文贵，你不要对外讲，你一定要等着我说，你再说，如果这次共产党弄不了大毒的话，咱们新中国联邦就厉害了。我说为什么，他说真的是新中国联邦的解药，会拯救全人类，不但解药是解的病毒，是解的疫苗。很多人一说好事就想着喜币，你们就是钱迷。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-23.jpg)
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+我去东帝汶作为老兵的原因也是如此相同，我在那里服役的原因也是如此，我代表澳大利亚为东帝汶人民争取独立和自由而服务过。
 
-**关注我们**
+如果你回想一下90年代，东帝汶人民曾在为自由而呐喊，他们锲而不舍地战斗，最后他们得到了自由。
 
-Discord 账号
+我非常乐意去服役，在我服完役后，我以为我会放松一下，因为我在服役期间遭受了很多痛苦，我认为自己该放松一下了，所以我退休了。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+但现在我不能再熟视无睹了，这一切都太垃圾了！
 
-Gettr 账号
+我参加了第一次游行，为自己在那里感到自豪。第二次游行，人们很恐惧，恐惧只是意味着虚假的证据显得真实，或者需要面对他们想掩饰的一切。这是一位二战老兵告诉我的。
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+你知道恐惧是什么吗？恐惧没什么不对，焦虑也没什么不好。
+
+勇气就是当你恐惧时，即使你感到害怕但仍然做你认为正确的事情，这就是勇气的简单定义，即使我在发抖和害怕，我仍然站起来为自由而战。
+
+我们都需要那样做，没有这些澳大利亚人，这些奖章就没有任何意义。
+
+我们要作为一个团队一起战斗，我们就是兄弟姐妹。我有妻子，有孩子，我也是人。我不关心你的肤色；我不在乎你是否称自己亚瑟或玛莎；我不在乎你是男是女。
+
+如果你是一个人，你想要自由，你不想被关在笼子里，那就让我们一起行动吧！
+
+编辑发布：Jenny
+![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-2.jpg)
+
 
  
 

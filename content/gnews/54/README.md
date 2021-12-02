@@ -2,22 +2,36 @@
 ---
 
 
-## WTA声明取消在中共国的所有赛事
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1712203/)
+## 安倍晋三称台湾将引动日美同盟关系
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1712446/)
 
-撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-11.jpg)[图片源](https://news.yahoo.co.jp/articles/071cb8ace0f9a172c21cbe26976af3d6edeb6db9)
-负责女子网球巡回赛的女子网球协会（WTA）1日宣布,取消包括香港在内的在中共国的所有比赛。因为彭帅的人身安全至今尚未确认。首席执行官史蒂夫·西蒙在声明中指出了中共政府进行审查和恐吓的可能性，称球员们“非常担心风险”。
+作者：纽约香草山 医疗部 – 云豹
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-35.png)
+当地时间12月1日，在台湾智库国家政策研究所主办的论坛上，日本前首相安倍晋三在发表演说时声明，日本无法容许台湾存在遭受中共武力侵犯的风险。
 
-国际奥委会虽然宣布，巴赫主席已通过视频通话确认了彭帅的安全，但首席执行官西蒙表示，“我严重怀疑她是否真正自由与安全，以及她是否受到了审查、胁迫或威胁”。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide2-1.jpeg)
 
-非常庆幸WTA能站在正义一方，为国际奥委会刚直不阿地上了一堂示范课。
+安倍晋三表示，台湾的紧急状态等同于日本的紧急状态，也就等于是日美同盟的紧急状态。同时，安培警告习近平绝不能误判形势——中共如若采取军事冒险行动，就是在走向经济自杀的下场。
 
-[信息源](https://news.yahoo.co.jp/articles/8a663efe724e357719407a4a1d727b731f533e1f)
+安倍提到，日本的先岛群岛、与那国岛等离岛距台湾不过100公里左右。因此，中共如果武力犯台，也是对日本国土的重大威胁，日本无法容许。
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+安培还提出，过去30年来，中共的军费已经增长了42倍，甚至比日本还要高出4倍。为此，台日必须充实自身的经济及军事实力，并持续展现力量加以抗衡中共，同时必须反复说服中共采取理性、和平的方式解决争端。
+
+参考链接：[安倍晉三：台灣有事牽動日美同盟 習近平絕不能誤判【演說全文】](https://www.cna.com.tw/news/firstnews/202112015004.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share%20https://voi.id/zh/news/109501/read)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
+
+总编：飞虹
+编辑：飞虹
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
