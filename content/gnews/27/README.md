@@ -2,24 +2,29 @@
 ---
 
 
-## 中共在美国新一轮放毒正式开始
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1714027/)
+## 中共实时中断日媒对彭帅问题的报道
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1714145/)
 
-素材 / 作者：波士顿五月花 文雀
-![](https://assets.gnews.org/wp-content/uploads/2021/12/20211202-1.jpg)
-12月1日美国CDC政府网站公告，CDC在美国加利福尼亚州检测到第一个已知的 Omicron Covid 变体病例。该人被报道是一名最近从南非返回的旅行者，已接种疫苗且仅出现轻微症状。
+撰稿:东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/6.jpg)
+[图片源](https://www.nishinippon.co.jp/sp/item/n/665144/)
 
-相信在此之前，中共变种病毒已经在美国西部蔓延，不过这也是为了推行施打中共毒疫苗加强针。
+2日晚，NHK的海外新闻节目在报道中国女网球运动员彭帅的问题时，被中共实时中断。彭帅曾承认她被迫与中共前副总理发生性关系，中共当局实施了严格的信息控制，以防止人们对彭帅问题引起的争议产生关注。
 
-参考链接：[First Confirmed Case of Omicron Variant Detected in the United States](https://www.cdc.gov/media/releases/2021/s1201-omicron-variant.html)
+节目内容是，因为中共官方不能就彭帅本人是否安全做出可信的解释，女子网球协会（WTA）宣布决定不在中共国举办任何赛事。当时，中共国的电视屏幕显示“信号异常”，节目中断了数分钟。 中共真是每天如实地向世界上演“什么叫做言论管控”。这样的政府还有什么可信度？！
 
-* * *
+信息源：
 
-*编辑：文合*
+**[テニス彭帥さんのニュース中断　中国、NHK放送で](https://news.yahoo.co.jp/articles/890225c0628bf52024361b2895cd9f38b99adbea)**
 
-*封面：霹雳鼠年*
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.png)
 
-*发布：吐纳*
+
+
+
+
 
  
 

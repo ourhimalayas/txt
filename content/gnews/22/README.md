@@ -2,32 +2,22 @@
 ---
 
 
-## 超过半数美国人视中共为最大威胁
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1714150/)
+## 全世界所有现代化的科技产品几乎都是美国创造出来的
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1714182/)
 
-作者：东京樱花团—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月1日，据媒体消息显示，美国里根研究所的一项调查称，有超过半数的美国人认为中共是美国最大的威胁。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-02-下午10.53.35.png)圖片來源：戰友作品
-调查提及，目前，美国两党的支持者中有绝大多数都在担心美国与中共之间爆发战争。为此，有44%的民主党人和64%的共和党人都把中共当成了最大的威胁。据报告中引用2018年的数据表明，当时仅有21%的美国人视中共为威胁。
+文编：东京樱花团/樱花传媒
 
-分析人士指出，美国两党而今最担心的第一要素就是经济问题，其中，还有部分共和党人将中共的军事扩张和胁迫当作第二大因素，而民主党人则认为中共严重践踏了人权。与此同时，这些担忧对美中之间潜在的军事冲突存在重要影响。
+视频:东京樱花团/中文小视频组
 
-参考链接：[民調：過半數美國人視中國為最大威脅 擔心戰爭爆發](https://news.ltn.com.tw/news/world/breakingnews/3754457)
+11月24日，郭文贵先生在GTV大直播指出：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+全球66%-72%的现代化科技产品是美国生产的，美国的信息、科技、生物制药、医药、重工业等，随便一样拿出来都是半个中国对外的产值。全人类所有大公司，包括北朝鲜在越南挂着日本牌子的企业，几乎都是由美国基金控制。中共所有的股票，所有的房地产，都是假的，比冥币还不值钱。
 
-总编：文特
-编辑：Lakeman文仁
-校正/发稿：呼吸的雾霾（文小呼吸）
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.png)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

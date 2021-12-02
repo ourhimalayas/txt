@@ -2,30 +2,48 @@
 ---
 
 
-## 中共借外媒喉舌遭暴被踢——美国（原脸书）删除中共假外国专家账号
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1714125/)
+## 美国海军司令呼吁在太平洋地区增派航母
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1714164/)
 
-撰稿：东京樱花团/风翼
-![](https://assets.gnews.org/wp-content/uploads/2021/12/5.jpg)
-[图片来源](https://japanese.engadget.com/meta-facebook-185351672.html)
+作者：纽约香草山教育部 – Naughty(文行)
 
-总部位于美国的Meta（原脸书）周四表示，它已经删除了旗下社交网络脸书和其他网站上的，被认为是中共国正在利用这些账户操纵有关中共病毒信息的账户。这些报道包含一位虚构的瑞士生物学家的说法，其目的是，阻挠美国对中共病毒起源的调查研究。
 
-根据Meta（原脸书）汇编的一份报告中表示，中共的目标是美国和英国的英语使用者，以及台湾、香港和西藏的中文使用者，但他们操纵信息的企图“基本上没有成功”。
 
-7月，中共国国家媒体报道了一位自称“威尔逊-爱德华兹”的瑞士生物学家对美国进行干预的一系列理论。然而，当瑞士驻北京大使馆评论说瑞士公民没有发现这样的人时，几家中共国报纸取消了“爱德华先生”的文章和声明。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-而Meta（原脸书）公司于8月首次删除了“爱德华兹先生”的账户，此后对该案进行了调查，结果对524个脸书账户和20页照片共享应用程序上的20个页面、4个群组和86个账户以及相关内容进行了删除。
 
-该公司人员告诉路透社，我们已经找到这些活动与中共有关的证据，包括与某些特定的中共国企和世界各地关于基础建设的中共国企相关的人。对于指出的司瑞静（音）信息技术公司的网站，介绍说该公司是一家网络和信息安全公司，为中共国公安部和其他部门提供服务。而对于以上相关内容，中共国外交部和中共中央网络安全和信息化委员会办公室没有作出回应。
 
-中共大外宣每年1000亿美元维稳费的30%-40%用于国外的各种利益贿赂，达到掩盖和封嘴等目的。随着中共病毒真相、独裁、反人类的各种行为被世界越来越多的人所了解，与中共相关利益的企业和人都会受到严厉的法律制裁，而作为各种犯罪行为的始俑者中共还能存活下去吗？大家心知肚明。
+11月30日，外媒报道，美国海军第7舰队副司令卡尔·托马斯在结束与日、澳、加、德为期10天的海军演习后，呼吁在太平洋地区增加航空母舰，以防止来自中共和俄罗斯的威胁。
 
-信息来源：[米メタ、新型コロナ巡る中国の情報操作に関係したＳＮＳアカウント削除](https://jp.reuters.com/article/facebook-china-idJPKBN2IG58I)
+本月，美国海军研究所曾透露，中共正在建造美国军舰模型，作为中共解放军新建靶场的射击目标。五角大楼年度报告中提到，中共在2019年底启用了第一艘国产航母，第二艘航母预计将在2024年投入使用。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.3-1.jpg)
+针对来自中共和俄罗斯的威胁，托马斯表示，向更具侵略性和独裁性的国家展示统一战线很重要。 他强调，美国和盟国应该利用联合军事演习来威慑一些国家的侵略行为。
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.png)
+参考链接：
+[US Navy commander calls for more aircraft carriers in Pacific to dissuade China, Russia from conflict](https://thehill.com/policy/defense/navy/583550-us-navy-commander-calls-for-more-aircraft-carriers-in-pacific-to-dissuade?utm_source=ground.news&amp;utm_medium=referral)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+
+总编：AN
+编辑：文真
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
 
 
  

@@ -2,42 +2,58 @@
 ---
 
 
-## 纽约拉比法庭禁止儿童、青少年和年轻人接种新冠疫苗
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1714249/)
+## 面对中共病毒，伊维菌素的神奇效果
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1714342/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/112901-1.jpg)图片：来自网络
-据《美国前线医生网》2021年11月29日报道，经过世界各地专家八小时的证词，一个由拉比组成的三名法官小组裁定，向儿童和大多数成年人注射新冠疫苗是违反犹太法律的。
+作者： 加拿大温哥华扬帆农场 Michael.Tonny
+![](https://assets.gnews.org/wp-content/uploads/2021/11/michael-3-1.jpg)
+美国广播网络主持人Wayne Allyn Root在节目中说，几周前他第一次感染了中共病毒（Covid-19），但在服用伊维菌素和大量维生素24小时后，症状完全消失，他甚至从未错过一天的工作就彻底恢复了。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/ivermectin-pack.jpg)
+Wayne Allyn Root，是美国广播网络（USA Radio Networks）在每天晚上美东时间6 点至晚上9点播出的全美联合“Wayne Allyn Root：Raw & Unfiltered”和“WAR RAW”节目主持人，被称为“保守派勇士。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/wayne-allen-root.png)
+Wayne讲述了他几周前第一次感染了中共病毒经历。
 
-该裁决明确禁止在儿童、青少年或年轻人中注射甚至推广新冠疫苗。这种反对公共卫生正统观念的戏剧性观点基于三个原因：这些成分是“有问题的”，这意味着根据犹太法律，它们是不可接受的，大概是因为疫苗含有堕胎的人类胎儿成分。其次，没有人可以对由此造成的伤害承担法律责任，因为政府已经给予制造商和医疗保健提供者免于可能造成的任何损害的豁免权。根据犹太法律，这是一项重要的保障措施，有助于确保治疗提供者承担责任，并且基于该法律机制，患者可以更好地依赖医疗。第三个依据是它有助于政府的计划，接种其他的儿童，这是被禁止的。
+在感染中共病毒的第一天，表现出了明显的感染中共病毒的每一个症状：发烧、发冷、咳嗽得很厉害，肺部有粘液，身体的每一块肌肉都非常疼痛，极度疲惫，失去了味觉。为了确定是否真的感染，他进行了两次CCP病毒测试，结果两次检测呈阳性。
 
-根据裁决，孕妇和所有育龄成年人也被禁止接种新冠疫苗。该裁决还指出，目前仍在进行研究以调查疫苗在孕妇和男性生育能力方面的关系，辉瑞公司本身也有免责声明称，该疫苗“尚未评估其潜在的致癌性、基因毒性或男性生育能力受损。”拉比们一致认为，这不足以批准将其用于生育年龄的人群。
+于是，他服用了伊维菌素和大量维生素C（包括静脉注射维生素C），D3、锌、槲皮素、硒、赖氨酸、褪黑激素、大蒜、液态银和益生菌（Ivermectin and mega doses of Vitamin C, D3, zinc, quercetin, selenium, lysine, melatonin, garlic, liquid silver① and probiotics.）
 
-至于老年人，法院再次警告其使用，但并未完全禁止。在其推理中，该裁决提到了关于疫苗有效性的相互矛盾的数据、大量严重不良反应的报告以及有效的早期治疗的可用性。
+从那时起24 小时内，CCP病毒症状消失了。Wayne认为，是伊维菌素让CCP病毒变成了轻微的普通感冒，让他在感染CCP病毒后的发作变得如此温和，以至于从未错过一天的工作，在感染CCP病毒期间还能一直主持他的每天3小时全国广播节目，甚至没有人注意到他生病了。
 
-**简评：**
+现在，Wayne早就已经完全康复了。就在上周，他和在内华达州许多共和党组织的董事会任职的妻子举办了盛大的婚礼。
 
-纽约拉比法庭的裁决意义重大。拉比法官们基于真正的事实和科学数据，做出了对人们生命健康正确的裁决。很多人已经用健康和生命验证了疫苗有毒，大规模注射范围不但不能控制病毒的蔓延，反而会让很多人生病，致残，甚至死亡。在新的变种病毒再次被释放之际，这样的裁决给了全世界所有反对实验性毒针的人们信心和希望，每个人都应该为自己及家人的生命发声和战斗！
+Wayne用他的亲身经历告诉人们，伊维菌素便宜，有效，没有副作用，可以拯救经济，可以挽救数百万个工作岗位，可以节省数万亿美元的工作、疫苗、住院和死亡成本。伊维菌素和维生素将危险、致命、经济封锁、终生戴口罩、接种疫苗或死亡的CCP病毒感染变成了轻微的普通感冒而已。
 
-原文链接：[New York rabbinic court prohibits COVID vaccination in children, adolescents, and young adults](https://americasfrontlinedoctors.org/news/post/new-york-rabbinic-court-prohibits-covid-vaccination-in-children-adolescents-and-young-adults/)
+事实上，伊维菌素在面对CCP病毒时，早就展现了药到病除的神奇效果。
 
-*翻译/简评: Johnston2021*
+印度使用伊维菌素的北方邦（Uttar Pradesh）和拒绝使用伊维菌素，只相信疫苗的喀拉拉邦（Kerala）的中共病毒感染人数、死亡人数对比非常具有说服力。
 
-*校对: clau*
+拥有2.425亿人口的印度北方邦在今年5月4日前一段时间，每日新增确诊感染人数达3万人以上。
 
-* * *
+自今年5月4日起，北方邦开始向每个家庭发放了价值2.65美元的伊维菌素套件包，每个家用套件包含以下内容：扑热息痛片[泰诺]、维生素C、多种维生素、锌、维生素 D3、伊维菌素12毫克[数量#10片]、多西环素100毫克[数量 #10 片]。其他非药物组件包括口罩、消毒剂、手套和酒精湿巾、数字温度计和脉搏血氧仪（Vitamin C, Multivitamin, Zinc, Vitamin D3, Ivermectin 12 mg [quantity #10 tablets], Doxycycline 100 mg [quantity #10 tablets]. Other non-medication components included face masks, sanitizer, gloves and alcohol wipes, a digital thermometer, and a pulse oximeter.）。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+自从发放伊维菌素套件包后，北方邦（Uttar Pradesh）每日新增病例迅速下降，自今年6月起，每日新增感染人数降到几百人。目前，北方邦每日新增感染人数甚至不足10人，总确诊数为171万人，6月1日后新增病例仅20389人，7月1日到现在，总共死亡334人。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/百万人感染率对比.jpg)
+而仅有3533万人口的喀拉拉邦（Kerala）由于拒绝使用伊维菌素，要求民众接种疫苗，每日新增感染人数一直在上升，目前日均确诊人数在5000人左右，总共已经到514.7万人，6月1日后新增病例仅263.2万人，7月1日到现在，总共死亡27422人，是北方邦的82倍。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/感染中共病毒死亡人数对比.jpg)
+7月1日后，Kerala 新增感染人数为223.6712人，Uttar Pradesh新增感染人数为4454人。如果换算成百万人数据对比，Kerala百万人新增确诊人数是Uttar Pradesh的3447倍，Kerala百万人死亡人数是Uttar Pradesh的564倍。
 
+伊维菌素，消灭中共病毒有神奇功效的药物！
 
-编辑：【英国伦敦喜庄园编辑部】
+注释
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+①   liquid silver，也叫納米銀離子水，英文Nanosilver Water或Colloidal Silver Water，有人称它可以治百病，連糖尿病、癌症，艾滋病都能治，但也有资料认为，大量服用有危险性。
 
+参考资料：
 
+[WAYNE ROOT: How I Beat Covid in 48 Hours with Ivermectin – Just Like Joe Rogan and NFL Quarterback Aaron Rodgers](https://www.thegatewaypundit.com/2021/12/wayne-root-beat-covid-48-hours-ivermectin-just-like-joe-rogan-nfl-quarterback-aaron-rodgers/)
 
+[USA Radio Networks](https://usaradio.com/)
 
+[The Wayne Allyn Root Show](http://usaradio.com/show/wayne-allyn-root-show/?_ga=2.249050695.1998581165.1638364573-1178434969.1634361006)
+
+[India’s Ivermectin Blackout – Part V: The Secret Revealed](https://www.thedesertreview.com/opinion/columnists/indias-ivermectin-blackout---part-v-the-secret-revealed/article_9a37d9a8-1fb2-11ec-a94b-47343582647b.html)
+
+编辑：Michael.Tonny 上传：Michael.Tonny
 
  
 
