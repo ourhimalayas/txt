@@ -2,28 +2,35 @@
 ---
 
 
-## 川普媒体与科技集团（TMTG）寻求10亿美元融资
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1713424/)
+## Jack Dorsey：Square更名为Block
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1713475/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-54.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fp26.toutiaoimg.com%2Flarge%2Fpgc-image%2F75b0fae5724546c895119e886c1d73f7&amp;imgrefurl=https%3A%2F%2Ftodayhot.news%2Ftravel%2F57325.html&amp;tbnid=6hydFE_1lGStmM&amp;vet=12ahUKEwj8woTt4cT0AhV_0IsBHfFCATkQMygIegQIARAh..i&amp;docid=gMP-f_IVcPT9XM&amp;w=640&amp;h=427&amp;itg=1&amp;q=%E7%A4%BE%E4%BA%A4%E5%AA%92%E4%BD%93%E4%BC%81%E4%B8%9ATMTG&amp;ved=2ahUKEwj8woTt4cT0AhV_0IsBHfFCATkQMygIegQIARAh)
-路透12月1日报道 ，美国前总统川普的新社交媒体企业TMTG正寻求通过向对冲基金和家族办公室出售股票，来筹集最多10亿美元资金，这一金额是该公司10月份与一家特殊目的收购公司(SPAC)交易时估值的数倍。
+**编译：西班牙巴塞罗那喜悦农场-wenwu**
 
-川普媒体与科技集团(Trump Media & Technology Group)尚未推出据其表示正在开发的社交媒体应用程序。如果它通过与特殊目的收购公司Digital World Acquisition Corp合并而在纽约上市的交易完成，即可获得2.93亿美元。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-57.png)
 
-该交易对川普媒体公司包含债务的估值为8.75亿美元。消息人士称，该公司现在正寻求以接近30亿美元的估值再融资10亿美元，以反映Digital World在川普支持者和当日冲销的交易商抢购下出现的股价上涨。
+数字支付公司Square宣布，它已将其公司名称改为Block，似乎是突出向区块链技术的转变；“Block是一个新名字，但我们赋予经济权力的目的仍然是一样的；无论我们如何成长或改变，我们将继续建立工具，以帮助增加经济机会，”杰克·多尔西（Jack Dorsey）说。
 
-这是迄今为止最明显的迹象，表明川普和Digital World的交易商正在寻求利用市场对这家公司的热情牟利。迄今为止，市场对该公司的热情是由其雄心勃勃的目标所推动，而非已经启动和运行的业务。
+在周三的一条推文（[@Square](https://twitter.com/Square/status/1466158910067388423?s=20)）表示，重塑品牌将使这家支付公司与Cash App、去中心化的比特币（BTC）交易所项目tbDEX，以及音乐和视频流媒体平台Tidal结合起来；Square表示，法律名称的变更将在12月10日 “或前后 “生效。据该公司称，Block、Cash App、Tidal、Spiral或tbDEX不会有任何组织变化。随之发布的一份新闻稿说：
 
-在与川普媒体公司的交易中，Digital World的价值为每股10美元。消息人士称，川普媒体公司现在正寻求获得所谓的公开股票私人投资(PIPE)，对Digital World股票的估值更接近其近期价格。
+“Block参考了我们找到卖家的街区，一个区块链，充满音乐的区块聚会，需要克服的障碍，一段代码，积木，当然还有钨块，”Square说。”我们为做出这一改变已经努力了一年多，它只代表我们官方公司名称的改变；公司名字的改变不代表我们改变了原先的目的、愿景、结构或我们的运作方式。”
 
-消息人士补充说，Digital World股票的估值可能基于其10日成交量加权平均价格折让20%。
+品牌重塑发生在Square–现在的Block–首席执行官杰克·多尔西辞去他在Twitter的职位仅两天之后，他的理由是需要给推特的继任者、首席技术官和董事会成员帕拉格·阿格拉瓦尔(Parag Agrawal)一个空间，让他在这个社交媒体巨头没有影响力的情况下工作。当时，许多人猜测多尔西将通过Square的业务深入到加密货币和区块链领域，这与Facebook将其重点从社交媒体转向Meta的方式很相似。
 
-消息来源：[独家：特朗普旗下社交媒体企业寻求10亿美元融资–消息人士](https://cn.reuters.com/article/exclusive-trump-social-media-financing-1-idCNKBS2IH07Z?il=0)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-59.png)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
+“Block是一个新名字，但我们赋予经济权力的目的仍然是一样的，”多尔西在改名时说。”无论我们如何成长或改变，我们都将继续建立工具，帮助增加经济机会。”
+
+**简评：**
+
+**继脸书换名字之后，推特原CEO手里的绑定比特币支付系统Square也更换了名字。值得一提的是，这些动作没有任何事情是让人庆祝的，或许这是出于他们都遇见了自己要惹上了麻烦的应对措施。**
+
+**墨尔本雅典娜农场（[@himalayaathena](https://gettr.com/post/pif3q74e76),如图）表示：七哥周三（1日）大直播中也聊到了我们的喜联储的拿到了世界上第一个来自欧洲的国家首脑亲自批的银行牌照，而这个银行牌照的价值超过了喜联储本身。这是多值得庆祝的好事啊！（不忘初心，不改名字）**
+
+* * *
+
+*发稿: Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

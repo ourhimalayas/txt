@@ -2,33 +2,73 @@
 ---
 
 
-## 欧洲“全球门户”对阵“一带一路”（上）
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1713402/)
+## 共和党人威胁要因疫苗授权关闭政府
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1713453/)
 
-撰稿： 天鵝
-![](https://assets.gnews.org/wp-content/uploads/2021/12/B33DC7FA-1FBE-4347-AAFD-DFFB1C4AF445.jpeg)图片来自网络
-根据“美联社”报道[1]，欧盟在上周公布了数十亿欧元的“全球门户”计划，旨在加强其全球基础设施和影响力。预计到 2027 年，该计划将动员高达 3000 亿欧元（3410 亿美元）的公共和私人资金。
+**编译：西班牙巴塞罗那喜悦农场-wenwu**
 
-**数据陷阱**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip13.png)参议员迈克李（犹他州共和党）于2020年11月在国会大厦。照片：约书亚罗伯茨/盖蒂图片社
 
-随着中共将其战略影响力扩展到非洲、亚洲、拉丁美洲和欧洲的部分地区，对基础设施或连通性的投资已成为地缘政治影响力的关键战场。中共的“一带一路”战略，其背后的目的与阴谋已经被逐步揭露。根据politico报道[2]，英国情报部门负责人本周警告称，中共国的“债务陷阱和数据陷阱”对数据主权构成威胁。英国外国情报机构军情六处的负责人理查德·摩尔在BBC Radio 4 的今日节目中表示，“如果你允许另一个国家获得关于你的社会的真正关键数据，随着时间的推移，这将侵蚀你的主权，你就不再能够控制这些数据。”这与郭先生揭露的中共“蓝金黄”渗透欧洲的计划吻合。不仅仅是英国，许多欧洲国家在通信、基础设施等领域都不同程度的有中共企业的投资、管理和涉猎。
+据[Politico](https://www.politico.com/newsletters/playbook/2021/12/01/scoop-conservatives-plot-government-shutdown-over-vaccine-mandate-495273?nname=playbook&amp;nid=0000014f-1646-d88f-a1cf-5f46b7bd0000&amp;nrid=49b86ef8-991f-4f21-8c07-c9f77e68b398&amp;nlid=630318)报道，众议院和参议院的保守派共和党人计划在周五（3日）迫使政府关闭，以拒绝为拜登政府对私营部门实施的疫苗授权提供所需的资金。
 
-**海上丝绸之路龙头**
+重要性：国会必须在本周末之前通过一项临时措施，将资金延长至 2022 年，但一小部分共和党人的反对意见可能会使得拜登关闭政府。
 
-希腊一直被视为中国在欧洲最亲密的盟友之一，习近平称其为海上丝绸之路的“龙头”。中共国公司在那里进行了两项重大投资，比雷埃夫斯港现在由一家央企（中国远洋海运集团有限公司）管理；而希腊第二大港口塞萨洛尼基同样接受了另一家央企的投资（中国远洋海运集团有限公司）。随着投资的进行，希腊媒体报道了越来越多有关中共国投资的争议问题。其中包括没有对新邮轮码头的建设进行环境影响评估，以及在城市中转移垃圾可能导致拥堵和污染的风险。另一个有争议的问题是中远集团提议建立希腊港口社区系统 (HPCS)，这是一个用于比雷埃夫斯港的多功能管理电子平台，可能涉及信息安全风险。此外，当地企业主担心部分造船订单可能会转移到中国造船厂。
+- 拜登总统要求对[拥有 100 名或更多工人的雇主](https://www.axios.com/covid-vaccine-mandate-private-sector-biden-osha-eea6e85d-fefe-4e4b-8cc0-0564c764bdf4.html)，以及参与医疗保险和医疗补助的设施的医护人员的疫苗授权已经受到挑战，并被多个联邦法院[质疑和叫停](https://www.axios.com/biden-covid-vaccine-mandate-health-workers-c27f0dde-383a-4e87-b86b-b9d4babf629e.html)。
 
-在中共的“一带一路”战略中，比雷埃夫斯港占有非凡的地位，这符合中共建设海洋强国，地缘政治扩张的目标。除了两大港口之外，新华社在雅典有一个分社，希腊国家电视台与中国国家广播电视总局于 2019 年底签署了谅解备忘录。中共通过媒体向希腊形容中共国为“一个良性的超级大国，正在推动一套基于社会经济快速发展和‘合作共赢’的和谐国际关系”。
 
-中共从2004年雅典奥运会开始就一直经营与希腊的关系，尽力拉拢希腊公众，习近平也曾亲身访问过希腊，给足了面子。但是随着中共对欧洲的一再挑战，中共病毒在欧洲疯狂扩散，希腊如今不得不在欧盟与中共之间做出选择。希腊一方面不想与中共国交恶，从而丧失中共国这一强大的外援，另一方面希腊仍然视传统的西方机构和国家为盟友。但从2017年开始，随着爆料革命、新中国联邦的崛起，我们给希腊政府、人民带来了越来越多真实情报与重要的信息，越来越多的希腊人开始觉醒，开始认识到中共的真实目的与邪恶的计划。随着中共病毒的入侵，欧洲供应链危机，经济危机的到来，灭共的浪潮必将掀起。
+他们在说什么： “我相信我们都希望简化解决 CR 的程序，但如果不解决疫苗授权的要求，我就无法促进这一进程，”共和党参议员 Mike Lee（犹他州，如图）告诉 Politico。
 
-参考消息：
+- “鉴于全国各地的联邦法院都对这些疫苗授权提出了严重的问题，我的民主党同事至少在持续决议的时间内推迟执行疫苗授权，并非没有道理。”
+- “参议院立即有了杠杆作用，我们认为众议院共和党人应该支持任何数量的参议院共和党人……使用所有程序性工具来拒绝周五晚上的持续决议通过—除非他们限制将这些资金用于疫苗授权任务，”众议员自由核心小组成员奇普·罗伊（Chip Roy，R-Texas）告诉 Playbook。
 
-[1] [European Union set to unveil massive worldwide infrastructure plan](https://www.business-standard.com/article/international/european-union-set-to-unveil-massive-worldwide-infrastructure-plan-121113001458_1.html)
 
-[2] [China threatens data sovereignty, says Britain’s spy chief](https://www.politico.eu/article/chinas-debt-traps-and-data-traps-threaten-data-sovereignty-says-mi6-boss/)
+另一方面：参议院多数党领袖查克·舒默 (Chuck Schumer，DN.Y.) 表示，他已与参议院少数党领袖米奇·麦康奈尔 (Mitch McConnell，R-Ky.) 讨论避免政府关门的问题。
 
-*编辑：cindy*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-2.jpg)
+- “任何一小群成员都可以说他们想关闭政府，只要他们认为这是正确的。我们将完全陷入混乱；这取决于双方领导人，以确保这不会发生，”舒默说。
+
+
+大局：众议院自由核心小组[周三](https://twitter.com/freedomcaucus/status/1466069120894517256)（1日）给麦康奈尔发[了一封信](https://twitter.com/freedomcaucus/status/1466069120894517256)，敦促他拒绝资金立法的通过，除非它根本上禁止拜登政府执行其疫苗授权任务。
+
+- 当被记者问及拜登政府可能会因疫苗授权而关闭时，[麦康奈尔说](https://twitter.com/alaynatreene/status/1466109822588305413)：“我认为我们会没事的。”
+
+
+深入报道：
+
+周二（30日），拜登政府被肯塔基州和路易斯安那州的联邦法官暂时阻止了，对数百万工人强制执行中共病毒（COVID-19）疫苗接种。
+
+大局：肯塔基州和路易斯安那州联邦法官发出这一命令的前一天，正值密苏里州的一名联邦法官[停止](https://www.axios.com/covid-vaccine-mandate-biden-health-workers-d16fc36c-daa9-4efa-8048-59ff9ec076a3.html)了在 10 个州的截止日期为 1 月 4 日[的疫苗授权](https://www.axios.com/covid-vaccine-mandate-biden-health-workers-d16fc36c-daa9-4efa-8048-59ff9ec076a3.html)。
+
+- 路易斯安那州门罗的美国地方法官特里·道蒂 (Terry Doughty) 的初步禁令暂时阻止了医疗保险和医疗补助服务中心 (Centers for Medicare & Medicaid Services) 执行其对卫生保健工作者的疫苗授权，直到法律挑战结束。
+- 路易斯安那州总检察长杰夫·兰德里 (Jeff Landry，R) 和其他 13 个州的总检察长对案件的裁决适用于所有州，但已受密苏里州命令影响的 10 个州除外。
+
+
+与此同时，[据路透社报道](https://www.reuters.com/legal/government/us-judge-blocks-vaccine-mandate-contractors-three-states-2021-11-30/)，美国地区法官 Gregory Van Tatenhove 在肯塔基州法兰克福发布了一项类似的裁决，该裁决暂时阻止了新的政府合同中疫苗授权条款的执行。
+
+- 这一裁决影响到肯塔基州、俄亥俄州和田纳西州，这些州在诉讼中对这拜登疫苗授权要求提出了质疑。
+
+
+他们在说什么：道蒂[在周二的意见](https://content.govdelivery.com/attachments/MTAG/2021/11/30/file_attachments/2008888/Nationwide%20Injunction%20-%20CMS%20mandate.pdf)中[写道，](https://content.govdelivery.com/attachments/MTAG/2021/11/30/file_attachments/2008888/Nationwide%20Injunction%20-%20CMS%20mandate.pdf)在这种情况下，拜登政府无权绕过国会。
+
+- “如果允许行政部门篡夺立法部门制定法律的权力，我们宪法赋予的三项权力中的两项将掌握在同一手中，”他写道。
+- “如果说人性和历史教导了什么，那就是当政府宣布无限期紧急状态时，公民自由面临严重风险。”
+- 他补充说：“在像这样的大流行期间，保护我们宪法中规定的权力分立以避免侵蚀我们的自由，更为重要。”
+
+
+看点：对道蒂裁决的上诉将提交至位于新奥尔良的美国第五巡回上诉法院，该[法院确认了下级法院的决定](https://www.axios.com/appeals-court-stay-biden-vaccine-mandate-companies-2a4c99b0-05d4-4237-ac1d-8eb60bc7329a.html)，即阻止拜登总统对拥有 100 多名工人的企业实施疫苗接种的强制令。
+
+- 司法部拒绝置评。
+
+
+**新闻来源**：[axios.com] [Republicans threaten to shut down government over vaccine mandates](https://www.axios.com/gop-government-shutdown-covid-vaccine-mandate-5f701c98-3a70-407d-be28-ecce3dc3608e.html) |发布时间：2021年12月01日｜
+
+* * *
+
+***发稿：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-1.jpeg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
