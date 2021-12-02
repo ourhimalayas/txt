@@ -15,131 +15,131 @@
 
 ---
 
-### [拜登遇新挫折：法官否决了3个州承包商的疫苗接种授权](/content/gnews/1/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [G时评：我们正在输掉战争—俄罗斯物理学家提醒高科技奴役正在发生](/content/gnews/1/README.md)
+ ` GISELLE`
 
-### [拜拉姆博士公开反对政府滥用快速抗原检测](/content/gnews/2/README.md)
- ` MG FARM`
+### [WTA主席宣布暂停在中共国的所有网球赛事](/content/gnews/2/README.md)
+ ` HimalayaRussia`
 
-### [【草根访谈】第284期新闻概要](/content/gnews/3/README.md)
- ` WindTalker`
-
-### [面对中共日益增长的威胁，五角大楼计划扩充军事基地](/content/gnews/4/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [中共释放新一轮病毒的真实意图](/content/gnews/5/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [那些为“无苗”离职人员提供失业救济的福利州](/content/gnews/6/README.md)
- ` wenwu`
-
-### [中国不是在“购买”所罗门群岛，而是在购买台湾](/content/gnews/7/README.md)
- ` MG FARM`
-
-### [泄露的文件显示，习近平及中共高官与镇压维吾尔族有关](/content/gnews/8/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [中共的体制让习近平也生活在恐惧中](/content/gnews/9/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [加拿大在未经您的同意下，您 5 岁的孩子是否可以接种疫苗](/content/gnews/10/README.md)
- ` MG FARM`
-
-### [从新变种病毒命名排序看共产党的做贼心虚](/content/gnews/11/README.md)
- ` 纽约香草山MOS01`
-
-### [在悉尼买投资房, 是赚还是亏？](/content/gnews/12/README.md)
- ` 走进澳洲`
-
-### [特鲁多政府泄露了您的私人抵押贷款数据](/content/gnews/13/README.md)
- ` MG FARM`
-
-### [重磅！欧洲某金融强国主动批准喜联储数字银行牌照](/content/gnews/14/README.md)
- ` YALUN 亚伦`
-
-### [日本东京方舟农场文化灭共「力挺班农」](/content/gnews/15/README.md)
- ` WindTalker`
-
-### [美海军司令呼吁在太平洋部署更多航母威慑中俄避免冲突](/content/gnews/16/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [有声|澳国防部长警告 必须警惕中共的军事规模和野心](/content/gnews/17/README.md)
- ` MOSREC`
-
-### [一个打给澳洲北领地州政府办公室的电话揭示出强制疫苗背后的阴谋](/content/gnews/18/README.md)
+### [灭共七剑客之一班农大师论法治基金和法治社会对灭共的贡献](/content/gnews/3/README.md)
  ` 澳喜农场`
 
-### [安倍称与台湾有关的突发事件对日美都是紧急事件](/content/gnews/19/README.md)
- ` HimalayaRussia`
-
-### [日本东京方舟农场文化灭共组作品欣赏](/content/gnews/20/README.md)
- ` WindTalker`
-
-### [缅甸昂山素季再次受到腐败指控](/content/gnews/21/README.md)
- ` HimalayaRussia`
-
-### [2018年6月5日郭文贵先生报平安直播全文字版](/content/gnews/22/README.md)
- ` 温哥华扬帆农场七哥直播全文听写组`
-
-### [秘翻在线: 中共大型加油机首现台海上空](/content/gnews/23/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [篮球皇帝勒布朗詹姆斯确定感染中共病毒](/content/gnews/24/README.md)
- ` 日本东京方舟农场`
-
-### [WEF对2030年的预测包括人们失去财产权和沦陷的美国](/content/gnews/25/README.md)
+### [中共面临的形势和苏联灭亡前一摸一样](/content/gnews/4/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [文·贵天成——文贵先生谈“黑石集团”（二）](/content/gnews/26/README.md)
- ` 墨尔本雅典娜农场`
-
-### [欧盟将在全球注资3000亿欧元以替代中共“一带一路”倡议](/content/gnews/27/README.md)
- ` 纽约香草山MOS02`
-
-### [12/01/21 香港快讯 亲建制「香港研究协会」民调有「一定不投票」选项　廉署：违法与否不能一概而论](/content/gnews/28/README.md)
- ` 英喜-粵語組`
-
-### [英国监管机构命令 Facebook（Meta）出售 Giphy](/content/gnews/29/README.md)
- ` wenwu`
-
-### [你们都感觉像他们感觉过的吗](/content/gnews/30/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [2021/12/01大卫作战室直播精要](/content/gnews/31/README.md)
+### [拜登遇新挫折：法官否决了3个州承包商的疫苗接种授权](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [希腊对60岁以上未接种疫苗者处以每月 144 元的罚款](/content/gnews/32/README.md)
+### [拜拉姆博士公开反对政府滥用快速抗原检测](/content/gnews/6/README.md)
  ` MG FARM`
 
-### [媒体集团响应班农 要求司法部公开调查文件](/content/gnews/33/README.md)
- ` HimalayaRussia`
+### [【草根访谈】第284期新闻概要](/content/gnews/7/README.md)
+ ` WindTalker`
 
-### [2018年6月15日郭文贵先生直播全文字版](/content/gnews/34/README.md)
- ` 温哥华扬帆农场七哥直播全文听写组`
+### [面对中共日益增长的威胁，五角大楼计划扩充军事基地](/content/gnews/8/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [GTV新闻访谈简报|2021年12月1日早](/content/gnews/35/README.md)
+### [中共释放新一轮病毒的真实意图](/content/gnews/9/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [那些为“无苗”离职人员提供失业救济的福利州](/content/gnews/10/README.md)
+ ` wenwu`
+
+### [中国不是在“购买”所罗门群岛，而是在购买台湾](/content/gnews/11/README.md)
+ ` MG FARM`
+
+### [泄露的文件显示，习近平及中共高官与镇压维吾尔族有关](/content/gnews/12/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [中共的体制让习近平也生活在恐惧中](/content/gnews/13/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [加拿大在未经您的同意下，您 5 岁的孩子是否可以接种疫苗](/content/gnews/14/README.md)
+ ` MG FARM`
+
+### [从新变种病毒命名排序看共产党的做贼心虚](/content/gnews/15/README.md)
  ` 纽约香草山MOS01`
 
-### [有声|美国最高法院拒绝麻州医护人员疫苗暂停申请](/content/gnews/36/README.md)
+### [在悉尼买投资房, 是赚还是亏？](/content/gnews/16/README.md)
+ ` 走进澳洲`
+
+### [特鲁多政府泄露了您的私人抵押贷款数据](/content/gnews/17/README.md)
+ ` MG FARM`
+
+### [重磅！欧洲某金融强国主动批准喜联储数字银行牌照](/content/gnews/18/README.md)
+ ` YALUN 亚伦`
+
+### [日本东京方舟农场文化灭共「力挺班农」](/content/gnews/19/README.md)
+ ` WindTalker`
+
+### [美海军司令呼吁在太平洋部署更多航母威慑中俄避免冲突](/content/gnews/20/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [有声|澳国防部长警告 必须警惕中共的军事规模和野心](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [文贵爆料 12.1：喜联储的两个数字银行已成型，一个数字帝国正在崛起](/content/gnews/37/README.md)
+### [一个打给澳洲北领地州政府办公室的电话揭示出强制疫苗背后的阴谋](/content/gnews/22/README.md)
+ ` 澳喜农场`
+
+### [安倍称与台湾有关的突发事件对日美都是紧急事件](/content/gnews/23/README.md)
+ ` HimalayaRussia`
+
+### [日本东京方舟农场文化灭共组作品欣赏](/content/gnews/24/README.md)
+ ` WindTalker`
+
+### [缅甸昂山素季再次受到腐败指控](/content/gnews/25/README.md)
+ ` HimalayaRussia`
+
+### [2018年6月5日郭文贵先生报平安直播全文字版](/content/gnews/26/README.md)
+ ` 温哥华扬帆农场七哥直播全文听写组`
+
+### [秘翻在线: 中共大型加油机首现台海上空](/content/gnews/27/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [篮球皇帝勒布朗詹姆斯确定感染中共病毒](/content/gnews/28/README.md)
+ ` 日本东京方舟农场`
+
+### [WEF对2030年的预测包括人们失去财产权和沦陷的美国](/content/gnews/29/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [文·贵天成——文贵先生谈“黑石集团”（二）](/content/gnews/30/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [欧盟将在全球注资3000亿欧元以替代中共“一带一路”倡议](/content/gnews/31/README.md)
+ ` 纽约香草山MOS02`
+
+### [英国监管机构命令 Facebook（Meta）出售 Giphy](/content/gnews/32/README.md)
+ ` wenwu`
+
+### [你们都感觉像他们感觉过的吗](/content/gnews/33/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [2021/12/01大卫作战室直播精要](/content/gnews/34/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [媒体集团响应班农 要求司法部公开调查文件](/content/gnews/35/README.md)
+ ` HimalayaRussia`
+
+### [2018年6月15日郭文贵先生直播全文字版](/content/gnews/36/README.md)
+ ` 温哥华扬帆农场七哥直播全文听写组`
+
+### [GTV新闻访谈简报|2021年12月1日早](/content/gnews/37/README.md)
+ ` 纽约香草山MOS01`
+
+### [文贵爆料 12.1：喜联储的两个数字银行已成型，一个数字帝国正在崛起](/content/gnews/38/README.md)
  ` 秘密翻译组-原创组`
 
-### [2021年12月1日文贵先生直播小飞象大雨围城速记](/content/gnews/38/README.md)
+### [2021年12月1日文贵先生直播小飞象大雨围城速记](/content/gnews/39/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [美日12月开启对抗中共导弹战的联合军演](/content/gnews/39/README.md)
+### [美日12月开启对抗中共导弹战的联合军演](/content/gnews/40/README.md)
  ` GTV新闻访谈`
 
-### [五国34舰联合军演守护印太](/content/gnews/40/README.md)
+### [五国34舰联合军演守护印太](/content/gnews/41/README.md)
  ` GTV新闻访谈`
 
-### [12/01/2021 国际财经快讯：鲍威尔称将加快结束债券购买；投资者押住中共病毒新变种影响不大，股市轰然走高](/content/gnews/41/README.md)
+### [12/01/2021 国际财经快讯：鲍威尔称将加快结束债券购买；投资者押住中共病毒新变种影响不大，股市轰然走高](/content/gnews/42/README.md)
  ` 秘密翻译组金融团队`
-
-### [黑色星期五令人失望，网络星期一销售额首次下降](/content/gnews/42/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [墙内要闻汇编 12月1日](/content/gnews/43/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

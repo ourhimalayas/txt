@@ -2,41 +2,59 @@
 ---
 
 
-## 有声|澳国防部长警告 必须警惕中共的军事规模和野心
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1711734/)
+## 特鲁多政府泄露了您的私人抵押贷款数据
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1711806/)
 
-配音：香草山香港部 – 文凯琳
+作者：Sheila Gunn Reid 
+翻译：HimaFAFA
 
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-近日，澳大利亚国防部长达顿在新闻发布会上发出警告，为避免在印太地区发生冲突，澳大利亚必须警惕中共的军事规模和野心。
 
-达顿指出，世界正面临着二战以来最重大的战略环境变化，澳大利亚再次处于全球战略竞争的中心区域。印太地区紧张局势持续上升，中共病毒疫情又加剧了局势的恶化。
+加拿大政府的加拿大抵押和住房公司 (CMHC) 刚刚将 900 万加拿大人的信用评分、个人传入数据、地址和家庭债务负担移交给研究人员、智囊团和政策专家。
 
-达顿进一步表示，中共政府一贯谎称维护和确保印太地区和世界的稳定繁荣，维护航行自由和海上航线的安全，和平协商解决领土争端。但事实却完全相反。中共政府所采取的行动都不是以和平为目的，令人警觉。
+你可能没有听说过，因为在政府侵犯如此多加拿大人的隐私（可能是为了盈利）之前，它没有费心去征求许可。
 
-中共2020年核弹头储备数量估计为二百枚，未来十年间，预计达到七十万一千枚。包括霍巴特在内的所有澳大利亚主要城市，都在中共导弹射程内。
+黑锁的记者已经报道这个故事三年了，他们最近 10 月份发表的文章详细独家报道了受数据伤害的加拿大人的数量：
 
-中共干涉印太地区安全和经济的野心非常明显，将导致澳大利亚和周边很多国家的军事和经济状况处于非常危险的境地。达顿呼吁，为维护国家主权和国际法，所有友好国家应齐心协力，向中共政府施压，并尽最大努力避免军事冲突。否则，误解、误判或敌意将导致灾难性冲突。
+联邦机构迄今为止最大的数据挖掘是在没有任何议会监督的情况下进行的。记录显示从未咨询过隐私专员办公室。
 
-文字版原文：[澳国防部长警告 必须警惕中共的军事规模和野心](https://gnews.org/zh-hans/1703468/)
+负责人在一份长达 28 页的隐私协议中表示，只有在 CMHC 获得借款人同意的情况下，才会交出记录。根据文件，没有人寻求同意。CMHC 反而要求银行同意共享其客户的信息。
 
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
-**更多资讯，更多关注**
+CMHC 还使用来自 900 万个个人账户的信息，通过所谓的“房屋数据交换”向建筑商、经济学家和贷方提供数据。该机构没有解释数据是否被出售，但表示在数据交换收集信息之前，所有个人信息都已被删除。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+反叛新闻提交访问信息以作进一步记录。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+我们想要有关 CMHC 自 2018 年 1 月 18 日以来收集抵押贷款持有人数据的任何通信副本。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+我想知道加拿大人的私人财务信息是否被委托给它的政府机构出售和出售价格。
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+我们没有收到我们想要的记录。
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+相反，我们收到了一封信，告诉我们政府需要一年的时间来交出文件（330 天），加上根据当前的信息访问法，他们可能再需要 30 天才能回复我们。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+他们必须先联系参与沟通的人，以获得他们的许可，然后才能移交。
+
+事实上，我们并没有期望，因为黑锁的信息已经经历了三年的延迟才能获得他们现所拥有的信息。
+
+来源：https://www-rebelnews-com.translate.goog/trudeau\_government\_gave\_away\_private\_mortgage\_data\_delaying\_our\_investigation?\_x\_tr\_sl=en&\_x\_tr\_tl=zh-CN&\_x\_tr\_hl=en-US
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

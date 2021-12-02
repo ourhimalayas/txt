@@ -2,89 +2,152 @@
 ---
 
 
-## 中共的体制让习近平也生活在恐惧中
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1711865/)
+## 中共释放新一轮病毒的真实意图
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1711913/)
 
-[https://gtv.org/video/id=61a7071c3ff6481adce6dea3](https://gtv.org/video/id=61a7071c3ff6481adce6dea3)
+[https://gtv.org/video/id=61a7076f3ff6481adce6ded3](https://gtv.org/video/id=61a7076f3ff6481adce6ded3)
 
-所有这些的背后是什么
-Qué hay detrás de todo esto
+实际上习的思维
+En realidad, el pensamiento de Xi
 
-战友们, 今天都能看到
-Compañeros luchadores, hoy pueden ver
+我知道它共产党包括这些
+Sé que el PCCh incluye estos
 
-是共产党这个魔鬼的体制
-Es el sistema de demonio del Partido Comunista
+很清楚他这个战略要干嘛
+Sé claramente que está haciendo con esta estrategia
 
-才能培养出一个这样的人
-Para poder entrenar a una persona así
+把这一波（病毒）再撂向美国、欧洲
+Envía esta ola (virus) a Estados Unidos y Europa
 
-才是习近平今天能全天下而不顾(的原因)
-Y es la razón por la cual hoy Xi Jinping puede dejar al mundo entero
+让你经济供应链断掉
+Haciendo que tu cadena de suministro económico se corte
 
-他自己连门都不敢出了
-Él mismo no se atreve de salir de la puerta de su casa
+让你们活在恐惧之中
+Hacer que vivan en el temor
 
-习近平连国都不敢出了
-Xi Jinping no se atreve a salir del país
+特别是让你们内乱
+Especialmente provocarles conflicto interno
 
-连中南坑里都不让人知道我在哪
-Hasta la cueva del PCCh no saben dónde estoy
+他关键要制造内部的局部的动乱和国家内部动乱
+Su clave es crear disturbios locales y disturbios internos dentro del país
 
-真的, 习从过去2020年的1月份到现在
-Es verdad, Xi desde enero de 2020 hasta ahora
+然后呢 意在台湾
+Y luego, la intención está en Taiwán
 
-习几乎是居无定所
-Casi no tiene un hogar permanente
+为啥我说他一定十月到十二月份来放这个毒呢
+¿Por qué digo que seguramente de octubre a diciembre soltará este virus?
 
-四处流窜
-Ha estado corriendo por todas partes
+放这个毒
+El propósito de propagar este virus
 
-掩人耳目
-Cubriéndose
+第一、 以毒威胁你参不参加奥运会
+Primero, amenazarte con este virus para ver si participas en los Juegos Olímpicos
 
-装神弄鬼
-Haciendo trucos
+我有解药
+Yo tengo el antídoto
 
-这就是习近平过去一年的生活
-Esta es la vida de Xi en este último año
+以解药要挟你 来吧
+Amenazarte con el antídoto, ¡venga!
 
-他绝不敢让任何人知道他住在哪
-Él absolutamente no se atreve a decirle a ninguna persona dónde se está viviendo
+第二
+Segundo
 
-他也不敢说他在哪
-O dónde está
+我既然有解药让你来参加奥运会
+Ya que tengo el antídoto para que vengas a participar en los Juegos Olímpicos
 
-他也不敢告诉人家吃啥
-Tampoco le dice a las personas qué come
+我也有解药能帮你未来
+También tengo el antídoto para tu futuro
 
-有病看医生, 恨不得一天都换100个医生
-Si se enferma, desea cambiar 100 doctores en un sólo día
+我要打台湾
+Yo voy a atacar Taiwán
 
-然后天天要管理全世界
-Y todos los días quiere administrar el mundo
+一切的一切都是要打台湾
+Todo por atacar a Taiwán
 
-然后抓来抓去
-Arrestando a las personas
+你看俄罗斯这个对乌克兰的动作
+Mira los movimientos de Rusia hacia Ucrania
 
-他就是毛泽东, 斯大林, 希特勒的一个总和的结果都没有习今天疯狂
-Él es el resultado final del conjunto de Mao Zedong, Stalin y Hitler, y ninguno es tan loco como lo es Xi hoy
+我啥时候说的
+¿Cuándo fue que lo dije?
 
-而且他的恐惧超过任何人
-Y su miedo supera a cualquier otra persona
+看看我去年爆料 我说过两三次
+Vaya a ver mi manifestación del año pasado, lo dije 2 a 3 veces
 
-**原视频网址：**[https://gettr.com/post/pi1ce5056a](https://gettr.com/post/pi1ce5056a)
+俄罗斯的哥们给我打电话
+Un amigo ruso me hizo una llamada
+
+文贵最好别提到我们老大 就是普京
+“Wengui, mejor no menciones a nuestro boss” quiere decir Putín
+
+也别提我们
+Tampoco nos menciones
+
+我很好的这位女朋友
+Una muy buena amiga
+
+她在北京常住
+Ella vive en Beijing la mayoría del tiempo
+
+是普京的好姐妹吧 咱就这么说
+Digamos que es una buena hermana de Putín
+
+一定我说过
+Yo seguro dije que
+
+共产党对台湾的动作
+El PCCh habrá movimiento hacia Taiwán
+
+一定跟俄罗斯和乌克兰同时动作
+Y seguro será al mismo tiempo que Rusia hacia Ucrania
+
+我去取乌克兰 你取你的台湾
+Yo tomo mi Ucrania, tu tomas tu Taiwán
+
+美国没有任何情况
+Estados Unidos no habrá ninguna situación
+
+没有任何可能同时打两场战争
+No habrá ninguna posibilidad de tomar 2 guerras al mismo tiempo
+
+也不可能同时对中俄开战
+Y tampoco es posible abrir fuego hacia China y Rusia al mismo tiempo
+
+这是绝对的 这个是真的
+Esto en lo absoluto es verdadero
+
+所以不存在任何其他
+Por eso no existe otra cosa
+
+一切为了台湾和中俄是协调行动
+Todo esto es por Taiwán y por coordinar acciones de Rusia y China
+
+局部的动乱
+Causar disturbios locales
+
+然后掩盖他的真实行动
+Y omitir su verdadera acción
+
+然后继续放毒
+Luego seguir soltando virus
+
+而且我告诉你解药管用
+Además, te digo que el antídoto si funciona
+
+谢谢舒先生（舒屏风）
+Gracias Sr. Shu (Shu Pingfeng)
+
+**原视频网址：**[https://gettr.com/post/pi9b9ucbe8](https://gettr.com/post/pi9b9ucbe8)
 
 日期：11/30/2021
-原视频标题：中共的体制让习近平也生活在恐惧中
-El sistema del PCCh hace que Xi Jinping también viva con miedo原视频日期：11/26/2021
-**原视频网址：**https://gettr.com/post/pi1ce5056a
-任务编号：3025
-视频时间段：0:00-1:11
+原视频标题：中共释放新一轮病毒的真实意图
+La verdadera intención del PCCh de soltar el nuevo virus原视频日期：11/29/2021
+原视频网址：https://gettr.com/post/pi9b9ucbe8
+任务编号：3058
+视频时间段：0:00-1:46
 
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+西听校：洛杉矶盘古农场- 小文萱
+翻译：洛杉矶盘古农场- 霙霙（文霙）
+翻译终校：洛杉矶盘古农场- 小文萱
 字幕+视频制作：洛杉矶盘古农场 -青梅煮酒
 审片：洛杉矶盘古农场 – 银龙
 发布 : 洛杉矶盘古农场 – 彩虹 Rainbow

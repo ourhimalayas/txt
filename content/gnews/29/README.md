@@ -2,54 +2,48 @@
 ---
 
 
-## 英国监管机构命令 Facebook（Meta）出售 Giphy
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1711544/)
+## WEF对2030年的预测包括人们失去财产权和沦陷的美国
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1711638/)
 
-编译：西班牙巴塞罗那喜悦农场-wenwu
+**据《www.thegatewaypundit.com》作者：Joe Hoft，2021年11月30报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/ad1en-a2i1j.jpg)**图片源自thegatewaypundit.com**
+**世界经济论坛对2030年做出了8项预测。以下是这些预测和一些评论：**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-6.jpg)路透社/达多·鲁维奇
+1、所有资产都将成为服务。丹麦议员伊达·奥肯写道，“我不拥有任何东西。我不拥有一辆车。我不拥有房子。我不拥有任何电器或任何衣服”。在2030年的城市中，购物是一个遥远的记忆，其居民已经破解了清洁能源，并按需借取他们所需要的东西。这听起来很乌托邦，直到她提到她的一举一动都被跟踪，城市外面生活着成群的不满者，这是一个社会一分为二的终极描述。
+这听起来像是马克思主义101。
 
-竞争和市场管理局**(CMA)**表示，它发现去年对**Giphy**的收购将减少社交媒体平台之间以及显示广告方面的竞争。
+2、英国国家物理实验室气候与环境主管简·伯斯顿（Jane Burston）预测说，2017年，中国率先推出了一吨二氧化碳排放权的交易市场，使世界走上了单一碳价的道路，有力地刺激了人们抛弃化石燃料。与此同时，欧洲发现自己处于廉价、高效的太阳能电池板交易的中心，因为可再生能源的价格急剧下降。
+把中共国这个地球上污染最严重的国家作为碳税的例子是可笑的。
 
-最近被重新命名为**Meta Platforms**的**Facebook**表示，它可以对**CMA**的决定提出上诉。它有四周的时间进行上诉。
+3、美国的统治地位已经结束。我们有少数几个全球大国。民族主义国家将卷土重来，Igarapé研究所的研究主任Robert Muggah写道。少数国家——美国、俄罗斯、中国、德国、印度和日本是其中的佼佼者，不再是单一的力量，而是显示出半帝国主义的倾向。然而，与此同时，国家的作用受到了包括城市崛起和网络身份传播等趋势的威胁。
+马克思主义者欢呼雀跃，因为阻止他们接管世界的唯一国家被从内部瓦解。
 
-**CMA**对**Facebook-Giphy**的独立调查主席**Stuart McIntosh**说：**“****Facebook**和**Giphy**之间的合作已经消除了显示广告市场上的一个潜在挑战者；通过要求**Facebook**出售**Giphy**，我们正在保护数百万社交媒体用户，并促进数字广告的竞争和创新。**”**
+4、告别医院，迎接家庭医院。技术将进一步扰乱疾病，医学博士、世界银行顾问梅兰妮·沃克写道。我们所知道的医院将被淘汰，由于自动驾驶汽车的出现，事故会减少，预防和个性化医疗方面也会有很大的进步。手术刀和器官捐赠者将被淘汰，微小的机器人管道和生物打印的器官将被使用。
+人类变成了机器，生命不再因其神圣的存在而受到欢迎。
 
-**Facebook**说它不同意该决定。
+5、我们吃的肉要少得多。英国利兹大学人口生态学教授蒂姆·本顿（Tim Benton）写道：“与我们的祖父母一样，我们将把肉当作一种享受而不是主食。得益的不会是大的农业或小的手工生产者，而是两者的结合，重新设计的方便食品更健康，对环境的危害更小。”
+不吃豌豆，怎么能有布丁？
 
-**“**我们正在审查这一决定，并考虑所有的选择，包括上诉，**”****Meta**的一位发言人在一份声明中说。
+6、今天的叙利亚难民，2030年的CEO们。受过高等教育的叙利亚难民到2030年将成年，这为那些被迫逃离冲突的人的经济融合提供了理由。非政府组织“蓝玫瑰指南针”的创始人兼首席执行官洛纳·索利斯（Lorna Solis）写道，世界需要为迁移中的人口做好准备，因为气候变化将使10亿人流离失所。
+叙利亚难民将在BLM变成SRM之后接替。
 
-**CMA**在**10**月对该公司进行了创纪录的**7000**万美元的[罚款](https://www.reuters.com/technology/britain-fines-facebook-70-mln-breaching-order-giphy-deal-2021-10-20/)，因为它违反了在调查收购期间实施的命令，它在**8**月说，它可能需要**Facebook**出售**Giphy**（[**GIF**制造商](https://www.reuters.com/technology/facebook-may-have-sell-giphy-britains-competition-concerns-2021-08-12/)）。
+7、建立西方的价值观将被考验到崩溃的地步。人权观察执行主任肯尼斯·罗斯（Kenneth Roth）写道：“我们忘记了支撑我们民主制度的制衡机制，这将给我们带来危险。”
+当建立西方的价值观消失时，文明也会消失。
 
-竞争对手接入
+1. “到2030年代，我们将准备好让人类走向红色星球。” 更重要的是，一旦我们到达那里，我们可能会发现外星生命的证据，美国宇航局首席科学家艾伦·斯托凡写道。大科学将帮助我们回答关于地球上生命的大问题，并为空间技术开辟实际应用。
+如果世界经济论坛的预测是正确的，人们将乞求离开这个星球。
 
-据报道，Facebook在2020年5月以4亿美元的价格收购了制作和分享动画图片（即GIFs）的网站Giphy，以便将该业务与其Instagram照片分享应用整合。它已向CMA为该交易进行了辩护。
 
-GIFs的另一个主要供应商是谷歌的Tenor。
+**原文连接：**[https://www.thegatewaypundit.com/2021/11/insane-world-economic-forums-predictions-2030-include-no-property-ownership-us-weak-no-one-owns-anything/](https://www.thegatewaypundit.com/2021/11/insane-world-economic-forums-predictions-2030-include-no-property-ownership-us-weak-no-one-owns-anything/)
 
-然而，监管机构担心Meta可能会拒绝竞争对手进入Giphy GIFs，或迫使TikTok、Twitter和Snapchat等公司进入;监管机构还表示，Giphy在交易前在美国推出的创新广告服务可能会扩展到其他市场，比如英国，Meta控制着70亿英镑（93亿美元）的显示广告市场的近一半;CMA一直在加强对大科技领域的监管。
+翻译：洛杉矶盘古农场 — TrueSky
+校对：洛杉矶盘古农场 — Mike Li
+编辑：洛杉矶盘古农场 — 心照
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-上周，Alphabet公司的谷歌承诺对其Chrome浏览器的数据使用进行更多限制，以解决CMA对禁止广告商用来追踪消费者的第三方cookies计划的担忧。
-
-**简评：**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-7.jpg)REUTERS/Dado Ruvic/Illustration
-
-**一则[路透社](https://www.reuters.com/technology/facebook-risks-meta-flop-metaverse-developers-say-2021-12-01/)的相关报道。**
-
-**元空间参与者怀疑脸书是否准备好接受推动元宇宙的创造力和利润的精神（元宇宙的投资者和建设者，也是Animoca Brands的主席和联合创始人Yat Siu表示：脸书的元宇宙是假的）。**
-
-**基于区块链的资产交易产品，不可伪造的代币（NFTs）在很大程度上是不受监管的，欺诈者潜伏其中。任何人都可以创建和出售NFT，而且对其价值没有任何保证。**
-
-**里德·史密斯律师事务所（Reed Smith）专门从事技术和媒体法的合伙人索菲·古森斯（Sophie Goossens）说：“这让法律界人士有点头疼，他们试图将词汇与实际发生的情况相协调；法律术语中的所有权意味着……（通常）对一种资源的垄断，这种垄断由国家强制执行；你被授予对国家信托基金的数字所有权的权利类型略有不同。你可能没有权利完全控制你作为NFTs拥有的资产。”（可见，我们喜币可追查的强大）**
-
-**新闻来源：**[reuters.com] [UK watchdog orders Facebook owner Meta to sell Giphy](https://www.reuters.com/technology/britain-regulator-directs-facebook-sell-gif-maker-giphy-2021-11-30/) | 发布时间：2021年11月30日
-
-* * *
-
-*发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-1.jpeg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

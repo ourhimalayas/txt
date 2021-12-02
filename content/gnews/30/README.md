@@ -2,256 +2,61 @@
 ---
 
 
-## 你们都感觉像他们感觉过的吗
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1711519/)
+## 文·贵天成——文贵先生谈“黑石集团”（二）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1711637/)
 
-[https://gtv.org/video/id=61a6f86c3ff6481adce6d4b7](https://gtv.org/video/id=61a6f86c3ff6481adce6d4b7)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3-2-3.jpeg)图片来源：雅典娜农场设计组
+整理：BENJ1
+编辑：李易通
 
-**Andrew Cuomo (Former NY governor)**
-**安德鲁·科莫（前纽约州州长）**
+**往期回顾**：
+[文·贵天成——文贵先生谈“黑石集团”（一） – GNEWS](https://gnews.org/zh-hans/1710481/)
 
-I think it’s going to be a very skeptical American public about taking the vaccine
-我认为美国公众对接种疫苗持怀疑态度
+郭文贵**2018**年**4**月**7**日第一次直播
 
-and it should be
-而且应该提出质疑
+我可以肯定的说，当时吴小晖第一次飞回香港待了几天，是卓芮和专案组的沟通，和王岐山的当面承诺，包括上边的承诺，专案组在各方面的问话的提纲都弄好以后，到了香港跟吴小晖核对完，这时他才回的北京。所以那次回去他暂时没事，这是共产党精心布置的一场很大的局。
 
-Ilhan Omar (Minnesota Representative)
-伊尔汗·奥马尔（明尼苏达州众议员）
+在这之前，吴小晖在纽约的时候，陈国庆还陪在左右跟他一起吃饭，吴小晖还见了高盛的投资者。所以你看一看，吴小晖的资产会去哪里？现在华尔道夫酒店很快又要卖给谁了？黑石集团。所有王岐山、孟建柱的资产，海航资产的买和卖都会经过黑石，卖回去又归黑石。
 
-we can’t trust the president and take his word
-我们不能相信总统并相信他的话
+大家去想想这正常吗？未来会看到，吴小晖的很多资产又回到黑石了，吴小晖的资产姓国营、私营的说法都是胡扯八道，要看最后控制权在谁手里。那么，我们现在必须要问一下，如果吴小晖这个人被抓，今天这两条罪是中共设立的布袋罪，中国任何一个老板有这两条罪都该被抓。
 
-and take a vaccine that might cause harm to us.
-而且接种可能对我们造成伤害的疫苗
+郭文贵先生2018年4月16日直播
 
-Joe Biden (US president)
-乔·拜登（美国总统）
+王岐山来不来还不一定，还在游说，一定来，他得来，他不来怎么忽悠习主席？他得忽悠习主席，“美国我行，到美国去，只有我王岐山搞得定，还有我的高燕燕、高盛、黑石、华尔街，那就我行了，除了我还有谁行啊？”反正就是吹牛吧，牛皮吹破了也没法追究他，现在都是吹牛往大了吹，而且得用社交媒体吹，是吧？
 
-If and when the vaccine comes
-如果真的有疫苗研制出来
+郭文贵先生2018年4月19日第三次直播
 
-it’s not likely to go through all the tests
-它不太可能通过所有测试
+最重要的同时也是非常可怕的事情，这些文件来自于美国的司法部，来自塞申斯的办公室。这个文件就证明了美国司法部里有很多卖国贼为他们中共工作。而且非常夸张的事情，孙力军竟然原来跟我在视频中说：“我绝对不是为了你，我拿我奶奶发誓，我拿我祖宗发誓，我没提你文贵大哥一个字。”但是从这个Email里就看到了，孙力军确确实实是被取消掉了会议。
 
-the trails that are needed to be done
-以及需要完成的途径
+但是他始终通过这个公关公司，还有吴征、Steve Wynn，还有那个黑石集团，包括川普总统的竞选经理，想办法跟塞申斯联系，并且他提出了新的条件，就是希望美国司法部答应把郭文贵的证件和签证给拿掉，包括我妻子和女儿的。还有几个高管，他们都很明确的通过Email的信息表示，要把我们的证件号码列入不能飞行的名单里（No-Fly List）。
 
-Dana Bash (CNN anchor)
-达娜·巴什（CNN 主播）
+郭文贵先生2018年12月27日视频
 
-Let’s just say there’s a vaccine
-假设有一款疫苗被研制出来
+海航哪一天不在做内部交易？陈锋、王健哪一秒钟不做内部交易？高燕燕成立了中金，跟王岐山睡觉，是第一次拿着中国人民几十亿的钱投给了黑石，下星期就赔了20%，一直到现在还在赔，这不叫内部交易吗？这不叫强迫交易吗？高燕燕的几千亿美元，愿意做内部交易吗？她是直接拿，哪有什么交易。
 
-that is approved and even distributed before the election.
-在选举前获得批准甚至分发
+郭文贵先生2019年1月16日视频第二部分
 
-Would you get it?
-你会用它吗？
+我相信美国和纽约的司法机关，很快会对海航和慈航展开调查，包括和海航有关的上市公司，以及海航跟美国高盛之间的这种关系，包括跟黑石，我相信接下来会有一系列的事情发生。所以接下来，海航的事情会非常的热闹，刘呈杰的事情会浮出水面。贯军的爹娘是谁？爹就别说了，就是王岐山，贯军的娘，贯军的家族也会浮出水面。
 
-Kamala Harris (Vice President)
-卡马拉·哈里斯（副总统）
+郭文贵先生2019年8月7日视频
 
-Well, I think that’s gonna be an issue for all of us.
-好吧，我认为这对我们所有人来说都是一个问题
+大家觉得这是偶然吗？太盟是香港版的海航，太盟投资是王岐山洗钱的钱庄。太盟所有接管的地产和公司都是海航的下一手。香港有一个太盟，美国有一个黑石基金，几乎海航百分之六七十的项目都是通过美国的黑石基金和香港太盟做的。刚刚的海航转让了40%的控股权给香港的城建投，城建投是海航王岐山洗钱的重要上市公司。如果天底下还有一个罪叫内部交易、操纵股市的话，非香港建投莫属，那就是陈峰、王健、王岐山、田国立和田惠宇等控制的上市公司。这是整个海航洗钱、骗钱、内部交易、骗贷、盗国的重要工具之一，它的背后跟中共国内的天津渤海公司和将近60家上市公司相互换手、相互坐庄、相互交易，在股市上洗钱、骗钱，而且他们整个太盟集团还在伦敦上市。
 
-Joe Biden
-乔·拜登
+郭文贵先生2019年9月8日视频
 
-When we finally do God willing, get a vaccine, who’s gonna take the shot?
-当我们最终做了上帝的旨意，该接种疫苗时，谁会注射呢？
+你们记得几个月前我在纽约出席一个大学俱乐部，由这些大佬们召开的一个会议吗？在会上很多人挑战凯尔·巴斯，但没人挑战我。他们说：“凯尔巴斯你想做空中国、做空港币，但你甭想在这瞎忽悠，像黑石基金、高盛、摩根士丹利这些投资机构都说，你甭忽悠我们，我们跟中国现在好着呢。我们在香港投资那么多钱。”凯尔·巴斯一个人对付这么多人。我代表我的哥们儿发言的时候全场鸦雀无声，没人敢挑战我，我当时就告诉他们，你们将会死无葬身之地。
 
-Who’s gonna take the shot？
-谁会注射呢？
+郭文贵先生2019年9月15日
 
-CNN guest
-CNN嘉宾
+王岐山和美国的布隆伯格要在北京搞一个大的论坛，参加的都是牛叉的人，像黑石的苏世明、布隆伯格、过去的财长高盛的主席鲍尔森、现在的高盛主席、摩根史丹利的主席、还有共和党和民主党的几个大佬。而且最夸张的事情，还邀请了班农，让班农去，全程安排，国家一级警卫，只要班农先生来，给予国宾待遇。这意味着什么？意味着共产党要花血本，蓝金黄最支持香港运动的人。
 
-we will need to have access to the vaccine results
-我们需要获得疫苗结果
+发布：Peter Xin
 
-so that we can make our independent assessment to make sure
-以便我们可以进行独立评估以确保
-
-that Donald Trump’s fingerprints are not on it.
-唐纳德·川普的痕迹不在上面
-
-Joe Biden
-乔·拜登
-
-You can be the first one to say put me, sign me up?
-你可以第一个说把我，登记我吗？
-
-They now say it’s okay.
-他们现在说没关系
-
-Andrew Cuomo
-安德鲁·科莫
-
-Is the vaccine safe? Frankly, I’m not going to trust the federal government’s opinion.
-疫苗安全吗？坦率地说，我不会相信联邦政府的意见
-
-And I wouldn’t recommend the New Yorkers based on the federal govern-ment’s opinion
-我不会根据联邦政府的意见来推荐给纽约人
-
-Joe Biden
-乔·拜登
-
-and the question of whether it’s real when it’s there
-以及它是否真实的，什么时候它会出现的问题
-
-that requires enormous transparency.
-这需要极大的透明度
-
-Dana Bash
-达娜·巴什
-
-Would you trust that vaccines？
-你会相信疫苗吗
-
-Kamala Harris
-卡马拉·哈里斯
-
-there’s very little that we can trust that comes out of Donald Trump’s mouth.
-从唐纳德·川普的嘴里说出来的，我们可以相信的很少
-
-Patty Murray (Senator)
-帕蒂·默里（参议员）
-
-We cannot take for granted this process will be free of political influence.
-我们不能想当然地认为这个过程将不受政治影响
-
-Andrew Cuomo
-安德鲁·科莫
-
-I don’t trust the President and I don’t trust the FDA.
-我不信任总统，也不信任食品和药物管理局
-
-Joe Biden
-乔·拜登
-
-If Donald Trump can’t give answers
-如果唐纳德·川普不能给出答案
-
-and his administration can’t give answers to these three questions.
-而且他的政府无法回答这三个问题
-
-The American people should not have confidence.
-美国人民不应该有信心
-
-Andrew Cuomo
-安德鲁·科莫
-
-You’re going to say to the American people now.
-你现在要对美国人民说
-
-Here’s a vaccine, It was new, it was done quickly.
-这是一种疫苗，它是新的，很快地完成的
-
-But trust this federal administration and their health administration that it’s safe.
-但是要相信这个联邦政府和他们的卫生行政部门是安全的
-
-Kamala Harris
-卡马拉·哈里斯
-
-I will say that I would not trust Donald Trump.
-我会说我不会相信唐纳德·川普
-
-George Stephanopoulos (ABC co-anchor on Good Morning America)
-乔治·斯蒂芬诺普洛斯（美国广播公司早安美国联合主播）
-
-how confident are you in the approval process the FDA right now?
-你现在对食品和药物管理局的批准程序有多大信心？
-
-Andrew Cuomo
-安德鲁·科莫
-
-How confident am I? I’m not confident?
-我有多确信？我没信心？
-
-Yes, I would be hesitant, but I’m gonna ask a lot of questions.
-是的，我会犹豫，但我会问很多问题
-
-Andrew Cuomo
-安德鲁·科莫
-
-You’re going to need someone other than this FDA.
-除了这个食品和药物管理局，你将需要其他人
-
-And this CDC saying it’s safe
-而这个疾病预防与控制中心说它是安全的
-
-Joe Biden
-乔·拜登
-
-You’ve got to make all of it available to other experts across the nation.
-你必须把所有疫苗的信息提供给全国的其他专家
-
-So they can look and see. There’s consensus this is a safe vaccine.
-所以他们可以进行检查， 一致认为这是一款安全的疫苗
-
-Tina Smith (Senator D-Minnesota)
-蒂娜·史密斯（明尼苏达州民主党参议员）
-
-What I’m worried about is that there’s some sort of October surprise
-我担心的是十月会有什么惊喜
-
-and that there is a pressure put on the decision makers here
-并且这里的决策者承受着压力
-
-to announce a vaccine in October 2020.
-在2020年10月来宣布一款疫苗
-
-Andrew Cuomo
-安德鲁·科莫
-
-We’re going to put together our own group
-我们要组建我们自己的
-
-of doctors and medical experts to review
-的医生和医学专家小组进行审查
-
-the vaccine and the efficacy and the protocol.
-疫苗、功效和方案
-
-And if they say it’s safe,
-如果他们说这是安全的
-
-then I’ll go to the people of New York
-然后我会去和纽约人说
-
-and I will say it’s safe,
-我会说这是安全的
-
-Kamala Harris
-卡马拉·哈里斯
-
-but it Donald Trump tells us that we should taken it
-但唐纳德·川普告诉我们，我们应该接种它
-
-I’m not taking it
-我不会用的
-
-**原视频链接**:[https://gettr.com/post/pi7phu2ed0](https://gettr.com/post/pi7phu2ed0)
-
-Date:11/29/2021
-原视频标题: Do y’all Feel like they Felt????
-你们都感觉像他们感觉过的吗？ ？ ？ ？
-原视频日期：2021/11/28
-原视频链接: https://gettr.com/post/pi7phu2ed0
-任务编号：KE349(3048)
-视频时间段 : 0:00-2:35
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多****资讯****，****请关****注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

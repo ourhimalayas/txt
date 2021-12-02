@@ -2,59 +2,96 @@
 ---
 
 
-## 特鲁多政府泄露了您的私人抵押贷款数据
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1711806/)
+## 中共的体制让习近平也生活在恐惧中
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1711865/)
 
-作者：Sheila Gunn Reid 
-翻译：HimaFAFA
+[https://gtv.org/video/id=61a7071c3ff6481adce6dea3](https://gtv.org/video/id=61a7071c3ff6481adce6dea3)
 
+所有这些的背后是什么
+Qué hay detrás de todo esto
 
+战友们, 今天都能看到
+Compañeros luchadores, hoy pueden ver
 
-加拿大政府的加拿大抵押和住房公司 (CMHC) 刚刚将 900 万加拿大人的信用评分、个人传入数据、地址和家庭债务负担移交给研究人员、智囊团和政策专家。
+是共产党这个魔鬼的体制
+Es el sistema de demonio del Partido Comunista
 
-你可能没有听说过，因为在政府侵犯如此多加拿大人的隐私（可能是为了盈利）之前，它没有费心去征求许可。
+才能培养出一个这样的人
+Para poder entrenar a una persona así
 
-黑锁的记者已经报道这个故事三年了，他们最近 10 月份发表的文章详细独家报道了受数据伤害的加拿大人的数量：
+才是习近平今天能全天下而不顾(的原因)
+Y es la razón por la cual hoy Xi Jinping puede dejar al mundo entero
 
-联邦机构迄今为止最大的数据挖掘是在没有任何议会监督的情况下进行的。记录显示从未咨询过隐私专员办公室。
+他自己连门都不敢出了
+Él mismo no se atreve de salir de la puerta de su casa
 
-负责人在一份长达 28 页的隐私协议中表示，只有在 CMHC 获得借款人同意的情况下，才会交出记录。根据文件，没有人寻求同意。CMHC 反而要求银行同意共享其客户的信息。
+习近平连国都不敢出了
+Xi Jinping no se atreve a salir del país
 
-CMHC 还使用来自 900 万个个人账户的信息，通过所谓的“房屋数据交换”向建筑商、经济学家和贷方提供数据。该机构没有解释数据是否被出售，但表示在数据交换收集信息之前，所有个人信息都已被删除。
+连中南坑里都不让人知道我在哪
+Hasta la cueva del PCCh no saben dónde estoy
 
-反叛新闻提交访问信息以作进一步记录。
+真的, 习从过去2020年的1月份到现在
+Es verdad, Xi desde enero de 2020 hasta ahora
 
-我们想要有关 CMHC 自 2018 年 1 月 18 日以来收集抵押贷款持有人数据的任何通信副本。
+习几乎是居无定所
+Casi no tiene un hogar permanente
 
-我想知道加拿大人的私人财务信息是否被委托给它的政府机构出售和出售价格。
+四处流窜
+Ha estado corriendo por todas partes
 
-我们没有收到我们想要的记录。
+掩人耳目
+Cubriéndose
 
-相反，我们收到了一封信，告诉我们政府需要一年的时间来交出文件（330 天），加上根据当前的信息访问法，他们可能再需要 30 天才能回复我们。
+装神弄鬼
+Haciendo trucos
 
-他们必须先联系参与沟通的人，以获得他们的许可，然后才能移交。
+这就是习近平过去一年的生活
+Esta es la vida de Xi en este último año
 
-事实上，我们并没有期望，因为黑锁的信息已经经历了三年的延迟才能获得他们现所拥有的信息。
+他绝不敢让任何人知道他住在哪
+Él absolutamente no se atreve a decirle a ninguna persona dónde se está viviendo
 
-来源：https://www-rebelnews-com.translate.goog/trudeau\_government\_gave\_away\_private\_mortgage\_data\_delaying\_our\_investigation?\_x\_tr\_sl=en&\_x\_tr\_tl=zh-CN&\_x\_tr\_hl=en-US
+他也不敢说他在哪
+O dónde está
 
-（文章仅代表作者个人观点）
+他也不敢告诉人家吃啥
+Tampoco le dice a las personas qué come
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+有病看医生, 恨不得一天都换100个医生
+Si se enferma, desea cambiar 100 doctores en un sólo día
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+然后天天要管理全世界
+Y todos los días quiere administrar el mundo
 
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+然后抓来抓去
+Arrestando a las personas
 
-**关注我们**
+他就是毛泽东, 斯大林, 希特勒的一个总和的结果都没有习今天疯狂
+Él es el resultado final del conjunto de Mao Zedong, Stalin y Hitler, y ninguno es tan loco como lo es Xi hoy
 
-Discord 账号
+而且他的恐惧超过任何人
+Y su miedo supera a cualquier otra persona
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+**原视频网址：**[https://gettr.com/post/pi1ce5056a](https://gettr.com/post/pi1ce5056a)
 
-Gettr 账号
+日期：11/30/2021
+原视频标题：中共的体制让习近平也生活在恐惧中
+El sistema del PCCh hace que Xi Jinping también viva con miedo原视频日期：11/26/2021
+**原视频网址：**https://gettr.com/post/pi1ce5056a
+任务编号：3025
+视频时间段：0:00-1:11
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 -青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

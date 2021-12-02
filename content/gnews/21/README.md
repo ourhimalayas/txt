@@ -2,26 +2,41 @@
 ---
 
 
-## 缅甸昂山素季再次受到腐败指控
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1711680/)
+## 有声|澳国防部长警告 必须警惕中共的军事规模和野心
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1711734/)
 
-俄罗斯莫斯科喀秋莎农场  银河
+配音：香草山香港部 – 文凯琳
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/12/M.jpg)efe.com
-缅甸当局通过官方媒体发布，被罢黜的缅甸领导人昂山素季(Aung San Suu Kyi)11月30日再次被控腐败。
 
-昂山素季已经被10多项刑事指控，其中包括涉嫌违反殖民时期的官方保密法。如果所有罪名成立，这位被拘留的领导人可能被判处100年以上监禁。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+近日，澳大利亚国防部长达顿在新闻发布会上发出警告，为避免在印太地区发生冲突，澳大利亚必须警惕中共的军事规模和野心。
 
-昂山素季在军方政变后被控违反反腐法，在一架直升机的租赁和购买中滥用权力，导致国家资金损失。在其他指控中，昂山素季还因非法进口对讲机而受审。她再度面临腐败指控，涉嫌收受60万美元和黄金，以及滥用职权租用土地和建筑。
+达顿指出，世界正面临着二战以来最重大的战略环境变化，澳大利亚再次处于全球战略竞争的中心区域。印太地区紧张局势持续上升，中共病毒疫情又加剧了局势的恶化。
 
-据知情人士透露，缅甸首都奈比多的一个特别法庭原定于11月30日对昂山素季煽动和违反中共病毒限制措施一案作出判决，但推迟到12月6日。
+达顿进一步表示，中共政府一贯谎称维护和确保印太地区和世界的稳定繁荣，维护航行自由和海上航线的安全，和平协商解决领土争端。但事实却完全相反。中共政府所采取的行动都不是以和平为目的，令人警觉。
 
-在今年2月的缅甸军事政变之前，昂山素季一直担任缅甸政府的国务顾问。在受到多项罪名指控的同时，缅甸当局已经警告昂山素季的律师不要公开讨论她的案情。
+中共2020年核弹头储备数量估计为二百枚，未来十年间，预计达到七十万一千枚。包括霍巴特在内的所有澳大利亚主要城市，都在中共导弹射程内。
 
-参考链接:
+中共干涉印太地区安全和经济的野心非常明显，将导致澳大利亚和周边很多国家的军事和经济状况处于非常危险的境地。达顿呼吁，为维护国家主权和国际法，所有友好国家应齐心协力，向中共政府施压，并尽最大努力避免军事冲突。否则，误解、误判或敌意将导致灾难性冲突。
 
-[https://english.kyodonews.net/news/2021/12/ad52503d57d4-myanmars-suu-kyi-slapped-with-new-corruption-charge.html](https://english.kyodonews.net/news/2021/12/ad52503d57d4-myanmars-suu-kyi-slapped-with-new-corruption-charge.html)
+文字版原文：[澳国防部长警告 必须警惕中共的军事规模和野心](https://gnews.org/zh-hans/1703468/)
+
+音频处理：喜山必胜Maverick
+发稿：Tom Li
+[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -2,42 +2,37 @@
 ---
 
 
-## 从新变种病毒命名排序看共产党的做贼心虚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1711838/)
+## 中国不是在“购买”所罗门群岛，而是在购买台湾
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1711890/)
 
-作者：纽约香草山农场 –晓仙女
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/LOGO-1.jpg)
+作者：RebelNews
+翻译：HimaCoby
 
 
 
-2021年11月30日，郭文贵先生盖文发布一则关于新变种病毒命名的视频，视频中主持人说：这个新变种的命名本身非同寻常，据《电讯报》报道，世卫组织官员跳过了希腊字母Xi，以避免污名化中共国领导人。丹尼斯先生表示：世界卫生组织开始选择用希腊字母命名病毒时，由于没有预见到希腊字母Xi，跟中共国主席习近平的习协同，便把应称之为Xi变体病毒的新变体换了名称。 文贵先生表示，从病毒命名排序的小事上，看出共产党的做贼心虚，世界命运不会被无知流氓行径的共产党掌握，这既是冥冥之中的天意。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/111.png)
-新闻链接：[https://gettr.com/post/piadug0aa8](https://gettr.com/post/piadug0aa8)
+在昨晚的节目中——以斯拉地中海秀，亚历山德拉·马歇尔（@EllyMelly 在推特）加盟以斯拉秀谈论所罗门群岛暴力抗议。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/rili.png)
+上周紧张局势升级，所罗门群岛在索加瓦雷的领导下与台湾断交并正式确定与中国的关系，这引发了所罗门群岛最大省份马莱塔的独立公投。
 
-编辑/校对/发稿：祈祷新生
+亲台抗议在马莱塔爆发抗议，呼吁脱离亲中政府独立。该岛拒绝了中国的债务陷阱外交，拒绝让太平洋其他岛国拥有中国占领的港口基础设施项目。
 
-**更多资讯，更多关注**
+（文章仅代表作者个人观点）
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**关注我们**
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+Discord 账号
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/LOGO-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
+Gettr 账号
 
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

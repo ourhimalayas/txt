@@ -2,51 +2,54 @@
 ---
 
 
-## 加拿大在未经您的同意下，您 5 岁的孩子是否可以接种疫苗
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1711857/)
+## 那些为“无苗”离职人员提供失业救济的福利州
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1711909/)
 
-作者：Drea Humphrey
-翻译：HimaFAFA
+编译：西班牙巴塞罗那喜悦农场-wenwu
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-7.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-8.jpg)迈克埃尔曼/盖蒂图片社
 
-11 月 19 日，加拿大卫生部批准将辉瑞疫苗用于 5 至 11 岁的儿童。
+一些州开始向因拒绝接种疫苗而辞职或被解雇的人，提供失业福利。这与几个月前的趋势相反，当时一系列由共和党领导的多数州过早地[选择退出](https://www.businessinsider.com/republican-states-cutting-unemployment-benefits-expanded-300-weekly-biden-stimulus-2021-5)联邦失业福利。在许多情况下，这完全停止了对零时工、自由职业者和[新近符合条件](https://www.businessinsider.com/75-million-workers-will-lose-all-unemployment-benefits-in-september-2021-8)的长期失业者的福利。
 
-但这是否意味着可以在未经父母同意的情况下在加拿大为年仅 5 岁的儿童接种新冠疫苗？
+现在，一些共和党领导的州正在率先抵制（毒）疫苗强制令，并通过立法禁止它们。以下是这些变化的梳理，重点是失业援助。
 
-令人震惊的是，在不列颠哥伦比亚省，答案是肯定的。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-9.jpg)Charlie Neibergall /美联社照片
 
-那是因为卑诗省有一个偷偷摸摸的父母权利问题，称为“婴儿法”，该法概述了关于 19 岁以下儿童“成熟的未成年人同意和免疫”的法律立场。
+1，爱荷华州（Kim Reynolds州长，如图）是[最早由共和党领导的](https://www.businessinsider.com/republican-states-cutting-unemployment-benefits-expanded-300-weekly-biden-stimulus-2021-5)首批在夏季结束时候，为雇员提供的大流行失业福利州之一；于6月12日前，每周 300 美元的额外支票以及使自由职业者和长期失业者，有资格获得福利[的计划](https://www.businessinsider.com/four-states-cut-off-stimulus-jobless-aid-biden-white-house-2021-6)。
 
-即使父母因与此类治疗（包括绝育）有相关潜在健康风险而反对时，该法律也可用于允许医生帮助识别为跨性别的孩子进行医疗过渡。
+但是，虽然爱荷华州的自由职业者和零时工工人几个月来无法领取福利，但未接种疫苗的工人现在有资格领取。10 月 29 日，雷诺兹（Kim Reynolds）州长[签署了一项法案](https://www.legis.iowa.gov/legislation/BillBook?ga=89&amp;ba=hf902)，称“因拒绝接种中共病毒（COVID-19）疫苗而被解雇”的人，不会因为他们的主动离职而被“取消福利资格”。
 
-在这份完整的报告中，您将更好地了解这项法律，正如宪法自由司法中心的诉讼主管杰伊·卡梅伦 (Jay Cameron)所解释的那样。
+雷诺兹在一份[声明中](https://governor.iowa.gov/press-release/governor-reynolds-signs%C2%A0bipartisan%C2%A0vaccine-mandate%C2%A0bill-into-law%C2%A0%C2%A0)说，该立法“让员工保证，尽管他们因坚持自己的信仰而被解雇，但他们仍将获得失业救济金。” 她补充说，虽然她认为（毒）疫苗是对抗 COVID-19 的“最佳防御”，但“爱荷华州（雇员）不应因 COVID-19 疫苗而被迫失去工作或生计。”
 
-您还将从南丁格尔患者护理倡导的创始人凡妮莎·福勒（Vannessa Fowler）那里了解到确保您的孩子在接受这些疫苗时获得知情和同意的重要性。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-10.jpg)Paul Hennessy / SOPA Images / LightRocket via Getty Images
 
-在不久的将来，这两种信息来源可能会变得非常重要，因为您还将在本报告中了解到，小学被认为是儿童接种疫苗的便利地点。此外，像BC 疾病控制中心医学主任莫妮卡·瑙斯（Monika Naus） 博士这样的某些权力，使指定的卫生专业人员可以更方便地在未经父母同意的情况下为 11 岁或以下的儿童接种疫苗。
+2，佛罗里达州[于 11 月 19 日批准了一项法案，](https://www.jacksonlewis.com/sites/default/files/docs/FloridaHB-1B.pdf)将失业援助扩大到“无苗族”，作为禁止中共疫苗强制令的立法方案的一部分。 罗恩·德桑蒂斯州长 (Ron DeSantis，如图) 在最近的一份声明中说：“任何人都不应该因中共病毒的强硬命令而失业，我们有责任保护佛罗里达州人民的生计。”佛州将失业援助资金扩大到“无苗族”已引起佛罗里达州民主党人的批评。州众议员安娜·埃斯卡马尼( Anna Eskamani) 在接受当地报纸《佛罗里达凤凰》(Florida Phoenix) 采访时，[称其为“笑话”](https://floridaphoenix.com/2021/11/11/a-remarkable-precedent-fl-republicans-want-to-pay-workers-who-refuse-to-submit-to-vaccine-mandates/)。
 
-如果您担心公共卫生领主和官僚们使用不道德的强制手段迫使人们（包括儿童）接受实验性疫苗接种，请加入我们的斗争，以结束将疫苗护照和疫苗接种强制要求作为的就业条件。
+3，田纳西州立法者[批准了一项法案，](https://www.capitol.tn.gov/Bills/112/CCRReports/CC9002.pdf)禁止政府机构、私营企业和学校等主动去要求接种 COVID-19 疫苗，或要求提供疫苗接种证明；该法案的一部分还扩大了对“无苗族”的失业援助，并授权对符合条件的人进行追溯支付。
 
-来源：[https://www.rebelnews.com/can\_your\_5-year-old\_kid\_be\_jabbed\_for\_covid\_without\_your\_consent\_in\_canada](https://www.rebelnews.com/can_your_5-year-old_kid_be_jabbed_for_covid_without_your_consent_in_canada)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-11.jpg) 美联社照片/马克汉弗莱，文件
 
-（文章仅代表作者个人观点）
+比尔·李州长（Bill Lee，如图）本月早些时候签署了该法案，试图扭转拜登政府在要求该州私营部门接种疫苗时，[所谓](https://www.newschannel5.com/news/gov-bill-lee-expected-to-sign-covid-19-special-session-omnibus-bill-today)的“越权”。
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+4，堪萨斯州立法者于11月23日成功通过了一项措施，确保被解雇的“无苗族”仍能获得失业福利。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+如果雇员“拒绝接受需要符合 COVID-19 疫苗要求的工作”或疫苗豁免请求被拒绝，他们“不会失去领取福利的资格或被取消领取福利的资格”。
 
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-12.jpg)约翰汉纳/美联社
 
-**关注我们**
+民主党州长劳拉·凯利（Laura Kelly）将该法案签署为法律。她选择不在[该州](https://www.kwch.com/2021/09/01/out-of-work-kansans-wondering-whats-next-after-end-federal-unemployment-benefits/)在夏季[提前](https://www.kwch.com/2021/09/01/out-of-work-kansans-wondering-whats-next-after-end-federal-unemployment-benefits/)结束增强的失业福利。
 
-Discord 账号
+凯利在一份[声明中](https://governor.kansas.gov/governor-laura-kelly-signs-bill-in-response-to-federal-vaccine-mandate/)说：“我知道有些堪萨斯州的人认为这项立法走得不够远，还有一些人认为这项立法还不够深入；但我被选为领导，领导意味着寻求妥协。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+**新闻来源：**[businessinsider.com] [Here are all the states providing unemployment benefits for people who quit or were fired because they refused to get vaccinated](https://www.businessinsider.com/states-providing-unemployment-aid-vaccine-mandate-2021-11) |发布时间：2021年11月30日
 
-Gettr 账号
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+*发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-1.jpeg)
+
+
 
  
 
