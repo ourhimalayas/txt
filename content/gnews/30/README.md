@@ -2,28 +2,50 @@
 ---
 
 
-## 中共闭关锁国的互联网企业收入13102亿元
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1713827/)
+## 荷兰众议院接连通过挺台议案
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1713892/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/12/3-6.jpg)
-[图片来源](http://finance.sina.com.cn/roll/2017-08-03/doc-ifyitayr8897997.shtml)
+作者：纽约香草山医疗部 – 云豹
 
-12月2日澎湃报道，据工信部12月1日消息，1－10月份，中共国规模以上互联网和相关服务企业（简称互联网企业）完成业务收入13102亿元，同比增长23.4%，增速较前三季度回落2个百分点，两年平均增速为18.1%。
 
-截至10月末，中共国第三方应用商店在架应用分发总量达到20394亿次。其中，游戏类、日常工具类、社交通讯类、音乐视频类APP下载量均超2000亿次，分别达2924亿次、2792亿次、2545亿次和2310亿次，排名第一至四位。
 
-中共国不完善的平台资本控制各行业的销售环节，实体商业被击溃，真正的制造业及服务业失去话语权，沦为平台的韭菜，被随意收割，行业比烂，商业价值观沦丧。社会陷入购买低价劣质品及收入下滑的恶性循环。因此资本及创新应多在产品端，而不是在流通分配环节助推垄断。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-互联网改变了人们的生活方式，让生活更加便捷，而中共国强制安装网络防火墙，防火墙既是一个分析器又是一个限制器，限制了国人无法和世界沟通，也是现代的版的闭关锁国政策。
 
-信息来源：
 
-[1-10月规上互联网企业完成业务收入13102亿元 同比增23.4%](https://m.thepaper.cn/baijiahao_15657885?sdkver=2c9d920d)
+当地时间11月30日，荷兰众议院在同一天内通过两项议案，要求荷兰政府拒绝接受中共片面改变台海现状的行为，并敦促欧盟支持立陶宛的挺台行动。
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.png)
+此前，在23日，荷兰众议院以绝对多数票通过了支持台湾加入国际刑警组织的议案。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1.2-1.jpg)
+荷兰多位官员近日分别表示，荷兰希望通过议案带动其他欧洲国家，一起关注台海安全，尽力敦促欧盟方面采取行动，降低台海紧张情势。
+
+针对立陶宛因加强对台关系遭中共报复，荷兰众议院表示，欧盟成员国有权决定与台发展关系，提案将敦促荷兰政府促使欧盟统一立场，力挺立陶宛。
+
+参考链接：
+[荷蘭眾議院高度挺台1天通過2動議 盼歐洲國家跟進](https://www.cna.com.tw/news/firstnews/202112010009.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+
+总编：Irene木木
+编辑：文真
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
 
 
  

@@ -2,50 +2,31 @@
 ---
 
 
-## 中共世界范围内猎捕台湾人及异议人士
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1713893/)
+## 有声|拜登曾表示希望日本防卫费增加以遏制中共
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1713943/)
 
-作者：纽约香草山医疗部 – 云豹
+配音：香草山香港部 – 文凯琳
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+外媒11月27日消息，日前美国政府人士透露，美国总统拜登在10月上旬与日本首相岸田文雄的会谈中表示，希望日方能增加防卫费用。因美国政府需要遏制作为唯一竞争对手的中共，希望日本在安全领域能够负担更多。
 
+岸田在当选首相之前，就表示防卫费不应该被数字束缚。而拜登基于岸田的发言，对日本切实推进防卫力调整表示了期待。
 
+据悉，日本防卫费在2016年首次超过5万亿日元，2021年加上补充预算则达到6万亿日元，很有可能超过GDP的1%。有意见认为，如果实现首次美日首脑会谈，日本增加防卫费用一事将成为主要议题。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+文字版原文：[拜登曾表示希望日本防卫费增加以遏制中共](https://gnews.org/zh-hans/1708599/)
 
-
-
-当地时间11月30日，据台湾媒体消息，人权团体“保护卫士”在其发布的人权报告中直指，近年来，中共一直于世界范围内利用引渡条例，在违反个人意志的情况下，强迫将台湾人遣送至中共国。
-
-报告提到，2016至2019年，全球共有六百多位台湾人被从亚洲、非洲及欧洲引渡或强制遣送到中共国。但是，这些台湾人最终并没有被送回台湾接受审判，而是遭到了中共不合法的拘禁。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1.1-1.jpg)
-另外，自香港《国安法》通过后，借由中共或香港与各国签订的引渡协议，任何被中共认定的“政治犯”皆有可能在世界各地被逮捕后，随即被遣送至中共国。据悉，目前共有39个国家与中共签有引渡协议，另有19个国家与香港签定了引渡协议。评论人士指出，这明显增加了世界各国反中共人士的旅行风险。
-
-参考链接：
-[強制送中 國際組織：中國在全世界「獵捕」台灣人](https://www.cna.com.tw/news/firstnews/202111300160.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share%20https://www.cna.com.tw/news/firstnews/202109230388.aspx)
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-总编：文特
-编辑：Irene木木
-校对/发稿：为真不破20
-
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

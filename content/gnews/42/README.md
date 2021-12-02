@@ -2,34 +2,24 @@
 ---
 
 
-## 2021/11/30 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1713273/)
+## COVID-19 最新情报｜欧盟委员会主席：欧盟是时候该为所有公民强制接种疫苗
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1713037/)
 
-1. 11月28日，四川隆昌市人民医院一名67岁住院病人，行凶砍伤一名医护和一名病人后跳楼身亡。
-2. 11月28日，贵州黔东南从江县。一影院发生火灾，现场火光冲天映红夜空。目击者称火灾持续烧了两天两夜。
-3. 11月29日，警方回应海南副校长抽打在校学生事件。23日，东方思源实验学校副校长用塑料管抽打学生，并往其脸上浇水的视频被曝光。
-4. 11月，上海一建筑工地工人被老板拖欠工资，无奈之下以命相挟向老板讨要工钱。
-5. 11月29日，黑龙江佳木斯。女公务员殴打79岁母亲，被警方拘留15天。
-6. 男子将老人拖上轮椅，拽下口罩掐脸扇耳光。
-7. 11月27日，湖北天门。学校自来水浑浊发黄，学生叫苦不迭。学校回应：去美国读书，那里水好。
-8. 大雾弥漫的凌晨五点，号称“超级中学”、“高考巨无霸”的衡水中学学生，大喊着洗脑口号冲向教室学习。
-9. 商户吐槽街道上监管部门的工作人员比行人多，感叹百姓艰难。
-10. 市民计算自己房贷的还款构成，三年还款给银行的利息及各项杂费远高于房款本身。
-11. 11月26日，江西南昌县公安开展整治公民养狗专项行动，上街抓捕不牵绳的狗和人。
+**撰文｜ 台湾宝岛农场 疫情关注组 / 发布时间｜2/12/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1.jpg)
+更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）
 
+尽管世界各地疫苗伤害的个案数目不断攀升，各国政府依然对推动疫苗接种的热枕不减。
 
-* * *
+欧盟委员会主席乌尔苏拉·冯·德莱恩（Ursula von der Leyen）周三表示，鉴于过去几日“具有高传染性”的 Omicron 变种病毒发现病例不断增加，欧盟国家是时候开始评估为所有公民强制接种COVID-19 疫苗，各成员国应展开讨论以寻求共识。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+她续指，欧盟 27 个成员国应迅速部署加强剂的接种计划，并建议各国“暂时”执行旅行前 PCR 检测，以有效规管欧盟人的行动自由，回归欧盟的基本价值。
 
+尽管她在当日的发言中提及，“… … 不是每个人都可以接种疫苗的——例如儿童或有特殊疾病的人——但绝大多数人可以。”但这位医生出身的德国籍政客，仍然在周三高调宣布，5～11 岁辉瑞儿童疫苗将于 12 月 13 日可交付使用，建议各国就如何鼓励接种展开讨论。
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+较早前，希腊和奥地利已率先就强制性疫苗接种推行更严厉措施，任何不遵守强制令的人都会被罚款或监禁。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner.jpg)
+来源｜[MP](https://en.mercopress.com/2021/12/01/ursula-von-der-leyen-says-time-europe-eyed-mandatory-vaccination) / [Politico](https://www.politico.eu/article/commission-president-childrens-vaccines-coming-in-mid-december/)
 
  
 
