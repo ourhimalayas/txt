@@ -2,69 +2,45 @@
 ---
 
 
-## 【草根访谈】第284期新闻概要
-` WindTalker` [轉載自GNews](https://gnews.org/zh-hans/1711916/)
+## 电力危机下，中国一年内首次购买澳煤
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1712108/)
 
-**——日本东京方舟农场GTV直播组出品**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/17D8B8A1-1AB3-48CD-858F-70EA8C0FA5E6.png)
-【草根访谈】第284期新闻概要：
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2.jpg)图片来源：Daily Mail
+**翻译：**小鱼儿
+**编辑：**翼族
 
-**1**，**嘉宾来自于我们方舟农场日语翻译组组长「文拓先生」**。分享日本地区中共病毒感染疫苗注射加强第三针和日本政府的腐败跟中共眉来眼去的勾兑恶行，及日本各阶层的昏睡状态
+中国严重的电力短缺问题，迫使中共政权不得不放弃对澳大利亚煤炭的禁令。
 
-** 2，日本民众患上「疫苗后遗症」，比「疫苗后遗症」更大的灾难还没真正到来。**一位来自仙台市的23岁女性向 “与读者特别报告室 ”发送信息，让人们知道她在接种疫苗后的大约两个月里连续遭受严重的疲劳和其他症状。 河北新报在17日的早报中报道了这位女士的经历，标题是《了解“疫苗后遗症”》。
+北京去年11月封锁了澳洲煤炭的进口，以惩罚堪培拉，因为澳政府建议对中共病毒（Covid-19）大流行病的起源进行国际调查。
 
-**3，中共对世界的毒害是全方位立体的，中共一天不除世界永无宁日。**以下文字来自于文贵先生11月30日盖特：尊敬的战友们好，从这个病毒命名排序的丢人现眼的小事上，你就能看出共产党的做贼心虚……和共产党的这种无知，和没有常识的流氓嘴脸，但是就是这种流氓和这种无知手里掌握着强和掌握着货币权，他就掌握着14人民的命运，还要掌握全世界的命运，但是天意不可违呀，你能把盘古的龙头，变成鸟头，你不可能把全世界的一切都给罩住盖．都变成鸟头．改变一切的东西的规则和标准！冥冥之中的天意，注定了一切必然的发生！
+中共的经济胁迫活动还涉及澳洲的大麦、葡萄酒、棉花、海产品、木材和铜等关键产品，对它们进口中国实施了类似的禁令，旨在惩罚澳大利亚的言论。
 
-**4，中国在河南运用交通绿橙红灯对记者进行监控和识别，而其实中共国境内几乎没有任何记者，中共在河南人为制造灭门大洪水之后，所谓监控不过是幌子而是监控有正义感勇敢的市民**。[华盛顿邮报](https://www.washingtonpost.com/technology/2020/12/08/huawei-tested-ai-software-that-could-recognize-uighur-minorities-alert-police-report-says/)称，电信巨头华为测试了一款人工智能软件，可以识别维吾尔人并向警方报警。人权观察组织中国部主任索菲·理查森（Sophie Richardson）说：“这一目标令人不寒而栗，它确保每个人都知道他们可以并将被监控，而他们永远不知道什么可能引发敌意。”
+然而由此造成严重的电力短缺，数千万中国人在黑暗中瑟瑟发抖，强硬的“战狼”外交官悄悄软化了他们的立场，上个月开始允许进口了280万吨澳大利亚煤炭。
 
-** 5，巴巴多斯放弃英国女王管辖，成为最年轻共和国。**在巴巴多斯独立55周年之际，首都比里奇顿夜间举行建国仪式，桑德拉·梅森女爵士（Dame Sandra Mason）宣誓成为共和国总统。在建国仪式上，巴巴多斯向英国女王伊丽莎白二世最后致敬后，象征英国王室的王旗（the Royal Standard）降落，取而代之的是巴巴多斯国旗。
+联邦银行全球市场研究部分析师Vivek Dhar周二表示，这“看起来是中（共）国政策制定者的务实之举”。
 
-** 6，期待几个小时之后的「文贵大直播」，战友需要恐龙血 。**
+高盛（Goldman Sachs）估计约44%的工业活动将受到电力短缺的影响，同时也给百姓的活动带来担忧。
 
-主持人：@WindTalker 「宇宙之泾」
+禁运澳煤也由此造成中国的煤炭价格飞涨。冶金煤从禁令出台时的每吨100澳元左右跃升至10月份的每吨274澳元。
 
-嘉宾战友：@WenTuo 「健康文拓」
+澳大利亚战略政策研究所一篇文章中写到：每一百万吨煤会让中国的钢厂多付出超过4亿美元的代价，而其它地方的钢厂则多支付了大约2.5亿美元。
 
-Every day we spreading the truth about CCPvirus (COVID-19)and CCP vaccines, every day is Shouting for the people of Hong Kong who killed from CCP. Welcome to our New Federal State of the China.
+部分价格上涨还归因于中国买家从第三方国家转道购买澳大利亚煤炭，以规避禁令。
 
-Welcome to our Himalaya Tokyo JHL. **👏👏👏**
+最近，中共政府在煤炭成本暴涨之前，对能源供应商施加了价格上限的限制。
 
-【草根访谈】日本东京方舟农场欢迎你！
+参考新闻：[Power crisis forces China to snap up Australian coal for the first time in a YEAR – despite Beijing vowing to ban the commodity in trade war sparked by Covid inquiry call](https://www.dailymail.co.uk/news/article-10257149/Power-crisis-forces-China-snap-Australian-coal-time-YEAR.html)
 
-GTV直播组节目：【草根访谈】【方舟有你】【方舟歌汇】
+*发布：翼族*
 
-【方舟品读时光】【有问必答专访朴司令】【果色添香】
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-美东时间晚上11:30 东京时间中午1:30 北京时间中午12:30
-
-
-
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/73A43459-2029-4DBE-89E4-993EF95E97A9_1_201_a.jpeg)
-
-
-> **只有那些疯狂到认为自己可以改变世界的人，才能真正改变这个世界。**
-
-
-
-
-
-
-
-
-
-2021年12月| 一 | 二 | 三 | 四 | 五 | 六 | 日 |
-| --- | --- | --- | --- | --- | --- | --- |
-|   | [1](https://gnews.org/zh-hans/date/2021/12/01/) | 2 | 3 | 4 | 5 |
-| 6 | 7 | 8 | 9 | 10 | 11 | 12 |
-| 13 | 14 | 15 | 16 | 17 | 18 | 19 |
-| 20 | 21 | 22 | 23 | 24 | 25 | 26 |
-| 27 | 28 | 29 | 30 | 31 |   |
-
-[« 11月](https://gnews.org/zh-hans/date/2021/11/)  
- 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

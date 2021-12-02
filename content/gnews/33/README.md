@@ -2,35 +2,99 @@
 ---
 
 
-## 谷歌工程师宣称因恪守“不作恶”而被解雇
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1711885/)
+## 你拥有喜币是因为你要灭共，这是个承诺
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1712070/)
 
-**翻译：Ronnie O’Sullivan
-编辑：Candy**
+[https://gtv.org/video/id=61a768d73ff6481adce72651](https://gtv.org/video/id=61a768d73ff6481adce72651)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/谷歌1.png)图片来源：Alex Castro / The Verge
+**郭文贵**
+**Miles Guo**
 
+特别是国内的战友们，说心里话，
+Especially the comrade-in-arms inside the China, speak from my heart
 
-三名前谷歌员工宣称，谷歌有合同性义务遵守其众所周知的“不作恶”政策。他们正在起诉该公司，据说他们因指责谷歌的“邪恶”行为而被解雇。
+七哥是骨子里边儿很多，真的是这个民族主义在我身上是很强的
+I have a very strong nationalism in my bones
 
-前员工苏菲·沃尔德曼(Sophie Waldman)、丽贝卡·里弗斯(Rebecca Rivers)、保罗·杜克(Paul Duke)及劳伦斯·伯兰德（Laurence Berland）于2019年11月因涉嫌违反公司的数据安全政策而被解雇。
+我最希望的是国内咱们的同胞们，能听到这些真相
+What I hope most is for our compatriots in China to hear the truth
 
-然而，他们宣称并没有泄露任何机密信息。 今年早些时候，美国国家劳资关系委员会代理负责人表示，谷歌解雇三名员工，可以说是违反了美国《劳动法》，称谷歌是为了报复他们的激进行为而解雇了这些员工。
+我们因此不会要你任何东西, 没要求你做任何事情
+So we won’t ask you for anything, we won’t ask you to do anything
 
-在加利福尼亚州提起的诉讼中，该团队指控谷歌参与了“邪恶”活动，并随后因揭发该公司而被谷歌惩罚。诉讼称，沃尔德曼、里弗斯和杜克被谷歌聘用时，他们都签署了一份包含“不作恶”规则的合同。因此，2019 年，当谷歌与川普政府的海关和边境巡逻队签订了有争议性的云计算合同时，该团队提出质疑。他们认为边境可能出现侵犯人权的情况，并认为自己遵守了此合同。
+你只要知道就行了，就像现在有人没打疫苗一样
+You just need to know it, just like us, we haven’t been vaccinated
 
-自 2000 年代初以来，“不作恶”一直是谷歌行为准则的一部分。尽管谷歌的母公司 Alphabet 在 2015 年将其替换为“做正确的事”，但该短语在谷歌最新的行为准则中仍然有效。并指出：“记住……不要作恶，如果你看到你认为不对的事情——说出来！”
+它是多么的伟大，我没让你因为没打疫苗让你付一分钱
+How great it is, I didn’t ask you pay a penny because you didn’t get the vaccine
 
-原文链接：[https://www.theverge.com/2021/11/30/22809577/google-employees-sue-dont-be-evil-policy](https://www.theverge.com/2021/11/30/22809577/google-employees-sue-dont-be-evil-policy)
+让你吃青蒿素，我们不卖一分钱的药，是吧
+let you take artemisinin, we don’t sell it for a penny, right?
 
-***发布：Candy***
+我们也没有储藏，还都是我们付钱，都是免费的
+We don’t have any storage, still we pay them all, it’s all free for our comrade-in-arms
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+我们让这投喜币的人，是一毛钱一个的币
+We only want person who invests the Hcoin at price of a dime for one coin
+
+我觉得英国人、美国人和日本人，问了一个最根本的话
+I think the British, Americans and Japanese have asked the most fundamental thing
+
+你的币是怎么来的，你为啥能获得一毛钱的币
+How did your Hcoins come from? Why can you get a dime for one coin?
+
+不是你要不要卖，不是你应不应该卖，应不应该弄的问题
+It’s not whether you want to sell it, it’s not whether you should sell it, or whether you should do it
+
+你得到币的原因是什么？是因为要灭共
+Why did you get Hcoins? It’s because you want to take down the CCP
+
+它这个币值不值钱, 到底是不是骗局
+This currency is worth or not, is it a scam?
+
+像那个在日本的给我们那个日本战友说那句话中国人赶快跑
+Like that person in Japan who gave our the Japanese comrade-in-arms advise, that is the Chinese people should run quickly
+
+这个王八蛋就太坏了
+this bastard is too bad
+
+他就没有人家英国人、美国人说的，还有犹太人
+He is not like what the British and Americans, and there are also Jews said
+
+它是一个承诺，你拥有这个币是因为你要灭共
+that it’s a promise, you own the Hcoins because you want to take down the CCP
+
+你没灭共，你跑了，你是欺骗，谁都可以当骗子
+You don’t take down the CCP, you ran away, you are deceiving, anyone can be a liar
+
+不是谁都可以当英雄的，谁都可以骗人
+Not everyone can be a hero, anyone can lie
+
+但不是谁都可以当诚实的人的，这是绝大多数的中国人的内心世界
+But not everyone can be an honest person, this is the inner world of most Chi-nese people
+
+捞着就跑，共产党就种下了这种毒瘤
+just grab and run, the Communist Party has planted this cancer
+
+**原视频链接:** [https://gettr.com/post/pi2egs6b1f](https://gettr.com/post/pi2egs6b1f)
+
+Date:11/30/2021
+原视频标题: 你拥有喜币是因为你要灭共，这是个承诺
+You own HCoin because you want to take down the CCP that it’s a promise
+原视频日期：2021/11/26
+原视频链接https://gettr.com/post/pi2egs6b1f
+任务编号：3036
+视频时间段 : 0:00-1:43
+
+中听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
