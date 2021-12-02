@@ -2,50 +2,37 @@
 ---
 
 
-## 欧盟将在全球注资3000亿欧元以替代中共“一带一路”倡议
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1711634/)
+## 中国不是在“购买”所罗门群岛，而是在购买台湾
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1711890/)
 
-作者：纽约香草山农场 – 四季
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
+作者：RebelNews
+翻译：HimaCoby
 
 
 
+在昨晚的节目中——以斯拉地中海秀，亚历山德拉·马歇尔（@EllyMelly 在推特）加盟以斯拉秀谈论所罗门群岛暴力抗议。
 
-据[路透社](https://www.reuters.com/markets/rates-bonds/eu-unveils-300-bln-euro-global-investment-scheme-2021-12-01/)12月1日报道，欧盟委员会周三公布了一项计划，到2027年在全球范围内投资3000亿欧元用于基础设施、数字和气候项目，**以替代中共“一带一路”倡议。**欧盟的资金将来自欧盟机构、政府，以及欧盟金融机构和国家开发银行。
+上周紧张局势升级，所罗门群岛在索加瓦雷的领导下与台湾断交并正式确定与中国的关系，这引发了所罗门群岛最大省份马莱塔的独立公投。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1580-1.jpg)2020年12月24日，在比利时布鲁塞尔举行的英国脱欧谈判的欧盟委员会总部外飘扬的欧盟旗帜。(REUTERS/Yves Herman)
+亲台抗议在马莱塔爆发抗议，呼吁脱离亲中政府独立。该岛拒绝了中国的债务陷阱外交，拒绝让太平洋其他岛国拥有中国占领的港口基础设施项目。
 
-欧盟委员会主席乌苏拉·冯德莱恩在新闻发布会上表示，这是对中共国“一带一路”倡议的一个真正的替代方案。
+（文章仅代表作者个人观点）
 
-这项名为“全球通道”的计划旨在加强欧洲的供应链，促进欧盟贸易，并帮助应对气候变化。其重点是数字化、卫生、气候和能源、运输行业，以及教育和研究领域。该计划将侧重于有形基础设施，如光纤电缆、清洁运输走廊、清洁电力传输线，以加强数字、运输和能源网络。
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-欧盟委员会在一份声明中说，欧盟将以公平和有利的条件提供融资，以限制债务困扰的风险。欧盟官员表示，北京提供的融资条件往往是不利和不透明的，它使一些较贫穷的国家，特别是非洲国家，通过债务依赖于中共国。而欧盟的全球通道计划的目的是与其他国家建立联系，而不产生依赖性。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-编辑/校对/发稿：小鹿
+**关注我们**
 
+Discord 账号
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-**更多资讯，更多关注**
+Gettr 账号
 
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

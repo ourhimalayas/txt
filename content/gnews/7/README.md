@@ -2,110 +2,22 @@
 ---
 
 
-## 中共面临的形势和苏联灭亡前一摸一样
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1711989/)
+## WTA声明取消在中共国的所有赛事
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1712203/)
 
-[https://gtv.org/video/id=61a7683f3ff6481adce725de](https://gtv.org/video/id=61a7683f3ff6481adce725de)
+撰稿：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-11.jpg)[图片源](https://news.yahoo.co.jp/articles/071cb8ace0f9a172c21cbe26976af3d6edeb6db9)
+负责女子网球巡回赛的女子网球协会（WTA）1日宣布,取消包括香港在内的在中共国的所有比赛。因为彭帅的人身安全至今尚未确认。首席执行官史蒂夫·西蒙在声明中指出了中共政府进行审查和恐吓的可能性，称球员们“非常担心风险”。
 
-**郭文贵：**
-**Miles Guo：**
+国际奥委会虽然宣布，巴赫主席已通过视频通话确认了彭帅的安全，但首席执行官西蒙表示，“我严重怀疑她是否真正自由与安全，以及她是否受到了审查、胁迫或威胁”。
 
-让我们看看前苏联。
-let us review the Soviet Union.
+非常庆幸WTA能站在正义一方，为国际奥委会刚直不阿地上了一堂示范课。
 
-当美国开始干苏联的时候
-When the USA conflict with Soviet Union
+[信息源](https://news.yahoo.co.jp/articles/8a663efe724e357719407a4a1d727b731f533e1f)
 
-到了里根总统
-especially in Reagan period
-
-有几个政策
-draught several strategies:
-
-第一，坚决不能发生大面积的冲突。
-First, absolutely avoiding the large-scale conflict
-
-第二,绝对不能高调的说干掉苏联或解体苏联，改变其体制。
-Second, there must be no high-profile statements about taking out the Soviet Union or dismantling it and changing its institutions
-
-第三，在钱上不能一分不投，坚决不能投大钱。
-Third, US can invest some money in Soviet Union, but firmly not big money
-
-第四，外交文化一定有交流，但要防止渗透。
-Fourth, still sustain communication with Soviet Union in Diplomacy and culture field meanwhile prevent penetration
-
-最后一条，嘎嘣没了。出来个戈尔巴乔夫。
-Finally, The Soviet Union disintegrated by Gorbachev
-
-苏联竟然到欧洲的油气管道铺了50年没铺成，到现在也没铺成。
-Surprisingly, the Soviet Union did not lay the oil and gas pipeline to Europe for 50 years and still hasn’t done so
-
-苏联怎么灭的？
-How The Soviet Union perished?
-
-苏联没之前美国说什么呢？
-What was the USA’s statement before The Soviet Union crashed?
-
-跟今天共产党面临的形势一摸一样
-The situation of CCP facing is similar to Soviet Union
-
-中国人根本不懂得使用水下武器，天空武器，更不知道导弹打到哪才是对的
-Chinese didn’t acknowledge to use underwater weapons, sky weapon, and they don’t know where to hit the missiles correctly
-
-这三样全是美国人从欧洲的始创，而且天天在用一直在用。
-All the weapon were invented by USA & Europe, the the U.S. military practices and uses these weapons every day
-
-你想共产党现在送那些傻兵打仗去，去对付台湾。
-Now The CCP is preparing send his stupid Soldiers to battlefield and assault Taiwan
-
-你知道美国派这个飞机去啥概念吗？
-Do you know the meaning of The US dispatched its military aircraft to protect Taiwan?
-
-你有种来打我台湾。
-If you have the guts, come and try to hit Taiwan
-
-接下来就是北京冬奥会。
-Next is Beijing Winter Olympics
-
-习近平只要发现冬奥会开不成一定打台湾。
-If President Xi of CCP reckon the Beijing Winter Olympics was boycotted by all countries and couldn’t success, he would assault Taiwan without hesitation
-
-他从手指头按下的那一刻，就是他灭亡的那一刻。
-The moment he gives the order is the moment of his demise
-
-不是台湾会死于共手，我从第一天就说。
-The Taiwan won’t be occupied by CCP as I first said
-
-共产党会一定会死于台湾之后
-On the contrary, the CCP will be crashed by Taiwan definitely
-
-有新中国联邦在此，绝对会让台湾完好无损，消灭共产党。
-The NFSC (New Federal States of China) will absolutely protect Taiwan unscathed and eliminate CCP
-
-这是天意。不信我们走着看
-It’s will of God. Let us see what will happen
-
-**原视频链接:** [https://gettr.com/post/pi76f1e675](https://gettr.com/post/pi76f1e675)
-
-Date:11/29/2021
-原视频标题: 中共面临的形势和苏联灭亡前一摸一样
-The situation of CCP facing is similar to Soviet Union
-原视频日期：2021/11/29
-原视频链接: https://gettr.com/post/pi76f1e675
-任务编号：3061
-视频时间段 : 0:00-2:38
-
-中听校: 洛杉矶盘古农场 – 73stolencountry
-英文翻译: 洛杉矶盘古农场 – 73stolencountry
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
-审片: 洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

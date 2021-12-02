@@ -2,44 +2,109 @@
 ---
 
 
-## 日本东京方舟农场文化灭共组作品欣赏
-` WindTalker` [轉載自GNews](https://gnews.org/zh-hans/1711685/)
+## 中共面临的形势和苏联灭亡前一摸一样
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1711989/)
 
-————日本东京方舟农场战友「方舟柒公子」言：积跬步，致千里，每天做一点，不虚度光阴。
+[https://gtv.org/video/id=61a7683f3ff6481adce725de](https://gtv.org/video/id=61a7683f3ff6481adce725de)
 
-设计/策划/撰文：宇宙之泾
+**郭文贵：**
+**Miles Guo：**
 
-绘画/书法/篆刻：方舟柒公子
+让我们看看前苏联。
+let us review the Soviet Union.
 
-书法：Livre 动漫画：星空
+当美国开始干苏联的时候
+When the USA conflict with Soviet Union
 
-日本东京方舟文化灭共组致力新中国联邦文化事业的投入和发展，在农场成立初期吸引了音乐，绘画，书法，篆刻，摄影，诗词歌赋写作方面的人才，扎根于农场最基础的工作和建设。文化灭共是全方位立体灭共的核武器，新中国联邦应运而生，爆料革命的战友是富有使命感和历史重任的，我们每一天的一点点付出，是为了我们自身的健康和生命，为了我们的子孙后代和未来在拼搏和拼命。同时我们的付出也迎来了更加美好的明天和世界人民的认可，我们在传播病毒和疫苗的真相，我们在揭露中国共产党的杀人事实和邪恶嘴脸。我们正在拯救人类和人类文明，同时拯救了中华民族和我们自己。【12/01/2021】
-![](https://assets.gnews.org/wp-content/uploads/2021/12/8DB6A7AD-A06A-4F46-8922-37BB79F7BFEB_1_102_o.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/9D5259CC-02B9-4636-9885-ED5A916D096A_1_102_o.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/A8FE1543-0424-4847-8D02-35C05E2A38E7_1_102_o.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/53D09D2A-D96A-41E3-AD25-87C432F99414_1_102_o.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/4CBB8AE9-DD30-4DC7-B10D-CA0261088049_1_102_o.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/E6774032-3520-44BE-9DD4-9089B81FABDE_1_102_o.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/85A9DBF3-4860-4C4F-8B7B-962289F759D4_1_100_o-scaled.jpeg)
+到了里根总统
+especially in Reagan period
 
+有几个政策
+draught several strategies:
 
+第一，坚决不能发生大面积的冲突。
+First, absolutely avoiding the large-scale conflict
 
+第二,绝对不能高调的说干掉苏联或解体苏联，改变其体制。
+Second, there must be no high-profile statements about taking out the Soviet Union or dismantling it and changing its institutions
 
-2021年12月| 一 | 二 | 三 | 四 | 五 | 六 | 日 |
-| --- | --- | --- | --- | --- | --- | --- |
-|   | [1](https://gnews.org/zh-hans/date/2021/12/01/) | 2 | 3 | 4 | 5 |
-| 6 | 7 | 8 | 9 | 10 | 11 | 12 |
-| 13 | 14 | 15 | 16 | 17 | 18 | 19 |
-| 20 | 21 | 22 | 23 | 24 | 25 | 26 |
-| 27 | 28 | 29 | 30 | 31 |   |
+第三，在钱上不能一分不投，坚决不能投大钱。
+Third, US can invest some money in Soviet Union, but firmly not big money
 
-[« 11月](https://gnews.org/zh-hans/date/2021/11/)  
+第四，外交文化一定有交流，但要防止渗透。
+Fourth, still sustain communication with Soviet Union in Diplomacy and culture field meanwhile prevent penetration
 
+最后一条，嘎嘣没了。出来个戈尔巴乔夫。
+Finally, The Soviet Union disintegrated by Gorbachev
 
+苏联竟然到欧洲的油气管道铺了50年没铺成，到现在也没铺成。
+Surprisingly, the Soviet Union did not lay the oil and gas pipeline to Europe for 50 years and still hasn’t done so
 
-![](https://assets.gnews.org/wp-content/uploads/2021/06/1ADF5F44-6C2A-42A2-8316-C3898C426B4F-1.jpeg)
+苏联怎么灭的？
+How The Soviet Union perished?
 
+苏联没之前美国说什么呢？
+What was the USA’s statement before The Soviet Union crashed?
 
-> 只有那些疯狂到认为自己可以改变世界的人，才能真正改变这个世界。
+跟今天共产党面临的形势一摸一样
+The situation of CCP facing is similar to Soviet Union
 
+中国人根本不懂得使用水下武器，天空武器，更不知道导弹打到哪才是对的
+Chinese didn’t acknowledge to use underwater weapons, sky weapon, and they don’t know where to hit the missiles correctly
 
+这三样全是美国人从欧洲的始创，而且天天在用一直在用。
+All the weapon were invented by USA & Europe, the the U.S. military practices and uses these weapons every day
 
+你想共产党现在送那些傻兵打仗去，去对付台湾。
+Now The CCP is preparing send his stupid Soldiers to battlefield and assault Taiwan
 
+你知道美国派这个飞机去啥概念吗？
+Do you know the meaning of The US dispatched its military aircraft to protect Taiwan?
 
+你有种来打我台湾。
+If you have the guts, come and try to hit Taiwan
+
+接下来就是北京冬奥会。
+Next is Beijing Winter Olympics
+
+习近平只要发现冬奥会开不成一定打台湾。
+If President Xi of CCP reckon the Beijing Winter Olympics was boycotted by all countries and couldn’t success, he would assault Taiwan without hesitation
+
+他从手指头按下的那一刻，就是他灭亡的那一刻。
+The moment he gives the order is the moment of his demise
+
+不是台湾会死于共手，我从第一天就说。
+The Taiwan won’t be occupied by CCP as I first said
+
+共产党会一定会死于台湾之后
+On the contrary, the CCP will be crashed by Taiwan definitely
+
+有新中国联邦在此，绝对会让台湾完好无损，消灭共产党。
+The NFSC (New Federal States of China) will absolutely protect Taiwan unscathed and eliminate CCP
+
+这是天意。不信我们走着看
+It’s will of God. Let us see what will happen
+
+**原视频链接:** [https://gettr.com/post/pi76f1e675](https://gettr.com/post/pi76f1e675)
+
+Date:11/29/2021
+原视频标题: 中共面临的形势和苏联灭亡前一摸一样
+The situation of CCP facing is similar to Soviet Union
+原视频日期：2021/11/29
+原视频链接: https://gettr.com/post/pi76f1e675
+任务编号：3061
+视频时间段 : 0:00-2:38
+
+中听校: 洛杉矶盘古农场 – 73stolencountry
+英文翻译: 洛杉矶盘古农场 – 73stolencountry
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
+审片: 洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

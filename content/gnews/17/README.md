@@ -2,51 +2,44 @@
 ---
 
 
-## 加拿大在未经您的同意下，您 5 岁的孩子是否可以接种疫苗
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1711857/)
+## 电力危机下，中国一年内首次购买澳煤
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1712108/)
 
-作者：Drea Humphrey
-翻译：HimaFAFA
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2.jpg)图片来源：Daily Mail
+**翻译：**小鱼儿
+**编辑：**翼族
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-7.png)
+中国严重的电力短缺问题，迫使中共政权不得不放弃对澳大利亚煤炭的禁令。
 
-11 月 19 日，加拿大卫生部批准将辉瑞疫苗用于 5 至 11 岁的儿童。
+北京去年11月封锁了澳洲煤炭的进口，以惩罚堪培拉，因为澳政府建议对中共病毒（Covid-19）大流行病的起源进行国际调查。
 
-但这是否意味着可以在未经父母同意的情况下在加拿大为年仅 5 岁的儿童接种新冠疫苗？
+中共的经济胁迫活动还涉及澳洲的大麦、葡萄酒、棉花、海产品、木材和铜等关键产品，对它们进口中国实施了类似的禁令，旨在惩罚澳大利亚的言论。
 
-令人震惊的是，在不列颠哥伦比亚省，答案是肯定的。
+然而由此造成严重的电力短缺，数千万中国人在黑暗中瑟瑟发抖，强硬的“战狼”外交官悄悄软化了他们的立场，上个月开始允许进口了280万吨澳大利亚煤炭。
 
-那是因为卑诗省有一个偷偷摸摸的父母权利问题，称为“婴儿法”，该法概述了关于 19 岁以下儿童“成熟的未成年人同意和免疫”的法律立场。
+联邦银行全球市场研究部分析师Vivek Dhar周二表示，这“看起来是中（共）国政策制定者的务实之举”。
 
-即使父母因与此类治疗（包括绝育）有相关潜在健康风险而反对时，该法律也可用于允许医生帮助识别为跨性别的孩子进行医疗过渡。
+高盛（Goldman Sachs）估计约44%的工业活动将受到电力短缺的影响，同时也给百姓的活动带来担忧。
 
-在这份完整的报告中，您将更好地了解这项法律，正如宪法自由司法中心的诉讼主管杰伊·卡梅伦 (Jay Cameron)所解释的那样。
+禁运澳煤也由此造成中国的煤炭价格飞涨。冶金煤从禁令出台时的每吨100澳元左右跃升至10月份的每吨274澳元。
 
-您还将从南丁格尔患者护理倡导的创始人凡妮莎·福勒（Vannessa Fowler）那里了解到确保您的孩子在接受这些疫苗时获得知情和同意的重要性。
+澳大利亚战略政策研究所一篇文章中写到：每一百万吨煤会让中国的钢厂多付出超过4亿美元的代价，而其它地方的钢厂则多支付了大约2.5亿美元。
 
-在不久的将来，这两种信息来源可能会变得非常重要，因为您还将在本报告中了解到，小学被认为是儿童接种疫苗的便利地点。此外，像BC 疾病控制中心医学主任莫妮卡·瑙斯（Monika Naus） 博士这样的某些权力，使指定的卫生专业人员可以更方便地在未经父母同意的情况下为 11 岁或以下的儿童接种疫苗。
+部分价格上涨还归因于中国买家从第三方国家转道购买澳大利亚煤炭，以规避禁令。
 
-如果您担心公共卫生领主和官僚们使用不道德的强制手段迫使人们（包括儿童）接受实验性疫苗接种，请加入我们的斗争，以结束将疫苗护照和疫苗接种强制要求作为的就业条件。
+最近，中共政府在煤炭成本暴涨之前，对能源供应商施加了价格上限的限制。
 
-来源：[https://www.rebelnews.com/can\_your\_5-year-old\_kid\_be\_jabbed\_for\_covid\_without\_your\_consent\_in\_canada](https://www.rebelnews.com/can_your_5-year-old_kid_be_jabbed_for_covid_without_your_consent_in_canada)
+参考新闻：[Power crisis forces China to snap up Australian coal for the first time in a YEAR – despite Beijing vowing to ban the commodity in trade war sparked by Covid inquiry call](https://www.dailymail.co.uk/news/article-10257149/Power-crisis-forces-China-snap-Australian-coal-time-YEAR.html)
 
-（文章仅代表作者个人观点）
+*发布：翼族*
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,59 +2,99 @@
 ---
 
 
-## 特鲁多政府泄露了您的私人抵押贷款数据
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1711806/)
+## 你拥有喜币是因为你要灭共，这是个承诺
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1712070/)
 
-作者：Sheila Gunn Reid 
-翻译：HimaFAFA
+[https://gtv.org/video/id=61a768d73ff6481adce72651](https://gtv.org/video/id=61a768d73ff6481adce72651)
 
+**郭文贵**
+**Miles Guo**
 
+特别是国内的战友们，说心里话，
+Especially the comrade-in-arms inside the China, speak from my heart
 
-加拿大政府的加拿大抵押和住房公司 (CMHC) 刚刚将 900 万加拿大人的信用评分、个人传入数据、地址和家庭债务负担移交给研究人员、智囊团和政策专家。
+七哥是骨子里边儿很多，真的是这个民族主义在我身上是很强的
+I have a very strong nationalism in my bones
 
-你可能没有听说过，因为在政府侵犯如此多加拿大人的隐私（可能是为了盈利）之前，它没有费心去征求许可。
+我最希望的是国内咱们的同胞们，能听到这些真相
+What I hope most is for our compatriots in China to hear the truth
 
-黑锁的记者已经报道这个故事三年了，他们最近 10 月份发表的文章详细独家报道了受数据伤害的加拿大人的数量：
+我们因此不会要你任何东西, 没要求你做任何事情
+So we won’t ask you for anything, we won’t ask you to do anything
 
-联邦机构迄今为止最大的数据挖掘是在没有任何议会监督的情况下进行的。记录显示从未咨询过隐私专员办公室。
+你只要知道就行了，就像现在有人没打疫苗一样
+You just need to know it, just like us, we haven’t been vaccinated
 
-负责人在一份长达 28 页的隐私协议中表示，只有在 CMHC 获得借款人同意的情况下，才会交出记录。根据文件，没有人寻求同意。CMHC 反而要求银行同意共享其客户的信息。
+它是多么的伟大，我没让你因为没打疫苗让你付一分钱
+How great it is, I didn’t ask you pay a penny because you didn’t get the vaccine
 
-CMHC 还使用来自 900 万个个人账户的信息，通过所谓的“房屋数据交换”向建筑商、经济学家和贷方提供数据。该机构没有解释数据是否被出售，但表示在数据交换收集信息之前，所有个人信息都已被删除。
+让你吃青蒿素，我们不卖一分钱的药，是吧
+let you take artemisinin, we don’t sell it for a penny, right?
 
-反叛新闻提交访问信息以作进一步记录。
+我们也没有储藏，还都是我们付钱，都是免费的
+We don’t have any storage, still we pay them all, it’s all free for our comrade-in-arms
 
-我们想要有关 CMHC 自 2018 年 1 月 18 日以来收集抵押贷款持有人数据的任何通信副本。
+我们让这投喜币的人，是一毛钱一个的币
+We only want person who invests the Hcoin at price of a dime for one coin
 
-我想知道加拿大人的私人财务信息是否被委托给它的政府机构出售和出售价格。
+我觉得英国人、美国人和日本人，问了一个最根本的话
+I think the British, Americans and Japanese have asked the most fundamental thing
 
-我们没有收到我们想要的记录。
+你的币是怎么来的，你为啥能获得一毛钱的币
+How did your Hcoins come from? Why can you get a dime for one coin?
 
-相反，我们收到了一封信，告诉我们政府需要一年的时间来交出文件（330 天），加上根据当前的信息访问法，他们可能再需要 30 天才能回复我们。
+不是你要不要卖，不是你应不应该卖，应不应该弄的问题
+It’s not whether you want to sell it, it’s not whether you should sell it, or whether you should do it
 
-他们必须先联系参与沟通的人，以获得他们的许可，然后才能移交。
+你得到币的原因是什么？是因为要灭共
+Why did you get Hcoins? It’s because you want to take down the CCP
 
-事实上，我们并没有期望，因为黑锁的信息已经经历了三年的延迟才能获得他们现所拥有的信息。
+它这个币值不值钱, 到底是不是骗局
+This currency is worth or not, is it a scam?
 
-来源：https://www-rebelnews-com.translate.goog/trudeau\_government\_gave\_away\_private\_mortgage\_data\_delaying\_our\_investigation?\_x\_tr\_sl=en&\_x\_tr\_tl=zh-CN&\_x\_tr\_hl=en-US
+像那个在日本的给我们那个日本战友说那句话中国人赶快跑
+Like that person in Japan who gave our the Japanese comrade-in-arms advise, that is the Chinese people should run quickly
 
-（文章仅代表作者个人观点）
+这个王八蛋就太坏了
+this bastard is too bad
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+他就没有人家英国人、美国人说的，还有犹太人
+He is not like what the British and Americans, and there are also Jews said
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+它是一个承诺，你拥有这个币是因为你要灭共
+that it’s a promise, you own the Hcoins because you want to take down the CCP
 
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+你没灭共，你跑了，你是欺骗，谁都可以当骗子
+You don’t take down the CCP, you ran away, you are deceiving, anyone can be a liar
 
-**关注我们**
+不是谁都可以当英雄的，谁都可以骗人
+Not everyone can be a hero, anyone can lie
 
-Discord 账号
+但不是谁都可以当诚实的人的，这是绝大多数的中国人的内心世界
+But not everyone can be an honest person, this is the inner world of most Chi-nese people
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+捞着就跑，共产党就种下了这种毒瘤
+just grab and run, the Communist Party has planted this cancer
 
-Gettr 账号
+**原视频链接:** [https://gettr.com/post/pi2egs6b1f](https://gettr.com/post/pi2egs6b1f)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+Date:11/30/2021
+原视频标题: 你拥有喜币是因为你要灭共，这是个承诺
+You own HCoin because you want to take down the CCP that it’s a promise
+原视频日期：2021/11/26
+原视频链接https://gettr.com/post/pi2egs6b1f
+任务编号：3036
+视频时间段 : 0:00-1:43
+
+中听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

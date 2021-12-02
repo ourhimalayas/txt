@@ -2,35 +2,34 @@
 ---
 
 
-## 台湾退休将军亲共言论遭岛内谴责
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1709989/)
+## 港闻前线｜太阳城集团今起所有赌厅暂停运作 洗米华案另一涉案被告早一年被捕
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1710289/)
 
-作者：台湾宝岛农场 -斗阵来拼
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月29日，据台湾媒体报道，台湾立法院内政委员会当天进行了一场专题报告，对日前台湾退休空军上将夏瀛洲的言论进行了批评。
+**撰文/ 台湾宝岛农场 港台前线关注组｜发布日期/ 1/12/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Bank-Manager-Banner.jpg)
+**更多资讯请关注官方盖特｜please follow our Gettr （[https://gettr.com/user/hktwfrontline](https://gettr.com/user/hktwfrontline)）**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide3.jpeg)
+人称“洗米华”的澳门“太阳城集团”主席周焯华，上周被温州警方点名通缉，指其涉跨境赌博犯罪，上周六（27 日）遭澳门司警拘捕，其后被送往路环监狱羁押。昨日深夜（30 日），澳门广播电视报道指，太阳城集团所有赌厅于今日（12 月 1 日）零时起全面暂停运作。
 
-本月早些时候，夏瀛洲在接受采访时曾表示，中共战机出现在台湾西南空域是在自己的国土上进行的，所以他们完全有巡逻的权利。对此，台湾国防部立即表示，夏瀛洲的言论不代表国防部立场，同时，国军捍卫台湾安全的核心价值也不会因此受到任何影响。
+#### **太阳城集团股价狂跌**
 
-据悉，在11月29日的专题报告会上，多名立法院委员对夏瀛洲的不当言论进行了批评。而台湾陆委会副主任委员邱垂正更是表示：“这种言论至为不当，应给予严厉谴责。”
+太阳城集团（1383）昨日复牌后大跌，旗下凯升（0102）亦于周一早上停牌，公司指待发出有关周焯华、构成内幕消息的通告，今日复牌同样股价大跌，一度跌五成。另一间周焯华任大股东的上市公司太阳娱乐（8082）本周日（28 日）发公告指，事件无对集团财务状况、业务或营运产生任何重大影响，强调新闻报道仅涉周生个人事务。
 
-参考链接：[退將親中言論惹議擬修法 邱垂正：朝比例原則規範](https://www.cna.com.tw/news/aipl/202111290118.aspx)
+#### **另一涉案被告张宁宁早于一年前被捕**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
+《香港01》今早释出独家消息指，另一涉案被告张宁宁其实早在 2020 年 7 月于温州被拘捕，张母表示，张宁宁去年被捕后，家属一直没有收到任何官方通知，只有律师传来消息，至温州公布洗米华案件前，都不知道她被捕的原因，“我知道她在温州，但她在温州哪里、到什么程度我也不知，前几天才知道指控她开赌场。”
 
-总编：飞虹
-编辑：飞虹
-校正/发稿：谐趣园
+张母又指，张宁宁过往五年期间，一直于太阳城旗下公司工作，约两年前被调任至集团的深圳公司。不过，她强调自己不清楚女儿工作的详情，只知和地产有关，女儿出事后，公司曾为她聘请律师：“公司打来我们才知道她被捕，只说她没事，很快可以出来。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/BFrukETTM9ilkAO72aEi1w6H4XdErgYfyIuu-siLrvo.jpeg)图片来源：香港01 
 
+据内地查册，张宁宁曾担任太阳城系内，多间内地公司的法定代表人或高层，包括深圳的太阳世纪地产、紫瑞房地产、太阳华创实业等。
+
+#### **“洗米华”曾被怀疑出资支持“港独”**
+
+2020 年 7 月，网上流传指太阳城集团资助香港“黑暴分子”、支持港独。周焯华发放片段澄清消息为谣言，强调自己一直“心系祖国”，“我有什么理由、有什么动机去资助香港人，或者资助香港暴乱分子，我有什么动机去危害国家呢？”
+![](https://assets.gnews.org/wp-content/uploads/2021/12/港台前線-（HK模板）.jpg)
+来源｜[01獨家](https://www.hk01.com/01偵查/706802/01獨家-洗米華案-港人女骨幹張寧寧身份曝光-17個月前溫州落網)
 
  
 

@@ -2,54 +2,35 @@
 ---
 
 
-## 英国监管机构命令 Facebook（Meta）出售 Giphy
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1711544/)
+## 谷歌工程师宣称因恪守“不作恶”而被解雇
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1711885/)
 
-编译：西班牙巴塞罗那喜悦农场-wenwu
+**翻译：Ronnie O’Sullivan
+编辑：Candy**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-6.jpg)路透社/达多·鲁维奇
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/谷歌1.png)图片来源：Alex Castro / The Verge
 
-竞争和市场管理局**(CMA)**表示，它发现去年对**Giphy**的收购将减少社交媒体平台之间以及显示广告方面的竞争。
 
-最近被重新命名为**Meta Platforms**的**Facebook**表示，它可以对**CMA**的决定提出上诉。它有四周的时间进行上诉。
+三名前谷歌员工宣称，谷歌有合同性义务遵守其众所周知的“不作恶”政策。他们正在起诉该公司，据说他们因指责谷歌的“邪恶”行为而被解雇。
 
-**CMA**对**Facebook-Giphy**的独立调查主席**Stuart McIntosh**说：**“****Facebook**和**Giphy**之间的合作已经消除了显示广告市场上的一个潜在挑战者；通过要求**Facebook**出售**Giphy**，我们正在保护数百万社交媒体用户，并促进数字广告的竞争和创新。**”**
+前员工苏菲·沃尔德曼(Sophie Waldman)、丽贝卡·里弗斯(Rebecca Rivers)、保罗·杜克(Paul Duke)及劳伦斯·伯兰德（Laurence Berland）于2019年11月因涉嫌违反公司的数据安全政策而被解雇。
 
-**Facebook**说它不同意该决定。
+然而，他们宣称并没有泄露任何机密信息。 今年早些时候，美国国家劳资关系委员会代理负责人表示，谷歌解雇三名员工，可以说是违反了美国《劳动法》，称谷歌是为了报复他们的激进行为而解雇了这些员工。
 
-**“**我们正在审查这一决定，并考虑所有的选择，包括上诉，**”****Meta**的一位发言人在一份声明中说。
+在加利福尼亚州提起的诉讼中，该团队指控谷歌参与了“邪恶”活动，并随后因揭发该公司而被谷歌惩罚。诉讼称，沃尔德曼、里弗斯和杜克被谷歌聘用时，他们都签署了一份包含“不作恶”规则的合同。因此，2019 年，当谷歌与川普政府的海关和边境巡逻队签订了有争议性的云计算合同时，该团队提出质疑。他们认为边境可能出现侵犯人权的情况，并认为自己遵守了此合同。
 
-**CMA**在**10**月对该公司进行了创纪录的**7000**万美元的[罚款](https://www.reuters.com/technology/britain-fines-facebook-70-mln-breaching-order-giphy-deal-2021-10-20/)，因为它违反了在调查收购期间实施的命令，它在**8**月说，它可能需要**Facebook**出售**Giphy**（[**GIF**制造商](https://www.reuters.com/technology/facebook-may-have-sell-giphy-britains-competition-concerns-2021-08-12/)）。
+自 2000 年代初以来，“不作恶”一直是谷歌行为准则的一部分。尽管谷歌的母公司 Alphabet 在 2015 年将其替换为“做正确的事”，但该短语在谷歌最新的行为准则中仍然有效。并指出：“记住……不要作恶，如果你看到你认为不对的事情——说出来！”
 
-竞争对手接入
+原文链接：[https://www.theverge.com/2021/11/30/22809577/google-employees-sue-dont-be-evil-policy](https://www.theverge.com/2021/11/30/22809577/google-employees-sue-dont-be-evil-policy)
 
-据报道，Facebook在2020年5月以4亿美元的价格收购了制作和分享动画图片（即GIFs）的网站Giphy，以便将该业务与其Instagram照片分享应用整合。它已向CMA为该交易进行了辩护。
+***发布：Candy***
 
-GIFs的另一个主要供应商是谷歌的Tenor。
-
-然而，监管机构担心Meta可能会拒绝竞争对手进入Giphy GIFs，或迫使TikTok、Twitter和Snapchat等公司进入;监管机构还表示，Giphy在交易前在美国推出的创新广告服务可能会扩展到其他市场，比如英国，Meta控制着70亿英镑（93亿美元）的显示广告市场的近一半;CMA一直在加强对大科技领域的监管。
-
-上周，Alphabet公司的谷歌承诺对其Chrome浏览器的数据使用进行更多限制，以解决CMA对禁止广告商用来追踪消费者的第三方cookies计划的担忧。
-
-**简评：**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-7.jpg)REUTERS/Dado Ruvic/Illustration
-
-**一则[路透社](https://www.reuters.com/technology/facebook-risks-meta-flop-metaverse-developers-say-2021-12-01/)的相关报道。**
-
-**元空间参与者怀疑脸书是否准备好接受推动元宇宙的创造力和利润的精神（元宇宙的投资者和建设者，也是Animoca Brands的主席和联合创始人Yat Siu表示：脸书的元宇宙是假的）。**
-
-**基于区块链的资产交易产品，不可伪造的代币（NFTs）在很大程度上是不受监管的，欺诈者潜伏其中。任何人都可以创建和出售NFT，而且对其价值没有任何保证。**
-
-**里德·史密斯律师事务所（Reed Smith）专门从事技术和媒体法的合伙人索菲·古森斯（Sophie Goossens）说：“这让法律界人士有点头疼，他们试图将词汇与实际发生的情况相协调；法律术语中的所有权意味着……（通常）对一种资源的垄断，这种垄断由国家强制执行；你被授予对国家信托基金的数字所有权的权利类型略有不同。你可能没有权利完全控制你作为NFTs拥有的资产。”（可见，我们喜币可追查的强大）**
-
-**新闻来源：**[reuters.com] [UK watchdog orders Facebook owner Meta to sell Giphy](https://www.reuters.com/technology/britain-regulator-directs-facebook-sell-gif-maker-giphy-2021-11-30/) | 发布时间：2021年11月30日
-
-* * *
-
-*发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-1.jpeg)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

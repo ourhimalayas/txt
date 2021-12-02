@@ -2,61 +2,54 @@
 ---
 
 
-## 文·贵天成——文贵先生谈“黑石集团”（二）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1711637/)
+## 那些为“无苗”离职人员提供失业救济的福利州
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1711909/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/3-2-3.jpeg)图片来源：雅典娜农场设计组
-整理：BENJ1
-编辑：李易通
+编译：西班牙巴塞罗那喜悦农场-wenwu
 
-**往期回顾**：
-[文·贵天成——文贵先生谈“黑石集团”（一） – GNEWS](https://gnews.org/zh-hans/1710481/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-8.jpg)迈克埃尔曼/盖蒂图片社
 
-郭文贵**2018**年**4**月**7**日第一次直播
+一些州开始向因拒绝接种疫苗而辞职或被解雇的人，提供失业福利。这与几个月前的趋势相反，当时一系列由共和党领导的多数州过早地[选择退出](https://www.businessinsider.com/republican-states-cutting-unemployment-benefits-expanded-300-weekly-biden-stimulus-2021-5)联邦失业福利。在许多情况下，这完全停止了对零时工、自由职业者和[新近符合条件](https://www.businessinsider.com/75-million-workers-will-lose-all-unemployment-benefits-in-september-2021-8)的长期失业者的福利。
 
-我可以肯定的说，当时吴小晖第一次飞回香港待了几天，是卓芮和专案组的沟通，和王岐山的当面承诺，包括上边的承诺，专案组在各方面的问话的提纲都弄好以后，到了香港跟吴小晖核对完，这时他才回的北京。所以那次回去他暂时没事，这是共产党精心布置的一场很大的局。
+现在，一些共和党领导的州正在率先抵制（毒）疫苗强制令，并通过立法禁止它们。以下是这些变化的梳理，重点是失业援助。
 
-在这之前，吴小晖在纽约的时候，陈国庆还陪在左右跟他一起吃饭，吴小晖还见了高盛的投资者。所以你看一看，吴小晖的资产会去哪里？现在华尔道夫酒店很快又要卖给谁了？黑石集团。所有王岐山、孟建柱的资产，海航资产的买和卖都会经过黑石，卖回去又归黑石。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-9.jpg)Charlie Neibergall /美联社照片
 
-大家去想想这正常吗？未来会看到，吴小晖的很多资产又回到黑石了，吴小晖的资产姓国营、私营的说法都是胡扯八道，要看最后控制权在谁手里。那么，我们现在必须要问一下，如果吴小晖这个人被抓，今天这两条罪是中共设立的布袋罪，中国任何一个老板有这两条罪都该被抓。
+1，爱荷华州（Kim Reynolds州长，如图）是[最早由共和党领导的](https://www.businessinsider.com/republican-states-cutting-unemployment-benefits-expanded-300-weekly-biden-stimulus-2021-5)首批在夏季结束时候，为雇员提供的大流行失业福利州之一；于6月12日前，每周 300 美元的额外支票以及使自由职业者和长期失业者，有资格获得福利[的计划](https://www.businessinsider.com/four-states-cut-off-stimulus-jobless-aid-biden-white-house-2021-6)。
 
-郭文贵先生2018年4月16日直播
+但是，虽然爱荷华州的自由职业者和零时工工人几个月来无法领取福利，但未接种疫苗的工人现在有资格领取。10 月 29 日，雷诺兹（Kim Reynolds）州长[签署了一项法案](https://www.legis.iowa.gov/legislation/BillBook?ga=89&amp;ba=hf902)，称“因拒绝接种中共病毒（COVID-19）疫苗而被解雇”的人，不会因为他们的主动离职而被“取消福利资格”。
 
-王岐山来不来还不一定，还在游说，一定来，他得来，他不来怎么忽悠习主席？他得忽悠习主席，“美国我行，到美国去，只有我王岐山搞得定，还有我的高燕燕、高盛、黑石、华尔街，那就我行了，除了我还有谁行啊？”反正就是吹牛吧，牛皮吹破了也没法追究他，现在都是吹牛往大了吹，而且得用社交媒体吹，是吧？
+雷诺兹在一份[声明中](https://governor.iowa.gov/press-release/governor-reynolds-signs%C2%A0bipartisan%C2%A0vaccine-mandate%C2%A0bill-into-law%C2%A0%C2%A0)说，该立法“让员工保证，尽管他们因坚持自己的信仰而被解雇，但他们仍将获得失业救济金。” 她补充说，虽然她认为（毒）疫苗是对抗 COVID-19 的“最佳防御”，但“爱荷华州（雇员）不应因 COVID-19 疫苗而被迫失去工作或生计。”
 
-郭文贵先生2018年4月19日第三次直播
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-10.jpg)Paul Hennessy / SOPA Images / LightRocket via Getty Images
 
-最重要的同时也是非常可怕的事情，这些文件来自于美国的司法部，来自塞申斯的办公室。这个文件就证明了美国司法部里有很多卖国贼为他们中共工作。而且非常夸张的事情，孙力军竟然原来跟我在视频中说：“我绝对不是为了你，我拿我奶奶发誓，我拿我祖宗发誓，我没提你文贵大哥一个字。”但是从这个Email里就看到了，孙力军确确实实是被取消掉了会议。
+2，佛罗里达州[于 11 月 19 日批准了一项法案，](https://www.jacksonlewis.com/sites/default/files/docs/FloridaHB-1B.pdf)将失业援助扩大到“无苗族”，作为禁止中共疫苗强制令的立法方案的一部分。 罗恩·德桑蒂斯州长 (Ron DeSantis，如图) 在最近的一份声明中说：“任何人都不应该因中共病毒的强硬命令而失业，我们有责任保护佛罗里达州人民的生计。”佛州将失业援助资金扩大到“无苗族”已引起佛罗里达州民主党人的批评。州众议员安娜·埃斯卡马尼( Anna Eskamani) 在接受当地报纸《佛罗里达凤凰》(Florida Phoenix) 采访时，[称其为“笑话”](https://floridaphoenix.com/2021/11/11/a-remarkable-precedent-fl-republicans-want-to-pay-workers-who-refuse-to-submit-to-vaccine-mandates/)。
 
-但是他始终通过这个公关公司，还有吴征、Steve Wynn，还有那个黑石集团，包括川普总统的竞选经理，想办法跟塞申斯联系，并且他提出了新的条件，就是希望美国司法部答应把郭文贵的证件和签证给拿掉，包括我妻子和女儿的。还有几个高管，他们都很明确的通过Email的信息表示，要把我们的证件号码列入不能飞行的名单里（No-Fly List）。
+3，田纳西州立法者[批准了一项法案，](https://www.capitol.tn.gov/Bills/112/CCRReports/CC9002.pdf)禁止政府机构、私营企业和学校等主动去要求接种 COVID-19 疫苗，或要求提供疫苗接种证明；该法案的一部分还扩大了对“无苗族”的失业援助，并授权对符合条件的人进行追溯支付。
 
-郭文贵先生2018年12月27日视频
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-11.jpg) 美联社照片/马克汉弗莱，文件
 
-海航哪一天不在做内部交易？陈锋、王健哪一秒钟不做内部交易？高燕燕成立了中金，跟王岐山睡觉，是第一次拿着中国人民几十亿的钱投给了黑石，下星期就赔了20%，一直到现在还在赔，这不叫内部交易吗？这不叫强迫交易吗？高燕燕的几千亿美元，愿意做内部交易吗？她是直接拿，哪有什么交易。
+比尔·李州长（Bill Lee，如图）本月早些时候签署了该法案，试图扭转拜登政府在要求该州私营部门接种疫苗时，[所谓](https://www.newschannel5.com/news/gov-bill-lee-expected-to-sign-covid-19-special-session-omnibus-bill-today)的“越权”。
 
-郭文贵先生2019年1月16日视频第二部分
+4，堪萨斯州立法者于11月23日成功通过了一项措施，确保被解雇的“无苗族”仍能获得失业福利。
 
-我相信美国和纽约的司法机关，很快会对海航和慈航展开调查，包括和海航有关的上市公司，以及海航跟美国高盛之间的这种关系，包括跟黑石，我相信接下来会有一系列的事情发生。所以接下来，海航的事情会非常的热闹，刘呈杰的事情会浮出水面。贯军的爹娘是谁？爹就别说了，就是王岐山，贯军的娘，贯军的家族也会浮出水面。
+如果雇员“拒绝接受需要符合 COVID-19 疫苗要求的工作”或疫苗豁免请求被拒绝，他们“不会失去领取福利的资格或被取消领取福利的资格”。
 
-郭文贵先生2019年8月7日视频
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-12.jpg)约翰汉纳/美联社
 
-大家觉得这是偶然吗？太盟是香港版的海航，太盟投资是王岐山洗钱的钱庄。太盟所有接管的地产和公司都是海航的下一手。香港有一个太盟，美国有一个黑石基金，几乎海航百分之六七十的项目都是通过美国的黑石基金和香港太盟做的。刚刚的海航转让了40%的控股权给香港的城建投，城建投是海航王岐山洗钱的重要上市公司。如果天底下还有一个罪叫内部交易、操纵股市的话，非香港建投莫属，那就是陈峰、王健、王岐山、田国立和田惠宇等控制的上市公司。这是整个海航洗钱、骗钱、内部交易、骗贷、盗国的重要工具之一，它的背后跟中共国内的天津渤海公司和将近60家上市公司相互换手、相互坐庄、相互交易，在股市上洗钱、骗钱，而且他们整个太盟集团还在伦敦上市。
+民主党州长劳拉·凯利（Laura Kelly）将该法案签署为法律。她选择不在[该州](https://www.kwch.com/2021/09/01/out-of-work-kansans-wondering-whats-next-after-end-federal-unemployment-benefits/)在夏季[提前](https://www.kwch.com/2021/09/01/out-of-work-kansans-wondering-whats-next-after-end-federal-unemployment-benefits/)结束增强的失业福利。
 
-郭文贵先生2019年9月8日视频
+凯利在一份[声明中](https://governor.kansas.gov/governor-laura-kelly-signs-bill-in-response-to-federal-vaccine-mandate/)说：“我知道有些堪萨斯州的人认为这项立法走得不够远，还有一些人认为这项立法还不够深入；但我被选为领导，领导意味着寻求妥协。”
 
-你们记得几个月前我在纽约出席一个大学俱乐部，由这些大佬们召开的一个会议吗？在会上很多人挑战凯尔·巴斯，但没人挑战我。他们说：“凯尔巴斯你想做空中国、做空港币，但你甭想在这瞎忽悠，像黑石基金、高盛、摩根士丹利这些投资机构都说，你甭忽悠我们，我们跟中国现在好着呢。我们在香港投资那么多钱。”凯尔·巴斯一个人对付这么多人。我代表我的哥们儿发言的时候全场鸦雀无声，没人敢挑战我，我当时就告诉他们，你们将会死无葬身之地。
+**新闻来源：**[businessinsider.com] [Here are all the states providing unemployment benefits for people who quit or were fired because they refused to get vaccinated](https://www.businessinsider.com/states-providing-unemployment-aid-vaccine-mandate-2021-11) |发布时间：2021年11月30日
 
-郭文贵先生2019年9月15日
+* * *
 
-王岐山和美国的布隆伯格要在北京搞一个大的论坛，参加的都是牛叉的人，像黑石的苏世明、布隆伯格、过去的财长高盛的主席鲍尔森、现在的高盛主席、摩根史丹利的主席、还有共和党和民主党的几个大佬。而且最夸张的事情，还邀请了班农，让班农去，全程安排，国家一级警卫，只要班农先生来，给予国宾待遇。这意味着什么？意味着共产党要花血本，蓝金黄最支持香港运动的人。
+*发稿：信心的选择*
 
-发布：Peter Xin
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-1.jpeg)
 
-**更多****资讯****，****请关****注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
 
  
 

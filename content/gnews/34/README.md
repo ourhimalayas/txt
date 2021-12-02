@@ -2,257 +2,46 @@
 ---
 
 
-## 你们都感觉像他们感觉过的吗
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1711519/)
+## 日本东京方舟农场文化灭共「力挺班农」
+` WindTalker` [轉載自GNews](https://gnews.org/zh-hans/1711799/)
 
-[https://gtv.org/video/id=61a6f86c3ff6481adce6d4b7](https://gtv.org/video/id=61a6f86c3ff6481adce6d4b7)
+——日本东京方舟农场战友「方舟柒公子」言：积跬步，致千里，每天做一点，不虚度光阴。
 
-**Andrew Cuomo (Former NY governor)**
-**安德鲁·科莫（前纽约州州长）**
+**设计/策划/撰文：宇宙之泾 **
 
-I think it’s going to be a very skeptical American public about taking the vaccine
-我认为美国公众对接种疫苗持怀疑态度
+**绘画/书法/篆刻：方舟柒公子**
 
-and it should be
-而且应该提出质疑
+**书法：Livre 动漫画：星空**
 
-Ilhan Omar (Minnesota Representative)
-伊尔汗·奥马尔（明尼苏达州众议员）
+近期，日本东京方舟文化灭共组我们有关注到美国影子政府鬼魅势力与邪魔中国共产党明来暗往的勾结，就是对于我们新中国联邦最坚定的战友，美国天主教徒，美国政坛和世界政坛的领袖级人物班农先生的污蔑诋毁和政治迫害。对此，战友们作为新中国联邦的小水滴也迅速作出了回应和行动。班农先生倡导的平民主义和文贵先生一直挂在嘴边的正道主义不谋而合，都是为了我们平民草根在发声和奔走呼告，而班农先生在法治基金成立三周年大直播中，我们尊敬的文贵先生专门提起：班农先生认为「平民主义」运动和路线一定是来自于社会各个阶层并不单是一个阶层。
 
-we can’t trust the president and take his word
-我们不能相信总统并相信他的话
+在说到我们每个战友非常敬佩和喜爱的班农先生时，有说起班农先生对中国人真挚的爱和疼惜，媒体平台直播不要任何他经常提到的中国「老百姓」的打赏，拒绝文贵先生的生日「红包」等等细节描述，七哥说：“中国共产党永远不会知道这个世界还有灵魂如此高贵的人物”！我们不禁又重新·把文贵先生2018年11月20日信息发布会的视频找出来再一次见证奇迹和震撼的演讲内容，历历在目，时过境迁今天再一次体会到什么是唯真不破，昨天的怒吼犹在耳旁，今天的病毒和疫苗灾难已经活生生，血淋淋呈现在各位眼前。
 
-and take a vaccine that might cause harm to us.
-而且接种可能对我们造成伤害的疫苗
+今年的1120当天，看完十几个小时的大直播后，我在盖特写下这么一段文字：各位战友和灭共者，今天是新中国联邦法治基金成立三周年。我们跟随七哥一直以来，坚持正道主义，平民主义，坚持揭露中国共产党的邪恶和集权独裁杀人政权，揭露真相，追求真相和信仰。经历了十几个小时的【七哥&班农先生】大直播，我们看到了文贵先生和班农先生的大智慧和勇气，灭共的自信和决心！让我们一起携手互爱互助，有钱出钱有力出力，没力出时间。把法治基金，法治社会建设得更加坚实和完善。
 
-Joe Biden (US president)
-乔·拜登（美国总统）
+以下是日本东京方舟农场文化灭共组近期支持班农先生，「力挺班农」的平面作品如下：
 
-If and when the vaccine comes
-如果真的有疫苗研制出来
 
-it’s not likely to go through all the tests
-它不太可能通过所有测试
+![](https://assets.gnews.org/wp-content/uploads/2021/12/80AD72DC-4EFC-4E89-AE67-EBCDEC829568_1_201_a.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/F4983E9C-0416-4BA0-8874-DE4839B0E706.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/00343A9F-BEEB-4B64-9BF2-C9F6C2346CDB_1_102_o.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/7AC28DA0-AAAC-4832-9C15-18FFB95B0E0C_1_102_o.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/28326041-352A-48DF-A85F-6CB512C66357_1_102_o.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/1C9341BF-3B1B-4170-B029-EC299AE44039.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/85A9DBF3-4860-4C4F-8B7B-962289F759D4_1_100_o-1-scaled.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/73A43459-2029-4DBE-89E4-993EF95E97A9_1_201_a.jpeg)
 
-the trails that are needed to be done
-以及需要完成的途径
+- **只有那些疯狂到认为自己可以改变世界的人，才能真正改变这个世界。**
 
-Dana Bash (CNN anchor)
-达娜·巴什（CNN 主播）
 
-Let’s just say there’s a vaccine
-假设有一款疫苗被研制出来
 
-that is approved and even distributed before the election.
-在选举前获得批准甚至分发
 
-Would you get it?
-你会用它吗？
 
-Kamala Harris (Vice President)
-卡马拉·哈里斯（副总统）
 
-Well, I think that’s gonna be an issue for all of us.
-好吧，我认为这对我们所有人来说都是一个问题
+2021年12月| 一 | 二 | 三 | 四 | 五 | 六 | 日 |
+| --- | --- | --- | --- | --- | --- | --- |
+|   | [1](https://gnews.org/zh-hans/date/2021/12/01/) | 2 | 3 | 4 | 5 |
+| 6 | 7 | 8 | 9 | 10 | 11 | 12 |
+| 13 | 14 | 15 | 16 | 17 | 18 | 19 |
+| 20 | 21 | 22 | 23 | 24 | 25 | 26 |
+| 27 | 28 | 29 | 30 | 31 |   |
 
-Joe Biden
-乔·拜登
-
-When we finally do God willing, get a vaccine, who’s gonna take the shot?
-当我们最终做了上帝的旨意，该接种疫苗时，谁会注射呢？
-
-Who’s gonna take the shot？
-谁会注射呢？
-
-CNN guest
-CNN嘉宾
-
-we will need to have access to the vaccine results
-我们需要获得疫苗结果
-
-so that we can make our independent assessment to make sure
-以便我们可以进行独立评估以确保
-
-that Donald Trump’s fingerprints are not on it.
-唐纳德·川普的痕迹不在上面
-
-Joe Biden
-乔·拜登
-
-You can be the first one to say put me, sign me up?
-你可以第一个说把我，登记我吗？
-
-They now say it’s okay.
-他们现在说没关系
-
-Andrew Cuomo
-安德鲁·科莫
-
-Is the vaccine safe? Frankly, I’m not going to trust the federal government’s opinion.
-疫苗安全吗？坦率地说，我不会相信联邦政府的意见
-
-And I wouldn’t recommend the New Yorkers based on the federal govern-ment’s opinion
-我不会根据联邦政府的意见来推荐给纽约人
-
-Joe Biden
-乔·拜登
-
-and the question of whether it’s real when it’s there
-以及它是否真实的，什么时候它会出现的问题
-
-that requires enormous transparency.
-这需要极大的透明度
-
-Dana Bash
-达娜·巴什
-
-Would you trust that vaccines？
-你会相信疫苗吗
-
-Kamala Harris
-卡马拉·哈里斯
-
-there’s very little that we can trust that comes out of Donald Trump’s mouth.
-从唐纳德·川普的嘴里说出来的，我们可以相信的很少
-
-Patty Murray (Senator)
-帕蒂·默里（参议员）
-
-We cannot take for granted this process will be free of political influence.
-我们不能想当然地认为这个过程将不受政治影响
-
-Andrew Cuomo
-安德鲁·科莫
-
-I don’t trust the President and I don’t trust the FDA.
-我不信任总统，也不信任食品和药物管理局
-
-Joe Biden
-乔·拜登
-
-If Donald Trump can’t give answers
-如果唐纳德·川普不能给出答案
-
-and his administration can’t give answers to these three questions.
-而且他的政府无法回答这三个问题
-
-The American people should not have confidence.
-美国人民不应该有信心
-
-Andrew Cuomo
-安德鲁·科莫
-
-You’re going to say to the American people now.
-你现在要对美国人民说
-
-Here’s a vaccine, It was new, it was done quickly.
-这是一种疫苗，它是新的，很快地完成的
-
-But trust this federal administration and their health administration that it’s safe.
-但是要相信这个联邦政府和他们的卫生行政部门是安全的
-
-Kamala Harris
-卡马拉·哈里斯
-
-I will say that I would not trust Donald Trump.
-我会说我不会相信唐纳德·川普
-
-George Stephanopoulos (ABC co-anchor on Good Morning America)
-乔治·斯蒂芬诺普洛斯（美国广播公司早安美国联合主播）
-
-how confident are you in the approval process the FDA right now?
-你现在对食品和药物管理局的批准程序有多大信心？
-
-Andrew Cuomo
-安德鲁·科莫
-
-How confident am I? I’m not confident?
-我有多确信？我没信心？
-
-Yes, I would be hesitant, but I’m gonna ask a lot of questions.
-是的，我会犹豫，但我会问很多问题
-
-Andrew Cuomo
-安德鲁·科莫
-
-You’re going to need someone other than this FDA.
-除了这个食品和药物管理局，你将需要其他人
-
-And this CDC saying it’s safe
-而这个疾病预防与控制中心说它是安全的
-
-Joe Biden
-乔·拜登
-
-You’ve got to make all of it available to other experts across the nation.
-你必须把所有疫苗的信息提供给全国的其他专家
-
-So they can look and see. There’s consensus this is a safe vaccine.
-所以他们可以进行检查， 一致认为这是一款安全的疫苗
-
-Tina Smith (Senator D-Minnesota)
-蒂娜·史密斯（明尼苏达州民主党参议员）
-
-What I’m worried about is that there’s some sort of October surprise
-我担心的是十月会有什么惊喜
-
-and that there is a pressure put on the decision makers here
-并且这里的决策者承受着压力
-
-to announce a vaccine in October 2020.
-在2020年10月来宣布一款疫苗
-
-Andrew Cuomo
-安德鲁·科莫
-
-We’re going to put together our own group
-我们要组建我们自己的
-
-of doctors and medical experts to review
-的医生和医学专家小组进行审查
-
-the vaccine and the efficacy and the protocol.
-疫苗、功效和方案
-
-And if they say it’s safe,
-如果他们说这是安全的
-
-then I’ll go to the people of New York
-然后我会去和纽约人说
-
-and I will say it’s safe,
-我会说这是安全的
-
-Kamala Harris
-卡马拉·哈里斯
-
-but it Donald Trump tells us that we should taken it
-但唐纳德·川普告诉我们，我们应该接种它
-
-I’m not taking it
-我不会用的
-
-**原视频链接**:[https://gettr.com/post/pi7phu2ed0](https://gettr.com/post/pi7phu2ed0)
-
-Date:11/29/2021
-原视频标题: Do y’all Feel like they Felt????
-你们都感觉像他们感觉过的吗？ ？ ？ ？
-原视频日期：2021/11/28
-原视频链接: https://gettr.com/post/pi7phu2ed0
-任务编号：KE349(3048)
-视频时间段 : 0:00-2:35
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+[« 11月](https://gnews.org/zh-hans/date/2021/11/)  
+ 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
