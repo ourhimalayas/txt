@@ -2,28 +2,85 @@
 ---
 
 
-## 中共科学家宣称发现病毒抗体解药
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1712538/)
+## 参照四条，你就知道共产党会不会被灭
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1712653/)
 
-翻译：billwilliam
+[https://gtv.org/video/id=61a820c23ff6481adce77778](https://gtv.org/video/id=61a820c23ff6481adce77778)
+
+看就看四个指标。
+Just look at four indicators
+
+第一，美国在亚太的军事部署。
+First, U.S. military deployment in the Asia-Pacific
+
+第二，对台的实际行动。
+Secondly, the actual action of US to protect Taiwan
+
+你知道问什么为什么拍那个飞机的照片吗？
+Do you know why that picture of the plane was taken?
+
+那是象征着美国外交的专机, 美国国务院国务卿的专机。
+That’s the plane that symbolizes American diplomacy, the plane of the Secretary of State of the United States
+
+一个是757，再一个是737，主要是757，长途飞行,大概有一二十架。
+The plane has two styles. One is boring 757, another is 737. The main plane is 757 which is using long-distance travel, there are about one or two dozen of them
+
+但凡来过美国，你到华盛顿两个机场，特别是私人飞机，飞的时候你看到平面上永远有美国国务院飞机和CIA商业喷涂掩盖好的隐蔽式飞机。
+Anyone who has been to the United States, you go to the two airports in Washington, especially by private aircraft, you would see the U.S. State Department plane & CIA concealed aircraft covering by commercial spraying
+
+这种国务院专机到达之地，就是美国外交关系的合法证明。
+The arrival destination of U.S. State Department plane is legitimate certificate of the US diplomatic relationship
+
+美国有上千架CIA调动的这种飞机，看上去是民航，看后面是美国CIA的，还有一个CIA的只有喷涂没有编号的，那就是CIA的飞机。
+US have thousands of CIA mobilized aircraft, it looks like civil aviation, look at the back is the United States CIA, there is a CIA only sprayed without the serial number, that is the CIA aircraft
+
+757国务卿专机，外交专机，你动那个飞机就是跟美国人开战。
+The boring 757 U.S. diplomatic special plane and U.S. Secretary of State plane, if you attacking the plane means you declare a war with US
+
+意义重大。关键飞机还有谁看到了吗？美国的共和党和民主党同乘坐专机去,这是很吓人的事。
+It was significant. What key figures did you seen in the photo? It’s shocking that the Republicans and Democrats in the United States are going on a special plane together
+
+你去看那些人的背景，哪个都有可能被选为下一任总统。
+If you examine the background of those senators and congressmen, These are the people who could be chosen as the next president
+
+第三个，看什么 ，钱。
+The third, what we notice is money
+
+你看现在还有往中国投钱的吗？
+Have you seen anyone invest to china?
+
+你见美国公司有不往外撤的吗？
+Don’t you see American companies pulling money out of the country?
+
+第四条，大家看看所谓的美国和中国政府谈的，我们双方都有一个建墙效应，坚决不能发生战争，不能发生误会，不能所谓擦枪走火，对台湾，你不能有愚蠢的行动，都是骗你的。
+The fourth, let’s see what the conversation between US and China. Saying that we had a bilateral wall effect which including no war, no misunderstanding, no misfire, no stupid action to Taiwan. All promises are lies
+
+不要看美国政府说啥，看看萨达姆，伊拉克，警告萨达姆美国无意与你开战，美国绝不想改变的你的政府体制，对你萨达姆本人没有任何恶意，接着美国就打过去了。
+You shouldn’t just hear the words of US, notice the action. Let’s look at Saddam’s example. Before the Gulf War, US warning the Saddam that the United States has no intention of going to war with you, the United States in no way wants to change your system of government, has no ill will toward Saddam himself, then the United States hit Iraq
+
+参照以上四条，你就知道共产党会不会被灭。
+Refer to the four indicators, you will know whether the Communist Party will be destroyed
+
+* * *
+
+原视频标题: 参照四条，你就知道共产党会不会被灭
+Refer to the four indicators, you will know whether the Communist Party will be destroyed
+原视频日期：2021/11/29
+原视频链接: [https://gettr.com/post/pi8f1513f2](https://gettr.com/post/pi8f1513f2)
+任务编号：KC301（3060）
+视频时间段 : 0:00-2:28
+中听校：洛杉矶盘古农场 – 73stolencountry
+英文翻译：洛杉矶盘古农场 – 73stolencountry
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-2.png)
-图源：rheumnow.com
-
-据零对冲报道，中共国科学家发表论文称他们发现一种新型人类抗体，对多种中共病毒变种具有广谱疗效。又在忽悠西方社会。
-
-广州中山大学、杭州浙江大学及其他机构周二联合发表论文，他们使用冷冻电子显微镜技术（Cryo EM），发现一种名为35B5的抗体能结合中共病毒表面触手的51处独特的抗原决定位（epitope）。抗体结合的位点在所有中共病毒变种的触手蛋白受体结合域（RBD）上都存在。研究人员认为该抗体对各种病毒变种均具有广谱抗病毒疗效。零对冲调侃说，没准这种抗体比默克公司的口服抗病毒神药还管用。
-
-据称，“广谱中和疗效”指病毒不仅能抑制最早的中共病毒，而且还能抑制其他变种，甚至抑制还未出现的变种。抗体针对的病毒触手部位未发生变异。论文称，“可以利用这些发现理性设计对所有新冠病毒有效的疫苗”。研究人员尚未测试这种抗体是否对新型的欧米克戎（omicron）变种有效，但他们认为新变种病毒具有被35B5抗体抑制的特性。
-
-郭文贵先生曾经爆料说，中共拥有几种病毒解药，分别是羟氯喹、青蒿素、伊维菌素、还有NAb抗体。中共最早想利用解药同美国和西方世界谈判，迫使西方世界妥协。但是后来郭先生公布青蒿素就是病毒解药，把中共的计划打乱。中共此时释放欧米克戎变种病毒，然后发表抗体解药，可能又想故伎重演，再次迫使西方投降。发表抗体解药的时间点也很特别，上周郭先生爆料称美国派遣国务卿级别专机访问台湾，实际宣誓美国会捍卫台湾民主。中共同时释放病毒又公布解药，就是妄图利用恐惧心理胁迫西方，目的可能还是想入侵台湾并打压青蒿素。毕竟青蒿素不仅能治疗病毒感染，还能降解毒疫苗的副作用。抗体不具备对疫苗解毒的作用。
-
-冠状病毒是中共研发投放的生物武器，中共当然拥有NAb抗体解药。只是没人敢相信中共假骗偷体系生产的医疗产品，有谁愿意注射中共国生产的抗体呢？论文中还提到设计广谱抗中共病毒的新疫苗，这不是要进行新一轮的强制注射疫苗吗？众所周知，毒疫苗会造成心肌炎、癌症、血栓、神经系统病变等多种副作用。相信共产党，走进火葬场。
-
-信息来源：
-
-https://www.zerohedge.com/markets/chinese-researchers-claim-have-found-antibody-cure-covid
 
  
 

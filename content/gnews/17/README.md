@@ -2,85 +2,46 @@
 ---
 
 
-## 参照四条，你就知道共产党会不会被灭
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1712653/)
+## 中共按计划释放新冠病毒新毒株Omicron
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1712875/)
 
-[https://gtv.org/video/id=61a820c23ff6481adce77778](https://gtv.org/video/id=61a820c23ff6481adce77778)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-14.png)图片：healthmatters
+11月26日，世界卫生组织WTO宣布：在南非发现新型冠状病毒变体毒株B.1.1.529—奥密克戎（Omicron）。世卫组织警告，这种新变种比此前肆虐的德尔塔毒株更具传染性，传染力比德尔塔高37.5%。截止到目前，24个国家暂停了来往南非等七国的人员入境，日本和以色列也因此拒绝所有外国人入境。
 
-看就看四个指标。
-Just look at four indicators
+过去2年，奥密克戎Omicron是第五种“关切变异株”(variant of concern,VOC)。为什么新冠病毒变异如此之快？其实郭文贵先生在9月26日通过文贵大直播已经向全世界发出警告，中共会从非洲再次释放新的病毒来攻击全世界。奥密克戎的出现是中共蓄谋已久，有计划的实施放毒计划。
 
-第一，美国在亚太的军事部署。
-First, U.S. military deployment in the Asia-Pacific
+文贵先生通过11月28日的文贵大直播介绍了中共再次释放新病毒的目的：
 
-第二，对台的实际行动。
-Secondly, the actual action of US to protect Taiwan
+中共继续勾结全球黑暗势力，在全球各国推行强制打疫苗。通过投放新病毒，让更多人恐慌。同时通过控制的社交媒体，给人们灌输需要不断接种新的毒疫苗才能活下去的思想。最终通过毒疫苗来达到反人类的人口大消减目的。
 
-你知道问什么为什么拍那个飞机的照片吗？
-Do you know why that picture of the plane was taken?
+通过释放病毒，让民主国家关闭国门，切断供应，引起国家内部政治动乱。同时配合俄罗斯攻击乌克兰，主动攻打台湾，让国际社会无暇顾及俄罗斯和中国的侵略行为。
 
-那是象征着美国外交的专机, 美国国务院国务卿的专机。
-That’s the plane that symbolizes American diplomacy, the plane of the Secretary of State of the United States
+打垮各国经济，干掉美元，推行人民币全球化。
 
-一个是757，再一个是737，主要是757，长途飞行,大概有一二十架。
-The plane has two styles. One is boring 757, another is 737. The main plane is 757 which is using long-distance travel, there are about one or two dozen of them
+文贵先生还详细揭露了新病毒的释放步骤：
 
-但凡来过美国，你到华盛顿两个机场，特别是私人飞机，飞的时候你看到平面上永远有美国国务院飞机和CIA商业喷涂掩盖好的隐蔽式飞机。
-Anyone who has been to the United States, you go to the two airports in Washington, especially by private aircraft, you would see the U.S. State Department plane & CIA concealed aircraft covering by commercial spraying
+1，9月，中共派遣外交部的杨洁篪和王毅跟随军机分别千万中东和非洲，提前准备通过非洲的实验室放毒。
 
-这种国务院专机到达之地，就是美国外交关系的合法证明。
-The arrival destination of U.S. State Department plane is legitimate certificate of the US diplomatic relationship
+2，渲染南非等非洲国家的新病毒，暗地提前在美国西部投放新病毒。据文贵先生11月29日最新的盖特透露:中共会在感恩节后的48小时内将新冠病毒变种—奥密克戎投放到美国东部纽约和加拿大。
 
-美国有上千架CIA调动的这种飞机，看上去是民航，看后面是美国CIA的，还有一个CIA的只有喷涂没有编号的，那就是CIA的飞机。
-US have thousands of CIA mobilized aircraft, it looks like civil aviation, look at the back is the United States CIA, there is a CIA only sprayed without the serial number, that is the CIA aircraft
+这一切都是中国共产党从9月开始实施的有计划放毒行为。只有爆料革命坚持不懈的向全世界发出警告，可是这并没有阻止中共对全世界的杀戮。很多国家还在推行强制接种毒疫苗，每天都有新的人们因感染病毒和毒疫苗注射而致死致残。
 
-757国务卿专机，外交专机，你动那个飞机就是跟美国人开战。
-The boring 757 U.S. diplomatic special plane and U.S. Secretary of State plane, if you attacking the plane means you declare a war with US
+文贵先生在直播中还透露，新冠新毒株奥密克戎Omicron，预防药物（硫酸羟氯喹+锌片）和解药（伊维菌素，青蒿素和地塞米松等）仍然有效，甚至效果更好。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-46.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/image-47.png)图片：战友duwei维度的盖特
+文贵先生最后向全世界发出警告，如果不能停止毒疫苗，如果不能尽早查明病毒真相，各国政府不能尽快对中共的放毒行为展开行动，铲除中共这个世界最大的毒瘤，将有更多人死于病毒和疫苗，西方世界的经济、政治、文化将被共产党所统治，世界将陷入万劫不复的黑暗深渊。请持续关注Gnews、GTV和Gettr这些传播病毒真相的媒体，积极传播病毒和疫苗真相，挽救更多无辜的人。共产党不灭，新病毒不止！
 
-意义重大。关键飞机还有谁看到了吗？美国的共和党和民主党同乘坐专机去,这是很吓人的事。
-It was significant. What key figures did you seen in the photo? It’s shocking that the Republicans and Democrats in the United States are going on a special plane together
+【文章观点仅代表作者个人，与gnews平台无关】
+资料来源：
+1、Gnews中文网：[https://gnews.org/zh-hant/1706229/](https://gnews.org/zh-hant/1706229/)
+2、凤凰中文网：[https://news.ifeng.com/c/8BWqHs8IMgj](https://news.ifeng.com/c/8BWqHs8IMgj)
 
-你去看那些人的背景，哪个都有可能被选为下一任总统。
-If you examine the background of those senators and congressmen, These are the people who could be chosen as the next president
-
-第三个，看什么 ，钱。
-The third, what we notice is money
-
-你看现在还有往中国投钱的吗？
-Have you seen anyone invest to china?
-
-你见美国公司有不往外撤的吗？
-Don’t you see American companies pulling money out of the country?
-
-第四条，大家看看所谓的美国和中国政府谈的，我们双方都有一个建墙效应，坚决不能发生战争，不能发生误会，不能所谓擦枪走火，对台湾，你不能有愚蠢的行动，都是骗你的。
-The fourth, let’s see what the conversation between US and China. Saying that we had a bilateral wall effect which including no war, no misunderstanding, no misfire, no stupid action to Taiwan. All promises are lies
-
-不要看美国政府说啥，看看萨达姆，伊拉克，警告萨达姆美国无意与你开战，美国绝不想改变的你的政府体制，对你萨达姆本人没有任何恶意，接着美国就打过去了。
-You shouldn’t just hear the words of US, notice the action. Let’s look at Saddam’s example. Before the Gulf War, US warning the Saddam that the United States has no intention of going to war with you, the United States in no way wants to change your system of government, has no ill will toward Saddam himself, then the United States hit Iraq
-
-参照以上四条，你就知道共产党会不会被灭。
-Refer to the four indicators, you will know whether the Communist Party will be destroyed
-
-* * *
-
-原视频标题: 参照四条，你就知道共产党会不会被灭
-Refer to the four indicators, you will know whether the Communist Party will be destroyed
-原视频日期：2021/11/29
-原视频链接: [https://gettr.com/post/pi8f1513f2](https://gettr.com/post/pi8f1513f2)
-任务编号：KC301（3060）
-视频时间段 : 0:00-2:28
-中听校：洛杉矶盘古农场 – 73stolencountry
-英文翻译：洛杉矶盘古农场 – 73stolencountry
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 ：洛杉矶盘古农场 – 恩典
+作者：洛杉矶盘古农场—文如
+编辑：洛杉矶盘古农场—73stolencountry
+发布：洛杉矶盘古农场—恩典
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
 [https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-
 
  
 

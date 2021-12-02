@@ -2,48 +2,28 @@
 ---
 
 
-## 法国议会两院通过决议支持台湾参与全球事务
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1712426/)
+## 福奇和拜登敦促推出新冠病毒变种Omicron的疫苗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1712552/)
 
-作者：纽约香草山教育部 Naughty(文行)
+编译：Kal
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片4.png)
+图片来源：Al Jazeera
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/LOGO-1.jpg)
+据合众国际社(United Press International)11月30日报道， 白宫周二表示正在美国积极寻找冠状病毒变种Omicron病例，并继续强调疫苗的接种。
 
+总统首席医疗顾问福奇表示，目前对Omicron变种的了解有限。但他认为目前的疫苗和加强针对Omicron变种有效。
 
+疾病控制和预防中心主任罗谢尔·瓦伦斯基(Rochelle Walensky)博士强调了加强针的重要性，但她并没有将其加入“完全接种疫苗”的定义中。她说，这个话题正在讨论中。
 
+白宫新冠病毒响应小组协调员杰夫·齐恩茨(Jeff Zients)表示，他们已与辉瑞、Moderna 和强生这三家在美国获批的疫苗公司进行了接触并讨论是否需要进行疫苗修改。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/法国议会.jpeg)法国议会（图片来自美联社）
-据《台北时报》报道，11月30日，对于法国国民议会周一通过支持台湾参与国际事务的决议，台湾表示感谢。该决议呼吁法国政府为台湾参加国际民用航空组织、国际刑警组织、联合国气候变化框架公约和世界卫生大会等机构提供具体支持。 台湾外交部称赞该决议的通过是“历史性的”，体现了法国议会两院对台湾参与国际事务的具体支持。
+福奇警告说，虽然患 Omicron 变种病毒影响的人有“轻度”症状，但他说现在判断其进展还为时过早。他说，未来几周需要更多时间来确认这些病例的严重程度。
 
-外交部表示，台湾和法国有着长期的伙伴关系，双方具有以民主、自由和人权的共同价值观为基础的高度信任。 台湾民进党发言人谢佩芬说，过去几年来，台法关系一直在升温，双方建立这种友谊“不是偶然的”，而是自由和民主共同价值观的必然结果。 谢佩芬对法国参议院和政府表示衷心感谢，并称赞台湾所有外交官的辛勤工作使两国之间的友谊达到了新的高度。
+根据疾病预防控制中心的数据，大约 70% 的美国人至少接种了一剂疫苗。近 60% 的人已完全接种疫苗。
 
+拜登在周一的讲话中，会尽快升级疫苗或加强针来应对 Omicron。福奇本周表示，Omicron可能更具传播性，并且几乎肯定会在某个时候出现在美国。突变的特征表明它在传播性方面具有优势，并且它可能会逃避免疫保护，例如，从单克隆抗体或一个人被感染后的恢复期血清中获得的免疫保护，甚至可能对抗一些疫苗诱导的抗体。称目前美国还没有正式的应对方案。
 
-
-参考链接：
-
-[https://www.taipeitimes.com/News/front/archives/2021/12/01/2003768814](https://www.taipeitimes.com/News/front/archives/2021/12/01/2003768814)
-
-
-
-总编：飞虹
-
-校对/发稿：有莫举名
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/rili.png)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/LOGO-1.jpg)
+##### **新闻来源：**[Dr. Fauci, others on Biden’s COVID-19 team urge vaccines against Omicron variant](https://www.upi.com/Top_News/US/2021/11/30/covid-omicron-variant-white-house/7571638281980/)
 
 
 
