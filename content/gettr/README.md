@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/2/2021 12:20 PM (UTC)`
+
+12月2号：尊敬的战友们好……感谢旧金山的文心战友，找到了这个视频．从这个视频看七哥像个处男士是的．很腼腆呢？　【七哥，这应该是您第一次直播改网友称呼为战友，对不对😅 2018年1月4日】
+![img](https://media.gettr.com/group12/getter/2021/12/02/12/20/bea8e2fe-8efb-2205-1832-1012e592a3ac/out.jpg)
+
+---
+
 `@miles 12/2/2021 10:03 AM (UTC)`
 
 12/1/2021 Miles Guo: Alvin Chau is not a key figure under Meng Jianzhu’s command, and Xi Jinping has yet shaken the foundation of Meng Jianzhu’s forces; the Jiang family alone controls nearly one third of Bitcoins, Meng Jianzhu controls Huobi, oversea gangsters, and drug and human trafficking, and they all believe Xi Jinping is just an idiot<br/><br/>12/1/2021 文贵直播：洗米华只是孟建柱手下的小人物，习近平尚未动摇孟的根基；江家控制了近三分之一的比特币，孟控制了火币、海外黑帮、贩毒和贩卖人口，他们认为习就是个傻子<br/>
@@ -152,13 +159,6 @@ G Fashion 最特别的帽子即将登场，这些帽子都是跟那些大牌同�
 
 11/29/2021 Miles Guo’s GETTR: In fact, the CCP released the new virus in the Western US (including Hawaii) and South America, and the new virus will soon appear in the Eastern US and Canada; all dictators play the same trick - serve as the second in power before replacing the chief and then instigate racial conflicts and social turmoil, and wage wars<br/><br/>11/29/2021 文贵盖特：中共实际上是在美西(包括夏威夷)和南美放毒，新病毒将很快出现在美东和加拿大；独裁者的套路都是先当副手再取代一把手，进而制造种族冲突、社会动荡和发动战争<br/>
 ![img](https://media.gettr.com/group34/getter/2021/11/30/04/46/adb788e3-4481-2009-8cc3-cb9dffac1546/out.jpg)
-
----
-
-`@miles 11/30/2021 1:47 AM (UTC)`
-
-11/29/2021 Miles Guo’s GETTR: Why must Xi Jinping eliminate Wang Qishan? The essence of the CCP’s system is the bad money turns the good one into the evilest one, whereas it is now popular in the CCP to have private conversations on the Himalaya Coin and the New Federal State of China<br/><br/>11/29/2021 文贵盖特：为什么说习近平必须灭掉王岐山？中共体制的本质是劣币把良币变成恶币，而中共党内流行私下谈喜币和新中国联邦<br/>
-![img](https://media.gettr.com/group43/getter/2021/11/30/01/47/0126729b-ae93-607b-a25b-6e7be24b1ecc/out.jpg)
 
 ---
 
