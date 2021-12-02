@@ -2,44 +2,33 @@
 ---
 
 
-## 婴儿死亡潮已经开始，因孕妇被继续注射新冠疫苗
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1712330/)
+## AUKUS联盟可能欢迎更多国家进行合作
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1712441/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+**翻译：皮特**
+**编辑：MSGZ**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/6794448-3x2-700x467-1.jpg)
-
-
- 
-图片来源：MediaForMedical/UIG via Getty Images
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/lianmeng.png)图片来源：msn.com
 
 
-#### 编译：小红帽
+据美国总统乔拜登的一位高级顾问称，澳大利亚与英国和美国的安全协议（AUKUS）可能会欢迎更多国家加入。
 
-苏格兰的官员报告说，新生儿死亡人数“异常增加”，这促使他们进行调查。
+AUKUS 协议承诺这三个国家共享敏感的军事技术——包括关于核潜艇的技术。
 
-根据官方数字，在9月份，有21名婴儿在出生后28天内死亡。这是一个明显的峰值和异常值，专家说不能简单地归因于偶然。
+华盛顿印太事务协调员库尔特坎贝尔透露，已经有其他国家提出加入该联盟的请求。
 
-据Newspunch报道，“虽然每个月的婴儿死亡率都有很大差异，但仅从偶然性来看，增加的幅度比预期的大”。
+坎贝尔先生说：“这表明AUKUS引起广泛的兴趣，许多亲密的盟友立即询问：我们可以加入吗，可以参与吗？”
 
-“苏格兰公共卫生局（PHS）和其他机构现在正在调查，新冠大流行或其他因素是否可能是新生儿死亡率增加的背后原因。”
+“这要归功于澳大利亚和英国，他们坚持认为，这不是一个封闭的架构，而是一个开放的结构。我们希望在前进的过程中，在军事创新的关键领域与合作伙伴合作。”
 
-事实证明，新生儿死亡率在9月份也有所增加，《苏格兰先驱报》称说这是不正常的。
+原文链接：[https://www.msn.com/en-au/news/other/aukus-alliance-could-welcome-more-countries-into-partnership/ar-AARjDZH?ocid=msedgntp](https://www.msn.com/en-au/news/other/aukus-alliance-could-welcome-more-countries-into-partnership/ar-AARjDZH?ocid=msedgntp)
 
-“控制和警告限制是为了在新生儿、死胎或其他婴儿死亡发生在意外的高或低水平时，向公共卫生团队发出警报，这可能不是由于偶然因素造成的，”该论文报道。
+***发布：Candy***
 
-传统的解释一定必然归咎于“新冠病毒 ”。几乎没有人提到新冠疫苗这个词，尽管注射新冠疫苗是最明显的罪魁祸首。
-
-**参考新闻：**[STILLBIRTHS GALORE: The infant death wave has begun as pregnant women continue getting jabbed for “covid” – NaturalNews.com](https://www.naturalnews.com/2021-12-01-infant-death-wave-pregnant-women-jabbed-covid.html)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+更多资讯，请关注：[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)[Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
