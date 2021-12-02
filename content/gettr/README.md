@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/2/2021 10:03 AM (UTC)`
+
+12/1/2021 Miles Guo: Alvin Chau is not a key figure under Meng Jianzhu’s command, and Xi Jinping has yet shaken the foundation of Meng Jianzhu’s forces; the Jiang family alone controls nearly one third of Bitcoins, Meng Jianzhu controls Huobi, oversea gangsters, and drug and human trafficking, and they all believe Xi Jinping is just an idiot<br/><br/>12/1/2021 文贵直播：洗米华只是孟建柱手下的小人物，习近平尚未动摇孟的根基；江家控制了近三分之一的比特币，孟控制了火币、海外黑帮、贩毒和贩卖人口，他们认为习就是个傻子<br/>
+![img](https://media.gettr.com/group1/getter/2021/12/02/10/03/9cdaebd4-0247-2660-08fa-ee039202004b/out.jpg)
+
+---
+
 `@miles 12/2/2021 7:25 AM (UTC)`
 
 12/1/2021 Miles Guo:  Wang Qishan wants to be the boss by killing Xi, while Meng Jianzhu is confident that he can wait till the downfall of the CCP’s power center - Zhongnanhai Pit; both Wang Qishan and Meng Jianzhu are the key figures behind the colossal disaster brought by Xi to the Chinese and the entire world<br/><br/>12/1/2021 文贵直播：王岐山想干掉习当老大，而孟建柱很有信心能等到中南坑灭亡；习近平给中国人和全世界带来的巨大灾难背后的关键人物就是王岐山和孟建柱<br/>
@@ -152,13 +159,6 @@ G Fashion 最特别的帽子即将登场，这些帽子都是跟那些大牌同�
 
 11/29/2021 Miles Guo’s GETTR: Why must Xi Jinping eliminate Wang Qishan? The essence of the CCP’s system is the bad money turns the good one into the evilest one, whereas it is now popular in the CCP to have private conversations on the Himalaya Coin and the New Federal State of China<br/><br/>11/29/2021 文贵盖特：为什么说习近平必须灭掉王岐山？中共体制的本质是劣币把良币变成恶币，而中共党内流行私下谈喜币和新中国联邦<br/>
 ![img](https://media.gettr.com/group43/getter/2021/11/30/01/47/0126729b-ae93-607b-a25b-6e7be24b1ecc/out.jpg)
-
----
-
-`@miles 11/30/2021 1:40 AM (UTC)`
-
-11/29/2021 Miles Guo’s GETTR: All dictatorships claim they are always right; facing the economic collapse, they will wage wars, create racial conflicts and social unrests, and eventually make a small group of people the scapegoat; the CCP has completely ended up being a rogue regime<br/><br/>11/29/2021 文贵盖特：所有独裁政府都说自己永远正确；面对经济崩溃，他们将发动战争、制造种族矛盾和社会动乱，最终找一小部分人当替罪羊；中共成了彻头彻尾的流氓<br/>
-![img](https://media.gettr.com/group10/getter/2021/11/30/01/40/2b040d58-1751-59e0-0e57-25695c5782ab/out.jpg)
 
 ---
 
