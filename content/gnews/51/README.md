@@ -2,33 +2,20 @@
 ---
 
 
-## 米勒邀请推特新CEO加入盖特体验言论自由
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1711427/)
+## 秘翻在线: 中共大型加油机首现台海上空
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1711653/)
 
-作者：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-据盖特官方账号报道，11月30日盖特首席执行官杰森·米勒先生发布了一则声明，邀请推特新任CEO帕拉格·阿格拉瓦尔来盖特平台体验言论自由。米勒先生说，他已经在盖特平台为推特新CEO准备了一个盖特用户名@paraga，这个用户名跟其在推特的账户名相同。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture1-2.jpg)
-米勒先生在其声明中称：这位推特新CEO度过了忙碌的上任第一天，发布了进一步限制推特用户言论自由的新规则，在完成所有这些工作之后，他可能想发泄一下。不幸的是，如果他转向自己的公司——推特，他可能会因为如果自己的意见违反了他自己定下的规则，遭受来自推特公司的言论审查。我们将欢迎他来到 GETTR，在盖特平台他可以做他自己。
+撰稿：西枫westca
 
-米勒先生进一步说，盖特允许用户导入其推特账户到盖特平台，用户可以在盖特发字数更多的盖文、发布时间更长的视频。这一切，都无需用户像Twitter Blue那样需要支付额外的费用。在盖特，我们尊重每个人的言论自由，即使是那些不允许自己用户有言论自由的大型科技寡头。
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/12/unnamed-1.jpg)图片来源：观察者网
+据网易12月1日报道，中共解放军“运油-20”大型加油机曝光台海，加入了11月28日27架次进入台海防空识别区的巡航行列，
 
-参考链接：[米勒邀请推特新CEO加入盖特体验言论自由](https://gettr.com/post/pic2k2a073)
+运-20空中加油机是以运-20大型军用运输机为平台改装的空中加油机，可同时采用飞椼式和飞锚式的空中加油技术，运-20与两架歼16战机同行穿越台湾海峡，疑似是在演练空中加油的战术。此次对台空域的巡航，不仅距离远，数目多，且深入台湾东南海域，显示了一只体系化的打击机群。有中共军事专家表示，“我们已处在空天时代，台独势力将无藏身之地。“
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+大陆军机在台海周边不论是例行性飞行，还是威慑性巡航，其目的绝不仅仅是为了从空中包围台湾，更为关键性的是为了阻止美军从太平洋上介入台海战争。郭文贵先生一再在大直播中提醒世界，邪恶的中共要以武力侵台的意愿丝毫未减。台海开战之刻，必是中共灭亡之时。
 
-总编：Irene木木
-编辑：Delilah小胖
-校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+**新闻来源：**[刘和平：解放军大型加油机现身台海 台湾已无“险”可守|美军\_网易订阅 (163.com)](https://www.163.com/dy/article/GQ5JMO160514FGV8.html)
 
  
 

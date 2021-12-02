@@ -2,23 +2,21 @@
 ---
 
 
-## 联邦巡回法院暂停加州学区的疫苗强制令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1711423/)
+## 美国正在醒来 强制疫苗恐非易事
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1711425/)
 
-作者：纽约香草山农场 – 蓝天大海
+作者：加拿大扬帆农场 – Spirit
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-据11月30日美国媒体报道，11月28日，美国第九巡回上诉法院针对圣地亚哥联合学区对16岁及以上学生的强制疫苗令发出紧急禁令。
+美国媒体11月30日报道，美国超过70%的成年人已经完全接种了冠状病毒疫苗。但根据上个月的全国广播公司新闻调查，只有不到一半的美国人支持强制接种疫苗。民意调查显示，47%的美国人支持要求所有符合条件的人必须接种新冠疫苗，而50%的人则反对这一要求。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture4.jpg)
+反对疫苗强制者占据了主导地位，由此可见全美对疫苗的认识和觉醒，政府、大药厂和媒体想进一步愚弄百姓、强推疫苗，恐非易事。
 
-圣地亚哥联合学区委员会于9月投票决定，未接种疫苗的学生需要在11月29日前接种第一剂疫苗，并在12月20日前完全接种疫苗。任何在该日期之前未接种疫苗的学生都只能远程上学。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture2.jpg)
-第九巡回法院首先针对一名16岁匿名学生提起的诉讼发布了禁令。该学生说，这项规定违反了她的基督教信仰，该信仰禁止她注射使用流产胎儿组织研制的疫苗。之后，法官裁定，只要该学区允许怀孕学生获得医疗豁免，就必须暂停该地区的强制令。法院表示，将很快就圣地亚哥地区的疫苗强制令做出全面裁决。该裁决也将适用于学校工作人员。
-
-参考链接：[联邦巡回法院暂停加州学区的疫苗强制令](https://freebeacon.com/coronavirus/federal-court-pauses-california-school-districts-vaccine-mandate/)
+参考链接：[美国正在醒来 强制疫苗恐非易事](https://www.nbcnews.com/politics/meet-the-press/how-biden-lost-vaccine-mandate-messaging-fight-n1285077)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
 总编：Irene木木
-编辑：Lakeman文仁
+编辑：AN
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
