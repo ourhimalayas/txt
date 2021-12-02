@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@gmusic 12/2/2021 11:35 PM (UTC)`
+
+扫描二维码，全方位下载新歌！<br/>《Hcoin to the moon》！<br/><br/>iTunes，Apple Music，Spotify，deezer，TIDAL，Amazon！<br/> <br/>Apple Music：<br/>https://music.apple.com/au/album/hcoin-to-the-moon-single/1592902212<br/><br/>Spotify：<br/>https://open.spotify.com/track/6KulvDaScetXfNSlCDQEPH?autoplay=true<br/><br/>YouTube：<br/>https://music.youtube.com/playlist?list=OLAK5uy_lrqEcUy_X8rZAs5VjK-HTFvekQTZkvk7E<br/><br/>amazon：<br/>https://www.amazon.com/gp/product/B09KQWL7HG/?tag=distrokid06-20<br/><br/>Deezer，TIDAL：<br/>https://gyro.to/HcoinToTheMoonKaraokeVersion
+![img](https://media.gettr.com/group29/origin/2021/12/02/23/ed17a17d-c47e-0767-ce9f-05b39d63990d/4341879f649384ed1e3eab070201e474.jpeg)
+
+---
+
 `@miles 12/2/2021 5:30 PM (UTC)`
 
 12月2日， 七哥的新歌终于可以正式上线打榜了，感谢亲爱的兄弟姐妹们！🎉🎉🎉🎉🎉🎉🎉🔥🔥🔥🔥🔥🔥🔥 <br/><br/>Hcoin to the Moon - Single by Miles Guo https://music.apple.com/au/album/hcoin-to-the-moon-single/1592902212 <br/><br/>Hcoin To the Moon (Karaoke Version) - Single by Miles Guo https://music.apple.com/au/album/hcoin-to-the-moon-karaoke-version-single/1593342075 <br/><br/>
@@ -151,13 +160,6 @@ GETTR IS GOING TO BE FATHER OF TWITTER!!!
 
 G Fashion 最特别的帽子即将登场，这些帽子都是跟那些大牌同一家工厂生产出来的，是世界最一流的工厂@gfashion@DDNYC✌️✌️✌️🥳🥳🥳🥰🥰🥰
 ![img](https://media.gettr.com/group39/getter/2021/11/30/14/46/91bfd265-1cb5-5efb-fc1e-24b72861b8e6/out.jpg)
-
----
-
-`@miles 11/30/2021 12:48 PM (UTC)`
-
-11月30号：尊敬的战友们好，从这个病毒命名排序的丢人现眼的小事上，你就能看出共产党的做贼心虚……和共产党的这种无知，和没有常识的流氓嘴脸，但是就是这种流氓和这种无知手里掌握着强和掌握着货币权，他就掌握着14人民的命运，还要掌握全世界的命运，但是天意不可违呀，你能把盘古的龙头，变成鸟头，你不可能把全世界的一切都给罩住盖．都变成鸟头．改变一切的东西的规则和标准！冥冥之中的天意，注定了一切必然的发生！
-![img](https://media.gettr.com/group21/getter/2021/11/30/12/48/283ecca7-4c32-0170-2855-8e06146ce731/out.jpg)
 
 ---
 
