@@ -2,50 +2,33 @@
 ---
 
 
-## 媒体集团响应班农 要求司法部公开调查文件
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1711504/)
+## 联邦巡回法院暂停加州学区的疫苗强制令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1711423/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+作者：纽约香草山农场 – 蓝天大海
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+据11月30日美国媒体报道，11月28日，美国第九巡回上诉法院针对圣地亚哥联合学区对16岁及以上学生的强制疫苗令发出紧急禁令。
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/12/B.jpg)djhjmedia.com
-令笔者惊讶的是，那些左媒，甚至是极左媒体也加入了此行列，包括《有线电视新闻网》（CNN）、《美国广播公司》（ABC）、《纽约时报》（NYT）、《华盛顿邮报》（WaPo）、《华尔街日报》等。
+圣地亚哥联合学区委员会于9月投票决定，未接种疫苗的学生需要在11月29日前接种第一剂疫苗，并在12月20日前完全接种疫苗。任何在该日期之前未接种疫苗的学生都只能远程上学。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture2.jpg)
+第九巡回法院首先针对一名16岁匿名学生提起的诉讼发布了禁令。该学生说，这项规定违反了她的基督教信仰，该信仰禁止她注射使用流产胎儿组织研制的疫苗。之后，法官裁定，只要该学区允许怀孕学生获得医疗豁免，就必须暂停该地区的强制令。法院表示，将很快就圣地亚哥地区的疫苗强制令做出全面裁决。该裁决也将适用于学校工作人员。
 
-《门道专家》文章的题目是“包括CNN、ABC、NYT和WaPo在内的《媒体集团》（Media Group），提交了法律诉求摘要，加入了‘班农先生不睬案’而要求公开司法部文件的诉讼”。【1】
+参考链接：[联邦巡回法院暂停加州学区的疫苗强制令](https://freebeacon.com/coronavirus/federal-court-pauses-california-school-districts-vaccine-mandate/)
 
-笔者注，“班农先生不睬案”乃“班农‘不睬民主党人国会调查委员会’案”，参见Gnews文章：班农“不睬民主党人国会调查委员会”案新进展【2】。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-《门道专家》的全文如下：
+总编：Irene木木
+编辑：Lakeman文仁
+校对/发稿：Hetangyuese
 
-周一（11月30日），美国司法部拒绝了史蒂夫·班农（Steve Bannon）关于透明度的要求，并（试图）剥夺他要求公开司法部有关虚假的1.6委员会调查文件的权利。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-司法部称这是班农“通过媒体审理此案”的一次尝试，他要将所有文件和材料公开，以便美国人民能够了解情况，并对案件的是非曲直做出自己的判断。但朝鲜政权不希望这样，毕竟，如果真相泄露，政权应该如何控制话语权？
-
-史蒂夫·班农因拒绝与利兹·切尼（Liz Cheney）的垃圾的1.6委员会合作而被指控藐视国会。
-
-但周二（11月30日），美国几家主要媒体提交了一份法律诉求摘要，支持班农及其向美国公众公开的努力。
-
-《每日邮报》（The Daily Mail）报道：
-
-一个主要媒体公司联盟提交了一份法律诉求摘要，支持前川普白宫首席策略师史蒂夫·班农在法庭上反对一项拟议的保护令，该保护令将阻止他公布1月6日的文件和信息。
-
-《媒体集团》——包括CNN、ABC、NBC、华盛顿邮报、纽约时报和《华尔街日报》的母公司——提出了一项干预动议，因为班农反对政府提出的命令，这是他藐视国会案的一部分。
-
-这项命令将严重限制班农利用政府信息库的能力，而政府的这些信息必须作为正常取证过程的一部分进行共享，并且应该已经开始移交。根据之前的一份政府文件，这包括1000多页的证人证词、大陪审团材料，甚至“众议院1月6日调查国会暴乱委员会”（the House Jan. 6th Committee investigating the Capitol riot）工作人员的电子邮件。
-
-该新闻集团认为，政府提出的命令将违反第一修正案——并引用了政府自己的观点，即允许班农使用这些材料将导致审前宣传，可能会玷污陪审团成员。
-
-（全文完）
-
-笔者前天（11月29日）的文章，对拜登政府司法部的逻辑，“允许班农使用这些材料将导致审前宣传，可能会玷污陪审团成员”，表示过愤怒与无奈，“花纳税人巨额资金供养的司法部竟然堕落到了如此地步，如此荒诞的逻辑居然好意思公开发表，而且如此贬低公众，低估公众的智商，无语了！看看法官怎样判决吧！”【2】。经过几天的反思，媒体清醒了？不想成为被愚弄的一部分？不想生活在“中共和朝鲜”的环境？看来“大觉醒”进入到“媒体醒悟”阶段，竟然大左媒也不甘受辱了！
-
-需要订正一下《门道专家》此文的不当一处，利兹·切尼（Liz Cheney）在“垃圾委员会”的角色只是个帮凶，共和党的叛徒，祸根是佩洛西。佩洛西在成立这个垃圾1.6委员会时，利用权力将共和党主管推荐的公正人员排除，自己挑选了几个共和党叛徒，构成了号称是个“两党的委员会”，她是陷害川普、班农的罪魁祸首。
-
-原文链接：
-
-【1】[https://www.thegatewaypundit.com/2021/11/media-group-including-cnn-abc-nyt-wapo-file-legal-brief-joining-steve-bannons-bid-unseal-documents-doj-contempt-congress-case/](https://www.thegatewaypundit.com/2021/11/media-group-including-cnn-abc-nyt-wapo-file-legal-brief-joining-steve-bannons-bid-unseal-documents-doj-contempt-congress-case/)
-
-【2】[https://gnews.org/zh-hans/1706104/](https://gnews.org/zh-hans/1706104/)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
  
 

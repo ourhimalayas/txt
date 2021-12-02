@@ -2,32 +2,45 @@
 ---
 
 
-## 日本前首相安倍警告中共，攻击台湾就是攻击美日
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1712604/)
+## 英军情六处处长首次公开演讲，要求英情报部门注意中共威胁
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1712713/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-12.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fm1.aboluowang.com%2Fuploadfile%2F2021%2F1202%2F20211202045126428.jpg&amp;imgrefurl=https%3A%2F%2Fwww.aboluowang.com%2F2021%2F1202%2F1678396.html&amp;tbnid=5z6iifwKWLXgCM&amp;vet=12ahUKEwijspGjlcT0AhUowIsBHW2dD6IQMygGegUIARCgAQ..i&amp;docid=iu2VNYOPZYP41M&amp;w=1000&amp;h=666&amp;itg=1&amp;q=%E5%AE%89%E5%80%8D%E8%AD%A6%E5%91%8A%E4%B8%AD%E5%85%B1&amp;ved=2ahUKEwijspGjlcT0AhUowIsBHW2dD6IQMygGegUIARCgAQ)
-日本前首相安倍晋三星期三（12月1日）在台湾国策研究院举办的「影响力论坛」，发表线上演说表示，若中共对台湾武力侵犯，无论在地理或空间上，对日本国土都是重大危险，日本无法容许，「台湾有事」等同于「日本有事」，也等同于「日美同盟有事」，这项认知，中共领导阶层，尤其是中共国国家主席习近平，绝对不能误判。
+作者：日本方舟农场 Andy5
 
-安倍虽在2020年9月卸下首相职务，但仍是日本执政党自民党最大派系「安倍派」领袖。外传安倍明年有访台计划，昨天先于国策院主办的影响力论坛，以「新时代台日关系」为题发表线上演说。国策院董事长田弘茂说，安倍事先就有对台演说的想法，安倍此举也是希望让自民党内听见他对台日伙伴关系的重视。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/LOGO.jpg)
 
-安倍表示，2049年中共将庆祝建国百年，在未来近30年，中共国在经济及军事预算的成长，预估每年成长7％，比现在高出8倍之多，往后30年，将是充满危机的时代。
 
-安倍认为，台湾周边面临的挑战与尖阁诸岛（钓鱼台）、先岛群岛、与那国岛等日本的领土、领海所面临的挑衅没有两样，所以「我们」必须超前部署，防范中共国从空中、海上、海底不断进行各种军事挑衅。
+![Britische Botschafter in der Türkei Richard Moore ](https://static.dw.com/image/54371775_303.jpg)（英国军情六处处长摩尔）（图片来自德国之声中文网）
+在上任近1年之后，英国军情六处（M9I6）新任处长Richard Moore（理查德·摩尔）首次发表公开演讲，明确提到需要警惕中共威胁。 摩尔指出，在他34年的MI6生涯中见证了从冷战到目前激烈竞争所发生的战略环境变化，然而俄罗斯、中共国、伊朗以及国际恐怖主义是一直存在的、英国情报机构需要处理的四大安全问题。 针对中共，摩尔处长表示，在很多方面英国需要跟北京接触，但这改变不了中共政权是一个极权政府的事实。中共情报部门一直都在对英国和盟国开展大规模间谍活动，而MI6最紧迫的要务便是应对这些间谍活动。 摩尔还在表示，中共政府以增加军事力量来解决台湾问题的姿态，是严重挑战世界的安定与和平。同时他还发出警告，中共政府如此过度自信，导致其极易做出误判。
 
-他说，过去任首相时，每次与习近平见面，都会请习不要误判日本防卫钓鱼台的决心和意志，「每次都会将日本的意思，明确向中国传达。」
 
-安倍说，尖阁诸岛、先岛群岛、与那国岛等离岛，离台湾不过100公里左右。对台湾的武力侵犯，无论在地理或空间上，对日本国土都是重大危险，日本无法容许，「台湾有事」，等同于「日本有事」，也可以说等同于「日美同盟有事」。
 
-安倍强调，中共国的确很巨大，而且与世界经济有密切关系，如果对台湾采取军事冒险行动，将对世界经济带来极严重影响。换言之，中共国也将遭受重大打击，得不偿失，「采取军事冒险行动，等同于走向经济自杀的道路。」
+参考链接：
 
-消息来源:
+[https://www.gettr.com/post/pif55ne1c0](https://www.gettr.com/post/pif55ne1c0)
 
-[安倍：台湾有事 等于日美同盟有事](https://www.chinatimes.com/cn/newspapers/20211202000375-260108?ctrack=mo_main_recmd_p08&amp;chdtv)
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+
+编辑/校对/发稿：有莫举名
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/rili.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/LOGO-1.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

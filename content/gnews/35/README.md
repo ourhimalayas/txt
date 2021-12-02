@@ -2,32 +2,79 @@
 ---
 
 
-## 过半美国民众视中共国为最大威胁 担忧美中开战
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1712331/)
+## 众议员迈克·华尔兹： 我们知道中共正试图收集美国的 DNA 数据,国会需要答案
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1712338/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Unknown-2.jpg)过半美国民众视中共国为最大威胁 担忧美中开战 网络图片
-据美国之音12月2日报道，一项对2500多名美国成年人新的民意调查发现，52%的美国人第一次将中共国视为美国面临的最大威胁，并且
-
-美国人开始认识到来自中共国的多方挑战。当谈到对中共国最大的担忧时，20%的受访者表示是贸易和经济，19%的人表示是军事，17%的人表示是侵犯人权。这与担忧美中之间可能发生军事冲突密切相关，71%的美国人担心两国可能发生战争，61%的人担心会爆发热核战争。但受访者更担心未来五年可能发生网络攻击、恐怖袭击和另一场全球大流行病。
-
-如果中共国袭击台湾，71%的受访者表示，美国应该承认台湾是一个独立的国家，包括航空母舰在内的军事设备应该部署到该地区，而50%的人表示，美国应该在台湾上空设立禁飞区。66%的人支持经济制裁，40%的人认为美国应当派遣地面部队保卫台湾。在美国压力下，中共国可能继续在经济和外交上向台湾施压，并通过频繁的军机飞越和海上行动增加对台湾军队的骚扰，或者对航运进行隔离或阻止进入台湾近海岛屿，对金融系统进行网络攻击。
-
-约60%的受访者因为中共国的人权状况希望国际奥委会推迟北京2022年冬季奥运会或去另一个地点举行奥运。47%的人支持全面抵制，但48%的人倾向于外交抵制，认为美国运动员明年2月仍应参加比赛。
-
-民调反映了普通民众对时局的看法，习近平以一己之力成功地把中共30年“韬光养晦”的面具彻底剥下，赤裸裸的偷盗、血淋淋的谋杀展示在世界面前，民意在觉醒。中共能够买通腐败的官员和贪婪的华尔街大佬，但民意是不可违背的。对中共从经济、贸易、人权、台湾问题和冬奥会的抵制在民间汹涌兴起，中共即将迎来的是全球人人喊打。到疫苗灾难掩盖不住的时候，就是中共被全球联合绞杀的开始。
-
-新闻参考链接：[https://www.voachinese.com/a/survey-us-china-hot-war-20211201/6335660.html](https://www.voachinese.com/a/survey-us-china-hot-war-20211201/6335660.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+众议员迈克·华尔兹： 我们知道 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 正试图收集美国的 DNA 数据。如果一家美国公司在获得政府合同的同时还与 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 共享数据——国会需要答案。 【附自由灯塔新闻报道：FBA警告,一加州遗传（测序）公司很可能与中共国分享美国人的健康数据】
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+> We know the CCP is trying to collect American DNA data. If an American company is receiving government contracts while also sharing data with China – Congress needs answers. [https://t.co/K9HDdnLPAw](https://t.co/K9HDdnLPAw)
+> — Rep. Mike Waltz (@michaelgwaltz) [December 1, 2021](https://twitter.com/michaelgwaltz/status/1466173713653579779?ref_src=twsrc%5Etfw)
+
+
+
+众议员玛乔丽·泰勒·格林： 保护选举和制止选举舞弊是共和党基础的首要问题。 通货膨胀排在前五位。 疫苗强制、边境、阿富汗、批判种族理论、阻止 [#共产主义](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89?src=hashtag_click)、击败 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)、供应链和把美国放在首位都是首要问题。
+
+
+
+> Protecting elections and stopping election fraud is the number one issue to the Republican base.
+> 
+> Inflation is in the top 5.
+> 
+> Vaccine Mandates, Border, Afghanistan, CRT, Stopping Communism, Defeating the CCP, Supply Chain, and Putting America First are all top issues.
+> — Marjorie Taylor Greene 🇺🇸 (@mtgreenee) [December 1, 2021](https://twitter.com/mtgreenee/status/1466195068130402308?ref_src=twsrc%5Etfw)
+
+
+
+众议员吉姆·班克斯： 终于 — 有一个不会向 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 低头的组织！做个笔记吧，[@NBA](https://twitter.com/NBA)… 【附华盛顿自由灯塔推文： 世界女子网球协会宣布立即暂停在中共国，包括香港举行的所有赛事。原因是中国女网运动员彭帅在指控中共高官性侵后消失】
+
+
+
+> Finally – an organization that won’t bow down to Communist China! Take notes, [@NBA](https://twitter.com/NBA?ref_src=twsrc%5Etfw)… [https://t.co/qjEKLw2YX4](https://t.co/qjEKLw2YX4)
+> — Jim Banks (@RepJimBanks) [December 1, 2021](https://twitter.com/RepJimBanks/status/1466165625932419074?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿蓬佩奥： 史蒂夫·西蒙和世界女网协会支持他们的球员并坚持正确的做法 – 无论财务影响如何。 轮到你了，[@NBA](https://twitter.com/NBA) 【附女网官网的新闻：史蒂夫·西蒙宣布暂停女网在中共国的所有赛事】
+
+
+
+> Steve Simon and the [@WTA](https://twitter.com/WTA?ref_src=twsrc%5Etfw) support their players and stand up for what is right – regardless of the financial impact.
+> 
+> Your turn, [@NBA](https://twitter.com/NBA?ref_src=twsrc%5Etfw). [https://t.co/TFiIpZMdNc](https://t.co/TFiIpZMdNc)
+> — Mike Pompeo (@mikepompeo) [December 1, 2021](https://twitter.com/mikepompeo/status/1466161081865449482?ref_src=twsrc%5Etfw)
+
+
+
+参议员瑞克·斯科特： 世界女子网球协会做出了正确的决定。我们都必须尽一切努力追究 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 一再侵犯人权的责任。我敦促奥委会为我们运动员的安全和保障效仿（女网），现在就将 2022 年奥运会从共产主义中国移走。 【转法新社推文：世界女网暂停在 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的所有赛事】
+
+
+
+> The [@WTA](https://twitter.com/WTA?ref_src=twsrc%5Etfw) is making the right call. We must all do everything we can to hold Communist China accountable for its repeated human rights abuses. I urge the [@IOC](https://twitter.com/ioc?ref_src=twsrc%5Etfw) to follow suit for the safety & security of our athletes & move the 2022 Olympics out of Communist China NOW. [https://t.co/5HS5SI15N0](https://t.co/5HS5SI15N0)
+> — Rick Scott (@SenRickScott) [December 1, 2021](https://twitter.com/SenRickScott/status/1466155080005083136?ref_src=twsrc%5Etfw)
+
+
+
+参议员汤姆·科顿： 这就是我们所说的以身作则。 为女子网球协会(WTA)喝彩。 拜登总统、美国奥委会和美国企业都应该效仿。 【转法新社通讯社推文：突发新闻，一位官员称，国际女子网球协会彭帅事件“暂停在 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的所有赛事”。】
+
+
+
+> This is what we call leading by example. Bravo to the WTA.
+> 
+> President Biden, the USOPC, and Corporate America should follow suit. [https://t.co/Fkm1Fboy2X](https://t.co/Fkm1Fboy2X)
+> — Tom Cotton (@SenTomCotton) [December 1, 2021](https://twitter.com/SenTomCotton/status/1466142519545245700?ref_src=twsrc%5Etfw)
+
+
+
+参议员乔什·霍利： 国际女子网球协会[@WTA](https://twitter.com/WTA) 做得很棒 – 比[@NBA](https://twitter.com/NBA) 更有骨气 【转法新社通讯社：突发新闻，国际女子网球协会因彭帅事件“暂停在 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的所有赛事”，一位官员称】
+
+
+
+> Good for the [@WTA](https://twitter.com/WTA?ref_src=twsrc%5Etfw) – More backbone than the [@NBA](https://twitter.com/NBA?ref_src=twsrc%5Etfw) [https://t.co/Ur5HCwLrTp](https://t.co/Ur5HCwLrTp)
+> — Josh Hawley (@HawleyMO) [December 1, 2021](https://twitter.com/HawleyMO/status/1466128650722492417?ref_src=twsrc%5Etfw)
+
+
 
 
 

@@ -2,48 +2,32 @@
 ---
 
 
-## 有声| 找到生命真相：（二）我认为人类不需要宗教，但人类需要有信仰
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1712500/)
+## 欧盟推“全球门户”，抗衡中共“一带一路”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1712609/)
 
-配音：香草山福音部 – Daxia
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3-5.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fcdn.trt.net.tr%2Fimages%2Fxlarge%2Frectangle%2Fcd75%2F09ae%2F6375%2F61a77018d4423.jpg%3Ftime%3D1638394944&amp;imgrefurl=https%3A%2F%2Fwww.trt.net.tr%2Fchinese%2Fguo-ji%2F2021%2F12%2F01%2Fou-meng-gong-bu-quan-qiu-men-hu-jian-zhi-zhong-guo-de-dai-lu-1741590&amp;tbnid=h1qlV3SzwfOWTM&amp;vet=12ahUKEwiAx5uHlsT0AhUHXpQKHQIxC20QMygBegUIARCiAQ..i&amp;docid=J2Gi2CeJu2wYXM&amp;w=1220&amp;h=686&amp;itg=1&amp;q=%E5%85%A8%E7%90%83%E9%97%A8%E6%88%B7&amp;ved=2ahUKEwiAx5uHlsT0AhUHXpQKHQIxC20QMygBegUIARCiAQ)
+欧盟执委会周三(12月1日)公布了一项计划，拟在2027年前在全球范围内投资3,000亿欧元(3,400亿美元)用于基础设施、数字和气候项目，作为中共国“一带一路”倡议的更好替代方案。
 
+该计划被称为“全球门户”(Global Gateway)，旨在加强欧洲供应链，促进欧盟贸易，并帮助应对气候变化，重点关注数字化、卫生、气候、能源和运输，以及教育和研究等领域。
 
+中共国在2013年启动了“一带一路”项目，以促进与世界其他国家的贸易联系，并在全球数十个国家的基础设施建设上投入了大量资金。但欧盟官员表示，中共国政府提供的融资往往对接受国不太有利、不透明的，并使一些较贫穷国家，尤其是非洲国家通过债务依赖中共国。
 
+欧盟执委会主席冯德莱恩(Ursula von der Leyen)表示，与中共国不同，欧盟将确保当地社区从“全球门户”的基础设施项目中受益，同时也让私营部门参与，因此欧盟的参与意味着投资风险较小。“事实上，各国……需要(比中共国的倡议)更好的和不同的提议，”冯德莱恩在新闻发布会上介绍了欧盟的计划，她称这是“一个真正的替代方案”。
 
+欧盟以赠款、贷款和担保的形式提供的资金将来自欧盟各机构、各国政府以及欧盟金融机构和各国开发银行。欧盟执委会表示，它将“以公平和优惠的条款”提供援助，不给第三国政府留下债务问题。
 
-郭文贵先生（七哥）第一次公开承认说：“我是佛教徒”的时候发表了自己独家观点——“我认为人类不需要宗教。”七哥解释道：我不认为现在佛教（教义）是真正想表达的意思。因为“没有人让我心服口服地把佛教研究明白的”。“**我认为人类不需要宗教，但人类需要有信仰。**”
+欧盟国际伙伴关系专员乌尔皮莱宁在新闻发布会上表示，欧盟在发展援助方面的资金数额与中共国类似。她说:“如果我看一下统计数据，在2013年至2018年期间，欧洲一直是世界上最大的发展援助提供者，我们在2013-2018年纯粹捐赠的发展援助资金，与中共国报告的一带一路项目资金额度非常接近。我们在很大程度上处于同一水平，但我们的模式有所不同。我们一直在提供赠款，中共国一直在提供贷款。”
 
-## **一、本心是恶还是善**
+欧盟执委会表示，欧盟计划将重点关注有形基础设施，如光纤电缆、清洁运输走廊和清洁电力传输线路，以加强数字、运输和能源网络。欧盟表示，通过帮助其他国家，欧盟也将促进自身利益，并加强其供应链。在中共病毒大流行期间，供应链的脆弱性变得更为明显。
 
-对于什么是信仰？七哥以活出自己独特的生死经历告诉世界，“我在清风看守所出来以后，我心中早已有（信仰的）定意。”
+消息来源:
 
-七哥对信仰的思考是入死出生的人生参悟。“我要对信仰重新定义。”七哥说，并坚持认为，“信仰不应该来自于第三方给予的答案，我不应该为第三方供奉和奉献，**所有的信仰应该是我们的‘本心’和‘本能’。”**所以，“我最想要的是创建一个人类新的信仰，而且是找到生命真相的人类新的群体。”（见 [01:02.50时段](https://gettr.com/post/pgwfu22cfa)）。这个人类新的群体，恐怕就是新中国联邦人——没有向中共撒但屈膝，没有打中共疫苗的健康的群体。
+[焦点：欧盟公布3000亿欧元“全球门户”投资计划 以抗衡中共国“一带一路”倡议](https://cn.reuters.com/article/eu-global-investment-cn-bri-1202-idCNKBS2IH03K?il=0)
 
-
-
-**文字版原文：[找到生命真相：（二）我认为人类不需要宗教，但人类需要有信仰](https://gnews.org/zh-hans/1694159/)**
-
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,85 +2,43 @@
 ---
 
 
-## 参照四条，你就知道共产党会不会被灭
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1712653/)
+## 习当年认为七哥越说越离谱的爆料视频今天都得到了验证
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1712893/)
 
-[https://gtv.org/video/id=61a820c23ff6481adce77778](https://gtv.org/video/id=61a820c23ff6481adce77778)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/002211.jpg)
+据[2021年12月1日 文贵大直播：Hcoin To The Moon伴奏 荣登iTunes榜首；香港股市经济；澳门地下钱庄，孟建柱在东南亚的涉黑布局；Omicron变种病毒及疫苗灾难和青蒿素功效；数字货币监管及加密货币市场走向](https://gtv.org/video/id=61a774e244c1fe7a6c3c9bad)时间点1：03：42——
 
-看就看四个指标。
-Just look at four indicators
+**郭文贵先生：**我想告诉大家这几个视频你去看去，所有这些视频都给习报告过，报告的结果是什么？说这全是胡说八道，习是生活中认识我的人，对我说的话是深信不疑的人，其中也有点打盹儿了，说这个郭文贵说的有点儿过，这小子现在有点胡说八道啊——原话就是，越说越离谱吧！
 
-第一，美国在亚太的军事部署。
-First, U.S. military deployment in the Asia-Pacific
+其中这几个视频就是被报告之一，说什么湄公河惨案呐、什么澳门洗钱呐，郭文贵一张嘴就是几百个亿、几千个亿呀，一张嘴就是国家领导人呐，他都胡说八道。
 
-第二，对台的实际行动。
-Secondly, the actual action of US to protect Taiwan
+大家你记住刚才这话，2017年到2018年的时候，在网络上所有砸咱爆料革命的、砸七哥的，哪个张嘴都是这话，你听听啊，郭文贵一张嘴就几亿、几十亿、几百亿，哪有那么多钱呐，上万亿，郭文贵一说澳门洗钱几千亿、几百亿，哪有那么多钱呐，郭文贵一说党和国家领导人，人家知道他是个屁呀。
 
-你知道问什么为什么拍那个飞机的照片吗？
-Do you know why that picture of the plane was taken?
+你看看砸郭的，还有所谓海外社交媒体，对七哥当时的辱骂，根据这几个视频——数字、人物、时间，七哥胡说八道，那么今年刚才你们PPT里面就一样是管用的，澳门仅赌场公开说两万多亿美元。你们是330亿，是你们说的，330亿是所谓的盈利、营业额，实际上是中国澳门说是380亿。但是我告诉你，澳门一年扭转三万亿美元，每年现金收获超过1000亿美元——一个小小的澳门。
 
-那是象征着美国外交的专机, 美国国务院国务卿的专机。
-That’s the plane that symbolizes American diplomacy, the plane of the Secretary of State of the United States
+（以下暂略）
 
-一个是757，再一个是737，主要是757，长途飞行,大概有一二十架。
-The plane has two styles. One is boring 757, another is 737. The main plane is 757 which is using long-distance travel, there are about one or two dozen of them
+撰稿：喜马拉雅的肉夹馍；
 
-但凡来过美国，你到华盛顿两个机场，特别是私人飞机，飞的时候你看到平面上永远有美国国务院飞机和CIA商业喷涂掩盖好的隐蔽式飞机。
-Anyone who has been to the United States, you go to the two airports in Washington, especially by private aircraft, you would see the U.S. State Department plane & CIA concealed aircraft covering by commercial spraying
+审核：喜马拉雅的馍夹肉；
 
-这种国务院专机到达之地，就是美国外交关系的合法证明。
-The arrival destination of U.S. State Department plane is legitimate certificate of the US diplomatic relationship
+校对：Maarago；
 
-美国有上千架CIA调动的这种飞机，看上去是民航，看后面是美国CIA的，还有一个CIA的只有喷涂没有编号的，那就是CIA的飞机。
-US have thousands of CIA mobilized aircraft, it looks like civil aviation, look at the back is the United States CIA, there is a CIA only sprayed without the serial number, that is the CIA aircraft
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-757国务卿专机，外交专机，你动那个飞机就是跟美国人开战。
-The boring 757 U.S. diplomatic special plane and U.S. Secretary of State plane, if you attacking the plane means you declare a war with US
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-意义重大。关键飞机还有谁看到了吗？美国的共和党和民主党同乘坐专机去,这是很吓人的事。
-It was significant. What key figures did you seen in the photo? It’s shocking that the Republicans and Democrats in the United States are going on a special plane together
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-你去看那些人的背景，哪个都有可能被选为下一任总统。
-If you examine the background of those senators and congressmen, These are the people who could be chosen as the next president
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-第三个，看什么 ，钱。
-The third, what we notice is money
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-你看现在还有往中国投钱的吗？
-Have you seen anyone invest to china?
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-你见美国公司有不往外撤的吗？
-Don’t you see American companies pulling money out of the country?
+推特：[日本銀河系農場\[email protected\]alaxyII推特](https://twitter.com/HJapanGalaxyII)；
 
-第四条，大家看看所谓的美国和中国政府谈的，我们双方都有一个建墙效应，坚决不能发生战争，不能发生误会，不能所谓擦枪走火，对台湾，你不能有愚蠢的行动，都是骗你的。
-The fourth, let’s see what the conversation between US and China. Saying that we had a bilateral wall effect which including no war, no misunderstanding, no misfire, no stupid action to Taiwan. All promises are lies
-
-不要看美国政府说啥，看看萨达姆，伊拉克，警告萨达姆美国无意与你开战，美国绝不想改变的你的政府体制，对你萨达姆本人没有任何恶意，接着美国就打过去了。
-You shouldn’t just hear the words of US, notice the action. Let’s look at Saddam’s example. Before the Gulf War, US warning the Saddam that the United States has no intention of going to war with you, the United States in no way wants to change your system of government, has no ill will toward Saddam himself, then the United States hit Iraq
-
-参照以上四条，你就知道共产党会不会被灭。
-Refer to the four indicators, you will know whether the Communist Party will be destroyed
-
-* * *
-
-原视频标题: 参照四条，你就知道共产党会不会被灭
-Refer to the four indicators, you will know whether the Communist Party will be destroyed
-原视频日期：2021/11/29
-原视频链接: [https://gettr.com/post/pi8f1513f2](https://gettr.com/post/pi8f1513f2)
-任务编号：KC301（3060）
-视频时间段 : 0:00-2:28
-中听校：洛杉矶盘古农场 – 73stolencountry
-英文翻译：洛杉矶盘古农场 – 73stolencountry
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 ：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

@@ -2,50 +2,25 @@
 ---
 
 
-## 法国议会两院通过决议支持台湾参与全球事务
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1712426/)
+## 普京要求北约保证不东扩
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1712519/)
 
-作者：纽约香草山教育部 Naughty(文行)
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-3.png)
+图片来源：
+美联社12月1日报道，弗拉基米尔·普京总统周三说俄罗斯将要求西方国家保证北约不再东扩，并且不在其国家边境部署武器，这是在人们担心俄罗斯将侵略乌克兰的情形下，普京发出的严厉要求。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/LOGO-1.jpg)
+乌克兰和西方官员们担心俄罗斯在乌克兰附近聚集部队，认为这是莫斯科想要攻击的信号。俄罗斯外交官否认，说是担心乌克兰自己的军队在该国东部聚积与该地区分离主义者发生冲突。
 
+美国务卿安东尼·布林肯说注意到普京可能快速发起对乌克兰的侵略，他警告说如果俄罗斯如此做的话，华盛顿将对俄罗斯实施严重的制裁。
 
+普京在克里姆林宫说：“在与美国和其同盟国的对话中，我们将坚持要求北约保证不再问东扩张，并且不在靠近俄罗斯的边境地区部署武器，俄罗斯愿意与西方进行实质上对话，我们不仅需要口头承诺，还要有法律上的保证。”
 
+布林肯周三在拉脱维亚说：“我们不知道普京总统是否已经作出了侵略的决定，但我们知道他正在安排这方面的能力，这样他可以在很短时间内作出决定，我们必须做好准备应对所有可能的突发事件。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/法国议会.jpeg)法国议会（图片来自美联社）
-据《台北时报》报道，11月30日，对于法国国民议会周一通过支持台湾参与国际事务的决议，台湾表示感谢。该决议呼吁法国政府为台湾参加国际民用航空组织、国际刑警组织、联合国气候变化框架公约和世界卫生大会等机构提供具体支持。 台湾外交部称赞该决议的通过是“历史性的”，体现了法国议会两院对台湾参与国际事务的具体支持。
+##### **新闻来源： **[Putin demands NATO guarantees not to expand eastward](https://apnews.com/article/business-russia-ukraine-moscow-sergey-lavrov-90d7347e8f25bea1ddb2c7b3dc1687c0)
 
-外交部表示，台湾和法国有着长期的伙伴关系，双方具有以民主、自由和人权的共同价值观为基础的高度信任。 台湾民进党发言人谢佩芬说，过去几年来，台法关系一直在升温，双方建立这种友谊“不是偶然的”，而是自由和民主共同价值观的必然结果。 谢佩芬对法国参议院和政府表示衷心感谢，并称赞台湾所有外交官的辛勤工作使两国之间的友谊达到了新的高度。
-
-
-
-参考链接：
-
-[https://www.taipeitimes.com/News/front/archives/2021/12/01/2003768814](https://www.taipeitimes.com/News/front/archives/2021/12/01/2003768814)
-
-
-
-总编：飞虹
-
-校对/发稿：有莫举名
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/rili.png)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/LOGO-1.jpg)
-
-
+# ** **
 
  
 

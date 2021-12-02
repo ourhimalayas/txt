@@ -2,33 +2,28 @@
 ---
 
 
-## AUKUS联盟可能欢迎更多国家进行合作
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1712441/)
+## 中共科学家宣称发现病毒抗体解药
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1712538/)
 
-**翻译：皮特**
-**编辑：MSGZ**
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/lianmeng.png)图片来源：msn.com
+翻译：billwilliam
 
 
-据美国总统乔拜登的一位高级顾问称，澳大利亚与英国和美国的安全协议（AUKUS）可能会欢迎更多国家加入。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-2.png)
+图源：rheumnow.com
 
-AUKUS 协议承诺这三个国家共享敏感的军事技术——包括关于核潜艇的技术。
+据零对冲报道，中共国科学家发表论文称他们发现一种新型人类抗体，对多种中共病毒变种具有广谱疗效。又在忽悠西方社会。
 
-华盛顿印太事务协调员库尔特坎贝尔透露，已经有其他国家提出加入该联盟的请求。
+广州中山大学、杭州浙江大学及其他机构周二联合发表论文，他们使用冷冻电子显微镜技术（Cryo EM），发现一种名为35B5的抗体能结合中共病毒表面触手的51处独特的抗原决定位（epitope）。抗体结合的位点在所有中共病毒变种的触手蛋白受体结合域（RBD）上都存在。研究人员认为该抗体对各种病毒变种均具有广谱抗病毒疗效。零对冲调侃说，没准这种抗体比默克公司的口服抗病毒神药还管用。
 
-坎贝尔先生说：“这表明AUKUS引起广泛的兴趣，许多亲密的盟友立即询问：我们可以加入吗，可以参与吗？”
+据称，“广谱中和疗效”指病毒不仅能抑制最早的中共病毒，而且还能抑制其他变种，甚至抑制还未出现的变种。抗体针对的病毒触手部位未发生变异。论文称，“可以利用这些发现理性设计对所有新冠病毒有效的疫苗”。研究人员尚未测试这种抗体是否对新型的欧米克戎（omicron）变种有效，但他们认为新变种病毒具有被35B5抗体抑制的特性。
 
-“这要归功于澳大利亚和英国，他们坚持认为，这不是一个封闭的架构，而是一个开放的结构。我们希望在前进的过程中，在军事创新的关键领域与合作伙伴合作。”
+郭文贵先生曾经爆料说，中共拥有几种病毒解药，分别是羟氯喹、青蒿素、伊维菌素、还有NAb抗体。中共最早想利用解药同美国和西方世界谈判，迫使西方世界妥协。但是后来郭先生公布青蒿素就是病毒解药，把中共的计划打乱。中共此时释放欧米克戎变种病毒，然后发表抗体解药，可能又想故伎重演，再次迫使西方投降。发表抗体解药的时间点也很特别，上周郭先生爆料称美国派遣国务卿级别专机访问台湾，实际宣誓美国会捍卫台湾民主。中共同时释放病毒又公布解药，就是妄图利用恐惧心理胁迫西方，目的可能还是想入侵台湾并打压青蒿素。毕竟青蒿素不仅能治疗病毒感染，还能降解毒疫苗的副作用。抗体不具备对疫苗解毒的作用。
 
-原文链接：[https://www.msn.com/en-au/news/other/aukus-alliance-could-welcome-more-countries-into-partnership/ar-AARjDZH?ocid=msedgntp](https://www.msn.com/en-au/news/other/aukus-alliance-could-welcome-more-countries-into-partnership/ar-AARjDZH?ocid=msedgntp)
+冠状病毒是中共研发投放的生物武器，中共当然拥有NAb抗体解药。只是没人敢相信中共假骗偷体系生产的医疗产品，有谁愿意注射中共国生产的抗体呢？论文中还提到设计广谱抗中共病毒的新疫苗，这不是要进行新一轮的强制注射疫苗吗？众所周知，毒疫苗会造成心肌炎、癌症、血栓、神经系统病变等多种副作用。相信共产党，走进火葬场。
 
-***发布：Candy***
+信息来源：
 
-更多资讯，请关注：[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)[Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+https://www.zerohedge.com/markets/chinese-researchers-claim-have-found-antibody-cure-covid
 
  
 

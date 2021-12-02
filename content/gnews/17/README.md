@@ -2,34 +2,85 @@
 ---
 
 
-## 一场太空中的影子战争正在迅速升温
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1712545/)
+## 参照四条，你就知道共产党会不会被灭
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1712653/)
 
-编译：花岗岩
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片3.png)
-图片来源：网络截图
+[https://gtv.org/video/id=61a820c23ff6481adce77778](https://gtv.org/video/id=61a820c23ff6481adce77778)
 
-据《华盛顿邮报》11月30日的一篇观点文章报道，当俄罗斯用导弹炸毁太空中的一颗卫星时，或者当中共国测试一枚新的高超音速导弹时，太空中正在进行的军备竞赛跃然成为新闻。但在公众的视野之外，美国及其对手每天都在太空中战斗。
+看就看四个指标。
+Just look at four indicators
 
-当华盛顿官员和专家警告太空军备竞赛的风险时，美国的对手却不断对美国的卫星开展行动，在情报行动和战争行为之间徘徊不前。据太空部队第一副司令大卫·汤普森将军在最近的哈利法克斯国际安全论坛的间隙接受采访时告，冲突的步伐正在加剧，中共国可能在本十年末超过美国，成为太空的头号强国。
+第一，美国在亚太的军事部署。
+First, U.S. military deployment in the Asia-Pacific
 
-现在，太空部队每天都在处理汤普森所说的对美国政府卫星的 “可逆转的攻击“（指不会对卫星造成永久性损害的攻击）。他说，中共国和俄罗斯都经常用非动能手段攻击美国的卫星，包括激光、无线电频率干扰器和网络攻击。
+第二，对台的实际行动。
+Secondly, the actual action of US to protect Taiwan
 
-汤普森一再拒绝就中共国或俄罗斯是否以造成永久性或重大损害的方式攻击了美国军事卫星发表评论，他告诉我，如果真的发生了，那将是机密。中共国军方正在迅速部署用于在太空中作战的地面系统，比如可以破坏多事的美国情报界卫星的激光器，这可以被视为战争行为。
+你知道问什么为什么拍那个飞机的照片吗？
+Do you know why that picture of the plane was taken?
 
-汤普森认为中共国实际上远远领先于俄罗斯并且在以令人难以置信的速度推出作战系统。他说，这两个国家都在研究可以攻击其他卫星的卫星。一段时间以来，有报道说中共国正在开发一种卫星，可以用机械臂或抓钩抓取另一颗卫星。中共政府有几个理由想让美国的卫星失效，这些卫星在揭示为关押维吾尔族穆斯林而建造的集中营和中共国新的核导弹发射井场方面很有用。
+那是象征着美国外交的专机, 美国国务院国务卿的专机。
+That’s the plane that symbolizes American diplomacy, the plane of the Secretary of State of the United States
 
-汤普森说，中共国正在建造它自己版本的基于卫星的全球定位系统。这是在中共国现在已经部署的 “几百颗 ”情报、监视和侦察卫星之外，对全球任何地区进行监视。他估计，中共国还在以两倍于美国的速度向太空投放卫星，这意味着如果我们这边没有变化，中共国将在几年内在太空能力方面超过美国。
+一个是757，再一个是737，主要是757，长途飞行,大概有一二十架。
+The plane has two styles. One is boring 757, another is 737. The main plane is 757 which is using long-distance travel, there are about one or two dozen of them
 
-将军认为，美国的军事能力仍然是世界上最好的，但中共国正在迅速追赶。“如果我们不采取行动的话，到十年后我们应该感到担忧。“
+但凡来过美国，你到华盛顿两个机场，特别是私人飞机，飞的时候你看到平面上永远有美国国务院飞机和CIA商业喷涂掩盖好的隐蔽式飞机。
+Anyone who has been to the United States, you go to the two airports in Washington, especially by private aircraft, you would see the U.S. State Department plane & CIA concealed aircraft covering by commercial spraying
 
-在中共国迅速将太空武器化的同时，其政府将矛头指向美国，声称华盛顿是外交上的绊脚石。有报道称，拜登政府正在与北京接触，以建立新的核军备控制谈判，以及网络空间和太空的国际规范，但美国官员表示，中共国不会有意义地参与。
+这种国务院专机到达之地，就是美国外交关系的合法证明。
+The arrival destination of U.S. State Department plane is legitimate certificate of the US diplomatic relationship
 
-他说，美国军方正试图通过建立太空快速能力办公室和太空发展局等机构来加快太空资产的采购和部署。汤普森的想法是在星座中部署大量相对低成本的卫星，以增加美国太空资产在受到攻击时的复原力。
+美国有上千架CIA调动的这种飞机，看上去是民航，看后面是美国CIA的，还有一个CIA的只有喷涂没有编号的，那就是CIA的飞机。
+US have thousands of CIA mobilized aircraft, it looks like civil aviation, look at the back is the United States CIA, there is a CIA only sprayed without the serial number, that is the CIA aircraft
 
-关于如何阻止敌人在地面、海上或空中的攻击的传统思维并不真正适用于太空。新的空间理论和规范需要建立，主要是由外交官建立。这项工作将需要多年。与此同时，太空的军备竞赛正在升温，如果美国不承认这一现实，就有可能失去它。
+757国务卿专机，外交专机，你动那个飞机就是跟美国人开战。
+The boring 757 U.S. diplomatic special plane and U.S. Secretary of State plane, if you attacking the plane means you declare a war with US
 
-新闻来源：[Opinion: A shadow war in space is heating up fast](https://www.washingtonpost.com/opinions/2021/11/30/space-race-china-david-thompson/)
+意义重大。关键飞机还有谁看到了吗？美国的共和党和民主党同乘坐专机去,这是很吓人的事。
+It was significant. What key figures did you seen in the photo? It’s shocking that the Republicans and Democrats in the United States are going on a special plane together
+
+你去看那些人的背景，哪个都有可能被选为下一任总统。
+If you examine the background of those senators and congressmen, These are the people who could be chosen as the next president
+
+第三个，看什么 ，钱。
+The third, what we notice is money
+
+你看现在还有往中国投钱的吗？
+Have you seen anyone invest to china?
+
+你见美国公司有不往外撤的吗？
+Don’t you see American companies pulling money out of the country?
+
+第四条，大家看看所谓的美国和中国政府谈的，我们双方都有一个建墙效应，坚决不能发生战争，不能发生误会，不能所谓擦枪走火，对台湾，你不能有愚蠢的行动，都是骗你的。
+The fourth, let’s see what the conversation between US and China. Saying that we had a bilateral wall effect which including no war, no misunderstanding, no misfire, no stupid action to Taiwan. All promises are lies
+
+不要看美国政府说啥，看看萨达姆，伊拉克，警告萨达姆美国无意与你开战，美国绝不想改变的你的政府体制，对你萨达姆本人没有任何恶意，接着美国就打过去了。
+You shouldn’t just hear the words of US, notice the action. Let’s look at Saddam’s example. Before the Gulf War, US warning the Saddam that the United States has no intention of going to war with you, the United States in no way wants to change your system of government, has no ill will toward Saddam himself, then the United States hit Iraq
+
+参照以上四条，你就知道共产党会不会被灭。
+Refer to the four indicators, you will know whether the Communist Party will be destroyed
+
+* * *
+
+原视频标题: 参照四条，你就知道共产党会不会被灭
+Refer to the four indicators, you will know whether the Communist Party will be destroyed
+原视频日期：2021/11/29
+原视频链接: [https://gettr.com/post/pi8f1513f2](https://gettr.com/post/pi8f1513f2)
+任务编号：KC301（3060）
+视频时间段 : 0:00-2:28
+中听校：洛杉矶盘古农场 – 73stolencountry
+英文翻译：洛杉矶盘古农场 – 73stolencountry
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+
 
  
 

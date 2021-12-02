@@ -2,32 +2,48 @@
 ---
 
 
-## 欧盟推“全球门户”，抗衡中共“一带一路”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1712609/)
+## 中共国就台湾问题召见日本大使
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1712724/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/3-5.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fcdn.trt.net.tr%2Fimages%2Fxlarge%2Frectangle%2Fcd75%2F09ae%2F6375%2F61a77018d4423.jpg%3Ftime%3D1638394944&amp;imgrefurl=https%3A%2F%2Fwww.trt.net.tr%2Fchinese%2Fguo-ji%2F2021%2F12%2F01%2Fou-meng-gong-bu-quan-qiu-men-hu-jian-zhi-zhong-guo-de-dai-lu-1741590&amp;tbnid=h1qlV3SzwfOWTM&amp;vet=12ahUKEwiAx5uHlsT0AhUHXpQKHQIxC20QMygBegUIARCiAQ..i&amp;docid=J2Gi2CeJu2wYXM&amp;w=1220&amp;h=686&amp;itg=1&amp;q=%E5%85%A8%E7%90%83%E9%97%A8%E6%88%B7&amp;ved=2ahUKEwiAx5uHlsT0AhUHXpQKHQIxC20QMygBegUIARCiAQ)
-欧盟执委会周三(12月1日)公布了一项计划，拟在2027年前在全球范围内投资3,000亿欧元(3,400亿美元)用于基础设施、数字和气候项目，作为中共国“一带一路”倡议的更好替代方案。
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-该计划被称为“全球门户”(Global Gateway)，旨在加强欧洲供应链，促进欧盟贸易，并帮助应对气候变化，重点关注数字化、卫生、气候、能源和运输，以及教育和研究等领域。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/21_07_2019_18_24_17_5963168.jpg)
 
-中共国在2013年启动了“一带一路”项目，以促进与世界其他国家的贸易联系，并在全球数十个国家的基础设施建设上投入了大量资金。但欧盟官员表示，中共国政府提供的融资往往对接受国不太有利、不透明的，并使一些较贫穷国家，尤其是非洲国家通过债务依赖中共国。
 
-欧盟执委会主席冯德莱恩(Ursula von der Leyen)表示，与中共国不同，欧盟将确保当地社区从“全球门户”的基础设施项目中受益，同时也让私营部门参与，因此欧盟的参与意味着投资风险较小。“事实上，各国……需要(比中共国的倡议)更好的和不同的提议，”冯德莱恩在新闻发布会上介绍了欧盟的计划，她称这是“一个真正的替代方案”。
 
-欧盟以赠款、贷款和担保的形式提供的资金将来自欧盟各机构、各国政府以及欧盟金融机构和各国开发银行。欧盟执委会表示，它将“以公平和优惠的条款”提供援助，不给第三国政府留下债务问题。
 
-欧盟国际伙伴关系专员乌尔皮莱宁在新闻发布会上表示，欧盟在发展援助方面的资金数额与中共国类似。她说:“如果我看一下统计数据，在2013年至2018年期间，欧洲一直是世界上最大的发展援助提供者，我们在2013-2018年纯粹捐赠的发展援助资金，与中共国报告的一带一路项目资金额度非常接近。我们在很大程度上处于同一水平，但我们的模式有所不同。我们一直在提供赠款，中共国一直在提供贷款。”
+图片来源：www.devdiscourse.com
 
-欧盟执委会表示，欧盟计划将重点关注有形基础设施，如光纤电缆、清洁运输走廊和清洁电力传输线路，以加强数字、运输和能源网络。欧盟表示，通过帮助其他国家，欧盟也将促进自身利益，并加强其供应链。在中共病毒大流行期间，供应链的脆弱性变得更为明显。
 
-消息来源:
+#### 编译：小红帽
 
-[焦点：欧盟公布3000亿欧元“全球门户”投资计划 以抗衡中共国“一带一路”倡议](https://cn.reuters.com/article/eu-global-investment-cn-bri-1202-idCNKBS2IH03K?il=0)
+日本前首相安倍晋三表示，如果中共国采取措施收回台湾，日本不会袖手旁观。随后，日本驻北京大使被中共召见紧急会议。
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+该大使于周三被中共国外交部召见，中共国外交部部长助理华春莹抗议表示，安倍的警告“公开挑战中共国的主权，公然支持台独势力”。
+
+中共国外交部的一份声明说，中共国 “坚决反对”安倍的言论，并已向日本提出“严正交涉”。
+
+周三，安倍在台湾智库国家政策研究所的论坛上向中共国国家主席习近平发出警告后，引发了这场争论。
+
+安倍在讲话中表示，“台湾的紧急情况是日本的紧急情况，因此也是日美联盟的紧急情况”，然后警告说，如果中共国试图对该岛采取军事行动，那将是“经济自杀”。
+
+安倍在2012年12月至2020年9月期间担任首相，之后由菅义伟和最近的岸田文雄接任。
+
+根据一个中国政策，北京将台湾视为其领土不可分割的一部分，而该岛支持独立的领导人得到了华盛顿的支持，台北经常接待高调的美国代表团。
+
+东京一直表示支持台湾海峡的现状，对该地区的 “危机感”敲响了警钟。在其最新的白皮书中，日本国防部称维护该地区的稳定和安全是日本的首要任务之一。
+
+**参考新闻：**[China summons Japanese ambassador in Taiwan row — RT World News](https://www.rt.com/news/541925-china-summons-japanese-ambassador/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
