@@ -15,94 +15,94 @@
 
 ---
 
-### [川普总统的SPAC，最后一定是个骗局](/content/gnews/1/README.md)
+### [触发西方经济崩溃的节点](/content/gnews/1/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【粤语配音】2021年12月1日：青蒿素既能解病毒也能解疫苗](/content/gnews/2/README.md)
+### [郭文贵先生的三个绝密信息告诉人们，不要活在共产党的虚伪环境下](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [11/28/2021 文貴直播：(粤语)所謂從南非出來的新病毒變種只在打了兩針疫苗的人之間傳播](/content/gnews/3/README.md)
+ ` 秘密翻译组-北美组`
+
+### [GTV新闻访谈简报|2021年12月2日早](/content/gnews/4/README.md)
+ ` 纽约香草山MOS01`
+
+### [独裁者惯用手段：制造仇恨，挑拨矛盾](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [新中国联邦不和任何人做交易，追求良知和正义](/content/gnews/6/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [川普总统的SPAC，最后一定是个骗局](/content/gnews/7/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [【粤语配音】2021年12月1日：青蒿素既能解病毒也能解疫苗](/content/gnews/8/README.md)
  ` MOS香港部`
 
-### [全世界所有现代化的科技产品几乎都是美国创造出来的](/content/gnews/3/README.md)
+### [全世界所有现代化的科技产品几乎都是美国创造出来的](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [军情六处负责人称中俄、伊朗是英国威胁之首](/content/gnews/4/README.md)
+### [军情六处负责人称中俄、伊朗是英国威胁之首](/content/gnews/10/README.md)
  ` GTV新闻访谈`
 
-### [美国海军司令呼吁在太平洋地区增派航母](/content/gnews/5/README.md)
+### [美国海军司令呼吁在太平洋地区增派航母](/content/gnews/11/README.md)
  ` GTV新闻访谈`
 
-### [美国决心灭共的四个指标](/content/gnews/6/README.md)
+### [美国决心灭共的四个指标](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [CNN将克里斯-库莫无限期停职](/content/gnews/7/README.md)
+### [CNN将克里斯-库莫无限期停职](/content/gnews/13/README.md)
  ` GTV新闻访谈`
 
-### [港股跌至年内新低，中共经济难以为继](/content/gnews/8/README.md)
+### [港股跌至年内新低，中共经济难以为继](/content/gnews/14/README.md)
  ` GTV新闻访谈`
 
-### [超过半数美国人视中共为最大威胁](/content/gnews/9/README.md)
+### [超过半数美国人视中共为最大威胁](/content/gnews/15/README.md)
  ` GTV新闻访谈`
 
-### [中共实时中断日媒对彭帅问题的报道](/content/gnews/10/README.md)
+### [中共实时中断日媒对彭帅问题的报道](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共借外媒喉舌遭暴被踢——美国（原脸书）删除中共假外国专家账号](/content/gnews/11/README.md)
+### [中共借外媒喉舌遭暴被踢——美国（原脸书）删除中共假外国专家账号](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【修罗短评】共匪用统计局的数据挑衅新中国联邦的唯真不破](/content/gnews/12/README.md)
+### [【修罗短评】共匪用统计局的数据挑衅新中国联邦的唯真不破](/content/gnews/18/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [安倍晋三警告中共：“台湾出事就是日本出事”](/content/gnews/13/README.md)
+### [安倍晋三警告中共：“台湾出事就是日本出事”](/content/gnews/19/README.md)
  ` 波士顿五月花农场`
 
-### [12/02/21 香港快讯 第3季以永久离港为由 提取强积金申索数9300宗 按季增16](/content/gnews/14/README.md)
+### [12/02/21 香港快讯 第3季以永久离港为由 提取强积金申索数9300宗 按季增16](/content/gnews/20/README.md)
  ` 英喜-粵語組`
 
-### [中共在美国新一轮放毒正式开始](/content/gnews/15/README.md)
+### [中共在美国新一轮放毒正式开始](/content/gnews/21/README.md)
  ` 波士顿五月花农场`
 
-### [天灭中共](/content/gnews/16/README.md)
- ` 银河勇气之星`
-
-### [1201大直播概要二：青蒿素加伊维菌素一定能解决病毒](/content/gnews/17/README.md)
- ` 走进澳洲`
-
-### [1201大直播概要一：湄公河案让孟建柱野心膨胀](/content/gnews/18/README.md)
- ` 走进澳洲`
-
-### [2021年11月20日 郭先生视频重点内容整理](/content/gnews/19/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [有声|中共用独裁思想洗脑百姓 权贵却向往自由法治之地](/content/gnews/20/README.md)
- ` MOSREC`
-
-### [有声|中共收买世界主流媒体 无视阿富汗人道危机](/content/gnews/21/README.md)
- ` MOSREC`
-
-### [有声|运油20首次参与27架中共军机扰台，台外长表示绝不屈服于中共压力](/content/gnews/22/README.md)
- ` MOSREC`
-
-### [有声|文贵警告：警惕世界经济的大崩溃](/content/gnews/23/README.md)
- ` MOSREC`
-
-### [有声|日本因“奥密克戎”变种病毒禁止全球旅客入境](/content/gnews/24/README.md)
- ` MOSREC`
-
-### [有声|拜登曾表示希望日本防卫费增加以遏制中共](/content/gnews/25/README.md)
- ` MOSREC`
-
-### [DC每日热点1202](/content/gnews/26/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [西站出品（之）– 七哥讲堂 （三）](/content/gnews/27/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [日本高知县公开报道疫苗死亡案例 网友为媒体态度点赞](/content/gnews/28/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [无国界记者呼吁冬奥会记者防范中共监控](/content/gnews/29/README.md)
+### [墙内疫情反弹 中共禁止冬奥会运动员入京](/content/gnews/22/README.md)
  ` GTV新闻访谈`
 
-### [荷兰众议院接连通过挺台议案](/content/gnews/30/README.md)
+### [天灭中共](/content/gnews/23/README.md)
+ ` 银河勇气之星`
+
+### [疫苗引发心脏病的研究结果被掩盖](/content/gnews/24/README.md)
+ ` GTV新闻访谈`
+
+### [有声|中共用独裁思想洗脑百姓 权贵却向往自由法治之地](/content/gnews/25/README.md)
+ ` MOSREC`
+
+### [有声|中共收买世界主流媒体 无视阿富汗人道危机](/content/gnews/26/README.md)
+ ` MOSREC`
+
+### [DC每日热点1202](/content/gnews/27/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [西站出品（之）– 七哥讲堂 （三）](/content/gnews/28/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [日本高知县公开报道疫苗死亡案例 网友为媒体态度点赞](/content/gnews/29/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [无国界记者呼吁冬奥会记者防范中共监控](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
 ### [中国梦孩子的噩梦，鹿道森自曝遭霸凌后失联身亡遗书惹全网泪崩](/content/gnews/31/README.md)

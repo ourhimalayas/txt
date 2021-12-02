@@ -2,50 +2,26 @@
 ---
 
 
-## 无国界记者呼吁冬奥会记者防范中共监控
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1713894/)
+## 日本高知县公开报道疫苗死亡案例 网友为媒体态度点赞
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1713902/)
 
-作者：东京樱花团—在远方
+撰稿：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/4.jpg)
+图片来自报道截图
 
+12月2日，日本高知电视台报道，该县没有确认新的中共病毒感染病例。这是连续第20天没有确诊病例。另一方面，县政府宣布，上个月该县的一名男子在接种疫苗后死亡。
 
+据该县政府称，上个月，该县一名50多岁的男子在接种了辉瑞公司的疫苗后死亡。疫苗接种与死亡之间的因果关系尚不清楚。这名男子在10月底接种了第二剂疫苗，三天后死亡。目前还不知道该男子是否有任何潜在疾病。截至上月底，该县因接种疫苗而死亡的总人数达到 15 人。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+男子接种疫苗死亡的信息一个月后才报出，虽然晚了，但高知电视台的勇气还是值得肯定的。这条报道的下方，网友留言写道，“高知县能如实报道疫苗接种后的死亡情况，是正确报道应有的作派”。关于此条留言，截至笔者发此稿，共有3211人点赞。着实令人欣慰。媒体的客观性是民众觉醒的催化剂。日本民众也开始意识到了中共疫苗的骗局。
 
+信息来源：
 
+[未确认新冠感染 1人接种疫苗后死亡](https://news.yahoo.co.jp/articles/2734f1af8e6034831137f0babdfc39bc90e634ee)
 
-当地时间11月29日，无国界记者组织发布声明表示，建议前往中共国报道2022冬奥会的记者避免下载可能让中共监控他们的应用软件，比如微信、百度和抖音等。
-
-同时，该组织还在声明中呼吁，全球媒体、出版商和社交网络应该对中共可能存在的任何编辑干预或压力进行谴责，并且，应继续调查中共当局对新闻自由的攻击。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-15.jpg)
-该组织东亚办事处主任艾玮昂解释，举办此次奥运会是习近平试图恢复形象的手段，习近平妄图通过奥运会让全球民众忘记习本人及中共在人权方面的恶劣记录。对此，艾玮昂强调，各媒体必须警惕中共政权企图操控舆论的举动，需保护旗下记者免受来自中共的监控和施压。
-
-另外，该组织还建议记者，在报道中共国的相关问题时，避免使用掩饰真相的描述，比如要明确表述中共在新疆地区的种族镇压以及在天安门广场上发生的大屠杀。无国界记者组织反复提醒记者，不要与中共的宣传媒体合作。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.2-1.jpg)
-参考链接：
-[无国界记者呼吁报道冬奥的媒体记者防范中国政府的监控](https://www.voachinese.com/a/rsf-urge-protection-from-china-surveillance-20211129/6332473.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
-
-总编：文特
-编辑：Irene木木
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.png)
 
 
  
