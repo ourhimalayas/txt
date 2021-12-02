@@ -2,25 +2,33 @@
 ---
 
 
-## 他们计划用普通流感杀死数十亿人：Covid疫苗导致免疫崩溃
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1714570/)
+## 七哥的袖扣
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1714571/)
 
-翻译： Jenny Ball
+文编：Hima
+听写：叮叮
+视频：七哥
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-86.png)图片来源 : brighteon.com
+这个袖扣就是干这个的，后来我知道这个袖扣被他们广泛的用在了澳门。
+因为澳门的叠马仔还有发牌的人是要戴，你看都要戴袖扣的，很多人戴的，特别是VVIP厅，就是这个袖扣，就是录像手段之一。最重要的事情，这个袖扣带着，后面带着的时候，有人看牌，就能把别人的牌传到那个监控室去，那个是能够大赢的，那想赢你啥就是啥！这个扣子用途很多，大家不要想着这个镜头是一直晃的，你记住，这个袖扣戴上的时候，有的人手在这一放，他就这么一搁，他就不用动，而且是超稳定的那种镜头，高清的，在当时就很高清了，你知道吗。噢，很厉害，今天给你们解密它是监控镜头。
 
-那些接受新冠疫苗注射的人已经变成了疫苗诱导的“艾滋病”患者，他们对一切事物的免疫力都在崩溃。这使他们非常容易受到故意释放的中度流感毒株的影响，这种毒株通常只会杀死虚弱的老人。
+校对：HimaFaFA
+发布：HimaBoy
 
-为什么全球主义者会选择这条路线？ 因为他们不想用一种真正恶性的病原体来“毁灭”这个星球，因为这种病原体从长远来看会威胁到他们自己的孩子。他们想把真正危险的病原体保存在冰箱里，同时，想办法杀死带有轻微病原体的人。只有说服容易上当的群众排队接受 mRNA 刺突蛋白疫苗注射，他们才能成功。
+[![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)](https://www.gettr.com/user/7UPgogo)
 
-新闻来源: [ brighteon.com] [Situation Update, Dec 1, 2021 – Billions of victims of vaccine-induced AIDS will soon emerge to the horror of humanity](https://www.brighteon.com/02ed1877-6dc1-4b6d-8f0f-ad92b54eea19)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-* * *
+**关注我们**
 
-*审核：文乐 
-校对：信心满满
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3.jpeg)
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

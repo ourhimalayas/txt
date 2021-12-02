@@ -2,32 +2,41 @@
 ---
 
 
-## 七哥的袖扣
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1714571/)
+## 中共国驻西班牙大使馆公开指责美国广播公司记者对习近平的报道
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1714590/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+**编译：蚂蚁兄弟**
 
-这个袖扣就是干这个的，后来我知道这个袖扣被他们广泛的用在了澳门。
-因为澳门的叠马仔还有发牌的人是要戴，你看都要戴袖扣的，很多人戴的，特别是VVIP厅，就是这个袖扣，就是录像手段之一。最重要的事情，这个袖扣带着，后面带着的时候，有人看牌，就能把别人的牌传到那个监控室去，那个是能够大赢的，那想赢你啥就是啥！这个扣子用途很多，大家不要想着这个镜头是一直晃的，你记住，这个袖扣戴上的时候，有的人手在这一放，他就这么一搁，他就不用动，而且是超稳定的那种镜头，高清的，在当时就很高清了，你知道吗。噢，很厉害，今天给你们解密它是监控镜头。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip18.png)Pablo M. Díez，美国广播公司驻华记者 – ABC
 
-校对：HimaFaFA
-发布：HimaBoy
+据证实，中共国对ABC网站的审查是由于本报周日发表的题为“习近平，红色皇帝”的报道。中国驻西班牙大使馆周三在其网站上发表声明，批评这篇文章，并公开用大写字母指责美国广播公司（ABC）驻北京的记者巴勃罗-M-迪亚斯（Pablo M. Díez），但没有提到审查制度的问题。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/捕获22.png)
+*（公告网站：http://es.china-embassy.org/esp/sghd/202112/t20211201\_10460646.htm）*
+2021年11月28日，ABC报发表了一篇关于中国领导人的文章，作者是记者巴勃罗-M-迪亚斯（Pablo M. Díez）。中共国驻西班牙大使馆的声明中说：“这是一篇充满无知、偏见和谎言的文章，对事实视而不见，肆无忌惮地诋毁中共国和中共国领导人，严重违反了客观、中立等新闻工作的基本原则，误导了西班牙人对中国的认识，中共国大使馆对此表示极大的不满，坚决反对并强烈谴责。”
 
-[![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)](https://www.gettr.com/user/7UPgogo)
+尽管有这些批评，中共国大使馆并没有具体说明它所谴责的这些所谓的“谎言”是什么，也没有说明“肆无忌惮地诋毁中共国和中共国领导人”的原因。
 
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+另一个非常令人担忧的细节是，大使馆将矛头指向了文章的作者巴勃罗-M-迪亚斯（Pablo M. Díez），并用大写字母突出他的名字，公开指责他，这给他在中共国的安全带来了巨大风险。自从这篇文章在周日被发表后，美国广播公司（ABC）被审查，迪亚斯在推特上不断遭受追随者、粉红和中共政权的“机器人”的侮辱和威胁，他们中的大多数人用假名和假照片。在这次骚扰中，中共国驻巴塞罗那领事朱京阳也批评这篇文章是“虚假的”以及“具有诋毁性的”，但没有解释什么是谎言和诋毁。
 
-**关注我们**
+西班牙政府表示：中共国领事和大使的言论“是不可接受的”。
 
-Discord 账号
+对此，西班牙政府“坚决捍卫言论自由，认为这是民主制度的基本要素之一”。中国总领事在推特上的言论“是不可接受的，西班牙当局已向中国大使馆转达此意”。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+在中国，公开针对异议记者的行为正成为一种令人担忧的趋势。去年夏天，在河南的洪水期间，共青团在微博社交网络上呼吁人肉BBC记者罗宾-布兰特。几天后，德国之声和洛杉矶时报的记者被一群暴徒包围，暴徒对记者们大喊大叫，并威胁他们。这种骚扰行为随后在中共国的社交媒体上继续发生，促使世界记者协会发出谴责声明。现在轮到美国广播公司记者巴勃罗-M-迪亚斯，他从2005年起就一直在中国工作和生活，报道过中共国和亚洲其他地区最重要的事件，如北京奥运会和日本的福岛海啸和核灾难。由于他的职业生涯和对武汉爆发的冠状病毒大流行的报道，国际新闻俱乐部去年授予他最佳西班牙驻外记者奖。
 
-Gettr 账号
+中国驻西班牙大使馆没有解释他文中提到的21世纪共产主义独裁者系列的习近平简介中所谓的“谎言”，而是坚持认为“民主的不同表现形式不应该用单一的标准来衡量”。尽管中共政权不允许选举或政党自由，实行审查制度并迫害持不同政见者，但从公报明显看出“任何持客观公正立场的人都不难理解中国式民主的基本价值和真正含义”。
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+**新闻来源**：[abc.es][La Embajada china en España señala públicamente al corresponsal de ABC por su perfil de Xi Jinping](https://www.abc.es/internacional/abci-embajada-china-espana-senala-publicamente-corresponsal-abc-perfil-jinping-202112021115_noticia.html)
+
+* * *
+
+***审核：Aries的星
+校对：阿伯塔
+发布:信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3.jpeg)
+
+
 
  
 

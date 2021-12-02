@@ -2,62 +2,41 @@
 ---
 
 
-## 法院命医院用伊维菌素挽救濒死COVID患者康复
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1714639/)
+## 数百人聚集在地下“禁忌式”新冠科学会议
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1714641/)
 
-**编译：Jenny Ball**
+作者：Tamara Ugolini
+翻译：HimaSally
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip20.png)2021 年 11 月 27 日，吴孙先生在接受伊维菌素治疗后完全康复，图为从爱德华医院出院并前往女儿家之前。（照片：Tom Ciesielka）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-20.png)
 
-据患者家人的律师称，一名 COVID-19 老年患者，在法院命令允许他接受伊维菌素治疗后已经康复，尽管他所住的医院反对。
+我最近参加了在大多伦多地区一个未公开地点举行的私人小组成员讨论会议。场地、所有开会者和组成小组的学者的隐私都得到了维护，因此我无法为您带来活动的全部内容。相反，我依靠各种演讲中的一些主题和观众的反馈，在疯狂的世界中为您带来一线希望。
 
-在伊利诺伊州的一家医院，坚持给患者服用昂贵的瑞德西韦但治疗失败。法院不顾医院的强烈反对，下令允许外部医生使用**廉价的伊维菌素治疗他**，从而挽救了他的生命。
+所有开会者都被要求关闭 GPS，将手机置于飞行模式或完全关闭。在活动之前、期间或之后，不得在社交媒体上发帖。便衣警察和私人保安确保了在场人员的人身安全。这一切具有批判性的限制就是模拟我们在2021 年加拿大的生活现实。
 
-伊维菌素片被美国FDA批准用于治疗人类肠道类圆线虫病和盘尾丝虫病，这两种疾病是由寄生虫引起的。一些外用形式的伊维菌素，已被批准用于治疗头虱等外部寄生虫和红斑痤疮等皮肤病。该药物也被批准用于动物。
+总的来说，该活动是关于质疑并倡导身体主权和免受未经同意的医疗权利。其目的还在于进行面对面的实时、不戴面具且不保持社交距离的联系。以向其他人表明，他们并不是唯一一个质疑政府对“大流行”的反应的人，而这种反应只是还没有叠加起来。
 
-瑞德西韦已获得 FDA 的**紧急使用授权**，用于治疗因 COVID-19 住院的某些类别的患者。但是，使用伊维菌素来治疗患有 COVID-19 的人类已引起争议，因为 FDA 尚未批准其用来治疗这种由 CCP 病毒（也称为 SARS-CoV-2）引起的疾病。
+讨论的主题包括对社交媒体上的错误法律建议和法律术语剖析，向与会者提供循证信息的医疗专业人员，以及因“不合规”而失业的前线工作人员和学者的个人账户不明不白地进账和违宪的授权，加拿大公共卫生局如何完全忽视疫情数据透明的辩论。
 
-长期以来，批评者一直指责 FDA 在监管药品的方法上拖延时间，危险地过度谨慎，对人类痛苦漠不关心，这一批评导致当时的总统川普于 2018 年 5 月签署了《试用权法案》。根据 FDA 的说法，“对于被诊断出患有危及生命的疾病或状况的患者来说，这是另一种方式，他们已经尝试了所有已批准的治疗方案，但无法参与临床试验以获取某些未经批准的治疗方法。”
+很明显，我们不会改变或服从未经我们同意且强加给我们的“新常态”，所以会议室里的人正在把权力掌握在自己的手中。他们重新团结以摆脱这种怪诞的混乱局面以一种包容的方式，而不使用冒险的、实验性的、仓促的药物。基于证据并通过辩论共享公开透明的信息。
 
-医生可以随意开出伊维菌素来治疗 COVID-19，尽管 FDA 声称其标签外使用在某些情况下可能是有害的。据该机构称，该药物用于对抗 COVID-19 的临床人体试验目前正在进行中。
+来源：[https://www.rebelnews.com/hundreds\_gather\_for\_underground\_prohibition\_style\_covid\_science\_conference](https://www.rebelnews.com/hundreds_gather_for_underground_prohibition_style_covid_science_conference)
 
-该药物“绝对”挽救了这位老年患者的生命，“因为他服用伊维菌素后病情立即发生了变化，”其家人的律师、芝加哥“莫克和贝克”（ Mauck and Baker） 的克尔斯汀·埃里克森（ Kirstin M. Erickson） 告诉《大纪元时报》。
+（文章仅代表作者个人观点）
 
-71 岁的吴孙，从香港到美国庆祝孙女的一岁生日，期间他感染了 COVID-19，几天内就濒临死亡。他于 10 月 14 日住进伊利诺伊州内珀维尔的爱德华医院，该医院是爱德华-埃尔姆赫斯特卫生系统的一部分。他的病情急剧恶化，几天后他被插管，并上了呼吸机。
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-吴孙的独生子吴文君（Man Kwan Ng）拥有机械工程博士学位，她进行了自己的研究，并决定父亲应该服用伊维菌素，尽管 FDA 的指导与此相反，**但一些医生认为伊维菌素对 COVID-19 有效**。
+**关注我们**
 
-但违背女儿的意愿，医院拒绝给予伊维菌素，并拒绝与愿意给予治疗的医生接触。
+Discord 账号
 
-女儿代表父亲出庭，11 月 1 日，杜佩奇县巡回法院法官保罗·富勒顿（Paul M. Fullerton）授予临时限制令，要求医院允许向患者服用伊维菌素。医院拒绝遵守法庭命令。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-在随后于 11 月 5 日举行的法庭听证会上，富勒顿说，一名出庭作证的医生，将吴孙描述为“基本上在他的病床上”，只有 10% 到 15% 的生存机会。使用建议剂量的伊维菌素，可能会产生轻微的副作用，例如头晕、皮肤发痒和腹泻，但“这些副作用的风险非常小，而吴孙先生目前的情况比这些风险高出一百倍，”富勒顿说.
+Gettr 账号
 
-法官当天发布了一项初步禁令，指示医院“立即允许……临时紧急情况特权”给吴孙 的医生艾伦·贝恩（Alan Bain），“为这名患者服用伊维菌素”治疗。
-
-医院在 11 月 6 日和 7 日拒绝了该命令，拒绝贝恩接触他的病人。医院声称它不能让贝恩进来，因为他没有接种 COVID-19 疫苗，并且其首席医疗官无法“监督”贝恩管理伊维菌素。
-
-女儿的律师于 11 月 8 日向法院提交了一份紧急报告，富勒顿听取了双方的意见。法官告诫医院并重申：必须让贝恩在 15 天内进入医院以完成他的工作。当医院提出暂停命令的动议时，富勒顿拒绝了，并再次指示要遵守设施准入要求。
-
-**伊维菌素似乎有效，而 吴孙已从 COVID-19 中康复。他于 11 月 27 日出院。**
-
-**“我父亲的康复情况令人惊讶，”**他的女儿 吴文君在一份声明中说。
-
-“我父亲是一个坚强的人。他努力工作以求生存，当然还有上帝之手。”
-
-**评论**：为**患者的康复而祝福，但同时不禁要问：为何紧急情况使用高价**瑞德西韦是医院的首选，而被FDA和世卫批准使用的廉价伊维菌素，却要法院命令才能用于治疗Covid病人？后者应该这样思维：如果伊维菌素可以治愈Covid患者，根本没有必要授予瑞德西韦紧急使用权，不是吗？这个世界真是太疯狂了！
-
-**新闻来源**：[theepochtimes.com][Dying COVID-19 Patient Recovers After Court Orders Hospital to Administer Ivermectin](https://www.theepochtimes.com/mkt_morningbrief/dying-covid-19-patient-recovers-after-court-orders-hospital-to-administer-ivermectin_4130754.html?utm_source=Morningbrief&amp;utm_medium=email&amp;utm_campaign=mb-2021-12-02&amp;mktids=68df2bb5af10e2af577ae8cd1995877b&amp;est=hWCQoHEDp0p6wAwsQsN3m8P2ZNUm9nnnrsJw0adNRpJXbyNB5bvCAGa7q08Mt2VitXLaeA%3D%3D)
-
-* * *
-
-***审核：文乐
-校对：信心满满
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3.jpeg)
-
-
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
