@@ -2,41 +2,27 @@
 ---
 
 
-## 墙内疫情反弹 中共禁止冬奥会运动员入京
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1714012/)
+## 中共实时中断日媒对彭帅问题的报道
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1714145/)
 
-作者：东京樱花团 – 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间12月1日，据中共媒体消息显示，过去一天中，中共国内新增113宗新冠确诊病例，其中91宗属本土个案，且相关病例皆分布在内蒙古呼伦贝尔市。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/8-2.jpg)
-对此，有报道提及，即使2022冬奥会举办在即，但中共仍然禁止前来参赛的外国运动员入京——他们目前暂时在张家口待命。
+撰稿:东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/6.jpg)
+[图片源](https://www.nishinippon.co.jp/sp/item/n/665144/)
 
-有墙内民众称，中共为确保冬奥会如期举行，采取了更加严酷的防疫措施。据悉，北京的居民离京容易返京难：民众从外地回京前要先去社区报备并出示48小时内新冠病毒阴性检测证明和北京健康码。同时，北京居民小区的物业会挨家挨户敲门询问住户是否接种了新冠疫苗。更甚者，中共定义下“中度风险地区”的往来包裹也被禁止进京。
+2日晚，NHK的海外新闻节目在报道中国女网球运动员彭帅的问题时，被中共实时中断。彭帅曾承认她被迫与中共前副总理发生性关系，中共当局实施了严格的信息控制，以防止人们对彭帅问题引起的争议产生关注。
 
-评论人士对此表示，中共为了疫情防护毫不顾忌墙内民众的感受，动辄强行隔离和封锁。也有民众抱怨道，在冬天寒冷的北方，自疫情爆发后，中共的政策就是封区、封门、管控和限制，给老百姓的生产和生活带来了巨大的不便。
+节目内容是，因为中共官方不能就彭帅本人是否安全做出可信的解释，女子网球协会（WTA）宣布决定不在中共国举办任何赛事。当时，中共国的电视屏幕显示“信号异常”，节目中断了数分钟。 中共真是每天如实地向世界上演“什么叫做言论管控”。这样的政府还有什么可信度？！
 
-参考链接：
-[中国113宗新确诊病例九成本土   冬奥会运动员北京外围等候](https://www.rfa.org/mandarin/yataibaodao/huanjing/ql1201a-12012021050446.html)
+信息源：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+**[テニス彭帥さんのニュース中断　中国、NHK放送で](https://news.yahoo.co.jp/articles/890225c0628bf52024361b2895cd9f38b99adbea)**
 
-总编：文特
-编辑：Kathy文艺
-校正/发稿：Fei797
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.png)
 
-**更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
 
 

@@ -2,29 +2,28 @@
 ---
 
 
-## 中共实时中断日媒对彭帅问题的报道
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1714145/)
+## GTV新闻访谈简报|2021年12月2日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1714241/)
 
-撰稿:东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/6.jpg)
-[图片源](https://www.nishinippon.co.jp/sp/item/n/665144/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/LOGO-1.jpg)
 
-2日晚，NHK的海外新闻节目在报道中国女网球运动员彭帅的问题时，被中共实时中断。彭帅曾承认她被迫与中共前副总理发生性关系，中共当局实施了严格的信息控制，以防止人们对彭帅问题引起的争议产生关注。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_.png)
+文章仅代表作者本人观点，与Gnews无关
 
-节目内容是，因为中共官方不能就彭帅本人是否安全做出可信的解释，女子网球协会（WTA）宣布决定不在中共国举办任何赛事。当时，中共国的电视屏幕显示“信号异常”，节目中断了数分钟。 中共真是每天如实地向世界上演“什么叫做言论管控”。这样的政府还有什么可信度？！
+视频参看：[2021.12.02早GTV新闻访谈](https://gtv.org/video/id=61a8ca14d6388d550414ae22)
 
-信息源：
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-**[テニス彭帥さんのニュース中断　中国、NHK放送で](https://news.yahoo.co.jp/articles/890225c0628bf52024361b2895cd9f38b99adbea)**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/rili.png)
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.png)
-
-
-
-
-
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

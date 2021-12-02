@@ -2,38 +2,31 @@
 ---
 
 
-## 疫苗引发心脏病的研究结果被掩盖
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1713984/)
+## 中共借外媒喉舌遭暴被踢——美国（原脸书）删除中共假外国专家账号
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1714125/)
 
-作者：香草山健身部 – 童谣
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月30日，英国著名心脏病专家阿希姆-马贺拉爆料称，根据一位英国著名机构的研究人员向他提供的消息显示，该机构拒绝公布心脏疾病与新冠疫苗之间关联的研究结果，其原因在于，他们担心失去研究经费。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/9-1.jpg)
-最近发表在美国心脏协会科学会议上的一项研究表明，在新冠疫苗的接种者中，他们患有急性冠状动脉综合征的风险显著增加，其中，接受辉瑞和莫德纳新冠疫苗的民众患心脏疾病的风险从11%增加到了25%。
+撰稿：东京樱花团/风翼
+![](https://assets.gnews.org/wp-content/uploads/2021/12/5.jpg)
+[图片来源](https://japanese.engadget.com/meta-facebook-185351672.html)
 
-有消息媒体称，而自新冠疫苗上市以来，英国因心脏疾病死亡的人数大幅增加，在那些所谓“值得信赖的专家”忙于掩盖他们发现的疫苗严重危险性时，辉瑞公司正在以每秒1000美元的盈利大赚特赚。
+总部位于美国的Meta（原脸书）周四表示，它已经删除了旗下社交网络脸书和其他网站上的，被认为是中共国正在利用这些账户操纵有关中共病毒信息的账户。这些报道包含一位虚构的瑞士生物学家的说法，其目的是，阻挠美国对中共病毒起源的调查研究。
 
-参考链接：
-[Leading Cardiologist Says Researchers Are Refusing to Publish Supporting Study Results That Show Covid Vaccine’s Link To Massive Increase In Heart Attacks](https://www.thegatewaypundit.com/2021/11/ready-must-watch-leading-cardiologist-says-researchers-refusing-publish-supporting-study-results-show-covid-vaccines-link-massive-increase-heart-attacks-afraid/)
+根据Meta（原脸书）汇编的一份报告中表示，中共的目标是美国和英国的英语使用者，以及台湾、香港和西藏的中文使用者，但他们操纵信息的企图“基本上没有成功”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+7月，中共国国家媒体报道了一位自称“威尔逊-爱德华兹”的瑞士生物学家对美国进行干预的一系列理论。然而，当瑞士驻北京大使馆评论说瑞士公民没有发现这样的人时，几家中共国报纸取消了“爱德华先生”的文章和声明。
 
-总编/编辑：Ivy001
-校正/发稿：Fei797
+而Meta（原脸书）公司于8月首次删除了“爱德华兹先生”的账户，此后对该案进行了调查，结果对524个脸书账户和20页照片共享应用程序上的20个页面、4个群组和86个账户以及相关内容进行了删除。
 
-**更多资讯，更多关注**
+该公司人员告诉路透社，我们已经找到这些活动与中共有关的证据，包括与某些特定的中共国企和世界各地关于基础建设的中共国企相关的人。对于指出的司瑞静（音）信息技术公司的网站，介绍说该公司是一家网络和信息安全公司，为中共国公安部和其他部门提供服务。而对于以上相关内容，中共国外交部和中共中央网络安全和信息化委员会办公室没有作出回应。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+中共大外宣每年1000亿美元维稳费的30%-40%用于国外的各种利益贿赂，达到掩盖和封嘴等目的。随着中共病毒真相、独裁、反人类的各种行为被世界越来越多的人所了解，与中共相关利益的企业和人都会受到严厉的法律制裁，而作为各种犯罪行为的始俑者中共还能存活下去吗？大家心知肚明。
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+信息来源：[米メタ、新型コロナ巡る中国の情報操作に関係したＳＮＳアカウント削除](https://jp.reuters.com/article/facebook-china-idJPKBN2IG58I)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.png)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 
