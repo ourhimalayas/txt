@@ -15,98 +15,98 @@
 
 ---
 
-### [突发：CNN无限期暂停克里斯·库莫的职务](/content/gnews/1/README.md)
+### [数百人聚集在地下“禁忌式”新冠科学会议](/content/gnews/1/README.md)
+ ` MG FARM`
+
+### [法院命医院用伊维菌素挽救濒死COVID患者康复](/content/gnews/2/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [彭帅事件继续燃烧：WTA暂停所有中国赛事](/content/gnews/2/README.md)
+### [突发：CNN无限期暂停克里斯·库莫的职务](/content/gnews/3/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [史蒂夫·班农1月6日的法律策略：“炸毁整个系统”](/content/gnews/3/README.md)
+### [彭帅事件继续燃烧：WTA暂停所有中国赛事](/content/gnews/4/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [史蒂夫·班农1月6日的法律策略：“炸毁整个系统”](/content/gnews/5/README.md)
  ` wenwu`
 
-### [日本前总理警告说：“入侵台湾将是中共国经济的自杀行为”](/content/gnews/4/README.md)
+### [日本前总理警告说：“入侵台湾将是中共国经济的自杀行为”](/content/gnews/6/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共国驻西班牙大使馆公开指责美国广播公司记者对习近平的报道](/content/gnews/5/README.md)
+### [中共国驻西班牙大使馆公开指责美国广播公司记者对习近平的报道](/content/gnews/7/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥的袖扣](/content/gnews/6/README.md)
+### [七哥的袖扣](/content/gnews/8/README.md)
  ` MG FARM`
 
-### [他们计划用普通流感杀死数十亿人：Covid疫苗导致免疫崩溃](/content/gnews/7/README.md)
+### [他们计划用普通流感杀死数十亿人：Covid疫苗导致免疫崩溃](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [埃内斯-坎特（Enes Kanter）从改姓为“自由人”（Freedom）](/content/gnews/8/README.md)
+### [埃内斯-坎特（Enes Kanter）从改姓为“自由人”（Freedom）](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中国希望结束其科技巨头过去在外国证券交易所上市的法律真空](/content/gnews/9/README.md)
+### [中国希望结束其科技巨头过去在外国证券交易所上市的法律真空](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [揭秘加拿大Family Trust家庭信托](/content/gnews/10/README.md)
+### [揭秘加拿大Family Trust家庭信托](/content/gnews/12/README.md)
  ` YALUN 亚伦`
 
-### [七哥谈过去](/content/gnews/11/README.md)
+### [七哥谈过去](/content/gnews/13/README.md)
  ` MG FARM`
 
-### [七哥谈：灭共的大门](/content/gnews/12/README.md)
+### [七哥谈：灭共的大门](/content/gnews/14/README.md)
  ` MG FARM`
 
-### [中共国的高超音速武器比想象中的还要危险](/content/gnews/13/README.md)
+### [中共国的高超音速武器比想象中的还要危险](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [喜交所给地邮件战友可以放心的签署](/content/gnews/14/README.md)
+### [喜交所给地邮件战友可以放心的签署](/content/gnews/16/README.md)
  ` MG FARM`
 
-### [现在我们赢来了中国人最好的机会](/content/gnews/15/README.md)
+### [现在我们赢来了中国人最好的机会](/content/gnews/17/README.md)
  ` MG FARM`
 
-### [《渥太华公民》：大量证据表明中共干预了加拿大的选举](/content/gnews/16/README.md)
+### [《渥太华公民》：大量证据表明中共干预了加拿大的选举](/content/gnews/18/README.md)
  ` HimalayaRussia`
 
-### [12/1/2021 文贵直播：江家控制了近三分之一的比特币，孟控制了火币、海外黑帮、贩毒和贩卖人口，他们认为习就是个傻子](/content/gnews/17/README.md)
+### [12/1/2021 文贵直播：江家控制了近三分之一的比特币，孟控制了火币、海外黑帮、贩毒和贩卖人口，他们认为习就是个傻子](/content/gnews/19/README.md)
  ` 秘密翻译组-北美组`
 
-### [联邦法官打击拜登的疫苗任务，发布全国范围内的禁止令](/content/gnews/18/README.md)
+### [联邦法官打击拜登的疫苗任务，发布全国范围内的禁止令](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [人类的历史改变都是因为某一个人](/content/gnews/19/README.md)
+### [人类的历史改变都是因为某一个人](/content/gnews/21/README.md)
  ` MG FARM`
 
-### [12/1/2021 文贵直播：习近平给中国人和全世界带来的巨大灾难背后的关键人物就是王岐山和孟建柱](/content/gnews/20/README.md)
+### [12/1/2021 文贵直播：习近平给中国人和全世界带来的巨大灾难背后的关键人物就是王岐山和孟建柱](/content/gnews/22/README.md)
  ` 秘密翻译组-北美组`
 
-### [12/1/2021 文贵直播：孟建柱的政治智慧和曾庆红齐名，他俩是身体最好的老杂毛](/content/gnews/21/README.md)
+### [12/1/2021 文贵直播：孟建柱的政治智慧和曾庆红齐名，他俩是身体最好的老杂毛](/content/gnews/23/README.md)
  ` 秘密翻译组-北美组`
 
-### [12/1/2021 文贵直播：新中国联邦提供的青蒿素、伊维菌素等解药将治愈病毒感染和疫苗副作用](/content/gnews/22/README.md)
+### [12/1/2021 文贵直播：新中国联邦提供的青蒿素、伊维菌素等解药将治愈病毒感染和疫苗副作用](/content/gnews/24/README.md)
  ` 秘密翻译组-北美组`
 
-### [12/1/2021 文贵直播：孟建柱建立了横跨欧亚大陆的隐形王国并控制了当地的人口贩卖、毒品走私和洗黑钱](/content/gnews/23/README.md)
+### [12/1/2021 文贵直播：孟建柱建立了横跨欧亚大陆的隐形王国并控制了当地的人口贩卖、毒品走私和洗黑钱](/content/gnews/25/README.md)
  ` 秘密翻译组-北美组`
 
-### [联邦法官阻止密苏里州和其他9个州对医护人员实施拜登的强制疫苗接种令](/content/gnews/24/README.md)
+### [联邦法官阻止密苏里州和其他9个州对医护人员实施拜登的强制疫苗接种令](/content/gnews/26/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [曾经出色的运动员被疫苗毁灭了健康](/content/gnews/25/README.md)
+### [曾经出色的运动员被疫苗毁灭了健康](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [面对中共病毒，伊维菌素的神奇效果](/content/gnews/26/README.md)
+### [面对中共病毒，伊维菌素的神奇效果](/content/gnews/28/README.md)
  ` 温哥华扬帆农场`
 
-### [欧盟公布“全球门户”计划抗衡中共“一带一路”倡议](/content/gnews/27/README.md)
+### [欧盟公布“全球门户”计划抗衡中共“一带一路”倡议](/content/gnews/29/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [不反习，是为了让他帮我们灭共](/content/gnews/28/README.md)
+### [不反习，是为了让他帮我们灭共](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [触发西方经济崩溃的节点](/content/gnews/29/README.md)
+### [触发西方经济崩溃的节点](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [郭文贵先生的三个绝密信息告诉人们，不要活在共产党的虚伪环境下](/content/gnews/30/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [11/28/2021 文貴直播：(粤语)所謂從南非出來的新病毒變種只在打了兩針疫苗的人之間傳播](/content/gnews/31/README.md)
- ` 秘密翻译组-北美组`
 
 ### [纽约拉比法庭禁止儿童、青少年和年轻人接种新冠疫苗](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`

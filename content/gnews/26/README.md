@@ -2,58 +2,56 @@
 ---
 
 
-## 面对中共病毒，伊维菌素的神奇效果
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1714342/)
+## 联邦法官阻止密苏里州和其他9个州对医护人员实施拜登的强制疫苗接种令
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1714354/)
 
-作者： 加拿大温哥华扬帆农场 Michael.Tonny
-![](https://assets.gnews.org/wp-content/uploads/2021/11/michael-3-1.jpg)
-美国广播网络主持人Wayne Allyn Root在节目中说，几周前他第一次感染了中共病毒（Covid-19），但在服用伊维菌素和大量维生素24小时后，症状完全消失，他甚至从未错过一天的工作就彻底恢复了。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/ivermectin-pack.jpg)
-Wayne Allyn Root，是美国广播网络（USA Radio Networks）在每天晚上美东时间6 点至晚上9点播出的全美联合“Wayne Allyn Root：Raw & Unfiltered”和“WAR RAW”节目主持人，被称为“保守派勇士。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/wayne-allen-root.png)
-Wayne讲述了他几周前第一次感染了中共病毒经历。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/120114-1.jpg)图片：来自网络
+来自《新闻领袖》2021年11月29日报道
 
-在感染中共病毒的第一天，表现出了明显的感染中共病毒的每一个症状：发烧、发冷、咳嗽得很厉害，肺部有粘液，身体的每一块肌肉都非常疼痛，极度疲惫，失去了味觉。为了确定是否真的感染，他进行了两次CCP病毒测试，结果两次检测呈阳性。
+**摘要翻译：**
 
-于是，他服用了伊维菌素和大量维生素C（包括静脉注射维生素C），D3、锌、槲皮素、硒、赖氨酸、褪黑激素、大蒜、液态银和益生菌（Ivermectin and mega doses of Vitamin C, D3, zinc, quercetin, selenium, lysine, melatonin, garlic, liquid silver① and probiotics.）
+周一，一名法官阻止联邦政府强制要求密苏里州和其他九个州的医护人员接种新冠病毒疫苗。
 
-从那时起24 小时内，CCP病毒症状消失了。Wayne认为，是伊维菌素让CCP病毒变成了轻微的普通感冒，让他在感染CCP病毒后的发作变得如此温和，以至于从未错过一天的工作，在感染CCP病毒期间还能一直主持他的每天3小时全国广播节目，甚至没有人注意到他生病了。
+密苏里州东区的美国地方法官马修·斯凯普(Matthew Schelp)在他的裁决中写道，本月早些时候医疗保险和医疗补助中心颁布的规定发布不当。斯凯普写道，该机构没有获得国会批准为医护人员接种疫苗，他认为鉴于该授权具有“巨大的经济和政治意义”，阻止颁布的规定是必要的。这些规则的发布也没有标准的公众评论期，斯凯普表示该机构的理由不合适。
 
-现在，Wayne早就已经完全康复了。就在上周，他和在内华达州许多共和党组织的董事会任职的妻子举办了盛大的婚礼。
+斯凯普在裁决中写道“确实，这项强制令的影响远远超出了新冠病毒”，“管理系统试图通过前所未有的要求来超越传统的国家权威领域，以联邦政府决定数百万美国人的私人医疗决定，这种行动挑战了传统的联邦制观念。”
 
-Wayne用他的亲身经历告诉人们，伊维菌素便宜，有效，没有副作用，可以拯救经济，可以挽救数百万个工作岗位，可以节省数万亿美元的工作、疫苗、住院和死亡成本。伊维菌素和维生素将危险、致命、经济封锁、终生戴口罩、接种疫苗或死亡的CCP病毒感染变成了轻微的普通感冒而已。
+斯凯普还称这项命令是“任意和反复无常的”，认为管理系统“缺乏证据表明疫苗接种状况对所覆盖的医疗机构中的冠状病毒传播有直接影响”，该机构在其辩护中主要指出了来自长期护理机构的数据。他写道：“没有人质疑保护患者和医护人员免于感染冠状病毒是一项值得称赞的目标。”“但法院不能真诚地允许管理系统制定一项史无前例的授权，该授权缺乏‘发现的事实与做出的选择之间的合理联系。’”
 
-事实上，伊维菌素在面对CCP病毒时，早就展现了药到病除的神奇效果。
+管理系统发言人周一晚间表示，该机构了解法院的决定并正在审查该裁决。发言人说：“对卫生保健工作者的强制接种令解决了未接种疫苗的医护人员对患者安全的风险，并在全国卫生保健系统中提供了稳定性和统一性。任何医疗机构中未接种疫苗的工作人员都会对患者安全和人口健康构成直接和间接威胁。”
 
-印度使用伊维菌素的北方邦（Uttar Pradesh）和拒绝使用伊维菌素，只相信疫苗的喀拉拉邦（Kerala）的中共病毒感染人数、死亡人数对比非常具有说服力。
+密苏里州总检察长埃里克施密特与内布拉斯加州、阿肯色州、堪萨斯州、爱荷华州、怀俄明州、阿拉斯加州、南达科他州、北达科他州和新罕布什尔州一起领导了这起诉讼。斯凯普的命令阻止联邦政府要求这些州的人员接种疫苗。
 
-拥有2.425亿人口的印度北方邦在今年5月4日前一段时间，每日新增确诊感染人数达3万人以上。
+竞选美国参议院的共和党人施密特称，这项裁决是“密苏里州和全国各地的医疗保健工作者的巨大胜利，其中包括因这项任务而面临几乎一定倒闭的偏远地区的医院。”施密特一直是拜登政府疫苗命令的最强烈的州级反对者之一，他还起诉阻止对大型私营企业、联邦雇员和承包商的强制。这两项授权都在几个法院进行诉讼，拜登政府的疫苗强制令目前被阻止。
 
-自今年5月4日起，北方邦开始向每个家庭发放了价值2.65美元的伊维菌素套件包，每个家用套件包含以下内容：扑热息痛片[泰诺]、维生素C、多种维生素、锌、维生素 D3、伊维菌素12毫克[数量#10片]、多西环素100毫克[数量 #10 片]。其他非药物组件包括口罩、消毒剂、手套和酒精湿巾、数字温度计和脉搏血氧仪（Vitamin C, Multivitamin, Zinc, Vitamin D3, Ivermectin 12 mg [quantity #10 tablets], Doxycycline 100 mg [quantity #10 tablets]. Other non-medication components included face masks, sanitizer, gloves and alcohol wipes, a digital thermometer, and a pulse oximeter.）。
+由于今年早些时候发布的内部要求，密苏里州最大的几个医疗保健提供者的许多员工几乎都接种了新冠疫苗。Mercy拥有40,000名员工，在全州设有设施，10月28日表示，100%的员工都接种了疫苗。总部位于斯普林菲尔德的CoxHealth在9月底表示，其12,500名员工中有85%至少接种了一剂或延长接种疫苗。不到2%的CoxHealth员工没有接种疫苗，大约50名CoxHealth员工因强制接种而辞职。
 
-自从发放伊维菌素套件包后，北方邦（Uttar Pradesh）每日新增病例迅速下降，自今年6月起，每日新增感染人数降到几百人。目前，北方邦每日新增感染人数甚至不足10人，总确诊数为171万人，6月1日后新增病例仅20389人，7月1日到现在，总共死亡334人。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/百万人感染率对比.jpg)
-而仅有3533万人口的喀拉拉邦（Kerala）由于拒绝使用伊维菌素，要求民众接种疫苗，每日新增感染人数一直在上升，目前日均确诊人数在5000人左右，总共已经到514.7万人，6月1日后新增病例仅263.2万人，7月1日到现在，总共死亡27422人，是北方邦的82倍。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/感染中共病毒死亡人数对比.jpg)
-7月1日后，Kerala 新增感染人数为223.6712人，Uttar Pradesh新增感染人数为4454人。如果换算成百万人数据对比，Kerala百万人新增确诊人数是Uttar Pradesh的3447倍，Kerala百万人死亡人数是Uttar Pradesh的564倍。
+根据医疗保险和医疗补助中心汇编的数据，密苏里州在养老院工作人员接种新冠疫苗的百分比在全国排名最后，为58.77%。
 
-伊维菌素，消灭中共病毒有神奇功效的药物！
+**简评：**
 
-注释
+现在，一些共和党领导的州正在率先抵制（毒）疫苗强制令，并通过立法禁止它们。因拒绝接种疫苗而辞职或被解雇的人，提供失业福利。佛罗里达州于11月19日批准了一项法案，将失业援助扩大到“无苗族”，作为禁止中共疫苗强制令的立法方案的一部分。罗恩·德桑蒂斯州长(Ron DeSantis) 在最近的一份声明中说：“任何人都不应该因中共病毒的强硬命令而失业，我们有责任保护佛罗里达州人民的生计。”
 
-①   liquid silver，也叫納米銀離子水，英文Nanosilver Water或Colloidal Silver Water，有人称它可以治百病，連糖尿病、癌症，艾滋病都能治，但也有资料认为，大量服用有危险性。
+中共的极权野心加速了人类世界迅即置入独裁化管理。各国政府应对病毒的方式整齐划一，漠视病毒起源，强制人民施打疫苗。这说明了它们在执行早已拟定好的“人类削减计划”。
 
-参考资料：
+新闻链接：[Federal judge blocks Biden vaccine mandate for health care workers in Missouri, 9 other states](https://eu.news-leader.com/story/news/politics/2021/11/29/vaccine-mandate-health-care-workers-missouri-blocked-judge-eric-schmitt-lawsuit/8795957002/)
 
-[WAYNE ROOT: How I Beat Covid in 48 Hours with Ivermectin – Just Like Joe Rogan and NFL Quarterback Aaron Rodgers](https://www.thegatewaypundit.com/2021/12/wayne-root-beat-covid-48-hours-ivermectin-just-like-joe-rogan-nfl-quarterback-aaron-rodgers/)
+*编辑: 希望*
 
-[USA Radio Networks](https://usaradio.com/)
+*校对: clau*
 
-[The Wayne Allyn Root Show](http://usaradio.com/show/wayne-allyn-root-show/?_ga=2.249050695.1998581165.1638364573-1178434969.1634361006)
+* * *
 
-[India’s Ivermectin Blackout – Part V: The Secret Revealed](https://www.thedesertreview.com/opinion/columnists/indias-ivermectin-blackout---part-v-the-secret-revealed/article_9a37d9a8-1fb2-11ec-a94b-47343582647b.html)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-编辑：Michael.Tonny 上传：Michael.Tonny
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 
