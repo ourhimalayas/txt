@@ -2,35 +2,24 @@
 ---
 
 
-## 路透社主席是辉瑞的投资者和董事会成员
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1713594/)
+## 活在文字狱的当下
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1713753/)
 
-编译：西班牙巴塞罗那喜悦农场-wenwu
+作者：东京樱花团｜阿恩
+![](https://lh4.googleusercontent.com/hDgvrRm76fu79yL_g9bQYy58wrJEv2PMZfX8vdR7j9rlRtWJCf-TGbbxPX8jQ16SjiVQJuxJozvHTvhkQKcjmyOTvTfcPROzbSxuIbrN2CN-5MLofnjtlpY-NmAgoxvScqQmkZhp)[*图片来源*](https://www.inmediahk.net/files/styles/w775/public/column_images/newnewdontdelete-%E5%B7%B2%E4%BF%AE%E5%BE%A9-%E5%B7%B2%E4%BF%AE%E5%BE%A9-%E5%B7%B2%E4%BF%AE%E5%BE%A9-%E5%B7%B2%E4%BF%AE%E5%BE%A9_5.png?itok=pUxtJBm_)
+网络科技日新月异，社交平台创造了无国界的交流网络，这个没有年龄身份界别的虚拟空间本可以畅所欲言，但遗憾的是，网络世界也被国际黑暗势力所控制，尤其是以中共为代表的邪恶政权，很早就在国内建立了网络防火墙，阻止同胞了解国际状况和反馈国情，网络言论审查成为言论自由的枷锁，同胞们在社交平台上揭露的真相、发表的不满，瞬间就被删除或屏蔽，留下的只有与中共管制理念一致的评论。中国人民在中共媒体粉饰的虚假信息中被愚弄了七十余年，曾有踏足美帝国主义的友人发自肺腑的感叹：原来中国人民才是生活在水生火热之中。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/unknown-1.png)图片来源：thenationalpulse.com
+香港曾是一个被内地同胞羡慕的地方，一次性拥有“中国梦”的繁荣、富裕、民主、自由、法治，这些宝贵的资产由港英政府和香港人民经过百余年的共同努力而促成，而如今这些珍宝落入中共魔爪，首先被碾碎了它最惧怕的“人权”。国安恶法成为万能武器，将任何言语、行为、心思、意念等方面有异议的香港人定罪，法院审理政治犯的案件堆积如山，审理日期不断延期，许多人羁押待审超过一年。现在每日都有人被捕羁押，每天都有人被定罪判囚，以言入罪在现在的香港已经成为惯例，民主自由法治的灯塔已经被中共熄灭。越来越浓的黑暗笼罩着香港，社运活动销声匿迹，国际援助日渐无力，个人信息被社交平台出卖，言论被网络平台严格监管，连监狱中遥遥无期被羁押着的民主斗士们也看不到希望……
 
-路透社的主席和前首席执行官（CEO）–詹姆斯·C.史密斯（James C. Smith）–是制药巨头辉瑞公司的头号投资者和[董事会成员](https://www.pfizer.com/people/leadership/board-of-directors/james_smith)。 他在2014年当选为辉瑞公司董事会成员，并加入了辉瑞公司的公司治理和科技[委员会](https://www.pfizer.com/news/press-release/press-release-detail/james_c_smith_elected_to_pfizer_s_board_of_directors)。这一消息引发了严重的利益冲突问题，因为路透社等企业媒体继续宣传辉瑞公司的产品，维护制药公司免受批评，并采取行动压制怀疑者。
+一位六旬长者因为在社交平台上，就港警受伤发表感言而被控“煽惑袭警罪”，该长者拒不认罪，今日被法官判罪成囚7個月，老人家为捍卫言论自由无惧失去人身自由。邪恶的政权可以剥夺人物理上的自由，却无法掠夺心灵上的自由，只要还能发声就绝不虚做无声，只要还有气息就绝不停止持守信心，等到拯救来临的时候就可以坦然无惧地面对上帝说：“当跑的路我已经跑尽了。” （[提摩太后书 4章7~8节](https://www.biblegateway.com/passage/?search=%E6%8F%90%20%E6%91%A9%20%E5%A4%AA%20%E5%BE%8C%20%E6%9B%B8%204%3A7-8&amp;version=CUV)）
 
-史密斯目前仍是汤森路透社基金会（Thomson Reuters Foundation，TRF）的主席，该基金会总部位于法国伦敦，以向数十亿读者提供新闻和信息而闻名。从 2012 年到 2020 年退休期间，他还是路透社的总裁、首席执行官和董事会成员。
+无论中共将抗争者如何抹黑魔化，无论媒体如何渲染，无论有多少港人被迫认罪伏法，感恩香港人没有一天停止过抗争，相信上帝的拯救总会来到，黑暗的持续是要给所有人机会，警醒更多的人回转到上帝带领的大军中，好在毁灭邪恶中共政权的顷刻不会带走太多无辜的人。
 
-他从 1987 年开始在汤森路透社基金会工作，当时他们被称为汤森报业集团（Thomson Newspaper group）。他还担任过专业部门的首席执行官，负责监管法律、税务和会计，以及知识产权和科学业务。后来，他又继续领导该新闻机构的北美业务。
+资料来源：[**六旬汉涉FB煽惑袭警罪成囚7个月  官：社交媒体如病毒散播快、刺激极端份子**](https://www.inmediahk.net/node/%E7%A4%BE%E9%81%8B/%E5%85%AD%E6%97%AC%E6%BC%A2%E6%B6%89fb%E7%85%BD%E6%83%91%E8%A5%B2%E8%AD%A6%E7%BD%AA%E6%88%90%E5%9B%9A7%E5%80%8B%E6%9C%88-%E5%AE%98%EF%BC%9A%E7%A4%BE%E4%BA%A4%E5%AA%92%E9%AB%94%E5%A6%82%E7%97%85%E6%AF%92%E6%95%A3%E6%92%AD%E5%BF%AB%E3%80%81%E5%88%BA%E6%BF%80%E6%A5%B5%E7%AB%AF%E4%BB%BD%E5%AD%90)
 
-在当时的一份官方声明中，辉瑞公司董事长兼首席执行官伊恩·里德 (Ian Read) 表示：“我们很高兴吉姆·史密斯（Jim Smith，可能是昵称）加入辉瑞董事会。他为辉瑞董事会带来了领导力、运营和国际业务经验，并将成为辉瑞公司的一项卓越资产。Jim 加入我们的董事会有助于确保辉瑞将继续受益于广泛而多样的经验。”
-
-仅在2021年，路透社就发表了[2.2万多篇](https://www.reuters.com/search/news?sortBy=&amp;dateRange=&amp;blob=pfizer)提及辉瑞公司的文章。路透社仅发表了[8191 篇](https://www.reuters.com/search/news?sortBy=&amp;dateRange=&amp;blob=moderna)与 Moderna 相关的文章，以及[1.8万](https://www.reuters.com/search/news?blob=j%26j&amp;sortBy=relevance&amp;dateRange=all)[篇](https://www.reuters.com/search/news?sortBy=&amp;dateRange=&amp;blob=moderna)与强生相关的[文章](https://www.reuters.com/search/news?sortBy=&amp;dateRange=&amp;blob=moderna)。许多关于强生公司的文章都是负面新闻，与史密斯的辉瑞公司报道完全不同。
-
-史密斯还与[世界经济论坛 (WEF) 有联系](https://www.weforum.org/agenda/authors/jim-smith)，在那里他是合作反腐败倡议（Partnering Against Corruption Initiative）的董事会成员。他还是世界经济论坛的英美商业（British American Business）和大西洋理事会（Atlantic Council）的国际商业咨询委员会（International Business Advisory）的成员。
-
-据《[华尔街日报》报道](https://www.wsj.com/market-data/quotes/PFE/company-people/executive-profile/10163688)，史密斯还担任 Refinitiv Transaction Services, Ltd 总裁兼首席执行官一职，该公司拥有[62.5 亿美元](https://www.refinitiv.com/en/about-us)的收入，在 190 个国家/地区拥有4万多名客户和40万名终端用户。在2018 年之前，Refinitiv 一直是汤森路透社集团（TRF）[的成员](https://thenationalpulse.com/Users/smyth/Downloads/rtsl-2019-remuneration-disclosure-01072020.pdf)。
-
-**新闻来源：**[thenationalpulse.com] [CONFLICT: Reuters Chairman is Pfizer Investor and Board Member.](https://thenationalpulse.com/news/conflict-reuters-chairman-is-pfizer-investor-and-board-member/) | 发布时间：2021年12月01日
-
-* * *
-
-*发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-1.jpeg)
-
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
