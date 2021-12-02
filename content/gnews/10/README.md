@@ -2,38 +2,41 @@
 ---
 
 
-## 日本前总理警告说：“入侵台湾将是中共国经济的自杀行为”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1714593/)
+## 数百人聚集在地下“禁忌式”新冠科学会议
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1714641/)
 
-编译：蚂蚁兄弟
+作者：Tamara Ugolini
+翻译：HimaSally
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-3.jpg)图片来源：Reuters/Jason Lee
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-20.png)
 
-在台湾的军事行动将是中共国的经济自杀行为。这是日本前首相安倍晋三对台湾地区潜在冲突的警告，这也将会对“世界经济造成严重损害”。尽管去年9月他因健康原因不得不离职，但这位前保守派领导人仍然是执政党的副手，是日本国家政治格局中极具影响力的人物。中共国迅速作出回应，将“粉碎”那些“主张恢复军国主义”或“挑战中共国人民的红线”的人。
+我最近参加了在大多伦多地区一个未公开地点举行的私人小组成员讨论会议。场地、所有开会者和组成小组的学者的隐私都得到了维护，因此我无法为您带来活动的全部内容。相反，我依靠各种演讲中的一些主题和观众的反馈，在疯狂的世界中为您带来一线希望。
 
-“任何人都不应该低估中共国维护其主权和领土完整的决心和能力。谁敢回到军国主义，谁敢挑战中共国人民的红线，谁就会被击垮”，中国外交部发言人王文彬周三在台湾智库国家政策研究会的一个虚拟论坛上发言时，回应安倍的讲话时说。
+所有开会者都被要求关闭 GPS，将手机置于飞行模式或完全关闭。在活动之前、期间或之后，不得在社交媒体上发帖。便衣警察和私人保安确保了在场人员的人身安全。这一切具有批判性的限制就是模拟我们在2021 年加拿大的生活现实。
 
-这位日本前首相的讲话是在台湾海峡紧张局势加剧的背景下发表的。“一旦台湾出现紧急情况，这也意味着日本以及日美联盟出现紧急情况。北京，特别是习近平，在对这一点的理解上绝不应该被混淆”，安倍晋三在论坛演讲中说。
+总的来说，该活动是关于质疑并倡导身体主权和免受未经同意的医疗权利。其目的还在于进行面对面的实时、不戴面具且不保持社交距离的联系。以向其他人表明，他们并不是唯一一个质疑政府对“大流行”的反应的人，而这种反应只是还没有叠加起来。
 
-“日本、台湾和我们所有相信民主的人需要敦促习近平和中共领导人不要走错路”，这位日本历史上任期最长的前首相（2012-2020年）说，他至今仍然被视为日本执政党的关键人物之一。
+讨论的主题包括对社交媒体上的错误法律建议和法律术语剖析，向与会者提供循证信息的医疗专业人员，以及因“不合规”而失业的前线工作人员和学者的个人账户不明不白地进账和违宪的授权，加拿大公共卫生局如何完全忽视疫情数据透明的辩论。
 
-据中共国发言人说，安倍的言论已经“违反了国际关系的基本准则”，北京已向日本提出正式申诉以示抗议。
+很明显，我们不会改变或服从未经我们同意且强加给我们的“新常态”，所以会议室里的人正在把权力掌握在自己的手中。他们重新团结以摆脱这种怪诞的混乱局面以一种包容的方式，而不使用冒险的、实验性的、仓促的药物。基于证据并通过辩论共享公开透明的信息。
 
-中共国强烈批评安倍在其任期内是导致日本陷入第二次世界大战的军国主义的支持者，特别是他对靖国神社的访问，该神社纪念19世纪末至1945年期间所有的日本战死者。
+来源：[https://www.rebelnews.com/hundreds\_gather\_for\_underground\_prohibition\_style\_covid\_science\_conference](https://www.rebelnews.com/hundreds_gather_for_underground_prohibition_style_covid_science_conference)
 
-在周三的演讲中，安倍晋三还回顾了由东京管理但却被北京声称拥有的尖阁群岛。（北京称其为钓鱼岛），该岛距离台湾约100公里，以及日本群岛西南部的其他偏远岛屿。日本与美国签订了双边防务条约，而美国则在日本西南部的冲绳，拥有其在太平洋地区最大的军事基地。
+（文章仅代表作者个人观点）
 
-华盛顿与台湾的关系模棱两可。美国在1979年与台湾断绝了官方外交关系，转而支持北京，然而美国继续与台湾保持非正式关系，并向台湾当局出售军事设施，并批准了《与台湾关系法》。虽然华盛顿目前在国防事务上帮助台湾，但并没有界定美国是否会在中共国可能对台湾进行攻击时采取必要的干预措施。
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-**参考资料：**[elconfidencial][“Invadir Taiwán sería el suicidio económico de China”, avisa el ex primer ministro japonés](https://www.elconfidencial.com/mundo/2021-12-01/invadir-taiwan-seria-el-suicidio-economico-de-china-avisa-el-ex-primer-ministro-japones_3334132/)
+**关注我们**
 
-* * *
+Discord 账号
 
-*审核：Aries的星
-校对：信心满满
-发布：信心的选择*
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3.jpeg)
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

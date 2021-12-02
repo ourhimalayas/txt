@@ -2,32 +2,40 @@
 ---
 
 
-## 七哥的袖扣
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1714571/)
+## 突发：CNN无限期暂停克里斯·库莫的职务
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1714636/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+翻译：**Lulumi**
 
-这个袖扣就是干这个的，后来我知道这个袖扣被他们广泛的用在了澳门。
-因为澳门的叠马仔还有发牌的人是要戴，你看都要戴袖扣的，很多人戴的，特别是VVIP厅，就是这个袖扣，就是录像手段之一。最重要的事情，这个袖扣带着，后面带着的时候，有人看牌，就能把别人的牌传到那个监控室去，那个是能够大赢的，那想赢你啥就是啥！这个扣子用途很多，大家不要想着这个镜头是一直晃的，你记住，这个袖扣戴上的时候，有的人手在这一放，他就这么一搁，他就不用动，而且是超稳定的那种镜头，高清的，在当时就很高清了，你知道吗。噢，很厉害，今天给你们解密它是监控镜头。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-4-1.jpg)美联社资料照
 
-校对：HimaFaFA
-发布：HimaBoy
+美国有线电视新闻网（CNN）刚刚宣布，他们已经无限期地暂停了饱受丑闻困扰的主持人克里斯·库莫的职务。这一决定是在该网络因没有对库莫采取更迅速的行动而面临激烈的审查之后作出的。
 
-[![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)](https://www.gettr.com/user/7UPgogo)
+法庭文件显示，这位左翼新闻主播在很大程度上参与了帮助他的兄弟——前纽约州长安德鲁·库莫掩盖性行为不当的指控。
 
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+“纽约总检察长办公室周一公布了记录和证据，对克里斯·库莫参与他哥哥的辩护有了新的认识，”CNN发言人周二晚间说。“这些文件在公开发布之前我们并不了解，它们提出了严重的问题。”“当克里斯向我们承认他曾向他哥哥的工作人员提供建议时，他违反了我们的规定，我们公开承认了这一点，”该发言人继续说。“但我们也赞赏他所处的独特地位，并理解他需要把家庭放在第一位，工作放在第二位。”
 
-**关注我们**
+“然而，这些文件表明，他弟弟的参与程度比我们以前知道的要高，”发言人补充说。“因此，我们已将克里斯无限期停职，等待进一步评估。”
 
-Discord 账号
+有线电视新闻网的工作人员要求解雇库莫。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+“他怎么还能在电视台有工作？他不是一个记者，”一位工作人员告诉《纽约邮报》。
 
-Gettr 账号
+“‘库莫黄金时间’的收视率是迄今为止最低的。观众们不再信任他了。他在CNN的统治必须结束。”
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+另一位说：“克里斯·库莫启用了一个性侵者，纽约州的前州长。他需要立即辞职，或者CNN必须解雇他。”
+
+“克里斯·库莫有任何新闻操守吗？没有。”
+
+**参考资料：**[toddstarnes][BREAKING: CNN Suspends Chris Cuomo Indefinitely](https://www.toddstarnes.com/media/breaking-cnn-suspends-chris-cuomo-indefinitely/)
+
+* * *
+
+*审核：文乐
+校对：阿伯塔*
+*发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3.jpeg)
 
  
 

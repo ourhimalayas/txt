@@ -2,21 +2,28 @@
 ---
 
 
-## 全世界所有现代化的科技产品几乎都是美国创造出来的
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1714182/)
+## GTV新闻访谈简报|2021年12月2日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1714241/)
 
-文编：东京樱花团/樱花传媒
+![](https://assets.gnews.org/wp-content/uploads/2021/12/LOGO-1.jpg)
 
-视频:东京樱花团/中文小视频组
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_.png)
+文章仅代表作者本人观点，与Gnews无关
 
-11月24日，郭文贵先生在GTV大直播指出：
+视频参看：[2021.12.02早GTV新闻访谈](https://gtv.org/video/id=61a8ca14d6388d550414ae22)
 
-全球66%-72%的现代化科技产品是美国生产的，美国的信息、科技、生物制药、医药、重工业等，随便一样拿出来都是半个中国对外的产值。全人类所有大公司，包括北朝鲜在越南挂着日本牌子的企业，几乎都是由美国基金控制。中共所有的股票，所有的房地产，都是假的，比冥币还不值钱。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/rili.png)
 
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
