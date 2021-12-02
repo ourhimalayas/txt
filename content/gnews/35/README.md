@@ -2,35 +2,38 @@
 ---
 
 
-## 中国梦孩子的噩梦，鹿道森自曝遭霸凌后失联身亡遗书惹全网泪崩
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1713858/)
+## 疫苗引发心脏病的研究结果被掩盖
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1713984/)
 
-撰稿/配图：东京樱花团/ Ob
-![](https://assets.gnews.org/wp-content/uploads/2021/12/4.png)
-看中国2021年12月2日讯，中共国网红摄影师鹿道森（本名：周鹏）日前在微博自曝遭校园霸凌、得不到父母关爱后失联。
+作者：香草山健身部 – 童谣
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间11月30日，英国著名心脏病专家阿希姆-马贺拉爆料称，根据一位英国著名机构的研究人员向他提供的消息显示，该机构拒绝公布心脏疾病与新冠疫苗之间关联的研究结果，其原因在于，他们担心失去研究经费。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/9-1.jpg)
+最近发表在美国心脏协会科学会议上的一项研究表明，在新冠疫苗的接种者中，他们患有急性冠状动脉综合征的风险显著增加，其中，接受辉瑞和莫德纳新冠疫苗的民众患心脏疾病的风险从11%增加到了25%。
 
-11月28日是鹿道森的生日，他在微博写下疑似「遗书」的内容「无需为他立碑，只愿玫瑰年年为他盛放」，并发表长文表示「这是最后一次这么介绍自己了」，文中透露他从小就受到霸凌，因为礼貌又乖巧，加上看起来像女孩，因此在学校被霸凌、语言暴力、被欺负等。之后就失联，朋友看了非常担心，动用各种管道寻人。
+有消息媒体称，而自新冠疫苗上市以来，英国因心脏疾病死亡的人数大幅增加，在那些所谓“值得信赖的专家”忙于掩盖他们发现的疫苗严重危险性时，辉瑞公司正在以每秒1000美元的盈利大赚特赚。
 
-他坦言自己的死和任何人无关，也不想去怪别人，他也不是想哭诉自己多不容易或多难，只是想更多人知道「爱，永远是最重要的」。而因为鹿道森连日来不仅退租房子，还把摄影器材送人，并打包行李寄回家，让朋友都担心他有轻生倾向，因此赶紧报警。
+参考链接：
+[Leading Cardiologist Says Researchers Are Refusing to Publish Supporting Study Results That Show Covid Vaccine’s Link To Massive Increase In Heart Attacks](https://www.thegatewaypundit.com/2021/11/ready-must-watch-leading-cardiologist-says-researchers-refusing-publish-supporting-study-results-show-covid-vaccines-link-massive-increase-heart-attacks-afraid/)
 
-鹿道森是一名独立摄影师，身高176公分的他身形清瘦，戴眼镜、染一头金发，平时在上海、杭州街案拍摄模特儿，作品格独特，还曾被时尚杂志VOGUE收录。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-鹿道森遗书背后是多少大陆孩子的真实现状。“农村，留守儿童，山区孩子，校园霸凌经历者，摄影创作人，独居青年，追梦的人”，这是鹿道森遗书中对自己的介绍。“语言暴力，被排挤，被欺负，让下跪，被威胁，拦着路不让你走，一群人欺负你”，这是鹿道森年少时的经历。
+总编/编辑：Ivy001
+校正/发稿：Fei797
 
-“请停止校园暴力吧！”“当人们已经麻木到，大家都是这样过来的时候，这个世界或许已经无药可救了！”这是鹿道森对社会的呼吁。
+**更多资讯，更多关注**
 
-鹿道森的遗书，这背后反映着多少中共国式家庭和学校教育的真实。这样的真实，孩子往往是不愿意和家长沟通的，只因为说了可能也没用，甚至是结果更坏。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-很早之前，大家就在呼吁关注孩子的心理健康，让校园暴力不在出现。但是现在的家长对孩子的教育，很多时候还停留在知识层面，其它的完全可以忽视不管，甚至退居二线。
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-中国梦孩子的噩梦，一个靠做梦维系国家运转的国度，到处只能是恶梦。幻画的大饼，不曾兑现过，也从来没想去兑现，只不过是流氓政客的春秋笔法，巧妙地掩饰其流氓意图。你给他讲人性他给你讲制度，你给他讲科学他给你讲资格，你给他讲道理他给你讲法律，你给他讲法律，他给你讲政治，你给他讲政治，他给你耍流氓。社会方方面面的每一个节点，都被他们战略性地流氓控制着。学校是社会的一个缩影，被社会深深地控制和影响着。他们的目的就是控制，操弄一切，让一切处于痛苦不堪之中以便于他们统治和利用。
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-消息来源：[鹿道森自曝遭霸凌后失联身亡 遗书惹全网泪崩(图)](https://m.secretchina.com/news/gb/2021/12/02/991157.html)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.png)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

@@ -2,26 +2,42 @@
 ---
 
 
-## 日本高知县公开报道疫苗死亡案例 网友为媒体态度点赞
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1713902/)
+## 墙内疫情反弹 中共禁止冬奥会运动员入京
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1714012/)
 
-撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/4.jpg)
-图片来自报道截图
+作者：东京樱花团 – 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间12月1日，据中共媒体消息显示，过去一天中，中共国内新增113宗新冠确诊病例，其中91宗属本土个案，且相关病例皆分布在内蒙古呼伦贝尔市。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/8-2.jpg)
+对此，有报道提及，即使2022冬奥会举办在即，但中共仍然禁止前来参赛的外国运动员入京——他们目前暂时在张家口待命。
 
-12月2日，日本高知电视台报道，该县没有确认新的中共病毒感染病例。这是连续第20天没有确诊病例。另一方面，县政府宣布，上个月该县的一名男子在接种疫苗后死亡。
+有墙内民众称，中共为确保冬奥会如期举行，采取了更加严酷的防疫措施。据悉，北京的居民离京容易返京难：民众从外地回京前要先去社区报备并出示48小时内新冠病毒阴性检测证明和北京健康码。同时，北京居民小区的物业会挨家挨户敲门询问住户是否接种了新冠疫苗。更甚者，中共定义下“中度风险地区”的往来包裹也被禁止进京。
 
-据该县政府称，上个月，该县一名50多岁的男子在接种了辉瑞公司的疫苗后死亡。疫苗接种与死亡之间的因果关系尚不清楚。这名男子在10月底接种了第二剂疫苗，三天后死亡。目前还不知道该男子是否有任何潜在疾病。截至上月底，该县因接种疫苗而死亡的总人数达到 15 人。
+评论人士对此表示，中共为了疫情防护毫不顾忌墙内民众的感受，动辄强行隔离和封锁。也有民众抱怨道，在冬天寒冷的北方，自疫情爆发后，中共的政策就是封区、封门、管控和限制，给老百姓的生产和生活带来了巨大的不便。
 
-男子接种疫苗死亡的信息一个月后才报出，虽然晚了，但高知电视台的勇气还是值得肯定的。这条报道的下方，网友留言写道，“高知县能如实报道疫苗接种后的死亡情况，是正确报道应有的作派”。关于此条留言，截至笔者发此稿，共有3211人点赞。着实令人欣慰。媒体的客观性是民众觉醒的催化剂。日本民众也开始意识到了中共疫苗的骗局。
+参考链接：
+[中国113宗新确诊病例九成本土   冬奥会运动员北京外围等候](https://www.rfa.org/mandarin/yataibaodao/huanjing/ql1201a-12012021050446.html)
 
-信息来源：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-[未确认新冠感染 1人接种疫苗后死亡](https://news.yahoo.co.jp/articles/2734f1af8e6034831137f0babdfc39bc90e634ee)
+总编：文特
+编辑：Kathy文艺
+校正/发稿：Fei797
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
 
 
  
