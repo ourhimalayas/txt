@@ -2,159 +2,47 @@
 ---
 
 
-## 中共释放新一轮病毒的真实意图
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1711913/)
+## 拜拉姆博士公开反对政府滥用快速抗原检测
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1711932/)
 
-[https://gtv.org/video/id=61a7076f3ff6481adce6ded3](https://gtv.org/video/id=61a7076f3ff6481adce6ded3)
+作者：Tamara Ugolini
+翻译：HimaCoby
 
-实际上习的思维
-En realidad, el pensamiento de Xi
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-9.png)
 
-我知道它共产党包括这些
-Sé que el PCCh incluye estos
+几个周末前，免疫学教授拜拉姆·布里德尔博士向大约 800 人发表了演讲。作为一名免疫学家和疫苗开发人员，拜拉姆博士避开了更为常见的关于新型 mRNA 技术带来的风险以及持续完全无视自然免疫的演讲; 而是选择强调对无症状者进行强制检测和以健康为名义的荒谬做法。
 
-很清楚他这个战略要干嘛
-Sé claramente que está haciendo con esta estrategia
+拜拉姆博士着重指出，“一个快速新冠抗原筛查不用于诊断新冠，这不同于新冠测试。”
 
-把这一波（病毒）再撂向美国、欧洲
-Envía esta ola (virus) a Estados Unidos y Europa
+尽管安大略省卫生部自己的文件指出，“制造商的说明提到这些测试可用于诊断有症状的新冠患者”，但该省仅继续实施无症状测试。在同一份文件的第 17 页上，有一份应该接受检测的人名单，其中包括“没有症状；未接种疫苗；没有与患有新冠的人接触”等。
 
-让你经济供应链断掉
-Haciendo que tu cadena de suministro económico se corte
+购物者药店提供雅培潘比奥快速抗原检测试剂盒，其产品专论明确指出，“阴性结果不能排除新冠感染，它们不能用作治疗或其他管理决策的唯一依据。”
 
-让你们活在恐惧之中
-Hacer que vivan en el temor
+$40一次的测试，拜拉姆重点介绍了对最低工资的人是如何的负担不起。产品本身强调“阴性结果不能排除新冠感染，也不能用作治疗或其他管理决策的唯一依据。”
 
-特别是让你们内乱
-Especialmente provocarles conflicto interno
+为了试图理解为什么政府会强制要求超出其循证使用范围的东西，拜拉姆博士说这些人一定停止了他们大脑的逻辑和推理部分。
 
-他关键要制造内部的局部的动乱和国家内部动乱
-Su clave es crear disturbios locales y disturbios internos dentro del país
+不科学的、狭隘局限的方法仍在继续。
 
-然后呢 意在台湾
-Y luego, la intención está en Taiwán
+来源：https://www.rebelnews.com/mixed\_messages\_dr\_byram\_bridle\_speaks\_out\_against\_government\_misuse\_of\_rapid\_antigen\_testing
 
-为啥我说他一定十月到十二月份来放这个毒呢
-¿Por qué digo que seguramente de octubre a diciembre soltará este virus?
+（文章仅代表作者个人观点）
 
-放这个毒
-El propósito de propagar este virus
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-第一、 以毒威胁你参不参加奥运会
-Primero, amenazarte con este virus para ver si participas en los Juegos Olímpicos
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)](https://www.gettr.com/user/7UPgogo)
 
-我有解药
-Yo tengo el antídoto
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-以解药要挟你 来吧
-Amenazarte con el antídoto, ¡venga!
+**关注我们**
 
-第二
-Segundo
+Discord 账号
 
-我既然有解药让你来参加奥运会
-Ya que tengo el antídoto para que vengas a participar en los Juegos Olímpicos
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-我也有解药能帮你未来
-También tengo el antídoto para tu futuro
+Gettr 账号
 
-我要打台湾
-Yo voy a atacar Taiwán
-
-一切的一切都是要打台湾
-Todo por atacar a Taiwán
-
-你看俄罗斯这个对乌克兰的动作
-Mira los movimientos de Rusia hacia Ucrania
-
-我啥时候说的
-¿Cuándo fue que lo dije?
-
-看看我去年爆料 我说过两三次
-Vaya a ver mi manifestación del año pasado, lo dije 2 a 3 veces
-
-俄罗斯的哥们给我打电话
-Un amigo ruso me hizo una llamada
-
-文贵最好别提到我们老大 就是普京
-“Wengui, mejor no menciones a nuestro boss” quiere decir Putín
-
-也别提我们
-Tampoco nos menciones
-
-我很好的这位女朋友
-Una muy buena amiga
-
-她在北京常住
-Ella vive en Beijing la mayoría del tiempo
-
-是普京的好姐妹吧 咱就这么说
-Digamos que es una buena hermana de Putín
-
-一定我说过
-Yo seguro dije que
-
-共产党对台湾的动作
-El PCCh habrá movimiento hacia Taiwán
-
-一定跟俄罗斯和乌克兰同时动作
-Y seguro será al mismo tiempo que Rusia hacia Ucrania
-
-我去取乌克兰 你取你的台湾
-Yo tomo mi Ucrania, tu tomas tu Taiwán
-
-美国没有任何情况
-Estados Unidos no habrá ninguna situación
-
-没有任何可能同时打两场战争
-No habrá ninguna posibilidad de tomar 2 guerras al mismo tiempo
-
-也不可能同时对中俄开战
-Y tampoco es posible abrir fuego hacia China y Rusia al mismo tiempo
-
-这是绝对的 这个是真的
-Esto en lo absoluto es verdadero
-
-所以不存在任何其他
-Por eso no existe otra cosa
-
-一切为了台湾和中俄是协调行动
-Todo esto es por Taiwán y por coordinar acciones de Rusia y China
-
-局部的动乱
-Causar disturbios locales
-
-然后掩盖他的真实行动
-Y omitir su verdadera acción
-
-然后继续放毒
-Luego seguir soltando virus
-
-而且我告诉你解药管用
-Además, te digo que el antídoto si funciona
-
-谢谢舒先生（舒屏风）
-Gracias Sr. Shu (Shu Pingfeng)
-
-**原视频网址：**[https://gettr.com/post/pi9b9ucbe8](https://gettr.com/post/pi9b9ucbe8)
-
-日期：11/30/2021
-原视频标题：中共释放新一轮病毒的真实意图
-La verdadera intención del PCCh de soltar el nuevo virus原视频日期：11/29/2021
-原视频网址：https://gettr.com/post/pi9b9ucbe8
-任务编号：3058
-视频时间段：0:00-1:46
-
-西听校：洛杉矶盘古农场- 小文萱
-翻译：洛杉矶盘古农场- 霙霙（文霙）
-翻译终校：洛杉矶盘古农场- 小文萱
-字幕+视频制作：洛杉矶盘古农场 -青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

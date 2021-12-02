@@ -2,66 +2,159 @@
 ---
 
 
-## 泄露的文件显示，习近平及中共高官与镇压维吾尔族有关
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1711884/)
+## 中共释放新一轮病毒的真实意图
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1711913/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/120108.jpg)图片：来自BBC
-一份新泄露的绝密文件显示，中共国国家主席习近平和其他共产党官员与针对维吾尔族穆斯林的暴行直接相关。
+[https://gtv.org/video/id=61a7076f3ff6481adce6ded3](https://gtv.org/video/id=61a7076f3ff6481adce6ded3)
 
-分析人士说，这批文件似乎是习近平、中共国总理李克强和其他官员的讲话稿，这些讲话，直接导致了针对维吾尔族人建立再教育营、强迫绝育和强迫劳动力转移。
+实际上习的思维
+En realidad, el pensamiento de Xi
 
-这是首次将习近平与西方政府提到的中共国西部新疆地区的“种族灭绝”直接联系起来，也被认为是首次有“最高机密”的共产党文件被泄露。
+我知道它共产党包括这些
+Sé que el PCCh incluye estos
 
-这些文件长达317页，首先被提交给目前正在伦敦进行中的维吾尔族法庭，然后被转交给由德国学者郑国恩（Adrian Zenz）领导的专家小组进行分析。
+很清楚他这个战略要干嘛
+Sé claramente que está haciendo con esta estrategia
 
-郑国恩博士阐述了习近平、李克强和其他官员在2013年和2014年中共国发生恐怖袭击后的讲话（这些袭击被归咎于维吾尔族分离主义分子），如何导致建立了一个现在压制和迫害新疆穆斯林的政权。
+把这一波（病毒）再撂向美国、欧洲
+Envía esta ola (virus) a Estados Unidos y Europa
 
-他的分析详细说明了习近平和其他人的讲话，后来是如何被那些壮大和执行该政权的人引用（有时是逐字逐句）的。
+让你经济供应链断掉
+Haciendo que tu cadena de suministro económico se corte
 
-在一个例子中，他指出习近平在2014年袭击事件发生后的一次讲话中宣布“该抓的人就抓，该判的人就判”。
+让你们活在恐惧之中
+Hacer que vivan en el temor
 
-随后，监督新疆维吾尔族镇压工作的中共官员陈全国，也使用了非常类似的言语，他在2017年发表的一篇臭名昭著的讲话中说，“该围捕的都围捕”。
+特别是让你们内乱
+Especialmente provocarles conflicto interno
 
-陈权国的讲话是在围捕维吾尔族人，并将他们关进强制“再教育”营的背景下发表的。
+他关键要制造内部的局部的动乱和国家内部动乱
+Su clave es crear disturbios locales y disturbios internos dentro del país
 
-在另一次讲话中，习近平称宗教极端主义是一种“毒药”，必须用“药”来纠正，以“扶正祛邪”。
+然后呢 意在台湾
+Y luego, la intención está en Taiwán
 
-2017年，一个“再教育营”的工作报告在评估其工作目标时，使用了完全相同的短语-“扶正祛邪”。
+为啥我说他一定十月到十二月份来放这个毒呢
+¿Por qué digo que seguramente de octubre a diciembre soltará este virus?
 
-习近平在2014年的讲话，似乎也引发了针对新疆维吾尔族妇女的强制绝育和节育运动，此前他曾表示“人口比例和人口安全是长期和平与稳定的重要基础”。
+放这个毒
+El propósito de propagar este virus
 
-2020年7月，一位新疆高级官员逐字逐句地引用了这句话，并以此来论证新疆的汉族人口“太少”。
+第一、 以毒威胁你参不参加奥运会
+Primero, amenazarte con este virus para ver si participas en los Juegos Olímpicos
 
-习近平还表示，计划生育政策应“对所有民族一视同仁”，这句话后来被新疆卫计委作为其既定目标，同时试图降低维吾尔族人口的生育率。
+我有解药
+Yo tengo el antídoto
 
-其它讲话还将习近平的思想及政策联系起来。如：强迫维吾尔人迁移工作、强迫儿童上汉族寄宿学校、压制婚礼等宗教仪式，以及强迫汉族和维吾尔族家庭合并。
+以解药要挟你 来吧
+Amenazarte con el antídoto, ¡venga!
 
-郑写道：“档案显示，习近平、李克强总理和另一位前中央政府官员，直接和间接地要求制定政策，然后加以实施。”
+第二
+Segundo
 
-**简评：**
+我既然有解药让你来参加奥运会
+Ya que tengo el antídoto para que vengas a participar en los Juegos Olímpicos
 
-过去几年，中共政府数度撒泼打滚的“驳斥”国际媒体对新疆人权迫害情势的相关报导。美国前国务卿蓬佩奥于其任期最后一日发布认定，中共国在新疆对维吾尔族及其他穆斯林少数民族犯下种族清洗与反人类罪。29日公布的最新新疆机密文件不仅证实了这一认定的准确性，更直接指明，包含中共国国家主席习近平在内的多名共产党高层与中共政府，过去几年在新疆迫害维吾尔人与其他少数民族的行动有直接关系。
+我也有解药能帮你未来
+También tengo el antídoto para tu futuro
 
-根据国际公约的定义，种族清洗（或译为种族灭绝）是指“蓄意全部或局部消灭某一民族、人种、种族或宗教团体”。美国认定中共在新疆的作为是“种族清洗”，是目前国际社会对新疆问题的最强硬的表态。中共绝密情报包含高层官员的讲话泄露，表明了中共领导层对新疆种族灭绝的直接责任，为消灭中国共产党及向其领导层追责提供了有力的证据。
+我要打台湾
+Yo voy a atacar Taiwán
 
-原文链接：[Leaked documents ‘link President Xi and senior Chinese officials to crackdown on Uyghur Muslims’](https://www.dailymail.co.uk/news/article-10258395/Chinas-Uyghurs-Leak-links-Xi-Jinping-crackdown-Muslims.html)
+一切的一切都是要打台湾
+Todo por atacar a Taiwán
 
-*翻译/简评：Ying2064*
+你看俄罗斯这个对乌克兰的动作
+Mira los movimientos de Rusia hacia Ucrania
 
-*校对: Julia Win*
+我啥时候说的
+¿Cuándo fue que lo dije?
 
-* * *
+看看我去年爆料 我说过两三次
+Vaya a ver mi manifestación del año pasado, lo dije 2 a 3 veces
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+俄罗斯的哥们给我打电话
+Un amigo ruso me hizo una llamada
 
+文贵最好别提到我们老大 就是普京
+“Wengui, mejor no menciones a nuestro boss” quiere decir Putín
 
-编辑：【英国伦敦喜庄园编辑部】
+也别提我们
+Tampoco nos menciones
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+我很好的这位女朋友
+Una muy buena amiga
 
+她在北京常住
+Ella vive en Beijing la mayoría del tiempo
 
+是普京的好姐妹吧 咱就这么说
+Digamos que es una buena hermana de Putín
+
+一定我说过
+Yo seguro dije que
+
+共产党对台湾的动作
+El PCCh habrá movimiento hacia Taiwán
+
+一定跟俄罗斯和乌克兰同时动作
+Y seguro será al mismo tiempo que Rusia hacia Ucrania
+
+我去取乌克兰 你取你的台湾
+Yo tomo mi Ucrania, tu tomas tu Taiwán
+
+美国没有任何情况
+Estados Unidos no habrá ninguna situación
+
+没有任何可能同时打两场战争
+No habrá ninguna posibilidad de tomar 2 guerras al mismo tiempo
+
+也不可能同时对中俄开战
+Y tampoco es posible abrir fuego hacia China y Rusia al mismo tiempo
+
+这是绝对的 这个是真的
+Esto en lo absoluto es verdadero
+
+所以不存在任何其他
+Por eso no existe otra cosa
+
+一切为了台湾和中俄是协调行动
+Todo esto es por Taiwán y por coordinar acciones de Rusia y China
+
+局部的动乱
+Causar disturbios locales
+
+然后掩盖他的真实行动
+Y omitir su verdadera acción
+
+然后继续放毒
+Luego seguir soltando virus
+
+而且我告诉你解药管用
+Además, te digo que el antídoto si funciona
+
+谢谢舒先生（舒屏风）
+Gracias Sr. Shu (Shu Pingfeng)
+
+**原视频网址：**[https://gettr.com/post/pi9b9ucbe8](https://gettr.com/post/pi9b9ucbe8)
+
+日期：11/30/2021
+原视频标题：中共释放新一轮病毒的真实意图
+La verdadera intención del PCCh de soltar el nuevo virus原视频日期：11/29/2021
+原视频网址：https://gettr.com/post/pi9b9ucbe8
+任务编号：3058
+视频时间段：0:00-1:46
+
+西听校：洛杉矶盘古农场- 小文萱
+翻译：洛杉矶盘古农场- 霙霙（文霙）
+翻译终校：洛杉矶盘古农场- 小文萱
+字幕+视频制作：洛杉矶盘古农场 -青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
