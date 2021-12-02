@@ -2,35 +2,39 @@
 ---
 
 
-## 有声|中共收买世界主流媒体 无视阿富汗人道危机
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1713947/)
+## 疫苗引发心脏病的研究结果被掩盖
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1713984/)
 
-配音：香草山香港部 – 文凯琳
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-近期郭文贵先生多次在直播中爆料，中共没有能力支持塔利班的粮食和能源需求，阿富汗的人道危机会持续恶化。塔利班领导人每天多次强奸幼女、残害妇女，滥杀无辜。阿富汗粮食和能源短缺正在加剧，导致平民大量死亡。
+作者：香草山健身部 – 童谣
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间11月30日，英国著名心脏病专家阿希姆-马贺拉爆料称，根据一位英国著名机构的研究人员向他提供的消息显示，该机构拒绝公布心脏疾病与新冠疫苗之间关联的研究结果，其原因在于，他们担心失去研究经费。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/9-1.jpg)
+最近发表在美国心脏协会科学会议上的一项研究表明，在新冠疫苗的接种者中，他们患有急性冠状动脉综合征的风险显著增加，其中，接受辉瑞和莫德纳新冠疫苗的民众患心脏疾病的风险从11%增加到了25%。
 
-郭先生在11月17日直播中揭示，阿富汗至少有几万人死亡，在以后的80天，预计还有80-100万人死去。预计今年在阿富汗会有两千三百万人会挨冻挨饿，甚至100-300百万人被饿死。
+有消息媒体称，而自新冠疫苗上市以来，英国因心脏疾病死亡的人数大幅增加，在那些所谓“值得信赖的专家”忙于掩盖他们发现的疫苗严重危险性时，辉瑞公司正在以每秒1000美元的盈利大赚特赚。
 
-在11月28日，郭先生再次透露，阿富汗死亡平民已达十几万人，2300-2500万人处于饥饿中。阿富汗已经出现了用处女换粮食的现象，“人吃人”的惨剧也一定会发生。
-
-中共以及其扶植的塔利班势力是导致阿富汗人道危机的根源。但是全世界的主流媒体被邪恶势力收买和控制，漠视塔利班政权的腐败残暴，集体噤声阿富汗人道危机。
-
-
-
-文字版原文：[中共收买世界主流媒体 无视阿富汗人道危机](https://gnews.org/zh-hans/1708855/)
-
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
+参考链接：
+[Leading Cardiologist Says Researchers Are Refusing to Publish Supporting Study Results That Show Covid Vaccine’s Link To Massive Increase In Heart Attacks](https://www.thegatewaypundit.com/2021/11/ready-must-watch-leading-cardiologist-says-researchers-refusing-publish-supporting-study-results-show-covid-vaccines-link-massive-increase-heart-attacks-afraid/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
+总编/编辑：Ivy001
+校正/发稿：Fei797
+
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

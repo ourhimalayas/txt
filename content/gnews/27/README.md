@@ -2,38 +2,24 @@
 ---
 
 
-## 疫苗引发心脏病的研究结果被掩盖
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1713984/)
+## 中共在美国新一轮放毒正式开始
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1714027/)
 
-作者：香草山健身部 – 童谣
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月30日，英国著名心脏病专家阿希姆-马贺拉爆料称，根据一位英国著名机构的研究人员向他提供的消息显示，该机构拒绝公布心脏疾病与新冠疫苗之间关联的研究结果，其原因在于，他们担心失去研究经费。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/9-1.jpg)
-最近发表在美国心脏协会科学会议上的一项研究表明，在新冠疫苗的接种者中，他们患有急性冠状动脉综合征的风险显著增加，其中，接受辉瑞和莫德纳新冠疫苗的民众患心脏疾病的风险从11%增加到了25%。
+素材 / 作者：波士顿五月花 文雀
+![](https://assets.gnews.org/wp-content/uploads/2021/12/20211202-1.jpg)
+12月1日美国CDC政府网站公告，CDC在美国加利福尼亚州检测到第一个已知的 Omicron Covid 变体病例。该人被报道是一名最近从南非返回的旅行者，已接种疫苗且仅出现轻微症状。
 
-有消息媒体称，而自新冠疫苗上市以来，英国因心脏疾病死亡的人数大幅增加，在那些所谓“值得信赖的专家”忙于掩盖他们发现的疫苗严重危险性时，辉瑞公司正在以每秒1000美元的盈利大赚特赚。
+相信在此之前，中共变种病毒已经在美国西部蔓延，不过这也是为了推行施打中共毒疫苗加强针。
 
-参考链接：
-[Leading Cardiologist Says Researchers Are Refusing to Publish Supporting Study Results That Show Covid Vaccine’s Link To Massive Increase In Heart Attacks](https://www.thegatewaypundit.com/2021/11/ready-must-watch-leading-cardiologist-says-researchers-refusing-publish-supporting-study-results-show-covid-vaccines-link-massive-increase-heart-attacks-afraid/)
+参考链接：[First Confirmed Case of Omicron Variant Detected in the United States](https://www.cdc.gov/media/releases/2021/s1201-omicron-variant.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+* * *
 
-总编/编辑：Ivy001
-校正/发稿：Fei797
+*编辑：文合*
 
-**更多资讯，更多关注**
+*封面：霹雳鼠年*
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+*发布：吐纳*
 
  
 

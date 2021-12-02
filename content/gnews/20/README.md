@@ -2,32 +2,34 @@
 ---
 
 
-## 中共借外媒喉舌遭暴被踢——美国（原脸书）删除中共假外国专家账号
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1714125/)
+## CNN将克里斯-库莫无限期停职
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1714152/)
 
-撰稿：东京樱花团/风翼
-![](https://assets.gnews.org/wp-content/uploads/2021/12/5.jpg)
-[图片来源](https://japanese.engadget.com/meta-facebook-185351672.html)
+作者：纽约香草山农场 007
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月30日的消息显示，CNN黄金时段主持人克里斯-库莫目前已被停职。据法庭文件表明，克里斯-库莫曾积极参与帮助他的兄长、前纽约州州长安德鲁-库莫掩盖对其性侵的指控。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-02-下午10.53.55.png)
+资料提及，安德鲁-库莫曾任纽约州州长10年，是美国任期最长的州长之一，但在今年8月，他因性骚扰丑闻而辞职。
 
-总部位于美国的Meta（原脸书）周四表示，它已经删除了旗下社交网络脸书和其他网站上的，被认为是中共国正在利用这些账户操纵有关中共病毒信息的账户。这些报道包含一位虚构的瑞士生物学家的说法，其目的是，阻挠美国对中共病毒起源的调查研究。
+CNN则在11月30日的一份声明中表示，在为兄长辩护时，克里斯-库莫发挥了超乎想象的作用。证据显示，克里斯-库莫曾极力追踪新闻机构未发表的对安德鲁指控的文章，用以为安德鲁的性侵案辩护做准备。
 
-根据Meta（原脸书）汇编的一份报告中表示，中共的目标是美国和英国的英语使用者，以及台湾、香港和西藏的中文使用者，但他们操纵信息的企图“基本上没有成功”。
+对此，参议员玛莎-布莱克本表示，库莫黑手党家族不惜一切代价压制和恐吓试图说出真相的相关人员，其中，克里斯-库莫更是一个伪装成记者的政治活动家，他早应被停职。
 
-7月，中共国国家媒体报道了一位自称“威尔逊-爱德华兹”的瑞士生物学家对美国进行干预的一系列理论。然而，当瑞士驻北京大使馆评论说瑞士公民没有发现这样的人时，几家中共国报纸取消了“爱德华先生”的文章和声明。
+参考链接：[BREAKING: CNN suspends Chris Cuomo indefinitely after revelations he used job to help his brother](https://thepostmillennial.com/breaking-cnn-suspends-chris-cuomo-indefinitely-after-revelations-he-used-position-to-help-his-brother?utm_campaign=64474)
 
-而Meta（原脸书）公司于8月首次删除了“爱德华兹先生”的账户，此后对该案进行了调查，结果对524个脸书账户和20页照片共享应用程序上的20个页面、4个群组和86个账户以及相关内容进行了删除。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-该公司人员告诉路透社，我们已经找到这些活动与中共有关的证据，包括与某些特定的中共国企和世界各地关于基础建设的中共国企相关的人。对于指出的司瑞静（音）信息技术公司的网站，介绍说该公司是一家网络和信息安全公司，为中共国公安部和其他部门提供服务。而对于以上相关内容，中共国外交部和中共中央网络安全和信息化委员会办公室没有作出回应。
+总编：飞虹
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-中共大外宣每年1000亿美元维稳费的30%-40%用于国外的各种利益贿赂，达到掩盖和封嘴等目的。随着中共病毒真相、独裁、反人类的各种行为被世界越来越多的人所了解，与中共相关利益的企业和人都会受到严厉的法律制裁，而作为各种犯罪行为的始俑者中共还能存活下去吗？大家心知肚明。
-
-信息来源：[米メタ、新型コロナ巡る中国の情報操作に関係したＳＮＳアカウント削除](https://jp.reuters.com/article/facebook-china-idJPKBN2IG58I)
-
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.png)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

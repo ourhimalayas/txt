@@ -2,28 +2,21 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月2日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1714241/)
+## 触发西方经济崩溃的节点
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1714271/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/LOGO-1.jpg)
+文编：东京樱花团/樱花传媒
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_.png)
-文章仅代表作者本人观点，与Gnews无关
+视频:东京樱花团/中文小视频组
 
-视频参看：[2021.12.02早GTV新闻访谈](https://gtv.org/video/id=61a8ca14d6388d550414ae22)
+11月28日，郭文贵先生在GTV大直播指出：
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+西方社会如果超市供应不良，汽油价格高涨，股票市场暴涨暴跌，就意味着经济崩溃和社会混乱。但当前世界面临着共产主义和资本主义的大绞斗，及人为的病毒和疫苗灾难，因此这次经济危机的恢复期会超过一般的三到八年。战友们要想渡过危机，除了综合储备之外，一定要多交朋友，相信农场，互帮互救。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/rili.png)
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.png)
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
