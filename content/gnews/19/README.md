@@ -2,47 +2,43 @@
 ---
 
 
-## 近日落马的中共高官（二）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1713797/)
+## 意大利政府警告欧洲各地面临停电风险
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1713938/)
 
-**整理编辑：Kelly**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/IMG_0909.jpg)
-**往期回顾**：
-[近日落马的中共高官（一）](https://gnews.org/zh-hans/1670954/)
+作者：纽约香草山农场 – 007
 
-中共11月8日召开的六中全会，是习近平权力达到顶峰的标志。习正式与毛、邓并列，成了中共有史以来第三个最“伟大”的领袖。 在11月12日的大直播中，郭文贵先生说：“习大神，他要不继续干十年，不搞这三个核心、与毛、邓、江并列，咱上哪儿找这样一位加速师，天助我们新中国联邦。”习大神要搞“家天下”，要永远护着自己的龙椅，让他成了共产党内部唯一的公敌。就如同文化大革命的后期毛泽东与刘少奇、林彪的内斗一样，共产党内部的绞杀愈演愈烈必将带来无数腥风血雨。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-随着中共六中全会结束，一波又一波中共高官落马的消息都会频频出现在媒体上。
+当地时间11月30日，意大利经济发展部部长在罗马发表讲话称，鉴于当前欧洲的能源供应体系，眼下不能排除在欧洲各地发生停电的可能性。对此，意大利总理马里奥·德拉吉也重申，政府要准备好应对能源价格飙升给消费者带来的影响。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/7-1.jpg)
+据了解，欧洲各地近期推行新冠疫苗强制接种政策，但这也让该地区的新冠疫情变得愈加严重，从而导致欧洲的电价突破了历史高峰。为此，意大利生态转型部部长称，在明年3月份以前，意大利需要懂得随机应变，从而能够应对各类紧急情况，这也适用于整个欧洲。
 
-**中共国 人民法院报12月2日报道：**
+而对于欧洲政府的担忧，爆料革命发起人郭文贵先生早先也发布预警表示，新冠疫苗是中共和黑暗力量合谋的结果，疫苗带来的供应链断裂以及金融崩溃等次生灾难的惨烈程度将超出想象。郭先生多次呼吁全球，千万不要打疫苗，但是一定要做好应对停电、停水等危机的充分准备。
 
-新疆生产建设兵团原副司令员，党委原常委、政法委原书记杨富林严重违纪被开除党籍，并进行立案审查调查。
+参考链接：
+[意大利警告欧洲面临停电风险，郭先生预报应验太早了](https://gettr.com/post/pibdkr56bd)
 
-河南省委原常委、政法委原书记甘荣坤严重违纪被开除党籍公职，中央纪委国家监委对其进行立案审查调查。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-**中共国 人民法院报12月1日报道：**
+总编：飞虹
+编辑：Kathy文艺
+校正/发稿：Fei797
 
-江苏省委原副书记张敬华涉嫌严重违纪违法，正接受中央纪委国家监委纪律审查和监察调查。
+**更多资讯，更多关注**
 
-**中共国 人民法院报11月29日报道：**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-江西省人大常委会副主任龚建华涉嫌严重违纪违法，主动投案，正接受中央纪委国家监委纪律审查和监察调查。
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-**中共国 人民法院报11月18日报道：**
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-内蒙古自治区司法厅原委书记、厅长郝泽君严重违纪违法被开除党籍公职，正接受内蒙古自治区纪委监委的纪律立案审查调查。
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-**中共国 人民法院报11月13日报道：**
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-江西省政协原副主席肖毅严重违纪违法被开除党籍公职，正接受中央纪委国家监委纪律审查和监察调查。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
-发布：Janek
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,23 +2,16 @@
 ---
 
 
-## 一贯体育为政治服务的中共说WTA利用体育达到政治目的
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1713735/)
+## 罗杰-霍德金森博士指出关于大流行的所有都是谎言
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1713895/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-15.png)
-（图片源自本文链接）
+制作：peacelv
 
-12月2日，时事通信社转载法新社报道称：中共国外交部周三对女子网球协会（WTA）宣布“因担心35岁的中共国选手彭帅的安全而取消在中共国的所有比赛”做出反应，称其“利用体育达到政治目的”。
+罗杰-霍德金森博士本质地指出病毒及疫苗是现代政府制造的悲剧，关于这场大流行，基本上都是谎言。而福奇则是病毒的创造者，不应让人们通过打疫苗来为他的罪买单。坚决不打疫苗。
 
-当被问及WTA的这一决定时，中共国外交部发言人汪文斌向记者做了简短的回复。他说：“我们坚决反对利用体育进行政治活动。”
+发稿：信心的选择
 
-信息来源：[中国、WTAの大会中止決定に反発 「スポーツを政治的に利用」](https://news.yahoo.co.jp/articles/af3d1e6a7859a6fdc401aff9de2d669d742f3c34)
-
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.png)
-
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3.jpeg)
 
  
 
