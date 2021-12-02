@@ -2,32 +2,36 @@
 ---
 
 
-## 中共借外媒喉舌遭暴被踢——美国（原脸书）删除中共假外国专家账号
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1714125/)
+## 港股跌至年内新低，中共经济难以为继
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1714151/)
 
-撰稿：东京樱花团/风翼
-![](https://assets.gnews.org/wp-content/uploads/2021/12/5.jpg)
-[图片来源](https://japanese.engadget.com/meta-facebook-185351672.html)
+作者：纽约香草山教育部- Noemi
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间11月30日，据有关媒体消息称，香港股市当日再度大跌，恒生指数一度跌逾600点，创14个月内的新低。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-02-下午10.53.43.png)
+对于港股的后续走势，香港金融界专家一致表示悲观，他们建议股民，一定要做好“且战且退”的准备。而相关人士也分析称，港股持续下跌源于深层次的结构性问题，且未来整体市场依旧会呈下跌趋势。该人士预计，香港经济最终恐怕会出现如同日本一般的经济迷茫时期。
 
-总部位于美国的Meta（原脸书）周四表示，它已经删除了旗下社交网络脸书和其他网站上的，被认为是中共国正在利用这些账户操纵有关中共病毒信息的账户。这些报道包含一位虚构的瑞士生物学家的说法，其目的是，阻挠美国对中共病毒起源的调查研究。
+该分析人士还表示，香港股市是中共国内唯一与美元直接挂钩的股票市场，因此，港股暴跌实际上是中共国经济的真实写照。分析人士提到，目前，中共的房地产泡沫已经达到了随时可能破灭的极限，同时，中共国长期依赖密集型加工业的“血汗经济”也在中共不断放毒和管制中难以为继。而对于港股的未来，业内人士甚至高呼：“港股已死”。
 
-根据Meta（原脸书）汇编的一份报告中表示，中共的目标是美国和英国的英语使用者，以及台湾、香港和西藏的中文使用者，但他们操纵信息的企图“基本上没有成功”。
+对此，文贵先生早在直播中指出，香港股市的溃败预示着中共经济崩溃在即。
 
-7月，中共国国家媒体报道了一位自称“威尔逊-爱德华兹”的瑞士生物学家对美国进行干预的一系列理论。然而，当瑞士驻北京大使馆评论说瑞士公民没有发现这样的人时，几家中共国报纸取消了“爱德华先生”的文章和声明。
+参考链接：
+1）[股匯雙殺！恒指破底港匯2年低　羅家聰:再跌空間細但恐陷日本翻版](https://www.hk01.com/%E8%B2%A1%E7%B6%93%E5%BF%AB%E8%A8%8A/706786/%E8%82%A1%E5%8C%AF%E9%9B%99%E6%AE%BA-%E6%81%92%E6%8C%87%E7%A0%B4%E5%BA%95%E6%B8%AF%E5%8C%AF2%E5%B9%B4%E4%BD%8E-%E7%BE%85%E5%AE%B6%E8%81%B0-%E5%86%8D%E8%B7%8C%E7%A9%BA%E9%96%93%E7%B4%B0%E4%BD%86%E6%81%90%E9%99%B7%E6%97%A5%E6%9C%AC%E7%BF%BB%E7%89%88)
+2）[https://www.gettr.com/post/pi9zewcfed](https://www.gettr.com/post/pi9zewcfed)
 
-而Meta（原脸书）公司于8月首次删除了“爱德华兹先生”的账户，此后对该案进行了调查，结果对524个脸书账户和20页照片共享应用程序上的20个页面、4个群组和86个账户以及相关内容进行了删除。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-该公司人员告诉路透社，我们已经找到这些活动与中共有关的证据，包括与某些特定的中共国企和世界各地关于基础建设的中共国企相关的人。对于指出的司瑞静（音）信息技术公司的网站，介绍说该公司是一家网络和信息安全公司，为中共国公安部和其他部门提供服务。而对于以上相关内容，中共国外交部和中共中央网络安全和信息化委员会办公室没有作出回应。
+总编：文特
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-中共大外宣每年1000亿美元维稳费的30%-40%用于国外的各种利益贿赂，达到掩盖和封嘴等目的。随着中共病毒真相、独裁、反人类的各种行为被世界越来越多的人所了解，与中共相关利益的企业和人都会受到严厉的法律制裁，而作为各种犯罪行为的始俑者中共还能存活下去吗？大家心知肚明。
-
-信息来源：[米メタ、新型コロナ巡る中国の情報操作に関係したＳＮＳアカウント削除](https://jp.reuters.com/article/facebook-china-idJPKBN2IG58I)
-
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.png)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

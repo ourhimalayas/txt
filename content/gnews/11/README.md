@@ -2,49 +2,23 @@
 ---
 
 
-## 美国海军司令呼吁在太平洋地区增派航母
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1714164/)
+## 【粤语配音】2021年12月1日：青蒿素既能解病毒也能解疫苗
+` MOS香港部` [轉載自GNews](https://gnews.org/zh-hans/1714196/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+纽约香草山-香港部
 
+一星期前，我们的欧洲科学家说，如果这次的病毒有两个特征，这人类真的是完了，第一个特征，这次如果共产党放病毒的话，传染率、致死率高、染上就死，或者说就是所谓的天花病毒
+传染率高、伤残率高，但是不死，这两种病毒对人类都是巨大的威胁。
 
+这个Omicron出来以后，他说:真是天意，这回的放毒应该是广东帮干的，不是北方人干的
+北方人下手都比较狠，这个毒方放完以后呢，很有可能帮助人类彻底消灭这场病毒，这个病毒会使人的传染致死率并不高，致残率不高，说这个毒的活性很高，容易传染，但是对人类的这两样没做到，他说：实际是好事，甚至把人类的病毒从地球上消失。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+人类呀跟这个病毒一旦相适应之后，实际上这个病毒可能会消失的，但是在共产党不再放毒的情况下，这是一个，第二个，现在全世界真的都知道青蒿素管用了，他说：我告诉你，青蒿素绝对是把癌症可以消失了，青蒿素绝对把糖尿病和人类存在的艾滋病，特别是现在受环境污染的脑血栓、心血管病，绝对有巨大的帮助，甚至是彻底消灭，还有青蒿素和伊维菌素连在一起，一定会把这次病毒的给解决了。
 
+他说青蒿素是希望，伊维菌素是希望，氢氯喹+锌绝对是希望，而它不但这个，还能把很多病状消失，他说：最重要的是搞了个叫Omicron，Omicrom这个词儿，实际上是很多国家的语言
+Omicron真的不是好事，实际上是个结束的意思，他说：这都是天意啊，就是结束的意思啊，Omicron就是结束。
 
-
-11月30日，外媒报道，美国海军第7舰队副司令卡尔·托马斯在结束与日、澳、加、德为期10天的海军演习后，呼吁在太平洋地区增加航空母舰，以防止来自中共和俄罗斯的威胁。
-
-本月，美国海军研究所曾透露，中共正在建造美国军舰模型，作为中共解放军新建靶场的射击目标。五角大楼年度报告中提到，中共在2019年底启用了第一艘国产航母，第二艘航母预计将在2024年投入使用。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.3-1.jpg)
-针对来自中共和俄罗斯的威胁，托马斯表示，向更具侵略性和独裁性的国家展示统一战线很重要。 他强调，美国和盟国应该利用联合军事演习来威慑一些国家的侵略行为。
-
-参考链接：
-[US Navy commander calls for more aircraft carriers in Pacific to dissuade China, Russia from conflict](https://thehill.com/policy/defense/navy/583550-us-navy-commander-calls-for-more-aircraft-carriers-in-pacific-to-dissuade?utm_source=ground.news&amp;utm_medium=referral)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
-
-总编：AN
-编辑：文真
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+他说：如果这次共产党弄不了大毒的话，他说：真的是，新中国联邦的解药会拯救全人类，不但解药是解病毒，是解的疫苗，特别记住兄弟姐妹们，印度的青蒿素99.999%是假的，国内的青蒿素绝大多数是黄蒿属，根本不是青蒿素，他说：最好就是美国的，而且青蒿素剂和青蒿素药和青蒿素所谓的保健，完全不是一个概念，但是告诉你七哥，青蒿素真的能把疫苗的事解决了，他们做了N个测试，几乎是100%的成功，100%的成功，
 
  
 

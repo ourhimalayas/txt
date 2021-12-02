@@ -2,28 +2,21 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月2日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1714241/)
+## 郭文贵先生的三个绝密信息告诉人们，不要活在共产党的虚伪环境下
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1714265/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/LOGO-1.jpg)
+文编：东京樱花团/樱花传媒
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_.png)
-文章仅代表作者本人观点，与Gnews无关
+视频:东京樱花团/中文小视频组
 
-视频参看：[2021.12.02早GTV新闻访谈](https://gtv.org/video/id=61a8ca14d6388d550414ae22)
+11月26日，郭文贵先生在GTV大直播指出：
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+无论北京冬奥会成与不成，都不能解决中共日益加剧的经济危机也不能停止内部争斗。日前就冬奥会问题，中共在联合国又得到了一百多个国家的支持。但是我们不要被假象蒙蔽，台湾问题的政治上的外交操作已经耗尽了中共，高层官员很多人都出现了健康问题，封岛演习也证明，中共根本没有可能打赢，因为他们根本不懂打仗。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/rili.png)
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.png)
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

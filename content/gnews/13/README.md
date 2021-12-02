@@ -2,34 +2,52 @@
 ---
 
 
-## CNN将克里斯-库莫无限期停职
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1714152/)
+## 军情六处负责人称中俄、伊朗是英国威胁之首
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1714165/)
 
-作者：纽约香草山农场 007
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月30日的消息显示，CNN黄金时段主持人克里斯-库莫目前已被停职。据法庭文件表明，克里斯-库莫曾积极参与帮助他的兄长、前纽约州州长安德鲁-库莫掩盖对其性侵的指控。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-02-下午10.53.55.png)
-资料提及，安德鲁-库莫曾任纽约州州长10年，是美国任期最长的州长之一，但在今年8月，他因性骚扰丑闻而辞职。
+作者：纽约香草山信息部 – 诺雅
 
-CNN则在11月30日的一份声明中表示，在为兄长辩护时，克里斯-库莫发挥了超乎想象的作用。证据显示，克里斯-库莫曾极力追踪新闻机构未发表的对安德鲁指控的文章，用以为安德鲁的性侵案辩护做准备。
 
-对此，参议员玛莎-布莱克本表示，库莫黑手党家族不惜一切代价压制和恐吓试图说出真相的相关人员，其中，克里斯-库莫更是一个伪装成记者的政治活动家，他早应被停职。
 
-参考链接：[BREAKING: CNN suspends Chris Cuomo indefinitely after revelations he used job to help his brother](https://thepostmillennial.com/breaking-cnn-suspends-chris-cuomo-indefinitely-after-revelations-he-used-position-to-help-his-brother?utm_campaign=64474)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-总编：飞虹
-编辑：Kathy文艺
-校正/发稿：呼吸的雾霾（文小呼吸）
+
+11月30日，在伦敦国际战略研究所发表的首次公开演讲中，英国军情六处处长理查德·摩尔表示，在瞬息万变的世界中，中共国、俄罗斯和伊朗构成了英国面临的三个最大威胁。其中，中共国是军情六处的 “唯一最大优先事项”。
+
+摩尔称中共国价值观不同，是一个专制国家。中共对英国及其盟国进行“大规模的间谍行动”，监视并对华人施加不当影响，利用当地开放社会 “扭曲公共话语和政治决策”，在加强对香港和新疆控制的同时，出口监控技术，在全球范围扩大其 “专制控制网”。他希望其他国家清楚地认识到债务陷阱、数据暴露及政治胁迫导致的问题。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.4-1.jpg)
+摩尔指出，北京日益增长的军事力量和解决所谓台湾问题的愿望，也对全球的稳定与和平构成了严重挑战，但是他们低估了华盛顿的决心。
+
+摩尔对俄罗斯在乌克兰边界附近集结部队的评论，是英国和北约高级官员发出的最新警告，旨在遏制莫斯科的进一步入侵行为。
+
+参考链接：
+1.[\[abc新闻\] 军情6处: 中共成为英国头号威胁! 与007影片中的M不同,代号为C的英国军情六处大佬理查德摩尔称,中国/俄罗斯伊朗在对英国的威胁名单中名列前茅,瞬息万变、动荡不安的世界局势中，这三个国家构成英国面临的三大威胁,而其中中(共)国是该情报机构(M16)的“唯一优先事项”!](https://gettr.com/post/pibdxy5470)
+2. [Human Intelligence in the Digital Age – Speech by Richard Moore, Chief of the UK’s Secret Intelligence Service](https://www.iiss.org/events/2021/11/human-intelligence-digital-age)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+
+总编/编辑：飞虹
+校对/发稿：为真不破20
 
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

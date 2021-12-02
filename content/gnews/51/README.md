@@ -2,22 +2,38 @@
 ---
 
 
-## WTA声明取消在中共国的所有赛事
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1712203/)
+## 喜联储数字银行牌照即将落地
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1712439/)
 
-撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-11.jpg)[图片源](https://news.yahoo.co.jp/articles/071cb8ace0f9a172c21cbe26976af3d6edeb6db9)
-负责女子网球巡回赛的女子网球协会（WTA）1日宣布,取消包括香港在内的在中共国的所有比赛。因为彭帅的人身安全至今尚未确认。首席执行官史蒂夫·西蒙在声明中指出了中共政府进行审查和恐吓的可能性，称球员们“非常担心风险”。
+作者：纽约香草山文艺部 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-34.png)
+12月1日，郭文贵先生在直播中向战友们报告了关于喜马拉雅联储数字银行牌照的好消息。
 
-国际奥委会虽然宣布，巴赫主席已通过视频通话确认了彭帅的安全，但首席执行官西蒙表示，“我严重怀疑她是否真正自由与安全，以及她是否受到了审查、胁迫或威胁”。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide1-1.jpeg)
 
-非常庆幸WTA能站在正义一方，为国际奥委会刚直不阿地上了一堂示范课。
+郭先生透露，喜联储首个数字银行牌照即将在欧洲某国落地，第二个牌照则将通过并购在美国实现。
 
-[信息源](https://news.yahoo.co.jp/articles/8a663efe724e357719407a4a1d727b731f533e1f)
+郭先生提及，世界金融排名前三的欧洲某国曾于三周前致电表示，该国决定给喜联储发放一个数字银行牌照，并将在三周内完成内部审核。目前，该牌照的相关文件已经签署完毕，大约会在四周内走完整个关于牌照的审批流程。
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+郭先生还提到，与喜联储有关的好消息不止如此：喜联储已经基本完成对美国一家数字银行牌照的并购谈判。郭先生表示，此次并购需要11家基金的参与注资并将直接拥有5%至10%的银行股份，其中，也会包括5至7家重大贡献战友持有的基金。
+
+郭先生解释，数字银行牌照是联接数字货币与当地法币的桥梁，持有牌照的数字货币将不再需要使用中转银行。因此，喜联储的数字银行牌照在主权国家落地可谓意义重大，且它的价值无可估量。
+
+参考链接：[2021年12月1日 文贵大直播](https://gtv.org/video/id=61a774e244c1fe7a6c3c9bad)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
+
+总编：Irene木木
+编辑：Ivy001 
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

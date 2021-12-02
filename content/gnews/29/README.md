@@ -2,28 +2,35 @@
 ---
 
 
-## 日本高知县公开报道疫苗死亡案例 网友为媒体态度点赞
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1713902/)
+## 有声|中共收买世界主流媒体 无视阿富汗人道危机
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1713947/)
 
-撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/4.jpg)
-图片来自报道截图
+配音：香草山香港部 – 文凯琳
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+近期郭文贵先生多次在直播中爆料，中共没有能力支持塔利班的粮食和能源需求，阿富汗的人道危机会持续恶化。塔利班领导人每天多次强奸幼女、残害妇女，滥杀无辜。阿富汗粮食和能源短缺正在加剧，导致平民大量死亡。
 
-12月2日，日本高知电视台报道，该县没有确认新的中共病毒感染病例。这是连续第20天没有确诊病例。另一方面，县政府宣布，上个月该县的一名男子在接种疫苗后死亡。
+郭先生在11月17日直播中揭示，阿富汗至少有几万人死亡，在以后的80天，预计还有80-100万人死去。预计今年在阿富汗会有两千三百万人会挨冻挨饿，甚至100-300百万人被饿死。
 
-据该县政府称，上个月，该县一名50多岁的男子在接种了辉瑞公司的疫苗后死亡。疫苗接种与死亡之间的因果关系尚不清楚。这名男子在10月底接种了第二剂疫苗，三天后死亡。目前还不知道该男子是否有任何潜在疾病。截至上月底，该县因接种疫苗而死亡的总人数达到 15 人。
+在11月28日，郭先生再次透露，阿富汗死亡平民已达十几万人，2300-2500万人处于饥饿中。阿富汗已经出现了用处女换粮食的现象，“人吃人”的惨剧也一定会发生。
 
-男子接种疫苗死亡的信息一个月后才报出，虽然晚了，但高知电视台的勇气还是值得肯定的。这条报道的下方，网友留言写道，“高知县能如实报道疫苗接种后的死亡情况，是正确报道应有的作派”。关于此条留言，截至笔者发此稿，共有3211人点赞。着实令人欣慰。媒体的客观性是民众觉醒的催化剂。日本民众也开始意识到了中共疫苗的骗局。
-
-信息来源：
-
-[未确认新冠感染 1人接种疫苗后死亡](https://news.yahoo.co.jp/articles/2734f1af8e6034831137f0babdfc39bc90e634ee)
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.png)
+中共以及其扶植的塔利班势力是导致阿富汗人道危机的根源。但是全世界的主流媒体被邪恶势力收买和控制，漠视塔利班政权的腐败残暴，集体噤声阿富汗人道危机。
 
 
+
+文字版原文：[中共收买世界主流媒体 无视阿富汗人道危机](https://gnews.org/zh-hans/1708855/)
+
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
