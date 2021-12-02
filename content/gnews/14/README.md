@@ -2,34 +2,47 @@
 ---
 
 
-## 路透社主席是辉瑞的投资者和董事会成员
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1713594/)
+## WTA因彭帅遭遇暂停在中共国的所有赛事
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1713722/)
 
-编译：西班牙巴塞罗那喜悦农场-wenwu
+**翻译：文扬
+编辑：文泓**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image1.jpeg)图片来源：Tennis Tonic
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/unknown-1.png)图片来源：thenationalpulse.com
+12月1日，世界女子职业网球巡回赛的负责人宣布，因担心职业球员彭帅的安全，将暂停在中国举行的所有女子职业网球协会（WTA）赛事。彭帅是一名指控中共国前高级政府官员性侵的球员。
 
-路透社的主席和前首席执行官（CEO）–詹姆斯·C.史密斯（James C. Smith）–是制药巨头辉瑞公司的头号投资者和[董事会成员](https://www.pfizer.com/people/leadership/board-of-directors/james_smith)。 他在2014年当选为辉瑞公司董事会成员，并加入了辉瑞公司的公司治理和科技[委员会](https://www.pfizer.com/news/press-release/press-release-detail/james_c_smith_elected_to_pfizer_s_board_of_directors)。这一消息引发了严重的利益冲突问题，因为路透社等企业媒体继续宣传辉瑞公司的产品，维护制药公司免受批评，并采取行动压制怀疑者。
+在11月2日，彭帅在自己的社交媒体上发表了对前副总理张高丽的指控，很快被中共当局删除，之后她就退出了公众视野。
 
-史密斯目前仍是汤森路透社基金会（Thomson Reuters Foundation，TRF）的主席，该基金会总部位于法国伦敦，以向数十亿读者提供新闻和信息而闻名。从 2012 年到 2020 年退休期间，他还是路透社的总裁、首席执行官和董事会成员。
+“不幸的是，中共国的领导层没有以任何值得信任的方式解决这个非常严重的问题”，WTA主席兼首席执行官史蒂夫·西蒙在周三巡回赛分发的一份声明中写道：“虽然我们现在知道彭帅在哪里，但我非常怀疑她是否自由、安全，没有受到审查、胁迫和恐吓。”
 
-他从 1987 年开始在汤森路透社基金会工作，当时他们被称为汤森报业集团（Thomson Newspaper group）。他还担任过专业部门的首席执行官，负责监管法律、税务和会计，以及知识产权和科学业务。后来，他又继续领导该新闻机构的北美业务。
+西蒙再次呼吁（国际社会）对彭帅的指控进行“全面和透明的调查——没有审查”，并对中共国采取了异常强硬的立场。中共国本应是明年几项网球赛事的举办地，包括著名的季末WTA总决赛。
 
-在当时的一份官方声明中，辉瑞公司董事长兼首席执行官伊恩·里德 (Ian Read) 表示：“我们很高兴吉姆·史密斯（Jim Smith，可能是昵称）加入辉瑞董事会。他为辉瑞董事会带来了领导力、运营和国际业务经验，并将成为辉瑞公司的一项卓越资产。Jim 加入我们的董事会有助于确保辉瑞将继续受益于广泛而多样的经验。”
+西蒙说：“凭良心说，当彭帅不被允许自由交流，并且似乎（当局）通过施压来反驳她的性侵犯指控时，我搞不明白，我怎么能要求我们的运动员去那里比赛？”
 
-仅在2021年，路透社就发表了[2.2万多篇](https://www.reuters.com/search/news?sortBy=&amp;dateRange=&amp;blob=pfizer)提及辉瑞公司的文章。路透社仅发表了[8191 篇](https://www.reuters.com/search/news?sortBy=&amp;dateRange=&amp;blob=moderna)与 Moderna 相关的文章，以及[1.8万](https://www.reuters.com/search/news?blob=j%26j&amp;sortBy=relevance&amp;dateRange=all)[篇](https://www.reuters.com/search/news?sortBy=&amp;dateRange=&amp;blob=moderna)与强生相关的[文章](https://www.reuters.com/search/news?sortBy=&amp;dateRange=&amp;blob=moderna)。许多关于强生公司的文章都是负面新闻，与史密斯的辉瑞公司报道完全不同。
+“鉴于目前的状况，我也非常担心，如果我们在2022年在中共国举办赛事，我们所有的球员和工作人员都可能面临风险。”
 
-史密斯还与[世界经济论坛 (WEF) 有联系](https://www.weforum.org/agenda/authors/jim-smith)，在那里他是合作反腐败倡议（Partnering Against Corruption Initiative）的董事会成员。他还是世界经济论坛的英美商业（British American Business）和大西洋理事会（Atlantic Council）的国际商业咨询委员会（International Business Advisory）的成员。
+北京将于2022年2月4日开始举办冬奥会，国际奥委会主席托马斯·巴赫说，上个月底他与彭帅进行了视频通话。
 
-据《[华尔街日报》报道](https://www.wsj.com/market-data/quotes/PFE/company-people/executive-profile/10163688)，史密斯还担任 Refinitiv Transaction Services, Ltd 总裁兼首席执行官一职，该公司拥有[62.5 亿美元](https://www.refinitiv.com/en/about-us)的收入，在 190 个国家/地区拥有4万多名客户和40万名终端用户。在2018 年之前，Refinitiv 一直是汤森路透社集团（TRF）[的成员](https://thenationalpulse.com/Users/smyth/Downloads/rtsl-2019-remuneration-disclosure-01072020.pdf)。
+国际奥委会没有发布视频或交流的文字记录，只是提到巴赫报告中说她很好。国际奥委会在一份声明中说，彭帅似乎“做得很好”，并说她已经要求保护隐私。
 
-**新闻来源：**[thenationalpulse.com] [CONFLICT: Reuters Chairman is Pfizer Investor and Board Member.](https://thenationalpulse.com/news/conflict-reuters-chairman-is-pfizer-investor-and-board-member/) | 发布时间：2021年12月01日
+尽管国际奥委会与中共国奥委会及政府官员密切合作，组织即将举行的冬奥会，但国际奥委会没有解释是如何安排这次（视频）通话的。
 
-* * *
+批评人士表示，如果彭帅真的有发言权，她就不会打电话给国际奥委会。
 
-*发稿：信心的选择*
+西蒙说：“如果有权势的人能够压制女性的声音并掩盖性侵犯的指控，那么WTA成立的基础——女性平等，将遭受巨大的挫折。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-1.jpeg)
+“所以，我不会也不能让这种情况发生在WTA和其球员身上。”
+
+原文链接：[WTA suspend events in China over Peng | The West Australian](https://thewest.com.au/sport/tennis/irresponsible-ioc-under-fire-over-peng-c-4781317)
+
+发布： Janek
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

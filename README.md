@@ -15,149 +15,149 @@
 
 ---
 
-### [墙内要闻汇编 12月2日](/content/gnews/1/README.md)
+### [日本高知县公开报道疫苗死亡案例 网友为媒体态度点赞](/content/gnews/1/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [活在文字狱的当下](/content/gnews/2/README.md)
+### [爆料革命——历史的今天11月19日](/content/gnews/2/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
+
+### [罗杰-霍德金森博士指出关于大流行的所有都是谎言](/content/gnews/3/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [三周前的提醒（一）](/content/gnews/4/README.md)
+ ` 骄子`
+
+### [中国梦孩子的噩梦，鹿道森自曝遭霸凌后失联身亡遗书惹全网泪崩](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [一贯体育为政治服务的中共说WTA利用体育达到政治目的](/content/gnews/3/README.md)
+### [中共闭关锁国的互联网企业收入13102亿元](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新闻述评：岸田政府访华计划或因安倍涉台言论而遭取消](/content/gnews/4/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [WTA因彭帅遭遇暂停在中共国的所有赛事](/content/gnews/5/README.md)
+### [近日落马的中共高官（二）](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [蔡英文祝贺卡斯特罗当选 洪都拉斯外交动向备受关注](/content/gnews/6/README.md)
+### [国际女子网协抵制中共，全面停止中共国巡回赛](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [墙内要闻汇编 12月2日](/content/gnews/9/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [秘翻在线：中共助推赵长鹏荣升了《福布斯》华人富豪榜首！](/content/gnews/10/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [活在文字狱的当下](/content/gnews/11/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [一贯体育为政治服务的中共说WTA利用体育达到政治目的](/content/gnews/12/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [新闻述评：岸田政府访华计划或因安倍涉台言论而遭取消](/content/gnews/13/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [WTA因彭帅遭遇暂停在中共国的所有赛事](/content/gnews/14/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [蔡英文祝贺卡斯特罗当选 洪都拉斯外交动向备受关注](/content/gnews/15/README.md)
  ` 日本东京方舟农场`
 
-### [DC大中华时事：台湾15个人权团体呼吁抵制北京冬奥会](/content/gnews/7/README.md)
+### [DC大中华时事：台湾15个人权团体呼吁抵制北京冬奥会](/content/gnews/16/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [德国新外长：将把人权问题放在德国外交的中心位置](/content/gnews/8/README.md)
+### [德国新外长：将把人权问题放在德国外交的中心位置](/content/gnews/17/README.md)
  ` 日本东京方舟农场`
 
-### [没有人权就没有奥运 台湾立委呼吁抵制北京冬奥会](/content/gnews/9/README.md)
+### [没有人权就没有奥运 台湾立委呼吁抵制北京冬奥会](/content/gnews/18/README.md)
  ` 日本东京方舟农场`
 
-### [12/02/2021 国际财经快讯：科技巨头的免责盾牌“230条款”面临美国议员围攻；利率上行前景下，美国一些科创类股回吐疫情带来的涨幅](/content/gnews/10/README.md)
+### [12/02/2021 国际财经快讯：科技巨头的免责盾牌“230条款”面临美国议员围攻；利率上行前景下，美国一些科创类股回吐疫情带来的涨幅](/content/gnews/19/README.md)
  ` 秘密翻译组金融团队`
 
-### [美国消费者监督机构指责贝莱德非法投资中共国公司](/content/gnews/11/README.md)
+### [美国消费者监督机构指责贝莱德非法投资中共国公司](/content/gnews/20/README.md)
  ` 日本东京方舟农场`
 
-### [29日美反潜机穿台海，同时中共潜艇出现在台海](/content/gnews/12/README.md)
+### [29日美反潜机穿台海，同时中共潜艇出现在台海](/content/gnews/21/README.md)
  ` 澳喜农场`
 
-### [向中共下跪 迪士尼自我审查](/content/gnews/13/README.md)
+### [向中共下跪 迪士尼自我审查](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [路透社主席是辉瑞的投资者和董事会成员](/content/gnews/14/README.md)
+### [路透社主席是辉瑞的投资者和董事会成员](/content/gnews/23/README.md)
  ` wenwu`
 
-### [家庭反洗脑序列：第37篇 正常人](/content/gnews/15/README.md)
+### [家庭反洗脑序列：第37篇 正常人](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [喜联储将获数字银行牌照 青蒿药用针剂防病毒还解疫苗](/content/gnews/16/README.md)
+### [喜联储将获数字银行牌照 青蒿药用针剂防病毒还解疫苗](/content/gnews/25/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [樱花灭共诗——远志（新韵）](/content/gnews/17/README.md)
+### [爱尔兰通过决议力挺台湾，谴责中共侵害人权](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [爱尔兰通过决议力挺台湾，谴责中共侵害人权](/content/gnews/18/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [孟建柱是当年康生而王岐山是当年周恩来都觊觎习近平](/content/gnews/19/README.md)
+### [孟建柱是当年康生而王岐山是当年周恩来都觊觎习近平](/content/gnews/27/README.md)
  ` NewFOC`
 
-### [文贵焦点 (12/1) 新中国联邦、喜交所将拥有两家数字银行牌照意义非凡](/content/gnews/20/README.md)
+### [文贵焦点 (12/1) 新中国联邦、喜交所将拥有两家数字银行牌照意义非凡](/content/gnews/28/README.md)
  ` 秘密翻译组-原创组`
 
-### [美国地方法官暂停拜登政府针对联邦承包商的强制疫苗令](/content/gnews/21/README.md)
+### [美国地方法官暂停拜登政府针对联邦承包商的强制疫苗令](/content/gnews/29/README.md)
  ` 日本东京方舟农场`
 
-### [7·24系列——哪个国家将给喜联储发放数字银行牌照](/content/gnews/22/README.md)
+### [7·24系列——哪个国家将给喜联储发放数字银行牌照](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国前总统川普在采访中披露他对1月6日华盛顿民众集会的安全考量](/content/gnews/23/README.md)
+### [美国前总统川普在采访中披露他对1月6日华盛顿民众集会的安全考量](/content/gnews/31/README.md)
  ` 澳喜农场`
 
-### [文贵焦点 (12/1）新中国联邦真正的战友将免费获青蒿素用于治病救命](/content/gnews/24/README.md)
+### [文贵焦点 (12/1）新中国联邦真正的战友将免费获青蒿素用于治病救命](/content/gnews/32/README.md)
  ` 秘密翻译组-原创组`
 
-### [美国最新民调显示：中共是最大威胁 担心中美可能开战](/content/gnews/25/README.md)
+### [美国最新民调显示：中共是最大威胁 担心中美可能开战](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [Jack Dorsey：Square更名为Block](/content/gnews/26/README.md)
+### [Jack Dorsey：Square更名为Block](/content/gnews/34/README.md)
  ` wenwu`
 
-### [约9000名海军陆战队员截止日到来时未接种中共病毒疫苗](/content/gnews/27/README.md)
+### [约9000名海军陆战队员截止日到来时未接种中共病毒疫苗](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [共和党人威胁要因疫苗授权关闭政府](/content/gnews/28/README.md)
+### [飞机里的每个电视都出现GETTR广告](/content/gnews/36/README.md)
  ` wenwu`
 
-### [曾一度濒死的新冠患者在服用伊维菌素后起死回生 并顺利康复](/content/gnews/29/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [西媒头条 — 第122期](/content/gnews/30/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [新西兰财经G乐部 2021年12月2日](/content/gnews/31/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/32/README.md)
- ` wenwu`
-
-### [飞机里的每个电视都出现GETTR广告](/content/gnews/33/README.md)
- ` wenwu`
-
-### [2021/12/01 墙内世界](/content/gnews/34/README.md)
+### [2021/12/01 墙内世界](/content/gnews/37/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021/11/30 墙内世界](/content/gnews/35/README.md)
+### [2021/11/30 墙内世界](/content/gnews/38/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [孟建柱和王岐山都没跟习说实话,江泽民坐等习近平完蛋](/content/gnews/36/README.md)
+### [孟建柱和王岐山都没跟习说实话,江泽民坐等习近平完蛋](/content/gnews/39/README.md)
  ` NewFOC`
 
-### [针下亡魂｜英国 40 岁专业音乐家接种疫苗后死亡](/content/gnews/37/README.md)
+### [针下亡魂｜英国 40 岁专业音乐家接种疫苗后死亡](/content/gnews/40/README.md)
  ` G&#124;News TAIWAN`
 
-### [五角大楼2021年中国军力报告的5个关键更新](/content/gnews/38/README.md)
+### [五角大楼2021年中国军力报告的5个关键更新](/content/gnews/41/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [因投资机构和推特公司都对其不满，杰克·多西辞去CEO职务](/content/gnews/39/README.md)
+### [因投资机构和推特公司都对其不满，杰克·多西辞去CEO职务](/content/gnews/42/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共在台湾，病毒，和新疆问题上的做法已经引发众怒](/content/gnews/40/README.md)
+### [中共在台湾，病毒，和新疆问题上的做法已经引发众怒](/content/gnews/43/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [福奇宣布明年初起给婴幼儿开始接种疫苗](/content/gnews/41/README.md)
+### [福奇宣布明年初起给婴幼儿开始接种疫苗](/content/gnews/44/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共在与非洲国家的经贸关系中蓄意推行债务陷阱外交](/content/gnews/42/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [孟建柱通过洗米华控制毒品走私人口打造真正的隐形王国](/content/gnews/43/README.md)
- ` NewFOC`
-
-### [COVID-19 最新情报｜欧盟委员会主席：欧盟是时候该为所有公民强制接种疫苗](/content/gnews/44/README.md)
+### [COVID-19 最新情报｜欧盟委员会主席：欧盟是时候该为所有公民强制接种疫苗](/content/gnews/45/README.md)
  ` G&#124;News TAIWAN`
 
-### [当危会周四深挖中共超限战、美国纳税人如何阻止华尔街](/content/gnews/45/README.md)
+### [当危会周四深挖中共超限战、美国纳税人如何阻止华尔街](/content/gnews/46/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [岸田首相紧急应对日本国民的归国困难问题](/content/gnews/46/README.md)
+### [岸田首相紧急应对日本国民的归国困难问题](/content/gnews/47/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [欧盟推“全球门户”，抗衡中共“一带一路”](/content/gnews/47/README.md)
+### [欧盟推“全球门户”，抗衡中共“一带一路”](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [泽连科医生在拉比法庭前的证词](/content/gnews/48/README.md)
- ` 纽约香草山MOS03`
 
 ### [众议员迈克·华尔兹： 我们知道中共正试图收集美国的 DNA 数据,国会需要答案](/content/gnews/49/README.md)
  ` 美国政要直译推`
