@@ -2,47 +2,30 @@
 ---
 
 
-## 有声| 找到生命真相：（二）我认为人类不需要宗教，但人类需要有信仰
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1712500/)
+## 福奇和拜登敦促推出新冠病毒变种Omicron的疫苗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1712552/)
 
-配音：香草山福音部 – Daxia
+编译：Kal
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片4.png)
+图片来源：Al Jazeera
+
+据合众国际社(United Press International)11月30日报道， 白宫周二表示正在美国积极寻找冠状病毒变种Omicron病例，并继续强调疫苗的接种。
+
+总统首席医疗顾问福奇表示，目前对Omicron变种的了解有限。但他认为目前的疫苗和加强针对Omicron变种有效。
+
+疾病控制和预防中心主任罗谢尔·瓦伦斯基(Rochelle Walensky)博士强调了加强针的重要性，但她并没有将其加入“完全接种疫苗”的定义中。她说，这个话题正在讨论中。
+
+白宫新冠病毒响应小组协调员杰夫·齐恩茨(Jeff Zients)表示，他们已与辉瑞、Moderna 和强生这三家在美国获批的疫苗公司进行了接触并讨论是否需要进行疫苗修改。
+
+福奇警告说，虽然患 Omicron 变种病毒影响的人有“轻度”症状，但他说现在判断其进展还为时过早。他说，未来几周需要更多时间来确认这些病例的严重程度。
+
+根据疾病预防控制中心的数据，大约 70% 的美国人至少接种了一剂疫苗。近 60% 的人已完全接种疫苗。
+
+拜登在周一的讲话中，会尽快升级疫苗或加强针来应对 Omicron。福奇本周表示，Omicron可能更具传播性，并且几乎肯定会在某个时候出现在美国。突变的特征表明它在传播性方面具有优势，并且它可能会逃避免疫保护，例如，从单克隆抗体或一个人被感染后的恢复期血清中获得的免疫保护，甚至可能对抗一些疫苗诱导的抗体。称目前美国还没有正式的应对方案。
+
+##### **新闻来源：**[Dr. Fauci, others on Biden’s COVID-19 team urge vaccines against Omicron variant](https://www.upi.com/Top_News/US/2021/11/30/covid-omicron-variant-white-house/7571638281980/)
 
 
-
-
-
-郭文贵先生（七哥）第一次公开承认说：“我是佛教徒”的时候发表了自己独家观点——“我认为人类不需要宗教。”七哥解释道：我不认为现在佛教（教义）是真正想表达的意思。因为“没有人让我心服口服地把佛教研究明白的”。“**我认为人类不需要宗教，但人类需要有信仰。**”
-
-## **一、本心是恶还是善**
-
-对于什么是信仰？七哥以活出自己独特的生死经历告诉世界，“我在清风看守所出来以后，我心中早已有（信仰的）定意。”
-
-七哥对信仰的思考是入死出生的人生参悟。“我要对信仰重新定义。”七哥说，并坚持认为，“信仰不应该来自于第三方给予的答案，我不应该为第三方供奉和奉献，**所有的信仰应该是我们的‘本心’和‘本能’。”**所以，“我最想要的是创建一个人类新的信仰，而且是找到生命真相的人类新的群体。”（见 [01:02.50时段](https://gettr.com/post/pgwfu22cfa)）。这个人类新的群体，恐怕就是新中国联邦人——没有向中共撒但屈膝，没有打中共疫苗的健康的群体。
-
-
-
-**文字版原文：[找到生命真相：（二）我认为人类不需要宗教，但人类需要有信仰](https://gnews.org/zh-hans/1694159/)**
-
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

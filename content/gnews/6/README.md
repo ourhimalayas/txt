@@ -2,33 +2,25 @@
 ---
 
 
-## AUKUS联盟可能欢迎更多国家进行合作
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1712441/)
+## 普京要求北约保证不东扩
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1712519/)
 
-**翻译：皮特**
-**编辑：MSGZ**
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-3.png)
+图片来源：
+美联社12月1日报道，弗拉基米尔·普京总统周三说俄罗斯将要求西方国家保证北约不再东扩，并且不在其国家边境部署武器，这是在人们担心俄罗斯将侵略乌克兰的情形下，普京发出的严厉要求。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/lianmeng.png)图片来源：msn.com
+乌克兰和西方官员们担心俄罗斯在乌克兰附近聚集部队，认为这是莫斯科想要攻击的信号。俄罗斯外交官否认，说是担心乌克兰自己的军队在该国东部聚积与该地区分离主义者发生冲突。
 
+美国务卿安东尼·布林肯说注意到普京可能快速发起对乌克兰的侵略，他警告说如果俄罗斯如此做的话，华盛顿将对俄罗斯实施严重的制裁。
 
-据美国总统乔拜登的一位高级顾问称，澳大利亚与英国和美国的安全协议（AUKUS）可能会欢迎更多国家加入。
+普京在克里姆林宫说：“在与美国和其同盟国的对话中，我们将坚持要求北约保证不再问东扩张，并且不在靠近俄罗斯的边境地区部署武器，俄罗斯愿意与西方进行实质上对话，我们不仅需要口头承诺，还要有法律上的保证。”
 
-AUKUS 协议承诺这三个国家共享敏感的军事技术——包括关于核潜艇的技术。
+布林肯周三在拉脱维亚说：“我们不知道普京总统是否已经作出了侵略的决定，但我们知道他正在安排这方面的能力，这样他可以在很短时间内作出决定，我们必须做好准备应对所有可能的突发事件。”
 
-华盛顿印太事务协调员库尔特坎贝尔透露，已经有其他国家提出加入该联盟的请求。
+##### **新闻来源： **[Putin demands NATO guarantees not to expand eastward](https://apnews.com/article/business-russia-ukraine-moscow-sergey-lavrov-90d7347e8f25bea1ddb2c7b3dc1687c0)
 
-坎贝尔先生说：“这表明AUKUS引起广泛的兴趣，许多亲密的盟友立即询问：我们可以加入吗，可以参与吗？”
-
-“这要归功于澳大利亚和英国，他们坚持认为，这不是一个封闭的架构，而是一个开放的结构。我们希望在前进的过程中，在军事创新的关键领域与合作伙伴合作。”
-
-原文链接：[https://www.msn.com/en-au/news/other/aukus-alliance-could-welcome-more-countries-into-partnership/ar-AARjDZH?ocid=msedgntp](https://www.msn.com/en-au/news/other/aukus-alliance-could-welcome-more-countries-into-partnership/ar-AARjDZH?ocid=msedgntp)
-
-***发布：Candy***
-
-更多资讯，请关注：[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)[Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+# ** **
 
  
 

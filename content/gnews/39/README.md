@@ -2,35 +2,32 @@
 ---
 
 
-## 谷歌工程师宣称因恪守“不作恶”而被解雇
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1711885/)
+## 彭帅事件持续发酵，WTA暂停中共国所有赛事
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1712152/)
 
-**翻译：Ronnie O’Sullivan
-编辑：Candy**
+![资料照：中国网球名将彭帅2020年1月在墨尔本参加澳大利亚网球公开赛。](https://gdb.voanews.com/84DCF679-3C6A-4344-9034-E0CEDBF881E8_w1023_r1_s.jpg)*资料照：中国网球名将彭帅2020年1月在墨尔本参加澳大利亚网球公开赛。*
+据美国之音12月2日报道，国际女子网球协会(WTA)主席兼首席执行官史蒂夫·西蒙1日宣布，出于担忧中共国网球明星彭帅的安全，WTA将暂停一切在中共国，包括在香港举行的赛事。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/谷歌1.png)图片来源：Alex Castro / The Verge
+彭帅11月2日发出一条微博，指控前中共中央政治局常委、前中共国副总理张高丽性侵。微博发出大约30分钟后被删除，随即彭帅的名字被屏蔽，陷入失联状态。西蒙表示，中共国官员可以证明彭帅的安全和自由，并调查性侵的指控。但中共领导层没有以任何可信的方式解决这个问题。彭帅的处境令人担忧。
+
+彭帅对张高丽发出的性侵指控正值北京2022年冬奥会即将举行之际。国际奥委会主席巴赫与彭帅进行了30分钟的视频通话，表示彭帅平安无事，但国际奥委会此举遭到了人权组织的抨击。他们指责国际奥委会借体育为中共官员的性侵行为“洗白”。
+
+WTA与中共国签下一份10年协议，从2019年开始把巡回赛的决赛放在深圳举行。WTA取消全部中共国赛事将影响与中共国广泛的商业合作。虽然由于疫情，2020年赛事没有举行，但依然可以预见未来的经济损失。在正义和利益面前，不是所有的体育组织都像国际奥委会和NBA一样向中共低头。彭帅的事情可能发生在任何一个运动员身上。彭帅事件再次证明，在中共国，每个人的安全和自由都得不到保证。
+
+新闻参考链接：[https://www.voachinese.com/a/wta-suspends-cina-events-over-pengshuai-2021101/6335613.html](https://www.voachinese.com/a/wta-suspends-cina-events-over-pengshuai-2021101/6335613.html)
+
+编辑：胖丁
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-三名前谷歌员工宣称，谷歌有合同性义务遵守其众所周知的“不作恶”政策。他们正在起诉该公司，据说他们因指责谷歌的“邪恶”行为而被解雇。
+编辑：【英国伦敦喜庄园编辑部】
 
-前员工苏菲·沃尔德曼(Sophie Waldman)、丽贝卡·里弗斯(Rebecca Rivers)、保罗·杜克(Paul Duke)及劳伦斯·伯兰德（Laurence Berland）于2019年11月因涉嫌违反公司的数据安全政策而被解雇。
-
-然而，他们宣称并没有泄露任何机密信息。 今年早些时候，美国国家劳资关系委员会代理负责人表示，谷歌解雇三名员工，可以说是违反了美国《劳动法》，称谷歌是为了报复他们的激进行为而解雇了这些员工。
-
-在加利福尼亚州提起的诉讼中，该团队指控谷歌参与了“邪恶”活动，并随后因揭发该公司而被谷歌惩罚。诉讼称，沃尔德曼、里弗斯和杜克被谷歌聘用时，他们都签署了一份包含“不作恶”规则的合同。因此，2019 年，当谷歌与川普政府的海关和边境巡逻队签订了有争议性的云计算合同时，该团队提出质疑。他们认为边境可能出现侵犯人权的情况，并认为自己遵守了此合同。
-
-自 2000 年代初以来，“不作恶”一直是谷歌行为准则的一部分。尽管谷歌的母公司 Alphabet 在 2015 年将其替换为“做正确的事”，但该短语在谷歌最新的行为准则中仍然有效。并指出：“记住……不要作恶，如果你看到你认为不对的事情——说出来！”
-
-原文链接：[https://www.theverge.com/2021/11/30/22809577/google-employees-sue-dont-be-evil-policy](https://www.theverge.com/2021/11/30/22809577/google-employees-sue-dont-be-evil-policy)
-
-***发布：Candy***
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

@@ -2,38 +2,28 @@
 ---
 
 
-## 民主人士因所谓“颠覆”罪再度出庭受审
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1709968/)
+## 英军情六处公开表示 中共过度自信误判国际形势
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1710525/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月29日，香港47名民主人士再次出庭受审。
+撰稿:东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3.png)[图片源](https://news.yahoo.co.jp/articles/0b0ffe32a102f554868c3faa1f4947072f74bdcc/images/000)
+英国对外情报机构—军情六处总干事摩尔30日首次发表讲话，指出中共国政府过于自信，可能误判国际形势。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide2.jpeg)
+“中共政府相信其大外宣对西方国家脆弱性的宣传，低估了美国政府的决心，”他说，“中国因过度自信而面临误判风险，这已成不争的事实。”
 
-据了解，这些民主人士因组织和参与2020年的民主初选而被港共政府指控为所谓的“颠覆国家政权罪”。自今年三月起，他们之中的多数就被拘押，其中有14人获准保释，另有33人继续还押候讯。
+“适应一个受中共国崛起而饱受影响的世界，是军情六处的首要任务，”摩尔断言。他将台湾问题列为中共加强侵略的第一个领域，并表示，中共希望“必要时以武力解决”，是“对世界稳定与和平的严重挑战”。
 
-资料显示，为了最大限度地提高民主阵营在议会选举中的影响，2020年7月，这47位民主人士参与了民主派“35+”初选。当时，约有60万名香港市民参加了该初选投票，选举秩序井然。
+中共国还剥夺了香港公民的权利，侵犯了新疆维吾尔自治区的人权，并“试图扭曲世界各地的公共言论和政治决策”。
 
-然而在今年1月，港警突然大规模地搜捕参与民主派初选的相关人员，这也导致多位民主人士入狱或被迫流亡海外。其后，这47名被捕人士被港共政府指控违反了《港区国安法》下的“串谋颠覆国家政权罪”。至于此次庭审，则是这些民主人士的第三次提讯，倘若该罪名成立，这些人可能会被判处终身监禁。
+路透社要求中共驻伦敦大使馆对摩尔先生的言论发表评论，但没有得到答复。
 
-有媒体评论表示，中共将政府极权主义植入到香港这个开放的社会，而《国安法》下的香港司法和民主现状令人失望。
+愚蠢的中共政府搞的闭目塞耳，阻塞言论的“大外宣”治国，终于还是自掘坟墓了。古人还讲“偏听则暗”呢。习总加速师周围，“宦官弄权”，谎话连篇，习是听舒服了，野心越来越大，岂知大祸也临头了。西方世界也终于捅破窗户纸，亮剑了！多行不义必自毙，中共，出来混总是要还的！
 
-参考链接：[https://twitter.com/voachinese/status/1465398473667354626?s=21](https://twitter.com/voachinese/status/1465398473667354626?s=21)
+[信息源](https://news.yahoo.co.jp/articles/d968bec9a9b45601a6266020b890e656b7e2e7d6)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
-
-总编：AN 
-编辑：Lakeman(文仁)
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
