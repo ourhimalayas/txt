@@ -2,10 +2,10 @@
 ---
 
 
-## 近期大量运动员倒地的新闻报道集锦
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1712930/)
+## 中共在与非洲国家的经贸关系中蓄意推行债务陷阱外交
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1713125/)
 
-11/25/2021 近期大量运动员倒地的新闻报道集锦。
+11/29/2021 WION新闻网：中共外交部长王毅访问塞内加尔并参加第八届中非合作论坛。专家指出中共在与非洲国家的经贸关系中蓄意推行债务陷阱外交。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

@@ -2,18 +2,16 @@
 ---
 
 
-## 美联邦法官发布全国性的医护人员疫苗强制禁令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1711424/)
+## 美国正在醒来 强制疫苗恐非易事
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1711425/)
 
-作者：纽约香草山文艺部 – 宁文静
+作者：加拿大扬帆农场 – Spirit
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月30日，美国路易斯安那州一名联邦法官发布一项全国性的初步禁令，阻止了拜登政府对医护人员的疫苗强制接种令，并表示政府滥用紧急状态侵蚀了公民的自由。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture3.jpg)
-特里·A·道迪法官在他的裁决中写道，如果允许拜登政府篡夺国会等立法部门制定法律的权力，我们宪法赋予的三权分立将形同虚设，这是非常危险的。道迪法官警示，如果说人性和历史教导了什么，那就是当政府宣布无限期紧急状态时，公民的自由将面临“严重风险”。他说，该案件最终将由最高法院裁决，但是，维护本案的现状很重要。未接种疫苗者的权益也远不止于此。
+美国媒体11月30日报道，美国超过70%的成年人已经完全接种了冠状病毒疫苗。但根据上个月的全国广播公司新闻调查，只有不到一半的美国人支持强制接种疫苗。民意调查显示，47%的美国人支持要求所有符合条件的人必须接种新冠疫苗，而50%的人则反对这一要求。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture4.jpg)
+反对疫苗强制者占据了主导地位，由此可见全美对疫苗的认识和觉醒，政府、大药厂和媒体想进一步愚弄百姓、强推疫苗，恐非易事。
 
-这项裁定是针对路易斯安那州总检察长杰夫·兰德里，联合另外13个州发起的诉讼而作出的。昨天，密苏里州的法官也阻止了10个州的医护人员的强制接种令。
-
-参考链接：[美联邦法官发布全国性的医护人员疫苗强制禁令](https://www.foxnews.com/us/federal-judge-blocks-biden-vaccine-mandate-for-health-care-workers-nationwide)
+参考链接：[美国正在醒来 强制疫苗恐非易事](https://www.nbcnews.com/politics/meet-the-press/how-biden-lost-vaccine-mandate-messaging-fight-n1285077)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 

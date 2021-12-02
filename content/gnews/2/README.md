@@ -2,32 +2,16 @@
 ---
 
 
-## 飞机里的每个电视都出现GETTR广告
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1713311/)
+## 西媒头条 — 第122期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1713444/)
 
-**编译：西班牙巴塞罗那喜悦农场-wenwu**
+制作：蚂蚁兄弟
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip05.png)
+**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/xm1201.001.jpeg)
+*发稿: Nuevo唐人*
 
-一则来自推友（[@TheMattMahoney](https://twitter.com/TheMattMahoney/status/1466006511109423108?s=20)）的信息。
-
-马特·马奥尼（Matt Mahoney）于2021年12月1日发布推文表示：[@JasonMillerinDC](https://twitter.com/JasonMillerinDC)
-
-**every tv on the plane!**
-
-如图所示，飞机上每台电视都在宣传我们的GETTR。可见，我们的GETTR将是服务于高质量用户的社交平台。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip06.png)
-
-另外，也说明了郭文贵先生领导的爆料革命与新中国联邦的战友已经进入了沼泽地的深水区。
-
-* * *
-
-***发稿：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-1.jpeg)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3.jpeg)
 
  
 
