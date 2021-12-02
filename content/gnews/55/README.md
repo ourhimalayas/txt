@@ -2,21 +2,21 @@
 ---
 
 
-## 美国正在醒来 强制疫苗恐非易事
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1711425/)
+## 洛杉矶强制疫苗政策再升级
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1711426/)
 
-作者：加拿大扬帆农场 – Spirit
+作者：纽约香草山 – AlexZ
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-美国媒体11月30日报道，美国超过70%的成年人已经完全接种了冠状病毒疫苗。但根据上个月的全国广播公司新闻调查，只有不到一半的美国人支持强制接种疫苗。民意调查显示，47%的美国人支持要求所有符合条件的人必须接种新冠疫苗，而50%的人则反对这一要求。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture4.jpg)
-反对疫苗强制者占据了主导地位，由此可见全美对疫苗的认识和觉醒，政府、大药厂和媒体想进一步愚弄百姓、强推疫苗，恐非易事。
+11月29日，洛杉矶开始执行新的疫苗强制政策，禁止顾客在没有提供疫苗接种证明的情况下进入室内设施。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture5.jpg)
+该政策要求每个人在进入室内，办理各种业务时，都要有CCP疫苗接种证明，政策覆盖范围从餐馆到剧院、健身房，到美甲和美发店等。据悉，这是目前美国最严格的疫苗规定之一。该政策并没有给出截止日期。而且还规定，违反条例的企业将被罚款 1,000 至 5,000 美元，具体取决于之前的违规次数。
 
-参考链接：[美国正在醒来 强制疫苗恐非易事](https://www.nbcnews.com/politics/meet-the-press/how-biden-lost-vaccine-mandate-messaging-fight-n1285077)
+参考链接：[洛杉矶强制疫苗政策再升级](https://www.oann.com/l-a-enforces-indoor-vaccine-mandate/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
 总编：Irene木木
-编辑：AN
+编辑：Ivy001
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**

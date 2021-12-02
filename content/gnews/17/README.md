@@ -2,51 +2,28 @@
 ---
 
 
-## 新西兰财经G乐部 2021年12月2日
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1713367/)
+## 川普媒体与科技集团（TMTG）寻求10亿美元融资
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1713424/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片-1-10.jpg)
-提纲：
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-54.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fp26.toutiaoimg.com%2Flarge%2Fpgc-image%2F75b0fae5724546c895119e886c1d73f7&amp;imgrefurl=https%3A%2F%2Ftodayhot.news%2Ftravel%2F57325.html&amp;tbnid=6hydFE_1lGStmM&amp;vet=12ahUKEwj8woTt4cT0AhV_0IsBHfFCATkQMygIegQIARAh..i&amp;docid=gMP-f_IVcPT9XM&amp;w=640&amp;h=427&amp;itg=1&amp;q=%E7%A4%BE%E4%BA%A4%E5%AA%92%E4%BD%93%E4%BC%81%E4%B8%9ATMTG&amp;ved=2ahUKEwj8woTt4cT0AhV_0IsBHfFCATkQMygIegQIARAh)
+路透12月1日报道 ，美国前总统川普的新社交媒体企业TMTG正寻求通过向对冲基金和家族办公室出售股票，来筹集最多10亿美元资金，这一金额是该公司10月份与一家特殊目的收购公司(SPAC)交易时估值的数倍。
 
-1、爱奇艺裁员20%-40% 亏损、选秀取消与短视频挤压生存空间
+川普媒体与科技集团(Trump Media & Technology Group)尚未推出据其表示正在开发的社交媒体应用程序。如果它通过与特殊目的收购公司Digital World Acquisition Corp合并而在纽约上市的交易完成，即可获得2.93亿美元。
 
-2、欧盟公布3000亿欧元“全球门户”投资计划 以抗衡中共国“一带一路”倡议
+该交易对川普媒体公司包含债务的估值为8.75亿美元。消息人士称，该公司现在正寻求以接近30亿美元的估值再融资10亿美元，以反映Digital World在川普支持者和当日冲销的交易商抢购下出现的股价上涨。
 
-3、Square更名为Block，重点转向区块链
+这是迄今为止最明显的迹象，表明川普和Digital World的交易商正在寻求利用市场对这家公司的热情牟利。迄今为止，市场对该公司的热情是由其雄心勃勃的目标所推动，而非已经启动和运行的业务。
 
-4、Facebook加密货币项目负责人宣布离职
+在与川普媒体公司的交易中，Digital World的价值为每股10美元。消息人士称，川普媒体公司现在正寻求获得所谓的公开股票私人投资(PIPE)，对Digital World股票的估值更接近其近期价格。
 
-正文
+消息人士补充说，Digital World股票的估值可能基于其10日成交量加权平均价格折让20%。
 
-1、爱奇艺裁员20%-40% 亏损、选秀取消与短视频挤压生存空间
+消息来源：[独家：特朗普旗下社交媒体企业寻求10亿美元融资–消息人士](https://cn.reuters.com/article/exclusive-trump-social-media-financing-1-idCNKBS2IH07Z?il=0)
 
-12月1日，爱奇艺员工张章向第一财经记者反映，目前爱奇艺正在裁员，裁员比例在20%-40%之间，裁员补偿暂按N+1发放，“但目前裁员政策还在变化中，具体发放多少还存在不确定性。”该员工表示。另外，第一财经记者向另外一位其他部门的爱奇艺员工交叉求证，目前爱奇艺确实在裁员进行中，裁员补偿按照N+1进行。截至发稿，爱奇艺方面暂未对此事发表回应。　一直以来，包括爱奇艺、腾讯视频、优酷等在内的长视频平台持续亏损。爱奇艺2021年第三季度财报显示，该季度爱奇艺总营收达到76亿元人民币，同比增长6%，归母净利润为亏损17亿元，去年同期亏损12亿元，同比扩大41.6%，整个2020年爱奇艺亏损60亿元；优酷被阿里收购后虽未披露具体数据，但阿里财报显示，2021财年阿里大文娱运营亏损为103.21亿元，经调整EBITA为亏损61.18亿元；腾讯第三季度财报未单独透露腾讯视频的亏损额度，但表示《扫黑风暴》《你是我的荣耀》仅为腾讯视频带来了400万的新增会员。
-
-[参考链接](https://finance.sina.com.cn/tech/2021-12-01/doc-ikyamrmy6189031.shtml)：
-
-2、欧盟公布3000亿欧元“全球门户”投资计划 以抗衡中共国“一带一路”倡议
-
-欧盟执委会周三公布了一项计划，拟在2027年前在全球范围内投资3,000亿欧元(3,400亿美元)用于基础设施、数字和气候项目，作为中国“一带一路”倡议的更好替代方案。该计划被称为“全球门户”(Global Gateway)，旨在加强欧洲供应链，促进欧盟贸易，并帮助应对气候变化，重点关注数字化、卫生、气候、能源和运输，以及教育和研究等领域。欧盟官员表示，中共国政府提供的融资往往对接受国不太有利、不透明的，并使一些较贫穷国家，尤其是非洲国家通过债务依赖中国。
-
-[参考链接](https://cn.reuters.com/article/eu-global-investment-cn-bri-1202-idCNKBS2IH03K)：
-
-3、Square更名为Block，重点转向区块链
-
-杰克·多西（Jack Dorsey）原推特CEO，他主管数字支付公司Square宣布，其已将公司名称改为Block，似乎是在向区块链技术转变。在周三的一条推文中，Square表示，更名后的支付公司将与Cash App、去中心化比特币交易所项目tbDEX以及音乐和视频流媒体平台Tidal结合。同时发布的一份新闻稿称，该支付公司专注于加密货币的分支机构Square Crypto也将更名为Spiral，并加入Block家族。
-
-[参考链接](https://finance.sina.com.cn/tech/2021-12-02/doc-ikyamrmy6309005.shtml)：
-
-4、Facebook加密货币项目负责人宣布离职
-
-Meta加密货币尝试失败，负责人宣布离职。Meta加密货币业务主管大卫·马库斯(David Marcus) 近日宣布，他将于年底离职。2019年Facebook 、宣布推出加密货币Libra，用于通过Facebook产品在线向世界上任何人汇款，但以失败告终。Facebook的加密货币雄心遭到了全球立法者和监管部门的强硬抵制。现在，Libra已更名Diem，由一个独立协会负责运营，依旧尚未面向大众发布。马库斯离职后，Meta高管史蒂芬·卡斯里尔 (Stephane Kasriel) 将接替他担任公司Novi金融产品部门主管。
-
-[参考链接](https://finance.sina.com.cn/stock/usstock/c/2021-12-01/doc-ikyakumx1275001.shtml)：
-
-
-
-审核校对：Barry Jack
-上传排版：F
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
