@@ -2,34 +2,36 @@
 ---
 
 
-## 路透社主席是辉瑞的投资者和董事会成员
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1713594/)
+## DC大中华时事：台湾15个人权团体呼吁抵制北京冬奥会
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1713713/)
 
-编译：西班牙巴塞罗那喜悦农场-wenwu
+*编辑：DC任盈盈 / 作图：*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/unknown-1.png)图片来源：thenationalpulse.com
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/ScreenShot-2021-08-01-at-17.25.09@2x.png)
 
-路透社的主席和前首席执行官（CEO）–詹姆斯·C.史密斯（James C. Smith）–是制药巨头辉瑞公司的头号投资者和[董事会成员](https://www.pfizer.com/people/leadership/board-of-directors/james_smith)。 他在2014年当选为辉瑞公司董事会成员，并加入了辉瑞公司的公司治理和科技[委员会](https://www.pfizer.com/news/press-release/press-release-detail/james_c_smith_elected_to_pfizer_s_board_of_directors)。这一消息引发了严重的利益冲突问题，因为路透社等企业媒体继续宣传辉瑞公司的产品，维护制药公司免受批评，并采取行动压制怀疑者。
+#   墙国妄语每日驳
 
-史密斯目前仍是汤森路透社基金会（Thomson Reuters Foundation，TRF）的主席，该基金会总部位于法国伦敦，以向数十亿读者提供新闻和信息而闻名。从 2012 年到 2020 年退休期间，他还是路透社的总裁、首席执行官和董事会成员。
+### 12.02.新华网.教师法修订在即，新变化值得期待
 
-他从 1987 年开始在汤森路透社基金会工作，当时他们被称为汤森报业集团（Thomson Newspaper group）。他还担任过专业部门的首席执行官，负责监管法律、税务和会计，以及知识产权和科学业务。后来，他又继续领导该新闻机构的北美业务。
+[http://www.news.cn/2021-12/01/c\_1128118190.htm](http://www.news.cn/2021-12/01/c_1128118190.htm)
 
-在当时的一份官方声明中，辉瑞公司董事长兼首席执行官伊恩·里德 (Ian Read) 表示：“我们很高兴吉姆·史密斯（Jim Smith，可能是昵称）加入辉瑞董事会。他为辉瑞董事会带来了领导力、运营和国际业务经验，并将成为辉瑞公司的一项卓越资产。Jim 加入我们的董事会有助于确保辉瑞将继续受益于广泛而多样的经验。”
+***简评：***中华民族自古就有尊师重教的传统文化，而在中共统治的七十多年中共打压最狠的是知识分子阶层尤其是教师，诸多民国时期的大师级知识分子在教师岗位被折磨至死，比如潘天寿、丰子恺、陈寅恪、 翦伯赞、傅雷等等，中国的老师们被红卫兵任意打骂、批斗、侮辱，毫无尊严可言。改革开放消停几年后，中共又将教育纳入赚钱的行业鼓励各种培训班，通过各种主观评选，把老师分成三六九等，这次教师法的修订明确教师惩戒权，在学校中学生现在是弱势，学生被老师打骂侮辱的事比比皆是，我们曾看到一个小女孩把老师对孩子训话的姿态模仿的惟妙惟肖，也曾看到小孩被老师当众羞辱后跳楼自杀的新闻，在没明确少年儿童保护法是否真能保护孩子之前就赋予老师惩戒权对孩子来说真是一个隐患。明确公办教师国家公务人员的编制、待遇但对于乡村代办教师呢？有没有对他们的身份明确？中共国这次修订教师法，对教师队伍一方面欺骗拉拢一部分人，另一方面对教师队伍进行更深的控制，公办教师的问题解决了，而民办教师怎么处理？中共制造的阶层和人群对立把整个国家都撕裂了。
 
-仅在2021年，路透社就发表了[2.2万多篇](https://www.reuters.com/search/news?sortBy=&amp;dateRange=&amp;blob=pfizer)提及辉瑞公司的文章。路透社仅发表了[8191 篇](https://www.reuters.com/search/news?sortBy=&amp;dateRange=&amp;blob=moderna)与 Moderna 相关的文章，以及[1.8万](https://www.reuters.com/search/news?blob=j%26j&amp;sortBy=relevance&amp;dateRange=all)[篇](https://www.reuters.com/search/news?sortBy=&amp;dateRange=&amp;blob=moderna)与强生相关的[文章](https://www.reuters.com/search/news?sortBy=&amp;dateRange=&amp;blob=moderna)。许多关于强生公司的文章都是负面新闻，与史密斯的辉瑞公司报道完全不同。
+### 12.02.凤凰网.发展社会主义政治文明
 
-史密斯还与[世界经济论坛 (WEF) 有联系](https://www.weforum.org/agenda/authors/jim-smith)，在那里他是合作反腐败倡议（Partnering Against Corruption Initiative）的董事会成员。他还是世界经济论坛的英美商业（British American Business）和大西洋理事会（Atlantic Council）的国际商业咨询委员会（International Business Advisory）的成员。
+[https://i.ifeng.com/c/8BbzihhelpQ](https://i.ifeng.com/c/8BbzihhelpQ)
 
-据《[华尔街日报》报道](https://www.wsj.com/market-data/quotes/PFE/company-people/executive-profile/10163688)，史密斯还担任 Refinitiv Transaction Services, Ltd 总裁兼首席执行官一职，该公司拥有[62.5 亿美元](https://www.refinitiv.com/en/about-us)的收入，在 190 个国家/地区拥有4万多名客户和40万名终端用户。在2018 年之前，Refinitiv 一直是汤森路透社集团（TRF）[的成员](https://thenationalpulse.com/Users/smyth/Downloads/rtsl-2019-remuneration-disclosure-01072020.pdf)。
+***简评：***“社会主义政治文明”看这个标题想到的是什么？从远了看想到“反右运动”，将各种政治不同意见者统统打成右派流放发配到最艰苦恶劣的地方做最没有尊严的工种……从近处想举着枪走入人民大会会场的军人。中共在这篇文章中说到十八大后坚持发展社会主义民主政治有力促进改革开放和社会主义现代化建设，那六中全会后“十个坚持”怎么没有一个提到坚持改革开放？美资、日资各种外资在撤退，欧盟停止贸易协议谈判，说好的“促进改革开放”在哪里？香港“一国两制”变大湾区，台湾获得越来越多国家的公开支持，美国两党议员乘坐外交专机防台，说好的国家统一呢？国际各国公开认定或谴责中共对维吾尔人犯下反人类罪，说好的民族团结呢？国内各种债务爆雷、千万人失业，说好的社会稳定呢？说到“以保障人民生存权、发展权为首要推进人权事业全面发展”中共国老百姓连私有财产都保护不了银行存款莫名其妙丢失、房子被强拆、法律不保护弱者，还谈人权事业发展，中共的文字就是一个个给自己挖的大坑。
 
-**新闻来源：**[thenationalpulse.com] [CONFLICT: Reuters Chairman is Pfizer Investor and Board Member.](https://thenationalpulse.com/news/conflict-reuters-chairman-is-pfizer-investor-and-board-member/) | 发布时间：2021年12月01日
+### 12.02.凤凰网.世卫组织批日本封国措施“难以理解”：病毒可不看国籍
 
-* * *
+[https://i.ifeng.com/c/8BdoPS1Oqfn](https://i.ifeng.com/c/8BdoPS1Oqfn)
 
-*发稿：信心的选择*
+***简评：***日本在本次爆发的奥密克戎病毒疫情立即封锁国门被世卫组织批评像极了2020年出川普总统宣布1月关闭和中共国的边境也遭受到世卫组织的批评。世卫被中共控制多年像走狗一样让什么时候叫唤就叫唤，沦为一个奴才组织，成员国的官员被中共蓝金黄控制不站出来反对世卫一次次的错误指导，追究世卫在两年多的大流行中犯下的罪恶，疫情初期纵容中共瞒报疫情，误导各国门户大开散播病毒到全世界，疫情中对疫苗引发的人类灾难视而不见，继续审批对人类造成巨大伤害的疫苗用于人体，世卫这些官员罪恶滔天，罄竹难书，现在还有脸否定日本政府，日本继今年七八月奥运会疫情大爆发后把疫情控制下了，对传染性极强的新病毒采取严肃措施是理所应当的事。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-1.jpeg)
+#   港台资讯
+![](https://himalayawashingtondc.org/wp-content/uploads/2021/12/B3254944-CB00-4714-8333-7B3BD1DDA47F-1024x576.png)![](https://himalayawashingtondc.org/wp-content/uploads/2021/12/34271E9A-5959-4112-92D5-8187A0B0F2EE-1024x576.png)![](https://himalayawashingtondc.org/wp-content/uploads/2021/12/5359C477-C589-4006-8831-5B46FF5BAEC9-1024x576.png)![](https://media.discordapp.net/attachments/858887785507323904/915782546556583946/3.PNG?width=1043&amp;height=586)
+发布：文顾
 
  
 

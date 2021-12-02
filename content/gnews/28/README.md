@@ -2,50 +2,72 @@
 ---
 
 
-## 新西兰财经G乐部 2021年12月2日
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1713367/)
+## 共和党人威胁要因疫苗授权关闭政府
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1713453/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片-1-10.jpg)
-提纲：
+**编译：西班牙巴塞罗那喜悦农场-wenwu**
 
-1、爱奇艺裁员20%-40% 亏损、选秀取消与短视频挤压生存空间
+![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip13.png)参议员迈克李（犹他州共和党）于2020年11月在国会大厦。照片：约书亚罗伯茨/盖蒂图片社
 
-2、欧盟公布3000亿欧元“全球门户”投资计划 以抗衡中共国“一带一路”倡议
+据[Politico](https://www.politico.com/newsletters/playbook/2021/12/01/scoop-conservatives-plot-government-shutdown-over-vaccine-mandate-495273?nname=playbook&amp;nid=0000014f-1646-d88f-a1cf-5f46b7bd0000&amp;nrid=49b86ef8-991f-4f21-8c07-c9f77e68b398&amp;nlid=630318)报道，众议院和参议院的保守派共和党人计划在周五（3日）迫使政府关闭，以拒绝为拜登政府对私营部门实施的疫苗授权提供所需的资金。
 
-3、Square更名为Block，重点转向区块链
+重要性：国会必须在本周末之前通过一项临时措施，将资金延长至 2022 年，但一小部分共和党人的反对意见可能会使得拜登关闭政府。
 
-4、Facebook加密货币项目负责人宣布离职
-
-正文
-
-1、爱奇艺裁员20%-40% 亏损、选秀取消与短视频挤压生存空间
-
-12月1日，爱奇艺员工张章向第一财经记者反映，目前爱奇艺正在裁员，裁员比例在20%-40%之间，裁员补偿暂按N+1发放，“但目前裁员政策还在变化中，具体发放多少还存在不确定性。”该员工表示。另外，第一财经记者向另外一位其他部门的爱奇艺员工交叉求证，目前爱奇艺确实在裁员进行中，裁员补偿按照N+1进行。截至发稿，爱奇艺方面暂未对此事发表回应。　一直以来，包括爱奇艺、腾讯视频、优酷等在内的长视频平台持续亏损。爱奇艺2021年第三季度财报显示，该季度爱奇艺总营收达到76亿元人民币，同比增长6%，归母净利润为亏损17亿元，去年同期亏损12亿元，同比扩大41.6%，整个2020年爱奇艺亏损60亿元；优酷被阿里收购后虽未披露具体数据，但阿里财报显示，2021财年阿里大文娱运营亏损为103.21亿元，经调整EBITA为亏损61.18亿元；腾讯第三季度财报未单独透露腾讯视频的亏损额度，但表示《扫黑风暴》《你是我的荣耀》仅为腾讯视频带来了400万的新增会员。
-
-[参考链接](https://finance.sina.com.cn/tech/2021-12-01/doc-ikyamrmy6189031.shtml)：
-
-2、欧盟公布3000亿欧元“全球门户”投资计划 以抗衡中共国“一带一路”倡议
-
-欧盟执委会周三公布了一项计划，拟在2027年前在全球范围内投资3,000亿欧元(3,400亿美元)用于基础设施、数字和气候项目，作为中国“一带一路”倡议的更好替代方案。该计划被称为“全球门户”(Global Gateway)，旨在加强欧洲供应链，促进欧盟贸易，并帮助应对气候变化，重点关注数字化、卫生、气候、能源和运输，以及教育和研究等领域。欧盟官员表示，中共国政府提供的融资往往对接受国不太有利、不透明的，并使一些较贫穷国家，尤其是非洲国家通过债务依赖中国。
-
-[参考链接](https://cn.reuters.com/article/eu-global-investment-cn-bri-1202-idCNKBS2IH03K)：
-
-3、Square更名为Block，重点转向区块链
-
-杰克·多西（Jack Dorsey）原推特CEO，他主管数字支付公司Square宣布，其已将公司名称改为Block，似乎是在向区块链技术转变。在周三的一条推文中，Square表示，更名后的支付公司将与Cash App、去中心化比特币交易所项目tbDEX以及音乐和视频流媒体平台Tidal结合。同时发布的一份新闻稿称，该支付公司专注于加密货币的分支机构Square Crypto也将更名为Spiral，并加入Block家族。
-
-[参考链接](https://finance.sina.com.cn/tech/2021-12-02/doc-ikyamrmy6309005.shtml)：
-
-4、Facebook加密货币项目负责人宣布离职
-
-Meta加密货币尝试失败，负责人宣布离职。Meta加密货币业务主管大卫·马库斯(David Marcus) 近日宣布，他将于年底离职。2019年Facebook 、宣布推出加密货币Libra，用于通过Facebook产品在线向世界上任何人汇款，但以失败告终。Facebook的加密货币雄心遭到了全球立法者和监管部门的强硬抵制。现在，Libra已更名Diem，由一个独立协会负责运营，依旧尚未面向大众发布。马库斯离职后，Meta高管史蒂芬·卡斯里尔 (Stephane Kasriel) 将接替他担任公司Novi金融产品部门主管。
-
-[参考链接](https://finance.sina.com.cn/stock/usstock/c/2021-12-01/doc-ikyakumx1275001.shtml)：
+- 拜登总统要求对[拥有 100 名或更多工人的雇主](https://www.axios.com/covid-vaccine-mandate-private-sector-biden-osha-eea6e85d-fefe-4e4b-8cc0-0564c764bdf4.html)，以及参与医疗保险和医疗补助的设施的医护人员的疫苗授权已经受到挑战，并被多个联邦法院[质疑和叫停](https://www.axios.com/biden-covid-vaccine-mandate-health-workers-c27f0dde-383a-4e87-b86b-b9d4babf629e.html)。
 
 
+他们在说什么： “我相信我们都希望简化解决 CR 的程序，但如果不解决疫苗授权的要求，我就无法促进这一进程，”共和党参议员 Mike Lee（犹他州，如图）告诉 Politico。
 
-审核校对：Barry Jack
-上传排版：F
+- “鉴于全国各地的联邦法院都对这些疫苗授权提出了严重的问题，我的民主党同事至少在持续决议的时间内推迟执行疫苗授权，并非没有道理。”
+- “参议院立即有了杠杆作用，我们认为众议院共和党人应该支持任何数量的参议院共和党人……使用所有程序性工具来拒绝周五晚上的持续决议通过—除非他们限制将这些资金用于疫苗授权任务，”众议员自由核心小组成员奇普·罗伊（Chip Roy，R-Texas）告诉 Playbook。
+
+
+另一方面：参议院多数党领袖查克·舒默 (Chuck Schumer，DN.Y.) 表示，他已与参议院少数党领袖米奇·麦康奈尔 (Mitch McConnell，R-Ky.) 讨论避免政府关门的问题。
+
+- “任何一小群成员都可以说他们想关闭政府，只要他们认为这是正确的。我们将完全陷入混乱；这取决于双方领导人，以确保这不会发生，”舒默说。
+
+
+大局：众议院自由核心小组[周三](https://twitter.com/freedomcaucus/status/1466069120894517256)（1日）给麦康奈尔发[了一封信](https://twitter.com/freedomcaucus/status/1466069120894517256)，敦促他拒绝资金立法的通过，除非它根本上禁止拜登政府执行其疫苗授权任务。
+
+- 当被记者问及拜登政府可能会因疫苗授权而关闭时，[麦康奈尔说](https://twitter.com/alaynatreene/status/1466109822588305413)：“我认为我们会没事的。”
+
+
+深入报道：
+
+周二（30日），拜登政府被肯塔基州和路易斯安那州的联邦法官暂时阻止了，对数百万工人强制执行中共病毒（COVID-19）疫苗接种。
+
+大局：肯塔基州和路易斯安那州联邦法官发出这一命令的前一天，正值密苏里州的一名联邦法官[停止](https://www.axios.com/covid-vaccine-mandate-biden-health-workers-d16fc36c-daa9-4efa-8048-59ff9ec076a3.html)了在 10 个州的截止日期为 1 月 4 日[的疫苗授权](https://www.axios.com/covid-vaccine-mandate-biden-health-workers-d16fc36c-daa9-4efa-8048-59ff9ec076a3.html)。
+
+- 路易斯安那州门罗的美国地方法官特里·道蒂 (Terry Doughty) 的初步禁令暂时阻止了医疗保险和医疗补助服务中心 (Centers for Medicare & Medicaid Services) 执行其对卫生保健工作者的疫苗授权，直到法律挑战结束。
+- 路易斯安那州总检察长杰夫·兰德里 (Jeff Landry，R) 和其他 13 个州的总检察长对案件的裁决适用于所有州，但已受密苏里州命令影响的 10 个州除外。
+
+
+与此同时，[据路透社报道](https://www.reuters.com/legal/government/us-judge-blocks-vaccine-mandate-contractors-three-states-2021-11-30/)，美国地区法官 Gregory Van Tatenhove 在肯塔基州法兰克福发布了一项类似的裁决，该裁决暂时阻止了新的政府合同中疫苗授权条款的执行。
+
+- 这一裁决影响到肯塔基州、俄亥俄州和田纳西州，这些州在诉讼中对这拜登疫苗授权要求提出了质疑。
+
+
+他们在说什么：道蒂[在周二的意见](https://content.govdelivery.com/attachments/MTAG/2021/11/30/file_attachments/2008888/Nationwide%20Injunction%20-%20CMS%20mandate.pdf)中[写道，](https://content.govdelivery.com/attachments/MTAG/2021/11/30/file_attachments/2008888/Nationwide%20Injunction%20-%20CMS%20mandate.pdf)在这种情况下，拜登政府无权绕过国会。
+
+- “如果允许行政部门篡夺立法部门制定法律的权力，我们宪法赋予的三项权力中的两项将掌握在同一手中，”他写道。
+- “如果说人性和历史教导了什么，那就是当政府宣布无限期紧急状态时，公民自由面临严重风险。”
+- 他补充说：“在像这样的大流行期间，保护我们宪法中规定的权力分立以避免侵蚀我们的自由，更为重要。”
+
+
+看点：对道蒂裁决的上诉将提交至位于新奥尔良的美国第五巡回上诉法院，该[法院确认了下级法院的决定](https://www.axios.com/appeals-court-stay-biden-vaccine-mandate-companies-2a4c99b0-05d4-4237-ac1d-8eb60bc7329a.html)，即阻止拜登总统对拥有 100 多名工人的企业实施疫苗接种的强制令。
+
+- 司法部拒绝置评。
+
+
+**新闻来源**：[axios.com] [Republicans threaten to shut down government over vaccine mandates](https://www.axios.com/gop-government-shutdown-covid-vaccine-mandate-5f701c98-3a70-407d-be28-ecce3dc3608e.html) |发布时间：2021年12月01日｜
+
+* * *
+
+***发稿：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-1.jpeg)
+
+
 
  
 
