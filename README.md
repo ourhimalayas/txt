@@ -15,110 +15,110 @@
 
 ---
 
-### [南非官方数据表明：婴幼儿更易感染奥密克戎](/content/gnews/1/README.md)
+### [人类未来：美奂绝伦还是毁灭深渊](/content/gnews/1/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [中国电信垂死挣扎 美高院驳回其主张](/content/gnews/2/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国会奥运囚犯项目直指北京冬奥](/content/gnews/2/README.md)
+### [大规模接种疫苗未能阻止冠状病毒的传播——柳叶刀](/content/gnews/3/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [蔓延30多国！奥密克戎传染极速](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [南非官方数据表明：婴幼儿更易感染奥密克戎](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美国会奥运囚犯项目直指北京冬奥](/content/gnews/6/README.md)
  ` 纽约香草山MOS01`
 
-### [新变种病毒引发全球恐惧大流行](/content/gnews/3/README.md)
+### [新变种病毒引发全球恐惧大流行](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [习近平直接策划了对维族人的系统性迫害](/content/gnews/4/README.md)
+### [习近平直接策划了对维族人的系统性迫害](/content/gnews/8/README.md)
  ` 纽约香草山MOS01`
 
-### [巨额债务压顶，华夏幸福不幸福，中国平安被套牢](/content/gnews/5/README.md)
+### [巨额债务压顶，华夏幸福不幸福，中国平安被套牢](/content/gnews/9/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国和欧盟对中共在周边海域的霸权行径表示强烈关切](/content/gnews/6/README.md)
+### [美国和欧盟对中共在周边海域的霸权行径表示强烈关切](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [矢板明夫解读中共的第三份历史决议](/content/gnews/7/README.md)
+### [矢板明夫解读中共的第三份历史决议](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [洪都拉斯新政府不与中共国建交](/content/gnews/8/README.md)
+### [洪都拉斯新政府不与中共国建交](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本铁路列车上安装摄像头，将强制化](/content/gnews/9/README.md)
+### [日本铁路列车上安装摄像头，将强制化](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [加拿大安大略省长福特的女儿的警察丈夫因未接种疫苗而被“无薪休假”](/content/gnews/10/README.md)
+### [加拿大安大略省长福特的女儿的警察丈夫因未接种疫苗而被“无薪休假”](/content/gnews/14/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [有爆料澳大利亚NSW州长曾于两年前购进PCR测试股票](/content/gnews/11/README.md)
+### [有爆料澳大利亚NSW州长曾于两年前购进PCR测试股票](/content/gnews/15/README.md)
  ` 澳喜农场`
 
-### [确凿证据机密的辉瑞文件揭露了 FDA 对疫苗死亡的犯罪掩盖……他们知道在 2021 年初，刺戳正在杀死人……女性是男性的三倍](/content/gnews/12/README.md)
+### [确凿证据机密的辉瑞文件揭露了 FDA 对疫苗死亡的犯罪掩盖……他们知道在 2021 年初，刺戳正在杀死人……女性是男性的三倍](/content/gnews/16/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [在新病毒 #奥密克戎 爆發之前 中共國早已完成前期的技术研究](/content/gnews/13/README.md)
+### [在新病毒 #奥密克戎 爆發之前 中共國早已完成前期的技术研究](/content/gnews/17/README.md)
  ` 纽约香草山MOS01`
 
-### [WTA周三宣布将暂停中国所有赛事](/content/gnews/14/README.md)
+### [WTA周三宣布将暂停中国所有赛事](/content/gnews/18/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [鲁比奥参议员提案加强美国太空产业，对抗中共侵略](/content/gnews/15/README.md)
+### [鲁比奥参议员提案加强美国太空产业，对抗中共侵略](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [秘翻在线 :快闪店铺抢劫事件在美国逐渐增加](/content/gnews/16/README.md)
+### [秘翻在线 :快闪店铺抢劫事件在美国逐渐增加](/content/gnews/20/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [脸书：中共国涉捏造“瑞士科学家” 宣传新冠假信息](/content/gnews/17/README.md)
+### [脸书：中共国涉捏造“瑞士科学家” 宣传新冠假信息](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [GTV新闻访谈简报|2021年12月2日晚](/content/gnews/18/README.md)
+### [GTV新闻访谈简报|2021年12月2日晚](/content/gnews/22/README.md)
  ` 纽约香草山MOS01`
 
-### [串珠466:中共和邪恶势力大量减少人口建地球政府](/content/gnews/19/README.md)
+### [串珠466:中共和邪恶势力大量减少人口建地球政府](/content/gnews/23/README.md)
  ` 郭爆料串珠`
 
-### [辉瑞公司第一批疫苗文件中爆出惊人的不良反应报告](/content/gnews/20/README.md)
+### [辉瑞公司第一批疫苗文件中爆出惊人的不良反应报告](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [亚底米女神-青蒿素（Artemis-Artemisinin）关联信息汇集](/content/gnews/21/README.md)
+### [亚底米女神-青蒿素（Artemis-Artemisinin）关联信息汇集](/content/gnews/25/README.md)
  ` 秘密翻译组-原创组`
 
-### [推特将美国心脏协会关于疫苗的警告标为“不安全”信息](/content/gnews/22/README.md)
+### [推特将美国心脏协会关于疫苗的警告标为“不安全”信息](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [独裁政府利用华为技术来审查新闻和记者](/content/gnews/23/README.md)
+### [独裁政府利用华为技术来审查新闻和记者](/content/gnews/27/README.md)
  ` 首尔天池农场`
 
-### [参议员米特·罗姆尼： 罗姆尼推动将维吾尔奴工法纳入国防授权法案](/content/gnews/24/README.md)
+### [参议员米特·罗姆尼： 罗姆尼推动将维吾尔奴工法纳入国防授权法案](/content/gnews/28/README.md)
  ` 美国政要直译推`
 
-### [最新调查披露中共企业巨额贿赂刚果前总统](/content/gnews/25/README.md)
+### [最新调查披露中共企业巨额贿赂刚果前总统](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新禁令被暂停，日本国民可预定航班回国](/content/gnews/26/README.md)
+### [新禁令被暂停，日本国民可预定航班回国](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [为遏制奥密克戎变种的传播，拜登政府正考虑对入境美国的游客和返美国民进行强制隔离](/content/gnews/27/README.md)
+### [为遏制奥密克戎变种的传播，拜登政府正考虑对入境美国的游客和返美国民进行强制隔离](/content/gnews/31/README.md)
  ` 首尔天池农场`
 
-### [用脚投票,香港师生以倍速辞职和退学](/content/gnews/28/README.md)
- ` 丁过`
-
-### [德国宣布对未接种中共病毒疫苗的人将进行封锁](/content/gnews/29/README.md)
+### [德国宣布对未接种中共病毒疫苗的人将进行封锁](/content/gnews/32/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [比尔·盖茨提及天花病毒恐怖袭击意欲何为？](/content/gnews/30/README.md)
+### [比尔·盖茨提及天花病毒恐怖袭击意欲何为？](/content/gnews/33/README.md)
  ` 首尔天池农场`
 
-### [诺瓦克·德约科维奇：网球男单世界第一的父亲对他参加澳网表示怀疑](/content/gnews/31/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [昆士兰大学将实行自己的疫苗规定](/content/gnews/32/README.md)
- ` 走进澳洲`
-
-### [延迟债务暴雷，中共国房地产还撑多久？](/content/gnews/33/README.md)
+### [延迟债务暴雷，中共国房地产还撑多久？](/content/gnews/34/README.md)
  ` 墨尔本雅典娜农场`
 
-### [文贵视角:洗米华被捕代表习近平不是神](/content/gnews/34/README.md)
+### [文贵视角:洗米华被捕代表习近平不是神](/content/gnews/35/README.md)
  ` 秘密翻译组-原创组`
-
-### [雅典娜时报-第131期](/content/gnews/35/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [🌹🌹🌹郭文贵先生新歌“Hcoin to the moon”上线啦](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
@@ -126,44 +126,44 @@
 ### [未来的喜币数字银行可能有哪些业务？](/content/gnews/37/README.md)
  ` 文永`
 
-### [澳洲退伍军人谈为什么要参加游行抗议](/content/gnews/38/README.md)
+### [抽象的人权在生活中的体现](/content/gnews/38/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [澳洲退伍军人谈为什么要参加游行抗议](/content/gnews/39/README.md)
  ` 澳喜农场`
 
-### [七哥谈：Omicron和灭共](/content/gnews/39/README.md)
+### [七哥谈：Omicron和灭共](/content/gnews/40/README.md)
  ` MG FARM`
 
-### [七哥谈：青蒿素](/content/gnews/40/README.md)
+### [七哥谈：青蒿素](/content/gnews/41/README.md)
  ` MG FARM`
 
-### [2021/12/02 大卫作战室直播精要](/content/gnews/41/README.md)
+### [2021/12/02 大卫作战室直播精要](/content/gnews/42/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [日本前首相安倍晋三警告中共不要对台湾轻举妄动](/content/gnews/42/README.md)
+### [日本前首相安倍晋三警告中共不要对台湾轻举妄动](/content/gnews/43/README.md)
  ` 日本东京方舟农场`
 
-### [秘翻在线: 脸书关闭了与中共虚假宣传有关的账户](/content/gnews/43/README.md)
+### [秘翻在线: 脸书关闭了与中共虚假宣传有关的账户](/content/gnews/44/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2021年12月1日郭文贵先生直播全文字版](/content/gnews/44/README.md)
+### [2021年12月1日郭文贵先生直播全文字版](/content/gnews/45/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [彭帅事件继续燃烧：WTA暂停所有中国赛事](/content/gnews/45/README.md)
+### [彭帅事件继续燃烧：WTA暂停所有中国赛事](/content/gnews/46/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [埃内斯-坎特（Enes Kanter）从改姓为“自由人”（Freedom）](/content/gnews/46/README.md)
+### [埃内斯-坎特（Enes Kanter）从改姓为“自由人”（Freedom）](/content/gnews/47/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中国希望结束其科技巨头过去在外国证券交易所上市的法律真空](/content/gnews/47/README.md)
+### [中国希望结束其科技巨头过去在外国证券交易所上市的法律真空](/content/gnews/48/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [12/1/2021 文贵直播：江家控制了近三分之一的比特币，孟控制了火币、海外黑帮、贩毒和贩卖人口，他们认为习就是个傻子](/content/gnews/48/README.md)
+### [12/1/2021 文贵直播：江家控制了近三分之一的比特币，孟控制了火币、海外黑帮、贩毒和贩卖人口，他们认为习就是个傻子](/content/gnews/49/README.md)
  ` 秘密翻译组-北美组`
 
-### [12/1/2021 文贵直播：习近平给中国人和全世界带来的巨大灾难背后的关键人物就是王岐山和孟建柱](/content/gnews/49/README.md)
+### [12/1/2021 文贵直播：习近平给中国人和全世界带来的巨大灾难背后的关键人物就是王岐山和孟建柱](/content/gnews/50/README.md)
  ` 秘密翻译组-北美组`
-
-### [全世界所有现代化的科技产品几乎都是美国创造出来的](/content/gnews/50/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [爱尔兰通过决议力挺台湾，谴责中共侵害人权](/content/gnews/51/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

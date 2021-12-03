@@ -2,40 +2,24 @@
 ---
 
 
-## 诺瓦克·德约科维奇：网球男单世界第一的父亲对他参加澳网表示怀疑
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1715128/)
+## 为遏制奥密克戎变种的传播，拜登政府正考虑对入境美国的游客和返美国民进行强制隔离
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1715155/)
 
-翻译： 真北007
-![](https://assets.gnews.org/wp-content/uploads/2021/12/skysports-novak-djokovic-tennis_5590209.jpg)图片来源：网络
-来自SKY SPORTS 11月29日的新闻报道：
+韩国首尔天池农场
+翻译：zzballack
+上传：追着曙光跑
 
-组织者表示，所有球员在墨尔本都必须接种疫苗； 德约科维奇尚未透露他是否接种了疫苗；其父 Srdjan Djokovic：“在这些敲诈勒索等条件下，（Djokovic）可能不会（上场）。”
+据《国家评论》（National Review）12月1日报道，拜登政府预计将在12月2日宣布对所有入境美国的游客实施更严格的检测要求，包括返回美国的美国人，以遏制奥密克戎变种的传播。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Image-2021-12-03-at-11.03.20.jpeg)图片来源：原新闻
+据报道，三位联邦卫生官员告诉《华盛顿邮报》（Washington Post），新的指导意见将要求所有入境者必须在登机前一天接受新冠检测，并在抵达美国后三至五天内再次接受检测，无论其疫苗接种状况如何或出发国是哪里。美国官员还在权衡一项更严格的要求，比如即使检测结果为阴性，旅客也应自我隔离七天。违反规定的人可能会受到罚款，这或是美国第一次在旅客检疫措施中加入惩罚性条款。
 
-诺瓦克·德约科维奇的父亲说，除非放宽对 Covid-19 疫苗接种的规定，否则世界第一不太可能在明年初参加澳大利亚网球公开赛。
+虽然这两项检测措施包括在美国疾控中心（CDC）撰写的公共卫生命令草案中，该草案目前正在接受美国卫生与公众服务部和白宫官员的审查，但自我隔离的相关要求暂时未被写入草案中，如果这些建议获得更广泛的认可，则可能在以后加入。
 
-明年首个大满贯赛事（于 1 月 17 日开始）的组织者已经表示，所有球员都必须接种疫苗才能参加。
+美国目前的规定是，在前往美国的旅客中，若能出示疫苗的完全接种证明，则只需要在出发前72小时做核酸检测，否则就必须在24小时内做检测。CDC在11月30日晚间发布的一份声明中说，正推动将所有国际旅客出发前的检测时限缩短至24小时。
 
-到目前为止，德约科维奇拒绝透露他是否接种了疫苗，他的父亲告诉塞尔维亚电视台 Prva，管理机构澳大利亚网球协会对球员接种疫苗的立场无异于“敲诈”。
+现在尚不清楚新政策何时生效，具体细节也仍在敲定中。据一位官员透露，新政策有可能在一两个星期内实施。
 
-据新闻网站 B92 报道，Srdjan Djokovic 说：“就疫苗和非疫苗而言，是否接种疫苗是我们每个人的个人权利。
-
-“没有人有权进入我们的亲密关系。
-
-“在这些勒索和限制条件下，（德约科维奇）可能不会（上场）。
-
-“我不会那样做。他是我的儿子，所以你自己决定。”
-
-德约科维奇在墨尔本一直占据统治地位，包括今年在内九次夺冠。
-
-他坐拥 20 个男子大满贯冠军头衔，与罗杰·费德勒和拉斐尔·纳达尔齐名，是历史上最多的。
-
-原文链接：[https://www.skysports.com/tennis/news/12110/12482028/novak-djokovic-world-no-1s-father-casts-doubt-on-his-australian-open-participation](https://www.skysports.com/tennis/news/12110/12482028/novak-djokovic-world-no-1s-father-casts-doubt-on-his-australian-open-participation)
-
-编辑/发布：LILY
-
-20211202
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
-
+新闻来源：[Biden Admin Considering Mandatory Quarantine for Americans Returning from Abroad](https://www.nationalreview.com/news/biden-admin-considering-stricter-covid-19-testing-for-all-travelers-to-u-s-including-returning-americans-report/)
 
  
 

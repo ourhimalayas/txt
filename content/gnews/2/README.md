@@ -2,37 +2,31 @@
 ---
 
 
-## 美国会奥运囚犯项目直指北京冬奥
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1715430/)
+## 中国电信垂死挣扎 美高院驳回其主张
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1715463/)
 
-作者：东京樱花团 – 在远方
+撰稿：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3-7.jpg)
+[图片来源](https://search.yahoo.co.jp/image/search?aa=0&amp;aq=-1&amp;ei=UTF-8&amp;fr=yjapp3_ios_wv&amp;p=%E4%B8%AD%E5%9B%BD%E9%9B%BB%E4%BF%A1&amp;ts=18049#8bf34f0fcf0de08cd9333304f28e2f9a)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-25.png)
+12月2日，位于华盛顿特区的美国联邦上诉法院驳回了中共大型电信公司——中国电信提出的要求，该公司要求禁止联邦通信委员会（FCC）撤销其美国营业执照的决定。该案被驳回。
 
-当地时间12月2日，美国国会及行政当局中共委员会主席默克利，和共同主席麦戈文，宣布启动奥运囚犯社交媒体项目，在北京冬奥之前凸显被中共非法关押的政治犯问题。
+FCC的决定将于明年1月初生效。中国电信的美国子公司曾提出动议，要求在对该案进行全面听证之前，暂停FCC的决定。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/捕获1.png)
+中国电信此前警告说，必须在12月4日之前向其在美国的客户传达FCC的决定。如果联邦通信委员会的决定不被暂时中止，它“将被迫大幅暂停其业务，这将对其运营、声誉和相关方造成不可挽回的损失”。
 
-该委员会称，这个项目突出显示了美国所掌握的数据库中抽取的政治犯。由于对中共在冬奥会期间，保证自由和不受限制的媒体采访受到强烈质疑，因此项目中第一批突出的政治犯，将是被中共监禁的记者和公民记者。随后几周内，委员会将在数据库中多达1500名已知政治犯中，重点发现维族人、藏人、港人、劳工活动人士、基督徒、法轮功、人权律师、妇女权利和民主促进人士。
+与此同时，美国高等法院表示，将确定审理该案的日期。然而，这预计需要几个月的时间。
 
-默克利和麦戈文在这个倡议项目视频中强调，他们呼吁全世界和国际奥委会向中共施压，迫使他们释放良心犯。因为中共政府玷污了奥运会精神。
+看来中国电信离彻底被从美国赶出的日子越来越近了。中共“蓝金黄”的又一个爪牙被FCC砍断了。看你还能折腾多久！
 
-参考链接：
+信息来源:
 
-- [美国国会启动奥运囚犯项目，在冬奥前突出中国的政治犯](https://www.voachinese.com/a/cecc-highlights-political-prisoner-in-china-20211202/6337707.html)
+[中国電信の米免許取り消し、米高裁が差し止め請求棄却](https://news.yahoo.co.jp/articles/82dd3f542a4c6514f52c2fe3fac86c201d3ceaa8)
 
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-1.png)
-
-编辑：文徬
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

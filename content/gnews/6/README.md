@@ -2,26 +2,38 @@
 ---
 
 
-## 美国和欧盟对中共在周边海域的霸权行径表示强烈关切
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1715375/)
+## 美国会奥运囚犯项目直指北京冬奥
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1715430/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/45.jpg)[图片来源](https://k.sina.cn/article_3960997982_ec18085e00100lcfy.html)
-周四（12月2日)，美国副国务卿舍曼(谢尔曼, Wendy Sherman)和欧盟对外行动署(European External Action Service)秘书长Stefano Sannino在华盛顿会晤后发表了联合声明，对中共在南海、东海以及台湾海峡的“单方面问题行径 ”表示强烈关切。
+作者：东京樱花团 – 在远方
 
-第二届美欧中共国议题对话的会后声明“强调美国和欧盟在投资和发展经济、在可能的领域与中共国合作、以及负责任地管理与中共国的竞争和系统性竞争时，就双方各自的做法保持持续密切接触是非常重要的”。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-25.png)
 
-声明称，双方讨论了中共在包括新疆、西藏和香港等地的侵犯人权问题，并称双方表示已做好准备，加深信息共享以应对中共资助或支持的信息歪曲问题。
+当地时间12月2日，美国国会及行政当局中共委员会主席默克利，和共同主席麦戈文，宣布启动奥运囚犯社交媒体项目，在北京冬奥之前凸显被中共非法关押的政治犯问题。
 
-“他们还对中共在南海和东海以及台湾海峡采取的单方面问题行径表示强烈关切，这些行动破坏了地区和平与安全，并直接影响到美国和欧盟的安全和繁荣，”声明补充说。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/捕获1.png)
 
-消息来源:
+该委员会称，这个项目突出显示了美国所掌握的数据库中抽取的政治犯。由于对中共在冬奥会期间，保证自由和不受限制的媒体采访受到强烈质疑，因此项目中第一批突出的政治犯，将是被中共监禁的记者和公民记者。随后几周内，委员会将在数据库中多达1500名已知政治犯中，重点发现维族人、藏人、港人、劳工活动人士、基督徒、法轮功、人权律师、妇女权利和民主促进人士。
 
-[美国和欧盟对中国在周边海域“单方面问题行径”表示强烈关切](https://cn.reuters.com/article/us-eu-china-tw-strait-1203-idCNKBS2II04O?il=0)
+默克利和麦戈文在这个倡议项目视频中强调，他们呼吁全世界和国际奥委会向中共施压，迫使他们释放良心犯。因为中共政府玷污了奥运会精神。
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+参考链接：
+
+- [美国国会启动奥运囚犯项目，在冬奥前突出中国的政治犯](https://www.voachinese.com/a/cecc-highlights-political-prisoner-in-china-20211202/6337707.html)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-1.png)
+
+编辑：文徬
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

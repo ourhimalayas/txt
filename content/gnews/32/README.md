@@ -2,46 +2,26 @@
 ---
 
 
-## 昆士兰大学将实行自己的疫苗规定
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1715120/)
+## 德国宣布对未接种中共病毒疫苗的人将进行封锁
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1715133/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-7.png)图片来源：互联网
-翻译：小鱼儿
-编辑：MSGZ
+**撰稿：Grace**
 
-即使昆士兰州政府拒绝，三所主要大学也将实施自己的疫苗授权。
+**校对：Grace**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-02-at-8.22.10-PM.jpeg)图片来源：雅虎
+据The Gateway Pundit 12月2日报道，德国宣布在全国范围内对未接种中共病毒疫苗的人进行封锁。
 
-安纳斯塔西娅·帕拉斯楚克的政府正面临着来自教育部门和健康专家越来越多的呼吁，要求在高等教育校园内推行疫苗强制接种。
+几周前，德国总理安格拉·默克尔宣布，将对未接种中共病毒疫苗者的公共生活的很大一部分加以限制。默克尔更是无耻地说，医院里挤满了中共病毒患者，是因为人们拒绝接受中共病毒疫苗的注射。
 
-周二，州长宣布对公立和私立学校、托儿所、监狱、青少年拘留所和机场的工作人员实行全面的疫苗强制接种，但不包括大学。
+在本周四，安格拉·默克尔和下周将接替她的副总理奥拉夫·舒尔茨，在与地区领导人进行危机谈判后宣布了新的强制中共病毒疫苗规定。该规定有以下的这些要求：医院、护理院员工必须注射中共病毒疫苗。在圣诞节前注射的中共病毒疫苗数量要多达3000万支。增加能够管理疫苗的人员数量。只有接种过疫苗的人和感染过中共病毒而已经得到恢复的人才能进入餐厅，剧院和非必要的商店。对未接种疫苗的人实行更严格的接触限制。在感染率高的地方关闭夜总会。限制大型公共活动中的观众人数。扩大危机单位，以协调联邦，区域行动。
 
-昆士兰大学、格里菲斯大学和南昆士兰大学已经自作主张，计划禁止未接种疫苗的工作人员和学生。
+即将离任的卫生部长延斯·斯潘（Jens Spahn）周四在接受ZDF电视台采访时说：“这实际上是对未接种疫苗者的封锁。” 斯潘还说，目前在德国有超过1200万的成年人没有接种中共病毒疫苗。
 
-昆士兰大学打算在12月17日国家放宽限制时，禁止未接种疫苗的学生进入校园和参加毕业典礼，并 “优先努力为健康学生接种疫苗”。
+据CNN报道，默克尔周四在卸任前的最后一次新闻发布会说，在议会进行辩论并遵循德国道德委员会(Germany’s Ethics Council)的指导后，全国范围内的中共病毒疫苗接种指令可能会从 2022 年 2 月开始生效。
 
-但代表昆士兰大学教职员工的工会认为，各机构不应负责在校园内推出疫苗任务，这在后勤上很难执行。
+**新闻来源：[Germany Imposes Nationwide Lockdown For the Unvaxxed](https://www.thegatewaypundit.com/2021/12/germany-imposes-nationwide-lockdown-unvaxxed/)**
 
-全国高等教育工会昆士兰分部秘书迈克尔·麦克纳利（Michael McNally）担心，整个部门不一致的方法可能会使脆弱的工作人员处于危险之中。
-
-麦克纳利先生说，他对政府本周宣布对学校的授权而将大学排除在讨论之外感到吃惊。
-
-昆士兰大学流行病学家和公共卫生医生琳达·塞尔维也对各州和地区的疫苗要求中忽视大学感到惊讶。
-
-州政府还将从12月17日起禁止未接种疫苗的人进入该州的所有场所。
-
-数据显示，86.46%的昆士兰人已经接种了一针疫苗，76.44%的人已经完全接种。
-
-参考新闻：
-
-[Queensland universities to impose their own vaccine mandates](https://www.dailymail.co.uk/news/article-10262789/Queensland-universities-impose-vaccine-mandates-government-refuses-ban.html)
-
-发布：Peter Xin
-
-**更多****资讯****，****请关****注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**[Germany locks down unvaccinated people, as leaders plan to make shots compulsory](https://www.cnn.com/2021/12/02/europe/germany-lockdown-covid-restrictions-intl/index.html)**
 
  
 

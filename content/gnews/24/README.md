@@ -2,59 +2,22 @@
 ---
 
 
-## 参议员米特·罗姆尼： 罗姆尼推动将维吾尔奴工法纳入国防授权法案
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1715176/)
+## 辉瑞公司第一批疫苗文件中爆出惊人的不良反应报告
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1715206/)
 
-众议员迈克·麦考尔： 中国法律要求像 Fulgent 这样的公司将他们的数据交给中共，他们不应该访问美国人的敏感健康数据。我赞扬洛杉矶县警长部门提请注意这一紧迫问题。 【附自由灯塔新闻报道： FBA警告一加州遗传（测序）公司很可能与中共国分享美国人的健康数据 】
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片3-14.png)
+图片来源：网络截图
 
+据零对冲12月2日报道，美国食品和药物管理局（FDA）对辉瑞公司中共病毒疫苗相关数据的极度缓慢的发布已经取得了成果，尽管每月只公布500页，329,000页的数据需要到2076年才能完成，但已公布的数据是令人震惊的。
 
+凯尔·贝克尔的首次报告显示，共有42,086份不良反应的案例报告（医学证实的为25379例，非医学证实16,707例），涵盖在总共158,893个案例中。其中美国有13,739例，英国13,404例，意大利2,578例，德国1,913例，法国1,506例，葡萄牙866例，西班牙756例，剩余的7,324例分布在其他56个国家。其中超过25,000个案例被归类为 “神经系统紊乱”。
 
-> Companies like Fulgent are required by Chinese law to turn their data over to the CCP, and shouldn’t have access to Americans’ sensitive health data. I commend the L.A. County Sheriff’s Department for drawing attention to this urgent issue.[https://t.co/9Gmbrb2PAy](https://t.co/9Gmbrb2PAy)
-> — Michael McCaul (@RepMcCaul) [December 2, 2021](https://twitter.com/RepMcCaul/status/1466510989017468936?ref_src=twsrc%5Etfw)
+自该疫苗公开使用以来，OpenVAERS全球数据库中已有超过91.3万份不良事件报告，其中19,249例死亡，97,561例入院，101.372例急症，3,071例流产，9,546例心脏病发作，14,428例心肌炎/心包炎，30,967例永久残疾，4,512例血小板减少，21,583例危机生命，34,189例严重过敏反应，10,643例带状孢疹，而这只是报道中的内容。
 
+同时，推特已经暂停了@iGNORANTCHiMP的账户，Gal Shalev的推文说，根据法院的命令，FDA必须公布其为辉瑞疫苗注射的欧盟认证所依据的数据。FDA要求法院对这一信息保密不少于55年。法院返回时下令每月发布500份文件。
 
-
-参议员米特·罗姆尼： NDAA （国防授权法案）被搁置是因为发言人佩洛西 和参议员舒默拒绝就一项阻止 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 奴工制造的商品进入美国的条款进行投票。现在是打击中共国奴隶制的最佳时机。我们可以完成它。 【附视频：罗姆尼推动将维吾尔奴工法纳入国防授权法案】
-
-
-
-> The NDAA is being held up because [@SpeakerPelosi](https://twitter.com/SpeakerPelosi?ref_src=twsrc%5Etfw) and [@SenSchumer](https://twitter.com/SenSchumer?ref_src=twsrc%5Etfw) are refusing to allow a vote on a provision that prevents Chinese goods made with forced labor from entering the U.S. Now is the perfect time to strike a blow against China's slavery. We can get it done. [pic.twitter.com/oNYWBI6AOS](https://t.co/oNYWBI6AOS)
-> — Senator Mitt Romney (@SenatorRomney) [December 2, 2021](https://twitter.com/SenatorRomney/status/1466504485551984645?ref_src=twsrc%5Etfw)
-
-
-
-参议员卢比奥新闻办公室： 参议员卢比奥提出立法，以强化美国航天工业对抗 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) [#ChineseCommunistParty](https://twitter.com/hashtag/ChineseCommunistParty?src=hashtag_click) 的侵略。 【附参议院官网发布的此法案相关内容】
-
-
-
-> Sen. Rubio introduced legislation to strengthen the U.S. space industry against [#ChineseCommunistParty](https://twitter.com/hashtag/ChineseCommunistParty?src=hash&amp;ref_src=twsrc%5Etfw) aggression. [https://t.co/7URk5C8JrS](https://t.co/7URk5C8JrS)
-> — Senator Rubio Press (@SenRubioPress) [December 2, 2021](https://twitter.com/SenRubioPress/status/1466485474546135041?ref_src=twsrc%5Etfw)
-
-
-
-参议员瑞克·斯科特: 当你就 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 问题向大多数华尔街高管提出质疑时，就会发生以下情况。 他们对其投资加倍下注，因为他们更关心金钱而不是基本的人类尊严。 【转推文中说，桥水公司CEO 雷·达里奥在接受CNBC采访中竟然说，在中共国专制社会中，中共表现得像一个严格的父母一样。。】
-
-
-
-> Here's what happens when you challenge most Wall Street execs about Communist China.
-> 
-> They double down on their investments because they care more about money than they do about basic human dignity. [https://t.co/06QJAZexwA](https://t.co/06QJAZexwA)
-> — Rick Scott (@SenRickScott) [December 2, 2021](https://twitter.com/SenRickScott/status/1466456310669533189?ref_src=twsrc%5Etfw)
-
-
-
-众议员迈克·沃尔茨： 很自豪与众议员玛丽亚·萨拉查[@RepMariaSalazar](https://twitter.com/RepMariaSalazar) 和同事一起推动《共产主义法案》，该法案旨在教育我们的孩子了解 [#共产主义](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89?src=hashtag_click) 的危险性。 有超过一亿人被以共产主义意识形态为名遭到杀害，我们的孩子应该接受这个现实的教育。
-
-
-
-> Proud to stand with [@RepMariaSalazar](https://twitter.com/RepMariaSalazar?ref_src=twsrc%5Etfw) and colleagues to promote the Communism Act to educate our children on the dangers of communism.
-> 
-> Well over 100 million people have been killed in the name of the communist ideology and our kids should be taught this reality. [https://t.co/Dsr4DLsoxA](https://t.co/Dsr4DLsoxA)
-> — Rep. Mike Waltz (@michaelgwaltz) [December 2, 2021](https://twitter.com/michaelgwaltz/status/1466451608435314693?ref_src=twsrc%5Etfw)
-
-
-
-
+新闻来源：[Over 42,000 Adverse Reaction Reports Revealed In First Batch Of Pfizer Vax Docs](https://www.zerohedge.com/covid-19/over-42000-adverse-reaction-reports-revealed-first-batch-pfizer-vax-docs)
 
  
 

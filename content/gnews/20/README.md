@@ -2,22 +2,21 @@
 ---
 
 
-## 辉瑞公司第一批疫苗文件中爆出惊人的不良反应报告
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1715206/)
+## 秘翻在线 :快闪店铺抢劫事件在美国逐渐增加
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1715261/)
 
-编译：花岗岩
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片3-14.png)
-图片来源：网络截图
+撰稿：William
+校对：牛小妹
+![](https://assets.gnews.org/wp-content/uploads/2021/12/biden-1.jpg)
+图片来源：网路
 
-据零对冲12月2日报道，美国食品和药物管理局（FDA）对辉瑞公司中共病毒疫苗相关数据的极度缓慢的发布已经取得了成果，尽管每月只公布500页，329,000页的数据需要到2076年才能完成，但已公布的数据是令人震惊的。
+根据《零对冲》(Zero Hedge) 的报导,店铺快闪抢劫成为美国各大城市最担心的事件，不仅发生在旧金山的 Louis Vuitton、Burberry 和 Yves Saint Laurent 等精品店铺，南加州的 Canoga Park Nordstrom等高端商家也被波及。在五分钟以内，20个多个人快速冲进去把店内例如珠宝、首饰以及精品皮件等高单价商品扫空，然后再进行分赃获利。
 
-凯尔·贝克尔的首次报告显示，共有42,086份不良反应的案例报告（医学证实的为25379例，非医学证实16,707例），涵盖在总共158,893个案例中。其中美国有13,739例，英国13,404例，意大利2,578例，德国1,913例，法国1,506例，葡萄牙866例，西班牙756例，剩余的7,324例分布在其他56个国家。其中超过25,000个案例被归类为 “神经系统紊乱”。
+前费城警察局长查尔斯•拉姆齐(Charles Ramsey)认为，许多高端零售店抢劫的情况可能变得更严重。拉姆齐说处理这类问题十分困难，过轻的惩罚是一个主要原因，一些地区检察官甚至表示不再起诉入店行窃，商店抢劫事件只会越来越多，快闪店内抢劫行为远比入店行窃还要更严重。
 
-自该疫苗公开使用以来，OpenVAERS全球数据库中已有超过91.3万份不良事件报告，其中19,249例死亡，97,561例入院，101.372例急症，3,071例流产，9,546例心脏病发作，14,428例心肌炎/心包炎，30,967例永久残疾，4,512例血小板减少，21,583例危机生命，34,189例严重过敏反应，10,643例带状孢疹，而这只是报道中的内容。
+目前全球病毒、疫苗灾难笼罩，导致就业危机以及公务人员、警务人员的短缺。无业歹徒看准警察人力短缺以及被逮补后的判刑轻微，高单价精品商家的抢劫事件愈来愈多，严重影响中共疫苗肆虐后的社会安全。
 
-同时，推特已经暂停了@iGNORANTCHiMP的账户，Gal Shalev的推文说，根据法院的命令，FDA必须公布其为辉瑞疫苗注射的欧盟认证所依据的数据。FDA要求法院对这一信息保密不少于55年。法院返回时下令每月发布500份文件。
-
-新闻来源：[Over 42,000 Adverse Reaction Reports Revealed In First Batch Of Pfizer Vax Docs](https://www.zerohedge.com/covid-19/over-42000-adverse-reaction-reports-revealed-first-batch-pfizer-vax-docs)
+新闻来源：[Flash Mob Looting “Will Continue” Across Country: Former Police Commissioner](http://Flash%20Mob%20Looting%20&quot;Will%20Continue&quot;%20Across%20Country:%20Former%20Police%20Commissioner)
 
  
 
