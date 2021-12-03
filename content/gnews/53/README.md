@@ -2,34 +2,24 @@
 ---
 
 
-## 美官员表示，中共对澳经济战惨遭失败
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1712464/)
+## 岸田首相紧急应对日本国民的归国困难问题
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1712618/)
 
-作者：东京樱花团—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月1日，美国白宫印太政策协调员坎贝尔在出席澳大利亚罗伊国际政策研究所举办的论坛时表示，中共妄图通过经济战的方式整垮并征服澳大利亚，但这一举动惨遭失败。非但如此，中共当局目前甚至试图谋求与澳大利亚恢复正常关系。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide3-1.jpeg)
-坎贝尔提到，今年9月，澳、英、美三国宣布成立新的安全同盟关系，这反映出国际社会对中共胁迫行为的深度担忧，也表现出不同国家联合对抗中共的决心。
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/345.png)（图片源自本文链接）
+12月2日来自TBS新闻的消息：岸田首相透露，国土交通省已要求航空公司停止飞往日本的国际航班的新的预订。作为对“奥密克戎”的防控措施的一部分，他已指示航空公司适当考虑日本国民回国的要求。
 
-作为参与拜习视频会议的成员之一，坎贝尔透露，拜登在那次视频会上揭穿了中共在商业和军事领域采取的大量胁迫行动，而中共的这些举动也催生了民主国家的联盟与安全合作。
+为了加强对“奥密克戎”菌株的防控，国土交通省（MLIT）决定要求航空公司停止抵达日本的国际航班的新预订。由于这项措施也适用于日本国民，人们普遍感到困惑，因为在国外的日本国民如果没有进行预订，就不能回国。作为对民意回应，岸田首相已指示国土交通省适当考虑日本国民返回日本的要求。
 
-坎贝尔强调，归根到底，中共从根本上畏惧那些有实力和毅力的国家。
+今后 ，会配合每日新的入国人数3500人的上线，尽快考虑安排日本国民的归国需求。
 
-参考链接：[白宫官员：北京试图以经济战整垮澳大利亚但不会得逞](https://www.voachinese.com/a/wh-official-says-china-cannot--break-australia-20211201/6334755.html)
+信息来源：[【速報】 岸田首相「日本人の帰国に配慮」を指示　“国際線新規予約停止” で（TBS系（JNN）） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/9aa52507a362b0c771b3a01a32dde2f8c750ae8d)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
 
-总编：文特 
-编辑：Kathy文艺
-校正/发稿：谐趣园
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

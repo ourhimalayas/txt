@@ -2,29 +2,36 @@
 ---
 
 
-## 七哥谈：青蒿素
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1714871/)
+## 澳洲退伍军人谈为什么要参加游行抗议
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1714911/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+翻译：June（文舜）
+视频来自电报群
+今天我在此是为了人类的基本权利-自由而战！
 
-全世界都知道青蒿素是管用的，青蒿素绝对是可以把癌症给消失了。青蒿素绝对把糖尿病，和人类存在的艾滋病，特别是现在受环境污染的脑血栓，心血管病有巨大的帮助，甚至消灭。还有青蒿素和伊维菌素连在一起，一定会把这次的病毒给解决，这科学家是很保守的人！很保守的人！他情绪，因为当医生的人心都比较狠，很少激动啊，很少情绪化。
+我去东帝汶作为老兵的原因也是如此相同，我在那里服役的原因也是如此，我代表澳大利亚为东帝汶人民争取独立和自由而服务过。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+如果你回想一下90年代，东帝汶人民曾在为自由而呐喊，他们锲而不舍地战斗，最后他们得到了自由。
 
-**关注我们**
+我非常乐意去服役，在我服完役后，我以为我会放松一下，因为我在服役期间遭受了很多痛苦，我认为自己该放松一下了，所以我退休了。
 
-Discord 账号
+但现在我不能再熟视无睹了，这一切都太垃圾了！
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+我参加了第一次游行，为自己在那里感到自豪。第二次游行，人们很恐惧，恐惧只是意味着虚假的证据显得真实，或者需要面对他们想掩饰的一切。这是一位二战老兵告诉我的。
 
-Gettr 账号
+你知道恐惧是什么吗？恐惧没什么不对，焦虑也没什么不好。
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+勇气就是当你恐惧时，即使你感到害怕但仍然做你认为正确的事情，这就是勇气的简单定义，即使我在发抖和害怕，我仍然站起来为自由而战。
+
+我们都需要那样做，没有这些澳大利亚人，这些奖章就没有任何意义。
+
+我们要作为一个团队一起战斗，我们就是兄弟姐妹。我有妻子，有孩子，我也是人。我不关心你的肤色；我不在乎你是否称自己亚瑟或玛莎；我不在乎你是男是女。
+
+如果你是一个人，你想要自由，你不想被关在笼子里，那就让我们一起行动吧！
+
+编辑发布：Jenny
+![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-2.jpg)
+
 
  
 

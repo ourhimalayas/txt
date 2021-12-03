@@ -2,24 +2,32 @@
 ---
 
 
-## COVID-19 最新情报｜欧盟委员会主席：欧盟是时候该为所有公民强制接种疫苗
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1713037/)
+## 日本前首相安倍警告，中共入侵台湾将是“经济自杀”
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1713168/)
 
-**撰文｜ 台湾宝岛农场 疫情关注组 / 发布时间｜2/12/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1.jpg)
-更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）
+【雅典娜快讯】，紧贴时代脉搏
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-13.jpg)图片来源：Wall Street Journal
+整理报道：Lish
+编辑：文泓
 
-尽管世界各地疫苗伤害的个案数目不断攀升，各国政府依然对推动疫苗接种的热枕不减。
+本周三，日本前首相安倍晋三在台湾智库国家政策研究所组织的一个论坛上说，（中共国）武装入侵台湾将给东京带来危险，并警告中共国，入侵台湾将是“经济自杀”，日本和美国不会袖手旁观，任其发生。
 
-欧盟委员会主席乌尔苏拉·冯·德莱恩（Ursula von der Leyen）周三表示，鉴于过去几日“具有高传染性”的 Omicron 变种病毒发现病例不断增加，欧盟国家是时候开始评估为所有公民强制接种COVID-19 疫苗，各成员国应展开讨论以寻求共识。
+“台湾的紧急状况就是日本的紧急状况，因此也是美日联盟的紧急状况”，他说：“北京的中共官员，特别是习近平主席，在这一点的认识上绝不应该有误。”安倍补充说，日本尖阁群岛距离台湾仅有100公里（62英里）左右。
 
-她续指，欧盟 27 个成员国应迅速部署加强剂的接种计划，并建议各国“暂时”执行旅行前 PCR 检测，以有效规管欧盟人的行动自由，回归欧盟的基本价值。
+安倍进一步的警告说：“中共国的冒险主义可能敲响了经济的丧钟，军事冒险将走向经济自杀之路。我们必须不断重申，保持中共国和台湾之间的和平关系是其唯一的选择。”
 
-尽管她在当日的发言中提及，“… … 不是每个人都可以接种疫苗的——例如儿童或有特殊疾病的人——但绝大多数人可以。”但这位医生出身的德国籍政客，仍然在周三高调宣布，5～11 岁辉瑞儿童疫苗将于 12 月 13 日可交付使用，建议各国就如何鼓励接种展开讨论。
+对此，中共国在周三作出回应，外交部谴责安倍晋三的言论，并通过外交渠道对这位日本前领导人的言论提出严正交涉。中共声称台湾是中共国领土不可分割的一部分，它还与日本在尖阁群岛问题上存在长期的领土争端。
 
-较早前，希腊和奥地利已率先就强制性疫苗接种推行更严厉措施，任何不遵守强制令的人都会被罚款或监禁。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner.jpg)
-来源｜[MP](https://en.mercopress.com/2021/12/01/ursula-von-der-leyen-says-time-europe-eyed-mandatory-vaccination) / [Politico](https://www.politico.eu/article/commission-president-childrens-vaccines-coming-in-mid-december/)
+参考链接：[Beijing is warned not to commit ‘economic suicide’ — RT World News](https://www.rt.com/news/541851-china-taiwan-japan-abe/)
+
+发布：kk
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

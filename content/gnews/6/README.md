@@ -2,29 +2,42 @@
 ---
 
 
-## 七哥谈：Omicron和灭共
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1714884/)
+## 吉姆·乔丹议员称宪法会战胜疫苗强制令
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1714940/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-Omicron出来以后，他这个人很迷信，我发现科学家到最后全都迷信，医学家最后全都不信医学，全都迷信。他说你不要看这次习这个字啊，他说我觉得这是天意啊，轮就轮到习那去了。他咋就世界了，他是百亿分之概率啊，视为组织就没想到这么一事，轮到了这个病毒叫XI病毒，他说这是名副其实啊，这最重要的是搞了一个叫Omicron，他说Omicron这个词实际上是很多国家的语言，Omicron真的不是个好事，实际上就是结束的意思。他说这都是天意啊，他说这就是结束的意思啊，Omicron就是结束。然后战友居然说这是灭共，粤语什么O灭共，然后科学家跟我说，也就三周前我直播，他告诉我，文贵，你不要对外讲，你一定要等着我说，你再说，如果这次共产党弄不了大毒的话，咱们新中国联邦就厉害了。我说为什么，他说真的是新中国联邦的解药，会拯救全人类，不但解药是解的病毒，是解的疫苗。很多人一说好事就想着喜币，你们就是钱迷。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-23.jpg)
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/12/J.jpg)nowtrending.com
+《新闻纵横》（Newsmax）12月2日发表文章，题目是，“众议员吉姆·乔丹（Jim Jordan）：拜登会输，宪法会战胜疫苗强制令”。
 
-**关注我们**
+全文如下：
 
-Discord 账号
+众议员吉姆·乔丹告诉《新闻纵横》，法院对宪法的“常识和简单解读”，即可推翻乔·拜登的雇主疫苗强制令。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+“我认为宪法会获胜。”这位俄亥俄州共和党人在周三（12月1日）的“斯派塞酷”（”Spicer & Co.）节目中说，“我认为法院任何有常识和简单理解的人，就能完成对宪法的解释。所以，这就是为什么你看到这么多的法院都同意我们的观点，认为这是对美国人民的违宪令。”
 
-Gettr 账号
+据《国会山》（The Hill）报道，“众议院自由核心小组”（the House Freedom Caucus）的创始成员乔丹周三与茶党共和党联盟一起致函参议院少数党领袖密奇·麦康奈尔（Mitch McConnell）。
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+该信在该组织的推特账户上公开发布，呼吁麦康奈尔利用其掌握的所有可用工具，拒绝联邦政府对政府疫苗强制令的资金“及时通过”。
+
+乔丹在信中说：“前提是，我们为什么要资助政府，让人们不工作，让我们的边境不安全，让我们有31年来的高通胀率，然后用违宪的疫苗强制令攻击我们最基本的自由。”
+
+“众议院自由核心小组”试图将对私营部门疫苗强制令与拜登的“重建更好”（BBB，Build Back Better）基础设施计划联系起来。
+
+白宫于11月4日宣布中共病毒疫苗命令，要求100名以上的私营企业强制接种中共病毒疫苗或定期检测。
+
+这项由“职业安全与健康管理局”（OSHA）执行的命令于11月12日被美国第五巡回上诉法院暂时阻止，而根据CNBC报道，这项规定正在诉讼中。
+
+据CBS报道，众议院于11月19日通过了价值1.75万亿美元的BBB法案220-213，该法案在参议院面临障碍，目前尚不清楚中间派民主党参议员西弗吉尼亚州的乔·曼钦（Joe Manchin）和亚利桑那州的吉尔斯滕·西尼玛（Kyrsten Sinema）是否会同意众议院的规定。
+
+（全文完）
+
+乔丹议员还应该引用法院其他的两项判决，11个州对医护人员从业者疫苗强制令的取消，3个州对政府承包商疫苗强制令的取消。是的，拜登政府，“让人们不工作，让我们的边境不安全，让我们有31年来的高通胀率，然后用违宪的疫苗强制攻击我们最基本的自由。”这是向邪恶集团妥协，助力中共这样的黑暗势力的表现，美国人必须清醒，必须用投票结束这样的统治，让保守人士上位，铲除中共这类邪魔，还世界以安宁。
+
+原文链接：
+
+[https://www.newsmax.com/newsmax-tv/newsmaxtv-infrastructure-vaccinemandates/2021/12/01/id/1046985/](https://www.newsmax.com/newsmax-tv/newsmaxtv-infrastructure-vaccinemandates/2021/12/01/id/1046985/)
 
  
 

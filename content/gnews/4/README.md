@@ -2,36 +2,65 @@
 ---
 
 
-## 澳洲退伍军人谈为什么要参加游行抗议
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1714911/)
+## 🌹🌹🌹郭文贵先生新歌“Hcoin to the moon”上线啦
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1714982/)
 
-翻译：June（文舜）
-视频来自电报群
-今天我在此是为了人类的基本权利-自由而战！
+![](https://assets.gnews.org/wp-content/uploads/2021/12/16384925181.png)
+郭文贵先生再推新歌“Hcoin to the moon”，单曲甫一上线，即在多国ITUNES荣登榜首，战友们继续打榜，继续我们“以歌（文化）灭共”，以多种手段灭共的模式！
 
-我去东帝汶作为老兵的原因也是如此相同，我在那里服役的原因也是如此，我代表澳大利亚为东帝汶人民争取独立和自由而服务过。
+### 澳门、新加坡、阿联酋第一名🌈🌈🌈👏👏👏🌹🌹🌹
+![](https://assets.gnews.org/wp-content/uploads/2021/12/16384913591.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/16384913941.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/16384914271.png)
+### 台湾、匈牙利、香港第二名🌈🌈🌈👏👏👏🌹🌹🌹
+![](https://assets.gnews.org/wp-content/uploads/2021/12/16384914871.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/16384915291.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/16384915681.png)
 
-如果你回想一下90年代，东帝汶人民曾在为自由而呐喊，他们锲而不舍地战斗，最后他们得到了自由。
 
-我非常乐意去服役，在我服完役后，我以为我会放松一下，因为我在服役期间遭受了很多痛苦，我认为自己该放松一下了，所以我退休了。
+[下载地址](https://music.apple.com/au/album/hcoin-to-the-moon-single/1592902212)
 
-但现在我不能再熟视无睹了，这一切都太垃圾了！
+**附：歌词**
 
-我参加了第一次游行，为自己在那里感到自豪。第二次游行，人们很恐惧，恐惧只是意味着虚假的证据显得真实，或者需要面对他们想掩饰的一切。这是一位二战老兵告诉我的。
+Hcoin to the moon
 
-你知道恐惧是什么吗？恐惧没什么不对，焦虑也没什么不好。
+词：齐馥伟
+曲：唐平
+编曲：SFG
 
-勇气就是当你恐惧时，即使你感到害怕但仍然做你认为正确的事情，这就是勇气的简单定义，即使我在发抖和害怕，我仍然站起来为自由而战。
+自由 多么熟悉的字眼
+却不知不觉 离我越来越遥远
+曾经那个意气风发的少年
+为了生存只能拼命挣钱
 
-我们都需要那样做，没有这些澳大利亚人，这些奖章就没有任何意义。
+财富 是他们画下的大饼
+虚幻背后发现全都是陷阱
+各种经济暴雷 房价崩的稀碎
+抬起头 前路一片漆黑
 
-我们要作为一个团队一起战斗，我们就是兄弟姐妹。我有妻子，有孩子，我也是人。我不关心你的肤色；我不在乎你是否称自己亚瑟或玛莎；我不在乎你是男是女。
+welcome to the world
+to the new world
+welcome to the world
+Hcoin to the moon
+Hcoin to the moon
 
-如果你是一个人，你想要自由，你不想被关在笼子里，那就让我们一起行动吧！
+安全 最前沿加密技术出手
+让你的财富 没人能夺走
+稳定币 浮动币 设计天下无双
+还有二十帕 黄金挂钩
 
-编辑发布：Jenny
-![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-2.jpg)
+摧毁 不停压榨你的机器
+从此不再做金钱的奴隶
+喜联储的大门 永远敞开向你
+前途光明 就在喜币
 
+welcome to the world
+to the new world
+welcome to the world
+Hcoin to the moon
+
+welcome to the world
+to the new world
+welcome to the world
+Hcoin to the moon
+
+Hcoin to the moon
 
  
 

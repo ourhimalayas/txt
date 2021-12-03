@@ -2,27 +2,38 @@
 ---
 
 
-## 日本高知县公开报道疫苗死亡案例 网友为媒体态度点赞
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1713902/)
+## 疫苗引发心脏病的研究结果被掩盖
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1713984/)
 
-撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/4.jpg)
-图片来自报道截图
+作者：香草山健身部 – 童谣
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间11月30日，英国著名心脏病专家阿希姆-马贺拉爆料称，根据一位英国著名机构的研究人员向他提供的消息显示，该机构拒绝公布心脏疾病与新冠疫苗之间关联的研究结果，其原因在于，他们担心失去研究经费。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/9-1.jpg)
+最近发表在美国心脏协会科学会议上的一项研究表明，在新冠疫苗的接种者中，他们患有急性冠状动脉综合征的风险显著增加，其中，接受辉瑞和莫德纳新冠疫苗的民众患心脏疾病的风险从11%增加到了25%。
 
-12月2日，日本高知电视台报道，该县没有确认新的中共病毒感染病例。这是连续第20天没有确诊病例。另一方面，县政府宣布，上个月该县的一名男子在接种疫苗后死亡。
+有消息媒体称，而自新冠疫苗上市以来，英国因心脏疾病死亡的人数大幅增加，在那些所谓“值得信赖的专家”忙于掩盖他们发现的疫苗严重危险性时，辉瑞公司正在以每秒1000美元的盈利大赚特赚。
 
-据该县政府称，上个月，该县一名50多岁的男子在接种了辉瑞公司的疫苗后死亡。疫苗接种与死亡之间的因果关系尚不清楚。这名男子在10月底接种了第二剂疫苗，三天后死亡。目前还不知道该男子是否有任何潜在疾病。截至上月底，该县因接种疫苗而死亡的总人数达到 15 人。
+参考链接：
+[Leading Cardiologist Says Researchers Are Refusing to Publish Supporting Study Results That Show Covid Vaccine’s Link To Massive Increase In Heart Attacks](https://www.thegatewaypundit.com/2021/11/ready-must-watch-leading-cardiologist-says-researchers-refusing-publish-supporting-study-results-show-covid-vaccines-link-massive-increase-heart-attacks-afraid/)
 
-男子接种疫苗死亡的信息一个月后才报出，虽然晚了，但高知电视台的勇气还是值得肯定的。这条报道的下方，网友留言写道，“高知县能如实报道疫苗接种后的死亡情况，是正确报道应有的作派”。关于此条留言，截至笔者发此稿，共有3211人点赞。着实令人欣慰。媒体的客观性是民众觉醒的催化剂。日本民众也开始意识到了中共疫苗的骗局。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-信息来源：
+总编/编辑：Ivy001
+校正/发稿：Fei797
 
-[未确认新冠感染 1人接种疫苗后死亡](https://news.yahoo.co.jp/articles/2734f1af8e6034831137f0babdfc39bc90e634ee)
+**更多资讯，更多关注**
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.png)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

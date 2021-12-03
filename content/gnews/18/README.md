@@ -2,41 +2,32 @@
 ---
 
 
-## 数百人聚集在地下“禁忌式”新冠科学会议
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1714641/)
+## 秘翻在线: 脸书关闭了与中共虚假宣传有关的账户
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1714742/)
 
-作者：Tamara Ugolini
-翻译：HimaSally
+撰稿：西枫westca
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-20.png)
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/12/unnamed-2.jpg)图片来源：路透社
+据BBC、NPR、Vice，路透社等多家媒体报道，脸书和Instagram的母公司Meta宣布，在周三已删除了500多个与传播虚假信息的，主要位于与中共国网络相关联的账户、页面和群组。
 
-我最近参加了在大多伦多地区一个未公开地点举行的私人小组成员讨论会议。场地、所有开会者和组成小组的学者的隐私都得到了维护，因此我无法为您带来活动的全部内容。相反，我依靠各种演讲中的一些主题和观众的反馈，在疯狂的世界中为您带来一线希望。
+这些账户宣传了一位名为威尔逊·爱德华兹的假瑞士生物学家的说法，他于7月24日，也就是以威尔逊·爱德华兹的账户创建10小时后在脸书上发表声明称，美国政府正在向调查COVID-19起源的WHO科学家施压，试图将其归咎于中国。根据脸书上的截图，爱德华兹在帖子中写道：“世界卫生组织的消息来源告诉我，美国如此痴迷于在溯源问题上攻击中共，以至于不愿意对数据和调查结果睁开眼睛”。
 
-所有开会者都被要求关闭 GPS，将手机置于飞行模式或完全关闭。在活动之前、期间或之后，不得在社交媒体上发帖。便衣警察和私人保安确保了在场人员的人身安全。这一切具有批判性的限制就是模拟我们在2021 年加拿大的生活现实。
+爱德华兹的评论被中共国官方媒体，从中国日报、环球时报到CGTN广泛引用，作为美国政府将世卫组织政治化的证据而传播。
 
-总的来说，该活动是关于质疑并倡导身体主权和免受未经同意的医疗权利。其目的还在于进行面对面的实时、不戴面具且不保持社交距离的联系。以向其他人表明，他们并不是唯一一个质疑政府对“大流行”的反应的人，而这种反应只是还没有叠加起来。
+然而，瑞士大使馆在8月份表示，此人并不存在，该脸书账户仅在第一次发布前两周开始使用，只有三个朋友。在瑞士也没有一个名为威尔逊·爱德华兹的公民登记，也没有以该名字发表过的学术文章。并且瑞士大使馆督促中共国媒体删除任何提及他的内容。
 
-讨论的主题包括对社交媒体上的错误法律建议和法律术语剖析，向与会者提供循证信息的医疗专业人员，以及因“不合规”而失业的前线工作人员和学者的个人账户不明不白地进账和违宪的授权，加拿大公共卫生局如何完全忽视疫情数据透明的辩论。
+周三脸书发布的报告显示，这是一次协调一致的活动，有20个页面、4个群组和86个Instagram账户在社交平台上传播这个虚假信息。与威尔逊·爱德华兹帖子早期互动的大多是虚假账户，之后中共国官员和大多属于中共国国有基础设施公司的员工也开始与其进行互动。
 
-很明显，我们不会改变或服从未经我们同意且强加给我们的“新常态”，所以会议室里的人正在把权力掌握在自己的手中。他们重新团结以摆脱这种怪诞的混乱局面以一种包容的方式，而不使用冒险的、实验性的、仓促的药物。基于证据并通过辩论共享公开透明的信息。
+对此事的调查发现，爱德华兹的账户创建与一家名为“四川沉默信息技术公司”有关，该公司为中国公安部和中国网络安全应急响应的关键团队CNCERT提供技术支持。该行动使用了VPN来隐藏其来源，并赋予爱德华兹更全面的个性，其个人资料照片似乎也是从网上生成的。
 
-来源：[https://www.rebelnews.com/hundreds\_gather\_for\_underground\_prohibition\_style\_covid\_science\_conference](https://www.rebelnews.com/hundreds_gather_for_underground_prohibition_style_covid_science_conference)
+脸书的信息运营威胁情报负责人本·尼莫说，“这是我们第一次看到包括国家雇员以协调集群的方式来扩大宣传。“但他同时强调，脸书并没有将这场运动与中国政府或这些官员联系起来，而只是看到了政府官员喜欢并参与了此假贴的传播。
 
-（文章仅代表作者个人观点）
+虽然这场虚假信息运动本身并没有像病毒那样传播开来，但是如果在虚假信息发布后没有采取行动，这些病毒式的帖子最终会在发布后几分钟或几小时内就传播开来。
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+中共国利用了数百万公民监控互联网并在网上大规模影响舆论。这次从人到文的虚假行动更应让世界明白中共对世界的媒体、网络影响之深是不能被忽视的。争夺话语权是我们灭共路上重要的一环。
 
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+**新闻来源：**[Facebook Took Down a China-Linked COVID-19 Disinformation Campaign (vice.com)](https://www.vice.com/en/article/z3nn8w/facebook-took-down-a-china-linked-covid-19-disinformation-campaign)
 
  
 
