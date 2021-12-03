@@ -2,39 +2,23 @@
 ---
 
 
-## 日本爱知县正式开展伊维菌素治疗实验
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1715744/)
+## COVID-19 最新情报｜默克尔：现在是采取行动的时候了！德国禁止未接种者出入大部分公共场所
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1715805/)
 
-作者：日本方舟农场 – Andy5
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
-12月1日，日本爱知县宣布，将与制药商“兴和株式会社”合作开展伊维菌素的试验。并表示对20周岁以上、发烧超过37.5度的患者进行试验。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/9-2.jpg)
-据悉，该计划预计将在今年对100位左右患者进行试验。该试验将分为伊维菌素组和安慰剂组，两组试验者服用药物3天后，再经过11天的观察。
+**撰文｜ 台湾宝岛农场 疫情关注组 / 发布时间｜3/12/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-伊维菌素对中共病毒的疗效屡见报端。早在8月，在日本关东地区东京医师学会呼吁使用伊维菌素用于临床治疗后，日本确诊人数骤降。爱知县与兴和株式会社的合作试验，也将促使日本政府的决策向着有利于控制疫情的方向推进。
+德国总理默克尔周四（2日）宣布，未接种疫苗人士将被禁止进入除日需品商店之外的其他公共场所。
 
-参考链接：
+默克尔表示：“全国所有文化及休闲场所将只对接种过疫苗或康复人士开放。” 她强调，“我们了解到情况非常严重，除了已经采取的措施之外，我们还希望采取进一步措施。”
 
-- [20211201日本CBC新聞](https://www.gettr.com/post/piflnu1d73)
-- [「今こそイベルメクチンを使え」東京都医師会の尾崎治夫会長が語ったその効能](https://www.kowa.co.jp/company/director/index.html)
-- [役員一覧](https://www.kowa.co.jp/company/director/index.html)
-- [企業主導は国内初…興和が「イベルメクチン」をコロナ治療に使うため臨床試験開始へ 患者約千人対象に実施](https://www.tokai-tv.com/tokainews/article_20210702_179074)
-- [伊维菌素在日本的普通推广指日可待](https://gnews.org/zh-hans/1713180/)
+另外，默克尔还透露指，打算议会辩论后，最快明年 2 月实施全国范围内的疫苗接种任务。目前，德国 8320 万人口中约有 68.7% 接种了疫苗。
 
+日前，欧盟委员会主席乌尔苏拉·冯·德莱恩刚刚公开建议，认为[欧盟国家是时候开始评估为所有公民强制接种COVID-19 疫苗，各成员国应展开积极讨论。](https://gnews.org/zh-hant/1713006/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-dddpace-Channel-Banner.jpg)
+来源｜[Variety](https://variety.com/2021/politics/news/germany-unvaccinated-people-ban-covid19-angela-merkel-1235124225/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-89.png)
-
-总编辑：Irene木木
-编辑：AN/雪梨
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

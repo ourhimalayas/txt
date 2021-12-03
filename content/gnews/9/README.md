@@ -2,41 +2,39 @@
 ---
 
 
-## 以色列最高法院就手机窃听案作出裁决
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1715680/)
+## 日本爱知县正式开展伊维菌素治疗实验
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1715744/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+作者：日本方舟农场 – Andy5
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
+12月1日，日本爱知县宣布，将与制药商“兴和株式会社”合作开展伊维菌素的试验。并表示对20周岁以上、发烧超过37.5度的患者进行试验。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/9-2.jpg)
+据悉，该计划预计将在今年对100位左右患者进行试验。该试验将分为伊维菌素组和安慰剂组，两组试验者服用药物3天后，再经过11天的观察。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/F200608OF08-1-e1594219079991-640x400-1.jpg)
+伊维菌素对中共病毒的疗效屡见报端。早在8月，在日本关东地区东京医师学会呼吁使用伊维菌素用于临床治疗后，日本确诊人数骤降。爱知县与兴和株式会社的合作试验，也将促使日本政府的决策向着有利于控制疫情的方向推进。
+
+参考链接：
+
+- [20211201日本CBC新聞](https://www.gettr.com/post/piflnu1d73)
+- [「今こそイベルメクチンを使え」東京都医師会の尾崎治夫会長が語ったその効能](https://www.kowa.co.jp/company/director/index.html)
+- [役員一覧](https://www.kowa.co.jp/company/director/index.html)
+- [企業主導は国内初…興和が「イベルメクチン」をコロナ治療に使うため臨床試験開始へ 患者約千人対象に実施](https://www.tokai-tv.com/tokainews/article_20210702_179074)
+- [伊维菌素在日本的普通推广指日可待](https://gnews.org/zh-hans/1713180/)
 
 
- 
-图片来源：www.timesofisrael.com
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-89.png)
 
+总编辑：Irene木木
+编辑：AN/雪梨
+校正/发稿：海阔天空1
 
-#### 编译：小红帽
-
-以色列最高法院认为，为遏制Omicron的传播而进行的手机追踪不会对人们的隐私权构成威胁，因此驳回了人权组织提出的请求。
-
-关于是否取消政府决定，并以及阻止以色列的内部安全机构（Shin Bet）再次窃听手机的判决于周一发布。目前的许可于周四到期，但将被延长，以允许情报部门追踪那些感染了新冠病毒（Covid）变体的人及其密切接触者。
-
-当地媒体援引最高法院关于请愿书的声明说：“没有证据表明Shin Bet的授权对隐私权构成了不相称比例的侵犯或足以证明有理由罢免”。
-
-以色列总理纳夫塔利·贝内特（Naftali Bennett）宣布重新授权手机追踪，作为准备遏制Omicron传播的一揽子措施的一部分。
-
-这项技术在整个大流行病期间被Shin Bet使用，由于人权捍卫者对隐私的担忧，法院在3月限制了其监视的范围。
-
-**参考新闻：**[Israel’s Supreme Court rules on phone spying case — RT World News](https://www.rt.com/news/541980-israel-supreme-court-phones/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

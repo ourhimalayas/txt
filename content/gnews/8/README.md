@@ -2,43 +2,41 @@
 ---
 
 
-## 视频| 喜联储引领世界的三大好消息
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1715693/)
+## 全美首例奥密克戎变种病毒在加州确诊
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1715752/)
 
-## 摘自2021.12.1郭先生大直播
+作者：纽约香草山佛教部 – 文一
 
-制作：香草山视频部
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
+
+12月1日，美国疾控中心和加州卫生当局，证实了美国首例中共病毒变种“奥密克戎”的感染病例。该患者已完成疫苗接种，且刚从南非回来，目前症状轻微，在自我隔离中。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/10.jpg)
+
+据悉，自11月25日南非发出警告以来，至少有20多个国家或地区发现了该变种病毒。
+
+郭文贵先生早在9月26号就爆料中共将在非洲放毒，更在11月29日精准地预测到，病毒将会登陆美国西部。美国疾控中心的通报验证了郭先生情报的准确性。
+
+参考链接：
+
+- [CDC confirms first case of Omicron variant in U.S.](https://www.msn.com/en-us/news/us/cdc-confirms-first-case-of-omicron-variant-in-us/ar-AARlMVY)
+- [11/29/2021 文贵盖特：中共实际上是在美西(包括夏威夷)和南美放毒，新病毒将很快出现在美东和加拿大](https://gnews.org/zh-hans/1707562/)
+- [Stock market stages big U-Turn from strong gains after first case of omicron strain of coronavirus confirmed in California](https://www.msn.com/en-us/money/markets/stock-market-stages-big-u-turn-from-strong-gains-after-first-case-of-omicron-strain-of-coronavirus-confirmed-in-california/ar-AARlX49)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-89.png)
 
-就在三周前我直播的时候，我收到某国一个国家元首的电话，他说我现在给你打这个电话，我告诉你一个好消息，我们这个国家决定给你们喜联储一个数字银行的牌照，你知道当时这个事情有多大吗？我告诉你一个数字银行的牌照，一定未来都是巨额的，数字银行的牌照是巨大的，它比我们喜联储还值钱，这个数字银行的牌照，这个国家已经在走程序当中，他用他的手机给我发的信息，他都签完字了，已经是一周前了，因为这是世界上第一个主权国家要批的数字牌照。
-
-他是在欧洲，而且是一个超级、世界上前三名的金融国家，这是主动找来的，这对我们新中国联邦来讲，这是拥有国家银行的国家储备系统，和法币连接的最稳定的桥梁，而且所有的它都没有中转行，它是直接的，它的意义之大，对我们太深远了，等于这个国家跟共产党决裂，要PK我们数字银行。
-
-第三个，今天我们还有一个消息，我们决定的是，所有G-Club的会员，还有法治基金大额的捐款者，还有GTV的投资者，从现在起，我们要所有的战友用的美国最好的青蒿素、保健品和药，我们全部保证供应，你必须是真正的战友才能加入这个团队，保障战友使用高质量的青蒿素的整个团队，然后资金不够的，全部七哥来解决，不让战友拿一分钱，大家记住，我们是救命的，不是给你成医院了，有条件的G-Club会员和GTV所有的投资者，还有我们的法治基金捐款着，还有我们的喜币拥有者，我们现在全面保证供应这些药，大量的全面采购。
-
-另外一个就是我们在美国，我们将并购一家数字银行，我们现在已经是基本完成了，这家数字银行是第二个牌照，这个第二个牌照的这家银行，我们大概要请5~7家战友拥有的基金来加入，什么人呢，都是大额的投资者，战友们，还有他确实拥有这种资金资格的，然后是战友贡献特别大的，直接让战友用他的基金，因为并购这家银行，我们需要11家企业基金进来。这个企业直接的进入，持有5~10%的这家银行的股份，永远是你有了，永远你就可以拿走了，就是说白了，第二家银行就是给战友来了个金矿，你拥有这个金矿的股权，这是终身的，我可以告诉大家，就这一条，如果咱今天上午上市股份的话，那得翻好几翻，这是今天的第三个好消息。
-
-
-
-
-
-发稿：雪梨
-
-![This image has an empty alt attribute; its file name is 8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg)
+总编辑：AN
+编辑：飞虹
+校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

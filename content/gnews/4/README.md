@@ -2,37 +2,25 @@
 ---
 
 
-## 世界女子网球协会暂停在中共国举办赛事
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1715730/)
+## 纽约州长承认该州发现5例中共病毒变异体奥米克戎病例
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1715800/)
 
-作者：纽约香草山农场 – 蓝天大海
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
-12月1日，世界女子网球协会WTA在官网宣布，由于网球明星彭帅指控中共高官性侵后遭到审查，WTA暂停了包括香港在内的所有中共国赛事。
+#### 撰稿：彩虹
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/8-3.jpg)
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-3-2.jpg)图片来源：纽约邮报
+12月2日，《新闻极限》报道纽约州长确认该州已经发现至少5例中共病毒变体奥米克戎（Omicron）病例。
 
-WTA主席兼首席执行官蒂夫·西蒙在一份声明中表示：当彭帅公开对一名中共高级官员进行性侵指控后，她的相关信息被当局删除，相关的讨论也遭到审查，而中共当局没有以任何信服的方式解回应这一指控。WTA还对彭帅的人身安全和自由表示担忧。
+随着奥米克戎病例在纽约州的出现，目前公开报道已知加利福尼亚州、明尼苏达州和科罗拉多州均发现了该中共病毒变体。
 
-西蒙强调，在这种情况下，如果继续在中共国举办赛事，WTA的球员和工作人员可能面临风险。同时，他还呼吁，对彭帅的性侵指控进行全面、透明的调查。
+根据报道，其中四个病例是在纽约市发现的，两个在皇后区（Queens），另一个在苏福克郡 (Suffolk County)。据《国会山报》报道，后者是一名67岁的妇女，且至少接种了一剂中共病毒疫苗。
 
-参考链接：
+尽管实际的案例表明中共病毒疫苗的失败，但纽约州州长凯西·霍赫尔（Kathy Hochul）仍然忽悠美国人，说：“我们对这种（中共病毒）变异体并非毫无防备。”
 
-- [Steve Simon announces WTA’s decision to suspend tournaments in China](https://www.wtatennis.com/news/2384758/steve-simon-announces-wta-s-decision-to-suspend-tournaments-in-china)
+**新闻来源**
 
+[Gov. Kathy Hochul Confirms at Least 5 Omicron Cases in NY](https://www.newsmax.com/newsfront/new-york-omicron-kathy-hochul-variant/2021/12/02/id/1047150/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-89.png)
-
-总编辑：Irene木木
-编辑：Jack Li文阳
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

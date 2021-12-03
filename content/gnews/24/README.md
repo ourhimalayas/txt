@@ -2,36 +2,20 @@
 ---
 
 
-## 美陆军部长表示，钓鱼岛、台海与南海为印太冲突热点
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1715598/)
+## 狮城快讯：新加坡批发电价过去一周爆涨12倍！
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1715658/)
 
-作者：纽约香草山医疗部 – 云豹
+**撰稿：小坡**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screenshot-2021-12-03-150601.jpg)图片来源：AsiaTimes
+全球能源危机继续恶化，新加坡成了最新受害者。就在过去的一周新加坡批发电价出现了急剧上涨，每兆瓦时上涨 4,499 新元（3,293 美元），创历史新高，就在本周二价格还只是323.61 新元（236.60 美元），三天上涨约 1,290%。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
+批发电力价格的急剧上涨反映了持续的全球能源危机。新加坡战友们都知道这里95% 的电力是通过燃烧天然气产生，而所有天然气都是从邻国进口的。 由于欧洲和亚洲其他地区的天然气需求继续增加，拉尼娜现象产生了反常的寒冷趋势等，都造成天然气供不应求。 据称，由于印度尼西亚天然气供应不足已经导致一些本地发电厂发电机组紧急关闭。
 
-当地时间12月1日，美国陆军部长沃梅斯（Christine Wormuth）在出席华府智库「战略暨国际研究中心」（CSIS）视讯会议时称，钓鱼台、台海与南海为印太地区潜在的冲突点。
+我们之前也报道过，新加坡目前市场上几乎所有的独立电力零售商都被迫退出市场，由于大多数新加坡家庭都签订了固定电费利率合同，电价飙升还暂时不会对居民用电造成巨大影响。尽管如此，它可能会给倾向于签订可变合同的公司带来痛苦，而新加坡如此依赖进口天然气发电的国家，在这场全球能源危机当中，恐怕必须要未雨绸缪了！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/6-1.jpg)
+战友们，只有新中国联盟和农场集体的力量才可以帮助大家应对这样的危机，请保持和农场联系，让我们一起携手共度这次世纪大劫难。
 
-沃梅斯表示，虽然美日间有安保条约，但日本仍然很担心中共对钓鱼岛的侵扰；而中共频繁侵扰台湾防空识别区同样引发美国的关注；在南海，美中间有可能因为误判情势而引发冲突。同时，她还强调，美国不应低估中共的挑战，避免台海爆发战争最好的方法，就是要确保美国有足够强大的军事威慑，让中共不敢武力侵犯台湾。
-
-参考链接：
-
-- [印太衝突熱點 美陸軍部長：釣魚台、台海與南海](https://www.cna.com.tw/news/firstnews/202112020008.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-89.png)
-
-总编辑：AN
-编辑：雪梨
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+**[新闻来源](https://www.zerohedge.com/commodities/singapore-power-prices-spike-1290-energy-crisis-emerges)**
 
  
 

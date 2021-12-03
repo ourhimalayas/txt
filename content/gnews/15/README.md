@@ -2,79 +2,40 @@
 ---
 
 
-## 视频| 澳门地下钱庄，孟建柱在东南亚的涉黑布局（上）
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1715665/)
+## 以色列最高法院就手机窃听案作出裁决
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1715680/)
 
-## 摘自2021.12.1郭先生大直播
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-制作：香草山视频部
-
-
-
-你知道洗米华当时在北京什么概念吗
-洗米华的老板第一老板是谁知道吗
-安全部副部长马建 100%马建
-然后他发展人 是谁发展的呢
-当时北京市公安局副局长啊
-张越或者政法委书记也是我的兄弟
-因为我受牵连被傅志华搞进去抓起来
-然后洗米华从这个张越那跳到马建那儿
-就啪跳到了孙立军那儿
-孙立军那儿跳到了孟建柱那
-洗米华搞定了谁呀
-孟建柱的侄儿 他亲外甥
-孟建柱这个人跟洗米华认识以后
-马上两件事让他去干去
-大家记住
-第一我让你把整个东南亚
-特别是缅邦,缅北,泰国
-马来西亚,新加坡一带
-要把整个这些黑帮全拿下
-要的是什么
-第一件事儿毒资,毒品
-孟这个人阴得狠
-毒资多少钱在东南亚当时
-每年大概5000亿美元
-5000亿美元的独资里边是什么概念
-我跟你说战友们
-你们不要把自己给忽悠进去
-5000亿美元的毒资那可以改变世界的
-美国这么多年打不了
-阿富汗,吉尔吉斯坦,哈森
-整个东欧到东亚横跨新疆
-你看孟建柱很厉害的
-阿富汗只见跨过去大西路口
-原来的丝绸之路
-直接到吉尔吉斯坦,阿塞拜疆
-啪啪就过去了
-从俄罗斯进入欧洲拉脱维亚,立陶宛,欧洲
-整个湄公河岸
-孟建柱这个能得很 用毒品啪连起来
-第二件事情 走私人口
-所有走失人口全部控制起来
-然后就开始赌博,洗钱全部弄起来
-谁都没想到就是地球的西半部
-中国的西半部北南部走廊全被孟拿下
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/F200608OF08-1-e1594219079991-640x400-1.jpg)
 
 
+ 
+图片来源：www.timesofisrael.com
 
 
+#### 编译：小红帽
 
-发稿：雪梨
+以色列最高法院认为，为遏制Omicron的传播而进行的手机追踪不会对人们的隐私权构成威胁，因此驳回了人权组织提出的请求。
 
-![This image has an empty alt attribute; its file name is 8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg)
+关于是否取消政府决定，并以及阻止以色列的内部安全机构（Shin Bet）再次窃听手机的判决于周一发布。目前的许可于周四到期，但将被延长，以允许情报部门追踪那些感染了新冠病毒（Covid）变体的人及其密切接触者。
 
-**更多资讯，更多关注**
+当地媒体援引最高法院关于请愿书的声明说：“没有证据表明Shin Bet的授权对隐私权构成了不相称比例的侵犯或足以证明有理由罢免”。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+以色列总理纳夫塔利·贝内特（Naftali Bennett）宣布重新授权手机追踪，作为准备遏制Omicron传播的一揽子措施的一部分。
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+这项技术在整个大流行病期间被Shin Bet使用，由于人权捍卫者对隐私的担忧，法院在3月限制了其监视的范围。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+**参考新闻：**[Israel’s Supreme Court rules on phone spying case — RT World News](https://www.rt.com/news/541980-israel-supreme-court-phones/)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+***发布：小红帽***
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
