@@ -2,41 +2,64 @@
 ---
 
 
-## “完全接种”NBA 球星勒布朗·詹姆斯检测结果不明被迫停赛
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1715963/)
+## 【玫瑰看新闻】第207期 币圈新闻
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1716083/)
 
-**编译：Jenny Ball**
+2021年12月2日（新西兰时间）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip28.png)勒布朗·詹姆斯
-安迪·里昂斯/盖蒂图片社摄
+🌟11月28日Hcoin盘中震荡价格区间35.809美元至37.905美元
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片-1-6.jpg)
+2021年12月2日截止发稿前，喜币价格为37.699美元。截止今日发稿前盘中成交274125.171HCN，24小时内小幅上涨📈➕8.64%，目前价格为37.699美元。买入价：37.570美元；卖出价：37.759美元。
 
-洛杉矶《生活新闻》（LifeSiteNews）——NBA 的健康和安全协议，禁止洛杉矶湖人队的篮球明星勒布朗·詹姆斯参加昨晚对阵萨克拉门托国王队的比赛。根据 NBA 规定，如果一名完全接种疫苗的球员被迫缺席任何比赛，很可能是因为他的 COVID-19 检测结果呈阳性或结果不确定。
+https://himalaya.exchange/User/Trading
 
-詹姆斯在 9 月份直言不讳地表示，他不愿意接受堕胎污染的疫苗，但表示他最终做出了接种的决定。如果他的检测结果确实呈阳性，那么，他很可能至少 10 天内不会参加任何比赛，除非他在 24 小时内进行两次 PCR 检测呈阴性。
+🌟12月2日币圈要闻一览
 
-他的团队尚未正式评论他是否出现任何症状。他的队友安东尼·戴维斯说，詹姆斯没有表现出任何异常，但没有明确证实 COVID 检测呈阳性。
+1.去中心化组织Badger DAO遭遇黑客攻击，目前已暂停所有交易；
+2.多链GameFi基础设施Froyo Games完成160万美元融资，Animoca Brands领投；
+3.元宇宙社交平台Loot Squad完成500万美元种子轮融资，Delphi Digital领投；
+4.Solana元宇宙项目Solice完成430万美元融资，三箭资本领投；
+5.Terra（LUNA）市值超越SHIB，位列加密货币市值排行榜第十二位；
+6.数据：Polygon日活用户数量已达以太坊的64%；
+7.NBA Top Shot销售总量突破1100万笔，创历史新高；
+8.Republic Realm以430万美元购买The Sand box地块，创虚拟土地销售价格历史记录。
 
-詹姆斯可能突破性感染的消息传来之际，NBA 已经为球员、教练和官员推荐了加强剂。
+🌟[分析师重新发布BTC 价格预测 40 万美元考验交易者的神经](https://cointelegraph.com/news/bitcoin-tests-traders-nerves-as-analyst-reissues-400k-btc-price-forecast)
 
-在美联社获得的一份备忘录中，联盟告诉其球队，有 34 起记录在案的病例中，一名完全接种疫苗的球员、教练或工作人员的 COVID 检测呈阳性。
+随着买入目标降至 47,000 美元，看涨的长期比特币价格预测与当前现状形成鲜明对比。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-5.jpg)
+比特币 ( [BTC](https://cointelegraph.com/bitcoin-price) ) 在 12 月 2 日重演，因为市场目睹了另一次对 60,000 美元的攻击以失败告终
 
-冠状病毒实验性疫苗从未产生证据表明，疫苗可以阻止感染或传播。他们甚至没有声称的那样减少住院治疗，作为衡量疫苗成功的标准，是预防 COVID-19 的严重症状。 此外，有强有力的证据表明，“接种疫苗”的人和未接种疫苗的人一样，可能携带和传播病毒。
+比特币的下跌与股票的反应一致，似乎是对新的冠状病毒omicron 变体的持续担忧。标准普尔 500 指数收盘下跌1.2%。
 
-**随着 COVID 病例在以色列、英国和美国等疫苗接种率高的国家激增，包括接种疫苗的个人，希望通过疫苗接种预防感染或阻止传播的希望已经减弱。**
+随着加密市场弥漫着挫败感，分析师借此机会重申了更长远的观点。Cointelegraph 撰稿人 Michaël van de Poppe预测：
 
-**点评：勒布朗·詹姆斯应该知道，你想要中共的钱，中共想要你的命！自由价更高！**
+这些买入目标低点伴随着对该周期看涨高峰的重新预测，与今年 4 月一样，BTC/USD 最高可达 400,000 美元。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片3-3.jpg)BTC/USD 1 小时蜡烛图 (Bitstamp)。资料来源：TradingView
+🌟[Bitcoin Capital AG 在六个瑞士交易所推出两个加密ETP](https://cointelegraph.com/news/bitcoin-capital-ag-launches-two-crypto-etps-on-six-swiss-exchange)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片-4-4.jpg)
+随着整个市场的发展，比特币资本在六家瑞士交易所的产品继续增长。
 
-**新闻来源**：[lifesitenews.com][‘Fully vaccinated’ NBA star LeBron James enters COVID protocols, forced to sit out](https://www.lifesitenews.com/news/vaccinated-nba-superstar-lebron-james-cant-play-likely-because-of-positive-covid-test/)
+Bitcoin Capital AG在六家瑞士交易所[发布了](https://www.dgap.de/dgap/News/?eqsNewsID=2169541)两款新的交易所交易产品：FiCAS Active Bitcoin ETP (BTCB) 和FiCAS Active Ethereum ETP (ETHB)，由 FICAS AG 积极管理。
 
-* * *
+Bitcoin Capital AG 是一家位于瑞士楚格的家族办公室和FiCAS AG 子公司。7 月，Bitcoin Capital AG在六瑞士交易所推出了主动管理的比特币 ETP [“Bitcoin Capital Active ETP”](https://cointelegraph.com/news/swiss-six-exchange-lists-actively-managed-bitcoin-etp)。
 
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
+ETP 是一种衍生证券，它基于商品、货币、股价或利率等投资工具进行交易，而不是加密 ETF，后者 100% 由它们所跟踪的资产支持。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3.jpeg)
+瑞士、列支敦士登和欧盟（不包括匈牙利）的机构投资者、专业投资者和私人投资者现在可以通过他们的银行或经纪人投资新产品，就像他们投资股票或债券等其他上市金融资产一样。
+
+🌟[美联储鲍威尔：央行数字货币政策问题讨论文件将在未来几周发布](https://0xcj.com/20211201289132.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片-5-1.jpg)
+据路透社12月1日消息，美联储主席鲍威尔在参议院听证会上表示，一份探讨央行数字货币政策问题的讨论文件应该会在未来几周发布。鲍威尔透露，这份最初定于夏季公布的文件被推迟，因为美联储正“努力把这件事处理好”。
+
+🌟去中心化组织BadgerDAO确认被盗损失超1.2亿美元
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片-6jpg.jpg)
+12月2日，去中心化组织BadgerDAO确认遭受攻击，损失达1.203亿美元，包括约2,100枚BTC和151枚ETH。目前社区渠道中的猜测是，黑客攻击是用户界面中的漏洞，而不是核心协议合约中的漏洞。Badger工程师对此进行调查时，已暂停所有智能合约，以防止造成进一步损失。 此前报道，去中心化组织BadgerDAO遭遇黑客攻击，用户资产在未经授权的情况下被转移。
 
 
+
+审核校对：Barry Jack
+上传排版：F
 
  
 

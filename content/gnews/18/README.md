@@ -2,34 +2,34 @@
 ---
 
 
-## 中国银行兰州支行终止营业
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1716187/)
+## 桥水基金创始人瑞•达利奥与中共合谋奴役中国人民
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1716381/)
 
-撰稿：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-1.png)
-11月30日，甘肃银保监局发布公告，同意中国银行兰州分行终止营业，同时要求中国银行妥善处理好业务清理移交，并于10日内缴回兰州分行的“金融许可证”。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-127.png)图片来自：[http://5b0988e595225.cdn.sohucs.com](http://5b0988e595225.cdn.sohucs.com/images/20200408/70c003f8317c457d9d883ddda8c5fda6.jpeg)
-近年来，由于网上银行、手机银行的普及等，银行的基层网点的“关停”现象实属常见。而中国银行兰州分行，独立运营仅三年就遭关停。
+整理报道：七彩光
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Ray-Dalio.jpeg)图片来源：键新网
+周二，在CNBC的“财经论坛”（Squawk Box）节目中，美国亿万富翁瑞·达利奥（Ray Dalio）对中国人民发表了歧视性的话语，称“中共政府对中国人民只是像严格的父母而已”。12月2日，《新闻极限》对此做了报道。
 
-此消息一出，引发社会热议。人们纷纷对当前的经济状况以及储户的资金安全表示担忧。据悉，公告内容尚未透露停业原因。
+瑞·达利奥是桥水基金公司的创始人兼首席执行官，桥水基金于2013年被列为全世界最大的避险基金公司。根据彭博社报导，截至2019年1月，他是世界上最富有的100个人中的第79位。
 
-新闻链接：**[中国银行兰州分行终止营业](https://wap.eastmoney.com/a/202112022199979995.html)**
+根据报道，最近达利奥为桥水基金公司在中共国的第三笔投资筹集了相当于12.5亿美元的资金。在节目中，当被问及在中共国投资时如何考虑人权道德方面的问题时，他回答说：“（我）不可能是这些问题的专家。中共国所拥有的是一个专制制度，他们的一位领导人说，美国是一个个人主义至上的国家。…在中国，（国家政府）是家庭的延伸。作为一个自上而下的国家，他们（共产党政府对待人民）的所作所为就像一个严格的父母。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-89.png)
+对于达利奥对中国人民的侮辱性言论，来自犹他州的共和党参议员米特·罗姆尼（Mitt Romney）说，达利奥是一个“杰出的人，也是一个朋友，但他对中共国可怕的虐待行为佯装无知，并将在那里的（与中共）的同谋投资合理化，这是一种可悲的道德缺失。更为可悲的是，在美国和整个自由世界的国家，有太多的人都是如此。”
 
-总编：Irene木木
+值得关注的是，罗姆尼是共和党人，他在2021年2月13日第二次弹劾前总统川普，也是七名共和党的参议员弹劾前总统川普的其中一位。
 
-编辑：AN/雪梨
+**新闻来源**
 
-校正/发稿：浪迹天涯
+[Sen. Romney Calls Friend Ray Dalio’s China Investments ‘Moral Lapse’](https://www.newsmax.com/newsfront/mitt-romney-dalio-china/2021/12/02/id/1047142/)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-1.png)
+发布：七彩光
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

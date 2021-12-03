@@ -2,54 +2,32 @@
 ---
 
 
-## 【玫瑰看新闻】第207期 纽西兰本地新闻
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1716061/)
+## 盖特抽奖活动——赢得一年房租或抵押贷款
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1716171/)
 
-2021年12月2日（新西兰时间）
-
-
-
-🌲克里斯托弗·卢克森当选为新一任新西兰国家党党魁
-
-11月30日下午，新西兰国家党党团会议召开前，围绕下任党魁的悬念似乎已经揭晓：
-
-克里斯托弗·卢克森被正式选为新一任国家党党魁，Nicola Willis担任副党魁。
-
-国家党新任党魁克里斯托弗·卢克森（Christopher Luxon：）
-
-2019年6月19日，克里斯托弗·卢克森辞去新西兰航空（纽航）CEO职务，10月10日，他加入了新西兰国家党。
-
-自此，他的名字便开始与“国家党党魁”产生出隐约的关联。由于在商界功勋卓越，人们将他视作John Key的“天然”接班人。
-
-🦠 奥克兰的边境将于 12 月 15 日开放
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片-1-5.jpg)
-⚠️奥克兰的边境将于 12 月 15 日开放，允许完全接种疫苗的新西兰人进出该地区——人们也可以在出发前72 小时内出示检测结果呈阴性。
-
-⚠️新西兰全境将于 12 月 2 日晚上 11 点59 分转向红绿灯系统—— 政府已宣布哪些地区将进入红色和橙色。
-
-⚠️“我的疫苗通行证”所涵盖的员工——在需要使用疫苗证书才能运营的企业工作的员工——必须在 12 月 3 日之前进行第一次注射，并在 1 月 17 日之前完全接种疫苗。
-
-⚠️新西兰的国际边界将从 1 月开始重新开放——从 1 月 17 日起，完全接种疫苗的新西兰人可以在没有MIQ 的情况下从澳大利亚返回家园。
-
-希普金斯说，新西兰政府已经“推进”了为 5 至 11 岁儿童推出疫苗的计划。“规划正在进行中，”
-
-他声称：政府预计将在 1 月底之前开始为 12 岁以下儿童推出疫苗。他说，Pfizer-BioNTech 疫苗的“儿科剂量”已经确定，等待 Medsafe 批准。
-
-🌲[拥有7处房产的国家领导人克里斯托弗·卢克森“不想看到房价大幅下跌”](https://www.newshub.co.nz/home/politics/2021/12/national-leader-christopher-luxon-with-7-properties-wouldn-t-want-to-see-house-prices-fall-dramatically.html)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-4.jpg)国家领导人克里斯托弗·卢克森和副领导人尼古拉·威利斯。照片来源：盖蒂图片社
-新西兰国家党的新领导人克里斯·卢克森拥有七处房产，他称：“不希望看到房价大幅下跌”，但承认价格需要“稳定”。
-
-尽管这对首次购房者来说是个好消息，但房价仍在继续上涨。11 月份全国平均要价比上月上涨 3.4%，达到创纪录的969,604 美元。
-
-Quotable Value 的最新数据显示，自 2018 年以来，惠灵顿的平均住宅价值上涨了 60.4%。首都的每个区现在房屋均价都超过 100 万。
-
-ASB 银行周三表示，随着供求关系、利率上升和信贷条件收紧，预计 2022 年下半年房价将下跌。
+撰稿：纽约香草山农场 – Delilah小胖
 
 
 
-审核校对：Barry Jack
-上传排版：F
+12月1日，盖特官方账号发布新一轮抽奖活动通知。盖特公司表示，将为中奖者支付其2022年一整年的房租或者住房抵押贷款缴纳金额，最高可达2万美金。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-126.png)图片来自：https://images.app.goo.gl
+在即将到来的圣诞季，盖特公司的抽奖活动，不仅为深受中共病毒影响的民众，带去一些节日的温暖，同时，也在一定程度上帮助盖特用户解决当前高通胀下的生活困境。
 
+本次抽奖活动的登记截至日期为美东时间12月12日。更多详情，请登陆盖特官方平台gettr.com查看。祝参加本期盖特假日抽奖活动的盖特用户好运！
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-89.png)
+总编：文特
+
+新闻链接：[PRESS RELEASE: GETTR Home for the Holidays](https://gettr.com/post/pigvyt7cdc)
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

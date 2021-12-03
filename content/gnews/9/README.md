@@ -2,29 +2,23 @@
 ---
 
 
-## 福建模拟大规模突发断电事件展开针对性应急演练
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1716365/)
+## 新任日本外相林芳正2022年度的人事策划
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1716466/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-130.png)
-*撰文：台湾宝岛农场 快慢机*
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2-8.png)
+（图片源自本文链接）
 
-*当地时间11月30日，由福建省应急指挥部、省发改委、国家电网福建省电力总公司等相关部门，统一联动展开“福建省2021年度大面积停电事件应急演练”。*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-131.png)
-*据悉，本次应急演练行动区域，涵盖福建省下辖的福州、厦门、漳州以及宁德四个市区。演练内容主要针对模拟在遭遇“超强台风”与“外部破坏”的双重因素叠加环境下，所导致的大规模停电突发事件的应急抢险救援及电力恢复等处置预案。*
+12月 3日时事通信社报道：考虑到中共国在新疆和香港对人权的镇压，岸田内阁高度重视人权问题。3日的新闻发布会上，外相林芳正宣布，他打算在2022财政年度设置一个新的，负责国际人权问题的规划官员职位。 林先生强调，人权外交的重要性已进一步提高。该规划官员职位将设置于一般外交政策局的人权和人道主义事务处，负责监督人权领域的业务并处理国际问题。鉴于对使用新疆产棉花的批评，我们也将关注商业活动的供应链。
 
-*本轮模拟大面积突发停电事件的应急演练，是福建省近年来组织的规模最大、设计区域最广、跨部门联动单位最多的一次综合性检验行动。*
+信息来源：
 
-*演练具体预案分为检测预警、响应速度、救援处置、善后事宜四个阶段。期间穿插了针对性较强的如海岛停电应急救援、重点危化品企业的电力中断应急处置、以及反恐处突与网络攻击等重点科目的应急处置预案。*
+[人権担当ポスト、２２年度新設へ　中国念頭、体制強化―外務省](https://www.jiji.com/jc/article?k=2021120301025&amp;g=pol)
 
-*资料链接：[https://mil.news.sina.com.cn/china/2021-12-01/doc-ikyakumx1327464.shtml](https://mil.news.sina.com.cn/china/2021-12-01/doc-ikyakumx1327464.shtml)*
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.png)
 
-* * *
-
-***更多资讯***
-[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
-[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
-[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
 
  
 
