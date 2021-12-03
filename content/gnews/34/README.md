@@ -2,36 +2,24 @@
 ---
 
 
-## 喜大普奔的好消息！伊维菌素有了替代品！
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1715699/)
+## 纽约州长承认该州发现5例中共病毒变异体奥米克戎病例
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1715800/)
 
-**撰稿：Eva**
+#### 撰稿：彩虹
 
-根据更新以后的 FLCCC 新型冠状病毒肺炎的预防及早期门诊患者的治疗指引，特別向战友们发布伊维菌素替代品的好消息如下：
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-3-2.jpg)图片来源：纽约邮报
+12月2日，《新闻极限》报道纽约州长确认该州已经发现至少5例中共病毒变体奥米克戎（Omicron）病例。
 
-**1. 预防方案 (针对 DELTA 变异毒株)**
+随着奥米克戎病例在纽约州的出现，目前公开报道已知加利福尼亚州、明尼苏达州和科罗拉多州均发现了该中共病毒变体。
 
-#黑孜然 (黑孜然籽) 每天 40毫克/公斤
+根据报道，其中四个病例是在纽约市发现的，两个在皇后区（Queens），另一个在苏福克郡 (Suffolk County)。据《国会山报》报道，后者是一名67岁的妇女，且至少接种了一剂中共病毒疫苗。
 
-如果：伊维菌素不可得， 或添加到伊维菌素中以实现最佳预防，则使用。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-29.png)
-**2. 早期治疗方案5 (针对 DELTA 变异毒株)**
+尽管实际的案例表明中共病毒疫苗的失败，但纽约州州长凯西·霍赫尔（Kathy Hochul）仍然忽悠美国人，说：“我们对这种（中共病毒）变异体并非毫无防备。”
 
-营养疗法 (14天)
+**新闻来源**
 
-# 薑黃素 (薑黃) 每天 2 次 500 毫克
-
-#黑孜然 (黑孜然籽) 每天 80毫克/公斤
-
-蜂蜜 每天 1克/公斤
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-7.png)
-如需更多有关营养疗法以及其如何帮助因应 COVID-19 的咨询，请参阅：
-
-www.flccc.net/covid-19-protocols/nutritional-therapeutics
-
-**[Source](https://covid19criticalcare.com/wp-content/uploads/2021/06/FLCCC_Alliance-I-MASKplus-Protocol-CHINESE-Traditional-%E7%B9%81%E9%AB%94%E4%B8%AD%E6%96%87.pdf)**
-
-
+[Gov. Kathy Hochul Confirms at Least 5 Omicron Cases in NY](https://www.newsmax.com/newsfront/new-york-omicron-kathy-hochul-variant/2021/12/02/id/1047150/)
 
  
 
