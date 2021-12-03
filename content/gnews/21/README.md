@@ -2,42 +2,32 @@
 ---
 
 
-## 没有什么比支持台湾让中共国更生气
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1716113/)
+## 盖特抽奖活动——赢得一年房租或抵押贷款
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1716171/)
 
-**简评：**
-
-中共最近经常生气。立陶宛设立了新的台湾办事处，中共国降低了与立陶宛的外交关系；中共国抗议美国驱逐舰通过台湾海峡；美国邀请台湾参加民主峰会。习近平自信地认为中共国拥有全世界最好的民主。
-
-中共高兴的是，舔共的桥水基金创始人雷·达里奥刚刚给中共国最大的基金筹集了12.5亿美元，还觉得做得不够多。贝莱德建议买更多的中共国股票。摩根大通的CEO担心中共生气。
+撰稿：纽约香草山农场 – Delilah小胖
 
 
 
-[GTV视频链接](https://gtv.org/video/id=61a4d1623ff6481adce5fb52)
+12月1日，盖特官方账号发布新一轮抽奖活动通知。盖特公司表示，将为中奖者支付其2022年一整年的房租或者住房抵押贷款缴纳金额，最高可达2万美金。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-126.png)图片来自：https://images.app.goo.gl
+在即将到来的圣诞季，盖特公司的抽奖活动，不仅为深受中共病毒影响的民众，带去一些节日的温暖，同时，也在一定程度上帮助盖特用户解决当前高通胀下的生活困境。
 
-**视频字幕：**
+本次抽奖活动的登记截至日期为美东时间12月12日。更多详情，请登陆盖特官方平台gettr.com查看。祝参加本期盖特假日抽奖活动的盖特用户好运！
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-89.png)
+总编：文特
 
-我前面谈过，媒体倾向于从是否会激怒中共国的角度来描述一切。没有什么会比支持台湾更能使中共国生气。本周就有很多令中共生气的事。因为设立新的台湾办事处，中共国一愤之下降低了与立陶宛的关系。
+新闻链接：[PRESS RELEASE: GETTR Home for the Holidays](https://gettr.com/post/pigvyt7cdc)
 
-中共国抗议美国驱逐舰通过台湾海峡，更有甚者，美国邀请台湾参加民主峰会，中共国很生气。听起来中共需要修一些生气管理的课程。拜登总统第一次组织民主峰会，没有邀请中共国，邀请了台湾。所以中共国很不高兴，指责美国“犯了错误”。毕竟，中共说了“只有一个中国，而台湾属于这个中国”。我想习近平生气他没有被邀请。
+校正/发稿：浪迹天涯
 
-你也许认为世界上最大的专制政权出现在民主峰会不可思议。你错了，因为习近平认为中共国有（全世界）最好的民主。习近平甚至不想参加美国愚蠢的民主峰会，因为中共国永远是一个比美国更好的民主国家，所以我看到华尔街的CEO们天天这样说。像桥水基金的创始人雷·达里奥刚刚给中共国最大的基金筹集了12.5亿美元。
-
-达里奥写过一篇反对抵制中共国的文章，文章为中共国的国家监控和对维吾尔人的待遇辩护：“我认为是时候我们作为一个国家问问自己，我们真的为中国共产党做了足够的努力吗？我们应该做更多”。就像贝莱德说的，“我们应该买更多的中共国股票”。
-
-说起华尔街对中共国的卑躬屈膝，摩根大通的CEO说他后悔开中共的玩笑。“欧，不知道中共国会不会生气”。那么那个玩笑是什么呢？（他说，）“中国共产党在庆祝其100年诞辰，摩根大通也在庆祝，我打赌，我们会活得更久。在中共国我可不能这么说，他们可能在（监）听。事实证明，这不是一个好玩笑，因为中共国确实在听。
-
-*编辑：【英国伦敦喜庄园编辑部】*
-
-*视频字幕：*雨中漫步 *| 听写：*云岭 *| 翻译：*Roberts *| PR：*致良知*| 简评/文字整理/编辑：胖丁 | Page：青山*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
-
-[![](https://spark.adobe.com/page/zN5y7QYSnHt9u/images/08e741b8-93c4-4f5a-a0fc-01980be4ef39.jpg?asset_id=0e118d02-76b3-4d81-83d0-4f7443b2cea8&amp;img_etag=%22702d7d0cafe4388178e9cfaba0e2e08d%22&amp;size=1024)](https://spark.adobe.com/page/zN5y7QYSnHt9u/images/08e741b8-93c4-4f5a-a0fc-01980be4ef39.jpg?asset_id=0e118d02-76b3-4d81-83d0-4f7443b2cea8&amp;img_etag=%22702d7d0cafe4388178e9cfaba0e2e08d%22&amp;size=1024)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

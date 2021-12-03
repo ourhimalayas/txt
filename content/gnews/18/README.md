@@ -2,40 +2,34 @@
 ---
 
 
-## 贝莱德公司把美国养老基金投资给中共国
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1716144/)
+## 中国银行兰州支行终止营业
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1716187/)
 
-**简评：**
+撰稿：纽约香草山文艺部 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-1.png)
+11月30日，甘肃银保监局发布公告，同意中国银行兰州分行终止营业，同时要求中国银行妥善处理好业务清理移交，并于10日内缴回兰州分行的“金融许可证”。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-127.png)图片来自：[http://5b0988e595225.cdn.sohucs.com](http://5b0988e595225.cdn.sohucs.com/images/20200408/70c003f8317c457d9d883ddda8c5fda6.jpeg)
+近年来，由于网上银行、手机银行的普及等，银行的基层网点的“关停”现象实属常见。而中国银行兰州分行，独立运营仅三年就遭关停。
 
-大约130万亿美元的全球资产，贝莱德公司管理着大约十分之一，近10万亿美元。贝莱德拿着美国养老基金的钱投资中共国公司，完全将这些资金置于危险之中，因为中共可以随心所欲地使用这些基金。被美国政府列入黑名单、从事非法交易和网络监控的海康威视和科大讯飞两家公司，贝莱德都是背后的投资者。
+此消息一出，引发社会热议。人们纷纷对当前的经济状况以及储户的资金安全表示担忧。据悉，公告内容尚未透露停业原因。
 
+新闻链接：**[中国银行兰州分行终止营业](https://wap.eastmoney.com/a/202112022199979995.html)**
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-89.png)
 
-[GTV视频链接](https://gtv.org/video/id=61a604603ff6481adce65bed)
+总编：Irene木木
 
-**视频字幕：**
+编辑：AN/雪梨
 
-他们拿着你的钱，把赌注押在中共国。贝莱德公司管理着近10万亿美元的资金，这些资金由养老基金401(K)（美国退休储蓄计划）的机构投资组成，如大学捐赠基金。
+校正/发稿：浪迹天涯
 
-据Statista网站估计，全球管理的资产只有大约103万亿美元。为便于理解，即大约十分之一的全球管理资产被贝莱德公司所管理。
-
-他们拿着这些钱，购买一些不同的中国公司和美国公司。当他们购买中国公司时，确实将这笔钱置于风险之中，因为中共认为自己是几乎所有中国公司的最终所有者。因此，他们可以随心所欲地决定如何对待这项投资。
-
-他们把美国养老金领取人置于中共的摆布之下。贝莱德公司在中共国的投资无所顾及，甚至投资用于压迫中国公民的监控公司。
-
-据报道，贝莱德是海康威视和科大讯飞两家公司的投资者。这些公司在2019年被美国政府列入黑名单，作为美国公民与他们交易是非法的，因为他们既用于军事应用，也作为中国公民监控网路。
-
-*编辑：【英国伦敦喜庄园编辑部】*
-
-*视频字幕：*nights *| 听写：*云岭 *| 翻译：*致良知 | PR：Dasy *| 简评/文字整理/编辑：胖丁 | Page：青山*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
-
-[![](https://spark.adobe.com/page/2vxqjSZmYNOiQ/images/08e741b8-93c4-4f5a-a0fc-01980be4ef39.jpg?asset_id=0e118d02-76b3-4d81-83d0-4f7443b2cea8&amp;img_etag=%22702d7d0cafe4388178e9cfaba0e2e08d%22&amp;size=1024)](https://spark.adobe.com/page/2vxqjSZmYNOiQ/images/08e741b8-93c4-4f5a-a0fc-01980be4ef39.jpg?asset_id=0e118d02-76b3-4d81-83d0-4f7443b2cea8&amp;img_etag=%22702d7d0cafe4388178e9cfaba0e2e08d%22&amp;size=1024)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

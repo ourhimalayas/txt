@@ -2,26 +2,30 @@
 ---
 
 
-## 独裁政府利用华为技术来审查新闻和记者
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1715185/)
+## 鲁比奥参议员提案加强美国太空产业，对抗中共侵略
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1715278/)
 
-韩国首尔天池农场
-翻译：zzballack
-上传：追着曙光跑
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Unknown-4.jpg)鲁比奥参议员提案加强美国太空产业，对抗中共侵略 网络图片
+据美国之音12月3日报道，美国参议员鲁比奥提出“太空保护美国控制和企业议案”，加强美国太空产业，以对付中共根据“中国制造2025”规划取代美国成为太空产业全球领导者的正在进行的努力。
 
-据《华盛顿自由灯塔》（Washingtong Free Beacon）12月2日报道，监督互联网自由的人权组织Top10VPN今年8月发布了一份报告，在对69个国家进行研究调查后，确定有17个国家使用中共电信巨头华为的硬件设备和技术来进行审查，其中有9个国家自2019年起开始采用华为设备。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Image-2021-12-03-at-11.41.43.jpeg)图片来源：原新闻
-报告说，古巴政府使用华为的“中间箱（middlebox）”设备来审查批评该国共产主义政权的报道。布隆迪政府屏蔽批评总统的媒体机构。其它15个国家专门使用华为的硬件来审查新闻。
+“太空保护美国控制和企业议案”要求不得使用美国商务部或国家航空航天局（NASA）的经费来购买或租赁与中共有关的任何通信或宇航公司的硬件/软件和服务。法案要求美国国家航天委员会（National Space Council）向国会报告中共国和俄罗斯的太空投资竞争，评估经济风险，制定战略，保护美国太空工业化的产业链。
 
-华为设备深深地嵌入全球各地的互联网网络中，特别是与中共国有密切经济关系的国家。中共通过其“一带一路”倡议，将华为等由中共支持的公司的技术输送并整合到外国网络中。华为参与审查表明，中共正在与全球的独裁者找到共同点。
+法案同时要求国防部长、商务部长和财政部长就美国太空探索、国家安全领域的海外投资情况每年向国会提交报告以及保密附件。最终，美国意识到了来自中共的威胁，不仅是现在，包括未来的太空领域，开启了对中共从天空到地面的全方位防御，对抗中共侵略。
 
-报告作者瓦伦汀·韦伯（Valentin Weber）和瓦西里斯·维维里斯（Vasilis Ververis）2021年11月在接受非营利团体保护记者委员会 (Committee to Protect Journalists)采访时警告说：“华为的工具也可能被用来侵犯用户的隐私。尽管目前还不清楚用户数据在到达华为的中间邮箱后被发送到哪里，但如果这些数据被出售或用于分析，我们也不会感到惊讶。”
+新闻参考链接：[https://www.voachinese.com/a/rubio-to-strengthen-us-space-industry-20211202/6337097.html?utm\_source=twitter&utm\_medium=social&utm\_campaign=dlvr.it](https://www.voachinese.com/a/rubio-to-strengthen-us-space-industry-20211202/6337097.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
 
-华为已经成为美国的一个政治热点。立法者担心，允许该公司在美国本土运营可能会使中共政府获得美国公民的数据。川普和拜登政府都将华为列入黑名单。
+* * *
 
-华为为了扭转现在欧美等国对其的打压，大幅加大了游说力度。据其财务报告显示，自8月以来，华为向民主党说客托尼·波德斯塔 (Tony Podesta)支付了50万美元，以恢复该公司在华盛顿的形象。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-新闻来源：[Report: Authoritarian Governments Use Huawei Technology To Censor Journalists](https://freebeacon.com/national-security/report-authoritarian-governments-use-huawei-technology-to-censor-journalists/)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

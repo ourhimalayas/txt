@@ -2,38 +2,34 @@
 ---
 
 
-## 美联储承认“奥密克戎”加剧通胀的风险
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1716196/)
+## 桥水基金创始人瑞•达利奥与中共合谋奴役中国人民
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1716381/)
 
-撰稿：纽约香草山农场- 007
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-1.png)
-11月30日，美国国会就持续的高通胀、新的新冠病毒变体“奥密克戎”可能产生的经济影响，举行听证会。美联储主席鲍威尔在会上称，美国持续高通胀的风险已升高，可能不是暂时性的。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-128.png)图片来源：https://media-cldnry.s-nbcnews.com
-供应链中断已导致今年通胀意外飙升，当前的通胀已处于31年以来的高位。鲍威尔表示，变体病毒“奥密克戎”有加剧供应链中断的风险。而新的病毒变种，还将导致美国劳动力市场上更多人，更长时间的观望，抑制劳动力供应。
+整理报道：七彩光
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Ray-Dalio.jpeg)图片来源：键新网
+周二，在CNBC的“财经论坛”（Squawk Box）节目中，美国亿万富翁瑞·达利奥（Ray Dalio）对中国人民发表了歧视性的话语，称“中共政府对中国人民只是像严格的父母而已”。12月2日，《新闻极限》对此做了报道。
 
-就业市场疲软和通胀持续升高将使美联储难以实现上调利率的目标，造成一系列艰难的政策权衡。鲍威尔表示将使用相关经济手段来支持经济和推动劳动力市场。
+瑞·达利奥是桥水基金公司的创始人兼首席执行官，桥水基金于2013年被列为全世界最大的避险基金公司。根据彭博社报导，截至2019年1月，他是世界上最富有的100个人中的第79位。
 
-供应链中断已导致今年通胀意外飙升，当前的通胀已处于31年以来的高位。鲍威尔表示，变体病毒“奥密克戎”有加剧供应链中断的风险。而新的病毒变种，还将导致美国劳动力市场上更多人，更长时间的观望，抑制劳动力供应。
+根据报道，最近达利奥为桥水基金公司在中共国的第三笔投资筹集了相当于12.5亿美元的资金。在节目中，当被问及在中共国投资时如何考虑人权道德方面的问题时，他回答说：“（我）不可能是这些问题的专家。中共国所拥有的是一个专制制度，他们的一位领导人说，美国是一个个人主义至上的国家。…在中国，（国家政府）是家庭的延伸。作为一个自上而下的国家，他们（共产党政府对待人民）的所作所为就像一个严格的父母。”
 
-就业市场疲软和通胀持续升高将使美联储难以实现上调利率的目标，造成一系列艰难的政策权衡。鲍威尔表示将使用相关经济手段来支持经济和推动劳动力市场。
+对于达利奥对中国人民的侮辱性言论，来自犹他州的共和党参议员米特·罗姆尼（Mitt Romney）说，达利奥是一个“杰出的人，也是一个朋友，但他对中共国可怕的虐待行为佯装无知，并将在那里的（与中共）的同谋投资合理化，这是一种可悲的道德缺失。更为可悲的是，在美国和整个自由世界的国家，有太多的人都是如此。”
 
-新闻链接： [美联储：美国通胀可能不是暂时性的](https://www.voachinese.com/a/fed-hearing-senate-20211130/6334073.html)
+值得关注的是，罗姆尼是共和党人，他在2021年2月13日第二次弹劾前总统川普，也是七名共和党的参议员弹劾前总统川普的其中一位。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-89.png)
+**新闻来源**
 
-总编：文特
+[Sen. Romney Calls Friend Ray Dalio’s China Investments ‘Moral Lapse’](https://www.newsmax.com/newsfront/mitt-romney-dalio-china/2021/12/02/id/1047142/)
 
-编辑：Lakeman文仁/雪梨
+发布：七彩光
 
-校正/发稿：浪迹天涯
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

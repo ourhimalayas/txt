@@ -2,28 +2,32 @@
 ---
 
 
-## 洪都拉斯新政府不与中共国建交
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1715347/)
+## 中国电信垂死挣扎 美高院驳回其主张
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1715463/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-11.jpg)[图片来源](https://www.nytimes.com/2021/11/30/world/americas/honduras-election-castro.html)
-洪都拉斯总统当选人卡斯特罗(Xiomara Castro)的副总统人选之一纳斯拉亚(Salvador Nasralla)周四表示，新政府优先考量与美国的关系，不计划与中共国建交，暗示卡斯特罗的立场与选前截然不同。
+撰稿：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3-7.jpg)
+[图片来源](https://search.yahoo.co.jp/image/search?aa=0&amp;aq=-1&amp;ei=UTF-8&amp;fr=yjapp3_ios_wv&amp;p=%E4%B8%AD%E5%9B%BD%E9%9B%BB%E4%BF%A1&amp;ts=18049#8bf34f0fcf0de08cd9333304f28e2f9a)
 
-卡斯特罗以巨大优势赢得周日的总统大选，她选前表示不排除与中共国建交。这将使台湾外交受到重创。卡斯特罗与中共国建交承诺引发中共与美国的外交角力，双方都企图影响洪都拉斯立场。
+12月2日，位于华盛顿特区的美国联邦上诉法院驳回了中共大型电信公司——中国电信提出的要求，该公司要求禁止联邦通信委员会（FCC）撤销其美国营业执照的决定。该案被驳回。
 
-纳斯拉亚将成为卡斯特罗的三位副总统之一，他表示，洪都拉斯与中共国的任何关系，必须拿来与对美关系权衡考量。当问到洪都拉斯是否会与中共建交，纳斯拉亚回道：“不会”。
+FCC的决定将于明年1月初生效。中国电信的美国子公司曾提出动议，要求在对该案进行全面听证之前，暂停FCC的决定。
 
-“没有与中共国的关系，继续维持与台湾的关系，”他称。“我们的贸易盟友、紧密盟友、历史盟友是美国。我们不想与美国对抗，美国是我们的主要贸易盟友。”
+中国电信此前警告说，必须在12月4日之前向其在美国的客户传达FCC的决定。如果联邦通信委员会的决定不被暂时中止，它“将被迫大幅暂停其业务，这将对其运营、声誉和相关方造成不可挽回的损失”。
 
-另一名新政府的匿名高层人士也表示，洪都拉斯与中共国的关系不会升级，因为升级的条件并不存在。
+与此同时，美国高等法院表示，将确定审理该案的日期。然而，这预计需要几个月的时间。
 
-消息来源:
+看来中国电信离彻底被从美国赶出的日子越来越近了。中共“蓝金黄”的又一个爪牙被FCC砍断了。看你还能折腾多久！
 
-[洪都拉斯下任政府立场急转弯 暗示不会与中共国建交](https://cn.reuters.com/article/honduras-president-china-dip-pol-1203-idCNKBS2II051?il=0)
+信息来源:
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+[中国電信の米免許取り消し、米高裁が差し止め請求棄却](https://news.yahoo.co.jp/articles/82dd3f542a4c6514f52c2fe3fac86c201d3ceaa8)
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
