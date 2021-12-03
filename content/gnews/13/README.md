@@ -2,32 +2,30 @@
 ---
 
 
-## 喜币会成为比法币更牛的现代化数字货币
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1716138/)
+## 盖特抽奖活动——赢得一年房租或抵押贷款
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1716171/)
 
-撰稿：纽约香草山农场福音部-恩永存
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-1.png)
-在12月1日的大直播中，郭文贵先生表示，KYC是喜联储的核心，严格的KYC流程使喜联储备受西方政府的尊重。进入美国市场，接受美国监管，将使喜币成为世界数字货币的佼佼者。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-125.png)
-喜联储，喜币，喜美元，是数字货币和法币的完美结合。加上即将开启的喜支付和喜贷款，喜联储将成为引领世界数字货币的标杆。而主权国家数字银行的加盟，将使喜币成为是数字银行界的SWIFT。
+撰稿：纽约香草山农场 – Delilah小胖
 
-如郭先生所言，“喜币会成为比法币更牛的现代化数字货币”。
 
-新闻链接：https://gettr.com/post/pieh424c97
 
+12月1日，盖特官方账号发布新一轮抽奖活动通知。盖特公司表示，将为中奖者支付其2022年一整年的房租或者住房抵押贷款缴纳金额，最高可达2万美金。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-126.png)图片来自：https://images.app.goo.gl
+在即将到来的圣诞季，盖特公司的抽奖活动，不仅为深受中共病毒影响的民众，带去一些节日的温暖，同时，也在一定程度上帮助盖特用户解决当前高通胀下的生活困境。
+
+本次抽奖活动的登记截至日期为美东时间12月12日。更多详情，请登陆盖特官方平台gettr.com查看。祝参加本期盖特假日抽奖活动的盖特用户好运！
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/image-89.png)
+总编：文特
 
-总编： Irene木木
-
-编辑：AN/雪梨
+新闻链接：[PRESS RELEASE: GETTR Home for the Holidays](https://gettr.com/post/pigvyt7cdc)
 
 校正/发稿：浪迹天涯
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-1.png)
  
