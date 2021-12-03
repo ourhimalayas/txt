@@ -2,18 +2,16 @@
 ---
 
 
-## 西媒头条 — 第123期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1716601/)
+## 【#G时新闻】新变种病例症状轻微，但不容轻视！
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/1716811/)
 
-制作：蚂蚁兄弟
+加拿大温哥华扬帆农场 播报：莉李鲤 制作：文雅
 
-**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
+🔥新变种病例均表现为无症状或症状轻微，但不容轻视！
+🔥南非医学协会主席科兹博士称“奥密克戎变种目前仍然处于非常早期的阶段，此时，往往年轻人会先被感染，然后扩散至其他年龄层”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/xm1203.001.jpeg)
-
-发稿：信心的选择
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3.jpeg)
+盖特链接：[https://gettr.com/post/piic1id3d5](https://gettr.com/post/piic1id3d5)
+编辑/上传：七觉花
 
  
 
