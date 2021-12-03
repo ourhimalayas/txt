@@ -2,46 +2,40 @@
 ---
 
 
-## 悉尼的量子初创公司获空客3500万投资
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1715050/)
+## 诺瓦克·德约科维奇：网球男单世界第一的父亲对他参加澳网表示怀疑
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1715128/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-24.jpg)图片来源：inkoly/iStock/Getty Images Plus
-**翻译：**Sara9
-**编辑：**翼族
+翻译： 真北007
+![](https://assets.gnews.org/wp-content/uploads/2021/12/skysports-novak-djokovic-tennis_5590209.jpg)图片来源：网络
+来自SKY SPORTS 11月29日的新闻报道：
 
-总部位于悉尼的量子初创公司Q-CTRL在空客风险投资公司带领的一轮融资中获得了2500万美元（3500万澳元），这是量子计算领域快速商业化领域最新的一项投资。
+组织者表示，所有球员在墨尔本都必须接种疫苗； 德约科维奇尚未透露他是否接种了疫苗；其父 Srdjan Djokovic：“在这些敲诈勒索等条件下，（Djokovic）可能不会（上场）。”
 
-Q-CTRL主要将其量子控制软件提供给IBM和Rigetti等客户，这些客户的量子计算机需要一个稳定的环境来运行。
+诺瓦克·德约科维奇的父亲说，除非放宽对 Covid-19 疫苗接种的规定，否则世界第一不太可能在明年初参加澳大利亚网球公开赛。
 
-Q-CTRL的创始人兼首席执行官迈克尔·比尔库克（Michael Biercuk）说：“量子系统非常脆弱，对周围的所有电磁干扰非常敏感，这可能导致硬件损坏。这就像一台笔记本电脑会过热，因为它正试图调用你放在内存中的所有信息。控制系统是防止这种硬件退化并保持其稳定的原因。”
+明年首个大满贯赛事（于 1 月 17 日开始）的组织者已经表示，所有球员都必须接种疫苗才能参加。
 
-虽然Q-CTRL在很大程度上专注于将控制理论应用于不稳定的量子环境，但在去年年底，它开始开发量子传感器，一旦部署在卫星上，可以测量加速度、重力和磁场。这个量子传感器研制方向引起了全球航空航天公司空客公司的风险投资部门——空客风险投资公司的兴趣，该公司已经投资并主导了最近的这一轮融资，其中还包括另一个新的投资者Ridgeline Partners。
+到目前为止，德约科维奇拒绝透露他是否接种了疫苗，他的父亲告诉塞尔维亚电视台 Prva，管理机构澳大利亚网球协会对球员接种疫苗的立场无异于“敲诈”。
 
-“该团队的量子控制软件包令人印象深刻，它在整个量子行业加速发展的时刻实现了快速和敏捷性”，设在东京的空客风投合伙人刘易斯·皮诺（Lewis Pinault）说，“在空客风险投资公司，我们对Q-CTRL不断扩大的先进应用和解决方案感到特别兴奋，包括月球开发、地理空间智能和地球观测，所有这些在全球努力解决我们现在所面临的不断加大的行星系统危机中越来越关键。”
+据新闻网站 B92 报道，Srdjan Djokovic 说：“就疫苗和非疫苗而言，是否接种疫苗是我们每个人的个人权利。
 
-Q-CTRL的这一轮融资是在澳洲联邦政府表示投资1亿专门用于量子技术，并将量子计算确定为“关键”技术的同一个月。去年，澳大利亚联邦科学与工业研究组织（CSIRO）发布了一份量子规划蓝图，认为在持续的投资和合作下，澳大利亚的量子研究实力到2040年可能价值超过40亿美元，并在该国创造16000个就业机会。
+“没有人有权进入我们的亲密关系。
 
-Q-CTRL的量子传感客户，包括与高级导航（Advanced Navigation）、澳大利亚国防部、空军研究实验室和澳大利亚航天局的主要商业和政府合作。
+“在这些勒索和限制条件下，（德约科维奇）可能不会（上场）。
 
-**不****仅仅是科学研究**
+“我不会那样做。他是我的儿子，所以你自己决定。”
 
-比尔库克（Biercuk）教授说：“量子传感将量子硬件的脆弱性作为一种资产，以实现测量地下水、监测空间天气和在没有全球定位系统的情况下进行导航的新方法。以前，量子业务被称为研究和科学的游戏，但最近已经有了明显的商业化转变。”
+德约科维奇在墨尔本一直占据统治地位，包括今年在内九次夺冠。
 
-3月，IonQ公司向亚马逊AWS、微软Azure和谷歌云等公司出售其22量子比特量子计算机的使用权，在纽约证交所反向上市，估值达20亿美元。
+他坐拥 20 个男子大满贯冠军头衔，与罗杰·费德勒和拉斐尔·纳达尔齐名，是历史上最多的。
 
-“这个行业还没有确定其杀手级应用，这导致了经济上的不确定性，但现在这种情况正在改变”，比尔库克教授说，“投资者已经明白，量子计算不仅仅是科学研究，整个行业正在从科学实验室和大学进入企业本身。”
+原文链接：[https://www.skysports.com/tennis/news/12110/12482028/novak-djokovic-world-no-1s-father-casts-doubt-on-his-australian-open-participation](https://www.skysports.com/tennis/news/12110/12482028/novak-djokovic-world-no-1s-father-casts-doubt-on-his-australian-open-participation)
 
-**原文链接：**[Quantum computing: Airbus tips $35m into Sydney-based quantum start-up (afr.com)](https://www.afr.com/technology/airbus-tips-35m-into-sydney-based-quantum-start-up-20211130-p59di7)
+编辑/发布：LILY
 
-***发布：**翼族*
+20211202
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

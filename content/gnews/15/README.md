@@ -2,21 +2,26 @@
 ---
 
 
-## 雅典娜时报-第131期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1715101/)
+## 德国宣布对未接种中共病毒疫苗的人将进行封锁
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1715133/)
 
-**《雅典娜时报》汇聚全球新闻时事**
+**撰稿：Grace**
 
-#### 编辑：精靈藍
-排版：小蚂蚁614
-![](https://assets.gnews.org/wp-content/uploads/2021/12/时报-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/时报2-1.jpg)
-发布：kk
+**校对：Grace**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-02-at-8.22.10-PM.jpeg)图片来源：雅虎
+据The Gateway Pundit 12月2日报道，德国宣布在全国范围内对未接种中共病毒疫苗的人进行封锁。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+几周前，德国总理安格拉·默克尔宣布，将对未接种中共病毒疫苗者的公共生活的很大一部分加以限制。默克尔更是无耻地说，医院里挤满了中共病毒患者，是因为人们拒绝接受中共病毒疫苗的注射。
+
+在本周四，安格拉·默克尔和下周将接替她的副总理奥拉夫·舒尔茨，在与地区领导人进行危机谈判后宣布了新的强制中共病毒疫苗规定。该规定有以下的这些要求：医院、护理院员工必须注射中共病毒疫苗。在圣诞节前注射的中共病毒疫苗数量要多达3000万支。增加能够管理疫苗的人员数量。只有接种过疫苗的人和感染过中共病毒而已经得到恢复的人才能进入餐厅，剧院和非必要的商店。对未接种疫苗的人实行更严格的接触限制。在感染率高的地方关闭夜总会。限制大型公共活动中的观众人数。扩大危机单位，以协调联邦，区域行动。
+
+即将离任的卫生部长延斯·斯潘（Jens Spahn）周四在接受ZDF电视台采访时说：“这实际上是对未接种疫苗者的封锁。” 斯潘还说，目前在德国有超过1200万的成年人没有接种中共病毒疫苗。
+
+据CNN报道，默克尔周四在卸任前的最后一次新闻发布会说，在议会进行辩论并遵循德国道德委员会(Germany’s Ethics Council)的指导后，全国范围内的中共病毒疫苗接种指令可能会从 2022 年 2 月开始生效。
+
+**新闻来源：[Germany Imposes Nationwide Lockdown For the Unvaxxed](https://www.thegatewaypundit.com/2021/12/germany-imposes-nationwide-lockdown-unvaxxed/)**
+
+**[Germany locks down unvaccinated people, as leaders plan to make shots compulsory](https://www.cnn.com/2021/12/02/europe/germany-lockdown-covid-restrictions-intl/index.html)**
 
  
 

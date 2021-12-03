@@ -2,36 +2,29 @@
 ---
 
 
-## 中共网络审查不断升级 豆瓣屡遭重罚
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1714815/)
+## 七哥谈：Omicron和灭共
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1714884/)
 
-**撰稿：日本东京方舟农场 海星**
+文编：Hima
+听写：叮叮
+视频：七哥
 
-12月2日，中共网信办以豆瓣屡次违法发布或传输信息为由，责令其整改，并重罚人民币150万元。
+Omicron出来以后，他这个人很迷信，我发现科学家到最后全都迷信，医学家最后全都不信医学，全都迷信。他说你不要看这次习这个字啊，他说我觉得这是天意啊，轮就轮到习那去了。他咋就世界了，他是百亿分之概率啊，视为组织就没想到这么一事，轮到了这个病毒叫XI病毒，他说这是名副其实啊，这最重要的是搞了一个叫Omicron，他说Omicron这个词实际上是很多国家的语言，Omicron真的不是个好事，实际上就是结束的意思。他说这都是天意啊，他说这就是结束的意思啊，Omicron就是结束。然后战友居然说这是灭共，粤语什么O灭共，然后科学家跟我说，也就三周前我直播，他告诉我，文贵，你不要对外讲，你一定要等着我说，你再说，如果这次共产党弄不了大毒的话，咱们新中国联邦就厉害了。我说为什么，他说真的是新中国联邦的解药，会拯救全人类，不但解药是解的病毒，是解的疫苗。很多人一说好事就想着喜币，你们就是钱迷。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-23.jpg)
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-据《路透社》报道，中共互联网信息办公室12月2日约谈豆瓣网主要负责人和总编辑，声称近期豆瓣网及其账号多次出现法律法规禁止发布或传输的信息，责令其立即整改，并处理相关责任人。
+**关注我们**
 
-根据中共网信办官方微信“网信中国”发布的新闻稿显示，北京市互联网信息办公室对豆瓣网运营主体-——北京豆网科技有限公司开出了150万元人民币的高额罚单。
+Discord 账号
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-19.jpg)图片来源：路透社
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-今年截至11月底，豆瓣网遭中共网信办处罚已高达20次，共累计罚款900万元人民币。
+Gettr 账号
 
-目前豆瓣已暂停回复功能，预计将于本月17日恢复。 豆瓣网是中共国最大的社群网站之一，拥有超过2亿用户。该网站向来以自由讨论风气著称，但今年以来，却屡遭中共整顿处罚。其网站上不仅有多个有关女权、娱乐及“躺平”等内容的小组被中共封锁并解散，甚至还遭到过停用整改。
-
-*参考链接：*
-
-[中国网信办约谈处罚豆瓣网 指因屡次出现禁止发布或传输信息“情节严重”](https://cn.reuters.com/article/idCNKBS2IH102)
-
-[豆瓣網屢遭約談令整改 重罰近4千萬](https://ec.ltn.com.tw/article/breakingnews/3756164)
-
-* * *
-
-*素材采编：海星*
-
-*编辑：青衣青青*
-
-*发布：Ranting*
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

@@ -2,32 +2,29 @@
 ---
 
 
-## 日本前首相安倍晋三警告中共不要对台湾轻举妄动
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1714787/)
+## 七哥谈：青蒿素
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1714871/)
 
-**撰稿：日本东京方舟农场 北极**
+文编：Hima
+听写：叮叮
+视频：七哥
 
-据《德国之声》中文网12月2日报道，日本前首相安倍晋三日前通过视讯参加台湾智库会议时表示，如果中共胆敢武力攻台，日美同盟绝不会袖手旁观。安倍同时警告中共方面不要轻举妄动。
+全世界都知道青蒿素是管用的，青蒿素绝对是可以把癌症给消失了。青蒿素绝对把糖尿病，和人类存在的艾滋病，特别是现在受环境污染的脑血栓，心血管病有巨大的帮助，甚至消灭。还有青蒿素和伊维菌素连在一起，一定会把这次的病毒给解决，这科学家是很保守的人！很保守的人！他情绪，因为当医生的人心都比较狠，很少激动啊，很少情绪化。
 
-安倍在会议中表示，“台湾有事就是日本有事，也是日美同盟有事”。安倍称，如果中共进攻台湾，日本和美国绝对不会袖手旁观，并且此举也会给中共自身的经济造成巨大伤害。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-18.jpg)图片来自德国之声
+**关注我们**
 
-根据中共外交部网站发布的消息，当天晚些时候，中共外交部官员华春莹和汪文斌又一如既往地对安倍发表的挺台言论表示“遗憾”，并召见了日本大使。
+Discord 账号
 
-日本内阁官房长官松野博一（Hirokazu Matsuno）对中共外交部约见日本驻华大使一事表示反对。松野博一指出，日方不同意中方的处理方式，“中方有必要理解，在日本国内本就存在这样的观点，日方不能接受中方在这类问题上的单方面看法。” 安倍晋三去年虽以健康理由卸任日本首相一职，但他目前仍是议会最大党派自民党的领导人，且在党内拥有强大的影响力。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-*参考链接：*
+Gettr 账号
 
-[安倍称“台湾有事就是日本有事” 北京约见大使表抗议](https://www.dw.com/zh/%E5%AE%89%E5%80%8D%E7%A7%B0%E5%8F%B0%E6%B9%BE%E6%9C%89%E4%BA%8B%E5%B0%B1%E6%98%AF%E6%97%A5%E6%9C%AC%E6%9C%89%E4%BA%8B-%E5%8C%97%E4%BA%AC%E7%BA%A6%E8%A7%81%E5%A4%A7%E4%BD%BF%E8%A1%A8%E6%8A%97%E8%AE%AE/a-59995111)
-
-* * *
-
-*素材采编：北极*
-
-*编辑：青衣青青*
-
-*发布：Ranting*
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

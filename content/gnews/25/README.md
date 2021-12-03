@@ -2,29 +2,43 @@
 ---
 
 
-## 七哥谈：Omicron和灭共
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1714884/)
+## 拜登说不会扩大疫苗强制和封锁来对抗今冬疫情
+` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1714989/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+加拿大扬帆农场 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2021/12/120221bidenomicron_960x540.jpg)图片来源：WSJ
+根据《CNBC》12月2 日报道，拜登今天表示，冬季对抗Covid的计划将不包括新的封锁或扩大政府当前的疫苗强制要求。
 
-Omicron出来以后，他这个人很迷信，我发现科学家到最后全都迷信，医学家最后全都不信医学，全都迷信。他说你不要看这次习这个字啊，他说我觉得这是天意啊，轮就轮到习那去了。他咋就世界了，他是百亿分之概率啊，视为组织就没想到这么一事，轮到了这个病毒叫XI病毒，他说这是名副其实啊，这最重要的是搞了一个叫Omicron，他说Omicron这个词实际上是很多国家的语言，Omicron真的不是个好事，实际上就是结束的意思。他说这都是天意啊，他说这就是结束的意思啊，Omicron就是结束。然后战友居然说这是灭共，粤语什么O灭共，然后科学家跟我说，也就三周前我直播，他告诉我，文贵，你不要对外讲，你一定要等着我说，你再说，如果这次共产党弄不了大毒的话，咱们新中国联邦就厉害了。我说为什么，他说真的是新中国联邦的解药，会拯救全人类，不但解药是解的病毒，是解的疫苗。很多人一说好事就想着喜币，你们就是钱迷。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-23.jpg)
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+拜登在一次更新中告诉记者说他不会关闭或封锁，而是广泛的疫苗接种和加强针以及更多的测试。他说：”虽然我现有的联邦疫苗接种要求正在接受法院的审查，但这个计划并没有扩大或增加强制疫苗，希望所有美国人都能团结起来，得到两党的支持“。
 
-**关注我们**
+政府希望通过扩大宣传来增加接受强化注射的美国人的数量。医疗保险和医疗补助服务中心将联系6000多万参加医疗保险的人，其中大多数是老年人，提醒他们再打一次针。
 
-Discord 账号
+周四早些时候公布的白宫计划是在本周在加利福尼亚和明尼苏达州发现至少两例高度突变的欧米茄变体之后制定的。美国和世界各地的卫生官员担心，这种有大约50个变异的变体可能被证明更具有传播性，并在某种程度上逃避疫苗的保护。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+几个欧洲国家已经重新对公共生活实施限制，以对抗Covid感染的浪潮。奥地利已经实行了全面封锁，荷兰正在迫使餐馆等企业提前关门，德国禁止未接种疫苗的人进入除杂货店、药店和面包店以外的大多数企业。
 
-Gettr 账号
+白宫要求拥有100名或更多雇员的企业自愿执行政府的要求，在1月4日之前为其员工接种疫苗或每周进行测试。 一个联邦上诉法院上个月因为宪法问题，搁置了这项政策，等待审查。
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+拜登说，政府的目标是通过在社区卫生中心和全国各地的地点启动数百个家庭疫苗接种诊所，使父母更容易为他们的孩子接种疫苗，从而保持学校开放。
+
+该计划还包括扩大免费的上门病毒测试。据总统说，有私人保险的美国人将获得测试费用的报销，政府将向保健中心和农村诊所分发5千万次免费测试，供没有保险或服务不足的人使用。
+
+拜登说，政府认为目前不需要额外的措施，但正在制定应急计划，以开发新的疫苗和加强针，以便需要它们来对抗新变体欧米龙。
+
+“我的团队已经在与辉瑞公司、摩德纳公司和强生公司的官员合作，为其他疫苗或加强针制定应急计划，”拜登说。”而且我还将指示美国食品和药物管理局和疾病预防控制中心使用现有的最快程序，在不偷工减料的情况下，为安全起见，在需要时使这类疫苗得到审查和批准。”
+
+美国从下周开始，还将要求入境的国际旅行者无论其疫苗接种状况如何，都要在出发前24小时接受检测。政府还将国内航班和公共交通的口罩任务延长至3月18日。
+
+拜登强制疫苗令被法院暂停，现在主要靠宣传蒙骗民众接种疫苗，美国毕竟是一个法制社会，尽管维护法制的公正需要代价。
+
+原文链接：
+[https://www.cnbc.com/2021/12/02/covid-news-biden-says-no-lockdowns-wont-expand-vaccine-mandates-this-winter.html](https://www.cnbc.com/2021/12/02/covid-news-biden-says-no-lockdowns-wont-expand-vaccine-mandates-this-winter.html)
+
+* * *
+
+发稿 Spirit
+
+
 
  
 

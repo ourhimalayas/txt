@@ -2,65 +2,28 @@
 ---
 
 
-## 🌹🌹🌹郭文贵先生新歌“Hcoin to the moon”上线啦
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1714982/)
+## 文贵视角:洗米华被捕代表习近平不是神
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1715114/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/16384925181.png)
-郭文贵先生再推新歌“Hcoin to the moon”，单曲甫一上线，即在多国ITUNES荣登榜首，战友们继续打榜，继续我们“以歌（文化）灭共”，以多种手段灭共的模式！
+撰稿:牛小妹
+![](https://assets.gnews.org/wp-content/uploads/2021/12/biden.jpg)
+**习近平在派系势力的眼里是傻子**
 
-### 澳门、新加坡、阿联酋第一名🌈🌈🌈👏👏👏🌹🌹🌹
-![](https://assets.gnews.org/wp-content/uploads/2021/12/16384913591.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/16384913941.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/16384914271.png)
-### 台湾、匈牙利、香港第二名🌈🌈🌈👏👏👏🌹🌹🌹
-![](https://assets.gnews.org/wp-content/uploads/2021/12/16384914871.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/16384915291.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/16384915681.png)
+11月27日，绰号「洗米华」的澳门赌场大亨周焯华涉嫌开设赌场等犯罪行为而遭逮捕。”如果共产党真如此神，看到我2017-2018的直播，2018年就会把洗米华给抓了。到三、四年后的今天，习才想明白。” 郭文贵先生在12月1日的大直播中说，”习在江派等背后势力的眼里就是一个傻子!”
 
+**孟建柱利用洗米华建立万亿的隐形王国**
 
-[下载地址](https://music.apple.com/au/album/hcoin-to-the-moon-single/1592902212)
+“孟建柱的政治智慧极高，他是要通过统治东南亚，然后影响整个东欧西欧，统治全世界。他是有战略的利用洗米华，打造真正隐形的王国，王国之大远超过想象。”文贵先生语出惊人。
 
-**附：歌词**
+“第一，孟拿下整个东南亚的黑帮，特别是缅帮、缅北、泰国、马来西亚新加坡一带，每年的毒品走私金额是足以改变世界的5000亿美元，从阿富汗跨过丝绸之路，吉尔吉斯坦、亚塞拜然，俄罗斯、拉脱维亚、立陶宛进入欧洲，地球西半部，北南部走廊全部被孟拿下。土耳其，黑海死海，一直到亚塞拜然，还有旁边石油国、天然气国、俄罗斯、白俄罗斯，新疆，包括到伊朗。”
 
-Hcoin to the moon
+“第二，这些地方的武器走私、人口走私、毒品走私、赌博洗黑钱、重金属全属于孟建柱的势力范围。”文贵先生掌握准确资料。“洗米华的钱，包括黄金、白银、翡翠、玉，不是你们能想象的，包括到巴基斯坦。”
 
-词：齐馥伟
-曲：唐平
-编曲：SFG
+**习近平没动到江派的一根寒毛**
 
-自由 多么熟悉的字眼
-却不知不觉 离我越来越遥远
-曾经那个意气风发的少年
-为了生存只能拼命挣钱
+“江志诚的比特币最起码5000亿，将近三分之一的比特币在江家口袋里扣着。火币是孟建柱的，孟及江控制现代化的数字货币，同时拥有杀手级短程火箭导弹东南亚正规军的海外部队的主控权。”文贵先生进一步说。
 
-财富 是他们画下的大饼
-虚幻背后发现全都是陷阱
-各种经济暴雷 房价崩的稀碎
-抬起头 前路一片漆黑
-
-welcome to the world
-to the new world
-welcome to the world
-Hcoin to the moon
-Hcoin to the moon
-
-安全 最前沿加密技术出手
-让你的财富 没人能夺走
-稳定币 浮动币 设计天下无双
-还有二十帕 黄金挂钩
-
-摧毁 不停压榨你的机器
-从此不再做金钱的奴隶
-喜联储的大门 永远敞开向你
-前途光明 就在喜币
-
-welcome to the world
-to the new world
-welcome to the world
-Hcoin to the moon
-
-welcome to the world
-to the new world
-welcome to the world
-Hcoin to the moon
-
-Hcoin to the moon
+“现在房地产都出事，江派的绿地集团出啥事了吗？绿地仅在纽约投的项目几百亿美元，竟然没有一个出事。你见绿地贷款有违约吗？绿地背后上海久事、上海实业、上海银行、上海信托有事吗？没事！习连江派的一根寒毛都没动着。”文贵先生说。
 
  
 

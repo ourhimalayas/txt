@@ -2,26 +2,26 @@
 ---
 
 
-## 德国宣布对未接种中共病毒疫苗的人将进行封锁
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1715133/)
+## 独裁政府利用华为技术来审查新闻和记者
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1715185/)
 
-**撰稿：Grace**
+韩国首尔天池农场
+翻译：zzballack
+上传：追着曙光跑
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-02-at-8.22.10-PM.jpeg)图片来源：雅虎
-据The Gateway Pundit 12月2日报道，德国宣布在全国范围内对未接种中共病毒疫苗的人进行封锁。
+据《华盛顿自由灯塔》（Washingtong Free Beacon）12月2日报道，监督互联网自由的人权组织Top10VPN今年8月发布了一份报告，在对69个国家进行研究调查后，确定有17个国家使用中共电信巨头华为的硬件设备和技术来进行审查，其中有9个国家自2019年起开始采用华为设备。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Image-2021-12-03-at-11.41.43.jpeg)图片来源：原新闻
+报告说，古巴政府使用华为的“中间箱（middlebox）”设备来审查批评该国共产主义政权的报道。布隆迪政府屏蔽批评总统的媒体机构。其它15个国家专门使用华为的硬件来审查新闻。
 
-几周前，德国总理安格拉·默克尔宣布，将对未接种中共病毒疫苗者的公共生活的很大一部分加以限制。默克尔更是无耻地说，医院里挤满了中共病毒患者，是因为人们拒绝接受中共病毒疫苗的注射。
+华为设备深深地嵌入全球各地的互联网网络中，特别是与中共国有密切经济关系的国家。中共通过其“一带一路”倡议，将华为等由中共支持的公司的技术输送并整合到外国网络中。华为参与审查表明，中共正在与全球的独裁者找到共同点。
 
-在本周四，安格拉·默克尔和下周将接替她的副总理奥拉夫·舒尔茨，在与地区领导人进行危机谈判后宣布了新的强制中共病毒疫苗规定。该规定有以下的这些要求：医院、护理院员工必须注射中共病毒疫苗。在圣诞节前注射的中共病毒疫苗数量要多达3000万支。增加能够管理疫苗的人员数量。只有接种过疫苗的人和感染过中共病毒而已经得到恢复的人才能进入餐厅，剧院和非必要的商店。对未接种疫苗的人实行更严格的接触限制。在感染率高的地方关闭夜总会。限制大型公共活动中的观众人数。扩大危机单位，以协调联邦，区域行动。
+报告作者瓦伦汀·韦伯（Valentin Weber）和瓦西里斯·维维里斯（Vasilis Ververis）2021年11月在接受非营利团体保护记者委员会 (Committee to Protect Journalists)采访时警告说：“华为的工具也可能被用来侵犯用户的隐私。尽管目前还不清楚用户数据在到达华为的中间邮箱后被发送到哪里，但如果这些数据被出售或用于分析，我们也不会感到惊讶。”
 
-即将离任的卫生部长延斯·斯潘（Jens Spahn）周四在接受ZDF电视台采访时说：“这实际上是对未接种疫苗者的封锁。” 斯潘还说，目前在德国有超过1200万的成年人没有接种中共病毒疫苗。
+华为已经成为美国的一个政治热点。立法者担心，允许该公司在美国本土运营可能会使中共政府获得美国公民的数据。川普和拜登政府都将华为列入黑名单。
 
-据CNN报道，默克尔周四在卸任前的最后一次新闻发布会说，在议会进行辩论并遵循德国道德委员会(Germany’s Ethics Council)的指导后，全国范围内的中共病毒疫苗接种指令可能会从 2022 年 2 月开始生效。
+华为为了扭转现在欧美等国对其的打压，大幅加大了游说力度。据其财务报告显示，自8月以来，华为向民主党说客托尼·波德斯塔 (Tony Podesta)支付了50万美元，以恢复该公司在华盛顿的形象。
 
-**新闻来源：[Germany Imposes Nationwide Lockdown For the Unvaxxed](https://www.thegatewaypundit.com/2021/12/germany-imposes-nationwide-lockdown-unvaxxed/)**
-
-**[Germany locks down unvaccinated people, as leaders plan to make shots compulsory](https://www.cnn.com/2021/12/02/europe/germany-lockdown-covid-restrictions-intl/index.html)**
+新闻来源：[Report: Authoritarian Governments Use Huawei Technology To Censor Journalists](https://freebeacon.com/national-security/report-authoritarian-governments-use-huawei-technology-to-censor-journalists/)
 
  
 
