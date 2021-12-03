@@ -2,26 +2,18 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月3日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1716896/)
+## 【文贵先生大直播PPT】病毒及疫苗大灾难
+` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1717037/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-1.png)
-文章仅代表作者本人观点，与Gnews无关
+撰稿：舒平风，莲心不染，Mildseven，李昂纳多，MyWay，坐看云起时
+PPT美化：sotres，小黑兔
+审核：三票先生，顽童先生，舒平风
 
-视频参看：[2021.12.03早GTV新闻访谈](https://gtv.org/video/id=61aa1b51d6388d5504158d4c)
+【2021年12月3日文贵先生大直播PPT：病毒+疫苗大灾难】
+![](https://assets.gnews.org/wp-content/uploads/2021/12/58.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/52.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/53.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/54.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/55.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/56.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/57.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/49.jpg)
+* * *
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-1.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+发稿：云起时
 
  
 
