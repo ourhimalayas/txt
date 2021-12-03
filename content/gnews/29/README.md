@@ -2,28 +2,42 @@
 ---
 
 
-## 中国电信企图阻止FCC撤销令，被美国法院驳回
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1715833/)
+## “完全接种”NBA 球星勒布朗·詹姆斯检测结果不明被迫停赛
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1715963/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-12.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fs.wsj.net%2Fpublic%2Fresources%2Fimages%2FS1-MO644_chinab_G_20211027001124.jpg&amp;imgrefurl=https%3A%2F%2Fcn.wsj.com%2Farticles%2F%25E7%25BE%258E%25E5%259B%25BD%25E4%25BB%25A5%25E5%259B%25BD%25E5%25AE%25B6%25E5%25AE%2589%25E5%2585%25A8%25E4%25B8%25BA%25E7%2594%25B1%25E7%25A6%2581%25E6%25AD%25A2%25E4%25B8%25AD%25E5%259B%25BD%25E7%2594%25B5%25E4%25BF%25A1%25E5%259C%25A8%25E7%25BE%258E%25E5%25BC%2580%25E5%25B1%2595%25E4%25B8%259A%25E5%258A%25A1-11635315008&amp;tbnid=QWX3IzreuLw1JM&amp;vet=12ahUKEwiMkZPW-cb0AhVM7JQKHbBxBr0QMyg0egQIARA5..i&amp;docid=1GX-_xBzyCrzwM&amp;w=553&amp;h=369&amp;itg=1&amp;q=%E4%B8%AD%E5%9B%BD%E7%94%B5%E4%BF%A1&amp;ved=2ahUKEwiMkZPW-cb0AhVM7JQKHbBxBr0QMyg0egQIARA5)
-美国联邦通讯委员会(FCC)此前下令撤销中国电信在美国提供服务的许可，中国电信提出紧急申诉企图阻止，但周四遭联邦上诉法院驳回。
+**编译：Jenny Ball**
 
-中国电信子公司要求暂时禁止FCC的撤销令，美国哥伦比亚特区联邦上诉法院的三名法官驳回此申诉。FCC撤销令待完成法律争议的全面检视后，将在1月初生效。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip28.png)勒布朗·詹姆斯
+安迪·里昂斯/盖蒂图片社摄
 
-中国电信此前警告，公司必须在周六前向美国客户通知此决定，并表示如果不暂时禁止FCC的行动，公司“将被迫停止重大业务，对其业务、声誉和关系造成不可挽回的损失”。
+洛杉矶《生活新闻》（LifeSiteNews）——NBA 的健康和安全协议，禁止洛杉矶湖人队的篮球明星勒布朗·詹姆斯参加昨晚对阵萨克拉门托国王队的比赛。根据 NBA 规定，如果一名完全接种疫苗的球员被迫缺席任何比赛，很可能是因为他的 COVID-19 检测结果呈阳性或结果不确定。
 
-法院表示将发布一份清单将各种法律论据都考虑在内，但可能需要数月时间。
+詹姆斯在 9 月份直言不讳地表示，他不愿意接受堕胎污染的疫苗，但表示他最终做出了接种的决定。如果他的检测结果确实呈阳性，那么，他很可能至少 10 天内不会参加任何比赛，除非他在 24 小时内进行两次 PCR 检测呈阴性。
 
-中国电信周四没有立即发表评论，FCC于10月26日下令要求该公司在1月初之前停止在美国的服务。
+他的团队尚未正式评论他是否出现任何症状。他的队友安东尼·戴维斯说，詹姆斯没有表现出任何异常，但没有明确证实 COVID 检测呈阳性。
 
-消息来源:
+詹姆斯可能突破性感染的消息传来之际，NBA 已经为球员、教练和官员推荐了加强剂。
 
-[中国电信申诉要求阻止FCC撤销其在美运营许可 遭美国上诉法院驳回](https://cn.reuters.com/article/china-telecom-us-fcc-court-1203-idCNKBS2II021?il=0)
+在美联社获得的一份备忘录中，联盟告诉其球队，有 34 起记录在案的病例中，一名完全接种疫苗的球员、教练或工作人员的 COVID 检测呈阳性。
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+冠状病毒实验性疫苗从未产生证据表明，疫苗可以阻止感染或传播。他们甚至没有声称的那样减少住院治疗，作为衡量疫苗成功的标准，是预防 COVID-19 的严重症状。 此外，有强有力的证据表明，“接种疫苗”的人和未接种疫苗的人一样，可能携带和传播病毒。
+
+**随着 COVID 病例在以色列、英国和美国等疫苗接种率高的国家激增，包括接种疫苗的个人，希望通过疫苗接种预防感染或阻止传播的希望已经减弱。**
+
+**点评：勒布朗·詹姆斯应该知道，你想要中共的钱，中共想要你的命！自由价更高！**
+
+**新闻来源**：[lifesitenews.com][‘Fully vaccinated’ NBA star LeBron James enters COVID protocols, forced to sit out](https://www.lifesitenews.com/news/vaccinated-nba-superstar-lebron-james-cant-play-likely-because-of-positive-covid-test/)
+
+* * *
+
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3.jpeg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
