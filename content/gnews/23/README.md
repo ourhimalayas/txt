@@ -2,32 +2,38 @@
 ---
 
 
-## 七哥的袖扣
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1714571/)
+## 日本前总理警告说：“入侵台湾将是中共国经济的自杀行为”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1714593/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+编译：蚂蚁兄弟
 
-这个袖扣就是干这个的，后来我知道这个袖扣被他们广泛的用在了澳门。
-因为澳门的叠马仔还有发牌的人是要戴，你看都要戴袖扣的，很多人戴的，特别是VVIP厅，就是这个袖扣，就是录像手段之一。最重要的事情，这个袖扣带着，后面带着的时候，有人看牌，就能把别人的牌传到那个监控室去，那个是能够大赢的，那想赢你啥就是啥！这个扣子用途很多，大家不要想着这个镜头是一直晃的，你记住，这个袖扣戴上的时候，有的人手在这一放，他就这么一搁，他就不用动，而且是超稳定的那种镜头，高清的，在当时就很高清了，你知道吗。噢，很厉害，今天给你们解密它是监控镜头。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-3.jpg)图片来源：Reuters/Jason Lee
 
-校对：HimaFaFA
-发布：HimaBoy
+在台湾的军事行动将是中共国的经济自杀行为。这是日本前首相安倍晋三对台湾地区潜在冲突的警告，这也将会对“世界经济造成严重损害”。尽管去年9月他因健康原因不得不离职，但这位前保守派领导人仍然是执政党的副手，是日本国家政治格局中极具影响力的人物。中共国迅速作出回应，将“粉碎”那些“主张恢复军国主义”或“挑战中共国人民的红线”的人。
 
-[![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)](https://www.gettr.com/user/7UPgogo)
+“任何人都不应该低估中共国维护其主权和领土完整的决心和能力。谁敢回到军国主义，谁敢挑战中共国人民的红线，谁就会被击垮”，中国外交部发言人王文彬周三在台湾智库国家政策研究会的一个虚拟论坛上发言时，回应安倍的讲话时说。
 
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+这位日本前首相的讲话是在台湾海峡紧张局势加剧的背景下发表的。“一旦台湾出现紧急情况，这也意味着日本以及日美联盟出现紧急情况。北京，特别是习近平，在对这一点的理解上绝不应该被混淆”，安倍晋三在论坛演讲中说。
 
-**关注我们**
+“日本、台湾和我们所有相信民主的人需要敦促习近平和中共领导人不要走错路”，这位日本历史上任期最长的前首相（2012-2020年）说，他至今仍然被视为日本执政党的关键人物之一。
 
-Discord 账号
+据中共国发言人说，安倍的言论已经“违反了国际关系的基本准则”，北京已向日本提出正式申诉以示抗议。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+中共国强烈批评安倍在其任期内是导致日本陷入第二次世界大战的军国主义的支持者，特别是他对靖国神社的访问，该神社纪念19世纪末至1945年期间所有的日本战死者。
 
-Gettr 账号
+在周三的演讲中，安倍晋三还回顾了由东京管理但却被北京声称拥有的尖阁群岛。（北京称其为钓鱼岛），该岛距离台湾约100公里，以及日本群岛西南部的其他偏远岛屿。日本与美国签订了双边防务条约，而美国则在日本西南部的冲绳，拥有其在太平洋地区最大的军事基地。
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+华盛顿与台湾的关系模棱两可。美国在1979年与台湾断绝了官方外交关系，转而支持北京，然而美国继续与台湾保持非正式关系，并向台湾当局出售军事设施，并批准了《与台湾关系法》。虽然华盛顿目前在国防事务上帮助台湾，但并没有界定美国是否会在中共国可能对台湾进行攻击时采取必要的干预措施。
+
+**参考资料：**[elconfidencial][“Invadir Taiwán sería el suicidio económico de China”, avisa el ex primer ministro japonés](https://www.elconfidencial.com/mundo/2021-12-01/invadir-taiwan-seria-el-suicidio-economico-de-china-avisa-el-ex-primer-ministro-japones_3334132/)
+
+* * *
+
+*审核：Aries的星
+校对：信心满满
+发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3.jpeg)
 
  
 
