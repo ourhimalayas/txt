@@ -2,32 +2,29 @@
 ---
 
 
-## 秘翻在线: 脸书关闭了与中共虚假宣传有关的账户
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1714742/)
+## 七哥谈：Omicron和灭共
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1714884/)
 
-撰稿：西枫westca
+文编：Hima
+听写：叮叮
+视频：七哥
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/12/unnamed-2.jpg)图片来源：路透社
-据BBC、NPR、Vice，路透社等多家媒体报道，脸书和Instagram的母公司Meta宣布，在周三已删除了500多个与传播虚假信息的，主要位于与中共国网络相关联的账户、页面和群组。
+Omicron出来以后，他这个人很迷信，我发现科学家到最后全都迷信，医学家最后全都不信医学，全都迷信。他说你不要看这次习这个字啊，他说我觉得这是天意啊，轮就轮到习那去了。他咋就世界了，他是百亿分之概率啊，视为组织就没想到这么一事，轮到了这个病毒叫XI病毒，他说这是名副其实啊，这最重要的是搞了一个叫Omicron，他说Omicron这个词实际上是很多国家的语言，Omicron真的不是个好事，实际上就是结束的意思。他说这都是天意啊，他说这就是结束的意思啊，Omicron就是结束。然后战友居然说这是灭共，粤语什么O灭共，然后科学家跟我说，也就三周前我直播，他告诉我，文贵，你不要对外讲，你一定要等着我说，你再说，如果这次共产党弄不了大毒的话，咱们新中国联邦就厉害了。我说为什么，他说真的是新中国联邦的解药，会拯救全人类，不但解药是解的病毒，是解的疫苗。很多人一说好事就想着喜币，你们就是钱迷。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-23.jpg)
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-这些账户宣传了一位名为威尔逊·爱德华兹的假瑞士生物学家的说法，他于7月24日，也就是以威尔逊·爱德华兹的账户创建10小时后在脸书上发表声明称，美国政府正在向调查COVID-19起源的WHO科学家施压，试图将其归咎于中国。根据脸书上的截图，爱德华兹在帖子中写道：“世界卫生组织的消息来源告诉我，美国如此痴迷于在溯源问题上攻击中共，以至于不愿意对数据和调查结果睁开眼睛”。
+**关注我们**
 
-爱德华兹的评论被中共国官方媒体，从中国日报、环球时报到CGTN广泛引用，作为美国政府将世卫组织政治化的证据而传播。
+Discord 账号
 
-然而，瑞士大使馆在8月份表示，此人并不存在，该脸书账户仅在第一次发布前两周开始使用，只有三个朋友。在瑞士也没有一个名为威尔逊·爱德华兹的公民登记，也没有以该名字发表过的学术文章。并且瑞士大使馆督促中共国媒体删除任何提及他的内容。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-周三脸书发布的报告显示，这是一次协调一致的活动，有20个页面、4个群组和86个Instagram账户在社交平台上传播这个虚假信息。与威尔逊·爱德华兹帖子早期互动的大多是虚假账户，之后中共国官员和大多属于中共国国有基础设施公司的员工也开始与其进行互动。
+Gettr 账号
 
-对此事的调查发现，爱德华兹的账户创建与一家名为“四川沉默信息技术公司”有关，该公司为中国公安部和中国网络安全应急响应的关键团队CNCERT提供技术支持。该行动使用了VPN来隐藏其来源，并赋予爱德华兹更全面的个性，其个人资料照片似乎也是从网上生成的。
-
-脸书的信息运营威胁情报负责人本·尼莫说，“这是我们第一次看到包括国家雇员以协调集群的方式来扩大宣传。“但他同时强调，脸书并没有将这场运动与中国政府或这些官员联系起来，而只是看到了政府官员喜欢并参与了此假贴的传播。
-
-虽然这场虚假信息运动本身并没有像病毒那样传播开来，但是如果在虚假信息发布后没有采取行动，这些病毒式的帖子最终会在发布后几分钟或几小时内就传播开来。
-
-中共国利用了数百万公民监控互联网并在网上大规模影响舆论。这次从人到文的虚假行动更应让世界明白中共对世界的媒体、网络影响之深是不能被忽视的。争夺话语权是我们灭共路上重要的一环。
-
-**新闻来源：**[Facebook Took Down a China-Linked COVID-19 Disinformation Campaign (vice.com)](https://www.vice.com/en/article/z3nn8w/facebook-took-down-a-china-linked-covid-19-disinformation-campaign)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

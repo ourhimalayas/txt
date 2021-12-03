@@ -2,25 +2,46 @@
 ---
 
 
-## 他们计划用普通流感杀死数十亿人：Covid疫苗导致免疫崩溃
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1714570/)
+## 加拿大广播公司发布你应该停止使用短语的清单
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1714661/)
 
-翻译： Jenny Ball
+作者：Rebelnews
+翻译：Himasally
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-86.png)图片来源 : brighteon.com
 
-那些接受新冠疫苗注射的人已经变成了疫苗诱导的“艾滋病”患者，他们对一切事物的免疫力都在崩溃。这使他们非常容易受到故意释放的中度流感毒株的影响，这种毒株通常只会杀死虚弱的老人。
 
-为什么全球主义者会选择这条路线？ 因为他们不想用一种真正恶性的病原体来“毁灭”这个星球，因为这种病原体从长远来看会威胁到他们自己的孩子。他们想把真正危险的病原体保存在冰箱里，同时，想办法杀死带有轻微病原体的人。只有说服容易上当的群众排队接受 mRNA 刺突蛋白疫苗注射，他们才能成功。
+在昨晚的节目以斯拉地中海秀中，我们看到最近的CBC一个题为 “你可能要三思而后行使用单词和短语 ” 。
 
-新闻来源: [ brighteon.com] [Situation Update, Dec 1, 2021 – Billions of victims of vaccine-induced AIDS will soon emerge to the horror of humanity](https://www.brighteon.com/02ed1877-6dc1-4b6d-8f0f-ad92b54eea19)
+以下是以斯拉不得不说的一些内容：
 
-* * *
+“它是由普莉希拉·基善黄（Priscilla Ki Sun Hwang）撰写的。她的传记写道：“普莉希拉·基善黄是渥太华CBC 新闻的一名记者。她曾在耶洛奈夫、怀特霍斯和伊魁特的调查部门CBC 多伦多和CBC 北部工作。她拥有卡尔顿大学的新闻学硕士学位。
 
-*审核：文乐 
-校对：信心满满
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3.jpeg)
+“我的天啊。白色的马？多么种族主义。黄色的刀？那就更种族主义了。但是说真的：主人？她是新闻学大师？我的天啊。难道她不知道主人这个词是用来形容有奴隶的人的吗？她是奴隶主吗？我太愤怒了！
+
+“哦，所以只有她会这么疯狂？
+
+“我想说点什么；昨天我们谈到来到加拿大的人有时是为了自由而来，有时来加拿大只是因为这里比他们来自的地方更好，也许在经济上。我认为普莉希拉出生在加拿大，但她有韩国血统。让我感到非常难过的是，一个人被一分为二，一半的国家处于极权主义，奥威尔式的奴隶制之下，却被称为文字警察和思想警察。
+
+“这就像一个移居加拿大或美国的苏联移民，我的意思是他的父母逃离暴政，在大学里迷恋马克思主义，并开始成为一名文字警察。这就是我看到反以色列犹太人时的感受。这让我悲伤。”
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

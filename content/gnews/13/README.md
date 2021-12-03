@@ -2,29 +2,65 @@
 ---
 
 
-## 七哥谈：病毒
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1714840/)
+## 🌹🌹🌹郭文贵先生新歌“Hcoin to the moon”上线啦
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1714982/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+![](https://assets.gnews.org/wp-content/uploads/2021/12/16384925181.png)
+郭文贵先生再推新歌“Hcoin to the moon”，单曲甫一上线，即在多国ITUNES荣登榜首，战友们继续打榜，继续我们“以歌（文化）灭共”，以多种手段灭共的模式！
 
-301医院那么简单。所以说新中国联邦一定要知道自己的价值在干什么。刚才在谈到疫苗的时候，我记得我告诉大家，为什么我说这个对我们是好事呢，一星期前，我们欧洲科学家说，如果这次病毒有两个特征，这个人类真的是完了。第一个特征，这次如果共产党要放病毒的话，放出来这个传染率，致死率高，就是染上就死。这个或者就是所谓的天花病毒，传染率高，伤残率高，但不死，这两种病毒对人类都是巨大的威胁，人类一堆的残废。是不是，而且这种残疾全世界没法救的了，像天花一样，再一个就是说，致命的，马得了就死，这个世界也防不了，其实这个出来以后， 这个Omicron出来后，这个真的是天意，这次的放毒看来，科学家说，这次的放毒，应该是广东帮干的。他说是广东的这帮人放的，不是北方人干的，北方人下手会比较狠，这个毒放完以后呢很有可能会帮助人类彻底消灭这场病毒。这个病毒会使人的传染，致死率并不高，致残率不高，这个病毒的活性很高，容易传染。但是对人类的这两样没做到，实际是好事，甚至把人类的这个病毒从地球上消失，人类跟这个病毒一旦相适应之后，实际上这个病毒可能就会消失的，这是在共产党不再放毒的前提下。
+### 澳门、新加坡、阿联酋第一名🌈🌈🌈👏👏👏🌹🌹🌹
+![](https://assets.gnews.org/wp-content/uploads/2021/12/16384913591.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/16384913941.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/16384914271.png)
+### 台湾、匈牙利、香港第二名🌈🌈🌈👏👏👏🌹🌹🌹
+![](https://assets.gnews.org/wp-content/uploads/2021/12/16384914871.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/16384915291.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/16384915681.png)
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-**关注我们**
+[下载地址](https://music.apple.com/au/album/hcoin-to-the-moon-single/1592902212)
 
-Discord 账号
+**附：歌词**
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+Hcoin to the moon
 
-Gettr 账号
+词：齐馥伟
+曲：唐平
+编曲：SFG
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+自由 多么熟悉的字眼
+却不知不觉 离我越来越遥远
+曾经那个意气风发的少年
+为了生存只能拼命挣钱
+
+财富 是他们画下的大饼
+虚幻背后发现全都是陷阱
+各种经济暴雷 房价崩的稀碎
+抬起头 前路一片漆黑
+
+welcome to the world
+to the new world
+welcome to the world
+Hcoin to the moon
+Hcoin to the moon
+
+安全 最前沿加密技术出手
+让你的财富 没人能夺走
+稳定币 浮动币 设计天下无双
+还有二十帕 黄金挂钩
+
+摧毁 不停压榨你的机器
+从此不再做金钱的奴隶
+喜联储的大门 永远敞开向你
+前途光明 就在喜币
+
+welcome to the world
+to the new world
+welcome to the world
+Hcoin to the moon
+
+welcome to the world
+to the new world
+welcome to the world
+Hcoin to the moon
+
+Hcoin to the moon
 
  
 
