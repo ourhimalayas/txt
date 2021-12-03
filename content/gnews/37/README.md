@@ -2,64 +2,30 @@
 ---
 
 
-## 【玫瑰看新闻】第207期 币圈新闻
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1716083/)
+## FDA试图隐藏55年的秘密浮出水面
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1716136/)
 
-2021年12月2日（新西兰时间）
+撰稿： Runaway
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Filing_COVID-19_Vaccination_Record_Card.jpg)图片来源：网络
+一份泄露的辉瑞公司提供给FDA的内部秘密报告显示，截止2021年2月辉瑞COVID19疫苗实施前3个月已经产生了42086起副作用事件，并造成1223人死亡、520人永久性后遗症、以及11361人尚未恢复的副作用严重伤害，包括：
 
-🌟11月28日Hcoin盘中震荡价格区间35.809美元至37.905美元
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片-1-6.jpg)
-2021年12月2日截止发稿前，喜币价格为37.699美元。截止今日发稿前盘中成交274125.171HCN，24小时内小幅上涨📈➕8.64%，目前价格为37.699美元。买入价：37.570美元；卖出价：37.759美元。
+⦁ 274名孕妇的23起流产、2名早产婴儿死亡、以及2名宫内死亡
+⦁ 心血管病例1403起（包括心律失常、心肌梗塞、心力衰竭、和冠状动脉疾病等）
+⦁ 面瘫449起
+⦁ 中风275起
+⦁ 以及大量的过敏、疼痛、呕吐及疲劳等
 
-https://himalaya.exchange/User/Trading
+报告详细披露了疫苗副作用事件所涉及的类型、人数、性别，年龄、地区。
 
-🌟12月2日币圈要闻一览
+在1976年的猪流感疫苗注射过程中（当时美国人口的25%，即5500万美国人接种了疫苗），尽管疫苗仅导致53人死亡，猪流感疫苗仍被认为是危险和不安全的，并从市场上撤下。
 
-1.去中心化组织Badger DAO遭遇黑客攻击，目前已暂停所有交易；
-2.多链GameFi基础设施Froyo Games完成160万美元融资，Animoca Brands领投；
-3.元宇宙社交平台Loot Squad完成500万美元种子轮融资，Delphi Digital领投；
-4.Solana元宇宙项目Solice完成430万美元融资，三箭资本领投；
-5.Terra（LUNA）市值超越SHIB，位列加密货币市值排行榜第十二位；
-6.数据：Polygon日活用户数量已达以太坊的64%；
-7.NBA Top Shot销售总量突破1100万笔，创历史新高；
-8.Republic Realm以430万美元购买The Sand box地块，创虚拟土地销售价格历史记录。
+可是如今面对仅3个月产生的有史以来最为严重的疫苗灾难（至2021年7月据可靠数据已经有[45000死亡事件](https://gnews.org/zh-hans/1459659/)），FDA以及各国政府视若罔闻，还要违背大众意愿强行推动疫苗注射，其背后黑暗势力的罪恶意图昭然若揭。善良的人们若还不起来抗争，等待的命运就是死亡。
 
-🌟[分析师重新发布BTC 价格预测 40 万美元考验交易者的神经](https://cointelegraph.com/news/bitcoin-tests-traders-nerves-as-analyst-reissues-400k-btc-price-forecast)
+发稿：Runaway
 
-随着买入目标降至 47,000 美元，看涨的长期比特币价格预测与当前现状形成鲜明对比。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-5.jpg)
-比特币 ( [BTC](https://cointelegraph.com/bitcoin-price) ) 在 12 月 2 日重演，因为市场目睹了另一次对 60,000 美元的攻击以失败告终
-
-比特币的下跌与股票的反应一致，似乎是对新的冠状病毒omicron 变体的持续担忧。标准普尔 500 指数收盘下跌1.2%。
-
-随着加密市场弥漫着挫败感，分析师借此机会重申了更长远的观点。Cointelegraph 撰稿人 Michaël van de Poppe预测：
-
-这些买入目标低点伴随着对该周期看涨高峰的重新预测，与今年 4 月一样，BTC/USD 最高可达 400,000 美元。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片3-3.jpg)BTC/USD 1 小时蜡烛图 (Bitstamp)。资料来源：TradingView
-🌟[Bitcoin Capital AG 在六个瑞士交易所推出两个加密ETP](https://cointelegraph.com/news/bitcoin-capital-ag-launches-two-crypto-etps-on-six-swiss-exchange)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片-4-4.jpg)
-随着整个市场的发展，比特币资本在六家瑞士交易所的产品继续增长。
-
-Bitcoin Capital AG在六家瑞士交易所[发布了](https://www.dgap.de/dgap/News/?eqsNewsID=2169541)两款新的交易所交易产品：FiCAS Active Bitcoin ETP (BTCB) 和FiCAS Active Ethereum ETP (ETHB)，由 FICAS AG 积极管理。
-
-Bitcoin Capital AG 是一家位于瑞士楚格的家族办公室和FiCAS AG 子公司。7 月，Bitcoin Capital AG在六瑞士交易所推出了主动管理的比特币 ETP [“Bitcoin Capital Active ETP”](https://cointelegraph.com/news/swiss-six-exchange-lists-actively-managed-bitcoin-etp)。
-
-ETP 是一种衍生证券，它基于商品、货币、股价或利率等投资工具进行交易，而不是加密 ETF，后者 100% 由它们所跟踪的资产支持。
-
-瑞士、列支敦士登和欧盟（不包括匈牙利）的机构投资者、专业投资者和私人投资者现在可以通过他们的银行或经纪人投资新产品，就像他们投资股票或债券等其他上市金融资产一样。
-
-🌟[美联储鲍威尔：央行数字货币政策问题讨论文件将在未来几周发布](https://0xcj.com/20211201289132.html)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片-5-1.jpg)
-据路透社12月1日消息，美联储主席鲍威尔在参议院听证会上表示，一份探讨央行数字货币政策问题的讨论文件应该会在未来几周发布。鲍威尔透露，这份最初定于夏季公布的文件被推迟，因为美联储正“努力把这件事处理好”。
-
-🌟去中心化组织BadgerDAO确认被盗损失超1.2亿美元
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片-6jpg.jpg)
-12月2日，去中心化组织BadgerDAO确认遭受攻击，损失达1.203亿美元，包括约2,100枚BTC和151枚ETH。目前社区渠道中的猜测是，黑客攻击是用户界面中的漏洞，而不是核心协议合约中的漏洞。Badger工程师对此进行调查时，已暂停所有智能合约，以防止造成进一步损失。 此前报道，去中心化组织BadgerDAO遭遇黑客攻击，用户资产在未经授权的情况下被转移。
+参考链接：[Pfizer’s Documents](https://phmpt.org/pfizers-documents/)
 
 
-
-审核校对：Barry Jack
-上传排版：F
 
  
 
