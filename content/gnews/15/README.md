@@ -2,23 +2,29 @@
 ---
 
 
-## 有爆料澳大利亚NSW州长曾于两年前购进PCR测试股票
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1715325/)
+## 巨额债务压顶，华夏幸福不幸福，中国平安被套牢
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1715389/)
 
-撰稿：Jenny
-截取自电报群/视频翻译：Grass
-10月5日，佩洛提（Dominic Perrottet）在新州自由党投票中战胜了规划部长罗布·斯托克斯（Rob Stokes），成为该州第46任州长，也是该州历史上最年轻的州长，现年39岁。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Unknown-6.jpg)巨额债务压顶，华夏幸福不幸福，中国平安被套牢 网络图片
+据网易新闻12月2日报道，曾经在2016年占据环京地产龙头老大的华夏幸福凭借着超过1200亿元的销售额，跻身全球房企前十。2017年，由于环京地区出台“限购令”，华夏幸福急转直下。异地扩张长三角、大湾区之后，华夏幸福的负债金额持续攀升。据11月29日华夏幸福最新公告显示，华夏幸福及子公司债务本息达到1013.04亿元。
 
-但日前爆出的这段匿名录音实在是令人大跌眼镜，澳洲真的处在水深火热之中。显然一如文贵先生所说，澳洲的州长们在强推疫苗的问题上，一个比一个激进，看起来太令人夷非所思。
+2018年，华夏幸福以公司部分股本换来了中国平安的资助。2019年，中国平安投入180亿元，成为了华夏幸福的第二大股东。但平安的加入并未改变华夏幸福的现状。如今华夏幸福股价大跌，中国平安的180亿投资蒸发大半。
 
-这段录音最大的爆点是佩洛提（Dominic Perrottet）他开始买进PCR 测试股票，时间追溯到2018年。那时他还是新南威尔士州的财政厅部长。 他是从世界银行买的，你认为这是碰巧吗？他的父亲那时在世界银行工作，他积累PCR测试，并且是在病毒传染两年前？
+中共国的房地产本来就是又纤细又精薄的面条产业，强撑都撑不住，何况中共的经济即将崩溃，中共本身都自顾不暇，房地产的崩塌就在随时随地，经济的整个脆断也是箭在弦上。毕竟假的经济就是假的，拖得再久也不能变成真的。
 
-12月3日，新州卫生厅证实，悉尼西区一名没有海外旅游史的中学生感染COVID-19（中共病毒）[变种毒株Omicron](https://www.epochtimes.com/gb/tag/%E5%8F%98%E7%A7%8D%E6%AF%92%E6%A0%AAomicron.html)。是新州第9名感染新毒株的患者。民众特别担心会否再次引发封城。
+新闻参考链接：[https://c.m.163.com/news/a/GQ7HBHI00552PLJJ.html?spss=newsapp](https://c.m.163.com/news/a/GQ7HBHI00552PLJJ.html?spss=newsapp)
 
-佩洛提自上任后，面对悉尼两次超过几十万人次的抗议示威，依然坚持既定的封锁政策，维持前州长12月15日对未接种疫苗人群解禁（无疫苗护照无法去部分公共场所，例如饭店和美发店等）。
+* * *
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-2.jpg)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
 
 
  

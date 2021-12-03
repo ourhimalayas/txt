@@ -2,65 +2,24 @@
 ---
 
 
-## 🌹🌹🌹郭文贵先生新歌“Hcoin to the moon”上线啦
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1714982/)
+## 比尔·盖茨提及天花病毒恐怖袭击意欲何为？
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1715129/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/16384925181.png)
-郭文贵先生再推新歌“Hcoin to the moon”，单曲甫一上线，即在多国ITUNES荣登榜首，战友们继续打榜，继续我们“以歌（文化）灭共”，以多种手段灭共的模式！
+韩国首尔天池农场
+翻译：zzballack
+上传：追着曙光跑
 
-### 澳门、新加坡、阿联酋第一名🌈🌈🌈👏👏👏🌹🌹🌹
-![](https://assets.gnews.org/wp-content/uploads/2021/12/16384913591.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/16384913941.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/16384914271.png)
-### 台湾、匈牙利、香港第二名🌈🌈🌈👏👏👏🌹🌹🌹
-![](https://assets.gnews.org/wp-content/uploads/2021/12/16384914871.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/16384915291.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/16384915681.png)
+Inforwars网站12月1日刊文称，世卫组织曾宣布天花病毒已在1980年被根除。那么为什么比尔·盖茨在11月2日的一次采访中要呼吁世界各国为潜在的生物恐怖袭击做好准备，以预防比如“一个生物恐怖分子把天花带到10个机场”的情况发生。精英们经常宣布他们的下一步行动，并让所有人都听到。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Image-2021-12-03-at-10.38.20-1.jpeg)图片来源：原新闻
+多年来，人们一直就是否要销毁最后剩余的天花病毒而争论不休。这些病毒保存在亚特兰大（Atlanta）、乔治亚州和俄罗斯的政府实验室中，造成了生物战对峙局面。
 
+支持保留该病毒的论点认为，自然界中仍可能爆发天花疫情，保留天花可以增强人们应对该病毒的能力。但是世卫组织最终已经打算销毁现有的天花病毒库存。2010年，由世卫组织任命的公共卫生专家小组在审查后得出结论，美国和俄罗斯的实验室继续保留活体病毒库存并没有达到基本的公共卫生目的。
 
-[下载地址](https://music.apple.com/au/album/hcoin-to-the-moon-single/1592902212)
+2019年，俄罗斯存放活性天花病毒的实验室发生爆炸，使得遏制（天花爆发）的工作面临风险。而最近在宾夕法尼亚州默克公司工厂发现的标有天花的冷冻小瓶，又将天花病毒推到风口浪尖。人们认为天花病毒被用作实施封锁的借口，从而扼杀人们的自由，以及福奇在制造了中共病毒后仍未罢手，继续制造新病毒。
 
-**附：歌词**
+我们都非常熟悉在中共病毒爆发的前几个月，已预演了相关的议程设置。现在，比尔·盖茨所说的威胁正在逐渐显现，未来可能会出现一种特定DNA的天花生物武器，就像最新的007电影中的那种，从而推动议程设置。比尔·盖茨是典型的反社会者，他拥有富可敌国的财富，疯狂收集数据，并掌控政府内部权力。他就像任何007电影中的反派一样不可冒犯，但不幸的是，这不是一部电影。
 
-Hcoin to the moon
-
-词：齐馥伟
-曲：唐平
-编曲：SFG
-
-自由 多么熟悉的字眼
-却不知不觉 离我越来越遥远
-曾经那个意气风发的少年
-为了生存只能拼命挣钱
-
-财富 是他们画下的大饼
-虚幻背后发现全都是陷阱
-各种经济暴雷 房价崩的稀碎
-抬起头 前路一片漆黑
-
-welcome to the world
-to the new world
-welcome to the world
-Hcoin to the moon
-Hcoin to the moon
-
-安全 最前沿加密技术出手
-让你的财富 没人能夺走
-稳定币 浮动币 设计天下无双
-还有二十帕 黄金挂钩
-
-摧毁 不停压榨你的机器
-从此不再做金钱的奴隶
-喜联储的大门 永远敞开向你
-前途光明 就在喜币
-
-welcome to the world
-to the new world
-welcome to the world
-Hcoin to the moon
-
-welcome to the world
-to the new world
-welcome to the world
-Hcoin to the moon
-
-Hcoin to the moon
+新闻来源：[The Smallpox Tell Of Bill Gates – Watch](https://www.infowars.com/posts/the-smallpox-tell-of-bill-gates-watch/)
 
  
 

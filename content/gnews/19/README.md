@@ -2,29 +2,27 @@
 ---
 
 
-## 鲁比奥参议员提案加强美国太空产业，对抗中共侵略
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1715278/)
+## 日本铁路列车上安装摄像头，将强制化
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1715339/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Unknown-4.jpg)鲁比奥参议员提案加强美国太空产业，对抗中共侵略 网络图片
-据美国之音12月3日报道，美国参议员鲁比奥提出“太空保护美国控制和企业议案”，加强美国太空产业，以对付中共根据“中国制造2025”规划取代美国成为太空产业全球领导者的正在进行的努力。
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-26.png)
+日本《读卖新闻》网站报道，国土交通省（MLIT）已决定强制要求铁路公司在未来推出的新列车上安装摄像头。原因是在此前曾发生过行驶中车厢内刺伤放火事件。（ MLIT）将考虑修改《铁路业务法》，该法规定了火车的结构和设备。
 
-“太空保护美国控制和企业议案”要求不得使用美国商务部或国家航空航天局（NASA）的经费来购买或租赁与中共有关的任何通信或宇航公司的硬件/软件和服务。法案要求美国国家航天委员会（National Space Council）向国会报告中共国和俄罗斯的太空投资竞争，评估经济风险，制定战略，保护美国太空工业化的产业链。
+东京奥运会和残奥会后，列车上的安全摄像头开始在东京都地区流行起来，但是，尽管JR东日本100%安装了摄像头，东京地铁却只有40%。一些私营铁路公司仍然只有几个百分点。对此，（MLIT）已经决定，除了阻止犯罪外，在乘客遇到危险时，有必要尽快评估情况。
 
-法案同时要求国防部长、商务部长和财政部长就美国太空探索、国家安全领域的海外投资情况每年向国会提交报告以及保密附件。最终，美国意识到了来自中共的威胁，不仅是现在，包括未来的太空领域，开启了对中共从天空到地面的全方位防御，对抗中共侵略。
+一个专家小组将在年底前开始讨论这个问题，并将考虑具体的标准，如摄像头的类型，它应该安装在哪里，以及它应该拍摄的图像范围。
 
-新闻参考链接：[https://www.voachinese.com/a/rubio-to-strengthen-us-space-industry-20211202/6337097.html?utm\_source=twitter&utm\_medium=social&utm\_campaign=dlvr.it](https://www.voachinese.com/a/rubio-to-strengthen-us-space-industry-20211202/6337097.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
+对安装摄像头不会有新的补贴，将要求企业自己承担费用，但根据企业情况，可能会有现有的购车补贴。
 
-* * *
+大家有必要思考一下
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+如果你在火车上遇到事故，该怎么做？
 
+信息源：
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+[鉄道車内の防犯カメラ、新車両で義務化へ…設置率が数％の私鉄も](https://news.yahoo.co.jp/articles/c90403b253976bfaddc80a93dc47ed4852f42940#:~:text=%E)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
 
 
  

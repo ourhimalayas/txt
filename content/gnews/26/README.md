@@ -2,30 +2,21 @@
 ---
 
 
-## 推特将美国心脏协会关于疫苗的警告标为“不安全”信息
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1715194/)
+## 秘翻在线 :快闪店铺抢劫事件在美国逐渐增加
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1715261/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-4.png)
-图片来源： twitter.com
+撰稿：William
+校对：牛小妹
+![](https://assets.gnews.org/wp-content/uploads/2021/12/biden-1.jpg)
+图片来源：网路
 
-零对冲网12月2日报道，推特针对来自美国心脏病协会关于信使核糖核酸（mRNA）疫苗显著增加心脏病风险从11%增加到25%的研究发现，标上了“不安全”连接警告。
+根据《零对冲》(Zero Hedge) 的报导,店铺快闪抢劫成为美国各大城市最担心的事件，不仅发生在旧金山的 Louis Vuitton、Burberry 和 Yves Saint Laurent 等精品店铺，南加州的 Canoga Park Nordstrom等高端商家也被波及。在五分钟以内，20个多个人快速冲进去把店内例如珠宝、首饰以及精品皮件等高单价商品扫空，然后再进行分赃获利。
 
-推特居然认为具有很高影响力的正规美国心脏协会杂志的文章是“不安全”的信息！ 谁给推特的权力？
+前费城警察局长查尔斯•拉姆齐(Charles Ramsey)认为，许多高端零售店抢劫的情况可能变得更严重。拉姆齐说处理这类问题十分困难，过轻的惩罚是一个主要原因，一些地区检察官甚至表示不再起诉入店行窃，商店抢劫事件只会越来越多，快闪店内抢劫行为远比入店行窃还要更严重。
 
-推特认为凡是符合以下条件即为“潜在不安全”信息：
+目前全球病毒、疫苗灾难笼罩，导致就业危机以及公务人员、警务人员的短缺。无业歹徒看准警察人力短缺以及被逮补后的判刑轻微，高单价精品商家的抢劫事件愈来愈多，严重影响中共疫苗肆虐后的社会安全。
 
-1. 恶意的可能偷盗私人信息或电子设备的链接
-
-2. 误导人们或打破人们经验的拉圾邮件链接
-
-3. 可能在真实世界造成暴力或误导的内容
-
-4. 某些内容有违推特的标准
-
-不清楚美国心脏协会杂志的调查研究文章违反了上述哪一条。推特是基于什么依据？
-
-##### **新闻来源： **[Twitter Slaps ‘Unsafe’ Label On American Heart Association mRNA Vaccine Warning](https://www.zerohedge.com/covid-19/twitter-slaps-unsafe-label-american-heart-association-mrna-vaccine-warning) 
+新闻来源：[Flash Mob Looting “Will Continue” Across Country: Former Police Commissioner](http://Flash%20Mob%20Looting%20&quot;Will%20Continue&quot;%20Across%20Country:%20Former%20Police%20Commissioner)
 
  
 

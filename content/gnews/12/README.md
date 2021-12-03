@@ -2,28 +2,38 @@
 ---
 
 
-## 洪都拉斯新政府不与中共国建交
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1715347/)
+## 美国会奥运囚犯项目直指北京冬奥
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1715430/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-11.jpg)[图片来源](https://www.nytimes.com/2021/11/30/world/americas/honduras-election-castro.html)
-洪都拉斯总统当选人卡斯特罗(Xiomara Castro)的副总统人选之一纳斯拉亚(Salvador Nasralla)周四表示，新政府优先考量与美国的关系，不计划与中共国建交，暗示卡斯特罗的立场与选前截然不同。
+作者：东京樱花团 – 在远方
 
-卡斯特罗以巨大优势赢得周日的总统大选，她选前表示不排除与中共国建交。这将使台湾外交受到重创。卡斯特罗与中共国建交承诺引发中共与美国的外交角力，双方都企图影响洪都拉斯立场。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-25.png)
 
-纳斯拉亚将成为卡斯特罗的三位副总统之一，他表示，洪都拉斯与中共国的任何关系，必须拿来与对美关系权衡考量。当问到洪都拉斯是否会与中共建交，纳斯拉亚回道：“不会”。
+当地时间12月2日，美国国会及行政当局中共委员会主席默克利，和共同主席麦戈文，宣布启动奥运囚犯社交媒体项目，在北京冬奥之前凸显被中共非法关押的政治犯问题。
 
-“没有与中共国的关系，继续维持与台湾的关系，”他称。“我们的贸易盟友、紧密盟友、历史盟友是美国。我们不想与美国对抗，美国是我们的主要贸易盟友。”
+![](https://assets.gnews.org/wp-content/uploads/2021/12/捕获1.png)
 
-另一名新政府的匿名高层人士也表示，洪都拉斯与中共国的关系不会升级，因为升级的条件并不存在。
+该委员会称，这个项目突出显示了美国所掌握的数据库中抽取的政治犯。由于对中共在冬奥会期间，保证自由和不受限制的媒体采访受到强烈质疑，因此项目中第一批突出的政治犯，将是被中共监禁的记者和公民记者。随后几周内，委员会将在数据库中多达1500名已知政治犯中，重点发现维族人、藏人、港人、劳工活动人士、基督徒、法轮功、人权律师、妇女权利和民主促进人士。
 
-消息来源:
+默克利和麦戈文在这个倡议项目视频中强调，他们呼吁全世界和国际奥委会向中共施压，迫使他们释放良心犯。因为中共政府玷污了奥运会精神。
 
-[洪都拉斯下任政府立场急转弯 暗示不会与中共国建交](https://cn.reuters.com/article/honduras-president-china-dip-pol-1203-idCNKBS2II051?il=0)
+参考链接：
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+- [美国国会启动奥运囚犯项目，在冬奥前突出中国的政治犯](https://www.voachinese.com/a/cecc-highlights-political-prisoner-in-china-20211202/6337707.html)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-1.png)
+
+编辑：文徬
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
