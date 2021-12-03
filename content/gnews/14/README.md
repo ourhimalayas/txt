@@ -2,14 +2,15 @@
 ---
 
 
-## 【文贵先生大直播PPT】美国和世界经济最新动态
-` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1716997/)
+## 【文贵先生大直播PPT】喜联储数字货币银行牌照的意义与战友投资规划
+` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1717069/)
 
-撰稿：三票先生
-美工：Bobby（文俊），青山
+撰稿：ILOVE战神（文凡），政清，Benji1，松映月
+美工：雷蒙
+审核：三票先生，顽童先生，政清
 
-【2021年12月3日文贵先生大直播PPT：美国和世界经济最新动态】
-![](https://assets.gnews.org/wp-content/uploads/2021/12/29.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/22.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/23.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/24.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/25.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/26.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/27.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/111-2.jpg)
+【2021年12月3日文贵先生大直播PPT：喜联储数字货币银行牌照的意义与战友投资规划】
+![](https://assets.gnews.org/wp-content/uploads/2021/12/41.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/42.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/43.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/44.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/45-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/46.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/47.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/48.jpg)
 * * *
 
 发稿：云起时

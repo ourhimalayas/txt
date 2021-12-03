@@ -2,29 +2,43 @@
 ---
 
 
-## 七哥谈宗教和信仰的区别
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1717219/)
+## 在新冠测试呈阳性后，卡拉哈里奥斯被立法机关禁止90天
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1717236/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+作者：RebelNews
+翻译：KK
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-35.png)
+在昨晚的节目中的以斯拉地中海秀中，新蓝安大略党MPP贝琳达·卡拉哈里奥斯加入以斯拉谈论她是如何在女王公园新冠测试呈阳性的90天内被立法机关禁止的。
 
-包装完以后你就觉得那是蛋糕，感情做完包装就是换来的眼泪，掏的就是你的钱，要了你的命，人生最重要的事情就是你的智慧，无尽的智慧，啥叫无尽的智慧呀，无尽的智慧不是没边的比别人高的智慧，无尽的智慧就是自然的智慧，就像我上次说的感恩，感恩没有条件的，而是自然而然生的，就是自然而然没有条件的，没有任何条件交换的，感恩是信仰不是宗教。宗教是啥？宗教是信仰的中介，Agent,宗教代表着上帝，代收了你15%的工资。宗教代表着什么佛祖，耶稣，你要供养的。而且宗教这个东西呢，宗教是自然生。 就是植物一样，像大自然的植物一样，他是一个完全不是卵生的，不是性交产物，是无性产物，所以他没有任何创新，它永远就那样，这叫宗教，就是糊弄点钱，弄点钱，代表上帝。信仰是什么，信仰是天生的，就是两性的世界有性繁殖，有性繁殖是什么，是不可确定的，是不是，飞飞跟她老公产出的仨孩子就是那样，飞飞要跟政清产出仨孩子绝对不张那样。 这是医学，所以说这人类，它是一个有性繁殖导致了不确定性，而不确定性是完全自然的，是没办法的，是不确定的延续，他感恩是信仰不是宗教，我不是因为啥我就不变的，是有条件的，不对的。 完全不可辩，所以感恩是信仰，不是宗教，同样一个人的判断力叫无尽的智慧，告诉你什么，完全是一个可以确定的智慧，它是无性繁殖了，这就叫无性繁殖了，这是我本能，我看的事物，所以说你看有些事情是有性繁殖是好，有些事情是无性繁殖好，宗教和信仰之间它的并列就在这，自然它是完全无性繁殖的，人类和动物是有性繁殖。 这两者之间就是信仰和宗教的存在。当你把这个看清楚，所有的宗教，记住它都是Agent，你都可以怀疑它否定它，你都可以不用它，所有自然而然发生的。就像昨天，我看到一个福建人说这个小孩。
+在推特上，贝琳达写下了她的经历：
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+议长禁止我进入立法机构的决定，就像福特的进步保守党的大多数决定一样，无视逻辑。凭借天然免疫力，我比任何其他接种过疫苗或以其他方式接种过的人都不太可能感染或传播新冠。
+
+我为成千上万因类似的不合逻辑的决定而失去工作或教育的安大略人感到同情。
+
+我们应该将精力集中在有效治疗新冠上。
+
+相反，福特的进步保守党和某些“专家”打算以此惩罚安大略人。
+
+来源：[https://www.rebelnews.com/mpp\_belinda\_karahalios\_banned\_from\_legislature\_for\_90\_days\_after\_positive\_covid\_test](https://www.rebelnews.com/mpp_belinda_karahalios_banned_from_legislature_for_90_days_after_positive_covid_test)
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)](https://www.gettr.com/user/7UPgogo)
+
 欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
 **关注我们**
 
 Discord 账号
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
 Gettr 账号
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

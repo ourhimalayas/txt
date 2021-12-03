@@ -2,34 +2,26 @@
 ---
 
 
-## 澳州塔斯马尼亚州首府霍比特颁布新疫苗强制令
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1716703/)
+## 美国最新民调显示：大多数美国人认为中共超过俄罗斯成为美国最大威胁
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1716812/)
 
-撰稿：Shirley
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide1-3.jpg)
-图片来自网路
+韩国首尔天池农场
+翻译：zzballack　
+上传：无明逆流
 
-塔斯马尼亚州首府霍比特的疫苗接种率是该州最高的。[两针的接种率已达到95%](https://www.themercury.com.au/news/coronavirus/hobart-tops-race-to-be-vaccinated-new-figures-show/news-story/8441a85aee4b527f0b3709d66253954c)。
+据英国《每日邮报》（Daily Mail）12月1日报道，一项最新民意调查的结果让人震惊，52%的受访者认为中共、而不是普京的俄罗斯，对美国构成最大威胁，而在2018年，这一数字只有21%。现在只有14%的人认为俄罗斯是最大威胁。另外超过70%的人担心中美会爆发军事冲突。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/T23T6f0534ae43593.jpg)图片来源：原新闻
+里根国防调查（Reagan National Defense Survey）发现，中共已经超过了俄罗斯、朝鲜和阿富汗，成为美国最大的潜在威胁。“在我们的调查中，大多数美国人第一次认定一个国家是美国面临的最大威胁：中共国。”55%的民主党人和64%的共和党人认为中共确实构成了最大威胁。
 
-今日，该市的市议会[宣布了新的疫苗强制政策](https://www.themercury.com.au/news/coronavirus/tassie-pub-and-nightclub-patrons-will-need-to-be-fully-vaccinated-to-be-allowed-entry/news-story/7294b3cae175de57ed6f94bd9c99290f?utm_source=Mercury&amp;utm_medium=email&amp;utm_campaign=Editorial&amp;utm_content=MERC_LATESTNEWS_PM-CUR_01&amp;net_sub_id=287163446&amp;type=curated&amp;position=1&amp;overallPos=1)，要求所有在市议会的工作人员和访客都必须接种疫苗。
+当被问及是否预见到与中共的潜在军事冲突时，71%的受访者表示肯定。其中，79%的共和党人和66%的民主党人认为世界两个超级大国之间可能会发生战争。
 
-此外，霍巴特的一些公共场所，包括市政厅、议会中心、旅行和信息中心、垃圾回收场和公共游泳池的访客也必须从12 月 15 日起全面接种疫苗。
+37%的美国人认为，美国需要将军事注意力从中东转移到东亚地区。认为美国应聚焦中东的只有17％。
 
-塔斯马尼亚的酒吧、俱乐部和夜总会被告知，从下周开始，只有接种了疫苗才能进入这些场所。从12 月15 日起，所有在这些场所工作的员工也必须完全接种疫苗。
+在调查中，71%的美国人承认台湾是一个 “独立国家”。50%的人支持美国对中共入侵台湾作出军事回应。
 
-虽然这些场所没有责任检查客户的疫苗接种情况，但是警方将负责进行抽查，违规者将被处以约770 澳元的罚款。
+关于中共病毒，许多美国人认为它是由武汉实验室的科学家制造的，这也是中共被视为头号威胁的原因之一。近50%的人说他们“很有可能”相信这一理论，72%的人说他们“有可能”相信这一理论。
 
-由于塔斯马尼亚州严格控制外来访客，一旦发现旅客呈新冠阳性，立即对其实施严格的隔离措施，所以该州对岛内居民处于开放状态，没有任何岛内旅行限制。
-
-这些升级的疫苗强制接种措施，限制了没有接种疫苗的居民的行动范围。但这些措施能否有效地在12月15日该州对澳洲大陆开放后仍然保持零感染，我们将拭目以待。
-
-编辑：云彩
-
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
-
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-
-[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+相关新闻：[Majority of Americans point to China – not Russia – as biggest threat to US in poll: 71% say they fear military conflict as tensions mount over Taiwan](https://www.dailymail.co.uk/news/article-10264367/Majority-Americans-finger-China-biggest-threat-poll-71-fear-military-conflict.html)
 
  
 

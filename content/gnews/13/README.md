@@ -2,15 +2,15 @@
 ---
 
 
-## 【文贵先生大直播PPT】病毒及疫苗大灾难
-` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1717037/)
+## 【文贵先生大直播PPT】Himalaya Pay 台湾团队业务进展
+` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1717098/)
 
-撰稿：舒平风，莲心不染，Mildseven，李昂纳多，MyWay，坐看云起时
-PPT美化：sotres，小黑兔
-审核：三票先生，顽童先生，舒平风
+撰稿：台湾宝岛农场
+PPT美化：青山
+文案终审：三票先生，顽童先生
 
-【2021年12月3日文贵先生大直播PPT：病毒+疫苗大灾难】
-![](https://assets.gnews.org/wp-content/uploads/2021/12/58.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/52.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/53.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/54.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/55.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/56.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/57.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/49.jpg)
+【2021年12月3日文贵先生大直播PPT：Himalaya Pay 台湾团队业务进展】
+![](https://assets.gnews.org/wp-content/uploads/2021/12/71.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/72.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/73.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/74.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/75.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/76.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/77.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/78.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/79.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/80.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/81.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/48-1.jpg)
 * * *
 
 发稿：云起时
