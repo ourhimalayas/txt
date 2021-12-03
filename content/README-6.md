@@ -14,7 +14,9 @@
 :new: :tada::tada::tada: [本倉庫網頁版](https://ourhimalayas.github.io/)
 
 ---
-## 頁面 6/37 [**<**](/content/README-5.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [37](/content/README-37.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)
+## 頁面 6/38 [**<**](/content/README-5.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [38](/content/README-38.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)
+
+[全文字版2021年6月30日郭文贵先生G-TV直播](/content/2021/06/20210630-1364325.md)
 
 [全文字版2021年6月28日郭先生森林深处与英俊漂亮的战友们连线试试直播](/content/2021/06/20210628-1356870.md)
 
@@ -64,7 +66,5 @@
 
 [全文字版2021年4月25日郭文贵先生G-TV直播](/content/2021/04/20210425-1140222.md)
 
-[全文字版2021年4月23日郭文贵先生G-TV直播](/content/2021/04/20210423-1136241.md)
 
-
-## 頁面 6/37 [**<**](/content/README-5.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [37](/content/README-37.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)
+## 頁面 6/38 [**<**](/content/README-5.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [38](/content/README-38.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)
