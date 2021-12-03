@@ -2,29 +2,49 @@
 ---
 
 
-## 七哥谈：Omicron和灭共
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1714884/)
+## 美国联邦政府面临部分关闭的风险
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1715003/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/T5LJRRFTF5NDNE2NPZFVJEMK2I.jpg)图片来源：Reuters
+**翻译：**皮特
+**编辑：**翼族
 
-Omicron出来以后，他这个人很迷信，我发现科学家到最后全都迷信，医学家最后全都不信医学，全都迷信。他说你不要看这次习这个字啊，他说我觉得这是天意啊，轮就轮到习那去了。他咋就世界了，他是百亿分之概率啊，视为组织就没想到这么一事，轮到了这个病毒叫XI病毒，他说这是名副其实啊，这最重要的是搞了一个叫Omicron，他说Omicron这个词实际上是很多国家的语言，Omicron真的不是个好事，实际上就是结束的意思。他说这都是天意啊，他说这就是结束的意思啊，Omicron就是结束。然后战友居然说这是灭共，粤语什么O灭共，然后科学家跟我说，也就三周前我直播，他告诉我，文贵，你不要对外讲，你一定要等着我说，你再说，如果这次共产党弄不了大毒的话，咱们新中国联邦就厉害了。我说为什么，他说真的是新中国联邦的解药，会拯救全人类，不但解药是解的病毒，是解的疫苗。很多人一说好事就想着喜币，你们就是钱迷。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-23.jpg)
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+由于共和党的反对，美国总统乔·拜登的强制疫苗政策可能造成联邦政府部分关闭，目前美国参议院中占多数的民主党人和少数的共和党人正在磋商，以阻止该风险。
 
-**关注我们**
+因对中共病毒（COVID-19）病例的上升趋势，以及对新的Omicron病毒变体到来的担忧，国会必须在周五午夜之前通过一项措施，为大流行期间联邦政府的继续运作提供资金。
 
-Discord 账号
+政府的部分关闭将会给双方带来政治尴尬的处境，尤其是拜登的民主党，他们几乎控制了国会两院。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+参议院和众议院的最高立法者们尚未通过可在国会投票表决的议程。
 
-Gettr 账号
+一旦众议院制定并通过一项决议，需要所有100名参议员都同意才能规避参议院的裁定，并在周五截止日期前通过。
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+星期三，因拜登对联邦和私营部门雇员的强制疫苗政策使美国就业处于危险中，包括迈克·李、罗杰·马歇尔、罗恩·约翰逊和特德·克鲁兹在内的一群强硬保守派参议院共和党人，要求投票表决，以阻止联邦资金用于拜登的强制疫苗政策。
+
+马歇尔对记者说：“联邦政府需要感受到强制疫苗政策所带来的压力。”
+
+马歇尔表示，他们希望在决议中看到禁止强制疫苗资金，以保持政府开放，但也同意对单独修正案的投票。
+
+舒默告诉记者，为达成协议，他与共和党领袖米奇·麦康奈尔（Mitch McConnell）的谈判“进展良好”，但他承认，如果参议院被迫遵守一系列投票的程序规则，则政府也有可能关闭。
+
+舒默对记者说：“双方领导人要确保不会发生这种情况，否则我们将完全陷入混乱。”
+
+麦康奈尔似乎并不过分担心，“我们会没事的”，他告诉记者。
+
+预计众议院最早将在下周三就一项资金决议进行投票，包括继续资助政府多久等问题，两党之间的谈判依旧陷入僵局。
+
+民主党希望将目前的资金水平延长至1月，然后通过新的支出法案，而共和党则敦促推迟到春季晚些时候，此举将使支出保持在共和党唐纳德·川普担任总统时商定的水平。
+
+**原文链接：**[US shutdown risk over vaccine mandates](https://thewest.com.au/politics/us-shutdown-risk-over-vaccine-mandates-c-4783257)
+
+*发布：翼族*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

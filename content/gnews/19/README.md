@@ -2,29 +2,43 @@
 ---
 
 
-## 七哥谈：青蒿素
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1714871/)
+## 拜登说不会扩大疫苗强制和封锁来对抗今冬疫情
+` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1714989/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+加拿大扬帆农场 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2021/12/120221bidenomicron_960x540.jpg)图片来源：WSJ
+根据《CNBC》12月2 日报道，拜登今天表示，冬季对抗Covid的计划将不包括新的封锁或扩大政府当前的疫苗强制要求。
 
-全世界都知道青蒿素是管用的，青蒿素绝对是可以把癌症给消失了。青蒿素绝对把糖尿病，和人类存在的艾滋病，特别是现在受环境污染的脑血栓，心血管病有巨大的帮助，甚至消灭。还有青蒿素和伊维菌素连在一起，一定会把这次的病毒给解决，这科学家是很保守的人！很保守的人！他情绪，因为当医生的人心都比较狠，很少激动啊，很少情绪化。
+拜登在一次更新中告诉记者说他不会关闭或封锁，而是广泛的疫苗接种和加强针以及更多的测试。他说：”虽然我现有的联邦疫苗接种要求正在接受法院的审查，但这个计划并没有扩大或增加强制疫苗，希望所有美国人都能团结起来，得到两党的支持“。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+政府希望通过扩大宣传来增加接受强化注射的美国人的数量。医疗保险和医疗补助服务中心将联系6000多万参加医疗保险的人，其中大多数是老年人，提醒他们再打一次针。
 
-**关注我们**
+周四早些时候公布的白宫计划是在本周在加利福尼亚和明尼苏达州发现至少两例高度突变的欧米茄变体之后制定的。美国和世界各地的卫生官员担心，这种有大约50个变异的变体可能被证明更具有传播性，并在某种程度上逃避疫苗的保护。
 
-Discord 账号
+几个欧洲国家已经重新对公共生活实施限制，以对抗Covid感染的浪潮。奥地利已经实行了全面封锁，荷兰正在迫使餐馆等企业提前关门，德国禁止未接种疫苗的人进入除杂货店、药店和面包店以外的大多数企业。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+白宫要求拥有100名或更多雇员的企业自愿执行政府的要求，在1月4日之前为其员工接种疫苗或每周进行测试。 一个联邦上诉法院上个月因为宪法问题，搁置了这项政策，等待审查。
 
-Gettr 账号
+拜登说，政府的目标是通过在社区卫生中心和全国各地的地点启动数百个家庭疫苗接种诊所，使父母更容易为他们的孩子接种疫苗，从而保持学校开放。
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+该计划还包括扩大免费的上门病毒测试。据总统说，有私人保险的美国人将获得测试费用的报销，政府将向保健中心和农村诊所分发5千万次免费测试，供没有保险或服务不足的人使用。
+
+拜登说，政府认为目前不需要额外的措施，但正在制定应急计划，以开发新的疫苗和加强针，以便需要它们来对抗新变体欧米龙。
+
+“我的团队已经在与辉瑞公司、摩德纳公司和强生公司的官员合作，为其他疫苗或加强针制定应急计划，”拜登说。”而且我还将指示美国食品和药物管理局和疾病预防控制中心使用现有的最快程序，在不偷工减料的情况下，为安全起见，在需要时使这类疫苗得到审查和批准。”
+
+美国从下周开始，还将要求入境的国际旅行者无论其疫苗接种状况如何，都要在出发前24小时接受检测。政府还将国内航班和公共交通的口罩任务延长至3月18日。
+
+拜登强制疫苗令被法院暂停，现在主要靠宣传蒙骗民众接种疫苗，美国毕竟是一个法制社会，尽管维护法制的公正需要代价。
+
+原文链接：
+[https://www.cnbc.com/2021/12/02/covid-news-biden-says-no-lockdowns-wont-expand-vaccine-mandates-this-winter.html](https://www.cnbc.com/2021/12/02/covid-news-biden-says-no-lockdowns-wont-expand-vaccine-mandates-this-winter.html)
+
+* * *
+
+发稿 Spirit
+
+
 
  
 

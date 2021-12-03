@@ -2,49 +2,40 @@
 ---
 
 
-## 美国联邦政府面临部分关闭的风险
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1715003/)
+## 诺瓦克·德约科维奇：网球男单世界第一的父亲对他参加澳网表示怀疑
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1715128/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/T5LJRRFTF5NDNE2NPZFVJEMK2I.jpg)图片来源：Reuters
-**翻译：**皮特
-**编辑：**翼族
+翻译： 真北007
+![](https://assets.gnews.org/wp-content/uploads/2021/12/skysports-novak-djokovic-tennis_5590209.jpg)图片来源：网络
+来自SKY SPORTS 11月29日的新闻报道：
 
-由于共和党的反对，美国总统乔·拜登的强制疫苗政策可能造成联邦政府部分关闭，目前美国参议院中占多数的民主党人和少数的共和党人正在磋商，以阻止该风险。
+组织者表示，所有球员在墨尔本都必须接种疫苗； 德约科维奇尚未透露他是否接种了疫苗；其父 Srdjan Djokovic：“在这些敲诈勒索等条件下，（Djokovic）可能不会（上场）。”
 
-因对中共病毒（COVID-19）病例的上升趋势，以及对新的Omicron病毒变体到来的担忧，国会必须在周五午夜之前通过一项措施，为大流行期间联邦政府的继续运作提供资金。
+诺瓦克·德约科维奇的父亲说，除非放宽对 Covid-19 疫苗接种的规定，否则世界第一不太可能在明年初参加澳大利亚网球公开赛。
 
-政府的部分关闭将会给双方带来政治尴尬的处境，尤其是拜登的民主党，他们几乎控制了国会两院。
+明年首个大满贯赛事（于 1 月 17 日开始）的组织者已经表示，所有球员都必须接种疫苗才能参加。
 
-参议院和众议院的最高立法者们尚未通过可在国会投票表决的议程。
+到目前为止，德约科维奇拒绝透露他是否接种了疫苗，他的父亲告诉塞尔维亚电视台 Prva，管理机构澳大利亚网球协会对球员接种疫苗的立场无异于“敲诈”。
 
-一旦众议院制定并通过一项决议，需要所有100名参议员都同意才能规避参议院的裁定，并在周五截止日期前通过。
+据新闻网站 B92 报道，Srdjan Djokovic 说：“就疫苗和非疫苗而言，是否接种疫苗是我们每个人的个人权利。
 
-星期三，因拜登对联邦和私营部门雇员的强制疫苗政策使美国就业处于危险中，包括迈克·李、罗杰·马歇尔、罗恩·约翰逊和特德·克鲁兹在内的一群强硬保守派参议院共和党人，要求投票表决，以阻止联邦资金用于拜登的强制疫苗政策。
+“没有人有权进入我们的亲密关系。
 
-马歇尔对记者说：“联邦政府需要感受到强制疫苗政策所带来的压力。”
+“在这些勒索和限制条件下，（德约科维奇）可能不会（上场）。
 
-马歇尔表示，他们希望在决议中看到禁止强制疫苗资金，以保持政府开放，但也同意对单独修正案的投票。
+“我不会那样做。他是我的儿子，所以你自己决定。”
 
-舒默告诉记者，为达成协议，他与共和党领袖米奇·麦康奈尔（Mitch McConnell）的谈判“进展良好”，但他承认，如果参议院被迫遵守一系列投票的程序规则，则政府也有可能关闭。
+德约科维奇在墨尔本一直占据统治地位，包括今年在内九次夺冠。
 
-舒默对记者说：“双方领导人要确保不会发生这种情况，否则我们将完全陷入混乱。”
+他坐拥 20 个男子大满贯冠军头衔，与罗杰·费德勒和拉斐尔·纳达尔齐名，是历史上最多的。
 
-麦康奈尔似乎并不过分担心，“我们会没事的”，他告诉记者。
+原文链接：[https://www.skysports.com/tennis/news/12110/12482028/novak-djokovic-world-no-1s-father-casts-doubt-on-his-australian-open-participation](https://www.skysports.com/tennis/news/12110/12482028/novak-djokovic-world-no-1s-father-casts-doubt-on-his-australian-open-participation)
 
-预计众议院最早将在下周三就一项资金决议进行投票，包括继续资助政府多久等问题，两党之间的谈判依旧陷入僵局。
+编辑/发布：LILY
 
-民主党希望将目前的资金水平延长至1月，然后通过新的支出法案，而共和党则敦促推迟到春季晚些时候，此举将使支出保持在共和党唐纳德·川普担任总统时商定的水平。
+20211202
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
 
-**原文链接：**[US shutdown risk over vaccine mandates](https://thewest.com.au/politics/us-shutdown-risk-over-vaccine-mandates-c-4783257)
-
-*发布：翼族*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

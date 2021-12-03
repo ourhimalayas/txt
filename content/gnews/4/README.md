@@ -2,24 +2,59 @@
 ---
 
 
-## 比尔·盖茨提及天花病毒恐怖袭击意欲何为？
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1715129/)
+## 参议员米特·罗姆尼： 罗姆尼推动将维吾尔奴工法纳入国防授权法案
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1715176/)
 
-韩国首尔天池农场
-翻译：zzballack
-上传：追着曙光跑
+众议员迈克·麦考尔： 中国法律要求像 Fulgent 这样的公司将他们的数据交给中共，他们不应该访问美国人的敏感健康数据。我赞扬洛杉矶县警长部门提请注意这一紧迫问题。 【附自由灯塔新闻报道： FBA警告一加州遗传（测序）公司很可能与中共国分享美国人的健康数据 】
 
-Inforwars网站12月1日刊文称，世卫组织曾宣布天花病毒已在1980年被根除。那么为什么比尔·盖茨在11月2日的一次采访中要呼吁世界各国为潜在的生物恐怖袭击做好准备，以预防比如“一个生物恐怖分子把天花带到10个机场”的情况发生。精英们经常宣布他们的下一步行动，并让所有人都听到。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Image-2021-12-03-at-10.38.20-1.jpeg)图片来源：原新闻
-多年来，人们一直就是否要销毁最后剩余的天花病毒而争论不休。这些病毒保存在亚特兰大（Atlanta）、乔治亚州和俄罗斯的政府实验室中，造成了生物战对峙局面。
 
-支持保留该病毒的论点认为，自然界中仍可能爆发天花疫情，保留天花可以增强人们应对该病毒的能力。但是世卫组织最终已经打算销毁现有的天花病毒库存。2010年，由世卫组织任命的公共卫生专家小组在审查后得出结论，美国和俄罗斯的实验室继续保留活体病毒库存并没有达到基本的公共卫生目的。
 
-2019年，俄罗斯存放活性天花病毒的实验室发生爆炸，使得遏制（天花爆发）的工作面临风险。而最近在宾夕法尼亚州默克公司工厂发现的标有天花的冷冻小瓶，又将天花病毒推到风口浪尖。人们认为天花病毒被用作实施封锁的借口，从而扼杀人们的自由，以及福奇在制造了中共病毒后仍未罢手，继续制造新病毒。
+> Companies like Fulgent are required by Chinese law to turn their data over to the CCP, and shouldn’t have access to Americans’ sensitive health data. I commend the L.A. County Sheriff’s Department for drawing attention to this urgent issue.[https://t.co/9Gmbrb2PAy](https://t.co/9Gmbrb2PAy)
+> — Michael McCaul (@RepMcCaul) [December 2, 2021](https://twitter.com/RepMcCaul/status/1466510989017468936?ref_src=twsrc%5Etfw)
 
-我们都非常熟悉在中共病毒爆发的前几个月，已预演了相关的议程设置。现在，比尔·盖茨所说的威胁正在逐渐显现，未来可能会出现一种特定DNA的天花生物武器，就像最新的007电影中的那种，从而推动议程设置。比尔·盖茨是典型的反社会者，他拥有富可敌国的财富，疯狂收集数据，并掌控政府内部权力。他就像任何007电影中的反派一样不可冒犯，但不幸的是，这不是一部电影。
 
-新闻来源：[The Smallpox Tell Of Bill Gates – Watch](https://www.infowars.com/posts/the-smallpox-tell-of-bill-gates-watch/)
+
+参议员米特·罗姆尼： NDAA （国防授权法案）被搁置是因为发言人佩洛西 和参议员舒默拒绝就一项阻止 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 奴工制造的商品进入美国的条款进行投票。现在是打击中共国奴隶制的最佳时机。我们可以完成它。 【附视频：罗姆尼推动将维吾尔奴工法纳入国防授权法案】
+
+
+
+> The NDAA is being held up because [@SpeakerPelosi](https://twitter.com/SpeakerPelosi?ref_src=twsrc%5Etfw) and [@SenSchumer](https://twitter.com/SenSchumer?ref_src=twsrc%5Etfw) are refusing to allow a vote on a provision that prevents Chinese goods made with forced labor from entering the U.S. Now is the perfect time to strike a blow against China's slavery. We can get it done. [pic.twitter.com/oNYWBI6AOS](https://t.co/oNYWBI6AOS)
+> — Senator Mitt Romney (@SenatorRomney) [December 2, 2021](https://twitter.com/SenatorRomney/status/1466504485551984645?ref_src=twsrc%5Etfw)
+
+
+
+参议员卢比奥新闻办公室： 参议员卢比奥提出立法，以强化美国航天工业对抗 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) [#ChineseCommunistParty](https://twitter.com/hashtag/ChineseCommunistParty?src=hashtag_click) 的侵略。 【附参议院官网发布的此法案相关内容】
+
+
+
+> Sen. Rubio introduced legislation to strengthen the U.S. space industry against [#ChineseCommunistParty](https://twitter.com/hashtag/ChineseCommunistParty?src=hash&amp;ref_src=twsrc%5Etfw) aggression. [https://t.co/7URk5C8JrS](https://t.co/7URk5C8JrS)
+> — Senator Rubio Press (@SenRubioPress) [December 2, 2021](https://twitter.com/SenRubioPress/status/1466485474546135041?ref_src=twsrc%5Etfw)
+
+
+
+参议员瑞克·斯科特: 当你就 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 问题向大多数华尔街高管提出质疑时，就会发生以下情况。 他们对其投资加倍下注，因为他们更关心金钱而不是基本的人类尊严。 【转推文中说，桥水公司CEO 雷·达里奥在接受CNBC采访中竟然说，在中共国专制社会中，中共表现得像一个严格的父母一样。。】
+
+
+
+> Here's what happens when you challenge most Wall Street execs about Communist China.
+> 
+> They double down on their investments because they care more about money than they do about basic human dignity. [https://t.co/06QJAZexwA](https://t.co/06QJAZexwA)
+> — Rick Scott (@SenRickScott) [December 2, 2021](https://twitter.com/SenRickScott/status/1466456310669533189?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克·沃尔茨： 很自豪与众议员玛丽亚·萨拉查[@RepMariaSalazar](https://twitter.com/RepMariaSalazar) 和同事一起推动《共产主义法案》，该法案旨在教育我们的孩子了解 [#共产主义](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89?src=hashtag_click) 的危险性。 有超过一亿人被以共产主义意识形态为名遭到杀害，我们的孩子应该接受这个现实的教育。
+
+
+
+> Proud to stand with [@RepMariaSalazar](https://twitter.com/RepMariaSalazar?ref_src=twsrc%5Etfw) and colleagues to promote the Communism Act to educate our children on the dangers of communism.
+> 
+> Well over 100 million people have been killed in the name of the communist ideology and our kids should be taught this reality. [https://t.co/Dsr4DLsoxA](https://t.co/Dsr4DLsoxA)
+> — Rep. Mike Waltz (@michaelgwaltz) [December 2, 2021](https://twitter.com/michaelgwaltz/status/1466451608435314693?ref_src=twsrc%5Etfw)
+
+
+
+
 
  
 

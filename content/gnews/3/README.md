@@ -2,26 +2,30 @@
 ---
 
 
-## 德国宣布对未接种中共病毒疫苗的人将进行封锁
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1715133/)
+## 推特将美国心脏协会关于疫苗的警告标为“不安全”信息
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1715194/)
 
-**撰稿：Grace**
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-4.png)
+图片来源： twitter.com
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-02-at-8.22.10-PM.jpeg)图片来源：雅虎
-据The Gateway Pundit 12月2日报道，德国宣布在全国范围内对未接种中共病毒疫苗的人进行封锁。
+零对冲网12月2日报道，推特针对来自美国心脏病协会关于信使核糖核酸（mRNA）疫苗显著增加心脏病风险从11%增加到25%的研究发现，标上了“不安全”连接警告。
 
-几周前，德国总理安格拉·默克尔宣布，将对未接种中共病毒疫苗者的公共生活的很大一部分加以限制。默克尔更是无耻地说，医院里挤满了中共病毒患者，是因为人们拒绝接受中共病毒疫苗的注射。
+推特居然认为具有很高影响力的正规美国心脏协会杂志的文章是“不安全”的信息！ 谁给推特的权力？
 
-在本周四，安格拉·默克尔和下周将接替她的副总理奥拉夫·舒尔茨，在与地区领导人进行危机谈判后宣布了新的强制中共病毒疫苗规定。该规定有以下的这些要求：医院、护理院员工必须注射中共病毒疫苗。在圣诞节前注射的中共病毒疫苗数量要多达3000万支。增加能够管理疫苗的人员数量。只有接种过疫苗的人和感染过中共病毒而已经得到恢复的人才能进入餐厅，剧院和非必要的商店。对未接种疫苗的人实行更严格的接触限制。在感染率高的地方关闭夜总会。限制大型公共活动中的观众人数。扩大危机单位，以协调联邦，区域行动。
+推特认为凡是符合以下条件即为“潜在不安全”信息：
 
-即将离任的卫生部长延斯·斯潘（Jens Spahn）周四在接受ZDF电视台采访时说：“这实际上是对未接种疫苗者的封锁。” 斯潘还说，目前在德国有超过1200万的成年人没有接种中共病毒疫苗。
+1. 恶意的可能偷盗私人信息或电子设备的链接
 
-据CNN报道，默克尔周四在卸任前的最后一次新闻发布会说，在议会进行辩论并遵循德国道德委员会(Germany’s Ethics Council)的指导后，全国范围内的中共病毒疫苗接种指令可能会从 2022 年 2 月开始生效。
+2. 误导人们或打破人们经验的拉圾邮件链接
 
-**新闻来源：[Germany Imposes Nationwide Lockdown For the Unvaxxed](https://www.thegatewaypundit.com/2021/12/germany-imposes-nationwide-lockdown-unvaxxed/)**
+3. 可能在真实世界造成暴力或误导的内容
 
-**[Germany locks down unvaccinated people, as leaders plan to make shots compulsory](https://www.cnn.com/2021/12/02/europe/germany-lockdown-covid-restrictions-intl/index.html)**
+4. 某些内容有违推特的标准
+
+不清楚美国心脏协会杂志的调查研究文章违反了上述哪一条。推特是基于什么依据？
+
+##### **新闻来源： **[Twitter Slaps ‘Unsafe’ Label On American Heart Association mRNA Vaccine Warning](https://www.zerohedge.com/covid-19/twitter-slaps-unsafe-label-american-heart-association-mrna-vaccine-warning) 
 
  
 

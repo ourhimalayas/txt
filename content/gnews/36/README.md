@@ -2,50 +2,50 @@
 ---
 
 
-## 中国希望结束其科技巨头过去在外国证券交易所上市的法律真空
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1714541/)
+## 史蒂夫·班农1月6日的法律策略：“炸毁整个系统”
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1714611/)
 
-**编译：蚂蚁兄弟**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip16.png)中国国家主席习近平路透社/阿里宋
-中共国要禁止其科技巨头在外国证券交易所上市。为什么？
+翻译：西班牙巴塞罗那喜悦农场-wenwu
 
-因为像美国这样的国家要求透明度，而中共国政府并不愿意提供资料，也不可能提供真实资料。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-88.png)图片来源： thedailybeast.com
 
-8月，美国开始对在华尔街上市的中共国公司提出新要求，基本内容是：要求在此之前没有提供过具体财务信息的上市公司需要补充所有的材料，以便投资者能够对所投资公司的风险有更多了解。简而言之，需要更大的透明度。
+史蒂夫·班农–右翼媒体人变成了唐纳德·川普的顾问后，又变成了右翼媒体人–在上个月拒绝与调查1月6日“暴动”的众议院委员会合作后，成为近40年来第一个被指控犯有藐视法庭罪的人。现在，班农似乎正在利用他的刑事案件来反向追捕那些追捕他的众议院委员会调查人员。
 
-但“透明度”一贯不是中共国的作风，中共政府向来不赞成与世界分享信息。
+据几位法律专家称，班农正试图迫使调查人员有可能暴露他们与谁交谈过，说过什么，窥探委员会的秘密通讯，并为其他抵制的证人创建一个游戏手册。
 
-根据彭博社援引熟悉此事的消息人士的报道，习近平政权计划禁止中共国的科技公司在国外上市，而中国证监会却否认了这一点。
+专门从事国家安全事务的律师凯尔·麦克拉纳汉（Kel McClanahan）说：“如果在国会敢于问你问题的时候，你还能把国会打出一个黑眼圈，那么与国会相反的想法就不需要付出任何代价。”
 
-如何填补科技行业长期以来利用的从外国投资者那里筹集资金的漏洞？
+由于班农面临刑事指控，他有权获得对他不利的证据。在一个典型的银河系一样的大脑中，班农的反击攻略是，特朗普的前高级顾问正试图公开其中一些证据。
 
-“美国已经要求所有中概股公司披露其财务报表信息，中共国却说有《国家保密法》可以绕过这些问题，而且这些年来一直在规避，他们不能再这样了，美国人已经加强了风控措施”，Natixis亚太首席经济学家Alicia García Herrero解释说。
+根据联邦检察官周日晚间提交的一份[法庭文件](https://storage.courtlistener.com/recap/gov.uscourts.dcd.237438/gov.uscourts.dcd.237438.12.0_1.pdf)，这包括执法部门对证人的秘密面谈以及众议院委员会工作人员之间的内部通信。司法部声称，如果将这些材料暴露给公众，会造成“特定的伤害”，例如“篡改证人”或在未来的审判中无法找到公正的陪审员。
 
-这就是为什么中共国现在要通过禁止外国股票的方式来彻底解决问题。
+在周二提交的一份[法庭文件](https://storage.courtlistener.com/recap/gov.uscourts.dcd.237438/gov.uscourts.dcd.237438.14.2_1.pdf)中，班农的律师表示，拜登政府的论点“充满了夸张的色彩……可能是为了给媒体加分。”同一天，包括 Buzzfeed、CNN 和《华盛顿邮报》在内（15 家新闻机构组成）的“新闻联盟”站在班农一边，并要求监督此案[的法官](https://storage.courtlistener.com/recap/gov.uscourts.dcd.237438/gov.uscourts.dcd.237438.14.3.pdf)提供文件，并拒绝其所谓的“这种广泛禁言令”。
 
-这项科技公司在国外上市的“禁令”是中共国政府正在准备的“新国外上市规则草案”中包括的变化之一。据彭博社援引的消息来源称，该文件最早可能在本月准备就绪。
+但是，尽管大多数[新闻报道](https://thehill.com/regulation/court-battles/583349-prosecutors-say-bannon-seeking-to-try-this-case-in-the-media-rather)对这场斗争的方向集中于指责，班农试图将其变成[媒体马戏团](https://www.cnn.com/2021/11/29/politics/department-of-justice-steve-bannon-court-filing/index.html)或[奇观](https://www.politico.com/news/2021/11/28/bannon-trial-media-spectacle-523432)，但一些法律学者表示，其真正意图是损害调查本身。有人称其为“灰色邮件”（维基百科：威胁泄漏国家机密以操纵法律程序），这是一种等同于敲诈的法律辩护策略，此后已被取缔。
 
-习近平想要弥补的漏洞是什么？
+“这不是要在媒体上审理此案，这是为了让委员会因对他所采取的行动而付出高昂代价；这是灰色邮件，纯粹而简单：你不能碰我，因为如果你这样做，我会泄露你的秘密。”麦克拉纳汉告诉 Thedailybeast。
 
-中共国的“保护主义”不仅影响到想要在中共国做生意的欧洲或美国公司，这也影响到了他自己的公司走出国门的情况。这样说：一家美国公司要进入中共国时必须面对一些障碍，那么美国对想要进入其美国领土的中国公司施加同样的限制也是合乎逻辑的，这就是政府所说的公平竞争的环境。
+从这个意义上说，班农正在严重提高追捕他的成本——兑现他的承诺，也就是将这变成“梅里克·加兰、南希·佩洛西和乔·拜登的[地狱轻罪](https://www.thedailybeast.com/steve-bannon-pleads-not-guilty-to-contempt-of-congress-charge-over-jan-6-committee-subpoena)”。
 
-但中共国的科技巨头，如阿里巴巴、百度和腾讯，在美国施加的投资障碍时找到了一个小漏洞：所谓的VIE结构（可变利益实体），这使他们能够在美国证券交易所顺利上市。也就是说，一家中共国公司他们会在想要上市的国家创建另一家离岸公司，这就是说中共国的实际公司很有可能是空壳公司。
+班农在此案中的律师没有回应 Thedailybeast 的反复询问。然而，在法庭文件中，他们强烈反对班农的策略是不正当使用证据的观点。
 
-美国的回应：要求融资公司的透明度
+“这是一起轻罪案件，”他们在周二的文件中写道。“这不是一个证人受到恐吓的情况。在没有任何具体的、特定的实际伤害表现的情况下，政府故意（让主流媒体）宣传了一个恶棍。”
 
-美国并不打算袖手旁观，看着中国巨头跳过其障碍而不遵守其要求，8月，美国证券交易委员会（SEC）开始宣布对使用这些可变利益实体（VIEs）进行IPO的新透明度要求。
+相反，班农的律师说，“能够使用发现材料来识别和询问证人，目的是正当合理的。”
 
-Natixis亚太首席经济学家Alicia García Herrero补充说：“中共国政府不希望中共国公司披露数据，所以他们要抗衡此法令，包括会计报表。”
+没有迹象表明班农的团队想要泄露一切。他的律师已为法官起草了一项[拟议命令](https://storage.courtlistener.com/recap/gov.uscourts.dcd.237438/gov.uscourts.dcd.237438.14.4.pdf)，该命令仍将对于 11 月 12 日期间[起诉他](https://www.thedailybeast.com/steve-bannon-indicted-for-failing-to-appear-before-jan-6-committee-on-capitol-riot)的大陪审团所出示的文件，进行保密。
 
-**新闻来源**：[businessinsider.es][China quiere poner fin al vacío legal que aprovechaban sus gigantes tecnológicos para cotizar en bolsas extranjeras](https://www.businessinsider.es/quiere-china-impedir-tecnologicas-coticen-bolsas-extranjeras-973755)
+班农在他的刑事藐视法庭案中由两名律师代理。据[《国家法律杂志》报道](https://www.law.com/nationallawjournal/2020/07/20/inside-the-disharmony-at-the-dc-federal-prosecutors-office/?slreturn=20211101180249)，一位前联邦检察官埃文·科克兰 (M. Evan Corcoran)在川普执政的最后一年，他差点在华盛顿的美国检察官办公室担任高级职务；另一位是大卫·I.舍恩（David I. Schoen），他是在美国参议院第二次弹劾审判期间代表川普的律师之一。
+
+班农的律师表示，在法庭案件的早期撬开保险箱的整体策略是前所未有的，这是一场恶战的前奏。
+
+新闻来源：[thedailybeast.com] [Steve Bannon’s Jan. 6 Legal Strategy: ‘Blowing Up the Whole System’](https://www.thedailybeast.com/steve-bannons-jan-6-legal-strategy-blowing-up-the-whole-system) | 发布时间：2021年12月02日
 
 * * *
 
-***审核：Aries的星
-校对：阿伯塔
-发布：信心满满***
+*发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-1.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3.jpeg)
 
  
 

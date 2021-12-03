@@ -2,32 +2,29 @@
 ---
 
 
-## 日本前首相安倍晋三警告中共不要对台湾轻举妄动
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1714787/)
+## 七哥谈：Omicron和灭共
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1714884/)
 
-**撰稿：日本东京方舟农场 北极**
+文编：Hima
+听写：叮叮
+视频：七哥
 
-据《德国之声》中文网12月2日报道，日本前首相安倍晋三日前通过视讯参加台湾智库会议时表示，如果中共胆敢武力攻台，日美同盟绝不会袖手旁观。安倍同时警告中共方面不要轻举妄动。
+Omicron出来以后，他这个人很迷信，我发现科学家到最后全都迷信，医学家最后全都不信医学，全都迷信。他说你不要看这次习这个字啊，他说我觉得这是天意啊，轮就轮到习那去了。他咋就世界了，他是百亿分之概率啊，视为组织就没想到这么一事，轮到了这个病毒叫XI病毒，他说这是名副其实啊，这最重要的是搞了一个叫Omicron，他说Omicron这个词实际上是很多国家的语言，Omicron真的不是个好事，实际上就是结束的意思。他说这都是天意啊，他说这就是结束的意思啊，Omicron就是结束。然后战友居然说这是灭共，粤语什么O灭共，然后科学家跟我说，也就三周前我直播，他告诉我，文贵，你不要对外讲，你一定要等着我说，你再说，如果这次共产党弄不了大毒的话，咱们新中国联邦就厉害了。我说为什么，他说真的是新中国联邦的解药，会拯救全人类，不但解药是解的病毒，是解的疫苗。很多人一说好事就想着喜币，你们就是钱迷。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-23.jpg)
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-安倍在会议中表示，“台湾有事就是日本有事，也是日美同盟有事”。安倍称，如果中共进攻台湾，日本和美国绝对不会袖手旁观，并且此举也会给中共自身的经济造成巨大伤害。
+**关注我们**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-18.jpg)图片来自德国之声
+Discord 账号
 
-根据中共外交部网站发布的消息，当天晚些时候，中共外交部官员华春莹和汪文斌又一如既往地对安倍发表的挺台言论表示“遗憾”，并召见了日本大使。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-日本内阁官房长官松野博一（Hirokazu Matsuno）对中共外交部约见日本驻华大使一事表示反对。松野博一指出，日方不同意中方的处理方式，“中方有必要理解，在日本国内本就存在这样的观点，日方不能接受中方在这类问题上的单方面看法。” 安倍晋三去年虽以健康理由卸任日本首相一职，但他目前仍是议会最大党派自民党的领导人，且在党内拥有强大的影响力。
+Gettr 账号
 
-*参考链接：*
-
-[安倍称“台湾有事就是日本有事” 北京约见大使表抗议](https://www.dw.com/zh/%E5%AE%89%E5%80%8D%E7%A7%B0%E5%8F%B0%E6%B9%BE%E6%9C%89%E4%BA%8B%E5%B0%B1%E6%98%AF%E6%97%A5%E6%9C%AC%E6%9C%89%E4%BA%8B-%E5%8C%97%E4%BA%AC%E7%BA%A6%E8%A7%81%E5%A4%A7%E4%BD%BF%E8%A1%A8%E6%8A%97%E8%AE%AE/a-59995111)
-
-* * *
-
-*素材采编：北极*
-
-*编辑：青衣青青*
-
-*发布：Ranting*
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
