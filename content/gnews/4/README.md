@@ -2,43 +2,37 @@
 ---
 
 
-## 视频| 喜联储引领世界的三大好消息
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1715693/)
+## 世界女子网球协会暂停在中共国举办赛事
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1715730/)
 
-## 摘自2021.12.1郭先生大直播
+作者：纽约香草山农场 – 蓝天大海
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
+12月1日，世界女子网球协会WTA在官网宣布，由于网球明星彭帅指控中共高官性侵后遭到审查，WTA暂停了包括香港在内的所有中共国赛事。
 
-制作：香草山视频部
+![](https://assets.gnews.org/wp-content/uploads/2021/12/8-3.jpg)
 
+WTA主席兼首席执行官蒂夫·西蒙在一份声明中表示：当彭帅公开对一名中共高级官员进行性侵指控后，她的相关信息被当局删除，相关的讨论也遭到审查，而中共当局没有以任何信服的方式解回应这一指控。WTA还对彭帅的人身安全和自由表示担忧。
 
+西蒙强调，在这种情况下，如果继续在中共国举办赛事，WTA的球员和工作人员可能面临风险。同时，他还呼吁，对彭帅的性侵指控进行全面、透明的调查。
 
-就在三周前我直播的时候，我收到某国一个国家元首的电话，他说我现在给你打这个电话，我告诉你一个好消息，我们这个国家决定给你们喜联储一个数字银行的牌照，你知道当时这个事情有多大吗？我告诉你一个数字银行的牌照，一定未来都是巨额的，数字银行的牌照是巨大的，它比我们喜联储还值钱，这个数字银行的牌照，这个国家已经在走程序当中，他用他的手机给我发的信息，他都签完字了，已经是一周前了，因为这是世界上第一个主权国家要批的数字牌照。
+参考链接：
 
-他是在欧洲，而且是一个超级、世界上前三名的金融国家，这是主动找来的，这对我们新中国联邦来讲，这是拥有国家银行的国家储备系统，和法币连接的最稳定的桥梁，而且所有的它都没有中转行，它是直接的，它的意义之大，对我们太深远了，等于这个国家跟共产党决裂，要PK我们数字银行。
-
-第三个，今天我们还有一个消息，我们决定的是，所有G-Club的会员，还有法治基金大额的捐款者，还有GTV的投资者，从现在起，我们要所有的战友用的美国最好的青蒿素、保健品和药，我们全部保证供应，你必须是真正的战友才能加入这个团队，保障战友使用高质量的青蒿素的整个团队，然后资金不够的，全部七哥来解决，不让战友拿一分钱，大家记住，我们是救命的，不是给你成医院了，有条件的G-Club会员和GTV所有的投资者，还有我们的法治基金捐款着，还有我们的喜币拥有者，我们现在全面保证供应这些药，大量的全面采购。
-
-另外一个就是我们在美国，我们将并购一家数字银行，我们现在已经是基本完成了，这家数字银行是第二个牌照，这个第二个牌照的这家银行，我们大概要请5~7家战友拥有的基金来加入，什么人呢，都是大额的投资者，战友们，还有他确实拥有这种资金资格的，然后是战友贡献特别大的，直接让战友用他的基金，因为并购这家银行，我们需要11家企业基金进来。这个企业直接的进入，持有5~10%的这家银行的股份，永远是你有了，永远你就可以拿走了，就是说白了，第二家银行就是给战友来了个金矿，你拥有这个金矿的股权，这是终身的，我可以告诉大家，就这一条，如果咱今天上午上市股份的话，那得翻好几翻，这是今天的第三个好消息。
-
-
+- [Steve Simon announces WTA’s decision to suspend tournaments in China](https://www.wtatennis.com/news/2384758/steve-simon-announces-wta-s-decision-to-suspend-tournaments-in-china)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-89.png)
 
-发稿：雪梨
-
-![This image has an empty alt attribute; its file name is 8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg)
+总编辑：Irene木木
+编辑：Jack Li文阳
+校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

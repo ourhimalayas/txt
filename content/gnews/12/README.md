@@ -2,20 +2,47 @@
 ---
 
 
-## COVID-19 最新情报｜澳洲人上街抗议强制疫苗：一边是为自由而失业的民众 一边是为工作而施暴的警察
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1715659/)
+## 视频| 青蒿素既能解病毒，也能解疫苗
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1715672/)
 
-**撰文｜ 台湾宝岛农场 疫情关注组 / 发布时间｜3/12/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+## 摘自2021.12.1郭先生大直播
 
-自上月起，澳洲境内20多个城镇，连续发起一个名为“百万人大游行——反对强制接种疫苗”的系列抗议活动，包括阿德莱德、达尔文、爱丽丝泉、珀斯、堪培拉、纽卡斯尔、巴利纳、英弗莱尔等都有响应。
+制作：香草山视频部
 
-**在珀斯的抗议现场，有民众身披澳洲国旗，手举“永远不要再次封锁，少一些政府干预，多一些人身自由”和“没有人能阻止人类的觉醒”等标语，并齐声唱起民谣“Waltzing Matilda”。无数因拒绝接种疫苗而失业的民众更将原本的工作制服展示在台阶上，场面宏观，亦令人动容他们对于捍卫权利，追求自由的坚定决心。**
 
-而另一边，墨尔本的抗议现场就是另一番景象，和平抗议的民众与“执行任务”的警察发生冲突，一位12岁的女孩被几位警察包围逮捕，过程中又将另一位女孩大力推倒地上，现场指骂声一片。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-1.jpg)
-来源｜ANR： [1](https://www.australiannationalreview.com/state-of-affairs/powerful-scenes-from-perth-so-many-have-walked-away-from-their-jobs-leaving-their-uniforms-on-the-steps/)、[2](https://www.australiannationalreview.com/state-of-affairs/victoria-police-slam-young-girl-to-ground-at-freedom-protest-in-melbourne/)
+
+一星期前，我们的欧洲科学家说，如果这次的病毒有两个特征，这人类真的是完了，第一个特征，这次如果共产党放病毒的话，传染率、致死率高、染上就死，或者说就是所谓的天花病毒
+传染率高、伤残率高，但是不死，这两种病毒对人类都是巨大的威胁。
+
+这个Omicron出来以后，他说:真是天意，这回的放毒应该是广东帮干的，不是北方人干的
+北方人下手都比较狠，这个毒方放完以后呢，很有可能帮助人类彻底消灭这场病毒，这个病毒会使人的传染致死率并不高，致残率不高，说这个毒的活性很高，容易传染，但是对人类的这两样没做到，他说：实际是好事，甚至把人类的病毒从地球上消失。
+
+人类呀跟这个病毒一旦相适应之后，实际上这个病毒可能会消失的，但是在共产党不再放毒的情况下，这是一个，第二个，现在全世界真的都知道青蒿素管用了，他说：我告诉你，青蒿素绝对是把癌症可以消失了，青蒿素绝对把糖尿病和人类存在的艾滋病，特别是现在受环境污染的脑血栓、心血管病，绝对有巨大的帮助，甚至是彻底消灭，还有青蒿素和伊维菌素连在一起，一定会把这次病毒的给解决了。
+
+他说青蒿素是希望，伊维菌素是希望，氢氯喹+锌绝对是希望，而它不但这个，还能把很多病状消失，他说：最重要的是搞了个叫Omicron，Omicrom这个词儿，实际上是很多国家的语言
+Omicron真的不是好事，实际上是个结束的意思，他说：这都是天意啊，就是结束的意思啊，Omicron就是结束。
+
+他说：如果这次共产党弄不了大毒的话，他说：真的是，新中国联邦的解药会拯救全人类，不但解药是解病毒，是解的疫苗，特别记住兄弟姐妹们，印度的青蒿素99.999%是假的，国内的青蒿素绝大多数是黄蒿属，根本不是青蒿素，他说：最好就是美国的，而且青蒿素剂和青蒿素药和青蒿素所谓的保健，完全不是一个概念，但是告诉你七哥，青蒿素真的能把疫苗的事解决了，他们做了N个测试，几乎是100%的成功，100%的成功。
+
+
+
+
+
+发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

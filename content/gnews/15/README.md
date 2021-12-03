@@ -2,34 +2,79 @@
 ---
 
 
-## 欧盟正式启动“全球门户”战略，反制中共“一带一路”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1715642/)
+## 视频| 澳门地下钱庄，孟建柱在东南亚的涉黑布局（上）
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1715665/)
 
-作者：纽约香草山农场 – 007
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
-12月1日，欧盟委员会正式宣布，欧盟启动一项全新的“全球门户”合作机制，该机制旨在促进数字、能源和交通领域的智能、清洁和网络安全，并加强全球的卫生、教育和研究系统。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/7-2.jpg)
-“全球门户”是欧盟主张地缘政治的工具，是为与独裁体制竞争而设计的战略，也是民主国家以及民主价值观应对当前全球挑战的必需。
+## 摘自2021.12.1郭先生大直播
 
-欧盟计划从2021到2027年，将投资总额扩大至3千亿欧元，协助非洲、亚洲、巴尔干半岛等发展中国家进行基础建设，并表示提供公平的贷款条件，以抗衡中共的“一带一路”。
-
-- [欧盟投资3000亿欧元促进全球可持续战略](https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20211201-%E6%AC%A7%E7%9B%9F%E6%8A%95%E8%B5%843000%E4%BA%BF%E6%AC%A7%E5%85%83%E4%BF%83%E8%BF%9B%E5%85%A8%E7%90%83%E5%8F%AF%E6%8C%81%E7%BB%AD%E6%88%98%E7%95%A5)
-- [欧盟拟推出全球门户战略向外投资400亿欧元提高欧洲利益](https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20211130-%E6%AC%A7%E7%9B%9F%E6%8B%9F%E6%8E%A8%E5%87%BA%E5%85%A8%E7%90%83%E9%97%A8%E6%88%B7%E6%88%98%E7%95%A5%E5%90%91%E5%A4%96%E6%8A%95%E8%B5%84400%E4%BA%BF%E6%AC%A7%E5%85%83%E6%8F%90%E9%AB%98%E6%AC%A7%E6%B4%B2%E5%88%A9%E7%9B%8A)
+制作：香草山视频部
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-89.png)
 
-编辑：文特
-校正/发稿：海阔天空1
+你知道洗米华当时在北京什么概念吗
+洗米华的老板第一老板是谁知道吗
+安全部副部长马建 100%马建
+然后他发展人 是谁发展的呢
+当时北京市公安局副局长啊
+张越或者政法委书记也是我的兄弟
+因为我受牵连被傅志华搞进去抓起来
+然后洗米华从这个张越那跳到马建那儿
+就啪跳到了孙立军那儿
+孙立军那儿跳到了孟建柱那
+洗米华搞定了谁呀
+孟建柱的侄儿 他亲外甥
+孟建柱这个人跟洗米华认识以后
+马上两件事让他去干去
+大家记住
+第一我让你把整个东南亚
+特别是缅邦,缅北,泰国
+马来西亚,新加坡一带
+要把整个这些黑帮全拿下
+要的是什么
+第一件事儿毒资,毒品
+孟这个人阴得狠
+毒资多少钱在东南亚当时
+每年大概5000亿美元
+5000亿美元的独资里边是什么概念
+我跟你说战友们
+你们不要把自己给忽悠进去
+5000亿美元的毒资那可以改变世界的
+美国这么多年打不了
+阿富汗,吉尔吉斯坦,哈森
+整个东欧到东亚横跨新疆
+你看孟建柱很厉害的
+阿富汗只见跨过去大西路口
+原来的丝绸之路
+直接到吉尔吉斯坦,阿塞拜疆
+啪啪就过去了
+从俄罗斯进入欧洲拉脱维亚,立陶宛,欧洲
+整个湄公河岸
+孟建柱这个能得很 用毒品啪连起来
+第二件事情 走私人口
+所有走失人口全部控制起来
+然后就开始赌博,洗钱全部弄起来
+谁都没想到就是地球的西半部
+中国的西半部北南部走廊全被孟拿下
+
+
+
+
+
+发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg)
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
