@@ -2,34 +2,36 @@
 ---
 
 
-## 澳州塔斯马尼亚州首府霍比特颁布新疫苗强制令
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1716703/)
+## 港版健康码将于12月10日开通注册
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1716643/)
 
-撰稿：Shirley
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide1-3.jpg)
-图片来自网路
+**撰稿：日本东京方舟农场 老孙**
 
-塔斯马尼亚州首府霍比特的疫苗接种率是该州最高的。[两针的接种率已达到95%](https://www.themercury.com.au/news/coronavirus/hobart-tops-race-to-be-vaccinated-new-figures-show/news-story/8441a85aee4b527f0b3709d66253954c)。
+12月2日，香港特区政府公布，“香港健康码”（简称“港康码”）系统将从12月10日上午9时起开通注册。
 
-今日，该市的市议会[宣布了新的疫苗强制政策](https://www.themercury.com.au/news/coronavirus/tassie-pub-and-nightclub-patrons-will-need-to-be-fully-vaccinated-to-be-allowed-entry/news-story/7294b3cae175de57ed6f94bd9c99290f?utm_source=Mercury&amp;utm_medium=email&amp;utm_campaign=Editorial&amp;utm_content=MERC_LATESTNEWS_PM-CUR_01&amp;net_sub_id=287163446&amp;type=curated&amp;position=1&amp;overallPos=1)，要求所有在市议会的工作人员和访客都必须接种疫苗。
+据介绍，申请“港康码”将收集所有香港居民的所有个人详细信息，再配合上传“安心出行”应用程序中的出行记录、网上申报健康状况，经系统对比其住址和过去21天出行记录，以及确诊与密切接触者名单，从而获取由系统判定的红、黄或绿色个人“港康码”。
 
-此外，霍巴特的一些公共场所，包括市政厅、议会中心、旅行和信息中心、垃圾回收场和公共游泳池的访客也必须从12 月 15 日起全面接种疫苗。
+当豁免检疫入境广东或澳门的措施推出后，只有持当天有效绿色“港康码”且符合其他特定条件人士，方可申请转码到“粤康码”或“澳康码”。
 
-塔斯马尼亚的酒吧、俱乐部和夜总会被告知，从下周开始，只有接种了疫苗才能进入这些场所。从12 月15 日起，所有在这些场所工作的员工也必须完全接种疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3801213fb80e7bec2d4778a41a973a319a506b1c.jpeg)图片来自于百家号
 
-虽然这些场所没有责任检查客户的疫苗接种情况，但是警方将负责进行抽查，违规者将被处以约770 澳元的罚款。
+据报道，“港康码”已加入广东与澳门的健康码系统及数据互认机制，并就健康码颜色判定对接，“港康码”与“粤康码”或“澳康码”中的红码、黄码、绿码标准相同。
 
-由于塔斯马尼亚州严格控制外来访客，一旦发现旅客呈新冠阳性，立即对其实施严格的隔离措施，所以该州对岛内居民处于开放状态，没有任何岛内旅行限制。
+事实上，中共政权推行的中共病毒“健康码”更多的被用在维稳当中，用于对民众的追踪和监控。这样的事件曾发生过多起，其中有维权律师的健康码突然由“绿”变“红”，被限制人身自由。
 
-这些升级的疫苗强制接种措施，限制了没有接种疫苗的居民的行动范围。但这些措施能否有效地在12月15日该州对澳洲大陆开放后仍然保持零感染，我们将拭目以待。
+由此可见，港版健康码的推行，不过是打着控制疫情的幌子以控制香港异见人士的新手段而已。
 
-编辑：云彩
+*参考链接：*
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+[“香港健康码”将于12月10日开通](https://baijiahao.baidu.com/s?id=1718039984460425106&amp;wfr=spider&amp;for=pc)
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+* * *
 
-[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+*素材采编：老孙*
+
+*编辑：文顺*
+
+*发布：Ranting*
 
  
 

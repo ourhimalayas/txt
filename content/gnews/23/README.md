@@ -2,28 +2,26 @@
 ---
 
 
-## 台海局势新闻综述：美国罕见承认在台驻军倍增， 各国政要密集发声明确力挺台湾
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1716833/)
+## 美国最新民调显示：大多数美国人认为中共超过俄罗斯成为美国最大威胁
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1716812/)
 
 韩国首尔天池农场
-翻译：GeorgeC
+翻译：zzballack　
 上传：无明逆流
 
-近日，在美国两党国会议员及波罗的海三国代表团相继访问台湾后，多国现任及退休政要围绕台海的紧张局势明确表态，纷纷指出现在中共国有玩火误判的趋势。甚至有美国现任众议员（Nancy Mace）罕见地直接称民族自由之邦台湾为台湾共和国（Republic of Taiwan）。近期这一连串的以美国为首的多国敲打中共总加速师的动作，可以视为美国乃至整个自由民主世界对中共有了深刻的认识，同时预示着在可预见的未来将发生本世纪难得一见的重大冲突。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/23WR57HJV6846.jpg)
-**美军公开承认在****台湾****驻军增加一倍：**在过去的一年里，美国在台湾的非官方驻军增加了一倍，这是近期美国向中国发出强烈信号，同时表示台湾的未来仍然是美国优先考虑的事项。在2020年12月31日至2021年9月30日之间，美在台的非官方驻军从20人增加到39人，虽然没有大张旗鼓宣传，但它确实与蔡英文总统在10月罕见地公开承认美军在台湾保持少量驻军相吻合。根据五角大楼国防人力数据中心（Pentagon’s Defense Manpower Data Center）的数据，现役部署现包括29名海军陆战队员，以及两名来自陆军的服务人员，另有三名来自海军和五名来自空军。
+据英国《每日邮报》（Daily Mail）12月1日报道，一项最新民意调查的结果让人震惊，52%的受访者认为中共、而不是普京的俄罗斯，对美国构成最大威胁，而在2018年，这一数字只有21%。现在只有14%的人认为俄罗斯是最大威胁。另外超过70%的人担心中美会爆发军事冲突。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/T23T6f0534ae43593.jpg)图片来源：原新闻
+里根国防调查（Reagan National Defense Survey）发现，中共已经超过了俄罗斯、朝鲜和阿富汗，成为美国最大的潜在威胁。“在我们的调查中，大多数美国人第一次认定一个国家是美国面临的最大威胁：中共国。”55%的民主党人和64%的共和党人认为中共确实构成了最大威胁。
 
-**安倍晋三警告习近平不要误判形式**：日本的前首相安倍晋三（Shinzo Abe）向中国发出明确警告，即如果北京袭击台湾，东京和华盛顿将不会袖手旁观。该警告是直接向习近平发出的，希望降低他对台北发动战争的冲动。安倍表示：“台湾紧急情况是日本的紧急情况，因此也是日美同盟的紧急情况。中国方面，特别是最高领导人习近平，不应该误判这一点。“安倍是日本执政的自民党最大派系的首脑，也是日本历史执政时间最长的首相，仍然在党内和全日本具有举足轻重影响力。
+当被问及是否预见到与中共的潜在军事冲突时，71%的受访者表示肯定。其中，79%的共和党人和66%的民主党人认为世界两个超级大国之间可能会发生战争。
 
-**澳洲防长称中国存在重大军事幻想：**澳大利亚和中国之间的紧张局势继续加剧，澳大利亚国防部长彼得·达顿（Peter Dutton）上周五发表了一篇重要讲话，认为影响世界稳定的乌云正在形成，世界不应该重复1930年代的错误，同时称中国正在迅速扩大其军事力量，并将中国周边的国家视为朝贡国。达顿并没有概述任何具体的短期行动以提高台湾在国际舞台上的影响，或者更密切的加强安全及执法合作，同时表示他赞成保持现状。澳大利亚总理莫里森称支持达顿的演讲，表示两人事先已经讨论过，澳大利亚将反抗任何形式的胁迫。总理认为国防部长达顿在我们不确定的国际环境中是正确的。
+37%的美国人认为，美国需要将军事注意力从中东转移到东亚地区。认为美国应聚焦中东的只有17％。
 
-新闻来源：
+在调查中，71%的美国人承认台湾是一个 “独立国家”。50%的人支持美国对中共入侵台湾作出军事回应。
 
-1. [US Nearly Doubled Military Personnel Stationed in Taiwan This Year](https://www.voanews.com/a/pentagon-us-nearly-doubled-military-personnel-stationed-in-taiwan-this-year-/6337695.html)
+关于中共病毒，许多美国人认为它是由武汉实验室的科学家制造的，这也是中共被视为头号威胁的原因之一。近50%的人说他们“很有可能”相信这一理论，72%的人说他们“有可能”相信这一理论。
 
-2. [Abe’s warning to China over Taiwan is a blunt message to President Xi](http://www.hindustantimes.com/world-news/abes-warning-to-china-over-taiwan-is-a-blunt-message-to-president-xi-101638427800893-amp.html)
-
-3. [Taiwan thanks Australian PM and defence minister for grim warning over China](http://amp.theguardian.com/australia-news/2021/nov/30/taiwan-thanks-australian-pm-and-defence-minister-for-grim-warning-over-china)
+相关新闻：[Majority of Americans point to China – not Russia – as biggest threat to US in poll: 71% say they fear military conflict as tensions mount over Taiwan](https://www.dailymail.co.uk/news/article-10264367/Majority-Americans-finger-China-biggest-threat-poll-71-fear-military-conflict.html)
 
  
 

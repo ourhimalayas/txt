@@ -2,23 +2,38 @@
 ---
 
 
-## COVID-19 最新情报｜默克尔：现在是采取行动的时候了！德国禁止未接种者出入大部分公共场所
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1715805/)
+## 澳门：中共国的罪恶之都
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1715525/)
 
-**撰文｜ 台湾宝岛农场 疫情关注组 / 发布时间｜3/12/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+作者：纽约香草山教育部- Noemi
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭文贵先生在12月1日的直播中指出，澳门是中共国的罪恶之都，也是中共国与世界黑恶势力达成非法交易的重要口岸。
 
-德国总理默克尔周四（2日）宣布，未接种疫苗人士将被禁止进入除日需品商店之外的其他公共场所。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide7.jpeg)
 
-默克尔表示：“全国所有文化及休闲场所将只对接种过疫苗或康复人士开放。” 她强调，“我们了解到情况非常严重，除了已经采取的措施之外，我们还希望采取进一步措施。”
+郭先生提到，在澳门，杀人、越狱、贩毒、走私、赌博、洗钱以及买卖人体器官都是中共以黑治国、盗取民财，进而试图称霸全球的惯用手段。
 
-另外，默克尔还透露指，打算议会辩论后，最快明年 2 月实施全国范围内的疫苗接种任务。目前，德国 8320 万人口中约有 68.7% 接种了疫苗。
+据郭先生爆料，一直以来，澳门的博彩业都是中共权贵用来合法洗钱的主要途径。在澳门赌场中，内部业务人员都会佩戴袖扣样式的高清摄像头，从而实现中共权贵们对赌局的绝对掌控，进而完成黑资金的全部出逃和100%的巨额盈利。
 
-日前，欧盟委员会主席乌尔苏拉·冯·德莱恩刚刚公开建议，认为[欧盟国家是时候开始评估为所有公民强制接种COVID-19 疫苗，各成员国应展开积极讨论。](https://gnews.org/zh-hant/1713006/)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-dddpace-Channel-Banner.jpg)
-来源｜[Variety](https://variety.com/2021/politics/news/germany-unvaccinated-people-ban-covid19-angela-merkel-1235124225/)
+11月26日，周焯（chāo）华在澳门被捕，澳门博彩业也随之受到就重创，郭先生透露，这一方面表明中共试图封闭权贵资本继续向海外转移资金的通道，进一步实现对财富的掠夺；另一方面也是中共内部政治斗争白热化的直接体现。
 
+郭先生表示，中共在澳门向海外洗出的巨额财富都是留有证据的，这些财富终将会被归还给中国人民。
+
+参考链接：[2021年12月1日 文贵大直播](https://gtv.org/video/id=61a774e244c1fe7a6c3c9bad)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
+
+总编：文特 
+编辑：飞虹
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

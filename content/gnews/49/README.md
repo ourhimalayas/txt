@@ -2,38 +2,38 @@
 ---
 
 
-## 日本前防卫大臣警告，中共国武力犯台将付出惨重代价
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1715572/)
+## 喜币超越法币成为未来最佳货币的三大契机
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1715507/)
 
-【雅典娜快讯】，紧贴时代脉搏
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-112.png)图片来源：The Japan Times
-整理报道：文泓
+作者：纽约香草山教育部- Noemi
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月1日，郭文贵先生在直播中直言，喜币未来一定会超越传统法币，成为最佳的现代化货币，而这皆归功于喜币所拥有的三大契机：
 
-12月3日东京消息，前防卫大臣河野太郎说，东京应通过（加入）AUKUS安全协议以及四方会谈，与澳大利亚和其他盟国合作，向中共国发出明确信号，如果对方试图以武力夺取台湾，势必将付出惨重代价。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide1-3.jpeg)
 
-两个月前，在竞选执政联盟主席并成为日本下一任首相的过程中，这位直言不讳的政治家没有取得成功。他说，如果中共国存在“越界”行为，将遭遇包括经济制裁在内的“高昂代价”。
+第一，喜币将是全球首个具有支付功能的加密货币。同时，H-Pay将是喜联储最具商业价值的存在。
 
-“全球社会需要让中国知道他们将不得不为此付出非常高的代价，这可能包括某种经济行动”，周四河野先生记者说：“如果中共国武力犯台，无论我们是否愿意，日本都会受到影响，所以我们需要为此做好准备。我们需要与美国和其他国家合作，也许是四方集团和AUKUS。”
+第二，喜联储即将获得全球首块数字银行牌照，这意味着喜币将成为第一个由主权国家颁发牌照的合法加密货币。
 
-本周，日本前首相安倍晋三也表示，如果中共国侵略台湾，日本不能袖手旁观。上个月安先生呼吁加强与澳大利亚的防务合作，并表示东京应在网络安全、人工智能和量子技术等领域与AUKUS合作。
+第三，喜币未来流通量之大将难以估量。而在加密货币领域，流通量是决定任何一种加密货币真实价值的绝对评价标准。因此，喜币凭借自身优势以及其未来的升值前景，让每个喜币的拥有者手中好似拥有一台“印钞机”。
 
-在中共对澳洲国防部长彼得·达顿关于“失去台湾将是中共国统治该地区的第一步”的说法进行反击后，澳大利亚和中共国之间的关系近期仍然紧张。
+郭先生还宣布，喜联储即将控股两家数字银行，并将一举成为数字银行界的SWIFT。为此，喜币系统最终将实现数字货币与法币的完美结合，再加上H-Pay、喜贷款等功能的陆续推出，喜币将成为现代化数字货币领域的参照标准。
 
-日本也对中共国的领土野心感到担忧。河野先生是执政的自民党的上层人物。他特别提到了中共国对尖阁群岛周围日本水域的入侵，尖阁群岛是两国都声称的无人居住的岛屿群。
+参考链接：2[021年12月1日 文贵大直播](https://gtv.org/video/id=61a774e244c1fe7a6c3c9bad)
 
-在日本外国记者俱乐部的一次简报会上，河野先生说，中共国的军事开支在过去30年里增加了42倍，“他们正在部署大量的导弹，可以直达日本”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
 
-新闻链接：[China will pay heavy price if it invades Taiwan: Japan’s Kono (afr.com)](https://www.afr.com/world/asia/china-will-pay-heavy-price-if-it-invades-taiwan-japan-s-kono-20211203-p59eju)
+总编：文特 
+编辑：Kathy文艺
+校正/发稿：谐趣园
 
-***发布：Candy***
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
