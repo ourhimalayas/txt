@@ -2,28 +2,37 @@
 ---
 
 
-## 日本铁路列车上安装摄像头，将强制化
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1715339/)
+## 美国会奥运囚犯项目直指北京冬奥
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1715430/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-26.png)
-日本《读卖新闻》网站报道，国土交通省（MLIT）已决定强制要求铁路公司在未来推出的新列车上安装摄像头。原因是在此前曾发生过行驶中车厢内刺伤放火事件。（ MLIT）将考虑修改《铁路业务法》，该法规定了火车的结构和设备。
+作者：东京樱花团 – 在远方
 
-东京奥运会和残奥会后，列车上的安全摄像头开始在东京都地区流行起来，但是，尽管JR东日本100%安装了摄像头，东京地铁却只有40%。一些私营铁路公司仍然只有几个百分点。对此，（MLIT）已经决定，除了阻止犯罪外，在乘客遇到危险时，有必要尽快评估情况。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-25.png)
 
-一个专家小组将在年底前开始讨论这个问题，并将考虑具体的标准，如摄像头的类型，它应该安装在哪里，以及它应该拍摄的图像范围。
+当地时间12月2日，美国国会及行政当局中共委员会主席默克利，和共同主席麦戈文，宣布启动奥运囚犯社交媒体项目，在北京冬奥之前凸显被中共非法关押的政治犯问题。
 
-对安装摄像头不会有新的补贴，将要求企业自己承担费用，但根据企业情况，可能会有现有的购车补贴。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/捕获1.png)
 
-大家有必要思考一下
+该委员会称，这个项目突出显示了美国所掌握的数据库中抽取的政治犯。由于对中共在冬奥会期间，保证自由和不受限制的媒体采访受到强烈质疑，因此项目中第一批突出的政治犯，将是被中共监禁的记者和公民记者。随后几周内，委员会将在数据库中多达1500名已知政治犯中，重点发现维族人、藏人、港人、劳工活动人士、基督徒、法轮功、人权律师、妇女权利和民主促进人士。
 
-如果你在火车上遇到事故，该怎么做？
+默克利和麦戈文在这个倡议项目视频中强调，他们呼吁全世界和国际奥委会向中共施压，迫使他们释放良心犯。因为中共政府玷污了奥运会精神。
 
-信息源：
+参考链接：
 
-[鉄道車内の防犯カメラ、新車両で義務化へ…設置率が数％の私鉄も](https://news.yahoo.co.jp/articles/c90403b253976bfaddc80a93dc47ed4852f42940#:~:text=%E)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+- [美国国会启动奥运囚犯项目，在冬奥前突出中国的政治犯](https://www.voachinese.com/a/cecc-highlights-political-prisoner-in-china-20211202/6337707.html)
 
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-1.png)
+
+编辑：文徬
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

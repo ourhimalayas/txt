@@ -2,44 +2,41 @@
 ---
 
 
-## 加拿大安大略省长福特的女儿的警察丈夫因未接种疫苗而被“无薪休假”
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1715330/)
+## 新变种病毒引发全球恐惧大流行
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1715414/)
 
-翻译： 真北007
-![](https://assets.gnews.org/wp-content/uploads/2021/12/fords-daughter-says-her-cop-husband-is-being-put-on-unpaid-leave-for-being-unvaccinated1.jpg)图片来源：网络
-来自NARCITY 11月24日的新闻报道：
+翻译：钢豆奶油面包
 
-福特省长的女儿克里斯塔·福特·海恩斯 (Krista Ford Haynes) 在 Instagram 上表达了她丈夫戴夫·海恩斯 (Dave Haynes) 的委屈，据称他因未接种疫苗而被多伦多警察局无薪休假。
+编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2021/12/雅典娜观察-4.jpg)图片来源：News Medical
+11月29日，“新冠恐惧症”的火焰再次被引燃，大型药企的全球主义者启动了他们的新计划，通过利用其控制的主流媒体和傀儡政客来增加利润，并对人口实施更多的暴政控制，试图延长扩大虚假的“新冠大流行”。
 
-海恩斯在整个大流行期间就一直发声反强制疫苗，并于周二在她的 Instagram 上发布了一个故事，一个箱子里面装满了她丈夫被辞退带回家的东西，标题是：“从没想过我会看到这一天，他工作了 20 年，尽忠尽责，且刚刚晋升为上士。”
+就在WHO宣布新变种病毒在非洲发现的几天内，大型制药公司现在向世界承诺，他们正积极着手研发药物和疫苗来拯救每一个人，以对抗这种致命的新变种病毒。
 
-她在今天早上对这个神秘帖子进行了解释，解释了她的丈夫如何因没披露疫苗接种状态而被休无薪假。
+什么样的人还会看这种好莱坞剧情片似的秀，而且还信以为真？
 
-“所以戴夫昨天回家了，毫不奇怪开始把他的东西带回家。大约六周前，多伦多警察局向他们的成员明确表示，如果他们没有打两针疫苗，他们将在11 月 30 日前被送回家休无薪假”。
+真正的大瘟疫其实是“恐惧”!
 
-海恩斯说她和她的丈夫“知道这会发生”，但他“希望”它实际上不会生效。
+对于那些不崇拜医疗系统作为救世主的人来说，现在很容易看穿7月24日在世界各地广播的宣传和炒作，以迎接他们的大重置和新世界秩序。
 
-TPS 确实为其警员制定了强制性疫苗接种政策，根据之前的声明，任何在 11 月 30 日之前未接种疫苗的官员将被无限期停薪休假。
+早在2020年大卫·马丁（David Martin）博士在视频“大瘟疫”中透露，自1999年以来，SARS Corona病毒一直有政府专利，并且SARS-CoV-2没有什么“新奇”的。
 
-海恩斯说，她的丈夫致信“多伦多警察服务医疗委员会”，询问有关 COVID-19 疫苗的问题，并建议“多伦多警察服务如何以多种不同方案，即确保公众和警察服务的安全性同时又不解雇任何警员”。
+马丁博士认为，**没有阿尔法、贝塔或伽马变种病毒这样的东西，根本没有什么新病毒，只有萨斯2.0，它们都来自同一个地方，而且已筹划了许多年。**他说根本没有那些变种病毒，只有电脑模拟的特定基因序列。目前，还没有任何能力去辨别因人为基因序列修改而导致的临床表现变异。
 
-她说他的建议“显然”没有被考虑，她丈夫从“医生”那里得到的唯一回应是疫苗是安全、有效的，并且他们推荐每个人接受。
+没有一个人发表过任何一篇论文来论证，从2019年11月以来有什么新的病毒，没有证据表明德尔塔变种病毒在某种程度上有别于其他GISAID（病毒数据库）。
 
-随后，海恩斯深入探讨了她每天从其他安大略人那里收到的信息，这些人因接种疫苗而失业，同时赞扬了他们的力量和品格。
+全球主义者们正在推广的这种新变种病毒，就像他们希望每个人都观看的新电影一样，是一个完整的骗局。他们想要通过这一新一轮的恐惧传播来实现自己的目标，这是唯一真实的“大流行”——恐惧的流行病。
 
-“我告诉你们，上帝每次都赢了。我相信这一切背后的人会被追究责任，不知道什么时候，但我真的相信上帝会赢，邪恶不会赢。”
+新闻链接：[The New COVID Variant Scam Was Simulated in Israel Weeks Before It Was ‘Discovered’ (humansarefree.com)](https://humansarefree.com/2021/11/new-covid-variant-scam-was-simulated-in-israel.html)
 
-海恩斯以谴责疫苗强制接种来结束她的信息，她说：“要坚强，为你的家人为你的孩子坚强，你理解。上帝赢了”。
+**发布：去中心化Math**
 
-但是，需要注意的是，加拿大政府和安大略省都继续提醒居民疫苗是安全的。
-
-原文链接：[https://www.narcity.com/toronto/fords-daughter-says-her-cop-husband-is-being-put-on-unpaid-leave-for-being-unvaccinated](https://www.narcity.com/toronto/fords-daughter-says-her-cop-husband-is-being-put-on-unpaid-leave-for-being-unvaccinated)
-
-编辑/发布：LILY
-
-20211202
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
-
+**更多资讯，请关注：****
+**[澳大利亚墨尔本阿西娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本阿西娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本阿西娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本阿西娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本阿西娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
