@@ -2,44 +2,34 @@
 ---
 
 
-## 美商务部长呼吁众院通过《芯片法案》
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1716665/)
+## 美国最新民调：65%受访者认为中共国是美国的敌人
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1716787/)
 
-作者：日本方舟农场 – Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月29日，据当地媒体报道，美国商务部长呼吁众议院批准520亿美元的资金用于扩张美国的半导体制造业，这一提案也被称作《芯片法案》。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/8-1-1.jpg)
-据悉，美国商务部长在走访密西根州时，听取了美国汽车行业目前所面临的芯片危机：由于芯片短缺，底特律三大汽车制造商被迫减产或生产削减功能的汽车。与此同时，各大汽车生产厂商正在转型将新研发的电动汽车作为主要产品，从而逐渐取代之前的汽油动力汽车，但是，厂商们如今面临的困境在于，电动汽车需要的芯片数量是汽油动力汽车的两倍。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/8-2-1.jpg)
-密西根州的相关人员表示，鉴于这样的芯片危机至少还将持续一年，如果美国不增加芯片产量的话，密西根州将失去更多的工作岗位。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/8-3-1.jpg)
-资料显示，《芯片法案》属于6月在参议院通过的《创新和竞争法案》的一部分，其核心内容是支持在美国生产半导体芯片，用以避免未来再度出现的供应链终端问题，同时降低美国对中共汽车零部件的依赖。
+**撰稿：日本东京方舟农场 书生**
 
-参考链接：
-1) . [美国商务部长走访密西根州 呼吁国会为芯片行业扩张提供资金](https://cn.reuters.com/article/us-moc-michigan-chip-plant-1130-idCNKBS2IF06W)
-2) . [Nine governors press U.S. lawmakers to pass semiconductor funding bill](https://www.reuters.com/world/us/nine-governors-press-us-lawmakers-pass-semiconductor-funding-bill-2021-11-10/)
+12月1日，美国发布的一份重要国安民调显示，65%受访者认为中共国是美国的敌人。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+据报道，这份民调由美国保守派智库“里根总统基金会暨研究所”（Ronald Reagan Presidential Foundation and Institute RRPFI）委托灯塔研究所（Beacon Research）进行，通过电话与网络在10月25日至11月7日间对2523名美国人展开调查，其误差范围为1.96%。
 
-总编：Irene木木
-编辑：Lakeman文仁
-校正/发稿：Fei797
+据调查结果，有65%的受访者认为中共国是美国的敌人，有52%的受访者将中共国列为美国的头号对手，远高于4年前的21%。这份民调还显示：称俄罗斯为美国头号对手的受访者为14%，北韩12%，远低于中国。
 
-**更多资讯，更多关注**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/微信图片_20211203153815.png)U.S. President Joe Biden during a speech in the Eisenhower Executive Office Building’s South Court Auditorium at the White House in Washington, U.S., November 23, 2021. © REUTERS/Evelyn Hockstein
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+RRPFI声明表示，对于美国面对的威胁，民主共和两党有共识。过半数受访者首度表示，单一国家对美国构成最大威胁的是中共国。
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+里根总统基金会暨研究所所长扎克海姆（Roger Zakheim）指出，根据该调查，“认为中共国是美国最大威胁的受访者持续增加，从中可以看出中共国（对美国）构成多大挑战。”他强调：“人们知道，中共国构成的威胁并不限于安全威胁，还涉及到经济问题、政治问题和人权问题。”
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+*参考链接：*
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[美国最新国安民调：65%受访者认为中国是美国的敌人](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211201-%E7%BE%8E%E5%9B%BD%E6%9C%80%E6%96%B0%E5%9B%BD%E5%AE%89%E6%B0%91%E8%B0%83-65-%E5%8F%97%E8%AE%BF%E8%80%85%E8%AE%A4%E4%B8%BA%E4%B8%AD%E5%9B%BD%E6%98%AF%E7%BE%8E%E5%9B%BD%E7%9A%84%E6%95%8C%E4%BA%BA)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+*素材采编：书生*
 
+*编辑：文顺*
 
+*发布：Ranting*
 
  
 

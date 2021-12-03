@@ -2,43 +2,25 @@
 ---
 
 
-## 报告披露独裁政府利用华为技术来审查新闻和记者
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1716252/)
+## 知名医学网站:Omicron变种病毒具有高变异性（1/2）
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1716188/)
 
-**By:秘翻新闻**
+翻译: Rosa
 
-***2021-12-03***
-[![](https://assets.gnews.org/wp-content/uploads/2021/12/1203.png)](https://gtv.org/broadcast/watch/61a9db63d6388d550415639d)点击图片观看视频
-**新闻摘要:**
+视频：澳洲天好蓝
+视频来源：https://www.youtube.com/watch?v=LKT7fGL\_Uh0
+医学教育网站MedCram创始人 Roger Seheult博士近期发布视频对最新爆发的新冠变种病毒-Omicron进行了详细讨论。
 
-1. 豆瓣网被罚巨款 今年遭中共处罚20次
+视频中Roger博士科学的论证了 Omicron变种病毒的高变异性，不禁让人们对大医药集团如此急迫的进入Omicron变种病毒的疫苗研发流程而产生质疑。
 
-2. 上海市再现本土疫情
+请听Roger博士在视频中的讲解。
 
-3. 奥园爆雷引众怒
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-4. 美欧谈中共国议题 联合声明：中国大陆破坏区域和平稳定
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
 
-5. 中共对台湾动武就是开启灭共的第三道大门
-
-6. 南非医生爆料中共omicron病毒毒性很低
-
-7. 国际女网停办中国赛事撑彭帅 众眀星支持
-
-8. 澳国会通过人权制裁法 可制裁中港官员
-
-9. 报告披露独裁政府利用华为技术来审查新闻和记者
-
-10. 洪都拉斯新总统不打算与中共国建交
-
-**GTV链接：**[https://gtv.org/broadcast/watch/61a9db63d6388d550415639d](https://gtv.org/broadcast/watch/61a9db63d6388d550415639d)
-
-发布: 文橙
-
-* * *
-
-**更多资讯,敬请关注**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/IMAGE-2021-08-12-195949.jpg)
+[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+![此图像的alt属性为空；文件名为澳喜图标2-1-2.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,41 +2,26 @@
 ---
 
 
-## 新变种病毒传染性高但致命性弱
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1716744/)
+## 美国最新民调显示：大多数美国人认为中共超过俄罗斯成为美国最大威胁
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1716812/)
 
-作者：香草山农场 – 晓仙女
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月1日，郭文贵先生在直播中谈到新冠新变种病毒时表示，如果这次共产党放出的新病毒出现高致死或致残率的特征，那人类的灾难就真的要到来了。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/9-1-1.jpg)
-而世界卫生组织于11月26日公布的消息显示，新变种病毒的表现特征为活性很高，但致死率低。同时，据科学家反馈的信息，对于新冠疫情来说，这种表现特征的新变种病毒是好事。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/9-2-1.jpg)
-对此，郭先生也再次强调，青蒿素对新冠病毒症状绝对有效，且它不仅能解新冠病毒，还能解新冠疫苗之毒，甚至将彻底解决新冠疫苗带来的灾难——这也是爆料革命带给人类最大的贡献。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/9-3.jpg)
-参考链接：
-[2021年12月1日 文贵大直播：Hcoin To The Moon伴奏 荣登iTunes榜首；香港股市经济；澳门地下钱庄，孟建柱在东南亚的涉黑布局；Omicron变种病毒及疫苗灾难和青蒿素功效；数字货币监管及加密货币市场走向](https://gtv.org/video/id=61a774e244c1fe7a6c3c9bad)
+韩国首尔天池农场
+翻译：zzballack　
+上传：无明逆流
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+据英国《每日邮报》（Daily Mail）12月1日报道，一项最新民意调查的结果让人震惊，52%的受访者认为中共、而不是普京的俄罗斯，对美国构成最大威胁，而在2018年，这一数字只有21%。现在只有14%的人认为俄罗斯是最大威胁。另外超过70%的人担心中美会爆发军事冲突。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/T23T6f0534ae43593.jpg)图片来源：原新闻
+里根国防调查（Reagan National Defense Survey）发现，中共已经超过了俄罗斯、朝鲜和阿富汗，成为美国最大的潜在威胁。“在我们的调查中，大多数美国人第一次认定一个国家是美国面临的最大威胁：中共国。”55%的民主党人和64%的共和党人认为中共确实构成了最大威胁。
 
-总编：Irene木木
-编辑：Kathy文艺
-校正/发稿：Fei797
+当被问及是否预见到与中共的潜在军事冲突时，71%的受访者表示肯定。其中，79%的共和党人和66%的民主党人认为世界两个超级大国之间可能会发生战争。
 
-**更多资讯，更多关注**
+37%的美国人认为，美国需要将军事注意力从中东转移到东亚地区。认为美国应聚焦中东的只有17％。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+在调查中，71%的美国人承认台湾是一个 “独立国家”。50%的人支持美国对中共入侵台湾作出军事回应。
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+关于中共病毒，许多美国人认为它是由武汉实验室的科学家制造的，这也是中共被视为头号威胁的原因之一。近50%的人说他们“很有可能”相信这一理论，72%的人说他们“有可能”相信这一理论。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+相关新闻：[Majority of Americans point to China – not Russia – as biggest threat to US in poll: 71% say they fear military conflict as tensions mount over Taiwan](https://www.dailymail.co.uk/news/article-10264367/Majority-Americans-finger-China-biggest-threat-poll-71-fear-military-conflict.html)
 
  
 

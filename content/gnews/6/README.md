@@ -2,16 +2,18 @@
 ---
 
 
-## 【#G时新闻】“完全接种”NBA 球星检测结果不明被迫停赛
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/1716900/)
+## 【文贵先生大直播PPT】喜联储数字货币银行牌照的意义与战友投资规划
+` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1717069/)
 
-**加拿大温哥华扬帆农场** 播报：文雅 制作：文雅
+撰稿：ILOVE战神（文凡），政清，Benji1，松映月
+美工：雷蒙
+审核：三票先生，顽童先生，政清
 
-🔥“完全接种”NBA 球星勒布朗·詹姆斯检测结果不明被迫停赛。
-🔥 冠状病毒实验性疫苗从未产生证据表明，疫苗可以阻止感染或传播。 他们甚至没有声称的那样减少住院治疗。
+【2021年12月3日文贵先生大直播PPT：喜联储数字货币银行牌照的意义与战友投资规划】
+![](https://assets.gnews.org/wp-content/uploads/2021/12/41.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/42.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/43.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/44.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/45-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/46.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/47.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/48.jpg)
+* * *
 
-盖特链接：[https://gettr.com/post/pimrxf9e72](https://gettr.com/post/pimrxf9e72)
-编辑/上传：七觉花
+发稿：云起时
 
  
 

@@ -2,66 +2,38 @@
 ---
 
 
-## 2021年12月3日新闻集
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1716575/)
+## 美国与欧盟举行第二次中共政策协调对话会
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1716608/)
 
-撰稿人：文远Bruce
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide1-2.jpg)
-1.《Hcoin To The Moon》澳洲Rock版排名第一
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide2.jpg)
-2.《Hcoin To The Moon》卡拉Ok版Rap版排名第二
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide3.jpg)
-.
+作者：东京樱花团 – 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月2日，拜登政府宣布，将与欧盟举行第二次针对中共问题的高层对话会，会后，双方也将发表一份联合声明。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/7-1-1.jpg)
+据悉，该对话将聚焦于中共有关人权、多边主义、虚假信息和安全等方面的问题，且美欧双方也会讨论二者在与中共有关的经济和技术领域涉及的各类隐患，预计，台湾问题也将是双方的会议要点之一。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/7-2-1.jpg)
+美国官员表示，欧盟与美国致力于同样的基于民主制度和规范的国际秩序，在对待中共的态度上，双方是天然的伙伴。有资料显示，迄今为止，针对中共日益恶化的人权问题，美国与欧盟已经采取了多项联合行动。
 
-3.美国俄罗斯准备就乌克兰紧张局势展开会谈
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide4.jpg)
-4.土耳其换马新央行行长
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide5.jpg)
-5.瑞银、巴克莱、苏格兰皇家银行、汇丰银行和瑞士信贷因外汇操控被罚合计3.44亿欧元，其中：汇丰1.74亿欧元、瑞士信贷8300万欧元，巴克莱5400万欧元、苏格兰皇家银行3200万欧元。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide6.jpg)
-6.7.散户买进、基金卖出。美国银行的对冲基金客户上周抛售超20亿美元股票，正以自今年4月以来最快的速度退出市场，据追踪美国散户交易流量的机构Vanda Research统计，在本周二市场大跌之时，美股散户投资者净购买额为22.2亿美元，创下单日流入量之最。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide7.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide8.jpg)
+参考链接：
+[美国与欧盟举行第二次中国政策协调对话会 北京称反对“搞小圈子”](https://www.voachinese.com/a/us-eu-dialogue-on-china-20211202/6336376.html)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-8.12月3日午盘结束后，恒生科技下跌超2%，网易、快手、bilibili跌超7%。京东7%、阿里巴巴5%、百度3%
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide9.jpg)
-9.九万二的个人电动飞机销售告罄。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide10.jpg)
-10.阿联酋 新加坡恢复悉尼A380航线
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide11.jpg)
-11.纽约发现五例Omicron变种病毒
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide12.jpg)
-12.澳大利亚新洲继11月4日以来，感染人数再次破300
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide13.jpg)
-13.美元里拉兑换比率
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide14.jpg)
-土耳其酒类价格一天上涨超15%，鸡肉价格一天上涨10%，一周内一袋面粉涨价三倍。苹果店停止售卖，苹果手机成保值品。
+总编：Irene木木
+编辑：Lakeman文仁
+校正/发稿：Fei797
 
-美元同里拉兑换比例
+**更多资讯，更多关注**
 
-实时 1:13.7
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-2019年1:5
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-2016年1:3
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-土耳其总负债占GDP40%，2020GDP 7171亿美元。人口8300万+，国土面积78万3600平方公里。
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-民众转里拉成美元存银行，外汇存款占55%，2600亿美元。
-
-土耳其目前外币债务达到
-
-编政府债务的60%，2017年时为37%。
-
-2007年土耳其人均GDP1万美元。2020年人均8500美元。
-
-编辑：云彩
-
-[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-
-【[澳喜文章1](https://gnews.org/zh-hans/author/aujenny/)】
-【[澳喜文章2](https://gnews.org/zh-hans/author/himalaya-australia/)】
-
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

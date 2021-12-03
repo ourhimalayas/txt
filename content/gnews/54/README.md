@@ -2,30 +2,43 @@
 ---
 
 
-## 鲁比奥参议员提案加强美国太空产业，对抗中共侵略
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1715278/)
+## 多伦多市的工作人员想知道：“为什么每个人都袖手旁观，让这种事情发生？”
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1714971/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Unknown-4.jpg)鲁比奥参议员提案加强美国太空产业，对抗中共侵略 网络图片
-据美国之音12月3日报道，美国参议员鲁比奥提出“太空保护美国控制和企业议案”，加强美国太空产业，以对付中共根据“中国制造2025”规划取代美国成为太空产业全球领导者的正在进行的努力。
-
-“太空保护美国控制和企业议案”要求不得使用美国商务部或国家航空航天局（NASA）的经费来购买或租赁与中共有关的任何通信或宇航公司的硬件/软件和服务。法案要求美国国家航天委员会（National Space Council）向国会报告中共国和俄罗斯的太空投资竞争，评估经济风险，制定战略，保护美国太空工业化的产业链。
-
-法案同时要求国防部长、商务部长和财政部长就美国太空探索、国家安全领域的海外投资情况每年向国会提交报告以及保密附件。最终，美国意识到了来自中共的威胁，不仅是现在，包括未来的太空领域，开启了对中共从天空到地面的全方位防御，对抗中共侵略。
-
-新闻参考链接：[https://www.voachinese.com/a/rubio-to-strengthen-us-space-industry-20211202/6337097.html?utm\_source=twitter&utm\_medium=social&utm\_campaign=dlvr.it](https://www.voachinese.com/a/rubio-to-strengthen-us-space-industry-20211202/6337097.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+作者：Lincoln Jay
+翻译：KK
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+现在是 2021 年 12 月，这个新冠的时代让反乌托邦的行为和不正常的新冠规定变得越来越奇怪。
 
+我们目前处于各行各业的人们因未披露疫苗接种状况而被解雇。在整个大流行期间不加思索工作的人，现在突然因个人医疗信息而被认为不安全。
 
+正如预期的那样，多伦多市推出了新冠疫苗接种政策，要求所有员工在 2021 年 10 月 30 日之前全面接种新冠疫苗。
+
+未能遵守该政策的员工将被停职六周且无薪。如果在该期限结束时仍未接种疫苗，多伦多市雇员将因故被解雇，自 2022 年 1 月 2 日起生效。
+
+为该市公园、林业和娱乐部门工作的柯蒂斯·威尔逊（Curtis Wilson）目前正在处理这些情况，因为他没有向该市透露他的疫苗接种情况。柯蒂斯过去五年一直在多伦多市工作，并且在整个大流行期间毫无疑问地工作。他每天所做的工作几乎不需要人际互动，但这座城市仍然要求他“完全”接种疫苗。
+
+来源：[https://www.rebelnews.com/city\_of\_toronto\_worker\_wonders\_why\_is\_everybody\_sitting\_back\_and\_letting\_this\_happen](https://www.rebelnews.com/city_of_toronto_worker_wonders_why_is_everybody_sitting_back_and_letting_this_happen)
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)](https://www.gettr.com/user/7UPgogo)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
