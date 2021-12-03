@@ -2,29 +2,40 @@
 ---
 
 
-## 七哥谈：Omicron和灭共
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1714884/)
+## 诺瓦克·德约科维奇：网球男单世界第一的父亲对他参加澳网表示怀疑
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1715128/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+翻译： 真北007
+![](https://assets.gnews.org/wp-content/uploads/2021/12/skysports-novak-djokovic-tennis_5590209.jpg)图片来源：网络
+来自SKY SPORTS 11月29日的新闻报道：
 
-Omicron出来以后，他这个人很迷信，我发现科学家到最后全都迷信，医学家最后全都不信医学，全都迷信。他说你不要看这次习这个字啊，他说我觉得这是天意啊，轮就轮到习那去了。他咋就世界了，他是百亿分之概率啊，视为组织就没想到这么一事，轮到了这个病毒叫XI病毒，他说这是名副其实啊，这最重要的是搞了一个叫Omicron，他说Omicron这个词实际上是很多国家的语言，Omicron真的不是个好事，实际上就是结束的意思。他说这都是天意啊，他说这就是结束的意思啊，Omicron就是结束。然后战友居然说这是灭共，粤语什么O灭共，然后科学家跟我说，也就三周前我直播，他告诉我，文贵，你不要对外讲，你一定要等着我说，你再说，如果这次共产党弄不了大毒的话，咱们新中国联邦就厉害了。我说为什么，他说真的是新中国联邦的解药，会拯救全人类，不但解药是解的病毒，是解的疫苗。很多人一说好事就想着喜币，你们就是钱迷。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-23.jpg)
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+组织者表示，所有球员在墨尔本都必须接种疫苗； 德约科维奇尚未透露他是否接种了疫苗；其父 Srdjan Djokovic：“在这些敲诈勒索等条件下，（Djokovic）可能不会（上场）。”
 
-**关注我们**
+诺瓦克·德约科维奇的父亲说，除非放宽对 Covid-19 疫苗接种的规定，否则世界第一不太可能在明年初参加澳大利亚网球公开赛。
 
-Discord 账号
+明年首个大满贯赛事（于 1 月 17 日开始）的组织者已经表示，所有球员都必须接种疫苗才能参加。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+到目前为止，德约科维奇拒绝透露他是否接种了疫苗，他的父亲告诉塞尔维亚电视台 Prva，管理机构澳大利亚网球协会对球员接种疫苗的立场无异于“敲诈”。
 
-Gettr 账号
+据新闻网站 B92 报道，Srdjan Djokovic 说：“就疫苗和非疫苗而言，是否接种疫苗是我们每个人的个人权利。
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+“没有人有权进入我们的亲密关系。
+
+“在这些勒索和限制条件下，（德约科维奇）可能不会（上场）。
+
+“我不会那样做。他是我的儿子，所以你自己决定。”
+
+德约科维奇在墨尔本一直占据统治地位，包括今年在内九次夺冠。
+
+他坐拥 20 个男子大满贯冠军头衔，与罗杰·费德勒和拉斐尔·纳达尔齐名，是历史上最多的。
+
+原文链接：[https://www.skysports.com/tennis/news/12110/12482028/novak-djokovic-world-no-1s-father-casts-doubt-on-his-australian-open-participation](https://www.skysports.com/tennis/news/12110/12482028/novak-djokovic-world-no-1s-father-casts-doubt-on-his-australian-open-participation)
+
+编辑/发布：LILY
+
+20211202
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
+
 
  
 

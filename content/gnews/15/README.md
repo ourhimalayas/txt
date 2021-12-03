@@ -2,26 +2,30 @@
 ---
 
 
-## 德国宣布对未接种中共病毒疫苗的人将进行封锁
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1715133/)
+## 鲁比奥参议员提案加强美国太空产业，对抗中共侵略
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1715278/)
 
-**撰稿：Grace**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Unknown-4.jpg)鲁比奥参议员提案加强美国太空产业，对抗中共侵略 网络图片
+据美国之音12月3日报道，美国参议员鲁比奥提出“太空保护美国控制和企业议案”，加强美国太空产业，以对付中共根据“中国制造2025”规划取代美国成为太空产业全球领导者的正在进行的努力。
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-02-at-8.22.10-PM.jpeg)图片来源：雅虎
-据The Gateway Pundit 12月2日报道，德国宣布在全国范围内对未接种中共病毒疫苗的人进行封锁。
+“太空保护美国控制和企业议案”要求不得使用美国商务部或国家航空航天局（NASA）的经费来购买或租赁与中共有关的任何通信或宇航公司的硬件/软件和服务。法案要求美国国家航天委员会（National Space Council）向国会报告中共国和俄罗斯的太空投资竞争，评估经济风险，制定战略，保护美国太空工业化的产业链。
 
-几周前，德国总理安格拉·默克尔宣布，将对未接种中共病毒疫苗者的公共生活的很大一部分加以限制。默克尔更是无耻地说，医院里挤满了中共病毒患者，是因为人们拒绝接受中共病毒疫苗的注射。
+法案同时要求国防部长、商务部长和财政部长就美国太空探索、国家安全领域的海外投资情况每年向国会提交报告以及保密附件。最终，美国意识到了来自中共的威胁，不仅是现在，包括未来的太空领域，开启了对中共从天空到地面的全方位防御，对抗中共侵略。
 
-在本周四，安格拉·默克尔和下周将接替她的副总理奥拉夫·舒尔茨，在与地区领导人进行危机谈判后宣布了新的强制中共病毒疫苗规定。该规定有以下的这些要求：医院、护理院员工必须注射中共病毒疫苗。在圣诞节前注射的中共病毒疫苗数量要多达3000万支。增加能够管理疫苗的人员数量。只有接种过疫苗的人和感染过中共病毒而已经得到恢复的人才能进入餐厅，剧院和非必要的商店。对未接种疫苗的人实行更严格的接触限制。在感染率高的地方关闭夜总会。限制大型公共活动中的观众人数。扩大危机单位，以协调联邦，区域行动。
+新闻参考链接：[https://www.voachinese.com/a/rubio-to-strengthen-us-space-industry-20211202/6337097.html?utm\_source=twitter&utm\_medium=social&utm\_campaign=dlvr.it](https://www.voachinese.com/a/rubio-to-strengthen-us-space-industry-20211202/6337097.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
 
-即将离任的卫生部长延斯·斯潘（Jens Spahn）周四在接受ZDF电视台采访时说：“这实际上是对未接种疫苗者的封锁。” 斯潘还说，目前在德国有超过1200万的成年人没有接种中共病毒疫苗。
+* * *
 
-据CNN报道，默克尔周四在卸任前的最后一次新闻发布会说，在议会进行辩论并遵循德国道德委员会(Germany’s Ethics Council)的指导后，全国范围内的中共病毒疫苗接种指令可能会从 2022 年 2 月开始生效。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-**新闻来源：[Germany Imposes Nationwide Lockdown For the Unvaxxed](https://www.thegatewaypundit.com/2021/12/germany-imposes-nationwide-lockdown-unvaxxed/)**
 
-**[Germany locks down unvaccinated people, as leaders plan to make shots compulsory](https://www.cnn.com/2021/12/02/europe/germany-lockdown-covid-restrictions-intl/index.html)**
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

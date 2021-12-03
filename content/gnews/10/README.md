@@ -2,58 +2,43 @@
 ---
 
 
-## 参议员米特·罗姆尼： 罗姆尼推动将维吾尔奴工法纳入国防授权法案
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1715176/)
+## 加拿大安大略省长福特的女儿的警察丈夫因未接种疫苗而被“无薪休假”
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1715330/)
 
-众议员迈克·麦考尔： 中国法律要求像 Fulgent 这样的公司将他们的数据交给中共，他们不应该访问美国人的敏感健康数据。我赞扬洛杉矶县警长部门提请注意这一紧迫问题。 【附自由灯塔新闻报道： FBA警告一加州遗传（测序）公司很可能与中共国分享美国人的健康数据 】
+翻译： 真北007
+![](https://assets.gnews.org/wp-content/uploads/2021/12/fords-daughter-says-her-cop-husband-is-being-put-on-unpaid-leave-for-being-unvaccinated1.jpg)图片来源：网络
+来自NARCITY 11月24日的新闻报道：
 
+福特省长的女儿克里斯塔·福特·海恩斯 (Krista Ford Haynes) 在 Instagram 上表达了她丈夫戴夫·海恩斯 (Dave Haynes) 的委屈，据称他因未接种疫苗而被多伦多警察局无薪休假。
 
+海恩斯在整个大流行期间就一直发声反强制疫苗，并于周二在她的 Instagram 上发布了一个故事，一个箱子里面装满了她丈夫被辞退带回家的东西，标题是：“从没想过我会看到这一天，他工作了 20 年，尽忠尽责，且刚刚晋升为上士。”
 
-> Companies like Fulgent are required by Chinese law to turn their data over to the CCP, and shouldn’t have access to Americans’ sensitive health data. I commend the L.A. County Sheriff’s Department for drawing attention to this urgent issue.[https://t.co/9Gmbrb2PAy](https://t.co/9Gmbrb2PAy)
-> — Michael McCaul (@RepMcCaul) [December 2, 2021](https://twitter.com/RepMcCaul/status/1466510989017468936?ref_src=twsrc%5Etfw)
+她在今天早上对这个神秘帖子进行了解释，解释了她的丈夫如何因没披露疫苗接种状态而被休无薪假。
 
+“所以戴夫昨天回家了，毫不奇怪开始把他的东西带回家。大约六周前，多伦多警察局向他们的成员明确表示，如果他们没有打两针疫苗，他们将在11 月 30 日前被送回家休无薪假”。
 
+海恩斯说她和她的丈夫“知道这会发生”，但他“希望”它实际上不会生效。
 
-参议员米特·罗姆尼： NDAA （国防授权法案）被搁置是因为发言人佩洛西 和参议员舒默拒绝就一项阻止 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 奴工制造的商品进入美国的条款进行投票。现在是打击中共国奴隶制的最佳时机。我们可以完成它。 【附视频：罗姆尼推动将维吾尔奴工法纳入国防授权法案】
+TPS 确实为其警员制定了强制性疫苗接种政策，根据之前的声明，任何在 11 月 30 日之前未接种疫苗的官员将被无限期停薪休假。
 
+海恩斯说，她的丈夫致信“多伦多警察服务医疗委员会”，询问有关 COVID-19 疫苗的问题，并建议“多伦多警察服务如何以多种不同方案，即确保公众和警察服务的安全性同时又不解雇任何警员”。
 
+她说他的建议“显然”没有被考虑，她丈夫从“医生”那里得到的唯一回应是疫苗是安全、有效的，并且他们推荐每个人接受。
 
-> The NDAA is being held up because [@SpeakerPelosi](https://twitter.com/SpeakerPelosi?ref_src=twsrc%5Etfw) and [@SenSchumer](https://twitter.com/SenSchumer?ref_src=twsrc%5Etfw) are refusing to allow a vote on a provision that prevents Chinese goods made with forced labor from entering the U.S. Now is the perfect time to strike a blow against China's slavery. We can get it done. [pic.twitter.com/oNYWBI6AOS](https://t.co/oNYWBI6AOS)
-> — Senator Mitt Romney (@SenatorRomney) [December 2, 2021](https://twitter.com/SenatorRomney/status/1466504485551984645?ref_src=twsrc%5Etfw)
+随后，海恩斯深入探讨了她每天从其他安大略人那里收到的信息，这些人因接种疫苗而失业，同时赞扬了他们的力量和品格。
 
+“我告诉你们，上帝每次都赢了。我相信这一切背后的人会被追究责任，不知道什么时候，但我真的相信上帝会赢，邪恶不会赢。”
 
+海恩斯以谴责疫苗强制接种来结束她的信息，她说：“要坚强，为你的家人为你的孩子坚强，你理解。上帝赢了”。
 
-参议员卢比奥新闻办公室： 参议员卢比奥提出立法，以强化美国航天工业对抗 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) [#ChineseCommunistParty](https://twitter.com/hashtag/ChineseCommunistParty?src=hashtag_click) 的侵略。 【附参议院官网发布的此法案相关内容】
+但是，需要注意的是，加拿大政府和安大略省都继续提醒居民疫苗是安全的。
 
+原文链接：[https://www.narcity.com/toronto/fords-daughter-says-her-cop-husband-is-being-put-on-unpaid-leave-for-being-unvaccinated](https://www.narcity.com/toronto/fords-daughter-says-her-cop-husband-is-being-put-on-unpaid-leave-for-being-unvaccinated)
 
+编辑/发布：LILY
 
-> Sen. Rubio introduced legislation to strengthen the U.S. space industry against [#ChineseCommunistParty](https://twitter.com/hashtag/ChineseCommunistParty?src=hash&amp;ref_src=twsrc%5Etfw) aggression. [https://t.co/7URk5C8JrS](https://t.co/7URk5C8JrS)
-> — Senator Rubio Press (@SenRubioPress) [December 2, 2021](https://twitter.com/SenRubioPress/status/1466485474546135041?ref_src=twsrc%5Etfw)
-
-
-
-参议员瑞克·斯科特: 当你就 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 问题向大多数华尔街高管提出质疑时，就会发生以下情况。 他们对其投资加倍下注，因为他们更关心金钱而不是基本的人类尊严。 【转推文中说，桥水公司CEO 雷·达里奥在接受CNBC采访中竟然说，在中共国专制社会中，中共表现得像一个严格的父母一样。。】
-
-
-
-> Here's what happens when you challenge most Wall Street execs about Communist China.
-> 
-> They double down on their investments because they care more about money than they do about basic human dignity. [https://t.co/06QJAZexwA](https://t.co/06QJAZexwA)
-> — Rick Scott (@SenRickScott) [December 2, 2021](https://twitter.com/SenRickScott/status/1466456310669533189?ref_src=twsrc%5Etfw)
-
-
-
-众议员迈克·沃尔茨： 很自豪与众议员玛丽亚·萨拉查[@RepMariaSalazar](https://twitter.com/RepMariaSalazar) 和同事一起推动《共产主义法案》，该法案旨在教育我们的孩子了解 [#共产主义](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89?src=hashtag_click) 的危险性。 有超过一亿人被以共产主义意识形态为名遭到杀害，我们的孩子应该接受这个现实的教育。
-
-
-
-> Proud to stand with [@RepMariaSalazar](https://twitter.com/RepMariaSalazar?ref_src=twsrc%5Etfw) and colleagues to promote the Communism Act to educate our children on the dangers of communism.
-> 
-> Well over 100 million people have been killed in the name of the communist ideology and our kids should be taught this reality. [https://t.co/Dsr4DLsoxA](https://t.co/Dsr4DLsoxA)
-> — Rep. Mike Waltz (@michaelgwaltz) [December 2, 2021](https://twitter.com/michaelgwaltz/status/1466451608435314693?ref_src=twsrc%5Etfw)
-
-
-
+20211202
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
 
 
  

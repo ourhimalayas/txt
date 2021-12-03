@@ -2,46 +2,29 @@
 ---
 
 
-## 昆士兰大学将实行自己的疫苗规定
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1715120/)
+## GTV新闻访谈简报|2021年12月2日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1715223/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-7.png)图片来源：互联网
-翻译：小鱼儿
-编辑：MSGZ
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新.png)
 
-即使昆士兰州政府拒绝，三所主要大学也将实施自己的疫苗授权。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1202text-SC.png)
+校对：Stay文苑
 
-安纳斯塔西娅·帕拉斯楚克的政府正面临着来自教育部门和健康专家越来越多的呼吁，要求在高等教育校园内推行疫苗强制接种。
+编辑：Stay文苑
 
-周二，州长宣布对公立和私立学校、托儿所、监狱、青少年拘留所和机场的工作人员实行全面的疫苗强制接种，但不包括大学。
+发稿：Stay文苑
 
-昆士兰大学、格里菲斯大学和南昆士兰大学已经自作主张，计划禁止未接种疫苗的工作人员和学生。
+视频参看：[12.22  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61a97297d6388d5504152d67)
 
-昆士兰大学打算在12月17日国家放宽限制时，禁止未接种疫苗的学生进入校园和参加毕业典礼，并 “优先努力为健康学生接种疫苗”。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/rili.png)
 
-但代表昆士兰大学教职员工的工会认为，各机构不应负责在校园内推出疫苗任务，这在后勤上很难执行。
-
-全国高等教育工会昆士兰分部秘书迈克尔·麦克纳利（Michael McNally）担心，整个部门不一致的方法可能会使脆弱的工作人员处于危险之中。
-
-麦克纳利先生说，他对政府本周宣布对学校的授权而将大学排除在讨论之外感到吃惊。
-
-昆士兰大学流行病学家和公共卫生医生琳达·塞尔维也对各州和地区的疫苗要求中忽视大学感到惊讶。
-
-州政府还将从12月17日起禁止未接种疫苗的人进入该州的所有场所。
-
-数据显示，86.46%的昆士兰人已经接种了一针疫苗，76.44%的人已经完全接种。
-
-参考新闻：
-
-[Queensland universities to impose their own vaccine mandates](https://www.dailymail.co.uk/news/article-10262789/Queensland-universities-impose-vaccine-mandates-government-refuses-ban.html)
-
-发布：Peter Xin
-
-**更多****资讯****，****请关****注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

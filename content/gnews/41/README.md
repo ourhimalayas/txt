@@ -2,49 +2,76 @@
 ---
 
 
-## 史蒂夫·班农1月6日的法律策略：“炸毁整个系统”
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1714611/)
+## 2021/12/02 大卫作战室直播精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1714848/)
 
-翻译：西班牙巴塞罗那喜悦农场-wenwu
+**主播**：大卫｜**嘉宾**：瑞安平、Castle
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-88.png)图片来源： thedailybeast.com
 
-史蒂夫·班农–右翼媒体人变成了唐纳德·川普的顾问后，又变成了右翼媒体人–在上个月拒绝与调查1月6日“暴动”的众议院委员会合作后，成为近40年来第一个被指控犯有藐视法庭罪的人。现在，班农似乎正在利用他的刑事案件来反向追捕那些追捕他的众议院委员会调查人员。
 
-据几位法律专家称，班农正试图迫使调查人员有可能暴露他们与谁交谈过，说过什么，窥探委员会的秘密通讯，并为其他抵制的证人创建一个游戏手册。
+**板块1–彭帅事件发酵**
 
-专门从事国家安全事务的律师凯尔·麦克拉纳汉（Kel McClanahan）说：“如果在国会敢于问你问题的时候，你还能把国会打出一个黑眼圈，那么与国会相反的想法就不需要付出任何代价。”
+1. 欧盟要求中共国提供彭帅安全的“可核实证据”。
 
-由于班农面临刑事指控，他有权获得对他不利的证据。在一个典型的银河系一样的大脑中，班农的反击攻略是，特朗普的前高级顾问正试图公开其中一些证据。
+前段时间中共“安排”彭帅短暂出现，近期各方朋友、网球球员依然不能联系上彭帅，率先引发WTA（女子网球协会）呼吁并明确暂停在中共国（包括香港）的所有WTA赛事。欧盟与中共国的价值观本质，从单一体育界上升成国际事件，可能引发“多米诺骨牌”效应，各体育界抵制中共国赛事甚至影响冬奥会的顺利举办。
 
-根据联邦检察官周日晚间提交的一份[法庭文件](https://storage.courtlistener.com/recap/gov.uscourts.dcd.237438/gov.uscourts.dcd.237438.12.0_1.pdf)，这包括执法部门对证人的秘密面谈以及众议院委员会工作人员之间的内部通信。司法部声称，如果将这些材料暴露给公众，会造成“特定的伤害”，例如“篡改证人”或在未来的审判中无法找到公正的陪审员。
+2.中共国大外宣胡锡进“反咬”WTA“胁迫并压制”彭帅。
 
-在周二提交的一份[法庭文件](https://storage.courtlistener.com/recap/gov.uscourts.dcd.237438/gov.uscourts.dcd.237438.14.2_1.pdf)中，班农的律师表示，拜登政府的论点“充满了夸张的色彩……可能是为了给媒体加分。”同一天，包括 Buzzfeed、CNN 和《华盛顿邮报》在内（15 家新闻机构组成）的“新闻联盟”站在班农一边，并要求监督此案[的法官](https://storage.courtlistener.com/recap/gov.uscourts.dcd.237438/gov.uscourts.dcd.237438.14.3.pdf)提供文件，并拒绝其所谓的“这种广泛禁言令”。
+中共国后期对于彭帅可能实施全面监控，防止彭帅本人发出与官方对外界描述相反的观点。中共高层（习与张）达成某种默契，执行“一直掩盖策略”，凸显中共各级官员能力低下，欠缺解决问题的能力，并将引起国际社会的反感。
 
-但是，尽管大多数[新闻报道](https://thehill.com/regulation/court-battles/583349-prosecutors-say-bannon-seeking-to-try-this-case-in-the-media-rather)对这场斗争的方向集中于指责，班农试图将其变成[媒体马戏团](https://www.cnn.com/2021/11/29/politics/department-of-justice-steve-bannon-court-filing/index.html)或[奇观](https://www.politico.com/news/2021/11/28/bannon-trial-media-spectacle-523432)，但一些法律学者表示，其真正意图是损害调查本身。有人称其为“灰色邮件”（维基百科：威胁泄漏国家机密以操纵法律程序），这是一种等同于敲诈的法律辩护策略，此后已被取缔。
+**板块2–财经**
 
-“这不是要在媒体上审理此案，这是为了让委员会因对他所采取的行动而付出高昂代价；这是灰色邮件，纯粹而简单：你不能碰我，因为如果你这样做，我会泄露你的秘密。”麦克拉纳汉告诉 Thedailybeast。
+1. 桥水基金经理雷达里奥接受CNBC采访为中共“辩护”，称中共就像“严格的父母”。
 
-从这个意义上说，班农正在严重提高追捕他的成本——兑现他的承诺，也就是将这变成“梅里克·加兰、南希·佩洛西和乔·拜登的[地狱轻罪](https://www.thedailybeast.com/steve-bannon-pleads-not-guilty-to-contempt-of-congress-charge-over-jan-6-committee-subpoena)”。
+桥水基金计划在中共国募集4.69亿美元的资金，实际募集超过12.5亿美元，华尔街资本与中共勾兑，牺牲中国老百姓利益赚得“盆满钵满”。中共利用桥水基金经理传达其“逻辑”（中共国有法律、有市场、有人权），继续“吸引”外资投资。
 
-班农在此案中的律师没有回应 Thedailybeast 的反复询问。然而，在法庭文件中，他们强烈反对班农的策略是不正当使用证据的观点。
+2.中共国计划禁止科技公司利用漏洞进行外国IPO。随后中共国否认彭博社关于补上阿里巴巴、腾讯海外IPO漏洞的报道。
 
-“这是一起轻罪案件，”他们在周二的文件中写道。“这不是一个证人受到恐吓的情况。在没有任何具体的、特定的实际伤害表现的情况下，政府故意（让主流媒体）宣传了一个恶棍。”
+中共国长期在海外通过可变利益实体VIE（隐藏实际控制人）模式进行海外上市。始于2015年奥巴马在杭州签署备忘录，允许在自由市场的中共国公司不公布财报、不接受第三方审计。因爆料革命推动中美金融脱钩，中共欲利用新上市的北交所继续“吸纳”资金扩大其“金融蓄水池”。
 
-相反，班农的律师说，“能够使用发现材料来识别和询问证人，目的是正当合理的。”
+3.上调最低工资浪潮席卷中共国，推动“共同富裕”。
 
-没有迹象表明班农的团队想要泄露一切。他的律师已为法官起草了一项[拟议命令](https://storage.courtlistener.com/recap/gov.uscourts.dcd.237438/gov.uscourts.dcd.237438.14.4.pdf)，该命令仍将对于 11 月 12 日期间[起诉他](https://www.thedailybeast.com/steve-bannon-indicted-for-failing-to-appear-before-jan-6-committee-on-capitol-riot)的大陪审团所出示的文件，进行保密。
+中共提倡“共同富裕”实质收割改革开放以来的中产阶级和精英层，将利益继续“一窝分”。最低工资上调根本原因–物价通胀、人民币超发。中共生产加工不再“廉价”，引发产业链转移至东南亚国家，将导致中共国企业负担加重、失业率上升，进入“恶性循环”模式。
 
-班农在他的刑事藐视法庭案中由两名律师代理。据[《国家法律杂志》报道](https://www.law.com/nationallawjournal/2020/07/20/inside-the-disharmony-at-the-dc-federal-prosecutors-office/?slreturn=20211101180249)，一位前联邦检察官埃文·科克兰 (M. Evan Corcoran)在川普执政的最后一年，他差点在华盛顿的美国检察官办公室担任高级职务；另一位是大卫·I.舍恩（David I. Schoen），他是在美国参议院第二次弹劾审判期间代表川普的律师之一。
+**板块3–网络科技**
 
-班农的律师表示，在法庭案件的早期撬开保险箱的整体策略是前所未有的，这是一场恶战的前奏。
+1.洛杉矶县警长明确拒绝与中共国相关的基因数据公司合作；联邦调查局警告，加州遗传公司可能与中共国分享美国人的健康数据。
 
-新闻来源：[thedailybeast.com] [Steve Bannon’s Jan. 6 Legal Strategy: ‘Blowing Up the Whole System’](https://www.thedailybeast.com/steve-bannons-jan-6-legal-strategy-blowing-up-the-whole-system) | 发布时间：2021年12月02日
+中共在加州等地疯狂收购基因检测公司、精子库、代孕公司，收集基因数据为解放军研究使用，目的极其邪恶，美国开始警惕（中共深度渗透的加州拒绝与中共国相关基因公司）。
 
-* * *
+**板块4–中共病毒、疫苗**
 
-*发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-1.jpeg)
+1.Meta删除了与中共国Covid虚假信息相关的账户。
+
+被中共媒体广泛推广的报道（瑞士生物学家威尔逊爱德华兹指责美国干涉Covid溯源调查）被删除，假生物学家账号运行手法如同中共五毛水军，最终证明其为虚构而成。
+
+2.中共国利用新闻战、信息战包装虚假信息使海外辨别新闻真假能力降低。病毒真相曝光后，将引发世界对中国人的仇恨。
+
+3.中共研究人员声称找到“治愈”Covid的抗体。
+
+中共国“奇迹般”找到一种单克隆抗体可以应对所有变异毒株，此刻释放利好消息目的–“吸引”西方资金进来，使国内经济稳住、确保冬奥会能顺利举办、制造“救世主”假象。
+
+4.欧盟主席冯德莱恩推强制性接种疫苗。
+
+英国暂时不会推行强制疫苗，英喜正在建立“救助站”准备帮助欧洲战友度过“困难期”。
+
+**大卫作战室每周一到周六直播：英国时间12点；美东早7点；盘古19点.**
+
+- [欢迎关注GTV-大卫作战室](https://gtv.org/user/5e86008377d0e42087e2a56d#home)
+- [欢迎关注YouTube-大卫作战室](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
+- [欢迎关注YouTube-大卫作战室 备用直播号](https://www.youtube.com/channel/UCSjAwTM1autpHTLVihdJHHg)
+- [欢迎关注GETTR-大卫作战室](https://gettr.com/user/davidswarroom)
+
+[![](https://spark.adobe.com/page/Ap2uOTAHVStHB/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)](https://spark.adobe.com/page/Ap2uOTAHVStHB/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)
+*听写：call me uncle | 校对：乐禧禧 | Page：我是球大哥*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
+
+
+*编辑：【英国伦敦喜庄园编辑部】*
+[![](https://spark.adobe.com/page/Ap2uOTAHVStHB/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/Ap2uOTAHVStHB/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
 
 
  

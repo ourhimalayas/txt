@@ -2,29 +2,21 @@
 ---
 
 
-## 七哥谈：病毒
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1714840/)
+## 雅典娜时报-第131期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1715101/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+**《雅典娜时报》汇聚全球新闻时事**
 
-301医院那么简单。所以说新中国联邦一定要知道自己的价值在干什么。刚才在谈到疫苗的时候，我记得我告诉大家，为什么我说这个对我们是好事呢，一星期前，我们欧洲科学家说，如果这次病毒有两个特征，这个人类真的是完了。第一个特征，这次如果共产党要放病毒的话，放出来这个传染率，致死率高，就是染上就死。这个或者就是所谓的天花病毒，传染率高，伤残率高，但不死，这两种病毒对人类都是巨大的威胁，人类一堆的残废。是不是，而且这种残疾全世界没法救的了，像天花一样，再一个就是说，致命的，马得了就死，这个世界也防不了，其实这个出来以后， 这个Omicron出来后，这个真的是天意，这次的放毒看来，科学家说，这次的放毒，应该是广东帮干的。他说是广东的这帮人放的，不是北方人干的，北方人下手会比较狠，这个毒放完以后呢很有可能会帮助人类彻底消灭这场病毒。这个病毒会使人的传染，致死率并不高，致残率不高，这个病毒的活性很高，容易传染。但是对人类的这两样没做到，实际是好事，甚至把人类的这个病毒从地球上消失，人类跟这个病毒一旦相适应之后，实际上这个病毒可能就会消失的，这是在共产党不再放毒的前提下。
+#### 编辑：精靈藍
+排版：小蚂蚁614
+![](https://assets.gnews.org/wp-content/uploads/2021/12/时报-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/时报2-1.jpg)
+发布：kk
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
