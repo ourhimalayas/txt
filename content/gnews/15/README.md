@@ -2,25 +2,45 @@
 ---
 
 
-## 欧美联合抗共的四大事件
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1716570/)
+## 美商务部长呼吁众院通过《芯片法案》
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1716665/)
 
-撰稿：澳喜文飞
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture3.jpg)网络截图
-美国邀请107个国家及地区参加所谓民主峰会**，**重要的是在亚洲邀请了巴基斯坦，菲律宾，甚至中国台湾列在名单中，犹如一枚政治炸弹。美国已经正式立法严管中概股！
+作者：日本方舟农场 – Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月29日，据当地媒体报道，美国商务部长呼吁众议院批准520亿美元的资金用于扩张美国的半导体制造业，这一提案也被称作《芯片法案》。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/8-1-1.jpg)
+据悉，美国商务部长在走访密西根州时，听取了美国汽车行业目前所面临的芯片危机：由于芯片短缺，底特律三大汽车制造商被迫减产或生产削减功能的汽车。与此同时，各大汽车生产厂商正在转型将新研发的电动汽车作为主要产品，从而逐渐取代之前的汽油动力汽车，但是，厂商们如今面临的困境在于，电动汽车需要的芯片数量是汽油动力汽车的两倍。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/8-2-1.jpg)
+密西根州的相关人员表示，鉴于这样的芯片危机至少还将持续一年，如果美国不增加芯片产量的话，密西根州将失去更多的工作岗位。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/8-3-1.jpg)
+资料显示，《芯片法案》属于6月在参议院通过的《创新和竞争法案》的一部分，其核心内容是支持在美国生产半导体芯片，用以避免未来再度出现的供应链终端问题，同时降低美国对中共汽车零部件的依赖。
 
-** **德国变天**，**这是最大的事件之一。默克尔离任，德国社民党、绿党和自民党联合执政，CCP的德国老朋友没有了。  德国新外长贝尔博克日前誓言对中国采取强硬态度，表示不排除抵制北京冬奥。她更呼吁欧盟国家统一口径，在与北京打交道时利用欧盟作为主要经济强权的影响力，并提出限制从中国进口商品的可行方案。她强调“只有当（欧盟）所有27个成员国齐心协力时，才能发挥作用。”
+参考链接：
+1) . [美国商务部长走访密西根州 呼吁国会为芯片行业扩张提供资金](https://cn.reuters.com/article/us-moc-michigan-chip-plant-1130-idCNKBS2IF06W)
+2) . [Nine governors press U.S. lawmakers to pass semiconductor funding bill](https://www.reuters.com/world/us/nine-governors-press-us-lawmakers-pass-semiconductor-funding-bill-2021-11-10/)
 
-欧盟对华立场更加强硬，几个标志性事件， 批准延长对中国官员和实体的制裁，这将危及2020年12月底签署的中欧投资协定；欧盟议会首次派出官方代表团访问台湾；立陶宛与台湾相互开设以台湾名义的办事处，波罗的海三国议会代表团访台；曾任法国国防部长的法国参议员李察访台；荷兰众院压倒性通过支持台湾参与国际刑警组织动议；捷克执政联盟拟重审与中国的关系，强化与台湾合作。欧盟也正推出针对一带一路的方案！
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-日本越来越走向反华前台，越来越强硬涉台。让外界震惊的是，重新回到政治舞台的日本前首相安倍日前发表视频演讲，对台湾问题做出了迄今以来最露骨的表述。
+总编：Irene木木
+编辑：Lakeman文仁
+校正/发稿：Fei797
 
-安倍声称：“对台湾的武力侵犯，对日本国土是重大危险，日本无法容许该事态发生”。他还表示，“台湾有事就是日本有事，也是日美同盟有事。”更宣称中国政府“绝对不应对此有误解”。
+**更多资讯，更多关注**
 
-日后这样的事件在世界上层出不穷，看CCP如何用十八般武艺去招架吧！
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-本文纯属个人观点
-![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-2.jpg)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
