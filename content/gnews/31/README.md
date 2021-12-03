@@ -2,65 +2,23 @@
 ---
 
 
-## 2021年12月3日新闻集
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1716575/)
+## 传奇的开始
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1716596/)
 
-撰稿人：文远Bruce
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide1-2.jpg)
-1.《Hcoin To The Moon》澳洲Rock版排名第一
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide2.jpg)
-2.《Hcoin To The Moon》卡拉Ok版Rap版排名第二
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide3.jpg)
-.
+撰稿：东京樱花团/漫天樱花
+![](https://assets.gnews.org/wp-content/uploads/2021/12/7-4.jpg)
+本来想用我的几个耳机给Hcoin to the Moon做个音效测评，但是我才用sonyz5加上Fiio（飞傲）细听两遍，滚烫的热泪滴了下来，现将我脑海中的画面分享与战友：
 
-3.美国俄罗斯准备就乌克兰紧张局势展开会谈
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide4.jpg)
-4.土耳其换马新央行行长
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide5.jpg)
-5.瑞银、巴克莱、苏格兰皇家银行、汇丰银行和瑞士信贷因外汇操控被罚合计3.44亿欧元，其中：汇丰1.74亿欧元、瑞士信贷8300万欧元，巴克莱5400万欧元、苏格兰皇家银行3200万欧元。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide6.jpg)
-6.7.散户买进、基金卖出。美国银行的对冲基金客户上周抛售超20亿美元股票，正以自今年4月以来最快的速度退出市场，据追踪美国散户交易流量的机构Vanda Research统计，在本周二市场大跌之时，美股散户投资者净购买额为22.2亿美元，创下单日流入量之最。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide7.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide8.jpg)
+嗯~~~嗯~~~嗯~~~嗯~~~，一个小年轻无忧无虑的在街上边打着响指边走着魔鬼的步法，带着对未来的憧憬他欢快地走着无情地浪着，慢慢音乐开始复杂，各种嘈杂的声音出现，画面转到深夜，小年轻已经被残酷的现实掏空了身体清空了梦想，想着这些年的失败的经历，他认为未来一定会和深夜的夜空一样的黑暗，在他觉得要完全陷入黑暗时，充满力量的声音在头顶爆炸：“welcome to the world，welcome to the new world”,小伙子知道有人来拯救他了，他顺着声音快步穿过一堵无形的墙到了新世界，又听到天上传来“Hcoin to the Moon”，原来不仅仅只是救他这么简单，无限美好的登天之路正在他脚下展开，少年手舞足蹈的开始描述新世界的美好，这时从天上传来天使空灵的声音，形成一道圣光，开始牵引着少年快速奔跑，快到终点时，天使的声音不再空灵，突然变得高亢激昂，圣光也由只是照亮他的圆锥变成了挂在天空的探照灯，他瞬间发现不是他一个人奔跑，是同时有千军万马在共赴天堂，所有的人同时开始声嘶力竭的呐喊：“welcome to the world，welcome to the new world”。
 
+它不仅仅是首歌，它是一个男孩被救赎的经历，它是来自唯一能庇护你的新世界焦急的呼唤，它是神秘力量开启的传奇。
 
-8.12月3日午盘结束后，恒生科技下跌超2%，网易、快手、bilibili跌超7%。京东7%、阿里巴巴5%、百度3%
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide9.jpg)
-9.九万二的个人电动飞机销售告罄。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide10.jpg)
-10.阿联酋 新加坡恢复悉尼A380航线
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide11.jpg)
-11.纽约发现五例Omicron变种病毒
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide12.jpg)
-12.澳大利亚新洲继11月4日以来，感染人数再次破300
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide13.jpg)
-13.美元里拉兑换比率
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide14.jpg)
-土耳其酒类价格一天上涨超15%，鸡肉价格一天上涨10%，一周内一袋面粉涨价三倍。苹果店停止售卖，苹果手机成保值品。
+New world,our world!
 
-美元同里拉兑换比例
+编辑:东京樱花团/喜马拉雅的微尘
+发布:东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.png)
 
-实时 1:13.7
-
-2019年1:5
-
-2016年1:3
-
-土耳其总负债占GDP40%，2020GDP 7171亿美元。人口8300万+，国土面积78万3600平方公里。
-
-民众转里拉成美元存银行，外汇存款占55%，2600亿美元。
-
-土耳其目前外币债务达到
-
-编政府债务的60%，2017年时为37%。
-
-2007年土耳其人均GDP1万美元。2020年人均8500美元。
-
-编辑：云彩
-
-[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-
-【[澳喜文章1](https://gnews.org/zh-hans/author/aujenny/)】
-【[澳喜文章2](https://gnews.org/zh-hans/author/himalaya-australia/)】
 
  
 

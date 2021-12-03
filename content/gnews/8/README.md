@@ -2,14 +2,15 @@
 ---
 
 
-## 【文贵先生大直播PPT】美国和世界经济最新动态
-` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1716997/)
+## 【文贵先生大直播PPT】病毒及疫苗大灾难
+` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1717037/)
 
-撰稿：三票先生
-美工：Bobby（文俊），青山
+撰稿：舒平风，莲心不染，Mildseven，李昂纳多，MyWay，坐看云起时
+PPT美化：sotres，小黑兔
+审核：三票先生，顽童先生，舒平风
 
-【2021年12月3日文贵先生大直播PPT：美国和世界经济最新动态】
-![](https://assets.gnews.org/wp-content/uploads/2021/12/29.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/22.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/23.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/24.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/25.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/26.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/27.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/111-2.jpg)
+【2021年12月3日文贵先生大直播PPT：病毒+疫苗大灾难】
+![](https://assets.gnews.org/wp-content/uploads/2021/12/58.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/52.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/53.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/54.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/55.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/56.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/57.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/49.jpg)
 * * *
 
 发稿：云起时

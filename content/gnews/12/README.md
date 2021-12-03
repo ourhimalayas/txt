@@ -2,18 +2,26 @@
 ---
 
 
-## 文贵大直播 12/3 中共国的疫苗灾难真相
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1716878/)
+## GTV新闻访谈简报|2021年12月3日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1716896/)
 
-新闻采稿：回响 【秘翻Gnews原创组】
-![](https://assets.gnews.org/wp-content/uploads/2021/12/snapshot.jpg)图片来源：GTV
-中共国的所谓疫情管控在国际上一直树立被“抄作业”的伟光正形象，在其国内也已经让百姓们几乎统一感受：世界各国面对疫情水深火热，风景唯有中共国这边独好。然而真相究竟如何？
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-1.png)
+文章仅代表作者本人观点，与Gnews无关
 
-爆料革命发起人郭文贵先生在12月3日的大直播中，首先就国内疫情真相告诉公众，来自卫生领域高层的内部战友非常明确地揭示了“岁月静好”背后，不同的年龄段呈现出不同症状特征：老龄人群主要是癌症高发；猝死的多是中年、壮年群体；特别注意的是女性群体也是各种癌症比如乳腺癌等高发。更加邪恶的是幼儿园“疫苗接种”非常普遍、严格，但公众看不到的是孩子们身上细胞变异和早熟。
+视频参看：[2021.12.03早GTV新闻访谈](https://gtv.org/video/id=61aa1b51d6388d5504158d4c)
 
-郭先生特别对中共国冒着CCP残害危险传出真相的秘密战友表达谢意和敬意。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-【来源链接】https://gtv.org/broadcast/watch/61aa1cecd6388d55041591e7
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-1.png)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -2,34 +2,41 @@
 ---
 
 
-## 澳州塔斯马尼亚州首府霍比特颁布新疫苗强制令
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1716703/)
+## 新变种病毒传染性高但致命性弱
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1716744/)
 
-撰稿：Shirley
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide1-3.jpg)
-图片来自网路
+作者：香草山农场 – 晓仙女
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月1日，郭文贵先生在直播中谈到新冠新变种病毒时表示，如果这次共产党放出的新病毒出现高致死或致残率的特征，那人类的灾难就真的要到来了。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/9-1-1.jpg)
+而世界卫生组织于11月26日公布的消息显示，新变种病毒的表现特征为活性很高，但致死率低。同时，据科学家反馈的信息，对于新冠疫情来说，这种表现特征的新变种病毒是好事。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/9-2-1.jpg)
+对此，郭先生也再次强调，青蒿素对新冠病毒症状绝对有效，且它不仅能解新冠病毒，还能解新冠疫苗之毒，甚至将彻底解决新冠疫苗带来的灾难——这也是爆料革命带给人类最大的贡献。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/9-3.jpg)
+参考链接：
+[2021年12月1日 文贵大直播：Hcoin To The Moon伴奏 荣登iTunes榜首；香港股市经济；澳门地下钱庄，孟建柱在东南亚的涉黑布局；Omicron变种病毒及疫苗灾难和青蒿素功效；数字货币监管及加密货币市场走向](https://gtv.org/video/id=61a774e244c1fe7a6c3c9bad)
 
-塔斯马尼亚州首府霍比特的疫苗接种率是该州最高的。[两针的接种率已达到95%](https://www.themercury.com.au/news/coronavirus/hobart-tops-race-to-be-vaccinated-new-figures-show/news-story/8441a85aee4b527f0b3709d66253954c)。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-今日，该市的市议会[宣布了新的疫苗强制政策](https://www.themercury.com.au/news/coronavirus/tassie-pub-and-nightclub-patrons-will-need-to-be-fully-vaccinated-to-be-allowed-entry/news-story/7294b3cae175de57ed6f94bd9c99290f?utm_source=Mercury&amp;utm_medium=email&amp;utm_campaign=Editorial&amp;utm_content=MERC_LATESTNEWS_PM-CUR_01&amp;net_sub_id=287163446&amp;type=curated&amp;position=1&amp;overallPos=1)，要求所有在市议会的工作人员和访客都必须接种疫苗。
+总编：Irene木木
+编辑：Kathy文艺
+校正/发稿：Fei797
 
-此外，霍巴特的一些公共场所，包括市政厅、议会中心、旅行和信息中心、垃圾回收场和公共游泳池的访客也必须从12 月 15 日起全面接种疫苗。
+**更多资讯，更多关注**
 
-塔斯马尼亚的酒吧、俱乐部和夜总会被告知，从下周开始，只有接种了疫苗才能进入这些场所。从12 月15 日起，所有在这些场所工作的员工也必须完全接种疫苗。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-虽然这些场所没有责任检查客户的疫苗接种情况，但是警方将负责进行抽查，违规者将被处以约770 澳元的罚款。
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-由于塔斯马尼亚州严格控制外来访客，一旦发现旅客呈新冠阳性，立即对其实施严格的隔离措施，所以该州对岛内居民处于开放状态，没有任何岛内旅行限制。
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-这些升级的疫苗强制接种措施，限制了没有接种疫苗的居民的行动范围。但这些措施能否有效地在12月15日该州对澳洲大陆开放后仍然保持零感染，我们将拭目以待。
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-编辑：云彩
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
 
-[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
 
  
 

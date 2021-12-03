@@ -2,38 +2,37 @@
 ---
 
 
-## 美国与欧盟举行第二次中共政策协调对话会
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1716608/)
+## 港版健康码将于12月10日开通注册
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1716643/)
 
-作者：东京樱花团 – 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月2日，拜登政府宣布，将与欧盟举行第二次针对中共问题的高层对话会，会后，双方也将发表一份联合声明。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/7-1-1.jpg)
-据悉，该对话将聚焦于中共有关人权、多边主义、虚假信息和安全等方面的问题，且美欧双方也会讨论二者在与中共有关的经济和技术领域涉及的各类隐患，预计，台湾问题也将是双方的会议要点之一。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/7-2-1.jpg)
-美国官员表示，欧盟与美国致力于同样的基于民主制度和规范的国际秩序，在对待中共的态度上，双方是天然的伙伴。有资料显示，迄今为止，针对中共日益恶化的人权问题，美国与欧盟已经采取了多项联合行动。
+**撰稿：日本东京方舟农场 老孙**
 
-参考链接：
-[美国与欧盟举行第二次中国政策协调对话会 北京称反对“搞小圈子”](https://www.voachinese.com/a/us-eu-dialogue-on-china-20211202/6336376.html)
+12月2日，香港特区政府公布，“香港健康码”（简称“港康码”）系统将从12月10日上午9时起开通注册。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+据介绍，申请“港康码”将收集所有香港居民的所有个人详细信息，再配合上传“安心出行”应用程序中的出行记录、网上申报健康状况，经系统对比其住址和过去21天出行记录，以及确诊与密切接触者名单，从而获取由系统判定的红、黄或绿色个人“港康码”。
 
-总编：Irene木木
-编辑：Lakeman文仁
-校正/发稿：Fei797
+当豁免检疫入境广东或澳门的措施推出后，只有持当天有效绿色“港康码”且符合其他特定条件人士，方可申请转码到“粤康码”或“澳康码”。
 
-**更多资讯，更多关注**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3801213fb80e7bec2d4778a41a973a319a506b1c.jpeg)图片来自于百家号
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+据报道，“港康码”已加入广东与澳门的健康码系统及数据互认机制，并就健康码颜色判定对接，“港康码”与“粤康码”或“澳康码”中的红码、黄码、绿码标准相同。
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+事实上，中共政权推行的中共病毒“健康码”更多的被用在维稳当中，用于对民众的追踪和监控。这样的事件曾发生过多起，其中有维权律师的健康码突然由“绿”变“红”，被限制人身自由。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+由此可见，港版健康码的推行，不过是打着控制疫情的幌子以控制香港异见人士的新手段而已。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+*参考链接：*
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+[“香港健康码”将于12月10日开通](https://baijiahao.baidu.com/s?id=1718039984460425106&amp;wfr=spider&amp;for=pc)
+
+* * *
+
+*素材采编：老孙*
+
+*编辑：文顺*
+
+*发布：Ranting*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

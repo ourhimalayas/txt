@@ -15,98 +15,98 @@
 
 ---
 
-### [七哥谈：数字银行牌照](/content/gnews/1/README.md)
+### [七哥谈对战友们的保障](/content/gnews/1/README.md)
  ` MG FARM`
 
-### [七哥分享神药](/content/gnews/2/README.md)
+### [七哥谈：数字银行牌照](/content/gnews/2/README.md)
  ` MG FARM`
 
-### [文贵爆料 12.3：拨云见日——两个月后疫苗灾难将会终止](/content/gnews/3/README.md)
+### [七哥分享神药](/content/gnews/3/README.md)
+ ` MG FARM`
+
+### [文贵爆料 12.3：拨云见日——两个月后疫苗灾难将会终止](/content/gnews/4/README.md)
  ` 秘密翻译组-原创组`
 
-### [【文贵先生大直播PPT】墙内战友重磅爆料实录](/content/gnews/4/README.md)
+### [【文贵先生大直播PPT】墙内战友重磅爆料实录](/content/gnews/5/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [【文贵先生大直播PPT】Himalaya Pay 台湾团队业务进展](/content/gnews/5/README.md)
+### [【文贵先生大直播PPT】Himalaya Pay 台湾团队业务进展](/content/gnews/6/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [【文贵先生大直播PPT】喜联储数字货币银行牌照的意义与战友投资规划](/content/gnews/6/README.md)
+### [【文贵先生大直播PPT】喜联储数字货币银行牌照的意义与战友投资规划](/content/gnews/7/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [【文贵先生大直播PPT】病毒及疫苗大灾难](/content/gnews/7/README.md)
+### [【文贵先生大直播PPT】病毒及疫苗大灾难](/content/gnews/8/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [【文贵先生大直播PPT】美国和世界经济最新动态](/content/gnews/8/README.md)
+### [【文贵先生大直播PPT】美国和世界经济最新动态](/content/gnews/9/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [12/03/21 香港快讯 美国欧盟高层会议 讨论香港自治与民主受侵蚀 强烈关注中共国在台海行动](/content/gnews/9/README.md)
+### [12/03/21 香港快讯 美国欧盟高层会议 讨论香港自治与民主受侵蚀 强烈关注中共国在台海行动](/content/gnews/10/README.md)
  ` 英喜-粵語組`
 
-### [【#G时新闻】“完全接种”NBA 球星检测结果不明被迫停赛](/content/gnews/10/README.md)
+### [【#G时新闻】“完全接种”NBA 球星检测结果不明被迫停赛](/content/gnews/11/README.md)
  ` G-时新闻`
 
-### [GTV新闻访谈简报|2021年12月3日早](/content/gnews/11/README.md)
+### [GTV新闻访谈简报|2021年12月3日早](/content/gnews/12/README.md)
  ` 纽约香草山MOS01`
 
-### [文贵大直播 12/3 中共国的疫苗灾难真相](/content/gnews/12/README.md)
+### [文贵大直播 12/3 中共国的疫苗灾难真相](/content/gnews/13/README.md)
  ` 秘密翻译组-原创组`
 
-### [为逃避疫苗接种，欧洲越来越多人通过网络购买假疫苗护照](/content/gnews/13/README.md)
+### [为逃避疫苗接种，欧洲越来越多人通过网络购买假疫苗护照](/content/gnews/14/README.md)
  ` 首尔天池农场`
 
-### [【粤语配音】2021年12月1日：喜联储引领世界的三大好消息](/content/gnews/14/README.md)
+### [【粤语配音】2021年12月1日：喜联储引领世界的三大好消息](/content/gnews/15/README.md)
  ` MOS香港部`
 
-### [中共正推进Omicron疫苗研发](/content/gnews/15/README.md)
+### [中共正推进Omicron疫苗研发](/content/gnews/16/README.md)
  ` 澳喜特战旅Gnews`
 
-### [英国军情六处爆出CCP海外投资本质](/content/gnews/16/README.md)
+### [英国军情六处爆出CCP海外投资本质](/content/gnews/17/README.md)
  ` 澳喜特战旅Gnews`
 
-### [台海局势新闻综述：美国罕见承认在台驻军倍增， 各国政要密集发声明确力挺台湾](/content/gnews/17/README.md)
+### [台海局势新闻综述：美国罕见承认在台驻军倍增， 各国政要密集发声明确力挺台湾](/content/gnews/18/README.md)
  ` 首尔天池农场`
 
-### [美国最新民调显示：大多数美国人认为中共超过俄罗斯成为美国最大威胁](/content/gnews/18/README.md)
+### [美国最新民调显示：大多数美国人认为中共超过俄罗斯成为美国最大威胁](/content/gnews/19/README.md)
  ` 首尔天池农场`
 
-### [【#G时新闻】新变种病例症状轻微，但不容轻视！](/content/gnews/19/README.md)
+### [【#G时新闻】新变种病例症状轻微，但不容轻视！](/content/gnews/20/README.md)
  ` G-时新闻`
 
-### [美国最新民调：65%受访者认为中共国是美国的敌人](/content/gnews/20/README.md)
+### [美国最新民调：65%受访者认为中共国是美国的敌人](/content/gnews/21/README.md)
  ` 日本东京方舟农场`
 
-### [习灭王？习灭亡？](/content/gnews/21/README.md)
+### [习灭王？习灭亡？](/content/gnews/22/README.md)
  ` 波士顿五月花农场`
 
-### [新变种病毒传染性高但致命性弱](/content/gnews/22/README.md)
+### [新变种病毒传染性高但致命性弱](/content/gnews/23/README.md)
  ` GTV新闻访谈`
 
-### [澳州塔斯马尼亚州首府霍比特颁布新疫苗强制令](/content/gnews/23/README.md)
+### [澳州塔斯马尼亚州首府霍比特颁布新疫苗强制令](/content/gnews/24/README.md)
  ` 澳喜农场`
 
-### [美商务部长呼吁众院通过《芯片法案》](/content/gnews/24/README.md)
+### [美商务部长呼吁众院通过《芯片法案》](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [DC每日热点1203](/content/gnews/25/README.md)
+### [DC每日热点1203](/content/gnews/26/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [港版健康码将于12月10日开通注册](/content/gnews/26/README.md)
+### [港版健康码将于12月10日开通注册](/content/gnews/27/README.md)
  ` 日本东京方舟农场`
 
-### [美国与欧盟举行第二次中共政策协调对话会](/content/gnews/27/README.md)
+### [美国与欧盟举行第二次中共政策协调对话会](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [日本政府承认心肌炎心包炎系疫苗后的“严重不良反应”](/content/gnews/28/README.md)
+### [日本政府承认心肌炎心包炎系疫苗后的“严重不良反应”](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [西媒头条 — 第123期](/content/gnews/29/README.md)
+### [西媒头条 — 第123期](/content/gnews/30/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [传奇的开始](/content/gnews/30/README.md)
+### [传奇的开始](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [2021年12月3日新闻集](/content/gnews/31/README.md)
- ` 澳喜农场`
 
 ### [欧美联合抗共的四大事件](/content/gnews/32/README.md)
  ` 澳喜农场`

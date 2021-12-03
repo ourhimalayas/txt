@@ -2,26 +2,16 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月3日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1716896/)
+## 【#G时新闻】“完全接种”NBA 球星检测结果不明被迫停赛
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/1716900/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-1.png)
-文章仅代表作者本人观点，与Gnews无关
+**加拿大温哥华扬帆农场** 播报：文雅 制作：文雅
 
-视频参看：[2021.12.03早GTV新闻访谈](https://gtv.org/video/id=61aa1b51d6388d5504158d4c)
+🔥“完全接种”NBA 球星勒布朗·詹姆斯检测结果不明被迫停赛。
+🔥 冠状病毒实验性疫苗从未产生证据表明，疫苗可以阻止感染或传播。 他们甚至没有声称的那样减少住院治疗。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-1.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+盖特链接：[https://gettr.com/post/pimrxf9e72](https://gettr.com/post/pimrxf9e72)
+编辑/上传：七觉花
 
  
 
