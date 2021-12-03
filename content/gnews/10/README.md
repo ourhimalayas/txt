@@ -2,46 +2,79 @@
 ---
 
 
-## 比利时法院宣布新冠疫苗护照是非法的
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1715578/)
+## 视频| 澳门地下钱庄，孟建柱在东南亚的涉黑布局（上）
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1715665/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+## 摘自2021.12.1郭先生大直播
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/c3d5bf8e-68f9-4a82-b135-ab264c7b7aa6-GettyImages-1303285991.jpg)
-
-
- 
-图片来源：USA Today
+制作：香草山视频部
 
 
-#### 编译：小红帽
 
-比利时一家法院周二宣布新冠（COVID）疫苗护照计划非法，并威胁要对实施该计划的地区进行罚款。
+你知道洗米华当时在北京什么概念吗
+洗米华的老板第一老板是谁知道吗
+安全部副部长马建 100%马建
+然后他发展人 是谁发展的呢
+当时北京市公安局副局长啊
+张越或者政法委书记也是我的兄弟
+因为我受牵连被傅志华搞进去抓起来
+然后洗米华从这个张越那跳到马建那儿
+就啪跳到了孙立军那儿
+孙立军那儿跳到了孟建柱那
+洗米华搞定了谁呀
+孟建柱的侄儿 他亲外甥
+孟建柱这个人跟洗米华认识以后
+马上两件事让他去干去
+大家记住
+第一我让你把整个东南亚
+特别是缅邦,缅北,泰国
+马来西亚,新加坡一带
+要把整个这些黑帮全拿下
+要的是什么
+第一件事儿毒资,毒品
+孟这个人阴得狠
+毒资多少钱在东南亚当时
+每年大概5000亿美元
+5000亿美元的独资里边是什么概念
+我跟你说战友们
+你们不要把自己给忽悠进去
+5000亿美元的毒资那可以改变世界的
+美国这么多年打不了
+阿富汗,吉尔吉斯坦,哈森
+整个东欧到东亚横跨新疆
+你看孟建柱很厉害的
+阿富汗只见跨过去大西路口
+原来的丝绸之路
+直接到吉尔吉斯坦,阿塞拜疆
+啪啪就过去了
+从俄罗斯进入欧洲拉脱维亚,立陶宛,欧洲
+整个湄公河岸
+孟建柱这个能得很 用毒品啪连起来
+第二件事情 走私人口
+所有走失人口全部控制起来
+然后就开始赌博,洗钱全部弄起来
+谁都没想到就是地球的西半部
+中国的西半部北南部走廊全被孟拿下
 
-比利时支持自由的团体Notre Bon Droit（NBD）宣布，纳慕尔（Namur）初审法院裁定，比利时瓦隆区（Wallonia）必须在一周内解决其新冠安全票（Covid Safe Ticket）政策的“明显违法行为”，否则每延迟一天就面临5000欧元（5660美元）的罚款。（注：新冠安全票与新冠疫苗护照性质类似。）
 
-瓦隆区包括比利时南部的大部分地区，有大约350万人口。
 
-法院指出10月21日发布的瓦隆疫苗护照法令的几个法律问题，包括与欧洲法律和个人数据保护权的 “明显矛盾”。
 
-周二的裁决还表示，该命令可能违反了相称性原则，并批评它在“没有客观和科学理由”的情况下强加歧视。
 
-瓦隆政府已对该决定提出上诉，并在一份声明中表示，尽管纳慕尔法院作出了裁决，但瓦隆政府不打算暂停使用新冠安全票。
+发稿：雪梨
 
-瓦隆政府说：“这一决定并没有取消瓦隆的法令，因此，新冠安全票仍然适用于瓦隆地区”。据公告称，在上诉过程中，该规则仍然有效。
+![This image has an empty alt attribute; its file name is 8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg)
 
-NBD团体对布鲁塞尔的另一新冠安全票政策提起了类似的诉讼，该诉讼将于12月8日开庭。
+**更多资讯，更多关注**
 
-**参考新闻：**[Belgian Court: COVID Vaccine Passports Are Illegal (humansarefree.com)](https://humansarefree.com/2021/12/belgian-court-covid-vaccine-passports-are-illegal.html)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-***发布：小红帽***
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

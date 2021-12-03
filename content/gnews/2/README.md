@@ -2,20 +2,36 @@
 ---
 
 
-## COVID-19 最新情报｜澳洲人上街抗议强制疫苗：一边是为自由而失业的民众 一边是为工作而施暴的警察
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1715659/)
+## 喜大普奔的好消息！伊维菌素有了替代品！
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1715699/)
 
-**撰文｜ 台湾宝岛农场 疫情关注组 / 发布时间｜3/12/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+**撰稿：Eva**
 
-自上月起，澳洲境内20多个城镇，连续发起一个名为“百万人大游行——反对强制接种疫苗”的系列抗议活动，包括阿德莱德、达尔文、爱丽丝泉、珀斯、堪培拉、纽卡斯尔、巴利纳、英弗莱尔等都有响应。
+根据更新以后的 FLCCC 新型冠状病毒肺炎的预防及早期门诊患者的治疗指引，特別向战友们发布伊维菌素替代品的好消息如下：
 
-**在珀斯的抗议现场，有民众身披澳洲国旗，手举“永远不要再次封锁，少一些政府干预，多一些人身自由”和“没有人能阻止人类的觉醒”等标语，并齐声唱起民谣“Waltzing Matilda”。无数因拒绝接种疫苗而失业的民众更将原本的工作制服展示在台阶上，场面宏观，亦令人动容他们对于捍卫权利，追求自由的坚定决心。**
+**1. 预防方案 (针对 DELTA 变异毒株)**
 
-而另一边，墨尔本的抗议现场就是另一番景象，和平抗议的民众与“执行任务”的警察发生冲突，一位12岁的女孩被几位警察包围逮捕，过程中又将另一位女孩大力推倒地上，现场指骂声一片。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-1.jpg)
-来源｜ANR： [1](https://www.australiannationalreview.com/state-of-affairs/powerful-scenes-from-perth-so-many-have-walked-away-from-their-jobs-leaving-their-uniforms-on-the-steps/)、[2](https://www.australiannationalreview.com/state-of-affairs/victoria-police-slam-young-girl-to-ground-at-freedom-protest-in-melbourne/)
+#黑孜然 (黑孜然籽) 每天 40毫克/公斤
+
+如果：伊维菌素不可得， 或添加到伊维菌素中以实现最佳预防，则使用。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-29.png)
+**2. 早期治疗方案5 (针对 DELTA 变异毒株)**
+
+营养疗法 (14天)
+
+# 薑黃素 (薑黃) 每天 2 次 500 毫克
+
+#黑孜然 (黑孜然籽) 每天 80毫克/公斤
+
+蜂蜜 每天 1克/公斤
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2-7.png)
+如需更多有关营养疗法以及其如何帮助因应 COVID-19 的咨询，请参阅：
+
+www.flccc.net/covid-19-protocols/nutritional-therapeutics
+
+**[Source](https://covid19criticalcare.com/wp-content/uploads/2021/06/FLCCC_Alliance-I-MASKplus-Protocol-CHINESE-Traditional-%E7%B9%81%E9%AB%94%E4%B8%AD%E6%96%87.pdf)**
+
+
 
  
 

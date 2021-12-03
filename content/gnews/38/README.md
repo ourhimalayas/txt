@@ -2,30 +2,29 @@
 ---
 
 
-## 推特将美国心脏协会关于疫苗的警告标为“不安全”信息
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1715194/)
+## GTV新闻访谈简报|2021年12月2日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1715223/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-4.png)
-图片来源： twitter.com
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新.png)
 
-零对冲网12月2日报道，推特针对来自美国心脏病协会关于信使核糖核酸（mRNA）疫苗显著增加心脏病风险从11%增加到25%的研究发现，标上了“不安全”连接警告。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1202text-SC.png)
+校对：Stay文苑
 
-推特居然认为具有很高影响力的正规美国心脏协会杂志的文章是“不安全”的信息！ 谁给推特的权力？
+编辑：Stay文苑
 
-推特认为凡是符合以下条件即为“潜在不安全”信息：
+发稿：Stay文苑
 
-1. 恶意的可能偷盗私人信息或电子设备的链接
+视频参看：[12.22  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61a97297d6388d5504152d67)
 
-2. 误导人们或打破人们经验的拉圾邮件链接
+![](https://assets.gnews.org/wp-content/uploads/2021/12/rili.png)
 
-3. 可能在真实世界造成暴力或误导的内容
-
-4. 某些内容有违推特的标准
-
-不清楚美国心脏协会杂志的调查研究文章违反了上述哪一条。推特是基于什么依据？
-
-##### **新闻来源： **[Twitter Slaps ‘Unsafe’ Label On American Heart Association mRNA Vaccine Warning](https://www.zerohedge.com/covid-19/twitter-slaps-unsafe-label-american-heart-association-mrna-vaccine-warning) 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

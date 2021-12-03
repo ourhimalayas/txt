@@ -2,39 +2,31 @@
 ---
 
 
-## 在新病毒 #奥密克戎 爆發之前 中共國早已完成前期的技术研究
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1715309/)
+## 中国电信垂死挣扎 美高院驳回其主张
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1715463/)
 
-采集人：祈望明天会更好
+撰稿：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3-7.jpg)
+[图片来源](https://search.yahoo.co.jp/image/search?aa=0&amp;aq=-1&amp;ei=UTF-8&amp;fr=yjapp3_ios_wv&amp;p=%E4%B8%AD%E5%9B%BD%E9%9B%BB%E4%BF%A1&amp;ts=18049#8bf34f0fcf0de08cd9333304f28e2f9a)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-25.png)
+12月2日，位于华盛顿特区的美国联邦上诉法院驳回了中共大型电信公司——中国电信提出的要求，该公司要求禁止联邦通信委员会（FCC）撤销其美国营业执照的决定。该案被驳回。
 
-12月1日 2021年指,世界卫生组织新冠病毒技术负责人范克尔克霍夫（Maria Van Kerkhove）表示，专家推断多个Omicron的传染力可能，它的传染力比目前流行的Delta病毒株更高，重申大家应面对最理想或最坏的情况。
+FCC的决定将于明年1月初生效。中国电信的美国子公司曾提出动议，要求在对该案进行全面听证之前，暂停FCC的决定。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-26.jpg)
+中国电信此前警告说，必须在12月4日之前向其在美国的客户传达FCC的决定。如果联邦通信委员会的决定不被暂时中止，它“将被迫大幅暂停其业务，这将对其运营、声誉和相关方造成不可挽回的损失”。
 
-在全球尚在研究这新病毒的变异株及传染力时, 中共国在11 月 30 日 2021年, 在微博一则贴文, 中央疾控 病毒预防控制所 所长许文波 已推出灭活疫苗, 蛋白疫苗, 载体疫苗都已经做了前期的技术研究, 包括一些序列的设计已经开始了。
+与此同时，美国高等法院表示，将确定审理该案的日期。然而，这预计需要几个月的时间。
 
-由此可印证每次病毒的出现, 中共国就像是引导世界对病毒及疫苗做指导棋. 先由中共国内预先施行新病毒,打疫苗的演习, 之后, 全球就不避讳的照单模仿, 一切都在邪恶势力的剧本中全球上演。
+看来中国电信离彻底被从美国赶出的日子越来越近了。中共“蓝金黄”的又一个爪牙被FCC砍断了。看你还能折腾多久！
 
-演戏的是疯子,付钱看戏的是傻子, 只有新中国联邦人, 最终拿出解药 救付钱看戏身心双重受伤的民众, 希望借此能唤醒无知的人们！
+信息来源:
 
-参考链接：
+[中国電信の米免許取り消し、米高裁が差し止め請求棄却](https://news.yahoo.co.jp/articles/82dd3f542a4c6514f52c2fe3fac86c201d3ceaa8)
 
-- [中共的研究，跑在新病毒出現之前](https://gettr.com/post/pie07q8d68)
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.png)
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-1.png)
-
-编辑：Irene木木
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
