@@ -2,24 +2,22 @@
 ---
 
 
-## 中国电信企图阻止FCC撤销令，被美国法院驳回
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1715833/)
+## 美国国会启动奥运囚犯项目，谴责中共侵犯人权
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1715871/)
 
 整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-12.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fs.wsj.net%2Fpublic%2Fresources%2Fimages%2FS1-MO644_chinab_G_20211027001124.jpg&amp;imgrefurl=https%3A%2F%2Fcn.wsj.com%2Farticles%2F%25E7%25BE%258E%25E5%259B%25BD%25E4%25BB%25A5%25E5%259B%25BD%25E5%25AE%25B6%25E5%25AE%2589%25E5%2585%25A8%25E4%25B8%25BA%25E7%2594%25B1%25E7%25A6%2581%25E6%25AD%25A2%25E4%25B8%25AD%25E5%259B%25BD%25E7%2594%25B5%25E4%25BF%25A1%25E5%259C%25A8%25E7%25BE%258E%25E5%25BC%2580%25E5%25B1%2595%25E4%25B8%259A%25E5%258A%25A1-11635315008&amp;tbnid=QWX3IzreuLw1JM&amp;vet=12ahUKEwiMkZPW-cb0AhVM7JQKHbBxBr0QMyg0egQIARA5..i&amp;docid=1GX-_xBzyCrzwM&amp;w=553&amp;h=369&amp;itg=1&amp;q=%E4%B8%AD%E5%9B%BD%E7%94%B5%E4%BF%A1&amp;ved=2ahUKEwiMkZPW-cb0AhVM7JQKHbBxBr0QMyg0egQIARA5)
-美国联邦通讯委员会(FCC)此前下令撤销中国电信在美国提供服务的许可，中国电信提出紧急申诉企图阻止，但周四遭联邦上诉法院驳回。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/22.png)[图片来源](https://www.epochtimes.com/gb/21/12/3/n13413917.htm)
+美国国会负责中共国事务的议员们启动奥运囚犯项目，在北京冬奥会到来前突出显示中共国的政治犯，谴责中共侵犯人权。
 
-中国电信子公司要求暂时禁止FCC的撤销令，美国哥伦比亚特区联邦上诉法院的三名法官驳回此申诉。FCC撤销令待完成法律争议的全面检视后，将在1月初生效。
+美国国会及行政当局中共国委员会（Congressional-Executive Commission on China）主席、民主党籍参议员默克利（Jeff Merkley）和共同主席、民主党籍众议员麦戈文（James McGovern）星期四（12月2日）宣布启动奥运囚犯社交媒体项目（#OlympicPrisoner Project），在2022年北京冬奥会到来前的两个月突出显示中共国的政治犯。
 
-中国电信此前警告，公司必须在周六前向美国客户通知此决定，并表示如果不暂时禁止FCC的行动，公司“将被迫停止重大业务，对其业务、声誉和关系造成不可挽回的损失”。
+美国国会及行政当局中共国委员会介绍说，这个倡议项目将突出显示从委员会可以搜寻的政治犯数据库（Political Prisoner Database）中抽取的政治犯。鉴于中共国政府有关2022年冬奥会期间允许自由和不受限制的媒体采访的保证已经受到了争议，项目第一批突出的政治犯案件将是被监禁的记者和公民记者。在随后的几个星期内，委员会将在项目中包括政治犯数据库1500多个已知政治犯的案件中发现的被监禁的维吾尔人、西藏人、劳工活动人士、基督徒、法轮功、香港人、人权律师、妇女权利和民主促进人士。
 
-法院表示将发布一份清单将各种法律论据都考虑在内，但可能需要数月时间。
-
-中国电信周四没有立即发表评论，FCC于10月26日下令要求该公司在1月初之前停止在美国的服务。
+默克利主席和麦戈文共同主席在发布宣布这个倡议项目的视频中说，“中共国政府玷污了奥运会。我们记住耀眼外观后面的人很重要。我们宣布这个努力，不是集中关注外观，而是集中关注因为被主办奥运会的政府不公正监禁而不能庆祝奥运精神的真人。我们鼓励你们与我们一道呼吁国际奥委会和其伙伴们利用他们的影响力向中共国政府施压，要他们释放良心犯，减少他们对奥运精神的玷污。”
 
 消息来源:
 
-[中国电信申诉要求阻止FCC撤销其在美运营许可 遭美国上诉法院驳回](https://cn.reuters.com/article/china-telecom-us-fcc-court-1203-idCNKBS2II021?il=0)
+[美国国会启动奥运囚犯项目，在冬奥前突出中国的政治犯](https://www.voachinese.com/a/cecc-highlights-political-prisoner-in-china-20211202/6337707.html)
 
 *校对：东京樱花团/知了知了*
 *发布：东京樱花团/tdownc2p*

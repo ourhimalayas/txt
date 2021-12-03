@@ -2,75 +2,36 @@
 ---
 
 
-## COVID-19 最新情報｜研究顯示：韓國製青蒿琥酯咯萘啶對新冠病毒有效 經EMA認證 兒童可用
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1715799/)
+## 正道主义，信仰的指引
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1715826/)
 
-**台灣寶島農場 疫情關注組 / 發佈時間｜3/12/2021**
+作者：Mttfly
+编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-27.jpg)图片来源：GTV新闻访谈
+我们平时接触陌生人，也许会对他们特别留意。然而，对于我们自身生存的境况，如同“楚门的世界”一般，难以觉察背后的阴暗。对于共产党统治下的中国我们习以为常，真正指引我们挣脱心灵囚笼的则是内心的信仰。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+初中时期学《中国近代史》，课本上在描述“三大战役”时，盛赞共产党多么伟大，解放军多么勇猛，但书中的一段话却露出狰狞。辽沈战役共歼敌多少万，平津战役歼敌多少万，淮海战役歼敌多少万……当时我被这些数字吓住了。泯灭了多少同胞生命，有必要像秦国割人头记战功一样罗列出来吗？内心有个声音在说：“不应该这样做。”我对中共真面目的了解，始于它对生命的漠视。
 
+如果没有内心真实声音的指引，在共产党编织的宏伟历史中，每个追逐名利的平常人，是不可能觉醒的。因为共产党许诺给人民的“蛋糕”更大——共产。在其一番花言巧语洗脑之下，普通人如果没有信仰，又怎么能逃脱共产党制造的内心囚笼？
 
-Pyramax（青蒿琥酯咯萘啶），成分：青蒿琥酯+Pyronaridine（咯萘啶）。韓國藥廠Shin Poong推出，pyramax藥物適用於兒童未成年人，通過歐洲藥品管理局（英語：European Medicines Agency, EMA）認證。（相關：[認證資料](https://www.ema.europa.eu/en/opinion-medicine-use-outside-EU/human/pyramax)） 。
+共产党除了歌功颂德、以假治国，就是恐吓敲诈、暴力胁迫。当我第一看到“东风快递，使命必达”这句话出自人民日报官方微博上，最初的感受是极为惊讶。党媒怎么会用“快递”来形容导弹？也有人说不就是一个比喻吗？我想说，在比喻之下隐藏着一个可怕的魔鬼。老子曾说，“兵者，不祥之器，不得已而用之；战胜，以丧礼处之”。那么我们再看“东风快递”这四个字，就能发现这是来自魔鬼的恶意。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/image-41.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/截圖-2021-12-02-下午2.16.34.png)Pyramax 用於治療由兩種瘧疾
+老子认为用武力解决问题是不得已的手段，即使用了也不应该为战胜炫耀。反观党媒，把发射导弹比做派发快递，似乎是在做一种嬉闹的事情，完全没有对武力的审慎与严肃。这难道不是流氓式崇拜武力的一种表现吗？“发快递”的说法和流氓平日里吓唬人一样，低俗可恨。我没有想到党媒会公然“发快递”来恐吓世界，更令人震惊的是这种称呼已经普遍流行，并被民众视为一种荣耀。正是共产党统治下善恶已经扭曲、良知处于空位，真相的蒙蔽才使得司马南、金灿荣之流能够横行于中共国。他们动辄扬言“核平”日本和台湾，其的言论当然可憎，但众多国人跟随却是可悲的。在这种大背景下，一向不爱拷问内心的大部分国人，听不见内心真实的声音。中国没有了信仰的指引，最终导致了人民心霾缭绕。
 
+那么，“三大战役”共产党列举的歼敌人数，党媒对“东风快递”戏说称呼，令粉红们内心膨胀、自信心爆棚。对于一些真正有良知、辨善恶的人，内心一再被刺痛。而正是这种刺痛，让身处“楚门世界”般真正有良知的墙内人，得以寻找和发现内心真正的信仰之光，才让爆料革命的战友相聚灭共。拥有信仰的新中国联邦拥有创造的力量，而没有信仰的共产党则像寄生虫一样，无论成长多大，它的命运只有灭亡。
 
-上右圖譯文：
-Pyramax 是一種含有[活性物質](https://www.ema.europa.eu/en/glossary/active-substance)焦萘啶四磷酸和青蒿琥酯的藥物。它有片劑（180 毫克/60 毫克）和顆粒劑（每袋 60 毫克/20 毫克）。
+在信仰的指引下，无数墙内人在共产党的藐视生命中觉醒，逃脱了共产党制造的心灵囚笼。无信仰的共产党膜拜毁灭的力量，新中国联邦人是用正道主义重塑这个世界。共产党一手蓝金黄的诱惑，一手是灭绝人性的毁灭；而爆料革命则是唯真不破，唤起人们内心的信仰，用创造的力量来唤醒世界。
 
-Pyramax 用於治療由兩種瘧疾寄生蟲（*惡性瘧原蟲*和*間日瘧原蟲）*引起的簡單瘧疾*。*「無併發症」是指該疾病不涉及嚴重的、危及生命的症狀。Pyramax 片劑用於體重 20 公斤或以上的成人和兒童，顆粒劑用於體重在 5 至 20 公斤之間的嬰兒和兒童。
+无论是土改对地主土地的没收，还是计划经济时代票证的发行，都是共产党用暴力破坏原有的财富体系，进而掌握重新分配财富的权力。爆料革命新中国联邦则截然不同。以喜币为例，喜联储并不试图颠覆现有的国家主权的货币，而是让喜币与现有主权货币有性繁殖，创造一个真正由大多数人掌握的新金融系统。我想正如新中国联邦名字中的“新”字，并不仅仅与中共国相比是新的，而且与自身相比也是日新月异的，因为我们是有信仰的国度，是创造的国度。如果说没有信仰让共产党走向灭亡，而正道主义则是新中国联邦诞生并唤醒这个世界的原因。
 
-## 青蒿素作為新冠病毒潛在治療藥劑
-![這張圖片的 alt 屬性值為空，它的檔案名稱為 截圖-2021-12-02-下午2.23.40.png](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%88%AA%E5%9C%96-2021-12-02-%E4%B8%8B%E5%8D%882.23.40.png)[https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7572038/](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7572038/)
-上圖譯：如前所述，除*體外*SARS-CoV-2 效應外，包括青蒿琥酯在內的青蒿素還具有抗炎特性。這些包括針對 IL-6 介導的途徑的那些。青蒿琥酯在一系列疾病狀態下的抗炎作用將在後面詳述，表明青蒿素可能有益於治療 COVID-19 患者。
+发布：kk
 
-## **青蒿琥酯咯萘啶 治療新冠有效性**
-
-據相關研究《[Pyronaridine and artesunate are potential antiviral drugs against COVID-19 and influenza](https://www.biorxiv.org/content/10.1101/2020.07.28.225102v1.abstract)》，青蒿琥酯咯萘啶對於治療新冠病毒十分有效。
-![這張圖片的 alt 屬性值為空，它的檔案名稱為 截圖-2021-12-02-下午2.26.40.png](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%88%AA%E5%9C%96-2021-12-02-%E4%B8%8B%E5%8D%882.26.40.png)
-上圖譯：
-自 2019 年 12 月在中國武漢報告得首例人類病例以來，SARS-CoV-2 已在全球 200 多個國家造成數百萬人感染，病死率約為 4.01%（截至 2020 年 7 月 27 日；根據世衛組織情況報告），而 COVID-19 大流行使我們的全球社區陷入癱瘓。儘管一些候選藥物，如瑞德西韋（一種廣泛的抗病毒前藥）和羥氯喹，已經在人體臨床試驗中進行了研究，但它們的療效需要進一步闡明，以用於治療 COVID-19 患者。**在這裡，我們展示了抗瘧藥 Pyramax ®的化學成分吡咯萘啶和青蒿琥酯, 對 SARS-CoV-2 和流感病毒具有抗病毒活性。**
-
-**在人肺上皮 (Calu-3) 細胞中，吡咯萘啶和青蒿琥酯對 SARS-CoV-2 非常有效**，而羥氯喹在濃度低於 100 μM 時沒有顯示任何效果。在病毒生長動力學中，吡咯萘啶和青蒿琥酯均抑制了 SARS-CoV-2 和季節性甲型流感病毒在 Calu-3 細胞中的生長。**總之，我們認為青蒿琥酯和吡咯萘啶可能是用於 COVID-19 和/或流感的人類患者的有效候選藥物**，它們可能在即將到來的冬季共同循環。
-
-## **青蒿琥酯咯萘啶 治療新冠安全性**
-
-青蒿琥酯咯萘啶的安全性實驗仍在進行當中，據《[The Safety and Efficacy of Pyronaridine-artesunate (Pyramax® or Artecom®)in COVID-19 Patients (PROVIDENCE)](https://clinicaltrials.gov/ct2/show/NCT04701606)》研究顯示，參與實驗共402人，實驗時間預計於2022 年 4 月 15 日結束。
-
-## 青蒿素衍生物 可能具有抑制癌症效用
-
-另一研究《[In vitro efficacy of artemisinin-based treatments against SARS-CoV-2](https://www.nature.com/articles/s41598-021-93361-y)》指出，青蒿琥酯、蒿甲醚、青蒿提取物、青蒿素皆有效治療新冠病毒，且可能具有抑制肝癌 Huh7.5 細胞和肺癌 A549 的感染-hACE2細胞效用。
-![這張圖片的 alt 屬性值為空，它的檔案名稱為 截圖-2021-12-02-下午2.34.53.png](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%88%AA%E5%9C%96-2021-12-02-%E4%B8%8B%E5%8D%882.34.53.png)青蒿素、青蒿琥酯和蒿甲醚，具有抗抗 SARS-CoV-2效用
-上圖譯：
-
-青蒿素提取物、青蒿素、青蒿琥酯和蒿甲醚等，均抑制了 SARS-CoV-2 對 VeroE6 細胞、人肝癌 Huh7.5 細胞和人肺癌 A549 的感染-hACE2細胞。
-
-## 吡**咯萘啶（Pyronaridine） 成效可能優於羥氯喹**
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/截圖-2021-12-02-下午2.39.08.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/截圖-2021-12-02-下午2.42.00.png)
-
-
-上圖譯：
-
-比較吡咯萘啶、青蒿琥酯和羥氯喹，在對 SARS-COV-2 有效性的*體外*研究表明，吡咯萘啶、青蒿琥酯的人肺上皮細胞系 Calu-3數值顯示，效力優於羥氯喹。
-
-（本文僅分享相關研究）
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner.png)
-
-
-參考資料
-
-- [In vitro efficacy of artemisinin-based treatments against SARS-CoV-2](https://www.nature.com/articles/s41598-021-93361-y)
-- [The Safety and Efficacy of Pyronaridine-artesunate (Pyramax® or Artecom®)in COVID-19 Patients (PROVIDENCE)](https://clinicaltrials.gov/ct2/show/NCT04701606)
-- [Pyronaridine and artesunate are potential antiviral drugs against COVID-19 and influenza](https://www.biorxiv.org/content/10.1101/2020.07.28.225102v1.abstract)
-- [https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7572038/](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7572038/)
-- [https://www.ema.europa.eu/en/opinion-medicine-use-outside-EU/human/pyramax](https://www.ema.europa.eu/en/opinion-medicine-use-outside-EU/human/pyramax)
-
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
