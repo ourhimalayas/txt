@@ -2,38 +2,25 @@
 ---
 
 
-## 澳洲国防部长：中共视澳洲为朝贡国
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1716166/)
+## 知名医学网站:Omicron变种病毒具有高变异性（1/2）
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1716188/)
 
-**简评：**
+翻译: Rosa
 
-针对破坏地区稳定和违背利益的行为，澳大利亚需要发出自己的声音。面对台湾问题，请不要依赖想象，要现实地分析：行动是会附上代价，但是不行动同样也会附上代价。如果台湾被拿下，下一个就会轮到钓鱼岛。澳洲所倚赖的繁荣和安全的地区秩序，一夜就会改变，中共会成为印太国家唯一的安全和经济伙伴。澳洲会失去主权，成为附属国或朝贡国。
+视频：澳洲天好蓝
+视频来源：https://www.youtube.com/watch?v=LKT7fGL\_Uh0
+医学教育网站MedCram创始人 Roger Seheult博士近期发布视频对最新爆发的新冠变种病毒-Omicron进行了详细讨论。
 
+视频中Roger博士科学的论证了 Omicron变种病毒的高变异性，不禁让人们对大医药集团如此急迫的进入Omicron变种病毒的疫苗研发流程而产生质疑。
 
+请听Roger博士在视频中的讲解。
 
-[GTV视频链接](https://gtv.org/video/id=61a6204f3ff6481adce6676f)
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-**视频字幕：**
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
 
-我认为我们应该大声说出本地区破坏稳定和违背澳大利亚利益的行为。我们这么做的原因首先因为澳大利亚人民期望他们的政府这样做，其次我们必须使那些被胁迫而消失的声音放大，他们与我们一样寻求和平和稳定。因为在说出来的同时，我们也为其他人提供了表达他们关切的空间。
-
-对于现在辩论的台湾问题，我们的分析必须更加诚实。是的，行动的代价是昂贵的，但是也必须分析不行动的代价。如果台湾被控制， 钓鱼岛一定是他们的下一个目标。请不要依赖你的想像。
-
-中共(的意图)再清楚不过了，不一定在言词上，但肯定表现在其行动上。我要指出的是，我们的繁荣和安全所依赖的地区秩序，在一夜之间就会改变。在沒有反击压力的情况下，中共国政府成为印太国家唯一的安全和经济伙伴。这不仅对我们国家来说是一种危险的军事和经济形势，而且对于更多其他国家也是如此。
-
-中共国政府希望占领其他国家吗？我判断不是的。但是他们视我们为朝贡国。放弃主权和放弃遵守国际法律，是我们自联邦以来一直斗争和反对的。是牺牲很多人换来的。1930年代错误的重演，会再次使我们国家和其他国家付出巨大代价。所以发出我们的声音是必要的。
-
-*编辑：【英国伦敦喜庄园编辑部】*
-
-*视频字幕：雨中漫步 | 听写：云岭 | 翻译：Roberts | PR：Dasy | 简评/文字整理/编辑：胖丁 | Page：青山*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
-
-[![](https://spark.adobe.com/page/YP0AHEhXH36co/images/08e741b8-93c4-4f5a-a0fc-01980be4ef39.jpg?asset_id=0e118d02-76b3-4d81-83d0-4f7443b2cea8&amp;img_etag=%22702d7d0cafe4388178e9cfaba0e2e08d%22&amp;size=1024)](https://spark.adobe.com/page/YP0AHEhXH36co/images/08e741b8-93c4-4f5a-a0fc-01980be4ef39.jpg?asset_id=0e118d02-76b3-4d81-83d0-4f7443b2cea8&amp;img_etag=%22702d7d0cafe4388178e9cfaba0e2e08d%22&amp;size=1024)
-
-
+[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+![此图像的alt属性为空；文件名为澳喜图标2-1-2.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,19 +2,22 @@
 ---
 
 
-## 美国与欧盟举行第二次中共政策协调对话会
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1716608/)
+## 美商务部长呼吁众院通过《芯片法案》
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1716665/)
 
-作者：东京樱花团 – 在远方
+作者：日本方舟农场 – Andy5
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月2日，拜登政府宣布，将与欧盟举行第二次针对中共问题的高层对话会，会后，双方也将发表一份联合声明。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/7-1-1.jpg)
-据悉，该对话将聚焦于中共有关人权、多边主义、虚假信息和安全等方面的问题，且美欧双方也会讨论二者在与中共有关的经济和技术领域涉及的各类隐患，预计，台湾问题也将是双方的会议要点之一。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/7-2-1.jpg)
-美国官员表示，欧盟与美国致力于同样的基于民主制度和规范的国际秩序，在对待中共的态度上，双方是天然的伙伴。有资料显示，迄今为止，针对中共日益恶化的人权问题，美国与欧盟已经采取了多项联合行动。
+11月29日，据当地媒体报道，美国商务部长呼吁众议院批准520亿美元的资金用于扩张美国的半导体制造业，这一提案也被称作《芯片法案》。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/8-1-1.jpg)
+据悉，美国商务部长在走访密西根州时，听取了美国汽车行业目前所面临的芯片危机：由于芯片短缺，底特律三大汽车制造商被迫减产或生产削减功能的汽车。与此同时，各大汽车生产厂商正在转型将新研发的电动汽车作为主要产品，从而逐渐取代之前的汽油动力汽车，但是，厂商们如今面临的困境在于，电动汽车需要的芯片数量是汽油动力汽车的两倍。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/8-2-1.jpg)
+密西根州的相关人员表示，鉴于这样的芯片危机至少还将持续一年，如果美国不增加芯片产量的话，密西根州将失去更多的工作岗位。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/8-3-1.jpg)
+资料显示，《芯片法案》属于6月在参议院通过的《创新和竞争法案》的一部分，其核心内容是支持在美国生产半导体芯片，用以避免未来再度出现的供应链终端问题，同时降低美国对中共汽车零部件的依赖。
 
 参考链接：
-[美国与欧盟举行第二次中国政策协调对话会 北京称反对“搞小圈子”](https://www.voachinese.com/a/us-eu-dialogue-on-china-20211202/6336376.html)
+1) . [美国商务部长走访密西根州 呼吁国会为芯片行业扩张提供资金](https://cn.reuters.com/article/us-moc-michigan-chip-plant-1130-idCNKBS2IF06W)
+2) . [Nine governors press U.S. lawmakers to pass semiconductor funding bill](https://www.reuters.com/world/us/nine-governors-press-us-lawmakers-pass-semiconductor-funding-bill-2021-11-10/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
@@ -33,7 +36,11 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
