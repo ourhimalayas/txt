@@ -2,35 +2,25 @@
 ---
 
 
-## 澳州塔斯马尼亚州首府霍比特颁布新疫苗强制令
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1716703/)
+## 英国军情六处爆出CCP海外投资本质
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1716835/)
 
-撰稿：Shirley
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide1-3.jpg)
-图片来自网路
+撰稿：子喜太一
+![](https://assets.gnews.org/wp-content/uploads/2021/11/121A.jpg)图片制作：澳喜农场©森森
+本周早些时间，英国对外情报机构负责人、军情六处处长摩尔（Richard Moore）​称中国正利用债务陷阱和数据陷阱获取其他国家大量关键信息，以增强其全球影响力。
 
-塔斯马尼亚州首府霍比特的疫苗接种率是该州最高的。[两针的接种率已达到95%](https://www.themercury.com.au/news/coronavirus/hobart-tops-race-to-be-vaccinated-new-figures-show/news-story/8441a85aee4b527f0b3709d66253954c)。
+12月1日中国外交部例行记者会上，发言人汪文斌回应摩尔言论时批其蓄意歪曲事实，污蔑中国政策，本质充斥冷战思维，意在挑起意识形态对立。
 
-今日，该市的市议会[宣布了新的疫苗强制政策](https://www.themercury.com.au/news/coronavirus/tassie-pub-and-nightclub-patrons-will-need-to-be-fully-vaccinated-to-be-allowed-entry/news-story/7294b3cae175de57ed6f94bd9c99290f?utm_source=Mercury&amp;utm_medium=email&amp;utm_campaign=Editorial&amp;utm_content=MERC_LATESTNEWS_PM-CUR_01&amp;net_sub_id=287163446&amp;type=curated&amp;position=1&amp;overallPos=1)，要求所有在市议会的工作人员和访客都必须接种疫苗。
+中共通过所谓一带一路，对外投资，最终目的就是获得其他国家的主权或情报数据，从而完全控制这些国家，让这些国家成为中共国的一个隶属国。东南亚、非洲许多国家深受其害，近日由CCP病毒和毒疫苗引发的多国反华事件，也有多年对CCP为他们设下陷阱的仇恨因素在内。
 
-此外，霍巴特的一些公共场所，包括市政厅、议会中心、旅行和信息中心、垃圾回收场和公共游泳池的访客也必须从12 月 15 日起全面接种疫苗。
+CCP虎视眈眈全世界的野心，各个国家都心知肚明，这次由英国情报负责人摩尔挑破这层窗户纸，是给全世界一个信号，正义力量已经不打算再容忍CCP的厚颜无耻和狼子野心了，这也是对CCP的一次警告！而汪文斌用一贯的谎话连篇来回应，恰恰证明了CCP越想否认和掩盖的，越是事实！
 
-塔斯马尼亚的酒吧、俱乐部和夜总会被告知，从下周开始，只有接种了疫苗才能进入这些场所。从12 月15 日起，所有在这些场所工作的员工也必须完全接种疫苗。
+中共的假丑恶会不断被揭露，在全世界以大国自居、假和平的伪装会被慢慢撕掉，CCP的恶魔本质就要昭告天下，再也无处躲藏，正义力量一定会在不久的将来彻底消灭中共！
 
-虽然这些场所没有责任检查客户的疫苗接种情况，但是警方将负责进行抽查，违规者将被处以约770 澳元的罚款。
+新闻参考链接：
 
-由于塔斯马尼亚州严格控制外来访客，一旦发现旅客呈新冠阳性，立即对其实施严格的隔离措施，所以该州对岛内居民处于开放状态，没有任何岛内旅行限制。
-
-这些升级的疫苗强制接种措施，限制了没有接种疫苗的居民的行动范围。但这些措施能否有效地在12月15日该州对澳洲大陆开放后仍然保持零感染，我们将拭目以待。
-
-编辑：云彩
-
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
-
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-
-[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-
+[香港01](https://www.hk01.com/%E5%8D%B3%E6%99%82%E5%9C%8B%E9%9A%9B/707226/%E8%8B%B1%E5%9C%8Bmi6%E7%A8%B1%E4%B8%AD%E5%9C%8B%E8%A3%BD%E9%80%A0%E5%82%B5%E5%8B%99%E5%92%8C%E6%95%B8%E6%93%9A%E9%99%B7%E9%98%B1-%E8%8F%AF%E5%A4%96%E4%BA%A4%E9%83%A8-%E8%93%84%E6%84%8F%E6%AD%AA%E6%9B%B2%E4%BA%8B%E5%AF%A6)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
