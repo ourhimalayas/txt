@@ -2,36 +2,38 @@
 ---
 
 
-## GTV新公司FMV将为战友代持福利币
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1715522/)
+## 日本前防卫大臣警告，中共国武力犯台将付出惨重代价
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1715572/)
 
-作者：纽约香草山教育部- Noemi
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在12月1日的直播中，郭文贵先生宣布，未来，GTV新公司——FMV将成为战友们福利币的代持公司。
+【雅典娜快讯】，紧贴时代脉搏
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-112.png)图片来源：The Japan Times
+整理报道：文泓
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide4-1.jpeg)
+12月3日东京消息，前防卫大臣河野太郎说，东京应通过（加入）AUKUS安全协议以及四方会谈，与澳大利亚和其他盟国合作，向中共国发出明确信号，如果对方试图以武力夺取台湾，势必将付出惨重代价。
 
-郭先生再次强调，此次代持转让只针对喜币上市前战友所得配额的福利币部分，与战友们在二级市场自行购买的喜币无关。
+两个月前，在竞选执政联盟主席并成为日本下一任首相的过程中，这位直言不讳的政治家没有取得成功。他说，如果中共国存在“越界”行为，将遭遇包括经济制裁在内的“高昂代价”。
 
-对于代持的安全性，郭先生详细解释道，FMV公司本身即为属于全体战友的公司，并非为任何个人所持有。未来，FMV公司将以股东的身份分别持有喜联储以及盖特控股公司各5%的股份。
+“全球社会需要让中国知道他们将不得不为此付出非常高的代价，这可能包括某种经济行动”，周四河野先生记者说：“如果中共国武力犯台，无论我们是否愿意，日本都会受到影响，所以我们需要为此做好准备。我们需要与美国和其他国家合作，也许是四方集团和AUKUS。”
 
-郭先生承诺，对于喜交所和联盟委员会所出台的、与代持战友福利币相关的全部文件，郭先生本人都将全权负责。
+本周，日本前首相安倍晋三也表示，如果中共国侵略台湾，日本不能袖手旁观。上个月安先生呼吁加强与澳大利亚的防务合作，并表示东京应在网络安全、人工智能和量子技术等领域与AUKUS合作。
 
-参考链接：[2021年12月1日 文贵大直播](https://gtv.org/video/id=61a774e244c1fe7a6c3c9bad)
+在中共对澳洲国防部长彼得·达顿关于“失去台湾将是中共国统治该地区的第一步”的说法进行反击后，澳大利亚和中共国之间的关系近期仍然紧张。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
+日本也对中共国的领土野心感到担忧。河野先生是执政的自民党的上层人物。他特别提到了中共国对尖阁群岛周围日本水域的入侵，尖阁群岛是两国都声称的无人居住的岛屿群。
 
-总编：文特 
-编辑：Kathy文艺
-校正/发稿：谐趣园
+在日本外国记者俱乐部的一次简报会上，河野先生说，中共国的军事开支在过去30年里增加了42倍，“他们正在部署大量的导弹，可以直达日本”。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+新闻链接：[China will pay heavy price if it invades Taiwan: Japan’s Kono (afr.com)](https://www.afr.com/world/asia/china-will-pay-heavy-price-if-it-invades-taiwan-japan-s-kono-20211203-p59eju)
+
+***发布：Candy***
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,32 +2,36 @@
 ---
 
 
-## 中国电信垂死挣扎 美高院驳回其主张
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1715463/)
+## GTV新公司FMV将为战友代持福利币
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1715522/)
 
-撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/3-7.jpg)
-[图片来源](https://search.yahoo.co.jp/image/search?aa=0&amp;aq=-1&amp;ei=UTF-8&amp;fr=yjapp3_ios_wv&amp;p=%E4%B8%AD%E5%9B%BD%E9%9B%BB%E4%BF%A1&amp;ts=18049#8bf34f0fcf0de08cd9333304f28e2f9a)
+作者：纽约香草山教育部- Noemi
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在12月1日的直播中，郭文贵先生宣布，未来，GTV新公司——FMV将成为战友们福利币的代持公司。
 
-12月2日，位于华盛顿特区的美国联邦上诉法院驳回了中共大型电信公司——中国电信提出的要求，该公司要求禁止联邦通信委员会（FCC）撤销其美国营业执照的决定。该案被驳回。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide4-1.jpeg)
 
-FCC的决定将于明年1月初生效。中国电信的美国子公司曾提出动议，要求在对该案进行全面听证之前，暂停FCC的决定。
+郭先生再次强调，此次代持转让只针对喜币上市前战友所得配额的福利币部分，与战友们在二级市场自行购买的喜币无关。
 
-中国电信此前警告说，必须在12月4日之前向其在美国的客户传达FCC的决定。如果联邦通信委员会的决定不被暂时中止，它“将被迫大幅暂停其业务，这将对其运营、声誉和相关方造成不可挽回的损失”。
+对于代持的安全性，郭先生详细解释道，FMV公司本身即为属于全体战友的公司，并非为任何个人所持有。未来，FMV公司将以股东的身份分别持有喜联储以及盖特控股公司各5%的股份。
 
-与此同时，美国高等法院表示，将确定审理该案的日期。然而，这预计需要几个月的时间。
+郭先生承诺，对于喜交所和联盟委员会所出台的、与代持战友福利币相关的全部文件，郭先生本人都将全权负责。
 
-看来中国电信离彻底被从美国赶出的日子越来越近了。中共“蓝金黄”的又一个爪牙被FCC砍断了。看你还能折腾多久！
+参考链接：[2021年12月1日 文贵大直播](https://gtv.org/video/id=61a774e244c1fe7a6c3c9bad)
 
-信息来源:
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
 
-[中国電信の米免許取り消し、米高裁が差し止め請求棄却](https://news.yahoo.co.jp/articles/82dd3f542a4c6514f52c2fe3fac86c201d3ceaa8)
+总编：文特 
+编辑：Kathy文艺
+校正/发稿：谐趣园
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.png)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

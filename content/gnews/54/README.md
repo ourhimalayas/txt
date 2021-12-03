@@ -2,44 +2,28 @@
 ---
 
 
-## 多伦多市的工作人员想知道：“为什么每个人都袖手旁观，让这种事情发生？”
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1714971/)
+## 洪都拉斯新政府不与中共国建交
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1715347/)
 
-作者：Lincoln Jay
-翻译：KK
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2-11.jpg)[图片来源](https://www.nytimes.com/2021/11/30/world/americas/honduras-election-castro.html)
+洪都拉斯总统当选人卡斯特罗(Xiomara Castro)的副总统人选之一纳斯拉亚(Salvador Nasralla)周四表示，新政府优先考量与美国的关系，不计划与中共国建交，暗示卡斯特罗的立场与选前截然不同。
 
+卡斯特罗以巨大优势赢得周日的总统大选，她选前表示不排除与中共国建交。这将使台湾外交受到重创。卡斯特罗与中共国建交承诺引发中共与美国的外交角力，双方都企图影响洪都拉斯立场。
 
+纳斯拉亚将成为卡斯特罗的三位副总统之一，他表示，洪都拉斯与中共国的任何关系，必须拿来与对美关系权衡考量。当问到洪都拉斯是否会与中共建交，纳斯拉亚回道：“不会”。
 
-现在是 2021 年 12 月，这个新冠的时代让反乌托邦的行为和不正常的新冠规定变得越来越奇怪。
+“没有与中共国的关系，继续维持与台湾的关系，”他称。“我们的贸易盟友、紧密盟友、历史盟友是美国。我们不想与美国对抗，美国是我们的主要贸易盟友。”
 
-我们目前处于各行各业的人们因未披露疫苗接种状况而被解雇。在整个大流行期间不加思索工作的人，现在突然因个人医疗信息而被认为不安全。
+另一名新政府的匿名高层人士也表示，洪都拉斯与中共国的关系不会升级，因为升级的条件并不存在。
 
-正如预期的那样，多伦多市推出了新冠疫苗接种政策，要求所有员工在 2021 年 10 月 30 日之前全面接种新冠疫苗。
+消息来源:
 
-未能遵守该政策的员工将被停职六周且无薪。如果在该期限结束时仍未接种疫苗，多伦多市雇员将因故被解雇，自 2022 年 1 月 2 日起生效。
+[洪都拉斯下任政府立场急转弯 暗示不会与中共国建交](https://cn.reuters.com/article/honduras-president-china-dip-pol-1203-idCNKBS2II051?il=0)
 
-为该市公园、林业和娱乐部门工作的柯蒂斯·威尔逊（Curtis Wilson）目前正在处理这些情况，因为他没有向该市透露他的疫苗接种情况。柯蒂斯过去五年一直在多伦多市工作，并且在整个大流行期间毫无疑问地工作。他每天所做的工作几乎不需要人际互动，但这座城市仍然要求他“完全”接种疫苗。
-
-来源：[https://www.rebelnews.com/city\_of\_toronto\_worker\_wonders\_why\_is\_everybody\_sitting\_back\_and\_letting\_this\_happen](https://www.rebelnews.com/city_of_toronto_worker_wonders_why_is_everybody_sitting_back_and_letting_this_happen)
-
-（文章仅代表作者个人观点）
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)](https://www.gettr.com/user/7UPgogo)
-
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
