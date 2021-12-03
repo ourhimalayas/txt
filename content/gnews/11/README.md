@@ -2,39 +2,37 @@
 ---
 
 
-## 南非官方数据表明：婴幼儿更易感染奥密克戎
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1715437/)
+## 贼喊捉贼，中共的一贯把戏
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1715501/)
 
-撰稿：东京樱花团/风翼
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-27.png)
-图片来源
+作者：香草山金融部 – 闲聊钱币
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
+女子网球协会(WTA)宣布了暂停在中共国的一切赛事以此来表示对前世界网球双打冠军彭帅的声援以及对其它参赛选手安全的顾虑。
 
-路透社12月2日报道，12月1日南非政府发布官方消息：根据从病例较多的地区收集的数据，南非有大量2岁以下儿童因中共病毒的新变种奥密克戎（Omicron）毒株而住院治疗。从病例数量来看，担心变种奥密克戎对婴幼儿带来更大伤害。
+协会首席执行官史蒂夫-西蒙（Steve Simon）周三表示：”虽然我们现在知道彭帅在哪里，但我非常怀疑她是否自由、安全，并且没有受到审查、胁迫和恐吓。”
 
-南非的科学家们说，他们还没有确认奥密克戎菌株与大量婴儿入院之间的直接因果关系，可能会有其他因素起了作用。所以以下是关于这个问题已知和未知的总结。
+他补充说，如果有权势的人可以压制攻击指控，妇女的平等将遭受挫折。”我也非常担心，如果我们2022年在中国举办赛事，我们所有的球员和工作人员都可能面临风险。”
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture1-3.jpg)
+尽管女子网球协会的这一举动会在金钱上遭受巨大损失，但是却受到了其它知名运动员和类似协会的赞举。
 
-值得关注的问题
+中共的喉舌对WTA的反应当然还是如同以往。外交部发言人汪文斌没点名的尖锐地表示抗议，并 “反对将体育政治化”。《环球时报》在一篇社论中也附和说，WTA背叛了奥林匹克精神，将政治带入网球。
 
-根据南非国家传染病研究所（NICD）公布的数据，包括首都比勒陀利亚在内的茨瓦内大都会地区11月共有452人住院治疗。根据国家传染病研究所（NICD）公布的数据，在11月14日至28日期间，包括首都比勒陀利亚在内的茨瓦内大都市地区的452名住院患者中，有52名是2岁以下的儿童。这比任何其他年龄组都要多。然而，如果考虑到各年龄组的人口的话，60岁以上住院的人风险更大。
+中共一方面对内洗脑自己的百姓，“爹亲娘亲，不如党亲”，“一切都是党的” 。对外却谴责别人将政治带入体育。这么明显的贼喊捉贼最终将受到所有人的唾弃和审判。
 
-婴儿感染住院与奥密克戎之间的因果关系是否成立
+参考来源：[贼喊捉贼，中共的一贯把戏](https://www.reuters.com/lifestyle/science/wta-suspends-tournaments-china-over-peng-shuai-situation-2021-12-01/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=2-12-21&amp;utm_campaign=2-12-21)
 
-由于遗传分析的能力有限，只提交了一部分阳性样本。国家传染病研究所的科学家说，这意味着不可能确定入院的婴儿全部是感染了奥密克戎病毒。这个数据中包括所有婴儿是否都感染了中共病毒，也存在不确定性。因为并非所有的人都接受了中共病毒测试。实际上，有呼吸道疾病症状的婴儿都被视为感染了中共病毒，但它们也可能是其他疾病的症状，例如流感。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-1.png)
 
-入院婴儿的严重程度
+编辑/校对/发稿：Hetangyuese
 
-数据显示，在0-4岁入院的儿童中，29%成为重病患者。这一比例与其他几个年龄段的人相比，并且明显低于60岁以上病人的重病发生率。在4岁以下的入院患者中，1%的人死亡。然而，这一组的入院总人数为70人，所以不清楚1%的数字是基于哪个分母。
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-国家信息中心没有回应对此事的询问，解释说它将在本周发布一份关于儿童住院的新报告。
-
-信息来源：
-
-[情報ＢＯＸ：南アで目立つ乳幼児のコロナ入院、オミクロン株と関係は](https://jp.reuters.com/article/omicron-infants-idJPKBN2IH06W)
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.png)
-
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
  
 

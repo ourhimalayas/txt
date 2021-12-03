@@ -2,25 +2,26 @@
 ---
 
 
-## 有爆料澳大利亚NSW州长曾于两年前购进PCR测试股票
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1715325/)
+## 美国和欧盟对中共在周边海域的霸权行径表示强烈关切
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1715375/)
 
-撰稿：Jenny
-截取自电报群/视频翻译：Grass
-10月5日，佩洛提（Dominic Perrottet）在新州自由党投票中战胜了规划部长罗布·斯托克斯（Rob Stokes），成为该州第46任州长，也是该州历史上最年轻的州长，现年39岁。
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/45.jpg)[图片来源](https://k.sina.cn/article_3960997982_ec18085e00100lcfy.html)
+周四（12月2日)，美国副国务卿舍曼(谢尔曼, Wendy Sherman)和欧盟对外行动署(European External Action Service)秘书长Stefano Sannino在华盛顿会晤后发表了联合声明，对中共在南海、东海以及台湾海峡的“单方面问题行径 ”表示强烈关切。
 
-但日前爆出的这段匿名录音实在是令人大跌眼镜，澳洲真的处在水深火热之中。显然一如文贵先生所说，澳洲的州长们在强推疫苗的问题上，一个比一个激进，看起来太令人夷非所思。
+第二届美欧中共国议题对话的会后声明“强调美国和欧盟在投资和发展经济、在可能的领域与中共国合作、以及负责任地管理与中共国的竞争和系统性竞争时，就双方各自的做法保持持续密切接触是非常重要的”。
 
-这段录音最大的爆点是佩洛提（Dominic Perrottet）他开始买进PCR 测试股票，时间追溯到2018年。那时他还是新南威尔士州的财政厅部长。 他是从世界银行买的，你认为这是碰巧吗？他的父亲那时在世界银行工作，他积累PCR测试，并且是在病毒传染两年前？
+声明称，双方讨论了中共在包括新疆、西藏和香港等地的侵犯人权问题，并称双方表示已做好准备，加深信息共享以应对中共资助或支持的信息歪曲问题。
 
-12月3日，新州卫生厅证实，悉尼西区一名没有海外旅游史的中学生感染COVID-19（中共病毒）[变种毒株Omicron](https://www.epochtimes.com/gb/tag/%E5%8F%98%E7%A7%8D%E6%AF%92%E6%A0%AAomicron.html)。是新州第9名感染新毒株的患者。民众特别担心会否再次引发封城。
+“他们还对中共在南海和东海以及台湾海峡采取的单方面问题行径表示强烈关切，这些行动破坏了地区和平与安全，并直接影响到美国和欧盟的安全和繁荣，”声明补充说。
 
-佩洛提自上任后，面对悉尼两次超过几十万人次的抗议示威，依然坚持既定的封锁政策，维持前州长12月15日对未接种疫苗人群解禁（无疫苗护照无法去部分公共场所，例如饭店和美发店等）。
+消息来源:
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-2.jpg)
+[美国和欧盟对中国在周边海域“单方面问题行径”表示强烈关切](https://cn.reuters.com/article/us-eu-china-tw-strait-1203-idCNKBS2II04O?il=0)
 
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

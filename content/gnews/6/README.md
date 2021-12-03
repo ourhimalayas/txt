@@ -2,37 +2,30 @@
 ---
 
 
-## 贼喊捉贼，中共的一贯把戏
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1715501/)
+## 洪都拉斯新政府不打算与中共建交
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1715551/)
 
-作者：香草山金融部 – 闲聊钱币
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
-女子网球协会(WTA)宣布了暂停在中共国的一切赛事以此来表示对前世界网球双打冠军彭帅的声援以及对其它参赛选手安全的顾虑。
+**作者:**青衣
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-5.png)
+（图片来自网络）
 
-协会首席执行官史蒂夫-西蒙（Steve Simon）周三表示：”虽然我们现在知道彭帅在哪里，但我非常怀疑她是否自由、安全，并且没有受到审查、胁迫和恐吓。”
+据《大纪元》2021年12月3日报道，洪都拉斯新当选总统西奥玛拉‧卡斯特罗（Xiomara Castro）的一位高级幕僚周四（12月2日）对媒体表示，卡斯特罗政府不打算与中共建立外交关系，因为它要优先考虑与美国的关系。这一说法显示，洪都拉斯新总统可能改变了选举前的外交立场。
 
-他补充说，如果有权势的人可以压制攻击指控，妇女的平等将遭受挫折。”我也非常担心，如果我们2022年在中国举办赛事，我们所有的球员和工作人员都可能面临风险。”
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture1-3.jpg)
-尽管女子网球协会的这一举动会在金钱上遭受巨大损失，但是却受到了其它知名运动员和类似协会的赞举。
+现年62岁的卡斯特罗自称是民主社会主义者。在周日的总统选举中，卡斯特罗以较大优势赢得了选举。在选举之前，卡斯特罗曾表示，如果她当选，洪都拉斯将与中共国建交，并与台湾断交。
 
-中共的喉舌对WTA的反应当然还是如同以往。外交部发言人汪文斌没点名的尖锐地表示抗议，并 “反对将体育政治化”。《环球时报》在一篇社论中也附和说，WTA背叛了奥林匹克精神，将政治带入网球。
+卡斯特罗的此番说法引发了中美两国之间的外交角力，双方都试图对这个中美洲国家施加影响。
 
-中共一方面对内洗脑自己的百姓，“爹亲娘亲，不如党亲”，“一切都是党的” 。对外却谴责别人将政治带入体育。这么明显的贼喊捉贼最终将受到所有人的唾弃和审判。
+洪都拉斯1941年与中华民国政府建交，是台湾现有的15个邦交国之一。美国国务院在洪都拉斯大选投票前夕表示，美国希望洪都拉斯维持与台湾的邦交关系。
 
-参考来源：[贼喊捉贼，中共的一贯把戏](https://www.reuters.com/lifestyle/science/wta-suspends-tournaments-china-over-peng-shuai-situation-2021-12-01/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=2-12-21&amp;utm_campaign=2-12-21)
+中共近年来一直在中南美洲进行外交布局，不仅与智利和秘鲁签署了自由贸易协议，还同中美洲各国进行越来越密切的经贸往来。同时，中共还积极在中美洲拉拢包括洪都拉斯在内的台湾邦交国。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-1.png)
+据报道，有望成为卡斯特罗的三位副总统之一的萨尔瓦多‧纳斯拉（Salvador Nasralla）周四对《路透社》表示，洪都拉斯必须在与中（共）国和与美国的关系之间进行权衡。
 
-编辑/校对/发稿：Hetangyuese
+当被问及洪都拉斯是否会与中共国建立外交关系时，纳斯拉回答说：“不会。”他还补充说：“我们的贸易盟友、我们的亲密盟友、我们的历史盟友是美国。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+此外，另一位不愿透露姓名的卡斯特罗继任政府的高级政治家也告诉《路透社》，洪都拉斯不会加强对华关系，因为不存在这样的“条件”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+新闻链接：[https://www.epochtimes.com/gb/21/12/3/n13413815.htm](https://www.epochtimes.com/gb/21/12/3/n13413815.htm)
 
  
 

@@ -2,21 +2,24 @@
 ---
 
 
-## 秘翻在线 :快闪店铺抢劫事件在美国逐渐增加
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1715261/)
+## 有爆料澳大利亚NSW州长曾于两年前购进PCR测试股票
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1715325/)
 
-撰稿：William
-校对：牛小妹
-![](https://assets.gnews.org/wp-content/uploads/2021/12/biden-1.jpg)
-图片来源：网路
+撰稿：Jenny
+截取自电报群/视频翻译：Grass
+10月5日，佩洛提（Dominic Perrottet）在新州自由党投票中战胜了规划部长罗布·斯托克斯（Rob Stokes），成为该州第46任州长，也是该州历史上最年轻的州长，现年39岁。
 
-根据《零对冲》(Zero Hedge) 的报导,店铺快闪抢劫成为美国各大城市最担心的事件，不仅发生在旧金山的 Louis Vuitton、Burberry 和 Yves Saint Laurent 等精品店铺，南加州的 Canoga Park Nordstrom等高端商家也被波及。在五分钟以内，20个多个人快速冲进去把店内例如珠宝、首饰以及精品皮件等高单价商品扫空，然后再进行分赃获利。
+但日前爆出的这段匿名录音实在是令人大跌眼镜，澳洲真的处在水深火热之中。显然一如文贵先生所说，澳洲的州长们在强推疫苗的问题上，一个比一个激进，看起来太令人夷非所思。
 
-前费城警察局长查尔斯•拉姆齐(Charles Ramsey)认为，许多高端零售店抢劫的情况可能变得更严重。拉姆齐说处理这类问题十分困难，过轻的惩罚是一个主要原因，一些地区检察官甚至表示不再起诉入店行窃，商店抢劫事件只会越来越多，快闪店内抢劫行为远比入店行窃还要更严重。
+这段录音最大的爆点是佩洛提（Dominic Perrottet）他开始买进PCR 测试股票，时间追溯到2018年。那时他还是新南威尔士州的财政厅部长。 他是从世界银行买的，你认为这是碰巧吗？他的父亲那时在世界银行工作，他积累PCR测试，并且是在病毒传染两年前？
 
-目前全球病毒、疫苗灾难笼罩，导致就业危机以及公务人员、警务人员的短缺。无业歹徒看准警察人力短缺以及被逮补后的判刑轻微，高单价精品商家的抢劫事件愈来愈多，严重影响中共疫苗肆虐后的社会安全。
+12月3日，新州卫生厅证实，悉尼西区一名没有海外旅游史的中学生感染COVID-19（中共病毒）[变种毒株Omicron](https://www.epochtimes.com/gb/tag/%E5%8F%98%E7%A7%8D%E6%AF%92%E6%A0%AAomicron.html)。是新州第9名感染新毒株的患者。民众特别担心会否再次引发封城。
 
-新闻来源：[Flash Mob Looting “Will Continue” Across Country: Former Police Commissioner](http://Flash%20Mob%20Looting%20&quot;Will%20Continue&quot;%20Across%20Country:%20Former%20Police%20Commissioner)
+佩洛提自上任后，面对悉尼两次超过几十万人次的抗议示威，依然坚持既定的封锁政策，维持前州长12月15日对未接种疫苗人群解禁（无疫苗护照无法去部分公共场所，例如饭店和美发店等）。
+
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-2.jpg)
+
 
  
 

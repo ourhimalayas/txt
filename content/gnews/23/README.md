@@ -2,40 +2,28 @@
 ---
 
 
-## 在新病毒 #奥密克戎 爆發之前 中共國早已完成前期的技术研究
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1715309/)
+## 洪都拉斯新政府不与中共国建交
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1715347/)
 
-采集人：祈望明天会更好
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2-11.jpg)[图片来源](https://www.nytimes.com/2021/11/30/world/americas/honduras-election-castro.html)
+洪都拉斯总统当选人卡斯特罗(Xiomara Castro)的副总统人选之一纳斯拉亚(Salvador Nasralla)周四表示，新政府优先考量与美国的关系，不计划与中共国建交，暗示卡斯特罗的立场与选前截然不同。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-25.png)
+卡斯特罗以巨大优势赢得周日的总统大选，她选前表示不排除与中共国建交。这将使台湾外交受到重创。卡斯特罗与中共国建交承诺引发中共与美国的外交角力，双方都企图影响洪都拉斯立场。
 
-12月1日 2021年指,世界卫生组织新冠病毒技术负责人范克尔克霍夫（Maria Van Kerkhove）表示，专家推断多个Omicron的传染力可能，它的传染力比目前流行的Delta病毒株更高，重申大家应面对最理想或最坏的情况。
+纳斯拉亚将成为卡斯特罗的三位副总统之一，他表示，洪都拉斯与中共国的任何关系，必须拿来与对美关系权衡考量。当问到洪都拉斯是否会与中共建交，纳斯拉亚回道：“不会”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-26.jpg)
+“没有与中共国的关系，继续维持与台湾的关系，”他称。“我们的贸易盟友、紧密盟友、历史盟友是美国。我们不想与美国对抗，美国是我们的主要贸易盟友。”
 
-在全球尚在研究这新病毒的变异株及传染力时, 中共国在11 月 30 日 2021年, 在微博一则贴文, 中央疾控 病毒预防控制所 所长许文波 已推出灭活疫苗, 蛋白疫苗, 载体疫苗都已经做了前期的技术研究, 包括一些序列的设计已经开始了。
+另一名新政府的匿名高层人士也表示，洪都拉斯与中共国的关系不会升级，因为升级的条件并不存在。
 
-由此可印证每次病毒的出现, 中共国就像是引导世界对病毒及疫苗做指导棋. 先由中共国内预先施行新病毒,打疫苗的演习, 之后, 全球就不避讳的照单模仿, 一切都在邪恶势力的剧本中全球上演。
+消息来源:
 
-演戏的是疯子,付钱看戏的是傻子, 只有新中国联邦人, 最终拿出解药 救付钱看戏身心双重受伤的民众, 希望借此能唤醒无知的人们！
+[洪都拉斯下任政府立场急转弯 暗示不会与中共国建交](https://cn.reuters.com/article/honduras-president-china-dip-pol-1203-idCNKBS2II051?il=0)
 
-参考链接：
-
-- [中共的研究，跑在新病毒出現之前](https://gettr.com/post/pie07q8d68)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-1.png)
-
-编辑：Irene木木
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
