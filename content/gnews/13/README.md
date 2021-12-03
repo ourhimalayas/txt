@@ -2,41 +2,34 @@
 ---
 
 
-## 新变种病毒传染性高但致命性弱
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1716744/)
+## 美国最新民调：65%受访者认为中共国是美国的敌人
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1716787/)
 
-作者：香草山农场 – 晓仙女
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月1日，郭文贵先生在直播中谈到新冠新变种病毒时表示，如果这次共产党放出的新病毒出现高致死或致残率的特征，那人类的灾难就真的要到来了。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/9-1-1.jpg)
-而世界卫生组织于11月26日公布的消息显示，新变种病毒的表现特征为活性很高，但致死率低。同时，据科学家反馈的信息，对于新冠疫情来说，这种表现特征的新变种病毒是好事。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/9-2-1.jpg)
-对此，郭先生也再次强调，青蒿素对新冠病毒症状绝对有效，且它不仅能解新冠病毒，还能解新冠疫苗之毒，甚至将彻底解决新冠疫苗带来的灾难——这也是爆料革命带给人类最大的贡献。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/9-3.jpg)
-参考链接：
-[2021年12月1日 文贵大直播：Hcoin To The Moon伴奏 荣登iTunes榜首；香港股市经济；澳门地下钱庄，孟建柱在东南亚的涉黑布局；Omicron变种病毒及疫苗灾难和青蒿素功效；数字货币监管及加密货币市场走向](https://gtv.org/video/id=61a774e244c1fe7a6c3c9bad)
+**撰稿：日本东京方舟农场 书生**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+12月1日，美国发布的一份重要国安民调显示，65%受访者认为中共国是美国的敌人。
 
-总编：Irene木木
-编辑：Kathy文艺
-校正/发稿：Fei797
+据报道，这份民调由美国保守派智库“里根总统基金会暨研究所”（Ronald Reagan Presidential Foundation and Institute RRPFI）委托灯塔研究所（Beacon Research）进行，通过电话与网络在10月25日至11月7日间对2523名美国人展开调查，其误差范围为1.96%。
 
-**更多资讯，更多关注**
+据调查结果，有65%的受访者认为中共国是美国的敌人，有52%的受访者将中共国列为美国的头号对手，远高于4年前的21%。这份民调还显示：称俄罗斯为美国头号对手的受访者为14%，北韩12%，远低于中国。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/微信图片_20211203153815.png)U.S. President Joe Biden during a speech in the Eisenhower Executive Office Building’s South Court Auditorium at the White House in Washington, U.S., November 23, 2021. © REUTERS/Evelyn Hockstein
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+RRPFI声明表示，对于美国面对的威胁，民主共和两党有共识。过半数受访者首度表示，单一国家对美国构成最大威胁的是中共国。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+里根总统基金会暨研究所所长扎克海姆（Roger Zakheim）指出，根据该调查，“认为中共国是美国最大威胁的受访者持续增加，从中可以看出中共国（对美国）构成多大挑战。”他强调：“人们知道，中共国构成的威胁并不限于安全威胁，还涉及到经济问题、政治问题和人权问题。”
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+*参考链接：*
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[美国最新国安民调：65%受访者认为中国是美国的敌人](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211201-%E7%BE%8E%E5%9B%BD%E6%9C%80%E6%96%B0%E5%9B%BD%E5%AE%89%E6%B0%91%E8%B0%83-65-%E5%8F%97%E8%AE%BF%E8%80%85%E8%AE%A4%E4%B8%BA%E4%B8%AD%E5%9B%BD%E6%98%AF%E7%BE%8E%E5%9B%BD%E7%9A%84%E6%95%8C%E4%BA%BA)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+* * *
 
+*素材采编：书生*
 
+*编辑：文顺*
+
+*发布：Ranting*
 
  
 

@@ -2,34 +2,26 @@
 ---
 
 
-## 美国最新民调：65%受访者认为中共国是美国的敌人
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1716787/)
+## 美国最新民调显示：大多数美国人认为中共超过俄罗斯成为美国最大威胁
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1716812/)
 
-**撰稿：日本东京方舟农场 书生**
+韩国首尔天池农场
+翻译：zzballack　
+上传：无明逆流
 
-12月1日，美国发布的一份重要国安民调显示，65%受访者认为中共国是美国的敌人。
+据英国《每日邮报》（Daily Mail）12月1日报道，一项最新民意调查的结果让人震惊，52%的受访者认为中共、而不是普京的俄罗斯，对美国构成最大威胁，而在2018年，这一数字只有21%。现在只有14%的人认为俄罗斯是最大威胁。另外超过70%的人担心中美会爆发军事冲突。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/T23T6f0534ae43593.jpg)图片来源：原新闻
+里根国防调查（Reagan National Defense Survey）发现，中共已经超过了俄罗斯、朝鲜和阿富汗，成为美国最大的潜在威胁。“在我们的调查中，大多数美国人第一次认定一个国家是美国面临的最大威胁：中共国。”55%的民主党人和64%的共和党人认为中共确实构成了最大威胁。
 
-据报道，这份民调由美国保守派智库“里根总统基金会暨研究所”（Ronald Reagan Presidential Foundation and Institute RRPFI）委托灯塔研究所（Beacon Research）进行，通过电话与网络在10月25日至11月7日间对2523名美国人展开调查，其误差范围为1.96%。
+当被问及是否预见到与中共的潜在军事冲突时，71%的受访者表示肯定。其中，79%的共和党人和66%的民主党人认为世界两个超级大国之间可能会发生战争。
 
-据调查结果，有65%的受访者认为中共国是美国的敌人，有52%的受访者将中共国列为美国的头号对手，远高于4年前的21%。这份民调还显示：称俄罗斯为美国头号对手的受访者为14%，北韩12%，远低于中国。
+37%的美国人认为，美国需要将军事注意力从中东转移到东亚地区。认为美国应聚焦中东的只有17％。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/微信图片_20211203153815.png)U.S. President Joe Biden during a speech in the Eisenhower Executive Office Building’s South Court Auditorium at the White House in Washington, U.S., November 23, 2021. © REUTERS/Evelyn Hockstein
+在调查中，71%的美国人承认台湾是一个 “独立国家”。50%的人支持美国对中共入侵台湾作出军事回应。
 
-RRPFI声明表示，对于美国面对的威胁，民主共和两党有共识。过半数受访者首度表示，单一国家对美国构成最大威胁的是中共国。
+关于中共病毒，许多美国人认为它是由武汉实验室的科学家制造的，这也是中共被视为头号威胁的原因之一。近50%的人说他们“很有可能”相信这一理论，72%的人说他们“有可能”相信这一理论。
 
-里根总统基金会暨研究所所长扎克海姆（Roger Zakheim）指出，根据该调查，“认为中共国是美国最大威胁的受访者持续增加，从中可以看出中共国（对美国）构成多大挑战。”他强调：“人们知道，中共国构成的威胁并不限于安全威胁，还涉及到经济问题、政治问题和人权问题。”
-
-*参考链接：*
-
-[美国最新国安民调：65%受访者认为中国是美国的敌人](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211201-%E7%BE%8E%E5%9B%BD%E6%9C%80%E6%96%B0%E5%9B%BD%E5%AE%89%E6%B0%91%E8%B0%83-65-%E5%8F%97%E8%AE%BF%E8%80%85%E8%AE%A4%E4%B8%BA%E4%B8%AD%E5%9B%BD%E6%98%AF%E7%BE%8E%E5%9B%BD%E7%9A%84%E6%95%8C%E4%BA%BA)
-
-* * *
-
-*素材采编：书生*
-
-*编辑：文顺*
-
-*发布：Ranting*
+相关新闻：[Majority of Americans point to China – not Russia – as biggest threat to US in poll: 71% say they fear military conflict as tensions mount over Taiwan](https://www.dailymail.co.uk/news/article-10264367/Majority-Americans-finger-China-biggest-threat-poll-71-fear-military-conflict.html)
 
  
 

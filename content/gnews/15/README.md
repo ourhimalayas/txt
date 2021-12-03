@@ -2,27 +2,24 @@
 ---
 
 
-## 美商务部长呼吁众院通过《芯片法案》
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1716665/)
+## 新变种病毒传染性高但致命性弱
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1716744/)
 
-作者：日本方舟农场 – Andy5
+作者：香草山农场 – 晓仙女
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月29日，据当地媒体报道，美国商务部长呼吁众议院批准520亿美元的资金用于扩张美国的半导体制造业，这一提案也被称作《芯片法案》。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/8-1-1.jpg)
-据悉，美国商务部长在走访密西根州时，听取了美国汽车行业目前所面临的芯片危机：由于芯片短缺，底特律三大汽车制造商被迫减产或生产削减功能的汽车。与此同时，各大汽车生产厂商正在转型将新研发的电动汽车作为主要产品，从而逐渐取代之前的汽油动力汽车，但是，厂商们如今面临的困境在于，电动汽车需要的芯片数量是汽油动力汽车的两倍。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/8-2-1.jpg)
-密西根州的相关人员表示，鉴于这样的芯片危机至少还将持续一年，如果美国不增加芯片产量的话，密西根州将失去更多的工作岗位。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/8-3-1.jpg)
-资料显示，《芯片法案》属于6月在参议院通过的《创新和竞争法案》的一部分，其核心内容是支持在美国生产半导体芯片，用以避免未来再度出现的供应链终端问题，同时降低美国对中共汽车零部件的依赖。
-
+12月1日，郭文贵先生在直播中谈到新冠新变种病毒时表示，如果这次共产党放出的新病毒出现高致死或致残率的特征，那人类的灾难就真的要到来了。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/9-1-1.jpg)
+而世界卫生组织于11月26日公布的消息显示，新变种病毒的表现特征为活性很高，但致死率低。同时，据科学家反馈的信息，对于新冠疫情来说，这种表现特征的新变种病毒是好事。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/9-2-1.jpg)
+对此，郭先生也再次强调，青蒿素对新冠病毒症状绝对有效，且它不仅能解新冠病毒，还能解新冠疫苗之毒，甚至将彻底解决新冠疫苗带来的灾难——这也是爆料革命带给人类最大的贡献。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/9-3.jpg)
 参考链接：
-1) . [美国商务部长走访密西根州 呼吁国会为芯片行业扩张提供资金](https://cn.reuters.com/article/us-moc-michigan-chip-plant-1130-idCNKBS2IF06W)
-2) . [Nine governors press U.S. lawmakers to pass semiconductor funding bill](https://www.reuters.com/world/us/nine-governors-press-us-lawmakers-pass-semiconductor-funding-bill-2021-11-10/)
+[2021年12月1日 文贵大直播：Hcoin To The Moon伴奏 荣登iTunes榜首；香港股市经济；澳门地下钱庄，孟建柱在东南亚的涉黑布局；Omicron变种病毒及疫苗灾难和青蒿素功效；数字货币监管及加密货币市场走向](https://gtv.org/video/id=61a774e244c1fe7a6c3c9bad)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
 总编：Irene木木
-编辑：Lakeman文仁
+编辑：Kathy文艺
 校正/发稿：Fei797
 
 **更多资讯，更多关注**

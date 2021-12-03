@@ -2,16 +2,17 @@
 ---
 
 
-## 【#G时新闻】“完全接种”NBA 球星检测结果不明被迫停赛
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/1716900/)
+## 【文贵先生大直播PPT】美国和世界经济最新动态
+` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1716997/)
 
-**加拿大温哥华扬帆农场** 播报：文雅 制作：文雅
+撰稿：三票先生
+美工：Bobby（文俊），青山
 
-🔥“完全接种”NBA 球星勒布朗·詹姆斯检测结果不明被迫停赛。
-🔥 冠状病毒实验性疫苗从未产生证据表明，疫苗可以阻止感染或传播。 他们甚至没有声称的那样减少住院治疗。
+【2021年12月3日文贵先生大直播PPT：美国和世界经济最新动态】
+![](https://assets.gnews.org/wp-content/uploads/2021/12/29.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/22.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/23.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/24.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/25.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/26.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/27.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/111-2.jpg)
+* * *
 
-盖特链接：[https://gettr.com/post/pimrxf9e72](https://gettr.com/post/pimrxf9e72)
-编辑/上传：七觉花
+发稿：云起时
 
  
 

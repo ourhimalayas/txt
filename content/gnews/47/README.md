@@ -2,26 +2,23 @@
 ---
 
 
-## 美国国会启动奥运囚犯项目，谴责中共侵犯人权
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1715871/)
+## COVID-19 最新情报｜默克尔：现在是采取行动的时候了！德国禁止未接种者出入大部分公共场所
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1715805/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/22.png)[图片来源](https://www.epochtimes.com/gb/21/12/3/n13413917.htm)
-美国国会负责中共国事务的议员们启动奥运囚犯项目，在北京冬奥会到来前突出显示中共国的政治犯，谴责中共侵犯人权。
+**撰文｜ 台湾宝岛农场 疫情关注组 / 发布时间｜3/12/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-美国国会及行政当局中共国委员会（Congressional-Executive Commission on China）主席、民主党籍参议员默克利（Jeff Merkley）和共同主席、民主党籍众议员麦戈文（James McGovern）星期四（12月2日）宣布启动奥运囚犯社交媒体项目（#OlympicPrisoner Project），在2022年北京冬奥会到来前的两个月突出显示中共国的政治犯。
+德国总理默克尔周四（2日）宣布，未接种疫苗人士将被禁止进入除日需品商店之外的其他公共场所。
 
-美国国会及行政当局中共国委员会介绍说，这个倡议项目将突出显示从委员会可以搜寻的政治犯数据库（Political Prisoner Database）中抽取的政治犯。鉴于中共国政府有关2022年冬奥会期间允许自由和不受限制的媒体采访的保证已经受到了争议，项目第一批突出的政治犯案件将是被监禁的记者和公民记者。在随后的几个星期内，委员会将在项目中包括政治犯数据库1500多个已知政治犯的案件中发现的被监禁的维吾尔人、西藏人、劳工活动人士、基督徒、法轮功、香港人、人权律师、妇女权利和民主促进人士。
+默克尔表示：“全国所有文化及休闲场所将只对接种过疫苗或康复人士开放。” 她强调，“我们了解到情况非常严重，除了已经采取的措施之外，我们还希望采取进一步措施。”
 
-默克利主席和麦戈文共同主席在发布宣布这个倡议项目的视频中说，“中共国政府玷污了奥运会。我们记住耀眼外观后面的人很重要。我们宣布这个努力，不是集中关注外观，而是集中关注因为被主办奥运会的政府不公正监禁而不能庆祝奥运精神的真人。我们鼓励你们与我们一道呼吁国际奥委会和其伙伴们利用他们的影响力向中共国政府施压，要他们释放良心犯，减少他们对奥运精神的玷污。”
+另外，默克尔还透露指，打算议会辩论后，最快明年 2 月实施全国范围内的疫苗接种任务。目前，德国 8320 万人口中约有 68.7% 接种了疫苗。
 
-消息来源:
+日前，欧盟委员会主席乌尔苏拉·冯·德莱恩刚刚公开建议，认为[欧盟国家是时候开始评估为所有公民强制接种COVID-19 疫苗，各成员国应展开积极讨论。](https://gnews.org/zh-hant/1713006/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-dddpace-Channel-Banner.jpg)
+来源｜[Variety](https://variety.com/2021/politics/news/germany-unvaccinated-people-ban-covid19-angela-merkel-1235124225/)
 
-[美国国会启动奥运囚犯项目，在冬奥前突出中国的政治犯](https://www.voachinese.com/a/cecc-highlights-political-prisoner-in-china-20211202/6337707.html)
-
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
