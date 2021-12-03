@@ -2,46 +2,88 @@
 ---
 
 
-## 比利时法院宣布新冠疫苗护照是非法的
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1715578/)
+## 视频| 习近平对郭先生的一系列打探
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1715675/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+## 摘自2021.12.1郭先生大直播
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/c3d5bf8e-68f9-4a82-b135-ab264c7b7aa6-GettyImages-1303285991.jpg)
-
-
- 
-图片来源：USA Today
+制作：香草山视频部
 
 
-#### 编译：小红帽
 
-比利时一家法院周二宣布新冠（COVID）疫苗护照计划非法，并威胁要对实施该计划的地区进行罚款。
+习近平在中东国家领导人访问的时候
+站那儿等着的时候是吧
+他问那个那姓倪的
+阿布扎比的姓倪 倪大使
+还有外交部长的陈国华（音译）
+陈国华（音译） 你怎么看郭文贵啊
+然后陈国华（音译）说这小子是犯罪分子
+看着姓倪的 姓倪说是犯罪分子
+习没吱声
+你想能在这两人面前问郭文贵是啥人
+他这么大个人物
+如果郭文贵不是个人物能问吗？
+美国某代表团见了习以后
+然后那个人就坐下来聊天
+他说我知道你啊
+你和郭文贵认识
+他这个美国人说 谢谢你还记得
+他说我们俩以前见过面
+当时是郭文贵在场
+还有当时的李源潮
+我非常清楚啊
+今天老朋友见面了
+这个人原来是支持台湾的
+后来到北京去见面 跟习见面
+跟李源潮 我在场是吧
+这美国人很惊讶 习的记性那么好
+都谈完了官方废话完了
+都离开了,诶 停… 老朋友咱俩再聊几句
+郭文贵在美国你觉得安全吗？
+这个人说你是什么意思
+你是要把他弄回来呢？
+还是要杀掉呢 ？
+习说：“我们没有杀他的意思
+但是我们确实要尝试要把他弄回来。“
+这个美国朋友说你弄不回去
+因为郭文贵现在已经不是你中国的郭文贵了
+已经世界的郭文贵了
+习点点头
+他说：“你们会不会想办法在美国刺杀他”
+习说绝对不会的
+他说那你们还想什么
+他说：“你觉得郭文贵他会愿意回到中国吗？
+我请问你这句话
+或者你本人跟他聊聊“
+这人说:“他不会的 我来之前见过郭文贵”
+习说这个人对我们的了解呀 是很深刻的
+这个人现在闹腾的事情影响很大
+希望他好自为之
+你尽量帮帮他吧
+你可以直接和我秘书联系
+告诉秘书把电话直接留下来
+直接可以给你联系
+这是2017年年底
 
-比利时支持自由的团体Notre Bon Droit（NBD）宣布，纳慕尔（Namur）初审法院裁定，比利时瓦隆区（Wallonia）必须在一周内解决其新冠安全票（Covid Safe Ticket）政策的“明显违法行为”，否则每延迟一天就面临5000欧元（5660美元）的罚款。（注：新冠安全票与新冠疫苗护照性质类似。）
 
-瓦隆区包括比利时南部的大部分地区，有大约350万人口。
 
-法院指出10月21日发布的瓦隆疫苗护照法令的几个法律问题，包括与欧洲法律和个人数据保护权的 “明显矛盾”。
 
-周二的裁决还表示，该命令可能违反了相称性原则，并批评它在“没有客观和科学理由”的情况下强加歧视。
 
-瓦隆政府已对该决定提出上诉，并在一份声明中表示，尽管纳慕尔法院作出了裁决，但瓦隆政府不打算暂停使用新冠安全票。
+发稿：雪梨
 
-瓦隆政府说：“这一决定并没有取消瓦隆的法令，因此，新冠安全票仍然适用于瓦隆地区”。据公告称，在上诉过程中，该规则仍然有效。
+![This image has an empty alt attribute; its file name is 8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg)
 
-NBD团体对布鲁塞尔的另一新冠安全票政策提起了类似的诉讼，该诉讼将于12月8日开庭。
+**更多资讯，更多关注**
 
-**参考新闻：**[Belgian Court: COVID Vaccine Passports Are Illegal (humansarefree.com)](https://humansarefree.com/2021/12/belgian-court-covid-vaccine-passports-are-illegal.html)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-***发布：小红帽***
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

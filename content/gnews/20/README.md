@@ -2,53 +2,76 @@
 ---
 
 
-## 除了新冠之外，疫情期间最令人惊讶的9种死亡方式
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1715666/)
+## COVID-19 最新情報｜研究顯示：韓國製青蒿琥酯咯萘啶對新冠病毒有效 經EMA認證 兒童可用
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1715799/)
 
-2021年12月2日，星期四
+**台灣寶島農場 疫情關注組 / 發佈時間｜3/12/2021**
 
-作者：Sdwells发布于The Final Warning
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-翻译报道：沉默老歌
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Death-Holocaust-Vaccine-Syringe-e1627558900448.jpg)图源：网络
-大众媒体几乎将所有死亡归类为 新冠 或“与 新冠 相关”的死亡。 如果我们用处方药类比，我们就可以将癌症、糖尿病和痴呆症导致的每一次死亡都标记为“与处方有关的”死亡。 如果你考虑有多少人在医院里被超级细菌杀死，比如 MRSA，医院可以将几乎所有的手术死亡都归为 MRSA 相关，而这些统计数据将比现在高得多。 然而，数据不会撒谎、夸大或扭曲数字以适应叙述——只有人和假新闻可以。
 
-这就是为什么美国人在接种 Covid 疫苗后没有意识到真正的死亡原因，而这些原因在被操纵的主流媒体、大医药公司和医院的三方合作中无处可寻（MSM-Big-Pharma-Hospital Machine）。
+Pyramax（青蒿琥酯咯萘啶），成分：青蒿琥酯+Pyronaridine（咯萘啶）。韓國藥廠Shin Poong推出，pyramax藥物適用於兒童未成年人，通過歐洲藥品管理局（英語：European Medicines Agency, EMA）認證。（相關：[認證資料](https://www.ema.europa.eu/en/opinion-medicine-use-outside-EU/human/pyramax)） 。
 
-**讽刺的是，美国人对死亡的恐惧驱使他们被致命朊病毒（prions）刺伤**
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/image-41.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/截圖-2021-12-02-下午2.16.34.png)Pyramax 用於治療由兩種瘧疾
 
-如果医学语言是诚实的，那么医生和护士必须在每个人接种 Covid 疫苗之前通知他们，死于该疫苗的几率高于死于 Covid-19 或其任何变体。 有多少人会说“不”呢？
 
-如果医学法律要求患者阅读疫苗说明书，说明其固有的副作用、不良事件、严重伤害、死亡人数以及所有有毒乳化剂、佐剂、过敏原、细菌、转基因动物组织、其他致命病毒， 重金属，甚至使人类婴儿细胞流产。然后大多数人会不知所措，他们会走开并“冒险”与 新冠共存。
+上右圖譯文：
+Pyramax 是一種含有[活性物質](https://www.ema.europa.eu/en/glossary/active-substance)焦萘啶四磷酸和青蒿琥酯的藥物。它有片劑（180 毫克/60 毫克）和顆粒劑（每袋 60 毫克/20 毫克）。
 
-疫苗一直在杀死和致残人，只是没有出现在新闻中。 每当某种毒药需要超过一两天的时间才能杀死某人时，将责任推卸给其他人并不难，尤其是如果他们有预先存在的慢性健康状况。例如，三分之二的美国人现在正在受苦。
+Pyramax 用於治療由兩種瘧疾寄生蟲（*惡性瘧原蟲*和*間日瘧原蟲）*引起的簡單瘧疾*。*「無併發症」是指該疾病不涉及嚴重的、危及生命的症狀。Pyramax 片劑用於體重 20 公斤或以上的成人和兒童，顆粒劑用於體重在 5 至 20 公斤之間的嬰兒和兒童。
 
-美国人的印象是，CDC（疾控中心）和 FDA（食品药品监督管理局）机构推荐的所有药物、治疗方法和疫苗都希望拯救人们免于死亡，但事实恰恰相反。 这就是为什么每种疫苗（尤其是新冠疫苗）导致的每一次死亡都归咎于其他事情——其他任何事情。 现在是时候将您的搜索引擎更改为“DuckDuckGo”并保持这种状态，这样您也可以阅读有关通过 Google 无法找到的 9 种死于 Covid 疫苗的方法的所有信息。
+## 青蒿素作為新冠病毒潛在治療藥劑
+![這張圖片的 alt 屬性值為空，它的檔案名稱為 截圖-2021-12-02-下午2.23.40.png](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%88%AA%E5%9C%96-2021-12-02-%E4%B8%8B%E5%8D%882.23.40.png)[https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7572038/](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7572038/)
+上圖譯：如前所述，除*體外*SARS-CoV-2 效應外，包括青蒿琥酯在內的青蒿素還具有抗炎特性。這些包括針對 IL-6 介導的途徑的那些。青蒿琥酯在一系列疾病狀態下的抗炎作用將在後面詳述，表明青蒿素可能有益於治療 COVID-19 患者。
 
-**人们在接种 Covid 疫苗后不久死亡的 9 大非 Covid 原因：**
+## **青蒿琥酯咯萘啶 治療新冠有效性**
 
-#1. 来自 Covid 疫苗的血凝块会导致心肌炎、心脏病发作和中风。
+據相關研究《[Pyronaridine and artesunate are potential antiviral drugs against COVID-19 and influenza](https://www.biorxiv.org/content/10.1101/2020.07.28.225102v1.abstract)》，青蒿琥酯咯萘啶對於治療新冠病毒十分有效。
+![這張圖片的 alt 屬性值為空，它的檔案名稱為 截圖-2021-12-02-下午2.26.40.png](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%88%AA%E5%9C%96-2021-12-02-%E4%B8%8B%E5%8D%882.26.40.png)
+上圖譯：
+自 2019 年 12 月在中國武漢報告得首例人類病例以來，SARS-CoV-2 已在全球 200 多個國家造成數百萬人感染，病死率約為 4.01%（截至 2020 年 7 月 27 日；根據世衛組織情況報告），而 COVID-19 大流行使我們的全球社區陷入癱瘓。儘管一些候選藥物，如瑞德西韋（一種廣泛的抗病毒前藥）和羥氯喹，已經在人體臨床試驗中進行了研究，但它們的療效需要進一步闡明，以用於治療 COVID-19 患者。**在這裡，我們展示了抗瘧藥 Pyramax ®的化學成分吡咯萘啶和青蒿琥酯, 對 SARS-CoV-2 和流感病毒具有抗病毒活性。**
 
-#2. 疫苗引起的死亡被描述为“突然死亡”或“意外死亡”，原因不明（或自然），即使是完全健康的运动员和士兵也是如此。
+**在人肺上皮 (Calu-3) 細胞中，吡咯萘啶和青蒿琥酯對 SARS-CoV-2 非常有效**，而羥氯喹在濃度低於 100 μM 時沒有顯示任何效果。在病毒生長動力學中，吡咯萘啶和青蒿琥酯均抑制了 SARS-CoV-2 和季節性甲型流感病毒在 Calu-3 細胞中的生長。**總之，我們認為青蒿琥酯和吡咯萘啶可能是用於 COVID-19 和/或流感的人類患者的有效候選藥物**，它們可能在即將到來的冬季共同循環。
 
-#3. 因孤立、贫困、封锁导致的绝望、社交距离、关闭的企业、虚拟学校/生活、社交媒体上的假朋友而自杀。
+## **青蒿琥酯咯萘啶 治療新冠安全性**
 
-#4.  Covid 凝块注射将预先存在的状况/疾病推向了边缘，导致严重的炎症、血管变性、氧气和血液中的营养流失。
+青蒿琥酯咯萘啶的安全性實驗仍在進行當中，據《[The Safety and Efficacy of Pyronaridine-artesunate (Pyramax® or Artecom®)in COVID-19 Patients (PROVIDENCE)](https://clinicaltrials.gov/ct2/show/NCT04701606)》研究顯示，參與實驗共402人，實驗時間預計於2022 年 4 月 15 日結束。
 
-#5.  “事故”——由驾驶/飞行时发生的 Covid 疫苗不良事件引起的致命汽车或飞机事故。例如，意识丧失、小中风、过敏反应等。
+## 青蒿素衍生物 可能具有抑制癌症效用
 
-#6.  Covid 疫苗会降低免疫系统功能 (ADE)，导致患者死于几乎任何细菌、病毒、寄生虫或病原体感染。
+另一研究《[In vitro efficacy of artemisinin-based treatments against SARS-CoV-2](https://www.nature.com/articles/s41598-021-93361-y)》指出，青蒿琥酯、蒿甲醚、青蒿提取物、青蒿素皆有效治療新冠病毒，且可能具有抑制肝癌 Huh7.5 細胞和肺癌 A549 的感染-hACE2細胞效用。
+![這張圖片的 alt 屬性值為空，它的檔案名稱為 截圖-2021-12-02-下午2.34.53.png](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%88%AA%E5%9C%96-2021-12-02-%E4%B8%8B%E5%8D%882.34.53.png)青蒿素、青蒿琥酯和蒿甲醚，具有抗抗 SARS-CoV-2效用
+上圖譯：
 
-#7. 整天戴着口罩，口腔、喉咙和肺部的细菌感染会变成肺炎，最终导致人死亡。
+青蒿素提取物、青蒿素、青蒿琥酯和蒿甲醚等，均抑制了 SARS-CoV-2 對 VeroE6 細胞、人肝癌 Huh7.5 細胞和人肺癌 A549 的感染-hACE2細胞。
 
-#8. 朊病毒疾病现在在接种疫苗和按数量杀死的人中很常见，并且有科学证据（超过 80% 的过量阿尔茨海默氏症、痴呆症和克雅氏病现在与 Covid 疫苗有关）。
+## 吡**咯萘啶（Pyronaridine） 成效可能優於羥氯喹**
 
-#9. 疫苗引起的流产（是的，大多数孕妇的婴儿在第二和第三个三个月都会发生这种情况）。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/截圖-2021-12-02-下午2.39.08.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/截圖-2021-12-02-下午2.42.00.png)
 
-原文链接：[Most SURPRISING 9 ways people are dying during the pandemic besides from Covid](https://www.afinalwarning.com/575030.html)
 
-校对发布：MQ
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
+上圖譯：
+
+比較吡咯萘啶、青蒿琥酯和羥氯喹，在對 SARS-COV-2 有效性的*體外*研究表明，吡咯萘啶、青蒿琥酯的人肺上皮細胞系 Calu-3數值顯示，效力優於羥氯喹。
+
+（本文僅分享相關研究）
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner.png)
+
+
+參考資料
+
+- [In vitro efficacy of artemisinin-based treatments against SARS-CoV-2](https://www.nature.com/articles/s41598-021-93361-y)
+- [The Safety and Efficacy of Pyronaridine-artesunate (Pyramax® or Artecom®)in COVID-19 Patients (PROVIDENCE)](https://clinicaltrials.gov/ct2/show/NCT04701606)
+- [Pyronaridine and artesunate are potential antiviral drugs against COVID-19 and influenza](https://www.biorxiv.org/content/10.1101/2020.07.28.225102v1.abstract)
+- [https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7572038/](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7572038/)
+- [https://www.ema.europa.eu/en/opinion-medicine-use-outside-EU/human/pyramax](https://www.ema.europa.eu/en/opinion-medicine-use-outside-EU/human/pyramax)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

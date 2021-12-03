@@ -2,38 +2,30 @@
 ---
 
 
-## 埃内斯-坎特（Enes Kanter）从改姓为“自由人”（Freedom）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1714560/)
+## 鲁比奥参议员提案加强美国太空产业，对抗中共侵略
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1715278/)
 
-编译：蚂蚁兄弟
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Unknown-4.jpg)鲁比奥参议员提案加强美国太空产业，对抗中共侵略 网络图片
+据美国之音12月3日报道，美国参议员鲁比奥提出“太空保护美国控制和企业议案”，加强美国太空产业，以对付中共根据“中国制造2025”规划取代美国成为太空产业全球领导者的正在进行的努力。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-2-1.jpg)图片来源：Mike Ehrmann/Getty Images
+“太空保护美国控制和企业议案”要求不得使用美国商务部或国家航空航天局（NASA）的经费来购买或租赁与中共有关的任何通信或宇航公司的硬件/软件和服务。法案要求美国国家航天委员会（National Space Council）向国会报告中共国和俄罗斯的太空投资竞争，评估经济风险，制定战略，保护美国太空工业化的产业链。
 
-凯尔特人队的土耳其中锋将利用他加入美国籍的机会来重塑自己的形象
+法案同时要求国防部长、商务部长和财政部长就美国太空探索、国家安全领域的海外投资情况每年向国会提交报告以及保密附件。最终，美国意识到了来自中共的威胁，不仅是现在，包括未来的太空领域，开启了对中共从天空到地面的全方位防御，对抗中共侵略。
 
-从本周一开始，埃内斯-坎特的球衣上将不再有他的姓氏，而是“自由人”（Freedom）一词，这是他选择的新名字。这名凯尔特人队的土耳其中锋，利用他在同一天获得美国公民身份的机会，把自己的原姓坎特（Kanter）改成他的中间名，让“自由人”（Freedom）正式成为他的第一姓氏。
-
-这不是他第一次穿上有这个名字的球衣，先前在奥兰多赛季上，当球员被允许使用一些口号或标语时，坎特也选择了“自由人”这个名字。
-
-这位奥特曼球员是NBA中个性最强的球员之一，不是因为球场上的事件，而是对场外事件。本赛季，他已经成为耐克和勒布朗-詹姆斯的“问题球员”，因为他对这些体育公司助虐中共国对少数民族待遇方面的不公和人权进行讨伐。
-
-“在中共国有许多强迫劳动的工厂，例如，维吾尔族的强迫劳动是现代的奴隶制，而且现在就在发生。数以百万计的维吾尔人被拘留、出售，并被分配到全国各地的劳动营、监狱和工厂，强迫让他们工作。他们无时无刻不受到监视，工作时间长，生活条件差”。他最近评论说：“别忘了，每当你把鞋子穿在脚上，或把衬衫穿在身上的时候，这些产品的背后都有那么多的眼泪和血，那么多的压迫。”
-
-坎特在社会活动方面有很长的历史。他曾将中共国国家主席习近平称为“独裁者”。他也一直是土耳其总统雷杰普-塔伊普-埃尔多安（Recep Tayyip Erdogan）直言不讳的批评者。2018年他被他的祖国起诉，指控他是一个武装恐怖组织的成员，他否认了这一点。土耳其撤销了他的护照，正在寻求对他进行引渡，他的部分家人被逮捕，他不想在伦敦打比赛，因为他确信他的政府会试图在那里杀掉他。
-
-本赛季，坎特因表示支持西藏这一立场导致凯尔特人的比赛被中共国媒体撤下。
-
-坎特在2011年选秀中以第三顺位被犹他州选中，这是他在凯尔特人队的第二个赛季，此前他曾在爵士队、俄克拉荷马城雷霆队、纽约尼克斯队和波特兰开拓者队任职。在11个赛季中，坎特平均每场得到11.4分和7.9个篮板。
-
-**参考资料：**[marca][Enes Kanter se cambia de nombre y a partir de este lunes se llamará Freedom](https://www.marca.com/baloncesto/nba/2021/11/28/61a3ce39268e3e8f568b457b.html)
+新闻参考链接：[https://www.voachinese.com/a/rubio-to-strengthen-us-space-industry-20211202/6337097.html?utm\_source=twitter&utm\_medium=social&utm\_campaign=dlvr.it](https://www.voachinese.com/a/rubio-to-strengthen-us-space-industry-20211202/6337097.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
 
 * * *
 
-*审核：Aries的星
-校对：阿伯塔
-发布：信心的选择*
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3.jpeg)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

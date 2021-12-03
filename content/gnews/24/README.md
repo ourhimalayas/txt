@@ -2,21 +2,39 @@
 ---
 
 
-## 狮城快讯：新加坡批发电价过去一周爆涨12倍！
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1715658/)
+## 日本爱知县正式开展伊维菌素治疗实验
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1715744/)
 
-**撰稿：小坡**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screenshot-2021-12-03-150601.jpg)图片来源：AsiaTimes
-全球能源危机继续恶化，新加坡成了最新受害者。就在过去的一周新加坡批发电价出现了急剧上涨，每兆瓦时上涨 4,499 新元（3,293 美元），创历史新高，就在本周二价格还只是323.61 新元（236.60 美元），三天上涨约 1,290%。
+作者：日本方舟农场 – Andy5
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
+12月1日，日本爱知县宣布，将与制药商“兴和株式会社”合作开展伊维菌素的试验。并表示对20周岁以上、发烧超过37.5度的患者进行试验。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/9-2.jpg)
+据悉，该计划预计将在今年对100位左右患者进行试验。该试验将分为伊维菌素组和安慰剂组，两组试验者服用药物3天后，再经过11天的观察。
 
-批发电力价格的急剧上涨反映了持续的全球能源危机。新加坡战友们都知道这里95% 的电力是通过燃烧天然气产生，而所有天然气都是从邻国进口的。 由于欧洲和亚洲其他地区的天然气需求继续增加，拉尼娜现象产生了反常的寒冷趋势等，都造成天然气供不应求。 据称，由于印度尼西亚天然气供应不足已经导致一些本地发电厂发电机组紧急关闭。
+伊维菌素对中共病毒的疗效屡见报端。早在8月，在日本关东地区东京医师学会呼吁使用伊维菌素用于临床治疗后，日本确诊人数骤降。爱知县与兴和株式会社的合作试验，也将促使日本政府的决策向着有利于控制疫情的方向推进。
 
-我们之前也报道过，新加坡目前市场上几乎所有的独立电力零售商都被迫退出市场，由于大多数新加坡家庭都签订了固定电费利率合同，电价飙升还暂时不会对居民用电造成巨大影响。尽管如此，它可能会给倾向于签订可变合同的公司带来痛苦，而新加坡如此依赖进口天然气发电的国家，在这场全球能源危机当中，恐怕必须要未雨绸缪了！
+参考链接：
 
-战友们，只有新中国联盟和农场集体的力量才可以帮助大家应对这样的危机，请保持和农场联系，让我们一起携手共度这次世纪大劫难。
+- [20211201日本CBC新聞](https://www.gettr.com/post/piflnu1d73)
+- [「今こそイベルメクチンを使え」東京都医師会の尾崎治夫会長が語ったその効能](https://www.kowa.co.jp/company/director/index.html)
+- [役員一覧](https://www.kowa.co.jp/company/director/index.html)
+- [企業主導は国内初…興和が「イベルメクチン」をコロナ治療に使うため臨床試験開始へ 患者約千人対象に実施](https://www.tokai-tv.com/tokainews/article_20210702_179074)
+- [伊维菌素在日本的普通推广指日可待](https://gnews.org/zh-hans/1713180/)
 
-**[新闻来源](https://www.zerohedge.com/commodities/singapore-power-prices-spike-1290-energy-crisis-emerges)**
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-89.png)
+
+总编辑：Irene木木
+编辑：AN/雪梨
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

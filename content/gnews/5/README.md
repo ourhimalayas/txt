@@ -2,76 +2,50 @@
 ---
 
 
-## COVID-19 最新情報｜研究顯示：韓國製青蒿琥酯咯萘啶對新冠病毒有效 經EMA認證 兒童可用
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1715799/)
+## 中共国奥园地产爆雷，欠债1121亿触发交叉违约！
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1715902/)
 
-**台灣寶島農場 疫情關注組 / 發佈時間｜3/12/2021**
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/32.jpg)[图片来源](https://www.sohu.com/a/477762280_100001551)
+就在媒体报道中国奥园约60亿元理财“爆雷”之后数小时，12月2日晚间，公司又公告金额6.512亿美元的债务因评级下调触发交叉违约，被债权人要求提前偿还。后续，很可能有更多债权人“根据彼等各自的融资安排条款要求支付债务及采取行动”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+2021年半年报来看，中国奥园有息负债总额达到了1121亿元，其中一年内要付的流动负债517亿元，另外有411亿元的“贸易及其他应付款”，但账上银行存款和现金为606亿元，还未考虑部分现金可能受限制情况。目前，中国奥园在公开市场的融资渠道基本被堵死，而销售回款又出现连续下滑，“金九银十”两个月合计销售金额211亿元，同比下滑23%，公司正与时间赛跑，全力推动资产变卖。
 
+**评级下调引致交叉违约**
 
-Pyramax（青蒿琥酯咯萘啶），成分：青蒿琥酯+Pyronaridine（咯萘啶）。韓國藥廠Shin Poong推出，pyramax藥物適用於兒童未成年人，通過歐洲藥品管理局（英語：European Medicines Agency, EMA）認證。（相關：[認證資料](https://www.ema.europa.eu/en/opinion-medicine-use-outside-EU/human/pyramax)） 。
+从10月份开始，各大国际评级巨头就对中国奥园预警并下调评级，中国奥园出现频繁的“股债双杀”，进入11月评级下调更为密集，一个月内下调了五次。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/image-41.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/截圖-2021-12-02-下午2.16.34.png)Pyramax 用於治療由兩種瘧疾
+简单回顾一下，2021年10月15日，标普首先将公司评级由B+下调至B，之后于2021年11月16日下调至CCC。2021年11月3日，惠誉将公司评级由BB下调至B+，之后于2021年11月19日下调至B-，再于2021年11月24日下调至CCC-。2021年11月5日，穆迪将公司评级由B1下调至B2，之后于2021年11月22日下调至Caa2。
 
+12月2日晚，中国奥园公告，评级下调导致公司及其成员企业作为借款人或担保人的若干境外融资触发违约条款。公司接获债权人通知，本金总额为约6.512亿美元（约合人民币42亿元）的融资因评级下调而要求偿还，于公告日公司未付款或就替代付款安排与上述债权人达成协议。
 
-上右圖譯文：
-Pyramax 是一種含有[活性物質](https://www.ema.europa.eu/en/glossary/active-substance)焦萘啶四磷酸和青蒿琥酯的藥物。它有片劑（180 毫克/60 毫克）和顆粒劑（每袋 60 毫克/20 毫克）。
+更关键的是，后续更多的交叉违约可能接踵而至，而公司无力偿还。中国奥园称，上述未还款可能“触发相关债权人可能有权要求本集团提前偿还若干其他境外融资安排，而有关债权人可能有权根据彼等各自的融资安排条款要求支付债务及╱或采取行动。”
 
-Pyramax 用於治療由兩種瘧疾寄生蟲（*惡性瘧原蟲*和*間日瘧原蟲）*引起的簡單瘧疾*。*「無併發症」是指該疾病不涉及嚴重的、危及生命的症狀。Pyramax 片劑用於體重 20 公斤或以上的成人和兒童，顆粒劑用於體重在 5 至 20 公斤之間的嬰兒和兒童。
+目前，中国奥园在境外存续的美元债有10只，存续规模约29亿美元，正常是在未来数年陆续到期，如果因交叉违约集中到期，无疑偿还压力巨大。公司称，鉴于“本集团面临的流动资金问题，无法保证本集团将能于其他境外融资安排到期时履行其项下的财务责任”。如果中国奥园无法履行责任偿还任何到期债务，或与有关债权人协定重续或延长借款或其他安排，可能会对公司的业务、前景、财务状况及经营业绩造成重大不利影响。
 
-## 青蒿素作為新冠病毒潛在治療藥劑
-![這張圖片的 alt 屬性值為空，它的檔案名稱為 截圖-2021-12-02-下午2.23.40.png](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%88%AA%E5%9C%96-2021-12-02-%E4%B8%8B%E5%8D%882.23.40.png)[https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7572038/](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7572038/)
-上圖譯：如前所述，除*體外*SARS-CoV-2 效應外，包括青蒿琥酯在內的青蒿素還具有抗炎特性。這些包括針對 IL-6 介導的途徑的那些。青蒿琥酯在一系列疾病狀態下的抗炎作用將在後面詳述，表明青蒿素可能有益於治療 COVID-19 患者。
+**销售连续三个月下滑**，**变卖资产成救命稻草**
 
-## **青蒿琥酯咯萘啶 治療新冠有效性**
+以中国奥园目前的信用状况，在公开市场融资的大门基本已经被堵死，而回笼资金的另一条腿物业销售，又出现连续下滑。
 
-據相關研究《[Pyronaridine and artesunate are potential antiviral drugs against COVID-19 and influenza](https://www.biorxiv.org/content/10.1101/2020.07.28.225102v1.abstract)》，青蒿琥酯咯萘啶對於治療新冠病毒十分有效。
-![這張圖片的 alt 屬性值為空，它的檔案名稱為 截圖-2021-12-02-下午2.26.40.png](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%88%AA%E5%9C%96-2021-12-02-%E4%B8%8B%E5%8D%882.26.40.png)
-上圖譯：
-自 2019 年 12 月在中國武漢報告得首例人類病例以來，SARS-CoV-2 已在全球 200 多個國家造成數百萬人感染，病死率約為 4.01%（截至 2020 年 7 月 27 日；根據世衛組織情況報告），而 COVID-19 大流行使我們的全球社區陷入癱瘓。儘管一些候選藥物，如瑞德西韋（一種廣泛的抗病毒前藥）和羥氯喹，已經在人體臨床試驗中進行了研究，但它們的療效需要進一步闡明，以用於治療 COVID-19 患者。**在這裡，我們展示了抗瘧藥 Pyramax ®的化學成分吡咯萘啶和青蒿琥酯, 對 SARS-CoV-2 和流感病毒具有抗病毒活性。**
+2021年8月，中国奥园实现未经审核物业合同销售额约人民币103.6亿元，而去年同期为108.5亿元，同比下滑5%。2021年9月，中国奥园实现未经审核物业合同销售额约人民币109.5亿元，而去年同期为120.8亿元，同比下滑9%。2021年10月，中国奥园实现未经审核物业合同销售额约人民币101.3亿元，而去年同期为151.6亿元，同比大幅下滑33%。
 
-**在人肺上皮 (Calu-3) 細胞中，吡咯萘啶和青蒿琥酯對 SARS-CoV-2 非常有效**，而羥氯喹在濃度低於 100 μM 時沒有顯示任何效果。在病毒生長動力學中，吡咯萘啶和青蒿琥酯均抑制了 SARS-CoV-2 和季節性甲型流感病毒在 Calu-3 細胞中的生長。**總之，我們認為青蒿琥酯和吡咯萘啶可能是用於 COVID-19 和/或流感的人類患者的有效候選藥物**，它們可能在即將到來的冬季共同循環。
+本应是销售旺季的“金九银十”，两个月合计销售额211亿元，同比下滑23%。此情况下，变卖资产成为救命稻草，但火烧眉毛的情况下，资产处置也需要与时间赛跑。
 
-## **青蒿琥酯咯萘啶 治療新冠安全性**
+11月4日，中国奥园、奥园健康发布联合公告称，奥园健康正与若干独立第三方就可能出售提供物业管理及其他相关服务的若干附属公司的权益进行初步讨论。截至该公告日期，尚未就可能交易订立任何条款或具体协议。而截至目前，公司也未公告上述事项的最新进展。
 
-青蒿琥酯咯萘啶的安全性實驗仍在進行當中，據《[The Safety and Efficacy of Pyronaridine-artesunate (Pyramax® or Artecom®)in COVID-19 Patients (PROVIDENCE)](https://clinicaltrials.gov/ct2/show/NCT04701606)》研究顯示，參與實驗共402人，實驗時間預計於2022 年 4 月 15 日結束。
+11月14日，中国奥园公告，卖方奥园地产(香港)有限公司(公司全资附属公司)与买方新永投资发展有限公司订立协议，据此，买方有条件同意出售目标公司全部已发行股本及股东贷款，代价为现金9亿港元。公告显示，预计确认出售事项的估计亏损约1.77亿港元，出售事项的所得款项净额拟用于偿还贷款融资及用作本集团的一般营运资金。
 
-## 青蒿素衍生物 可能具有抑制癌症效用
+12月2日，据媒体报道，中国奥园正计划出售位于中国香港葵涌的一栋活化工厦，并正与买家商谈。中国奥园表示，“在境外整体地产行业融资受阻的情况下，我们积极去和市场洽谈境外项目的合作，在海外的一些物业都有可能被处置，加拿大、澳大利亚的几个优质项目都在洽商中。”
 
-另一研究《[In vitro efficacy of artemisinin-based treatments against SARS-CoV-2](https://www.nature.com/articles/s41598-021-93361-y)》指出，青蒿琥酯、蒿甲醚、青蒿提取物、青蒿素皆有效治療新冠病毒，且可能具有抑制肝癌 Huh7.5 細胞和肺癌 A549 的感染-hACE2細胞效用。
-![這張圖片的 alt 屬性值為空，它的檔案名稱為 截圖-2021-12-02-下午2.34.53.png](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%88%AA%E5%9C%96-2021-12-02-%E4%B8%8B%E5%8D%882.34.53.png)青蒿素、青蒿琥酯和蒿甲醚，具有抗抗 SARS-CoV-2效用
-上圖譯：
+6月初以来，中国奥园股价一直跌跌不休，从9.12港元的高位跌至12月2日的2.02港元，六个月时间跌去78%，作为千亿销售规模的top50房企，市值竟仅剩57亿港元，折合人民币50亿元不到。
 
-青蒿素提取物、青蒿素、青蒿琥酯和蒿甲醚等，均抑制了 SARS-CoV-2 對 VeroE6 細胞、人肝癌 Huh7.5 細胞和人肺癌 A549 的感染-hACE2細胞。
+消息来源:
 
-## 吡**咯萘啶（Pyronaridine） 成效可能優於羥氯喹**
+[千亿地产巨头出大事：触发交叉违约！](https://www.163.com/dy/article/GQ9KNCO80530NLC9.html)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/截圖-2021-12-02-下午2.39.08.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/截圖-2021-12-02-下午2.42.00.png)
-
-
-上圖譯：
-
-比較吡咯萘啶、青蒿琥酯和羥氯喹，在對 SARS-COV-2 有效性的*體外*研究表明，吡咯萘啶、青蒿琥酯的人肺上皮細胞系 Calu-3數值顯示，效力優於羥氯喹。
-
-（本文僅分享相關研究）
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner.png)
-
-
-參考資料
-
-- [In vitro efficacy of artemisinin-based treatments against SARS-CoV-2](https://www.nature.com/articles/s41598-021-93361-y)
-- [The Safety and Efficacy of Pyronaridine-artesunate (Pyramax® or Artecom®)in COVID-19 Patients (PROVIDENCE)](https://clinicaltrials.gov/ct2/show/NCT04701606)
-- [Pyronaridine and artesunate are potential antiviral drugs against COVID-19 and influenza](https://www.biorxiv.org/content/10.1101/2020.07.28.225102v1.abstract)
-- [https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7572038/](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7572038/)
-- [https://www.ema.europa.eu/en/opinion-medicine-use-outside-EU/human/pyramax](https://www.ema.europa.eu/en/opinion-medicine-use-outside-EU/human/pyramax)
-
-
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
