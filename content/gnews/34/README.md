@@ -2,40 +2,36 @@
 ---
 
 
-## 以色列最高法院就手机窃听案作出裁决
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1715680/)
+## 喜大普奔的好消息！伊维菌素有了替代品！
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1715699/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+**撰稿：Eva**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/F200608OF08-1-e1594219079991-640x400-1.jpg)
+根据更新以后的 FLCCC 新型冠状病毒肺炎的预防及早期门诊患者的治疗指引，特別向战友们发布伊维菌素替代品的好消息如下：
+
+**1. 预防方案 (针对 DELTA 变异毒株)**
+
+#黑孜然 (黑孜然籽) 每天 40毫克/公斤
+
+如果：伊维菌素不可得， 或添加到伊维菌素中以实现最佳预防，则使用。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-29.png)
+**2. 早期治疗方案5 (针对 DELTA 变异毒株)**
+
+营养疗法 (14天)
+
+# 薑黃素 (薑黃) 每天 2 次 500 毫克
+
+#黑孜然 (黑孜然籽) 每天 80毫克/公斤
+
+蜂蜜 每天 1克/公斤
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2-7.png)
+如需更多有关营养疗法以及其如何帮助因应 COVID-19 的咨询，请参阅：
+
+www.flccc.net/covid-19-protocols/nutritional-therapeutics
+
+**[Source](https://covid19criticalcare.com/wp-content/uploads/2021/06/FLCCC_Alliance-I-MASKplus-Protocol-CHINESE-Traditional-%E7%B9%81%E9%AB%94%E4%B8%AD%E6%96%87.pdf)**
 
 
- 
-图片来源：www.timesofisrael.com
-
-
-#### 编译：小红帽
-
-以色列最高法院认为，为遏制Omicron的传播而进行的手机追踪不会对人们的隐私权构成威胁，因此驳回了人权组织提出的请求。
-
-关于是否取消政府决定，并以及阻止以色列的内部安全机构（Shin Bet）再次窃听手机的判决于周一发布。目前的许可于周四到期，但将被延长，以允许情报部门追踪那些感染了新冠病毒（Covid）变体的人及其密切接触者。
-
-当地媒体援引最高法院关于请愿书的声明说：“没有证据表明Shin Bet的授权对隐私权构成了不相称比例的侵犯或足以证明有理由罢免”。
-
-以色列总理纳夫塔利·贝内特（Naftali Bennett）宣布重新授权手机追踪，作为准备遏制Omicron传播的一揽子措施的一部分。
-
-这项技术在整个大流行病期间被Shin Bet使用，由于人权捍卫者对隐私的担忧，法院在3月限制了其监视的范围。
-
-**参考新闻：**[Israel’s Supreme Court rules on phone spying case — RT World News](https://www.rt.com/news/541980-israel-supreme-court-phones/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

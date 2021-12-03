@@ -2,39 +2,31 @@
 ---
 
 
-## 日本爱知县正式开展伊维菌素治疗实验
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1715744/)
+## 民主党众议员发起《防止维吾尔族强迫劳动法》
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1715794/)
 
-作者：日本方舟农场 – Andy5
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
-12月1日，日本爱知县宣布，将与制药商“兴和株式会社”合作开展伊维菌素的试验。并表示对20周岁以上、发烧超过37.5度的患者进行试验。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/9-2.jpg)
-据悉，该计划预计将在今年对100位左右患者进行试验。该试验将分为伊维菌素组和安慰剂组，两组试验者服用药物3天后，再经过11天的观察。
+#### 撰稿：彩虹
 
-伊维菌素对中共病毒的疗效屡见报端。早在8月，在日本关东地区东京医师学会呼吁使用伊维菌素用于临床治疗后，日本确诊人数骤降。爱知县与兴和株式会社的合作试验，也将促使日本政府的决策向着有利于控制疫情的方向推进。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-2-1.jpg)图片来源：红板报
+12月2日，《新闻极限》引述《路透社》的文章，报道民主党籍众议员吉姆·麦戈文（Jim McGovern）发起《防止维吾尔族强迫劳动法》的法案，并预计众议院最快下周开始审议。
 
-参考链接：
+根据麦戈文的说法，“下周是人权问题的重要一周。…我们认为，推动一些有关中共的立法是很重要的，希望其中大部分是以人权为重点。我们希望看到《防止维吾尔族强迫劳动法》以某种形式通过”。
 
-- [20211201日本CBC新聞](https://www.gettr.com/post/piflnu1d73)
-- [「今こそイベルメクチンを使え」東京都医師会の尾崎治夫会長が語ったその効能](https://www.kowa.co.jp/company/director/index.html)
-- [役員一覧](https://www.kowa.co.jp/company/director/index.html)
-- [企業主導は国内初…興和が「イベルメクチン」をコロナ治療に使うため臨床試験開始へ 患者約千人対象に実施](https://www.tokai-tv.com/tokainews/article_20210702_179074)
-- [伊维菌素在日本的普通推广指日可待](https://gnews.org/zh-hans/1713180/)
+文章指，共和党人和民主党人已经就维吾尔族的立法问题争论了几个月。最近，共和党参议员马可·鲁比奥（Marco Rubio）一直要求将该措施作为《国防授权法》（NDAA）的修正案，从而推迟了参议院对这项为五角大楼制定政策的大规模年度法案的审议。目前，关于众议院通过麦戈文的法案是否会改变他对国防法案的立场的评论请求，卢比奥的办公室没有立即回应。
 
+报道认为，如果针对维吾尔族的措施成为法律，它将建立一个“可反驳的推定”，即所有来自新疆的商品都是强迫劳动制造的。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-89.png)
+此外，因为该立法将使得总统的可再生能源计划复杂化，共和党人指责拜登的民主党人拖累了这项立法，但民主党人否认了这一点。
 
-总编辑：Irene木木
-编辑：AN/雪梨
-校正/发稿：海阔天空1
+民主党众议员丹·基尔迪（Dan Kildee）在接受路透社电话采访时说：“当涉及到新疆的强迫劳动时,我只是想看到一个强有力的，更强有力的方法”。他认为，美国国内太阳能电池板的生产可以因此而得到加强。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
+目前，该立法的详细内容还没有看到相关报道。
+
+**新闻来源**
+
+[House to Consider Bill to Clamp Down on Products From China’s Xinjiang](https://www.newsmax.com/newsfront/china/2021/12/02/id/1047153/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
