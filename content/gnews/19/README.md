@@ -2,10 +2,49 @@
 ---
 
 
-## HCoin To the Moon iTunes排行榜最新更新
-` 我是音雄` [轉載自GNews](https://gnews.org/zh-hans/1720300/)
+## 标准普尔500指数本周表现不佳，未来走势堪忧
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1720450/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.001.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.002.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.003.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.004.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.005.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.006.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.007.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.008.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.009.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.010.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.011.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.012.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.013.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.014.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.015.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.016.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.017.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.018.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.019.jpeg)![]()![]()![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.020.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.021.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.022.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.023.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.024.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.025.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.026.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.027.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.028.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.029.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.030.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.031.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.032.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.033.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.034.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.035.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.036.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.037.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.038.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.039.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.040.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.041.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.042.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.043.jpeg)
+作者：纽约香草山农场 – 四季
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
+
+[零对冲](https://www.zerohedge.com/markets/sp-500-futures-had-bad-week-worse-lies-ahead)12月3日引用彭博实时市场评论员及分析师马克·克兰菲尔德（Mark Cranfield）的分析指出，从感恩节后的熔断开始，标准普尔500指数期货在经历了一周的鞭打式交易后明显看跌。
+
+尽管该指数并不是单边走低，但该合约的盘中反弹已经在较低的峰值处消退。图中显示的帽子顶部给短线交易者提示了足够清晰的信号，即资产是否被定格在下降通道上。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1604.jpg)图片来源见水印
+
+尽管非农就业数据的确不及预期，但美联储也不会偏离其紧缩政策。分析师预计，标准普尔期货从11月的峰值开始下跌，看起来像是长期走低的转折点，这将为明年的全球熊市奠定基础。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月.png)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
