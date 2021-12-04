@@ -2,45 +2,38 @@
 ---
 
 
-## 美联储缩表形成预期，加密货币市值快速蒸发
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1719784/)
+## 文·贵天成——文贵先生谈“疫苗”（二十七）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1719812/)
 
-翻译：皮特
-编辑：文泓
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2021.12.4-美联储缩表形成预期，加密货币市值快速蒸发-雅典娜观察.jpg)图片来源：Blockvalue.com
-美国时间12月3日，据福布斯报道，短短两天内，比特币等加密数字货币价格大幅下跌，加密货币市值合计蒸发了约3000亿美元。
+整理：BENJ1
+编辑：Kelly
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2021.12.4-文·贵天成——郭文贵先生谈疫苗（二十八）28-图片.png)
+郭文贵先生**2021**年**8**月**23**日直播
 
-比特币价格从几周前的69,000美元跌至目前的51,000美元左右，跌幅近30%。其它加密货币也陆续走低，包括以太坊、币安的BNB、索拉纳（solana）、艾达币和瑞波币，均在短短24小时内下跌了近10%。
+没有一个科学家告诉你，没有一个专业人士告诉你疫苗在你身体里多长时间有效。有的说3个月到6个月，有的说一年，有的说可以生存和复制，不管什么说法，没有一个科学家负责任地告诉你疫苗有效是多长时间，它为什么要打第二针？为什么打第三针强化针？
 
-比特币和加密[货币](https://translate.google.com/translate?hl=en&amp;prev=_t&amp;sl=auto&amp;tl=zh-CN&amp;u=https://www.forbes.com/sites/jonathanponciano/2021/12/03/us-listed-chinese-stocks-lose-80-billion-in-value-as-didi-delisting-crashes-prices/%3Fsh%3D6ea05af72b1e)突然遭到抛售，并伴随着一些严重的[股市下跌](https://translate.google.com/translate?hl=en&amp;prev=_t&amp;sl=auto&amp;tl=zh-CN&amp;u=https://www.forbes.com/sites/jonathanponciano/2021/12/03/us-listed-chinese-stocks-lose-80-billion-in-value-as-didi-delisting-crashes-prices/%3Fsh%3D6ea05af72b1e)，是因为著名投资者路易斯·纳维利尔发出了警告，市场[普遍预期美联储将“](https://translate.google.com/translate?hl=en&amp;prev=_t&amp;sl=auto&amp;tl=zh-CN&amp;u=https://www.forbes.com/sites/billybambrough/2021/11/30/crypto-price-prediction-serious-fed-warning-issued-over-bitcoin-ethereum-bnb-solana-cardano-and-xrp/%3Fsh%3D13cb6fdb3ba4)缩减资产负债表”，从而[可能会导致比特币和加密货币泡沫破灭。](https://translate.google.com/translate?hl=en&amp;prev=_t&amp;sl=auto&amp;tl=zh-CN&amp;u=https://www.forbes.com/sites/billybambrough/2021/11/30/crypto-price-prediction-serious-fed-warning-issued-over-bitcoin-ethereum-bnb-solana-cardano-and-xrp/%3Fsh%3D13cb6fdb3ba4)
+再想第二个问题，当你打完这个针以后，40万亿的刺突蛋白到你家，小福利你们每个人家里突然来了100个娜娜酱，你家里要爆炸了，突然又来了现在的1倍，你身体里边来的人不是娜娜酱了，是变版的娜娜酱、变版的小福利，长着四个眼睛、仨嘴巴。对呀，它就是加强版嘛，就是把mRNA的刺突蛋白又给你加强了，它就叫强化，强化的目的是什么？让更多的人在你家占着，我等着坏人上你家来的时候我帮你挡住，那些坏人到我里边儿，因为我多它少，我把它灭掉，把它收拾掉，而且让你身体适应这环境。谁家能适应这环境？打第二针还要打第三针，100万亿刺突蛋白？
 
-“美联储正在缩减流动性规模，风险资产应该会出现调整，比特币是其中的一部分”。据财经网站内幕（INSIDER）报道，纳维利尔撰文，“美联储缩表越多，股票和债券的波动性就越大——比特币也是一样。”
+我可以告诉你，现在科学可以肯定地告诉你，任何中共病毒疫苗的东西留在你身体里是永远的，没有消失那一天！你去想个最简单例子，老百姓的房子比如你家里边突然有一天进去100个爹、1000个爹、1000个媳妇、1000个儿子、1000个老公，而且永远待在你家，那一定会爆炸，不是卧室塌了甚至楼塌了，哪都得塌。反映在生理上就是心肌梗塞、体力不支。关键这些人进来以后不是在睡觉，它们在跳动，在打仗，要战争，那你身体里边成了战场，40万亿的战场、100万亿的战场，就这么简单，你身体器官能承受得了吗？我们不用医学知识说，它就是这个逻辑。
 
-与传统（股票）市场相比，比特币，尤其是较小（发行规模）加密货币波动性很大，像以太坊、币安的BNB、索拉纳（solana）、艾达币和瑞波币等经常在短短几个小时内大幅波动。
+我说让战友们都听得懂的话，既然这疫苗来了，到我家是正义的刺突蛋白，等待着帮你干掉传染的坏刺突蛋白，这叫冠状病毒。那我请问一下，既然你来我家了，小福利、小Seven说好，我们都接受，我在厕所里待着，你们在这折腾吧，坏人长啥样？坏的刺突蛋白长啥样？哪来的坏刺突蛋白？哪来的冠状病毒？你来杀冠状病毒，冠状病毒长啥样？它里边听说有艾滋病，中东的呼吸症骆驼病，还有SARS的东西，甚至有癌症的东西，产生癌的就是刺突蛋白的聚变，是吧？
 
-纳维利尔警告说，比特币的价格可能会跌至10,000美元以下，较上个月创下的近70,000美元的历史高点下跌超过80%。过去比特币的价格也出现过类似的下跌，[尽管看涨比特币和加密货币的投资者仍然相信比特币的价格在未来几年还会走高](https://translate.google.com/translate?hl=en&amp;prev=_t&amp;sl=auto&amp;tl=zh-CN&amp;u=https://www.forbes.com/sites/billybambrough/2021/11/23/crypto-price-prediction-volcanos-could-push-bitcoin-to-1-million-in-five-years-leaving-ethereum-bnb-solana-cardano-xrp-and-cro-in-the-dust/)。
+那么请问大家，你帮我杀敌的敌人长啥样？有一个人能回答你说敌人是谁？长啥样？哪来的？我不知道，但我就来你家了。这个逻辑大家觉得通不通？战友们。没有一个疫苗制造厂家和政府让你打疫苗会肯定地告诉你这个冠状病毒来自蝙蝠？来自穿山甲？还是习近平放了个屁崩出来的？王岐山双修修出来的？在1808国贸房间修出来的？或者是路大脑袋、蛇妖闫吸痰吸出来的？有人给你答案吗？
 
-纳维利尔写道，“我认为跌破46,000美元（200天移动平均线）是一个黄色警告，跌破28,500美元（春季的低点）将会是一个完整的双顶，这意味着会跌至10,000美元以下。顺便说一句，这将与在其传奇历史上的多次下跌超过80%相匹配”。
+既然不知道敌人是来自空中、地上、海上，你怎么就准备了帮我灭敌的40万亿大军，还在我身体里？这个逻辑大家能听懂吧？好，这个逻辑听懂了，你上我家来，你帮我灭敌，你也不知道敌人长啥样，那你得保证你来了，你确实能帮我把敌人杀了。而且你别把我房子拆了，把我心给吃了，把我肝吃了，把我肺吃了，把我脑血管给我崩了行不行？——不行。因为你来保护我，如果出了事儿我死了，我先死了，敌人还没杀，你是不是得负责任？——不行，你自己负责任。那求求你了，你别进我家，我自己来灭敌行不行？你灭不掉敌人，——不行，我必须得进你家。
 
-比特币价格从2020年3月的低点4,000美元上涨到上个月的69,000美元的高位，部分是由于应对新冠大流行对经济的打击和为遏制它而采取的封锁措施，自去年开始美联储和其他中央银行采取大规模刺激措施。
+不同意？不同意的话你孩子不能上学，那我不上学了；你不能出门，那我不出门；你不能吃饭，我不吃饭；你在家待着都不行，我要把你抬出来把针扎上。从法理上、从逻辑上、打疫苗的目的还有疫苗的本质说一说，你给我打疫苗了，你是医学，你是政府，那我请问疫苗里含什么？——你不需要知道，你不能知道。
 
-比特币最近一次反弹将加密货币的总市值从去年此时的约5000亿美元提高到上个月的3万亿美元。其中大部分收益来自小型加密货币的大幅价格上涨，以太坊及其竞争对手币安的BNB、索拉纳（solana）、艾达币在过去12个月中的涨幅都远远超过了比特币。
+比如都知道七哥敏感，敏感不让打疫苗的，你要开敏感证明，我证明我有敏感了，我有心脏病、有肾病、有什么病，——对不起你更需要打，为什么？你不打你会成为传染别人的人。请问，我传染谁？打疫苗是让我不得冠状病毒？——是防止你得上冠状病毒，传染别人。
 
-当前，在通胀急剧上升和劳动力市场几乎完全恢复之后，美联储现在开始“缩减”其宽松的经济政策。虽然11月的就业数据低于预期，但失业率从10月的4.6%降至4.2%，这是一年多以来的最低点。
+那我不出门儿行不行？——不行，你得打疫苗。那现在这样，今天在坐的咱们每个人都说：我就不出门了，我就在家待着，我哪也不去了，我不染上病毒——不行，你得打疫苗。请问，到底打疫苗是目的还是防病毒传染是目的？ 全世界现在没有人查，没有人告诉你病毒哪来的，病毒长啥样，病毒对人有多大危害，只让你打疫苗，而且打完全不负责任的疫苗。
 
-“奇怪的是，经济较低的增长加之Omicron新变种病毒带来的潜在供应链（断裂）问题，事实上可能会导致美联储更积极地加息——所有这些都是为了对抗不断上升的通货膨胀，”一家佛州的投资公司CEO杰伊·佩斯特里切利对[福布斯](https://translate.google.com/translate?hl=en&amp;prev=_t&amp;sl=auto&amp;tl=zh-CN&amp;u=https://www.forbes.com/sites/jonathanponciano/2021/12/03/us-labor-market-recovery-lost-steam-in-november-with-a-sluggish-210000-new-jobs/%3Fsh%3D63e0fff5176f)说。
+发布：去中心化Math
 
-上周，亿万富翁加密货币投资者迈克诺·沃格拉茨也[警告，美联储主席杰罗姆·鲍威尔可能会在2022年引发比特币和加密货币市场崩溃，因为他正在采取行动来遏制目前已跃升至30年高位的通胀](https://translate.google.com/translate?hl=en&amp;prev=_t&amp;sl=auto&amp;tl=zh-CN&amp;u=https://www.forbes.com/sites/billybambrough/2021/11/30/crypto-price-prediction-serious-fed-warning-issued-over-bitcoin-ethereum-bnb-solana-cardano-and-xrp/%3Fsh%3D13cb6fdb3ba4)失控。
-
-新闻链接：[$300 Billion Bitcoin And Crypto Price Crash After Stark Fed Warning—Ethereum, BNB, Solana, Cardano And XRP In Free Fall (forbes.com)](https://www.forbes.com/sites/billybambrough/2021/12/03/300-billion-bitcoin-and-crypto-price-crash-after-stark-fed-warning-ethereum-bnb-solana-cardano-and-xrp-in-free-fall/?sh=45a29d0222fd)
-
-**发布：**去中心化Math
-
-**更多资讯，请关注：****
+**更多资讯，请关注：
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  

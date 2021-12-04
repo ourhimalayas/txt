@@ -2,37 +2,42 @@
 ---
 
 
-## 银河快讯：日本与美国海军加强合作；呼吁政府改善外国人医疗费用
-` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1720087/)
+## 向5-11岁的小朋友打疫苗，这是杀戮儿童！
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1720255/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/K10013368511_2111301810_2111301829_01_02.jpg)[图片来源](https://www3.nhk.or.jp/)
-**1****.****日本出现首例Omicron毒株感染者**
+作者： 加拿大温哥华扬帆农场 Michael.Tonny
+![](https://assets.gnews.org/wp-content/uploads/2021/11/michael-3-1.jpg)
+很多国家，尤其是中共国，正在强制5-11岁的小朋友打疫苗，这杀戮儿童！德国政界和各州州长11月30日召开新冠会议，也在酝酿限制交际和强制全民接种疫苗政策。
 
-[据NHK报道，内阁官房长官松野30日下午在记者会上透露，一名从南部非洲纳米比亚入境的三十多岁男子被证实感染了中共病毒“Omicron株”新变异病毒。这是日本首次确认有Omicron毒株感染者。该男子于28日从纳米比亚入境，在成田机场检疫站接受检测，结果呈阳性反应，国家传染病研究所对样本基因进行分析，证实其感染了Omicron。同机入境的70名乘客全部检测呈阴性，但厚生劳动省将他们视为密切接触者，要求他们入境后在家中或住宿处等候14天，并继续与地方合作，检查他们的健康及行踪。根据NHK截至30日下午4时的总结，全球17个国家和地区已确认感染新突变病毒Omicron。](https://www3.nhk.or.jp/news/html/20211130/k10013368041000.html?utm_int=news-politics_contents_list-items_011)
+CCP治下的中共国，到处充满谎言和欺骗的CCP官场，任何数据都可以造假，想直接从中共国官方得到数据来佐证如此明显的事实，恐怕就是总加速师也未必能得到准确的数据。但德国和英国的官方统计数据，证明强制儿童注射疫苗，是多么疯狂的举动！
 
-**2****.****呼吁政府改善无法获得健康保险的外国人的高额医疗费用**
+来自medrxiv上的一篇未被公布的18页论文报告显示，在2020年3月至2021年5月期间，德国健康儿童死于中共病毒的人数为0！
 
-[据NHK报道，无法参加健康保险的外国人有时需要承担高额的医疗费用而无法接受医疗服务，因此由医疗机构组成的团体向厚生劳动省和法务省提出了要求改善的请求书。该请求书是由全国医疗机构创建的组织日本民主医疗机构联合会提交的，并于29日举行了会议。请求书要求厚生劳动省和法务省等考虑改善措施，例如如果需要医疗的外国人无法参加健康保险，则由政府支付医疗费用。厚生劳动省社会救助局总务课评论说：“我们尚未收到该书面请求，希望确认其内容。”](https://www3.nhk.or.jp/news/html/20211129/k10013366781000.html?utm_int=all_side_ranking-social_001)
+[Medrxiv](https://www.medrxiv.org/)（The Preprint Sever for Health Sciences），中文名：健康科学预印本服务器。预印本，是未经同行评审认证的初步（或原始）工作报告。
 
-**3****.****海上自卫队与美国海军司令会****晤****，加强合作的政策以应对中共**
+根据这篇由德国所有儿童医院、儿科传染病专家和儿科协会共同发表的《[Risk of Hospitalization, severe disease, and mortality due to COVID-19 and PIMS-TS in children with SARS-CoV-2 infection in Germany](https://www.medrxiv.org/content/10.1101/2021.11.30.21267048v1.full.pdf)》报告显示， CCP病毒开始在德国传播的前15个月，在总数为1000万左右的5至18岁的德国儿童和青少年中，没有任何一个人死于中共病毒。即使加上这个年龄段的有（其它）疾病的儿童和青少年后，也总共只有6人死亡。这段时间内，18岁以下的德国人中，仅有14人名死于中共病毒，其中还有8名婴幼儿死亡，有5名有既往病史者。
 
-[据NHK30日报道，正在日本周边进行大规模联合演习的海上自卫队和美国海军司令共同举行了新闻发布会，并表示在中共日益增长的海上扩张的情况下，日本、美国和友好国家将加强合作的政策，以实现“自由和开放的印太地区”。自11月21日以来，海上自卫队每两年举行一次大规模实战演习，美国、澳大利亚、加拿大以及今年首次参加的德国海军都参加了演习。此外，30日还公开了在“卡尔·文森”号上搭载的最先进隐形战斗机“F35C”起飞和降落的训练情况。](https://www3.nhk.or.jp/news/html/20211130/k10013368511000.html?utm_int=news-social_contents_list-items_013)
+在这期间，约有150万德国儿童或青少年感染过中共病毒，其中，5-11岁的健康儿童需要接受重症监护的几率约为50,000分之一，而12-18岁的青少年或年龄小于5岁的小孩需要重症监护的几率8,000 分之一。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2021.11.30.21267048v1-scaled.jpg)
+英国研究人员发布了类似的报告，在英国1200万儿童中仅有6名18岁以下的健康儿童或青少年死于中共病毒。
 
-**4.****日本总人口****继续下降，****较五年前减少****94****万余人**
+笔者根据英国政府官方机构[office for national statstics](https://www.ons.gov.uk/)发布的周统计数据分析，自2021年第10周起，英国每百万未接种疫苗的人群因CCP毒而死亡的机率明显比每百万至少接种一针疫苗的人群死亡机率低得多。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Weekly-age-standardised-mortality-rates.jpg)
+文章的最后，让我们来看看英国打一针和两针疫苗死亡率的巨大差异吧，不知道看完你有没有疫苗打得越多，死得越快的感觉？
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Weekly-age-standardised-mortality-rates2.jpg)
+参考资料：
 
-[据NHK30日报道，根据去年进行的全国人口普查，日本的总人口约为12614.6万人，比五年前的调查减少了约94.9万人，突显了人口继续下降的事实。根据总务省30日公布的全国人口普查最终数据，截至去年10月1日，日本的总人口为126,146,099人，其中为男性61,349,581人和女性64,796,518人。与五年前2015年的最后一次调查相比，总人口减少了948,646人，下降了0.7%。另一方面，外国人人口为2,747,137人，与上次调查相比增加了约为835,000人，增长43.6%，为开始调查以来的最高值。](https://www3.nhk.or.jp/news/html/20211130/k10013368541000.html?utm_int=news-social_contents_list-items_018)
+[德国将全民接种疫苗？](https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20211130-%E5%BE%B7%E5%9B%BD%E5%B0%86%E5%85%A8%E6%B0%91%E6%8E%A5%E7%A7%8D%E7%96%AB%E8%8B%97)
 
-**5****.****日美欧贸易部长举行会议，牵头制定争端解决规则**
+[Huge new study shows ZERO Covid deaths of healthy German kids over 4 or adolescents](https://alexberenson.substack.com/p/huge-new-study-shows-zero-covid-deaths)
 
-[据NHK1日报道，日本、美国和欧盟的贸易部长举行了在线会议，日本呼吁美国、欧盟和日本牵头制定解决争端的规则，以消除对公司的不透明补贴。这似乎是对中共的一种反制。例如，如果某国向其企业提供不透明的补贴，阻碍公平竞争环境，目前世贸组织的争端解决规则要求指控国提供证据，这是一个很大的障碍。其目的是将举证责任转移给提供补贴的国家，使之更容易解决争端。日本希望首先在日美欧主导讨论，然后在世贸组织加快审议具体规则。](https://www3.nhk.or.jp/news/html/20211201/k10013369051000.html)
+[Vaccinated English adults under 60 are dying at twice the rate of unvaccinated people the same age](https://alexberenson.substack.com/p/vaccinated-english-adults-under-60)
 
-**6****.****日本经济团体联合会****明年春斗草案：“****工资增长的积极政策****”**
+[Risk of Hospitalization, severe disease, and mortality due to COVID-19 and PIMS-TS in children with SARS-CoV-2 infection in Germany](https://www.medrxiv.org/content/10.1101/2021.11.30.21267048v1.full.pdf)
 
-[据NHK30日报道，日本经济团体联合会的基本政策草案已经披露，它将作为明年春斗（春季要求提高工资的斗争）管理的指导方针。随着岸田首相呼吁企业界合作提高工资，预计联合会将表明对提高工资的积极政策，表示“期望宜于提高适合启动新资本主义的工资，包括实施基数增长”。根据该报告，在明年的春斗中，随着中共病毒灾难的长期化和业绩差异的增加，重要的是以适合每个公司情况的方式来确定工资，而不是以一刀切的方式。由于感染继续蔓延，联合会今年春斗的政策仅限于说明基数增加是“一种选择”，但这次预计将表明对工资增长的积极政策。](https://www3.nhk.or.jp/news/html/20211130/k10013368911000.html?utm_int=news-business_contents_list-items_003)
+[Deaths occurring between 2 January and 24 September 2021 edition of this dataset](https://www.ons.gov.uk/file?uri=%2fpeoplepopulationandcommunity%2fbirthsdeathsandmarriages%2fdeaths%2fdatasets%2fdeathsbyvaccinationstatusengland%2fdeathsoccurringbetween2januaryand24september2021/datasetfinalcorrected3.xlsx)
 
-【日本银河系农场-阿尔法星球】
-作者：π&π
-校对：Totoro
+编辑：Michael.Tonny 上传：Michael.Tonny
 
  
 

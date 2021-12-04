@@ -2,29 +2,35 @@
 ---
 
 
-## 现世报？北京冬奥可能会无观众办赛
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1719536/)
+## 有声|欧洲某金融强国主动给予喜联储数字银行牌照，与中共决裂
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1719562/)
 
-撰稿: 东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/5-3.jpg)
-[图片源](https://wedge.ismedia.jp/articles/-/22813?layout=b)
+配音：香草山美食部 – 玫瑰园
 
-今年夏天的东京奥运会，几乎所有场馆都没有观众，但现阶段北京奥运会已经表明只有中国居民可以观看比赛。然而，中共大外宣《环球时报》指出了无观众举行的可能性。
 
-该报称：“出于防疫原因，游客必须全面接种疫苗，并且必须在进入前48小时出示阴性检测结果。”关于男子冰球场地的容量，报道称，“将会开放的席位数量取决于奥运会时北京和全国的疫情。”
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+12月1日，郭文贵先生在大直播中透露，三周前收到某欧洲国家元首的电话表示，“我们这个国家，决定给喜联储一个数字银行牌照”。郭先生指出，一个数字银行牌照意味着巨大的利益，甚至比喜联储还值钱。目前一切都在按部就班地走程序中，还需要四周时间完成，但这位国家元首已用自己的私人手机发来签完字的文件。
 
-“观众座位之间会留有一定的间距，以防止病毒的传播。如果疫情得加严重，我们可能不会向观众开放座位，”该报写道。
+这将是世界上第一个主权国家批准的数字银行牌照，这个牌照在欧洲，这个国家是在世界金融领域排名前三的国家。对新中国联邦来说，这是拥有国家银行、国家储备系统和法币链接的最稳定的桥梁，而且排除了中转行。此事意义深远，同时也意味着这个国家将和中共决裂。
 
-佛家讲一报还一报，这次北京冬奥会能否如期举行还模棱两可，即使能侥幸举办，也将可能会采用与东京奥运会一样的举办方式，真是现世报啊！
+文字版原文：[欧洲某金融强国主动给予喜联储数字银行牌照，与中共决裂](https://gnews.org/zh-hans/1712857/)
 
-信息源:
+音频处理：喜山必胜Maverick
+发稿：Tom Li
+[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
+**更多资讯，更多关注**
 
-[ついに中国共産党系メディアが北京五輪「無観客の可能性」と報道　コロナ感染爆発で](https://news.yahoo.co.jp/articles/3cc407cfcb06dd5f7b3d5a8394e271df83866c58)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.png)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
