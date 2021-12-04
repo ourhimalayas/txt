@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/4/2021 4:03 AM (UTC)`
+
+12/3/2021 Miles Guo: Who did Xi Jinping meet with between August 1 and 16, 2021? And for how long? The first person Xi met, Song Ping, was Hu Jintao's godfather and the “king of the left” in the CCP<br/><br/>12/3/2021 文贵直播：2021年8月1日到16日之间，习近平见了谁？见了多久？习第一个看望的宋平是胡锦涛的教父、左派之王<br/>
+![img](https://media.gettr.com/group3/getter/2021/12/04/04/03/85bb12e2-4f76-746a-552b-6116f4f3770e/out.jpg)
+
+---
+
 `@miles 12/4/2021 3:54 AM (UTC)`
 
 12/3/2021 Miles Guo: The information we provided about artemisinin has huge impacts on Communist China; the CCP has difficulty defining who we are as the Whistleblowers’ Movement; the CCP’s police forces are guarding hospitals to prevent the truth about the COVID vaccines from being leaked; a fellow fighter revealed that 70,000 people died of COVID vaccines in his area, and Communist China’s COVID vaccine death toll is an astronomical figure<br/><br/>12/3/2021 文贵直播：青蒿素的相关信息对国内影响很大；给爆料革命下定义让中共很为难；警察守医院防疫苗真相泄露；战友爆出其所在地区有7万人死于疫苗，中共国疫苗死亡是天文数字
@@ -149,13 +156,6 @@ CZ_Binance's acquisition of a Swiss bank failed!<br/>Where is Binance's money? 6
 
 2021年12月1日 文贵大直播：香港股市经济；澳门地下钱庄；变种病毒疫苗；数字货币监管
 ![img](https://media.gettr.com/group5/origin/2021/12/01/12/83bb6743-7284-88dd-e6ee-bca369e4ce5d/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 12/1/2021 1:42 AM (UTC)`
-
-11月30号：唐萍老师刚刚让我撤掉让大家打榜的盖文，因为这只是卡拉OK版．让我们等到正式的合唱版出来再开始打榜！刚刚过去20分钟，我们就在爱尔兰．澳大利亚……有这样的成绩了感恩全球所有战友们……【郭先生！您的新歌刚上线在爱尔兰hip-pop/rap榜就排名第一！<br/><br/>澳洲说唱歌曲已经第二名了👏👏👏】
-![img](https://media.gettr.com/group46/getter/2021/12/01/01/42/aabfdfc2-a1ab-576b-7db2-646396d64dc9/f08e84ba641c771ba2c41e8a15220373.jpg)
 
 ---
 
