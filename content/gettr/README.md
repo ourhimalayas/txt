@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/4/2021 4:53 PM (UTC)`
+
+12月4号 Hcoin To The Moon 打榜记录（四）<br/>感谢澳大利亚，匈牙利，香港，新加坡，台湾，马来西亚的战友们🙏🙏🙏🙏🙏🙏🙏<br/><br/>iTunes 摇滚Rock第一名🥇：<br/>澳大利亚🇦🇺<br/>匈牙利🇭🇺<br/><br/>iTunes 嘻哈Hip- Hop/Rap 第一名🥇：<br/>香港🇭🇰<br/>新加坡🇸🇬<br/>台湾🇹🇼<br/>马来西亚🇲🇾
+![img](https://media.gettr.com/group36/getter/2021/12/04/16/1d8b3e58-3966-e835-4e0b-df92f1767361/38e48926519838d3924ddda96f854013.jpg)
+
+---
+
+`@miles 12/4/2021 4:47 PM (UTC)`
+
+12月4号 Hcoin To The Moon 打榜记录（三）<br/>感谢马来西亚，波兰，加拿大，西班牙，越南，爱尔兰的战友们🙏🙏🙏🙏🙏🙏🙏<br/><br/>iTunes 摇滚Rock第一名🥇：<br/>马来西亚🇲🇾<br/>波兰🇵🇱<br/>加拿大🇨🇦<br/>西班牙🇪🇸<br/>越南🇻🇳<br/>爱尔兰🇮🇪
+![img](https://media.gettr.com/group49/getter/2021/12/04/16/6eea9a30-6f87-3148-a2b6-0ed724b01b0e/7cfbf6ca2c0951e2d0bdee0bccfbe7ad.jpg)
+
+---
+
+`@miles 12/4/2021 4:42 PM (UTC)`
+
+12月4号 Hcoin To The Moon 打榜记录（二）<br/>感谢香港，新加坡，美国，阿联酋，台湾，新西兰的战友们🙏🙏🙏🙏🙏🙏🙏<br/><br/>iTunes 摇滚Rock第一名🥇：<br/>香港🇭🇰<br/>新加坡🇸🇬<br/>美国🇺🇸<br/>阿联酋🇦🇪<br/>台湾🇹🇼<br/>新西兰🇳🇿<br/>
+![img](https://media.gettr.com/group6/getter/2021/12/04/16/12681298-e3aa-a593-ae02-8e4236a0e078/80394bad32c7efcb91b8a5418701fc7f.jpg)
+
+---
+
 `@miles 12/4/2021 4:36 PM (UTC)`
 
 12月4号 Hcoin To The Moon 打榜记录（一）<br/>感谢香港，新加坡，老挝，澳门，柬埔寨，蒙古的战友们🙏🙏🙏🙏🙏🙏🙏<br/><br/>iTunes 总榜第一名🥇：<br/><br/>香港🇭🇰<br/>新加坡🇸🇬<br/>老挝🇱🇦<br/>澳门🇲🇴<br/>柬埔寨🇰🇭<br/>蒙古🇲🇳
@@ -133,27 +154,6 @@
 
 12/1/2021 Miles Guo: Meng Jianzhu has been treating Xi Jinping as an idiot, thinking he can live longer than Xi, who had not made any appearances in the CCP or signed any paperwork for almost 300 days; Meng Jianzhu’s political wisdom is comparable to that of Zeng Qinghong, and both of them are the most healthy CCP kleptocrats<br/><br/>12/1/2021 文贵直播：孟建柱一直把习近平当傻子，他认为一定能熬死习，习有近300天未在党内露面且未签署任何文件；孟建柱的政治智慧和曾庆红齐名，他俩是身体最好的老杂毛<br/><br/>
 ![img](https://media.gettr.com/group44/getter/2021/12/02/05/51/2f111a63-08e6-ba6f-3198-a0887fc21ba3/out.jpg)
-
----
-
-`@miles 12/2/2021 5:44 AM (UTC)`
-
-12/1/2021 Miles Guo: The Omicron variant virus was released by the Guangdong faction of the CCP. Although it is easy to spread, it has a low death rate and does less long-term damages; the antidotes like artemisinin and ivermectin provided by the New Federal State of China will cure both the viral infection and the side effects of the COVID vaccines; naming the new variant “Omicron” is God’s will<br/><br/>12/1/2021 文贵直播：欧米克戎变种病毒是中共广东帮放的，它虽易传染，但致死率和致残率低；新中国联邦提供的青蒿素、伊维菌素等解药将治愈病毒感染和疫苗副作用；给新病毒取欧米克戎这个名字是天意<br/><br/>
-![img](https://media.gettr.com/group38/getter/2021/12/02/05/44/4a7b1614-1f1a-8fad-68ae-fb24434f2040/out.jpg)
-
----
-
-`@miles 12/2/2021 5:39 AM (UTC)`
-
-12/1/2021 Miles Guo: Meng Jianzhu ordered Alvin Chau to take over all the mafias in the entire Southeast Asia to control the drug money and human trafficking; Meng Jianzhu has established an invisible kingdom that stretches across Eurasia, controlling all the human trafficking, drug smuggling, and money laundering in the local areas<br/><br/>12/1/2021 文贵直播：孟建柱要求洗米华拿下整个东南亚的黑帮从而控制毒资和人口贩卖；孟建柱建立了横跨欧亚大陆的隐形王国并控制了当地的人口贩卖、毒品走私和洗黑钱<br/>
-![img](https://media.gettr.com/group47/getter/2021/12/02/05/39/ae8d0d85-297c-5cc2-2de1-8085d9b0d8c2/out.jpg)
-
----
-
-`@miles 12/2/2021 1:31 AM (UTC)`
-
-12/1/2021 Miles Guo: All I said in the live broadcasts many years ago has been verified, whereas none of the CCP’s words can stand the test of time; I completely changed the lifestyle of the CCP by using cameras to record the videos of the CCP cadres’ obscenity<br/><br/>12/1/2021 文贵直播：文贵几年前在直播中说的话100%得到验证，而中共却没有一句话经得起时间的检验；通过录制中共官员的淫乱视频，文贵用摄像机彻底改变了中共的生活方式<br/>
-![img](https://media.gettr.com/group49/getter/2021/12/02/01/31/f48f68ab-135b-bd1a-0549-80eb40b78d72/out.jpg)
 
 ---
 
