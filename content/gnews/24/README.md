@@ -2,12 +2,29 @@
 ---
 
 
-## 汤姆·科顿批福奇和拜登政府未能立即实施旅行禁令
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1717877/)
+## GTV新闻访谈简报|2021年12月3日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1717902/)
 
-11/29/2021 汤姆·科顿：拜登政府未能立即实施旅行禁令，可以归罪于托尼·福奇，因为如果想实施旅行禁令，就要立即生效，这是民主党人在这种病毒上表现出其惊人虚伪性的又一个例子。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新.png)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1203text-SC.png)
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+视频参看：[12.3  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61aac4b4d6388d55041600e0)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/rl.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

@@ -2,42 +2,43 @@
 ---
 
 
-## 美众议院竟通过了针对不接种疫苗者的“奥威尔式”法案
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1718028/)
+## 中俄做好乌克兰台湾两线开战准备,在疫苗病毒上有猫腻
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1718078/)
 
-#### 撰稿：日本东京方舟农场  幽蘭自得
+![](https://assets.gnews.org/wp-content/uploads/2021/12/002211-2.jpg)
+据[**2021****年12****月03****日**** ****文贵大直播：各国疫苗政策近况；国内疫苗政治，疫苗经济及疫苗灾难的最新消息；Omicron****变异病毒在亚洲地区的进展；iTunes****打榜记录- Hcoin To The Moon****；美国世界经济变化；喜数字银行牌照及赌场牌照的意义**](https://gtv.org/video/id=61aa1cecd6388d55041591e6)时间点44：50——
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/3A00CB2F-4E91-477E-ACBC-F374FF101AC9.jpeg)美共和党众议员玛丽·米勒（Mary Miller）（图片来自网络）
+**郭文贵先生：**俄罗斯的一个很重要的，而且这几天俄罗斯的朋友告诉我的情况，他说最近中共和俄罗斯的交往极为频繁，主要基于以下三个方面：如何是台湾和乌克兰同时行动，让美国在不能同时打两场战争的情况下，让双方能同时把乌克兰、台湾拿下。今天巴黎、大牛听到这个不用害怕，不用收屁股，放心，有七哥在呢，有新中国联邦在；
 
-据《LifeSiteNews》12月2日报道，美国众议院近日通过了《2021 年免疫基础设施现代化法案》。对该法案投下反对票的美国共和党众议员玛丽·米勒（Mary Miller）抨击该法案是强加给不接种（中共病毒）疫苗者的立法工具。
+第二个就是什么，关于这个病毒、疫苗，绝对是他说觉得病毒和疫苗的事情上，他说俄罗斯在中国拿着疫苗不但没用，全部给毁掉，而且俄罗斯迅速地对外供应的疫苗，中共国和俄罗斯之间没有什么疫苗合作，也没有任何病毒合作，都是口号。他说这里边有猫腻，咱这个哥们儿可不是一般人，我可以告诉你们；
 
-据报道，美国众议院11月30日以294票赞成、130票反对，通过了项目资金为4亿美元的《2021 年免疫基础设施现代化法案》（或称HR550号法案）。130张反对票均来自共和党议员，其中包括伊利诺伊州众议员玛丽·米勒。
+第三个，他体会到俄罗斯已经做好了打仗，而且经济走向灾难、世界经济崩溃的一切的准备，他认为中共国也准备好了。
 
-玛丽·米勒指出， 该法案的提交者甚至在她的新闻稿中吹嘘称，这些系统将帮助政府提醒人们接种推荐（中共病毒）疫苗的时间，并确定疫苗接种率低的地区，以确保疫苗的公平分配。
+而且他认为杨洁篪最后一次到莫斯科，所有在莫斯科见的人，绝大多数都是所谓的在俄罗斯的老朋友，引起了普京的愤怒。普京认为你在中国、欧洲，你爱怎么搞怎么搞，你别到我这儿来也挖我墙角，是不是？你跟我这个在厕所门口见一面，给我那个在厕所相遇是吧，那这啥意思这是，是吧？你学Rachel是不是？老跟厕所见面儿是吧？偶遇是吧？所以说普京就不高兴了，所以说现在说中俄关系很微妙。
 
-米勒表示，这一法案显然成为强制执行（中共病毒）疫苗规定，并将“奥威尔式”规则强加于不遵守者的立法工具。（奥威尔式规则指现代专制政权藉由严厉执行政治宣传、监视、故意提供虚假数据、否认事实等手段来控制社会。——维基百科）
+（以下暂略）
 
-由于任何根据该法案申请拨款的实体，都必须同意 CDC 规定的数据收集标准，因此米勒警告说：“这项法案将允许政府收集、研究和分享您的私人健康数据，从而使政府可以通过无数种方式利用这些信息来对付你。”
+撰稿：喜马拉雅的肉夹馍；
 
-米勒同时还指出，HR550 最终可能会向民主党领导的州提供数百万美元的纳税人资金，以帮助他们实施（中共病毒）疫苗规定。
+审核：喜马拉雅的馍夹肉；
 
-除米勒之外，其他共和党众议院成员也猛烈抨击这一法案。佛罗里达州共和党众议员拜伦·唐纳德指出，这项立法将不必要地挪用数百万的纳税人资金去扩大华盛顿的官僚主义。”他还表示，“一个专门为记录和收集美国人机密疫苗接种信息而创建的数据库，明显侵犯了个人的基本医疗隐私权”。
+校对：Maarago；
 
-据了解，HR550号法案扩大了CDC和公共卫生部门的权力。政府可利用CDC来加强收集美国人疫苗接种历史信息的数据，增加州和联邦政府以及公共和私人医疗保健提供者之间的信息共享，从而加强和加快全国范围内的中共病毒疫苗推广。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-*参考链接：*
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-1. [*https://www.lifesitenews.com/news/house-passes-bill-to-fund-vaccination-databases-with-republican-support/*](https://www.lifesitenews.com/news/house-passes-bill-to-fund-vaccination-databases-with-republican-support/)
-2. [*https://zh-yue.wikipedia.org/wiki/%E5%A5%A7%E5%A8%81%E7%88%BE%E4%B8%BB%E7%BE%A9*](https://zh-yue.wikipedia.org/wiki/%E5%A5%A7%E5%A8%81%E7%88%BE%E4%B8%BB%E7%BE%A9)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-* * *
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-*素材采编：幽蘭自得*
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-*编辑：青衣青青*
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-*发布：miumiu*
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

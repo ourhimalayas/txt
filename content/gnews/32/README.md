@@ -2,28 +2,12 @@
 ---
 
 
-## 恒大宣布无法履行担保义务 违约开始
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1717802/)
+## 11/26郭文贵直播：我们灭的是中共和全球黑暗力量（粤语配音）
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1717808/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Unknown-7.jpg)恒大宣布无法履行担保义务 违约开始 网络图片
-据网易新闻12月3日报道，陷入流动性危机挣扎近半年后，恒大地产集团3日发布公告称，“鉴于目前的流动性情况，本集团不确定是否拥有重组资金继续履行财务责任。”恒大集团负债共约两万亿元，其中包括192.36亿美元未到期的美元债。
+11/26/2021 郭文贵直播：天花病毒是生化武器，易制造，共产党敢放且一定会放，只是规模多大的问题；全世界在病毒和疫苗上噤声，唯有爆料革命在传播真相──我们灭的是中共和全球黑暗力量!
 
-恒大违约直至倒闭，这是瓜熟蒂落的结局。寿数到了，强撑也撑不住，何况中共已经没有能力再继续支撑。恒大倒下之后，带给中共国和世界经济的灾难，不可预料，且拭目以待。
-
-新闻参考链接：[https://c.m.163.com/news/a/GQARNBSR0539AP40.html?spss=newsapp](https://c.m.163.com/news/a/GQARNBSR0539AP40.html?spss=newsapp)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

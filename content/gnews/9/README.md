@@ -2,58 +2,28 @@
 ---
 
 
-## 美日明首度以「远征前进基地作战」概念进行联演
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1718022/)
+## 实锤：美国SEC公布海外上市公司监管新规细则
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1718075/)
 
-作者：台湾宝岛农场 – 鬥陣來拼
+撰稿人：冰沙奶茶
+![](https://assets.gnews.org/wp-content/uploads/2021/12/SEC.png)
+图片来源：SEC官网
 
+当地时间2日，美国证券交易委员会（SEC）宣布通过法规修正案，完善了《外国公司问责法案(HFCAA)》 相关的信息提交与披露实施细则，监管政策即将进入实质性执行阶段。
 
+根据新规，SEC要求在美国上市的外国企业必须披露是否由政府实体拥有或控制，并提供审计检查证据，同时以可变利益实体(VIE)上市的企业需要进一步加强信息披露。若PCAOB 规定期内不能取得所要求的审计底稿，或者企业未及时申报是否为外国政府所有及控制，法例准许SEC可禁止上市公司股票交易，甚至摘牌。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/LOGO-1.jpg)
+细则明确，被提出监管要求的相关海外公司将有15天的时间向SEC发起司法上诉，SEC对不遵守规则的公司退市时限最长为三年。
 
+PCAOB公布的数据显示，截止今年7月1日，共有250家在美上市的外国公司阻碍该机构进行监管，其中来自中国公司占绝大多数，达到227家。除部分在场外交易外，在纽交所和纳斯达克挂牌交易的为176家。这些公司一直以来都无法向投资者提供完整和公平的信息。美国证券交易委员会(SEC)主席加里·詹斯勒(Gary Gensler)曾警告说：许多投资者不了解在美国上市的中国股票的风险，当你认为自己在投资一家中国公司时，实际上很可能是在投资开曼群岛或世界其他地区的一家空壳公司。
 
+而中共一贯以国家主权或隐私问题为由，拒绝 PCAOB 前往中共国进行检查，并强调是担心允许外国监管机构在中国领土上对实施外国法律是对国家主权的侵犯来掩盖自身会计造假、欺诈投资者、商业模式不合规的问题。美国资本市场在中共的眼中就是一块肥肉，上市纯粹是为了圈钱。此次新规的落地的意义深远，不仅保护美国投资者的利益，也有利于资本市场的有序发展。
 
+新闻来源：
+[刚刚！美国SEC公布海外上市公司监管新规细则|SEC\_新浪财经\_新浪网 (sina.com.cn)](https://finance.sina.com.cn/roll/2021-12-03/doc-ikyamrmy6636598.shtml)
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/20211202005765-1.jpg)图/DVIDS
-
-《产经新闻》报导，美国陆战队和日本陆上自卫队将于4日展开为期14天的「坚决之龙21」( Resolute Dragon 21) 联合演习。
-
- 此联合演习会是美军首度在运用「远征前进基地作战」(EABO) 概念下，于日本进行「高机动炮兵火箭系统」( HIMARS) 的长距离空运与快速打击演练，而EABO正是美国陆战队支持台海战事的主要手段之一。
-
-即使日方强调此演习是针对该国离岛防卫，但EABO作战也是美方协防台湾、抵抗共军登陆的重要手段之一；台湾国防部智库、国防安全研究院先前也强调，台湾在EABO中能扮演关键核心。
-
- 过去美国虽已透过船舰进行HIMARS远程运输，不过基于EABO概念中十分重要的「快速部署」目标，这次美方和日方反舰飞弹单位透过联演来加强合作，目的就是要快速地对抗、打击中共国的飞弹。
-
-
-参考链接：
-[https://news.ltn.com.tw/news/world/breakingnews/3756846](https://news.ltn.com.tw/news/world/breakingnews/3756846)
-
-[https://www.chinatimes.com/realtimenews/20211202005757-260417?chdtv](https://www.chinatimes.com/realtimenews/20211202005757-260417?chdtv)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/rili.png)
-
-总编：Irene木木
-校对/发稿：Daxia
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/LOGO-1.jpg)
-
-
-
-
-
+发稿：MG4
+![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
