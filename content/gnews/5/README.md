@@ -2,30 +2,33 @@
 ---
 
 
-## 美SEC新规要求在美上市中企列出董事会共产党员名单
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1718996/)
+## 美法院驳回中国电信上诉请求 因其威胁到美国国家安全
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1719131/)
 
-#### **撰稿：日本东京方舟农场 Kevin wang**
+#### 撰稿：日本东京方舟农场  海星
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/44E30A28-6112-4A04-A99D-3EEFA19B7986.jpeg)（图片来自中央社）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2E24589A-1A11-4056-B5EA-9458236DFD2C.jpeg)（图片来源：美联社）
 
-美国证券交易委员会（SEC）12月2日宣布实施新规则。新规则不仅要求在美上市的外国企业必须接受美国的审计检查，同时还要求这些企业列出董事会内中国共产党党员名单。不难看出，这项新规定主要针对的是中企。
+12月2日，美国联邦上诉法院驳回了中国电信欲阻止美国联邦通讯委员会（FCC）撤销其在美运营许可的上诉请求。
 
-据《中央社》12月2日报道，美国证券交易委员会（SEC）当日宣布实施新规定。新规定要求在美国股市上市的外国企业必须提供所需资料给美国的审计机构，否则SEC有权让它们退市。
+据《路透社》报道，美国哥伦比亚特区联邦上诉法院的三名法官驳回了中国电信对于FCC撤销其运营许可的申诉。
 
-SEC还指出，约有220家在美股上市企业所在的司法管辖权地区，对于美国的审计检查设有障碍。很明显，SEC指向的就是中共国。
+FCC于10月26日下令撤销中国电信在美国提供服务的许可，终止其在美的所有电信业务。该撤销令将于2022年1月初生效。
 
-美国国会去年通过了特别针对中共国企业的新法律。该法律规定，美国“上市公司会计监督管理委员会”（PCAOB ，Public Company Accounting Oversight Board）必须能够检查在美股上市的外国企业的审计数据。
+FCC对此表示，中国电信并未就关于存在国家安全威胁的指控提交相关证据，而是重点对该委员会的行政程序提出异议。因此，该公司的上诉完全没有胜诉的可能性。
 
-SEC近日依据上述法律所制定的这项最新规定还要求，在美上市企业需证明自己是否受一国政府的“持有或控制”，并且必须列出董事会中任何中国共产党党员的姓名。
+FCC再度重申，中国电信美洲公司为中共所有及控制，极有可能中断和误导美国通信行业。并且该公司的服务可被用于间谍活动，直接威胁到美国的国家安全。
 
-SEC主席詹斯勒（Gary Gensler）随后在一份声明中表示，外国企业在美国发行公共证券，必须接受美国PCAOB的审计检查。他还表示，SEC与PCAOB将继续携手努力，确保进入美国资本市场的外国企业严格遵守美国的审计规定。
+*参考链接：*
 
-*参考链接：[https://www.cna.com.tw/news/firstnews/202112030264.aspx](https://www.cna.com.tw/news/firstnews/202112030264.aspx)*
+1. [*https://cn.reuters.com/article/china-telecom-us-fcc-court-1203-idCNKBS2II021*](https://cn.reuters.com/article/china-telecom-us-fcc-court-1203-idCNKBS2II021)
+2. [*https://www.mobileworldlive.com/cn/p2yt4k-1p1p*](https://www.mobileworldlive.com/cn/p2yt4k-1p1p)
+3. [*https://cn.reuters.com/article/idCNKBS2HH02S*](https://cn.reuters.com/article/idCNKBS2HH02S)
+
 
 * * *
 
-*素材采编：Kevin wang*
+*素材采编：海星*
 
 *编辑：青衣青青*
 

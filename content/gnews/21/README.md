@@ -2,40 +2,14 @@
 ---
 
 
-## 印尼央行考虑发行数字货币以“对抗”加密货币
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1718810/)
+## 千亿地产巨头中国奥园官宣延期兑付，60亿理财爆雷
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1718884/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+12月3日财经网报道：前屡屡遭遇股债双杀、子公司陷破产传闻的中国奥园，总额约60亿的理财最终“爆雷”。就在刚刚，公司官宣了延期兑付方案。根据这份方案，投资者有现金兑付和实物兑付两种方式可选，现金兑付单个金额200万元以内的分6个月兑付，单个金额超200万元的在2024年5月前兑付完。实物兑付方式下，中国奥园拿出总货值不低于90亿的住宅、公寓、写字楼、商铺及车位供选择。目前公司正全面推动出售资产，正计划出售位于中国香港葵涌的一栋活化工厦，并正与买家商谈。此前的11月12日公司刚刚亏本出售子公司股权，回款9亿港元，11月4日还公告出售物业公司奥园健康，目前进展不明。内部理财爆雷外，中国奥园在公开市场压力更大，近一个月其评级遭到五次下调，目前仅续美元债就有接近200亿元在未来几年要兑付。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/nimg.ws_.126.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/nimg.ws_.126-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/nimg.ws_.126-4.jpg)
+参考链接： [http://stock.caijing.com.cn/20211203/4822771.shtml](http://stock.caijing.com.cn/20211203/4822771.shtml)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/103173443-GettyImages-475496454.jpg)
-
-
- 
-图片来源： CNBC
-
-
-#### 编译：小红帽
-
-据彭博社报道，印度尼西亚银行希望发行一种数字卢比，作为法定货币来对抗加密货币，并指出央行自今年年初以来一直在研究这个问题。
-
-印度尼西亚中央银行正在考虑发行中央银行数字货币 (CBDC) 以打击加密货币的使用。 中央银行印度尼西亚银行的助理行长 朱达·阿贡（Juda Agung）表示：“中央银行数字货币将成为对抗加密货币的工具之一。我们假设人们会发现中央银行数字货币比加密货币更可信。”
-
-阿贡解释说，在印度尼西亚，加密货币资产与商品期货一起交易，并受贸易部监管。但是，他强调加密货币资产对该国的金融体系产生了重大影响，并进行了详细阐述。
-
-根据贸易部的数据，截至7月，约有740万印尼人投资于加密货币资产，比去年翻了一番。印尼的加密货币交易总额约为478.5万亿印尼盾（333亿美元）。印度尼西亚政府正在推进建立专门的加密货币交易所的计划。
-
-与此同时，印度尼西亚的乌里玛委员会（Majelis Ulama Indonesia 或 MUI）是该国拥有伊斯兰教法合规权威的最高伊斯兰机构，最近宣布使用加密货币为非法，根据伊斯兰教法而禁止穆斯林使用。
-
-**参考新闻：**[Indonesia’s Central Bank Considers Issuing Digital Currency to ‘Fight’ Crypto – Regulation Bitcoin News](https://news.bitcoin.com/indonesias-central-bank-issuing-digital-currency-fight-crypto/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+（文章内容仅代表新西兰-财经G乐部节目观点）
 
  
 

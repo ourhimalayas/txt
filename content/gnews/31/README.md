@@ -2,21 +2,24 @@
 ---
 
 
-## 比利时一家动物园的两只河马感染新冠
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1718723/)
+## 美汇率操纵国观察名单出炉 中共国再次被点名
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1718779/)
 
-#### 翻译/撰稿：zzballack
+撰稿：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2-14.jpg)[图片源](https://search.yahoo.co.jp/amp/s/mobile.reuters.com/article/amp/idCNKBS2C201Z%3Fusqp%3Dmq331AQIKAGwASCAAgM%253D)
+美国财政部3日发布报告，分析主要贸易伙伴的外汇政策。12个国家被列入“观察名单”以关注动态趋势，日本、中共国、韩国和德国继续成为目标。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-6.jpg)图片来源：日经亚洲
-据《国会山报》（The Hill）12月3日报道，比利时安特卫普动物园（Antwerp Zoo）12月3日表示，园内一对河马母女新冠核酸检测呈阳性，目前被隔离。动物园也暂时关闭。
+该报告是为了检查当地货币是否被有意引导贬值以增加对美国的出口。关于日本，美方指出，自2011年以来就没有实施外汇干预，并表示“只有在极其特殊的情况下才能进行干预”。关于中共国，美方严厉斥责“我们将密切关注中共国，因为它缺乏透明度，例如不披露外汇干预的数据。”
 
-据当地媒体报道，动物园兽医弗朗西斯·维卡曼（Francis Vercammen）表示：“在看到园区内一对14岁与41岁的河马母女流鼻涕后，就替它们做预防性的细菌检验，不料却发现它们感染了新冠病毒。这应该是全球首宗河马感染新冠的案例。在此之前，感染新冠病毒的动物主要是类人猿和猫科动物。”
+一个币种两个汇率，离岸人民币汇率与在岸人民币汇率，中共玩这些金融猫腻，也够全世界喝一壶了。至于操没操纵汇率，这已经是“光头上的虱子”，自己看吧！
 
-动物园表示，河马除了流鼻涕之外，没有其它症状，一切良好。负责照顾他们的工作人员核酸检测为阴性，并未出现症状。但是必须对他们的鞋子进行消毒，他们需要戴上口罩和安全护目镜。目前尚未厘清河马是如何染疫，因为该动物园的河马区之前已不对外开放。
+信息源：
 
-新闻来源：[Two hippos at Belgian zoo have COVID-19](https://thehill.com/policy/international/584260-two-hippos-at-belgian-zoo-have-covid-19)
+[米財務省、為替「監視リスト」に日中など１２か国](https://news.yahoo.co.jp/articles/7cdafc07413d17b6997ce3bed91514623eed40c8)
 
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
