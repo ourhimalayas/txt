@@ -2,27 +2,34 @@
 ---
 
 
-## “债务陷阱”担忧中老挝与中共国的一条铁路开通
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1717663/)
+## 日本要闻汇编 12月3日
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1717676/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+素材：东京樱花团｜GNEWS组
+![](https://lh4.googleusercontent.com/kKZXQmIaxMTpQz0IulSSdzgy-ro3IbKuGw2_3sQ9R0hFCskjBgmm60rIQlyafH10teCHmzrgXBAmW1inAprZE_-rAO3agmLy4Ifc66v3yVtuvo14guE74rG1qKQ_FtZR8VZFMfiU)[*图片来源*](https://m1.aboluowang.com/uploadfile/2021/1203/20211203022726452.jpg)
+1、[**日防卫大臣说无法接受中共单方面主张**](https://www.aboluowang.com/2021/1203/1679069.html)
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/12/L.jpg)newstrail.com
-日本共同社报道，连接老挝和中共国边境的一条铁路于12月3日正式开通，因为在该项目上老挝背负了对中共的大量债务，人们担忧中共掌握铁路控制权。
+日本共同社报道，日本防卫大臣岸信夫今天（3日）在记者会上重申，对于台湾相关议题，有必要让中共理解日本国内有安倍这样的想法，日本无法只接受中共单方面的主张。
 
-老挝作为亚洲最贫穷的国家之一，寄希望于其第一条长途铁路带来大量贸易，增加其经济效益。而中共国希望其在“一带一路”倡议下的标志性基础设施项目最终将延伸到泰国、马来西亚和新加坡，并创建一条通往印度洋-太平洋的陆上路线。
+2、[**日本罕见一晚发生3次地震**](https://www.aboluowang.com/2021/1203/1679042.html)
 
-2015年老挝和中共政府达成正式协议后，从2016年底开始，该项目的建设持续了4年多时间。铁路的建造成本约为59亿美元，其中约35亿美元是从中共国进出口银行(Export-Import Bank of China)借来的。
+NHK、产经新闻等报道，日本山梨县3日清晨2时起到6时37分罕见连续发生3起地震，震中都在“富士五湖”，地震最大为里氏规模4.8。气象厅今早记者会说，未来一周，可能发生最大震度5弱的地震，特别是今后2、3天，容易发生较明显地震。
 
-铁路项目建设方——中老铁路有限公司是是一家合资企业，中共国拥有70%的股份，老挝拥有剩余的股份。同时，它还拥有这条铁路50年的特许经营权。 之后，老挝政府将接管经营权。由于大部分费用由中共国承担，老挝对中共国依赖的增加，引发了对老挝陷入中共“债务陷阱”的担忧。
+3、[**自民党向外相要求增加ODA预算**](https://china.kyodonews.net/news/2021/12/ec1e43132863-oda.html)
 
-这条全长414公里的单轨铁路连接老挝首都万象和与中共国接壤的北部边境磨丁。这条路线最终通往中共国西南部云南省的昆明，全长约1000公里。新铁路既提供客运服务，也提供货运服务，计划中的10个客运站中有6个已初步启用。
+日本自民党外交小组组长佐藤正久等人3日在外务省与外相林芳正会面并递交决议，考虑到在印度太平洋地区扩大影响力的中国，要求2022年度预算案大幅增加政府开发援助（ODA）资金。
 
-参考链接：
+4、[**部分国外航司恢复赴日航班机票预售**](https://china.kyodonews.net/news/2021/12/f1ae736debd0.html)
 
-[https://english.kyodonews.net/news/2021/12/4c9e31e25365-laos-china-railway-launched-amid-concern-about-debt-owed-to-china.html](https://english.kyodonews.net/news/2021/12/4c9e31e25365-laos-china-railway-launched-amid-concern-about-debt-owed-to-china.html)
+日本国土交通省3日透露，关于因新冠病毒奥密克戎毒株蔓延而一度暂停的赴日国际航班机票预售，部分国外航空公司已恢复。与其他航司也正在协调恢复事宜。
 
+5、[**日本增加嗅探犬严防非洲猪瘟入境**](https://china.kyodonews.net/news/2021/12/4cd0afe21a6d.html)
+
+共同社2日消息，日本农林水产省对国内尚未出现的家畜传染病之一非洲猪瘟（ASF）提高了警惕，非洲猪瘟疫情在亚洲蔓延、威胁增大，日本作为边境口岸措施把嗅探犬增加到140只，期待其能发挥作用。
+
+*编辑：东京樱花团 / 文小白
+发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
