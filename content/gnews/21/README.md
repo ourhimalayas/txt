@@ -2,13 +2,13 @@
 ---
 
 
-## 11/26郭文贵直播：上海和杭州有医院出现天花病例（粤语配音）
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1717809/)
+## 日本山形县发生群聚感染，13名幼儿感染中共病毒
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1717851/)
 
-11/26/2021 郭文贵直播：上海和杭州有医院出现天花病例，位于常州的秘密军事基地的医生被突然接走；孙力军、孟建柱、王岐山、傅政华的邪恶史无前例，不抓他们，世界都将被毁掉。
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
-
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12._04-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

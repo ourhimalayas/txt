@@ -2,34 +2,29 @@
 ---
 
 
-## 日本要闻汇编 12月3日
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1717676/)
+## 恒大宣布无法履行担保义务 违约开始
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1717802/)
 
-素材：东京樱花团｜GNEWS组
-![](https://lh4.googleusercontent.com/kKZXQmIaxMTpQz0IulSSdzgy-ro3IbKuGw2_3sQ9R0hFCskjBgmm60rIQlyafH10teCHmzrgXBAmW1inAprZE_-rAO3agmLy4Ifc66v3yVtuvo14guE74rG1qKQ_FtZR8VZFMfiU)[*图片来源*](https://m1.aboluowang.com/uploadfile/2021/1203/20211203022726452.jpg)
-1、[**日防卫大臣说无法接受中共单方面主张**](https://www.aboluowang.com/2021/1203/1679069.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Unknown-7.jpg)恒大宣布无法履行担保义务 违约开始 网络图片
+据网易新闻12月3日报道，陷入流动性危机挣扎近半年后，恒大地产集团3日发布公告称，“鉴于目前的流动性情况，本集团不确定是否拥有重组资金继续履行财务责任。”恒大集团负债共约两万亿元，其中包括192.36亿美元未到期的美元债。
 
-日本共同社报道，日本防卫大臣岸信夫今天（3日）在记者会上重申，对于台湾相关议题，有必要让中共理解日本国内有安倍这样的想法，日本无法只接受中共单方面的主张。
+恒大违约直至倒闭，这是瓜熟蒂落的结局。寿数到了，强撑也撑不住，何况中共已经没有能力再继续支撑。恒大倒下之后，带给中共国和世界经济的灾难，不可预料，且拭目以待。
 
-2、[**日本罕见一晚发生3次地震**](https://www.aboluowang.com/2021/1203/1679042.html)
+新闻参考链接：[https://c.m.163.com/news/a/GQARNBSR0539AP40.html?spss=newsapp](https://c.m.163.com/news/a/GQARNBSR0539AP40.html?spss=newsapp)
 
-NHK、产经新闻等报道，日本山梨县3日清晨2时起到6时37分罕见连续发生3起地震，震中都在“富士五湖”，地震最大为里氏规模4.8。气象厅今早记者会说，未来一周，可能发生最大震度5弱的地震，特别是今后2、3天，容易发生较明显地震。
+* * *
 
-3、[**自民党向外相要求增加ODA预算**](https://china.kyodonews.net/news/2021/12/ec1e43132863-oda.html)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-日本自民党外交小组组长佐藤正久等人3日在外务省与外相林芳正会面并递交决议，考虑到在印度太平洋地区扩大影响力的中国，要求2022年度预算案大幅增加政府开发援助（ODA）资金。
 
-4、[**部分国外航司恢复赴日航班机票预售**](https://china.kyodonews.net/news/2021/12/f1ae736debd0.html)
+编辑：【英国伦敦喜庄园编辑部】
 
-日本国土交通省3日透露，关于因新冠病毒奥密克戎毒株蔓延而一度暂停的赴日国际航班机票预售，部分国外航空公司已恢复。与其他航司也正在协调恢复事宜。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-5、[**日本增加嗅探犬严防非洲猪瘟入境**](https://china.kyodonews.net/news/2021/12/4cd0afe21a6d.html)
 
-共同社2日消息，日本农林水产省对国内尚未出现的家畜传染病之一非洲猪瘟（ASF）提高了警惕，非洲猪瘟疫情在亚洲蔓延、威胁增大，日本作为边境口岸措施把嗅探犬增加到140只，期待其能发挥作用。
 
-*编辑：东京樱花团 / 文小白
-发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
