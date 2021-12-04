@@ -2,27 +2,51 @@
 ---
 
 
-## 担忧医疗数据泄露澳大利亚正在审核一项从中共购买医疗设备的协议
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1717529/)
+## NIH资深专家阻止在不断增加的疫苗授权
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1717641/)
 
-翻译：喜国公民
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Imaging.png)图片来自网络
-[一项价值](https://www.theaustralian.com.au/higher-education/university-of-sydney-contract-could-open-health-records-to-chinese/news-story/de6511864fb3cd483ead1a0680bf8092?utm_source=&amp;utm_medium=&amp;utm_campaign=&amp;utm_content=)[1400万澳元的医疗设备的秘密招标过程](https://www.theaustralian.com.au/higher-education/university-of-sydney-contract-could-open-health-records-to-chinese/news-story/de6511864fb3cd483ead1a0680bf8092?utm_source=&amp;utm_medium=&amp;utm_campaign=&amp;utm_content=)已经引起了澳大利亚情报部门的注意，担心这家拥有人工智能部门的中国公司—上海联合成像医疗公司可能获得新南威尔士州政府的健康数据。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/120303-1.jpg)马修·梅莫利博士。图片：来自NIH网站
+**摘要翻译：**
 
-该招标由悉尼大学实施，然而，悉尼大学承认它没有计划按照《对外关系法》的要求，向外交和贸易部披露其对授予联合成像健康公司中标的考虑。
+据《华尔街日报》报道，在美国国立卫生研究院（NIH）工作了16年的马修·梅莫利，将在12月1日的直播圆桌会议上，就强制接种疫苗的伦理问题提出反对意见。该会议将向该机构内部开放，供患者和公众观看。
 
-该医疗设备将是悉尼首台全身扫描仪，可用于检测肿瘤并追踪其扩散，将由该大学和皇家北岸医院使用。
+负责计划会议的美国国立卫生研究院资深生物伦理学家大卫·温德勒（David Wendler）告诉华尔街日报说：“美国国立卫生研究院内部对（疫苗授权）是否合适存在很多争。”“这是一个重要的热门话题”。
 
-位于上海的联合成像医疗集团有一个名为联合成像智能的人工智能子公司，该公司使用人工智能软件来分析公司积累的患者数据，并用扫描仪积累大数据，然后将其送回中国。
+周六，一个上诉法院暂停了拜登总统要求雇主核实雇员接种情况或确保每周进行检测的规定。
 
-值得关注的是，悉尼大学选择不向外交和贸易部披露任何招标细节，认为澳大利亚的联合成像公司100%是由英国联合成像医疗集团公司拥有，但该公司又由上海联合成像医疗集团拥有，该集团有一套非常复杂的股东结构，可能与中国政府有联系。
+据报道，梅莫利在7月给美国国家过敏和传染病研究院主任安东尼·福奇的一封电子邮件中写道，他发现强制疫苗接种“非常有问题”。“我认为我们使用疫苗的方式是错误的，” 他告诉福奇。
 
-据悉，中国的投标被看好，买方已经做好法律、其他政府制裁和国防出口管制方面的准备，为签署购买合同铺平道路。
+据报道，已经申请了疫苗豁免的梅莫利赞成在弱势人群中接种疫苗，但他认为群体疫苗接种可能会阻碍人群通过感染获得自然且强大的免疫力。
 
-2020年颁布的澳大利亚《对外关系法》要求公立大学在与外国政府实体达成安排时进行披露，并赋予外交部长否决被认为违反国家利益的协议的权力。外交部长玛丽斯·佩恩曾利用该法律取消了维多利亚州政府与中国的“一带一路”协议。
+这位48岁的研究人员表示，他的孩子们接种过儿童时期的疫苗，无论最终结果如何，他都会支持这次伦理辩论的结果。 “我做疫苗试验。事实上，我帮助研制疫苗，” 他告诉《华尔街日报》记者。“我的职业生涯的一部分是分享我的专家意见，无论对错……，我的意思是，如果他们最后都说我错了，那也没关系。我想进行讨论”。
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-2.jpg)
+美国疾病控制与预防中心 (CDC) 上个月公布了新的发现表明，疫苗是对抗病毒的最有效保护措施。
+
+研究中的数据“表明，与单纯的感染相比，接种疫苗可以提供更高、更强、更稳定的免疫力，至少在六个月内保护人们免于因COVID-19而住院治疗”。
+
+**简评：**
+
+随着疫苗大规模接种产生的问题越来越多，这篇短文很好的反映了现实的情况：一方面有良知的科学家冒着被妖魔化的风险开始提出质疑，并有所行动以期发出声音。比如文中提到的，对大规模接种实验性新冠疫苗产生的医学伦理问题进行讨论；而另一方面主流媒体仍在不遗余力地回避疫苗大规模接种产生的问题，并极力粉饰疫苗的功效。正如这篇报道的最后一段，将疫苗成功简单归结为对特定病毒是否有效上，而忽略和淡化疫苗带来的其它风险，包括各种短期和长期的副作用所引起的大量的伤残和死亡。
+
+原文链接：[Senior NIH expert pushes back on growing vaccine mandates](https://thehill.com/changing-america/well-being/prevention-cures/580557-senior-nih-expert-pushes-back-on-growing-vaccine)
+
+*翻译/简评：Kone\_Neko*
+
+*校对：Julia Win*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,34 +2,31 @@
 ---
 
 
-## 日本要闻汇编 12月3日
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1717676/)
+## 布林肯：任何中共国入侵台湾之举将有“可怕后果”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1717850/)
 
-素材：东京樱花团｜GNEWS组
-![](https://lh4.googleusercontent.com/kKZXQmIaxMTpQz0IulSSdzgy-ro3IbKuGw2_3sQ9R0hFCskjBgmm60rIQlyafH10teCHmzrgXBAmW1inAprZE_-rAO3agmLy4Ifc66v3yVtuvo14guE74rG1qKQ_FtZR8VZFMfiU)[*图片来源*](https://m1.aboluowang.com/uploadfile/2021/1203/20211203022726452.jpg)
-1、[**日防卫大臣说无法接受中共单方面主张**](https://www.aboluowang.com/2021/1203/1679069.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Unknown-8.jpg)布林肯：任何中共国入侵台湾之举将有“可怕后果” 网络图片
+据美国之音12月4日报道，美国国务卿布林肯3日称，中共国一直试图改变台湾现状。如果中共国采取任何入侵台湾的举动都将造成“可怕后果”，希望中共国领导人不要在台湾海峡“引发危机”，美国会确保台湾有自卫的能力。1979年的《台湾关系法》声明，美国将向台湾提供用于维持足够自卫能力的武器。
 
-日本共同社报道，日本防卫大臣岸信夫今天（3日）在记者会上重申，对于台湾相关议题，有必要让中共理解日本国内有安倍这样的想法，日本无法只接受中共单方面的主张。
+美国将继续遵守持续了40多年的“一个中国”政策，这既能让台湾人民取得进步，也维持了美中关系大稳定。他在称赞台湾时，把台湾称为“国家”(country)。拜登政府正在为台湾开辟更多的国际空间，并批评北京胁迫台湾。美国国会两党也普遍支持台湾。拜登政府已经邀请台湾参加本月以视频方式举行的民主峰会，但中共国被拒之门外。
 
-2、[**日本罕见一晚发生3次地震**](https://www.aboluowang.com/2021/1203/1679042.html)
+中共越来越不受美国待见，全球正在形成一个抛弃中共的趋势。当然，仅仅抛弃是不够的，中共未来面临的是全球追缴。
 
-NHK、产经新闻等报道，日本山梨县3日清晨2时起到6时37分罕见连续发生3起地震，震中都在“富士五湖”，地震最大为里氏规模4.8。气象厅今早记者会说，未来一周，可能发生最大震度5弱的地震，特别是今后2、3天，容易发生较明显地震。
+新闻参考链接：[http://dlvr.it/SDjR0f](https://dlvr.it/SDjR0f)
 
-3、[**自民党向外相要求增加ODA预算**](https://china.kyodonews.net/news/2021/12/ec1e43132863-oda.html)
+* * *
 
-日本自民党外交小组组长佐藤正久等人3日在外务省与外相林芳正会面并递交决议，考虑到在印度太平洋地区扩大影响力的中国，要求2022年度预算案大幅增加政府开发援助（ODA）资金。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-4、[**部分国外航司恢复赴日航班机票预售**](https://china.kyodonews.net/news/2021/12/f1ae736debd0.html)
 
-日本国土交通省3日透露，关于因新冠病毒奥密克戎毒株蔓延而一度暂停的赴日国际航班机票预售，部分国外航空公司已恢复。与其他航司也正在协调恢复事宜。
+编辑：【英国伦敦喜庄园编辑部】
 
-5、[**日本增加嗅探犬严防非洲猪瘟入境**](https://china.kyodonews.net/news/2021/12/4cd0afe21a6d.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-共同社2日消息，日本农林水产省对国内尚未出现的家畜传染病之一非洲猪瘟（ASF）提高了警惕，非洲猪瘟疫情在亚洲蔓延、威胁增大，日本作为边境口岸措施把嗅探犬增加到140只，期待其能发挥作用。
 
-*编辑：东京樱花团 / 文小白
-发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

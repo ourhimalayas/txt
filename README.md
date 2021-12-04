@@ -15,131 +15,131 @@
 
 ---
 
-### [中共对爆料革命从不避而不谈到反华势力到政治野心集团](/content/gnews/1/README.md)
- ` NewFOC`
-
-### [班农的传票将1.6委员会吓得半死](/content/gnews/2/README.md)
- ` HimalayaRussia`
-
-### [12/3/2021 文贵直播：释放欧米克戎跟中共对台行动有关，中共用欧米克戎跟西方勾兑让台湾成牺牲品](/content/gnews/3/README.md)
+### [12/3/2021 文贵直播：战友爆出其所在地区有7万人死于疫苗，中共国疫苗死亡是天文数字](/content/gnews/1/README.md)
  ` 秘密翻译组-北美组`
 
-### [日本要闻汇编 12月3日](/content/gnews/4/README.md)
+### [恒大警告说该集团缺乏资金，无法继续还债](/content/gnews/2/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [推特关闭了六个国家的宣传账户](/content/gnews/5/README.md)
+### [日本山形县发生群聚感染，13名幼儿感染中共病毒](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [布林肯：任何中共国入侵台湾之举将有“可怕后果”](/content/gnews/4/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [“债务陷阱”担忧中老挝与中共国的一条铁路开通](/content/gnews/6/README.md)
+### [中共疫苗使老人得癌青年猝死女性子宫卵巢胸腺癌儿童早熟](/content/gnews/5/README.md)
+ ` NewFOC`
+
+### [华夏视角系列之四：七哥说的“岸田派”是什么情况？](/content/gnews/6/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [11/26郭文贵直播：上海和杭州有医院出现天花病例（粤语配音）](/content/gnews/7/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [11/26郭文贵直播：我们灭的是中共和全球黑暗力量（粤语配音）](/content/gnews/8/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [11/26郭文贵直播：中共正在威胁迪拜交出赵长鹏的钱（粤语配音）](/content/gnews/9/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [恒大宣布无法履行担保义务 违约开始](/content/gnews/10/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [中共对爆料革命从不避而不谈到反华势力到政治野心集团](/content/gnews/11/README.md)
+ ` NewFOC`
+
+### [班农的传票将1.6委员会吓得半死](/content/gnews/12/README.md)
  ` HimalayaRussia`
 
-### [达利欧：美国内战的“危险的风险很高”](/content/gnews/7/README.md)
- ` 温哥华圆成农场🇨🇦`
+### [12/3/2021 文贵直播：释放欧米克戎跟中共对台行动有关，中共用欧米克戎跟西方勾兑让台湾成牺牲品](/content/gnews/13/README.md)
+ ` 秘密翻译组-北美组`
 
-### [NIH资深专家阻止在不断增加的疫苗授权](/content/gnews/8/README.md)
+### [日本要闻汇编 12月3日](/content/gnews/14/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [推特关闭了六个国家的宣传账户](/content/gnews/15/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [15分钟之内了解郭文贵2018年主要爆料内容](/content/gnews/9/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [内华达州成为第一个对未接种疫苗的工人征收附加费的州](/content/gnews/10/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [德国对未接种疫苗的人将实施全面的新限制措施](/content/gnews/11/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [口罩豁免病人去医院检测反应性气道疾病时被拒](/content/gnews/12/README.md)
- ` MG FARM`
-
-### [国内房企竞相突破限跌令，崩溃开始了？](/content/gnews/13/README.md)
- ` 墨尔本雅典娜农场`
-
-### [2021年12月3日郭文贵先生直播摘要——银河系农场](/content/gnews/14/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [中共国疫苗研制何其假 &#8211; 战友亲历](/content/gnews/15/README.md)
+### [新冠疫情中另一老药新用 – 氟伏沙明](/content/gnews/16/README.md)
  ` 纽约香草山MOS03`
 
-### [诺曼议员提案要求FDA公布中共病毒疫苗数据](/content/gnews/16/README.md)
+### [“债务陷阱”担忧中老挝与中共国的一条铁路开通](/content/gnews/17/README.md)
  ` HimalayaRussia`
 
-### [福建大面积停电事件应急演练，习近平这是想干什么呢？](/content/gnews/17/README.md)
+### [达利欧：美国内战的“危险的风险很高”](/content/gnews/18/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [NIH资深专家阻止在不断增加的疫苗授权](/content/gnews/19/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [15分钟之内了解郭文贵2018年主要爆料内容](/content/gnews/20/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [内华达州成为第一个对未接种疫苗的工人征收附加费的州](/content/gnews/21/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [德国对未接种疫苗的人将实施全面的新限制措施](/content/gnews/22/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [口罩豁免病人去医院检测反应性气道疾病时被拒](/content/gnews/23/README.md)
+ ` MG FARM`
+
+### [国内房企竞相突破限跌令，崩溃开始了？](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [科学清晰表明：更高的中共病毒疫苗接种覆盖率等于更高的超常死亡率](/content/gnews/18/README.md)
+### [2021年12月3日郭文贵先生直播摘要——银河系农场](/content/gnews/25/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [中共国疫苗研制何其假 &#8211; 战友亲历](/content/gnews/26/README.md)
+ ` 纽约香草山MOS03`
+
+### [诺曼议员提案要求FDA公布中共病毒疫苗数据](/content/gnews/27/README.md)
+ ` HimalayaRussia`
+
+### [科学清晰表明：更高的中共病毒疫苗接种覆盖率等于更高的超常死亡率](/content/gnews/28/README.md)
  ` 波士顿五月花农场`
 
-### [担忧医疗数据泄露澳大利亚正在审核一项从中共购买医疗设备的协议](/content/gnews/19/README.md)
+### [担忧医疗数据泄露澳大利亚正在审核一项从中共购买医疗设备的协议](/content/gnews/29/README.md)
  ` 澳喜农场`
 
-### [军情六处负责人警告中共国存在“债务陷阱和数据陷阱”](/content/gnews/20/README.md)
+### [军情六处负责人警告中共国存在“债务陷阱和数据陷阱”](/content/gnews/30/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [加拿大生活美谈 2021-11-25第三十一期](/content/gnews/21/README.md)
- ` canadalifetalk`
-
-### [俄勒冈州最大的企业雇主英特尔将1月4日设为强制性疫苗截止日期](/content/gnews/22/README.md)
+### [俄勒冈州最大的企业雇主英特尔将1月4日设为强制性疫苗截止日期](/content/gnews/31/README.md)
  ` MG FARM`
 
-### [加拿大对所有乘机抵达的旅客进行新冠测试和隔离](/content/gnews/23/README.md)
- ` 纽约香草山MOS01`
-
-### [纽约市宣布对私立和宗教学校的雇员实行疫苗强制令](/content/gnews/24/README.md)
- ` 纽约香草山MOS02`
-
-### [南非研究人员声称：新病毒传染性低，但免疫突破力更强](/content/gnews/25/README.md)
- ` 日本东京方舟农场`
-
-### [重磅！新中国联邦拿下伦敦最老子号赌场Palacegate Casino赌牌、酒牌](/content/gnews/26/README.md)
+### [重磅！新中国联邦拿下伦敦最老子号赌场Palacegate Casino赌牌、酒牌](/content/gnews/32/README.md)
  ` YALUN 亚伦`
 
-### [芝加哥的学校厕所将不分性别](/content/gnews/27/README.md)
- ` MG FARM`
-
-### [12.03文贵爆料 CCP释放奥密克戎病毒意在台湾](/content/gnews/28/README.md)
+### [12.03文贵爆料 CCP释放奥密克戎病毒意在台湾](/content/gnews/33/README.md)
  ` 秘密翻译组-原创组`
 
-### [秘翻在线: 中共政府传唤许家印督促风险处置](/content/gnews/29/README.md)
+### [秘翻在线: 中共政府传唤许家印督促风险处置](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [维多利亚州大流行病权力立法的批评者说，争取自由的斗争还没有结束](/content/gnews/30/README.md)
- ` 走进澳洲`
-
-### [文贵爆料 12.3：拨云见日——两个月后疫苗灾难将会终止](/content/gnews/31/README.md)
+### [文贵爆料 12.3：拨云见日——两个月后疫苗灾难将会终止](/content/gnews/35/README.md)
  ` 秘密翻译组-原创组`
 
-### [【文贵先生大直播PPT】墙内战友重磅爆料实录](/content/gnews/32/README.md)
+### [【文贵先生大直播PPT】墙内战友重磅爆料实录](/content/gnews/36/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [【#G时新闻】“完全接种”NBA 球星检测结果不明被迫停赛](/content/gnews/33/README.md)
+### [【#G时新闻】“完全接种”NBA 球星检测结果不明被迫停赛](/content/gnews/37/README.md)
  ` G-时新闻`
 
-### [为逃避疫苗接种，欧洲越来越多人通过网络购买假疫苗护照](/content/gnews/34/README.md)
+### [为逃避疫苗接种，欧洲越来越多人通过网络购买假疫苗护照](/content/gnews/38/README.md)
  ` 首尔天池农场`
 
-### [【粤语配音】2021年12月1日：喜联储引领世界的三大好消息](/content/gnews/35/README.md)
- ` MOS香港部`
-
-### [美国最新民调显示：大多数美国人认为中共超过俄罗斯成为美国最大威胁](/content/gnews/36/README.md)
+### [美国最新民调显示：大多数美国人认为中共超过俄罗斯成为美国最大威胁](/content/gnews/39/README.md)
  ` 首尔天池农场`
 
-### [【#G时新闻】新变种病例症状轻微，但不容轻视！](/content/gnews/37/README.md)
- ` G-时新闻`
-
-### [2021/12/03 墙内世界](/content/gnews/38/README.md)
+### [2021/12/03 墙内世界](/content/gnews/40/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [12/3/2021国际财经快讯：高盛计划明年初制定新的中期盈利目标；美国失业率降至20个月低点](/content/gnews/39/README.md)
+### [12/3/2021国际财经快讯：高盛计划明年初制定新的中期盈利目标；美国失业率降至20个月低点](/content/gnews/41/README.md)
  ` 秘密翻译组金融团队`
 
-### [2022冬奥会能开吗？西方精英们的抵制究竟是为什么？](/content/gnews/40/README.md)
+### [2022冬奥会能开吗？西方精英们的抵制究竟是为什么？](/content/gnews/42/README.md)
  ` mary202064`
-
-### [报告披露独裁政府利用华为技术来审查新闻和记者](/content/gnews/41/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [知名医学网站:Omicron变种病毒具有高变异性（1/2）](/content/gnews/42/README.md)
- ` 澳喜农场`
 
 ### [台湾前线｜前美国官员：为了美国 应保卫台湾 联盟是关键](/content/gnews/43/README.md)
  ` G&#124;News TAIWAN`
