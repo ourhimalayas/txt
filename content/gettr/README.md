@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/4/2021 5:12 AM (UTC)`
+
+12/3/2021 Miles Guo: The people Xi Jinping met with and the duration of the meetings between August 1 and 16, 2021 show that 1) Xi respects Song Ping and Hu Jintao, 2) he has completely lost trust in Jiang Zemin's family, 3) he is moving to the left politically, and 4) will take action against the CCP’s financial sector, the Central Commission for Discipline Inspection, and the local top cadres<br/><br/>12/3/2021 文贵直播：习近平在2021年8月1日到16日期间见的人和见面时间说明习尊重宋平和胡锦涛，他对江家已完全失去信任，他在政治上将向左转并要对金融领域、中纪委和地方大员动手<br/>
+![img](https://media.gettr.com/group4/getter/2021/12/04/05/12/b601d403-3422-17e8-2a4e-c5b29444fd3a/out.jpg)
+
+---
+
 `@miles 12/4/2021 4:42 AM (UTC)`
 
 12/3/2021 Miles Guo: The CCP’s COVID vaccines lead to the sudden onset of various cancers in the senior people, increase sudden deaths in the young adults, and cause uterine, ovarian, and breast cancer in women; vaccinating children will lead to precocious puberty and cancer, and children in Communist China would rather not go to school than get the COVID jabs!<br/><br/>12/3/2021 文贵直播：中共疫苗导致老年人突发多种癌症，中年壮年猝死率陡增，女性得子宫癌、卵巢癌和乳腺癌；给孩子打疫苗将导致早熟和癌症，国内孩子宁愿不上学也不要打疫苗！<br/>
@@ -149,13 +156,6 @@ Welcome to #GETTR, Congressman @madisoncawthorn!!! Great addition to our communi
 
 CZ_Binance's acquisition of a Swiss bank failed!<br/>Where is Binance's money? 60% of Binance's money was taken away by the CCP. <br/>⚠️Because Binance sold all customer information to the Chinese Communist Party, all Binance customers are in danger. The Committee of Himalaya Alliance and its team of lawyers are organizing a Global Binance Victim Class Action Lawsuit to protect your identity, money, and safety.<br/><br/>币安欲收购瑞士一家银行失败！<br/>币安的钱去哪儿了？币安60%的钱被中共拿去了。<br/>⚠️因币安将所有客户资料出卖给中共，致所有币安客户于危险之中，喜马拉雅联盟委员会将与专业律师团一起组织发起全球币安受害者的集体诉讼。<br/><br/>【Binance Lawsuit】<br/>🌈Getter:  https://gettr.com/user/binancelawsuit<br/>🌈Discord Server:  https://discord.gg/8KpdftBPsu<br/>🌈Basic Information Registration Form:<br/>➡️Chinese form:  https://forms.gle/4RXBPL5BfqYYJhS29<br/>➡️English form:  https://forms.gle/Xk5LELQ2y1uKYr6V8
 ![img](https://media.gettr.com/group5/origin/2021/12/01/21/31/cbb6d418-9dee-fe48-0dc6-62993c5696c9/out.jpg)
-
----
-
-`@miles 12/1/2021 7:35 PM (UTC)`
-
-12月1号：新病毒到达美国的时间！和我预测的时间相差多少？兄弟姐妹们！
-![img](https://media.gettr.com/group31/getter/2021/12/01/19/35/d97fae29-35da-020e-fd04-e9aa19ec080e/6e3423673f0be53e25570ee7856356ad.jpg)
 
 ---
 
