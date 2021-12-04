@@ -2,50 +2,24 @@
 ---
 
 
-## 美空军部长称与中共进行高超音速武器竞赛
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1718612/)
+## 美汇率操纵国观察名单出炉 中共国再次被点名
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1718779/)
 
-作者：东京樱花团—在远方
+撰稿：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2-14.jpg)[图片源](https://search.yahoo.co.jp/amp/s/mobile.reuters.com/article/amp/idCNKBS2C201Z%3Fusqp%3Dmq331AQIKAGwASCAAgM%253D)
+美国财政部3日发布报告，分析主要贸易伙伴的外汇政策。12个国家被列入“观察名单”以关注动态趋势，日本、中共国、韩国和德国继续成为目标。
 
+该报告是为了检查当地货币是否被有意引导贬值以增加对美国的出口。关于日本，美方指出，自2011年以来就没有实施外汇干预，并表示“只有在极其特殊的情况下才能进行干预”。关于中共国，美方严厉斥责“我们将密切关注中共国，因为它缺乏透明度，例如不披露外汇干预的数据。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-109-1280x172-1-2-1.jpg)
+一个币种两个汇率，离岸人民币汇率与在岸人民币汇率，中共玩这些金融猫腻，也够全世界喝一壶了。至于操没操纵汇率，这已经是“光头上的虱子”，自己看吧！
 
+信息源：
 
-美国之音12月2日报道，美国空军部长弗兰克·肯德尔11月30日表示，美国与中共正在高超音速武器领域进行军备竞赛，双方正在这一领域进行越来越多的测试和研发。
+[米財務省、為替「監視リスト」に日中など１２か国](https://news.yahoo.co.jp/articles/7cdafc07413d17b6997ce3bed91514623eed40c8)
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-68.jpeg)图片来源：美国之音
-高超音速武器轨迹特别，难以追踪防御，且超过5倍音速。假如中共能将该武器部署到地球轨道上，就可以从没有任何防备的南极重返大气层而攻击美国，而美国的导弹防御系统将毫无用处。
-
-肯德尔说，中共对于美军现有的A-10攻击机，C-130多用途运输机，和MQ-9侦察打击无人机并不惧怕。而美国军方过去20年来，一直把资源用于伊拉克和阿富汗，因此对高超音速武器系统的研发缺乏专注。据悉，美国国防承包商对美国国防部集中资源、研发高超音速武器系统表示高度欢迎。
-
-新闻链接：[https://www.voachinese.com/a/US-Air-Force-says-US-in-hypersonic-weapon-arms-race-with-China-20211202/6335161.html](https://www.voachinese.com/a/US-Air-Force-says-US-in-hypersonic-weapon-arms-race-with-China-20211202/6335161.html)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-69.jpeg)
-
-
-
-
-编辑：飞虹
-校对/发稿：文敬
-
-更多资讯，更多关注
-
-纽约香草山农场 GTV–香草山之声
-
-纽约香草山农场 GTV-MOS TALK 香草山访谈
-
-纽约香草山农场 Gettr
-
-纽约香草山农场 YouTube
-
-欢迎加入纽约香草山农场 Discord
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-70.jpeg)
-
-
-
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
