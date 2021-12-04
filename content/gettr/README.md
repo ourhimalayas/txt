@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/4/2021 4:36 PM (UTC)`
+
+12月4号 Hcoin To The Moon 打榜记录（一）<br/>感谢香港，新加坡，老挝，澳门，柬埔寨，蒙古的战友们🙏🙏🙏🙏🙏🙏🙏<br/><br/>iTunes 总榜第一名🥇：<br/><br/>香港🇭🇰<br/>新加坡🇸🇬<br/>老挝🇱🇦<br/>澳门🇲🇴<br/>柬埔寨🇰🇭<br/>蒙古🇲🇳
+![img](https://media.gettr.com/group19/getter/2021/12/04/16/727b7ffa-0152-e674-92a8-6b341de4b127/4793e5944601b61090ac24ce27637855.jpg)
+
+---
+
 `@miles 12/4/2021 3:24 PM (UTC)`
 
 在鲁迪·朱利安尼的《鲁迪的常识》节目中，泽连科医生描述了他是如何在2020年初开始用阿奇霉素、羟氯喹和锌有效治疗感染中共病毒的病人的<br/><br/>In Rudy Giuliani's "Rudy's Common Sense" program, Dr. Zelenko describes how he began treating CCP virus Infected patients effectively with  Azithromycin, Hydroxychloroquine, and Zinc in  early 2020
@@ -147,13 +154,6 @@
 
 12/1/2021 Miles Guo: All I said in the live broadcasts many years ago has been verified, whereas none of the CCP’s words can stand the test of time; I completely changed the lifestyle of the CCP by using cameras to record the videos of the CCP cadres’ obscenity<br/><br/>12/1/2021 文贵直播：文贵几年前在直播中说的话100%得到验证，而中共却没有一句话经得起时间的检验；通过录制中共官员的淫乱视频，文贵用摄像机彻底改变了中共的生活方式<br/>
 ![img](https://media.gettr.com/group49/getter/2021/12/02/01/31/f48f68ab-135b-bd1a-0549-80eb40b78d72/out.jpg)
-
----
-
-`@miles 12/2/2021 12:04 AM (UTC)`
-
-12/1/2021 Miles Guo: Macao is one of the most important battle grounds between the CCP and the world; Alvin Chau’s first boss was Ma Jian, and he later joined Sun Lijun; After buying off Meng Jianzhu’s nephew, Alvin Chau became Meng’s subordinate<br/><br/>12/1/2021 文贵直播：澳门是中共与世界较量的最重要的阵地之一；洗米华的第一个老板是马建，他后来转投孙力军；在搞定孟建柱的亲外甥后，洗米华成了孟的人<br/>
-![img](https://media.gettr.com/group20/getter/2021/12/02/00/04/ee39b5de-ec0c-b0d4-00c8-83e5d75355ac/out.jpg)
 
 ---
 
