@@ -2,80 +2,46 @@
 ---
 
 
-## 《我是音雄》第二季第十五期半决赛第二场｜节目预告
-` 我是音雄` [轉載自GNews](https://gnews.org/zh-hans/1719581/)
+## 美联储缩表形成预期，加密货币市值快速蒸发
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1719784/)
 
-灭共尖峰时刻，音雄再度归来！2021年度《我是音雄》震撼来袭！
+翻译：皮特
+编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2021.12.4-美联储缩表形成预期，加密货币市值快速蒸发-雅典娜观察.jpg)图片来源：Blockvalue.com
+美国时间12月3日，据福布斯报道，短短两天内，比特币等加密数字货币价格大幅下跌，加密货币市值合计蒸发了约3000亿美元。
 
-由喜马拉雅农场联盟和G|Music倾心打造的新中国联邦“音乐灭共”节目《我是音雄》第二季第十五期 半决赛第二场 将于美东时间2021年12月4日周六晚10点，即北京时间12月5日周日早11点，在GTV正式开播。
+比特币价格从几周前的69,000美元跌至目前的51,000美元左右，跌幅近30%。其它加密货币也陆续走低，包括以太坊、币安的BNB、索拉纳（solana）、艾达币和瑞波币，均在短短24小时内下跌了近10%。
 
-首场半决赛后，相信大家已经感受到难度系数，和残酷程度已全部翻倍。本期迎来《我是音雄》第二季第二场半决赛，参赛音雄们个个是实力唱将，轮盘的无情，让剧情的发展更加难以捉摸。面对评委们最严厉专业评估，将会碰撞出什么样的精彩火花呢？让我们拭目以待！
+比特币和加密[货币](https://translate.google.com/translate?hl=en&amp;prev=_t&amp;sl=auto&amp;tl=zh-CN&amp;u=https://www.forbes.com/sites/jonathanponciano/2021/12/03/us-listed-chinese-stocks-lose-80-billion-in-value-as-didi-delisting-crashes-prices/%3Fsh%3D6ea05af72b1e)突然遭到抛售，并伴随着一些严重的[股市下跌](https://translate.google.com/translate?hl=en&amp;prev=_t&amp;sl=auto&amp;tl=zh-CN&amp;u=https://www.forbes.com/sites/jonathanponciano/2021/12/03/us-listed-chinese-stocks-lose-80-billion-in-value-as-didi-delisting-crashes-prices/%3Fsh%3D6ea05af72b1e)，是因为著名投资者路易斯·纳维利尔发出了警告，市场[普遍预期美联储将“](https://translate.google.com/translate?hl=en&amp;prev=_t&amp;sl=auto&amp;tl=zh-CN&amp;u=https://www.forbes.com/sites/billybambrough/2021/11/30/crypto-price-prediction-serious-fed-warning-issued-over-bitcoin-ethereum-bnb-solana-cardano-and-xrp/%3Fsh%3D13cb6fdb3ba4)缩减资产负债表”，从而[可能会导致比特币和加密货币泡沫破灭。](https://translate.google.com/translate?hl=en&amp;prev=_t&amp;sl=auto&amp;tl=zh-CN&amp;u=https://www.forbes.com/sites/billybambrough/2021/11/30/crypto-price-prediction-serious-fed-warning-issued-over-bitcoin-ethereum-bnb-solana-cardano-and-xrp/%3Fsh%3D13cb6fdb3ba4)
 
-半决赛将分为四场进行，18位选手先抽签分成两场进行比赛，每场有2位“音雄”直接晋级总决赛，2人被淘汰。 剩下的十位选手进行第三场比赛，淘汰2人。 剩下的8位选手再进行第四场比赛，淘汰2人。至此，本年度的“十大音雄”诞生！
+“美联储正在缩减流动性规模，风险资产应该会出现调整，比特币是其中的一部分”。据财经网站内幕（INSIDER）报道，纳维利尔撰文，“美联储缩表越多，股票和债券的波动性就越大——比特币也是一样。”
 
-本场半决赛，五位评委将继续评选出两位音雄直接荣登年度“十大音雄”的宝座，并参加2022年新年跨年夜的“我是音雄”总决赛；与此同时，也有两位音雄被淘汰，止步于半决赛！究竟谁是今夜最耀眼的“音雄”，谁又是虽败犹荣，明年再战的勇士呢？答案即将揭晓！
+与传统（股票）市场相比，比特币，尤其是较小（发行规模）加密货币波动性很大，像以太坊、币安的BNB、索拉纳（solana）、艾达币和瑞波币等经常在短短几个小时内大幅波动。
 
-请订阅喜马拉雅农场联盟频道：
+纳维利尔警告说，比特币的价格可能会跌至10,000美元以下，较上个月创下的近70,000美元的历史高点下跌超过80%。过去比特币的价格也出现过类似的下跌，[尽管看涨比特币和加密货币的投资者仍然相信比特币的价格在未来几年还会走高](https://translate.google.com/translate?hl=en&amp;prev=_t&amp;sl=auto&amp;tl=zh-CN&amp;u=https://www.forbes.com/sites/billybambrough/2021/11/23/crypto-price-prediction-volcanos-could-push-bitcoin-to-1-million-in-five-years-leaving-ethereum-bnb-solana-cardano-xrp-and-cro-in-the-dust/)。
 
-GTV   [https://gtv.org/video/id=613ecf61751e4f2b0e518675](https://gtv.org/video/id=613ecf61751e4f2b0e518675)
+纳维利尔写道，“我认为跌破46,000美元（200天移动平均线）是一个黄色警告，跌破28,500美元（春季的低点）将会是一个完整的双顶，这意味着会跌至10,000美元以下。顺便说一句，这将与在其传奇历史上的多次下跌超过80%相匹配”。
 
-Youtube   [https://youtube.com/channel/UC\_E99PLRQHapCyjREgnFyrg](https://youtube.com/channel/UC_E99PLRQHapCyjREgnFyrg)
+比特币价格从2020年3月的低点4,000美元上涨到上个月的69,000美元的高位，部分是由于应对新冠大流行对经济的打击和为遏制它而采取的封锁措施，自去年开始美联储和其他中央银行采取大规模刺激措施。
 
-音雄们会为我们带来怎样的精彩呢？敬请期待！
+比特币最近一次反弹将加密货币的总市值从去年此时的约5000亿美元提高到上个月的3万亿美元。其中大部分收益来自小型加密货币的大幅价格上涨，以太坊及其竞争对手币安的BNB、索拉纳（solana）、艾达币在过去12个月中的涨幅都远远超过了比特币。
 
-* * *
+当前，在通胀急剧上升和劳动力市场几乎完全恢复之后，美联储现在开始“缩减”其宽松的经济政策。虽然11月的就业数据低于预期，但失业率从10月的4.6%降至4.2%，这是一年多以来的最低点。
 
-**GMUSIC – ****我是音雄****第二季半决赛第二场****参赛选手****共****10****位****：**
+“奇怪的是，经济较低的增长加之Omicron新变种病毒带来的潜在供应链（断裂）问题，事实上可能会导致美联储更积极地加息——所有这些都是为了对抗不断上升的通货膨胀，”一家佛州的投资公司CEO杰伊·佩斯特里切利对[福布斯](https://translate.google.com/translate?hl=en&amp;prev=_t&amp;sl=auto&amp;tl=zh-CN&amp;u=https://www.forbes.com/sites/jonathanponciano/2021/12/03/us-labor-market-recovery-lost-steam-in-november-with-a-sluggish-210000-new-jobs/%3Fsh%3D63e0fff5176f)说。
 
-1**号选手：麦可（美国纽约香草山农场）**
+上周，亿万富翁加密货币投资者迈克诺·沃格拉茨也[警告，美联储主席杰罗姆·鲍威尔可能会在2022年引发比特币和加密货币市场崩溃，因为他正在采取行动来遏制目前已跃升至30年高位的通胀](https://translate.google.com/translate?hl=en&amp;prev=_t&amp;sl=auto&amp;tl=zh-CN&amp;u=https://www.forbes.com/sites/billybambrough/2021/11/30/crypto-price-prediction-serious-fed-warning-issued-over-bitcoin-ethereum-bnb-solana-cardano-and-xrp/%3Fsh%3D13cb6fdb3ba4)失控。
 
-麦可医生在大家所熟悉的医疗部，现在病毒和疫苗灾难席卷全球的时刻，这里可以说是最忙碌的群之一，全天候24小时都有我们的医生，为来自全球战友解答问题。麦克积极参与到以歌灭共的战场中来，他扎实的歌唱功底、医学专业都是射向共产党的一发发强有力的子弹。
+新闻链接：[$300 Billion Bitcoin And Crypto Price Crash After Stark Fed Warning—Ethereum, BNB, Solana, Cardano And XRP In Free Fall (forbes.com)](https://www.forbes.com/sites/billybambrough/2021/12/03/300-billion-bitcoin-and-crypto-price-crash-after-stark-fed-warning-ethereum-bnb-solana-cardano-and-xrp-in-free-fall/?sh=45a29d0222fd)
 
-2**号选手：青藤（美国纽约香草山农场）**
+**发布：**去中心化Math
 
-商业场上的优秀人士，同时也是GTV新闻访谈和郭先生大直播中大家喜爱的主播，他的声音对战友们来说太熟悉了。在《我是音雄》的舞台上，他带来的两首歌曲深情、优美，每个音符都深深的打动着战友。
-
-3**号选手：三目童子（英国喜庄园农场）**
-
-跟随爆料革命一路走来经历了很多，内心从不动摇。喜欢音乐，但没赶上第一季《我是音雄》，今年卷土再来，用他天生独特强有力的摇滚音色，释放出爆料革命热血男儿们的满腔激情，半决赛他将为我们带来什么曲目，非常期待。
-
-4**号选手：飞飞（华盛顿**DC**农场）**
-
-这位大家喜爱的美丽GTV当红主播，也是郭先生大直播的主播之一，全家亲历中共病毒后，迅速回到爆料革命队伍中来，参与了很多工作；《我是音雄》舞台上，被形容为女神般的存在，高声歌唱表达内心所想，期待她在本场比赛中带来更多惊喜。
-
-5**号选手：娜娜酱（华盛顿**DC **农场）**
-
-作为大家熟悉的GTV美女主播，她的节目深受观众喜爱，并选择在《我是音雄》的舞台上挑战自己。顺利通过初赛，她完全实现了最早参加节目时的目标，无论在歌唱还是其他方面，都真实的展现了自我的蜕变。半决赛紧张异常，希望选手可以继续挑战成功！
-
-6**号选手：齐天二圣（秘密翻译组）**
-
-让观众印象深刻的美女爆二代，目前全职在秘密翻译组参与字幕制作和GTV News 英文直播节目。在初赛和复赛中，她的表现可谓惊人，天生的音域和爆发力让她轻松驾驭高难度的歌曲，复赛中的戏曲演绎更是惊艳。作为本轮种子选手之一，让我们期待更优异的成绩！
-
-7**号选手：**Bunny**（台湾宝岛农场）**
-
-作为帅气零零后的爆二代，在音乐方面很有天赋，而且父母也非常的支持。初赛和复赛中，他的表现无论在唱功、技巧，还是音色，都被誉为《我是音雄》中一颗闪耀的星星。让我们看到新中国联邦未来音乐人的优质品质。期待他在半决赛为我们带来更多精彩。
-
-8**号选手：**7 Rays**（英国伦敦喜庄园农场）**
-
-《我是音雄》舞台上独一无二的一对夫妻组合，丈夫非常喜欢中国和真诚的中国人，痛恨邪党霸占并破坏了中国的所有，伙同暗势力将恐怖延伸到全世界，与世界的邪恶力量，伤害全球的人们。在两个人的音乐里，我们可以真切感到那内心深处的呐喊，希望唤醒更多被蒙骗而不能自拔的人们。
-
-9**号选手：**Superman**（美国纽约香草山农场）**
-
-《我是音雄》节目组执行导演，美丽、开朗外加风趣的Superman，是一名专业音乐人。在节目组负责指导和帮助参赛音雄们完成参赛前的准备工作，保障他们以最好的状态登上舞台。不知道半决赛中将选择那类曲风的作品呢？
-
-**10****号****选手：罗伊（加拿大温哥华扬帆农场****）**
-
-选手在首轮半决赛中曾以微弱比分落后，由于晋级第三场半决赛的选手Helen弃权，罗伊获得“复活”机会，将迎战本场半决赛PK环节。有着GTV技术团队和直播加持的他，为第二轮半决赛再填精彩看点，不容错过！
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-07-at-10.56.10-AM.png)
-
-G|Music创始人郭先生单曲打榜Billboard，向世界展示爆料革命、新中国联邦的实力，将“以歌灭共”推向高潮。音乐就是子弹，歌唱就有力量！今年的《我是音雄》参赛战友将给大家带来什么样的感动呢？让我们拭目以待！
-
-《我是音雄》文宣组： May
-
-编辑/审核：暗黑
-
-校正/发稿：正义的小新
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

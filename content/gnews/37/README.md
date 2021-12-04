@@ -2,50 +2,41 @@
 ---
 
 
-## 所有国家和运动员都应该抵制北京冬奥会
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1718902/)
+## 洪都拉斯副总统候选人表示将不与中共建交
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1718864/)
 
-**简评：**
+作者：纽约香草山 医疗部 云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间12月2日，在卡斯特罗赢得洪都拉斯的总统大选后，该国副总统人选之一的纳斯拉亚当天表示，洪都拉斯新政府会优先考虑与美国的关系，将不计划与中共建交。
 
-NBA球员肯特呼吁所有的国家和运动员都应该抵制北京冬奥会，因为一个侵犯人权、实行种族灭绝政策的专制国家不应该举办奥运会。彭帅事件的发生证明了运动员在中共国没有安全感。所有国家和人民都需要发出声音。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-04-at-9.47.03-PM-1.png)
 
-YouTube视频链接：
+纳斯拉亚在接受采访时明确，洪都拉斯与中共的任何关系都必须拿来与对美关系权衡考量，其原因在于，美国是洪都拉斯的贸易盟友，双方也是紧密的历史盟友。因此，洪都拉斯不会考虑与中共的关系，但会继续维持与台湾的良好互动。
 
+对此，台湾媒体也强调，洪都拉斯与台湾建交超过80年，且双边合作计划成效显著，未来，台湾将与洪都拉斯新政府持续深化双方的合作关系。
 
+参考链接：
 
-[GTV视频链接](https://gtv.org/video/id=61a85e9b3ff6481adce78fa2)
-
-**视频字幕：**
-
-**主持人：**你希望冬季奥运会换个地方举行。假如不可能实现呢？我认为不太可能。你认为运动员应该如何做？他们应该拒绝前往中共国吗？
-
-**Kanter****：**谢谢你的邀请，约翰。
-
-如果你看到中共国正在发生的事情，绝对让人心碎。侵犯人权的事情太多了。就在此时，许多人都在煎熬。
-
-对像国际奥委会这样的组织，我们应该感到羞耻，即将到来的冬奥会在这样的专制国家举行。
-
-此时此刻对我来说非常悲伤，因为目前还没有一个运动员和一个国家抵制奥运会。
-
-但是如果你看到最近对中共国一名网球运动员的攻击，一定心都碎了。所以，我认为所有运动员，不仅是运动员，所有国家和人民都需要发出声音。
-
-我们绝对需要抵制即将到来的冬季奥运会。
-
-**主持人：**所有运动员和国家都应该抵制，即使运动员所在的国家没有官方抵制，对吗？
-
-**Kanter：**我认为应该这样。是的，这是一个解决问题的方法。因为重要的是，我们不能让此时此刻还在发生种族灭绝的地方举办这样的运动会。
-
-字幕：雨中漫步 | 听写：云岭 | 翻译：Roberts | PR：nights | 简评/文字整理/编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+1. [洪都拉斯下任政府立场急转弯 暗示不会与中国建交](https://www.reuters.com/article/honduras-president-china-dip-pol-1203-idCNKBS2II051)
+2. [宏都拉斯副總統：與美國友好就不須與中國建交 跟台灣的關係會持續](https://www.msn.com/zh-tw/news/world/%25E5%25AE%258F%25E9%2583%25BD%25E6%258B%2589%25E6%2596%25AF%25E5%2589%25AF%25E7%25B8%25BD%25E7%25B5%25B1%25E8%2588%2587%25E7%25BE%258E%25E5%259C%258B%25E5%258F%258B%25E5%25A5%25BD%25E5%25B0%25B1%25E4%25B8%258D%25E9%25A0%2588%25E8%2588%2587%25E4%25B8%25AD%25E5%259C%258B%25E5%25BB%25BA%25E4%25BA%25A4-%25E8%25B7%259F%25E5%258F%25B0%25E7%2581%25A3%25E7%259A%2584%25E9%2597%259C%25E4%25BF%2582%25E6%259C%2583%25E6%258C%2581%25E7%25BA%258C/ar-AARoOtO)
+3. [宏都拉斯副總統人選：與美關係好就不需要與中國建交](https://www.cna.com.tw/news/firstnews/202112030008.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
 
-编辑：【英国伦敦喜庄园编辑部】
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
+
+总编：文徬 
+编辑：Irene木木
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

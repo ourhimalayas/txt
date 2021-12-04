@@ -2,34 +2,45 @@
 ---
 
 
-## 日本要闻汇编 12月4日
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1719532/)
+## 维多利亚州疫苗强制令的停止时间
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1719729/)
 
-素材：东京樱花团｜GNEWS组
-![](https://assets.gnews.org/wp-content/uploads/2021/12/pasted-image-0-1.png)[*图片来源*](https://gdb.voanews.com/E90F90B4-708F-413E-A367-34F4E69E9505_w1597_n_r1_st.jpg)
-1、[**安倍就引发中方不满言论称今后将继续**](https://china.kyodonews.net/news/2021/12/3c91517a4a50.html)
+翻译/编辑：月映万川
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2021.12.4-维多利亚州疫苗强制令的停止时间-雅典娜快讯.jpg)图片来源：NBC NEWS
+太阳先锋报已经确认维多利亚州政府正在主动考虑，除在高风险部门保持强制疫苗令之外，废除其它行业的强制疫苗令。而这一变化最快可以在2022年1月份实现。
 
-共同社4日消息、日本前首相安倍晋三称“台湾出现突发事态就是日本出现突发事态”的言论引发中国政府不满，他本人3日在网络节目中就此表示：“明确表达想法才能防止冲突。今后将继续说该说的话。”他还表示：“一名国会议员的发言受到关注，不胜荣幸。”
+州长丹尼尔安德鲁斯在前一段时间曾经表示，强制疫苗令会至少保留到明年4月份，并且还有可能继续延长。
 
-2、[**美日防长通话强调维持地区威慑力**](https://www.voachinese.com/a/us-defense-secretary-talks-regional-stability-with-japanese-counterpart-20211203/6339180.html)
+但是，维州政府内部的高级官员透露，最近一系列的员工因执行强制疫苗令而被袭击的事件导致了政府在这一问题上的转变。
 
-美国国防部长劳埃德·奥斯汀周五(3日)与日本防卫大臣岸信夫通了电话，两位官员“讨论了深化防务合作以维持地区威慑力的努力”，承诺深化合作，同意很快进行新一轮的安全磋商。
+“高疫苗接种率，大流行法案的通过所导致的首席卫生官的边缘化，以及相关暴力事件的高度曝光率导致了这些转变。”内部消息称。
 
-3、[**盐野义制药启动新冠疫苗第3剂次临床试验**](https://www3.nhk.or.jp/nhkworld/zh/news/336334/)
+“对于高风险行业，强制疫苗令依然会继续保持。”
 
-总部设在大阪的日本盐野义制药公司宣布，已经于3日启动日本国产新冠疫苗第3剂次，即加强针的临床试验。该试验将汇总100名盐野义疫苗第3剂次受试者的数据，将其与100名辉瑞疫苗第3剂次接种者的数据进行比对，以此评估疫苗的安全性和有效性。受试者为完成前两次接种半年以上的人群。
+而目前，州政府正在积极与澳大利亚疫苗咨询委员会沟通关于加强针的问题。现在州政府最关心的是，缓慢的加强针接种率。
 
-4、[**NEC将推出“刷脸”确认疫苗接种史的系统**](https://china.kyodonews.net/news/2021/12/18dfe0e0d06b-nec.html)
+“现在最大的未知变数就是如果取消强制令是否会影响加强针的接种。这也是导致州政府不能马上做出决定的原因。”这位政府高层补充说。
 
-NEC公司3日透露称将正式推出“刷脸”确认新冠疫苗接种史的系统。该系统的用户需要在同意的基础上事先登记接种史等信息以及脸部照片，在旅游设施等的入口处把脸对准摄像头，只需几秒钟就可完成确认程序。据悉人脸识别的精确度即使带着口罩也能达到99.9%。
+目前，维多利亚州在11月26日后，禁止了未接种疫苗者进入非必要零售店。同时，许多行业的员工必须要提供他们的完全接种证明或者医疗豁免证明，才能继续工作。
 
-5、[**默克新冠口服药首次在日申请使用**](https://china.kyodonews.net/news/2021/12/eb21496add9b.html)
+维多利亚州州长在本周的新闻发布会上，明确表示，他希望强制疫苗令被取消，并且“越快越好”。
 
-共同社3日消息、关于美国制药巨头默克公司开发的新冠口服药物“莫那比拉韦”，日本法人默沙东（MSD）3日向厚生劳动省提出申请，希望作为特例批准迅速推进审查。据相关人士称，厚劳省本月中旬将召开专门小组会，判断是否予以批准。
+维多利亚州反对党发言人称，继续执行疫苗强制令的理论依据是不明确的，特别是当我们的疫苗接种率已经达到相当高的水平。
 
-*编辑：东京樱花团 / 文小白
-发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+他说，“我们将继续参照国家新冠病毒指导纲领，并且呼吁安德鲁斯政府也要遵循这这些方案。这一纲领指出，当最大程度的疫苗普及率达到以后，我们要学会与新冠病毒并存，并且要参照管理流感病毒的方式来管理新冠病毒。”
+
+目前，已经有91%的维多利亚州人口完全接种了疫苗。
+
+原文链接： [When Victoria’s vax mandate will be scrapped](https://www.heraldsun.com.au/subscribe/news/1/?sourceCode=HSWEB_WRE170_a&amp;dest=https%3A%2F%2Fwww.heraldsun.com.au%2Fcoronavirus%2Fwhen-victorias-vax-mandate-will-be-scrapped%2Fnews-story%2F62c206258dcf07d821003f21fca54af3&amp;memtype=anonymous&amp;mode=premium&amp;v21=dynamic-hot-control-score&amp;V21spcbehaviour=append)
+
+发布：去中心化Math
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,41 +2,29 @@
 ---
 
 
-## 洪都拉斯副总统候选人表示将不与中共建交
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1718864/)
+## 立陶宛货物被中共拒卸货 政府联合欧盟反击
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1718773/)
 
-作者：纽约香草山 医疗部 云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间12月2日，在卡斯特罗赢得洪都拉斯的总统大选后，该国副总统人选之一的纳斯拉亚当天表示，洪都拉斯新政府会优先考虑与美国的关系，将不计划与中共建交。
+**By:秘翻新聞**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-04-at-9.47.03-PM-1.png)
+***2021-12-4***
 
-纳斯拉亚在接受采访时明确，洪都拉斯与中共的任何关系都必须拿来与对美关系权衡考量，其原因在于，美国是洪都拉斯的贸易盟友，双方也是紧密的历史盟友。因此，洪都拉斯不会考虑与中共的关系，但会继续维持与台湾的良好互动。
+【**[秘翻新聞](https://gtv.org/broadcast/watch/61ab2d04bbd75f62e52ea69e)**】立陶宛货物被中共拒卸货 政府联合欧盟反击
 
-对此，台湾媒体也强调，洪都拉斯与台湾建交超过80年，且双边合作计划成效显著，未来，台湾将与洪都拉斯新政府持续深化双方的合作关系。
+据《希望之声》12月4日消息，立陶宛当地新闻网站报导，本周，一家对中共国出口木材的立陶宛公司，在上海港口被拒绝卸货，当地海关系统更表示，自12月1日起就从系统中取消了立陶宛这个国家。据悉，相关情形在其他港口也有出现，一些货物被发现只要来自立陶宛，或者与立陶宛有关，都不能进入中共港口。不过，立陶宛中国贸易协会发现，尽管农林产品遭到抵制，中共政府仍然从立陶宛进口生物科技等技术门槛比较高的产品，相关的贸易活动几乎不受任何影响。
 
-参考链接：
+12月3日，立陶宛外交部指出，当局正在就立陶宛货物在中共国港口受阻的问题，与立陶宛公司联系，并于欧盟委员会探讨对策。消息传出的同日，立陶宛政府正式宣布外交抵制明年2月份的北京冬奥会，并指出，包括总统、外长和部长级别以上官员都不会参加北京冬奥。
 
-1. [洪都拉斯下任政府立场急转弯 暗示不会与中国建交](https://www.reuters.com/article/honduras-president-china-dip-pol-1203-idCNKBS2II051)
-2. [宏都拉斯副總統：與美國友好就不須與中國建交 跟台灣的關係會持續](https://www.msn.com/zh-tw/news/world/%25E5%25AE%258F%25E9%2583%25BD%25E6%258B%2589%25E6%2596%25AF%25E5%2589%25AF%25E7%25B8%25BD%25E7%25B5%25B1%25E8%2588%2587%25E7%25BE%258E%25E5%259C%258B%25E5%258F%258B%25E5%25A5%25BD%25E5%25B0%25B1%25E4%25B8%258D%25E9%25A0%2588%25E8%2588%2587%25E4%25B8%25AD%25E5%259C%258B%25E5%25BB%25BA%25E4%25BA%25A4-%25E8%25B7%259F%25E5%258F%25B0%25E7%2581%25A3%25E7%259A%2584%25E9%2597%259C%25E4%25BF%2582%25E6%259C%2583%25E6%258C%2581%25E7%25BA%258C/ar-AARoOtO)
-3. [宏都拉斯副總統人選：與美關係好就不需要與中國建交](https://www.cna.com.tw/news/firstnews/202112030008.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+美国南卡罗莱纳大学艾肯商学院教授谢田表示，中共很害怕台湾和立陶宛建立这种外交关系以后引发更多国家承认和升级对台关系。经济贸易角度上讲，中共更依赖立陶宛，特别是电子科技等许多项目上，立陶宛有非常巨大的技术上的优势。现在立陶宛带头抵制北京冬奥会，是一个非常巨大的突破。
 
+***新闻来源***:[https://ozvoice.org/other-news/%E7%AB%8B%E9%99%B6%E5%AE%9B%E8%B4%A7%E7%89%A9%E8%A2%AB%E4%B8%AD%E5%85%B1%E6%8B%92%E5%8D%B8%E8%B4%A7-%E6%94%BF%E5%BA%9C%E8%81%94%E5%90%88%E6%AC%A7%E7%9B%9F%E5%8F%8D%E5%87%BB/](https://ozvoice.org/other-news/%E7%AB%8B%E9%99%B6%E5%AE%9B%E8%B4%A7%E7%89%A9%E8%A2%AB%E4%B8%AD%E5%85%B1%E6%8B%92%E5%8D%B8%E8%B4%A7-%E6%94%BF%E5%BA%9C%E8%81%94%E5%90%88%E6%AC%A7%E7%9B%9F%E5%8F%8D%E5%87%BB/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
+校对/发布:星星
 
-总编：文徬 
-编辑：Irene木木
-校正/发稿：我不在这里
+* * *
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+**欢迎广大战友加入 【秘密翻译组-即时新闻播报组】**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/IMAGE-2021-11-29-195110.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

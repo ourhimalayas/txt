@@ -2,36 +2,28 @@
 ---
 
 
-## 美国SEC要求在美上市中共公司披露信息
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1718863/)
+## 谴责中共侵犯人权，20国拒签奥运休战协议
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1718769/)
 
-作者：纽约香草山农场 007
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月2日，美国证券交易委员会SEC出台的新规定中要求，所有在美国证券交易所上市的中共国公司必须披露其是否由政府实体拥有或控制，并提供相应的审计检查证据。同时，新规还要求所有通过可变利益实体在美上市的中共国公司加强对自身相关信息的披露。
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-31.jpg)[图片来源](https://www.secretchina.com/news/gb/2021/12/04/991363.html)
+北京冬奥抵制声浪渐涨，澳媒指出，澳洲与另19国拒签奥运休战协议，确保冲突不会干扰比赛的惯例，此举旨在向中共传递，对新疆人权侵犯、香港议题和网球名将彭帅事件的不满。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-04-at-10.00.24-PM.png)
+雪梨晨驱报（Sydney Morning Herald）报导，联合国大会2日通过“奥林匹克休战”（Olympic Truce）决议，但未获得20国支持。
 
-有关报道显示，中共向来拒绝海外监管机构对其国内会计师事务所的检查。由此，SEC此次新规将影响至少两百多家在美上市的中共国公司——这些公司或将失去在美上市的资格，从而降低中共国公司对美国投资者的吸引力。
+四方安全对话（Quad）的成员美国、印度、澳洲和日本拒绝签署；英美加纽澳组成的“五眼联盟”（Five Eyes）中，除了新西兰以外，其他国家皆拒签。穆斯林大国土耳其也决定不签，以表达对中共对待新疆维吾尔族穆斯林方式的不满。
 
-据了解，SEC本次新规的制定依据美国国会于2020年12月通过的一项法律，该法律旨在确保在美国上市的外国公司，特别是中共国公司，遵守美国的相关规定。
+联合国这一决议呼吁所有成员国“透过促进和平、发展、韧性、宽容和理解的氛围，利用体育的力量推动世界进步”。
 
-参考链接：[焦点：美国证券交易委员会要求在美上市中国企业披露所有权结构和审计细节](https://cn.reuters.com/article/us-sec-china-listed-firms-audit-1203-idCNKBS2II031)
+美国总统拜登政府最早可能在下周宣布，针对2022年北京冬季奥运会施以某种形式外交抵制，澳洲总理莫里森（Scott Morrison）也在权衡类似举措。外交抵制将涉及不派官员代表团参加2月登场的的北京冬奥，运动员仍可参赛。在对中共国网球女将彭帅人身安全日益担忧下，抵制意在抗议中共的人权劣迹。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
+消息来源:
 
-总编：文徬 
-编辑：Kathy文艺
-校正/发稿：我不在这里
+[抗议中共人权劣迹 20国拒签奥运休战协议](https://www.epochtimes.com/gb/21/12/4/n13416256.htm)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

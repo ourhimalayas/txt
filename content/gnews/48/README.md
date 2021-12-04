@@ -2,50 +2,40 @@
 ---
 
 
-## 在加拿大完全接种疫苗的母亲中，死胎的数量激增
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1718013/)
+## 中共以国安措施掩盖真实疫苗灾难
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1717995/)
 
-翻译：Lish
-校对：精靈藍
-编辑：Candy
+作者：纽约香草山农场 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月3日，郭文贵先生在直播中转达了国内某医学人士冒着生命危险传递出的中共国疫苗灾难的真实情形。
 
-加拿大在完全接种疫苗的月份，死胎数量正在全国各地爆炸性增长
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide1-4.jpeg)
 
-丹尼尔·长濑（Dr.Daniel Nagase）医生介绍到：
+据这位爆料人透露，中共在各省、市、地区的医院内24小时派驻警察，以国安手段严密控制因接种新冠疫苗导致死亡和突发性疾病的相关信息泄露。
 
-梅尔·布鲁赫特（Mel Bruchet）医生，他联系了整个温哥华的医护人员。有一些是在妇幼医院工作的助产士，他们在24小时内见证了13个死胎。
+在这位爆料人已知的范围内，墙内因新冠疫苗死亡的人数已达七万余人，且墙内的新冠疫苗致死率估计至少是台湾的1000至1500倍。
 
-（为了抗议）在24小时内（出现）13名死胎，人们在温哥华不列颠哥伦比亚狮门医院集会。
+爆料人提到，中共国内出现新冠疫苗后遗症反应最多的是老年人，他们的症状主要是突发性的多种癌症。然而，中共竟以环境污染导致癌症为由，愚弄、欺骗墙内民众，以此掩盖新冠疫苗的危害。另外，新冠疫苗导致突然死亡的案例多数来自中青壮年。同时，墙内女性子宫癌、卵巢癌、胸腺癌的病例数也成几百倍地增长。
 
-梅尔·布鲁赫特（Mel bruchet ）医生，有超过50年的家庭医生经验。
+这位爆料人提及的最重要的信息为，中共正在给幼儿园儿童强制注射新冠疫苗，这将导致无法避免的疫苗灾难。其原因在于，但凡接种过新冠疫苗的孩子，他们身上的细胞会变异并迅速早熟，其速度是过去的很多倍。因此，即使这些接种儿童不出现死亡案例，他们最终也会患有肿瘤类疾病。
 
-他说：“我们知道，这13个婴儿已经死亡。”
+郭先生解释，墙内孩子躲避新冠疫苗灾难的唯一方式就是不上学，尽一切可能不接种新冠疫苗。
 
-视频字幕：
+参考链接：[2021年12月03日 文贵大直播](https://gtv.org/video/id=61aa1cecd6388d55041591e6)
 
-我那8个半月还未出生的孙子，刚刚在温哥华的一家医院死了。我女儿一个月前接种了该死的毒疫苗，因为她不能去餐馆，对于她没有接种疫苗，人们感到十分害怕。我想起诉政府。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
 
-这是在北温哥华的狮门集会。非常感谢大家的祈祷。
+总编：Irene木木
+编辑：Irene木木
+校正/发稿：谐趣园
 
-丹尼尔·长濑医生：在安大略省滑铁卢市，我有一个比较可靠的统计数字：1月至7月间有86个死胎，而通常每年只有五、六个死胎。大约每两个月一个死胎是通常的比率，所以突然在六个月内达到86个死胎，这是很不寻常的。
-
-但是，我们从安大略省滑铁卢市的报告中得到的最重要的确定的信息是：所有的86个死胎（的母亲）都完全接种了疫苗。
-
-采访者：完全接种疫苗的母亲们。
-
-丹尼尔·长濑医生：是的。
-
-视频链接：[https://www.bitchute.com/video/DhyRC0q6zIZj/](https://www.bitchute.com/video/DhyRC0q6zIZj/)
-
-***发布：Candy***
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,23 +2,34 @@
 ---
 
 
-## 秘翻在线：美消费者组织致函10州州长，养老金投资贝莱德面临风险
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1718561/)
+## 美欧批评中共破坏区域和平安全
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1718023/)
 
-#### 翻译/撰稿：zzballack
+作者：纽约香草山 医疗部 – 云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月2日，美国及欧盟外交官员就中共议题在华盛顿举行高层对话。会后，美欧双方在联合新闻稿中强调，中共正在破坏区域的和平与安全，此举也将直接到影响美国和欧洲的安全与繁荣。
 
-#### 校对：白夜
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-156.png)  图片来源：路透社
-据《每日来电》（Daily Caller）12月2日报道，美国消费者权益保护组织“消费者研究”（Consumers’ Research）12月2日致函美国10个州的州长，呼吁他们审查跨国资产管理公司贝莱德（BlackRock）投资中共国公司的风险。此举不仅让美国的国家安全面临风险，更让美国投资人数十亿美元资金、包括这十个州的州政府主管的退休金面临损失风险。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide8.jpeg)
 
-这十个州投资于贝莱德的养老金数额排名全美前十。它们分别是华盛顿州、佛罗里达州、蒙大拿州、内布拉斯加州、内华达州、纽约州、俄克拉荷马州、宾夕法尼亚州、南卡罗莱纳州和西佛吉尼亚州。其中华盛顿州投资的养老金高达130亿美元。之前《福布斯》曾报道说，贝莱德是首家获许在中共国3.5万亿美元的共同基金行业中运营的外资公司。
+资料显示，此次会议由美国副国务卿雪蔓及欧盟外交事务秘书长沙尼诺共同主持。会中，美欧双方针对中共在西藏、新疆、香港地区的人权侵犯问题，以及其在台海、东海、南海的军事行动进行了多层面的讨论与信息分享。
 
-消费者研究的执行董事威廉·希尔德（William Hild）在给州长们的信中写道：“贝莱德在2000年代早期就与中共建立了关系，其中，与中共政府高层的关系与消费者利益存在冲突，这值得消费者警惕。贝莱德的首席执行官拉里·芬克 (Larry Fink) 已经成为中共领导人‘值得信赖的伙伴’，他们把芬克当作顾问。虽然美国政府已经对中共极权政府提高了警惕，对中共意图取代美国地位的野心也保持警惕，但贝莱德仍表现出对中共国市场明显的偏好。贝莱德一直大举投资中共，支持他们的经济，并帮助提升其军事能力。对中共公司的投资将使得美国消费者在不知不觉中支持中共扩张其监控和间谍机制，使他们成为人权迫害者的共谋者。与此同时，在中共国，中共政府掌控一切，政策的任意性较强，并且外国投资是以可变利益实体的形式在运作，法律保护不足，这些条件都有可能使外国投资者在中共国的投资血本无归。”
+另外，美欧联合新闻稿中也特别提到，双方强烈关注中共在台海、东海、南海的军事行动，并将依循国际法，维护、促进有关地区航行与飞行的安全及自由权力。
 
-希尔德在信件最后敦促这些州长对贝莱德在中共国的投资提高警惕，这既是出于道德责任，也是出于这些政府官员对美国退休金所有者的信托责任。
+参考链接：[美歐外交高層對話 強烈關切北京在台海行徑](https://www.cna.com.tw/news/firstnews/202112030017.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-新闻来源：[Consumer Group Warns Governors About BlackRock Retirement Funds Relying On Chinese Companies](https://dailycaller.com/2021/12/02/consumer-group-warns-governors-about-blackrock-retirement-funds-relying-on-chinese-companies/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
 
+总编：AN
+编辑：小鹿妞妞
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
