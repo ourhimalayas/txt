@@ -2,40 +2,51 @@
 ---
 
 
-## 洪都拉斯副总统候选人表示将不与中共建交
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1718864/)
+## 英国议会呼吁政府全面外交抵制北京冬奥会
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1718926/)
 
-作者：纽约香草山 医疗部 云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间12月2日，在卡斯特罗赢得洪都拉斯的总统大选后，该国副总统人选之一的纳斯拉亚当天表示，洪都拉斯新政府会优先考虑与美国的关系，将不计划与中共建交。
+**简评：**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-04-at-9.47.03-PM-1.png)
+针对新疆穆斯林的遭遇和警方在香港的暴行，还有国际社会对网球运动员彭帅的担忧，英国议会呼吁政府全面外交抵制北京冬奥会。中共撕毁了与英国签署的关于香港的国际条约，随意逮捕和迫害异议人士。应该抵制独裁政权举办的冬奥会，但政府还没有做出最后的决定。
 
-纳斯拉亚在接受采访时明确，洪都拉斯与中共的任何关系都必须拿来与对美关系权衡考量，其原因在于，美国是洪都拉斯的贸易盟友，双方也是紧密的历史盟友。因此，洪都拉斯不会考虑与中共的关系，但会继续维持与台湾的良好互动。
-
-对此，台湾媒体也强调，洪都拉斯与台湾建交超过80年，且双边合作计划成效显著，未来，台湾将与洪都拉斯新政府持续深化双方的合作关系。
-
-参考链接：
-
-1. [洪都拉斯下任政府立场急转弯 暗示不会与中国建交](https://www.reuters.com/article/honduras-president-china-dip-pol-1203-idCNKBS2II051)
-2. [宏都拉斯副總統：與美國友好就不須與中國建交 跟台灣的關係會持續](https://www.msn.com/zh-tw/news/world/%25E5%25AE%258F%25E9%2583%25BD%25E6%258B%2589%25E6%2596%25AF%25E5%2589%25AF%25E7%25B8%25BD%25E7%25B5%25B1%25E8%2588%2587%25E7%25BE%258E%25E5%259C%258B%25E5%258F%258B%25E5%25A5%25BD%25E5%25B0%25B1%25E4%25B8%258D%25E9%25A0%2588%25E8%2588%2587%25E4%25B8%25AD%25E5%259C%258B%25E5%25BB%25BA%25E4%25BA%25A4-%25E8%25B7%259F%25E5%258F%25B0%25E7%2581%25A3%25E7%259A%2584%25E9%2597%259C%25E4%25BF%2582%25E6%259C%2583%25E6%258C%2581%25E7%25BA%258C/ar-AARoOtO)
-3. [宏都拉斯副總統人選：與美關係好就不需要與中國建交](https://www.cna.com.tw/news/firstnews/202112030008.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+YouTube视频链接：
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
 
-总编：文徬 
-编辑：Irene木木
-校正/发稿：我不在这里
+[GTV视频链接](https://gtv.org/video/id=61a8d08cda582676985d5820)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+**视频字幕：**
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**议员：**非常感谢为我们听众报告了最近针对穆斯林地区和香港的暴行，还有国际社会对网球明星彭帅的担忧。
+
+作为回应，美国总统和（我们的）总理都表示考虑在外交上抵制（北京）冬季奥运会。部长会同意我的看法吗？敦促总理考虑抵制（北京冬奥会）是非常紧迫的任务？
+
+**议长：**对于彭帅的事情，我们已经呼吁中共国当局确保她的安全，我们正在密切关注此事。每个人都应该被允许畅所欲言而不担心后果，全世界任何地方对性骚扰报告都应该进行调查。但是关于出席北京冬奥会和残奥会，政府还没有做出任何决定。
+
+**男议员：**议长女士，现在已经公布中共国主席本人在2014年多次讲话中推动其当局对新疆维吾尔进行种族灭绝。
+
+我想对我尊敬的朋友们说，这个国家撕毁了与英国签署的关于香港的国际条约，逮捕和迫害任何异见人士。
+
+还需要什么能够让我的政府做出不参加冬季奥运会的明确决定，并且不允许任何官方参加？
+
+上一次，国会的领导暗示还没有买（冬奥会）的票。这还不够，我们现在能给个明确的答案吗？我们不参加，我们的官员也不参加。
+
+**议长：**感谢我的朋友提出的问题。
+
+对于新疆和香港的人权问题，我们已经采取了强有力的行动，我们还对责任人实施了制裁。但是对于2022年北京冬奥会和残奥会，如我所说，我们的政府还没有做出决定。
+
+字幕：雨中漫步 | 听写：云岭 | 翻译：Roberts | PR：致良知 | 简评/文字整理/编辑：胖丁
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
 
  
 

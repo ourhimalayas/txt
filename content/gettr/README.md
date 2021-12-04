@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/4/2021 5:03 PM (UTC)`
+
+12月4号：尊敬的战友们好，你们健身吗？传播C C P病毒疫苗解药的真相了吗？
+![img](https://media.gettr.com/group6/getter/2021/12/04/17/e7541a0a-9174-cc0c-f26b-7e157a2759f4/out.jpg)
+
+---
+
+`@miles 12/4/2021 4:57 PM (UTC)`
+
+12月4号 Hcoin To The Moon 打榜记录（五）<br/>感谢新西兰，匈牙利，芬兰的战友们🙏🙏🙏🙏🙏🙏🙏<br/><br/>iTunes 嘻哈Hip- Hop/Rap 第一名🥇：<br/>新西兰🇳🇿<br/>匈牙利🇭🇺<br/>芬兰🇫🇮
+![img](https://media.gettr.com/group40/getter/2021/12/04/16/d180bf5b-1cb7-30f4-5c5c-4b1acb6dd84e/b672f632344ee45f8c5440ebb903f2cb.jpg)
+
+---
+
 `@miles 12/4/2021 4:53 PM (UTC)`
 
 12月4号 Hcoin To The Moon 打榜记录（四）<br/>感谢澳大利亚，匈牙利，香港，新加坡，台湾，马来西亚的战友们🙏🙏🙏🙏🙏🙏🙏<br/><br/>iTunes 摇滚Rock第一名🥇：<br/>澳大利亚🇦🇺<br/>匈牙利🇭🇺<br/><br/>iTunes 嘻哈Hip- Hop/Rap 第一名🥇：<br/>香港🇭🇰<br/>新加坡🇸🇬<br/>台湾🇹🇼<br/>马来西亚🇲🇾
@@ -140,20 +154,6 @@
 
 12/1/2021 Miles Guo: Alvin Chau is not a key figure under Meng Jianzhu’s command, and Xi Jinping has yet shaken the foundation of Meng Jianzhu’s forces; the Jiang family alone controls nearly one third of Bitcoins, Meng Jianzhu controls Huobi, oversea gangsters, and drug and human trafficking, and they all believe Xi Jinping is just an idiot<br/><br/>12/1/2021 文贵直播：洗米华只是孟建柱手下的小人物，习近平尚未动摇孟的根基；江家控制了近三分之一的比特币，孟控制了火币、海外黑帮、贩毒和贩卖人口，他们认为习就是个傻子<br/>
 ![img](https://media.gettr.com/group1/getter/2021/12/02/10/03/9cdaebd4-0247-2660-08fa-ee039202004b/out.jpg)
-
----
-
-`@miles 12/2/2021 7:25 AM (UTC)`
-
-12/1/2021 Miles Guo:  Wang Qishan wants to be the boss by killing Xi, while Meng Jianzhu is confident that he can wait till the downfall of the CCP’s power center - Zhongnanhai Pit; both Wang Qishan and Meng Jianzhu are the key figures behind the colossal disaster brought by Xi to the Chinese and the entire world<br/><br/>12/1/2021 文贵直播：王岐山想干掉习当老大，而孟建柱很有信心能等到中南坑灭亡；习近平给中国人和全世界带来的巨大灾难背后的关键人物就是王岐山和孟建柱<br/>
-![img](https://media.gettr.com/group29/getter/2021/12/02/07/25/3c1dfa1b-81de-b1b1-632a-2cfb0714dc4a/out.jpg)
-
----
-
-`@miles 12/2/2021 5:51 AM (UTC)`
-
-12/1/2021 Miles Guo: Meng Jianzhu has been treating Xi Jinping as an idiot, thinking he can live longer than Xi, who had not made any appearances in the CCP or signed any paperwork for almost 300 days; Meng Jianzhu’s political wisdom is comparable to that of Zeng Qinghong, and both of them are the most healthy CCP kleptocrats<br/><br/>12/1/2021 文贵直播：孟建柱一直把习近平当傻子，他认为一定能熬死习，习有近300天未在党内露面且未签署任何文件；孟建柱的政治智慧和曾庆红齐名，他俩是身体最好的老杂毛<br/><br/>
-![img](https://media.gettr.com/group44/getter/2021/12/02/05/51/2f111a63-08e6-ba6f-3198-a0887fc21ba3/out.jpg)
 
 ---
 
