@@ -2,20 +2,48 @@
 ---
 
 
-## 英国再增Omicron案例 过半数感染者完成两剂接种
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1720280/)
+## 标准普尔500指数本周表现不佳，未来走势堪忧
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1720450/)
 
-栏目作者：焦点20分
+作者：纽约香草山农场 – 四季
 
-据英国天空新闻最新报道，英国再新增75个 Omicron感染案例，目前该新变种感染案例本土已达到104例。英国健康安全机构表示，过半的Omicron感染者已经完成了第二针疫苗的注射。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-报道也指出之前大部分Delta感染案例也是在完全接种的人之间传染。目前，英国12岁以上人群有超过80%完成了第二针的注射
 
-英国的数据表明，新冠病毒疫苗是一个彻底的谎言，疫苗不仅起不到任何抵抗病毒的作用，反而造成的伤害数倍于病毒。
 
-原文链接： [https://news.sky.com/story/covid-19-over-half-of-uk-omicron-cases-happened-after-two-jabs-as-ukhsa-releases-risk-assessment-12485607](https://news.sky.com/story/covid-19-over-half-of-uk-omicron-cases-happened-after-two-jabs-as-ukhsa-releases-risk-assessment-12485607)
 
-上传：零点
+
+[零对冲](https://www.zerohedge.com/markets/sp-500-futures-had-bad-week-worse-lies-ahead)12月3日引用彭博实时市场评论员及分析师马克·克兰菲尔德（Mark Cranfield）的分析指出，从感恩节后的熔断开始，标准普尔500指数期货在经历了一周的鞭打式交易后明显看跌。
+
+尽管该指数并不是单边走低，但该合约的盘中反弹已经在较低的峰值处消退。图中显示的帽子顶部给短线交易者提示了足够清晰的信号，即资产是否被定格在下降通道上。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1604.jpg)图片来源见水印
+
+尽管非农就业数据的确不及预期，但美联储也不会偏离其紧缩政策。分析师预计，标准普尔期货从11月的峰值开始下跌，看起来像是长期走低的转折点，这将为明年的全球熊市奠定基础。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月.png)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 
