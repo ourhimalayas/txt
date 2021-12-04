@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/4/2021 6:48 AM (UTC)`
+
+12/3/2021 Miles Guo: Xi Jinping's meeting with Wang Qishan between August 1 and 16, 2021 shows that Xi and Wang were not in touch and that Wang was treated as a former CCP cadre; both Song Ping and Hu Jintao suggested Xi to take down the forces of the Jiang family, Wang Qishan, and Meng Jianzhu and to take the ultra-left path<br/><br/>12/3/2021 文贵直播：习近平跟王岐山在2021年8月1日到16日期间的会面说明习王平日无联系且王被当成老同志；宋平和胡锦涛都向习建议干掉江家、王岐山和孟建柱的势力并要习走极左道路<br/>
+![img](https://media.gettr.com/group1/getter/2021/12/04/06/48/8b23dcd8-b238-5900-3579-5620ebb95196/out.jpg)
+
+---
+
 `@miles 12/4/2021 5:12 AM (UTC)`
 
 12/3/2021 Miles Guo: The people Xi Jinping met with and the duration of the meetings between August 1 and 16, 2021 show that 1) Xi respects Song Ping and Hu Jintao, 2) he has completely lost trust in Jiang Zemin's family, 3) he is moving to the left politically, and 4) will take action against the CCP’s financial sector, the Central Commission for Discipline Inspection, and the local top cadres<br/><br/>12/3/2021 文贵直播：习近平在2021年8月1日到16日期间见的人和见面时间说明习尊重宋平和胡锦涛，他对江家已完全失去信任，他在政治上将向左转并要对金融领域、中纪委和地方大员动手<br/>
@@ -149,13 +156,6 @@ Do you remember this video? On November 28, 2021, Mr. Miles Guo warned that the 
 `@jasonmillerindc 12/1/2021 7:46 PM (UTC)`
 
 Welcome to #GETTR, Congressman @madisoncawthorn!!! Great addition to our community!
-
----
-
-`@miles 12/1/2021 9:31 PM (UTC)`
-
-CZ_Binance's acquisition of a Swiss bank failed!<br/>Where is Binance's money? 60% of Binance's money was taken away by the CCP. <br/>⚠️Because Binance sold all customer information to the Chinese Communist Party, all Binance customers are in danger. The Committee of Himalaya Alliance and its team of lawyers are organizing a Global Binance Victim Class Action Lawsuit to protect your identity, money, and safety.<br/><br/>币安欲收购瑞士一家银行失败！<br/>币安的钱去哪儿了？币安60%的钱被中共拿去了。<br/>⚠️因币安将所有客户资料出卖给中共，致所有币安客户于危险之中，喜马拉雅联盟委员会将与专业律师团一起组织发起全球币安受害者的集体诉讼。<br/><br/>【Binance Lawsuit】<br/>🌈Getter:  https://gettr.com/user/binancelawsuit<br/>🌈Discord Server:  https://discord.gg/8KpdftBPsu<br/>🌈Basic Information Registration Form:<br/>➡️Chinese form:  https://forms.gle/4RXBPL5BfqYYJhS29<br/>➡️English form:  https://forms.gle/Xk5LELQ2y1uKYr6V8
-![img](https://media.gettr.com/group5/origin/2021/12/01/21/31/cbb6d418-9dee-fe48-0dc6-62993c5696c9/out.jpg)
 
 ---
 
