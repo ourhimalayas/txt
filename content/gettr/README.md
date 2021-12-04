@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/4/2021 7:39 AM (UTC)`
+
+“Hcoin To the Moon” Hits #1 🥇on 1st Day of Launch on iTunes in Multiple Countries. <br/>Thank you my dearest brothers and sisters around the world!<br/>🎉🎉🎉🎉🎉🎉🎉❤️❤️❤️❤️❤️❤️❤️<br/><br/>https://gnews.org/1718446/<br/><br/>Hcoin To the Moon 上线第1天位列多国iTunes音乐榜首!<br/>衷心的感谢世界各地亲爱的兄弟姐妹们! 🎉🎉🎉🎉🎉🎉🎉❤️❤️❤️❤️❤️❤️❤️<br/><br/>https://gnews.org/zh-hans/1718337/
+
+---
+
 `@miles 12/4/2021 6:48 AM (UTC)`
 
 12/3/2021 Miles Guo: Xi Jinping's meeting with Wang Qishan between August 1 and 16, 2021 shows that Xi and Wang were not in touch and that Wang was treated as a former CCP cadre; both Song Ping and Hu Jintao suggested Xi to take down the forces of the Jiang family, Wang Qishan, and Meng Jianzhu and to take the ultra-left path<br/><br/>12/3/2021 文贵直播：习近平跟王岐山在2021年8月1日到16日期间的会面说明习王平日无联系且王被当成老同志；宋平和胡锦涛都向习建议干掉江家、王岐山和孟建柱的势力并要习走极左道路<br/>
@@ -148,14 +154,6 @@ MI6 chief Richard Moore has warned of China's "debt traps and data traps" in his
 
 Do you remember this video? On November 28, 2021, Mr. Miles Guo warned that the CCP would release a new virus in the Western US. On November 29, he confirmed that the virus was already released by the CCP in the Western US. Just Forty-eight hours later, today, on December 1st, the media reported that the first case of the COVID variant, Omicron, was confirmed in California.<br/><br/>大家还记得这个视频吗？2021年11月28日，郭先生说中共将在美西释放新病毒，并于11月29日再次确认中共已在美西放毒。仅在48小时后的今天，12月1日，媒体报道了第一例变种的Omicron病毒在美西加州被确诊。
 ![img](https://media.gettr.com/group33/getter/2021/12/01/21/48/cdc850a2-0774-f452-afa2-535f94a71825/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@jasonmillerindc 12/1/2021 7:46 PM (UTC)`
-
-Welcome to #GETTR, Congressman @madisoncawthorn!!! Great addition to our community!
 
 ---
 
