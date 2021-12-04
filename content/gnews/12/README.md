@@ -2,12 +2,29 @@
 ---
 
 
-## 11/26郭文贵直播：中共正在威胁迪拜交出赵长鹏的钱（粤语配音）
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1717807/)
+## GTV新闻访谈简报|2021年12月3日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1717902/)
 
-11/26/2021 郭文贵直播：赵长鹏将币安用户的个人信息交给了中共、美国、日本、欧洲和中东等国；币安的多个银行账号因美元长臂管辖而遭关闭；中共正在威胁迪拜交出赵长鹏的钱。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新.png)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1203text-SC.png)
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+视频参看：[12.3  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61aac4b4d6388d55041600e0)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/rl.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

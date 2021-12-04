@@ -2,41 +2,32 @@
 ---
 
 
-## 中共对爆料革命从不避而不谈到反华势力到政治野心集团
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1717766/)
+## 奥地利政府立法-加重对未接种中共病毒疫苗的居民的惩罚
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1717873/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-16_副本.jpg)
-据[**2021****年12****月03****日**** ****文贵大直播：各国疫苗政策近况；国内疫苗政治，疫苗经济及疫苗灾难的最新消息；Omicron****变异病毒在亚洲地区的进展；iTunes****打榜记录- Hcoin To The Moon****；美国世界经济变化；喜数字银行牌照及赌场牌照的意义**](https://gtv.org/video/id=61aa1cecd6388d55041591e6)时间点23：17——
+**撰稿：Grace**
 
-**郭文贵先生：**我现在给大家这个汇报一下，昨天晚上大概我们凌晨两点多的时候，有一位咱们的医学界的战友说最近的大直播在国内影响非常大，她说特别像Eglise医生，还有你们对青蒿素的介绍。她说七哥你可能你想象不到，墙内现在的防爆料革命的声音是远远地超过了一切，就是上边原来习是从来不提爆料革命，都是反华势力呀等等。
+**校对：Grace**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-11-19-at-10.56.29-PM.jpeg)图片来源：tipsyredfox
+据《零对冲》12月3日报道，奥地利总理亚历山大·沙伦伯格(Alexander Schallenberg) 宣布，**从****2月1日起，接种中共病毒疫苗将成为强制性的规定**。
 
-（对旁边工作人员说话：可能清晰度要调一下），都是不说郭文贵这个名字，是吧？都是避免所谓把我当年法轮功化，当年就是江泽民批了法轮功是邪教，结果就把它定义为邪教以后，人家就真成教了，是吧？就怕定义为我是政治力量，就不说。
+对于那些仍然拒绝接种中共病毒疫苗的人将会发生什么事的这一问题，奥地利政府已经以一份泄露给媒体的草案的形式回答了其国民。
 
-但是最近变了，最近就是所谓的诞生的第三方——西方支持的第三方，代表、欲代表中国人的势力，然后再改成就是政治，所谓的有政治野心集团，再一个受西方操纵的政治野心集团。哇塞，咱们这个名字他们都确定不了，就一会儿给咱一会儿叫郭三秒、郭三邪，它老是确定不了，就无法给咱定义，一模一样。
+该草案写道：根据该法案，任何拒绝参加预定疫苗接种的人都会收到地方当局的正式传票。**如果一个人没有出现，那么他们将在接下来的四个星期内再被传唤一次**。 如果第二次官方要求也被忽视，该人将面临**3600欧元（4061美元）的罚款或四个星期的监禁**。**对于那些已经因为违反疫苗接种要求而被罚款两次的人，罚款将增加到****7200欧元（8000美元）。**
 
-（以下暂略）
+该草案还说：“**没有人会在违背自己意愿的情况下被 “强行带到 ”疫苗接种中心**接受注射，不过请放心，**如果他们继续拒绝，他们将被**** “强行 “关进监狱**。”
 
-撰稿：喜马拉雅的肉夹馍；
+如果该法案获得通过，将会被维持三年，奥地利政府也将有权决定，那些感染过中共病毒却是已经恢复的人，是否可以有一个合理的豁免。
 
-审核：喜马拉雅的馍夹肉；
+另外，草案里还提到，**除了因接种中共病毒疫苗而面临 “生命或健康危险 ”的人之外，只有孕妇和****12岁以下的儿童才可以得到豁免。**
 
-校对：Maarago；
+该法案的另一个更加变态的强制要求是，奥地利政府还将可以要求其居民定期注射中共病毒疫苗的加强剂。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+报道称，最近几周，数以万计的强制疫苗抗议者走上了维也纳的街头，预计动荡会加剧。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+前世界卫生组织主任安东尼·科斯特洛 ( Anthony Costello) 曾经警告说，强制接种中共病毒疫苗可能会在整个欧洲引起 “骚乱”。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**新闻来源： ****[Unvaccinated Austrians Face Prison Time, Huge Fines For Non-Compliance](https://www.zerohedge.com/covid-19/unvaccinated-austrians-face-prison-time-huge-fines-non-compliance)**
 
  
 

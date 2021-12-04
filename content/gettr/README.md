@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/4/2021 3:54 AM (UTC)`
+
+12/3/2021 Miles Guo: The information we provided about artemisinin has huge impacts on Communist China; the CCP has difficulty defining who we are as the Whistleblowers’ Movement; the CCP’s police forces are guarding hospitals to prevent the truth about the COVID vaccines from being leaked; a fellow fighter revealed that 70,000 people died of COVID vaccines in his area, and Communist China’s COVID vaccine death toll is an astronomical figure<br/><br/>12/3/2021 文贵直播：青蒿素的相关信息对国内影响很大；给爆料革命下定义让中共很为难；警察守医院防疫苗真相泄露；战友爆出其所在地区有7万人死于疫苗，中共国疫苗死亡是天文数字
+![img](https://media.gettr.com/group43/getter/2021/12/04/03/54/7e7cd8f4-e312-5084-eca1-dd6f97497289/out.jpg)
+
+---
+
+`@miles 12/4/2021 3:50 AM (UTC)`
+
+12/3/2021 Miles Guo: Releasing the Omicron variant is relevant to the CCP’s actions against Taiwan, and the CCP is using Omicron to make a deal with the West that sacrifices Taiwan; the CCP is repeating its same old trick by unleashing the virus while holding the world hostage through the COVID vaccines; Omicron is one of the 50 viruses in the CCP’s bioweapons inventory<br/><br/>12/3/2021 文贵直播：释放欧米克戎跟中共对台行动有关，中共用欧米克戎跟西方勾兑让台湾成牺牲品；中共故伎重演，一边放毒，另一边用疫苗要挟世界；欧米克戎是中共50种病毒武器之一<br/>
+![img](https://media.gettr.com/group34/getter/2021/12/04/03/50/d582827d-d144-f25c-bbfc-596f8a74a0dc/out.jpg)
+
+---
+
 `@miles 12/3/2021 1:34 PM (UTC)`
 
 2021年12月03日 文贵大直播：各国疫苗政策近况；亚洲变异病毒进展；美国世界经济变化；喜数字银行及投资
@@ -142,24 +156,6 @@ CZ_Binance's acquisition of a Swiss bank failed!<br/>Where is Binance's money? 6
 
 11月30号：唐萍老师刚刚让我撤掉让大家打榜的盖文，因为这只是卡拉OK版．让我们等到正式的合唱版出来再开始打榜！刚刚过去20分钟，我们就在爱尔兰．澳大利亚……有这样的成绩了感恩全球所有战友们……【郭先生！您的新歌刚上线在爱尔兰hip-pop/rap榜就排名第一！<br/><br/>澳洲说唱歌曲已经第二名了👏👏👏】
 ![img](https://media.gettr.com/group46/getter/2021/12/01/01/42/aabfdfc2-a1ab-576b-7db2-646396d64dc9/f08e84ba641c771ba2c41e8a15220373.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@davidy 11/30/2021 8:51 PM (UTC)`
-
-GETTR IS GOING TO BE FATHER OF TWITTER!!!
-![img](https://media.gettr.com/group24/getter/2021/11/30/20/51/a58696d6-4c2f-ea03-849c-91adaf6d2d79/2b33405861d93c8542f99cfe207bb198.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@musclecat 11/30/2021 9:36 AM (UTC)`
-
-【守币人宣言】<br/>开始大声朗读，做个守币人<br/>利空将至  开始守币  至死方休<br/>我将不抛币<br/>不套现、不做空、不看价格、不问涨跌<br/>尽忠持币  生死不抛<br/>ps：哪位战友做的？佩服佩服<br/>#hcoin
-![img](https://media.gettr.com/group13/origin/2021/11/30/09/36/ff0ebd99-5f91-aa3c-2273-e11adaab5c93/out.jpg)
 
 ---
 

@@ -2,50 +2,47 @@
 ---
 
 
-## 军情六处负责人警告中共国存在“债务陷阱和数据陷阱”
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1717528/)
+## 口罩豁免病人去医院检测反应性气道疾病时被拒
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1717582/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/120301.jpg)图片：来自视频截屏
-**摘要翻译：**
+作者：Tamara Ugolini
+翻译：KK
 
-《内幕消息报》（Insider Paper）网站12月1日的报道称，据英国广播公司(BBC)报道，军情六处负责人理查德·摩尔(Richard Moore)在其第一次接受直播采访中警告说，中共国存在“债务陷阱和数据陷阱”。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-41.png)
 
-摩尔先生也被称为“C”先生，他在英国广播公司广播4台的《今日》节目中表示，这些陷阱对主权构成了威胁，并促使人们采取防御措施。
+约翰·维斯震惊地发现，当地医院不遵守重新开放安大略法案第364/20条的口罩豁免规定 。
 
-在以军情六处负责人的身份发表他的首次重要公开演讲之前，摩尔先生在一次内容广泛的采访中警告，中共国有能力“从世界各地收集数据”，并用金钱“让人们陷入圈套”。在谈到中共国所构成的威胁时，摩尔描述了中共国使用“债务陷阱和数据陷阱”的做法。
+约翰带着呼吸科医生的申请前往安大略省基奇纳的格兰德河医院，随后因口罩豁免而被拒绝进入医院。
 
-据英国广播公司报道，摩尔说，中共“正试图通过其经济政策施加影响力来尝试，我认为有时会让人们陷入圈套”。
+具有讽刺意味的是，约翰之所以要去接受测试，正是因为他患有反应性气道疾病，因此无需戴口罩。
 
-报道称，在解释“数据陷阱”时，他说：“如果你允许另一个国家获得关于你的社会的真正关键数据，随着时间的推移，这将侵蚀你的主权，你就再也不能控制这些数据。”“我认为，在英国，我们非常重视这种情况，而且我们已经采取了措施加以防范。”
+在入口处，他的健康卡也被没收了，不退还！
 
-摩尔先生后来对伦敦国际战略研究所(IISS)表示，中共国现在是他的机构“唯一最重要的优先事项”，而一个过度自信的中共政权在台湾等问题上的“误判”，可能会对全球和平构成“严重挑战”。
+约翰提到加拿大的医疗机构垄断了医疗保健。他指出，如果 Costco 拒绝他进入并拒绝认可他的口罩豁免，他可以直接去沃尔玛自由购物。
 
-他还表示，西方国家必须抵御来自莫斯科的“全方位”威胁，从国家批准的袭击，如索尔兹伯里中毒事件，到利用政治代理人破坏巴尔干半岛的稳定。
+但是当医院这样做时，几乎没有其他选择的余地。但是，他将到私人实验室进行他急需的医学测试。
 
-**简评：**
+有一件事是肯定的：残疾，无论多么隐蔽，都不应该成为医学检测、治疗或护理的障碍。
 
-英美国家的情报机构对中共政权的认识可以说相当的深刻，英美国家的现任政府与中共政权的勾兑是相当的明显，英美等国左右政局的利益集团对中共极权的崛起是相当的纠结。它们十分了解中共的恶，知道需要时时警惕，对于中共给予它们的丰厚的利益，却又垂涎欲滴、难以放弃，甚至在某种程度上是深陷其中，不能自拔。
+这些不分青红皂白的口罩命令和拒绝那些为这些机构提供资金的人的行为是不道德的。
 
-但是，西方社会建立的基础是自由、民主、法治、人权的普世价值，中共政权建立的基础是什么？是一党专政，独裁控制，是把人民作为奴隶，榨取人民的财富，维护统治阶级的百年利益。价值观的不同，注定了这两种制度不能共存。所以，以美英为首的西方国家，急需尽快摆脱中共政权的利益绑架，避免被中共政权奉行的共产主义病毒彻底吞噬。
+来源：https://www.rebelnews.com/mask-exempt\_patient\_denied\_mask\_exemption\_at\_hospital\_testing\_his\_reactive\_airway\_disease
 
-新闻链接：[UK’s MI6 spy chief warns of China’s ‘debt traps and data traps’](https://insiderpaper.com/uks-mi6-spy-chief-warns-of-chinas-debt-traps-and-data-traps/)
+（文章仅代表作者个人观点）
 
-*翻译/简评：Harvey (叶知秋)*
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-*校对：Julia Win*
+**关注我们**
 
-* * *
+Discord 账号
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
+Gettr 账号
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
