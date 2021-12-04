@@ -2,41 +2,47 @@
 ---
 
 
-## 中共拟推新法加高防火墙严惩翻墙民众
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1717397/)
+## 俄勒冈州最大的企业雇主英特尔将1月4日设为强制性疫苗截止日期
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1717499/)
 
-作者：东京樱花团—在远方
+作者：Ian Miles Cheong
+翻译：KK
 
-![This image has an empty alt attribute; its file name is image-40-3.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-40.png)
 
+俄勒冈州最大的企业雇主英特尔周四通知员工，该公司将要求他们在 1 月 4 日之前接种疫苗或接受每周测试。
 
+CPU 制造商的举动是朝着遵守乔·拜登总统政府的联邦疫苗规定迈出的一步 。该公司目前在其位于俄勒冈州的华盛顿县校区拥有 21,000 名员工，该州的一些与大流行相关的限制是美国最严格的。
 
-外媒11月29日报道，近日，中共国家互联网办公室发布，所谓《网络数据安全管理条例》征求意见通知。该条例规定，个人和组织不得提供翻墙工具。虽然，此前因翻墙和协助翻墙，已经有不少处罚和入罪案例。但该条例的通过，无疑会给墙内网民带来更加严重的威胁和打压。 根据该条例第六十六条的规定，公司翻墙将会受到最高五十万元的处罚，个人翻墙则有可能被追究刑事责任。至此，中共国多年来一直模糊不清，却又足以被定罪的“翻墙”以及“协助翻墙”行为，即将被中共通过该条例彻底非法化。 分析人士指出，中共官媒和政府机构可以毫无阻碍的使用海外网站，而对民间却使用严刑酷法，这是非常明显的双重标准，标志着中共国的信息封锁进一步恶化，加快了与自由世界的脱钩脚步。
+这家芯片制造商尚未公开分享有关其员工疫苗接种状况的任何数据。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2021-12-03-1.png)图片来自网络
+根据拜登的联邦疫苗授权，拥有 100 名或更多工人的公司必须要求其员工接种疫苗或每周接受一次测试。尽管在上周路易斯安那州联邦法院在保守的州、公司和宗教团体提起诉讼后对其进行了刹车，但该授权目前处于不确定状态，但英特尔表示，它必须强制执行该授权以遵守一项单独适用于联邦承包商的授权。
 
-参考来源：
+影响英特尔等政府承包商的疫苗任务不仅限于员工，还包括独立承包商、实习生、食堂工人、门卫和英特尔许多工厂和办公室雇用的维护人员。
 
-[中国拟推新法加固信息防火墙，翻墙者面临严惩](https://www.voachinese.com/a/china-gargets-vpn-providers-in-the-coming-laws-those-who-help-others-jump-over-great-fire-wall-are-guilty-20211129/6327788.html)
+据俄勒冈人报道，英特尔周四告诉员工，它正在与政府机构合作，将订单推迟到明年第一季度末，以彰显“我们劳动力的复杂性和规模” ，并补充说备忘录还宣布英特尔正在敲定提供宗教和医疗豁免的程序。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/rl.png)
+该公司表示，将在 2022 年 1 月 4 日之前“为未提供疫苗接种证明的员工提供免费便捷的检测”。
 
-总编: 文特
+英特尔在 8 月份宣布，将向自愿选择接种疫苗的员工支付高达 350 美元的奖金。选择加入的员工还将收到“感谢”付款和其他奖励。
 
-编辑: Kathy文艺
+来源：https://www.rebelnews.com/intel\_oregons\_largest\_corporate\_employer\_sets\_jan\_4\_mandatory\_vaxx\_deadline
 
-校对/发稿：Petite abeille
+（文章仅代表作者个人观点）
 
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-![This image has an empty alt attribute; its file name is Gnews-Logo-36-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+**关注我们**
 
+Discord 账号
 
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

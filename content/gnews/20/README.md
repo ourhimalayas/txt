@@ -2,42 +2,40 @@
 ---
 
 
-## 维多利亚州大流行病权力立法的批评者说，争取自由的斗争还没有结束
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1717306/)
+## 罗克瑟姆路重新开放：对非法移民进行检测和隔离是保密的
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1717392/)
 
-**翻译：小鱼儿
-编辑：Candy**
+罗克瑟姆路是非法越境的边界，但任何申请政治庇护的人都可以这样做。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/rebel.png)图片来源：rebel网
+自 2017 年以来，非法越境进入加拿大的数量激增。成千上万的人涌入，他们担心会被特朗普政府驱逐出境。2017 年至 2019 年初，超过 50,000 人非法越境进入加拿大。
 
+为了维护我们的边境，我们必须每天 24 小时安排工作人员，不仅在边境，而且在隔离点。此外，还有吃、电、水、交通、住宿等费用，这些都是纳税人出的！
 
-迟来的法案修改工作，并不足以安抚公众的担忧。
+这相当于每年数百万美元。
 
-最近被誉为维多利亚州 “自由英雄 “的反叛工党议员阿德姆·索米尤里克，在丹尼尔·安德鲁斯成功通过紧急大流行病立法后，表达了他对民主的关注。
+随着大流行，这条边界应该停止运作，但事实并非如此。
 
-虽然跨党派人士通过谈判对《2021年公共卫生和福利修正案（大流行病管理）法案》进行了一些修改，但法律专家和持反对意见的政治家指出，该法案最糟糕的特征仍然进入了法律。
+边境最近重新开放；我们去核实了下罗克瑟姆路是否仍在运作。我们调查显示了这个地方是如何受到高度监视的。几个人要求我们离开，有的报警，有的甚至用恐吓手段！
 
-修订后的法案赋予州长和卫生部长，而不是首席卫生官，前所未有的权力来宣布大流行病。
+我们拍摄了装有大量行李的集装箱图像。我们与几个人交谈以了解有关该地区正在发生的事情的一些信息，甚至还拍了一些航拍照片以便更好地了解。
 
-在他们全权宣布的健康危机期间，他们可以随意执行一系列全面的限制和滚动封锁。
+（文章仅代表作者个人观点）
 
-该法案在动物正义党议员安迪·梅迪克、绿党议员萨曼莎·拉特纳姆、理性党议员菲奥娜·彭定康的支持下获得通过，而交通事务议员罗德·巴顿在最后一刻的投票也颇具争议。
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-几个星期以来，包含50万人的人群聚集在维多利亚州议会的台阶上，抗议该法案中包含的全面和前所未有的权力。
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)](https://www.gettr.com/user/7UPgogo)
 
-总理多次表示，在澳大利亚，除了危重病人和老年护理行业，科威德疫苗不是强制性的。然而，由于各州政府带来他们自己的全面的疫苗强制规定，导致一系列行业中的数千人被解雇。
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-维多利亚州影子财长戴维斯重申了自由党领袖马修·盖伊此前的承诺，即：如果当选，自由党将废除大流行病立法。
+**关注我们**
 
-参考新闻：[http://Critics of Victoria’s pandemic powers legislation say the fight for freedom is not over yet](http://Critics%20of%20Victoria's%20pandemic%20powers%20legislation%20say%20the%20fight%20for%20freedom%20is%20not%20over%20yet)
+Discord 账号
 
-***发布：Candy***
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
