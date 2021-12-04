@@ -2,37 +2,51 @@
 ---
 
 
-## 南非医生证实新变种病毒温和 谴责过激禁令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1718865/)
+## 英国议会呼吁政府全面外交抵制北京冬奥会
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1718926/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间12月3日，南非医生安吉莉克·科泽博士在专栏文章中揭示了目前南非奥密克戎变种病毒的真实情况，并对一些国家政府采取的极端封锁行动进行了严厉的批评。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-04-at-9.25.48-PM-1.png)
-据了解，科泽博士在首次发现新冠病毒奥密克戎变种后，第一时间公布了这项发现。但科泽博士表示，作为南非医学协会主席和33年的全科医生，出于职业责任向世界公开了新病毒，但却震惊于多国政府对该变种的过激反应。
+**简评：**
 
-数据显示，由于奥密克戎变种病毒的出现，目前，全球至少有44个国家和地区实施了旅游禁令。与此同时，截止12月1日，共有23个国家向WHO报告了奥密克戎感染病例，但多为无症状或症状轻微案例。
+针对新疆穆斯林的遭遇和警方在香港的暴行，还有国际社会对网球运动员彭帅的担忧，英国议会呼吁政府全面外交抵制北京冬奥会。中共撕毁了与英国签署的关于香港的国际条约，随意逮捕和迫害异议人士。应该抵制独裁政权举办的冬奥会，但政府还没有做出最后的决定。
 
-科泽博士强调，各项研究和证据都表明，奥密克戎变种虽然是一种快速传播的病毒，但感染者的症状大多都很轻微。但是，多国政府随即对来自非洲地区的航班施行了严格的旅行限制，并延长本国民众的各项封锁限制，这是轻率且不公平的做法。
+YouTube视频链接：
 
-另外，据博茨瓦纳的医疗人员发现，奥密克戎更多地在接种了新冠疫苗的民众中传播。
 
-参考链接：[Doctors Share The Truth About OMICRON Hysteria!](https://thetruedefender.com/doctors-share-the-truth-about-omicron-hysteria/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
+[GTV视频链接](https://gtv.org/video/id=61a8d08cda582676985d5820)
 
-总编：文徬 
-编辑：Irene木木
-校正/发稿：我不在这里
+**视频字幕：**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+**议员：**非常感谢为我们听众报告了最近针对穆斯林地区和香港的暴行，还有国际社会对网球明星彭帅的担忧。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+作为回应，美国总统和（我们的）总理都表示考虑在外交上抵制（北京）冬季奥运会。部长会同意我的看法吗？敦促总理考虑抵制（北京冬奥会）是非常紧迫的任务？
+
+**议长：**对于彭帅的事情，我们已经呼吁中共国当局确保她的安全，我们正在密切关注此事。每个人都应该被允许畅所欲言而不担心后果，全世界任何地方对性骚扰报告都应该进行调查。但是关于出席北京冬奥会和残奥会，政府还没有做出任何决定。
+
+**男议员：**议长女士，现在已经公布中共国主席本人在2014年多次讲话中推动其当局对新疆维吾尔进行种族灭绝。
+
+我想对我尊敬的朋友们说，这个国家撕毁了与英国签署的关于香港的国际条约，逮捕和迫害任何异见人士。
+
+还需要什么能够让我的政府做出不参加冬季奥运会的明确决定，并且不允许任何官方参加？
+
+上一次，国会的领导暗示还没有买（冬奥会）的票。这还不够，我们现在能给个明确的答案吗？我们不参加，我们的官员也不参加。
+
+**议长：**感谢我的朋友提出的问题。
+
+对于新疆和香港的人权问题，我们已经采取了强有力的行动，我们还对责任人实施了制裁。但是对于2022年北京冬奥会和残奥会，如我所说，我们的政府还没有做出决定。
+
+字幕：雨中漫步 | 听写：云岭 | 翻译：Roberts | PR：致良知 | 简评/文字整理/编辑：胖丁
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
 
  
 

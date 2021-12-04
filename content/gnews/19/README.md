@@ -2,37 +2,46 @@
 ---
 
 
-## 银河快讯：日本确诊第2例Omicron感染者；日本暂停国际航班新预订
-` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1719694/)
+## 美联储缩表形成预期，加密货币市值快速蒸发
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1719784/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-18.png)[图片来源](https://udn.com/)
-**1****.****日本确诊第2例奥米克隆变种感染者**
+翻译：皮特
+编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2021.12.4-美联储缩表形成预期，加密货币市值快速蒸发-雅典娜观察.jpg)图片来源：Blockvalue.com
+美国时间12月3日，据福布斯报道，短短两天内，比特币等加密数字货币价格大幅下跌，加密货币市值合计蒸发了约3000亿美元。
 
-[据NHK1日报道，一名从南美洲秘鲁入境的男子被证实已感染了中共病毒的新型变异“奥米克隆”。这是日本第二例确诊感染奥米克隆毒株的人。据厚生劳动省称，该男子于11月27日从秘鲁经中东卡塔尔首都多哈抵达成田机场，在机场检疫站检测呈阳性，国家传染病研究所对样本基因进行分析，证实其感染了奥米克隆变种。同机入境的114名乘客检测全部呈阴性，但厚生劳动省将他们视为密切接触者，要求他们入境后在住宿处等候14天，并继续健康检查及监测行踪。](https://www3.nhk.or.jp/news/html/20211201/k10013370381000.html)
+比特币价格从几周前的69,000美元跌至目前的51,000美元左右，跌幅近30%。其它加密货币也陆续走低，包括以太坊、币安的BNB、索拉纳（solana）、艾达币和瑞波币，均在短短24小时内下跌了近10%。
 
-**2****.****国土交通省要求暂停预订抵达日本的国际航班**
+比特币和加密[货币](https://translate.google.com/translate?hl=en&amp;prev=_t&amp;sl=auto&amp;tl=zh-CN&amp;u=https://www.forbes.com/sites/jonathanponciano/2021/12/03/us-listed-chinese-stocks-lose-80-billion-in-value-as-didi-delisting-crashes-prices/%3Fsh%3D6ea05af72b1e)突然遭到抛售，并伴随着一些严重的[股市下跌](https://translate.google.com/translate?hl=en&amp;prev=_t&amp;sl=auto&amp;tl=zh-CN&amp;u=https://www.forbes.com/sites/jonathanponciano/2021/12/03/us-listed-chinese-stocks-lose-80-billion-in-value-as-didi-delisting-crashes-prices/%3Fsh%3D6ea05af72b1e)，是因为著名投资者路易斯·纳维利尔发出了警告，市场[普遍预期美联储将“](https://translate.google.com/translate?hl=en&amp;prev=_t&amp;sl=auto&amp;tl=zh-CN&amp;u=https://www.forbes.com/sites/billybambrough/2021/11/30/crypto-price-prediction-serious-fed-warning-issued-over-bitcoin-ethereum-bnb-solana-cardano-and-xrp/%3Fsh%3D13cb6fdb3ba4)缩减资产负债表”，从而[可能会导致比特币和加密货币泡沫破灭。](https://translate.google.com/translate?hl=en&amp;prev=_t&amp;sl=auto&amp;tl=zh-CN&amp;u=https://www.forbes.com/sites/billybambrough/2021/11/30/crypto-price-prediction-serious-fed-warning-issued-over-bitcoin-ethereum-bnb-solana-cardano-and-xrp/%3Fsh%3D13cb6fdb3ba4)
 
-[据NHK1日报道，国土交通省已要求航空公司暂停预订所有抵达日本的国际航班，为期一个月，直到12月底，以加强边境措施，防止中共病毒新变种“奥米克隆”的传播。目标包括在海外的日本人，对于此期间未有预订的日本人实际上将无法返回日本一事，国土交通省解释说，这是一项“紧急疏散预防措施”。从日本出发的航班仍然可以预订，但根据要求，全日空和日本航空公司正在采取措施，从1日起停止接受抵达航班的预订。](https://www3.nhk.or.jp/news/html/20211201/k10013369861000.html)
+“美联储正在缩减流动性规模，风险资产应该会出现调整，比特币是其中的一部分”。据财经网站内幕（INSIDER）报道，纳维利尔撰文，“美联储缩表越多，股票和债券的波动性就越大——比特币也是一样。”
 
-**3****.****岸田首相指示：应建立有****实效性****的“工资增长税制“**
+与传统（股票）市场相比，比特币，尤其是较小（发行规模）加密货币波动性很大，像以太坊、币安的BNB、索拉纳（solana）、艾达币和瑞波币等经常在短短几个小时内大幅波动。
 
-[据NHK报道，岸田首相就明年的税制改革于12月1日下午在首相官邸会见了自民党税制调查主席宫泽。其间，关于支持积极提高工资的企业的“工资增长税”，岸田首相表示，希望看到一个能导致工资的稳步增长并使经济转向新资本主义的税收制度。并指示要建立与每个人提高工资相关的有实效性的制度。会后，宫泽先生告诉记者，“我们正处于税制调查会的程序中，还没有任何决定，但我们已经向岸田首相报告了相关情况。”](https://www3.nhk.or.jp/news/html/20211201/k10013370421000.html?utm_int=news-politics_contents_list-items_002)
+纳维利尔警告说，比特币的价格可能会跌至10,000美元以下，较上个月创下的近70,000美元的历史高点下跌超过80%。过去比特币的价格也出现过类似的下跌，[尽管看涨比特币和加密货币的投资者仍然相信比特币的价格在未来几年还会走高](https://translate.google.com/translate?hl=en&amp;prev=_t&amp;sl=auto&amp;tl=zh-CN&amp;u=https://www.forbes.com/sites/billybambrough/2021/11/23/crypto-price-prediction-volcanos-could-push-bitcoin-to-1-million-in-five-years-leaving-ethereum-bnb-solana-cardano-xrp-and-cro-in-the-dust/)。
 
-**4****.****日本首相与柬埔寨首相电视会谈，表达了加强国防交流的愿望**
+纳维利尔写道，“我认为跌破46,000美元（200天移动平均线）是一个黄色警告，跌破28,500美元（春季的低点）将会是一个完整的双顶，这意味着会跌至10,000美元以下。顺便说一句，这将与在其传奇历史上的多次下跌超过80%相匹配”。
 
-[据NHK报道，岸田首相12月1日通过视频会议会见柬埔寨首相洪森，并传达了他希望在明年日本自卫队联合国维和行动部署柬埔寨30周年之际,加强两国间防务交流的意愿。鉴于柬埔寨明年将担任东南亚国家联盟（东盟）主席国，两国领导人同意为实现日本“自由开放的印太”而合作，并密切合作应对中共在东海和南海日益扩张。](https://www3.nhk.or.jp/news/html/20211201/k10013369681000.html?utm_int=news-politics_contents_list-items_007)
+比特币价格从2020年3月的低点4,000美元上涨到上个月的69,000美元的高位，部分是由于应对新冠大流行对经济的打击和为遏制它而采取的封锁措施，自去年开始美联储和其他中央银行采取大规模刺激措施。
 
-**5****.****因原材料价格飙升，“日本火腿”产品涨价**
+比特币最近一次反弹将加密货币的总市值从去年此时的约5000亿美元提高到上个月的3万亿美元。其中大部分收益来自小型加密货币的大幅价格上涨，以太坊及其竞争对手币安的BNB、索拉纳（solana）、艾达币在过去12个月中的涨幅都远远超过了比特币。
 
-[据NHK1日报道，大型食品制造商日本火腿宣布，由于原材料价格飙升，将在向客户交货时提高包括火腿和香肠在内的424种（约占其处理的所有产品的 60%）商品价格，或减少其含量。价格涨幅将在5%至12%之间，并将在明年2月1日交货时生效。该公司表示，这是由于牛肉和猪肉在全球需求上升的背景下，采购价格高涨，以及电力和物流成本上升所导致。该公司评论：“我们一直在合理化改进以吸收增加的成本，但要吸收所有的成本将非常困难。”](https://www3.nhk.or.jp/news/html/20211201/k10013370791000.html?utm_int=news-business_contents_news-main_002)
+当前，在通胀急剧上升和劳动力市场几乎完全恢复之后，美联储现在开始“缩减”其宽松的经济政策。虽然11月的就业数据低于预期，但失业率从10月的4.6%降至4.2%，这是一年多以来的最低点。
 
-**6****.****三菱化学考虑将分离化石燃料和煤炭业务，并加强电池方面业务**
+“奇怪的是，经济较低的增长加之Omicron新变种病毒带来的潜在供应链（断裂）问题，事实上可能会导致美联储更积极地加息——所有这些都是为了对抗不断上升的通货膨胀，”一家佛州的投资公司CEO杰伊·佩斯特里切利对[福布斯](https://translate.google.com/translate?hl=en&amp;prev=_t&amp;sl=auto&amp;tl=zh-CN&amp;u=https://www.forbes.com/sites/jonathanponciano/2021/12/03/us-labor-market-recovery-lost-steam-in-november-with-a-sluggish-210000-new-jobs/%3Fsh%3D63e0fff5176f)说。
 
-[据NHK报道，三菱化学控股公司总裁约翰·马克·吉尔森在1日的经营方针说明会上宣布，为应对全球脱碳趋势，大型化学品制造商三菱化学控股正在考虑将石化业务等化石燃料和煤炭两大业务剥离，并与其他公司进行整合。因电池的需求日益增加，未来，该公司计划加强其电池方面的业务。吉尔森先生列举了将这两项业务被剥离的原因，因为它们未来在日本的增长可能性较低，且碳排放量很高。这两项业务约占集团总销售额的20%，超过3.2万亿日元，该公司计划加强对电动汽车不可或缺的锂离子电池等材料及医疗保健业务。](https://www3.nhk.or.jp/news/html/20211201/k10013370641000.html?utm_int=news-business_contents_news-main_003)
+上周，亿万富翁加密货币投资者迈克诺·沃格拉茨也[警告，美联储主席杰罗姆·鲍威尔可能会在2022年引发比特币和加密货币市场崩溃，因为他正在采取行动来遏制目前已跃升至30年高位的通胀](https://translate.google.com/translate?hl=en&amp;prev=_t&amp;sl=auto&amp;tl=zh-CN&amp;u=https://www.forbes.com/sites/billybambrough/2021/11/30/crypto-price-prediction-serious-fed-warning-issued-over-bitcoin-ethereum-bnb-solana-cardano-and-xrp/%3Fsh%3D13cb6fdb3ba4)失控。
 
-【日本银河系农场-阿尔法星球】
-作者：π&π
-校对：Tagomi
+新闻链接：[$300 Billion Bitcoin And Crypto Price Crash After Stark Fed Warning—Ethereum, BNB, Solana, Cardano And XRP In Free Fall (forbes.com)](https://www.forbes.com/sites/billybambrough/2021/12/03/300-billion-bitcoin-and-crypto-price-crash-after-stark-fed-warning-ethereum-bnb-solana-cardano-and-xrp-in-free-fall/?sh=45a29d0222fd)
+
+**发布：**去中心化Math
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

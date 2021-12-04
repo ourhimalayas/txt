@@ -2,46 +2,64 @@
 ---
 
 
-## 美联储缩表形成预期，加密货币市值快速蒸发
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1719784/)
+## 东南亚一周新闻回顾（2021年11月27日-12月3日）
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1719842/)
 
-翻译：皮特
-编辑：文泓
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2021.12.4-美联储缩表形成预期，加密货币市值快速蒸发-雅典娜观察.jpg)图片来源：Blockvalue.com
-美国时间12月3日，据福布斯报道，短短两天内，比特币等加密数字货币价格大幅下跌，加密货币市值合计蒸发了约3000亿美元。
+**整理撰稿：雨人**
+![](https://assets.gnews.org/wp-content/uploads/2021/03/Six-Critical-Areas-for-Donor-Impact-in-Southeast-Asia.jpg)
+**新闻**1**【财经**】**新加坡二十一年来首次增加黄金储备**
 
-比特币价格从几周前的69,000美元跌至目前的51,000美元左右，跌幅近30%。其它加密货币也陆续走低，包括以太坊、币安的BNB、索拉纳（solana）、艾达币和瑞波币，均在短短24小时内下跌了近10%。
+**新闻摘要： **
 
-比特币和加密[货币](https://translate.google.com/translate?hl=en&amp;prev=_t&amp;sl=auto&amp;tl=zh-CN&amp;u=https://www.forbes.com/sites/jonathanponciano/2021/12/03/us-listed-chinese-stocks-lose-80-billion-in-value-as-didi-delisting-crashes-prices/%3Fsh%3D6ea05af72b1e)突然遭到抛售，并伴随着一些严重的[股市下跌](https://translate.google.com/translate?hl=en&amp;prev=_t&amp;sl=auto&amp;tl=zh-CN&amp;u=https://www.forbes.com/sites/jonathanponciano/2021/12/03/us-listed-chinese-stocks-lose-80-billion-in-value-as-didi-delisting-crashes-prices/%3Fsh%3D6ea05af72b1e)，是因为著名投资者路易斯·纳维利尔发出了警告，市场[普遍预期美联储将“](https://translate.google.com/translate?hl=en&amp;prev=_t&amp;sl=auto&amp;tl=zh-CN&amp;u=https://www.forbes.com/sites/billybambrough/2021/11/30/crypto-price-prediction-serious-fed-warning-issued-over-bitcoin-ethereum-bnb-solana-cardano-and-xrp/%3Fsh%3D13cb6fdb3ba4)缩减资产负债表”，从而[可能会导致比特币和加密货币泡沫破灭。](https://translate.google.com/translate?hl=en&amp;prev=_t&amp;sl=auto&amp;tl=zh-CN&amp;u=https://www.forbes.com/sites/billybambrough/2021/11/30/crypto-price-prediction-serious-fed-warning-issued-over-bitcoin-ethereum-bnb-solana-cardano-and-xrp/%3Fsh%3D13cb6fdb3ba4)
+11月30日新加坡《联合早报》援引彭博社报道，国际货币基金组织（IMF) 的月度更新报告中提及新加坡在今年早些时候将黄金储备增加了约20% 。 根据新加坡金融管理局(MAS)的国际储备和外汇流动性报告的数据，新加坡在2021年5月和6月间买入总计约26.3吨的黄金。 按照11月30日的国际市场黄金价格，这26.3吨黄金价值约15亿美金。截止目前，根据新加坡金管局数据， 新加坡总共持有黄金总量为154吨。
 
-“美联储正在缩减流动性规模，风险资产应该会出现调整，比特币是其中的一部分”。据财经网站内幕（INSIDER）报道，纳维利尔撰文，“美联储缩表越多，股票和债券的波动性就越大——比特币也是一样。”
+彭博社引述新加坡金管局发言人的讲话，“ 黄金持有量的变化是新加坡金管局持续不断努力的结果，以确保新加坡的外汇储备组合在经济和市场条件下保持良好的多元化和韧性。相对于新加坡外汇储备组合的整体规模，这一变化是一个合理适度的步骤。‘
 
-与传统（股票）市场相比，比特币，尤其是较小（发行规模）加密货币波动性很大，像以太坊、币安的BNB、索拉纳（solana）、艾达币和瑞波币等经常在短短几个小时内大幅波动。
+##### 新闻评述：  
 
-纳维利尔警告说，比特币的价格可能会跌至10,000美元以下，较上个月创下的近70,000美元的历史高点下跌超过80%。过去比特币的价格也出现过类似的下跌，[尽管看涨比特币和加密货币的投资者仍然相信比特币的价格在未来几年还会走高](https://translate.google.com/translate?hl=en&amp;prev=_t&amp;sl=auto&amp;tl=zh-CN&amp;u=https://www.forbes.com/sites/billybambrough/2021/11/23/crypto-price-prediction-volcanos-could-push-bitcoin-to-1-million-in-five-years-leaving-ethereum-bnb-solana-cardano-xrp-and-cro-in-the-dust/)。
+**   ** 新加坡此次是自2000年以来第一次增加黄金储备， 而且增加的幅度达到了20% 。新加坡金融管理局在今年5月和6月份就已经完成了购买黄金储备的交易，但是国际货币基金组织经济统计报告直到最近才公布。市场普遍认为新加坡政府可能倾向于不引起外界对新加坡黄金储备数量的关注，因为这样可能会引导国际外汇市场将新加坡金融管理局购买黄金的行为视为加强新加坡外汇储备实力的举动，并可能对于新加坡货币的汇率带来上行压力。
 
-纳维利尔写道，“我认为跌破46,000美元（200天移动平均线）是一个黄色警告，跌破28,500美元（春季的低点）将会是一个完整的双顶，这意味着会跌至10,000美元以下。顺便说一句，这将与在其传奇历史上的多次下跌超过80%相匹配”。
+春江水暖鸭先知，小编认为此次大规模增加黄金储备，实际上是新加坡政府已经敏锐地嗅到了全球经济即将出现大的危机，并为此作出一些预先的金融防范措施。 但是在目前的情况下，新加坡政府也不能告诉外界真实的目的，因此对于此次黄金储备增持，新加坡政府刻意保持低调。
 
-比特币价格从2020年3月的低点4,000美元上涨到上个月的69,000美元的高位，部分是由于应对新冠大流行对经济的打击和为遏制它而采取的封锁措施，自去年开始美联储和其他中央银行采取大规模刺激措施。
+文贵先生在之前多次大直播中已经明确地指出，目前全球政府在疫情之下超发货币，迟早将会引发全球性金融和经济危机。 尤其是随着共产党在全球不断散播新的病毒，以及各国封锁国境和强制疫苗政策，导致全球经济的供应链中断和疫苗灾难，将可能在2022年导致全球性的金融和经济大危机。
 
-比特币最近一次反弹将加密货币的总市值从去年此时的约5000亿美元提高到上个月的3万亿美元。其中大部分收益来自小型加密货币的大幅价格上涨，以太坊及其竞争对手币安的BNB、索拉纳（solana）、艾达币在过去12个月中的涨幅都远远超过了比特币。
+在这场人类经济大浩劫来临之际， 新中国联邦和爆料革命已经开始各种筹备工作，未来将以各地农场为中心，保持和战友的紧密联系，帮助战友共同度过这个难关。
 
-当前，在通胀急剧上升和劳动力市场几乎完全恢复之后，美联储现在开始“缩减”其宽松的经济政策。虽然11月的就业数据低于预期，但失业率从10月的4.6%降至4.2%，这是一年多以来的最低点。
+**新闻****2: 【东盟】 美国助理国务卿访问东盟四国**
 
-“奇怪的是，经济较低的增长加之Omicron新变种病毒带来的潜在供应链（断裂）问题，事实上可能会导致美联储更积极地加息——所有这些都是为了对抗不断上升的通货膨胀，”一家佛州的投资公司CEO杰伊·佩斯特里切利对[福布斯](https://translate.google.com/translate?hl=en&amp;prev=_t&amp;sl=auto&amp;tl=zh-CN&amp;u=https://www.forbes.com/sites/jonathanponciano/2021/12/03/us-labor-market-recovery-lost-steam-in-november-with-a-sluggish-210000-new-jobs/%3Fsh%3D63e0fff5176f)说。
+**新闻摘****要：**
 
-上周，亿万富翁加密货币投资者迈克诺·沃格拉茨也[警告，美联储主席杰罗姆·鲍威尔可能会在2022年引发比特币和加密货币市场崩溃，因为他正在采取行动来遏制目前已跃升至30年高位的通胀](https://translate.google.com/translate?hl=en&amp;prev=_t&amp;sl=auto&amp;tl=zh-CN&amp;u=https://www.forbes.com/sites/billybambrough/2021/11/30/crypto-price-prediction-serious-fed-warning-issued-over-bitcoin-ethereum-bnb-solana-cardano-and-xrp/%3Fsh%3D13cb6fdb3ba4)失控。
+11月29日美国负责东亚事物的助理国务卿康达抵达印度尼西亚，开始了为期一个星期的东南亚四国之行。康达访问国家除了印尼之外，还包括马来西亚， 新加坡和泰国。 美国国务院在康达东盟四国之行前， 发表一份声明称康达此行将重申美国对东盟的合作承诺，共同应对最严峻的全球和地区挑战。
 
-新闻链接：[$300 Billion Bitcoin And Crypto Price Crash After Stark Fed Warning—Ethereum, BNB, Solana, Cardano And XRP In Free Fall (forbes.com)](https://www.forbes.com/sites/billybambrough/2021/12/03/300-billion-bitcoin-and-crypto-price-crash-after-stark-fed-warning-ethereum-bnb-solana-cardano-and-xrp-in-free-fall/?sh=45a29d0222fd)
+康达第一站抵达印尼，强调的是对印尼在东盟领导地位的认可。 康达对记者表示他到访印尼的目的很简单，印尼作为东盟与美国沟通的官方联系人，他想证明美国对于与印尼战略伙伴关系的承诺，同时美国对东盟国家的承诺以及东盟在印太地区未来的重要地位。
 
-**发布：**去中心化Math
+东盟消息人士表示，康达此行目的之一是为美国总统拜登2022年1月在华盛顿与东盟领导面对面峰会进行铺路。但美国方面没有证实这个消息。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**新闻评述：**
+
+**     **拜登政府上台后加强了与国际盟友的合作关系， 过去几个月美国高官接连出访东盟国家加强美国与东盟的关系。 11月份拜登总统与东盟领导人举行了一次视频峰会，这是华盛顿四年来第一次在最高层级参与东盟外交活动。康达此行也表示未来会有更多层级的美国官员出访东盟进行更为具体的合作。 但是东盟各国还是很怀疑美国的政策的持续性。 同时东盟各国期望美国有更多的实质行动，而不只是外交的出访。 截止目前，拜登总统对于美国重新加入CPTPP 保持缄默。 目前东盟与中国的贸易关系紧密，互为第一大贸易伙伴。 在这个种情况，美国如果想将东盟国家拉拢过来，外交和军事是一方面，更为重要的是从经贸领域扩大与东盟的合作。
+
+另外康达抵达新加坡与记者见面时，发生一个有趣的小插曲。 新加坡当地的记者询问康达，拜登总统即将在美国主持的全球民主峰会，110个国家领导人受邀出席，但是新加坡，越南和泰国作为美国盟友并没有被邀请参加这个全球民主论坛。康达回复这个记者的提问指出，这个民主峰会只是选择一些世界民主国家进行一些交流，以便于更好地在全球推行民主，这个民主峰会不是对其他国家民主的裁判。这个峰会有一些美国的盟友参加，但是还有很多像新加坡这样的美国传统盟友没有参加，因此这个峰会不会对美国与新加坡的盟友关系造成有什么影响。
+
+显然这是一个纯粹外交辞林的回复。 小编认为美国未邀请新加坡参加民主峰会，首先是美国认识到新加坡的政治体制与西方国家倡导的民主体制的区别；另外一个原因很可能是美国多次向新加坡释放希望新加坡能与中共国疏远各种合作，并帮助美国加强与东盟的合作关系对抗中共国。但是新加坡并未给予积极回应。因此美国也是通过这个小动作来敲打新加坡。
+
+**新闻****3: 【印尼】中共国抗议印尼在南中国海开发石油和军事演习**
+
+**新闻摘要**：
+
+12月1日路透社报道，有消息人称中共国外交部给印尼外交部发出信函，要求印尼停止在南中国海开发石油和天燃气，因为那片海域属于中共国的领海。印尼国会安全委员会的立法人员，面对路透社的采访表示，印尼对中共国的回复非常坚决，印尼不会停止任何开采因为那里是印尼的领海。
+
+但是印尼外交部发言人对于记者的询问，表示任何国与国之间的外交沟通都将是保密，内容不会对外公开。因此发言人拒绝对此给予更多答复。 中共国驻印尼大使馆对于记者的问询也未给予任何回复。
+
+路透社记者通过其他多个人核实了中共国外交部确实发了信函，而且中共国多次向印尼外交部提出要求停止在相关海域钻探石油和天然气。
+
+**新闻评述**：
+
+印尼一直声称根据联合国海洋公约，南中国海最南部部分海域是印尼的专属经济区，并且2017年印尼政府给该区域起名为北纳土纳海。 中共国一直拒绝承认印尼对于该海域的主张，并坚持认为该区域属于9段线之内，属于中共国领海。
+
+这次中共国外交部第一次公开利用信函使用要求印尼政府接受9段线结论。印尼政府对于这次中共国的外交信函，对外保持沉默，实际上为了避免和中共国发生外交冲突，导致印尼与中共国的经贸往来造成影响。
+
+据印尼国会安全委员会人员透露，其实中共国在8月份的时候，也通过外交信函抗议印尼和美国在该海域的军事演习。从2009年开始， 印尼和美国会定期举行军事合作演习。 之前几次演习中共国没有任何反应，这是中共国第一次抗议印尼和美国的军事演习。
 
  
 
