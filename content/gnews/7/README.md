@@ -2,50 +2,43 @@
 ---
 
 
-## 美空军部长称与中共进行高超音速武器竞赛
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1718612/)
+## 脸书负责加密货币的高管将离开公司
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1718783/)
 
-作者：东京樱花团—在远方
+**翻译：Lulumi**
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-159.png)图片来源 **：**cnbc.com
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-109-1280x172-1-2-1.jpg)
+2019年7月16日，在华盛顿特区国会山的参议院银行、众议院和城市事务委员会听证会上，现为脸书金融或F2负责人的大卫·马库斯，就脸书提议的数字货币（以前叫做Libra）作证。该加密货币在2020年12月被重新命名为Diem。
 
+脸书母公司Meta的加密货币负责人大卫·马库斯周二宣布，他将在今年年底离开公司。
 
-美国之音12月2日报道，美国空军部长弗兰克·肯德尔11月30日表示，美国与中共正在高超音速武器领域进行军备竞赛，双方正在这一领域进行越来越多的测试和研发。
+在马库斯离职之前，该公司曾尝试推出一种加密货币，可以通过脸书产品向世界上任何一个人在线发送资金，但最终失败。
 
+马库斯在担任贝宝(PayPal)总裁两年后，于2014年8月加入Meta公司，该公司前身是Facebook。马库斯在Facebook的最初角色是负责该公司Messenger服务的副总裁。他在2018年5月离开Messenger部门，推出了Facebook的金融项目部门。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-68.jpeg)图片来源：美国之音
-高超音速武器轨迹特别，难以追踪防御，且超过5倍音速。假如中共能将该武器部署到地球轨道上，就可以从没有任何防备的南极重返大气层而攻击美国，而美国的导弹防御系统将毫无用处。
+该部门在2019年6月宣布了该公司的Libra区块链货币和Calibra数字钱包，称希望这两个项目能在2020年上线。
 
-肯德尔说，中共对于美军现有的A-10攻击机，C-130多用途运输机，和MQ-9侦察打击无人机并不惧怕。而美国军方过去20年来，一直把资源用于伊拉克和阿富汗，因此对高超音速武器系统的研发缺乏专注。据悉，美国国防承包商对美国国防部集中资源、研发高超音速武器系统表示高度欢迎。
+在Facebook面临来自全球立法者和监管机构对其加密货币野心的强烈反弹后，这两个项目都没有在2020年看到曙光。该公司最终在10月发布了其数字钱包产品，更名为Novi。但现在被命名为Diem的数字货币，由一个独立的协会运营，仍然没有向公众发布。
 
-新闻链接：[https://www.voachinese.com/a/US-Air-Force-says-US-in-hypersonic-weapon-arms-race-with-China-20211202/6335161.html](https://www.voachinese.com/a/US-Air-Force-says-US-in-hypersonic-weapon-arms-race-with-China-20211202/6335161.html)
+马库斯在宣布离职的推文中说：“虽然在推出Novi之后还有很多事情要做——而且我仍然像以前一样对我们的支付和金融系统的变革需求充满热情——但我的创业基因已经连续很多个早晨催促我忽视它。”
 
+马库斯的离职是在Facebook区块链方面多次失败尝试的关键高管离职之后发生的。同行的项目创始人摩根·贝勒于2020年9月离开公司，进入风险投资领域。另一位项目创始人之一凯文·威尔于3月离职，加入了旧金山的Planet公司，该公司拥有一支卫星队，每天对地球拍摄一次照片，为用户提供展示地球变化的图像。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-69.jpeg)
+“如果没有你的领导，我们不会在Diem采取如此大的行动，我很感激你让Meta成为我们进行这些大赌注的地方，”Facebook首席执行官马克·扎克伯格在马库斯的Facebook个人资料上的评论中写道。
 
+马库斯在其离职公告中说，高管斯蒂芬·卡斯瑞尔将接替马库斯，担任该公司诺维金融产品部门的负责人。
 
+“我迫不及待地想从外面见证这一切，”马库斯在推特上说。“我知道未来前途无量。”
 
+新闻来源 : [cnbc.com] [Facebook’s executive in charge of cryptocurrency is leaving the company](https://www.cnbc.com/2021/11/30/metas-head-of-cryptocurrency-david-marcus-resigns.html)
 
-编辑：飞虹
-校对/发稿：文敬
+* * *
 
-更多资讯，更多关注
-
-纽约香草山农场 GTV–香草山之声
-
-纽约香草山农场 GTV-MOS TALK 香草山访谈
-
-纽约香草山农场 Gettr
-
-纽约香草山农场 YouTube
-
-欢迎加入纽约香草山农场 Discord
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-70.jpeg)
-
-
-
+*审核：文乐 
+校对：信心满满
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
