@@ -15,125 +15,125 @@
 
 ---
 
-### [标准普尔500指数本周表现不佳，未来走势堪忧](/content/gnews/1/README.md)
- ` 纽约香草山MOS02`
-
-### [家庭反洗脑序列：第38篇 曾经的癌，如今的苗](/content/gnews/2/README.md)
+### [中共国的“完美风暴组合”震动了加利西亚（四）](/content/gnews/1/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [英国再增Omicron案例 过半数感染者完成两剂接种](/content/gnews/3/README.md)
+### [Eglise谈青蒿素和羟氯喹吃法](/content/gnews/2/README.md)
+ ` MG FARM`
+
+### [七哥谈战友](/content/gnews/3/README.md)
+ ` MG FARM`
+
+### [中共国的“完美风暴组合”震动了加利西亚（三）](/content/gnews/4/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [中共国的“完美风暴组合”震动了加利西亚（一）](/content/gnews/5/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [中共国的“完美风暴组合”震动了加利西亚（二）](/content/gnews/6/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [标准普尔500指数本周表现不佳，未来走势堪忧](/content/gnews/7/README.md)
+ ` 纽约香草山MOS02`
+
+### [家庭反洗脑序列：第38篇 曾经的癌，如今的苗](/content/gnews/8/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [HCoin To the Moon iTunes排行榜最新更新](/content/gnews/9/README.md)
+ ` 我是音雄`
+
+### [英国再增Omicron案例 过半数感染者完成两剂接种](/content/gnews/10/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [【视频】至暗时刻 &#8212; 《疫苗大灾难》](/content/gnews/4/README.md)
+### [【视频】至暗时刻 &#8212; 《疫苗大灾难》](/content/gnews/11/README.md)
  ` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)`
 
-### [向5-11岁的小朋友打疫苗，这是杀戮儿童！](/content/gnews/5/README.md)
+### [向5-11岁的小朋友打疫苗，这是杀戮儿童！](/content/gnews/12/README.md)
  ` 温哥华扬帆农场`
 
-### [美国CDC要求航空公司披露去过非洲国家的乘客信息](/content/gnews/6/README.md)
+### [美国CDC要求航空公司披露去过非洲国家的乘客信息](/content/gnews/13/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [Hcoin To the Moon 上线第2天位列14国iTunes摇滚音乐榜首](/content/gnews/7/README.md)
+### [Hcoin To the Moon 上线第2天位列14国iTunes摇滚音乐榜首](/content/gnews/14/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [布林肯将台湾称为“国家”，中共官媒发文抨击](/content/gnews/8/README.md)
+### [布林肯将台湾称为“国家”，中共官媒发文抨击](/content/gnews/15/README.md)
  ` 首尔天池农场`
 
-### [银河快讯：日本与美国海军加强合作；呼吁政府改善外国人医疗费用](/content/gnews/9/README.md)
+### [银河快讯：日本与美国海军加强合作；呼吁政府改善外国人医疗费用](/content/gnews/16/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [想杀习近平的比想杀江泽民、王岐山、孟建柱的人多得多](/content/gnews/10/README.md)
+### [想杀习近平的比想杀江泽民、王岐山、孟建柱的人多得多](/content/gnews/17/README.md)
  ` NewFOC`
 
-### [12/04/21 香港快讯 廉政专员：正研究民调问投票意向是否「违法」](/content/gnews/11/README.md)
+### [12/04/21 香港快讯 廉政专员：正研究民调问投票意向是否「违法」](/content/gnews/18/README.md)
  ` 英喜-粵語組`
 
-### [24小时13死胎疑云 &#8212; 什么是真相？](/content/gnews/12/README.md)
+### [24小时13死胎疑云 &#8212; 什么是真相？](/content/gnews/19/README.md)
  ` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)`
 
-### [东京宣布推出一种检测奥密克戎的专用PCR检测系统](/content/gnews/13/README.md)
+### [东京宣布推出一种检测奥密克戎的专用PCR检测系统](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [因彭帅事件国际女子网球协会暂停在中共国所有网球赛事](/content/gnews/14/README.md)
+### [因彭帅事件国际女子网球协会暂停在中共国所有网球赛事](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [儿科医生斯特芬·拉贝(Dr. Steffen Rabe)坚决反对在德国强制接种中共病毒疫苗](/content/gnews/15/README.md)
+### [儿科医生斯特芬·拉贝(Dr. Steffen Rabe)坚决反对在德国强制接种中共病毒疫苗](/content/gnews/22/README.md)
  ` MG 澳喜农场多语组`
 
-### [8.1-8.16表明习绝对认可南普陀，决定向左走并大开杀戒](/content/gnews/16/README.md)
+### [8.1-8.16表明习绝对认可南普陀，决定向左走并大开杀戒](/content/gnews/23/README.md)
  ` NewFOC`
 
-### [以色列跟踪对 omicron 变体呈阳性的公民的电话](/content/gnews/17/README.md)
+### [以色列跟踪对 omicron 变体呈阳性的公民的电话](/content/gnews/24/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [北戴河会议是交关系建感情拉盟友看望老常委和拍板站队](/content/gnews/18/README.md)
+### [北戴河会议是交关系建感情拉盟友看望老常委和拍板站队](/content/gnews/25/README.md)
  ` NewFOC`
 
-### [GTV新闻访谈简报|2021年12月4日早](/content/gnews/19/README.md)
+### [GTV新闻访谈简报|2021年12月4日早](/content/gnews/26/README.md)
  ` 纽约香草山MOS01`
 
-### [共产党老干部联谊会](/content/gnews/20/README.md)
+### [共产党老干部联谊会](/content/gnews/27/README.md)
  ` 银河勇气之星`
 
-### [12/3/2021 文贵直播：在北戴河会议上，胡锦涛怂恿习近平对傅政华动手，王岐山欲辞去国家副主席一职以逃脱习的掌控](/content/gnews/21/README.md)
+### [12/3/2021 文贵直播：在北戴河会议上，胡锦涛怂恿习近平对傅政华动手，王岐山欲辞去国家副主席一职以逃脱习的掌控](/content/gnews/28/README.md)
  ` 秘密翻译组-北美组`
 
-### [浅谈汉字简化之恶](/content/gnews/22/README.md)
+### [浅谈汉字简化之恶](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文·贵天成——文贵先生谈“疫苗”（二十九）](/content/gnews/23/README.md)
- ` 墨尔本雅典娜农场`
-
-### [真要开打？俄罗斯17万大军压境乌克兰](/content/gnews/24/README.md)
+### [真要开打？俄罗斯17万大军压境乌克兰](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [东南亚一周新闻回顾（2021年11月27日-12月3日）](/content/gnews/25/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [12/3/2021 文贵直播：宋平和胡锦涛都向习建议干掉江家、王岐山和孟建柱的势力并要习走极左道路](/content/gnews/26/README.md)
+### [12/3/2021 文贵直播：宋平和胡锦涛都向习建议干掉江家、王岐山和孟建柱的势力并要习走极左道路](/content/gnews/31/README.md)
  ` 秘密翻译组-北美组`
 
-### [大道赞 ——致敬新中国联邦](/content/gnews/27/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [文·贵天成——文贵先生谈“疫苗”（二十七）](/content/gnews/28/README.md)
- ` 墨尔本雅典娜农场`
-
-### [12/3/2021 文贵直播：习近平在2021年8月1日到16日期间见的人和见面时间说明习尊重宋平和胡锦涛，他对江家已完全失去信任](/content/gnews/29/README.md)
+### [12/3/2021 文贵直播：习近平在2021年8月1日到16日期间见的人和见面时间说明习尊重宋平和胡锦涛，他对江家已完全失去信任](/content/gnews/32/README.md)
  ` 秘密翻译组-北美组`
 
-### [12/3/2021 文贵直播：中共疫苗导致老年人突发多种癌症，中年壮年猝死率陡增，女性得子宫癌、卵巢癌和乳腺癌](/content/gnews/30/README.md)
+### [12/3/2021 文贵直播：中共疫苗导致老年人突发多种癌症，中年壮年猝死率陡增，女性得子宫癌、卵巢癌和乳腺癌](/content/gnews/33/README.md)
  ` 秘密翻译组-北美组`
 
-### [七芒星赞](/content/gnews/31/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [DC每日热点1204](/content/gnews/32/README.md)
+### [DC每日热点1204](/content/gnews/34/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [银河快讯：日本确诊第2例Omicron感染者；日本暂停国际航班新预订](/content/gnews/33/README.md)
+### [银河快讯：日本确诊第2例Omicron感染者；日本暂停国际航班新预订](/content/gnews/35/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [有声|欧洲某金融强国主动给予喜联储数字银行牌照，与中共决裂](/content/gnews/34/README.md)
+### [有声|欧洲某金融强国主动给予喜联储数字银行牌照，与中共决裂](/content/gnews/36/README.md)
  ` MOSREC`
 
-### [日本要闻汇编 12月4日](/content/gnews/35/README.md)
+### [日本要闻汇编 12月4日](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [从司马南事件看当今中共国民营经济的困境](/content/gnews/36/README.md)
+### [从司马南事件看当今中共国民营经济的困境](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [人的本质是玩儿](/content/gnews/37/README.md)
+### [人的本质是玩儿](/content/gnews/39/README.md)
  ` 骄子`
 
-### [秘翻在线：当马航坠毁真相公布天下之时，就是审判共产党之日！](/content/gnews/38/README.md)
+### [秘翻在线：当马航坠毁真相公布天下之时，就是审判共产党之日！](/content/gnews/40/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [12/4/2021国际财经快讯：美国股市、收益率下滑；滴滴计划从纽交所退市](/content/gnews/39/README.md)
- ` 秘密翻译组金融团队`
-
-### [比特币价格一小时暴跌近1万美元](/content/gnews/40/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [立陶宛货物被中共拒卸货 政府联合欧盟反击](/content/gnews/41/README.md)
  ` 秘密翻譯組G-Translators`
