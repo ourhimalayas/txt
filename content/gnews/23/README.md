@@ -2,41 +2,35 @@
 ---
 
 
-## 感恩是信仰而非宗教,是自然而然生没有任何条件交换的
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1718015/)
+## 彭帅事件持续发酵，国际女子网球协会宣布停办在中国赛事
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1718096/)
 
-**郭文贵先生：**人生最重要的事情就是你的智慧，无尽的智慧！啥叫“无尽的智慧呀”？“无尽的智慧”不是没边儿的，大到比别人高的智慧，“无尽的智慧”就是自然的智慧。就像我上次说的，感恩，感恩没有条件的，感恩是自然而然生的，就是自然而然的，没有条件的，没有任何条件交换的。感恩是信仰不是宗教！
+撰稿：一碗兰州（文远）
+（封面图片作者及来源© Claude Truong-Ngoc / Wikimedia Commons）
 
-宗教是啥？宗教是信仰的中介，agent，宗教代表了上帝，但收你15%的工资。宗教代表了什么什么佛祖、耶稣，你要供养它。而且宗教这个东西呢，宗教要记住，宗教是自然是自然生，就是植物一样，像大自然的植物一样，它是一个完全不是卵生的，不是性交产物，是无性产物。所以它没有任何创新，它永远就那样，这叫“宗教”。就是忽悠你点儿钱弄点儿钱，是吧，代表上帝。
+12月2日，国际女子网球协会（WTA）官方网站发布其主席兼首席执行官史蒂夫·西蒙（Steve Simon）的声明，宣布停办所有在中国（包括香港）的WTA赛事。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/网球.png)
+图1.国际女子网球协会WTA官方网站
 
-信仰是什么？信仰是天生的。就是两性的世界，有性繁殖，有性繁殖是什么？是不可确定的，是不是？飞飞跟她老公产出那仨孩子，就长那样。飞飞要跟政清产出仨孩子，那就绝对不长那样，这就是结局。他跟文空产（出孩子）也不那样。Eglise这是你是医学，这是很正常的。所以说这个人类她是一个有性繁殖导致了不确定性，而不确定性是完全自然的，是没办法的，是不确定性的延续。它感恩是信仰，不是宗教。我不是说我因为啥，我而且不变的，我是有条件的，不对的。它是完全不可变的。所以感恩是信仰，不是宗教。同样一个人的判断力，叫“无尽的智慧”，告诉你什么？完全是一个可以确定的智慧，就是说它是无性繁殖了，这就叫无性繁殖了，完全“啪”就来了，这是我本能，我感激，我看待事物。
+西蒙在该声明中表示：“凭着良心，当彭帅不被允许自由交流并且似乎被迫反驳她的性侵犯指控时，我不明白我怎么能要求我们的运动员在那里比赛。鉴于目前的情况，我也非常担心如果我们在 2022 年在中国举办赛事，我们所有的球员和工作人员可能面临的风险。”
+![](https://assets.gnews.org/wp-content/uploads/2021/12/网协.png)
+图2.国际女子网球协会WTA官方推特发布置顶文章
 
-所以说，你看，有些事情是有性繁殖是好，有些事情是无性繁殖好。宗教和信仰之间它的并列就在这儿，自然它是完全无性繁殖，人类和动物是有性繁殖的，这两者之间就是信仰和宗教的存在，当你把这看清楚了，所有的宗教，你任何教记住，它都是agent，你都可以怀疑它、否定它，你都可以不用它。
+该声明发出一天时间，仅在WTA官方推特上便获得1万条转推、四千多条引用以及3.7万个点赞，各大媒体争相报道，但该消息在中共国遭到封杀。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/网协2.png)
+图3.百度搜索相关信息显示没有匹配结果
 
-字幕来源：[2021年12月1日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1714674/)
+现年35岁的中国女子网球运动员彭帅在11月2日晚上发布微博，称遭中共国前政治局常委兼副总理张高丽性侵，而张高丽的妻子康杰在门外帮张看门把风，且这不是第一次张高丽对彭帅的侵犯。虽然此条微博仅存在了约二十分钟便遭删除，但已引发网友广泛传播及热议。中共国官方随后对此消息进行全网封杀， 2013年的韩剧《总理和我》因涉及隐射该事件也遭下架，相关影片介绍被豆瓣网秒删，甚至“网球”一词也一度被屏蔽。
 
-视频制作：小满；
+中共国外交部发言人汪文斌在12月2日的例行记者会上表示，反对将体育政治化。外交部发言人赵立坚在此前地11月23日曾表示称彭帅事件不应被政治化，并希望“某些人停止恶意炒作此事”，然而赵立坚的上述发言并未记录到当天的外交部例行记者会实录中。
 
-视频发布：撒骄的男宝好性感；
+此次国际女子网球协会不顾其在中共国的商业利益，坚定地站出来表示对彭帅事件的关切与回应，表明国际体育界对中共国毫无人权、高层官员肆意侵犯女性的严重抗议。一个能够随意侵犯他人、动用国家机器封锁消息、让被害者及全社会噤声的国家，有什么资格参与世界文明国家地体育竞技呢？
 
-文章发布：黎明之前；
+参考消息：
+[Steve Simon announces WTA’s decision to suspend tournaments in China (wtatennis.com)](https://www.wtatennis.com/news/2384758/steve-simon-announces-wta-s-decision-to-suspend-tournaments-in-china)
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+发稿：MG4
+![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

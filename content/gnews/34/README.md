@@ -2,13 +2,13 @@
 ---
 
 
-## 日本山形县发生群聚感染，13名幼儿感染中共病毒
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1717851/)
+## 汤姆·科顿:美国正经历创纪录的通货膨胀和供应链短缺
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1717881/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12._04-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+11/29/2021 汤姆·科顿：创纪录的通货膨胀和供应链短缺只发生在拜登政府的领导下，也是拜登政府政策的结果。我们需要把制造业从中共国撤回美国，以便我们有能力制造我们人民所依赖的商品，特别是处方药、医药用品和医疗用品等。
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
