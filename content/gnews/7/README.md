@@ -2,34 +2,65 @@
 ---
 
 
-## 布林肯将台湾称为“国家”，中共官媒发文抨击
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1720096/)
+## Hcoin To the Moon 上线第2天位列14国iTunes摇滚音乐榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1720105/)
 
-韩国首尔天池农场—虎眼　校对/上传—无明逆流
+12/04/2021 郭文贵先生的歌曲Hcoin To the Moon上线第2天位列14国iTunes摇滚音乐榜首
 
-美国时间12月3日，在路透社主办的Next虚拟会议上，美国国务卿布林肯接受了路透社总编(AlessandraGalloni)的采访。双方就乌克兰危机、台湾问题和美国对华政策进行了对话讨论。
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/13ER45D7129Df943ED6.jpg)图片来源：网络
+[【PDF 下载】Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-当被问到中国是否会入侵台湾时，布林肯表示：中国大陆对台湾的武统意图将是“潜在的灾难性决定”，会带来可怕的后果。他希望中国领导人慎重考虑这一问题，不要贸然引发一场会给很多人带来可怕后果的危机，危机对任何人都没有好处，而中国（大陆）会首当其冲。布林肯还承诺“美国将确保台湾拥有自卫手段。”
+* * *
 
-采访中，布林肯还将台湾称为创新国家，“这是一个强劲的民主政体、一个强劲的经济体、一个创新性的国家。”
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_2.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_3.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_4.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_6.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_8.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_11.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_12.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_13.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_14.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_15.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_16.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_17.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_18.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_19.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_20.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_21.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_22.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_23.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_24.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_25.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_26.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_27.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_28.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_29.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_30.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_31.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_32.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_33.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_34.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_35.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_36.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_39.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_40.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_41.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_42.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_43.jpg)
 
-12月4日，中共人民日报“钟声”发表长文抨击美国国务卿布林肯的对台言论。
-全文如下：
-当地时间12月3日，美国政府高官在谈及台湾问题时，公然将台湾称为“国家”，毫无根据地将所谓“改变现状”罪名强加给中方，并称要确保台湾有“防卫手段”。美个别政客的言论严重违背事实真相和国际关系准则，公然挑战一个中国原则，粗暴干涉中国内政，是在向“台独”势力发出错误信号，打“台湾牌”、“以台制华”的政治图谋是对台海和平稳定的最大威胁。
 
-当前，台海局势面临新一轮紧张，美政客和台湾民进党当局是始作俑者。美个别政客公然将台湾称为“国家”，这严重违反一个中国原则，严重违背美方在中美三个联合公报中作出的政治承诺，性质十分恶劣，美方必须停止错误言行。台湾民进党当局煽动两岸对立，不断进行“倚美谋独”的挑衅。美个别政客的错误言行只会纵容“台独”，让台海局势变得更为紧张。
+[【PDF 下载】Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-美个别政客罔顾事实，编织所谓中国单方面在台海“改变现状”的谎言。但事实上，台湾问题的真正现状是：世界上只有一个中国，台湾是中国的一部分，中华人民共和国政府是代表中国的唯一合法政府。中美建交公报明确指出，“美利坚合众国政府承认中国的立场，即只有一个中国，台湾是中国的一部分”。在八一七公报中，美方重申无意干涉中国内政。在台湾问题上，中国政府的立场是一贯的，行动是坚决的。中国一直尽最大诚意追求和平统一，但绝不允许发生和出现“台独”势力分裂中国的情况。民进党当局“倚美谋独”、不断挑衅，美方“以台制华”动作不断，中方势必作出正当反应，坚决捍卫国家主权和领土完整。明明是美台勾连行径在“破坏台海现状”，美个别政客却渲染中国捍卫国家主权和领土完整的正当行为是“改变现状”，这完全是颠倒黑白、混淆视听。
-
-美方在炒作中方改变“台海现状”的同时，刻意抬高所谓“与台湾关系法”及“六项保证”的地位，为其所谓确保台湾有“防卫能力”的说辞寻找借口。美方的这种政治操弄，完全违背国际关系准则。所谓“与台湾关系法”及“六项保证”，是由美方单方面制定，其内容违背中美三个联合公报，粗暴干涉中国内政，是完全错误、非法、无效的，中方从一开始就坚决反对。美方以所谓“与台湾关系法”及“六项保证”来界定对台政策，是严重错误的。
-
-众所周知，一个中国原则和中美三个联合公报是中美关系的政治基础。历届美国政府对此都有明确承诺。当前，美个别政客出于“以台制华”企图，刻意曲解一个中国原则，这不仅背离其自身政治承诺，有失大国应有的风范，更是在挑战国际关系基本准则。
-
-实现国家统一是世界各国的正当必然要求，自古至今概莫能外。中国实现完全统一，是全体中华儿女的共同愿望。我们是有耐心的，愿以最大诚意、尽最大努力争取和平统一的前景，但如果“台独”分裂势力挑衅逼迫，甚至突破红线，我们将不得不采取断然措施。美方应立即停止挑战一个中国原则的错误行径，真正恪守中美三个联合公报规定，停止向“台独”势力发出任何危险错误信号。
-
-相关新闻：[《路透峰会》美国国务卿布林肯称中国入侵台湾会招致“可怕后果”](https://www.reuters.com/article/reuters-next-china-usa-idCNL4S2SO3LH)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
