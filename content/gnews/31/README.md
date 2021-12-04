@@ -2,28 +2,27 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月4日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1719892/)
+## 东京宣布推出一种检测奥密克戎的专用PCR检测系统
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1720007/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-109-1280x172-1-2-1.jpg)
+编译：东京樱花团/Orange文橘
+![](https://assets.gnews.org/wp-content/uploads/2021/12/9-4.jpg)
+[图片来源](https://www.japantimes.co.jp/news/2021/12/04/national/tokyo-omicron-variant-tests/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-2.png)
-文章仅代表作者本人观点，与Gnews无关
+12月3日周五，东京都政府推出一种专用PCR检测系统，可以检测中共病毒的奥密克戎变体。该系统由东京都公共卫生研究所开发，以前的检测系统不能将奥密克戎变体与其他毒株区分开来。
 
-视频参看：[2021.12.04早GTV新闻访谈](https://gtv.org/broadcast/watch/61ab6ce5bbd75f62e52edc26)
+东京都政府在周五新闻发布会上宣布，引入新的PCR测试系统是应对奥密克戎变体传播的紧急措施之一。政府还把酒店和其他住宿设施中为中共病毒密切接触者预留的房间数量从1750个增加到3400个。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+日本已确认两例感染奥密克戎变体的病例，在确定与这两名患者有密切接触的85人中，有61人已经住在由东京都政府提供的住宿设施中。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-69.jpeg)
+信息来源：
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[Tokyo introduces testing system for omicron variant](https://www.japantimes.co.jp/news/2021/12/04/national/tokyo-omicron-variant-tests/)
+
+校对： 东京樱花团/知了知了
+发布： 东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.png)
+
 
  
 

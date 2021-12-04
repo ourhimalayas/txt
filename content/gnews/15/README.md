@@ -2,41 +2,22 @@
 ---
 
 
-## Eglise谈青蒿素和羟氯喹吃法
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1720602/)
+## 秘翻在线: 加拿大新省禁止未接种疫苗者进入食品杂货店
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1720638/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+撰稿：西枫westca
 
-Eglise:你只要没有副反应，保健品你是每天要吃的，这是你饮食的一部分！
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Chalo_main.jpg)图片来源：www.sobeys110.com
+据TNC新闻12月3日报道，从本周六开始，加拿大新布伦瑞克省禁止不能出示全面疫苗接种证明的人进入杂货店购买食品。这项措施是作为该省 “冬季行动计划 “的一部分而宣布的，该计划允许任何企业，包括杂货店，选择禁止未接种疫苗的人进入。
 
-飞飞：明白！然后青蒿素和羟氯喹可以一起吃吗，刚刚说了，青蒿素药不能和伊维菌素药一起吃，青蒿素保健品和伊维菌素可以一起吃，那么青蒿素和那个羟氯喹能一起吃吗？
+据该省卫生部长多萝西-谢泼德说，这是因为该省在过去两周里看到了COVID感染的 “非常令人担忧 “的上升，特别是在未接种疫苗的加拿大人中。
 
-Eglise:青蒿素和硫酸羟都可以，为什么不可以吃，保健品可以。
+在联邦政府发布的一份指南中，加拿大公共安全部将食品列为基础设施的十个关键部门之一，因其提供对市民的基本服务和功能。虽然各省在大流行期间可以自由管理他们自己的限制和封锁，但全国各地的杂货店直到现在仍对所有人开放。
 
-飞飞：保健品可以，药不行，对吧？
+极左的特鲁多政府在自中共病毒大流行发生以来，从未表述要追溯病毒来源，在疫苗接种上更是走在西方国家的前列。 如今接种率已经超过80%，已超过群体免疫比例，为何还会有高阳性率？不是政府在接种率上说谎，就是在感染者多数为未接种人群上说谎。现在又把人们生存的基本权利和疫苗连在一起，就是助虐为虐。这些政客们一定会得到正义的审判。
 
-Eglise: 药不行，药是因为那个奎宁有叠加副反应，那个毒性反应，
-
-飞飞：好的，然后青蒿素+锌能够当保健品吗，应该可以，对吧？
-
-Eglise: 青蒿素+锌，好了，这里又存在另一个问题，锌本身也是人体必需的这个你要的营养成分元素的。 锌用于新冠这个抗病毒治疗的原理是因为锌需要进入细胞去抑制，安慰病毒的复制，而能帮这个锌带入细胞的载体只有硫酸羟氯喹和伊维菌素还有槲皮素。我甚至不知道mRna是不是有这个载体功能，而青蒿素我没听说他有这个载体的功能，你青蒿素去跟锌配，不是说不能一起吃，但是它的基底在哪里，青蒿素不能把这个锌带入细胞，就是这个被侵犯的细胞的话，那就没有价值。
-
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+**新闻来源：**[https://tnc.news/2021/12/03/unvaccinated-canadians-can-be-banned-from-grocery-stores-in-new-brunswick/](https://tnc.news/2021/12/03/unvaccinated-canadians-can-be-banned-from-grocery-stores-in-new-brunswick/)
 
  
 

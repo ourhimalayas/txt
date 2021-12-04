@@ -2,44 +2,35 @@
 ---
 
 
-## 拜登的疫苗授权在蒙大拿州的裁决中再次受到打击
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1720726/)
+## DeVere表示，加密货币的价值将在一年内翻一番
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1721013/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/120401-1.jpg)随着 COVID-19 病例的增加，Wolters Kluwer 发布了所有 50 个州的疫苗和口罩授权、疫苗护照和雇主责任保护的新数据
-“未接种疫苗者的自由权益不容侵蚀。”
+**据《Finacial Advisor》记者：KAREN DEMASTERS，2021年11月30日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/a7ugl-x50u7.jpg)**图片来源：洛杉矶盘古农场设计组odin**
+全球独立顾问公司deVere Group的首席执行官预测，加密货币的价值将在未来12个月内翻一番，其顾问资产达120亿美元。
 
-蒙大拿州也对拜登现在步履蹒跚的联邦疫苗授权说不，又一个州否定了这个授权。 参议员史蒂夫·戴恩斯宣布了这一消息：
+deVere Group的创始人Nigel Green昨天在一份声明中表示，由于发现了新的Covid-19变体，最近价格下跌了8%，这将被投资者视为买入机会。自11月初创下历史新高以来，加密货币已下跌20%。
 
-“蒙大拿州的大新闻”戴恩斯在推特上写道。“拜登的过度的疫苗强制令威胁到蒙大拿州的医院、蒙大拿州的医护人员和寻求获得基本护理的蒙大拿州人。我们必须赢得这场斗争。”
+“新的Covid变种的发现震动了全球股市，因为它带来了新的不确定性浪潮。他们讨厌这种浪潮，”格林说。 “加密市场反映了其他金融市场的反应，这突显了数字资产现在已经逐渐成为主流，因为今年越来越多的机构投资者开始购买比特币资产。”
 
-参议员戴恩斯曾通过公告回应蒙大拿州总检察长奥斯汀·克努森。
+他说，机构投资者在过去几天一直在减少对比特币的投资，因为自发现Omicron以来，他们已经抛售了更多的传统股票。他说，尽管包括加密货币在内的市场可能很快会再次上涨，但这种情况还是发生了。格林称此次降价是“下意识的反应”，会自行纠正，就像市场从对Delta变体的反应中恢复过来一样。
 
-“对于蒙大拿州的医护人员来说是个好消息：一位联邦法官刚刚批准了我们对CMS疫苗的禁令请求。这项非法授权现在在所有50个州都被阻止。”
+他补充说，现在世界对如何处理变体有了更好的理解，对数字货币的投资开始被视为类似于黄金的避险资产。他说，比特币通常被称为“数字黄金”，因为与贵金属一样，它是一种非主权的交易媒介，是去中心化的、稀缺的、价值储存和对冲通胀的手段。
 
-**简评：**
+他说，比特币被视为抵御通货膨胀的盾牌，因为其供应有限，不受其价格影响。
 
-蒙大拿州否定了拜登的强制疫苗授权，同时更多的州也已经醒来。疫苗灾难的代价太大了，人们在用生命捍卫自己的权利和唤醒其他的同胞。伴随着各个州陆续赢得了这场斗争，终止疫苗指日可待。
+“因此，在此过程中出现了一些高峰和低谷，因为市场永远不会随着交易者获利而呈直线移动。我们可以预期比特币和其他主要加密货币的价格将继续上涨，”格林说，他描述了加密货币作为“货币的必然未来”，“势不可挡”。
 
-原文链接：[‘This Unlawful Mandate is Now Blocked in All 50 States’: Biden’s Vaccine Mandate Suffers Another Blow in Ruling for Montana](https://thekylebecker.substack.com/p/this-unlawful-mandate-is-now-blocked)
+**文章来源：**[https://www.fa-mag.com/news/cryptocurrency-will-double-in-value-in-a-year–devere-says-65137.html](https://www.fa-mag.com/news/cryptocurrency-will-double-in-value-in-a-year--devere-says-65137.html)
 
-*翻译/简评: Johnston2021*
+翻译：洛杉矶盘古农场–Raul
+校对：洛杉矶盘古农场–Mike Li
+编辑：洛杉矶盘古农场–心照
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-*校对: clau*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
