@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/4/2021 7:49 AM (UTC)`
+
+12/3/2021 Miles Guo: During the Beidaihe meeting, Hu Jintao encouraged Xi Jinping to take action against Fu Zhenghua, and Wang Qishan wanted to get out of Xi's control by resigning as Vice President of the Communist China. However, Xi ignored Wang and asked him to hand over all the cases being handled by the Central Commission for Discipline Inspection, so Wang almost collapsed<br/><br/>12/3/2021 文贵直播：在北戴河会议上，胡锦涛怂恿习近平对傅政华动手，王岐山欲辞去国家副主席一职以逃脱习的掌控，但习并未理会，反倒让王交出中纪委在处理的所有案件，王几乎崩溃<br/>
+![img](https://media.gettr.com/group22/getter/2021/12/04/07/49/c184c60f-d3f9-757f-df2c-cf2f400d97c3/out.jpg)
+
+---
+
 `@miles 12/4/2021 7:39 AM (UTC)`
 
 “Hcoin To the Moon” Hits #1 🥇on 1st Day of Launch on iTunes in Multiple Countries. <br/>Thank you my dearest brothers and sisters around the world!<br/>🎉🎉🎉🎉🎉🎉🎉❤️❤️❤️❤️❤️❤️❤️<br/><br/>https://gnews.org/1718446/<br/><br/>Hcoin To the Moon 上线第1天位列多国iTunes音乐榜首!<br/>衷心的感谢世界各地亲爱的兄弟姐妹们! 🎉🎉🎉🎉🎉🎉🎉❤️❤️❤️❤️❤️❤️❤️<br/><br/>https://gnews.org/zh-hans/1718337/
@@ -147,13 +154,6 @@
 
 MI6 chief Richard Moore has warned of China's "debt traps and data traps" in his first live broadcast interview. He warned China has the capability to "harvest data from around the world" and uses money to "get people on the hook", and pointed out these traps threatened to erode sovereignty and have prompted defensive measures.<br/><br/>军情六处负责人理查德·摩尔在他的第一次直播采访中就警告中共的“债务陷阱和数据陷阱”。 他警告说中共有能力“从世界各地收集数据”，并用钱“让人们陷入困境”。他还指出，这些陷阱有可能侵蚀国家的主权，并促使采取防御措施。
 ![img](https://media.gettr.com/group18/origin/2021/12/01/22/16/e1e495b8-dce7-e164-059a-13857df66c1d/out.jpg)
-
----
-
-`@miles 12/1/2021 9:48 PM (UTC)`
-
-Do you remember this video? On November 28, 2021, Mr. Miles Guo warned that the CCP would release a new virus in the Western US. On November 29, he confirmed that the virus was already released by the CCP in the Western US. Just Forty-eight hours later, today, on December 1st, the media reported that the first case of the COVID variant, Omicron, was confirmed in California.<br/><br/>大家还记得这个视频吗？2021年11月28日，郭先生说中共将在美西释放新病毒，并于11月29日再次确认中共已在美西放毒。仅在48小时后的今天，12月1日，媒体报道了第一例变种的Omicron病毒在美西加州被确诊。
-![img](https://media.gettr.com/group33/getter/2021/12/01/21/48/cdc850a2-0774-f452-afa2-535f94a71825/out.jpg)
 
 ---
 

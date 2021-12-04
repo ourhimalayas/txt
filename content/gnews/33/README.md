@@ -2,29 +2,26 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月3日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1717902/)
+## 以色列威胁说将攻击伊朗如果维也纳核谈判不按其意愿进行
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1717967/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新.png)
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-13.png)
+图片来源：网络截图
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1203text-SC.png)
-校对：Stay文苑
+据零对冲12月3日报道，在伊朗与世界大国在维也纳重新接触，希望恢复2015年的JCPOA核协议之后，以色列继续以军事攻击威胁伊朗。以色列总理纳夫塔利·贝内特周四给美国国务卿布林肯打电话，敦促美国完全放弃谈判。以色列一直反对任何恢复的协议，但实际上敦促美国和伊朗方面甚至不在维也纳进行对话是一个新的要求。
 
-编辑：Stay文苑
+贝内特对布林肯说，伊朗正在以核讹诈作为一种谈判策略，这必须导致立即中止维也纳的谈判，并导致世界大国采取严厉的报复措施。在电话被披露的同一天，以色列国防部长本尼·甘茨告诉以色列报纸《新消息报》，以色列仍然坚持对伊斯兰共和国进行军事打击的“选择”。“我确实认为我们总是必须要为我们可能发现自己孤立无援的时刻准备好选项”。他强调说，对伊朗的攻击是一种选择但不一定是第一个选择，美国作为一个世界领袖应该支持其承诺和责任。
 
-发稿：Stay文苑
+鉴于最近以色列对伊朗基础设施和核设施的一系列破坏性攻击，特拉维夫似乎正在为维也纳会谈后的“B计划”做准备。然而，如果美国最终与伊朗和其他JCPOA签署国达成协议，那么以色列将更难在公开场合采取军事行动。
 
-视频参看：[12.3  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61aac4b4d6388d55041600e0)
+10月，据透露，以色列政府批准了15亿美元的预算，为未来可能对伊朗的攻击做准备，包括用于各种类型的飞机、用于情报收集的无人机和这种攻击所需的独特军备，这种攻击必须针对重重设防的地下场所。《以色列时报》当时做了详细介绍。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/rl.png)
+伊朗的大部分中程和远程导弹武器库仍然在地下掩体中，准备作为大型地下“导弹城”网络的一部分进行部署，因此报告中提到了可以穿透地下的弹药。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+但似乎随着以色列每一次新的威胁，德黑兰的领导人都会更加坚定地看到交易的达成，条件是华盛顿放弃所有川普时代的制裁。还有一种可能是 “部分协议”，以色列也表示不赞成。经过四天的重新谈判，伊朗方面称赞谈判是 “富有成效的”。
+
+新闻来源：[Israel Threatens Attack On Iran If Vienna Nuclear Talks Don’t Go Its Way](https://www.zerohedge.com/geopolitical/israel-again-threatens-attack-iran-if-vienna-nuclear-talks-dont-go-its-way)
 
  
 
