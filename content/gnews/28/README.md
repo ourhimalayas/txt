@@ -2,34 +2,27 @@
 ---
 
 
-## 香港退学学生和离职教师倍增并远走海外
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1719036/)
+## 悉尼一所中学再确诊两例Omicron变种病毒
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1719257/)
 
-撰稿：东京樱花团—在远方
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-1.png)
-台媒12月2日报道，香港一份最新调查报告显示，2020至2021年，学生退学人数较往年增长1.7倍，达到4460人，离职教师也上升至近1000人。其中，有6成退学学生选择离港，离职教师选择移民或提前退休的比例也有所上升。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-165.png)
-该报告显示过去一年中，香港平均每校有32名学生退学，平均每校有7.1位教师离职，移民的离职教师升幅更达7倍之多。教师和学生离职离港代表着香港人才的流失，直接影响未来发展。港共政府不断推出的所谓教育新举措，也让学生精神健康出现严重问题。未离职的老师工作压力倍增，也是促使他们提早离开的重要原因。
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2021/12/124H.jpg)网络图片
+新南威尔士州卫生当局正在努力控制与悉尼一所学校有关的冠状病毒 Omicron 变体的爆发。周五晚些时候，新南威尔士州又发现了两起 Omicron 变体的新病例，均为来自悉尼摄政公园基督教学校（Regents Park Christian School）的九年级学生。
 
+相关机构目前并不清楚这些高中生是如何感染病毒的，他们没有最近的海外旅行史，也没有与最近去过国外的任何人有联系。任何在 11 月 27 日星期六上午 9 点至下午 4 点 30 分参加维拉伍德悉尼室内攀岩馆（Sydney Indoor Climbing Gym in Villawood）的人现在都被判定为密切接触者。
 
+学校疫情爆发表明 Omicron 正在社区中移动，新南威尔士州卫生部长布拉德·哈扎德 (Brad Hazzard) 表示，当局“不知道”学生是如何感染这种变异的。涉事学校年内都将处于关闭状态，所有教职员工和学生都已被确定为密切接触者，需要接受检测和自我隔离。
 
-新闻链接: https://cn.rti.org.tw/news/view/id/2118422
+于此同时，澳大利亚首都领地内也确认了一例Omicron病毒携带者。该患者已全面接种疫苗，于 12 月 1 日检测得到阳性结果。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-89.png)
+首都领地政府在一份声明中说：“目前尚不清楚该病例是否与新南威尔士的Omicron爆发存在关联……此人没有出国旅行史。”
 
-总编: Irene木木
+新南威尔士州在过去 24 小时内记录了 337 例 CCP病毒感染病例，这是数周以来的最高数字。新州总理多米尼克·佩罗特（Dominic Perrottet）承认，这一数字可能在未来会进一步上升。
 
-编辑: Lakeman文仁
+新闻参考链接：
 
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-1.png)
+[9 news](https://www.9news.com.au/national/omicron-coronavirus-update-nsw-sydney-case-regents-park-school-covid19-numbers/6f1bd491-da36-4f75-87bb-a47c446c9864)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

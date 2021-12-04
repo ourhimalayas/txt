@@ -15,137 +15,137 @@
 
 ---
 
-### [DC每日热点1204](/content/gnews/1/README.md)
+### [东南亚一周新闻回顾（2021年11月27日-12月3日）](/content/gnews/1/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
+
+### [12/3/2021 文贵直播：宋平和胡锦涛都向习建议干掉江家、王岐山和孟建柱的势力并要习走极左道路](/content/gnews/2/README.md)
+ ` 秘密翻译组-北美组`
+
+### [大道赞 ——致敬新中国联邦](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [12/3/2021 文贵直播：习近平在2021年8月1日到16日期间见的人和见面时间说明习尊重宋平和胡锦涛，他对江家已完全失去信任](/content/gnews/4/README.md)
+ ` 秘密翻译组-北美组`
+
+### [文·贵天成——郭文贵先生谈“疫苗”（二十八）](/content/gnews/5/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [美联储缩表形成预期，加密货币市值快速蒸发](/content/gnews/6/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [12/3/2021 文贵直播：中共疫苗导致老年人突发多种癌症，中年壮年猝死率陡增，女性得子宫癌、卵巢癌和乳腺癌](/content/gnews/7/README.md)
+ ` 秘密翻译组-北美组`
+
+### [七芒星赞](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [DC每日热点1204](/content/gnews/9/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [《我是音雄》第二季第十五期半决赛第二场｜节目预告](/content/gnews/2/README.md)
+### [维多利亚州疫苗强制令的停止时间](/content/gnews/10/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [为郭文贵讨中共檄](/content/gnews/11/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [银河快讯：日本确诊第2例Omicron感染者；日本暂停国际航班新预订](/content/gnews/12/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [《我是音雄》第二季第十五期半决赛第二场｜节目预告](/content/gnews/13/README.md)
  ` 我是音雄`
 
-### [有声|欧洲某金融强国主动给予喜联储数字银行牌照，与中共决裂](/content/gnews/3/README.md)
+### [有声|欧洲某金融强国主动给予喜联储数字银行牌照，与中共决裂](/content/gnews/14/README.md)
  ` MOSREC`
 
-### [WTO20年祭：中共借俄喉舌自诩从国际体系参与到领导全球治理](/content/gnews/4/README.md)
+### [WTO20年祭：中共借俄喉舌自诩从国际体系参与到领导全球治理](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [现世报？北京冬奥可能会无观众办赛](/content/gnews/5/README.md)
+### [现世报？北京冬奥可能会无观众办赛](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本要闻汇编 12月4日](/content/gnews/6/README.md)
+### [日本要闻汇编 12月4日](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [郭文贵直播摘要和音频 2021.12.03](/content/gnews/7/README.md)
+### [郭文贵直播摘要和音频 2021.12.03](/content/gnews/18/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [从司马南事件看当今中共国民营经济的困境](/content/gnews/8/README.md)
+### [从司马南事件看当今中共国民营经济的困境](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [疫苗，是何物](/content/gnews/9/README.md)
+### [疫苗，是何物](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共病毒变体欧米克隆的流行将延缓美国的经济复苏](/content/gnews/10/README.md)
+### [中共病毒变体欧米克隆的流行将延缓美国的经济复苏](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [矢板明夫分析日本内阁中的「挺台派」和「和中派」](/content/gnews/11/README.md)
+### [矢板明夫分析日本内阁中的「挺台派」和「和中派」](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [人的本质是玩儿](/content/gnews/12/README.md)
+### [人的本质是玩儿](/content/gnews/23/README.md)
  ` 骄子`
 
-### [樱花灭共诗——北戴河风云（新韵）](/content/gnews/13/README.md)
+### [樱花灭共诗——北戴河风云（新韵）](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [西方国家担心中共和俄罗斯掌握尖端技术](/content/gnews/14/README.md)
+### [西方国家担心中共和俄罗斯掌握尖端技术](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [家庭教育激增的好处才刚刚开始显现](/content/gnews/15/README.md)
+### [家庭教育激增的好处才刚刚开始显现](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [上海今年失业人数翻倍暴增，中共官方被自家数据打脸](/content/gnews/16/README.md)
+### [上海今年失业人数翻倍暴增，中共官方被自家数据打脸](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [悉尼一所中学再确诊两例Omicron变种病毒](/content/gnews/17/README.md)
+### [悉尼一所中学再确诊两例Omicron变种病毒](/content/gnews/28/README.md)
  ` 澳喜特战旅Gnews`
 
-### [文贵爆料12.3.2021 中俄谋求同时入侵乌克兰与台湾 又相互防备关系微妙](/content/gnews/18/README.md)
+### [文贵爆料12.3.2021 中俄谋求同时入侵乌克兰与台湾 又相互防备关系微妙](/content/gnews/29/README.md)
  ` 秘密翻译组-原创组`
 
-### [7·24系列——“搞金融”的岸田家族](/content/gnews/19/README.md)
- ` 墨尔本雅典娜农场`
-
-### [12/4/2021国际财经快讯：美国股市、收益率下滑；滴滴计划从纽交所退市](/content/gnews/20/README.md)
- ` 秘密翻译组金融团队`
-
-### [福奇“震惊”福克斯新闻未处分劳拉·洛根](/content/gnews/21/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [中共国务院新闻办发表《中国的民主》白皮书](/content/gnews/22/README.md)
- ` 儒为`
-
-### [美法院驳回中国电信上诉请求 因其威胁到美国国家安全](/content/gnews/23/README.md)
- ` 日本东京方舟农场`
-
-### [法官阻止德州防止社交媒体审查的法律](/content/gnews/24/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [7·24系列——瑞士将批给喜联储数字银行牌照？](/content/gnews/25/README.md)
- ` 墨尔本雅典娜农场`
-
-### [美国启动“奥运囚犯”项目 要求中共勿玷污奥运精神](/content/gnews/26/README.md)
- ` 日本东京方舟农场`
-
-### [澳人寻求疫苗伤害赔偿之际 来看看世界各地的疫苗责任法(4/4)](/content/gnews/27/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [香港退学学生和离职教师倍增并远走海外](/content/gnews/28/README.md)
- ` GTV新闻访谈`
-
-### [孟建柱之流是中共海外扩张的罪魁祸首](/content/gnews/29/README.md)
- ` GTV新闻访谈`
-
-### [英国议会呼吁政府全面外交抵制北京冬奥会](/content/gnews/30/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [事实证明爆料革命情报的准确性独一无二](/content/gnews/31/README.md)
- ` GTV新闻访谈`
-
-### [所有国家和运动员都应该抵制北京冬奥会](/content/gnews/32/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [班农专访5: 世界首个控诉疫苗杀人案在印度提交](/content/gnews/33/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [12月3日大直播概要](/content/gnews/34/README.md)
- ` 墨尔本雅典娜农场`
-
-### [班农专访6: 先锋基金与脸书、疫苗公司联合制造瘟疫](/content/gnews/35/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [南非医生证实新变种病毒温和 谴责过激禁令](/content/gnews/36/README.md)
- ` GTV新闻访谈`
-
-### [洪都拉斯副总统候选人表示将不与中共建交](/content/gnews/37/README.md)
- ` GTV新闻访谈`
-
-### [美国SEC要求在美上市中共公司披露信息](/content/gnews/38/README.md)
- ` GTV新闻访谈`
-
-### [班农专访4: 世卫组织避开“Xi习”命名新病毒](/content/gnews/39/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [比特币价格一小时暴跌近1万美元](/content/gnews/40/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [立陶宛货物被中共拒卸货 政府联合欧盟反击](/content/gnews/41/README.md)
+### [秘翻在线：当马航坠毁真相公布天下之时，就是审判共产党之日！](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [谴责中共侵犯人权，20国拒签奥运休战协议](/content/gnews/42/README.md)
+### [7·24系列——“搞金融”的岸田家族](/content/gnews/31/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [12/4/2021国际财经快讯：美国股市、收益率下滑；滴滴计划从纽交所退市](/content/gnews/32/README.md)
+ ` 秘密翻译组金融团队`
+
+### [福奇“震惊”福克斯新闻未处分劳拉·洛根](/content/gnews/33/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [香港退学学生和离职教师倍增并远走海外](/content/gnews/34/README.md)
+ ` GTV新闻访谈`
+
+### [英国议会呼吁政府全面外交抵制北京冬奥会](/content/gnews/35/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [事实证明爆料革命情报的准确性独一无二](/content/gnews/36/README.md)
+ ` GTV新闻访谈`
+
+### [所有国家和运动员都应该抵制北京冬奥会](/content/gnews/37/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [12月3日大直播概要](/content/gnews/38/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [南非医生证实新变种病毒温和 谴责过激禁令](/content/gnews/39/README.md)
+ ` GTV新闻访谈`
+
+### [洪都拉斯副总统候选人表示将不与中共建交](/content/gnews/40/README.md)
+ ` GTV新闻访谈`
+
+### [美国SEC要求在美上市中共公司披露信息](/content/gnews/41/README.md)
+ ` GTV新闻访谈`
+
+### [比特币价格一小时暴跌近1万美元](/content/gnews/42/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [巨大金融危机迎来港币消失传统货币受挑战数字货币诞生](/content/gnews/43/README.md)
- ` NewFOC`
+### [立陶宛货物被中共拒卸货 政府联合欧盟反击](/content/gnews/43/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [银河快讯:日本年末相机销售强劲；自民党考虑儿童津贴制度形式](/content/gnews/44/README.md)
- ` 日本银河系农场-阿尔法星球`
+### [谴责中共侵犯人权，20国拒签奥运休战协议](/content/gnews/44/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [秘翻在线：美消费者组织致函10州州长，养老金投资贝莱德面临风险](/content/gnews/45/README.md)
  ` 秘密翻譯組G-Translators`

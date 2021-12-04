@@ -2,29 +2,36 @@
 ---
 
 
-## 立陶宛货物被中共拒卸货 政府联合欧盟反击
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1718773/)
+## 美国SEC要求在美上市中共公司披露信息
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1718863/)
 
-**By:秘翻新聞**
+作者：纽约香草山农场 007
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月2日，美国证券交易委员会SEC出台的新规定中要求，所有在美国证券交易所上市的中共国公司必须披露其是否由政府实体拥有或控制，并提供相应的审计检查证据。同时，新规还要求所有通过可变利益实体在美上市的中共国公司加强对自身相关信息的披露。
 
-***2021-12-4***
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-04-at-10.00.24-PM.png)
 
-【**[秘翻新聞](https://gtv.org/broadcast/watch/61ab2d04bbd75f62e52ea69e)**】立陶宛货物被中共拒卸货 政府联合欧盟反击
+有关报道显示，中共向来拒绝海外监管机构对其国内会计师事务所的检查。由此，SEC此次新规将影响至少两百多家在美上市的中共国公司——这些公司或将失去在美上市的资格，从而降低中共国公司对美国投资者的吸引力。
 
-据《希望之声》12月4日消息，立陶宛当地新闻网站报导，本周，一家对中共国出口木材的立陶宛公司，在上海港口被拒绝卸货，当地海关系统更表示，自12月1日起就从系统中取消了立陶宛这个国家。据悉，相关情形在其他港口也有出现，一些货物被发现只要来自立陶宛，或者与立陶宛有关，都不能进入中共港口。不过，立陶宛中国贸易协会发现，尽管农林产品遭到抵制，中共政府仍然从立陶宛进口生物科技等技术门槛比较高的产品，相关的贸易活动几乎不受任何影响。
+据了解，SEC本次新规的制定依据美国国会于2020年12月通过的一项法律，该法律旨在确保在美国上市的外国公司，特别是中共国公司，遵守美国的相关规定。
 
-12月3日，立陶宛外交部指出，当局正在就立陶宛货物在中共国港口受阻的问题，与立陶宛公司联系，并于欧盟委员会探讨对策。消息传出的同日，立陶宛政府正式宣布外交抵制明年2月份的北京冬奥会，并指出，包括总统、外长和部长级别以上官员都不会参加北京冬奥。
+参考链接：[焦点：美国证券交易委员会要求在美上市中国企业披露所有权结构和审计细节](https://cn.reuters.com/article/us-sec-china-listed-firms-audit-1203-idCNKBS2II031)
 
-美国南卡罗莱纳大学艾肯商学院教授谢田表示，中共很害怕台湾和立陶宛建立这种外交关系以后引发更多国家承认和升级对台关系。经济贸易角度上讲，中共更依赖立陶宛，特别是电子科技等许多项目上，立陶宛有非常巨大的技术上的优势。现在立陶宛带头抵制北京冬奥会，是一个非常巨大的突破。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
 
-***新闻来源***:[https://ozvoice.org/other-news/%E7%AB%8B%E9%99%B6%E5%AE%9B%E8%B4%A7%E7%89%A9%E8%A2%AB%E4%B8%AD%E5%85%B1%E6%8B%92%E5%8D%B8%E8%B4%A7-%E6%94%BF%E5%BA%9C%E8%81%94%E5%90%88%E6%AC%A7%E7%9B%9F%E5%8F%8D%E5%87%BB/](https://ozvoice.org/other-news/%E7%AB%8B%E9%99%B6%E5%AE%9B%E8%B4%A7%E7%89%A9%E8%A2%AB%E4%B8%AD%E5%85%B1%E6%8B%92%E5%8D%B8%E8%B4%A7-%E6%94%BF%E5%BA%9C%E8%81%94%E5%90%88%E6%AC%A7%E7%9B%9F%E5%8F%8D%E5%87%BB/)
+总编：文徬 
+编辑：Kathy文艺
+校正/发稿：我不在这里
 
-校对/发布:星星
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-* * *
 
-**欢迎广大战友加入 【秘密翻译组-即时新闻播报组】**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/IMAGE-2021-11-29-195110.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

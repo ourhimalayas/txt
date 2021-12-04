@@ -2,28 +2,28 @@
 ---
 
 
-## 南非医生证实新变种病毒温和 谴责过激禁令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1718865/)
+## 事实证明爆料革命情报的准确性独一无二
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1718904/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间12月3日，南非医生安吉莉克·科泽博士在专栏文章中揭示了目前南非奥密克戎变种病毒的真实情况，并对一些国家政府采取的极端封锁行动进行了严厉的批评。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-04-at-9.25.48-PM-1.png)
-据了解，科泽博士在首次发现新冠病毒奥密克戎变种后，第一时间公布了这项发现。但科泽博士表示，作为南非医学协会主席和33年的全科医生，出于职业责任向世界公开了新病毒，但却震惊于多国政府对该变种的过激反应。
+撰稿：纽约香草山农场福音部-恩永存
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-1.png)
+12月1日文贵大直播中，就澳门赌王洗米华被捕事件，郭先生播放了几个自已过去的爆料视频，以验证爆料革命的情报，在网络信息中的准确性独一无二。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-164.png)
+2004年，郭先生手中就已掌握了袖扣视频取证技术。2017年9月10日，郭先生爆料，孟建柱和孙力军控制澳门，以赌场洗钱。2018年6月10日，郭先生爆料，孟建柱控制菲律宾，泰国，缅甸，老挝，马来西亚，制造眉公河惨案，杀人以掠夺珠宝翡翠，财富之多如天文数字。8月23日，郭先生再次爆料，孟建柱在马来西亚建的绿地森林城，是盗国贼私生子女的利益集团所在，是中共间谍城。2020年5月5日，郭先生在爆料中揭露，海航用飞机往外运财物，孟建柱用船往东南亚运宝物。孟建柱控制黑帮毒帮及公安系统，盗走中国无数财富，他交待的只是其中极少部分。
 
-数据显示，由于奥密克戎变种病毒的出现，目前，全球至少有44个国家和地区实施了旅游禁令。与此同时，截止12月1日，共有23个国家向WHO报告了奥密克戎感染病例，但多为无症状或症状轻微案例。
+郭先生披露，洗米华的第一任老板是安全部马健副部长，之后，跟从张越，孙力军，孟建柱等。孟建柱借洗米华等人之手控制毒资毒品，每年达5000亿美元，其隐形王国势力横垮西亚。梁安琪是孟，曾，王的人。火币是孟建柱的。赵长鹏背后是王岐山。江志成掌控的比特币起码有5000亿。江泽民曾对前来看他的同伙说，好戏还没开始。
 
-科泽博士强调，各项研究和证据都表明，奥密克戎变种虽然是一种快速传播的病毒，但感染者的症状大多都很轻微。但是，多国政府随即对来自非洲地区的航班施行了严格的旅行限制，并延长本国民众的各项封锁限制，这是轻率且不公平的做法。
+这些人都以习近平为傻子，并将不久于人世。而习与他们都是从精神，心理，到人格极不正常的变态疯魔。
 
-另外，据博茨瓦纳的医疗人员发现，奥密克戎更多地在接种了新冠疫苗的民众中传播。
+新闻链接: [2021年12月1日 文贵大直播](https://gettr.com/post/pieh424c97)
 
-参考链接：[Doctors Share The Truth About OMICRON Hysteria!](https://thetruedefender.com/doctors-share-the-truth-about-omicron-hysteria/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-89.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
+总编: 文特
 
-总编：文徬 
-编辑：Irene木木
-校正/发稿：我不在这里
+编辑: Kathy文艺
+
+校正/发稿：浪迹天涯
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -31,9 +31,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

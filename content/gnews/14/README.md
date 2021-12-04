@@ -2,29 +2,35 @@
 ---
 
 
-## 西方国家担心中共和俄罗斯掌握尖端技术
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1719378/)
+## 有声|欧洲某金融强国主动给予喜联储数字银行牌照，与中共决裂
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1719562/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-9.png)
-（图片源自本文链接）
+配音：香草山美食部 – 玫瑰园
 
-11月30日，摩尔在作为英国对外情报机构–秘密情报局（MI6）局长的首次演讲中明确表示，适应受中共国崛起影响的国际形势是MI6的首要任务。
 
-去年成为军情六处总干事的前外交官穆尔先生说：中共国和俄罗斯等西方敌对国家正试图通过专注于掌握人工智能（AI）等尖端技术在国际社会获得优势。而未来十年的技术进步可能会超过过去100年的所有技术进步。西方情报机构担心，俄罗斯和中共国的情报部门正计划在各个领域，有时会比欧美还要迅速的利用这些先进的技术。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+12月1日，郭文贵先生在大直播中透露，三周前收到某欧洲国家元首的电话表示，“我们这个国家，决定给喜联储一个数字银行牌照”。郭先生指出，一个数字银行牌照意味着巨大的利益，甚至比喜联储还值钱。目前一切都在按部就班地走程序中，还需要四周时间完成，但这位国家元首已用自己的私人手机发来签完字的文件。
 
-西方情报机构还担心，在几十年内，中共国将在每一项主要技术上占据优势，包括人工智能、合成生物学和遗传学。
+这将是世界上第一个主权国家批准的数字银行牌照，这个牌照在欧洲，这个国家是在世界金融领域排名前三的国家。对新中国联邦来说，这是拥有国家银行、国家储备系统和法币链接的最稳定的桥梁，而且排除了中转行。此事意义深远，同时也意味着这个国家将和中共决裂。
 
-笔者愚钝，但也懂得技术用在善良的人手上，会带给人们更多方便。反之，则是灾难！
+文字版原文：[欧洲某金融强国主动给予喜联储数字银行牌照，与中共决裂](https://gnews.org/zh-hans/1712857/)
 
-信息来源：
+音频处理：喜山必胜Maverick
+发稿：Tom Li
+[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
+**更多资讯，更多关注**
 
-[英MI6長官が初の演説、中国対応が最優先事項　先端技術での覇権争い警告](https://news.yahoo.co.jp/articles/f03209e366021dc80bc00d2ef11d87cddf0397e6)（
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.png)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
