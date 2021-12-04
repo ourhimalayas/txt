@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/4/2021 3:24 PM (UTC)`
+
+在鲁迪·朱利安尼的《鲁迪的常识》节目中，泽连科医生描述了他是如何在2020年初开始用阿奇霉素、羟氯喹和锌有效治疗感染中共病毒的病人的<br/><br/>In Rudy Giuliani's "Rudy's Common Sense" program, Dr. Zelenko describes how he began treating CCP virus Infected patients effectively with  Azithromycin, Hydroxychloroquine, and Zinc in  early 2020
+![img](https://media.gettr.com/group15/getter/2021/12/04/15/f2602f8f-b4e9-ef96-1a7c-8d419c7b8113/out.jpg)
+
+---
+
 `@miles 12/4/2021 7:49 AM (UTC)`
 
 12/3/2021 Miles Guo: During the Beidaihe meeting, Hu Jintao encouraged Xi Jinping to take action against Fu Zhenghua, and Wang Qishan wanted to get out of Xi's control by resigning as Vice President of the Communist China. However, Xi ignored Wang and asked him to hand over all the cases being handled by the Central Commission for Discipline Inspection, so Wang almost collapsed<br/><br/>12/3/2021 文贵直播：在北戴河会议上，胡锦涛怂恿习近平对傅政华动手，王岐山欲辞去国家副主席一职以逃脱习的掌控，但习并未理会，反倒让王交出中纪委在处理的所有案件，王几乎崩溃<br/>
@@ -147,13 +154,6 @@
 
 12/1/2021 Miles Guo: Macao is one of the most important battle grounds between the CCP and the world; Alvin Chau’s first boss was Ma Jian, and he later joined Sun Lijun; After buying off Meng Jianzhu’s nephew, Alvin Chau became Meng’s subordinate<br/><br/>12/1/2021 文贵直播：澳门是中共与世界较量的最重要的阵地之一；洗米华的第一个老板是马建，他后来转投孙力军；在搞定孟建柱的亲外甥后，洗米华成了孟的人<br/>
 ![img](https://media.gettr.com/group20/getter/2021/12/02/00/04/ee39b5de-ec0c-b0d4-00c8-83e5d75355ac/out.jpg)
-
----
-
-`@miles 12/1/2021 10:16 PM (UTC)`
-
-MI6 chief Richard Moore has warned of China's "debt traps and data traps" in his first live broadcast interview. He warned China has the capability to "harvest data from around the world" and uses money to "get people on the hook", and pointed out these traps threatened to erode sovereignty and have prompted defensive measures.<br/><br/>军情六处负责人理查德·摩尔在他的第一次直播采访中就警告中共的“债务陷阱和数据陷阱”。 他警告说中共有能力“从世界各地收集数据”，并用钱“让人们陷入困境”。他还指出，这些陷阱有可能侵蚀国家的主权，并促使采取防御措施。
-![img](https://media.gettr.com/group18/origin/2021/12/01/22/16/e1e495b8-dce7-e164-059a-13857df66c1d/out.jpg)
 
 ---
 
