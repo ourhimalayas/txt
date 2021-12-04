@@ -2,28 +2,24 @@
 ---
 
 
-## 美国至少十个州出现了中共病毒变体奥米克戎
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1718464/)
+## 预计俄罗斯将于1月下旬对乌克兰发动大规模袭击
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1718529/)
 
 #### 撰稿：彩虹
 
 #### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-3-3.jpg)图片来源：美国新闻
-12月3日，根据《国会山报》和《新闻极限》的报道，截至周五，美国至少有十个州发现了中共病毒变体奥米克戎（Omicron）。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-5.jpg)图片来源：VOI
+近日，郭文贵先生通过GTV和GETTR（盖特）两个平台的直播，向全世界揭示中共与俄罗斯的共谋情报，亦即同时发起两场战争（俄罗斯侵占乌克兰与中共国侵占台湾），以让美国无法同时打两场战争。12月3日，《新闻极限》发布文章，报道乌克兰国防部长估计，俄罗斯在其边境附近集结了超过9.4万人的军队，并将在1月下旬可能出现“（军队）大规模行动升级”的情况。
 
-目前，报告奥米克戎病例的州包括：马里兰州、犹他州、密苏里州、宾夕法尼亚州、纽约州、科罗拉多州、明尼苏达州、加利福尼亚州、夏威夷和内布拉斯加州。而卫生官员认为该变体已经到达了其他州。
+周五，乌克兰国防部长雷兹尼科夫（Oleksii Reznikov）告诉议会，乌克兰附近和俄罗斯附属的克里米亚的俄罗斯军队数量目前估计为94300人。他说：“我们的情报部门分析了所有情况，包括最坏的情况。俄罗斯方面存在（军队）大规模行动升级的可能性。而（俄罗斯）为行动升级做好准备最有可能的时间是1月底。”
 
-根据报道，美国第一个中共病毒变体奥米克戎病例是周三在加利福尼亚发现的，而纽约州州长凯西·霍赫尔（Kathy Hochul）周四宣布纽约州存在5个病例，是迄今为止该病例最多的州。
+另据《华盛顿邮报》报道，预期至明年年初（1月份），俄罗斯军队在乌克兰边境将会增加至17万5千人。
 
-根据《纽约时报》报道，马里兰州卫生官员周五在巴尔的摩地区确认了3个病例，同一天内，内布拉斯加州发现了6个奥米克戎病例，密苏里州发现1例。
-
-据《丹佛邮报》报道，一名最近从非洲南部返回科罗拉多州的两针疫苗接种者是该州周四的第一个确诊病例。
+雷兹尼科夫表示，乌克兰不会采取任何行动来挑起紧张局势，但如果俄罗斯发动袭击，乌克兰准备反击。
 
 **新闻来源**
 
-[Omicron Variant Found in at Least 10 States — For Now](https://www.newsmax.com/newsfront/omicron-covid-19-delta/2021/12/03/id/1047300/)
-
-[Omicron coronavirus variant found in at least 10 states](https://thehill.com/policy/healthcare/584320-omicron-variant-found-in-at-least-10-new-states)
+[Ukraine Says Russia Amassed Over 94,000 Troops at Border](https://www.newsmax.com/newsfront/russia-ukraine/2021/12/03/id/1047188/)
 
  
 

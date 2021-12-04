@@ -2,10 +2,10 @@
 ---
 
 
-## 由于人员短缺，联邦法官叫停10个州医护人员疫苗强制令
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1718198/)
+## 超过一半美国人认为中共国是美国的头号威胁
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1718289/)
 
-11/30/2021 莎拉·克莱恩医生：由于人员短缺，联邦法官叫停了10个州的医护人员疫苗强制令；她还指出疫苗既不能防止传播也不能防止感染。
+12/01/2021 福克斯：Beacon Research的一项最新调查显示，超过一半的美国人认为中共国是美国的头号威胁。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

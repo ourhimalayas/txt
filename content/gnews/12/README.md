@@ -2,10 +2,10 @@
 ---
 
 
-## 超过一半美国人认为中共国是美国的头号威胁
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1718289/)
+## 兰德·保罗：福奇更像一个政治家，而不是其他角色
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1718444/)
 
-12/01/2021 福克斯：Beacon Research的一项最新调查显示，超过一半的美国人认为中共国是美国的头号威胁。
+12/01/2021 参议员兰德·保罗：福奇更像一个政治家，而不是其他角色。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

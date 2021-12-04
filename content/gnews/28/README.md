@@ -2,31 +2,36 @@
 ---
 
 
-## 斯洛伐克43人团访台 参加首届双边跨部会会议
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1718034/)
+## 2021年12月4日新闻集
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1718182/)
 
-![斯洛伐克43人團5日訪台 參加首屆雙邊跨部會會議](https://static.rti.org.tw/assets/thumbnails/2021/11/30/5fdefa526ee5c346f0d8cf119689c8c7.jpg)*外交部3日表示，斯洛伐克43人訪問團定5日至10日訪台，期間將與台灣相關部會共同召開「第一屆台斯跨部會經濟合作諮商會議」。 (資料照/央廣記者王照坤 攝)*
-据台湾中央广播电台12月3日报道，斯洛伐克经济部次长率领43人团定与12月5日至10日搭乘专机访问台湾，成员包括斯洛伐克经济、外交及国家科学院等共18位跨部会高阶官员，还包括由斯洛伐克政府强力推荐，兼具产能及研发实力的25家优秀厂商代表。期间将与台湾相关部会共同召开“第一届台斯跨部会经济合作谘商会议”。此为斯洛伐克自2003年在台湾设立办事处以来，首度派遣规模及层级都具代表性的重要官员访台。
-
-近年台湾和斯洛伐克双边关系持续深化，今年斯洛伐克国会外交委员会首度通过决议，支持台湾参与世界卫生大会(WHA)。9月斯洛伐克政府捐赠16万剂疫苗协助台湾抗疫，扩大国际间良善循环。
-
-民主国家台湾以其文明和科技越来越受到国际重视，并参与到国际事务中。而一直打压台湾的中共国因为倒行逆施惹得天怒人怨，几乎到了人人喊打的地步。多行不义必自毙，中共的路已经走绝了，下一步只能走向地狱。
-
-新闻参考链接：[https://cn.rti.org.tw/news/view/id/2118530](https://cn.rti.org.tw/news/view/id/2118530)
-
-编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+撰稿人：文远Bruce
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新闻集.png)
+转自Luke：1 推特创始人改名其支付公司Square为Block，押注区块链
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新闻集2.png)
+2 哈萨克斯坦提高挖矿电价，比特大陆遗弃其在哈国矿机
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新闻集3.png)
+3 欧米克荣病毒已传播至美国八州
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新闻集4.png)
+4 南非研究人员发现证据欧米克荣比其他变异更容易再次感染
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新闻5.png)
+5 ai训练速度已经超过摩尔定律
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新闻6.png)
+6 电动汽车电池价格正以惊人速度下跌
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新闻7.png)
+7 澳大利亚一医生将一病人好腿切除被罚款
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新闻8.png)
+8 意大利一男子意图用硅胶胳膊接种疫苗获取接种证明
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新闻9.png)
+9 中共大外宣承认疫苗刺突蛋白有毒
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新闻10.png)
+10 澳大利亚新洲疫苗接种概况：12-15岁两针接种率高达77%。16岁以上92.7%
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新闻11.png)
+编辑：MG4
+欢迎加入 [https://discord.gg/himalaya-australia](https://discord.gg/himalaya-australia)
+[AUJenny – GNEWS](https://gnews.org/zh-hans/author/aujenny/)
+[澳喜农场 – GNEWS](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

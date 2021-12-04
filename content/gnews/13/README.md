@@ -2,10 +2,10 @@
 ---
 
 
-## 奥密克戎变体刚出现，中共官员就已准备好相应疫苗？
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1718287/)
+## 参议员兰德·保罗批评福奇应对奥米克戎变种无能
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1718442/)
 
-11/30/2021 奥密克戎变体刚刚出现，怎么中共官员就已经准备好了相应的疫苗？
+12/01/2021 参议员兰德·保罗批评福奇应对疫情无能，而且在缺乏对新变种了解的情况下贸然采取措施，这些措施侵犯人权和影响经济。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

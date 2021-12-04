@@ -2,10 +2,10 @@
 ---
 
 
-## 中共国科学家和医生非法进入美国被捕，他们是间谍吗？
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1718200/)
+## 周焯华（绰号洗米华）据称因涉嫌洗钱被捕
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1718291/)
 
-05/02/2021 福克斯新闻：中共国的科学家、医生和工程师因非法进入美国而被捕。他们是中共的间谍吗？
+11/30/2021 路透社：周焯华（绰号洗米华）据称因涉嫌洗钱被捕，导致澳门主要赌场股价下跌。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

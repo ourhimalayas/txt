@@ -2,10 +2,44 @@
 ---
 
 
-## 澳大利亚煤炭市场是时候脱离中共国
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1718285/)
+## Hcoin To the Moon 上线第1天位列多国iTunes音乐榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1718337/)
 
-11/30/2021 澳洲评论员麦克斯温表示澳大利亚煤炭市场是时候脱离中共国了，她还说：“中共两面三刀，才不会在乎我们怎么想。”基载电力的短缺迫使中共上月不得不从澳洲进口了近3百万吨煤炭。
+12/03/2021 郭文贵先生歌曲Hcoin To the Moon上线第1天多国iTunes打榜第1名
+
+* * *
+
+[【PDF 下载】Friday-3-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-3-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-3-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+* * *
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-3-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-3-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_2.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-3-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_3.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-3-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_4.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-3-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-3-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_6.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-3-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-3-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_8.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-3-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-3-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-3-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_11.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-3-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_12.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-3-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_13.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-3-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_14.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-3-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_15.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-3-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_16.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-3-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_17.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-3-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_18.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-3-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_19.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-3-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_20.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-3-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_21.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-3-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_22.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-3-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_23.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-3-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_24.jpg)
+
+
+[【PDF 下载】Friday-3-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-3-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-3-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

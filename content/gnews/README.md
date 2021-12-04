@@ -15,118 +15,118 @@
 
 ---
 
-### [福奇新书](/content/gnews/1/README.md)
- ` 首尔天池农场`
+### [银河快讯:日本对疫苗“严重不良反应”提高警惕；将推出面部识别疫苗检查系统](/content/gnews/1/README.md)
+ ` 日本银河系农场-阿尔法星球`
 
-### [用短视频短信息传播青蒿素和疫苗真相是救人的最好办法](/content/gnews/2/README.md)
- ` NewFOC`
-
-### [文贵爆料12.3.2021 郭先生宣布大利喜联储和战友的四件大事](/content/gnews/3/README.md)
- ` 秘密翻译组-原创组`
-
-### [自传体小说连载之二十六：《我的忏悔录》](/content/gnews/4/README.md)
+### [秘翻在线：美消费者组织致函10州州长，养老金投资贝莱德面临风险](/content/gnews/2/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国至少十个州出现了中共病毒变体奥米克戎](/content/gnews/5/README.md)
+### [新冠的克星，民众的救星](/content/gnews/3/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [一名英国妇女在注射阿斯利康新冠病毒后半瘫痪，正在寻求伤害赔偿](/content/gnews/4/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [预计俄罗斯将于1月下旬对乌克兰发动大规模袭击](/content/gnews/5/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [兰德·保罗：福奇更像一个政治家，而不是其他角色](/content/gnews/6/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [参议员兰德·保罗批评福奇应对奥米克戎变种无能](/content/gnews/7/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [Hcoin To the Moon 上线第1天位列多国iTunes音乐榜首](/content/gnews/8/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [一个没有疆土之国，新中国联邦](/content/gnews/9/README.md)
- ` 澳喜农场`
-
-### [每日快报：布林肯称中共国入侵台湾的任何举动都会产生可怕的后果](/content/gnews/10/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [周焯华（绰号洗米华）据称因涉嫌洗钱被捕](/content/gnews/11/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [超过一半美国人认为中共国是美国的头号威胁](/content/gnews/12/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [奥密克戎变体刚出现，中共官员就已准备好相应疫苗？](/content/gnews/13/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [澳大利亚煤炭市场是时候脱离中共国](/content/gnews/14/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [DC大中华时事：国家反垄断局挂牌两周发布46条处罚书](/content/gnews/15/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [币圈新闻动态：列支敦斯登已经为喜联储批出第一张金融牌照](/content/gnews/16/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [中共国科学家和医生非法进入美国被捕，他们是间谍吗？](/content/gnews/17/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [由于人员短缺，联邦法官叫停10个州医护人员疫苗强制令](/content/gnews/18/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [习近平通过提供10亿剂疫苗控制非洲经济](/content/gnews/19/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [河南省构建世上最复杂的监控网络追踪记者和国际学生](/content/gnews/20/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [美国最近就有史以来最大规模的网络攻击而抨击中共](/content/gnews/21/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [2021年12月4日新闻集](/content/gnews/22/README.md)
- ` 澳喜农场`
-
-### [视频| 喜币在美国监管的利与弊以及机会](/content/gnews/23/README.md)
- ` MOSREC`
-
-### [视频| 美国的核心利益一定是灭掉共产党](/content/gnews/24/README.md)
- ` MOSREC`
-
-### [内华达州将对疫苗未接种者征收附加费](/content/gnews/25/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [德国对未接种疫苗的人施加了重大限制](/content/gnews/26/README.md)
- ` 澳喜农场`
-
-### [新加坡政府立法管控民众言论，最高十年刑期](/content/gnews/27/README.md)
- ` 澳喜农场`
-
-### [斯洛伐克43人团访台 参加首届双边跨部会会议](/content/gnews/28/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [在加拿大完全接种疫苗的母亲中，死胎的数量激增](/content/gnews/29/README.md)
+### [以色列不再使用手机跟踪感染 Omicron变种的人](/content/gnews/6/README.md)
  ` 墨尔本雅典娜农场`
 
-### [立陶宛外交抵制北京冬奥 中共报复删除海关国名](/content/gnews/30/README.md)
+### [福奇新书](/content/gnews/7/README.md)
+ ` 首尔天池农场`
+
+### [用短视频短信息传播青蒿素和疫苗真相是救人的最好办法](/content/gnews/8/README.md)
+ ` NewFOC`
+
+### [文贵爆料12.3.2021 郭先生宣布大利喜联储和战友的四件大事](/content/gnews/9/README.md)
+ ` 秘密翻译组-原创组`
+
+### [自传体小说连载之二十六：《我的忏悔录》](/content/gnews/10/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [美国至少十个州出现了中共病毒变体奥米克戎](/content/gnews/11/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [兰德·保罗：福奇更像一个政治家，而不是其他角色](/content/gnews/12/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [参议员兰德·保罗批评福奇应对奥米克戎变种无能](/content/gnews/13/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [Hcoin To the Moon 上线第1天位列多国iTunes音乐榜首](/content/gnews/14/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [一个没有疆土之国，新中国联邦](/content/gnews/15/README.md)
+ ` 澳喜农场`
+
+### [每日快报：布林肯称中共国入侵台湾的任何举动都会产生可怕的后果](/content/gnews/16/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [周焯华（绰号洗米华）据称因涉嫌洗钱被捕](/content/gnews/17/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [超过一半美国人认为中共国是美国的头号威胁](/content/gnews/18/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [奥密克戎变体刚出现，中共官员就已准备好相应疫苗？](/content/gnews/19/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [澳大利亚煤炭市场是时候脱离中共国](/content/gnews/20/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [DC大中华时事：国家反垄断局挂牌两周发布46条处罚书](/content/gnews/21/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [币圈新闻动态：列支敦斯登已经为喜联储批出第一张金融牌照](/content/gnews/22/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [中共国科学家和医生非法进入美国被捕，他们是间谍吗？](/content/gnews/23/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [由于人员短缺，联邦法官叫停10个州医护人员疫苗强制令](/content/gnews/24/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [习近平通过提供10亿剂疫苗控制非洲经济](/content/gnews/25/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [河南省构建世上最复杂的监控网络追踪记者和国际学生](/content/gnews/26/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [美国最近就有史以来最大规模的网络攻击而抨击中共](/content/gnews/27/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [2021年12月4日新闻集](/content/gnews/28/README.md)
+ ` 澳喜农场`
+
+### [内华达州将对疫苗未接种者征收附加费](/content/gnews/29/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [新加坡政府立法管控民众言论，最高十年刑期](/content/gnews/30/README.md)
+ ` 澳喜农场`
+
+### [斯洛伐克43人团访台 参加首届双边跨部会会议](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [蓬佩奥撰文称美国必须完全抵制北京冬奥会](/content/gnews/31/README.md)
+### [在加拿大完全接种疫苗的母亲中，死胎的数量激增](/content/gnews/32/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [立陶宛外交抵制北京冬奥 中共报复删除海关国名](/content/gnews/33/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [蓬佩奥撰文称美国必须完全抵制北京冬奥会](/content/gnews/34/README.md)
  ` HimalayaRussia`
 
-### [以色列威胁说将攻击伊朗如果维也纳核谈判不按其意愿进行](/content/gnews/32/README.md)
+### [以色列威胁说将攻击伊朗如果维也纳核谈判不按其意愿进行](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [GTV新闻访谈简报|2021年12月3日晚](/content/gnews/33/README.md)
+### [GTV新闻访谈简报|2021年12月3日晚](/content/gnews/36/README.md)
  ` 纽约香草山MOS01`
 
-### [汤姆·科顿:美国正经历创纪录的通货膨胀和供应链短缺](/content/gnews/34/README.md)
+### [汤姆·科顿:美国正经历创纪录的通货膨胀和供应链短缺](/content/gnews/37/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [托尼·福奇在接受采访时称，批评我就是批评科学](/content/gnews/35/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [奥地利政府立法-加重对未接种中共病毒疫苗的居民的惩罚](/content/gnews/36/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [恒大警告说该集团缺乏资金，无法继续还债](/content/gnews/37/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [日本山形县发生群聚感染，13名幼儿感染中共病毒](/content/gnews/38/README.md)
+### [恒大警告说该集团缺乏资金，无法继续还债](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [班农的传票将1.6委员会吓得半死](/content/gnews/39/README.md)
@@ -156,11 +156,11 @@
 ### [2022冬奥会能开吗？西方精英们的抵制究竟是为什么？](/content/gnews/47/README.md)
  ` mary202064`
 
-### [台湾前线｜前美国官员：为了美国 应保卫台湾 联盟是关键](/content/gnews/48/README.md)
- ` G&#124;News TAIWAN`
+### [《新满江红》](/content/gnews/48/README.md)
+ ` 首尔天池农场`
 
-### [迫于中共政治压力，滴滴决定从美国退市](/content/gnews/49/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [台湾前线｜前美国官员：为了美国 应保卫台湾 联盟是关键](/content/gnews/49/README.md)
+ ` G&#124;News TAIWAN`
 
 ### [美国国会启动奥运囚犯项目，谴责中共侵犯人权](/content/gnews/50/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
