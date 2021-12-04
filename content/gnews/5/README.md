@@ -2,38 +2,27 @@
 ---
 
 
-## 美法院驳回中国电信上诉请求 因其威胁到美国国家安全
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1719131/)
+## 悉尼一所中学再确诊两例Omicron变种病毒
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1719257/)
 
-#### 撰稿：日本东京方舟农场  海星
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2021/12/124H.jpg)网络图片
+新南威尔士州卫生当局正在努力控制与悉尼一所学校有关的冠状病毒 Omicron 变体的爆发。周五晚些时候，新南威尔士州又发现了两起 Omicron 变体的新病例，均为来自悉尼摄政公园基督教学校（Regents Park Christian School）的九年级学生。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2E24589A-1A11-4056-B5EA-9458236DFD2C.jpeg)（图片来源：美联社）
+相关机构目前并不清楚这些高中生是如何感染病毒的，他们没有最近的海外旅行史，也没有与最近去过国外的任何人有联系。任何在 11 月 27 日星期六上午 9 点至下午 4 点 30 分参加维拉伍德悉尼室内攀岩馆（Sydney Indoor Climbing Gym in Villawood）的人现在都被判定为密切接触者。
 
-12月2日，美国联邦上诉法院驳回了中国电信欲阻止美国联邦通讯委员会（FCC）撤销其在美运营许可的上诉请求。
+学校疫情爆发表明 Omicron 正在社区中移动，新南威尔士州卫生部长布拉德·哈扎德 (Brad Hazzard) 表示，当局“不知道”学生是如何感染这种变异的。涉事学校年内都将处于关闭状态，所有教职员工和学生都已被确定为密切接触者，需要接受检测和自我隔离。
 
-据《路透社》报道，美国哥伦比亚特区联邦上诉法院的三名法官驳回了中国电信对于FCC撤销其运营许可的申诉。
+于此同时，澳大利亚首都领地内也确认了一例Omicron病毒携带者。该患者已全面接种疫苗，于 12 月 1 日检测得到阳性结果。
 
-FCC于10月26日下令撤销中国电信在美国提供服务的许可，终止其在美的所有电信业务。该撤销令将于2022年1月初生效。
+首都领地政府在一份声明中说：“目前尚不清楚该病例是否与新南威尔士的Omicron爆发存在关联……此人没有出国旅行史。”
 
-FCC对此表示，中国电信并未就关于存在国家安全威胁的指控提交相关证据，而是重点对该委员会的行政程序提出异议。因此，该公司的上诉完全没有胜诉的可能性。
+新南威尔士州在过去 24 小时内记录了 337 例 CCP病毒感染病例，这是数周以来的最高数字。新州总理多米尼克·佩罗特（Dominic Perrottet）承认，这一数字可能在未来会进一步上升。
 
-FCC再度重申，中国电信美洲公司为中共所有及控制，极有可能中断和误导美国通信行业。并且该公司的服务可被用于间谍活动，直接威胁到美国的国家安全。
+新闻参考链接：
 
-*参考链接：*
-
-1. [*https://cn.reuters.com/article/china-telecom-us-fcc-court-1203-idCNKBS2II021*](https://cn.reuters.com/article/china-telecom-us-fcc-court-1203-idCNKBS2II021)
-2. [*https://www.mobileworldlive.com/cn/p2yt4k-1p1p*](https://www.mobileworldlive.com/cn/p2yt4k-1p1p)
-3. [*https://cn.reuters.com/article/idCNKBS2HH02S*](https://cn.reuters.com/article/idCNKBS2HH02S)
-
-
-* * *
-
-*素材采编：海星*
-
-*编辑：青衣青青*
-
-*发布：miumiu*
-
+[9 news](https://www.9news.com.au/national/omicron-coronavirus-update-nsw-sydney-case-regents-park-school-covid19-numbers/6f1bd491-da36-4f75-87bb-a47c446c9864)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,38 +2,49 @@
 ---
 
 
-## 孟建柱之流是中共海外扩张的罪魁祸首
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1718998/)
+## 法官阻止德州防止社交媒体审查的法律
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1719126/)
 
-撰稿：东京樱花团—在远方
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-1.png)
-在12月2日的直播中，郭文贵先生谈到，刘特佐，孟建柱、孙立军一直在马来西亚专注于房地产项目，其目的在于，试图给中共在东南亚建立一个洗钱和情报基地。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-163.png)
-郭先生提到，中共在湄公河所谓的灭黑行动，实为孟建柱霸占东南亚黑帮、赌场、木材、珠宝和走私的关键。与此同时，刘特佐也在马来西亚大举投资并干涉马来西亚政治，妄图控制该国的银行并操控该国的经济。
+编译： Jenny Ball
 
-郭先生解释，在担任中共公安部长以及中央政法委书记期间，孟建柱是中共海外情报与蓝金黄无限扩张的绝对罪魁祸首。在中共国内，孟建柱也是残害新疆、西藏人的刽子手，同时，他更陷害并抓捕了中共党内数百万人，尤其是身处中共政法委的中共党员。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-7-1.jpg)在 2020 年 1 月 6 日拍摄的这张插图中，智能手机上显示了 Facebook 标志。（Dado Ruvic/Illustration/Reuters）
 
-郭先生警告称，由孟建柱主导的中共海外扩张，给中国人在世界上带来了极为严重的负面影响，孟建柱所代表的中共威胁全球范围内几乎无处不在。
+周三，德克萨斯州的一名联邦法官阻止了一项旨在防止社交媒体公司审查用户的法律，他认为该法律的挑战者可能会获胜。
 
+奥巴马提名的美国地区法官罗伯特·皮特曼 (Robert Pitman) 下令发布初步禁令，阻止该法律生效，至少目前是这样。
 
+争议的立法，于今年早些时候由共和党人通过，并由德州州长格雷格·阿博特（Greg Abbott）签署。
 
-新闻链接: [12/2/2020 文贵直播：孟建柱是中共海外情报军事扩张的罪魁祸首](https://gnews.org/zh-hans/1712225/)
+这将要求社交媒体平台透明化他们在内容管理方面的做法，包括哪些类型的帖子会违反他们的规则。它还将禁止平台“审查用户、用户的表达，或用户根据其观点或位置接收他人表达的能力”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-89.png)
+“我们将永远捍卫德克萨斯州的言论自由，这就是为什么我很自豪能够将众议院第 20 号法案(HB20)签署为法律，”阿博特在签署该法案之前说。
 
-总编: 文特
+然而，拥有运营平台成员的两个贸易协会就该法律提起诉讼，认为该法律违反了美国宪法的第一和第十四修正案。
 
-编辑: Irene木木
+该法律“强加了不允许的基于内容和观点的分类，以迫使少数几个平台发布违反平台政策的言论和演讲——并以平台展示其他不违反其政策的言论相同的方式，展示该言论， “他们的诉讼说道。
 
-校正/发稿：浪迹天涯
+皮特曼同意，发现“HB20 对‘审查’的禁令，和对社交媒体平台如何传播内容的限制，违反了第一修正案。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-1.png)
+此外，他说，用户能够根据新法律提起诉讼，这“让社交媒体平台的言论权利不寒而栗”。
+
+今年早些时候，佛罗里达州部分地阻止了一项类似的法律。
+
+两起案件的原告之一 ， NetChoice总裁兼首席执行官史蒂夫·德尔比安科 (Steve DelBianco) 在一份声明中表示，“**美国的司法系统，保护了我们今天的言论自由的宪法权利，通过确保出于政治动机的德克萨斯州法律不会出现，并迫使各地的美国人忍受种族歧视、激进的同性恋恐惧症、色情材料、斩首或其他令人毛骨悚然的内容，只是为了在网上流传。”**
+
+网景（Netscape ）的成员包括 AOL、Google、Twitter 和 Facebook。
+
+雅培的一位女发言人告诉新闻媒体，该州正在努力对该裁决提出上诉。 “**允许有偏见的社交媒体公司取消保守派言论，是对美国建立的言论自由基础的敌意。在德克萨斯州，我们将始终为捍卫德克萨斯人的言论自由而战**，”她说。
+
+**新闻来源**：[theepochtimes][Judge Blocks Texas Law Aimed at Preventing Social Media Censorship](https://www.theepochtimes.com/mkt_morningbrief/judge-blocks-texas-law-aimed-at-preventing-social-media-censorship_4135836.html?utm_source=Morningbrief&amp;utm_medium=email&amp;utm_campaign=mb-2021-12-03&amp;mktids=84b38f09c23bc8ab1db62497fa4b93f8&amp;est=GjP1CDwaYX3DaVTxnOvtSFrJAW%2F91o%2B2k%2BNbY1t8jArPMCICP4lMe%2FlBhSAvpH95dPRFoQ%3D%3D)
+
+* * *
+
+*审核：文乐
+校对：信心满满
+发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
