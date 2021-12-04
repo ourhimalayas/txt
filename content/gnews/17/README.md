@@ -2,16 +2,18 @@
 ---
 
 
-## 美国CDC要求航空公司披露去过非洲国家的乘客信息
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1720181/)
+## 英国再增Omicron案例 过半数感染者完成两剂接种
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1720280/)
 
 栏目作者：焦点20分
 
-据路透社报道，美国公共卫生官员发布了一项指令，要求航空公司披露最近去过八个南部非洲国家的乘客姓名和其他信息。
+据英国天空新闻最新报道，英国再新增75个 Omicron感染案例，目前该新变种感染案例本土已达到104例。英国健康安全机构表示，过半的Omicron感染者已经完成了第二针疫苗的注射。
 
-CDC按照电影极度恐慌的剧本在工作。爆料革命郭先生在3个礼拜之前用情报告诉美国新病毒从美国西部开始，是中共放毒。新毒株在南非及中共国出现都是烟幕弹，为的是掩盖中共在美西放毒的事实。中共利用新毒株继续打击西方经济，并用解药威胁西方，逼迫西方在冬奥会以及台湾问题上就范；西方政府利用新毒株进一步推行强打疫苗。
+报道也指出之前大部分Delta感染案例也是在完全接种的人之间传染。目前，英国12岁以上人群有超过80%完成了第二针的注射
 
-原文链接：[https://cn.reuters.com/article/exclusive-cdc-requirements-airlines-1201-idCNKBS2IH07Q](https://cn.reuters.com/article/exclusive-cdc-requirements-airlines-1201-idCNKBS2IH07Q)
+英国的数据表明，新冠病毒疫苗是一个彻底的谎言，疫苗不仅起不到任何抵抗病毒的作用，反而造成的伤害数倍于病毒。
+
+原文链接： [https://news.sky.com/story/covid-19-over-half-of-uk-omicron-cases-happened-after-two-jabs-as-ukhsa-releases-risk-assessment-12485607](https://news.sky.com/story/covid-19-over-half-of-uk-omicron-cases-happened-after-two-jabs-as-ukhsa-releases-risk-assessment-12485607)
 
 上传：零点
 

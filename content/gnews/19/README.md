@@ -2,34 +2,42 @@
 ---
 
 
-## 布林肯将台湾称为“国家”，中共官媒发文抨击
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1720096/)
+## 向5-11岁的小朋友打疫苗，这是杀戮儿童！
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1720255/)
 
-韩国首尔天池农场—虎眼　校对/上传—无明逆流
+作者： 加拿大温哥华扬帆农场 Michael.Tonny
+![](https://assets.gnews.org/wp-content/uploads/2021/11/michael-3-1.jpg)
+很多国家，尤其是中共国，正在强制5-11岁的小朋友打疫苗，这杀戮儿童！德国政界和各州州长11月30日召开新冠会议，也在酝酿限制交际和强制全民接种疫苗政策。
 
-美国时间12月3日，在路透社主办的Next虚拟会议上，美国国务卿布林肯接受了路透社总编(AlessandraGalloni)的采访。双方就乌克兰危机、台湾问题和美国对华政策进行了对话讨论。
+CCP治下的中共国，到处充满谎言和欺骗的CCP官场，任何数据都可以造假，想直接从中共国官方得到数据来佐证如此明显的事实，恐怕就是总加速师也未必能得到准确的数据。但德国和英国的官方统计数据，证明强制儿童注射疫苗，是多么疯狂的举动！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/13ER45D7129Df943ED6.jpg)图片来源：网络
+来自medrxiv上的一篇未被公布的18页论文报告显示，在2020年3月至2021年5月期间，德国健康儿童死于中共病毒的人数为0！
 
-当被问到中国是否会入侵台湾时，布林肯表示：中国大陆对台湾的武统意图将是“潜在的灾难性决定”，会带来可怕的后果。他希望中国领导人慎重考虑这一问题，不要贸然引发一场会给很多人带来可怕后果的危机，危机对任何人都没有好处，而中国（大陆）会首当其冲。布林肯还承诺“美国将确保台湾拥有自卫手段。”
+[Medrxiv](https://www.medrxiv.org/)（The Preprint Sever for Health Sciences），中文名：健康科学预印本服务器。预印本，是未经同行评审认证的初步（或原始）工作报告。
 
-采访中，布林肯还将台湾称为创新国家，“这是一个强劲的民主政体、一个强劲的经济体、一个创新性的国家。”
+根据这篇由德国所有儿童医院、儿科传染病专家和儿科协会共同发表的《[Risk of Hospitalization, severe disease, and mortality due to COVID-19 and PIMS-TS in children with SARS-CoV-2 infection in Germany](https://www.medrxiv.org/content/10.1101/2021.11.30.21267048v1.full.pdf)》报告显示， CCP病毒开始在德国传播的前15个月，在总数为1000万左右的5至18岁的德国儿童和青少年中，没有任何一个人死于中共病毒。即使加上这个年龄段的有（其它）疾病的儿童和青少年后，也总共只有6人死亡。这段时间内，18岁以下的德国人中，仅有14人名死于中共病毒，其中还有8名婴幼儿死亡，有5名有既往病史者。
 
-12月4日，中共人民日报“钟声”发表长文抨击美国国务卿布林肯的对台言论。
-全文如下：
-当地时间12月3日，美国政府高官在谈及台湾问题时，公然将台湾称为“国家”，毫无根据地将所谓“改变现状”罪名强加给中方，并称要确保台湾有“防卫手段”。美个别政客的言论严重违背事实真相和国际关系准则，公然挑战一个中国原则，粗暴干涉中国内政，是在向“台独”势力发出错误信号，打“台湾牌”、“以台制华”的政治图谋是对台海和平稳定的最大威胁。
+在这期间，约有150万德国儿童或青少年感染过中共病毒，其中，5-11岁的健康儿童需要接受重症监护的几率约为50,000分之一，而12-18岁的青少年或年龄小于5岁的小孩需要重症监护的几率8,000 分之一。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2021.11.30.21267048v1-scaled.jpg)
+英国研究人员发布了类似的报告，在英国1200万儿童中仅有6名18岁以下的健康儿童或青少年死于中共病毒。
 
-当前，台海局势面临新一轮紧张，美政客和台湾民进党当局是始作俑者。美个别政客公然将台湾称为“国家”，这严重违反一个中国原则，严重违背美方在中美三个联合公报中作出的政治承诺，性质十分恶劣，美方必须停止错误言行。台湾民进党当局煽动两岸对立，不断进行“倚美谋独”的挑衅。美个别政客的错误言行只会纵容“台独”，让台海局势变得更为紧张。
+笔者根据英国政府官方机构[office for national statstics](https://www.ons.gov.uk/)发布的周统计数据分析，自2021年第10周起，英国每百万未接种疫苗的人群因CCP毒而死亡的机率明显比每百万至少接种一针疫苗的人群死亡机率低得多。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Weekly-age-standardised-mortality-rates.jpg)
+文章的最后，让我们来看看英国打一针和两针疫苗死亡率的巨大差异吧，不知道看完你有没有疫苗打得越多，死得越快的感觉？
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Weekly-age-standardised-mortality-rates2.jpg)
+参考资料：
 
-美个别政客罔顾事实，编织所谓中国单方面在台海“改变现状”的谎言。但事实上，台湾问题的真正现状是：世界上只有一个中国，台湾是中国的一部分，中华人民共和国政府是代表中国的唯一合法政府。中美建交公报明确指出，“美利坚合众国政府承认中国的立场，即只有一个中国，台湾是中国的一部分”。在八一七公报中，美方重申无意干涉中国内政。在台湾问题上，中国政府的立场是一贯的，行动是坚决的。中国一直尽最大诚意追求和平统一，但绝不允许发生和出现“台独”势力分裂中国的情况。民进党当局“倚美谋独”、不断挑衅，美方“以台制华”动作不断，中方势必作出正当反应，坚决捍卫国家主权和领土完整。明明是美台勾连行径在“破坏台海现状”，美个别政客却渲染中国捍卫国家主权和领土完整的正当行为是“改变现状”，这完全是颠倒黑白、混淆视听。
+[德国将全民接种疫苗？](https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20211130-%E5%BE%B7%E5%9B%BD%E5%B0%86%E5%85%A8%E6%B0%91%E6%8E%A5%E7%A7%8D%E7%96%AB%E8%8B%97)
 
-美方在炒作中方改变“台海现状”的同时，刻意抬高所谓“与台湾关系法”及“六项保证”的地位，为其所谓确保台湾有“防卫能力”的说辞寻找借口。美方的这种政治操弄，完全违背国际关系准则。所谓“与台湾关系法”及“六项保证”，是由美方单方面制定，其内容违背中美三个联合公报，粗暴干涉中国内政，是完全错误、非法、无效的，中方从一开始就坚决反对。美方以所谓“与台湾关系法”及“六项保证”来界定对台政策，是严重错误的。
+[Huge new study shows ZERO Covid deaths of healthy German kids over 4 or adolescents](https://alexberenson.substack.com/p/huge-new-study-shows-zero-covid-deaths)
 
-众所周知，一个中国原则和中美三个联合公报是中美关系的政治基础。历届美国政府对此都有明确承诺。当前，美个别政客出于“以台制华”企图，刻意曲解一个中国原则，这不仅背离其自身政治承诺，有失大国应有的风范，更是在挑战国际关系基本准则。
+[Vaccinated English adults under 60 are dying at twice the rate of unvaccinated people the same age](https://alexberenson.substack.com/p/vaccinated-english-adults-under-60)
 
-实现国家统一是世界各国的正当必然要求，自古至今概莫能外。中国实现完全统一，是全体中华儿女的共同愿望。我们是有耐心的，愿以最大诚意、尽最大努力争取和平统一的前景，但如果“台独”分裂势力挑衅逼迫，甚至突破红线，我们将不得不采取断然措施。美方应立即停止挑战一个中国原则的错误行径，真正恪守中美三个联合公报规定，停止向“台独”势力发出任何危险错误信号。
+[Risk of Hospitalization, severe disease, and mortality due to COVID-19 and PIMS-TS in children with SARS-CoV-2 infection in Germany](https://www.medrxiv.org/content/10.1101/2021.11.30.21267048v1.full.pdf)
 
-相关新闻：[《路透峰会》美国国务卿布林肯称中国入侵台湾会招致“可怕后果”](https://www.reuters.com/article/reuters-next-china-usa-idCNL4S2SO3LH)
+[Deaths occurring between 2 January and 24 September 2021 edition of this dataset](https://www.ons.gov.uk/file?uri=%2fpeoplepopulationandcommunity%2fbirthsdeathsandmarriages%2fdeaths%2fdatasets%2fdeathsbyvaccinationstatusengland%2fdeathsoccurringbetween2januaryand24september2021/datasetfinalcorrected3.xlsx)
+
+编辑：Michael.Tonny 上传：Michael.Tonny
 
  
 
