@@ -15,164 +15,164 @@
 
 ---
 
-### [在对奥米克戎的不确定性审查后，加强针推广安排无变化](/content/gnews/1/README.md)
- ` 澳喜农场`
-
-### [独裁者统治分化人类](/content/gnews/2/README.md)
+### [币圈新闻动态：列支敦斯登已经为喜联储批出第一张金融牌照](/content/gnews/1/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中美就拜登的“民主峰会”存在分歧](/content/gnews/3/README.md)
+### [河南省构建世上最复杂的监控网络追踪记者和国际学生](/content/gnews/2/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [美国最近就有史以来最大规模的网络攻击而抨击中共](/content/gnews/3/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [2021年12月4日新闻集](/content/gnews/4/README.md)
  ` 澳喜农场`
 
-### [新加坡政府立法管控民众言论，最高十年刑期](/content/gnews/4/README.md)
- ` 澳喜农场`
+### [视频| 喜币在美国监管的利与弊以及机会](/content/gnews/5/README.md)
+ ` MOSREC`
 
-### [【文炬拾字】埋进年少的恐惧](/content/gnews/5/README.md)
- ` 温哥华扬帆农场`
+### [视频| 美国的核心利益一定是灭掉共产党](/content/gnews/6/README.md)
+ ` MOSREC`
 
-### [彭帅事件持续发酵，国际女子网球协会宣布停办在中国赛事](/content/gnews/6/README.md)
- ` 澳喜农场`
-
-### [“红蛆”如何养成？——《时事穿梭机》第十期](/content/gnews/7/README.md)
- ` 澳喜农场`
-
-### [中俄做好乌克兰台湾两线开战准备,在疫苗病毒上有猫腻](/content/gnews/8/README.md)
- ` NewFOC`
-
-### [实锤：美国SEC公布海外上市公司监管新规细则](/content/gnews/9/README.md)
- ` 澳喜农场`
-
-### [纽约发现五例Omicron变种病毒病例 又被郭文贵先生言中](/content/gnews/10/README.md)
- ` 日本东京方舟农场`
-
-### [斯洛伐克43人团访台 参加首届双边跨部会会议](/content/gnews/11/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [美众议院竟通过了针对不接种疫苗者的“奥威尔式”法案](/content/gnews/12/README.md)
- ` 日本东京方舟农场`
-
-### [美日明首度以「远征前进基地作战」概念进行联演](/content/gnews/13/README.md)
- ` 纽约香草山MOS01`
-
-### [感恩是信仰而非宗教,是自然而然生没有任何条件交换的](/content/gnews/14/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [在加拿大完全接种疫苗的母亲中，死胎的数量激增](/content/gnews/15/README.md)
- ` 墨尔本雅典娜农场`
-
-### [立陶宛外交抵制北京冬奥 中共报复删除海关国名](/content/gnews/16/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [12/3/2021 文贵直播：2021年8月1日到16日之间，习近平见了谁？见了多久？](/content/gnews/17/README.md)
- ` 秘密翻译组-北美组`
-
-### [蓬佩奥撰文称美国必须完全抵制北京冬奥会](/content/gnews/18/README.md)
- ` HimalayaRussia`
-
-### [日本为吸引外国半导体公司设厂，政府将设立基金](/content/gnews/19/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美国对虚拟币监管的两弊两利带来的机会在哪里](/content/gnews/20/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [债主拒绝债务延期，佳兆业将违约](/content/gnews/21/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [以色列威胁说将攻击伊朗如果维也纳核谈判不按其意愿进行](/content/gnews/22/README.md)
+### [内华达州将对疫苗未接种者征收附加费](/content/gnews/7/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [G|Fashin不仅仅是一个品牌](/content/gnews/23/README.md)
+### [德国对未接种疫苗的人施加了重大限制](/content/gnews/8/README.md)
+ ` 澳喜农场`
+
+### [从CCP派军机扰台开始说起](/content/gnews/9/README.md)
  ` 澳喜特战旅Gnews`
 
-### [GTV新闻访谈简报|2021年12月3日晚](/content/gnews/24/README.md)
- ` 纽约香草山MOS01`
-
-### [汤姆·科顿批福奇和拜登政府未能立即实施旅行禁令](/content/gnews/25/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [奥地利政府立法-加重对未接种中共病毒疫苗的居民的惩罚](/content/gnews/26/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [12/3/2021 文贵直播：战友爆出其所在地区有7万人死于疫苗，中共国疫苗死亡是天文数字](/content/gnews/27/README.md)
- ` 秘密翻译组-北美组`
-
-### [恒大警告说该集团缺乏资金，无法继续还债](/content/gnews/28/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [日本山形县发生群聚感染，13名幼儿感染中共病毒](/content/gnews/29/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [布林肯：任何中共国入侵台湾之举将有“可怕后果”](/content/gnews/30/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [11/26郭文贵直播：上海和杭州有医院出现天花病例（粤语配音）](/content/gnews/31/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [11/26郭文贵直播：我们灭的是中共和全球黑暗力量（粤语配音）](/content/gnews/32/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [恒大宣布无法履行担保义务 违约开始](/content/gnews/33/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [班农的传票将1.6委员会吓得半死](/content/gnews/34/README.md)
- ` HimalayaRussia`
-
-### [新冠疫情中另一老药新用 – 氟伏沙明](/content/gnews/35/README.md)
- ` 纽约香草山MOS03`
-
-### [担忧医疗数据泄露澳大利亚正在审核一项从中共购买医疗设备的协议](/content/gnews/36/README.md)
+### [在对奥米克戎的不确定性审查后，加强针推广安排无变化](/content/gnews/10/README.md)
  ` 澳喜农场`
 
-### [重磅！新中国联邦拿下伦敦最老子号赌场Palacegate Casino赌牌、酒牌](/content/gnews/37/README.md)
- ` YALUN 亚伦`
+### [独裁者统治分化人类](/content/gnews/11/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [12.03文贵爆料 CCP释放奥密克戎病毒意在台湾](/content/gnews/38/README.md)
- ` 秘密翻译组-原创组`
+### [中美就拜登的“民主峰会”存在分歧](/content/gnews/12/README.md)
+ ` 澳喜农场`
 
-### [秘翻在线: 中共政府传唤许家印督促风险处置](/content/gnews/39/README.md)
- ` 秘密翻譯組G-Translators`
+### [新加坡政府立法管控民众言论，最高十年刑期](/content/gnews/13/README.md)
+ ` 澳喜农场`
 
-### [为逃避疫苗接种，欧洲越来越多人通过网络购买假疫苗护照](/content/gnews/40/README.md)
- ` 首尔天池农场`
+### [【文炬拾字】埋进年少的恐惧](/content/gnews/14/README.md)
+ ` 温哥华扬帆农场`
 
-### [美国最新民调显示：大多数美国人认为中共超过俄罗斯成为美国最大威胁](/content/gnews/41/README.md)
- ` 首尔天池农场`
+### [彭帅事件持续发酵，国际女子网球协会宣布停办在中国赛事](/content/gnews/15/README.md)
+ ` 澳喜农场`
 
-### [2021/12/03 墙内世界](/content/gnews/42/README.md)
+### [“红蛆”如何养成？——《时事穿梭机》第十期](/content/gnews/16/README.md)
+ ` 澳喜农场`
+
+### [中俄做好乌克兰台湾两线开战准备,在疫苗病毒上有猫腻](/content/gnews/17/README.md)
+ ` NewFOC`
+
+### [实锤：美国SEC公布海外上市公司监管新规细则](/content/gnews/18/README.md)
+ ` 澳喜农场`
+
+### [纽约发现五例Omicron变种病毒病例 又被郭文贵先生言中](/content/gnews/19/README.md)
+ ` 日本东京方舟农场`
+
+### [斯洛伐克43人团访台 参加首届双边跨部会会议](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [12/3/2021国际财经快讯：高盛计划明年初制定新的中期盈利目标；美国失业率降至20个月低点](/content/gnews/43/README.md)
- ` 秘密翻译组金融团队`
+### [美众议院竟通过了针对不接种疫苗者的“奥威尔式”法案](/content/gnews/21/README.md)
+ ` 日本东京方舟农场`
 
-### [2022冬奥会能开吗？西方精英们的抵制究竟是为什么？](/content/gnews/44/README.md)
- ` mary202064`
+### [美日明首度以「远征前进基地作战」概念进行联演](/content/gnews/22/README.md)
+ ` 纽约香草山MOS01`
 
-### [台湾前线｜前美国官员：为了美国 应保卫台湾 联盟是关键](/content/gnews/45/README.md)
- ` G&#124;News TAIWAN`
+### [感恩是信仰而非宗教,是自然而然生没有任何条件交换的](/content/gnews/23/README.md)
+ ` 喜马拉雅日本银河系农场`
 
-### [迫于中共政治压力，滴滴决定从美国退市](/content/gnews/46/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共国体育界又爆丑闻，江西省篮协主席性侵幼女](/content/gnews/47/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美国国会启动奥运囚犯项目，谴责中共侵犯人权](/content/gnews/48/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美国军方证实在台美军人数今年翻倍](/content/gnews/49/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [COVID-19 最新情报｜默克尔：现在是采取行动的时候了！德国禁止未接种者出入大部分公共场所](/content/gnews/50/README.md)
- ` G&#124;News TAIWAN`
-
-### [COVID-19 最新情報｜研究顯示：韓國製青蒿琥酯咯萘啶對新冠病毒有效 經EMA認證 兒童可用](/content/gnews/51/README.md)
- ` G&#124;News TAIWAN`
-
-### [日本前防卫大臣警告，中共国武力犯台将付出惨重代价](/content/gnews/52/README.md)
+### [在加拿大完全接种疫苗的母亲中，死胎的数量激增](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [澳门：中共国的罪恶之都](/content/gnews/53/README.md)
- ` GTV新闻访谈`
+### [立陶宛外交抵制北京冬奥 中共报复删除海关国名](/content/gnews/25/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [蓬佩奥撰文称美国必须完全抵制北京冬奥会](/content/gnews/26/README.md)
+ ` HimalayaRussia`
+
+### [日本为吸引外国半导体公司设厂，政府将设立基金](/content/gnews/27/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [以色列威胁说将攻击伊朗如果维也纳核谈判不按其意愿进行](/content/gnews/28/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [GTV新闻访谈简报|2021年12月3日晚](/content/gnews/29/README.md)
+ ` 纽约香草山MOS01`
+
+### [汤姆·科顿:美国正经历创纪录的通货膨胀和供应链短缺](/content/gnews/30/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [托尼·福奇在接受采访时称，批评我就是批评科学](/content/gnews/31/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [奥地利政府立法-加重对未接种中共病毒疫苗的居民的惩罚](/content/gnews/32/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [恒大警告说该集团缺乏资金，无法继续还债](/content/gnews/33/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [日本山形县发生群聚感染，13名幼儿感染中共病毒](/content/gnews/34/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [布林肯：任何中共国入侵台湾之举将有“可怕后果”](/content/gnews/35/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [班农的传票将1.6委员会吓得半死](/content/gnews/36/README.md)
+ ` HimalayaRussia`
+
+### [担忧医疗数据泄露澳大利亚正在审核一项从中共购买医疗设备的协议](/content/gnews/37/README.md)
+ ` 澳喜农场`
+
+### [重磅！新中国联邦拿下伦敦最老子号赌场Palacegate Casino赌牌、酒牌](/content/gnews/38/README.md)
+ ` YALUN 亚伦`
+
+### [12.03文贵爆料 CCP释放奥密克戎病毒意在台湾](/content/gnews/39/README.md)
+ ` 秘密翻译组-原创组`
+
+### [秘翻在线: 中共政府传唤许家印督促风险处置](/content/gnews/40/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [为逃避疫苗接种，欧洲越来越多人通过网络购买假疫苗护照](/content/gnews/41/README.md)
+ ` 首尔天池农场`
+
+### [美国最新民调显示：大多数美国人认为中共超过俄罗斯成为美国最大威胁](/content/gnews/42/README.md)
+ ` 首尔天池农场`
+
+### [2021/12/03 墙内世界](/content/gnews/43/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [12/3/2021国际财经快讯：高盛计划明年初制定新的中期盈利目标；美国失业率降至20个月低点](/content/gnews/44/README.md)
+ ` 秘密翻译组金融团队`
+
+### [2022冬奥会能开吗？西方精英们的抵制究竟是为什么？](/content/gnews/45/README.md)
+ ` mary202064`
+
+### [台湾前线｜前美国官员：为了美国 应保卫台湾 联盟是关键](/content/gnews/46/README.md)
+ ` G&#124;News TAIWAN`
+
+### [迫于中共政治压力，滴滴决定从美国退市](/content/gnews/47/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共国体育界又爆丑闻，江西省篮协主席性侵幼女](/content/gnews/48/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美国国会启动奥运囚犯项目，谴责中共侵犯人权](/content/gnews/49/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美国军方证实在台美军人数今年翻倍](/content/gnews/50/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [COVID-19 最新情报｜默克尔：现在是采取行动的时候了！德国禁止未接种者出入大部分公共场所](/content/gnews/51/README.md)
+ ` G&#124;News TAIWAN`
+
+### [COVID-19 最新情報｜研究顯示：韓國製青蒿琥酯咯萘啶對新冠病毒有效 經EMA認證 兒童可用](/content/gnews/52/README.md)
+ ` G&#124;News TAIWAN`
+
+### [日本前防卫大臣警告，中共国武力犯台将付出惨重代价](/content/gnews/53/README.md)
+ ` 墨尔本雅典娜农场`
 
 ### [喜币超越法币成为未来最佳货币的三大契机](/content/gnews/54/README.md)
  ` GTV新闻访谈`

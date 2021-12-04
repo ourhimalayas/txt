@@ -2,26 +2,22 @@
 ---
 
 
-## 美国最新民调显示：大多数美国人认为中共超过俄罗斯成为美国最大威胁
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1716812/)
+## 为逃避疫苗接种，欧洲越来越多人通过网络购买假疫苗护照
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1716872/)
 
 韩国首尔天池农场
 翻译：zzballack　
 上传：无明逆流
 
-据英国《每日邮报》（Daily Mail）12月1日报道，一项最新民意调查的结果让人震惊，52%的受访者认为中共、而不是普京的俄罗斯，对美国构成最大威胁，而在2018年，这一数字只有21%。现在只有14%的人认为俄罗斯是最大威胁。另外超过70%的人担心中美会爆发军事冲突。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/T23T6f0534ae43593.jpg)图片来源：原新闻
-里根国防调查（Reagan National Defense Survey）发现，中共已经超过了俄罗斯、朝鲜和阿富汗，成为美国最大的潜在威胁。“在我们的调查中，大多数美国人第一次认定一个国家是美国面临的最大威胁：中共国。”55%的民主党人和64%的共和党人认为中共确实构成了最大威胁。
+据《布雷特巴特新闻网》（Breitbart News）12月3日报道，意大利警方声称，网上销售的假疫苗护照数量激增，一些医生甚至可能参与了假证明的销售。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2E5766d-1eb78JYJ06e18f6755.jpg)图片来源：原新闻
+意大利热那亚（Genoa）的邮政总局局长卢西亚·姆斯卡里（Lucia Muscari）表示，参与买卖假疫苗护照的人越来越多，这个市场正在爆发式增长。姆斯卡里告诉瑞典电视台（SVT）：“那些想购买疫苗护照的人不仅根本不想接种疫苗，而且想在没进行核酸检测的情况下进入健身房和餐厅等公共场所以及工作场所。”
 
-当被问及是否预见到与中共的潜在军事冲突时，71%的受访者表示肯定。其中，79%的共和党人和66%的民主党人认为世界两个超级大国之间可能会发生战争。
+11月26日在米兰市，意大利金融警察突击检查并逮捕了几个人，缴获假疫苗护照。他们说这是在加密消息应用程序电报群（Telegram）上出售的，卖家只接受加密货币付款。警官法比奥·费拉里（Fabio Ferrari）说：“我们看到不仅在意大利，而且在整个欧洲，假疫苗护照的供需量都非常大。我们逮捕的一位17岁少年甚至与俄罗斯黑客合作。但是人们没有意识到，他们提供的身份证和病历文件等个人隐私信息，正被转卖到其它地方。”意大利警方还怀疑一些医务人员可能也在从事制造假疫苗证书。
 
-37%的美国人认为，美国需要将军事注意力从中东转移到东亚地区。认为美国应聚焦中东的只有17％。
+疫苗护照是疫苗暴政的一部分。面对暴政，全世界的公民都有不服从的义务，假疫苗护照也是一种捍卫个人权利的反抗形式，但在此过程中一定要注意个人隐私信息的安全。
 
-在调查中，71%的美国人承认台湾是一个 “独立国家”。50%的人支持美国对中共入侵台湾作出军事回应。
-
-关于中共病毒，许多美国人认为它是由武汉实验室的科学家制造的，这也是中共被视为头号威胁的原因之一。近50%的人说他们“很有可能”相信这一理论，72%的人说他们“有可能”相信这一理论。
-
-相关新闻：[Majority of Americans point to China – not Russia – as biggest threat to US in poll: 71% say they fear military conflict as tensions mount over Taiwan](https://www.dailymail.co.uk/news/article-10264367/Majority-Americans-finger-China-biggest-threat-poll-71-fear-military-conflict.html)
+新闻来源：[Fake European Coronavirus Vaccine Passport Sales Surging Online](https://www.breitbart.com/europe/2021/12/03/fake-european-coronavirus-vaccine-passport-sales-surging-online/)
 
  
 

@@ -2,25 +2,35 @@
 ---
 
 
-## 新加坡政府立法管控民众言论，最高十年刑期
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1718122/)
+## 2021年12月4日新闻集
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1718182/)
 
-撰稿：童媚
-![](https://assets.gnews.org/wp-content/uploads/2021/12/假新闻法1.jpg)（图片来自网络）
-2021年10月20日，新加坡一位反对强制疫苗的作家，在英文博客上发表一篇名为《不要参与一个拒绝你的社会》的文章，【原文链接：[See Correction Notice Below] Do Not Participate In A Society that Rejects You – Cheah Kit Sun ([benjamincheah.com](https://benjamincheah.com/))】引起了当局的关注。
-文章指冠病疫苗导致的死亡率和严重伤害，比其他疫苗高出许多，而且将病毒和疫苗背后的种种不合理，以及政府的错误做法悉数指出。
-此文得到新加坡反对党派人民力量党秘书长吴明盛的转帖，于是更蒙上了一层党派斗争的阴影。
-谢启伟在他的公开博客上，持续揭露在这场疫苗灾难中的真相，以及政府的种种不作为和反常规的做法。
-他谴责当局政府的做法已经将国家严重分裂，让小部分追求真相的人得不到应有的权力，甚至会被层层压迫而最终向现实妥协。
-然而，新加坡政府根据当地「假新闻法」条例，在11月29日指谢启伟和吴明盛因为发表和转发有关冠病疫苗不实文章，接获防止网络假信息和网络操纵法令办事处发出的更正警告。
-新加坡政府指文章内容不实，夸大了冠病疫苗的危险性，误导读者以为冠病疫苗是非常危险的。
-新加坡卫生部强调，在本地获批准使用的冠病疫苗是安全的，而且经过海内外专家的评估。如果人们相信这些文章的内容，而不接种疫苗的话，可能会有严重的后果。因此，当局有必要更正这些不实内容，尤其是当地正在展开冠病疫苗追加剂接种工作。
-卫生部称截至上个月31日，因为接种疫苗而出现严重不良反应的个案，只占施打总剂量的0.006%。至今也没有人因为接种冠病疫苗而死亡。接种疫苗的好处仍大于风险。
-
-补充：
-Kit Sun Cheah（谢启伟）， 新加坡人，是新加坡第一位获得雨果奖和龙奖提名的科幻和奇幻作家。他出版的书籍有《圣约编年史》和《业力之歌》。他最近的故事包括地牢武士三部曲和巴比伦蓝调。他也是一名武术家，曾在新加坡军队服役。
-
-发稿：MG5
+撰稿人：文远Bruce
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新闻集.png)
+转自Luke：1 推特创始人改名其支付公司Square为Block，押注区块链
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新闻集2.png)
+2 哈萨克斯坦提高挖矿电价，比特大陆遗弃其在哈国矿机
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新闻集3.png)
+3 欧米克荣病毒已传播至美国八州
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新闻集4.png)
+4 南非研究人员发现证据欧米克荣比其他变异更容易再次感染
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新闻5.png)
+5 ai训练速度已经超过摩尔定律
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新闻6.png)
+6 电动汽车电池价格正以惊人速度下跌
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新闻7.png)
+7 澳大利亚一医生将一病人好腿切除被罚款
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新闻8.png)
+8 意大利一男子意图用硅胶胳膊接种疫苗获取接种证明
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新闻9.png)
+9 中共大外宣承认疫苗刺突蛋白有毒
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新闻10.png)
+10 澳大利亚新洲疫苗接种概况：12-15岁两针接种率高达77%。16岁以上92.7%
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新闻11.png)
+编辑：MG4
+欢迎加入 [https://discord.gg/himalaya-australia](https://discord.gg/himalaya-australia)
+[AUJenny – GNEWS](https://gnews.org/zh-hans/author/aujenny/)
+[澳喜农场 – GNEWS](https://gnews.org/zh-hans/author/himalaya-australia/)
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-2.jpg)
  
 

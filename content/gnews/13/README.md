@@ -2,58 +2,26 @@
 ---
 
 
-## 美日明首度以「远征前进基地作战」概念进行联演
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1718022/)
+## 新加坡政府立法管控民众言论，最高十年刑期
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1718122/)
 
-作者：台湾宝岛农场 – 鬥陣來拼
+撰稿：童媚
+![](https://assets.gnews.org/wp-content/uploads/2021/12/假新闻法1.jpg)（图片来自网络）
+2021年10月20日，新加坡一位反对强制疫苗的作家，在英文博客上发表一篇名为《不要参与一个拒绝你的社会》的文章，【原文链接：[See Correction Notice Below] Do Not Participate In A Society that Rejects You – Cheah Kit Sun ([benjamincheah.com](https://benjamincheah.com/))】引起了当局的关注。
+文章指冠病疫苗导致的死亡率和严重伤害，比其他疫苗高出许多，而且将病毒和疫苗背后的种种不合理，以及政府的错误做法悉数指出。
+此文得到新加坡反对党派人民力量党秘书长吴明盛的转帖，于是更蒙上了一层党派斗争的阴影。
+谢启伟在他的公开博客上，持续揭露在这场疫苗灾难中的真相，以及政府的种种不作为和反常规的做法。
+他谴责当局政府的做法已经将国家严重分裂，让小部分追求真相的人得不到应有的权力，甚至会被层层压迫而最终向现实妥协。
+然而，新加坡政府根据当地「假新闻法」条例，在11月29日指谢启伟和吴明盛因为发表和转发有关冠病疫苗不实文章，接获防止网络假信息和网络操纵法令办事处发出的更正警告。
+新加坡政府指文章内容不实，夸大了冠病疫苗的危险性，误导读者以为冠病疫苗是非常危险的。
+新加坡卫生部强调，在本地获批准使用的冠病疫苗是安全的，而且经过海内外专家的评估。如果人们相信这些文章的内容，而不接种疫苗的话，可能会有严重的后果。因此，当局有必要更正这些不实内容，尤其是当地正在展开冠病疫苗追加剂接种工作。
+卫生部称截至上个月31日，因为接种疫苗而出现严重不良反应的个案，只占施打总剂量的0.006%。至今也没有人因为接种冠病疫苗而死亡。接种疫苗的好处仍大于风险。
 
+补充：
+Kit Sun Cheah（谢启伟）， 新加坡人，是新加坡第一位获得雨果奖和龙奖提名的科幻和奇幻作家。他出版的书籍有《圣约编年史》和《业力之歌》。他最近的故事包括地牢武士三部曲和巴比伦蓝调。他也是一名武术家，曾在新加坡军队服役。
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/LOGO-1.jpg)
-
-
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/20211202005765-1.jpg)图/DVIDS
-
-《产经新闻》报导，美国陆战队和日本陆上自卫队将于4日展开为期14天的「坚决之龙21」( Resolute Dragon 21) 联合演习。
-
- 此联合演习会是美军首度在运用「远征前进基地作战」(EABO) 概念下，于日本进行「高机动炮兵火箭系统」( HIMARS) 的长距离空运与快速打击演练，而EABO正是美国陆战队支持台海战事的主要手段之一。
-
-即使日方强调此演习是针对该国离岛防卫，但EABO作战也是美方协防台湾、抵抗共军登陆的重要手段之一；台湾国防部智库、国防安全研究院先前也强调，台湾在EABO中能扮演关键核心。
-
- 过去美国虽已透过船舰进行HIMARS远程运输，不过基于EABO概念中十分重要的「快速部署」目标，这次美方和日方反舰飞弹单位透过联演来加强合作，目的就是要快速地对抗、打击中共国的飞弹。
-
-
-参考链接：
-[https://news.ltn.com.tw/news/world/breakingnews/3756846](https://news.ltn.com.tw/news/world/breakingnews/3756846)
-
-[https://www.chinatimes.com/realtimenews/20211202005757-260417?chdtv](https://www.chinatimes.com/realtimenews/20211202005757-260417?chdtv)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/rili.png)
-
-总编：Irene木木
-校对/发稿：Daxia
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/LOGO-1.jpg)
-
-
-
-
-
+发稿：MG5
+![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
