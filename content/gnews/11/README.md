@@ -2,29 +2,22 @@
 ---
 
 
-## Eglise介绍双氢青蒿素
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1720610/)
+## 秘翻在线: 加拿大新省禁止未接种疫苗者进入食品杂货店
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1720638/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+撰稿：西枫westca
 
-首先第一点，双氢青蒿素纯粹是青蒿素的衍生物，是存在的，就是单独的，还有双氢青蒿素哌喹，因为它做成这个合剂的目的是为了抗疟疾，因为疟原虫生长它有一定周期，而青蒿素的伴随期又特别短，尽管你是个衍生物，比方说变成了双氢青蒿素，你必须要跟奎宁一起结合，因为这两者结合以后是有一个相辅相成的作用，即延长了这个有效药物在血液里面持续的时间，因为时间越长，相对来说作用与你的病原体的时间越长，还有就是有相辅相成的作用，增加药效，所以对于抗疟疾是要用合剂，就是青蒿素加上奎宁的成分，那么它们就是最好的结合，而作为这个我们这个病毒，特别是疫苗解读的话，我觉得奎宁不是一个必须的成分，而且往往有奎宁的存在可以带来副作用，如果说你能够得到纯粹的青蒿素衍生物产品，比方说你刚刚说的双氢青蒿素，那就太理想了，我觉得会比奎宁更好。
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Chalo_main.jpg)图片来源：www.sobeys110.com
+据TNC新闻12月3日报道，从本周六开始，加拿大新布伦瑞克省禁止不能出示全面疫苗接种证明的人进入杂货店购买食品。这项措施是作为该省 “冬季行动计划 “的一部分而宣布的，该计划允许任何企业，包括杂货店，选择禁止未接种疫苗的人进入。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+据该省卫生部长多萝西-谢泼德说，这是因为该省在过去两周里看到了COVID感染的 “非常令人担忧 “的上升，特别是在未接种疫苗的加拿大人中。
 
-**关注我们**
+在联邦政府发布的一份指南中，加拿大公共安全部将食品列为基础设施的十个关键部门之一，因其提供对市民的基本服务和功能。虽然各省在大流行期间可以自由管理他们自己的限制和封锁，但全国各地的杂货店直到现在仍对所有人开放。
 
-Discord 账号
+极左的特鲁多政府在自中共病毒大流行发生以来，从未表述要追溯病毒来源，在疫苗接种上更是走在西方国家的前列。 如今接种率已经超过80%，已超过群体免疫比例，为何还会有高阳性率？不是政府在接种率上说谎，就是在感染者多数为未接种人群上说谎。现在又把人们生存的基本权利和疫苗连在一起，就是助虐为虐。这些政客们一定会得到正义的审判。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+**新闻来源：**[https://tnc.news/2021/12/03/unvaccinated-canadians-can-be-banned-from-grocery-stores-in-new-brunswick/](https://tnc.news/2021/12/03/unvaccinated-canadians-can-be-banned-from-grocery-stores-in-new-brunswick/)
 
  
 
