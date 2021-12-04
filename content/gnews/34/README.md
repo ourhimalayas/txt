@@ -2,29 +2,12 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月3日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1717902/)
+## 汤姆·科顿:美国正经历创纪录的通货膨胀和供应链短缺
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1717881/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新.png)
+11/29/2021 汤姆·科顿：创纪录的通货膨胀和供应链短缺只发生在拜登政府的领导下，也是拜登政府政策的结果。我们需要把制造业从中共国撤回美国，以便我们有能力制造我们人民所依赖的商品，特别是处方药、医药用品和医疗用品等。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1203text-SC.png)
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-视频参看：[12.3  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61aac4b4d6388d55041600e0)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/rl.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

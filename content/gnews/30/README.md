@@ -2,49 +2,30 @@
 ---
 
 
-## 在加拿大完全接种疫苗的母亲中，死胎的数量激增
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1718013/)
+## 立陶宛外交抵制北京冬奥 中共报复删除海关国名
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1718004/)
 
-翻译：Lish
-校对：精靈藍
-编辑：Candy
+![立陶宛外交抵制北京冬奥    中方报复删除海关国名](https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/cl-12032021112646.html/@@images/3c1eed17-0007-4817-92ec-ce1fc8730128.jpeg)*立陶宛总统瑙塞达（Gitanas Nausėda）将不会出席明年2月的北京冬奥会。*
+据自由亚洲电台12月3日报道，立陶宛和中共国的关系持续恶化。立陶宛总统、外交部长、体育部长都宣布将对明年2月举行的北京冬奥会进行外交抵制。立陶宛议会17名议员也签署一份请愿书，呼吁总统、政府和所有政治家抵制北京冬奥，不参加开幕式和闭幕式，也不派出任何官方国家代表团出席。但立陶宛国家奥委会很快做出反应，敦促不要把体育和政治混为一谈。
 
-加拿大在完全接种疫苗的月份，死胎数量正在全国各地爆炸性增长
+中共国立刻采取报复手段。中共国海关将立陶宛从贸易地图中删除，导致立陶宛的商品不能通过中共国海关进入港口，进口申请被拒绝。立陶宛正寻求欧盟的介入和协调解决与中共国的经贸难题，集体反制北京。但是，尽管农林牧等产品对中共国的输出受阻，但生物科技等技术门槛较高的产品则几乎不受影响。
 
-丹尼尔·长濑（Dr.Daniel Nagase）医生介绍到：
+立陶宛高科技领域不受中共影响。中共一直以来都是采用伤敌一千，自损八百的报复手段打击对手，甚至对方毫发无伤，自己伤痕累累也在所不惜，因为中共付出的都是老百姓的财产和身家性命，中共盗国贼家族的私生子女和巨额财富已经藏匿到海外。弹丸小国立陶宛强硬抵制北京冬奥会，奥委会则沦为了中共的马前卒。
 
-梅尔·布鲁赫特（Mel Bruchet）医生，他联系了整个温哥华的医护人员。有一些是在妇幼医院工作的助产士，他们在24小时内见证了13个死胎。
+新闻参考链接：[https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/cl-12032021112646.html](https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/cl-12032021112646.html)
 
-（为了抗议）在24小时内（出现）13名死胎，人们在温哥华不列颠哥伦比亚狮门医院集会。
+编辑：胖丁
 
-梅尔·布鲁赫特（Mel bruchet ）医生，有超过50年的家庭医生经验。
+* * *
 
-他说：“我们知道，这13个婴儿已经死亡。”
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-视频字幕：
 
-我那8个半月还未出生的孙子，刚刚在温哥华的一家医院死了。我女儿一个月前接种了该死的毒疫苗，因为她不能去餐馆，对于她没有接种疫苗，人们感到十分害怕。我想起诉政府。
+编辑：【英国伦敦喜庄园编辑部】
 
-这是在北温哥华的狮门集会。非常感谢大家的祈祷。
-
-丹尼尔·长濑医生：在安大略省滑铁卢市，我有一个比较可靠的统计数字：1月至7月间有86个死胎，而通常每年只有五、六个死胎。大约每两个月一个死胎是通常的比率，所以突然在六个月内达到86个死胎，这是很不寻常的。
-
-但是，我们从安大略省滑铁卢市的报告中得到的最重要的确定的信息是：所有的86个死胎（的母亲）都完全接种了疫苗。
-
-采访者：完全接种疫苗的母亲们。
-
-丹尼尔·长濑医生：是的。
-
-视频链接：[https://www.bitchute.com/video/DhyRC0q6zIZj/](https://www.bitchute.com/video/DhyRC0q6zIZj/)
-
-***发布：Candy***
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

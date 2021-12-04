@@ -2,10 +2,10 @@
 ---
 
 
-## 澳大利亚煤炭市场是时候脱离中共国
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1718285/)
+## 超过一半美国人认为中共国是美国的头号威胁
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1718289/)
 
-11/30/2021 澳洲评论员麦克斯温表示澳大利亚煤炭市场是时候脱离中共国了，她还说：“中共两面三刀，才不会在乎我们怎么想。”基载电力的短缺迫使中共上月不得不从澳洲进口了近3百万吨煤炭。
+12/01/2021 福克斯：Beacon Research的一项最新调查显示，超过一半的美国人认为中共国是美国的头号威胁。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
