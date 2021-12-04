@@ -2,42 +2,37 @@
 ---
 
 
-## 维多利亚州大流行病权力立法的批评者说，争取自由的斗争还没有结束
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1717306/)
+## 加拿大对所有乘机抵达的旅客进行新冠测试和隔离
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1717490/)
 
-**翻译：小鱼儿
-编辑：Candy**
+作者：纽约香草山教育部 – Naughty(文行)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/rebel.png)图片来源：rebel网
+![This image has an empty alt attribute; its file name is image-40-3.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
 
 
-迟来的法案修改工作，并不足以安抚公众的担忧。
 
-最近被誉为维多利亚州 “自由英雄 “的反叛工党议员阿德姆·索米尤里克，在丹尼尔·安德鲁斯成功通过紧急大流行病立法后，表达了他对民主的关注。
+发现新冠病毒新变种后，加拿大要求除来自美国的航空旅客外，所有进入加拿大的航空旅客不论是否已经接种新冠疫苗，现在都需要在抵达机场时接受新冠病毒检测并隔离，直到他们获得测试结果。 加拿大卫生部长表示，政府将于周二晚上与各省和地区协商，准备为来自美国的旅客采取类似措施。 此外加拿大还对南非、莫桑比克、博茨瓦纳、津巴布韦、莱索托、纳米比亚、史瓦帝尼、埃及、马拉维和尼日利亚十个非洲国家施行旅行禁令。 对最近在这10个国家旅行的加拿大人和永久居民将施行强制隔离。 最后，加拿大政府要求国家免疫咨询委员会考虑是否应该要求到加拿大的旅行者接种新冠疫苗加强针。
 
-虽然跨党派人士通过谈判对《2021年公共卫生和福利修正案（大流行病管理）法案》进行了一些修改，但法律专家和持反对意见的政治家指出，该法案最糟糕的特征仍然进入了法律。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2021-12-03-2.jpg)图片来自网络
 
-修订后的法案赋予州长和卫生部长，而不是首席卫生官，前所未有的权力来宣布大流行病。
+参考来源：
 
-在他们全权宣布的健康危机期间，他们可以随意执行一系列全面的限制和滚动封锁。
+[All travellers arriving by air, except from U.S., must now test at airport](https://torontosun.com/news/national/unvaccinated-travellers-barred-from-planes-and-trains-as-of-today?utm_source=ground.news&amp;utm_medium=referral)
 
-该法案在动物正义党议员安迪·梅迪克、绿党议员萨曼莎·拉特纳姆、理性党议员菲奥娜·彭定康的支持下获得通过，而交通事务议员罗德·巴顿在最后一刻的投票也颇具争议。
+总编: 飞虹
 
-几个星期以来，包含50万人的人群聚集在维多利亚州议会的台阶上，抗议该法案中包含的全面和前所未有的权力。
+校对/发稿：Petite abeille
 
-总理多次表示，在澳大利亚，除了危重病人和老年护理行业，科威德疫苗不是强制性的。然而，由于各州政府带来他们自己的全面的疫苗强制规定，导致一系列行业中的数千人被解雇。
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-维多利亚州影子财长戴维斯重申了自由党领袖马修·盖伊此前的承诺，即：如果当选，自由党将废除大流行病立法。
+![This image has an empty alt attribute; its file name is Gnews-Logo-36-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
-参考新闻：[http://Critics of Victoria’s pandemic powers legislation say the fight for freedom is not over yet](http://Critics%20of%20Victoria's%20pandemic%20powers%20legislation%20say%20the%20fight%20for%20freedom%20is%20not%20over%20yet)
 
-***发布：Candy***
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
