@@ -2,34 +2,49 @@
 ---
 
 
-## 【视频】至暗时刻 &#8212; 《疫苗大灾难》
-` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1720265/)
+## 标准普尔500指数本周表现不佳，未来走势堪忧
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1720450/)
 
-#### 加拿大温哥华扬帆农场 枫叶视频组 凯路团队出品
+作者：纽约香草山农场 – 四季
 
-人类的至暗时刻已经来临。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-2017年10月5日，郭文贵先生对世界的警示：来自中共盗国贼的黑夜已经来临。
 
-2019年6月13日，郭文贵先生告诉世界中共要释放生化武器病毒，向世界预警中共生化武器病毒的到来。
 
-2020年2月8日，郭文贵先生用绝对的情报告诉世界， 中共病毒是手段，疫苗才是真正的目的， 疫苗的目的是对人类的谋杀，对人类种族的灭绝，对人类大量人口的减少。
 
-今天，世界已经进入黑暗。在这至暗时刻，唯有爆料革命、新中国联邦，告诉世界正在发生的疫苗真相。 新中国联邦真正拯救世界，拯救人类。
 
-*校对、上传：文永*
+[零对冲](https://www.zerohedge.com/markets/sp-500-futures-had-bad-week-worse-lies-ahead)12月3日引用彭博实时市场评论员及分析师马克·克兰菲尔德（Mark Cranfield）的分析指出，从感恩节后的熔断开始，标准普尔500指数期货在经历了一周的鞭打式交易后明显看跌。
 
-* * *
+尽管该指数并不是单边走低，但该合约的盘中反弹已经在较低的峰值处消退。图中显示的帽子顶部给短线交易者提示了足够清晰的信号，即资产是否被定格在下降通道上。
 
-更多加拿大温哥华杨帆农场的频道，请关注：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1604.jpg)图片来源见水印
 
-- [GTV: 加拿大温哥华扬帆农场](https://gtv.org/user/5ed43fa02e3bf86d8d0efa12)
-- [GTV: 加拿大温哥华扬帆农场蓝枫法律](https://gtv.org/user/605e97e8a54f827240b8048a)
-- [GTV: 加拿大温哥华扬帆农场枫叶财经](https://gtv.org/user/5f359954313eaf1e3716cfc1)
-- [加拿大温哥华扬帆农场discord](https://discord.gg/7e6dMdEN)
-- [GETTR: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+尽管非农就业数据的确不及预期，但美联储也不会偏离其紧缩政策。分析师预计，标准普尔期货从11月的峰值开始下跌，看起来像是长期走低的转折点，这将为明年的全球熊市奠定基础。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Canada_MPL_banner-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月.png)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

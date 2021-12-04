@@ -2,65 +2,20 @@
 ---
 
 
-## Hcoin To the Moon 上线第2天位列14国iTunes摇滚音乐榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1720105/)
+## 英国再增Omicron案例 过半数感染者完成两剂接种
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1720280/)
 
-12/04/2021 郭文贵先生的歌曲Hcoin To the Moon上线第2天位列14国iTunes摇滚音乐榜首
+栏目作者：焦点20分
 
-* * *
+据英国天空新闻最新报道，英国再新增75个 Omicron感染案例，目前该新变种感染案例本土已达到104例。英国健康安全机构表示，过半的Omicron感染者已经完成了第二针疫苗的注射。
 
-[【PDF 下载】Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+报道也指出之前大部分Delta感染案例也是在完全接种的人之间传染。目前，英国12岁以上人群有超过80%完成了第二针的注射
 
-* * *
+英国的数据表明，新冠病毒疫苗是一个彻底的谎言，疫苗不仅起不到任何抵抗病毒的作用，反而造成的伤害数倍于病毒。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_2.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_3.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_4.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_6.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_8.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_11.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_12.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_13.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_14.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_15.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_16.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_17.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_18.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_19.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_20.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_21.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_22.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_23.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_24.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_25.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_26.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_27.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_28.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_29.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_30.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_31.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_32.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_33.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_34.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_35.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_36.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_39.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_40.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_41.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_42.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_43.jpg)
+原文链接： [https://news.sky.com/story/covid-19-over-half-of-uk-omicron-cases-happened-after-two-jabs-as-ukhsa-releases-risk-assessment-12485607](https://news.sky.com/story/covid-19-over-half-of-uk-omicron-cases-happened-after-two-jabs-as-ukhsa-releases-risk-assessment-12485607)
 
-
-[【PDF 下载】Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+上传：零点
 
  
 

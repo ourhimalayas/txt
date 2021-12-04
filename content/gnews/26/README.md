@@ -2,28 +2,12 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月4日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1719892/)
+## 儿科医生斯特芬·拉贝(Dr. Steffen Rabe)坚决反对在德国强制接种中共病毒疫苗
+` MG 澳喜农场多语组` [轉載自GNews](https://gnews.org/zh-hans/1719988/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-109-1280x172-1-2-1.jpg)
+儿科医生斯特芬·拉贝医师坚决反对在德国强制接种中共病毒疫苗。在他看来，这种强制性的疫苗接种 “在法律上、道德上和医学上都没有任何意义”。疫苗接种不仅无法提供相关的外部保护，反而导致非常高风险的心肌炎症。因此，强制接种疫苗将违反最重要的基本法律之一，即身体自主权。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-2.png)
-文章仅代表作者本人观点，与Gnews无关
-
-视频参看：[2021.12.04早GTV新闻访谈](https://gtv.org/broadcast/watch/61ab6ce5bbd75f62e52edc26)
-
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-69.jpeg)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+原视频链接：[https://www.mdr.de/mdr-aktuell-nachrichtenradio/audio/audio-1891596.html](https://www.mdr.de/mdr-aktuell-nachrichtenradio/audio/audio-1891596.html)
 
  
 
