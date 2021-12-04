@@ -2,10 +2,10 @@
 ---
 
 
-## 河南省构建世上最复杂的监控网络追踪记者和国际学生
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1718194/)
+## 奥密克戎变体刚出现，中共官员就已准备好相应疫苗？
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1718287/)
 
-11/30/2021 WION新闻网：中共国河南省构建世界上最复杂的监控网络用于追踪记者和国际学生；习近平越来越收紧媒体的掌控。
+11/30/2021 奥密克戎变体刚刚出现，怎么中共官员就已经准备好了相应的疫苗？
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

@@ -2,10 +2,10 @@
 ---
 
 
-## 习近平通过提供10亿剂疫苗控制非洲经济
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1718196/)
+## 超过一半美国人认为中共国是美国的头号威胁
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1718289/)
 
-11/29/2021 在中共国的债务陷阱外交中，中共引诱穷国借贷无法偿还的巨额债务，从而控制这些国家的资产；中共通过提供10亿剂疫苗来控制非洲经济。
+12/01/2021 福克斯：Beacon Research的一项最新调查显示，超过一半的美国人认为中共国是美国的头号威胁。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
