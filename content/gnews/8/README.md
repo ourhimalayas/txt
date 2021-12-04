@@ -2,40 +2,48 @@
 ---
 
 
-## 罗克瑟姆路重新开放：对非法移民进行检测和隔离是保密的
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1717392/)
+## 纽约市宣布对私立和宗教学校的雇员实行疫苗强制令
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1717484/)
 
-罗克瑟姆路是非法越境的边界，但任何申请政治庇护的人都可以这样做。
+作者：纽约香草山农场 – 四季
 
-自 2017 年以来，非法越境进入加拿大的数量激增。成千上万的人涌入，他们担心会被特朗普政府驱逐出境。2017 年至 2019 年初，超过 50,000 人非法越境进入加拿大。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-为了维护我们的边境，我们必须每天 24 小时安排工作人员，不仅在边境，而且在隔离点。此外，还有吃、电、水、交通、住宿等费用，这些都是纳税人出的！
 
-这相当于每年数百万美元。
 
-随着大流行，这条边界应该停止运作，但事实并非如此。
 
-边境最近重新开放；我们去核实了下罗克瑟姆路是否仍在运作。我们调查显示了这个地方是如何受到高度监视的。几个人要求我们离开，有的报警，有的甚至用恐吓手段！
 
-我们拍摄了装有大量行李的集装箱图像。我们与几个人交谈以了解有关该地区正在发生的事情的一些信息，甚至还拍了一些航拍照片以便更好地了解。
+据[网关专家](https://www.thegatewaypundit.com/2021/12/new-york-city-imposes-covid-vaccine-mandate-employees-private-religious-schools/)12月2日报道，纽约市市长白思豪周四宣布了一项针对私立和宗教学校雇员的疫苗强制令，要求工作人员在12月20日之前接种第一针疫苗。这项命令影响到900多所学校的约56000名雇员。
 
-（文章仅代表作者个人观点）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1592-1.jpg)图片来源：网关专家
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+纽约早前已经下达了一些最严格的疫苗强制措施。纽约市的餐馆、剧院和健身房要求顾客出示疫苗护照才能进入。
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)](https://www.gettr.com/user/7UPgogo)
+然而，尽管有疫苗强制令和疫苗护照，纽约的中共病毒病例仍在一年内首次突破了11000例。于此同时，在没有疫苗强制规定的佛罗里达州，其人均日患病例数却反而最低。
 
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月.png)
 
-**关注我们**
+编辑/校对/发稿：小鹿
 
-Discord 账号
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-Gettr 账号
+**更多资讯，更多关注**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 

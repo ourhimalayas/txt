@@ -15,76 +15,76 @@
 
 ---
 
-### [加拿大对所有乘机抵达的旅客进行新冠测试和隔离](/content/gnews/1/README.md)
+### [诺曼议员提案要求FDA公布中共病毒疫苗数据](/content/gnews/1/README.md)
+ ` HimalayaRussia`
+
+### [福建大面积停电事件应急演练，习近平这是想干什么呢？](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [科学清晰表明：更高的中共病毒疫苗接种覆盖率等于更高的超常死亡率](/content/gnews/3/README.md)
+ ` 波士顿五月花农场`
+
+### [担忧医疗数据泄露澳大利亚正在审核一项从中共购买医疗设备的协议](/content/gnews/4/README.md)
+ ` 澳喜农场`
+
+### [加拿大生活美谈 2021-11-25第三十一期](/content/gnews/5/README.md)
+ ` canadalifetalk`
+
+### [俄勒冈州最大的企业雇主英特尔将1月4日设为强制性疫苗截止日期](/content/gnews/6/README.md)
+ ` MG FARM`
+
+### [加拿大对所有乘机抵达的旅客进行新冠测试和隔离](/content/gnews/7/README.md)
  ` 纽约香草山MOS01`
 
-### [纽约市宣布对私立和宗教学校的雇员实行疫苗强制令](/content/gnews/2/README.md)
+### [纽约市宣布对私立和宗教学校的雇员实行疫苗强制令](/content/gnews/8/README.md)
  ` 纽约香草山MOS02`
 
-### [南非研究人员声称：新病毒传染性低，但免疫突破力更强](/content/gnews/3/README.md)
+### [南非研究人员声称：新病毒传染性低，但免疫突破力更强](/content/gnews/9/README.md)
  ` 日本东京方舟农场`
 
-### [重磅！新中国联邦拿下伦敦最老子号赌场Palacegate Casino赌牌、酒牌](/content/gnews/4/README.md)
+### [重磅！新中国联邦拿下伦敦最老子号赌场Palacegate Casino赌牌、酒牌](/content/gnews/10/README.md)
  ` YALUN 亚伦`
 
-### [芝加哥的学校厕所将不分性别](/content/gnews/5/README.md)
+### [芝加哥的学校厕所将不分性别](/content/gnews/11/README.md)
  ` MG FARM`
 
-### [中共拟推新法加高防火墙严惩翻墙民众](/content/gnews/6/README.md)
+### [中共拟推新法加高防火墙严惩翻墙民众](/content/gnews/12/README.md)
  ` 纽约香草山MOS01`
 
-### [观1120三周年《文贵大直播》有感](/content/gnews/7/README.md)
+### [观1120三周年《文贵大直播》有感](/content/gnews/13/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [罗克瑟姆路重新开放：对非法移民进行检测和隔离是保密的](/content/gnews/8/README.md)
+### [罗克瑟姆路重新开放：对非法移民进行检测和隔离是保密的](/content/gnews/14/README.md)
  ` MG FARM`
 
-### [医生讨论伊维菌素在印度的成功，质疑加拿大的新冠治疗方法](/content/gnews/9/README.md)
+### [医生讨论伊维菌素在印度的成功，质疑加拿大的新冠治疗方法](/content/gnews/15/README.md)
  ` MG FARM`
 
-### [12.03文贵爆料 CCP释放奥密克戎病毒意在台湾](/content/gnews/10/README.md)
+### [12.03文贵爆料 CCP释放奥密克戎病毒意在台湾](/content/gnews/16/README.md)
  ` 秘密翻译组-原创组`
 
-### [秘翻在线: 中共政府传唤许家印督促风险处置](/content/gnews/11/README.md)
+### [秘翻在线: 中共政府传唤许家印督促风险处置](/content/gnews/17/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [《蓝枫法律》第三十四期 金融税务专题](/content/gnews/12/README.md)
+### [《蓝枫法律》第三十四期 金融税务专题](/content/gnews/18/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [犯罪阴谋揭开：辉瑞和政府隐瞒了由实验性冠状病毒刺戳造成的数千人死亡和大规模伤害](/content/gnews/13/README.md)
+### [犯罪阴谋揭开：辉瑞和政府隐瞒了由实验性冠状病毒刺戳造成的数千人死亡和大规模伤害](/content/gnews/19/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [爆炸性新闻：OMICRON 能否治愈 Covid？ 具有“轻度”症状的高传染性毒株可以在全球范围内提供天然免疫力并使疫苗过时](/content/gnews/14/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [郭先生：所有强制打疫苗的政客都跟中共有勾结](/content/gnews/15/README.md)
- ` MG 澳喜农场多语组`
-
-### [维多利亚州大流行病权力立法的批评者说，争取自由的斗争还没有结束](/content/gnews/16/README.md)
+### [维多利亚州大流行病权力立法的批评者说，争取自由的斗争还没有结束](/content/gnews/20/README.md)
  ` 走进澳洲`
 
-### [德国宣布计划对未接种疫苗者施行人口限制](/content/gnews/17/README.md)
- ` MG FARM`
-
-### [焦点：FDA和辉瑞共同掩盖数万起疫苗不良事件](/content/gnews/18/README.md)
- ` 丁过`
-
-### [在新冠测试呈阳性后，卡拉哈里奥斯被立法机关禁止90天](/content/gnews/19/README.md)
- ` MG FARM`
-
-### [DC大中华时事：美证交会要求在美上市中企披露更多信息](/content/gnews/20/README.md)
+### [DC大中华时事：美证交会要求在美上市中企披露更多信息](/content/gnews/21/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [七哥谈宗教和信仰的区别](/content/gnews/21/README.md)
+### [七哥谈宗教和信仰的区别](/content/gnews/22/README.md)
  ` MG FARM`
 
-### [文贵爆料 12.3：拨云见日——两个月后疫苗灾难将会终止](/content/gnews/22/README.md)
+### [文贵爆料 12.3：拨云见日——两个月后疫苗灾难将会终止](/content/gnews/23/README.md)
  ` 秘密翻译组-原创组`
 
-### [【文贵先生大直播PPT】墙内战友重磅爆料实录](/content/gnews/23/README.md)
- ` Mr. Miles Guo's News Briefing`
-
-### [【文贵先生大直播PPT】Himalaya Pay 台湾团队业务进展](/content/gnews/24/README.md)
+### [【文贵先生大直播PPT】墙内战友重磅爆料实录](/content/gnews/24/README.md)
  ` Mr. Miles Guo's News Briefing`
 
 ### [2021年12月3日文贵先生直播小飞象大雨围城速记](/content/gnews/25/README.md)
