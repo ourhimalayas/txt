@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/4/2021 4:42 AM (UTC)`
+
+12/3/2021 Miles Guo: The CCP’s COVID vaccines lead to the sudden onset of various cancers in the senior people, increase sudden deaths in the young adults, and cause uterine, ovarian, and breast cancer in women; vaccinating children will lead to precocious puberty and cancer, and children in Communist China would rather not go to school than get the COVID jabs!<br/><br/>12/3/2021 文贵直播：中共疫苗导致老年人突发多种癌症，中年壮年猝死率陡增，女性得子宫癌、卵巢癌和乳腺癌；给孩子打疫苗将导致早熟和癌症，国内孩子宁愿不上学也不要打疫苗！<br/>
+![img](https://media.gettr.com/group27/getter/2021/12/04/04/42/09dfb92f-1ddd-1f1d-d156-ff48a830225e/out.jpg)
+
+---
+
 `@miles 12/4/2021 4:03 AM (UTC)`
 
 12/3/2021 Miles Guo: Who did Xi Jinping meet with between August 1 and 16, 2021? And for how long? The first person Xi met, Song Ping, was Hu Jintao's godfather and the “king of the left” in the CCP<br/><br/>12/3/2021 文贵直播：2021年8月1日到16日之间，习近平见了谁？见了多久？习第一个看望的宋平是胡锦涛的教父、左派之王<br/>
@@ -149,13 +156,6 @@ CZ_Binance's acquisition of a Swiss bank failed!<br/>Where is Binance's money? 6
 
 12月1号：新病毒到达美国的时间！和我预测的时间相差多少？兄弟姐妹们！
 ![img](https://media.gettr.com/group31/getter/2021/12/01/19/35/d97fae29-35da-020e-fd04-e9aa19ec080e/6e3423673f0be53e25570ee7856356ad.jpg)
-
----
-
-`@miles 12/1/2021 1:13 PM (UTC)`
-
-2021年12月1日 文贵大直播：香港股市经济；澳门地下钱庄；变种病毒疫苗；数字货币监管
-![img](https://media.gettr.com/group5/origin/2021/12/01/12/83bb6743-7284-88dd-e6ee-bca369e4ce5d/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
