@@ -2,34 +2,36 @@
 ---
 
 
-## 日本要闻汇编 12月4日
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1719532/)
+## 有声|欧洲某金融强国主动给予喜联储数字银行牌照，与中共决裂
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1719562/)
 
-素材：东京樱花团｜GNEWS组
-![](https://assets.gnews.org/wp-content/uploads/2021/12/pasted-image-0-1.png)[*图片来源*](https://gdb.voanews.com/E90F90B4-708F-413E-A367-34F4E69E9505_w1597_n_r1_st.jpg)
-1、[**安倍就引发中方不满言论称今后将继续**](https://china.kyodonews.net/news/2021/12/3c91517a4a50.html)
+配音：香草山美食部 – 玫瑰园
 
-共同社4日消息、日本前首相安倍晋三称“台湾出现突发事态就是日本出现突发事态”的言论引发中国政府不满，他本人3日在网络节目中就此表示：“明确表达想法才能防止冲突。今后将继续说该说的话。”他还表示：“一名国会议员的发言受到关注，不胜荣幸。”
 
-2、[**美日防长通话强调维持地区威慑力**](https://www.voachinese.com/a/us-defense-secretary-talks-regional-stability-with-japanese-counterpart-20211203/6339180.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+12月1日，郭文贵先生在大直播中透露，三周前收到某欧洲国家元首的电话表示，“我们这个国家，决定给喜联储一个数字银行牌照”。郭先生指出，一个数字银行牌照意味着巨大的利益，甚至比喜联储还值钱。目前一切都在按部就班地走程序中，还需要四周时间完成，但这位国家元首已用自己的私人手机发来签完字的文件。
 
-美国国防部长劳埃德·奥斯汀周五(3日)与日本防卫大臣岸信夫通了电话，两位官员“讨论了深化防务合作以维持地区威慑力的努力”，承诺深化合作，同意很快进行新一轮的安全磋商。
+这将是世界上第一个主权国家批准的数字银行牌照，这个牌照在欧洲，这个国家是在世界金融领域排名前三的国家。对新中国联邦来说，这是拥有国家银行、国家储备系统和法币链接的最稳定的桥梁，而且排除了中转行。此事意义深远，同时也意味着这个国家将和中共决裂。
 
-3、[**盐野义制药启动新冠疫苗第3剂次临床试验**](https://www3.nhk.or.jp/nhkworld/zh/news/336334/)
+文字版原文：[欧洲某金融强国主动给予喜联储数字银行牌照，与中共决裂](https://gnews.org/zh-hans/1712857/)
 
-总部设在大阪的日本盐野义制药公司宣布，已经于3日启动日本国产新冠疫苗第3剂次，即加强针的临床试验。该试验将汇总100名盐野义疫苗第3剂次受试者的数据，将其与100名辉瑞疫苗第3剂次接种者的数据进行比对，以此评估疫苗的安全性和有效性。受试者为完成前两次接种半年以上的人群。
+音频处理：喜山必胜Maverick
+发稿：Tom Li
+[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
+**更多资讯，更多关注**
 
-4、[**NEC将推出“刷脸”确认疫苗接种史的系统**](https://china.kyodonews.net/news/2021/12/18dfe0e0d06b-nec.html)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-NEC公司3日透露称将正式推出“刷脸”确认新冠疫苗接种史的系统。该系统的用户需要在同意的基础上事先登记接种史等信息以及脸部照片，在旅游设施等的入口处把脸对准摄像头，只需几秒钟就可完成确认程序。据悉人脸识别的精确度即使带着口罩也能达到99.9%。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-5、[**默克新冠口服药首次在日申请使用**](https://china.kyodonews.net/news/2021/12/eb21496add9b.html)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-共同社3日消息、关于美国制药巨头默克公司开发的新冠口服药物“莫那比拉韦”，日本法人默沙东（MSD）3日向厚生劳动省提出申请，希望作为特例批准迅速推进审查。据相关人士称，厚劳省本月中旬将召开专门小组会，判断是否予以批准。
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-*编辑：东京樱花团 / 文小白
-发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,42 +2,34 @@
 ---
 
 
-## 向5-11岁的小朋友打疫苗，这是杀戮儿童！
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1720255/)
+## 家庭反洗脑序列：第38篇 曾经的癌，如今的苗
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1720349/)
 
-作者： 加拿大温哥华扬帆农场 Michael.Tonny
-![](https://assets.gnews.org/wp-content/uploads/2021/11/michael-3-1.jpg)
-很多国家，尤其是中共国，正在强制5-11岁的小朋友打疫苗，这杀戮儿童！德国政界和各州州长11月30日召开新冠会议，也在酝酿限制交际和强制全民接种疫苗政策。
+作者：随风61
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-10-1.jpg)图片来源：haodf.com
+“……国内甲状腺癌发病率高与长期过量服用碘盐有关。由于生活水平的提高，人们从食物中，特别是海产品中就可以获得身体所需要的碘，如果摄入超量，会引发甲状腺癌……”我一边做饭一边听着GTV。
 
-CCP治下的中共国，到处充满谎言和欺骗的CCP官场，任何数据都可以造假，想直接从中共国官方得到数据来佐证如此明显的事实，恐怕就是总加速师也未必能得到准确的数据。但德国和英国的官方统计数据，证明强制儿童注射疫苗，是多么疯狂的举动！
+25年前的一幕又出现在我眼前，我躺在手术台上，头担在手术床外面，脖子卡在手术台上，动弹不得，像一只待宰的羔羊。我头脑清晰，但身体僵硬，喉头像塞了一团棉絮，有时我想睁开眼睛看看，但做不到……
 
-来自medrxiv上的一篇未被公布的18页论文报告显示，在2020年3月至2021年5月期间，德国健康儿童死于中共病毒的人数为0！
+手术中，大约每隔20分钟医生就叫一次我的名字，我只能发出一个短促、含混的音——“嗯”。又过一会医生会问我：“疼不疼？”我想回答“疼”，当“疼”的音发出时，听起来更像“嗯”，我想，即便是医生听成“嗯”也足以能表明我的意思，医生大声清楚的告诉我：“我再给你些麻药。”我不清楚他怎样给我麻药，我只是记得当时疼痛一点都没有减轻。三个多小时的手术在“嗯、疼、加点麻药、马上就好……”的声音中，我几乎能数出在那个柔软、细弱的地方被切了多少刀。术后我知道，甲状腺癌病灶切除术是不能全麻醉的，因为甲状腺体和声带挨得很近，病人和医生之间的交流，会帮助医生手术实施的更精准。
 
-[Medrxiv](https://www.medrxiv.org/)（The Preprint Sever for Health Sciences），中文名：健康科学预印本服务器。预印本，是未经同行评审认证的初步（或原始）工作报告。
+术后康复期间，我知道，在我认识的人里有两位女性——一位年轻，另一位是年长者，和我一样得了甲状腺癌，都做了手术。年轻的那位，术后，声音嘶哑，很多年都没有恢复。年长者癌转移到淋巴，六年后辞世。
 
-根据这篇由德国所有儿童医院、儿科传染病专家和儿科协会共同发表的《[Risk of Hospitalization, severe disease, and mortality due to COVID-19 and PIMS-TS in children with SARS-CoV-2 infection in Germany](https://www.medrxiv.org/content/10.1101/2021.11.30.21267048v1.full.pdf)》报告显示， CCP病毒开始在德国传播的前15个月，在总数为1000万左右的5至18岁的德国儿童和青少年中，没有任何一个人死于中共病毒。即使加上这个年龄段的有（其它）疾病的儿童和青少年后，也总共只有6人死亡。这段时间内，18岁以下的德国人中，仅有14人名死于中共病毒，其中还有8名婴幼儿死亡，有5名有既往病史者。
+我不是医生，也没有做过任何研究——是否我的病和碘盐有关。但有一点我很清楚，我们的超市里有很长一段时间只有加碘盐，没有其它选项，我几十年来一直吃的都是加碘盐。最近五、六年出现了，镁盐、钠盐等。到现在也没有无任何添加的普通盐。
 
-在这期间，约有150万德国儿童或青少年感染过中共病毒，其中，5-11岁的健康儿童需要接受重症监护的几率约为50,000分之一，而12-18岁的青少年或年龄小于5岁的小孩需要重症监护的几率8,000 分之一。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2021.11.30.21267048v1-scaled.jpg)
-英国研究人员发布了类似的报告，在英国1200万儿童中仅有6名18岁以下的健康儿童或青少年死于中共病毒。
+我身边有些在饮食方面很讲究的人，他们不吃盐，或者吃少量的进口食盐。譬如我有一位从医的朋友，自从他得知自己患有高血压病后，首先就是断了食用盐，其次就是不服用任何降压药，很多年了他一直保持正常血压。
 
-笔者根据英国政府官方机构[office for national statstics](https://www.ons.gov.uk/)发布的周统计数据分析，自2021年第10周起，英国每百万未接种疫苗的人群因CCP毒而死亡的机率明显比每百万至少接种一针疫苗的人群死亡机率低得多。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Weekly-age-standardised-mortality-rates.jpg)
-文章的最后，让我们来看看英国打一针和两针疫苗死亡率的巨大差异吧，不知道看完你有没有疫苗打得越多，死得越快的感觉？
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Weekly-age-standardised-mortality-rates2.jpg)
-参考资料：
+郭先生在视频中也说过，他不吃盐，只是少量用些日本酱油。
 
-[德国将全民接种疫苗？](https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20211130-%E5%BE%B7%E5%9B%BD%E5%B0%86%E5%85%A8%E6%B0%91%E6%8E%A5%E7%A7%8D%E7%96%AB%E8%8B%97)
+在我的成长环境中，家庭、学校和社会给我们的是既成事实的生活经验，再配以电视媒体和网络的宣传普及，还有太多的广告科学和专家为你重点辅导……
 
-[Huge new study shows ZERO Covid deaths of healthy German kids over 4 or adolescents](https://alexberenson.substack.com/p/huge-new-study-shows-zero-covid-deaths)
+作为存活的癌症患者，我要感谢当初化疗之初输液跑液后看到整条手臂黑紫色的惊恐，爱人自作主张坚决拒绝化疗的“荒唐”决定。如今我更要感恩郭文贵先生引领的爆料革命赐予我的一对聪耳一双慧眼和一颗明心，让我没有接种冠状病毒疫苗，让我全家老少三代都没有。
 
-[Vaccinated English adults under 60 are dying at twice the rate of unvaccinated people the same age](https://alexberenson.substack.com/p/vaccinated-english-adults-under-60)
+*审核：Aries的星
+校对：阿伯塔
+发布：信心的选择*
 
-[Risk of Hospitalization, severe disease, and mortality due to COVID-19 and PIMS-TS in children with SARS-CoV-2 infection in Germany](https://www.medrxiv.org/content/10.1101/2021.11.30.21267048v1.full.pdf)
-
-[Deaths occurring between 2 January and 24 September 2021 edition of this dataset](https://www.ons.gov.uk/file?uri=%2fpeoplepopulationandcommunity%2fbirthsdeathsandmarriages%2fdeaths%2fdatasets%2fdeathsbyvaccinationstatusengland%2fdeathsoccurringbetween2januaryand24september2021/datasetfinalcorrected3.xlsx)
-
-编辑：Michael.Tonny 上传：Michael.Tonny
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3.jpeg)
 
  
 
