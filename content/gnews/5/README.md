@@ -2,27 +2,34 @@
 ---
 
 
-## 悉尼一所中学再确诊两例Omicron变种病毒
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1719257/)
+## 日本要闻汇编 12月4日
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1719532/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2021/12/124H.jpg)网络图片
-新南威尔士州卫生当局正在努力控制与悉尼一所学校有关的冠状病毒 Omicron 变体的爆发。周五晚些时候，新南威尔士州又发现了两起 Omicron 变体的新病例，均为来自悉尼摄政公园基督教学校（Regents Park Christian School）的九年级学生。
+素材：东京樱花团｜GNEWS组
+![](https://assets.gnews.org/wp-content/uploads/2021/12/pasted-image-0-1.png)[*图片来源*](https://gdb.voanews.com/E90F90B4-708F-413E-A367-34F4E69E9505_w1597_n_r1_st.jpg)
+1、[**安倍就引发中方不满言论称今后将继续**](https://china.kyodonews.net/news/2021/12/3c91517a4a50.html)
 
-相关机构目前并不清楚这些高中生是如何感染病毒的，他们没有最近的海外旅行史，也没有与最近去过国外的任何人有联系。任何在 11 月 27 日星期六上午 9 点至下午 4 点 30 分参加维拉伍德悉尼室内攀岩馆（Sydney Indoor Climbing Gym in Villawood）的人现在都被判定为密切接触者。
+共同社4日消息、日本前首相安倍晋三称“台湾出现突发事态就是日本出现突发事态”的言论引发中国政府不满，他本人3日在网络节目中就此表示：“明确表达想法才能防止冲突。今后将继续说该说的话。”他还表示：“一名国会议员的发言受到关注，不胜荣幸。”
 
-学校疫情爆发表明 Omicron 正在社区中移动，新南威尔士州卫生部长布拉德·哈扎德 (Brad Hazzard) 表示，当局“不知道”学生是如何感染这种变异的。涉事学校年内都将处于关闭状态，所有教职员工和学生都已被确定为密切接触者，需要接受检测和自我隔离。
+2、[**美日防长通话强调维持地区威慑力**](https://www.voachinese.com/a/us-defense-secretary-talks-regional-stability-with-japanese-counterpart-20211203/6339180.html)
 
-于此同时，澳大利亚首都领地内也确认了一例Omicron病毒携带者。该患者已全面接种疫苗，于 12 月 1 日检测得到阳性结果。
+美国国防部长劳埃德·奥斯汀周五(3日)与日本防卫大臣岸信夫通了电话，两位官员“讨论了深化防务合作以维持地区威慑力的努力”，承诺深化合作，同意很快进行新一轮的安全磋商。
 
-首都领地政府在一份声明中说：“目前尚不清楚该病例是否与新南威尔士的Omicron爆发存在关联……此人没有出国旅行史。”
+3、[**盐野义制药启动新冠疫苗第3剂次临床试验**](https://www3.nhk.or.jp/nhkworld/zh/news/336334/)
 
-新南威尔士州在过去 24 小时内记录了 337 例 CCP病毒感染病例，这是数周以来的最高数字。新州总理多米尼克·佩罗特（Dominic Perrottet）承认，这一数字可能在未来会进一步上升。
+总部设在大阪的日本盐野义制药公司宣布，已经于3日启动日本国产新冠疫苗第3剂次，即加强针的临床试验。该试验将汇总100名盐野义疫苗第3剂次受试者的数据，将其与100名辉瑞疫苗第3剂次接种者的数据进行比对，以此评估疫苗的安全性和有效性。受试者为完成前两次接种半年以上的人群。
 
-新闻参考链接：
+4、[**NEC将推出“刷脸”确认疫苗接种史的系统**](https://china.kyodonews.net/news/2021/12/18dfe0e0d06b-nec.html)
 
-[9 news](https://www.9news.com.au/national/omicron-coronavirus-update-nsw-sydney-case-regents-park-school-covid19-numbers/6f1bd491-da36-4f75-87bb-a47c446c9864)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
+NEC公司3日透露称将正式推出“刷脸”确认新冠疫苗接种史的系统。该系统的用户需要在同意的基础上事先登记接种史等信息以及脸部照片，在旅游设施等的入口处把脸对准摄像头，只需几秒钟就可完成确认程序。据悉人脸识别的精确度即使带着口罩也能达到99.9%。
+
+5、[**默克新冠口服药首次在日申请使用**](https://china.kyodonews.net/news/2021/12/eb21496add9b.html)
+
+共同社3日消息、关于美国制药巨头默克公司开发的新冠口服药物“莫那比拉韦”，日本法人默沙东（MSD）3日向厚生劳动省提出申请，希望作为特例批准迅速推进审查。据相关人士称，厚劳省本月中旬将召开专门小组会，判断是否予以批准。
+
+*编辑：东京樱花团 / 文小白
+发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,22 +2,28 @@
 ---
 
 
-## 为逃避疫苗接种，欧洲越来越多人通过网络购买假疫苗护照
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1716872/)
+## 恒大宣布无法履行担保义务 违约开始
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1717802/)
 
-韩国首尔天池农场
-翻译：zzballack　
-上传：无明逆流
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Unknown-7.jpg)恒大宣布无法履行担保义务 违约开始 网络图片
+据网易新闻12月3日报道，陷入流动性危机挣扎近半年后，恒大地产集团3日发布公告称，“鉴于目前的流动性情况，本集团不确定是否拥有重组资金继续履行财务责任。”恒大集团负债共约两万亿元，其中包括192.36亿美元未到期的美元债。
 
-据《布雷特巴特新闻网》（Breitbart News）12月3日报道，意大利警方声称，网上销售的假疫苗护照数量激增，一些医生甚至可能参与了假证明的销售。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2E5766d-1eb78JYJ06e18f6755.jpg)图片来源：原新闻
-意大利热那亚（Genoa）的邮政总局局长卢西亚·姆斯卡里（Lucia Muscari）表示，参与买卖假疫苗护照的人越来越多，这个市场正在爆发式增长。姆斯卡里告诉瑞典电视台（SVT）：“那些想购买疫苗护照的人不仅根本不想接种疫苗，而且想在没进行核酸检测的情况下进入健身房和餐厅等公共场所以及工作场所。”
+恒大违约直至倒闭，这是瓜熟蒂落的结局。寿数到了，强撑也撑不住，何况中共已经没有能力再继续支撑。恒大倒下之后，带给中共国和世界经济的灾难，不可预料，且拭目以待。
 
-11月26日在米兰市，意大利金融警察突击检查并逮捕了几个人，缴获假疫苗护照。他们说这是在加密消息应用程序电报群（Telegram）上出售的，卖家只接受加密货币付款。警官法比奥·费拉里（Fabio Ferrari）说：“我们看到不仅在意大利，而且在整个欧洲，假疫苗护照的供需量都非常大。我们逮捕的一位17岁少年甚至与俄罗斯黑客合作。但是人们没有意识到，他们提供的身份证和病历文件等个人隐私信息，正被转卖到其它地方。”意大利警方还怀疑一些医务人员可能也在从事制造假疫苗证书。
+新闻参考链接：[https://c.m.163.com/news/a/GQARNBSR0539AP40.html?spss=newsapp](https://c.m.163.com/news/a/GQARNBSR0539AP40.html?spss=newsapp)
 
-疫苗护照是疫苗暴政的一部分。面对暴政，全世界的公民都有不服从的义务，假疫苗护照也是一种捍卫个人权利的反抗形式，但在此过程中一定要注意个人隐私信息的安全。
+* * *
 
-新闻来源：[Fake European Coronavirus Vaccine Passport Sales Surging Online](https://www.breitbart.com/europe/2021/12/03/fake-european-coronavirus-vaccine-passport-sales-surging-online/)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

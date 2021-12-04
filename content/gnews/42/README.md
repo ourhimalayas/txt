@@ -2,46 +2,28 @@
 ---
 
 
-## 用短视频短信息传播青蒿素和疫苗真相是救人的最好办法
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1718507/)
+## 谴责中共侵犯人权，20国拒签奥运休战协议
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1718769/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/pasted-image-0_副本.png)
-据[**2021****年12****月03****日**** ****文贵大直播：各国疫苗政策近况；国内疫苗政治，疫苗经济及疫苗灾难的最新消息；Omicron****变异病毒在亚洲地区的进展；iTunes****打榜记录- Hcoin To The Moon****；美国世界经济变化；喜数字银行牌照及赌场牌照的意义**](https://gtv.org/video/id=61aa1cecd6388d55041591e6)时间点1：52：46——
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-31.jpg)[图片来源](https://www.secretchina.com/news/gb/2021/12/04/991363.html)
+北京冬奥抵制声浪渐涨，澳媒指出，澳洲与另19国拒签奥运休战协议，确保冲突不会干扰比赛的惯例，此举旨在向中共传递，对新疆人权侵犯、香港议题和网球名将彭帅事件的不满。
 
-**郭文贵先生：**那么再说到国内这些父母、这些孩子的时候，我特想说战友咱能做什么，战友们，七哥从来没有求过你们或让你们做过什么事情，七哥现在就是说一定要记住，最近我们最大的失败就是国内传播的信息量太差，盖特、G-TV、G-News一定要广泛在国内传播，最近有点差。共产党封得有点严，我们要想尽一切办法增大、增加传播方式和传播质量，这是我们能救国内的孩子和家人的最好办法。
+雪梨晨驱报（Sydney Morning Herald）报导，联合国大会2日通过“奥林匹克休战”（Olympic Truce）决议，但未获得20国支持。
 
-我们的玉米地大姐给我说了一个非常重要的故事，她说你知道吗？文贵呀，咱们的谁谁谁，我见他以后，孙子、孩子、全家都打两针到三针，而且炫耀自己打两针、三针，她说我把你的视频、你发的信息让他看完以后，他全家傻眼了，他说你为什么不早给我让我看到这个？
+四方安全对话（Quad）的成员美国、印度、澳洲和日本拒绝签署；英美加纽澳组成的“五眼联盟”（Five Eyes）中，除了新西兰以外，其他国家皆拒签。穆斯林大国土耳其也决定不签，以表达对中共对待新疆维吾尔族穆斯林方式的不满。
 
-这样的故事让人很心疼的，因为他说的这人都是我们小时候没有共同进过玉米地，但是绝对是共同的打过仗的好朋友，听着他的孙子、孙女儿都弄那么惨，我也心里不舒服。就我特别有点责任感，我觉得连他都没有听到爆料革命关于疫苗灾难的事情，你看而且他听到他就马上就接受了、就信了。
+联合国这一决议呼吁所有成员国“透过促进和平、发展、韧性、宽容和理解的氛围，利用体育的力量推动世界进步”。
 
-所以我们现在请今天小福利问的问题，小Seven你们一定要用各种办法——短视频、短信息简单直接的办法，加大对国内的广泛传播爆料革命，关于青蒿素、关于疫苗这个真相。其他的咱都别说，别说灭共。从现在起传播青蒿素，还有疫苗、不打疫苗和疫苗灾难是重中之重，别谈喜币，别谈G-TV，别谈钱，就谈这两样就救人了。
+美国总统拜登政府最早可能在下周宣布，针对2022年北京冬季奥运会施以某种形式外交抵制，澳洲总理莫里森（Scott Morrison）也在权衡类似举措。外交抵制将涉及不派官员代表团参加2月登场的的北京冬奥，运动员仍可参赛。在对中共国网球女将彭帅人身安全日益担忧下，抵制意在抗议中共的人权劣迹。
 
-特别是青蒿素，战友们，青蒿素的本事太大了，太大了！我发过青蒿素给国内的旧体制内的人，你想那个体制内的人就怕死到了极点——很多人都不知道。但是吃了青蒿素，那奇迹发生的多了去了，所以怎么办、怎么解决，小福利答案，每天只要你有一点时间要想办法国内，不要有屈求结果，只去做你喜欢想做的事儿就够了。传播青蒿素的真相和疫苗灾难的真相就够了，其他的都别谈。
+消息来源:
 
-（以下暂略）
+[抗议中共人权劣迹 20国拒签奥运休战协议](https://www.epochtimes.com/gb/21/12/4/n13416256.htm)
 
-撰稿：喜马拉雅的肉夹馍；
-
-审核：喜马拉雅的馍夹肉；
-
-校对：Maarago；
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
