@@ -2,31 +2,25 @@
 ---
 
 
-## 疫苗受害者自述：我很担心我的将来会发生什么
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1722213/)
+## 推特设计工程主管变更
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1722337/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/9a7eea5f7a49455199ae321c56134810-3.jpg)
-**简评：**
+撰稿：小小的张麻子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/506.jpg)图片来自网络
+推特公司在周五说他们的首席工程师迈克尔·蒙大诺和首席设计师丹特利·戴维斯将于本月底由于社交网络管理重整而卸任。
 
-Bran现年35岁，居住在澳洲，有一个5个月大的女儿。2021年10月6号Bran接种了一剂辉瑞疫苗，11月13号被确诊为心包炎，是由疫苗导致的。Bran现在有严重的心脏损伤，无法预料未来的结果，他很担心将来的生活。
+这一举动仅发生在推特联合创始人杰克·多西卸任首席执行官，且将权利移交给首席技术官帕拉格·阿格拉瓦尔之后的数天。
 
-[GTV视频链接](https://gtv.org/video/id=61a828d33ff6481adce77b99)
+推特宣称阿格拉瓦尔接手推特后，将会对该公司的领导层进行重整，并且任命新的客户，收入以及核心技术部门的总经理以监管包括工程，产品管理，设计和研发在内的所有核心团队。
 
-**视频字幕：**
+推特表示产品总监凯文·毕普，产品收入主管布鲁斯·法尔克以及工程部副主管尼克·卡德威尔将分别带领上诉三个团队。
 
-我叫Bran， 今年35岁。我住在澳大利亚西部的Perth。在2021年11月13号，我被确诊为心包炎，是由10月6号接种辉瑞mRNA疫苗导致的。“辉瑞疫苗接种后的急性心肌心包炎症”，这是皇家医院的出院报告，日期是11月16号。我11月13号入院，在医院4天。我做了許多检查。我的故事是典型的隐瞒数据的例子。我现在有严重的心脏损伤，无法预料长期结果。我有家室，有一个5个月的女儿和一个漂亮的伴侣。我很担心我的将来会发生什么。
+推特补充道，高级运营及战略执行官，林德赛·伊安努齐将出任员工部主管。
 
-字幕：雨中漫步 | 听写：云岭 | 翻译：Roberts | PR：nights| 简评/文字整理/编辑：胖丁
+参考来源：[Twitter’s design, engineering heads to step down in management rejig | One America News Network (oann.com)](https://www.oann.com/twitters-design-engineering-heads-to-step-down-in-management-rejig/)
 
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

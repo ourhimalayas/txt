@@ -2,20 +2,20 @@
 ---
 
 
-## 完全接种中共病毒疫苗的年轻妇女被确认为感染奥米克戎
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1721824/)
+## 秘翻在线：最新研究显示过去十年的碳排放量总体保持平稳
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1721887/)
 
-#### 撰稿：彩虹
+#### 翻译/撰稿：zzballack
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-8.jpg)图片来源：波士顿新闻
-12月4日，《新闻极限》报道一名波士顿妇女被发现感染了中共病毒（COVID-19）变体奥米克戎（Omicron），从而使得麻萨诸塞州 (Massachusetts)成为第12个有中共病毒变体奥米克戎患者的州。
+#### 校对：白夜
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-204.png)图片来源：每日邮报
+据《网关专家》（Gateway Pundit）12月4日报道，对于一直鼓吹人类活动导致二氧化碳排放增多，以致全球变暖的全球主义者来说，比如美国前副总统阿尔·戈尔 (Al Gore)、美国众议员桑迪·科尔特兹（Sandy Cortez）甚至反社会者比尔·盖茨，全球碳计划 (GCP)的一项最新调查结果彻底揭穿了他们的谎言。
 
-根据报道，波士顿CBS的附属机构WBZ确认该患者是米德尔塞克斯（Middlesex）县一名20多岁的妇女，她（之前）已完全接种了中共病毒疫苗，并在患病前到州外进行了旅行。
+GCP今年11月公布的一项调查显示，全球的二氧化碳排放总量至少在过去10年内一直保持平稳。GCP预测，2021年的化石燃料二氧化碳排放量将达到364亿吨，仅比大流行前的最高值、2019年的367亿吨低0.8%。
 
-**新闻来源**
+中共病毒大流行期间，人们的各项活动受到严格限制，无论是旅游出行，还是生产制造和运输，这些与碳排放紧密相关的行业几乎处于停摆状态，但是减少的碳排放量几乎微乎其微。尽管如此，这些事实并不会阻止那些全球主义者和极端社会主义者继续力推其绿色能源协议和气候倡议等政治议程，以摧毁美国的能源独立，让美国对中共政权更加依赖。以比尔·盖茨为代表的黑暗势力也将继续打着“零排放”的幌子实施其大规模减少全球人口的计划，他们甚至提出为了控制碳排放量，限制每人的碳额度，以控制人们的日常活动和需求。
 
-[Boston Woman Becomes First Omicron Variant Patient in Massachusetts](https://www.newsmax.com/newsfront/boston-omicron-massachusetts-covid/2021/12/04/id/1047354/)
+新闻来源：[New Study Finds that Global Carbon Emissions Have Been Flat for a Decade Despite the Leftist Hysteria](https://www.thegatewaypundit.com/2021/12/new-study-finds-global-carbon-emissions-flat-decade-despite-leftist-hysteria/)
 
  
 

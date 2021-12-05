@@ -2,22 +2,30 @@
 ---
 
 
-## 中共国的“民主”就是权力奴役百姓
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1722104/)
+## 喜币超越法币成为未来最佳货币的三大契机
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1722212/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-215.png)[图片来源](https://bbs.wenxuecity.com/currentevent/1906592.html)
-12月5日，人民网报道，中共国务院新闻办公室在4日举行新闻发布会，发布《中国的民主》白皮书，有关负责人介绍白皮书有关情况并答记者问。民政部副部长王爱文答记者问时说，中共国有49.2万个村民委员会，11.6万个居民委员会，覆盖了城乡的全体居民。
+**Három lehetőség arra, hogy a himalaya Coin valuta felülmúlja a fiat valutát, hogy a jövőben a legjobb valutává váljon**
 
-按照中共国14亿人口为基数，正式编制公务员有800万人左右，事业编制有5000万左右，事业编制人数占人口比例3.57%。全国现在有111万个事业单位，编制内总人数就有3000多万人，另外有900万离退休人员，事业单位大账是4000万人，公务员大口径是800万，这两个加起来就是5000万人。
+作者：纽约香草山教育部- Noemi
 
-中共独裁国有数以亿计的党员和权力利益相关者相互捆绑，中共的权力像渔网一样密布排列分布到乡村镇社区，每一个点又像章鱼的触角一样延伸，牢牢控制奴役这个国度的居民，厚颜无耻的发布所谓民主白皮书，不受约束监督的自我管理、自我服务、自我教育、自我监督，所谓的制度优势，就是权力奴役百姓。
+匈牙利语译者：永远的诺亚方舟
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide1-4.jpg)
+图片来源：网络截图
+December 1-jén Guo Wengui úr egyenesen kijelentette az élő adásban, hogy a Himalaya Coin a jövőben felülmúlja a hagyományos legális valutát, és a legjobb modern valutává válik. Ez a Himalaya Coin által kínált három fő lehetőségnek köszönhető:
 
-信息来源：[民政部：中国有49.2万个村民委员会、11.6万个居民委员会，发布民主白皮书](https://view.inews.qq.com/a/20211204A0474B00)
+Először is, a Himalaya Coin  lesz a világ első fizetési funkcióval rendelkező kriptovalutája. Ugyanakkor a Himalaya-Pay lesz a Himalája Fed kereskedelmileg legértékesebb létezője.
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
+Másodszor, a Himalaya Fed hamarosan megszerzi a világ első digitális banki licencét, ami azt jelenti, hogy a Himalaya Coin  lesz az első legális kriptovaluta, amelyet szuverén állam engedélyez.
+
+Harmadszor, a Himalaya Coin valuta jövőbeni forgalomba hozatalát nehéz lesz megbecsülni. A kriptovaluta területén a forgalom az abszolút értékelési standard, amely meghatározza bármely kriptovaluta valódi értékét. Ezért úgy tűnik, hogy a Himalaya Coin valuta tulajdonosának saját előnyei és jövőbeli felértékelődési kilátásai egy “bankjegynyomtató gépet” tartanak a kezében.
+
+Guo úr azt is bejelentette, hogy a Himalaya Fed hamarosan két digitális bankot irányít, és egy csapásra a digitális banki szolgáltatások SWIFT-je lesz. Emiatt a Himalaya Coin rendszer végre eléri a digitális valuta és a legális valuta tökéletes kombinációját, a H-Pay, a himalájai devizakölcsönök és egyéb funkciók egymást követő bevezetésével párosulva, a Himalaya Coin referenciaszabvány lesz a modern digitális valuta területén.
+
+参考链接：2021年12月1日 文贵大直播
+
+原文链接：GNews APP 分享 ([https://gnews.org/zh-hans/1715507/](https://gnews.org/zh-hans/1715507/))
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

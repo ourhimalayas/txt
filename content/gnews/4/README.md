@@ -2,40 +2,129 @@
 ---
 
 
-## 议员提出强制FDA一百天内发布辉瑞文件
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1722198/)
+## 七哥回答关于喜币代持FMV公司的问题
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1722299/)
 
-翻译： Jenny Ball
+[https://gtv.org/video/id=61ac596087fa7e74c92b7eed](https://gtv.org/video/id=61ac596087fa7e74c92b7eed)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-220.png)图片来源 ：childrenshealthdefense.org
+我替许多战友来问个问题
+Voy a hacer preguntas por muchos de los compañeros luchadores
 
-美国众议员拉尔夫·诺曼 (Ralph Norman) 周四[提出立法](https://norman.house.gov/news/documentsingle.aspx?DocumentID=1087)，要求美国FDA在 100 天内发布与辉瑞 [COVID-19](https://childrenshealthdefense.org/defender_category/covid/)疫苗相关的所有信息记录，发布辉瑞提交给该机构的所有有关 Covid-19 疫苗的紧急使用授权或许可的信息记录。FDA 曾要求允许 55 年的时间来发布这些文件。
+这几天大家都关注锁币的事情
+Estos días todos están pendientes del asunto de bloqueo de moneda
 
-[该立法](https://childrenshealthdefense.org/wp-content/uploads/CHD-v.-FDA-Submitted-Complaint-8.31.21.pdf)源于根据信息自由法 (FOIA) ，要求公布 《公共健康和医疗专业人员透明度》 (PHMPT – [Public Health and Medical Professionals for Transparency](https://phmpt.org/) ) 8 月份要求的文件，但FDA 呼吁推迟（最多达 55 年）。
+现在有一个疑问就是联盟说GTV公司帮大家持币
+Ahorita hay una duda y es que La Alianza dijo que la compañía de GTV va a ayudar a todos a guardar las monedas
 
-PHMPT 是一个由 30 多名科学家、医学专业人士、国际公共卫生专业人士和记者组成的团体，他们[向 FDA 要求](https://www.theblaze.com/news/fda-asks-federal-judge-for-55-years-to-complete-foia-request-for-vaccine-info)提供“辉瑞疫苗的所有数据和信息”，包括安全性和有效性数据、[不良反应报告](https://childrenshealthdefense.org/defender/ron-johnson-people-injured-covid-vaccine/)，以及一份有效和 非活性成分。
+但是喜交所给我们发邮件的公司名称和我们的GTV
+Pero el nombre de la compañía del correo que nos envió Himalaya Exchange
 
-9 月，PHMPT 在美国[德克萨斯州北区地方法院起诉 FDA](http://phmpt.org/wp-content/uploads/2021/10/001-Complaint-101021.pdf)，称 FDA 没有回应 FOIA 的要求。[诺曼称](https://www.foxnews.com/politics/rep-norman-fda-covid-vaccine-data-100-days)， FDA 要求推迟发布文件是“**一个非常糟糕的笑话的开始**”。
+重建项目名称不同
+No es igual al de nuestro GTV y del Proyecto de reconstrucción
 
-诺曼在一份声明中说：
+请问Freedom Media Watch Ltd
+Disculpa, Freedom Media Watch Ltd
 
-“FDA 的唯一优先事项应该是消费者的健康和安全。该机构通过延迟属于公众的信息，损害了消费者健康和安全完整性。由于拜登政府一心一意将这些疫苗强制要求强加给我们，因此，公众完全有权知道这种疫苗是如何获得批准的，尤其是在如此短的时间内。
+和Freedom Media Watch Ltv这两个公司到底
+Y Freedom Media Watch Ltv estas dos compañías
 
-“毕竟，**FDA ****在短短 ****108 ****天内，设法考虑了所有 ****329,000 ****页数据，并授予了辉瑞疫苗的紧急批准**。因此，很难解释为什么现在需要 55 年才能向公众全面发布这些信息。”
+哪一个是我们的GTV公司
+¿Cuál es el de nuestra compañía GTV?
 
-儿童健康保护委员会主席兼首席法律顾问小罗伯特·肯尼迪说，安东尼·福奇博士向美国人民“承诺完全透明”。
+喜交所给的邮件战友是否可放心的签署
+¿Será que el correo enviado por Himalaya Exchange a los compañeros luchadores se puede firmar con confianza?
 
-“将数据隐藏 55 年与透明度背道而驰，”肯尼迪说。“**难怪美国人不再信任这些疫苗或监管它们的政府机构**。”
+第一喜交所给的文件放心签署
+Primero, los documentos dados por Himalaya Exchange se pueden firmar con confianza
 
-新闻来源: [childrenshealthdefense.org] [Congressman Introduces Bill to Force FDA to Release Pfizer Documents Within 100 Days, Instead of 55 Years](https://childrenshealthdefense.org/defender/ralph-norman-fda-pfizer-covid-vaccine-records/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=d8bf344d-0a92-45c3-9e45-eb38e82966e5)
+第二GTV新公司叫FMV
+Segundo, la nueva compañía de GTV se llama FMV
+
+是整个的代持
+Es para toda conservación
+
+还有我再告诉你只要你币少任何一个 七哥负责
+Y lo otro que te digo, así te falta una sola moneda, yo me hago responsable
+
+只要喜交所给你的文件
+Todo documento entregado por Himalaya Exchange
+
+联盟委员会文件 七哥全负责
+Comité de Alianza, yo me responsabilizo por completo
+
+还有发出 收到
+Y todo enviado, recibido
+
+还有现在收到农场发出的表格
+Y los formularios enviados por las fincas que hayan recibido
+
+只是委托喜交所转交H-Coin给FMV公司
+Es solo un encargo de H-coin a través de Himalaya Exchange a la compañía FMV
+
+但是没有FMV公司给我们签署的代持协议
+Pero no hay un acuerdo de conservación dado por la compañía FMV para firmar
+
+是否该先跟FMV公司签署完代持协议
+¿Será que primero hay que firmar un acuerdo de conservación con la compañía?
+
+再到喜交所上转帐FMV
+Y luego ir a hacer la transferencia en Himalaya Exchange a FMV
+
+不是的 这次的代持转让是福利币并不是你二级市场的币
+No es así, esta vez la transferencia de conservación es de la moneda de bienestar, no de su moneda comprado en el mercado
+
+福利币是给予 是有条件的
+Las monedas de bienestar son entregadas, tienen requisitos
+
+也没给你签署协议
+Tampoco se les hizo firmar un acuerdo
+
+现在你愿意 你可以不愿意啊
+Ahora tu puedes estar dispuesto y si quieres no lo haces
+
+你可以不愿意 你要愿意
+Puedes no querer, pero si tu quieres
+
+你就签
+Tú lo firmas
+
+我再告诉你
+Y te digo otra cosa
+
+FMV是战友的公司
+La compañía de FMV es de un compañero luchador
+
+不是任何人的
+No es de cualquier persona
+
+FMV公司未来是喜交所的喜联储的5%的股东
+La compañía de FMV en un futuro será accionista del 5% en La Reserva de Himalaya y en Himalaya Exchange
+
+他也会是盖特控股公司的5%的股东
+También será accionista del 5% de Gettr Holdings
+
+所以说兄弟姐妹们, 没有问题, 七哥担保
+Por eso hermanos y hermanas, no habrá problemas yo lo garantizo
 
 * * *
 
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3.jpeg)
+日期：12/03/2021
+原视频标题：七哥回答关于喜币代持FMV公司的问题
+Miles responde preguntas sobre la conservación de H-coin por la compañía FMV
+原视频日期：12/0/22021
+原视频网址： [https://gettr.com/post/pih7z08f45](https://gettr.com/post/pih7z08f45)
+任务编号：KC308（3079）
+视频时间段：0:00-1:44
+西听校：洛杉矶盘古农场-小文萱
+翻译：洛杉矶盘古农场-霙霙（文霙）
+翻译终校：洛杉矶盘古农场-小文萱
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

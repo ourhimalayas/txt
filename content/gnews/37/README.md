@@ -2,36 +2,34 @@
 ---
 
 
-## FDA文件爆辉瑞疫苗副作用案例远超常规
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1721552/)
+## 澳媒指中共的疫苗研发过程不合常理
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1721553/)
 
-作者：纽约香草山佛教部 文一
+作者：日本方舟农场 Andy5
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
 
-12月1日，相关媒体消息提及，美国食品药品监督局FDA最近发布的一份文件中显示，因接种辉瑞公司新冠疫苗导致的不良反应事件数量惊人。
+12月1日，据澳大利亚媒体的报道显示，中共在新冠疫苗的研发过程上存在不合常理的现象，而这种不合理主要表现在两个部分：时间上的不合常理，以及宣传力度上的不合常理。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-05-at-12.22.07-PM.png)
+澳媒指出，早在2020年2月，中共便开始在中共国内施打第一种新冠疫苗。另据中共的新闻媒体消息，新冠疫情大爆发期间，赶赴武汉的陈薇于2020年1月26日研发了腺病毒新冠疫苗。随即，当年2月26日，中共已经将第一批新冠疫苗从生产线下线。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-05-at-4.24.59-PM.png)
+澳洲科学家表示，从科学角度来看，没有任何一个国家能在短短五周内，将疫苗理论变为能给人体注射的疫苗。澳媒认为，早在2019年年末，中共就已经知晓新冠病毒爆发在即，因此立即开始研发所谓的应对疫苗。
 
-据报道，仅在2020年12月1日到2021年2月28日的三个月间，美国共有四万两千零八十六起新冠疫苗不良反应事件和一千两百二十三起接种者死亡记录，也就是说，每34起新冠疫苗不良反应事件中就有1起是致命的。数据显示，疫苗不良反应记录中有270例为怀孕女性，当中更有23位孕期女性因新冠疫苗而流产，女性流产比例为12:1。另外，还有两千多起疫苗不良反应与心脏疾病相关。
-
-值得注意的是，该文件是FDA颁发新冠疫苗紧急使用授权的部分数据依据。为此，FDA要求法院将这些信息封存55年。据了解，鉴于一个非盈利组织正在针对新冠疫苗授权事件起诉FDA，此份文件才得以被公开。
-
-另一方面，该文件被公开后，推特迅速封禁了相关爆料者的账户，但这一真相仍然在盖特上被广为传播。
+澳媒还提到，周育森曾于2020年2月申请了新冠疫苗专利，然而他在同年5月却神秘死亡，同时，这两件事均未得到中共媒体的任何报道。澳媒认为，这种有违中共一贯宣传策略的行为让中共研发的新冠疫苗更显疑点重重。
 
 参考链接：
 
-1. [FDA Document Deems Pfizer Vaccine “Favorable” Despite Long List of Adverse Events From Jab, Including Death](https://www.infowars.com/posts/fda-document-deems-pfizer-vaccine-favorable-despite-long-list-of-adverse-events-from-jab-including-death)
-2. [Have you seen the document dump on the Pfizer vaccine data? It’s a bombshell. No wonder the FDA fought to keep it hidden for 55 years.](https://gettr.com/post/pig3u07bd6)
-3. [twitter: @ignorantchimp Account suspended](https://twitter.com/ignorantchimp?lang=en)
+1. [20211201澳洲Skynews揭露中共疫苗上的時間不合理](https://www.gettr.com/post/piniru195a)
+2. [中共专家被曝疫情初期做出疫苗 后神秘死亡](https://www.epochtimes.com/gb/21/6/7/n13005665.htm)
+3. [“人民英雄”国家荣誉称号获得者陈薇——“除了胜利，别无选择”](http://cpc.people.com.cn/n1/2020/0912/c64387-31858861.html)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
 
-总编：AN
-编辑：Irene木木
+总编：文徬 
+编辑：Kathy文艺
 校正/发稿：我不在这里
 
 **更多资讯，更多关注**
@@ -40,9 +38,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

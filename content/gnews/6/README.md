@@ -2,36 +2,35 @@
 ---
 
 
-## 网球名将支持国际女子网球协会为彭帅发声
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1722188/)
+## 数据科学家： VAERS数据非常恐怖
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1722270/)
 
-**简评：**
+**翻译： Jenny Ball**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip31.png)图片来源：childrenshealthdefense.org
+在最近的捍卫者（The Defender）播客中，小罗伯特·肯尼迪（RFK）采访了数据科学家和免疫学研究员杰西卡·罗斯（Jessica Rose）博士，关于疫苗不良事件报告系统（VAERS）的惊人数据，及其告诉我们有关 COVID 疫苗伤害的信息，尤其是对儿童。
 
-塞尔维亚著名网球选手德约科维奇为彭帅发声，支持国际女子网球协会的决定。彭帅的安全和健康至关重要，而且这关乎一个网球运动员的职业生涯。因此，整个网球群体需要站在一起。
+罗斯解释说，VAERS 数据显示 **618,548 起不良事件报告**（截至 10 月 29 日），但该数字并未考虑漏报。（截至11月19日，最新VAERS数据显示不良事件664745起，不包括国外报道）。
 
-YouTube视频链接：
+“如果你考虑我基于辉瑞 3 期临床数据的漏报因素——无论如何这都可能是有问题的数据——漏报系数是 31，”她说。因此，要获得准确的不良事件计数，“您需要将 VAERS 数字乘以至少 31，”罗斯解释说， “那真是令人震惊，有数百万人。”
 
+罗斯说，VAERS 数据还显示了“儿童被不当注射了这些产品。”
 
+她告诉肯尼迪，提交给 VAERS 的报告显示，**幼儿接种了尚未获得针对其年龄组授权的COVID 疫苗**。截至 10 月 29 日，接种疫苗后死亡的儿童中有 38% 未满 2 岁。
 
-[GTV视频链接](https://gtv.org/video/id=61ab6a7c87fa7e74c92b23d2)
+“**所以必须有人向我解释，因为我们不应该给婴儿注射**！”她说。
 
-**视频字幕：**
-
-我完全支持国际女子网球协会的立场，因为我们没有足够的关于彭帅的消息，她的安全和健康对网球界来说是最重要的。不仅因为她是女性，这样的事可能发生在任何人身上，包括男性和女性球员。我不认为国际女子网球协会和职业网球联合会的任何人，在此事的处理方式上有什么不妥，要求（中共）澄清发生了什么。
-
-我们在这方面没有得到足够的明确的回应，這真的很可悲。这事关一个网球运动员的生命。因此，整个网球群体需要站在一起。因此，我支持（国际女子网球协会的决定）。
-
-字幕/听写：云岭 | 翻译：clau | PR：nights| 简评/文字整理/编辑：胖丁
+**新闻来源**：[childrenshealthdefense][Data Scientist Tells RFK, Jr.: ‘VAERS Is Telling a Very Frightening Story’](https://childrenshealthdefense.org/defender/rfk-jr-defender-jessica-rose-data-vaccine-adverse-event-reporting-system/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=d8bf344d-0a92-45c3-9e45-eb38e82966e5)
 
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3.jpeg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

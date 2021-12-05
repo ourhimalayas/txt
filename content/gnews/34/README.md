@@ -2,258 +2,42 @@
 ---
 
 
-## 每个国家和城市的反政府动乱是今天CCP最希望看到的
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1721759/)
+## 加拿大疫苗倡导者提出秘密接载儿童到疫苗接种点
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1721839/)
 
-[https://gtv.org/video/id=61ac481987fa7e74c92b776c](https://gtv.org/video/id=61ac481987fa7e74c92b776c)
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-所以说经济到什么程度
-Por eso hasta qué punto llega la economía
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/child-well-visit-immunization-shot-tiny-768x512-1.jpg)
 
-战友们现在看看
-Compañeros luchadores vean ahora
 
-你觉得美国的经济能好下去吗现在
-Crees que ahora la economía de EE. UU le puede ir bien
+ 
+图片来源：www.uchealth.org
 
-各国隔离状态下的经济金融能稳定吗
-¿Puede haber estabilidad económica en todos los países teniendo un estado de cuarentena?
 
-我告诉你
-Yo te digo
+#### 编译：小红帽
 
-最大的问题就是共产党所希望的
-El mayor problema es que el PCCh espera
+加拿大新冠疫苗倡导者在提出让父母反对接种新冠疫苗的青少年乘车前往新冠疫苗接种点后，引发了网上争议，据说还面临威胁。
 
-每个国家每个城市
-A que todos los países y ciudades
+这场争论始于上周五，萨斯喀彻温省一位名叫朱利安·沃瑟斯庞(Julian Wotherspoon)的社区组织者在推特上发布了一条信息，表示愿意帮助那些不顾父母反对想要接种新冠疫苗的13至17岁的青少年。她说：“我可以载你去诊所。”如果有人问起，我会说带你和我的孩子去看电影。我们开始吧”。
 
-真正的开始起了反政府动乱
-Empiece verdaderamente los disturbios antigubernamentales
+根据萨斯喀彻温省卫生局的说法，13岁及以上的儿童 “能理解新冠疫苗的好处和潜在的副作用”，不需要父母的允许就可以接种新冠疫苗。
 
-这种动乱完全是不可预测、不可控的
-Este tipo de disturbio es totalmente incontrolable e impredecible
+沃瑟斯庞的推文在网上引起了轰动，既引来了赞美，也引起了愤怒。随后，她将自己的账户设为私密。
 
-1秒钟 啪 就出现了
-En un segundo aparece
+另一位儿童新冠疫苗接种的支持者，自称是“妈妈博客”的特尼尔·拉方丹（Tenille Lafontaine），也来自萨斯喀彻温省，称沃瑟斯庞的提议“令人惊叹”。她补充说：“我听说有几个青少年自己去接种新冠疫苗，因为他们的父母疯了。孩子们会没事的。侧面说明：我随时可以开车（送小孩去打疫苗）。”
 
-你都想像不到出什么
-No te imaginas lo que aparecerá
+其他评论者进行了反击，告诉这两个女人 “离别人的孩子远一点”。有些人甚至把秘密接送提议比作绑架。
 
-接着伴随来的
-Y lo que viene acompañado
+**参考新闻：**[Children offered secret rides to vaccination sites — RT World News](https://www.rt.com/news/542234-cananada-vaccination-children-help/)
 
-灾难在人类上从来没有单独发生过
-Los desastres nunca aparecieron solos en la humanidad
+***发布：小红帽***
 
-你看一战、二战，一战之后
-Mira la primera y la segunda guerra mundial, después de la primera
-
-整个西班牙大病毒
-La pandemia en toda España
-
-一战经济大萧条
-La gran depresión económica después de la primera guerra
-
-是个经济大生长
-Es un gran crecimiento económico
-
-然后是大病毒 到了二战
-Y luego de la pandemia llegó la segunda guerra
-
-二战呢
-La segunda guerra
-
-它把人类给灭了 二战之后
-Al acabar con el humano después de la segunda guerra
-
-经济又出现了一个大膨胀的大萧条
-Apareció otra vez una gran inflación y depresión económica
-
-那个萧条的死了多少人呢看到了吗
-¿Has visto cuánta gente falleció en esa depresión?
-
-人类在历史上从来不
-Desde la historia humana nunca
-
-战争和天灾和人祸和传染疾病
-La guerra, calamidad, propagación de enfermedades y el desastre provocado por el hombre
-
-从来没有一次单独出现过
-Nunca aparecieron solos
-
-它都是伴随着一、二、三
-Son acompañados por 1,2, 3
-
-一起出现的
-Juntos
-
-你觉得这种情况下的人类
-Tu crees que en esta situación el ser humano
-
-经济能好下去
-La economía podría ir bien
-
-你看到摩根先生给我发信息了吗
-¿Tu viste el mensaje que me envió el Sr. Morgan?
-
-这边发小 病得快死了
-Sus amigos de la infancia están tan enfermos hasta el punto de morirse
-
-头两天发的 这边俩人最有钱的
-Los primeros dos días enviaron que dos de los más ricos
-
-没想到现在人已经走了
-No pensaron que ya ahora fallecieron
-
-我今天告诉战友们
-Hoy les digo compañeros luchadores
-
-我没想要你们钱
-Yo no pienso tomar su dinero
-
-我只想让你们有智慧
-Solo quiero que tengan sabiduría
-
-我想让你们安全
-Quiero que estén a salvo
-
-你们所有的行为
-Todas sus acciones
-
-兄弟姐妹们
-Hermanos y hermanas
-
-90% 以上的人都是天真的小孩子级
-Mas del 90% son de nivel “niño inocente”
-
-绝对不是你家里、抽屉里边
-No es en lo absoluto en tu casa, dentro de la gaveta
-
-土里埋点现金
-O enterrar en la tierra un poco de efectivo
-
-弄点什么青蒿素
-Preparar un poco de Artemisinina
-
-弄点什么伊维菌素
-Un poco de Ivermectina
-
-然后呢
-Luego
-
-这个藏点儿散银子 你就能活下去
-Esconder dinero suelto y podrás sobrevivir
-
-绝对不是
-No es en lo absoluto
-
-首要就两条
-Principalmente solo 2 cosas
-
-第一条
-La primera
-
-一定要和新中国联邦
-Tienes que unirte al Nuevo Estado Federal de China
-
-农场联合起来行动
-Junto con las fincas para accionar
-
-你们别听我的
-No me escuchen a mi
-
-看看一战、二战
-Mira la primera y la segunda guerra
-
-和所有这些国家乱的时候
-Y todos estos países en caos
-
-当时利比亚我好几个哥们在那儿
-En ese momento varios de mis amigos estaban en Libia
-
-就是卡扎非在临死前
-Antes de la muerte de Gadafi
-
-被内乱军队到处追杀的时候
-Cuando es perseguido por el ejército de la guerra civil en todas partes
-
-被抢劫的外国人被强奸的
-Extranjeros robados y violados
-
-被杀害的
-Asesinados
-
-没有一个人报导
-No hubo ningún reporte de la prensa
-
-没有一个人去
-No hubo ni una persona que haya ido
-
-而且很多也是华人
-Además, muchos eran asiáticos
-
-还有台湾人和日本人
-Había taiwaneses y japoneses
-
-没有人记得
-Pero nadie lo recuerda
-
-你都在这儿待几十年了
-Has estado aquí por más de 10 años
-
-谁还记得你 你跟这都断了
-Quien te recuerda a ti, ya has cortado con este lugar
-
-谁记得你
-Quién te recuerda
-
-所以我们要有集体的、大家的力量
-Por eso nosotros tenemos que unir la fuerza de todos
-
-第二
-Segundo
-
-集体的给你的帮助
-Ayudarte en colectividad
-
-是你个人无法实现的
-Eso no lo podrás lograr tu mismo
-
-中国的经济为即将遍延全世界
-La economía de China está a punto de extenderse por todo el mundo
-
-只有喜系列能让大家
-Solo la serie de Himalaya puede dejar que todos
-
-绝对是
-En lo absoluto
-
-能让大家把经济和生活
-Hacer que la economía y la vida de todos
-
-紧紧地连在一起
-Se conecten estrechamente entre sí
-
-* * *
-
-日期：12/01/2021
-原视频标题：每个国家和城市的反政府动乱是今天CCP最希望看到的
-Los disturbios antigubernamentales en todos los países y ciudades es lo que más espera ver hoy el PCCh
-原视频日期：11/29/2021
-原视频网址：[https://gettr.com/post/pi8owf858d](https://gettr.com/post/pi8owf858d)
-任务编号：KC302（3059）
-视频时间段：0:00-2:28
-西听校：洛杉矶盘古农场 – 小文萱
-翻译：洛杉矶盘古农场 – 霙霙（文霙）
-翻译终校：洛杉矶盘古农场 – 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 ：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

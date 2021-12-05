@@ -2,36 +2,36 @@
 ---
 
 
-## 奥密克戎很可能结束大流行，两类人尤需防范
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1722074/)
+## 网球名将支持国际女子网球协会为彭帅发声
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1722188/)
 
-撰稿：纽约香草山教育部- Noemi
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-1.png)
-12月4日，文贵先生在大直播中爆料，中共病毒新变种奥密克戎虽在短期内致死率较低但其传播力度极强。其特性很可能提前结束这场中共病毒的大流行。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12051-1.png)
-据了解，奥密克戎在普通人群中的传播力极其强劲。仅一周时间，该变种就已扩散至39个国家，成为中共病毒大流行的最主要毒株。
+**简评：**
 
-文贵先生提醒，患有基础疾病的人群在感染奥密克戎后更易加重其自身的原有病变；而具有家族疾病遗传史的人群则会在感染之后更可能引起相关遗传疾病的发病。此二类人群应尤需注意自身防范。
+塞尔维亚著名网球选手德约科维奇为彭帅发声，支持国际女子网球协会的决定。彭帅的安全和健康至关重要，而且这关乎一个网球运动员的职业生涯。因此，整个网球群体需要站在一起。
 
-新闻链接：[文贵爆料12.3.2021 郭先生宣布大利喜联储和战友的四件大事](https://gnews.org/zh-hans/1717428/)
-
-[中国男子在南非确诊奥密克戎 当事人:肺里像冒火](https://news.creaders.net/china/2021/12/03/2426522.html)
+YouTube视频链接：
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
+[GTV视频链接](https://gtv.org/video/id=61ab6a7c87fa7e74c92b23d2)
 
-总编*/*编辑：木白
+**视频字幕：**
 
-校正/发稿：浪迹天涯
+我完全支持国际女子网球协会的立场，因为我们没有足够的关于彭帅的消息，她的安全和健康对网球界来说是最重要的。不仅因为她是女性，这样的事可能发生在任何人身上，包括男性和女性球员。我不认为国际女子网球协会和职业网球联合会的任何人，在此事的处理方式上有什么不妥，要求（中共）澄清发生了什么。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-1.png)
+我们在这方面没有得到足够的明确的回应，這真的很可悲。这事关一个网球运动员的生命。因此，整个网球群体需要站在一起。因此，我支持（国际女子网球协会的决定）。
+
+字幕/听写：云岭 | 翻译：clau | PR：nights| 简评/文字整理/编辑：胖丁
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

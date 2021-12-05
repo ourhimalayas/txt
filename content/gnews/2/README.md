@@ -2,29 +2,52 @@
 ---
 
 
-## 喜币超越法币成为未来最佳货币的三大契机
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1722212/)
+## 习近平最终下场之猜想
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1722333/)
 
-**Három lehetőség arra, hogy a himalaya Coin valuta felülmúlja a fiat valutát, hogy a jövőben a legjobb valutává váljon**
+作者：波士顿五月花   2020灭共必胜
+![](https://assets.gnews.org/wp-content/uploads/2021/12/20211205-1.jpg)
+习近平自上台以来，左右折腾，大搞小搞，可谓是“丰功伟绩”，不仅成为共产党这个体制最大的敌人，也成为了爆料革命最“得力的战友”！其“贡献”大致有以下几点。
 
-作者：纽约香草山教育部- Noemi
+首先是以反腐为名大肆抓捕。习上台后大搞反腐运动，以反腐的名义大肆抓捕政敌、肃清异己，至今已把百万党员及亲属关进了监狱，一时间使得党内人人自危、党心涣散。
 
-匈牙利语译者：永远的诺亚方舟
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide1-4.jpg)
-图片来源：网络截图
-December 1-jén Guo Wengui úr egyenesen kijelentette az élő adásban, hogy a Himalaya Coin a jövőben felülmúlja a hagyományos legális valutát, és a legjobb modern valutává válik. Ez a Himalaya Coin által kínált három fő lehetőségnek köszönhető:
+其次是强行修宪。习于2018年强行修改宪法，取消了国家主席最多两届共10年的任期限制，给自己量身定了个事实上的终身制，从而引起了中共元老和高层们内心的强烈不满。
 
-Először is, a Himalaya Coin  lesz a világ első fizetési funkcióval rendelkező kriptovalutája. Ugyanakkor a Himalaya-Pay lesz a Himalája Fed kereskedelmileg legértékesebb létezője.
+第三是把香港变成“死港”。习违背一国两制承诺和中英联合声明，在香港强推国安法，镇压香港青年的抵抗运动，导致一万多港人被杀害。这种严酷的政治氛围迫使各大跨国公司和企业纷纷撤离香港，盗国贼和西方资本的利益因此受到毁灭性打击。其行为不仅把香港变成了“死港”，而且也让西方世界看清了中共的流氓真面目。
 
-Másodszor, a Himalaya Fed hamarosan megszerzi a világ első digitális banki licencét, ami azt jelenti, hogy a Himalaya Coin  lesz az első legális kriptovaluta, amelyet szuverén állam engedélyez.
+第四是在全世界公然放毒并强推疫苗。根据郭文贵先生的爆料，CCP病毒是在习的授意下为了镇压香港抗议运动而放出的。这一反人类暴行已经令全世界人民死伤无数，全球经济处于崩溃边缘。不仅如此，在习的领导下，CCP还联合世界黑暗力量强推毒疫苗，进一步残害国内同胞和世界各国人民。
 
-Harmadszor, a Himalaya Coin valuta jövőbeni forgalomba hozatalát nehéz lesz megbecsülni. A kriptovaluta területén a forgalom az abszolút értékelési standard, amely meghatározza bármely kriptovaluta valódi értékét. Ezért úgy tűnik, hogy a Himalaya Coin valuta tulajdonosának saját előnyei és jövőbeli felértékelődési kilátásai egy “bankjegynyomtató gépet” tartanak a kezében.
+最后是暗中操纵美国大选。2020年，以习为首的CCP通过选票造假和修改投票系统数据等方式，暗中操纵美国总统大选，从而让以班农先生为代表的美国保守派政治力量真正认识到了CCP的邪恶及其称霸世界的野心。
 
-Guo úr azt is bejelentette, hogy a Himalaya Fed hamarosan két digitális bankot irányít, és egy csapásra a digitális banki szolgáltatások SWIFT-je lesz. Emiatt a Himalaya Coin rendszer végre eléri a digitális valuta és a legális valuta tökéletes kombinációját, a H-Pay, a himalájai devizakölcsönök és egyéb funkciók egymást követő bevezetésével párosulva, a Himalaya Coin referenciaszabvány lesz a modern digitális valuta területén.
+基于以上几点，可以说习已经得罪了国内外99.99%的人，就连中共内部的江派曾派等势力也都希望把习作为替罪羊推出来，从而将自己身上的黑锅都甩给他，在给世人一个交代的同时他们自己好借机脱身。
 
-参考链接：2021年12月1日 文贵大直播
+在这种内外交困、风雨飘摇的局面下，个人认为习可能会有以下几种下场：
 
-原文链接：GNews APP 分享 ([https://gnews.org/zh-hans/1715507/](https://gnews.org/zh-hans/1715507/))
+1. 在得罪了江曾王孟的情况下，像独裁者朴正熙一样被内部人暗杀。
+2. 像齐奥塞斯库一样，众叛亲离，被身边的人五花大绑，军事审判后枪毙。
+3. 由于身体不好，像斯大林一样突然病倒，但无人施救，每个人都迫切希望他死，死后还要揣上几脚。
+4. 对台发动战争，在战争中像苏莱曼尼一样被无人机斩首，或者像萨达姆一样被活捉。
+
+
+以上几种结局其实都一样，很惨。那么对于习近平来说，是坐以待毙还是奋起反击呢？
+
+如果选择反击，习就一定要明白自己真正的敌人是谁。是谁逼你父亲当着你的面吃屎的？是谁逼你姐姐上吊自杀的？是谁逼你看到茄子就想吐的？是谁逼你当时只能穿女人的花布鞋的？
+
+是中国共产党！！！CCP才是你真正的敌人！
+
+因此如果要想避免上述悲惨的结局，并替亲人报仇，习最应该做的就是消灭共产党！
+
+而且如果能像戈尔巴乔夫那样，以和平的方式主动解体中共这个魔鬼体制，相信习也会因此受到世人发自内心的尊重和爱戴。
+
+人生不过3万天。习总，想想毛泽东和毛岸英，想想干掉华国锋的邓小平，再想想干掉邓家的江泽民……何不抓住千载难逢的机会，做个名垂青史的伟人呢?
+
+* * *
+
+*编辑：黄金时代*
+
+*封面：霹雳鼠年*
+
+*发布：吐纳*
 
  
 

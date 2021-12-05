@@ -2,228 +2,32 @@
 ---
 
 
-## 郭先生解密袖扣
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1722211/)
+## 中共惶恐破坏喜币必定以失败告终
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1722314/)
 
-[https://gtv.org/video/id=61ac590087fa7e74c92b7ecf](https://gtv.org/video/id=61ac590087fa7e74c92b7ecf)
+作者：波士顿五月花  2020灭共必胜
+![](https://assets.gnews.org/wp-content/uploads/2021/12/20211205.jpg)
+自喜币上市后，不仅震撼了世界，也震撼了体制内人和观望群众。于是大批中国人纷纷KYC注册喜联储。不少人还卖掉了手中的不动产和其他虚拟币资产，转投喜币。
 
-看看, 看看
-Mire mire
+由于喜联储是郭文贵先生建立的灭共平台之一，这令中共惶恐不已。使出了许多下三滥的手段，试图扼杀喜币于襁褓之中。
 
-那个袖扣是法国的一个品牌
-Esa mancorna es de una marca francesa
+1. 给全世界各国政府和金融机构发函。造谣喜联储是非法平台，不得给喜联储提供任何服务和合作行为，阻扰喜联储用户合法汇款。
+2. 中共立法，并给全世界虚拟平台发布通告。告知给境内中国人提供虚拟币交易服务是非法行为，让他们不得给中国人开户，并清退已有中国人账户。
+3. 掌握火币和币安国内外客户资料。币安和欧易开始拒绝提币，火币只允许退回国内银行，并对国内大买家肆意抓捕，杀鸡儆猴，谋财害命。同时派出王岐山，赵长鹏在新加坡第四届彭博创新经济论坛抹黑喜币。
+4. 发动潜伏在爆料革命农场的卧底，以不同的名义骗取大量福利喜币。在喜币上市后，分阶段砸盘喜币，将真正的战友和散户资金洗走。
+5. 国内频发虚拟币骗局新闻，恫吓老百姓购买虚拟币。
+6. 国内出台新规定，明年3月1号开始微信和支付宝的个人收款码不能作为经营性收款。个人认为，在如今普遍个人收款码用于经营的社会，这对微信和支付宝是种沉重的打击。毕竟没多少人会为了付几块钱还要去加好友再转账。而此举意味着，中共正在快马加鞭推出人民币数字货币，数字货币转账不需要加好友且便捷迅速。想在老百姓了解喜币之前，将其赶入自己数字货币的坑里。
 
-它做的一个袖扣
-Que elaboran mancornas
 
-他就是做了袖扣
-Esta marca hacen mancornas
-
-后来这个袖扣呢
-Luego esta cosa
-
-就是当时
-En aquel momento
-
-被这个澳门最重要的
-Fue utilizada por lo más importante en Macao
-
-就是共产党拿去以后就在巴黎
-Después de que el PCCh lo tomó, fue en París
-
-因为安全部的人看到我戴那个袖扣
-Porque las personas del Departamento de Seguridad vieron que tenía esas mancornas puestas
-
-他说你这袖扣很漂亮老郭
-Me dijo, Miles, tus mancornas son muy bonitas
-
-在哪儿买的
-Dónde las compraste
-
-当时我就摘了
-En ese momento me las quité
-
-我说送给你了
-Y dije te las regalo
-
-过了不到一个月
-Pasaron menos de un mes
-
-这哥们从欧洲回来见我
-Este hermano regresó de Europa y vino a verme
-
-老郭
-Miles
-
-我送还给你一个袖扣
-Te regalo de regreso una mancorna
-
-我就没犹豫啊
-Y no lo dudé
-
-我说我从来不要人东西
-Dije que nunca recibo cosas de otras personas
-
-我说行啊
-Dije, está bien
-
-我说我从来不要人东西
-Yo nunca recibo cosas de otros
-
-我就交给保镳了
-Entonces se las di al guardia
-
-我说你拿走吧, 送给你了
-Le dije: tómalas, te las regalo
-
-那个精密程度不是像你想像
-El grado de precisión no es lo que te imaginas
-
-还有针眼儿你能看得见
-Crees poder lograr ver el agujero
-
-你看不见的
-Pero no lo puedes ver
-
-他说我们送给你的
-Él dijo: nosotros te lo regalamos
-
-结果你没戴, 给你保镳了
-Resulta que no te la pusiste y se lo diste a tu guardia
-
-就这个玩意儿给你保镳了
-Esta cosa se la diste a él
-
-你保镳
-Tu guardia
-
-这个戴着出去搞女人
-Llevó esta cosa y salió a jugar con las mujeres
-
-后来我就找了这个保镳一问
-Luego conseguí este guardia y le pregunté
-
-他都承认
-Él admitió todo
-
-说的都是实话
-Que todo era verdad
-
-我说你可以离开了
-Entonces le dije que ya te puedes ir
-
-是吧
-Cierto
-
-这个袖扣
-Esta mancorna
-
-就是干这个的
-Son para este tipo uso
-
-后来我知道
-Luego me enteré
-
-这个袖扣被他们广泛的用在了澳门
-Que esta mancorna es utilizada popularmente en Macao
-
-因为澳门的迭马仔
-Porque los caballos apilados en Macao
-
-还有发牌的人是要戴
-Y la persona que reparte las cartas debe usarlas
-
-你看都戴袖扣的
-Mire que todos tienen las mancornas puestas
-
-很多人戴着
-Muchas personas
-
-特别是VVIP厅
-Especialmente, en la sala de VVIP
-
-就是这个袖扣
-Son estas mancornas
-
-就是录像手段之一
-Es uno de los métodos para grabar video
-
-最重要的事情
-Y lo más importante
-
-这个袖扣戴着, 人在后面戴的时候
-Tener la mancorna puesta, si la persona de atrás lo usa
-
-有人看牌
-Pueden mirar las cartas
-
-就能把别人的牌传到那个监控室去
-Y así pueden enviar la carta vista a la sala de monitoreo
-
-那个是能大赢的
-Eso puede ganar en grande
-
-那是想赢你啥就赢你啥
-Puedes ganarte cualquier cosa que desees
-
-它这个扣子用了很多
-Estas mancornas fueron utilizadas en grandes cantidades
-
-大家不要想着它的镜头一直是很晃得
-No piensen que su lente tiembla a cada rato
-
-你记住
-Recuerda
-
-它这袖扣戴上的时候
-Cuando pones estas mancornas
-
-有的人手往里一放
-Hay personas que ponen las manos de esta forma
-
-他就这么一搁
-Y lo deja en esta posición
-
-他就不用动
-No será necesario moverse
-
-而且是超稳定的那种镜头
-Y son lentes de alta estabilidad
-
-高清的, 在当时就很高清了
-De alta definición, en aquel momento ya es de muy alta definición
-
-你知道吗
-Sabías eso
-
-很厉害
-Muy poderoso
-
-所以今天给你们解密
-Por eso hoy les descifré este secreto
-
-他是监视镜头
-Ella es una cámara de vigilancia
+那么中共能成功吗？肯定不能。随着郭文贵先生四年多的爆料，通过中共在国内外蓝金黄、王健之死、香港镇压、西藏屠杀、新疆种族灭绝、中共病毒和毒疫苗等一系列事件，证实了中共以假治国、以黑治国、以骗治国、以贪治国、以偷治国、以警治国、以生殖器治国等黑恶行径，中共已经掉入了塔西佗陷阱。从此以后它说的话再没有人和机构去相信，事实证明喜联储也没有遇到太大阻碍。而中共还在暗暗窃喜，自我感觉良好。它并不知道无论怎么做，只会利好喜联储，利好新中国联邦，利好灭共！
 
 * * *
 
-日期：12/03/2021
-原视频标题：郭先生解密袖扣
-El Sr. Guo descifra el secreto de las mancornas
-原视频日期：12/02/2021
-原视频网址：[https://gettr.com/post/pigt5wdaca](https://gettr.com/post/pigt5wdaca)
-任务编号：3080
-视频时间段：0:00-2:07
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场- 银龙
-发布 ：洛杉矶盘古农场- 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+*编辑：跟随战神*
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+*封面：霹雳鼠年*
+
+*发布：吐纳*
 
  
 
