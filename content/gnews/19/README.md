@@ -2,21 +2,48 @@
 ---
 
 
-## 秘翻在线：最新研究显示过去十年的碳排放量总体保持平稳
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1721887/)
+## 郭先生宣布四件大利于爆料革命的喜事
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1721992/)
 
-#### 翻译/撰稿：zzballack
+撰稿：纽约香草山教育部 Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-1.png)
+在2021年12月3日大直播中，郭文贵先生向战友们连续宣布了四件令人振奋的喜事：
 
-#### 校对：白夜
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-204.png)图片来源：每日邮报
-据《网关专家》（Gateway Pundit）12月4日报道，对于一直鼓吹人类活动导致二氧化碳排放增多，以致全球变暖的全球主义者来说，比如美国前副总统阿尔·戈尔 (Al Gore)、美国众议员桑迪·科尔特兹（Sandy Cortez）甚至反社会者比尔·盖茨，全球碳计划 (GCP)的一项最新调查结果彻底揭穿了他们的谎言。
+一、取得了英国伦敦最老字号的赌场和赌博牌照。
 
-GCP今年11月公布的一项调查显示，全球的二氧化碳排放总量至少在过去10年内一直保持平稳。GCP预测，2021年的化石燃料二氧化碳排放量将达到364亿吨，仅比大流行前的最高值、2019年的367亿吨低0.8%。
+郭先生表示，刚拿到的这个赌场是全牌照。该赌场历史悠久，团队健全，GTV大额投资者，法制基金大额捐款者会参与投资。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-213.png)
+郭先生强调，一张赌博牌照就是一只金母鸡。英国的赌博牌照可以做很多事情，包括使用数字货币赌博，包括喜美元和喜币。
 
-中共病毒大流行期间，人们的各项活动受到严格限制，无论是旅游出行，还是生产制造和运输，这些与碳排放紧密相关的行业几乎处于停摆状态，但是减少的碳排放量几乎微乎其微。尽管如此，这些事实并不会阻止那些全球主义者和极端社会主义者继续力推其绿色能源协议和气候倡议等政治议程，以摧毁美国的能源独立，让美国对中共政权更加依赖。以比尔·盖茨为代表的黑暗势力也将继续打着“零排放”的幌子实施其大规模减少全球人口的计划，他们甚至提出为了控制碳排放量，限制每人的碳额度，以控制人们的日常活动和需求。
+二、成功收购了一家全球排名前五的美国数字银行。
 
-新闻来源：[New Study Finds that Global Carbon Emissions Have Been Flat for a Decade Despite the Leftist Hysteria](https://www.thegatewaypundit.com/2021/12/new-study-finds-global-carbon-emissions-flat-decade-despite-leftist-hysteria/)
+郭先生指出，数字银行绝对是数字金矿，近日收购的这家数字银行的价值绝对不亚于喜联储。该银行将由喜联储控股 51%，剩余49%将由GTV大额投资和法制基金大额捐款战友控制。参与该银行控股的股战友会加入董事会。
 
+三、Gfashion获得梅戴利（音译） 的全美代理权和品牌使用权。
+
+梅戴利（音译）号称时尚之王。他了解到爆料革命宣传的疫苗真相，看到了爆料革命创造的G系列产品后，希望能与GFashion合作，授权GFashion免费使用梅戴利代理权和品牌使用权。郭先生成为唯一一位被梅戴利邀请成为其股东的亚洲人。
+
+四、梅戴利随时欢迎战友到梅戴利（音译）工厂和办公室参观游览。
+
+全世界50%以上的奢侈品牌服装箱包都是梅戴利生产，在那里可以看到全世界最精湛的工艺。郭先生表示，梅戴利在米兰的新办公室就设在米兰四季酒店对面，随时欢迎爆料革命战友到访，会提供专车接送服务。
+
+近五年来，郭文贵先生领导的爆料革命，向全世界传播真相，尤其通过传播中共病毒疫苗真相拯救了无数生命，为人类带来了希望，也赢得了全世界的认可和尊重。
+
+链接: [文贵爆料12.3.2021 郭先生宣布大利喜联储和战友的四件大事](https://gnews.org/zh-hans/1718477/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-89.png)
+
+总编/编辑: 木白
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

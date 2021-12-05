@@ -2,26 +2,24 @@
 ---
 
 
-## 奥密克戎很可能结束大流行，两类人尤需防范
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1722074/)
+## Hpay将彻底颠覆传统交易方式
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1722121/)
 
 撰稿：纽约香草山教育部- Noemi
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-1.png)
-12月4日，文贵先生在大直播中爆料，中共病毒新变种奥密克戎虽在短期内致死率较低但其传播力度极强。其特性很可能提前结束这场中共病毒的大流行。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12051-1.png)
-据了解，奥密克戎在普通人群中的传播力极其强劲。仅一周时间，该变种就已扩散至39个国家，成为中共病毒大流行的最主要毒株。
+12月4日，郭文贵先生在大直播中爆料，Hpay功能将颠覆现有的交易模式，并摆脱传统的金融牌照。未来，Hpay在交易的私密性、安全性、便捷性与自由度上都为用户提供了独特体验。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-218.png)
+郭先生说，在未来的Hpay交易中，买卖双方只需要在喜联储通过KYC认证，便实现直接转账支付。而此类型转账，并不属于传统商业消费的范畴，因此，不需要当地的金融牌照，仅仅是喜联储之间的个人支付。
 
-文贵先生提醒，患有基础疾病的人群在感染奥密克戎后更易加重其自身的原有病变；而具有家族疾病遗传史的人群则会在感染之后更可能引起相关遗传疾病的发病。此二类人群应尤需注意自身防范。
+郭先生指出，在2022年的4-5月间， Hpay可以像GFASHION一样，在接受的国家和地区，会成为各大商户认可的支付方式。而明年的6-7月间，Hpay将在全世界更大的范围获得认可。
 
-新闻链接：[文贵爆料12.3.2021 郭先生宣布大利喜联储和战友的四件大事](https://gnews.org/zh-hans/1717428/)
-
-[中国男子在南非确诊奥密克戎 当事人:肺里像冒火](https://news.creaders.net/china/2021/12/03/2426522.html)
-
-
+新闻链接：[2021年12月03日 文贵大直播](https://gtv.org/video/id=61aa1cecd6388d55041591e6)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
 
-总编*/*编辑：木白
+总编：木白
+
+编辑：DM
 
 校正/发稿：浪迹天涯
 
@@ -32,6 +30,8 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-1.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
