@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/5/2021 11:41 PM (UTC)`
+
+12月5号：2017年一八年所有的爆料都在被共产党的疯狂的行动，证实一切唯真不破！ 打印图标<br/> 中国准备在大西洋建立第一个海军基地，令美国官员感到震惊 <br/><br/>https://www.zerohedge.com/geopolitical/china-poised-establish-1st-ever-naval-base-atlantic-alarming-us-officials
+
+---
+
 `@miles 12/5/2021 11:10 PM (UTC)`
 
 12/5/2021 Miles Guo: Xi Jinping’s confidence and insanity come from Russia; Xi has personal grudges with the US and European governments and they look down upon each other; battery, new energy, digital currency, and space technology have given Xi confidence; Xi Jinping alone determines the fate of Communist China, and Russia is the key for taking down the CCP<br/><br/>12/5/2021 文贵直播：习近平的自信和疯狂源自俄罗斯；习跟美、英政府有个人恩怨，互相不待见；电池、新能源、数字货币和太空技术给习自信；习决定了中共国的命运，俄罗斯对灭共很关键<br/><br/>
@@ -144,13 +150,6 @@ Hcoin To The Moon <br/>iTunes Ranking No. 1 🥇<br/>iTunes 打榜第一名🥇<
 
 12/3/2021 Miles Guo: The people Xi Jinping met with and the duration of the meetings between August 1 and 16, 2021 show that 1) Xi respects Song Ping and Hu Jintao, 2) he has completely lost trust in Jiang Zemin's family, 3) he is moving to the left politically, and 4) will take action against the CCP’s financial sector, the Central Commission for Discipline Inspection, and the local top cadres<br/><br/>12/3/2021 文贵直播：习近平在2021年8月1日到16日期间见的人和见面时间说明习尊重宋平和胡锦涛，他对江家已完全失去信任，他在政治上将向左转并要对金融领域、中纪委和地方大员动手<br/>
 ![img](https://media.gettr.com/group4/getter/2021/12/04/05/12/b601d403-3422-17e8-2a4e-c5b29444fd3a/out.jpg)
-
----
-
-`@miles 12/4/2021 4:42 AM (UTC)`
-
-12/3/2021 Miles Guo: The CCP’s COVID vaccines lead to the sudden onset of various cancers in the senior people, increase sudden deaths in the young adults, and cause uterine, ovarian, and breast cancer in women; vaccinating children will lead to precocious puberty and cancer, and children in Communist China would rather not go to school than get the COVID jabs!<br/><br/>12/3/2021 文贵直播：中共疫苗导致老年人突发多种癌症，中年壮年猝死率陡增，女性得子宫癌、卵巢癌和乳腺癌；给孩子打疫苗将导致早熟和癌症，国内孩子宁愿不上学也不要打疫苗！<br/>
-![img](https://media.gettr.com/group27/getter/2021/12/04/04/42/09dfb92f-1ddd-1f1d-d156-ff48a830225e/out.jpg)
 
 ---
 

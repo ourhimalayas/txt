@@ -2,50 +2,26 @@
 ---
 
 
-## Hcoin To the Moon 上线第3天位列10国iTunes摇滚音乐榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1723273/)
+## 文贵爆料 12.5：躺平币让你不“躺平”
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1723444/)
 
-12/05/2021 郭文贵先生的歌曲Hcoin To the Moon上线第3天位列10国iTunes摇滚音乐榜首
+撰稿：Ermat
+![新闻图片](https://assets.gnews.org/wp-content/uploads/2021/12/snapshot2-1.jpg)
+“躺平”是一种态度、一种无奈，是对残酷现实无声的抗争。但当生活再次展现出它那最美好、最公平的一面时，你还会这样吗？郭文贵先生在12月5日的大直播中说，未来我们将发行躺平币，战友们会“劳有所得、干有所值 ”，躺平币发行之日，就是共产党盖棺定论之时。
 
-[【PDF 下载】Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+躺平币式肯定是公连啊，完全是不经过任何人工审核的，但是到最后你兑现的时候，他必须要经过兑现平台的kyc，这是肯定的。比如说盖特，你加入盖特，你认证大威了，根据你的关注者，你就一下子就有这个币了，这给你的啊。比如说今天参加大直播这节目的，我们都会有标准的啊。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_2.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_3.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_4.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_6.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_8.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_11.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_12.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_13.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_14.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_15.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_16.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_17.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_18.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_19.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_20.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_21.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_22.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_23.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_24.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_25.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_26.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_27.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_28.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_29.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_30.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_31.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_32.jpg)
+比如说躺平，我怎么知道你是否躺平了，我怎么能证明你？你怎么证明你躺平了？你是湖南的，我咋能证明你不是孙尧啊，我咋知道你不是冠军、刘成杰呢？那孙姚、刘成杰，冠军，人家也躺平，你能不给人家币吗？是吧？话又说回来了，这些都有标准的，因为你只要上用了这个电脑，你只要用手机，你做了以下的行动，如多少时间内推一个信息，多长时间内你用了一次盖车，多长时间内你发了个信息，这就是你的时间分配。就像现在工程师，我们百分之九十九的工程师都是远程操作，都没见过面，这不是很多事情都发生了吗？因为现在电脑和区块链技术可以确定你的行为一切是真是假。
 
+那躺平币如何确定躺平和躺平的价值和标准啊？这就是未来新中国联邦的雏形。不用用任何腐败去管，还要把老婆、孩子送进去给他双修，那个不用的。你的工作能力、结果和时间就决定了你的层次和级别，获得币的数量。你获得币的数量，你就未来在这个系统里面，这就是你的定位、是你的价值和层级啊，这就是区块链技术的魅力所在。
 
-[【PDF 下载】Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+我就告诉你，躺平币发行的第一天就会让你就能买面包、买油，当然能买Gfashion了。？躺平币不是空间币，它不是虚幻币，它是真正的可兑换的，就是法币所有的功能都有，马上可以用。他有级别的。比如说文峰跟我，我账上有五百个币，那你买面包、买油的可能只让你使用五十个币，每一次你不能一下子都用完啊。你还能干啥？你能活着，你不就睡觉、吃饭、车、加油、买点衣服穿，你还能干啥？
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+郭先生说，这躺平币的厉害可真不能告诉你，告诉完你们你们绝对睡不着，一星期睡不着啊。躺屏币是七哥创出来的，每时每刻都会感动你啊。，只要躺平币出来，共产党就知道自己的棺材板该钉上钉了，盖棺定论了。
+
+参考链接：
+
+[2021年12月5日 文贵大直播](https://gettr.com/streaming/pispahf0ee)
 
  
 
