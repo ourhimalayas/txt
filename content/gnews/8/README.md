@@ -2,11 +2,10 @@
 ---
 
 
-## 12/4/2021 文贵直播：中共国人口低于10亿；阿富汗的人道灾难是中共培养塔利班的结果
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1721362/)
+## 文贵大直播简报 12月3日
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1721368/)
 
-秘密翻译组-北美组
-
+![](https://assets.gnews.org/wp-content/uploads/2021/12/文贵大直播12.03.1.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/文贵大直播12.03.2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

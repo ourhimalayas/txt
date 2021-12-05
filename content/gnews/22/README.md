@@ -2,29 +2,53 @@
 ---
 
 
-## 因拒绝出示疫苗护照而引发的暴力事件激增澳洲维省考虑提前取消疫苗强制接种
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1721195/)
+## 同喝一杯咖啡的故事
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1721229/)
 
-翻译：喜国公民
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Bookstore.png)图片来自网络
-[一系列关于工人因检查疫苗护照而被虐待的事件](https://www.skynews.com.au/australia-news/coronavirus/victorian-government-considering-removing-vaccination-mandate-three-months-earlier-due-to-incidents/news-story/a07e37c1866f11269adf4218cb00fde5)，使维州政府重新考虑他们的强制疫苗接种政策。
+# 我们是一家人与三个绝不允许
 
-维州警方正在调查一起事件。据称一名Dymocks员工在要求一名顾客出示他的疫苗接种证书时，被推下扶梯。该店老板说，这是上周五该店发生的第三起与要求出示疫苗护照有关的事件。
+作者：祈望明天会更好
 
-闭路电视录像显示，这名工作人员试图阻止这名男子从自动扶梯下到书店时被推下扶梯，头部撞到台阶上。人们看到这名工作人员抱着头，躺在扶梯上一动不动。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-109-1280x172-1-2-1.jpg)
 
-墨尔本的另一家书店因员工受到攻击而被迫雇用私人保安，每周费用为4000澳元。
 
-由于零售业工人受到威胁和虐待，维州政府正在寻求取消疫苗强制接种的规定。如果通过的话，这个有争议的疫苗强制接种政策可能会在新年被取消。
 
-据报道，州政府正在考虑最早于1月在除高风险环境外的所有场合取消这一指令。
 
-州长丹尼尔-安德鲁斯曾在10月建议，强制接种指令要一直存在到明年4月甚至更久。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-195.png)
+12 月 3日2021 郭先生在大直播中陈述:
 
-目前，有93%的维州人已经接受了一剂疫苗，91.1%的人已经完全接种。
+1. 保镳担心郭先生的安危因为郭先生与战友们同喝一杯咖啡. 但郭先生说他视兄弟姊妹为一条命, 大家的安全与生死和郭先生都是一样的. 这意味着 生命共同体. 保镳家人听了转述, 同起立鼓掌, 称你要好好的保护他!
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-2.jpg)
+2. 郭先生说:一家人不等同于每个人都百分百同意有相同的意见, 那叫一家神! 我们是一家人, 不是一家神! 他必定有 磨擦, 必定有不同的意见.
+
+3. 三个绝不允许: 不允许奉献, 不允许失去, 更不允许把郭先生神话,个人化, 崇拜化, 就像希特勒, 史达林, 列宁, 毛泽东, 无不如此他们 都代表神, 上帝跟像现在的习太阳一样．
+
+一般人想要的欲望郭先生都想要，只是经验多，见识多, 比较幸运,跟一般人都一样,不要做个人神话.
+
+信息链接：[https://gtv.org/video/id=61aa1cecd6388d55041591e6](https://gtv.org/video/id=61aa1cecd6388d55041591e6)
+
+编辑/校对/发稿：小小安
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-69.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-109-1280x172-1-2-1.jpg)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

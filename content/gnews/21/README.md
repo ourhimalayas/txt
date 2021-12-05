@@ -2,52 +2,34 @@
 ---
 
 
-## 泽连科医生在盖特上呼吁依法严惩辉瑞CEO
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1721210/)
+## 研究证明青蒿素在体外对SARS-CoV-2及癌细胞的有效性
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1721239/)
 
-作者：纽约香草山翻译部 defiance
+**撰稿：Grace**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-109-1280x172-1-2-1.jpg)
+**校对：Grace**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-04-at-9.26.54-PM.jpeg)图片来源：科学网
+一个跨国研究小组首次展示了**基于青蒿素的治疗方法在人类细胞系（包括特定类型的肺细胞）中对严重急性呼吸系统综合症冠状病毒****2****（****SARS-CoV-2****）的卓越活性。**他们的研究结果已经发表在《科学报告》杂志上。
 
+**青蒿素是存在于被称为黄花蒿的植物中的许多生物活性化合物之一**，目前被用作治疗疟疾的一种活性成分。此外，**其衍生物青蒿琥酯和蒿甲醚具有更好的药代动力学特征**，这就是为什么它们被广泛用于世界各地的各种抗疟疾综合治疗。
 
+这项由丹麦哥本哈根大学 （University of Copenhagen in Denmark）的 Yuyong Zhou 博士和德国马克斯普朗克胶体与界面研究所 (Max Planck Institute for Colloids and Interfaces in Germany) 的克里·吉尔摩博士 （Dr. Kerry Gilmore） **领导的新研究旨在评估****黄花蒿****提取物——以及纯青蒿素、青蒿琥酯和蒿甲醚——在实验室条件下是否对**** SARS-CoV-2 具有活性。**
 
+**不同的菌株，不同的细胞系**
 
+最初，在 VeroE6 细胞（即一种特定类型的非洲绿猴肾细胞系）中使用斑块减少试验筛选了几种黄花蒿和青蒿素提取物的抗病毒活性。 这是在预处理环境中使用来自慕尼黑的德国 SARS-CoV-2 菌株完成的。
 
-![](https://media.gettr.com/group27/getter/2021/12/03/17/c013386a-845d-fbdd-4979-8185b49d3813/124771419d557e57f5df4a76967d3b48.jpg)图片来源：盖特 
+该步骤为进一步的实验提供了依据，**其中研究了三种****黄花蒿****提取物（连同纯合成青蒿素、青蒿琥酯和蒿甲醚）**，以通过使用多次重复来证明在预处理和处理设置中提取物和化合物的浓度-响应曲线。 在这里，研究人员在 VeroE6 细胞中使用了来自哥本哈根的丹麦 SARS-CoV-2 菌株。
 
-12月3日至4日，泽连科医生在盖特上连续发表观点，辉瑞公司首席执行官阿尔伯特-布拉是世界上最大的有组织犯罪黑手党的黑老大。他，以及他做杀人业务公司，在致死毒针的安全性和有效性上，欺骗了全人类。他应该被立即逮捕并接受国际军事法庭的审判。他随后为一个盖特进行了背书，此盖文写道，截至2021年2月，辉瑞公司已经收到1200多份由疫苗引起的死亡报告和数万份不良事件报告，包括270例怀孕中的23例自然流产和2000多份心脏疾病报告。这是辉瑞公司自己的数据。难怪美国食品和药物管理局会争取将其隐藏55年。
+最后，**上述提取物和化合物对丹麦****SARS-CoV-2****病毒株的疗效已在****Huh7.5****（一种永生上皮样肿瘤性肝癌细胞系）和****A549-hACE2****细胞（表达人血管紧张素转换酶****2****的肺癌细胞）中得到证实**。
 
-CCP病毒是一种人造大规模杀伤性武器。黑暗力量故意把他释放出来，以引起全球恐慌和人与人之间的隔离，并诋毁得病早期使用羟氯喹或者伊维菌素的方法，胁迫人们扎索命毒针。索命毒针会引发中风、心脏病、心肌炎、流产、癌症、自身免疫性疾病、不孕不育和抗体依赖增强效应，并含有生物识别传感器。这些传感器量测体内生理数据，并将地理位置一起传输给第三方。
+**成功抑制**** SARS-CoV-2**
 
-新闻链接：
+**该实验结果表明，用所有研究的提取物和化合物进行处理均成功地抑制了**** VeroE6****、人肝癌**** Huh7.5 ****和人肺癌****A549-hACE2 ****细胞系的**** SARS-CoV-2 ****感染**——**细胞类型对抗病毒效果无明显影响。**
 
-[https://gettr.com/post/pig3u07bd6](https://gettr.com/post/pig3u07bd6https://gettr.com/post/pihtky3bd1https://gettr.com/post/pinsnm8686)
+在使用的治疗分析中，**青蒿琥酯被证明是最有效的**，在 7 到 12 µg/mL 之间的不同细胞类型中，其有效浓度(EC50) 范围为 50%。 **其次是蒿甲醚**，范围在 53 到 98 µg/mL 之间，青蒿提取物的范围在 83 到 260 µg/mL 之间，**最后是青蒿素**，范围从 151 到至少 208 µg/mL。
 
-[https://gettr.com/post/pihtky3bd1](https://gettr.com/post/pig3u07bd6https://gettr.com/post/pihtky3bd1https://gettr.com/post/pinsnm8686)
-
-[https://gettr.com/post/pinsnm8686](https://gettr.com/post/pig3u07bd6https://gettr.com/post/pihtky3bd1https://gettr.com/post/pinsnm8686)
-
-编辑/校对/发稿：小小安
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-69.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-109-1280x172-1-2-1.jpg)
-
-
-
-
+**新闻来源：[Study proves effectiveness of Artemisia annua against SARS-CoV-2 in vitro](https://www.news-medical.net/news/20210719/Study-proves-effectiveness-of-Artemisia-annua-against-SARS-CoV-2-in-vitro.aspx)**
 
  
 

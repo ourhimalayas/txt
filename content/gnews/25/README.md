@@ -2,39 +2,29 @@
 ---
 
 
-## 最新！挪威圣诞聚会可能引发除南非外最大的 Omicron 变种爆发
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1721170/)
+## 因拒绝出示疫苗护照而引发的暴力事件激增澳洲维省考虑提前取消疫苗强制接种
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1721195/)
 
-翻译： 真北007
-![](https://assets.gnews.org/wp-content/uploads/2021/12/covidtestingman.jpg)图片来源：网络
-来自福克斯FOX NEWS 12月4日的新闻报道：
+翻译：喜国公民
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Bookstore.png)图片来自网络
+[一系列关于工人因检查疫苗护照而被虐待的事件](https://www.skynews.com.au/australia-news/coronavirus/victorian-government-considering-removing-vaccination-mandate-three-months-earlier-due-to-incidents/news-story/a07e37c1866f11269adf4218cb00fde5)，使维州政府重新考虑他们的强制疫苗接种政策。
 
-根据最近的一份报告，挪威最近在圣诞聚会上爆发的 omicron 疫情提供了早期相关证据，说明这些变异如何在接种疫苗的人群之间传播及其症状的严重程度。
+维州警方正在调查一起事件。据称一名Dymocks员工在要求一名顾客出示他的疫苗接种证书时，被推下扶梯。该店老板说，这是上周五该店发生的第三起与要求出示疫苗护照有关的事件。
 
-公司发言人 Stian Tvede Karlsen 表示，挪威的一家可再生能源公司在举办年度假日聚会之前采取了所有必要的安全预防措施，包括只邀请接种疫苗的员工并要求在派对前一天进行快速测试。
+闭路电视录像显示，这名工作人员试图阻止这名男子从自动扶梯下到书店时被推下扶梯，头部撞到台阶上。人们看到这名工作人员抱着头，躺在扶梯上一动不动。
 
-派对在奥斯陆的一家高档餐厅举行，约有 120 人参加，其中一些人最近前往南非，该公司在那里开展太阳能电池板业务。
+墨尔本的另一家书店因员工受到攻击而被迫雇用私人保安，每周费用为4000澳元。
 
-据《华尔街日报》报道，超过 50% 的人对 COVID-19 的检测呈阳性，其中 13 人被确认患有 omicron 变体，但没有人出现严重症状。
+由于零售业工人受到威胁和虐待，维州政府正在寻求取消疫苗强制接种的规定。如果通过的话，这个有争议的疫苗强制接种政策可能会在新年被取消。
 
-《华尔街日报》补充说，这次爆发似乎是南非以外世界上最大的 omicron 爆发，值得注意，它发生在一个国家 80% 以上的成年人都接种了疫苗的人群中。
+据报道，州政府正在考虑最早于1月在除高风险环境外的所有场合取消这一指令。
 
-乔治城大学的全球和公共健康法和伦理学助理教授亚历山德拉·费兰 (Alexandra Phelan) 表示，尽管疫情迅速蔓延，但聚会本身的条件可能加速传播，客人们在隔离的环境中交谈和交流了几个小时，这是超级传播者活动的理想条件。
+州长丹尼尔-安德鲁斯曾在10月建议，强制接种指令要一直存在到明年4月甚至更久。
 
-她补充说，此次爆发表明当前的 COVID-19 疫苗不能预防感染，但有可能预防严重疾病。
+目前，有93%的维州人已经接受了一剂疫苗，91.1%的人已经完全接种。
 
-Phelan 说：“如果他们处于工作年龄并且足够年轻，可以狂欢到深夜，那么他们可能已经处于低风险之中。” “最大的问题是免疫逃避， 此事件开始向其添加数据，至少是松散数据。”
-
-点评：基于此文章和其它报道，Omicron目前给人的印象是，高感染率，症状轻，免疫逃避（以前得过Covid的人对Omicron没有免疫力，照样感染）。疫苗无效，完全接种者照常染病。
-
-原文链接：[https://www.foxnews.com/health/norway-christmas-largest-omicron-variant-outbreak-outside-south-africa](https://www.foxnews.com/health/norway-christmas-largest-omicron-variant-outbreak-outside-south-africa)
-
-编辑/发布：LILY
-
-20211204
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
-
-
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
