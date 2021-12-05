@@ -15,122 +15,122 @@
 
 ---
 
-### [Hpay将彻底颠覆传统交易方式](/content/gnews/1/README.md)
- ` GTV新闻访谈`
-
-### [日本群马县太田市的一家工厂发生42人群体感染](/content/gnews/2/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共国的“民主”就是权力奴役百姓](/content/gnews/3/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [数字货币颠覆旧金融体系，是必然趋势](/content/gnews/4/README.md)
- ` GTV新闻访谈`
-
-### [隐忍还是愤怒？中共对女网协退赛进退失据](/content/gnews/5/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [恒大汽车直线暴跌19% 11月两次配售依然入不敷出](/content/gnews/6/README.md)
- ` GTV新闻访谈`
-
-### [奥密克戎很可能结束大流行，两类人尤需防范](/content/gnews/7/README.md)
- ` GTV新闻访谈`
-
-### [郭先生在全世界虚拟货币监管会议中提出监管意见](/content/gnews/8/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [日本政府认定中共病毒有严重后遗症](/content/gnews/9/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共福建省举办大面积停电演练引发臆测](/content/gnews/10/README.md)
- ` GTV新闻访谈`
-
-### [IOC助纣为虐，众院两党议案谴责IOC粉饰中共罪行](/content/gnews/11/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共捏造的假冒瑞士“科学家”遭曝光](/content/gnews/12/README.md)
- ` GTV新闻访谈`
-
-### [习近平催生的中国特色宗教必将成为全人类的笑料](/content/gnews/13/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共与印尼因领海争议剑拔弩张](/content/gnews/14/README.md)
- ` GTV新闻访谈`
-
-### [死亡是中共病毒疫苗最突出的特点](/content/gnews/15/README.md)
- ` 墨尔本雅典娜农场`
-
-### [海外华人的寒冬或已到来！](/content/gnews/16/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [2021/12/05 墙内世界](/content/gnews/17/README.md)
+### [疫苗受害者自述：我很担心我的将来会发生什么](/content/gnews/1/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美韩防长今会面 安保声明首度提及台海稳定重要性](/content/gnews/18/README.md)
- ` GTV新闻访谈`
+### [喜币超越法币成为未来最佳货币的三大契机](/content/gnews/2/README.md)
+ ` 澳喜农场`
 
-### [郭先生宣布四件大利于爆料革命的喜事](/content/gnews/19/README.md)
- ` GTV新闻访谈`
-
-### [美情报官员：俄罗斯正为入侵乌克兰做部署](/content/gnews/20/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [西班牙专家报告：用疫苗护照阻止疫情适得其反](/content/gnews/21/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [英国将在圣诞节前对Omicron变种病毒预防措施进行审查](/content/gnews/22/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [秘翻在线：最新研究显示过去十年的碳排放量总体保持平稳](/content/gnews/23/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [加拿大疫苗倡导者提出秘密接载儿童到疫苗接种点](/content/gnews/24/README.md)
- ` 墨尔本雅典娜农场`
-
-### [每日快报：克里斯-库莫因帮助哥哥安德鲁对抗性骚扰指控而被CNN解雇](/content/gnews/25/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [完全接种中共病毒疫苗的年轻妇女被确认为感染奥米克戎](/content/gnews/26/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [郭文贵先生2021年12月04日盖特视频（4分42秒）全文字版](/content/gnews/27/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [币圈新闻动态：喜币（HCN）价格目前在44.658 HDO](/content/gnews/28/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [每个国家和城市的反政府动乱是今天CCP最希望看到的](/content/gnews/29/README.md)
+### [郭先生解密袖扣](/content/gnews/3/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [COVID-19 最新情报｜拜登“强烈支持”为 5 岁以下儿童接种疫苗 专家警告：“疫苗伤害像疤痕，无法治愈，许多孩子会死”](/content/gnews/30/README.md)
- ` G&#124;News TAIWAN`
+### [议员提出强制FDA一百天内发布辉瑞文件](/content/gnews/4/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [迫害！巴西总统因为说新冠会增加患上艾滋风险而被法院调查](/content/gnews/31/README.md)
+### [疫苗受害者母亲：不要让你的孩子成为疫苗试验品](/content/gnews/5/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [网球名将支持国际女子网球协会为彭帅发声](/content/gnews/6/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [中共2022年全军开始面向社会公开招考文职人员](/content/gnews/7/README.md)
+ ` 儒为`
+
+### [马克医生起诉医院要求获得伊维菌素的使用权](/content/gnews/8/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [欧洲西北部数千人游行反对COVID限制](/content/gnews/9/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [美国上诉法院对拜登政府联邦疫苗授权实施一系列毁灭性打击](/content/gnews/10/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [秘翻在线 :全球能源危机到来？](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共国医学界良知专家：孩子打疫苗促体内肿瘤生长](/content/gnews/32/README.md)
- ` 澳喜特战旅Gnews`
-
-### [2018年6月5日郭文贵先生直播全文字版：看了万润南先生的视频后的感谢](/content/gnews/33/README.md)
- ` 温哥华扬帆农场七哥直播全文听写组`
-
-### [英国卫生部长萨吉德：加强针的间隔将从6个月减半为3个月](/content/gnews/34/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [澳媒指中共的疫苗研发过程不合常理](/content/gnews/35/README.md)
+### [Hpay将彻底颠覆传统交易方式](/content/gnews/12/README.md)
  ` GTV新闻访谈`
 
-### [FDA文件爆辉瑞疫苗副作用案例远超常规](/content/gnews/36/README.md)
+### [日本群马县太田市的一家工厂发生42人群体感染](/content/gnews/13/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共国的“民主”就是权力奴役百姓](/content/gnews/14/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [数字货币颠覆旧金融体系，是必然趋势](/content/gnews/15/README.md)
  ` GTV新闻访谈`
 
-### [立陶宛总统、外长及体育部长相继宣布外交抵制北京冬奥会](/content/gnews/37/README.md)
+### [隐忍还是愤怒？中共对女网协退赛进退失据](/content/gnews/16/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [恒大汽车直线暴跌19% 11月两次配售依然入不敷出](/content/gnews/17/README.md)
+ ` GTV新闻访谈`
+
+### [奥密克戎很可能结束大流行，两类人尤需防范](/content/gnews/18/README.md)
+ ` GTV新闻访谈`
+
+### [郭先生在全世界虚拟货币监管会议中提出监管意见](/content/gnews/19/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [日本政府认定中共病毒有严重后遗症](/content/gnews/20/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共福建省举办大面积停电演练引发臆测](/content/gnews/21/README.md)
+ ` GTV新闻访谈`
+
+### [IOC助纣为虐，众院两党议案谴责IOC粉饰中共罪行](/content/gnews/22/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共捏造的假冒瑞士“科学家”遭曝光](/content/gnews/23/README.md)
+ ` GTV新闻访谈`
+
+### [死亡是中共病毒疫苗最突出的特点](/content/gnews/24/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [2021/12/05 墙内世界](/content/gnews/25/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [郭先生宣布四件大利于爆料革命的喜事](/content/gnews/26/README.md)
+ ` GTV新闻访谈`
+
+### [美情报官员：俄罗斯正为入侵乌克兰做部署](/content/gnews/27/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [西班牙专家报告：用疫苗护照阻止疫情适得其反](/content/gnews/28/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [英国将在圣诞节前对Omicron变种病毒预防措施进行审查](/content/gnews/29/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [秘翻在线：最新研究显示过去十年的碳排放量总体保持平稳](/content/gnews/30/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [加拿大疫苗倡导者提出秘密接载儿童到疫苗接种点](/content/gnews/31/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [每日快报：克里斯-库莫因帮助哥哥安德鲁对抗性骚扰指控而被CNN解雇](/content/gnews/32/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [完全接种中共病毒疫苗的年轻妇女被确认为感染奥米克戎](/content/gnews/33/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [每个国家和城市的反政府动乱是今天CCP最希望看到的](/content/gnews/34/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [COVID-19 最新情报｜拜登“强烈支持”为 5 岁以下儿童接种疫苗 专家警告：“疫苗伤害像疤痕，无法治愈，许多孩子会死”](/content/gnews/35/README.md)
+ ` G&#124;News TAIWAN`
+
+### [澳媒指中共的疫苗研发过程不合常理](/content/gnews/36/README.md)
+ ` GTV新闻访谈`
+
+### [FDA文件爆辉瑞疫苗副作用案例远超常规](/content/gnews/37/README.md)
+ ` GTV新闻访谈`
+
+### [立陶宛总统、外长及体育部长相继宣布外交抵制北京冬奥会](/content/gnews/38/README.md)
  ` 日本东京方舟农场`
 
-### [我该如何拯救你，我的同胞。](/content/gnews/38/README.md)
+### [我该如何拯救你，我的同胞。](/content/gnews/39/README.md)
  ` 纽约香草山MOS03`
-
-### [13岁加拿大女孩被迫接种疫苗后发生心脏骤停](/content/gnews/39/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [尽管大力推广第三针英国11月期间80%的新冠死亡病例是完全接种者](/content/gnews/40/README.md)
  ` 澳喜农场`

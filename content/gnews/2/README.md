@@ -2,24 +2,30 @@
 ---
 
 
-## 日本群马县太田市的一家工厂发生42人群体感染
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1722115/)
+## 喜币超越法币成为未来最佳货币的三大契机
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1722212/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-217.png)[图片来源](https://news.yahoo.co.jp/articles/1350176714c71d99a4b1c04ac4a74c17bd38c014)
-据（ANN新闻）12月5日疫情中的最新报道称，群马县的一家工厂42名员工感染了中共病毒。
+**Három lehetőség arra, hogy a himalaya Coin valuta felülmúlja a fiat valutát, hogy a jövőben a legjobb valutává váljon**
 
-5日，共有26人被发现在工厂受到感染，此前的测试证实16名员工在本月2日和昨天之间受到感染。总共有42名十几岁到五十几岁的男女被证实感染了。所有的人都没有症状或有轻微的疾病，其中29人已经接受了两剂疫苗，9人没有。
+作者：纽约香草山教育部- Noemi
 
-县政府还证实，这些人中有两人感染了株德尔塔株，根据该县的说法，员工被要求在工厂里戴口罩，而且没有密集的情况。
+匈牙利语译者：永远的诺亚方舟
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide1-4.jpg)
+图片来源：网络截图
+December 1-jén Guo Wengui úr egyenesen kijelentette az élő adásban, hogy a Himalaya Coin a jövőben felülmúlja a hagyományos legális valutát, és a legjobb modern valutává válik. Ez a Himalaya Coin által kínált három fő lehetőségnek köszönhető:
 
-该县将对300名雇员和其他人进行进一步的测试。
+Először is, a Himalaya Coin  lesz a világ első fizetési funkcióval rendelkező kriptovalutája. Ugyanakkor a Himalaya-Pay lesz a Himalája Fed kereskedelmileg legértékesebb létezője.
 
-信息源：[群马/太田市工厂群聚感染 共42名员工感染](https://news.yahoo.co.jp/articles/1350176714c71d99a4b1c04ac4a74c17bd38c014)
+Másodszor, a Himalaya Fed hamarosan megszerzi a világ első digitális banki licencét, ami azt jelenti, hogy a Himalaya Coin  lesz az első legális kriptovaluta, amelyet szuverén állam engedélyez.
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
+Harmadszor, a Himalaya Coin valuta jövőbeni forgalomba hozatalát nehéz lesz megbecsülni. A kriptovaluta területén a forgalom az abszolút értékelési standard, amely meghatározza bármely kriptovaluta valódi értékét. Ezért úgy tűnik, hogy a Himalaya Coin valuta tulajdonosának saját előnyei és jövőbeli felértékelődési kilátásai egy “bankjegynyomtató gépet” tartanak a kezében.
+
+Guo úr azt is bejelentette, hogy a Himalaya Fed hamarosan két digitális bankot irányít, és egy csapásra a digitális banki szolgáltatások SWIFT-je lesz. Emiatt a Himalaya Coin rendszer végre eléri a digitális valuta és a legális valuta tökéletes kombinációját, a H-Pay, a himalájai devizakölcsönök és egyéb funkciók egymást követő bevezetésével párosulva, a Himalaya Coin referenciaszabvány lesz a modern digitális valuta területén.
+
+参考链接：2021年12月1日 文贵大直播
+
+原文链接：GNews APP 分享 ([https://gnews.org/zh-hans/1715507/](https://gnews.org/zh-hans/1715507/))
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

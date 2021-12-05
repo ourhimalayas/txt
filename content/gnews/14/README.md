@@ -2,37 +2,22 @@
 ---
 
 
-## 中共与印尼因领海争议剑拔弩张
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1722043/)
+## 中共国的“民主”就是权力奴役百姓
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1722104/)
 
-作者：东京樱花团 – 在远方
-![This image has an empty alt attribute; its file name is 1-28.png](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
-外媒12月2日报道，中共妄图独霸南海之野心，笼罩印太地区。近日，中共与印尼紧张关系持续升温。此前中方已经对印尼提出过分要求，目前双方更是剑拔弩张。
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-215.png)[图片来源](https://bbs.wenxuecity.com/currentevent/1906592.html)
+12月5日，人民网报道，中共国务院新闻办公室在4日举行新闻发布会，发布《中国的民主》白皮书，有关负责人介绍白皮书有关情况并答记者问。民政部副部长王爱文答记者问时说，中共国有49.2万个村民委员会，11.6万个居民委员会，覆盖了城乡的全体居民。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/6-8-scaled.jpg)
+按照中共国14亿人口为基数，正式编制公务员有800万人左右，事业编制有5000万左右，事业编制人数占人口比例3.57%。全国现在有111万个事业单位，编制内总人数就有3000多万人，另外有900万离退休人员，事业单位大账是4000万人，公务员大口径是800万，这两个加起来就是5000万人。
 
-据消息人士称，今年早些时候，中共外交部曾致函印尼外交部，要求印方立即停止在南海争议海域开采石油与天然气，此举立刻加剧了两国紧张关系。
+中共独裁国有数以亿计的党员和权力利益相关者相互捆绑，中共的权力像渔网一样密布排列分布到乡村镇社区，每一个点又像章鱼的触角一样延伸，牢牢控制奴役这个国度的居民，厚颜无耻的发布所谓民主白皮书，不受约束监督的自我管理、自我服务、自我教育、自我监督，所谓的制度优势，就是权力奴役百姓。
 
-虽然中共是印尼最大贸易伙伴和第二大投资国，面对中共将争议海域的“9段线”主张强加给印方，印尼议会国家安全委员会成员法尔汗，依旧做出坚决的回复。表示不会停止钻油勘探，因为这是在行使印尼主权。
+信息来源：[民政部：中国有49.2万个村民委员会、11.6万个居民委员会，发布民主白皮书](https://view.inews.qq.com/a/20211204A0474B00)
 
-参考链接：
-
-- [前所未見！路透獨家：中國、印尼因領海爭議劍拔弩張](https://news.ltn.com.tw/news/world/breakingnews/3755183)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
-
-总编辑：飞虹
-编辑：Kathy文艺
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

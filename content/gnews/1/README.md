@@ -2,36 +2,31 @@
 ---
 
 
-## Hpay将彻底颠覆传统交易方式
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1722121/)
+## 疫苗受害者自述：我很担心我的将来会发生什么
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1722213/)
 
-撰稿：纽约香草山教育部- Noemi
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-1.png)
-12月4日，郭文贵先生在大直播中爆料，Hpay功能将颠覆现有的交易模式，并摆脱传统的金融牌照。未来，Hpay在交易的私密性、安全性、便捷性与自由度上都为用户提供了独特体验。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-218.png)
-郭先生说，在未来的Hpay交易中，买卖双方只需要在喜联储通过KYC认证，便实现直接转账支付。而此类型转账，并不属于传统商业消费的范畴，因此，不需要当地的金融牌照，仅仅是喜联储之间的个人支付。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/9a7eea5f7a49455199ae321c56134810-3.jpg)
+**简评：**
 
-郭先生指出，在2022年的4-5月间， Hpay可以像GFASHION一样，在接受的国家和地区，会成为各大商户认可的支付方式。而明年的6-7月间，Hpay将在全世界更大的范围获得认可。
+Bran现年35岁，居住在澳洲，有一个5个月大的女儿。2021年10月6号Bran接种了一剂辉瑞疫苗，11月13号被确诊为心包炎，是由疫苗导致的。Bran现在有严重的心脏损伤，无法预料未来的结果，他很担心将来的生活。
 
-新闻链接：[2021年12月03日 文贵大直播](https://gtv.org/video/id=61aa1cecd6388d55041591e6)
+[GTV视频链接](https://gtv.org/video/id=61a828d33ff6481adce77b99)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
+**视频字幕：**
 
-总编：木白
+我叫Bran， 今年35岁。我住在澳大利亚西部的Perth。在2021年11月13号，我被确诊为心包炎，是由10月6号接种辉瑞mRNA疫苗导致的。“辉瑞疫苗接种后的急性心肌心包炎症”，这是皇家医院的出院报告，日期是11月16号。我11月13号入院，在医院4天。我做了許多检查。我的故事是典型的隐瞒数据的例子。我现在有严重的心脏损伤，无法预料长期结果。我有家室，有一个5个月的女儿和一个漂亮的伴侣。我很担心我的将来会发生什么。
 
-编辑：DM
+字幕：雨中漫步 | 听写：云岭 | 翻译：Roberts | PR：nights| 简评/文字整理/编辑：胖丁
 
-校正/发稿：浪迹天涯
+* * *
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-1.png)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

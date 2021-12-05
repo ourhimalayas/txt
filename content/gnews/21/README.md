@@ -2,27 +2,37 @@
 ---
 
 
-## 西班牙专家报告：用疫苗护照阻止疫情适得其反
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1721916/)
+## 中共福建省举办大面积停电演练引发臆测
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1722063/)
 
-**编译：致敬香港！**
+作者：东京樱花团 – 在远方
+![This image has an empty alt attribute; its file name is 1-28.png](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
+台媒12月2日消息，中共福建省于11月30日举行“大面积停电事件应急演练”，范围涵盖福州、厦门、漳州和宁德四地。中共单方面措辞为，演练是模拟超强台风及外部破坏双重因素叠加，所导致的大面积停电事件。但其中所谓的“外部破坏”因素一条，不禁引发外界对中共备战的联想。
 
-**校对：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screenshot-2021-12-05-160803.jpg)图片来源： https://sea.pcmag.com/
-据“零对冲”网12月4日转载报道，由西班牙区域联合疫情委员会（inter-regional Covid committee）展开的一项调查显示，疫苗护照政策不仅对降低中共病毒感染率没有效果，却反而向民众传递了“疫苗接种者不传播病毒”的错误信息。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/8.png)
 
-这份专家调查报告表明，在实施疫苗护照政策的欧洲各国，中共病毒病例都显著增加；约40%的疫苗接种者可仍旧感染并传播病毒，但该政策给民众造成了“接种者不会感染和传播病毒”的错误印象。疫苗护照并没有达到政策制定者们当初号称的“减轻疫情传播”的目标，但它的确使人们陷入恐惧和顺从，也许这才是该政策真正的目标。西班牙虽然没有全国实施该政策，但全国17个区域中8个采用了类似的政策。
+据悉，该演练由福建省应急指挥部主办。当地媒体称，福建省启动了二级应急响应，演练分为监测预警、启动响应、处置救援和响应结束四个阶段。
 
-无独有偶，英国《每日电讯报》 日前也得到一份国家“数字文化传媒及体育部”（The Department of Digital, Culture, Media and Sport）的13页调查报告，显示疫苗护照政策可能反向提高了疫情发病率。威尔士卫生部长摩根（Eluned Morgan）在回复自由民主党质询时也表示，至今为止尚无充分证据证明疫苗护照政策对减缓疫情有效。
+对于此次停电演练，不少网民认为，中共所称的应对台风影响只是借口，应对可能出现的台海战事所造成的停电，才是演练的目的。
 
-**新闻来源：**
+参考链接：
 
-[Spanish Investigation Finds Vaccine Passports Have No Impact on Infection Rates](https://summit.news/2021/12/03/spanish-investigation-finds-vaccine-passports-have-no-impact-on-infection-rates/)
+- [福建辦大面積停電演練 模擬颱風及「外部破壞」影響引發臆測](https://www-chinatimes-com.translate.goog/realtimenews/20211202002265-260409?_x_tr_sl=zh-TW&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=sc&amp;chdtv)
 
-[Vaccine passports would further spread of Covid, UK government report states](https://reclaimthenet.org/vaccine-passports-would-further-spread-of-covid-uk-government-report-states/)
 
-[Welsh Government Possesses No Evidence On COVID Passes](https://www.welshlibdems.wales/welsh_government_possesses_no_evidence_on_covid_passes)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
 
+总编辑：Irene木木
+编辑：AN
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

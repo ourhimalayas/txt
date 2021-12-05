@@ -2,21 +2,37 @@
 ---
 
 
-## 秘翻在线：最新研究显示过去十年的碳排放量总体保持平稳
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1721887/)
+## 中共捏造的假冒瑞士“科学家”遭曝光
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1722056/)
 
-#### 翻译/撰稿：zzballack
+作者：东京樱花团 – 在远方
+![This image has an empty alt attribute; its file name is 1-28.png](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
+台媒12月2日消息，今年7月，有一位自称名叫威尔逊.爱德华兹的所谓瑞士科学家，通过脸书和推特指控美国干预新冠溯源调查，并被中共当局大量转发。不料马上遭到瑞士政府打脸说，查无此人。经过调查发现，该账号跟中共国一家四川科技公司，以及一些中共国企员工有关。
 
-#### 校对：白夜
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-204.png)图片来源：每日邮报
-据《网关专家》（Gateway Pundit）12月4日报道，对于一直鼓吹人类活动导致二氧化碳排放增多，以致全球变暖的全球主义者来说，比如美国前副总统阿尔·戈尔 (Al Gore)、美国众议员桑迪·科尔特兹（Sandy Cortez）甚至反社会者比尔·盖茨，全球碳计划 (GCP)的一项最新调查结果彻底揭穿了他们的谎言。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/7-1.png)
 
-GCP今年11月公布的一项调查显示，全球的二氧化碳排放总量至少在过去10年内一直保持平稳。GCP预测，2021年的化石燃料二氧化碳排放量将达到364亿吨，仅比大流行前的最高值、2019年的367亿吨低0.8%。
+虽然中共官媒在引用这位神秘“瑞士科学家”推文后，已经把相关贴文都删除，但脸书母公司Meta在一份报告中指出，一个与中共有关联的假讯息，使用了数百个社群媒体假帐号，来宣传所谓瑞士科学家毫无根据的说法。该角色的原始贴文最初是由中共控制的虚假脸书账户分享点赞，后来由真实用户转发，其中大部分属于20多个国家中的中共国有基础设施公司的员工。
 
-中共病毒大流行期间，人们的各项活动受到严格限制，无论是旅游出行，还是生产制造和运输，这些与碳排放紧密相关的行业几乎处于停摆状态，但是减少的碳排放量几乎微乎其微。尽管如此，这些事实并不会阻止那些全球主义者和极端社会主义者继续力推其绿色能源协议和气候倡议等政治议程，以摧毁美国的能源独立，让美国对中共政权更加依赖。以比尔·盖茨为代表的黑暗势力也将继续打着“零排放”的幌子实施其大规模减少全球人口的计划，他们甚至提出为了控制碳排放量，限制每人的碳额度，以控制人们的日常活动和需求。
+该报告指出，上述中共社群媒体活动基本没有成功，这些账号的目标是美国、英国的英语观众，以及台湾、香港和西藏的中文观众。
 
-新闻来源：[New Study Finds that Global Carbon Emissions Have Been Flat for a Decade Despite the Leftist Hysteria](https://www.thegatewaypundit.com/2021/12/new-study-finds-global-carbon-emissions-flat-decade-despite-leftist-hysteria/)
+参考链接：
 
+- [幫中國說話神秘瑞士科學家找到了！ 臉書：與四川科技公司與國企員工有關](https://cn.rti.org.tw/news/view/id/2118411)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
+
+总编辑：文特
+编辑：Lakeman文仁
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
