@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/5/2021 10:46 PM (UTC)`
+
+5/12/2021 “Hcoin To the Moon" Hits #1 🥇on 10 Countries' iTunes Rock Charts on 3nd Day of Launch！🎉🎉🎉🎉🎉🎉🎉<br/>Thank you very much to all our brothers and sisters in HongKong, UAE, Taiwan, New Zealand, Malaysia, Poland, Spain, Hungary, Australia, Singapore!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1723274<br/><br/>12月5号，Hcoin To the Moon上线第3天位列10国iTunes摇滚音乐榜首🥇！🎉🎉🎉🎉🎉🎉🎉<br/>感谢香港，阿联酋，台湾，新西兰，马来西亚，波兰，西班牙，匈牙利，澳大利亚，新加坡的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/><br/>中文：https://gnews.org/zh-hans/1723273/<br/>
+
+---
+
 `@miles 12/5/2021 10:08 PM (UTC)`
 
 Artemisinin Report 1. Here are some preliminary survey results we collected to demonstrate the effects of using artemisinin supplements and artemisinin drug derivatives. Artemisinin is the antidote to the CCP virus and the CCP virus vaccine. Meanwhile, artemisinin also exhibits promising therapeutic effects to many other conditions. We will continue to report these results as more data to be collected. Please follow the doctor's advice.
@@ -145,13 +151,6 @@ Hcoin To The Moon <br/>iTunes Ranking No. 1 🥇<br/>iTunes 打榜第一名🥇<
 
 12/3/2021 Miles Guo: Who did Xi Jinping meet with between August 1 and 16, 2021? And for how long? The first person Xi met, Song Ping, was Hu Jintao's godfather and the “king of the left” in the CCP<br/><br/>12/3/2021 文贵直播：2021年8月1日到16日之间，习近平见了谁？见了多久？习第一个看望的宋平是胡锦涛的教父、左派之王<br/>
 ![img](https://media.gettr.com/group3/getter/2021/12/04/04/03/85bb12e2-4f76-746a-552b-6116f4f3770e/out.jpg)
-
----
-
-`@miles 12/4/2021 3:54 AM (UTC)`
-
-12/3/2021 Miles Guo: The information we provided about artemisinin has huge impacts on Communist China; the CCP has difficulty defining who we are as the Whistleblowers’ Movement; the CCP’s police forces are guarding hospitals to prevent the truth about the COVID vaccines from being leaked; a fellow fighter revealed that 70,000 people died of COVID vaccines in his area, and Communist China’s COVID vaccine death toll is an astronomical figure<br/><br/>12/3/2021 文贵直播：青蒿素的相关信息对国内影响很大；给爆料革命下定义让中共很为难；警察守医院防疫苗真相泄露；战友爆出其所在地区有7万人死于疫苗，中共国疫苗死亡是天文数字
-![img](https://media.gettr.com/group43/getter/2021/12/04/03/54/7e7cd8f4-e312-5084-eca1-dd6f97497289/out.jpg)
 
 ---
 
