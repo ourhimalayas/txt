@@ -2,28 +2,22 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月5日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1723041/)
+## 秘翻在线： 辉瑞疫苗供应合同中的“保密条款”被指控牟取暴利
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1723164/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-73.jpeg)
+**翻译：北光**
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-1-1.png)
-文章仅代表作者本人观点，与Gnews无关
+**校对：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screenshot-2021-12-06-004233.jpg)图片来源：AFR
+据英国《卫报》12月5日报道，英国的政府官员们在与美国药品制造商辉瑞就Covid 疫苗供应发生任何争议时，最终同意了保密条款。据称英国政府与该公司签订的 1.89 亿剂疫苗供应合同的大部分内容已被删减，而且任何与仲裁程序相关的条款都将保密。 一位前美国高级卫生官员指责辉瑞在中共病毒疫情中牟取暴利。
 
-视频参看：[2021.12.05早GTV新闻访谈](https://gtv.org/video/id=61acbe4fbbd75f62e52f8eae)
+美国消费者权益保护组织 Public Citizen 研究了辉瑞的全球疫苗合同，其研究主管 赞恩·里兹维 (Zain Rizvi) 说：“围绕这些合同存在一堵保密墙，这是不可接受的，尤其是在公共卫生危机中。” 里兹维说，英国需要解释为什么同意秘密仲裁程序。这是目前见过的唯一一个同意这一规定的高收入国家。它允许制药公司绕过国内法律程序。 英国政府居然允许制药公司做主。这种少数制药公司能够控制世界上最强大的政府的情况，该如何制止？
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+虽然辉瑞的疫苗交付计划赢得了赞誉，但这家美国跨国公司面临着对其利润规模和向低收入国家提供的剂量比例越来越严格的审查。 虽然阿斯利康公司同意在中共病毒疫情期间以成本价出售其疫苗，但辉瑞公司却希望确保其利润。辉瑞/BioNTech 疫苗品牌名称为 Comirnaty，这将成为制药史上最赚钱的药物之一。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-1.png)
+调查显示，一位生物工程专家的分析称，辉瑞疫苗每次注射的生产成本仅为 76 便士。而辉瑞以每剂 22 英镑的价格出售给英国政府。 辉瑞预计今年将交付 23 亿支疫苗，预计收入为 360 亿美元（263 亿英镑）。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**[新闻来源](https://www.theguardian.com/uk-news/2021/dec/05/wall-of-secrecy-in-pfizer-contracts-as-company-accused-of-profiteering)**
 
  
 

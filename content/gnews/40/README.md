@@ -2,35 +2,32 @@
 ---
 
 
-## 郭先生爆料中共与俄罗斯密谋同时发动侵略战争
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1721422/)
+## 立陶宛总统、外长及体育部长相继宣布外交抵制北京冬奥会
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1721459/)
 
-作者：东京樱花团 – 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-近日，郭先生在GTV和盖特两个平台的直播，向全世界提前预警了中共与俄罗斯的重大阴谋，即准备同时发起两场战争——在中共侵略台湾的同时，俄罗斯进攻乌克兰，以便于让美国无暇应付两场战争。
+#### 撰稿：日本东京方舟农场  幽蘭自得
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide2-4.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1DF0CA14-3BEA-4FC0-9563-CC512C47AA68.jpeg)（图片来自网络）
 
-当地时间12月3日，乌克兰国防部长雷兹尼科夫告知国会，目前俄罗斯在乌克兰边境集结了多达94300人的部队。他表示乌克兰情报部门经过分析，认为俄罗斯存在军事行动大规模升级的可能性，时间有可能是1月底。另据美国媒体报道，预计明年1月初，俄罗斯在乌克兰边境将会增兵至17万5千人。
+在距离北京冬奥会开幕仅剩不到两个月之时，立陶宛总统、外长和体育部长相继宣布对北京冬奥会进行外交抵制，同时还建议运动员也应考虑做出抵制。
 
-郭先生在近期的大直播中曾爆料称，当前随着全世界对北京奥运会的抵制问题，如果习近平发现原定于2月4日开幕的冬奥会开不成了，就一定会下令攻打台湾。
+据《希望之声》12月4日援引立陶宛LRT电视台网站消息报道，立陶宛总统代表在接受立陶宛电视台采访时表示，总统吉塔纳斯·瑙塞达（Gitanas Nausėda）将不会出席明年2月举行的北京冬奥会。
 
-参考链接：[预计俄罗斯将于1月下旬对乌克兰发动大规模袭击](https://gettr.com/post/pip7883eda)
+对此持同样态度的还有立陶宛外交部长。立陶宛外交部在发给LRT电视台的信息中称，外交部长兰茨贝格斯（Gabrielius Landsbergis）将不去参加北京冬奥会。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
+而在早些时候，立陶宛的教育、科学和体育部长尤尔吉塔·修格迪涅已经宣布她不会去参加北京冬奥会。
 
-总编：Ivy001
-编辑：文特
-校正/发稿：谐趣园
+不仅如此，立陶宛的议员们还表示，“这种级别的体育赛事不应该在不尊重人权和利用体育来改善其形象的独裁国家举行”。他们同时还建议运动员们应“表明公民立场，不要变成专制政权策划的戏剧的傀儡”。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*参考链接：[各国外交抵制北京冬奥呼声达新高 立陶宛率先行动](https://www.soundofhope.org/post/571961)*
 
+* * *
+
+*素材采编：幽蘭自得*
+
+*编辑：青衣青青*
+
+*发布：miumiu*
 
  
 

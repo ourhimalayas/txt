@@ -2,41 +2,29 @@
 ---
 
 
-## 中共国奥园也出现债务延期兑付、股市大跌的状况
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1722109/)
+## COVID-19 最新情报｜台湾2022年元旦起 部分工作强制接种两剂
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1722382/)
 
-作者：日本方舟农场 Andy5
+**台灣寶島農場 疫情關注組 / 發佈時間｜5/12/2021**
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-12月3日，千亿巨头中共国奥园将对60亿元的理财债务执行延期兑付方案：并且单个兑付金额200万元以内的分6个月兑付，而金额大于200万元的则把期限延长至2024年5月。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-05-at-9.16.10-PM.png)
-据悉，奥园也正在以恒大同样的剧本开始爆雷。在10月份，奥园召开董事会，强调要全力保公司运营，保兑付，进入战时状态，并喊出口号说，要成为行业困难企业实现转型的典型范本。然而奥园的解决方式却与恒大一样：售卖、抵押资产，保证复工复产。
-
-据知情人士爆料，奥园除了其债券从21年8月的高位97元暴跌跌至26元，跌幅超过73%，其股票也处于连续大跌的状态。据网上可查询的数据显示，奥园自今年6月以来，股价已经从8.3港元一股跌至目前的1.88港元一股，跌幅直逼80%。并且值得注意的是，在11月份，奥园的信用评级已经连续五次被下调，即从1个月前的BB评级下调至CCC-。
-
-参考链接：
-
-1. [奥园召开内部会议，称”绝不躺平“，进入保运营、保兑付”战时状态“](https://www.sohu.com/a/505369490_100001551)
-2. [千亿地产巨头中国奥园官宣延期兑付!60亿理财”爆雷”](http://stock.caijing.com.cn/20211203/4822771.shtml)
-3. [快讯：中国奥园跌近7% 因评级下调被要求偿还6.5亿美元融资](https://finance.sina.com.cn/stock/hkstock/marketalerts/2021-12-03/doc-ikyamrmy6549636.shtml)
-4. [奥园危局](https://finance.sina.com.cn/stock/hkstock/marketalerts/2021-12-03/doc-ikyamrmy6549636.shtml)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
+中央流行疫情指挥中心今(5)日表示，为积极防范国际疫情严峻及新型变异株威胁，降低社区传播风险，自2022年1月1日起，教育部、经济部、劳动部及卫生福利部业管之部分场所(域)将强化COVID-19疫苗接种规范。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/29fff30b-ef17-47aa-9e5c-7ae88960bf59.jpg)
+其中，教育部业管场所包含：高级中等以下学校及幼儿园、儿童课后照顾服务中心、社区大学、短期补习班、乐龄学习中心、竞技及休闲运动场馆业、游泳池、高级中等以下学校表演艺术类团队练习。
 
-总编：正义的小新 
-编辑：文特
-校正/发稿：我不在这里
+指挥中心强调，**为确保相关场所(域)人员自111年1月1日起能符合上开规范，请相关场所(域)鼓励未完整COVID-19疫苗接种之工作人员及从业人员，尽速于110年12月17日前完整接种疫苗2剂**。各相关部会亦将加强查核。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+倘人员经医师评估且开立不建议施打COVID-19疫苗证明者，于首次服务前，应提供自费3日内PCR检验阴性证明，后续须每周1次**自费**抗原快筛(**含家用快筛**)或PCR检验阴性后，始得提供服务。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+- 相关：[台湾前线￨台湾发动连署 反对尚未实行的疫苗通行证](https://gnews.org/zh-hant/1721506/)
+
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-1.png)
+来源￨[卫生福利部疾病管制署](https://www.cdc.gov.tw/Bulletin/Detail/uZUdiaR1R7nr_G3N1VnVNQ?typeid=9)
 
  
 

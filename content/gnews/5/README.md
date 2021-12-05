@@ -2,19 +2,21 @@
 ---
 
 
-## 【文贵先生大直播PPT】恒大等国内房地产危机将给美国等金融市场带来什么影响
-` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1723131/)
+## 12月5日文贵大直播快讯——人类必然的未来不可阻挡
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1723248/)
 
-撰稿：北评2025，Nine Lee
-PPT美化：青山
-文案终审：三票先生，顽童先生
+撰稿：Gradient Boost
 
-【2021年12月5日文贵先生大直播PPT恒大等国内房地产危机将给美国等金融市场带来什么影响】
-![](https://assets.gnews.org/wp-content/uploads/2021/12/21-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/22-2.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/23-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/24-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/25-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/26-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/27-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/28.jpg)
-* * *
+视频：Angelsky
 
-发稿：云起时
+美东时间当地12月5日，文贵先生在大直播当中谈全球数字货币市场的变化。在聊到沃伦巴菲特的时候文贵先生表示，巴菲特的投资基金并非什么天机神算，其成功得益于他在美国。
 
+如果离开美国这片土壤，是否还能有沃伦巴菲特？要是在其他国家例如中共国，巴菲特最后的下场恐怕早就已经在监狱里待着了。如果没有当时情报部门的相关支持，也不会有现在的沃伦巴菲特。
+
+互联网和生物科技是人类必然的未来，没有人能够挡住。不论一个地主坐多么豪华的牛车，到最后都避免不了被汽车所淘汰的命运。
+
+中老年人无法接受数字货币，而今天世界金融管理部门的人，大多也都是年迈的老头子——一批官僚主义者。他们对于数字货币的到来是感到恐惧的，就像当年汽车刚刚诞生，电灯刚刚诞生的时候一样。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
