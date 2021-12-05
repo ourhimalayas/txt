@@ -2,22 +2,97 @@
 ---
 
 
-## 有钱就可以来日本投资的日子或已结束！
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1722027/)
+## 郭先生在全世界虚拟货币监管会议中提出监管意见
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1722071/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-206.png)[图片来源](https://news.yahoo.co.jp/articles/98aa819a3f78a61c24af397c898d83f5b2e4186c)
-12月5日读卖新闻消息：日本政府将加强筛选和监督外国资本的制度，以防日本公司业务相关的先进技术外流。国家安全局和相关部委已经开始全面行动，开会、分享信息，并将很快举行几乎所有部委都参加的会议。国家安全局将事先针对外国向日本公司的投资进行彻底审查，并在投资后进行监督。
+[https://gtv.org/video/id=61ac499987fa7e74c92b7858](https://gtv.org/video/id=61ac499987fa7e74c92b7858)
 
-一些政府官员透露，考虑的是美国外国投资委员会（CFIUS），该会议是以“相关部委和机构关于外来直接投资的会议”的议题召开的。
+**郭文贵
+Miles Guo**
 
-这次会议是今年夏天举行的“内部会议”的扩大版，国家安全局和财政部、经济部、贸易和工业部以及内政和通信部参与了这次会议。会议将分享投资的例子和趋势，并在投资后继续进行必要的监测。如果发现有风险，相关公司的主管部门将采取行动进行整改。
+有去中心化的技术，不接受去中心化的币，是这次监管中的绝对的对策
+Having decentralized technology and not accepting decentralized coins is an absolute countermeasure in this supervision
 
-信息来源：[日本企業の技術流出阻止へ、外資の審査・監視強化…省庁横断で情報共有（読売新聞オンライン） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/98aa819a3f78a61c24af397c898d83f5b2e4186c)
+第二，所有跟法币联系的，必须无条件提供给当时联络法币的所有的当事国信息，
+Second, all those who are pegged to with fiat currency must unconditionally provide the State with all information on the linked fiat currency
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
+你不要有任何侥幸心理，一定会的
+Don’t have any fluke, it will be that way
+
+第三条，所有全世界的监管，这是七哥有资格说
+The third one, all the supervision of the whole world, Miles is qualified to say this
+
+因为今天下午我还要给他们开会，七哥要提建议给他们
+because I will have a meeting with them this afternoon, Miles wants to give them suggestions
+
+如何加大监管，既不能管死，而且能保证国家的税收安全，还不影响个人的隐私
+How to increase supervision, not only can control firmly, but also to ensure the security of country’s tax revenue, but also does not affect personal privacy
+
+随着量的增加，逐渐你的国家货币和主权
+As the amount increases, gradually your national currency and sovereignty
+
+和你的政治权力，都能无限地延伸到世界，你为什么不做呢
+and your political power can extend to the world indefinitely, why don’t you do it?
+
+你根本挡不了区块链，你没有如任何可能，你立法过严就没有有人跟你合作了
+You can’t stop the blockchain at all, you have no possibility, if you have strict legislation, the people will choose not to cooperate with the government
+
+你立法给大家都留下机会，拿出一定的钱
+If you legislate to give everyone an opportunity to spend a certain amount of money
+
+现在英国是2%，叫数字税
+Now it’s 2% in the UK which is called a digital tax
+
+美国想征5%数字税，5%数字税或者5%之间
+The United States wants levy 5% digital tax, 5% digital tax or under 5%
+
+兄弟姐妹们，如果是5%的话那是天下大好，是吧，那天下都大好
+Brothers and sisters, if it’s 5%, it’s great, right?
+
+你别超过5%，英国2%，有点夸张，是吧
+Don’t exceed 5%, UK 2%, a little bit low, right?
+
+个人税，一定会是大概在10%左右，七哥建议是低于10%
+The personal tax will definitely be around 10%, my recommendation is less than 10%
+
+他们现在是15%，我说你低于10%，低于10%的算法有研究
+They are now at 15%, I said it should be less than 10%, tax rates lower than 10% are also graded
+
+就是数字化消费，没有税，兑换法币你就是这个税
+It is digital consumption, there is no tax, it’s this tax rate when you exchange for fiat currency
+
+你想想，咱现在才10亿个币，明年20亿币，后年30亿币
+Think about it, we have only 1 billion coins now, 2 billion coins next year, 3 billion coins the follow next year
+
+30亿币，你这到全世界的支付系统里面就没了
+3 billion coins, they will be disappeared in the payment system of the world
+
+抓了一把面扔到了大海里，你能找到这把面吗？永远找不到了
+I grabbed a handful of flour and threw them into the sea, Can you find those flour? Never
+
+但是你能找回来任何一粒面，这个面就不是面，就是钻石了
+But if you can find any flour, this flour will not be flour no more, but become diamonds
+
+* * *
+
+Date:12/03/2021
+原视频标题: 郭先生在全世界虚拟货币监管会议中提出监管意见
+Mr. Guo put forward regulatory opinions in virtual currency regulatory conferences around the world
+原视频日期：2021/12/01
+原视频链接[https://gettr.com/post/pihfb358be](https://gettr.com/post/pihfb358be)
+任务编号：KC306(3091)
+视频时间段 : 0:00-2:02
+中听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 -Mike Li
+字幕+视频制作：洛杉矶盘古农场 -天涯行
+审片: 洛杉矶盘古农场 -银龙
+发布: 洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

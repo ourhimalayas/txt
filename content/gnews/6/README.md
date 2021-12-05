@@ -2,25 +2,37 @@
 ---
 
 
-## 美情报官员：俄罗斯正为入侵乌克兰做部署
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1721967/)
+## 中共与印尼因领海争议剑拔弩张
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1722043/)
 
-#### 撰稿:彩虹        
+作者：东京樱花团 – 在远方
+![This image has an empty alt attribute; its file name is 1-28.png](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
+外媒12月2日报道，中共妄图独霸南海之野心，笼罩印太地区。近日，中共与印尼紧张关系持续升温。此前中方已经对印尼提出过分要求，目前双方更是剑拔弩张。
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-205.png)图片来源：印度快报
-12月4日，《新闻极限》发布文章，虽然美国总统承诺让俄罗斯普京在乌克兰采取军事行动变得“非常非常困难”，但美国情报官员确定，俄罗斯正在为可能的军事进攻做规划，并且最快将可能于下个月开始进攻。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/6-8-scaled.jpg)
 
-文章援引《美联社》的报道，据一位不愿意透露姓名的拜登政府官员透露，新的情报发现，估计俄罗斯人正计划部署约17.5万名军人，其中几乎一半已经部署在了乌克兰边境的各个地点，并且，该计划要求100个俄罗斯营级战术小组连同装甲车、大炮及设备一起行动。
+据消息人士称，今年早些时候，中共外交部曾致函印尼外交部，要求印方立即停止在南海争议海域开采石油与天然气，此举立刻加剧了两国紧张关系。
 
-同时，该官员说，情报官员还看到，在可能的入侵之前，已经看到俄罗斯通过使用代理人和媒体机构在进行升级诋毁乌克兰和北约的宣传努力。
+虽然中共是印尼最大贸易伙伴和第二大投资国，面对中共将争议海域的“9段线”主张强加给印方，印尼议会国家安全委员会成员法尔汗，依旧做出坚决的回复。表示不会停止钻油勘探，因为这是在行使印尼主权。
 
-虽然美国、北约盟国和乌克兰指责莫斯科在乌克兰边境附近集结军队，并且基辅说担心俄罗斯正计划进行一次攻击，但莫斯科否认有任何入侵乌克兰的计划，并指责基辅正在建立自己的部队，以攻击亲俄分离主义分子控制的领土，并且它还表示，它可以在俄罗斯领土上随意调动军队，而且它也不构成对外的威胁。
+参考链接：
 
-**新闻来源**
+- [前所未見！路透獨家：中國、印尼因領海爭議劍拔弩張](https://news.ltn.com.tw/news/world/breakingnews/3755183)
 
-[US Intelligence Finds Russia Planning Ukraine Offensive](https://www.newsmax.com/world/globaltalk/united-states-russia-ukraine/2021/12/04/id/1047316/)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
+
+总编辑：飞虹
+编辑：Kathy文艺
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

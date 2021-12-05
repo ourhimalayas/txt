@@ -2,26 +2,26 @@
 ---
 
 
-## 西班牙专家报告：用疫苗护照阻止疫情适得其反
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1721916/)
+## 疫苗，悬在头上的一把刀
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1722033/)
 
-**编译：致敬香港！**
+作者：酢酱草
+编辑：Mttfly
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2-15.jpg)图片来源：雅典娜农场设计组（姐夫说说）
+早上六点多就被老婆的电话吵醒了，是她一位同事约她早点去排队打第三次疫苗。最近老婆身体不好，她告诉同事过段时间再去打，又躺下睡着了。我还是心里咯噔了一下，又摇了摇她告诉她: “最近身体不舒服，尽量别打了，能拖就一直拖下去。”她迷糊中嘟囔了一句：“我才不想打呢，疫苗要有效何必打了一次又一次呢？”说完又睡着了。我感到一激灵，立刻清醒了，心头一暖，转身抱紧她。
 
-**校对：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screenshot-2021-12-05-160803.jpg)图片来源： https://sea.pcmag.com/
-据“零对冲”网12月4日转载报道，由西班牙区域联合疫情委员会（inter-regional Covid committee）展开的一项调查显示，疫苗护照政策不仅对降低中共病毒感染率没有效果，却反而向民众传递了“疫苗接种者不传播病毒”的错误信息。
+自今年五月份我们这地方强制打疫苗以来，疫苗就成了压在我胸口的一块大石头。我劝告家人别去打疫苗，他们都不以为然，我老婆孩子在单位上班不得不打，我老爸老妈也在社区宣传下打了。我被通知到社区登记了三次，自述自己常年高血压，是自愿放弃打疫苗，并自行担责。我劝朋友们尽量不打疫苗，告诉他们疫苗里的石墨乙稀将对身体造成不可逆转的伤害，他们更是不屑一顾，认为我的大脑已经坏掉了。我的说法他们只要两句相声台词就足以回应我，“没听说过”、“去你的吧”。现在我已经放弃了试图说服任何人了，只能默默的听着爆料革命战友们分享的一些防病治病的方法，和储存一点预防和治疗的药品，以备不时之需。现在幼儿园的小朋友也被要求疫苗接种，更是让人揪心不已！前几天去表哥家，他三岁的小孙女刚上幼儿园就打了针。见我去她家就跑过来说：“表爷爷，我打过防疫针了，打针的时候我都没有哭！”我鼻子一酸，抱起她说了一句违心的话：“宝贝真坚强”。我在心里说：“宝贝没哭，爷爷快哭了”。
 
-这份专家调查报告表明，在实施疫苗护照政策的欧洲各国，中共病毒病例都显著增加；约40%的疫苗接种者可仍旧感染并传播病毒，但该政策给民众造成了“接种者不会感染和传播病毒”的错误印象。疫苗护照并没有达到政策制定者们当初号称的“减轻疫情传播”的目标，但它的确使人们陷入恐惧和顺从，也许这才是该政策真正的目标。西班牙虽然没有全国实施该政策，但全国17个区域中8个采用了类似的政策。
+昨天文贵先生在大直播中预见到国外的疫苗危机将会在一个月内发生转变，反对疫苗的呼应将取得进展。只是墙内共产党还需要用高压疫苗政策继续奴役中共国老百姓。我相信国外的抗疫苗的声音一定会传到墙内，疫苗的危害一定会被解析。如果墙内的老百姓尽快的觉醒过来，了解疫苗是灾害而非防疫措施，那也就认清共产党邪恶本质了。这样剿灭世界邪恶组织还会遥远吗？我心绪飞扬，老婆挣脱我的怀抱醒来，已经上午九点多了，我对她说：“你要把你对疫苗的质疑，跟你的同事和朋友们分享讨论一下，相信会有很多人支持你的看法的。”老婆不置可否的看着我，忧郁的眼神也透出打了疫苗的担心。我在她额头轻轻亲了一下，在心里告诉她：“我已经买了解药，会没事的，咱们要一起迎接新中国联邦美好明天的”！
 
-无独有偶，英国《每日电讯报》 日前也得到一份国家“数字文化传媒及体育部”（The Department of Digital, Culture, Media and Sport）的13页调查报告，显示疫苗护照政策可能反向提高了疫情发病率。威尔士卫生部长摩根（Eluned Morgan）在回复自由民主党质询时也表示，至今为止尚无充分证据证明疫苗护照政策对减缓疫情有效。
+发布：kk
 
-**新闻来源：**
-
-[Spanish Investigation Finds Vaccine Passports Have No Impact on Infection Rates](https://summit.news/2021/12/03/spanish-investigation-finds-vaccine-passports-have-no-impact-on-infection-rates/)
-
-[Vaccine passports would further spread of Covid, UK government report states](https://reclaimthenet.org/vaccine-passports-would-further-spread-of-covid-uk-government-report-states/)
-
-[Welsh Government Possesses No Evidence On COVID Passes](https://www.welshlibdems.wales/welsh_government_possesses_no_evidence_on_covid_passes)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

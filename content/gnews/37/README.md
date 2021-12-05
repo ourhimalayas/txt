@@ -2,44 +2,32 @@
 ---
 
 
-## 泄露的文件显示，WhatsApp和iMessage与FBI共享用户数据
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1721482/)
+## 立陶宛总统、外长及体育部长相继宣布外交抵制北京冬奥会
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1721459/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+#### 撰稿：日本东京方舟农场  幽蘭自得
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/4000.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1DF0CA14-3BEA-4FC0-9563-CC512C47AA68.jpeg)（图片来自网络）
 
+在距离北京冬奥会开幕仅剩不到两个月之时，立陶宛总统、外长和体育部长相继宣布对北京冬奥会进行外交抵制，同时还建议运动员也应考虑做出抵制。
 
+据《希望之声》12月4日援引立陶宛LRT电视台网站消息报道，立陶宛总统代表在接受立陶宛电视台采访时表示，总统吉塔纳斯·瑙塞达（Gitanas Nausėda）将不会出席明年2月举行的北京冬奥会。
 
-图片来源：www.theguardian.com
+对此持同样态度的还有立陶宛外交部长。立陶宛外交部在发给LRT电视台的信息中称，外交部长兰茨贝格斯（Gabrielius Landsbergis）将不去参加北京冬奥会。
 
+而在早些时候，立陶宛的教育、科学和体育部长尤尔吉塔·修格迪涅已经宣布她不会去参加北京冬奥会。
 
-#### 编译：小红帽
+不仅如此，立陶宛的议员们还表示，“这种级别的体育赛事不应该在不尊重人权和利用体育来改善其形象的独裁国家举行”。他们同时还建议运动员们应“表明公民立场，不要变成专制政权策划的戏剧的傀儡”。
 
-一份新发布的文件突显了消息传递应用程序用户所面临的隐私问题的持续争议。流行应用程序iMessage和WhatsApp被证明是联邦调查局（FBI）访问数据和内容“最宽松”的应用程序。
+*参考链接：[各国外交抵制北京冬奥呼声达新高 立陶宛率先行动](https://www.soundofhope.org/post/571961)*
 
-《滚石》（Rolling Stone）杂志获得的这份文件概述了可以从九个流行消息传递应用程序访问哪些数据。
+* * *
 
-该文件名为“合法访问”，概述了执法机构，如联邦调查局，在“领先的消息传递”应用程序上“合法访问安全内容”的能力。其中所列的九个应用程序是iMessage、Line、Signal、Telegram、Threema、Viber、微信、WhatsApp和Wickr。
+*素材采编：幽蘭自得*
 
-该文件由联邦调查局科技处和运营技术部编写，日期为2021年1月7日，总结了可以从消息传递应用中获得哪些信息，揭示了Facebook拥有的（现在是Meta）WhatsApp和苹果的iMessage向执法机构提供的信息最为自由。
+*编辑：青衣青青*
 
-今年初，WhatsApp受到了抨击，因为新公布的软件更新引发了广泛的隐私问题，用户纷纷涌向Signal和Telegram，包括科技亿万富翁埃隆·马斯克（Elon Musk）。
-
-然而，联邦调查局的文件显示， WhatsApp与iMessage和Line一样，承诺交出目标个人的 “有限”信息内容，而其他公司则根本不提供信息内容。
-
-同时，苹果的iMessage也提供“有限的”信息内容，以及用户信息，25天的iMessage搜索数据，以及谁在iMessage中搜索了目标用户。
-
-**参考新闻：**[WhatsApp, iMessage share user data with FBI, leaked document shows – NaturalNews.com](https://www.naturalnews.com/2021-12-04-whatsapp-imessage-share-user-data-with-fbi.html)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+*发布：miumiu*
 
  
 

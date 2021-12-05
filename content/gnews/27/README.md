@@ -2,22 +2,24 @@
 ---
 
 
-## 迫害！巴西总统因为说新冠会增加患上艾滋风险而被法院调查
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1721712/)
+## COVID-19 最新情报｜拜登“强烈支持”为 5 岁以下儿童接种疫苗 专家警告：“疫苗伤害像疤痕，无法治愈，许多孩子会死”
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1721756/)
 
-#### 翻译/撰稿：zzballack
+**撰文｜ 台湾宝岛农场 疫情关注组 / 发布时间｜5/12/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-7.jpg)图片来源：BBC
-据《合众国际社》（UPI）12月4日报道，巴西最高法院12月4日在推特上宣布，巴西联邦最高法院法官亚历山大·德·莫赖斯(Alexandre de Moraes)下令对巴西总统雅伊尔·博索纳罗(Jair Bolsonaro)10月24日在多个社交媒体平台直播时发表的一段言论进行调查。博索纳罗当时说，“新冠疫苗会增加接种者患上艾滋的风险。”
+美国总统拜登周四（1日）表示，他“强烈支持”为 5 岁以下儿童接种疫苗，并将竭尽所能为 FDA 的工作提供资源，以尽快促成该进程。
 
-因为这段视频，油管和脸书以散播假新闻为由将博索纳罗暂时冻结，所谓的科学家和医学专家也极力污蔑和歪曲该说法。
+拜登在周四的“今冬抗击疫情计划”新闻发布会上指出，“我知道五岁以下儿童的父母想知道何时可以为他们的小孩子接种疫苗，这是我现在最常被问到的问题。”关于这一点，他续指，“我强烈支持对五岁以下儿童使用疫苗开展独立科学审查，我将尽我所能支持 FDA 安全、尽快地做到这一点。”
 
-巴西最高法院表示，在议会委员会提出的一个要求调查博索纳罗政府的大流行应对措施后，他们启动了这项调查。在今年10月底的罗马G20峰会上，博索纳罗是G20国家中唯一一位声称没有接种过新冠疫苗的总统。
+**另一方面**，mRNA 技术发明者之一的罗伯特·马龙 (Robert Malone) 博士早前多次在公开场合警告指，他想不出任何理由要为儿童**接种 COVID-19 疫苗，对于健康无任何疾病的儿童来说，染上新冠病毒之后，重症及死亡的概率几乎为零。**
 
-推动新冠疫苗的背后势力太黑暗太强大，任何说出病毒和疫苗真相的政客、媒体、知名人士、记者、医学专家和一线医护人员等人士无一不被审查和迫害。维迦诺大主教因此呼吁全世界的正义势力和良心人士勇敢地站出来，结成联盟反抗人类历史上这一前所未有的医疗暴政。郭文贵先生和新中国联邦作为其中的一员，利用Gettr、Gnews和GTV一直在不遗余力地传播病毒、疫苗和中共的真相，拯救人类免于这场空前的浩劫。
+但是**接种疫苗，就会对心脏造成严重损伤，这种伤害就像在心脏上留下一道疤痕，是无法治愈，不会消失的。它增加心律失常的风险，导致猝死。他认为，“不幸的是，在人们醒来之前，我们将不得不看着许多孩子死去。”**
 
-新闻来源：[Brazilian court investigating Bolsonaro comments linking COVID-19 vaccines, AIDS](https://www.upi.com/Top_News/World-News/2021/12/04/brazil-Bolsonaro-investigated-by-Supreme-Court-COVID-19-AIDS-claims/2441638639777/)
+注：马龙博士是一位专门研究传染病学的医生，也是一位致力于高级对策开发的科学家。他曾是辉瑞和 Moderna COVID-19 疫苗所使用的 mRNA 疫苗技术平台，以及 Inovio 使用的 DNA 疫苗技术平台的原始发明者之一。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-3.jpg)
+来源｜[新闻发布会](https://www.youtube.com/watch?v=6fxMJ1ak2RU) / [Malcone 采访](https://freeworldnews.tv/watch?id=618dc8042fa19644c8b64393&amp;s;=03)
 
  
 

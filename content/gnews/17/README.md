@@ -2,20 +2,26 @@
 ---
 
 
-## 完全接种中共病毒疫苗的年轻妇女被确认为感染奥米克戎
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1721824/)
+## 西班牙专家报告：用疫苗护照阻止疫情适得其反
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1721916/)
 
-#### 撰稿：彩虹
+**编译：致敬香港！**
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-8.jpg)图片来源：波士顿新闻
-12月4日，《新闻极限》报道一名波士顿妇女被发现感染了中共病毒（COVID-19）变体奥米克戎（Omicron），从而使得麻萨诸塞州 (Massachusetts)成为第12个有中共病毒变体奥米克戎患者的州。
+**校对：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screenshot-2021-12-05-160803.jpg)图片来源： https://sea.pcmag.com/
+据“零对冲”网12月4日转载报道，由西班牙区域联合疫情委员会（inter-regional Covid committee）展开的一项调查显示，疫苗护照政策不仅对降低中共病毒感染率没有效果，却反而向民众传递了“疫苗接种者不传播病毒”的错误信息。
 
-根据报道，波士顿CBS的附属机构WBZ确认该患者是米德尔塞克斯（Middlesex）县一名20多岁的妇女，她（之前）已完全接种了中共病毒疫苗，并在患病前到州外进行了旅行。
+这份专家调查报告表明，在实施疫苗护照政策的欧洲各国，中共病毒病例都显著增加；约40%的疫苗接种者可仍旧感染并传播病毒，但该政策给民众造成了“接种者不会感染和传播病毒”的错误印象。疫苗护照并没有达到政策制定者们当初号称的“减轻疫情传播”的目标，但它的确使人们陷入恐惧和顺从，也许这才是该政策真正的目标。西班牙虽然没有全国实施该政策，但全国17个区域中8个采用了类似的政策。
 
-**新闻来源**
+无独有偶，英国《每日电讯报》 日前也得到一份国家“数字文化传媒及体育部”（The Department of Digital, Culture, Media and Sport）的13页调查报告，显示疫苗护照政策可能反向提高了疫情发病率。威尔士卫生部长摩根（Eluned Morgan）在回复自由民主党质询时也表示，至今为止尚无充分证据证明疫苗护照政策对减缓疫情有效。
 
-[Boston Woman Becomes First Omicron Variant Patient in Massachusetts](https://www.newsmax.com/newsfront/boston-omicron-massachusetts-covid/2021/12/04/id/1047354/)
+**新闻来源：**
+
+[Spanish Investigation Finds Vaccine Passports Have No Impact on Infection Rates](https://summit.news/2021/12/03/spanish-investigation-finds-vaccine-passports-have-no-impact-on-infection-rates/)
+
+[Vaccine passports would further spread of Covid, UK government report states](https://reclaimthenet.org/vaccine-passports-would-further-spread-of-covid-uk-government-report-states/)
+
+[Welsh Government Possesses No Evidence On COVID Passes](https://www.welshlibdems.wales/welsh_government_possesses_no_evidence_on_covid_passes)
 
  
 
