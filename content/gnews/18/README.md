@@ -2,37 +2,29 @@
 ---
 
 
-## 最新！挪威圣诞聚会可能引发除南非外最大的 Omicron 变种爆发
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1721170/)
+## 安徽潜山交通事故：司机突发脑溢血致车辆失控
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1721217/)
 
-翻译： 真北007
-![](https://assets.gnews.org/wp-content/uploads/2021/12/covidtestingman.jpg)图片来源：网络
-来自福克斯FOX NEWS 12月4日的新闻报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Unknown-9.jpg)安徽潜山交通事故：司机突发脑溢血致车辆失控 网络图片
+据新浪新闻中心12月5日报道，12月2日，安徽省潜山市一中型客车与一自卸货车相撞，造成8人死亡、3人受伤。安庆及潜山市公安局在公安部、省公安厅的技术支持下，经现场勘查鉴定，认定该起事故发生的直接原因系中型客车驾驶员在驾驶过程中突发脑溢血、意识丧失，致使车辆失控、驶入对向车道，与自卸货车发生碰撞。
 
-根据最近的一份报告，挪威最近在圣诞聚会上爆发的 omicron 疫情提供了早期相关证据，说明这些变异如何在接种疫苗的人群之间传播及其症状的严重程度。
+一直担心狼来了，最终狼还是来了。全球强制推行新冠疫苗后，不断报道有驾驶员在行车途中突发脑溢血死亡，导致车辆失控，引发他人受伤、死亡的案例。甚至还有飞行员在高空突发心梗和脑梗的报道。一起两起事故可能归为偶然，但是随着类似的事故频频出现，不由得令人起疑：问题到底出在哪里？为什么大面积接种疫苗之后这类事故频频发生？这种实验性的疫苗是否真的能够抵抗病毒并且适合大面积接种甚至强行接种？
 
-公司发言人 Stian Tvede Karlsen 表示，挪威的一家可再生能源公司在举办年度假日聚会之前采取了所有必要的安全预防措施，包括只邀请接种疫苗的员工并要求在派对前一天进行快速测试。
+病毒还没结束，疫苗灾难接踵而至，人类生存面临前所未有的挑战。人命关天，接种疫苗需小心，尤其是给孩子接种更要谨慎。
 
-派对在奥斯陆的一家高档餐厅举行，约有 120 人参加，其中一些人最近前往南非，该公司在那里开展太阳能电池板业务。
+新闻参考链接：[https://news.sina.com.cn/c/2021-12-05/doc-ikyakumx2087573.shtml](https://news.sina.com.cn/c/2021-12-05/doc-ikyakumx2087573.shtml)
 
-据《华尔街日报》报道，超过 50% 的人对 COVID-19 的检测呈阳性，其中 13 人被确认患有 omicron 变体，但没有人出现严重症状。
+* * *
 
-《华尔街日报》补充说，这次爆发似乎是南非以外世界上最大的 omicron 爆发，值得注意，它发生在一个国家 80% 以上的成年人都接种了疫苗的人群中。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-乔治城大学的全球和公共健康法和伦理学助理教授亚历山德拉·费兰 (Alexandra Phelan) 表示，尽管疫情迅速蔓延，但聚会本身的条件可能加速传播，客人们在隔离的环境中交谈和交流了几个小时，这是超级传播者活动的理想条件。
 
-她补充说，此次爆发表明当前的 COVID-19 疫苗不能预防感染，但有可能预防严重疾病。
+编辑：【英国伦敦喜庄园编辑部】
 
-Phelan 说：“如果他们处于工作年龄并且足够年轻，可以狂欢到深夜，那么他们可能已经处于低风险之中。” “最大的问题是免疫逃避， 此事件开始向其添加数据，至少是松散数据。”
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-点评：基于此文章和其它报道，Omicron目前给人的印象是，高感染率，症状轻，免疫逃避（以前得过Covid的人对Omicron没有免疫力，照样感染）。疫苗无效，完全接种者照常染病。
-
-原文链接：[https://www.foxnews.com/health/norway-christmas-largest-omicron-variant-outbreak-outside-south-africa](https://www.foxnews.com/health/norway-christmas-largest-omicron-variant-outbreak-outside-south-africa)
-
-编辑/发布：LILY
-
-20211204
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
 
 
  

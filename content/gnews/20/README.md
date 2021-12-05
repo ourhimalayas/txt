@@ -2,35 +2,29 @@
 ---
 
 
-## 布林肯: 中共攻台没有好处 应谨慎考虑可怕后果
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1721156/)
+## 因拒绝出示疫苗护照而引发的暴力事件激增澳洲维省考虑提前取消疫苗强制接种
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1721195/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/120406-1.jpg)美国国务卿布林肯认为，台海冲突对任何人都没有好处，中共国将首当其冲。图片：Oliver Hoslet摄 /路透社
-**编辑摘要：**
+翻译：喜国公民
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Bookstore.png)图片来自网络
+[一系列关于工人因检查疫苗护照而被虐待的事件](https://www.skynews.com.au/australia-news/coronavirus/victorian-government-considering-removing-vaccination-mandate-three-months-earlier-due-to-incidents/news-story/a07e37c1866f11269adf4218cb00fde5)，使维州政府重新考虑他们的强制疫苗接种政策。
 
-据《德国之声》12月4日报道，美国国务卿布林肯指出，中共国领导人应慎重考虑他们的对台行动。中共国近年来一直对台湾进行挑衅性的军事演习，并试图在国际舞台上孤立台湾。如果中共国在台湾海峡掀起风波，将招致“可怕的后果”，布林肯承诺会确保台湾拥有自卫能力。
+维州警方正在调查一起事件。据称一名Dymocks员工在要求一名顾客出示他的疫苗接种证书时，被推下扶梯。该店老板说，这是上周五该店发生的第三起与要求出示疫苗护照有关的事件。
 
-欧盟和美国的代表在本周《美欧中国议题对话》结束之后表示，双方在对中态度上渐趋一致：并肩同行，以团结的力量与中共国打交道。
+闭路电视录像显示，这名工作人员试图阻止这名男子从自动扶梯下到书店时被推下扶梯，头部撞到台阶上。人们看到这名工作人员抱着头，躺在扶梯上一动不动。
 
-习近平完全抛弃了中共几十年来“韬光养晦”的策略，念念不忘武力夺取台湾。台湾与西方民主国家有着相同的文化理念和价值观，面对中共霸凌，面对中共全球释放病毒，西方国家定然不会袖手旁观。中共若一意孤行，定会招致可怕的后果。
+墨尔本的另一家书店因员工受到攻击而被迫雇用私人保安，每周费用为4000澳元。
 
-新闻参考链接：[布林肯: 中国攻台没有好处 应谨慎考虑可怕后果](https://p.dw.com/p/43pfC)
+由于零售业工人受到威胁和虐待，维州政府正在寻求取消疫苗强制接种的规定。如果通过的话，这个有争议的疫苗强制接种政策可能会在新年被取消。
 
-*编辑：胖丁*
+据报道，州政府正在考虑最早于1月在除高风险环境外的所有场合取消这一指令。
 
-* * *
+州长丹尼尔-安德鲁斯曾在10月建议，强制接种指令要一直存在到明年4月甚至更久。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+目前，有93%的维州人已经接受了一剂疫苗，91.1%的人已经完全接种。
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

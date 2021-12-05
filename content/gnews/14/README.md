@@ -2,53 +2,32 @@
 ---
 
 
-## 泽连科医生在盖特上呼吁依法严惩辉瑞CEO
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1721210/)
+## 中共对台湾原住民的统战手段遭曝光
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1721246/)
 
-作者：纽约香草山翻译部 defiance
+作者：东京樱花团—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间12月1日的，台湾媒体消息称，台湾原住民族委员会主委夷将-拔路儿表示，对于台湾国安部门于今年2月透露的、中共对台湾原住民进行统战工作一事，原民会已经掌握了相关资料。对此，原民会正在尽量降低对中共经济产业方面的依赖，并积极拓展南太平洋、欧洲和日本市场。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-05-上午10.45.00.png)圖片來源：原民會主委夷將‧拔路兒 (資料照片／中央社)
+据台湾国安部门的调查显示，中共对台湾原住民有七大统战手法，分别是经济采购、资金捐赠、文化交流、对台宣传、媒体传播、政治倡议和学术调研。对此，台湾民进党立委在立法院回答质询时指出，相较于对待维吾尔人的种族灭绝行动，中共对台湾原住民的统战方式更加隐晦，但原民会应该警觉并有所作为。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-109-1280x172-1-2-1.jpg)
+夷将也强调，对于少数民族的语言和文化，中共一贯使用同化的方式将其逐步消灭，台湾原住民族应对中共保持高度警惕。
 
+参考链接：[原鄉遭中共統戰 原民會：經濟產業降低對中依賴](https://cn.rti.org.tw/news/view/id/2118270)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-
-
-![](https://media.gettr.com/group27/getter/2021/12/03/17/c013386a-845d-fbdd-4979-8185b49d3813/124771419d557e57f5df4a76967d3b48.jpg)图片来源：盖特 
-
-12月3日至4日，泽连科医生在盖特上连续发表观点，辉瑞公司首席执行官阿尔伯特-布拉是世界上最大的有组织犯罪黑手党的黑老大。他，以及他做杀人业务公司，在致死毒针的安全性和有效性上，欺骗了全人类。他应该被立即逮捕并接受国际军事法庭的审判。他随后为一个盖特进行了背书，此盖文写道，截至2021年2月，辉瑞公司已经收到1200多份由疫苗引起的死亡报告和数万份不良事件报告，包括270例怀孕中的23例自然流产和2000多份心脏疾病报告。这是辉瑞公司自己的数据。难怪美国食品和药物管理局会争取将其隐藏55年。
-
-CCP病毒是一种人造大规模杀伤性武器。黑暗力量故意把他释放出来，以引起全球恐慌和人与人之间的隔离，并诋毁得病早期使用羟氯喹或者伊维菌素的方法，胁迫人们扎索命毒针。索命毒针会引发中风、心脏病、心肌炎、流产、癌症、自身免疫性疾病、不孕不育和抗体依赖增强效应，并含有生物识别传感器。这些传感器量测体内生理数据，并将地理位置一起传输给第三方。
-
-新闻链接：
-
-[https://gettr.com/post/pig3u07bd6](https://gettr.com/post/pig3u07bd6https://gettr.com/post/pihtky3bd1https://gettr.com/post/pinsnm8686)
-
-[https://gettr.com/post/pihtky3bd1](https://gettr.com/post/pig3u07bd6https://gettr.com/post/pihtky3bd1https://gettr.com/post/pinsnm8686)
-
-[https://gettr.com/post/pinsnm8686](https://gettr.com/post/pig3u07bd6https://gettr.com/post/pihtky3bd1https://gettr.com/post/pinsnm8686)
-
-编辑/校对/发稿：小小安
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-69.jpeg)
+总编：Irene木木
+编辑：Lakeman文仁
+校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-109-1280x172-1-2-1.jpg)
-
-
-
-
-
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
