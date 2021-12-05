@@ -2,224 +2,125 @@
 ---
 
 
-## 郭先生解密袖扣
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1722211/)
+## 七哥回答关于喜币代持FMV公司的问题
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1722299/)
 
-[https://gtv.org/video/id=61ac590087fa7e74c92b7ecf](https://gtv.org/video/id=61ac590087fa7e74c92b7ecf)
+[https://gtv.org/video/id=61ac596087fa7e74c92b7eed](https://gtv.org/video/id=61ac596087fa7e74c92b7eed)
 
-看看, 看看
-Mire mire
+我替许多战友来问个问题
+Voy a hacer preguntas por muchos de los compañeros luchadores
 
-那个袖扣是法国的一个品牌
-Esa mancorna es de una marca francesa
+这几天大家都关注锁币的事情
+Estos días todos están pendientes del asunto de bloqueo de moneda
 
-它做的一个袖扣
-Que elaboran mancornas
+现在有一个疑问就是联盟说GTV公司帮大家持币
+Ahorita hay una duda y es que La Alianza dijo que la compañía de GTV va a ayudar a todos a guardar las monedas
 
-他就是做了袖扣
-Esta marca hacen mancornas
+但是喜交所给我们发邮件的公司名称和我们的GTV
+Pero el nombre de la compañía del correo que nos envió Himalaya Exchange
 
-后来这个袖扣呢
-Luego esta cosa
+重建项目名称不同
+No es igual al de nuestro GTV y del Proyecto de reconstrucción
 
-就是当时
-En aquel momento
+请问Freedom Media Watch Ltd
+Disculpa, Freedom Media Watch Ltd
 
-被这个澳门最重要的
-Fue utilizada por lo más importante en Macao
+和Freedom Media Watch Ltv这两个公司到底
+Y Freedom Media Watch Ltv estas dos compañías
 
-就是共产党拿去以后就在巴黎
-Después de que el PCCh lo tomó, fue en París
+哪一个是我们的GTV公司
+¿Cuál es el de nuestra compañía GTV?
 
-因为安全部的人看到我戴那个袖扣
-Porque las personas del Departamento de Seguridad vieron que tenía esas mancornas puestas
+喜交所给的邮件战友是否可放心的签署
+¿Será que el correo enviado por Himalaya Exchange a los compañeros luchadores se puede firmar con confianza?
 
-他说你这袖扣很漂亮老郭
-Me dijo, Miles, tus mancornas son muy bonitas
+第一喜交所给的文件放心签署
+Primero, los documentos dados por Himalaya Exchange se pueden firmar con confianza
 
-在哪儿买的
-Dónde las compraste
+第二GTV新公司叫FMV
+Segundo, la nueva compañía de GTV se llama FMV
 
-当时我就摘了
-En ese momento me las quité
+是整个的代持
+Es para toda conservación
 
-我说送给你了
-Y dije te las regalo
+还有我再告诉你只要你币少任何一个 七哥负责
+Y lo otro que te digo, así te falta una sola moneda, yo me hago responsable
 
-过了不到一个月
-Pasaron menos de un mes
+只要喜交所给你的文件
+Todo documento entregado por Himalaya Exchange
 
-这哥们从欧洲回来见我
-Este hermano regresó de Europa y vino a verme
+联盟委员会文件 七哥全负责
+Comité de Alianza, yo me responsabilizo por completo
 
-老郭
-Miles
+还有发出 收到
+Y todo enviado, recibido
 
-我送还给你一个袖扣
-Te regalo de regreso una mancorna
+还有现在收到农场发出的表格
+Y los formularios enviados por las fincas que hayan recibido
 
-我就没犹豫啊
-Y no lo dudé
+只是委托喜交所转交H-Coin给FMV公司
+Es solo un encargo de H-coin a través de Himalaya Exchange a la compañía FMV
 
-我说我从来不要人东西
-Dije que nunca recibo cosas de otras personas
+但是没有FMV公司给我们签署的代持协议
+Pero no hay un acuerdo de conservación dado por la compañía FMV para firmar
 
-我说行啊
-Dije, está bien
+是否该先跟FMV公司签署完代持协议
+¿Será que primero hay que firmar un acuerdo de conservación con la compañía?
 
-我说我从来不要人东西
-Yo nunca recibo cosas de otros
+再到喜交所上转帐FMV
+Y luego ir a hacer la transferencia en Himalaya Exchange a FMV
 
-我就交给保镳了
-Entonces se las di al guardia
+不是的 这次的代持转让是福利币并不是你二级市场的币
+No es así, esta vez la transferencia de conservación es de la moneda de bienestar, no de su moneda comprado en el mercado
 
-我说你拿走吧, 送给你了
-Le dije: tómalas, te las regalo
+福利币是给予 是有条件的
+Las monedas de bienestar son entregadas, tienen requisitos
 
-那个精密程度不是像你想像
-El grado de precisión no es lo que te imaginas
+也没给你签署协议
+Tampoco se les hizo firmar un acuerdo
 
-还有针眼儿你能看得见
-Crees poder lograr ver el agujero
+现在你愿意 你可以不愿意啊
+Ahora tu puedes estar dispuesto y si quieres no lo haces
 
-你看不见的
-Pero no lo puedes ver
+你可以不愿意 你要愿意
+Puedes no querer, pero si tu quieres
 
-他说我们送给你的
-Él dijo: nosotros te lo regalamos
+你就签
+Tú lo firmas
 
-结果你没戴, 给你保镳了
-Resulta que no te la pusiste y se lo diste a tu guardia
+我再告诉你
+Y te digo otra cosa
 
-就这个玩意儿给你保镳了
-Esta cosa se la diste a él
+FMV是战友的公司
+La compañía de FMV es de un compañero luchador
 
-你保镳
-Tu guardia
+不是任何人的
+No es de cualquier persona
 
-这个戴着出去搞女人
-Llevó esta cosa y salió a jugar con las mujeres
+FMV公司未来是喜交所的喜联储的5%的股东
+La compañía de FMV en un futuro será accionista del 5% en La Reserva de Himalaya y en Himalaya Exchange
 
-后来我就找了这个保镳一问
-Luego conseguí este guardia y le pregunté
+他也会是盖特控股公司的5%的股东
+También será accionista del 5% de Gettr Holdings
 
-他都承认
-Él admitió todo
-
-说的都是实话
-Que todo era verdad
-
-我说你可以离开了
-Entonces le dije que ya te puedes ir
-
-是吧
-Cierto
-
-这个袖扣
-Esta mancorna
-
-就是干这个的
-Son para este tipo uso
-
-后来我知道
-Luego me enteré
-
-这个袖扣被他们广泛的用在了澳门
-Que esta mancorna es utilizada popularmente en Macao
-
-因为澳门的迭马仔
-Porque los caballos apilados en Macao
-
-还有发牌的人是要戴
-Y la persona que reparte las cartas debe usarlas
-
-你看都戴袖扣的
-Mire que todos tienen las mancornas puestas
-
-很多人戴着
-Muchas personas
-
-特别是VVIP厅
-Especialmente, en la sala de VVIP
-
-就是这个袖扣
-Son estas mancornas
-
-就是录像手段之一
-Es uno de los métodos para grabar video
-
-最重要的事情
-Y lo más importante
-
-这个袖扣戴着, 人在后面戴的时候
-Tener la mancorna puesta, si la persona de atrás lo usa
-
-有人看牌
-Pueden mirar las cartas
-
-就能把别人的牌传到那个监控室去
-Y así pueden enviar la carta vista a la sala de monitoreo
-
-那个是能大赢的
-Eso puede ganar en grande
-
-那是想赢你啥就赢你啥
-Puedes ganarte cualquier cosa que desees
-
-它这个扣子用了很多
-Estas mancornas fueron utilizadas en grandes cantidades
-
-大家不要想着它的镜头一直是很晃得
-No piensen que su lente tiembla a cada rato
-
-你记住
-Recuerda
-
-它这袖扣戴上的时候
-Cuando pones estas mancornas
-
-有的人手往里一放
-Hay personas que ponen las manos de esta forma
-
-他就这么一搁
-Y lo deja en esta posición
-
-他就不用动
-No será necesario moverse
-
-而且是超稳定的那种镜头
-Y son lentes de alta estabilidad
-
-高清的, 在当时就很高清了
-De alta definición, en aquel momento ya es de muy alta definición
-
-你知道吗
-Sabías eso
-
-很厉害
-Muy poderoso
-
-所以今天给你们解密
-Por eso hoy les descifré este secreto
-
-他是监视镜头
-Ella es una cámara de vigilancia
+所以说兄弟姐妹们, 没有问题, 七哥担保
+Por eso hermanos y hermanas, no habrá problemas yo lo garantizo
 
 * * *
 
 日期：12/03/2021
-原视频标题：郭先生解密袖扣
-El Sr. Guo descifra el secreto de las mancornas
-原视频日期：12/02/2021
-原视频网址：[https://gettr.com/post/pigt5wdaca](https://gettr.com/post/pigt5wdaca)
-任务编号：3080
-视频时间段：0:00-2:07
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场- 银龙
-发布 ：洛杉矶盘古农场- 恩典
+原视频标题：七哥回答关于喜币代持FMV公司的问题
+Miles responde preguntas sobre la conservación de H-coin por la compañía FMV
+原视频日期：12/0/22021
+原视频网址： [https://gettr.com/post/pih7z08f45](https://gettr.com/post/pih7z08f45)
+任务编号：KC308（3079）
+视频时间段：0:00-1:44
+西听校：洛杉矶盘古农场-小文萱
+翻译：洛杉矶盘古农场-霙霙（文霙）
+翻译终校：洛杉矶盘古农场-小文萱
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

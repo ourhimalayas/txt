@@ -2,129 +2,50 @@
 ---
 
 
-## 七哥回答关于喜币代持FMV公司的问题
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1722299/)
+## 为什么习近平一定会在冬季攻打台湾
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1722445/)
 
-[https://gtv.org/video/id=61ac596087fa7e74c92b7eed](https://gtv.org/video/id=61ac596087fa7e74c92b7eed)
+作者：顺其自然
+编辑：Mttfly
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2021.12.4-为什么习近平一定会在冬季攻打台湾-配图.png)图片来源：businessinsider
+据zerohedge报道，美国官员称俄罗斯召集175000多名士兵准备多线进攻乌克兰。报道中说，俄罗斯准备了比预想更多的军力在乌克兰附近。在周五，据华盛顿邮报报道，俄罗斯准备最早在2022年一月份入侵乌克兰。
 
-我替许多战友来问个问题
-Voy a hacer preguntas por muchos de los compañeros luchadores
+俄罗斯已在靠近两国边境地区集结了超过 9.4 万名士兵，莫斯科表示，俄方根据本国需要在本国领土上调动军队。
 
-这几天大家都关注锁币的事情
-Estos días todos están pendientes del asunto de bloqueo de moneda
+几天前，五角大楼发言人john kirby低估了来自俄罗斯的对乌克兰的威胁。他说，我们预想美国不会介入这场俄罗斯和乌克兰之间的冲突。
 
-现在有一个疑问就是联盟说GTV公司帮大家持币
-Ahorita hay una duda y es que La Alianza dijo que la compañía de GTV va a ayudar a todos a guardar las monedas
+从郭先生的直播中，我们知道，中共与俄罗斯是准备同时动手的，中共攻打台湾，俄罗斯入侵乌克兰，让美国不能同时应对两场战争。报道中说是最早明年一月份，也就是还有两个月左右俄罗斯就会入侵乌克兰。既然俄罗斯在最早一月份动手，那中共攻打台湾也肯定在那个时候。因为习近平与普京商量好了要同时动手的。
 
-但是喜交所给我们发邮件的公司名称和我们的GTV
-Pero el nombre de la compañía del correo que nos envió Himalaya Exchange
+我们知道，在冬季，欧洲各国还要仰仗俄罗斯供应天然气呢，所以对于欧洲来说，不太敢介入这场俄罗斯与乌克兰之间的冲突。再加上欧洲本身的军事力量，若没有美军这个北约最大的主力，欧洲和俄罗斯是不敢动手的，再有现在欧洲各国经济实在比较差，南欧几国都几近破产。我们知道现代战争是综合国力的战争，到最后拼得是经济实力。经济不行，根本没法进行打仗。欧洲哪个国家肯出钱出力帮助乌克兰呢？
 
-重建项目名称不同
-No es igual al de nuestro GTV y del Proyecto de reconstrucción
+中共攻打台湾一定是与俄罗斯同步调的，俄罗斯选择对俄罗斯最有利的冬季进攻乌克兰，那中共也会在那时行动。
 
-请问Freedom Media Watch Ltd
-Disculpa, Freedom Media Watch Ltd
+还有一点，可以看出习近平也要很快出手了。
 
-和Freedom Media Watch Ltv这两个公司到底
-Y Freedom Media Watch Ltv estas dos compañías
+12月3日恒大在港交所发布公告，集团不确定是否拥有充足资金继续履行一项金额为 2.6 亿美元的担保义务。就这样恒大正式违约国际资本市场。
 
-哪一个是我们的GTV公司
-¿Cuál es el de nuestra compañía GTV?
+佳兆业也面临违约风险：该公司周五宣布，一笔本金总额4亿美元的票据寻求延期偿还失败，使其面临着违约风险。佳兆业今年年初至今，股价已持续下跌了差不多75%。佳兆业是中国美元债券发行量第二大的房地产开发商，仅次于恒大，负债总额超过3000亿美元。
 
-喜交所给的邮件战友是否可放心的签署
-¿Será que el correo enviado por Himalaya Exchange a los compañeros luchadores se puede firmar con confianza?
+12月3日恒大违约、美证券交易委员会要求外国公司提供审计，超过200家中国企业可能因此被美交所摘牌。滴滴已在纽交所退市，并准备在香港上市。如果中企集体退市，将重击美国股市和投机中资的国际资本。
 
-第一喜交所给的文件放心签署
-Primero, los documentos dados por Himalaya Exchange se pueden firmar con confianza
+我们知道，西方资本投资中国房产公司的资金有12万亿美元之多，美国投资中国的有6万亿，只要这些钱打了水漂，那美国经济，欧洲经济就完了，这还只是投资到中国的资金，那中概股在美股上市，那些西方资本又买了多少中资企业的股票呢？现在由于各种原因，中共的房地产公司，首先是恒大撑不住了，中概股又要集体退市，那对美国以及西方经济绝对是非常大的打击。
 
-第二GTV新公司叫FMV
-Segundo, la nueva compañía de GTV se llama FMV
+恒大将诱发房地产多米诺骨牌效应，破产，然后带来一系列经济大危机，香港经济大危机。香港股市一定暴跌，擀面杖子经济不撑了。习近平现在玩什么游戏呢？老子今天宁断一条腿，也要溅你一身屎，西方经济是承受不起的，是脆弱的。这对于西方绝对是噩梦。
 
-是整个的代持
-Es para toda conservación
+房地产倒下去就会使保险企业倒下去、信托倒下去、金融机构倒下去。几万亿的国债金融票据，绝对会把西方金融西方经济打趴下。
 
-还有我再告诉你只要你币少任何一个 七哥负责
-Y lo otro que te digo, así te falta una sola moneda, yo me hago responsable
+美国以及西方经济被打趴下，只有两条路可以走，一是跪下来求习近平，那个时候习近平就要讲条件，就要讨价还价了。习会说我打台湾你不要管，那么我就把经济再给你撑一撑，给你撑到明年年底，让你度过明年的中期选举。第二个就是美国不跟中共讲条件，但是呢，由于经济垮了，社会就会动荡，就会不稳定，使得美国以及西方忙于内部的经济危机和社会动乱，无暇顾及中共攻打台湾。
 
-只要喜交所给你的文件
-Todo documento entregado por Himalaya Exchange
+所以现在中共就选在这个时候让恒大债务违约，接下来一系列的地产公司违约。中共国的经济不会好，但也会把世界给拖下去。这需要时间发酵，当人们真正感受到打台湾的气息，会在一两个月之后，那时中共与俄罗斯准备好了，就会动手了。
 
-联盟委员会文件 七哥全负责
-Comité de Alianza, yo me responsabilizo por completo
+**发布：去中心化Math**
 
-还有发出 收到
-Y todo enviado, recibido
-
-还有现在收到农场发出的表格
-Y los formularios enviados por las fincas que hayan recibido
-
-只是委托喜交所转交H-Coin给FMV公司
-Es solo un encargo de H-coin a través de Himalaya Exchange a la compañía FMV
-
-但是没有FMV公司给我们签署的代持协议
-Pero no hay un acuerdo de conservación dado por la compañía FMV para firmar
-
-是否该先跟FMV公司签署完代持协议
-¿Será que primero hay que firmar un acuerdo de conservación con la compañía?
-
-再到喜交所上转帐FMV
-Y luego ir a hacer la transferencia en Himalaya Exchange a FMV
-
-不是的 这次的代持转让是福利币并不是你二级市场的币
-No es así, esta vez la transferencia de conservación es de la moneda de bienestar, no de su moneda comprado en el mercado
-
-福利币是给予 是有条件的
-Las monedas de bienestar son entregadas, tienen requisitos
-
-也没给你签署协议
-Tampoco se les hizo firmar un acuerdo
-
-现在你愿意 你可以不愿意啊
-Ahora tu puedes estar dispuesto y si quieres no lo haces
-
-你可以不愿意 你要愿意
-Puedes no querer, pero si tu quieres
-
-你就签
-Tú lo firmas
-
-我再告诉你
-Y te digo otra cosa
-
-FMV是战友的公司
-La compañía de FMV es de un compañero luchador
-
-不是任何人的
-No es de cualquier persona
-
-FMV公司未来是喜交所的喜联储的5%的股东
-La compañía de FMV en un futuro será accionista del 5% en La Reserva de Himalaya y en Himalaya Exchange
-
-他也会是盖特控股公司的5%的股东
-También será accionista del 5% de Gettr Holdings
-
-所以说兄弟姐妹们, 没有问题, 七哥担保
-Por eso hermanos y hermanas, no habrá problemas yo lo garantizo
-
-* * *
-
-日期：12/03/2021
-原视频标题：七哥回答关于喜币代持FMV公司的问题
-Miles responde preguntas sobre la conservación de H-coin por la compañía FMV
-原视频日期：12/0/22021
-原视频网址： [https://gettr.com/post/pih7z08f45](https://gettr.com/post/pih7z08f45)
-任务编号：KC308（3079）
-视频时间段：0:00-1:44
-西听校：洛杉矶盘古农场-小文萱
-翻译：洛杉矶盘古农场-霙霙（文霙）
-翻译终校：洛杉矶盘古农场-小文萱
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

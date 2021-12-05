@@ -2,39 +2,33 @@
 ---
 
 
-## 议员提出强制FDA一百天内发布辉瑞文件
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1722198/)
+## 数据科学家： VAERS数据非常恐怖
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1722270/)
 
-翻译： Jenny Ball
+**翻译： Jenny Ball**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip31.png)图片来源：childrenshealthdefense.org
+在最近的捍卫者（The Defender）播客中，小罗伯特·肯尼迪（RFK）采访了数据科学家和免疫学研究员杰西卡·罗斯（Jessica Rose）博士，关于疫苗不良事件报告系统（VAERS）的惊人数据，及其告诉我们有关 COVID 疫苗伤害的信息，尤其是对儿童。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-220.png)图片来源 ：childrenshealthdefense.org
+罗斯解释说，VAERS 数据显示 **618,548 起不良事件报告**（截至 10 月 29 日），但该数字并未考虑漏报。（截至11月19日，最新VAERS数据显示不良事件664745起，不包括国外报道）。
 
-美国众议员拉尔夫·诺曼 (Ralph Norman) 周四[提出立法](https://norman.house.gov/news/documentsingle.aspx?DocumentID=1087)，要求美国FDA在 100 天内发布与辉瑞 [COVID-19](https://childrenshealthdefense.org/defender_category/covid/)疫苗相关的所有信息记录，发布辉瑞提交给该机构的所有有关 Covid-19 疫苗的紧急使用授权或许可的信息记录。FDA 曾要求允许 55 年的时间来发布这些文件。
+“如果你考虑我基于辉瑞 3 期临床数据的漏报因素——无论如何这都可能是有问题的数据——漏报系数是 31，”她说。因此，要获得准确的不良事件计数，“您需要将 VAERS 数字乘以至少 31，”罗斯解释说， “那真是令人震惊，有数百万人。”
 
-[该立法](https://childrenshealthdefense.org/wp-content/uploads/CHD-v.-FDA-Submitted-Complaint-8.31.21.pdf)源于根据信息自由法 (FOIA) ，要求公布 《公共健康和医疗专业人员透明度》 (PHMPT – [Public Health and Medical Professionals for Transparency](https://phmpt.org/) ) 8 月份要求的文件，但FDA 呼吁推迟（最多达 55 年）。
+罗斯说，VAERS 数据还显示了“儿童被不当注射了这些产品。”
 
-PHMPT 是一个由 30 多名科学家、医学专业人士、国际公共卫生专业人士和记者组成的团体，他们[向 FDA 要求](https://www.theblaze.com/news/fda-asks-federal-judge-for-55-years-to-complete-foia-request-for-vaccine-info)提供“辉瑞疫苗的所有数据和信息”，包括安全性和有效性数据、[不良反应报告](https://childrenshealthdefense.org/defender/ron-johnson-people-injured-covid-vaccine/)，以及一份有效和 非活性成分。
+她告诉肯尼迪，提交给 VAERS 的报告显示，**幼儿接种了尚未获得针对其年龄组授权的COVID 疫苗**。截至 10 月 29 日，接种疫苗后死亡的儿童中有 38% 未满 2 岁。
 
-9 月，PHMPT 在美国[德克萨斯州北区地方法院起诉 FDA](http://phmpt.org/wp-content/uploads/2021/10/001-Complaint-101021.pdf)，称 FDA 没有回应 FOIA 的要求。[诺曼称](https://www.foxnews.com/politics/rep-norman-fda-covid-vaccine-data-100-days)， FDA 要求推迟发布文件是“**一个非常糟糕的笑话的开始**”。
+“**所以必须有人向我解释，因为我们不应该给婴儿注射**！”她说。
 
-诺曼在一份声明中说：
-
-“FDA 的唯一优先事项应该是消费者的健康和安全。该机构通过延迟属于公众的信息，损害了消费者健康和安全完整性。由于拜登政府一心一意将这些疫苗强制要求强加给我们，因此，公众完全有权知道这种疫苗是如何获得批准的，尤其是在如此短的时间内。
-
-“毕竟，**FDA ****在短短 ****108 ****天内，设法考虑了所有 ****329,000 ****页数据，并授予了辉瑞疫苗的紧急批准**。因此，很难解释为什么现在需要 55 年才能向公众全面发布这些信息。”
-
-儿童健康保护委员会主席兼首席法律顾问小罗伯特·肯尼迪说，安东尼·福奇博士向美国人民“承诺完全透明”。
-
-“将数据隐藏 55 年与透明度背道而驰，”肯尼迪说。“**难怪美国人不再信任这些疫苗或监管它们的政府机构**。”
-
-新闻来源: [childrenshealthdefense.org] [Congressman Introduces Bill to Force FDA to Release Pfizer Documents Within 100 Days, Instead of 55 Years](https://childrenshealthdefense.org/defender/ralph-norman-fda-pfizer-covid-vaccine-records/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=d8bf344d-0a92-45c3-9e45-eb38e82966e5)
+**新闻来源**：[childrenshealthdefense][Data Scientist Tells RFK, Jr.: ‘VAERS Is Telling a Very Frightening Story’](https://childrenshealthdefense.org/defender/rfk-jr-defender-jessica-rose-data-vaccine-adverse-event-reporting-system/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=d8bf344d-0a92-45c3-9e45-eb38e82966e5)
 
 * * *
 
-*审核：文乐
+***审核：文乐
 校对：阿伯塔
-发稿：Nuevo唐人*
+发布：信心满满***
+
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3.jpeg)
+
 
 
  

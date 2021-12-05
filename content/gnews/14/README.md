@@ -2,29 +2,32 @@
 ---
 
 
-## 喜币超越法币成为未来最佳货币的三大契机
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1722212/)
+## 中共惶恐破坏喜币必定以失败告终
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1722314/)
 
-**Három lehetőség arra, hogy a himalaya Coin valuta felülmúlja a fiat valutát, hogy a jövőben a legjobb valutává váljon**
+作者：波士顿五月花  2020灭共必胜
+![](https://assets.gnews.org/wp-content/uploads/2021/12/20211205.jpg)
+自喜币上市后，不仅震撼了世界，也震撼了体制内人和观望群众。于是大批中国人纷纷KYC注册喜联储。不少人还卖掉了手中的不动产和其他虚拟币资产，转投喜币。
 
-作者：纽约香草山教育部- Noemi
+由于喜联储是郭文贵先生建立的灭共平台之一，这令中共惶恐不已。使出了许多下三滥的手段，试图扼杀喜币于襁褓之中。
 
-匈牙利语译者：永远的诺亚方舟
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide1-4.jpg)
-图片来源：网络截图
-December 1-jén Guo Wengui úr egyenesen kijelentette az élő adásban, hogy a Himalaya Coin a jövőben felülmúlja a hagyományos legális valutát, és a legjobb modern valutává válik. Ez a Himalaya Coin által kínált három fő lehetőségnek köszönhető:
+1. 给全世界各国政府和金融机构发函。造谣喜联储是非法平台，不得给喜联储提供任何服务和合作行为，阻扰喜联储用户合法汇款。
+2. 中共立法，并给全世界虚拟平台发布通告。告知给境内中国人提供虚拟币交易服务是非法行为，让他们不得给中国人开户，并清退已有中国人账户。
+3. 掌握火币和币安国内外客户资料。币安和欧易开始拒绝提币，火币只允许退回国内银行，并对国内大买家肆意抓捕，杀鸡儆猴，谋财害命。同时派出王岐山，赵长鹏在新加坡第四届彭博创新经济论坛抹黑喜币。
+4. 发动潜伏在爆料革命农场的卧底，以不同的名义骗取大量福利喜币。在喜币上市后，分阶段砸盘喜币，将真正的战友和散户资金洗走。
+5. 国内频发虚拟币骗局新闻，恫吓老百姓购买虚拟币。
+6. 国内出台新规定，明年3月1号开始微信和支付宝的个人收款码不能作为经营性收款。个人认为，在如今普遍个人收款码用于经营的社会，这对微信和支付宝是种沉重的打击。毕竟没多少人会为了付几块钱还要去加好友再转账。而此举意味着，中共正在快马加鞭推出人民币数字货币，数字货币转账不需要加好友且便捷迅速。想在老百姓了解喜币之前，将其赶入自己数字货币的坑里。
 
-Először is, a Himalaya Coin  lesz a világ első fizetési funkcióval rendelkező kriptovalutája. Ugyanakkor a Himalaya-Pay lesz a Himalája Fed kereskedelmileg legértékesebb létezője.
 
-Másodszor, a Himalaya Fed hamarosan megszerzi a világ első digitális banki licencét, ami azt jelenti, hogy a Himalaya Coin  lesz az első legális kriptovaluta, amelyet szuverén állam engedélyez.
+那么中共能成功吗？肯定不能。随着郭文贵先生四年多的爆料，通过中共在国内外蓝金黄、王健之死、香港镇压、西藏屠杀、新疆种族灭绝、中共病毒和毒疫苗等一系列事件，证实了中共以假治国、以黑治国、以骗治国、以贪治国、以偷治国、以警治国、以生殖器治国等黑恶行径，中共已经掉入了塔西佗陷阱。从此以后它说的话再没有人和机构去相信，事实证明喜联储也没有遇到太大阻碍。而中共还在暗暗窃喜，自我感觉良好。它并不知道无论怎么做，只会利好喜联储，利好新中国联邦，利好灭共！
 
-Harmadszor, a Himalaya Coin valuta jövőbeni forgalomba hozatalát nehéz lesz megbecsülni. A kriptovaluta területén a forgalom az abszolút értékelési standard, amely meghatározza bármely kriptovaluta valódi értékét. Ezért úgy tűnik, hogy a Himalaya Coin valuta tulajdonosának saját előnyei és jövőbeli felértékelődési kilátásai egy “bankjegynyomtató gépet” tartanak a kezében.
+* * *
 
-Guo úr azt is bejelentette, hogy a Himalaya Fed hamarosan két digitális bankot irányít, és egy csapásra a digitális banki szolgáltatások SWIFT-je lesz. Emiatt a Himalaya Coin rendszer végre eléri a digitális valuta és a legális valuta tökéletes kombinációját, a H-Pay, a himalájai devizakölcsönök és egyéb funkciók egymást követő bevezetésével párosulva, a Himalaya Coin referenciaszabvány lesz a modern digitális valuta területén.
+*编辑：跟随战神*
 
-参考链接：2021年12月1日 文贵大直播
+*封面：霹雳鼠年*
 
-原文链接：GNews APP 分享 ([https://gnews.org/zh-hans/1715507/](https://gnews.org/zh-hans/1715507/))
+*发布：吐纳*
 
  
 

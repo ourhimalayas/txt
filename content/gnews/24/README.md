@@ -2,35 +2,42 @@
 ---
 
 
-## Hpay将彻底颠覆传统交易方式
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1722121/)
+## 美国上诉法院对拜登政府联邦疫苗授权实施一系列毁灭性打击
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1722167/)
 
-撰稿：纽约香草山教育部- Noemi
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-1.png)
-12月4日，郭文贵先生在大直播中爆料，Hpay功能将颠覆现有的交易模式，并摆脱传统的金融牌照。未来，Hpay在交易的私密性、安全性、便捷性与自由度上都为用户提供了独特体验。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-218.png)
-郭先生说，在未来的Hpay交易中，买卖双方只需要在喜联储通过KYC认证，便实现直接转账支付。而此类型转账，并不属于传统商业消费的范畴，因此，不需要当地的金融牌照，仅仅是喜联储之间的个人支付。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/9a7eea5f7a49455199ae321c56134810-1.jpg)图片来源：《贝克新闻》
+美国第六巡回上诉法院不允许职业安全与健康管理局将有关拜登联邦疫苗授权的重要案件转移到更有利的左翼法院地点。
 
-郭先生指出，在2022年的4-5月间， Hpay可以像GFASHION一样，在接受的国家和地区，会成为各大商户认可的支付方式。而明年的6-7月间，Hpay将在全世界更大的范围获得认可。
+上诉法院指出，职业安全与健康管理局早先提出的解除第五巡回上诉法院中止的动议被驳回，因为“没有实际意义”。此外，法院驳回了政府修改简报时间表的尝试，并驳回了暂停听证会等待相关案件结果的动议。还驳回了增加几次法庭之友简报的理由，称其为“没有实际意义”，但增加了案件的两个当事方
 
-新闻链接：[2021年12月03日 文贵大直播](https://gtv.org/video/id=61aa1cecd6388d55041591e6)
+国际电工技术委员会和佛罗里达州（IEC和IEC – FL）。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
+法院还驳回了移交给华盛顿特区法院的申请，被告无疑认为这是一个更有利的地点。美国职业安全与健康管理局正试图拖延此案的听证会，因为公司继续竞标拜登政府，但法院对此一无所知。
 
-总编：木白
+本周早些时候，拜登政府在路易斯安那州的美国地方法院再次受到法律挫折，导致拜登联邦疫苗在所有50个州的强制执行受阻。
 
-编辑：DM
+参议员史蒂夫·戴恩斯(R-MT)对裁决作出回应：“对蒙大拿州医护人员来说是个好消息，一位联邦法官刚刚批准了我们对管理系统疫苗强制执行禁令的请求。现在，所有50个州都禁止了这项非法授权。”
 
-校正/发稿：浪迹天涯
+简评：本周早些时候，拜登政府在路易斯安那州的美国地方法院再次受到法律挫折，导致拜登联邦疫苗在所有50个州的强制执行受阻。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-1.png)
+郭文贵先生说灭疫的这场战争取决于下个月，12月底，还有一个月，爆料革命很有信心会让世界反转过来。国内就无能为力，但会受到国际形式的重大影响，停止疫苗的决定可能会晚一两个月。在海外的一定要撑到12月底，胜利即将到来。现在不仅是科学家和媒体，越来越多的军人和警察也加入了反疫苗的行列。
 
+omicron比原来想像的要好很多，传染率很高，致死率几乎没有。器官、基因有病的人病情会加重。欧洲的科学家认为：自然现象、人体的抗体以及全球的神秘力量，可能会使疫情和疫苗停止。
+
+新闻链接：
+
+[U.S. Appeals Court Deals Biden Administration a Devastating Series of Blows Against Its Federal Vaccine Mandate](https://beckernews.com/biden-mandate-appeals-43367/)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

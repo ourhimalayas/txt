@@ -2,42 +2,20 @@
 ---
 
 
-## 加拿大疫苗倡导者提出秘密接载儿童到疫苗接种点
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1721839/)
+## 秘翻在线：最新研究显示过去十年的碳排放量总体保持平稳
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1721887/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+#### 翻译/撰稿：zzballack
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/child-well-visit-immunization-shot-tiny-768x512-1.jpg)
+#### 校对：白夜
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-204.png)图片来源：每日邮报
+据《网关专家》（Gateway Pundit）12月4日报道，对于一直鼓吹人类活动导致二氧化碳排放增多，以致全球变暖的全球主义者来说，比如美国前副总统阿尔·戈尔 (Al Gore)、美国众议员桑迪·科尔特兹（Sandy Cortez）甚至反社会者比尔·盖茨，全球碳计划 (GCP)的一项最新调查结果彻底揭穿了他们的谎言。
 
+GCP今年11月公布的一项调查显示，全球的二氧化碳排放总量至少在过去10年内一直保持平稳。GCP预测，2021年的化石燃料二氧化碳排放量将达到364亿吨，仅比大流行前的最高值、2019年的367亿吨低0.8%。
 
- 
-图片来源：www.uchealth.org
+中共病毒大流行期间，人们的各项活动受到严格限制，无论是旅游出行，还是生产制造和运输，这些与碳排放紧密相关的行业几乎处于停摆状态，但是减少的碳排放量几乎微乎其微。尽管如此，这些事实并不会阻止那些全球主义者和极端社会主义者继续力推其绿色能源协议和气候倡议等政治议程，以摧毁美国的能源独立，让美国对中共政权更加依赖。以比尔·盖茨为代表的黑暗势力也将继续打着“零排放”的幌子实施其大规模减少全球人口的计划，他们甚至提出为了控制碳排放量，限制每人的碳额度，以控制人们的日常活动和需求。
 
-
-#### 编译：小红帽
-
-加拿大新冠疫苗倡导者在提出让父母反对接种新冠疫苗的青少年乘车前往新冠疫苗接种点后，引发了网上争议，据说还面临威胁。
-
-这场争论始于上周五，萨斯喀彻温省一位名叫朱利安·沃瑟斯庞(Julian Wotherspoon)的社区组织者在推特上发布了一条信息，表示愿意帮助那些不顾父母反对想要接种新冠疫苗的13至17岁的青少年。她说：“我可以载你去诊所。”如果有人问起，我会说带你和我的孩子去看电影。我们开始吧”。
-
-根据萨斯喀彻温省卫生局的说法，13岁及以上的儿童 “能理解新冠疫苗的好处和潜在的副作用”，不需要父母的允许就可以接种新冠疫苗。
-
-沃瑟斯庞的推文在网上引起了轰动，既引来了赞美，也引起了愤怒。随后，她将自己的账户设为私密。
-
-另一位儿童新冠疫苗接种的支持者，自称是“妈妈博客”的特尼尔·拉方丹（Tenille Lafontaine），也来自萨斯喀彻温省，称沃瑟斯庞的提议“令人惊叹”。她补充说：“我听说有几个青少年自己去接种新冠疫苗，因为他们的父母疯了。孩子们会没事的。侧面说明：我随时可以开车（送小孩去打疫苗）。”
-
-其他评论者进行了反击，告诉这两个女人 “离别人的孩子远一点”。有些人甚至把秘密接送提议比作绑架。
-
-**参考新闻：**[Children offered secret rides to vaccination sites — RT World News](https://www.rt.com/news/542234-cananada-vaccination-children-help/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻来源：[New Study Finds that Global Carbon Emissions Have Been Flat for a Decade Despite the Leftist Hysteria](https://www.thegatewaypundit.com/2021/12/new-study-finds-global-carbon-emissions-flat-decade-despite-leftist-hysteria/)
 
  
 

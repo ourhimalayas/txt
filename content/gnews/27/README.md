@@ -2,22 +2,35 @@
 ---
 
 
-## 死亡是中共病毒疫苗最突出的特点
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1722039/)
+## Hpay将彻底颠覆传统交易方式
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1722121/)
 
-#### 听写/翻译：Lish
-校对/编辑：枳实
-剪辑/字幕：小强
+撰稿：纽约香草山教育部- Noemi
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-1.png)
+12月4日，郭文贵先生在大直播中爆料，Hpay功能将颠覆现有的交易模式，并摆脱传统的金融牌照。未来，Hpay在交易的私密性、安全性、便捷性与自由度上都为用户提供了独特体验。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-218.png)
+郭先生说，在未来的Hpay交易中，买卖双方只需要在喜联储通过KYC认证，便实现直接转账支付。而此类型转账，并不属于传统商业消费的范畴，因此，不需要当地的金融牌照，仅仅是喜联储之间的个人支付。
 
-发布：枳实
+郭先生指出，在2022年的4-5月间， Hpay可以像GFASHION一样，在接受的国家和地区，会成为各大商户认可的支付方式。而明年的6-7月间，Hpay将在全世界更大的范围获得认可。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+新闻链接：[2021年12月03日 文贵大直播](https://gtv.org/video/id=61aa1cecd6388d55041591e6)
 
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
+
+总编：木白
+
+编辑：DM
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-1.png)
+
 
  
 

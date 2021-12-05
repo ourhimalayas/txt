@@ -2,61 +2,100 @@
 ---
 
 
-## “非死不可”之死
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1722255/)
+## 美国对数字货币监管的两弊两利
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1722364/)
 
-撰稿：Aa
-![](https://assets.gnews.org/wp-content/uploads/2021/12/125C.png)
-图片来自网络截图
+[https://gtv.org/video/id=61ac862c87fa7e74c92b8d74](https://gtv.org/video/id=61ac862c87fa7e74c92b8d74)
 
-2021年10月28日社交媒体巨头Facebook周四表示，现在公司改名为Meta，自称为聚焦于建立“元宇宙(metaverse)”，即一个共享的虚拟环境，押注这将是移动互联网的后继发展趋势。
+郭文贵
+MIles Guo
 
-Facebook更名的时机，正值立法者与监管者对这家全球最大社交媒体公司的市场力量、演算法决策和滥用管理权提出批评，这可能才是更名的真正原因。
+包括现在欧洲、美国、日本、中东，好多大的地产公司、汽车公司
+Including many large real estate companies and automobile companies in Europe, the United States, Japan, and the Middle East
 
-长期以来这家社交媒体巨头打压言论自由和泄露用户信息等问题而饱受争议，下面列举一些具体的实例。
+都要接受HCN喜币来做交易，任何一个象征性的交易，它都是了不得的
+are all agreed to accept HCoin to do business, any symbolic transaction, it is extraordinary
 
-**删除政治帖子**：2021年1月美国国会出现示威，Facebook表示会删除有关示威的相关内容。11日又宣布，在1月20日拜登就职总统之前，Facebook和Instagram上出现“Stop the Steal”（停止窃选）的帖子都会被删除。
+请问问，除了比特币之外，火币, 还有什么币安，这么多14000种币
+Please ask, besides Bitcoin, Huobi, and that Binance, there are 14,000 so many digital currency
 
-2021年由于印度疫情持续升温，印度当局因防疫不力受到指责，要求脸谱删除莫迪下台人民党总辞等反政府评论。与上次美国大选一样，公司矢口否认有配合政府机关，脸谱解释对文章被“隐藏”感到抱歉，并辩称原因是技术和软件故障。
+有几种币在市场上说真的是大型的严肃性的企业，接受你的币了
+How many digital currency have been accepted to do business by the really large and serious companies in the market?
 
-**打压言论自由**：2017年，国民党智库认为Facebook受到民主进步党的控制，政治评论员黄智贤则呼吁马克·扎克伯格不要假装不知道此事。
+它不流通，数字货币的核心是你不流通屁都不是
+It doesn’t circulate, the core of digital currency is circulation, if you don’t circulate, it’s worthless
 
-另外，Facebook也被指打压特定政治势力。如香港亲建制派组织“爱港之声”和“香港培青社”的页面曾遭到多次删除，封闭超过一万多人的群组，被抗议“践踏言论自由”。一位自称Facebook前雇员的匿名人士也对媒体宣称，Facebook员工也会被强迫在后台删除部分保守主义者的言论，Facebook公司未直接回应，只解释说他们有非常严格的工作指南来确保“客观中立”，这些规定并不会禁止任何信息的传播。
+那你要流通你就要一定跟法币连在一起，你不能成为一个洗钱的工具、偷税的工具
+If you want to circulate, you must be connected with fiat currency, you cannot become a tool for money laundry or tax evasion
 
-**降低触及率**：触及率指的是推文算法推荐的次数，透过降低触及率，用户虽然成功发出文章，但可能几乎无人阅读，可以达到秘密封杀的效果，2020年美国大选后，政治交接期间因内部维稳需要，Facebook表示为了避免偏见与情绪性言论，降低了部分政治团体的触及率，但此事影响到全球各地的脸谱用户，台湾当时的政府防疫与救灾宣传因此被连带受到观看数损失，不过在台湾触及率算法则是将所有政治帖子都调降.
+那是没有未来的，这就是比特币最终会消亡的（原因）
+There is no future, this is why Bitcoin will eventually die
 
-**恣意停权**：Facebook只说明会停用（停权）违反《社群守则》的账号，但是不说明停权的具体理由，例如违反了《社群守则》当中的那一个或那数个规定，停权的审查标准也不透明，也没有其他求助与支持的机制，即使用户从未违规也是如此，而Facebook也会使用AI来自动停权特定的账号，另外，Facebook经常以“保护账号”为由对新用户做出限制，甚至使用中直接停权而不给理由。且因Facebook并不提供邮箱、客服电话等联系管道，仅能透过Facebook网站使用说明项目下进行回报，且官方不一定会回复，形成信息不点对点的交流，用户也无法得知具体违反《社群守则》的细节，无法学习改正错误的行为或提出具体抗辩，而让用户感到权益遭受侵害。常有用户提及因账号被锁而重开账号，而新账号却屡被facebook质疑“不是本人”而遭退出、屏蔽等事情。
+那么你确确实实跟法币联系，你必须要受监管，受监管就是要KYC
+Then you are indeed in contact with fiat currency, you must be supervised, and that means KYC
 
-美国前总统川普的脸谱账号，在2021年1月6日国会大厦暴力事件之后就被停权，而川普也向美国佛罗里达州南部联邦法院，对Facebook公司与首席执行官们提出诉讼，认为脸谱违反美国宪法第一修正案中保护的言论自由。
+美国的监管它能监管到什么呢？大家记住，它有两弊两利
+What can the U.S. regulation of digital currency supervise? Remember, it has two disadvantages and two advantages
 
-**实名制与用户验证**：2014年10月开始，Facebook再度针对部分脸谱用户做无预警停权，要求验证的用户必须上传政府发放的身份证明文件。之前许多名人因为违反脸谱的名称规定而遭屏蔽，例如台湾歌手伍佰2011年元月就曾被Facebook告知其粉丝页账号被永久停用。
+一弊，弊在哪里啊，咱必须要面对美国的监管的时候
+One disadvantage, where is the disadvantage? when we have to face American regulation
 
-根据《TechCrunch》及《华尔街日报》报道，Facebook将开始针对Facebook粉丝众多的“名人验证”其身份，并允许名人以笔名或艺名显示，改变以往仅能使用本名附加昵称显示的方式。目前脸谱会自行挑选验证的名单，通常是很多人订阅的账号，用户不能自行要求验证。被要求验证的用户必须上传政府发放、附有照片的证件图像文件以资证明，Facebook在验证过后将会删除该图像文件。一旦验证过后，该用户就可以用别名来显示.
+这个时候你要进入美国市场的时候，就是说你一定要记住
+When you want to enter the American market at this time, that means you must remember
 
-**隐私权争议**：Facebook在对隐私权的保护方面一向为人诟病，只要用户注册后就会把你所提供的资料中有任何相关连的人推荐给该用户当做朋友。相对的如果该用户的朋友、旧情人、老板、不想理会的人、讨厌的人甚至是敌人仇家注册脸谱，该用户也会被人肉搜索提供给他们当朋友，此时如果该用户没注意而接受，那么该用户讨厌的人可以很容易的追踪到该用户的一举一动；而如果该用户按了拒绝，那么他们也有可能已经知道你的Facebook账号，部分具有不轨企图的人或许会用另外的账号再来骚扰该用户。
+战友们，你们要懂得的，美国政府监管，你信息是一定会
+My comrades in arms, you have to understand that your information will be regulated by the U.S. government
 
-Facebook被批评广泛在用户的动态消息（News Feed）显示用户没有追踪，但被广泛流传的热门内容甚至付费的推广内容，也遭质疑Facebook的算法助长虚假新闻传播，引致不少政治事件受影响。面对指责，Facebook决定减少来自媒体和品牌的消息，增加显示用户亲友动态，让用户的浏览时间“获得善用”
+就是美国公民的信息是一定要给美国政府的IRS，这是你没有选择的
+That means the information of American citizens must be given to the IRS of the U.S. government, you have no choice
 
-**数据泄露**：2018年3月16日，Facebook 被曝在2014年有超过5000万名用户资料遭剑桥分析公司窃取分析并用来向用户发送政治广告，受此影响，Facebook股价19日出现了五年来的最大单日跌幅6.8%，20日再跌2.56%，Facebook两日市值蒸发500亿美元。
+另外一个，这是第一弊，第二弊是哪里呢
+Another one, this is the first disadvantage, where is the second disadvantage？
 
-在Twitter上有网友出现了反Facebook的声音，网友以“#DeleteFacebook”标签来号召用户删除Facebook 帐户资讯，也有不少网友真的将自己的Facebook帐户删除。
+就是在美国你想偷税，你要合法避税，你不能偷税了，这是两弊
+You want to evade tax in the United States, you need to avoid tax legally, and you can’t evade tax, this is the second disadvantage
 
-3月21日，Facebook创始人扎克伯格他在Facebook页面上发表声明，承认“犯了错”，宣布“要负责”。随后扎克伯格接受了CNN等媒体的采访。他公开道歉，后悔没有更及时地披露信息泄露事件，还表示愿意去国会作证。
+两利在哪里呀，天下唯一的会受西方政府最尊重的，
+Where are the two advantages? The only one in the world that will be most respected by the western government
 
-受到泄露风波影响，Facebook 2018年7月25日公布的当年第二季度财报显示，营收三年来首次逊于外界预期。日活跃用户环比增速创新低，欧洲用户两年来首次负增长，北美用户增长也陷入停滞。财报公布的当日Facebook股价大跌逾23%。2019年7月12日，Facebook为此事件和美国联邦贸易委员会和解，Facebook将缴纳50亿美元罚款.
+喜马拉雅KYC, 绝对是最高境界
+Himalaya’s KYC is definitely the highest level
 
-单方面屏蔽澳洲新闻，2021年2月18日，澳洲国会正式通过《新闻议价法》，使平台业者必须与新闻媒体拆分收益。这使得脸谱极为不满，宣布澳洲本地的用户将不得在脸谱平台上分享新闻内容。而澳洲新闻媒体对外发声的空间也被脸谱屏蔽。Facebook的锁国算法不仅全面下架了澳洲新闻媒体，就连各级政府的“灾难急救单位”、“家暴救援通报专页”，也都因为分类判断的算法误差，而被Facebook误判为“新闻媒体”无差别屏蔽下架，引发争议。
+这次咱就会成为No. 1中的No. 1
+This time we will become the ultimate winner
 
-社交媒体和一般的社会大众媒体最显著的不同是，让用户享有更多的选择权利和编辑能力——言论自由是社交媒体的关键。
+另外一个利在哪里呀，喜币会更加值钱
+Where is the other advantage? HCoin will be more valuable
 
-不只是Facebook, 还有推特，YouTube，Instagram等知名的社交媒体都采用了类似的手段打压言论自由。在病毒和疫苗灾难肆虐世界的今天，这些平台在封锁真相，对传播真相的账号进行审察或关闭。世界能容忍这样的社交媒体存在吗？不仅是川普总统，facebook, 推特，Instegram, Youtobe等这些伪社交媒体将会迎来大规模的民众公诉。
+因为这些国家看了你的KYC, 看到你的结构，稳定币、法币
+because these countries look at the KYC, review the structure, stable currency, fiat currency
 
-就在2021年7月4日美国独立日这天，一个以象征自由的火炬为LOGO的新社交媒体诞生了，盖特的出现会打破社交媒体被垄断的局面。创始人郭文贵先生说盖特的用户绝对不会因政治观点而被禁言，用户资料永远不会被泄露，用户背景不会被审察，它将是一个自由开放面向世界的社交平台。仅上线三天用户就达一百多万，创造了人类的奇迹。还有GTV，Gnews等其他平台也会秉承同样的规则，这些自由的社交媒体的将会对Facebook等不尊重言论自由的社交媒体的致命打击。
+而且是中心化的行政管理去中心化的技术，它放心了
+And it’s a decentralized technology for centralized administrative management, so they can be ease
 
-参考资料：
+这些国家就会全面接受，那会“噌”地一下价格像窜天猴一样就上去了
+These countries will fully accept it, and the price will soar like the rocket
 
-[维基百科](https://zh.wikipedia.org/wiki/%E5%B0%8DFacebook%E7%9A%84%E6%89%B9%E8%A9%95)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
+* * *
+
+Date:12/02/2021
+原视频标题: 美国对数字货币监管的两弊两利
+Two disadvantages and two advantages of U.S. regulation of digital currency
+原视频日期：2021/12/01
+原视频链接[https://gettr.com/post/pihods9442](https://gettr.com/post/pihods9442)
+任务编号：KC304（3082）
+视频时间段 : 0:00-2:15
+中听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
