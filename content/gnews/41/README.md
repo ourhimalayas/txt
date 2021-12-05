@@ -2,31 +2,36 @@
 ---
 
 
-## 2021/12/05 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1721997/)
+## 若美降低对中关税，中共国民众将遭受更大剥削
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1721417/)
 
-1. 12月3日，辽宁丹东一居民用燃气自杀引发爆炸，已致1死2伤。
-2. 12月2日，河北石家庄。一轿车凌晨多次横冲夜市，撞翻多辆小吃摊位。
-3. 12月2日，成都一楼盘降价销售，业主买房后一周亏损53万。项目方遭到业主维权。
-4. 国内经济极度萧条，深圳夜市排档一条街冷冷清清，只有商家没有顾客，日子都很难过。
-5. 12月3日，重庆一高楼起火，浓烟滚滚。
-6. 12月3日，广东揭西。一废品站突发火灾浓烟滚滚，方圆几公里可见！
-7. 陕西小伙手机卡突然被停用，服务终止，扣费不断。客服：来北京才能解决。
-8. 家长越来越难当了。家长被学校要求接孩子前必须背诵中共党中央宣传的24字社会主义核心价值观。
-9. 12月1日，河南安阳。女子下班回家发现狗狗正在惬意的晒太阳，原本以为自己上班累的跟条狗一样，“回到家发现原来还不如一条狗” – 墙内年轻人的普遍感受。
-10. 河南南阳，3村民举报企业污染被判“敲诈”，获有期徒刑3年，缓刑3年。
-11. 2021年6月21日，经法院重审认定3人的行为不构成犯罪。3人申请国家赔偿5348万元被驳回。
+作者：纽约香草山教育部 – Noemi
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月4日，文贵先生在大直播中爆料，美联储及美国财政部为稳定国内消费市场，将要降低对中共国的部分关税，从而使美国民众继续保持高工资、低通胀，涨缩平衡的高质量生活水平。但这对于中共国的普通民众而言，无疑是一次更为残酷的剥削。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide1-6.jpeg)
 
-* * *
+据文贵先生称，当下美国的老牌金融家们几乎无一例外地反对数字货币，这是因为数字货币终将会取代传统纸币并颠覆整个世界金融，而他们同样也将会被新一代的金融家所取代。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+为延迟这一天的到来，除却继续印钞以维持股票市场的虚假繁荣外，降低关税、降低成本、恢复供应链以保障自身消费市场的正常运行也是他们所能做出的唯一选择。但是，在美国通胀率降低的背后，却是中共国民众以更多的血汗劳动力换取到更高的通货膨胀率的事实。
 
+文贵先生说，1900年以来最大的一次金融危机一定会发生，连接于中美之间的港币一定会被消灭。数字货币终将成为全人类的未来，也将是所有人在这次金融危机中逃生的唯一希望。
 
-编辑：【英国伦敦喜庄园编辑部】
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+参考链接：[2021年12月03日 文贵大直播](https://gtv.org/video/id=61aa1cecd6388d55041591e6)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
+
+总编：木白
+编辑：文特
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

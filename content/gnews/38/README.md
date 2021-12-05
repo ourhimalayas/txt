@@ -2,42 +2,31 @@
 ---
 
 
-## 美英加日等国拒绝签署联大冬奥会停战协议
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1722103/)
+## 2021/12/05 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1721997/)
 
-作者：纽约香草山文艺部 – 宁文静
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
-
-12月2日，第76届联合国大会通过了北京冬奥会奥林匹克休战决议。美国、英国、澳大利亚、加拿大、印度、日本等国家拒绝在决议上签字。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-05-at-9.13.13-PM.png)
-除了朝鲜和以色列按惯例不参与之外，在联合国193个成员国中，有包括美、英、澳、加等18个国家没有签署该协议。据悉，不愿签署的原因是“不满中共国在人权方面的问题”。另有消息人士透露，美国政府最早可能会在下周宣布对北京冬奥会进行某种形式的外交抵制；而澳大利亚总理莫里森3号在回答记者提问时称“正在权衡”类似举措。
-
-“奥林匹克休战”是奥委会根据古希腊神圣休战传统而发起的一项和平运动，1993年在联合国大会上通过休战决议，此后。由夏冬季奥运会主办国向联大提交。此次中共国遭遇越来越强烈的外交或全面抵制，在冬季奥运会的历史上尚属首次。
-
-参考链接：
-
-1. [联大通过北京冬奥会休战决议，美澳印日等不签](https://m.sohu.com/a/505420607_115479?scm=1007.81.295001.0.0&amp;spm=smwp.home.fd-headline.4.1638650925994VSHGJ1g)
-2. [联大通过北京冬奥会休战决议美澳印日等不签](https://www.guancha.cn/internation/2021_12_04_617229.shtml)
-3. [抗議中國人權劣跡 20國拒簽奧運休戰協議](https://www.cna.com.tw/news/firstnews/202112030386.aspx)
+1. 12月3日，辽宁丹东一居民用燃气自杀引发爆炸，已致1死2伤。
+2. 12月2日，河北石家庄。一轿车凌晨多次横冲夜市，撞翻多辆小吃摊位。
+3. 12月2日，成都一楼盘降价销售，业主买房后一周亏损53万。项目方遭到业主维权。
+4. 国内经济极度萧条，深圳夜市排档一条街冷冷清清，只有商家没有顾客，日子都很难过。
+5. 12月3日，重庆一高楼起火，浓烟滚滚。
+6. 12月3日，广东揭西。一废品站突发火灾浓烟滚滚，方圆几公里可见！
+7. 陕西小伙手机卡突然被停用，服务终止，扣费不断。客服：来北京才能解决。
+8. 家长越来越难当了。家长被学校要求接孩子前必须背诵中共党中央宣传的24字社会主义核心价值观。
+9. 12月1日，河南安阳。女子下班回家发现狗狗正在惬意的晒太阳，原本以为自己上班累的跟条狗一样，“回到家发现原来还不如一条狗” – 墙内年轻人的普遍感受。
+10. 河南南阳，3村民举报企业污染被判“敲诈”，获有期徒刑3年，缓刑3年。
+11. 2021年6月21日，经法院重审认定3人的行为不构成犯罪。3人申请国家赔偿5348万元被驳回。
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
+* * *
 
-编辑/总编：正义的小新 
-校正/发稿：我不在这里
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+编辑：【英国伦敦喜庄园编辑部】
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

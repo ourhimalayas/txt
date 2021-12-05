@@ -2,15 +2,28 @@
 ---
 
 
-## 【#G时新闻】布林肯：任何中共国入侵台湾之举将有“可怕后果”
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/1722924/)
+## GTV新闻访谈简报|2021年12月5日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1723041/)
 
-**加拿大温哥华扬帆农场** 播报：悠然 制作：kent
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-73.jpeg)
 
-美国务卿布林肯12月3号表示：中共国一直企图改变台湾现状，如果中共国采取任何入侵台湾的举动，都将造成可怕后果，希望中共领导人不要在台湾海峡引发危机。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-1-1.png)
+文章仅代表作者本人观点，与Gnews无关
 
-盖特链接：[https://gettr.com/post/piou4k7705](https://gettr.com/post/piou4k7705)
-编辑/上传：七觉花
+视频参看：[2021.12.05早GTV新闻访谈](https://gtv.org/video/id=61acbe4fbbd75f62e52f8eae)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-1.png)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

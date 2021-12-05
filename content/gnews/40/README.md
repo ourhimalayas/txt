@@ -2,34 +2,26 @@
 ---
 
 
-## “HCoin To the Moon” 获多项iTunes排行榜第一
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1722101/)
+## 郭先生爆料中共与俄罗斯密谋同时发动侵略战争
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1721422/)
 
-作者：纽约香草山农场 文真
-
+作者：东京樱花团 – 在远方
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+近日，郭先生在GTV和盖特两个平台的直播，向全世界提前预警了中共与俄罗斯的重大阴谋，即准备同时发起两场战争——在中共侵略台湾的同时，俄罗斯进攻乌克兰，以便于让美国无暇应付两场战争。
 
-歌曲 “HCoin To the Moon” 在iTunes排行榜已经获得多项第一。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-05-at-9.09.46-PM.png)
-截至12月4日，“HCoin To the Moon” 在香港，新加坡，老挝，澳门，柬埔寨，蒙古iTunes 总榜排名第一；在香港，新加坡，美国，阿联酋，台湾，新西兰，马来西亚，波兰，加拿大，西班牙，越南，爱尔兰，澳大利亚，匈牙利，iTunes 摇滚榜单排名第一；同时，在香港，新加坡，台湾，马来西亚，新西兰，匈牙利，芬兰的iTunes 嘻哈榜单排名第一。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide2-4.jpeg)
 
-“音乐灭共” 再次向世界展示了新中国联邦的实力，和新中国联邦人的团结，并且以独特的方式为喜币上市助力，打响了喜币在国际市场上的知名度。
+当地时间12月3日，乌克兰国防部长雷兹尼科夫告知国会，目前俄罗斯在乌克兰边境集结了多达94300人的部队。他表示乌克兰情报部门经过分析，认为俄罗斯存在军事行动大规模升级的可能性，时间有可能是1月底。另据美国媒体报道，预计明年1月初，俄罗斯在乌克兰边境将会增兵至17万5千人。
 
-参考链接：
+郭先生在近期的大直播中曾爆料称，当前随着全世界对北京奥运会的抵制问题，如果习近平发现原定于2月4日开幕的冬奥会开不成了，就一定会下令攻打台湾。
 
-1. [12月4号 Hcoin To The Moon 打榜记录（一）](https://gettr.com/post/pipfkj9cef)
-2. [12月4号 Hcoin To The Moon 打榜记录（二）](https://gettr.com/post/piqo7g77d5)
-3. [12月4号 Hcoin To The Moon 打榜记录（三）](https://gettr.com/post/piqeviff3a)
-4. [12月4号 Hcoin To The Moon 打榜记录（四）](https://gettr.com/post/piqwrn4802)
-5. [12月4号 Hcoin To The Moon 打榜记录（五）](https://gettr.com/post/piq5jrf7c6)
-6. [HCoin To the Moon iTunes排行榜最新更新](https://gnews.org/zh-hans/1720300/)
+参考链接：[预计俄罗斯将于1月下旬对乌克兰发动大规模袭击](https://gettr.com/post/pip7883eda)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
-
-总编：正义的小新
-编辑：Ivy001
-校正/发稿：我不在这里
+总编：Ivy001
+编辑：文特
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -37,8 +29,8 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
 
  
 

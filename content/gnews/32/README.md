@@ -2,93 +2,37 @@
 ---
 
 
-## 在疫苗灾难翻转之前 想尽一切办法活下去
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1722452/)
+## 银河快讯: 日本将导弹射程扩大到上海；执政党关于财产税特例谈判陷入僵局
+` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1722565/)
 
-[https://gtv.org/video/id=61aca14487fa7e74c92b95fd](https://gtv.org/video/id=61aca14487fa7e74c92b95fd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-22.png)[图片来源](https://news.yahoo.co.jp/)
+**1.****日本将导弹射程扩大到朝鲜半岛和上海**
 
-**郭文贵
-Miles Guo**
+[据朝鲜日报12月4日报道，日本政府正计划将其目前正在开发的巡航导弹的射程扩大到1,000公里以上。  这背后的逻辑是为了加强对来自朝鲜、中共国和其他国家威胁的威慑，但有人指出，这将违反专守防卫原则。日本在第二次世界大战中战败后，宪法规定，在外国势力发动武装进攻的情况下，日本将只使用最低限度的防御力量。 然而，由首相岸田文雄领导的执政的自民党热衷于修改这一法律，因为它提出了一项将国防开支增加到至少占GDP2%的计划。国防部计划将12型地对舰导弹的射程提高到1000公里以上，这是三菱重工正在开发的一种巡航导弹，并在2020年末之前部署。 日本目前的巡航导弹舰队的射程约为100公里。](https://news.yahoo.co.jp/articles/4a5064f72321e6289ecf3cd5019ca6fe35adcc67)
 
-我很乐观的是一两个月，我认为疫苗灾难一定会停
-I am very optimistic for one or two months, I think the vaccine disaster will definitely stop
+**2.****执政党关于财产税特例的谈判陷入僵局**
 
-咱们就在4周前，美国法官是否要裁定这周不准强制医生打疫苗的事情上
-Just at 4 weeks ago, whether the American judge was going to rule that doctors were not allowed to do vaccine mandate this week
+[据读卖新闻12月4日报道，自民党和公明党之间关于财产税特别措施的谈判正在进入最后阶段，如果税额增加，将保持与2020财年相同的数额。 由于企业收益的恢复，自民党希望在21年结束特例，而公明党则表示，结束这一规定将使企业的税收负担每年增加多达1100亿日元。财产税是对住宅和商业区的土地和建筑物征收的。 政府已经决定，如果由于疫情，土地的财产税与20年相比有所增加，那么将减少1%的税收。 自民党在周三表示，它将每三年审查一次评估。](https://news.yahoo.co.jp/articles/b5d7dbe3b037440c124473b0d6fe17615b7ab882)
 
-当时是所有的反馈90%概率是不可能
-At that time, 90% probability of all feedback is impossible
+**3.****日本政府要求航空公司每日报告国际航班的预订情况**
 
-但是就接着三天检察官、联邦法官全部颁发出来
-But in the next three days, prosecutors and federal judges all issued bans
+[据共同社 12月4日报道，国土交通省已要求航空公司每天提交抵达日本的国际航班的航班号和预订人数的最新数据，以配合加强针对中共状病毒的新变种–Omicron毒株的措施。 该请求涵盖了到明年1月31日的预订情况。政府已经在全球范围内禁止新的外国公民进入该国，将每天允许进入该国的人数从5000人降低到3500人。](https://news.yahoo.co.jp/articles/1f13d9cb6e0498e0039880a2e26fd2e79e9f2c33)
 
-这对今天的美国来讲情势已经天覆地转了，包括消防员、警察拒绝
-For today’s America, the situation has turned upside down, including firefighters and policemen refused vaccine mandate
+**4.****飞机燃油税减免将被减少**
 
-你看看世界上谁最勇敢，你看哪个国家最强大，美国人
-You look at who is the bravest people in the world, which country is the strongest, is the Americans
+[据NNN 12月4日报道，政府已决定将航空燃油税减免计划延长至明年年底，但减少减税规模。航空燃料税是对国内航班使用的燃料征收的。 自今年4月起，为了支持因疫情而导致业绩恶化的航空公司，该税款已被削减至每千升9000日元，是前一年的一半。 然而，政府已决定将价格提高到每千升13,000日元，延长一年至2022年度结束。](https://news.yahoo.co.jp/articles/c69f69fe1aeaa86e31a16518cf8b6bb2f49b1189)
 
-到目前为止在全世界最勇敢的，行动最多还是美国，包括法律上
-Until now the bravest and most action in the world is the United States, including in the area of law
+**5.****日本建立基金吸引海外的半导体工厂**
 
-然后你看这个新兴强大之国澳大利亚，最极端的、最混蛋的
-Then you look at this newly powerful country Australia, the most extreme and the most asshole country
+[据读卖新闻 12月4日报道，为了鼓励海外半导体公司在日本进行资本投资，日本政府决定修改相关法律，设立一个基金，向被批准的公司提供支持，帮助他们在日本建立工厂。 岸田内阁致力于加强经济安全，旨在确保半导体的供应。这些修正案将对《促进使用特定先进信息和通信技术的系统开发和供应法》和《新能源和工业技术开发组织法》进行修订。 内阁将很快批准修订后的法案，并将其提交给将于6日召开的特别国会会议。 在本年度的补充预算中，总共有6170亿日元被指定用于这一目的。](https://news.yahoo.co.jp/articles/809ddb9ae61012364936142817c51aec94ac20af)
 
-但是行动力老百姓是最强的，很可悲啊
-But Laobaixing there are the strongest in mobility which is very sad
+**6.****日本将更严格的检疫规则扩大到印度、希腊、罗马尼亚**
 
-德国这个国家是个极端的民族，极端的国家
-Germany is an extreme nation, an extreme country
+[据共同社 12月4日报道，来自印度、希腊和罗马尼亚以及美国的科罗拉多州、夏威夷、明尼苏达州和纽约的日本国民和外国居民将被要求在政府指定的设施中度过为期两周的检疫期中的3天。包括奥地利、厄瓜多尔和法国在内的一些国家已经实行了同样的三天规则，还有几十个国家正在接受更严格的检疫要求，例如让旅行者在政府指定的设施中停留10天。](https://english.kyodonews.net/news/2021/12/c80e78283336-japan-expands-tougher-quarantine-rules-to-india-greece-romania.html)
 
-不是最好的东西生产出来，就是极端的灾难
-Either the best thing is produced, or it’s an extreme disaster
-
-历史一战二战到现在都是，包括跟共产党的关系
-from the history of World War I and World War II up to now, including the relationship with the Communist Party
-
-现在德国在走向另外一个极端，德国的政客之流氓你无法想象
-Now Germany is going to the other extreme, you can’t imagine the gangsters of German politicians
-
-我们这个公关公司最不想接的活儿，就是公关德国
-The least job that our PR company wants to take is doing PR in Germany
-
-再一个就是意大利，说意大利人就不可信，撒谎，他说一帮骗子
-The other one is Italy, saying that Italians are untrustworthy, they lie and he said that Italians are a bunch of scammers
-
-再一个就是德国人，他说就是一帮完全自私的、傲慢的、愚蠢的家伙
-The other one is the German, he said that they are a bunch of completely selfish, arrogant, stupid guys
-
-你看到了，你看，新上任的总统就你看明白了总理
-You have seen it, look at that new prime minister
-
-就这个样，是吧？这都是好朋友，但是我认为你一定要相信
-That’s it, right? These are all good friends, but I think you must believe
-
-现在跟我们站在一起的不是我们，它是全人类上有智慧的、有能力的、有行动力的人的共同需要
-It’s not just ourselves, it is the common need of all mankind who are wise, capable and actionable standing with us now
-
-我相信很快会逆转的，但在这之前你得想办法活下去
-I believe it will be reversed soon, but before that you have to find a way to survive
-
-* * *
-
-Date:12/05/2021
-原视频标题: 在疫苗灾难翻转之前 想尽一切办法活下去
-Do everything possible to survive before the vaccine disaster overturn
-原视频日期：2021/12/03
-原视频链接[https://gettr.com/post/pip15q5d9d](https://gettr.com/post/pip15q5d9d)
-任务编号：3110
-视频时间段 : 0:00-1:51
-中听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+【日本银河系农场-阿尔法星球】
+作者：Totoro
+校对：Windfish
 
  
 

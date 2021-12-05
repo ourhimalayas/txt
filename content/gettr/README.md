@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/5/2021 4:52 PM (UTC)`
+
+Hcoin To The Moon <br/>iTunes Ranking No. 1 🥇<br/>iTunes 打榜第一名🥇<br/>🎉🎉🎉🎉🎉🎉🎉
+![img](https://media.gettr.com/group46/getter/2021/12/05/16/42d05adf-34e1-eb6d-98f6-1ad4ef56e765/out.jpg)
+
+---
+
 `@miles 12/5/2021 1:00 PM (UTC)`
 
 2021年12月05日 文贵大直播：全球数字货币市场改观；亚洲政治军事形势大变；恒大地产与美金融市场；喜币近况与未来的意义
@@ -145,15 +152,6 @@
 
 2021年12月03日 文贵大直播：各国疫苗政策近况；亚洲变异病毒进展；美国世界经济变化；喜数字银行及投资
 ![img](https://media.gettr.com/group42/origin/2021/12/03/12/c87a23dc-61ec-43ed-17e9-1103c6eecc08/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@gmusic 12/2/2021 11:35 PM (UTC)`
-
-扫描二维码，全方位下载新歌！<br/>《Hcoin to the moon》！<br/><br/>iTunes，Apple Music，Spotify，deezer，TIDAL，Amazon！<br/> <br/>Apple Music：<br/>https://music.apple.com/au/album/hcoin-to-the-moon-single/1592902212<br/><br/>Spotify：<br/>https://open.spotify.com/track/6KulvDaScetXfNSlCDQEPH?autoplay=true<br/><br/>YouTube：<br/>https://music.youtube.com/playlist?list=OLAK5uy_lrqEcUy_X8rZAs5VjK-HTFvekQTZkvk7E<br/><br/>amazon：<br/>https://www.amazon.com/gp/product/B09KQWL7HG/?tag=distrokid06-20<br/><br/>Deezer，TIDAL：<br/>https://gyro.to/HcoinToTheMoonKaraokeVersion
-![img](https://media.gettr.com/group29/origin/2021/12/02/23/ed17a17d-c47e-0767-ce9f-05b39d63990d/4341879f649384ed1e3eab070201e474.jpeg)
 
 ---
 

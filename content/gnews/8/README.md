@@ -2,28 +2,22 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月5日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1723041/)
+## 最新统计数据显示，接种疫苗造成的人为灾难远大于瘟疫本身
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1723073/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-73.jpeg)
+**翻译：意翎   **
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-1-1.png)
-文章仅代表作者本人观点，与Gnews无关
+**责编：白夜**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-238.png)[图片来源](https://gettr.com/post/pis7x62a2b)
+The Expose报道，根据苏格兰公共卫生局（PHS）每周发布关于中共病毒COVID-19统计数据的报告，追溯14周的数据，证明这是一场由疫苗完全接种导致的瘟疫大流行。为什么全世界的政府都在相互配合侵犯与剥夺人民的基本人权？苏格兰官方数据显示，自今年8月以来，每10个病例中，完全接种疫苗的人占了6个；每10个住院病人中，有7个是完全接种者；每10个因病毒死亡的案例中，完全接种者占了9个。
 
-视频参看：[2021.12.05早GTV新闻访谈](https://gtv.org/video/id=61acbe4fbbd75f62e52f8eae)
+PHS每周发布的报告，其中包括按疫苗接种状况分列的病例、住院和死亡数据。根据PHS的几份报告，收集的数据制作的图表显示，在8月21日至9月17日期间，未接种疫苗人群占每周病例的大多数，然而从那以后，每周接种者的病例数越来越多，完全接种疫苗人群占每周病例的大多数。在10月16日开始的一周内，完全接种人群中的病例数量显著增加。8月21日至11月26日期间未接种人群中有2531人住院，接种人群中有6094人住院，是未接种人群的两倍多。更为惊人的数据显示，至少自8月14日以来，完全接种疫苗的人占据了Covid-19死亡的绝大部分。未接种人群只有59人死亡，而接种人群中有407人死亡。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+通过分析报告可以看到，苏格兰一直在经历一场“完全疫苗接种所致的瘟疫大流行”。然而针对一种被称为奥密克戎（Omicron）的新型Covid-19变异病毒，有关部门正在慢慢收紧英国公众脖子上的绳索，人们担心目前可用的Covid-19疫苗根本无法抵御这种病毒，几个月以来疫苗已被证明无效。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-1.png)
+数据证明，是完全接种疫苗的人群给医疗保健系统带来压力，而不是像当局和主流媒体让你相信的那样，由没有接种的人群所造成。新的限制措施与疫苗的有效性无关，而与当权者的控制欲有关，任何以保护为名实施的公众限制都与保护你的健康无关，相反，一切都与控制有关。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[原文链接](https://dailyexpose.uk/2021/12/03/fully-vaccinated-account-for-9-in-every-10-covid-19-deaths-since-august-according-to-latest-official-data/)
 
  
 
