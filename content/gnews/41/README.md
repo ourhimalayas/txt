@@ -2,44 +2,31 @@
 ---
 
 
-## “HCoin To the Moon” 获多项iTunes排行榜第一
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1722101/)
+## 2021/12/05 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1721997/)
 
-作者：纽约香草山农场 文真
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-歌曲 “HCoin To the Moon” 在iTunes排行榜已经获得多项第一。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-05-at-9.09.46-PM.png)
-截至12月4日，“HCoin To the Moon” 在香港，新加坡，老挝，澳门，柬埔寨，蒙古iTunes 总榜排名第一；在香港，新加坡，美国，阿联酋，台湾，新西兰，马来西亚，波兰，加拿大，西班牙，越南，爱尔兰，澳大利亚，匈牙利，iTunes 摇滚榜单排名第一；同时，在香港，新加坡，台湾，马来西亚，新西兰，匈牙利，芬兰的iTunes 嘻哈榜单排名第一。
-
-“音乐灭共” 再次向世界展示了新中国联邦的实力，和新中国联邦人的团结，并且以独特的方式为喜币上市助力，打响了喜币在国际市场上的知名度。
-
-参考链接：
-
-1. [12月4号 Hcoin To The Moon 打榜记录（一）](https://gettr.com/post/pipfkj9cef)
-2. [12月4号 Hcoin To The Moon 打榜记录（二）](https://gettr.com/post/piqo7g77d5)
-3. [12月4号 Hcoin To The Moon 打榜记录（三）](https://gettr.com/post/piqeviff3a)
-4. [12月4号 Hcoin To The Moon 打榜记录（四）](https://gettr.com/post/piqwrn4802)
-5. [12月4号 Hcoin To The Moon 打榜记录（五）](https://gettr.com/post/piq5jrf7c6)
-6. [HCoin To the Moon iTunes排行榜最新更新](https://gnews.org/zh-hans/1720300/)
+1. 12月3日，辽宁丹东一居民用燃气自杀引发爆炸，已致1死2伤。
+2. 12月2日，河北石家庄。一轿车凌晨多次横冲夜市，撞翻多辆小吃摊位。
+3. 12月2日，成都一楼盘降价销售，业主买房后一周亏损53万。项目方遭到业主维权。
+4. 国内经济极度萧条，深圳夜市排档一条街冷冷清清，只有商家没有顾客，日子都很难过。
+5. 12月3日，重庆一高楼起火，浓烟滚滚。
+6. 12月3日，广东揭西。一废品站突发火灾浓烟滚滚，方圆几公里可见！
+7. 陕西小伙手机卡突然被停用，服务终止，扣费不断。客服：来北京才能解决。
+8. 家长越来越难当了。家长被学校要求接孩子前必须背诵中共党中央宣传的24字社会主义核心价值观。
+9. 12月1日，河南安阳。女子下班回家发现狗狗正在惬意的晒太阳，原本以为自己上班累的跟条狗一样，“回到家发现原来还不如一条狗” – 墙内年轻人的普遍感受。
+10. 河南南阳，3村民举报企业污染被判“敲诈”，获有期徒刑3年，缓刑3年。
+11. 2021年6月21日，经法院重审认定3人的行为不构成犯罪。3人申请国家赔偿5348万元被驳回。
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
+* * *
 
-总编：正义的小新
-编辑：Ivy001
-校正/发稿：我不在这里
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+编辑：【英国伦敦喜庄园编辑部】
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

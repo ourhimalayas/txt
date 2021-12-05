@@ -2,31 +2,27 @@
 ---
 
 
-## 美英加日等国拒绝签署联大冬奥会停战协议
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1722103/)
+## 俄罗斯集结17.5万大军压境乌克兰
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1722102/)
 
-作者：纽约香草山文艺部 – 宁文静
+作者：纽约香草山农场 文真
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
+12月3日，美国媒体声称获得非保密性美国情报文件显示，俄罗斯在与乌克兰边境附近集结17.5万名士兵，正在为发起一次 “多线进攻”的入侵计划作准备。该报道证实了郭文贵先生两次在直播中的爆料，中共与俄罗斯合谋，计划同时进攻台湾和乌克兰。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-05-at-9.12.15-PM.png)
+包括了卫星图片的美国情报文件显示，俄罗斯军队在四个地方集结，调动涉及100个营级战术小组，约有17.5万人，其中，50个战术小组已经部署，还有新运抵的坦克和大炮。
 
+一位匿名官员说，俄罗斯计划在2022年初对乌克兰发动军事进攻，其集结部队的规模是去年春天，俄罗斯在乌克兰边境附近举行的快速军事演习的两倍。
 
-12月2日，第76届联合国大会通过了北京冬奥会奥林匹克休战决议。美国、英国、澳大利亚、加拿大、印度、日本等国家拒绝在决议上签字。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-05-at-9.13.13-PM.png)
-除了朝鲜和以色列按惯例不参与之外，在联合国193个成员国中，有包括美、英、澳、加等18个国家没有签署该协议。据悉，不愿签署的原因是“不满中共国在人权方面的问题”。另有消息人士透露，美国政府最早可能会在下周宣布对北京冬奥会进行某种形式的外交抵制；而澳大利亚总理莫里森3号在回答记者提问时称“正在权衡”类似举措。
+此前几天，美国务卿布林肯曾透露，有证据表明，俄罗斯制定了针对乌克兰采取重大侵略性行动的计划，布林肯警告俄罗斯，美国会实施新的制裁。周五，拜登政府表示正在准备严厉的措施，以应对任何可能的俄罗斯军事进攻。目前，有消息称拜登-普京的紧急线上峰会正在进行中。
 
-“奥林匹克休战”是奥委会根据古希腊神圣休战传统而发起的一项和平运动，1993年在联合国大会上通过休战决议，此后。由夏冬季奥运会主办国向联大提交。此次中共国遭遇越来越强烈的外交或全面抵制，在冬季奥运会的历史上尚属首次。
-
-参考链接：
-
-1. [联大通过北京冬奥会休战决议，美澳印日等不签](https://m.sohu.com/a/505420607_115479?scm=1007.81.295001.0.0&amp;spm=smwp.home.fd-headline.4.1638650925994VSHGJ1g)
-2. [联大通过北京冬奥会休战决议美澳印日等不签](https://www.guancha.cn/internation/2021_12_04_617229.shtml)
-3. [抗議中國人權劣跡 20國拒簽奧運休戰協議](https://www.cna.com.tw/news/firstnews/202112030386.aspx)
-
+参考链接：[Russia Preparing 175K Troops For Ukraine Offensive, US Intelligence Now Claims](https://www.zerohedge.com/geopolitical/russia-preparing-175k-troops-ukraine-offensive-us-intelligence-now-claims)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
 
-编辑/总编：正义的小新 
+总编：文特
+编辑：Jack Li文阳
 校正/发稿：我不在这里
 
 **更多资讯，更多关注**
