@@ -2,10 +2,10 @@
 ---
 
 
-## 史蒂夫·克什：中共病毒疫苗是人类所造最致命的疫苗
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1723196/)
+## 天空新闻：女网协会比国际奥委会更有种，敢于反对中共
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1723242/)
 
-11/23/2021 史蒂夫·克什称中共病毒疫苗是人类所造最致命的疫苗。政府和主流媒体正在剥夺美国的言论自由。
+12/02/2021 天空新闻主持人：女子网球协会比国际奥委会、迪斯尼或NBA的任何人都有种，敢于站出来反对中共
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
