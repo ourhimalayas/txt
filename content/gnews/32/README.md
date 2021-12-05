@@ -2,31 +2,32 @@
 ---
 
 
-## 安徽潜山交通事故：司机突发脑溢血致车辆失控
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1721217/)
+## 爱尔兰参院支持台湾并谴责中共侵害人权
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1721247/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Unknown-9.jpg)安徽潜山交通事故：司机突发脑溢血致车辆失控 网络图片
-据新浪新闻中心12月5日报道，12月2日，安徽省潜山市一中型客车与一自卸货车相撞，造成8人死亡、3人受伤。安庆及潜山市公安局在公安部、省公安厅的技术支持下，经现场勘查鉴定，认定该起事故发生的直接原因系中型客车驾驶员在驾驶过程中突发脑溢血、意识丧失，致使车辆失控、驶入对向车道，与自卸货车发生碰撞。
+作者：纽约香草山 医疗部 云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间12月1日，媒体消息报道称，爱尔兰参议院当天通过数项决议表示，将支持台湾参与国际组织，同时反对中共以武力侵略台湾并谴责中共对人权的侵害。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-05-上午10.45.12.png)
+据了解，这些决议由前副总理、现任参议员麦道威等共计17位参议员联合提出，当中要求爱尔兰政府持续坚定地支持台湾民众享有人身与政治自由，增进与台湾政府和人民的互动。同时，爱尔兰政府应拒绝任何企图妨碍爱尔兰国会议员与台湾政府和民众互动的不当干涉，并谴责所有试图阻挠台湾政府和民众参与国际组织或国际人道倡议的作为。
 
-一直担心狼来了，最终狼还是来了。全球强制推行新冠疫苗后，不断报道有驾驶员在行车途中突发脑溢血死亡，导致车辆失控，引发他人受伤、死亡的案例。甚至还有飞行员在高空突发心梗和脑梗的报道。一起两起事故可能归为偶然，但是随着类似的事故频频出现，不由得令人起疑：问题到底出在哪里？为什么大面积接种疫苗之后这类事故频频发生？这种实验性的疫苗是否真的能够抵抗病毒并且适合大面积接种甚至强行接种？
+提案联署人参议员威尔森表示，台湾与欧盟国家同为遵从民主、法治、自由、人权等普世价值的好伙伴，爱尔兰政府不应畏惧中共的压力，反之，更应保持与台湾的良好互动。
 
-病毒还没结束，疫苗灾难接踵而至，人类生存面临前所未有的挑战。人命关天，接种疫苗需小心，尤其是给孩子接种更要谨慎。
+参考链接：[愛爾蘭參院通過增進對台關係 批中國侵害人權](https://www.cna.com.tw/news/aipl/202112020018.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-新闻参考链接：[https://news.sina.com.cn/c/2021-12-05/doc-ikyakumx2087573.shtml](https://news.sina.com.cn/c/2021-12-05/doc-ikyakumx2087573.shtml)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-* * *
+总编：Irene木木
+编辑：AN
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

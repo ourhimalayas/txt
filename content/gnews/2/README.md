@@ -2,18 +2,18 @@
 ---
 
 
-## 英国卫生部长萨吉德：加强针的间隔将从6个月减半为3个月
-` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1721554/)
+## 【文贵先生大直播PPT】洗米华被捕事件加速港股下跌和权贵资本外逃
+` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1721719/)
 
-英国下议院、卫生和社会事务大臣说：他们在最后一个小时公布了建议。 首先，它建议加强针的注射间隔应从没六个月减半至每三个月一次。
+撰稿：泰山，Nine Lee
+PPT美化：Bobby （文俊），sotres
+文案终审：三票先生，顽童先生
 
-其次，应扩大加强针计划以包括所有18岁及以上的成年人。
+【2021年12月1日文贵先生大直播PPT洗米华被捕事件加速港股下跌和权贵资本外逃】
+![](https://assets.gnews.org/wp-content/uploads/2021/12/paa.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/pb.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/pc.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/pd.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/pe.jpg)
+* * *
 
-第三，应按年龄组降序提供这些加强针，以保护最容易感染病毒的人。 因此，将优先考虑老年人和16岁以上的高风险人群。
-
-第四，16岁或以上接受过三剂初级疫苗的有严重免疫抑制的人现在也应该被提供加强针。 最后，12至15岁的儿童应在第一剂的12周后接种第二剂。
-
-我已经完全接受了这个建议，这个新的变种是进攻性的。 这些措施将更快地保护更多人，并使我们作为一个国家得到更好的保护。
+发稿：abbs
 
  
 

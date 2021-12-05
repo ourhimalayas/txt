@@ -2,26 +2,33 @@
 ---
 
 
-## 专家质疑中国的实际人口可能比统计数据更低
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1721187/)
+## GTV新闻访谈简报|2021年12月4日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1721245/)
 
-#### 翻译：Steven Hu
+作者：香草山翻译部
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-194.png)图片来源：谷歌图片
-据《路透社》12月4日报道，中国可能低估了其人口萎缩的速度，而其最近为提高出生率而推出的三孩家庭的政策成功的机会很小。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-109-1280x172-1-2-1.jpg)
 
-威斯康星大学妇产科高级科学家易富贤（Fuxian Yi）说，他估计中国2020年人口为12.8亿，而不是人口普查报告的14.1亿，生育率低于报告。他认为自2018年以来，中国人口一直在减少。
 
-由于出生率急剧下降，中国经济增长放缓，引发了人们对支持老年人工作所带来的潜在挑战的担忧。为了避免这些风险，北京被迫于 2016 年取消了执行数十年的一胎化政策，容许生二胎。 但由于在中国城市养育孩子的成本高昂，该政策并无成效，继而在五月份宣布了更宽松的三孩政策。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1204text-SC-1.png)
 
-作家兼记者莱诺拉.朱（ Lenora Chu）表示，中国的高昂教育成本和通过高考来攀登高等教育阶梯的所带来的心理压力是一个挑战。  “这就是为什么这些计划生育政策必须与教育改革政策相结合的部分原因。否则只能让父母更不想生孩子”。
 
-最近的国家数据显示，2020 年中国的生育率仅为每名妇女 1.3 个孩子，与日本和意大利等老龄化社会相当，远低于正常换代所需的约2.1 。而易估计，真实的生育率要远远低于这个数据，因为这并没有将少数民族不受一孩政策的影响计算在内。
+校对：Stay文苑
 
-易说，地方政府为获取更多补贴，包括从中央政府获得教育费而虚报了人口，他说，由于登记出生会获得 20 多项社会福利，一些家庭正在利用黑市在线购买第二份出生证明。
+编辑：Stay文苑
 
-[原文链接](https://news.yahoo.com/researcher-questions-chinas-population-data-190042639.html)
+发稿：Stay文苑
+
+视频参看：[12.4  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61ac15bdbbd75f62e52f1cb2)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-69.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
