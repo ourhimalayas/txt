@@ -2,29 +2,40 @@
 ---
 
 
-## 恒大宣布无法履行担保义务 违约开始
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1717802/)
+## 中共以国安措施掩盖真实疫苗灾难
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1717995/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Unknown-7.jpg)恒大宣布无法履行担保义务 违约开始 网络图片
-据网易新闻12月3日报道，陷入流动性危机挣扎近半年后，恒大地产集团3日发布公告称，“鉴于目前的流动性情况，本集团不确定是否拥有重组资金继续履行财务责任。”恒大集团负债共约两万亿元，其中包括192.36亿美元未到期的美元债。
+作者：纽约香草山农场 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月3日，郭文贵先生在直播中转达了国内某医学人士冒着生命危险传递出的中共国疫苗灾难的真实情形。
 
-恒大违约直至倒闭，这是瓜熟蒂落的结局。寿数到了，强撑也撑不住，何况中共已经没有能力再继续支撑。恒大倒下之后，带给中共国和世界经济的灾难，不可预料，且拭目以待。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide1-4.jpeg)
 
-新闻参考链接：[https://c.m.163.com/news/a/GQARNBSR0539AP40.html?spss=newsapp](https://c.m.163.com/news/a/GQARNBSR0539AP40.html?spss=newsapp)
+据这位爆料人透露，中共在各省、市、地区的医院内24小时派驻警察，以国安手段严密控制因接种新冠疫苗导致死亡和突发性疾病的相关信息泄露。
 
-* * *
+在这位爆料人已知的范围内，墙内因新冠疫苗死亡的人数已达七万余人，且墙内的新冠疫苗致死率估计至少是台湾的1000至1500倍。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+爆料人提到，中共国内出现新冠疫苗后遗症反应最多的是老年人，他们的症状主要是突发性的多种癌症。然而，中共竟以环境污染导致癌症为由，愚弄、欺骗墙内民众，以此掩盖新冠疫苗的危害。另外，新冠疫苗导致突然死亡的案例多数来自中青壮年。同时，墙内女性子宫癌、卵巢癌、胸腺癌的病例数也成几百倍地增长。
 
+这位爆料人提及的最重要的信息为，中共正在给幼儿园儿童强制注射新冠疫苗，这将导致无法避免的疫苗灾难。其原因在于，但凡接种过新冠疫苗的孩子，他们身上的细胞会变异并迅速早熟，其速度是过去的很多倍。因此，即使这些接种儿童不出现死亡案例，他们最终也会患有肿瘤类疾病。
 
-编辑：【英国伦敦喜庄园编辑部】
+郭先生解释，墙内孩子躲避新冠疫苗灾难的唯一方式就是不上学，尽一切可能不接种新冠疫苗。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+参考链接：[2021年12月03日 文贵大直播](https://gtv.org/video/id=61aa1cecd6388d55041591e6)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
 
+总编：Irene木木
+编辑：Irene木木
+校正/发稿：谐趣园
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
