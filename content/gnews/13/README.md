@@ -2,50 +2,24 @@
 ---
 
 
-## 【Michael.Tonny专栏】澳洲TGA临时批准对5-11岁儿童打疫苗 这是公然杀戮！(上)
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1723176/)
+## 爆料革命从刘志华案件开始起
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1723243/)
 
-作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
-2021年12月5日，澳大利亚TGA临时批准了针对230万5至11岁儿童的中共病毒（COVID-19）疫苗，该疫苗由Pfizer/BioNTech生产，Pfizer/BioNTech生产的疫苗品牌叫做Comirnaty。这是一个疯狂的举动！
+我们爆料革命从刘志华案件开始起都在改变共产党。你们忽视掉了七哥和刘志华那场战争你就太不了解七哥了。
 
-根据澳大利亚TGA(The Therapeutic Goods Administration，中文：治疗用品管理局)的陈述，5-11岁的儿童分两次接种疫苗，中间至少间隔3周，这一年龄段儿童注射的剂量是12岁及以上的人剂量的1/3（10mg），瓶盖为橙色。根据 ATAGI（Australian Technical Advisory Group on Immunisation，中文：免疫技术咨询小组）的建议，预计5至11岁儿童的疫苗接种计划将于2022年1月10日开始。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/r0_310_4500_2850_w1200_h678_fmax.jpg)
-澳大利亚卫生部长格雷格亨特
+**【郭先生直播摘要】2021.12.1 爆料革命从刘志华案件开始起**
 
-TGA同时强调，最常见的不良反应是注射部位疼痛或者疲劳、头痛、注射部位红肿、肌肉疼痛和发冷。当然，TGA隐瞒了疫苗更多的严重副作用。
+**郭先生：**
 
-TGA决定临时批准该疫苗的决定是根据澳大利亚疫苗咨询委员会 (the Advisory Committee on Vaccines，ACV)的建议作出的。
+我们爆料革命从刘志华案件开始起都在改变共产党。你们忽视(掉)了七哥和刘志华那场战争，你就太不了解七哥了。 (七哥)是共产党建国以来第一个， 个人挑战这个组织的，而且巧妙的挑战完这个组织，三千多个人被干掉以后，七哥还是享受常委级的待遇，几十个警车、架着长枪走到全中国任何地方都是特保. 特保啊！谁享受过？只有七哥，而且七哥能全身而退，你懂得共产党的规则你才能明白，所以现在共产党，不服七哥的有几个呀。 他除非他是胡说八道， 他只要但凡有一点(脑子)。 你想想习近平， 在中东的国家领导人访问的时候，站在那块等的时候，是吧？
 
-澳大利亚免疫技术咨询小组 （Australian Technical Advisory Group on Immunisation ，ATAGI）将向政府提供关于向该年龄组推出 COMIRNATY 的进一步建议 。
+他(习)问那个姓倪的，阿布扎比的, 姓倪的，倪大使， 还有外交部长的程国华。程国华，你怎么看郭文贵呀？是吧！然后程国华说这小子是犯罪份子。 (习)看一下姓倪的，姓倪的说他是犯罪分子， 习没吱声。你想习能在这两人面前问郭文贵是啥人，他(习)这么大个人物，如果郭文贵不是个人(物)，(习)能问(我是啥人)吗？美国某代表团见了习以后，然后都坐下来聊天，他(习)说我知道你啊，你和郭文贵认识。这个美国人说，谢谢你还记得。他(习)说我们俩以前见过面，当时是郭文贵在场，还有当时的李源潮，我非常清楚啊！今天(我们)老朋友(又)见面了。这个人（美国朋友）原来是支持台湾的，后来到北京去见面，跟习见面，跟李源潮我在场，是吧？
 
-ACV是根据1990年生效的澳大利亚治疗用品（the Therapeutic Goods Regulations 1990）条例第39F条设立的，其成员由澳大利亚卫生部长任命，成员包括在特定科学、临床医学领域或消费者健康问题方面具有专业知识的专业人士。
+这个美国人很惊讶习的记忆力那么好，都谈完了，官方废话完了，都离开。习说：欸，停停停，(我的)老朋友，咱俩再聊几句，郭文贵在美国你觉得安全吗？这个人（美国朋友）说你是什么意思？你是要把他弄回来呢？还是要杀掉(他)呢？习说：我们没有杀他的意思，但是我们确实要尝试要把他弄回来。这个美国朋友说你弄不回去，因为郭文贵现在已经不是你中国的郭文贵，（他）已经是世界的郭文贵了，习点点头。
 
-ACV专就在澳大利亚供应的疫苗安全性、质量和有效性相关问题向卫生部长和TGA提供独立的医学专业建议，包括上市前评估、上市后监测和在国家免疫计划中安全使用。
+他(美国朋友)说你们会不会想办法在美国刺杀他，习说绝对不会的，他（美国朋友）说那你们还想什么？他（习）说你觉得郭文贵他会愿意回到中国吗？我请问你这句话或者你本人跟他聊聊，这个人（美国朋友）说他不会的我来之前见过郭文贵，习说这个人对我们的了解啊，是很深刻的，这个人现在闹腾的事情影响很大，希望他好自为之。你尽量帮帮他吧，你可以直接和我秘书联系，(习)告诉秘书把他（美国朋友）电话直接留下来。（习秘书）直接可以跟你（美国朋友）联系。这是2017年年底(的事)。
 
-ACV现任主席是由阿尔弗雷德健康（Alfred Health）感染预防和保健流行病学（Infection Prevention and Healthcare Epidemiology）主任、莫纳什大学（Monash University）流行病学和预防医学系（the Department of Epidemiology and Preventative Medicine）教授，以及孟席斯健康研究学院（the Menzies School of Health Research）名誉高级研究员Allen Cheng担任。Allen Cheng同时担任澳大利亚免疫技术咨询小组 (ATAGI) 的主席。
-
-参考资料：
-
-[Australia to wait for data from US children before clearing vaccine here](https://www.smh.com.au/national/australia-to-wait-for-data-from-us-children-before-clearing-vaccine-here-20211109-p597e2.html)
-
-[Pfizers covid-19 vaccine comirnaty provisionally approved use individuals 5 years and over](https://www.tga.gov.au/media-release/pfizers-covid-19-vaccine-comirnaty-provisionally-approved-use-individuals-5-years-and-over)
-
-[the Advisory Committee on Vaccines，ACV](https://www.tga.gov.au/committee/advisory-committee-vaccines-acv)
-
-[COVID-19 vaccines for Australians aged five to 11 set to start next month](https://www.canberratimes.com.au/story/7537920/peace-of-mind-for-parents-covid-vaccines-for-kids-set-to-start-in-january/)
-
-[Huge new study shows ZERO Covid deaths of healthy German kids over 4 or adolescents](https://alexberenson.substack.com/p/huge-new-study-shows-zero-covid-deaths)
-
-[Vaccinated English adults under 60 are dying at twice the rate of unvaccinated people the same age](https://alexberenson.substack.com/p/vaccinated-english-adults-under-60)
-
-[Risk of Hospitalization, severe disease, and mortality due to COVID-19 and PIMS-TS in children with SARS-CoV-2 infection in Germany](https://www.medrxiv.org/content/10.1101/2021.11.30.21267048v1.full.pdf)
-
-[Deaths occurring between 2 January and 24 September 2021 edition of this dataset](https://www.ons.gov.uk/file?uri=%2fpeoplepopulationandcommunity%2fbirthsdeathsandmarriages%2fdeaths%2fdatasets%2fdeathsbyvaccinationstatusengland%2fdeathsoccurringbetween2januaryand24september2021/datasetfinalcorrected3.xlsx)
-
-[澳卫生部长接种疫苗后因疑似感染入院 否认与疫苗有关](https://n.eastday.com/pnews/161534118877013054)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/) 上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+视频剪辑：北方信者 | 听写：雨山溪桥客 | 翻译：中年少女 | 校对：烟波浩淼 | 视频制作+字幕：CG.|编辑&发布：断播
 
  
 

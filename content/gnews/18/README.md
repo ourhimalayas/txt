@@ -2,46 +2,68 @@
 ---
 
 
-## 神药青蒿素
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1723091/)
+## 【Michael.Tonny专栏】澳洲TGA临时批准对5-11岁儿童打疫苗 这是公然杀戮！（下）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1723195/)
 
-俄罗斯莫斯科喀秋莎农场 喜小币
+作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+根据Our Data in World的数据，澳大利亚人口2578.8万，从2021年2月21日起开始注射中共病毒疫苗，目前共有2009.9492万人注射了至少一针疫苗，疫苗接种率占总人口的77.94%。笔者根据这些数据，制成了以下五张图表：
 
-编辑上传 水星
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Q.png)俄罗斯莫斯科喀秋莎农场 女农
-前言：2017年10月5日，郭文贵先生警示：中共国带给世界的黑暗时刻即将来临；2019年6月13日，他再次警示：中共国将要释放生化武器病毒；2020年2月8日，他以绝对准确的情报宣告世界，病毒只是手段，疫苗才是真正目的，都是中共生化武器。企图大规模谋杀，减少人口，灭绝种族，以达到控制奴役世界的目的。2021年8月，文贵先生带给全世界病毒疫苗的解药福音，尤其强调了青蒿素的神奇功效，是中医药献给世界的礼物，将开启人类健康新时代！笔者借十六字令词牌，写下人造病毒、夺命疫苗和神药青蒿素。
+澳大利亚中共病毒疫苗接种情况
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Australia-People-Vaccinated.jpg)
+澳大利亚中共病毒感染情况
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Australia-People-Total-Cases.jpg)
+澳大利亚感染中共病毒死亡情况
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Australia-People-Total-Deaths.jpg)
+澳大利亚中共病毒新增感染情况
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Australia-People-New-Cases.jpg)
+澳大利亚感染中共病毒新增死亡情况
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Australia-People-New-Deaths.jpg)
+通过这5张图明显可以看到，在疫苗接种前相当一段时间内，澳大利亚中共病毒控制得非常好，单日新增确诊连续几个月在个位数，新增死亡连续几个月为0。
 
-**十六字令·人造病毒**
+自推广疫苗几个月后，新增和死亡出现大幅增长。说明注射疫苗对于预防感染和死亡都没有任何帮助。
 
-真！病毒人造袭肉身。来源哪？防化学院生。
-真！生化武器全球喷。目的啥？家家不安生。
-真！封锁解药谎言纷。结果呢？都打毒苗针。
+根据德国所有儿童医院、儿科传染病专家和儿科协会共同发表的《[Risk of Hospitalization, severe disease, and mortality due to COVID-19 and PIMS-TS in children with SARS-CoV-2 infection in Germany](https://www.medrxiv.org/content/10.1101/2021.11.30.21267048v1.full.pdf)》报告显示， CCP病毒开始在德国传播的前15个月，在总数为1000万左右的5至18岁的德国儿童和青少年中，没有任何一个人死于中共病毒。即使加上这个年龄段的有（其它）疾病的儿童和青少年后，也总共只有6人死亡。这段时间内，18岁以下的德国人中，仅有14人死于中共病毒，其中还有8名婴幼儿死亡，有5人有既往病史者。
 
-**十六字令·夺命疫苗**
+在这期间，约有150万德国儿童或青少年感染过中共病毒，其中，5-11岁的健康儿童需要接受重症监护的机率约为50,000分之一，而12-18岁的青少年或年龄小于5岁的小孩需要重症监护的机率为8,000 分之一。
 
-看！脑梗血栓心肌炎。乡邻里，疫苗在祸乱。
-看！强制疫苗毒泛滥。各国里，政要在蛮干。
-看！灭族灭种大灾难。黑暗里，共魔在谋算。
+在英国1200万儿童中仅有6名18岁以下的健康儿童或青少年死于中共病毒。
 
-**十六字令·神药青蒿素**
+根据英国政府官方机构[office for national statstics](https://www.ons.gov.uk/)发布的周统计数据分析，自2021年第10周起，英国每百万未接种疫苗的人群因CCP毒而死亡的机率明显比每百万至少接种一针疫苗的人群死亡机率低得多。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Weekly-age-standardised-mortality-rates.jpg)
+综合英德数据，对5-11岁儿童来说，即使感染中共病毒，需要进行重症监护的机率约为几万分之一，死亡的机率更是几百万分之一。
 
-好！病毒疫苗有解药。专家告，青蒿素最妙。
-好！癌症艾滋皆有效。医生报，慢性病可靠。
-好！屠呦呦献长生钥。嫦娥笑，不用奔月了。
+笔者注意到，今年3月9日，澳大利亚卫生部长格雷格·亨特办公室发表声明称，亨特因疑似感染而入院，而就在他感染中共病毒两天前，接种了阿斯利康新冠（CCP病毒）疫苗。
 
-词释意：
+而澳大利亚的ACV和ATAGI共同主席Allen Cheng长着典型的东方人面孔，澳大利亚政府在中共病毒疫苗上作出的一系列疯狂决定，就是根据Allen Cheng领导的ACV和ATAGI的建议决定的。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Allen-Cheng-thumbnail.jpg)
+Allen Cheng究竟长着什么面孔不重要，重要的是，Allen Cheng领导的ATAGI给出的数据是从今年1月到10月底，澳大利亚5-11岁儿童的冠状病毒（中共病毒）病例7000 例左右，入院人数244 人，没有12岁以下的儿童死于该病毒，只有少数儿童需要重症监护。
 
-**人造病毒**
+既然中共病毒危及12岁以下的儿童生命的机率为0，需要重症监护的机率也非常低，TGA凭什么让这些儿童注射疫苗？
 
-真的，病毒是人造的，用来袭击我们肉身。来源哪里呢？中共解放军防化学院。真的，中共病毒是生化武器，全球投放。目的为啥？是造成全球家家户户恐慌混乱不安生。真的，他们封锁解药信息。结果呢？希望人人都去打毒疫苗针。
+依照经济发展程度相当的英德数据和澳大利亚自身接种疫苗造成更多新增感染和死亡来看，对5-11岁的儿童接种中共病毒疫苗，无异于谋杀！
 
-**夺命疫苗**
+参考资料：
 
-大家请看看，我们的相邻亲友，多少人莫名患上脑梗血栓心肌炎，这些都是打了疫苗后，带给身体的灾难。大家请看看，各个国家里，强制推行疫苗接种，疫苗之毒到处泛滥，这些政要与邪恶势力勾结，正在杀人害人野蛮强干。请大家看看，疫苗带给人类的是灭种灭族的大灾难。在黑暗里，中共邪恶集团策划了这场病毒疫苗灾难，正在谋算着减少人口、控制人口，以实现长期奴役全世界人的野心。
+[Australia to wait for data from US children before clearing vaccine here](https://www.smh.com.au/national/australia-to-wait-for-data-from-us-children-before-clearing-vaccine-here-20211109-p597e2.html)
 
-**神药青蒿素**
+[Pfizers covid-19 vaccine comirnaty provisionally approved use individuals 5 years and over](https://www.tga.gov.au/media-release/pfizers-covid-19-vaccine-comirnaty-provisionally-approved-use-individuals-5-years-and-over)
 
-好！病毒疫苗有解药了，专家的情报告诉大家，青蒿素是最好的解药。好！青蒿素对癌症艾滋病糖尿病等疾病都有良好疗效。医生的临床使用汇报，青蒿素也能解除大多慢性病症。好！这是屠呦呦献给全世界的珍贵礼物，甚至专家称，青蒿素是解开人类长生不老之谜的钥匙。连嫦娥听了都笑了，要想长生不老，不用奔月独守广寒宫了，因为青蒿素将带给地球人长生不老的希望。
+[the Advisory Committee on Vaccines，ACV](https://www.tga.gov.au/committee/advisory-committee-vaccines-acv)
+
+[COVID-19 vaccines for Australians aged five to 11 set to start next month](https://www.canberratimes.com.au/story/7537920/peace-of-mind-for-parents-covid-vaccines-for-kids-set-to-start-in-january/)
+
+[Huge new study shows ZERO Covid deaths of healthy German kids over 4 or adolescents](https://alexberenson.substack.com/p/huge-new-study-shows-zero-covid-deaths)
+
+[Vaccinated English adults under 60 are dying at twice the rate of unvaccinated people the same age](https://alexberenson.substack.com/p/vaccinated-english-adults-under-60)
+
+[Risk of Hospitalization, severe disease, and mortality due to COVID-19 and PIMS-TS in children with SARS-CoV-2 infection in Germany](https://www.medrxiv.org/content/10.1101/2021.11.30.21267048v1.full.pdf)
+
+[Deaths occurring between 2 January and 24 September 2021 edition of this dataset](https://www.ons.gov.uk/file?uri=%2fpeoplepopulationandcommunity%2fbirthsdeathsandmarriages%2fdeaths%2fdatasets%2fdeathsbyvaccinationstatusengland%2fdeathsoccurringbetween2januaryand24september2021/datasetfinalcorrected3.xlsx)
+
+[澳卫生部长接种疫苗后因疑似感染入院 否认与疫苗有关](https://n.eastday.com/pnews/161534118877013054)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/) 上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 
