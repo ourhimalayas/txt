@@ -15,104 +15,104 @@
 
 ---
 
-### [文贵大直播12.5.2021郭先生分析目前亚洲形势 指出只有美国和中共自己才能灭共](/content/gnews/1/README.md)
+### [DC大中华时事：中方批美国所谓“民主峰会”纯属闹剧](/content/gnews/1/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [文贵大直播12.5.2021郭先生分析目前亚洲形势 指出只有美国和中共自己才能灭共](/content/gnews/2/README.md)
  ` 秘密翻译组-原创组`
 
-### [美国证券会将把中概股退市？](/content/gnews/2/README.md)
+### [美国证券会将把中概股退市？](/content/gnews/3/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [【文贵先生大直播PPT】近期亚洲政治军事形势](/content/gnews/3/README.md)
+### [【文贵先生大直播PPT】近期亚洲政治军事形势](/content/gnews/4/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [文贵爆料 12.5：躺平币让你不“躺平”](/content/gnews/4/README.md)
+### [文贵爆料 12.5：躺平币让你不“躺平”](/content/gnews/5/README.md)
  ` 秘密翻译组-原创组`
 
-### [2021年12月5日 郭先生大直播文字同步精要](/content/gnews/5/README.md)
+### [2021年12月5日 郭先生大直播文字同步精要](/content/gnews/6/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [2021年12月5日郭文贵先生大直播摘要及音频—银河系农场](/content/gnews/6/README.md)
+### [2021年12月5日郭文贵先生大直播摘要及音频—银河系农场](/content/gnews/7/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [五角大楼称中共在台湾附近进行的是“演习”](/content/gnews/7/README.md)
+### [五角大楼称中共在台湾附近进行的是“演习”](/content/gnews/8/README.md)
  ` HimalayaRussia`
 
-### [比特币崩盘，交易员被血洗](/content/gnews/8/README.md)
+### [比特币崩盘，交易员被血洗](/content/gnews/9/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [汇总墙内三种拒绝接种疫苗的办法，守护生命安全](/content/gnews/9/README.md)
+### [汇总墙内三种拒绝接种疫苗的办法，守护生命安全](/content/gnews/10/README.md)
  ` 银河勇气之星`
 
-### [Hcoin To the Moon 上线第3天位列10国iTunes摇滚音乐榜首](/content/gnews/10/README.md)
+### [Hcoin To the Moon 上线第3天位列10国iTunes摇滚音乐榜首](/content/gnews/11/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [【文贵先生大直播PPT】全球数字货币市场变化与喜币的未来](/content/gnews/11/README.md)
+### [【文贵先生大直播PPT】全球数字货币市场变化与喜币的未来](/content/gnews/12/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [12月5日文贵大直播快讯——银行已成为剥削行为的帮凶](/content/gnews/12/README.md)
+### [12月5日文贵大直播快讯——银行已成为剥削行为的帮凶](/content/gnews/13/README.md)
  ` 澳喜特战旅Gnews`
 
-### [12月5日文贵大直播快讯——人类必然的未来不可阻挡](/content/gnews/13/README.md)
+### [12月5日文贵大直播快讯——人类必然的未来不可阻挡](/content/gnews/14/README.md)
  ` 澳喜特战旅Gnews`
 
-### [爆料革命从刘志华案件开始起](/content/gnews/14/README.md)
+### [爆料革命从刘志华案件开始起](/content/gnews/15/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [天空新闻：女网协会比国际奥委会更有种，敢于反对中共](/content/gnews/15/README.md)
+### [天空新闻：女网协会比国际奥委会更有种，敢于反对中共](/content/gnews/16/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [充分迹象表明疫苗会导致过度炎症并引起免疫缺陷综合症](/content/gnews/16/README.md)
+### [充分迹象表明疫苗会导致过度炎症并引起免疫缺陷综合症](/content/gnews/17/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [天空新闻：澳大利亚工党支持总理抵制北京冬奥会](/content/gnews/17/README.md)
+### [天空新闻：澳大利亚工党支持总理抵制北京冬奥会](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [史蒂夫·克什：中共病毒疫苗是人类所造最致命的疫苗](/content/gnews/18/README.md)
+### [史蒂夫·克什：中共病毒疫苗是人类所造最致命的疫苗](/content/gnews/19/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [【Michael.Tonny专栏】澳洲TGA临时批准对5-11岁儿童打疫苗 这是公然杀戮！（下）](/content/gnews/19/README.md)
+### [【Michael.Tonny专栏】澳洲TGA临时批准对5-11岁儿童打疫苗 这是公然杀戮！（下）](/content/gnews/20/README.md)
  ` 温哥华扬帆农场`
 
-### [2021年12月5日文贵先生直播大雨围城直播精要速记](/content/gnews/20/README.md)
+### [2021年12月5日文贵先生直播大雨围城直播精要速记](/content/gnews/21/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [【Michael.Tonny专栏】澳洲TGA临时批准对5-11岁儿童打疫苗 这是公然杀戮！(上)](/content/gnews/21/README.md)
+### [【Michael.Tonny专栏】澳洲TGA临时批准对5-11岁儿童打疫苗 这是公然杀戮！(上)](/content/gnews/22/README.md)
  ` 温哥华扬帆农场`
 
-### [秘翻在线： 辉瑞疫苗供应合同中的“保密条款”被指控牟取暴利](/content/gnews/22/README.md)
+### [秘翻在线： 辉瑞疫苗供应合同中的“保密条款”被指控牟取暴利](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2021年12月5日文贵先生直播小飞象大雨围城速记](/content/gnews/23/README.md)
+### [2021年12月5日文贵先生直播小飞象大雨围城速记](/content/gnews/24/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [【文贵先生大直播PPT】恒大等国内房地产危机将给美国等金融市场带来什么影响](/content/gnews/24/README.md)
+### [【文贵先生大直播PPT】恒大等国内房地产危机将给美国等金融市场带来什么影响](/content/gnews/25/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [超过135项研究证明自然免疫力是强大、完整和持久的](/content/gnews/25/README.md)
+### [超过135项研究证明自然免疫力是强大、完整和持久的](/content/gnews/26/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [神药青蒿素](/content/gnews/26/README.md)
+### [神药青蒿素](/content/gnews/27/README.md)
  ` HimalayaRussia`
 
-### [最新统计数据显示，接种疫苗造成的人为灾难远大于瘟疫本身](/content/gnews/27/README.md)
+### [最新统计数据显示，接种疫苗造成的人为灾难远大于瘟疫本身](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [新中国联邦是人类未来的希望](/content/gnews/28/README.md)
+### [新中国联邦是人类未来的希望](/content/gnews/29/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [西方多国强烈谴责塔利班草率处决前阿富汗安全部队人员](/content/gnews/29/README.md)
+### [西方多国强烈谴责塔利班草率处决前阿富汗安全部队人员](/content/gnews/30/README.md)
  ` 日本东京方舟农场`
 
-### [顶级时尚品牌Mandelli主动表示愿与G|FASHION合作](/content/gnews/30/README.md)
+### [顶级时尚品牌Mandelli主动表示愿与G|FASHION合作](/content/gnews/31/README.md)
  ` 日本东京方舟农场`
 
-### [世界各地的人们抗议专制的 COVID-19 封锁和疫苗规定](/content/gnews/31/README.md)
+### [世界各地的人们抗议专制的 COVID-19 封锁和疫苗规定](/content/gnews/32/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [GTV新闻访谈简报|2021年12月5日早](/content/gnews/32/README.md)
+### [GTV新闻访谈简报|2021年12月5日早](/content/gnews/33/README.md)
  ` 纽约香草山MOS01`
-
-### [DC每日热点1205](/content/gnews/33/README.md)
- ` 喜马拉雅-华盛顿DC农场`
 
 ### [12/05/21 香港快讯 邹幸彤获颁「中国杰出民主人士奖」：香港发生的一切是对世界的警号](/content/gnews/34/README.md)
  ` 英喜-粵語組`

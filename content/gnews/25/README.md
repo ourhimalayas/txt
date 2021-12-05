@@ -2,12 +2,18 @@
 ---
 
 
-## 超过135项研究证明自然免疫力是强大、完整和持久的
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1723129/)
+## 【文贵先生大直播PPT】恒大等国内房地产危机将给美国等金融市场带来什么影响
+` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1723131/)
 
-12/01/2021 麦卡洛博士接受福克斯采访时表示至少有135项研究证实身体自然免疫力等同于，甚至强于中共疫苗。证明了自然免疫力是强大、完整和持久的
+撰稿：北评2025，Nine Lee
+PPT美化：青山
+文案终审：三票先生，顽童先生
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+【2021年12月5日文贵先生大直播PPT恒大等国内房地产危机将给美国等金融市场带来什么影响】
+![](https://assets.gnews.org/wp-content/uploads/2021/12/21-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/22-2.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/23-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/24-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/25-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/26-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/27-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/28.jpg)
+* * *
+
+发稿：云起时
 
  
 
