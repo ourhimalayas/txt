@@ -2,24 +2,30 @@
 ---
 
 
-## 澳洲全票通过马格尼茨基人权法，剑指中共
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1721248/)
+## 德国对未接种疫苗者将实施全国封锁
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1721551/)
 
-作者：纽约香草山农场 007
+作者：纽约香草山文艺部 – 宁文静
+
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间12月1日，澳大利亚参议院全票通过了马格尼茨基人权法。当中，针对践踏人权、从事腐败等恶劣行为的个人或实体，法案赋予政府实施冻结或没收相关人员财产并禁止相关人员入境等制裁的权力。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-05-上午10.45.25.png)
-该法案早期倡导者之一、参议员帕特森表示，必须让那些侵犯人权和试图重塑国际规则秩序的人付出真正的个人代价。帕特森强调，澳洲不会成为那些人的避难所。
 
-自此，澳大利亚成为南半球首个通过马格尼茨基人权法的国家。同时，美国、欧盟和英国都有各自的马格尼茨基法，并且他们依据该法案对在中共国新疆地区严重侵犯人权的中共官员实施了制裁。
 
-参考链接：[澳大利亚参议院全票通过马格尼茨基人权法](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20211201-%E6%BE%B3%E5%A4%A7%E5%88%A9%E4%BA%9A%E5%8F%82%E8%AE%AE%E9%99%A2%E5%85%A8%E7%A5%A8%E9%80%9A%E8%BF%87%E9%A9%AC%E6%A0%BC%E5%B0%BC%E8%8C%A8%E5%9F%BA%E4%BA%BA%E6%9D%83%E6%B3%95)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+当地时间12月2日，即将离任的德国总理默克尔宣布，德国将对所有未接种新冠疫苗的民众采取封锁措施。同时，该封锁措施将由目前的几个地区逐步扩展至整个国家。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-05-at-12.24.26-PM.png)
+据悉，这些限制措施包括禁止未接种新冠疫苗者进入所有的餐厅、酒吧、电影院、健身房、音乐会和非必需品商店，而德国传统的圣诞小商品市场也被囊括在封锁限制内。另外，未接种疫苗人士的私人聚会仅被允许在同一居住地点内举行。封锁限制也明确，德国全国范围内的文化和休闲场所仅向已接种新冠疫苗者或新冠感染康复者开放。
 
-总编：文特
-编辑：飞虹
-校正/发稿：呼吸的雾霾（文小呼吸）
+德国当天披露的数据显示，截至目前，德国共有7.3万新冠感染病例和388例新冠感染死亡患者，但是，该国已有近69%的民众完全接种了新冠疫苗。分析人士指出，各国发现的新冠奥密克戎变种病毒感染均由完全接种新冠疫苗的人员传播，因此，新冠疫苗的效用非常值得怀疑。
+
+批评人士认为，默克尔不顾事实、数据以及民众的抗议，强行采取极端措施对待未接种新冠疫苗的德国民众，其侵犯人权的行为必将面临指控。
+
+参考链接：[Germany Announces Lockdown For Unvaccinated People](https://www.dailywire.com/news/germany-announces-lockdown-for-unvaccinated-people?%3Futm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dwtwitter)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
+
+总编：文徬 
+编辑：Kathy文艺
+校正/发稿：我不在这里
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

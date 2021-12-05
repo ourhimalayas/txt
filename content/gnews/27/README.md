@@ -2,44 +2,22 @@
 ---
 
 
-## 泄露的文件显示，WhatsApp和iMessage与FBI共享用户数据
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1721482/)
+## 迫害！巴西总统因为说新冠会增加患上艾滋风险而被法院调查
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1721712/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+#### 翻译/撰稿：zzballack
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/4000.jpg)
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-7.jpg)图片来源：BBC
+据《合众国际社》（UPI）12月4日报道，巴西最高法院12月4日在推特上宣布，巴西联邦最高法院法官亚历山大·德·莫赖斯(Alexandre de Moraes)下令对巴西总统雅伊尔·博索纳罗(Jair Bolsonaro)10月24日在多个社交媒体平台直播时发表的一段言论进行调查。博索纳罗当时说，“新冠疫苗会增加接种者患上艾滋的风险。”
 
+因为这段视频，油管和脸书以散播假新闻为由将博索纳罗暂时冻结，所谓的科学家和医学专家也极力污蔑和歪曲该说法。
 
+巴西最高法院表示，在议会委员会提出的一个要求调查博索纳罗政府的大流行应对措施后，他们启动了这项调查。在今年10月底的罗马G20峰会上，博索纳罗是G20国家中唯一一位声称没有接种过新冠疫苗的总统。
 
-图片来源：www.theguardian.com
+推动新冠疫苗的背后势力太黑暗太强大，任何说出病毒和疫苗真相的政客、媒体、知名人士、记者、医学专家和一线医护人员等人士无一不被审查和迫害。维迦诺大主教因此呼吁全世界的正义势力和良心人士勇敢地站出来，结成联盟反抗人类历史上这一前所未有的医疗暴政。郭文贵先生和新中国联邦作为其中的一员，利用Gettr、Gnews和GTV一直在不遗余力地传播病毒、疫苗和中共的真相，拯救人类免于这场空前的浩劫。
 
-
-#### 编译：小红帽
-
-一份新发布的文件突显了消息传递应用程序用户所面临的隐私问题的持续争议。流行应用程序iMessage和WhatsApp被证明是联邦调查局（FBI）访问数据和内容“最宽松”的应用程序。
-
-《滚石》（Rolling Stone）杂志获得的这份文件概述了可以从九个流行消息传递应用程序访问哪些数据。
-
-该文件名为“合法访问”，概述了执法机构，如联邦调查局，在“领先的消息传递”应用程序上“合法访问安全内容”的能力。其中所列的九个应用程序是iMessage、Line、Signal、Telegram、Threema、Viber、微信、WhatsApp和Wickr。
-
-该文件由联邦调查局科技处和运营技术部编写，日期为2021年1月7日，总结了可以从消息传递应用中获得哪些信息，揭示了Facebook拥有的（现在是Meta）WhatsApp和苹果的iMessage向执法机构提供的信息最为自由。
-
-今年初，WhatsApp受到了抨击，因为新公布的软件更新引发了广泛的隐私问题，用户纷纷涌向Signal和Telegram，包括科技亿万富翁埃隆·马斯克（Elon Musk）。
-
-然而，联邦调查局的文件显示， WhatsApp与iMessage和Line一样，承诺交出目标个人的 “有限”信息内容，而其他公司则根本不提供信息内容。
-
-同时，苹果的iMessage也提供“有限的”信息内容，以及用户信息，25天的iMessage搜索数据，以及谁在iMessage中搜索了目标用户。
-
-**参考新闻：**[WhatsApp, iMessage share user data with FBI, leaked document shows – NaturalNews.com](https://www.naturalnews.com/2021-12-04-whatsapp-imessage-share-user-data-with-fbi.html)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻来源：[Brazilian court investigating Bolsonaro comments linking COVID-19 vaccines, AIDS](https://www.upi.com/Top_News/World-News/2021/12/04/brazil-Bolsonaro-investigated-by-Supreme-Court-COVID-19-AIDS-claims/2441638639777/)
 
  
 
