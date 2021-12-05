@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/5/2021 1:49 AM (UTC)`
+
+“Hcoin To the Moon” Hits #1 🥇on 14 Countries’ iTunes Rock Charts on 2nd Day of Launch<br/>🎉🎉🎉🎉🎉🎉🎉<br/>https://gnews.org/1720106/<br/><br/>Hcoin To the Moon 上线第2天位列14国iTunes摇滚音乐榜首🥇<br/>🎉🎉🎉🎉🎉🎉🎉<br/>https://gnews.org/zh-hans/1720105/
+
+---
+
 `@miles 12/4/2021 5:03 PM (UTC)`
 
 12月4号：尊敬的战友们好，你们健身吗？传播C C P病毒疫苗解药的真相了吗？
@@ -147,13 +153,6 @@
 
 12月2号：尊敬的战友们好……感谢旧金山的文心战友，找到了这个视频．从这个视频看七哥像个处男士是的．很腼腆呢？　【七哥，这应该是您第一次直播改网友称呼为战友，对不对😅 2018年1月4日】
 ![img](https://media.gettr.com/group12/getter/2021/12/02/12/20/bea8e2fe-8efb-2205-1832-1012e592a3ac/out.jpg)
-
----
-
-`@miles 12/2/2021 10:03 AM (UTC)`
-
-12/1/2021 Miles Guo: Alvin Chau is not a key figure under Meng Jianzhu’s command, and Xi Jinping has yet shaken the foundation of Meng Jianzhu’s forces; the Jiang family alone controls nearly one third of Bitcoins, Meng Jianzhu controls Huobi, oversea gangsters, and drug and human trafficking, and they all believe Xi Jinping is just an idiot<br/><br/>12/1/2021 文贵直播：洗米华只是孟建柱手下的小人物，习近平尚未动摇孟的根基；江家控制了近三分之一的比特币，孟控制了火币、海外黑帮、贩毒和贩卖人口，他们认为习就是个傻子<br/>
-![img](https://media.gettr.com/group1/getter/2021/12/02/10/03/9cdaebd4-0247-2660-08fa-ee039202004b/out.jpg)
 
 ---
 

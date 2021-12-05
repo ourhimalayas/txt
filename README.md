@@ -15,92 +15,92 @@
 
 ---
 
-### [中共国如何殖民英联邦](/content/gnews/1/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [全日空与日航恢复来日国际航班预约受理](/content/gnews/2/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美国和欧盟对中共国的立场“日益趋同”](/content/gnews/3/README.md)
+### [老领导之一浮出水面？](/content/gnews/1/README.md)
  ` HimalayaRussia`
 
-### [国际要闻汇编 12月4日](/content/gnews/4/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [墙内要闻汇编 12月4日](/content/gnews/5/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [拜登发誓不再实施封锁或新强制令，在冬季计划推行疫苗](/content/gnews/6/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [中共国暂停出口尿素，澳大利亚供应链下月面临崩溃](/content/gnews/7/README.md)
- ` 走进澳洲`
-
-### [中共利用弹道导弹战略核潜艇再次在台湾海峡炫耀武力](/content/gnews/8/README.md)
+### [中共国如何殖民英联邦](/content/gnews/2/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [Meta删除了600多个中共控制的传播COVID-19虚假信息的账户](/content/gnews/9/README.md)
+### [全日空与日航恢复来日国际航班预约受理](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美国和欧盟对中共国的立场“日益趋同”](/content/gnews/4/README.md)
+ ` HimalayaRussia`
+
+### [国际要闻汇编 12月4日](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [墙内要闻汇编 12月4日](/content/gnews/6/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [拜登发誓不再实施封锁或新强制令，在冬季计划推行疫苗](/content/gnews/7/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [澳洲通过澳版《马格尼茨基法案》](/content/gnews/10/README.md)
+### [中共国暂停出口尿素，澳大利亚供应链下月面临崩溃](/content/gnews/8/README.md)
  ` 走进澳洲`
 
-### [通用汽车、福特和克莱斯勒拒绝遵守Covid-19疫苗强制令](/content/gnews/11/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [2021/12/04 文贵先生盖特精要](/content/gnews/12/README.md)
+### [中共利用弹道导弹战略核潜艇再次在台湾海峡炫耀武力](/content/gnews/9/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [世卫科学家阿斯特丽德](/content/gnews/13/README.md)
+### [Meta删除了600多个中共控制的传播COVID-19虚假信息的账户](/content/gnews/10/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [澳洲通过澳版《马格尼茨基法案》](/content/gnews/11/README.md)
+ ` 走进澳洲`
+
+### [通用汽车、福特和克莱斯勒拒绝遵守Covid-19疫苗强制令](/content/gnews/12/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [2021/12/04 文贵先生盖特精要](/content/gnews/13/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [世卫科学家阿斯特丽德](/content/gnews/14/README.md)
  ` 澳喜特战旅Gnews`
 
-### [DeVere表示，加密货币的价值将在一年内翻一番](/content/gnews/14/README.md)
+### [DeVere表示，加密货币的价值将在一年内翻一番](/content/gnews/15/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [兰德·保罗斥责福奇标榜自己代表科学](/content/gnews/15/README.md)
+### [兰德·保罗斥责福奇标榜自己代表科学](/content/gnews/16/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [股票策略师预测，通胀或促使美联储在2024前六次加息](/content/gnews/16/README.md)
+### [股票策略师预测，通胀或促使美联储在2024前六次加息](/content/gnews/17/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2021年12月3日郭文贵先生直播全文字版](/content/gnews/17/README.md)
+### [2021年12月3日郭文贵先生直播全文字版](/content/gnews/18/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [拜登的疫苗授权在蒙大拿州的裁决中再次受到打击](/content/gnews/18/README.md)
+### [拜登的疫苗授权在蒙大拿州的裁决中再次受到打击](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [今年的中共北戴河会议到底都说了啥](/content/gnews/19/README.md)
+### [今年的中共北戴河会议到底都说了啥](/content/gnews/20/README.md)
  ` YALUN 亚伦`
 
-### [科学证明：郭文贵爆料“新冠治疗药物和疫苗解药”的准确性](/content/gnews/20/README.md)
+### [科学证明：郭文贵爆料“新冠治疗药物和疫苗解药”的准确性](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [CCP实施的国家恐怖主义之实](/content/gnews/21/README.md)
+### [CCP实施的国家恐怖主义之实](/content/gnews/22/README.md)
  ` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)`
 
-### [辉瑞夺命，失亲之痛](/content/gnews/22/README.md)
+### [辉瑞夺命，失亲之痛](/content/gnews/23/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [【草根访谈】第287期新闻概要](/content/gnews/23/README.md)
+### [【草根访谈】第287期新闻概要](/content/gnews/24/README.md)
  ` WindTalker`
 
-### [BC省房地产经纪人因罚款 255,000元而起诉洗钱监管机构](/content/gnews/24/README.md)
+### [BC省房地产经纪人因罚款 255,000元而起诉洗钱监管机构](/content/gnews/25/README.md)
  ` MG FARM`
 
-### [秘翻在线: 加拿大新省禁止未接种疫苗者进入食品杂货店](/content/gnews/25/README.md)
+### [秘翻在线: 加拿大新省禁止未接种疫苗者进入食品杂货店](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [Eglise 医生关于青蒿素](/content/gnews/26/README.md)
+### [Eglise 医生关于青蒿素](/content/gnews/27/README.md)
  ` MG FARM`
 
-### [Eglise介绍双氢青蒿素](/content/gnews/27/README.md)
+### [Eglise介绍双氢青蒿素](/content/gnews/28/README.md)
  ` MG FARM`
 
-### [中共国的“完美风暴组合”震动了加利西亚（四）](/content/gnews/28/README.md)
+### [中共国的“完美风暴组合”震动了加利西亚（四）](/content/gnews/29/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [Eglise谈青蒿素和羟氯喹吃法](/content/gnews/29/README.md)
- ` MG FARM`
 
 ### [【草根访谈】第286期新闻概要](/content/gnews/30/README.md)
  ` WindTalker`
