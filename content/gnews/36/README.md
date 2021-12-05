@@ -2,28 +2,32 @@
 ---
 
 
-## 英国将在圣诞节前对Omicron变种病毒预防措施进行审查
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1721891/)
+## 美国防部长称：满怀信心和决心迎接中共国的军事挑战
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1722108/)
 
-#### 翻译/撰稿：黃金精神
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月4日，在刚刚结束的2021 年里根国防论坛上，美国防部长劳埃德·奥斯丁发表了主题演讲称，在艰巨的局势中，美国将用强大的军事优势和决心面临中共国的挑战。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-05-at-9.14.42-PM.png)
+在谈到中共国的军事竞争等问题时，奥斯丁说，美国一直持续在为对抗中共国军事力量做准备，除了无人机、隐形战斗机等常规武器之外，还在新型武器系统的研发上投入了更多的资金，以增强美国的远程打击能力。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-2-3.jpg)图片来源：华人头条
-12月5日据每日快报（Daily Express）报道，在越来越多人担心再次封城的情况下，英国首相鲍里斯·约翰逊（Boris Johnson）已经确定了一个正式审查圣诞节中共病毒计划的日期。
+奥斯丁强调，美国将继续在亚太地区发挥稳定作用。美国拥有独裁统治无法比拟的优势，即自由企业、自由思想和自由人民的结合。奥斯丁指出，美国不寻求与中共国对抗或冲突，但从不畏惧竞争，将用满怀的信心和决心迎接来自中共国的军事挑战。
 
-英国政府上周引入新的临时措施以应对奥米克戎变体病毒的传播，该措施将在圣诞节前的一个星期进行审查。计划中的审查日期让人想起去年圣诞节，当时首相一直等到12月19日才宣布，在节日期间放宽封城规定的计划不会进行。
+参考链接：[We seek neither confrontation nor conflict \[with China\]](https://twitter.com/deptofdefense/status/1467229729497358340?s=21)
 
-2021年11月27日，为了应对日益增长的奥米克戎变体病毒的威胁，英国政府宣布在商店和公共交通工具上强制要求戴口罩，所有与奥米克戎疑似病例接触的人，无论有无接种过疫苗，都必须进行自我隔离。另外，所有国际入境者必须进行两天的PCR测试并进行自我隔离，直到收到病毒检测阴性报告。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
 
-英国政府还在加快推广加强针，使所有18岁以上的人都能接种，并将第二次和第三次注射之间的时间从六个月减少至三个月。
+编辑/总编：正义的小新 
+校正/发稿：我不在这里
 
-虽然首相约翰逊坚持认为以上三项措施是“恰当且负责任的”，但他没有下令采取其他“B计划”措施，即在接待场所戴口罩和在家工作的命令。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-英国政府将于12月18日正式审查这些措施。官员们预计从12月13日左右开始收到关键数据，这将确定他们的应对措施（圣诞节前是否封城）。1月8日可能会有进一步的严格审查。
-
-谈到圣诞节封城的可能性，英国卫生部长萨吉德·贾维德（Sajid Javid）上周告诉英国广播公司（BBC）的安德鲁·马尔（Andrew Marr），英国 “还没有接近 “那个阶段，建议人们继续正常计划圣诞节。
-
-[**新闻来源**](https://www.express.co.uk/news/uk/1531475/Boris-Johnson-Christmas-lockdown-Covid-19-Omicron)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 

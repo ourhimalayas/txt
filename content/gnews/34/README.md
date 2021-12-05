@@ -2,31 +2,33 @@
 ---
 
 
-## 2021/12/05 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1721997/)
+## 郭先生新歌登陆iTunes榜单 多个国家排名第一
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1722149/)
 
-1. 12月3日，辽宁丹东一居民用燃气自杀引发爆炸，已致1死2伤。
-2. 12月2日，河北石家庄。一轿车凌晨多次横冲夜市，撞翻多辆小吃摊位。
-3. 12月2日，成都一楼盘降价销售，业主买房后一周亏损53万。项目方遭到业主维权。
-4. 国内经济极度萧条，深圳夜市排档一条街冷冷清清，只有商家没有顾客，日子都很难过。
-5. 12月3日，重庆一高楼起火，浓烟滚滚。
-6. 12月3日，广东揭西。一废品站突发火灾浓烟滚滚，方圆几公里可见！
-7. 陕西小伙手机卡突然被停用，服务终止，扣费不断。客服：来北京才能解决。
-8. 家长越来越难当了。家长被学校要求接孩子前必须背诵中共党中央宣传的24字社会主义核心价值观。
-9. 12月1日，河南安阳。女子下班回家发现狗狗正在惬意的晒太阳，原本以为自己上班累的跟条狗一样，“回到家发现原来还不如一条狗” – 墙内年轻人的普遍感受。
-10. 河南南阳，3村民举报企业污染被判“敲诈”，获有期徒刑3年，缓刑3年。
-11. 2021年6月21日，经法院重审认定3人的行为不构成犯罪。3人申请国家赔偿5348万元被驳回。
+作者：银河勇气星 – 骄子
+![This image has an empty alt attribute; its file name is 1-28.png](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
+摇滚硬汉郭文贵先生的新歌Hcoin to the moon，自12月1日开始上架iTunes。歌曲是战友唐平女士和威廉王先生专门为喜币创作的，首播是在喜币上市11月1日当天，随后便开始在iTunes准备打榜。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/5-4.jpg)
 
-* * *
+共产党为了阻止打榜，花掉了上亿美元，但依然未能阻挡其一上榜便风靡全球的事实。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+歌曲有两个版本，一个是卡拉OK版，一个是正式版。正式版稍晚一天上架iTunes。截至12月3日大直播时，两首歌已经在香港、新加坡、新西兰、老挝、匈牙利、澳门、马耳他、柬埔寨、蒙古、阿联酋等国家的热门歌曲排行榜中位列第一名，同时在美国、澳大利亚、加拿大、西班牙、爱尔兰等国家的摇滚榜单排名第一。
 
+参考链接：
 
-编辑：【英国伦敦喜庄园编辑部】
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
+
+总编辑：飞虹
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

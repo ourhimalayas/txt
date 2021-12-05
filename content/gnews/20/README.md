@@ -2,99 +2,37 @@
 ---
 
 
-## 美国对数字货币监管的两弊两利
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1722364/)
+## 银河快讯: 日本将导弹射程扩大到上海；执政党关于财产税特例谈判陷入僵局
+` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1722565/)
 
-[https://gtv.org/video/id=61ac862c87fa7e74c92b8d74](https://gtv.org/video/id=61ac862c87fa7e74c92b8d74)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-22.png)[图片来源](https://news.yahoo.co.jp/)
+**1.****日本将导弹射程扩大到朝鲜半岛和上海**
 
-郭文贵
-MIles Guo
+[据朝鲜日报12月4日报道，日本政府正计划将其目前正在开发的巡航导弹的射程扩大到1,000公里以上。  这背后的逻辑是为了加强对来自朝鲜、中共国和其他国家威胁的威慑，但有人指出，这将违反专守防卫原则。日本在第二次世界大战中战败后，宪法规定，在外国势力发动武装进攻的情况下，日本将只使用最低限度的防御力量。 然而，由首相岸田文雄领导的执政的自民党热衷于修改这一法律，因为它提出了一项将国防开支增加到至少占GDP2%的计划。国防部计划将12型地对舰导弹的射程提高到1000公里以上，这是三菱重工正在开发的一种巡航导弹，并在2020年末之前部署。 日本目前的巡航导弹舰队的射程约为100公里。](https://news.yahoo.co.jp/articles/4a5064f72321e6289ecf3cd5019ca6fe35adcc67)
 
-包括现在欧洲、美国、日本、中东，好多大的地产公司、汽车公司
-Including many large real estate companies and automobile companies in Europe, the United States, Japan, and the Middle East
+**2.****执政党关于财产税特例的谈判陷入僵局**
 
-都要接受HCN喜币来做交易，任何一个象征性的交易，它都是了不得的
-are all agreed to accept HCoin to do business, any symbolic transaction, it is extraordinary
+[据读卖新闻12月4日报道，自民党和公明党之间关于财产税特别措施的谈判正在进入最后阶段，如果税额增加，将保持与2020财年相同的数额。 由于企业收益的恢复，自民党希望在21年结束特例，而公明党则表示，结束这一规定将使企业的税收负担每年增加多达1100亿日元。财产税是对住宅和商业区的土地和建筑物征收的。 政府已经决定，如果由于疫情，土地的财产税与20年相比有所增加，那么将减少1%的税收。 自民党在周三表示，它将每三年审查一次评估。](https://news.yahoo.co.jp/articles/b5d7dbe3b037440c124473b0d6fe17615b7ab882)
 
-请问问，除了比特币之外，火币, 还有什么币安，这么多14000种币
-Please ask, besides Bitcoin, Huobi, and that Binance, there are 14,000 so many digital currency
+**3.****日本政府要求航空公司每日报告国际航班的预订情况**
 
-有几种币在市场上说真的是大型的严肃性的企业，接受你的币了
-How many digital currency have been accepted to do business by the really large and serious companies in the market?
+[据共同社 12月4日报道，国土交通省已要求航空公司每天提交抵达日本的国际航班的航班号和预订人数的最新数据，以配合加强针对中共状病毒的新变种–Omicron毒株的措施。 该请求涵盖了到明年1月31日的预订情况。政府已经在全球范围内禁止新的外国公民进入该国，将每天允许进入该国的人数从5000人降低到3500人。](https://news.yahoo.co.jp/articles/1f13d9cb6e0498e0039880a2e26fd2e79e9f2c33)
 
-它不流通，数字货币的核心是你不流通屁都不是
-It doesn’t circulate, the core of digital currency is circulation, if you don’t circulate, it’s worthless
+**4.****飞机燃油税减免将被减少**
 
-那你要流通你就要一定跟法币连在一起，你不能成为一个洗钱的工具、偷税的工具
-If you want to circulate, you must be connected with fiat currency, you cannot become a tool for money laundry or tax evasion
+[据NNN 12月4日报道，政府已决定将航空燃油税减免计划延长至明年年底，但减少减税规模。航空燃料税是对国内航班使用的燃料征收的。 自今年4月起，为了支持因疫情而导致业绩恶化的航空公司，该税款已被削减至每千升9000日元，是前一年的一半。 然而，政府已决定将价格提高到每千升13,000日元，延长一年至2022年度结束。](https://news.yahoo.co.jp/articles/c69f69fe1aeaa86e31a16518cf8b6bb2f49b1189)
 
-那是没有未来的，这就是比特币最终会消亡的（原因）
-There is no future, this is why Bitcoin will eventually die
+**5.****日本建立基金吸引海外的半导体工厂**
 
-那么你确确实实跟法币联系，你必须要受监管，受监管就是要KYC
-Then you are indeed in contact with fiat currency, you must be supervised, and that means KYC
+[据读卖新闻 12月4日报道，为了鼓励海外半导体公司在日本进行资本投资，日本政府决定修改相关法律，设立一个基金，向被批准的公司提供支持，帮助他们在日本建立工厂。 岸田内阁致力于加强经济安全，旨在确保半导体的供应。这些修正案将对《促进使用特定先进信息和通信技术的系统开发和供应法》和《新能源和工业技术开发组织法》进行修订。 内阁将很快批准修订后的法案，并将其提交给将于6日召开的特别国会会议。 在本年度的补充预算中，总共有6170亿日元被指定用于这一目的。](https://news.yahoo.co.jp/articles/809ddb9ae61012364936142817c51aec94ac20af)
 
-美国的监管它能监管到什么呢？大家记住，它有两弊两利
-What can the U.S. regulation of digital currency supervise? Remember, it has two disadvantages and two advantages
+**6.****日本将更严格的检疫规则扩大到印度、希腊、罗马尼亚**
 
-一弊，弊在哪里啊，咱必须要面对美国的监管的时候
-One disadvantage, where is the disadvantage? when we have to face American regulation
+[据共同社 12月4日报道，来自印度、希腊和罗马尼亚以及美国的科罗拉多州、夏威夷、明尼苏达州和纽约的日本国民和外国居民将被要求在政府指定的设施中度过为期两周的检疫期中的3天。包括奥地利、厄瓜多尔和法国在内的一些国家已经实行了同样的三天规则，还有几十个国家正在接受更严格的检疫要求，例如让旅行者在政府指定的设施中停留10天。](https://english.kyodonews.net/news/2021/12/c80e78283336-japan-expands-tougher-quarantine-rules-to-india-greece-romania.html)
 
-这个时候你要进入美国市场的时候，就是说你一定要记住
-When you want to enter the American market at this time, that means you must remember
-
-战友们，你们要懂得的，美国政府监管，你信息是一定会
-My comrades in arms, you have to understand that your information will be regulated by the U.S. government
-
-就是美国公民的信息是一定要给美国政府的IRS，这是你没有选择的
-That means the information of American citizens must be given to the IRS of the U.S. government, you have no choice
-
-另外一个，这是第一弊，第二弊是哪里呢
-Another one, this is the first disadvantage, where is the second disadvantage？
-
-就是在美国你想偷税，你要合法避税，你不能偷税了，这是两弊
-You want to evade tax in the United States, you need to avoid tax legally, and you can’t evade tax, this is the second disadvantage
-
-两利在哪里呀，天下唯一的会受西方政府最尊重的，
-Where are the two advantages? The only one in the world that will be most respected by the western government
-
-喜马拉雅KYC, 绝对是最高境界
-Himalaya’s KYC is definitely the highest level
-
-这次咱就会成为No. 1中的No. 1
-This time we will become the ultimate winner
-
-另外一个利在哪里呀，喜币会更加值钱
-Where is the other advantage? HCoin will be more valuable
-
-因为这些国家看了你的KYC, 看到你的结构，稳定币、法币
-because these countries look at the KYC, review the structure, stable currency, fiat currency
-
-而且是中心化的行政管理去中心化的技术，它放心了
-And it’s a decentralized technology for centralized administrative management, so they can be ease
-
-这些国家就会全面接受，那会“噌”地一下价格像窜天猴一样就上去了
-These countries will fully accept it, and the price will soar like the rocket
-
-* * *
-
-Date:12/02/2021
-原视频标题: 美国对数字货币监管的两弊两利
-Two disadvantages and two advantages of U.S. regulation of digital currency
-原视频日期：2021/12/01
-原视频链接[https://gettr.com/post/pihods9442](https://gettr.com/post/pihods9442)
-任务编号：KC304（3082）
-视频时间段 : 0:00-2:15
-中听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+【日本银河系农场-阿尔法星球】
+作者：Totoro
+校对：Windfish
 
  
 

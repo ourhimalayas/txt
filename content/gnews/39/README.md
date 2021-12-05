@@ -2,32 +2,43 @@
 ---
 
 
-## 立陶宛总统、外长及体育部长相继宣布外交抵制北京冬奥会
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1721459/)
+## “HCoin To the Moon” 获多项iTunes排行榜第一
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1722101/)
 
-#### 撰稿：日本东京方舟农场  幽蘭自得
+作者：纽约香草山农场 文真
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1DF0CA14-3BEA-4FC0-9563-CC512C47AA68.jpeg)（图片来自网络）
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-在距离北京冬奥会开幕仅剩不到两个月之时，立陶宛总统、外长和体育部长相继宣布对北京冬奥会进行外交抵制，同时还建议运动员也应考虑做出抵制。
+歌曲 “HCoin To the Moon” 在iTunes排行榜已经获得多项第一。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-05-at-9.09.46-PM.png)
+截至12月4日，“HCoin To the Moon” 在香港，新加坡，老挝，澳门，柬埔寨，蒙古iTunes 总榜排名第一；在香港，新加坡，美国，阿联酋，台湾，新西兰，马来西亚，波兰，加拿大，西班牙，越南，爱尔兰，澳大利亚，匈牙利，iTunes 摇滚榜单排名第一；同时，在香港，新加坡，台湾，马来西亚，新西兰，匈牙利，芬兰的iTunes 嘻哈榜单排名第一。
 
-据《希望之声》12月4日援引立陶宛LRT电视台网站消息报道，立陶宛总统代表在接受立陶宛电视台采访时表示，总统吉塔纳斯·瑙塞达（Gitanas Nausėda）将不会出席明年2月举行的北京冬奥会。
+“音乐灭共” 再次向世界展示了新中国联邦的实力，和新中国联邦人的团结，并且以独特的方式为喜币上市助力，打响了喜币在国际市场上的知名度。
 
-对此持同样态度的还有立陶宛外交部长。立陶宛外交部在发给LRT电视台的信息中称，外交部长兰茨贝格斯（Gabrielius Landsbergis）将不去参加北京冬奥会。
+参考链接：
 
-而在早些时候，立陶宛的教育、科学和体育部长尤尔吉塔·修格迪涅已经宣布她不会去参加北京冬奥会。
+1. [12月4号 Hcoin To The Moon 打榜记录（一）](https://gettr.com/post/pipfkj9cef)
+2. [12月4号 Hcoin To The Moon 打榜记录（二）](https://gettr.com/post/piqo7g77d5)
+3. [12月4号 Hcoin To The Moon 打榜记录（三）](https://gettr.com/post/piqeviff3a)
+4. [12月4号 Hcoin To The Moon 打榜记录（四）](https://gettr.com/post/piqwrn4802)
+5. [12月4号 Hcoin To The Moon 打榜记录（五）](https://gettr.com/post/piq5jrf7c6)
+6. [HCoin To the Moon iTunes排行榜最新更新](https://gnews.org/zh-hans/1720300/)
 
-不仅如此，立陶宛的议员们还表示，“这种级别的体育赛事不应该在不尊重人权和利用体育来改善其形象的独裁国家举行”。他们同时还建议运动员们应“表明公民立场，不要变成专制政权策划的戏剧的傀儡”。
 
-*参考链接：[各国外交抵制北京冬奥呼声达新高 立陶宛率先行动](https://www.soundofhope.org/post/571961)*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
 
-* * *
+总编：正义的小新
+编辑：Ivy001
+校正/发稿：我不在这里
 
-*素材采编：幽蘭自得*
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-*编辑：青衣青青*
-
-*发布：miumiu*
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 

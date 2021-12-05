@@ -2,93 +2,25 @@
 ---
 
 
-## 在疫苗灾难翻转之前 想尽一切办法活下去
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1722452/)
+## 中概股公司面临巨大挑战：恒大2.6亿美元债务违约、滴滴从美国纽交所退市
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1722598/)
 
-[https://gtv.org/video/id=61aca14487fa7e74c92b95fd](https://gtv.org/video/id=61aca14487fa7e74c92b95fd)
+翻译/撰稿：GoergeC（乔治）
+上传：追着曙光跑
 
-**郭文贵
-Miles Guo**
+近日，中概股公司接连爆出重大不利消息。上周五， 仅在美国上市五个月的互联网公司滴滴宣布将退出纽约证券交易所，并将寻求在香港上市。与此同时，今年负面传闻不断的中国地产巨头恒大集团无法偿还已经到期的2.6亿美元债务，同时爆出被广东省政府约谈。12月2日，美国证券交易委员会（U.S. Securities and Exchange Commission，SEC）更是通过针对中概股推出退市条款，即如果不能按规定提交审查材料将被退市。这一系列新闻表明中共权贵控制下的各行业公司将面临巨大的美元融资及偿债压力。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Image-2021-12-05-at-22.18.05.jpeg)
+**恒大因美元债违约被约谈：**12月3日，恒大集团在向香港证券交易所提交的文件中表示，已收到债权人要求支付约 2.6 亿美元的款项。而且， 11 月 6 日到期的 8250 万美元优惠券已经逾期。恒大表示鉴于目前的流动性状况无法保证该集团将有足够的资金继续履行其财务义务，并补充说明如果不这样做债权人可能会要求加速还款。这导致广东省政府召见了恒大董事长许家印。广东省政府在一份声明中表示，将应恒大的请求向该公司派出一个工作组，主要负责监督风险管理、加强内部控制并维持恒大的正常运营。
 
-我很乐观的是一两个月，我认为疫苗灾难一定会停
-I am very optimistic for one or two months, I think the vaccine disaster will definitely stop
+**滴滴出行宣布从纽交所退市：**12月3日，中国网约车巨头滴滴出行宣布计划退出纽约证券交易所并寻求在香港上市。这个决定是该公司在纽约证券交易所上市仅五个月后的一个惊人的逆转，因为它屈服于对其在美国上市感到十分不满的中国监管机构。滴滴尚未透露在香港上市是否会先于纽约退市。滴滴表示，其美国存托凭证 (ADR) 将在董事会选举中转换为该公司在另一家国际证券交易所（即香港证劵交易所）中可自由交易的股票。这将允许投资者将 ADR 换成香港上市的股票。如果愿意，他们可以提前出售。然而由于许多投资者选择套现，滴滴股价周五暴跌 22.1%。
 
-咱们就在4周前，美国法官是否要裁定这周不准强制医生打疫苗的事情上
-Just at 4 weeks ago, whether the American judge was going to rule that doctors were not allowed to do vaccine mandate this week
+**SEC称不披露信息将被摘牌：**12月2日，美国证券交易委员会（SEC）表示如果审计师不遵守美国监管机构的信息披露要求，在美国上市的外国上市公司可能会被摘牌。上周四，美国证券交易委员会通过了修正案，以最终确定实施《外国公司责任法》（HFCAA）的法律规则。由于此前中国监管机构一再拒绝上市公司会计监督委员会 (PCAOB) 的要求，该法律于 2020 年通过，旨在监督上市公司的审计，尤其是检查在美国上市和交易的中国公司。
 
-当时是所有的反馈90%概率是不可能
-At that time, 90% probability of all feedback is impossible
+新闻来源：
+1、[China’s Guangdong summons Evergrande boss after debt repayment warning](https://www.reuters.com/markets/rates-bonds/china-evergrande-gets-260-mln-guarantee-demand-2021-12-03/)
 
-但是就接着三天检察官、联邦法官全部颁发出来
-But in the next three days, prosecutors and federal judges all issued bans
-
-这对今天的美国来讲情势已经天覆地转了，包括消防员、警察拒绝
-For today’s America, the situation has turned upside down, including firefighters and policemen refused vaccine mandate
-
-你看看世界上谁最勇敢，你看哪个国家最强大，美国人
-You look at who is the bravest people in the world, which country is the strongest, is the Americans
-
-到目前为止在全世界最勇敢的，行动最多还是美国，包括法律上
-Until now the bravest and most action in the world is the United States, including in the area of law
-
-然后你看这个新兴强大之国澳大利亚，最极端的、最混蛋的
-Then you look at this newly powerful country Australia, the most extreme and the most asshole country
-
-但是行动力老百姓是最强的，很可悲啊
-But Laobaixing there are the strongest in mobility which is very sad
-
-德国这个国家是个极端的民族，极端的国家
-Germany is an extreme nation, an extreme country
-
-不是最好的东西生产出来，就是极端的灾难
-Either the best thing is produced, or it’s an extreme disaster
-
-历史一战二战到现在都是，包括跟共产党的关系
-from the history of World War I and World War II up to now, including the relationship with the Communist Party
-
-现在德国在走向另外一个极端，德国的政客之流氓你无法想象
-Now Germany is going to the other extreme, you can’t imagine the gangsters of German politicians
-
-我们这个公关公司最不想接的活儿，就是公关德国
-The least job that our PR company wants to take is doing PR in Germany
-
-再一个就是意大利，说意大利人就不可信，撒谎，他说一帮骗子
-The other one is Italy, saying that Italians are untrustworthy, they lie and he said that Italians are a bunch of scammers
-
-再一个就是德国人，他说就是一帮完全自私的、傲慢的、愚蠢的家伙
-The other one is the German, he said that they are a bunch of completely selfish, arrogant, stupid guys
-
-你看到了，你看，新上任的总统就你看明白了总理
-You have seen it, look at that new prime minister
-
-就这个样，是吧？这都是好朋友，但是我认为你一定要相信
-That’s it, right? These are all good friends, but I think you must believe
-
-现在跟我们站在一起的不是我们，它是全人类上有智慧的、有能力的、有行动力的人的共同需要
-It’s not just ourselves, it is the common need of all mankind who are wise, capable and actionable standing with us now
-
-我相信很快会逆转的，但在这之前你得想办法活下去
-I believe it will be reversed soon, but before that you have to find a way to survive
-
-* * *
-
-Date:12/05/2021
-原视频标题: 在疫苗灾难翻转之前 想尽一切办法活下去
-Do everything possible to survive before the vaccine disaster overturn
-原视频日期：2021/12/03
-原视频链接[https://gettr.com/post/pip15q5d9d](https://gettr.com/post/pip15q5d9d)
-任务编号：3110
-视频时间段 : 0:00-1:51
-中听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+2、[Explainer: How could China’s Didi delist from the New York Stock Exchange?](How%20could%20China's%20Didi%20delist%20from%20the%20New%20York%20Stock%20Exchange?)
+3、[SEC finalizes rule that allows it to delist foreign stocks for failure to meet audit requirements](https://www.cnbc.com/2021/12/02/sec-issues-final-regs-that-allow-it-to-delist-foreign-companies-that-dont-comply-with-audit-rules.html)
 
  
 

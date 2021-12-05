@@ -2,39 +2,94 @@
 ---
 
 
-## 疫苗受害者母亲：不要让你的孩子成为疫苗试验品
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1722194/)
+## 在疫苗灾难翻转之前 想尽一切办法活下去
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1722452/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/9a7eea5f7a49455199ae321c56134810-2.jpg)
-**简评：**
+[https://gtv.org/video/id=61aca14487fa7e74c92b95fd](https://gtv.org/video/id=61aca14487fa7e74c92b95fd)
 
-2021年3月31日，即将高中毕业的Abby接种了第一剂辉瑞疫苗，随即感觉头晕，一整天都在睡觉。第二天早晨，依然感觉不舒服的Abby因为控制不住的颤抖在上班中间被送到医院急救。Abby被诊断为新冠疫苗不良反应。没有人知道Abby的症状会变得怎样，接种疫苗7个月之后，Abby的右胳膊一直在颤抖。Abby接种的疫苗是实验性的，她是个实验品。家长们，不要让你们的孩子成为试验小白鼠。
+**郭文贵
+Miles Guo**
 
-[GTV视频链接](https://gtv.org/video/id=61a860763ff6481adce79055)
+我很乐观的是一两个月，我认为疫苗灾难一定会停
+I am very optimistic for one or two months, I think the vaccine disaster will definitely stop
 
-**视频字幕：**
+咱们就在4周前，美国法官是否要裁定这周不准强制医生打疫苗的事情上
+Just at 4 weeks ago, whether the American judge was going to rule that doctors were not allowed to do vaccine mandate this week
 
-我的女儿Abby，4个月前高中毕业，就毕业于这所学校。她是个非常健康的孩子。她从5岁开始跟从同一个教练训练垒球，在Lucas队。 2021年3月31日，Abby 接受了第一剂辉瑞疫苗。当时，辉瑞疫苗是唯一被批准可以在这个年龄组使用的。打完疫苗后，Abby感觉头晕，剩余的一整天都在睡觉。第二天早晨，4月1号，Abby醒来感觉一点都不好。
+当时是所有的反馈90%概率是不可能
+At that time, 90% probability of all feedback is impossible
 
-她换了班，我告诉她，我觉得你今天不应该上班，你要休息。但是她坚持去上班。上班几小时后，我接到人事部门打来的电话，说Abby脸色不好，颤抖到不能走路的地步。她很快被送到急诊，他们很快给她做了各种测试。给她静脉注射了各种药物，直到她被重度镇静。
+但是就接着三天检察官、联邦法官全部颁发出来
+But in the next three days, prosecutors and federal judges all issued bans
 
-她的这种神经反应没人知道为什么，她最终的诊断结果是新冠疫苗的不良反应。所有的问题和担心都没有确切的答案。医生不知道这些损伤会好转吗？会变得更糟吗？这是帕金森氏症的早期吗？沒有人知道，沒有人能回答。
+这对今天的美国来讲情势已经天覆地转了，包括消防员、警察拒绝
+For today’s America, the situation has turned upside down, including firefighters and policemen refused vaccine mandate
 
-你知道他们为什么不知道吗？因为还没有长期研究。Abby就是他们的研究。距离接种差不多7个月了，她的右胳膊一直在顫抖。 做完举重锻炼后，更加颤抖得无法控制。他们给所有的学生运动员2个选择：如果他们不打疫苗，就不能训练。她申请过医疗豁免，被拒绝了，并且告诉我们，给孩子打的疫苗是实验性的。
+你看看世界上谁最勇敢，你看哪个国家最强大，美国人
+You look at who is the bravest people in the world, which country is the strongest, is the Americans
 
-她是个实验品。今晚我在这里恳请大家，不要让你们的孩子们成为小白鼠。
+到目前为止在全世界最勇敢的，行动最多还是美国，包括法律上
+Until now the bravest and most action in the world is the United States, including in the area of law
 
-字幕：雨中漫步 | 听写：云岭 | 翻译：Roberts | PR：nights| 简评/文字整理/编辑：胖丁
+然后你看这个新兴强大之国澳大利亚，最极端的、最混蛋的
+Then you look at this newly powerful country Australia, the most extreme and the most asshole country
+
+但是行动力老百姓是最强的，很可悲啊
+But Laobaixing there are the strongest in mobility which is very sad
+
+德国这个国家是个极端的民族，极端的国家
+Germany is an extreme nation, an extreme country
+
+不是最好的东西生产出来，就是极端的灾难
+Either the best thing is produced, or it’s an extreme disaster
+
+历史一战二战到现在都是，包括跟共产党的关系
+from the history of World War I and World War II up to now, including the relationship with the Communist Party
+
+现在德国在走向另外一个极端，德国的政客之流氓你无法想象
+Now Germany is going to the other extreme, you can’t imagine the gangsters of German politicians
+
+我们这个公关公司最不想接的活儿，就是公关德国
+The least job that our PR company wants to take is doing PR in Germany
+
+再一个就是意大利，说意大利人就不可信，撒谎，他说一帮骗子
+The other one is Italy, saying that Italians are untrustworthy, they lie and he said that Italians are a bunch of scammers
+
+再一个就是德国人，他说就是一帮完全自私的、傲慢的、愚蠢的家伙
+The other one is the German, he said that they are a bunch of completely selfish, arrogant, stupid guys
+
+你看到了，你看，新上任的总统就你看明白了总理
+You have seen it, look at that new prime minister
+
+就这个样，是吧？这都是好朋友，但是我认为你一定要相信
+That’s it, right? These are all good friends, but I think you must believe
+
+现在跟我们站在一起的不是我们，它是全人类上有智慧的、有能力的、有行动力的人的共同需要
+It’s not just ourselves, it is the common need of all mankind who are wise, capable and actionable standing with us now
+
+我相信很快会逆转的，但在这之前你得想办法活下去
+I believe it will be reversed soon, but before that you have to find a way to survive
 
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+Date:12/05/2021
+原视频标题: 在疫苗灾难翻转之前 想尽一切办法活下去
+Do everything possible to survive before the vaccine disaster overturn
+原视频日期：2021/12/03
+原视频链接[https://gettr.com/post/pip15q5d9d](https://gettr.com/post/pip15q5d9d)
+任务编号：3110
+视频时间段 : 0:00-1:51
+中听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-编辑：【英国伦敦喜庄园编辑部】
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

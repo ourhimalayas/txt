@@ -2,34 +2,53 @@
 ---
 
 
-## Hpay将彻底颠覆传统交易方式
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1722121/)
+## 消费者研究组织对贝莱德将养老基金投资中共国提出警告
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1722228/)
 
-撰稿：纽约香草山教育部- Noemi
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-1.png)
-12月4日，郭文贵先生在大直播中爆料，Hpay功能将颠覆现有的交易模式，并摆脱传统的金融牌照。未来，Hpay在交易的私密性、安全性、便捷性与自由度上都为用户提供了独特体验。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-218.png)
-郭先生说，在未来的Hpay交易中，买卖双方只需要在喜联储通过KYC认证，便实现直接转账支付。而此类型转账，并不属于传统商业消费的范畴，因此，不需要当地的金融牌照，仅仅是喜联储之间的个人支付。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/9a7eea5f7a49455199ae321c56134810-4.jpg)图片来源：大纪元英文版
+来自《大纪元时报》网站12月4日的报道，美国历史最悠久的消费者权益保护组织“消费者研究”(Consumers’Research)于12月2日向10名美国州长发送了一封信，警告他们所在州的养老基金过度依赖于贝莱德（美国的投资管理公司）与中共国的紧密关系。
 
-郭先生指出，在2022年的4-5月间， Hpay可以像GFASHION一样，在接受的国家和地区，会成为各大商户认可的支付方式。而明年的6-7月间，Hpay将在全世界更大的范围获得认可。
+据《福布斯》报道，首席执行官拉里·芬克(Larry Fink)领导下的贝莱德是首家在中共国3.5万亿美元共同基金行业获得运营许可的外资公司。
 
-新闻链接：[2021年12月03日 文贵大直播](https://gtv.org/video/id=61aa1cecd6388d55041591e6)
+消费者研究组织执行董事威廉·希尔德(William Hild)向华盛顿州、佛罗里达州、纽约州、内华达州、南卡罗来纳州、俄克拉荷马州、宾夕法尼亚州、蒙大拿州、内布拉斯加州和西弗吉尼亚州——投资于贝莱德最多的十个州的州长发出了警告。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
+华盛顿州投资的资金最多，其国家养老基金中有130亿美元投资于贝莱德。
 
-总编：木白
+希尔德说，这封信是在2021年提交给美国国会的报告中的调查结果之后发出的，目的是为了“让美国消费者意识到贝莱德正在拿他们的钱押注中共国”。
 
-编辑：DM
+“通过这样做，他们正在将美国的安全以及来自美国投资者的数十亿美元置于危险之中。”
 
-校正/发稿：浪迹天涯
+希尔德说：“我们看到的是，虽然贝莱德在美国是美德的象征，但他们正在用美国的养老金来帮助我们的对手。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-1.png)
+“贝莱德对中共国市场毫不掩饰的热情，与人们对中共国在世界上日益上升的地位、其独裁治理模式及其要取代美国成为世界超级大国的野心的担忧背道而驰。”
+
+芬克与中共政权关系密切，并被中国共产党评为“可信赖的伙伴”，自21世纪初以来一直是中共国的顶级外国经济顾问之一。
+
+据《华尔街日报》报道，芬克在2020年3月致股东的一封信中表示，他继续“坚信，从长远来看，中共国将成为贝莱德最大的机遇之一，无论是对资产管理公司还是投资者而言都是如此”。
+
+希尔德指责芬克“选择中国而不是美国”，这样做违背了他自己股东的利益和他自己国家的安全。
+
+他补充说：“我们不能让像拉里·芬克(Larry Fink)这样的高管在讨好世界领先的侵犯人权者之一的同时尝试并告诉美国人如何生活。”
+
+简评：
+
+中共国能加入世贸，与世界各国进行广泛的经济往来，实现经济飞速发展，离不开欧美国家，尤其是美国的支持。西方国家的利益集团想要从中共国的独裁统治模式中获利，却又不想受其伤害，想法有点儿太美好。
+
+独裁的中共政权利用本国廉价劳动力来为全世界制造廉价商品，这种侵犯人权的经济发展模式不是一朝一夕，西方国家也不是近日才意识到这一点。如今，这种畸形的经济发展模式不能继续下去，甚至会因为巨大的债务问题而重创西方经济，可能使得西方投资者血本无归，这时候，西方国家利益集团才考虑到所谓的侵犯人权和国家安全，似乎有点儿为时已晚。它们现在要做的不仅仅是要考虑如何减损自己的投资损失，更应该检讨的是这样榨取它国劳动人民的血汗来造富自己，是否是一种人道的行为。
+
+新闻链接：
+
+[Consumers’ Research Warns US Governors About BlackRock’s Retirement Fund Investments in China](https://m.theepochtimes.com/consumers-research-warns-us-governors-about-blackrocks-retirement-fund-investments-in-china_4137108.html)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
  

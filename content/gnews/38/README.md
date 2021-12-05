@@ -2,24 +2,37 @@
 ---
 
 
-## COVID-19 最新情报｜拜登“强烈支持”为 5 岁以下儿童接种疫苗 专家警告：“疫苗伤害像疤痕，无法治愈，许多孩子会死”
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1721756/)
+## 俄罗斯集结17.5万大军压境乌克兰
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1722102/)
 
-**撰文｜ 台湾宝岛农场 疫情关注组 / 发布时间｜5/12/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+作者：纽约香草山农场 文真
 
-美国总统拜登周四（1日）表示，他“强烈支持”为 5 岁以下儿童接种疫苗，并将竭尽所能为 FDA 的工作提供资源，以尽快促成该进程。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-拜登在周四的“今冬抗击疫情计划”新闻发布会上指出，“我知道五岁以下儿童的父母想知道何时可以为他们的小孩子接种疫苗，这是我现在最常被问到的问题。”关于这一点，他续指，“我强烈支持对五岁以下儿童使用疫苗开展独立科学审查，我将尽我所能支持 FDA 安全、尽快地做到这一点。”
+12月3日，美国媒体声称获得非保密性美国情报文件显示，俄罗斯在与乌克兰边境附近集结17.5万名士兵，正在为发起一次 “多线进攻”的入侵计划作准备。该报道证实了郭文贵先生两次在直播中的爆料，中共与俄罗斯合谋，计划同时进攻台湾和乌克兰。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-05-at-9.12.15-PM.png)
+包括了卫星图片的美国情报文件显示，俄罗斯军队在四个地方集结，调动涉及100个营级战术小组，约有17.5万人，其中，50个战术小组已经部署，还有新运抵的坦克和大炮。
 
-**另一方面**，mRNA 技术发明者之一的罗伯特·马龙 (Robert Malone) 博士早前多次在公开场合警告指，他想不出任何理由要为儿童**接种 COVID-19 疫苗，对于健康无任何疾病的儿童来说，染上新冠病毒之后，重症及死亡的概率几乎为零。**
+一位匿名官员说，俄罗斯计划在2022年初对乌克兰发动军事进攻，其集结部队的规模是去年春天，俄罗斯在乌克兰边境附近举行的快速军事演习的两倍。
 
-但是**接种疫苗，就会对心脏造成严重损伤，这种伤害就像在心脏上留下一道疤痕，是无法治愈，不会消失的。它增加心律失常的风险，导致猝死。他认为，“不幸的是，在人们醒来之前，我们将不得不看着许多孩子死去。”**
+此前几天，美国务卿布林肯曾透露，有证据表明，俄罗斯制定了针对乌克兰采取重大侵略性行动的计划，布林肯警告俄罗斯，美国会实施新的制裁。周五，拜登政府表示正在准备严厉的措施，以应对任何可能的俄罗斯军事进攻。目前，有消息称拜登-普京的紧急线上峰会正在进行中。
 
-注：马龙博士是一位专门研究传染病学的医生，也是一位致力于高级对策开发的科学家。他曾是辉瑞和 Moderna COVID-19 疫苗所使用的 mRNA 疫苗技术平台，以及 Inovio 使用的 DNA 疫苗技术平台的原始发明者之一。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-3.jpg)
-来源｜[新闻发布会](https://www.youtube.com/watch?v=6fxMJ1ak2RU) / [Malcone 采访](https://freeworldnews.tv/watch?id=618dc8042fa19644c8b64393&amp;s;=03)
+参考链接：[Russia Preparing 175K Troops For Ukraine Offensive, US Intelligence Now Claims](https://www.zerohedge.com/geopolitical/russia-preparing-175k-troops-ukraine-offensive-us-intelligence-now-claims)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
+
+总编：文特
+编辑：Jack Li文阳
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 
