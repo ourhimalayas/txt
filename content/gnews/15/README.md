@@ -2,46 +2,18 @@
 ---
 
 
-## 五角大楼称中共在台湾附近进行的是“演习”
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1723417/)
+## 【文贵先生大直播PPT】近期亚洲政治军事形势
+` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1723467/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+撰稿：舒平风，文晓（待命）
+PPT美化：健身健心
+文案终审：三票先生，顽童先生
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/12/A.jpg)thevibes.com
-MSN发表文章，题目是“五角大楼负责人说，中共在台湾附近的行动相当于在‘演习’”，副标题指出，美国国防部长劳埃德·奥斯汀（Lloyd Austin）周六（12月4日）表示，中共最近在台湾附近的大规模军事行动类似于“演习”，他重申了华盛顿对台北的大力支持。
+【2021年12月5日文贵先生大直播PPT：近期亚洲政治军事形势】
+![](https://assets.gnews.org/wp-content/uploads/2021/12/57-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/52-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/53-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/54-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/55-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/56-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/111-2-1.jpg)
+* * *
 
-全文如下：
-
-拜登政府的五角大楼负责人表示，美国仍然致力于支持“台湾自卫的能力”，在一次主要针对日益狂妄的中共所带来的一系列挑战的演讲中，他强调了华盛顿与北京的“真正差异”。
-
-奥斯汀在加利福尼亚州西米谷（Simi Valley,）里根总统图书馆（the Reagan Presidential Library）举行的国防论坛上发表讲话。
-
-近几个月来，中共军方在台湾附近展开了一系列日益咄咄逼人的海、空军事行动，并声称这是自家的行动。
-
-“这看起来很像他们在探索自己真正的能力。”奥斯汀说，“看起来很像演练。”
-
-一些分析人士暗示，北京可能在拜登上任的第一年考验他。
-
-奥斯汀说，中共国是目前唯一一个能够利用其“经济、外交、军事和技术力量，对一个稳定和开放的国际体系提出持续挑战”的大国。
-
-他接着说，世界上最大的两个经济大国“在利益和价值观上存在着真正的分歧，但管理这种分歧的方式很重要”。
-
-他说，中共领导人越来越多地表达了他们“对现行秩序的不满——以及他们取代美国全球领导地位的目标”。但是，奥斯汀说：“我们既不寻求对抗，也不寻求冲突……我们不寻求新的冷战，也不寻求一个分裂成对立集团的世界。”
-
-这位退役的四星上将表示，面对中共的挑战，美国将深化与该地区友好国家的关系，包括通过联合演习。
-
-奥斯汀说：“我们仍然坚持一个中国的政策，但也坚持“我们在《台湾关系法》中的承诺，即支持台湾自卫的能力，同时保持我们抵抗任何危及台湾人民安全的武力手段的能力。”
-
-（全文完）
-
-在笔者眼里，这个劳埃德·奥斯汀自从出任国防部长以来，几乎没有抗衡中共的行动，相反为拜登制造了阿富汗的乱局，热衷于在军内拉种族仇恨，搞军内的疫苗强制接种等，对他一直没有好感，但是此番表态，稍微有点感觉了？希望他不是在演戏。
-
-需要有这样的认知：“中共国是目前唯一一个对稳定和开放的国际体系提出持续挑战的国家”。但必须放弃“我们既不寻求对抗，也不寻求冲突”的想法。面对一个恶魔，它不仅仅是在挑战国际秩序，而是在迫害人类、杀戮无辜，你还不与这样的集团对立？不将其铲除？除非你还没有达到这样的认知，或者你也是罪恶集团的一部分。
-
-原文链接：
-
-[https://www.msn.com/en-ca/news/world/pentagon-chief-says-china-ops-near-taiwan-resemble-rehearsals/ar-AARt85d?ocid=msedgntp](https://www.msn.com/en-ca/news/world/pentagon-chief-says-china-ops-near-taiwan-resemble-rehearsals/ar-AARt85d?ocid=msedgntp)
+发稿：云起时
 
  
 
