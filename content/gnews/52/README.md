@@ -2,73 +2,36 @@
 ---
 
 
-## 班农的传票将1.6委员会吓得半死
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1717688/)
+## 台湾落实首家使用H-Pay付款的商家
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1718012/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+作者：纽约香草山 医疗部 -云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间12月2日，经台湾宝岛农场战友的多次推进，台湾地区已经落实了首家可以使用H-Pay付款的商家——伊松坊。
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/12/B-1.jpg)mangumstarnews.net
-《戴维哈里斯媒体》（DJHJ Media），发表文章，题目是“对史蒂夫·班农（Steve Bannon）的传票将腐败的1.6众议员吓得半死”。【1】
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide4-2.jpeg)
 
-全文如下：
+据了解，该商家售卖爆料革命战友自家茶园生产的大禹领顶级高山茶，同时，商家已经特别留出了一千两茶叶特供爆料革命战友购买，且只接受H-pay付款。另外，战友下单后，商家可以直接寄送给世界各地的订购战友。据盖特消息，郝海东先生在获知此讯息后，已经抢先下单，成为第一位使用H-Pay付费的顾客。
 
-腐败的1.6国会调查委员会被吓坏了，因为史蒂夫·班农（Steve Bannon）对他们使用了同样的策略，他们正试图对其他人使用。他已经提交文件，迫使（1.6调查）委员会交出所有材料，包括他们之间的通信。
+目前，商家预计在2022年1月开放预订明年5月份出产的春茶，更多消息，请关注盖特上的相关信息。
 
-班农将聚光灯对准了1.6委员会，并希望揭露这样一个事实，即他们无视那些犯下选举欺诈罪的人，以便将川普支持者描绘成暴力分子。
+参考链接：
+1）[台灣第一間接受HPAY 大禹嶺茶莊](https://gettr.com/post/pig262469b)
+2）[第二家 喜支付 茶園](https://gtv.org/video/id=61a8303b44c1fe7a6c3cff11)
 
-委员会指控他藐视法庭，对此他没有意见，但当你指控某人犯罪时，你必须交出你声称掌握的所有证据，这就是腐败的（1.6调查）委员会的问题所在。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
 
-他们希望人们显示一切，包括他们的内裤颜色；但他们想保留他们自己所做的一切，即使是法律要求的。
+总编：文徬
+编辑：Irene木木
+校正/发稿：谐趣园
 
-来自《门道专家》：
-
-*右翼媒体人物史蒂夫·班农（Steve Bannon）——唐纳德·川普的顾问——在拒绝与众议院1月6日暴动调查委员会合作后，上个月再次成为近40年来第一个因藐视国会罪而被起诉的人。现在，班农先生似乎在利用他的刑事案件来揭露栽赃他的委员会。*
-
-*据几位法律专家称，班农正试图迫使调查人员公开与他们交谈的人和他们所说的话，披露委员会相关人的通信，并为其他有抵触情绪的证人提供一种策略范本。*
-
-*专门研究国家安全事务的律师凯尔·麦克拉纳汉（Kel McClanahan）说：“如果你敢问你的问题，可以给国会一记重拳，那么反对国会是没有成本的。”*
-
-*由于班农先生面临刑事指控，他有权获得对他指控的证据。这位具有一种典型的银河系大脑的川普总统的前高级顾问班农正在通过要求公开一些证据而进行反击。*
-
-美国人应该知道国会在1月6日国会山抗议之前、中间和之后采取了哪些行动。
-
-\*\*为什么川普对国民警卫队的呼吁被佩洛西置若罔闻？
-
-\*\*那天有多少FBI线人参加了集会？他们煽动暴力了吗？这些线人与爱国者组织合作了多久？
-
-\*\*雷·埃普斯（Ray Epps）是谁？为什么这个政府的举报人要领导调查国会大厦的电话？
-
-\*\*为什么在阿什利·巴比特（Ashli Babbitt）被冷血谋杀之前，国会大厦的警察离开了，没有把门关上？
-
-\*\*为什么杀害巴比特的凶手被允许自由行走？
-
-\*\*为什么他们忽视了罗珊·博伊兰（Rosanne Boyland）被国会警察谋杀的事？
-
-\*\*司法部长梅里克·加兰（Merrick Garland）会因为在博伊兰调查中撒谎而被判有罪吗？
-
-\*\*国会警察局差点杀了菲利普·安德森（Philip Anderson）和博伊兰之后，菲利普·安德森什么时候会被传唤出庭作证？
-
-\*\*为什么在2020年选举后，1000多份欺诈的法律宣誓书被忽视了？
-
-\*\*为什么联邦调查局和司法部无视所有欺诈指控？
-
-\*\*为什么政府从那天起扣留了140,00小时的安保视频记录？
-
-\*\*他们隐藏了什么？
-
-（全文完）
-
-民主党人的1.6国会调查委员会弄巧成拙，这会儿该演砸了，拜登司法部的检方提出了违宪的“不公开文件”要求，竟然荒唐地狡辩：“公开文件将会误导民众，是在用媒体进行审判，而不是法院审判”，连左派媒体都感觉受到了侮辱，站出来力挺班农先生【2】。
-
-该到揭开盖子的时候了，1.6国会大厦暴动的真相要还原，2020大选真相要揭露，中共病毒疫苗阴谋要戳穿，邪恶集团、中共的大限已近。
-
-有关链接：
-
-【1】[https://djhjmedia.com/steven/steve-bannons-subpoenas-are-scaring-corrupt-j6-house-members-to-death/](https://djhjmedia.com/steven/steve-bannons-subpoenas-are-scaring-corrupt-j6-house-members-to-death/)
-
-【2】[https://gnews.org/zh-hans/1711504/](https://gnews.org/zh-hans/1711504/)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

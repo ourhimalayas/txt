@@ -2,44 +2,35 @@
 ---
 
 
-## 拜登的疫苗授权在蒙大拿州的裁决中再次受到打击
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1720726/)
+## 通用汽车、福特和克莱斯勒拒绝遵守Covid-19疫苗强制令
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1721034/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/120401-1.jpg)随着 COVID-19 病例的增加，Wolters Kluwer 发布了所有 50 个州的疫苗和口罩授权、疫苗护照和雇主责任保护的新数据
-“未接种疫苗者的自由权益不容侵蚀。”
+**据《Daily Expose》，2021年12月2日报道 ：**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/a3jv1-1mwre.jpg)**图片源自：Daily Expose**
+三大国际汽车制造商将不会要求其员工遵守Covid-19疫苗强制令。经过谈判，国际汽车工会、美国联合汽车、航空航天和农业机械工人联合会达成一项协议，防止通用汽车、福特和克莱斯勒的数千名员工不得不遵守拜登的专横命令。
 
-蒙大拿州也对拜登现在步履蹒跚的联邦疫苗授权说不，又一个州否定了这个授权。 参议员史蒂夫·戴恩斯宣布了这一消息：
+尽管如此，工厂的员工仍将被要求在工厂内戴口罩，但工会负责人已设法使疫苗接种状态的披露成为自愿，而非强制要求。
 
-“蒙大拿州的大新闻”戴恩斯在推特上写道。“拜登的过度的疫苗强制令威胁到蒙大拿州的医院、蒙大拿州的医护人员和寻求获得基本护理的蒙大拿州人。我们必须赢得这场斗争。”
+一份声明写道：“在周一晚上的一次会议上，由美国汽车工人联合会、福特、通用汽车和Stellantis组成的COVID-19联合工作组，已经就美国汽车工人联合会成员，自愿和保密披露疫苗接种状况的政策达成一致。
 
-参议员戴恩斯曾通过公告回应蒙大拿州总检察长奥斯汀·克努森。
+“每家公司都会就如何、何地和何时报告他们的疫苗接种情况，向员工提供额外的沟通。”
 
-“对于蒙大拿州的医护人员来说是个好消息：一位联邦法官刚刚批准了我们对CMS疫苗的禁令请求。这项非法授权现在在所有50个州都被阻止。”
+专责小组将继续鼓励员工接种疫苗，并向公司老板披露他们的状况。还强 烈鼓励美国汽车工人联合会成员的家人通过大量注射和加强针来对抗冠状病毒。
 
-**简评：**
+声明继续解释说：“在审查了CDC和OSHA指南的状态后，工作组还决定，此时在所有工作场所继续戴口罩最符合工人安全的利益。”
 
-蒙大拿州否定了拜登的强制疫苗授权，同时更多的州也已经醒来。疫苗灾难的代价太大了，人们在用生命捍卫自己的权利和唤醒其他的同胞。伴随着各个州陆续赢得了这场斗争，终止疫苗指日可待。
+虽然汽车制造商的员工免受拜登的疫苗强制令，但美国的其他行业却没有那么幸运。运输安全管理局（TSA）已被告知，它必须要求所有员工接种疫苗。
 
-原文链接：[‘This Unlawful Mandate is Now Blocked in All 50 States’: Biden’s Vaccine Mandate Suffers Another Blow in Ruling for Montana](https://thekylebecker.substack.com/p/this-unlawful-mandate-is-now-blocked)
+**文章来源：**[https://dailyexpose.uk/2021/12/02/gm-ford-and-chrysler-refuses-to-comply-with-covid-19-vaccine-mandate/](https://dailyexpose.uk/2021/12/02/gm-ford-and-chrysler-refuses-to-comply-with-covid-19-vaccine-mandate/)
 
-*翻译/简评: Johnston2021*
+翻译：洛杉矶盘古农场–Raul
+校对：洛杉矶盘古农场–Mike Li
+编辑：洛杉矶盘古农场–心照
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-*校对: clau*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

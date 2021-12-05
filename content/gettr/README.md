@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/5/2021 2:16 AM (UTC)`
+
+12/4/2021 Miles Guo’s GETTR: The actual population of Communist China is less than 1 billion; the humanitarian crisis in Afghanistan is the result of Taliban groomed by the CCP; “Hcoin to the Moon” is the music of salvation and enlightenment; massive arrests are being made all over the Communist China, and many banks are committing fraud: the media is covering up truth about the COVID vaccine disaster, but the vaccine mandate will soon be over<br/><br/>12/4/2021 文贵盖特：中共国人口低于10亿；阿富汗的人道灾难是中共培养塔利班的结果；Hcoin to the Moon是救人、开智的音乐；国内各地在抓人，大量银行造假；疫苗灾难被媒体掩盖，但强制打疫苗很快会完蛋<br/>
+![img](https://media.gettr.com/group37/getter/2021/12/05/02/411b4ac2-bb9c-cd21-d3ea-71c68061668f/out.jpg)
+
+---
+
 `@miles 12/5/2021 1:49 AM (UTC)`
 
 “Hcoin To the Moon” Hits #1 🥇on 14 Countries’ iTunes Rock Charts on 2nd Day of Launch<br/>🎉🎉🎉🎉🎉🎉🎉<br/>https://gnews.org/1720106/<br/><br/>Hcoin To the Moon 上线第2天位列14国iTunes摇滚音乐榜首🥇<br/>🎉🎉🎉🎉🎉🎉🎉<br/>https://gnews.org/zh-hans/1720105/
@@ -146,13 +153,6 @@
 `@miles 12/2/2021 5:30 PM (UTC)`
 
 12月2日， 七哥的新歌终于可以正式上线打榜了，感谢亲爱的兄弟姐妹们！🎉🎉🎉🎉🎉🎉🎉🔥🔥🔥🔥🔥🔥🔥 <br/><br/>Hcoin to the Moon - Single by Miles Guo https://music.apple.com/au/album/hcoin-to-the-moon-single/1592902212 <br/><br/>Hcoin To the Moon (Karaoke Version) - Single by Miles Guo https://music.apple.com/au/album/hcoin-to-the-moon-karaoke-version-single/1593342075 <br/><br/>
-
----
-
-`@miles 12/2/2021 12:20 PM (UTC)`
-
-12月2号：尊敬的战友们好……感谢旧金山的文心战友，找到了这个视频．从这个视频看七哥像个处男士是的．很腼腆呢？　【七哥，这应该是您第一次直播改网友称呼为战友，对不对😅 2018年1月4日】
-![img](https://media.gettr.com/group12/getter/2021/12/02/12/20/bea8e2fe-8efb-2205-1832-1012e592a3ac/out.jpg)
 
 ---
 

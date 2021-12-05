@@ -2,23 +2,40 @@
 ---
 
 
-## 为逃避疫苗接种，欧洲越来越多人通过网络购买假疫苗护照
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1716872/)
+## 中共以国安措施掩盖真实疫苗灾难
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1717995/)
 
-韩国首尔天池农场
-翻译：zzballack　
-上传：无明逆流
+作者：纽约香草山农场 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月3日，郭文贵先生在直播中转达了国内某医学人士冒着生命危险传递出的中共国疫苗灾难的真实情形。
 
-据《布雷特巴特新闻网》（Breitbart News）12月3日报道，意大利警方声称，网上销售的假疫苗护照数量激增，一些医生甚至可能参与了假证明的销售。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2E5766d-1eb78JYJ06e18f6755.jpg)图片来源：原新闻
-意大利热那亚（Genoa）的邮政总局局长卢西亚·姆斯卡里（Lucia Muscari）表示，参与买卖假疫苗护照的人越来越多，这个市场正在爆发式增长。姆斯卡里告诉瑞典电视台（SVT）：“那些想购买疫苗护照的人不仅根本不想接种疫苗，而且想在没进行核酸检测的情况下进入健身房和餐厅等公共场所以及工作场所。”
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide1-4.jpeg)
 
-11月26日在米兰市，意大利金融警察突击检查并逮捕了几个人，缴获假疫苗护照。他们说这是在加密消息应用程序电报群（Telegram）上出售的，卖家只接受加密货币付款。警官法比奥·费拉里（Fabio Ferrari）说：“我们看到不仅在意大利，而且在整个欧洲，假疫苗护照的供需量都非常大。我们逮捕的一位17岁少年甚至与俄罗斯黑客合作。但是人们没有意识到，他们提供的身份证和病历文件等个人隐私信息，正被转卖到其它地方。”意大利警方还怀疑一些医务人员可能也在从事制造假疫苗证书。
+据这位爆料人透露，中共在各省、市、地区的医院内24小时派驻警察，以国安手段严密控制因接种新冠疫苗导致死亡和突发性疾病的相关信息泄露。
 
-疫苗护照是疫苗暴政的一部分。面对暴政，全世界的公民都有不服从的义务，假疫苗护照也是一种捍卫个人权利的反抗形式，但在此过程中一定要注意个人隐私信息的安全。
+在这位爆料人已知的范围内，墙内因新冠疫苗死亡的人数已达七万余人，且墙内的新冠疫苗致死率估计至少是台湾的1000至1500倍。
 
-新闻来源：[Fake European Coronavirus Vaccine Passport Sales Surging Online](https://www.breitbart.com/europe/2021/12/03/fake-european-coronavirus-vaccine-passport-sales-surging-online/)
+爆料人提到，中共国内出现新冠疫苗后遗症反应最多的是老年人，他们的症状主要是突发性的多种癌症。然而，中共竟以环境污染导致癌症为由，愚弄、欺骗墙内民众，以此掩盖新冠疫苗的危害。另外，新冠疫苗导致突然死亡的案例多数来自中青壮年。同时，墙内女性子宫癌、卵巢癌、胸腺癌的病例数也成几百倍地增长。
 
+这位爆料人提及的最重要的信息为，中共正在给幼儿园儿童强制注射新冠疫苗，这将导致无法避免的疫苗灾难。其原因在于，但凡接种过新冠疫苗的孩子，他们身上的细胞会变异并迅速早熟，其速度是过去的很多倍。因此，即使这些接种儿童不出现死亡案例，他们最终也会患有肿瘤类疾病。
+
+郭先生解释，墙内孩子躲避新冠疫苗灾难的唯一方式就是不上学，尽一切可能不接种新冠疫苗。
+
+参考链接：[2021年12月03日 文贵大直播](https://gtv.org/video/id=61aa1cecd6388d55041591e6)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
+
+总编：Irene木木
+编辑：Irene木木
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
