@@ -2,31 +2,32 @@
 ---
 
 
-## 安徽潜山交通事故：司机突发脑溢血致车辆失控
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1721217/)
+## 中共对台湾原住民的统战手段遭曝光
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1721246/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Unknown-9.jpg)安徽潜山交通事故：司机突发脑溢血致车辆失控 网络图片
-据新浪新闻中心12月5日报道，12月2日，安徽省潜山市一中型客车与一自卸货车相撞，造成8人死亡、3人受伤。安庆及潜山市公安局在公安部、省公安厅的技术支持下，经现场勘查鉴定，认定该起事故发生的直接原因系中型客车驾驶员在驾驶过程中突发脑溢血、意识丧失，致使车辆失控、驶入对向车道，与自卸货车发生碰撞。
+作者：东京樱花团—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间12月1日的，台湾媒体消息称，台湾原住民族委员会主委夷将-拔路儿表示，对于台湾国安部门于今年2月透露的、中共对台湾原住民进行统战工作一事，原民会已经掌握了相关资料。对此，原民会正在尽量降低对中共经济产业方面的依赖，并积极拓展南太平洋、欧洲和日本市场。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-05-上午10.45.00.png)圖片來源：原民會主委夷將‧拔路兒 (資料照片／中央社)
+据台湾国安部门的调查显示，中共对台湾原住民有七大统战手法，分别是经济采购、资金捐赠、文化交流、对台宣传、媒体传播、政治倡议和学术调研。对此，台湾民进党立委在立法院回答质询时指出，相较于对待维吾尔人的种族灭绝行动，中共对台湾原住民的统战方式更加隐晦，但原民会应该警觉并有所作为。
 
-一直担心狼来了，最终狼还是来了。全球强制推行新冠疫苗后，不断报道有驾驶员在行车途中突发脑溢血死亡，导致车辆失控，引发他人受伤、死亡的案例。甚至还有飞行员在高空突发心梗和脑梗的报道。一起两起事故可能归为偶然，但是随着类似的事故频频出现，不由得令人起疑：问题到底出在哪里？为什么大面积接种疫苗之后这类事故频频发生？这种实验性的疫苗是否真的能够抵抗病毒并且适合大面积接种甚至强行接种？
+夷将也强调，对于少数民族的语言和文化，中共一贯使用同化的方式将其逐步消灭，台湾原住民族应对中共保持高度警惕。
 
-病毒还没结束，疫苗灾难接踵而至，人类生存面临前所未有的挑战。人命关天，接种疫苗需小心，尤其是给孩子接种更要谨慎。
+参考链接：[原鄉遭中共統戰 原民會：經濟產業降低對中依賴](https://cn.rti.org.tw/news/view/id/2118270)
 
-新闻参考链接：[https://news.sina.com.cn/c/2021-12-05/doc-ikyakumx2087573.shtml](https://news.sina.com.cn/c/2021-12-05/doc-ikyakumx2087573.shtml)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-* * *
+总编：Irene木木
+编辑：Lakeman文仁
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

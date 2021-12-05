@@ -2,23 +2,26 @@
 ---
 
 
-## 爱尔兰参院支持台湾并谴责中共侵害人权
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1721247/)
+## 洪都拉斯副总统候选人表示将不与中共建交
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1721250/)
 
 作者：纽约香草山 医疗部 云豹
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间12月1日，媒体消息报道称，爱尔兰参议院当天通过数项决议表示，将支持台湾参与国际组织，同时反对中共以武力侵略台湾并谴责中共对人权的侵害。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-05-上午10.45.12.png)
-据了解，这些决议由前副总理、现任参议员麦道威等共计17位参议员联合提出，当中要求爱尔兰政府持续坚定地支持台湾民众享有人身与政治自由，增进与台湾政府和人民的互动。同时，爱尔兰政府应拒绝任何企图妨碍爱尔兰国会议员与台湾政府和民众互动的不当干涉，并谴责所有试图阻挠台湾政府和民众参与国际组织或国际人道倡议的作为。
+当地时间12月2日，在卡斯特罗赢得洪都拉斯的总统大选后，该国副总统人选之一的纳斯拉亚当天表示，洪都拉斯新政府会优先考虑与美国的关系，将不计划与中共建交。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-05-上午10.57.32.png)
+纳斯拉亚在接受采访时明确，洪都拉斯与中共的任何关系都必须拿来与对美关系权衡考量，其原因在于，美国是洪都拉斯的贸易盟友，双方也是紧密的历史盟友。因此，洪都拉斯不会考虑与中共的关系，但会继续维持与台湾的良好互动。
 
-提案联署人参议员威尔森表示，台湾与欧盟国家同为遵从民主、法治、自由、人权等普世价值的好伙伴，爱尔兰政府不应畏惧中共的压力，反之，更应保持与台湾的良好互动。
+对此，台湾媒体也强调，洪都拉斯与台湾建交超过80年，且双边合作计划成效显著，未来，台湾将与洪都拉斯新政府持续深化双方的合作关系。
 
-参考链接：[愛爾蘭參院通過增進對台關係 批中國侵害人權](https://www.cna.com.tw/news/aipl/202112020018.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+参考链接：
+1）[洪都拉斯下任政府立场急转弯 暗示不会与中国建交](https://www.reuters.com/article/honduras-president-china-dip-pol-1203-idCNKBS2II051)
+2）[宏都拉斯副總統：與美國友好就不須與中國建交 跟台灣的關係會持續](https://www.msn.com/zh-tw/news/world/%E5%AE%8F%E9%83%BD%E6%8B%89%E6%96%AF%E5%89%AF%E7%B8%BD%E7%B5%B1%E8%88%87%E7%BE%8E%E5%9C%8B%E5%8F%8B%E5%A5%BD%E5%B0%B1%E4%B8%8D%E9%A0%88%E8%88%87%E4%B8%AD%E5%9C%8B%E5%BB%BA%E4%BA%A4-%E8%B7%9F%E5%8F%B0%E7%81%A3%E7%9A%84%E9%97%9C%E4%BF%82%E6%9C%83%E6%8C%81%E7%BA%8C/ar-AARoOtO)
+3）[宏都拉斯副總統人選：與美關係好就不需要與中國建交](https://www.cna.com.tw/news/firstnews/202112030008.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-总编：Irene木木
-编辑：AN
+总编：文徬
+编辑：Irene木木
 校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**

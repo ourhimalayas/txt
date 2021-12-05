@@ -2,32 +2,23 @@
 ---
 
 
-## 美国SEC要求在美上市中共公司披露信息
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1721249/)
+## 尽管大力推广第三针英国11月期间80%的新冠死亡病例是完全接种者
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1721296/)
 
-作者：纽约香草山农场 007
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月2日，美国证券交易委员会SEC出台的新规定中要求，所有在美国证券交易所上市的中共国公司必须披露其是否由政府实体拥有或控制，并提供相应的审计检查证据。同时，新规还要求所有通过可变利益实体在美上市的中共国公司加强对自身相关信息的披露。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-05-上午10.54.42.png)
-有关报道显示，中共向来拒绝海外监管机构对其国内会计师事务所的检查。由此，SEC此次新规将影响至少两百多家在美上市的中共国公司——这些公司或将失去在美上市的资格，从而降低中共国公司对美国投资者的吸引力。
+翻译：喜国公民
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Hospital.png)图片来自网络
+[根据英国卫生安全局于](https://dailyexpose.uk/2021/12/04/4-in-5-covid-deaths-fully-vaccinated-november/)[2021年12月2日公布的 “新冠疫苗监测报告”显示](https://dailyexpose.uk/2021/12/04/4-in-5-covid-deaths-fully-vaccinated-november/)，11月1日至11月28日期间的绝大多数新冠病例是在完全接种疫苗的人群中。
 
-据了解，SEC本次新规的制定依据美国国会于2020年12月通过的一项法律，该法律旨在确保在美国上市的外国公司，特别是中共国公司，遵守美国的相关规定。
+在期此间，18岁以上接种疫苗的人口占新冠病例的84%，而未接种疫苗的人口仅占16%。
 
-参考链接：[焦点：美国证券交易委员会要求在美上市中国企业披露所有权结构和审计细节](https://cn.reuters.com/article/us-sec-china-listed-firms-audit-1203-idCNKBS2II031)
+不幸的是，报告还显示，尽管政府大力推广强加针，但在年11月1日至11月28日期间，绝大多数的新冠住院病例是在完全接种疫苗的人群中。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+此外，在此期间，完全接种疫苗的人口新冠死亡人数为2750人，打过一针的新冠死亡人数为96人，而未接种疫苗人群新冠死亡人数为695人，即接种过疫苗的人口占新冠死亡人数的80%。
 
-总编：文徬
-编辑：Kathy文艺
-校正/发稿：呼吸的雾霾（文小呼吸）
+数据表明，新冠疫苗不能预防感染，不能防止传播也不能防止住院或死亡。政府推行的疫苗强制接种政策没有事实和理论根据。这种违反人权的强制接种做法必将受到审判。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

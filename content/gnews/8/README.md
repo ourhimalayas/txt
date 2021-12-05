@@ -2,53 +2,32 @@
 ---
 
 
-## 同喝一杯咖啡的故事
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1721229/)
+## 爱尔兰参院支持台湾并谴责中共侵害人权
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1721247/)
 
-# 我们是一家人与三个绝不允许
+作者：纽约香草山 医疗部 云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间12月1日，媒体消息报道称，爱尔兰参议院当天通过数项决议表示，将支持台湾参与国际组织，同时反对中共以武力侵略台湾并谴责中共对人权的侵害。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-05-上午10.45.12.png)
+据了解，这些决议由前副总理、现任参议员麦道威等共计17位参议员联合提出，当中要求爱尔兰政府持续坚定地支持台湾民众享有人身与政治自由，增进与台湾政府和人民的互动。同时，爱尔兰政府应拒绝任何企图妨碍爱尔兰国会议员与台湾政府和民众互动的不当干涉，并谴责所有试图阻挠台湾政府和民众参与国际组织或国际人道倡议的作为。
 
-作者：祈望明天会更好
+提案联署人参议员威尔森表示，台湾与欧盟国家同为遵从民主、法治、自由、人权等普世价值的好伙伴，爱尔兰政府不应畏惧中共的压力，反之，更应保持与台湾的良好互动。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-109-1280x172-1-2-1.jpg)
+参考链接：[愛爾蘭參院通過增進對台關係 批中國侵害人權](https://www.cna.com.tw/news/aipl/202112020018.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-195.png)
-12 月 3日2021 郭先生在大直播中陈述:
-
-1. 保镳担心郭先生的安危因为郭先生与战友们同喝一杯咖啡. 但郭先生说他视兄弟姊妹为一条命, 大家的安全与生死和郭先生都是一样的. 这意味着 生命共同体. 保镳家人听了转述, 同起立鼓掌, 称你要好好的保护他!
-
-2. 郭先生说:一家人不等同于每个人都百分百同意有相同的意见, 那叫一家神! 我们是一家人, 不是一家神! 他必定有 磨擦, 必定有不同的意见.
-
-3. 三个绝不允许: 不允许奉献, 不允许失去, 更不允许把郭先生神话,个人化, 崇拜化, 就像希特勒, 史达林, 列宁, 毛泽东, 无不如此他们 都代表神, 上帝跟像现在的习太阳一样．
-
-一般人想要的欲望郭先生都想要，只是经验多，见识多, 比较幸运,跟一般人都一样,不要做个人神话.
-
-信息链接：[https://gtv.org/video/id=61aa1cecd6388d55041591e6](https://gtv.org/video/id=61aa1cecd6388d55041591e6)
-
-编辑/校对/发稿：小小安
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-69.jpeg)
+总编：Irene木木
+编辑：AN
+校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-109-1280x172-1-2-1.jpg)
-
-
-
-
-
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

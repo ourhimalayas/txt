@@ -2,37 +2,51 @@
 ---
 
 
-## 最新！挪威圣诞聚会可能引发除南非外最大的 Omicron 变种爆发
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1721170/)
+## 泽连科医生在盖特上呼吁依法严惩辉瑞CEO
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1721210/)
 
-翻译： 真北007
-![](https://assets.gnews.org/wp-content/uploads/2021/12/covidtestingman.jpg)图片来源：网络
-来自福克斯FOX NEWS 12月4日的新闻报道：
+作者：纽约香草山翻译部 defiance
 
-根据最近的一份报告，挪威最近在圣诞聚会上爆发的 omicron 疫情提供了早期相关证据，说明这些变异如何在接种疫苗的人群之间传播及其症状的严重程度。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-109-1280x172-1-2-1.jpg)
 
-公司发言人 Stian Tvede Karlsen 表示，挪威的一家可再生能源公司在举办年度假日聚会之前采取了所有必要的安全预防措施，包括只邀请接种疫苗的员工并要求在派对前一天进行快速测试。
 
-派对在奥斯陆的一家高档餐厅举行，约有 120 人参加，其中一些人最近前往南非，该公司在那里开展太阳能电池板业务。
 
-据《华尔街日报》报道，超过 50% 的人对 COVID-19 的检测呈阳性，其中 13 人被确认患有 omicron 变体，但没有人出现严重症状。
 
-《华尔街日报》补充说，这次爆发似乎是南非以外世界上最大的 omicron 爆发，值得注意，它发生在一个国家 80% 以上的成年人都接种了疫苗的人群中。
 
-乔治城大学的全球和公共健康法和伦理学助理教授亚历山德拉·费兰 (Alexandra Phelan) 表示，尽管疫情迅速蔓延，但聚会本身的条件可能加速传播，客人们在隔离的环境中交谈和交流了几个小时，这是超级传播者活动的理想条件。
+![](https://media.gettr.com/group27/getter/2021/12/03/17/c013386a-845d-fbdd-4979-8185b49d3813/124771419d557e57f5df4a76967d3b48.jpg)图片来源：盖特 
 
-她补充说，此次爆发表明当前的 COVID-19 疫苗不能预防感染，但有可能预防严重疾病。
+12月3日至4日，泽连科医生在盖特上连续发表观点，辉瑞公司首席执行官阿尔伯特-布拉是世界上最大的有组织犯罪黑手党的黑老大。他，以及他做杀人业务公司，在致死毒针的安全性和有效性上，欺骗了全人类。他应该被立即逮捕并接受国际军事法庭的审判。他随后为一个盖特进行了背书，此盖文写道，截至2021年2月，辉瑞公司已经收到1200多份由疫苗引起的死亡报告和数万份不良事件报告，包括270例怀孕中的23例自然流产和2000多份心脏疾病报告。这是辉瑞公司自己的数据。难怪美国食品和药物管理局会争取将其隐藏55年。
 
-Phelan 说：“如果他们处于工作年龄并且足够年轻，可以狂欢到深夜，那么他们可能已经处于低风险之中。” “最大的问题是免疫逃避， 此事件开始向其添加数据，至少是松散数据。”
+CCP病毒是一种人造大规模杀伤性武器。黑暗力量故意把他释放出来，以引起全球恐慌和人与人之间的隔离，并诋毁得病早期使用羟氯喹或者伊维菌素的方法，胁迫人们扎索命毒针。索命毒针会引发中风、心脏病、心肌炎、流产、癌症、自身免疫性疾病、不孕不育和抗体依赖增强效应，并含有生物识别传感器。这些传感器量测体内生理数据，并将地理位置一起传输给第三方。
 
-点评：基于此文章和其它报道，Omicron目前给人的印象是，高感染率，症状轻，免疫逃避（以前得过Covid的人对Omicron没有免疫力，照样感染）。疫苗无效，完全接种者照常染病。
+新闻链接：
 
-原文链接：[https://www.foxnews.com/health/norway-christmas-largest-omicron-variant-outbreak-outside-south-africa](https://www.foxnews.com/health/norway-christmas-largest-omicron-variant-outbreak-outside-south-africa)
+[https://gettr.com/post/pig3u07bd6](https://gettr.com/post/pig3u07bd6https://gettr.com/post/pihtky3bd1https://gettr.com/post/pinsnm8686)
 
-编辑/发布：LILY
+[https://gettr.com/post/pihtky3bd1](https://gettr.com/post/pig3u07bd6https://gettr.com/post/pihtky3bd1https://gettr.com/post/pinsnm8686)
 
-20211204
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
+[https://gettr.com/post/pinsnm8686](https://gettr.com/post/pig3u07bd6https://gettr.com/post/pihtky3bd1https://gettr.com/post/pinsnm8686)
+
+编辑/校对/发稿：小小安
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-69.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-109-1280x172-1-2-1.jpg)
+
+
+
 
 
  
