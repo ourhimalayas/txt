@@ -2,29 +2,26 @@
 ---
 
 
-## FDA官员要求谷歌审查其所不喜欢的油管视频
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1722493/)
+## 世卫组织称加强针并不能带更大的保护作用
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1722520/)
 
 翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-21.png)
-图片来源： www.sohu.com
-零对冲网记者泰勒·杜登12月4日报道，联邦在努力与各媒体公司讨论审查社交媒体关于中共病毒的“误导信息”以寻求压制人们所播出的视频。这是从一名联邦食品与药品监督管理局（FDA)官员的电子邮件中显示出来的。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-7.png)
+图片来源： www.dw.com
 
-在4月30日的电子邮件中，FDA社交媒体主任，布雷徳·金伯利告诉一名谷歌说客关于FDA希望油管下架一个关于单克隆抗体治疗中共病毒的视频。
+零对冲网11月3日报道，世界卫生组织（WHO)针对英国政府决定拿出上亿支加强针疫苗让英国国民打加强针的事情提出疑问，认为“没有证据”显示这个加强针疫苗对健康能提供更大的保护。
 
-金伯利在给说客的邮件中写道：“总的来说，这个关于中共病毒治疗的信息很有问题，应该下架。”
+英国卫生部长萨吉德·贾伟徳说该国到明年1月底准备了有1.14亿剂疫苗在2022年和2023年间争取时间为每个18岁以上的人提供疫苗。
 
-油管最初拒绝下架这个视频，但后来还是撤了。FDA对于各种信息的审查要求到底有频繁，目前尚未可知。因为该管理局很显然掩盖了其审查要求的努力，因为不符合自由信息法的要求。
+而世卫组织急诊项目医生迈克·雷恩对此表示英国卫生部的决定背后的逻辑表示疑问，他说：“ 就我所知，现在还没有证据显示让大家打加强针会给大众的健康带来更多的保护以对抗住院和死亡。”
 
-10月份，我要求FDA和几个政府机构透露他们内部的讨论和与社交媒体如推特和油管针对关于什么是中共病毒“信息误导”的对话交流。
+英国医学机构针对新出现的奥米克隆变种要求更多的儿童注射疫苗。
 
-11月30日，FDA就我在4月和5月间提出的问题尤其是疫苗不良反应报告系统(VAERS),将其发现的一些电子邮件发给了我。
+目前这个变种在年轻人中表现很“轻微”，但专家们辨论说把这个新变种说成是“轻微的”这个概念很危险，因为是在南非年轻人中传染（平均年龄27岁），我们还不知道这个变种对老年人会怎样。然后他们说解决办法是给更多的年轻人打疫苗。
 
-在这些电子邮件的最后，附上了金伯利和安特纳罗斯之间的电子邮件，FDA说没有发现任何一个我所要求的记录，但他们不小心给了我一个。
+这是什么逻辑？
 
-##### **新闻来源： **[An FDA Official Demanded Google Censor A YouTube Video The Agency Didn’t Like](https://www.zerohedge.com/covid-19/fda-official-demanded-google-censor-youtube-video-egncy-didnt)
-
-# ** **
+##### **新闻来源： **[World Health Organization Says “No Evidence” Booster Jabs Would Offer “Greater Protection” To The Healthy](https://www.zerohedge.com/covid-19/world-health-organization-says-no-evidence-booster-jabs-would-offer-greater-protection)
 
  
 

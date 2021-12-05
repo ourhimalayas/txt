@@ -2,10 +2,10 @@
 ---
 
 
-## 中共国正在用核武器武装巴基斯坦
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1722646/)
+## 纳瓦罗：我们应该停止称其为疫苗，这是实验性RNA技术
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1722657/)
 
-12/01/2021 中共国正在用核武器武装巴基斯坦，并协助其规避核供应国集团规则。
+12/01/2021 彼得·纳瓦罗博士：今天必须是我们不再称这种东西为疫苗的日子，这是一项实验性的RNA技术。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

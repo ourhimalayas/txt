@@ -2,10 +2,10 @@
 ---
 
 
-## 中共正在计划一个新的交易所来交易数据
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1722648/)
+## 一位女士的未婚夫接种中共病毒疫苗11天后死于心脏病
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1722659/)
 
-12/01/2021 Wise新闻：中共正在计划一个新的交易所来交易数据。迄今为止，北京一直在利用数据剥削人民，现在还将用它赚钱。
+12/02/2021 一位女士描述了她的未婚夫如何在中共病毒疫苗接种11天后死于心脏病。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
