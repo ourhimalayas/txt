@@ -2,85 +2,38 @@
 ---
 
 
-## 秦刚当时来纽约的目的
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1721728/)
+## 郭文贵先生2021年12月04日盖特视频（4分42秒）全文字版
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1721790/)
 
-[https://gtv.org/video/id=61ac491987fa7e74c92b77fe](https://gtv.org/video/id=61ac491987fa7e74c92b77fe)
+听写整理编辑：东京樱花团/Peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-199.png)
+尊敬的战友们好啊，12月4号，真快，真快，真快啊。我这是，今天是真是忙的我，一点点时间都没有了。我这是刚才是边健身边开会，然后边回复战友信息。然后呢，马上呃，这个冲到楼上，冲了个凉下来，然后马上现在要吃午饭，这已经几天没跟你嫂子吃午饭了。
 
-**郭文贵
-Miles Guo**
+吃完午饭，今天下午一系列的会议啊，然后呢这个中间还看到长岛哥的真人真事啊，采访文耀啊和小新，特别特别的好，所以我同时干四五件事儿啊。班农先生对我的谜就是为什么你同时可以干四五件事，五六件事？这有七哥秘诀啊，啊这是一个。
 
-当时秦刚到纽约来，见了13个华人
-At that time, Qin Gang arrived in New York and met 13 Chinese people
+另外一个就是从昨天大直播完到现在啊，兄弟姐妹们，就是全世界各国的跟咱们联系的这些官员机构啊，都想得到几个答案：
 
-两个原因他要见的, 大家上次都没说清楚
-He wanted to meet them for two reasons, but everyone didn’t make it clear last time
+中国的人口只有郭文贵一个人，和新中国联邦爆料革命最早说出了中国的人口不是十四亿甚至低于十个亿。现在大家都在感兴趣吗？啊。
 
-第一个，他真正地意识到这些华人在美国要被排华了
-The first one, he really realized that these Chinese people would be excluded in the United States
+第二个问题是阿富汗饿死人的问题。很多国家都说现在阿富汗不是饿死人，现在已经绝对的人道灾难了啊，这个现在各国政府都认为这是中国共产党培养的塔利班的结果啊，当然美国有巨大的责任啊，放弃了这个阿富汗。
 
-梁冠军刚才给你说那个事情，美国政府，记住，记住七哥说的话
-I just told you about Liang Guanjun’s thing, the US government, remember what Miles just said
+那么第三个问题都在问，Hcoin to the moon, Hcoin to the moon, 都是喜币打歌的事儿。很多国家人他们都得了第一，他们说Miles你怎么做到的，怎么让你得到第一了呢？你怎么得到第一呢？他说问这问题啊，他们想唱歌是吧？他们没有信仰，因为他不知道音乐并不是你唱的，唱的可能叫技巧，过去叫唱家,唱家多了啊，真正的音乐啊，是听从上帝的使命啊，唱歌要治病，唱歌能救人啊，唱歌能让你开眼明智啊，这叫什么？这叫音乐。这就是当时的宙斯之神之力量啊，那就是音乐之神和花神啊，雅典娜雅吉娜的这是，这是一种这种叫做拯救天下的力量啊，他们懂啥呀？
 
-不仅孔子学院，在全世界的华人所有的海外华人组织是共产党安排的
-Not only Confucius Institutes but also all the overseas Chinese organizations all over the world are led by the Communist Party
+另外一个想买喜币，现在大家看到喜币都在涨，我说实话涨得有点太快了，现在是多少？四十六块四。呃，我我昨天是到现在，我最起码打电话给了有二十个战友啊，因为有战友经济情况很差的。过去我知道啊，我说你们卖点币吧，四十几块钱，经济困难，还都不卖。对不对？我说卖点儿吧，卖点儿二手市场是吧，啊，解决经济困难啊，这个价格卖掉了。
 
-是跟共产党 ，我可以告诉你，一个都不会留下来
-Anyone with the Communist Party, I can tell you, none of them will survive
+呃，另外一个就是从昨天到现在，大家看到这个交易量啊，这个活手，换手率太高了啊，这对一个咱们现在流通只有两亿个币的这么一个一个一个交易所，那简直是太夸张啊。这个交易量是很大的。
 
-日本政府一个官员在两年前告诉我，郭先生，我们会很慢
-An official of the Japanese government told me two years ago, Mr. Guo, we will be very slow
+另外一个大家看到我们现在国内啊，国内这几天各省各地啊都在抓人，而抓的都是公检法，抓的，都是纪委，抓的都是当地的政府官员。另外一个就是国内的企业的老板啊，到年底以前都是要税的。然后现在各银行找私人企业家，什么借新还旧啊，啊拉存款啊，疯了一样啊。就在山东啊，在山东鲁东在有些地方竟然百分之二十五的存款利息啊，按咋算呢？按天算啊，只用你三十天，二十五的利息，说这银行造假造到什么程度，这个国家还有救吗？啊，都是骗子啊，都是假的。
 
-但是我会保证的是，日本绝不会再有China Town的
-But I will guarantee that there will never be China Town in Japan
+还有兄弟姐妹们，现在看到这个呃疫苗，刚刚，刚刚我下楼的时候啊，这个这个我旁边的管家说，哎，郭先生，我刚打了两针疫苗，他说“你放心，我是安全的，这新疫苗”我我都不知道说啥好啊，这么漂亮的姑娘也说这话，我说你这打疫苗啊，绝对是只要你命的啊。就是这个路很长，关键是媒体封口了，兄弟姐妹们。说只要媒体能打开，真相传播就厉害了。但是我相信疫苗很快完蛋的，啥都不说了啊，明天大直播，明天大直播，那边一直叫我，哎呀，我的天哪。一分钟时间都没有。姆盖塞了，明天大直播啊。
 
-任何华人组织（跟共产党有联系），一个都不会
-Any Chinese organization (connected to the Communist Party), none of them will survive
+稿件仅作参考，最终以郭文贵先生盖特视频内容为准。
 
-澳大利亚的下一个肯定几乎90%他是总理上去
-There is a 90% chance that this gentleman will be Australia’s next Prime Minister
+郭文贵先生12月04日盖特视频链接：[https://gettr.com/post/piq0uc528c](https://gettr.com/post/piq0uc528c)
 
-他说，郭先生，我们会在澳大利亚把所有共产党的华人组织全给它灭掉, 就是跟共产党联系的
-He said, Mr. Guo, we will wipe out all the Chinese Communist Party organizations in Australia, which are connected with the Communist Party
-
-还有一个秦刚为啥到China Town去
-another one why did Qin Gang go to China Town?
-
-去干那个事去，大家没有意识到，包括芬太尼这个毒品供应
-He went to do that thing, everyone didn’t realize it, including the drug supply of fentanyl
-
-包括海外即将要排华导致的共产党的这种完全的，但对它来讲是个毁灭性打击
-including this kind of completeness caused by the Communist Party that is about to exclude the Chinese people at overseas, but it is a devastating attack for them
-
-这更重要的是他为啥来纽约呢，因为华人的选举，法拉盛的选举，
-More importantly, why did he come to New York, because of the Chinese people’s votes, the Flushing’s votes
-
-75%投给了共和党，他要找他们一定要影响美国选举
-75% of those Chinese people voted for the Republican Party, he wanted them to influence the American elections
-
-不投共和党，投民主党
-Don’t vote for the Republican Party, vote for the Democratic Party
-
-这回美国这纽约州州长一定是共产党再说了算
-This time the New York State governor’s election in the United States must be the Communist Party total in control
-
-Date:12/01/2021
-原视频标题: 秦刚当时来纽约的目的
-The purpose that Qin Gang came to New York at that time
-原视频日期：2021/11/26
-原视频链接[https://gettr.com/post/pi4gz1291e](https://gettr.com/post/pi4gz1291e)
-任务编号：KC303(3037)
-视频时间段 : 0:00-1:43
-中听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – 天涯行
-字幕+视频制作：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

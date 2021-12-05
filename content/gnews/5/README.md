@@ -2,52 +2,84 @@
 ---
 
 
-## 佛州人均 COVID 病例数在美国各州中最低
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1721679/)
+## 秦刚当时来纽约的目的
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1721728/)
 
-据美国《美国第一新闻网》新闻室2021年11月29日报道
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-19.png)佛州州长罗恩德桑蒂斯(Ron DeSantis)于2020年7月13日在迈阿密发表讲话。 昌丹·卡纳(CHANDANKHANNA)|法新社(AFP)通过盖蒂图片社
+[https://gtv.org/video/id=61ac491987fa7e74c92b77fe](https://gtv.org/video/id=61ac491987fa7e74c92b77fe)
 
+**郭文贵
+Miles Guo**
 
-佛州在保持经济完全开放的同时，继续保持全国最低的中共病毒病例数。阳光州(Sunshine State)的卫生官员上周报告的平均每日COVID病例略多于1,300例，这是过去两周COVID阳性率下降了5%。
+当时秦刚到纽约来，见了13个华人
+At that time, Qin Gang arrived in New York and met 13 Chinese people
 
-佛罗里达州目前每10万人中约有6个病例，这是美国大陆最低的。紧随阳光州的是其他红色州，包括德克萨斯州、乔治亚州和路易斯安那州。
+两个原因他要见的, 大家上次都没说清楚
+He wanted to meet them for two reasons, but everyone didn’t make it clear last time
 
-共和党州长罗恩•德桑蒂斯(Ron DeSantis)表示，他专注于COVID治疗，以保持经济开放，而不是有害的指令。
+第一个，他真正地意识到这些华人在美国要被排华了
+The first one, he really realized that these Chinese people would be excluded in the United States
 
-他说：“我的意思是，自由很重要，但想想这些人，他们的生计依赖于开放的经济。”在佛罗里达这样的州，我们的住宿、公园、餐厅之间就有一个以服务为基础的经济，因此我们能够维持这些经济。”
+梁冠军刚才给你说那个事情，美国政府，记住，记住七哥说的话
+I just told you about Liang Guanjun’s thing, the US government, remember what Miles just said
 
+不仅孔子学院，在全世界的华人所有的海外华人组织是共产党安排的
+Not only Confucius Institutes but also all the overseas Chinese organizations all over the world are led by the Communist Party
 
+是跟共产党 ，我可以告诉你，一个都不会留下来
+Anyone with the Communist Party, I can tell you, none of them will survive
 
+日本政府一个官员在两年前告诉我，郭先生，我们会很慢
+An official of the Japanese government told me two years ago, Mr. Guo, we will be very slow
 
+但是我会保证的是，日本绝不会再有China Town的
+But I will guarantee that there will never be China Town in Japan
 
-> Keeping Florida open has been so important for keeping our economy strong, and protecting jobs in the hospitality sector has been a key part of this. [pic.twitter.com/NE8iSagdVT](https://t.co/NE8iSagdVT)
-> — Ron DeSantis (@GovRonDeSantis) [November 26, 2021](https://twitter.com/GovRonDeSantis/status/1464300422424788992?ref_src=twsrc%5Etfw)
+任何华人组织（跟共产党有联系），一个都不会
+Any Chinese organization (connected to the Communist Party), none of them will survive
 
+澳大利亚的下一个肯定几乎90%他是总理上去
+There is a 90% chance that this gentleman will be Australia’s next Prime Minister
 
+他说，郭先生，我们会在澳大利亚把所有共产党的华人组织全给它灭掉, 就是跟共产党联系的
+He said, Mr. Guo, we will wipe out all the Chinese Communist Party organizations in Australia, which are connected with the Communist Party
 
-*罗恩·德桑蒂斯**@GovRonDeSantis*
+还有一个秦刚为啥到China Town去
+another one why did Qin Gang go to China Town?
 
-*保持佛罗里达州的开放对于保持我们的经济强劲非常重要，而保护酒店业的工作一直是其中的关键部分。*
-*2021年11月26*
+去干那个事去，大家没有意识到，包括芬太尼这个毒品供应
+He went to do that thing, everyone didn’t realize it, including the drug supply of fentanyl
 
-与此同时，尽管实行了严格的封锁和疫苗接种，民主党领导的州出现新的COVID病例仍然激增。
+包括海外即将要排华导致的共产党的这种完全的，但对它来讲是个毁灭性打击
+including this kind of completeness caused by the Communist Party that is about to exclude the Chinese people at overseas, but it is a devastating attack for them
 
-原文链接：
+这更重要的是他为啥来纽约呢，因为华人的选举，法拉盛的选举，
+More importantly, why did he come to New York, because of the Chinese people’s votes, the Flushing’s votes
 
+75%投给了共和党，他要找他们一定要影响美国选举
+75% of those Chinese people voted for the Republican Party, he wanted them to influence the American elections
 
+不投共和党，投民主党
+Don’t vote for the Republican Party, vote for the Democratic Party
 
-> [Fla. per capita number of COVID cases lowest among U.S. states](https://www.oann.com/fla-per-capita-number-of-covid-cases-lowest-among-u-s-states/)
+这回美国这纽约州州长一定是共产党再说了算
+This time the New York State governor’s election in the United States must be the Communist Party total in control
 
+Date:12/01/2021
+原视频标题: 秦刚当时来纽约的目的
+The purpose that Qin Gang came to New York at that time
+原视频日期：2021/11/26
+原视频链接[https://gettr.com/post/pi4gz1291e](https://gettr.com/post/pi4gz1291e)
+任务编号：KC303(3037)
+视频时间段 : 0:00-1:43
+中听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – 天涯行
+字幕+视频制作：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-
-
-
-
-
-
-
-翻译：飞利普 |校对：烟波浩淼 |编辑&发布：闪电训练
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

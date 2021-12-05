@@ -15,125 +15,125 @@
 
 ---
 
-### [秦刚当时来纽约的目的](/content/gnews/1/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [郭文贵先生2021年12月04日盖特视频（4分42秒）全文字版](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【文贵先生大直播PPT】洗米华被捕事件加速港股下跌和权贵资本外逃](/content/gnews/2/README.md)
- ` Mr. Miles Guo's News Briefing`
-
-### [迫害！巴西总统因为说新冠会增加患上艾滋风险而被法院调查](/content/gnews/3/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [脱北者](/content/gnews/4/README.md)
- ` 首尔天池农场`
-
-### [佛州人均 COVID 病例数在美国各州中最低](/content/gnews/5/README.md)
+### [币圈新闻动态：喜币（HCN）价格目前在44.658 HDO](/content/gnews/2/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中共国医学界良知专家：孩子打疫苗促体内肿瘤生长](/content/gnews/6/README.md)
- ` 澳喜特战旅Gnews`
+### [郭先生：青蒿素解疫苗副作用绝对管用](/content/gnews/3/README.md)
+ ` MG 澳喜农场多语组`
 
-### [中共国楼市惨淡 地产中介面临十年来最艰难时刻](/content/gnews/7/README.md)
- ` 日本东京方舟农场`
+### [COVID-19 最新情报｜拜登“强烈支持”为 5 岁以下儿童接种疫苗 专家警告：“疫苗伤害像疤痕，无法治愈，许多孩子会死”](/content/gnews/4/README.md)
+ ` G&#124;News TAIWAN`
 
-### [印度财政部长表示需要一个 全球机制来监管加密货币](/content/gnews/8/README.md)
- ` 墨尔本雅典娜农场`
+### [秦刚当时来纽约的目的](/content/gnews/5/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美团巨亏100亿，这是扯下中共虚假泡沫的一块遮羞布](/content/gnews/9/README.md)
+### [【文贵先生大直播PPT】洗米华被捕事件加速港股下跌和权贵资本外逃](/content/gnews/6/README.md)
+ ` Mr. Miles Guo's News Briefing`
+
+### [迫害！巴西总统因为说新冠会增加患上艾滋风险而被法院调查](/content/gnews/7/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [脱北者](/content/gnews/8/README.md)
  ` 首尔天池农场`
 
-### [2018年6月5日郭文贵先生直播全文字版：看了万润南先生的视频后的感谢](/content/gnews/10/README.md)
+### [佛州人均 COVID 病例数在美国各州中最低](/content/gnews/9/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [中共国医学界良知专家：孩子打疫苗促体内肿瘤生长](/content/gnews/10/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [中共国楼市惨淡 地产中介面临十年来最艰难时刻](/content/gnews/11/README.md)
+ ` 日本东京方舟农场`
+
+### [印度财政部长表示需要一个 全球机制来监管加密货币](/content/gnews/12/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [美团巨亏100亿，这是扯下中共虚假泡沫的一块遮羞布](/content/gnews/13/README.md)
+ ` 首尔天池农场`
+
+### [2018年6月5日郭文贵先生直播全文字版：看了万润南先生的视频后的感谢](/content/gnews/14/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [英国卫生部长萨吉德：加强针的间隔将从6个月减半为3个月](/content/gnews/11/README.md)
+### [英国卫生部长萨吉德：加强针的间隔将从6个月减半为3个月](/content/gnews/15/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [视频| 数字货币时代的到来，将导致港币彻底消失](/content/gnews/12/README.md)
+### [视频| 数字货币时代的到来，将导致港币彻底消失](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [视频| 中俄关系委实微妙](/content/gnews/13/README.md)
+### [视频| 中俄关系委实微妙](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [视频| 喜数字银行绝对是数字金矿](/content/gnews/14/README.md)
+### [视频| 喜数字银行绝对是数字金矿](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [2018年6月10郭文贵先生第二段直播全文字版](/content/gnews/15/README.md)
+### [2018年6月10郭文贵先生第二段直播全文字版](/content/gnews/19/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [视频| 墙内战友提供的疫苗灾难真实数据（下）](/content/gnews/16/README.md)
+### [视频| 墙内战友提供的疫苗灾难真实数据（下）](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [视频| 墙内战友提供的疫苗灾难真实数据（上）](/content/gnews/17/README.md)
+### [视频| 墙内战友提供的疫苗灾难真实数据（上）](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [生命的意义是什么？（第六集）](/content/gnews/18/README.md)
+### [生命的意义是什么？（第六集）](/content/gnews/22/README.md)
  ` 纽约香草山MOS03`
 
-### [泄露的文件显示，WhatsApp和iMessage与FBI共享用户数据](/content/gnews/19/README.md)
+### [泄露的文件显示，WhatsApp和iMessage与FBI共享用户数据](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [[ 聚焦港澳 ] 沈栋：为什么我要出版《红色轮盘》?](/content/gnews/20/README.md)
+### [[ 聚焦港澳 ] 沈栋：为什么我要出版《红色轮盘》?](/content/gnews/24/README.md)
  ` 澳喜农场`
 
-### [立陶宛总统、外长及体育部长相继宣布外交抵制北京冬奥会](/content/gnews/21/README.md)
+### [立陶宛总统、外长及体育部长相继宣布外交抵制北京冬奥会](/content/gnews/25/README.md)
  ` 日本东京方舟农场`
 
-### [美财政部为纪念民主峰会召开下周将宣布一系列制裁](/content/gnews/22/README.md)
- ` 日本东京方舟农场`
-
-### [7·24系列——喜交所在波多黎各获得数字银行牌照的意义](/content/gnews/23/README.md)
+### [7·24系列——喜交所在波多黎各获得数字银行牌照的意义](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2021年12月4日郭先生盖特 — 视频盖特「4分42秒」](/content/gnews/24/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [世界各地危机重重，布林肯就台湾问题向中共发出警告](/content/gnews/25/README.md)
+### [世界各地危机重重，布林肯就台湾问题向中共发出警告](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
 
-### [南非卫生专家建言：Omicron变体可能预示着新冠的结束](/content/gnews/26/README.md)
+### [南非卫生专家建言：Omicron变体可能预示着新冠的结束](/content/gnews/28/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线：日本政府出招：你不守规则，我不再惯你！](/content/gnews/27/README.md)
+### [秘翻在线：日本政府出招：你不守规则，我不再惯你！](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [13岁加拿大女孩被迫接种疫苗后发生心脏骤停](/content/gnews/28/README.md)
+### [13岁加拿大女孩被迫接种疫苗后发生心脏骤停](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
 
-### [短视频：推广疫苗的人应该被绳之以法！](/content/gnews/29/README.md)
- ` 墨尔本雅典娜农场`
-
-### [尽管大力推广第三针英国11月期间80%的新冠死亡病例是完全接种者](/content/gnews/30/README.md)
+### [尽管大力推广第三针英国11月期间80%的新冠死亡病例是完全接种者](/content/gnews/31/README.md)
  ` 澳喜农场`
 
-### [澳洲全票通过马格尼茨基人权法，剑指中共](/content/gnews/31/README.md)
+### [澳洲全票通过马格尼茨基人权法，剑指中共](/content/gnews/32/README.md)
  ` GTV新闻访谈`
 
-### [爱尔兰参院支持台湾并谴责中共侵害人权](/content/gnews/32/README.md)
+### [爱尔兰参院支持台湾并谴责中共侵害人权](/content/gnews/33/README.md)
  ` GTV新闻访谈`
 
-### [中共对台湾原住民的统战手段遭曝光](/content/gnews/33/README.md)
+### [中共对台湾原住民的统战手段遭曝光](/content/gnews/34/README.md)
  ` GTV新闻访谈`
 
-### [GTV新闻访谈简报|2021年12月4日晚](/content/gnews/34/README.md)
+### [GTV新闻访谈简报|2021年12月4日晚](/content/gnews/35/README.md)
  ` 纽约香草山MOS01`
 
-### [安徽潜山交通事故：司机突发脑溢血致车辆失控](/content/gnews/35/README.md)
+### [安徽潜山交通事故：司机突发脑溢血致车辆失控](/content/gnews/36/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [专家质疑中国的实际人口可能比统计数据更低](/content/gnews/36/README.md)
+### [专家质疑中国的实际人口可能比统计数据更低](/content/gnews/37/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [聚焦：加拿大将效仿奥地利实行强制疫苗吗？](/content/gnews/37/README.md)
+### [聚焦：加拿大将效仿奥地利实行强制疫苗吗？](/content/gnews/38/README.md)
  ` 丁过`
 
-### [布林肯: 中共攻台没有好处 应谨慎考虑可怕后果](/content/gnews/38/README.md)
+### [布林肯: 中共攻台没有好处 应谨慎考虑可怕后果](/content/gnews/39/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共国如何殖民英联邦](/content/gnews/39/README.md)
+### [中共国如何殖民英联邦](/content/gnews/40/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [全日空与日航恢复来日国际航班预约受理](/content/gnews/40/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [国际要闻汇编 12月4日](/content/gnews/41/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
