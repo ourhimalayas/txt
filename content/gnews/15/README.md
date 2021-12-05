@@ -2,125 +2,89 @@
 ---
 
 
-## 七哥回答关于喜币代持FMV公司的问题
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1722299/)
+## 在疫苗灾难翻转之前 想尽一切办法活下去
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1722452/)
 
-[https://gtv.org/video/id=61ac596087fa7e74c92b7eed](https://gtv.org/video/id=61ac596087fa7e74c92b7eed)
+[https://gtv.org/video/id=61aca14487fa7e74c92b95fd](https://gtv.org/video/id=61aca14487fa7e74c92b95fd)
 
-我替许多战友来问个问题
-Voy a hacer preguntas por muchos de los compañeros luchadores
+**郭文贵
+Miles Guo**
 
-这几天大家都关注锁币的事情
-Estos días todos están pendientes del asunto de bloqueo de moneda
+我很乐观的是一两个月，我认为疫苗灾难一定会停
+I am very optimistic for one or two months, I think the vaccine disaster will definitely stop
 
-现在有一个疑问就是联盟说GTV公司帮大家持币
-Ahorita hay una duda y es que La Alianza dijo que la compañía de GTV va a ayudar a todos a guardar las monedas
+咱们就在4周前，美国法官是否要裁定这周不准强制医生打疫苗的事情上
+Just at 4 weeks ago, whether the American judge was going to rule that doctors were not allowed to do vaccine mandate this week
 
-但是喜交所给我们发邮件的公司名称和我们的GTV
-Pero el nombre de la compañía del correo que nos envió Himalaya Exchange
+当时是所有的反馈90%概率是不可能
+At that time, 90% probability of all feedback is impossible
 
-重建项目名称不同
-No es igual al de nuestro GTV y del Proyecto de reconstrucción
+但是就接着三天检察官、联邦法官全部颁发出来
+But in the next three days, prosecutors and federal judges all issued bans
 
-请问Freedom Media Watch Ltd
-Disculpa, Freedom Media Watch Ltd
+这对今天的美国来讲情势已经天覆地转了，包括消防员、警察拒绝
+For today’s America, the situation has turned upside down, including firefighters and policemen refused vaccine mandate
 
-和Freedom Media Watch Ltv这两个公司到底
-Y Freedom Media Watch Ltv estas dos compañías
+你看看世界上谁最勇敢，你看哪个国家最强大，美国人
+You look at who is the bravest people in the world, which country is the strongest, is the Americans
 
-哪一个是我们的GTV公司
-¿Cuál es el de nuestra compañía GTV?
+到目前为止在全世界最勇敢的，行动最多还是美国，包括法律上
+Until now the bravest and most action in the world is the United States, including in the area of law
 
-喜交所给的邮件战友是否可放心的签署
-¿Será que el correo enviado por Himalaya Exchange a los compañeros luchadores se puede firmar con confianza?
+然后你看这个新兴强大之国澳大利亚，最极端的、最混蛋的
+Then you look at this newly powerful country Australia, the most extreme and the most asshole country
 
-第一喜交所给的文件放心签署
-Primero, los documentos dados por Himalaya Exchange se pueden firmar con confianza
+但是行动力老百姓是最强的，很可悲啊
+But Laobaixing there are the strongest in mobility which is very sad
 
-第二GTV新公司叫FMV
-Segundo, la nueva compañía de GTV se llama FMV
+德国这个国家是个极端的民族，极端的国家
+Germany is an extreme nation, an extreme country
 
-是整个的代持
-Es para toda conservación
+不是最好的东西生产出来，就是极端的灾难
+Either the best thing is produced, or it’s an extreme disaster
 
-还有我再告诉你只要你币少任何一个 七哥负责
-Y lo otro que te digo, así te falta una sola moneda, yo me hago responsable
+历史一战二战到现在都是，包括跟共产党的关系
+from the history of World War I and World War II up to now, including the relationship with the Communist Party
 
-只要喜交所给你的文件
-Todo documento entregado por Himalaya Exchange
+现在德国在走向另外一个极端，德国的政客之流氓你无法想象
+Now Germany is going to the other extreme, you can’t imagine the gangsters of German politicians
 
-联盟委员会文件 七哥全负责
-Comité de Alianza, yo me responsabilizo por completo
+我们这个公关公司最不想接的活儿，就是公关德国
+The least job that our PR company wants to take is doing PR in Germany
 
-还有发出 收到
-Y todo enviado, recibido
+再一个就是意大利，说意大利人就不可信，撒谎，他说一帮骗子
+The other one is Italy, saying that Italians are untrustworthy, they lie and he said that Italians are a bunch of scammers
 
-还有现在收到农场发出的表格
-Y los formularios enviados por las fincas que hayan recibido
+再一个就是德国人，他说就是一帮完全自私的、傲慢的、愚蠢的家伙
+The other one is the German, he said that they are a bunch of completely selfish, arrogant, stupid guys
 
-只是委托喜交所转交H-Coin给FMV公司
-Es solo un encargo de H-coin a través de Himalaya Exchange a la compañía FMV
+你看到了，你看，新上任的总统就你看明白了总理
+You have seen it, look at that new prime minister
 
-但是没有FMV公司给我们签署的代持协议
-Pero no hay un acuerdo de conservación dado por la compañía FMV para firmar
+就这个样，是吧？这都是好朋友，但是我认为你一定要相信
+That’s it, right? These are all good friends, but I think you must believe
 
-是否该先跟FMV公司签署完代持协议
-¿Será que primero hay que firmar un acuerdo de conservación con la compañía?
+现在跟我们站在一起的不是我们，它是全人类上有智慧的、有能力的、有行动力的人的共同需要
+It’s not just ourselves, it is the common need of all mankind who are wise, capable and actionable standing with us now
 
-再到喜交所上转帐FMV
-Y luego ir a hacer la transferencia en Himalaya Exchange a FMV
-
-不是的 这次的代持转让是福利币并不是你二级市场的币
-No es así, esta vez la transferencia de conservación es de la moneda de bienestar, no de su moneda comprado en el mercado
-
-福利币是给予 是有条件的
-Las monedas de bienestar son entregadas, tienen requisitos
-
-也没给你签署协议
-Tampoco se les hizo firmar un acuerdo
-
-现在你愿意 你可以不愿意啊
-Ahora tu puedes estar dispuesto y si quieres no lo haces
-
-你可以不愿意 你要愿意
-Puedes no querer, pero si tu quieres
-
-你就签
-Tú lo firmas
-
-我再告诉你
-Y te digo otra cosa
-
-FMV是战友的公司
-La compañía de FMV es de un compañero luchador
-
-不是任何人的
-No es de cualquier persona
-
-FMV公司未来是喜交所的喜联储的5%的股东
-La compañía de FMV en un futuro será accionista del 5% en La Reserva de Himalaya y en Himalaya Exchange
-
-他也会是盖特控股公司的5%的股东
-También será accionista del 5% de Gettr Holdings
-
-所以说兄弟姐妹们, 没有问题, 七哥担保
-Por eso hermanos y hermanas, no habrá problemas yo lo garantizo
+我相信很快会逆转的，但在这之前你得想办法活下去
+I believe it will be reversed soon, but before that you have to find a way to survive
 
 * * *
 
-日期：12/03/2021
-原视频标题：七哥回答关于喜币代持FMV公司的问题
-Miles responde preguntas sobre la conservación de H-coin por la compañía FMV
-原视频日期：12/0/22021
-原视频网址： [https://gettr.com/post/pih7z08f45](https://gettr.com/post/pih7z08f45)
-任务编号：KC308（3079）
-视频时间段：0:00-1:44
-西听校：洛杉矶盘古农场-小文萱
-翻译：洛杉矶盘古农场-霙霙（文霙）
-翻译终校：洛杉矶盘古农场-小文萱
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
+Date:12/05/2021
+原视频标题: 在疫苗灾难翻转之前 想尽一切办法活下去
+Do everything possible to survive before the vaccine disaster overturn
+原视频日期：2021/12/03
+原视频链接[https://gettr.com/post/pip15q5d9d](https://gettr.com/post/pip15q5d9d)
+任务编号：3110
+视频时间段 : 0:00-1:51
+中听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

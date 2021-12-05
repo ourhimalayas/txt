@@ -2,97 +2,50 @@
 ---
 
 
-## 美国对数字货币的监管，让喜联储成为国际数字货币运行标准的制定者
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1722408/)
+## 7.24系列——大跃进之后的大饥荒（二）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1722570/)
 
-[https://gtv.org/video/id=61aca0a487fa7e74c92b95c8](https://gtv.org/video/id=61aca0a487fa7e74c92b95c8)
+整理：BENJ1
+编辑：Kelly
+![](https://assets.gnews.org/wp-content/uploads/2021/12/4-2.png)配图制作：小蚂蚁614
+郭文贵先生2020年11月20日直播提到：
 
-**郭文贵
-Miles Guo**
+就中国的企业家那种贪婪、无知、愚蠢、愚昧，每个人都想着跟共产党勾兑，每个人都想借着机会抢人家点钱。你看马云，他又上井冈山，又替共产党舔腚、擦屁股，搞大数据、黑客。所做的一切都是在梦想着，我把蚂蚁金服整上市，我再跑。就像王健林一样，我把国内的这个资产、房地产板块弄上市，再圈一把钱，我再跑。他们就做梦都没想到，当年共产党最大的支持者就是地主、有钱人、海外华人和港澳同胞，拿到中国政权以后杀了二百万地主。最后官方说大跃进饿死了**3600**万人，事实上是饿死**7000**多万人。你们不就是今天的那个地主嘛，只不过是怎么杀你们的问题。你能跑得了吗？
 
-就是两弊两利，机会在哪里呢，我告诉大家
-There are two disadvantages and two advantages, where is the opportunity? I will tell everyone
+八、九十年代一些作家、记者怀着史笔之心和新闻良知对大跃进后的出现大饥荒的真实历史做了翔实的记述。中共新华社的老记者李锦这样写到：
 
-它就逐渐成为世界上接受的比法币还牛叉的
-It has gradually become the world’s more accepted currency than fiat currency
+1958年9月江苏开始搞集体大食堂时，先把农民家里的粮食收到公共食堂，集镇上的人家在合作化后转成定量户口，大队把全组人的粮食、油本都收走，把粮油一起买回来，家家不许有锅，也没办法做饭。
 
-就是真的是现代化的数字化货币，接下来一定要记住我的话
-It’s really a modern digital currency, and then you must remember my words
+刚开始时，吃集体食堂，饭剩很多，肉也剩很多，乡下农民卖棉花路过，也拉人家来吃饭，农民不好意思，便劝人家说“共产主义啦，天下一家，吃饭不要钱了”。办食堂的干部常常在半夜里炸油饼吃。大食堂没几天就吃的一顿不如一顿了，大概只过去一个多月，米就看不到了。从北方运来一批地瓜干，吃完了，便是整锅的胡萝卜缨子，后来便吃淀粉圆子，那是把玉米皮与杆子碾碎磨成面做的。这时候，便吃榆树皮了，榆树从底部到顶梢是一片白，都被人们吃光了。到了1959年1、2月份，粮食没有了，便开始有饿死人的事了出现了。
 
-喜联储之前就未来它的H-Pay, 还有一个就是它一定有主权国家认可
-Himalaya Reserve will launch H-Pay in the future, and another one is that it must be recognized by sovereign states
+食堂倒了，可粮本子上的粮食也早被食堂支走了。我们家开始买了1000多斤胡萝卜叶，吃完了便挑野菜吃。开始有马荠菜、盐蒿子，后来便挑一种带刺的徐徐菜。苦苦的，连猪也不肯吃。有人家开始吃树叶，剥树皮。合德镇有个姓戴的富农，家中藏有两罐银洋钱，饿得什么也没有吃的时，从地下挖出来与人家换了两小罐咸菜，用咸菜和着水，喝了十多天。
 
-这不是一个主权国家认可了，全世界都要认可了，那大了去了
-this is not only recognized by a sovereign country, the whole world will be recognize it, and that’s huge
+父亲被抽去当射阳县伐竹连连长，一去就是大半年。农村的人靠着土地，而小街上一点点土地也没有，只有下乡去挑野菜。粮食没有了，我们亲戚中好几个都是在这时候饿死的。我们弟妹几个吃野菜多了，都饿得脸呈菜色，嘴唇发紫，患了青紫病。
 
-更重要的事情，它会增加流通，人家政府都同意了
-More importantly, it will increase circulation, and the government has agreed to it
+没有一点油水，肛门脱落，临到解大便时弟妹们便哭得死去活来。我有一次因吃野菜中毒，急性肠胃炎发作，被送到医院。有人说病床上刚死了一个小孩，用席子卷走了，你这个孩子命不强。母亲吓得把我从病床上抱起来，一直坐到天亮，泪也流了一夜。在那些饥饿的日子里，母亲总吃着野菜，仅有的米都让我们吃，遇到野菜饭不够了，她一口也不吃，常一、两顿饿着，我们终于奇迹般地活下来了。我们那边地处黄海边，荒滩多，野菜也多，江苏在全国灾情当时还不算最重的。
 
-它肯定大家都流通，这个流通以后是什么概念呢 战友们
-It must be circulated by everyone, what will happen after circulation, comrades-in-arms？
+作家白桦是河南信阳人，他记下来一个老乡讲的当年大饥荒时的事。
 
-你们一定要做好HPay的这个准备，那是天价的钱
-You must be prepared for H-Pay, it will be huge amount of money
+“我刚从咱们家乡回来……俺家里的人都饿死光了……只剩下俺姑，她的儿子也死了……她咋活下来的呢？……有一天夜里，一只饿得只剩两张皮的猪冲进她的院子，她连忙关上门，一棒就把饿昏了的猪敲死了，连夜剥了那头猪埋在地下，每天下半夜起来挖出一块烧着吃。她不敢给她那个五岁的孩子吃，怕他说出去。一说出来，村子里还活着的人就会冲进来和她拚命，会打死她，要她把猪肉拿出来。她眼睁睁地看着儿子叫着‘饿呀！妈妈！饿呀！妈妈！’一直到死……连当妈的都变得那么狠心。”
 
-那是每个人的印钞机，就刚才我说的这个数字银行和两个数字银行
-that’s everyone’s money printing machine, the digital bank and the two digital banks that I just mentioned
+报告文学《依稀大地湾》里讲述了这样一件事。“有一户农家，吃得只剩了父亲和一男一女两个孩子。一天，父亲将女儿赶出门去，等女孩回家时，弟弟不见了，锅里浮着一层白花花油乎乎的东西，灶边扔着一具骨头。几天之后，父亲又往锅里添水，然后招呼女儿过去。女孩吓得躲在门外大哭，哀求道：‘大大（爸爸），别吃我，我给你搂草、烧火，吃了我没人给你做活。’”
 
-你们不知道这（事）有多大，刚才有战友懂的给我发个信息
-You don’t know how big this is, just now a comrade-in-arms sent me a message
+《中国大饥荒，**1958-1962**》中有如下记录：
 
-（说）七哥任何你说的一件事情都超过币安
-it said Miles, anything you just said is better than Binance
+1961年中国大饥荒肆虐时，中共的调查文件读起来几乎像是食谱。 一份文件写道：在[四川省](https://zh.wikipedia.org/wiki/%25E5%259B%259B%25E5%25B7%259D%25E7%259C%2581)[石柱土家族自治县](https://zh.wikipedia.org/wiki/%25E7%259F%25B3%25E6%259F%25B1%25E5%259C%259F%25E5%25AE%25B6%25E6%2597%258F%25E8%2587%25AA%25E6%25B2%25BB%25E7%25B8%25A3)的桥头区，老妇人罗文秀是第一个开始吃人肉的人。在其家人一家七口全部死去后，罗文秀把三岁女童马发慧的尸体挖出来。她把小女孩儿的肉割下来，用辣椒调味，然后蒸熟吃掉。
 
-我们的第一个国家的主权数字银行，那是100%的
-our first country’s sovereign digital bank, that’s 100% holding
+另一份1961年1月27日的文件，讲述了一个四川母亲用毛巾勒死了自己五岁大的儿子，“吃了四顿”。调查者王德明写道，“这样令人震惊的可怕事件远非只有这一起。”
 
-第二个是87%，所以让战友们谁进去，比如说现在Eglise跟飞飞搞了个基金
-the second one is 87% holding, so which comrades-in-arms will allow to join in, for example, now Eglise has a fund with Feifei
+吃人的地方包括河南信阳地区、安徽、四川等地，“当时我去采访的时候，他们活下来的人说，几乎村村都吃人，有时候是吃自己的孩子。四川东部也有。”
 
-你要进来以后，就是你拿到1%你未来这个价值（有）多大呢
-If you want to join in, even you only get 1% share, how much value will it be in the future?
+发布：去中心化Math
 
-你是个通道，你就是数字银行的SWIFT, 全世界一共几个数字银行，你告诉我
-Digital banking is a money channel, that is the SWIFT of the digital bank, you tell me how many digital banks in the world?
-
-美国政府和世界这个监管是对咱喜币100%的一个天意
-The strict regulation of digital coins by the U.S. government and the world is a Godsend for H-Coin
-
-早一年也不行，晚一年也不行，就在咱上来的（时候）就开始了
-It doesn’t work a year earlier or a year later, it started when we are in the market
-
-喜联储、喜币、喜美元是法币和数字货币的完美的结合
-Himalaya Federal Reserve, H-Coin, and H-Dollar are the perfect combination of fiat currency and digital currency
-
-加上HPay（和）未来的喜贷款，不但如此
-plus H-Pay and future H-loans, not only that
-
-这次美国的监管政策对咱更重要的一个利好在哪里
-What is the more important benefit of the U.S. regulatory policy for us this time?
-
-我们可能会成为参加国际上数字货币运行的定制的标准
-We may become a customized standard for participating in the international digital currency operations
-
-也就是世界新金融系统（标准）制定的最重要的参与影响者
-that means, the most important participant in the development of the world’s new financial system standard
-
-Date:12/04/2021
-原视频标题: 美国对数字货币的监管，让喜联储成为国际数字货币运行标准的制定者
-The U.S. regulation of digital currency has made the Himalaya Federal Reserve become the operating standards maker of international digital currency
-原视频日期：2021/12/01
-原视频链接[https://gettr.com/post/pimpye3e05](https://gettr.com/post/pimpye3e05)
-任务编号：3100
-视频时间段 : 0:00-2:16
-中听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：**
+**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

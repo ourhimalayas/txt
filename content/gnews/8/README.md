@@ -2,29 +2,26 @@
 ---
 
 
-## COVID-19 最新情报｜台湾2022年元旦起 部分工作强制接种两剂
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1722382/)
+## 世卫组织称加强针并不能带更大的保护作用
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1722520/)
 
-**台灣寶島農場 疫情關注組 / 發佈時間｜5/12/2021**
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-7.png)
+图片来源： www.dw.com
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+零对冲网11月3日报道，世界卫生组织（WHO)针对英国政府决定拿出上亿支加强针疫苗让英国国民打加强针的事情提出疑问，认为“没有证据”显示这个加强针疫苗对健康能提供更大的保护。
 
+英国卫生部长萨吉德·贾伟徳说该国到明年1月底准备了有1.14亿剂疫苗在2022年和2023年间争取时间为每个18岁以上的人提供疫苗。
 
-中央流行疫情指挥中心今(5)日表示，为积极防范国际疫情严峻及新型变异株威胁，降低社区传播风险，自2022年1月1日起，教育部、经济部、劳动部及卫生福利部业管之部分场所(域)将强化COVID-19疫苗接种规范。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/29fff30b-ef17-47aa-9e5c-7ae88960bf59.jpg)
-其中，教育部业管场所包含：高级中等以下学校及幼儿园、儿童课后照顾服务中心、社区大学、短期补习班、乐龄学习中心、竞技及休闲运动场馆业、游泳池、高级中等以下学校表演艺术类团队练习。
+而世卫组织急诊项目医生迈克·雷恩对此表示英国卫生部的决定背后的逻辑表示疑问，他说：“ 就我所知，现在还没有证据显示让大家打加强针会给大众的健康带来更多的保护以对抗住院和死亡。”
 
-指挥中心强调，**为确保相关场所(域)人员自111年1月1日起能符合上开规范，请相关场所(域)鼓励未完整COVID-19疫苗接种之工作人员及从业人员，尽速于110年12月17日前完整接种疫苗2剂**。各相关部会亦将加强查核。
+英国医学机构针对新出现的奥米克隆变种要求更多的儿童注射疫苗。
 
-倘人员经医师评估且开立不建议施打COVID-19疫苗证明者，于首次服务前，应提供自费3日内PCR检验阴性证明，后续须每周1次**自费**抗原快筛(**含家用快筛**)或PCR检验阴性后，始得提供服务。
+目前这个变种在年轻人中表现很“轻微”，但专家们辨论说把这个新变种说成是“轻微的”这个概念很危险，因为是在南非年轻人中传染（平均年龄27岁），我们还不知道这个变种对老年人会怎样。然后他们说解决办法是给更多的年轻人打疫苗。
 
-- 相关：[台湾前线￨台湾发动连署 反对尚未实行的疫苗通行证](https://gnews.org/zh-hant/1721506/)
+这是什么逻辑？
 
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-1.png)
-来源￨[卫生福利部疾病管制署](https://www.cdc.gov.tw/Bulletin/Detail/uZUdiaR1R7nr_G3N1VnVNQ?typeid=9)
+##### **新闻来源： **[World Health Organization Says “No Evidence” Booster Jabs Would Offer “Greater Protection” To The Healthy](https://www.zerohedge.com/covid-19/world-health-organization-says-no-evidence-booster-jabs-would-offer-greater-protection)
 
  
 

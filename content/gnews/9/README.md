@@ -2,99 +2,42 @@
 ---
 
 
-## 美国对数字货币监管的两弊两利
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1722364/)
+## 7.24系列——大跃进之后的大饥荒（一）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1722516/)
 
-[https://gtv.org/video/id=61ac862c87fa7e74c92b8d74](https://gtv.org/video/id=61ac862c87fa7e74c92b8d74)
+整理：BENJ1
+编辑：Kelly
+![](https://assets.gnews.org/wp-content/uploads/2021/12/4-2.png)配图制作：小蚂蚁614
+2021年12月3日文贵先生直播提到：
 
-郭文贵
-MIles Guo
+明年5月份后，国内是最黑暗的地方。现在阿富汗每天都有人被饿死，2300万人在忍受着饥寒，我们想救阿富汗人都无从着手。中共一旦开战攻打台湾，台湾和大陆，就不是死一两个人的事了。我们绝对不会允许台湾的战友有危险，但是墙内战友面临疫苗灾难的死亡、缺粮，我们真的是无能为力，墙内是世界上最坏的地方，会比朝鲜**70**年代和**90**年代的大饥荒还惨，基本回到大跃进后的状态。今天，中国共产党，让你们的孩子打疫苗，还要打台湾，他们像是上帝，跟当年独裁走的路一模一样，付出代价的一定是无辜的穷苦老百姓。国内的同胞们，一定要团结，所有的灾难是因为脑子错了，不辨善恶。
 
-包括现在欧洲、美国、日本、中东，好多大的地产公司、汽车公司
-Including many large real estate companies and automobile companies in Europe, the United States, Japan, and the Middle East
+1958年5月中共八大二次会议之后，毛腊肉发动了大跃进运动，中国人要跑步进入共产主义，搞人民公社，吃大锅饭，不允许农村一家一户自己生火做饭，都要去集体大食堂吃饭。对于六十岁以上的人，尤其是幼年在乡镇农村生活过的，吃集体大食堂恐怕是人生经历中消不去的梦魇。七零后、八零后很多都看过电影《活着》，里有这样的一组镜头：为了使钢铁年产量达到1070万吨，号召每一个家庭捐出所有铁器，不分昼夜土法炼钢。葛优演的富贵不仅把家里的大小铁锅捐了，富贵儿子还报告镇长皮影上有铁丝，箱子上还有铁钉。镇长说：“这点铁至少可以造二颗子弹，兴许解放台湾打到最后就差这二颗子弹。”
 
-都要接受HCN喜币来做交易，任何一个象征性的交易，它都是了不得的
-are all agreed to accept HCoin to do business, any symbolic transaction, it is extraordinary
+当时除了造成人力、物力、财力极大浪费的全民炼钢，还搞“人有多大胆，地有多大产”粮食产量的虚假宣传，各种“放卫星”，为了增产增收不顾农作物的自然生长规律，搞“家土换湖土，一亩顶二亩”，集体出工深翻土地等等胡乱操作，不仅没换来高产，反而欠收。吃社会主义大食堂的铺张浪费没过多久，大食堂就因为缺粮停办了。
 
-请问问，除了比特币之外，火币, 还有什么币安，这么多14000种币
-Please ask, besides Bitcoin, Huobi, and that Binance, there are 14,000 so many digital currency
+1958年大跃进闹了才半年，墙上刷的“三年超英，五年赶美”的标语颜色还没退掉，就开始出现物资短缺，到了1959年大饥荒随之而来。
 
-有几种币在市场上说真的是大型的严肃性的企业，接受你的币了
-How many digital currency have been accepted to do business by the really large and serious companies in the market?
+是什么原因使得“吃饭不要钱就是共产主义”，“与火箭争速度，和日月比高低”的大跃进一瞬间就变成了饿殍遍野的地狱景象？
 
-它不流通，数字货币的核心是你不流通屁都不是
-It doesn’t circulate, the core of digital currency is circulation, if you don’t circulate, it’s worthless
+答案是：“大跃进”和人民公社化运动，坚持以钢为纲的“大跃进”，造成了国民经济比例严重的失调，包括积累和消费的比例失调，工农业比例失调，重工业畸形发展，工业内部各部门比例失调，钢铁生产挤占大量能源、原材料和交通运输，使其他部门无法正常生产。轻工业生产急剧下降。由于基本建设规模过大，增加大量职工和投资，造成财政收支不平衡以及社会购买力和可供应商品的比例严重失调，出现了巨大的财政赤字和市场紧张。最严重的是农业生产遭到极大破坏，农业产量急剧下降，造成最严重的经济困难，粮、油和蔬菜、副食品等的极度缺乏。
 
-那你要流通你就要一定跟法币连在一起，你不能成为一个洗钱的工具、偷税的工具
-If you want to circulate, you must be connected with fiat currency, you cannot become a tool for money laundry or tax evasion
+全国工农业总产值大幅度下降，1959年中国大陆粮食产量较1958年下降15%，而1960-1961年产量只有1958年的70%，全国各地的粮食、棉花产量跌落到相应1951年的水平。具体数字上，全国粮食产量由1958年的4000亿斤，下降到1959年的3400亿斤，1960年又下降到2870亿斤，低于1951年产量，1961年略有回升仍只有2950亿斤。 美国[中央情报局](https://zh.wikipedia.org/wiki/%25E4%25B8%25AD%25E5%25A4%25AE%25E6%2583%2585%25E6%258A%25A5%25E5%25B1%2580)在1962年出版的文件中称，1961年，中国大陆粮食产量出现下跌，有工厂关闭，教育和科学的发展被扰乱，数以百万的人严重营养不良。并且出现广泛的饥荒(widespread hunger)。在另一份中情局于1962年9月24日出版的《共产中国的上升死亡率（THE RISING DEATH RATE IN COMMUNIST CHINA）》中，文件第1页中称，自1958年以来，死亡率（中国大陆）由于营养不良、对疾病抵抗力减弱和食物短缺而快速上升，此外中国大陆在1959年到1961年的年粮食产量也低于1957年的水平。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/11.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/12-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/13-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/14-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/15-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/16-1.jpg)
+《大饥荒：1959-1961年的中国人口》一书给出了各省饿死人数比例，其中产粮大省安徽死亡率最高，四川死亡人数最多。二零零五年四川人民出版社出版了原重庆市委办公厅主任兼团市委书记廖伯康的回忆录，称四川非正常死亡人数是一千万甚至一千二百万，而不是人们常说的九百多万。仅四川省荥经县全县，五八年加上外来人口近十二万人，六二年后统计只剩五点七万人，死了一半。
 
-那是没有未来的，这就是比特币最终会消亡的（原因）
-There is no future, this is why Bitcoin will eventually die
+网络上记载了这样一件发生在成都平原的真人真事。“那时爸爸在中学上学，按规定中学生每个月定量供应十五斤大米。这十五斤大米不仅是爸爸的‘保命粮’，还是奶奶全家的生命线。当时爷爷已经饿死了，爸爸每月省下三分之一的口粮，走上五十多里的山路带回去给奶奶和姑姑和着糠粉与红薯煮着吃。
 
-那么你确确实实跟法币联系，你必须要受监管，受监管就是要KYC
-Then you are indeed in contact with fiat currency, you must be supervised, and that means KYC
+一天爸爸在家里帮着干了一整天的农活正准备返回学校，突然发现自己衣袋里的粮食本不翼而飞，顿时吓呆了，怎么也找不到。奶奶猜测偷粮本的人一定会到粮站买粮，于是他们赶到粮站等‘小偷’。终于等来了小偷，一看竟是奶奶的亲妹妹。奶奶哭喊骂着：‘你这不是要了侄儿的命吗？你还配当孩子的姨妈吗？’姨妈开始捂着脸一句话不说，后来她也大哭起来：‘姐，你骂我打我吧，我不是人！可我的孩子几天没吃的了，他们就要饿死了！我这个当妈的怎么办啊！’后来爸爸靠粮本活了下来，而姨妈的孩子却饿死了。从那以后，奶奶和妹妹形同路人，至死不再往来。”
 
-美国的监管它能监管到什么呢？大家记住，它有两弊两利
-What can the U.S. regulation of digital currency supervise? Remember, it has two disadvantages and two advantages
+发布：去中心化Math
 
-一弊，弊在哪里啊，咱必须要面对美国的监管的时候
-One disadvantage, where is the disadvantage? when we have to face American regulation
-
-这个时候你要进入美国市场的时候，就是说你一定要记住
-When you want to enter the American market at this time, that means you must remember
-
-战友们，你们要懂得的，美国政府监管，你信息是一定会
-My comrades in arms, you have to understand that your information will be regulated by the U.S. government
-
-就是美国公民的信息是一定要给美国政府的IRS，这是你没有选择的
-That means the information of American citizens must be given to the IRS of the U.S. government, you have no choice
-
-另外一个，这是第一弊，第二弊是哪里呢
-Another one, this is the first disadvantage, where is the second disadvantage？
-
-就是在美国你想偷税，你要合法避税，你不能偷税了，这是两弊
-You want to evade tax in the United States, you need to avoid tax legally, and you can’t evade tax, this is the second disadvantage
-
-两利在哪里呀，天下唯一的会受西方政府最尊重的，
-Where are the two advantages? The only one in the world that will be most respected by the western government
-
-喜马拉雅KYC, 绝对是最高境界
-Himalaya’s KYC is definitely the highest level
-
-这次咱就会成为No. 1中的No. 1
-This time we will become the ultimate winner
-
-另外一个利在哪里呀，喜币会更加值钱
-Where is the other advantage? HCoin will be more valuable
-
-因为这些国家看了你的KYC, 看到你的结构，稳定币、法币
-because these countries look at the KYC, review the structure, stable currency, fiat currency
-
-而且是中心化的行政管理去中心化的技术，它放心了
-And it’s a decentralized technology for centralized administrative management, so they can be ease
-
-这些国家就会全面接受，那会“噌”地一下价格像窜天猴一样就上去了
-These countries will fully accept it, and the price will soar like the rocket
-
-* * *
-
-Date:12/02/2021
-原视频标题: 美国对数字货币监管的两弊两利
-Two disadvantages and two advantages of U.S. regulation of digital currency
-原视频日期：2021/12/01
-原视频链接[https://gettr.com/post/pihods9442](https://gettr.com/post/pihods9442)
-任务编号：KC304（3082）
-视频时间段 : 0:00-2:15
-中听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：**
+**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
