@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/5/2021 11:10 PM (UTC)`
+
+12/5/2021 Miles Guo: Xi Jinping’s confidence and insanity come from Russia; Xi has personal grudges with the US and European governments and they look down upon each other; battery, new energy, digital currency, and space technology have given Xi confidence; Xi Jinping alone determines the fate of Communist China, and Russia is the key for taking down the CCP<br/><br/>12/5/2021 文贵直播：习近平的自信和疯狂源自俄罗斯；习跟美、英政府有个人恩怨，互相不待见；电池、新能源、数字货币和太空技术给习自信；习决定了中共国的命运，俄罗斯对灭共很关键<br/><br/>
+![img](https://media.gettr.com/group41/getter/2021/12/05/23/1632ba85-c5bd-e4f7-b7f0-5bbe6cdd5442/out.jpg)
+
+---
+
 `@miles 12/5/2021 10:46 PM (UTC)`
 
 5/12/2021 “Hcoin To the Moon" Hits #1 🥇on 10 Countries' iTunes Rock Charts on 3nd Day of Launch！🎉🎉🎉🎉🎉🎉🎉<br/>Thank you very much to all our brothers and sisters in HongKong, UAE, Taiwan, New Zealand, Malaysia, Poland, Spain, Hungary, Australia, Singapore!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1723274<br/><br/>12月5号，Hcoin To the Moon上线第3天位列10国iTunes摇滚音乐榜首🥇！🎉🎉🎉🎉🎉🎉🎉<br/>感谢香港，阿联酋，台湾，新西兰，马来西亚，波兰，西班牙，匈牙利，澳大利亚，新加坡的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/><br/>中文：https://gnews.org/zh-hans/1723273/<br/>
@@ -144,13 +151,6 @@ Hcoin To The Moon <br/>iTunes Ranking No. 1 🥇<br/>iTunes 打榜第一名🥇<
 
 12/3/2021 Miles Guo: The CCP’s COVID vaccines lead to the sudden onset of various cancers in the senior people, increase sudden deaths in the young adults, and cause uterine, ovarian, and breast cancer in women; vaccinating children will lead to precocious puberty and cancer, and children in Communist China would rather not go to school than get the COVID jabs!<br/><br/>12/3/2021 文贵直播：中共疫苗导致老年人突发多种癌症，中年壮年猝死率陡增，女性得子宫癌、卵巢癌和乳腺癌；给孩子打疫苗将导致早熟和癌症，国内孩子宁愿不上学也不要打疫苗！<br/>
 ![img](https://media.gettr.com/group27/getter/2021/12/04/04/42/09dfb92f-1ddd-1f1d-d156-ff48a830225e/out.jpg)
-
----
-
-`@miles 12/4/2021 4:03 AM (UTC)`
-
-12/3/2021 Miles Guo: Who did Xi Jinping meet with between August 1 and 16, 2021? And for how long? The first person Xi met, Song Ping, was Hu Jintao's godfather and the “king of the left” in the CCP<br/><br/>12/3/2021 文贵直播：2021年8月1日到16日之间，习近平见了谁？见了多久？习第一个看望的宋平是胡锦涛的教父、左派之王<br/>
-![img](https://media.gettr.com/group3/getter/2021/12/04/04/03/85bb12e2-4f76-746a-552b-6116f4f3770e/out.jpg)
 
 ---
 
