@@ -2,51 +2,29 @@
 ---
 
 
-## 美国心脏协会指出mRNA疫苗致心脏损伤，遭推特审查
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1722354/)
+## COVID-19 最新情报｜台湾2022年元旦起 部分工作强制接种两剂
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1722382/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Censored-Twitter-Duct-Tape-Woman.jpg)
+**台灣寶島農場 疫情關注組 / 發佈時間｜5/12/2021**
 
-图片来源：Natural News
-**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-**翻译：**皮特
-**编辑：**青虻、翼族
 
-美国心脏协会（AHA）的最新研究遭推特审查，因为它揭露了与Covid-19“疫苗”相关的严重健康风险。
+中央流行疫情指挥中心今(5)日表示，为积极防范国际疫情严峻及新型变异株威胁，降低社区传播风险，自2022年1月1日起，教育部、经济部、劳动部及卫生福利部业管之部分场所(域)将强化COVID-19疫苗接种规范。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/29fff30b-ef17-47aa-9e5c-7ae88960bf59.jpg)
+其中，教育部业管场所包含：高级中等以下学校及幼儿园、儿童课后照顾服务中心、社区大学、短期补习班、乐龄学习中心、竞技及休闲运动场馆业、游泳池、高级中等以下学校表演艺术类团队练习。
 
-一位名叫玛丽娜·梅德文的人发布推特，内容链接到该项研究，但这个链接遭推特标注为：“警告：该链接可能不安全。” 用户被警告要求“返回上一页”以避免访问此文章，尽管底部还有一个字体很小的链接“忽略此警告并继续”。
+指挥中心强调，**为确保相关场所(域)人员自111年1月1日起能符合上开规范，请相关场所(域)鼓励未完整COVID-19疫苗接种之工作人员及从业人员，尽速于110年12月17日前完整接种疫苗2剂**。各相关部会亦将加强查核。
 
-该研究发表在AHA的科学期刊《循环》（Circulation）上，清楚地解释了mRNA冠状病毒疫苗是如何“显著地增加内皮炎症标志物”，从而增加患急性冠状动脉综合征(ACS)的风险。这是AHA发布的一项官方研究！如果它是支持疫苗的，那么就会被推特审查员所接受。然而，推特禁止了其内容，因为此研究否定了政府“医生”托尼·福奇的大流行应对政策。
+倘人员经医师评估且开立不建议施打COVID-19疫苗证明者，于首次服务前，应提供自费3日内PCR检验阴性证明，后续须每周1次**自费**抗原快筛(**含家用快筛**)或PCR检验阴性后，始得提供服务。
 
-关于推特的“标准”，其中一位用户跟推回复说：“如果他们说这是真的，那很可能是假的。”
+- 相关：[台湾前线￨台湾发动连署 反对尚未实行的疫苗通行证](https://gnews.org/zh-hant/1721506/)
 
-另一位则写道：“如果他们说这是假的，那么它很可能是真的。”
 
-还有人讽刺地发推文，“AHA发布了一项研究，警告mRNA新冠疫苗对心脏的影响，推特却发出警告指出AHA网站可能不安全，这可是美国心脏协会哦？！？”
-
-随后，AHA对这项研究因“几个印刷错误”表示“关注”。该组织声称，“摘要中没有关于心肌T细胞浸润的数据”或“提供的重要统计分析”。
-
-推特借此机会错误地声明该研究本身“可能是毫无用处的或不安全的”，并包含“可能窃取个人信息或损害电子设备的恶意链接”。
-
-并且推特进一步坚称，该研究可能“误导人们或破坏他们的体验”，因为据称它包含“可能导致现实世界损害的暴力或误导性内容”。含有这项研究的链接也被标识了 “因含有某些类别的内容，如果直接发布到推特，将违反推特规则”，以试图阻止用户查看它。
-
-零对冲Zero Hedge的一位评论者指出：“推特发出的警告，通常是让我们更加注意这些所发布的内容。”
-
-另一位评论者回应道：“推特发出的警告通常是警告我们，让我们离开推特”。另一个人开玩笑说，推特肯定比AHA更了解心脏病学。可以看到在所有事情上，他们都是自大的专家。
-
-这位评论者补充道：“人们应该意识到，推特这种明目张胆的审查医学事实应该是没有必要的，如果官方描述真是事实的话，没什么必要去审查和官方描述有冲突的医学事实。”
-
-**原文链接：**[Twitter now says American Heart Association science article is “unsafe link” because it shows that mRNA vaccines cause heart damage](https://www.naturalnews.com/2021-12-04-twitter-aha-science-unsafe-mrna-vaccines-heart-damage.html)
-
-*发布：翼族*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-1.png)
+来源￨[卫生福利部疾病管制署](https://www.cdc.gov.tw/Bulletin/Detail/uZUdiaR1R7nr_G3N1VnVNQ?typeid=9)
 
  
 

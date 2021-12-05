@@ -15,107 +15,107 @@
 
 ---
 
-### [推特(Twitter)新任CEO将更为压制言论自由](/content/gnews/1/README.md)
- ` 墨尔本雅典娜农场`
+### [DC每日热点1205](/content/gnews/1/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [【#G时新闻】布林肯：任何中共国入侵台湾之举将有“可怕后果”](/content/gnews/2/README.md)
- ` G-时新闻`
+### [12/05/21 香港快讯 邹幸彤获颁「中国杰出民主人士奖」：香港发生的一切是对世界的警号](/content/gnews/2/README.md)
+ ` 英喜-粵語組`
 
-### [爆料革命带给我的第一次](/content/gnews/3/README.md)
+### [文贵大直播 12/5 今天全球经济大趋势决定了喜币才会有明天](/content/gnews/3/README.md)
+ ` 秘密翻译组-原创组`
+
+### [当我想你的时候……](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [还能洗多久：香港教育局公布《价值观教育课程架构》](/content/gnews/4/README.md)
- ` 澳喜农场`
-
-### [7.24系列——大跃进之后的大饥荒（三）](/content/gnews/5/README.md)
+### [推特(Twitter)新任CEO将更为压制言论自由](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [王者才会笑傲“江湖”](/content/gnews/6/README.md)
+### [【#G时新闻】布林肯：任何中共国入侵台湾之举将有“可怕后果”](/content/gnews/6/README.md)
+ ` G-时新闻`
+
+### [7.24系列——大跃进之后的大饥荒（四）](/content/gnews/7/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [爆料革命带给我的第一次](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [还能洗多久：香港教育局公布《价值观教育课程架构》](/content/gnews/9/README.md)
+ ` 澳喜农场`
+
+### [7.24系列——大跃进之后的大饥荒（三）](/content/gnews/10/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [王者才会笑傲“江湖”](/content/gnews/11/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [恒大业主维权，政府出动警察镇压](/content/gnews/7/README.md)
+### [恒大业主维权，政府出动警察镇压](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [疯狂的“上海小红楼”，远甚当年赖昌星的红楼](/content/gnews/8/README.md)
+### [疯狂的“上海小红楼”，远甚当年赖昌星的红楼](/content/gnews/13/README.md)
  ` 墨尔本雅典娜农场`
 
-### [惊天发现！奥密克戎早已存在](/content/gnews/9/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美国国务卿布林肯再次对中国政府就台湾事宜发出警告](/content/gnews/10/README.md)
- ` 澳喜农场`
-
-### [福奇说疫苗生产商可以生产针对奥米克戎的加强针](/content/gnews/11/README.md)
- ` 澳喜农场`
-
-### [澳洲TGA临时批准辉瑞公司疫苗用于5至11岁的儿童](/content/gnews/12/README.md)
- ` 澳喜农场`
-
-### [日台关系如胶似漆 二度举行“外交国防2+2”](/content/gnews/13/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [【樱花深度报道】中共正在殖民英联邦国家（下）](/content/gnews/14/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [一位女士的未婚夫接种中共病毒疫苗11天后死于心脏病](/content/gnews/15/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [纳瓦罗：我们应该停止称其为疫苗，这是实验性RNA技术](/content/gnews/16/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [女子网球协会因彭帅的遭遇而暂停在中共国的所有比赛](/content/gnews/17/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [不要批钱给强迫人们接种疫苗的政府](/content/gnews/18/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中共正在计划一个新的交易所来交易数据](/content/gnews/19/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中共国正在用核武器武装巴基斯坦](/content/gnews/20/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [【樱花深度报道】中共正在殖民英联邦国家（中）](/content/gnews/21/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [【樱花深度报道】中共正在殖民英联邦国家（上）](/content/gnews/22/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [法日欲缔结《互惠准入协定》 遏制中共霸权行径](/content/gnews/23/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中概股公司面临巨大挑战：恒大2.6亿美元债务违约、滴滴从美国纽交所退市](/content/gnews/24/README.md)
+### [疯狂之举&#8212;-英超球队考虑在新合同中加入疫苗接种条款](/content/gnews/14/README.md)
  ` 首尔天池农场`
 
-### [银河快讯: 日本将导弹射程扩大到上海；执政党关于财产税特例谈判陷入僵局](/content/gnews/25/README.md)
+### [惊天发现！奥密克戎早已存在](/content/gnews/15/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美国国务卿布林肯再次对中国政府就台湾事宜发出警告](/content/gnews/16/README.md)
+ ` 澳喜农场`
+
+### [福奇说疫苗生产商可以生产针对奥米克戎的加强针](/content/gnews/17/README.md)
+ ` 澳喜农场`
+
+### [澳洲TGA临时批准辉瑞公司疫苗用于5至11岁的儿童](/content/gnews/18/README.md)
+ ` 澳喜农场`
+
+### [日台关系如胶似漆 二度举行“外交国防2+2”](/content/gnews/19/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [【樱花深度报道】中共正在殖民英联邦国家（下）](/content/gnews/20/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [一位女士的未婚夫接种中共病毒疫苗11天后死于心脏病](/content/gnews/21/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [纳瓦罗：我们应该停止称其为疫苗，这是实验性RNA技术](/content/gnews/22/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [女子网球协会因彭帅的遭遇而暂停在中共国的所有比赛](/content/gnews/23/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [不要批钱给强迫人们接种疫苗的政府](/content/gnews/24/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [中共正在计划一个新的交易所来交易数据](/content/gnews/25/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [中共国正在用核武器武装巴基斯坦](/content/gnews/26/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [法日欲缔结《互惠准入协定》 遏制中共霸权行径](/content/gnews/27/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中概股公司面临巨大挑战：恒大2.6亿美元债务违约、滴滴从美国纽交所退市](/content/gnews/28/README.md)
+ ` 首尔天池农场`
+
+### [银河快讯: 日本将导弹射程扩大到上海；执政党关于财产税特例谈判陷入僵局](/content/gnews/29/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [【#G时新闻】喜币超越法币成为未来最佳货币的三大契机](/content/gnews/26/README.md)
+### [【#G时新闻】喜币超越法币成为未来最佳货币的三大契机](/content/gnews/30/README.md)
  ` G-时新闻`
 
-### [世卫组织称加强针并不能带更大的保护作用](/content/gnews/27/README.md)
+### [世卫组织称加强针并不能带更大的保护作用](/content/gnews/31/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [FDA官员要求谷歌审查其所不喜欢的油管视频](/content/gnews/28/README.md)
+### [FDA官员要求谷歌审查其所不喜欢的油管视频](/content/gnews/32/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [大媒体该醒醒了](/content/gnews/29/README.md)
- ` 骄子`
-
-### [在疫苗灾难翻转之前 想尽一切办法活下去](/content/gnews/30/README.md)
+### [在疫苗灾难翻转之前 想尽一切办法活下去](/content/gnews/33/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美国对数字货币的监管，让喜联储成为国际数字货币运行标准的制定者](/content/gnews/31/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [12/5/2021国内经济财经周报：滴滴宣布从纽约退市，留下一地鸡毛；中共约谈恒大许家印，墙内经济是否还能支撑？](/content/gnews/32/README.md)
- ` 秘密翻译组金融团队`
-
-### [COVID-19 最新情报｜台湾2022年元旦起 部分工作强制接种两剂](/content/gnews/33/README.md)
+### [COVID-19 最新情报｜台湾2022年元旦起 部分工作强制接种两剂](/content/gnews/34/README.md)
  ` G&#124;News TAIWAN`
-
-### [美国心脏协会指出mRNA疫苗致心脏损伤，遭推特审查](/content/gnews/34/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [COVID-19的新变异病毒与免疫逃避](/content/gnews/35/README.md)
  ` 澳喜农场`

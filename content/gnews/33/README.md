@@ -2,29 +2,93 @@
 ---
 
 
-## COVID-19 最新情报｜台湾2022年元旦起 部分工作强制接种两剂
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1722382/)
+## 在疫苗灾难翻转之前 想尽一切办法活下去
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1722452/)
 
-**台灣寶島農場 疫情關注組 / 發佈時間｜5/12/2021**
+[https://gtv.org/video/id=61aca14487fa7e74c92b95fd](https://gtv.org/video/id=61aca14487fa7e74c92b95fd)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+**郭文贵
+Miles Guo**
 
+我很乐观的是一两个月，我认为疫苗灾难一定会停
+I am very optimistic for one or two months, I think the vaccine disaster will definitely stop
 
-中央流行疫情指挥中心今(5)日表示，为积极防范国际疫情严峻及新型变异株威胁，降低社区传播风险，自2022年1月1日起，教育部、经济部、劳动部及卫生福利部业管之部分场所(域)将强化COVID-19疫苗接种规范。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/29fff30b-ef17-47aa-9e5c-7ae88960bf59.jpg)
-其中，教育部业管场所包含：高级中等以下学校及幼儿园、儿童课后照顾服务中心、社区大学、短期补习班、乐龄学习中心、竞技及休闲运动场馆业、游泳池、高级中等以下学校表演艺术类团队练习。
+咱们就在4周前，美国法官是否要裁定这周不准强制医生打疫苗的事情上
+Just at 4 weeks ago, whether the American judge was going to rule that doctors were not allowed to do vaccine mandate this week
 
-指挥中心强调，**为确保相关场所(域)人员自111年1月1日起能符合上开规范，请相关场所(域)鼓励未完整COVID-19疫苗接种之工作人员及从业人员，尽速于110年12月17日前完整接种疫苗2剂**。各相关部会亦将加强查核。
+当时是所有的反馈90%概率是不可能
+At that time, 90% probability of all feedback is impossible
 
-倘人员经医师评估且开立不建议施打COVID-19疫苗证明者，于首次服务前，应提供自费3日内PCR检验阴性证明，后续须每周1次**自费**抗原快筛(**含家用快筛**)或PCR检验阴性后，始得提供服务。
+但是就接着三天检察官、联邦法官全部颁发出来
+But in the next three days, prosecutors and federal judges all issued bans
 
-- 相关：[台湾前线￨台湾发动连署 反对尚未实行的疫苗通行证](https://gnews.org/zh-hant/1721506/)
+这对今天的美国来讲情势已经天覆地转了，包括消防员、警察拒绝
+For today’s America, the situation has turned upside down, including firefighters and policemen refused vaccine mandate
 
+你看看世界上谁最勇敢，你看哪个国家最强大，美国人
+You look at who is the bravest people in the world, which country is the strongest, is the Americans
+
+到目前为止在全世界最勇敢的，行动最多还是美国，包括法律上
+Until now the bravest and most action in the world is the United States, including in the area of law
+
+然后你看这个新兴强大之国澳大利亚，最极端的、最混蛋的
+Then you look at this newly powerful country Australia, the most extreme and the most asshole country
+
+但是行动力老百姓是最强的，很可悲啊
+But Laobaixing there are the strongest in mobility which is very sad
+
+德国这个国家是个极端的民族，极端的国家
+Germany is an extreme nation, an extreme country
+
+不是最好的东西生产出来，就是极端的灾难
+Either the best thing is produced, or it’s an extreme disaster
+
+历史一战二战到现在都是，包括跟共产党的关系
+from the history of World War I and World War II up to now, including the relationship with the Communist Party
+
+现在德国在走向另外一个极端，德国的政客之流氓你无法想象
+Now Germany is going to the other extreme, you can’t imagine the gangsters of German politicians
+
+我们这个公关公司最不想接的活儿，就是公关德国
+The least job that our PR company wants to take is doing PR in Germany
+
+再一个就是意大利，说意大利人就不可信，撒谎，他说一帮骗子
+The other one is Italy, saying that Italians are untrustworthy, they lie and he said that Italians are a bunch of scammers
+
+再一个就是德国人，他说就是一帮完全自私的、傲慢的、愚蠢的家伙
+The other one is the German, he said that they are a bunch of completely selfish, arrogant, stupid guys
+
+你看到了，你看，新上任的总统就你看明白了总理
+You have seen it, look at that new prime minister
+
+就这个样，是吧？这都是好朋友，但是我认为你一定要相信
+That’s it, right? These are all good friends, but I think you must believe
+
+现在跟我们站在一起的不是我们，它是全人类上有智慧的、有能力的、有行动力的人的共同需要
+It’s not just ourselves, it is the common need of all mankind who are wise, capable and actionable standing with us now
+
+我相信很快会逆转的，但在这之前你得想办法活下去
+I believe it will be reversed soon, but before that you have to find a way to survive
 
 * * *
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-1.png)
-来源￨[卫生福利部疾病管制署](https://www.cdc.gov.tw/Bulletin/Detail/uZUdiaR1R7nr_G3N1VnVNQ?typeid=9)
+
+Date:12/05/2021
+原视频标题: 在疫苗灾难翻转之前 想尽一切办法活下去
+Do everything possible to survive before the vaccine disaster overturn
+原视频日期：2021/12/03
+原视频链接[https://gettr.com/post/pip15q5d9d](https://gettr.com/post/pip15q5d9d)
+任务编号：3110
+视频时间段 : 0:00-1:51
+中听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
