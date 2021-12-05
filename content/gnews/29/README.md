@@ -2,44 +2,33 @@
 ---
 
 
-## 聚焦：加拿大将效仿奥地利实行强制疫苗吗？
-` 丁过` [轉載自GNews](https://gnews.org/zh-hans/1721169/)
+## GTV新闻访谈简报|2021年12月4日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1721245/)
 
-#### 扬帆农场 丁过
-![](https://assets.gnews.org/wp-content/uploads/2021/12/IMG_0351.jpeg)来源：radiocanada
-在加拿大生活的战友最关心也最担忧的事情，可能是土豆政府是否效法奥地利实行强制性接种疫苗。
+作者：香草山翻译部
 
-奥地利政府已经实行严厉的疫苗护照，从明年2月开始，将对拒绝接种疫苗者每人罚款3600欧元，对拒绝接种加强针者每人罚款1600欧元。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-109-1280x172-1-2-1.jpg)
 
-即将上任德国总理的奥拉夫.施尔兹（Olaf Scholz）明确表示将学习奥地利引入强制性疫苗接种立法，希腊也将对60岁以上拒绝接种疫苗的人每个月罚款100欧元。
 
-在加拿大有为数不少的战友无苗族群体，相信都和笔者一样时刻关心加拿大政府是否实行强制疫苗政策。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1204text-SC-1.png)
 
-今天发表在加拿大环球邮报上的一篇专栏文章非常有趣，这篇题为《加拿大应该抵制向未接种疫苗的人扔锤子的冲动——至少现在是这样》的文章，由专栏作家约翰.伊比特森撰写。
 
-如果单看标题就认为作者是反疫苗者或友善的人，那就大错特错了。伊比特森称拒绝接种疫苗者是“这些垃圾”，并主张实行隔离，“不允许他们与我们一起工作、乘坐火车飞机、在餐馆吃饭、在健身房锻炼，或坐在剧院或竞技场。”
+校对：Stay文苑
 
-实际上加拿大政府实施的疫苗护照已经全部这样做了，可悲的是，疫苗护照在加拿大受到的阻力很小。
+编辑：Stay文苑
 
-但伊比特森也意识到在加拿大推行强制疫苗可能行不通。他说，加拿大政府不能跟随我们的欧洲表亲，实行强制疫苗，因为可能被法院制止，除非疫情变得越来越严重，否则法院会认为这是对个人宪法权利的无理侵犯。
+发稿：Stay文苑
 
-加拿大宪法规定公民有选择拒绝或接受治疗的权利。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-90.jpeg)来源：Gnews
-这位专栏作家的意见应该代表了当前加拿大政府方面的态度：现在不强制并不代表以后不强制，这要看疫情和民意。
+视频参看：[12.4  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61ac15bdbbd75f62e52f1cb2)
 
-加拿大毕竟还是民选社会，还是法律说了算，因此，无苗族们是否敢于发出自己的声音，是否拿起法律武器捍卫自己的无苗身份，才是决定因素。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-69.jpeg)
 
-在这一点上，伊比特森还算是客观清醒的。他引用达尔豪西大学卫生与法律专职教授康斯坦斯·麦金托什的话说，如果实施“你必须接种疫苗否则将被罚款”的法律，将在法庭上受到质疑，因为这无疑是违宪的。
-
-伊比特森还引用了滑铁卢大学公共卫生科学学院院长克雷格·简斯的话：宪法捍卫一个多元的加拿大，强制接种疫苗将被视为高压手段，会造成社会更多的分裂、更多的问题。
-
-列位看官当看到这里时可能略为宽心，可能为能够生活在这样的多元社会而兴幸，但从加拿大顺利实行疫苗护照，快速将5～11岁儿童纳入疫苗接种范围就可以看出，推动强制疫苗的罪恶力量会十分强大。
-
-那么问题来了，我们无苗族如何才能堂堂正正地拒绝疫苗，如何才能阻止强制疫苗在加拿大上演？当然是和我们的战友班农一样拿起法律武器，并传播中共病毒以及杀人疫苗真相。
-
-参考：
-
-[Canada should resist urge to drop the hammer on the unvaccinated – at least for now](https://www.theglobeandmail.com/politics/article-canada-should-resist-urge-to-drop-the-hammer-on-the-unvaccinated-at/)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

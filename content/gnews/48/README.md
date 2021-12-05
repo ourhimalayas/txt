@@ -2,47 +2,10 @@
 ---
 
 
-## 中共国的“完美风暴组合”震动了加利西亚（一）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1720504/)
+## HCoin To the Moon iTunes排行榜最新更新
+` 我是音雄` [轉載自GNews](https://gnews.org/zh-hans/1720300/)
 
-编译：蚂蚁兄弟
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕截图-2021-12-04-200042.jpg)图片来源：**Juan S. G.**（lavozdegalicia.es）
-
-近两年的事件加速了中共国长期以来一直追求的转型，以实现自给自足和全球霸权，这一点现在更加明显，因为能源和半导体都出现了严重短缺。此外，尽管中共国的劳动力市场对外国制造业公司不再有吸引力，但中共国上涨的工资培养着越来越多的消费者。中共国正在发生变化，而大流行病只是使这个过程转变比原来预期更迅速。因此，许多加利西亚的纺织、金属和食品行业的公司已经在陆续撤退中，或者放缓其扩张。这就是中共国经济的变化是如何影响着加利西亚的。
-
-**加利西亚退出中共国市场**
-
-在物流受阻和成本超支的情况下，纺织、金属和食品公司正在放缓扩张，降低商业预期。
-
-没有人怀疑中国市场的巨大潜力，因为它的人口规模巨大，接近14亿的潜在买家，以及它不断增长的需求，与中上层阶级的扩张有关。据官方说，到2030年，中上阶级这部分人将占到总人口的近35%。从这些数字足以吸引加利西亚的产品和服务进入这个市场：中共国有1600万百万富翁，虽然他的国内生产总值在下降，但还是比西班牙高出10倍。
-
-事实上，中国经济放缓的速度比预期的要快。在这场由供应危机、物流崩溃和原材料价格过高组成的完美风暴中，中国经济将如何发展下去，在中共国有经济利益的加利西亚的公司不仅选择了保守主义，冻结其扩张计划，而且许多公司已经开始退出中国市场。
-
-第一个调整其在中共国的商业网络计划的是Inditex集团。自2004年Inditex进入中共国以来，最终成为全球参考的时尚趋势方面的指南针，该集团今年1月启动了一项优化商业网络的战略计划，这意味着在本财政年度关闭了在中共国的所有Bershka、Pull&Bear和Stradivarius等品牌的实体旗舰店。也就是说，Inditex在中共国的所有品牌都还是存在，在50多个城市设有分部，并通过其自己的平台和天猫进行网络销售。
-
-另一家自2004年进入中共国市场的纺织品公司是来自奥伦塞的Adolfo Domínguez。在大流行病之前，它经营着8家门店。疫情后，作为其商业网络重新定位综合有利可图的街道和市场的计划，到目前只保留了4家门店。由Adolfo Domínguez的高层领导解释说：“经过两年的中共病毒疫情和现状，本公司已经重新思考在中共国的发展战略，转向对可持续性更大的供应商发展，并增加在葡萄牙等邻国的采购。”
-
-在纺织业之外，加利西亚航空集团Delta Vigo近年来一直也在中共国发展。该公司总裁普加（Francisco Puga）解释说，尽管中共国的发展速度放缓，Delta与中共国航空业的合作并没有发生任何变化。“我们目前正在为C929开发一个项目”，他解释说。普加他对现在情况的看法不一样。他说：“我们已经看到了项目授予的放缓或延迟，原因是多种多样的，从疫情的影响到飞机计划本身的变化。”
-
-“我们在中共国的飞机业务量下降了，这是符合逻辑的”。加利西亚航空公司的总裁补充说：“达美航空对新飞机项目的参与正在减少，并在第一架飞机已经制造完成时结束。”他提醒注意另一个行业对航空行业有直接影响的后果。他说：“来自中国的钢铁和铝等材料的价格不断上涨。”他补充说：“西方必须为我们工业的正常发展寻找几乎唯一的某些关键部件供应来源的替代品。”
-
-专门生产船舶和坦克的Narón的Gabadi公司，继续为中国船厂提供生产订单。根据ICEX今年9月的最新数据，Aceites Abril、Coren集团、Feiraco合作社和100%的中国罐头公司Albo也向中共国出口，同时还有来自整个地区的350家公司，在这一时期，加利西亚在中共国的经济活动急剧下降。在今年的前九个月里，销售额达到了1.66亿欧元。这一数额高于2020年以大流行病时的1.37亿销售额，但大大低于疫情前2019年对中共国出口的1.95亿销售额。
-
-对这种下降的原因可以部分解释为由于中共国经济形势中一些部门的退出，但在最近几个月里，也可以更强烈地归因于海上运输的崩溃和集装箱的缺乏所产生的巨大后勤支配困难。这种复杂的情况不仅减缓了出口，而且还推迟了交货，在某些情况下对加利西亚公司造成了严重的经济损失，并使其价格变得更高。
-
-**请看下篇：**[中共国的“完美风暴组合”震动了加利西亚（二）](https://gnews.org/zh-hans/1720490/)
-
-**新闻来源**：[lavozdegalicia.es][El terremoto de China sacude a Galicia](https://www.lavozdegalicia.es/noticia/mercados/2021/11/26/terremoto-china-sacude-galicia/00031637928543764404251.htm)
-
-* * *
-
-*审核：Aries的星
-校对：阿伯塔
-发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3.jpeg)
-
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.001.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.002.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.003.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.004.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.005.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.006.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.007.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.008.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.009.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.010.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.011.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.012.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.013.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.014.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.015.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.016.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.017.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.018.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.019.jpeg)![]()![]()![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.020.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.021.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.022.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.023.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.024.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.025.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.026.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.027.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.028.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.029.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.030.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.031.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.032.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.033.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.034.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.035.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.036.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.037.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.038.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.039.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.040.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.041.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.042.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.043.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

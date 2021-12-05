@@ -2,33 +2,10 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月4日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1721245/)
+## 12/4/2021 文贵直播：中共国人口低于10亿；阿富汗的人道灾难是中共培养塔利班的结果
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1721362/)
 
-作者：香草山翻译部
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-109-1280x172-1-2-1.jpg)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1204text-SC-1.png)
-
-
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-视频参看：[12.4  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61ac15bdbbd75f62e52f1cb2)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-69.jpeg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+秘密翻译组-北美组
 
  
 

@@ -2,44 +2,22 @@
 ---
 
 
-## 拜登的疫苗授权在蒙大拿州的裁决中再次受到打击
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1720726/)
+## 秘翻在线: 加拿大新省禁止未接种疫苗者进入食品杂货店
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1720638/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/120401-1.jpg)随着 COVID-19 病例的增加，Wolters Kluwer 发布了所有 50 个州的疫苗和口罩授权、疫苗护照和雇主责任保护的新数据
-“未接种疫苗者的自由权益不容侵蚀。”
+撰稿：西枫westca
 
-蒙大拿州也对拜登现在步履蹒跚的联邦疫苗授权说不，又一个州否定了这个授权。 参议员史蒂夫·戴恩斯宣布了这一消息：
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Chalo_main.jpg)图片来源：www.sobeys110.com
+据TNC新闻12月3日报道，从本周六开始，加拿大新布伦瑞克省禁止不能出示全面疫苗接种证明的人进入杂货店购买食品。这项措施是作为该省 “冬季行动计划 “的一部分而宣布的，该计划允许任何企业，包括杂货店，选择禁止未接种疫苗的人进入。
 
-“蒙大拿州的大新闻”戴恩斯在推特上写道。“拜登的过度的疫苗强制令威胁到蒙大拿州的医院、蒙大拿州的医护人员和寻求获得基本护理的蒙大拿州人。我们必须赢得这场斗争。”
+据该省卫生部长多萝西-谢泼德说，这是因为该省在过去两周里看到了COVID感染的 “非常令人担忧 “的上升，特别是在未接种疫苗的加拿大人中。
 
-参议员戴恩斯曾通过公告回应蒙大拿州总检察长奥斯汀·克努森。
+在联邦政府发布的一份指南中，加拿大公共安全部将食品列为基础设施的十个关键部门之一，因其提供对市民的基本服务和功能。虽然各省在大流行期间可以自由管理他们自己的限制和封锁，但全国各地的杂货店直到现在仍对所有人开放。
 
-“对于蒙大拿州的医护人员来说是个好消息：一位联邦法官刚刚批准了我们对CMS疫苗的禁令请求。这项非法授权现在在所有50个州都被阻止。”
+极左的特鲁多政府在自中共病毒大流行发生以来，从未表述要追溯病毒来源，在疫苗接种上更是走在西方国家的前列。 如今接种率已经超过80%，已超过群体免疫比例，为何还会有高阳性率？不是政府在接种率上说谎，就是在感染者多数为未接种人群上说谎。现在又把人们生存的基本权利和疫苗连在一起，就是助虐为虐。这些政客们一定会得到正义的审判。
 
-**简评：**
-
-蒙大拿州否定了拜登的强制疫苗授权，同时更多的州也已经醒来。疫苗灾难的代价太大了，人们在用生命捍卫自己的权利和唤醒其他的同胞。伴随着各个州陆续赢得了这场斗争，终止疫苗指日可待。
-
-原文链接：[‘This Unlawful Mandate is Now Blocked in All 50 States’: Biden’s Vaccine Mandate Suffers Another Blow in Ruling for Montana](https://thekylebecker.substack.com/p/this-unlawful-mandate-is-now-blocked)
-
-*翻译/简评: Johnston2021*
-
-*校对: clau*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
-
+**新闻来源：**[https://tnc.news/2021/12/03/unvaccinated-canadians-can-be-banned-from-grocery-stores-in-new-brunswick/](https://tnc.news/2021/12/03/unvaccinated-canadians-can-be-banned-from-grocery-stores-in-new-brunswick/)
 
  
 

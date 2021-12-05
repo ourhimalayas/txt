@@ -2,27 +2,32 @@
 ---
 
 
-## 专家质疑中国的实际人口可能比统计数据更低
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1721187/)
+## 澳洲全票通过马格尼茨基人权法，剑指中共
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1721248/)
 
-#### 翻译：Steven Hu
+作者：纽约香草山农场 007
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间12月1日，澳大利亚参议院全票通过了马格尼茨基人权法。当中，针对践踏人权、从事腐败等恶劣行为的个人或实体，法案赋予政府实施冻结或没收相关人员财产并禁止相关人员入境等制裁的权力。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-05-上午10.45.25.png)
+该法案早期倡导者之一、参议员帕特森表示，必须让那些侵犯人权和试图重塑国际规则秩序的人付出真正的个人代价。帕特森强调，澳洲不会成为那些人的避难所。
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-194.png)图片来源：谷歌图片
-据《路透社》12月4日报道，中国可能低估了其人口萎缩的速度，而其最近为提高出生率而推出的三孩家庭的政策成功的机会很小。
+自此，澳大利亚成为南半球首个通过马格尼茨基人权法的国家。同时，美国、欧盟和英国都有各自的马格尼茨基法，并且他们依据该法案对在中共国新疆地区严重侵犯人权的中共官员实施了制裁。
 
-威斯康星大学妇产科高级科学家易富贤（Fuxian Yi）说，他估计中国2020年人口为12.8亿，而不是人口普查报告的14.1亿，生育率低于报告。他认为自2018年以来，中国人口一直在减少。
+参考链接：[澳大利亚参议院全票通过马格尼茨基人权法](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20211201-%E6%BE%B3%E5%A4%A7%E5%88%A9%E4%BA%9A%E5%8F%82%E8%AE%AE%E9%99%A2%E5%85%A8%E7%A5%A8%E9%80%9A%E8%BF%87%E9%A9%AC%E6%A0%BC%E5%B0%BC%E8%8C%A8%E5%9F%BA%E4%BA%BA%E6%9D%83%E6%B3%95)
 
-由于出生率急剧下降，中国经济增长放缓，引发了人们对支持老年人工作所带来的潜在挑战的担忧。为了避免这些风险，北京被迫于 2016 年取消了执行数十年的一胎化政策，容许生二胎。 但由于在中国城市养育孩子的成本高昂，该政策并无成效，继而在五月份宣布了更宽松的三孩政策。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-作家兼记者莱诺拉.朱（ Lenora Chu）表示，中国的高昂教育成本和通过高考来攀登高等教育阶梯的所带来的心理压力是一个挑战。  “这就是为什么这些计划生育政策必须与教育改革政策相结合的部分原因。否则只能让父母更不想生孩子”。
+总编：文特
+编辑：飞虹
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-最近的国家数据显示，2020 年中国的生育率仅为每名妇女 1.3 个孩子，与日本和意大利等老龄化社会相当，远低于正常换代所需的约2.1 。而易估计，真实的生育率要远远低于这个数据，因为这并没有将少数民族不受一孩政策的影响计算在内。
-
-易说，地方政府为获取更多补贴，包括从中央政府获得教育费而虚报了人口，他说，由于登记出生会获得 20 多项社会福利，一些家庭正在利用黑市在线购买第二份出生证明。
-
-[原文链接](https://news.yahoo.com/researcher-questions-chinas-population-data-190042639.html)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,55 +2,32 @@
 ---
 
 
-## 俄罗斯科学家声称 omicron 菌株“可以结束 COVID 大流行”
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1721182/)
+## 爱尔兰参院支持台湾并谴责中共侵害人权
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1721247/)
 
-作者：Ramon Tomey
+作者：纽约香草山 医疗部 云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间12月1日，媒体消息报道称，爱尔兰参议院当天通过数项决议表示，将支持台湾参与国际组织，同时反对中共以武力侵略台湾并谴责中共对人权的侵害。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-05-上午10.45.12.png)
+据了解，这些决议由前副总理、现任参议员麦道威等共计17位参议员联合提出，当中要求爱尔兰政府持续坚定地支持台湾民众享有人身与政治自由，增进与台湾政府和人民的互动。同时，爱尔兰政府应拒绝任何企图妨碍爱尔兰国会议员与台湾政府和民众互动的不当干涉，并谴责所有试图阻挠台湾政府和民众参与国际组织或国际人道倡议的作为。
 
-翻译：沉默老歌
+提案联署人参议员威尔森表示，台湾与欧盟国家同为遵从民主、法治、自由、人权等普世价值的好伙伴，爱尔兰政府不应畏惧中共的压力，反之，更应保持与台湾的良好互动。
 
-2021 年 12 月 3 日，星期五
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Coronavirus-DNA-Scientist.jpg)图片来源：网络
-自然新闻：一位俄罗斯科学家声称，最新的武汉冠状病毒（COVID-19）“令人担忧的变种”可能预示着大流行的结束。 该专家表示，B11529 omicron 菌株的多重突变对其不利。
+参考链接：[愛爾蘭參院通過增進對台關係 批中國侵害人權](https://www.cna.com.tw/news/aipl/202112020018.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-Anatoly Altstein 博士在接受莫斯科小报 KP 采访时提出了这一说法。  Gamaleya 国家流行病学和微生物学中心的病毒学家（开发了 Sputnik V COVID-19 疫苗）表示，omicron 需要几个月的时间才能成为 SARS-CoV-2 的主要变体。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-尽管如此，Altstein 表示，目前尚不清楚这种新毒株的传染性如何。 他补充说，与 B16172 delta 变体相比，omicron 导致更多 COVID-19 死亡人数的问题仍然不清楚。
+总编：Irene木木
+编辑：AN
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-“现在，有理由认为 omicron 变体的致病性可能较低。 我们已经看到 omicron 有许多突变——在其刺突蛋白的单个基因中超过 30 个。 这太多了，这意味着病毒的基因组不稳定。 通常，这种传染性病原体变得不那么危险，因为在进化上，大量的突变会导致病毒引起疾病的能力减弱。”
-
-如果他的论点成立，Altstein 说 omicron 感染只会在一小部分病例中致命——并且会变得像其他常见的季节性感染一样。
-
-“我们不应该担心 omicron 变异正在广泛传播，但它可能会成为最具致病性的变异，使感染变得更糟。”
-
-Altstein 的论点是在一篇关于 omicron 菌株的不那么悲观的报道与主流媒体散布恐惧的叙述相矛盾的报道之后提出的。 南非医学协会主席 Angelique Coetzee 博士说，omicron 变异只会导致轻微的疾病。
-
-“它表现为轻度疾病，症状是肌肉酸痛和疲倦一两天。 到目前为止，我们已经检测到感染者不会失去味觉或嗅觉。 他们可能有轻微的咳嗽，[但]没有明显的症状。 在感染者中，有些人目前正在家中接受治疗。”
-
-各国关闭边界以将 omicron 拒之门外
-
-据报道，omicron 菌株首先在南非发现，传播速度比在印度首次发现的早期 delta 变种更快。  omicron 变体仅在其刺突蛋白中就有 32 个突变，多于 delta 的 13 到 17 个突变。 病毒的刺突蛋白让它附着在人体细胞上并在其中繁殖。
-
-然而，许多国家已迅速采取行动关闭边境，以防止 omicron 菌株进入该国。 日本和以色列就是这样两个自我封闭的国家。
-
-《日本时报》报道称，日本政府已于 11 月 29 日宣布禁止外国旅客入境。该禁令将持续一个月，并于 11 月 30 日次日生效。不过，日本首相岸田文雄澄清说 日本国民或回国的外国居民将不受禁令限制。
-
-“这是一种预防性的紧急措施，可以避免出现最坏的情况。 需要进行研究以确定 omicron 变体在全球范围内的传染性。 我们必须迅速灵活地应对这种情况，”岸田告诉记者。
-
-以色列也效仿，于去年 11 月 27 日宣布禁止入境旅客。返回的以色列人——包括那些注射了 COVID-19 疫苗的人——将被隔离三天。 他们还将在抵达时和隔离期后接受检测，只有在获得阴性结果后才允许离开。
-
-据《耶路撒冷邮报》报道，来自以色列政府宣布的 50 个非洲“红色”国家的旅行者将接受更长时间的隔离和更频繁的检测。
-
-“我们不会冒险。 我们想早点停止。 我们希望阻止或延迟这种变体进入以色列，”该国总理纳夫塔利·贝内特说。 他补充说，以色列将“迅速、早、强而有力地采取行动”，以确保以色列人的安全。
-
-来源链接：[https://www.afinalwarning.com/575795.html](https://www.afinalwarning.com/575795.html)
-
-编辑/发布：LILY
-
-20211204
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

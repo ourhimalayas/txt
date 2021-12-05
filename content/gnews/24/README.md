@@ -2,50 +2,30 @@
 ---
 
 
-## 泽连科医生在盖特上呼吁依法严惩辉瑞CEO
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1721210/)
+## 短视频：推广疫苗的人应该被绳之以法！
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1721306/)
 
-作者：纽约香草山翻译部 defiance
+#### 翻译：Annabelle
+校对：Lish
+编辑：文泓 
+视频字幕：蛮吉
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-109-1280x172-1-2-1.jpg)
-
-
-
-
-
-![](https://media.gettr.com/group27/getter/2021/12/03/17/c013386a-845d-fbdd-4979-8185b49d3813/124771419d557e57f5df4a76967d3b48.jpg)图片来源：盖特 
-
-12月3日至4日，泽连科医生在盖特上连续发表观点，辉瑞公司首席执行官阿尔伯特-布拉是世界上最大的有组织犯罪黑手党的黑老大。他，以及他做杀人业务公司，在致死毒针的安全性和有效性上，欺骗了全人类。他应该被立即逮捕并接受国际军事法庭的审判。他随后为一个盖特进行了背书，此盖文写道，截至2021年2月，辉瑞公司已经收到1200多份由疫苗引起的死亡报告和数万份不良事件报告，包括270例怀孕中的23例自然流产和2000多份心脏疾病报告。这是辉瑞公司自己的数据。难怪美国食品和药物管理局会争取将其隐藏55年。
-
-CCP病毒是一种人造大规模杀伤性武器。黑暗力量故意把他释放出来，以引起全球恐慌和人与人之间的隔离，并诋毁得病早期使用羟氯喹或者伊维菌素的方法，胁迫人们扎索命毒针。索命毒针会引发中风、心脏病、心肌炎、流产、癌症、自身免疫性疾病、不孕不育和抗体依赖增强效应，并含有生物识别传感器。这些传感器量测体内生理数据，并将地理位置一起传输给第三方。
-
-新闻链接：
-
-[https://gettr.com/post/pig3u07bd6](https://gettr.com/post/pig3u07bd6https://gettr.com/post/pihtky3bd1https://gettr.com/post/pinsnm8686)
-
-[https://gettr.com/post/pihtky3bd1](https://gettr.com/post/pig3u07bd6https://gettr.com/post/pihtky3bd1https://gettr.com/post/pinsnm8686)
-
-[https://gettr.com/post/pinsnm8686](https://gettr.com/post/pig3u07bd6https://gettr.com/post/pihtky3bd1https://gettr.com/post/pinsnm8686)
-
-编辑/校对/发稿：小小安
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-69.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-109-1280x172-1-2-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/812-1.jpg)**图片来源：SocialGrep**
 
 
+他们会让人们相信所有事情以及每一次流感都会戏剧性地变化。他们利用人们的恐惧心理，那些怕死的人。如果不做些改变，可能会很不幸的死掉。这会是个永久性的瘟疫，是人类最恐怖的噩梦。
+
+我认为整个系统需要推翻重来，那些始作俑者应该被审判。包括那些起到关键作用的机构组织和鼓吹的煽动者，他们知道（疫苗）是致命的，那些医院和医院的负责人收受贿赂，他们也应该被审判，而且我们要把这些钱夺回来。
+
+视频链接：[https://twitter.com/UnidosVerdad/status/1465264360008396801?t=3IASYVzF7DSFPwZLv8Oltg&s=19](https://twitter.com/UnidosVerdad/status/1465264360008396801?t=3IASYVzF7DSFPwZLv8Oltg&amp;s=19)
+
+**发布：文泓**
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
 
 
