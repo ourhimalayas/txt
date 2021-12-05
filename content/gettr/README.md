@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/5/2021 10:08 PM (UTC)`
+
+Artemisinin Report 1. Here are some preliminary survey results we collected to demonstrate the effects of using artemisinin supplements and artemisinin drug derivatives. Artemisinin is the antidote to the CCP virus and the CCP virus vaccine. Meanwhile, artemisinin also exhibits promising therapeutic effects to many other conditions. We will continue to report these results as more data to be collected. Please follow the doctor's advice.
+![img](https://media.gettr.com/group34/origin/2021/12/05/22/1e992ed1-a86c-60bd-a75e-aac7ffc7a92e/a4a1900549f16888a2b95d4b347ce3e0.jpeg)
+
+---
+
+`@miles 12/5/2021 10:07 PM (UTC)`
+
+青蒿素报告一： 以下是我们收集的关于服用青蒿素保健品及青蒿素药物效用的初步研究。青蒿素是中共病毒和疫苗的解药，并且对其他很多疾病也有疗效。我们将继续报告相关结果。请遵医嘱。
+![img](https://media.gettr.com/group30/origin/2021/12/05/22/1626889a-52b0-e0e9-77fd-6fadc1f6f9b2/d2327a8912af20f0011e2e61b0993387.jpeg)
+
+---
+
 `@miles 12/5/2021 4:52 PM (UTC)`
 
 Hcoin To The Moon <br/>iTunes Ranking No. 1 🥇<br/>iTunes 打榜第一名🥇<br/>🎉🎉🎉🎉🎉🎉🎉
@@ -138,20 +152,6 @@ Hcoin To The Moon <br/>iTunes Ranking No. 1 🥇<br/>iTunes 打榜第一名🥇<
 
 12/3/2021 Miles Guo: The information we provided about artemisinin has huge impacts on Communist China; the CCP has difficulty defining who we are as the Whistleblowers’ Movement; the CCP’s police forces are guarding hospitals to prevent the truth about the COVID vaccines from being leaked; a fellow fighter revealed that 70,000 people died of COVID vaccines in his area, and Communist China’s COVID vaccine death toll is an astronomical figure<br/><br/>12/3/2021 文贵直播：青蒿素的相关信息对国内影响很大；给爆料革命下定义让中共很为难；警察守医院防疫苗真相泄露；战友爆出其所在地区有7万人死于疫苗，中共国疫苗死亡是天文数字
 ![img](https://media.gettr.com/group43/getter/2021/12/04/03/54/7e7cd8f4-e312-5084-eca1-dd6f97497289/out.jpg)
-
----
-
-`@miles 12/4/2021 3:50 AM (UTC)`
-
-12/3/2021 Miles Guo: Releasing the Omicron variant is relevant to the CCP’s actions against Taiwan, and the CCP is using Omicron to make a deal with the West that sacrifices Taiwan; the CCP is repeating its same old trick by unleashing the virus while holding the world hostage through the COVID vaccines; Omicron is one of the 50 viruses in the CCP’s bioweapons inventory<br/><br/>12/3/2021 文贵直播：释放欧米克戎跟中共对台行动有关，中共用欧米克戎跟西方勾兑让台湾成牺牲品；中共故伎重演，一边放毒，另一边用疫苗要挟世界；欧米克戎是中共50种病毒武器之一<br/>
-![img](https://media.gettr.com/group34/getter/2021/12/04/03/50/d582827d-d144-f25c-bbfc-596f8a74a0dc/out.jpg)
-
----
-
-`@miles 12/3/2021 1:34 PM (UTC)`
-
-2021年12月03日 文贵大直播：各国疫苗政策近况；亚洲变异病毒进展；美国世界经济变化；喜数字银行及投资
-![img](https://media.gettr.com/group42/origin/2021/12/03/12/c87a23dc-61ec-43ed-17e9-1103c6eecc08/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
