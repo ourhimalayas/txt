@@ -2,24 +2,50 @@
 ---
 
 
-## 爆料革命从刘志华案件开始起
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1723243/)
+## Hcoin To the Moon 上线第3天位列10国iTunes摇滚音乐榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1723273/)
 
-我们爆料革命从刘志华案件开始起都在改变共产党。你们忽视掉了七哥和刘志华那场战争你就太不了解七哥了。
+12/05/2021 郭文贵先生的歌曲Hcoin To the Moon上线第3天位列10国iTunes摇滚音乐榜首
 
-**【郭先生直播摘要】2021.12.1 爆料革命从刘志华案件开始起**
+[【PDF 下载】Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-**郭先生：**
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_2.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_3.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_4.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_6.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_8.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_11.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_12.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_13.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_14.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_15.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_16.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_17.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_18.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_19.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_20.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_21.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_22.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_23.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_24.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_25.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_26.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_27.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_28.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_29.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_30.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_31.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_32.jpg)
 
-我们爆料革命从刘志华案件开始起都在改变共产党。你们忽视(掉)了七哥和刘志华那场战争，你就太不了解七哥了。 (七哥)是共产党建国以来第一个， 个人挑战这个组织的，而且巧妙的挑战完这个组织，三千多个人被干掉以后，七哥还是享受常委级的待遇，几十个警车、架着长枪走到全中国任何地方都是特保. 特保啊！谁享受过？只有七哥，而且七哥能全身而退，你懂得共产党的规则你才能明白，所以现在共产党，不服七哥的有几个呀。 他除非他是胡说八道， 他只要但凡有一点(脑子)。 你想想习近平， 在中东的国家领导人访问的时候，站在那块等的时候，是吧？
 
-他(习)问那个姓倪的，阿布扎比的, 姓倪的，倪大使， 还有外交部长的程国华。程国华，你怎么看郭文贵呀？是吧！然后程国华说这小子是犯罪份子。 (习)看一下姓倪的，姓倪的说他是犯罪分子， 习没吱声。你想习能在这两人面前问郭文贵是啥人，他(习)这么大个人物，如果郭文贵不是个人(物)，(习)能问(我是啥人)吗？美国某代表团见了习以后，然后都坐下来聊天，他(习)说我知道你啊，你和郭文贵认识。这个美国人说，谢谢你还记得。他(习)说我们俩以前见过面，当时是郭文贵在场，还有当时的李源潮，我非常清楚啊！今天(我们)老朋友(又)见面了。这个人（美国朋友）原来是支持台湾的，后来到北京去见面，跟习见面，跟李源潮我在场，是吧？
+[【PDF 下载】Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-5-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-这个美国人很惊讶习的记忆力那么好，都谈完了，官方废话完了，都离开。习说：欸，停停停，(我的)老朋友，咱俩再聊几句，郭文贵在美国你觉得安全吗？这个人（美国朋友）说你是什么意思？你是要把他弄回来呢？还是要杀掉(他)呢？习说：我们没有杀他的意思，但是我们确实要尝试要把他弄回来。这个美国朋友说你弄不回去，因为郭文贵现在已经不是你中国的郭文贵，（他）已经是世界的郭文贵了，习点点头。
-
-他(美国朋友)说你们会不会想办法在美国刺杀他，习说绝对不会的，他（美国朋友）说那你们还想什么？他（习）说你觉得郭文贵他会愿意回到中国吗？我请问你这句话或者你本人跟他聊聊，这个人（美国朋友）说他不会的我来之前见过郭文贵，习说这个人对我们的了解啊，是很深刻的，这个人现在闹腾的事情影响很大，希望他好自为之。你尽量帮帮他吧，你可以直接和我秘书联系，(习)告诉秘书把他（美国朋友）电话直接留下来。（习秘书）直接可以跟你（美国朋友）联系。这是2017年年底(的事)。
-
-视频剪辑：北方信者 | 听写：雨山溪桥客 | 翻译：中年少女 | 校对：烟波浩淼 | 视频制作+字幕：CG.|编辑&发布：断播
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
