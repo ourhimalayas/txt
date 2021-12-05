@@ -2,38 +2,39 @@
 ---
 
 
-## 世界各地危机重重，布林肯就台湾问题向中共发出警告
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1721406/)
+## 泄露的文件显示，WhatsApp和iMessage与FBI共享用户数据
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1721482/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/812-2.jpg)图片来源：CNA
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/4000.jpg)
 
 
-**整理报道：文泓**
 
-12月4日，据路透社报道，美国国务卿安东尼·布林肯周五在路透社一次会议上说，中共国领导人应该仔细考虑他们对台湾的行动，并警告说，**如果中共国在台湾海峡两岸催生危机，将产生“可怕后果”。**
+图片来源：www.theguardian.com
 
-在采访中，布林肯先生谈到了美国总统乔·拜登政府面临的多种外交政策挑战，包括努力修复已摇摇欲坠2015年伊朗核协议；俄罗斯在乌克兰附近的军事集结；以及埃塞俄比亚的冲突不断升级。
 
-最严重的可能是中共国对台湾日益咄咄逼人的姿态，中共声称台湾是其领土。台湾国防部长说，与中共国的紧张关系是40多年来最严重的，并强调说，到2025年，中共国将有能力发动“全面”入侵。
-当被问及中共国是否武力犯台时，布林肯先生说，“这将是一个潜在的灾难性决定”，他重复了华盛顿的立场，即**美国将“坚定地致力于”确保台湾拥有自卫的手段。**
+#### 编译：小红帽
 
-布林肯先生说，中共国近年来一直试图改变台湾海峡两岸现状，不断进行挑衅性的军事演习，并试图将台湾与世界其他地区隔离。
-布林肯先生说：**“我希望中共国领导人三思而后行，不要引发一场会给很多人带来可怕后果的危机，而且这不符合任何人的利益，首先是中共国。”**
+一份新发布的文件突显了消息传递应用程序用户所面临的隐私问题的持续争议。流行应用程序iMessage和WhatsApp被证明是联邦调查局（FBI）访问数据和内容“最宽松”的应用程序。
 
-中共国仍然是拜登先生外交政策的首要任务，美国也受到了其他地区危机的冲击。布林肯先生说，美国有制裁措施，可以针对使埃塞俄比亚冲突长期存在的各方。
-关于伊朗，布林肯先生说，华盛顿本周结束了在维也纳的间接会谈，因为德黑兰似乎对重新遵守核协议并不认真。
+《滚石》（Rolling Stone）杂志获得的这份文件概述了可以从九个流行消息传递应用程序访问哪些数据。
 
-他说：“如果恢复遵守协议的道路被证明是一个死胡同，我们将寻求其他选择。”
-布林肯先生周四从欧洲返回，他在那里会见了俄罗斯外交部长谢尔盖·拉夫罗夫，并对俄罗斯在乌克兰附近的军事集结发出了警告。
+该文件名为“合法访问”，概述了执法机构，如联邦调查局，在“领先的消息传递”应用程序上“合法访问安全内容”的能力。其中所列的九个应用程序是iMessage、Line、Signal、Telegram、Threema、Viber、微信、WhatsApp和Wickr。
 
-布林肯先生说，拜登先生预计将在不久的将来与弗拉基米尔·普京总统谈话，并将告诉俄罗斯领导人，华盛顿决心站出来反对任何“鲁莽或侵略性”的行动。他说，美国希望与俄罗斯建立一种更可预测的关系。
-“在一些领域我们有重叠的利益，如果我们能在这种关系中获得一些稳定性和可预测性，我们应该能够一起工作”，布林肯先生说：“俄罗斯（当前）的行动和进一步侵略乌克兰的威胁恰恰朝着相反的方向发展。”
+该文件由联邦调查局科技处和运营技术部编写，日期为2021年1月7日，总结了可以从消息传递应用中获得哪些信息，揭示了Facebook拥有的（现在是Meta）WhatsApp和苹果的iMessage向执法机构提供的信息最为自由。
 
-新闻链接：[Blinken warns Chinese leaders over Taiwan as global crises mount, United States News & Top Stories – The Straits Times](https://www.straitstimes.com/world/united-states/blinken-warns-chinese-leaders-over-taiwan-as-global-crises-mount)
-**编辑****/发布：文泓**
-**更多资讯，请关注：
+今年初，WhatsApp受到了抨击，因为新公布的软件更新引发了广泛的隐私问题，用户纷纷涌向Signal和Telegram，包括科技亿万富翁埃隆·马斯克（Elon Musk）。
+
+然而，联邦调查局的文件显示， WhatsApp与iMessage和Line一样，承诺交出目标个人的 “有限”信息内容，而其他公司则根本不提供信息内容。
+
+同时，苹果的iMessage也提供“有限的”信息内容，以及用户信息，25天的iMessage搜索数据，以及谁在iMessage中搜索了目标用户。
+
+**参考新闻：**[WhatsApp, iMessage share user data with FBI, leaked document shows – NaturalNews.com](https://www.naturalnews.com/2021-12-04-whatsapp-imessage-share-user-data-with-fbi.html)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)

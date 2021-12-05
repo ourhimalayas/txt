@@ -2,44 +2,44 @@
 ---
 
 
-## 泄露的文件显示，WhatsApp和iMessage与FBI共享用户数据
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1721482/)
+## 视频| 数字货币时代的到来，将导致港币彻底消失
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1721550/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+## 摘自2021.12.3郭先生大直播
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/4000.jpg)
-
-
-
-图片来源：www.theguardian.com
+制作：香草山视频部
 
 
-#### 编译：小红帽
 
-一份新发布的文件突显了消息传递应用程序用户所面临的隐私问题的持续争议。流行应用程序iMessage和WhatsApp被证明是联邦调查局（FBI）访问数据和内容“最宽松”的应用程序。
+现在的数字货币对人类的影响，对金融界的影响，绝对是颠覆性的，现在就美国老牌的金融家，几乎全部站出来反对数字货币，而且是反对到了给美国政府各种施压，接下来对数字货币的监管，会有一系列的政策出来，甚至要消灭数字货币，为什么呢？传统的金融是世界上最重要的政治、军事、人类控制的力量。当这些人被消失的时候，新的一代就会出来了，所有那些沼泽地几乎全没了，一定被你们这些人给代替，一定是这个结局。
 
-《滚石》（Rolling Stone）杂志获得的这份文件概述了可以从九个流行消息传递应用程序访问哪些数据。
+这种挣扎的结果是什么呢？特别是美国国家这个市场的经济，它不想跌，现在美国的美联储、美国的财政部，就是想跟中共把关税降下来，它就是剥削穷苦的劳动力嘛，美国人要享受所谓低关税、低成本、低价格的美国的消费市场，把整个股票市场、金融，所谓流通领域、供应链恢复起来，现在美国人要保持高工资、低通胀、涨缩，然后要平衡、财务报表要好看，继续印钞票，那就是剥削中国劳动力，那就是中国人的灾难。
 
-该文件名为“合法访问”，概述了执法机构，如联邦调查局，在“领先的消息传递”应用程序上“合法访问安全内容”的能力。其中所列的九个应用程序是iMessage、Line、Signal、Telegram、Threema、Viber、微信、WhatsApp和Wickr。
+更重要的事情，它不想接受新的数字货币，对他们的这个高关税和垄断SWIFT,所谓的中间商Agent,这是人类上最大的变化，但是最终挡不住1990年以来最大的金融危机，一定会发生。
 
-该文件由联邦调查局科技处和运营技术部编写，日期为2021年1月7日，总结了可以从消息传递应用中获得哪些信息，揭示了Facebook拥有的（现在是Meta）WhatsApp和苹果的iMessage向执法机构提供的信息最为自由。
+那么再看看今天香港的时候，香港是什么？香港是挂靠美元的，香港今天33000点，它只要 跌破30000点，香港的恒生就撑不住了，撑不住香港的所谓5000亿美元的外汇储备和经济体量，瞬间就会跌破，跟美元挂什么勾，你美元现在多少钱，而且现在实际上港币已经逐渐被大陆化了，在这种情况下，最终港币一定会消失。
 
-今年初，WhatsApp受到了抨击，因为新公布的软件更新引发了广泛的隐私问题，用户纷纷涌向Signal和Telegram，包括科技亿万富翁埃隆·马斯克（Elon Musk）。
+而且现在西方的沼泽地和资本家，希望港币不要消失，因为港币是中共和美国人之间的“情夫币”，香港是国际上流通的可以认可的币，它是洗钱、帮共产党掠夺，特别是家族搞钱的一个工具，家族跟谁搞啊？跟谁掠夺呀？就是跟华尔街、西方这些大佬们，他们不希望港币倒，但是恒生的擀面杖子经济，由于香港现在整个的没落、外资的撤出，它一定要会倒，一定也是导致货币各方面的危机，加上供应链的危机，加上病毒和疫苗的灾难，再加上香港港币的消失，再加上传统货币受到剧烈的挑战，数字货币的诞生，你想想你们将面临着什么样的人生。
 
-然而，联邦调查局的文件显示， WhatsApp与iMessage和Line一样，承诺交出目标个人的 “有限”信息内容，而其他公司则根本不提供信息内容。
 
-同时，苹果的iMessage也提供“有限的”信息内容，以及用户信息，25天的iMessage搜索数据，以及谁在iMessage中搜索了目标用户。
 
-**参考新闻：**[WhatsApp, iMessage share user data with FBI, leaked document shows – NaturalNews.com](https://www.naturalnews.com/2021-12-04-whatsapp-imessage-share-user-data-with-fbi.html)
 
-***发布：小红帽***
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+发稿：雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/M12.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

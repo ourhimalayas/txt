@@ -2,84 +2,44 @@
 ---
 
 
-## 秦刚当时来纽约的目的
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1721728/)
+## 三位美国名人证明伊维菌素治疗中共病毒效果非常好
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1721819/)
 
-[https://gtv.org/video/id=61ac491987fa7e74c92b77fe](https://gtv.org/video/id=61ac491987fa7e74c92b77fe)
+作者： 加拿大温哥华扬帆农场  Michael.Tonny
+![](https://assets.gnews.org/wp-content/uploads/2021/11/michael-3-1.jpg)
+三位美国名人讲述了自己在感染新冠病毒（中共病毒）后，通过服用伊维菌素很快恢复的经历。
 
-**郭文贵
-Miles Guo**
+2021年9月1日，多次在节目中推荐伊维菌素，未接种过疫苗的美国著名喜剧演员、播客主持人、UFC色彩评论员（color commentator，专家评论员）和前电视节目主持人Joseph James Rogan透露，他在8月28日晚上回家后，感觉很疲倦、头疼、全身筋疲力尽、整个晚上都在发烧，神志不清，怀疑自己感染了中共病毒。第二天的CCP病毒检测结果呈阳性。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Joseph-James-Rogan-1.jpg)
+于是，他用尽了一切办法，连续三天注射单克隆抗体（monoclonal antibody）、服用伊维菌素（ivermectin）、Z-Pak（Azithromycin，阿奇霉素）、泼尼松（prednisone，皮质类固醇药物）。只有一天感觉非常差，到第二天，感觉就好多了，第三天比第二天感觉更好，到第四天，已经没有任何问题。
 
-当时秦刚到纽约来，见了13个华人
-At that time, Qin Gang arrived in New York and met 13 Chinese people
+2021年11月3日，未接种过疫苗的三届美式橄榄球联盟（NFL）最有价值球员（MVP QB）、威斯康星州Green Bay Packers四分卫Aaron Charles Rodgers的CCP病毒测试结果呈阳性后，采用了Rogan推荐的伊维菌素疗法，服用了伊维菌素（ivermectin）、锌（zinc）、维生素C和D （vitamins C and D）以及注射单克隆抗体（monoclonal antibody），很快就得到恢复，仅仅10天时间，他就有资格重返赛场，感觉非常不可思议。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Aaron-Charles-Rodgers.jpg)
+12月2日，已经接种过疫苗的[UFC](https://www.ufc.com/)（终极格斗冠军赛，Ultimate Fighting Championship）主席Dana White通过吉姆罗马播客（The Jim Rome Podcast）告诉[TMZ Sports](https://www.tmz.com/)记者，在上周感恩节（Thanksgiving）那天去了缅因州，周六回到家，周日他发现自己没有嗅觉。于是喷了eucalyptus（Eucalyptus oil，尤加利精油，一种消毒、杀菌、抗病毒剂，用于缓解胸痛、祛痰、止咳），但什么都闻不到，打开eucalyptus（oil）瓶子开始闻，也什么都闻不到。知道自己感染了中共病毒。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/joe-rogan-dana-white.jpg)
+White接受了Joseph James Rogan的建议，采用与Rogan感染时相同的冠状病毒治疗方法，每天服用1粒伊维菌素（ivermectin），接受NAD（烟酰胺腺嘌呤二核苷酸，nicotinamide adenine dinucleotide）点滴后，第二天中午就体内有了单克隆抗体（monoclonal antibodies），到第三天11 点钟恢复了味觉和嗅觉。
 
-两个原因他要见的, 大家上次都没说清楚
-He wanted to meet them for two reasons, but everyone didn’t make it clear last time
+White形容自己在服用伊维菌素后24小时内，就像突然得到百万美元一样舒服，他甚至有希望能参加周六下一场在内华达州拉斯维加斯（Las Vegas, Nevada）UFC Apex举行的 UFC Vegas 44终极格斗锦标赛（Ultimate Fighting Championship）的比赛。
 
-第一个，他真正地意识到这些华人在美国要被排华了
-The first one, he really realized that these Chinese people would be excluded in the United States
+参考资料：
 
-梁冠军刚才给你说那个事情，美国政府，记住，记住七哥说的话
-I just told you about Liang Guanjun’s thing, the US government, remember what Miles just said
+[Joe Rogan criticized for saying he is taking ivermectin (among other drugs) to treat COVID-19](https://www.theblaze.com/news/joe-rogan-tests-positive-for-coronavirus-and-says-he-has-taken-ivermectin-to-treat-it-along-with-other-fda-approved-meds#toggle-gdpr)
 
-不仅孔子学院，在全世界的华人所有的海外华人组织是共产党安排的
-Not only Confucius Institutes but also all the overseas Chinese organizations all over the world are led by the Communist Party
+[類固醇︰提高治療新型冠狀病毒的標準](https://www.medix-global.com/can/content/blog/view/?ContentID=2920)
 
-是跟共产党 ，我可以告诉你，一个都不会留下来
-Anyone with the Communist Party, I can tell you, none of them will survive
+[Fully vaccinated Dana White contracts COVID-19, takes same treatment as Joe Rogan, ‘feeling like a million bucks’ in less than 24 hours](https://www.theblaze.com/news/dana-white-covid-treatments-joe-rogan)
 
-日本政府一个官员在两年前告诉我，郭先生，我们会很慢
-An official of the Japanese government told me two years ago, Mr. Guo, we will be very slow
+[Aaron Rodgers cleared to play on Sunday, only days after COVID diagnosis and Joe Rogan medical advice controversy](https://www.theblaze.com/news/aaron-rodgers-covid-joe-rogan)
 
-但是我会保证的是，日本绝不会再有China Town的
-But I will guarantee that there will never be China Town in Japan
+[TMZ SPORTS SHOW CLIPS](https://www.tmz.com/shows/tmz-sports/clips/)
 
-任何华人组织（跟共产党有联系），一个都不会
-Any Chinese organization (connected to the Communist Party), none of them will survive
+[throw the kitchen sink at someone 是什么意思](https://www.youtube.com/watch?v=wYkjeYYI2sE)
 
-澳大利亚的下一个肯定几乎90%他是总理上去
-There is a 90% chance that this gentleman will be Australia’s next Prime Minister
+[单克隆抗体](https://zh.wikipedia.org/wiki/%E5%8D%95%E5%85%8B%E9%9A%86%E6%8A%97%E4%BD%93)
 
-他说，郭先生，我们会在澳大利亚把所有共产党的华人组织全给它灭掉, 就是跟共产党联系的
-He said, Mr. Guo, we will wipe out all the Chinese Communist Party organizations in Australia, which are connected with the Communist Party
+[Aaron Rodgers Out After Positive Coronavirus Test](https://www.nytimes.com/2021/11/03/sports/football/aaron-rodgers-covid-vaccinated-packers.html)
 
-还有一个秦刚为啥到China Town去
-another one why did Qin Gang go to China Town?
-
-去干那个事去，大家没有意识到，包括芬太尼这个毒品供应
-He went to do that thing, everyone didn’t realize it, including the drug supply of fentanyl
-
-包括海外即将要排华导致的共产党的这种完全的，但对它来讲是个毁灭性打击
-including this kind of completeness caused by the Communist Party that is about to exclude the Chinese people at overseas, but it is a devastating attack for them
-
-这更重要的是他为啥来纽约呢，因为华人的选举，法拉盛的选举，
-More importantly, why did he come to New York, because of the Chinese people’s votes, the Flushing’s votes
-
-75%投给了共和党，他要找他们一定要影响美国选举
-75% of those Chinese people voted for the Republican Party, he wanted them to influence the American elections
-
-不投共和党，投民主党
-Don’t vote for the Republican Party, vote for the Democratic Party
-
-这回美国这纽约州州长一定是共产党再说了算
-This time the New York State governor’s election in the United States must be the Communist Party total in control
-
-Date:12/01/2021
-原视频标题: 秦刚当时来纽约的目的
-The purpose that Qin Gang came to New York at that time
-原视频日期：2021/11/26
-原视频链接[https://gettr.com/post/pi4gz1291e](https://gettr.com/post/pi4gz1291e)
-任务编号：KC303(3037)
-视频时间段 : 0:00-1:43
-中听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – 天涯行
-字幕+视频制作：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+编辑：Michael.Tonny 上传：Michael.Tonny
 
  
 

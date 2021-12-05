@@ -2,44 +2,84 @@
 ---
 
 
-## 印度财政部长表示需要一个 全球机制来监管加密货币
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1721610/)
+## 秦刚当时来纽约的目的
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1721728/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+[https://gtv.org/video/id=61ac491987fa7e74c92b77fe](https://gtv.org/video/id=61ac491987fa7e74c92b77fe)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/jpg.jpg)
+**郭文贵
+Miles Guo**
 
+当时秦刚到纽约来，见了13个华人
+At that time, Qin Gang arrived in New York and met 13 Chinese people
 
+两个原因他要见的, 大家上次都没说清楚
+He wanted to meet them for two reasons, but everyone didn’t make it clear last time
 
-图片来源：The times of india
+第一个，他真正地意识到这些华人在美国要被排华了
+The first one, he really realized that these Chinese people would be excluded in the United States
 
+梁冠军刚才给你说那个事情，美国政府，记住，记住七哥说的话
+I just told you about Liang Guanjun’s thing, the US government, remember what Miles just said
 
-#### 编译：小红帽
+不仅孔子学院，在全世界的华人所有的海外华人组织是共产党安排的
+Not only Confucius Institutes but also all the overseas Chinese organizations all over the world are led by the Communist Party
 
-印度联邦财政部长尼尔马拉·西塔拉曼（Nirmala Sitharaman）周五表示，需要一个“全球机制”来有效监管不断发展的技术和技术驱动的产品，如加密货币、数字支付和数据，即使印度正在制定关于这些事项的法律。
+是跟共产党 ，我可以告诉你，一个都不会留下来
+Anyone with the Communist Party, I can tell you, none of them will survive
 
-这位财政部长在InFinity论坛上发表讲话时说，技术是不断发展的，且没有物理边界。因此，“全球行动”是有效监管技术的唯一途径。
+日本政府一个官员在两年前告诉我，郭先生，我们会很慢
+An official of the Japanese government told me two years ago, Mr. Guo, we will be very slow
 
-在回答关于监管加密货币的具体问题时，西塔拉曼说：“所以关于这个问题……即使我们在考虑（它）……在（国家）层面，应该同时有一个全球机制，通过这个机制我们一直监测技术的发展……”
+但是我会保证的是，日本绝不会再有China Town的
+But I will guarantee that there will never be China Town in Japan
 
-西塔拉曼表示，加密货币、技术驱动的支付系统和数据隐私等多项数字创新需要这种协调性的全球行动。
+任何华人组织（跟共产党有联系），一个都不会
+Any Chinese organization (connected to the Communist Party), none of them will survive
 
-西塔拉曼称数据是一种收入来源，他表示必须确保其合乎道德的使用。她补充说：“但是，当你把数据本身视为监管的创收选项之一来监管时，这将必须是一项集体努力”。
+澳大利亚的下一个肯定几乎90%他是总理上去
+There is a 90% chance that this gentleman will be Australia’s next Prime Minister
 
-西塔拉曼认为，由于技术发展迅速，不可能总是对 “每一次增量变化”立即做出立法反应，监管机构应该有某种独立性来解决新出现的问题。
+他说，郭先生，我们会在澳大利亚把所有共产党的华人组织全给它灭掉, 就是跟共产党联系的
+He said, Mr. Guo, we will wipe out all the Chinese Communist Party organizations in Australia, which are connected with the Communist Party
 
-在政府计划就虚拟货币（VCs）和私人加密货币的监管问题制定立法的背景下，财政部长的评论具有重要意义。
+还有一个秦刚为啥到China Town去
+another one why did Qin Gang go to China Town?
 
-**参考新闻：**[Require global mechanism to regulate crypto: Finance minister Sitharaman | Latest News India – Hindustan Times](https://www.hindustantimes.com/india-news/require-global-mechanism-to-regulate-crypto-finance-minister-sitharaman-101638558773999.html)
+去干那个事去，大家没有意识到，包括芬太尼这个毒品供应
+He went to do that thing, everyone didn’t realize it, including the drug supply of fentanyl
 
-***发布：小红帽***
+包括海外即将要排华导致的共产党的这种完全的，但对它来讲是个毁灭性打击
+including this kind of completeness caused by the Communist Party that is about to exclude the Chinese people at overseas, but it is a devastating attack for them
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+这更重要的是他为啥来纽约呢，因为华人的选举，法拉盛的选举，
+More importantly, why did he come to New York, because of the Chinese people’s votes, the Flushing’s votes
+
+75%投给了共和党，他要找他们一定要影响美国选举
+75% of those Chinese people voted for the Republican Party, he wanted them to influence the American elections
+
+不投共和党，投民主党
+Don’t vote for the Republican Party, vote for the Democratic Party
+
+这回美国这纽约州州长一定是共产党再说了算
+This time the New York State governor’s election in the United States must be the Communist Party total in control
+
+Date:12/01/2021
+原视频标题: 秦刚当时来纽约的目的
+The purpose that Qin Gang came to New York at that time
+原视频日期：2021/11/26
+原视频链接[https://gettr.com/post/pi4gz1291e](https://gettr.com/post/pi4gz1291e)
+任务编号：KC303(3037)
+视频时间段 : 0:00-1:43
+中听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – 天涯行
+字幕+视频制作：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
