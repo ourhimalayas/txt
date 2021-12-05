@@ -2,39 +2,32 @@
 ---
 
 
-## 最新！挪威圣诞聚会可能引发除南非外最大的 Omicron 变种爆发
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1721170/)
+## 爱尔兰参院支持台湾并谴责中共侵害人权
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1721247/)
 
-翻译： 真北007
-![](https://assets.gnews.org/wp-content/uploads/2021/12/covidtestingman.jpg)图片来源：网络
-来自福克斯FOX NEWS 12月4日的新闻报道：
+作者：纽约香草山 医疗部 云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间12月1日，媒体消息报道称，爱尔兰参议院当天通过数项决议表示，将支持台湾参与国际组织，同时反对中共以武力侵略台湾并谴责中共对人权的侵害。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-05-上午10.45.12.png)
+据了解，这些决议由前副总理、现任参议员麦道威等共计17位参议员联合提出，当中要求爱尔兰政府持续坚定地支持台湾民众享有人身与政治自由，增进与台湾政府和人民的互动。同时，爱尔兰政府应拒绝任何企图妨碍爱尔兰国会议员与台湾政府和民众互动的不当干涉，并谴责所有试图阻挠台湾政府和民众参与国际组织或国际人道倡议的作为。
 
-根据最近的一份报告，挪威最近在圣诞聚会上爆发的 omicron 疫情提供了早期相关证据，说明这些变异如何在接种疫苗的人群之间传播及其症状的严重程度。
+提案联署人参议员威尔森表示，台湾与欧盟国家同为遵从民主、法治、自由、人权等普世价值的好伙伴，爱尔兰政府不应畏惧中共的压力，反之，更应保持与台湾的良好互动。
 
-公司发言人 Stian Tvede Karlsen 表示，挪威的一家可再生能源公司在举办年度假日聚会之前采取了所有必要的安全预防措施，包括只邀请接种疫苗的员工并要求在派对前一天进行快速测试。
+参考链接：[愛爾蘭參院通過增進對台關係 批中國侵害人權](https://www.cna.com.tw/news/aipl/202112020018.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-派对在奥斯陆的一家高档餐厅举行，约有 120 人参加，其中一些人最近前往南非，该公司在那里开展太阳能电池板业务。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-据《华尔街日报》报道，超过 50% 的人对 COVID-19 的检测呈阳性，其中 13 人被确认患有 omicron 变体，但没有人出现严重症状。
+总编：Irene木木
+编辑：AN
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-《华尔街日报》补充说，这次爆发似乎是南非以外世界上最大的 omicron 爆发，值得注意，它发生在一个国家 80% 以上的成年人都接种了疫苗的人群中。
-
-乔治城大学的全球和公共健康法和伦理学助理教授亚历山德拉·费兰 (Alexandra Phelan) 表示，尽管疫情迅速蔓延，但聚会本身的条件可能加速传播，客人们在隔离的环境中交谈和交流了几个小时，这是超级传播者活动的理想条件。
-
-她补充说，此次爆发表明当前的 COVID-19 疫苗不能预防感染，但有可能预防严重疾病。
-
-Phelan 说：“如果他们处于工作年龄并且足够年轻，可以狂欢到深夜，那么他们可能已经处于低风险之中。” “最大的问题是免疫逃避， 此事件开始向其添加数据，至少是松散数据。”
-
-点评：基于此文章和其它报道，Omicron目前给人的印象是，高感染率，症状轻，免疫逃避（以前得过Covid的人对Omicron没有免疫力，照样感染）。疫苗无效，完全接种者照常染病。
-
-原文链接：[https://www.foxnews.com/health/norway-christmas-largest-omicron-variant-outbreak-outside-south-africa](https://www.foxnews.com/health/norway-christmas-largest-omicron-variant-outbreak-outside-south-africa)
-
-编辑/发布：LILY
-
-20211204
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

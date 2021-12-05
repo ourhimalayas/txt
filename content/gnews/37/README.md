@@ -2,10 +2,98 @@
 ---
 
 
-## HCoin To the Moon iTunes排行榜最新更新
-` 我是音雄` [轉載自GNews](https://gnews.org/zh-hans/1720300/)
+## 科学证明：郭文贵爆料“新冠治疗药物和疫苗解药”的准确性
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1720668/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.001.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.002.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.003.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.004.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.005.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.006.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.007.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.008.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.009.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.010.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.011.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.012.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.013.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.014.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.015.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.016.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.017.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.018.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.019.jpeg)![]()![]()![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.020.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.021.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.022.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.023.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.024.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.025.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.026.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.027.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.028.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.029.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.030.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.031.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.032.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.033.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.034.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.035.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.036.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.037.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.038.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.039.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.040.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.041.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.042.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Saturday-4-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-converted.043.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/07-ak8dr-ljk66-1.jpg)
+图片来源：洛杉矶盘古农场设计组Ada战友
+
+**一、郭文贵先生对新冠病毒治疗药物和疫苗解药的爆料**
+
+在新冠病毒肆虐之际，郭文贵先生率先一次次向全球爆料：青蒿素、伊维菌素、羟氯喹、锌等药物可治疗新冠病毒。
+
+1、郭文贵先生在2020年7月8日直播中爆料：呼吁美国政府解除羟氯喹和阿奇霉素的限制，上班农节目将说出2020年1月2日最有权威的人（国内战友）给文贵发信息说要吃羟氯喹，1月21号又发信息说要吃羟氯喹和阿奇霉素。
+
+2、郭文贵先生在2021年8月30日文贵大直播中爆料：青蒿素是新冠病毒和疫苗的解药。
+
+3、郭文贵先生在2021年9月1日直播中爆料：战友大卫接受法制基金提供的伊维菌素、土霉素、地塞米松、锌治疗，从病危很快康复。
+
+二、科学文献资料来源（Source）与方法（Method）
+
+1、**资料来源**：
+
+google scholar、pubmed等论文数据库。
+
+2**、方法**：
+
+使用青蒿素、伊维菌素、羟氯喹、锌和新冠病毒关键词 （artemisinin | ivermectin | Hydroxychloroquine|Zinc & covid-19| sars-cov-2）搜索，筛选影响因子较高和引用次数较多的文章，找到可靠证据。
+
+**三、新冠病毒解药**
+
+1.            青蒿素及衍生物（artemisinin with derivative）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screenshot-2021-12-04-131242.png)
+图片：青蒿琥酯，维基百科和明财药品比价网
+
+青蒿素临床实验数据较少。
+
+在《科学报告杂志》发表的一篇题为“基于青蒿素疗法的体外实验效果研究”[1]一文中，体外实验青蒿素针对VeroE6 细胞、人体肝癌 Huh7.5 细胞和人体肺癌A549-hACE2细胞新冠病毒体外抑制实验中，青蒿素抗病毒效果无明显区别。青蒿素及衍生物中，青蒿琥酯（artesunate）半对数效应浓度（EC50）最低，效果可能最好。其他依次为蒿甲醚（artemether）、青蒿提取物（A. annua extracts）、青蒿素（artemisinin）。青蒿琥酯在A549-hACE2细胞中清除新冠病毒的时间延长实验中，在2～6小时注射青蒿琥酯浓度为14 µg/mL的细胞内病毒抑制率达80%以上。文中还提到青蒿琥酯注射剂2剂次按照2.4 mg/kg给药，最高血浆浓度可以达到19.4and29.7µg/mL，2倍于半对数效应浓度。在动物实验中，青蒿琥酯在器官中浓度要高于血浆中浓度数倍。
+
+而在《国际传染病学期刊》发表的“非洲的抗疟青蒿素联合疗法 (ACT) 和新冠病毒：甲氟喹-青蒿琥酯对SARS-CoV-2复制的体外抑制实验结果”[2]一文中，在Vero E6 cells感染新冠病毒的体外实验中，甲氟喹-青蒿琥酯（Mefloquine-artesunate）在最大血药浓度有（72.1±18.3%）的病毒抑制率，其他如青蒿琥酯-阿莫地喹（artesunate-amodiaquine）、蒿甲醚-芴芴醇（artemether-lumefantrine）、青蒿琥酯-吡咯烷（artesunate-pyronaridine）、双氢青蒿素-哌喹（dihydroartemisinin-piperaquine）在最大血药浓度病毒抑制率均在27.1%-34.1 %之间。文中还提到这些药物在人体肺中浓度要高于血浆中的10～160倍。
+
+在《国际抗微生物因子杂志》发表的题为“青蒿哌唑片治疗新冠感染者的安全性和有效性：一项开放式、非随机、对照组的临床实验”[3]文章中，报告对轻中度新冠患者，青蒿哌唑片治疗相对对照组，RNA转阴时间缩短，转阴比例升高。
+
+2. 伊维菌素（ivermectin）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/two-2021-12-04-123702.png)`图片：维基百科和中时新闻网`
+在墨西哥国立自治大学生物医学研究所的阿方索·杜纳斯·冈萨雷斯教授发表的“伊维菌素用于 COVID-19 治疗的药代动力学原理”[4]一文中，伊维菌素在体外降低 99.98%病毒载量所需的剂量（2毫克/公斤）在临床上是可行的。由于开发伊维菌素没有商业利益，三期临床实验前的给药药代动力学实验、药效动力学关联临床实验，只能由资源有限的独立研究人员才能做到，这些急待优化的临床实验确定伊维菌素是否能治疗新冠。确定伊维菌素是否可用于治疗COVID-19。
+
+世界人口 (28%) 使用伊维菌素治疗 COVID-19，确定伊维菌素能否治疗新冠是至关重要的。
+
+伊维菌素的荟萃分析（meta-analysis）较多，在引用数最多的《美国疗法学期刊》的一篇题为用于预防和治疗 COVID-19 感染的伊维菌素：系统评价、荟萃分析和试验序贯分析为临床指南提供信息”[5]一文中，中等质量证据发现，使用伊维菌素可以大幅减少COVID-19的死亡人数，伊维菌素作为一种安全性和低成本的药物，可能会对全球 SARS-CoV-2 大流行产生重大影响。
+
+3.** 羟氯喹（Hydroxychloroquine）**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/three-2021-12-04-123749.png)
+在《国际抗微生物因子杂志》最新一篇关于题为“羟氯喹和阿奇霉素对新冠患者 病毒清除率效果的一项荟萃分析”[6]中，羟氯喹单用并未降低死亡率，但羟氯喹与阿奇霉素合用降低了死亡率。
+
+在《心血管内科评论杂志》的一篇“羟氯喹和阿奇霉素的早期联合治疗降低了10,429名COVID-19门诊患者的死亡率”[7]的论文中，羟氯喹和阿奇霉素对比其他方案，在早期联用对比其他方案拥有极低的死亡率，应作为临床标准治疗方案。
+
+在《印度医师协会期刊》发表一篇最新的题目为“伊维菌素和羟氯喹用于 COVID-19 的化学预防：针对医生对结果的认知和处方实践的问卷调查”[8]的论文中，伊维菌素和羟氯喹联用显着降低了感染风险，比单独使用羟氯喹效果好；无任何化学预防感染风险很高。
+
+4**、锌（Zinc）**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Four-unknown.png)**图片：australianvitamins.com**
+在《感染医学》一篇题目为“提高氯喹和羟氯喹对SARS-CoV-2的疗效可能需要锌添加剂——COVID-19临床试验的更好协同作用”[9]的文章中，氯喹可诱导锌的吸收细胞的胞质溶胶，能够抑制依赖于RNA的RNA聚合酶，最终停止冠状病毒在宿主细胞中的复制。有多项临床试验表明，目前正在多个国家进行氯喹和羟氯喹抗新冠病毒的疗效评估。由于氯喹已被广泛规定用作抗疟疾药，它的安全性是毋庸置疑的。鉴于上述情况，以锌补充剂和氯喹、羟氯喹协同作用为基础的抗新冠病毒临床试验得到更好结果可以期待。
+
+在《Cureus期刊》发表的一篇题为“预防COVID-19进展的疗法，包括羟氯喹、阿奇霉素、锌、维生素D3和口服或静脉注射维生素C”[10]一文中，维生素D水平与入住ICU和住院时间延长显着相关。口服或静脉注射维生素C、 羟氯喹、阿奇霉素和锌在治疗COVID-19 中是安全有效的，静脉注射维生素C有助于加快康复。
+
+**四、新冠疫苗和解药**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/fine-unknown.png)**图片来源：news-medical.net**
+在《SSRN期刊》发表题目为“新冠刺突蛋白通过CD147受体介导的信号传导破坏人类心脏周细胞、内皮细胞的协同功能：COVID-19微血管疾病的潜在非感染机制”一文中，新冠刺突蛋白可以独立引起心脏外周细胞的功能改变。这改变包括：（1）心脏外周细胞迁移增加，（2）降低了心脏外周细胞对心脏内皮细胞网络的形成的支持能力，（3）通常参与细胞因子风暴促炎分子的分泌；（4）促凋亡因子的产生导致心脏内皮死亡；（5）刺激心脏外周细胞磷酸化。
+
+在《循环研究期刊》发表的题为“新冠刺突蛋白使血管紧张素转换酶2功能下降，损害内皮细胞功能”一文中，刺突蛋白可以使血管紧张素转换酶2功能下降， 从而抑制线粒体功能。刺突蛋白可损伤内皮细胞，表现为线粒体功能和内皮一氧化氮合酶活性受损，但糖酵解增加。
+
+在《生化和生物物理研究通讯期刊》发表的“新冠刺突蛋白与淀粉样蛋白的相互作用：神经变性的潜在线索”一文中，刺突蛋白S1上的RBD 区域与许多易于聚集的肝素结合蛋白结合，包括Aβ、α-突触核蛋白、tau蛋白、朊蛋白和TDP-43RRM蛋白。这些相互作用表明S1蛋白上存在肝素结合位点可能有助于淀粉样蛋白与病毒表面的结合，从而引发这些蛋白的聚集，最终导致大脑神经变性。
+
+在《细胞杂志》发表的题目为“一种针对新冠病毒的基于受体结合域 (RBD区域) 的新型 mRNA疫苗一文中， 刺突蛋白S1上的RBD区域确定为设计针对新冠的有效疫苗的关键抗原，表明基于RBD的mRNA疫苗在缓解新冠大流行和未来可能发生的新冠类疾病拥有巨大潜力。
+
+根据中共国一份编号为CN112220919A的专利文件显示，2020年9月27日上海纳米技术及应用国家工程研究中心有限公司向中华人民共和国国家知识产权局提交一份了名以氧化石墨烯为载体的纳米冠状病毒重组疫苗的专利申请，内容为用氧化石墨烯的表面带有COOH、羟基等基团的特点，利用π-π键之间的相互作用，把筛选出的RBD的重组蛋白（刺突蛋白RBD区域）与CpG分子和肌肽组装在一起，制备成基于氧化石墨烯为骨架的纳米重组蛋白疫苗。
+
+综上所述，新冠的刺突蛋白可以导致刺突蛋白可以使血管紧张素转换酶2功能下降，损伤血管内皮细胞，导致细胞线粒体功能下降，降低一氧化氮合酶活性，导致新血管疾病。刺突蛋白S1上的RBD 区域与许多易于聚集的肝素结合蛋白结合可以导致大脑神经变性，导致神经症状。新冠疫苗将刺突蛋白送入人体，导致人体出现上述损伤，发生心肌炎、心包炎、血栓、神经系统疾病。疫苗导致人发病的主要成分为刺突蛋白，而刺突蛋白为新冠病毒致病因子一部分，因此新冠病毒的解药对疫苗依然有效。考虑到各种疫苗的佐剂不同，有的疫苗还含有类如氧化石墨烯的有害成分，疫苗解药除上述提到的治疗药物外，额外需要添加NAC、褪黑素等，详细信息请见GNEWS。
+
+**五、结论**
+
+青蒿素、伊维菌素、羟氯喹、锌在体外实验或临床实验中，都证明对新冠病毒有效。尤其是青蒿素和伊维菌素，在体外抑制实验、临床实验均能明显抑制病毒复制，对治疗新冠有显著作用。羟氯喹、锌、维生素D3、维生素C作为辅助治疗和预防药物，对新冠预防感染和加快恢复也有明显作用。新冠疫苗主要成分为新冠刺突蛋白、氧化石墨烯等，而刺突蛋白为新冠病毒致病因子一部分，新冠病毒的解药对疫苗依然有效。中和氧化石墨烯除上述药物外，还需要额外需要添加NAC、褪黑素等。
+
+科学证据证明了爆料革命关于郭文贵先生爆料“新冠病毒治疗及疫苗解药”准确无误。
+
+作者：洛杉矶盘古农场–73stolencountry
+编审：洛杉矶盘古农场–心照
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+
+**声明：文章观点仅代表作者个人，与Gnews平台无关**
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,31 +2,29 @@
 ---
 
 
-## 美国和欧盟对中共国的立场“日益趋同”
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1721090/)
+## 因拒绝出示疫苗护照而引发的暴力事件激增澳洲维省考虑提前取消疫苗强制接种
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1721195/)
 
-俄罗斯莫斯科喀秋莎农场  银河
+翻译：喜国公民
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Bookstore.png)图片来自网络
+[一系列关于工人因检查疫苗护照而被虐待的事件](https://www.skynews.com.au/australia-news/coronavirus/victorian-government-considering-removing-vaccination-mandate-three-months-earlier-due-to-incidents/news-story/a07e37c1866f11269adf4218cb00fde5)，使维州政府重新考虑他们的强制疫苗接种政策。
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/12/s.jpg)99newshd.com
-日本共同社消息，美国副国务卿温迪·谢尔曼(Wendy Sherman)12月3日在与欧盟外交事务秘书长会谈后表示，美国和欧盟在应对中共国在印太地区日益强硬的立场上越来越一致。
+维州警方正在调查一起事件。据称一名Dymocks员工在要求一名顾客出示他的疫苗接种证书时，被推下扶梯。该店老板说，这是上周五该店发生的第三起与要求出示疫苗护照有关的事件。
 
-谢尔曼连续两天与欧洲对外行动局(European foreign Action Service)秘书长斯蒂法诺·桑尼诺 (Stefano Sannino)举行会谈，分别讨论了中共国人权问题、台湾问题、印太地区基础设施开发项目协调等与中共国和印太地区有关的问题。
+闭路电视录像显示，这名工作人员试图阻止这名男子从自动扶梯下到书店时被推下扶梯，头部撞到台阶上。人们看到这名工作人员抱着头，躺在扶梯上一动不动。
 
-谢尔曼随后指出，“我们认为我们和欧盟对中共国的方式是互补的，而且越来越趋同和一致。”
+墨尔本的另一家书店因员工受到攻击而被迫雇用私人保安，每周费用为4000澳元。
 
-桑尼诺在会议阶段发言称:“我们确实认识到中共国在世界上的重要性，但与此同时，在面临中共国对我们的思维方式和运作方式的挑战及不按规则的行事方式时我们也不会退缩。”
+由于零售业工人受到威胁和虐待，维州政府正在寻求取消疫苗强制接种的规定。如果通过的话，这个有争议的疫苗强制接种政策可能会在新年被取消。
 
-根据12月3日印度洋-太平洋高层磋商后发布的联合新闻稿，谢尔曼和桑尼诺确认“双方都注意到了深化与台湾合作的共同利益。” 两位领导人还重申了美国和欧盟共同促进印度洋-太平洋地区基础设施发展的目标，这显然是在中共国 “一带一路”项目外给该区域提供的另一种选择。
+据报道，州政府正在考虑最早于1月在除高风险环境外的所有场合取消这一指令。
 
-欧盟最近宣布了“全球网关”投资计划，而美国领导的“重建更美好的世界”基础设施项目计划预计将于明年年初正式推出。
+州长丹尼尔-安德鲁斯曾在10月建议，强制接种指令要一直存在到明年4月甚至更久。
 
-谢尔曼说:“这些努力将有助于美国和欧盟调动资源，促进世界各地的可持续、包容的经济发展，包括对基础设施进行透明、高质量的投资。”
+目前，有93%的维州人已经接受了一剂疫苗，91.1%的人已经完全接种。
 
-参考链接：
-
-[https://english.kyodonews.net/news/2021/12/c59c434337f9-us-eu-stance-on-china-increasingly-convergent-senior-diplomat.html](https://english.kyodonews.net/news/2021/12/c59c434337f9-us-eu-stance-on-china-increasingly-convergent-senior-diplomat.html)
-
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

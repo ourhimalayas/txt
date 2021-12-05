@@ -2,22 +2,37 @@
 ---
 
 
-## 秘翻在线: 加拿大新省禁止未接种疫苗者进入食品杂货店
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1720638/)
+## 兰德·保罗斥责福奇标榜自己代表科学
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1720825/)
 
-撰稿：西枫westca
+**据《Breitbart》记者：PAUL BOIS，2021年11月28日报道 **：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/07-ak8dr-ljk66-3.jpg)图片源自Breitbart
+兰德-保罗（Rand Paul, R-KY) 公开指责安东尼·福奇（Anthony Fauci）博士傲慢地标榜自己为科学代表以逃避批评。
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Chalo_main.jpg)图片来源：www.sobeys110.com
-据TNC新闻12月3日报道，从本周六开始，加拿大新布伦瑞克省禁止不能出示全面疫苗接种证明的人进入杂货店购买食品。这项措施是作为该省 “冬季行动计划 “的一部分而宣布的，该计划允许任何企业，包括杂货店，选择禁止未接种疫苗的人进入。
+在周日面对国家的听证会中，福奇重申了他的观点，即对处理冠状病毒大流行（以及他在其起源中可能扮演的角色）的批评“实际上是在批评科学”。
 
-据该省卫生部长多萝西-谢泼德说，这是因为该省在过去两周里看到了COVID感染的 “非常令人担忧 “的上升，特别是在未接种疫苗的加拿大人中。
+任何仔细看这个的人都会意识到这有明显的反科学味道，所以如果他们站起来批评科学，没有人会知道他们在说什么。但是如果他们站起来真的把子弹瞄准安东尼·福奇，人们就会意识到那里有人，所以很容易批评，但他们真的在批评科学，因为我代表科学。
 
-在联邦政府发布的一份指南中，加拿大公共安全部将食品列为基础设施的十个关键部门之一，因其提供对市民的基本服务和功能。虽然各省在大流行期间可以自由管理他们自己的限制和封锁，但全国各地的杂货店直到现在仍对所有人开放。
+在周日的一条推文中，福奇的顶级批评家之一兰德·保罗将福奇医生的声明描述为“绝对傲慢”的高度。
 
-极左的特鲁多政府在自中共病毒大流行发生以来，从未表述要追溯病毒来源，在疫苗接种上更是走在西方国家的前列。 如今接种率已经超过80%，已超过群体免疫比例，为何还会有高阳性率？不是政府在接种率上说谎，就是在感染者多数为未接种人群上说谎。现在又把人们生存的基本权利和疫苗连在一起，就是助虐为虐。这些政客们一定会得到正义的审判。
+“声称他们代表科学的人的绝对傲慢。令人震惊和担忧的是，一个公共卫生官僚甚至会想到声称这样的事情，尤其是那些努力忽视自然免疫科学的人，”保罗在推特上写道。
 
-**新闻来源：**[https://tnc.news/2021/12/03/unvaccinated-canadians-can-be-banned-from-grocery-stores-in-new-brunswick/](https://tnc.news/2021/12/03/unvaccinated-canadians-can-be-banned-from-grocery-stores-in-new-brunswick/)
+去年10月，美国国立卫生研究院给众议院监督委员会高级成员James Comer (R-KY) 的一封信表明，该研究所确实通过授予生态系统的赠款资助了武汉病毒学研究所的功能增强研究。健康联盟与福奇声称该研究所从未资助过功能增强研究的说法相矛盾。最初对福奇在功能增强研究中的作用提出警告的兰德·保罗公开表示，福奇应该因涉嫌向国会撒谎而“承担责任”：
+
+我不知道他们是否有时间追究福奇博士的谎言。他应该被追究责任，因为在我们国家发展成为一个医疗“自保”系统，医生害怕说出真相，因为公共卫生官僚会削减他们的研究资金，那些谈论创新治疗以试图帮助人们在COVID中生存的医生是被训诫并被告知吊销执照。这种事情，这种自上而下的医疗权力专制，对我们国家不利，也不利于创新。
+
+在接受Face the Nation采访时，福奇拒绝接受对他进行调查的呼吁，他暗示参议员Ted Cruz（R-TX）等共和党人将他作为1月6日发生的事情的“替罪羊”。
+
+**文章来源**：[https://www.breitbart.com/politics/2021/11/28/astounding-alarming-rand-paul-scolds-fauci-saying-i-represent-science/](https://www.breitbart.com/politics/2021/11/28/astounding-alarming-rand-paul-scolds-fauci-saying-i-represent-science/)
+
+翻译：洛杉矶盘古农场–Raul
+校对：洛杉矶盘古农场–Mike Li
+编辑：洛杉矶盘古农场–心照
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
