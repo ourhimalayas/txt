@@ -2,25 +2,36 @@
 ---
 
 
-## 世卫科学家阿斯特丽德
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1721018/)
+## 通用汽车、福特和克莱斯勒拒绝遵守Covid-19疫苗强制令
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1721034/)
 
-撰稿：苏加诺
-![](https://assets.gnews.org/wp-content/uploads/2021/12/501-2.jpg)图片来源网络
-世界卫生组织（World Health Organization）科学家阿斯特丽德 （Dr Astrid Stuckelberger）在今年六月份接受了The Interview的采访，发表了她对于全世界各国政府疫苗接种和疫苗护照的个人观点。
+**据《Daily Expose》，2021年12月2日报道 ：**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/a3jv1-1mwre.jpg)**图片源自：Daily Expose**
+三大国际汽车制造商将不会要求其员工遵守Covid-19疫苗强制令。经过谈判，国际汽车工会、美国联合汽车、航空航天和农业机械工人联合会达成一项协议，防止通用汽车、福特和克莱斯勒的数千名员工不得不遵守拜登的专横命令。
 
-阿斯特丽德认为，新冠疫苗依旧处于试验阶段，但是已经大面积用于各国人民身体上。人们为了可以更早的摆脱疫情选择接种了一针、两针甚至更多针疫苗。
+尽管如此，工厂的员工仍将被要求在工厂内戴口罩，但工会负责人已设法使疫苗接种状态的披露成为自愿，而非强制要求。
 
-全世界已经进入了一个恶性循环，各国政府为了可以用疫情永远地控制人民，推出了疫苗护照迫使每个人一针接着一针的接种疫苗。人民因为惧怕死亡不断接种疫苗将自己的生命和未来都交给了满嘴谎言的政府。
+一份声明写道：“在周一晚上的一次会议上，由美国汽车工人联合会、福特、通用汽车和Stellantis组成的COVID-19联合工作组，已经就美国汽车工人联合会成员，自愿和保密披露疫苗接种状况的政策达成一致。
 
-阿斯特丽德最后呼吁希望各国人民不要再惧怕死亡，惧怕政府，站起来反抗。
+“每家公司都会就如何、何地和何时报告他们的疫苗接种情况，向员工提供额外的沟通。”
 
-参考链接：
+专责小组将继续鼓励员工接种疫苗，并向公司老板披露他们的状况。还强 烈鼓励美国汽车工人联合会成员的家人通过大量注射和加强针来对抗冠状病毒。
 
-[采访世卫组织举报人阿斯特丽德·斯塔克尔伯格|steigan.no](https://steigan.no/2021/06/intervju-med-who-varsleren-astrid-stuckelberger/)
+声明继续解释说：“在审查了CDC和OSHA指南的状态后，工作组还决定，此时在所有工作场所继续戴口罩最符合工人安全的利益。”
 
-*发稿：mgjxs*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1.jpg)
+虽然汽车制造商的员工免受拜登的疫苗强制令，但美国的其他行业却没有那么幸运。运输安全管理局（TSA）已被告知，它必须要求所有员工接种疫苗。
+
+**文章来源：**[https://dailyexpose.uk/2021/12/02/gm-ford-and-chrysler-refuses-to-comply-with-covid-19-vaccine-mandate/](https://dailyexpose.uk/2021/12/02/gm-ford-and-chrysler-refuses-to-comply-with-covid-19-vaccine-mandate/)
+
+翻译：洛杉矶盘古农场–Raul
+校对：洛杉矶盘古农场–Mike Li
+编辑：洛杉矶盘古农场–心照
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

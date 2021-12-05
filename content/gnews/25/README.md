@@ -2,33 +2,37 @@
 ---
 
 
-## 布林肯: 中共攻台没有好处 应谨慎考虑可怕后果
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1721156/)
+## 最新！挪威圣诞聚会可能引发除南非外最大的 Omicron 变种爆发
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1721170/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/120406-1.jpg)美国国务卿布林肯认为，台海冲突对任何人都没有好处，中共国将首当其冲。图片：Oliver Hoslet摄 /路透社
-**编辑摘要：**
+翻译： 真北007
+![](https://assets.gnews.org/wp-content/uploads/2021/12/covidtestingman.jpg)图片来源：网络
+来自福克斯FOX NEWS 12月4日的新闻报道：
 
-据《德国之声》12月4日报道，美国国务卿布林肯指出，中共国领导人应慎重考虑他们的对台行动。中共国近年来一直对台湾进行挑衅性的军事演习，并试图在国际舞台上孤立台湾。如果中共国在台湾海峡掀起风波，将招致“可怕的后果”，布林肯承诺会确保台湾拥有自卫能力。
+根据最近的一份报告，挪威最近在圣诞聚会上爆发的 omicron 疫情提供了早期相关证据，说明这些变异如何在接种疫苗的人群之间传播及其症状的严重程度。
 
-欧盟和美国的代表在本周《美欧中国议题对话》结束之后表示，双方在对中态度上渐趋一致：并肩同行，以团结的力量与中共国打交道。
+公司发言人 Stian Tvede Karlsen 表示，挪威的一家可再生能源公司在举办年度假日聚会之前采取了所有必要的安全预防措施，包括只邀请接种疫苗的员工并要求在派对前一天进行快速测试。
 
-习近平完全抛弃了中共几十年来“韬光养晦”的策略，念念不忘武力夺取台湾。台湾与西方民主国家有着相同的文化理念和价值观，面对中共霸凌，面对中共全球释放病毒，西方国家定然不会袖手旁观。中共若一意孤行，定会招致可怕的后果。
+派对在奥斯陆的一家高档餐厅举行，约有 120 人参加，其中一些人最近前往南非，该公司在那里开展太阳能电池板业务。
 
-新闻参考链接：[布林肯: 中国攻台没有好处 应谨慎考虑可怕后果](https://p.dw.com/p/43pfC)
+据《华尔街日报》报道，超过 50% 的人对 COVID-19 的检测呈阳性，其中 13 人被确认患有 omicron 变体，但没有人出现严重症状。
 
-*编辑：胖丁*
+《华尔街日报》补充说，这次爆发似乎是南非以外世界上最大的 omicron 爆发，值得注意，它发生在一个国家 80% 以上的成年人都接种了疫苗的人群中。
 
-* * *
+乔治城大学的全球和公共健康法和伦理学助理教授亚历山德拉·费兰 (Alexandra Phelan) 表示，尽管疫情迅速蔓延，但聚会本身的条件可能加速传播，客人们在隔离的环境中交谈和交流了几个小时，这是超级传播者活动的理想条件。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+她补充说，此次爆发表明当前的 COVID-19 疫苗不能预防感染，但有可能预防严重疾病。
 
+Phelan 说：“如果他们处于工作年龄并且足够年轻，可以狂欢到深夜，那么他们可能已经处于低风险之中。” “最大的问题是免疫逃避， 此事件开始向其添加数据，至少是松散数据。”
 
-编辑：【英国伦敦喜庄园编辑部】
+点评：基于此文章和其它报道，Omicron目前给人的印象是，高感染率，症状轻，免疫逃避（以前得过Covid的人对Omicron没有免疫力，照样感染）。疫苗无效，完全接种者照常染病。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+原文链接：[https://www.foxnews.com/health/norway-christmas-largest-omicron-variant-outbreak-outside-south-africa](https://www.foxnews.com/health/norway-christmas-largest-omicron-variant-outbreak-outside-south-africa)
 
+编辑/发布：LILY
+
+20211204
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
 
 
  

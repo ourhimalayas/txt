@@ -2,29 +2,31 @@
 ---
 
 
-## 因拒绝出示疫苗护照而引发的暴力事件激增澳洲维省考虑提前取消疫苗强制接种
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1721195/)
+## 安徽潜山交通事故：司机突发脑溢血致车辆失控
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1721217/)
 
-翻译：喜国公民
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Bookstore.png)图片来自网络
-[一系列关于工人因检查疫苗护照而被虐待的事件](https://www.skynews.com.au/australia-news/coronavirus/victorian-government-considering-removing-vaccination-mandate-three-months-earlier-due-to-incidents/news-story/a07e37c1866f11269adf4218cb00fde5)，使维州政府重新考虑他们的强制疫苗接种政策。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Unknown-9.jpg)安徽潜山交通事故：司机突发脑溢血致车辆失控 网络图片
+据新浪新闻中心12月5日报道，12月2日，安徽省潜山市一中型客车与一自卸货车相撞，造成8人死亡、3人受伤。安庆及潜山市公安局在公安部、省公安厅的技术支持下，经现场勘查鉴定，认定该起事故发生的直接原因系中型客车驾驶员在驾驶过程中突发脑溢血、意识丧失，致使车辆失控、驶入对向车道，与自卸货车发生碰撞。
 
-维州警方正在调查一起事件。据称一名Dymocks员工在要求一名顾客出示他的疫苗接种证书时，被推下扶梯。该店老板说，这是上周五该店发生的第三起与要求出示疫苗护照有关的事件。
+一直担心狼来了，最终狼还是来了。全球强制推行新冠疫苗后，不断报道有驾驶员在行车途中突发脑溢血死亡，导致车辆失控，引发他人受伤、死亡的案例。甚至还有飞行员在高空突发心梗和脑梗的报道。一起两起事故可能归为偶然，但是随着类似的事故频频出现，不由得令人起疑：问题到底出在哪里？为什么大面积接种疫苗之后这类事故频频发生？这种实验性的疫苗是否真的能够抵抗病毒并且适合大面积接种甚至强行接种？
 
-闭路电视录像显示，这名工作人员试图阻止这名男子从自动扶梯下到书店时被推下扶梯，头部撞到台阶上。人们看到这名工作人员抱着头，躺在扶梯上一动不动。
+病毒还没结束，疫苗灾难接踵而至，人类生存面临前所未有的挑战。人命关天，接种疫苗需小心，尤其是给孩子接种更要谨慎。
 
-墨尔本的另一家书店因员工受到攻击而被迫雇用私人保安，每周费用为4000澳元。
+新闻参考链接：[https://news.sina.com.cn/c/2021-12-05/doc-ikyakumx2087573.shtml](https://news.sina.com.cn/c/2021-12-05/doc-ikyakumx2087573.shtml)
 
-由于零售业工人受到威胁和虐待，维州政府正在寻求取消疫苗强制接种的规定。如果通过的话，这个有争议的疫苗强制接种政策可能会在新年被取消。
+* * *
 
-据报道，州政府正在考虑最早于1月在除高风险环境外的所有场合取消这一指令。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-州长丹尼尔-安德鲁斯曾在10月建议，强制接种指令要一直存在到明年4月甚至更久。
 
-目前，有93%的维州人已经接受了一剂疫苗，91.1%的人已经完全接种。
+编辑：【英国伦敦喜庄园编辑部】
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

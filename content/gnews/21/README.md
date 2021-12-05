@@ -2,26 +2,52 @@
 ---
 
 
-## 专家质疑中国的实际人口可能比统计数据更低
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1721187/)
+## 泽连科医生在盖特上呼吁依法严惩辉瑞CEO
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1721210/)
 
-#### 翻译：Steven Hu
+作者：纽约香草山翻译部 defiance
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-194.png)图片来源：谷歌图片
-据《路透社》12月4日报道，中国可能低估了其人口萎缩的速度，而其最近为提高出生率而推出的三孩家庭的政策成功的机会很小。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-109-1280x172-1-2-1.jpg)
 
-威斯康星大学妇产科高级科学家易富贤（Fuxian Yi）说，他估计中国2020年人口为12.8亿，而不是人口普查报告的14.1亿，生育率低于报告。他认为自2018年以来，中国人口一直在减少。
 
-由于出生率急剧下降，中国经济增长放缓，引发了人们对支持老年人工作所带来的潜在挑战的担忧。为了避免这些风险，北京被迫于 2016 年取消了执行数十年的一胎化政策，容许生二胎。 但由于在中国城市养育孩子的成本高昂，该政策并无成效，继而在五月份宣布了更宽松的三孩政策。
 
-作家兼记者莱诺拉.朱（ Lenora Chu）表示，中国的高昂教育成本和通过高考来攀登高等教育阶梯的所带来的心理压力是一个挑战。  “这就是为什么这些计划生育政策必须与教育改革政策相结合的部分原因。否则只能让父母更不想生孩子”。
 
-最近的国家数据显示，2020 年中国的生育率仅为每名妇女 1.3 个孩子，与日本和意大利等老龄化社会相当，远低于正常换代所需的约2.1 。而易估计，真实的生育率要远远低于这个数据，因为这并没有将少数民族不受一孩政策的影响计算在内。
 
-易说，地方政府为获取更多补贴，包括从中央政府获得教育费而虚报了人口，他说，由于登记出生会获得 20 多项社会福利，一些家庭正在利用黑市在线购买第二份出生证明。
+![](https://media.gettr.com/group27/getter/2021/12/03/17/c013386a-845d-fbdd-4979-8185b49d3813/124771419d557e57f5df4a76967d3b48.jpg)图片来源：盖特 
 
-[原文链接](https://news.yahoo.com/researcher-questions-chinas-population-data-190042639.html)
+12月3日至4日，泽连科医生在盖特上连续发表观点，辉瑞公司首席执行官阿尔伯特-布拉是世界上最大的有组织犯罪黑手党的黑老大。他，以及他做杀人业务公司，在致死毒针的安全性和有效性上，欺骗了全人类。他应该被立即逮捕并接受国际军事法庭的审判。他随后为一个盖特进行了背书，此盖文写道，截至2021年2月，辉瑞公司已经收到1200多份由疫苗引起的死亡报告和数万份不良事件报告，包括270例怀孕中的23例自然流产和2000多份心脏疾病报告。这是辉瑞公司自己的数据。难怪美国食品和药物管理局会争取将其隐藏55年。
+
+CCP病毒是一种人造大规模杀伤性武器。黑暗力量故意把他释放出来，以引起全球恐慌和人与人之间的隔离，并诋毁得病早期使用羟氯喹或者伊维菌素的方法，胁迫人们扎索命毒针。索命毒针会引发中风、心脏病、心肌炎、流产、癌症、自身免疫性疾病、不孕不育和抗体依赖增强效应，并含有生物识别传感器。这些传感器量测体内生理数据，并将地理位置一起传输给第三方。
+
+新闻链接：
+
+[https://gettr.com/post/pig3u07bd6](https://gettr.com/post/pig3u07bd6https://gettr.com/post/pihtky3bd1https://gettr.com/post/pinsnm8686)
+
+[https://gettr.com/post/pihtky3bd1](https://gettr.com/post/pig3u07bd6https://gettr.com/post/pihtky3bd1https://gettr.com/post/pinsnm8686)
+
+[https://gettr.com/post/pinsnm8686](https://gettr.com/post/pig3u07bd6https://gettr.com/post/pihtky3bd1https://gettr.com/post/pinsnm8686)
+
+编辑/校对/发稿：小小安
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-69.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-109-1280x172-1-2-1.jpg)
+
+
+
+
 
  
 

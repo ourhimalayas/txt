@@ -2,30 +2,30 @@
 ---
 
 
-## 泽连科医生在盖特上呼吁依法严惩辉瑞CEO
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1721210/)
+## 同喝一杯咖啡的故事
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1721229/)
 
-作者：纽约香草山翻译部 defiance
+# 我们是一家人与三个绝不允许
+
+作者：祈望明天会更好
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-109-1280x172-1-2-1.jpg)
 
 
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-195.png)
+12 月 3日2021 郭先生在大直播中陈述:
 
-![](https://media.gettr.com/group27/getter/2021/12/03/17/c013386a-845d-fbdd-4979-8185b49d3813/124771419d557e57f5df4a76967d3b48.jpg)图片来源：盖特 
+1. 保镳担心郭先生的安危因为郭先生与战友们同喝一杯咖啡. 但郭先生说他视兄弟姊妹为一条命, 大家的安全与生死和郭先生都是一样的. 这意味着 生命共同体. 保镳家人听了转述, 同起立鼓掌, 称你要好好的保护他!
 
-12月3日至4日，泽连科医生在盖特上连续发表观点，辉瑞公司首席执行官阿尔伯特-布拉是世界上最大的有组织犯罪黑手党的黑老大。他，以及他做杀人业务公司，在致死毒针的安全性和有效性上，欺骗了全人类。他应该被立即逮捕并接受国际军事法庭的审判。他随后为一个盖特进行了背书，此盖文写道，截至2021年2月，辉瑞公司已经收到1200多份由疫苗引起的死亡报告和数万份不良事件报告，包括270例怀孕中的23例自然流产和2000多份心脏疾病报告。这是辉瑞公司自己的数据。难怪美国食品和药物管理局会争取将其隐藏55年。
+2. 郭先生说:一家人不等同于每个人都百分百同意有相同的意见, 那叫一家神! 我们是一家人, 不是一家神! 他必定有 磨擦, 必定有不同的意见.
 
-CCP病毒是一种人造大规模杀伤性武器。黑暗力量故意把他释放出来，以引起全球恐慌和人与人之间的隔离，并诋毁得病早期使用羟氯喹或者伊维菌素的方法，胁迫人们扎索命毒针。索命毒针会引发中风、心脏病、心肌炎、流产、癌症、自身免疫性疾病、不孕不育和抗体依赖增强效应，并含有生物识别传感器。这些传感器量测体内生理数据，并将地理位置一起传输给第三方。
+3. 三个绝不允许: 不允许奉献, 不允许失去, 更不允许把郭先生神话,个人化, 崇拜化, 就像希特勒, 史达林, 列宁, 毛泽东, 无不如此他们 都代表神, 上帝跟像现在的习太阳一样．
 
-新闻链接：
+一般人想要的欲望郭先生都想要，只是经验多，见识多, 比较幸运,跟一般人都一样,不要做个人神话.
 
-[https://gettr.com/post/pig3u07bd6](https://gettr.com/post/pig3u07bd6https://gettr.com/post/pihtky3bd1https://gettr.com/post/pinsnm8686)
-
-[https://gettr.com/post/pihtky3bd1](https://gettr.com/post/pig3u07bd6https://gettr.com/post/pihtky3bd1https://gettr.com/post/pinsnm8686)
-
-[https://gettr.com/post/pinsnm8686](https://gettr.com/post/pig3u07bd6https://gettr.com/post/pihtky3bd1https://gettr.com/post/pinsnm8686)
+信息链接：[https://gtv.org/video/id=61aa1cecd6388d55041591e6](https://gtv.org/video/id=61aa1cecd6388d55041591e6)
 
 编辑/校对/发稿：小小安
 
