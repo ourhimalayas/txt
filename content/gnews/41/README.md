@@ -2,24 +2,43 @@
 ---
 
 
-## 美情报官员：俄罗斯正为入侵乌克兰做部署
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1721967/)
+## “HCoin To the Moon” 获多项iTunes排行榜第一
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1722101/)
 
-#### 撰稿:彩虹        
+作者：纽约香草山农场 文真
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-205.png)图片来源：印度快报
-12月4日，《新闻极限》发布文章，虽然美国总统承诺让俄罗斯普京在乌克兰采取军事行动变得“非常非常困难”，但美国情报官员确定，俄罗斯正在为可能的军事进攻做规划，并且最快将可能于下个月开始进攻。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-文章援引《美联社》的报道，据一位不愿意透露姓名的拜登政府官员透露，新的情报发现，估计俄罗斯人正计划部署约17.5万名军人，其中几乎一半已经部署在了乌克兰边境的各个地点，并且，该计划要求100个俄罗斯营级战术小组连同装甲车、大炮及设备一起行动。
+歌曲 “HCoin To the Moon” 在iTunes排行榜已经获得多项第一。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-05-at-9.09.46-PM.png)
+截至12月4日，“HCoin To the Moon” 在香港，新加坡，老挝，澳门，柬埔寨，蒙古iTunes 总榜排名第一；在香港，新加坡，美国，阿联酋，台湾，新西兰，马来西亚，波兰，加拿大，西班牙，越南，爱尔兰，澳大利亚，匈牙利，iTunes 摇滚榜单排名第一；同时，在香港，新加坡，台湾，马来西亚，新西兰，匈牙利，芬兰的iTunes 嘻哈榜单排名第一。
 
-同时，该官员说，情报官员还看到，在可能的入侵之前，已经看到俄罗斯通过使用代理人和媒体机构在进行升级诋毁乌克兰和北约的宣传努力。
+“音乐灭共” 再次向世界展示了新中国联邦的实力，和新中国联邦人的团结，并且以独特的方式为喜币上市助力，打响了喜币在国际市场上的知名度。
 
-虽然美国、北约盟国和乌克兰指责莫斯科在乌克兰边境附近集结军队，并且基辅说担心俄罗斯正计划进行一次攻击，但莫斯科否认有任何入侵乌克兰的计划，并指责基辅正在建立自己的部队，以攻击亲俄分离主义分子控制的领土，并且它还表示，它可以在俄罗斯领土上随意调动军队，而且它也不构成对外的威胁。
+参考链接：
 
-**新闻来源**
+1. [12月4号 Hcoin To The Moon 打榜记录（一）](https://gettr.com/post/pipfkj9cef)
+2. [12月4号 Hcoin To The Moon 打榜记录（二）](https://gettr.com/post/piqo7g77d5)
+3. [12月4号 Hcoin To The Moon 打榜记录（三）](https://gettr.com/post/piqeviff3a)
+4. [12月4号 Hcoin To The Moon 打榜记录（四）](https://gettr.com/post/piqwrn4802)
+5. [12月4号 Hcoin To The Moon 打榜记录（五）](https://gettr.com/post/piq5jrf7c6)
+6. [HCoin To the Moon iTunes排行榜最新更新](https://gnews.org/zh-hans/1720300/)
 
-[US Intelligence Finds Russia Planning Ukraine Offensive](https://www.newsmax.com/world/globaltalk/united-states-russia-ukraine/2021/12/04/id/1047316/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
+
+总编：正义的小新
+编辑：Ivy001
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 

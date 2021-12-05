@@ -2,54 +2,97 @@
 ---
 
 
-## 消费者研究组织对贝莱德将养老基金投资中共国提出警告
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1722228/)
+## 美国对数字货币的监管，让喜联储成为国际数字货币运行标准的制定者
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1722408/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/9a7eea5f7a49455199ae321c56134810-4.jpg)图片来源：大纪元英文版
-来自《大纪元时报》网站12月4日的报道，美国历史最悠久的消费者权益保护组织“消费者研究”(Consumers’Research)于12月2日向10名美国州长发送了一封信，警告他们所在州的养老基金过度依赖于贝莱德（美国的投资管理公司）与中共国的紧密关系。
+[https://gtv.org/video/id=61aca0a487fa7e74c92b95c8](https://gtv.org/video/id=61aca0a487fa7e74c92b95c8)
 
-据《福布斯》报道，首席执行官拉里·芬克(Larry Fink)领导下的贝莱德是首家在中共国3.5万亿美元共同基金行业获得运营许可的外资公司。
+**郭文贵
+Miles Guo**
 
-消费者研究组织执行董事威廉·希尔德(William Hild)向华盛顿州、佛罗里达州、纽约州、内华达州、南卡罗来纳州、俄克拉荷马州、宾夕法尼亚州、蒙大拿州、内布拉斯加州和西弗吉尼亚州——投资于贝莱德最多的十个州的州长发出了警告。
+就是两弊两利，机会在哪里呢，我告诉大家
+There are two disadvantages and two advantages, where is the opportunity? I will tell everyone
 
-华盛顿州投资的资金最多，其国家养老基金中有130亿美元投资于贝莱德。
+它就逐渐成为世界上接受的比法币还牛叉的
+It has gradually become the world’s more accepted currency than fiat currency
 
-希尔德说，这封信是在2021年提交给美国国会的报告中的调查结果之后发出的，目的是为了“让美国消费者意识到贝莱德正在拿他们的钱押注中共国”。
+就是真的是现代化的数字化货币，接下来一定要记住我的话
+It’s really a modern digital currency, and then you must remember my words
 
-“通过这样做，他们正在将美国的安全以及来自美国投资者的数十亿美元置于危险之中。”
+喜联储之前就未来它的H-Pay, 还有一个就是它一定有主权国家认可
+Himalaya Reserve will launch H-Pay in the future, and another one is that it must be recognized by sovereign states
 
-希尔德说：“我们看到的是，虽然贝莱德在美国是美德的象征，但他们正在用美国的养老金来帮助我们的对手。”
+这不是一个主权国家认可了，全世界都要认可了，那大了去了
+this is not only recognized by a sovereign country, the whole world will be recognize it, and that’s huge
 
-“贝莱德对中共国市场毫不掩饰的热情，与人们对中共国在世界上日益上升的地位、其独裁治理模式及其要取代美国成为世界超级大国的野心的担忧背道而驰。”
+更重要的事情，它会增加流通，人家政府都同意了
+More importantly, it will increase circulation, and the government has agreed to it
 
-芬克与中共政权关系密切，并被中国共产党评为“可信赖的伙伴”，自21世纪初以来一直是中共国的顶级外国经济顾问之一。
+它肯定大家都流通，这个流通以后是什么概念呢 战友们
+It must be circulated by everyone, what will happen after circulation, comrades-in-arms？
 
-据《华尔街日报》报道，芬克在2020年3月致股东的一封信中表示，他继续“坚信，从长远来看，中共国将成为贝莱德最大的机遇之一，无论是对资产管理公司还是投资者而言都是如此”。
+你们一定要做好HPay的这个准备，那是天价的钱
+You must be prepared for H-Pay, it will be huge amount of money
 
-希尔德指责芬克“选择中国而不是美国”，这样做违背了他自己股东的利益和他自己国家的安全。
+那是每个人的印钞机，就刚才我说的这个数字银行和两个数字银行
+that’s everyone’s money printing machine, the digital bank and the two digital banks that I just mentioned
 
-他补充说：“我们不能让像拉里·芬克(Larry Fink)这样的高管在讨好世界领先的侵犯人权者之一的同时尝试并告诉美国人如何生活。”
+你们不知道这（事）有多大，刚才有战友懂的给我发个信息
+You don’t know how big this is, just now a comrade-in-arms sent me a message
 
-简评：
+（说）七哥任何你说的一件事情都超过币安
+it said Miles, anything you just said is better than Binance
 
-中共国能加入世贸，与世界各国进行广泛的经济往来，实现经济飞速发展，离不开欧美国家，尤其是美国的支持。西方国家的利益集团想要从中共国的独裁统治模式中获利，却又不想受其伤害，想法有点儿太美好。
+我们的第一个国家的主权数字银行，那是100%的
+our first country’s sovereign digital bank, that’s 100% holding
 
-独裁的中共政权利用本国廉价劳动力来为全世界制造廉价商品，这种侵犯人权的经济发展模式不是一朝一夕，西方国家也不是近日才意识到这一点。如今，这种畸形的经济发展模式不能继续下去，甚至会因为巨大的债务问题而重创西方经济，可能使得西方投资者血本无归，这时候，西方国家利益集团才考虑到所谓的侵犯人权和国家安全，似乎有点儿为时已晚。它们现在要做的不仅仅是要考虑如何减损自己的投资损失，更应该检讨的是这样榨取它国劳动人民的血汗来造富自己，是否是一种人道的行为。
+第二个是87%，所以让战友们谁进去，比如说现在Eglise跟飞飞搞了个基金
+the second one is 87% holding, so which comrades-in-arms will allow to join in, for example, now Eglise has a fund with Feifei
 
-新闻链接：
+你要进来以后，就是你拿到1%你未来这个价值（有）多大呢
+If you want to join in, even you only get 1% share, how much value will it be in the future?
 
-[Consumers’ Research Warns US Governors About BlackRock’s Retirement Fund Investments in China](https://m.theepochtimes.com/consumers-research-warns-us-governors-about-blackrocks-retirement-fund-investments-in-china_4137108.html)
+你是个通道，你就是数字银行的SWIFT, 全世界一共几个数字银行，你告诉我
+Digital banking is a money channel, that is the SWIFT of the digital bank, you tell me how many digital banks in the world?
 
-* * *
+美国政府和世界这个监管是对咱喜币100%的一个天意
+The strict regulation of digital coins by the U.S. government and the world is a Godsend for H-Coin
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+早一年也不行，晚一年也不行，就在咱上来的（时候）就开始了
+It doesn’t work a year earlier or a year later, it started when we are in the market
 
+喜联储、喜币、喜美元是法币和数字货币的完美的结合
+Himalaya Federal Reserve, H-Coin, and H-Dollar are the perfect combination of fiat currency and digital currency
 
-编辑：【英国伦敦喜庄园编辑部】
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+加上HPay（和）未来的喜贷款，不但如此
+plus H-Pay and future H-loans, not only that
 
+这次美国的监管政策对咱更重要的一个利好在哪里
+What is the more important benefit of the U.S. regulatory policy for us this time?
+
+我们可能会成为参加国际上数字货币运行的定制的标准
+We may become a customized standard for participating in the international digital currency operations
+
+也就是世界新金融系统（标准）制定的最重要的参与影响者
+that means, the most important participant in the development of the world’s new financial system standard
+
+Date:12/04/2021
+原视频标题: 美国对数字货币的监管，让喜联储成为国际数字货币运行标准的制定者
+The U.S. regulation of digital currency has made the Himalaya Federal Reserve become the operating standards maker of international digital currency
+原视频日期：2021/12/01
+原视频链接[https://gettr.com/post/pimpye3e05](https://gettr.com/post/pimpye3e05)
+任务编号：3100
+视频时间段 : 0:00-2:16
+中听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

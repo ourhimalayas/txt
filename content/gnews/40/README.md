@@ -2,31 +2,38 @@
 ---
 
 
-## 2021/12/05 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1721997/)
+## 俄罗斯集结17.5万大军压境乌克兰
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1722102/)
 
-1. 12月3日，辽宁丹东一居民用燃气自杀引发爆炸，已致1死2伤。
-2. 12月2日，河北石家庄。一轿车凌晨多次横冲夜市，撞翻多辆小吃摊位。
-3. 12月2日，成都一楼盘降价销售，业主买房后一周亏损53万。项目方遭到业主维权。
-4. 国内经济极度萧条，深圳夜市排档一条街冷冷清清，只有商家没有顾客，日子都很难过。
-5. 12月3日，重庆一高楼起火，浓烟滚滚。
-6. 12月3日，广东揭西。一废品站突发火灾浓烟滚滚，方圆几公里可见！
-7. 陕西小伙手机卡突然被停用，服务终止，扣费不断。客服：来北京才能解决。
-8. 家长越来越难当了。家长被学校要求接孩子前必须背诵中共党中央宣传的24字社会主义核心价值观。
-9. 12月1日，河南安阳。女子下班回家发现狗狗正在惬意的晒太阳，原本以为自己上班累的跟条狗一样，“回到家发现原来还不如一条狗” – 墙内年轻人的普遍感受。
-10. 河南南阳，3村民举报企业污染被判“敲诈”，获有期徒刑3年，缓刑3年。
-11. 2021年6月21日，经法院重审认定3人的行为不构成犯罪。3人申请国家赔偿5348万元被驳回。
+作者：纽约香草山农场 文真
 
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-* * *
+12月3日，美国媒体声称获得非保密性美国情报文件显示，俄罗斯在与乌克兰边境附近集结17.5万名士兵，正在为发起一次 “多线进攻”的入侵计划作准备。该报道证实了郭文贵先生两次在直播中的爆料，中共与俄罗斯合谋，计划同时进攻台湾和乌克兰。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-05-at-9.12.15-PM.png)
+包括了卫星图片的美国情报文件显示，俄罗斯军队在四个地方集结，调动涉及100个营级战术小组，约有17.5万人，其中，50个战术小组已经部署，还有新运抵的坦克和大炮。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+一位匿名官员说，俄罗斯计划在2022年初对乌克兰发动军事进攻，其集结部队的规模是去年春天，俄罗斯在乌克兰边境附近举行的快速军事演习的两倍。
 
+此前几天，美国务卿布林肯曾透露，有证据表明，俄罗斯制定了针对乌克兰采取重大侵略性行动的计划，布林肯警告俄罗斯，美国会实施新的制裁。周五，拜登政府表示正在准备严厉的措施，以应对任何可能的俄罗斯军事进攻。目前，有消息称拜登-普京的紧急线上峰会正在进行中。
 
-编辑：【英国伦敦喜庄园编辑部】
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+参考链接：[Russia Preparing 175K Troops For Ukraine Offensive, US Intelligence Now Claims](https://www.zerohedge.com/geopolitical/russia-preparing-175k-troops-ukraine-offensive-us-intelligence-now-claims)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
+
+总编：文特
+编辑：Jack Li文阳
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

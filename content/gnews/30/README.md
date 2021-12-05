@@ -2,54 +2,93 @@
 ---
 
 
-## COVID-19的新变异病毒与免疫逃避
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1722246/)
+## 在疫苗灾难翻转之前 想尽一切办法活下去
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1722452/)
 
-撰稿/翻译：Jenny
-![](https://assets.gnews.org/wp-content/uploads/2021/12/IMG_2264.jpg)截图自opindia网站
-**COVID-19病毒 omicron 变体？学名 B.1.1.529 变体。**
+[https://gtv.org/video/id=61aca14487fa7e74c92b95fd](https://gtv.org/video/id=61aca14487fa7e74c92b95fd)
 
-**世界卫生组织于2021年11月26日，周五将这个新的 COVID-19 变体归类为高度传播的变体和值得关注的病毒，并将其命名为“Omicron”。一位科学家甚至将这种变体描述为迄今为止最糟糕的变体之一。**
+**郭文贵
+Miles Guo**
 
-**该变种最初是在博茨瓦纳发现的，那里有四例 B.1.1.529 变种，这些变种都是在完全接种疫苗的人群中发现的。 后来在香港的南非游客中也发现了它。**
+我很乐观的是一两个月，我认为疫苗灾难一定会停
+I am very optimistic for one or two months, I think the vaccine disaster will definitely stop
 
-** 据美联社报道，比利时成为第一个宣布 COVID-19 变种病例的欧盟国家。以色列一直是疫苗推出的基准，11月26日他们也宣布发现了这个新变种的案例。**
+咱们就在4周前，美国法官是否要裁定这周不准强制医生打疫苗的事情上
+Just at 4 weeks ago, whether the American judge was going to rule that doctors were not allowed to do vaccine mandate this week
 
-**通过基因组测序数据发现，Omicron（B.1.1.529）存在“不同寻常的突变群”，共有50个突变，仅刺突蛋白上就有32个突变。该变异株的突变位点比当前在全球占主导地位的Delta变异株的突变位点多一倍，在 ACE2 受体中有 10 个突变，这有助于它创建一个感染人类的​​切入点。 相比之下，根据《纽约时报》，beta 变体有三个突变。专家表示，该变体类似于冠状病毒的 lambda 和 beta 变体。**
+当时是所有的反馈90%概率是不可能
+At that time, 90% probability of all feedback is impossible
 
-**澳洲医疗总监凯利（Paul Kelly）说，他一直在与南非的卫生专家交谈，这些专家认为Omicron变种毒株的传染性高，并正在取代Delta毒株成为南非流传最广的毒株，南非一些地区的住院率虽然增加，但并不像前几轮疫情那么严重。**
+但是就接着三天检察官、联邦法官全部颁发出来
+But in the next three days, prosecutors and federal judges all issued bans
 
-**什么是免疫逃避？**
+这对今天的美国来讲情势已经天覆地转了，包括消防员、警察拒绝
+For today’s America, the situation has turned upside down, including firefighters and policemen refused vaccine mandate
 
-**首先，我们知道病毒是靠复制的方式繁衍后代，但并非总能完全准确地复制，会出现一些偏差，这发生病毒突变。**
+你看看世界上谁最勇敢，你看哪个国家最强大，美国人
+You look at who is the bravest people in the world, which country is the strongest, is the Americans
 
-**“免疫逃逸”简单地理解就是病原体想方设法给自己“整容”，逃避人体免疫系统的攻击。采用的手段就是经常性、持续性的发生突变，，以躲过人体内已有的免疫抗体的攻击；或者藏进细胞里“休眠”，从而躲过细胞免疫或疫苗免疫抗体的攻击。**
+到目前为止在全世界最勇敢的，行动最多还是美国，包括法律上
+Until now the bravest and most action in the world is the United States, including in the area of law
 
-**这也和我们已知的肿瘤免疫逃逸类似，就是肿瘤细胞可以凭借多种方式逃避免疫系统的监控、攻击而继续分裂生长。**
+然后你看这个新兴强大之国澳大利亚，最极端的、最混蛋的
+Then you look at this newly powerful country Australia, the most extreme and the most asshole country
 
-**美国国立卫生研究院（NIH）作为美国卫生与公众服务部的一部分，是国家的医学研究机构。2021年6月8日，布莱恩·多克特罗（Brian Doctrow）博士在NIH官网发表题为《COVID-19变异病毒如何逃避免疫反应》的文章。**
+但是行动力老百姓是最强的，很可悲啊
+But Laobaixing there are the strongest in mobility which is very sad
 
-**我们都知道SARS-CoV-2是导致COVID-19疫情的病毒，它使用一种叫做刺突蛋白的蛋白质来识别和进入宿主细胞。最近的SARS-CoV-2变异病毒在刺突蛋白上一个称为受体结合位点（Receptor-Binding Site 简称RBS）的关键位点上含有变化或突变。**
+德国这个国家是个极端的民族，极端的国家
+Germany is an extreme nation, an extreme country
 
-**其中一些突变使针对早期病毒株的抗体不再那么有效。这使得这些变体能够部分地逃避疫苗接种或先前感染后产生的免疫反应。人们担忧新的变体可能使现有的疫苗失效或降低有效率，从而使疫情延长。**
+不是最好的东西生产出来，就是极端的灾难
+Either the best thing is produced, or it’s an extreme disaster
 
-**像SARS-CoV-2尖峰的蛋白质由称为氨基酸的长链构成，折叠成特定形状。病毒基因组中的一个突变可能导致一个氨基酸被不同类型的氨基酸所取代。这反过来可以改变蛋白质的结构和功能。在南非和巴西首次发现的变体在RBS的三个位置有共同的突变：417、484和501。**
+历史一战二战到现在都是，包括跟共产党的关系
+from the history of World War I and World War II up to now, including the relationship with the Communist Party
 
-**目前的新冠核酸检测试剂中的引物探针是对包括国际已知的变异株Alpha（B.1.1.7）、Beta（B.1.351）、Gamma（P.1）、Delta (B.1.617.2）、Lambda（C.37）、Kappa（B.1.617.1）、Eta（B.1525）、Lota（B.1526）、Mu（B.1.621）、Zeta （P.2）、Omicron（B.1.1.529）等携带的突变位点的核对，从而保证新冠病毒核酸检测试剂的准确性和灵敏性。**
+现在德国在走向另外一个极端，德国的政客之流氓你无法想象
+Now Germany is going to the other extreme, you can’t imagine the gangsters of German politicians
 
-**研究人员调查了这些突变阻止抗体结合和中和的原因。他们分析了与SARS-CoV-2尖峰蛋白结合的50多种人类抗体的分子结构。两个主要类别的抗体在与受体结合位点（RBS）结合时几乎总是与417或484位的氨基酸相互作用。改变任何一个氨基酸都会破坏这些相互作用并干扰抗体结合。**
+我们这个公关公司最不想接的活儿，就是公关德国
+The least job that our PR company wants to take is doing PR in Germany
 
-**“威尔逊说：”这项工作为COVID-19疫苗或原始大流行菌株的自然感染所激发的抗体通常对这些令人担忧的变体无效提供了结构性解释。**
+再一个就是意大利，说意大利人就不可信，撒谎，他说一帮骗子
+The other one is Italy, saying that Italians are untrustworthy, they lie and he said that Italians are a bunch of scammers
 
-**研究人员还测试了与受体结合位点RBS之外的刺突蛋白部分结合的抗体。这些抗体仍然能够有效地结合并中和病毒，即使在存在感兴趣的突变的情况下。值得注意的是，这些抗体对许多相关的冠状病毒都有效。**
+再一个就是德国人，他说就是一帮完全自私的、傲慢的、愚蠢的家伙
+The other one is the German, he said that they are a bunch of completely selfish, arrogant, stupid guys
 
-[资料链接 1](https://www.deseret.com/platform/amp/2021/11/26/22803219/b11529-covid-variant-what-to-know-travel-bans-mutations-effectiveness-vaccines)
+你看到了，你看，新上任的总统就你看明白了总理
+You have seen it, look at that new prime minister
 
-[资料链接 2](https://www.nih.gov/news-events/nih-research-matters/how-covid-19-variants-evade-immune-response)
+就这个样，是吧？这都是好朋友，但是我认为你一定要相信
+That’s it, right? These are all good friends, but I think you must believe
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-2.jpg)
+现在跟我们站在一起的不是我们，它是全人类上有智慧的、有能力的、有行动力的人的共同需要
+It’s not just ourselves, it is the common need of all mankind who are wise, capable and actionable standing with us now
 
+我相信很快会逆转的，但在这之前你得想办法活下去
+I believe it will be reversed soon, but before that you have to find a way to survive
+
+* * *
+
+Date:12/05/2021
+原视频标题: 在疫苗灾难翻转之前 想尽一切办法活下去
+Do everything possible to survive before the vaccine disaster overturn
+原视频日期：2021/12/03
+原视频链接[https://gettr.com/post/pip15q5d9d](https://gettr.com/post/pip15q5d9d)
+任务编号：3110
+视频时间段 : 0:00-1:51
+中听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

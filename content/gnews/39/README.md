@@ -2,33 +2,31 @@
 ---
 
 
-## “HCoin To the Moon” 获多项iTunes排行榜第一
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1722101/)
+## 美英加日等国拒绝签署联大冬奥会停战协议
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1722103/)
 
-作者：纽约香草山农场 文真
+作者：纽约香草山文艺部 – 宁文静
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-歌曲 “HCoin To the Moon” 在iTunes排行榜已经获得多项第一。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-05-at-9.09.46-PM.png)
-截至12月4日，“HCoin To the Moon” 在香港，新加坡，老挝，澳门，柬埔寨，蒙古iTunes 总榜排名第一；在香港，新加坡，美国，阿联酋，台湾，新西兰，马来西亚，波兰，加拿大，西班牙，越南，爱尔兰，澳大利亚，匈牙利，iTunes 摇滚榜单排名第一；同时，在香港，新加坡，台湾，马来西亚，新西兰，匈牙利，芬兰的iTunes 嘻哈榜单排名第一。
 
-“音乐灭共” 再次向世界展示了新中国联邦的实力，和新中国联邦人的团结，并且以独特的方式为喜币上市助力，打响了喜币在国际市场上的知名度。
+
+12月2日，第76届联合国大会通过了北京冬奥会奥林匹克休战决议。美国、英国、澳大利亚、加拿大、印度、日本等国家拒绝在决议上签字。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-05-at-9.13.13-PM.png)
+除了朝鲜和以色列按惯例不参与之外，在联合国193个成员国中，有包括美、英、澳、加等18个国家没有签署该协议。据悉，不愿签署的原因是“不满中共国在人权方面的问题”。另有消息人士透露，美国政府最早可能会在下周宣布对北京冬奥会进行某种形式的外交抵制；而澳大利亚总理莫里森3号在回答记者提问时称“正在权衡”类似举措。
+
+“奥林匹克休战”是奥委会根据古希腊神圣休战传统而发起的一项和平运动，1993年在联合国大会上通过休战决议，此后。由夏冬季奥运会主办国向联大提交。此次中共国遭遇越来越强烈的外交或全面抵制，在冬季奥运会的历史上尚属首次。
 
 参考链接：
 
-1. [12月4号 Hcoin To The Moon 打榜记录（一）](https://gettr.com/post/pipfkj9cef)
-2. [12月4号 Hcoin To The Moon 打榜记录（二）](https://gettr.com/post/piqo7g77d5)
-3. [12月4号 Hcoin To The Moon 打榜记录（三）](https://gettr.com/post/piqeviff3a)
-4. [12月4号 Hcoin To The Moon 打榜记录（四）](https://gettr.com/post/piqwrn4802)
-5. [12月4号 Hcoin To The Moon 打榜记录（五）](https://gettr.com/post/piq5jrf7c6)
-6. [HCoin To the Moon iTunes排行榜最新更新](https://gnews.org/zh-hans/1720300/)
+1. [联大通过北京冬奥会休战决议，美澳印日等不签](https://m.sohu.com/a/505420607_115479?scm=1007.81.295001.0.0&amp;spm=smwp.home.fd-headline.4.1638650925994VSHGJ1g)
+2. [联大通过北京冬奥会休战决议美澳印日等不签](https://www.guancha.cn/internation/2021_12_04_617229.shtml)
+3. [抗議中國人權劣跡 20國拒簽奧運休戰協議](https://www.cna.com.tw/news/firstnews/202112030386.aspx)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
 
-总编：正义的小新
-编辑：Ivy001
+编辑/总编：正义的小新 
 校正/发稿：我不在这里
 
 **更多资讯，更多关注**

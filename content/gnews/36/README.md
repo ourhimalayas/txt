@@ -2,23 +2,25 @@
 ---
 
 
-## 美国防部长称：满怀信心和决心迎接中共国的军事挑战
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1722108/)
+## 郭先生新歌登陆iTunes榜单 多个国家排名第一
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1722149/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月4日，在刚刚结束的2021 年里根国防论坛上，美国防部长劳埃德·奥斯丁发表了主题演讲称，在艰巨的局势中，美国将用强大的军事优势和决心面临中共国的挑战。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-05-at-9.14.42-PM.png)
-在谈到中共国的军事竞争等问题时，奥斯丁说，美国一直持续在为对抗中共国军事力量做准备，除了无人机、隐形战斗机等常规武器之外，还在新型武器系统的研发上投入了更多的资金，以增强美国的远程打击能力。
+作者：银河勇气星 – 骄子
+![This image has an empty alt attribute; its file name is 1-28.png](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
+摇滚硬汉郭文贵先生的新歌Hcoin to the moon，自12月1日开始上架iTunes。歌曲是战友唐平女士和威廉王先生专门为喜币创作的，首播是在喜币上市11月1日当天，随后便开始在iTunes准备打榜。
 
-奥斯丁强调，美国将继续在亚太地区发挥稳定作用。美国拥有独裁统治无法比拟的优势，即自由企业、自由思想和自由人民的结合。奥斯丁指出，美国不寻求与中共国对抗或冲突，但从不畏惧竞争，将用满怀的信心和决心迎接来自中共国的军事挑战。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/5-4.jpg)
 
-参考链接：[We seek neither confrontation nor conflict \[with China\]](https://twitter.com/deptofdefense/status/1467229729497358340?s=21)
+共产党为了阻止打榜，花掉了上亿美元，但依然未能阻挡其一上榜便风靡全球的事实。
+
+歌曲有两个版本，一个是卡拉OK版，一个是正式版。正式版稍晚一天上架iTunes。截至12月3日大直播时，两首歌已经在香港、新加坡、新西兰、老挝、匈牙利、澳门、马耳他、柬埔寨、蒙古、阿联酋等国家的热门歌曲排行榜中位列第一名，同时在美国、澳大利亚、加拿大、西班牙、爱尔兰等国家的摇滚榜单排名第一。
+
+参考链接：
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
 
-编辑/总编：正义的小新 
-校正/发稿：我不在这里
+总编辑：飞虹
+校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -26,9 +28,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
