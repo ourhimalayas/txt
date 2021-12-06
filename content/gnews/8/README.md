@@ -2,25 +2,25 @@
 ---
 
 
-## 巴西两名婴儿误接种新冠疫苗导致高烧住院
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1725495/)
+## 疑似俄罗斯为入侵乌克兰而借由代理人制造事端
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1725557/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-990x564-7.jpg)图片来源：sputniknews.cn
-据俄罗斯卫星通讯社布宜诺斯艾利斯12月6日报道，巴西一名两个月大的女婴和一名四个月大的男婴被错误接种了一剂辉瑞病毒疫苗后，高烧不退，女婴开始呕吐，已经紧急入院治疗。他们将在医院度过一周，每48小时验血一次，此外还要做心电图和超声心动图。
+#### 撰稿：彩虹
 
-母亲把孩子带到医院是为了接种白喉、破伤风、百日咳和乙型肝炎的联合疫苗，结果被接种了疫苗。这是严重的渎职。几个月大的婴儿，生命力还很弱，根本没有免疫力，很难预料这种实验性的疫苗会对这么小的婴儿造成什么样的伤害。仅仅把护士停职是不够的，应该追究护士的责任，更要追究研制并推广毒疫苗的幕后操纵者的责任。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-10.jpg)图片来源：时代新闻
+12月5日，《国会山报》发文，引述《路透社》的报道，乌克兰边防军发言人否认了来自白俄罗斯的指控其军机入境白俄罗斯。
 
-新闻参考链接：[媒体：巴西两名婴儿误接种新冠疫苗致高烧住院](https://sputniknews.cn/society/202112061034915710/)
+报道说，白俄罗斯称周六时，乌克兰一架军用直升机飞入其境内约0.6英里。对此，乌克兰边防军发言人说：“也许有人犯了错误，为了操纵目的而散步无端指责”。
 
-* * *
+周日同一天，白俄罗斯国防部就乌克兰飞机涉嫌侵犯白俄罗斯领空一事传唤了乌克兰的武官。在该国防部向乌克兰官员递交抗议照会后发布的声明中说：“武官被告知，乌克兰方面正在避免通过对话来解决争端……这非常令人担忧”。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+根据这几天的公开报道，俄罗斯正通过代理人和媒体机构进行大量的宣传，意欲为增兵乌克兰边境军力达到17万5千人，以便入侵乌克兰制造事端和借口，此次白俄罗斯的行为，疑似代表俄罗斯进行相关操纵。
 
+**新闻来源**
 
-编辑：【英国伦敦喜庄园编辑部】
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+[**Ukraine rejects claims that it violated Belarus air space**](https://thehill.com/policy/international/584420-ukraine-rejects-claims-that-it-violated-belarus-air-space)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
