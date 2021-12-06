@@ -2,42 +2,30 @@
 ---
 
 
-## 躺平币让你第一天就能买面包买油能吃饭有法币全部功能
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1724141/)
+## “口炮”中国又现“红色键盘侠”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1724611/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/bcaa4228faafa314000bee2b4a516b10_副本.jpg)
-据[2021年12月05日 文贵大直播：全球数字货币市场改观；亚洲政治军事形势大变；恒大地产与美金融市场；喜币近况与未来的意义](https://gtv.org/video/id=61acb7bebbd75f62e52f7ce4)时间点2：20：12——
+撰稿：东京樱花团/Ob
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-67.png)
+近日山东济南市举办“2021年度‘红色键盘侠’颁奖仪式”，将一些“活跃的网络人士”评为“红色键盘侠”，对此，民间不禁讽刺官方无视“键盘侠”一词本身所带的贬义，以至调侃官方“为五毛正名？”
 
-**郭文贵先生：**关键那我怎么兑现呢？第一天我就告诉，你躺平币就会让你第一天就可以买面包、买油，我告诉所有的工程队的人，第一天你就要能买面包、买油，我能吃饭，我能有油加。当然能买G-Fashion了，当然能买G-Clubs了，是吧？欸，这个躺平币它不是空间币的、它不是虚幻币，它是真正的可兑换的，就是法币所有的功能它都有，马上可以用。
+网易自媒体平台“网易号”的一则消息显示，近日济南市市中区举办“2021年度‘红色键盘侠’颁奖仪式”，暨网络人士“同心”分享会，12位“网络人士”代表被授予“红色键盘侠”称号。
 
-它有级别的，比如说文疯而动我账上有500个币，那你买面包、买油的可能只让你使用50个币每一次，你不能一下子弄完，然后接着你再接着用，接着用，每一次，每一次用。
+山东省委统战部也在官方微信账号“山东统一战线”发布题为《来看，这里全是后浪》的文章进行宣传。文章写道，“这里还有很多优秀青年，他们，主动作为发出‘好声音’；他们，激情活跃焕发‘新风采’；他们，热心公益展现‘正能量’”、“市中区新联会网络人士分会是一支非常活跃的青年队伍，他们率全市之先，C位出道，是济南市最先成立的区级网络人士分会…。”
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2-19.jpg)
+对此，有网友不禁嘲讽说，真有后浪的话，难道不提醒领导“键盘侠”一词有问题吗？还有人质疑官方根本不懂网语，抑或强行进行网络词语“正名化”。 键盘侠（keyboard man）是一个网络词语，指部分在现实生活中胆小怕事，而在网上占据道德制高点发表“个人正义感”或“个人评论”的人群。百度百科指该词带有贬义，所指代角色的网络评论行为，往往带有强烈的情绪化、对他人感受的毫不顾忌。
 
-如水说我有500个币，那如水我这块儿多了5万个币，那你就可以用500个币一次，这种规则让大家我拿到币，就是我躺平的结果下一分钟我就有面包吃，我就有油加，类如这样，我可以买G-Fashion，你还能干啥？人活着你不就是睡觉、吃饭、驱车、加油、买点衣服穿，你还能干啥？双修费你可以跟对方商量，是吧？你愿意给那是你给的事儿，点对点的支付，这个叫躺平币。
+至于“后浪”，一般指90后、00后青年，因2020年五四青年节前夕的短视频《后浪》成为焦点。之后也因《后浪》相关宣传内容引发争议，迄今成为中国的网络迷因。有批评人士认为该片透露出的“洗脑式的”价值观令人不适，因此在评论者眼中“后浪”实则含有贬义，例如有人将之调侃为“韭浪”。
 
-（以下暂略）
+“脑残”形容当下中共大小“党官”是一个再恰当不过的词汇了。“武艺不高”却总又想着卖弄，搞点“创新”，弄个“新奇”的报告，年终总结又亮了，今年又多收了三五斗。至于真实效果，一来他不会管，二来他也没那个本事，至于遗患管他谁去想办法。于是蹩脚的项目横行，下三滥的“创新”遍地是，虽然“后果”不断涌现他们却依然乐此不疲地一代又一代地“逞能”。
 
-撰稿：喜马拉雅的肉夹馍；
+信息来源：
 
-审核：喜马拉雅的馍夹肉；
+[五毛有了中国政府新封号——红色键盘侠](https://m.secretchina.com/news/gb/2021/12/05/991436.html)
 
-校对：Maarago；
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

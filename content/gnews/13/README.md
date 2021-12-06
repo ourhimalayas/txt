@@ -2,42 +2,31 @@
 ---
 
 
-## 英国乐购因圣诞罢工行动将面临无货供应的局面
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1725586/)
+## 想让花样年还钱，3年后再说
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1726025/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/4-7.jpg)
+[图片来源](https://www.sohu.com/a/403933823_100001551)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/40154370-1-tesco-extra-slough.jpg)
+停牌中的中共国房企花样年周一表示，截至12月3日两只境内债获得展期没有出现境内公开市场违约事件，其他债权展期方案也在进行持续有序的沟通。花样年董事局主席潘军在集团微信公众号的“访谈实录 ”中预告，公司可能需要2至3年甚至更长时间去化解这次危机。
 
+潘军在访谈中透露过去两个月公司在解决资金问题方面的工作，当中导致这次暴雷的起因是海外债，规模超过40亿美元，但在两个月的时间内已经识别了95%的债权人，并与海外债权人小组的顾问正在积极沟通，对公司存量的以及在运营的项目进行了经营分析及预测，与公司顾问讨论并推出了境外债务重组框架第一版方案。
 
+“我们可能需要花一个非常长的时间来化解我们这次危机，可能是2-3年甚至更长时间。”潘军表示，相信花样年的企业不会被海外债权人申请清盘，公司要保交付，要靠一线的团队及员工团结起来才能完成。
 
-图片来源: www.zdnet.com
+花样年自11月29日起暂停股份买卖，此前公司表示其主要附属公司香港花样年投资控股集团有限公司被申请清盘呈请，内容有关据称未偿还本金1.49亿美元之贷款融资，花样年投资为担保人。
 
+深陷债务危机的中国恒大暴雷后，中国民营房企个个自危。恒大在上周五表示难以偿付后续债务后，中国监管层迅速出手，广东省政府并向恒大地产集团派出工作组。恒大股价周一急泻20%，创纪录新低；其美元债也跌势加剧，2022年3月到期美元债较上周五跌逾20%。
 
-#### 编译 ：小红帽
+消息来源:
 
-英国联合工会警告说，由于仓库和送货员因工资问题而罢工，乐购（Tesco）的客人在圣诞节期间将面临超市货架空空如也的局面。
+##### [花样年称上周两只境内债获展期 公司可能需至少2-3年化解危机](https://cn.reuters.com/article/fantasia-bondsextended-1206-mon-idCNKBS2IL0Q5?il=0)
 
-乐购四个配送中心的1000多名重型卡车司机和仓库工作人员已经投票决定从12月16日开始罢工，这使英国最大的超市不得不重新调整供应安排。
+##### **编辑：东京樱花团/喜马拉雅的微尘**
+**发布：东京樱花团/yuxingcao01**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.png)
 
-联合工会表示，在牛津郡的迪德科特、唐卡斯特和北爱尔兰的安特里姆和贝尔法斯特举行的罢工将意味着 “英国许多地区的乐购客人在圣诞节前面临空荡荡的货架”。
-
-乐购在英国最大的送货站位于西洛锡安的利文斯顿。该送货站有可能发生进一步的罢工。关于罢工行动的投票结果将在今天公布。
-
-Didcot和Doncaster的工人将罢工12天，包括12月25日之前的5天，以及从12月16日开始的48小时。这是乐购商店在线交付的关键时期。进一步的罢工计划将在圣诞节后和新年期间进行。
-
-乐购在英国有大约20个配送中心，联合工会表示罢工将影响北爱尔兰、约克郡和英格兰南部地区的货物供应。
-
-**参考新闻：**[Tesco shoppers face empty shelves over Christmas strike action (msn.com)](https://www.msn.com/en-gb/money/other/tesco-shoppers-face-empty-shelves-over-christmas-strike-action/ar-AARvpII?ocid=msedgdhp&amp;pc=U531)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

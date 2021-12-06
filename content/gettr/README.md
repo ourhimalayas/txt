@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/6/2021 2:14 PM (UTC)`
+
+6/12/2021 “Hcoin To the Moon" Hits #1 🥇on 8 Countries' iTunes Rock Charts on 4th Day of Launch 🎉🎉🎉🎉🎉🎉🎉<br/>Thank you very much to all our brothers and sisters in HongKong, UAE, Taiwan, New Zealand, Malaysia, Spain, Australia, Singapore!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1726156/<br/><br/>12月6号，Hcoin To the Moon上线第4天位列8国iTunes摇滚音乐榜首🥇！🎉🎉🎉🎉🎉🎉🎉<br/>感谢香港，阿联酋，台湾，新西兰，马来西亚，西班牙，澳大利亚，新加坡的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/><br/>
+
+---
+
 `@miles 12/6/2021 5:00 AM (UTC)`
 
 12/05/2021 Miles Guo: The CCP has turned the debt crises in the real estate into the weapons of the economic and currency unrestricted warfare targeting the West; Sunac’s debt crisis will have a much bigger impact than that of Evergrande; the CCP sent spy agents to force private entrepreneurs such as Xu Jiayin and Jack Ma to sell their overseas assets so that the CCP can take the cash<br/><br/>12/05/2021文贵直播：中共将房地产债务危机变成针对西方的经济超限战和货币超限战的武器；融创的雷比恒大还要大；中共派特务逼许家印、马云等私营企业家将海外资产变现，钱归中共<br/>
@@ -144,13 +150,6 @@ Hcoin To The Moon <br/>iTunes Ranking No. 1 🥇<br/>iTunes 打榜第一名🥇<
 
 12月4号 Hcoin To The Moon 打榜记录（三）<br/>感谢马来西亚，波兰，加拿大，西班牙，越南，爱尔兰的战友们🙏🙏🙏🙏🙏🙏🙏<br/><br/>iTunes 摇滚Rock第一名🥇：<br/>马来西亚🇲🇾<br/>波兰🇵🇱<br/>加拿大🇨🇦<br/>西班牙🇪🇸<br/>越南🇻🇳<br/>爱尔兰🇮🇪
 ![img](https://media.gettr.com/group49/getter/2021/12/04/16/6eea9a30-6f87-3148-a2b6-0ed724b01b0e/7cfbf6ca2c0951e2d0bdee0bccfbe7ad.jpg)
-
----
-
-`@miles 12/4/2021 4:42 PM (UTC)`
-
-12月4号 Hcoin To The Moon 打榜记录（二）<br/>感谢香港，新加坡，美国，阿联酋，台湾，新西兰的战友们🙏🙏🙏🙏🙏🙏🙏<br/><br/>iTunes 摇滚Rock第一名🥇：<br/>香港🇭🇰<br/>新加坡🇸🇬<br/>美国🇺🇸<br/>阿联酋🇦🇪<br/>台湾🇹🇼<br/>新西兰🇳🇿<br/>
-![img](https://media.gettr.com/group6/getter/2021/12/04/16/12681298-e3aa-a593-ae02-8e4236a0e078/80394bad32c7efcb91b8a5418701fc7f.jpg)
 
 ---
 

@@ -2,28 +2,41 @@
 ---
 
 
-## 日本同意承担更多美国驻军费用
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1723996/)
+## 躺平币让你第一天就能买面包买油能吃饭有法币全部功能
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1724141/)
 
-俄罗斯莫斯科喀秋莎农场  银河
+![](https://assets.gnews.org/wp-content/uploads/2021/12/bcaa4228faafa314000bee2b4a516b10_副本.jpg)
+据[2021年12月05日 文贵大直播：全球数字货币市场改观；亚洲政治军事形势大变；恒大地产与美金融市场；喜币近况与未来的意义](https://gtv.org/video/id=61acb7bebbd75f62e52f7ce4)时间点2：20：12——
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/12/J-1.jpg)english.kyodonews.net
-日本共同社12月5日报道，据消息人士透露，日本与美国从11月末到本月初在美国华盛顿举行了工作磋商，日本决定接受美国提出的从2022财政年度开始增加驻日美军驻留经费的要求。
+**郭文贵先生：**关键那我怎么兑现呢？第一天我就告诉，你躺平币就会让你第一天就可以买面包、买油，我告诉所有的工程队的人，第一天你就要能买面包、买油，我能吃饭，我能有油加。当然能买G-Fashion了，当然能买G-Clubs了，是吧？欸，这个躺平币它不是空间币的、它不是虚幻币，它是真正的可兑换的，就是法币所有的功能它都有，马上可以用。
 
-报道称，日本首相岸田文雄的内阁将在敲定2022年度预算案之前，与美国就此达成协议。
+它有级别的，比如说文疯而动我账上有500个币，那你买面包、买油的可能只让你使用50个币每一次，你不能一下子弄完，然后接着你再接着用，接着用，每一次，每一次用。
 
-面对中共国的军事扩张，美国加强了在印太地区的驻军，为了维系长期安全同盟，美国敦促日本作为东道国增加军费负担。由于日本财政紧张，日本试图尽量减少援助的增加。
+如水说我有500个币，那如水我这块儿多了5万个币，那你就可以用500个币一次，这种规则让大家我拿到币，就是我躺平的结果下一分钟我就有面包吃，我就有油加，类如这样，我可以买G-Fashion，你还能干啥？人活着你不就是睡觉、吃饭、驱车、加油、买点衣服穿，你还能干啥？双修费你可以跟对方商量，是吧？你愿意给那是你给的事儿，点对点的支付，这个叫躺平币。
 
-日本在会谈中要求美国减少公用事业费用的财政分摊额，同时建议美国将增加的分摊额用于自卫队和美军共同使用的设施的维护和联合演习等经费。日本政府认为如果是这种增额，将有助于强化同盟，容易获得国民理解。
+（以下暂略）
 
-日本和美国签署的费用分摊协议通常为期五年。虽然美方要求的金额未对外透露，但日本外交消息人士认为：“（日方）负担将有所增加，但大概不会是美国前川普政府要求的那种巨额负担。最后将由首相岸田文雄作出判断。”
+撰稿：喜马拉雅的肉夹馍；
 
-现阶段，驻日美军大约5.5万人。2021财年日方用于支付驻日美军基地员工工资和水电等费用支出约2017亿日圆(合17.9亿美元)。
+审核：喜马拉雅的馍夹肉；
 
-参考链接：
+校对：Maarago；
 
-[https://english.kyodonews.net/news/2021/12/809e7b850293-urgent-japan-to-shoulder-more-cost-of-hosting-us-military-forces.html](https://english.kyodonews.net/news/2021/12/809e7b850293-urgent-japan-to-shoulder-more-cost-of-hosting-us-military-forces.html)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

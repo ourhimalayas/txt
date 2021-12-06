@@ -2,39 +2,28 @@
 ---
 
 
-## 日本厚生劳动省认定心肌炎、心内膜炎为中共病毒疫苗接种后重大副作用
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1725761/)
+## 日本所有中共病毒阳性者需进行奥密克戎检测
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1726124/)
 
-作者：日本方舟农场 – Andy5
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-1.png)
-12月3日，在日本厚生劳动省专家研讨会之后，宣布将心肌炎、心内膜炎定义为接种中共病毒疫苗后重大副反应。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/FireShot-Capture-005-ワクチン接種後の「心筋炎」などは-重大な副反応-厚労省-新型コロナ-ワクチン（日本国内）-NHKニュース-www3.nhk_.or_.jp_.png)
-据厚生劳动省公布的数据显示：接种辉瑞疫苗的人群当中，10岁的年轻男性每百万人里有15.66人出现心肌炎、20岁的年轻男性有13.32人，接种莫德纳疫苗的则分别为81.79人，48.76人。而流感疫苗接种后出现包括接种部位肿胀等所有副作用在内，也只不过每百万人里有4.9例。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/FireShot-Capture-001-ワクチン接種後の「心筋炎」などは-重大な副反応-厚労省-新型コロナ-ワクチン（日本国内）-NHKニュース-www3.nhk_.or_.jp_.png)
-由此，可以看出中共病毒疫苗接种后出现心肌炎副作用的概率，远远高于流感病毒疫苗。但令人遗憾的是，对这样的数据厚生劳动省也仅是要求医疗机构报告类似事件，并将于近期通知日本国内各地的自治会。
+撰稿:东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/7-8.jpg)
+[图片来源](https://mainichi.jp/articles/20211129/k00/00m/010/037000c)
 
-报道称：厚生劳动省依旧认为疫苗利大于弊，所以暂时不会停止接种。
+由于预计奥密克戎变异株可能会广泛传播，岸田首相已经宣布，日本所有新冠病毒阳性者将接受是否携有奥密克戎变异株的检测。
 
-参考链接：
-1. [https://www.gettr.com/post/pirdya86a5](https://www.gettr.com/post/pirdya86a5) 
-2. [https://www3.nhk.or.jp/news/html/20211204/k10013374401000.html](https://www3.nhk.or.jp/news/html/20211204/k10013374401000.html) 
-3. [https://news.yahoo.co.jp/articles/60fcafa546e2303ebf3b7adbc0c2c46dcd3b5f2d](https://news.yahoo.co.jp/articles/60fcafa546e2303ebf3b7adbc0c2c46dcd3b5f2d) 
-4. [https://www.mhlw.go.jp/content/10906000/000710865.pdf](https://www.mhlw.go.jp/content/10906000/000710865.pdf)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/unknown-2.jpg)
-编辑/校对/发稿：文留
+今天在日本确认了第三例奥密克戎变异株的病例，患者是一名30多岁的男子。岸田首相在自民党党内会议上讲道，日本的所有新冠病毒确诊病例都将进行奥密克戎病毒株的检测。他还表示，他打算增加隔离用设施的数量，方便从其他国家的入境者的隔离使用。
 
-**更多资讯，更多关注**
+他强调，”我们将集中有限的医疗资源应对奥密克戎变异株，我们将继续根据感染情况采取灵活措施，保护人民的生命和健康”。
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+信息源:
 
-[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[新型コロナ全陽性者にオミクロン株の検査を実施する方針 岸田総理](https://news.yahoo.co.jp/articles/5833b9b898bba473633574dedea3def964b8708b)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.png)
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

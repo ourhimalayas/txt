@@ -2,30 +2,44 @@
 ---
 
 
-## 中概股与全球数字货币持续暴跌
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1725241/)
+## 布林肯承诺，美国确保台湾有自卫的手段
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1725479/)
 
-作者：纽约香草山农场 – 文特
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-据新中国联邦战友12月4日和5日整理的资料，全球数字货币市场正在发生巨大的变化，比特币在过去一周跌幅高达8.98% ，狗币下跌12.73%，币安下降5.51%。同时，中概股也在持续暴跌，12月3日收盘前，阿里巴巴曾跌8.59%，京东跌7.93%，拼多多跌8.67%，网易跌6.68%，百度跌13.39%。其他知名品牌也在持续暴跌。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture4-1.jpg)
-参考链接：
-1. [中概股与全球数字货币持续暴跌](https://www.gettr.com/post/piqf4wac84)
-2. [中概股与全球数字货币持续暴跌](https://www.gettr.com/post/piqfq5ddcd)
+**简评：**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+中共如果入侵台湾，将带来不可预料的灾难，美国承诺会确保台湾有自卫的手段。台湾有强大的民主和经济，是一个对世界有很多贡献的创新国家。中共一直通过武力威胁和挑衅台湾，并在国际上孤立台湾，不允许台湾与世界上其他国家和地区，以及国际社会接触。中共持续增加对台湾的压力，美国提请中共不要引发台湾危机。
 
-总编：飞虹
-编辑：文特
-校对/发稿：Hetangyuese
+YouTube视频链接：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=61ada77f87fa7e74c92bfc85)
+
+**视频字幕：**
+
+**主持人：**中共国要入侵台湾吗？
+
+**布林肯：**我认为这将是一个潜在的灾难性决定。简短的回答是，在过去40多年里，我们已经能够管理这一问题，并以一种使台湾人民取得显著进步的方式有效地管理。台湾有强大的民主、强大的经济，是一个对世界有很多贡献的创新国家，我们以一种使美国和中共国关系保持重要稳定的方式管理这一问题。
+
+以‘一个中国’政策为基础，我们继续坚持这一政策。而不幸的是，我们在过去几年看到的是，中共国试图改变这一现状，增加对台湾的压力，进行挑衅性的军事演习和行动，试图孤立台湾，不允许台湾与世界其他地区和国际社会接触。
+
+而这正是危险之处。因此，我们坚决致力于确保台湾有自卫的手段。但此时我再次希望中共国的领导人非常仔细地考虑这个问题，不要引发一场危机。我认为会对许多人产生可怕的后果，而且不符合任何人的利益，首先是中共国的利益。
+
+**主持人：**那么，你说过，如果台湾受到入侵，美国将保卫台湾。但你是否承诺派遣美国军队？
+
+**布林肯：**我们多年来一直非常清楚并一致地表明，我们致力于确保台湾有自我防卫手段，无论是在防卫物品和服务上，我们将继续兑现这一承诺。
+
+字幕：Free20200604 | 听写：云岭 |  翻译：致良知  |  PR：Roberts   | 简评/文字整理/编辑：胖丁
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
  

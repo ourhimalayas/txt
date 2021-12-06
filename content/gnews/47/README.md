@@ -2,52 +2,30 @@
 ---
 
 
-## 美海军司令呼吁在太平洋部署更多航母威慑中俄避免冲突
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1723923/)
+## 圣诞节临近美国航运停滞情况恶化
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1724058/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/120501-1.jpg)图片：来自德黑兰（法斯通訊社）
-**摘要翻译：**
+据《零对冲》作者泰勒·杜登（ TYLER DURDEN ）2021 年 12 月 4 日 报道
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image002-2.jpg)图片来自网络
+拜登总统告诉美国人，圣诞节前供应链处于“非常强劲的状态”。拜登周三在白宫发表讲话说，他的政府已与私营部门合作，以“确保商场货架上堆满货。”但新的航运数据显示，拥堵的供应链正在恶化，这可能需要数月时间才能解决。
 
-来自《国会山报》12月30日的报道，
+来自美国最繁忙的港口，加利福尼亚的洛杉矶和长滩的最新航运数据显示，有 96 艘集装箱船在海上停置，等待卸货。
 
-美国海军第七舰队司令呼吁在太平洋部署更多航空母舰，以威慑中共国和俄罗斯，防止发生军事冲突。
+货运浪潮公司（FreightWaves） 的格雷格·米勒（ Greg Miller ）将新的船舶排队系统[描述为](https://www.zerohedge.com/economics/how-california-solved-its-record-ship-pileup-it-moved-them-out-sight-over-horizon)纯光学（纯粹为了视觉效果），它减少了洛杉矶/长滩近海的船舶数量。他说，船只被放置在更远的海洋中，眼不见心不烦，以防止航拍抓拍到集装箱船拥堵停滞困境的图像。
 
-据《华尔街日报》报道，在美国结束与日本、澳大利亚、加拿大和德国为期10天的海军演习后，卡尔·托马斯(Karl Thomas)中将发表了上述评论。
+新的排队系统将货船分为几类：40 艘停泊在距港口 40 英里范围内，56 艘停泊在该范围之外。随着美国的最大的集装箱港口货船排队继续变长，拜登拯救圣诞节的奇迹似乎正在失败。
 
-该报报道，当被问及来自中共国和俄罗斯的威胁时，托马斯表示，向“可能更具侵略性和专制性的其他国家”展示统一战线很重要。 他补充说，美国和盟国应该利用联合演习来“阻止其中某些显现出新兴力量的国家的侵略，并告诉这些国家也许当下不是他们侵略的时机。”
+同样恶化的是等待时间。现在，一艘船进入这两个港口需要等 21 天或者说三周的时间，而 8 月份则为 7 天。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image004.gif)
+拜登减少货船停留时间的努力没有奏效，即使他在 10 月中旬宣布了一项新[指令](https://www.zerohedge.com/markets/port-los-angeles-prepares-247-operations-tackle-massive-cargo-backlog)，要求两港口全天候运营。我们当时在一篇题为“[这是拜登全天候港口运营承诺背后的真相](https://www.zerohedge.com/markets/heres-truth-behind-247-port-operations-pledge)”的文章中指出，此举不能挽救圣诞节。
 
-本月早些时候，美国海军研究所表示，中共正在建造美国海军舰艇模型，作为中国人民解放军开发的一个新靶场的一部分。五角大楼在其提交给国会的年度报告中称，中共国于2019年底启用了其第一艘国产航母，第二艘航母预计将于2024年投入服役。
+有更多证据表明总统的供应链正在缓和的说法是有争议的。货运浪潮公司）的克拉丽莎·霍斯 (Clarissa Hawes) 说：“我们正被码头的排长队和人员配备问题淹没。” 她说，有缺陷的预约系统，和拖运卡车司机的其他效率问题，继续困扰着这两个港口。
 
-与此同时，俄罗斯周一宣布成功测试了一枚锆石巡航导弹，据信该导弹的飞行速度是音速的五倍以上，这加剧了人们对莫斯科在其与乌克兰的边境附近集结军队的担忧。
+拜登拯救圣诞节的尝试似乎失败了。但仍有时间召集国民警卫队。至少现在，拜登政府可以将一些商场货架仍然空空如也的原因，归咎于新的中共病毒变种欧米克戎（ Omicron ）。
 
-托马斯在一年一度的年度海军演习结束时发表了上述言论，该演习于11月21日在日本海岸附近的菲律宾海开始。澳大利亚皇家海军、加拿大皇家海军、德国海军和日本海上自卫队加入了美国海军。
+原文链接：[https://www.zerohedge.com/markets/us-ship-logjam-worsens-bidens-attempt-save-christmas-fails](https://www.zerohedge.com/markets/us-ship-logjam-worsens-bidens-attempt-save-christmas-fails)
 
-据《华尔街日报》报道，托马斯说联合部队代表了“令人难以置信的力量”，并补充说“想想我们可能要如何作战，这是一片很大的水域，四艘航空母舰是一个不错的数量，但六、七或八艘会更好。”
-
-**简评：**
-
-目前就拜登政府执政以来对中政策和行动来看，如果让他决定与中共政权在太平洋地区开战，恐怕会很有难度。但是看美国及其盟国不断通过军事演习展示其在太平洋海域的军事存在，并向中俄发出明确的威慑信号，似乎美国政府内部仍然有在积极推动维护太平洋海域稳定的力量。希望这股力量能够左右拜登政府在中俄挑起冲突时做出积极反应，维护美国及其盟友的区域安全和利益，也可以让这一区域的人民免受战争之苦。
-
-新闻链接：[US Navy commander calls for more aircraft carriers in Pacific to dissuade China, Russia from conflic](https://thehill.com/policy/defense/navy/583550-us-navy-commander-calls-for-more-aircraft-carriers-in-pacific-to-dissuade)
-
-*翻译/简评：Harvey (叶知秋)*
-
-*校对：感恩*
-
-
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+翻译：JS709｜校对：Nick｜编辑&发布：断播
 
  
 
