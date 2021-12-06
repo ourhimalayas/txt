@@ -2,63 +2,204 @@
 ---
 
 
-## 恒大发出无法偿债警告后，广东省政府传唤恒大董事长
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1726854/)
+## Eglise医生讲解羟氯喹治好了战友的风湿性关节炎
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1726965/)
 
-据《路透社》2021年12月3日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-303-e1638810979116.png)2021年9月26日，位于中国广东省深圳市的中国恒大集团总部，可以看到公司的标志。
-路透社/Aly Song
-**【摘要】**
+Chris你的手指症状完全有可能是风湿性关节炎
 
-**恒大称可能没有足够的资金来偿还债务**
+Chris, it is entirely possible that your finger symptoms are rheumatoid arthritis
 
-**中国央行和监管部门介入试图安抚市场**
+因为人到一定年纪
 
-12月3日北京路透社报道：中共国广东省周五传唤了中国恒大集团（3333.HK）的董事长，此前这家房地产开发商表示 “无法保证”有足够的资金来偿还债务，而监管机构则试图安抚市场。
+Because at a certain age
 
-曾经是销量在中国最高的开发商的恒大正努力应对超过3,000亿美元的负债，加剧了人们对潜在崩溃的担忧，这可能会给中国的房地产行业和其他行业带来冲击。
+你不一定要诊断血液风湿病因检查你一定是阳性
 
-周五恒大集团在提交给香港证券交易所的文件中说，它已收到债权人要求支付约2.6亿美元。它已经延期支付11月6日到期的8250万美元的债券票据。
+you don’t have to diagnose blood rheumatoid etiology test you must be positive
 
-恒大提到：“鉴于目前的流动性状况，不能保证集团有足够的资金继续履行其财务义务。”并补充道如果不这样做，债权人可能要求加速偿还。
+因为它可以是早期
 
-这促使该恒大集团所在的广东省政府传唤其董事长许家印。
+because it can be early
 
-广东省政府在一份声明中提到应恒大集团的要求，它将向该集团公司派出一个工作组以监督风险管理，加强内部控制和维持正常运营。
+前期症状
 
-广东当局并不是周五涉足恒大问题的唯一政府实体。
+Pre-existing symptoms
 
-在晚间一系列明显协调的声明中，中国央行、银行和保险监管机构及其证券监管机构试图向市场保证，更广泛的房地产行业的任何风险都可以得到控制。
+不是很典型
 
-中国人民银行表示：“恒大的问题主要是由其自身管理不善和超速扩张造成的。”
+Not very typical
 
-中国人民银行补充道，由一家房地产公司引起的短期风险不会破坏中长期的市场筹资，再者住房销售、土地购买和融资 “在中国已经恢复正常”。
+就是说你的血液检查不一定能检查出阳性
 
-中共国银监会表示，恒大问题不会影响行业的正常运营，它将加大对保障性租赁住房的支持。它补充说，它相信国内外监管机构会公平地处理与恒大有关的问题，而中国证监会表示，对资本市场的任何影响都是 “可控的”，它将继续支持房地产开发商的资金需求。
+That is, your blood test may not always be positive
 
-恒大在其提交的文件中，恒大表示它打算积极与债权人接触，以提出一个“可行的重组计划”来处理其境外债务。
+但是你的症状已经可以说明这一点
 
-原文链接：[https://www.reuters.com/markets/rates-bonds/china-evergrande-gets-260-mln-guarantee-demand-2021-12-03](https://www.reuters.com/markets/rates-bonds/china-evergrande-gets-260-mln-guarantee-demand-2021-12-03)
+But your symptoms can already show this
 
-**【****简评****】***虽然中国人民银行和中共银监会动用一贯的谎言伎俩以图欺骗市场和大众；然而，**12**月**6**日网易新闻报道：**“**北方楼市集体沦陷！天津、济南、青岛、郑州房价下跌超**30%**。**”*
+还有另外一方面可以证明你这是风湿性关节炎的另一个原因
 
-*却打了一个响亮的耳光。恒大的倒塌既是中共国房地产泡沫经济的崩溃，也是中共国金融系统和整体经济崩塌的标注。中共离牠们的死亡又迈进了一步。*
+There is another aspect that can prove that you have rheumatoid arthritis
 
+就是倒推法
 
+That is, the backward projection method
 
-翻译：洛杉矶盘古农场–KY
+就是你的治疗
 
-校对：洛杉矶盘古农场–Mike Li
+That is, your treatment
 
-评论：洛杉矶盘古农场–心照
+你这个治疗药物
 
-编辑：洛杉矶盘古农场–心照
+Your treatment medication
 
+因为伊维菌素和硫酸羟氯喹它们都可以治疗类风湿性关节炎
 
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
+Because ivermectin and hydroxychloroquine sulfate both treat rheumatoid arthritis
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+和红斑性狼疮这样的免疫抑制性疾病
+
+and immunosuppressive diseases like lupus erythematosus
+
+它在WHO的使用药物的清单适应症上 它们有这个适应症的
+
+They are on the WHO list of indications for the use of drugs, and they have such indications
+
+也就是说它们的确是有免疫调节作用
+
+That means they do have immunomodulatory effects
+
+这就是为什么这些医生能够想到用这些药物来治疗新冠病毒
+
+That’s why these doctors thought of using these drugs to treat neocoronavirus.
+
+也是因为它们有这方面的适应症 本身在那里的
+
+It’s also because they have an indication for it, and it’s there in and of itself.
+
+只不过用于抗病毒 这是完全新的用途
+
+It’s just for antiviral, which is a completely new use.
+
+但是免疫抑制 本身就有这个适应症的
+
+But immunosuppression, itself, has this indication
+
+所以这样倒推的话
+
+So if you look at it backwards.
+
+你小指关节的疼痛 它是早期风湿性关节炎的症状
+
+The pain in your pinky joint is a symptom of early rheumatoid arthritis.
+
+因为你这个药物治疗 正确的药物就是解决了你的症状
+
+Because your medication is the right medication to address your symptoms
+
+从另一个方面证明 你的诊断是正确的
+
+On the other hand, it proves that your diagnosis is correct.
+
+尽管你的医生没有给你这个诊断
+
+Even though your doctor didn’t give you this diagnosis
+
+你自己做了诊断
+
+You made the diagnosis yourself
+
+对 他们医生就是一直恐吓我说
+
+Yeah, their doctors just kept threatening me that
+
+你这样用羟氯喹 你会失明的
+
+You’ll go blind if you take hydroxychloroquine like this.
+
+还有对你的肾脏会有很大的影响
+
+And that it would have a significant effect on your kidneys.
+
+这又是CDC危言耸听
+
+That’s another CDC scaremongering.
+
+这医生的信息哪里来的
+
+Where did these doctors get their information?
+
+就是这些主流媒体的 所谓一个新闻报道 就把这个药给打死了
+
+It’s the mainstream media that killed this drug with one so-called news report
+
+伊维菌素过去30年 硫酸羟氯喹过去40在WHO的基本药物使用清单上
+
+Ivermectin has been on the WHO list of essential drugs for the past 30 years and hydroxychloroquine sulfate for the past 40
+
+是最最广泛使用的药物
+
+It is the most widely used drug
+
+因为寄生虫的适应症 所以世界各个角落
+
+Because of the parasitic indications, they are used in every corner of the world.
+
+这些贫穷国家都在用这些药物
+
+These poor countries are using these drugs.
+
+默克是伊维菌素的生产厂家 最早以前
+
+Merck is the manufacturer of ivermectin, and in the early days
+
+默克还给WHO捐过40亿盒的伊维菌素
+
+Merck donated 4 billion boxes of ivermectin to the WHO.
+
+是捐献 发放到非洲这些 高寄生虫发病国家
+
+It was a donation that was distributed to countries in Africa that had a high incidence of parasites
+
+所以那么多年 30-40年用下来
+
+So over the years, 30-40 years of use.
+
+伊维菌素到目前记录在案的严重副反应只有28例
+
+Ivermectin has only 28 cases of serious side effects recorded so far
+
+只有28例到目前为止
+
+Only 28 cases so far
+
+而且最严重的一例就是 急性肝炎
+
+And the most serious case is acute hepatitis
+
+然后 停药了以后 排毒 这个病人后来也挺好的
+
+Then, after stopping the drug, the patient was detoxified and did well afterwards.
+
+没有一例死亡的
+
+Not a single case of death
+
+28例所谓严重副反应是皮肤反应 胃肠道出血
+
+The 28 so-called serious side effects were skin reactions and gastrointestinal bleeding
+
+最后停药后都好转了
+
+Finally, they all got better after stopping the drug
+
+所以说这个药物致失明 心衰 那真的是夸大其词了
+
+So to say that this drug causes blindness and heart failure is really an exaggeration
+
+就是不想让我们用这个药 明显
+
+They just don’t want us to use this drug, obviously
 
  
 

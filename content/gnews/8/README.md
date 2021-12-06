@@ -2,50 +2,118 @@
 ---
 
 
-## SEC正在调查川普的新社交媒体公司
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1727294/)
+## H-pay的发展窗口期
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1727490/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+[https://gtv.org/video/id=61ae37e087fa7e74c92c460c](https://gtv.org/video/id=61ae37e087fa7e74c92c460c)
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/12/T-1.jpg)en.news7todays.com
-MSN 12月6日报道了此消息，题目是“川普的新社交媒体公司正在接受美国证券交易委员会（SEC）的调查”。虽然左媒在报道川普总统的事情上经常有误导和偏见，但这消息看起来应该不是无中生有。文贵先生早就预料，只要与中共有牵连，出问题只是时间早晚的事。
+**郭文贵**
+**Miles Guo**
 
-文章摘要指出：
+刚才我说了就是H-pay, 和银行和使用客户的关系
+What I just said is the relationship between H-Pay, banks and customers
 
-支持川普新社交媒体企业的“特殊目的收购公司”（SPAC，The special purpose acquisition company）在SEC文件中披露，该企业正在接受调查。
+现在为啥数字银行重要，就未来是很多这个KYC以后的使用者
+Why digital banking is important now, there will be a lot of KYC users in the fu-ture
 
-监管机构已要求该公司提供信息，但目前还没有迹象表明存在不当行为。
+互相之间的传递和支付，点到点的支付，第一批上线也就是1月中旬
+Transfer and payment between each other, point-to-point payment, the first batch of online will be in mid-January
 
-SPAC见证了国会两位共和党人的投资，其中包括众议员马乔里·泰勒·格林（Marjorie Taylor Greene）。
+那么你要有数字银行的话，你就方便多了
+Then you have to have a digital bank, it will be much more convenient for you
 
-全文如下：
+你没有数字银行, 那传统银行给你说，我每一笔都要KYC，你不就完蛋了吗
+If you don’t have a digital bank, the traditional bank tells you that we want you to do KYC for every single transaction, you will be in trouble
 
-据《纽约时报》首次报道的一份提交给SEC的报告称，美国证券交易委员会（SEC）和其他监管机构正在调查一家“特殊目的收购公司”（SPAC）与前总统唐纳德·川普的新社交媒体公司之间的交易。
+第一笔的，点到点的，非商业性的，叫做契约性的支付
+The first deal, point-to-point, non-commercial, called contractual payment
 
-根据“数字世界收购公司”（DWAC，Digital World Acquisition Corp）——打算与川普的新媒体合资企业，“川普媒体与技术集团公司”（TMTG，Trump Media & Technology Group Corp）合并的SPAC——的文件，SEC已要求提供有关SPAC董事会会议、“与交易有关的政策和程序”、特定投资者身份认定的文件，以及DWAC和TMTG之间的沟通副本。
+仅限于KYC战友之间，后来商家加入以后，扫码制
+only between KYC comrades-in-arms, after the merchant joins in, we will go online to scan code payment and support the use of pos machines
 
-川普于10月20日首次宣布，他将在TMTG的支持下成立一家新的社交媒体公司“真实社交”（TRUTH Social）。
+主要是在这个国家被批准了，被这个国家被批准了
+Mainly approved in this country, approved by this country
 
-川普在宣布成立的声明中说：“我们生活在一个塔利班在推特上大量存在的世界里，但你最喜欢的美国总统却被消声了。每个人都问我，为什么没有人站出来对抗大科技？好吧，我们很快就会有了！”
+在台湾有了这个金融牌照，支付牌照
+With this financial license, payment license in Taiwan
 
-根据文件，调查于11月初开始，私人监管机构“金融业监管局”（FINRA，The Financial Industry Regulatory Authority）也在10月20日宣布合并后于10月下旬开始调查该合伙企业。
+那就是商家所有的台湾商家都可以接受，就不用你每个去说都可以接受
+that means all Taiwanese merchants can accept this way to do the business, so you don’t have to tell everyone to accept it
 
-该公司指出，无论是FINRA还是SEC都没有发现任何不当行为的迹象，该公司表示正在与这两个机构合作。
+那么一扫码就可以支付了，然后只有传统银行和数字银行的支持就可以了
+Then you can pay by scanning the code, and then only the support of tradition-al banks and digital banks is enough
 
-该文件指出：“调查不应被解释为表明FINRA已确定发生了任何违反纳斯达克规则或联邦证券法的行为，根据SEC的要求，调查并不意味着SEC已经认定任何人违反了法律，或者SEC对DWAC或任何人、事件或证券持有否定意见。”
+那么现在我们只是有自己的银行和自己的传统银行来支持
+So now we just have our own bank and our own traditional bank to support
 
-在调查之前，川普的数字媒体公司“真实社交”和DWAC宣布从投资者那里筹集近10亿美元。
+那么战友们要去做很重要的事情，为啥我说你要推广H-Pay呢
+So the comrades-in-arms have to do very important things, why do I say you need to promote H-Pay?
 
-两名共和党国会议员-众议员，佐治亚州的马乔里·泰勒·格林（Marjorie Taylor Greene）和印第安纳州的拉里·布肖恩（Larry Bucshon）投资了DWAC。
+你找商家加入以后，马上现在咱们给大家的奖励
+After you find a merchant to join in, we will give you a reward right away
 
-（原文完）
+所有你这个地区的，你来代理的所有的支付系统的收费
+You will be the agent to collect all the fees of all payment systems in your area
 
-文章落下了重要内容，SPAC、DWAC有深刻的中共背景，操盘手吴征乃是遭美国FBI调查的中共间谍，在全世界都在认清中共邪恶之际，有反共积极表现的川普却落入中共的圈套，更说明了中共在美国的潜伏力量。只能说一句，祝川普总统好运！
+分成给你是终生的，所以这一段时间是给你留了窗口期
+You get dividends for your life, so this period of time is a window period for you
 
-原文链接：
+让你去发展自己的现代点到点到非商业性的支付系统
+Let you develop your own modern, point-to-point to non-commercial payment system
 
-[https://www.msn.com/en-us/money/companies/trump-s-new-media-company-is-under-investigation-by-federal-regulators/ar-AARwGeZ](https://www.msn.com/en-us/money/companies/trump-s-new-media-company-is-under-investigation-by-federal-regulators/ar-AARwGeZ)
+是你拉商家最关键的问题，商家最开心是哪里
+The most critical question for you to attract a business in, what benefits do merchants get？
+
+你可以给它做个承诺，你这是HDO，你说的不是H-Coin
+That is you can make a promise to it, this is HDO, not H-Coin that you mentioned
+
+点到点，因为稳定的问题，我只能跟你HDO来结算
+Point to point, because of stability issues, I can only use HDO settle with you
+
+你分分钟可以结算，我一星期或者一个月给你结算, 结算不了我负责
+You can settle in minutes, I will settle it for you in a week or a month, I’m re-sponsible for the settlement
+
+甚至你告诉它涨了是你的，跌了是我的
+even you can tell them if it goes up that it’s yours, and if it goes down that it’s mine
+
+你要拿你的HDO，比如说，你找了一个卖牛肉的店
+You want to take your HDO, for example, you find a beef shop
+
+它收了你1000个HDO, 它马上买了H-Coin，那你可以马上就可以买
+It received 1000 HDO from you, it bought H-Coin right away, then you（beef shop）can buy it right away
+
+这是你的事儿了，这是你在投资的问题
+this is your business, this is your investment
+
+但是HDO是100%保证你不会贬值的，你有什么有担心的，是不是
+and HDO is 100% guaranteed that you will not depreciate, what are you wor-ried about, right?
+
+所以各个战友有自己的战略和手段，去推销自己的H-Pay
+So each comrades-in-arms has his own strategy and way to promote his own H-Pay
+
+这是非常关键的，我相信这是一个绝对利好的机会
+This is very crucial, I believe this is an absolutely good opportunity
+
+**原视频链接**[:](https://gettr.com/post/piobb489c5)[https://gettr.com/post/piobb489c5](https://gettr.com/post/piobb489c5)
+
+Date:12/05/2021
+原视频标题: H-pay的发展窗口期
+H-pay’s development window period
+原视频日期：2021/12/03
+原视频链接https://gettr.com/post/piobb489c5
+任务编号：3109
+视频时间段 : 0:00-2:19
+
+中听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 -青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

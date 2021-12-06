@@ -2,40 +2,50 @@
 ---
 
 
-## 约翰逊议员批福奇破坏早期治疗害死美国人
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1727161/)
+## SEC正在调查川普的新社交媒体公司
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1727294/)
 
 俄罗斯莫斯科喀秋莎农场   仰望七星
 
 编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/12/R.jpg)dcweekly.com
-《门道专家》12月5日发表文章，题目是“参议员罗恩·约翰逊（Ron Johnson）投下了一颗真相炸弹——他说，许多美国人死于中共病毒，是因为福奇‘破坏了使用廉价、可用的非专利药物的早期治疗’”。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/T-1.jpg)en.news7todays.com
+MSN 12月6日报道了此消息，题目是“川普的新社交媒体公司正在接受美国证券交易委员会（SEC）的调查”。虽然左媒在报道川普总统的事情上经常有误导和偏见，但这消息看起来应该不是无中生有。文贵先生早就预料，只要与中共有牵连，出问题只是时间早晚的事。
+
+文章摘要指出：
+
+支持川普新社交媒体企业的“特殊目的收购公司”（SPAC，The special purpose acquisition company）在SEC文件中披露，该企业正在接受调查。
+
+监管机构已要求该公司提供信息，但目前还没有迹象表明存在不当行为。
+
+SPAC见证了国会两位共和党人的投资，其中包括众议员马乔里·泰勒·格林（Marjorie Taylor Greene）。
 
 全文如下：
 
-参议员罗恩·约翰逊（Ron Johnson）周日（12月5日）抨击福奇对中共病毒作出的失败响应，他阻挠了廉价的非专利药物的使用，破坏了早期的治疗。
+据《纽约时报》首次报道的一份提交给SEC的报告称，美国证券交易委员会（SEC）和其他监管机构正在调查一家“特殊目的收购公司”（SPAC）与前总统唐纳德·川普的新社交媒体公司之间的交易。
 
-“我要问一个简单的问题，福奇是不是应该对他的中共病毒防疫工作负责？788,000人丧生，许多人是因为他忽视和破坏了使用廉价、可用的非专利药物的早期治疗，而选择了一种并不像我们所希望的那样安全或有效的疫苗。”
+根据“数字世界收购公司”（DWAC，Digital World Acquisition Corp）——打算与川普的新媒体合资企业，“川普媒体与技术集团公司”（TMTG，Trump Media & Technology Group Corp）合并的SPAC——的文件，SEC已要求提供有关SPAC董事会会议、“与交易有关的政策和程序”、特定投资者身份认定的文件，以及DWAC和TMTG之间的沟通副本。
 
-《门道专家》在过去一年中已经广泛报道了羟氯喹在治疗中共病毒方面的作用。
+川普于10月20日首次宣布，他将在TMTG的支持下成立一家新的社交媒体公司“真实社交”（TRUTH Social）。
 
-现在已经有67个用伊维菌素治疗中共病毒的对照研究，该研究表明对中共病毒感染者的改善率为67%。
+川普在宣布成立的声明中说：“我们生活在一个塔利班在推特上大量存在的世界里，但你最喜欢的美国总统却被消声了。每个人都问我，为什么没有人站出来对抗大科技？好吧，我们很快就会有了！”
 
-已经有298个羟氯喹的研究显示，对中共病毒感染者的改善率为64%。
+根据文件，调查于11月初开始，私人监管机构“金融业监管局”（FINRA，The Financial Industry Regulatory Authority）也在10月20日宣布合并后于10月下旬开始调查该合伙企业。
 
-尽管有科学依据，福奇和医学精英们还是阻止了对中共病毒感染者使用这些有效的治疗方法，以推广无效、不安全、实验性的中共病毒疫苗来取而代之。
+该公司指出，无论是FINRA还是SEC都没有发现任何不当行为的迹象，该公司表示正在与这两个机构合作。
 
-罗伯特·马龙（Robert Malone）博士，mRNA疫苗的发明者，指控福奇和其他人说谎，通过阻止羟氯喹和伊维菌素，以及其它方法治疗中共病毒患者，导致了50多万美国人死亡。
+该文件指出：“调查不应被解释为表明FINRA已确定发生了任何违反纳斯达克规则或联邦证券法的行为，根据SEC的要求，调查并不意味着SEC已经认定任何人违反了法律，或者SEC对DWAC或任何人、事件或证券持有否定意见。”
 
-马龙博士和罗恩·约翰逊是对的，有充分的证据表明，福奇和美国顶级医生合谋取消了（这些药物的使用）资格，否定了羟氯喹作为一种治疗中共病毒感染的手段。数百万人因此而死亡。
+在调查之前，川普的数字媒体公司“真实社交”和DWAC宣布从投资者那里筹集近10亿美元。
 
-（全文完）
+两名共和党国会议员-众议员，佐治亚州的马乔里·泰勒·格林（Marjorie Taylor Greene）和印第安纳州的拉里·布肖恩（Larry Bucshon）投资了DWAC。
 
-罪恶的福奇真该千刀万剐，对这种恶魔上“凌迟”手段也不为过。可老贼至今若无其事地在屏幕前晃悠，还在叫嚷接种、强制，可见阴谋集团的力量，罪恶势力对世界的操控。这种状况只能激发正义人民的斗志，不铲除罪恶誓不罢休！
+（原文完）
+
+文章落下了重要内容，SPAC、DWAC有深刻的中共背景，操盘手吴征乃是遭美国FBI调查的中共间谍，在全世界都在认清中共邪恶之际，有反共积极表现的川普却落入中共的圈套，更说明了中共在美国的潜伏力量。只能说一句，祝川普总统好运！
 
 原文链接：
 
-[https://www.thegatewaypundit.com/2021/12/senator-ron-johnson-says-many-americans-died-covid-fauci-sabotaged-early-treatment-using-cheap-available-generic-drugs/](https://www.thegatewaypundit.com/2021/12/senator-ron-johnson-says-many-americans-died-covid-fauci-sabotaged-early-treatment-using-cheap-available-generic-drugs/)
+[https://www.msn.com/en-us/money/companies/trump-s-new-media-company-is-under-investigation-by-federal-regulators/ar-AARwGeZ](https://www.msn.com/en-us/money/companies/trump-s-new-media-company-is-under-investigation-by-federal-regulators/ar-AARwGeZ)
 
  
 
