@@ -2,25 +2,28 @@
 ---
 
 
-## 秘翻在线：泽莫尔会议移至维勒班，将有19,000人参加
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1725126/)
+## 广州市一搅拌车失控连撞多车
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1725240/)
 
-#### 翻译：海奥華預言
+作者：纽约香草山农场 – 文特
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+据墙内媒体消息，12月4日，在中共国广州市江南大道与昌岗中路路口，一辆水泥搅拌车失控连撞多车。广州交警通报称，事故造成多车损坏，3人身体轻微不适。据搅拌车驾驶人潘某自述，其在驾驶过程中突感身体不适，导致了事故发生。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture3-2.jpg)
+参考链接：[广州市一搅拌车失控连撞多车](https://www.gettr.com/post/pirxie93df)
 
-#### 发布:白夜
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-251.png)
-埃里克-泽穆尔原定于周日举行的第一次竞选会议最终将在巴黎北部的维勒班特展览馆（Seine-Saint-Denis）举行，而不是在天顶大厦举行，他的团队估计，到目前为止，登记人数已达19000人。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-“多好的消息啊！你们有这么多的人想参加12月5日这个星期天的会议，我们把它从巴黎的天顶大厦移到了维勒班的展览馆，”这位现在的总统候选人星期三在推特上说。他的随行人员解释说，考虑到在天顶大厦（Zenith）登记的人数，候选人在那里租了一个5800个座位的大厅，他决定将会议搬到维勒班特展览馆。大门将在下午1点打开，公众会议将在下午3点开始。
+总编：飞虹
+编辑：文特
+校对/发稿：Hetangyuese
 
-负责该地的通讯部门告诉法新社，世博园区可容纳3万名站立者，2万名坐立者。
-
-CGT、Solidaires和反法西斯活动家曾承诺在天顶大厦示威，以 “让泽穆尔闭嘴”。天顶大厦所在的巴黎第19区市议会曾向省长表达了对 “扰乱公共秩序的风险 “的担忧。极左协会（Action antifasciste Paris-Banlieue）也呼吁从中午开始封锁天顶大厦会议。
-
-据巴黎警察局称，约3000名示威者参加了周六举行的 “反对极右翼和种族主义 “和 “反对埃里克-泽穆尔的意识形态 “的游行。游行过程中警力密集，离开后发生了一些零星事件。
-
-[文章来源](https://www.challenges.fr/politique/le-meeting-de-zemmour-deplace-a-villepinte-19-000-participants-annonces_791421)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

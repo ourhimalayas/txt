@@ -2,54 +2,73 @@
 ---
 
 
-## 北京如何收购英国
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1725300/)
+## 人权组织要求2022年冬季奥运会不应该在中共国举办
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1725431/)
 
-编译：东京樱花团/Hopkins
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-264.png)[图片来源](https://www.reddit.com/r/FragrantHarbour/comments/lulx1d/chinese_companies_buy_up_uk_private_schools/)
-中国投资者至少在英国资产上花费了 1340 亿英镑，包括私立学校、基础设施企业和顶级英国公司。
+翻译：文羽
 
-据《星期日泰晤士报》报道，中国或香港的投资者和企业现在拥有泰晤士水务（Thames Water）、希思罗机场（Heathrow Airport）和英国电力网络（UK Power Networks）等关键基础设施企业的股份。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕截图-2021-12-06-102912.jpg)图片来源： google.com
 
-据该报称，还向富时 100 指数（FTSE 100）公司投资了多达 570 亿英镑。
+超过 160 个人权组织签署了一封信，呼吁国际奥委会（IOC）撤销其在北京举办 2022 年冬季奥运会的决定。这封信引用了中共国政府普遍侵犯人权的指控。
 
-而且，正如《星期日邮报》先前报道的那样，中国公司还在著名的私立学校——包括塞特福德文法学校（Thetford Grammar School）和伯恩茅斯学院（Bournemouth Collegiate College）——进行了大量投资，投资额约为 100 亿英镑。
+这封信是写给国际奥委会主席托马斯·巴赫的，并由各大洲的人权组织签署。信中称，中共国中央政府在新疆、西藏、香港和内蒙古的行为证明，中共国不配举办冬奥会。
 
-据该报称，中国的消费热潮自 2019 年以来一直在蓬勃发展。
+Lee：中共国通过有争议的香港国家安全法
 
-据称，在与数据提供商 Argus Vicker 的调查中发现的购买交易中，几乎有一半发生在过去两年中。
+信中写道：“国际奥委会的声誉因其错误地认为 2008 年（北京）夏季奥运会将改善中共国的人权记录而受到不可磨灭的污点。”声明补充说：“实际上，举办奥运会的声望只是让中共国政府的行动更加胆大妄为。”
 
-该报报道称，至少有 440 亿英镑的采购来自中国国有企业。
+接着说：“我们恳请委员会扭转过去的错误，并紧急表明它有遵守《奥林匹克宪章》关于‘人类尊严’的基本原则的政治意愿。国际奥委会绝不能让其道德权威再次处于危险之中。”
 
-它警告说，由于难以追踪某些投资，总投资数字可能远高于计算出的 1340 亿英镑。
+中共国拒绝关于奥运的信
 
-中资企业投资的学校包括：
+中共国外交部发言人赵立坚表示，这封关于奥运会的信旨在将体育“政治化”。中方“坚决反对”这一项措施。
 
-- Bournemouth Collegiate School
-- St Michael’s School in Llanelli, Carmarthanshire
-- Bosworth Independent College in Northampton
-- Bedstone College in Shropshire
-- Ipswich High School
-- Kingsley School in Bideford, Devon,
-- Heathfield Knoll School
-- Thetford Grammar School in Norfolk
-- Wisbech Grammar in Cambridgeshire
-- Riddlesworth Hall Preparatory School in Norfolk
-- Adcote School for Girls near Shrewsbury, Shropshire
-- Myddelton College in Denbigh, Wales
-- CATS Colleges – Campuses are in London, Cambridge and Canterbury
-- Chase Grammar School
-- Abbotsholme School, Derbyshire
-- St Bees School, Cumbria
+美国有线电视新闻网已联系国际奥委会，征求对这封信的评论。国际奥委会在给路透社的一份声明中表示，它在政治问题上保持中立。他补充说，授予奥运会“并不意味着国际奥委会同意他所在国家的政治结构、社会环境或人权标准。”
 
+国际奥委会在 2017 年表示，将从 2024 年夏季奥运会开始，将在未来作为奥运场馆的城市的合同中增加人权、反腐败和可持续发展条款。
 
-信息来源：
+抵制 2022 年冬季奥运会的呼声越来越普遍。在 2019 年 12 月的辩论中，就连美国民主党候选人也被问及该国是否应派其代表参加下一届奥运会。
 
-[How China is colonising the Commonwealth: As Britain beats itself up over our imperial past – and slavery – countries once loyal to the Crown are kneeling to Beijing which is building its own empire and enslaving a million Uighurs](https://www.dailymail.co.uk/news/article-10273381/How-China-colonising-Commonwealth.html)
+前副总统、现任民主党总统候选人乔拜登没有回答这个问题。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
+奥运声望
+
+2008年，中共国首次举办了在北京举行的夏季奥运会。这被许多人视为该国作为一个伟大的经济体和一个有抱负的超级大国登上世界舞台。
+
+执政的中国共产党投入了大量资金和精力，以确保活动取得成功。所有人，尽管担心该国的人权记录，包括当时的美国总统乔治·W·布什。
+
+人权观察中共国问题研究员王亚秋说，举办像奥运会这样的盛会是中共国政府“无比自豪”的源泉。“（2008年奥运会）让他们可以将侵犯人权的行为合法化，这就像对北京进行名誉洗钱。” 人权观察不是这封呼吁将 2022 年奥运会从北京撤出的信函的签字人。
+
+看一下：分析特朗普或拜登：中共国更喜欢谁入主白宫？
+
+2015年，北京赢得2022年冬奥会，这意味着北京将成为第一个同时举办夏季和冬季运动会的城市。在奥斯陆、慕尼黑和斯德哥尔摩退出后，只有北京和哈萨克斯坦的阿拉木图争夺 2022 年冬季奥运会。
+
+当被问及当时中共国和哈萨克斯坦的人权问题时，国际奥委会主席巴赫告诉美国有线电视新闻网，该委员会的作用是“确保在奥运会期间，对所有参与者，都使用奥林匹克卡”。
+
+“这意味着宽容、非歧视（和）理解对话，”他说。
+
+批评中共国人权
+
+但自 2015 年以来，中共国政府因侵犯人权的指控而面临越来越多的批评。尤其是新疆穆斯林公民被大规模拘押，香港公民自由受到侵蚀。
+
+据美国国务院称，新疆西部地区多达 200 万穆斯林少数民族被关押在巨大的再教育设施内。也有报道称，这些集中营内部也出现了虐待、灌输和大规模控制生育的报道。
+
+Lee：中共国因“涉港事务”制裁马可·卢比奥和特德·克鲁兹等参议员和美国官员
+
+中共国政府为其在新疆的政策辩护，称其为去激进化计划。从这个意义上讲，他说这些营地是“职业培训中心”，穆斯林少数民族可以在这里自愿学习汉语和生活技能。
+
+与此同时，在香港，中共国政府于 6 月实施了新的国家安全法。据活动人士称，在该市持续数月直至 2019 年的民主抗议活动之后，该措施严重限制了言论自由和其他人权。
+
+新法生效后，反对派议员和批评北京的商人已经在香港被捕。香港政府和中共国当局一直坚持这项法律，称它已经稳定了这座城市。
+
+新闻来源 : [cnnespanol.cnn.com][Juegos Olímpicos de Invierno 2022 no deberían ser en China, piden grupos de derechos humanos](https://cnnespanol.cnn.com/2020/09/10/juegos-olimpicos-de-invierno-2022-no-deberian-ser-en-china-piden-grupos-de-derechos-humanos/)
+
+* * *
+
+*审核：蚂蚁兄弟
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

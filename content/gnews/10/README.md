@@ -2,51 +2,42 @@
 ---
 
 
-## 前荷兰女王中共病毒检测呈阳性
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1725273/)
+## PLA在大西洋将建立首个海军基地，与美国隔海相望
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1725425/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/812-4.jpg)图片来源：搜狐网
 
 
+整理报道：文泓
 
-荷兰皇家新闻局12月4日在一份声明中宣布，83 岁的前荷兰女王比阿特里克斯公主中共病毒检测呈阳性。
+12月5日，美国情报部门消息，中共国将在（非洲）大西洋沿岸上建立其有史以来第一个永久性海军基地。周日的《华尔街日报》披露了一系列机密情报，指出中共军队正在为非洲东海岸赤道几内亚的深水港（建设）做准备。
 
-声明表示，前女王在感到轻微感冒症状后接受了中共病毒检测。目前她正在荷兰中部的一座城堡里接受隔离。
+美国官员表示，这些报道“提出了（未来）中共国军舰能够在美国东海岸对面重新武装和改装的前景，这种威胁正在为白宫和五角大楼敲响警钟”。
+去年4月，美国非洲司令部司令斯蒂芬·汤森将军在参议院作证时，首次提出了解放军在大西洋军事存在的这种“最重大的威胁”的可能性——北京正在盯着“非洲大西洋沿岸的一个军事上有用的海军设施”。
 
-这位荷兰前女王在位33年，直到2013年退位，她的长子成为国王。
+他当时说：“军事上有用不仅是一个PLA可以停靠港口并获得汽油和杂货的地方，他们可以重新补给弹药和修理军舰的港口。”
 
-上周，她访问了荷兰王国的加勒比库拉索岛。当时，她告诉记者，她已经接种了中共疫苗加强针。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-44.jpg)
-参考链接：
-[Dutch former queen Beatrix tests positive for COVID-19](https://torontosun.com/news/world/dutch-former-queen-beatrix-tests-positive-for-covid-19?utm_source=ground.news&amp;utm_medium=referral)
+赤道几内亚距离美国本土有7000英里，此外，美国在全球约80个国家设有至少750个基地，包括29个或更多已知的基地，从非洲的一边延伸到另一边。
+PLA第一个海外军事基地于2017年在非洲之角的吉布提建立，距离被称为美国在非洲最大基地的莱蒙尼尔营不到10英里。美国官员长期以来一直担心，伴随着中共国的军事足迹，北京胁迫东道国与中共国签署重大投资和基础设施交易，按照习近平的“一带一路”倡议，推进中共国的地缘政治利益。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+五角大楼资助的非洲战略研究中心的研究助理保罗·南图利亚说：“中共国并不像美国那样只是建立一个军事基地，中国的模式非常、非常不同。它结合了民用和安全元素。”
 
-总编：文特
-编辑：飞虹
-校对/发稿：为真不破20
+根据中共国政府的数据，在过去20年里，中共国有企业在非洲各地建造了100个商业港口。
 
-**更多资讯，更多关注**
+特别是在赤道几内亚，美国的担忧是，由于强人特奥多罗·奥比昂·恩圭马·姆巴索戈总统的家族式政府长期铁腕统治这个小国，这个腐败的政府，让北京可以更容易地进行深入和有利可图的经济渗透。
+中共国在那里已经有多家大型建筑公司，而且这个西非产油国自2017年以来一直是石油输出国组织（OPEC）的成员。
+中共国还为该国的国家警察部队提供培训和武器。赤道几内亚近年来也签署了“一带一路”备忘录，承诺遵守该倡议。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+《华尔街日报》的报道强调卫星图像和美国官员的声明，强烈暗示中共国特别盯上了该国沿海最大的大陆城市巴塔。报道说，这个地方“已经有一个中共国在几内亚湾建造的深水商业港口，并且有很好的高速公路将该城市与加蓬和中非内陆连接起来”。
+原文链接： [Inside Australia’s Covid internment camp – The Post (unherd.com)](https://unherd.com/thepost/inside-australias-covid-internment-camp/)
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+**编辑/发****布：文泓  **
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

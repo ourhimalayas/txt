@@ -2,22 +2,52 @@
 ---
 
 
-## 中共连续7年增收的粮食危机
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1725155/)
+## 前荷兰女王中共病毒检测呈阳性
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1725273/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12063.png)[图片来源](https://mbd.baidu.com/newspage/data/landingsuper?context=%7B%22nid%22%3A%22news_10007510126053148502%22%7D&amp;n_type=-1&amp;p_from=-1)
-红星新闻12月6日报道，中共国家统计局公布的全国粮食生产数据显示，2021年全国粮食总产量13657亿斤，比上年增加267亿斤，增长2.0%，全年粮食产量再创新高，连续7年保持在1.3万亿斤以上。其中，秋粮产量10178亿斤，比上年增加191亿斤，增长1.9%。
+作者：纽约香草山教育部 – Naughty(文行)
 
-海关总署在11月份公布的数据显示，中共国10月粮食进口量为968.4万吨，1-10月进口量为13795.6万吨，同比增加23%，占我国粮食总产量接近20%。有望超过2020年全年粮食进口总量14262.1万吨。
 
-既然粮食产量连续7年稳定在1.3万亿斤以上，为何还要20%全靠进口？在将要结束的一年里，产粮区灾难不断发生，还能保持2%增长？中共一贯的假恶丑不仅在统治奴役百姓，还有公布的统计数据，把危机用喜讯的方式进行传递。随着病毒疫情和疫苗灾难的蔓延，中共国经济危机进一步扩大，而粮食危机也必将随之加剧。
 
-信息来源：[国家统计局：2021年全国粮食总产量13657亿斤 同比增长2.0%](https://mbd.baidu.com/newspage/data/landingsuper?context=%7B%22nid%22%3A%22news_10007510126053148502%22%7D&amp;n_type=-1&amp;p_from=-1)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
+
+
+荷兰皇家新闻局12月4日在一份声明中宣布，83 岁的前荷兰女王比阿特里克斯公主中共病毒检测呈阳性。
+
+声明表示，前女王在感到轻微感冒症状后接受了中共病毒检测。目前她正在荷兰中部的一座城堡里接受隔离。
+
+这位荷兰前女王在位33年，直到2013年退位，她的长子成为国王。
+
+上周，她访问了荷兰王国的加勒比库拉索岛。当时，她告诉记者，她已经接种了中共疫苗加强针。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-44.jpg)
+参考链接：
+[Dutch former queen Beatrix tests positive for COVID-19](https://torontosun.com/news/world/dutch-former-queen-beatrix-tests-positive-for-covid-19?utm_source=ground.news&amp;utm_medium=referral)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+
+总编：文特
+编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,28 +2,32 @@
 ---
 
 
-## 广州市一搅拌车失控连撞多车
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1725240/)
+## 中共国网易新闻终于“梗”出了疫苗之毒：刺突蛋白
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1725394/)
 
-作者：纽约香草山农场 – 文特
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-据墙内媒体消息，12月4日，在中共国广州市江南大道与昌岗中路路口，一辆水泥搅拌车失控连撞多车。广州交警通报称，事故造成多车损坏，3人身体轻微不适。据搅拌车驾驶人潘某自述，其在驾驶过程中突感身体不适，导致了事故发生。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture3-2.jpg)
-参考链接：[广州市一搅拌车失控连撞多车](https://www.gettr.com/post/pirxie93df)
+作者：尚劲哥
+![](https://assets.gnews.org/wp-content/uploads/2021/12/PHOTO-2021-12-06-14-37-39.jpg)
+2021年12月4日，网易163.COM 新闻网刊发了一篇文章，“疫苗研究人员承认犯大错，刺突蛋白是致病的毒素……”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+这篇文章引述了加拿大安大略省圭尔夫大学的病毒免疫学家和副教授BYRAM Bridle在接受Alex Pierson采访时的言论：我们本以为刺突蛋白是一个很好的目标抗原，但是，我们那时不知道刺突蛋白本身是一种毒素，是一种致病蛋白，因此，通过给人们接种疫苗，我们无意中给他们接种了毒素……
 
-总编：飞虹
-编辑：文特
-校对/发稿：Hetangyuese
+根据这篇报道，我们找到了英文原文，这是一篇发表于今年5月27日的消息，距离现在已经近半年之久，而在当时，联合国和世界卫生组织在干什么呢？搜索了一下，发现联合国2021年6月7日的网页上，中共的WALKING DOG谭德塞关注的是：发达国家与发展中国家疫苗分配不平衡，倡议为发展中国家提供更多疫苗。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+从2020年12月8日英国人注射第一剂中共病毒疫苗起，过去一年中，全世界有超过40亿人被注射了毒针， 在这期间，不断有良知的医生、科学家、疫苗测试员，疫苗副作用亲历者发声疫苗的毒理及症状展示，不断有倒地突发性死亡，可是罪恶的各国政府、大药企、国际大组织、大科技巨头将这些毒疫苗真相掩盖扼杀，在他们严丝密缝布控的媒体黑洞中，正如这篇科学家写的文章一样，也淹没在疫苗谎言中，这也让人对被打疫苗者在未来产生的身体伤害及次生灾难难以预测。文贵先生和新中国联邦早就将疫苗的毒理及真正目的通过GTV,GNEWS,GETTR 告知了全世界，但即使这样，大至国家元首、皇亲国戚，小至草根百姓， 自愿送上去扎毒针，并且对疫苗效用深信不疑者众，可怜的是那些迫于生计，而茫然不知的普通劳动者，他们别无选择，成了真正的牺牲品。
+
+中共国网易新闻此时将六个月前的一篇英文报道祭出来，可谓是一撅屁股，就知是要放什么屁了，中共既放毒，又制苗，现在发现全世界对疫苗快要被叫停的时候，中共快要被追责的时候，你大爷的开始想甩锅，想找科学研究来替你的恶背锅，门都没有!
+
+文贵先生说：病毒不是目的，疫苗才是，疫苗就是为了杀人。
+
+每一剂疫苗至少含有40万亿个刺突蛋白，这些刺突蛋白会像强盗一样，通过血液循环，进入你的身体，细胞中，
+
+所以，疫苗的各种梗也就来了，脑梗，心梗……
+
+参考链接：[https://www.lifesitenews.com/news/vaccine-researcher-admits-big-mistake-says-spike-protein-is-dangerous-toxin/](https://www.lifesitenews.com/news/vaccine-researcher-admits-big-mistake-says-spike-protein-is-dangerous-toxin/)
+
+审核校对：Barry Jack
+上传排版：F
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,50 +2,26 @@
 ---
 
 
-## 荷兰数千人抗议政府中共病毒限制措施
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1725173/)
+## 日本政府向国会提交35.9万亿日元的追加预算法案
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1725279/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+**撰稿：东京樱花团/百花李香 **
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-263.png)[图片来源](https://news.yahoo.co.jp/articles/e44ee328ac216d9f6aea52526e6968ad42ee1c50)
+《读卖新闻》网站12月6日消息，6日政府向国会提交了2021财年的补充预算草案，其中包括新的经济措施。政府和执政党的目标是在月底前通过预算。
 
+预算中，31.5627万亿日元已被指定用于实施新的经济措施。已拨出18.6059万亿日元用于“防止新的冠状病毒感染的传播”，8.253万亿日元用于岸田“启动新的资本主义”。本次预算还包括为18岁以下的儿童提供10万日元的补贴，为因中共病毒而业绩受损的中小企业提供支持，为确保先进半导体的国内生产基地提供补贴，以及提高儿童保育员、护理员和护士的工资。
 
+另外，还增加了3.5117万亿日元的地方拨款税收补贴，将发放给地方政府。政府将发行22.580万亿日元（国债）以确保资金。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+政府将在为期16个月的预算中制定补充预算和2022年财政年度的预算，并将在年底完成。 政府希望通过无缝的财政刺激措施来支持经济。
 
+铃木财政大臣在补充预算提交的同时，发表了关于公共财政的讲话，他说，“由于受到中共病毒的影响，日本经济仍然处于困难的境地。我们需要密切关注感染重新蔓延和经济下滑的风险”。并且强调，“为后疫情时代铺平道路，必须实现‘增长和分配的良性循环’，使经济走上自我维持的增长道路”。
 
+信息来源：[過去最大３５・９兆円の補正予算案、国会提出…コロナ拡大防止に１８・６兆円](https://news.yahoo.co.jp/articles/e44ee328ac216d9f6aea52526e6968ad42ee1c50)
 
-12月4日，数千人聚集在荷兰中部城镇乌得勒支，抗议上周末生效的中共病毒限制措施，抗议者举着横幅、挥舞着国旗穿过镇上的街道。在游行路线上可以看到大量的警察。
-
-这是荷兰首次举行反对新冠限制措施的大型示威，这些已生效的措施包括夜间关闭酒吧、餐馆和大多数商店，以期阻止中共病毒继续传播。
-
-两周前，在政府宣布计划禁止大多数未接种疫苗的人进入酒吧、餐馆和其他公共场所后，荷兰也出现了暴力抗议活动。这些计划因在议会中遭到广泛反对，尚未正式实施。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1.2-2.jpg)
-参考链接：
-[Thousands Protest Over Dutch Coronavirus Restrictions](https://www.oann.com/thousands-protest-over-dutch-coronavirus-restrictions/?utm_source=ground.news&amp;utm_medium=referral)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
-
-总编：文特
-编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
