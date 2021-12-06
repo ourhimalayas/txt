@@ -2,14 +2,18 @@
 ---
 
 
-## 2021年12月5日文贵大直播简报
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1725731/)
+## 【#G时新闻】为掩盖疫苗真相，FDA试图长期封禁辉瑞公司文件
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/1725830/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/文贵大直播12.05.1.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/文贵大直播12.05.2.png)
-参考链接：https://gtv.org/video/id=61acb7bebbd75f62e52f7ce4
+**加拿大温哥华扬帆农场** 播报：莉李鲤 制作：文雅
 
-撰稿：回响 / Ermat / 柯亭 / Naughty（文行）
-制作：艾伦
+🔥自由世界新闻电视台一名记者揭露，为掩盖疫苗真相，美国食品和药物管理局试图长期封禁辉瑞公司文件。
+🔥疫苗是一场有预谋的攻击，意在减少人口、使社会崩溃，并最终破坏工业化国家的稳定。
+
+盖特：[https://gettr.com/post/piv10c5d84](https://gettr.com/post/piv10c5d84)
+编辑/上传：七觉花
+
+
 
  
 
