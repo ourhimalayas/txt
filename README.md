@@ -15,77 +15,77 @@
 
 ---
 
-### [7.24系列——大跃进之后的大饥荒（五）](/content/gnews/1/README.md)
- ` 墨尔本雅典娜农场`
-
-### [美国和全世界监管数字货币的结局是去中心化的货币消失](/content/gnews/2/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [护照不仅要免签更要安全,绝不能因拿护照降格新中国联邦](/content/gnews/3/README.md)
- ` NewFOC`
-
-### [泽连科：阿奇霉素、羟氯喹和锌对奥米克戎变异仍然有效](/content/gnews/4/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [皮特·麦卡洛博士：自然免疫力比疫苗肯定更持久](/content/gnews/5/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [奥米克戎变异是在已接种疫苗者之间传染的进化错误](/content/gnews/6/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [封城的日子](/content/gnews/7/README.md)
+### [疫苗此生再难——司机突然脑梗](/content/gnews/1/README.md)
  ` 澳喜农场`
 
-### [BioNTechCEO乌尔·萨欣承认自己没有接种疫苗](/content/gnews/8/README.md)
- ` 加拿大温哥华扬帆农场视频组`
+### [泽连科医生回忆2020年初发现有效的中共病毒治疗方法](/content/gnews/2/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [辉瑞CEO：最有可能的情况是，我们需要每年接种COVID疫苗，这应该能够使我们真正安全](/content/gnews/9/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [文雍漫谈：塔西佗陷阱的底部是沼泽](/content/gnews/10/README.md)
- ` 文雍`
-
-### [加拿大警察挺身而出，呼吁人们加入反对暴政的抗争](/content/gnews/11/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [CCP监管审查，滴滴出行退出纽交所](/content/gnews/12/README.md)
+### [一路走来](/content/gnews/3/README.md)
  ` 澳喜特战旅Gnews`
 
-### [我们如何证明疫苗有效?](/content/gnews/13/README.md)
- ` 加拿大温哥华扬帆农场视频组`
+### [H-Pay支付分三个阶段:个人扫码、批准牌照国家、全世界](/content/gnews/4/README.md)
+ ` 喜马拉雅日本银河系农场`
 
-### [Omicron变种病毒并不致命，为什么疫苗公司却急着推出新疫苗？](/content/gnews/14/README.md)
- ` 加拿大温哥华扬帆农场视频组`
+### [中共国医保灵魂砍价，欺骗百姓的表演](/content/gnews/5/README.md)
+ ` 澳喜农场`
 
-### [辉瑞（Pfizer）合同中的“保密牆”被指控牟取暴利](/content/gnews/15/README.md)
- ` 秘密翻譯組G-Translators`
+### [谈谈乡村的网格员制度和疫苗接种](/content/gnews/6/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [加拿大特鲁多：非常兴奋看到5-11岁的儿童可以接种疫苗](/content/gnews/16/README.md)
- ` 加拿大温哥华扬帆农场视频组`
+### [7.24系列——大跃进之后的大饥荒（五）](/content/gnews/7/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [福奇说奥密克戎变种的早期报告让人鼓舞](/content/gnews/17/README.md)
- ` 秘密翻譯組G-Translators`
+### [美国和全世界监管数字货币的结局是去中心化的货币消失](/content/gnews/8/README.md)
+ ` 喜马拉雅日本银河系农场`
 
-### [疫苗推广后，全球各国同时发生了什么？](/content/gnews/18/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [俄罗斯、中共、邪恶宗教力量和华尔街用病毒和疫苗杀人](/content/gnews/19/README.md)
+### [护照不仅要免签更要安全,绝不能因拿护照降格新中国联邦](/content/gnews/9/README.md)
  ` NewFOC`
 
-### [澳洲女子透露没感染新冠，但仍被当局关押在隔离营14天](/content/gnews/20/README.md)
- ` 首尔天池农场`
+### [台湾外交部长警告中（共）国的军事扩张主义可能导致第三次世界大战](/content/gnews/10/README.md)
+ ` 澳喜特战旅Gnews`
 
-### [郭文贵直播摘要和音频 2021.12.05](/content/gnews/21/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [坎特：所有的运动员和国家都必须站出来抵制北京冬奥会](/content/gnews/11/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [躲避墨尔本封锁的女生，自述北领地模范隔离营悲惨遭遇](/content/gnews/22/README.md)
+### [坎特：美国各体育联合会都应效仿女子网球协会抵制中共](/content/gnews/12/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [泽连科：阿奇霉素、羟氯喹和锌对奥米克戎变异仍然有效](/content/gnews/13/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [皮特·麦卡洛博士：自然免疫力比疫苗肯定更持久](/content/gnews/14/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [奥米克戎变异是在已接种疫苗者之间传染的进化错误](/content/gnews/15/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [封城的日子](/content/gnews/16/README.md)
+ ` 澳喜农场`
+
+### [BioNTechCEO乌尔·萨欣承认自己没有接种疫苗](/content/gnews/17/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [辉瑞CEO：最有可能的情况是，我们需要每年接种COVID疫苗，这应该能够使我们真正安全](/content/gnews/18/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [文雍漫谈：塔西佗陷阱的底部是沼泽](/content/gnews/19/README.md)
+ ` 文雍`
+
+### [CCP监管审查，滴滴出行退出纽交所](/content/gnews/20/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [辉瑞（Pfizer）合同中的“保密牆”被指控牟取暴利](/content/gnews/21/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [福奇说奥密克戎变种的早期报告让人鼓舞](/content/gnews/22/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [躲避墨尔本封锁的女生，自述北领地模范隔离营悲惨遭遇](/content/gnews/23/README.md)
  ` 走进澳洲`
 
-### [拜登政府预计本周宣布外交抵制北京冬奥会](/content/gnews/23/README.md)
+### [拜登政府预计本周宣布外交抵制北京冬奥会](/content/gnews/24/README.md)
  ` HimalayaRussia`
-
-### [美国游轮上爆发COVID疫情，尽管乘客已全面接种疫苗](/content/gnews/24/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [日本内阁支持率得到提升，暂停外国人入境得到高评价](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
