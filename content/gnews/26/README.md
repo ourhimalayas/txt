@@ -2,204 +2,50 @@
 ---
 
 
-## Eglise医生讲解羟氯喹治好了战友的风湿性关节炎
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1726965/)
+## SEC正在调查川普的新社交媒体公司
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1727294/)
 
-Chris你的手指症状完全有可能是风湿性关节炎
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-Chris, it is entirely possible that your finger symptoms are rheumatoid arthritis
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/12/T-1.jpg)en.news7todays.com
+MSN 12月6日报道了此消息，题目是“川普的新社交媒体公司正在接受美国证券交易委员会（SEC）的调查”。虽然左媒在报道川普总统的事情上经常有误导和偏见，但这消息看起来应该不是无中生有。文贵先生早就预料，只要与中共有牵连，出问题只是时间早晚的事。
 
-因为人到一定年纪
+文章摘要指出：
 
-Because at a certain age
+支持川普新社交媒体企业的“特殊目的收购公司”（SPAC，The special purpose acquisition company）在SEC文件中披露，该企业正在接受调查。
 
-你不一定要诊断血液风湿病因检查你一定是阳性
+监管机构已要求该公司提供信息，但目前还没有迹象表明存在不当行为。
 
-you don’t have to diagnose blood rheumatoid etiology test you must be positive
+SPAC见证了国会两位共和党人的投资，其中包括众议员马乔里·泰勒·格林（Marjorie Taylor Greene）。
 
-因为它可以是早期
+全文如下：
 
-because it can be early
+据《纽约时报》首次报道的一份提交给SEC的报告称，美国证券交易委员会（SEC）和其他监管机构正在调查一家“特殊目的收购公司”（SPAC）与前总统唐纳德·川普的新社交媒体公司之间的交易。
 
-前期症状
+根据“数字世界收购公司”（DWAC，Digital World Acquisition Corp）——打算与川普的新媒体合资企业，“川普媒体与技术集团公司”（TMTG，Trump Media & Technology Group Corp）合并的SPAC——的文件，SEC已要求提供有关SPAC董事会会议、“与交易有关的政策和程序”、特定投资者身份认定的文件，以及DWAC和TMTG之间的沟通副本。
 
-Pre-existing symptoms
+川普于10月20日首次宣布，他将在TMTG的支持下成立一家新的社交媒体公司“真实社交”（TRUTH Social）。
 
-不是很典型
+川普在宣布成立的声明中说：“我们生活在一个塔利班在推特上大量存在的世界里，但你最喜欢的美国总统却被消声了。每个人都问我，为什么没有人站出来对抗大科技？好吧，我们很快就会有了！”
 
-Not very typical
+根据文件，调查于11月初开始，私人监管机构“金融业监管局”（FINRA，The Financial Industry Regulatory Authority）也在10月20日宣布合并后于10月下旬开始调查该合伙企业。
 
-就是说你的血液检查不一定能检查出阳性
+该公司指出，无论是FINRA还是SEC都没有发现任何不当行为的迹象，该公司表示正在与这两个机构合作。
 
-That is, your blood test may not always be positive
+该文件指出：“调查不应被解释为表明FINRA已确定发生了任何违反纳斯达克规则或联邦证券法的行为，根据SEC的要求，调查并不意味着SEC已经认定任何人违反了法律，或者SEC对DWAC或任何人、事件或证券持有否定意见。”
 
-但是你的症状已经可以说明这一点
+在调查之前，川普的数字媒体公司“真实社交”和DWAC宣布从投资者那里筹集近10亿美元。
 
-But your symptoms can already show this
+两名共和党国会议员-众议员，佐治亚州的马乔里·泰勒·格林（Marjorie Taylor Greene）和印第安纳州的拉里·布肖恩（Larry Bucshon）投资了DWAC。
 
-还有另外一方面可以证明你这是风湿性关节炎的另一个原因
+（原文完）
 
-There is another aspect that can prove that you have rheumatoid arthritis
+文章落下了重要内容，SPAC、DWAC有深刻的中共背景，操盘手吴征乃是遭美国FBI调查的中共间谍，在全世界都在认清中共邪恶之际，有反共积极表现的川普却落入中共的圈套，更说明了中共在美国的潜伏力量。只能说一句，祝川普总统好运！
 
-就是倒推法
+原文链接：
 
-That is, the backward projection method
-
-就是你的治疗
-
-That is, your treatment
-
-你这个治疗药物
-
-Your treatment medication
-
-因为伊维菌素和硫酸羟氯喹它们都可以治疗类风湿性关节炎
-
-Because ivermectin and hydroxychloroquine sulfate both treat rheumatoid arthritis
-
-和红斑性狼疮这样的免疫抑制性疾病
-
-and immunosuppressive diseases like lupus erythematosus
-
-它在WHO的使用药物的清单适应症上 它们有这个适应症的
-
-They are on the WHO list of indications for the use of drugs, and they have such indications
-
-也就是说它们的确是有免疫调节作用
-
-That means they do have immunomodulatory effects
-
-这就是为什么这些医生能够想到用这些药物来治疗新冠病毒
-
-That’s why these doctors thought of using these drugs to treat neocoronavirus.
-
-也是因为它们有这方面的适应症 本身在那里的
-
-It’s also because they have an indication for it, and it’s there in and of itself.
-
-只不过用于抗病毒 这是完全新的用途
-
-It’s just for antiviral, which is a completely new use.
-
-但是免疫抑制 本身就有这个适应症的
-
-But immunosuppression, itself, has this indication
-
-所以这样倒推的话
-
-So if you look at it backwards.
-
-你小指关节的疼痛 它是早期风湿性关节炎的症状
-
-The pain in your pinky joint is a symptom of early rheumatoid arthritis.
-
-因为你这个药物治疗 正确的药物就是解决了你的症状
-
-Because your medication is the right medication to address your symptoms
-
-从另一个方面证明 你的诊断是正确的
-
-On the other hand, it proves that your diagnosis is correct.
-
-尽管你的医生没有给你这个诊断
-
-Even though your doctor didn’t give you this diagnosis
-
-你自己做了诊断
-
-You made the diagnosis yourself
-
-对 他们医生就是一直恐吓我说
-
-Yeah, their doctors just kept threatening me that
-
-你这样用羟氯喹 你会失明的
-
-You’ll go blind if you take hydroxychloroquine like this.
-
-还有对你的肾脏会有很大的影响
-
-And that it would have a significant effect on your kidneys.
-
-这又是CDC危言耸听
-
-That’s another CDC scaremongering.
-
-这医生的信息哪里来的
-
-Where did these doctors get their information?
-
-就是这些主流媒体的 所谓一个新闻报道 就把这个药给打死了
-
-It’s the mainstream media that killed this drug with one so-called news report
-
-伊维菌素过去30年 硫酸羟氯喹过去40在WHO的基本药物使用清单上
-
-Ivermectin has been on the WHO list of essential drugs for the past 30 years and hydroxychloroquine sulfate for the past 40
-
-是最最广泛使用的药物
-
-It is the most widely used drug
-
-因为寄生虫的适应症 所以世界各个角落
-
-Because of the parasitic indications, they are used in every corner of the world.
-
-这些贫穷国家都在用这些药物
-
-These poor countries are using these drugs.
-
-默克是伊维菌素的生产厂家 最早以前
-
-Merck is the manufacturer of ivermectin, and in the early days
-
-默克还给WHO捐过40亿盒的伊维菌素
-
-Merck donated 4 billion boxes of ivermectin to the WHO.
-
-是捐献 发放到非洲这些 高寄生虫发病国家
-
-It was a donation that was distributed to countries in Africa that had a high incidence of parasites
-
-所以那么多年 30-40年用下来
-
-So over the years, 30-40 years of use.
-
-伊维菌素到目前记录在案的严重副反应只有28例
-
-Ivermectin has only 28 cases of serious side effects recorded so far
-
-只有28例到目前为止
-
-Only 28 cases so far
-
-而且最严重的一例就是 急性肝炎
-
-And the most serious case is acute hepatitis
-
-然后 停药了以后 排毒 这个病人后来也挺好的
-
-Then, after stopping the drug, the patient was detoxified and did well afterwards.
-
-没有一例死亡的
-
-Not a single case of death
-
-28例所谓严重副反应是皮肤反应 胃肠道出血
-
-The 28 so-called serious side effects were skin reactions and gastrointestinal bleeding
-
-最后停药后都好转了
-
-Finally, they all got better after stopping the drug
-
-所以说这个药物致失明 心衰 那真的是夸大其词了
-
-So to say that this drug causes blindness and heart failure is really an exaggeration
-
-就是不想让我们用这个药 明显
-
-They just don’t want us to use this drug, obviously
+[https://www.msn.com/en-us/money/companies/trump-s-new-media-company-is-under-investigation-by-federal-regulators/ar-AARwGeZ](https://www.msn.com/en-us/money/companies/trump-s-new-media-company-is-under-investigation-by-federal-regulators/ar-AARwGeZ)
 
  
 

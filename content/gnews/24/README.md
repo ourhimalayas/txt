@@ -2,29 +2,50 @@
 ---
 
 
-## 七哥谈港币
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1727137/)
+## 西班牙调查发现：疫苗护照对降低新冠病毒感染率没有影响
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1727334/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+据《零对冲》作者：TYLER DURDEN，2021年12月4日发布：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-305-e1638820109741.png)图片源自零对冲
+**西班牙专家的一项调查认为，疫苗护照对降低新冠病毒感染率没有显著影响。**
 
-那么在看到今天的香港的时候，香港就是什么，香港是挂靠美元的，香港今天33000点，他只要跌破30000点香港的恒生它就撑不住了，撑不住香港所谓的5000亿美元的外汇储备和经济体量瞬间就会跌破。跟美元挂什么钩，你美元现在多少钱，而且实际上港币已经逐渐被大陆化了。是吧，这种情况下它最终港币一定会消失，而且现在西方和沼泽地的资本家希望港币不要消失，因为港币是中共和美国人之间的这叫什么叫情夫币，人民币有本币，还有所谓的海外流通币，海外流通币就是海外承认的跟国家货币置换的叫本币兑换的名下的币，不在市场流通的，国内的本币流通就是国内自己玩的币，就是冥币，钞票，纸。那香港这是个国际上流通的可以认可的币，它是洗钱，帮共产党掠夺，特别是家属搞钱的一个工具。家属跟谁搞啊，跟谁掠夺呀，就是跟华尔街这些西方大佬，他们不希望港币倒，但是恒生的这个擀面杖的经济，由于香港现在整个的没落，外资的撤出，它一定也会倒，那么大家想到你遇到1990年以来最大的金融危机。
+El Pais获得了由西班牙跨地区新冠病毒委员会进行的这项研究的细节，《每日电讯报》对此进行了报道。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+通过研究该计划在其他欧洲国家的实施情况，专家们发现规定人们在进入酒吧、餐馆和电影院等场所时必须出示疫苗接种证明“并没有降低新冠病毒传播水平。”
 
-**关注我们**
+该报告指出：“在正在使用疫苗护照的欧洲国家，病例正在大幅上升，尽管他们的疫苗接种水平确实比西班牙低得多。”
 
-Discord 账号
+尽管西班牙在国家层面上没有疫苗护照，但17个地区中的8个正在使用类似的系统。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+报告指出研究人员还得出结论，疫苗护照“造成了一种错误的印象，即接种疫苗的人不会被感染，而事实上大约40%的接种疫苗的人容易被感染并传播病毒。”
 
-Gettr 账号
+**疫苗护照的唯一积极意义在于它“警告人们，大流行病仍然存在危险，并鼓励人们接受疫苗接种”。**
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+换句话讲，尽管疫苗护照对减少新冠病毒的传播这一既定目标没有明显的影响，但它们确实成功地使人们保持恐惧和接受服从。
+
+而这也许是才是首要目标。
+
+Ken Macon写道：“这些发现与英国政府发现的证据相似，疫苗护照可能增加该国的新冠病毒感染率。”
+
+**“英国威尔士的政府也发现，尽管引入了疫苗护照，但他们找不到任何证据表明疫苗护照发挥了作用。”**
+
+众多欧洲国家已经实施了疫苗护照计划，将接种者与未接种者隔离开来。
+
+在某些情况下，提供阴性测试结果的选项已被取消，这意味着只有那些完全接种疫苗的但仍然可以传播病毒的人才被允许进入会场。
+
+原文链接：[https://www.zerohedge.com/covid-19/spanish-investigation-finds-vaccine-passports-have-no-impact-infection-rates](https://www.zerohedge.com/covid-19/spanish-investigation-finds-vaccine-passports-have-no-impact-infection-rates)
+
+翻译：洛杉矶盘古农场–KY
+
+校对：洛杉矶盘古农场–Mike Li
+
+评论：洛杉矶盘古农场–心照
+
+
+![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入: (或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

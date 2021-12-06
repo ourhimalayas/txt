@@ -2,29 +2,26 @@
 ---
 
 
-## 七哥谈马航事件与中国共产党
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1727177/)
+## 德国下任外长从一开始就激起了中共国的怒火
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1727378/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+翻译：蚂蚁兄弟
+![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕截图-2021-12-06-211852.jpg)图片来源 ：abc.es
+德国的下一任外交部长，安娜莱娜-贝尔博克，在她还没有宣誓就职的时候就已经引发了她的第一个外交裂痕。周四，她在接受以极左翼煽动为特征的柏林日报《TAZ》采访时表示，赞成对中共国等独裁政权采取更强硬的外交手段，不排除抵制2022年2月在北京举行的下届冬奥会的可能性。“从长远来看，沉默不是一种外交形式，即使近年来有些人这样认为”，她批评保守派默克尔和她的上一任外交部长、社会民主党人海科-马斯，但没有直接点名。
 
-马航的事件对共产党的内部啊，它这个是什么概念，这个黎磊石，黎磊石的家人当看到江绵恒，两天约他的时候，他家人就知道完了，告诉黎磊石，你要出事了，是吧。说这个黎磊石能这个时候见你，跟你谈这些事情，这么安慰你，不是好事，这是原话告诉我的，就没想到这黎磊石最后给干掉了。所谓爬楼死，跳楼死，纯粹胡扯，包括李专家，我们这个李晓春，一样！ 在这之前也是江绵恒跟他见面，然后是孙立军和孟建柱还参与了见面，完了，孟建柱他妈都换了心脏，肾脏都换过，得杀多少新疆人啊，这事他怎么能给习知道呢，你想想。习知道后会是什么严重后果。所以马航的事件巴黎问得好，非常好，会是一个很大的转折啊。谢谢！
+“我们欧洲人不应该让自己变得渺小，我们有世界上最大的国内消费市场之一，中共国需要这样的市场”。她辩解道。在联合协议的文本中，自由社会民主党和绿党提到了新疆省的人权侵犯行为，根据非政府组织的说法，中共国在新疆的集中营中监禁了超过一百万的维吾尔人，他们赞成呼吁恢复香港的自治原则。贝尔博克在采访中提出了可能对来自中共国新疆地区的产品实施进口禁令，并不排除抵制奥运会的可能性。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+中共国驻柏林大使馆昨天发表声明，对未来部长没有“全面看待德中关系”表示遗憾。“我们需要的是桥梁建设者，而不是拆墙者”，一位女发言人写道，她以愤怒的语气感叹道，“有些人为了中欧和中德关系，把越来越多的分歧和差异带到前台，并谈论系统性竞争。希望德国个别政治家客观、全面地看待中共国和中德关系，积极尊重中共国的核心利益和主要关切，并将更多精力投入到推动双方在各领域的务实合作中。”文中完美地暗示，中共国外交不会在贝尔博克将其诡辩注入德国外交的时候无动于衷，中共国愿意“在相互尊重、平等和互利的基础上，扩大与新联邦政府的共同利益”，文章总结道。
 
-**关注我们**
+新闻来源：[abc.es] [La próxima ministra de Exteriores alemana empieza soliviantando a China](https://www.abc.es/internacional/abci-proxima-ministra-exteriores-alemana-empieza-soliviantando-china-202112050126_noticia.html)
 
-Discord 账号
+* * *
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+*审核：Aries的星
+校对：信心满满
+发布：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3.jpeg)
 
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

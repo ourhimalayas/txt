@@ -2,118 +2,28 @@
 ---
 
 
-## H-pay的发展窗口期
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1727490/)
+## 无底线中共再次突击北京盘古，新中国联邦吹响反击集结号
+` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/1727612/)
 
-[https://gtv.org/video/id=61ae37e087fa7e74c92c460c](https://gtv.org/video/id=61ae37e087fa7e74c92c460c)
+新西兰伊甸农场Gnews组 财经G乐部 – 亚伦
 
-**郭文贵**
-**Miles Guo**
 
-刚才我说了就是H-pay, 和银行和使用客户的关系
-What I just said is the relationship between H-Pay, banks and customers
 
-现在为啥数字银行重要，就未来是很多这个KYC以后的使用者
-Why digital banking is important now, there will be a lot of KYC users in the fu-ture
+据12月6日郭文贵先生的GTV健身直播中称，一位盘古的离职员工向他透露，北京七星级盘古酒店又被突击查封。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/630c1965b6827fc1d7affe421fe20a65-1.jpg)图片来源Gettr
 
-互相之间的传递和支付，点到点的支付，第一批上线也就是1月中旬
-Transfer and payment between each other, point-to-point payment, the first batch of online will be in mid-January
 
-那么你要有数字银行的话，你就方便多了
-Then you have to have a digital bank, it will be much more convenient for you
+中共阵势唬人，去了一百多个特警、一百多个法警、一百多个北京金隅（王岐山的）的人，还有北京高等法院的人，把盘古酒店周边拉上警戒线。不仅封锁了盘古里面的147套公寓和空中四合院，还把一千多位无辜的盘古员工在没收手机后驱赶到冰冷的马路上。执法过程凶狠弥漫着浓烈黑帮味道，凶残到把有些轮班的正穿着睡衣睡觉的员工撵到马路上。除此之外，郭先生90多岁中风状态下的父亲也在这次突然行动中从盘古四合院的家中赶了出去，目前还处于失联的状态。
 
-你没有数字银行, 那传统银行给你说，我每一笔都要KYC，你不就完蛋了吗
-If you don’t have a digital bank, the traditional bank tells you that we want you to do KYC for every single transaction, you will be in trouble
+中共以黑治国、以警治国暴露无余，习近平今天做的这些举动，再次打脸西方社会媒体造谣说习近平和郭先生的关系好。“关系好”可以用这么极端暴力的手段虐待郭先生的员工和家人，用威胁家人的下三滥手段来达到自己猥琐的政治目的。西方被收买的丑恶媒体人们可以拿起自己的鞋底狠狠的抽自己的脸了，可以任意抓别人的家人，将来也可以任意抓你们的家人。
 
-第一笔的，点到点的，非商业性的，叫做契约性的支付
-The first deal, point-to-point, non-commercial, called contractual payment
+一切都在表明灭共的道路艰辛，付出的代价很大。
 
-仅限于KYC战友之间，后来商家加入以后，扫码制
-only between KYC comrades-in-arms, after the merchant joins in, we will go online to scan code payment and support the use of pos machines
+但是，郭文贵先生并不会被这种卑鄙下三滥的绑架家人的手段所屈服，否则就不会搞新中国联邦、爆料革命。不但如此，会用合法的手段让任何为虎作伥的走狗们和幕后主使们付出更多的代价。因为不管是北京金隅的人，大连法官的代表，北京高院的人，和所有背后做决策的人你们也都有家人，你们一个都不会在宽恕名单里。
 
-主要是在这个国家被批准了，被这个国家被批准了
-Mainly approved in this country, approved by this country
+眼泪无用，眼泪是失败者的工具。贪嗔痴慢疑是佛教所说的五毒心一样也不能有，否则就会被无底线的中共所利用，只有忘掉这些。灭共是信仰，必须有绝对的心里承受的能力，否则就会被击垮。他们的非法无耻的行动恰恰说明了他们的恐惧和软弱（只有能力攻击周边的无辜人士），他们的行动就是将来依法惩罚他们的证据，他们的行动就是我们反击的动力。在大家安全的前提下继续传播中共病毒和毒疫苗的真相，不做无畏的牺牲。
 
-在台湾有了这个金融牌照，支付牌照
-With this financial license, payment license in Taiwan
-
-那就是商家所有的台湾商家都可以接受，就不用你每个去说都可以接受
-that means all Taiwanese merchants can accept this way to do the business, so you don’t have to tell everyone to accept it
-
-那么一扫码就可以支付了，然后只有传统银行和数字银行的支持就可以了
-Then you can pay by scanning the code, and then only the support of tradition-al banks and digital banks is enough
-
-那么现在我们只是有自己的银行和自己的传统银行来支持
-So now we just have our own bank and our own traditional bank to support
-
-那么战友们要去做很重要的事情，为啥我说你要推广H-Pay呢
-So the comrades-in-arms have to do very important things, why do I say you need to promote H-Pay?
-
-你找商家加入以后，马上现在咱们给大家的奖励
-After you find a merchant to join in, we will give you a reward right away
-
-所有你这个地区的，你来代理的所有的支付系统的收费
-You will be the agent to collect all the fees of all payment systems in your area
-
-分成给你是终生的，所以这一段时间是给你留了窗口期
-You get dividends for your life, so this period of time is a window period for you
-
-让你去发展自己的现代点到点到非商业性的支付系统
-Let you develop your own modern, point-to-point to non-commercial payment system
-
-是你拉商家最关键的问题，商家最开心是哪里
-The most critical question for you to attract a business in, what benefits do merchants get？
-
-你可以给它做个承诺，你这是HDO，你说的不是H-Coin
-That is you can make a promise to it, this is HDO, not H-Coin that you mentioned
-
-点到点，因为稳定的问题，我只能跟你HDO来结算
-Point to point, because of stability issues, I can only use HDO settle with you
-
-你分分钟可以结算，我一星期或者一个月给你结算, 结算不了我负责
-You can settle in minutes, I will settle it for you in a week or a month, I’m re-sponsible for the settlement
-
-甚至你告诉它涨了是你的，跌了是我的
-even you can tell them if it goes up that it’s yours, and if it goes down that it’s mine
-
-你要拿你的HDO，比如说，你找了一个卖牛肉的店
-You want to take your HDO, for example, you find a beef shop
-
-它收了你1000个HDO, 它马上买了H-Coin，那你可以马上就可以买
-It received 1000 HDO from you, it bought H-Coin right away, then you（beef shop）can buy it right away
-
-这是你的事儿了，这是你在投资的问题
-this is your business, this is your investment
-
-但是HDO是100%保证你不会贬值的，你有什么有担心的，是不是
-and HDO is 100% guaranteed that you will not depreciate, what are you wor-ried about, right?
-
-所以各个战友有自己的战略和手段，去推销自己的H-Pay
-So each comrades-in-arms has his own strategy and way to promote his own H-Pay
-
-这是非常关键的，我相信这是一个绝对利好的机会
-This is very crucial, I believe this is an absolutely good opportunity
-
-**原视频链接**[:](https://gettr.com/post/piobb489c5)[https://gettr.com/post/piobb489c5](https://gettr.com/post/piobb489c5)
-
-Date:12/05/2021
-原视频标题: H-pay的发展窗口期
-H-pay’s development window period
-原视频日期：2021/12/03
-原视频链接https://gettr.com/post/piobb489c5
-任务编号：3109
-视频时间段 : 0:00-2:19
-
-中听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 -青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+中共不灭，天理不容！
 
  
 
