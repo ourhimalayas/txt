@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/6/2021 2:06 AM (UTC)`
+
+12/05/2021 Miles Guo: All the entrepreneurs in Communist China are like the CCP’s mistresses. Not only do their families end up being sacrificed, but the CCP is also using them to elicit a debt crisis to bring down the US economy. The CCP plays such dirty tricks everywhere<br/><br/>12/05/2021文贵直播：中共国的企业家都是中共的小三，他们不仅连家人都沦为牺牲品，而且还被中共拿来制造债务危机从而搞垮美国经济，中共这种流氓的手段无处不在<br/>
+![img](https://media.gettr.com/group20/getter/2021/12/06/02/ac8fb8f2-d54f-9254-774e-b0472034341a/out.jpg)
+
+---
+
 `@miles 12/6/2021 12:26 AM (UTC)`
 
 12/05/2021 Miles Guo: The greedy people in cahoots with the CCP have been infected with "economic AIDS". The CCP plans to bring down the Western finance and economy through the collapse of Evergrande, R&F Properties and other real estate developers, and the biggest victims will be the Chinese people, who will not only be looted of the wealth of previous generations, but also will continue to be enslaved in the future<br/><br/>12/05/2021文贵直播：和中共勾兑的贪婪者已染上“经济艾滋病”，中共计划通过恒大、富力等地产商暴雷干掉西方金融和经济，受害最大的将是中国老百姓，不但前几代人的财富被洗掠，未来还要继续做奴隶<br/>
@@ -143,13 +150,6 @@ Hcoin To The Moon <br/>iTunes Ranking No. 1 🥇<br/>iTunes 打榜第一名🥇<
 `@miles 12/4/2021 7:39 AM (UTC)`
 
 “Hcoin To the Moon” Hits #1 🥇on 1st Day of Launch on iTunes in Multiple Countries. <br/>Thank you my dearest brothers and sisters around the world!<br/>🎉🎉🎉🎉🎉🎉🎉❤️❤️❤️❤️❤️❤️❤️<br/><br/>https://gnews.org/1718446/<br/><br/>Hcoin To the Moon 上线第1天位列多国iTunes音乐榜首!<br/>衷心的感谢世界各地亲爱的兄弟姐妹们! 🎉🎉🎉🎉🎉🎉🎉❤️❤️❤️❤️❤️❤️❤️<br/><br/>https://gnews.org/zh-hans/1718337/
-
----
-
-`@miles 12/4/2021 6:48 AM (UTC)`
-
-12/3/2021 Miles Guo: Xi Jinping's meeting with Wang Qishan between August 1 and 16, 2021 shows that Xi and Wang were not in touch and that Wang was treated as a former CCP cadre; both Song Ping and Hu Jintao suggested Xi to take down the forces of the Jiang family, Wang Qishan, and Meng Jianzhu and to take the ultra-left path<br/><br/>12/3/2021 文贵直播：习近平跟王岐山在2021年8月1日到16日期间的会面说明习王平日无联系且王被当成老同志；宋平和胡锦涛都向习建议干掉江家、王岐山和孟建柱的势力并要习走极左道路<br/>
-![img](https://media.gettr.com/group1/getter/2021/12/04/06/48/8b23dcd8-b238-5900-3579-5620ebb95196/out.jpg)
 
 ---
 
