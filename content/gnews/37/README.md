@@ -2,34 +2,31 @@
 ---
 
 
-## 日本要闻汇编 12月5日
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1723914/)
+## 圣诞节临近美国航运停滞情况恶化
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1724058/)
 
-素材：东京樱花团丨GNEWS组
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-250.png)[*图片来源*](https://www3.nhk.or.jp/news/html/20211204/k10013374401000.html?utm_int=news-culture_contents_list-items_006)
-1、[**厚劳省将心肌炎等规定为严重不良反应**](https://www3.nhk.or.jp/news/html/20211204/k10013374401000.html?utm_int=news-culture_contents_list-items_006)
+据《零对冲》作者泰勒·杜登（ TYLER DURDEN ）2021 年 12 月 4 日 报道
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image002-2.jpg)图片来自网络
+拜登总统告诉美国人，圣诞节前供应链处于“非常强劲的状态”。拜登周三在白宫发表讲话说，他的政府已与私营部门合作，以“确保商场货架上堆满货。”但新的航运数据显示，拥堵的供应链正在恶化，这可能需要数月时间才能解决。
 
-厚生劳动省3日召开了一次专家委员会会议，建议在Moderna和辉瑞疫苗各自的包装说明中，将心肌炎和心包炎规定为 “严重不良反应”，并要求谨慎行事。此外，法律将要求医疗机构在接种疫苗后28天内详细报告任何心肌炎或其他不良反应的案例。
+来自美国最繁忙的港口，加利福尼亚的洛杉矶和长滩的最新航运数据显示，有 96 艘集装箱船在海上停置，等待卸货。
 
-2、[**日本拟不再允许留学生免税购物**](https://china.kyodonews.net/news/2021/12/c56efbbf5645.html)
+货运浪潮公司（FreightWaves） 的格雷格·米勒（ Greg Miller ）将新的船舶排队系统[描述为](https://www.zerohedge.com/economics/how-california-solved-its-record-ship-pileup-it-moved-them-out-sight-over-horizon)纯光学（纯粹为了视觉效果），它减少了洛杉矶/长滩近海的船舶数量。他说，船只被放置在更远的海洋中，眼不见心不烦，以防止航拍抓拍到集装箱船拥堵停滞困境的图像。
 
-日本政府和执政党5日就针对访日外国人的消费税免税制度敲定了方针，将把外国留学生等长期逗留者排除在对象之外。由于允许在入境半年内免税购物，但确认是否为对象人群的作业繁琐，且留学生倒卖免税品的行为泛滥，因此在2022年度税制修改时将调整该制度。
+新的排队系统将货船分为几类：40 艘停泊在距港口 40 英里范围内，56 艘停泊在该范围之外。随着美国的最大的集装箱港口货船排队继续变长，拜登拯救圣诞节的奇迹似乎正在失败。
 
-3、[**因中共病毒孤立无援的育儿家庭现状报告**](https://www3.nhk.or.jp/news/html/20211205/k1001337552)
+同样恶化的是等待时间。现在，一艘船进入这两个港口需要等 21 天或者说三周的时间，而 8 月份则为 7 天。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image004.gif)
+拜登减少货船停留时间的努力没有奏效，即使他在 10 月中旬宣布了一项新[指令](https://www.zerohedge.com/markets/port-los-angeles-prepares-247-operations-tackle-massive-cargo-backlog)，要求两港口全天候运营。我们当时在一篇题为“[这是拜登全天候港口运营承诺背后的真相](https://www.zerohedge.com/markets/heres-truth-behind-247-port-operations-pledge)”的文章中指出，此举不能挽救圣诞节。
 
-据NHK5日消息，横滨市举行了日本防止虐待儿童协会上，神奈川县防止虐待儿童研究小组主席Emi Oba报告说，由于新冠词导致缺乏支持，孤立的育儿家庭数量增加。全国儿童指导中心处理的虐待儿童案件数量超过20.5万起，是有史以来最高的数字。
+有更多证据表明总统的供应链正在缓和的说法是有争议的。货运浪潮公司）的克拉丽莎·霍斯 (Clarissa Hawes) 说：“我们正被码头的排长队和人员配备问题淹没。” 她说，有缺陷的预约系统，和拖运卡车司机的其他效率问题，继续困扰着这两个港口。
 
-4、[**天皇长女爱子在皇宫举行成年仪式**](https://china.kyodonews.net/news/2021/12/e984529a3d2e.html)
+拜登拯救圣诞节的尝试似乎失败了。但仍有时间召集国民警卫队。至少现在，拜登政府可以将一些商场货架仍然空空如也的原因，归咎于新的中共病毒变种欧米克戎（ Omicron ）。
 
-日本天皇夫妇的长女爱子5日在皇宫宫殿等处举行了成年仪式。她身着女性成年皇族的正装礼服裙、戴着头冠，在皇宫宫殿向天皇夫妇致以问候。
+原文链接：[https://www.zerohedge.com/markets/us-ship-logjam-worsens-bidens-attempt-save-christmas-fails](https://www.zerohedge.com/markets/us-ship-logjam-worsens-bidens-attempt-save-christmas-fails)
 
-5、[**新宿举行支持在日外国人集会**](https://www3.nhk.or.jp/news/html/20211205/k10013375551000.html?utm_int=news-politics_contents_list-items_003)
+翻译：JS709｜校对：Nick｜编辑&发布：断播
 
-据NHK5日消息，为支持生活在日本的外国人，特别是最近才抵达日本的难民，由亚洲福利和教育基金会组织，在东京新宿区举行了一次集会，100多人参加。
-
-*编辑：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

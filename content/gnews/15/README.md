@@ -2,66 +2,44 @@
 ---
 
 
-## 前国务卿蓬佩奥： 还有两个月就是北京冬奥会 开幕式，抵制北京冬奥会 还不算晚
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1724203/)
+## 联合影像拟中标医疗设备，生物间谍风险令澳洲担忧
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1724309/)
 
-前国务卿蓬佩奥： 还有两个月就是 [#北京冬奥会](https://twitter.com/hashtag/%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E4%BC%9A?src=hashtag_click) 开幕式。 抵制 [#北京冬奥会](https://twitter.com/hashtag/%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E4%BC%9A?src=hashtag_click) 还不算晚。
+## 【雅典娜快讯】，紧贴时代脉搏
 
-
-
-> 2 months to the [#Olympics](https://twitter.com/hashtag/Olympics?src=hash&amp;ref_src=twsrc%5Etfw) opening ceremony. 
-> 
-> It’s not too late to [#BoycottBeijingOlympics](https://twitter.com/hashtag/BoycottBeijingOlympics?src=hash&amp;ref_src=twsrc%5Etfw).
-> — Mike Pompeo (@mikepompeo) [December 4, 2021](https://twitter.com/mikepompeo/status/1467258731201273864?ref_src=twsrc%5Etfw)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/812-3.jpg)图片来源：United Imaging & Twitter.com
 
 
 
-众议员布莱恩·马斯特： 提醒：安东尼·福奇用纳税人的钱以“科学”的名义杀死小狗。没有人选他，但乔·拜登认为他是总统。 【附纽约邮报文章：在公布他的 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) ‘冬日计划’时，拜登开玩笑说福奇才是真正的总统】
 
+整理报道：文泓
 
+12月4日，据澳大利亚《每日邮报》报道，一家由中共政府支持的公司已接近获得澳洲一份价值1400万澳元的医疗设备合同，这引发了人们对澳洲敏感数据可能面临的风险，以及“生物医学间谍活动”的担忧。
 
-> Reminder: Anthony Fauci literally kills puppies with taxpayer dollars for “science.” Nobody elected him, but Joe Biden thinks he’s the President.[https://t.co/0qbZSiU3lA](https://t.co/0qbZSiU3lA)
-> — Rep. Brian Mast (@RepBrianMast) [December 6, 2021](https://twitter.com/RepBrianMast/status/1467660561332805641?ref_src=twsrc%5Etfw)
+悉尼大学正在考虑将这份标书授予联合影像公司（UIH），由该公司为皇家北岸医院提供包括PET/CT扫描仪在内的健康医疗设备，以检测肿瘤。
+情报界人士告诉媒体，非常担心该公司届时将能够浏览新州政府的健康数据，并将其传回中共国。
 
+**悉尼大学表示，联合影像公司为英国联合影像医疗公司所有，但该（英国）公司又为上海联合影像医疗公司所有。**
+一份尽职调查报告承认，该公司“拥有一系列非常复杂的股东，可能与中共政府有联系”。由于联合影像医疗已经在上海使用人工智能（AI）来审查病人数据，因此，中共政府渗透的可能性已经很大。
 
+“人工智能最大意义在于使用大数据。他们将可以，甚至不需要进入（澳洲政府）防火墙，将在扫描仪的源头积累大数据，然后将其送回中共国，”一位情报人士说。
+在某种程度上，这里的每一台机器都是生物医学间谍活动的（信息）来源，因为它可以搜集信息汇编生物医学大数据，中共国可以将其用于自己的技术发展。
 
-参议员罗恩·约翰逊： 我问一个简单的问题，福奇博士对 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 的应对有效吗？78.8万人丧生，其中许多人是因为他忽视并阻挠破坏了使用廉价、可用的普通药进行早期治疗，而他却支持用一种不如我们所有人希望的那样安全或有效的疫苗。
+这位人士继续说，上海UIH是由中共实体控制的，悉尼大学没有提醒澳洲政府拟议的招标是非常愚蠢的行为。
+《2020年对外关系法》要求所有公立大学在与外国政府实体达成潜在合作时都需要披露。法律规定，在事关国家利益方面，外交部长玛丽斯·佩恩拥有一票否决权。
 
+据了解，中共国的投标接近于获得与悉尼大学的1400万澳元合同。迄今为止，他们已经完成了澳大利亚法律、其他政府制裁和国防出口管制上的工作流程。
+悉尼大学证实，关于这项交易的决定正在等待中，采购程序正在进行中。
 
+新闻链接：[https://www.dailymail.co.uk/news/article-10271557/Fears-health-records-Australians-end-hands-China-14million-deal-looming.html](https://www.dailymail.co.uk/news/article-10271557/Fears-health-records-Australians-end-hands-China-14million-deal-looming.html)
 
-> I ask a simple question, did Dr. Fauci’s response to COVID-19 work? 788,000 lives lost, many because he ignored and sabotaged early treatment using cheap, available, generic drugs in favor of a vaccine that is not as safe or effective as we all hoped it would be.
-> — Senator Ron Johnson (@SenRonJohnson) [December 5, 2021](https://twitter.com/SenRonJohnson/status/1467600296897622016?ref_src=twsrc%5Etfw)
-
-
-
-众议员肯·巴克： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 正在追捕居住在国外的台湾人，以将他们引渡回大陆，在那里他们面临着人权侵犯的高风险。 如果这些人犯了罪，就应该被遣返回台湾，而不是中国大陆。 【转bbc: 报道称数百名台湾人被引渡到中共国（接上） 一个人权组织的一份新报告发现，近年来有超过 600 名在海外被捕的台湾人被驱逐递解回 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)。 捍卫卫士说，这种做法被“用作破坏台湾主权的工具”。 台湾认为自己是一个独立的国家，长期以来一直坚持将在国外被捕的台湾人送回该岛。 但北京将台湾视为属于中国一部分的分离省份。】
-
-
-
-> China is hunting down Taiwanese people living abroad to have them extradited back to the mainland, where they are at high risk of human rights abuses. If these individuals have committed crimes, they should be returned to Taiwan, not to mainland.[https://t.co/dXKHMAvYN5](https://t.co/dXKHMAvYN5)
-> — Rep. Ken Buck (@RepKenBuck) [December 5, 2021](https://twitter.com/RepKenBuck/status/1467529998668124160?ref_src=twsrc%5Etfw)
-
-
-
-参议员瑞克·斯科特: 我很自豪能与参议员霍利和我们的同事们一起，提出这项重要的法案，以加强我们与 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 的经济和安全伙伴关系，并加强旅客的安全和保障。随着 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 侵略行径的加剧，这是朝着正确方向迈出的一大步。 【转参议员霍利新闻办推文：参议员霍利和同事提出法案以推进台湾的预清关设施】
-
-
-
-> I was proud to join [@HawleyMO](https://twitter.com/HawleyMO?ref_src=twsrc%5Etfw) & our colleagues to introduce this important bill to strengthen our economic & security partnership with Taiwan & bolster the safety & security of travelers. As Communist China's aggression grows, this is a great step in the right direction. [https://t.co/6XmhkY91oF](https://t.co/6XmhkY91oF)
-> — Rick Scott (@SenRickScott) [December 4, 2021](https://twitter.com/SenRickScott/status/1467175199879872512?ref_src=twsrc%5Etfw)
-
-
-
-前国务卿迈克·蓬佩奥： [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 对美国构成了最大的外部威胁。几十年来，中共在美国工人的支持下发展了经济。 川普总统是第一位确认这一点并予以反击的美国总统。 他展示了我们可以获胜，但我们必须认真对待。 【附视频，蓬佩奥接受福克斯新闻采访】
-
-
-
-> The CCP poses the singular greatest external threat to the U.S. It has grown its economy on the backs of the American worker for decades.
-> 
-> Pres. Trump was the first POTUS to acknowledge that & push back. He showed we can prevail, but we have to be serious. [https://t.co/2TSCMxI7Sz](https://t.co/2TSCMxI7Sz)
-> — Mike Pompeo (@mikepompeo) [December 4, 2021](https://twitter.com/mikepompeo/status/1467150705911865346?ref_src=twsrc%5Etfw)
-
-
+**编辑****/发布：文泓**
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

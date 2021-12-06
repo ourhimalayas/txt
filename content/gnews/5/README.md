@@ -2,32 +2,26 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月5日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1724327/)
+## 印俄将签署海军后勤协同保障协议：共享港口设施、相互加油维修
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1724619/)
 
-作者：香草山翻译部
+**撰稿：东京樱花农场/百花李香**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3-13.jpg)[图片来源](https://www.voachinese.com/a/russia-tries-to-close-ties-with-india-to-balance-relations-to-china-20201229/5717409.html)
+据《读卖新闻》网站12月6日报道，印度和俄罗斯两国正在协调缔结一项协议，允许俄罗斯海军舰艇使用印度港口设施和海军基地进行加油和维修。印度总理莫迪和俄罗斯总统普京定于12月6日在印度首都新德里举行峰会，预计他们将讨论该协议的签署。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-109-1280x172-1-2-1.jpg)
+据一位印度政府高级官员称，根据协议草案，俄罗斯海军舰艇将能够在印度沿海的港口进行加油和补充燃料，如果发生事故或其他紧急情况，也可以在印度洋的海军基地进行加油。另一方面，印度海军将能够从俄罗斯海军舰艇的航行中获得加油支持，并能够在俄罗斯远东地区附近作战。
 
+另外，还达成了一项在印度许可生产50万支俄罗斯步枪的协议。这些能够应对严冬的步枪将被部署在中印边境地区的部队和其它地方。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1205text-SC-1.png)
-校对：Stay文苑
+虽然印度是与日本、美国和澳大利亚组成的四国框架的成员，但它与俄罗斯保持着军事关系，并在11月引进了俄罗斯制造的最新S400防空导弹系统。在与中共的边界对抗中，美国希望加强与俄罗斯的关系并保持其 “战略自主权”。然而，美国对引进S400和其他系统表示不满，这可能会影响到四方的合作。
 
-编辑：Stay文苑
+信息来源：
 
-发稿：Stay文苑
+[【独自】インド海軍基地、ロシア利用の協定協議…６日に首脳会談](https://news.yahoo.co.jp/articles/f210a1e45cd0847f6d2002bd359f5eed5af1078a)
 
-视频参看：[12.5  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61ad6740bbd75f62e53022d6)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-69.jpeg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

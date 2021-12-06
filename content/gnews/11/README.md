@@ -2,114 +2,48 @@
 ---
 
 
-## 视频| 爆料革命掌握共产党“马航”事件的核心机密
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1724282/)
+## G-Fashion在时尚界将真正开始像喜联储一样的新世界
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1724480/)
 
-## 摘自2021.12.3郭先生大直播
+**郭文贵先生：**我告诉大家一个消息，昨天下午G-Fashion开会，你知道Doaa和Kamel（注：同音字）在欧洲呢，我上次跟Rachel我们在办公室开会的时候，就下午我在那站着,Mandelli,Mandelli谁做衣服？Bijan就是我穿那黄夹克，Bijan yellow house，Stefano Ricci，你看那柜子。
 
-制作：香草山视频部
+这俩牌子是比爱马仕是高百倍千倍，这两个称为什么？——世界上皇族玩的，Billionaire穿的衣服，爱马仕是你有钱人谁都可以买的。第三个，Loro Piana，是羊绒羊毛材料之王。第四个就是现在大家都看到的，也是比较火的火牌Rick Owens一系列。
 
+Mandelli这个先生极为的安静，世界上这些高的品牌所有的包括爱马仕的一些包、绝品还有那鳄鱼，都是他做的，号称时尚界的真的是时尚界的王。我们的衣服现在是跟他做，Rachel你知道，你在现场都看到了那个质量，是吧？
 
+头一段时间，Kamel、Doaa跟我说：“郭先生，我们特别担心 Mandelli先生（因为）我们的量太大，人家不愿意跟我们做了。”担心这担心那，当时我就告诉他们：“你俩记住，不会超过两个月，你会把你俩的话都给我咽回去。”他说为什么？我说：“因为你们太无知，你不知道谁叫郭文贵，你也不知道我们G-Fashion有多牛，走着看。”
 
-马航的事情一定是孟建柱和江绵恒
-还有当时的这几个医学家出事儿
-绝对是有关系的，绝对是杀人灭口
-特别是飞机的牵引技术
-特别是在欧盟
-当时还没有脱欧的英国
-还有现在的美国
-它是个很大的事情
-他能把它给牵走了
-他把谁的飞机都能牵走了
-现在美国已经基本上知道
-咱们爆料革命有史以来
-知道咱们是掌握着
-核心的共产党的机密和情报的
-因为他们一开始是都不相信的（认为）这是阴谋论
-那么现在西方..我们见面
-当时的CIA部门，我跟他们说过
-我说马航一定是不正常
-他说，我不觉得中国有这种牵引技术
-如果有这个牵引技术就不正常
-我说中国有这个牵引技术
-而负责人就是江绵恒
-现在美国发现了不但能停你的手机
-（还能）全球的手机监听
-最近大家看到很多
-咱们做的视频都出来了吧
-中共可以世界上..
-它叫做全世界的数据帝国
-它就能掌握全世界各种数据
-能监听全世界任何一个手机任何一个电脑
-这一点都不用怀疑
-所以说你想躲你是可以的
-但是你天真地认为你能躲得了那是灾难
-就像这个马航事情
-美国西方知道了以后
-雷达、车、收音，都能控制
-那么在这种情况下马航的事件
-为什么西方人认定了
-共产党真的有干掉世界的野心
-而且它也敢，它有这个技术它有这个能力
-那么现在这个病毒的事情证明了这一点
-所以马航的事情迟早会出来的
-马航的事情一旦最后出来
-对爆料革命来讲，对全世界来讲
-既是个荒唐的笑话，
-为什么一帮（他们以为的）所谓的“骗子”
-能说出这么多的真相出来和事实
-他们这些国家拿着人民的纳税钱
-统治着那么多人都没有做出来
-那么马航的事情就是我们遭受的待遇
-很多人都说我们是流氓、骗子、吹牛、绯闻
-但是最后证明我们是真实的
-你不觉得这是荒唐的吗？
-现在已经基本上大家都明白了
-马上绝不正常
-你看看马航的那几个总理
-还有现在的较量
-所有的背后的故事
-全的是孟建柱、王岐山、共产党
-所以这又说到北戴河的事情
-据说习见了军方的某人
-突然问了一句
-他说，你觉得马航的事情
-这个报告你也看了
-你觉得目前我们还有多少没有掌握的信息
-从这一句话，
-习问这个军方的人
-就掌握了习并不知道100%的事实
-习也有很多是震撼的
-但是他知道这件事是他们干的
-他还担心的的还有啥我不知道的
-这位军方的人想了几秒钟说了句话：
-“你务必要注意你的安全，近平啊“
-拍拍手…近平走了
-你看看近平还出来过吗？
-从那时候还出来过吗？
-有一两年没出来过，是吧
-能牵引马航的飞机
-也能牵引你习近平的所有的车
+这两天去欧洲开会去了， Mandelli先生安静地请到办公室，他说：“我们 Mandelli，迈阿密一个人Billionaire，想开 Mandelli在迈阿密，但是他不懂时尚，我们拒绝了。但是现在我觉得跟郭先生打交道，还了解了郭先生，看到疫苗、爆料革命、盖特、G-TV，特别是喜币喜联储，我们想给郭先生……”谦虚地说：“可不可以把美国所有Mandelli的代理权给G-Fashion？你们可以开 Mandelli所有的店。”
 
+当时对Doaa、Kamel来讲，当时就傻在那了：“多少钱？”他说：“Zero，不要钱，不要钱” “真的？” 不要钱，这是教父级的，你但凡懂得服装业，他就是教父级的。“第二， Mandelli的品牌你们随便用， Mandelli和G-Fashion从现在起你们可以合法使用。” 然后Kamel说：“这要不要钱？”“不要钱。”
 
+第三个，它的股东是谁知道吗？Mr. Stefano Ricci、 爱马仕、Tiffany，说：“如果郭先生愿意的话，也欢迎郭先生加入我们的股东。” 这是唯一一个亚洲人被邀请的，连三宅一生都想投，人家说不接受任何（新）股东。
 
+不是中国人想象的什么东西你都可以花钱买，Mandelli不是花钱可以买的，Mandelli先生是时尚界之教皇式这样的人物。咱走着看，G-Fashion将时尚界将真正地开始一个像咱们喜联储一样新的世界。
 
+字幕来源：[2021年12月3日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1720736/)
 
-发稿：雪梨
+视频制作：小满；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/M12.jpg)
+视频上传：撒骄的男宝好性感；
 
-**更多资讯，更多关注**
+G-News发布：黎明之前；
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
