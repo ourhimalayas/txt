@@ -2,26 +2,44 @@
 ---
 
 
-## 尽管乘客全面接种疫苗，美国游轮上依旧爆发中共病毒疫情
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1724291/)
+## 联合影像拟中标医疗设备，生物间谍风险令澳洲担忧
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1724309/)
 
-**编译：花岗岩**
+## 【雅典娜快讯】，紧贴时代脉搏
 
-**校对：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screenshot-2021-12-06-103340.jpg)
-根据美联社12月5日新闻的报道，一艘从墨西哥湾和加勒比海航行归来的挪威邮轮控股有限公司（Norwegian Cruise Line Holdings Ltd）旗下的挪威逍遥号游轮上依旧爆发了中共病毒疫情，尽管所有乘客都全面接种了疫苗。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/812-3.jpg)图片来源：United Imaging & Twitter.com
 
-该邮轮与11月28日从新奥尔良港出发，航行至伯利兹、洪都拉斯和墨西哥，船上有超过3000人。在返回母港之前，该邮轮公司在其客人和船员中发现了10例中共病毒感染，受感染的乘客和船员将直接回家或在一个未公开的地点进行自我隔离。
 
-尽管船上的疫苗接种率为100%，但仍有中共病毒的爆发，这表明疫苗根本不能真正有效预防中共病毒。人们怀疑随着美国各地新感染者的激增，船上会出现更多的爆发。
 
-去年中共病毒疫情开始时，游轮是早期的爆发源，因为一些船只在港口被拒绝，乘客被迫进入隔离区，甚至有一些乘客在海上死于中共病毒的情况发生。
 
-美国疾病控制和预防中心在2020年3月发布了禁航令，促使邮轮在新的健康和安全要求下开始离开美国港口，这种停滞状态在去年6月结束。
+整理报道：文泓
 
-**新闻来源**：1.[COVID outbreak on cruise ship approaching New Orleans](https://apnews.com/article/coronavirus-pandemic-business-health-louisiana-new-orleans-1f8edb74567df1abdbc29161d800056f)
+12月4日，据澳大利亚《每日邮报》报道，一家由中共政府支持的公司已接近获得澳洲一份价值1400万澳元的医疗设备合同，这引发了人们对澳洲敏感数据可能面临的风险，以及“生物医学间谍活动”的担忧。
 
-2. [COVID outbreak on cruise ship approaching New Orleans](COVID%20outbreak%20on%20cruise%20ship%20approaching%20New%20Orleans)
+悉尼大学正在考虑将这份标书授予联合影像公司（UIH），由该公司为皇家北岸医院提供包括PET/CT扫描仪在内的健康医疗设备，以检测肿瘤。
+情报界人士告诉媒体，非常担心该公司届时将能够浏览新州政府的健康数据，并将其传回中共国。
+
+**悉尼大学表示，联合影像公司为英国联合影像医疗公司所有，但该（英国）公司又为上海联合影像医疗公司所有。**
+一份尽职调查报告承认，该公司“拥有一系列非常复杂的股东，可能与中共政府有联系”。由于联合影像医疗已经在上海使用人工智能（AI）来审查病人数据，因此，中共政府渗透的可能性已经很大。
+
+“人工智能最大意义在于使用大数据。他们将可以，甚至不需要进入（澳洲政府）防火墙，将在扫描仪的源头积累大数据，然后将其送回中共国，”一位情报人士说。
+在某种程度上，这里的每一台机器都是生物医学间谍活动的（信息）来源，因为它可以搜集信息汇编生物医学大数据，中共国可以将其用于自己的技术发展。
+
+这位人士继续说，上海UIH是由中共实体控制的，悉尼大学没有提醒澳洲政府拟议的招标是非常愚蠢的行为。
+《2020年对外关系法》要求所有公立大学在与外国政府实体达成潜在合作时都需要披露。法律规定，在事关国家利益方面，外交部长玛丽斯·佩恩拥有一票否决权。
+
+据了解，中共国的投标接近于获得与悉尼大学的1400万澳元合同。迄今为止，他们已经完成了澳大利亚法律、其他政府制裁和国防出口管制上的工作流程。
+悉尼大学证实，关于这项交易的决定正在等待中，采购程序正在进行中。
+
+新闻链接：[https://www.dailymail.co.uk/news/article-10271557/Fears-health-records-Australians-end-hands-China-14million-deal-looming.html](https://www.dailymail.co.uk/news/article-10271557/Fears-health-records-Australians-end-hands-China-14million-deal-looming.html)
+
+**编辑****/发布：文泓**
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
