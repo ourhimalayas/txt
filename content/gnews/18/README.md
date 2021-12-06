@@ -2,48 +2,29 @@
 ---
 
 
-## 专家称中共国人口实际生育率正在快速萎缩
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1726885/)
+## 七哥谈Mandelli工厂
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1727002/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/nyc-testing-1200x800-700x420-4.jpg)图片来源：大纪元
-来自《大纪元时报》网站12月5日的报道，一位生育专家周五在路透Next(Reuters Next)会议上表示，中共政权可能低估了其人口下降的速度，而最近一项改善三孩家庭的政策对提高出生率帮助很小。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-威斯康星大学妇产科高级科学家易富贤(Fuxian Yi)说，他估计中共国2020年的人口为12.8亿，而不是人口普查报告的14.1亿人口，生育率也比报告的要低。易估计，自2018年以来，中共国人口一直在减少。
+人家现在允许咱们战友，欢迎所有咱们的战友GClub会员随时到意大利到Mandelli厂参加，并给你们做为介绍，让你们知道真正的，哇！！我跟你说啊，我去Mandelli是谁介绍的，爱马仕的老大，就是现在的保罗先生，而且我三次推荐去，当时都被拒绝了，我说这是多少年的事你知道吗，15年前，不止了。 这是96年的，是多少年了现在？25年。25年了，我这算错账了。25年前，然后我又等了5年后，我大概2000 年我才去看的，而且只看一部分，因为那里所有都是那些，爱马仕包，什么berkin包啊，你看世界价值10万美元一件的衣裳啊，5万美元都在这了，几乎全世界50-60%在那了，它不让人看，那里边的工厂你看完以后你中国人都感到羞愧了，你在国内电视上买的衣服，那绝对是垃圾。 绝对是垃圾。你看那喝的东西，吃的东西。
 
-中共政府没有立即回应置评请求。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-该国迅速下降的出生率引发了人们对经济增长放缓以及支持老年人口的工人减少所带来的潜在挑战的担忧。
+**关注我们**
 
-中共在2016年取消了实施了数十年的一胎化政策，取而代之的是二胎限制，试图以此避免这些风险。由于在中共国城市养育孩子的成本高昂，出生率继续下降，今年五月，中共宣布了三孩政策。
+Discord 账号
 
-作家兼记者朱贲兰(Lenora Chu)表示，中共国的教育成本和攀登教育阶梯的考试心理压力是一个挑战。“这就是为什么这些计划生育政策必须与教育改革政策相结合的部分原因。否则父母们就不会想要更多的孩子了。”她在路透Next(Reuters Next)会议上说。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-朱贲兰是2017年那本关于中共国教育制度的著作《小小士兵：一个美国男孩，一所中国学校，一场国际赛跑》一书的作者。
+Gettr 账号
 
-最近的官方数据显示，2020年中共国的生育率仅为每名妇女1.3个孩子，与日本和意大利等老龄化社会相当，远低于（人口）更替所需的大约2.1个孩子的水平。
-
-易富贤估计，根据中共国不受独生子女政策限制的少数民族多年来的生育率下降，中共国实际生育率要低得多，他根据自己的较低估计率计算了总人口。
-
-易说，地方当局夸大了他们的人口，并以此获得更多补贴，包括他们从中央政府收取的教育费。他说，由于有20多项社会福利与出生登记相关，一些家庭正在利用黑市在线购买第二份出生证明。“人口数量被夸大主要是为了经济利益。”易说。
-
-简评：
-
-记得小时候村支书多次来到我家做工作，逼迫我母亲做“结扎”手术；也记得中共国著名影视导演张艺谋因为超生在2014年被罚款748万人民币的新闻，这与中共政府2016年宣布废止“一胎化”政策，仅仅相隔2年。
-
-中共不仅利用计划生育政策从老百姓身上搜刮了巨额的“社会抚养费”，也利用计划生育政策杀害了上亿本可以正常出生的小生命。它们对人权的践踏和对生命的漠视，罄竹难书。如今，由于错误的计生政策造成中共国提前进入老龄化社会，中共政权又与世界上的黑暗力量联合，利用中共病毒和毒疫苗来实施它们的人类灭绝计划。世界已经被中共这个邪恶的非法组织带入了至暗时代，全世界人民急需联合起来，把以中共政权为首的共产主义红色病毒从地球上彻底铲除。
-
-新闻链接：[https://m.theepochtimes.com/chinas-population-may-shrink-fast-in-reality-expert-says\_4139529.html](https://m.theepochtimes.com/chinas-population-may-shrink-fast-in-reality-expert-says_4139529.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

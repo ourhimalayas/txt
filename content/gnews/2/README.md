@@ -2,29 +2,50 @@
 ---
 
 
-## 七哥谈马航事件与中国共产党
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1727177/)
+## 西班牙调查发现：疫苗护照对降低新冠病毒感染率没有影响
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1727334/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+据《零对冲》作者：TYLER DURDEN，2021年12月4日发布：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-305-e1638820109741.png)图片源自零对冲
+**西班牙专家的一项调查认为，疫苗护照对降低新冠病毒感染率没有显著影响。**
 
-马航的事件对共产党的内部啊，它这个是什么概念，这个黎磊石，黎磊石的家人当看到江绵恒，两天约他的时候，他家人就知道完了，告诉黎磊石，你要出事了，是吧。说这个黎磊石能这个时候见你，跟你谈这些事情，这么安慰你，不是好事，这是原话告诉我的，就没想到这黎磊石最后给干掉了。所谓爬楼死，跳楼死，纯粹胡扯，包括李专家，我们这个李晓春，一样！ 在这之前也是江绵恒跟他见面，然后是孙立军和孟建柱还参与了见面，完了，孟建柱他妈都换了心脏，肾脏都换过，得杀多少新疆人啊，这事他怎么能给习知道呢，你想想。习知道后会是什么严重后果。所以马航的事件巴黎问得好，非常好，会是一个很大的转折啊。谢谢！
+El Pais获得了由西班牙跨地区新冠病毒委员会进行的这项研究的细节，《每日电讯报》对此进行了报道。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+通过研究该计划在其他欧洲国家的实施情况，专家们发现规定人们在进入酒吧、餐馆和电影院等场所时必须出示疫苗接种证明“并没有降低新冠病毒传播水平。”
 
-**关注我们**
+该报告指出：“在正在使用疫苗护照的欧洲国家，病例正在大幅上升，尽管他们的疫苗接种水平确实比西班牙低得多。”
 
-Discord 账号
+尽管西班牙在国家层面上没有疫苗护照，但17个地区中的8个正在使用类似的系统。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+报告指出研究人员还得出结论，疫苗护照“造成了一种错误的印象，即接种疫苗的人不会被感染，而事实上大约40%的接种疫苗的人容易被感染并传播病毒。”
 
-Gettr 账号
+**疫苗护照的唯一积极意义在于它“警告人们，大流行病仍然存在危险，并鼓励人们接受疫苗接种”。**
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+换句话讲，尽管疫苗护照对减少新冠病毒的传播这一既定目标没有明显的影响，但它们确实成功地使人们保持恐惧和接受服从。
+
+而这也许是才是首要目标。
+
+Ken Macon写道：“这些发现与英国政府发现的证据相似，疫苗护照可能增加该国的新冠病毒感染率。”
+
+**“英国威尔士的政府也发现，尽管引入了疫苗护照，但他们找不到任何证据表明疫苗护照发挥了作用。”**
+
+众多欧洲国家已经实施了疫苗护照计划，将接种者与未接种者隔离开来。
+
+在某些情况下，提供阴性测试结果的选项已被取消，这意味着只有那些完全接种疫苗的但仍然可以传播病毒的人才被允许进入会场。
+
+原文链接：[https://www.zerohedge.com/covid-19/spanish-investigation-finds-vaccine-passports-have-no-impact-infection-rates](https://www.zerohedge.com/covid-19/spanish-investigation-finds-vaccine-passports-have-no-impact-infection-rates)
+
+翻译：洛杉矶盘古农场–KY
+
+校对：洛杉矶盘古农场–Mike Li
+
+评论：洛杉矶盘古农场–心照
+
+
+![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入: (或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -2,32 +2,204 @@
 ---
 
 
-## 中共的民主白皮书，全世界的笑柄
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1726857/)
+## Eglise医生讲解羟氯喹治好了战友的风湿性关节炎
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1726965/)
 
-作者：Ping
-编辑：守望黎明
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2021.12.7-1.jpeg)图片来源：RTHK News
-2月4日，中共国国务院新闻办公室发布《中国的民主》白皮书，并召开新闻发布会。中宣部副部长、国新办主任徐麟说：“中国的民主具有具体现实的民主实践“。白皮书抨击说：如果人民只有正投票时被唤醒，投票后就进入休眠期；只有竞选时聆听天花乱坠的口号，竞选后就毫无发言权；只有拉票时受宠，选举后就被冷落，这样的民主不是真正的民主。白皮书还声称，中国发展全过程人民民主，既有完整的制度程序，也有完整的参与实践……使国家政治生活和社会生活各环节、各方面都体现人民意愿、听到人民声音，有效防止了选举时漫天许诺、选举后无人过问的现象。
+Chris你的手指症状完全有可能是风湿性关节炎
 
-中共攻击西方民主制度，居然如此大言不惭地跟世界谈民主，这是侮辱世界人民的智商么？可怜的中国人有见到过竞选么？见到过竞选人拉票的场景么？即使偶尔有机会参加所谓的人大代表选举投票，也不过是在官方指定的两个候选人当中随便圈出一个——因为那两个候选人的名字你可能听都没有听说过。如果有“好事者”未经官方指定想要独立参加人大代表竞选，即被认定破坏选举，是要被公安请去喝茶的。既然没有真正的选票，也没有见识过竞选的场面，中国人哪里有什么“唤醒“与“休眠”，哪来的“受宠”和“冷落”？当中共在为自诩的民主中吹嘘的时候，百万新疆人正在再教育集中营中挣扎，遭到残酷镇压的香港民主正在哭泣。当一个个鲜活的生命消逝在花季，共产党可曾赋予他们一点点的民主和自由？
+Chris, it is entirely possible that your finger symptoms are rheumatoid arthritis
 
-中共国几十年来愚民的最标准说辞就是：西方只重形式的民主，因而没有实质的民主；中共国不要形式的民主，因而才会有实质性的民主。如此低劣的骗术居然一用几十年，而且很多国人居然深信不疑。其实照这个逻辑就相当于说：你只住一个形式上的房子算不得好房子，我给你一幢无形的房子才能算得上个家。天底下谁会傻到要住无形的房子？如果连形式上的民主都没有，大谈所谓“实质性”民主，除了骗还会是什么呢？
+因为人到一定年纪
 
-什么是民主？联合国人权事务解释，民主的基础概念是表现人民主权的人民自决原则。鉴于人民有权建立任何政治制度，那么后者必须确保这种意义下的人民主权始终体现于人民以民主形式表达意志，即举行自由和真正的选举，让公民行使选举代表和被选举的权利，同时享有言论自由、新闻自由和结社自由。
+Because at a certain age
 
-想想中共国无数被打压的异议人士，想想成百上千被整治的309律师，想想无所不在的官办媒体，想想在信访办排着长队无处申冤的人们，想想密不透风的网络审查和越建越高的防火墙…… 中共打着中国特色的民主制度的旗号，欺骗国人，欺骗世界，口中大谈民主，实则是人民如草芥，巧取豪夺。
+你不一定要诊断血液风湿病因检查你一定是阳性
 
-如今的新中国联邦才是中国民主真正的希望，只有彻底推翻中共统治，人民才能获得真正的自由解放，才可以拥有一人一票真正民选的自己的政府，并且可以监督政府让它实实在在为我们老百姓服务。到那时候我们才会拥有属于自己的民主和自由。
+you don’t have to diagnose blood rheumatoid etiology test you must be positive
 
-**发布：**去中心化Math
+因为它可以是早期
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+because it can be early
+
+前期症状
+
+Pre-existing symptoms
+
+不是很典型
+
+Not very typical
+
+就是说你的血液检查不一定能检查出阳性
+
+That is, your blood test may not always be positive
+
+但是你的症状已经可以说明这一点
+
+But your symptoms can already show this
+
+还有另外一方面可以证明你这是风湿性关节炎的另一个原因
+
+There is another aspect that can prove that you have rheumatoid arthritis
+
+就是倒推法
+
+That is, the backward projection method
+
+就是你的治疗
+
+That is, your treatment
+
+你这个治疗药物
+
+Your treatment medication
+
+因为伊维菌素和硫酸羟氯喹它们都可以治疗类风湿性关节炎
+
+Because ivermectin and hydroxychloroquine sulfate both treat rheumatoid arthritis
+
+和红斑性狼疮这样的免疫抑制性疾病
+
+and immunosuppressive diseases like lupus erythematosus
+
+它在WHO的使用药物的清单适应症上 它们有这个适应症的
+
+They are on the WHO list of indications for the use of drugs, and they have such indications
+
+也就是说它们的确是有免疫调节作用
+
+That means they do have immunomodulatory effects
+
+这就是为什么这些医生能够想到用这些药物来治疗新冠病毒
+
+That’s why these doctors thought of using these drugs to treat neocoronavirus.
+
+也是因为它们有这方面的适应症 本身在那里的
+
+It’s also because they have an indication for it, and it’s there in and of itself.
+
+只不过用于抗病毒 这是完全新的用途
+
+It’s just for antiviral, which is a completely new use.
+
+但是免疫抑制 本身就有这个适应症的
+
+But immunosuppression, itself, has this indication
+
+所以这样倒推的话
+
+So if you look at it backwards.
+
+你小指关节的疼痛 它是早期风湿性关节炎的症状
+
+The pain in your pinky joint is a symptom of early rheumatoid arthritis.
+
+因为你这个药物治疗 正确的药物就是解决了你的症状
+
+Because your medication is the right medication to address your symptoms
+
+从另一个方面证明 你的诊断是正确的
+
+On the other hand, it proves that your diagnosis is correct.
+
+尽管你的医生没有给你这个诊断
+
+Even though your doctor didn’t give you this diagnosis
+
+你自己做了诊断
+
+You made the diagnosis yourself
+
+对 他们医生就是一直恐吓我说
+
+Yeah, their doctors just kept threatening me that
+
+你这样用羟氯喹 你会失明的
+
+You’ll go blind if you take hydroxychloroquine like this.
+
+还有对你的肾脏会有很大的影响
+
+And that it would have a significant effect on your kidneys.
+
+这又是CDC危言耸听
+
+That’s another CDC scaremongering.
+
+这医生的信息哪里来的
+
+Where did these doctors get their information?
+
+就是这些主流媒体的 所谓一个新闻报道 就把这个药给打死了
+
+It’s the mainstream media that killed this drug with one so-called news report
+
+伊维菌素过去30年 硫酸羟氯喹过去40在WHO的基本药物使用清单上
+
+Ivermectin has been on the WHO list of essential drugs for the past 30 years and hydroxychloroquine sulfate for the past 40
+
+是最最广泛使用的药物
+
+It is the most widely used drug
+
+因为寄生虫的适应症 所以世界各个角落
+
+Because of the parasitic indications, they are used in every corner of the world.
+
+这些贫穷国家都在用这些药物
+
+These poor countries are using these drugs.
+
+默克是伊维菌素的生产厂家 最早以前
+
+Merck is the manufacturer of ivermectin, and in the early days
+
+默克还给WHO捐过40亿盒的伊维菌素
+
+Merck donated 4 billion boxes of ivermectin to the WHO.
+
+是捐献 发放到非洲这些 高寄生虫发病国家
+
+It was a donation that was distributed to countries in Africa that had a high incidence of parasites
+
+所以那么多年 30-40年用下来
+
+So over the years, 30-40 years of use.
+
+伊维菌素到目前记录在案的严重副反应只有28例
+
+Ivermectin has only 28 cases of serious side effects recorded so far
+
+只有28例到目前为止
+
+Only 28 cases so far
+
+而且最严重的一例就是 急性肝炎
+
+And the most serious case is acute hepatitis
+
+然后 停药了以后 排毒 这个病人后来也挺好的
+
+Then, after stopping the drug, the patient was detoxified and did well afterwards.
+
+没有一例死亡的
+
+Not a single case of death
+
+28例所谓严重副反应是皮肤反应 胃肠道出血
+
+The 28 so-called serious side effects were skin reactions and gastrointestinal bleeding
+
+最后停药后都好转了
+
+Finally, they all got better after stopping the drug
+
+所以说这个药物致失明 心衰 那真的是夸大其词了
+
+So to say that this drug causes blindness and heart failure is really an exaggeration
+
+就是不想让我们用这个药 明显
+
+They just don’t want us to use this drug, obviously
 
  
 

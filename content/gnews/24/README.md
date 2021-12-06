@@ -2,37 +2,49 @@
 ---
 
 
-## 以色列首现巨幅反疫苗广告
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1726708/)
+## 专家称中共国人口实际生育率正在快速萎缩
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1726885/)
 
-作者：纽约香草山健身部 – Ivy001
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间12月5日，在以色列的大街上，挂起了高达6，7层楼的巨幅广告：一个被妈妈拉着小手的小男孩，忧伤的看着镜头说，“妈妈，请不要把我的手交给他们！”下方是醒目的疫苗针管标志。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/nyc-testing-1200x800-700x420-4.jpg)图片来源：大纪元
+来自《大纪元时报》网站12月5日的报道，一位生育专家周五在路透Next(Reuters Next)会议上表示，中共政权可能低估了其人口下降的速度，而最近一项改善三孩家庭的政策对提高出生率帮助很小。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Untitled.001-2-edited.jpeg)
+威斯康星大学妇产科高级科学家易富贤(Fuxian Yi)说，他估计中共国2020年的人口为12.8亿，而不是人口普查报告的14.1亿人口，生育率也比报告的要低。易估计，自2018年以来，中共国人口一直在减少。
 
-在11月29日，纽约拉比法庭裁定：向儿童和大多数成年人注射中共病毒疫苗是违法犹太法律的，裁决明确禁止向儿童、青少年和育龄成年人注射以及推广中共病毒疫苗。
+中共政府没有立即回应置评请求。
 
-这是在拉比法庭裁定之后，以色列首次高调出现反疫苗广告。
+该国迅速下降的出生率引发了人们对经济增长放缓以及支持老年人口的工人减少所带来的潜在挑战的担忧。
 
-消息来源：[https://gettr.com/post/pivc6g27d9](https://gettr.com/post/pivc6g27d9)
+中共在2016年取消了实施了数十年的一胎化政策，取而代之的是二胎限制，试图以此避免这些风险。由于在中共国城市养育孩子的成本高昂，出生率继续下降，今年五月，中共宣布了三孩政策。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+作家兼记者朱贲兰(Lenora Chu)表示，中共国的教育成本和攀登教育阶梯的考试心理压力是一个挑战。“这就是为什么这些计划生育政策必须与教育改革政策相结合的部分原因。否则父母们就不会想要更多的孩子了。”她在路透Next(Reuters Next)会议上说。
 
-**校对/发稿：童谣**
+朱贲兰是2017年那本关于中共国教育制度的著作《小小士兵：一个美国男孩，一所中国学校，一场国际赛跑》一书的作者。
 
-**更多资讯，更多关注**
+最近的官方数据显示，2020年中共国的生育率仅为每名妇女1.3个孩子，与日本和意大利等老龄化社会相当，远低于（人口）更替所需的大约2.1个孩子的水平。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+易富贤估计，根据中共国不受独生子女政策限制的少数民族多年来的生育率下降，中共国实际生育率要低得多，他根据自己的较低估计率计算了总人口。
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+易说，地方当局夸大了他们的人口，并以此获得更多补贴，包括他们从中央政府收取的教育费。他说，由于有20多项社会福利与出生登记相关，一些家庭正在利用黑市在线购买第二份出生证明。“人口数量被夸大主要是为了经济利益。”易说。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+简评：
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+记得小时候村支书多次来到我家做工作，逼迫我母亲做“结扎”手术；也记得中共国著名影视导演张艺谋因为超生在2014年被罚款748万人民币的新闻，这与中共政府2016年宣布废止“一胎化”政策，仅仅相隔2年。
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+中共不仅利用计划生育政策从老百姓身上搜刮了巨额的“社会抚养费”，也利用计划生育政策杀害了上亿本可以正常出生的小生命。它们对人权的践踏和对生命的漠视，罄竹难书。如今，由于错误的计生政策造成中共国提前进入老龄化社会，中共政权又与世界上的黑暗力量联合，利用中共病毒和毒疫苗来实施它们的人类灭绝计划。世界已经被中共这个邪恶的非法组织带入了至暗时代，全世界人民急需联合起来，把以中共政权为首的共产主义红色病毒从地球上彻底铲除。
+
+新闻链接：[https://m.theepochtimes.com/chinas-population-may-shrink-fast-in-reality-expert-says\_4139529.html](https://m.theepochtimes.com/chinas-population-may-shrink-fast-in-reality-expert-says_4139529.html)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

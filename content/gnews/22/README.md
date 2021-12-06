@@ -2,49 +2,32 @@
 ---
 
 
-## 美国国防部长承认中共国正在“成为美国军队的同等竞争对手”，并警告习近平的核威慑野心
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1726834/)
+## 七哥谈GFashion
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1726944/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/nyc-testing-1200x800-700x420-2.jpg)Getty Images
-国防部长劳埃德·奥斯汀周六警告说，随着中共国以“惊人”的速度积累核武器，中共国军队正逐步成为美国武装部队的“同行竞争对手”。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-然而，他也淡化了新冷战的可能性，并强调外交和威慑是美国与日益增长的经济强国竞争的战略。
+我告诉大家一个消息，昨天下午, GFashion 开会，你知道Doha和Kamel在欧洲，我上次跟Rachel我们在办公室开会的时候,我俩站了一下午，Mandelli, Mandelli给谁做衣服啊，Bijan，就是我穿的黄夹克，Bijan yellow house, Stefano Ricci,这两个牌子比爱马仕高百倍千倍，这俩成为什么，世界上皇族玩的，billionaire穿的衣裳，爱马仕你有钱就可以买的，第三个，Loro Piana, 是羊绒，羊毛材料之王。 第4个就是现在大家都看到的，也是比较火的火牌RIck Owens一系列。
 
-在加利福尼亚州的里根国防论坛上发表讲话时，这位五角大楼负责人在近一个小时的露面中大部分时间都在讨论“越来越自信和专制”的中共国为颠覆美国在全球秩序中的主导地位所做的努力。
+Mandelli这个先生极为的安静，世界上这些高的品牌，所有包括爱马仕的一些包啊绝品啊，还有鳄鱼都是他做的。号称时尚界的王。我们的衣服现在是跟他做，你知道Rachel,你都看到啊，你在现场，那个质量是吧，头一段时间Doha跟我说，他说我们去特别担心这个Mandelli先生，这个我们的量太大，人家不愿意跟我们做了，担心这担心那，我当时我就告诉他们，你俩记住，不会超过两个月，你会把你俩念的话都咽回去。 他说为什么，我说你们太无知，你不知道谁叫郭文贵，你也不知道我们GFashion有多牛，走着看。这两天去欧洲开会去了，Mandelli先生安静的请到办公室，他说我们Mandelli迈阿密，一个人billionaire，想开Mandelli在迈阿密，但是他不懂时尚，我们拒绝了。 但是现在呢我觉得跟郭先生打交道还了解了郭先生，看到疫苗，爆料革命，盖特，GTV，特别是喜币喜联储，他说我们想给郭先生谦虚的说，可不可以把美国所有的Mandelli的代理权给GFashion，你们可以开Mandelli所有的店。 当时对Doha来讲，你知道Rachel当时就傻在那了，需要多少钱啊？他说Zero! 不要钱！这可是教父级的啊！
 
-奥斯汀说，这种威胁的一部分包括到未来十年末在其武库中积累一千枚核弹头的目标。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-他在提到中共国军队时说：“我们目睹了中国人民解放军二十年的快速现代化进程。而且中共国的军事力量正在逐步成为美国在亚洲，并最终在世界各地的同行竞争对手。”除了建立其核武库外，奥斯汀表示，中共国正在外太空和网络空间取得快速进展。
+**关注我们**
 
-“而且中国共产党领导人越来越多地表达他们对现行秩序的不满以及他们想要取代美国的全球领导地位的目标。”
+Discord 账号
 
-奥斯汀指责北京“滥用技术在国内推进其镇压议程，并将专制工具出口到国外”。全球防务专家对中共国和俄罗斯以二战结束以来从未有过的速度扩张表示震惊，这促使一些人猜测世界正处于新冷战的开始阶段。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-“因此，我们正在积极寻求与中共国国防领导人的公开沟通渠道，尤其是在危机中。在我们的外交官和军队之间，我们正在采取措施降低风险并防止误判。
+Gettr 账号
 
-他还试图向北京保证，美国不打算建立北约式的联盟以对抗中共国，也不会让其他各国选边站。
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
-中共国毫不掩饰其全球野心，习近平主席誓言，到2049年中国将能够“打赢”一场与美国的战争。
-
-最近发布的卫星图像显示，该国正在建造数百个新的核武器发射井。作为拥有超过200万现役军人的世界上最大的战斗部队，北京还投入资金扩大其非核武器库，包括战斗机和其他军事装备。
-
-他还强调，美国仍在按照其长期以来的“一中政策”行事，该政策只承认北京政府而非台北政府是合法的。
-
-简评：中共穷兵黩武极力发展军事力量，这是对世界造成威胁的主要因素，中共国毫不掩饰其全球野心，习近平誓言，到2049年中国将能够“打赢”一场与美国的战争。中共国正在摆脱与台湾和平统一的传统立场，更认真地考虑对台湾所谓的“武装统一”。 中国进行了几代以来规模最大、速度最快的海上和航空航天力量扩张。五角大楼去年向美国国会提交的关于中国的年度报告表达了对中国军事扩张的担忧。
-
-新闻链接：
-
-[https://www.dailymail.co.uk/news/article-10277111/Defense-Secretary-Lloyd-Austin-warns-China-pace-peer-competitor-military.html](https://www.dailymail.co.uk/news/article-10277111/Defense-Secretary-Lloyd-Austin-warns-China-pace-peer-competitor-military.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
