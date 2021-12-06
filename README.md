@@ -15,89 +15,89 @@
 
 ---
 
-### [BioNTechCEO乌尔·萨欣承认自己没有接种疫苗](/content/gnews/1/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [辉瑞CEO：最有可能的情况是，我们需要每年接种COVID疫苗，这应该能够使我们真正安全](/content/gnews/2/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [加拿大警察挺身而出，呼吁人们加入反对暴政的抗争](/content/gnews/3/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [CCP监管审查，滴滴出行退出纽交所](/content/gnews/4/README.md)
- ` 澳喜特战旅Gnews`
-
-### [我们如何证明疫苗有效?](/content/gnews/5/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [Omicron变种病毒并不致命，为什么疫苗公司却急着推出新疫苗？](/content/gnews/6/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [辉瑞（Pfizer）合同中的“保密牆”被指控牟取暴利](/content/gnews/7/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [加拿大特鲁多：非常兴奋看到5-11岁的儿童可以接种疫苗](/content/gnews/8/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [福奇说奥密克戎变种的早期报告让人鼓舞](/content/gnews/9/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [疫苗推广后，全球各国同时发生了什么？](/content/gnews/10/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [俄罗斯、中共、邪恶宗教力量和华尔街用病毒和疫苗杀人](/content/gnews/11/README.md)
- ` NewFOC`
-
-### [中共一脸正经的谈监管,其结果被控制的都是老百姓](/content/gnews/12/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [澳洲女子透露没感染新冠，但仍被当局关押在隔离营14天](/content/gnews/13/README.md)
- ` 首尔天池农场`
-
-### [郭文贵直播摘要和音频 2021.12.05](/content/gnews/14/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [中共国阳光100地产公司再度违约](/content/gnews/15/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [躲避墨尔本封锁的女生，自述北领地模范隔离营悲惨遭遇](/content/gnews/16/README.md)
- ` 走进澳洲`
-
-### [拜登政府预计本周宣布外交抵制北京冬奥会](/content/gnews/17/README.md)
- ` HimalayaRussia`
-
-### [恒大开启耍赖模式，花样还债就是没钱](/content/gnews/18/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美国游轮上爆发COVID疫情，尽管乘客已全面接种疫苗](/content/gnews/19/README.md)
+### [7.24系列——大跃进之后的大饥荒（五）](/content/gnews/1/README.md)
  ` 墨尔本雅典娜农场`
 
-### [《蓝枫法律》第三十五期 法律你我他-诽谤罪及相关法律](/content/gnews/20/README.md)
- ` 加拿大温哥华扬帆农场蓝枫法律`
+### [美国和全世界监管数字货币的结局是去中心化的货币消失](/content/gnews/2/README.md)
+ ` 喜马拉雅日本银河系农场`
 
-### [恒大和融创的崩塌及冬奥会难题最终让西方精英全面灭共](/content/gnews/21/README.md)
+### [护照不仅要免签更要安全,绝不能因拿护照降格新中国联邦](/content/gnews/3/README.md)
  ` NewFOC`
 
-### [日本内阁支持率得到提升，暂停外国人入境得到高评价](/content/gnews/22/README.md)
+### [泽连科：阿奇霉素、羟氯喹和锌对奥米克戎变异仍然有效](/content/gnews/4/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [皮特·麦卡洛博士：自然免疫力比疫苗肯定更持久](/content/gnews/5/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [奥米克戎变异是在已接种疫苗者之间传染的进化错误](/content/gnews/6/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [封城的日子](/content/gnews/7/README.md)
+ ` 澳喜农场`
+
+### [BioNTechCEO乌尔·萨欣承认自己没有接种疫苗](/content/gnews/8/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [辉瑞CEO：最有可能的情况是，我们需要每年接种COVID疫苗，这应该能够使我们真正安全](/content/gnews/9/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [文雍漫谈：塔西佗陷阱的底部是沼泽](/content/gnews/10/README.md)
+ ` 文雍`
+
+### [加拿大警察挺身而出，呼吁人们加入反对暴政的抗争](/content/gnews/11/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [CCP监管审查，滴滴出行退出纽交所](/content/gnews/12/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [我们如何证明疫苗有效?](/content/gnews/13/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [Omicron变种病毒并不致命，为什么疫苗公司却急着推出新疫苗？](/content/gnews/14/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [辉瑞（Pfizer）合同中的“保密牆”被指控牟取暴利](/content/gnews/15/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [加拿大特鲁多：非常兴奋看到5-11岁的儿童可以接种疫苗](/content/gnews/16/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [福奇说奥密克戎变种的早期报告让人鼓舞](/content/gnews/17/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [疫苗推广后，全球各国同时发生了什么？](/content/gnews/18/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [俄罗斯、中共、邪恶宗教力量和华尔街用病毒和疫苗杀人](/content/gnews/19/README.md)
+ ` NewFOC`
+
+### [澳洲女子透露没感染新冠，但仍被当局关押在隔离营14天](/content/gnews/20/README.md)
+ ` 首尔天池农场`
+
+### [郭文贵直播摘要和音频 2021.12.05](/content/gnews/21/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [躲避墨尔本封锁的女生，自述北领地模范隔离营悲惨遭遇](/content/gnews/22/README.md)
+ ` 走进澳洲`
+
+### [拜登政府预计本周宣布外交抵制北京冬奥会](/content/gnews/23/README.md)
+ ` HimalayaRussia`
+
+### [美国游轮上爆发COVID疫情，尽管乘客已全面接种疫苗](/content/gnews/24/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [日本内阁支持率得到提升，暂停外国人入境得到高评价](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [印俄将签署海军后勤协同保障协议：共享港口设施、相互加油维修](/content/gnews/23/README.md)
+### [印俄将签署海军后勤协同保障协议：共享港口设施、相互加油维修](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [“口炮”中国又现“红色键盘侠”](/content/gnews/24/README.md)
+### [“口炮”中国又现“红色键盘侠”](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [12/5/2021 文贵直播：恒大、融创等房地产巨头的崩塌和疫苗灾难将加速西方经济危机的到来并将联合西方精英们一同灭共](/content/gnews/25/README.md)
- ` 秘密翻译组-北美组`
-
-### [中共病毒及其疫苗全球超限战中的典型案例（三十四）](/content/gnews/26/README.md)
+### [中共病毒及其疫苗全球超限战中的典型案例（三十四）](/content/gnews/28/README.md)
  ` 纽约香草山MOS01`
-
-### [12/5/2021 文贵直播：中共和俄罗斯是黑暗力量的核心，中共和其他邪恶势力沆瀣一气，妄图消灭老年人和残疾人](/content/gnews/27/README.md)
- ` 秘密翻译组-北美组`
-
-### [2021年12月5日文贵大直播要点海报（2）](/content/gnews/28/README.md)
- ` 秘密翻译组-原创组`
 
 ### [7·24系列——“日本赌王”冈田和生](/content/gnews/29/README.md)
  ` 墨尔本雅典娜农场`

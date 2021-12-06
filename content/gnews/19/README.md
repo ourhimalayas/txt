@@ -2,41 +2,47 @@
 ---
 
 
-## 美国游轮上爆发COVID疫情，尽管乘客已全面接种疫苗
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1724673/)
+## 俄罗斯、中共、邪恶宗教力量和华尔街用病毒和疫苗杀人
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1724729/)
 
-作者：泰勒·杜登
-翻译：皮特
-编辑：Mttfly
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2021.12.6雅典娜快讯.png)图片来源：美联社
-据[美联社](https://apnews.com/article/coronavirus-pandemic-business-health-louisiana-new-orleans-1f8edb74567df1abdbc29161d800056f)新闻报道，每家游轮公司都要求乘客和船员在登船前必须已经全面接种疫苗，但一艘从墨西哥湾和加勒比海航行归来的游轮上有数千名全面接种疫苗的乘客，却爆发了COVID-19感染。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/002211-5.jpg)
+据[2021年12月05日 文贵大直播：全球数字货币市场改观；亚洲政治军事形势大变；恒大地产与美金融市场；喜币近况与未来的意义](https://gtv.org/video/id=61acb7bebbd75f62e52f7ce4)时间点3：29：12——
 
-挪威邮轮控股有限公司拥有的 “Norwegian Breakaway”号于11月28日从新奥尔良港出发，航行至伯利兹、洪都拉斯和墨西哥，船上有3000多人。
+**郭文贵先生：**绝对是共产党是主要的，它是核心，我觉得世界上黑暗的宗教力量，我就不具体说你们都知道，黑暗的宗教力量、神秘的宗教力量，还有华尔街这几个所谓的沼泽地，根本不存在其他什么，——没有，你不用再想是其他国了，你不用想了。
 
-在返回新奥尔良的母港之前，该邮轮公司在其客人和船员中发现了10名COVID感染者。这些被感染的人都是已经完全接种疫苗的，现被要求强制隔离。
+俄罗斯、中共是这个罪恶的百分之八九十，然后是所谓的这些宗教的邪恶的力量和华尔街，一个是觉得人口太多，养人、养老金。再一个残疾人，美国你知道有多少残疾人吗？俄罗斯多少残疾人你知道吗？你们算过账吗？俄罗斯有百分之多少比的残疾人你们知道吗？欧洲有多少残疾人，你们算过账吗？
 
-州长约翰·贝尔·爱德华兹（John Bel Edwards）、新奥尔良市和新奥尔良港被告知这一事件，并联系了疾病预防控制中心。受感染的乘客和船员将直接回家或在一个未公开的地点进行自我隔离。
+你们下回话题咱谈这个问题，残疾人的比例超出你的想象，老人超出你的想象，这些王八蛋、保险公司、金融机构，再一个就是所谓的极端的这些宗教主义者和共产主义连在一起，你当杀手。
 
-根据船舶追踪网站CruiseMapper的消息，挪威逍遥号周日清晨停靠在新奥尔良。所有乘客和船员在下船前都将接受了COVID测试。
+这相当于一个村里的村长找来了一个完全泯灭良心的一个黑色的雇佣军，叫魔鬼大军。帮助他杀掉村里边儿将花掉他银子的老年人和那些完全耗费他时间的残疾人一样，这是一场灾难，用的目的先给你放毒，先把你家房子点着火，大家全往外跑。
 
-尽管船上的疫苗接种率为100%，但仍有COVID的爆发，这表明疫苗的有效性正在严重减弱。
+结果在跑出去的时候，在大家必须休息的地方、必须喝水的地方，水里放了毒。说你想活吗？——想活喝这水。渴不渴？——渴，喝这个水，饿不饿？——饿，吃了粮食全死掉。然后剩下就是他们家的孩子活着，然后他觉得村儿里边儿的资产，残疾人、坏人都被消耗掉了，然后村里的东西咱重新分，他活着，就这么简单。
 
-最近对三种主要的COVID疫苗的研究显示，在6个月内疗效 “急剧”下降。因此，当游轮运营商开始在公海上行驶时，即使都是完全打过疫苗的乘客和船员，他们也无法避免受到感染。有理由相信随着美国各地新感染病例的激增，船上会出现更多的爆发。
+但最终一定是被他们消灭的，一定被他们消灭的，因为有新中国联邦，毫不自夸、没有任何自恋的，这个天下让新中国联邦的诞生就是此意。
 
-在高接种率的欧洲，即使执行疫苗护照计划，各国也正经历着感染的激增。
+（以下暂略）
 
-**原文链接：**[COVID Outbreak On US Cruise Ship Despite Fully Vaxxed Passengers](https://www.zerohedge.com/covid-19/covid-outbreak-us-cruise-ship-despite-fully-vaxxed-passengers)
+撰稿：喜马拉雅的肉夹馍；
 
-**本文译者皮特：**新冠疫苗防新冠就是个笑话。政府强制疫苗的借口是度过大流行就是个笑话。把新冠的流行归罪于未接种疫苗的人就是别有用心，转移矛盾。政府的权利来自人民，而却以人民的健康，经济为借口强制疫苗就是笑话。把它叫做疫苗，这是最大的欺诈。要用55年来公开疫苗信息，在开玩笑吗？显而易见的道理都要否认，不是傻，就是别有目的。
+审核：喜马拉雅的馍夹肉；
 
-**发布：**去中心化Math
+校对：Maarago；
 
-**
-更多信息，请关注：
-**[澳大利亚墨尔本阿西娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本阿西娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本阿西娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本阿西娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本阿西娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
