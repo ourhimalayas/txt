@@ -2,12 +2,14 @@
 ---
 
 
-## 维州医生状告医院禁止其使用伊维菌素治疗中共病毒患者
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1724083/)
+## 日本政府加强对外资审查，防止先进技术外流
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1724138/)
 
-12/01/2021 “一个美国”新闻网：一名弗吉尼亚州医生状告医院禁止其使用伊维菌素治疗中共病毒患者，尽管该医生使用伊维菌素将医院重症监护病房的中共病毒死亡率降低了约50%。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12._06-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

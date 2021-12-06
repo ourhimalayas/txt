@@ -2,26 +2,66 @@
 ---
 
 
-## 觉醒的善恶独立的思维
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1724152/)
+## 前国务卿蓬佩奥： 还有两个月就是北京冬奥会 开幕式，抵制北京冬奥会 还不算晚
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1724203/)
 
-我们是有智慧的智民，我们就是觉醒之人。还有一个就是独立的思维，这种独立思维和逆向思维是很重要的。
+前国务卿蓬佩奥： 还有两个月就是 [#北京冬奥会](https://twitter.com/hashtag/%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E4%BC%9A?src=hashtag_click) 开幕式。 抵制 [#北京冬奥会](https://twitter.com/hashtag/%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E4%BC%9A?src=hashtag_click) 还不算晚。
 
-**【郭先生直播视频】****2021.11.28 ****觉醒的善恶独立的思维**
 
-郭先生：
 
-我们人思考问题的时候，我犯过很多错误，在清风看守所的时候，就是这些高人，就是让我把这个思维变成逆向思维。作为当时的我来讲你们是很难想象，就是我那种成长，我那种家庭教育，你根本不会懂得什么叫思维和逆向思维。说白了就是个生存技巧，谈不上思想，但就在清风看书所就遇到高人，他能告诉你逆向思维。还有一个就是独立的思维，这种独立思维和逆向思维是很重要的。几乎对我来讲是再造之恩，再造之恩。
+> 2 months to the [#Olympics](https://twitter.com/hashtag/Olympics?src=hash&amp;ref_src=twsrc%5Etfw) opening ceremony. 
+> 
+> It’s not too late to [#BoycottBeijingOlympics](https://twitter.com/hashtag/BoycottBeijingOlympics?src=hash&amp;ref_src=twsrc%5Etfw).
+> — Mike Pompeo (@mikepompeo) [December 4, 2021](https://twitter.com/mikepompeo/status/1467258731201273864?ref_src=twsrc%5Etfw)
 
-所以一个国家记住，它的教育不好，这个国家民族没有希望的。全人类到现在上大学都要来美国，为什么美国它这个教育体制。你别管在某些地方。第二个就是医疗制度，没有医疗制度的国家，绝对是个悲惨的社会。那么我在清风看守所，使用我的逆向思维，就是锻炼了我这个人的，整个和人打交道的，所有的与众不同的地方。那是用生命换来的，你比如现在刚才大家，你问这问题都这么想，恰恰的你要逆向思维。
 
-所有这些精英，他都是精英所谓这就是生存的工具。这些生存的工具没帮助他生存。这次把他干掉了，特别像医生，像我们这样医生，医生相信所谓的科学，然后就是自己提前打药
 
-认为自己占了便宜，他是懦弱怕死，他没有信仰，他受到了惩罚。还有一些律师更怕死，是吧。所谓的相信科学，他这个他是让大家是解释戒律的人，他忘了一个自己的，我的戒律怎么解释的？最简单病毒哪来的？你都不知道你怎么搞出的疫苗？你能搞出疫苗，请问你这疫苗为啥打？让你负责任他不负责任。打疫苗为什么政府付钱还不让你公开这个信息？
+众议员布莱恩·马斯特： 提醒：安东尼·福奇用纳税人的钱以“科学”的名义杀死小狗。没有人选他，但乔·拜登认为他是总统。 【附纽约邮报文章：在公布他的 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) ‘冬日计划’时，拜登开玩笑说福奇才是真正的总统】
 
-为什么打疫苗？这些有名的人让你打疫苗，人家在你面前是可鉴定的，先打给你看，还有基本的天人权天授，人命天授，我的身体我做主。我有追求幸福和安全的权利，我有决定自己生死的权利，为什么你让我打疫苗？这个基本的逻辑，逆向思维，说句难听的话，你打了你被打了，没有一样是精英，被打的就不是精英，被打的不是顺民，被打的全是弱民。我们不被打的人不是所谓的不顺民，所谓的逆民，我们是什么？我们是有智慧的智民，我们就是觉醒之人，天下只分两个就是善恶，我们是善人。
 
-视频剪辑：北方信使 |听写：雨山溪桥客 | 翻译： Arthur |校对：tonyj |
+
+> Reminder: Anthony Fauci literally kills puppies with taxpayer dollars for “science.” Nobody elected him, but Joe Biden thinks he’s the President.[https://t.co/0qbZSiU3lA](https://t.co/0qbZSiU3lA)
+> — Rep. Brian Mast (@RepBrianMast) [December 6, 2021](https://twitter.com/RepBrianMast/status/1467660561332805641?ref_src=twsrc%5Etfw)
+
+
+
+参议员罗恩·约翰逊： 我问一个简单的问题，福奇博士对 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 的应对有效吗？78.8万人丧生，其中许多人是因为他忽视并阻挠破坏了使用廉价、可用的普通药进行早期治疗，而他却支持用一种不如我们所有人希望的那样安全或有效的疫苗。
+
+
+
+> I ask a simple question, did Dr. Fauci’s response to COVID-19 work? 788,000 lives lost, many because he ignored and sabotaged early treatment using cheap, available, generic drugs in favor of a vaccine that is not as safe or effective as we all hoped it would be.
+> — Senator Ron Johnson (@SenRonJohnson) [December 5, 2021](https://twitter.com/SenRonJohnson/status/1467600296897622016?ref_src=twsrc%5Etfw)
+
+
+
+众议员肯·巴克： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 正在追捕居住在国外的台湾人，以将他们引渡回大陆，在那里他们面临着人权侵犯的高风险。 如果这些人犯了罪，就应该被遣返回台湾，而不是中国大陆。 【转bbc: 报道称数百名台湾人被引渡到中共国（接上） 一个人权组织的一份新报告发现，近年来有超过 600 名在海外被捕的台湾人被驱逐递解回 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)。 捍卫卫士说，这种做法被“用作破坏台湾主权的工具”。 台湾认为自己是一个独立的国家，长期以来一直坚持将在国外被捕的台湾人送回该岛。 但北京将台湾视为属于中国一部分的分离省份。】
+
+
+
+> China is hunting down Taiwanese people living abroad to have them extradited back to the mainland, where they are at high risk of human rights abuses. If these individuals have committed crimes, they should be returned to Taiwan, not to mainland.[https://t.co/dXKHMAvYN5](https://t.co/dXKHMAvYN5)
+> — Rep. Ken Buck (@RepKenBuck) [December 5, 2021](https://twitter.com/RepKenBuck/status/1467529998668124160?ref_src=twsrc%5Etfw)
+
+
+
+参议员瑞克·斯科特: 我很自豪能与参议员霍利和我们的同事们一起，提出这项重要的法案，以加强我们与 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 的经济和安全伙伴关系，并加强旅客的安全和保障。随着 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 侵略行径的加剧，这是朝着正确方向迈出的一大步。 【转参议员霍利新闻办推文：参议员霍利和同事提出法案以推进台湾的预清关设施】
+
+
+
+> I was proud to join [@HawleyMO](https://twitter.com/HawleyMO?ref_src=twsrc%5Etfw) & our colleagues to introduce this important bill to strengthen our economic & security partnership with Taiwan & bolster the safety & security of travelers. As Communist China's aggression grows, this is a great step in the right direction. [https://t.co/6XmhkY91oF](https://t.co/6XmhkY91oF)
+> — Rick Scott (@SenRickScott) [December 4, 2021](https://twitter.com/SenRickScott/status/1467175199879872512?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿迈克·蓬佩奥： [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 对美国构成了最大的外部威胁。几十年来，中共在美国工人的支持下发展了经济。 川普总统是第一位确认这一点并予以反击的美国总统。 他展示了我们可以获胜，但我们必须认真对待。 【附视频，蓬佩奥接受福克斯新闻采访】
+
+
+
+> The CCP poses the singular greatest external threat to the U.S. It has grown its economy on the backs of the American worker for decades.
+> 
+> Pres. Trump was the first POTUS to acknowledge that & push back. He showed we can prevail, but we have to be serious. [https://t.co/2TSCMxI7Sz](https://t.co/2TSCMxI7Sz)
+> — Mike Pompeo (@mikepompeo) [December 4, 2021](https://twitter.com/mikepompeo/status/1467150705911865346?ref_src=twsrc%5Etfw)
+
+
 
  
 
