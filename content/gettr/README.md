@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/6/2021 2:51 AM (UTC)`
+
+12/5/2021 Miles Guo: When it comes to the Taiwan issue, Australia can’t defeat the CCP’s troops and prioritizes economic interests; the Japanese’s military is comparable to that of the CCP, but Abe’s statement on Taiwan was simple bluffing; the core of the Taiwan issue lies in the traitors and the government of Taiwan; it’s the CCP, the US, and Russia that have the say in the world<br/><br/>12/5/2021 文贵直播：在台湾问题上，澳大利亚打不过中共且以经济利益为优先考量；日本军力不输中共，但安倍的表态全是咋呼；台湾问题的核心是卖台贼和台政府；真正影响世界的是中美俄<br/>
+![img](https://media.gettr.com/group31/getter/2021/12/06/02/36ed4224-93f4-1b50-6802-45d14141a90d/out.jpg)
+
+---
+
+`@miles 12/6/2021 2:42 AM (UTC)`
+
+2021年12月05日: 法治基金,法治社会每周捐款留言精选集<br/>法治基金, 法治社会团队衷心感谢所有的捐款者和支持者！<br/><br/>December 5, 2021 Weekly Rule of Law Foundation and Society donors messages collection <br/><br/>The Rule of Law Foundation and Society team heartfully thank all of our supporters and donors！
+![img](https://media.gettr.com/group48/getter/2021/12/06/02/579955ae-725f-749a-bbb6-3da8a8ce3924/out.jpg)
+
+---
+
 `@miles 12/6/2021 2:06 AM (UTC)`
 
 12/05/2021 Miles Guo: All the entrepreneurs in Communist China are like the CCP’s mistresses. Not only do their families end up being sacrificed, but the CCP is also using them to elicit a debt crisis to bring down the US economy. The CCP plays such dirty tricks everywhere<br/><br/>12/05/2021文贵直播：中共国的企业家都是中共的小三，他们不仅连家人都沦为牺牲品，而且还被中共拿来制造债务危机从而搞垮美国经济，中共这种流氓的手段无处不在<br/>
@@ -137,19 +151,6 @@ Hcoin To The Moon <br/>iTunes Ranking No. 1 🥇<br/>iTunes 打榜第一名🥇<
 
 在鲁迪·朱利安尼的《鲁迪的常识》节目中，泽连科医生描述了他是如何在2020年初开始用阿奇霉素、羟氯喹和锌有效治疗感染中共病毒的病人的<br/><br/>In Rudy Giuliani's "Rudy's Common Sense" program, Dr. Zelenko describes how he began treating CCP virus Infected patients effectively with  Azithromycin, Hydroxychloroquine, and Zinc in  early 2020
 ![img](https://media.gettr.com/group15/getter/2021/12/04/15/f2602f8f-b4e9-ef96-1a7c-8d419c7b8113/out.jpg)
-
----
-
-`@miles 12/4/2021 7:49 AM (UTC)`
-
-12/3/2021 Miles Guo: During the Beidaihe meeting, Hu Jintao encouraged Xi Jinping to take action against Fu Zhenghua, and Wang Qishan wanted to get out of Xi's control by resigning as Vice President of the Communist China. However, Xi ignored Wang and asked him to hand over all the cases being handled by the Central Commission for Discipline Inspection, so Wang almost collapsed<br/><br/>12/3/2021 文贵直播：在北戴河会议上，胡锦涛怂恿习近平对傅政华动手，王岐山欲辞去国家副主席一职以逃脱习的掌控，但习并未理会，反倒让王交出中纪委在处理的所有案件，王几乎崩溃<br/>
-![img](https://media.gettr.com/group22/getter/2021/12/04/07/49/c184c60f-d3f9-757f-df2c-cf2f400d97c3/out.jpg)
-
----
-
-`@miles 12/4/2021 7:39 AM (UTC)`
-
-“Hcoin To the Moon” Hits #1 🥇on 1st Day of Launch on iTunes in Multiple Countries. <br/>Thank you my dearest brothers and sisters around the world!<br/>🎉🎉🎉🎉🎉🎉🎉❤️❤️❤️❤️❤️❤️❤️<br/><br/>https://gnews.org/1718446/<br/><br/>Hcoin To the Moon 上线第1天位列多国iTunes音乐榜首!<br/>衷心的感谢世界各地亲爱的兄弟姐妹们! 🎉🎉🎉🎉🎉🎉🎉❤️❤️❤️❤️❤️❤️❤️<br/><br/>https://gnews.org/zh-hans/1718337/
 
 ---
 
