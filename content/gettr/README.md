@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/6/2021 12:26 AM (UTC)`
+
+12/05/2021 Miles Guo: The greedy people in cahoots with the CCP have been infected with "economic AIDS". The CCP plans to bring down the Western finance and economy through the collapse of Evergrande, R&F Properties and other real estate developers, and the biggest victims will be the Chinese people, who will not only be looted of the wealth of previous generations, but also will continue to be enslaved in the future<br/><br/>12/05/2021文贵直播：和中共勾兑的贪婪者已染上“经济艾滋病”，中共计划通过恒大、富力等地产商暴雷干掉西方金融和经济，受害最大的将是中国老百姓，不但前几代人的财富被洗掠，未来还要继续做奴隶<br/>
+![img](https://media.gettr.com/group18/getter/2021/12/06/00/66d7b9a0-b14a-4e81-6e7f-b760f058b478/out.jpg)
+
+---
+
 `@miles 12/5/2021 11:41 PM (UTC)`
 
 12月5号：2017年一八年所有的爆料都在被共产党的疯狂的行动，证实一切唯真不破！ 打印图标<br/> 中国准备在大西洋建立第一个海军基地，令美国官员感到震惊 <br/><br/>https://www.zerohedge.com/geopolitical/china-poised-establish-1st-ever-naval-base-atlantic-alarming-us-officials
@@ -143,13 +150,6 @@ Hcoin To The Moon <br/>iTunes Ranking No. 1 🥇<br/>iTunes 打榜第一名🥇<
 
 12/3/2021 Miles Guo: Xi Jinping's meeting with Wang Qishan between August 1 and 16, 2021 shows that Xi and Wang were not in touch and that Wang was treated as a former CCP cadre; both Song Ping and Hu Jintao suggested Xi to take down the forces of the Jiang family, Wang Qishan, and Meng Jianzhu and to take the ultra-left path<br/><br/>12/3/2021 文贵直播：习近平跟王岐山在2021年8月1日到16日期间的会面说明习王平日无联系且王被当成老同志；宋平和胡锦涛都向习建议干掉江家、王岐山和孟建柱的势力并要习走极左道路<br/>
 ![img](https://media.gettr.com/group1/getter/2021/12/04/06/48/8b23dcd8-b238-5900-3579-5620ebb95196/out.jpg)
-
----
-
-`@miles 12/4/2021 5:12 AM (UTC)`
-
-12/3/2021 Miles Guo: The people Xi Jinping met with and the duration of the meetings between August 1 and 16, 2021 show that 1) Xi respects Song Ping and Hu Jintao, 2) he has completely lost trust in Jiang Zemin's family, 3) he is moving to the left politically, and 4) will take action against the CCP’s financial sector, the Central Commission for Discipline Inspection, and the local top cadres<br/><br/>12/3/2021 文贵直播：习近平在2021年8月1日到16日期间见的人和见面时间说明习尊重宋平和胡锦涛，他对江家已完全失去信任，他在政治上将向左转并要对金融领域、中纪委和地方大员动手<br/>
-![img](https://media.gettr.com/group4/getter/2021/12/04/05/12/b601d403-3422-17e8-2a4e-c5b29444fd3a/out.jpg)
 
 ---
 
