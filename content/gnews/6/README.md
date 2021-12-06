@@ -2,38 +2,39 @@
 ---
 
 
-## 国际要闻汇编12月6日
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1725674/)
+## 日本厚生劳动省认定心肌炎、心内膜炎为中共病毒疫苗接种后重大副作用
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1725761/)
 
-素材：东京樱花团丨GNEWS组
-![](https://lh3.googleusercontent.com/S97V10JApZypYxlVYy9-XycGGtr3u_z-2P05s66k00utW1YyRvgzTyzeMetWqDGgxDwv0FS66sA3V0lL0itYq9LdzhLg_BaZEADY0LB40hKajhOgeQomRllxpQtGZXtBepMa9otd)[图片来源](https://www.aboluowang.com/2021/1206/1680090.html)
-1、[拜登预计本周宣布外交抵制北京冬奥](https://www.aboluowang.com/2021/1206/1680107.html)
+作者：日本方舟农场 – Andy5
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-1.png)
+12月3日，在日本厚生劳动省专家研讨会之后，宣布将心肌炎、心内膜炎定义为接种中共病毒疫苗后重大副反应。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/FireShot-Capture-005-ワクチン接種後の「心筋炎」などは-重大な副反応-厚労省-新型コロナ-ワクチン（日本国内）-NHKニュース-www3.nhk_.or_.jp_.png)
+据厚生劳动省公布的数据显示：接种辉瑞疫苗的人群当中，10岁的年轻男性每百万人里有15.66人出现心肌炎、20岁的年轻男性有13.32人，接种莫德纳疫苗的则分别为81.79人，48.76人。而流感疫苗接种后出现包括接种部位肿胀等所有副作用在内，也只不过每百万人里有4.9例。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/FireShot-Capture-001-ワクチン接種後の「心筋炎」などは-重大な副反応-厚労省-新型コロナ-ワクチン（日本国内）-NHKニュース-www3.nhk_.or_.jp_.png)
+由此，可以看出中共病毒疫苗接种后出现心肌炎副作用的概率，远远高于流感病毒疫苗。但令人遗憾的是，对这样的数据厚生劳动省也仅是要求医疗机构报告类似事件，并将于近期通知日本国内各地的自治会。
 
-据CNN报导，拜登政府预计将在本周宣布美国政府官员将不会参加2022年北京冬季奥运会，从而实施外交抵制。此举将使美国能够在世界舞台上向中国传递讯息，但不会阻止美国运动员参加比赛，目前美国国家安全会议拒绝发表任何评论。
+报道称：厚生劳动省依旧认为疫苗利大于弊，所以暂时不会停止接种。
 
-2、[美台加深经济连结 贸易额双双破纪录](https://www.aboluowang.com/2021/1206/1680051.html)
+参考链接：
+1. [https://www.gettr.com/post/pirdya86a5](https://www.gettr.com/post/pirdya86a5) 
+2. [https://www3.nhk.or.jp/news/html/20211204/k10013374401000.html](https://www3.nhk.or.jp/news/html/20211204/k10013374401000.html) 
+3. [https://news.yahoo.co.jp/articles/60fcafa546e2303ebf3b7adbc0c2c46dcd3b5f2d](https://news.yahoo.co.jp/articles/60fcafa546e2303ebf3b7adbc0c2c46dcd3b5f2d) 
+4. [https://www.mhlw.go.jp/content/10906000/000710865.pdf](https://www.mhlw.go.jp/content/10906000/000710865.pdf)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/unknown-2.jpg)
+编辑/校对/发稿：文留
 
-《华尔街日报》周日（5日）在《中国关税助长美、台贸易繁荣》一文中指出，尽管亚太地区的地缘政治紧张局势加剧，美国仍持续加强与台湾的经贸关系。该报指出，台湾现在是美国全球第八的贸易伙伴，排名仅次于英国，超过越南。今年早些时候，拜登政府恢复了与台北的直接谈判，举行了五年来的首次正式会谈。截自2021年9月过去一年，台湾对美国的出口贸易额创纪录，约720亿美元。跟美国政府实施关税前（2017年）相比，这一数字增长了70%。据美国普查局的数据，美国对台湾的出口已从2017年的水平攀升了35%，达到每年350亿美元，同样创下对台最高贸易纪录。
+**更多资讯，更多关注**
 
-3、[如俄罗斯入侵乌克兰 美或掐断俄金融命脉](https://www.voachinese.com/a/no-shortage-of-sanction-options-if-russia-invades-ukraine-20211205/6340283.html)
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-据美联社报道，如果普京下令俄罗斯入侵乌克兰，美国或将在经济上打击俄罗斯。拜登政府有很多选择，这包括制裁普京的同僚和切断俄罗斯与向世界各地输送资金的金融体系的联系。美国总统拜登星期五表示，美国已经制定了“最全面、最有意义的一系列举措，让普京非常、非常难以应对。”乌克兰是前苏联加盟共和国之一，与俄罗斯有着密切的历史和文化联系，但现在渴望与北约和西方国家结盟。
+[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-4、[罗冠聪证实获邀参加拜登民主峰会](https://www.aboluowang.com/2021/1206/1680090.html)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-香港学运领袖罗冠聪证实，获得美国总统拜登邀请，将参加12月9日～10日举行的“民主峰会”。罗冠聪在脸书表示，作为唯一受邀港人，他将在美国时间10日上午，在“保障人权”与“巩固民主及对抗威权”2个讨论环节间，发表讲话，称这是让全球民主领袖直接听到香港声音的机会。
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-5、[全球空气污染榜单100，印度和中国占88个](https://www.aboluowang.com/2021/1206/1680043.html)
-
-根据空气品质追踪网站IQAir最新年度报告，2020年全球空气污染最严重的百大城市，都落在了亚洲。调查结果发现，印度上榜的空污城市最多，共有46个，中国紧追在后，共有42个城市上榜。另外，巴基斯坦有6个城市，孟加拉国共有4城市入榜，印尼和泰国各有1城市上榜。在空污最严重的10个城市中，有9个来自印度，唯一来自中国的新疆和田市，却高居榜首，也是唯一一个曾达到“有害”空气品质的城市(2020年3月)。
-
-6、[美情报称中共拟在非洲小国建军事基地](https://www.aboluowang.com/2021/1206/1680011.html)
-
-《华尔街日报》报导，有机密情报显示，中共计划在大西洋沿岸的非洲小国赤道几内亚建立一个永久的军事基地。美国官员们拒绝披露秘密情报的细节。但他们表示，这些报告提出了中共将能够在美国东海岸对面重新武装和改装军舰，这一威胁给白宫和五角大楼敲响了警钟。
-
-*编辑：东京樱花团 / 文小白*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

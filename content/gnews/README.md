@@ -15,116 +15,116 @@
 
 ---
 
-### [德国“纳粹”重现 立法强制医疗工作者接种疫苗](/content/gnews/1/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [脸书揭开了假瑞士专家背后的中国网络](/content/gnews/2/README.md)
- ` 澳喜农场`
-
-### [秘翻在线：主流媒体CNN炒掉了前纽约州长的亲兄弟](/content/gnews/3/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [名为奥米克戎的加密货币在新变种被命名后暴涨了9倍](/content/gnews/4/README.md)
- ` 澳喜农场`
-
-### [2021年12月5日文贵大直播简报](/content/gnews/5/README.md)
- ` 秘密翻译组-原创组`
-
-### [国际要闻汇编12月6日](/content/gnews/6/README.md)
+### [美国籍疫苗接种者在泰国被确诊感染新变异株奥密克戎](/content/gnews/1/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [给别人活路就是给自己活路](/content/gnews/7/README.md)
+### [油价飞涨，炸鱼薯条店老板倍感压力](/content/gnews/2/README.md)
+ ` 澳喜农场`
+
+### [维州《大流行病法案》通过，7名执政党议员退党](/content/gnews/3/README.md)
+ ` 澳喜农场`
+
+### [德国“纳粹”重现 立法强制医疗工作者接种疫苗](/content/gnews/4/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [脸书揭开了假瑞士专家背后的中国网络](/content/gnews/5/README.md)
+ ` 澳喜农场`
+
+### [日本厚生劳动省认定心肌炎、心内膜炎为中共病毒疫苗接种后重大副作用](/content/gnews/6/README.md)
+ ` GTV News Talk`
+
+### [秘翻在线：主流媒体CNN炒掉了前纽约州长的亲兄弟](/content/gnews/7/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [名为奥米克戎的加密货币在新变种被命名后暴涨了9倍](/content/gnews/8/README.md)
+ ` 澳喜农场`
+
+### [2021年12月5日文贵大直播简报](/content/gnews/9/README.md)
+ ` 秘密翻译组-原创组`
+
+### [国际要闻汇编12月6日](/content/gnews/10/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [给别人活路就是给自己活路](/content/gnews/11/README.md)
  ` 澳喜特战旅Gnews`
 
-### [12月5日文贵大直播概要](/content/gnews/8/README.md)
+### [12月5日文贵大直播概要](/content/gnews/12/README.md)
  ` 墨尔本雅典娜农场`
 
-### [英国乐购因圣诞罢工行动将面临无货供应的局面](/content/gnews/9/README.md)
+### [英国乐购因圣诞罢工行动将面临无货供应的局面](/content/gnews/13/README.md)
  ` 墨尔本雅典娜农场`
 
-### [疑似俄罗斯为入侵乌克兰而借由代理人制造事端](/content/gnews/10/README.md)
+### [疑似俄罗斯为入侵乌克兰而借由代理人制造事端](/content/gnews/14/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [印度法庭受理比尔·盖茨疫苗谋杀案件](/content/gnews/11/README.md)
+### [印度法庭受理比尔·盖茨疫苗谋杀案件](/content/gnews/15/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [反转：新西兰政府允许外卖企业员工可以不接种疫苗 Dec 06 2021 Stuff](/content/gnews/12/README.md)
+### [反转：新西兰政府允许外卖企业员工可以不接种疫苗 Dec 06 2021 Stuff](/content/gnews/16/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [西媒头条 — 第124期](/content/gnews/13/README.md)
+### [西媒头条 — 第124期](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共央企重组整合加速“物流集团成立”](/content/gnews/14/README.md)
+### [中共央企重组整合加速“物流集团成立”](/content/gnews/18/README.md)
  ` 儒为`
 
-### [巴西两名婴儿误接种新冠疫苗导致高烧住院](/content/gnews/15/README.md)
+### [【速报】日本首相岸田表示将提前进行第三针疫苗接种](/content/gnews/19/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [巴西两名婴儿误接种新冠疫苗导致高烧住院](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [布林肯承诺，美国确保台湾有自卫的手段](/content/gnews/16/README.md)
+### [布林肯承诺，美国确保台湾有自卫的手段](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [7.24系列——大跃进之后的大饥荒（六）](/content/gnews/17/README.md)
+### [7.24系列——大跃进之后的大饥荒（六）](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
 
-### [所有马航370事故的背后全都是孟建柱、王岐山和共产党](/content/gnews/18/README.md)
+### [所有马航370事故的背后全都是孟建柱、王岐山和共产党](/content/gnews/23/README.md)
  ` NewFOC`
 
-### [新西兰人酷小伙”Rory Nairn接种疫苗后死亡 Dec 02 2021 Stuff](/content/gnews/19/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [班农专访2: 加密货币必将成为资产保值的手段](/content/gnews/20/README.md)
+### [班农专访2: 加密货币必将成为资产保值的手段](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [人权组织要求2022年冬季奥运会不应该在中共国举办](/content/gnews/21/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [美情报显示中共计划在非洲小国建永久性军事基地](/content/gnews/22/README.md)
- ` 日本东京方舟农场`
-
-### [在美国获得数字银行牌照等同于喜币获得再生和传宗接代](/content/gnews/23/README.md)
+### [在美国获得数字银行牌照等同于喜币获得再生和传宗接代](/content/gnews/25/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [美俄总统将于7日举行视频会晤](/content/gnews/24/README.md)
+### [美俄总统将于7日举行视频会晤](/content/gnews/26/README.md)
  ` 首尔天池农场`
 
-### [COVID-19 最新情报｜欧洲议员声援民众抵抗疫苗暴政“疫苗不是为了抵御病毒 疫苗是为了打击人类”](/content/gnews/25/README.md)
+### [COVID-19 最新情报｜欧洲议员声援民众抵抗疫苗暴政“疫苗不是为了抵御病毒 疫苗是为了打击人类”](/content/gnews/27/README.md)
  ` G&#124;News TAIWAN`
 
-### [太空部队副司令：中共正以两倍速赶超美军太空能力](/content/gnews/26/README.md)
+### [太空部队副司令：中共正以两倍速赶超美军太空能力](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [病毒疫苗背后的黑暗势力极其终极目的](/content/gnews/27/README.md)
+### [病毒疫苗背后的黑暗势力极其终极目的](/content/gnews/29/README.md)
  ` 澳喜特战旅Gnews`
 
-### [普京的 “星际战士”武器对北约卫星或构成威胁](/content/gnews/28/README.md)
+### [普京的 “星际战士”武器对北约卫星或构成威胁](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中概股与全球数字货币持续暴跌](/content/gnews/29/README.md)
+### [中概股与全球数字货币持续暴跌](/content/gnews/31/README.md)
  ` GTV新闻访谈`
 
-### [广州市一搅拌车失控连撞多车](/content/gnews/30/README.md)
+### [广州市一搅拌车失控连撞多车](/content/gnews/32/README.md)
  ` GTV新闻访谈`
 
-### [中共利用牵引技术操纵马航坠机](/content/gnews/31/README.md)
+### [中共利用牵引技术操纵马航坠机](/content/gnews/33/README.md)
  ` GTV新闻访谈`
 
-### [数字银行牌照是数字货币发展的有力保证](/content/gnews/32/README.md)
- ` GTV新闻访谈`
-
-### [澳洲新南威尔士州的教师、巴士和火车司机集体罢工](/content/gnews/33/README.md)
+### [澳洲新南威尔士州的教师、巴士和火车司机集体罢工](/content/gnews/34/README.md)
  ` 走进澳洲`
 
-### [DC大中华时事：恒大风险靴子落地不是一件坏事？](/content/gnews/34/README.md)
+### [DC大中华时事：恒大风险靴子落地不是一件坏事？](/content/gnews/35/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [币圈新闻动态：喜币（HCN）价格目前在44.625 HDO](/content/gnews/35/README.md)
+### [币圈新闻动态：喜币（HCN）价格目前在44.625 HDO](/content/gnews/36/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [秘翻在线：【速报】日本确诊第三例奥密克戎变异株感染者](/content/gnews/36/README.md)
+### [秘翻在线：【速报】日本确诊第三例奥密克戎变异株感染者](/content/gnews/37/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [斯洛伐克不惧中共压力派团访问台湾](/content/gnews/37/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [中共病毒疫苗致死率也是有史以来最危险的天花疫苗800倍](/content/gnews/38/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`

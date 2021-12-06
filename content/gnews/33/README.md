@@ -2,42 +2,33 @@
 ---
 
 
-## 澳洲新南威尔士州的教师、巴士和火车司机集体罢工
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1725197/)
+## 中共利用牵引技术操纵马航坠机
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1725239/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+作者：纽约香草山农场 – 文真
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+12月3日的文贵大直播中，关于马航坠机事件进展的提问，文贵先生解释道，马航坠机事件与江绵恒、孟建柱器官移植内幕有关系。导致马航坠机的牵引技术就是江绵恒负责的。江绵恒及其家人多次做过器官移植，孟建柱的家人也做过活摘器官手术。为了掩盖按需杀人换器官的真相，对相关知情医生灭口，他们利用牵引技术，制造了马航M370坠毁事故。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture2-2.jpg)
+文贵先生评论道，马航事件当时对欧盟、美国和英国的影响极大。通过马航事件，美国情报机构相信了爆料革命掌握的，中共核心机密和情报。中共的监控技术可以监听全世界任何人、任何电脑和手机，可以控制有雷达的车和船。例如WhatsApp和微信，都不安全。通过马航事件，西方国家认识到中共有控制世界的野心和能力。中共病毒大流行，再次证明这一事实。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/5616.jpg)
+并且马航坠机事件加剧了中共的内部斗争，习近平意识到，他的政敌掌握的监控技术，时刻对他的人身安全构成威胁，因此，他必须拿掉马航案件的全部策划者。
 
+参考链接：[中共利用牵引技术操纵马航坠机](https://gtv.org/video/id=61aa1cecd6388d55041591e6)
 
- 
-图片来源:  Bianca de Marchi/AAP
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
+总编：文特
+编辑：Kathy文艺
+校对/发稿：Hetangyuese
 
-#### 编译：小红帽
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
-代表新南威尔士州教师和公共交通工人的工会将本周举行的一系列罢工。
-
-由于公共汽车和火车司机采取了罢工行动，数千名出行的市民不得不制定其他旅行计划。
-
-罢工从周一开始，悉尼内西区的公交车司机因工资平等问题离开了工作岗位。周二，该市西南部的公交车司机也将举行罢工。这两个群体将在周五下午的高峰期进行两个小时的协调罢工。
-
-同一天，火车司机将拒绝驾驶外国制造的火车。这些火车覆盖四分之三的铁路网络服务。
-
-公立学校的教师和校长也将进行罢工，因为政府未能解决不可持续的工作量、缺乏竞争力的工资和人员短缺问题。
-
-新南威尔士州交通局表示，周二的罢工意味着大多数线路的服务将减少运行频率，增加车站停靠点，并需要更长的时间才能到达目的地。建议需要出行的市民提前计划。
-
-**参考新闻：**[NSW teachers, bus, train drivers on strike (msn.com)](https://www.msn.com/en-au/news/australia/nsw-teachers-bus-train-drivers-on-strike/ar-AARulvv?ocid=msedgdhp&amp;pc=U531)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
