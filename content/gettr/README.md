@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/6/2021 3:21 PM (UTC)`
+
+Dec. 6th, 2021, after the CCP, filled with fear of our Whistleblowers’ Movement, turned the Pangu‘s dragon head into a bird's head, a few hours ago, 150 bailiffs, more than 100 special police, and over 100 people from BBMG, supposedly entrusted by the Dalian court to execute the seizure of all assets of Pangu, did a complete “cleanup”. All the female employees who were changing shifts in the dormitory in their pajamas were driven to the road, confiscated all their phones and belongings; throwing my old father, who had a stroke, out of the house and is now wandering on the street. All the thousands of employees, residents and guests were thrown out of the Pangu Hotel. The whole scene became a great arrest against humanity! I will have a live broadcast on this soon!
+![img](https://media.gettr.com/group23/getter/2021/12/06/15/2e07146c-9b83-c79c-1ba2-fdd0b4d27767/f89fe37532ba8854831a4795699bc4c2.jpg)
+
+---
+
 `@miles 12/6/2021 2:56 PM (UTC)`
 
 12月6号，在继中国共产党充满着对我们爆料革命的恐惧，将盘古龙头变成了鸟头之后，就在几个小时前，150个法警，100多个特警，100多个北京金隅的人，所谓受大连法院委托执行对盘古的所有资产查封，对盘古酒店进行了全面清理，并将当时所有的正在宿舍换班的女员工，穿着睡衣就被赶到了马路上，手机等所有东西全部没收，并将我中风的年迈的父亲也撵出了房子，现在流落街头，还将数以千计的全部员工，所有的住户和客人全部撵出盘古酒店整个公寓，整个现场成为了丧失人道，灭绝人性的一场大抓捕。这一切就在刚刚发生，稍后我会就此进行直播！<br/><br/>
@@ -143,13 +150,6 @@ Hcoin To The Moon <br/>iTunes Ranking No. 1 🥇<br/>iTunes 打榜第一名🥇<
 
 12月4号 Hcoin To The Moon 打榜记录（五）<br/>感谢新西兰，匈牙利，芬兰的战友们🙏🙏🙏🙏🙏🙏🙏<br/><br/>iTunes 嘻哈Hip- Hop/Rap 第一名🥇：<br/>新西兰🇳🇿<br/>匈牙利🇭🇺<br/>芬兰🇫🇮
 ![img](https://media.gettr.com/group40/getter/2021/12/04/16/d180bf5b-1cb7-30f4-5c5c-4b1acb6dd84e/b672f632344ee45f8c5440ebb903f2cb.jpg)
-
----
-
-`@miles 12/4/2021 4:53 PM (UTC)`
-
-12月4号 Hcoin To The Moon 打榜记录（四）<br/>感谢澳大利亚，匈牙利，香港，新加坡，台湾，马来西亚的战友们🙏🙏🙏🙏🙏🙏🙏<br/><br/>iTunes 摇滚Rock第一名🥇：<br/>澳大利亚🇦🇺<br/>匈牙利🇭🇺<br/><br/>iTunes 嘻哈Hip- Hop/Rap 第一名🥇：<br/>香港🇭🇰<br/>新加坡🇸🇬<br/>台湾🇹🇼<br/>马来西亚🇲🇾
-![img](https://media.gettr.com/group36/getter/2021/12/04/16/1d8b3e58-3966-e835-4e0b-df92f1767361/38e48926519838d3924ddda96f854013.jpg)
 
 ---
 
