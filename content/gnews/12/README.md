@@ -2,37 +2,32 @@
 ---
 
 
-## 以色列首现巨幅反疫苗广告
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1726708/)
+## 七哥谈赌牌
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1726899/)
 
-作者：纽约香草山健身部 – Ivy001
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间12月5日，在以色列的大街上，挂起了高达6，7层楼的巨幅广告：一个被妈妈拉着小手的小男孩，忧伤的看着镜头说，“妈妈，请不要把我的手交给他们！”下方是醒目的疫苗针管标志。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Untitled.001-2-edited.jpeg)
+跟我们的啊，就没有穷战友啦，对不起啊，这回七哥是爱富嫌贫了，战友们这是第一次爱富嫌贫啊。就是我们的数字银行牌照，还有在伦敦我们拿下了伦敦最老字牌的赌牌，包括那一栋楼，很多电影都拍过这个赌牌啊，据说那里啊，世界没有私人飞机的人都不好意思进的赌场，这个赌场是全牌照的，酒牌，记住啊，赌牌全世界最值钱的不是澳门，最值钱的是英国，最难的是英国，你别看澳门什么两万亿周转， 5000亿美元，什么一年收入，我告诉你网上赌博几乎70%是英国人办的，特别是体育赌博，那个钱数是巨大的，所以说这个英国牌照和酒牌，但凡懂的，你真的是过上富豪生活的，你到英国的赌场和到什么，马云顶啊，拉斯维加斯啊，澳门啊，那些都太老土了，都是暴发，都是洗钱的，英国赌场吃的好，美女帅哥都是有品位的，绝对不是给钱就给你脱裤子那种，然后里面品味，环境，是会员制的，然而那些几家都是老牌子，咱们现在把那些牌照100%给拿下了。
 
-在11月29日，纽约拉比法庭裁定：向儿童和大多数成年人注射中共病毒疫苗是违法犹太法律的，裁决明确禁止向儿童、青少年和育龄成年人注射以及推广中共病毒疫苗。
+校对：HimaFaFA
+发布：HimaBoy
 
-这是在拉比法庭裁定之后，以色列首次高调出现反疫苗广告。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
 
-消息来源：[https://gettr.com/post/pivc6g27d9](https://gettr.com/post/pivc6g27d9)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+**关注我们**
 
-**校对/发稿：童谣**
+Discord 账号
 
-**更多资讯，更多关注**
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+Gettr 账号
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

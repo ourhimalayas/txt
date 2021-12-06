@@ -2,43 +2,29 @@
 ---
 
 
-## 纽约市宣布对私营企业员工强制疫苗与儿童疫苗要求
-` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1726618/)
+## 七哥谈最贵
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1726842/)
 
-加拿大扬帆农场 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2021/12/106984862-1638796540977-gettyimages-1232760245-Lev_Radin_050821.jpg)图片来源：CNBC
-根据《ABC7》12月6 日报道，纽约市市长比尔-德布拉西奥宣布，对纽约市所有私营部门的雇主全面实施COVID疫苗强制。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-这项强制疫苗命令将于12月27日开始。
+这个家具公司订的所有家具装修，Promemoria，你上那个网站查一查Promemoria莫斯科。 你就看看这家餐厅，这是我哥们开的啊，全世界最贵的一个餐厅，在莫斯科，全是用爱马仕的家具，从屋里到地板到洗手间，花多少钱呢，2700万美元装修买家具。 全伦敦最贵的一个红酒坊啊，就在那个切尔西最中间，David估计未来是常客了，现在的去不起，全世界最好的红酒全在哪里。 最贵的就是你莫斯科的两个夫妻，与俄罗斯人开的，也是我哥们啊，全世界最贵的红酒，你在外面看到这个酒最贵的就在那，巴黎的，就是莫斯科的，所以说这个俄罗斯人会享受。
 
-市长称这是一项“积极主动的”，”全国第一的“措施。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-此外，德布拉西奥说，5至11岁的儿童在室内用餐、健身和娱乐时，也将有必要的疫苗证明。
+**关注我们**
 
-市长说，这是一个重要的推动，让这个年龄段的孩子们的疫苗接种率增加，现在只有20%。
+Discord 账号
 
-“很多父母想带他们的孩子出去参加在假日的精彩活动。这里提醒你，让你的孩子接种疫苗。一剂疫苗就能让孩子立即获得参加任何这些活动的资格。我是一名家长，我清楚地记得我的孩子上学的时候。你不要让孩子得不到保护。我非常强烈地敦促家长们去接种疫苗，它被证明是安全的“。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-“我们正受到冠状病毒的攻击。我们已经有了Omicron这个新的因素，更冷的天气，会给delta变体带来额外的挑战。我们已经开始了假日聚会“。德布拉西奥市长说：”我们纽约市已经决定采用先发制人的方式，真正做一些大胆的事情来阻止疫情进一步增长以及对我们所有人造成的危险”。
+Gettr 账号
 
-市长表示，他预计不会有法律挑战。
-
-“我们有信心，我们的卫生专员已经把一系列的任务落实到位。他们曾在法庭上获胜，州法院、联邦法院，每一次都是如此。他说：”因为这具有普遍行和一致性，可以保护人们免受明显的和现实的危险“。
-
-他补充说，两年的时间已经足以让人们与COVID大流行病共存。
-
-“我们已经忍受了两年多的时间。他说：”我们必须把Covid放在我们身后，根据我的经验，疫苗强制才能够真正突破。每次我们都担心疫苗不会对新的变种产生影响，结果每一次疫苗都有效果。这是一个良好的记录。让我们更加大力接种疫苗吧”。
-
-在拜登的疫苗强制令被法院暂停的情况下，纽约市迎风而上的疫苗强制令应该面临法律挑战，政府给人们施加的压力越大越容易引起反抗，只有团结起来反抗这违宪和违反人权的疫苗强制才能彻底结束这场灾难。
-
-原文链接：
-[https://abc7ny.com/new-york-city-vaccine-mandate-private-sector-workers-children-nyc-covid/11305096/](https://abc7ny.com/new-york-city-vaccine-mandate-private-sector-workers-children-nyc-covid/11305096/)
-
-* * *
-
-发稿 Spirit
-
-
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

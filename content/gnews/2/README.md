@@ -2,31 +2,25 @@
 ---
 
 
-## 七哥谈GFashion
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1726944/)
+## 纽约市商业团体抨击对私营企业的疫苗强制令
+` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1727098/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+加拿大扬帆农场Spirit
+![](https://assets.gnews.org/wp-content/uploads/2021/12/IMG_3318.jpg)图片来源：NewYork Post
+根据《彭博社》12月6 日报道， 纽约市合伙人组织的负责人凯瑟琳·怀尔德 (Kathryn Wylde) 表示，他们被纽约市长比尔-德布拉西奥的措手不及的疫苗强制令惊到了。怀尔德代表的是一个有影响力的商业团体，摩根大通公司和高盛集团是其成员。
 
-我告诉大家一个消息，昨天下午, GFashion 开会，你知道Doha和Kamel在欧洲，我上次跟Rachel我们在办公室开会的时候,我俩站了一下午，Mandelli, Mandelli给谁做衣服啊，Bijan，就是我穿的黄夹克，Bijan yellow house, Stefano Ricci,这两个牌子比爱马仕高百倍千倍，这俩成为什么，世界上皇族玩的，billionaire穿的衣裳，爱马仕你有钱就可以买的，第三个，Loro Piana, 是羊绒，羊毛材料之王。 第4个就是现在大家都看到的，也是比较火的火牌RIck Owens一系列。
+纽约市长周一表示，所有私营部门的雇主必须要求他们的工人在12月27日之前接种疫苗，没有测试选项。这项任务将涵盖大约18.4万家企业。
 
-Mandelli这个先生极为的安静，世界上这些高的品牌，所有包括爱马仕的一些包啊绝品啊，还有鳄鱼都是他做的。号称时尚界的王。我们的衣服现在是跟他做，你知道Rachel,你都看到啊，你在现场，那个质量是吧，头一段时间Doha跟我说，他说我们去特别担心这个Mandelli先生，这个我们的量太大，人家不愿意跟我们做了，担心这担心那，我当时我就告诉他们，你俩记住，不会超过两个月，你会把你俩念的话都咽回去。 他说为什么，我说你们太无知，你不知道谁叫郭文贵，你也不知道我们GFashion有多牛，走着看。这两天去欧洲开会去了，Mandelli先生安静的请到办公室，他说我们Mandelli迈阿密，一个人billionaire，想开Mandelli在迈阿密，但是他不懂时尚，我们拒绝了。 但是现在呢我觉得跟郭先生打交道还了解了郭先生，看到疫苗，爆料革命，盖特，GTV，特别是喜币喜联储，他说我们想给郭先生谦虚的说，可不可以把美国所有的Mandelli的代理权给GFashion，你们可以开Mandelli所有的店。 当时对Doha来讲，你知道Rachel当时就傻在那了，需要多少钱啊？他说Zero! 不要钱！这可是教父级的啊！
+尽管像高盛和摩根士丹利这样的许多大公司已经要求接种疫苗才能在他们的大楼里工作，但怀尔德说，该市强行规定的决定并没有与公司和高管协调，这将在商业界散播不确定性。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+怀尔德在周一的一份声明中说：”联邦、州和市各级的政策不一致使情况更糟，目前还不清楚谁将执行市长的疫苗强制，以及这项命令是否合法。拜登总统对雇员超过100人的雇主的疫苗授权目前因诉讼而搁浅，很难想象市长能做到总统被挑战的事情“。
 
-**关注我们**
+原文链接：
+[https://www.bnnbloomberg.ca/nyc-business-group-blasts-private-sector-vaccine-mandate-1.1691865](https://www.bnnbloomberg.ca/nyc-business-group-blasts-private-sector-vaccine-mandate-1.1691865)
 
-Discord 账号
+* * *
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+发稿 Spirit
 
  
 

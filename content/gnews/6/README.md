@@ -2,48 +2,204 @@
 ---
 
 
-## 专家称中共国人口实际生育率正在快速萎缩
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1726885/)
+## Eglise医生讲解羟氯喹治好了战友的风湿性关节炎
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1726965/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/nyc-testing-1200x800-700x420-4.jpg)图片来源：大纪元
-来自《大纪元时报》网站12月5日的报道，一位生育专家周五在路透Next(Reuters Next)会议上表示，中共政权可能低估了其人口下降的速度，而最近一项改善三孩家庭的政策对提高出生率帮助很小。
+Chris你的手指症状完全有可能是风湿性关节炎
 
-威斯康星大学妇产科高级科学家易富贤(Fuxian Yi)说，他估计中共国2020年的人口为12.8亿，而不是人口普查报告的14.1亿人口，生育率也比报告的要低。易估计，自2018年以来，中共国人口一直在减少。
+Chris, it is entirely possible that your finger symptoms are rheumatoid arthritis
 
-中共政府没有立即回应置评请求。
+因为人到一定年纪
 
-该国迅速下降的出生率引发了人们对经济增长放缓以及支持老年人口的工人减少所带来的潜在挑战的担忧。
+Because at a certain age
 
-中共在2016年取消了实施了数十年的一胎化政策，取而代之的是二胎限制，试图以此避免这些风险。由于在中共国城市养育孩子的成本高昂，出生率继续下降，今年五月，中共宣布了三孩政策。
+你不一定要诊断血液风湿病因检查你一定是阳性
 
-作家兼记者朱贲兰(Lenora Chu)表示，中共国的教育成本和攀登教育阶梯的考试心理压力是一个挑战。“这就是为什么这些计划生育政策必须与教育改革政策相结合的部分原因。否则父母们就不会想要更多的孩子了。”她在路透Next(Reuters Next)会议上说。
+you don’t have to diagnose blood rheumatoid etiology test you must be positive
 
-朱贲兰是2017年那本关于中共国教育制度的著作《小小士兵：一个美国男孩，一所中国学校，一场国际赛跑》一书的作者。
+因为它可以是早期
 
-最近的官方数据显示，2020年中共国的生育率仅为每名妇女1.3个孩子，与日本和意大利等老龄化社会相当，远低于（人口）更替所需的大约2.1个孩子的水平。
+because it can be early
 
-易富贤估计，根据中共国不受独生子女政策限制的少数民族多年来的生育率下降，中共国实际生育率要低得多，他根据自己的较低估计率计算了总人口。
+前期症状
 
-易说，地方当局夸大了他们的人口，并以此获得更多补贴，包括他们从中央政府收取的教育费。他说，由于有20多项社会福利与出生登记相关，一些家庭正在利用黑市在线购买第二份出生证明。“人口数量被夸大主要是为了经济利益。”易说。
+Pre-existing symptoms
 
-简评：
+不是很典型
 
-记得小时候村支书多次来到我家做工作，逼迫我母亲做“结扎”手术；也记得中共国著名影视导演张艺谋因为超生在2014年被罚款748万人民币的新闻，这与中共政府2016年宣布废止“一胎化”政策，仅仅相隔2年。
+Not very typical
 
-中共不仅利用计划生育政策从老百姓身上搜刮了巨额的“社会抚养费”，也利用计划生育政策杀害了上亿本可以正常出生的小生命。它们对人权的践踏和对生命的漠视，罄竹难书。如今，由于错误的计生政策造成中共国提前进入老龄化社会，中共政权又与世界上的黑暗力量联合，利用中共病毒和毒疫苗来实施它们的人类灭绝计划。世界已经被中共这个邪恶的非法组织带入了至暗时代，全世界人民急需联合起来，把以中共政权为首的共产主义红色病毒从地球上彻底铲除。
+就是说你的血液检查不一定能检查出阳性
 
-新闻链接：[https://m.theepochtimes.com/chinas-population-may-shrink-fast-in-reality-expert-says\_4139529.html](https://m.theepochtimes.com/chinas-population-may-shrink-fast-in-reality-expert-says_4139529.html)
+That is, your blood test may not always be positive
 
-* * *
+但是你的症状已经可以说明这一点
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+But your symptoms can already show this
 
+还有另外一方面可以证明你这是风湿性关节炎的另一个原因
 
-编辑：【英国伦敦喜庄园编辑部】
+There is another aspect that can prove that you have rheumatoid arthritis
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+就是倒推法
+
+That is, the backward projection method
+
+就是你的治疗
+
+That is, your treatment
+
+你这个治疗药物
+
+Your treatment medication
+
+因为伊维菌素和硫酸羟氯喹它们都可以治疗类风湿性关节炎
+
+Because ivermectin and hydroxychloroquine sulfate both treat rheumatoid arthritis
+
+和红斑性狼疮这样的免疫抑制性疾病
+
+and immunosuppressive diseases like lupus erythematosus
+
+它在WHO的使用药物的清单适应症上 它们有这个适应症的
+
+They are on the WHO list of indications for the use of drugs, and they have such indications
+
+也就是说它们的确是有免疫调节作用
+
+That means they do have immunomodulatory effects
+
+这就是为什么这些医生能够想到用这些药物来治疗新冠病毒
+
+That’s why these doctors thought of using these drugs to treat neocoronavirus.
+
+也是因为它们有这方面的适应症 本身在那里的
+
+It’s also because they have an indication for it, and it’s there in and of itself.
+
+只不过用于抗病毒 这是完全新的用途
+
+It’s just for antiviral, which is a completely new use.
+
+但是免疫抑制 本身就有这个适应症的
+
+But immunosuppression, itself, has this indication
+
+所以这样倒推的话
+
+So if you look at it backwards.
+
+你小指关节的疼痛 它是早期风湿性关节炎的症状
+
+The pain in your pinky joint is a symptom of early rheumatoid arthritis.
+
+因为你这个药物治疗 正确的药物就是解决了你的症状
+
+Because your medication is the right medication to address your symptoms
+
+从另一个方面证明 你的诊断是正确的
+
+On the other hand, it proves that your diagnosis is correct.
+
+尽管你的医生没有给你这个诊断
+
+Even though your doctor didn’t give you this diagnosis
+
+你自己做了诊断
+
+You made the diagnosis yourself
+
+对 他们医生就是一直恐吓我说
+
+Yeah, their doctors just kept threatening me that
+
+你这样用羟氯喹 你会失明的
+
+You’ll go blind if you take hydroxychloroquine like this.
+
+还有对你的肾脏会有很大的影响
+
+And that it would have a significant effect on your kidneys.
+
+这又是CDC危言耸听
+
+That’s another CDC scaremongering.
+
+这医生的信息哪里来的
+
+Where did these doctors get their information?
+
+就是这些主流媒体的 所谓一个新闻报道 就把这个药给打死了
+
+It’s the mainstream media that killed this drug with one so-called news report
+
+伊维菌素过去30年 硫酸羟氯喹过去40在WHO的基本药物使用清单上
+
+Ivermectin has been on the WHO list of essential drugs for the past 30 years and hydroxychloroquine sulfate for the past 40
+
+是最最广泛使用的药物
+
+It is the most widely used drug
+
+因为寄生虫的适应症 所以世界各个角落
+
+Because of the parasitic indications, they are used in every corner of the world.
+
+这些贫穷国家都在用这些药物
+
+These poor countries are using these drugs.
+
+默克是伊维菌素的生产厂家 最早以前
+
+Merck is the manufacturer of ivermectin, and in the early days
+
+默克还给WHO捐过40亿盒的伊维菌素
+
+Merck donated 4 billion boxes of ivermectin to the WHO.
+
+是捐献 发放到非洲这些 高寄生虫发病国家
+
+It was a donation that was distributed to countries in Africa that had a high incidence of parasites
+
+所以那么多年 30-40年用下来
+
+So over the years, 30-40 years of use.
+
+伊维菌素到目前记录在案的严重副反应只有28例
+
+Ivermectin has only 28 cases of serious side effects recorded so far
+
+只有28例到目前为止
+
+Only 28 cases so far
+
+而且最严重的一例就是 急性肝炎
+
+And the most serious case is acute hepatitis
+
+然后 停药了以后 排毒 这个病人后来也挺好的
+
+Then, after stopping the drug, the patient was detoxified and did well afterwards.
+
+没有一例死亡的
+
+Not a single case of death
+
+28例所谓严重副反应是皮肤反应 胃肠道出血
+
+The 28 so-called serious side effects were skin reactions and gastrointestinal bleeding
+
+最后停药后都好转了
+
+Finally, they all got better after stopping the drug
+
+所以说这个药物致失明 心衰 那真的是夸大其词了
+
+So to say that this drug causes blindness and heart failure is really an exaggeration
+
+就是不想让我们用这个药 明显
+
+They just don’t want us to use this drug, obviously
 
  
 
