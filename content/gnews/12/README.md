@@ -2,28 +2,32 @@
 ---
 
 
-## “涨价热潮”一波未平一波又起，日本国民生活愈加艰难
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1726297/)
+## 因中共病毒高压封锁 越南工厂劳工极度短缺
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1726377/)
 
-撰稿：东京樱花团/文勝
-![](https://assets.gnews.org/wp-content/uploads/2021/12/10-2.jpg)
-[图片来源](https://www.baicaio.com/quan-index-q-%E5%91%B3%E4%B9%8B%E7%B4%A0-sort-v-p-2)
+作者：银河勇气星 — 骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月2日，风险投资公司 Cento Ventures 的一位合伙人透露，由于中共病毒的不确定性，越南政府采取高压封锁政策，胡志明市大量劳工离开后，并不打算回来工作。劳工极度短缺，对全球供应链造成不可挽回的损失。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/5-7.jpg)
+东南亚多数国家和地区，是西方大公司的供应链命脉。中共病毒大流行，使得这些国家和地区被迫实施严厉和长期的高压封锁，给制造业为主的企业带来重创。越南是世界上最大的服装制造商所在国之一。上个月越南曾表示，将在2021年底或2022年初，解决劳动力短缺问题。
 
-据时事通信社12月6日报道，日本味之素公司宣布将于明年3月提高蛋黄酱相关产品的价格。
+全球半导体生产线的重要参与者–马来西亚芯片供应商预测，尽管危机正在缓解，但市场需要两三年时间才能恢复正常。另一位风险投资合伙人表示，在未来12-18个月内，供应链可能会有一些改善，但是目前情况非常不乐观。
 
-味之素公司6日宣布，将提高其蛋黄酱关联产品的价格。这一增长将从明年3月1日的交货开始实施。这次涨价分商业和民用两方面进行。用于餐饮等商业用途的共涉及70种产品，包括蛋黄酱产品，调味品等，其涨幅为1-12%；与此同时，涉及到涨价的家庭用蛋黄酱相关产品共有6种，增幅约为3-9%。日本家庭餐桌上常见的蛋黄酱“Pure Select Mayonnaise”的预计售价将从目前的373日元（400克）调整为403日元左右。味之素公司的解释是由于作为原料的食用油价格飙升，所以不得不调整相关商品价格。
+参考链接：[Vietnam factories short of workers after heavy-handed lockdowns – Cento Ventures](https://finance.yahoo.com/news/vietnam-factories-short-workers-heavy-132552162.html?guccounter=1)
 
-最近，日本食品价格相继上涨，从食用油、面粉，面包到咖啡，人造奶油等，涉及种类之多令家庭主妇们愁眉不展。据称，涨价的原因多种多样，既有也有气候反常导致产量降低等原因，也有因病毒肆虐，物流费用上涨等原因。食品价格与普通百姓生活息息相关，在中共病毒疫情持续蔓延之中，“涨价热潮”令日本工薪阶层更加看不到生活好转的希望！
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-信息来源：
+总编：文特
+编辑：Kathy文艺
+校正/发稿：Fei797
 
-[味の素、マヨネーズ値上げ＝家庭用最大９％、来年３月 | 時事通信ニュース (jiji.com)](https://sp.m.jiji.com/article/show/2671727)
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.png)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
