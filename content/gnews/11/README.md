@@ -2,31 +2,32 @@
 ---
 
 
-## 西班牙专家称疫苗护照未降低病毒感染率
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1726091/)
+## 为护主子 刘欣又怼华邮寄者
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1726170/)
 
-作者：纽约香草山农场 – 文真
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月4日，西班牙专家的一项调查认为，疫苗护照对降低中共病毒感染率没有显著效果。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/7-7.jpg)
-西班牙跨地区中共病毒委员会通过研究“疫苗护照”计划在欧洲国家的实施情况，发现规定人们在进入公共场所时必须出示疫苗接种证明，并没有降低病毒传播水平。该报告指出，正在使用疫苗护照的欧洲国家中，病例反而大幅上升。研究人员还得出结论，疫苗护照造成了一种错觉，即接种疫苗的人不会被感染。而事实上，大约40%的接种者容易被感染并传播病毒。
+撰稿：东京樱花团/Ob
+![](https://assets.gnews.org/wp-content/uploads/2021/12/8-1.png)
+近日《华盛顿邮报》记者乔什.罗金爆出拜登即将宣布美国抵制北京奥运会的消息，一时间抵制冬奥的声浪越来越高，央视女主播刘欣在社交媒体上与罗金之间就此展开唇枪舌战。 首先，刘欣于12月3日在推特上发了一则视频，有关她在“Point”节目中喊话罗金：“是什么引发了有关美国外交抵制北京奥运的谣言？是一名华盛顿邮报专栏作家的观点，被伪装成内幕消息，他就是乔什.罗金。他在华盛顿邮报写道，拜登总统将在11月前宣布此消息。好吧，现在已是12月了，我们在等待你的道歉。”刘欣在这段视频中还称自己去过新疆，“那里的人们生活很幸福。”
 
-同时，英国专家称，西班牙政府的这些发现，与英国政府发现的证据相似，即疫苗护照反而有可能增加该国中共病毒的感染率。威尔士政府发现，尽管引入了疫苗护照，但他们找不到任何证据表明它们在发挥作用。
+《华盛顿邮报》记者罗金随即在推特上回怼道：“像往常一样，你又错了。拜登政府将很快宣布这个消息，到时我会等你的道歉。但你是专制政权的宣传喉舌，不是真正的记者，所以我不会期望你这么做。”
 
-参考链接：[Spanish Investigation Finds Vaccine Passports Have No Impact On Infection Rates](https://www.zerohedge.com/covid-19/spanish-investigation-finds-vaccine-passports-have-no-impact-infection-rates)
+接着，12月4日刘欣对于这则推文发出回应：“你能说出什么新的内容吗？你给我的评价都是陈词滥调，我听腻了。” 罗金当天顺势提到了国际瞩目的中国公民记者：“当然有新东西。你对一个名叫张展的名副其实的中国记者做一个评论如何？她因为做了你应该做的事情，对权力说真话而在监狱中濒临死亡。我敢打赌你不敢对此进行评论。”推文最后还附上了外媒有关联合国呼吁中共释放张展的相关新闻链接。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+对此，刘欣似乎很恼怒，她回答道，“你以为你是谁，有资格告诉我该怎么做吗？请先接受一些新闻业的相关培训，尤其是在道德部分。你所写的东西对你的读者造成了很大的伤害。历史会评判你和为你欢呼的人。”
 
-总编/编辑：Ivy001
-校正/发稿：Fei797
+罗金毫不客气的发推，“所以不评论张展是吗？这并不值得惊奇。事实是，如果说了任何批评你的政府的话，你也会入狱。历史将就中共犯下的种族灭绝对其和像你一样为其辩护的人进行严厉审判。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+这则推文似乎让刘欣无语了。
+
+婊子就是婊子，无论护主多心切，用词多哗噪总有理屈词穷时，纵有千蛮万横，也有架不住的历史拷问。行大不义的痛点必将一个个为邪恶辩护的猫猫狗狗打入历史的审判台。
+
+信息来源：
+
+[华邮记者怒怼央视女主播 赌抵制奥运](https://m.secretchina.com/news/gb/2021/12/06/991539.html)
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.png)
 
 
  
