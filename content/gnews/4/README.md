@@ -2,24 +2,52 @@
 ---
 
 
-## 过刘湘墓
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1725174/)
+## 前荷兰女王中共病毒检测呈阳性
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1725273/)
 
-作者：东京樱花团/**小小杜**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-262.png)
-上将孤坟在 英灵不可寻
+作者：纽约香草山教育部 – Naughty(文行)
 
-断碑文散落 荒草树年深
 
-在且光明志 终还报国心
 
-未知身后事 坎坷欲沾襟
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-2015年8月6日 成都
 
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
+
+荷兰皇家新闻局12月4日在一份声明中宣布，83 岁的前荷兰女王比阿特里克斯公主中共病毒检测呈阳性。
+
+声明表示，前女王在感到轻微感冒症状后接受了中共病毒检测。目前她正在荷兰中部的一座城堡里接受隔离。
+
+这位荷兰前女王在位33年，直到2013年退位，她的长子成为国王。
+
+上周，她访问了荷兰王国的加勒比库拉索岛。当时，她告诉记者，她已经接种了中共疫苗加强针。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-44.jpg)
+参考链接：
+[Dutch former queen Beatrix tests positive for COVID-19](https://torontosun.com/news/world/dutch-former-queen-beatrix-tests-positive-for-covid-19?utm_source=ground.news&amp;utm_medium=referral)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+
+总编：文特
+编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

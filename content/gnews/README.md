@@ -15,122 +15,122 @@
 
 ---
 
-### [挪威至少有50人在公司的节日派对后感染了欧米克戎（Omicron）变异病毒](/content/gnews/1/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [澳洲新南威尔士州的教师、巴士和火车司机集体罢工](/content/gnews/2/README.md)
- ` 走进澳洲`
-
-### [DC大中华时事：恒大风险靴子落地不是一件坏事？](/content/gnews/3/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [过刘湘墓](/content/gnews/4/README.md)
+### [北京如何收购英国](/content/gnews/1/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [币圈新闻动态：喜币（HCN）价格目前在44.625 HDO](/content/gnews/5/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [中共连续7年增收的粮食危机](/content/gnews/6/README.md)
+### [日本政府向国会提交35.9万亿日元的追加预算法案](/content/gnews/2/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线：【速报】日本确诊第三例奥密克戎变异株感染者](/content/gnews/7/README.md)
- ` 秘密翻譯組G-Translators`
+### [喜币一周分析（11月29日-12月5日）](/content/gnews/3/README.md)
+ ` GTV新闻访谈`
 
-### [斯洛伐克不惧中共压力派团访问台湾](/content/gnews/8/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [前荷兰女王中共病毒检测呈阳性](/content/gnews/4/README.md)
+ ` GTV新闻访谈`
 
-### [秘翻在线：泽莫尔会议移至维勒班，将有19,000人参加](/content/gnews/9/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [喜联储双币架构之绝！](/content/gnews/10/README.md)
- ` 澳喜农场`
-
-### [中共病毒疫苗致死率也是有史以来最危险的天花疫苗800倍](/content/gnews/11/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [整个美国医药体系致力于对中共病毒的唯一选择是接种疫苗](/content/gnews/12/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [澳洲监管机构罔顾安全隐患批准5至11岁儿童接种辉瑞疫苗](/content/gnews/13/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [每时每刻的认知 （一）](/content/gnews/14/README.md)
- ` 澳喜农场`
-
-### [疫苗此生再难——司机突然脑梗](/content/gnews/15/README.md)
- ` 澳喜农场`
-
-### [为掩盖疫苗真相，FDA试图长期封禁辉瑞公司文件](/content/gnews/16/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [法国警察扔掉他们的手铐声援抗议强制疫苗的市民](/content/gnews/17/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [安倍晋三警告中共不要对台湾动武](/content/gnews/18/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [泽连科医生回忆2020年初发现有效的中共病毒治疗方法](/content/gnews/19/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [一路走来](/content/gnews/20/README.md)
- ` 澳喜特战旅Gnews`
-
-### [H-Pay支付分三个阶段:个人扫码、批准牌照国家、全世界](/content/gnews/21/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [中共国医保灵魂砍价，欺骗百姓的表演](/content/gnews/22/README.md)
- ` 澳喜农场`
-
-### [谈谈乡村的网格员制度和疫苗接种](/content/gnews/23/README.md)
+### [昆士兰卫生局新规定禁止对未接种疫苗的人进行器官移植](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国和全世界监管数字货币的结局是去中心化的货币消失](/content/gnews/24/README.md)
- ` 喜马拉雅日本银河系农场`
+### [在大型制药公司的要求下，国际媒体对欧米克戎的报道铺天盖地](/content/gnews/6/README.md)
+ ` 喜马拉雅农场新西兰站`
 
-### [护照不仅要免签更要安全,绝不能因拿护照降格新中国联邦](/content/gnews/25/README.md)
- ` NewFOC`
+### [日本厚生劳动省将心肌炎、心内膜炎列为中共病毒疫苗重大副作用](/content/gnews/7/README.md)
+ ` GTV新闻访谈`
 
-### [台湾外交部长警告中（共）国的军事扩张主义可能导致第三次世界大战](/content/gnews/26/README.md)
- ` 澳喜特战旅Gnews`
+### [数字银行牌照是数字货币发展的有力保证](/content/gnews/8/README.md)
+ ` GTV新闻访谈`
 
-### [坎特：所有的运动员和国家都必须站出来抵制北京冬奥会](/content/gnews/27/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [挪威至少有50人在公司的节日派对后感染了欧米克戎（Omicron）变异病毒](/content/gnews/9/README.md)
+ ` 喜马拉雅农场新西兰站`
 
-### [坎特：美国各体育联合会都应效仿女子网球协会抵制中共](/content/gnews/28/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [福奇说奥密克戎变种的早期报告让人鼓舞](/content/gnews/29/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [拜登政府预计本周宣布外交抵制北京冬奥会](/content/gnews/30/README.md)
- ` HimalayaRussia`
-
-### [日本内阁支持率得到提升，暂停外国人入境得到高评价](/content/gnews/31/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [印俄将签署海军后勤协同保障协议：共享港口设施、相互加油维修](/content/gnews/32/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [“口炮”中国又现“红色键盘侠”](/content/gnews/33/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共病毒及其疫苗全球超限战中的典型案例（三十四）](/content/gnews/34/README.md)
- ` 纽约香草山MOS01`
-
-### [GTV新闻访谈简报|2021年12月5日晚](/content/gnews/35/README.md)
- ` 纽约香草山MOS01`
-
-### [联合影像拟中标医疗设备，生物间谍风险令澳洲担忧](/content/gnews/36/README.md)
+### [澳洲新南威尔士州的教师、巴士和火车司机集体罢工](/content/gnews/10/README.md)
  ` 走进澳洲`
 
-### [中共病毒及其疫苗全球超限战中的典型案例（三十三）](/content/gnews/37/README.md)
- ` 纽约香草山MOS01`
+### [DC大中华时事：恒大风险靴子落地不是一件坏事？](/content/gnews/11/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [尽管乘客全面接种疫苗，美国游轮上依旧爆发中共病毒疫情](/content/gnews/38/README.md)
+### [过刘湘墓](/content/gnews/12/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [荷兰数千人抗议政府中共病毒限制措施](/content/gnews/13/README.md)
+ ` GTV新闻访谈`
+
+### [币圈新闻动态：喜币（HCN）价格目前在44.625 HDO](/content/gnews/14/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [中共连续7年增收的粮食危机](/content/gnews/15/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [秘翻在线：【速报】日本确诊第三例奥密克戎变异株感染者](/content/gnews/16/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [文贵爆料12.5.2021郭先生认为俄罗斯形势对灭共一片大好](/content/gnews/39/README.md)
- ` 秘密翻译组-原创组`
+### [斯洛伐克不惧中共压力派团访问台湾](/content/gnews/17/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [秘翻在线：泽莫尔会议移至维勒班，将有19,000人参加](/content/gnews/18/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [喜联储双币架构之绝！](/content/gnews/19/README.md)
+ ` 澳喜农场`
+
+### [中共病毒疫苗致死率也是有史以来最危险的天花疫苗800倍](/content/gnews/20/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [整个美国医药体系致力于对中共病毒的唯一选择是接种疫苗](/content/gnews/21/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [澳洲监管机构罔顾安全隐患批准5至11岁儿童接种辉瑞疫苗](/content/gnews/22/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [每时每刻的认知 （一）](/content/gnews/23/README.md)
+ ` 澳喜农场`
+
+### [疫苗此生再难——司机突然脑梗](/content/gnews/24/README.md)
+ ` 澳喜农场`
+
+### [为掩盖疫苗真相，FDA试图长期封禁辉瑞公司文件](/content/gnews/25/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [法国警察扔掉他们的手铐声援抗议强制疫苗的市民](/content/gnews/26/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [安倍晋三警告中共不要对台湾动武](/content/gnews/27/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [泽连科医生回忆2020年初发现有效的中共病毒治疗方法](/content/gnews/28/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [一路走来](/content/gnews/29/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [H-Pay支付分三个阶段:个人扫码、批准牌照国家、全世界](/content/gnews/30/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [谈谈乡村的网格员制度和疫苗接种](/content/gnews/31/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [美国和全世界监管数字货币的结局是去中心化的货币消失](/content/gnews/32/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [护照不仅要免签更要安全,绝不能因拿护照降格新中国联邦](/content/gnews/33/README.md)
+ ` NewFOC`
+
+### [坎特：所有的运动员和国家都必须站出来抵制北京冬奥会](/content/gnews/34/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [福奇说奥密克戎变种的早期报告让人鼓舞](/content/gnews/35/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [拜登政府预计本周宣布外交抵制北京冬奥会](/content/gnews/36/README.md)
+ ` HimalayaRussia`
+
+### [日本内阁支持率得到提升，暂停外国人入境得到高评价](/content/gnews/37/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [印俄将签署海军后勤协同保障协议：共享港口设施、相互加油维修](/content/gnews/38/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [“口炮”中国又现“红色键盘侠”](/content/gnews/39/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [中共用假民主批评美国真民主](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

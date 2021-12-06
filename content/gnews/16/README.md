@@ -2,12 +2,16 @@
 ---
 
 
-## 为掩盖疫苗真相，FDA试图长期封禁辉瑞公司文件
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1725015/)
+## 秘翻在线：【速报】日本确诊第三例奥密克戎变异株感染者
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1725152/)
 
-12/02/2021 为掩盖疫苗真相，美国食品和药物管理局试图长期封禁辉瑞公司文件。疫苗是一场有预谋的攻击，意在减少人口、使社会崩溃，并最终破坏工业化国家的稳定。
+撰稿：待命（文暁）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/画像1-3.png)（图片源自本文链接）
+Q电视新闻12月6日13:25时报道称：一名曾在意大利滞留过的30多岁男子，本月1日入境日本羽田机场，被确诊为奥密克戎变异株感染者。
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+至此，日本确诊奥密克戎变异株感染者达3例。
+
+信息源：[オミクロン株３例目確認　イタリア滞在男性（日本テレビ系（NNN）） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/5f2c7bcb60ebfa2e1edd98d2fc2e32ef452e72ec)
 
  
 

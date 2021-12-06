@@ -2,31 +2,32 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月5日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1724327/)
+## 福奇说奥密克戎变种的早期报告让人鼓舞
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1724742/)
 
-作者：香草山翻译部
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-23.png)
+图片来源： www.epochtimes.com
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-109-1280x172-1-2-1.jpg)
+美联社12月5日报道，美国卫生官员周日说奥密克戎冠状病毒变种正在全国快速传播早期信息显示该病毒可能没有德尔塔那么危险，虽然德尔塔还是占住院的主要比例。
+
+乔·拜登的主任医疗顾问安东尼·福奇告诉CNN联盟说科学家在得出奥密克戎严重性之前需要获取更多的信息。
+
+来自南非的报告，奥密克戎已经成为主要的病毒来源，但住院率并没有明显增加。福奇说：“到目前为止，这个变种看起来并不很严重，但是在我们确定该变种的真实情况之前还是要保持高度警惕。”
+
+福奇还说： “拜登政府正在考虑限制一些非洲国家的非美国公民进入美国，因为该地区以奥密克戎变种为主，但联合国秘书长安东尼奥·古特雷斯反对这种做法，认为是旅行性种族歧视。”
+
+美国已经发现了3例奥密克戎变种，但还是以德尔塔为主，占99%以上，美国官员继续要求人们打疫苗和加强针，并戴口罩。
+
+目前中共病毒感染病例和死亡数自8月和9月以来已降至一半，但每天还是8万多例新病例，数字还是很高，尤其临近圣诞节，很多人将会旅行与家庭团聚，还是令人担忧。
+
+##### **新闻来源： **[Fauci says early reports encouraging about omicron variant](https://apnews.com/article/coronavirus-pandemic-joe-biden-lifestyle-health-travel-ef7c250c58b90b9835a972d7ebd9556b)
+
+# ** **
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1205text-SC-1.png)
-校对：Stay文苑
 
-编辑：Stay文苑
 
-发稿：Stay文苑
-
-视频参看：[12.5  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61ad6740bbd75f62e53022d6)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-69.jpeg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

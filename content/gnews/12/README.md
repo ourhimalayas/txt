@@ -2,13 +2,24 @@
 ---
 
 
-## 整个美国医药体系致力于对中共病毒的唯一选择是接种疫苗
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1725095/)
+## 过刘湘墓
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1725174/)
 
-11/23/2021 史蒂夫·克什的亲身经历表明全美健康医药体系是被操控的，他们的任务就是确保人们能得到的中共病毒的唯一治疗方案就是接种疫苗。
+作者：东京樱花团/**小小杜**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-262.png)
+上将孤坟在 英灵不可寻
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+断碑文散落 荒草树年深
 
+在且光明志 终还报国心
+
+未知身后事 坎坷欲沾襟
+
+2015年8月6日 成都
+
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

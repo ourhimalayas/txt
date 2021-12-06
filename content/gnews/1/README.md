@@ -2,37 +2,54 @@
 ---
 
 
-## 挪威至少有50人在公司的节日派对后感染了欧米克戎（Omicron）变异病毒
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1725225/)
+## 北京如何收购英国
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1725300/)
 
-作者：奥拉菲米汉·奥辛（Olafimihan Oshin）
-发布日期：2021年12月02日
-新闻来源：国会山报（THE HILL）
-翻译：文虓Bobby
+编译：东京樱花团/Hopkins
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-264.png)[图片来源](https://www.reddit.com/r/FragrantHarbour/comments/lulx1d/chinese_companies_buy_up_uk_private_schools/)
+中国投资者至少在英国资产上花费了 1340 亿英镑，包括私立学校、基础设施企业和顶级英国公司。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/120601.jpg)
+据《星期日泰晤士报》报道，中国或香港的投资者和企业现在拥有泰晤士水务（Thames Water）、希思罗机场（Heathrow Airport）和英国电力网络（UK Power Networks）等关键基础设施企业的股份。
 
-据美联社报道，挪威官员声称，至少有50人感染了这种新型冠状病毒的欧米克戎（Omicron）变种。
+据该报称，还向富时 100 指数（FTSE 100）公司投资了多达 570 亿英镑。
 
-有关官员周四表示，这些新病例与一家公司在首都奥斯陆一家餐厅举行的节日派对有关。
+而且，正如《星期日邮报》先前报道的那样，中国公司还在著名的私立学校——包括塞特福德文法学校（Thetford Grammar School）和伯恩茅斯学院（Bournemouth Collegiate College）——进行了大量投资，投资额约为 100 亿英镑。
 
-据美联社报道，挪威公共卫生研究所(NIPH)在一份声明中说，受感染的人生活在奥斯陆和周围的城市。
+据该报称，中国的消费热潮自 2019 年以来一直在蓬勃发展。
 
-奥斯陆市政府表示，预计还会出现更多的欧米克戎（Omicron）病毒病例，官员们正在进行搜索，以追踪从餐厅派对传播的（传播）途径。
+据称，在与数据提供商 Argus Vicker 的调查中发现的购买交易中，几乎有一半发生在过去两年中。
 
-据美联社报道，美国、新加坡、印度和希腊都报告了第一例欧米克戎（Omicron）变异病例。
+该报报道称，至少有 440 亿英镑的采购来自中国国有企业。
 
-南非卫生官员在上周的一次媒体吹风会上证实发现了这种以前被称为B.1.1529的新变种，称它与以往的病毒突变“非常不同”。
+它警告说，由于难以追踪某些投资，总投资数字可能远高于计算出的 1340 亿英镑。
 
-一些国家已经对来自南部非洲国家的人实施了旅行禁令，这些国家是首次发现新型COVID-19变异病毒的地方。
+中资企业投资的学校包括：
 
-据美联社报道，世界卫生组织(世卫组织)非洲区主任Matshidiso Moeti（马西迪索·莫蒂）周四表示，快速检测和报告这种新变种“为世界争取了时间”来抗击最新的（病毒）传播。
+- Bournemouth Collegiate School
+- St Michael’s School in Llanelli, Carmarthanshire
+- Bosworth Independent College in Northampton
+- Bedstone College in Shropshire
+- Ipswich High School
+- Kingsley School in Bideford, Devon,
+- Heathfield Knoll School
+- Thetford Grammar School in Norfolk
+- Wisbech Grammar in Cambridgeshire
+- Riddlesworth Hall Preparatory School in Norfolk
+- Adcote School for Girls near Shrewsbury, Shropshire
+- Myddelton College in Denbigh, Wales
+- CATS Colleges – Campuses are in London, Cambridge and Canterbury
+- Chase Grammar School
+- Abbotsholme School, Derbyshire
+- St Bees School, Cumbria
 
-[援引原文](https://thehill.com/policy/healthcare/public-global-health/584042-50-connected-to-companys-christmas-party-in-norway)
 
-审核校对：玫瑰天空
-上传排版：糖果儿
+信息来源：
 
+[How China is colonising the Commonwealth: As Britain beats itself up over our imperial past – and slavery – countries once loyal to the Crown are kneeling to Beijing which is building its own empire and enslaving a million Uighurs](https://www.dailymail.co.uk/news/article-10273381/How-China-colonising-Commonwealth.html)
+
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
