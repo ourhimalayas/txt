@@ -2,44 +2,28 @@
 ---
 
 
-## 拜登宣布使用太空新战略与中俄竞争
-` MOSglobal` [轉載自GNews](https://gnews.org/zh-hans/1723928/)
+## 日本同意承担更多美国驻军费用
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1723996/)
 
-作者：东京樱花团—在远方
+俄罗斯莫斯科喀秋莎农场  银河
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-2.png)
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/12/J-1.jpg)english.kyodonews.net
+日本共同社12月5日报道，据消息人士透露，日本与美国从11月末到本月初在美国华盛顿举行了工作磋商，日本决定接受美国提出的从2022财政年度开始增加驻日美军驻留经费的要求。
 
+报道称，日本首相岸田文雄的内阁将在敲定2022年度预算案之前，与美国就此达成协议。
 
+面对中共国的军事扩张，美国加强了在印太地区的驻军，为了维系长期安全同盟，美国敦促日本作为东道国增加军费负担。由于日本财政紧张，日本试图尽量减少援助的增加。
 
+日本在会谈中要求美国减少公用事业费用的财政分摊额，同时建议美国将增加的分摊额用于自卫队和美军共同使用的设施的维护和联合演习等经费。日本政府认为如果是这种增额，将有助于强化同盟，容易获得国民理解。
 
+日本和美国签署的费用分摊协议通常为期五年。虽然美方要求的金额未对外透露，但日本外交消息人士认为：“（日方）负担将有所增加，但大概不会是美国前川普政府要求的那种巨额负担。最后将由首相岸田文雄作出判断。”
 
-当地时间12月1日，拜登政府宣布美国使用太空新战略，对太空进行民间、商业和与国家安全相关的负责任的使用，以应对中共和俄罗斯的威胁。
+现阶段，驻日美军大约5.5万人。2021财年日方用于支付驻日美军基地员工工资和水电等费用支出约2017亿日圆(合17.9亿美元)。
 
-中共今年实验了超高音速武器，增加了地球轨道武器竞赛的前景，而地球轨道武器系统可能躲避目前的导弹防御系统。拜登政府同时谴责俄罗斯上月进行的反卫星武器实验，后者产生的碎片对国际空间站构成了威胁。
+参考链接：
 
-拜登近日还计划签署行政命令，把教育部、劳工部、农业部和内政部的负责人，以及总统国家气候顾问，增列为国家航天委员会成员。美国政府还希望国家航天委员会，努力增加太空气候数据、加强科学有关的努力，对美国增加就业并提高竞争力提供帮助。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-05-at-7.01.47-PM.png)图片来源: VOAChinese
-
-
-**参考阅读：**
-
-[https://www.voachinese.com/a/biden-focus-on-space-20211201/6335621.html](https://www.voachinese.com/a/biden-focus-on-space-20211201/6335621.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/rl-1-556x720.png)
-
-编辑/校对/发稿：一烘
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+[https://english.kyodonews.net/news/2021/12/809e7b850293-urgent-japan-to-shoulder-more-cost-of-hosting-us-military-forces.html](https://english.kyodonews.net/news/2021/12/809e7b850293-urgent-japan-to-shoulder-more-cost-of-hosting-us-military-forces.html)
 
  
 

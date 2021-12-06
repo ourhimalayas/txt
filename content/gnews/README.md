@@ -15,164 +15,164 @@
 
 ---
 
-### [12/4/2021 文贵直播：电池、新能源、数字货币和太空技术给习自信；习决定了中共国的命运，俄罗斯对灭共很关键](/content/gnews/1/README.md)
+### [G时评：衣食住行，没有“思”](/content/gnews/1/README.md)
+ ` GISELLE`
+
+### [12/5/2021 文贵直播：电池、新能源、数字货币和太空技术给习自信；习决定了中共国的命运，俄罗斯对灭共很关键](/content/gnews/2/README.md)
  ` 秘密翻译组-北美组`
 
-### [知名医学网站:Omicron变种病毒具有高变异性（2/2）](/content/gnews/2/README.md)
+### [日本同意承担更多美国驻军费用](/content/gnews/3/README.md)
+ ` HimalayaRussia`
+
+### [12/4/2021 文贵直播：电池、新能源、数字货币和太空技术给习自信；习决定了中共国的命运，俄罗斯对灭共很关键](/content/gnews/4/README.md)
+ ` 秘密翻译组-北美组`
+
+### [知名医学网站:Omicron变种病毒具有高变异性（2/2）](/content/gnews/5/README.md)
  ` 澳喜农场`
 
-### [拜登宣布使用太空新战略与中俄竞争](/content/gnews/3/README.md)
+### [拜登宣布使用太空新战略与中俄竞争](/content/gnews/6/README.md)
  ` MOSglobal`
 
-### [文贵先生最新爆料：关于新中国联邦人的三大利好消息](/content/gnews/4/README.md)
+### [文贵先生最新爆料：关于新中国联邦人的三大利好消息](/content/gnews/7/README.md)
  ` MOSglobal`
 
-### [日本政府、媒体强硬回击中共](/content/gnews/5/README.md)
+### [日本政府、媒体强硬回击中共](/content/gnews/8/README.md)
  ` MOSglobal`
 
-### [美海军司令呼吁在太平洋部署更多航母威慑中俄避免冲突](/content/gnews/6/README.md)
+### [美海军司令呼吁在太平洋部署更多航母威慑中俄避免冲突](/content/gnews/9/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [日本要闻汇编 12月5日](/content/gnews/7/README.md)
+### [日本要闻汇编 12月5日](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国在11个州检测到了Omicron变异毒株，并且许多病例都是疫苗接种者](/content/gnews/8/README.md)
+### [美国在11个州检测到了Omicron变异毒株，并且许多病例都是疫苗接种者](/content/gnews/11/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021/12/03 文贵先生直播精要](/content/gnews/9/README.md)
+### [2021/12/03 文贵先生直播精要](/content/gnews/12/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [可耻的华盛顿邮报博主呼吁制定“规则”，禁止媒体将共和党人视为“正常人”](/content/gnews/10/README.md)
+### [可耻的华盛顿邮报博主呼吁制定“规则”，禁止媒体将共和党人视为“正常人”](/content/gnews/13/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [随着高盛接受加密抵押品，比特币的债券即将进入华尔街](/content/gnews/11/README.md)
+### [随着高盛接受加密抵押品，比特币的债券即将进入华尔街](/content/gnews/14/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美国施加压力要求在美上市的中国公司披露更多信息](/content/gnews/12/README.md)
+### [美国施加压力要求在美上市的中国公司披露更多信息](/content/gnews/15/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [大量澳大利亚人涉足加密货币](/content/gnews/13/README.md)
+### [大量澳大利亚人涉足加密货币](/content/gnews/16/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美国国家医学院院长和NIH顾问主持孔子学院晚会](/content/gnews/14/README.md)
+### [美国国家医学院院长和NIH顾问主持孔子学院晚会](/content/gnews/17/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [生命说服](/content/gnews/15/README.md)
+### [生命说服](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
 
-### [在法院下令伊维菌素治疗后，濒临死亡的冠状病毒患者康复](/content/gnews/16/README.md)
+### [在法院下令伊维菌素治疗后，濒临死亡的冠状病毒患者康复](/content/gnews/19/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [拜登政府的强制疫苗规定再次在联邦法院上受到挫折](/content/gnews/17/README.md)
+### [拜登政府的强制疫苗规定再次在联邦法院上受到挫折](/content/gnews/20/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [日本在受到批评后放弃全面停止预订入境航班的做法](/content/gnews/18/README.md)
+### [日本在受到批评后放弃全面停止预订入境航班的做法](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [供应链问题正导致美国出现重要药物短缺](/content/gnews/19/README.md)
+### [供应链问题正导致美国出现重要药物短缺](/content/gnews/22/README.md)
  ` 纽约香草山MOS02`
 
-### [12.05文贵爆料 喜马拉雅真义三解：新中国联邦人To The Moon](/content/gnews/20/README.md)
+### [12.05文贵爆料 喜马拉雅真义三解：新中国联邦人To The Moon](/content/gnews/23/README.md)
  ` 秘密翻译组-原创组`
 
-### [[2021年12月1日文贵大直播PTT】全球监管下加密货币市场走向及对喜联储的利好](/content/gnews/21/README.md)
+### [[2021年12月1日文贵大直播PTT】全球监管下加密货币市场走向及对喜联储的利好](/content/gnews/24/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [FDA 发布的第一批关于辉瑞 Covid 疫苗的 FOIA 文件显示，2021 年 2 月上旬已经报告了 1,223 例死亡病例](/content/gnews/22/README.md)
+### [FDA 发布的第一批关于辉瑞 Covid 疫苗的 FOIA 文件显示，2021 年 2 月上旬已经报告了 1,223 例死亡病例](/content/gnews/25/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [三儿童死亡 越南清化暂停使用一批辉瑞疫苗](/content/gnews/23/README.md)
+### [三儿童死亡 越南清化暂停使用一批辉瑞疫苗](/content/gnews/26/README.md)
  ` HimalayaRussia`
 
-### [知名医生警告：中共病毒疫苗在杀人的同时令死因被归咎于潜在的疾病](/content/gnews/24/README.md)
+### [知名医生警告：中共病毒疫苗在杀人的同时令死因被归咎于潜在的疾病](/content/gnews/27/README.md)
  ` 波士顿五月花农场`
 
-### [DC大中华时事：中方批美国所谓“民主峰会”纯属闹剧](/content/gnews/25/README.md)
+### [DC大中华时事：中方批美国所谓“民主峰会”纯属闹剧](/content/gnews/28/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [FDA发布的关于辉瑞新冠疫苗的第一批FOIA文件显示，2021年2月初已经报告了1223例死亡病例](/content/gnews/26/README.md)
+### [FDA发布的关于辉瑞新冠疫苗的第一批FOIA文件显示，2021年2月初已经报告了1223例死亡病例](/content/gnews/29/README.md)
  ` 墨尔本雅典娜农场`
 
-### [文贵大直播12.5.2021郭先生分析目前亚洲形势 指出只有美国和中共自己才能灭共](/content/gnews/27/README.md)
+### [文贵大直播12.5.2021郭先生分析目前亚洲形势 指出只有美国和中共自己才能灭共](/content/gnews/30/README.md)
  ` 秘密翻译组-原创组`
 
-### [美国证券会将把中概股退市？](/content/gnews/28/README.md)
+### [美国证券会将把中概股退市？](/content/gnews/31/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [【文贵先生大直播PPT】近期亚洲政治军事形势](/content/gnews/29/README.md)
+### [【文贵先生大直播PPT】近期亚洲政治军事形势](/content/gnews/32/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [文贵爆料 12.5：躺平币让你不“躺平”](/content/gnews/30/README.md)
+### [文贵爆料 12.5：躺平币让你不“躺平”](/content/gnews/33/README.md)
  ` 秘密翻译组-原创组`
 
-### [2021年12月5日 郭先生大直播文字同步精要](/content/gnews/31/README.md)
+### [2021年12月5日 郭先生大直播文字同步精要](/content/gnews/34/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [2021年12月5日郭文贵先生大直播摘要及音频—银河系农场](/content/gnews/32/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [五角大楼称中共在台湾附近进行的是“演习”](/content/gnews/33/README.md)
+### [五角大楼称中共在台湾附近进行的是“演习”](/content/gnews/35/README.md)
  ` HimalayaRussia`
 
-### [比特币崩盘，交易员被血洗](/content/gnews/34/README.md)
+### [比特币崩盘，交易员被血洗](/content/gnews/36/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [【文贵先生大直播PPT】全球数字货币市场变化与喜币的未来](/content/gnews/35/README.md)
+### [【文贵先生大直播PPT】全球数字货币市场变化与喜币的未来](/content/gnews/37/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [12月5日文贵大直播快讯——银行已成为剥削行为的帮凶](/content/gnews/36/README.md)
+### [12月5日文贵大直播快讯——银行已成为剥削行为的帮凶](/content/gnews/38/README.md)
  ` 澳喜特战旅Gnews`
 
-### [12月5日文贵大直播快讯——人类必然的未来不可阻挡](/content/gnews/37/README.md)
+### [12月5日文贵大直播快讯——人类必然的未来不可阻挡](/content/gnews/39/README.md)
  ` 澳喜特战旅Gnews`
 
-### [天空新闻：女网协会比国际奥委会更有种，敢于反对中共](/content/gnews/38/README.md)
+### [天空新闻：女网协会比国际奥委会更有种，敢于反对中共](/content/gnews/40/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [充分迹象表明疫苗会导致过度炎症并引起免疫缺陷综合症](/content/gnews/39/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [秘翻在线： 辉瑞疫苗供应合同中的“保密条款”被指控牟取暴利](/content/gnews/40/README.md)
+### [秘翻在线： 辉瑞疫苗供应合同中的“保密条款”被指控牟取暴利](/content/gnews/41/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [恒大业主维权，政府出动警察镇压](/content/gnews/41/README.md)
+### [恒大业主维权，政府出动警察镇压](/content/gnews/42/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日台关系如胶似漆 二度举行“外交国防2+2”](/content/gnews/42/README.md)
+### [日台关系如胶似漆 二度举行“外交国防2+2”](/content/gnews/43/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [COVID-19 最新情报｜台湾2022年元旦起 部分工作强制接种两剂](/content/gnews/43/README.md)
+### [COVID-19 最新情报｜台湾2022年元旦起 部分工作强制接种两剂](/content/gnews/44/README.md)
  ` G&#124;News TAIWAN`
 
-### [COVID-19的新变异病毒与免疫逃避](/content/gnews/44/README.md)
+### [COVID-19的新变异病毒与免疫逃避](/content/gnews/45/README.md)
  ` 澳喜农场`
 
-### [2021/12/05 墙内世界](/content/gnews/45/README.md)
+### [2021/12/05 墙内世界](/content/gnews/46/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [立陶宛总统、外长及体育部长相继宣布外交抵制北京冬奥会](/content/gnews/46/README.md)
+### [立陶宛总统、外长及体育部长相继宣布外交抵制北京冬奥会](/content/gnews/47/README.md)
  ` 日本东京方舟农场`
 
-### [华尔街4万亿美元投资中共国；军情六处称中共是头号威胁](/content/gnews/47/README.md)
+### [华尔街4万亿美元投资中共国；军情六处称中共是头号威胁](/content/gnews/48/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [尽管大力推广第三针英国11月期间80%的新冠死亡病例是完全接种者](/content/gnews/48/README.md)
+### [尽管大力推广第三针英国11月期间80%的新冠死亡病例是完全接种者](/content/gnews/49/README.md)
  ` 澳喜农场`
 
-### [聚焦：加拿大将效仿奥地利实行强制疫苗吗？](/content/gnews/49/README.md)
+### [聚焦：加拿大将效仿奥地利实行强制疫苗吗？](/content/gnews/50/README.md)
  ` 丁过`
 
-### [中共国如何殖民英联邦](/content/gnews/50/README.md)
+### [中共国如何殖民英联邦](/content/gnews/51/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [国际要闻汇编 12月4日](/content/gnews/51/README.md)
+### [国际要闻汇编 12月4日](/content/gnews/52/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [墙内要闻汇编 12月4日](/content/gnews/52/README.md)
+### [墙内要闻汇编 12月4日](/content/gnews/53/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共利用弹道导弹战略核潜艇再次在台湾海峡炫耀武力](/content/gnews/53/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [秘翻在线: 加拿大新省禁止未接种疫苗者进入食品杂货店](/content/gnews/54/README.md)
  ` 秘密翻譯組G-Translators`
