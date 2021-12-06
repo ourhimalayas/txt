@@ -2,24 +2,42 @@
 ---
 
 
-## 秘翻在线：泽莫尔会议移至维勒班，将有19,000人参加
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1725126/)
+## 澳洲新南威尔士州的教师、巴士和火车司机集体罢工
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1725197/)
 
-#### 翻译：海奥華預言
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-#### 发布:白夜
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-251.png)
-埃里克-泽穆尔原定于周日举行的第一次竞选会议最终将在巴黎北部的维勒班特展览馆（Seine-Saint-Denis）举行，而不是在天顶大厦举行，他的团队估计，到目前为止，登记人数已达19000人。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/5616.jpg)
 
-“多好的消息啊！你们有这么多的人想参加12月5日这个星期天的会议，我们把它从巴黎的天顶大厦移到了维勒班的展览馆，”这位现在的总统候选人星期三在推特上说。他的随行人员解释说，考虑到在天顶大厦（Zenith）登记的人数，候选人在那里租了一个5800个座位的大厅，他决定将会议搬到维勒班特展览馆。大门将在下午1点打开，公众会议将在下午3点开始。
 
-负责该地的通讯部门告诉法新社，世博园区可容纳3万名站立者，2万名坐立者。
+ 
+图片来源:  Bianca de Marchi/AAP
 
-CGT、Solidaires和反法西斯活动家曾承诺在天顶大厦示威，以 “让泽穆尔闭嘴”。天顶大厦所在的巴黎第19区市议会曾向省长表达了对 “扰乱公共秩序的风险 “的担忧。极左协会（Action antifasciste Paris-Banlieue）也呼吁从中午开始封锁天顶大厦会议。
 
-据巴黎警察局称，约3000名示威者参加了周六举行的 “反对极右翼和种族主义 “和 “反对埃里克-泽穆尔的意识形态 “的游行。游行过程中警力密集，离开后发生了一些零星事件。
+#### 编译：小红帽
 
-[文章来源](https://www.challenges.fr/politique/le-meeting-de-zemmour-deplace-a-villepinte-19-000-participants-annonces_791421)
+代表新南威尔士州教师和公共交通工人的工会将本周举行的一系列罢工。
+
+由于公共汽车和火车司机采取了罢工行动，数千名出行的市民不得不制定其他旅行计划。
+
+罢工从周一开始，悉尼内西区的公交车司机因工资平等问题离开了工作岗位。周二，该市西南部的公交车司机也将举行罢工。这两个群体将在周五下午的高峰期进行两个小时的协调罢工。
+
+同一天，火车司机将拒绝驾驶外国制造的火车。这些火车覆盖四分之三的铁路网络服务。
+
+公立学校的教师和校长也将进行罢工，因为政府未能解决不可持续的工作量、缺乏竞争力的工资和人员短缺问题。
+
+新南威尔士州交通局表示，周二的罢工意味着大多数线路的服务将减少运行频率，增加车站停靠点，并需要更长的时间才能到达目的地。建议需要出行的市民提前计划。
+
+**参考新闻：**[NSW teachers, bus, train drivers on strike (msn.com)](https://www.msn.com/en-au/news/australia/nsw-teachers-bus-train-drivers-on-strike/ar-AARulvv?ocid=msedgdhp&amp;pc=U531)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,26 +2,30 @@
 ---
 
 
-## 1.7万法国人唱《马赛曲》支持总统大选右派独立侯选人埃里克-泽穆尔
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1724006/)
+## 圣诞节临近美国航运停滞情况恶化
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1724058/)
 
-#### 翻译撰稿：海奥华预言
+据《零对冲》作者泰勒·杜登（ TYLER DURDEN ）2021 年 12 月 4 日 报道
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image002-2.jpg)图片来自网络
+拜登总统告诉美国人，圣诞节前供应链处于“非常强劲的状态”。拜登周三在白宫发表讲话说，他的政府已与私营部门合作，以“确保商场货架上堆满货。”但新的航运数据显示，拥堵的供应链正在恶化，这可能需要数月时间才能解决。
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-251.png)
-2021年12月5日，法国总统大选右派独立侯选人埃里克-泽穆尔的1.7万名支持者在维勒班特唱起了《马赛曲》，气氛达到顶峰。
+来自美国最繁忙的港口，加利福尼亚的洛杉矶和长滩的最新航运数据显示，有 96 艘集装箱船在海上停置，等待卸货。
 
-埃里克·泽穆尔是法国政治记者，犹太人，散文家，作家，电视评论员。直到今年夏天，埃里克-泽穆尔还只是一名知名的异议人士，他每周在法国右翼媒体上撰写专栏，并在一个24小时电视新闻频道上抨击现行移民政策和政治正确。
+货运浪潮公司（FreightWaves） 的格雷格·米勒（ Greg Miller ）将新的船舶排队系统[描述为](https://www.zerohedge.com/economics/how-california-solved-its-record-ship-pileup-it-moved-them-out-sight-over-horizon)纯光学（纯粹为了视觉效果），它减少了洛杉矶/长滩近海的船舶数量。他说，船只被放置在更远的海洋中，眼不见心不烦，以防止航拍抓拍到集装箱船拥堵停滞困境的图像。
 
-2021年11月30日泽穆尔在YouTube平台发布的参选影片，正式宣布角逐明年2022年法国总统大选，挑战寻求连任的法国总统马克宏。在最近的民意调查中，63岁的泽莫尔与强硬派的玛丽-勒庞(Marine Le Pen)在第二轮选举中并驾齐驱。这将这位前电视评论员从一个寻求关注的乌合之众推到了政治关注的中心。
+新的排队系统将货船分为几类：40 艘停泊在距港口 40 英里范围内，56 艘停泊在该范围之外。随着美国的最大的集装箱港口货船排队继续变长，拜登拯救圣诞节的奇迹似乎正在失败。
 
-作为戴高乐主义者，泽穆尔主张法国与美国保持距离，并且与俄罗斯建立更密切的关系，以及加强对欧盟及其外交政策的独立性。他曾表示，诺曼底登陆既是美国对法国的解放，也是对法国的“殖民”。他还呼吁强化法国军队，认为法国现时在国际舞台上保留的唯一影响力是取决于其军队的实力和核防御能力。
+同样恶化的是等待时间。现在，一艘船进入这两个港口需要等 21 天或者说三周的时间，而 8 月份则为 7 天。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image004.gif)
+拜登减少货船停留时间的努力没有奏效，即使他在 10 月中旬宣布了一项新[指令](https://www.zerohedge.com/markets/port-los-angeles-prepares-247-operations-tackle-massive-cargo-backlog)，要求两港口全天候运营。我们当时在一篇题为“[这是拜登全天候港口运营承诺背后的真相](https://www.zerohedge.com/markets/heres-truth-behind-247-port-operations-pledge)”的文章中指出，此举不能挽救圣诞节。
 
-泽穆尔认为必须与俄罗斯改善关系。他认为欧洲应要恪守“从大西洋到乌拉尔”的原则，与各国维持友好关系的同时，力保国家利益及主权完整。他赞成法国承认俄罗斯在克里米亚的主权，并提建议取消西方在克里米亚公投后对俄罗斯采取的“不公平”和“适得其反”的反俄制裁。他认为妖魔化俄罗斯是愚蠢的举动，相反是应该要与俄罗斯结成联盟，因为美国真正的敌人是中共。
+有更多证据表明总统的供应链正在缓和的说法是有争议的。货运浪潮公司）的克拉丽莎·霍斯 (Clarissa Hawes) 说：“我们正被码头的排长队和人员配备问题淹没。” 她说，有缺陷的预约系统，和拖运卡车司机的其他效率问题，继续困扰着这两个港口。
 
-参考链接[1](https://www.economist.com/the-economist-explains/2021/11/12/who-is-eric-zemmour-frances-wannabe-donald-trump) [2](https://zh.wikipedia.org/wiki/%E5%9F%83%E9%87%8C%E5%85%8B%C2%B7%E6%BE%A4%E7%A9%86%E7%88%BE) [3](https://gettr.com/post/pisavye833)
+拜登拯救圣诞节的尝试似乎失败了。但仍有时间召集国民警卫队。至少现在，拜登政府可以将一些商场货架仍然空空如也的原因，归咎于新的中共病毒变种欧米克戎（ Omicron ）。
 
+原文链接：[https://www.zerohedge.com/markets/us-ship-logjam-worsens-bidens-attempt-save-christmas-fails](https://www.zerohedge.com/markets/us-ship-logjam-worsens-bidens-attempt-save-christmas-fails)
 
+翻译：JS709｜校对：Nick｜编辑&发布：断播
 
  
 

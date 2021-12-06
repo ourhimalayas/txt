@@ -2,41 +2,28 @@
 ---
 
 
-## 躺平币让你第一天就能买面包买油能吃饭有法币全部功能
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1724141/)
+## 文贵爆料12.5.2021郭先生认为俄罗斯形势对灭共一片大好
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1724221/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/bcaa4228faafa314000bee2b4a516b10_副本.jpg)
-据[2021年12月05日 文贵大直播：全球数字货币市场改观；亚洲政治军事形势大变；恒大地产与美金融市场；喜币近况与未来的意义](https://gtv.org/video/id=61acb7bebbd75f62e52f7ce4)时间点2：20：12——
+撰稿：Naughty（文行）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Image-2021-12-05-at-10.11.45-PM-1-1.jpeg)
+郭文贵先生在2021年12月5日的大直播中指出，习的自信和疯狂绝对来自于普京， 来自俄罗斯，他们两个之间达成了绝对的默契，否则习绝对不敢如此嚣张。
 
-**郭文贵先生：**关键那我怎么兑现呢？第一天我就告诉，你躺平币就会让你第一天就可以买面包、买油，我告诉所有的工程队的人，第一天你就要能买面包、买油，我能吃饭，我能有油加。当然能买G-Fashion了，当然能买G-Clubs了，是吧？欸，这个躺平币它不是空间币的、它不是虚幻币，它是真正的可兑换的，就是法币所有的功能它都有，马上可以用。
+郭先生说影响习最深的就两方面，俄罗斯普京和北朝鲜。而习对中共和西方有杀父夺妻之恨，英美政府都是跟中共江家邓家有良好的关系，跟习没有什么关系，也看不起他。
 
-它有级别的，比如说文疯而动我账上有500个币，那你买面包、买油的可能只让你使用50个币每一次，你不能一下子弄完，然后接着你再接着用，接着用，每一次，每一次用。
+普京跟习一样，他对西方世界的恨是骨子里的，北朝鲜和伊朗更是如此。基于此，习对挑战美国更加自信。
 
-如水说我有500个币，那如水我这块儿多了5万个币，那你就可以用500个币一次，这种规则让大家我拿到币，就是我躺平的结果下一分钟我就有面包吃，我就有油加，类如这样，我可以买G-Fashion，你还能干啥？人活着你不就是睡觉、吃饭、驱车、加油、买点衣服穿，你还能干啥？双修费你可以跟对方商量，是吧？你愿意给那是你给的事儿，点对点的支付，这个叫躺平币。
+习的信心还来自一个重要方面，就是技术，中共现在在量子电脑技术，大型计算机技术，数字货币，新型电池技术，新能源，太空技术，都取得了长足的发展，但这一切背后都有俄罗斯的支持，如果中俄关系出现问题，中共的这些技术都会出问题，更重要的跟中共合作的这些国家都会出问题。
 
-（以下暂略）
+中俄关系现在都取决于普京和习近平的身体状况和安全状况，如果这两个人任何一个人出现问题，一切就结束了。
 
-撰稿：喜马拉雅的肉夹馍；
+郭先生认为目前北边（俄罗斯）对新中国联邦的灭共形势一片大好，中俄之间已达成默契，双方计划同时分头行动，俄罗斯取乌克兰，在欧洲推广天然气；中共取台湾，并利用俄罗斯提供的技术跟西方抗衡。双方合作占领中东、非洲和亚洲市场，在经济上孤立美国。
 
-审核：喜马拉雅的馍夹肉；
+郭先生支指出，中俄的计划看似完美，实际风险极大，稍有差池就会全盘皆输。
 
-校对：Maarago；
+参考链接：https://gtv.org/video/id=61acb7bebbd75f62e52f7ce4
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+校对发布：Naughty(文行)
 
  
 

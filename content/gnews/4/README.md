@@ -2,13 +2,24 @@
 ---
 
 
-## 中共病毒疫苗致死率也是有史以来最危险的天花疫苗800倍
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1725097/)
+## 过刘湘墓
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1725174/)
 
-11/23/2021 史蒂夫·克什：即使改变了副作用和全面接种疫苗的定义，中共病毒疫苗的致死率也是有史以来最危险的天花疫苗的800倍。
+作者：东京樱花团/**小小杜**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-262.png)
+上将孤坟在 英灵不可寻
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+断碑文散落 荒草树年深
 
+在且光明志 终还报国心
+
+未知身后事 坎坷欲沾襟
+
+2015年8月6日 成都
+
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
