@@ -2,37 +2,39 @@
 ---
 
 
-## 以色列首现巨幅反疫苗广告
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1726708/)
+## 纽约市将对私营企业实施强制疫苗令
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1726915/)
 
-作者：纽约香草山健身部 – Ivy001
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间12月5日，在以色列的大街上，挂起了高达6，7层楼的巨幅广告：一个被妈妈拉着小手的小男孩，忧伤的看着镜头说，“妈妈，请不要把我的手交给他们！”下方是醒目的疫苗针管标志。
+译编：真北007
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1000-edited.jpeg)图片来源：网络
+来自美联社十二月6日的新闻报道：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Untitled.001-2-edited.jpeg)
+“一个极左、跛脚鸭子政治家，他是反商业的、一维的、不负责任的、不聪明的，并且永远持有‘我总是知道最好’的态度，这就是全美最差市长比尔·德布拉西奥（Bill de Blasio）。”
 
-在11月29日，纽约拉比法庭裁定：向儿童和大多数成年人注射中共病毒疫苗是违法犹太法律的，裁决明确禁止向儿童、青少年和育龄成年人注射以及推广中共病毒疫苗。
+根据市长比尔·德布拉西奥 (Bill de Blasio) 周一宣布的新规定，纽约市雇主将必须强制要求其员工接种 COVID-19 疫苗。
 
-这是在拉比法庭裁定之后，以色列首次高调出现反疫苗广告。
+民主党市长在 MSNBC 的“Morning Joe”节目中表示，针对私营企业的疫苗强制令将于 12 月 27 日生效，旨在防止假日期间和寒冷月份 COVID-19 感染激增。
 
-消息来源：[https://gettr.com/post/pivc6g27d9](https://gettr.com/post/pivc6g27d9)
+德布拉西奥说：“我们纽约市已决定采取先发制人的行动，真正采取大胆措施，以阻止 COVID 的进一步发展及其对我们所有人造成的危险。” “截至 12 月 27 日，纽约市的所有私营部门雇主都将受此疫苗规定的约束。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+尽管联邦法院阻止了拜登总统在全国范围内为大型公司做同样的事情，但该市正在着手将这项任务强加给私营部门企业。
 
-**校对/发稿：童谣**
+德布拉西奥说，他希望新的强制令能够经受住任何法律挑战。市长发言人表示，这将适用于大约 184,000 家私营企业。
 
-**更多资讯，更多关注**
+当前纽约市 COVID-19 法规要求室内餐厅、娱乐场所和健身中心提供至少一剂疫苗。白思豪说，根据室内餐饮、娱乐和健身房的新规定，12 岁以上的人需要注射两针。5 至 11 岁的儿童需要注射一针，而这些儿童目前没有要求。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+德布拉西奥将于本月底离任，并表示他可能会在明年寻求民主党提名纽约州长，他试图将自己描绘成抗击 COVID-19 的全国领袖。
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+正在寻求共和党州长提名的长岛共和党众议员 Lee Zeldin 称新宣布的疫苗要求是“杀死工作、压制小企业”。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+“一个极左、跛脚鸭子政治家，他是反商业的、一维的、不负责任的、不聪明的，并且永远持有‘我总是知道最好的’态度，”这就是全美最差市长比尔·德布拉西奥（Bill de Blasio），”泽尔丁在一份声明中说。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+点评：此文给人一个好的感觉是美国的民主制度体现。所谓好的或坏的法律法规都会受到相应的法律挑战。
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+原文链接：[https://apnews.com/article/coronavirus-pandemic-health-new-york-new-york-city-476a856e401bb826d3e828f6e580408d](https://apnews.com/article/coronavirus-pandemic-health-new-york-new-york-city-476a856e401bb826d3e828f6e580408d)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

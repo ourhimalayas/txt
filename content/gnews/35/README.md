@@ -2,34 +2,28 @@
 ---
 
 
-## 中国电信美洲公司将被美国吊销牌照停运
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1726141/)
+## “涨价热潮”一波未平一波又起，日本国民生活愈加艰难
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1726297/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月4日，中国电信美洲公司（CTA）发布公告称，自即日起暂停所有客户续订服务，并于2022年1月3日前，停止美国的无线转售业务。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/4-8.jpg)
-公告还称，根据美国联邦通讯管理局（FCC)近期发出的，有关吊销214公共运营商牌照的相关指令，CTA需要关闭美国电话卡业务。此前，FCC就以安全问题为由要求其停止服务。至11月底，CTA曾上诉至一家联邦法院，试图阻止FCC指令的施行。
+撰稿：东京樱花团/文勝
+![](https://assets.gnews.org/wp-content/uploads/2021/12/10-2.jpg)
+[图片来源](https://www.baicaio.com/quan-index-q-%E5%91%B3%E4%B9%8B%E7%B4%A0-sort-v-p-2)
 
-据悉，中国电信在美获得授权运营已达20年。5月初爆出，中共国三大电信公司因“有军方背景”，在美从事间谍及其它有害活动，对美国构成巨大国家安全风险，而被纽交所勒令退市。
+据时事通信社12月6日报道，日本味之素公司宣布将于明年3月提高蛋黄酱相关产品的价格。
 
-在此提醒，持有中国电信一卡双号的美国用户，及时更换并解绑与CTA的各种注册服务，或转号至新的移动公司。
+味之素公司6日宣布，将提高其蛋黄酱关联产品的价格。这一增长将从明年3月1日的交货开始实施。这次涨价分商业和民用两方面进行。用于餐饮等商业用途的共涉及70种产品，包括蛋黄酱产品，调味品等，其涨幅为1-12%；与此同时，涉及到涨价的家庭用蛋黄酱相关产品共有6种，增幅约为3-9%。日本家庭餐桌上常见的蛋黄酱“Pure Select Mayonnaise”的预计售价将从目前的373日元（400克）调整为403日元左右。味之素公司的解释是由于作为原料的食用油价格飙升，所以不得不调整相关商品价格。
 
-参考链接：[执照被吊销，中国电信美洲公司 CTEXCEL 将于明年一月起停止运营](https://m.ithome.com/html/590569.htm)
+最近，日本食品价格相继上涨，从食用油、面粉，面包到咖啡，人造奶油等，涉及种类之多令家庭主妇们愁眉不展。据称，涨价的原因多种多样，既有也有气候反常导致产量降低等原因，也有因病毒肆虐，物流费用上涨等原因。食品价格与普通百姓生活息息相关，在中共病毒疫情持续蔓延之中，“涨价热潮”令日本工薪阶层更加看不到生活好转的希望！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+信息来源：
 
-总编：AN
-编辑：Kathy文艺
-校正/发稿：Fei797
+[味の素、マヨネーズ値上げ＝家庭用最大９％、来年３月 | 時事通信ニュース (jiji.com)](https://sp.m.jiji.com/article/show/2671727)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
