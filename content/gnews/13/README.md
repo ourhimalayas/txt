@@ -2,10 +2,10 @@
 ---
 
 
-## 荷兰数千人抗议政府中共病毒限制措施
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1725173/)
+## 日本厚生劳动省将心肌炎、心内膜炎列为中共病毒疫苗重大副作用
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1725244/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+作者：纽约香草山教育部 – Naughty(文行)，日本方舟农场- Andy5
 
 
 
@@ -13,19 +13,16 @@
 
 
 
-12月4日，数千人聚集在荷兰中部城镇乌得勒支，抗议上周末生效的中共病毒限制措施，抗议者举着横幅、挥舞着国旗穿过镇上的街道。在游行路线上可以看到大量的警察。
-
-这是荷兰首次举行反对新冠限制措施的大型示威，这些已生效的措施包括夜间关闭酒吧、餐馆和大多数商店，以期阻止中共病毒继续传播。
-
-两周前，在政府宣布计划禁止大多数未接种疫苗的人进入酒吧、餐馆和其他公共场所后，荷兰也出现了暴力抗议活动。这些计划因在议会中遭到广泛反对，尚未正式实施。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1.2-2.jpg)
+12月3日，日本厚生劳动省举行了一次专家小组会议，将年轻男性的心肌炎、心内膜炎列为Moderna和辉瑞中共病毒疫苗可能产生的严重副作用，提议在疫苗所附的文件上打印“严重副作用”字样，以警告疫苗存在的重大风险。还要求医院依法详细报告那些在接种疫苗后28天内出现症状的人的事件。 厚生劳动省表示，截至11月14日，在每百万接种Moderna疫苗的男性中，有81.79名青少年男性和48.76名20岁以上的男性报告了此类副作用。辉瑞疫苗患者的数字分别为15.66和13.32。
+厚生劳动省的提议得到了专家小组的认可，他们将通知各市政当局。但厚生劳动省仍然认为接种疫苗利大于弊，并未阻止疫苗接种。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1.1-2.jpg)
 参考链接：
-[Thousands Protest Over Dutch Coronavirus Restrictions](https://www.oann.com/thousands-protest-over-dutch-coronavirus-restrictions/?utm_source=ground.news&amp;utm_medium=referral)
+[Health ministry warns of vaccine’s side effects](https://www3.nhk.or.jp/nhkworld/en/news/20211204_12/?utm_source=ground.news&amp;utm_medium=referral)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-总编：文特
-编辑：飞虹
+总编：飞虹
+编辑：文特，飞虹
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**

@@ -2,30 +2,35 @@
 ---
 
 
-## 斯洛伐克不惧中共压力派团访问台湾
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1725128/)
+## 数字银行牌照是数字货币发展的有力保证
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1725238/)
 
-![斯洛伐克不惧中国压力派团访问台湾](https://www.rfa.org/mandarin/Xinwen/7-12052021153439.html/@@images/ec0bef64-a079-4433-85a8-76833e2c318f.jpeg)*斯洛伐克经济部次长佳雷克（中）率43人访问团*
-据自由亚洲电台12月5日报道，斯洛伐克经济部政务次长卡罗尔·加莱克5日至10日率领43人访问台湾，参加“第一届台斯跨部会经济合作咨商会议”。
+作者：纽约香草山文艺部 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+在12月3日的直播中，郭文贵先生详解了获得数字银行牌照对于数字货币的重大意义。
 
-该访问团是自斯洛伐克2003年在台湾设立办事处以来，在规模及层级上最高级的对台访问团。成员包括经济、外交及国家科学院等共18名跨部会高阶官员，并有涵盖太空、生技、半导体等斯国政府强力推荐，兼具产能及研发实力的25家优秀厂商代表。
+郭先生将数字银行牌照称为数字货币之父——其为数字货币的合法运营和快速发展保驾护航。对此，郭先生解释，全世界还没有监管数字货币的法律标准，但数字银行目前暂时由银监会监管，所以数字银行牌照堪比连通数字货币与法币的桥梁。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture1-7.jpg)
+另一方面，数字银行不止对喜币，其对全世界的数字货币来说都是一个合法的运营平台。郭先生举例，对中心化的数字货币来说，数字银行是父亲，喜联储是母亲，而喜支付则负责传宗接代。这其中，数字银行牌照就相当于结婚证，代表着各国政府承认数字货币的合法身份，从而可以保证其在监管机构制定的法律和政策框架下，健康且快速地发展。
 
-11月3日，欧洲议会代表团13人访问台湾。11月28日，波罗的海三国立陶宛、爱沙尼亚及拉脱维亚的国会议员共同访台。欧洲国家陆续防台，表明中共对欧洲的影响力在渐渐衰弱。任何民主文明的主权国家都不会容忍中共的霸凌，如果不表达团结和对抗，今天是台湾被中共威胁，明天可能会是任何一个国家。
+对于可能发生的老牌金融家或传统银行反对并打压数字货币的情况，郭先生提出，数字货币对人类和金融的影响是颠覆性的，更是不可逆转的。加之美国监管机构支持金融机构管理中心化、技术去中心化的模式，因此，一旦相关监管政策正式出台，喜联储将成为全球数字货币的业界标杆。
 
-新闻参考链接：[https://www.rfa.org/mandarin/Xinwen/7-12052021153439.html](https://www.rfa.org/mandarin/Xinwen/7-12052021153439.html)
+参考链接：[数字银行牌照是数字货币发展的有力保证](https://gtv.org/video/id=61aa1cecd6388d55041591e6)
 
-编辑：胖丁
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-* * *
+总编：文特/ 飞虹
+编辑：Irene木木
+校对/发稿：Hetangyuese
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

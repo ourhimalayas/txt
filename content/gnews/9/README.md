@@ -2,36 +2,45 @@
 ---
 
 
-## 挪威至少有50人在公司的节日派对后感染了欧米克戎（Omicron）变异病毒
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1725225/)
+## 喜币一周分析（11月29日-12月5日）
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1725277/)
 
-作者：奥拉菲米汉·奥辛（Olafimihan Oshin）
-发布日期：2021年12月02日
-新闻来源：国会山报（THE HILL）
-翻译：文虓Bobby
+作者：纽约香草山金融部  – ILOVE战神
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/120601.jpg)
 
-据美联社报道，挪威官员声称，至少有50人感染了这种新型冠状病毒的欧米克戎（Omicron）变种。
 
-有关官员周四表示，这些新病例与一家公司在首都奥斯陆一家餐厅举行的节日派对有关。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-据美联社报道，挪威公共卫生研究所(NIPH)在一份声明中说，受感染的人生活在奥斯陆和周围的城市。
 
-奥斯陆市政府表示，预计还会出现更多的欧米克戎（Omicron）病毒病例，官员们正在进行搜索，以追踪从餐厅派对传播的（传播）途径。
 
-据美联社报道，美国、新加坡、印度和希腊都报告了第一例欧米克戎（Omicron）变异病例。
+本周据郭文贵先生透露，喜联储即将获得欧洲与美国的数字银行牌照，以及英国的高端博彩牌照。在这些利好消息的影响下，近日喜币价格大幅回升，从最低点31美元左右上涨至最高突破47美元，最高涨幅约50%。目前喜币交易量已突破2100万枚，占今年总发行量的约2.1%。目前大型机构投资者尚未进场，市场交易量较低，平均日交易额仅为约20-30万喜币，价格仍被严重低估。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.3-2.jpg)
+目前数字银行大多通过中转行来完成业务。喜联储获得一级银行牌照，没有中转行，其价值相当于一个数字中央银行。目前世界上的数字银行牌照主要发放给非加密货币的平台。喜联储获得数字银行牌照是加密货币领域合规进入世界金融主流的先驱。数字银行与博彩牌照纳入喜马拉雅生态系统后，喜美元稳定币将更广泛地在交易中合法流通。
 
-南非卫生官员在上周的一次媒体吹风会上证实发现了这种以前被称为B.1.1529的新变种，称它与以往的病毒突变“非常不同”。
+郭先生本周还披露美国将计划严格监管去中心化管理的数字货币，并支持喜联储“管理中心化、技术去中心化”的模式。结合喜币、喜美元、喜支付、喜贷款，喜联储将成为世界数字货币领域标准的制定者。喜联储数字银行的合法地位为新中国联邦被各主要国家进行法律承认与政治合作打下了经济基础。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.2-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-一些国家已经对来自南部非洲国家的人实施了旅行禁令，这些国家是首次发现新型COVID-19变异病毒的地方。
+总编/编辑：飞虹
+校对/发稿：为真不破20
 
-据美联社报道，世界卫生组织(世卫组织)非洲区主任Matshidiso Moeti（马西迪索·莫蒂）周四表示，快速检测和报告这种新变种“为世界争取了时间”来抗击最新的（病毒）传播。
+**更多资讯，更多关注**
 
-[援引原文](https://thehill.com/policy/healthcare/public-global-health/584042-50-connected-to-companys-christmas-party-in-norway)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-审核校对：玫瑰天空
-上传排版：糖果儿
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

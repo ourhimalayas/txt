@@ -2,22 +2,28 @@
 ---
 
 
-## 中共连续7年增收的粮食危机
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1725155/)
+## 广州市一搅拌车失控连撞多车
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1725240/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12063.png)[图片来源](https://mbd.baidu.com/newspage/data/landingsuper?context=%7B%22nid%22%3A%22news_10007510126053148502%22%7D&amp;n_type=-1&amp;p_from=-1)
-红星新闻12月6日报道，中共国家统计局公布的全国粮食生产数据显示，2021年全国粮食总产量13657亿斤，比上年增加267亿斤，增长2.0%，全年粮食产量再创新高，连续7年保持在1.3万亿斤以上。其中，秋粮产量10178亿斤，比上年增加191亿斤，增长1.9%。
+作者：纽约香草山农场 – 文特
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+据墙内媒体消息，12月4日，在中共国广州市江南大道与昌岗中路路口，一辆水泥搅拌车失控连撞多车。广州交警通报称，事故造成多车损坏，3人身体轻微不适。据搅拌车驾驶人潘某自述，其在驾驶过程中突感身体不适，导致了事故发生。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture3-2.jpg)
+参考链接：[广州市一搅拌车失控连撞多车](https://www.gettr.com/post/pirxie93df)
 
-海关总署在11月份公布的数据显示，中共国10月粮食进口量为968.4万吨，1-10月进口量为13795.6万吨，同比增加23%，占我国粮食总产量接近20%。有望超过2020年全年粮食进口总量14262.1万吨。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-既然粮食产量连续7年稳定在1.3万亿斤以上，为何还要20%全靠进口？在将要结束的一年里，产粮区灾难不断发生，还能保持2%增长？中共一贯的假恶丑不仅在统治奴役百姓，还有公布的统计数据，把危机用喜讯的方式进行传递。随着病毒疫情和疫苗灾难的蔓延，中共国经济危机进一步扩大，而粮食危机也必将随之加剧。
+总编：飞虹
+编辑：文特
+校对/发稿：Hetangyuese
 
-信息来源：[国家统计局：2021年全国粮食总产量13657亿斤 同比增长2.0%](https://mbd.baidu.com/newspage/data/landingsuper?context=%7B%22nid%22%3A%22news_10007510126053148502%22%7D&amp;n_type=-1&amp;p_from=-1)
-
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

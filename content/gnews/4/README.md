@@ -2,52 +2,21 @@
 ---
 
 
-## 前荷兰女王中共病毒检测呈阳性
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1725273/)
+## 病毒疫苗背后的黑暗势力极其终极目的
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1725338/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+撰稿：Angelsky
 
+视频：Angelsky
 
+病毒疫苗最新消息：郭文贵先生于2021年12月05日，新中国联邦文贵大直播中指出：本次COVID-19病毒大流行及目前各国政府以病毒流行为借口，不择手段强迫民众打疫苗的背后黑手，就是世界上黑暗、神秘的宗教力量以及华尔街内部的几个所谓沼泽地大佬。而这个罪恶行径，俄罗斯、中共占据了百分之八九十。他们以病毒为借口，用疫苗屠杀人类的原因，一是他们认为世界上人口太多，需要养活的人以及支付的养老金太多。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+郭先生问大家，你们知道世界上有多少残疾人口吗？俄罗斯的残疾人占其人口的比例你们知道吗？欧洲有多少残疾人你们算过账吗？世界上残疾人、老人占世界人口的比例超出大家的想象！这些邪恶的保险公司、金融机构、极端的宗教主义者和共产主义联系在一起，让其当杀手，这就相当于一个村里的村长，找来完全泯灭良心的雇佣军、魔鬼大军，帮助他杀掉村里需要支付养老金的老年人和需要大家照顾的残疾人是一个道理，这是一场人类的大灾难！
 
+他们第一步先释放病毒，就像先放火烧你家房子逼着你往外跑，在大家跑出来之后在必须休息喝水的地方，在水里放了毒，你渴了只能喝此处的毒水，喝水后全部被毒死。目前强迫民众打的疫苗就相当于这个毒水。然后留下的就是他们家自己的人和他们希望留下的人，村里的老人、残疾人和他们认为必须消灭的人全部被他们消灭了，所有村里的财富全部归他们所有，财富的支配权由他们主宰。
 
-
-荷兰皇家新闻局12月4日在一份声明中宣布，83 岁的前荷兰女王比阿特里克斯公主中共病毒检测呈阳性。
-
-声明表示，前女王在感到轻微感冒症状后接受了中共病毒检测。目前她正在荷兰中部的一座城堡里接受隔离。
-
-这位荷兰前女王在位33年，直到2013年退位，她的长子成为国王。
-
-上周，她访问了荷兰王国的加勒比库拉索岛。当时，她告诉记者，她已经接种了中共疫苗加强针。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-44.jpg)
-参考链接：
-[Dutch former queen Beatrix tests positive for COVID-19](https://torontosun.com/news/world/dutch-former-queen-beatrix-tests-positive-for-covid-19?utm_source=ground.news&amp;utm_medium=referral)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
-
-总编：文特
-编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+郭先生最后非常自信的说，这伙反人类的邪恶势力最终一定会被消灭，因为有新中国联邦在，上天让新中国联邦诞生，正是为了消灭这些地球上的黑暗势力。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
