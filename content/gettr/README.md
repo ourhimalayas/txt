@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/6/2021 5:00 AM (UTC)`
+
+12/05/2021 Miles Guo: The CCP has turned the debt crises in the real estate into the weapons of the economic and currency unrestricted warfare targeting the West; Sunac’s debt crisis will have a much bigger impact than that of Evergrande; the CCP sent spy agents to force private entrepreneurs such as Xu Jiayin and Jack Ma to sell their overseas assets so that the CCP can take the cash<br/><br/>12/05/2021文贵直播：中共将房地产债务危机变成针对西方的经济超限战和货币超限战的武器；融创的雷比恒大还要大；中共派特务逼许家印、马云等私营企业家将海外资产变现，钱归中共<br/>
+![img](https://media.gettr.com/group32/getter/2021/12/06/05/dcbc268c-0594-cd10-433f-e2ebee8bea97/out.jpg)
+
+---
+
 `@miles 12/6/2021 3:21 AM (UTC)`
 
 12/05/2021 Miles Guo:  The CCP and Russia are the cores of the evil forces, and the CCP is in cahoots with other dark forces in an attempt to eliminate the senior people and the people with disabilities. The birth of the New Federal State of China (NFSC) is God’s will. The mission of the NFSC is to defeat and destroy these evil forces<br/><br/>12/05/2021文贵直播：中共和俄罗斯是黑暗力量的核心，中共和其他邪恶势力沆瀣一气，妄图消灭老年人和残疾人。新中国联邦的诞生是天意，她的使命就是消灭这些邪恶力量<br/>
@@ -144,13 +151,6 @@ Hcoin To The Moon <br/>iTunes Ranking No. 1 🥇<br/>iTunes 打榜第一名🥇<
 
 12月4号 Hcoin To The Moon 打榜记录（二）<br/>感谢香港，新加坡，美国，阿联酋，台湾，新西兰的战友们🙏🙏🙏🙏🙏🙏🙏<br/><br/>iTunes 摇滚Rock第一名🥇：<br/>香港🇭🇰<br/>新加坡🇸🇬<br/>美国🇺🇸<br/>阿联酋🇦🇪<br/>台湾🇹🇼<br/>新西兰🇳🇿<br/>
 ![img](https://media.gettr.com/group6/getter/2021/12/04/16/12681298-e3aa-a593-ae02-8e4236a0e078/80394bad32c7efcb91b8a5418701fc7f.jpg)
-
----
-
-`@miles 12/4/2021 4:36 PM (UTC)`
-
-12月4号 Hcoin To The Moon 打榜记录（一）<br/>感谢香港，新加坡，老挝，澳门，柬埔寨，蒙古的战友们🙏🙏🙏🙏🙏🙏🙏<br/><br/>iTunes 总榜第一名🥇：<br/><br/>香港🇭🇰<br/>新加坡🇸🇬<br/>老挝🇱🇦<br/>澳门🇲🇴<br/>柬埔寨🇰🇭<br/>蒙古🇲🇳
-![img](https://media.gettr.com/group19/getter/2021/12/04/16/727b7ffa-0152-e674-92a8-6b341de4b127/4793e5944601b61090ac24ce27637855.jpg)
 
 ---
 

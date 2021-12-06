@@ -2,12 +2,14 @@
 ---
 
 
-## 中共将台湾公民引渡至中共国破坏台湾主权
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1724081/)
+## 中共用假民主批评美国真民主
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1724165/)
 
-12/02/2021 WION新闻网：一份新报告揭示中共对外国政府施加外交压力，将台湾公民引渡至中共国。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1206-1-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

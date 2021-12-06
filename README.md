@@ -15,139 +15,139 @@
 
 ---
 
-### [美国游轮上爆发COVID疫情，尽管乘客已全面接种疫苗](/content/gnews/1/README.md)
- ` 墨尔本雅典娜农场`
+### [加拿大特鲁多：非常兴奋看到5-11岁的儿童可以接种疫苗](/content/gnews/1/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
 
-### [《蓝枫法律》第三十五期 法律你我他-诽谤罪及相关法律](/content/gnews/2/README.md)
- ` 加拿大温哥华扬帆农场蓝枫法律`
+### [福奇说奥密克戎变种的早期报告让人鼓舞](/content/gnews/2/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [恒大和融创的崩塌及冬奥会难题最终让西方精英全面灭共](/content/gnews/3/README.md)
+### [疫苗推广后，全球各国同时发生了什么？](/content/gnews/3/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [俄罗斯、中共、邪恶宗教力量和华尔街用病毒和疫苗杀人](/content/gnews/4/README.md)
  ` NewFOC`
 
-### [日本内阁支持率得到提升，暂停外国人入境得到高评价](/content/gnews/4/README.md)
+### [中共一脸正经的谈监管,其结果被控制的都是老百姓](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [印俄将签署海军后勤协同保障协议：共享港口设施、相互加油维修](/content/gnews/5/README.md)
+### [澳洲女子透露没感染新冠，但仍被当局关押在隔离营14天](/content/gnews/6/README.md)
+ ` 首尔天池农场`
+
+### [郭文贵直播摘要和音频 2021.12.05](/content/gnews/7/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [中共国阳光100地产公司再度违约](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [“口炮”中国又现“红色键盘侠”](/content/gnews/6/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [12/5/2021 文贵直播：恒大、融创等房地产巨头的崩塌和疫苗灾难将加速西方经济危机的到来并将联合西方精英们一同灭共](/content/gnews/7/README.md)
- ` 秘密翻译组-北美组`
-
-### [中共病毒及其疫苗全球超限战中的典型案例（三十四）](/content/gnews/8/README.md)
- ` 纽约香草山MOS01`
-
-### [12/5/2021 文贵直播：中共和俄罗斯是黑暗力量的核心，中共和其他邪恶势力沆瀣一气，妄图消灭老年人和残疾人](/content/gnews/9/README.md)
- ` 秘密翻译组-北美组`
-
-### [2021年12月5日文贵大直播要点海报（2）](/content/gnews/10/README.md)
- ` 秘密翻译组-原创组`
-
-### [G-Fashion在时尚界将真正开始像喜联储一样的新世界](/content/gnews/11/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [12/5/2021 文贵直播：台湾问题的核心是卖台贼和台政府；真正影响世界的是中美俄](/content/gnews/12/README.md)
- ` 秘密翻译组-北美组`
-
-### [GTV新闻访谈简报|2021年12月5日晚](/content/gnews/13/README.md)
- ` 纽约香草山MOS01`
-
-### [12/5/2021 文贵直播：中共国的企业家都是中共的小三](/content/gnews/14/README.md)
- ` 秘密翻译组-北美组`
-
-### [联合影像拟中标医疗设备，生物间谍风险令澳洲担忧](/content/gnews/15/README.md)
+### [躲避墨尔本封锁的女生，自述北领地模范隔离营悲惨遭遇](/content/gnews/9/README.md)
  ` 走进澳洲`
 
-### [中共病毒及其疫苗全球超限战中的典型案例（三十三）](/content/gnews/16/README.md)
- ` 纽约香草山MOS01`
-
-### [尽管乘客全面接种疫苗，美国游轮上依旧爆发中共病毒疫情](/content/gnews/17/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [视频| 去中心化的数字币未来一定会消失](/content/gnews/18/README.md)
- ` MOSREC`
-
-### [视频| 爆料革命掌握共产党“马航”事件的核心机密](/content/gnews/19/README.md)
- ` MOSREC`
-
-### [感染 COVID-19 的游轮抵达新奥尔良](/content/gnews/20/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [视频| H-Pay的若干知识点](/content/gnews/21/README.md)
- ` MOSREC`
-
-### [文贵爆料12.5.2021郭先生认为俄罗斯形势对灭共一片大好](/content/gnews/22/README.md)
- ` 秘密翻译组-原创组`
-
-### [前国务卿蓬佩奥： 还有两个月就是北京冬奥会 开幕式，抵制北京冬奥会 还不算晚](/content/gnews/23/README.md)
- ` 美国政要直译推`
-
-### [郭文貴先生2021年12月5日直播要點海報（1）](/content/gnews/24/README.md)
- ` 秘密翻译组-原创组`
-
-### [只要躺平币出来共产党就知道自己的棺材板该钉上钉儿了](/content/gnews/25/README.md)
- ` NewFOC`
-
-### [中共用假民主批评美国真民主](/content/gnews/26/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [觉醒的善恶独立的思维](/content/gnews/27/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [躺平币让你第一天就能买面包买油能吃饭有法币全部功能](/content/gnews/28/README.md)
- ` NewFOC`
-
-### [日本政府加强对外资审查，防止先进技术外流](/content/gnews/29/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [躺平币——隔空取钱](/content/gnews/30/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [滴滴表示最终将放弃在美上市](/content/gnews/31/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [美国SEC出台新规，不接受审计的中共国公司将面临退市](/content/gnews/32/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [英军情六处局长理查德·摩尔：我们看到来自中共的威胁](/content/gnews/33/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [维州医生状告医院禁止其使用伊维菌素治疗中共病毒患者](/content/gnews/34/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中共将台湾公民引渡至中共国破坏台湾主权](/content/gnews/35/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [币安赵长鹏（四）：币安大骗局，钱去哪儿啦？](/content/gnews/36/README.md)
- ` 墨尔本雅典娜农场`
-
-### [圣诞节临近美国航运停滞情况恶化](/content/gnews/37/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [1.7万法国人唱《马赛曲》支持总统大选右派独立侯选人埃里克-泽穆尔](/content/gnews/38/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [日本同意承担更多美国驻军费用](/content/gnews/39/README.md)
+### [拜登政府预计本周宣布外交抵制北京冬奥会](/content/gnews/10/README.md)
  ` HimalayaRussia`
 
-### [知名医学网站:Omicron变种病毒具有高变异性（2/2）](/content/gnews/40/README.md)
- ` 澳喜农场`
-
-### [美海军司令呼吁在太平洋部署更多航母威慑中俄避免冲突](/content/gnews/41/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [日本要闻汇编 12月5日](/content/gnews/42/README.md)
+### [恒大开启耍赖模式，花样还债就是没钱](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国在11个州检测到了Omicron变异毒株，并且许多病例都是疫苗接种者](/content/gnews/43/README.md)
+### [美国游轮上爆发COVID疫情，尽管乘客已全面接种疫苗](/content/gnews/12/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [《蓝枫法律》第三十五期 法律你我他-诽谤罪及相关法律](/content/gnews/13/README.md)
+ ` 加拿大温哥华扬帆农场蓝枫法律`
+
+### [恒大和融创的崩塌及冬奥会难题最终让西方精英全面灭共](/content/gnews/14/README.md)
+ ` NewFOC`
+
+### [日本内阁支持率得到提升，暂停外国人入境得到高评价](/content/gnews/15/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [印俄将签署海军后勤协同保障协议：共享港口设施、相互加油维修](/content/gnews/16/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [“口炮”中国又现“红色键盘侠”](/content/gnews/17/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [12/5/2021 文贵直播：恒大、融创等房地产巨头的崩塌和疫苗灾难将加速西方经济危机的到来并将联合西方精英们一同灭共](/content/gnews/18/README.md)
+ ` 秘密翻译组-北美组`
+
+### [中共病毒及其疫苗全球超限战中的典型案例（三十四）](/content/gnews/19/README.md)
+ ` 纽约香草山MOS01`
+
+### [12/5/2021 文贵直播：中共和俄罗斯是黑暗力量的核心，中共和其他邪恶势力沆瀣一气，妄图消灭老年人和残疾人](/content/gnews/20/README.md)
+ ` 秘密翻译组-北美组`
+
+### [2021年12月5日文贵大直播要点海报（2）](/content/gnews/21/README.md)
+ ` 秘密翻译组-原创组`
+
+### [G-Fashion在时尚界将真正开始像喜联储一样的新世界](/content/gnews/22/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [12/5/2021 文贵直播：台湾问题的核心是卖台贼和台政府；真正影响世界的是中美俄](/content/gnews/23/README.md)
+ ` 秘密翻译组-北美组`
+
+### [GTV新闻访谈简报|2021年12月5日晚](/content/gnews/24/README.md)
+ ` 纽约香草山MOS01`
+
+### [12/5/2021 文贵直播：中共国的企业家都是中共的小三](/content/gnews/25/README.md)
+ ` 秘密翻译组-北美组`
+
+### [联合影像拟中标医疗设备，生物间谍风险令澳洲担忧](/content/gnews/26/README.md)
+ ` 走进澳洲`
+
+### [中共病毒及其疫苗全球超限战中的典型案例（三十三）](/content/gnews/27/README.md)
+ ` 纽约香草山MOS01`
+
+### [尽管乘客全面接种疫苗，美国游轮上依旧爆发中共病毒疫情](/content/gnews/28/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [视频| 去中心化的数字币未来一定会消失](/content/gnews/29/README.md)
+ ` MOSREC`
+
+### [视频| 爆料革命掌握共产党“马航”事件的核心机密](/content/gnews/30/README.md)
+ ` MOSREC`
+
+### [感染 COVID-19 的游轮抵达新奥尔良](/content/gnews/31/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [视频| H-Pay的若干知识点](/content/gnews/32/README.md)
+ ` MOSREC`
+
+### [文贵爆料12.5.2021郭先生认为俄罗斯形势对灭共一片大好](/content/gnews/33/README.md)
+ ` 秘密翻译组-原创组`
+
+### [前国务卿蓬佩奥： 还有两个月就是北京冬奥会 开幕式，抵制北京冬奥会 还不算晚](/content/gnews/34/README.md)
+ ` 美国政要直译推`
+
+### [中共用假民主批评美国真民主](/content/gnews/35/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [躺平币让你第一天就能买面包买油能吃饭有法币全部功能](/content/gnews/36/README.md)
+ ` NewFOC`
+
+### [日本政府加强对外资审查，防止先进技术外流](/content/gnews/37/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [币安赵长鹏（四）：币安大骗局，钱去哪儿啦？](/content/gnews/38/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [圣诞节临近美国航运停滞情况恶化](/content/gnews/39/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [1.7万法国人唱《马赛曲》支持总统大选右派独立侯选人埃里克-泽穆尔](/content/gnews/40/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [日本同意承担更多美国驻军费用](/content/gnews/41/README.md)
+ ` HimalayaRussia`
+
+### [美海军司令呼吁在太平洋部署更多航母威慑中俄避免冲突](/content/gnews/42/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [随着高盛接受加密抵押品，比特币的债券即将进入华尔街](/content/gnews/44/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [日本要闻汇编 12月5日](/content/gnews/43/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [大量澳大利亚人涉足加密货币](/content/gnews/45/README.md)
+### [美国在11个州检测到了Omicron变异毒株，并且许多病例都是疫苗接种者](/content/gnews/44/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [随着高盛接受加密抵押品，比特币的债券即将进入华尔街](/content/gnews/45/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [三儿童死亡 越南清化暂停使用一批辉瑞疫苗](/content/gnews/46/README.md)

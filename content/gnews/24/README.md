@@ -2,15 +2,31 @@
 ---
 
 
-## 郭文貴先生2021年12月5日直播要點海報（1）
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1724185/)
+## GTV新闻访谈简报|2021年12月5日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1724327/)
 
-![比特币没有未来，币安一定会结束，只有喜币才会有明天。](https://assets.gnews.org/wp-content/uploads/2021/12/1205-01.png)比特币没有未来，币安一定会结束，只有喜币才会有明天。![下载GTV、盖特、互粉、直播、关注，就可以获得躺平币，躺平币是为墙内外民众准备的福利币。](https://assets.gnews.org/wp-content/uploads/2021/12/1205-02.png)下载GTV、盖特、互粉、直播、关注，就可以获得躺平币，躺平币是为墙内外民众准备的福利币。![](https://assets.gnews.org/wp-content/uploads/2021/12/1205-03.png)在世界（尤其墙内）经济大萧条、大崩溃的时候，只要真心灭共，或者有灭共意愿，宣传爆料革命以及灭共信息，就会得到躺平币，而且马上可以兑现成生活物资。
-文稿来源：[来自2021年12月5日郭文贵先生大直播](https://gtv.org/video/id=61acb7bebbd75f62e52f7ce4)，如有出入，请以大直播为准。
+作者：香草山翻译部
 
-海报设计：千年等一回
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-109-1280x172-1-2-1.jpg)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1205text-SC-1.png)
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+视频参看：[12.5  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61ad6740bbd75f62e53022d6)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-69.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
