@@ -2,66 +2,28 @@
 ---
 
 
-## 前国务卿蓬佩奥： 还有两个月就是北京冬奥会 开幕式，抵制北京冬奥会 还不算晚
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1724203/)
+## 文贵爆料12.5.2021郭先生认为俄罗斯形势对灭共一片大好
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1724221/)
 
-前国务卿蓬佩奥： 还有两个月就是 [#北京冬奥会](https://twitter.com/hashtag/%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E4%BC%9A?src=hashtag_click) 开幕式。 抵制 [#北京冬奥会](https://twitter.com/hashtag/%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E4%BC%9A?src=hashtag_click) 还不算晚。
+撰稿：Naughty（文行）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Image-2021-12-05-at-10.11.45-PM-1-1.jpeg)
+郭文贵先生在2021年12月5日的大直播中指出，习的自信和疯狂绝对来自于普京， 来自俄罗斯，他们两个之间达成了绝对的默契，否则习绝对不敢如此嚣张。
 
+郭先生说影响习最深的就两方面，俄罗斯普京和北朝鲜。而习对中共和西方有杀父夺妻之恨，英美政府都是跟中共江家邓家有良好的关系，跟习没有什么关系，也看不起他。
 
+普京跟习一样，他对西方世界的恨是骨子里的，北朝鲜和伊朗更是如此。基于此，习对挑战美国更加自信。
 
-> 2 months to the [#Olympics](https://twitter.com/hashtag/Olympics?src=hash&amp;ref_src=twsrc%5Etfw) opening ceremony. 
-> 
-> It’s not too late to [#BoycottBeijingOlympics](https://twitter.com/hashtag/BoycottBeijingOlympics?src=hash&amp;ref_src=twsrc%5Etfw).
-> — Mike Pompeo (@mikepompeo) [December 4, 2021](https://twitter.com/mikepompeo/status/1467258731201273864?ref_src=twsrc%5Etfw)
+习的信心还来自一个重要方面，就是技术，中共现在在量子电脑技术，大型计算机技术，数字货币，新型电池技术，新能源，太空技术，都取得了长足的发展，但这一切背后都有俄罗斯的支持，如果中俄关系出现问题，中共的这些技术都会出问题，更重要的跟中共合作的这些国家都会出问题。
 
+中俄关系现在都取决于普京和习近平的身体状况和安全状况，如果这两个人任何一个人出现问题，一切就结束了。
 
+郭先生认为目前北边（俄罗斯）对新中国联邦的灭共形势一片大好，中俄之间已达成默契，双方计划同时分头行动，俄罗斯取乌克兰，在欧洲推广天然气；中共取台湾，并利用俄罗斯提供的技术跟西方抗衡。双方合作占领中东、非洲和亚洲市场，在经济上孤立美国。
 
-众议员布莱恩·马斯特： 提醒：安东尼·福奇用纳税人的钱以“科学”的名义杀死小狗。没有人选他，但乔·拜登认为他是总统。 【附纽约邮报文章：在公布他的 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) ‘冬日计划’时，拜登开玩笑说福奇才是真正的总统】
+郭先生支指出，中俄的计划看似完美，实际风险极大，稍有差池就会全盘皆输。
 
+参考链接：https://gtv.org/video/id=61acb7bebbd75f62e52f7ce4
 
-
-> Reminder: Anthony Fauci literally kills puppies with taxpayer dollars for “science.” Nobody elected him, but Joe Biden thinks he’s the President.[https://t.co/0qbZSiU3lA](https://t.co/0qbZSiU3lA)
-> — Rep. Brian Mast (@RepBrianMast) [December 6, 2021](https://twitter.com/RepBrianMast/status/1467660561332805641?ref_src=twsrc%5Etfw)
-
-
-
-参议员罗恩·约翰逊： 我问一个简单的问题，福奇博士对 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 的应对有效吗？78.8万人丧生，其中许多人是因为他忽视并阻挠破坏了使用廉价、可用的普通药进行早期治疗，而他却支持用一种不如我们所有人希望的那样安全或有效的疫苗。
-
-
-
-> I ask a simple question, did Dr. Fauci’s response to COVID-19 work? 788,000 lives lost, many because he ignored and sabotaged early treatment using cheap, available, generic drugs in favor of a vaccine that is not as safe or effective as we all hoped it would be.
-> — Senator Ron Johnson (@SenRonJohnson) [December 5, 2021](https://twitter.com/SenRonJohnson/status/1467600296897622016?ref_src=twsrc%5Etfw)
-
-
-
-众议员肯·巴克： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 正在追捕居住在国外的台湾人，以将他们引渡回大陆，在那里他们面临着人权侵犯的高风险。 如果这些人犯了罪，就应该被遣返回台湾，而不是中国大陆。 【转bbc: 报道称数百名台湾人被引渡到中共国（接上） 一个人权组织的一份新报告发现，近年来有超过 600 名在海外被捕的台湾人被驱逐递解回 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)。 捍卫卫士说，这种做法被“用作破坏台湾主权的工具”。 台湾认为自己是一个独立的国家，长期以来一直坚持将在国外被捕的台湾人送回该岛。 但北京将台湾视为属于中国一部分的分离省份。】
-
-
-
-> China is hunting down Taiwanese people living abroad to have them extradited back to the mainland, where they are at high risk of human rights abuses. If these individuals have committed crimes, they should be returned to Taiwan, not to mainland.[https://t.co/dXKHMAvYN5](https://t.co/dXKHMAvYN5)
-> — Rep. Ken Buck (@RepKenBuck) [December 5, 2021](https://twitter.com/RepKenBuck/status/1467529998668124160?ref_src=twsrc%5Etfw)
-
-
-
-参议员瑞克·斯科特: 我很自豪能与参议员霍利和我们的同事们一起，提出这项重要的法案，以加强我们与 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 的经济和安全伙伴关系，并加强旅客的安全和保障。随着 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 侵略行径的加剧，这是朝着正确方向迈出的一大步。 【转参议员霍利新闻办推文：参议员霍利和同事提出法案以推进台湾的预清关设施】
-
-
-
-> I was proud to join [@HawleyMO](https://twitter.com/HawleyMO?ref_src=twsrc%5Etfw) & our colleagues to introduce this important bill to strengthen our economic & security partnership with Taiwan & bolster the safety & security of travelers. As Communist China's aggression grows, this is a great step in the right direction. [https://t.co/6XmhkY91oF](https://t.co/6XmhkY91oF)
-> — Rick Scott (@SenRickScott) [December 4, 2021](https://twitter.com/SenRickScott/status/1467175199879872512?ref_src=twsrc%5Etfw)
-
-
-
-前国务卿迈克·蓬佩奥： [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 对美国构成了最大的外部威胁。几十年来，中共在美国工人的支持下发展了经济。 川普总统是第一位确认这一点并予以反击的美国总统。 他展示了我们可以获胜，但我们必须认真对待。 【附视频，蓬佩奥接受福克斯新闻采访】
-
-
-
-> The CCP poses the singular greatest external threat to the U.S. It has grown its economy on the backs of the American worker for decades.
-> 
-> Pres. Trump was the first POTUS to acknowledge that & push back. He showed we can prevail, but we have to be serious. [https://t.co/2TSCMxI7Sz](https://t.co/2TSCMxI7Sz)
-> — Mike Pompeo (@mikepompeo) [December 4, 2021](https://twitter.com/mikepompeo/status/1467150705911865346?ref_src=twsrc%5Etfw)
-
-
+校对发布：Naughty(文行)
 
  
 
