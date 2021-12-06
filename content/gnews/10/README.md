@@ -2,21 +2,66 @@
 ---
 
 
-## 躺平币——隔空取钱
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1724133/)
+## 前国务卿蓬佩奥： 还有两个月就是北京冬奥会 开幕式，抵制北京冬奥会 还不算晚
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1724203/)
 
-作者：sunshine
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-06-09.23.12-1.png)
-躺平币是另类的隔空取钱，钱就是财富，但财富存在于人类社会中，脱离人类社会，财富一文不值，财富不仅仅包括钱，还包括个人的注意力、创造力和相互影响力。创造G系列是诠释财富的意义，使用G系列是表达获得财富的过程，这是一套完美的天才设计，创造和表达是一种互动过程，是在用不断相互吸引的方法丰富和完善G系列，让G系列不断发展壮大，同时对于长期使用和关注G系列的人能够得到不断自动的打赏回报，把游戏中寓教于乐和打赏功能完美地融合起来，达到吸引众人的目的。
-
-躺平币是意识形态领域中的青蒿素，要想得到躺平币就得积极参与G系列媒体互动，这个过程具有给思想解毒的效用。G系列是一个唯真不破的平台，这对于长期被主流媒体洗脑、被CCP意识形态病毒荼毒的中国人重新认识自我，重新认识人与人的关系，重新理解世界非常重要。到目前为止，还没有哪个社交媒体能够有这样的气势和大度回馈使用社交媒体的用户。文贵先生把吸引大法发挥得淋漓尽致，吸引大法的核心就是创造互利模式，完美健康的市场是需要互利的，在市场中谁都不是上帝，但人人都需要得利，所以互利就是平衡器，在互利过程中人人都能找到自己的价值和存在的位置，而且这个互利过程还是非常灵活的，即人人可以当演员（主角、跑龙套），也可以当观众，选择做什么全部在于个人的心情和能力。
-
-躺平币，我来了！
+前国务卿蓬佩奥： 还有两个月就是 [#北京冬奥会](https://twitter.com/hashtag/%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E4%BC%9A?src=hashtag_click) 开幕式。 抵制 [#北京冬奥会](https://twitter.com/hashtag/%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E4%BC%9A?src=hashtag_click) 还不算晚。
 
 
 
-审核校对：Barry Jack
-上传排版：F
+> 2 months to the [#Olympics](https://twitter.com/hashtag/Olympics?src=hash&amp;ref_src=twsrc%5Etfw) opening ceremony. 
+> 
+> It’s not too late to [#BoycottBeijingOlympics](https://twitter.com/hashtag/BoycottBeijingOlympics?src=hash&amp;ref_src=twsrc%5Etfw).
+> — Mike Pompeo (@mikepompeo) [December 4, 2021](https://twitter.com/mikepompeo/status/1467258731201273864?ref_src=twsrc%5Etfw)
+
+
+
+众议员布莱恩·马斯特： 提醒：安东尼·福奇用纳税人的钱以“科学”的名义杀死小狗。没有人选他，但乔·拜登认为他是总统。 【附纽约邮报文章：在公布他的 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) ‘冬日计划’时，拜登开玩笑说福奇才是真正的总统】
+
+
+
+> Reminder: Anthony Fauci literally kills puppies with taxpayer dollars for “science.” Nobody elected him, but Joe Biden thinks he’s the President.[https://t.co/0qbZSiU3lA](https://t.co/0qbZSiU3lA)
+> — Rep. Brian Mast (@RepBrianMast) [December 6, 2021](https://twitter.com/RepBrianMast/status/1467660561332805641?ref_src=twsrc%5Etfw)
+
+
+
+参议员罗恩·约翰逊： 我问一个简单的问题，福奇博士对 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 的应对有效吗？78.8万人丧生，其中许多人是因为他忽视并阻挠破坏了使用廉价、可用的普通药进行早期治疗，而他却支持用一种不如我们所有人希望的那样安全或有效的疫苗。
+
+
+
+> I ask a simple question, did Dr. Fauci’s response to COVID-19 work? 788,000 lives lost, many because he ignored and sabotaged early treatment using cheap, available, generic drugs in favor of a vaccine that is not as safe or effective as we all hoped it would be.
+> — Senator Ron Johnson (@SenRonJohnson) [December 5, 2021](https://twitter.com/SenRonJohnson/status/1467600296897622016?ref_src=twsrc%5Etfw)
+
+
+
+众议员肯·巴克： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 正在追捕居住在国外的台湾人，以将他们引渡回大陆，在那里他们面临着人权侵犯的高风险。 如果这些人犯了罪，就应该被遣返回台湾，而不是中国大陆。 【转bbc: 报道称数百名台湾人被引渡到中共国（接上） 一个人权组织的一份新报告发现，近年来有超过 600 名在海外被捕的台湾人被驱逐递解回 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)。 捍卫卫士说，这种做法被“用作破坏台湾主权的工具”。 台湾认为自己是一个独立的国家，长期以来一直坚持将在国外被捕的台湾人送回该岛。 但北京将台湾视为属于中国一部分的分离省份。】
+
+
+
+> China is hunting down Taiwanese people living abroad to have them extradited back to the mainland, where they are at high risk of human rights abuses. If these individuals have committed crimes, they should be returned to Taiwan, not to mainland.[https://t.co/dXKHMAvYN5](https://t.co/dXKHMAvYN5)
+> — Rep. Ken Buck (@RepKenBuck) [December 5, 2021](https://twitter.com/RepKenBuck/status/1467529998668124160?ref_src=twsrc%5Etfw)
+
+
+
+参议员瑞克·斯科特: 我很自豪能与参议员霍利和我们的同事们一起，提出这项重要的法案，以加强我们与 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 的经济和安全伙伴关系，并加强旅客的安全和保障。随着 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 侵略行径的加剧，这是朝着正确方向迈出的一大步。 【转参议员霍利新闻办推文：参议员霍利和同事提出法案以推进台湾的预清关设施】
+
+
+
+> I was proud to join [@HawleyMO](https://twitter.com/HawleyMO?ref_src=twsrc%5Etfw) & our colleagues to introduce this important bill to strengthen our economic & security partnership with Taiwan & bolster the safety & security of travelers. As Communist China's aggression grows, this is a great step in the right direction. [https://t.co/6XmhkY91oF](https://t.co/6XmhkY91oF)
+> — Rick Scott (@SenRickScott) [December 4, 2021](https://twitter.com/SenRickScott/status/1467175199879872512?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿迈克·蓬佩奥： [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 对美国构成了最大的外部威胁。几十年来，中共在美国工人的支持下发展了经济。 川普总统是第一位确认这一点并予以反击的美国总统。 他展示了我们可以获胜，但我们必须认真对待。 【附视频，蓬佩奥接受福克斯新闻采访】
+
+
+
+> The CCP poses the singular greatest external threat to the U.S. It has grown its economy on the backs of the American worker for decades.
+> 
+> Pres. Trump was the first POTUS to acknowledge that & push back. He showed we can prevail, but we have to be serious. [https://t.co/2TSCMxI7Sz](https://t.co/2TSCMxI7Sz)
+> — Mike Pompeo (@mikepompeo) [December 4, 2021](https://twitter.com/mikepompeo/status/1467150705911865346?ref_src=twsrc%5Etfw)
+
+
 
  
 

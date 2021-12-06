@@ -2,12 +2,14 @@
 ---
 
 
-## 英军情六处局长理查德·摩尔：我们看到来自中共的威胁
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1724085/)
+## 中共用假民主批评美国真民主
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1724165/)
 
-12/02/2021 英国军情六处局长理查德·摩尔：我们看到来自中共国政府的威胁，适应受中共国崛起影响的世界，是军情六处的最大优先事项。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1206-1-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

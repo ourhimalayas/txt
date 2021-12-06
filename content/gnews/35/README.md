@@ -2,41 +2,34 @@
 ---
 
 
-## 美国国家医学院院长和NIH顾问主持孔子学院晚会
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1723806/)
+## 日本要闻汇编 12月5日
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1723914/)
 
-据《国家脉动》作者：Natalie Winters，2021年12月2报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-246-e1638742696279.png)图片源自国家脉动
-美国国家医学院院长、美国国家卫生研究院（NIH）顾问维克多·德佐博士曾多次与孔子学院合作，而孔子学院是中共资助的宣传机构，《国家脉动》披露。
+素材：东京樱花团丨GNEWS组
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-250.png)[*图片来源*](https://www3.nhk.or.jp/news/html/20211204/k10013374401000.html?utm_int=news-culture_contents_list-items_006)
+1、[**厚劳省将心肌炎等规定为严重不良反应**](https://www3.nhk.or.jp/news/html/20211204/k10013374401000.html?utm_int=news-culture_contents_list-items_006)
 
-德佐还在世界银行集团和世界卫生组织的全球防备监测委员会（GPMB）任职，他在孔子学院美国中心（CIUSC）——北京有争议的行动的美国总部，举办的2017年晚会上担任荣誉主持委员会成员。GPMB成立于2018年初，在COVID-19事件发生之前，以应对大流行病。
+厚生劳动省3日召开了一次专家委员会会议，建议在Moderna和辉瑞疫苗各自的包装说明中，将心肌炎和心包炎规定为 “严重不良反应”，并要求谨慎行事。此外，法律将要求医疗机构在接种疫苗后28天内详细报告任何心肌炎或其他不良反应的案例。
 
-**由美国大学主办的孔子学院被中共政府官员描述为“中国海外宣传机构的一个重要部分”。除了参与信息战，根据联邦调查局（FBI）和司法部（DOJ）的规定，这些孔子学院还充斥着知识产权盗窃的行为和从事间谍活动。**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-247.png)图片源自孔子学院美国中心
-除了担任孔子学院美国中心2017年晚会的主持人外，德佐还在2018年为该中心制作的系列节目完成了为时60分钟的采访。这是美中全球教育电视系列节目，在美国和中国国营广播公司中国中央电视台（CCTV）播出。
+2、[**日本拟不再允许留学生免税购物**](https://china.kyodonews.net/news/2021/12/c56efbbf5645.html)
 
-除了呼吁加强美中之间的科学合作外，德佐还赞扬了中国在全球卫生领域的作用，指出“完全有理由认识到中国在全球舞台上的重要性”。
+日本政府和执政党5日就针对访日外国人的消费税免税制度敲定了方针，将把外国留学生等长期逗留者排除在对象之外。由于允许在入境半年内免税购物，但确认是否为对象人群的作业繁琐，且留学生倒卖免税品的行为泛滥，因此在2022年度税制修改时将调整该制度。
 
-尽管中国在非洲大陆明显的剥削性存在。但是，他补充说，“中国实际上在全球卫生领域发挥了非常重要的作用。他们已经在过去的10年内参与了不同国家的医疗保健，包括非洲，等等。”
+3、[**因中共病毒孤立无援的育儿家庭现状报告**](https://www3.nhk.or.jp/news/html/20211205/k1001337552)
 
-除了领导国家医学院之外，德佐还担任过美国国家卫生研究院（NIH）院长咨询委员会成员、NIH心血管疾病咨询委员会主席和美国国家研究委员会副主席。
+据NHK5日消息，横滨市举行了日本防止虐待儿童协会上，神奈川县防止虐待儿童研究小组主席Emi Oba报告说，由于新冠词导致缺乏支持，孤立的育儿家庭数量增加。全国儿童指导中心处理的虐待儿童案件数量超过20.5万起，是有史以来最高的数字。
 
-国家研究院的其他知名成员包括安东尼·福奇、弗朗西斯·柯林斯和杰弗里·萨克斯。
+4、[**天皇长女爱子在皇宫举行成年仪式**](https://china.kyodonews.net/news/2021/12/e984529a3d2e.html)
 
-原文连接：[https://thenationalpulse.com/exclusive/nam-president-collaborated-with-confucius-institute/](https://thenationalpulse.com/exclusive/nam-president-collaborated-with-confucius-institute/)
+日本天皇夫妇的长女爱子5日在皇宫宫殿等处举行了成年仪式。她身着女性成年皇族的正装礼服裙、戴着头冠，在皇宫宫殿向天皇夫妇致以问候。
 
-翻译：洛杉矶盘古农场 — TrueSky
+5、[**新宿举行支持在日外国人集会**](https://www3.nhk.or.jp/news/html/20211205/k10013375551000.html?utm_int=news-politics_contents_list-items_003)
 
-校对：洛杉矶盘古农场 — Mike Li
+据NHK5日消息，为支持生活在日本的外国人，特别是最近才抵达日本的难民，由亚洲福利和教育基金会组织，在东京新宿区举行了一次集会，100多人参加。
 
-编辑：洛杉矶盘古农场 — 心照
-
-
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*编辑：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

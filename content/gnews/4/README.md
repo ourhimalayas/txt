@@ -2,15 +2,26 @@
 ---
 
 
-## 郭文貴先生2021年12月5日直播要點海報（1）
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1724185/)
+## 尽管乘客全面接种疫苗，美国游轮上依旧爆发中共病毒疫情
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1724291/)
 
-![比特币没有未来，币安一定会结束，只有喜币才会有明天。](https://assets.gnews.org/wp-content/uploads/2021/12/1205-01.png)比特币没有未来，币安一定会结束，只有喜币才会有明天。![下载GTV、盖特、互粉、直播、关注，就可以获得躺平币，躺平币是为墙内外民众准备的福利币。](https://assets.gnews.org/wp-content/uploads/2021/12/1205-02.png)下载GTV、盖特、互粉、直播、关注，就可以获得躺平币，躺平币是为墙内外民众准备的福利币。![](https://assets.gnews.org/wp-content/uploads/2021/12/1205-03.png)在世界（尤其墙内）经济大萧条、大崩溃的时候，只要真心灭共，或者有灭共意愿，宣传爆料革命以及灭共信息，就会得到躺平币，而且马上可以兑现成生活物资。
-文稿来源：[来自2021年12月5日郭文贵先生大直播](https://gtv.org/video/id=61acb7bebbd75f62e52f7ce4)，如有出入，请以大直播为准。
+**编译：花岗岩**
 
-海报设计：千年等一回
+**校对：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screenshot-2021-12-06-103340.jpg)
+根据美联社12月5日新闻的报道，一艘从墨西哥湾和加勒比海航行归来的挪威邮轮控股有限公司（Norwegian Cruise Line Holdings Ltd）旗下的挪威逍遥号游轮上依旧爆发了中共病毒疫情，尽管所有乘客都全面接种了疫苗。
 
+该邮轮与11月28日从新奥尔良港出发，航行至伯利兹、洪都拉斯和墨西哥，船上有超过3000人。在返回母港之前，该邮轮公司在其客人和船员中发现了10例中共病毒感染，受感染的乘客和船员将直接回家或在一个未公开的地点进行自我隔离。
 
+尽管船上的疫苗接种率为100%，但仍有中共病毒的爆发，这表明疫苗根本不能真正有效预防中共病毒。人们怀疑随着美国各地新感染者的激增，船上会出现更多的爆发。
+
+去年中共病毒疫情开始时，游轮是早期的爆发源，因为一些船只在港口被拒绝，乘客被迫进入隔离区，甚至有一些乘客在海上死于中共病毒的情况发生。
+
+美国疾病控制和预防中心在2020年3月发布了禁航令，促使邮轮在新的健康和安全要求下开始离开美国港口，这种停滞状态在去年6月结束。
+
+**新闻来源**：1.[COVID outbreak on cruise ship approaching New Orleans](https://apnews.com/article/coronavirus-pandemic-business-health-louisiana-new-orleans-1f8edb74567df1abdbc29161d800056f)
+
+2. [COVID outbreak on cruise ship approaching New Orleans](COVID%20outbreak%20on%20cruise%20ship%20approaching%20New%20Orleans)
 
  
 

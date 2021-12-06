@@ -2,50 +2,42 @@
 ---
 
 
-## 随着高盛接受加密抵押品，比特币的债券即将进入华尔街
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1723893/)
+## 日本政府、媒体强硬回击中共
+` MOSglobal` [轉載自GNews](https://gnews.org/zh-hans/1723926/)
 
-据《Zerohedge》记者：TYLER DURDEN，2021年12月2日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-249-e1638744886140.png)图片源自Zerohedge
-**本周早些时候，我们描述了萨尔瓦多历史性的比特币债券交易：一项价值10亿美元的交易，以5亿美元的比特币为抵押，这个拥抱加密货币的国家将用这笔资金为“比特币城市”的建设提供资金。**
+作者：日本方舟农场 Andy5
 
-正如我们当时所说：其他国家可能会研究如何在不必与国际货币基金组织贪婪的银行家打交道的情况下获得资金。
-
-比特币债券是在传统金融体系范围之外获得资金的好方法。
-
-**据三位知情人士透露，根据CoinDesk的一份报告，高盛和其他一些美国一级银行正在研究如何使用比特币作为向机构提供现金贷款的抵押品。**
-
-模仿三方回购类型的安排（一种通过出售证券并同意回购的方式借入资金，涉及第三方代理），银行正在探索不接触比特币的方法，就像其他组合产品一样。
-
-“高盛正在努力获得抵押贷款和三方回购贷款的批准。”其中一位知情人士表示。
-
-“如果他们有清算代理人，那么他们只是在做有担保的贷款，而不会让比特币触及他们的资产负债表。”
-
-高盛并不孤单；少数大银行正在追随对加密货币友好的银行moSilvergate和Signature开辟的道路，这两家银行今年早些时候都宣布了比特币抵押的现金贷款。
-
-“我们可能已经与六家大银行谈过 （比特币抵押贷款），”来自一家大型机构交易公司的第二位人士说。
-
-“其中一些在未来三到六个月的类别中，而另一些则更远。有趣的是，其中一些银行将使用自己的资产负债表来发放贷款。其他人会将其联合起来。”
-
-美国对此类活动的监管立场仍然很复杂。根据银行和提议的具体内容，监管可能来自 OCC、SEC 或 CFTC；在参议员伊丽莎白-沃伦和财政部长耶伦等人的压力下，所有这些都可能会竭尽全力限制这一点。
-
-“非大型银行也在这个三方贷款领域建立起来，”第三人说。
-
-**所有这些对加密社区来说都是非常乐观的，它展示了比特币如何成为新金融系统的支柱。**
-
-文章来源：[https://www.zerohedge.com/crypto/bitcoin-backed-bonds-are-coming-wall-street-goldman-embraces-crypto-collateral](https://www.zerohedge.com/crypto/bitcoin-backed-bonds-are-coming-wall-street-goldman-embraces-crypto-collateral)
-
-翻译：洛杉矶盘古农场–Raul
-
-校对：洛杉矶盘古农场–Mike Li
-
-编辑：洛杉矶盘古农场–心照
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo.png)
 
 
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+
+日本前首相安倍晋三在出席台湾智库论坛时的表态继续发酵，中共泼妇骂街的丑陋行径导致日本政府和媒体发表强硬回击。
+
+据日本TBS新闻报道，安倍前首相发出警告，“军事上的冒险将导致经济上的自杀”，来牵制日益对台湾军事施压的中共后，中共外交部做出了激烈的反应。日媒称，在外交部发言人愤怒表态后，连夜召见日本驻中共国大使的行为是非常罕见的。
+
+而此举也进一步让日本变得更加强硬。首先日媒报道称被召见的大使垂秀夫当场反驳了华春莹，他说道“中共政府方面必须理解日本在台湾局势上的担忧”。之后在2日新闻发布会上，日本政府表示，关于台湾问题，中共方面需要理解日本国内出现了安倍前首相这样的想法。而日本媒体更是将中共外交部的行为总结为：这是中共政府变得神经质的体现。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-05-at-7.03.30-PM.png)图片来源: GETTR
+**参考阅读：**
+
+[https://www.gettr.com/post/piicte99bb](https://www.gettr.com/post/piicte99bb)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/rl-1-556x720.png)
+
+编辑/校对/发稿：一烘
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
  
 
