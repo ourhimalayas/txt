@@ -2,38 +2,29 @@
 ---
 
 
-## 纽约市将对私营企业实施强制疫苗令
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1726915/)
+## 七哥谈Mandelli工厂
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1727002/)
 
-译编：真北007
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1000-edited.jpeg)图片来源：网络
-来自美联社十二月6日的新闻报道：
+文编：Hima
+听写：叮叮
+视频：七哥
 
-“一个极左、跛脚鸭子政治家，他是反商业的、一维的、不负责任的、不聪明的，并且永远持有‘我总是知道最好’的态度，这就是全美最差市长比尔·德布拉西奥（Bill de Blasio）。”
+人家现在允许咱们战友，欢迎所有咱们的战友GClub会员随时到意大利到Mandelli厂参加，并给你们做为介绍，让你们知道真正的，哇！！我跟你说啊，我去Mandelli是谁介绍的，爱马仕的老大，就是现在的保罗先生，而且我三次推荐去，当时都被拒绝了，我说这是多少年的事你知道吗，15年前，不止了。 这是96年的，是多少年了现在？25年。25年了，我这算错账了。25年前，然后我又等了5年后，我大概2000 年我才去看的，而且只看一部分，因为那里所有都是那些，爱马仕包，什么berkin包啊，你看世界价值10万美元一件的衣裳啊，5万美元都在这了，几乎全世界50-60%在那了，它不让人看，那里边的工厂你看完以后你中国人都感到羞愧了，你在国内电视上买的衣服，那绝对是垃圾。 绝对是垃圾。你看那喝的东西，吃的东西。
 
-根据市长比尔·德布拉西奥 (Bill de Blasio) 周一宣布的新规定，纽约市雇主将必须强制要求其员工接种 COVID-19 疫苗。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-民主党市长在 MSNBC 的“Morning Joe”节目中表示，针对私营企业的疫苗强制令将于 12 月 27 日生效，旨在防止假日期间和寒冷月份 COVID-19 感染激增。
+**关注我们**
 
-德布拉西奥说：“我们纽约市已决定采取先发制人的行动，真正采取大胆措施，以阻止 COVID 的进一步发展及其对我们所有人造成的危险。” “截至 12 月 27 日，纽约市的所有私营部门雇主都将受此疫苗规定的约束。”
+Discord 账号
 
-尽管联邦法院阻止了拜登总统在全国范围内为大型公司做同样的事情，但该市正在着手将这项任务强加给私营部门企业。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-德布拉西奥说，他希望新的强制令能够经受住任何法律挑战。市长发言人表示，这将适用于大约 184,000 家私营企业。
+Gettr 账号
 
-当前纽约市 COVID-19 法规要求室内餐厅、娱乐场所和健身中心提供至少一剂疫苗。白思豪说，根据室内餐饮、娱乐和健身房的新规定，12 岁以上的人需要注射两针。5 至 11 岁的儿童需要注射一针，而这些儿童目前没有要求。
-
-德布拉西奥将于本月底离任，并表示他可能会在明年寻求民主党提名纽约州长，他试图将自己描绘成抗击 COVID-19 的全国领袖。
-
-正在寻求共和党州长提名的长岛共和党众议员 Lee Zeldin 称新宣布的疫苗要求是“杀死工作、压制小企业”。
-
-“一个极左、跛脚鸭子政治家，他是反商业的、一维的、不负责任的、不聪明的，并且永远持有‘我总是知道最好的’态度，”这就是全美最差市长比尔·德布拉西奥（Bill de Blasio），”泽尔丁在一份声明中说。
-
-点评：此文给人一个好的感觉是美国的民主制度体现。所谓好的或坏的法律法规都会受到相应的法律挑战。
-
-原文链接：[https://apnews.com/article/coronavirus-pandemic-health-new-york-new-york-city-476a856e401bb826d3e828f6e580408d](https://apnews.com/article/coronavirus-pandemic-health-new-york-new-york-city-476a856e401bb826d3e828f6e580408d)
-
-
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

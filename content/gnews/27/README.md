@@ -2,40 +2,27 @@
 ---
 
 
-## 先进科技助力新中国联邦构建宏大版图
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1726537/)
+## 秘翻在线:纽约市正面临严峻的医疗暴政
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1726631/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月5日，在“文贵大直播”中，郭先生描绘了一幅新中国联邦的未来版图，囊括当今世界从能源科技到金融的一系列核心技术。
+撰稿:牛小妹
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Image-1-3-2.jpg)
+**2021年的纽约面临《一九八四》欧威尔式极权主义**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide1-7.jpeg)
+根据《美联社》的报导，纽约市长比尔·德布拉西奥 (Bill de Blasio)在离任前三天制定了更严格的疫苗政策。12月6日他宣布，”从12月27日开始，纽约市所有的私营部门雇主必须强制要求员工接种 COVID-19 疫苗。”德布拉西奥狡辩说，”强制要求员工接种中共病毒疫苗是摆脱这种病毒大流行的方法，以鼓励纽约人保护自己和社区的安全。”纽约市已经接种了超过1250万剂疫苗，其中94%的城市劳动力已接种疫苗，近650万纽约人(包括89%的成年人)至少接种一剂。
 
-首先是RVC电池，运用网状玻璃态碳技术支持的电极材料，具有低密度、高稳定、超导性、安全又低成本的广阔应用前景。最关键的是太阳能转换技术，成为取之不尽的新型能源。美国最新研究进展表明，这是又一次革命性的突破。
+该市表示，将于12月15日发布额外的执法和合理的住宿指南，及额外的资源，以支援小企业的实施。可接受的疫苗接种证明包括CDC颁发的疫苗接种卡，纽约州Excelsior通行证，Clear Health Pass和NYC COVID Safe App.。
 
-其次，IBM的2纳米芯片，其安全性和稳定性已达军事级别，格芯将协同生产。
+**针对杀害孩童的毒疫苗政策**
 
-第三，电池和芯片是核心技术的核心，将打造出新中国联邦的太空币，以生物密码识别，安全性无可比拟。
+另外，从12月14日开始，纽约市规定5至11岁儿童的室内用餐需要疫苗证明，5至11岁的儿童也将被要求接种疫苗才能参加’高风险’的课外活动，包括体育，乐队，管弦乐队和舞蹈。室内活动需要两剂疫苗，而12岁及以上的人则需要接种一剂疫苗。根据纽约市的数据，超过125，000名5-11岁的儿童已经接受了至少一剂。
 
-最后，是在上述电池，芯片及区块链加密技术完全掌控下的5G和AI技术。
+**违反纽伦堡公约的疫苗政策**
 
-郭先生展望，新中国联邦参与了这些目前世界上最先进、最超前的核心技术，未来宏大版图的构建，将慢慢展现于世。
+纽伦堡公约(The Nuremberg Code) 第一条、受试者的自愿同意是绝对必要的。第四条、试验过程应避免所有不必要的身体或心智的痛苦和伤害。纽约市长比尔·德布拉西奥粗鲁不人道的规定，完全违反纽伦堡公约，必将遭受审判。纽约市夥伴关系首席执行官凯萨琳·怀尔德（Kathryn Wylde）认为这项规定是不可被执行的，必然在法庭受到质疑。
 
-参考链接：[2021年12月05日 文贵大直播](https://gtv.org/video/id=61acb7bebbd75f62e52f7ce4)
+消息来源 [http://abc7ny.com/new-york-city-vaccine-mandate-private-sector-workers-children-nyc-covid/11305096/](http://abc7ny.com/new-york-city-vaccine-mandate-private-sector-workers-children-nyc-covid/11305096/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
-
-总编：文真
-编辑：Kathy文艺
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

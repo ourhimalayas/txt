@@ -2,29 +2,18 @@
 ---
 
 
-## 七哥谈马航事件
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1727075/)
+## 意大利神父直言“大流行病是由这个世界的有权势者策划出来的”
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/1727157/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+####     翻译整理：        意大利罗马达芬奇农场                   小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Schermata-2021-12-06-alle-19.32.51.png)图片来源：今日莫斯拿
+朱塞佩•阿涅洛是意大利西西里岛圣阿格达•米利特洛医院的神父，他反对新冠疫苗。在他主持的一次弥撒布道中，他的反疫苗言论让他处在舆论的风口浪尖，其言辞在社交媒体和网络引起了很大的轰动。
 
-我觉得这个马航的事情很多战友都在问，马航的事情一定是和孟建柱和江绵恒，还有当时的这几个医学家，这个出事绝对有关系的，绝对是杀人灭口啊，特别是这个飞机的牵引技术，特别是在欧盟，当时还没有脱欧的英国，还有现在的美国，他是个很大的事情，他能把他给牵走了，他把谁的飞机都给牵走了，现在美国已经基本上知道爆料革命有史以来知道咱们是掌握着核心的共产党的机密和情报的。因为他们一开始都不相信这是阴谋论，就像我之前说过的，当年火鸡龚带着一个法轮功的外国人，哎呀，郭文贵先生我可信你了，但是我一听说马航的事有阴谋我就怀疑了，这是他的原话，但是这个家伙是个神经病，他也不代表法轮功，那就当在现跟西方的CIA的情报部门说马航的事一定不正常，他说我不觉得中国有这样的牵引技术，如果有这样的牵引技术的不正常的。我说中国人有这样的牵引技术，而负责人就是江绵恒，现在美国发现了，不但能听你的手机，全球手机监听，看到最近很多咱们做的视频出来了吧，中共可以世界上叫做数据，全世界的数据帝国。 能掌握世界各种数据，能监听全世界任何人的手机，任何电脑，这一点都不用怀疑，所以很多战友们说我被监控啊，七哥我手机，我说真的兄弟，我想说兄弟姐妹们别那么天真好不好。
+“ 全世界有权势者让我们相信走出所谓的大流行病取决于我们， 而事实恰恰相反，这取决于他们，因为是他们策划出来的。”朱塞佩•阿涅洛神父说： “他们夸大数据，让人们恐慌，却向染疫者隐瞒在家就可以治疗避免住院和死亡的方法。他们还通过宣传告诉我们群体免疫，但现在我们又回到了起点。他们让我们要忍耐， 但是他们知道人们无法长久地抵抗，没有钱付税、付房租、付水电。” 阿涅洛神父的这番言论使当地市长与其保持距离，因为市政府正采取一切手段宣传注射新冠疫苗是击败新冠病毒的唯一方式。该市市长与当地主教机构进行了联系并得到答复，将对该事件进行评估。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+原文链接： https://www.messinatoday.it/cronaca/prete-no-vax-ospedale-video-bufera-sant-agata-di-militello-don-giuseppe-agnello.html
 
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+编辑、上传： Xiao  baige
 
  
 

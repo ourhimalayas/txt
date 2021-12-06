@@ -2,30 +2,31 @@
 ---
 
 
-## 中共查封盘古 爆革面临大考
-` 向真` [轉載自GNews](https://gnews.org/zh-hans/1726955/)
+## 七哥谈毛泽东
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1727093/)
 
-#### 温哥华农场  向真
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-06-下午1.00.40.jpeg)来源：Flicker
-近日中共辽宁中级法院发布公告称，由于北京政泉控股有限公司（郭文贵先生为实际控制人）犯“强迫交易罪”，故对其名下位于北京中四环的盘古大观“依法执行查封和保管”。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-公告显示，查封范围包括不动产、动产、添附、及附属设施等财产，也就是说，盘古大观包括里面的落尖都统统归中共了。
+毛泽东临死吓得，毛泽东是尿裤子啊后来，大便啊，他临死的时候得到了一句话就是李志绥嘛，给他说，“首长，你没事，我们能给你治好，你心脏出了点问题，没问题。” 张玉凤还告诉他“放心吧，没事儿，不用害怕。” 嗝。。。。 过去了。是吧，他去见马克思去了。张玉凤的小手再也摸不着了。所有的人格都在习身上。
 
-盘古大观有一部分住宅单元已出售，中共也蛮横中止了原有物业公司的服务资格，由当地基层政府［亚运村街道办］于12月6日起强行接手物业管理。
+校对：HimaFaFA
+发布：HimaBoy
 
-据郭先生发布的盖特，中共的150个法警，100多个特警，充当道具和打手的北京金隅100多个人，于12月6号进入盘古，以查封和清理为名，将所有正在宿舍换班的员工驱离大楼，弱不禁风的女员工们穿着睡衣就被赶到冬天的马路上，她们的手机等所有个人物品全部被没收。
-![灭共者- YouTube](https://i.ytimg.com/vi/oeKZHK2yLw0/maxresdefault.jpg)来源：Gnews
-更为丧心病狂的是，郭先生九十多岁中风卧床的老父被中共爪牙们撵出家门而流落街头。他们还将数以千计的全部员工，所有的住户和客人全部撵出盘古酒店整个公寓，这种邪恶到极端的行为只有中共才能干得出来。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
 
-中共的流氓行径完全是冲郭先生而来，但如些毫无底限地伤及无辜和践踏人伦，是为无道。因此天下人皆可伐无道诛暴共，灭共实乃替天行道。
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-郭先生在刚才的直播中劝战友们不要哭，不要伤心，因为这是灭共必须付出的代价，如果我们不灭共了，才真正对不起我们的亲人和同胞！
+**关注我们**
 
-随着新中国联邦在国际舞台上的份量和地位越来越重要，预感大限将至的中共对爆料革命的打击将愈加疯狂，因此新中国联邦将马上迎来前所未有的大考和腥风血雨，我们每一位战友都应该扪心自问，自己将交出怎样的答卷。
+Discord 账号
 
-[郭先生12/6盖特](https://gettr.com/post/piudoe19f2)
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
+Gettr 账号
 
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

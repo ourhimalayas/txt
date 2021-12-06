@@ -15,101 +15,101 @@
 
 ---
 
-### [七哥谈HPay消费](/content/gnews/1/README.md)
+### [七哥谈躺平币](/content/gnews/1/README.md)
  ` MG FARM`
 
-### [纽约市商业团体抨击对私营企业的疫苗强制令](/content/gnews/2/README.md)
- ` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)`
-
-### [七哥谈毛泽东](/content/gnews/3/README.md)
+### [七哥谈马航事件与中国共产党](/content/gnews/2/README.md)
  ` MG FARM`
 
-### [七哥谈马航事件](/content/gnews/4/README.md)
- ` MG FARM`
-
-### [七哥谈Mandelli工厂](/content/gnews/5/README.md)
- ` MG FARM`
-
-### [Eglise医生讲解羟氯喹治好了战友的风湿性关节炎](/content/gnews/6/README.md)
+### [约翰逊议员批福奇破坏早期治疗害死美国人](/content/gnews/3/README.md)
  ` HimalayaRussia`
 
-### [七哥告诉大家什么叫HPay](/content/gnews/7/README.md)
+### [意大利神父直言“大流行病是由这个世界的有权势者策划出来的”](/content/gnews/4/README.md)
+ ` xiaobaige`
+
+### [七哥谈港币](/content/gnews/5/README.md)
  ` MG FARM`
 
-### [中共查封盘古 爆革面临大考](/content/gnews/8/README.md)
- ` 向真`
-
-### [七哥谈GFashion](/content/gnews/9/README.md)
+### [七哥谈HPay消费](/content/gnews/6/README.md)
  ` MG FARM`
 
-### [纽约市将对私营企业实施强制疫苗令](/content/gnews/10/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [七哥教我们真正去爱每一个人](/content/gnews/11/README.md)
- ` MG FARM`
-
-### [七哥谈赌牌](/content/gnews/12/README.md)
- ` MG FARM`
-
-### [专家称中共国人口实际生育率正在快速萎缩](/content/gnews/13/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [中共的民主白皮书，全世界的笑柄](/content/gnews/14/README.md)
- ` 墨尔本雅典娜农场`
-
-### [恒大发出无法偿债警告后，广东省政府传唤恒大董事长](/content/gnews/15/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [七哥谈最贵](/content/gnews/16/README.md)
- ` MG FARM`
-
-### [美国国防部长承认中共国正在“成为美国军队的同等竞争对手”，并警告习近平的核威慑野心](/content/gnews/17/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [滴滴计划从纽交所退市，股价暴跌逾20%](/content/gnews/18/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [以色列首现巨幅反疫苗广告](/content/gnews/19/README.md)
- ` 纽约香草山MOS02`
-
-### [【粤语配音】2021年12月5日文贵直播：躺平币未来的收益](/content/gnews/20/README.md)
- ` MOS香港部`
-
-### [15项技能将帮助您在灾难来临后的世界中生存](/content/gnews/21/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [秘翻在线:纽约市正面临严峻的医疗暴政](/content/gnews/22/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [纽约市宣布对私营企业员工强制疫苗与儿童疫苗要求](/content/gnews/23/README.md)
+### [纽约市商业团体抨击对私营企业的疫苗强制令](/content/gnews/7/README.md)
  ` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)`
 
-### [科学家表明 COVID-19 测试是“无用的” 基于“有缺陷的科学” 之认定](/content/gnews/24/README.md)
- ` GTV News Talk`
+### [七哥谈毛泽东](/content/gnews/8/README.md)
+ ` MG FARM`
 
-### [串珠467:致梗致癌致死，疫苗无限放大人体潜在疾病](/content/gnews/25/README.md)
- ` 郭爆料串珠`
+### [七哥谈马航事件](/content/gnews/9/README.md)
+ ` MG FARM`
 
-### [GFashion与世界顶级品牌Mandelli开展全面合作](/content/gnews/26/README.md)
- ` GTV新闻访谈`
+### [七哥谈Mandelli工厂](/content/gnews/10/README.md)
+ ` MG FARM`
 
-### [先进科技助力新中国联邦构建宏大版图](/content/gnews/27/README.md)
- ` GTV新闻访谈`
+### [Eglise医生讲解羟氯喹治好了战友的风湿性关节炎](/content/gnews/11/README.md)
+ ` HimalayaRussia`
 
-### [GTV新闻访谈简报|2021年12月6日早](/content/gnews/28/README.md)
- ` 纽约香草山MOS01`
+### [七哥告诉大家什么叫HPay](/content/gnews/12/README.md)
+ ` MG FARM`
 
-### [泽连科医生治疗中共病毒方案 使住院和死亡率减少84%](/content/gnews/29/README.md)
- ` GTV News Talk`
+### [中共查封盘古 爆革面临大考](/content/gnews/13/README.md)
+ ` 向真`
 
-### [加杠杆的比特币交易者在巨大的隔夜崩盘中被冲走](/content/gnews/30/README.md)
+### [七哥谈GFashion](/content/gnews/14/README.md)
+ ` MG FARM`
+
+### [纽约市将对私营企业实施强制疫苗令](/content/gnews/15/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [七哥教我们真正去爱每一个人](/content/gnews/16/README.md)
+ ` MG FARM`
+
+### [七哥谈赌牌](/content/gnews/17/README.md)
+ ` MG FARM`
+
+### [专家称中共国人口实际生育率正在快速萎缩](/content/gnews/18/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [中共的民主白皮书，全世界的笑柄](/content/gnews/19/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [恒大发出无法偿债警告后，广东省政府传唤恒大董事长](/content/gnews/20/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [台湾外长警告称中共的扩张主义可能引发第三次世界大战](/content/gnews/31/README.md)
+### [七哥谈最贵](/content/gnews/21/README.md)
+ ` MG FARM`
+
+### [美国国防部长承认中共国正在“成为美国军队的同等竞争对手”，并警告习近平的核威慑野心](/content/gnews/22/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [滴滴计划从纽交所退市，股价暴跌逾20%](/content/gnews/23/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [以色列首现巨幅反疫苗广告](/content/gnews/24/README.md)
+ ` 纽约香草山MOS02`
+
+### [【粤语配音】2021年12月5日文贵直播：躺平币未来的收益](/content/gnews/25/README.md)
+ ` MOS香港部`
+
+### [15项技能将帮助您在灾难来临后的世界中生存](/content/gnews/26/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [秘翻在线:纽约市正面临严峻的医疗暴政](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [法国千万人注射三针疫苗 单日新增感染仍破五万](/content/gnews/32/README.md)
+### [GFashion与世界顶级品牌Mandelli开展全面合作](/content/gnews/28/README.md)
  ` GTV新闻访谈`
+
+### [先进科技助力新中国联邦构建宏大版图](/content/gnews/29/README.md)
+ ` GTV新闻访谈`
+
+### [GTV新闻访谈简报|2021年12月6日早](/content/gnews/30/README.md)
+ ` 纽约香草山MOS01`
+
+### [加杠杆的比特币交易者在巨大的隔夜崩盘中被冲走](/content/gnews/31/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [台湾外长警告称中共的扩张主义可能引发第三次世界大战](/content/gnews/32/README.md)
+ ` 秘密翻譯組G-Translators`
 
 ### [中资塞尔维亚工厂越南雇工遭非人待遇 恍如当代奴隶制](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`

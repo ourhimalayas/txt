@@ -2,25 +2,29 @@
 ---
 
 
-## 纽约市商业团体抨击对私营企业的疫苗强制令
-` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1727098/)
+## 七哥谈马航事件与中国共产党
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1727177/)
 
-加拿大扬帆农场Spirit
-![](https://assets.gnews.org/wp-content/uploads/2021/12/IMG_3318.jpg)图片来源：NewYork Post
-根据《彭博社》12月6 日报道， 纽约市合伙人组织的负责人凯瑟琳·怀尔德 (Kathryn Wylde) 表示，他们被纽约市长比尔-德布拉西奥的措手不及的疫苗强制令惊到了。怀尔德代表的是一个有影响力的商业团体，摩根大通公司和高盛集团是其成员。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-纽约市长周一表示，所有私营部门的雇主必须要求他们的工人在12月27日之前接种疫苗，没有测试选项。这项任务将涵盖大约18.4万家企业。
+马航的事件对共产党的内部啊，它这个是什么概念，这个黎磊石，黎磊石的家人当看到江绵恒，两天约他的时候，他家人就知道完了，告诉黎磊石，你要出事了，是吧。说这个黎磊石能这个时候见你，跟你谈这些事情，这么安慰你，不是好事，这是原话告诉我的，就没想到这黎磊石最后给干掉了。所谓爬楼死，跳楼死，纯粹胡扯，包括李专家，我们这个李晓春，一样！ 在这之前也是江绵恒跟他见面，然后是孙立军和孟建柱还参与了见面，完了，孟建柱他妈都换了心脏，肾脏都换过，得杀多少新疆人啊，这事他怎么能给习知道呢，你想想。习知道后会是什么严重后果。所以马航的事件巴黎问得好，非常好，会是一个很大的转折啊。谢谢！
 
-尽管像高盛和摩根士丹利这样的许多大公司已经要求接种疫苗才能在他们的大楼里工作，但怀尔德说，该市强行规定的决定并没有与公司和高管协调，这将在商业界散播不确定性。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-怀尔德在周一的一份声明中说：”联邦、州和市各级的政策不一致使情况更糟，目前还不清楚谁将执行市长的疫苗强制，以及这项命令是否合法。拜登总统对雇员超过100人的雇主的疫苗授权目前因诉讼而搁浅，很难想象市长能做到总统被挑战的事情“。
+**关注我们**
 
-原文链接：
-[https://www.bnnbloomberg.ca/nyc-business-group-blasts-private-sector-vaccine-mandate-1.1691865](https://www.bnnbloomberg.ca/nyc-business-group-blasts-private-sector-vaccine-mandate-1.1691865)
+Discord 账号
 
-* * *
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-发稿 Spirit
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
