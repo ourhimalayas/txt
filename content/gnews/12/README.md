@@ -2,40 +2,43 @@
 ---
 
 
-## 只要躺平币出来共产党就知道自己的棺材板该钉上钉儿了
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1724178/)
+## 感染 COVID-19 的游轮抵达新奥尔良
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1724264/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/98ca884d4785df4c1c17b7b666aad8c3_副本.jpg)
-据[2021年12月05日 文贵大直播：全球数字货币市场改观；亚洲政治军事形势大变；恒大地产与美金融市场；喜币近况与未来的意义](https://gtv.org/video/id=61acb7bebbd75f62e52f7ce4)时间点2：21：32——
+翻译： 真北007
+![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕截图-2021-12-05-211506-edited.png)图片来源：网络
+来自美联社AP NEWS 12月4日的新闻报道：
 
-**郭文贵先生：**这躺平币的厉害，那七哥现在可真不能告诉你们，告诉完你们，你们绝对睡不着，一星期睡不着。七哥在干的每天的事情，我昨天晚上到现在睡了大家看到我睡没有超过四个小时吧，是吧？我通多长时间电话，静静地通电话、视频。我直播是最累的，直播是真用气、用神。
+一艘挪威游轮发现至少 10 名乘客和船员感染 COVID-19， 于周日停靠在新奥尔良，卫生官员表示，他们正试图在不加剧冠状病毒疾病传播的情况下让人们下船。
 
-我开会的都是我已经很会开会，中间各国需要翻译，是吧，然后我希望他翻译完，然后同时几个会，但是做直播是最用气用神的，全身、全身心。在我人生中除了双修有这种感觉，没有有这种感觉是全身心投入的，那躺平币这个都是七哥创出来的，每时每刻都会感动你，彻底改变，共产党，只要躺平币出来，共产党就知道自己的棺材板儿该钉上钉了，该钉钉了，盖棺而论了就。
+新奥尔良当地新闻媒体证实，“挪威突围”号已抵达该市。这艘船于 11 月 28 日离开新奥尔良。路易斯安那州卫生部在周六晚些时候的新闻发布会上说，在过去的一周里，这艘船在伯利兹、洪都拉斯和墨西哥停靠。
 
-（以下暂略）
+挪威邮轮公司发表声明，确认“客人和船员中有少数 COVID-19 病例”。该公司表示，所有确诊病例涉及到的人没有疾病症状。
 
-撰稿：喜马拉雅的肉夹馍；
+挪威邮轮公司表示，它要求所有乘客和全体船员在出发前都接种过冠状病毒疫苗。
 
-审核：喜马拉雅的馍夹肉；
+该公司在声明中说：“在下船前我们正对 Norwegian Breakaway 上的所有人员进行测试，并由（美国疾病控制与预防中心）提供染疫后隔离的公共卫生指导。” “任何对 COVID-19 检测呈阳性的客人都将乘私人车辆前往他们的个人住所或在公司提供的住宿中自我隔离。”
 
-校对：Maarago；
+州卫生部门正在与邮轮公司以及州和地方官员合作以控制疫情爆发，该部门表示，船上至少有 10 人的 COVID-19 检测呈阳性。官员说，船上有超过 3,200 人。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+一些下船的乘客告诉新奥尔良的 WVUE-TV，他们被告知船上有阳性病例，而其他人则表示，在被记者询问之前，他们不知道爆发。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+来自北卡罗来纳州的乘客唐卡诺尔 (Don Canole) 说：“直到我们听到你说话之前，我们才知道这件事。” “要是知道就好了。我们可能会采取更多的预防措施。”
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+乘客说，他们在周六下船前接受了 COVID-19 感染测试。据 WVUE 称，邮轮公司还在乘客下船时进行了带回家的快速测试。
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+该公司表示，目前没有计划改变 Norwegian Breakaway 未来预定的航行，该船计划于周日晚上再次启航。
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+游轮是去年冠状病毒大流行开始时的早期爆发源，因为一些船只在港口被拒绝，乘客被迫隔离。美国疾病控制与预防中心于 2020 年 3 月发布了禁航令。停航令在今年 6 月结束，游轮开始执行新的健康和安全要求后离开美国港口。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+**点评：**由此可见，疫苗不能防中共病毒传染，而是造成感染大爆发的帮凶。
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+原文链接：[https://apnews.com/article/coronavirus-pandemic-health-travel-lifestyle-louisiana-6adab2955a08fa1c34ceafd7067cb538](https://apnews.com/article/coronavirus-pandemic-health-travel-lifestyle-louisiana-6adab2955a08fa1c34ceafd7067cb538)
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+编辑/发布：LILY
 
+20211205
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

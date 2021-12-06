@@ -2,41 +2,66 @@
 ---
 
 
-## 躺平币让你第一天就能买面包买油能吃饭有法币全部功能
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1724141/)
+## 前国务卿蓬佩奥： 还有两个月就是北京冬奥会 开幕式，抵制北京冬奥会 还不算晚
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1724203/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/bcaa4228faafa314000bee2b4a516b10_副本.jpg)
-据[2021年12月05日 文贵大直播：全球数字货币市场改观；亚洲政治军事形势大变；恒大地产与美金融市场；喜币近况与未来的意义](https://gtv.org/video/id=61acb7bebbd75f62e52f7ce4)时间点2：20：12——
+前国务卿蓬佩奥： 还有两个月就是 [#北京冬奥会](https://twitter.com/hashtag/%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E4%BC%9A?src=hashtag_click) 开幕式。 抵制 [#北京冬奥会](https://twitter.com/hashtag/%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E4%BC%9A?src=hashtag_click) 还不算晚。
 
-**郭文贵先生：**关键那我怎么兑现呢？第一天我就告诉，你躺平币就会让你第一天就可以买面包、买油，我告诉所有的工程队的人，第一天你就要能买面包、买油，我能吃饭，我能有油加。当然能买G-Fashion了，当然能买G-Clubs了，是吧？欸，这个躺平币它不是空间币的、它不是虚幻币，它是真正的可兑换的，就是法币所有的功能它都有，马上可以用。
 
-它有级别的，比如说文疯而动我账上有500个币，那你买面包、买油的可能只让你使用50个币每一次，你不能一下子弄完，然后接着你再接着用，接着用，每一次，每一次用。
 
-如水说我有500个币，那如水我这块儿多了5万个币，那你就可以用500个币一次，这种规则让大家我拿到币，就是我躺平的结果下一分钟我就有面包吃，我就有油加，类如这样，我可以买G-Fashion，你还能干啥？人活着你不就是睡觉、吃饭、驱车、加油、买点衣服穿，你还能干啥？双修费你可以跟对方商量，是吧？你愿意给那是你给的事儿，点对点的支付，这个叫躺平币。
+> 2 months to the [#Olympics](https://twitter.com/hashtag/Olympics?src=hash&amp;ref_src=twsrc%5Etfw) opening ceremony. 
+> 
+> It’s not too late to [#BoycottBeijingOlympics](https://twitter.com/hashtag/BoycottBeijingOlympics?src=hash&amp;ref_src=twsrc%5Etfw).
+> — Mike Pompeo (@mikepompeo) [December 4, 2021](https://twitter.com/mikepompeo/status/1467258731201273864?ref_src=twsrc%5Etfw)
 
-（以下暂略）
 
-撰稿：喜马拉雅的肉夹馍；
 
-审核：喜马拉雅的馍夹肉；
+众议员布莱恩·马斯特： 提醒：安东尼·福奇用纳税人的钱以“科学”的名义杀死小狗。没有人选他，但乔·拜登认为他是总统。 【附纽约邮报文章：在公布他的 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) ‘冬日计划’时，拜登开玩笑说福奇才是真正的总统】
 
-校对：Maarago；
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+> Reminder: Anthony Fauci literally kills puppies with taxpayer dollars for “science.” Nobody elected him, but Joe Biden thinks he’s the President.[https://t.co/0qbZSiU3lA](https://t.co/0qbZSiU3lA)
+> — Rep. Brian Mast (@RepBrianMast) [December 6, 2021](https://twitter.com/RepBrianMast/status/1467660561332805641?ref_src=twsrc%5Etfw)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+参议员罗恩·约翰逊： 我问一个简单的问题，福奇博士对 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 的应对有效吗？78.8万人丧生，其中许多人是因为他忽视并阻挠破坏了使用廉价、可用的普通药进行早期治疗，而他却支持用一种不如我们所有人希望的那样安全或有效的疫苗。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+> I ask a simple question, did Dr. Fauci’s response to COVID-19 work? 788,000 lives lost, many because he ignored and sabotaged early treatment using cheap, available, generic drugs in favor of a vaccine that is not as safe or effective as we all hoped it would be.
+> — Senator Ron Johnson (@SenRonJohnson) [December 5, 2021](https://twitter.com/SenRonJohnson/status/1467600296897622016?ref_src=twsrc%5Etfw)
+
+
+
+众议员肯·巴克： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 正在追捕居住在国外的台湾人，以将他们引渡回大陆，在那里他们面临着人权侵犯的高风险。 如果这些人犯了罪，就应该被遣返回台湾，而不是中国大陆。 【转bbc: 报道称数百名台湾人被引渡到中共国（接上） 一个人权组织的一份新报告发现，近年来有超过 600 名在海外被捕的台湾人被驱逐递解回 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)。 捍卫卫士说，这种做法被“用作破坏台湾主权的工具”。 台湾认为自己是一个独立的国家，长期以来一直坚持将在国外被捕的台湾人送回该岛。 但北京将台湾视为属于中国一部分的分离省份。】
+
+
+
+> China is hunting down Taiwanese people living abroad to have them extradited back to the mainland, where they are at high risk of human rights abuses. If these individuals have committed crimes, they should be returned to Taiwan, not to mainland.[https://t.co/dXKHMAvYN5](https://t.co/dXKHMAvYN5)
+> — Rep. Ken Buck (@RepKenBuck) [December 5, 2021](https://twitter.com/RepKenBuck/status/1467529998668124160?ref_src=twsrc%5Etfw)
+
+
+
+参议员瑞克·斯科特: 我很自豪能与参议员霍利和我们的同事们一起，提出这项重要的法案，以加强我们与 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 的经济和安全伙伴关系，并加强旅客的安全和保障。随着 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 侵略行径的加剧，这是朝着正确方向迈出的一大步。 【转参议员霍利新闻办推文：参议员霍利和同事提出法案以推进台湾的预清关设施】
+
+
+
+> I was proud to join [@HawleyMO](https://twitter.com/HawleyMO?ref_src=twsrc%5Etfw) & our colleagues to introduce this important bill to strengthen our economic & security partnership with Taiwan & bolster the safety & security of travelers. As Communist China's aggression grows, this is a great step in the right direction. [https://t.co/6XmhkY91oF](https://t.co/6XmhkY91oF)
+> — Rick Scott (@SenRickScott) [December 4, 2021](https://twitter.com/SenRickScott/status/1467175199879872512?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿迈克·蓬佩奥： [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 对美国构成了最大的外部威胁。几十年来，中共在美国工人的支持下发展了经济。 川普总统是第一位确认这一点并予以反击的美国总统。 他展示了我们可以获胜，但我们必须认真对待。 【附视频，蓬佩奥接受福克斯新闻采访】
+
+
+
+> The CCP poses the singular greatest external threat to the U.S. It has grown its economy on the backs of the American worker for decades.
+> 
+> Pres. Trump was the first POTUS to acknowledge that & push back. He showed we can prevail, but we have to be serious. [https://t.co/2TSCMxI7Sz](https://t.co/2TSCMxI7Sz)
+> — Mike Pompeo (@mikepompeo) [December 4, 2021](https://twitter.com/mikepompeo/status/1467150705911865346?ref_src=twsrc%5Etfw)
+
+
 
  
 

@@ -2,28 +2,40 @@
 ---
 
 
-## 拜登政府的强制疫苗规定再次在联邦法院上受到挫折
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1723794/)
+## 美国国家医学院院长和NIH顾问主持孔子学院晚会
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1723806/)
 
-**撰稿：Grace**
+据《国家脉动》作者：Natalie Winters，2021年12月2报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-246-e1638742696279.png)图片源自国家脉动
+美国国家医学院院长、美国国家卫生研究院（NIH）顾问维克多·德佐博士曾多次与孔子学院合作，而孔子学院是中共资助的宣传机构，《国家脉动》披露。
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-05-at-5.03.16-PM.jpeg)图片来源： unitedpushback
-据Just the News 12月4日报道，拜登政府12月3日在联邦法院上再次受到了挫折，拜登的白宫试图解除第五巡回上诉法院(The U.S. Court of Appeals for the Fifth Circuit)对其强制中共病毒疫苗规定的暂停，但是其上诉被第六巡回上诉法院(the Sixth U.S. Circuit Court of Appeals)在周五的时候给驳回了。
+德佐还在世界银行集团和世界卫生组织的全球防备监测委员会（GPMB）任职，他在孔子学院美国中心（CIUSC）——北京有争议的行动的美国总部，举办的2017年晚会上担任荣誉主持委员会成员。GPMB成立于2018年初，在COVID-19事件发生之前，以应对大流行病。
 
-在11月4日，拜登政府的职业安全与健康管理局(OSHA)，要求所有拥有100名或更多员工的公司，强制其员工进行中共病毒疫苗接种或每周接受中共病毒测试。在拜登政府提出这条规定后，几个共和党领导的州、雇主、工会和其他组织对拜登政府的命令提起了诉讼。
+**由美国大学主办的孔子学院被中共政府官员描述为“中国海外宣传机构的一个重要部分”。除了参与信息战，根据联邦调查局（FBI）和司法部（DOJ）的规定，这些孔子学院还充斥着知识产权盗窃的行为和从事间谍活动。**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-247.png)图片源自孔子学院美国中心
+除了担任孔子学院美国中心2017年晚会的主持人外，德佐还在2018年为该中心制作的系列节目完成了为时60分钟的采访。这是美中全球教育电视系列节目，在美国和中国国营广播公司中国中央电视台（CCTV）播出。
 
-在11月6日，美国第五巡回上诉法院对拜登政府的强制中共病毒疫苗规定发布了临时禁令。第五巡回法院说，职业安全与健康管理局的规定，不适当地主张 “在工作场所法规的幌子下控制个人行为的几乎无限权力”。
+除了呼吁加强美中之间的科学合作外，德佐还赞扬了中国在全球卫生领域的作用，指出“完全有理由认识到中国在全球舞台上的重要性”。
 
-随后，在11月23日，拜登政府的司法部向美国第六巡回上诉法院提出诉讼，要求第六巡回法院解除第五巡回法院的暂停令。
+尽管中国在非洲大陆明显的剥削性存在。但是，他补充说，“中国实际上在全球卫生领域发挥了非常重要的作用。他们已经在过去的10年内参与了不同国家的医疗保健，包括非洲，等等。”
 
-然而，在12月3日，第六巡回上诉法院发布的裁决书里写道: “2021年11月23日，职业安全与健康管理局提出了一项紧急动议，要求解除第五巡回上诉法院发布的暂停…鉴于政府的未决动议，暂停机构裁决的动议和相关动议…在此(职业安全与健康管理局提出的紧急动议)被拒绝，因为没有意义。”
+除了领导国家医学院之外，德佐还担任过美国国家卫生研究院（NIH）院长咨询委员会成员、NIH心血管疾病咨询委员会主席和美国国家研究委员会副主席。
 
-第六巡回上诉法院的裁决，否定了拜登政府试图破坏第五巡回上诉法院对其发布的暂停令的做法。尽管它没有具体解释为什么做出这一决定。
+国家研究院的其他知名成员包括安东尼·福奇、弗朗西斯·柯林斯和杰弗里·萨克斯。
 
-另外，法院还驳回了拜登政府想要将此案移交给第五巡回法院和华盛顿特区巡回法院的企图。
+原文连接：[https://thenationalpulse.com/exclusive/nam-president-collaborated-with-confucius-institute/](https://thenationalpulse.com/exclusive/nam-president-collaborated-with-confucius-institute/)
 
-**新闻来源：[Court denies Biden administration’s attempt to stay hold on vaccine mandate](https://justthenews.com/government/white-house/court-denies-biden-administrations-attempt-stay-hold-vaccine-mandate#article)**
+翻译：洛杉矶盘古农场 — TrueSky
+
+校对：洛杉矶盘古农场 — Mike Li
+
+编辑：洛杉矶盘古农场 — 心照
+
+
+![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入: (或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

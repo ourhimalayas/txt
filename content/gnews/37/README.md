@@ -2,51 +2,34 @@
 ---
 
 
-## 随着高盛接受加密抵押品，比特币的债券即将进入华尔街
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1723893/)
+## 日本要闻汇编 12月5日
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1723914/)
 
-据《Zerohedge》记者：TYLER DURDEN，2021年12月2日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-249-e1638744886140.png)图片源自Zerohedge
-**本周早些时候，我们描述了萨尔瓦多历史性的比特币债券交易：一项价值10亿美元的交易，以5亿美元的比特币为抵押，这个拥抱加密货币的国家将用这笔资金为“比特币城市”的建设提供资金。**
+素材：东京樱花团丨GNEWS组
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-250.png)[*图片来源*](https://www3.nhk.or.jp/news/html/20211204/k10013374401000.html?utm_int=news-culture_contents_list-items_006)
+1、[**厚劳省将心肌炎等规定为严重不良反应**](https://www3.nhk.or.jp/news/html/20211204/k10013374401000.html?utm_int=news-culture_contents_list-items_006)
 
-正如我们当时所说：其他国家可能会研究如何在不必与国际货币基金组织贪婪的银行家打交道的情况下获得资金。
+厚生劳动省3日召开了一次专家委员会会议，建议在Moderna和辉瑞疫苗各自的包装说明中，将心肌炎和心包炎规定为 “严重不良反应”，并要求谨慎行事。此外，法律将要求医疗机构在接种疫苗后28天内详细报告任何心肌炎或其他不良反应的案例。
 
-比特币债券是在传统金融体系范围之外获得资金的好方法。
+2、[**日本拟不再允许留学生免税购物**](https://china.kyodonews.net/news/2021/12/c56efbbf5645.html)
 
-**据三位知情人士透露，根据CoinDesk的一份报告，高盛和其他一些美国一级银行正在研究如何使用比特币作为向机构提供现金贷款的抵押品。**
+日本政府和执政党5日就针对访日外国人的消费税免税制度敲定了方针，将把外国留学生等长期逗留者排除在对象之外。由于允许在入境半年内免税购物，但确认是否为对象人群的作业繁琐，且留学生倒卖免税品的行为泛滥，因此在2022年度税制修改时将调整该制度。
 
-模仿三方回购类型的安排（一种通过出售证券并同意回购的方式借入资金，涉及第三方代理），银行正在探索不接触比特币的方法，就像其他组合产品一样。
+3、[**因中共病毒孤立无援的育儿家庭现状报告**](https://www3.nhk.or.jp/news/html/20211205/k1001337552)
 
-“高盛正在努力获得抵押贷款和三方回购贷款的批准。”其中一位知情人士表示。
+据NHK5日消息，横滨市举行了日本防止虐待儿童协会上，神奈川县防止虐待儿童研究小组主席Emi Oba报告说，由于新冠词导致缺乏支持，孤立的育儿家庭数量增加。全国儿童指导中心处理的虐待儿童案件数量超过20.5万起，是有史以来最高的数字。
 
-“如果他们有清算代理人，那么他们只是在做有担保的贷款，而不会让比特币触及他们的资产负债表。”
+4、[**天皇长女爱子在皇宫举行成年仪式**](https://china.kyodonews.net/news/2021/12/e984529a3d2e.html)
 
-高盛并不孤单；少数大银行正在追随对加密货币友好的银行moSilvergate和Signature开辟的道路，这两家银行今年早些时候都宣布了比特币抵押的现金贷款。
+日本天皇夫妇的长女爱子5日在皇宫宫殿等处举行了成年仪式。她身着女性成年皇族的正装礼服裙、戴着头冠，在皇宫宫殿向天皇夫妇致以问候。
 
-“我们可能已经与六家大银行谈过 （比特币抵押贷款），”来自一家大型机构交易公司的第二位人士说。
+5、[**新宿举行支持在日外国人集会**](https://www3.nhk.or.jp/news/html/20211205/k10013375551000.html?utm_int=news-politics_contents_list-items_003)
 
-“其中一些在未来三到六个月的类别中，而另一些则更远。有趣的是，其中一些银行将使用自己的资产负债表来发放贷款。其他人会将其联合起来。”
+据NHK5日消息，为支持生活在日本的外国人，特别是最近才抵达日本的难民，由亚洲福利和教育基金会组织，在东京新宿区举行了一次集会，100多人参加。
 
-美国对此类活动的监管立场仍然很复杂。根据银行和提议的具体内容，监管可能来自 OCC、SEC 或 CFTC；在参议员伊丽莎白-沃伦和财政部长耶伦等人的压力下，所有这些都可能会竭尽全力限制这一点。
-
-“非大型银行也在这个三方贷款领域建立起来，”第三人说。
-
-**所有这些对加密社区来说都是非常乐观的，它展示了比特币如何成为新金融系统的支柱。**
-
-文章来源：[https://www.zerohedge.com/crypto/bitcoin-backed-bonds-are-coming-wall-street-goldman-embraces-crypto-collateral](https://www.zerohedge.com/crypto/bitcoin-backed-bonds-are-coming-wall-street-goldman-embraces-crypto-collateral)
-
-翻译：洛杉矶盘古农场–Raul
-
-校对：洛杉矶盘古农场–Mike Li
-
-编辑：洛杉矶盘古农场–心照
-
-
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*编辑：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

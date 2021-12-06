@@ -2,44 +2,48 @@
 ---
 
 
-## 联合影像拟中标医疗设备，生物间谍风险令澳洲担忧
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1724309/)
+## G-Fashion在时尚界将真正开始像喜联储一样的新世界
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1724480/)
 
-## 【雅典娜快讯】，紧贴时代脉搏
+**郭文贵先生：**我告诉大家一个消息，昨天下午G-Fashion开会，你知道Doaa和Kamel（注：同音字）在欧洲呢，我上次跟Rachel我们在办公室开会的时候，就下午我在那站着,Mandelli,Mandelli谁做衣服？Bijan就是我穿那黄夹克，Bijan yellow house，Stefano Ricci，你看那柜子。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/812-3.jpg)图片来源：United Imaging & Twitter.com
+这俩牌子是比爱马仕是高百倍千倍，这两个称为什么？——世界上皇族玩的，Billionaire穿的衣服，爱马仕是你有钱人谁都可以买的。第三个，Loro Piana，是羊绒羊毛材料之王。第四个就是现在大家都看到的，也是比较火的火牌Rick Owens一系列。
 
+Mandelli这个先生极为的安静，世界上这些高的品牌所有的包括爱马仕的一些包、绝品还有那鳄鱼，都是他做的，号称时尚界的真的是时尚界的王。我们的衣服现在是跟他做，Rachel你知道，你在现场都看到了那个质量，是吧？
 
+头一段时间，Kamel、Doaa跟我说：“郭先生，我们特别担心 Mandelli先生（因为）我们的量太大，人家不愿意跟我们做了。”担心这担心那，当时我就告诉他们：“你俩记住，不会超过两个月，你会把你俩的话都给我咽回去。”他说为什么？我说：“因为你们太无知，你不知道谁叫郭文贵，你也不知道我们G-Fashion有多牛，走着看。”
 
+这两天去欧洲开会去了， Mandelli先生安静地请到办公室，他说：“我们 Mandelli，迈阿密一个人Billionaire，想开 Mandelli在迈阿密，但是他不懂时尚，我们拒绝了。但是现在我觉得跟郭先生打交道，还了解了郭先生，看到疫苗、爆料革命、盖特、G-TV，特别是喜币喜联储，我们想给郭先生……”谦虚地说：“可不可以把美国所有Mandelli的代理权给G-Fashion？你们可以开 Mandelli所有的店。”
 
-整理报道：文泓
+当时对Doaa、Kamel来讲，当时就傻在那了：“多少钱？”他说：“Zero，不要钱，不要钱” “真的？” 不要钱，这是教父级的，你但凡懂得服装业，他就是教父级的。“第二， Mandelli的品牌你们随便用， Mandelli和G-Fashion从现在起你们可以合法使用。” 然后Kamel说：“这要不要钱？”“不要钱。”
 
-12月4日，据澳大利亚《每日邮报》报道，一家由中共政府支持的公司已接近获得澳洲一份价值1400万澳元的医疗设备合同，这引发了人们对澳洲敏感数据可能面临的风险，以及“生物医学间谍活动”的担忧。
+第三个，它的股东是谁知道吗？Mr. Stefano Ricci、 爱马仕、Tiffany，说：“如果郭先生愿意的话，也欢迎郭先生加入我们的股东。” 这是唯一一个亚洲人被邀请的，连三宅一生都想投，人家说不接受任何（新）股东。
 
-悉尼大学正在考虑将这份标书授予联合影像公司（UIH），由该公司为皇家北岸医院提供包括PET/CT扫描仪在内的健康医疗设备，以检测肿瘤。
-情报界人士告诉媒体，非常担心该公司届时将能够浏览新州政府的健康数据，并将其传回中共国。
+不是中国人想象的什么东西你都可以花钱买，Mandelli不是花钱可以买的，Mandelli先生是时尚界之教皇式这样的人物。咱走着看，G-Fashion将时尚界将真正地开始一个像咱们喜联储一样新的世界。
 
-**悉尼大学表示，联合影像公司为英国联合影像医疗公司所有，但该（英国）公司又为上海联合影像医疗公司所有。**
-一份尽职调查报告承认，该公司“拥有一系列非常复杂的股东，可能与中共政府有联系”。由于联合影像医疗已经在上海使用人工智能（AI）来审查病人数据，因此，中共政府渗透的可能性已经很大。
+字幕来源：[2021年12月3日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1720736/)
 
-“人工智能最大意义在于使用大数据。他们将可以，甚至不需要进入（澳洲政府）防火墙，将在扫描仪的源头积累大数据，然后将其送回中共国，”一位情报人士说。
-在某种程度上，这里的每一台机器都是生物医学间谍活动的（信息）来源，因为它可以搜集信息汇编生物医学大数据，中共国可以将其用于自己的技术发展。
+视频制作：小满；
 
-这位人士继续说，上海UIH是由中共实体控制的，悉尼大学没有提醒澳洲政府拟议的招标是非常愚蠢的行为。
-《2020年对外关系法》要求所有公立大学在与外国政府实体达成潜在合作时都需要披露。法律规定，在事关国家利益方面，外交部长玛丽斯·佩恩拥有一票否决权。
+视频上传：撒骄的男宝好性感；
 
-据了解，中共国的投标接近于获得与悉尼大学的1400万澳元合同。迄今为止，他们已经完成了澳大利亚法律、其他政府制裁和国防出口管制上的工作流程。
-悉尼大学证实，关于这项交易的决定正在等待中，采购程序正在进行中。
+G-News发布：黎明之前；
 
-新闻链接：[https://www.dailymail.co.uk/news/article-10271557/Fears-health-records-Australians-end-hands-China-14million-deal-looming.html](https://www.dailymail.co.uk/news/article-10271557/Fears-health-records-Australians-end-hands-China-14million-deal-looming.html)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-**编辑****/发布：文泓**
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
