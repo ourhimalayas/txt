@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/6/2021 3:21 AM (UTC)`
+
+12/05/2021 Miles Guo:  The CCP and Russia are the cores of the evil forces, and the CCP is in cahoots with other dark forces in an attempt to eliminate the senior people and the people with disabilities. The birth of the New Federal State of China (NFSC) is God’s will. The mission of the NFSC is to defeat and destroy these evil forces<br/><br/>12/05/2021文贵直播：中共和俄罗斯是黑暗力量的核心，中共和其他邪恶势力沆瀣一气，妄图消灭老年人和残疾人。新中国联邦的诞生是天意，她的使命就是消灭这些邪恶力量<br/>
+![img](https://media.gettr.com/group37/getter/2021/12/06/03/60c25b7f-1673-ffdf-d5f7-5eac90dbb360/out.jpg)
+
+---
+
 `@miles 12/6/2021 2:51 AM (UTC)`
 
 12/5/2021 Miles Guo: When it comes to the Taiwan issue, Australia can’t defeat the CCP’s troops and prioritizes economic interests; the Japanese’s military is comparable to that of the CCP, but Abe’s statement on Taiwan was simple bluffing; the core of the Taiwan issue lies in the traitors and the government of Taiwan; it’s the CCP, the US, and Russia that have the say in the world<br/><br/>12/5/2021 文贵直播：在台湾问题上，澳大利亚打不过中共且以经济利益为优先考量；日本军力不输中共，但安倍的表态全是咋呼；台湾问题的核心是卖台贼和台政府；真正影响世界的是中美俄<br/>
@@ -144,13 +151,6 @@ Hcoin To The Moon <br/>iTunes Ranking No. 1 🥇<br/>iTunes 打榜第一名🥇<
 
 12月4号 Hcoin To The Moon 打榜记录（一）<br/>感谢香港，新加坡，老挝，澳门，柬埔寨，蒙古的战友们🙏🙏🙏🙏🙏🙏🙏<br/><br/>iTunes 总榜第一名🥇：<br/><br/>香港🇭🇰<br/>新加坡🇸🇬<br/>老挝🇱🇦<br/>澳门🇲🇴<br/>柬埔寨🇰🇭<br/>蒙古🇲🇳
 ![img](https://media.gettr.com/group19/getter/2021/12/04/16/727b7ffa-0152-e674-92a8-6b341de4b127/4793e5944601b61090ac24ce27637855.jpg)
-
----
-
-`@miles 12/4/2021 3:24 PM (UTC)`
-
-在鲁迪·朱利安尼的《鲁迪的常识》节目中，泽连科医生描述了他是如何在2020年初开始用阿奇霉素、羟氯喹和锌有效治疗感染中共病毒的病人的<br/><br/>In Rudy Giuliani's "Rudy's Common Sense" program, Dr. Zelenko describes how he began treating CCP virus Infected patients effectively with  Azithromycin, Hydroxychloroquine, and Zinc in  early 2020
-![img](https://media.gettr.com/group15/getter/2021/12/04/15/f2602f8f-b4e9-ef96-1a7c-8d419c7b8113/out.jpg)
 
 ---
 
