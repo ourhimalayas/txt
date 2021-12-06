@@ -2,54 +2,56 @@
 ---
 
 
-## 北京如何收购英国
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1725300/)
+## 新冠病毒疫苗的 8 种最常见和最严重的不良反应
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1725398/)
 
-编译：东京樱花团/Hopkins
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-264.png)[图片来源](https://www.reddit.com/r/FragrantHarbour/comments/lulx1d/chinese_companies_buy_up_uk_private_schools/)
-中国投资者至少在英国资产上花费了 1340 亿英镑，包括私立学校、基础设施企业和顶级英国公司。
+作者：Rebecca (一切心皆不可得！)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片-1-9.jpg)
+（自然新闻）长期以来，疫苗一直被认为是美国医学的圣杯。在一个以商品、服务和药物广告和营销为基础的资本主义国家，大多数美国人相信他们在电视上听到的、在网上读到的以及在杂志和报纸上看到的。人们认为这一切都是真实的、合法的，并被某地的政府官员批准使用或消费的。然而，媒体和政府推动的大多数产品和药物都是掺假的，对人体有毒的，尤其是疫苗。
 
-据《星期日泰晤士报》报道，中国或香港的投资者和企业现在拥有泰晤士水务（Thames Water）、希思罗机场（Heathrow Airport）和英国电力网络（UK Power Networks）等关键基础设施企业的股份。
+更糟糕的是，新冠病毒疫苗会导致可怕的副作用和不良事件，这些副作用和不良事件常常是永久性的，比如死亡。现在，这些损害健康的疫苗不仅在临床试验期间被掩盖，而且现在依然没曝光。
 
-据该报称，还向富时 100 指数（FTSE 100）公司投资了多达 570 亿英镑。
+事实上，一份最近被揭露的辉瑞文件显示，在近一年前的 2021 年 1 月和 2 月报告了数以万计的不良反应。这些文件是在一组教授及科学家提交《信息自由法》请求后出现的。这通常是公众发现这些制药罪犯和大规模杀人犯的阴谋和用有毒疫苗蒙骗群众的伎俩的唯一途径。
 
-而且，正如《星期日邮报》先前报道的那样，中国公司还在著名的私立学校——包括塞特福德文法学校（Thetford Grammar School）和伯恩茅斯学院（Bournemouth Collegiate College）——进行了大量投资，投资额约为 100 亿英镑。
+谁会相信屡屡犯案的制药罪犯？
 
-据该报称，中国的消费热潮自 2019 年以来一直在蓬勃发展。
+谁会相信为辉瑞、莫得那、强生、默克或任何制造疫苗的黑帮工作的人？他们应该就所作所为在监狱里服刑。在最重要的医学领域，他们完全缺乏透明度，而我们本应在这里击退一场大流行病。他们肯定不会“拉平曲线”或终止新冠病毒的传播。美国各地的医生和护士被虚假信息误导，并受到不当的教育，将虚假信息传递给他们的患者，这些信息通过基因治疗注射不计后果地危及人们的生命，这些注射杀死（或致残）的人多于他们挽救的人。
 
-据称，在与数据提供商 Argus Vicker 的调查中发现的购买交易中，几乎有一半发生在过去两年中。
+在推广疫苗的短短几个月内，辉瑞 (Pfizer) 的高管和科学家们就知道，他们的新冠病毒疫苗在最初几个月内引起50,000多个严重不良反应，但他们没有告诉任何人。
 
-该报报道称，至少有 440 亿英镑的采购来自中国国有企业。
+辉瑞向美国食品和药物管理局（FDA）秘密承认，mRNA 新冠病毒疫苗会导致“病情加重”，从而加剧大流行。
 
-它警告说，由于难以追踪某些投资，总投资数字可能远高于计算出的 1340 亿英镑。
+在一份确凿的文件中，辉瑞在“安全问题”的标题下向 FDA 承认，mRNA 注射疫苗会导致“疫苗相关强化疾病”（VAED），这也可能是一种呼吸道感染/功能障碍。设想一下这如同火上浇油的情况，新冠病毒是由人类在实验室进行基因改造的病毒引起的呼吸道感染，而针对该病毒感染的疫苗会导致人类呼吸系统患上呼吸道疾病。
 
-中资企业投资的学校包括：
+其实，美国食品和药物管理局（FDA）知道这一点，辉瑞知道这一点，但他们仍然被授予“紧急使用批准”，以进一步感染数百万美国人，而人们对此却一无所知。
 
-- Bournemouth Collegiate School
-- St Michael’s School in Llanelli, Carmarthanshire
-- Bosworth Independent College in Northampton
-- Bedstone College in Shropshire
-- Ipswich High School
-- Kingsley School in Bideford, Devon,
-- Heathfield Knoll School
-- Thetford Grammar School in Norfolk
-- Wisbech Grammar in Cambridgeshire
-- Riddlesworth Hall Preparatory School in Norfolk
-- Adcote School for Girls near Shrewsbury, Shropshire
-- Myddelton College in Denbigh, Wales
-- CATS Colleges – Campuses are in London, Cambridge and Canterbury
-- Chase Grammar School
-- Abbotsholme School, Derbyshire
-- St Bees School, Cumbria
+这份秘密文件还披露了接种辉瑞 mRNA 注射疫苗后，造成 1200 多人死亡和 42,000 多份不良报告，总计近 16万次不良反应。这使他们不得不为每一个被他们欺骗而受伤或死亡的患者（包括每个男人、女人、儿童、婴儿或怀孕终止）承担数百万美元的损失。
+
+在这些已知的不良反应中，一般疾病和神经系统疾病居于首位。此外，由于某种未知原因（人口控制），女性受到的影响是男性的三倍。请问，这种疫苗是为了减少人口而设计的？针对特定性别的损害吗？辉瑞公司和食品和药物管理局当然知道这一点。所以他们出台了——对 Covid 疫苗最常见和最严重的 8 种不良反应：
+
+#1.心肌炎
+
+#2.新的神经系统紊乱
+
+#3.新的呼吸系统疾病
+
+#4.血凝块
+
+#5.新的肌肉骨骼疾病
+
+#6.新的胃肠道紊乱
+
+#7.过敏性休克（近 10%）
+
+#8.新感染，包括 新冠病毒及其变种
+
+參考链接：[https://www.naturalnews.com/2021-12-04-top-8-most-common-serious-adverse-reactions-covid-vaccines.html](https://www.naturalnews.com/2021-12-04-top-8-most-common-serious-adverse-reactions-covid-vaccines.html)
 
 
-信息来源：
 
-[How China is colonising the Commonwealth: As Britain beats itself up over our imperial past – and slavery – countries once loyal to the Crown are kneeling to Beijing which is building its own empire and enslaving a million Uighurs](https://www.dailymail.co.uk/news/article-10273381/How-China-colonising-Commonwealth.html)
+审核校对：Barry Jack
+上传排版：F
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

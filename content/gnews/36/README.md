@@ -2,12 +2,16 @@
 ---
 
 
-## 整个美国医药体系致力于对中共病毒的唯一选择是接种疫苗
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1725095/)
+## 秘翻在线：【速报】日本确诊第三例奥密克戎变异株感染者
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1725152/)
 
-11/23/2021 史蒂夫·克什的亲身经历表明全美健康医药体系是被操控的，他们的任务就是确保人们能得到的中共病毒的唯一治疗方案就是接种疫苗。
+撰稿：待命（文暁）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/画像1-3.png)（图片源自本文链接）
+Q电视新闻12月6日13:25时报道称：一名曾在意大利滞留过的30多岁男子，本月1日入境日本羽田机场，被确诊为奥密克戎变异株感染者。
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+至此，日本确诊奥密克戎变异株感染者达3例。
+
+信息源：[オミクロン株３例目確認　イタリア滞在男性（日本テレビ系（NNN）） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/5f2c7bcb60ebfa2e1edd98d2fc2e32ef452e72ec)
 
  
 

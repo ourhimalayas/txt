@@ -2,26 +2,40 @@
 ---
 
 
-## COVID-19 最新情报｜欧洲议员声援民众抵抗疫苗暴政“疫苗不是为了抵御病毒 疫苗是为了打击人类”
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1725366/)
+## 在美国获得数字银行牌照等同于喜币获得再生和传宗接代
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1725429/)
 
-**撰文｜ 台湾宝岛农场 疫情关注组 / 发布时间｜6/12/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup）](https://gettr.com/user/mightygroup%EF%BC%89)**
+**郭文贵先生：**大家一定要记住，数字银行严格讲全世界都没有数字货币监管的标准和法律，都没有监管部门，数字银行就被所谓的银监会来监管，那也就是把它作为数字货币和法币联系的桥梁。
 
-德国保守派政客兼欧洲议会议员克里斯汀·安德森 (Christine Anderson)周六（4日）在个人社交平台上载了一条短片，公开声援澳洲人连续多周对疫苗强制令的抗议，并谴责澳洲当局践踏人权、自由和法治，将一个原本民主自由的国家变成极权统治。
+数字货币银行的力量有多大？它不控制数字货币银行的数字货币都等于失控。那你想想世界哪国的数字货币银行它不一样道理吗，你控制不了数字银行，你就失控。现在为啥整个美国就这几个，咱这个牌照是在波多黎各的，波多黎各就是美国，百分之百美国的这个联邦监管，他现在除了贷款这个功能没下来，所有的全牌照。它排在全世界前五，赵长鹏要能拿到这个牌照，赵长鹏会出多少钱？赵长鹏会立马出20亿美元，他1分钟都不犹豫，20亿美元的50%都行，30%都给。因为什么，赵长鹏过去的成功和币安和火币是因为有中国人民银行、中国人民建设银行——王岐山的老建设银行行长，中国银行是朱镕基的天下，还有海外的所有的这几个银行部，给他作为法币的连接，也是兑换银行，否则他一天也活不了。
 
-安德森指出，“整个人类历史上，从来没有一个政治精英真正关心过普通人的福祉，这一点，直到现在，都没有改变过。”
+你们现在一定要被这个币安开过户、封户的、不能兑现的，准备好法律起诉他。起诉他其中要起诉他现在能收你钱的银行，一定要这么做。这个数字货币银行对我们意味着什么？我们接受政府的监管，我们跟政府有这个沟通的渠道，而且我们可以数字银行不是光对喜币管用，是全世界的数字货币都可以来开账号。你不知道数字货币银行开个账号有多难，有多难。
 
-因此，她对于各国政府大力推动强制疫苗的真正动机有所怀疑。“难道你没有意识到疫苗不能保护我们免于新冠病毒的危害吗 …… 政府推行疫苗根本不是为了打击病毒，这一切都是为了打击人类。”
+我们现在就像币安，像所有的银行你想求我们，我们已经站在了币安的祖宗辈上去了现在。随着去中心化货币数字货币被取消，中心化的货币它最需要的就是一个数字银行，它的价值之大几乎等同于一个父亲和母亲的关系。喜联储诞生了，他的真正的母亲叫做喜联储，这个整个创始人这个最重要建议人是我、咱们新中国联邦，但是让他传宗接代无限放大是什么？是数字银行和支付系统，这就是这么个就这么个逻辑。
 
-她在早前演说中曾经表示，她本人绝不会将任何未经长期测试的东西注入身体。“就我而言，我不会接种任何未经适当审查和测试的疫苗，并且根本没有任何可靠科学证据表明疫苗的好处，超过病毒本身，或者超过接种后带来的长期副作用，因此，实际上我们一无所知。”
+字幕来源：[2021年12月3日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1720736/)
 
-安德森提醒全世界所有人记住，一个人应从自己的选择中寻找自由，而不是从政府那里求得自由，“让我们明确一件事：没有人能给我自由，因为我本就应该是一个自由的人。”
+视频制作：小满；
 
-她强调自己非常支持澳洲人为了民主自由而抗争，“我们现在就必须站起来反抗。”任何人都应该阻止政府试图将一个自由民主社会变成极权主义。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-4.jpg)
-来源｜[推特](https://twitter.com/SikhForTruth/status/1467160110673936390?t=FdgUGsYpxJ3M3nAUh0RsDg&amp;s=19) / [演说现场](https://www.youtube.com/watch?v=GCg1mGOgj-w&amp;t=237s)
+视频上传：撒骄的男宝好性感；
+
+G-News发布：黎明之前；
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

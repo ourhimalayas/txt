@@ -2,51 +2,26 @@
 ---
 
 
-## 前荷兰女王中共病毒检测呈阳性
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1725273/)
+## 太空部队副司令：中共正以两倍速赶超美军太空能力
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1725346/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+#### 撰稿：彩虹   
 
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-9.jpg)图片来源：纽约时报
+12月5日，《新闻极限》报道太空部队的一名高级官员警告说，中共国正以乔·拜登总统领导下美国的“两倍速度”发展太空能力，中共国可能会在2030年时成为太空中最主要的存在力量。
 
+据CNN报道，太空部队副司令大卫·汤普森（David Thompson）说：“从本质上讲，事实上，平均而言，他们（中共国）正以两倍于我们的速度建设、部署和更新他们的太空能力。这意味着，很快，如果我们不开始加速我们的开发和交付能力，他们将超越我们，2030年不是一个不合理的估计（超越期限）。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+报道指，美中之间的竞争正在延伸到外太空，甚至连田纳西州众议员，众议院军事委员会战略力量小组委员会主席吉姆·库伯（Jim Cooper）也承认了此点。
 
+目前，库伯正在敦促美国花钱“跟上”中共国的太空建设，推动政府向太空部队注入更多的资金。根据CNN的报道，库伯说：“私营部门比我们的空军创新多，这很好，我们需要让太空部队更加具有创新力，努力跟上私营部门的步伐。要想真的超越，我们必须超越埃隆·马斯克（Elon Musk）的想象力，超越杰夫·贝佐斯（Jeff Bezos）的想象力，超越他们的钱袋子（资金）。现在我们的预算是170亿美元，这是很多钱，但考虑到太空的关键性，我们做的足够吗？”
 
+对于库伯呼吁提供更多纳税人资金给予太空能力建设，汤普森将军表示了赞同。他说：“正如库伯议员所指出的，我们每次见面时，库伯议员都会问他能继续做些什么来帮助我们。而我对他们的要求总是一样：继续成为我们最有力的支持者和最严格的批评者。今早我可以说，他继续有效地履行了这两个角色”。
 
-荷兰皇家新闻局12月4日在一份声明中宣布，83 岁的前荷兰女王比阿特里克斯公主中共病毒检测呈阳性。
+**新闻来源**
 
-声明表示，前女王在感到轻微感冒症状后接受了中共病毒检测。目前她正在荷兰中部的一座城堡里接受隔离。
-
-这位荷兰前女王在位33年，直到2013年退位，她的长子成为国王。
-
-上周，她访问了荷兰王国的加勒比库拉索岛。当时，她告诉记者，她已经接种了中共疫苗加强针。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-44.jpg)
-参考链接：
-[Dutch former queen Beatrix tests positive for COVID-19](https://torontosun.com/news/world/dutch-former-queen-beatrix-tests-positive-for-covid-19?utm_source=ground.news&amp;utm_medium=referral)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
-
-总编：文特
-编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+[China Accelerating Space Presence ‘Twice the Rate’ of US, Official Warns](https://www.newsmax.com/newsfront/spaceforce-chinese-satellites-military/2021/12/05/id/1047373/)
 
  
 
