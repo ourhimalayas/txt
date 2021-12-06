@@ -2,27 +2,47 @@
 ---
 
 
-## 农村卫生厕所真的普及了吗？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1726132/)
+## Hcoin To the Moon 上线第4天位列8国iTunes摇滚音乐榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1726154/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/12/8-7.jpg)
-[图片来源](https://www.sohu.com/a/192037227_684308)
+12/06/2021 郭文贵先生的歌曲Hcoin To the Moon上线第4天位列8国iTunes摇滚音乐榜首
 
-中新经纬12月6日报道，中共国新办就农村人居环境整治提升五年行动有关情况举行发布会。中共中央农办副主任、国家乡村振兴局局长刘焕鑫介绍，截至2020年底，全国农村卫生厕所普及率达到68%以上，预计今年超过70%。2018年以来，累计改造农村户厕4000多万户，农村生活垃圾进行收运处理的自然村比例稳定保持在90%以上，农村生活污水治理率达到25.5%。
+* * *
 
-什么是农村卫生厕所？下水道问题解决了吗？
+[【PDF 下载】Monday-6-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-6-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-6-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-农村连基本的雨水污水排水都没很多的解决，农村生活污水治理率达到25.5%，那剩下的75%呢？中共自吹自擂的世界第二大经济强国，农村使用的厕所还有一半未解决，还处在原始状态。
+* * *
 
-信息来源：
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-6-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-6-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_2.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-6-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_3.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-6-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_4.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-6-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-6-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_6.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-6-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-6-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_8.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-6-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-6-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-6-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_11.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-6-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_12.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-6-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_13.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-6-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_14.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-6-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_15.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-6-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_16.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-6-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_17.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-6-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_18.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-6-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_19.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-6-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_20.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-6-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_21.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-6-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_22.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-6-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_23.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-6-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_24.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-6-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_25.jpg)
 
-[官方：2021年农村卫生厕所普及率将超70%](https://mbd.baidu.com/newspage/data/landingsuper?context=%7B%22nid%22%3A%22news_9090410552321429750%22%7D&amp;n_type=-1&amp;p_from=-1)
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.png)
+[【PDF 下载】Monday-6-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-6-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-6-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
