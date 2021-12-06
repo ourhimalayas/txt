@@ -2,10 +2,14 @@
 ---
 
 
-## 12/5/2021 文贵直播：电池、新能源、数字货币和太空技术给习自信；习决定了中共国的命运，俄罗斯对灭共很关键
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1724014/)
+## 中共用假民主批评美国真民主
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1724165/)
 
-秘密翻译组-北美组
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1206-1-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+
 
  
 
