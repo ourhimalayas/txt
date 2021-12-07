@@ -2,36 +2,26 @@
 ---
 
 
-## 新西兰泰晤士河市长 Sandra Goudie 因其反疫苗观点被投诉
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1729253/)
+## 日本解除法律限制，允许网购中共病毒检测试剂盒
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1729303/)
 
-作者：GingerDaddy
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-07-18.04.19.png)
-泰晤士市长 Sandra Goudie 由于其 Covid-19 疫苗观点，被提出了行为准则投诉，但市议会还没有对此进行调查，称此事已经非正式地解决了。
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/5-10.jpg)[图片来源](https://www.keguanjp.com/kgjp_keji/kgjp_kj_smkx/pt20200417000004.html)
+日本政府已基本决定最快自2022年年初起，解除法律限制允许餐饮店和文娱活动举办单位等在网上购买中共病毒抗原检测试剂盒。
 
-Goudie 不想打辉瑞疫苗，她想要 Novavax 疫苗，不过该疫苗尚未获准在新西兰使用。今年10月份，她和泰晤士议会其他成员通过了一项不记名动议，支持疫苗推行。几天后，市议员 Gary Gotlieb 提出了一项行为投诉，指控市长在科罗曼德举行的反疫苗会议上发表讲话。后来在11月11日，网上出现了一段12分钟的视频，内容是Goudie与澳大利亚反疫苗组织 Reignite Democracy Australia 的对话，11,000多 人观看。她谈到了疫苗强制、抗议和反疫苗团体。
+抗原检测试剂盒可在短时间内检测出是否感染新冠病毒。在日本，法律规定购买该试剂盒时需由药剂师面对面给予说明。基于这些因素，目前除了部分例外企业，大部分企业以及普通人无法通过网络进行购买。
 
-“意见一致人群的集会到处都是。到处是游行。成千上万的人参加这些游行，却几乎没有被媒体报道。人们都搞不明白我们的媒体怎么了。这真的让人难过。她说：“我从没想过我们会在有生之年碰到这种事，现在却碰到了。我们对一战和二战的印象至今还很深刻。”
+有意见指出，考虑到可能到来的第6波疫情以及逐步恢复的社会经济活动，应解禁网络购买。有鉴于此，政府已基本决定，最快自明年年初起，允许通过第三方防疫认证的餐饮店及文娱活动举办单位等在网上购买抗原检测试剂盒。
 
-然后，她将交通灯系统描述为“荒谬”。“我认为是时候打开边境了。让我们直面吧。”
+另一方面，考虑到内部有意见指出“为确保人们到医疗机构接受诊断，最好不允许普通人通过网络进行购买”，政府将继续推进相关讨论。
 
-Gotlieb说这段视频是“很可耻”。“这太糟糕了”，她说，“因为她对决议的至今，市议会和议员们都陷入了一个很糟糕的处境。”他说他是在 RNZ 转发视频之后，才知道了这个视频，他希望市议会重新考虑他对社区集会的行为准则投诉，并对视频内容进行检查。Gotlieb 不认可泰晤士区议会通讯小组向 RNZ 提供的声明，该声明称调查“被认为没有必要”，因为此事已“由各方解决”。“他们只是搁置了投诉，希望它会自己消失，但对我来说，它根本没有解决。而且她继续蔑视。这绝对是蔑视，也是对我们的嘲笑。”
+消息来源:
 
-今天将召开区议会全体大会。
+[日本将允许餐饮店等网购抗原检测试剂盒](https://www3.nhk.or.jp/nhkworld/zh/news/336821/)
 
-到目前为止，在该市市议会的各场所和办公室中，对疫苗通行证没有做强制要求。
-
-Sandra Goudie 不想就此事向 RNZ 发表评论。
-
-
-
-媒体链接：
-
-[https://www.nzherald.co.nz/nz/covid-19-delta-outbreak-thames-mayor-sandra-goudies-vaccine-views-sparks-conduct-complaint/JTG2GZW57WSBL2SDXDXBT6UYYQ/](https://www.nzherald.co.nz/nz/covid-19-delta-outbreak-thames-mayor-sandra-goudies-vaccine-views-sparks-conduct-complaint/JTG2GZW57WSBL2SDXDXBT6UYYQ/)
-
-审核校对：Barry Jack
-上传排版：F
-
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

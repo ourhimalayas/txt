@@ -2,22 +2,25 @@
 ---
 
 
-## 美民主党众议员：仅外交抵制北京冬奥会远远不够
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1729145/)
+## 《SCIENCE ADVANCES》论文揭示腺病毒疫苗（阿斯利康ChAdOx1疫苗、强生Ad26疫苗、康希诺Ad5疫苗）引发血栓机制
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1729171/)
 
-#### 翻译/撰稿：zzballack
+作者：Stephen(文文)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/B7B70DEC-28DF-4018-92BE-15B131183333.jpg)图1
+12月1日，美国与英国的科学家在新发表了题为《ChAdOx1 interacts with CAR and PF4 with implications for thrombosis with thrombocytopenia syndrome》的研究论文，该论文揭示了腺病毒疫苗导致导致血栓（及血小板减少症）的原因。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-13.jpg)图片来源：CNN
-据《布雷特巴特新闻网》（Breitbart News）12月6日报道，美国民主党众议员蒂姆·瑞安（Tim Ryan）本周一就拜登政府正式外交抵制北京冬奥会评论说，仅仅外交抵制是不够的，还需要做得更多来向中共追责。
+自腺病毒COVID-19疫苗上市以来，多个国家报告了接种阿斯利康ChAdOx1疫苗及强生Ad26疫苗后出现的一种罕见但严重的血栓伴血小板减少事件，引起了广泛关注。但奇怪的是，由中共军方陈薇少将开发的康希诺Ad5也为同类型疫苗，却从未报道过类似血栓不良反应。事实上，以上三种疫苗产生血栓的机制基本相同：都是由PF4（血小板因子4）抗体产生所导致。最近的病例报告显示，超90%的接种COVID-19腺病毒疫苗后出现血栓的患者PF4抗体检测呈阳性，这也印证了血栓形成与PF4抗体有关。
 
-白宫周一宣布将“外交抵制”北京冬奥会，美国将不派政府官员前往北京参加活动，但美国运动员仍将参加冬奥会。
+论文的研究者通过冷冻电镜技术获得了腺病毒疫苗的高分辨率结构，使用最先进的计算模拟证明了腺病毒疫苗颗粒与PF4之间的静电相互作用机制。另外，体外的表面等离子体共振技术也证实了PF4能够与腺病毒形成稳定的复合物，复该合物可以诱导PF4自身抗体的产生。特别需要注意的是中共开发的Ad5腺病毒疫苗与PF4的结合力强于阿斯利康ChAdOx1疫苗及强生Ad26疫苗（图1）！
 
-曾在今年8月呼吁国际奥委会完全禁止中共举办冬奥会的瑞安议员说：“中共一直以来都劣迹斑斑，罪行累累，从阻挠世卫组织调查中共病毒起源，到新疆地区的种族灭绝暴行和大规模人权侵犯行为，中共没有资格举办奥运会，奥运会应该在其他地方举行。”
+在这种潜在机制中，少量腺病毒疫苗通过肌肉注射引进入血液，然后可以形成疫苗/PF4复合物。这些复合物可能会刺激B细胞分化为浆细胞，分泌抗PF4抗体，从而诱发血栓的形成。
 
-美国官方的外交抵制只是做做样子，并不会对中共做出实质性的惩罚。不在病毒来源问题上向中共追责就是在向中共绥靖，或者换取其它方面的利益。国际奥委会也是被中共深度蓝金黄的国际机构，寄望其将奥运会移出中共国更是不可能。灭共的责任只能由新中国联邦和中国人自己来承担，不要幻想外部势力帮你灭共，哪怕中共已经得罪了全世界。
+参考文献：[https://www.science.org/doi/10.1126/sciadv.abl8213](https://www.science.org/doi/10.1126/sciadv.abl8213)
 
-新闻来源：[Democrat Congressman: Biden Letting U.S. Play Olympics ‘Does Not Go Far Enough’](https://www.breitbart.com/politics/2021/12/06/democrat-congressman-biden-letting-u-s-play-olympics-does-not-go-far-enough/)
+
+
+审核校对：Barry Jack
+上传排版：F
 
  
 
