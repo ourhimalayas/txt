@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/7/2021 3:22 PM (UTC)`
+
+12月7号：尊敬的战友们好……全球的新中国联邦人……要准备好，在所有的国家了解共产党官员的在海外各国的资产，财产，亲人朋友的详细的资料，和当地的各国的政府合作，把这些王八蛋的爹和娘和他们的私生子女，依法让他们的爹娘，兄弟姐妹们尝一下睡大街的滋味！让他们也感觉一下我们所有中国同胞在中国内部……所受到的待遇……行动行动行动，明天直播详聊！
+![img](https://media.gettr.com/group36/getter/2021/12/07/15/e4581448-32c8-5a03-6266-6bb4eb2b12ce/out.jpg)
+
+---
+
 `@miles 12/7/2021 2:37 PM (UTC)`
 
 12月7号：尊敬的战友们好，感谢全球亿万战友的关心，文贵的亲爹已经安顿下来啦……盘古的员工已经开始维权了……并很多人的救助……请大家放心！日久见人心，战友的牵挂和担心……和对我家人和我同事的爱……文贵定当以身相报，以灭共相还！莘县阳谷县搭县走着看！
@@ -142,13 +149,6 @@ Dec. 6th, 2021, after the CCP, filled with fear of our Whistleblowers’ Movemen
 `@miles 12/5/2021 11:41 PM (UTC)`
 
 12月5号：2017年一八年所有的爆料都在被共产党的疯狂的行动，证实一切唯真不破！ 打印图标<br/> 中国准备在大西洋建立第一个海军基地，令美国官员感到震惊 <br/><br/>https://www.zerohedge.com/geopolitical/china-poised-establish-1st-ever-naval-base-atlantic-alarming-us-officials
-
----
-
-`@miles 12/5/2021 11:10 PM (UTC)`
-
-12/5/2021 Miles Guo: Xi Jinping’s confidence and insanity come from Russia; Xi has personal grudges with the US and European governments and they look down upon each other; battery, new energy, digital currency, and space technology have given Xi confidence; Xi Jinping alone determines the fate of Communist China, and Russia is the key for taking down the CCP<br/><br/>12/5/2021 文贵直播：习近平的自信和疯狂源自俄罗斯；习跟美、英政府有个人恩怨，互相不待见；电池、新能源、数字货币和太空技术给习自信；习决定了中共国的命运，俄罗斯对灭共很关键<br/><br/>
-![img](https://media.gettr.com/group41/getter/2021/12/05/23/1632ba85-c5bd-e4f7-b7f0-5bbe6cdd5442/out.jpg)
 
 ---
 

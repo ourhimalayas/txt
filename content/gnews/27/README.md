@@ -2,20 +2,27 @@
 ---
 
 
-## 疫苗数据: 7岁儿童在接受中共病毒疫苗注射后脑出血
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1729701/)
+## 岸田首相が北京五輪への対応について 「国益の観点から自ら判断する」と表明
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1729752/)
 
-翻译：nstar
-![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Image-2021-12-06-at-8.55.33-PM-1.jpeg)图片来源：塔克卡尔森队
-一位名叫巴里·格温(Gewin)的男子的一篇 Facebook 帖子在网上疯传，他写下他的小侄女哈珀（Harper）在第一次注射中共病毒辉瑞疫苗后患有中风和脑出血。根据11月25日发布的帖子，他的侄女因危及生命而被送往重症监护室。
+作者： 東京櫻花団/夏目&山竹
+![](https://assets.gnews.org/wp-content/uploads/2021/12/4-10.jpg)
+[图片来源](https://news.cctv.com/2021/09/29/ARTIbOJTjuLH6XxPtOxCcWGi210929.shtml)
 
-格温发布了她的侄女在被送往 ICU 后第一次走路的视频。四天前，Gewin 从他的兄弟那里收到了另一个更新，他说 哈珀（Harper） 没有吃、喝、坐或走路，他们正在对她进行很多测试。
+日本時間12月7日、岸田文雄首相は、米国が来年冬、北京で開かれる予定の冬季五輪に外交団を派遣しない「外交的ボイコット」を発表したことについて、「我が国の対応ですが、オリンピックの意義ですとか、さらには我が国の外交にとっての意義等を総合的に勘案し、国益の観点から、自らが判断していきたいと思っています。これが我が国の基本的な姿勢であります」と述べた。
 
-昨天，Gewin 发布了另一条更新，并说 Harper 在被关在医院 9 天后现在在家。经证实，她是在住院前 7 天接受的辉瑞疫苗注射。
+これまで日本は米国に追従する立場をとってきたが、今日の岸田首相の発言はこれまでとは異なり、「ノーコメント」に等しい。
 
-信息来源：[https://teamtuckercarlson.com/news/7-year-old-child-allegedly-suffers-stroke-and-brain-hemorrhage-one-week-after-receiving-pfizer-shot/](https://teamtuckercarlson.com/news/7-year-old-child-allegedly-suffers-stroke-and-brain-hemorrhage-one-week-after-receiving-pfizer-shot/)
+日本が「国益」のために意思決定を行うのであれば、短期的な利益よりも、人権、自由や普遍的な価値観を優先すべきである。「国益」とは「経済的な利益だけではなく、日本が人権を尊重する国であることを国際社会に示すこと」である。それが日本の「国益」ではないかと思うのだ。
 
-校对发布：Shifter
+情報源：
+
+**[速報】岸田首相「国益の観点から自ら判断する」　北京五輪への対応について　米の”外交的ボイコット”発表を受け](https://news.yahoo.co.jp/articles/15a4547002155a50d58674c5211e0d886172bc1b)**
+
+校正：東京桜花団/闻雨🍀
+アップロード：東京桜花団/ yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
+
 
  
 

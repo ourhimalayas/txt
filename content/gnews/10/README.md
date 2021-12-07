@@ -2,30 +2,60 @@
 ---
 
 
-## 参众两院共和党空前团结，全力反对拜登强制疫苗规定
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1730014/)
+## 奥密克戎病毒产生4个为什么?
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1730110/)
 
-**【雅典娜快讯】，紧贴时代脉搏**
-**整理报道：文泓**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2021.12.7-9.jpg)图片来源：OaklandNews
-12月6日，华盛顿消息，每位参议院共和党人和几乎所有众议院共和党人都联合起来反对乔·拜登总统的强制疫苗规定，该政策要求大公司确保其员工接种新冠疫苗或每周接受（核酸）检测。
+作者：香草山农场—祈望明天会更好
 
-有超过200名众议院共和党人共同发起了一项决议，旨在从根本上阻止拜登总统的行政命令，目前该命令已被法院束之高阁。经过数月的两党激辩，这项推翻强制疫苗政策的努力，正在让共和党核心小组的各个分支部门团结起来。
 
-自国会大厦骚乱以来，共和党人一直互相指责，以致11名共和党人投票支持对前总统唐纳德·川普的弹劾，然后又有13名众议院共和党人投票支持两党的基础设施法案（民主党主张）。当同为共和党的众议员南希·梅斯和玛乔丽·泰勒·格林议员在推特上和媒体上打口水仗时，共和党核心小组又“沸腾”了。
 
-然而，这次在共和党会议的213名成员中，有206人共同发起了这项立法。被赶出众议院共和党会议主席的莉兹·切尼议员和她的继任者——纽约州的伊利斯·斯特凡尼克议员都是共同提案人；同样，格林和梅斯议员也是共同提案人；众议员亚当·金辛格也是共同提案人，他曾因批评川普先生而成为不受欢迎的人。
 
-新闻链接：[Republicans go all-in against vaccine mandates (msn.com)](https://www.msn.com/en-gb/news/world/republicans-go-all-in-against-vaccine-mandates/ar-AARx6ou?ocid=msedgdhp&amp;pc=U531)
 
-发布：去中心化Math
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-7.jpg)
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
+
+
+2021年12月3日，郭先生在大直播中说到：对奥密克戎爆料的准确度百分之百是根据情报的来。郭先生在大直播中提问奥密克戎新病毒产生的四个为什么？
+![](https://assets.gnews.org/wp-content/uploads/2021/12/063322.png)
+为什么这个时候，联合国、世卫组织都异口同声地为共产党掩盖？
+
+为什么奥密克戎致死率没有那么高？
+
+为什么此时的王毅出访非洲？杨洁篪被消失？
+
+为什么孙立军被抓？孟建柱全家被抄家？王岐山所有人全被干掉？
+
+这意味着什么？郭先生继续解说，这里面是有计划的。这跟下一步对台湾的计划是有绝对关系的。郭先生再次强调奥密克戎的出现跟台湾是有绝对关系的。奥密克戎如果可以让疫苗消失或弱化，共产党会和联合国、世卫组织达成交易。这种达成的交易牺牲的就是台湾，届时世界将会出现另一种极端的现象。
+
+这四个为什么，除了可以理解其一但无法全部理解。这就是郭先生的迷人之处，这同时也引领大家提升自省能力，分析、判辨事件的能力。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-2.png)
+
+编辑/校正/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-8.jpg)
+
+
+
+
 
  
 

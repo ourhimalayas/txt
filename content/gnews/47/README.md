@@ -2,27 +2,34 @@
 ---
 
 
-## 中共在西非建立军事基地的计划彰显其欲霸全球的野心
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1729085/)
+## 欧盟总部爆发反对强制疫苗游行示威
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1728504/)
 
-撰稿：Jenny
-![](https://assets.gnews.org/wp-content/uploads/2021/12/IMG_2290.jpg)截图自9News
-据《华尔街日报》报道说，北京正在游说赤道几内亚政府在这个小国建立一个 “永久性军事存在”。如果进展顺利，该设施将使中国在大西洋上拥有第一个海军基地。这给美国政府拉响了警报。澳洲舆论也深表关注。
+作者：东京樱花团—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据外媒12月5日报道，约有8千民众在比利时布鲁塞尔朝着欧盟总部游行，抗议政府对民众进行疫苗强制措施。游行群众高喊“自由”口号，并燃放烟火以示抗议。
 
-中国已经在赤道几内亚的港口城市巴塔建造了一个商业深水设施。有关中国在西非的潜在海军基地的报道引发了华盛顿的关注。这将使中国军舰能够在美国东海岸对面的一个安全港口驻扎，在那里它们可以重新武装并进行改装。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide3-4.jpeg)
 
-今年早些时候，一位美国高级将领警告说，北京正在寻求在非洲西海岸建立一个能够容纳潜艇或航空母舰的大型海军港口。美国在非洲的最高指挥官斯蒂芬-汤森将军说，中国已经与从毛里塔尼亚到纳米比亚南部的国家接触，打算建立一个海军设施。”他们正在寻找一个可以重新武装和修理军舰的地方。这在冲突中会变得很有军事价值，”汤森将军说。”他们朝着在吉布提建立这种设施的方向走了很远。现在他们把目光投向大西洋沿岸，想在那里建立这样一个基地。”
+抗议群众在铁丝网路障和防暴警察的阻拦下，被挡在欧盟做总部的环形交叉口外。双方爆发冲突，比利时警方向民众使用了水柱和催泪瓦斯。据悉，此次抗议活动造成2名警察，和4名抗议人士受伤送医治疗，有20人被逮捕。
 
-当初，中共在南中国海争议的地方修建人工岛礁，大家看到的是它试图控制数万亿美元的全球贸易的战略水道，殊不知另一个更加邪恶的果子是他们还收获了建岛技术和经验，可以使这种计划实施起来毫不费力。
+最近数周，随着政府对民众加强疫苗强制措施，好几个欧洲国家都在抗议示威。
 
-中共已经开始对解放军海军进行大规模扩张。它计划在九年内将舰队从目前的355艘船和潜艇扩大到460艘。说白了中共正在做的就是推行新的殖民主义，一带一路横扫欧亚和非洲那些贫穷却有战略意义的国家和港口。它所关心的从来不是民生与环境，只有金钱以及实现统领全球的野心。
+参考链接：[歐盟總部前示威 比利時反防疫抗爭再爆衝突](https://gnews.org/wp-admin/post-new.php)
 
-[新闻参考链接：](https://www.9news.com.au/world/china-military-expansion-usa-concerned-at-chinese-plan-to-build-naval-base-in-west-africa/44094ff6-83e2-43ff-b342-6cf6ffdd0179)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-2.jpg)
+总编：DM
+编辑：DM
+校正/发稿：谐趣园
 
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

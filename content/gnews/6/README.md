@@ -2,37 +2,27 @@
 ---
 
 
-## 篮球明星本•麦德根在注射辉瑞疫苗后被诊断出心包炎
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1730094/)
+## 日本通过检测居民污水掌握疫情
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1730279/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2021.12.7-10.png)图片来源：Glenn Hunt/AAP-news.com.au
-翻译：小鱼儿
-编辑：Mttfly
+撰稿:东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/6-13.jpg)
+[图片源](https://www.nhk.or.jp/politics/articles/lastweek/37246.html)
 
-前澳大利亚篮球明星本•麦德根说，他在接种辉瑞Covid-19疫苗后因罕见的炎症性心脏病而住院治疗。
+日本盐野义制药7日宣布，通过检测污水中的中共病毒来监测疫情的服务，可以检测包括奥密克戎毒株在内的突变株。从今年6月起，全国各地已开通服务，通过对污水检查，可以及早掌握突变株流行情况，用于制定相应对策。
 
-去年从职业篮球退役的前NBL主要得分手马德根，周日在推特上描述了他的经历。该帖子后来被分享了近15,000次。
+该方法是与北海道大学共同开发的，用于分析来自中共病毒感染者粪便形成的污水中的病毒。除了新的突变Omicron菌株外，该团队还能检测到现有的alpha和delta菌株。
 
-36岁的马德根在推特上写道：“周三晚上，在打完辉瑞公司的第二针后，在急诊室结束了治疗。”
+日本盐野义制药是一个有中资参股背景的公司，但愿这项检测服务的数据不会被恶意利用，成为助推强打疫苗与所生产的口服液的帮凶。
 
-医生说：“被诊断为心包炎，现在这种情况在打完辉瑞疫苗后很常见，特别是对十几岁的男孩和年轻男性。”
+信息源：
 
-麦德根是科林伍德后卫杰克•麦德根和欧普斯得分后卫泰斯•麦德根的兄弟。在2012-13赛季的NBL联赛中，麦德根在悉尼国王队效力时，平均每场比赛得到17.9分，成为得分王。这位193厘米的投篮后卫被选入全NBL第一队，并被评为该赛季的最佳进步球员。
+[下水中のオミクロン株を検出へ　塩野義、早期把握に貢献](https://news.yahoo.co.jp/articles/03d9818b2cf02f49d0d47c39c44a042edda4d46b)
 
-从2015年起为比利时、立陶宛和德国的欧洲球队打球，他是德甲Crailsheim Merlins队的主要得分手和篮板手。
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
 
-马德根与东南墨尔本凤凰队签订了2019-20赛季的NBL合同，但为了有更多时间与家人在一起在去年7月宣布退役。
-
-**原文链接：**[NBL star Ben Madgen diagnosed with pericarditis after Pfizer vaccine](https://www.news.com.au/sport/basketball/nbl-star-ben-madgen-diagnosed-with-pericarditis-after-pfizer-vaccine/news-story/ba7e83526a7a064ba310fb5861f5f887)
-
-**发布：去中心化Math**
-**
-更多信息，请关注：
-**[澳大利亚墨尔本阿西娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本阿西娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本阿西娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本阿西娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本阿西娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

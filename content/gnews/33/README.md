@@ -2,22 +2,18 @@
 ---
 
 
-## 病毒数据： 研究表明体内维生素D水平高于50纳克/毫升时，中共病毒发病率几乎为零
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1729620/)
+## 疫苗数据: 7岁儿童在接受中共病毒疫苗注射后脑出血
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1729701/)
 
 翻译：nstar
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-07-at-7.53.50-AM.png)图片来源：JJ Medicine/Youtube
-德国最近的一项研究发现，维生素D水平与中共病毒感染的死亡率之间存在线性关系，对于维生素D水平高于50纳克/毫升的人来说，基本上是零发病率。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Image-2021-12-06-at-8.55.33-PM-1.jpeg)图片来源：塔克卡尔森队
+一位名叫巴里·格温(Gewin)的男子的一篇 Facebook 帖子在网上疯传，他写下他的小侄女哈珀（Harper）在第一次注射中共病毒辉瑞疫苗后患有中风和脑出血。根据11月25日发布的帖子，他的侄女因危及生命而被送往重症监护室。
 
-“在30纳克/毫升的阈值水平上，死亡率大大降低了。此外，我们的分析显示，综合数据集的相关性在大约50纳克/毫升时与轴线相交，这表明血液中如果保持这一水平的维生素D3可能会防止任何过高的死亡率。”
+格温发布了她的侄女在被送往 ICU 后第一次走路的视频。四天前，Gewin 从他的兄弟那里收到了另一个更新，他说 哈珀（Harper） 没有吃、喝、坐或走路，他们正在对她进行很多测试。
 
-研究已经表明，缺乏维生素D的人死于COVID的可能性要大14倍。 对包含11901名参与者的23项已发表的研究进行的荟萃分析发现，缺乏维生素D的人感染SARS-CoV-2的可能性是不缺乏的人的3.3倍。
+昨天，Gewin 发布了另一条更新，并说 Harper 在被关在医院 9 天后现在在家。经证实，她是在住院前 7 天接受的辉瑞疫苗注射。
 
-现实情况是，大多数人的水平低于30，许多人接近于零，特别是在老年人群中。 研究显示封锁、口罩和疫苗与预防和治疗中共病毒感染的结果之间的相关性为零，现在有142项研究证明了更高的维生素D水平与 COVID患者更好的结果之间几乎完美的相关性。
-
-在这一努力进行了20个月之后，还没有发起全国性的运动, 由初级保健医生来测试和补充维生素 D 水平, 以预防和治疗中共病毒感染，这实在是太不可思议了。 正如作者所解释的，中共病毒感染死亡的主要原因是 “细胞因子风暴”，当身体的免疫系统释放过多的有毒细胞因子作为对病毒的炎症反应的一部分。 维生素D是这些细胞的关键调节器，而D的数量不足几乎是细胞因子风暴更大风险的同义词。 在许多方面，细胞因子风暴实际上是维生素D缺乏的结果。
-
-原文链接：**[Horowitz: Studies show an aggressive vitamin D campaign could have prevented nearly all COVID deaths](Studies%20show%20an%20aggressive%20vitamin%20D%20campaign%20could%20have%20prevented%20nearly%20all%20COVID%20deaths)**
+信息来源：[https://teamtuckercarlson.com/news/7-year-old-child-allegedly-suffers-stroke-and-brain-hemorrhage-one-week-after-receiving-pfizer-shot/](https://teamtuckercarlson.com/news/7-year-old-child-allegedly-suffers-stroke-and-brain-hemorrhage-one-week-after-receiving-pfizer-shot/)
 
 校对发布：Shifter
 
