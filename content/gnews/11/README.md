@@ -2,27 +2,24 @@
 ---
 
 
-## 新西兰 1400 名学校教师拒绝接种 Covid-19
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1728196/)
+## 克里斯库默说CNN老板知道他涉及安徳鲁库默丑闻
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1728318/)
 
-编译：GingerDaddy
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-07-10.10.42.png)
-教育部的数据显示，有 2.4% 的学校教师（约 1400 人）拒绝接种 Covid 疫苗。
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-10.png)
+图片来源： http://www.hkstv.tv/
 
-官方数据显示，去年有 62,600 名教师在公立学校工作，另外还有 9000 名代课教师。从目前的接种率可以计算出，一共有1400 多名未接种疫苗的教师。教育部说这个不是最终的数据。
+零对冲网12月6日报道，前CNN主播克里斯库默说，传媒执行长杰夫·扎克本来就知道他为了保护他哥哥，时任纽约州州长安徳鲁·库默所做的事情。
 
-目前，Tai Tokerau（即Northland，北地） 报告的疫苗接种率最低，为 93%，表明该地区约有 100 名教师拒绝注射。
+库默的发言人周日告诉华尔街日报说克里斯·库默和扎克有着“广为人知的密切关系，经常互通有无，包括库默先生支持他哥哥的详细情况。亲近库默先生的其他都可以作证。”
 
-丰盛湾和怀亚里基的学校报告教师的疫苗接种率为 96%，而尼尔森、马尔堡、西海岸和塔拉纳基、马纳瓦图、旺格努伊的疫苗接种率略低于 97%。惠灵顿的注册教师疫苗接种率最高，为 98.3%，其次是坎特伯雷/查塔姆群岛、奥克兰和奥塔哥/南地，教师的疫苗接种率均至少为 98%。
+库默先生随着一些材料的披露，比他所承认的希望帮他哥哥的性骚扰案的程度更深，周六被CNN辞退，这些材料是由纽卡纽约检查官莱蒂蒂娅·詹姆斯所披露，她早前称至少有11名妇女指控他性骚扰。安徳鲁·库默在今年早些时候下台，但他坚称这些指控是假的。
 
-该部表示，由于疫苗的强制政策，很少有学校需要人员配备方面的支持。 自 11 月 16 日起，未接种疫苗的工作人员被禁止进入学校和早教中心。所有与儿童接触的工作人员必须在 2022 年 1 月 1 日前全面接种疫苗。
+周日，CNN告诉华尔街日报说所谓的克里斯·库默与扎克关系很铁的传言是不正确的。CNN说库默的很多说辞明显是错的，但并没有指出哪些是错的，由于库默违反了CNN的标准和操作过程以及他缺乏坦城，所以造成了他不能再留在CNN的原因。
 
-新闻链接： [https://www.rnz.co.nz/news/national/457067/about-1400-school-teachers-refuse-covid-19-vaccination](https://www.rnz.co.nz/news/national/457067/about-1400-school-teachers-refuse-covid-19-vaccination)
+##### **新闻来源： **[Chris Cuomo Claims CNN’s Jeff Zucker Knew About His Involvement With Andrew Cuomo Scandal](https://www.zerohedge.com/political/chris-cuomo-claims-cnns-jeff-zucker-knew-about-his-involvement-andrew-cuomo-scandal)
 
-
-
-审核校对：Barry Jack
-上传排版：F
+# ** **
 
  
 

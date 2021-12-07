@@ -2,35 +2,32 @@
 ---
 
 
-## 最新｜社媒消息:美国宣布外交抵制北京冬奥会
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1728088/)
+## GTV新闻访谈简报|2021年12月6日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1728255/)
 
-**By:秘翻新闻**
+作者：香草山翻译部
 
-***2021-12-7***
-![](https://assets.gnews.org/wp-content/uploads/2021/12/w1024-p16x9-2021-12-06T024336Z_1736378630_RC2Q8R91D8X6_RTRMADP_3_OLYMPICS-2022-BIDEN.jpeg)图片来源于网络
-据路透社12月6日报道，美国政府周一宣布，**由于”新疆正在发生的种族灭绝和反人类罪行”，美国将不派任何外交代表参加2022年北京冬季奥运会和残奥会。**此前中共威胁，若美国一意孤行炒作“外交抵制”北京冬奥会，中方必将“坚决反制”。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-109-1280x172-1-2-1.jpg)
 
-美国总统拜登上个月表示，他正在考虑进行外交抵制，因为包括众议院议长南希·佩洛西在内的民主党和共和党立法者都主张进行外交抵制，以抗议中共对新疆少数民族穆斯林的种族灭绝行为
 
-白宫发言人珍·莎琪（Jen Psaki）在每日新闻发布会上说：”鉴于中华人民共和国在新疆正在进行的种族灭绝和反人类罪，以及其他侵犯人权的行为，拜登政府将不派任何外交或官方代表参加北京2022年冬季奥运会和残奥会。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1206text-SC.png)
+校对：Stay文苑
 
-中共驻华盛顿大使馆没有立即回应评论请求。
+编辑：Stay文苑
 
-珍·莎琪表示，几个月来，美国国会的一些议员一直鼓励进行外交抵制冬奥会，但这不会影响美国运动员的参加。
+发稿：Stay文苑
 
-中共此前威胁说，如果外交抵制行动继续进行，它将对拜登政府采取 “坚决的反制”。
+视频参看：[12.6  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61aeb8bebbd75f62e531446b)
 
-中共外交部发言人赵立坚在周一的新闻发布会上，将美国政府的外交抵制称为“炒作”，并要求美方停止所谓的炒作，以免影响中美在重要领域的对话与合作。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-69.jpeg)
 
-秘翻新闻主编宝宝编译报道
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-*校对/发布:星星*
-
-* * *
-
-**欢迎广大战友加入 【秘密翻译组-即时新闻播报组】**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/IMAGE-2021-11-29-195110.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
