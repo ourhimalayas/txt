@@ -2,30 +2,24 @@
 ---
 
 
-## 首届台斯经济合作咨商会今日在台举行
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1728550/)
+## 北京强制体制内人员接种中共加强针 要求达到100%
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1728602/)
 
-作者：纽约香草山医疗部 – 云豹
+作者：香草山农场 – 一颗螺丝钉
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间12月6日，据消息人士爆料，在北京某区的疫苗接种内部会上，相关领导要求该辖区内的全部党政群机关、企事业单位强制本单位人员接种中共病毒加强针，并要求接种率达到100%。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/0-1.jpg)
 
+该会议主要内容如下： 为实现加强免疫接种“应接尽接”的目标，原则上，在12月10日之前，全区的党政群机关企事业单位人员，以及下属单位、编外用工等人员均要完成加强针接种率100%的目标，同时，本单位离退休干部也要达到不低于50%的加强免疫率。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+最迟截止至12月底前，各单位要全面完成加强免疫接种率100%的目标。届时若未能完成目标，各单位的一把手负责人将直接对此负责。
 
+墙内网友指出目前，已有北京某三甲医院在院内明确提出，所有医护人员必须全部接种中共病毒加强针，否则将被长期停职。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-当地时间12月6日下午，斯洛伐克官方代表团成员43人，参加在台湾举办的第一届台斯经济合作咨商会议。斯洛伐克经济部政务次长佳雷克致词时，特别使用中文说出“斯洛伐克支持台湾”，来表达两国间的情谊。
-
-此次会议斯洛伐克派出政府官员、研究单位、产业及学术界代表共43人与会。 双方将就贸易、技术、教育、旅游等领域研讨深化合作的空间。 希望能通过商业投资论坛、企业间商业洽谈会等方式，来加强双方的经济合作。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-58.jpg)
-台湾目前在斯洛伐克的投资有5亿多欧元，在斯国创造了约3000个就业机会。 台湾企业在今年10月出团考察斯国的投资环境后，表达出在斯洛伐克扩大投资的高度意愿。 预计在此次会议后，双方会签署更多的合作计划。
-
-参考链接：
-[台斯經合諮商會 佳雷克中文致詞：斯洛伐克支持台灣](https://www.cna.com.tw/news/firstnews/202112060167.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
+**校对/发稿：童谣**
 
 **更多资讯，更多关注**
 
@@ -38,13 +32,7 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
