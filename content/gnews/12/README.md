@@ -2,34 +2,44 @@
 ---
 
 
-## 中共国誓言对美国的奥运抵制采取反制措施
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1728516/)
+## 美防长：中共疑似演练侵台，美将助台保持自卫武力
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1728528/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2021.12.7-5中共国誓言对美国.png)图片来源：华尔街日报中文网
-翻译：文扬
-编辑：Mttfly
+作者：纽约香草山医疗部 – 云豹
 
-中共国外交部发言人赵立坚在周一的新闻发布会上说，抵制北京冬奥会的呼吁应该停止。并补充道，美国政客这样做可能会“影响中美两国在重要领域的对话和合作”。
 
-李健补充说，如果华盛顿坚持固执己见，北京将坚决采取反制措施。同时将抵制的呼吁描述为“哗众取宠”。拜登政府尚未正式宣布任何举措。不过，据美国有线电视新闻网周日的报道，预计本周可能会宣布。
 
-上个月，拜登表示他正在考虑对2022北京冬奥会进行外交抵制，以抗议中共国糟糕的人权记录。包括华盛顿所说的中共对维吾尔人的“种族灭绝”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-包括美国和英国在内的西方国家指责中共国在新疆建立集中营，据说这些集中营实行绝育和奴役政策。中共国多次否认这些指控，称这些集中营为职业教育和培训中心。
 
-白宫没有对 CNN 的报道发表评论。潜在的抵制将阻止美国官员参加奥运会，但不会阻止美国运动员参加比赛。据报道，英国首相约翰逊（Boris Johnson）也在考虑进行类似的抵制。
 
-**原文链接：**[China vows‘countermeasures’to US Olympic boycott](https://www.rt.com/news/542311-china-countermeasures-us-olympic-boycott/)
+当地时间12月4日，美国国防部长奥斯汀在参加里根国防论坛时表示，中共最近在台湾附近进行的军事活动，疑似在对攻台进行预演。他表态，美国将依照一中政策及台湾关系法，继续支持台湾加强自我防卫的能力，以确保有能力来抵抗任何可能危及台湾人民安全的军事武力侵犯。 奥斯汀还表示，印太地区是一个充满机会与挑战的区域，最大的威胁，是正在崛起且不断强化独断专制力量的中共。他接着说，美国在太平洋区域拥有实力及掌控权，对美国来说，中共也不是十尺高的巨人。虽然我们正面对巨大的威胁，但当我们与盟友团结在一起时，我们就会更强大。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.2-3.jpg)
+参考链接：
+[Lloyd Austin says increased China activity near Taiwan ‘looks like rehearsal’](https://www.foxnews.com/politics/lloyd-austin-says-increased-china-activity-near-taiwan-looks-like-rehearsal)
 
-**发布：去中心化Math**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-**
-****更多信息，请关注：
-**[澳大利亚墨尔本阿西娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本阿西娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本阿西娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本阿西娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本阿西娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+总编/编辑：文特
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

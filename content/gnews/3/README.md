@@ -2,25 +2,41 @@
 ---
 
 
-## 台湾官渡医院前院长：疫苗生产商出资故意抹黑伊维菌素
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1728626/)
+## 纽约加速强推疫苗，小学门口驻扎流动疫苗巴士
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1728676/)
 
-By：喜国公民
-视频来自网络
-台湾官渡医院前院长陈昌明最近接受采访说，疫苗生产厂商是故意抹黑伊维菌素做为治疗新冠病毒的有效药物背后的黑手，目的是推广新冠疫苗。
+作者：纽约香草山健身部 – Jack Li文阳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+近日，记者在纽约唐人街看到，两辆流动疫苗巴士驻扎在纽约唐人街地标孔子大厦后面的一所小学门口。
 
-陈院长说，政府之所以反对用伊维菌素治疗新冠病毒，是因为怕人们不打疫苗。如果每个星期吃一粒伊维菌素，就不会感染新冠病毒，人们为什么还去打疫苗？
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-314.png)
 
-因为人们对疫苗后遗症产生的后果还不清楚。不知道是否三年五年以后疫苗的后遗症才显现出来。
+疫苗工作人员在小学的门口撑起了帐篷，里面摆放了十数张座椅。布告牌上显示这是纽约疫苗接种点，还有辉瑞和5～11岁的字样。可以看出，这两辆疫苗巴士针对的是这所学校里的小学生。
 
-事实上，是疫苗生产厂商出资让医生来进行关于伊维菌素治疗新冠病毒的临床试验，故意说伊维菌素治疗新冠无效，然后将结果发表在著名期刊上面。美国政府就采用这个研究结果，对伊维菌素进行打压。
+![](https://cdn.discordapp.com/attachments/821934164823244803/917582767414456370/2.jpg)
 
-这凸显了疫苗制造商和政府的黑暗。表明有很大的政治力量跟利益集团在勾结。
+12月6日上午，纽约市长白思豪(Bill de Blasio)宣布扩大现有的疫苗强制授权，将5～11岁的儿童也纳入了接种疫苗的范围。
 
-尽管伊维菌素受到各国政府的打压，然而，[伊维菌素在过去几个月的销售显着增加](https://www.tga.gov.au/scheduling-decision-final/notice-amendment-current-poisons-standard-under-paragraph-52d2a-therapeutic-goods-act-1989-0)。
+希望家长能顶住诱惑和压力，拒绝毒针，保护好自己的孩子。
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-2.jpg)
+![](https://cdn.discordapp.com/attachments/821934164823244803/917582554746470420/1.jpg)
+![](https://cdn.discordapp.com/attachments/821934164823244803/917582768135868456/3.jpg)![](https://cdn.discordapp.com/attachments/821934164823244803/917582843335573504/5.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+
+**校对/发稿：童谣**
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

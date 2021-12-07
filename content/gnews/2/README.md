@@ -2,25 +2,19 @@
 ---
 
 
-## 纽约加速强推疫苗，小学门口驻扎流动疫苗巴士
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1728676/)
+## 蓬佩奥盖特呼吁拜登要站出来反对中共
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1728694/)
 
 作者：纽约香草山健身部 – Jack Li文阳
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-近日，记者在纽约唐人街看到，两辆流动疫苗巴士驻扎在纽约唐人街地标孔子大厦后面的一所小学门口。
+12月6日，白宫发言人普萨基在例行记者会上宣布，美国政府将对2022年北京冬奥会和残奥会实行外交抵制。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-314.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/0.模版images-2.jpg)
 
-疫苗工作人员在小学的门口撑起了帐篷，里面摆放了十数张座椅。布告牌上显示这是纽约疫苗接种点，还有辉瑞和5～11岁的字样。可以看出，这两辆疫苗巴士针对的是这所学校里的小学生。
+同日，前国务卿蓬佩奥先生就此事在盖特上发文：对北京冬奥会的外交抵制是不够的，中共根本不在乎外交抵制。最终，他们仍然能召开冬奥会，并接待世界各国运动员。拜登需要站出来反对中共。
 
-![](https://cdn.discordapp.com/attachments/821934164823244803/917582767414456370/2.jpg)
+消息链接：[https://gettr.com/post/pix4kr12b2](https://gettr.com/post/pix4kr12b2)
 
-12月6日上午，纽约市长白思豪(Bill de Blasio)宣布扩大现有的疫苗强制授权，将5～11岁的儿童也纳入了接种疫苗的范围。
-
-希望家长能顶住诱惑和压力，拒绝毒针，保护好自己的孩子。
-
-![](https://cdn.discordapp.com/attachments/821934164823244803/917582554746470420/1.jpg)
-![](https://cdn.discordapp.com/attachments/821934164823244803/917582768135868456/3.jpg)![](https://cdn.discordapp.com/attachments/821934164823244803/917582843335573504/5.jpg)
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
 **校对/发稿：童谣**
