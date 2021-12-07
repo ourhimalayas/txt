@@ -2,48 +2,185 @@
 ---
 
 
-## 美国宣布抵制北京冬奥后尚未有“大国”跟进
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1730713/)
+## 这次的放毒应该是广东帮干的，传染率高但致残率致死率不高
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1730748/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+[https://gtv.org/video/id=61af2bd087fa7e74c92cab16](https://gtv.org/video/id=61af2bd087fa7e74c92cab16)
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/12/B-2.jpg)justjared.com
-白宫官宣外交抵制北京冬奥会过了24小时【1】，还没有看到“大国”的跟进，难道是笔者有些着急？有一点可以肯定，中共不甘罢休，正在全力以赴，垂死挣扎，试图找到某个突破口。
+一星期前
+Hace una semana atrás
 
-看看英、法、加的反应。
+我们的欧洲科学家说
+Nuestro científico europeo dijo
 
-路透社伦敦12月7日电 英国首相鲍里斯·约翰逊（Boris Johnson）的发言人周二（12月7日）表示，在美国宣布抵制北京冬奥会后，英国尚未就政府代表是否参加北京冬奥会做出决定。
+如果这次的病毒有两个特征性
+Si el virus de esta vez tiene dos características
 
-他对记者说：“英国政府（HMG，Her Majesty’s Government）出席北京奥运会的决定尚未作出，我们将在适当时候阐明我们的立场。”【2】
+这次人类真的是完了
+Entonces la raza humana se acabará esta vez
 
-路透社巴黎12月7日电 法国总统周二（12月7日）表示，法国注意到美国宣布以外交手段抵制2022年北京冬奥会，并表示将在欧洲层面就此问题作出协调反应。
+第一个特征
+La primera característica
 
-声明说：“我们注意到美国人的决定，当我们对人权感到担忧时，我们会对中共人说，我们去年3月对新疆采取了制裁，我们将在欧洲层面进行协调。”【3】
+这次如果共产党要放病毒的话
+Si esta vez el PCCh va a soltar el virus
 
-MSN发表文章，报道了加拿大的态度，“美国将对北京奥运会进行‘外交抵制’，加拿大也在考虑类似的问题”。文章说，同一天（12月6日）晚些时候，当被问及加拿大是否会效仿时，特鲁多（Trudeau）含糊其辞，但他明确表示，他也将寻找一种方式来谴责中共国，而不迫使加拿大运动员牺牲期待已久的获得奥运奖牌的机会。
+放出来这个传染率、致死率高
+Y su tasa de letalidad y contagio es alta
 
-加拿大体育部长帕斯卡尔圣·翁（Pascale St Onge）周一（12月6日）面对提问也做了同样的回答。
+染上就死
+Quiere decir al contagiarse se muere
 
-“到目前为止，还没有做出决定。” “当然，我们非常关注中共国的侵犯人权行为，我们不会轻易作出决定，一旦作出决定，我们将立即与你们沟通。” 【4】
+或者是说就是所谓的天花病毒
+O como el supuesto virus de la viruela
 
-无独有偶，疑似通共、肯定亲共的加拿大驻华大使多米尼克·巴顿（Dominic Barton）昨晚（12月6日）辞职【5】，相信与中共的奥运博弈有关。
+传染率高、伤残率高 但不死
+Alta tasa de contagio y discapacidad, pero no muere
 
-认识中共的邪恶需要有个过程，响应美国的抵制同样也不会是一帆风顺，尤其是被中共握住把柄的要员，此时不为主子拼死一搏，主子会很生气，后果会很严重；再者通过这事，又可以增加个与中共勾兑的砝码。
+这两种病毒对人类都是巨大的威胁
+Estos dos tipos de virus es una gran amenaza para la humanidad
 
-笔者相信，但正义的力量肯定会占上风，西方主要国家肯定会进行抵制，邪共你就别妄想了！刚才文贵先生盖特视频里已经透露了相关信息，西方各国都会跟上美国的步伐。
+人类上一堆残废
+Si en la raza humana hay un montón de discapacitados
 
-有关链接：
+而且这种残疾
+Y este tipo de discapacidad
 
-【1】[https://gnews.org/zh-hans/1727819/](https://gnews.org/zh-hans/1727819/)
+根本全世界医疗条件救不了的
+Con las condiciones médicas que hay en todo el mundo no es curable
 
-【2】[https://www.reuters.com/lifestyle/sports/no-decision-yet-beijing-olympics-says-uk-pms-spokesman-2021-12-07/](https://www.reuters.com/lifestyle/sports/no-decision-yet-beijing-olympics-says-uk-pms-spokesman-2021-12-07/)
+像天花一样
+Así como la viruela
 
-【3】[https://www.reuters.com/lifestyle/sports/france-says-there-will-be-coordination-eu-level-beijing-olympics-2021-12-07/](https://www.reuters.com/lifestyle/sports/france-says-there-will-be-coordination-eu-level-beijing-olympics-2021-12-07/)
+再一个就是致命率高
+Lo otro el alto índice de letalidad
 
-【4】[https://www.msn.com/en-ca/news/canada/u-s-to-mount-diplomatic-boycott-of-beijing-olympics-canada-contemplates-similar/ar-AARx1a5?ocid=msedgntp](https://www.msn.com/en-ca/news/canada/u-s-to-mount-diplomatic-boycott-of-beijing-olympics-canada-contemplates-similar/ar-AARx1a5?ocid=msedgntp)
+得了就死
+Al contagiarse muere
 
-【5】[https://www.msn.com/en-ca/news/other/canada-s-ambassador-to-china-steps-down-as-ottawa-faces-pressure-from-biden-administration/ar-AARxbrb?ocid=msedgntp](https://www.msn.com/en-ca/news/other/canada-s-ambassador-to-china-steps-down-as-ottawa-faces-pressure-from-biden-administration/ar-AARxbrb?ocid=msedgntp)
+他说这个世界也防不了
+Él dijo que el mundo no podrá evitar esto
+
+这个出来以后
+Después de que esto salga
+
+这个 Omicron 出来以后
+Después de que aparezca el “Omicron”
+
+他说真是天意
+Él dijo que esto es de verdad voluntad del Cielo
+
+这次的病毒看来
+Al parecer el virus de esta vez
+
+欧洲的科学家说
+Los científicos europeos dijeron
+
+这回放毒应该是
+Los que soltaron el virus de esta vez debe ser
+
+广东帮干的
+Hecho por la banda de Guangdong
+
+广东这帮人干的 不是北方人干的
+La gente de Guangdong lo hizo, no los norteños
+
+北方人下手会比较狠
+Los norteños son más implacables
+
+这个病毒放完以后
+Luego de soltar este virus
+
+很有可能会帮助人类彻底消灭这场病毒
+Es muy probable que ayude a la humanidad a desaparecer este virus
+
+这个病毒会使人传染(但)致死率并不高
+Este virus puede hacer que las personas se contagien, pero el índice de letalidad no es muy alto
+
+致残率不高
+La tasa de discapacidad no es alta
+
+这个毒的活性很高
+El activo de este virus es muy alto
+
+容易传染
+Es fácil de contagiarse
+
+但是对人类的这两样没做到
+Pero no logra estas dos cosas en el humano
+
+他说实际是好事
+Él dijo que realmente es algo bueno
+
+甚至把这个人类的病毒从地球上消失
+Hasta puede hacer desaparecer este virus del planeta Tierra
+
+他说人类
+Él dijo que la raza humana
+
+跟这个病毒一但相适应之后
+Después de adaptarse mutuamente a este virus
+
+实际上这个病毒可能会消失的
+Realmente es muy probable que se desaparezca
+
+这是共产党不再放毒的情况下
+Esto es bajo la condición de que el PCCh no suelte de nuevo un virus
+
+这是一个，第二个
+Esto es lo primero, el segundo
+
+现在全世界真的都知道青蒿素管用了
+Ahora todo el mundo ya sabe que la Artemisinina si sirve
+
+我告诉你
+Yo te digo
+
+青蒿素绝对是把癌症可以消失了的
+La Artemisinina puede desaparecer en lo absoluto el cáncer
+
+青蒿素绝对把糖尿病
+La Artemisinina para la diabetes,
+
+和人类存在的艾滋病
+El VIH que existe en la humanidad
+
+特别是现在受环境污染的脑血栓
+Especialmente la trombosis cerebral que ahora está siendo contaminada por el medio ambiente
+
+心血管病
+Enfermedad cardiovascular
+
+他说绝对有巨大的帮助甚至彻底消灭
+Él dijo que definitivamente hay una gran ayuda o incluso una eliminación completa
+
+还有青蒿素和伊维菌素连在一起
+Y la unión de la Artemisinina con la Ivermectina
+
+一定会把这次病毒给解决
+Seguro podrá solventar el virus de esta vez
+
+**原视频网址：** [https://gettr.com/post/pii26c24b5](https://gettr.com/post/pii26c24b5)
+
+日期：12/06/2021
+原视频标题：这次的放毒应该是广东帮干的，传染率高但致残率致死率不高
+El virus esta vez soltado debe ser realizado por la banda de Guangdong. La tasa de infección es alta, pero la tasa de discapacidad y de mortalidad no son altas
+
+原视频日期：12/02/2021
+原视频网址： https://gettr.com/post/pii26c24b5
+任务编号：KC313（3081）
+视频时间段：0:00-02:03
+
+西听校：洛杉矶盘古农场- 小文萱
+翻译：洛杉矶盘古农场- 霙霙（文霙）
+翻译终校：洛杉矶盘古农场- 小文萱
+字幕+视频制作: 洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

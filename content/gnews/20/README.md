@@ -2,37 +2,34 @@
 ---
 
 
-## 有声|美空军部长称与中共进行高超音速武器竞赛
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1730428/)
+## 新能源电池、加密技术、芯片加5G和AI才是我们的城邦
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1730540/)
 
-配音：香草山美食部 – 玫瑰园
+**郭文贵先生：**未来所有的汽车都是用区块链技术，所有的电池都是区块链技术。如果电池不用区块链技术，电池就会成为炸弹，汽车就会成为这样的炸弹。无人驾驶汽车的时代，不可能到来，它会成为武器。
 
+那么接下来就是AI，AI这个技术大家记住，人类控制不好，那绝对人类就灭了。但控制好了，绝对就像娜娜酱跟她爷爷说话一样。你马上就变成你爷爷那个级别，就他完全听不懂咋回事了。就像娜娜酱给她讲社交媒体，你爷爷听不懂，你奶奶听不懂，你妈妈听不懂一样。就AI很快地到来，AI用在我们这些电池上，技术上，它是个相互的关系。没有电池，没有加密技术，没有这样的芯片，你没有AI。有了AI，未来就是AI一搜什么东西，郭文贵哪天讲什么话，分析到万分之一秒，亿分之一秒，啪，就给你出来。然后5G、AI，这就是咱们整个新中国联邦的大版图之一，那才是我们的城邦，那才是我们的未来！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-美国之音12月2日报道，美国空军部长弗兰克·肯德尔11月30日表示，美国与中共正在高超音速武器领域进行军备竞赛，双方正在这一领域进行越来越多的测试和研发。
+字幕来源：[2021年12月5日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1725245/)
 
-高超音速武器轨迹特别，难以追踪防御，且超过5倍音速。假如中共能将该武器部署到地球轨道上，就可以从没有任何防备的南极重返大气层而攻击美国，而美国的导弹防御系统将毫无用处。
+视频制作及上传：Cindy；
 
-肯德尔说，中共对于美军现有的A-10攻击机，C-130多用途运输机，和MQ-9侦察打击无人机并不惧怕。而美国军方过去20年来，一直把资源用于伊拉克和阿富汗，因此对高超音速武器系统的研发缺乏专注。据悉，美国国防承包商对美国国防部集中资源、研发高超音速武器系统表示高度欢迎。
+G-News发布：黎明之前；
 
-文字版原文：[美空军部长称与中共进行高超音速武器竞赛](https://gnews.org/zh-hans/1718612/)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
-**更多资讯，更多关注**
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

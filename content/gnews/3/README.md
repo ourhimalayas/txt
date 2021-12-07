@@ -2,185 +2,38 @@
 ---
 
 
-## 这次的放毒应该是广东帮干的，传染率高但致残率致死率不高
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1730748/)
+## 西喜时事新闻简报 — 美国时事篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1730843/)
 
-[https://gtv.org/video/id=61af2bd087fa7e74c92cab16](https://gtv.org/video/id=61af2bd087fa7e74c92cab16)
+编译：土饭团
 
-一星期前
-Hace una semana atrás
+**1.[Blinken对中共国就台湾问题发出加倍警告：如果北京进行打击，将产生“可怕的后果”](https://www.foxnews.com/world/blinken-china-warning-taiwan-terrible-consequences)**
 
-我们的欧洲科学家说
-Nuestro científico europeo dijo
+福克斯新闻12月4日电，Blinken在周五的Reuters Next会议上发言，他重申了美国对捍卫台湾自治权的承诺，Blinken强调，中共国领导人应对任何此类行动“慎重考虑”， 他说这将“给许多人带来可怕的后果，而且不符合任何人的利益。”
 
-如果这次的病毒有两个特征性
-Si el virus de esta vez tiene dos características
+**2.[Austin在安全论坛讲话中针对中共国:“中共国没有10英尺高”](https://www.foxnews.com/politics/austin-targets-china-in-security-forum-address-china-is-not-10-feet-tall)**
 
-这次人类真的是完了
-Entonces la raza humana se acabará esta vez
+福克斯新闻12月4日电，国防部长周六在里根国防论坛的讲话中把矛头指向了中共国，他告诉福克斯新闻的Bret Baier，“中共国没有 10 英尺高。”“美国是一个太平洋强国，”Austin说。“印太地区是一个充满机遇和真正挑战的地区。其中一个挑战是一个日益自信和专制的中共国的出现。”
 
-第一个特征
-La primera característica
+**[3.共和党人指责Biden对奥运会的“外交抵制”过于微不足道](https://www.foxnews.com/politics/republicans-blast-biden-diplomatic-boycott-of-olympics-as-too-little)**
 
-这次如果共产党要放病毒的话
-Si esta vez el PCCh va a soltar el virus
+福克斯新闻12月6日电，共和党议员针对Biden总统对北京奥运会的外交抵制，认为阻止美国官员参加奥运会还远远不够，他们呼吁将奥运会从中共国撤出。“虽然我曾呼吁美国和其他国家对2022年冬奥会进行外交抵制，但这是最起码的，Biden总统应该做得更多，以追究中共的责任，”参议员Bill Hagerty周一在一份声明中说。
 
-放出来这个传染率、致死率高
-Y su tasa de letalidad y contagio es alta
+**4.[美国和欧盟对北京在南海的“问题”行动表示担忧](https://www.aninews.in/news/world/us/us-eu-expresses-concern-about-beijings-problematic-actions-in-south-china-sea20211204203724/)**
 
-染上就死
-Quiere decir al contagiarse se muere
+ANI 12月4日电，美国和欧盟对中共国在南中国海和东中国海日益增长的军事侵略表示关切，并表示他们将共同管理与北京的竞争关系。双方表示，中共国在南海、东海和台湾海峡的行动“破坏了该地区的和平与安全，并直接影响到美国和欧盟的安全和繁荣。”
 
-或者是说就是所谓的天花病毒
-O como el supuesto virus de la viruela
+**5.[美国太空部队将军警告中共国日益增长的太空军事潜力](https://www.politico.com/news/2021/12/05/space-force-china-military-523769)**
 
-传染率高、伤残率高 但不死
-Alta tasa de contagio y discapacidad, pero no muere
+POLITICO 12月5日电，美国太空部队副总司令周日警告说，中共国在太空发展方面正处于快速发展阶段，这加剧了人们对其可能在太空超越美国并获得军事优势的担忧。David Thompson将军说：“我不认为他们将在十年结束时成为太空领域的领导者已成定局，但他们的步伐令人难以置信，”他补充说，美国需要调整其方法，否则有可能被竞争者超越。
 
-这两种病毒对人类都是巨大的威胁
-Estos dos tipos de virus es una gran amenaza para la humanidad
+* * *
 
-人类上一堆残废
-Si en la raza humana hay un montón de discapacitados
+*审核：蚂蚁兄弟
+校对：阿伯塔
+发布：信心的选择*
 
-而且这种残疾
-Y este tipo de discapacidad
-
-根本全世界医疗条件救不了的
-Con las condiciones médicas que hay en todo el mundo no es curable
-
-像天花一样
-Así como la viruela
-
-再一个就是致命率高
-Lo otro el alto índice de letalidad
-
-得了就死
-Al contagiarse muere
-
-他说这个世界也防不了
-Él dijo que el mundo no podrá evitar esto
-
-这个出来以后
-Después de que esto salga
-
-这个 Omicron 出来以后
-Después de que aparezca el “Omicron”
-
-他说真是天意
-Él dijo que esto es de verdad voluntad del Cielo
-
-这次的病毒看来
-Al parecer el virus de esta vez
-
-欧洲的科学家说
-Los científicos europeos dijeron
-
-这回放毒应该是
-Los que soltaron el virus de esta vez debe ser
-
-广东帮干的
-Hecho por la banda de Guangdong
-
-广东这帮人干的 不是北方人干的
-La gente de Guangdong lo hizo, no los norteños
-
-北方人下手会比较狠
-Los norteños son más implacables
-
-这个病毒放完以后
-Luego de soltar este virus
-
-很有可能会帮助人类彻底消灭这场病毒
-Es muy probable que ayude a la humanidad a desaparecer este virus
-
-这个病毒会使人传染(但)致死率并不高
-Este virus puede hacer que las personas se contagien, pero el índice de letalidad no es muy alto
-
-致残率不高
-La tasa de discapacidad no es alta
-
-这个毒的活性很高
-El activo de este virus es muy alto
-
-容易传染
-Es fácil de contagiarse
-
-但是对人类的这两样没做到
-Pero no logra estas dos cosas en el humano
-
-他说实际是好事
-Él dijo que realmente es algo bueno
-
-甚至把这个人类的病毒从地球上消失
-Hasta puede hacer desaparecer este virus del planeta Tierra
-
-他说人类
-Él dijo que la raza humana
-
-跟这个病毒一但相适应之后
-Después de adaptarse mutuamente a este virus
-
-实际上这个病毒可能会消失的
-Realmente es muy probable que se desaparezca
-
-这是共产党不再放毒的情况下
-Esto es bajo la condición de que el PCCh no suelte de nuevo un virus
-
-这是一个，第二个
-Esto es lo primero, el segundo
-
-现在全世界真的都知道青蒿素管用了
-Ahora todo el mundo ya sabe que la Artemisinina si sirve
-
-我告诉你
-Yo te digo
-
-青蒿素绝对是把癌症可以消失了的
-La Artemisinina puede desaparecer en lo absoluto el cáncer
-
-青蒿素绝对把糖尿病
-La Artemisinina para la diabetes,
-
-和人类存在的艾滋病
-El VIH que existe en la humanidad
-
-特别是现在受环境污染的脑血栓
-Especialmente la trombosis cerebral que ahora está siendo contaminada por el medio ambiente
-
-心血管病
-Enfermedad cardiovascular
-
-他说绝对有巨大的帮助甚至彻底消灭
-Él dijo que definitivamente hay una gran ayuda o incluso una eliminación completa
-
-还有青蒿素和伊维菌素连在一起
-Y la unión de la Artemisinina con la Ivermectina
-
-一定会把这次病毒给解决
-Seguro podrá solventar el virus de esta vez
-
-**原视频网址：** [https://gettr.com/post/pii26c24b5](https://gettr.com/post/pii26c24b5)
-
-日期：12/06/2021
-原视频标题：这次的放毒应该是广东帮干的，传染率高但致残率致死率不高
-El virus esta vez soltado debe ser realizado por la banda de Guangdong. La tasa de infección es alta, pero la tasa de discapacidad y de mortalidad no son altas
-
-原视频日期：12/02/2021
-原视频网址： https://gettr.com/post/pii26c24b5
-任务编号：KC313（3081）
-视频时间段：0:00-02:03
-
-西听校：洛杉矶盘古农场- 小文萱
-翻译：洛杉矶盘古农场- 霙霙（文霙）
-翻译终校：洛杉矶盘古农场- 小文萱
-字幕+视频制作: 洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH..jpeg)
 
  
 
