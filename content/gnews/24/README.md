@@ -2,48 +2,176 @@
 ---
 
 
-## 保守党议员指责英国政府对民众发动新冠宣传战
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1731039/)
+## 咱那赌牌是数字赌牌的一个新的开始
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1731073/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/120701-1.jpg)图片：Justin Tallis/法新社/盖蒂图片社
-保守党议员克里斯托弗·乔普爵士（Sir Christopher Chope）指责英国的政府对英国人民“发动”了一场“宣传战”，以鼓励他们支持继续进行限制性措施。
+[https://gtv.org/video/id=61af5b7e87fa7e74c92cbcd8](https://gtv.org/video/id=61af5b7e87fa7e74c92cbcd8)
 
-这位英格兰南部克赖斯特彻奇的资深议员还警告说，由于反对党和大多数保守党支持约翰逊政府，需要大规模改变公众舆论，才能改变政策，支持结束限制性措施。
+咱有条件啊
+Tenemos condiciones
 
-克里斯托弗爵士是在首相计划于下周宣布之前发表上述言论的，首相将确认在发现新冠病毒的一个新变种后导致的重新实行戴口罩的规定后，圣诞节是否可以正常进行。
+这个夫妻档去这个赌场的时候
+Cuando estos esposos vayan al casino
 
-周一，当talkRADIO（一个在英国的谈话广播电台）的茱莉亚·哈特利-布鲁尔（Julia Hartley-Brewer）问及在圣诞节前后可能出现的新限制措施所带来的持续威胁时，克里斯托弗爵士表示，“这是政府制造恐惧运动的一部分。他们试图利用恐惧作为一种工具来压制个人自由。事实上，他们在这方面相当成功，因为我们的许多同胞都畏缩不前。”
+必须只能一方进去
+Debe entrar solamente una persona
 
-这位保守党议员随后声称，他和其他持封锁怀疑态度的立法者很难在主流媒体上发表他们的反对立场，他说。“对于我们这些在下议院阐述另一种观点的人来说，要想获得宣传，要想获得倾听是非常困难的，然而我们从电子邮件中知道全国有多少人同意我们的观点，他们只要求我们劝说政府运用一点常识。”
+不能两方都进
+No se puede entrar los dos
 
-“我们能赢吗？我们获胜的唯一途径是让公众舆论发生变化，而这正是这场宣传战的发动地。政府正在发动一场宣传战，它沉迷于做民意调查。好吧，如果你的宣传是成功的，你问这些人，他们会说，是的，我很高兴我的自由受到限制。”
+因为必须给对方绝对自由
+Porque hay que darle absoluta libertad a la otra persona
 
-这场“宣传战”似乎正在获胜，YouGov（一家总部设在英国的国际网络市场调查和数据分析公司）就此事进行的最新民意调查发现，几乎以二比三的比例，63%的英国人支持禁止未接种疫苗者进入非必要的商店和活动等公共场所。
+咱们战友的规则啊
+Son reglas de nuestros compañeros luchadores
 
-新闻链接：[Senior Tory MP Accuses Own Govt of ‘Waging’ Coronavirus ‘Propaganda War’](https://www.breitbart.com/europe/2021/12/06/senior-tory-mp-accuses-own-govt-of-waging-coronavirus-propaganda-war/)
+你们一定要答应七哥到那个地方去
+Ustedes deben prometerme si van a ese lugar
 
-简评：保守党高级官员这次直指英国政府对人民发动宣传战，点出了这次新冠疫情的大背景下，各国政府对民众进行控制的最有效手段——洗脑。政府利用法律赋予的权利和人民的信任，制造恐惧，并利用恐惧作为一种工具来压制个人自由。另一方面，主流媒体和政府同流合污，完全失去其监督职能，压制和掩盖真相，让反对者的声音发不出来。长此以往，民众很容易被洗脑，跟从政府和主流媒体，失去用常识判断事物的能力。
+也是叫无禁之地
+También llamado el lugar sin prohibición
 
-另外，我们已经看到新冠疫情及疫苗在人民中制造了分裂，导致一些人们忘记了天赋人权，人人平等的基本原则，开始限制未接种疫苗的人群的活动范围。殊不知今日对他人的限制措施明日也会在自己身上体现。
+啥叫无禁之地, 没有禁区的
+Qué es un lugar sin prohibición, no hay zona prohibida
 
-庆幸的是，一些新兴媒体及非传统社交媒体的活跃，让正义力量发声，抨击现有政策，让民众回归理智，捍卫自由。
+大牛
+Daniu
 
-*翻译: Ying2064*
+你要容忍得了, 巴黎自己在里边玩一天
+Debes tolerar a Bali que esté jugando adentro durante todo el día
 
-*校对: clau*
+你自己才有资格玩一天
+Así tendrás derecho de jugar todo el dia
 
-* * *
+你如果她自己玩
+Si ella juega sola
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+你也不能进去
+Tampoco puedes entrar
 
+福利也是一样, 是吧
+Al igual que Fuli, cierto
 
-编辑：【英国伦敦喜庄园编辑部】
+你让对方有, 回来还不能问
+Si dejas que la otra persona vaya y regrese sin poder preguntar
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+在里边看到是谁了
+A quién vío adentro
 
+发生啥
+Qué sucedió
 
+不能问, 给对方绝对的自由
+No puedes preguntar, debes darle la libertad absoluta a la otra persona
+
+绝对的自由啊, 这是非常
+Libertad absoluta, esto es realmente
+
+你看Rachel
+Mira a Rachel
+
+你把那个赌牌我发
+Les envié la carta de apuesta
+
+我给你们这个发到群里
+Al grupo
+
+你看到了吗, 你就看这个
+La viste, solamente mire esto
+
+咱么这个赌牌
+Nuestra carta de apuesta
+
+它在这个世界上是最最顶尖的钻石塔上
+Está en la torre de diamante más alta de este mundo
+
+钻石塔上啊
+Encima de la torre de diamante
+
+所以说, 这个刚才小福利应该叫Roy
+Por eso digo, hace rato Xiao Fuli debe llamar a Roy
+
+刚才说那个好事的时候
+Cuando se estaba hablando de ese asunto bueno
+
+你要想到这个
+Debes pensar en esto
+
+你们
+Ustedes
+
+咱那个赌牌
+Nuestra carta de apuesta
+
+它是数字赌牌的一个新的开始
+Es el comienzo de la carta de apuesta digital
+
+要记住Roy
+Recuerda, Roy
+
+是一个数字赌牌
+Es una carta de apuesta digital
+
+特别是在英国
+Especialmente en Reino Unido
+
+这种高质量的赌牌
+Esta alta calidad de cartas de apuesta
+
+而且绝对是稀有资源
+Y es definitivamente un recurso escaso
+
+而且更重要的事情
+Y lo más importante
+
+这个赌牌, 大家要记住
+Esta carta de apuesta, todos recuerden
+
+它有背后的体育界的
+Cuenta con el apoyo de nuestro Boss
+
+咱们大佬的支持
+Del mundo de deporte
+
+我还用说
+No les digo más
+
+再明白了嘛, 是吧
+Ya está más que claro, cierto
+
+你们跟那股东是世界上最大的体育玩家
+Ustedes y esa accionista son el mayor jugador de deporte en el mundo
+
+你会看到体育界
+Podrás ver en el mundo de deporte
+
+所有时尚界, 跑车界, 你们会看到前所未有你这辈子
+Todo el mundo de la moda, coches deportivos, verán cosas inéditas que no han experimentado antes en sus vidas
+
+没有经历的事情, 都会发生在我们这个事情当中
+Todo lo que no hemos vivido sucederá en dentro de este asunto de nosotros
+
+记住我的话
+Recuerde mis palabras
+
+日期：12/06/2021
+原视频标题：咱那赌牌是数字赌牌的一个新的开始
+Nuestra carta de apuesta es el nuevo comienzo de la apuesta digital
+原视频日期：12/04/2021
+原视频网址：https://gettr.com/post/pio7orb045
+任务编号：KC315（3107）
+视频时间段：0:00-1:43
+
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作: 洛杉矶盘古农场 – 天涯行
+审片: 洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -2,32 +2,39 @@
 ---
 
 
-## 布林肯承诺美国确保台湾拥有自卫手段
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1730546/)
+## 西喜时事新闻简报 — 美国时事篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1730843/)
 
-作者：东京樱花团 – 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美国国务卿布林肯在12月3日接受采访时，当主持人问到中共是否会侵略台湾，他认为如果中共这样做将是一个灾难性决定。在过去40多年里，美国一贯坚持“一个中国”政策，并以台湾取得显著进步的方式进行有效管理。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/8-10.jpg)
-但是过去几年来，中共国试图改变这一现状，不断对台湾进行军事恫吓和挑衅，试图孤立台湾，禁止台湾与国际社会接触。而台湾是一个民主的、有着强大经济并且对世界有很多贡献的创新国家，因此中共的政策是极端危险的。
+编译：土饭团
 
-布林肯强调，他告诫中共领导人要慎重考虑台湾问题，不要玩火自焚。因为这会产生非常可怕的后果，不符合所有人的利益，尤其首先不符合中共国的利益。他再次声明，不论是防卫物品和服务方面，美国都将致力于确保台湾拥有自我防卫手段。
+**1.[Blinken对中共国就台湾问题发出加倍警告：如果北京进行打击，将产生“可怕的后果”](https://www.foxnews.com/world/blinken-china-warning-taiwan-terrible-consequences)**
 
-参考链接：[布林肯承诺，美国确保台湾有自卫的手段](https://gnews.org/zh-hans/1725479/)
+福克斯新闻12月4日电，Blinken在周五的Reuters Next会议上发言，他重申了美国对捍卫台湾自治权的承诺，Blinken强调，中共国领导人应对任何此类行动“慎重考虑”， 他说这将“给许多人带来可怕的后果，而且不符合任何人的利益。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+**2.[Austin在安全论坛讲话中针对中共国:“中共国没有10英尺高”](https://www.foxnews.com/politics/austin-targets-china-in-security-forum-address-china-is-not-10-feet-tall)**
 
-总编：Irene木木
-编辑：Lakeman文仁
-校正/发稿：Fei797
+福克斯新闻12月4日电，国防部长周六在里根国防论坛的讲话中把矛头指向了中共国，他告诉福克斯新闻的Bret Baier，“中共国没有 10 英尺高。”“美国是一个太平洋强国，”Austin说。“印太地区是一个充满机遇和真正挑战的地区。其中一个挑战是一个日益自信和专制的中共国的出现。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**[3.共和党人指责Biden对奥运会的“外交抵制”过于微不足道](https://www.foxnews.com/politics/republicans-blast-biden-diplomatic-boycott-of-olympics-as-too-little)**
+
+福克斯新闻12月6日电，共和党议员针对Biden总统对北京奥运会的外交抵制，认为阻止美国官员参加奥运会还远远不够，他们呼吁将奥运会从中共国撤出。“虽然我曾呼吁美国和其他国家对2022年冬奥会进行外交抵制，但这是最起码的，Biden总统应该做得更多，以追究中共的责任，”参议员Bill Hagerty周一在一份声明中说。
+
+**4.[美国和欧盟对北京在南海的“问题”行动表示担忧](https://www.aninews.in/news/world/us/us-eu-expresses-concern-about-beijings-problematic-actions-in-south-china-sea20211204203724/)**
+
+ANI 12月4日电，美国和欧盟对中共国在南中国海和东中国海日益增长的军事侵略表示关切，并表示他们将共同管理与北京的竞争关系。双方表示，中共国在南海、东海和台湾海峡的行动“破坏了该地区的和平与安全，并直接影响到美国和欧盟的安全和繁荣。”
+
+**5.[美国太空部队将军警告中共国日益增长的太空军事潜力](https://www.politico.com/news/2021/12/05/space-force-china-military-523769)**
+
+POLITICO 12月5日电，美国太空部队副总司令周日警告说，中共国在太空发展方面正处于快速发展阶段，这加剧了人们对其可能在太空超越美国并获得军事优势的担忧。David Thompson将军说：“我不认为他们将在十年结束时成为太空领域的领导者已成定局，但他们的步伐令人难以置信，”他补充说，美国需要调整其方法，否则有可能被竞争者超越。
+
+* * *
+
+*审核：蚂蚁兄弟
+校对：阿伯塔
+发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH..jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

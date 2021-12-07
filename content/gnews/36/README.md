@@ -2,38 +2,32 @@
 ---
 
 
-## 有声|标准普尔500指数本周表现不佳，未来走势堪忧
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1730360/)
+## 布林肯承诺美国确保台湾拥有自卫手段
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1730546/)
 
-配音：香草山美食部 – 玫瑰园
+作者：东京樱花团 – 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美国国务卿布林肯在12月3日接受采访时，当主持人问到中共是否会侵略台湾，他认为如果中共这样做将是一个灾难性决定。在过去40多年里，美国一贯坚持“一个中国”政策，并以台湾取得显著进步的方式进行有效管理。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/8-10.jpg)
+但是过去几年来，中共国试图改变这一现状，不断对台湾进行军事恫吓和挑衅，试图孤立台湾，禁止台湾与国际社会接触。而台湾是一个民主的、有着强大经济并且对世界有很多贡献的创新国家，因此中共的政策是极端危险的。
 
+布林肯强调，他告诫中共领导人要慎重考虑台湾问题，不要玩火自焚。因为这会产生非常可怕的后果，不符合所有人的利益，尤其首先不符合中共国的利益。他再次声明，不论是防卫物品和服务方面，美国都将致力于确保台湾拥有自我防卫手段。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-零对冲12月3日引用彭博实时市场评论员及分析师马克·克兰菲尔德（Mark Cranfield）的分析指出，从感恩节后的熔断开始，标准普尔500指数期货在经历了一周的鞭打式交易后明显看跌。
+参考链接：[布林肯承诺，美国确保台湾有自卫的手段](https://gnews.org/zh-hans/1725479/)
 
-尽管该指数并不是单边走低，但该合约的盘中反弹已经在较低的峰值处消退。图中显示的帽子顶部给短线交易者提示了足够清晰的信号，即资产是否被定格在下降通道上。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-尽管非农就业数据的确不及预期，但美联储也不会偏离其紧缩政策。分析师预计，标准普尔期货从11月的峰值开始下跌，看起来像是长期走低的转折点，这将为明年的全球熊市奠定基础。
+总编：Irene木木
+编辑：Lakeman文仁
+校正/发稿：Fei797
 
-文字版原文：[标准普尔500指数本周表现不佳，未来走势堪忧](https://gnews.org/zh-hans/1720450/)
-
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
