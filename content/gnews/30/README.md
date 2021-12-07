@@ -2,15 +2,37 @@
 ---
 
 
-## [文贵大直播PTT]病毒+疫苗大灾难
-` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1728055/)
+## 拜登政府考虑切断俄罗斯的SWIFT国际支付系统
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1728236/)
 
-撰稿：Eglise. 舒平风。莲心不染。坐看云起。MyWay 美工 小黑兔。stores
+**By:秘翻新闻**
 
-[12月1日文贵大直播PTT病毒+疫苗大灾难]
-![](https://assets.gnews.org/wp-content/uploads/2021/12/p1.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/p2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/p3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/p4-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/p5-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/p6-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/p7-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/p8-1.jpg)
-发稿 abbs
+***2021-12-7***
+![](https://assets.gnews.org/wp-content/uploads/2021/12/gnews.jpg)
+图片来源于网络
 
+《零对冲》12月6日分析报道，在美国总统拜登与俄罗斯总统普京，举行视频通话的前一天，**白宫正在酝酿将俄罗斯从SWIFT国际支付系统中断开，来回应俄罗斯在克里米亚和乌克兰东部边境大量增兵的行动。**
+
+美国情报部门最近表示，俄罗斯在乌克兰东部边境，增兵约17.5万名士兵，可以随时对乌克兰发动军事进攻。这次，拜登政府考虑将俄罗斯从SWIFT国际支付系统中断开，包括对普京的核心圈子和俄罗斯能源生产商的制裁，被视为是历史上最严厉的、“核”级别的措施，因为俄罗斯仍然严重依赖SWIFT支付系统。
+
+普京当然强烈反对乌克兰威胁的指控，并称在俄罗斯联邦主权领土和边界内，俄罗斯可以自由地将自己的军队转移到它认为合适的地方。
+
+据报道，白宫现在正讨论对俄罗斯新的经济制裁，针对多个部门包括能源生产商和俄罗斯银行，也有可能针对俄罗斯的主权债务。他们还有可能对俄罗斯顶级寡头下手，限制他们的旅行能力，并切断他们进入美国银行和信用卡系统的途径。
+
+今年春天，欧洲议会(European Parliament)通过了一项不具约束力的决议，呼吁在俄罗斯入侵乌克兰的情况下，采取切断俄罗斯SWIFT国际支付系统的行动。一位不愿透露姓名的政府官员说，美国已经制定了一个相当积极的方案，如果俄罗斯入侵乌克兰，美国和欧洲将共同对其实施最严厉的经济制裁。
+
+一位美国高级官员说，担心俄罗斯会通过“能源”抑制生产，对欧盟进行报复，可能切断给北欧输送天然气的管道。
+
+如果事情真的升级到历史上前所未有的水平，俄罗斯是不会坐以待毙的。在金融系统方面，普京一定会寻求不被西方控制的支付系统，而转移到加密货币支付系统。
+
+秘翻新闻主编 冰糖葫芦喵编译报道
+
+*校对/发布:*陸柒陸捌
+
+* * *
+
+**欢迎广大战友加入 【秘密翻译组-即时新闻播报组】**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/IMAGE-2021-11-29-195110-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,22 +2,34 @@
 ---
 
 
-## 加拿大劳动力短缺迫使企业停止疫苗强制接种
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1728434/)
+## 美国公共卫生局局长称，接种三剂疫苗室内也要戴口罩
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1728456/)
 
-采编/编译撰稿：薇文
-![](https://assets.gnews.org/wp-content/uploads/2021/12/06-image.jpg)
-据[路透社]12月5日报道，自加拿大特鲁多政府推行全球最严苛的疫苗接种政策以来，该国大部分企业都已面巨大的劳动力短缺境况。尽管雇主们普遍承诺执行当局的强制接种规定，但严重人力资源短缺已导致整体薪酬不断上升。
+翻译：皮特
+编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2021.12.7-4配图.jpg)图片来源：CNBC
+12月6日，据报道美国公共卫生局局长维韦克·穆尔蒂周日宣布，即使是那些接种了三剂疫苗的人，在圣诞节期间与家人在一起时仍需在室内戴口罩。
 
-据悉，目前加拿大各行业岗位空缺数量仅11月就增加了15万多个，较8月以来翻了两番。岗位招聘数量远高于疫情前，显示出劳动力不足与岗位空缺失衡的危机。
+穆尔蒂在接受哥伦比亚广播公司新闻采访时说：“如果人们使用适当的防护，在聚会时被感染的几率会很小。”这里他指的防护措施是口罩。
 
-报道称，面对以上严峻局面，许多公司被迫改变策略，即便面临“奥密克容”病毒蔓延，也不再要求其雇员强制接种疫苗，而是改为定期的病毒测试。大部分企业目前最关心的是如何吸引和留住工人，而很少再对疫苗接种有过多要求。
+穆尔蒂补充说，这些“工具”包括接种疫苗和接受加强针。当然，如果你符合条件，这有助于提高你的保护水平，在室内公共场所使用口罩，尽量在通风良好的地方聚集。这些都是我们已经了解到的有帮助的工具。最后，记住要（核酸）测试。
 
-校对编辑：硫酸羟氯喹64
+他补充说，“我们有数百万人仍然没有接种疫苗，这给他们的生命带来了风险，但也带来了更大的传播风险”。
 
-发稿：苦尽甜来 (文來）
+穆尔蒂继续说：“但是如果你像许多家庭一样，接受疫苗接种加强针。你在聚会前去测试，尽量在通风良好的空间聚会，在室内公共场所尽可能使用口罩，你的风险可以相当低，你的假期可以相当安全。”
 
-[参考链接](https://www.cp24.com/news/canadian-employers-facing-labour-shortage-accommodate-the-unvaccinated-1.5694428)
+穆尔蒂之前发布了一个“工具包”，命令美国人不要分享任何有关新冠病毒的信息，包括备忘录和统计数据，除非它们经过CDC的验证。
+
+新闻链接：[Biden Surgeon General: Even Tripled Vaxxed Still Have To Wear Masks Indoors – NewsWars](https://www.newswars.com/biden-surgeon-general-even-tripled-vaxxed-still-have-to-wear-masks-indoors/)
+
+发布：去中心化Math
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

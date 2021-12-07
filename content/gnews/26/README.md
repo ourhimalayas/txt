@@ -2,31 +2,34 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月6日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1728255/)
+## 美国计划对北京冬奥会进行外交抵制
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1728296/)
 
-作者：香草山翻译部
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-28.png)
+图片来源：网路截图
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-109-1280x172-1-2-1.jpg)
+据美联社华盛顿12月7日报道，白宫新闻秘书珍·普萨基周一证实，美国将对即将在北京举行的冬奥会进行外交抵制，以抗议中共国的侵犯人权行为，但是美国运动员将继续参加比赛，并将得到政府全力支持，美国将不会为奥运会的宣传做出贡献。中共国已发誓要以 “坚定的反措施 ”来迎接这一行动。
 
+这一消息是在拜登准备主持白宫民主峰会之际发布的，该峰会将于周四和周五在网上举行，来自100多个国家的领导人和民间社会专家将参加该虚拟聚会。拜登打算利用这次会议 “宣布个人和集体的承诺、改革和倡议，以捍卫国内外的民主和人权”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1206text-SC.png)
-校对：Stay文苑
+然而，阿肯色州共和党人汤姆-科顿(Tom Cotton)参议员认为外交抵制时一种 “姑息手段”。美国应该全面抵制在北京举行的种族灭绝运动会，科顿说。“美国企业不应该在财政上支持中共，我们决不能让美国队面临一个令人厌恶的专制政权下的危险，这个政权让自己的运动员失踪。”
 
-编辑：Stay文苑
+普萨基不愿评论拜登是否权衡让运动员退出比赛，认为惩罚那些为这一时刻训练和准备的运动员不是正确的步骤，可以通过不派美国官方代表团来发出一个明确的信息。
 
-发稿：Stay文苑
+国际奥委会在一份声明中称，尊重各政府让政要远离比赛的决定，但确说奥林匹克运动会和运动员的参与是超越政治的。
 
-视频参看：[12.6  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61aeb8bebbd75f62e531446b)
+众议院议长南希-佩洛西(Nancy Pelosi)几个月来一直主张进行外交抵制，她对拜登采取这一步骤表示赞赏。她认为国际奥委会允许一个因其骇人听闻的人权记录而臭名昭著的国家举办奥运会，是对《奥林匹克宪章》的嘲弄。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-69.jpeg)
+外交抵制是在美国试图稳定与北京的动荡关系之时进行的，美国有线电视新闻网(CNN)率先报道，预计本周将作出宣布。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+北京对美国的行动作出了严厉的回应，谴责它们是对其内部事务的干涉，并对它认为是反中共国的美国政治家实施签证禁令。目前还不清楚美国可能会派谁去北京参加奥运会，赵立坚的评论似乎表明中共国没有发出任何邀请。
+
+澳大利亚与中共国的关系因一系列争端而恶化，它也提出了外交抵制的可能性。
+
+1980年，在冷战时期，吉米·卡特将美国运动员从1980年莫斯科夏季奥运会上留在家中，以抗议苏联对阿富汗的入侵。
+
+新闻来源：[US plans diplomatic boycott of Beijing Winter Olympics](https://apnews.com/article/joe-biden-sports-boycotts-beijing-2020-tokyo-olympics-7727b98d708447ae24457d910a8f1ae8)
 
  
 

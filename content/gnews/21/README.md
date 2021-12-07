@@ -2,18 +2,44 @@
 ---
 
 
-## 秘翻在线：【速报】美国表示地址北京冬奥会后日本如是说
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1728348/)
+## 巴西两名婴儿错误接种新冠疫苗后被送院
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1728365/)
 
-撰稿：待命（文暁）
-![](https://assets.gnews.org/wp-content/uploads/2021/12/画像1-5.png)（图片源自本文链接）
-12月7日TBS新闻报道：美国政府以人权问题为由宣布对明年冬季北京奥运会和残奥会进行 “外交抵制”后，日本政府作出反应。
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-岸田首相表示：关于日本的反应，我们将从国家利益的角度出发，考虑到奥运会的意义和对日本外交的意义，做出我们自己的决定。 这就是日本的基本立场。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/jcr_content.img_.600.high_.png)
 
-内阁官房长官松野也在新闻发布会上说：我们将在适当的时候，综合全面的考虑，做出自己的决定，目前还没有任何决定。我们希望北京奥运会能够遵从奥运理念，作为一个和平的庆典来举行。
 
-信息源：[【速報】岸田首相「国益の観点から自ら判断する」　北京五輪への対応について　米の”外交的ボイコット”発表を受け（TBS系（JNN）） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/15a4547002155a50d58674c5211e0d886172bc1b)
+
+图片来源:  www.scholastic.com
+
+
+#### 编译 ：小红帽
+
+在巴西，一名护士混淆了不同功效的疫苗药瓶，误将辉瑞公司的新冠病毒（Covid-19）疫苗注射给两名婴儿，最后导致婴儿被送进医院。
+
+这一令人震惊的失误首先由媒体报道，并于周日得到巴西圣保罗州索罗卡巴市的地方当局正式确认。
+
+一名两个月大的女孩和一名四个月大的男孩上周三来到该地区的一家医疗机构，注射五价疫苗。该疫苗可保护儿童免受白喉、百日咳、破伤风、乙肝和乙型流感病毒的侵害。
+
+然而，回家后不久，两名婴儿就发开始高烧，呕吐并拒绝喝奶。父母给他们喂药也未能改善他们的病情。
+
+随后，索罗卡巴的卫生部长维尼修斯·罗德里格斯（Vinicius Rodrigues）与这些家庭取得了联系，并告诉他们护士犯了一个错误，这两名婴儿被注射了新冠病毒疫苗。
+
+两名婴儿被安置在当地的Gpaci医院。据报道，他们现在感觉好多了，但在一段时间内无法回家。当地政府联系了辉瑞公司，并被告知在接下来的10至15天内应该对这些孩子进行监测。
+
+负责的护士表示，她混淆了这些小药瓶，因为它们看起来太相似了。该名护士已被停职并等待调查。
+
+**参考新闻：**[Babies hospitalized after getting Covid-19 vaccine — RT World News](https://www.rt.com/news/542288-babies-vaccine-pfizer-brazil/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
