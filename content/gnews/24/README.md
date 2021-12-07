@@ -2,194 +2,39 @@
 ---
 
 
-## 每日快报：白宫确认对北京冬奥会进行外交抵制
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1728179/)
+## 最新｜社媒消息:纽约市市长强制私营企业员工和儿童注射中共病毒疫苗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1728252/)
 
-*作者：*冰川
+**By:秘翻新闻**
 
-![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/每日快报.png)
+**2021-12-7**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/mfile_1623068_1_L_20211207032851.jpeg)*图片源于网络*
+据abc7ny 12月6日报道， 纽约市市长白思豪（Bill de Blasio）宣布，从12月27日开始，纽约市所有私营部门的雇主都必须接种COVID疫苗。
 
-# ***今日摘要***
+白思豪称这项违背民意的措施是“全国首创”的。他还罔顾事实地对纽约民众说，接种中共病毒是摆脱大流行病的方法，可是对打了中共病毒疫苗后出现的副作用，他却是提都不提。
 
-1. 白宫确认对北京冬奥会进行外交抵制
-2. 俄罗斯和泰国首次确认病例，美国三分之一的州确认了Omicron
-3. NBA球星伊内斯-坎特称美国在外交抵制奥运会后需要走得更远
-4. 辉瑞公司的新董事会成员是前Facebook董事
-5. 反对和抵制共匪已经成为美国大多数的民意
+此外，白思豪说，从12月14日开始，5至11岁的儿童在室内就餐、健身和娱乐时，必须要有疫苗证明。室内活动的儿童需要打两针疫苗，12岁及以上的人需要打一针。
 
+而且该年龄段的儿童，如果想要参加高风险的课外活动，也必须要先接种中共病毒疫苗。这些活动包括体育、乐队、管弦乐队和舞蹈。
 
-# 重要事件
+不仅如此，他还对纽约的家长们进行威胁利诱，他说：“这里提醒你，让你的孩子接种疫苗。一剂疫苗就能让孩子立即获得参加任何这些活动的资格。”
 
-- ** 12.06. Washington Examiner：**[白宫确认对北京冬奥会进行外交抵制 White House confirms Beijing Winter Olympic Games diplomatic boycott](https://www.washingtonexaminer.com/politics/psaki-winter-olympics-diplomatic-boycott)
-据白宫新闻秘书Jen Psaki称，美国将不派官员参加北京2022年冬季奥运会。”鉴于[中华人民共和国]在新疆正在进行的种族灭绝和反人类罪以及其他侵犯人权的行为，拜登政府将不派任何外交或官方代表参加2022年北京冬奥会，”她周一告诉记者。虽然参赛的运动员将得到白宫的 “全力支持”，但总统乔-拜登和他的政府表示，他们认为他们不应该为 “大肆宣传 “做出贡献。”我不认为我们觉得惩罚运动员是正确的步骤，”当被问及为什么官员决定让运动员参加这项活动时，她说。
-- ** 12.06. Zerohedge：**[俄罗斯和泰国首次确认病例，美国三分之一的州确认了Omicron Omicron Confirmed In One-Third Of US States As First Cases Confirmed In Russia, Thailand](https://www.zerohedge.com/covid-19/omicron-confirmed-one-third-us-states-first-cases-confirmed-russia-thailand)
-在周末告诉美国人Omicron可能会比Delta温和之后，白宫事实上的COVID沙皇Anthony Fauci博士还表示，美国将每天重新评估其对南非的最新旅行限制，直到最终撤销。白思豪周一正式将他的疫苗接种授权适用于私人雇主，同时将食客出示疫苗接种证明的要求扩大到所有5至11岁的儿童，他们最近才被美国食品和药物管理局批准。这两项措施在12月27日之前不会生效。
+就在白思豪宣布该措施后，纽约市伙伴关系的首席执行官凯瑟琳·怀尔德（Kathryn Wylde）认为这是不可以执行的，并表示该措施将在法庭上受到质疑。她说，白思豪在离任前三天制定这严格的政策，“是我们现在最不需要的”。
 
-为了防止世界最终需要它们，白宫正准备快速批准改进的COVID疫苗，即使Omicron确实比许多人担心的 “COVID-21 “的情况更糟糕。疫苗制造商表示，在仔细研究数据之前，他们不知道是否有必要接种新疫苗。疾病预防控制中心主任 Walensky 说，至少在美国15个州发现了Omicron，尽管就数量而言，Delta仍然是最主要的变体，因为今天美国诊断的每一个新病例都来自Delta。在全球984个确认的Omicron病例中，南非已经确认了228个病例。美国在17个州确认了40个病例，而英国到目前为止确认了248个micron病例–甚至比南非还多。
-- ** 12.06. Daily Caller：**[“有多少人需要被折磨？”NBA球星伊内斯-坎特称美国在外交抵制奥运会后需要走得更远 ‘How Many People Need To Be Tortured?’: NBA Star Enes Kanter Says US Needs To Go Further Following Diplomatic Boycott Of Olympics](https://dailycaller.com/2021/12/06/how-many-people-need-tortured-enes-kanter-wants-usa-go-further-following-diplomatic-boycott-olympics/)
-NBA球星伊内斯-坎特表示，在宣布对2022年中国北京冬奥会进行外交抵制之后，他希望看到美国走得更远。”我们做到了！”这位29岁的波士顿凯尔特人队中锋周一在推特上对他的几十万粉丝说。”很好，但还不够。””1）我希望这能鼓励其他国家也进行外交抵制，”他补充说。”2)中国有那么多侵犯人权的行为，我们只用外交抵制来反击？””需要有多少人被折磨和强奸，美国才会做出更严肃的事情？”
+怀尔德指出，拜登政府对拥有100名或以上雇员的企业的强制疫苗规定被联邦法院搁置，等待法院审查。
 
-坎特继续说道。这位职业篮球运动员的帖子包括一条推特，内容是总统乔-拜登的政府计划宣布对2022年北京冬奥会进行外交抵制。最近庆祝正式成为美国公民的坎特是NBA中唯一为维吾尔族和西藏人民说话的人，因为他抨击中国侵犯人权。他最近指责篮球明星勒布朗-詹姆斯重视 “金钱而非道德”，以及美国公司 “对中国的人权侵犯行为视而不见”。
-- ** 12.06. National Pulse：**[揭秘：辉瑞公司的新董事会成员是前Facebook董事 REVEALED: New Pfizer Board Member Is Ex-Facebook Director.](https://thenationalpulse.com/exclusive/pfizer-board-member-is-former-facebook-director/)
- Susan Desmond-Hellmann博士–辉瑞公司的董事会成员–曾在社交媒体巨头Facebook担任首席独立董事。该网站经常审查与COVID-19疫苗有关的帖子，尤其是辉瑞公司引起了各大企业的支持。
+据报道，在最近宣布对城市雇员、托儿所和非公立学校雇员进行疫苗接种的规定后，扩大了接种范围。全市94%的劳动力都接种了疫苗。
 
-Hellmann于2013年3月被任命为该社交媒体平台的董事会成员，并在2015年6月至2019年10月30日期间担任其首席独立董事，即在第一起报道的COVID-19案件发生前不久。脸书创始人兼首席执行官马克-扎克伯格(Mark Zuckerberg)在回应她的离职时说：”六年来，Sue一直是董事会中一个出色的、有思想的声音，我个人非常感谢她为这家公司所做的一切”。
+纽约市已经接种了超过1250万剂的疫苗。近650万纽约人–包括89%的成年人–已经接受了至少一剂疫苗。根据该市的数据，超过12.5万名5-11岁的儿童已经接受了至少一剂疫苗。
 
-在Hellmann担任辉瑞公司董事会成员期间，Facebook发起了审查COVID-19疫苗怀疑者的活动，因为该公司泄露的内部文件显示，其算法旨在 “大幅减少用户在评论中对疫苗犹豫不决（VH）的接触”。这份长达15页的文件–题为 “疫苗犹豫不决评论降级”–将其目标概括为 “减少这些评论的可见性是我们消除平台上用户可能遇到的疫苗接种障碍的另一个重要机会。潜在的另一个利益冲突是，Hellmann还在乔-拜登总统的科技顾问委员会任职，该委员会被白宫描述为 “负责向总统提出科学、技术和创新政策建议的唯一外部顾问机构”。
+秘翻新闻主编 Grace 编译报道
 
+校对/发布:星星
 
-# 每日文贵说
-![](http://himalayawashingtondc.org/wp-content/uploads/2021/12/215-1024x576.jpg)
-# 每日推特文摘
+* * *
 
-
-
-
-
-
-
-
-
-对#奥林匹克运动会的外交抵制是不够的。中国共产党根本不在乎外交抵制，因为到了最后，他们仍然在接待世界上的运动员。乔-拜登需要站出来反对中共。
-
-
-
-
-
-> A diplomatic boycott of the [#Olympics](https://twitter.com/hashtag/Olympics?src=hash&amp;ref_src=twsrc%5Etfw) is not enough. The CCP doesn’t give a rip about a diplomatic boycott, because at the end of the day, they are still hosting the world’s athletes. Joe Biden needs to stand up to the CCP. [#BoycottBeijingOlympics](https://twitter.com/hashtag/BoycottBeijingOlympics?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Mike Pompeo (@mikepompeo) [December 6, 2021](https://twitter.com/mikepompeo/status/1467931700818755585?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-2017年文贵先生就警告全世界，来自盗国贼的黑夜即将到来！用生命的代价来验证爆料革命的情报太愚蠢了，不相信新中国联邦情报的人，黑夜已经到了，时间早晚，先后顺序而已，一步一步把我们推进死亡的深渊……
-
-
-
-
-
-> 2017年文贵先生就警告‼️全世界，来自盗国贼的黑夜即将到来！用生命的代价来验证爆料革命的情报太愚蠢了，不相信新中国联邦情报的人，黑夜已经到了，时间早晚，先后顺序而已，一步一步把我们推进死亡💀的深渊…… [https://t.co/YTKuCt0Dh4](https://t.co/YTKuCt0Dh4)
-> — 爆料革命灭共俱乐部会员全球都用GTV哈恩新、新、新、新、新号。 (@GTV66879222) [December 6, 2021](https://twitter.com/GTV66879222/status/1467948240943607809?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-美国民调： 全面抵制北京2022冬奥: 47%支持（18%反对） 外交抵制： 48%支持（21%反对） 商务抵制： 60%支持（19%反对） 推迟或更改冬奥场地： 60%支持（17%反对） 反对和抵制共匪已经成为美国大多数的民意！
-
-
-
-
-
-> 美国民调：
-> 全面抵制北京2022冬奥:
-> 47%支持（18%反对）
-> 
-> 外交抵制：
-> 48%支持（21%反对）
-> 
-> 商务抵制：
-> 60%支持（19%反对）
-> 
-> 推迟或更改冬奥场地：
-> 60%支持（17%反对）
-> 
-> 反对和抵制共匪已经成为美国大多数的民意！ [pic.twitter.com/NbfXP8zR8G](https://t.co/NbfXP8zR8G)
-> — 瞿水台 Qu Shuitai (@QuShuitai) [December 6, 2021](https://twitter.com/QuShuitai/status/1467999601806516225?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-咬著牙看完的直播。大冬天抢别人房子还把员工，住户，客人扔到马路上，穿睡衣，连衣服不让换，还有这种野蛮。很多国家就是租客没有钱交租也不能赶人出门，而且这些人没有错，拥有合法产权，私人财产神圣不可侵犯的，这是法律基本。
-这次事件的无法无天，会令全球资本，企业，技术，人才都会离开中共国
-
-
-
-
-
-> 咬著牙看完的直播。大冬天搶別人房子還把員工，住戶，客人扔到馬路上，穿睡衣，連衣服不讓換，還有這種野蠻。很多國家就是租客沒有錢交租也不能趕人出門，而且這些人沒有錯，擁有合法產權，私人財產神聖不可侵犯的，這是法律基本。
-> 這次事件的無法無天，會令全球資本，企業，技術，人才都會離開中共國 [pic.twitter.com/bEPi2TPdzV](https://t.co/bEPi2TPdzV)
-> — 婦女之友-電流聲-7⚡️ (@feelsogoodnow) [December 6, 2021](https://twitter.com/feelsogoodnow/status/1467971720405413889?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-美国在面临经济下滑，通胀，和中共可能的金融暴雷的连环反应，仍然以人权为抓手政治抵制冬奥会。中共的千亿美元勾兑大计并没有成功。 这就是以毒灭共的政治压力带来的后果。 中共不解体，病毒问题也解决不了，中美两国关系就不可能正常化。
-
-
-
-
-
-> 美国在面临经济下滑，通胀，和中共可能的金融暴雷的连环反应，仍然以人权为抓手政治抵制冬奥会。中共的千亿美元勾兑大计并没有成功。
-> 这就是以毒灭共的政治压力带来的后果。
-> 中共不解体，病毒问题也解决不了，中美两国关系就不可能正常化。
-> — 冠军的亲爹（冠博士） (@Guan\_PhD) [December 7, 2021](https://twitter.com/Guan_PhD/status/1468013756257116160?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-游轮上爆发的Covid-19疫情，100%完全接种疫苗
-
-
-
-
-
-> Covid-19 outbreak on cruise ship with 100% fully vaccinated [https://t.co/FKijQHkldO](https://t.co/FKijQHkldO)
-> — Sharyl Attkisson🕵️‍♂️ (@SharylAttkisson) [December 6, 2021](https://twitter.com/SharylAttkisson/status/1467924004698787843?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-西班牙最高大法官Jorge Rodríguez-Zapata坚决抵制强制疫苗，地方法官也一再阻止强制疫苗政策的实施。但是，政客却羡慕德国，奥地利等施行的严酷的疫苗政策。法官里头有好人，政客都是王八蛋。
-
-
-
-
-
-> 西班牙最高大法官Jorge Rodríguez-Zapata坚决抵制强制疫苗，地方法官也一再阻止强制疫苗政策的实施。但是，政客却羡慕德国，奥地利等施行的严酷的疫苗政策。法官里头有好人，政客都是王八蛋。
-> Could Spain lock down its unvaccinated or make Covid vaccines compulsory? [https://t.co/jYrZASh06i](https://t.co/jYrZASh06i)
-> — 🔥火来2号🔥✊🌽🚀 (@jsdfposjpqyuee1) [December 6, 2021](https://twitter.com/jsdfposjpqyuee1/status/1467952277117751297?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-*编辑：冰川
-审核发布：文顾*
-
+**欢迎广大战友加入 【秘密翻译组-即时新闻播报组】**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/IMAGE-2021-11-29-195110-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

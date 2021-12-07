@@ -2,14 +2,14 @@
 ---
 
 
-## 美国政府正式宣布外交抵制北京2022冬奥会
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1728031/)
+## [文贵大直播PTT]病毒+疫苗大灾难
+` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1728055/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1207-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+撰稿：Eglise. 舒平风。莲心不染。坐看云起。MyWay 美工 小黑兔。stores
 
+[12月1日文贵大直播PTT病毒+疫苗大灾难]
+![](https://assets.gnews.org/wp-content/uploads/2021/12/p1.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/p2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/p3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/p4-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/p5-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/p6-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/p7-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/p8-1.jpg)
+发稿 abbs
 
  
 

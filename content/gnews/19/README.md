@@ -2,42 +2,24 @@
 ---
 
 
-## 18名澳大利亚人被指控参与全球洗钱活动
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1728228/)
+## 克里斯库默说CNN老板知道他涉及安徳鲁库默丑闻
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1728318/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-10.png)
+图片来源： http://www.hkstv.tv/
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Blockchain-Cryptos-1024x773-1.jpg)
+零对冲网12月6日报道，前CNN主播克里斯库默说，传媒执行长杰夫·扎克本来就知道他为了保护他哥哥，时任纽约州州长安徳鲁·库默所做的事情。
 
+库默的发言人周日告诉华尔街日报说克里斯·库默和扎克有着“广为人知的密切关系，经常互通有无，包括库默先生支持他哥哥的详细情况。亲近库默先生的其他都可以作证。”
 
+库默先生随着一些材料的披露，比他所承认的希望帮他哥哥的性骚扰案的程度更深，周六被CNN辞退，这些材料是由纽卡纽约检查官莱蒂蒂娅·詹姆斯所披露，她早前称至少有11名妇女指控他性骚扰。安徳鲁·库默在今年早些时候下台，但他坚称这些指控是假的。
 
-图片来源: www.planetcompliance.com
+周日，CNN告诉华尔街日报说所谓的克里斯·库默与扎克关系很铁的传言是不正确的。CNN说库默的很多说辞明显是错的，但并没有指出哪些是错的，由于库默违反了CNN的标准和操作过程以及他缺乏坦城，所以造成了他不能再留在CNN的原因。
 
+##### **新闻来源： **[Chris Cuomo Claims CNN’s Jeff Zucker Knew About His Involvement With Andrew Cuomo Scandal](https://www.zerohedge.com/political/chris-cuomo-claims-cnns-jeff-zucker-knew-about-his-involvement-andrew-cuomo-scandal)
 
-#### 编译 ：小红帽
-
-18名澳大利亚人因全球洗钱案而面临刑事指控。该行动阻止了260万澳元的 “赃款”在该国金融机构中的流动。
-
-澳大利亚联邦警察的行动确定了27名涉嫌洗钱的人。这些人被犯罪分子利用来转移资金，通常是来自犯罪所得的现金。
-
-澳大利亚联邦警察周二表示，有两人据称是洗钱组织的负责人。
-
-18人被新南威尔士州、昆士兰州、西澳大利亚州和维多利亚州警方指控，同时发出9封警告信，告诉人们停止涉嫌与洗钱有关的活动。
-
-澳大利亚警方、金融分析师和网络犯罪专家参与了这次全球行动，这次行动从9月中旬持续到11月底，其中包括来自27个国家的法律机构。
-
-澳大利亚联邦警察局网络犯罪指挥官本·凯斯（Ben Case）表示，犯罪分子利用各种手段说服人们去洗钱。国际学生是诈骗网络的一个常见目标。
-
-**参考新闻：**[Aussies charged in global laundering sting (thenewdaily.com.au)](https://thenewdaily.com.au/news/national/2021/12/07/aussies-charged-global-laundering-sting/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+# ** **
 
  
 

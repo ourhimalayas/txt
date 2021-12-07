@@ -2,25 +2,21 @@
 ---
 
 
-## 纽约市商业团体抨击对私营企业的疫苗强制令
-` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1728078/)
+## 安东尼奥-布朗和其他两名球员因伪造疫苗接种情况被N.F.L.禁赛
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1728223/)
 
-加拿大扬帆农场Spirit
-![](https://assets.gnews.org/wp-content/uploads/2021/12/IMG_3318-1.jpg)图片来源：New York Post
-根据《彭博社》12月6 日报道，纽约市合伙人组织的负责人凯瑟琳·怀尔德(Kathryn Wylde) 表示，他们被纽约市长比尔·德布拉西奥的措手不及的疫苗强制令惊到了。怀尔德代表的是一个有影响力的商业团体，摩根大通公司和高盛集团是其成员。
+作者：Rebecca (一切心皆不可得 ! )
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-05-19.44.54.jpg)
+美国国家橄榄球联盟和美国国家橄榄球联盟球员协会进行的审查认为，布朗和另外两名球员，即爱德华兹和自由球员约翰-富兰克林三世，都获得了假的疫苗接种卡。富兰克林如果被球队签下，将不得不缺席三场比赛。坦帕湾时报》11月18日首先报道了布朗获得该卡的消息，促使进行审查。
 
-纽约市长周一表示，所有私营部门的雇主必须要求他们的工人在12月27日之前接种疫苗，没有测试选项。这项任务将涵盖大约18.4万家企业。
+安东尼奥-布朗，美国国家橄榄球联盟中最好的接球员之一，在本赛季的最后几场比赛中被禁赛。停赛不是因为他在场上或场下做了什么。这是因为安东尼奥-布朗没有遵守联盟的规定，没有接种疫苗。
 
-尽管像高盛和摩根士丹利这样的许多大公司已经要求接种疫苗才能在他们的大楼里工作，但怀尔德说，该市强行规定的决定并没有与公司和高管协调，这将在商业界散播不确定性。
+许多人都想知道这对安东尼奥-布朗和他的职业生涯意味着什么。他明年还能回来吗？ 球员接种疫苗的其他原因是什么？
 
-怀尔德在周一的一份声明中说：“联邦、州和市各级的政策不一致使情况更糟，目前还不清楚谁将执行市长的疫苗强制，以及这项命令是否合法。拜登总统对雇员超过100人的雇主的疫苗强制目前因诉讼而搁浅，很难想象市长能做到总统被挑战的事情”。
+原文引用：[https://www.nytimes.com/2021/12/02/sports/football/antonio-brown-covid-vaccine-suspended.html](https://www.nytimes.com/2021/12/02/sports/football/antonio-brown-covid-vaccine-suspended.html)
 
-原文链接：
-[https://www.bnnbloomberg.ca/nyc-business-group-blasts-private-sector-vaccine-mandate-1.1691865](https://www.bnnbloomberg.ca/nyc-business-group-blasts-private-sector-vaccine-mandate-1.1691865)
-
-* * *
-
-发稿Spirit
+审核校对：Barry Jack
+上传排版：F
 
  
 

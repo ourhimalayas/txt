@@ -2,27 +2,31 @@
 ---
 
 
-## 新西兰 1400 名学校教师拒绝接种 Covid-19
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1728196/)
+## GTV新闻访谈简报|2021年12月6日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1728255/)
 
-编译：GingerDaddy
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-07-10.10.42.png)
-教育部的数据显示，有 2.4% 的学校教师（约 1400 人）拒绝接种 Covid 疫苗。
+作者：香草山翻译部
 
-官方数据显示，去年有 62,600 名教师在公立学校工作，另外还有 9000 名代课教师。从目前的接种率可以计算出，一共有1400 多名未接种疫苗的教师。教育部说这个不是最终的数据。
-
-目前，Tai Tokerau（即Northland，北地） 报告的疫苗接种率最低，为 93%，表明该地区约有 100 名教师拒绝注射。
-
-丰盛湾和怀亚里基的学校报告教师的疫苗接种率为 96%，而尼尔森、马尔堡、西海岸和塔拉纳基、马纳瓦图、旺格努伊的疫苗接种率略低于 97%。惠灵顿的注册教师疫苗接种率最高，为 98.3%，其次是坎特伯雷/查塔姆群岛、奥克兰和奥塔哥/南地，教师的疫苗接种率均至少为 98%。
-
-该部表示，由于疫苗的强制政策，很少有学校需要人员配备方面的支持。 自 11 月 16 日起，未接种疫苗的工作人员被禁止进入学校和早教中心。所有与儿童接触的工作人员必须在 2022 年 1 月 1 日前全面接种疫苗。
-
-新闻链接： [https://www.rnz.co.nz/news/national/457067/about-1400-school-teachers-refuse-covid-19-vaccination](https://www.rnz.co.nz/news/national/457067/about-1400-school-teachers-refuse-covid-19-vaccination)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-109-1280x172-1-2-1.jpg)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1206text-SC.png)
+校对：Stay文苑
 
-审核校对：Barry Jack
-上传排版：F
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+视频参看：[12.6  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61aeb8bebbd75f62e531446b)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-69.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
