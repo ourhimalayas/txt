@@ -2,27 +2,42 @@
 ---
 
 
-## 新西兰 1400 名学校教师拒绝接种 Covid-19
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1728196/)
+## 18名澳大利亚人被指控参与全球洗钱活动
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1728228/)
 
-编译：GingerDaddy
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-07-10.10.42.png)
-教育部的数据显示，有 2.4% 的学校教师（约 1400 人）拒绝接种 Covid 疫苗。
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-官方数据显示，去年有 62,600 名教师在公立学校工作，另外还有 9000 名代课教师。从目前的接种率可以计算出，一共有1400 多名未接种疫苗的教师。教育部说这个不是最终的数据。
-
-目前，Tai Tokerau（即Northland，北地） 报告的疫苗接种率最低，为 93%，表明该地区约有 100 名教师拒绝注射。
-
-丰盛湾和怀亚里基的学校报告教师的疫苗接种率为 96%，而尼尔森、马尔堡、西海岸和塔拉纳基、马纳瓦图、旺格努伊的疫苗接种率略低于 97%。惠灵顿的注册教师疫苗接种率最高，为 98.3%，其次是坎特伯雷/查塔姆群岛、奥克兰和奥塔哥/南地，教师的疫苗接种率均至少为 98%。
-
-该部表示，由于疫苗的强制政策，很少有学校需要人员配备方面的支持。 自 11 月 16 日起，未接种疫苗的工作人员被禁止进入学校和早教中心。所有与儿童接触的工作人员必须在 2022 年 1 月 1 日前全面接种疫苗。
-
-新闻链接： [https://www.rnz.co.nz/news/national/457067/about-1400-school-teachers-refuse-covid-19-vaccination](https://www.rnz.co.nz/news/national/457067/about-1400-school-teachers-refuse-covid-19-vaccination)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Blockchain-Cryptos-1024x773-1.jpg)
 
 
 
-审核校对：Barry Jack
-上传排版：F
+图片来源: www.planetcompliance.com
+
+
+#### 编译 ：小红帽
+
+18名澳大利亚人因全球洗钱案而面临刑事指控。该行动阻止了260万澳元的 “赃款”在该国金融机构中的流动。
+
+澳大利亚联邦警察的行动确定了27名涉嫌洗钱的人。这些人被犯罪分子利用来转移资金，通常是来自犯罪所得的现金。
+
+澳大利亚联邦警察周二表示，有两人据称是洗钱组织的负责人。
+
+18人被新南威尔士州、昆士兰州、西澳大利亚州和维多利亚州警方指控，同时发出9封警告信，告诉人们停止涉嫌与洗钱有关的活动。
+
+澳大利亚警方、金融分析师和网络犯罪专家参与了这次全球行动，这次行动从9月中旬持续到11月底，其中包括来自27个国家的法律机构。
+
+澳大利亚联邦警察局网络犯罪指挥官本·凯斯（Ben Case）表示，犯罪分子利用各种手段说服人们去洗钱。国际学生是诈骗网络的一个常见目标。
+
+**参考新闻：**[Aussies charged in global laundering sting (thenewdaily.com.au)](https://thenewdaily.com.au/news/national/2021/12/07/aussies-charged-global-laundering-sting/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,19 +2,47 @@
 ---
 
 
-## 郭文贵精品视频-中共与WHO再次勾兑
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1727859/)
+## 日本政府、媒体强硬回击中共
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1727878/)
 
-撰稿：澳喜cindy
+作者：日本方舟农场 Andy5
 
-12月1日Omicron病毒才被美国发现，WHO就先知先觉已经为新的病毒取好了讨好习近平的名字；病毒还没开始传染了中共官方卫生部门就说了：我们有了一系列对抗Omicron 的疫苗了。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo.png)
 
-中共这次没有把他的致死率高的其他病毒放出来，而是把这个高传染率但低致死率的Omicorn释放出来，是有他的计划的。据中国逃到欧洲的病毒科学家及俄罗斯等科学家分析：这个新病毒的出现可能把现在的疫苗病毒进行消失和弱化。
 
-共产党会和世界卫生组织和西方世界达成交易，交易的牺牲之一就是台湾。这是中共对西方世界战前的超限战，用“恩惠”让你们放弃保卫台湾，用“大棒”警告你们：我还有50种更厉害的病毒呢！多么邪恶！多么无耻！
 
-*编辑：cindy*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-2.jpg)
+
+
+日本前首相安倍晋三在出席台湾智库论坛时的表态继续发酵，中共泼妇骂街的丑陋行径导致日本政府和媒体发表强硬回击。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-05-at-7.03.30-PM.png)图片来源: GETTR
+
+据日本TBS新闻报道，安倍前首相发出警告，“军事上的冒险将导致经济上的自杀”，来牵制日益对台湾军事施压的中共后，中共外交部做出了激烈的反应。日媒称，在外交部发言人愤怒表态后，连夜召见日本驻中共国大使的行为是非常罕见的。
+
+而此举也进一步让日本变得更加强硬。首先日媒报道称被召见的大使垂秀夫当场反驳了华春莹，他说道“中共政府方面必须理解日本在台湾局势上的担忧”。之后在2日新闻发布会上，日本政府表示，关于台湾问题，中共方面需要理解日本国内出现了安倍前首相这样的想法。而日本媒体更是将中共外交部的行为总结为：这是中共政府变得神经质的体现。
+
+**参考阅读：**
+
+[https://www.gettr.com/post/piicte99bb](https://www.gettr.com/post/piicte99bb)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/rl-1-556x720.png)
+
+编辑/校对/发稿：一烘
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
