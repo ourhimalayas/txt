@@ -2,21 +2,37 @@
 ---
 
 
-## 【粤语配音】2021年12月5日文贵直播：躺平币未来的收益
-` MOS香港部` [轉載自GNews](https://gnews.org/zh-hans/1726654/)
+## 以色列首现巨幅反疫苗广告
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1726708/)
 
-紐約香草山-香港部
+作者：纽约香草山健身部 – Ivy001
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间12月5日，在以色列的大街上，挂起了高达6，7层楼的巨幅广告：一个被妈妈拉着小手的小男孩，忧伤的看着镜头说，“妈妈，请不要把我的手交给他们！”下方是醒目的疫苗针管标志。
 
-躺平币肯定是公链，然后能让很多人得到，完全是不经过任何人工审核的，但是到最后你要兑现的时候，它必须要经过兑现平台的KYC，那是一定的，但是你得到这个币未来，比如说盖特，加入盖特之后你有认证V了，根据你的关注者，你就一下子看到我有这个币了，就是给你的。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Untitled.001-2-edited.jpeg)
 
-咱们都有标准的，自然而然就到你的帐号上去了，而且完全不会是经过联盟委员会，就是所有的东西都给你定下标准了，比如说躺平，我怎么知道你躺平了，你怎么能证明你躺平了？因为你只要上去这个电脑，你只要用手机，你做了以下的行动，就等于躺平了。多少时间内，你推一个信息，多少时间内，你用了一次盖特，多少时间内，你发了一个信息，因为现在电脑和区块链的技术，可以确定你的行为，一切是真是假。
+在11月29日，纽约拉比法庭裁定：向儿童和大多数成年人注射中共病毒疫苗是违法犹太法律的，裁决明确禁止向儿童、青少年和育龄成年人注射以及推广中共病毒疫苗。
 
-那躺屏蔽如何确定躺平？和躺平的价值和标准，未来这就是新中国联邦的雏形。你的工作能力和结果和时间，就决定了你的层次和级别，和获得币的数量。根据获得币的数量，未来就在这个系统里面，就是你的定位，你的价值和层次，这就是区块链技术的魅力所在，谁也骗不了谁，你不给我也不可能，那个系统在那呢。
+这是在拉比法庭裁定之后，以色列首次高调出现反疫苗广告。
 
-这种按照劳动结果、时间，区块链根据你做出来的东西，就叫躺平币，关键是我怎么兑现呢？第一天你就能买面包、买油，我能吃饭，我能有油加，当然你能买G-Fashion了，当然能买G-Club了，这个躺平币它不是空间币，它不是虚幻币，它是真正的可兑换的，就是法币所有的功能都有，马上可以用。
+消息来源：[https://gettr.com/post/pivc6g27d9](https://gettr.com/post/pivc6g27d9)
 
-这种规则，让大家知道，我拿到币…就是我躺平的结果，下1分钟，我就有面包吃了，我就有油加，例如这样，我可以买G-Fashion,这个叫躺平币，只要躺平币出来，共产党就知道自己的棺材板儿该订上钉了…盖棺而论了。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
+**校对/发稿：童谣**
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

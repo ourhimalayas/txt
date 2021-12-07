@@ -2,46 +2,50 @@
 ---
 
 
-## 美国近三分之一州发现Omicron变体
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1727604/)
+## 拜登宣布使用太空新战略与中俄竞争
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1727857/)
 
-翻译：**Lulumi**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-6-2.jpg)图片来源：hk.news.yahoo.com
-根据对已报告病例的各州的统计，最近被命名为Omicron COVID-19的中共病毒变体已经在美国大约三分之一的州被发现。
+作者：东京樱花团—在远方
 
-在美国或世界各地，还没有出现与该变体有关的死亡病例，世界卫生组织上个月底将该变体描述为令人担忧的变体。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-2.png)
 
-截至周日，美国至少有16个州报告了Omicron病例。根据《大纪元》对新闻报道的统计，这16个州为：加利福尼亚、科罗拉多、康涅狄格、夏威夷、路易斯安那、马里兰、马萨诸塞、明尼苏达、密苏里、内布拉斯加、新泽西、纽约、宾夕法尼亚、犹他、华盛顿和威斯康星。
 
-在某些情况下，完全接种疫苗的人感染了中共病毒COVID-19 Omicron变体。例如，明尼苏达州卫生部于12月2日证实，一名完全接种疫苗的男性在参加纽约市的一个动漫节活动时感染了这种新毒株。
 
-拜登政府COVID-19顾问福奇周日在接受CNN的“国情咨文”采访时说，到目前为止，“它看起来并没有很大的严重性”，它指的是Omicron。但他指出，现在得出明确的结论还为时过早，还需要更多的数据。
 
-美国疾病控制和预防中心主任罗谢尔·瓦伦斯基在接受ABC新闻采访时说，COVID-19 Delta变体占美国所有病例的绝大多数。
 
-但是对于Omicron，官员们“每天都会听到越来越多的可能病例，所以这个数字可能会上升，”她说。
+当地时间12月1日，拜登政府宣布美国使用太空新战略，对太空进行民间、商业和与国家安全相关的负责任的使用，以应对中共和俄罗斯的威胁。
 
-迄今为止，在美国已经发现了大约20例Omicron变体的中共病毒。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-05-at-7.01.47-PM.png)图片来源: VOAChinese
 
-南非医学协会负责人安吉利克·科茨博士上周告诉媒体，南非的Omicron患者表现出轻微的症状，并补充说，一个受感染的人不会出现丧失味觉或嗅觉的症状。
+中共今年实验了超高音速武器，增加了地球轨道武器竞赛的前景，而地球轨道武器系统可能躲避目前的导弹防御系统。拜登政府同时谴责俄罗斯上月进行的反卫星武器实验，后者产生的碎片对国际空间站构成了威胁。
 
-而在一项初步研究中，几位研究人员在12月3日写道，Omicron是唯一含有“插入突变”的中共病毒变体，被称为ins214EPE，研究人员说这可能是人类基因组或病毒来源。
+拜登近日还计划签署行政命令，把教育部、劳工部、农业部和内政部的负责人，以及总统国家气候顾问，增列为国家航天委员会成员。美国政府还希望国家航天委员会，努力增加太空气候数据、加强科学有关的努力，对美国增加就业并提高竞争力提供帮助。
 
-研究人员随后在一份预印本研究中推测，这种插入突变可能是在一个同时感染了中共病毒和HCoV-229E冠状病毒的人身上发生的，后者可以导致普通感冒。
+**参考阅读：**
 
-“由马萨诸塞州剑桥市分析生物医学信息的Nference公司的文基·萨达拉詹领导的研究小组在研究报告中写道：“Omicron插入可能是在一个共同感染的个体中演变出来的”，该研究报告尚未经过同行评审。
+[https://www.voachinese.com/a/biden-focus-on-space-20211201/6335621.html](https://www.voachinese.com/a/biden-focus-on-space-20211201/6335621.html)
 
-此后，美国、欧盟和一些国家对几个南部非洲国家实施了旅行限制。更进一步，日本和以色列已经因该变体的出现而禁止所有外国旅行。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/rl-1-556x720.png)
 
-**参考资料：**[theepochtimes][Omicron COVID-19 Variant Found in Almost One-Third of US States](https://www.theepochtimes.com/omicron-covid-19-variant-found-in-almost-one-third-of-us-states_4139991.html)
+编辑/校对/发稿：一烘
 
-* * *
+**更多资讯，更多关注**
 
-*审核：文乐
-校对：信心满满*
-*发布：信心的选择*
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH..jpeg)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-2.png)
+
+
+
+
 
  
 

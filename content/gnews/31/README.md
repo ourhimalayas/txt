@@ -2,204 +2,63 @@
 ---
 
 
-## Eglise医生讲解羟氯喹治好了战友的风湿性关节炎
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1726965/)
+## 雷·达利欧：美国亿万富翁称中国评论被误解
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1727363/)
 
-Chris你的手指症状完全有可能是风湿性关节炎
+作者：BBC News
+翻译：HimaCoby
 
-Chris, it is entirely possible that your finger symptoms are rheumatoid arthritis
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-55.jpg)
 
-因为人到一定年纪
+达里奥先生周末在社交媒体上表示，他在接受电视采访时发表的评论被误解了。
 
-Because at a certain age
+上周，当被问及持不同政见者失踪一事时，他将中国比作“严格的父母”。
 
-你不一定要诊断血液风湿病因检查你一定是阳性
+上个月，摩根大通老板杰米戴蒙在表示他的公司将比中国共产党更持久后道歉。
 
-you don’t have to diagnose blood rheumatoid etiology test you must be positive
+世界上最大的对冲基金桥水基金的创始人在推特和 LinkedIn 发表的帖子中表示，他“草率地回答了一个关于中国的问题”。
 
-因为它可以是早期
+在帖子中，他接着说，他并不是要淡化人权问题的重要性，而是“试图解释”中国的治理方式是儒家家庭观念的延伸。
 
-because it can be early
+“我向你保证，我并不是要表达人权不重要，因为我当然相信它们……我的首要目标是帮助理解，”该帖子继续说道。
 
-前期症状
+在达里奥先生最初发表评论后，他遭到共和党参议员米特罗姆尼的批评，后者指责他假装“不了解中国在那里的可怕虐待和合理化的同谋投资”，这是“可悲的道德失误”。
 
-Pre-existing symptoms
+去年 11 月，摩根大通首席执行官杰米·戴蒙 (Jamie Dimon) 表示，他对自己在华尔街的银行存在时间比中国共产党还要长的说法感到遗憾。
 
-不是很典型
+在美国的一次活动上发表的评论激起了中国的愤怒，专家警告说，这可能会危及该银行在世界第二大经济体的野心。
 
-Not very typical
+戴蒙先生在波士顿学院发表了他的言论，当时他在那里参加了对首席执行官的一系列采访。
 
-就是说你的血液检查不一定能检查出阳性
+“前几天我开玩笑说共产党正在庆祝成立 100 周年，摩根大通也是，”他说。
 
-That is, your blood test may not always be positive
+“我打赌我们能坚持更长时间，”他在活动中说。“我不能在中国这么说。反正他们可能在听，”他补充道。
 
-但是你的症状已经可以说明这一点
+这引发了迅速的反应，官方支持的《环球时报》总编辑胡锡进在推特上说：“要长远考虑！我敢打赌，中国共产党会比美国更长寿。”
 
-But your symptoms can already show this
+中国外交部发言人赵立坚在新闻发布会上说：“为什么用一些哗众取宠的言论做宣传噱头？”
 
-还有另外一方面可以证明你这是风湿性关节炎的另一个原因
+8月，摩根大通获批成为中国证券经纪公司的首家外资全资拥有人。
 
-There is another aspect that can prove that you have rheumatoid arthritis
+来源：https://www.bbc.com/news/business-59543875.amp
 
-就是倒推法
+（文章仅代表作者个人观点）
 
-That is, the backward projection method
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-就是你的治疗
+![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
 
-That is, your treatment
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-你这个治疗药物
+**关注我们**
 
-Your treatment medication
+Discord 账号
 
-因为伊维菌素和硫酸羟氯喹它们都可以治疗类风湿性关节炎
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-Because ivermectin and hydroxychloroquine sulfate both treat rheumatoid arthritis
+Gettr 账号
 
-和红斑性狼疮这样的免疫抑制性疾病
-
-and immunosuppressive diseases like lupus erythematosus
-
-它在WHO的使用药物的清单适应症上 它们有这个适应症的
-
-They are on the WHO list of indications for the use of drugs, and they have such indications
-
-也就是说它们的确是有免疫调节作用
-
-That means they do have immunomodulatory effects
-
-这就是为什么这些医生能够想到用这些药物来治疗新冠病毒
-
-That’s why these doctors thought of using these drugs to treat neocoronavirus.
-
-也是因为它们有这方面的适应症 本身在那里的
-
-It’s also because they have an indication for it, and it’s there in and of itself.
-
-只不过用于抗病毒 这是完全新的用途
-
-It’s just for antiviral, which is a completely new use.
-
-但是免疫抑制 本身就有这个适应症的
-
-But immunosuppression, itself, has this indication
-
-所以这样倒推的话
-
-So if you look at it backwards.
-
-你小指关节的疼痛 它是早期风湿性关节炎的症状
-
-The pain in your pinky joint is a symptom of early rheumatoid arthritis.
-
-因为你这个药物治疗 正确的药物就是解决了你的症状
-
-Because your medication is the right medication to address your symptoms
-
-从另一个方面证明 你的诊断是正确的
-
-On the other hand, it proves that your diagnosis is correct.
-
-尽管你的医生没有给你这个诊断
-
-Even though your doctor didn’t give you this diagnosis
-
-你自己做了诊断
-
-You made the diagnosis yourself
-
-对 他们医生就是一直恐吓我说
-
-Yeah, their doctors just kept threatening me that
-
-你这样用羟氯喹 你会失明的
-
-You’ll go blind if you take hydroxychloroquine like this.
-
-还有对你的肾脏会有很大的影响
-
-And that it would have a significant effect on your kidneys.
-
-这又是CDC危言耸听
-
-That’s another CDC scaremongering.
-
-这医生的信息哪里来的
-
-Where did these doctors get their information?
-
-就是这些主流媒体的 所谓一个新闻报道 就把这个药给打死了
-
-It’s the mainstream media that killed this drug with one so-called news report
-
-伊维菌素过去30年 硫酸羟氯喹过去40在WHO的基本药物使用清单上
-
-Ivermectin has been on the WHO list of essential drugs for the past 30 years and hydroxychloroquine sulfate for the past 40
-
-是最最广泛使用的药物
-
-It is the most widely used drug
-
-因为寄生虫的适应症 所以世界各个角落
-
-Because of the parasitic indications, they are used in every corner of the world.
-
-这些贫穷国家都在用这些药物
-
-These poor countries are using these drugs.
-
-默克是伊维菌素的生产厂家 最早以前
-
-Merck is the manufacturer of ivermectin, and in the early days
-
-默克还给WHO捐过40亿盒的伊维菌素
-
-Merck donated 4 billion boxes of ivermectin to the WHO.
-
-是捐献 发放到非洲这些 高寄生虫发病国家
-
-It was a donation that was distributed to countries in Africa that had a high incidence of parasites
-
-所以那么多年 30-40年用下来
-
-So over the years, 30-40 years of use.
-
-伊维菌素到目前记录在案的严重副反应只有28例
-
-Ivermectin has only 28 cases of serious side effects recorded so far
-
-只有28例到目前为止
-
-Only 28 cases so far
-
-而且最严重的一例就是 急性肝炎
-
-And the most serious case is acute hepatitis
-
-然后 停药了以后 排毒 这个病人后来也挺好的
-
-Then, after stopping the drug, the patient was detoxified and did well afterwards.
-
-没有一例死亡的
-
-Not a single case of death
-
-28例所谓严重副反应是皮肤反应 胃肠道出血
-
-The 28 so-called serious side effects were skin reactions and gastrointestinal bleeding
-
-最后停药后都好转了
-
-Finally, they all got better after stopping the drug
-
-所以说这个药物致失明 心衰 那真的是夸大其词了
-
-So to say that this drug causes blindness and heart failure is really an exaggeration
-
-就是不想让我们用这个药 明显
-
-They just don’t want us to use this drug, obviously
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

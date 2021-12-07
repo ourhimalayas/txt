@@ -15,110 +15,110 @@
 
 ---
 
-### [辽宁省大连市中级人民法院公告](/content/gnews/1/README.md)
- ` 秘密翻译组-北美组`
-
-### [郭文贵精品视频-邪恶中共早已预谋杀死“天敌”基督教徒](/content/gnews/2/README.md)
+### [郭文贵精品视频-中美之战来临之际，媒体别再助纣为虐了](/content/gnews/1/README.md)
  ` 澳喜农场`
 
-### [【信仰之声】「启示录」的启示（1）爱是永恒的能量](/content/gnews/3/README.md)
+### [2021年12月6日 澳喜要闻摘要](/content/gnews/2/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [美国政府将在本周宣布对北京冬奥会的外交抵制](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [日本政府、媒体强硬回击中共](/content/gnews/4/README.md)
+ ` GTV News Talk`
+
+### [Omicron变种病毒在酒店大厅的传播凸显了对传输的担忧](/content/gnews/5/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [文贵先生最新爆料：关于新中国联邦人的三大利好消息](/content/gnews/6/README.md)
+ ` GTV News Talk`
+
+### [纽约市宣布对私营企业员工进行COVID疫苗接种，对儿童提出新要求](/content/gnews/7/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [郭文贵精品视频-中共与WHO再次勾兑](/content/gnews/8/README.md)
+ ` 澳喜农场`
+
+### [拜登宣布使用太空新战略与中俄竞争](/content/gnews/9/README.md)
+ ` GTV News Talk`
+
+### [辽宁省大连市中级人民法院公告](/content/gnews/10/README.md)
+ ` 秘密翻译组-北美组`
+
+### [白宫官宣将外交抵制北京冬奥会](/content/gnews/11/README.md)
+ ` HimalayaRussia`
+
+### [关于指定盘古大观应急物业服务企业的公告](/content/gnews/12/README.md)
+ ` 秘密翻译组-北美组`
+
+### [G时评：看破红尘、思维定势与三性](/content/gnews/13/README.md)
+ ` GISELLE`
+
+### [美官员警告：中共准备在大西洋建立首个海军基地](/content/gnews/14/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [郭文贵精品视频-邪恶中共早已预谋杀死“天敌”基督教徒](/content/gnews/15/README.md)
+ ` 澳喜农场`
+
+### [【信仰之声】「启示录」的启示（1）爱是永恒的能量](/content/gnews/16/README.md)
  ` 纽约香草山MOS03`
 
-### [2021年12月6日郭文贵先生健身直播全文字版](/content/gnews/4/README.md)
+### [2021年12月6日郭文贵先生健身直播全文字版](/content/gnews/17/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [独裁者的暴政是如何形成的](/content/gnews/5/README.md)
+### [独裁者的暴政是如何形成的](/content/gnews/18/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中共国房地产行业刚性负债高达24兆人民币](/content/gnews/6/README.md)
+### [中共国房地产行业刚性负债高达24兆人民币](/content/gnews/19/README.md)
  ` 日本东京方舟农场`
 
-### [成千上万律师和医学专家对世界领导人发起纽伦堡审判](/content/gnews/7/README.md)
+### [成千上万律师和医学专家对世界领导人发起纽伦堡审判](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [无底线中共再次突击北京盘古，新中国联邦吹响反击集结号](/content/gnews/8/README.md)
+### [无底线中共再次突击北京盘古，新中国联邦吹响反击集结号](/content/gnews/21/README.md)
  ` YALUN 亚伦`
 
-### [美国近三分之一州发现Omicron变体](/content/gnews/9/README.md)
+### [美国近三分之一州发现Omicron变体](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [日本首相称将大幅强化该国防御力量](/content/gnews/10/README.md)
+### [日本首相称将大幅强化该国防御力量](/content/gnews/23/README.md)
  ` 日本东京方舟农场`
 
-### [专家不确定加拿大全民疫苗强制可行](/content/gnews/11/README.md)
+### [专家不确定加拿大全民疫苗强制可行](/content/gnews/24/README.md)
  ` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)`
 
-### [疫苗护照不是目的，杀人和医疗垄断才是目的](/content/gnews/12/README.md)
+### [疫苗护照不是目的，杀人和医疗垄断才是目的](/content/gnews/25/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [接种过两针莫德纳疫苗的日籍男子确诊感染Omicron](/content/gnews/13/README.md)
+### [接种过两针莫德纳疫苗的日籍男子确诊感染Omicron](/content/gnews/26/README.md)
  ` 日本东京方舟农场`
 
-### [【#G时新闻】英国11月新冠死亡病例80%是疫苗完全接种者！](/content/gnews/14/README.md)
+### [【#G时新闻】英国11月新冠死亡病例80%是疫苗完全接种者！](/content/gnews/27/README.md)
  ` G-时新闻`
 
-### [每日快报：纽约市为所有私人雇主制定了 Covid 疫苗规定](/content/gnews/15/README.md)
+### [每日快报：纽约市为所有私人雇主制定了 Covid 疫苗规定](/content/gnews/28/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [被民主峰会拒之门外的中共竟标榜自己才是“民主”化身](/content/gnews/16/README.md)
+### [被民主峰会拒之门外的中共竟标榜自己才是“民主”化身](/content/gnews/29/README.md)
  ` 日本东京方舟农场`
 
-### [中共国的维吾尔族强迫劳动产品进入全球品牌](/content/gnews/17/README.md)
+### [中共国的维吾尔族强迫劳动产品进入全球品牌](/content/gnews/30/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [独裁的特征](/content/gnews/18/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [H-pay的发展窗口期](/content/gnews/19/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [疫苗有效性正急剧下降，为什么要强制使用一种不起作用的药物？](/content/gnews/20/README.md)
- ` MG 澳喜农场多语组`
-
-### [德国下任外长从一开始就激起了中共国的怒火](/content/gnews/21/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [雷·达利欧：美国亿万富翁称中国评论被误解](/content/gnews/22/README.md)
+### [雷·达利欧：美国亿万富翁称中国评论被误解](/content/gnews/31/README.md)
  ` MG FARM`
 
-### [从100%接种的餐厅病毒大爆发见证“疫苗”的荒唐！](/content/gnews/23/README.md)
- ` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)`
-
-### [西班牙调查发现：疫苗护照对降低新冠病毒感染率没有影响](/content/gnews/24/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [秘翻在线: 中共入夜执行法院令，查封盘古酒店公寓](/content/gnews/25/README.md)
+### [秘翻在线: 中共入夜执行法院令，查封盘古酒店公寓](/content/gnews/32/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [SEC正在调查川普的新社交媒体公司](/content/gnews/26/README.md)
- ` HimalayaRussia`
-
-### [因所谓死亡威胁达沃斯经济论坛取消公开论坛环节](/content/gnews/27/README.md)
- ` 秘密翻译组-原创组`
-
-### [内华达州是美国第一个对未接种疫苗工人征收附加费的州](/content/gnews/28/README.md)
+### [恒大发出无法偿债警告后，广东省政府传唤恒大董事长](/content/gnews/33/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [七哥谈数字银行传递与支付](/content/gnews/29/README.md)
- ` MG FARM`
-
-### [约翰逊议员批福奇破坏早期治疗害死美国人](/content/gnews/30/README.md)
- ` HimalayaRussia`
-
-### [Eglise医生讲解羟氯喹治好了战友的风湿性关节炎](/content/gnews/31/README.md)
- ` HimalayaRussia`
-
-### [恒大发出无法偿债警告后，广东省政府传唤恒大董事长](/content/gnews/32/README.md)
+### [滴滴计划从纽交所退市，股价暴跌逾20%](/content/gnews/34/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [滴滴计划从纽交所退市，股价暴跌逾20%](/content/gnews/33/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [以色列首现巨幅反疫苗广告](/content/gnews/34/README.md)
+### [以色列首现巨幅反疫苗广告](/content/gnews/35/README.md)
  ` 纽约香草山MOS02`
-
-### [【粤语配音】2021年12月5日文贵直播：躺平币未来的收益](/content/gnews/35/README.md)
- ` MOS香港部`
 
 ### [15项技能将帮助您在灾难来临后的世界中生存](/content/gnews/36/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -159,26 +159,26 @@
 ### [印俄将签署海军后勤协同保障协议：共享港口设施、相互加油维修](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共用假民主批评美国真民主](/content/gnews/49/README.md)
+### [“口炮”中国又现“红色键盘侠”](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [躺平币让你第一天就能买面包买油能吃饭有法币全部功能](/content/gnews/50/README.md)
+### [中共用假民主批评美国真民主](/content/gnews/50/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [躺平币让你第一天就能买面包买油能吃饭有法币全部功能](/content/gnews/51/README.md)
  ` NewFOC`
 
-### [圣诞节临近美国航运停滞情况恶化](/content/gnews/51/README.md)
+### [圣诞节临近美国航运停滞情况恶化](/content/gnews/52/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [日本同意承担更多美国驻军费用](/content/gnews/52/README.md)
+### [日本同意承担更多美国驻军费用](/content/gnews/53/README.md)
  ` HimalayaRussia`
-
-### [美海军司令呼吁在太平洋部署更多航母威慑中俄避免冲突](/content/gnews/53/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [日本要闻汇编 12月5日](/content/gnews/54/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [三儿童死亡 越南清化暂停使用一批辉瑞疫苗](/content/gnews/55/README.md)
- ` HimalayaRussia`
+### [恒大业主维权，政府出动警察镇压](/content/gnews/55/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [日台关系如胶似漆 二度举行“外交国防2+2”](/content/gnews/56/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
