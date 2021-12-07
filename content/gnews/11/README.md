@@ -2,14 +2,25 @@
 ---
 
 
-## [文贵大直播PTT]病毒+疫苗大灾难
-` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1728055/)
+## 纽约市商业团体抨击对私营企业的疫苗强制令
+` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1728078/)
 
-撰稿：Eglise. 舒平风。莲心不染。坐看云起。MyWay 美工 小黑兔。stores
+加拿大扬帆农场Spirit
+![](https://assets.gnews.org/wp-content/uploads/2021/12/IMG_3318-1.jpg)图片来源：New York Post
+根据《彭博社》12月6 日报道，纽约市合伙人组织的负责人凯瑟琳·怀尔德(Kathryn Wylde) 表示，他们被纽约市长比尔·德布拉西奥的措手不及的疫苗强制令惊到了。怀尔德代表的是一个有影响力的商业团体，摩根大通公司和高盛集团是其成员。
 
-[12月1日文贵大直播PTT病毒+疫苗大灾难]
-![](https://assets.gnews.org/wp-content/uploads/2021/12/p1.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/p2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/p3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/p4-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/p5-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/p6-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/p7-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/p8-1.jpg)
-发稿 abbs
+纽约市长周一表示，所有私营部门的雇主必须要求他们的工人在12月27日之前接种疫苗，没有测试选项。这项任务将涵盖大约18.4万家企业。
+
+尽管像高盛和摩根士丹利这样的许多大公司已经要求接种疫苗才能在他们的大楼里工作，但怀尔德说，该市强行规定的决定并没有与公司和高管协调，这将在商业界散播不确定性。
+
+怀尔德在周一的一份声明中说：“联邦、州和市各级的政策不一致使情况更糟，目前还不清楚谁将执行市长的疫苗强制，以及这项命令是否合法。拜登总统对雇员超过100人的雇主的疫苗强制目前因诉讼而搁浅，很难想象市长能做到总统被挑战的事情”。
+
+原文链接：
+[https://www.bnnbloomberg.ca/nyc-business-group-blasts-private-sector-vaccine-mandate-1.1691865](https://www.bnnbloomberg.ca/nyc-business-group-blasts-private-sector-vaccine-mandate-1.1691865)
+
+* * *
+
+发稿Spirit
 
  
 

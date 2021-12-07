@@ -2,42 +2,16 @@
 ---
 
 
-## 18名澳大利亚人被指控参与全球洗钱活动
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1728228/)
+## 秘翻在线：就美国抵制北京冬奥会国际奥委会表明立场
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1728247/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+撰稿：待命（文暁）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/画像1-4.png)（图片源自本文链接）
+12月7日时事通信社报道了法新社洛桑消息： 国际奥林匹克委员会（IOC）发言人6日表示，”尊重 “美国政府宣布对明年2月在北京举行的冬奥会进行 “外交抵制”。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Blockchain-Cryptos-1024x773-1.jpg)
+国际奥委会发言人告诉法新社，政府官员和外交官的出席与否，完全是每个政府的政治决定，国际奥委会从政治中立的角度给予尊重。外交抵制并没有达到阻止美国队参加比赛的程度，这表明奥运会和运动员的参与超越了政治。因此，我们对此表示尊重。
 
-
-
-图片来源: www.planetcompliance.com
-
-
-#### 编译 ：小红帽
-
-18名澳大利亚人因全球洗钱案而面临刑事指控。该行动阻止了260万澳元的 “赃款”在该国金融机构中的流动。
-
-澳大利亚联邦警察的行动确定了27名涉嫌洗钱的人。这些人被犯罪分子利用来转移资金，通常是来自犯罪所得的现金。
-
-澳大利亚联邦警察周二表示，有两人据称是洗钱组织的负责人。
-
-18人被新南威尔士州、昆士兰州、西澳大利亚州和维多利亚州警方指控，同时发出9封警告信，告诉人们停止涉嫌与洗钱有关的活动。
-
-澳大利亚警方、金融分析师和网络犯罪专家参与了这次全球行动，这次行动从9月中旬持续到11月底，其中包括来自27个国家的法律机构。
-
-澳大利亚联邦警察局网络犯罪指挥官本·凯斯（Ben Case）表示，犯罪分子利用各种手段说服人们去洗钱。国际学生是诈骗网络的一个常见目标。
-
-**参考新闻：**[Aussies charged in global laundering sting (thenewdaily.com.au)](https://thenewdaily.com.au/news/national/2021/12/07/aussies-charged-global-laundering-sting/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+信息源：[米政府の決定尊重　「政治的中立の立場」から　IOC（時事通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/b4749e1d32df07b8ec75f32bf72bbc62a74b6845)
 
  
 

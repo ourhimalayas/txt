@@ -2,21 +2,42 @@
 ---
 
 
-## 安东尼奥-布朗和其他两名球员因伪造疫苗接种情况被N.F.L.禁赛
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1728223/)
+## 18名澳大利亚人被指控参与全球洗钱活动
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1728228/)
 
-作者：Rebecca (一切心皆不可得 ! )
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-05-19.44.54.jpg)
-美国国家橄榄球联盟和美国国家橄榄球联盟球员协会进行的审查认为，布朗和另外两名球员，即爱德华兹和自由球员约翰-富兰克林三世，都获得了假的疫苗接种卡。富兰克林如果被球队签下，将不得不缺席三场比赛。坦帕湾时报》11月18日首先报道了布朗获得该卡的消息，促使进行审查。
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-安东尼奥-布朗，美国国家橄榄球联盟中最好的接球员之一，在本赛季的最后几场比赛中被禁赛。停赛不是因为他在场上或场下做了什么。这是因为安东尼奥-布朗没有遵守联盟的规定，没有接种疫苗。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Blockchain-Cryptos-1024x773-1.jpg)
 
-许多人都想知道这对安东尼奥-布朗和他的职业生涯意味着什么。他明年还能回来吗？ 球员接种疫苗的其他原因是什么？
 
-原文引用：[https://www.nytimes.com/2021/12/02/sports/football/antonio-brown-covid-vaccine-suspended.html](https://www.nytimes.com/2021/12/02/sports/football/antonio-brown-covid-vaccine-suspended.html)
 
-审核校对：Barry Jack
-上传排版：F
+图片来源: www.planetcompliance.com
+
+
+#### 编译 ：小红帽
+
+18名澳大利亚人因全球洗钱案而面临刑事指控。该行动阻止了260万澳元的 “赃款”在该国金融机构中的流动。
+
+澳大利亚联邦警察的行动确定了27名涉嫌洗钱的人。这些人被犯罪分子利用来转移资金，通常是来自犯罪所得的现金。
+
+澳大利亚联邦警察周二表示，有两人据称是洗钱组织的负责人。
+
+18人被新南威尔士州、昆士兰州、西澳大利亚州和维多利亚州警方指控，同时发出9封警告信，告诉人们停止涉嫌与洗钱有关的活动。
+
+澳大利亚警方、金融分析师和网络犯罪专家参与了这次全球行动，这次行动从9月中旬持续到11月底，其中包括来自27个国家的法律机构。
+
+澳大利亚联邦警察局网络犯罪指挥官本·凯斯（Ben Case）表示，犯罪分子利用各种手段说服人们去洗钱。国际学生是诈骗网络的一个常见目标。
+
+**参考新闻：**[Aussies charged in global laundering sting (thenewdaily.com.au)](https://thenewdaily.com.au/news/national/2021/12/07/aussies-charged-global-laundering-sting/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

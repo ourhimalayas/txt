@@ -2,26 +2,50 @@
 ---
 
 
-## 辽宁省大连市中级人民法院公告
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1727850/)
+## 拜登宣布使用太空新战略与中俄竞争
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1727857/)
 
-秘密翻译组-北美组
+作者：东京樱花团—在远方
 
-(2018)辽02执1438号
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-2.png)
 
-本院在执行被执行人北京政泉控股有限公司犯强迫交易罪一案中，接续大连市公安局查封了位于北京朝阳区北四环路27号院部分房产。为依法执行生效刑事判决，现就涉案财产的查封及保管事项公告如下：        一、查封位于北京市朝阳区北四环中路27号院房产内的动产、添附及附属设施等财产（在先合法租赁以及因合法继受占有使用等房产权利人的自有合法财产除外），查封期限自2021年12月6日起至2022年12月5日止。在上述期限内，任何人不得对查封的财产转移、设定权利负担或者有其他有碍执行的行为，否则本院将依法追究其法律责任。
 
-二、为依法处置涉案资产，平等保护各方权益，保障涉案财产物安全完整和资产价值，便于涉案财物下一步处置，变价和交付，自本公告发布之日起，将本院已查封的房产及上述第一项动产、添附及附属设施等财产委托第三方保管。
 
-三、受新冠疫情影响，本院依法委托北京市第三中级人民法院开展相关执行工作。
 
-特此公告
 
-辽宁省大连市中级人民法院
+当地时间12月1日，拜登政府宣布美国使用太空新战略，对太空进行民间、商业和与国家安全相关的负责任的使用，以应对中共和俄罗斯的威胁。
 
-2021年12月6日
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-05-at-7.01.47-PM.png)图片来源: VOAChinese
 
-[2018辽02执1438号](https://assets.gnews.org/wp-content/uploads/2021/12/2018辽02执1438号-1.pdf)[Download](https://assets.gnews.org/wp-content/uploads/2021/12/2018辽02执1438号-1.pdf)
+中共今年实验了超高音速武器，增加了地球轨道武器竞赛的前景，而地球轨道武器系统可能躲避目前的导弹防御系统。拜登政府同时谴责俄罗斯上月进行的反卫星武器实验，后者产生的碎片对国际空间站构成了威胁。
+
+拜登近日还计划签署行政命令，把教育部、劳工部、农业部和内政部的负责人，以及总统国家气候顾问，增列为国家航天委员会成员。美国政府还希望国家航天委员会，努力增加太空气候数据、加强科学有关的努力，对美国增加就业并提高竞争力提供帮助。
+
+**参考阅读：**
+
+[https://www.voachinese.com/a/biden-focus-on-space-20211201/6335621.html](https://www.voachinese.com/a/biden-focus-on-space-20211201/6335621.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/rl-1-556x720.png)
+
+编辑/校对/发稿：一烘
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-2.png)
+
+
+
+
 
  
 
