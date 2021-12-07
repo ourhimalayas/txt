@@ -2,37 +2,281 @@
 ---
 
 
-## 以色列首现巨幅反疫苗广告
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1726708/)
+## 每日快报：纽约市为所有私人雇主制定了 Covid 疫苗规定
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1727546/)
 
-作者：纽约香草山健身部 – Ivy001
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间12月5日，在以色列的大街上，挂起了高达6，7层楼的巨幅广告：一个被妈妈拉着小手的小男孩，忧伤的看着镜头说，“妈妈，请不要把我的手交给他们！”下方是醒目的疫苗针管标志。
+*作者：*文鸣
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Untitled.001-2-edited.jpeg)
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/每日快报.png)
 
-在11月29日，纽约拉比法庭裁定：向儿童和大多数成年人注射中共病毒疫苗是违法犹太法律的，裁决明确禁止向儿童、青少年和育龄成年人注射以及推广中共病毒疫苗。
+# ***今日摘要***
 
-这是在拉比法庭裁定之后，以色列首次高调出现反疫苗广告。
+1. **[纽约市为所有私人雇主制定了 Covid 疫苗规定](https://www.theguardian.com/us-news/2021/dec/06/new-york-city-vaccine-mandate-private-employers)**
+2. **[与特朗普的社交媒体企业相关的 SPAC 收到监管查询](https://www.newsmax.com/us/spac-trump-sec-regulatory/2021/12/06/id/1047490/)**
+3. **[中国攻击潜在的美国奥运外交抵制](https://www.newsmax.com/newsfront/beijing-us-olympics-boycott/2021/12/06/id/1047439/)**
+4. **[随着限制和强制医疗被政府和媒体正常化抗议活动继续震撼欧洲](https://www.oann.com/tens-of-thousands-protest-vaccine-mandates-lockdowns-across-europe/)**
+5. **[缅甸被罢免的领导人昂山素季在广受批评的审判中被判有罪](https://www.oann.com/myanmar-court-to-give-first-rulings-in-suu-kyi-trial/)**
 
-消息来源：[https://gettr.com/post/pivc6g27d9](https://gettr.com/post/pivc6g27d9)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+# 重要事件
 
-**校对/发稿：童谣**
+- **[12.06 theguardian：纽约市为所有私人雇主制定了 Covid 疫苗规定](https://www.theguardian.com/us-news/2021/dec/06/new-york-city-vaccine-mandate-private-employers)**
 
-**更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+新规定将于 12 月 22 日生效，而城市雇员已经需要接种疫苗；根据市长比尔·德布拉西奥 (Bill de Blasio) 周一宣布的新规定，所有纽约市雇主都必须强制要求其员工接种 Covid-19 疫苗。
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+民主党市长在 MSNBC 的 Morning Joe 上说，针对私营企业的疫苗规定将于 12 月 22 日生效，旨在防止假日季节和寒冷月份期间 Covid-19 感染激增。德布拉西奥说：“我们纽约市已决定采取先发制人的罢工，真正采取大胆措施，以阻止 Covid 的进一步发展及其对我们所有人造成的危险。” “截至 12 月 22 日，纽约市的所有私营部门雇主都将受此疫苗规定的保护。”包括教师、警察和消防员在内的市政雇员已经被要求接种疫苗，并且上周宣布了对私立和宗教学校员工的疫苗接种要求。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+德布拉西奥说，他希望新的授权能够经受住任何法律挑战。当前的纽约 Covid-19 规则还包括为室内餐厅、娱乐场所和健身中心提供至少一剂疫苗。根据室内餐饮、娱乐和健身房的新规定，12 岁以上的人需要注射两次。德布拉西奥说，当前任务未涵盖的 5 至 11 岁儿童需要注射一针。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+- **[12.06 newsmax：与特朗普的社交媒体企业相关的 SPAC 收到监管查询](https://www.newsmax.com/us/spac-trump-sec-regulatory/2021/12/06/id/1047490/)**
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+这家将美国前总统唐纳德特朗普的社交媒体风险公之于众的空白支票公司表示，它已收到美国金融监管机构的询问，因为它在股市上市前首次公布了有关其业务的详细信息。Digital World Acquisition Corp 周一表示，它在 10 月底至 11 月初期间收到了美国证券交易委员会和金融业监管局 (FINRA) 的信息请求。
+
+美国证券交易委员会曾寻求有关空白支票公司与特朗普社交媒体企业之间的沟通、DWAC 董事会会议、与交易相关的政策和程序、银行识别、电话和电子邮件地址以及某些投资者身份的文件。FINRA 要求提供有关事件的详细信息，特别是在公开宣布与特朗普媒体技术集团 (TMTG) 合并之前对交易的审查。
+
+Digital World Acquisition Corp 的股价在早盘交易中逆转下跌 6%。DWAC 周一提交的文件是在 TMTG 周六表示已达成协议从一群身份不明的投资者筹集约 10 亿美元之后，准备在美国股市上市。Trump Media 与 Digital World 签署了协议，将于 10 月以 8.75 亿美元的估值上市，其中包括债务。根据周五交易结束时 Digital World 股票的价格，该合资企业现在的价值接近 40 亿美元。特朗普的支持者和日间交易员抢购了这只股票。
+
+在宣布合并后的首次公开预测中，DWAC 还表示，预计特朗普的社交媒体应用 TRUTH Social 的每用户平均收入将在 2026 年增长至 13.50 美元，总用户数为 8100 万。DWAC 还表示，预计到 2026 年 TMTG 的用户总数将达到 4000 万。社交媒体平台 Twitter Inc 拥有超过 2 亿的日活跃用户。
+
+- **[12.06 newsmax：中国攻击潜在的美国奥运外交抵制](https://www.newsmax.com/newsfront/beijing-us-olympics-boycott/2021/12/06/id/1047439/)**
+
+
+中国周一威胁说，如果美国继续外交抵制二月北京冬奥会，中国将采取“坚决反制”。外交部发言人赵立坚指责美国政界人士在不派政要参加中国希望展示其经济发展和技术实力的活动的问题上哗众取宠。赵在每日简报会上对记者说，这样的举动将是“彻头彻尾的政治挑衅”，但没有详细说明中国将如何报复。
+
+美国总统乔拜登曾表示，他正在考虑抵制，美国运动员仍将参加该抵制活动，预计本周将发布公告。这一举措的支持者以中国在人权方面的糟糕记录为由，称中国正在利用这些游戏来粉饰其对民权活动家、持不同政见者和少数民族的虐待。
+
+“美国政客未受邀，不断大肆宣传所谓外交抵制北京冬奥会，纯属一厢情愿和哗众取宠，”赵在每日例行记者会上说。
+
+“如果美方执意我行我素，中方将采取坚决反制，”赵说。
+
+向每届奥运会派出高级别代表团一直是美国和其他主要国家的传统——时任总统乔治·W·布什出席了2008年北京夏季奥运会的开幕式。第一夫人吉尔拜登率领美国代表团参加今年在东京举行的夏季奥运会，第二绅士道格恩霍夫率领代表团参加了残奥会。
+
+外交抵制的可能性出现在美国试图稳定与北京动荡的关系之际，尽管它对贸易摩擦和中国在台湾、人权、香港和南海问题上的行动保持强硬态度。北京对美国的所有批评都做出了强硬回应，谴责这些批评是干涉其内政，并对它认为反华的美国政客实施签证禁令。
+
+目前尚不清楚美国可能派谁来北京参加奥运会，赵的评论似乎表明中国没有发出任何邀请。与中国的关系因一系列争端而急剧下降的澳大利亚也提出了外交抵制的可能性。
+
+- **[12.05 oann：随着限制和强制医疗被政府和媒体正常化抗议活动继续震撼欧洲](https://www.oann.com/tens-of-thousands-protest-vaccine-mandates-lockdowns-across-europe/)**
+
+
+随着限制和强制医疗被政府和媒体正常化，抗议活动继续震撼欧洲。周六晚上，巴塞罗那的数千人参加了反对加泰罗尼亚地区疫苗通行证制度的抗议活动。11 月，加泰罗尼亚高等法院裁定该地区议会被允许制定新的 COVID 通行证法，该法要求提供接种疫苗或先前感染的证明才能进入餐厅、酒吧、健身房和其他场所。
+
+现在，尽管接种了 80% 的疫苗，但该地区的成年人被告知，如果他们想外出就餐或在健身房改善健康状况，他们必须首先向当局出示证明医疗卫生的政府文件。一位中医学教授说，有很多人对疫苗有副作用，强迫人们接种 COVID 疫苗在道德上是错误的。
+
+“[死于 COVID-19] 的人大多是接种过疫苗的人，而不是未接种过疫苗的人。所有医院都这样，”文森特·弗斯特说。“而且您还必须考虑到，到达急诊室的很大一部分患者是因为疫苗的副作用。真诚和开诚布公的医生说，这些患者中有 10% 是因为疫苗的副作用。”
+
+在附近的荷兰，随着政府对 73% 接种疫苗的人口实施新的封锁措施，抗议活动再次开始。整个地区的抗议活动大多是和平的，这对于两周前的抗议活动来说是不可能的。当政府首次宣布禁止未接种疫苗的荷兰人和荷兰妇女进入许多公共场所时，骚乱席卷了主要城市。拟议的法律面临如此强烈的反对，以至于议会决定暂时不推行它，而是选择对酒吧和餐馆实行全面宵禁。
+
+然而，这仍然激怒了许多荷兰民众，他们认为他们已经经历了太长时间。“如果你检查我们，我们就会走到这里。我们已经走了一年半了，我们仍然没有生病，”汉斯·布伊斯说。“我们不是超人。我们知道我们在做什么。我们知道我们不必接种疫苗就可以了。”
+
+在邻国德国，政府一直在贯彻荷兰人试图做的事情，但后来退缩了。未接种疫苗的德国人被强行锁在家里，只能离开去上班或买菜。那些出示国家强制医疗通行证的人在大多数情况下都可以自由地生活，但可能仍会受到当地的限制。在东德共产主义下长大的即将卸任的总理安格拉·默克尔表示，对做出替代医疗选择的人采取关闭措施是“民族团结的行为”。
+
+德国抗议者表示，他们担心政府谈论对全体人口实施强制疫苗接种，这表明对个人选择的最终压制。“我今天在这里是因为我担心我们看到的强制疫苗接种将在奥地利实施。我相信有很多副作用，如果我决定接种可能危及我身体的冠状病毒疫苗，那一定是我的选择，”Alina Nesterowska 说。
+
+奥地利本身是第一个开始讨论对未接种疫苗的人的限制以及一般性授权的国家。上个月，奥地利政府宣布欧洲首次对未接种疫苗的人实施封锁。虽然他们在一天后退缩，赞成在假期期间全面封锁，但他们宣布政府将从 2 月开始强制要求所有奥地利人接种疫苗。这引发了数周的抗议活动，周末之间没有发生消散。
+
+上周末在维也纳，估计有超过 40,000 人现身表达他们对限制和强制医疗的蔑视。人们举着标语，呼吁控制自己的身体，举行新的选举以摆脱现任政府施加的限制，并呼吁“让奥地利再次伟大”。有些人说他们不希望将疫苗强加给他们的孩子，因为它未经测试。其他人表示，他们只是希望看到自由回归他们曾经以民主权利为基础的国家。“我来这里是因为我反对强制接种疫苗。我支持人权，应该停止侵犯人权的行为，”一名抗议者说。
+
+由于在发现 Omicron 变体之前提出了许多限制和强制医疗，可以看到其他政府加倍努力，而不是放弃对公民的限制。与此同时，目前所有提议强制接种疫苗和新封锁的欧洲国家都表示，至少有三分之二的人口至少接受了两次注射。
+
+- **[12.06 oann：缅甸被罢免的领导人昂山素季在广受批评的审判中被判有罪](https://www.oann.com/myanmar-court-to-give-first-rulings-in-suu-kyi-trial/)**
+
+
+周一，军方统治的缅甸一家法院裁定被罢免的领导人昂山素季犯有煽动罪和违反冠状病毒限制的罪名，这引起了国际社会对一些批评人士所说的“虚假审判”的谴责。据国家电视台报道，昂山素季将在一个秘密地点被拘留两年，在该国军事首长部分赦免后，刑期从四年减少。
+
+总统温敏也被判处四年徒刑，因为法庭在 2 月 1 日的政变中对昂山素季和其他文职领导人的多起案件作出了首次判决。自从反对昂山素季民选政府的政变引发了广泛的抗议，并引发了国际社会对数十年军事统治后试探性政治改革结束的担忧以来，缅甸一直处于动荡之中。
+
+政变后，现年 76 岁的诺贝尔和平奖获得者昂山素季与其所在的全国民主联盟 (NLD) 政党的大多数高级领导人一起被拘留。其他人在国外或躲藏起来。联合国人权事务负责人米歇尔·巴切莱特 (Michelle Bachelet) 在与欧盟和其他国家一致的评论中表示：“在军事控制的法庭进行秘密诉讼的虚假审判后，国务资政被定罪完全是出于政治动机。”
+
+一名军方发言人没有回应路透社试图联系他对判决发表评论的尝试，国内媒体对此进行了广泛报道。军方没有详细说明昂山素季（她在成为缅甸领导人之前因反对军事统治而被软禁多年）被拘留的地点。据 MRTV 报道，她将留在那个地方服刑，暗示她不会被送进监狱。
+
+# 每日文宣
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/12/image_1638796547.202-1024x576.jpg)
+# 更多要闻链接
+
+1. **[特朗普社交媒体风投融资 10 亿美元，估值接近 40 亿美元](https://www.zerohedge.com/political/trump-social-media-venture-raises-1bn-valuation-near-4bn)**
+2. **[Omicron：由于“普通感冒”突变，传染性更强，病情更轻？](https://www.zerohedge.com/covid-19/omicron-more-transmissible-less-severe-due-common-cold-mutation)**
+3. **[在桥水的火花飞溅之后，达里奥“澄清”了他的中国评论](https://www.zerohedge.com/markets/sparks-fly-bridgewater-over-dalios-pro-china-stance)**
+4. **[稳健的货币是和平、繁荣和自由的先决条件](https://www.zerohedge.com/political/sound-money-prerequisite-peace-prosperity-and-freedom)**
+5. **[当法定​​货币不再是货币时](https://www.zerohedge.com/economics/when-fiat-currency-stops-being-money)**
+6. **[FDA 官员要求谷歌审查该机构不喜欢的 YouTube 视频](https://www.zerohedge.com/covid-19/fda-official-demanded-google-censor-youtube-video-egncy-didnt)**
+7. **[通货膨胀与 通货紧缩——2022 年最大的威胁是什么？](https://www.zerohedge.com/markets/inflation-vs-deflation-which-bigger-threat-2022)**
+8. **[美帝国的衰落：库伯勒-罗斯循环分析](https://www.zerohedge.com/geopolitical/decline-american-empire-kubler-ross-cycle-analysis)**
+9. **[意大利开始对未接种疫苗的人进行封锁](https://www.dailymail.co.uk/news/article-10279341/Italy-begins-lockdown-unvaccinated-double-jabbed-able-participate-public-life.html)**
+10. **[卫星图像显示俄罗斯军队在乌克兰边境附近建立了庞大的新营地](https://www.dailymail.co.uk/news/article-10279477/Ukraine-Russia-border-Satellite-images-reveal-Putins-troop-build-continues.html)**
+
+
+# 每日推特文摘
+
+
+
+我的天，这不是哈恩吗？ 因为家人不听话，出现了苗灾！ 哈恩姐姐的自白听后好难受啊
+
+
+
+
+
+> 我的天，这不是哈恩吗？
+> 因为家人不听话，出现了苗灾！
+> 哈恩姐姐的自白听后好难受啊😭 [pic.twitter.com/Mp6NQjP347](https://t.co/Mp6NQjP347)
+> — 风骚八荒 (@fengsaobahuang) [December 6, 2021](https://twitter.com/fengsaobahuang/status/1467669988831989764?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+還是網易。。。。。看似很平靜，實則已經波濤洶湧。。。。。
+
+
+
+
+
+> 還是網易。。。。。看似很平靜，實則已經波濤洶湧。。。。。 [pic.twitter.com/LLRtptearQ](https://t.co/LLRtptearQ)
+> — Bo Lu II (文龍） (@BoLu213) [December 6, 2021](https://twitter.com/BoLu213/status/1467728114751004673?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+战友转钱到喜联储Himalaya exchange 注意事项以及KYC 注意事项警告标志
+英国各家大银行都可以转，比如巴克莱Barclays，汇丰HSBC，Natwest，Lloyds，TSB
+
+
+
+
+
+> 战友转钱到喜联储Himalaya exchange 注意事项以及KYC 注意事项⚠️ 
+> 英国各家大银行都可以转，比如巴克莱Barclays，汇丰HSBC，Natwest，Lloyds，TSB[#喜联储](https://twitter.com/hashtag/%E5%96%9C%E8%81%94%E5%82%A8?src=hash&amp;ref_src=twsrc%5Etfw) [#新中国联邦](https://twitter.com/hashtag/%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6?src=hash&amp;ref_src=twsrc%5Etfw) [#KYC](https://twitter.com/hashtag/KYC?src=hash&amp;ref_src=twsrc%5Etfw) [#爆料革命](https://twitter.com/hashtag/%E7%88%86%E6%96%99%E9%9D%A9%E5%91%BD?src=hash&amp;ref_src=twsrc%5Etfw) [#himalayaexchange](https://twitter.com/hashtag/himalayaexchange?src=hash&amp;ref_src=twsrc%5Etfw) [#himalayacoin](https://twitter.com/hashtag/himalayacoin?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/7uHe8IADFY](https://t.co/7uHe8IADFY)
+> — Miles Guo follower (@followmilesguo) [December 6, 2021](https://twitter.com/followmilesguo/status/1467795715678248964?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+文贵先生Gettr：
+青蒿素报告一： 以下是我们收集的关于服用青蒿素保健品及青蒿素药物效用的初步研究。青蒿素是中共病毒和疫苗的解药，并且对其他很多疾病也有疗效。我们将继续报告相关结果。请遵医嘱。
+
+
+
+
+
+> 文贵先生Gettr：
+> 青蒿素报告一： 以下是我们收集的关于服用青蒿素保健品及青蒿素药物效用的初步研究。青蒿素是中共病毒和疫苗的解药，并且对其他很多疾病也有疗效。我们将继续报告相关结果。请遵医嘱。 [pic.twitter.com/pw80XyTfmi](https://t.co/pw80XyTfmi)
+> — 银河系🪐Hakunamatata💫 (@hakunamomoda) [December 5, 2021](https://twitter.com/hakunamomoda/status/1467619370058747906?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+人民日报怒斥美帝虚假民主，结果评论大翻车笑得满地打滚，现在的韭菜也不好骗了。
+
+
+
+
+
+> 人民日报怒斥美帝虚假民主，结果评论大翻车🤣，现在的韭菜也不好骗了。[#翻车新闻](https://twitter.com/hashtag/%E7%BF%BB%E8%BD%A6%E6%96%B0%E9%97%BB?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/k3UwfSWnxc](https://t.co/k3UwfSWnxc)
+> — 维尼大帝 (@realEmperorPooh) [December 6, 2021](https://twitter.com/realEmperorPooh/status/1467684990662377472?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+不要相信安倍说的话，他的家族對中共硬一点，习近平不至于打台湾，台湾核心问题来自台湾買台賊。日本的表态是诈乎，與中共做交易出卖台湾利益
+
+
+
+
+
+> 不要相信安倍说的话，他的家族對中共硬一点，习近平不至于打台湾，台湾核心问题来自台湾買台賊。日本的表态是诈乎，與中共做交易出卖台湾利益 [pic.twitter.com/EKbIRMmGVD](https://t.co/EKbIRMmGVD)
+> — 文敏④ (@wenmin44) [December 5, 2021](https://twitter.com/wenmin44/status/1467549924640575488?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+这位中共老干部的月工资是几个社会底层草民家庭年收入？
+
+
+
+
+
+> 这位中共老干部的月工资是几个社会底层草民家庭年收入？ [pic.twitter.com/P3n7e5Nh6B](https://t.co/P3n7e5Nh6B)
+> — 没羽箭112 (@fQfEEj5mgK3d810) [December 6, 2021](https://twitter.com/fQfEEj5mgK3d810/status/1467807634409594881?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+法國警察集體拋掉手扣，表示不會執行政府的疫苗強權政策！
+
+
+
+
+
+> 法國警察集體拋掉手扣，表示不會執行政府的疫苗強權政策！
+> 塲面非常感人🥺🥺 [pic.twitter.com/iA0TTKfxhZ](https://t.co/iA0TTKfxhZ)
+> — 凱倫 Karen (@dingding199) [December 6, 2021](https://twitter.com/dingding199/status/1467653912253673478?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+澳大利亚准备在明年1月10日开始对5-11岁的儿童打辉瑞疫苗。 已获TGA已经“临时批准” 澳洲需要像David博士这样的勇士来拯救我们的孩子
+
+
+
+
+
+> 澳大利亚准备在明年1月10日开始对5-11岁的儿童打辉瑞疫苗。
+> 已获TGA已经“临时批准”
+> 澳洲需要像David博士这样的勇士来拯救我们的孩子🥲 [pic.twitter.com/AKSLHnhCpe](https://t.co/AKSLHnhCpe)
+> — Chris (@Chris69927664) [December 6, 2021](https://twitter.com/Chris69927664/status/1467650724406325248?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+新西兰
+
+预计一月开始给5-11岁孩子接种疫苗…
+
+
+
+
+
+> 新西兰🇳🇿预计一月开始给5-11岁孩子接种疫苗…继续作🤦‍♂️🤦‍♂️🤦‍♂️ [pic.twitter.com/c4j5x6A2L7](https://t.co/c4j5x6A2L7)
+> — 存在主义咖啡馆 3 (@ExistCafe2021) [December 5, 2021](https://twitter.com/ExistCafe2021/status/1467633607460077569?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+
+
+*编辑：文鸣
+审核发布：文顾*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,38 +2,46 @@
 ---
 
 
-## Omicron变种病毒在酒店大厅的传播凸显了对传输的担忧
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1727875/)
+## 日本政府、媒体强硬回击中共
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1727878/)
 
-翻译：七叶之芒
+作者：日本方舟农场 Andy5
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕截图-2021-12-07-002147.jpg)图片来源： bloomberg.com
-
-Omicron变种病毒在两名完全接种疫苗的旅行者中传播，传遍了香港一家隔离酒店的走廊，强调了为什么这种高度变异的冠状病毒菌株让卫生当局感到不安。
-
-香港大学的研究人员在周五发表在《新兴传染病》杂志上的一项研究中说，闭路电视录像显示两人都没有离开他们的房间，也没有任何接触，因此当各自的房门被打开进行食物采集或Covid测试时，空气传播是最可能的传播方式。
-
-Omicron变种病毒在穗状蛋白中的突变数量“史无前例”，引起了人们的担忧，即它可能逃避疫苗诱导的保护，使Covid病例激增的情况恶化，并使重新开放经济的努力受阻。世界卫生组织的一位科学家上周说，全世界大约450名研究人员已经开始紧急研究，以了解Omicron的突变可能在多大程度上影响疫苗的有效性并增加其传播性，这一全球的努力可能在几天内产生答案。
-
-顾皓高（音译）、Leo Poon及其同事在研究报告中写道：“检测到两个完全接种疫苗的人在隔离酒店的走廊上进行Omicron变种病毒传播，这突出了这种潜在的担忧。”
-
-在过去的一个月里，南非部分地区的Covid-19病例成倍增加，预示着这种大流行病的第四波爆发。几十个国家都检测到了Omicron变种病毒的感染。在新加坡，病例“大多表现出温和的症状，到目前为止还没有与Omicron变种病毒有关的死亡报告”，卫生部周日说。尽管如此，现在对该菌株的严重性下结论还为时过早，Omicron变种病毒仍然是一个“未知的威胁”。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-308.png)图片来源： bloomberg.com
-
-（推特链接：[https://twitter.com/mugecevik/status/1466845506513035273?s=20](https://twitter.com/mugecevik/status/1466845506513035273?s=20)）
-
-新闻来源：[ bloomberg.com] [Omicron’s Spread Across Hotel Hall Highlights Transmission Worry](https://www.bloomberg.com/news/articles/2021-12-05/omicron-s-spread-across-hotel-hall-highlights-transmission-worry)
-
-* * *
-
-*审核：Aries的星
-校对：信心满满
-发布：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH..jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo.png)
 
 
 
+
+
+日本前首相安倍晋三在出席台湾智库论坛时的表态继续发酵，中共泼妇骂街的丑陋行径导致日本政府和媒体发表强硬回击。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-05-at-7.03.30-PM.png)图片来源: GETTR
+
+据日本TBS新闻报道，安倍前首相发出警告，“军事上的冒险将导致经济上的自杀”，来牵制日益对台湾军事施压的中共后，中共外交部做出了激烈的反应。日媒称，在外交部发言人愤怒表态后，连夜召见日本驻中共国大使的行为是非常罕见的。
+
+而此举也进一步让日本变得更加强硬。首先日媒报道称被召见的大使垂秀夫当场反驳了华春莹，他说道“中共政府方面必须理解日本在台湾局势上的担忧”。之后在2日新闻发布会上，日本政府表示，关于台湾问题，中共方面需要理解日本国内出现了安倍前首相这样的想法。而日本媒体更是将中共外交部的行为总结为：这是中共政府变得神经质的体现。
+
+**参考阅读：**
+
+[https://www.gettr.com/post/piicte99bb](https://www.gettr.com/post/piicte99bb)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/rl-1-556x720.png)
+
+编辑/校对/发稿：一烘
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-1.png)
 
  
 

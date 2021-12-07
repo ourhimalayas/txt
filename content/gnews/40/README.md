@@ -2,40 +2,21 @@
 ---
 
 
-## GFashion与世界顶级品牌Mandelli开展全面合作
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1726554/)
+## 独裁的特征
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1727492/)
 
-作者：纽约香草山农场 文真
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生在12月3日的直播中公布了一个重大喜讯，世界顶级品牌Mandelli主动提出与GFashion展开合作。
+最后所有的坏人独裁都一句话。人民，你们要想我就是人民，人民就是我，我代表你们，你们听我的，你的身体归我支配，你的精神上不能跟我有任何反对意见。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide2-5.jpeg)
+【郭先生直播视频】2021.11.26 独裁的特征
 
-据了解，Mandelli先生曾经为很多世界顶级品牌，包括爱马仕，制造服饰和皮包，被称为“时尚界之王”，更是时尚界教皇级别的人物。
+郭先生：
 
-目前，GFashion的服饰皆由Mandelli意大利工厂代工。而这次合作的主因在于，Mandelli看重新中国联邦的实力和喜联储未来的无限价值。
+所有独裁一定干两件事, 我再说一遍, 一定相信自己是有特殊功能, 最后达到什么? 我的感觉我的国民和跟随者, 你必须相信我真的是上帝有指定的人, 我屁股上有个什么地图，哥尔巴乔夫脑袋上有个什么俄罗斯地图， 毛泽东这个双休能力强，是吧？
 
-郭先生透露，12月2日，Mandelli公司主动寻求与GFashion的合作，并以零费用为GFashion提供Mandelli在美国所有品牌的代理权，即，GFashion可以合法使用Mandelli的所有品牌。同时，Mandelli公司诚恳地邀请郭先生入股。
+习近平的手软， 熊掌手鼻子大呀是吧，然后这就是佛祖， 你看你长着佛祖的鼻子啊， 菩萨的手， 然后说习你的声音啊， 就是十八罗汉的共同的声音。 你喊一嗓子地球都为此发抖。 哇塞。 这这老和尚能说出这样的话出来， 他关键他信了。 他还让你信， 这就是独裁坏人的结果。 最后所有的坏人独裁都一句话， 人民，你们要想我就是人民。 人民就是我， 然后我代表你们。 然后你们听我的， 你的身体归我支配， 你的精神上不能跟我有任何反对意见。
 
-另外， Mandelli先生也非常欢迎新中国联邦的战友、GCLub会员、GTV投资者随时参观Mandelli位于意大利的工厂，了解真正的时尚艺术。
+视频剪辑：北方信使 | 听写：雨山溪桥客| 翻译：Arthur | 校对：tonyj |编辑&发布：断播
 
-郭先生提到，GFashion将像喜联储一样在时尚界真正地开启新世界。
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
-
-总编：文真
-编辑：Irene木木
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

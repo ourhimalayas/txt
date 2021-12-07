@@ -2,29 +2,40 @@
 ---
 
 
-## 印度法庭受理比尔·盖茨疫苗谋杀案件
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1725545/)
+## GFashion与世界顶级品牌Mandelli开展全面合作
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1726554/)
 
-**翻译/撰写：意翎     **
+作者：纽约香草山农场 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭文贵先生在12月3日的直播中公布了一个重大喜讯，世界顶级品牌Mandelli主动提出与GFashion展开合作。
 
-**责编：白夜**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-266.png)
-印度律师协会博文披露，印度高等法院受理世界首例针对亿万富豪比尔·盖茨（Bill Gats）和其合伙人阿达尔·普纳瓦拉（Adar Poonawalla）关于疫苗谋杀的刑事诉讼，他们参与了对一名23岁印度男子的谋杀。这名男子因接种疫苗而死亡。印度铁道部规定只允许接种两针疫苗的乘客旅行，Snehal Lunawat博士天真地轻信了疫苗是完全安全的企业联合宣传，注射疫苗后失去了生命。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide2-5.jpeg)
 
-据报道，印度政府疫苗接种后不良事件委员会最近承认Snehal Lunawat博士的死亡是由于科兴疫苗的副作用，该报告揭露了利益集团声称疫苗是完全安全的谎言。原告起诉阿利斯康（科兴疫苗）的制造商比尔·盖茨及其合伙人，后者拥有世界上最大的疫苗企业，不仅生产新冠肺炎科兴疫苗，还生产超过50%的婴儿注射疫苗。
+据了解，Mandelli先生曾经为很多世界顶级品牌，包括爱马仕，制造服饰和皮包，被称为“时尚界之王”，更是时尚界教皇级别的人物。
 
-原告要求100亿卢比（1.34亿美元）的赔款和10亿卢比（1340万美元）的临时赔款，并要求立即开始对被告进行拘留审讯，使用测谎仪测试、脑图测试和毒品分析测试等科学测试，以揭露完整的阴谋，拯救印度公民的生命。
+目前，GFashion的服饰皆由Mandelli意大利工厂代工。而这次合作的主因在于，Mandelli看重新中国联邦的实力和喜联储未来的无限价值。
 
-《世界生物伦理与人权宣言》明确指出，在给人接种疫苗或进行任何治疗之前，应该告诉他这种药的副作用，以及可选择的补救措施。如果任何人通过隐瞒事实或谎称疫苗是完全安全的方式接种疫苗，相当于在欺骗下获得同意。在印度如果在欺骗、强迫或胁迫下接种是民事和刑事犯罪。
+郭先生透露，12月2日，Mandelli公司主动寻求与GFashion的合作，并以零费用为GFashion提供Mandelli在美国所有品牌的代理权，即，GFashion可以合法使用Mandelli的所有品牌。同时，Mandelli公司诚恳地邀请郭先生入股。
 
-根据这篇文章，比尔·盖茨和阿达尔·波纳瓦拉将获共谋大规模谋杀罪，他们是阿斯利康(科兴疫苗)生产的合作伙伴，他们因参与阴谋而受到指控。在印度，允许虚假推销其产品的人也因其行为不当和不作为而被认定有罪。考虑到证据确凿，专家认为他们将面临死刑。
+另外， Mandelli先生也非常欢迎新中国联邦的战友、GCLub会员、GTV投资者随时参观Mandelli位于意大利的工厂，了解真正的时尚艺术。
 
-原告依据了比尔·盖茨在印度未经授权实验人乳头瘤病毒疫苗导致8名女童死亡的犯罪前科和最高法院宪法法官的判决，这是针对比尔·盖茨和他的疫苗集团的有力证据。
+郭先生提到，GFashion将像喜联储一样在时尚界真正地开启新世界。
 
-原告还提到了比尔·盖茨在小儿麻痹症邪恶计划的证据，该计划破坏了印度45万儿童的生活，让他们遭受了新型瘫痪。这进一步证明了比尔·盖茨的变态和犯罪心理。据专家称，比尔·盖茨在此案中不可能获得保释，而且，被告的所有动产和不动产很快将被没收。
 
-[原文链接](https://indianbarassociation.in/worlds-first-vaccine-murder-case-against-bill-gates-adar-poonawalla-filed-in-indias-high-court/)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
+
+总编：文真
+编辑：Irene木木
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

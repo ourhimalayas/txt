@@ -2,48 +2,38 @@
 ---
 
 
-## 文贵先生最新爆料：关于新中国联邦人的三大利好消息
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1727868/)
+## Omicron变种病毒在酒店大厅的传播凸显了对传输的担忧
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1727875/)
 
-作者：纽约香草山教育部- Noemi
+翻译：七叶之芒
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕截图-2021-12-07-002147.jpg)图片来源： bloomberg.com
+
+Omicron变种病毒在两名完全接种疫苗的旅行者中传播，传遍了香港一家隔离酒店的走廊，强调了为什么这种高度变异的冠状病毒菌株让卫生当局感到不安。
+
+香港大学的研究人员在周五发表在《新兴传染病》杂志上的一项研究中说，闭路电视录像显示两人都没有离开他们的房间，也没有任何接触，因此当各自的房门被打开进行食物采集或Covid测试时，空气传播是最可能的传播方式。
+
+Omicron变种病毒在穗状蛋白中的突变数量“史无前例”，引起了人们的担忧，即它可能逃避疫苗诱导的保护，使Covid病例激增的情况恶化，并使重新开放经济的努力受阻。世界卫生组织的一位科学家上周说，全世界大约450名研究人员已经开始紧急研究，以了解Omicron的突变可能在多大程度上影响疫苗的有效性并增加其传播性，这一全球的努力可能在几天内产生答案。
+
+顾皓高（音译）、Leo Poon及其同事在研究报告中写道：“检测到两个完全接种疫苗的人在隔离酒店的走廊上进行Omicron变种病毒传播，这突出了这种潜在的担忧。”
+
+在过去的一个月里，南非部分地区的Covid-19病例成倍增加，预示着这种大流行病的第四波爆发。几十个国家都检测到了Omicron变种病毒的感染。在新加坡，病例“大多表现出温和的症状，到目前为止还没有与Omicron变种病毒有关的死亡报告”，卫生部周日说。尽管如此，现在对该菌株的严重性下结论还为时过早，Omicron变种病毒仍然是一个“未知的威胁”。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-308.png)图片来源： bloomberg.com
+
+（推特链接：[https://twitter.com/mugecevik/status/1466845506513035273?s=20](https://twitter.com/mugecevik/status/1466845506513035273?s=20)）
+
+新闻来源：[ bloomberg.com] [Omicron’s Spread Across Hotel Hall Highlights Transmission Worry](https://www.bloomberg.com/news/articles/2021-12-05/omicron-s-spread-across-hotel-hall-highlights-transmission-worry)
+
+* * *
+
+*审核：Aries的星
+校对：信心满满
+发布：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH..jpeg)
 
 
 
-
-
-12月1日，文贵先生在最新的大直播节目中公布了未来有关新中国联邦人的三大利好消息。这三个消息都在未来保障新中国联邦人的人身与财富安全方面起到了关键性的作用，具有着里程碑式的意义。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-05-at-6.55.37-PM.png)图片来源：GTV
-
-第一，在全球金融实力排名前三的某欧洲国家即将颁布给喜联储世界上的首个数字银行牌照。这意味着喜币即将成为第一个拥有主权国家颁发牌照的合法加密货币。文贵先生说，这一块数字银行牌照意味着新中国联邦自己的国家银行和储备系统受到了其他主权国家的认可，同时也意味着中共将与一个欧洲强国彻底决裂。这块数字银行牌照的价值甚至超过目前整个喜联储的市场估值。
-
-第二，高质量的药用青蒿素是中共病毒及疫苗的绝对解药。在未来，新中国联邦将对所有的GCLUB会员，GTV所有投资者，法治基金捐款者，喜币拥有者提供全部的保障供应。目前，高质量的青蒿素解药已在研发当中。在战友们的辛勤工作下，后续的协调、采购、运输等环节也已得到强有力的保障。文贵先生将为此项目提供一切资金支持。文贵先生说，这些药品在未来将会拯救无数同胞的生命。而获取药品的相关联系方式很快就将在盖特平台中公布出来，对此信息战友们可以多多留意。
-
-第三，新中国联邦即将并购美国的一家数字银行。截止目前，并购工作实际上已基本完成。文贵先生说，将会邀请五到七家战友们参与的基金加入到这家银行的并购项目中来，成为该银行的大额投资者。预计还会有11家的企业基金，拥有到这家银行5%到11%的股份。另外，已有超过六十个战友具有投资意向，最终也会筛选出六到七位战友直接参与进来。
-
-**参考阅读：**
-
-[https://gtv.org/video/id=61a774e244c1fe7a6c3c9bad](https://gtv.org/video/id=61a774e244c1fe7a6c3c9bad)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/rl-1-556x720.png)
-
-编辑/校对/发稿：一烘
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-1.png)
 
  
 

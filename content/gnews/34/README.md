@@ -2,100 +2,53 @@
 ---
 
 
-## 疫苗护照不是目的，杀人和医疗垄断才是目的
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1727566/)
+## 专家不确定加拿大全民疫苗强制可行
+` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1727583/)
 
-[https://gtv.org/video/id=61ae821187fa7e74c92c64ce](https://gtv.org/video/id=61ae821187fa7e74c92c64ce)
+加拿大扬帆农场 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2021/12/IMG_3322.jpg)图片来源： Reuters
+根据《CBC新闻》12月5 日报道，加拿大的专家认为不打疫苗的原因很多，需要有很多解决方案，而不是一刀切的方法。
 
-我不觉得这个疫苗护照的事情
-Yo no creo que el asunto del pasaporte de vacunación
+随着欧洲国家转向强制性国家疫苗接种制度，以应对COVID-19高感染率，加拿大的专家说，虽然科学和法律可能支持自由党政府选择效仿，但这不应该是解决问题的万能药。
 
-现在是大家有确实的证据
-Ahora es que todos tienen una evidencia definitiva
+对所有加拿大人实施全国性的强制性疫苗接种计划存在重大挑战，其中第一个挑战是联邦政府和各省之间的管辖权之争。
 
-就是疫苗护照是他们的目的
-Donde este pasaporte de vacunación sea su objetivo
+根据宪法规定，各省负责提供医疗保健服务，而疫苗接种任务将属于这一职权范围。如果联邦政府想接管这一责任，就必须使用《紧急状态法》或通过立法赋予其行动的权力。
 
-我不觉得
-Yo no lo creo
+渥太华大学的宪法专家迈克尔-贝希尔告诉加拿大广播公司新闻网：”要做到这一点，各省就会出现混乱。理论上是可能的，但这将立即进入法庭，他们必须证明危机实际上是一个国家危机”。
 
-我觉得杀人是他的目的
-Yo pienso que matar a las personas es su objetivo
+贝希尔说，联邦政府采取这种方式可能会在法庭上赢得任何挑战，只要能证明感染率、死亡率和正在发生的变异造成一种只有国家反应才能缓解的威胁。但即使赢了，此举也可能在省政府中引起反弹，因为在大流行病的这个阶段没有必要采取这一措施。
 
-种族残杀是他的目的
-El genocidio es su propósito
+多伦多西奈山医院的传染病专家麦克格尔Allison McGeer博士告诉加拿大广播公司新闻网，”直到此刻在加拿大，还没有真正需要考虑全民疫苗强制。即使每个人都接种了疫苗，也会有突破性的感染”。
 
-更重要的事情
-Y lo más importante
+贝希尔说，全国性的疫苗授权不仅会在未接种疫苗的人和联邦政府之间造成恶性循环，也会在各省和渥太华之间造成恶性循环，从而破坏疫苗接种工作。
 
-我认为整个是一个医疗垄断
-Creo que en conjunto es un monopolio médico
+他说，如果死亡率高得多，或者感染率更高，那么采取这一举措可能很容易，如果情况足够糟糕，各省甚至可能要求进行干预。但是专家们并不确定加拿大是否已经达到了这一程度。
 
-也就是一个人类上, 所谓他们认为的优胜劣汰
-Es decir, en la raza humana, ellos creen que es la supervivencia del más apto
+奥地利和希腊等欧洲国家似乎认为已经达到了这个地步，正在朝着全国疫苗强制的方向发展，因为感染率比大流行期间的任何时候都要高三倍，而且疫苗接种计划已经停滞不前。
 
-变成了一个什么
-Y esto se convierte en qué
+1月份，60岁以上尚未接种疫苗的希腊人将被处以每月100欧元的罚款。斯洛伐克正在考虑采取相反的做法，提供600欧元以鼓励人们接种疫苗。
 
-就是我喜欢和不喜欢, 有用没有用
-En lo que me gusta y lo que no me gusta, útil o inútil
+奥地利是欧盟中疫苗接种率较低的国家之一，目前正在考虑如果实施该计划，将对未接种疫苗的奥地利人处以超过7000欧元的罚款。已经有迹象表明，执行这项强制将是一个挑战；上个月末，约有40,000名抗议者来到维也纳，挑战新规定。
 
-就变成了两极的社会
-Se transforma en una sociedad con dos extremos
+根据［数据世界］，欧盟67%的人口完全接种了COVID-19疫苗，在加拿大，76%的人口完全接种了疫苗。希腊为64%，奥地利的人口完全接种的比例为66%。德国的比例是68%，匈牙利等国家的疫苗接种率在欧洲是最低的，只有61%。
 
-这是一次人类绝对的大屠杀
-Esta vez es absolutamente una gran masacre de la humanidad
+德国只是在谈论强制性疫苗接种。然而，匈牙利允许公司对员工实施这一政策，并强迫任何未接种疫苗的员工休无薪假，直到他们获得免疫。
 
-而且这种黑暗的力量和共产党绝对是勾结在一起
-Y esta fuerza oscura seguramente está en complicidad con el PCCh
+相比之下，在加拿大，所有乘坐飞机和火车的乘客都必须全面接种疫苗，在这些部门工作的员工也必须如此。所有联邦雇员也必须全面接种疫苗。
 
-所以说我不觉得什么, 这个数字货币, 数字银行, 数字护照
-Por eso digo no es nada, esta moneda digital, banco digital y el pasaporte digital
+麦克格尔和其他传染病医生认为，在全民中实行强制性的疫苗接种制度可能会引起骚动，施压加拿大人和他们的政府之间的关系，最终不会带来预期的结果。
 
-然后疫苗护照能有什么联系
-Entonces, ¿ qué relación tiene con el pasaporte de vacunación?
+麦克格尔说：“白人、富人、受过高等教育并在加拿大出生的人对公共卫生系统更有信心，更愿意相信他们的政府，所以我们的疫苗接种率更高。然而这个问题没有一个一刀切的解决方案”。
 
-我觉得这个是有点儿Q组织的那种(感觉)
-Creo que esto es (se siente) un poco como el QAnon
+原文链接：
+[https://www.cbc.ca/news/politics/national-vaccine-mandates-experts-1.6273850](https://www.cbc.ca/news/politics/national-vaccine-mandates-experts-1.6273850)
 
-有点儿, 这过度了
-Es como que es demasiado
+* * *
 
-首先我是没有这个情报, 没这个证据
-Primero que nada, yo no tengo estas informaciones o evidencias
+发稿 Spirit
 
-所以我就很少谈这个话题
-Por lo tanto, no hablo casi de este tema
 
-我觉得大家现在没掌握绝对的情报证据之前
-Creo que antes de que todos tengan la evidencia e información absoluta
-
-也少谈
-Hablen menos de eso
-
-这会把大家掉坑里边去
-Esto los arrojará a todos al pozo
-
-**原视频网址**：[https://gettr.com/post/pioxwr9960](https://gettr.com/post/pioxwr9960)
-
-日期：12/06/2021
-原视频标题：疫苗护照不是目的，杀人和医疗垄断才是目的
-El pasaporte de vacunación no es el objetivo, matar a las personas y el monopolio médico es su propósito
-原视频日期：12/04/2021
-原视频网址：https://gettr.com/post/pioxwr9960
-任务编号：KC312(3105)
-视频时间段：0:00-1:09
-
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作: 洛杉矶盘古农场 –天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
