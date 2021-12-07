@@ -2,24 +2,18 @@
 ---
 
 
-## 克里斯库默说CNN老板知道他涉及安徳鲁库默丑闻
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1728318/)
+## 秘翻在线：【速报】美国表示地址北京冬奥会后日本如是说
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1728348/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-10.png)
-图片来源： http://www.hkstv.tv/
+撰稿：待命（文暁）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/画像1-5.png)（图片源自本文链接）
+12月7日TBS新闻报道：美国政府以人权问题为由宣布对明年冬季北京奥运会和残奥会进行 “外交抵制”后，日本政府作出反应。
 
-零对冲网12月6日报道，前CNN主播克里斯库默说，传媒执行长杰夫·扎克本来就知道他为了保护他哥哥，时任纽约州州长安徳鲁·库默所做的事情。
+岸田首相表示：关于日本的反应，我们将从国家利益的角度出发，考虑到奥运会的意义和对日本外交的意义，做出我们自己的决定。 这就是日本的基本立场。
 
-库默的发言人周日告诉华尔街日报说克里斯·库默和扎克有着“广为人知的密切关系，经常互通有无，包括库默先生支持他哥哥的详细情况。亲近库默先生的其他都可以作证。”
+内阁官房长官松野也在新闻发布会上说：我们将在适当的时候，综合全面的考虑，做出自己的决定，目前还没有任何决定。我们希望北京奥运会能够遵从奥运理念，作为一个和平的庆典来举行。
 
-库默先生随着一些材料的披露，比他所承认的希望帮他哥哥的性骚扰案的程度更深，周六被CNN辞退，这些材料是由纽卡纽约检查官莱蒂蒂娅·詹姆斯所披露，她早前称至少有11名妇女指控他性骚扰。安徳鲁·库默在今年早些时候下台，但他坚称这些指控是假的。
-
-周日，CNN告诉华尔街日报说所谓的克里斯·库默与扎克关系很铁的传言是不正确的。CNN说库默的很多说辞明显是错的，但并没有指出哪些是错的，由于库默违反了CNN的标准和操作过程以及他缺乏坦城，所以造成了他不能再留在CNN的原因。
-
-##### **新闻来源： **[Chris Cuomo Claims CNN’s Jeff Zucker Knew About His Involvement With Andrew Cuomo Scandal](https://www.zerohedge.com/political/chris-cuomo-claims-cnns-jeff-zucker-knew-about-his-involvement-andrew-cuomo-scandal)
-
-# ** **
+信息源：[【速報】岸田首相「国益の観点から自ら判断する」　北京五輪への対応について　米の”外交的ボイコット”発表を受け（TBS系（JNN）） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/15a4547002155a50d58674c5211e0d886172bc1b)
 
  
 

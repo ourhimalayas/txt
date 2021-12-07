@@ -2,16 +2,31 @@
 ---
 
 
-## 秘翻在线：就美国抵制北京冬奥会国际奥委会表明立场
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1728247/)
+## GTV新闻访谈简报|2021年12月6日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1728255/)
 
-撰稿：待命（文暁）
-![](https://assets.gnews.org/wp-content/uploads/2021/12/画像1-4.png)（图片源自本文链接）
-12月7日时事通信社报道了法新社洛桑消息： 国际奥林匹克委员会（IOC）发言人6日表示，”尊重 “美国政府宣布对明年2月在北京举行的冬奥会进行 “外交抵制”。
+作者：香草山翻译部
 
-国际奥委会发言人告诉法新社，政府官员和外交官的出席与否，完全是每个政府的政治决定，国际奥委会从政治中立的角度给予尊重。外交抵制并没有达到阻止美国队参加比赛的程度，这表明奥运会和运动员的参与超越了政治。因此，我们对此表示尊重。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-109-1280x172-1-2-1.jpg)
 
-信息源：[米政府の決定尊重　「政治的中立の立場」から　IOC（時事通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/b4749e1d32df07b8ec75f32bf72bbc62a74b6845)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1206text-SC.png)
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+视频参看：[12.6  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61aeb8bebbd75f62e531446b)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-69.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

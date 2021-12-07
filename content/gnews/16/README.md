@@ -2,24 +2,44 @@
 ---
 
 
-## 英国大部分疫情死亡病例为疫苗接种者
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1728332/)
+## 巴西两名婴儿错误接种新冠疫苗后被送院
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1728365/)
 
-原文采编：文明       编译撰稿：文文-自由法兰西
-![](https://assets.gnews.org/wp-content/uploads/2021/12/02-image.jpg)
-[图像来源](https://www.wsj.com/articles/covid-19-study-in-england-shows-few-deaths-among-vaccinated-11631549453)
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-据英国媒体《每日内幕》12月4日报道，【英国卫生安全局】最新公布的报告显示，尽管大部分易感染群体已注射了“新冠病毒”疫苗加强针，但目前该国绝大多数病毒感染及其死亡者都已接种了该疫苗。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/jcr_content.img_.600.high_.png)
 
-报道称，60%病毒感染和住院病例以及80%因此死亡病例为已接种者。该数据表明，疫苗既不能预防病毒感染，也无法防止其传播，更未能阻止死亡。
 
-据悉，目前英国的主流媒体已开始讨论是否应效仿奥地利、希腊和德国等，也在该国推行强制疫苗接种政策，并对未接种群体进行人身限制等集权措施！
 
-校对编辑：硫酸羟氯喹64
+图片来源:  www.scholastic.com
 
-发稿：苦尽甜来 (文來）
 
-[原文链接](https://dailyexpose.uk/2021/12/04/4-in-5-covid-deaths-fully-vaccinated-november/)
+#### 编译 ：小红帽
+
+在巴西，一名护士混淆了不同功效的疫苗药瓶，误将辉瑞公司的新冠病毒（Covid-19）疫苗注射给两名婴儿，最后导致婴儿被送进医院。
+
+这一令人震惊的失误首先由媒体报道，并于周日得到巴西圣保罗州索罗卡巴市的地方当局正式确认。
+
+一名两个月大的女孩和一名四个月大的男孩上周三来到该地区的一家医疗机构，注射五价疫苗。该疫苗可保护儿童免受白喉、百日咳、破伤风、乙肝和乙型流感病毒的侵害。
+
+然而，回家后不久，两名婴儿就发开始高烧，呕吐并拒绝喝奶。父母给他们喂药也未能改善他们的病情。
+
+随后，索罗卡巴的卫生部长维尼修斯·罗德里格斯（Vinicius Rodrigues）与这些家庭取得了联系，并告诉他们护士犯了一个错误，这两名婴儿被注射了新冠病毒疫苗。
+
+两名婴儿被安置在当地的Gpaci医院。据报道，他们现在感觉好多了，但在一段时间内无法回家。当地政府联系了辉瑞公司，并被告知在接下来的10至15天内应该对这些孩子进行监测。
+
+负责的护士表示，她混淆了这些小药瓶，因为它们看起来太相似了。该名护士已被停职并等待调查。
+
+**参考新闻：**[Babies hospitalized after getting Covid-19 vaccine — RT World News](https://www.rt.com/news/542288-babies-vaccine-pfizer-brazil/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

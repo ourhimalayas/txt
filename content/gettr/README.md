@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/7/2021 5:04 AM (UTC)`
+
+On Dec. 6, 2021, hundreds of police and over 100 people from BBMG sent by the CCP violently seized Pangu’s assets. Over 1,000 employees and guests were thrown out of the Pangu hotel, and my father, who is over 90 years old, was driven out of his home. This is the CCP’s yet another atrocity against my family and employees after the $13 billion fine and illegal auction of Pangu's assets by the Dalian Intermediate Court! All is totally illegal! It’s a law-trampling, immoral, and inhumane mass arrest and robbery directed by the CCP kleptocrats!<br/><br/>Intermediate People’s Court of Dalian, Liaoning Province Public Announcement<br/><br/>https://gnews.org/1727858/<br/><br/>Appointment of Emergency Property Management Company for Pangu Plaza<br/><br/>https://gnews.org/1727906/
+
+---
+
 `@miles 12/7/2021 4:37 AM (UTC)`
 
 2021年12月6日，中共派出数百名警察和100多个北京金隅的人，对盘古所有资产进行了暴力查封。1000多位员工和客人被撵出酒店，其中包括身着睡衣的女员工，而文贵90多岁的父亲也被赶出房子并流落街头。这是继大连市中级法院所谓罚款130亿美元和非法拍卖盘古资产后，中共再一次针对文贵的家人和员工的灭绝人性的暴行！这一切都是完全非法的！这是中共盗国贼指挥的一场践踏法律、毫无道德底线、惨无人道的大抓捕和大抢劫！<br/><br/>辽宁省大连市中级人民法院公告<br/><br/>https://gnews.org/zh-hans/1727850/<br/><br/>关于指定盘古大观应急物业服务企业的公告<br/><br/>https://gnews.org/zh-hans/1727809/
@@ -143,13 +149,6 @@ Dec. 6th, 2021, after the CCP, filled with fear of our Whistleblowers’ Movemen
 
 Artemisinin Report 1. Here are some preliminary survey results we collected to demonstrate the effects of using artemisinin supplements and artemisinin drug derivatives. Artemisinin is the antidote to the CCP virus and the CCP virus vaccine. Meanwhile, artemisinin also exhibits promising therapeutic effects to many other conditions. We will continue to report these results as more data to be collected. Please follow the doctor's advice.
 ![img](https://media.gettr.com/group34/origin/2021/12/05/22/1e992ed1-a86c-60bd-a75e-aac7ffc7a92e/a4a1900549f16888a2b95d4b347ce3e0.jpeg)
-
----
-
-`@miles 12/5/2021 10:07 PM (UTC)`
-
-青蒿素报告一： 以下是我们收集的关于服用青蒿素保健品及青蒿素药物效用的初步研究。青蒿素是中共病毒和疫苗的解药，并且对其他很多疾病也有疗效。我们将继续报告相关结果。请遵医嘱。
-![img](https://media.gettr.com/group30/origin/2021/12/05/22/1626889a-52b0-e0e9-77fd-6fadc1f6f9b2/d2327a8912af20f0011e2e61b0993387.jpeg)
 
 ---
 

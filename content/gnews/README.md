@@ -15,86 +15,86 @@
 
 ---
 
-### [文·贵天成——文贵先生谈“疫苗”（三十二）](/content/gnews/1/README.md)
+### [美国公共卫生局局长称，接种三剂疫苗室内也要戴口罩](/content/gnews/1/README.md)
  ` 墨尔本雅典娜农场`
 
-### [加拿大劳动力短缺迫使企业停止疫苗强制接种](/content/gnews/2/README.md)
+### [美国游轮在全员接种情况下爆发疫情](/content/gnews/2/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [新冠病毒大流行期间全球武器销售额仍稳步增长](/content/gnews/3/README.md)
+### [盘古冰天流落街头](/content/gnews/3/README.md)
+ ` HimalayaRussia`
+
+### [文·贵天成——文贵先生谈“疫苗”（三十二）](/content/gnews/4/README.md)
  ` 墨尔本雅典娜农场`
 
-### [德国发现5-18岁健康儿童中死于新冠的概率接近于零](/content/gnews/4/README.md)
+### [加拿大劳动力短缺迫使企业停止疫苗强制接种](/content/gnews/5/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [新冠病毒大流行期间全球武器销售额仍稳步增长](/content/gnews/6/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共国准备在大西洋建立第一个海军基地以此警告美方](/content/gnews/5/README.md)
+### [德国发现5-18岁健康儿童中死于新冠的概率接近于零](/content/gnews/7/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [中共国准备在大西洋建立第一个海军基地以此警告美方](/content/gnews/8/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [多项研究结果表明“奥密克容”是中共病毒武器](/content/gnews/6/README.md)
+### [多项研究结果表明“奥密克容”是中共病毒武器](/content/gnews/9/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [文·贵天成——文贵先生谈“疫苗”（三十一）](/content/gnews/7/README.md)
+### [7·24系列——普京的疯狂与“北下灭共”](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [强制疫苗授权恐摧毁美加供应链](/content/gnews/8/README.md)
+### [文·贵天成——文贵先生谈“疫苗”（三十一）](/content/gnews/11/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [强制疫苗授权恐摧毁美加供应链](/content/gnews/12/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [文·贵天成——文贵先生谈“疫苗”（三十）](/content/gnews/9/README.md)
+### [文·贵天成——文贵先生谈“疫苗”（三十）](/content/gnews/13/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国证券交易委员会主席表示他不支持比特币的“离网”融资方式](/content/gnews/10/README.md)
+### [美国证券交易委员会主席表示他不支持比特币的“离网”融资方式](/content/gnews/14/README.md)
  ` 墨尔本雅典娜农场`
 
-### [揭穿习神在“2021从都国际论坛”开幕式的致辞](/content/gnews/11/README.md)
+### [揭穿习神在“2021从都国际论坛”开幕式的致辞](/content/gnews/15/README.md)
  ` 波士顿五月花农场`
 
-### [巴西两名婴儿错误接种新冠疫苗后被送院](/content/gnews/12/README.md)
+### [巴西两名婴儿错误接种新冠疫苗后被送院](/content/gnews/16/README.md)
  ` 墨尔本雅典娜农场`
 
-### [近日墙内两起灾祸，或由毒疫苗导致](/content/gnews/13/README.md)
+### [近日墙内两起灾祸，或由毒疫苗导致](/content/gnews/17/README.md)
  ` 波士顿五月花农场`
 
-### [专家质疑中共国官方公布人口数据虚高](/content/gnews/14/README.md)
+### [专家质疑中共国官方公布人口数据虚高](/content/gnews/18/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [秘翻在线：【速报】美国表示地址北京冬奥会后日本如是说](/content/gnews/15/README.md)
+### [秘翻在线：【速报】美国表示地址北京冬奥会后日本如是说](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [英国大部分疫情死亡病例为疫苗接种者](/content/gnews/16/README.md)
+### [英国大部分疫情死亡病例为疫苗接种者](/content/gnews/20/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [文贵视角:&#8217;躺平币&#8217;是给共产党的棺材板钉板丁](/content/gnews/17/README.md)
- ` 秘密翻译组-原创组`
-
-### [阿富汗经济崩溃，超半数人口面临饥荒](/content/gnews/18/README.md)
+### [阿富汗经济崩溃，超半数人口面临饥荒](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [克里斯库默说CNN老板知道他涉及安徳鲁库默丑闻](/content/gnews/19/README.md)
+### [克里斯库默说CNN老板知道他涉及安徳鲁库默丑闻](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国计划对北京冬奥会进行外交抵制](/content/gnews/20/README.md)
+### [美国计划对北京冬奥会进行外交抵制](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [俄罗斯对乌克兰军事备战升级](/content/gnews/21/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [被中共国的国家机器力量极权统治下的中国人](/content/gnews/22/README.md)
+### [被中共国的国家机器力量极权统治下的中国人](/content/gnews/24/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [GTV新闻访谈简报|2021年12月6日晚](/content/gnews/23/README.md)
+### [GTV新闻访谈简报|2021年12月6日晚](/content/gnews/25/README.md)
  ` 纽约香草山MOS01`
 
-### [最新｜社媒消息:纽约市市长强制私营企业员工和儿童注射中共病毒疫苗](/content/gnews/24/README.md)
+### [最新｜社媒消息:纽约市市长强制私营企业员工和儿童注射中共病毒疫苗](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：就美国抵制北京冬奥会国际奥委会表明立场](/content/gnews/25/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [拜登政府考虑切断俄罗斯的SWIFT国际支付系统](/content/gnews/26/README.md)
+### [拜登政府考虑切断俄罗斯的SWIFT国际支付系统](/content/gnews/27/README.md)
  ` 秘密翻译组-即时新闻播报组`
-
-### [安东尼奥-布朗和其他两名球员因伪造疫苗接种情况被N.F.L.禁赛](/content/gnews/27/README.md)
- ` 喜马拉雅农场新西兰站`
 
 ### [纽约市商业团体抨击对私营企业的疫苗强制令](/content/gnews/28/README.md)
  ` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)`
