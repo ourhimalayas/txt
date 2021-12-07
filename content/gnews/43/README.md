@@ -2,61 +2,98 @@
 ---
 
 
-## 恒大发出无法偿债警告后，广东省政府传唤恒大董事长
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1726854/)
+## 疫苗护照不是目的，杀人和医疗垄断才是目的
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1727566/)
 
-据《路透社》2021年12月3日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-303-e1638810979116.png)2021年9月26日，位于中国广东省深圳市的中国恒大集团总部，可以看到公司的标志。
-路透社/Aly Song
-**【摘要】**
+[https://gtv.org/video/id=61ae821187fa7e74c92c64ce](https://gtv.org/video/id=61ae821187fa7e74c92c64ce)
 
-**恒大称可能没有足够的资金来偿还债务**
+我不觉得这个疫苗护照的事情
+Yo no creo que el asunto del pasaporte de vacunación
 
-**中国央行和监管部门介入试图安抚市场**
+现在是大家有确实的证据
+Ahora es que todos tienen una evidencia definitiva
 
-12月3日北京路透社报道：中共国广东省周五传唤了中国恒大集团（3333.HK）的董事长，此前这家房地产开发商表示 “无法保证”有足够的资金来偿还债务，而监管机构则试图安抚市场。
+就是疫苗护照是他们的目的
+Donde este pasaporte de vacunación sea su objetivo
 
-曾经是销量在中国最高的开发商的恒大正努力应对超过3,000亿美元的负债，加剧了人们对潜在崩溃的担忧，这可能会给中国的房地产行业和其他行业带来冲击。
+我不觉得
+Yo no lo creo
 
-周五恒大集团在提交给香港证券交易所的文件中说，它已收到债权人要求支付约2.6亿美元。它已经延期支付11月6日到期的8250万美元的债券票据。
+我觉得杀人是他的目的
+Yo pienso que matar a las personas es su objetivo
 
-恒大提到：“鉴于目前的流动性状况，不能保证集团有足够的资金继续履行其财务义务。”并补充道如果不这样做，债权人可能要求加速偿还。
+种族残杀是他的目的
+El genocidio es su propósito
 
-这促使该恒大集团所在的广东省政府传唤其董事长许家印。
+更重要的事情
+Y lo más importante
 
-广东省政府在一份声明中提到应恒大集团的要求，它将向该集团公司派出一个工作组以监督风险管理，加强内部控制和维持正常运营。
+我认为整个是一个医疗垄断
+Creo que en conjunto es un monopolio médico
 
-广东当局并不是周五涉足恒大问题的唯一政府实体。
+也就是一个人类上, 所谓他们认为的优胜劣汰
+Es decir, en la raza humana, ellos creen que es la supervivencia del más apto
 
-在晚间一系列明显协调的声明中，中国央行、银行和保险监管机构及其证券监管机构试图向市场保证，更广泛的房地产行业的任何风险都可以得到控制。
+变成了一个什么
+Y esto se convierte en qué
 
-中国人民银行表示：“恒大的问题主要是由其自身管理不善和超速扩张造成的。”
+就是我喜欢和不喜欢, 有用没有用
+En lo que me gusta y lo que no me gusta, útil o inútil
 
-中国人民银行补充道，由一家房地产公司引起的短期风险不会破坏中长期的市场筹资，再者住房销售、土地购买和融资 “在中国已经恢复正常”。
+就变成了两极的社会
+Se transforma en una sociedad con dos extremos
 
-中共国银监会表示，恒大问题不会影响行业的正常运营，它将加大对保障性租赁住房的支持。它补充说，它相信国内外监管机构会公平地处理与恒大有关的问题，而中国证监会表示，对资本市场的任何影响都是 “可控的”，它将继续支持房地产开发商的资金需求。
+这是一次人类绝对的大屠杀
+Esta vez es absolutamente una gran masacre de la humanidad
 
-恒大在其提交的文件中，恒大表示它打算积极与债权人接触，以提出一个“可行的重组计划”来处理其境外债务。
+而且这种黑暗的力量和共产党绝对是勾结在一起
+Y esta fuerza oscura seguramente está en complicidad con el PCCh
 
-原文链接：[https://www.reuters.com/markets/rates-bonds/china-evergrande-gets-260-mln-guarantee-demand-2021-12-03](https://www.reuters.com/markets/rates-bonds/china-evergrande-gets-260-mln-guarantee-demand-2021-12-03)
+所以说我不觉得什么, 这个数字货币, 数字银行, 数字护照
+Por eso digo no es nada, esta moneda digital, banco digital y el pasaporte digital
 
-**【****简评****】***虽然中国人民银行和中共银监会动用一贯的谎言伎俩以图欺骗市场和大众；然而，**12**月**6**日网易新闻报道：**“**北方楼市集体沦陷！天津、济南、青岛、郑州房价下跌超**30%**。**”*
+然后疫苗护照能有什么联系
+Entonces, ¿ qué relación tiene con el pasaporte de vacunación?
 
-*却打了一个响亮的耳光。恒大的倒塌既是中共国房地产泡沫经济的崩溃，也是中共国金融系统和整体经济崩塌的标注。中共离牠们的死亡又迈进了一步。*
+我觉得这个是有点儿Q组织的那种(感觉)
+Creo que esto es (se siente) un poco como el QAnon
 
+有点儿, 这过度了
+Es como que es demasiado
 
+首先我是没有这个情报, 没这个证据
+Primero que nada, yo no tengo estas informaciones o evidencias
 
-翻译：洛杉矶盘古农场–KY
+所以我就很少谈这个话题
+Por lo tanto, no hablo casi de este tema
 
-校对：洛杉矶盘古农场–Mike Li
+我觉得大家现在没掌握绝对的情报证据之前
+Creo que antes de que todos tengan la evidencia e información absoluta
 
-评论：洛杉矶盘古农场–心照
+也少谈
+Hablen menos de eso
 
-编辑：洛杉矶盘古农场–心照
+这会把大家掉坑里边去
+Esto los arrojará a todos al pozo
 
+**原视频网址**：[https://gettr.com/post/pioxwr9960](https://gettr.com/post/pioxwr9960)
 
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
+日期：12/06/2021
+原视频标题：疫苗护照不是目的，杀人和医疗垄断才是目的
+El pasaporte de vacunación no es el objetivo, matar a las personas y el monopolio médico es su propósito
+原视频日期：12/04/2021
+原视频网址：https://gettr.com/post/pioxwr9960
+任务编号：KC312(3105)
+视频时间段：0:00-1:09
+
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作: 洛杉矶盘古农场 –天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
 [https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 

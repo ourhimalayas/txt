@@ -2,46 +2,18 @@
 ---
 
 
-## 日本政府、媒体强硬回击中共
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1727878/)
+## 盖特网页版新增“夜晚”模式
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1727946/)
 
-作者：日本方舟农场 Andy5
+撰稿：追着曙光跑
+![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Image-2021-12-07-at-09.53.49.jpeg)图片来源：盖特
+12月6日盖特首席执行官杰森·米勒先生发布了一则盖特，大意是：在这里，网络版本的“夜晚”浏览模式。感谢盖特的工程团队。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo.png)
+盖特自7月4日上市以来，各种功能越来越完善。从开始的发文字和照片，到短视频，再到直播。还有更重要一点的是有69种语言的翻译功能，让不同语言的人都可以在盖特上冲浪。
 
-
-
-
-
-日本前首相安倍晋三在出席台湾智库论坛时的表态继续发酵，中共泼妇骂街的丑陋行径导致日本政府和媒体发表强硬回击。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-05-at-7.03.30-PM.png)图片来源: GETTR
-
-据日本TBS新闻报道，安倍前首相发出警告，“军事上的冒险将导致经济上的自杀”，来牵制日益对台湾军事施压的中共后，中共外交部做出了激烈的反应。日媒称，在外交部发言人愤怒表态后，连夜召见日本驻中共国大使的行为是非常罕见的。
-
-而此举也进一步让日本变得更加强硬。首先日媒报道称被召见的大使垂秀夫当场反驳了华春莹，他说道“中共政府方面必须理解日本在台湾局势上的担忧”。之后在2日新闻发布会上，日本政府表示，关于台湾问题，中共方面需要理解日本国内出现了安倍前首相这样的想法。而日本媒体更是将中共外交部的行为总结为：这是中共政府变得神经质的体现。
-
-**参考阅读：**
-
-[https://www.gettr.com/post/piicte99bb](https://www.gettr.com/post/piicte99bb)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/rl-1-556x720.png)
-
-编辑/校对/发稿：一烘
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-1.png)
+到目前为止，注册用户已经超过300万人，是有史以来，入驻用户最快达到百万级别的社交媒体平台。说明盖特的“不因政治立场、宗教信仰而审查言论”的理念，是与世界各地追求言论自由的民意相一致的。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Image-2021-12-07-at-09.52.25-1.jpeg)图片来源：盖特
+杰森·米勒盖文链接：[It’s here! Dark Mode for the web browser version!!! Thank you, Engineering team!](https://gettr.com/post/piv6u3802f)
 
  
 

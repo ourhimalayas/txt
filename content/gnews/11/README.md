@@ -2,25 +2,27 @@
 ---
 
 
-## 纽约市商业团体抨击对私营企业的疫苗强制令
-` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1728078/)
+## 新西兰 1400 名学校教师拒绝接种 Covid-19
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1728196/)
 
-加拿大扬帆农场Spirit
-![](https://assets.gnews.org/wp-content/uploads/2021/12/IMG_3318-1.jpg)图片来源：New York Post
-根据《彭博社》12月6 日报道，纽约市合伙人组织的负责人凯瑟琳·怀尔德(Kathryn Wylde) 表示，他们被纽约市长比尔·德布拉西奥的措手不及的疫苗强制令惊到了。怀尔德代表的是一个有影响力的商业团体，摩根大通公司和高盛集团是其成员。
+编译：GingerDaddy
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-07-10.10.42.png)
+教育部的数据显示，有 2.4% 的学校教师（约 1400 人）拒绝接种 Covid 疫苗。
 
-纽约市长周一表示，所有私营部门的雇主必须要求他们的工人在12月27日之前接种疫苗，没有测试选项。这项任务将涵盖大约18.4万家企业。
+官方数据显示，去年有 62,600 名教师在公立学校工作，另外还有 9000 名代课教师。从目前的接种率可以计算出，一共有1400 多名未接种疫苗的教师。教育部说这个不是最终的数据。
 
-尽管像高盛和摩根士丹利这样的许多大公司已经要求接种疫苗才能在他们的大楼里工作，但怀尔德说，该市强行规定的决定并没有与公司和高管协调，这将在商业界散播不确定性。
+目前，Tai Tokerau（即Northland，北地） 报告的疫苗接种率最低，为 93%，表明该地区约有 100 名教师拒绝注射。
 
-怀尔德在周一的一份声明中说：“联邦、州和市各级的政策不一致使情况更糟，目前还不清楚谁将执行市长的疫苗强制，以及这项命令是否合法。拜登总统对雇员超过100人的雇主的疫苗强制目前因诉讼而搁浅，很难想象市长能做到总统被挑战的事情”。
+丰盛湾和怀亚里基的学校报告教师的疫苗接种率为 96%，而尼尔森、马尔堡、西海岸和塔拉纳基、马纳瓦图、旺格努伊的疫苗接种率略低于 97%。惠灵顿的注册教师疫苗接种率最高，为 98.3%，其次是坎特伯雷/查塔姆群岛、奥克兰和奥塔哥/南地，教师的疫苗接种率均至少为 98%。
 
-原文链接：
-[https://www.bnnbloomberg.ca/nyc-business-group-blasts-private-sector-vaccine-mandate-1.1691865](https://www.bnnbloomberg.ca/nyc-business-group-blasts-private-sector-vaccine-mandate-1.1691865)
+该部表示，由于疫苗的强制政策，很少有学校需要人员配备方面的支持。 自 11 月 16 日起，未接种疫苗的工作人员被禁止进入学校和早教中心。所有与儿童接触的工作人员必须在 2022 年 1 月 1 日前全面接种疫苗。
 
-* * *
+新闻链接： [https://www.rnz.co.nz/news/national/457067/about-1400-school-teachers-refuse-covid-19-vaccination](https://www.rnz.co.nz/news/national/457067/about-1400-school-teachers-refuse-covid-19-vaccination)
 
-发稿Spirit
+
+
+审核校对：Barry Jack
+上传排版：F
 
  
 

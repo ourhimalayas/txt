@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/7/2021 3:24 AM (UTC)`
+
+澳大利亚墨尔本市再次爆发大规模反对强制中共病毒疫苗游行<br/><br/>Thousands gather in Melbourne again to protest against the vaccine mandates<br/>
+![img](https://media.gettr.com/group46/getter/2021/12/07/03/430f109e-8a4a-6c25-1495-1401dc96d558/out.jpg)
+
+---
+
+`@miles 12/7/2021 3:20 AM (UTC)`
+
+美国国防部长再一次将中共国描述为国防部的日渐逼近的挑战：我们的新举措是利用所有国家力量工具来应对中共国的挑战<br/><br/>The United States Secretary of Defense repeatedly describes China as a pacing challenge for the Department of Defense: Our new initiatives draw on all tools of national power to meet the China challenge.
+![img](https://media.gettr.com/group34/getter/2021/12/07/03/ce22770e-6628-b2c0-359f-9e1b533c3a4e/out.jpg)
+
+---
+
 `@miles 12/7/2021 2:16 AM (UTC)`
 
 12/06/2021 Miles Guo: What is going on in Pangu is also happening all the time in every corner of communist China. The CCP is frightened by the wealth, freedom and enlightenment enjoyed by the fellow fighters of the Whistleblowers’ Movement. The only way for us to save our families and our fellow Chinese, is to take actions and take down the CCP.<br/><br/>12/06/2021文贵直播：今天发生在盘古的事情在中共国每时每刻都在发生，爆料革命战友们的富有、自由和明眼开智让中共恐惧，我们唯有继续行动，只有灭共，才能拯救家人和中国同胞<br/>
@@ -137,20 +151,6 @@ Artemisinin Report 1. Here are some preliminary survey results we collected to d
 
 Hcoin To The Moon <br/>iTunes Ranking No. 1 🥇<br/>iTunes 打榜第一名🥇<br/>🎉🎉🎉🎉🎉🎉🎉
 ![img](https://media.gettr.com/group46/getter/2021/12/05/16/42d05adf-34e1-eb6d-98f6-1ad4ef56e765/out.jpg)
-
----
-
-`@miles 12/5/2021 1:00 PM (UTC)`
-
-2021年12月05日 文贵大直播：全球数字货币市场改观；亚洲政治军事形势大变；恒大地产与美金融市场；喜币近况与未来的意义
-![img](https://media.gettr.com/group19/origin/2021/12/05/12/1f32d57b-6b9a-966a-9485-c5095b149a1b/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 12/5/2021 2:16 AM (UTC)`
-
-12/4/2021 Miles Guo’s GETTR: The actual population of Communist China is less than 1 billion; the humanitarian crisis in Afghanistan is the result of Taliban groomed by the CCP; “Hcoin to the Moon” is the music of salvation and enlightenment; massive arrests are being made all over the Communist China, and many banks are committing fraud: the media is covering up truth about the COVID vaccine disaster, but the vaccine mandate will soon be over<br/><br/>12/4/2021 文贵盖特：中共国人口低于10亿；阿富汗的人道灾难是中共培养塔利班的结果；Hcoin to the Moon是救人、开智的音乐；国内各地在抓人，大量银行造假；疫苗灾难被媒体掩盖，但强制打疫苗很快会完蛋<br/>
-![img](https://media.gettr.com/group37/getter/2021/12/05/02/411b4ac2-bb9c-cd21-d3ea-71c68061668f/out.jpg)
 
 ---
 

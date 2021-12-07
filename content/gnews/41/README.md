@@ -2,100 +2,26 @@
 ---
 
 
-## 疫苗护照不是目的，杀人和医疗垄断才是目的
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1727566/)
+## 独裁者的暴政是如何形成的
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1727648/)
 
-[https://gtv.org/video/id=61ae821187fa7e74c92c64ce](https://gtv.org/video/id=61ae821187fa7e74c92c64ce)
+所以当这个国家权力膨胀，独裁的时候或者军阀割据的时候，一定是政府永远没有错，都是老百姓的错。而且政府一定控制媒体，一定控制法庭和法院，让你有苦说不出没地方评理，那只剩下它了，那它就做了最终的仲裁者。
 
-我不觉得这个疫苗护照的事情
-Yo no creo que el asunto del pasaporte de vacunación
+**【郭先生直播视频】****2021.11.26****独裁者的暴政是如何形成的**
 
-现在是大家有确实的证据
-Ahora es que todos tienen una evidencia definitiva
+**郭先生：**
 
-就是疫苗护照是他们的目的
-Donde este pasaporte de vacunación sea su objetivo
+这些流氓政客只要没了权力， 没了钱啥都傻了。他们想的都是经济，这经济有多可怕，多国闭关锁国谁撑得住，撑不住了你咋办？全世界的独裁都会玩同一个游戏规则，都是先当副职潜伏爱人民，然后把老大干掉，副总统把总统干掉。你去查去吧。 几乎是百分之百或者百分之九十九， 然后就要许诺给人民自由法治，然后最后是兑现不了。然后就是挨饿，在这个时候制造种族矛盾，政治矛盾和社会安全事件，最后是让大家闭嘴。管媒体让你言论不自由，然后管身体让你身体不自由，最后就不行了，建立秘密部门杀害。最后开始发动洗脑，你的钱是国家的，你的身体是国家的，国家是我的，国家那就是家天下，那就叫独裁，是不是？
 
-我不觉得
-Yo no lo creo
+你的自由，你的钱，你的身体，你的生殖器，都是我的，连你的梦都是我的，它就这个。这个时候一定伴随着饥饿、经济衰退、种族矛盾，最后发动战争。更重要的事情，所有这些政府独裁，一定会让你知道，一切都是你们的错，政府没有错，就像这个打疫苗一样，打了两针现在国内宣传一样，打了两针白打，你打第三针才算打了。一针打了不管用，二针还有用，
 
-我觉得杀人是他的目的
-Yo pienso que matar a las personas es su objetivo
+所以要加强。加强让你更安全，它从来不说，你当初说打了一针就不会染病了，然后又打二针。二针现在不管用又打三针，全世界独裁都一样，永远它没做，所以当这个国家权力膨胀，独裁的时候或者军阀割据的时候，或军阀政权的时候或者恶政的时候，一定是，政府永远没有错都是你的错。
 
-种族残杀是他的目的
-El genocidio es su propósito
+而且政府一定控制媒体，一定控制法庭和法院，让你有苦说不出没地方评理，那只剩下它了，那它就做了最终的仲裁者，就是裁判和球员和守门员都是自己，连计分员都是自己。今天的世界就是这样子的。经济不行的时候它该胡来了，下一步干什么？发动战争种族矛盾社会动乱
 
-更重要的事情
-Y lo más importante
+最后找一小部分人来当替罪羊，一定要找替罪羊。独裁的所有的手段，种族矛盾或者是区域矛盾经济矛盾，政治矛盾一定找替罪羊，这个替罪羊是，永远是独裁的最好用的手段。然后洗脑媒体和控制控制银行，然后把经济崩溃，然后这个饥饿死人社会动乱全归咎于一拨人，然后开始大打出手。
 
-我认为整个是一个医疗垄断
-Creo que en conjunto es un monopolio médico
-
-也就是一个人类上, 所谓他们认为的优胜劣汰
-Es decir, en la raza humana, ellos creen que es la supervivencia del más apto
-
-变成了一个什么
-Y esto se convierte en qué
-
-就是我喜欢和不喜欢, 有用没有用
-En lo que me gusta y lo que no me gusta, útil o inútil
-
-就变成了两极的社会
-Se transforma en una sociedad con dos extremos
-
-这是一次人类绝对的大屠杀
-Esta vez es absolutamente una gran masacre de la humanidad
-
-而且这种黑暗的力量和共产党绝对是勾结在一起
-Y esta fuerza oscura seguramente está en complicidad con el PCCh
-
-所以说我不觉得什么, 这个数字货币, 数字银行, 数字护照
-Por eso digo no es nada, esta moneda digital, banco digital y el pasaporte digital
-
-然后疫苗护照能有什么联系
-Entonces, ¿ qué relación tiene con el pasaporte de vacunación?
-
-我觉得这个是有点儿Q组织的那种(感觉)
-Creo que esto es (se siente) un poco como el QAnon
-
-有点儿, 这过度了
-Es como que es demasiado
-
-首先我是没有这个情报, 没这个证据
-Primero que nada, yo no tengo estas informaciones o evidencias
-
-所以我就很少谈这个话题
-Por lo tanto, no hablo casi de este tema
-
-我觉得大家现在没掌握绝对的情报证据之前
-Creo que antes de que todos tengan la evidencia e información absoluta
-
-也少谈
-Hablen menos de eso
-
-这会把大家掉坑里边去
-Esto los arrojará a todos al pozo
-
-**原视频网址**：[https://gettr.com/post/pioxwr9960](https://gettr.com/post/pioxwr9960)
-
-日期：12/06/2021
-原视频标题：疫苗护照不是目的，杀人和医疗垄断才是目的
-El pasaporte de vacunación no es el objetivo, matar a las personas y el monopolio médico es su propósito
-原视频日期：12/04/2021
-原视频网址：https://gettr.com/post/pioxwr9960
-任务编号：KC312(3105)
-视频时间段：0:00-1:09
-
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作: 洛杉矶盘古农场 –天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+视频剪辑：北方信使 | 听写：雨山溪桥客|翻译：Arthur |校对：烟波浩淼|视频制作+字幕：刀锋舞者|编辑&发布：断播
 
  
 

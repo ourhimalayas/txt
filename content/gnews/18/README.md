@@ -2,10 +2,14 @@
 ---
 
 
-## 12/6/2021 文贵直播：今天发生在盘古的事情在中共国每时每刻都在发生，爆料革命战友们的富有、自由和明眼开智让中共恐惧
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1727960/)
+## 美国政府正式宣布外交抵制北京2022冬奥会
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1728031/)
 
-秘密翻译组-北美组
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1207-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+
 
  
 

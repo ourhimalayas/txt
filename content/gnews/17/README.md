@@ -2,10 +2,14 @@
 ---
 
 
-## 12/6/2021 文贵直播：中共刚对盘古的员工再次进行了非法抢劫和虐待，把所有员工和我90岁的父亲赶到马路上
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1727974/)
+## [文贵大直播PTT]病毒+疫苗大灾难
+` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1728055/)
 
-秘密翻译组-北美组
+撰稿：Eglise. 舒平风。莲心不染。坐看云起。MyWay 美工 小黑兔。stores
+
+[12月1日文贵大直播PTT病毒+疫苗大灾难]
+![](https://assets.gnews.org/wp-content/uploads/2021/12/p1.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/p2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/p3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/p4-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/p5-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/p6-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/p7-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/p8-1.jpg)
+发稿 abbs
 
  
 

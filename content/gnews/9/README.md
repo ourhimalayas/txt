@@ -2,24 +2,73 @@
 ---
 
 
-## 人民对即将到来的灾难没有准备好
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1728118/)
+## 美国国务院:鉴于中共国 侵犯人权的行为,我们不会向 北京冬奥会派出任何官方代表
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1728213/)
 
-你们真的没想过七哥现在，我跟我的家人我的生活我的朋友，我跟每个人聊，我也不认为你严肃认真到，真的面对这一刻的到来。
+美国国务院： 鉴于 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 正在进行的种族灭绝和危害人类罪以及其他侵犯人权的行为，我们不会向 2022 年北京冬奥会和残奥会派出任何外交或官方代表。这根本不影响我们对美国队的支持。
 
-**【郭先生直播摘要】2021.11.24****人民对即将到来的灾难没有准备好**
 
-**郭先生：**
 
-然后再想想现在贫穷的， 发病率少的非洲，他也打了很多针。 包括直布罗陀我那个哥们，后来给我打电话的时候，他说郭先生我要告诉你，我听说你在直播中说我了，他说我再告诉你，比你想象的还惨。他小姨子的一家就死了四个人，两个自杀,两个打了疫苗，一个直布罗陀，他说为啥呀，那个人他妹夫的家人死了以后，他家人觉得活着没希望就自杀了。而且他们那块自杀就是爱跳水，自己把自己溺死了。一家两个人死于疫苗，两个人自杀，你想想这样的现象那么在我们身边不会发生吗？
+> .[@StateDeptSpox](https://twitter.com/StateDeptSpox?ref_src=twsrc%5Etfw): We will not send any diplomatic or official representation to the 2022 Winter Olympic and Paralympic Games in Beijing given the PRC’s ongoing genocide and crimes against humanity & other human rights abuses. This does not modulate at all our support for Team USA. [pic.twitter.com/1ap4UQAdU3](https://t.co/1ap4UQAdU3)
+> — Department of State (@StateDept) [December 6, 2021](https://twitter.com/StateDept/status/1467969598683291662?ref_src=twsrc%5Etfw)
 
-想想加拿大美国英国大卫兄弟，你觉得英国那个小路又窄，你觉得开巴士的人他要是得了梗，怎么办？英国的医疗是全欧洲最烂的医疗。医院还有人看病吗？英国最烂的就是它那个电厂、发电站，一塌糊涂，它为啥要搞核电站呢？它电要断了谁来修呢？所以大家这是一个社会的边际效应。一个人有事，一个家毁了，几个家毁了。一个人有了病，整个社会的医疗系统都要为他服务。医疗，你去医院医院没有，你干啥，啥没有。你们真的没想过七哥现在，我跟我的家人我的生活，我的朋友，我跟每个人聊，我没有觉得任何人，包括你们四个，我也不认为你严肃认真到，真的面对这一刻的到来。
 
-我觉得没有人，这比疫苗的本身还可怕，另外一个我想告诉兄弟姐妹就是金融，这样下去这个世界金融能好吗？那是什么骗，金融的印钞票怎么可能下去呢？一定是股票爆盘，房地产爆盘，所有的金融界的爆盘。那么今天完全靠网络支付的金融系统，而不是现金了，银行都关门了。你信用卡还管用吗？网络都不一定管用了，你觉得你要的钱还管用吗？上哪取钱去。当你这些金融系统不运作的时候，你有钱你等于跟没钱一模一样，因为你没有支付手段了。
 
-大家想一下，接下来是什么兄弟姐妹们，今天人类，我们这人类，像我们这些西方城市，将近30%到60%人在住在城市里，公共用电公共交通公共，金融公共食品，所有的供应全都是超市化，一体化。就刚才飞飞看到了，就是你没有来上你家修水管的修马桶的，没卸货的，那都是小事了，就没有货他就没有供应链的开始，怎么还有你末端呢？
+参议员瑞克·斯科特： 随着 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 继续犯下可怕的侵犯人权和种族灭绝罪行，NBA 选择了沉默并且未能挺身而出。今天，我写信给亚当·西尔弗专员，要求召开一次会议，讨论 NBA 在 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 的参与。 【附斯科特参议员官网发布的新闻】
 
-视频剪辑：小蜜蜂 |听写：小蜜蜂 |翻译： 中年少女|校对：烟波浩淼 |视频制作+字幕：xtts |编辑&发表：断播
+
+
+> As Communist China continues to commit horrific human rights abuses & genocide, the [@NBA](https://twitter.com/NBA?ref_src=twsrc%5Etfw) has chosen silence & failed to stand up. Today, I wrote to Commissioner Adam Silver requesting a meeting to discuss the NBA’s involvement in Communist China. [https://t.co/xd0qiEJejL](https://t.co/xd0qiEJejL)
+> — Rick Scott (@SenRickScott) [December 6, 2021](https://twitter.com/SenRickScott/status/1467975271118688262?ref_src=twsrc%5Etfw)
+
+
+
+前白宫幕僚长马克·梅多斯： 太少也太晚。可以预见的是，这届政府几乎没有表现出对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 采取任何行动或以任何方式追究其责任的意愿。 【转推：突发新闻：白宫证实美国以维族种族灭绝为由外交杯葛北京奥运会的报道】
+
+
+
+> Too little too late. And a predictably weak move from an administration that has shown little willingness to take on China or hold them accountable in any way. [https://t.co/2K9Qg9QzZJ](https://t.co/2K9Qg9QzZJ)
+> — Mark Meadows (@MarkMeadows) [December 6, 2021](https://twitter.com/MarkMeadows/status/1467925138305859584?ref_src=twsrc%5Etfw)
+
+
+
+前副国务卿基思·卡拉奇： 结束新疆种族灭绝的道义责任是我们这个时代最团结的两党问题之一。 【附布隆伯格新闻报道：因对维吾尔族迫害惩罚 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的提案将获众议院投票】
+
+
+
+> The moral imperative to end the Xinjiang genocide is one of the most unifying bipartisan issues of our time. [https://t.co/ppSUYo0639](https://t.co/ppSUYo0639)
+> — Keith J. Krach (@KeithJKrach) [December 6, 2021](https://twitter.com/KeithJKrach/status/1467953530669604869?ref_src=twsrc%5Etfw)
+
+
+
+参议员汤姆·科顿： 当需要大胆的领导时，乔·拜登再次选择了半途而废。 美国应该全面抵制在 [#北京](https://twitter.com/hashtag/%E5%8C%97%E4%BA%AC?src=hashtag_click) 举行的种族灭绝运动会。 【附参议院官网文：科顿关于外交抵制 2022 年冬季奥运会的声明科顿议员的声明： “今天，拜登政府宣布外交抵制2022年北京冬奥会。当需要大胆的领导时，总统再次选择了半途而废。美国应该全面抵制在北京举行的种族灭绝运动会。美国企业不应该在经济上支持 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click)，我们不能让美国队暴露在一个让自己运动员消失的令人厌恶的专制政权的危险之下。”】
+
+
+
+> Joe Biden has once again opted for a half measure when bold leadership was required.
+> 
+> The United States should fully boycott the Genocide Games in Beijing.[https://t.co/rFX1jCpeAp](https://t.co/rFX1jCpeAp)
+> — Tom Cotton (@SenTomCotton) [December 6, 2021](https://twitter.com/SenTomCotton/status/1467944944845393929?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克·加拉格尔新闻办公室： 加拉格尔众议员关于美国需要更好地传达与 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 在台湾问题上对抗相关的风险：“在这种对抗中，拉斯维加斯的规则将不适用。在台湾海峡所发生的事情不会在那儿受到限制。” 【转国防新闻网：美国应该在为了台湾的任何斗争中预料到网络攻击】
+
+
+
+> Rep. Gallagher on the need for the U.S. to better communicate the risks associated with a confrontation with the CCP over Taiwan: "In such a confrontation, Las Vegas rules would not apply. What happens in the Taiwan Straits would not be confined there."[https://t.co/QvXbvrvaOc](https://t.co/QvXbvrvaOc)
+> — Rep. Gallagher Press Office (@RepGallagher) [December 6, 2021](https://twitter.com/RepGallagher/status/1467935734917128193?ref_src=twsrc%5Etfw)
+
+
+
+参议员霍利新闻办公室： 霍利参议员说：“[#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 是一个领先的民主国家，是美国的重要伙伴，也是美国在印太地区建立第一个预先清关设施的理想场所。” 【附参议院官网发文：霍利和同事们提出法案以推进台湾的预清关设施】
+
+
+
+> “Taiwan is a leading democracy, a vital partner of the United States, and the perfect place for America’s first preclearance facility in the Indo-Pacific,” said Senator Hawley.[https://t.co/D1EoCGdKwh](https://t.co/D1EoCGdKwh)
+> — Senator Hawley Press Office (@SenHawleyPress) [December 6, 2021](https://twitter.com/SenHawleyPress/status/1467874914560532485?ref_src=twsrc%5Etfw)
+
+
 
  
 
