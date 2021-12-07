@@ -2,32 +2,141 @@
 ---
 
 
-## 白宫正式宣布外交抵制北京冬奥会
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1730569/)
+## Eglise医生：疫苗接种者可能成为人造艾滋病状态
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1730633/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月6日，白宫发言人普萨基在例行记者会上公布，鉴于中共在新疆正在进行的种族灭绝，反人类，以及其他侵犯人权的行为，拜登政府将不派任何外交或官方代表，参加北京2022年冬季奥运会和残奥会。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/9-6.jpg)
-普萨基说，拜登政府已将该决定告知美国盟友，各国将做出自己的决定。政府不会通过禁止美国运动员参赛来 “惩罚 “他们。
+这个疫苗的特点
 
-拜登这一决策与上周媒体的预测相吻合。此前，因中共国在新疆、西藏、香港犯下严重侵犯人权的罪行，并计划武力侵犯台湾，一些鹰派共和党议员一直向拜登政府施压。随后，彭帅事件在体育界掀起抵制声浪。白宫外交抵制冬奥会政策终于落地。民主党众议员蒂姆·瑞安评论说，“抵制力度不够”。
+就是S蛋白做了一件很坏的事
 
-参考链接：[White House announces diplomatic boycott of Beijing Winter Olympics over human rights concerns](https://www.nbcnews.com/politics/white-house/white-house-announces-diplomatic-boycott-beijing-winter-olympics-over-human-n1285419?cid=sm_npd_nn_tw_nw)
+它进入人体以后
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+它的残留物
 
-总编：Ivy001
-编辑：Kathy文艺
-校正/发稿：Fei797
+对人体天然细胞 T细胞
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+T细胞中有一种叫杀伤细胞
+
+是最主要的人体免疫细胞
+
+因为它可以组成你的杀伤细胞
+
+顾名思义 它感受到病毒 病源体
+
+这些细胞（杀伤细胞）可以直接作用于病毒
+
+将它们吞噬
+
+不经过任何其他纠结
+
+或时间耽搁
+
+第一秒它们就开始行动的
+
+所以这些细胞是特别珍贵的
+
+而这个S蛋白最可恶的一点是什么
+
+它占用了人体免疫系统的资源
+
+它与人体天然杀伤细胞有竞争作用
+
+而它们（S蛋白）有绝对优势
+
+因为它们被注入体内 一下那么大的量
+
+从某种意义上抑制了自然杀伤细胞的功能
+
+使（自然杀伤细胞的）数量 质量绝对减少或者消弱
+
+所以 第二剂 第三剂如果这样打下去的话
+
+你的人体的天然免疫力
+
+在这样的时间当中
+
+被一点点耗尽掉
+
+我上次也讲过
+
+英国政府有个研究
+
+它们研究疫苗接种以后从36周到40周
+
+这段时间
+
+接种过疫苗的人的血液检查
+
+他们做每个星期的血液检查
+
+经过各种分析
+
+他们其实主要分析的是自然杀伤细胞的数量
+
+他们就发现在36-40周之间
+
+分成不同年龄组
+
+每个年龄组他们都进行分析
+
+发现有个共同特点就是
+
+随着每一周时间的推移
+
+天然杀伤细胞的数量在减少
+
+也就是说你的天然免疫力从底走向更低
+
+从糟糕走向更糟糕
+
+按照这个下降的速度
+
+预计到明年的春季 也就是4-5月份
+
+这一批比较早接种疫苗的人
+
+他们的天然免疫力就会降到0
+
+几乎是0
+
+也就是说处于一种人造的艾滋病状态
+
+艾滋病就是免疫缺陷
+
+没有这些自然杀伤细胞
+
+没有这些淋巴细胞对病毒 病源体的攻击和保护
+
+人体会处于一种
+
+任何病原体来感染 他们都会被
+
+绝对的感染症状都会100%出现
+
+也就是处于一种没有免疫保护的状态
+
+所以再想到这些孩子
+
+他们接种相对比较晚一点
+
+可能他们的父母出现症状会更早
+
+这是迟早的问题
+
+因为按照免疫学发展规律
+
+他们的天然免疫力一点点在被蚕食
+
+所以到最后
+
+也许是几个月以后 也许是一两年以后 也许是两三年以后
+
+但是 肯定会有这么一天
+
+他们的（打过疫苗的）免疫力会完全丧失
+
+也就意味着他们也是处于一种艾滋病状态 只要是接种了疫苗的孩子
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,44 +2,48 @@
 ---
 
 
-## 五角大楼网络公关承包商承认暗网儿童性虐待指控
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1730681/)
+## 美国宣布抵制北京冬奥后尚未有“大国”跟进
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1730713/)
 
-**翻译：lovemiles**
-**编辑：Candy**
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/暗网.png)图片来源：forbes.com
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/12/B-2.jpg)justjared.com
+白宫官宣外交抵制北京冬奥会过了24小时【1】，还没有看到“大国”的跟进，难道是笔者有些着急？有一点可以肯定，中共不甘罢休，正在全力以赴，垂死挣扎，试图找到某个突破口。
 
+看看英、法、加的反应。
 
-#### 在博思艾伦（Booz Allen）上，一名前空军情报分析师声称，他曾与国防部的美国网络司令部密切合作，同时他从暗网上下载了数千张儿童性虐待图片。
+路透社伦敦12月7日电 英国首相鲍里斯·约翰逊（Boris Johnson）的发言人周二（12月7日）表示，在美国宣布抵制北京冬奥会后，英国尚未就政府代表是否参加北京冬奥会做出决定。
 
-一位博思艾伦汉密尔顿的前公关专家，曾与五角大楼美国网络司令部有过合作，承认使用暗网寻找儿童性虐待资源。
+他对记者说：“英国政府（HMG，Her Majesty’s Government）出席北京奥运会的决定尚未作出，我们将在适当时候阐明我们的立场。”【2】
 
-上周公布的认罪协议提及，53 岁的前空军公关人员兼照片情报分析师布伦丹·卡瓦诺 (Brendan Kavanaugh) 承认：自 2016 年以来，他一直在使用高度加密的洋葱网站来访问“与儿童相关的色情网站”。
+路透社巴黎12月7日电 法国总统周二（12月7日）表示，法国注意到美国宣布以外交手段抵制2022年北京冬奥会，并表示将在欧洲层面就此问题作出协调反应。
 
-卡瓦诺在这些网站上与其他人聊天时使用了化名HebeMom。在认罪协议中写道：“他知道这些材料构成儿童色情内容，而且他拥有的许多图像都涉及青春期前的未成年人和未满12岁的未成年人。卡瓦诺也知道他拥有描绘未成年人参与虐待狂或受虐狂行为的材料。”
+声明说：“我们注意到美国人的决定，当我们对人权感到担忧时，我们会对中共人说，我们去年3月对新疆采取了制裁，我们将在欧洲层面进行协调。”【3】
 
-博思艾伦汉密尔顿公司与美国网络司令部合作的高级公关人员，将于2月份，因剥削儿童罪被判刑。
+MSN发表文章，报道了加拿大的态度，“美国将对北京奥运会进行‘外交抵制’，加拿大也在考虑类似的问题”。文章说，同一天（12月6日）晚些时候，当被问及加拿大是否会效仿时，特鲁多（Trudeau）含糊其辞，但他明确表示，他也将寻找一种方式来谴责中共国，而不迫使加拿大运动员牺牲期待已久的获得奥运奖牌的机会。
 
-对加密硬盘的取证分析显示，卡瓦诺拥有大约3,674张儿童性虐待材料的图像。他于2020年12月被捕，现在等待定于2022年2月的宣判。他将面临最高20年的监禁。
+加拿大体育部长帕斯卡尔圣·翁（Pascale St Onge）周一（12月6日）面对提问也做了同样的回答。
 
-根据他的领英个人资料，卡瓦诺于2013年年中加入市值120亿美元的政府咨询公司 Booz Allen，并“为美国网络司令部的高级领导层提供公共事务支持和指导”。Booz对这一说法提出异议。一位发言人表示：他只在2020年7月至2020年12月期间为该公司工作，并且他的领英个人资料不准确。根据政府合同记录，博思艾伦公司（Booz Allen）自2012年就与美国网络司令部签订了合同，当时它获得了1.2亿美元的合同。今年它与该部门签署了各种其他合同，包括一笔1.65亿美元的交易。
+“到目前为止，还没有做出决定。” “当然，我们非常关注中共国的侵犯人权行为，我们不会轻易作出决定，一旦作出决定，我们将立即与你们沟通。” 【4】
 
-卡瓦诺在另一家承包商工作，声称曾担任“国防信息系统局 (DISA) 应用部门分支机构的战略通信主管”。他还将国家航空航天情报中心列为自己以前的雇主。
+无独有偶，疑似通共、肯定亲共的加拿大驻华大使多米尼克·巴顿（Dominic Barton）昨晚（12月6日）辞职【5】，相信与中共的奥运博弈有关。
 
-除了与政府情报和国防机构密切合作的悠久历史之外，卡瓦诺还将自己列为共济会成员，是马萨诸塞州古代自由和公认的共济会大别墅的泥瓦匠大师。
+认识中共的邪恶需要有个过程，响应美国的抵制同样也不会是一帆风顺，尤其是被中共握住把柄的要员，此时不为主子拼死一搏，主子会很生气，后果会很严重；再者通过这事，又可以增加个与中共勾兑的砝码。
 
-除了对卡瓦诺在领英上的声明提出异议之外，博思艾伦（Booz Allen）公司没有发表评论。它以前曾遇到过员工卷入非法行为的问题——尽管是不同的类型。2010 年代中期，前工作人员爱德华·斯诺登 (Edward Snowden) 从美国国家安全局窃取文件并与媒体机构分享后；另一名博斯员工哈罗德·托马斯·马丁三世 (Harold Thomas Martin III) 被[指控从情报机构窃取文件](https://www.forbes.com/sites/thomasbrewster/2016/10/05/booz-allen-hamilton-nsa-files-shadow-brokers/)。他后来被判处九年徒刑。
+笔者相信，但正义的力量肯定会占上风，西方主要国家肯定会进行抵制，邪共你就别妄想了！刚才文贵先生盖特视频里已经透露了相关信息，西方各国都会跟上美国的步伐。
 
-原文链接：[https://www.forbes.com/sites/thomasbrewster/2021/12/06/booz-allen-cyber-command-pr-pleads-guilty-to-dark-web-child-pornography-charges/?sh=72216ad48cb0](https://www.forbes.com/sites/thomasbrewster/2021/12/06/booz-allen-cyber-command-pr-pleads-guilty-to-dark-web-child-pornography-charges/?sh=72216ad48cb0)
+有关链接：
 
-***发布：Candy***
+【1】[https://gnews.org/zh-hans/1727819/](https://gnews.org/zh-hans/1727819/)
 
-**更多信息，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+【2】[https://www.reuters.com/lifestyle/sports/no-decision-yet-beijing-olympics-says-uk-pms-spokesman-2021-12-07/](https://www.reuters.com/lifestyle/sports/no-decision-yet-beijing-olympics-says-uk-pms-spokesman-2021-12-07/)
+
+【3】[https://www.reuters.com/lifestyle/sports/france-says-there-will-be-coordination-eu-level-beijing-olympics-2021-12-07/](https://www.reuters.com/lifestyle/sports/france-says-there-will-be-coordination-eu-level-beijing-olympics-2021-12-07/)
+
+【4】[https://www.msn.com/en-ca/news/canada/u-s-to-mount-diplomatic-boycott-of-beijing-olympics-canada-contemplates-similar/ar-AARx1a5?ocid=msedgntp](https://www.msn.com/en-ca/news/canada/u-s-to-mount-diplomatic-boycott-of-beijing-olympics-canada-contemplates-similar/ar-AARx1a5?ocid=msedgntp)
+
+【5】[https://www.msn.com/en-ca/news/other/canada-s-ambassador-to-china-steps-down-as-ottawa-faces-pressure-from-biden-administration/ar-AARxbrb?ocid=msedgntp](https://www.msn.com/en-ca/news/other/canada-s-ambassador-to-china-steps-down-as-ottawa-faces-pressure-from-biden-administration/ar-AARxbrb?ocid=msedgntp)
 
  
 

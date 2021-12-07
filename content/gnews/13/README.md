@@ -2,48 +2,44 @@
 ---
 
 
-## 目前为止，美国至少在 10 个州发现了 Omicron 变种
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1730668/)
+## 五角大楼网络公关承包商承认暗网儿童性虐待指控
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1730681/)
 
-据《新闻大全》记者Luca Cacciatore，2021年12月03日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-322.png)图片来源：Kuki Ladron De Guevara/Dreamstime.com
-据《The Hill（国会山报）》报道，截至周五，美国至少有10个州发现了COVID-19的Omicron变种（距卫生官员在非洲南部发现这种新菌株仅有大约一周的时间）。
+**翻译：lovemiles**
+**编辑：Candy**
 
-**报告Omicron变种病例的州是：马里兰州、犹他州、密苏里州、宾夕法尼亚州、纽约州、科罗拉多州、明尼苏达州、加利福尼亚州、夏威夷州和内布拉斯加州。 卫生官员认为，它很可能已经蔓延到了其他州。**
-
-周三，美国加州发现首例（Omicron 变种）病例。纽约州州长Kathy Hochul周四宣布该州出现5例病例，是迄今为止所有州中最多的。
-
-马里兰州卫生官员周五证实了巴尔的摩地区的三起病例。据《纽约时报》报道，当天内布拉斯加州发现6例，密苏里州发现1例。
-
-据《丹佛邮报》报道，周四，科罗拉多州报道了该州首例病例，该患者接种了两剂疫苗并于最近从非洲南部返回。
-
-Omicron变种最令人感兴趣的是它在传播性和严重性方面与delta变种的相关性。 《华盛顿邮报》指出，Delta变种最近在美国各地死灰复燃。
-
-据《纽约时报》报道，美国总统乔·拜登（Joe Biden）的首席医疗顾问安东尼·福奇(Anthony Fauci)博士在周五的新闻发布会上表示，科学家们正在密切监测病例翻倍的速度，以观察Omicron变种是否会超过Delta变种，成为美国的主要COVID-19病毒变种。
-
-福奇说，在大约两周内，“我们将对Omicron变种的传播、免疫逃避和严重程度有更多的了解。”
-
-**据《今日美国》报道，疾病控制与预防中心 (CDC) 主任罗谢尔·瓦伦斯基 (Rochelle Walensky) 博士说：“CDC正在为加强和简化全国基因组测序工作提供支持，并正在扩大对国际旅行者的监测。我们应该记住，目前美国99.9%的病例来自Delta变种 。”**
-
-世界卫生组织（WHO）官员周五在菲律宾新闻发布会上也表达了类似的看法。
-
-世卫组织西太平洋区域主任Takeshi Kasai说：“所有这些方面的积极消息是，我们目前掌握的关于Omicron 变种的信息，没有一个表明我们需要改变目前的应对方向。”
-
-原文连接[：https://www.newsmax.com/newsfront/omicron-covid-19-delta/2021/12/03/id/1047300/](https://www.newsmax.com/newsfront/omicron-covid-19-delta/2021/12/03/id/1047300/)
-
-翻译：洛杉矶盘古农场 – 比格渣餐厅老板の娘
-
-校对：洛杉矶盘古农场 – Mike Li
-
-评论：洛杉矶盘古农场 – 比格渣餐厅老板の娘
-
-编辑：洛杉矶盘古农场 – Wendy
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/暗网.png)图片来源：forbes.com
 
 
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
+#### 在博思艾伦（Booz Allen）上，一名前空军情报分析师声称，他曾与国防部的美国网络司令部密切合作，同时他从暗网上下载了数千张儿童性虐待图片。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+一位博思艾伦汉密尔顿的前公关专家，曾与五角大楼美国网络司令部有过合作，承认使用暗网寻找儿童性虐待资源。
+
+上周公布的认罪协议提及，53 岁的前空军公关人员兼照片情报分析师布伦丹·卡瓦诺 (Brendan Kavanaugh) 承认：自 2016 年以来，他一直在使用高度加密的洋葱网站来访问“与儿童相关的色情网站”。
+
+卡瓦诺在这些网站上与其他人聊天时使用了化名HebeMom。在认罪协议中写道：“他知道这些材料构成儿童色情内容，而且他拥有的许多图像都涉及青春期前的未成年人和未满12岁的未成年人。卡瓦诺也知道他拥有描绘未成年人参与虐待狂或受虐狂行为的材料。”
+
+博思艾伦汉密尔顿公司与美国网络司令部合作的高级公关人员，将于2月份，因剥削儿童罪被判刑。
+
+对加密硬盘的取证分析显示，卡瓦诺拥有大约3,674张儿童性虐待材料的图像。他于2020年12月被捕，现在等待定于2022年2月的宣判。他将面临最高20年的监禁。
+
+根据他的领英个人资料，卡瓦诺于2013年年中加入市值120亿美元的政府咨询公司 Booz Allen，并“为美国网络司令部的高级领导层提供公共事务支持和指导”。Booz对这一说法提出异议。一位发言人表示：他只在2020年7月至2020年12月期间为该公司工作，并且他的领英个人资料不准确。根据政府合同记录，博思艾伦公司（Booz Allen）自2012年就与美国网络司令部签订了合同，当时它获得了1.2亿美元的合同。今年它与该部门签署了各种其他合同，包括一笔1.65亿美元的交易。
+
+卡瓦诺在另一家承包商工作，声称曾担任“国防信息系统局 (DISA) 应用部门分支机构的战略通信主管”。他还将国家航空航天情报中心列为自己以前的雇主。
+
+除了与政府情报和国防机构密切合作的悠久历史之外，卡瓦诺还将自己列为共济会成员，是马萨诸塞州古代自由和公认的共济会大别墅的泥瓦匠大师。
+
+除了对卡瓦诺在领英上的声明提出异议之外，博思艾伦（Booz Allen）公司没有发表评论。它以前曾遇到过员工卷入非法行为的问题——尽管是不同的类型。2010 年代中期，前工作人员爱德华·斯诺登 (Edward Snowden) 从美国国家安全局窃取文件并与媒体机构分享后；另一名博斯员工哈罗德·托马斯·马丁三世 (Harold Thomas Martin III) 被[指控从情报机构窃取文件](https://www.forbes.com/sites/thomasbrewster/2016/10/05/booz-allen-hamilton-nsa-files-shadow-brokers/)。他后来被判处九年徒刑。
+
+原文链接：[https://www.forbes.com/sites/thomasbrewster/2021/12/06/booz-allen-cyber-command-pr-pleads-guilty-to-dark-web-child-pornography-charges/?sh=72216ad48cb0](https://www.forbes.com/sites/thomasbrewster/2021/12/06/booz-allen-cyber-command-pr-pleads-guilty-to-dark-web-child-pornography-charges/?sh=72216ad48cb0)
+
+***发布：Candy***
+
+**更多信息，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
