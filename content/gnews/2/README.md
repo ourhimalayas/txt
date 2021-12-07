@@ -2,12 +2,21 @@
 ---
 
 
-## 美国防部长再次强调中共国是日渐逼近的挑战
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1730030/)
+## 七哥说—第34期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1730283/)
 
-12/04/2021 劳埃德·奥斯汀：我再一次将中共国描述为国防部的日渐逼近的挑战。但美国并不是一个害怕竞争的国家。因此，我们决心遏制侵略、防止冲突并建立常识护栏。我们的新举措是利用所有国家力量工具来应对中共国的挑战。
+**制作：Inzaghi**
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+天怒人怨即将使中共灭亡！唤醒会凝聚更多的力量。
+不抛弃，不放弃的正是你心中那一份对信念的坚定。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/unknown-3-2.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2021-12-02_7.04.37.png)
+
+发稿：信心的选择
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH..jpeg)
 
  
 

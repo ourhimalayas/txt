@@ -2,71 +2,143 @@
 ---
 
 
-## “你不会毁掉美国的”——“斯巴达克斯COVID信”（八）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1729559/)
+## 最新｜社媒消息：辉瑞的董事长兼首席执行官艾伯乐 (Albert Bourla)是个恐怖分子
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1729670/)
 
-#### **（八）结论**
+**By:[秘翻新闻](https://gtv.org/broadcast/watch/61af21e8bbd75f62e53191ca)**
 
-**翻译：七叶之芒**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕截图-2021-12-07-101130.jpg)图片来源： zerohedge.com
-**接上篇：[（七）COVID-19 疫苗开发与超人类主义的联系](https://gnews.org/zh-hans/1729551/)**
+**[2021-12-7](https://gtv.org/broadcast/watch/61af21e8bbd75f62e53191ca)**
 
-**结论：**
+**1.蓬佩奥12月7日发推说：**
 
-目前的大流行病是由建制派产生和延续的，通过使用与中共解放军有联系的中共国生物战实验室设计的病毒，在美国纳税人的钱和法国专家的帮助下。
-
-这项研究是在绝对荒谬的“功能增益”研究的委婉说法下进行的，据说是为了确定哪些病毒具有最高的人畜共患传染病的潜力，并对其进行先发制人的疫苗或防范。
-
-功能增益/威胁增益研究，又称“关注的双重用途研究”，或DURC，是用另一个听起来更友好的名字进行的生物武器研究，只是为了避免称呼它的实际内容的禁忌。它一直都是生物武器研究。进行这种研究的人完全明白，他们是在利用对人类没有传染性的野生病原体，并使其更具传染性，他们往往从鼓励他们这样做的军事智囊团那里获得资助。
-
-这些进行这种研究的病毒学家是他们同伴的敌人，就像纵火狂魔的消防员。功能增益研究从未在任何大流行病中保护过任何人。事实上，这意味着它对预防大流行病的效用实际上是负面的。它应该在全球范围内被禁止，从事这项工作的疯子们早就应该被套上紧身衣了。
-
-无论是通过武汉病毒研究所的泄漏还是故意释放，一种致命的SARS菌株现在已经在全球范围内流行，此前世卫组织和疾控中心以及政府官员先是淡化了风险，然后故意煽动恐慌和封锁，危及人们的健康和生计。
-
-然后，统治我们的完全堕落和精神变态的贵族阶级利用这一点作为借口，胁迫人们接受一种注射毒药，这种毒药可能是一种减少人口的药剂，也可能是以注射”智能灰尘”形式存在的精神控制/安抚剂，或者两者合二为一。他们认为，通过将拒绝接种疫苗的社会污名作为武器，他们可以摆脱这种做法。他们的想法是不正确的。
-
-他们的动机对任何关注的人来说都是清楚而明显的。这些自大狂搜刮了自由世界的养老基金。华尔街已经资不抵债，自2019年底以来一直存在着流动性危机。现在的目的是在我们意识到我们被这些疯子敲诈得有多惨之前，对人类进行全面的、全方位的身体、精神和金融控制。
-
-这场大流行病及其应对措施对精英会来说有多种用途：
-
-- 掩盖了由高利贷资本家和非自住业主对我们的经济进行的高利贷掠夺所带来的萧条，他们对社会完全没有任何价值。与其说我们有一个极其可以预测的“占领华尔街”第二阶段，不如说精英们和他们的走狗在电视上站起来，把自己描绘成明智和全能的救世主，而不是他们是卑鄙的“土地海盗”组成的掠夺集团。
-- 破坏小企业，侵蚀中产阶级。
-- 将数万亿美元的财富从美国公众手中转移到亿万富翁和特殊利益集团的口袋里。
-- 从事内幕交易，购买生物技术公司的股票，做空实体企业和旅游公司，目的是使面对面的商业和旅游业崩溃，取而代之的是以电子商务和服务化。
-- 为与中共国的战争制造理由，鼓励我们攻击他们，浪费美国人的生命和财富，把我们推向核灾难的边缘。
-- 建立技术和生物安全框架，以控制人口和技术官僚社会主义的“智能城市”，每个人的行动都被专制所跟踪，所有这些都是为了预期广泛的自动化、失业和粮食短缺，通过使用疫苗的虚假幌子来迫使合作。
+仅外交抵制北京冬奥会是不够的。中共根本不在乎外交抵制，因为世界各国运动员仍会前往北京参赛，他们面临巨大风险。乔·拜登需要站出来反对中共。
 
 
-这些事情中的任何一件都会构成对西方社会的恶性强奸。合在一起，它们让人难以置信；它们完全颠覆了我们最宝贵的价值观。
 
-这一切的目的是什么？人们只能猜测肇事者的动机，然而，我们有一些理论。
+> A diplomatic boycott of the [#Olympics](https://twitter.com/hashtag/Olympics?src=hash&amp;ref_src=twsrc%5Etfw) is not enough. The CCP doesn’t give a rip about a diplomatic boycott, because at the end of the day, they are still hosting the world’s athletes. Joe Biden needs to stand up to the CCP. [#BoycottBeijingOlympics](https://twitter.com/hashtag/BoycottBeijingOlympics?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Mike Pompeo (@mikepompeo) [December 6, 2021](https://twitter.com/mikepompeo/status/1467931700818755585?ref_src=twsrc%5Etfw)
 
-精英们正试图拉高阶梯，消除大部分人口的向上流动，清除政治对手和其他“不受欢迎的人”，并将人类的其余部分置于严格的约束之下，限制我们获得他们认为“高影响”的某些商品和服务，如汽车使用、旅游、肉类消费，等等。自然，他们将继续拥有自己的奢侈品，作为一个类似于封建主义的严格种姓制度的一部分。
 
-他们为什么要这样做？很简单。精英们是新马尔萨斯主义者，认为我们人口过剩，资源枯竭将在短短几十年内使文明崩溃。他们的这种信念不一定是错误的。我们是人口过剩，我们正在消耗太多的资源。然而，为了应对迫在眉睫的危机，他们策划了这样一场令人毛骨悚然的杀人夺权行动，表明他们对自己的同伴只有极度的蔑视。
 
-对于那些参与这场令人厌恶的闹剧而不了解自己在做什么的人，我们有一个词送给你——停止！你们正在对你们的国家和你们的同胞造成不可弥补的伤害。
+**2.皮特纳瓦罗12月7日发推说：**
 
-对于那些可能正在阅读这个警告，并且完全了解和理解他们正在做什么，以及它将如何不公正地伤害数百万无辜的人的人，我们还有几句话要说。
+辉瑞这个奸商正通过新冠疫苗大发横财，疫苗应该是非盈利的。辉瑞的董事长兼首席执行官艾伯乐 (Albert Bourla)是个恐怖分子，因为他的公司正在操纵和掩盖疫苗数据。辉瑞通过推广加强针疫苗为其股东派发年金。
 
-让你下地狱吧。你不会摧毁美国和自由世界，你也不会拥有你的新世界秩序。我们将确保这一点。
 
-*这个PDF**文件包含14**页，然后是另外17**页的参考资料。*
 
-*关于这些，请访问：*[Covid19 – The Spartacus Letter*的原始*PDF*文件*](https://mega.nz/file/HZNmyRKB#xF15FrsAEZkwBPi4tdUP5toBBqeRHDJJAHzZt6Hg_Qg)
+> [@Pfizer](https://twitter.com/pfizer?ref_src=twsrc%5Etfw) = profiteer. Vaccines should be non-profit. [@albertbourla](https://twitter.com/AlbertBourla?ref_src=twsrc%5Etfw) of Pfizer is real domestic terrorist with company that rigs/hides data. Wants booster annuity for shareholders. For details, read In Trump Time on Amazon: [https://t.co/KPNUX2SBsy](https://t.co/KPNUX2SBsy)[https://t.co/BfAFJNV26g](https://t.co/BfAFJNV26g)
+> — Peter Navarro (@RealPNavarro) [December 6, 2021](https://twitter.com/RealPNavarro/status/1467899323933507586?ref_src=twsrc%5Etfw)
 
-**新闻来源**：[zerohedge.com][“Damn You To Hell, You Will Not Destroy America” – Here Is The ‘Spartacus COVID Letter’ That’s Gone Viral](https://www.zerohedge.com/covid-19/damn-you-hell-you-will-not-destroy-america-here-spartacus-covid-letter-thats-gone-viral)
+
+
+**3.娜塔莉温特斯12月7日发推说：**
+
+辉瑞公司董事会的新成员苏·德斯蒙德-赫尔曼（Sue Desmond-Hellmann）在2013年3月被脸书任命为董事会成员，并在2015年6月至2019年10月30日期间担任脸书的首席独立董事。
+
+【推文转《国家脉动》报道，在赫尔曼担任辉瑞的董事会成员期间，脸书发起了审查新冠疫苗怀疑者的活动，脸书泄露的内部文件显示，其算法旨在“大幅减少用户接触到对疫苗有怀疑的评论的概率”，以扫清人们的疫苗接种障碍。潜在的另一个利益冲突是，赫尔曼还在拜登总统的科技顾问委员会任职，该委员会被白宫描述为“负责向总统提出科学、技术和创新政策建议的唯一外部顾问机构”。】
+
+
+
+> 🚨🚨🚨
+> 
+> REVEALED: New Pfizer Board Member Is Ex-Facebook Director. [https://t.co/d4EdQMr2Cw](https://t.co/d4EdQMr2Cw)
+> — Natalie Winters (@nataliegwinters) [December 6, 2021](https://twitter.com/nataliegwinters/status/1467972405301850115?ref_src=twsrc%5Etfw)
+
+
+
+**4.《网关专家》12月6日在盖特发文：**
+
+mRNA 疫苗的发明者罗伯特·马龙博士指责福奇和其他人通过阻止使用羟氯喹以及伊维菌素来给中共病毒患者进行治疗，导致50多万名美国人死亡。
+
+有充分证据表明，福奇和美国顶级医生共谋取消硫酸羟氯喹作为中共病毒的治疗方案，并用伪造的研究结果对其进行污蔑和诽谤，数百万人因此不幸逝世。
+
+【盖文转报道，参议员罗恩·约翰逊 (Ron Johnson) 抨击了福奇失败的防疫对策，指责他无视并破坏了使用廉价的和有效的仿制药用于中共病毒的早期治疗，反而选择了一种并不安全或有效的疫苗。现在已经有67项对照研究显示，67%的新冠患者在服用伊维菌素后病情得到改善。有298项研究显示，硫酸羟氯喹可以改善64%的新冠患者病情。】
+[![](https://assets.gnews.org/wp-content/uploads/2021/12/IMAGE-2021-12-07-211202.jpg)](https://gettr.com/post/pivpau362e)
+**5.新唐人12月6日在盖特发文：**
+
+上周末，澳大利亚维多利亚州数千公民连续第五个周六走上墨尔本的街头，抗议疫苗强制令和极具争议的法案–《2021年公共卫生和福利修正案，大流行管理法》。该法案将于12月16日生效，将赋予维多利亚州政府宣布大流行病和发布公共卫生命令的最终权力，并威胁要对违反命令的行为处以高额罚款。人们高举“废除草案”的横幅，该法案现已通过，正等待皇室批准。澳州自由党议员克雷格·凯利 (Craig Kelly)在抗议集会上说：“如果没有政府颁发的许可证，你就无法从事许多行业的工作。这是不民主的、不道德的，是对我们人权的侵犯，我们不应该容忍它。”
+[![](https://assets.gnews.org/wp-content/uploads/2021/12/IMAGE-2021-12-07-211505.jpg)](https://gettr.com/post/piufvyca01)
+**6.新唐人12月6日在盖特发文：**
+
+美国太空军副司令大卫·汤普森（David Thompson）12月4日在一个论坛上警告说：“中共正以两倍于我们的速度建设、部署和更新其太空能力。这意味着，很快，如果我们不开始加速我们的开发和交付能力，到 2030 年，中共在太空能力方面可能会超过美国。美国现在在许多太空领域正与中共进行战略竞争，但我毫不怀疑，我们完全有能力在这场竞争中获胜。”
+[![](https://assets.gnews.org/wp-content/uploads/2021/12/IMAGE-2021-12-07-211811.jpg)](https://gettr.com/post/pivpjl4d26)
+**7.Newsmax 12月6日发推说：**
+
+中共外交部发言人赵立坚12月6日威胁说，如果美国继续外交抵制明年2月举行的北京冬奥会，中共将采取措施进行“坚决反制”，但没有详细说明中共将如何报复。尽管美国总统拜登已正式宣布不派官方代表团参加北京冬季奥运会，但美国运动员仍将参加比赛。派遣高级别代表团参加每届奥运会一直是美国和其他主要国家的传统，目前还不清楚美国可能会派谁去北京参加奥运会。澳大利亚与中共的关系因一系列争端而恶化，它也提出了进行外交抵制的可能性。
+
+
+
+> China on Monday threatened to take “firm countermeasures” if the U.S. proceeds with a diplomatic boycott of February’s Beijing Winter Olympic Games. [https://t.co/fZAHan65lZ](https://t.co/fZAHan65lZ)
+> — Newsmax (@newsmax) [December 6, 2021](https://twitter.com/newsmax/status/1467843939143061505?ref_src=twsrc%5Etfw)
+
+
+
+**8.罗伯特马龙12月6日发推说：**
+
+美国第六巡回上诉法院在12月3日的裁决中，驳回了拜登政府将职业安全与健康管理局的新冠疫苗或测试要求的诉讼转移到其他法院的动议，同时也拒绝了白宫解除暂停疫苗强制令的提议，这对拜登当局的疫苗强制令造成了打击。
+
+
+
+> "The 6th Circuit Court denied the gov’s motion to transfer the OSHA vaccine-or-test req. lawsuit to a different court, while also rejecting the WH’s bid to dissolve a stay on the mandate, delivering a blow to the Biden admin’s efforts with implementation[https://t.co/DJ89WBNEPz](https://t.co/DJ89WBNEPz)
+> — Robert W Malone, MD (@RWMaloneMD) [December 5, 2021](https://twitter.com/RWMaloneMD/status/1467542141677285392?ref_src=twsrc%5Etfw)
+
+
+
+**9.真正美国之声12月7日发推说：**
+
+美国食品药品监督管理局FDA警告说，100多种药品正面临供应链短缺。
+
+【推文转报道，目前被FDA列入“短缺名单”的药物包括抗抑郁药、抗生素、心脏治疗药、抗癌药和止痛药。FDA在一份声明中写道：“FDA药物评估和研究中心的工作人员已经要求制造商评估他们的整个供应链，包括活性药物成分、成品剂量形式和任何可能因新冠疫情爆发而在供应链的任何区域受到影响的部分。”由FDA监管的产品占美国进口的14%，出口的15%。该机构还报告说：“大约80%的活性药物成分制造商位于美国之外。“全国社区药剂师协会11月的民意调查显示，60%的药店面临供应链中断的情况，更严重的问题是，68%的药店表示他们正面临人员短缺。】
+
+
+
+> More than 100 pharmaceutical drugs are facing supply chain shortages, the U.S. Food and Drug Administration warned.[https://t.co/tIosuUobKL](https://t.co/tIosuUobKL)
+> — Real America's Voice (RAV) (@RealAmVoice) [December 7, 2021](https://twitter.com/RealAmVoice/status/1468008604632596480?ref_src=twsrc%5Etfw)
+
+
+
+**10.Disclose.tv 12月7日发推说：**
+
+德国150家大企业纷纷将其品牌宣传语改为忽悠大家接种新冠疫苗，以配合德国政府有史以来规模最大的“疫苗接种宣传活动”。
+
+
+
+> JUST IN – 150 big corporations change brand claims in Germany for the largest "vaccination promotion campaign" ever. [pic.twitter.com/A4gJ8Qv97B](https://t.co/A4gJ8Qv97B)
+> — Disclose.tv (@disclosetv) [December 6, 2021](https://twitter.com/disclosetv/status/1467894541906817028?ref_src=twsrc%5Etfw)
+
+
+
+**11.Disclose.tv 12月7日发推说：**
+
+据《日经亚洲》报道，日本将对稳定币实行新限制，将限制由储备资产，比如如美元或日元支持的加密货币发行数量，比如泰达币 (Tether)。日本金融厅寻求在2022年提出立法，限制向银行和电汇公司发行稳定币。
+
+
+
+> JUST IN – Japan to restrict crypto stablecoins: Only banks, wire transfer companies to issue currency-backed coins such as [#Tether](https://twitter.com/hashtag/Tether?src=hash&amp;ref_src=twsrc%5Etfw) in proposed legislation (Nikkei)
+> — Disclose.tv (@disclosetv) [December 6, 2021](https://twitter.com/disclosetv/status/1467927237613785090?ref_src=twsrc%5Etfw)
+
+
+
+**12. 杰森米勒12月7日在盖特发文：**
+
+盖特网页版新增了“夜间”模式！感谢盖特的工程师团队！
+[![](https://assets.gnews.org/wp-content/uploads/2021/12/IMAGE-2021-12-07-213334.jpg)](https://gettr.com/post/piv6u3802f)
+**13.秘密翻译组12月6日在盖特发文：**
+
+泽伦科医生12月1日在接受Infowars采访时说：“真正的病毒是长期灌输进人们脑子里的恐惧言论，推动疫苗势力借此维持群体在精神上的病态。我们知道焦虑和人类群体的相互隔离导致心理代偿失调，而当人们处于那种脆弱的心理状态时，就可以被操纵和强迫，变得容易上当，去做有权势的人让你做的事情。在这种特殊情况下，人们就回去接种有毒并且致命的毒疫苗，从而患上血栓、心脏病、中风、心肌炎等症状，流产率从10%上升到82%，癌症、自身性免疫疾病增多，卵巢睾丸出现功能障碍，很有可能导致不育。但是所有这些与抗体依赖性增强导致群体灭绝的可能性相比，都算不上什么！疫苗的致命程度比天然病毒高100倍，越南刚发布的数据说，感染了中共病毒的人群中，接种者携带的病毒量是未接种者的251倍，这与以色列的数据一致。
+[![](https://assets.gnews.org/wp-content/uploads/2021/12/IMAGE-2021-12-07-213501.jpg)](https://gettr.com/post/piufnx03f4)
+**14.Eglise医生12月7日在盖特发文：**
+
+伊维菌素是个抗病毒”巨无霸”，通过蛋白质定量研究发现伊维菌素有广谱抗病毒能力。伊维菌素非但能抑制新冠病毒的复制，还对巨细胞病毒、人乳头瘤状病毒、EB病毒、艾滋病毒等等有抑制作用。
+[![](https://assets.gnews.org/wp-content/uploads/2021/12/IMAGE-2021-12-07-213612.jpg)](https://gettr.com/post/piw9h0ea83)
+***以上信息和作者观点不代表Gnews平台***
+
+发布:星星
 
 * * *
 
-***审核：蚂蚁兄弟
-校对：阿伯塔
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH..jpeg)
-
-
-
+**欢迎广大战友加入 【秘密翻译组-即时新闻播报组】**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/IMAGE-2021-11-29-195110.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
