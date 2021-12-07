@@ -2,37 +2,52 @@
 ---
 
 
-## 有声|标准普尔500指数本周表现不佳，未来走势堪忧
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1730360/)
+## 美国证券交易所委员会否认Wisdom Tree现货比特币ETF申请
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1730397/)
 
-配音：香草山美食部 – 玫瑰园
+作者：银河勇气星—骄子
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-零对冲12月3日引用彭博实时市场评论员及分析师马克·克兰菲尔德（Mark Cranfield）的分析指出，从感恩节后的熔断开始，标准普尔500指数期货在经历了一周的鞭打式交易后明显看跌。
 
-尽管该指数并不是单边走低，但该合约的盘中反弹已经在较低的峰值处消退。图中显示的帽子顶部给短线交易者提示了足够清晰的信号，即资产是否被定格在下降通道上。
 
-尽管非农就业数据的确不及预期，但美联储也不会偏离其紧缩政策。分析师预计，标准普尔期货从11月的峰值开始下跌，看起来像是长期走低的转折点，这将为明年的全球熊市奠定基础。
 
-文字版原文：[标准普尔500指数本周表现不佳，未来走势堪忧](https://gnews.org/zh-hans/1720450/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-9.jpg)
 
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
+
+
+当地时间12月1日，美国证券交易所委员会（美国SEC），驳回了总部位于纽约的Wisdom Tree公司申请的关于成立现货比特币ETF的需求。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/20211123-02-scaled.jpg)
+SEC指出Wisdom Tree比特币信托缺乏“监视共享协议”，未履行《外汇法》中关于“防止欺诈和操纵行为”以及“保护投资者和公共利益”的要求。此次是美国SEC对现货比特币ETF的第二次拒绝，但此次拒绝并未让数字加密投资者大肆抨击。
+
+截止12月1日，比特币价格只是略降。从那以后比特币经历了两位数的下跌，仅从周五上午至周六的24小时内，比特币跌幅超过17%。更广泛的加密货币投资者对比特币交易市场欺诈和操纵的担忧与日俱增。
+
+参考来源：
+
+[SEC denies WisdomTree’s spot Bitcoin ETFSEC denies WisdomTree’s spot Bitcoin ETF](https://forkast.news/headlines/sec-denies-wisdomtree-spot-bitcoin-etf/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-3.png)
+
+编辑/校正/发稿：兰兰
+
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-10.jpg)
+
+
+
+
 
  
 
