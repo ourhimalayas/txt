@@ -2,35 +2,23 @@
 ---
 
 
-## 欧洲议员声援民众抵抗疫苗暴政
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1729016/)
+## 一百多名共和党议员反对医疗雇员强制接种中共病毒疫苗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1729124/)
 
-撰稿：东京樱花团 – 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间12月4日，德裔欧洲议员克里斯汀.安德森，在社交平台发布短片，公开声援澳洲人民连续多周抗议疫苗暴政，并严厉谴责澳洲当局践踏人权、自由和法治，将一个民主国家变成集权统治。
+#### 撰稿：彩虹        
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-315.png)
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-6.jpg)图片来源：WWSB
+12月6日，《新闻极限》发布文章，报道国会中一百一十多名共和党人已经签署了一封给CMS（医疗保险和医疗补助服务中心）主任奇基塔·布鲁克斯-拉苏尔（Chiquita Brooks-LaSure）的信，反对联邦政府对医疗保健雇员强制接种中共病毒（COIVD-19）疫苗。
 
-安德森说，历史从来没有一个好人会强迫他人服从，人民的福祉从来都只是暴君的托词。澳大利亚不需要所谓的“疫苗”战略计划，澳大利亚需要的是“无压迫”战略计划。安德森一针见血得指出，政府推行疫苗根本不是为了预防病毒，而是为了打击和消灭人类。 她提醒全世界人民，自由是个人的选择，而非政府的施舍。她呼吁澳洲人民，从现在起就必须挺身反抗。
+根据《福克斯新闻》的报道，上周，联邦法院停止了对十个州的中共病毒疫苗强制接种，CMS暂时停止了强制接种规定。
 
-消息链接：[https://gettr.com/post/piulodcba8](https://gettr.com/post/piulodcba8)
+该信由共和党众议员范恩·布肯南（Vern Buchanan）和拉里·布克申（Larry Bucshon）领导发起。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+**新闻来源**
 
-**校对/发稿：童谣**
+[GOP Lawmakers Release Letter Opposing Vaccine Mandate for Health Workers](https://www.newsmax.com/politics/vaccine-mandate-healthcare-workers/2021/12/06/id/1047584/)
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
