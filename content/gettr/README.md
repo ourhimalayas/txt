@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/7/2021 5:31 PM (UTC)`
+
+G|Fashion: that’s the fire 🔥 🔥🔥we’re talking about @gfashion @DDNYC  
+![img](https://media.gettr.com/group48/getter/2021/12/07/17/43a0f7fc-73dd-6df8-27bb-9b920a4fe8fa/out.jpg)
+
+---
+
 `@miles 12/7/2021 4:58 PM (UTC)`
 
 G| Fashion-Fitting in Milan🇮🇹, more styles are coming soon 🔥🔥🔥❤️❤️❤️@gfashion@DDNYC 
@@ -143,13 +150,6 @@ Dec. 6th, 2021, after the CCP, filled with fear of our Whistleblowers’ Movemen
 
 12/05/2021 Miles Guo: All the entrepreneurs in Communist China are like the CCP’s mistresses. Not only do their families end up being sacrificed, but the CCP is also using them to elicit a debt crisis to bring down the US economy. The CCP plays such dirty tricks everywhere<br/><br/>12/05/2021文贵直播：中共国的企业家都是中共的小三，他们不仅连家人都沦为牺牲品，而且还被中共拿来制造债务危机从而搞垮美国经济，中共这种流氓的手段无处不在<br/>
 ![img](https://media.gettr.com/group20/getter/2021/12/06/02/ac8fb8f2-d54f-9254-774e-b0472034341a/out.jpg)
-
----
-
-`@miles 12/6/2021 12:26 AM (UTC)`
-
-12/05/2021 Miles Guo: The greedy people in cahoots with the CCP have been infected with "economic AIDS". The CCP plans to bring down the Western finance and economy through the collapse of Evergrande, R&F Properties and other real estate developers, and the biggest victims will be the Chinese people, who will not only be looted of the wealth of previous generations, but also will continue to be enslaved in the future<br/><br/>12/05/2021文贵直播：和中共勾兑的贪婪者已染上“经济艾滋病”，中共计划通过恒大、富力等地产商暴雷干掉西方金融和经济，受害最大的将是中国老百姓，不但前几代人的财富被洗掠，未来还要继续做奴隶<br/>
-![img](https://media.gettr.com/group18/getter/2021/12/06/00/66d7b9a0-b14a-4e81-6e7f-b760f058b478/out.jpg)
 
 ---
 
