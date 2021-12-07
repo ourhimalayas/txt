@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/7/2021 2:16 AM (UTC)`
+
+12/06/2021 Miles Guo: What is going on in Pangu is also happening all the time in every corner of communist China. The CCP is frightened by the wealth, freedom and enlightenment enjoyed by the fellow fighters of the Whistleblowers’ Movement. The only way for us to save our families and our fellow Chinese, is to take actions and take down the CCP.<br/><br/>12/06/2021文贵直播：今天发生在盘古的事情在中共国每时每刻都在发生，爆料革命战友们的富有、自由和明眼开智让中共恐惧，我们唯有继续行动，只有灭共，才能拯救家人和中国同胞<br/>
+![img](https://media.gettr.com/group34/getter/2021/12/06/23/c81cde42-f49d-2b3f-9e1f-cd2d9e772984/out.jpg)
+
+---
+
+`@miles 12/7/2021 2:14 AM (UTC)`
+
+12/6/2021 Miles Guo: Several hours ago, more than 100 judicial policemen, over 100 special policemen, and 100 or so people from BBMG seized the Pangu Plaza and drove 1,000 or so employees to the road, with my father being forced to wander in the streets - This is how the CCP’s evil works! But we shall not be swayed by greed, hatred, delusion, arrogance, and doubt. Because no one will be safe if the CCP is not taken down!<br/><br/>12/6/2021 文贵直播：数小时前，100多个法警、特警和100多个北京金隅的人封了盘古，将1000多名员工赶到街上，并让我的父亲被迫流落街头，这就是中共的邪恶！但我们不能被贪嗔痴慢疑左右，因为如果不灭共，没有任何人是安全的！<br/>
+![img](https://media.gettr.com/group28/getter/2021/12/07/02/6b5dc20f-8277-ecf8-f2c2-758febe66b1a/out.jpg)
+
+---
+
+`@miles 12/7/2021 2:10 AM (UTC)`
+
+12/6/2021 Miles Guo: The CCP has just committed yet another illegal robbery and abuse of the employees at the Pangu Plaza, and all of them and my 90-year-old father were forced out into the streets; all the CCP thugs at the scene will not be on our pardon list; fellow fighters shall do nothing but safely spreading the truths about the COVID vaccines, the antidotes, and the CCP virus<br/><br/>12/6/2021 文贵直播：中共刚对盘古的员工再次进行了非法抢劫和虐待，把所有员工和我90岁的父亲赶到马路上；现场的中共打手们都不会上我们的宽恕名单；战友们除了安全地传播疫苗、解药和病毒的真相，什么都不要做<br/><br/>
+![img](https://media.gettr.com/group27/getter/2021/12/07/02/3792bc23-33a5-b48e-4111-13f2e664f968/out.jpg)
+
+---
+
 `@miles 12/6/2021 3:21 PM (UTC)`
 
 Dec. 6th, 2021, after the CCP, filled with fear of our Whistleblowers’ Movement, turned the Pangu‘s dragon head into a bird's head, a few hours ago, 150 bailiffs, more than 100 special police, and over 100 people from BBMG, supposedly entrusted by the Dalian court to execute the seizure of all assets of Pangu, did a complete “cleanup”. All the female employees who were changing shifts in the dormitory in their pajamas were driven to the road, confiscated all their phones and belongings; throwing my old father, who had a stroke, out of the house and is now wandering on the street. All the thousands of employees, residents and guests were thrown out of the Pangu Hotel. The whole scene became a great arrest against humanity! I will have a live broadcast on this soon!
@@ -130,26 +151,6 @@ Hcoin To The Moon <br/>iTunes Ranking No. 1 🥇<br/>iTunes 打榜第一名🥇<
 
 12/4/2021 Miles Guo’s GETTR: The actual population of Communist China is less than 1 billion; the humanitarian crisis in Afghanistan is the result of Taliban groomed by the CCP; “Hcoin to the Moon” is the music of salvation and enlightenment; massive arrests are being made all over the Communist China, and many banks are committing fraud: the media is covering up truth about the COVID vaccine disaster, but the vaccine mandate will soon be over<br/><br/>12/4/2021 文贵盖特：中共国人口低于10亿；阿富汗的人道灾难是中共培养塔利班的结果；Hcoin to the Moon是救人、开智的音乐；国内各地在抓人，大量银行造假；疫苗灾难被媒体掩盖，但强制打疫苗很快会完蛋<br/>
 ![img](https://media.gettr.com/group37/getter/2021/12/05/02/411b4ac2-bb9c-cd21-d3ea-71c68061668f/out.jpg)
-
----
-
-`@miles 12/5/2021 1:49 AM (UTC)`
-
-“Hcoin To the Moon” Hits #1 🥇on 14 Countries’ iTunes Rock Charts on 2nd Day of Launch<br/>🎉🎉🎉🎉🎉🎉🎉<br/>https://gnews.org/1720106/<br/><br/>Hcoin To the Moon 上线第2天位列14国iTunes摇滚音乐榜首🥇<br/>🎉🎉🎉🎉🎉🎉🎉<br/>https://gnews.org/zh-hans/1720105/
-
----
-
-`@miles 12/4/2021 5:03 PM (UTC)`
-
-12月4号：尊敬的战友们好，你们健身吗？传播C C P病毒疫苗解药的真相了吗？
-![img](https://media.gettr.com/group6/getter/2021/12/04/17/e7541a0a-9174-cc0c-f26b-7e157a2759f4/out.jpg)
-
----
-
-`@miles 12/4/2021 4:57 PM (UTC)`
-
-12月4号 Hcoin To The Moon 打榜记录（五）<br/>感谢新西兰，匈牙利，芬兰的战友们🙏🙏🙏🙏🙏🙏🙏<br/><br/>iTunes 嘻哈Hip- Hop/Rap 第一名🥇：<br/>新西兰🇳🇿<br/>匈牙利🇭🇺<br/>芬兰🇫🇮
-![img](https://media.gettr.com/group40/getter/2021/12/04/16/d180bf5b-1cb7-30f4-5c5c-4b1acb6dd84e/b672f632344ee45f8c5440ebb903f2cb.jpg)
 
 ---
 
