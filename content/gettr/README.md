@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/7/2021 4:58 PM (UTC)`
+
+G| Fashion-Fitting in Milan🇮🇹, more styles are coming soon 🔥🔥🔥❤️❤️❤️@gfashion@DDNYC 
+![img](https://media.gettr.com/group43/getter/2021/12/07/16/62d26a2e-3421-6b3c-9443-23e20a45904a/out.jpg)
+
+---
+
 `@miles 12/7/2021 3:22 PM (UTC)`
 
 12月7号：尊敬的战友们好……全球的新中国联邦人……要准备好，在所有的国家了解共产党官员的在海外各国的资产，财产，亲人朋友的详细的资料，和当地的各国的政府合作，把这些王八蛋的爹和娘和他们的私生子女，依法让他们的爹娘，兄弟姐妹们尝一下睡大街的滋味！让他们也感觉一下我们所有中国同胞在中国内部……所受到的待遇……行动行动行动，明天直播详聊！
@@ -143,12 +150,6 @@ Dec. 6th, 2021, after the CCP, filled with fear of our Whistleblowers’ Movemen
 
 12/05/2021 Miles Guo: The greedy people in cahoots with the CCP have been infected with "economic AIDS". The CCP plans to bring down the Western finance and economy through the collapse of Evergrande, R&F Properties and other real estate developers, and the biggest victims will be the Chinese people, who will not only be looted of the wealth of previous generations, but also will continue to be enslaved in the future<br/><br/>12/05/2021文贵直播：和中共勾兑的贪婪者已染上“经济艾滋病”，中共计划通过恒大、富力等地产商暴雷干掉西方金融和经济，受害最大的将是中国老百姓，不但前几代人的财富被洗掠，未来还要继续做奴隶<br/>
 ![img](https://media.gettr.com/group18/getter/2021/12/06/00/66d7b9a0-b14a-4e81-6e7f-b760f058b478/out.jpg)
-
----
-
-`@miles 12/5/2021 11:41 PM (UTC)`
-
-12月5号：2017年一八年所有的爆料都在被共产党的疯狂的行动，证实一切唯真不破！ 打印图标<br/> 中国准备在大西洋建立第一个海军基地，令美国官员感到震惊 <br/><br/>https://www.zerohedge.com/geopolitical/china-poised-establish-1st-ever-naval-base-atlantic-alarming-us-officials
 
 ---
 
