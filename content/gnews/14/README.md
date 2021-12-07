@@ -2,50 +2,50 @@
 ---
 
 
-## 美官员警告：中共准备在大西洋建立首个海军基地
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1727734/)
+## 拜登宣布使用太空新战略与中俄竞争
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1727857/)
 
-翻译：**Lulumi**
+作者：东京樱花团—在远方
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/chinanavyafrica.jpg)中共在吉布提的现有海军基地。（新华社）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-2.png)
 
-美国情报部门认为，中共国将在大西洋上建立其有史以来第一个永久性海军设施。周日，《华尔街日报》披露的一系列机密情报发现，中共国军队正准备在非洲西海岸的赤道几内亚的深水港驻扎。
 
-接受《华尔街日报》采访的美国官员表示，这些报告“提出了中国军舰能够在美国东海岸对面重新武装和改装的前景——这种威胁正在给白宫和五角大楼敲响警钟。”
 
-去年4月，美国非洲司令部司令斯蒂芬·汤森将军在参议院作证时首次提出了解放军在大西洋军事存在的这种“最重要的威胁”的可能性——他描述说，北京正在盯着“非洲大西洋沿岸的一个军事上有用的海军设施”。
 
-他当时说：“我所说的军事上有用的东西不仅仅是一个他们可以停靠港口并获得汽油和杂货的地方。我说的是一个他们可以重新武装弹药和修理军舰的港口。”
 
-但是关于华盛顿和国防机构的所有“警报”中，值得指出的是，赤道几内亚距离美国本土有7000英里之遥。此外，美国在全球约80个国家至少有750个基地，包括29个或更多已知的基地，从非洲的一边延伸到另一边。
+当地时间12月1日，拜登政府宣布美国使用太空新战略，对太空进行民间、商业和与国家安全相关的负责任的使用，以应对中共和俄罗斯的威胁。
 
-中共国的第一个海外军事基地于2017年在非洲之角的吉布提建立，距离被称为美国在非洲最大的基地的莱蒙尼尔营不到10英里。美国官员长期以来一直担心，伴随着中共国的军事足迹，北京希望胁迫东道国签署中共国的重大投资和基础设施交易，按照习近平的“一带一路”倡议，推进中共国的地缘政治利益。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-05-at-7.01.47-PM.png)图片来源: VOAChinese
 
-一位美国资助的智库分析家指出，伴随着中共国向外国的军事扩张，有以下模式：“中国并不像美国那样只是建立一个军事基地，”五角大楼资助的非洲战略研究中心的研究助理保罗·南图利亚说。“中国的模式非常、非常不同。它结合了民用和安全元素。”
+中共今年实验了超高音速武器，增加了地球轨道武器竞赛的前景，而地球轨道武器系统可能躲避目前的导弹防御系统。拜登政府同时谴责俄罗斯上月进行的反卫星武器实验，后者产生的碎片对国际空间站构成了威胁。
 
-根据中共政府的数据，在过去20年里，中共的国有企业在非洲各地建造了100个商业港口。
+拜登近日还计划签署行政命令，把教育部、劳工部、农业部和内政部的负责人，以及总统国家气候顾问，增列为国家航天委员会成员。美国政府还希望国家航天委员会，努力增加太空气候数据、加强科学有关的努力，对美国增加就业并提高竞争力提供帮助。
 
-特别是在赤道几内亚，美国的担忧是，由于长期以来强人特奥多罗·奥比昂·恩圭马·姆巴索戈总统的家族式政府（自1979年以来一直以铁腕方式统治这个小国）被广泛认为是腐败的，北京可以更容易地在经济上取得更深入和有利可图的影响。
+**参考阅读：**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/xiinwestafrica.jpeg)图片来源：zerohedge.com
+[https://www.voachinese.com/a/biden-focus-on-space-20211201/6335621.html](https://www.voachinese.com/a/biden-focus-on-space-20211201/6335621.html)
 
-中共国已经在那里拥有多家大型建筑公司，而且应该记住，这个西非产油国自2017年以来一直是石油输出国组织（OPEC）的成员。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/rl-1-556x720.png)
 
-中共国还为该国的国家警察部队提供培训和武器。赤道几内亚近年来还签署了“一带一路”备忘录，承诺遵守该倡议。
+编辑/校对/发稿：一烘
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/egmap.png)图片来源：zerohedge.com
+**更多资讯，更多关注**
 
-《华尔街日报》的报道以卫星图像和美国官员的声明为特色，强烈暗示中共特别盯上了该国最大的大陆城市、位于沿海的巴塔。报道描述说，这个地方“已经有一个中国在几内亚湾建造的深水商业港口，并且有很好的高速公路将该城市与加蓬和中非内陆连接起来”。
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**参考资料：**[zerohedge][China Poised To Establish 1st Ever Naval Base In Atlantic, Alarming US Officials](https://www.zerohedge.com/geopolitical/china-poised-establish-1st-ever-naval-base-atlantic-alarming-us-officials)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-* * *
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-*审核：文乐
-校对：阿伯塔*
-*发布：信心的选择*
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH..jpeg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-2.png)
+
+
+
+
 
  
 

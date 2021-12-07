@@ -2,28 +2,28 @@
 ---
 
 
-## 拜登宣布使用太空新战略与中俄竞争
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1727857/)
+## 日本政府、媒体强硬回击中共
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1727878/)
 
-作者：东京樱花团—在远方
+作者：日本方舟农场 Andy5
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-2.png)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo.png)
 
 
 
-当地时间12月1日，拜登政府宣布美国使用太空新战略，对太空进行民间、商业和与国家安全相关的负责任的使用，以应对中共和俄罗斯的威胁。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-05-at-7.01.47-PM.png)图片来源: VOAChinese
 
-中共今年实验了超高音速武器，增加了地球轨道武器竞赛的前景，而地球轨道武器系统可能躲避目前的导弹防御系统。拜登政府同时谴责俄罗斯上月进行的反卫星武器实验，后者产生的碎片对国际空间站构成了威胁。
+日本前首相安倍晋三在出席台湾智库论坛时的表态继续发酵，中共泼妇骂街的丑陋行径导致日本政府和媒体发表强硬回击。
 
-拜登近日还计划签署行政命令，把教育部、劳工部、农业部和内政部的负责人，以及总统国家气候顾问，增列为国家航天委员会成员。美国政府还希望国家航天委员会，努力增加太空气候数据、加强科学有关的努力，对美国增加就业并提高竞争力提供帮助。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-05-at-7.03.30-PM.png)图片来源: GETTR
+
+据日本TBS新闻报道，安倍前首相发出警告，“军事上的冒险将导致经济上的自杀”，来牵制日益对台湾军事施压的中共后，中共外交部做出了激烈的反应。日媒称，在外交部发言人愤怒表态后，连夜召见日本驻中共国大使的行为是非常罕见的。
+
+而此举也进一步让日本变得更加强硬。首先日媒报道称被召见的大使垂秀夫当场反驳了华春莹，他说道“中共政府方面必须理解日本在台湾局势上的担忧”。之后在2日新闻发布会上，日本政府表示，关于台湾问题，中共方面需要理解日本国内出现了安倍前首相这样的想法。而日本媒体更是将中共外交部的行为总结为：这是中共政府变得神经质的体现。
 
 **参考阅读：**
 
-[https://www.voachinese.com/a/biden-focus-on-space-20211201/6335621.html](https://www.voachinese.com/a/biden-focus-on-space-20211201/6335621.html)
+[https://www.gettr.com/post/piicte99bb](https://www.gettr.com/post/piicte99bb)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/rl-1-556x720.png)
 
@@ -41,11 +41,7 @@
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-2.png)
-
-
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-1.png)
 
  
 

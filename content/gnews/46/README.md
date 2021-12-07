@@ -2,47 +2,26 @@
 ---
 
 
-## 普京的 “星际战士”武器对北约卫星或构成威胁
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1725321/)
+## COVID-19 最新情报｜欧洲议员声援民众抵抗疫苗暴政“疫苗不是为了抵御病毒 疫苗是为了打击人类”
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1725366/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+**撰文｜ 台湾宝岛农场 疫情关注组 / 发布时间｜6/12/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup）](https://gettr.com/user/mightygroup%EF%BC%89)**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/c_pic_163780959999664.jpg)
+德国保守派政客兼欧洲议会议员克里斯汀·安德森 (Christine Anderson)周六（4日）在个人社交平台上载了一条短片，公开声援澳洲人连续多周对疫苗强制令的抗议，并谴责澳洲当局践踏人权、自由和法治，将一个原本民主自由的国家变成极权统治。
 
+安德森指出，“整个人类历史上，从来没有一个政治精英真正关心过普通人的福祉，这一点，直到现在，都没有改变过。”
 
- 
-图片来源:   the-sun.com
+因此，她对于各国政府大力推动强制疫苗的真正动机有所怀疑。“难道你没有意识到疫苗不能保护我们免于新冠病毒的危害吗 …… 政府推行疫苗根本不是为了打击病毒，这一切都是为了打击人类。”
 
+她在早前演说中曾经表示，她本人绝不会将任何未经长期测试的东西注入身体。“就我而言，我不会接种任何未经适当审查和测试的疫苗，并且根本没有任何可靠科学证据表明疫苗的好处，超过病毒本身，或者超过接种后带来的长期副作用，因此，实际上我们一无所知。”
 
-#### 编译 ：小红帽
+安德森提醒全世界所有人记住，一个人应从自己的选择中寻找自由，而不是从政府那里求得自由，“让我们明确一件事：没有人能给我自由，因为我本就应该是一个自由的人。”
 
-俄罗斯已经交付了一种称之为“星际战士”的新武器，西方大国担心该武器会使北约的导弹失去作用。
-
-普京总统在俄罗斯国有电视台的一次演讲中警告说，“星际战士”能够摧毁大约32颗西方卫星，这让北约的导弹完全不起作用。
-
-该系统的工作原理是这样的。星际战士探测到太空中的卫星，触发从地面核发射器发射两级14TS033导弹。导弹在到达要摧毁的卫星目标时，将以高达15,000英里的时速飞行。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/c_pic_163780959986576.jpg)
-
-
-
-图片来源:   the-sun.com
-
-
-据报道，这种新武器系统在过去几周内进行了测试。普京用这种武器摧毁了一颗苏联时代多余的Tselina-D军事侦察卫星，将其炸成（英国）《太阳报》所说的“轨道碎片风暴”。
-
-西方情报人士认为，事实上，“星际战士”确实使这一切成为可能。普京在2014年至2020年期间至少对导弹技术组件进行了九次不同的测试，最后将其作为新的“星际战士”系统的一部分部署到一颗卫星上。
-
-**参考新闻：** [Is Putin’s “Star Warrior” weapon a threat to Nato satellites? – NaturalNews.com](https://www.naturalnews.com/2021-12-05-putin-star-warrior-weapon-threat-nato-satellites.html)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+她强调自己非常支持澳洲人为了民主自由而抗争，“我们现在就必须站起来反抗。”任何人都应该阻止政府试图将一个自由民主社会变成极权主义。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-4.jpg)
+来源｜[推特](https://twitter.com/SikhForTruth/status/1467160110673936390?t=FdgUGsYpxJ3M3nAUh0RsDg&amp;s=19) / [演说现场](https://www.youtube.com/watch?v=GCg1mGOgj-w&amp;t=237s)
 
  
 

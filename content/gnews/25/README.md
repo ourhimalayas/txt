@@ -2,100 +2,104 @@
 ---
 
 
-## 疫苗护照不是目的，杀人和医疗垄断才是目的
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1727566/)
+## 成千上万律师和医学专家对世界领导人发起纽伦堡审判
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1727638/)
 
-[https://gtv.org/video/id=61ae821187fa7e74c92c64ce](https://gtv.org/video/id=61ae821187fa7e74c92c64ce)
+翻译：**Lulumi**
 
-我不觉得这个疫苗护照的事情
-Yo no creo que el asunto del pasaporte de vacunación
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-7-2.jpg)图片来源：marktaliano.net
 
-现在是大家有确实的证据
-Ahora es que todos tienen una evidencia definitiva
+由雷纳·福尔米奇（Reiner Fuellmich）博士领导的超过1000名律师和超过10000名医学专家组成的团队已经开始对CDC、WHO和达沃斯集团的反人类罪进行法律诉讼。
 
-就是疫苗护照是他们的目的
-Donde este pasaporte de vacunación sea su objetivo
+福尔米奇和他的团队提出，有问题的PCR测试和命令医生将任何并发症的死亡标记为COVID死亡是一种欺诈。PCR测试从未被设计用来检测病原体，而且在35个周期中100%有问题。由CDC监督的所有PCR测试都设定在37至45个周期。CDC承认，任何超过28个周期的测试都不能被接受为可靠的阳性结果。仅这一点就使90%以上通过使用这种有缺陷的测试而追踪到的所谓COVID病毒病例“感染”无效了。
 
-我不觉得
-Yo no lo creo
+除了有缺陷的测试和虚假的死亡证明外，“实验性”疫苗本身也违反了《日内瓦公约》第32条。根据1949年《日内瓦第四公约》第32条，禁止“非因治疗被保护人的需要而进行的伤残和医学或科学实验”。根据第147条，在被保护人身上进行生物实验是对该公约的严重违反。
 
-我觉得杀人是他的目的
-Yo pienso que matar a las personas es su objetivo
+“实验性”疫苗违反了《纽伦堡法典》的所有10条规定，对那些试图违反这些国际法的人将被处以死刑。
 
-种族残杀是他的目的
-El genocidio es su propósito
+该“疫苗”不符合以下五个被认为是疫苗的要求，根据定义，它是一种医学“实验”和试验。
 
-更重要的事情
-Y lo más importante
+**提供对病毒的免疫力**
 
-我认为整个是一个医疗垄断
-Creo que en conjunto es un monopolio médico
+这是一种“泄漏”的基因疗法，不能提供对COVID的免疫力，并声称可以减轻症状，但现在有60%的病人因感染COVID而需要到急诊室或ICU就诊。
 
-也就是一个人类上, 所谓他们认为的优胜劣汰
-Es decir, en la raza humana, ellos creen que es la supervivencia del más apto
+**保护接受者免受病毒感染**
 
-变成了一个什么
-Y esto se convierte en qué
+这种基因疗法并不提供免疫力，双重接种者仍然可以感染和传播病毒。
 
-就是我喜欢和不喜欢, 有用没有用
-En lo que me gusta y lo que no me gusta, útil o inútil
+**减少病毒感染造成的死亡**
 
-就变成了两极的社会
-Se transforma en una sociedad con dos extremos
+这种基因疗法不能减少感染造成的死亡。感染COVID的双重疫苗接种者也已死亡。
 
-这是一次人类绝对的大屠杀
-Esta vez es absolutamente una gran masacre de la humanidad
+**减少病毒的循环**
 
-而且这种黑暗的力量和共产党绝对是勾结在一起
-Y esta fuerza oscura seguramente está en complicidad con el PCCh
+这种基因疗法仍然允许病毒的传播，因为它对病毒的免疫力为零。
 
-所以说我不觉得什么, 这个数字货币, 数字银行, 数字护照
-Por eso digo no es nada, esta moneda digital, banco digital y el pasaporte digital
+**减少病毒的传播**
 
-然后疫苗护照能有什么联系
-Entonces, ¿ qué relación tiene con el pasaporte de vacunación?
+这种基因疗法仍然允许病毒的传播，因为它对病毒的免疫力为零。
 
-我觉得这个是有点儿Q组织的那种(感觉)
-Creo que esto es (se siente) un poco como el QAnon
+以下是违反《纽伦堡法典》的情况。
 
-有点儿, 这过度了
-Es como que es demasiado
+**《纽伦堡法典》第一条：自愿同意是必要的**
 
-首先我是没有这个情报, 没这个证据
-Primero que nada, yo no tengo estas informaciones o evidencias
+在没有知情同意的情况下，任何人都不应该被迫接受医学实验。许多媒体、政界和非医学界人士都在告诉人们要打针。他们没有提供关于这种基因疗法的不利影响或危险的信息。你从他们那里听到的只是“安全有效”和“利大于弊”。各国都在利用封锁、胁迫和威胁来迫使人们接种这种疫苗，否则就会被禁止在疫苗护照或绿色通行证的授权下参与自由社会。在纽伦堡审判期间，甚至媒体也被起诉，其成员因对公众撒谎而被处死，还有许多医生和纳粹分子被认定犯有危害人类罪。
 
-所以我就很少谈这个话题
-Por lo tanto, no hablo casi de este tema
+**《纽伦堡法典》第二条：产生其他方法无法治愈的结果**
 
-我觉得大家现在没掌握绝对的情报证据之前
-Creo que antes de que todos tengan la evidencia e información absoluta
+如上所述，基因疗法不符合疫苗的标准，不能提供对病毒的免疫力。还有其他医疗手段可以对COVID产生丰硕的成果，如伊维菌素、维生素D、维生素C、锌以及增强流感和感冒的免疫系统。
 
-也少谈
-Hablen menos de eso
+**《纽伦堡法典》第三条：以动物实验结果和疾病的自然史为基础进行实验**
 
-这会把大家掉坑里边去
-Esto los arrojará a todos al pozo
+这种基因疗法跳过了动物试验，直接进行人体试验。在辉瑞公司使用的mRNA研究中——使用BNT162b2 mRNA对猕猴进行的候选研究，在该研究中，所有猴子都出现了肺部炎症，但研究人员认为风险很低，因为这些猴子都是2-4岁的年轻健康猴子。以色列使用了辉瑞公司的产品，而国际法院已经接受了80%的接受者因注射了这种基因疗法而出现肺部炎症的索赔。尽管有这种令人震惊的发展，辉瑞公司仍继续开发他们的COVID的mRNA疫苗，而没有进行动物试验。
 
-**原视频网址**：[https://gettr.com/post/pioxwr9960](https://gettr.com/post/pioxwr9960)
+**《纽伦堡法典》第四条：避免一切不必要的痛苦和伤害**
 
-日期：12/06/2021
-原视频标题：疫苗护照不是目的，杀人和医疗垄断才是目的
-El pasaporte de vacunación no es el objetivo, matar a las personas y el monopolio médico es su propósito
-原视频日期：12/04/2021
-原视频网址：https://gettr.com/post/pioxwr9960
-任务编号：KC312(3105)
-视频时间段：0:00-1:09
+自该实验推出以来，在美国的CDC疫苗不良事件通報系統（VAERS）报告系统中，已经有超过4000例死亡和5万例疫苗伤害的报告。在欧盟，有超过7000例死亡和36.5万例疫苗伤害的报告。这是对这一守则的严重违反。
 
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作: 洛杉矶盘古农场 –天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+**《纽伦堡法典》第五条：在以下情况下不得进行实验**** **
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+见第四条，根据基于事实的医学数据，这种基因疗法正在造成死亡和伤害。过去对mRNA的研究也显示了一些风险，而这些风险在目前的这个试验基因实验中被忽略了。2002年对SARS-CoV-1刺突蛋白的研究表明，它们会导致炎症、免疫病理、血凝块，并阻碍血管紧张素2的表达。这项实验迫使身体产生这种刺突蛋白，继承了所有这些风险。
+
+**《纽伦堡法典》第六条：风险不应超过收益**
+
+COVID-19的康复率为98-99%。mRNA基因疗法的疫苗伤害、死亡和不良副作用远远超过这一风险。由于马立克氏病的研究显示“热病毒”和变种的出现……使该疾病更加致命，美国和欧盟禁止在农业上使用“泄漏性”疫苗。然而，CDC完全知道泄漏性疫苗会出现新的致命变种的风险，因此在人类使用方面却忽视了这一点。CDC完全知道，使用泄露性疫苗会促进热点（更致命）毒株的出现。然而，当涉及到人类时，他们却无视这一点。
+
+**《纽伦堡法典》第七条：必须为受伤、残疾或死亡的可能性做好准备，即使是很小的可能性**
+
+没有做任何准备工作。这种基因疗法跳过了动物试验。制药公司自己的第三阶段人体临床试验要到2022/2023年才结束。这些疫苗是根据紧急使用法批准的，并强加给被误导的公众。它们没有得到美国食品和药物管理局的批准。
+
+**《纽伦堡法典》第八条：实验必须由有科学资质的人进行**
+
+声称这是一种安全有效的疫苗的政客、媒体和演员都没有资格。宣传不是医学科学。许多零售店，如沃尔玛和自驾游疫苗中心，都没有资格向不知情的公众提供实验性医疗基因疗法。
+
+**《纽伦堡法典》第九条：任何人都必须有在任何时候结束实验的自由**
+
+尽管有超过8.5万名医生、护士、病毒学家和流行病学家的强烈抗议——实验并没有被终止。事实上，目前有许多人试图改变法律，以迫使人们遵守疫苗强制令。这包括强制性和强迫性的疫苗接种。实验性的“更新”注射计划每6个月进行一次，而没有对这种实验已经造成的越来越多的死亡和伤害进行任何追索。这些“更新”针剂将在没有任何临床试验的情况下进行。希望这次新的纽伦堡审判能够结束这种危害人类的罪行。
+
+**《纽伦堡法典》第十条：如果有可能导致伤害或死亡，科学家必须立刻结束实验**
+
+在统计报告数据中很清楚，这个实验正在导致死亡和伤害，但所有的政客、制药公司和所谓的专家都没有做出任何尝试来阻止这个基因治疗实验对被误导的公众造成的伤害。
+
+你能做些什么来帮助结束这种反人类的罪行？分享这些信息。让你的政治家、媒体、医生和护士负责——如果他们是这一反人类罪行的同谋，他们也要遵守《日内瓦公约》和《纽伦堡法典》中规定的法律，（他们）可以受到审判，被判有罪并被处死。法律程序正在向前推进，证据已经收集完毕，越来越多的大型专家机构正在发出警报。
+
+请访问COVID委员会的网站：https://corona-ausschuss.de/，如果你受到这种罪行的影响，请向以下网站报告事件、参与人员和尽可能多的细节。
+
+[https://www.securewhistleblower.com/](https://www.securewhistleblower.com/)
+
+危害人类罪影响到我们所有人。它们是对你、你的孩子、你的父母、你的祖父母、你的社区和你的国家以及你的未来的一种犯罪。
+
+[https://www.bitchute.com/embed/wQc9BA35QEpu/](https://www.bitchute.com/embed/wQc9BA35QEpu/)
+
+**参考资料：**[marktaliano.net][Team of 1,000 lawyers and 10,000 Medical Experts Start Nuremberg 2 Trial against World Leaders for Crimes Against Humanity](https://www.marktaliano.net/team-of-1000-lawyers-and-10000-medical-experts-start-nuremberg-2-trial-against-world-leaders-for-crimes-against-humanity/#google_vignette)
+
+* * *
+
+*审核：文乐
+校对：阿伯塔*
+*发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH..jpeg)
 
  
 
