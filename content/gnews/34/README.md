@@ -2,41 +2,30 @@
 ---
 
 
-## 日本探索打击“敌人基地”的能力，拟转变和平立场
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1729251/)
+## 郭先生认为中俄当前形势利好灭共
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1729296/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+作者：香草山农场 Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-1.png)
+郭文贵先生在2021年12月5日的大直播中指出，习的自信和疯狂绝对来自于普京， 来自俄罗斯，他们两个之间达成了绝对的默契，否则习绝对不敢如此嚣张。 郭先生说影响习最深的就两方面，俄罗斯普京和北朝鲜。而习对中共和西方有杀父夺妻之恨，英美政府都是跟中共江家邓家有良好的关系，跟习没有什么关系，也看不起他。 普京跟习一样，他对西方世界的恨是骨子里的，北朝鲜和伊朗更是如此。基于此，习对挑战美国更加自信。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Image-2021-12-05-at-10.11.45-PM-1-1.jpeg)
+习的信心还来自一个重要方面，就是技术，中共现在在量子电脑技术，大型计算机技术，数字货币，新型电池技术，新能源，太空技术，都取得了长足的发展，但这一切背后都有俄罗斯的支持，如果中俄关系出现问题，中共的这些技术都会出问题，更重要的跟中共合作的这些国家都会出问题。 中俄关系现在都取决于普京和习近平的身体状况和安全状况，如果这两个人任何一个人出现问题，一切就结束了。 郭先生认为目前北边（俄罗斯）对新中国联邦的灭共形势一片大好，中俄之间已达成默契，双方计划同时分头行动，俄罗斯取乌克兰，在欧洲推广天然气；中共取台湾，并利用俄罗斯提供的技术跟西方抗衡。双方合作占领中东、非洲和亚洲市场，在经济上孤立美国。 郭先生支指出，中俄的计划看似完美，实际风险极大，稍有差池就会全盘皆输。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/2bpkbtj5bldmx696kltkh8r6pz6x62.jpg)
+链接：[文贵爆料12.5.2021郭先生认为俄罗斯形势对灭共一片大好](https://gnews.org/zh-hans/1724221/)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/unknown-2.jpg)
 
- 
-图片来源:  Reuters/達志影像
+总编：飞虹
 
+校正/发稿：浪迹天涯
 
-#### 编译 ：小红帽
-
-周一，日本首相岸田文雄在特别会议开幕期间发表的强硬言论称，东京当局正在寻找增强防御态势的方法，包括获得打击“敌方基地”的能力。这表明日本可能正式转变二战后的和平立场。
-
-上周，岸田文雄也发表了类似的声明，当时他参加了自卫队 (SDF) 基地的审查。这位官员当时表示，可能需要获得针对“敌方基地”的攻击能力，因为日本“不能忽视（朝鲜）最近开发和改进的新技术，例如高超音速滑翔武器和不规则轨道导弹。中国‘单方面改变现状的尝试’以及‘缺乏足够透明度’的军事集结也与日本有关”。
-
-获得海外打击能力在日本已经争论多年，但这很可能与该国的现行宪法相矛盾。该宪法是在二战期间日本战败后制定的。
-
-宪法第9条规定“日本人民永远放弃作为国家主权的战争权利”，并拒绝在国际领域使用武力或威胁。
-
-根据这种和平主义立场，日本只能维持一支能力有限的自卫队，用于国土防御。但实际上，日本自卫队已经成长为一支成熟的军队，所有主要军队分支都配备了现代硬件。日本拥有近 250,000 名现役士兵，以及庞大的战斗机和海军舰艇舰队。
-
-新闻来源：[‘Pacifist’ Japan explores options to strike ‘enemy bases’ — RT World News](https://www.rt.com/news/542328-japan-strike-enemy-bases/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,33 +2,30 @@
 ---
 
 
-## 因电力价格违法 SOHO中国物业被罚超8000万
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1729304/)
+## 亲, 善, 谜, 魅
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1729313/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/120605-1.jpg)图片：来自网络
-**编辑摘要：**
+作者：祈望明天会更好
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-1.png)
+2021年12 月 3日 郭先生在大直播中说: 只有什么样的力量能让对方像黑洞一样的吸引过来， 那就是不可抗拒的， 不对称的魅力和能力， 和能满足对方所有需求的倍数，你才能达到这个吸引力。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12071-1.png)
+香港庄大姊对郭先生人品的评价， 亲， 善， 谜， 魅。亲，跟人亲， 没有傲慢。 善， 善待对方。 谜， 无法解释的思想，行为和过去经历过的磨练。 魅， 可上山可下海， 具有ACDC 的性格,对男人与女人的无分别， 只喜欢好人。 一切都是真实，没一句是欺骗， 郭先生说：没有一个地方像我们这个地方这么干净，这么真实的地方， 透明， 这么亲，这么善，充满了迷， 又有魅力。新中国联邦人只能向上，不能向下，本身要具备有亲，善， 迷， 魅，否则就会有很大的磨难。更不要在乎别人如何看待我们。希望每个人都能轻松愉悦体面，力所能及的情况下灭共，再搞爆料革命。
 
-据《中国基金报》12月7日报道，近日，SOHO中国旗下7家物业公司因涉嫌在负责终端用户的电费代收代缴过程中，违法向终端用户多收取电费行为，违反了《中华人民共和国电力法》相关规定，被上海多地市场监管部门罚款累计约8664万元。
+链接： [2021年12月03日 文贵大直播](https://gtv.org/video/id=61aa1cecd6388d55041591e6)
 
-今年6月，SOHO中国宣称美国黑石集团已向SOHO中国发出了全面收购要约，不过这笔交易最终并未达成，计划告吹后，SOHO中国股价一路暴跌，相较于今年以来最高价位，跌幅现已超过60%。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/unknown-2.jpg)
 
-新闻参考链接：[SOHO中国栽了！旗下物业公司被罚8664万，原因竟是…](http://wap.stcn.com/zqsbapp/tj/202112/t20211207_3942656.html)
+总编：Irene木木
 
-*编辑：【英国伦敦喜庄园编辑部】*
+校正/发稿：浪迹天涯
 
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
