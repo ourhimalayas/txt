@@ -2,10 +2,10 @@
 ---
 
 
-## 中共通过债务陷阱方式意欲获取乌干达国际机场
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1729334/)
+## 泽连科医生：奥米炕基本是用来掩盖疫苗伤害的
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1729341/)
 
-11/30/3031 中共再次通过臭名昭著的债务陷阱方式意欲获取乌干达国际机场。
+12/01/2021 泽连科医生：奥米炕基本上是用来掩盖疫苗伤害的。真正的治疗对包括奥米炕在内的所有变种都有效。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
