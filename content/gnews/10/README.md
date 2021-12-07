@@ -2,53 +2,30 @@
 ---
 
 
-## 白宫宣布美国将外交抵制北京冬奥会，但允许运动员参赛
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1730732/)
+## 七哥谈大英帝国
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1730824/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Unknown-10.jpg)图片来源：www.dailymail.co.uk
-美国白宫新闻秘书珍·普萨基(Jen Psaki)周一证实，美国将推进对2022年北京冬季奥运会的外交抵制。 与此同时，中共国周一威胁说，如果美国坚持其对2022年冬奥会的外交抵制，将采取“坚决的反制措施”。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-当被问及外交抵制是否足够时，普萨基告诉记者：“这只是表明它不能像往常一样行事。” 当被问及为什么政府没有推进全面抵制时，新闻秘书回答说：“我不认为我们觉得惩罚运动员是正确的策略。”
+所以说这个赌场，博彩的功能，你们好好上网查查，大概有2000多个功能。大英帝国把世界赌场设计成当年玩政治一样，大英帝国跟全世界开战，但是你发现有多少是真的恨大英帝国的，很少。而且很多人以此为荣还要留着。包括澳大利亚，留着女王，以大英帝国被统治为荣。今天的美利坚就是当年大英帝国分出来的一个孩子，而他们两个还保持着良好关系。
 
-外界普遍预计拜登政府将在本周宣布外交抵制，这意味着美国政府官员将不会参加冬奥会，但美国运动员仍将参加比赛。 此举旨在平衡一些人权活动人士因中共虐待新疆维吾尔族少数民族而想要美国完全退出的要求和那些为了参赛而终生训练的运动员的要求。 然而，今年只有中共国大陆的观众可以观看比赛，比赛将于2022年2月4日至20日举行。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-中共国外交部发言人赵立坚周一在新闻发布会上说：“如果美方一意孤行，中方必将采取坚决反制措施。” 赵说，呼吁抵制是“哗众取宠”，必须停止，“以免影响中美在重要领域的对话合作”。
+**关注我们**
 
-对外交抵制，人们的反应褒贬不一。前联合国大使妮基·黑利(Nikki Haley)称这是一个“笑话”。
+Discord 账号
 
-“外交抵制北京冬奥会是个笑话。中共不在乎拜登和团队是否出现。他们想要我们的运动员。”她在推特上写道。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-犹他州联邦参议员米特·罗姆尼(Mitt Romney)3月份曾在纽约时报专栏文章中呼吁采取抵制行动，他赞扬了拜登的决定。
+Gettr 账号
 
-众议院议长南希·佩洛西(Nancy Pelosi)赞扬了拜登的决定，并宣布众议院将于本周就《维吾尔强迫劳动预防法》进行投票，该法案将禁止从中共国新疆地区进口某些产品。
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
-美国上一次全面抵制奥运会是在1980年，当时奥运会在俄罗斯莫斯科举办。以美国为首的65个国家退出奥运会，以抗议苏联入侵阿富汗。美国不仅不允许其运动员参加比赛，而且还告诉他们，如果他们试图在奥林匹克旗帜下独自参加比赛，他们就面临失去美国护照的风险。
-
-人权活动人士上个月在希腊南部破坏了传统的点火仪式，对国际奥委会(IOC)将奥运会安排在北京举行感到愤怒。他们将2022年奥运会称为“种族灭绝运动会”。
-
-2021年7月，欧洲议会和英国议会投票通过外交抵制冬奥会。5月，众议院议长南希·佩洛西推动外交抵制的方式，以避免惩罚运动员。由于（中共）侵犯人权，包括美国全国广播公司(NBC)在内的一些奥运转播商推动取消冬奥会转播计划。
-
-中共在新疆对其维吾尔族少数民族发起了一场有针对性的残酷运动，将多达100万或更多的维吾尔人和其他以穆斯林为主的少数民族关进集中营和监狱。中共还因镇压香港抗议者、侵犯台湾和西藏以及掩盖中共病毒起源而面临国际批评。
-
-简评：
-
-拜登政府与习近平政府的勾兑一直都在进行，从对中共病毒溯源调查的不了了之，到在台海问题上的模棱两可，拜登政府的对外讲话很难让人信服。
-
-对于此次在北京举办的冬奥会，拜登政府所谓的外交抵制，形式大于实际意义，因为这种抵制并不像美国当年针对前苏联发起的奥运会抵制行动那样彻底，如果美国允许本国运动员参加，对他国的带动作用会很大。由于世界上的大多数人还并不了解中共病毒真相和毒疫苗真相，面对如此重要的国家赛事，各国运动员们恐怕都很难拒绝。中共政府想要利用冬奥会宣传自己独裁制度的“优越性”，如果大多数民主国家在这件事情上也从了中共，那对于整个世界来说将是莫大的讽刺。
-
-新闻链接：
-
-[https://www.dailymail.co.uk/news/article-10280635/China-threatens-countermeasures-proceeds-diplomatic-boycott-Winter-Olympic-Games.html](https://www.dailymail.co.uk/news/article-10280635/China-threatens-countermeasures-proceeds-diplomatic-boycott-Winter-Olympic-Games.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

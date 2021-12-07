@@ -2,31 +2,33 @@
 ---
 
 
-## 拜登敲定对北京冬奥会的外交抵制措施
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1730926/)
+## 突发：特朗普任命的法官阻止拜登对全国联邦承包商的疫苗强制令
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1730981/)
 
-编译：喜妹
+翻译： 真北007
+![](https://assets.gnews.org/wp-content/uploads/2021/12/E9DD14D6-5D1F-44D5-A024-3759051196DF.jpeg)图片来源：网络
+来自GATEWAY PUNDIT 12月7日的新闻报道：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yH5BAEAAAAALAAAAAABAAEAAAIBRAA7.png)图片来源： REUTERS/Jonathan Ernst
+周二，一名联邦法官阻止了乔·拜登 (Joe Biden) 对全国联邦承包商的疫苗要求。
 
-美国政府计划在本周宣布，美国高级官员将不参加明年2月在北京举行的冬奥会，这种外交抵制原则上不会涉及体育领域的变化，但却是1980年以来前所未有的。
+特朗普任命的乔治亚州南区美国法院法官斯坦贝克发布了一项初步禁令，反对拜登的疫苗强制令。
 
-在当初，随着吉米-卡特入主白宫，美国在政治上与莫斯科奥运会脱离了关系。据美国有线电视新闻网（CNN）援引消息人士的话说，现在，华盛顿想通过拒绝派任何政治代表参加下一届体育赛事来显示其对中共国政策的拒绝。
+该诉讼由南卡罗来纳州总检察长艾伦·威尔逊和南卡罗来纳州州长亨利·麦克马斯特以及其他共和党总检察长们提起，称拜登的疫苗强制令违反了第 10 修正案。
 
-美国总统拜登本人在11月承认，在包括众议院议长、民主党人南希-佩洛西在内的各主要政党声音的呼吁下，外交抵制已经摆在桌面上。
+该诉讼还辩称，拜登的疫苗令违宪，因为只有国会才能制定规则。
 
-近年来，美国和中共国之间的紧张关系一直存在，事实上，拜登没有邀请这个亚洲巨人参加他在本周组织的民主峰会。美国主要的指责之一是与新疆维吾尔人的遭遇有关，尽管它也批评了香港对异议人士的压制。
+佐治亚州、阿拉巴马州、爱达荷州、堪萨斯州、犹他州和西弗吉尼亚州的总检察长加入了诉讼。
 
-中共国的官方媒体在最近几周呼应了来自美国以及英国等其他国家的抵制威胁，在11月底，《环球时报》明确表示，北京不会邀请那些提出抵制的领导人，甚至提出与奥运会有关的外交报复。
+“拜登政府滥用权力的行为再次受到阻止和冷落。法治已获胜，自由受到保护。幸运的是，当总统越权时，法律可以阻止他滥用权力，”南卡州总检察长 Wilson 说。
 
-**参考资料：**[europapress.es][Biden ultima el boicot diplomático de los Juegos Olímpicos de invierno en Pekín](https://www.europapress.es/internacional/noticia-biden-ultima-boicot-diplomatico-juegos-olimpicos-invierno-pekin-20211206031345.html)
+上周，特朗普任命的另一名法官阻止了拜登针对医护人员的疫苗强制令。
 
-* * *
+原文链接：[https://www.thegatewaypundit.com/2021/12/breaking-trump-appointed-judge-blocks-bidens-vaccine-mandate-federal-contractors-nationwide/](https://www.thegatewaypundit.com/2021/12/breaking-trump-appointed-judge-blocks-bidens-vaccine-mandate-federal-contractors-nationwide/)
 
-*审核：Aries的星
-校对：阿伯塔*
-*发布：信心的选择*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH..jpeg)
+编辑/发布：LILY
+
+20211207
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

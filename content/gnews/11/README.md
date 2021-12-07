@@ -2,47 +2,186 @@
 ---
 
 
-## 意大利大主教维加诺说：“反抗世界新秩序的人将得到上帝的帮助和保护”
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1730721/)
+## 这次的放毒应该是广东帮干的，传染率高但致残率致死率不高
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1730748/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/61a7890585f54004124be1ab-8.jpg)图片来源：americanfaith.com
-维加诺大主教是主流媒体恶毒攻击的对象，因为他是那些在这个颠倒的世界中渴望正义和常识的天主教徒甚至非信徒的希望之星。
+[https://gtv.org/video/id=61af2bd087fa7e74c92cab16](https://gtv.org/video/id=61af2bd087fa7e74c92cab16)
 
-以下是他在昨天发表的最近一次采访中的一些评论。
+一星期前
+Hace una semana atrás
 
-我，你和你的孪生兄弟吉姆在我的祈祷中。你被系统攻击的事实证明你走在正确的道路上：要有毅力，不要被吓倒。我们处于战争状态，我们必须战斗。
+我们的欧洲科学家说
+Nuestro científico europeo dijo
 
-正如我之前所指出的，任何极权主义政权都试图将任何形式的异议合法化，首先是通过嘲笑对手，使他成为嘲笑的对象，以便在公众舆论面前诋毁他。然后，在将该人认定为病态或需要精神病治疗后，暗示对方精神不稳定，应在精神病院住院治疗。最后，这一过程以对所有持不同政见者的完全刑事定罪告终。通过这种方式，该政权创造了必要的前提，将其所有对手与公民社会分开。
+如果这次的病毒有两个特征性
+Si el virus de esta vez tiene dos características
 
-我认为每个神父都有权利，或者更确切地说，有责任警告他的信徒注意这种实验性医疗产品的接种所代表的真正危险——完全不仅仅是假设的危险。尤其是当整个精神大流行闹剧的目的是建立独裁统治时，情况尤其如此，其目的是在紧急情况的幌子下通过侵犯公民的宪法和自然权利来控制公民。
+这次人类真的是完了
+Entonces la raza humana se acabará esta vez
 
-这项行动需要精心准备，需要大部分公共机构和私营部门的参与，包括司法、执法和媒体的共同参与。这些共同努力是一场真正的政变，而大流行只是一个借口——亵渎——通过它引入了侵犯基本权利的看似不可避免的行为以及随之而来的新秩序极权主义政权的建立。在这个新秩序中，流行病迷信占主导地位，其魔术师、疫苗庙宇、非理性仪式和对罪人vitandi（“被避免”或“被回避”）的逐出教会——那些不同意放弃他们的为了接受这种疯狂的意识形态疯狂，甚至在背离他们的信仰之前就进行推理。
+第一个特征
+La primera característica
 
-世界新秩序既不是新秩序也不是秩序：它代表了撒旦推翻上帝的天意计划，取消导致永恒救赎的真正宗教并最终取代“ordo christianus”（“基督教秩序”）的愚蠢野心，带来地狱般的混乱。在这种混乱中，谎言代替了真理，不公正和滥用权力代替了正义，心血来潮代替了对上帝的律法的服从，死亡代替了生命，疾病代替了健康，邪恶的合法化和正义的谴责，迫害 善人的赞美和恶人的赞美，无知代替了文化和智慧，丑陋和恐怖代替了美丽，分裂和仇恨代替了和谐与爱。撒旦不想通过采用上帝的品质而被崇拜，而是通过一切邪恶、淫秽、虚假、荒谬和可怕的事物要求成为崇拜的对象。他寻求彻底的颠覆，一种在本体论上邪恶和反基督的颠覆：通过以精心策划的计划紧急情况为幌子实施的全球政变而获得的“新秩序”。
+这次如果共产党要放病毒的话
+Si esta vez el PCCh va a soltar el virus
 
-疫苗运动缺乏任何科学有效性，首先作为实施全球追踪和控制的明显合法性，今天以限制冠状病毒传播为借口（这个借口是错误的，因为除其他原因外，接种疫苗的人仍然可以成为感染并具有传染性）。但明天，这项运动旨在扩大其影响范围，将“绿色通行证”扩展到包括用于“社会信用体系”的信息，以应对“绿色紧急情况”，这同样是虚假和似是而非的。“绿色通行证”被设想为类似于圣约翰启示录中提到的野兽印记，允许或禁止人们购买、出售、旅行、消费、饮食和生活。
+放出来这个传染率、致死率高
+Y su tasa de letalidad y contagio es alta
 
-其次，给人们接种实验性基因血清会导致我们的天然免疫系统减弱，这是一种非常严重的犯罪，因为它会将普通健康人变成慢性病患者，进而变成医疗保健公司和私人护理的客户。这种情况极大地增加了全球精英的利润，并导致人口普遍贫困。
+染上就死
+Quiere decir al contagiarse se muere
 
-简评：上帝缔造了人类，现在的邪恶势力想按照他们的意图毁灭人类，疫苗运动缺乏任何科学有效性，首先作为实施全球追踪和控制的明显合法性，今天以限制冠状病毒传播为借口禁止人们购买、出售、旅行、消费、饮食和生活。主耶稣用自己的生命和宝血赎了我们的罪，复活四十天后，回到了天父那里，至今没有再来。一代一代的基督徒今天仍然翘首企盼。
+或者是说就是所谓的天花病毒
+O como el supuesto virus de la viruela
 
-当越来越多的人因为爱而坚定信靠神的时候，凝聚起来的人们就产生无穷无尽的爱的能量。就像爆料革命，起初就郭文贵先生一个火种在燃烧发光。郭文贵先生对神坚定的信靠，唯真不破的正道，从直播开始传递出来的每个真相，告诉全世界共产党的恶，告诉美国黑暗即将来临。说出真相，传播真相，就是基于爱，基于对神的信靠，相信正义一定战胜邪恶，相信神对爆料革命一定会保守看顾。一个个真相的传递就是爱的能量的传递。
+传染率高、伤残率高 但不死
+Alta tasa de contagio y discapacidad, pero no muere
 
-维加诺大主教的信息是向广大的信徒及有良知的人们发出呼号，上帝关注着人类！
+这两种病毒对人类都是巨大的威胁
+Estos dos tipos de virus es una gran amenaza para la humanidad
 
-新闻链接：
+人类上一堆残废
+Si en la raza humana hay un montón de discapacitados
 
-[https://americanfaith.com/those-who-resist-the-new-world-order-will-have-the-help-and-protection-of-god-italian-archbishop-vigano/](https://americanfaith.com/those-who-resist-the-new-world-order-will-have-the-help-and-protection-of-god-italian-archbishop-vigano/)
+而且这种残疾
+Y este tipo de discapacidad
 
-* * *
+根本全世界医疗条件救不了的
+Con las condiciones médicas que hay en todo el mundo no es curable
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+像天花一样
+Así como la viruela
 
+再一个就是致命率高
+Lo otro el alto índice de letalidad
 
-编辑：【英国伦敦喜庄园编辑部】
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+得了就死
+Al contagiarse muere
+
+他说这个世界也防不了
+Él dijo que el mundo no podrá evitar esto
+
+这个出来以后
+Después de que esto salga
+
+这个 Omicron 出来以后
+Después de que aparezca el “Omicron”
+
+他说真是天意
+Él dijo que esto es de verdad voluntad del Cielo
+
+这次的病毒看来
+Al parecer el virus de esta vez
+
+欧洲的科学家说
+Los científicos europeos dijeron
+
+这回放毒应该是
+Los que soltaron el virus de esta vez debe ser
+
+广东帮干的
+Hecho por la banda de Guangdong
+
+广东这帮人干的 不是北方人干的
+La gente de Guangdong lo hizo, no los norteños
+
+北方人下手会比较狠
+Los norteños son más implacables
+
+这个病毒放完以后
+Luego de soltar este virus
+
+很有可能会帮助人类彻底消灭这场病毒
+Es muy probable que ayude a la humanidad a desaparecer este virus
+
+这个病毒会使人传染(但)致死率并不高
+Este virus puede hacer que las personas se contagien, pero el índice de letalidad no es muy alto
+
+致残率不高
+La tasa de discapacidad no es alta
+
+这个毒的活性很高
+El activo de este virus es muy alto
+
+容易传染
+Es fácil de contagiarse
+
+但是对人类的这两样没做到
+Pero no logra estas dos cosas en el humano
+
+他说实际是好事
+Él dijo que realmente es algo bueno
+
+甚至把这个人类的病毒从地球上消失
+Hasta puede hacer desaparecer este virus del planeta Tierra
+
+他说人类
+Él dijo que la raza humana
+
+跟这个病毒一但相适应之后
+Después de adaptarse mutuamente a este virus
+
+实际上这个病毒可能会消失的
+Realmente es muy probable que se desaparezca
+
+这是共产党不再放毒的情况下
+Esto es bajo la condición de que el PCCh no suelte de nuevo un virus
+
+这是一个，第二个
+Esto es lo primero, el segundo
+
+现在全世界真的都知道青蒿素管用了
+Ahora todo el mundo ya sabe que la Artemisinina si sirve
+
+我告诉你
+Yo te digo
+
+青蒿素绝对是把癌症可以消失了的
+La Artemisinina puede desaparecer en lo absoluto el cáncer
+
+青蒿素绝对把糖尿病
+La Artemisinina para la diabetes,
+
+和人类存在的艾滋病
+El VIH que existe en la humanidad
+
+特别是现在受环境污染的脑血栓
+Especialmente la trombosis cerebral que ahora está siendo contaminada por el medio ambiente
+
+心血管病
+Enfermedad cardiovascular
+
+他说绝对有巨大的帮助甚至彻底消灭
+Él dijo que definitivamente hay una gran ayuda o incluso una eliminación completa
+
+还有青蒿素和伊维菌素连在一起
+Y la unión de la Artemisinina con la Ivermectina
+
+一定会把这次病毒给解决
+Seguro podrá solventar el virus de esta vez
+
+**原视频网址：** [https://gettr.com/post/pii26c24b5](https://gettr.com/post/pii26c24b5)
+
+日期：12/06/2021
+原视频标题：这次的放毒应该是广东帮干的，传染率高但致残率致死率不高
+El virus esta vez soltado debe ser realizado por la banda de Guangdong. La tasa de infección es alta, pero la tasa de discapacidad y de mortalidad no son altas
+
+原视频日期：12/02/2021
+原视频网址： https://gettr.com/post/pii26c24b5
+任务编号：KC313（3081）
+视频时间段：0:00-02:03
+
+西听校：洛杉矶盘古农场- 小文萱
+翻译：洛杉矶盘古农场- 霙霙（文霙）
+翻译终校：洛杉矶盘古农场- 小文萱
+字幕+视频制作: 洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

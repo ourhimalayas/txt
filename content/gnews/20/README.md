@@ -2,23 +2,23 @@
 ---
 
 
-## 布林肯承诺美国确保台湾拥有自卫手段
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1730546/)
+## 白宫正式宣布外交抵制北京冬奥会
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1730569/)
 
-作者：东京樱花团 – 在远方
+作者：纽约香草山文艺部 – 宁文静
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美国国务卿布林肯在12月3日接受采访时，当主持人问到中共是否会侵略台湾，他认为如果中共这样做将是一个灾难性决定。在过去40多年里，美国一贯坚持“一个中国”政策，并以台湾取得显著进步的方式进行有效管理。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/8-10.jpg)
-但是过去几年来，中共国试图改变这一现状，不断对台湾进行军事恫吓和挑衅，试图孤立台湾，禁止台湾与国际社会接触。而台湾是一个民主的、有着强大经济并且对世界有很多贡献的创新国家，因此中共的政策是极端危险的。
+12月6日，白宫发言人普萨基在例行记者会上公布，鉴于中共在新疆正在进行的种族灭绝，反人类，以及其他侵犯人权的行为，拜登政府将不派任何外交或官方代表，参加北京2022年冬季奥运会和残奥会。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/9-6.jpg)
+普萨基说，拜登政府已将该决定告知美国盟友，各国将做出自己的决定。政府不会通过禁止美国运动员参赛来 “惩罚 “他们。
 
-布林肯强调，他告诫中共领导人要慎重考虑台湾问题，不要玩火自焚。因为这会产生非常可怕的后果，不符合所有人的利益，尤其首先不符合中共国的利益。他再次声明，不论是防卫物品和服务方面，美国都将致力于确保台湾拥有自我防卫手段。
+拜登这一决策与上周媒体的预测相吻合。此前，因中共国在新疆、西藏、香港犯下严重侵犯人权的罪行，并计划武力侵犯台湾，一些鹰派共和党议员一直向拜登政府施压。随后，彭帅事件在体育界掀起抵制声浪。白宫外交抵制冬奥会政策终于落地。民主党众议员蒂姆·瑞安评论说，“抵制力度不够”。
 
-参考链接：[布林肯承诺，美国确保台湾有自卫的手段](https://gnews.org/zh-hans/1725479/)
+参考链接：[White House announces diplomatic boycott of Beijing Winter Olympics over human rights concerns](https://www.nbcnews.com/politics/white-house/white-house-announces-diplomatic-boycott-beijing-winter-olympics-over-human-n1285419?cid=sm_npd_nn_tw_nw)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-总编：Irene木木
-编辑：Lakeman文仁
+总编：Ivy001
+编辑：Kathy文艺
 校正/发稿：Fei797
 
 **更多资讯，更多关注**
