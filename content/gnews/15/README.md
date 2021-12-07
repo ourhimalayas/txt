@@ -2,49 +2,53 @@
 ---
 
 
-## 美国宣布抵制北京冬奥后尚未有“大国”跟进
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1730713/)
+## 白宫宣布美国将外交抵制北京冬奥会，但允许运动员参赛
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1730732/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Unknown-10.jpg)图片来源：www.dailymail.co.uk
+美国白宫新闻秘书珍·普萨基(Jen Psaki)周一证实，美国将推进对2022年北京冬季奥运会的外交抵制。 与此同时，中共国周一威胁说，如果美国坚持其对2022年冬奥会的外交抵制，将采取“坚决的反制措施”。
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/12/B-2.jpg)justjared.com
-白宫官宣外交抵制北京冬奥会过了24小时【1】，还没有看到“大国”的跟进，难道是笔者有些着急？有一点可以肯定，中共不甘罢休，正在全力以赴，垂死挣扎，试图找到某个突破口。
+当被问及外交抵制是否足够时，普萨基告诉记者：“这只是表明它不能像往常一样行事。” 当被问及为什么政府没有推进全面抵制时，新闻秘书回答说：“我不认为我们觉得惩罚运动员是正确的策略。”
 
-看看英、法、加的反应。
+外界普遍预计拜登政府将在本周宣布外交抵制，这意味着美国政府官员将不会参加冬奥会，但美国运动员仍将参加比赛。 此举旨在平衡一些人权活动人士因中共虐待新疆维吾尔族少数民族而想要美国完全退出的要求和那些为了参赛而终生训练的运动员的要求。 然而，今年只有中共国大陆的观众可以观看比赛，比赛将于2022年2月4日至20日举行。
 
-路透社伦敦12月7日电 英国首相鲍里斯·约翰逊（Boris Johnson）的发言人周二（12月7日）表示，在美国宣布抵制北京冬奥会后，英国尚未就政府代表是否参加北京冬奥会做出决定。
+中共国外交部发言人赵立坚周一在新闻发布会上说：“如果美方一意孤行，中方必将采取坚决反制措施。” 赵说，呼吁抵制是“哗众取宠”，必须停止，“以免影响中美在重要领域的对话合作”。
 
-他对记者说：“英国政府（HMG，Her Majesty’s Government）出席北京奥运会的决定尚未作出，我们将在适当时候阐明我们的立场。”【2】
+对外交抵制，人们的反应褒贬不一。前联合国大使妮基·黑利(Nikki Haley)称这是一个“笑话”。
 
-路透社巴黎12月7日电 法国总统周二（12月7日）表示，法国注意到美国宣布以外交手段抵制2022年北京冬奥会，并表示将在欧洲层面就此问题作出协调反应。
+“外交抵制北京冬奥会是个笑话。中共不在乎拜登和团队是否出现。他们想要我们的运动员。”她在推特上写道。
 
-声明说：“我们注意到美国人的决定，当我们对人权感到担忧时，我们会对中共人说，我们去年3月对新疆采取了制裁，我们将在欧洲层面进行协调。”【3】
+犹他州联邦参议员米特·罗姆尼(Mitt Romney)3月份曾在纽约时报专栏文章中呼吁采取抵制行动，他赞扬了拜登的决定。
 
-MSN发表文章，报道了加拿大的态度，“美国将对北京奥运会进行‘外交抵制’，加拿大也在考虑类似的问题”。文章说，同一天（12月6日）晚些时候，当被问及加拿大是否会效仿时，特鲁多（Trudeau）含糊其辞，但他明确表示，他也将寻找一种方式来谴责中共国，而不迫使加拿大运动员牺牲期待已久的获得奥运奖牌的机会。
+众议院议长南希·佩洛西(Nancy Pelosi)赞扬了拜登的决定，并宣布众议院将于本周就《维吾尔强迫劳动预防法》进行投票，该法案将禁止从中共国新疆地区进口某些产品。
 
-加拿大体育部长帕斯卡尔圣·翁（Pascale St Onge）周一（12月6日）面对提问也做了同样的回答。
+美国上一次全面抵制奥运会是在1980年，当时奥运会在俄罗斯莫斯科举办。以美国为首的65个国家退出奥运会，以抗议苏联入侵阿富汗。美国不仅不允许其运动员参加比赛，而且还告诉他们，如果他们试图在奥林匹克旗帜下独自参加比赛，他们就面临失去美国护照的风险。
 
-“到目前为止，还没有做出决定。” “当然，我们非常关注中共国的侵犯人权行为，我们不会轻易作出决定，一旦作出决定，我们将立即与你们沟通。” 【4】
+人权活动人士上个月在希腊南部破坏了传统的点火仪式，对国际奥委会(IOC)将奥运会安排在北京举行感到愤怒。他们将2022年奥运会称为“种族灭绝运动会”。
 
-无独有偶，疑似通共、肯定亲共的加拿大驻华大使多米尼克·巴顿（Dominic Barton）昨晚（12月6日）辞职【5】，相信与中共的奥运博弈有关。
+2021年7月，欧洲议会和英国议会投票通过外交抵制冬奥会。5月，众议院议长南希·佩洛西推动外交抵制的方式，以避免惩罚运动员。由于（中共）侵犯人权，包括美国全国广播公司(NBC)在内的一些奥运转播商推动取消冬奥会转播计划。
 
-认识中共的邪恶需要有个过程，响应美国的抵制同样也不会是一帆风顺，尤其是被中共握住把柄的要员，此时不为主子拼死一搏，主子会很生气，后果会很严重；再者通过这事，又可以增加个与中共勾兑的砝码。
+中共在新疆对其维吾尔族少数民族发起了一场有针对性的残酷运动，将多达100万或更多的维吾尔人和其他以穆斯林为主的少数民族关进集中营和监狱。中共还因镇压香港抗议者、侵犯台湾和西藏以及掩盖中共病毒起源而面临国际批评。
 
-笔者相信，但正义的力量肯定会占上风，西方主要国家肯定会进行抵制，邪共你就别妄想了！刚才文贵先生盖特视频里已经透露了相关信息，西方各国都会跟上美国的步伐。
+简评：
 
-有关链接：
+拜登政府与习近平政府的勾兑一直都在进行，从对中共病毒溯源调查的不了了之，到在台海问题上的模棱两可，拜登政府的对外讲话很难让人信服。
 
-【1】[https://gnews.org/zh-hans/1727819/](https://gnews.org/zh-hans/1727819/)
+对于此次在北京举办的冬奥会，拜登政府所谓的外交抵制，形式大于实际意义，因为这种抵制并不像美国当年针对前苏联发起的奥运会抵制行动那样彻底，如果美国允许本国运动员参加，对他国的带动作用会很大。由于世界上的大多数人还并不了解中共病毒真相和毒疫苗真相，面对如此重要的国家赛事，各国运动员们恐怕都很难拒绝。中共政府想要利用冬奥会宣传自己独裁制度的“优越性”，如果大多数民主国家在这件事情上也从了中共，那对于整个世界来说将是莫大的讽刺。
 
-【2】[https://www.reuters.com/lifestyle/sports/no-decision-yet-beijing-olympics-says-uk-pms-spokesman-2021-12-07/](https://www.reuters.com/lifestyle/sports/no-decision-yet-beijing-olympics-says-uk-pms-spokesman-2021-12-07/)
+新闻链接：
 
-【3】[https://www.reuters.com/lifestyle/sports/france-says-there-will-be-coordination-eu-level-beijing-olympics-2021-12-07/](https://www.reuters.com/lifestyle/sports/france-says-there-will-be-coordination-eu-level-beijing-olympics-2021-12-07/)
+[https://www.dailymail.co.uk/news/article-10280635/China-threatens-countermeasures-proceeds-diplomatic-boycott-Winter-Olympic-Games.html](https://www.dailymail.co.uk/news/article-10280635/China-threatens-countermeasures-proceeds-diplomatic-boycott-Winter-Olympic-Games.html)
 
-【4】[https://www.msn.com/en-ca/news/canada/u-s-to-mount-diplomatic-boycott-of-beijing-olympics-canada-contemplates-similar/ar-AARx1a5?ocid=msedgntp](https://www.msn.com/en-ca/news/canada/u-s-to-mount-diplomatic-boycott-of-beijing-olympics-canada-contemplates-similar/ar-AARx1a5?ocid=msedgntp)
+* * *
 
-【5】[https://www.msn.com/en-ca/news/other/canada-s-ambassador-to-china-steps-down-as-ottawa-faces-pressure-from-biden-administration/ar-AARxbrb?ocid=msedgntp](https://www.msn.com/en-ca/news/other/canada-s-ambassador-to-china-steps-down-as-ottawa-faces-pressure-from-biden-administration/ar-AARxbrb?ocid=msedgntp)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
+
+编辑：【英国伦敦喜庄园编辑部】
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
