@@ -2,26 +2,36 @@
 ---
 
 
-## 日本将中共新变异病毒检测范围扩大到全国
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1729208/)
+## 新西兰泰晤士河市长 Sandra Goudie 因其反疫苗观点被投诉
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1729253/)
 
-撰稿：东京樱花团/风翼
-![](https://assets.gnews.org/wp-content/uploads/2021/12/666.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fupload.wikimedia.org%2Fwikipedia%2Fcommons%2Fthumb%2F5%2F55%2FKoseirodosho1.jpg%2F180px-Koseirodosho1.jpg&amp;imgrefurl=https%3A%2F%2Fzh.wikipedia.org%2Fwiki%2F%25E5%258E%259A%25E7%2594%259F%25E5%258B%259E%25E5%258B%2595%25E7%259C%2581&amp;tbnid=h6it1E8P3gK6cM&amp;vet=12ahUKEwi73LSNsNH0AhXUNaYKHZIjCX8QMygBegUIARCaAQ..i&amp;docid=dwAWNxTz9nmCvM&amp;w=180&amp;h=240&amp;itg=1&amp;q=%E5%8E%9A%E7%94%9F%E5%8A%B3%E5%8A%A8%E7%9C%81&amp;ved=2ahUKEwi73LSNsNH0AhXUNaYKHZIjCX8QMygBegUIARCaAQ#imgrc=h6it1E8P3gK6cM&amp;imgdii=2mqXN8kemvofuM)
-据【TBS NEWS】报导，内阁官房长官松野裕和发表声明：“卫生部和劳动省通知，对阳性样本的基因组分析已经确认是奥米克朗菌株，这是检测出的第三例”。经查，该名患者是日本人30岁到男性患者，曾在意大利停留过，这是第一次有日本人被确认为感染者。
+作者：GingerDaddy
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-07-18.04.19.png)
+泰晤士市长 Sandra Goudie 由于其 Covid-19 疫苗观点，被提出了行为准则投诉，但市议会还没有对此进行调查，称此事已经非正式地解决了。
 
-他于本月1日从罗马经德国的一个机场抵达羽田机场。这名男子已经注射了两剂中共病毒疫苗，自他抵达机场以来一直没有症状。对于同乘飞机上的其余41人被作为密切接触者处理，并将对他们的健康进行密切监测。
+Goudie 不想打辉瑞疫苗，她想要 Novavax 疫苗，不过该疫苗尚未获准在新西兰使用。今年10月份，她和泰晤士议会其他成员通过了一项不记名动议，支持疫苗推行。几天后，市议员 Gary Gotlieb 提出了一项行为投诉，指控市长在科罗曼德举行的反疫苗会议上发表讲话。后来在11月11日，网上出现了一段12分钟的视频，内容是Goudie与澳大利亚反疫苗组织 Reignite Democracy Australia 的对话，11,000多 人观看。她谈到了疫苗强制、抗议和反疫苗团体。
 
-6日，首相岸田文雄在自民党董事会的一次会议上宣布，新感染奥密克戒菌株的病人往往没有症状，这意味着他们没有出现味觉或嗅觉异常，也没有发烧，但感染力极强的特性。为了安全起见，日本所有新的中共病毒患者就将接受奥密克戒菌株到检测。
+“意见一致人群的集会到处都是。到处是游行。成千上万的人参加这些游行，却几乎没有被媒体报道。人们都搞不明白我们的媒体怎么了。这真的让人难过。她说：“我从没想过我们会在有生之年碰到这种事，现在却碰到了。我们对一战和二战的印象至今还很深刻。”
 
-根据中共变异病毒的无症状、感染率强的特性，不难预测日本进入第六次感染高峰将要到来。生命健康也会受到重大伤害，因传染扩大也将使众多日本群众新年假期回家和旅行成为泡影，在社会经济恢复上受到重创。
+然后，她将交通灯系统描述为“荒谬”。“我认为是时候打开边境了。让我们直面吧。”
 
-信息来源：
+Gotlieb说这段视频是“很可耻”。“这太糟糕了”，她说，“因为她对决议的至今，市议会和议员们都陷入了一个很糟糕的处境。”他说他是在 RNZ 转发视频之后，才知道了这个视频，他希望市议会重新考虑他对社区集会的行为准则投诉，并对视频内容进行检查。Gotlieb 不认可泰晤士区议会通讯小组向 RNZ 提供的声明，该声明称调查“被认为没有必要”，因为此事已“由各方解决”。“他们只是搁置了投诉，希望它会自己消失，但对我来说，它根本没有解决。而且她继续蔑视。这绝对是蔑视，也是对我们的嘲笑。”
 
-[“オミクロンショック”拡大…年末年始“移動”直撃](https://news.tv-asahi.co.jp/news_society/articles/000237519.html)
+今天将召开区议会全体大会。
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+到目前为止，在该市市议会的各场所和办公室中，对疫苗通行证没有做强制要求。
+
+Sandra Goudie 不想就此事向 RNZ 发表评论。
+
+
+
+媒体链接：
+
+[https://www.nzherald.co.nz/nz/covid-19-delta-outbreak-thames-mayor-sandra-goudies-vaccine-views-sparks-conduct-complaint/JTG2GZW57WSBL2SDXDXBT6UYYQ/](https://www.nzherald.co.nz/nz/covid-19-delta-outbreak-thames-mayor-sandra-goudies-vaccine-views-sparks-conduct-complaint/JTG2GZW57WSBL2SDXDXBT6UYYQ/)
+
+审核校对：Barry Jack
+上传排版：F
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

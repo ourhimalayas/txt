@@ -2,33 +2,37 @@
 ---
 
 
-## 欧盟宣布延长制裁中共国官员
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1728752/)
+## 郭先生解释：为什么中共让百姓多生孩子，又强迫孩子打毒疫苗
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1728762/)
 
-#### 撰稿：日本东京方舟农场  幽蘭自得
+撰稿：东京樱花团 – 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在12月5日的大直播中，有战友问到，中共的三胎政策和给儿童注射毒疫苗，似乎是矛盾的。郭先生一番解答让人茅塞顿开。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/7164E9C4-FB82-4376-A505-26A6E19FE37B.jpeg)包瑞翰 (Reinhard Bütikofer)（图片来自德国之声）
+郭先生称，国人一贯的螺旋性思维是错误的，而要逆向思维才对。首先中共的官员虽然出于本能不会让自己和家人注射毒疫苗，但他也不认为老百姓打了疫苗就一定会出事，因为他们绝对不认为注射疫苗是一场人道灾难。就像他们杀害地主并性侵地主家的女性，但绝不会让人们性侵自己家的女性，因为他们知道这不是好事。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/0-2.jpg)
+另外，由于经济利益的驱动，因此地方政府极力强推疫苗政策。在金钱面前，中共官员的怀疑就被忽视掉了。其次，墙内打假疫苗在全世界是最多的，疫苗有假的，注射过程也有假的。但不幸的是，由于墙内众多父母的自私，会以爱的名义忽视孩子的生命安全和快乐，以不打疫苗不能上学为由，而默许孩子受到致命伤害。
 
-12月6日，欧盟宣布延长制裁严重侵犯人权的个人和实体至2022年12月。这些被制裁者中包括中共国侵犯维族人权的官员。
+中共的体制禁止一切独立思考，从而也屏蔽了一切真相，而三胎政策是中共共同利益的需求。共匪的官员，个人享受高于一切，打着国家和集体的旗号掠夺一切，既让鸡下蛋，又不让鸡吃粮；既让老百姓生孩子，又不保护孩子的安全。归根结底，共产党是一个病态、独裁、视人民如无物的魔鬼体制。
 
-据《德国之声》报道，欧洲议会外交政策协调员、对中关系代表团主席包瑞翰 （Reinhard Bütikofer）对此表示，就在几天前，中共国领导人还在幻想欧盟会允许2021年3月实施的制裁过期，并向其磕头示好。但布鲁塞尔已经证明，独裁者习近平的团队是错误的。
+消息链接：[https://gtv.org/video/id=61aeacaf87fa7e74c92c7887](https://gtv.org/video/id=61aeacaf87fa7e74c92c7887)
 
-包瑞翰还表示，在必要时欧盟仍然准备与中共国进行对话。但即使在那种情况下，欧盟也将划出明确的界限，中共必须适应这一现实。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-欧盟今年3月制裁了新疆维吾尔自治区公安厅厅长陈明国、党委常委王明山和王君正、前新疆政法委书记朱海仑，以及新疆生产建设兵团公安局。制裁者措施包括冻结资产和旅行禁令。
+**校对/发稿：童谣**
 
-《德新社》当时的报道指出，这是自1989年天安门广场大屠杀以来，欧洲国家针对中共侵犯人权行为所采取的第一个措施。
+**更多资讯，更多关注**
 
-*参考链接：[延长制裁中国官员  欧洲议会代表：习近平幻想破灭](https://www.dw.com/zh/%E5%BB%B6%E9%95%BF%E5%88%B6%E8%A3%81%E4%B8%AD%E5%9B%BD%E5%AE%98%E5%91%98-%E6%AC%A7%E6%B4%B2%E8%AE%AE%E4%BC%9A%E4%BB%A3%E8%A1%A8%E4%B9%A0%E8%BF%91%E5%B9%B3%E5%B9%BB%E6%83%B3%E7%A0%B4%E7%81%AD/a-60038313)*
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-* * *
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-*素材采编：幽蘭自得*
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-*编辑：青衣青青*
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-*发布：miumiu*
-
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

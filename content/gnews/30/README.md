@@ -2,42 +2,30 @@
 ---
 
 
-## 【币圈新闻】日本最高银行监管机构将在2022年立法限制稳定币发行
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1728977/)
+## 为了造“蓝天” 中共在百年冥诞前发射大量火箭进行人工降雨
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1729051/)
 
-编译：玫瑰天空
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片-2-2.jpg)日本金融厅（Shutterstock）
-2021年12月7日，据CoinDesk 的新闻记者[**夏安利贡**](https://www.coindesk.com/author/cheyenne-ligon/)**（**Cheyenne Ligon ）
+#### 翻译/撰稿：zzballack
 
-发文报道，[日经亚洲](https://asia.nikkei.com/Spotlight/Cryptocurrencies/Stablecoins-to-face-new-restrictions-in-Japan)周一的[一份报告称，](https://asia.nikkei.com/Spotlight/Cryptocurrencies/Stablecoins-to-face-new-restrictions-in-Japan)日本最高银行监管机构将于 2022年出台新的立法，旨在限制向银行和电汇公司发行稳定[币](https://www.coindesk.com/learn/what-is-a-stablecoin/)。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-12.jpg)图片来源：卫报
+据《新闻极限》（Newsmax）12月6日报道，中共当局为了给其百年冥诞庆典营造一个“蓝天”，消除空气污染，在今年7月1日前一晚采用云播种（Cloud seeding）技术进行人工降雨。
 
-日本金融厅 (FSA) 将提出的法规旨在加强该机构对稳定币市场的控制，以保护消费者免受 Tether 等资产支持稳定币的潜在风险。
+清华大学环境科学教授王灿11月26日在中国《环境科学》期刊发表论文，披露他的团队自6月30日晚8时30分起，在云中加入化学品，进行了2小时的“播云作业”，以便在北京郊区和一些邻近地区制造降雨。报导说，居住在北京西南山区的多位居民表示，当晚看到大量火箭，这是用来将碘化银发射到天空，以刺激降雨用的。还有居民发现了落在他家附近的火箭碎片。
 
-FSA 的举动反映了美国的类似提议。11月，总统金融市场工作组与包括货币监理署(OCC)在内的其他监管机构发布了[一份关于稳定](https://www.coindesk.com/policy/2021/11/02/the-us-treasurys-stablecoin-report-would-treat-issuers-like-banks-but-doesnt-address-how/)币的[报告](https://www.coindesk.com/policy/2021/11/02/the-us-treasurys-stablecoin-report-would-treat-issuers-like-banks-but-doesnt-address-how/)，其中包括对银行等稳定币发行人的建议。
+但是百年冥诞当天，中共当局没有迎来期望的蓝天。相反，发射大量火箭“炸天”导致整个北京城笼罩在阴云密布之下，举办活动的天安门广场灰濛濛一片。活动结束后不久甚至下起了大雨。
 
-根据该报告，该立法还将包括防止通过稳定币进行洗钱的措施，通过给予该机构对钱包提供商等中介的额外监督，并增加额外的了解你的客户 (KYC) 措施。
+据报道，自2008年举办北京奥运会以来，中共当局为了在重要日子营造“蓝天”，多次以人工方式改造天气，驱散阴霾。据《国会山》（The Hill）报道，中共上周宣布，它将在2025年前开发一个天气改变系统，以便在22.4万平方英里（约58万平方公里）的范围内产生人工降雨。
 
-今年1月，包括三菱在内的70多家日本大公司组成的财团[预计将开始](https://www.coindesk.com/policy/2021/11/24/japanese-consortium-plans-to-issue-bank-deposit-like-digital-yen-by-2022-end/)试用[央行数字货币](https://www.coindesk.com/policy/2021/10/15/bank-of-japan-seeks-plain-easy-to-cook-cbdc-model/)(CBDC)，即数字日元，他们表示这种[货币](https://www.coindesk.com/policy/2021/10/15/bank-of-japan-seeks-plain-easy-to-cook-cbdc-model/)将像银行存款一样发挥作用。
+郭文贵先生在2021年11月10日的大直播中曾说过，今年11月6日，中共六中全会前夕，北京天降“瑞雪”系出于政治目的的人造雪。为保证六中全会期间没有雾霾，以及强行制造“瑞雪兆丰年”的自欺假象，中共太空军从西北、蒙古“一路砸过来”，共计发射了 6 万发太空造雪箭，由此带来的太空污染、大气污染是常人无法想象的。回看六种全会及中共各种重要会议的历史，这种在24小时之内骤然降落的“专属瑞雪”几乎很少爽约。郭先生的一位负责造雪的老朋友直言，中共造雪“不考虑环境影响，政治第一。”人工降雪技术并非中共独有，但全世界只有视人命如草芥的中共敢做。人工造雪中用到的主要催化剂碘化银是有毒物质，会对大气造成直接污染，而且随雨水落地后，不仅污染水源、土壤，还有可能伤害人体健康。但是中共的官媒和无良“专家”千篇一律地“辟谣”说，碘化银用量很少，对环境的影响可以忽略不计，鼓吹人工降雪无害，愚弄公众。
 
-此前，日本央行(BoJ)执行董事 Shinichi Uchida 曾将在一次演讲中表示，日本央行(BoJ)将尝试开发一种可以与私人支付方式轻松共存的央行数字货币(CBDC)。
+新闻来源：
 
-- Shinichi Uchida周五[表示](https://www.boj.or.jp/announcements/press/koen_2021/ko211015a.htm/)，为了寻求“垂直共存”，与公众使用的其他支付方式，CBDC应该由“相对有计划、易于烹饪的材料”组成。
-- 中央银行官员引用了一个例子，其中可以在私人公司提供的数字钱包中使用CBDC。
+[China Used Cloud Seeding to Ensure July Political Event Was Pollution-Free](https://www.newsmax.com/globaltalk/china-cloud-seeding-100th-anniversary-ccp/2021/12/06/id/1047540/)
 
+[文贵爆料（11/10）：六中全会北京“瑞雪”系人造](https://gnews.org/zh-hans/1653228/)
 
-援引：
-
-[https://www.coindesk.com/policy/2021/12/06/japan-moves-to-impose-new-regulations-on-stablecoin-issuers-report/](https://www.coindesk.com/policy/2021/12/06/japan-moves-to-impose-new-regulations-on-stablecoin-issuers-report/)
-
-[https://www.coindesk.com/policy/2021/10/15/bank-of-japan-seeks-plain-easy-to-cook-cbdc-model/](https://www.coindesk.com/policy/2021/10/15/bank-of-japan-seeks-plain-easy-to-cook-cbdc-model/)
-
-
-
-采 集：神之一手
-审核校对：Barry Jack
-上传排版：F
-
-
+[大直播7·24——人工降雪的危害性](https://gnews.org/zh-hans/1655383/)
 
  
 
