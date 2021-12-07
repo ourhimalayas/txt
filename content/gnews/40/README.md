@@ -2,31 +2,31 @@
 ---
 
 
-## 先进科技助力新中国联邦构建宏大版图
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1726537/)
+## GFashion与世界顶级品牌Mandelli开展全面合作
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1726554/)
 
-作者：纽约香草山文艺部 – 宁文静
+作者：纽约香草山农场 文真
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月5日，在“文贵大直播”中，郭先生描绘了一幅新中国联邦的未来版图，囊括当今世界从能源科技到金融的一系列核心技术。
+郭文贵先生在12月3日的直播中公布了一个重大喜讯，世界顶级品牌Mandelli主动提出与GFashion展开合作。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide1-7.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide2-5.jpeg)
 
-首先是RVC电池，运用网状玻璃态碳技术支持的电极材料，具有低密度、高稳定、超导性、安全又低成本的广阔应用前景。最关键的是太阳能转换技术，成为取之不尽的新型能源。美国最新研究进展表明，这是又一次革命性的突破。
+据了解，Mandelli先生曾经为很多世界顶级品牌，包括爱马仕，制造服饰和皮包，被称为“时尚界之王”，更是时尚界教皇级别的人物。
 
-其次，IBM的2纳米芯片，其安全性和稳定性已达军事级别，格芯将协同生产。
+目前，GFashion的服饰皆由Mandelli意大利工厂代工。而这次合作的主因在于，Mandelli看重新中国联邦的实力和喜联储未来的无限价值。
 
-第三，电池和芯片是核心技术的核心，将打造出新中国联邦的太空币，以生物密码识别，安全性无可比拟。
+郭先生透露，12月2日，Mandelli公司主动寻求与GFashion的合作，并以零费用为GFashion提供Mandelli在美国所有品牌的代理权，即，GFashion可以合法使用Mandelli的所有品牌。同时，Mandelli公司诚恳地邀请郭先生入股。
 
-最后，是在上述电池，芯片及区块链加密技术完全掌控下的5G和AI技术。
+另外， Mandelli先生也非常欢迎新中国联邦的战友、GCLub会员、GTV投资者随时参观Mandelli位于意大利的工厂，了解真正的时尚艺术。
 
-郭先生展望，新中国联邦参与了这些目前世界上最先进、最超前的核心技术，未来宏大版图的构建，将慢慢展现于世。
+郭先生提到，GFashion将像喜联储一样在时尚界真正地开启新世界。
 
-参考链接：[2021年12月05日 文贵大直播](https://gtv.org/video/id=61acb7bebbd75f62e52f7ce4)
+
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
 
 总编：文真
-编辑：Kathy文艺
+编辑：Irene木木
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**
