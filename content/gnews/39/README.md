@@ -2,25 +2,24 @@
 ---
 
 
-## 纽约市商业团体抨击对私营企业的疫苗强制令
-` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1728078/)
+## COVID-19 最新情报｜纽约市率先强制私企员工接种疫苗
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1728743/)
 
-加拿大扬帆农场Spirit
-![](https://assets.gnews.org/wp-content/uploads/2021/12/IMG_3318-1.jpg)图片来源：New York Post
-根据《彭博社》12月6 日报道，纽约市合伙人组织的负责人凯瑟琳·怀尔德(Kathryn Wylde) 表示，他们被纽约市长比尔·德布拉西奥的措手不及的疫苗强制令惊到了。怀尔德代表的是一个有影响力的商业团体，摩根大通公司和高盛集团是其成员。
+**撰文｜ 台湾宝岛农场 疫情关注组 / 发布时间｜7/12/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup）](https://gettr.com/user/mightygroup%EF%BC%89)**
 
-纽约市长周一表示，所有私营部门的雇主必须要求他们的工人在12月27日之前接种疫苗，没有测试选项。这项任务将涵盖大约18.4万家企业。
+【美国】因应 Omicron 变种新冠病毒的扩散，纽约市长白思豪（Bill de Blasio）周一（6日）宣布，本月27日起，所有私人企业的员工须证明已接种最少一剂新冠疫苗，并且不能以阴性检测结果代替，成为全美首例，预计届时将最少有18.4万间公司受到影响。
 
-尽管像高盛和摩根士丹利这样的许多大公司已经要求接种疫苗才能在他们的大楼里工作，但怀尔德说，该市强行规定的决定并没有与公司和高管协调，这将在商业界散播不确定性。
+白思豪强调，圣诞假期将至，加上天气寒冷，有必要加强预防病毒扩散，市政当局会先谘询商界意见，制定详细指引，最快会于下周三（15日）前宣布。
 
-怀尔德在周一的一份声明中说：“联邦、州和市各级的政策不一致使情况更糟，目前还不清楚谁将执行市长的疫苗强制，以及这项命令是否合法。拜登总统对雇员超过100人的雇主的疫苗强制目前因诉讼而搁浅，很难想象市长能做到总统被挑战的事情”。
+目前，美国最少有18个州录得 Omicron 确诊个案，周一起，美国收紧入境规管，要求入境的海外旅客提供出发前24小时的阴性检测证明。
 
-原文链接：
-[https://www.bnnbloomberg.ca/nyc-business-group-blasts-private-sector-vaccine-mandate-1.1691865](https://www.bnnbloomberg.ca/nyc-business-group-blasts-private-sector-vaccine-mandate-1.1691865)
+不过，全球政府对 Omicron 变体的过分紧张一直受到外界质疑，事源最先发现Omicron 变体病毒的南非，有医院研究过42名最近受感染的患者发现，他们大部分都没有病征，病情亦没有之前感染其他变体病毒的患者严重，当中只有一人需入住深切治疗部，同时大部分患者都是完全疫苗接种者。
 
-* * *
-
-发稿Spirit
+因此，有评论认为，一个较低杀伤力的变体出现本有利于终止此次疫情，而各个政府不合常理的过分紧张，是为了制造恐慌，以促进现有疫苗及早用尽，避免过期而蒙受损失。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-5.jpg)
+来源｜[纽约市长新闻发布会](https://youtu.be/l9-4ZzRxV_8)
 
  
 

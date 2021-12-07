@@ -2,39 +2,43 @@
 ---
 
 
-## 拜登严正警告普京不要动乌克兰，经济大棒比枪炮更硬吗？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1728880/)
+## 【币圈新闻】日本最高银行监管机构将在2022年立法限制稳定币发行
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1728977/)
 
-#### 作者：东京樱花团｜捆绑CCP一千年
+编译：玫瑰天空
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片-2-2.jpg)日本金融厅（Shutterstock）
+2021年12月7日，据CoinDesk 的新闻记者[**夏安利贡**](https://www.coindesk.com/author/cheyenne-ligon/)**（**Cheyenne Ligon ）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/乌克兰.png)[图片来源](https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20211112-%E6%AC%A7%E7%9B%9F%E5%AF%B9%E4%BF%84%E7%BD%97%E6%96%AF%E5%9C%A8%E4%B9%8C%E5%85%8B%E5%85%B0%E8%BE%B9%E5%A2%83%E9%99%84%E8%BF%91%E9%9B%86%E7%BB%93%E5%86%9B%E9%98%9F%E6%84%9F%E5%88%B0%E6%8B%85%E5%BF%A7)
+发文报道，[日经亚洲](https://asia.nikkei.com/Spotlight/Cryptocurrencies/Stablecoins-to-face-new-restrictions-in-Japan)周一的[一份报告称，](https://asia.nikkei.com/Spotlight/Cryptocurrencies/Stablecoins-to-face-new-restrictions-in-Japan)日本最高银行监管机构将于 2022年出台新的立法，旨在限制向银行和电汇公司发行稳定[币](https://www.coindesk.com/learn/what-is-a-stablecoin/)。
 
-**乌克兰危机凸显，拜登警告普京不要入侵乌克兰。但美国只是对此采取经济制裁。看起来只是重复克里米亚模式。这反应了政客们的虚伪交易，幕后黑手是中俄将对乌克兰和台湾采取同步军事入侵，以此警告美军不要陷入两场战争。**
+日本金融厅 (FSA) 将提出的法规旨在加强该机构对稳定币市场的控制，以保护消费者免受 Tether 等资产支持稳定币的潜在风险。
 
-据[日本经济新闻](https://www.nikkei.com/article/DGXZQOGN06CX10W1A201C2000000/)7日援引华盛顿消息称，美国总统拜登和俄罗斯总统普京7日视频会面，拜登警告普京，“如果俄罗斯入侵乌克兰，它将与其欧洲盟友合作采取反制措施，这将对俄罗斯经济产生严重的经济影响。”拜登总统表示，他将加强北大西洋公约组织（NATO）对乌克兰的军事支持，称，这将是一个选择。
+FSA 的举动反映了美国的类似提议。11月，总统金融市场工作组与包括货币监理署(OCC)在内的其他监管机构发布了[一份关于稳定](https://www.coindesk.com/policy/2021/11/02/the-us-treasurys-stablecoin-report-would-treat-issuers-like-banks-but-doesnt-address-how/)币的[报告](https://www.coindesk.com/policy/2021/11/02/the-us-treasurys-stablecoin-report-would-treat-issuers-like-banks-but-doesnt-address-how/)，其中包括对银行等稳定币发行人的建议。
 
-“拜登政府指责俄罗斯将军队集中在与邻国乌克兰的边界附近。”但美国政府官员对可能的俄罗斯入侵乌克兰行动，将采取除军事行动外的“实质性的经济反制措施，这将严重损害俄罗斯经济”。但只是承诺军事援助乌克兰和北约防御能力的可能性。因为拜登政府直接表示，“不直接使用美国的军事力量。”
+根据该报告，该立法还将包括防止通过稳定币进行洗钱的措施，通过给予该机构对钱包提供商等中介的额外监督，并增加额外的了解你的客户 (KYC) 措施。
 
-- ***延展阅读：***[***正面怼！俄驻美使馆回应“俄准备入侵乌克兰”，猜测***](http://www.chinanews.com.cn/gj/2021/12-05/9622813.shtml)***？***
-- ***延展阅读：***[***白俄罗斯称乌克兰直升机侵犯领空，***](http://www.news.cn/mil/2021-12/07/c_1211476527.htm)[***乌克兰对此否认***](https://www.euronews.com/2021/12/06/ukraine-denies-belarusian-allegations-of-repeated-airspace-violations)
+今年1月，包括三菱在内的70多家日本大公司组成的财团[预计将开始](https://www.coindesk.com/policy/2021/11/24/japanese-consortium-plans-to-issue-bank-deposit-like-digital-yen-by-2022-end/)试用[央行数字货币](https://www.coindesk.com/policy/2021/10/15/bank-of-japan-seeks-plain-easy-to-cook-cbdc-model/)(CBDC)，即数字日元，他们表示这种[货币](https://www.coindesk.com/policy/2021/10/15/bank-of-japan-seeks-plain-easy-to-cook-cbdc-model/)将像银行存款一样发挥作用。
 
+此前，日本央行(BoJ)执行董事 Shinichi Uchida 曾将在一次演讲中表示，日本央行(BoJ)将尝试开发一种可以与私人支付方式轻松共存的央行数字货币(CBDC)。
 
-消息称，[拜登在与普京会谈](https://www.cnbc.com/2021/12/06/biden-to-warn-putin-against-russian-invasion-of-ukraine.html)之前，分别与英国首相约翰逊、法国总统马克龙、德国总理默克尔、意大利总理德拉吉通了电话。表示对俄罗斯对乌克兰的行动表示担忧，并同意呼吁该国缓和紧张局势。而这些国家都是被中共国严重腐败的国家。
-
-不但如此，白俄罗斯这个时候也出来为俄军开战做舆论铺垫。根据中共[新华社消息称](http://m.news.cn/2021-12/07/c_1128137663.htm)，“6日，白俄罗斯在白俄罗斯与立陶宛边境等待进入欧盟的货车有2260辆，在白俄罗斯与波兰边境等待的货车为1470辆，在白俄罗斯与拉脱维亚边境等待的货车有1110辆。”“[波兰等国指责白俄罗斯策划这场危机，以此报复欧盟先前对白施加的制裁](http://m.news.cn/2021-12/07/c_1128137663.htm)。”而这些举措非同寻常，尤其是在大流行期间和新变种病毒 Omicron的传播。这些民间货运很难保证其乌克兰和欧洲边境安全。
-
-- ***延展阅读：***[***欧盟对俄罗斯在乌克兰边境附近集结军队感到担忧***](https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20211112-%E6%AC%A7%E7%9B%9F%E5%AF%B9%E4%BF%84%E7%BD%97%E6%96%AF%E5%9C%A8%E4%B9%8C%E5%85%8B%E5%85%B0%E8%BE%B9%E5%A2%83%E9%99%84%E8%BF%91%E9%9B%86%E7%BB%93%E5%86%9B%E9%98%9F%E6%84%9F%E5%88%B0%E6%8B%85%E5%BF%A7)***。***
+- Shinichi Uchida周五[表示](https://www.boj.or.jp/announcements/press/koen_2021/ko211015a.htm/)，为了寻求“垂直共存”，与公众使用的其他支付方式，CBDC应该由“相对有计划、易于烹饪的材料”组成。
+- 中央银行官员引用了一个例子，其中可以在私人公司提供的数字钱包中使用CBDC。
 
 
-美国分析称，近期俄罗斯动向与2014年吞并乌克兰克里米亚半岛之前的情况类似，再次对俄罗斯对乌克兰的军事入侵表示担忧。《华盛顿邮报》3日报道，据美国情报机构报道，俄罗斯早在2010年初就计划入侵乌克兰。他指出，预计这次将是一次多战线行动，[俄军动员了多达175,000人。他还发布了自己的卫星照片，并报告说俄罗斯军队正在乌克兰边境的四个地点集结](https://www.nikkei.com/article/DGXZQOGN06CX10W1A201C2000000/)。
+援引：
 
-乌克兰危机，看起来只是重复克里米亚模式，因为拜登警告普京不要入侵乌克兰，只是强调经济制裁，而俄罗斯一直在被制裁中。这反应了政客们的虚伪交易。正如新中国联邦郭文贵先生所分析的那样，[中俄两国近来主要讨论如何对乌克兰和台湾采取同步军事入侵行动](https://gettr.com/post/pimgit758a)。目的是迫使美国不能同时打两场战争。俄罗斯和中共国因为经济即将崩溃，灾难不可避免，他们都做好准备打仗 。（45:05 时段）
+[https://www.coindesk.com/policy/2021/12/06/japan-moves-to-impose-new-regulations-on-stablecoin-issuers-report/](https://www.coindesk.com/policy/2021/12/06/japan-moves-to-impose-new-regulations-on-stablecoin-issuers-report/)
 
-2021年12月7日
+[https://www.coindesk.com/policy/2021/10/15/bank-of-japan-seeks-plain-easy-to-cook-cbdc-model/](https://www.coindesk.com/policy/2021/10/15/bank-of-japan-seeks-plain-easy-to-cook-cbdc-model/)
 
-*校对：东京樱花团 / 文小白
-发布：东京樱花团 / 野猫*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/最新版樱花网址-1.jpg)
+
+
+采 集：神之一手
+审核校对：Barry Jack
+上传排版：F
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

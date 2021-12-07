@@ -2,26 +2,32 @@
 ---
 
 
-## 英国资深保守党议员指控英政府发动“宣传战”忽悠百姓接受限制令
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1728004/)
+## 郭先生谈中共内部北戴河会议
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1728725/)
 
-翻译：zzballack
-上传：追着曙光跑
+作者：银河勇气星 – 骄子
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+郭先生在12月3日的大直播中透露，中共每年夏天都会举行一次的北戴河会议，实际是中共现任领导人与退休老干部勾兑利益的会议，是中共的政治风向标。其中现任最高领导人和离退休领导的见面和会谈有非常严格的谈话时长控制，甚至精确到秒。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture2-4.jpg)
+在今年夏天8月1日到8月16日的北戴河会议中，习近平和中共元老宋平交谈40分钟，和前任中共总书记胡锦涛交谈90分钟，和王岐山交谈了两次，每次20分钟，其他的一些老干部都是掐紧20分钟就走。这一切安排都凸显了中共的政治趋势和走向。如与宋平、胡锦涛的会面时间长显示了习与二者更紧密的关系及与江家势力的对抗，而同属江家势力的王岐山出现在老同志的会议上则明确了其有虚职而无实权。
 
-据《布雷特巴特新闻网》（Breitbart News）12月6日报道，英国资深保守党议员克里斯托弗·乔普 (Christopher Chope) 爵士12月6日在接受talkRADIO的采访时指责英国政府对英国人民发动了一场宣传战，以鼓励他们支持继续实施防疫限制令。乔普还警告说，由于反对党和大多数保守党支持约翰逊政府，需要大幅转变公众对政府的态度，才能改变政策，支持结束限制性措施。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Image-2021-12-07-at-10.17.17.jpeg)图片来源：原新闻
-在英国发现了新冠奥密克戎变种后，约翰逊政府重新引入了口罩强制令，并将在本周确认圣诞节是否将如往常一样进行。乔普议员就圣诞节前或圣诞节后可能出现的新限制令所带来的持续威胁评论说：“这是政府制造恐惧运动的一部分。他们正试图利用恐惧作为压制个人自由的工具。事实上，他们在这方面相当成功，因为我们的许多同胞都已经畏缩不前。”
+北戴河会议结束后，习近平即对江家势力进行了大清洗，包括对江志成、马云、傅政华等人的抓捕，以及对孙力军的进一步惩处，江派彻底失势。习的做法也表明他相信了郭先生关于江家南普陀会议的信息。
 
-乔普爵士说，他和其他对封锁持怀疑态度的议员很难让主流媒体传达出他们的反对立场，“我们在下议院阐述的另一种观点，很难通过广播电视等媒体渠道被公众听到、看到。然而我们从收到的电子邮件中知道，全国有许多人同意我们的观点，他们只是要求我们劝说政府在对抗疫情时运用一点常识。”
+参考链接：[郭先生谈中共内部北戴河会议](https://gtv.org/video/id=61aa1cecd6388d55041591e6)
 
-乔普爵士还指出，政府的反对派，主要是工党（Labour Party）和其他小党派，以及政府部长们都不支持在下议院投票中挑战任何新的潜在限制令，只有几十个保守党的非政府议员，即所谓的后座议员，对此持反对意见。他说：“议会中的问题是，几乎所有的反对党人士都支持政府，所以只有我们这些在后座上的30或50人站出来捍卫个人自由和个人责任。我们获胜的唯一途径是让公众舆论发生变化，而这正是这场宣传战的重点。”
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-英政府似乎赢得了这场宣传战。总部设在英国的市场调查和数据分析公司YouGov最近几周进行的民意调查发现，有63%的英国人支持禁止未接种疫苗者参加活动或者进入非必要商店等公共场所；54%的人预测圣诞节期间会有新的限制令，其中76%的人支持在商店和公共交通工具上强制戴口罩，69%的人支持政府重新发布在家工作的建议和需要疫苗护照才能参加大型活动。
+总编：文特
+编辑：Lakeman/飞虹
+校对/发稿：Hetangyuese
 
-新闻链接：[Senior Tory MP Accuses Own Govt of ‘Waging’ Coronavirus ‘Propaganda War’](https://www.breitbart.com/europe/2021/12/06/senior-tory-mp-accuses-own-govt-of-waging-coronavirus-propaganda-war/)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

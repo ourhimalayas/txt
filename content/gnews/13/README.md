@@ -2,25 +2,35 @@
 ---
 
 
-## 每时每刻的认知（二）
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1728913/)
+## 欧洲议员声援民众抵抗疫苗暴政
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1729016/)
 
-投稿人：春风秋雨
+撰稿：东京樱花团 – 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间12月4日，德裔欧洲议员克里斯汀.安德森，在社交平台发布短片，公开声援澳洲人民连续多周抗议疫苗暴政，并严厉谴责澳洲当局践踏人权、自由和法治，将一个民主国家变成集权统治。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture2-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-315.png)
 
-图片来自战友
+安德森说，历史从来没有一个好人会强迫他人服从，人民的福祉从来都只是暴君的托词。澳大利亚不需要所谓的“疫苗”战略计划，澳大利亚需要的是“无压迫”战略计划。安德森一针见血得指出，政府推行疫苗根本不是为了预防病毒，而是为了打击和消灭人类。 她提醒全世界人民，自由是个人的选择，而非政府的施舍。她呼吁澳洲人民，从现在起就必须挺身反抗。
 
-每时每刻在文贵先生的指引下，认知到病毒、疫苗的真相。在新中国联邦的全球战友们坚持不懈的广泛传播中，看到全世界的人们也在慢慢觉醒。
+消息链接：[https://gettr.com/post/piulodcba8](https://gettr.com/post/piulodcba8)
 
-在一段视频中, 一位有良知的医院护士，在集会上以护士的角度告诉在场的人们，“她所在医院，去年在接种疫苗之前，每五个病人中就有一个新冠患者，今年在她工作的医院来，每个病人都患有新冠，而且大多数都是接种过疫苗的，患者因为微血管凝血，导致雷诺化症候群和慢性肠炎、他们还患有心脏病、中风、心肌炎和所有健康问题、血液问题。不幸的是他们已经签署了接种疫苗自己承担责任，但接种疫苗却是强制的。另一方面，在医院里给患者用的治疗药物对治疗新冠不起任何作用，研究证明瑞德西伟对新冠治疗毫无用处，可医院却一个疗程接着一个疗程的用瑞德西伟治疗，患者慢慢的会出现各种器官衰竭、肾衰竭、肝衰竭，最终死于急性呼吸窘迫综合征、气胸，而所有这些问题都是由这种治疗药物引起的，他们并不是死于新冠。”
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-看完这段视频心中无比的愤怒，黑暗势力的贪婪与邪恶，杀死了无数的善良人。我们不会放弃，向文贵先生经常说的“传播病毒、疫苗真相是我们每个新中国联邦人的责任。”每时每刻我们全球的战友们都将以各种实时播报给世人，用正义用真相与黑暗抗衡。
+**校对/发稿：童谣**
 
-发稿：Hong
+**更多资讯，更多关注**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-2.jpg)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

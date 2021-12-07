@@ -2,23 +2,26 @@
 ---
 
 
-## 澳州NSW州的教师们忍无可忍在州府前罢工示威
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1727995/)
+## 纽约市商业团体抨击对私营企业的疫苗强制令
+` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1728078/)
 
-撰稿：Jenny
-视频来源：澳喜战友录制
-2021年12月7日，周二，悉尼州府门前：一句“我们在书写历史！”的口号，拉开了一场由新南威士州教师工会组织的罢工游行示威。
+加拿大扬帆农场Spirit
+![](https://assets.gnews.org/wp-content/uploads/2021/12/IMG_3318-1.jpg)图片来源：New York Post
+根据《彭博社》12月6 日报道，纽约市合伙人组织的负责人凯瑟琳·怀尔德(Kathryn Wylde) 表示，他们被纽约市长比尔·德布拉西奥的措手不及的疫苗强制令惊到了。怀尔德代表的是一个有影响力的商业团体，摩根大通公司和高盛集团是其成员。
 
-尽管天公不做美，但丝丝细雨没有挡住新洲教师们表达自己诉求的决心，从标语可以看出来，有的教师代表来自离悉尼几小时车程的偏远地区。
+纽约市长周一表示，所有私营部门的雇主必须要求他们的工人在12月27日之前接种疫苗，没有测试选项。这项任务将涵盖大约18.4万家企业。
 
-据SkyNews 报道，这次活动的主要原因是：新州教师指责州政府 “无视自己的建议 “和 “不关心孩子”，他们无视一份报告警告教师人员短缺如此严重，学校 “将在五年内耗尽教师”。毫无疑问“不打疫苗不能继续执教”的要求加剧这种师资紧缺的事态。
+尽管像高盛和摩根士丹利这样的许多大公司已经要求接种疫苗才能在他们的大楼里工作，但怀尔德说，该市强行规定的决定并没有与公司和高管协调，这将在商业界散播不确定性。
 
-新南威尔士州教师联合会主席Angelo Gavrielatos说，数百页的内部文件和教育部和政府的秘密简报揭示了两个月前的问题有多深。他在澳大利亚天空新闻第一版上说：”我们向政府寻求的是根据它自己的建议采取行动，其中一份文件描述，情况严重到’我们将在五年内耗尽教师’，”。他指出，教师队伍老龄化和进入师范教育的人数下降30%是他们周二举行24小时罢工的原因。
+怀尔德在周一的一份声明中说：“联邦、州和市各级的政策不一致使情况更糟，目前还不清楚谁将执行市长的疫苗强制，以及这项命令是否合法。拜登总统对雇员超过100人的雇主的疫苗强制目前因诉讼而搁浅，很难想象市长能做到总统被挑战的事情”。
 
-[部分引用自SKY NEWS](https://www.skynews.com.au/australia-news/nsw-teachers-federation-call-on-premier-dominic-perrottet-to-deal-with-the-crisis-of-poor-pay-conditions-and-staff-shortages/news-story/f2462b1d67cd7c067d36bd2328f3c67a)
+原文链接：
+[https://www.bnnbloomberg.ca/nyc-business-group-blasts-private-sector-vaccine-mandate-1.1691865](https://www.bnnbloomberg.ca/nyc-business-group-blasts-private-sector-vaccine-mandate-1.1691865)
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-2.jpg)
+* * *
+
+发稿Spirit
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
