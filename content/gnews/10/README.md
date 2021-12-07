@@ -2,33 +2,33 @@
 ---
 
 
-## 中共发布《中共国的民主》白皮书，妄图重新定义民主
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1728586/)
+## 蓬佩奥盖特呼吁拜登要站出来反对中共
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1728694/)
 
-作者：日本方舟农场 Andy5
+作者：纽约香草山健身部 – Jack Li文阳
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-中共于12月4日发布《中共国的民主》白皮书，叫嚣自己也是民主。
+12月6日，白宫发言人普萨基在例行记者会上宣布，美国政府将对2022年北京冬奥会和残奥会实行外交抵制。
 
-![拜登全球民主峰会在即北京使出浑身解数对阵军政|军事新闻☀阿波罗新闻网](https://m1.aboluowang.com/uploadfile/2021/1205/20211205104642613.jpg)图片来源：阿波罗
+![](https://assets.gnews.org/wp-content/uploads/2021/12/0.模版images-2.jpg)
 
-中共国新办在发布白皮书之后，举行了新闻发布会，强调坚持中共一党领导，不跟民主冲突。并且通过把民主狭义地定义为中共所谓的全过程民主，并突出这就是中共的内在要求，混淆了民主的概念，将一党独裁美化成民主的一种形式。
+同日，前国务卿蓬佩奥先生就此事在盖特上发文：对北京冬奥会的外交抵制是不够的，中共根本不在乎外交抵制。最终，他们仍然能召开冬奥会，并接待世界各国运动员。拜登需要站出来反对中共。
 
-同时国新办和中共喉舌媒体环球时报还抨击了美国西方的民主，说中共的白皮书打破了美国西方对民主定义的垄断，还特别强调因为西方没有一党独裁所以出现了散乱，并且这最终会导致民主走向它的反面。也就是在暗示中共的独裁才是真民主，美国西方是假民主。
-
-参考链接：
-1）[国新办：在中国搞西方那一套所谓“民主” 很容易搞散、搞乱](https://china.huanqiu.com/article/45qbYgHJMDK)
-2）[社评：中国白皮书打破了美西方对民主定义的垄断](https://mil.news.sina.com.cn/2021-12-04/doc-ikyamrmy6838067.shtml)
+消息链接：[https://gettr.com/post/pix4kr12b2](https://gettr.com/post/pix4kr12b2)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-总编：Ivy001
-编辑/校正/发稿：呼吸的雾霾（文小呼吸）
+**校对/发稿：童谣**
 
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  

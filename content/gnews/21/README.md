@@ -2,34 +2,44 @@
 ---
 
 
-## 美国公共卫生局局长称，接种三剂疫苗室内也要戴口罩
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1728456/)
+## 美防长：中共疑似演练侵台，美将助台保持自卫武力
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1728528/)
 
-翻译：皮特
-编辑：文泓
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2021.12.7-4配图.jpg)图片来源：CNBC
-12月6日，据报道美国公共卫生局局长维韦克·穆尔蒂周日宣布，即使是那些接种了三剂疫苗的人，在圣诞节期间与家人在一起时仍需在室内戴口罩。
+作者：纽约香草山医疗部 – 云豹
 
-穆尔蒂在接受哥伦比亚广播公司新闻采访时说：“如果人们使用适当的防护，在聚会时被感染的几率会很小。”这里他指的防护措施是口罩。
 
-穆尔蒂补充说，这些“工具”包括接种疫苗和接受加强针。当然，如果你符合条件，这有助于提高你的保护水平，在室内公共场所使用口罩，尽量在通风良好的地方聚集。这些都是我们已经了解到的有帮助的工具。最后，记住要（核酸）测试。
 
-他补充说，“我们有数百万人仍然没有接种疫苗，这给他们的生命带来了风险，但也带来了更大的传播风险”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-穆尔蒂继续说：“但是如果你像许多家庭一样，接受疫苗接种加强针。你在聚会前去测试，尽量在通风良好的空间聚会，在室内公共场所尽可能使用口罩，你的风险可以相当低，你的假期可以相当安全。”
 
-穆尔蒂之前发布了一个“工具包”，命令美国人不要分享任何有关新冠病毒的信息，包括备忘录和统计数据，除非它们经过CDC的验证。
 
-新闻链接：[Biden Surgeon General: Even Tripled Vaxxed Still Have To Wear Masks Indoors – NewsWars](https://www.newswars.com/biden-surgeon-general-even-tripled-vaxxed-still-have-to-wear-masks-indoors/)
+当地时间12月4日，美国国防部长奥斯汀在参加里根国防论坛时表示，中共最近在台湾附近进行的军事活动，疑似在对攻台进行预演。他表态，美国将依照一中政策及台湾关系法，继续支持台湾加强自我防卫的能力，以确保有能力来抵抗任何可能危及台湾人民安全的军事武力侵犯。 奥斯汀还表示，印太地区是一个充满机会与挑战的区域，最大的威胁，是正在崛起且不断强化独断专制力量的中共。他接着说，美国在太平洋区域拥有实力及掌控权，对美国来说，中共也不是十尺高的巨人。虽然我们正面对巨大的威胁，但当我们与盟友团结在一起时，我们就会更强大。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.2-3.jpg)
+参考链接：
+[Lloyd Austin says increased China activity near Taiwan ‘looks like rehearsal’](https://www.foxnews.com/politics/lloyd-austin-says-increased-china-activity-near-taiwan-looks-like-rehearsal)
 
-发布：去中心化Math
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+总编/编辑：文特
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

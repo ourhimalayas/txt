@@ -2,30 +2,28 @@
 ---
 
 
-## 首届台斯经济合作咨商会今日在台举行
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1728550/)
+## 纽约加速强推疫苗，小学门口驻扎流动疫苗巴士
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1728676/)
 
-作者：纽约香草山医疗部 – 云豹
+作者：纽约香草山健身部 – Jack Li文阳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+近日，记者在纽约唐人街看到，两辆流动疫苗巴士驻扎在纽约唐人街地标孔子大厦后面的一所小学门口。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-314.png)
 
+疫苗工作人员在小学的门口撑起了帐篷，里面摆放了十数张座椅。布告牌上显示这是纽约疫苗接种点，还有辉瑞和5～11岁的字样。可以看出，这两辆疫苗巴士针对的是这所学校里的小学生。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+![](https://cdn.discordapp.com/attachments/821934164823244803/917582767414456370/2.jpg)
 
+12月6日上午，纽约市长白思豪(Bill de Blasio)宣布扩大现有的疫苗强制授权，将5～11岁的儿童也纳入了接种疫苗的范围。
 
+希望家长能顶住诱惑和压力，拒绝毒针，保护好自己的孩子。
 
-当地时间12月6日下午，斯洛伐克官方代表团成员43人，参加在台湾举办的第一届台斯经济合作咨商会议。斯洛伐克经济部政务次长佳雷克致词时，特别使用中文说出“斯洛伐克支持台湾”，来表达两国间的情谊。
+![](https://cdn.discordapp.com/attachments/821934164823244803/917582554746470420/1.jpg)
+![](https://cdn.discordapp.com/attachments/821934164823244803/917582768135868456/3.jpg)![](https://cdn.discordapp.com/attachments/821934164823244803/917582843335573504/5.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-此次会议斯洛伐克派出政府官员、研究单位、产业及学术界代表共43人与会。 双方将就贸易、技术、教育、旅游等领域研讨深化合作的空间。 希望能通过商业投资论坛、企业间商业洽谈会等方式，来加强双方的经济合作。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-58.jpg)
-台湾目前在斯洛伐克的投资有5亿多欧元，在斯国创造了约3000个就业机会。 台湾企业在今年10月出团考察斯国的投资环境后，表达出在斯洛伐克扩大投资的高度意愿。 预计在此次会议后，双方会签署更多的合作计划。
-
-参考链接：
-[台斯經合諮商會 佳雷克中文致詞：斯洛伐克支持台灣](https://www.cna.com.tw/news/firstnews/202112060167.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
+**校对/发稿：童谣**
 
 **更多资讯，更多关注**
 
@@ -38,13 +36,7 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

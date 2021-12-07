@@ -2,35 +2,33 @@
 ---
 
 
-## 蓬佩奥盖特呼吁拜登要站出来反对中共
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1728694/)
+## 欧盟宣布延长制裁中共国官员
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1728752/)
 
-作者：纽约香草山健身部 – Jack Li文阳
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月6日，白宫发言人普萨基在例行记者会上宣布，美国政府将对2022年北京冬奥会和残奥会实行外交抵制。
+#### 撰稿：日本东京方舟农场  幽蘭自得
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/0.模版images-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/7164E9C4-FB82-4376-A505-26A6E19FE37B.jpeg)包瑞翰 (Reinhard Bütikofer)（图片来自德国之声）
 
-同日，前国务卿蓬佩奥先生就此事在盖特上发文：对北京冬奥会的外交抵制是不够的，中共根本不在乎外交抵制。最终，他们仍然能召开冬奥会，并接待世界各国运动员。拜登需要站出来反对中共。
+12月6日，欧盟宣布延长制裁严重侵犯人权的个人和实体至2022年12月。这些被制裁者中包括中共国侵犯维族人权的官员。
 
-消息链接：[https://gettr.com/post/pix4kr12b2](https://gettr.com/post/pix4kr12b2)
+据《德国之声》报道，欧洲议会外交政策协调员、对中关系代表团主席包瑞翰 （Reinhard Bütikofer）对此表示，就在几天前，中共国领导人还在幻想欧盟会允许2021年3月实施的制裁过期，并向其磕头示好。但布鲁塞尔已经证明，独裁者习近平的团队是错误的。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+包瑞翰还表示，在必要时欧盟仍然准备与中共国进行对话。但即使在那种情况下，欧盟也将划出明确的界限，中共必须适应这一现实。
 
-**校对/发稿：童谣**
+欧盟今年3月制裁了新疆维吾尔自治区公安厅厅长陈明国、党委常委王明山和王君正、前新疆政法委书记朱海仑，以及新疆生产建设兵团公安局。制裁者措施包括冻结资产和旅行禁令。
 
-**更多资讯，更多关注**
+《德新社》当时的报道指出，这是自1989年天安门广场大屠杀以来，欧洲国家针对中共侵犯人权行为所采取的第一个措施。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+*参考链接：[延长制裁中国官员  欧洲议会代表：习近平幻想破灭](https://www.dw.com/zh/%E5%BB%B6%E9%95%BF%E5%88%B6%E8%A3%81%E4%B8%AD%E5%9B%BD%E5%AE%98%E5%91%98-%E6%AC%A7%E6%B4%B2%E8%AE%AE%E4%BC%9A%E4%BB%A3%E8%A1%A8%E4%B9%A0%E8%BF%91%E5%B9%B3%E5%B9%BB%E6%83%B3%E7%A0%B4%E7%81%AD/a-60038313)*
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+* * *
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+*素材采编：幽蘭自得*
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+*编辑：青衣青青*
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*发布：miumiu*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

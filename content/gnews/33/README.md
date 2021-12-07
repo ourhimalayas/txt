@@ -2,25 +2,44 @@
 ---
 
 
-## 纽约市商业团体抨击对私营企业的疫苗强制令
-` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1728078/)
+## 巴西两名婴儿错误接种新冠疫苗后被送院
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1728365/)
 
-加拿大扬帆农场Spirit
-![](https://assets.gnews.org/wp-content/uploads/2021/12/IMG_3318-1.jpg)图片来源：New York Post
-根据《彭博社》12月6 日报道，纽约市合伙人组织的负责人凯瑟琳·怀尔德(Kathryn Wylde) 表示，他们被纽约市长比尔·德布拉西奥的措手不及的疫苗强制令惊到了。怀尔德代表的是一个有影响力的商业团体，摩根大通公司和高盛集团是其成员。
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-纽约市长周一表示，所有私营部门的雇主必须要求他们的工人在12月27日之前接种疫苗，没有测试选项。这项任务将涵盖大约18.4万家企业。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/jcr_content.img_.600.high_.png)
 
-尽管像高盛和摩根士丹利这样的许多大公司已经要求接种疫苗才能在他们的大楼里工作，但怀尔德说，该市强行规定的决定并没有与公司和高管协调，这将在商业界散播不确定性。
 
-怀尔德在周一的一份声明中说：“联邦、州和市各级的政策不一致使情况更糟，目前还不清楚谁将执行市长的疫苗强制，以及这项命令是否合法。拜登总统对雇员超过100人的雇主的疫苗强制目前因诉讼而搁浅，很难想象市长能做到总统被挑战的事情”。
 
-原文链接：
-[https://www.bnnbloomberg.ca/nyc-business-group-blasts-private-sector-vaccine-mandate-1.1691865](https://www.bnnbloomberg.ca/nyc-business-group-blasts-private-sector-vaccine-mandate-1.1691865)
+图片来源:  www.scholastic.com
 
-* * *
 
-发稿Spirit
+#### 编译 ：小红帽
+
+在巴西，一名护士混淆了不同功效的疫苗药瓶，误将辉瑞公司的新冠病毒（Covid-19）疫苗注射给两名婴儿，最后导致婴儿被送进医院。
+
+这一令人震惊的失误首先由媒体报道，并于周日得到巴西圣保罗州索罗卡巴市的地方当局正式确认。
+
+一名两个月大的女孩和一名四个月大的男孩上周三来到该地区的一家医疗机构，注射五价疫苗。该疫苗可保护儿童免受白喉、百日咳、破伤风、乙肝和乙型流感病毒的侵害。
+
+然而，回家后不久，两名婴儿就发开始高烧，呕吐并拒绝喝奶。父母给他们喂药也未能改善他们的病情。
+
+随后，索罗卡巴的卫生部长维尼修斯·罗德里格斯（Vinicius Rodrigues）与这些家庭取得了联系，并告诉他们护士犯了一个错误，这两名婴儿被注射了新冠病毒疫苗。
+
+两名婴儿被安置在当地的Gpaci医院。据报道，他们现在感觉好多了，但在一段时间内无法回家。当地政府联系了辉瑞公司，并被告知在接下来的10至15天内应该对这些孩子进行监测。
+
+负责的护士表示，她混淆了这些小药瓶，因为它们看起来太相似了。该名护士已被停职并等待调查。
+
+**参考新闻：**[Babies hospitalized after getting Covid-19 vaccine — RT World News](https://www.rt.com/news/542288-babies-vaccine-pfizer-brazil/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,25 +2,25 @@
 ---
 
 
-## 台湾官渡医院前院长：疫苗生产商出资故意抹黑伊维菌素
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1728626/)
+## COVID-19 最新情报｜纽约市率先强制私企员工接种疫苗
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1728743/)
 
-By：喜国公民
-视频来自网络
-台湾官渡医院前院长陈昌明最近接受采访说，疫苗生产厂商是故意抹黑伊维菌素做为治疗新冠病毒的有效药物背后的黑手，目的是推广新冠疫苗。
+**撰文｜ 台湾宝岛农场 疫情关注组 / 发布时间｜7/12/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup）](https://gettr.com/user/mightygroup%EF%BC%89)**
 
-陈院长说，政府之所以反对用伊维菌素治疗新冠病毒，是因为怕人们不打疫苗。如果每个星期吃一粒伊维菌素，就不会感染新冠病毒，人们为什么还去打疫苗？
+【美国】因应 Omicron 变种新冠病毒的扩散，纽约市长白思豪（Bill de Blasio）周一（6日）宣布，本月27日起，所有私人企业的员工须证明已接种最少一剂新冠疫苗，并且不能以阴性检测结果代替，成为全美首例，预计届时将最少有18.4万间公司受到影响。
 
-因为人们对疫苗后遗症产生的后果还不清楚。不知道是否三年五年以后疫苗的后遗症才显现出来。
+白思豪强调，圣诞假期将至，加上天气寒冷，有必要加强预防病毒扩散，市政当局会先谘询商界意见，制定详细指引，最快会于下周三（15日）前宣布。
 
-事实上，是疫苗生产厂商出资让医生来进行关于伊维菌素治疗新冠病毒的临床试验，故意说伊维菌素治疗新冠无效，然后将结果发表在著名期刊上面。美国政府就采用这个研究结果，对伊维菌素进行打压。
+目前，美国最少有18个州录得 Omicron 确诊个案，周一起，美国收紧入境规管，要求入境的海外旅客提供出发前24小时的阴性检测证明。
 
-这凸显了疫苗制造商和政府的黑暗。表明有很大的政治力量跟利益集团在勾结。
+不过，全球政府对 Omicron 变体的过分紧张一直受到外界质疑，事源最先发现Omicron 变体病毒的南非，有医院研究过42名最近受感染的患者发现，他们大部分都没有病征，病情亦没有之前感染其他变体病毒的患者严重，当中只有一人需入住深切治疗部，同时大部分患者都是完全疫苗接种者。
 
-尽管伊维菌素受到各国政府的打压，然而，[伊维菌素在过去几个月的销售显着增加](https://www.tga.gov.au/scheduling-decision-final/notice-amendment-current-poisons-standard-under-paragraph-52d2a-therapeutic-goods-act-1989-0)。
+因此，有评论认为，一个较低杀伤力的变体出现本有利于终止此次疫情，而各个政府不合常理的过分紧张，是为了制造恐慌，以促进现有疫苗及早用尽，避免过期而蒙受损失。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-5.jpg)
+来源｜[纽约市长新闻发布会](https://youtu.be/l9-4ZzRxV_8)
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
