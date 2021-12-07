@@ -2,43 +2,29 @@
 ---
 
 
-## 澳洲正在 &#8220;积极考虑 &#8220;抵制冬奥会
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1730645/)
+## 七哥谈亲，善，谜，魅
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1731067/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Boycott.jpeg)图片来源： Change.org
-翻译/编辑：守望黎明
+文编：Hima
+听写：叮叮
+视频：七哥
 
-在美国宣布因中共的侵犯人权的行为，对北京奥运会采取外交抵制后，澳大利亚目前正在 “积极考虑”采取同样的做法。
+人家讲法语和英文。当时她和董事会说，跟郭文贵接触以后的感受，就是他就是要不要投资啊，人家考察我很长时间。结果是四个字，亲，善，谜，魅。这个人是有真正的古典中国文化很懂的人，法国历史很多。亲，善，谜，魅。亲，说这个人跟人特别亲，很亲。没有任何所谓的这种大陆人当时那种傲慢啊什么的，看不出来。说这个人特别的善，善良，然后就讲了一堆。这人是个谜，他无法解释这个人的思想和他的年龄。因为那时候我才一二十岁，你看小伙子，你跟人家这些大佬谈的，不是开玩笑的嘛，是吧。我特为啥我理解年轻人，像正义小Sara这样的小孩，我是在这样过来的。你想表现你没有东西你肚子里，你表现不出来呀，是吧。你像你跟人家正部长，你像人家这个当时的贺老啊，是吧，还有那个当时那叫什么，那个大师叫什么，去见人家都是中国的王岐山的老师那些人，是吧。你脑子没这些东西跟人家交流。包括这些大的什么爱马仕老板啊，什么日本的三菱家族了你，是吧，你没有东西。所以我特别包容，像罗伊，像这个正义小Sara,一定要耐心。像巴黎和大牛，他是在台湾这种社会早熟的人，特别早熟的人，你不能跟Rachel这种老中医来共同比较，所以包容。他觉得我是个谜，就是我无法解释我这个人的思想和行为和过去。魅，他就说这个人对男女，他说，当时就说我是ACDC性格，就既能当插头也能当插座。刚才我看了这个群里边儿瑞安平说我，七哥，雌雄同株。跟当年说的话，真有异曲同工之妙。瑞安平知七哥啊，厉害，老中医也是啊。我现在说你俩在这个办公室看到的那个，一定要看到咱们新中国联邦不是七哥是什么，是新中国联邦展示给战友的是什么。
 
-就业部长斯图尔特·罗伯特(Stuart Robert)12月7日告诉记者：”明确地说，这件事正在积极考虑之中。”
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-美国突然宣布，由于新疆维吾尔族穆斯林正在遭受种族灭绝，美国将不派任何外交或官方代表参加北京冬奥会和残奥会。但美国运动员仍将能够出席参加比赛。
+**关注我们**
 
-白宫新闻秘书珍·普萨基（Jen Psaki）说，这是要向中国发出一个 “明确的信号”。她说：”鉴于中华人民共和国在新疆正在犯下的种族灭绝和反人类罪，拜登政府将不派任何外交或官方代表参加北京2022年冬奥会和残奥会。”
+Discord 账号
 
-自由党参议员埃里克·阿贝茨（Eric Abetz） 呼吁澳大利亚效仿美国的做法。他说：”我们的亲密盟友美国决定在外交上抵制北京冬奥会，这是一个最受欢迎的举措，澳大利亚必须效仿。澳大利亚决不能拖拖拉拉，而是要迅速行动起来，展示我们对维护人权的一贯坚持立场，并在人权受到侵犯时大声疾呼。”
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-体育部长理查德·科尔贝克（Richard Colbeck）在一份声明中说：”澳大利亚是否出席北京冬奥会的决定，还没有作出。”
+Gettr 账号
 
-鉴于对中国网球明星彭帅安全的担忧，世界女子网球协会上周还宣布将暂停该协会在中国举行的所有比赛。
-
-11月2日，彭帅在社交媒体上发布了一条信息，声称中国前副总理对她进行了性侵犯，之后彭帅的安全成为了一个问题。她的帖子在几分钟内被删除，这位网球冠军也不再在公众面前露面。
-
-澳洲总理莫里森12月3日表示，鉴于彭帅事件的事态发展，澳大利亚”正在考虑 “抵制。
-
-一位记者问他：”过去几周一直在讨论中国的体育界以及彭帅和她的安全问题……澳大利亚会加入抵制行动吗？”
-
-莫里森总理回答说：”我们将考虑这个问题。”
-
-原文链接：[Beijing Winter Olympics Stuart Robert Says Australia Boycott Under Active Consideration](https://www.news.com.au/sport/winter-olympics/beijing-winter-olympics-stuart-robert-says-australia-boycott-under-active-consideration/news-story/48bf21761b012ea03b10a139d0656764)
-
-**发布：**Peter Xin
-
-**更多****资讯****，****请关****注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

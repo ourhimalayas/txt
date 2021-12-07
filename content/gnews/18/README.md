@@ -2,48 +2,30 @@
 ---
 
 
-## 美国宣布抵制北京冬奥后尚未有“大国”跟进
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1730713/)
+## 新中国联邦一纸文书，以美国为首的西方世界开启抵制北京冬奥会之路
+` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/1731082/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+新西兰伊甸农场Gnews组 财经G乐部 – 亚伦
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/12/B-2.jpg)justjared.com
-白宫官宣外交抵制北京冬奥会过了24小时【1】，还没有看到“大国”的跟进，难道是笔者有些着急？有一点可以肯定，中共不甘罢休，正在全力以赴，垂死挣扎，试图找到某个突破口。
 
-看看英、法、加的反应。
 
-路透社伦敦12月7日电 英国首相鲍里斯·约翰逊（Boris Johnson）的发言人周二（12月7日）表示，在美国宣布抵制北京冬奥会后，英国尚未就政府代表是否参加北京冬奥会做出决定。
+美国白宫于12月6日星期一正式宣布，由于中共对人权的侵犯和在新疆种族灭绝的行为，美国政府将外交抵制明年在北京举行的冬季奥运与残奥运，而国际奥委会表示”尊重美国的决定”。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/ezgif.com-gif-maker.jpg)图片来源REUTERS – THOMAS PETER
 
-他对记者说：“英国政府（HMG，Her Majesty’s Government）出席北京奥运会的决定尚未作出，我们将在适当时候阐明我们的立场。”【2】
 
-路透社巴黎12月7日电 法国总统周二（12月7日）表示，法国注意到美国宣布以外交手段抵制2022年北京冬奥会，并表示将在欧洲层面就此问题作出协调反应。
+郭文贵先生也在第二天的Gettr视频上与以回应，很巧合，在中共突击盘古把自己中风的92岁父亲和上千号员工赶到零下4度的北京大街上的几个小时内，美国总统拜登经受住中共的一再威胁、一再的出高价收买的情况下，正式官方宣布美国外交抵制北京举办的冬季奥运会。只要美国官方不参加奥运会，奥运会就不能代表世界，结果是滑稽的成为中国政府自娱自乐的游戏。
 
-声明说：“我们注意到美国人的决定，当我们对人权感到担忧时，我们会对中共人说，我们去年3月对新疆采取了制裁，我们将在欧洲层面进行协调。”【3】
+不仅美国一个国家官方外交抵制，据郭文贵先生所知，欧洲很多国家、加拿大和日本也会做出同样的选择，都会坚定地进行官方抵制。然而，世界上最早、也只有一个人这么说过这样的话，即郭文贵先生。
 
-MSN发表文章，报道了加拿大的态度，“美国将对北京奥运会进行‘外交抵制’，加拿大也在考虑类似的问题”。文章说，同一天（12月6日）晚些时候，当被问及加拿大是否会效仿时，特鲁多（Trudeau）含糊其辞，但他明确表示，他也将寻找一种方式来谴责中共国，而不迫使加拿大运动员牺牲期待已久的获得奥运奖牌的机会。
+早在今年的8月5日，郭文贵先生代表新中国联邦 (NFSC) 数以百万计的公民签署了第一封官方文件，坚决谴责中国共产党（CCP），并要求国际奥委会取消在中国北京举行的 2022 年冬季奥运会。如今世界头号大国的美国总统正式官宣外交抵制，是对新中国联邦致函的一种肯定，抵制冬奥会、消灭中共已经成为世界绝大数国家维护正义秩序的必须。
 
-加拿大体育部长帕斯卡尔圣·翁（Pascale St Onge）周一（12月6日）面对提问也做了同样的回答。
+如此看来，习想武统台湾，花重金营造冬奥会的万国来朝，成就千古一帝的梦想破灭了，而且一切只会让北京更加颜面尽失。
 
-“到目前为止，还没有做出决定。” “当然，我们非常关注中共国的侵犯人权行为，我们不会轻易作出决定，一旦作出决定，我们将立即与你们沟通。” 【4】
+况且，西方宗教人士已经定义这场毒疫苗的行动是全球共产主义妄图统治全人类而发动的生物大战，而中共是世界共产主义的最高代表。如此看来，一切都在朝着灭共的路上前进。
 
-无独有偶，疑似通共、肯定亲共的加拿大驻华大使多米尼克·巴顿（Dominic Barton）昨晚（12月6日）辞职【5】，相信与中共的奥运博弈有关。
+\*这是对北京冬奥会的外交抵制，参加运动会的美国运动员将不受影响。
 
-认识中共的邪恶需要有个过程，响应美国的抵制同样也不会是一帆风顺，尤其是被中共握住把柄的要员，此时不为主子拼死一搏，主子会很生气，后果会很严重；再者通过这事，又可以增加个与中共勾兑的砝码。
-
-笔者相信，但正义的力量肯定会占上风，西方主要国家肯定会进行抵制，邪共你就别妄想了！刚才文贵先生盖特视频里已经透露了相关信息，西方各国都会跟上美国的步伐。
-
-有关链接：
-
-【1】[https://gnews.org/zh-hans/1727819/](https://gnews.org/zh-hans/1727819/)
-
-【2】[https://www.reuters.com/lifestyle/sports/no-decision-yet-beijing-olympics-says-uk-pms-spokesman-2021-12-07/](https://www.reuters.com/lifestyle/sports/no-decision-yet-beijing-olympics-says-uk-pms-spokesman-2021-12-07/)
-
-【3】[https://www.reuters.com/lifestyle/sports/france-says-there-will-be-coordination-eu-level-beijing-olympics-2021-12-07/](https://www.reuters.com/lifestyle/sports/france-says-there-will-be-coordination-eu-level-beijing-olympics-2021-12-07/)
-
-【4】[https://www.msn.com/en-ca/news/canada/u-s-to-mount-diplomatic-boycott-of-beijing-olympics-canada-contemplates-similar/ar-AARx1a5?ocid=msedgntp](https://www.msn.com/en-ca/news/canada/u-s-to-mount-diplomatic-boycott-of-beijing-olympics-canada-contemplates-similar/ar-AARx1a5?ocid=msedgntp)
-
-【5】[https://www.msn.com/en-ca/news/other/canada-s-ambassador-to-china-steps-down-as-ottawa-faces-pressure-from-biden-administration/ar-AARxbrb?ocid=msedgntp](https://www.msn.com/en-ca/news/other/canada-s-ambassador-to-china-steps-down-as-ottawa-faces-pressure-from-biden-administration/ar-AARxbrb?ocid=msedgntp)
+郭文贵先生代表新中国联邦签署的第一封官方文件有关要求取消北京冬奥会的Gettr链接：[https://gettr.com/post/p6ra53](https://gettr.com/post/p6ra53)
 
  
 

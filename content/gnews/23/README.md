@@ -2,32 +2,51 @@
 ---
 
 
-## 白宫正式宣布外交抵制北京冬奥会
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1730569/)
+## 越南120名青少年接种辉瑞疫苗后住院，3人死亡
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1731049/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月6日，白宫发言人普萨基在例行记者会上公布，鉴于中共在新疆正在进行的种族灭绝，反人类，以及其他侵犯人权的行为，拜登政府将不派任何外交或官方代表，参加北京2022年冬季奥运会和残奥会。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/9-6.jpg)
-普萨基说，拜登政府已将该决定告知美国盟友，各国将做出自己的决定。政府不会通过禁止美国运动员参赛来 “惩罚 “他们。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/120702.jpg)图片：来自
+越南清化省暂停了一批辉瑞生物技术公司的新冠疫苗，因为有120多名青少年在接种疫苗后被送往医院。根据该省疾病控制中心的数据显示，这些青少年因出现恶心、高烧到呼吸困难等症状而住院，其中17名儿童出现了严重的反应。
 
-拜登这一决策与上周媒体的预测相吻合。此前，因中共国在新疆、西藏、香港犯下严重侵犯人权的罪行，并计划武力侵犯台湾，一些鹰派共和党议员一直向拜登政府施压。随后，彭帅事件在体育界掀起抵制声浪。白宫外交抵制冬奥会政策终于落地。民主党众议员蒂姆·瑞安评论说，“抵制力度不够”。
+疾病预防控制中心主任Luong Ngoc Truong表示，尽管该省停止使用目前这批疫苗，“我们还有其他批次的疫苗，也是辉瑞公司的疫苗，所以我们将继续为儿童接种疫苗”。Truong补充说，暂停使用的这批疫苗已被储存起来，以后可以用于其他群体，如成人。
 
-参考链接：[White House announces diplomatic boycott of Beijing Winter Olympics over human rights concerns](https://www.nbcnews.com/politics/white-house/white-house-announces-diplomatic-boycott-beijing-winter-olympics-over-human-n1285419?cid=sm_npd_nn_tw_nw)
+上周，清化市金越制鞋厂的四名工人在接种了世界卫生组织5月批准用于应急的国药集团新冠疫苗后死亡——也是由于“（对疫苗）过度反应”所致。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+越南于11月30日推出了针对15至17岁儿童的新冠疫苗接种计划，并使用辉瑞公司的疫苗。自那时起，有三名儿童在接种第一针后死亡。死亡原因是“对疫苗的过度反应”。
 
-总编：Ivy001
-编辑：Kathy文艺
-校正/发稿：Fei797
+在越南报告的三起死亡事件中，包括南部平福省的一名12岁男孩，他在注射第一针辉瑞疫苗后一天死亡。这名男孩周一下午接种了疫苗，并被送回家休息。晚餐后，他出现了头晕、腹痛和腹泻。他被送往当地医院，然后转到另外两家医院，但在周二上午死亡。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+北部北江省的一名16岁男孩，以及河内的一名九年级女孩，都是在接受辉瑞公司的新冠疫苗后于周日死亡。卫生部说，这两起死亡事件是由“对疫苗的过度反应”引起的，而不是由疫苗的质量或接种过程引起的。
+
+根据美国疫苗不良事件报告系统的最新数据，在12至17岁的青少年中，辉瑞公司的新冠疫苗后有18558起不良事件报告。
+
+新闻链接：[120 Teens Hospitalized, 3 Dead Following Pfizer Vaccine Rollout for 15- to 17-Year-Olds in Vietnam](https://childrenshealthdefense.org/defender/teens-hospitalized-dead-pfizer-vaccine-vietnam/)
+
+**简评：**
+
+结合相关报道，越南新冠疫苗至今完整接种率约52.3%。随着一些省份11月底开始为15至17岁青少年施打辉瑞生产的新冠疫苗，120名青少年接种后出现恶心、高烧及呼吸困难等症状入院治疗，更有3名儿童死于疫苗。而其疾病预防控制中心却没有质疑和阻止对青少年注射新冠疫苗，甚至只是暂时储存起来，还计划将其用于成人。
+
+让我们不禁问道，是什么样的邪恶力量导致各国政府不顾本国民众安全，强行推广疫苗，甚至继续给儿童及青少年施打疫苗？ 这也从另一方面证明了全世界正义力量停止疫苗的迫切性。疫苗带来的负面影响及危害，已经严重影响到世界的每个角落和群体。所谓的“少数对疫苗的过度反应”发生在每个人和每个家庭身上，都是无法挽回的损失。如果不及时停止，我们很难想象如何面对疫苗的灾难导致的人类灭绝。
+
+
+
+*翻译/简评: Ying2064*
+
+*校对: clau*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,29 +2,25 @@
 ---
 
 
-## 七哥金句（一）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1730860/)
+## 【粤语配音】2021年12月5日文贵直播：新中国联邦的“太空币”和它的技术含量
+` MOS香港部` [轉載自GNews](https://gnews.org/zh-hans/1731222/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+紐約香草山-香港部
 
-战友们，只有什么样的力量能够让对方像黑洞一样的吸引过来，那就是不可抗拒的，不对称的魅力和能力，和能满足对方所有的需要的倍数，你才能达到这个。
+我今天告诉大家，你等看到咱们新中国联邦出来的东西，我们会让你看到纯金的金币，这个金币最大额可能是100万美元，从100美金到100万美元，它有绝对的加密技术，这个加密到什么程度，是百分之一万的给你承担责任，没有任何可以破解。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+怎么交给你呢？通过你的生理识别加技术识别，你就可以拿到100万美元，那100万美元你说我拿的时候我想换现金，有专门的第三方H-Bank专门给你兑现，你要什么货币都给你，那我不要钱我想提黄金，让你提到世界上最安全最保障的认可的黄金 ，你可以提走，这就是咱们未来的喜联储。
 
-**关注我们**
+绝对天下无敌了，这个技术的最重要是什么？就是电的能源，只要你怎么能解决电的问题
+你怎么觉得这个金币里边有电的问题，和金币怎么来确认我的生理密码，确认到你那儿去
+你拿着你可以到处提现去，我们这叫什么 这叫太空币，完全是地球之外操作的，没有任何人…而且是合理合法，这种技术的核心最重要就是它的芯片，这个芯片要被谁掌握了
+那就是他可以控制你。
 
-Discord 账号
+这个芯片IBM的RAM没有任何人可以掌握，而且这个芯片未来是跟我们的格芯一起生产
+是吧，是大家更懂，是吧，从芯片的生产到芯片的合成，到芯片的保密到外太空的交易系统
+地球人就没人管得了，而且你想关键问题，数字货币最大的问题，支付、兑现、安全、保密、天下无敌，那些去中心化的币都去死了吧，没有任何人使用的。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+我们这叫中心化的币和去中心化的交易系统，和去中心化的技术天下无敌，这就是技术的核心的核心。
 
  
 

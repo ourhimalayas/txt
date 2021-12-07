@@ -2,31 +2,32 @@
 ---
 
 
-## 拜登敲定对北京冬奥会的外交抵制措施
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1730926/)
+## 七哥谈喜联储银行
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1731276/)
 
-编译：喜妹
+文编：Hima
+听写：叮叮
+视频：七哥
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yH5BAEAAAAALAAAAAABAAEAAAIBRAA7.png)图片来源： REUTERS/Jonathan Ernst
+我们某国的独立银行，那个数字银行牌照已经是买完了，也是100%。那是会进入咱们的喜联储银行，也是喜联储的银行，咱们不会有一家银行，我告诉大家咱最起码有五到十家的银行。这五到十家的银行，刚才你问的问题，五到十家的银行你知道啥概念吗？我们才能达到走出地球的级别。
+我昨天给团队秘密开会的时候，我讲了一个Shadow，Shadow，影子，Shadow 我们一切的就让它记住，共产党要打我们的时候永远打的是我们的影子，永远找不着真人，永远让它找不着，这就是七哥的战略，一定记住，一定要记住这个词，所以我们要五到十家。
+而且你们要抵押贷款缺钱，这五到十家都是互相的，就是娜娜酱去找文疯而动借钱，文疯而动去找如水借钱，如水找青藤，最后找完以后，大家互相借钱，反正大家都可以用。这就是我们把花钱更容易，借钱更简单，这就是我们要做的整个系统，希望你们能听明白，我只能说到这儿。
 
-美国政府计划在本周宣布，美国高级官员将不参加明年2月在北京举行的冬奥会，这种外交抵制原则上不会涉及体育领域的变化，但却是1980年以来前所未有的。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-在当初，随着吉米-卡特入主白宫，美国在政治上与莫斯科奥运会脱离了关系。据美国有线电视新闻网（CNN）援引消息人士的话说，现在，华盛顿想通过拒绝派任何政治代表参加下一届体育赛事来显示其对中共国政策的拒绝。
+**关注我们**
 
-美国总统拜登本人在11月承认，在包括众议院议长、民主党人南希-佩洛西在内的各主要政党声音的呼吁下，外交抵制已经摆在桌面上。
+Discord 账号
 
-近年来，美国和中共国之间的紧张关系一直存在，事实上，拜登没有邀请这个亚洲巨人参加他在本周组织的民主峰会。美国主要的指责之一是与新疆维吾尔人的遭遇有关，尽管它也批评了香港对异议人士的压制。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-中共国的官方媒体在最近几周呼应了来自美国以及英国等其他国家的抵制威胁，在11月底，《环球时报》明确表示，北京不会邀请那些提出抵制的领导人，甚至提出与奥运会有关的外交报复。
+Gettr 账号
 
-**参考资料：**[europapress.es][Biden ultima el boicot diplomático de los Juegos Olímpicos de invierno en Pekín](https://www.europapress.es/internacional/noticia-biden-ultima-boicot-diplomatico-juegos-olimpicos-invierno-pekin-20211206031345.html)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
-* * *
-
-*审核：Aries的星
-校对：阿伯塔*
-*发布：信心的选择*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH..jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

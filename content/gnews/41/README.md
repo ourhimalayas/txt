@@ -2,79 +2,143 @@
 ---
 
 
-## 最新｜秘翻简讯: 美医生警告将有大量孩子死亡 中国电信将退出美市场
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1729327/)
+## 最新｜社媒消息：辉瑞的董事长兼首席执行官艾伯乐 (Albert Bourla)是个恐怖分子
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1729670/)
 
 **By:[秘翻新闻](https://gtv.org/broadcast/watch/61af21e8bbd75f62e53191ca)**
 
-*[2021-12-7](https://gtv.org/broadcast/watch/61af21e8bbd75f62e53191ca)*
-【[**秘翻新闻**](https://gtv.org/broadcast/watch/61af21e8bbd75f62e53191ca)】
-**1.美国国务卿布林肯与乌克兰总统通话**
+**[2021-12-7](https://gtv.org/broadcast/watch/61af21e8bbd75f62e53191ca)**
 
-12月7日视频消息显示，俄罗斯第24机动部队正向乌克兰移动。据悉，该部队可迅速完成S-350的部署、发射和快速转移。可发射9M96中程和9M100近程两型飞弹，打击目标包括弹道飞弹、巡航飞弹、战斗机、无人机和战略轰炸机等。
+**1.蓬佩奥12月7日发推说：**
 
-[《路透社》](https://www.reuters.com/world/europe/uss-blinken-spoke-with-ukraines-zelenskiy-monday-2021-12-06/)6日消息，周一，美国国务卿安东尼·布林肯与乌克兰总统沃洛德米尔·泽伦斯基通话。
+仅外交抵制北京冬奥会是不够的。中共根本不在乎外交抵制，因为世界各国运动员仍会前往北京参赛，他们面临巨大风险。乔·拜登需要站出来反对中共。
 
-在此之后，拜登将在12月7日与普京进行视频通话，预计拜登将在通话中警告俄罗斯，如果俄罗斯继续入侵乌克兰，将会产生严重的经济后果。美国国务院发言人内德·普莱斯表示，美国仍然致力于北约的门户开放政策，北约联盟应该随时准备迎接乌克兰加入欧盟和北约。
 
-**2.城管当街明抢 老人痛苦伏地**
 
-据网友视频消息，12月6日，江苏南通市叠石桥市场，一群城管抢夺一位农民老伯的甘蔗后，扬长而去，留下老人在背后悲伤哀嚎。
+> A diplomatic boycott of the [#Olympics](https://twitter.com/hashtag/Olympics?src=hash&amp;ref_src=twsrc%5Etfw) is not enough. The CCP doesn’t give a rip about a diplomatic boycott, because at the end of the day, they are still hosting the world’s athletes. Joe Biden needs to stand up to the CCP. [#BoycottBeijingOlympics](https://twitter.com/hashtag/BoycottBeijingOlympics?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Mike Pompeo (@mikepompeo) [December 6, 2021](https://twitter.com/mikepompeo/status/1467931700818755585?ref_src=twsrc%5Etfw)
 
-视频中可以看到一推着自行车的老伯，佝偻着身躯叫卖甘蔗，有七八个城管将他团团包围，并从自行车框中抽走了老伯全部的甘蔗，尽管老伯不断求饶，请城管不要拿走自己赖以维生的甘蔗，但城管们无动于衷，自顾自的将框中的甘蔗一扫而空。老人家在原地倒地哭泣。围观市民也是一脸无奈！
 
-贩卖自己双手劳苦所得也是违法吗？城管可以任意夺走吗？这位老伯已到了安享晚年的年龄，如果他有稳定的收入、养老金，怎么会冒着寒冬上街叫卖呢？
 
-这样的事在中共政权下屡见不鲜，但老人的遭遇实在令人心疼不已。这是一个什么样的政权，盘剥欺压人民，如果让这样的政权继续存在下去，这片土地的子子孙孙将永远是被欺压和盘剥的奴隶。
+**2.皮特纳瓦罗12月7日发推说：**
 
-**3.民主大会无中共席位 官媒呛美假民主评论区翻车**
+辉瑞这个奸商正通过新冠疫苗大发横财，疫苗应该是非盈利的。辉瑞的董事长兼首席执行官艾伯乐 (Albert Bourla)是个恐怖分子，因为他的公司正在操纵和掩盖疫苗数据。辉瑞通过推广加强针疫苗为其股东派发年金。
 
-据网友图片消息，12月5日人民日报微博发文忽悠百姓说，外交部网站发布的《美国民主情况》报告指出美国民主制度弊端多、乱象丛生以及对外输出民主的危害。
 
-此篇微博发布后评论区反映强烈，网民表示，“谁选过人大代表？投过票？”“我这连“群众演员”都不是。”，更有民众直接表示，“中共国富人，当官的，看他们子女都去哪，还有985•211本科毕业相当大比例都去哪，就很清楚，事实胜于雄辩！！”
 
-4.**上海一男子持刀砍人致9伤  含2名民警**
+> [@Pfizer](https://twitter.com/pfizer?ref_src=twsrc%5Etfw) = profiteer. Vaccines should be non-profit. [@albertbourla](https://twitter.com/AlbertBourla?ref_src=twsrc%5Etfw) of Pfizer is real domestic terrorist with company that rigs/hides data. Wants booster annuity for shareholders. For details, read In Trump Time on Amazon: [https://t.co/KPNUX2SBsy](https://t.co/KPNUX2SBsy)[https://t.co/BfAFJNV26g](https://t.co/BfAFJNV26g)
+> — Peter Navarro (@RealPNavarro) [December 6, 2021](https://twitter.com/RealPNavarro/status/1467899323933507586?ref_src=twsrc%5Etfw)
 
-据网友视频消息，12月6日14时33分，上海市浦东新区博山路近崮山路，一男子持刀随机砍人。据悉，有7位市民被砍伤，在浦东分局警察到达现场后，又有2位民警被砍伤。随后，行凶男子被警察制服，伤者已被送往医院救治，据悉，该行凶男子系外地人员，是在册精神病人，于近日来到上海。目前，砍人原因不详。
 
-**5.吴亦凡亿万资产遭冻结 不动产查封期限为三年**
 
-据“天眼查”App消息，曾与吴亦凡合作过的“东家华帝股份有限公司”，日前向法院申请将吴亦凡旗下公司价值1,775万元的财产采取保全措施。保全期限分别为：冻结银行存款及其它资金的期限为一年；查封、扣押动产的期为两年；查封不动产、冻结其它财产权的期限为三年。
+**3.娜塔莉温特斯12月7日发推说：**
 
-而涉及被采取保全措施的两间公司分别是：“蒙古凡世影视传媒有限公司”、“内蒙古潮廷文化传媒有限责任公司”。前者的大股东是吴亦凡的表哥吴林，后者是吴林为法人的“北京凡世”的全资子公司的兄弟公司。文件显示，法院认为，为防止吴亦凡因转移财产而导致未来的判决难以履行，核准“华帝股份有限公司”的申请。
+辉瑞公司董事会的新成员苏·德斯蒙德-赫尔曼（Sue Desmond-Hellmann）在2013年3月被脸书任命为董事会成员，并在2015年6月至2019年10月30日期间担任脸书的首席独立董事。
 
-吴亦凡11月6日在北京朝阳拘留所度过了31岁生日。12月6日晚，有陆媒爆料，吴亦凡涉嫌强奸将于7日首次开庭。
+【推文转《国家脉动》报道，在赫尔曼担任辉瑞的董事会成员期间，脸书发起了审查新冠疫苗怀疑者的活动，脸书泄露的内部文件显示，其算法旨在“大幅减少用户接触到对疫苗有怀疑的评论的概率”，以扫清人们的疫苗接种障碍。潜在的另一个利益冲突是，赫尔曼还在拜登总统的科技顾问委员会任职，该委员会被白宫描述为“负责向总统提出科学、技术和创新政策建议的唯一外部顾问机构”。】
 
-**6.香港隔离酒店两人未出房间 仍感染Omicron**
 
-香港大学的一份研究指出，香港一家隔离酒店的两名完全接种旅行人士感染了中共病毒变种Omicron。但闭路电视摄像镜头显示，感染Omicron的两位人士都没有离开自己的房间，也没有任何接触。因此，病毒最有可能是在当两人打开房门接收食物或进行COVID测试时通过空气传播。这项研究于周五（12月6日）在《新发传染病》（Emerging Infectious Diseases）杂志上发表。
 
-**7.缺口扩大 粮食进口增23% 香烟平均涨价43元**
+> 🚨🚨🚨
+> 
+> REVEALED: New Pfizer Board Member Is Ex-Facebook Director. [https://t.co/d4EdQMr2Cw](https://t.co/d4EdQMr2Cw)
+> — Natalie Winters (@nataliegwinters) [December 6, 2021](https://twitter.com/nataliegwinters/status/1467972405301850115?ref_src=twsrc%5Etfw)
 
-据网友图片消息，12月5日，中共国控烟学术研讨会上专家表示，为落实控烟举措，应加强征税，卷烟平均价格需比2020年增加43元，达到每包59元。
 
-12月6日，中共国家统计局公布数据显示，今年全国粮食总产量达到68,285万吨，比上年增加2%。党媒宣称“今年粮食产量再创新高”云云。但中共国粮食进口连续两年暴增，今年前十个月比去年同期增加23%。进口最多的依次是大豆、玉米、小麦。其中玉米进口量升幅最大，为236.4%；其次为稻谷和大米，升幅为111.9%。
 
-国内媒报导，自2015年以来，中国粮食进口量每年都保持在1亿吨以上。不过，单是今年1-8月的粮食进口量，就已超过2019年全年进口量。近两年来，中共当局已将“粮食安全”提升到“政治高度”，还启动所谓“光盘行动”，下令制止“餐饮浪费行为”。
+**4.《网关专家》12月6日在盖特发文：**
 
-**8.中国电信2022年1月3日后将退出美国市场！**
+mRNA 疫苗的发明者罗伯特·马龙博士指责福奇和其他人通过阻止使用羟氯喹以及伊维菌素来给中共病毒患者进行治疗，导致50多万名美国人死亡。
 
-2021年12月4日起，中国电信美洲公司将暂停所有客户续订移动服务，直至另行通知。 CTA 在 2022年1月3日之后将不会向客户提供移动服务。
+有充分证据表明，福奇和美国顶级医生共谋取消硫酸羟氯喹作为中共病毒的治疗方案，并用伪造的研究结果对其进行污蔑和诽谤，数百万人因此不幸逝世。
 
-**9.美100%接种率游轮爆发疫情 美医生警告将有大量孩子死亡**
+【盖文转报道，参议员罗恩·约翰逊 (Ron Johnson) 抨击了福奇失败的防疫对策，指责他无视并破坏了使用廉价的和有效的仿制药用于中共病毒的早期治疗，反而选择了一种并不安全或有效的疫苗。现在已经有67项对照研究显示，67%的新冠患者在服用伊维菌素后病情得到改善。有298项研究显示，硫酸羟氯喹可以改善64%的新冠患者病情。】
+[![](https://assets.gnews.org/wp-content/uploads/2021/12/IMAGE-2021-12-07-211202.jpg)](https://gettr.com/post/pivpau362e)
+**5.新唐人12月6日在盖特发文：**
 
-[《零对冲》](https://www.zerohedge.com/covid-19/covid-outbreak-us-cruise-ship-despite-fully-vaxxed-passengers)12月6日报道 ，挪威邮轮控股有限公司旗下，载有3000多名乘客的“挪威分离号”，在穿越墨西哥湾和加勒比海返航时，爆发中共病毒疫情。据悉，该邮轮于11月28日，从新奥尔良港出发，驶往伯利兹、洪都拉斯和墨西哥，周日凌晨在新奥尔良停靠。虽然船上中共病毒疫苗接种率为100%，但在返回新奥尔良母港之前，发现10例感染病例，现所有乘客和船员在下船前都要接受中共病毒检测。
+上周末，澳大利亚维多利亚州数千公民连续第五个周六走上墨尔本的街头，抗议疫苗强制令和极具争议的法案–《2021年公共卫生和福利修正案，大流行管理法》。该法案将于12月16日生效，将赋予维多利亚州政府宣布大流行病和发布公共卫生命令的最终权力，并威胁要对违反命令的行为处以高额罚款。人们高举“废除草案”的横幅，该法案现已通过，正等待皇室批准。澳州自由党议员克雷格·凯利 (Craig Kelly)在抗议集会上说：“如果没有政府颁发的许可证，你就无法从事许多行业的工作。这是不民主的、不道德的，是对我们人权的侵犯，我们不应该容忍它。”
+[![](https://assets.gnews.org/wp-content/uploads/2021/12/IMAGE-2021-12-07-211505.jpg)](https://gettr.com/post/piufvyca01)
+**6.新唐人12月6日在盖特发文：**
 
-据12月7日《真相卫报》报道，雪莉·坦彭尼博士在过去的两年里，由于反对防疫大封锁和中共疫苗，受到审查和压迫。近日她在视频中坦言，现在，有许多一二年级的学生和初中的孩子们突然死亡，人们应该为未来最坏的情况做好打算，应该反省过去一年中，孩子们在社会上的经历。他们被冰淇淋引诱，接种疫苗。现在孩子的家长和孩子都开始担心，是否会在未来面临生离死别。
+美国太空军副司令大卫·汤普森（David Thompson）12月4日在一个论坛上警告说：“中共正以两倍于我们的速度建设、部署和更新其太空能力。这意味着，很快，如果我们不开始加速我们的开发和交付能力，到 2030 年，中共在太空能力方面可能会超过美国。美国现在在许多太空领域正与中共进行战略竞争，但我毫不怀疑，我们完全有能力在这场竞争中获胜。”
+[![](https://assets.gnews.org/wp-content/uploads/2021/12/IMAGE-2021-12-07-211811.jpg)](https://gettr.com/post/pivpjl4d26)
+**7.Newsmax 12月6日发推说：**
 
-(完结)
+中共外交部发言人赵立坚12月6日威胁说，如果美国继续外交抵制明年2月举行的北京冬奥会，中共将采取措施进行“坚决反制”，但没有详细说明中共将如何报复。尽管美国总统拜登已正式宣布不派官方代表团参加北京冬季奥运会，但美国运动员仍将参加比赛。派遣高级别代表团参加每届奥运会一直是美国和其他主要国家的传统，目前还不清楚美国可能会派谁去北京参加奥运会。澳大利亚与中共的关系因一系列争端而恶化，它也提出了进行外交抵制的可能性。
 
-*发布:星星*
+
+
+> China on Monday threatened to take “firm countermeasures” if the U.S. proceeds with a diplomatic boycott of February’s Beijing Winter Olympic Games. [https://t.co/fZAHan65lZ](https://t.co/fZAHan65lZ)
+> — Newsmax (@newsmax) [December 6, 2021](https://twitter.com/newsmax/status/1467843939143061505?ref_src=twsrc%5Etfw)
+
+
+
+**8.罗伯特马龙12月6日发推说：**
+
+美国第六巡回上诉法院在12月3日的裁决中，驳回了拜登政府将职业安全与健康管理局的新冠疫苗或测试要求的诉讼转移到其他法院的动议，同时也拒绝了白宫解除暂停疫苗强制令的提议，这对拜登当局的疫苗强制令造成了打击。
+
+
+
+> "The 6th Circuit Court denied the gov’s motion to transfer the OSHA vaccine-or-test req. lawsuit to a different court, while also rejecting the WH’s bid to dissolve a stay on the mandate, delivering a blow to the Biden admin’s efforts with implementation[https://t.co/DJ89WBNEPz](https://t.co/DJ89WBNEPz)
+> — Robert W Malone, MD (@RWMaloneMD) [December 5, 2021](https://twitter.com/RWMaloneMD/status/1467542141677285392?ref_src=twsrc%5Etfw)
+
+
+
+**9.真正美国之声12月7日发推说：**
+
+美国食品药品监督管理局FDA警告说，100多种药品正面临供应链短缺。
+
+【推文转报道，目前被FDA列入“短缺名单”的药物包括抗抑郁药、抗生素、心脏治疗药、抗癌药和止痛药。FDA在一份声明中写道：“FDA药物评估和研究中心的工作人员已经要求制造商评估他们的整个供应链，包括活性药物成分、成品剂量形式和任何可能因新冠疫情爆发而在供应链的任何区域受到影响的部分。”由FDA监管的产品占美国进口的14%，出口的15%。该机构还报告说：“大约80%的活性药物成分制造商位于美国之外。“全国社区药剂师协会11月的民意调查显示，60%的药店面临供应链中断的情况，更严重的问题是，68%的药店表示他们正面临人员短缺。】
+
+
+
+> More than 100 pharmaceutical drugs are facing supply chain shortages, the U.S. Food and Drug Administration warned.[https://t.co/tIosuUobKL](https://t.co/tIosuUobKL)
+> — Real America's Voice (RAV) (@RealAmVoice) [December 7, 2021](https://twitter.com/RealAmVoice/status/1468008604632596480?ref_src=twsrc%5Etfw)
+
+
+
+**10.Disclose.tv 12月7日发推说：**
+
+德国150家大企业纷纷将其品牌宣传语改为忽悠大家接种新冠疫苗，以配合德国政府有史以来规模最大的“疫苗接种宣传活动”。
+
+
+
+> JUST IN – 150 big corporations change brand claims in Germany for the largest "vaccination promotion campaign" ever. [pic.twitter.com/A4gJ8Qv97B](https://t.co/A4gJ8Qv97B)
+> — Disclose.tv (@disclosetv) [December 6, 2021](https://twitter.com/disclosetv/status/1467894541906817028?ref_src=twsrc%5Etfw)
+
+
+
+**11.Disclose.tv 12月7日发推说：**
+
+据《日经亚洲》报道，日本将对稳定币实行新限制，将限制由储备资产，比如如美元或日元支持的加密货币发行数量，比如泰达币 (Tether)。日本金融厅寻求在2022年提出立法，限制向银行和电汇公司发行稳定币。
+
+
+
+> JUST IN – Japan to restrict crypto stablecoins: Only banks, wire transfer companies to issue currency-backed coins such as [#Tether](https://twitter.com/hashtag/Tether?src=hash&amp;ref_src=twsrc%5Etfw) in proposed legislation (Nikkei)
+> — Disclose.tv (@disclosetv) [December 6, 2021](https://twitter.com/disclosetv/status/1467927237613785090?ref_src=twsrc%5Etfw)
+
+
+
+**12. 杰森米勒12月7日在盖特发文：**
+
+盖特网页版新增了“夜间”模式！感谢盖特的工程师团队！
+[![](https://assets.gnews.org/wp-content/uploads/2021/12/IMAGE-2021-12-07-213334.jpg)](https://gettr.com/post/piv6u3802f)
+**13.秘密翻译组12月6日在盖特发文：**
+
+泽伦科医生12月1日在接受Infowars采访时说：“真正的病毒是长期灌输进人们脑子里的恐惧言论，推动疫苗势力借此维持群体在精神上的病态。我们知道焦虑和人类群体的相互隔离导致心理代偿失调，而当人们处于那种脆弱的心理状态时，就可以被操纵和强迫，变得容易上当，去做有权势的人让你做的事情。在这种特殊情况下，人们就回去接种有毒并且致命的毒疫苗，从而患上血栓、心脏病、中风、心肌炎等症状，流产率从10%上升到82%，癌症、自身性免疫疾病增多，卵巢睾丸出现功能障碍，很有可能导致不育。但是所有这些与抗体依赖性增强导致群体灭绝的可能性相比，都算不上什么！疫苗的致命程度比天然病毒高100倍，越南刚发布的数据说，感染了中共病毒的人群中，接种者携带的病毒量是未接种者的251倍，这与以色列的数据一致。
+[![](https://assets.gnews.org/wp-content/uploads/2021/12/IMAGE-2021-12-07-213501.jpg)](https://gettr.com/post/piufnx03f4)
+**14.Eglise医生12月7日在盖特发文：**
+
+伊维菌素是个抗病毒”巨无霸”，通过蛋白质定量研究发现伊维菌素有广谱抗病毒能力。伊维菌素非但能抑制新冠病毒的复制，还对巨细胞病毒、人乳头瘤状病毒、EB病毒、艾滋病毒等等有抑制作用。
+[![](https://assets.gnews.org/wp-content/uploads/2021/12/IMAGE-2021-12-07-213612.jpg)](https://gettr.com/post/piw9h0ea83)
+***以上信息和作者观点不代表Gnews平台***
+
+发布:星星
 
 * * *
 
 **欢迎广大战友加入 【秘密翻译组-即时新闻播报组】**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/IMAGE-2021-11-29-195110-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/IMAGE-2021-11-29-195110.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

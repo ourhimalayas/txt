@@ -2,46 +2,174 @@
 ---
 
 
-## 目前为止，美国至少在 10 个州发现了 Omicron 变种
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1730668/)
+## 咱那赌牌是数字赌牌的一个新的开始
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1731073/)
 
-据《新闻大全》记者Luca Cacciatore，2021年12月03日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-322.png)图片来源：Kuki Ladron De Guevara/Dreamstime.com
-据《The Hill（国会山报）》报道，截至周五，美国至少有10个州发现了COVID-19的Omicron变种（距卫生官员在非洲南部发现这种新菌株仅有大约一周的时间）。
+[https://gtv.org/video/id=61af5b7e87fa7e74c92cbcd8](https://gtv.org/video/id=61af5b7e87fa7e74c92cbcd8)
 
-**报告Omicron变种病例的州是：马里兰州、犹他州、密苏里州、宾夕法尼亚州、纽约州、科罗拉多州、明尼苏达州、加利福尼亚州、夏威夷州和内布拉斯加州。 卫生官员认为，它很可能已经蔓延到了其他州。**
+咱有条件啊
+Tenemos condiciones
 
-周三，美国加州发现首例（Omicron 变种）病例。纽约州州长Kathy Hochul周四宣布该州出现5例病例，是迄今为止所有州中最多的。
+这个夫妻档去这个赌场的时候
+Cuando estos esposos vayan al casino
 
-马里兰州卫生官员周五证实了巴尔的摩地区的三起病例。据《纽约时报》报道，当天内布拉斯加州发现6例，密苏里州发现1例。
+必须只能一方进去
+Debe entrar solamente una persona
 
-据《丹佛邮报》报道，周四，科罗拉多州报道了该州首例病例，该患者接种了两剂疫苗并于最近从非洲南部返回。
+不能两方都进
+No se puede entrar los dos
 
-Omicron变种最令人感兴趣的是它在传播性和严重性方面与delta变种的相关性。 《华盛顿邮报》指出，Delta变种最近在美国各地死灰复燃。
+因为必须给对方绝对自由
+Porque hay que darle absoluta libertad a la otra persona
 
-据《纽约时报》报道，美国总统乔·拜登（Joe Biden）的首席医疗顾问安东尼·福奇(Anthony Fauci)博士在周五的新闻发布会上表示，科学家们正在密切监测病例翻倍的速度，以观察Omicron变种是否会超过Delta变种，成为美国的主要COVID-19病毒变种。
+咱们战友的规则啊
+Son reglas de nuestros compañeros luchadores
 
-福奇说，在大约两周内，“我们将对Omicron变种的传播、免疫逃避和严重程度有更多的了解。”
+你们一定要答应七哥到那个地方去
+Ustedes deben prometerme si van a ese lugar
 
-**据《今日美国》报道，疾病控制与预防中心 (CDC) 主任罗谢尔·瓦伦斯基 (Rochelle Walensky) 博士说：“CDC正在为加强和简化全国基因组测序工作提供支持，并正在扩大对国际旅行者的监测。我们应该记住，目前美国99.9%的病例来自Delta变种 。”**
+也是叫无禁之地
+También llamado el lugar sin prohibición
 
-世界卫生组织（WHO）官员周五在菲律宾新闻发布会上也表达了类似的看法。
+啥叫无禁之地, 没有禁区的
+Qué es un lugar sin prohibición, no hay zona prohibida
 
-世卫组织西太平洋区域主任Takeshi Kasai说：“所有这些方面的积极消息是，我们目前掌握的关于Omicron 变种的信息，没有一个表明我们需要改变目前的应对方向。”
+大牛
+Daniu
 
-原文连接[：https://www.newsmax.com/newsfront/omicron-covid-19-delta/2021/12/03/id/1047300/](https://www.newsmax.com/newsfront/omicron-covid-19-delta/2021/12/03/id/1047300/)
+你要容忍得了, 巴黎自己在里边玩一天
+Debes tolerar a Bali que esté jugando adentro durante todo el día
 
-翻译：洛杉矶盘古农场 – 比格渣餐厅老板の娘
+你自己才有资格玩一天
+Así tendrás derecho de jugar todo el dia
 
-校对：洛杉矶盘古农场 – Mike Li
+你如果她自己玩
+Si ella juega sola
 
-评论：洛杉矶盘古农场 – 比格渣餐厅老板の娘
+你也不能进去
+Tampoco puedes entrar
 
-编辑：洛杉矶盘古农场 – Wendy
+福利也是一样, 是吧
+Al igual que Fuli, cierto
 
+你让对方有, 回来还不能问
+Si dejas que la otra persona vaya y regrese sin poder preguntar
 
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
+在里边看到是谁了
+A quién vío adentro
+
+发生啥
+Qué sucedió
+
+不能问, 给对方绝对的自由
+No puedes preguntar, debes darle la libertad absoluta a la otra persona
+
+绝对的自由啊, 这是非常
+Libertad absoluta, esto es realmente
+
+你看Rachel
+Mira a Rachel
+
+你把那个赌牌我发
+Les envié la carta de apuesta
+
+我给你们这个发到群里
+Al grupo
+
+你看到了吗, 你就看这个
+La viste, solamente mire esto
+
+咱么这个赌牌
+Nuestra carta de apuesta
+
+它在这个世界上是最最顶尖的钻石塔上
+Está en la torre de diamante más alta de este mundo
+
+钻石塔上啊
+Encima de la torre de diamante
+
+所以说, 这个刚才小福利应该叫Roy
+Por eso digo, hace rato Xiao Fuli debe llamar a Roy
+
+刚才说那个好事的时候
+Cuando se estaba hablando de ese asunto bueno
+
+你要想到这个
+Debes pensar en esto
+
+你们
+Ustedes
+
+咱那个赌牌
+Nuestra carta de apuesta
+
+它是数字赌牌的一个新的开始
+Es el comienzo de la carta de apuesta digital
+
+要记住Roy
+Recuerda, Roy
+
+是一个数字赌牌
+Es una carta de apuesta digital
+
+特别是在英国
+Especialmente en Reino Unido
+
+这种高质量的赌牌
+Esta alta calidad de cartas de apuesta
+
+而且绝对是稀有资源
+Y es definitivamente un recurso escaso
+
+而且更重要的事情
+Y lo más importante
+
+这个赌牌, 大家要记住
+Esta carta de apuesta, todos recuerden
+
+它有背后的体育界的
+Cuenta con el apoyo de nuestro Boss
+
+咱们大佬的支持
+Del mundo de deporte
+
+我还用说
+No les digo más
+
+再明白了嘛, 是吧
+Ya está más que claro, cierto
+
+你们跟那股东是世界上最大的体育玩家
+Ustedes y esa accionista son el mayor jugador de deporte en el mundo
+
+你会看到体育界
+Podrás ver en el mundo de deporte
+
+所有时尚界, 跑车界, 你们会看到前所未有你这辈子
+Todo el mundo de la moda, coches deportivos, verán cosas inéditas que no han experimentado antes en sus vidas
+
+没有经历的事情, 都会发生在我们这个事情当中
+Todo lo que no hemos vivido sucederá en dentro de este asunto de nosotros
+
+记住我的话
+Recuerde mis palabras
+
+日期：12/06/2021
+原视频标题：咱那赌牌是数字赌牌的一个新的开始
+Nuestra carta de apuesta es el nuevo comienzo de la apuesta digital
+原视频日期：12/04/2021
+原视频网址：https://gettr.com/post/pio7orb045
+任务编号：KC315（3107）
+视频时间段：0:00-1:43
+
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作: 洛杉矶盘古农场 – 天涯行
+审片: 洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
 [https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 

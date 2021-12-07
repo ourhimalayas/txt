@@ -2,31 +2,112 @@
 ---
 
 
-## 七哥谈享受人生
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1730835/)
+## 世界真正的较量就是中美俄
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1731190/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+[https://gtv.org/video/id=61af5c0a87fa7e74c92cbd1e](https://gtv.org/video/id=61af5c0a87fa7e74c92cbd1e)
 
-赵泽帝大佬旁边，中午吃完饭，我说我要抽个雪茄，我说你抽不抽？他说我不抽。我就拿出一根雪茄抽。他看着我雪茄就傻。他说Miles，你的西装，你的穿着，你的车子，你的团队都是我见过所有其他国家没有的，这个人是普京的铁板哥们，还有？？？的哥们，绝对哥们，超级大佬。他说你抽的雪茄我知道，这雪茄比我都老。他是67岁，1956还是57年出生的，67岁，很年轻看上去。他说这雪茄是在太好了，最重要你懂得那个年份，还有你还知道怎么抽好雪茄。我笑笑没吱声，我就在前面走。然后呢旁边，你七嫂昨天跟我去的，带着咖啡，他就闻出来了，你这咖啡好。我说我的咖啡真的好，但是我已经喝了，在那个桶里边我不能再倒给你是吧。啊，就那个羡慕的眼神啊。他说还有最重要的事情，他说你现在干那么多事情，你咋还有心情，那么多时间享受你的人生，这是我太不可思议了。他说我忙的每天都是这没时间，那没时间，家里搞得很不和。我说这就是我的人生，任何情况下不能影响我的生活质量，任何情况下！我说我想睡的觉一定会睡的，想吃的饭一定会吃的，想穿的东西一定会穿的。照样骑摩托车，照样开跑车是吧。该干啥干啥，该双修双修，一点都不受影响。我想给你们说，你们一定要记住，爆料革命最初，要在轻松，愉悦，体面，你力所能及的情况下再灭共，再搞爆料革命。绝不允许奉献，更不允许失去情况下，去追求所谓的幻想，更不允许跟着把郭文贵这个人给神化，个人化，崇拜化。都像希特勒，斯大林，每个人，列宁，毛泽东，无不如此，先把自己神化，大照片，雕塑，然后他代表神，上帝，像现在的习太阳一样。谁神化七哥，谁就是无知，你们所有想要的，我都想要，我只是经验比你们多，我比较幸运。说我今天我想说的事情，我所说的隔空取钱，你像Rachel在跟我一起，跟我们的村长，长岛哥一起吃过饭，我们的Qmay， Rain，小白，墨镜，咱们吃过饭的。那种是自然的。
+**郭文贵**
+**Miles Guo**
 
-校对：HimaFaFA
-发布：HimaBoy
+日本的表态，什么都不是，完全是咋呼，最后就是一定在中共
+Japan’s statement is nothing, it’s bluffing, and in the end it must be at the CCP
 
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+如果说跟它做交易，一定会，它一定会出卖台湾利益的
+If it is said to have a deal with Japan, Japan will definitely betray Taiwan’s inter-ests
 
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+而且美国人弄得（怂恿）日本人上，日本人是一定要谈条件的
+And if the U.S. encourages Japan to fight with the Chinese Communist Party, Ja-pan is definitely going to negotiate a deal
 
-**关注我们**
+你让我上是吧，让我加入联合国，一切军事正规化
+If Japan fight with CCP, then let Japan join the UN as a permanent member and allow Japan to regularize its military
 
-Discord 账号
+允许我发展核武器，一定是这结局，是吧
+and allowing Japan to develop nuclear weapons, it must be the conclusion, right?
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+就是日本现在，就是澳大利亚是一个德性的
+Now Japan and Australia are the same behavior
 
-Gettr 账号
+日本、澳大利亚它俩你给它再加一百倍的胆，他也不敢去干的对付中共去
+Japan and Australia, even you add a hundred times more courage to them, they don’t dare to confront with the CCP
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+千万别被自己忽悠了，咱别一看到好事儿咱就上
+don’t fool yourself, let’s not have wishful thinking
+
+所有这个世界决定就是中、美、俄，他们都是凑伙儿的
+All the world’s decisions maker are China, the United States, and Russia, and others are bench player
+
+台湾人也别在乎这事儿，关于共产党放核潜艇
+Taiwanese don’t need care about this, about the Communist Party’s release of nuclear submarines
+
+刚才娜娜酱做的PPT这点事对了，核潜艇用得着打台湾吗，是吧
+The PPT that Nana-jiang made just now is right, it isn’t necessary for nuclear submarines to attack Taiwan, right?
+
+核潜艇就是澳大利亚给日本人给美国人说的
+The nuclear submarine is muscle showing to Australia, Japanese and Americans
+
+小子，你敢弄弄啊，是吧，你看我给你亮亮招是吧
+Hi, do you dare to do it, right? Look at me I will show you some tricks, right?
+
+中共想表现这个，美国人说那我也有招啊，是不是，你看看
+The CCP wants to show this, the Americans say that I have a trick too, right? Take a look at this
+
+美国人干啥，美国我也准备，我整个经济上要制裁
+What do Americans do, the United States is also prepared to impose sanctions on the entire economy
+
+就美国人三件事都不敢干，第一件美国人对付中共就非常简单
+The Americans dare not do three things，the first thing that Americans confront with the CCP is very simple
+
+我把你SWIFT给你停了，我不让你使用美元，还没等它说出来呢
+that is American stopped CCP using SWIFT, and I don’t let you use the US dollars, American haven’t said it yet
+
+因为美国通胀啊，美元又不值钱的，经济不行啊，是不是
+because of inflation in the United States, the US dollar is worthless, and the economy is not good, right?
+
+它是叫股票政治啊，人家习近平出招了，我干掉所有的数字货币
+It’s called stock politics, Xi Jinping made a move, Xi wants to kill all the digital currency
+
+我要取消这个SWIFT, 你别停我，我先停你的，
+American: I want to cancel this SWIFT, CCP: Are you? I’ll stop you first
+
+我要求所有的贸易商包括美国微软，包括IBM全要使用我的数字货币
+CCP requires all traders, including Microsoft, including IBM, to use my digital currency
+
+就是把你美国对我提前对伊朗人、被朝鲜人要做的，我先做了
+It’s just to do what the U.S. treats Iranians and North Koreans ahead of time. CCP did it first.
+
+你知道习近平要宣布一个决定，你要知道是什么概念吗
+Do you know that Xi Jinping is going to announce a decision, do you know what is the concept?
+
+就在过去十二个月，中共最怕的美国要停止它所有使用美元
+In the past twelve months, the CCP fears most that America will stop them using the US dollars
+
+今天已经变成一个翻过来了，美国华尔街、美联储、美国财政部怕什么
+it has been flipped today, what are the fears of the Wall Street, the Federal Re-serve, and the U.S. Treasury Department?
+
+怕共产党停止使用美元
+They are afraid the Communist Party will stop using the U.S. dollar
+
+**原视频链接**[:](https://gettr.com/post/piv4srebf4)[https://gettr.com/post/piv4srebf4](https://gettr.com/post/piv4srebf4)
+
+Date:12/06/2021
+原视频标题: 世界真正的较量就是中 美 俄
+The real contest in the world is between China, the United States, and Russia
+原视频日期：2021/12/05
+原视频链接https://gettr.com/post/piv4srebf4
+任务编号：KC316（3128）
+视频时间段 : 0:00-2:28
+
+中听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

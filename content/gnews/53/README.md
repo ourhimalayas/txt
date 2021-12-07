@@ -2,26 +2,34 @@
 ---
 
 
-## 英国资深保守党议员指控英政府发动“宣传战”忽悠百姓接受限制令
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1728004/)
+## 欧盟总部爆发反对强制疫苗游行示威
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1728504/)
 
-翻译：zzballack
-上传：追着曙光跑
+作者：东京樱花团—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据外媒12月5日报道，约有8千民众在比利时布鲁塞尔朝着欧盟总部游行，抗议政府对民众进行疫苗强制措施。游行群众高喊“自由”口号，并燃放烟火以示抗议。
 
-据《布雷特巴特新闻网》（Breitbart News）12月6日报道，英国资深保守党议员克里斯托弗·乔普 (Christopher Chope) 爵士12月6日在接受talkRADIO的采访时指责英国政府对英国人民发动了一场宣传战，以鼓励他们支持继续实施防疫限制令。乔普还警告说，由于反对党和大多数保守党支持约翰逊政府，需要大幅转变公众对政府的态度，才能改变政策，支持结束限制性措施。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Image-2021-12-07-at-10.17.17.jpeg)图片来源：原新闻
-在英国发现了新冠奥密克戎变种后，约翰逊政府重新引入了口罩强制令，并将在本周确认圣诞节是否将如往常一样进行。乔普议员就圣诞节前或圣诞节后可能出现的新限制令所带来的持续威胁评论说：“这是政府制造恐惧运动的一部分。他们正试图利用恐惧作为压制个人自由的工具。事实上，他们在这方面相当成功，因为我们的许多同胞都已经畏缩不前。”
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide3-4.jpeg)
 
-乔普爵士说，他和其他对封锁持怀疑态度的议员很难让主流媒体传达出他们的反对立场，“我们在下议院阐述的另一种观点，很难通过广播电视等媒体渠道被公众听到、看到。然而我们从收到的电子邮件中知道，全国有许多人同意我们的观点，他们只是要求我们劝说政府在对抗疫情时运用一点常识。”
+抗议群众在铁丝网路障和防暴警察的阻拦下，被挡在欧盟做总部的环形交叉口外。双方爆发冲突，比利时警方向民众使用了水柱和催泪瓦斯。据悉，此次抗议活动造成2名警察，和4名抗议人士受伤送医治疗，有20人被逮捕。
 
-乔普爵士还指出，政府的反对派，主要是工党（Labour Party）和其他小党派，以及政府部长们都不支持在下议院投票中挑战任何新的潜在限制令，只有几十个保守党的非政府议员，即所谓的后座议员，对此持反对意见。他说：“议会中的问题是，几乎所有的反对党人士都支持政府，所以只有我们这些在后座上的30或50人站出来捍卫个人自由和个人责任。我们获胜的唯一途径是让公众舆论发生变化，而这正是这场宣传战的重点。”
+最近数周，随着政府对民众加强疫苗强制措施，好几个欧洲国家都在抗议示威。
 
-英政府似乎赢得了这场宣传战。总部设在英国的市场调查和数据分析公司YouGov最近几周进行的民意调查发现，有63%的英国人支持禁止未接种疫苗者参加活动或者进入非必要商店等公共场所；54%的人预测圣诞节期间会有新的限制令，其中76%的人支持在商店和公共交通工具上强制戴口罩，69%的人支持政府重新发布在家工作的建议和需要疫苗护照才能参加大型活动。
+参考链接：[歐盟總部前示威 比利時反防疫抗爭再爆衝突](https://gnews.org/wp-admin/post-new.php)
 
-新闻链接：[Senior Tory MP Accuses Own Govt of ‘Waging’ Coronavirus ‘Propaganda War’](https://www.breitbart.com/europe/2021/12/06/senior-tory-mp-accuses-own-govt-of-waging-coronavirus-propaganda-war/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
 
+总编：DM
+编辑：DM
+校正/发稿：谐趣园
 
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
