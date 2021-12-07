@@ -2,53 +2,186 @@
 ---
 
 
-## 白宫宣布美国将外交抵制北京冬奥会，但允许运动员参赛
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1730732/)
+## 这次的放毒应该是广东帮干的，传染率高但致残率致死率不高
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1730748/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Unknown-10.jpg)图片来源：www.dailymail.co.uk
-美国白宫新闻秘书珍·普萨基(Jen Psaki)周一证实，美国将推进对2022年北京冬季奥运会的外交抵制。 与此同时，中共国周一威胁说，如果美国坚持其对2022年冬奥会的外交抵制，将采取“坚决的反制措施”。
+[https://gtv.org/video/id=61af2bd087fa7e74c92cab16](https://gtv.org/video/id=61af2bd087fa7e74c92cab16)
 
-当被问及外交抵制是否足够时，普萨基告诉记者：“这只是表明它不能像往常一样行事。” 当被问及为什么政府没有推进全面抵制时，新闻秘书回答说：“我不认为我们觉得惩罚运动员是正确的策略。”
+一星期前
+Hace una semana atrás
 
-外界普遍预计拜登政府将在本周宣布外交抵制，这意味着美国政府官员将不会参加冬奥会，但美国运动员仍将参加比赛。 此举旨在平衡一些人权活动人士因中共虐待新疆维吾尔族少数民族而想要美国完全退出的要求和那些为了参赛而终生训练的运动员的要求。 然而，今年只有中共国大陆的观众可以观看比赛，比赛将于2022年2月4日至20日举行。
+我们的欧洲科学家说
+Nuestro científico europeo dijo
 
-中共国外交部发言人赵立坚周一在新闻发布会上说：“如果美方一意孤行，中方必将采取坚决反制措施。” 赵说，呼吁抵制是“哗众取宠”，必须停止，“以免影响中美在重要领域的对话合作”。
+如果这次的病毒有两个特征性
+Si el virus de esta vez tiene dos características
 
-对外交抵制，人们的反应褒贬不一。前联合国大使妮基·黑利(Nikki Haley)称这是一个“笑话”。
+这次人类真的是完了
+Entonces la raza humana se acabará esta vez
 
-“外交抵制北京冬奥会是个笑话。中共不在乎拜登和团队是否出现。他们想要我们的运动员。”她在推特上写道。
+第一个特征
+La primera característica
 
-犹他州联邦参议员米特·罗姆尼(Mitt Romney)3月份曾在纽约时报专栏文章中呼吁采取抵制行动，他赞扬了拜登的决定。
+这次如果共产党要放病毒的话
+Si esta vez el PCCh va a soltar el virus
 
-众议院议长南希·佩洛西(Nancy Pelosi)赞扬了拜登的决定，并宣布众议院将于本周就《维吾尔强迫劳动预防法》进行投票，该法案将禁止从中共国新疆地区进口某些产品。
+放出来这个传染率、致死率高
+Y su tasa de letalidad y contagio es alta
 
-美国上一次全面抵制奥运会是在1980年，当时奥运会在俄罗斯莫斯科举办。以美国为首的65个国家退出奥运会，以抗议苏联入侵阿富汗。美国不仅不允许其运动员参加比赛，而且还告诉他们，如果他们试图在奥林匹克旗帜下独自参加比赛，他们就面临失去美国护照的风险。
+染上就死
+Quiere decir al contagiarse se muere
 
-人权活动人士上个月在希腊南部破坏了传统的点火仪式，对国际奥委会(IOC)将奥运会安排在北京举行感到愤怒。他们将2022年奥运会称为“种族灭绝运动会”。
+或者是说就是所谓的天花病毒
+O como el supuesto virus de la viruela
 
-2021年7月，欧洲议会和英国议会投票通过外交抵制冬奥会。5月，众议院议长南希·佩洛西推动外交抵制的方式，以避免惩罚运动员。由于（中共）侵犯人权，包括美国全国广播公司(NBC)在内的一些奥运转播商推动取消冬奥会转播计划。
+传染率高、伤残率高 但不死
+Alta tasa de contagio y discapacidad, pero no muere
 
-中共在新疆对其维吾尔族少数民族发起了一场有针对性的残酷运动，将多达100万或更多的维吾尔人和其他以穆斯林为主的少数民族关进集中营和监狱。中共还因镇压香港抗议者、侵犯台湾和西藏以及掩盖中共病毒起源而面临国际批评。
+这两种病毒对人类都是巨大的威胁
+Estos dos tipos de virus es una gran amenaza para la humanidad
 
-简评：
+人类上一堆残废
+Si en la raza humana hay un montón de discapacitados
 
-拜登政府与习近平政府的勾兑一直都在进行，从对中共病毒溯源调查的不了了之，到在台海问题上的模棱两可，拜登政府的对外讲话很难让人信服。
+而且这种残疾
+Y este tipo de discapacidad
 
-对于此次在北京举办的冬奥会，拜登政府所谓的外交抵制，形式大于实际意义，因为这种抵制并不像美国当年针对前苏联发起的奥运会抵制行动那样彻底，如果美国允许本国运动员参加，对他国的带动作用会很大。由于世界上的大多数人还并不了解中共病毒真相和毒疫苗真相，面对如此重要的国家赛事，各国运动员们恐怕都很难拒绝。中共政府想要利用冬奥会宣传自己独裁制度的“优越性”，如果大多数民主国家在这件事情上也从了中共，那对于整个世界来说将是莫大的讽刺。
+根本全世界医疗条件救不了的
+Con las condiciones médicas que hay en todo el mundo no es curable
 
-新闻链接：
+像天花一样
+Así como la viruela
 
-[https://www.dailymail.co.uk/news/article-10280635/China-threatens-countermeasures-proceeds-diplomatic-boycott-Winter-Olympic-Games.html](https://www.dailymail.co.uk/news/article-10280635/China-threatens-countermeasures-proceeds-diplomatic-boycott-Winter-Olympic-Games.html)
+再一个就是致命率高
+Lo otro el alto índice de letalidad
 
-* * *
+得了就死
+Al contagiarse muere
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+他说这个世界也防不了
+Él dijo que el mundo no podrá evitar esto
 
+这个出来以后
+Después de que esto salga
 
-编辑：【英国伦敦喜庄园编辑部】
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+这个 Omicron 出来以后
+Después de que aparezca el “Omicron”
+
+他说真是天意
+Él dijo que esto es de verdad voluntad del Cielo
+
+这次的病毒看来
+Al parecer el virus de esta vez
+
+欧洲的科学家说
+Los científicos europeos dijeron
+
+这回放毒应该是
+Los que soltaron el virus de esta vez debe ser
+
+广东帮干的
+Hecho por la banda de Guangdong
+
+广东这帮人干的 不是北方人干的
+La gente de Guangdong lo hizo, no los norteños
+
+北方人下手会比较狠
+Los norteños son más implacables
+
+这个病毒放完以后
+Luego de soltar este virus
+
+很有可能会帮助人类彻底消灭这场病毒
+Es muy probable que ayude a la humanidad a desaparecer este virus
+
+这个病毒会使人传染(但)致死率并不高
+Este virus puede hacer que las personas se contagien, pero el índice de letalidad no es muy alto
+
+致残率不高
+La tasa de discapacidad no es alta
+
+这个毒的活性很高
+El activo de este virus es muy alto
+
+容易传染
+Es fácil de contagiarse
+
+但是对人类的这两样没做到
+Pero no logra estas dos cosas en el humano
+
+他说实际是好事
+Él dijo que realmente es algo bueno
+
+甚至把这个人类的病毒从地球上消失
+Hasta puede hacer desaparecer este virus del planeta Tierra
+
+他说人类
+Él dijo que la raza humana
+
+跟这个病毒一但相适应之后
+Después de adaptarse mutuamente a este virus
+
+实际上这个病毒可能会消失的
+Realmente es muy probable que se desaparezca
+
+这是共产党不再放毒的情况下
+Esto es bajo la condición de que el PCCh no suelte de nuevo un virus
+
+这是一个，第二个
+Esto es lo primero, el segundo
+
+现在全世界真的都知道青蒿素管用了
+Ahora todo el mundo ya sabe que la Artemisinina si sirve
+
+我告诉你
+Yo te digo
+
+青蒿素绝对是把癌症可以消失了的
+La Artemisinina puede desaparecer en lo absoluto el cáncer
+
+青蒿素绝对把糖尿病
+La Artemisinina para la diabetes,
+
+和人类存在的艾滋病
+El VIH que existe en la humanidad
+
+特别是现在受环境污染的脑血栓
+Especialmente la trombosis cerebral que ahora está siendo contaminada por el medio ambiente
+
+心血管病
+Enfermedad cardiovascular
+
+他说绝对有巨大的帮助甚至彻底消灭
+Él dijo que definitivamente hay una gran ayuda o incluso una eliminación completa
+
+还有青蒿素和伊维菌素连在一起
+Y la unión de la Artemisinina con la Ivermectina
+
+一定会把这次病毒给解决
+Seguro podrá solventar el virus de esta vez
+
+**原视频网址：** [https://gettr.com/post/pii26c24b5](https://gettr.com/post/pii26c24b5)
+
+日期：12/06/2021
+原视频标题：这次的放毒应该是广东帮干的，传染率高但致残率致死率不高
+El virus esta vez soltado debe ser realizado por la banda de Guangdong. La tasa de infección es alta, pero la tasa de discapacidad y de mortalidad no son altas
+
+原视频日期：12/02/2021
+原视频网址： https://gettr.com/post/pii26c24b5
+任务编号：KC313（3081）
+视频时间段：0:00-02:03
+
+西听校：洛杉矶盘古农场- 小文萱
+翻译：洛杉矶盘古农场- 霙霙（文霙）
+翻译终校：洛杉矶盘古农场- 小文萱
+字幕+视频制作: 洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

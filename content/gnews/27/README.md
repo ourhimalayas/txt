@@ -2,40 +2,30 @@
 ---
 
 
-## 马斯克说人口不足，出生率下降可能威胁人类文明
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1730159/)
+## 以色列首现巨幅反疫苗广告
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1730224/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2021.12.7-11.png)图片来源：Britta Pedersen | AFP | Getty Images
-翻译：Sara9(AKA 纱娜宝宝)
-编辑：Mttfly
+作者：纽约香草山健身部 – Ivy001
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间12月5日，在以色列的大街上，挂起了高达6，7层楼的巨幅广告：一个被妈妈拉着小手的小男孩，忧伤的看着镜头说，“妈妈，请不要把我的手交给他们！”下方是醒目的疫苗针管标志。这是以色列民间首次出现反对疫苗的广告。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/7-9.jpg)
+以色列是全球接种“中共病毒”疫苗的先锋，迄今已有超过62%的以色列人完全接种了疫苗；消息人士称，该国卫生部门已着手推进第四剂加强针的相关工作。然而，高疫苗接种率并未有效改善该国居高不下的新增感染病例，大部分“突破性感染”者都已完全接种疫苗。 全球的犹太法律学者已在11月下旬开始审视强制接种疫苗的种种问题。11月23日，以色列马阿勒-阿杜明市的一个犹太法学法庭发出警告，一旦儿童因疫苗而死，任何强制儿童接种疫苗的个人或团体都应罪同杀人犯；11月29日，纽约一个犹太法学法庭裁定：向儿童和大多数成年人注射中共病毒疫苗是违法犹太法律的，裁决明确禁止向儿童、青少年和育龄成年人注射以及推广中共病毒疫苗。
 
-“我认为文明面临的最大风险之一是低出生率和快速下降的出生率”，这位拥有六个孩子的父亲在华尔街日报年度CEO委员会上说。
+参考链接：[以色列首现巨幅反疫苗广告](https://gnews.org/zh-hans/1726708/)
 
-马斯克说：“然而，很多人，包括聪明人，认为世界上人口太多，认为人口增长失控。完全相反。请看看数据，如果人们没有更多的孩子，文明就会崩溃，记住我的话。”
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-马斯克正在回答有关特斯拉机器人如何解决一些劳动力问题的问题Tesla Bot是马斯克计划中的“人形机器人”，他说将使用特斯拉的自动驾驶汽车人工智能制造。马斯克在8月份举行的特斯拉人工智能活动中表示，机器人能够举起150磅，并以大约5英里每小时的速度行走。马斯克告诉CEO委员会，随着时间的推移，特斯拉机器人可能是“人类劳动力的普遍替代品”。
+总编：童谣
+编辑：Zion文恩
+校正/发稿：Fei797
 
-根据世界银行的数据，自1960年以来，全球出生率一直在稳步下降，
-
-马斯克也在同一场活动中回应了衰老问题，称他认为人们不应该“尝试活得超长”。
-
-马斯克说：“我认为死对我们来说很重要，因为大多数时候，人们不会改变主意，他们只是死了。如果他们永远活着，那么我们可能会成为一个非常僵化的社会，新想法无法成功。”
-
-“我不是拿衰老开玩笑。我只是想说，如果我们让人们担任非常重要的职位，他们必须做出对国家安全至关重要的决定，那么他们需要有足够的冷静和认知能力来做好这些决定，因为整个国家依赖他们。”马斯克补充道。
-
-上周，他在推特上建议禁止任何70岁以上的人竞选政治职务。
-
-**原文链接：**[Elon Musk says there are “not enough people” and that the falling birthrate could threaten human civilization](https://www.businessinsider.com.au/elon-musk-on-demographics-population-ageing-2021-12)
-
-**发布：去中心化Math**
-**
-更多信息，请关注：
-**[澳大利亚墨尔本阿西娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本阿西娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本阿西娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本阿西娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本阿西娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

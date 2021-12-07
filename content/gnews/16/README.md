@@ -2,41 +2,34 @@
 ---
 
 
-## 有声|中共幼儿园悄悄降低入园年龄限制
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1730454/)
+## 新能源电池、加密技术、芯片加5G和AI才是我们的城邦
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1730540/)
 
-配音：香草山美食部 – 玫瑰园
+**郭文贵先生：**未来所有的汽车都是用区块链技术，所有的电池都是区块链技术。如果电池不用区块链技术，电池就会成为炸弹，汽车就会成为这样的炸弹。无人驾驶汽车的时代，不可能到来，它会成为武器。
 
+那么接下来就是AI，AI这个技术大家记住，人类控制不好，那绝对人类就灭了。但控制好了，绝对就像娜娜酱跟她爷爷说话一样。你马上就变成你爷爷那个级别，就他完全听不懂咋回事了。就像娜娜酱给她讲社交媒体，你爷爷听不懂，你奶奶听不懂，你妈妈听不懂一样。就AI很快地到来，AI用在我们这些电池上，技术上，它是个相互的关系。没有电池，没有加密技术，没有这样的芯片，你没有AI。有了AI，未来就是AI一搜什么东西，郭文贵哪天讲什么话，分析到万分之一秒，亿分之一秒，啪，就给你出来。然后5G、AI，这就是咱们整个新中国联邦的大版图之一，那才是我们的城邦，那才是我们的未来！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-近日就笔者了解到，中共国内幼儿园已悄悄降低来年的入园年龄限制。生育率下降、人口老龄化已是不争的事实，中共国这一靠血汗工厂换来的世界第二大经济体已名存实亡。
+字幕来源：[2021年12月5日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1725245/)
 
-尽管离2022年新生入园尚有10月有余，江浙地区幼儿园已提前告知家长，原本足龄3岁方 可入园这一规定已经取消。由此可见学校生源不足，尽管中共国于2016年开放了二胎政策，但4年过后，生育率仍持续走低。笔者分析其因有二。
+视频制作及上传：Cindy；
 
-一是自川普总统阻止了中共国的恶意低价倾销，知识产权盗窃及对相关企业的一系列制裁，还有产业回流的MAGA运动，直接将中共国经济打回原形。所谓的高效生产，科技创新在落实WTO签署的贸易条款之后荡然无存。在毫无社会保障的中共国，面对着大面积失业，朝不保夕的收入，肩上沉重的住房还贷压力，国民根本无信心为家中添一双筷子而选择放弃生育。且消息来源于以外贸出口为主的江浙一带，原本富庶的地区尚且如此，中共国其它地区可想而 知。
+G-News发布：黎明之前；
 
-另外自中共于2019年放出生化病毒COVID-19, 造成全球疫情，并在来年3月开始推行疫苗以来，疫苗副作用已慢慢显现。据2021年11月郭文贵直播爆料，中共国内医院出现大量畸形胎儿，其父母大多是疫苗接种者。医生在畸形儿出生后便将其杀死，孩子父母只知责怪自己却不曾想实则为疫苗之祸。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-综上所述，中共国单一的外贸出口经济基石已毁，内需疲软，整体经济已垮塌在即。而伴随着全球疫苗接种率的攀升及强制疫苗令的低龄化，人口老龄化将会波及全球。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-文字版原文：[中共幼儿园悄悄降低入园年龄限制](https://gnews.org/zh-hans/1715500/)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
-**更多资讯，更多关注**
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

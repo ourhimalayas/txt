@@ -2,27 +2,37 @@
 ---
 
 
-## 日本通过检测居民污水掌握疫情
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1730279/)
+## 有声|标准普尔500指数本周表现不佳，未来走势堪忧
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1730360/)
 
-撰稿:东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/6-13.jpg)
-[图片源](https://www.nhk.or.jp/politics/articles/lastweek/37246.html)
+配音：香草山美食部 – 玫瑰园
 
-日本盐野义制药7日宣布，通过检测污水中的中共病毒来监测疫情的服务，可以检测包括奥密克戎毒株在内的突变株。从今年6月起，全国各地已开通服务，通过对污水检查，可以及早掌握突变株流行情况，用于制定相应对策。
 
-该方法是与北海道大学共同开发的，用于分析来自中共病毒感染者粪便形成的污水中的病毒。除了新的突变Omicron菌株外，该团队还能检测到现有的alpha和delta菌株。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+零对冲12月3日引用彭博实时市场评论员及分析师马克·克兰菲尔德（Mark Cranfield）的分析指出，从感恩节后的熔断开始，标准普尔500指数期货在经历了一周的鞭打式交易后明显看跌。
 
-日本盐野义制药是一个有中资参股背景的公司，但愿这项检测服务的数据不会被恶意利用，成为助推强打疫苗与所生产的口服液的帮凶。
+尽管该指数并不是单边走低，但该合约的盘中反弹已经在较低的峰值处消退。图中显示的帽子顶部给短线交易者提示了足够清晰的信号，即资产是否被定格在下降通道上。
 
-信息源：
+尽管非农就业数据的确不及预期，但美联储也不会偏离其紧缩政策。分析师预计，标准普尔期货从11月的峰值开始下跌，看起来像是长期走低的转折点，这将为明年的全球熊市奠定基础。
 
-[下水中のオミクロン株を検出へ　塩野義、早期把握に貢献](https://news.yahoo.co.jp/articles/03d9818b2cf02f49d0d47c39c44a042edda4d46b)
+文字版原文：[标准普尔500指数本周表现不佳，未来走势堪忧](https://gnews.org/zh-hans/1720450/)
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
+音频处理：喜山必胜Maverick
+发稿：Tom Li
+[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
+**更多资讯，更多关注**
 
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
