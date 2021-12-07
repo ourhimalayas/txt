@@ -2,42 +2,42 @@
 ---
 
 
-## 【币圈新闻】日本最高银行监管机构将在2022年立法限制稳定币发行
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1728977/)
+## DC大中华时事：中共称美炒作“外交抵制”冬奥会是政治挑衅
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1729041/)
 
-编译：玫瑰天空
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片-2-2.jpg)日本金融厅（Shutterstock）
-2021年12月7日，据CoinDesk 的新闻记者[**夏安利贡**](https://www.coindesk.com/author/cheyenne-ligon/)**（**Cheyenne Ligon ）
+*编辑：映兰轩 / 作图：*中华之光
 
-发文报道，[日经亚洲](https://asia.nikkei.com/Spotlight/Cryptocurrencies/Stablecoins-to-face-new-restrictions-in-Japan)周一的[一份报告称，](https://asia.nikkei.com/Spotlight/Cryptocurrencies/Stablecoins-to-face-new-restrictions-in-Japan)日本最高银行监管机构将于 2022年出台新的立法，旨在限制向银行和电汇公司发行稳定[币](https://www.coindesk.com/learn/what-is-a-stablecoin/)。
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/ScreenShot-2021-08-01-at-17.25.09@2x.png)
 
-日本金融厅 (FSA) 将提出的法规旨在加强该机构对稳定币市场的控制，以保护消费者免受 Tether 等资产支持稳定币的潜在风险。
+#   墙国妄语每日驳
 
-FSA 的举动反映了美国的类似提议。11月，总统金融市场工作组与包括货币监理署(OCC)在内的其他监管机构发布了[一份关于稳定](https://www.coindesk.com/policy/2021/11/02/the-us-treasurys-stablecoin-report-would-treat-issuers-like-banks-but-doesnt-address-how/)币的[报告](https://www.coindesk.com/policy/2021/11/02/the-us-treasurys-stablecoin-report-would-treat-issuers-like-banks-but-doesnt-address-how/)，其中包括对银行等稳定币发行人的建议。
+### ***12.06.**人民日报：央行下调存款准备金率 共计释放长期资金约1.2万亿元*
 
-根据该报告，该立法还将包括防止通过稳定币进行洗钱的措施，通过给予该机构对钱包提供商等中介的额外监督，并增加额外的了解你的客户 (KYC) 措施。
+*为支持实体经济发展，促进综合融资成本稳中有降，中国人民银行决定于12月15日下调金融机构存款准备金率0.5个百分点（不含已执行5%存款准备金率的金融机构）。本次下调后，金融机构加权平均存款准备金率为8.4%。央行表示，将继续实施稳健的货币政策，坚持稳字当头，不搞大水漫灌，兼顾内外平衡，保持流动性合理充裕，保持货币供应量和社会融资规模增速同名义经济增速基本匹配，加强跨周期调节，统筹做好今明两年宏观政策衔接，支持中小企业、绿色发展、科技创新，为高质量发展和供给侧结构性改革营造适宜的货币金融环境。*
 
-今年1月，包括三菱在内的70多家日本大公司组成的财团[预计将开始](https://www.coindesk.com/policy/2021/11/24/japanese-consortium-plans-to-issue-bank-deposit-like-digital-yen-by-2022-end/)试用[央行数字货币](https://www.coindesk.com/policy/2021/10/15/bank-of-japan-seeks-plain-easy-to-cook-cbdc-model/)(CBDC)，即数字日元，他们表示这种[货币](https://www.coindesk.com/policy/2021/10/15/bank-of-japan-seeks-plain-easy-to-cook-cbdc-model/)将像银行存款一样发挥作用。
+**简评：这是本年第2次全面降准，上一次降准是在7月15日(下调0.5个百分点)，名义是支持实体经济发展，实则是为了挽救楼市和股市。但是这种大水漫灌式好比给濒死的病人用肾上腺激素罢了，热度过后，要么死了，要么更虚弱了。众所周知，中共的经济是假擀面杖经济，一直靠造假维持表面的强盛，事实上这几年不管是房地产、金融、制造等，已经被盗国贼倒空了，然后在爆料革命面前不断被扒光衣服，节节败退。2022年，在疫苗灾难和粮食危机来临时，中国人一定要准备好自救，千万别再相信中共的谎言了。**
 
-此前，日本央行(BoJ)执行董事 Shinichi Uchida 曾将在一次演讲中表示，日本央行(BoJ)将尝试开发一种可以与私人支付方式轻松共存的央行数字货币(CBDC)。
+### *12.06.新华网：**外交部：美炒作“外交抵制”北京冬奥会是赤裸裸的政治挑衅***
 
-- Shinichi Uchida周五[表示](https://www.boj.or.jp/announcements/press/koen_2021/ko211015a.htm/)，为了寻求“垂直共存”，与公众使用的其他支付方式，CBDC应该由“相对有计划、易于烹饪的材料”组成。
-- 中央银行官员引用了一个例子，其中可以在私人公司提供的数字钱包中使用CBDC。
+*针对有报道称，美国政府将于本周宣布抵制北京冬奥会，外交部发言人赵立坚6日在例行记者会上应询表示，美国政客在未受到邀请情况下不断炒作所谓的“外交抵制”北京冬奥会，是赤裸裸的政治挑衅，如果美方一意孤行，中方必将采取坚决反制措施。赵立坚说，北京冬奥会是全球冬奥运动员和冰雪运动爱好者的盛会，他们才是主角。当前，北京冬奥会筹备工作已进入倒计时冲刺阶段，包括国际奥委会在内的国际社会高度认可筹办工作，外国运动员热切期待来华参赛，其中包括数量众多的美国和日本运动员。“我们相信，在奥林匹克精神指引下，在各方共同努力下，我们一定能为世界呈现一届简约、安全、精彩的奥运盛会。”他强调，冬奥会不是政治作秀和搞政治操弄的舞台。美国政客在未受到邀请情况下不断炒作所谓的“外交抵制”北京冬奥会，完全是自作多情、哗众取宠、政治操弄，是对《奥林匹克宪章》精神的严重玷污，是赤裸裸的政治挑衅，更是对14亿多中国人民的严重冒犯，只会让中国人民和全世界人民看清看透美国政客的反华本质和虚伪面目。赵立坚说，美方应该做的是端正态度，践行“更团结”的奥林匹克精神，严肃对待中方关切，不将体育运动政治化，停止炒作所谓的“外交抵制”北京冬奥会，以免影响中美在重要领域的对话合作。“如果美方一意孤行，中方必将采取坚决反制措施。”*
 
+**简评：从中共国官媒密集报道美国政治抵制奥运会一事，丝毫看不出中共对此“毫不关心”，相反已经恼羞成怒，并且威胁美方“坚决采取反制措施”。郭先生直播中曾说，中共国不论外面的反应如何，一定会举办奥运会。的确，如果举办不成，中共实在无法自圆其说。如果外国运动员来的少或者政客不来，中共完全可以推责到疫情的原因，自己的面子就保留了，还可以就此制造民愤，大搞名族主义。尽管如此，民主国家抵制北京冬奥，是正确的决定，是倒共多米诺骨牌的传递。**
 
-援引：
+### *12.06.环球网：产业的力量 2021酒业创新与投资大会将拉开帷幕*
 
-[https://www.coindesk.com/policy/2021/12/06/japan-moves-to-impose-new-regulations-on-stablecoin-issuers-report/](https://www.coindesk.com/policy/2021/12/06/japan-moves-to-impose-new-regulations-on-stablecoin-issuers-report/)
+*12月10日－13日，由中国酒业协会、中国酒类流通协会、中国轻工企业投资发展协会主办，云酒传媒、智海王潮传播集团联合主办的“产业的力量”——2021酒业创新与投资大会将在海口举行。据了解，2021酒业创新与投资大会是在海南举办的第一个酒类综合性会议与产品展示相融合的大型酒业展会，是紧抓海南自贸港建设关键机遇，打造的全球酒类产业与资本对接会、全球酒类创业创新平台。*
 
-[https://www.coindesk.com/policy/2021/10/15/bank-of-japan-seeks-plain-easy-to-cook-cbdc-model/](https://www.coindesk.com/policy/2021/10/15/bank-of-japan-seeks-plain-easy-to-cook-cbdc-model/)
+**简评：茅台、五粮液等所谓的“国酒”，在中共国股市中简直是神的存在，颠覆了股民的三观。贵州茅台的股价长期位居A股市场第一名。无论经济怎么不好，人民生存如何艰难，高端白酒价格依然不倒。因为，这类昂贵的酒，不是平民百姓享用的，而是公款消费及“贿赂”之酒。就凭这一点，就说明中共国的公款吃喝多么惊人，反腐也只是“以贪反贪”而已。如果深究，名酒板块也是到盗国集团的白手套，酒的利润率显然更高，抢钱更方便。 **
 
-
-
-采 集：神之一手
-审核校对：Barry Jack
-上传排版：F
+#   港台资讯
+![](https://media.discordapp.net/attachments/858887785507323904/917701169500012544/20211207C.jpg?width=1043&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/917701169713913896/20211207B.jpg?width=1043&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/917701170095599646/20211207A.jpg?width=1043&amp;height=586)
 
 
+
+
+*编辑：*映兰轩
+*作图：中华之光
+发布：文顾*
 
  
 

@@ -2,35 +2,31 @@
 ---
 
 
-## 欧洲议员声援民众抵抗疫苗暴政
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1729016/)
+## 为了造“蓝天” 中共在百年冥诞前发射大量火箭进行人工降雨
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1729051/)
 
-撰稿：东京樱花团 – 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间12月4日，德裔欧洲议员克里斯汀.安德森，在社交平台发布短片，公开声援澳洲人民连续多周抗议疫苗暴政，并严厉谴责澳洲当局践踏人权、自由和法治，将一个民主国家变成集权统治。
+#### 翻译/撰稿：zzballack
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-315.png)
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-12.jpg)图片来源：卫报
+据《新闻极限》（Newsmax）12月6日报道，中共当局为了给其百年冥诞庆典营造一个“蓝天”，消除空气污染，在今年7月1日前一晚采用云播种（Cloud seeding）技术进行人工降雨。
 
-安德森说，历史从来没有一个好人会强迫他人服从，人民的福祉从来都只是暴君的托词。澳大利亚不需要所谓的“疫苗”战略计划，澳大利亚需要的是“无压迫”战略计划。安德森一针见血得指出，政府推行疫苗根本不是为了预防病毒，而是为了打击和消灭人类。 她提醒全世界人民，自由是个人的选择，而非政府的施舍。她呼吁澳洲人民，从现在起就必须挺身反抗。
+清华大学环境科学教授王灿11月26日在中国《环境科学》期刊发表论文，披露他的团队自6月30日晚8时30分起，在云中加入化学品，进行了2小时的“播云作业”，以便在北京郊区和一些邻近地区制造降雨。报导说，居住在北京西南山区的多位居民表示，当晚看到大量火箭，这是用来将碘化银发射到天空，以刺激降雨用的。还有居民发现了落在他家附近的火箭碎片。
 
-消息链接：[https://gettr.com/post/piulodcba8](https://gettr.com/post/piulodcba8)
+但是百年冥诞当天，中共当局没有迎来期望的蓝天。相反，发射大量火箭“炸天”导致整个北京城笼罩在阴云密布之下，举办活动的天安门广场灰濛濛一片。活动结束后不久甚至下起了大雨。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+据报道，自2008年举办北京奥运会以来，中共当局为了在重要日子营造“蓝天”，多次以人工方式改造天气，驱散阴霾。据《国会山》（The Hill）报道，中共上周宣布，它将在2025年前开发一个天气改变系统，以便在22.4万平方英里（约58万平方公里）的范围内产生人工降雨。
 
-**校对/发稿：童谣**
+郭文贵先生在2021年11月10日的大直播中曾说过，今年11月6日，中共六中全会前夕，北京天降“瑞雪”系出于政治目的的人造雪。为保证六中全会期间没有雾霾，以及强行制造“瑞雪兆丰年”的自欺假象，中共太空军从西北、蒙古“一路砸过来”，共计发射了 6 万发太空造雪箭，由此带来的太空污染、大气污染是常人无法想象的。回看六种全会及中共各种重要会议的历史，这种在24小时之内骤然降落的“专属瑞雪”几乎很少爽约。郭先生的一位负责造雪的老朋友直言，中共造雪“不考虑环境影响，政治第一。”人工降雪技术并非中共独有，但全世界只有视人命如草芥的中共敢做。人工造雪中用到的主要催化剂碘化银是有毒物质，会对大气造成直接污染，而且随雨水落地后，不仅污染水源、土壤，还有可能伤害人体健康。但是中共的官媒和无良“专家”千篇一律地“辟谣”说，碘化银用量很少，对环境的影响可以忽略不计，鼓吹人工降雪无害，愚弄公众。
 
-**更多资讯，更多关注**
+新闻来源：
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[China Used Cloud Seeding to Ensure July Political Event Was Pollution-Free](https://www.newsmax.com/globaltalk/china-cloud-seeding-100th-anniversary-ccp/2021/12/06/id/1047540/)
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[文贵爆料（11/10）：六中全会北京“瑞雪”系人造](https://gnews.org/zh-hans/1653228/)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[大直播7·24——人工降雪的危害性](https://gnews.org/zh-hans/1655383/)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

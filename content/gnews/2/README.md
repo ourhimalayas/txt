@@ -2,39 +2,26 @@
 ---
 
 
-## 改写历史！香港房企试点5折卖房，首付5%
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1729169/)
+## 日本将中共新变异病毒检测范围扩大到全国
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1729208/)
 
-撰稿：二号电梯
+撰稿：东京樱花团/风翼
+![](https://assets.gnews.org/wp-content/uploads/2021/12/666.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fupload.wikimedia.org%2Fwikipedia%2Fcommons%2Fthumb%2F5%2F55%2FKoseirodosho1.jpg%2F180px-Koseirodosho1.jpg&amp;imgrefurl=https%3A%2F%2Fzh.wikipedia.org%2Fwiki%2F%25E5%258E%259A%25E7%2594%259F%25E5%258B%259E%25E5%258B%2595%25E7%259C%2581&amp;tbnid=h6it1E8P3gK6cM&amp;vet=12ahUKEwi73LSNsNH0AhXUNaYKHZIjCX8QMygBegUIARCaAQ..i&amp;docid=dwAWNxTz9nmCvM&amp;w=180&amp;h=240&amp;itg=1&amp;q=%E5%8E%9A%E7%94%9F%E5%8A%B3%E5%8A%A8%E7%9C%81&amp;ved=2ahUKEwi73LSNsNH0AhXUNaYKHZIjCX8QMygBegUIARCaAQ#imgrc=h6it1E8P3gK6cM&amp;imgdii=2mqXN8kemvofuM)
+据【TBS NEWS】报导，内阁官房长官松野裕和发表声明：“卫生部和劳动省通知，对阳性样本的基因组分析已经确认是奥米克朗菌株，这是检测出的第三例”。经查，该名患者是日本人30岁到男性患者，曾在意大利停留过，这是第一次有日本人被确认为感染者。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture-3-1.jpg)
+他于本月1日从罗马经德国的一个机场抵达羽田机场。这名男子已经注射了两剂中共病毒疫苗，自他抵达机场以来一直没有症状。对于同乘飞机上的其余41人被作为密切接触者处理，并将对他们的健康进行密切监测。
 
-（图片来自网络）
+6日，首相岸田文雄在自民党董事会的一次会议上宣布，新感染奥密克戒菌株的病人往往没有症状，这意味着他们没有出现味觉或嗅觉异常，也没有发烧，但感染力极强的特性。为了安全起见，日本所有新的中共病毒患者就将接受奥密克戒菌株到检测。
 
-12月6日，香港地产发展商新世界发展（00017.HK）率先响应“居者有其屋”，称将以成本价、非营利的形式出售高品质、可负担的住房单位，售价可低至市价的五折至六折。
+根据中共变异病毒的无症状、感染率强的特性，不难预测日本进入第六次感染高峰将要到来。生命健康也会受到重大伤害，因传染扩大也将使众多日本群众新年假期回家和旅行成为泡影，在社会经济恢复上受到重创。
 
-第一财经获悉，新世界发展将先拿出300套住宅单位作为试点，待成熟后，将扩大计划规模。另一家香港大型开发商则对记者称，暂时没有类似计划出台，但未来或有可能推出方案。
+信息来源：
 
-新世界一位内部人士对第一财经表示，这一方案的推出，是公司响应官方号召，努力推动“共同富裕”理念在香港的体现。新世界发展行政总裁郑志刚则表示：”共同富裕、兼顾公平在香港有着更为迫切的现实意义。作为主要发展商，新世界理应率先响应，倡行共享价值理念，摒弃追求利润最大化模式，把创新以及对社会的承担放在公司发展的首位。”
+[“オミクロンショック”拡大…年末年始“移動”直撃](https://news.tv-asahi.co.jp/news_society/articles/000237519.html)
 
-第一财经了解到，为了推出相关方案，新世界发展成立了一个非营利企业”新世界建好生活（New World Build for Good）”。新世界发展在第一阶段将捐出一块位于新界西的地块作为试点，并提供资金给”新世界建好生活”，用于建设300套实用面积在28至51平方米（300至550平方尺）的一室至三室单位。
-
-在如何出售这批房屋上，新世界发展将采用一系列创新举措。比如“超低首付”，即买家可以用低至5%的房价来首付置业。在此之前，按照规定，只有首套自住房购房者，在房屋总价不高于800万港币的情况下，才能享受以10%的超低首付购房。
-
-还有一种新模式，被新世界称为”渐进式供款”，即买家可先就其购买单位的50%房价（相当于市场价的25%）来计算第一阶段贷款，余下的50%可于成交后10 年内，一次性或分阶段按揭供款。
-
-新世界发展内部人士对记者表示，出台这些创新举措的目的是解决港人首付不足和普遍的供贷压力问题。
-
-首批试点房屋的最大特点是将以成本价售房，比如实用面积约28平方米的住宅，每个单位成本价约为270万港元，如果以此价出售，约等同于市场价格的五折至六折。
-
-参考：[改写香港楼市历史!新世界发展将试点5折卖房,首付仅5%](https://www.toutiao.com/i7038550240122962445/?tt_from=copy_link&amp;utm_campaign=client_share&amp;timestamp=1638846963&amp;app=news_article&amp;utm_source=copy_link&amp;utm_medium=toutiao_ios&amp;use_new_style=1&amp;req_id=202112071116030101511962020702AD0F&amp;share_token=D9039CED-05C6-4393-8C2B-3C1A5C2DD3A6&amp;group_id=7038550240122962445&amp;wid=1638868563407)
-
-发稿： Hong
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-2.jpg)
-
-
-
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
