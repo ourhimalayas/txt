@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/7/2021 2:11 PM (UTC)`
+
+7/12/2021 “Hcoin To the Moon" Hits #1 🥇on 6 Countries' iTunes Rock Charts on 5th Day of Launch 🎉🎉🎉🎉🎉🎉🎉<br/>Thank you very much to all our brothers and sisters in HongKong, Taiwan, New Zealand, Australia, Laos, Singapore!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1729807/<br/><br/>12月7号，Hcoin To the Moon上线第5天位列6国iTunes摇滚音乐榜首🥇！🎉🎉🎉🎉🎉🎉🎉<br/>感谢香港，台湾，新西兰, 澳大利亚，老挝，新加坡的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏
+
+---
+
 `@miles 12/7/2021 5:04 AM (UTC)`
 
 On Dec. 6, 2021, hundreds of police and over 100 people from BBMG sent by the CCP violently seized Pangu’s assets. Over 1,000 employees and guests were thrown out of the Pangu hotel, and my father, who is over 90 years old, was driven out of his home. This is the CCP’s yet another atrocity against my family and employees after the $13 billion fine and illegal auction of Pangu's assets by the Dalian Intermediate Court! All is totally illegal! It’s a law-trampling, immoral, and inhumane mass arrest and robbery directed by the CCP kleptocrats!<br/><br/>Intermediate People’s Court of Dalian, Liaoning Province Public Announcement<br/><br/>https://gnews.org/1727858/<br/><br/>Appointment of Emergency Property Management Company for Pangu Plaza<br/><br/>https://gnews.org/1727906/
@@ -142,13 +148,6 @@ Dec. 6th, 2021, after the CCP, filled with fear of our Whistleblowers’ Movemen
 `@miles 12/5/2021 10:46 PM (UTC)`
 
 5/12/2021 “Hcoin To the Moon" Hits #1 🥇on 10 Countries' iTunes Rock Charts on 3nd Day of Launch！🎉🎉🎉🎉🎉🎉🎉<br/>Thank you very much to all our brothers and sisters in HongKong, UAE, Taiwan, New Zealand, Malaysia, Poland, Spain, Hungary, Australia, Singapore!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1723274<br/><br/>12月5号，Hcoin To the Moon上线第3天位列10国iTunes摇滚音乐榜首🥇！🎉🎉🎉🎉🎉🎉🎉<br/>感谢香港，阿联酋，台湾，新西兰，马来西亚，波兰，西班牙，匈牙利，澳大利亚，新加坡的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/><br/>中文：https://gnews.org/zh-hans/1723273/<br/>
-
----
-
-`@miles 12/5/2021 10:08 PM (UTC)`
-
-Artemisinin Report 1. Here are some preliminary survey results we collected to demonstrate the effects of using artemisinin supplements and artemisinin drug derivatives. Artemisinin is the antidote to the CCP virus and the CCP virus vaccine. Meanwhile, artemisinin also exhibits promising therapeutic effects to many other conditions. We will continue to report these results as more data to be collected. Please follow the doctor's advice.
-![img](https://media.gettr.com/group34/origin/2021/12/05/22/1e992ed1-a86c-60bd-a75e-aac7ffc7a92e/a4a1900549f16888a2b95d4b347ce3e0.jpeg)
 
 ---
 

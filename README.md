@@ -15,146 +15,146 @@
 
 ---
 
-### [Hcoin To the Moon 上线第5天位列6国iTunes摇滚音乐榜首](/content/gnews/1/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [DC每日热点1207](/content/gnews/1/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [岸田首相が北京五輪への対応について 「国益の観点から自ら判断する」と表明](/content/gnews/2/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共习近平用数字人民币将美国的美元经济核弹彻底瘫痪](/content/gnews/3/README.md)
+### [灭共产党就俩源头：共产党自己灭共产党和美国灭共产党](/content/gnews/2/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [串珠468:习比谁都恨共产党，爹被囚15年靠吃屎幸存](/content/gnews/4/README.md)
+### [12/07/21 香港快讯 香港民研：36% 受访者倾向不投票 投票意欲创历年民调新低](/content/gnews/3/README.md)
+ ` 英喜-粵語組`
+
+### [Hcoin To the Moon 上线第5天位列6国iTunes摇滚音乐榜首](/content/gnews/4/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [最爱小红楼 好一个“葫芦僧判葫芦案”](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [岸田首相が北京五輪への対応について 「国益の観点から自ら判断する」と表明](/content/gnews/6/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共习近平用数字人民币将美国的美元经济核弹彻底瘫痪](/content/gnews/7/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [串珠468:习比谁都恨共产党，爹被囚15年靠吃屎幸存](/content/gnews/8/README.md)
  ` 郭爆料串珠`
 
-### [又抓住了话语权的制高点？中国外交部：没请你，你抵制啥？](/content/gnews/5/README.md)
+### [12/7/2021国际财经快讯：拜登瞄准全现金房屋交易；全球石油CEO推动清洁能源](/content/gnews/9/README.md)
+ ` 秘密翻译组金融团队`
+
+### [又抓住了话语权的制高点？中国外交部：没请你，你抵制啥？](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本要闻汇编 12月7日](/content/gnews/6/README.md)
+### [日本要闻汇编 12月7日](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [疫苗数据: 7岁儿童在接受中共病毒疫苗注射后脑出血](/content/gnews/7/README.md)
+### [疫苗数据: 7岁儿童在接受中共病毒疫苗注射后脑出血](/content/gnews/12/README.md)
  ` 秘密翻译组-原创组`
 
-### [中共又一房地产将要违约雷暴：花样年下跌超六成](/content/gnews/8/README.md)
+### [中共又一房地产将要违约雷暴：花样年下跌超六成](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [教人放弃自我价值的歪曲教育](/content/gnews/9/README.md)
+### [教人放弃自我价值的歪曲教育](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [墙内要闻汇编 12月7日](/content/gnews/10/README.md)
+### [墙内要闻汇编 12月7日](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [会呼吸的痛——实证PM2.5中共数据造假](/content/gnews/11/README.md)
+### [会呼吸的痛——实证PM2.5中共数据造假](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [病毒数据： 研究表明体内维生素D水平高于50纳克/毫升时，中共病毒发病率几乎为零](/content/gnews/12/README.md)
+### [病毒数据： 研究表明体内维生素D水平高于50纳克/毫升时，中共病毒发病率几乎为零](/content/gnews/17/README.md)
  ` 秘密翻译组-原创组`
 
-### [停止控制世界](/content/gnews/13/README.md)
+### [停止控制世界](/content/gnews/18/README.md)
  ` 澳喜特战旅Gnews`
 
-### [疫苗峰会：钟南山谈“如何恢复常态化”](/content/gnews/14/README.md)
+### [疫苗峰会：钟南山谈“如何恢复常态化”](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [西媒头条 — 第125期](/content/gnews/15/README.md)
+### [西媒头条 — 第125期](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [疫苗解药：青蒿与黄蒿名称辨析及屠呦呦诺贝尔医学奖](/content/gnews/16/README.md)
+### [疫苗解药：青蒿与黄蒿名称辨析及屠呦呦诺贝尔医学奖](/content/gnews/21/README.md)
  ` 秘密翻译组-原创组`
 
-### [“你不会毁掉美国的”——“斯巴达克斯COVID信”（八）](/content/gnews/17/README.md)
+### [“你不会毁掉美国的”——“斯巴达克斯COVID信”（八）](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [“你不会毁掉美国的”——“斯巴达克斯COVID信”（七）](/content/gnews/18/README.md)
+### [“你不会毁掉美国的”——“斯巴达克斯COVID信”（七）](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [你的加密货币收益需要在澳洲交所得税吗？](/content/gnews/19/README.md)
+### [你的加密货币收益需要在澳洲交所得税吗？](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [“你不会毁掉美国的”——“斯巴达克斯COVID信”（六）](/content/gnews/20/README.md)
+### [“你不会毁掉美国的”——“斯巴达克斯COVID信”（六）](/content/gnews/25/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [“你不会毁掉美国的”——“斯巴达克斯COVID信”（五）](/content/gnews/21/README.md)
+### [“你不会毁掉美国的”——“斯巴达克斯COVID信”（五）](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [强制接种疫苗一直是政府的最终目的 -4](/content/gnews/22/README.md)
+### [强制接种疫苗一直是政府的最终目的 -4](/content/gnews/27/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [秘翻在线：中共联手国际社会呼吁“疫苗屏障”，进一步推行疫苗“杀人”！](/content/gnews/23/README.md)
+### [秘翻在线：中共联手国际社会呼吁“疫苗屏障”，进一步推行疫苗“杀人”！](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [强制接种疫苗一直是政府的最终目的 -3](/content/gnews/24/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [“你不会毁掉美国的”——“斯巴达克斯COVID信” （四）](/content/gnews/25/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [强制接种疫苗一直是政府的最终目的 -2](/content/gnews/26/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [美国正式外交抵制北京冬奥会，习近平实施高段位反击](/content/gnews/27/README.md)
+### [美国正式外交抵制北京冬奥会，习近平实施高段位反击](/content/gnews/29/README.md)
  ` 走进澳洲`
 
-### [秘翻在线：中共国有物流公司成立，国进民退已经卷土重来！](/content/gnews/28/README.md)
+### [泽连科医生：给儿童注射死亡针剂本质就是极权主义奴役](/content/gnews/30/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [泽连科：在这第三次世界大战中，我们需要进行公民抗命](/content/gnews/31/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [单伟建：中共国在美国的钱比美国在中共国的钱更多](/content/gnews/32/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [布林肯认为中国入侵台湾可能是一个灾难性决定](/content/gnews/33/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [男孩接种中共病毒疫苗后产生抽动症症状](/content/gnews/34/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [泽连科医生：奥米炕基本是用来掩盖疫苗伤害的](/content/gnews/35/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [泽连科：心理代偿失调使人们容易受骗而听从于疫苗接种](/content/gnews/36/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [最新｜秘翻简讯: 美医生警告将有大量孩子死亡 中国电信将退出美市场](/content/gnews/37/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [泽连科医生：给儿童注射死亡针剂本质就是极权主义奴役](/content/gnews/29/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [中共不装了：房子不炒不行！](/content/gnews/38/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [泽连科：在这第三次世界大战中，我们需要进行公民抗命](/content/gnews/30/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [单伟建：中共国在美国的钱比美国在中共国的钱更多](/content/gnews/31/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [布林肯认为中国入侵台湾可能是一个灾难性决定](/content/gnews/32/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [男孩接种中共病毒疫苗后产生抽动症症状](/content/gnews/33/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [泽连科医生：奥米炕基本是用来掩盖疫苗伤害的](/content/gnews/34/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [泽连科：心理代偿失调使人们容易受骗而听从于疫苗接种](/content/gnews/35/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [最新｜秘翻简讯: 美医生警告将有大量孩子死亡 中国电信将退出美市场](/content/gnews/36/README.md)
+### [前香港立法会议员罗冠聪获拜登邀请参加美国民主峰会](/content/gnews/39/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共不装了：房子不炒不行！](/content/gnews/37/README.md)
+### [鸡贼潘石屹电费赚差价，被罚8664万元](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [前香港立法会议员罗冠聪获拜登邀请参加美国民主峰会](/content/gnews/38/README.md)
+### [【樱花深度报道】中国威胁将导弹藏在集装箱中，以特洛伊木马方式在世界任何地方发动攻击（下）](/content/gnews/41/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [【樱花深度报道】中国威胁将导弹藏在集装箱中，以特洛伊木马方式在世界任何地方发动攻击（上）](/content/gnews/42/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美民主党众议员：仅外交抵制北京冬奥会远远不够](/content/gnews/43/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [鸡贼潘石屹电费赚差价，被罚8664万元](/content/gnews/39/README.md)
+### [日本政府计划改革财政税收，中小型企业提高工资，减免税款](/content/gnews/44/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【樱花深度报道】中国威胁将导弹藏在集装箱中，以特洛伊木马方式在世界任何地方发动攻击（下）](/content/gnews/40/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [【樱花深度报道】中国威胁将导弹藏在集装箱中，以特洛伊木马方式在世界任何地方发动攻击（上）](/content/gnews/41/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美民主党众议员：仅外交抵制北京冬奥会远远不够](/content/gnews/42/README.md)
+### [一百多名共和党议员反对医疗雇员强制接种中共病毒疫苗](/content/gnews/45/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [日本政府计划改革财政税收，中小型企业提高工资，减免税款](/content/gnews/43/README.md)
+### [中共国驻美使馆歇斯底里玩自慰！](/content/gnews/46/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [一百多名共和党议员反对医疗雇员强制接种中共病毒疫苗](/content/gnews/44/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [中共国驻美使馆歇斯底里玩自慰！](/content/gnews/45/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共在西非建立军事基地的计划彰显其欲霸全球的野心](/content/gnews/46/README.md)
+### [中共在西非建立军事基地的计划彰显其欲霸全球的野心](/content/gnews/47/README.md)
  ` 澳喜农场`
-
-### [港股开启“血洗”模式，多个数据创新低纪录](/content/gnews/47/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [欧盟宣布延长制裁中共国官员](/content/gnews/48/README.md)
  ` 日本东京方舟农场`

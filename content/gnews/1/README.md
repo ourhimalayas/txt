@@ -2,44 +2,36 @@
 ---
 
 
-## Hcoin To the Moon 上线第5天位列6国iTunes摇滚音乐榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1729806/)
+## DC每日热点1207
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1729915/)
 
-12/07/2021 郭文贵先生的歌曲Hcoin To the Moon上线第5天位列6国iTunes摇滚音乐榜首
+编辑：楚门门
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2449AC42-5CFE-4835-AE75-8090CFCB9FDD-scaled.jpeg)
+道琼斯指数 35227.03 ▲1.87%
+纳斯达克指数 15225.15 ▲0.93%
+WTI纽约原油CFD 71.444 ▲2.79%
+布伦特原油CFD 74.743 ▲2.30%
+标普50指数 3,055.82 ▼36.06%
+美元兑人民币 1USD=6.368 RMB
+美元兑港币 1USD=7.796 HKD
+国际黄金 1773.03美元/盎司
+全球CCP病毒感染人数 266,899,802例
 
-* * *
-
-[【PDF 下载】Tuesday-7-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-7-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-7-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-* * *
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-7-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-7-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_2.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-7-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_3.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-7-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_4.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-7-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-7-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_6.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-7-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-7-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_8.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-7-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-7-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-7-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_11.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-7-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_12.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-7-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_13.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-7-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_14.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-7-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_15.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-7-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_16.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-7-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_17.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-7-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_18.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-7-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_19.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-7-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_20.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-7-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_21.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-7-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_22.jpg)
-
-
-[【PDF 下载】Tuesday-7-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-7-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-7-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+1、美日两国计划明年1月在美国举行外交及国防首长2+2会谈
+2、普京新德里会晤莫迪 重新强调“经受了时间考验”的俄印友谊
+3、美参议院计划圣诞节前就社会保障网法案表决
+4、最新报告：全球军售百强 美国第一 中共国第二
+5、拜登行政当局将不派任何外交或官方代表出席2022年北京冬季奥运会和残疾人奥运会，国际奥委会表示”尊重美国的决定”
+6、中共国地产业巨头恒大集团12月6日港股开盘后股价暴跌，跌幅超过11%，跌至11年来的最低点
+7、莫斯科继续挑战北京 越南之后俄再帮印尼开采南中共国海资源
+8、新西兰副总理格兰特·罗伯逊表示新西兰已决定不派外交代表出席明年2月的北京冬奥会
+9、法国总统府：抵制北京冬奥会与否将在欧洲层面协调
+10、德国新内阁全员确定，从周三开始，新一届联邦内阁将正式走马上任
+11、岸田表示是否对北京冬奥会做外交抵制日本有独自的立场
+12、俄若入侵乌克兰美国将金融制裁并强化欧洲东部驻军
+13、应对第五波疫情，法国宣布加强小学里的防疫措施并关闭夜总会
+14、联合国缅甸人权状况特别报告员安德鲁斯周一敦促各国，加强向缅甸军政府的经济压力
+15、美军建成新反导雷达阵列 可追踪高超音速武器
 
  
 
