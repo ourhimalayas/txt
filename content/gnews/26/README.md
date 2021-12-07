@@ -2,39 +2,32 @@
 ---
 
 
-## 最新｜社媒消息:纽约市市长强制私营企业员工和儿童注射中共病毒疫苗
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1728252/)
+## GTV新闻访谈简报|2021年12月6日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1728255/)
 
-**By:秘翻新闻**
+作者：香草山翻译部
 
-**2021-12-7**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/mfile_1623068_1_L_20211207032851.jpeg)*图片源于网络*
-据abc7ny 12月6日报道， 纽约市市长白思豪（Bill de Blasio）宣布，从12月27日开始，纽约市所有私营部门的雇主都必须接种COVID疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-109-1280x172-1-2-1.jpg)
 
-白思豪称这项违背民意的措施是“全国首创”的。他还罔顾事实地对纽约民众说，接种中共病毒是摆脱大流行病的方法，可是对打了中共病毒疫苗后出现的副作用，他却是提都不提。
 
-此外，白思豪说，从12月14日开始，5至11岁的儿童在室内就餐、健身和娱乐时，必须要有疫苗证明。室内活动的儿童需要打两针疫苗，12岁及以上的人需要打一针。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1206text-SC.png)
+校对：Stay文苑
 
-而且该年龄段的儿童，如果想要参加高风险的课外活动，也必须要先接种中共病毒疫苗。这些活动包括体育、乐队、管弦乐队和舞蹈。
+编辑：Stay文苑
 
-不仅如此，他还对纽约的家长们进行威胁利诱，他说：“这里提醒你，让你的孩子接种疫苗。一剂疫苗就能让孩子立即获得参加任何这些活动的资格。”
+发稿：Stay文苑
 
-就在白思豪宣布该措施后，纽约市伙伴关系的首席执行官凯瑟琳·怀尔德（Kathryn Wylde）认为这是不可以执行的，并表示该措施将在法庭上受到质疑。她说，白思豪在离任前三天制定这严格的政策，“是我们现在最不需要的”。
+视频参看：[12.6  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61aeb8bebbd75f62e531446b)
 
-怀尔德指出，拜登政府对拥有100名或以上雇员的企业的强制疫苗规定被联邦法院搁置，等待法院审查。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-69.jpeg)
 
-据报道，在最近宣布对城市雇员、托儿所和非公立学校雇员进行疫苗接种的规定后，扩大了接种范围。全市94%的劳动力都接种了疫苗。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-纽约市已经接种了超过1250万剂的疫苗。近650万纽约人–包括89%的成年人–已经接受了至少一剂疫苗。根据该市的数据，超过12.5万名5-11岁的儿童已经接受了至少一剂疫苗。
-
-秘翻新闻主编 Grace 编译报道
-
-校对/发布:星星
-
-* * *
-
-**欢迎广大战友加入 【秘密翻译组-即时新闻播报组】**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/IMAGE-2021-11-29-195110-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

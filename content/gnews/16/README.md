@@ -2,40 +2,55 @@
 ---
 
 
-## 巴西两名婴儿错误接种新冠疫苗后被送院
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1728365/)
+## 美国证券交易委员会主席表示他不支持比特币的“离网”融资方式
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1728370/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+**翻译：文扬**
+**编辑：**C**andy**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/jcr_content.img_.600.high_.png)
-
-
-
-图片来源:  www.scholastic.com
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/bitcoin.png)图片来源：[cryptoslate.com](https://cryptoslate.com/sec-chair-says-he-doesnt-support-bitcoins-off-the-grid-approach-to-finance/amp/)
 
 
-#### 编译 ：小红帽
+加里·詹斯勒 (Gary Gensler) 称比特币扰乱了全球银行体系，这显示了他的真面目。
 
-在巴西，一名护士混淆了不同功效的疫苗药瓶，误将辉瑞公司的新冠病毒（Covid-19）疫苗注射给两名婴儿，最后导致婴儿被送进医院。
+美国证券交易委员会主席加里·詹斯勒终于透露了他对比特币的立场，称他不支持比特币的 “离网 “融资方式。
 
-这一令人震惊的失误首先由媒体报道，并于周日得到巴西圣保罗州索罗卡巴市的地方当局正式确认。
+“2008年，中本聪写了这篇论文，部分原因是作为一种反应，一种非主流类型的方法。有一些你我不支持的竞争，这并不奇怪，但这正试图破坏全球共识。”
 
-一名两个月大的女孩和一名四个月大的男孩上周三来到该地区的一家医疗机构，注射五价疫苗。该疫苗可保护儿童免受白喉、百日咳、破伤风、乙肝和乙型流感病毒的侵害。
+鉴于詹斯勒在麻省理工学院教授区块链技术的经验，许多人称他是领导证券监管机构的 “正确选择”。但是，在宣誓就职后的8个月里，可以说在他迄今为止的任期内，并没有像许多人想象的那样推动加密货币领域的发展。
 
-然而，回家后不久，两名婴儿就发开始高烧，呕吐并拒绝喝奶。父母给他们喂药也未能改善他们的病情。
+更重要的是，他最近的上述评论表明他效忠于传统行业。 但这有什么好惊讶的？
 
-随后，索罗卡巴的卫生部长维尼修斯·罗德里格斯（Vinicius Rodrigues）与这些家庭取得了联系，并告诉他们护士犯了一个错误，这两名婴儿被注射了新冠病毒疫苗。
+比特币是银行业的竞争对手。
 
-两名婴儿被安置在当地的Gpaci医院。据报道，他们现在感觉好多了，但在一段时间内无法回家。当地政府联系了辉瑞公司，并被告知在接下来的10至15天内应该对这些孩子进行监测。
+詹斯勒在周三的数字资产合规性与市场完整性（DACOM）峰会上表示，目前的银行系统是40年来的调整的结晶。
 
-负责的护士表示，她混淆了这些小药瓶，因为它们看起来太相似了。该名护士已被停职并等待调查。
+大约 40 年前，我们在全球范围内通过洗钱和各种制裁和制度对我们的数字货币系统进行了分层； 我们将其分层在一个我们称为银行系统内的数字货币系统上。”
 
-**参考新闻：**[Babies hospitalized after getting Covid-19 vaccine — RT World News](https://www.rt.com/news/542288-babies-vaccine-pfizer-brazil/)
+他接着说，比特币在2008年推出，是对银行系统的一种反应。他补充说，他不支持这种 “离网 ”的做法，因为它破坏了银行的共识。
 
-***发布：小红帽***
+然而，中本聪说，比特币作为货币贬值体系的替代品是必要的。实际上是在暗示中央银行的运作不符合人民的利益。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+“必须相信中央银行不会让货币贬值，但法定货币的历史充满了对这种信任的破坏。”
+
+第一笔比特币交易是在2009年1月3日进行的，包括一条关于英国财政大臣决定救助苏格兰皇家银行、劳埃德银行、布拉德福德银行和北岩银行的信息。
+
+詹斯勒应该是 “那个人”。
+
+加密货币市场对詹斯勒在 3 月份被任命为美国证券交易委员会主席感到乐观。 IOHK 首席执行官查尔斯·霍斯金森 (Charles Hoskinson) 表示，他了解区块链领域是个好兆头。
+
+“我喜欢对詹斯勒的任命，其中一个原因是他能干。 他是一个非常聪明的人，他完全了解我们的行业，他在麻省理工学院教授区块链领域。”
+
+然而，詹斯勒不愿意结束美国证券交易委员会对瑞波公司（Ripple）的诉讼，加上一连串的类似事件，包括呼吁加强监督，至少表明他并不支持自由市场的加密货币改革。
+
+詹斯勒一直坚持认为，他的职责是保护散户投资者免受欺诈和操纵。
+
+新闻链接： [SEC Chair says he doesn’t support Bitcoin’s “off-the-grid” approach to finance (cryptoslate.com)](https://cryptoslate.com/sec-chair-says-he-doesnt-support-bitcoins-off-the-grid-approach-to-finance/amp/)
+
+***发布：Candy***
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
