@@ -2,20 +2,27 @@
 ---
 
 
-## 疫苗数据: 7岁儿童在接受中共病毒疫苗注射后脑出血
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1729701/)
+## 又抓住了话语权的制高点？中国外交部：没请你，你抵制啥？
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1729715/)
 
-翻译：nstar
-![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Image-2021-12-06-at-8.55.33-PM-1.jpeg)图片来源：塔克卡尔森队
-一位名叫巴里·格温(Gewin)的男子的一篇 Facebook 帖子在网上疯传，他写下他的小侄女哈珀（Harper）在第一次注射中共病毒辉瑞疫苗后患有中风和脑出血。根据11月25日发布的帖子，他的侄女因危及生命而被送往重症监护室。
+撰稿/配图：东京樱花团/ Ob
+![](https://assets.gnews.org/wp-content/uploads/2021/12/4-5.png)
+路透北京12月6日，中共国外交部发言人赵立坚周一表示，如美国一意孤行炒作所谓“外交抵制”北京冬奥会，中方必将坚决反制。
 
-格温发布了她的侄女在被送往 ICU 后第一次走路的视频。四天前，Gewin 从他的兄弟那里收到了另一个更新，他说 哈珀（Harper） 没有吃、喝、坐或走路，他们正在对她进行很多测试。
+“美国政客在没有受到邀请的情况下，不断炒作‘外交抵制’北京冬奥会，完全是自作多情，哗众取宠。”他在外交部例行新闻发布会上称。
 
-昨天，Gewin 发布了另一条更新，并说 Harper 在被关在医院 9 天后现在在家。经证实，她是在住院前 7 天接受的辉瑞疫苗注射。
+赵立坚称，美方应该做的是端正态度，践行更团结的奥林匹克精神，严肃对待中国关切，不将体育运动政治化，停止炒作所谓的“外交抵制”北京冬奥会，以免影响中美在重要领域的对话合作。
 
-信息来源：[https://teamtuckercarlson.com/news/7-year-old-child-allegedly-suffers-stroke-and-brain-hemorrhage-one-week-after-receiving-pfizer-shot/](https://teamtuckercarlson.com/news/7-year-old-child-allegedly-suffers-stroke-and-brain-hemorrhage-one-week-after-receiving-pfizer-shot/)
+善于在最丢人的时候找点面子，在最窘迫时候找点心理安慰，在最失败时候找点亮点是中共官员自我保命的一项基本技能。阿Q式的思维模式，寻求责任自我解脱的同时，竟堂而皇之地成为说服别人相信自己“伟光正”的“利器”。其实他们也未必相信，但是就是要说的理直气壮，说的让别人都怀疑人生，那他们就赢了！
 
-校对发布：Shifter
+消息来源：
+
+[中国外交部：若美国一意孤行炒作“外交抵制”北京冬奥会 中方必将“坚决反制”](https://cn.reuters.com/article/china-foreign-ministry-usa-1206-mon-idCNKBS2IL0OL)
+
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
+
 
  
 
