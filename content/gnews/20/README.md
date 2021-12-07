@@ -2,10 +2,10 @@
 ---
 
 
-## 中共通过债务陷阱方式意欲获取乌干达国际机场
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1729334/)
+## 男孩接种中共病毒疫苗后产生抽动症症状
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1729343/)
 
-11/30/3031 中共再次通过臭名昭著的债务陷阱方式意欲获取乌干达国际机场。
+09/2021 视频中的小男孩接种中共病毒疫苗后产生抽动症症状，母亲伤心欲绝。家长不要盲目给孩子接种疫苗，一定要结合孩子目前的健康状况。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
