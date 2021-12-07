@@ -2,32 +2,29 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月6日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1728255/)
+## 阿富汗经济崩溃，超半数人口面临饥荒
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1728319/)
 
-作者：香草山翻译部
+**By:秘翻新闻**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-109-1280x172-1-2-1.jpg)
+**2021-12-7**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/p-4HoeV5RpJyM0g1EeqnqCM2PJU22X-qIF2uGiBdrho-1.jpeg)*图片源于网络*
+12月4日，据《纽约时报》报道，目前，阿富汗国内经济正在全线走向崩溃，同时还将有超过半数的人口在今年冬天面临饥荒。
 
+据了解，自塔利班夺取政权的近四个月以来，阿富汗经济急剧恶化，目前正处于大规模饥荒的边缘。据联合国世界粮食计划署和粮食及农业组织分析，今年冬天，预计将有超过两千两百八十万的人口都潜在面临危及生命程度的粮食短缺，这一数字占到了阿富汗总人口数的50%。其中，该国已有八百七十万人正在接近饥荒。而世界援助组织还表示，在今年冬天，预计还将会有一百万的阿富汗儿童死于饥饿——这一数字是过去20年来直接死于战争的阿富汗人口数量的将近五倍。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1206text-SC.png)
-校对：Stay文苑
+据悉，阿富汗此次经济的全面崩溃是塔利班武力夺取该国政权的直接结果。阿富汗作为中东国家，其粮食的主要来源一直是依赖于进口。自塔利班非法执政之后，阿富汗的外汇储备日益短缺，同时还有数十亿美元的西方援助被直接冻结，这使阿富汗国内粮食储备严重不足的困境马上凸显出来。目前，因不满塔利班对本国同胞的屠杀与掠夺，美国已对其采取美元制裁，阿富汗国内银行系统已经瘫痪。
 
-编辑：Stay文苑
+日前，文贵先生再次爆料，目前阿富汗国内的粮食短缺程度已难以想象。在黑市中，仅用一袋面粉就能够购买到四个活生生的少女。此次，阿富汗经济的全面崩塌与普遍性质的饥荒再次印证了文贵先生早前在大直播节目中的爆料，尽管中共已成功通过塔利班控制住了整个阿富汗局势，使美国在阿富汗花费的二十年时间与十万亿美元都毁于一旦，但塔利班终将会因粮食以及一切物资的极度短缺而被迫倒台，这也会是中共将要面对的未来。
 
-发稿：Stay文苑
+秘翻新闻主编 Noemi编译报道
 
-视频参看：[12.6  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61aeb8bebbd75f62e531446b)
+发布:星星
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-69.jpeg)
+* * *
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
+**欢迎广大战友加入 【秘密翻译组-即时新闻播报组】**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/IMAGE-2021-11-29-195110-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

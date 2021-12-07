@@ -2,52 +2,35 @@
 ---
 
 
-## 阿富汗发生惨烈的人道危机，全球媒体仍噤声
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1728513/)
+## 中共发布《中共国的民主》白皮书，妄图重新定义民主
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1728586/)
 
-作者：银河勇气星—骄子
+作者：日本方舟农场 Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+中共于12月4日发布《中共国的民主》白皮书，叫嚣自己也是民主。
 
+![拜登全球民主峰会在即北京使出浑身解数对阵军政|军事新闻☀阿波罗新闻网](https://m1.aboluowang.com/uploadfile/2021/1205/20211205104642613.jpg)图片来源：阿波罗
 
+中共国新办在发布白皮书之后，举行了新闻发布会，强调坚持中共一党领导，不跟民主冲突。并且通过把民主狭义地定义为中共所谓的全过程民主，并突出这就是中共的内在要求，混淆了民主的概念，将一党独裁美化成民主的一种形式。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-近日，郭先生在直播中多次提及，阿富汗发生了惨绝人寰的人道危机。共产党利用塔利班占领了阿富汗以后，阿富汗女性随即沦为塔利班极端分子的泄欲工具，尤其是处女、幼女。目前，阿富汗国内粮食极度短缺，几乎每分每秒都有人饿死。
-
-郭先生指出，在阿富汗过去是1个处女换4袋面，现在是4个处女一袋面。人活得还不如一袋面。郭先生想帮助阿富汗，送粮食过去。但是如何送过去，如何确保粮食送到灾民手里，他们又怎么煮着吃，这些都是问题。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1.1-3.jpg)
-如今，阿富汗境内发生的人道主义危机，整个世界的媒体没有一家有报道，全部禁声，只能在郭先生在GTV直播中传达真相。
-
-郭先生提醒，阿富汗的今天就是中共国的明天。粮食短缺带来的人道灾难，背后都是共产党的邪恶独裁统治的恶果。
+同时国新办和中共喉舌媒体环球时报还抨击了美国西方的民主，说中共的白皮书打破了美国西方对民主定义的垄断，还特别强调因为西方没有一党独裁所以出现了散乱，并且这最终会导致民主走向它的反面。也就是在暗示中共的独裁才是真民主，美国西方是假民主。
 
 参考链接：
-[2021年12月05日 文贵大直播：全球数字货币市场改观；亚洲政治军事形势大变；恒大地产与美金融市场；喜币近况与未来的意义](https://gtv.org/video/id=61acb7bebbd75f62e52f7ce4)
+1）[国新办：在中国搞西方那一套所谓“民主” 很容易搞散、搞乱](https://china.huanqiu.com/article/45qbYgHJMDK)
+2）[社评：中国白皮书打破了美西方对民主定义的垄断](https://mil.news.sina.com.cn/2021-12-04/doc-ikyamrmy6838067.shtml)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-总编：飞虹
-编辑：木白
-校对/发稿：为真不破20
+总编：Ivy001
+编辑/校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

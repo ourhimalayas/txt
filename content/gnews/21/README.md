@@ -2,44 +2,30 @@
 ---
 
 
-## 巴西两名婴儿错误接种新冠疫苗后被送院
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1728365/)
+## 多项研究结果表明“奥密克容”是中共病毒武器
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1728396/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+采编/编译撰稿：薇文
+![](https://assets.gnews.org/wp-content/uploads/2021/12/05-image.jpg)
+[图像来源](https://www.the-scientist.com/news-opinion/omicron-is-who-s-fifth-variant-of-concern-experts-urge-patience-69472)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/jcr_content.img_.600.high_.png)
+据本台记者12月5日报道，近期由多国科学家共同发布的研究报告称，因在“奥密克戎”刺突蛋白的37个突变中，发现了名为“214EPE”的唯一[插入突变]，而引起了科学界对该病毒变体并非源于自然的高度关注。
 
+报告称，“新冠病毒”基因序列都以[替换突变]、[缺失突变]为主， [插入突变]则在变异进化中极为罕见，而且该异常[插入突变]从未存在于以往任何基因序列中。另外，在该病毒进化史上，最具功能作用的[插入突变]是在[弗林酶切位点]人为植入模仿自然属性的“PRRA” 刺突蛋白。
 
+据悉，用自然界“云南蝙蝠病毒”和“穿山甲病毒”做伪装，并带有“PRRA”刺突蛋白的“中共病毒”来自[武汉病毒研究所]。因此，“奥米克容”基因序列中这一怪异[插入突变]的来源也就值得被高度怀疑。
 
-图片来源:  www.scholastic.com
+报告还指出，由于“艾滋病毒”在结合人类“冠状病毒”共同作用后，可使其变异毒株更具传播性和感染性，所以本次始于南部非洲艾滋病高发区的强传染性“奥密克戎”疫情，极有可能是中共再次故意投放病毒所致。
 
+校对编辑：硫酸羟氯喹64
 
-#### 编译 ：小红帽
+发稿：苦尽甜来 (文來）
 
-在巴西，一名护士混淆了不同功效的疫苗药瓶，误将辉瑞公司的新冠病毒（Covid-19）疫苗注射给两名婴儿，最后导致婴儿被送进医院。
+[参考链接1](https://osf.io/f7txy/)
 
-这一令人震惊的失误首先由媒体报道，并于周日得到巴西圣保罗州索罗卡巴市的地方当局正式确认。
+[参考链接2](https://www.sciencedirect.com/science/article/pii/S2589004221014498%23bib144)
 
-一名两个月大的女孩和一名四个月大的男孩上周三来到该地区的一家医疗机构，注射五价疫苗。该疫苗可保护儿童免受白喉、百日咳、破伤风、乙肝和乙型流感病毒的侵害。
-
-然而，回家后不久，两名婴儿就发开始高烧，呕吐并拒绝喝奶。父母给他们喂药也未能改善他们的病情。
-
-随后，索罗卡巴的卫生部长维尼修斯·罗德里格斯（Vinicius Rodrigues）与这些家庭取得了联系，并告诉他们护士犯了一个错误，这两名婴儿被注射了新冠病毒疫苗。
-
-两名婴儿被安置在当地的Gpaci医院。据报道，他们现在感觉好多了，但在一段时间内无法回家。当地政府联系了辉瑞公司，并被告知在接下来的10至15天内应该对这些孩子进行监测。
-
-负责的护士表示，她混淆了这些小药瓶，因为它们看起来太相似了。该名护士已被停职并等待调查。
-
-**参考新闻：**[Babies hospitalized after getting Covid-19 vaccine — RT World News](https://www.rt.com/news/542288-babies-vaccine-pfizer-brazil/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[参考链接3](https://journals.asm.org/doi/10.1128/JVI.01751-20)
 
  
 
