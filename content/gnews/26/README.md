@@ -2,74 +2,42 @@
 ---
 
 
-## 健身健心
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1728922/)
+## 【币圈新闻】日本最高银行监管机构将在2022年立法限制稳定币发行
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1728977/)
 
-**作者：澄道来了、文信
-编辑：翼族**
-![此图像的alt属性为空；文件名为Dt62I9WU4AArv8V.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/Dt62I9WU4AArv8V.jpg)
-战友日常挑战多
-居家健康系家国
-北美教练健身哥
-正道岁月不蹉跎
+编译：玫瑰天空
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片-2-2.jpg)日本金融厅（Shutterstock）
+2021年12月7日，据CoinDesk 的新闻记者[**夏安利贡**](https://www.coindesk.com/author/cheyenne-ligon/)**（**Cheyenne Ligon ）
 
-从我做起
-即刻行动
+发文报道，[日经亚洲](https://asia.nikkei.com/Spotlight/Cryptocurrencies/Stablecoins-to-face-new-restrictions-in-Japan)周一的[一份报告称，](https://asia.nikkei.com/Spotlight/Cryptocurrencies/Stablecoins-to-face-new-restrictions-in-Japan)日本最高银行监管机构将于 2022年出台新的立法，旨在限制向银行和电汇公司发行稳定[币](https://www.coindesk.com/learn/what-is-a-stablecoin/)。
 
-爆革持续四年时
-不离循序行动事
+日本金融厅 (FSA) 将提出的法规旨在加强该机构对稳定币市场的控制，以保护消费者免受 Tether 等资产支持稳定币的潜在风险。
 
-挑战自身肥胖体
-燃脂渐行善妙计
+FSA 的举动反映了美国的类似提议。11月，总统金融市场工作组与包括货币监理署(OCC)在内的其他监管机构发布了[一份关于稳定](https://www.coindesk.com/policy/2021/11/02/the-us-treasurys-stablecoin-report-would-treat-issuers-like-banks-but-doesnt-address-how/)币的[报告](https://www.coindesk.com/policy/2021/11/02/the-us-treasurys-stablecoin-report-would-treat-issuers-like-banks-but-doesnt-address-how/)，其中包括对银行等稳定币发行人的建议。
 
-饮食有序
-首口再口
-蛋白叶菜
-主控岛胰
+根据该报告，该立法还将包括防止通过稳定币进行洗钱的措施，通过给予该机构对钱包提供商等中介的额外监督，并增加额外的了解你的客户 (KYC) 措施。
 
-自食亲作
-材量有节
-一日一餐
-功显有期
+今年1月，包括三菱在内的70多家日本大公司组成的财团[预计将开始](https://www.coindesk.com/policy/2021/11/24/japanese-consortium-plans-to-issue-bank-deposit-like-digital-yen-by-2022-end/)试用[央行数字货币](https://www.coindesk.com/policy/2021/10/15/bank-of-japan-seeks-plain-easy-to-cook-cbdc-model/)(CBDC)，即数字日元，他们表示这种[货币](https://www.coindesk.com/policy/2021/10/15/bank-of-japan-seeks-plain-easy-to-cook-cbdc-model/)将像银行存款一样发挥作用。
 
-轻度断食
-细胞自噬
-实战实操
-因人而宜
+此前，日本央行(BoJ)执行董事 Shinichi Uchida 曾将在一次演讲中表示，日本央行(BoJ)将尝试开发一种可以与私人支付方式轻松共存的央行数字货币(CBDC)。
 
-爆料战友
-唯真不破
-誓灭中共
-健身先行
+- Shinichi Uchida周五[表示](https://www.boj.or.jp/announcements/press/koen_2021/ko211015a.htm/)，为了寻求“垂直共存”，与公众使用的其他支付方式，CBDC应该由“相对有计划、易于烹饪的材料”组成。
+- 中央银行官员引用了一个例子，其中可以在私人公司提供的数字钱包中使用CBDC。
 
-惩贼打伪
-爆料革命铲垃圾
-一波茵提九指妖
-再波大头蛇妖阎
 
-健身健心
-新中国联邦公民
-轻断食初期松腹
-三期过后气神清
+援引：
 
-战友健身
-正道健康
+[https://www.coindesk.com/policy/2021/12/06/japan-moves-to-impose-new-regulations-on-stablecoin-issuers-report/](https://www.coindesk.com/policy/2021/12/06/japan-moves-to-impose-new-regulations-on-stablecoin-issuers-report/)
 
-灭共人生无他求
-健康性命第一由
+[https://www.coindesk.com/policy/2021/10/15/bank-of-japan-seeks-plain-easy-to-cook-cbdc-model/](https://www.coindesk.com/policy/2021/10/15/bank-of-japan-seeks-plain-easy-to-cook-cbdc-model/)
 
-@ 佛前一杯饮
-@ 文信
-@ 澄道来了
-@ 爱动爱议码12052
 
-***发布：陶子***
 
-**更多资讯，请关注：**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+采 集：神之一手
+审核校对：Barry Jack
+上传排版：F
+
+
 
  
 

@@ -2,73 +2,22 @@
 ---
 
 
-## 视频| 新中国联邦的“太空币”和它的技术含量
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1728925/)
+## 欧洲议员声援民众抵抗疫苗暴政
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1729016/)
 
-## 摘自2021.12.5郭先生大直播
+撰稿：东京樱花团 – 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间12月4日，德裔欧洲议员克里斯汀.安德森，在社交平台发布短片，公开声援澳洲人民连续多周抗议疫苗暴政，并严厉谴责澳洲当局践踏人权、自由和法治，将一个民主国家变成集权统治。
 
-制作：香草山视频部
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-315.png)
 
+安德森说，历史从来没有一个好人会强迫他人服从，人民的福祉从来都只是暴君的托词。澳大利亚不需要所谓的“疫苗”战略计划，澳大利亚需要的是“无压迫”战略计划。安德森一针见血得指出，政府推行疫苗根本不是为了预防病毒，而是为了打击和消灭人类。 她提醒全世界人民，自由是个人的选择，而非政府的施舍。她呼吁澳洲人民，从现在起就必须挺身反抗。
 
+消息链接：[https://gettr.com/post/piulodcba8](https://gettr.com/post/piulodcba8)
 
-我今天告诉大家
-你等看到咱们新中国联邦出来的
-我们会让你看到这个纯金的金币
-这个金币最大额可能是100万美元
-从100美金到100万美元
-他有绝对的加密技术
-这个加密到什么程度
-是百分之一万的给你承担责任
-没有任何可以破解
-怎么交给你呢
-通过你的生理识别加技术识别
-你就可以拿出来100万美元
-那100万美元你说我拿着我想换现金
-有专门的第三方Hbank专门给你兑现
-你要什么货币都给你
-那我不要钱我想提黄金
-让你提到世界上最安全最保障的
-认可的黄金 你可以提走
-这就是咱们这个未来的喜联储
-绝对天下无敌了
-记住我今天说的话
-你记住你七哥说的话
-会让你在突然间让你看到
-这说的话都不是开玩笑的
-这个技术的最重要是什么
-就是电的能源
-这个你怎么解决电的问题
-你怎么觉得这个金币里边有电的问题
-和金币怎么来确认我的生理密码
-确认到你那儿去
-你拿着你可以到处提现去
-我们这叫什么 这叫太空币
-完全是地球之外操作的
-没有任何人 而且是合理合法
-这种技术的核心最重要就是它的芯片
-这个芯片要被谁掌握了
-那就是他可以控制你
-这个芯片IBM的RAM没有任何人可以掌握
-而且这个芯片未来是跟我们的格芯一起生产
-是吧 是大家更懂了是吧
-从芯片的生产到芯片的合成
-到芯片的保密到外太空的交易系统
-地球人就没人管得了
-而且你想关键问题
-数字货币最大的问题
-支付，兑现，安全，保密，天下无敌
-那些去中心化的币都去死了吧
-没有任何人使用的
-我们这叫中心化的币
-和去中心化的交易系统
-和去中心化的技术天下无敌
-这就是技术的核心的核心
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-
-
-发稿：雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/M12.jpg)
+**校对/发稿：童谣**
 
 **更多资讯，更多关注**
 
@@ -78,10 +27,10 @@
 
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,37 +2,75 @@
 ---
 
 
-## 郭先生解释：为什么中共让百姓多生孩子，又强迫孩子打毒疫苗
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1728762/)
+## 健身健心
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1728922/)
 
-撰稿：东京樱花团 – 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在12月5日的大直播中，有战友问到，中共的三胎政策和给儿童注射毒疫苗，似乎是矛盾的。郭先生一番解答让人茅塞顿开。
+**作者：澄道来了、文信
+编辑：翼族**
+![此图像的alt属性为空；文件名为Dt62I9WU4AArv8V.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/Dt62I9WU4AArv8V.jpg)
+战友日常挑战多
+居家健康系家国
+北美教练健身哥
+正道岁月不蹉跎
 
-郭先生称，国人一贯的螺旋性思维是错误的，而要逆向思维才对。首先中共的官员虽然出于本能不会让自己和家人注射毒疫苗，但他也不认为老百姓打了疫苗就一定会出事，因为他们绝对不认为注射疫苗是一场人道灾难。就像他们杀害地主并性侵地主家的女性，但绝不会让人们性侵自己家的女性，因为他们知道这不是好事。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/0-2.jpg)
-另外，由于经济利益的驱动，因此地方政府极力强推疫苗政策。在金钱面前，中共官员的怀疑就被忽视掉了。其次，墙内打假疫苗在全世界是最多的，疫苗有假的，注射过程也有假的。但不幸的是，由于墙内众多父母的自私，会以爱的名义忽视孩子的生命安全和快乐，以不打疫苗不能上学为由，而默许孩子受到致命伤害。
+从我做起
+即刻行动
 
-中共的体制禁止一切独立思考，从而也屏蔽了一切真相，而三胎政策是中共共同利益的需求。共匪的官员，个人享受高于一切，打着国家和集体的旗号掠夺一切，既让鸡下蛋，又不让鸡吃粮；既让老百姓生孩子，又不保护孩子的安全。归根结底，共产党是一个病态、独裁、视人民如无物的魔鬼体制。
+爆革持续四年时
+不离循序行动事
 
-消息链接：[https://gtv.org/video/id=61aeacaf87fa7e74c92c7887](https://gtv.org/video/id=61aeacaf87fa7e74c92c7887)
+挑战自身肥胖体
+燃脂渐行善妙计
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+饮食有序
+首口再口
+蛋白叶菜
+主控岛胰
 
-**校对/发稿：童谣**
+自食亲作
+材量有节
+一日一餐
+功显有期
 
-**更多资讯，更多关注**
+轻度断食
+细胞自噬
+实战实操
+因人而宜
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+爆料战友
+唯真不破
+誓灭中共
+健身先行
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+惩贼打伪
+爆料革命铲垃圾
+一波茵提九指妖
+再波大头蛇妖阎
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+健身健心
+新中国联邦公民
+轻断食初期松腹
+三期过后气神清
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+战友健身
+正道健康
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+灭共人生无他求
+健康性命第一由
+
+@ 佛前一杯饮
+@ 文信
+@ 澄道来了
+@ 爱动爱议码12052
+
+***发布：陶子***
+
+**更多资讯，请关注：**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

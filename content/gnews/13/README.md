@@ -2,35 +2,30 @@
 ---
 
 
-## 欧洲议员声援民众抵抗疫苗暴政
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1729016/)
+## 【速报】岸田首相：将从国家利益角度做出自己的决定
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1729107/)
 
-撰稿：东京樱花团 – 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间12月4日，德裔欧洲议员克里斯汀.安德森，在社交平台发布短片，公开声援澳洲人民连续多周抗议疫苗暴政，并严厉谴责澳洲当局践踏人权、自由和法治，将一个民主国家变成集权统治。
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2-11.png)（图片源自本文链接）
+12月7日TBS新闻报道称：针对美国政府以人权问题为由宣布对明年冬季北京奥运会和残奥会进行“外交抵制”，日本政府作出反应。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-315.png)
+岸田首相表示：关于日本的反应，我们将从国家利益的角度出发，考虑到奥运会的意义和对日本外交的意义，做出我们自己的决定。这就是日本的基本立场。
 
-安德森说，历史从来没有一个好人会强迫他人服从，人民的福祉从来都只是暴君的托词。澳大利亚不需要所谓的“疫苗”战略计划，澳大利亚需要的是“无压迫”战略计划。安德森一针见血得指出，政府推行疫苗根本不是为了预防病毒，而是为了打击和消灭人类。 她提醒全世界人民，自由是个人的选择，而非政府的施舍。她呼吁澳洲人民，从现在起就必须挺身反抗。
+内阁官房长官松野也在新闻发布会上说：我们将在适当的时候，综合全面的考虑，做出自己的决定，目前还没有任何决定。我们希望北京奥运会能够遵从奥运理念，作为一个和平的庆典来举行。
 
-消息链接：[https://gettr.com/post/piulodcba8](https://gettr.com/post/piulodcba8)
+美国政府已经向其盟友解释了美国的决定，并表示其它国家是否给予“外交抵制”，将由每个国家自行决定。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+国际奥林匹克委员会（IOC）告诉日本新闻网说：国际奥林匹克委员会“完全尊重美国这一决定”。之后,中共国驻美国大使馆发言人在推特上回应说“没有任何影响”。
 
-**校对/发稿：童谣**
+信息来源：
 
-**更多资讯，更多关注**
+[【速報】岸田首相「国益の観点から自ら判断する」　北京五輪への対応について　米の”外交的ボイコット”発表を受け（TBS系（JNN）） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/15a4547002155a50d58674c5211e0d886172bc1b)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

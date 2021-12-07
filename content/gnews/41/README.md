@@ -2,32 +2,70 @@
 ---
 
 
-## 郭先生谈中共内部北戴河会议
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1728725/)
+## 视频| 今日的成就都是昨日努力的结果
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1728843/)
 
-作者：银河勇气星 – 骄子
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-郭先生在12月3日的大直播中透露，中共每年夏天都会举行一次的北戴河会议，实际是中共现任领导人与退休老干部勾兑利益的会议，是中共的政治风向标。其中现任最高领导人和离退休领导的见面和会谈有非常严格的谈话时长控制，甚至精确到秒。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture2-4.jpg)
-在今年夏天8月1日到8月16日的北戴河会议中，习近平和中共元老宋平交谈40分钟，和前任中共总书记胡锦涛交谈90分钟，和王岐山交谈了两次，每次20分钟，其他的一些老干部都是掐紧20分钟就走。这一切安排都凸显了中共的政治趋势和走向。如与宋平、胡锦涛的会面时间长显示了习与二者更紧密的关系及与江家势力的对抗，而同属江家势力的王岐山出现在老同志的会议上则明确了其有虚职而无实权。
+## 摘自2021.12.5郭先生大直播
 
-北戴河会议结束后，习近平即对江家势力进行了大清洗，包括对江志成、马云、傅政华等人的抓捕，以及对孙力军的进一步惩处，江派彻底失势。习的做法也表明他相信了郭先生关于江家南普陀会议的信息。
+制作：香草山视频部
 
-参考链接：[郭先生谈中共内部北戴河会议](https://gtv.org/video/id=61aa1cecd6388d55041591e6)
 
-![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-总编：文特
-编辑：Lakeman/飞虹
-校对/发稿：Hetangyuese
+我们的《我是音雄》活动颁我这奖的时候
+我给大家说过一句话可能都忘了
+我一生最讨厌就是给我颁奖啊
+我也不愿意任何人给我要什么
+这样的名头那样的名头
+而这个奖呢我真的是我特别的荣幸
+因为这个奖是真的 它不是假的
+我不用赔谁上床
+我也不用给人送钱送礼
+而且是我们战友们这些一起
+在这种战争中啊发生出来的
+所以说我觉得我看这个奖的时候
+就特别不一样
+所以你看这个奖跟后面的那个美国队长
+超人的蓝还有迪斯尼
+所以说当今天再来看我们
+看刚才那打榜的歌的时候
+就像我小时候我爹我娘
+说我不懂一样啊
+就这些年轻人永远他不知道
+你的今天是你昨天积累的结果
+你的明天和后天就是今天你的行为的结果
+你看这今天的打榜歌
+你看今天这个奖
+再看我们今天的直播每个人
+是你过去一次一次的直播
+你害怕你怀疑你不自信你懒惰
+你找理由逃避的各种结果上了直播以后
+才轮到了今天
+没有一件事不是这样积累过来
+在七哥的衬衣七哥的西装
+七哥背后的画和七哥前面所有的
+刚才看到这个打榜第一次获得人生奖
+他都是你行动的结果
+当任何一样东西跟这连不起来的时候
+对你来讲都是灾难都是虚幻
+
+
+
+发稿：雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/M12.jpg)
 
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

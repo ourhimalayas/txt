@@ -2,23 +2,25 @@
 ---
 
 
-## 澳州NSW州的教师们忍无可忍在州府前罢工示威
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1727995/)
+## COVID-19 最新情报｜纽约市率先强制私企员工接种疫苗
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1728743/)
 
-撰稿：Jenny
-视频来源：澳喜战友录制
-2021年12月7日，周二，悉尼州府门前：一句“我们在书写历史！”的口号，拉开了一场由新南威士州教师工会组织的罢工游行示威。
+**撰文｜ 台湾宝岛农场 疫情关注组 / 发布时间｜7/12/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup）](https://gettr.com/user/mightygroup%EF%BC%89)**
 
-尽管天公不做美，但丝丝细雨没有挡住新洲教师们表达自己诉求的决心，从标语可以看出来，有的教师代表来自离悉尼几小时车程的偏远地区。
+【美国】因应 Omicron 变种新冠病毒的扩散，纽约市长白思豪（Bill de Blasio）周一（6日）宣布，本月27日起，所有私人企业的员工须证明已接种最少一剂新冠疫苗，并且不能以阴性检测结果代替，成为全美首例，预计届时将最少有18.4万间公司受到影响。
 
-据SkyNews 报道，这次活动的主要原因是：新州教师指责州政府 “无视自己的建议 “和 “不关心孩子”，他们无视一份报告警告教师人员短缺如此严重，学校 “将在五年内耗尽教师”。毫无疑问“不打疫苗不能继续执教”的要求加剧这种师资紧缺的事态。
+白思豪强调，圣诞假期将至，加上天气寒冷，有必要加强预防病毒扩散，市政当局会先谘询商界意见，制定详细指引，最快会于下周三（15日）前宣布。
 
-新南威尔士州教师联合会主席Angelo Gavrielatos说，数百页的内部文件和教育部和政府的秘密简报揭示了两个月前的问题有多深。他在澳大利亚天空新闻第一版上说：”我们向政府寻求的是根据它自己的建议采取行动，其中一份文件描述，情况严重到’我们将在五年内耗尽教师’，”。他指出，教师队伍老龄化和进入师范教育的人数下降30%是他们周二举行24小时罢工的原因。
+目前，美国最少有18个州录得 Omicron 确诊个案，周一起，美国收紧入境规管，要求入境的海外旅客提供出发前24小时的阴性检测证明。
 
-[部分引用自SKY NEWS](https://www.skynews.com.au/australia-news/nsw-teachers-federation-call-on-premier-dominic-perrottet-to-deal-with-the-crisis-of-poor-pay-conditions-and-staff-shortages/news-story/f2462b1d67cd7c067d36bd2328f3c67a)
+不过，全球政府对 Omicron 变体的过分紧张一直受到外界质疑，事源最先发现Omicron 变体病毒的南非，有医院研究过42名最近受感染的患者发现，他们大部分都没有病征，病情亦没有之前感染其他变体病毒的患者严重，当中只有一人需入住深切治疗部，同时大部分患者都是完全疫苗接种者。
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-2.jpg)
+因此，有评论认为，一个较低杀伤力的变体出现本有利于终止此次疫情，而各个政府不合常理的过分紧张，是为了制造恐慌，以促进现有疫苗及早用尽，避免过期而蒙受损失。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-5.jpg)
+来源｜[纽约市长新闻发布会](https://youtu.be/l9-4ZzRxV_8)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
