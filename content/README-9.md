@@ -16,6 +16,10 @@
 ---
 ## 頁面 9/38 [**<**](/content/README-8.md) [1](/content/README.md) ... [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) **9** [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) ... [38](/content/README-38.md) [**>**](/content/README-10.md) [查看全部](/content/README-all.md)
 
+[文字版：2020年11月8日郭文贵先生连线大卫](/content/2020/11/20201123-2602096722999962648.md)
+
+[文字版：2020年11月7日郭文贵先生直播视频](/content/2020/11/20201123-5742734290856122606.md)
+
 [文字版：2020年10月7日郭先生GTV直播](/content/2020/10/20201018-3690547876023765465.md)
 
 [文字版:2020年10月5日郭先生GTV直播 ](/content/2020/10/20201018-5793496232664041877.md)
@@ -61,10 +65,6 @@
 [文字版：2020年8月23日郭先生GTV直播](/content/2020/08/20200831-6862101542404324400.md)
 
 [文字版：2020年8月22日郭先生GTV直播连线秘密翻译组](/content/2020/08/20200831-6719006213940604734.md)
-
-[文字版:2020年8月21日郭先生GTV直播](/content/2020/08/20200831-2950510164966247295.md)
-
-[文字版:2020年8月16日郭先生GTV直播连线新西兰战友](/content/2020/08/20200831-5572954983708392558.md)
 
 
 ## 頁面 9/38 [**<**](/content/README-8.md) [1](/content/README.md) ... [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) **9** [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) ... [38](/content/README-38.md) [**>**](/content/README-10.md) [查看全部](/content/README-all.md)
