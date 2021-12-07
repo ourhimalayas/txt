@@ -15,130 +15,130 @@
 
 ---
 
-### [币圈新闻动态：喜币（HCN）价格目前在43.700 HDO](/content/gnews/1/README.md)
+### [台湾官渡医院前院长：疫苗生产商出资故意抹黑伊维菌素](/content/gnews/1/README.md)
+ ` 澳喜农场`
+
+### [2018年6月3日郭文贵先生与战友聊天全文字版](/content/gnews/2/README.md)
+ ` 温哥华扬帆农场七哥直播全文听写组`
+
+### [币圈新闻动态：喜币（HCN）价格目前在43.700 HDO](/content/gnews/3/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [澳洲出台禁令 限制伊维菌素处方](/content/gnews/2/README.md)
+### [北京强制体制内人员接种中共加强针 要求达到100%](/content/gnews/4/README.md)
+ ` 纽约香草山MOS02`
+
+### [澳洲出台禁令 限制伊维菌素处方](/content/gnews/5/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共发布《中共国的民主》白皮书，妄图重新定义民主](/content/gnews/3/README.md)
+### [中共发布《中共国的民主》白皮书，妄图重新定义民主](/content/gnews/6/README.md)
  ` GTV News Talk`
 
-### [首届台斯经济合作咨商会今日在台举行](/content/gnews/4/README.md)
+### [首届台斯经济合作咨商会今日在台举行](/content/gnews/7/README.md)
  ` GTV新闻访谈`
 
-### [美防长：中共疑似演练侵台，美将助台保持自卫武力](/content/gnews/5/README.md)
+### [美防长：中共疑似演练侵台，美将助台保持自卫武力](/content/gnews/8/README.md)
  ` GTV新闻访谈`
 
-### [中共国誓言对美国的奥运抵制采取反制措施](/content/gnews/6/README.md)
+### [中共国誓言对美国的奥运抵制采取反制措施](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [阿富汗发生惨烈的人道危机，全球媒体仍噤声](/content/gnews/7/README.md)
+### [阿富汗发生惨烈的人道危机，全球媒体仍噤声](/content/gnews/10/README.md)
  ` GTV新闻访谈`
 
-### [中共将在大西洋建立首个海军基地 威胁美国东岸](/content/gnews/8/README.md)
+### [中共将在大西洋建立首个海军基地 威胁美国东岸](/content/gnews/11/README.md)
  ` GTV新闻访谈`
 
-### [德国知名律师发起对卓斯滕教授和世卫的危害人类罪提起集体法律诉讼](/content/gnews/9/README.md)
+### [德国知名律师发起对卓斯滕教授和世卫的危害人类罪提起集体法律诉讼](/content/gnews/12/README.md)
  ` 纽约香草山MOS01`
 
-### [随着反对青少年疫苗护照的抗议活动的增加，政府再次建议接种疫苗](/content/gnews/10/README.md)
+### [随着反对青少年疫苗护照的抗议活动的增加，政府再次建议接种疫苗](/content/gnews/13/README.md)
  ` 首尔天池农场`
 
-### [被唤醒的记忆](/content/gnews/11/README.md)
+### [被唤醒的记忆](/content/gnews/14/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共宣称今年粮食增收2%但粮食进口却暴增23%](/content/gnews/12/README.md)
+### [中共宣称今年粮食增收2%但粮食进口却暴增23%](/content/gnews/15/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [郭文贵盘古和家人再次被共匪抄家后的直播音频2021.12.06](/content/gnews/13/README.md)
+### [郭文贵盘古和家人再次被共匪抄家后的直播音频2021.12.06](/content/gnews/16/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [美国公共卫生局局长称，接种三剂疫苗室内也要戴口罩](/content/gnews/14/README.md)
+### [美国公共卫生局局长称，接种三剂疫苗室内也要戴口罩](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国游轮在全员接种情况下爆发疫情](/content/gnews/15/README.md)
+### [美国游轮在全员接种情况下爆发疫情](/content/gnews/18/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [盘古冰天流落街头](/content/gnews/16/README.md)
+### [盘古冰天流落街头](/content/gnews/19/README.md)
  ` HimalayaRussia`
 
-### [文·贵天成——文贵先生谈“疫苗”（三十二）](/content/gnews/17/README.md)
+### [文·贵天成——文贵先生谈“疫苗”（三十二）](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [加拿大劳动力短缺迫使企业停止疫苗强制接种](/content/gnews/18/README.md)
+### [加拿大劳动力短缺迫使企业停止疫苗强制接种](/content/gnews/21/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [新冠病毒大流行期间全球武器销售额仍稳步增长](/content/gnews/19/README.md)
+### [新冠病毒大流行期间全球武器销售额仍稳步增长](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
 
-### [德国发现5-18岁健康儿童中死于新冠的概率接近于零](/content/gnews/20/README.md)
+### [德国发现5-18岁健康儿童中死于新冠的概率接近于零](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共国准备在大西洋建立第一个海军基地以此警告美方](/content/gnews/21/README.md)
+### [中共国准备在大西洋建立第一个海军基地以此警告美方](/content/gnews/24/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [多项研究结果表明“奥密克容”是中共病毒武器](/content/gnews/22/README.md)
+### [多项研究结果表明“奥密克容”是中共病毒武器](/content/gnews/25/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [7·24系列——普京的疯狂与“北下灭共”](/content/gnews/23/README.md)
+### [7·24系列——普京的疯狂与“北下灭共”](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
 
-### [文·贵天成——文贵先生谈“疫苗”（三十一）](/content/gnews/24/README.md)
+### [文·贵天成——文贵先生谈“疫苗”（三十一）](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
 
-### [强制疫苗授权恐摧毁美加供应链](/content/gnews/25/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [美国证券交易委员会主席表示他不支持比特币的“离网”融资方式](/content/gnews/26/README.md)
+### [美国证券交易委员会主席表示他不支持比特币的“离网”融资方式](/content/gnews/28/README.md)
  ` 墨尔本雅典娜农场`
 
-### [巴西两名婴儿错误接种新冠疫苗后被送院](/content/gnews/27/README.md)
+### [巴西两名婴儿错误接种新冠疫苗后被送院](/content/gnews/29/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线：【速报】美国表示地址北京冬奥会后日本如是说](/content/gnews/28/README.md)
+### [秘翻在线：【速报】美国表示地址北京冬奥会后日本如是说](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [阿富汗经济崩溃，超半数人口面临饥荒](/content/gnews/29/README.md)
+### [阿富汗经济崩溃，超半数人口面临饥荒](/content/gnews/31/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [GTV新闻访谈简报|2021年12月6日晚](/content/gnews/30/README.md)
+### [GTV新闻访谈简报|2021年12月6日晚](/content/gnews/32/README.md)
  ` 纽约香草山MOS01`
 
-### [拜登政府考虑切断俄罗斯的SWIFT国际支付系统](/content/gnews/31/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [纽约市商业团体抨击对私营企业的疫苗强制令](/content/gnews/32/README.md)
+### [纽约市商业团体抨击对私营企业的疫苗强制令](/content/gnews/33/README.md)
  ` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)`
 
-### [美国政府正式宣布外交抵制北京2022冬奥会](/content/gnews/33/README.md)
+### [美国政府正式宣布外交抵制北京2022冬奥会](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [英国资深保守党议员指控英政府发动“宣传战”忽悠百姓接受限制令](/content/gnews/34/README.md)
+### [英国资深保守党议员指控英政府发动“宣传战”忽悠百姓接受限制令](/content/gnews/35/README.md)
  ` 首尔天池农场`
 
-### [澳州NSW州的教师们忍无可忍在州府前罢工示威](/content/gnews/35/README.md)
+### [澳州NSW州的教师们忍无可忍在州府前罢工示威](/content/gnews/36/README.md)
  ` 澳喜农场`
 
-### [12/6/2021 文贵直播：数小时前，100多个法警、特警和100多个北京金隅的人封了盘古，将1000多名员工赶到街上](/content/gnews/36/README.md)
+### [12/6/2021 文贵直播：数小时前，100多个法警、特警和100多个北京金隅的人封了盘古，将1000多名员工赶到街上](/content/gnews/37/README.md)
  ` 秘密翻译组-北美组`
 
-### [12/6/2021 文贵直播：中共刚对盘古的员工再次进行了非法抢劫和虐待，把所有员工和我90岁的父亲赶到马路上](/content/gnews/37/README.md)
+### [12/6/2021 文贵直播：中共刚对盘古的员工再次进行了非法抢劫和虐待，把所有员工和我90岁的父亲赶到马路上](/content/gnews/38/README.md)
  ` 秘密翻译组-北美组`
 
-### [12/6/2021 文贵直播：今天发生在盘古的事情在中共国每时每刻都在发生，爆料革命战友们的富有、自由和明眼开智让中共恐惧](/content/gnews/38/README.md)
+### [12/6/2021 文贵直播：今天发生在盘古的事情在中共国每时每刻都在发生，爆料革命战友们的富有、自由和明眼开智让中共恐惧](/content/gnews/39/README.md)
  ` 秘密翻译组-北美组`
 
-### [因为Covid-19死亡人数不断增加特朗普要求拜登“离职”](/content/gnews/39/README.md)
+### [因为Covid-19死亡人数不断增加特朗普要求拜登“离职”](/content/gnews/40/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [盖特网页版新增“夜晚”模式](/content/gnews/40/README.md)
+### [盖特网页版新增“夜晚”模式](/content/gnews/41/README.md)
  ` 首尔天池农场`
 
-### [郭文贵精品视频-中美之战来临之际，媒体别再助纣为虐了](/content/gnews/41/README.md)
- ` 澳喜农场`
-
-### [郭文贵精品视频-中共与WHO再次勾兑](/content/gnews/42/README.md)
+### [郭文贵精品视频-中美之战来临之际，媒体别再助纣为虐了](/content/gnews/42/README.md)
  ` 澳喜农场`
 
 ### [辽宁省大连市中级人民法院公告](/content/gnews/43/README.md)

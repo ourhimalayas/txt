@@ -2,10 +2,10 @@
 ---
 
 
-## 中共将在大西洋建立首个海军基地 威胁美国东岸
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1728509/)
+## 美防长：中共疑似演练侵台，美将助台保持自卫武力
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1728528/)
 
-作者：纽约香草山农场 – 文真
+作者：纽约香草山医疗部 – 云豹
 
 
 
@@ -13,21 +13,14 @@
 
 
 
-12月5日，美国媒体披露了一系列机密情报，报告的主要结论指出，中共军方准备在非洲东海岸的大西洋建立首个永久性海军设施，即在赤道几内亚的一个深水港驻扎。
-
-赤道几内亚距离美国本土东岸仅有7000英里。美国官员接受采访表示，这些报告提供了中共军舰在美国东海岸对面重新武装和改装的可能性，为白宫和五角大楼敲响了警钟。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1.2-3.jpg)
-2017年，中共在非洲之角吉布提建立了第一个海外军事基地，距离美国在非洲最大的基地——莱蒙尼尔营——不到10英里。
-
-爆料革命在2017年就最早曝光了中共在全球军事扩张的野心。中共倡导的 “一带一路”，通过腐败贿赂等经济超限战手段，胁迫参与国签署中共的重大投资和基础设施交易，以 “军民融合”的方式推进中共的地缘政治利益。
-
+当地时间12月4日，美国国防部长奥斯汀在参加里根国防论坛时表示，中共最近在台湾附近进行的军事活动，疑似在对攻台进行预演。他表态，美国将依照一中政策及台湾关系法，继续支持台湾加强自我防卫的能力，以确保有能力来抵抗任何可能危及台湾人民安全的军事武力侵犯。 奥斯汀还表示，印太地区是一个充满机会与挑战的区域，最大的威胁，是正在崛起且不断强化独断专制力量的中共。他接着说，美国在太平洋区域拥有实力及掌控权，对美国来说，中共也不是十尺高的巨人。虽然我们正面对巨大的威胁，但当我们与盟友团结在一起时，我们就会更强大。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.2-3.jpg)
 参考链接：
-[China Poised To Establish 1st Ever Naval Base In Atlantic, Alarming US Officials](https://www.zerohedge.com/geopolitical/china-poised-establish-1st-ever-naval-base-atlantic-alarming-us-officials)
+[Lloyd Austin says increased China activity near Taiwan ‘looks like rehearsal’](https://www.foxnews.com/politics/lloyd-austin-says-increased-china-activity-near-taiwan-looks-like-rehearsal)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-总编：文特
-编辑：Lakeman文仁
+总编/编辑：文特
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**
