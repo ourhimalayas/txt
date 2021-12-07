@@ -15,104 +15,104 @@
 
 ---
 
-### [目前为止，美国至少在 10 个州发现了 Omicron 变种](/content/gnews/1/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [白宫宣布美国将外交抵制北京冬奥会，但允许运动员参赛](/content/gnews/1/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [澳洲正在 &#8220;积极考虑 &#8220;抵制冬奥会](/content/gnews/2/README.md)
- ` 走进澳洲`
+### [意大利大主教维加诺说：“反抗世界新秩序的人将得到上帝的帮助和保护”](/content/gnews/2/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [Eglise医生：疫苗接种者可能成为人造艾滋病状态](/content/gnews/3/README.md)
+### [美国宣布抵制北京冬奥后尚未有“大国”跟进](/content/gnews/3/README.md)
  ` HimalayaRussia`
 
-### [白宫正式宣布外交抵制北京冬奥会](/content/gnews/4/README.md)
- ` GTV新闻访谈`
-
-### [疾控中心VAERS数据显示，一名5岁儿童在注射辉瑞疫苗4天后死亡](/content/gnews/5/README.md)
+### [目前为止，美国至少在 10 个州发现了 Omicron 变种](/content/gnews/4/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [GTV新闻访谈简报|2021年12月7日早](/content/gnews/6/README.md)
+### [澳洲正在 &#8220;积极考虑 &#8220;抵制冬奥会](/content/gnews/5/README.md)
+ ` 走进澳洲`
+
+### [Eglise医生：疫苗接种者可能成为人造艾滋病状态](/content/gnews/6/README.md)
+ ` HimalayaRussia`
+
+### [白宫正式宣布外交抵制北京冬奥会](/content/gnews/7/README.md)
+ ` GTV新闻访谈`
+
+### [疾控中心VAERS数据显示，一名5岁儿童在注射辉瑞疫苗4天后死亡](/content/gnews/8/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [GTV新闻访谈简报|2021年12月7日早](/content/gnews/9/README.md)
  ` 纽约香草山MOS01`
 
-### [布林肯承诺美国确保台湾拥有自卫手段](/content/gnews/7/README.md)
+### [布林肯承诺美国确保台湾拥有自卫手段](/content/gnews/10/README.md)
  ` GTV新闻访谈`
 
-### [新能源电池、加密技术、芯片加5G和AI才是我们的城邦](/content/gnews/8/README.md)
+### [新能源电池、加密技术、芯片加5G和AI才是我们的城邦](/content/gnews/11/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [2021/12/06 文贵先生直播精要](/content/gnews/9/README.md)
+### [2021/12/06 文贵先生直播精要](/content/gnews/12/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [教育已死](/content/gnews/10/README.md)
+### [教育已死](/content/gnews/13/README.md)
  ` 银河勇气之星`
 
-### [有声|中共幼儿园悄悄降低入园年龄限制](/content/gnews/11/README.md)
+### [有声|中共幼儿园悄悄降低入园年龄限制](/content/gnews/14/README.md)
  ` MOSREC`
 
-### [有声|美空军部长称与中共进行高超音速武器竞赛](/content/gnews/12/README.md)
+### [有声|美空军部长称与中共进行高超音速武器竞赛](/content/gnews/15/README.md)
  ` MOSREC`
 
-### [中共的流氓文化](/content/gnews/13/README.md)
+### [中共的流氓文化](/content/gnews/16/README.md)
  ` 银河勇气之星`
 
-### [美国证券交易所委员会否认Wisdom Tree现货比特币ETF申请](/content/gnews/14/README.md)
+### [美国证券交易所委员会否认Wisdom Tree现货比特币ETF申请](/content/gnews/17/README.md)
  ` GTV News Talk`
 
-### [普京和习近平若出现身体或政治意外，共产党一切玩完](/content/gnews/15/README.md)
+### [普京和习近平若出现身体或政治意外，共产党一切玩完](/content/gnews/18/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [有声|标准普尔500指数本周表现不佳，未来走势堪忧](/content/gnews/16/README.md)
+### [有声|标准普尔500指数本周表现不佳，未来走势堪忧](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [厉害了，中共国！要出门执法了](/content/gnews/17/README.md)
+### [厉害了，中共国！要出门执法了](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [七哥说—第34期](/content/gnews/18/README.md)
+### [七哥说—第34期](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [日本通过检测居民污水掌握疫情](/content/gnews/19/README.md)
+### [日本通过检测居民污水掌握疫情](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [以色列首现巨幅反疫苗广告](/content/gnews/20/README.md)
+### [以色列首现巨幅反疫苗广告](/content/gnews/23/README.md)
  ` GTV新闻访谈`
 
-### [2021/12/07 墙内世界](/content/gnews/21/README.md)
+### [2021/12/07 墙内世界](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [马斯克说人口不足，出生率下降可能威胁人类文明](/content/gnews/22/README.md)
+### [马斯克说人口不足，出生率下降可能威胁人类文明](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
 
-### [银河快讯: 中小企业最高获40%法人税扣除率；鼓励5G部署的税收措施将减少](/content/gnews/23/README.md)
+### [银河快讯: 中小企业最高获40%法人税扣除率；鼓励5G部署的税收措施将减少](/content/gnews/26/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [奥密克戎病毒产生4个为什么?](/content/gnews/24/README.md)
+### [奥密克戎病毒产生4个为什么?](/content/gnews/27/README.md)
  ` GTV News Talk`
 
-### [篮球明星本•麦德根在注射辉瑞疫苗后被诊断出心包炎](/content/gnews/25/README.md)
+### [篮球明星本•麦德根在注射辉瑞疫苗后被诊断出心包炎](/content/gnews/28/README.md)
  ` 墨尔本雅典娜农场`
 
-### [共产党的文字谎言超限战](/content/gnews/26/README.md)
+### [共产党的文字谎言超限战](/content/gnews/29/README.md)
  ` 骄子`
 
-### [墨尔本市再次爆发大规模游行反对中共病毒疫苗强制令](/content/gnews/27/README.md)
+### [墨尔本市再次爆发大规模游行反对中共病毒疫苗强制令](/content/gnews/30/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美国防部长再次强调中共国是日渐逼近的挑战](/content/gnews/28/README.md)
+### [美国防部长再次强调中共国是日渐逼近的挑战](/content/gnews/31/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [新西兰人在商场跳起毛利战舞抗议疫苗强制令](/content/gnews/29/README.md)
+### [新西兰人在商场跳起毛利战舞抗议疫苗强制令](/content/gnews/32/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [斯洛伐克访问团搭专机抵台参加首届台斯经济咨商会](/content/gnews/30/README.md)
+### [斯洛伐克访问团搭专机抵台参加首届台斯经济咨商会](/content/gnews/33/README.md)
  ` GTV News Talk`
-
-### [DC每日热点1207](/content/gnews/31/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [12/07/21 香港快讯 香港民研：36% 受访者倾向不投票 投票意欲创历年民调新低](/content/gnews/32/README.md)
- ` 英喜-粵語組`
-
-### [岸田首相が北京五輪への対応について 「国益の観点から自ら判断する」と表明](/content/gnews/33/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [12/7/2021国际财经快讯：拜登瞄准全现金房屋交易；全球石油CEO推动清洁能源](/content/gnews/34/README.md)
  ` 秘密翻译组金融团队`

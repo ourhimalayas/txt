@@ -2,30 +2,51 @@
 ---
 
 
-## 厉害了，中共国！要出门执法了
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1730286/)
+## 美国证券交易所委员会否认Wisdom Tree现货比特币ETF申请
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1730397/)
 
-撰稿:东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/5-11.jpg)
-[图片源](https://courrier.jp/columns/201078/)
+作者：银河勇气星—骄子
 
-中共总书记习近平于6日召开党的政治局集体学习会议，批示推动建立国内法律适用于外国的制度。
 
-从去年生效的香港国安法也适用于海外居民这个情况来看，这次会议有可能会促进制定类似的立法。大外宣新华社7日透露。
 
-习近平解释说，“要推动双边和多边司法合作，提高涉外执法效能，坚定维护国家主权、安全和发展利益。”
 
-他还呼吁各党组织和领导层支持司法独立，并强调“我们不允许利用权威进行干涉或干预”。
 
-然而在中共国，包括法院在内的所有司法机构都在党的领导下。中共国各省市县级的公检法均有党支部，这已是众所周知的事实。一党独载专政，还谈涉外执法，真是贪心不足蛇吞象啊。醉翁之意不在酒，涉外执法是幌子，继续铲除异己，巩固自己的非法统治才是“初心”吧！
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-9.jpg)
 
-信息源:
 
-[中国、法律の国外適用推進　習主席「断固主権守る」](https://news.yahoo.co.jp/articles/e44672b52b03b184cf12a7e97e0bb671464b63e8)
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
+当地时间12月1日，美国证券交易所委员会（美国SEC），驳回了总部位于纽约的Wisdom Tree公司申请的关于成立现货比特币ETF的需求。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/20211123-02-scaled.jpg)
+SEC指出Wisdom Tree比特币信托缺乏“监视共享协议”，未履行《外汇法》中关于“防止欺诈和操纵行为”以及“保护投资者和公共利益”的要求。此次是美国SEC对现货比特币ETF的第二次拒绝，但此次拒绝并未让数字加密投资者大肆抨击。
+
+截止12月1日，比特币价格只是略降。从那以后比特币经历了两位数的下跌，仅从周五上午至周六的24小时内，比特币跌幅超过17%。更广泛的加密货币投资者对比特币交易市场欺诈和操纵的担忧与日俱增。
+
+参考来源：
+
+[SEC denies WisdomTree’s spot Bitcoin ETFSEC denies WisdomTree’s spot Bitcoin ETF](https://forkast.news/headlines/sec-denies-wisdomtree-spot-bitcoin-etf/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-3.png)
+
+编辑/校正/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-10.jpg)
+
+
+
 
 
  

@@ -2,140 +2,48 @@
 ---
 
 
-## Eglise医生：疫苗接种者可能成为人造艾滋病状态
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1730633/)
+## 美国宣布抵制北京冬奥后尚未有“大国”跟进
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1730713/)
 
-这个疫苗的特点
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-就是S蛋白做了一件很坏的事
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/12/B-2.jpg)justjared.com
+白宫官宣外交抵制北京冬奥会过了24小时【1】，还没有看到“大国”的跟进，难道是笔者有些着急？有一点可以肯定，中共不甘罢休，正在全力以赴，垂死挣扎，试图找到某个突破口。
 
-它进入人体以后
+看看英、法、加的反应。
 
-它的残留物
+路透社伦敦12月7日电 英国首相鲍里斯·约翰逊（Boris Johnson）的发言人周二（12月7日）表示，在美国宣布抵制北京冬奥会后，英国尚未就政府代表是否参加北京冬奥会做出决定。
 
-对人体天然细胞 T细胞
+他对记者说：“英国政府（HMG，Her Majesty’s Government）出席北京奥运会的决定尚未作出，我们将在适当时候阐明我们的立场。”【2】
 
-T细胞中有一种叫杀伤细胞
+路透社巴黎12月7日电 法国总统周二（12月7日）表示，法国注意到美国宣布以外交手段抵制2022年北京冬奥会，并表示将在欧洲层面就此问题作出协调反应。
 
-是最主要的人体免疫细胞
+声明说：“我们注意到美国人的决定，当我们对人权感到担忧时，我们会对中共人说，我们去年3月对新疆采取了制裁，我们将在欧洲层面进行协调。”【3】
 
-因为它可以组成你的杀伤细胞
+MSN发表文章，报道了加拿大的态度，“美国将对北京奥运会进行‘外交抵制’，加拿大也在考虑类似的问题”。文章说，同一天（12月6日）晚些时候，当被问及加拿大是否会效仿时，特鲁多（Trudeau）含糊其辞，但他明确表示，他也将寻找一种方式来谴责中共国，而不迫使加拿大运动员牺牲期待已久的获得奥运奖牌的机会。
 
-顾名思义 它感受到病毒 病源体
+加拿大体育部长帕斯卡尔圣·翁（Pascale St Onge）周一（12月6日）面对提问也做了同样的回答。
 
-这些细胞（杀伤细胞）可以直接作用于病毒
+“到目前为止，还没有做出决定。” “当然，我们非常关注中共国的侵犯人权行为，我们不会轻易作出决定，一旦作出决定，我们将立即与你们沟通。” 【4】
 
-将它们吞噬
+无独有偶，疑似通共、肯定亲共的加拿大驻华大使多米尼克·巴顿（Dominic Barton）昨晚（12月6日）辞职【5】，相信与中共的奥运博弈有关。
 
-不经过任何其他纠结
+认识中共的邪恶需要有个过程，响应美国的抵制同样也不会是一帆风顺，尤其是被中共握住把柄的要员，此时不为主子拼死一搏，主子会很生气，后果会很严重；再者通过这事，又可以增加个与中共勾兑的砝码。
 
-或时间耽搁
+笔者相信，但正义的力量肯定会占上风，西方主要国家肯定会进行抵制，邪共你就别妄想了！刚才文贵先生盖特视频里已经透露了相关信息，西方各国都会跟上美国的步伐。
 
-第一秒它们就开始行动的
+有关链接：
 
-所以这些细胞是特别珍贵的
+【1】[https://gnews.org/zh-hans/1727819/](https://gnews.org/zh-hans/1727819/)
 
-而这个S蛋白最可恶的一点是什么
+【2】[https://www.reuters.com/lifestyle/sports/no-decision-yet-beijing-olympics-says-uk-pms-spokesman-2021-12-07/](https://www.reuters.com/lifestyle/sports/no-decision-yet-beijing-olympics-says-uk-pms-spokesman-2021-12-07/)
 
-它占用了人体免疫系统的资源
+【3】[https://www.reuters.com/lifestyle/sports/france-says-there-will-be-coordination-eu-level-beijing-olympics-2021-12-07/](https://www.reuters.com/lifestyle/sports/france-says-there-will-be-coordination-eu-level-beijing-olympics-2021-12-07/)
 
-它与人体天然杀伤细胞有竞争作用
+【4】[https://www.msn.com/en-ca/news/canada/u-s-to-mount-diplomatic-boycott-of-beijing-olympics-canada-contemplates-similar/ar-AARx1a5?ocid=msedgntp](https://www.msn.com/en-ca/news/canada/u-s-to-mount-diplomatic-boycott-of-beijing-olympics-canada-contemplates-similar/ar-AARx1a5?ocid=msedgntp)
 
-而它们（S蛋白）有绝对优势
-
-因为它们被注入体内 一下那么大的量
-
-从某种意义上抑制了自然杀伤细胞的功能
-
-使（自然杀伤细胞的）数量 质量绝对减少或者消弱
-
-所以 第二剂 第三剂如果这样打下去的话
-
-你的人体的天然免疫力
-
-在这样的时间当中
-
-被一点点耗尽掉
-
-我上次也讲过
-
-英国政府有个研究
-
-它们研究疫苗接种以后从36周到40周
-
-这段时间
-
-接种过疫苗的人的血液检查
-
-他们做每个星期的血液检查
-
-经过各种分析
-
-他们其实主要分析的是自然杀伤细胞的数量
-
-他们就发现在36-40周之间
-
-分成不同年龄组
-
-每个年龄组他们都进行分析
-
-发现有个共同特点就是
-
-随着每一周时间的推移
-
-天然杀伤细胞的数量在减少
-
-也就是说你的天然免疫力从底走向更低
-
-从糟糕走向更糟糕
-
-按照这个下降的速度
-
-预计到明年的春季 也就是4-5月份
-
-这一批比较早接种疫苗的人
-
-他们的天然免疫力就会降到0
-
-几乎是0
-
-也就是说处于一种人造的艾滋病状态
-
-艾滋病就是免疫缺陷
-
-没有这些自然杀伤细胞
-
-没有这些淋巴细胞对病毒 病源体的攻击和保护
-
-人体会处于一种
-
-任何病原体来感染 他们都会被
-
-绝对的感染症状都会100%出现
-
-也就是处于一种没有免疫保护的状态
-
-所以再想到这些孩子
-
-他们接种相对比较晚一点
-
-可能他们的父母出现症状会更早
-
-这是迟早的问题
-
-因为按照免疫学发展规律
-
-他们的天然免疫力一点点在被蚕食
-
-所以到最后
-
-也许是几个月以后 也许是一两年以后 也许是两三年以后
-
-但是 肯定会有这么一天
-
-他们的（打过疫苗的）免疫力会完全丧失
-
-也就意味着他们也是处于一种艾滋病状态 只要是接种了疫苗的孩子
+【5】[https://www.msn.com/en-ca/news/other/canada-s-ambassador-to-china-steps-down-as-ottawa-faces-pressure-from-biden-administration/ar-AARxbrb?ocid=msedgntp](https://www.msn.com/en-ca/news/other/canada-s-ambassador-to-china-steps-down-as-ottawa-faces-pressure-from-biden-administration/ar-AARxbrb?ocid=msedgntp)
 
  
 
