@@ -2,35 +2,39 @@
 ---
 
 
-## 蓬佩奥盖特呼吁拜登要站出来反对中共
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1728694/)
+## 拜登严正警告普京不要动乌克兰，经济大棒比枪炮更硬吗？
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1728880/)
 
-作者：纽约香草山健身部 – Jack Li文阳
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月6日，白宫发言人普萨基在例行记者会上宣布，美国政府将对2022年北京冬奥会和残奥会实行外交抵制。
+#### 作者：东京樱花团｜捆绑CCP一千年
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/0.模版images-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/乌克兰.png)[图片来源](https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20211112-%E6%AC%A7%E7%9B%9F%E5%AF%B9%E4%BF%84%E7%BD%97%E6%96%AF%E5%9C%A8%E4%B9%8C%E5%85%8B%E5%85%B0%E8%BE%B9%E5%A2%83%E9%99%84%E8%BF%91%E9%9B%86%E7%BB%93%E5%86%9B%E9%98%9F%E6%84%9F%E5%88%B0%E6%8B%85%E5%BF%A7)
 
-同日，前国务卿蓬佩奥先生就此事在盖特上发文：对北京冬奥会的外交抵制是不够的，中共根本不在乎外交抵制。最终，他们仍然能召开冬奥会，并接待世界各国运动员。拜登需要站出来反对中共。
+**乌克兰危机凸显，拜登警告普京不要入侵乌克兰。但美国只是对此采取经济制裁。看起来只是重复克里米亚模式。这反应了政客们的虚伪交易，幕后黑手是中俄将对乌克兰和台湾采取同步军事入侵，以此警告美军不要陷入两场战争。**
 
-消息链接：[https://gettr.com/post/pix4kr12b2](https://gettr.com/post/pix4kr12b2)
+据[日本经济新闻](https://www.nikkei.com/article/DGXZQOGN06CX10W1A201C2000000/)7日援引华盛顿消息称，美国总统拜登和俄罗斯总统普京7日视频会面，拜登警告普京，“如果俄罗斯入侵乌克兰，它将与其欧洲盟友合作采取反制措施，这将对俄罗斯经济产生严重的经济影响。”拜登总统表示，他将加强北大西洋公约组织（NATO）对乌克兰的军事支持，称，这将是一个选择。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+“拜登政府指责俄罗斯将军队集中在与邻国乌克兰的边界附近。”但美国政府官员对可能的俄罗斯入侵乌克兰行动，将采取除军事行动外的“实质性的经济反制措施，这将严重损害俄罗斯经济”。但只是承诺军事援助乌克兰和北约防御能力的可能性。因为拜登政府直接表示，“不直接使用美国的军事力量。”
 
-**校对/发稿：童谣**
+- ***延展阅读：***[***正面怼！俄驻美使馆回应“俄准备入侵乌克兰”，猜测***](http://www.chinanews.com.cn/gj/2021/12-05/9622813.shtml)***？***
+- ***延展阅读：***[***白俄罗斯称乌克兰直升机侵犯领空，***](http://www.news.cn/mil/2021-12/07/c_1211476527.htm)[***乌克兰对此否认***](https://www.euronews.com/2021/12/06/ukraine-denies-belarusian-allegations-of-repeated-airspace-violations)
 
-**更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+消息称，[拜登在与普京会谈](https://www.cnbc.com/2021/12/06/biden-to-warn-putin-against-russian-invasion-of-ukraine.html)之前，分别与英国首相约翰逊、法国总统马克龙、德国总理默克尔、意大利总理德拉吉通了电话。表示对俄罗斯对乌克兰的行动表示担忧，并同意呼吁该国缓和紧张局势。而这些国家都是被中共国严重腐败的国家。
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+不但如此，白俄罗斯这个时候也出来为俄军开战做舆论铺垫。根据中共[新华社消息称](http://m.news.cn/2021-12/07/c_1128137663.htm)，“6日，白俄罗斯在白俄罗斯与立陶宛边境等待进入欧盟的货车有2260辆，在白俄罗斯与波兰边境等待的货车为1470辆，在白俄罗斯与拉脱维亚边境等待的货车有1110辆。”“[波兰等国指责白俄罗斯策划这场危机，以此报复欧盟先前对白施加的制裁](http://m.news.cn/2021-12/07/c_1128137663.htm)。”而这些举措非同寻常，尤其是在大流行期间和新变种病毒 Omicron的传播。这些民间货运很难保证其乌克兰和欧洲边境安全。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+- ***延展阅读：***[***欧盟对俄罗斯在乌克兰边境附近集结军队感到担忧***](https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20211112-%E6%AC%A7%E7%9B%9F%E5%AF%B9%E4%BF%84%E7%BD%97%E6%96%AF%E5%9C%A8%E4%B9%8C%E5%85%8B%E5%85%B0%E8%BE%B9%E5%A2%83%E9%99%84%E8%BF%91%E9%9B%86%E7%BB%93%E5%86%9B%E9%98%9F%E6%84%9F%E5%88%B0%E6%8B%85%E5%BF%A7)***。***
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美国分析称，近期俄罗斯动向与2014年吞并乌克兰克里米亚半岛之前的情况类似，再次对俄罗斯对乌克兰的军事入侵表示担忧。《华盛顿邮报》3日报道，据美国情报机构报道，俄罗斯早在2010年初就计划入侵乌克兰。他指出，预计这次将是一次多战线行动，[俄军动员了多达175,000人。他还发布了自己的卫星照片，并报告说俄罗斯军队正在乌克兰边境的四个地点集结](https://www.nikkei.com/article/DGXZQOGN06CX10W1A201C2000000/)。
+
+乌克兰危机，看起来只是重复克里米亚模式，因为拜登警告普京不要入侵乌克兰，只是强调经济制裁，而俄罗斯一直在被制裁中。这反应了政客们的虚伪交易。正如新中国联邦郭文贵先生所分析的那样，[中俄两国近来主要讨论如何对乌克兰和台湾采取同步军事入侵行动](https://gettr.com/post/pimgit758a)。目的是迫使美国不能同时打两场战争。俄罗斯和中共国因为经济即将崩溃，灾难不可避免，他们都做好准备打仗 。（45:05 时段）
+
+2021年12月7日
+
+*校对：东京樱花团 / 文小白
+发布：东京樱花团 / 野猫*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/最新版樱花网址-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

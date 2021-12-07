@@ -2,32 +2,31 @@
 ---
 
 
-## 冬奥会后，灭共力量将逐步集结
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1728726/)
+## 众议员德文·努尼斯将担任川普媒体技术公司首席执行官
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1728938/)
 
-作者：香草山农场 – 晓仙女
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-12月5日，郭文贵先生在大直播中透露，中共和俄罗斯，是世界疫苗阴谋的重要元凶，占罪恶的八九成，然后是宗教黑暗力量和华尔街几个沼泽地。疫苗灾难的逐渐显现，使越来越多人认识到中共的罪恶，会形成越来越强大的反共灭共力量。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture3-3.jpg)
-从时间节点上看，郭先生表示，开完冬奥会，体育界、NBA等相关领域，想赚钱的梦都没有了，就会站出来反共灭共。当下世界中，法官、检察官、科学家、军人、警察，是反疫苗的主要力量，这些人有实力，有影响力，最恨共产党，这些西方精英，会号召更多社会力量，主动跟新中国联邦联合在一起灭共。
+#### 撰稿：彩虹
 
-郭先生解释，这是以美灭共、以钱灭共、以共灭共策略最重要的一部分。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-11.jpg)图片来源：CNBC
+12月6日，《国会山报》报道，作为前总统川普的重要盟友，众议员德文·努尼斯（Devin Nunes）将月底辞职，加盟川普媒体技术公司（TMTG）做首席执行官（CEO）。
 
-参考链接：[冬奥会后，灭共力量将逐步集结](https://gtv.org/video/id=61acb7bebbd75f62e52f7ce4)
+作为众议员，努尼斯告诉选民说：“最近，我得到了一个新的机会，为我相信为最重要的事情而奋斗。我写信告诉你们，我已决定抓住这个机会，因此，我将在2021年底离开众议院。请放心，我绝不是放弃了我们的集体斗争，我只是通过其他方式来追求实现它”。
 
-![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+根据报道，现年48岁的努尼斯定于2022年1月份开始担任川普媒体技术公司的首席执行官。对于他的选择，前总统川普在一份声明中说：“国会议员努尼斯是一位战士和领导者，他将成为TMTG的优秀CEO。努尼斯明白，自由让美国强大，我们必须停止自由派媒体（liberal media）和大科技公司对美国自由的破坏。美国已经准备好迎接真相媒体（Truth Social）和结束审查制度及政治歧视”。
 
-总编：文特
-编辑：飞虹
-校对/发稿：Hetangyuese
+在TMTG的同一份新闻稿中，努尼斯说：“现在是重新开放互联网，允许言论自由流动而不受审查的时候了。美国使互联网的梦想成为现实，恢复这个梦想的将是一家美国公司”。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+文章认为，努尼斯之所以做此退休决定，重新划分选区的过程可能对其发挥了重要作用，因为最初提出的（大选）地图是将这位共和党议员从一个相对安全的倾向于共和党的选区转移到一个民主党人拥有优势的选区。
+
+对努尼斯辞职的消息感到震惊的还有许多共和党同事，他们曾经预估，如果共和党在明年的中期选举中夺回了众议院，他将（可以）寻求并赢得筹款委员会委员的席位，而这个席位曾是他职业生涯的一个理想目标。几年前，他曾寻求过这个席位，但没有成功。
+
+目前，长期担任众议员的凯文·布雷迪（Kevin Brady）曾担任过筹款委员会的主席，目前是筹款委员会的前排委员，但他在今年年初宣布从国会退休。报道分析，努尼斯的辞职意味着资深共和党人将有一个大范围的竞争以争夺筹款委员会的席位。可能参选的资深共和党人包括众议员弗恩·布坎南（Vern Buchanan）、阿德里安·史密斯（Adrian Smith）和杰森·史密斯（Jason Smith），后者也在考虑竞选参议院的一个空缺席位或众议院预算委员会的席位。
+
+**新闻来源**
+
+[Nunes to resign from Congress, become CEO of Trump media firm](https://thehill.com/homenews/house/584575-nunes-to-resign-from-congress-at-end-of-month)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

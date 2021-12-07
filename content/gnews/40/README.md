@@ -2,10 +2,14 @@
 ---
 
 
-## 12/6/2021 文贵直播：中共刚对盘古的员工再次进行了非法抢劫和虐待，把所有员工和我90岁的父亲赶到马路上
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1727974/)
+## 美国政府正式宣布外交抵制北京2022冬奥会
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1728031/)
 
-秘密翻译组-北美组
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1207-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+
 
  
 

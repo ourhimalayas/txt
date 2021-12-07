@@ -2,28 +2,30 @@
 ---
 
 
-## 纽约加速强推疫苗，小学门口驻扎流动疫苗巴士
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1728676/)
+## 视频| 躺平币未来的收益
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1728863/)
 
-作者：纽约香草山健身部 – Jack Li文阳
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-近日，记者在纽约唐人街看到，两辆流动疫苗巴士驻扎在纽约唐人街地标孔子大厦后面的一所小学门口。
+## 摘自2021.12.5郭先生大直播
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-314.png)
+制作：香草山视频部
 
-疫苗工作人员在小学的门口撑起了帐篷，里面摆放了十数张座椅。布告牌上显示这是纽约疫苗接种点，还有辉瑞和5～11岁的字样。可以看出，这两辆疫苗巴士针对的是这所学校里的小学生。
 
-![](https://cdn.discordapp.com/attachments/821934164823244803/917582767414456370/2.jpg)
 
-12月6日上午，纽约市长白思豪(Bill de Blasio)宣布扩大现有的疫苗强制授权，将5～11岁的儿童也纳入了接种疫苗的范围。
+躺平币肯定是公链，然后能让很多人得到，完全是不经过任何人工审核的，但是到最后你要兑现的时候，它必须要经过兑现平台的KYC，那是一定的，但是你得到这个币未来，比如说盖特，加入盖特之后你有认证V了，根据你的关注者，你就一下子看到我有这个币了，就是给你的。
 
-希望家长能顶住诱惑和压力，拒绝毒针，保护好自己的孩子。
+咱们都有标准的，自然而然就到你的帐号上去了，而且完全不会是经过联盟委员会，就是所有的东西都给你定下标准了，比如说躺平，我怎么知道你躺平了，你怎么能证明你躺平了？因为你只要上去这个电脑，你只要用手机，你做了以下的行动，就等于躺平了。多少时间内，你推一个信息，多少时间内，你用了一次盖特，多少时间内，你发了一个信息，因为现在电脑和区块链的技术，可以确定你的行为，一切是真是假。
 
-![](https://cdn.discordapp.com/attachments/821934164823244803/917582554746470420/1.jpg)
-![](https://cdn.discordapp.com/attachments/821934164823244803/917582768135868456/3.jpg)![](https://cdn.discordapp.com/attachments/821934164823244803/917582843335573504/5.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+那躺屏蔽如何确定躺平？和躺平的价值和标准，未来这就是新中国联邦的雏形。你的工作能力和结果和时间，就决定了你的层次和级别，和获得币的数量。根据获得币的数量，未来就在这个系统里面，就是你的定位，你的价值和层次，这就是区块链技术的魅力所在，谁也骗不了谁，你不给我也不可能，那个系统在那呢。
 
-**校对/发稿：童谣**
+这种按照劳动结果、时间，区块链根据你做出来的东西，就叫躺平币，关键是我怎么兑现呢？第一天你就能买面包、买油，我能吃饭，我能有油加，当然你能买G-Fashion了，当然能买G-Club了，这个躺平币它不是空间币，它不是虚幻币，它是真正的可兑换的，就是法币所有的功能都有，马上可以用。
+
+这种规则，让大家知道，我拿到币…就是我躺平的结果，下1分钟，我就有面包吃了，我就有油加，例如这样，我可以买G-Fashion,这个叫躺平币，只要躺平币出来，共产党就知道自己的棺材板儿该订上钉了…盖棺而论了。
+
+
+
+发稿：雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/M12.jpg)
 
 **更多资讯，更多关注**
 
@@ -33,10 +35,10 @@
 
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

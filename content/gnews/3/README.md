@@ -2,24 +2,42 @@
 ---
 
 
-## BBC向中共国企投资的养老基金超过1.5亿英镑
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1728773/)
+## 【币圈新闻】日本最高银行监管机构将在2022年立法限制稳定币发行
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1728977/)
 
-#### 翻译/撰稿：zzballack
+编译：玫瑰天空
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片-2-2.jpg)日本金融厅（Shutterstock）
+2021年12月7日，据CoinDesk 的新闻记者[**夏安利贡**](https://www.coindesk.com/author/cheyenne-ligon/)**（**Cheyenne Ligon ）
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-2-4.jpg)图片来源：BBC
-英国《每日邮报》（Daily Mail）12月6日援引《星期日邮报》(The Mail on Sunday)报道，英国广播电视公司BBC向犯下了人权侵犯罪行的中共公司投资了超过1.5亿英镑的养老基金。这些公司中，至少有10家被指控支持中共独裁政权，其中两家公司被中共持有。
+发文报道，[日经亚洲](https://asia.nikkei.com/Spotlight/Cryptocurrencies/Stablecoins-to-face-new-restrictions-in-Japan)周一的[一份报告称，](https://asia.nikkei.com/Spotlight/Cryptocurrencies/Stablecoins-to-face-new-restrictions-in-Japan)日本最高银行监管机构将于 2022年出台新的立法，旨在限制向银行和电汇公司发行稳定[币](https://www.coindesk.com/learn/what-is-a-stablecoin/)。
 
-BBC的实际投资金额可能比1.558亿英镑更高，因为BBC养老基金只公布了其20个最大的持股公司。文件显示，BBC的养老基金在六家中共公司中持有未披露的利益，其中一家公司被美国政府列入黑名单。截至今年3月31日，BBC持有的中共国有企业股票价值在过去一年里增加了4000多万英镑。
+日本金融厅 (FSA) 将提出的法规旨在加强该机构对稳定币市场的控制，以保护消费者免受 Tether 等资产支持稳定币的潜在风险。
 
-前英国保守党领袖伊恩·邓肯·史密斯(Iain Duncan Smith)爵士对BBC在中共国企上的投资规模感到震惊，并呼吁BBC停止资助与中共政权有关联的公司。史密斯爵士说：“支付BBC牌照费的人如果知道他们支付给BBC的钱最终通过某种方式资助了一个实行种族灭绝的残暴独裁政权，一定会感到震惊。这根本就不应该发生。”
+FSA 的举动反映了美国的类似提议。11月，总统金融市场工作组与包括货币监理署(OCC)在内的其他监管机构发布了[一份关于稳定](https://www.coindesk.com/policy/2021/11/02/the-us-treasurys-stablecoin-report-would-treat-issuers-like-banks-but-doesnt-address-how/)币的[报告](https://www.coindesk.com/policy/2021/11/02/the-us-treasurys-stablecoin-report-would-treat-issuers-like-banks-but-doesnt-address-how/)，其中包括对银行等稳定币发行人的建议。
 
-BBC养老基金资助的中共公司包括：中国建筑集团旗下的房地产开发商中国海外发展有限公司，该公司在2020年被美国政府列入黑名单，禁止任何美国公司或个人拥有其股份；中国建设银行，其董事会中有许多中共高官。该银行在过去十年中一直在购买西方国家的战略基础设施，并且是“一带一路”倡议的最大贷款人之一；2019年，BBC在中共的另外两家国有银行–工商银行和农业银行–持有未披露利益，这意味着BBC的养老基金在某种程度上已经投资了中共“四大”国有银行中的三家；BBC还持有价值4330万英镑的阿里巴巴股票、4130万英镑的腾讯股票以及3300万英镑的拼多多股票；网易也获得了资助，据报道，网易参与了打压被认为对北京不利的新闻和评论。
+根据该报告，该立法还将包括防止通过稳定币进行洗钱的措施，通过给予该机构对钱包提供商等中介的额外监督，并增加额外的了解你的客户 (KYC) 措施。
 
-BBC发言人说：“BBC的养老基金计划独立于BBC运行，在中共国的投资只是其广泛投资项目中的一小部分。”但是被委托对该基金进行审查的咨询公司说：“投资者越来越关注有关被指控侵犯新疆少数民族人权的详细和可信的报告，如果不解决这个问题，个人和企业都可能面临严重风险，包括媒体负面报道带来的声誉风险。”
+今年1月，包括三菱在内的70多家日本大公司组成的财团[预计将开始](https://www.coindesk.com/policy/2021/11/24/japanese-consortium-plans-to-issue-bank-deposit-like-digital-yen-by-2022-end/)试用[央行数字货币](https://www.coindesk.com/policy/2021/10/15/bank-of-japan-seeks-plain-easy-to-cook-cbdc-model/)(CBDC)，即数字日元，他们表示这种[货币](https://www.coindesk.com/policy/2021/10/15/bank-of-japan-seeks-plain-easy-to-cook-cbdc-model/)将像银行存款一样发挥作用。
 
-新闻来源：[BBC has invested more than £150million in Chinese state-owned companies accused of links to appalling human rights violations](https://www.dailymail.co.uk/news/article-10277275/BBC-invested-150million-Chinese-state-owned-companies.html)
+此前，日本央行(BoJ)执行董事 Shinichi Uchida 曾将在一次演讲中表示，日本央行(BoJ)将尝试开发一种可以与私人支付方式轻松共存的央行数字货币(CBDC)。
+
+- Shinichi Uchida周五[表示](https://www.boj.or.jp/announcements/press/koen_2021/ko211015a.htm/)，为了寻求“垂直共存”，与公众使用的其他支付方式，CBDC应该由“相对有计划、易于烹饪的材料”组成。
+- 中央银行官员引用了一个例子，其中可以在私人公司提供的数字钱包中使用CBDC。
+
+
+援引：
+
+[https://www.coindesk.com/policy/2021/12/06/japan-moves-to-impose-new-regulations-on-stablecoin-issuers-report/](https://www.coindesk.com/policy/2021/12/06/japan-moves-to-impose-new-regulations-on-stablecoin-issuers-report/)
+
+[https://www.coindesk.com/policy/2021/10/15/bank-of-japan-seeks-plain-easy-to-cook-cbdc-model/](https://www.coindesk.com/policy/2021/10/15/bank-of-japan-seeks-plain-easy-to-cook-cbdc-model/)
+
+
+
+采 集：神之一手
+审核校对：Barry Jack
+上传排版：F
+
+
 
  
 

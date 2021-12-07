@@ -2,32 +2,38 @@
 ---
 
 
-## 郭先生谈中共内部北戴河会议
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1728725/)
+## 货币监理署 (OCC)在银行风险报告中强调数字资产
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1728937/)
 
-作者：银河勇气星 – 骄子
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-郭先生在12月3日的大直播中透露，中共每年夏天都会举行一次的北戴河会议，实际是中共现任领导人与退休老干部勾兑利益的会议，是中共的政治风向标。其中现任最高领导人和离退休领导的见面和会谈有非常严格的谈话时长控制，甚至精确到秒。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture2-4.jpg)
-在今年夏天8月1日到8月16日的北戴河会议中，习近平和中共元老宋平交谈40分钟，和前任中共总书记胡锦涛交谈90分钟，和王岐山交谈了两次，每次20分钟，其他的一些老干部都是掐紧20分钟就走。这一切安排都凸显了中共的政治趋势和走向。如与宋平、胡锦涛的会面时间长显示了习与二者更紧密的关系及与江家势力的对抗，而同属江家势力的王岐山出现在老同志的会议上则明确了其有虚职而无实权。
+编译：玫瑰天空
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片-1-11.jpg)
+2021年12月7日据[**尼基莱什****·****德**](https://www.coindesk.com/author/nikde/)在CoinDesk发文报道：
 
-北戴河会议结束后，习近平即对江家势力进行了大清洗，包括对江志成、马云、傅政华等人的抓捕，以及对孙力军的进一步惩处，江派彻底失势。习的做法也表明他相信了郭先生关于江家南普陀会议的信息。
+美国联邦监管机构周一表示，银行对加密货币的兴趣比以往任何时候都大，但是他们需要谨慎。
 
-参考链接：[郭先生谈中共内部北戴河会议](https://gtv.org/video/id=61aa1cecd6388d55041591e6)
+货币监理署(OCC)发布了2021年秋季半年度风险展望报告，概述了该机构认为银行应注意的主要风险和新兴风险。早前，数字资产曾出现在该报告中，2021 年秋季报告对数字资产如何与银行业互动进行了最深入的分析。
 
-![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+报告称：“分布式账本技术和数字资产，包括稳定[币](https://www.coindesk.com/learn/what-is-a-stablecoin/)和其他加密资产，可能会拓宽交付渠道和金融服务的功能。” “货币监理署(OCC)正在高度谨慎地处理联邦银行系统中与加密相关的活动，并且还希望其受监管的机构也这样做。”
 
-总编：文特
-编辑：Lakeman/飞虹
-校对/发稿：Hetangyuese
+报告称，银行和其他受监管机构在开始从事数字资产领域的任何服务之前，应先咨询其货币监理署(OCC)主管。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+这些服务可以包括托管、衍生产品和对第三方加密产品的访问。
+
+报告称：“这包括确保在基础产品、服务和流程方面拥有足够的知识和专业知识，以识别和解决战略、运营、合规和声誉风险。加密相关产品的良好风险管理包括与银行的战略目标、风险偏好、资源和专业知识保持一致，”
+
+虽然该报告称数字资产可以为银行业带来“机会”，但它强调，如果银行深入研究这一新资产类别，就会面临风险。
+
+货币监理署(OCC)还打算在来年为银行提供更多指导，概述银行如何具体地接受加密产品。
+
+该报告指出了货币监理署(OCC)所属团体最近发布的出版物，包括总统金融市场工作组关于稳定币的报告，以及包括美联储和联邦存款保险公司(FDIC)在内的联合跨机构冲刺团队作为额外的例子尚未明朗。
+
+援引原文：
+
+[https://www.coindesk.com/policy/2021/12/06/occ-highlights-digital-assets-in-risk-report-for-banks/](https://www.coindesk.com/policy/2021/12/06/occ-highlights-digital-assets-in-risk-report-for-banks/)
+
+审核校对：Barry Jack
+上传排版：F
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
