@@ -2,37 +2,60 @@
 ---
 
 
-## 篮球明星本•麦德根在注射辉瑞疫苗后被诊断出心包炎
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1730094/)
+## 奥密克戎病毒产生4个为什么?
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1730110/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2021.12.7-10.png)图片来源：Glenn Hunt/AAP-news.com.au
-翻译：小鱼儿
-编辑：Mttfly
+作者：香草山农场—祈望明天会更好
 
-前澳大利亚篮球明星本•麦德根说，他在接种辉瑞Covid-19疫苗后因罕见的炎症性心脏病而住院治疗。
 
-去年从职业篮球退役的前NBL主要得分手马德根，周日在推特上描述了他的经历。该帖子后来被分享了近15,000次。
 
-36岁的马德根在推特上写道：“周三晚上，在打完辉瑞公司的第二针后，在急诊室结束了治疗。”
 
-医生说：“被诊断为心包炎，现在这种情况在打完辉瑞疫苗后很常见，特别是对十几岁的男孩和年轻男性。”
 
-麦德根是科林伍德后卫杰克•麦德根和欧普斯得分后卫泰斯•麦德根的兄弟。在2012-13赛季的NBL联赛中，麦德根在悉尼国王队效力时，平均每场比赛得到17.9分，成为得分王。这位193厘米的投篮后卫被选入全NBL第一队，并被评为该赛季的最佳进步球员。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-7.jpg)
 
-从2015年起为比利时、立陶宛和德国的欧洲球队打球，他是德甲Crailsheim Merlins队的主要得分手和篮板手。
 
-马德根与东南墨尔本凤凰队签订了2019-20赛季的NBL合同，但为了有更多时间与家人在一起在去年7月宣布退役。
 
-**原文链接：**[NBL star Ben Madgen diagnosed with pericarditis after Pfizer vaccine](https://www.news.com.au/sport/basketball/nbl-star-ben-madgen-diagnosed-with-pericarditis-after-pfizer-vaccine/news-story/ba7e83526a7a064ba310fb5861f5f887)
 
-**发布：去中心化Math**
-**
-更多信息，请关注：
-**[澳大利亚墨尔本阿西娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本阿西娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本阿西娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本阿西娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本阿西娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+2021年12月3日，郭先生在大直播中说到：对奥密克戎爆料的准确度百分之百是根据情报的来。郭先生在大直播中提问奥密克戎新病毒产生的四个为什么？
+![](https://assets.gnews.org/wp-content/uploads/2021/12/063322.png)
+为什么这个时候，联合国、世卫组织都异口同声地为共产党掩盖？
+
+为什么奥密克戎致死率没有那么高？
+
+为什么此时的王毅出访非洲？杨洁篪被消失？
+
+为什么孙立军被抓？孟建柱全家被抄家？王岐山所有人全被干掉？
+
+这意味着什么？郭先生继续解说，这里面是有计划的。这跟下一步对台湾的计划是有绝对关系的。郭先生再次强调奥密克戎的出现跟台湾是有绝对关系的。奥密克戎如果可以让疫苗消失或弱化，共产党会和联合国、世卫组织达成交易。这种达成的交易牺牲的就是台湾，届时世界将会出现另一种极端的现象。
+
+这四个为什么，除了可以理解其一但无法全部理解。这就是郭先生的迷人之处，这同时也引领大家提升自省能力，分析、判辨事件的能力。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-2.png)
+
+编辑/校正/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-8.jpg)
+
+
+
+
 
  
 

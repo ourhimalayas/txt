@@ -2,31 +2,37 @@
 ---
 
 
-## 厉害了，中共国！要出门执法了
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1730286/)
+## 有声|标准普尔500指数本周表现不佳，未来走势堪忧
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1730360/)
 
-撰稿:东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/5-11.jpg)
-[图片源](https://courrier.jp/columns/201078/)
+配音：香草山美食部 – 玫瑰园
 
-中共总书记习近平于6日召开党的政治局集体学习会议，批示推动建立国内法律适用于外国的制度。
 
-从去年生效的香港国安法也适用于海外居民这个情况来看，这次会议有可能会促进制定类似的立法。大外宣新华社7日透露。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+零对冲12月3日引用彭博实时市场评论员及分析师马克·克兰菲尔德（Mark Cranfield）的分析指出，从感恩节后的熔断开始，标准普尔500指数期货在经历了一周的鞭打式交易后明显看跌。
 
-习近平解释说，“要推动双边和多边司法合作，提高涉外执法效能，坚定维护国家主权、安全和发展利益。”
+尽管该指数并不是单边走低，但该合约的盘中反弹已经在较低的峰值处消退。图中显示的帽子顶部给短线交易者提示了足够清晰的信号，即资产是否被定格在下降通道上。
 
-他还呼吁各党组织和领导层支持司法独立，并强调“我们不允许利用权威进行干涉或干预”。
+尽管非农就业数据的确不及预期，但美联储也不会偏离其紧缩政策。分析师预计，标准普尔期货从11月的峰值开始下跌，看起来像是长期走低的转折点，这将为明年的全球熊市奠定基础。
 
-然而在中共国，包括法院在内的所有司法机构都在党的领导下。中共国各省市县级的公检法均有党支部，这已是众所周知的事实。一党独载专政，还谈涉外执法，真是贪心不足蛇吞象啊。醉翁之意不在酒，涉外执法是幌子，继续铲除异己，巩固自己的非法统治才是“初心”吧！
+文字版原文：[标准普尔500指数本周表现不佳，未来走势堪忧](https://gnews.org/zh-hans/1720450/)
 
-信息源:
+音频处理：喜山必胜Maverick
+发稿：Tom Li
+[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
+**更多资讯，更多关注**
 
-[中国、法律の国外適用推進　習主席「断固主権守る」](https://news.yahoo.co.jp/articles/e44672b52b03b184cf12a7e97e0bb671464b63e8)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -2,33 +2,30 @@
 ---
 
 
-## 2021/12/07 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1730207/)
+## 以色列首现巨幅反疫苗广告
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1730224/)
 
-1. 12月3日，江苏南京，35岁男子因债务纠纷，当街持刀行凶，致被害人当场身亡。
-2. 湖南常德一大四女生江边溺亡 警方通报：系轻生，原因尚未知。
-3. 12月5日，湖南常德一轿车撞向公交站台致1死7伤。
-4. 12月4日凌晨，湖南邵阳。 29层住宅起火，导致3人死亡一人受伤。住户反馈楼道内消防栓里并没有水。
-5. 12月4日，宁夏银川。 一老师在讲台上连扇女学生3个耳光的视频被曝光。
-6. 12月2日，江苏南京。 外卖小哥被称“单王”，每天会跑12-13个小时，每天工作到凌晨2点。
-7. 为了应对所谓的扬尘，给枯草喷洒绿色药剂作假“绿色植被”，这就是以假治国下的中共环保。
-8. 一个月前开始恒大、佳兆业等房企的建筑工地就已经陆续停工了，证明如今的一切公告都只是为了拖延和欺骗。
-9. 医生半夜被叫到医院处理病人术后问题，在医院走廊看到了晚上病人家属们的可怜状况。
-10. 中国人“享受”的昂贵医疗体制，使得中国人无论拥有多少钱，到医院了都得被掏空。
-11. 12月3日，云南昭通，发布所谓最严“遛狗令”。 市民只能在凌晨的0点至6点出门遛狗，而且狗出门必须佩戴口罩。
+作者：纽约香草山健身部 – Ivy001
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间12月5日，在以色列的大街上，挂起了高达6，7层楼的巨幅广告：一个被妈妈拉着小手的小男孩，忧伤的看着镜头说，“妈妈，请不要把我的手交给他们！”下方是醒目的疫苗针管标志。这是以色列民间首次出现反对疫苗的广告。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/7-9.jpg)
+以色列是全球接种“中共病毒”疫苗的先锋，迄今已有超过62%的以色列人完全接种了疫苗；消息人士称，该国卫生部门已着手推进第四剂加强针的相关工作。然而，高疫苗接种率并未有效改善该国居高不下的新增感染病例，大部分“突破性感染”者都已完全接种疫苗。 全球的犹太法律学者已在11月下旬开始审视强制接种疫苗的种种问题。11月23日，以色列马阿勒-阿杜明市的一个犹太法学法庭发出警告，一旦儿童因疫苗而死，任何强制儿童接种疫苗的个人或团体都应罪同杀人犯；11月29日，纽约一个犹太法学法庭裁定：向儿童和大多数成年人注射中共病毒疫苗是违法犹太法律的，裁决明确禁止向儿童、青少年和育龄成年人注射以及推广中共病毒疫苗。
 
+参考链接：[以色列首现巨幅反疫苗广告](https://gnews.org/zh-hans/1726708/)
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+总编：童谣
+编辑：Zion文恩
+校正/发稿：Fei797
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

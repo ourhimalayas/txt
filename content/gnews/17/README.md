@@ -2,30 +2,28 @@
 ---
 
 
-## 以色列首现巨幅反疫苗广告
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1730224/)
+## 日本通过检测居民污水掌握疫情
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1730279/)
 
-作者：纽约香草山健身部 – Ivy001
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间12月5日，在以色列的大街上，挂起了高达6，7层楼的巨幅广告：一个被妈妈拉着小手的小男孩，忧伤的看着镜头说，“妈妈，请不要把我的手交给他们！”下方是醒目的疫苗针管标志。这是以色列民间首次出现反对疫苗的广告。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/7-9.jpg)
-以色列是全球接种“中共病毒”疫苗的先锋，迄今已有超过62%的以色列人完全接种了疫苗；消息人士称，该国卫生部门已着手推进第四剂加强针的相关工作。然而，高疫苗接种率并未有效改善该国居高不下的新增感染病例，大部分“突破性感染”者都已完全接种疫苗。 全球的犹太法律学者已在11月下旬开始审视强制接种疫苗的种种问题。11月23日，以色列马阿勒-阿杜明市的一个犹太法学法庭发出警告，一旦儿童因疫苗而死，任何强制儿童接种疫苗的个人或团体都应罪同杀人犯；11月29日，纽约一个犹太法学法庭裁定：向儿童和大多数成年人注射中共病毒疫苗是违法犹太法律的，裁决明确禁止向儿童、青少年和育龄成年人注射以及推广中共病毒疫苗。
+撰稿:东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/6-13.jpg)
+[图片源](https://www.nhk.or.jp/politics/articles/lastweek/37246.html)
 
-参考链接：[以色列首现巨幅反疫苗广告](https://gnews.org/zh-hans/1726708/)
+日本盐野义制药7日宣布，通过检测污水中的中共病毒来监测疫情的服务，可以检测包括奥密克戎毒株在内的突变株。从今年6月起，全国各地已开通服务，通过对污水检查，可以及早掌握突变株流行情况，用于制定相应对策。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+该方法是与北海道大学共同开发的，用于分析来自中共病毒感染者粪便形成的污水中的病毒。除了新的突变Omicron菌株外，该团队还能检测到现有的alpha和delta菌株。
 
-总编：童谣
-编辑：Zion文恩
-校正/发稿：Fei797
+日本盐野义制药是一个有中资参股背景的公司，但愿这项检测服务的数据不会被恶意利用，成为助推强打疫苗与所生产的口服液的帮凶。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+信息源：
+
+[下水中のオミクロン株を検出へ　塩野義、早期把握に貢献](https://news.yahoo.co.jp/articles/03d9818b2cf02f49d0d47c39c44a042edda4d46b)
+
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
