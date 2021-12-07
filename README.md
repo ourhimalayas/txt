@@ -15,98 +15,98 @@
 
 ---
 
-### [突发：特朗普任命的法官阻止拜登对全国联邦承包商的疫苗强制令](/content/gnews/1/README.md)
+### [保守党议员指责英国政府对民众发动新冠宣传战](/content/gnews/1/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [突发：特朗普任命的法官阻止拜登对全国联邦承包商的疫苗强制令](/content/gnews/2/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [马斯克的星际飞船能飞多远？](/content/gnews/2/README.md)
+### [马斯克的星际飞船能飞多远？](/content/gnews/3/README.md)
  ` 墨尔本雅典娜农场`
 
-### [希望大家知道H-pay 的概念](/content/gnews/3/README.md)
+### [希望大家知道H-pay 的概念](/content/gnews/4/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [拜登敲定对北京冬奥会的外交抵制措施](/content/gnews/4/README.md)
+### [拜登敲定对北京冬奥会的外交抵制措施](/content/gnews/5/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [众议员格林姆抨击纽约市长的疫苗强制令](/content/gnews/5/README.md)
+### [众议员格林姆抨击纽约市长的疫苗强制令](/content/gnews/6/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm Toronto(CA)`
 
-### [致那些明知真相，却只顾苟活的人](/content/gnews/6/README.md)
+### [致那些明知真相，却只顾苟活的人](/content/gnews/7/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [12/7/2021：从2019年10月23日文贵说出美国要抵制2022年冬奥会，到2021年8月5日我签署新中国联邦第一份官方文件要求国际奥委会取消冬奥会，再到12月6日拜登政府宣布外交抵制冬奥会，我们在灭共的道路上改变了整个世界！](/content/gnews/7/README.md)
+### [12/7/2021：从2019年10月23日文贵说出美国要抵制2022年冬奥会，到2021年8月5日我签署新中国联邦第一份官方文件要求国际奥委会取消冬奥会，再到12月6日拜登政府宣布外交抵制冬奥会，我们在灭共的道路上改变了整个世界！](/content/gnews/8/README.md)
  ` 秘密翻译组-北美组`
 
-### [七哥金句（一）](/content/gnews/8/README.md)
+### [七哥金句（一）](/content/gnews/9/README.md)
  ` MG FARM`
 
-### [西喜时事新闻简报 — 美国时事篇](/content/gnews/9/README.md)
+### [西喜时事新闻简报 — 美国时事篇](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥谈享受人生](/content/gnews/10/README.md)
+### [七哥谈享受人生](/content/gnews/11/README.md)
  ` MG FARM`
 
-### [多数美国人认为中共国是最大的威胁，担心战争爆发：民意调查](/content/gnews/11/README.md)
+### [多数美国人认为中共国是最大的威胁，担心战争爆发：民意调查](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥谈大英帝国](/content/gnews/12/README.md)
+### [七哥谈大英帝国](/content/gnews/13/README.md)
  ` MG FARM`
 
-### [这次的放毒应该是广东帮干的，传染率高但致残率致死率不高](/content/gnews/13/README.md)
+### [这次的放毒应该是广东帮干的，传染率高但致残率致死率不高](/content/gnews/14/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [辉瑞文件承认其疫苗的不良事件反应类型大幅增加](/content/gnews/14/README.md)
+### [辉瑞文件承认其疫苗的不良事件反应类型大幅增加](/content/gnews/15/README.md)
  ` MG FARM`
 
-### [白宫宣布美国将外交抵制北京冬奥会，但允许运动员参赛](/content/gnews/15/README.md)
+### [白宫宣布美国将外交抵制北京冬奥会，但允许运动员参赛](/content/gnews/16/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [意大利大主教维加诺说：“反抗世界新秩序的人将得到上帝的帮助和保护”](/content/gnews/16/README.md)
+### [意大利大主教维加诺说：“反抗世界新秩序的人将得到上帝的帮助和保护”](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国宣布抵制北京冬奥后尚未有“大国”跟进](/content/gnews/17/README.md)
+### [美国宣布抵制北京冬奥后尚未有“大国”跟进](/content/gnews/18/README.md)
  ` HimalayaRussia`
 
-### [五角大楼网络公关承包商承认暗网儿童性虐待指控](/content/gnews/18/README.md)
+### [五角大楼网络公关承包商承认暗网儿童性虐待指控](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [目前为止，美国至少在 10 个州发现了 Omicron 变种](/content/gnews/19/README.md)
+### [目前为止，美国至少在 10 个州发现了 Omicron 变种](/content/gnews/20/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [澳洲正在 &#8220;积极考虑 &#8220;抵制冬奥会](/content/gnews/20/README.md)
+### [澳洲正在 &#8220;积极考虑 &#8220;抵制冬奥会](/content/gnews/21/README.md)
  ` 走进澳洲`
 
-### [Eglise医生：疫苗接种者可能成为人造艾滋病状态](/content/gnews/21/README.md)
+### [Eglise医生：疫苗接种者可能成为人造艾滋病状态](/content/gnews/22/README.md)
  ` HimalayaRussia`
 
-### [白宫正式宣布外交抵制北京冬奥会](/content/gnews/22/README.md)
+### [白宫正式宣布外交抵制北京冬奥会](/content/gnews/23/README.md)
  ` GTV新闻访谈`
 
-### [疾控中心VAERS数据显示，一名5岁儿童在注射辉瑞疫苗4天后死亡](/content/gnews/23/README.md)
+### [疾控中心VAERS数据显示，一名5岁儿童在注射辉瑞疫苗4天后死亡](/content/gnews/24/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [GTV新闻访谈简报|2021年12月7日早](/content/gnews/24/README.md)
+### [GTV新闻访谈简报|2021年12月7日早](/content/gnews/25/README.md)
  ` 纽约香草山MOS01`
 
-### [布林肯承诺美国确保台湾拥有自卫手段](/content/gnews/25/README.md)
+### [布林肯承诺美国确保台湾拥有自卫手段](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [新能源电池、加密技术、芯片加5G和AI才是我们的城邦](/content/gnews/26/README.md)
+### [新能源电池、加密技术、芯片加5G和AI才是我们的城邦](/content/gnews/27/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [2021/12/06 文贵先生直播精要](/content/gnews/27/README.md)
+### [2021/12/06 文贵先生直播精要](/content/gnews/28/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [教育已死](/content/gnews/28/README.md)
+### [教育已死](/content/gnews/29/README.md)
  ` 银河勇气之星`
 
-### [有声|中共幼儿园悄悄降低入园年龄限制](/content/gnews/29/README.md)
+### [有声|中共幼儿园悄悄降低入园年龄限制](/content/gnews/30/README.md)
  ` MOSREC`
 
-### [有声|美空军部长称与中共进行高超音速武器竞赛](/content/gnews/30/README.md)
+### [有声|美空军部长称与中共进行高超音速武器竞赛](/content/gnews/31/README.md)
  ` MOSREC`
-
-### [中共的流氓文化](/content/gnews/31/README.md)
- ` 银河勇气之星`
 
 ### [有声|标准普尔500指数本周表现不佳，未来走势堪忧](/content/gnews/32/README.md)
  ` MOSREC`

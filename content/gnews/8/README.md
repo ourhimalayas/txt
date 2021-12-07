@@ -2,29 +2,10 @@
 ---
 
 
-## 七哥金句（一）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1730860/)
+## 12/7/2021：从2019年10月23日文贵说出美国要抵制2022年冬奥会，到2021年8月5日我签署新中国联邦第一份官方文件要求国际奥委会取消冬奥会，再到12月6日拜登政府宣布外交抵制冬奥会，我们在灭共的道路上改变了整个世界！
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1730878/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
-
-战友们，只有什么样的力量能够让对方像黑洞一样的吸引过来，那就是不可抗拒的，不对称的魅力和能力，和能满足对方所有的需要的倍数，你才能达到这个。
-
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+秘密翻译组-北美组
 
  
 

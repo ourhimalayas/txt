@@ -2,49 +2,47 @@
 ---
 
 
-## 美国宣布抵制北京冬奥后尚未有“大国”跟进
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1730713/)
+## 意大利大主教维加诺说：“反抗世界新秩序的人将得到上帝的帮助和保护”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1730721/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+![](https://assets.gnews.org/wp-content/uploads/2021/12/61a7890585f54004124be1ab-8.jpg)图片来源：americanfaith.com
+维加诺大主教是主流媒体恶毒攻击的对象，因为他是那些在这个颠倒的世界中渴望正义和常识的天主教徒甚至非信徒的希望之星。
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/12/B-2.jpg)justjared.com
-白宫官宣外交抵制北京冬奥会过了24小时【1】，还没有看到“大国”的跟进，难道是笔者有些着急？有一点可以肯定，中共不甘罢休，正在全力以赴，垂死挣扎，试图找到某个突破口。
+以下是他在昨天发表的最近一次采访中的一些评论。
 
-看看英、法、加的反应。
+我，你和你的孪生兄弟吉姆在我的祈祷中。你被系统攻击的事实证明你走在正确的道路上：要有毅力，不要被吓倒。我们处于战争状态，我们必须战斗。
 
-路透社伦敦12月7日电 英国首相鲍里斯·约翰逊（Boris Johnson）的发言人周二（12月7日）表示，在美国宣布抵制北京冬奥会后，英国尚未就政府代表是否参加北京冬奥会做出决定。
+正如我之前所指出的，任何极权主义政权都试图将任何形式的异议合法化，首先是通过嘲笑对手，使他成为嘲笑的对象，以便在公众舆论面前诋毁他。然后，在将该人认定为病态或需要精神病治疗后，暗示对方精神不稳定，应在精神病院住院治疗。最后，这一过程以对所有持不同政见者的完全刑事定罪告终。通过这种方式，该政权创造了必要的前提，将其所有对手与公民社会分开。
 
-他对记者说：“英国政府（HMG，Her Majesty’s Government）出席北京奥运会的决定尚未作出，我们将在适当时候阐明我们的立场。”【2】
+我认为每个神父都有权利，或者更确切地说，有责任警告他的信徒注意这种实验性医疗产品的接种所代表的真正危险——完全不仅仅是假设的危险。尤其是当整个精神大流行闹剧的目的是建立独裁统治时，情况尤其如此，其目的是在紧急情况的幌子下通过侵犯公民的宪法和自然权利来控制公民。
 
-路透社巴黎12月7日电 法国总统周二（12月7日）表示，法国注意到美国宣布以外交手段抵制2022年北京冬奥会，并表示将在欧洲层面就此问题作出协调反应。
+这项行动需要精心准备，需要大部分公共机构和私营部门的参与，包括司法、执法和媒体的共同参与。这些共同努力是一场真正的政变，而大流行只是一个借口——亵渎——通过它引入了侵犯基本权利的看似不可避免的行为以及随之而来的新秩序极权主义政权的建立。在这个新秩序中，流行病迷信占主导地位，其魔术师、疫苗庙宇、非理性仪式和对罪人vitandi（“被避免”或“被回避”）的逐出教会——那些不同意放弃他们的为了接受这种疯狂的意识形态疯狂，甚至在背离他们的信仰之前就进行推理。
 
-声明说：“我们注意到美国人的决定，当我们对人权感到担忧时，我们会对中共人说，我们去年3月对新疆采取了制裁，我们将在欧洲层面进行协调。”【3】
+世界新秩序既不是新秩序也不是秩序：它代表了撒旦推翻上帝的天意计划，取消导致永恒救赎的真正宗教并最终取代“ordo christianus”（“基督教秩序”）的愚蠢野心，带来地狱般的混乱。在这种混乱中，谎言代替了真理，不公正和滥用权力代替了正义，心血来潮代替了对上帝的律法的服从，死亡代替了生命，疾病代替了健康，邪恶的合法化和正义的谴责，迫害 善人的赞美和恶人的赞美，无知代替了文化和智慧，丑陋和恐怖代替了美丽，分裂和仇恨代替了和谐与爱。撒旦不想通过采用上帝的品质而被崇拜，而是通过一切邪恶、淫秽、虚假、荒谬和可怕的事物要求成为崇拜的对象。他寻求彻底的颠覆，一种在本体论上邪恶和反基督的颠覆：通过以精心策划的计划紧急情况为幌子实施的全球政变而获得的“新秩序”。
 
-MSN发表文章，报道了加拿大的态度，“美国将对北京奥运会进行‘外交抵制’，加拿大也在考虑类似的问题”。文章说，同一天（12月6日）晚些时候，当被问及加拿大是否会效仿时，特鲁多（Trudeau）含糊其辞，但他明确表示，他也将寻找一种方式来谴责中共国，而不迫使加拿大运动员牺牲期待已久的获得奥运奖牌的机会。
+疫苗运动缺乏任何科学有效性，首先作为实施全球追踪和控制的明显合法性，今天以限制冠状病毒传播为借口（这个借口是错误的，因为除其他原因外，接种疫苗的人仍然可以成为感染并具有传染性）。但明天，这项运动旨在扩大其影响范围，将“绿色通行证”扩展到包括用于“社会信用体系”的信息，以应对“绿色紧急情况”，这同样是虚假和似是而非的。“绿色通行证”被设想为类似于圣约翰启示录中提到的野兽印记，允许或禁止人们购买、出售、旅行、消费、饮食和生活。
 
-加拿大体育部长帕斯卡尔圣·翁（Pascale St Onge）周一（12月6日）面对提问也做了同样的回答。
+其次，给人们接种实验性基因血清会导致我们的天然免疫系统减弱，这是一种非常严重的犯罪，因为它会将普通健康人变成慢性病患者，进而变成医疗保健公司和私人护理的客户。这种情况极大地增加了全球精英的利润，并导致人口普遍贫困。
 
-“到目前为止，还没有做出决定。” “当然，我们非常关注中共国的侵犯人权行为，我们不会轻易作出决定，一旦作出决定，我们将立即与你们沟通。” 【4】
+简评：上帝缔造了人类，现在的邪恶势力想按照他们的意图毁灭人类，疫苗运动缺乏任何科学有效性，首先作为实施全球追踪和控制的明显合法性，今天以限制冠状病毒传播为借口禁止人们购买、出售、旅行、消费、饮食和生活。主耶稣用自己的生命和宝血赎了我们的罪，复活四十天后，回到了天父那里，至今没有再来。一代一代的基督徒今天仍然翘首企盼。
 
-无独有偶，疑似通共、肯定亲共的加拿大驻华大使多米尼克·巴顿（Dominic Barton）昨晚（12月6日）辞职【5】，相信与中共的奥运博弈有关。
+当越来越多的人因为爱而坚定信靠神的时候，凝聚起来的人们就产生无穷无尽的爱的能量。就像爆料革命，起初就郭文贵先生一个火种在燃烧发光。郭文贵先生对神坚定的信靠，唯真不破的正道，从直播开始传递出来的每个真相，告诉全世界共产党的恶，告诉美国黑暗即将来临。说出真相，传播真相，就是基于爱，基于对神的信靠，相信正义一定战胜邪恶，相信神对爆料革命一定会保守看顾。一个个真相的传递就是爱的能量的传递。
 
-认识中共的邪恶需要有个过程，响应美国的抵制同样也不会是一帆风顺，尤其是被中共握住把柄的要员，此时不为主子拼死一搏，主子会很生气，后果会很严重；再者通过这事，又可以增加个与中共勾兑的砝码。
+维加诺大主教的信息是向广大的信徒及有良知的人们发出呼号，上帝关注着人类！
 
-笔者相信，但正义的力量肯定会占上风，西方主要国家肯定会进行抵制，邪共你就别妄想了！刚才文贵先生盖特视频里已经透露了相关信息，西方各国都会跟上美国的步伐。
+新闻链接：
 
-有关链接：
+[https://americanfaith.com/those-who-resist-the-new-world-order-will-have-the-help-and-protection-of-god-italian-archbishop-vigano/](https://americanfaith.com/those-who-resist-the-new-world-order-will-have-the-help-and-protection-of-god-italian-archbishop-vigano/)
 
-【1】[https://gnews.org/zh-hans/1727819/](https://gnews.org/zh-hans/1727819/)
+* * *
 
-【2】[https://www.reuters.com/lifestyle/sports/no-decision-yet-beijing-olympics-says-uk-pms-spokesman-2021-12-07/](https://www.reuters.com/lifestyle/sports/no-decision-yet-beijing-olympics-says-uk-pms-spokesman-2021-12-07/)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-【3】[https://www.reuters.com/lifestyle/sports/france-says-there-will-be-coordination-eu-level-beijing-olympics-2021-12-07/](https://www.reuters.com/lifestyle/sports/france-says-there-will-be-coordination-eu-level-beijing-olympics-2021-12-07/)
 
-【4】[https://www.msn.com/en-ca/news/canada/u-s-to-mount-diplomatic-boycott-of-beijing-olympics-canada-contemplates-similar/ar-AARx1a5?ocid=msedgntp](https://www.msn.com/en-ca/news/canada/u-s-to-mount-diplomatic-boycott-of-beijing-olympics-canada-contemplates-similar/ar-AARx1a5?ocid=msedgntp)
-
-【5】[https://www.msn.com/en-ca/news/other/canada-s-ambassador-to-china-steps-down-as-ottawa-faces-pressure-from-biden-administration/ar-AARxbrb?ocid=msedgntp](https://www.msn.com/en-ca/news/other/canada-s-ambassador-to-china-steps-down-as-ottawa-faces-pressure-from-biden-administration/ar-AARxbrb?ocid=msedgntp)
-
+编辑：【英国伦敦喜庄园编辑部】
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

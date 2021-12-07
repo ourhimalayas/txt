@@ -2,31 +2,38 @@
 ---
 
 
-## 七哥谈享受人生
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1730835/)
+## 西喜时事新闻简报 — 美国时事篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1730843/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+编译：土饭团
 
-赵泽帝大佬旁边，中午吃完饭，我说我要抽个雪茄，我说你抽不抽？他说我不抽。我就拿出一根雪茄抽。他看着我雪茄就傻。他说Miles，你的西装，你的穿着，你的车子，你的团队都是我见过所有其他国家没有的，这个人是普京的铁板哥们，还有？？？的哥们，绝对哥们，超级大佬。他说你抽的雪茄我知道，这雪茄比我都老。他是67岁，1956还是57年出生的，67岁，很年轻看上去。他说这雪茄是在太好了，最重要你懂得那个年份，还有你还知道怎么抽好雪茄。我笑笑没吱声，我就在前面走。然后呢旁边，你七嫂昨天跟我去的，带着咖啡，他就闻出来了，你这咖啡好。我说我的咖啡真的好，但是我已经喝了，在那个桶里边我不能再倒给你是吧。啊，就那个羡慕的眼神啊。他说还有最重要的事情，他说你现在干那么多事情，你咋还有心情，那么多时间享受你的人生，这是我太不可思议了。他说我忙的每天都是这没时间，那没时间，家里搞得很不和。我说这就是我的人生，任何情况下不能影响我的生活质量，任何情况下！我说我想睡的觉一定会睡的，想吃的饭一定会吃的，想穿的东西一定会穿的。照样骑摩托车，照样开跑车是吧。该干啥干啥，该双修双修，一点都不受影响。我想给你们说，你们一定要记住，爆料革命最初，要在轻松，愉悦，体面，你力所能及的情况下再灭共，再搞爆料革命。绝不允许奉献，更不允许失去情况下，去追求所谓的幻想，更不允许跟着把郭文贵这个人给神化，个人化，崇拜化。都像希特勒，斯大林，每个人，列宁，毛泽东，无不如此，先把自己神化，大照片，雕塑，然后他代表神，上帝，像现在的习太阳一样。谁神化七哥，谁就是无知，你们所有想要的，我都想要，我只是经验比你们多，我比较幸运。说我今天我想说的事情，我所说的隔空取钱，你像Rachel在跟我一起，跟我们的村长，长岛哥一起吃过饭，我们的Qmay， Rain，小白，墨镜，咱们吃过饭的。那种是自然的。
+**1.[Blinken对中共国就台湾问题发出加倍警告：如果北京进行打击，将产生“可怕的后果”](https://www.foxnews.com/world/blinken-china-warning-taiwan-terrible-consequences)**
 
-校对：HimaFaFA
-发布：HimaBoy
+福克斯新闻12月4日电，Blinken在周五的Reuters Next会议上发言，他重申了美国对捍卫台湾自治权的承诺，Blinken强调，中共国领导人应对任何此类行动“慎重考虑”， 他说这将“给许多人带来可怕的后果，而且不符合任何人的利益。”
 
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+**2.[Austin在安全论坛讲话中针对中共国:“中共国没有10英尺高”](https://www.foxnews.com/politics/austin-targets-china-in-security-forum-address-china-is-not-10-feet-tall)**
 
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+福克斯新闻12月4日电，国防部长周六在里根国防论坛的讲话中把矛头指向了中共国，他告诉福克斯新闻的Bret Baier，“中共国没有 10 英尺高。”“美国是一个太平洋强国，”Austin说。“印太地区是一个充满机遇和真正挑战的地区。其中一个挑战是一个日益自信和专制的中共国的出现。”
 
-**关注我们**
+**[3.共和党人指责Biden对奥运会的“外交抵制”过于微不足道](https://www.foxnews.com/politics/republicans-blast-biden-diplomatic-boycott-of-olympics-as-too-little)**
 
-Discord 账号
+福克斯新闻12月6日电，共和党议员针对Biden总统对北京奥运会的外交抵制，认为阻止美国官员参加奥运会还远远不够，他们呼吁将奥运会从中共国撤出。“虽然我曾呼吁美国和其他国家对2022年冬奥会进行外交抵制，但这是最起码的，Biden总统应该做得更多，以追究中共的责任，”参议员Bill Hagerty周一在一份声明中说。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+**4.[美国和欧盟对北京在南海的“问题”行动表示担忧](https://www.aninews.in/news/world/us/us-eu-expresses-concern-about-beijings-problematic-actions-in-south-china-sea20211204203724/)**
 
-Gettr 账号
+ANI 12月4日电，美国和欧盟对中共国在南中国海和东中国海日益增长的军事侵略表示关切，并表示他们将共同管理与北京的竞争关系。双方表示，中共国在南海、东海和台湾海峡的行动“破坏了该地区的和平与安全，并直接影响到美国和欧盟的安全和繁荣。”
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+**5.[美国太空部队将军警告中共国日益增长的太空军事潜力](https://www.politico.com/news/2021/12/05/space-force-china-military-523769)**
+
+POLITICO 12月5日电，美国太空部队副总司令周日警告说，中共国在太空发展方面正处于快速发展阶段，这加剧了人们对其可能在太空超越美国并获得军事优势的担忧。David Thompson将军说：“我不认为他们将在十年结束时成为太空领域的领导者已成定局，但他们的步伐令人难以置信，”他补充说，美国需要调整其方法，否则有可能被竞争者超越。
+
+* * *
+
+*审核：蚂蚁兄弟
+校对：阿伯塔
+发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH..jpeg)
 
  
 
