@@ -2,100 +2,32 @@
 ---
 
 
-## 疫苗护照不是目的，杀人和医疗垄断才是目的
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1727566/)
+## 日本首相称将大幅强化该国防御力量
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1727596/)
 
-[https://gtv.org/video/id=61ae821187fa7e74c92c64ce](https://gtv.org/video/id=61ae821187fa7e74c92c64ce)
+**撰稿：日本东京方舟农场 幽蘭自得**
 
-我不觉得这个疫苗护照的事情
-Yo no creo que el asunto del pasaporte de vacunación
+为应对来自中共国和朝鲜的威胁，日本首相岸田文雄12月6日表示，日本将研究包括获得打击敌方基地能力在内的各种选项，从根本上加强日本的防御力量。
 
-现在是大家有确实的证据
-Ahora es que todos tienen una evidencia definitiva
+据《路透社》报道，岸田文雄表示，作为提高日本防卫能力的一个步骤，规划国家安全政策的三个主要文件将在一年内更新，包括国家安全战略、国防计划指导方针和中期防卫计划。
 
-就是疫苗护照是他们的目的
-Donde este pasaporte de vacunación sea su objetivo
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-56.jpg)图片来自Getty Images
 
-我不觉得
-Yo no lo creo
+此外，岸田文雄还在一次政策演讲中表示，为了保障人民的生命和生计，日本将研究所有的选项，包括攻击敌方基地的能力等，加速从根本上加强本国的防御力量。
 
-我觉得杀人是他的目的
-Yo pienso que matar a las personas es su objetivo
+《路透社》分析认为，这种能力将标志着日本军事态势的转变。在此之前，日本受到其二战后和平主义宪法的限制，在与美国的安全联盟中，它一直扮演着防御的角色，而美国则扮演着攻击的角色。如今，这一态势已经发生了转变。
 
-种族残杀是他的目的
-El genocidio es su propósito
+*参考链接：*
 
-更重要的事情
-Y lo más importante
+[日本首相岸田文雄称将大幅强化国防力量](https://cn.reuters.com/article/japan-kishida-defence-1206-idCNKBS2IL0E3?il=0)
 
-我认为整个是一个医疗垄断
-Creo que en conjunto es un monopolio médico
+* * *
 
-也就是一个人类上, 所谓他们认为的优胜劣汰
-Es decir, en la raza humana, ellos creen que es la supervivencia del más apto
+*素材采编：幽蘭自得*
 
-变成了一个什么
-Y esto se convierte en qué
+*编辑：青衣青青*
 
-就是我喜欢和不喜欢, 有用没有用
-En lo que me gusta y lo que no me gusta, útil o inútil
-
-就变成了两极的社会
-Se transforma en una sociedad con dos extremos
-
-这是一次人类绝对的大屠杀
-Esta vez es absolutamente una gran masacre de la humanidad
-
-而且这种黑暗的力量和共产党绝对是勾结在一起
-Y esta fuerza oscura seguramente está en complicidad con el PCCh
-
-所以说我不觉得什么, 这个数字货币, 数字银行, 数字护照
-Por eso digo no es nada, esta moneda digital, banco digital y el pasaporte digital
-
-然后疫苗护照能有什么联系
-Entonces, ¿ qué relación tiene con el pasaporte de vacunación?
-
-我觉得这个是有点儿Q组织的那种(感觉)
-Creo que esto es (se siente) un poco como el QAnon
-
-有点儿, 这过度了
-Es como que es demasiado
-
-首先我是没有这个情报, 没这个证据
-Primero que nada, yo no tengo estas informaciones o evidencias
-
-所以我就很少谈这个话题
-Por lo tanto, no hablo casi de este tema
-
-我觉得大家现在没掌握绝对的情报证据之前
-Creo que antes de que todos tengan la evidencia e información absoluta
-
-也少谈
-Hablen menos de eso
-
-这会把大家掉坑里边去
-Esto los arrojará a todos al pozo
-
-**原视频网址**：[https://gettr.com/post/pioxwr9960](https://gettr.com/post/pioxwr9960)
-
-日期：12/06/2021
-原视频标题：疫苗护照不是目的，杀人和医疗垄断才是目的
-El pasaporte de vacunación no es el objetivo, matar a las personas y el monopolio médico es su propósito
-原视频日期：12/04/2021
-原视频网址：https://gettr.com/post/pioxwr9960
-任务编号：KC312(3105)
-视频时间段：0:00-1:09
-
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作: 洛杉矶盘古农场 –天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+*发布：Ranting*
 
  
 
