@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/7/2021 2:37 PM (UTC)`
+
+12月7号：尊敬的战友们好，感谢全球亿万战友的关心，文贵的亲爹已经安顿下来啦……盘古的员工已经开始维权了……并很多人的救助……请大家放心！日久见人心，战友的牵挂和担心……和对我家人和我同事的爱……文贵定当以身相报，以灭共相还！莘县阳谷县搭县走着看！
+![img](https://media.gettr.com/group10/getter/2021/12/07/14/a88d667f-c87b-7b47-ee84-4e246d6d0f2f/out.jpg)
+
+---
+
 `@miles 12/7/2021 2:11 PM (UTC)`
 
 7/12/2021 “Hcoin To the Moon" Hits #1 🥇on 6 Countries' iTunes Rock Charts on 5th Day of Launch 🎉🎉🎉🎉🎉🎉🎉<br/>Thank you very much to all our brothers and sisters in HongKong, Taiwan, New Zealand, Australia, Laos, Singapore!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1729807/<br/><br/>12月7号，Hcoin To the Moon上线第5天位列6国iTunes摇滚音乐榜首🥇！🎉🎉🎉🎉🎉🎉🎉<br/>感谢香港，台湾，新西兰, 澳大利亚，老挝，新加坡的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏
@@ -142,12 +149,6 @@ Dec. 6th, 2021, after the CCP, filled with fear of our Whistleblowers’ Movemen
 
 12/5/2021 Miles Guo: Xi Jinping’s confidence and insanity come from Russia; Xi has personal grudges with the US and European governments and they look down upon each other; battery, new energy, digital currency, and space technology have given Xi confidence; Xi Jinping alone determines the fate of Communist China, and Russia is the key for taking down the CCP<br/><br/>12/5/2021 文贵直播：习近平的自信和疯狂源自俄罗斯；习跟美、英政府有个人恩怨，互相不待见；电池、新能源、数字货币和太空技术给习自信；习决定了中共国的命运，俄罗斯对灭共很关键<br/><br/>
 ![img](https://media.gettr.com/group41/getter/2021/12/05/23/1632ba85-c5bd-e4f7-b7f0-5bbe6cdd5442/out.jpg)
-
----
-
-`@miles 12/5/2021 10:46 PM (UTC)`
-
-5/12/2021 “Hcoin To the Moon" Hits #1 🥇on 10 Countries' iTunes Rock Charts on 3nd Day of Launch！🎉🎉🎉🎉🎉🎉🎉<br/>Thank you very much to all our brothers and sisters in HongKong, UAE, Taiwan, New Zealand, Malaysia, Poland, Spain, Hungary, Australia, Singapore!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1723274<br/><br/>12月5号，Hcoin To the Moon上线第3天位列10国iTunes摇滚音乐榜首🥇！🎉🎉🎉🎉🎉🎉🎉<br/>感谢香港，阿联酋，台湾，新西兰，马来西亚，波兰，西班牙，匈牙利，澳大利亚，新加坡的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/><br/>中文：https://gnews.org/zh-hans/1723273/<br/>
 
 ---
 
