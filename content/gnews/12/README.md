@@ -2,59 +2,26 @@
 ---
 
 
-## 奥密克戎病毒产生4个为什么?
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1730110/)
+## 日本通过检测居民污水掌握疫情
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1730279/)
 
-作者：香草山农场—祈望明天会更好
+撰稿:东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/6-13.jpg)
+[图片源](https://www.nhk.or.jp/politics/articles/lastweek/37246.html)
 
+日本盐野义制药7日宣布，通过检测污水中的中共病毒来监测疫情的服务，可以检测包括奥密克戎毒株在内的突变株。从今年6月起，全国各地已开通服务，通过对污水检查，可以及早掌握突变株流行情况，用于制定相应对策。
 
+该方法是与北海道大学共同开发的，用于分析来自中共病毒感染者粪便形成的污水中的病毒。除了新的突变Omicron菌株外，该团队还能检测到现有的alpha和delta菌株。
 
+日本盐野义制药是一个有中资参股背景的公司，但愿这项检测服务的数据不会被恶意利用，成为助推强打疫苗与所生产的口服液的帮凶。
 
+信息源：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-7.jpg)
+[下水中のオミクロン株を検出へ　塩野義、早期把握に貢献](https://news.yahoo.co.jp/articles/03d9818b2cf02f49d0d47c39c44a042edda4d46b)
 
-
-
-
-
-2021年12月3日，郭先生在大直播中说到：对奥密克戎爆料的准确度百分之百是根据情报的来。郭先生在大直播中提问奥密克戎新病毒产生的四个为什么？
-![](https://assets.gnews.org/wp-content/uploads/2021/12/063322.png)
-为什么这个时候，联合国、世卫组织都异口同声地为共产党掩盖？
-
-为什么奥密克戎致死率没有那么高？
-
-为什么此时的王毅出访非洲？杨洁篪被消失？
-
-为什么孙立军被抓？孟建柱全家被抄家？王岐山所有人全被干掉？
-
-这意味着什么？郭先生继续解说，这里面是有计划的。这跟下一步对台湾的计划是有绝对关系的。郭先生再次强调奥密克戎的出现跟台湾是有绝对关系的。奥密克戎如果可以让疫苗消失或弱化，共产党会和联合国、世卫组织达成交易。这种达成的交易牺牲的就是台湾，届时世界将会出现另一种极端的现象。
-
-这四个为什么，除了可以理解其一但无法全部理解。这就是郭先生的迷人之处，这同时也引领大家提升自省能力，分析、判辨事件的能力。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-2.png)
-
-编辑/校正/发稿：兰兰
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-8.jpg)
-
-
-
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
 
 
  
