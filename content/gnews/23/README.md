@@ -2,51 +2,24 @@
 ---
 
 
-## 阿富汗发生惨烈的人道危机，全球媒体仍噤声
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1728513/)
+## 澳洲出台禁令 限制伊维菌素处方
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1728589/)
 
-作者：银河勇气星—骄子
+#### 翻译/校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/5535-2.jpg)图片来源：The Guardian
+根据卫报（The Guardian）9月10日的报道，澳洲药物监管机构禁止医生开具用于抗寄生虫药物的伊维菌素用于“标签外”的用途，例如治疗中共病毒。
 
+在药品调度咨询委员会（Advisory Committee on Medicines Scheduling）的建议下，澳大利亚政府药物管理局（TGA）于周五下午宣布了禁令。在禁令出台前的几个月里，伊维菌素的处方增加了三四倍。现在除了患有TGA批准的病例，否则人们无法得到伊维菌素的处方。如果传染病医生、皮肤科医生和肠胃病学家在内的一些专家认为伊维菌素适用于患者，那么伊维菌素仍可以开处方用于批准之外的病例。
 
+TGA明确表示，“引入新的禁令就是为了防止人们把伊维菌素用于预防或治疗中共病毒。澳洲和其他发达国家尚未批准伊维菌素用于中共病毒，全球Covid临床证据工作组（National Covid Clinical Evidence Task Force），世界卫生组织（WHO）和美国食品药品监督管理局(Food and Drug Administration)强烈反对将伊维菌素用于中共病毒。”另外TGA担心人们会用伊维菌素替代其他的治疗，或者直接以此代替疫苗。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+监管机构也担心人们对使用剂量把握不住，过量使用可能会引起恶心、呕吐甚至对神经系统造成影响，例如头晕、眩晕、癫痫和昏迷。
 
+如今澳洲对使用伊维菌素治疗中共病毒的需求不断增加。TGA发现从8月份开始，海外进口伊维菌素的人多了10倍，药剂师也报告称，很多人都提出要伊维菌素的处方，但他们都拒绝说明开处方的原因。伊维菌素的需求激增导致该药供货短缺。
 
+在禁令出台前，脸书和电报社区正在悄悄讨论该药物，并分享愿意开伊维菌素处方的医生的信息。伊维菌素治疗中共病毒的方法也在新南威尔士州威尔坎尼亚(Wilcannia)的土著之间传开。墨尔本的一家诊所甚至专门有一个网页供寻求伊维菌素处方的人使用。
 
-近日，郭先生在直播中多次提及，阿富汗发生了惨绝人寰的人道危机。共产党利用塔利班占领了阿富汗以后，阿富汗女性随即沦为塔利班极端分子的泄欲工具，尤其是处女、幼女。目前，阿富汗国内粮食极度短缺，几乎每分每秒都有人饿死。
-
-郭先生指出，在阿富汗过去是1个处女换4袋面，现在是4个处女一袋面。人活得还不如一袋面。郭先生想帮助阿富汗，送粮食过去。但是如何送过去，如何确保粮食送到灾民手里，他们又怎么煮着吃，这些都是问题。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1.1-3.jpg)
-如今，阿富汗境内发生的人道主义危机，整个世界的媒体没有一家有报道，全部禁声，只能在郭先生在GTV直播中传达真相。
-
-郭先生提醒，阿富汗的今天就是中共国的明天。粮食短缺带来的人道灾难，背后都是共产党的邪恶独裁统治的恶果。
-
-参考链接：
-[2021年12月05日 文贵大直播：全球数字货币市场改观；亚洲政治军事形势大变；恒大地产与美金融市场；喜币近况与未来的意义](https://gtv.org/video/id=61acb7bebbd75f62e52f7ce4)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
-
-总编：飞虹
-编辑：木白
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+新闻来源：[Ivermectin: Australian regulator bans drug as Covid treatment after sharp rise in prescriptions](https://www.theguardian.com/australia-news/2021/sep/10/australian-drug-regulator-bans-ivermectin-as-covid-treatment-after-sharp-rise-in-prescriptions)
 
  
 

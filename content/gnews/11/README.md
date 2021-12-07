@@ -2,41 +2,41 @@
 ---
 
 
-## 纽约加速强推疫苗，小学门口驻扎流动疫苗巴士
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1728676/)
+## 中共国又一房企巨头阳光100债劵逾期无力偿还
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1728722/)
 
-作者：纽约香草山健身部 – Jack Li文阳
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-近日，记者在纽约唐人街看到，两辆流动疫苗巴士驻扎在纽约唐人街地标孔子大厦后面的一所小学门口。
+#### **撰稿：**日本东京方舟农场 子辰
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-314.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/5C64B073-9B94-4AC6-B64C-9AC94D4DDDAE.jpeg)（图片来自网络）
 
-疫苗工作人员在小学的门口撑起了帐篷，里面摆放了十数张座椅。布告牌上显示这是纽约疫苗接种点，还有辉瑞和5～11岁的字样。可以看出，这两辆疫苗巴士针对的是这所学校里的小学生。
+据《美国之音》12月7日报道，继中共国房地产巨头恒大集团和佳兆业集团近日先后宣布，恐因无力偿付到期巨额债券本息而面临违约后，又有一家中共国著名房地产商阳光100也被曝出陷入违约困境。
 
-![](https://cdn.discordapp.com/attachments/821934164823244803/917582767414456370/2.jpg)
+据《法新社》和《路透社》等多家媒体报道，12月6日，阳光100在港交所发布公告称，“公司发行并于新加坡证交所上市的10.5%优先票据本金及利息于12月5日到期。公司无法偿还，已发生违约事件。”
 
-12月6日上午，纽约市长白思豪(Bill de Blasio)宣布扩大现有的疫苗强制授权，将5～11岁的儿童也纳入了接种疫苗的范围。
+阳光100所公告的这笔无力偿还票据，本金为1.7亿美元，另有未付利息892.5万美元。
 
-希望家长能顶住诱惑和压力，拒绝毒针，保护好自己的孩子。
+阳光100在其发布的文件中指出，无法支付这笔美元债务款项，是由于受到宏观经济环境、地产行业的诸多不利因素等影响，导致企业出现了流动性问题。
 
-![](https://cdn.discordapp.com/attachments/821934164823244803/917582554746470420/1.jpg)
-![](https://cdn.discordapp.com/attachments/821934164823244803/917582768135868456/3.jpg)![](https://cdn.discordapp.com/attachments/821934164823244803/917582843335573504/5.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+根据中共国媒体的相关报道，截至2020年底，阳光100就已三次踩中中共地产行业的“三条红线”监管条例：公司的资产负债率超过17%；净负债率高达187%；现金短债比仅为0.24。显示出短期偿还债务的压力巨大，并有近百亿元人民币的流动性资金缺口。
 
-**校对/发稿：童谣**
+在阳光100发布上述公告之前，中共国恒大集团和佳兆业集团也分别在港交所发布了类似公告。
 
-**更多资讯，更多关注**
+此外，自中共国房地产行业爆发债务危机以来，已经有众多的中小公司宣布违约或破产。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+*参考链接：*
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+1. [*恒大恐违约在即，阳光100又爆债券逾期无力偿付*](https://www.voachinese.com/a/Chinese-developer-misses-major-bond-repayment-of-179-million-20211206/6341164.html)
+2. [*中企地产商阳光100突发债务违约*](https://www.soundofhope.org/post/572420)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+* * *
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*素材采编：子辰*
+
+*编辑：青衣青青*
+
+*发布：miumiu*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,35 +2,37 @@
 ---
 
 
-## 中共国誓言对美国的奥运抵制采取反制措施
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1728516/)
+## 北京强制体制内人员接种中共加强针 要求达到100%
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1728602/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2021.12.7-5中共国誓言对美国.png)图片来源：华尔街日报中文网
-翻译：文扬
-编辑：Mttfly
+作者：香草山农场 – 一颗螺丝钉
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间12月6日，据消息人士爆料，在北京某区的疫苗接种内部会上，相关领导要求该辖区内的全部党政群机关、企事业单位强制本单位人员接种中共病毒加强针，并要求接种率达到100%。
 
-中共国外交部发言人赵立坚在周一的新闻发布会上说，抵制北京冬奥会的呼吁应该停止。并补充道，美国政客这样做可能会“影响中美两国在重要领域的对话和合作”。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/0-1.jpg)
 
-李健补充说，如果华盛顿坚持固执己见，北京将坚决采取反制措施。同时将抵制的呼吁描述为“哗众取宠”。拜登政府尚未正式宣布任何举措。不过，据美国有线电视新闻网周日的报道，预计本周可能会宣布。
+该会议主要内容如下： 为实现加强免疫接种“应接尽接”的目标，原则上，在12月10日之前，全区的党政群机关企事业单位人员，以及下属单位、编外用工等人员均要完成加强针接种率100%的目标，同时，本单位离退休干部也要达到不低于50%的加强免疫率。
 
-上个月，拜登表示他正在考虑对2022北京冬奥会进行外交抵制，以抗议中共国糟糕的人权记录。包括华盛顿所说的中共对维吾尔人的“种族灭绝”。
+最迟截止至12月底前，各单位要全面完成加强免疫接种率100%的目标。届时若未能完成目标，各单位的一把手负责人将直接对此负责。
 
-包括美国和英国在内的西方国家指责中共国在新疆建立集中营，据说这些集中营实行绝育和奴役政策。中共国多次否认这些指控，称这些集中营为职业教育和培训中心。
+墙内网友指出目前，已有北京某三甲医院在院内明确提出，所有医护人员必须全部接种中共病毒加强针，否则将被长期停职。
 
-白宫没有对 CNN 的报道发表评论。潜在的抵制将阻止美国官员参加奥运会，但不会阻止美国运动员参加比赛。据报道，英国首相约翰逊（Boris Johnson）也在考虑进行类似的抵制。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-**原文链接：**[China vows‘countermeasures’to US Olympic boycott](https://www.rt.com/news/542311-china-countermeasures-us-olympic-boycott/)
+**校对/发稿：童谣**
 
-**发布：去中心化Math**
+**更多资讯，更多关注**
 
-**
-****更多信息，请关注：
-**[澳大利亚墨尔本阿西娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本阿西娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本阿西娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本阿西娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本阿西娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

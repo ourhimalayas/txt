@@ -15,83 +15,83 @@
 
 ---
 
-### [BBC向中共国企投资的养老基金超过1.5亿英镑](/content/gnews/1/README.md)
+### [澳大利亚教师短缺是什么造成的？](/content/gnews/1/README.md)
+ ` 澳喜农场`
+
+### [人善人欺 天不欺](/content/gnews/2/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [BBC向中共国企投资的养老基金超过1.5亿英镑](/content/gnews/3/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [欧盟宣布延长制裁中共国官员](/content/gnews/2/README.md)
+### [郭先生解释：为什么中共让百姓多生孩子，又强迫孩子打毒疫苗](/content/gnews/4/README.md)
+ ` 纽约香草山MOS02`
+
+### [欧盟宣布延长制裁中共国官员](/content/gnews/5/README.md)
  ` 日本东京方舟农场`
 
-### [千名律师与万名医学专家团队启动世界第二次纽伦堡审判（下篇）](/content/gnews/3/README.md)
+### [千名律师与万名医学专家团队启动世界第二次纽伦堡审判（下篇）](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [COVID-19 最新情报｜纽约市率先强制私企员工接种疫苗](/content/gnews/4/README.md)
+### [COVID-19 最新情报｜纽约市率先强制私企员工接种疫苗](/content/gnews/7/README.md)
  ` G&#124;News TAIWAN`
 
-### [郭先生谈中共内部北戴河会议](/content/gnews/5/README.md)
+### [冬奥会后，灭共力量将逐步集结](/content/gnews/8/README.md)
  ` GTV新闻访谈`
 
-### [郭文贵先生畅想新中国联邦的未来](/content/gnews/6/README.md)
+### [郭先生谈中共内部北戴河会议](/content/gnews/9/README.md)
  ` GTV新闻访谈`
 
-### [中共国又一房企巨头阳光100债劵逾期无力偿还](/content/gnews/7/README.md)
+### [郭文贵先生畅想新中国联邦的未来](/content/gnews/10/README.md)
+ ` GTV新闻访谈`
+
+### [中共国又一房企巨头阳光100债劵逾期无力偿还](/content/gnews/11/README.md)
  ` 日本东京方舟农场`
 
-### [浅谈信仰、宗教及感恩](/content/gnews/8/README.md)
+### [浅谈信仰、宗教及感恩](/content/gnews/12/README.md)
  ` 澳喜农场`
 
-### [美国计划外交抵制北京冬奥会](/content/gnews/9/README.md)
+### [CCP的假丑恶给中国人民和世界人民带来的灾难](/content/gnews/13/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm Toronto(CA)`
+
+### [美国计划外交抵制北京冬奥会](/content/gnews/14/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [蓬佩奥盖特呼吁拜登要站出来反对中共](/content/gnews/10/README.md)
+### [蓬佩奥盖特呼吁拜登要站出来反对中共](/content/gnews/15/README.md)
  ` 纽约香草山MOS02`
 
-### [纽约加速强推疫苗，小学门口驻扎流动疫苗巴士](/content/gnews/11/README.md)
+### [纽约加速强推疫苗，小学门口驻扎流动疫苗巴士](/content/gnews/16/README.md)
  ` 纽约香草山MOS02`
 
-### [千名律师与万名医学专家团队启动世界第二次纽伦堡审判（上篇）](/content/gnews/12/README.md)
+### [千名律师与万名医学专家团队启动世界第二次纽伦堡审判（上篇）](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [台湾官渡医院前院长：疫苗生产商出资故意抹黑伊维菌素](/content/gnews/13/README.md)
+### [台湾官渡医院前院长：疫苗生产商出资故意抹黑伊维菌素](/content/gnews/18/README.md)
  ` 澳喜农场`
 
-### [2018年6月3日郭文贵先生与战友聊天全文字版](/content/gnews/14/README.md)
+### [2018年6月3日郭文贵先生与战友聊天全文字版](/content/gnews/19/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [币圈新闻动态：喜币（HCN）价格目前在43.700 HDO](/content/gnews/15/README.md)
+### [币圈新闻动态：喜币（HCN）价格目前在43.700 HDO](/content/gnews/20/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [对抗新世界秩序的人们将得到上帝的帮助和保护](/content/gnews/16/README.md)
+### [对抗新世界秩序的人们将得到上帝的帮助和保护](/content/gnews/21/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [北京强制体制内人员接种中共加强针 要求达到100%](/content/gnews/17/README.md)
+### [北京强制体制内人员接种中共加强针 要求达到100%](/content/gnews/22/README.md)
  ` 纽约香草山MOS02`
 
-### [澳洲出台禁令 限制伊维菌素处方](/content/gnews/18/README.md)
+### [澳洲出台禁令 限制伊维菌素处方](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共发布《中共国的民主》白皮书，妄图重新定义民主](/content/gnews/19/README.md)
+### [中共发布《中共国的民主》白皮书，妄图重新定义民主](/content/gnews/24/README.md)
  ` GTV News Talk`
 
-### [首届台斯经济合作咨商会今日在台举行](/content/gnews/20/README.md)
+### [首届台斯经济合作咨商会今日在台举行](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [美防长：中共疑似演练侵台，美将助台保持自卫武力](/content/gnews/21/README.md)
- ` GTV新闻访谈`
-
-### [中共国誓言对美国的奥运抵制采取反制措施](/content/gnews/22/README.md)
- ` 墨尔本雅典娜农场`
-
-### [阿富汗发生惨烈的人道危机，全球媒体仍噤声](/content/gnews/23/README.md)
- ` GTV新闻访谈`
-
-### [中共将在大西洋建立首个海军基地 威胁美国东岸](/content/gnews/24/README.md)
- ` GTV新闻访谈`
-
-### [随着反对青少年疫苗护照的抗议活动的增加，政府再次建议接种疫苗](/content/gnews/25/README.md)
+### [随着反对青少年疫苗护照的抗议活动的增加，政府再次建议接种疫苗](/content/gnews/26/README.md)
  ` 首尔天池农场`
-
-### [被唤醒的记忆](/content/gnews/26/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [中共宣称今年粮食增收2%但粮食进口却暴增23%](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
