@@ -2,34 +2,33 @@
 ---
 
 
-## 欧盟总部爆发反对强制疫苗游行示威
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1728504/)
+## 欧盟宣布延长制裁中共国官员
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1728752/)
 
-作者：东京樱花团—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据外媒12月5日报道，约有8千民众在比利时布鲁塞尔朝着欧盟总部游行，抗议政府对民众进行疫苗强制措施。游行群众高喊“自由”口号，并燃放烟火以示抗议。
+#### 撰稿：日本东京方舟农场  幽蘭自得
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide3-4.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/7164E9C4-FB82-4376-A505-26A6E19FE37B.jpeg)包瑞翰 (Reinhard Bütikofer)（图片来自德国之声）
 
-抗议群众在铁丝网路障和防暴警察的阻拦下，被挡在欧盟做总部的环形交叉口外。双方爆发冲突，比利时警方向民众使用了水柱和催泪瓦斯。据悉，此次抗议活动造成2名警察，和4名抗议人士受伤送医治疗，有20人被逮捕。
+12月6日，欧盟宣布延长制裁严重侵犯人权的个人和实体至2022年12月。这些被制裁者中包括中共国侵犯维族人权的官员。
 
-最近数周，随着政府对民众加强疫苗强制措施，好几个欧洲国家都在抗议示威。
+据《德国之声》报道，欧洲议会外交政策协调员、对中关系代表团主席包瑞翰 （Reinhard Bütikofer）对此表示，就在几天前，中共国领导人还在幻想欧盟会允许2021年3月实施的制裁过期，并向其磕头示好。但布鲁塞尔已经证明，独裁者习近平的团队是错误的。
 
-参考链接：[歐盟總部前示威 比利時反防疫抗爭再爆衝突](https://gnews.org/wp-admin/post-new.php)
+包瑞翰还表示，在必要时欧盟仍然准备与中共国进行对话。但即使在那种情况下，欧盟也将划出明确的界限，中共必须适应这一现实。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
+欧盟今年3月制裁了新疆维吾尔自治区公安厅厅长陈明国、党委常委王明山和王君正、前新疆政法委书记朱海仑，以及新疆生产建设兵团公安局。制裁者措施包括冻结资产和旅行禁令。
 
-总编：DM
-编辑：DM
-校正/发稿：谐趣园
+《德新社》当时的报道指出，这是自1989年天安门广场大屠杀以来，欧洲国家针对中共侵犯人权行为所采取的第一个措施。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*参考链接：[延长制裁中国官员  欧洲议会代表：习近平幻想破灭](https://www.dw.com/zh/%E5%BB%B6%E9%95%BF%E5%88%B6%E8%A3%81%E4%B8%AD%E5%9B%BD%E5%AE%98%E5%91%98-%E6%AC%A7%E6%B4%B2%E8%AE%AE%E4%BC%9A%E4%BB%A3%E8%A1%A8%E4%B9%A0%E8%BF%91%E5%B9%B3%E5%B9%BB%E6%83%B3%E7%A0%B4%E7%81%AD/a-60038313)*
+
+* * *
+
+*素材采编：幽蘭自得*
+
+*编辑：青衣青青*
+
+*发布：miumiu*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

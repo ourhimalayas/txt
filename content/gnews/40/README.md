@@ -2,33 +2,32 @@
 ---
 
 
-## 2021/12/07 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1730207/)
+## 白宫正式宣布外交抵制北京冬奥会
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1730569/)
 
-1. 12月3日，江苏南京，35岁男子因债务纠纷，当街持刀行凶，致被害人当场身亡。
-2. 湖南常德一大四女生江边溺亡 警方通报：系轻生，原因尚未知。
-3. 12月5日，湖南常德一轿车撞向公交站台致1死7伤。
-4. 12月4日凌晨，湖南邵阳。 29层住宅起火，导致3人死亡一人受伤。住户反馈楼道内消防栓里并没有水。
-5. 12月4日，宁夏银川。 一老师在讲台上连扇女学生3个耳光的视频被曝光。
-6. 12月2日，江苏南京。 外卖小哥被称“单王”，每天会跑12-13个小时，每天工作到凌晨2点。
-7. 为了应对所谓的扬尘，给枯草喷洒绿色药剂作假“绿色植被”，这就是以假治国下的中共环保。
-8. 一个月前开始恒大、佳兆业等房企的建筑工地就已经陆续停工了，证明如今的一切公告都只是为了拖延和欺骗。
-9. 医生半夜被叫到医院处理病人术后问题，在医院走廊看到了晚上病人家属们的可怜状况。
-10. 中国人“享受”的昂贵医疗体制，使得中国人无论拥有多少钱，到医院了都得被掏空。
-11. 12月3日，云南昭通，发布所谓最严“遛狗令”。 市民只能在凌晨的0点至6点出门遛狗，而且狗出门必须佩戴口罩。
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月6日，白宫发言人普萨基在例行记者会上公布，鉴于中共在新疆正在进行的种族灭绝，反人类，以及其他侵犯人权的行为，拜登政府将不派任何外交或官方代表，参加北京2022年冬季奥运会和残奥会。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/9-6.jpg)
+普萨基说，拜登政府已将该决定告知美国盟友，各国将做出自己的决定。政府不会通过禁止美国运动员参赛来 “惩罚 “他们。
 
+拜登这一决策与上周媒体的预测相吻合。此前，因中共国在新疆、西藏、香港犯下严重侵犯人权的罪行，并计划武力侵犯台湾，一些鹰派共和党议员一直向拜登政府施压。随后，彭帅事件在体育界掀起抵制声浪。白宫外交抵制冬奥会政策终于落地。民主党众议员蒂姆·瑞安评论说，“抵制力度不够”。
 
-* * *
+参考链接：[White House announces diplomatic boycott of Beijing Winter Olympics over human rights concerns](https://www.nbcnews.com/politics/white-house/white-house-announces-diplomatic-boycott-beijing-winter-olympics-over-human-n1285419?cid=sm_npd_nn_tw_nw)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
+总编：Ivy001
+编辑：Kathy文艺
+校正/发稿：Fei797
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

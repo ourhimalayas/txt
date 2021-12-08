@@ -2,44 +2,31 @@
 ---
 
 
-## 完全接种的美国第一例Omicron病人有话说
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1731246/)
+## 七哥谈护照计划
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1731329/)
 
-编译： Jenny Ball
+文编：Hima
+听写：叮叮
+视频：七哥
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/nyc-testing-1200x800-700x420-5.jpg)行人于 2021 年 12 月 2 日在纽约市通过 COVID-19 测试帐篷。（John Minchillo/美联社照片
+娜娜酱：有，我就想问一下七哥能不能更新一下关于那个护照计划。
+郭先生：好，那么护照计划实际上，现在我们有好多很好的选择。但是现在呢，即使有了护照计划，战友们的旅行和护照现在也不是说那么管用。而且我觉得这个，我想把护照计划呢，提升到另外一个层次去，就是喜联储的，喜币的上市，包括GTV的这个成功啊，包括盖特，大家都能明白，现在我们逐渐从过去求人到交易，到现在逐渐人要求咱了。咱干嘛不去等等呢，是吧。
+你想想我们越接近这几个上市的期间，这些国家要找我们。你觉得我们拿个加勒比海的护照好呢？还是拿个希腊的欧洲的护照好呢？或者说你拿个欧联盟的护照好呢？甚至我们可以拿一个美国所谓的一个给政治群体的一个特殊护照好呢？是吧。那当然要想着越， 不仅要免签而且我觉得更安全，甚至我们直接就要新中国联邦护照。所以说我们现在要有点耐心，现在要拿护照是分分钟就可以做到的，拿从第三国护照，便宜地拿到。但是记住现在拿到了第三国护照以后，我们对某些战友是管用的，但是我们长期那不是我们的，一定会放弃掉。我们决不想去因为这个拿护照让新中国联邦降格，这不能降格。所以很多人，战友们你们要记住，你们要想拿第三国护照的，直接跟法治基金、联盟委员会联系，可想办法帮你拿到加勒比海的护照，而且一定是比公开价钱便宜，而且也都在100多个国家免签，没有任何问题，可以用。严格讲那不叫这个联邦护照，你们只要登记就尽可能帮你们拿到。但是新中国联邦护照我希望大家再多点耐心，让我们的整个让世界展示了我们的实力，展示了我们的肌肉之后，我们要拿到一个一级国家的护照，或者直接联邦护照。好吧，谢谢，娜娜酱。
 
-一名 30 岁的明尼苏达州男子周一透露，他接种了加强剂，是最早确诊的 COVID-19 Omicron 变体病例之一。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-彼得·麦金（Peter McGinn）说，他于 11 月底参加了纽约市的一个动漫大会，后来当他回到明尼苏达州时，他的 COVID-19 检测呈阳性，这种疾病是由中共病毒引起的。
+**关注我们**
 
-麦金在周一发表的一次采访中告诉美国广播公司新闻：“和我在一起的人感到非常安全，所以我从来没有想过自己感染了新冠病毒。” “我有点吃惊。”
+Discord 账号
 
-麦金说，他和其他完全接种疫苗的参加者去了动漫活动。他告诉** ABC**，那群人中有一半人的病毒检测呈阳性。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-麦金还告诉《星际论坛报》，阳性的 COVID-19“让我感到很不舒服，因为我真的没有感觉不对劲”，并补充说，他出现了轻微的症状。他说，明尼苏达州卫生部几天后打电话给他，告诉他说他感染了 Omicron 变种。
+Gettr 账号
 
-麦金继续说，该机构要求提供与他在一起的人的姓名，以及他们住在哪里以进行追踪。
-
-“老实说，我一直感觉很好，”他说，并补充说，他相信疫苗有助于他的康复。 “我对看到结果更感兴趣，比如，是否有更多的人得到这个结果，以及他们对它的反应。”
-
-上周在加利福尼亚湾区报告了第一例确诊的 Omicron 病例。关于此人的信息很少被披露。
-
-到目前为止，根据对新闻报道的分析，在美国大约三分之一的州中发现了 Omicron 变体。此前，世卫组织将这种菌株描述为“令人担忧的变种”。但警告说，人们对它是否更具传染性或导致更严重的症状知之甚少。
-
-世界上任何地方都没有与 Omicron 变体相关的死亡。
-
-**点评：由于“疫苗”给人的误导，使得接种了实验药物的人们处在更危险之中！**
-
-参考资料：[theepochtimes] [Fully Vaccinated Man Who Became One of the 1st American Omicron Cases Speaks Out](https://www.theepochtimes.com/fully-vaccinated-man-who-became-one-of-the-1st-american-omicron-cases-speaks-out_4141206.html?utm_source=CCPVirusNewsletter&amp;utm_medium=email&amp;utm_campaign=2021-12-07)
-
-* * *
-
-*审核：文乐
-校对：信心满满
-发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH..jpeg)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

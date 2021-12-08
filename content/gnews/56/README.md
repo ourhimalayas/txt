@@ -2,26 +2,43 @@
 ---
 
 
-## 纽约市商业团体抨击对私营企业的疫苗强制令
-` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1728078/)
+## 德国研究揭示5至18岁健康儿童的“中共病毒”零死亡率
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1728512/)
 
-加拿大扬帆农场Spirit
-![](https://assets.gnews.org/wp-content/uploads/2021/12/IMG_3318-1.jpg)图片来源：New York Post
-根据《彭博社》12月6 日报道，纽约市合伙人组织的负责人凯瑟琳·怀尔德(Kathryn Wylde) 表示，他们被纽约市长比尔·德布拉西奥的措手不及的疫苗强制令惊到了。怀尔德代表的是一个有影响力的商业团体，摩根大通公司和高盛集团是其成员。
+作者：纽约香草山信息部 – 诺雅
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+德国研究人员于11月30日发表的，针对本国18岁以下儿童的研究发现，在中共病毒大流行的前15个月中，没有一个健康的5至18岁儿童死于中共病毒感染。
 
-纽约市长周一表示，所有私营部门的雇主必须要求他们的工人在12月27日之前接种疫苗，没有测试选项。这项任务将涵盖大约18.4万家企业。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide5-5.jpeg)
 
-尽管像高盛和摩根士丹利这样的许多大公司已经要求接种疫苗才能在他们的大楼里工作，但怀尔德说，该市强行规定的决定并没有与公司和高管协调，这将在商业界散播不确定性。
+研究报告指出，总体而言，与中共病毒感染相关的儿童和青少年的重症或死亡率很低，对于没有基础疾病的5-11岁儿童来说更是如此。
 
-怀尔德在周一的一份声明中说：“联邦、州和市各级的政策不一致使情况更糟，目前还不清楚谁将执行市长的疫苗强制，以及这项命令是否合法。拜登总统对雇员超过100人的雇主的疫苗强制目前因诉讼而搁浅，很难想象市长能做到总统被挑战的事情”。
+在2020年3月至2021年5月期间，大约有150万德国儿童或青少年感染了中共病毒，总计14名18岁以下的德国人死于新冠肺炎。其中6名是有基础疾病的5-18岁儿童和青少年，8例婴幼儿死亡中，5名是患有先天性疾病的婴幼儿。
 
-原文链接：
-[https://www.bnnbloomberg.ca/nyc-business-group-blasts-private-sector-vaccine-mandate-1.1691865](https://www.bnnbloomberg.ca/nyc-business-group-blasts-private-sector-vaccine-mandate-1.1691865)
+该报告显示，5-11岁的健康儿童感染中共病毒后，需要重症监护的几率约为五万分之一。在12-18岁和5岁以下的儿童中，重症率约为八千分之一。
 
-* * *
+英国研究人员也发布了类似的发现：1200万名18岁以下儿童中，只有6名健康儿童死于中共病毒感染。
 
-发稿Spirit
+评论称，鉴于已知的疫苗在年轻人口中诱发的心肌炎风险，以及疫苗公司仅做了少量和短暂测试的事实，让健康儿童和青少年接种中共病毒疫苗是极为不明智的。
 
+参考链接：
+1）[German Study Finds Zero Healthy Children Between 5 and 18 Died From COVID](https://gettr.com/post/pivcosc01f)
+2）[Huge new study shows ZERO Covid deaths of healthy German kids over 4 oradolescents](https://alexberenson.substack.com/p/huge-new-study-shows-zero-covid-deaths)
+2）[https://www.medrxiv.org/content/10.1101/2021.11.30.21267048v1.full.pdf](https://www.medrxiv.org/content/10.1101/2021.11.30.21267048v1.full.pdf)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
+
+总编：Irene木木
+编辑：Lakeman文仁
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

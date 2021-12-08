@@ -2,33 +2,30 @@
 ---
 
 
-## 突发：特朗普任命的法官阻止拜登对全国联邦承包商的疫苗强制令
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1730981/)
+## 七哥谈区块链技术
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1731173/)
 
-翻译： 真北007
-![](https://assets.gnews.org/wp-content/uploads/2021/12/E9DD14D6-5D1F-44D5-A024-3759051196DF.jpeg)图片来源：网络
-来自GATEWAY PUNDIT 12月7日的新闻报道：
+文编：Hima
+听写：叮叮
+视频：七哥
 
-周二，一名联邦法官阻止了乔·拜登 (Joe Biden) 对全国联邦承包商的疫苗要求。
+必须得死啊是吧，它那是更新换代。数字货币是人类的金融，精神，智慧，视野，技术的更新换代的不可逾越的，而且是此人类最伟大的一个，区块链技术不是光货币呀，区块链是所有的加密信息都是区块链，厉害了去了。再加上量子技术，量子电脑，量子力那就过去的所有神话都变成了现实当中。那么从这块儿说什么呢，那就看到这所有美国的，它没说我一定要把，你觉得三四年前你知道说什么吗？数字货币，当时一说比特币，骗局！Coinbase，骗局！币安，骗局！每个币诞生都被称为骗局，然后还crime，犯罪啊。现在你见还有人敢说这话吗？这要有一个人敢说比特币是犯罪集团，你看有人敢的吗？有一堆人会告死他。因为那已经成了一万多亿美元的资产，你敢说跌下来，我告死你。有敢说的吗？有谁敢说把这比特币或数字货币说我变成让你消失。技术上你做不到，政治上你做不到，权力你还做不到。连共产党都发现，噢！我让你消失做不到，老子就当老大吧，天下一切为我所有，搞数字化人民币，用数字化人民币区块链干掉美国美元。共产党发现了，你觉得这个世界还能被，你把美国不让数字货币的时候，他都搞数字人民币了，你不是死球了嘛。但这种挣扎，这种较量，这种愚昧无知，最后一番番地较量，最后就是优胜劣汰。而不是共产党的是啊，是优汰劣胜，是吧？王岐山坐那。
 
-特朗普任命的乔治亚州南区美国法院法官斯坦贝克发布了一项初步禁令，反对拜登的疫苗强制令。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-该诉讼由南卡罗来纳州总检察长艾伦·威尔逊和南卡罗来纳州州长亨利·麦克马斯特以及其他共和党总检察长们提起，称拜登的疫苗强制令违反了第 10 修正案。
+**关注我们**
 
-该诉讼还辩称，拜登的疫苗令违宪，因为只有国会才能制定规则。
+Discord 账号
 
-佐治亚州、阿拉巴马州、爱达荷州、堪萨斯州、犹他州和西弗吉尼亚州的总检察长加入了诉讼。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-“拜登政府滥用权力的行为再次受到阻止和冷落。法治已获胜，自由受到保护。幸运的是，当总统越权时，法律可以阻止他滥用权力，”南卡州总检察长 Wilson 说。
+Gettr 账号
 
-上周，特朗普任命的另一名法官阻止了拜登针对医护人员的疫苗强制令。
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
-原文链接：[https://www.thegatewaypundit.com/2021/12/breaking-trump-appointed-judge-blocks-bidens-vaccine-mandate-federal-contractors-nationwide/](https://www.thegatewaypundit.com/2021/12/breaking-trump-appointed-judge-blocks-bidens-vaccine-mandate-federal-contractors-nationwide/)
-
-编辑/发布：LILY
-
-20211207
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

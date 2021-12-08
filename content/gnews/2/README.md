@@ -2,45 +2,30 @@
 ---
 
 
-## 独家披露：新的辉瑞董事会成员是前脸书董事
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1731492/)
+## 雷军退出小米科技公司法人
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1731567/)
 
-**整理报道：文泓**
+![雷军_最美奋斗者](https://lh3.googleusercontent.com/proxy/0hmVwyUEWZIfVZp7tC_6pI0jDvXKDgKKr1iE3sGX9zCrbbUHKwk9Kyjgt7w6fRKp4_4xUIauBjgBuXxDleODzLbUIlbeLjsn)*雷军。资料照*![](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2021%2F1207%2F6d11e92fj00r3qp0h000mc000go0089m.jpg&amp;thumbnail=690x10000&amp;quality=75&amp;type=jpg)
+据网易新闻12月7日报道，小米科技（武汉）有限公司发生工商变更，法人代表由雷军变更为曾学忠，同时雷军退出执行董事兼总经理职位。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/22222.png)图片来源：Politico
+小米科技(武汉)有限公司成立于2017年9月，注册资本2. 1亿元，由小米通讯技术有限公司全资控股。经营范围包含数据处理和存储服务；房地产开发经营等。雷军目前依然任小米科技董事长兼CEO，同时兼任金山、YY、猎豹移动等三家上市公司董事长。2021年11月18日，小米汽车科技有限公司成立，法人代表雷军，注册资本10亿人民币，由小米科技有限责任公司全资持股。经营范围含新能源整车制造、技术研发等。首款小米汽车预计会在2024年实现量产。
 
-美国时间12月6日，《国家脉动》独家披露，辉瑞公司董事会成员苏·德斯蒙德·赫尔曼博士曾担任社交媒体巨头脸书（Facebook）的首席独立董事。脸书定期审查与新冠疫苗相关的帖子，尤其是辉瑞公司得到[了主要大企业的支持。](https://thenationalpulse.com/news/conflict-reuters-chairman-is-pfizer-investor-and-board-member/)
+雷军信心满满要为小米汽车而战。新能源汽车是未来的趋势，全世界都在积极发展，力求占据未来的市场。中共也想要抢占一块领地。
 
-赫尔曼于2013年3月被任命为社交媒体平台脸书的董事会成员，并于2015年6月至2019年10月30日期[间](https://about.fb.com/news/2019/10/desmond-hellmann-departs-board/)担任首席独立董事，此时已接近报道第一例新冠病毒病例之前。
+新闻参考链接：[https://c.m.163.com/news/a/GQKPNNRK0527A5AV.html?spss=newsapp](https://c.m.163.com/news/a/GQKPNNRK0527A5AV.html?spss=newsapp)
 
-当时，脸书创始人兼首席执行官马克·扎克伯格在回应她的离职时说：“六年来，苏一直是董事会中一个出色而有思想的声音，我个人非常感谢她为这家公司所做的一切。”
+编辑：胖丁
 
-“我仍然对脸书和赋予人们建立社区和使世界更紧密联系的使命持积极态度。脸书的股东需要一个充分参与并致力于解决脸书目前所面临的关键问题的董事会，”赫尔曼在提到她作为**比尔和梅琳达****·****盖茨基金会**首席执行官的角色时解释说。
+* * *
 
-“不幸的是，来自我的首席执行官角色、我的大家庭和我自己的健康状况的要求越来越多，使我不再有可能投入必要的时间和精力来适当地服务。”她在一份公开声明中补充道，尽管她2020年又加入了辉瑞董事会。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-赫尔曼在辉瑞董事会任职期间，脸书发起了审查“新冠疫苗怀疑论者”运动，该公司泄露的内部文件显示，其算法旨在“大幅减少用户在评论中对疫苗犹豫不决（观点）的接触机会”。
 
-这份名为“疫苗犹豫评论降级”的15页文件，[将](https://nypost.com/2021/05/25/facebook-trying-to-censor-covid-19-vaccine-skeptics-report/)其目标[总结](https://nypost.com/2021/05/25/facebook-trying-to-censor-covid-19-vaccine-skeptics-report/)为“降低这些评论的可见性，为我们消除平台上用户可能遇到的疫苗接种障碍提供了另一个重要机会。”
+编辑：【英国伦敦喜庄园编辑部】
 
-另一个潜在的利益冲突是，赫尔曼还在乔·拜登总统的科技顾问委员会任职，该委员会被白宫描述为“负责向总统提出科学、技术和创新政策建议的唯一外部顾问机构”。
-
-另据《国家脉动》12月1日披露，路透社董事长是辉瑞投资者和董事会成员。
-
-新闻链接：
-
-1、[REVEALED: New Pfizer Board Member Is Ex-Facebook Director. (thenationalpulse.com)](https://thenationalpulse.com/exclusive/pfizer-board-member-is-former-facebook-director/)
-
-2、[CONFLICT: Reuters Chairman is Pfizer Investor and Board Member. (thenationalpulse.com)](https://thenationalpulse.com/news/conflict-reuters-chairman-is-pfizer-investor-and-board-member/)
-
-*发布：盘古相聚*
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

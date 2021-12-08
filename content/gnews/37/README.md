@@ -2,28 +2,50 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月7日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1730552/)
+## 越南120名青少年接种辉瑞疫苗后住院，3人死亡
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1731049/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-109-1280x172-1-2-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/120702.jpg)图片：来自
+越南清化省暂停了一批辉瑞生物技术公司的新冠疫苗，因为有120多名青少年在接种疫苗后被送往医院。根据该省疾病控制中心的数据显示，这些青少年因出现恶心、高烧到呼吸困难等症状而住院，其中17名儿童出现了严重的反应。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-5.png)
-文章仅代表作者本人观点，与Gnews无关
+疾病预防控制中心主任Luong Ngoc Truong表示，尽管该省停止使用目前这批疫苗，“我们还有其他批次的疫苗，也是辉瑞公司的疫苗，所以我们将继续为儿童接种疫苗”。Truong补充说，暂停使用的这批疫苗已被储存起来，以后可以用于其他群体，如成人。
 
-视频参看：[2021.12.07早GTV新闻访谈](https://gtv.org/video/id=61af6177bbd75f62e531d0b0)
+上周，清化市金越制鞋厂的四名工人在接种了世界卫生组织5月批准用于应急的国药集团新冠疫苗后死亡——也是由于“（对疫苗）过度反应”所致。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+越南于11月30日推出了针对15至17岁儿童的新冠疫苗接种计划，并使用辉瑞公司的疫苗。自那时起，有三名儿童在接种第一针后死亡。死亡原因是“对疫苗的过度反应”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-69.jpeg)
+在越南报告的三起死亡事件中，包括南部平福省的一名12岁男孩，他在注射第一针辉瑞疫苗后一天死亡。这名男孩周一下午接种了疫苗，并被送回家休息。晚餐后，他出现了头晕、腹痛和腹泻。他被送往当地医院，然后转到另外两家医院，但在周二上午死亡。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+北部北江省的一名16岁男孩，以及河内的一名九年级女孩，都是在接受辉瑞公司的新冠疫苗后于周日死亡。卫生部说，这两起死亡事件是由“对疫苗的过度反应”引起的，而不是由疫苗的质量或接种过程引起的。
+
+根据美国疫苗不良事件报告系统的最新数据，在12至17岁的青少年中，辉瑞公司的新冠疫苗后有18558起不良事件报告。
+
+新闻链接：[120 Teens Hospitalized, 3 Dead Following Pfizer Vaccine Rollout for 15- to 17-Year-Olds in Vietnam](https://childrenshealthdefense.org/defender/teens-hospitalized-dead-pfizer-vaccine-vietnam/)
+
+**简评：**
+
+结合相关报道，越南新冠疫苗至今完整接种率约52.3%。随着一些省份11月底开始为15至17岁青少年施打辉瑞生产的新冠疫苗，120名青少年接种后出现恶心、高烧及呼吸困难等症状入院治疗，更有3名儿童死于疫苗。而其疾病预防控制中心却没有质疑和阻止对青少年注射新冠疫苗，甚至只是暂时储存起来，还计划将其用于成人。
+
+让我们不禁问道，是什么样的邪恶力量导致各国政府不顾本国民众安全，强行推广疫苗，甚至继续给儿童及青少年施打疫苗？ 这也从另一方面证明了全世界正义力量停止疫苗的迫切性。疫苗带来的负面影响及危害，已经严重影响到世界的每个角落和群体。所谓的“少数对疫苗的过度反应”发生在每个人和每个家庭身上，都是无法挽回的损失。如果不及时停止，我们很难想象如何面对疫苗的灾难导致的人类灭绝。
+
+
+
+*翻译/简评: Ying2064*
+
+*校对: clau*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

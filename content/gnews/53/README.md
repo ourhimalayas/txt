@@ -2,36 +2,24 @@
 ---
 
 
-## 台湾进入半强制性疫苗注射状态
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1728510/)
+## 中共国驻美使馆歇斯底里玩自慰！
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1729098/)
 
-作者：纽约香草山 医疗部 – 云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-台湾流行疫情指挥中心于当地时间12月6日宣布，从2022年1月1日起，被指定的24类场所工作人员皆应完整接种2剂COVID-19疫苗，才能上班。 如果因为个人因素不能接受疫苗注射，则需要自费每周作一次快筛检查，阴性结果才能上班。
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-81.png)（图片源自本文链接）
+12月7日Q电视新闻消息：在美国白宫正式宣布不派任何政府官员参加明年2月的北京奥运会后，中共国驻美国大使馆发言人在推特上发表了如下评论。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide4-5.jpeg)
+那些政客是为了自己的政治利益而呼吁抵制。无论他们来不来，都不会对北京冬奥会的成功产生影响。
 
-这24类行业主要是属于工作场所较易有密集人群聚集的行业。 主要包括娱乐、教育、医疗等相关工作场所。
+美国表明了态度，想必欧洲国家、日本等国家也会跟上。这意味着美国给北京冬奥会定性为“自己玩冬奥”了！作为生长在墙国的笔者，深知中共驻美使馆这个表态有多苍白无力的、完全是自我安慰的、是歇斯底里的！
 
-台湾民众在反对疫苗注射的行动上，至今仍保持在温和游行抗议，及经由在公共政策平台提案，投票反对强制性疫苗注射的阶段。
+信息来源：
 
-有评论指出，如果政府加强疫苗注射的强制性，将会逐步激起民众反对疫苗注射的抗议行动。
+[米が五輪「外交的ボイコット」中国は反発（日本テレビ系（NNN）） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/ee2764cfc189e5d109b6c58e28a4b53f9172ef32)
 
-参考链接：[24場所人員應完整接種 陳時中：職業類別擬擴大](https://www.cna.com.tw/news/firstnews/202112060146.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
-
-总编：Irene木木
-编辑：Lakeman文仁
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

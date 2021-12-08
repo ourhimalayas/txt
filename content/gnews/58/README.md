@@ -2,23 +2,34 @@
 ---
 
 
-## 澳州NSW州的教师们忍无可忍在州府前罢工示威
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1727995/)
+## 欧盟总部爆发反对强制疫苗游行示威
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1728504/)
 
-撰稿：Jenny
-视频来源：澳喜战友录制
-2021年12月7日，周二，悉尼州府门前：一句“我们在书写历史！”的口号，拉开了一场由新南威士州教师工会组织的罢工游行示威。
+作者：东京樱花团—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据外媒12月5日报道，约有8千民众在比利时布鲁塞尔朝着欧盟总部游行，抗议政府对民众进行疫苗强制措施。游行群众高喊“自由”口号，并燃放烟火以示抗议。
 
-尽管天公不做美，但丝丝细雨没有挡住新洲教师们表达自己诉求的决心，从标语可以看出来，有的教师代表来自离悉尼几小时车程的偏远地区。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide3-4.jpeg)
 
-据SkyNews 报道，这次活动的主要原因是：新州教师指责州政府 “无视自己的建议 “和 “不关心孩子”，他们无视一份报告警告教师人员短缺如此严重，学校 “将在五年内耗尽教师”。毫无疑问“不打疫苗不能继续执教”的要求加剧这种师资紧缺的事态。
+抗议群众在铁丝网路障和防暴警察的阻拦下，被挡在欧盟做总部的环形交叉口外。双方爆发冲突，比利时警方向民众使用了水柱和催泪瓦斯。据悉，此次抗议活动造成2名警察，和4名抗议人士受伤送医治疗，有20人被逮捕。
 
-新南威尔士州教师联合会主席Angelo Gavrielatos说，数百页的内部文件和教育部和政府的秘密简报揭示了两个月前的问题有多深。他在澳大利亚天空新闻第一版上说：”我们向政府寻求的是根据它自己的建议采取行动，其中一份文件描述，情况严重到’我们将在五年内耗尽教师’，”。他指出，教师队伍老龄化和进入师范教育的人数下降30%是他们周二举行24小时罢工的原因。
+最近数周，随着政府对民众加强疫苗强制措施，好几个欧洲国家都在抗议示威。
 
-[部分引用自SKY NEWS](https://www.skynews.com.au/australia-news/nsw-teachers-federation-call-on-premier-dominic-perrottet-to-deal-with-the-crisis-of-poor-pay-conditions-and-staff-shortages/news-story/f2462b1d67cd7c067d36bd2328f3c67a)
+参考链接：[歐盟總部前示威 比利時反防疫抗爭再爆衝突](https://gnews.org/wp-admin/post-new.php)
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
+
+总编：DM
+编辑：DM
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

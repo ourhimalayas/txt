@@ -2,30 +2,45 @@
 ---
 
 
-## 以色列首现巨幅反疫苗广告
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1730224/)
+## 五角大楼网络公关承包商承认暗网儿童性虐待指控
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1730681/)
 
-作者：纽约香草山健身部 – Ivy001
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间12月5日，在以色列的大街上，挂起了高达6，7层楼的巨幅广告：一个被妈妈拉着小手的小男孩，忧伤的看着镜头说，“妈妈，请不要把我的手交给他们！”下方是醒目的疫苗针管标志。这是以色列民间首次出现反对疫苗的广告。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/7-9.jpg)
-以色列是全球接种“中共病毒”疫苗的先锋，迄今已有超过62%的以色列人完全接种了疫苗；消息人士称，该国卫生部门已着手推进第四剂加强针的相关工作。然而，高疫苗接种率并未有效改善该国居高不下的新增感染病例，大部分“突破性感染”者都已完全接种疫苗。 全球的犹太法律学者已在11月下旬开始审视强制接种疫苗的种种问题。11月23日，以色列马阿勒-阿杜明市的一个犹太法学法庭发出警告，一旦儿童因疫苗而死，任何强制儿童接种疫苗的个人或团体都应罪同杀人犯；11月29日，纽约一个犹太法学法庭裁定：向儿童和大多数成年人注射中共病毒疫苗是违法犹太法律的，裁决明确禁止向儿童、青少年和育龄成年人注射以及推广中共病毒疫苗。
+**翻译：lovemiles**
+**编辑：Candy**
 
-参考链接：[以色列首现巨幅反疫苗广告](https://gnews.org/zh-hans/1726708/)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/暗网.png)图片来源：forbes.com
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-总编：童谣
-编辑：Zion文恩
-校正/发稿：Fei797
+#### 在博思艾伦（Booz Allen）上，一名前空军情报分析师声称，他曾与国防部的美国网络司令部密切合作，同时他从暗网上下载了数千张儿童性虐待图片。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+一位博思艾伦汉密尔顿的前公关专家，曾与五角大楼美国网络司令部有过合作，承认使用暗网寻找儿童性虐待资源。
+
+上周公布的认罪协议提及，53 岁的前空军公关人员兼照片情报分析师布伦丹·卡瓦诺 (Brendan Kavanaugh) 承认：自 2016 年以来，他一直在使用高度加密的洋葱网站来访问“与儿童相关的色情网站”。
+
+卡瓦诺在这些网站上与其他人聊天时使用了化名HebeMom。在认罪协议中写道：“他知道这些材料构成儿童色情内容，而且他拥有的许多图像都涉及青春期前的未成年人和未满12岁的未成年人。卡瓦诺也知道他拥有描绘未成年人参与虐待狂或受虐狂行为的材料。”
+
+博思艾伦汉密尔顿公司与美国网络司令部合作的高级公关人员，将于2月份，因剥削儿童罪被判刑。
+
+对加密硬盘的取证分析显示，卡瓦诺拥有大约3,674张儿童性虐待材料的图像。他于2020年12月被捕，现在等待定于2022年2月的宣判。他将面临最高20年的监禁。
+
+根据他的领英个人资料，卡瓦诺于2013年年中加入市值120亿美元的政府咨询公司 Booz Allen，并“为美国网络司令部的高级领导层提供公共事务支持和指导”。Booz对这一说法提出异议。一位发言人表示：他只在2020年7月至2020年12月期间为该公司工作，并且他的领英个人资料不准确。根据政府合同记录，博思艾伦公司（Booz Allen）自2012年就与美国网络司令部签订了合同，当时它获得了1.2亿美元的合同。今年它与该部门签署了各种其他合同，包括一笔1.65亿美元的交易。
+
+卡瓦诺在另一家承包商工作，声称曾担任“国防信息系统局 (DISA) 应用部门分支机构的战略通信主管”。他还将国家航空航天情报中心列为自己以前的雇主。
+
+除了与政府情报和国防机构密切合作的悠久历史之外，卡瓦诺还将自己列为共济会成员，是马萨诸塞州古代自由和公认的共济会大别墅的泥瓦匠大师。
+
+除了对卡瓦诺在领英上的声明提出异议之外，博思艾伦（Booz Allen）公司没有发表评论。它以前曾遇到过员工卷入非法行为的问题——尽管是不同的类型。2010 年代中期，前工作人员爱德华·斯诺登 (Edward Snowden) 从美国国家安全局窃取文件并与媒体机构分享后；另一名博斯员工哈罗德·托马斯·马丁三世 (Harold Thomas Martin III) 被[指控从情报机构窃取文件](https://www.forbes.com/sites/thomasbrewster/2016/10/05/booz-allen-hamilton-nsa-files-shadow-brokers/)。他后来被判处九年徒刑。
+
+原文链接：[https://www.forbes.com/sites/thomasbrewster/2021/12/06/booz-allen-cyber-command-pr-pleads-guilty-to-dark-web-child-pornography-charges/?sh=72216ad48cb0](https://www.forbes.com/sites/thomasbrewster/2021/12/06/booz-allen-cyber-command-pr-pleads-guilty-to-dark-web-child-pornography-charges/?sh=72216ad48cb0)
+
+***发布：Candy***
+
+**更多信息，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
