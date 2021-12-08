@@ -2,45 +2,63 @@
 ---
 
 
-## Hcoin To the Moon 上线第6天位列7国iTunes摇滚音乐榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1732742/)
+## 白思豪市长将纽约市变成了一个 Covid 疫苗警察国家，因为现在所有私营部门员工都必须在 12 月 27 日之前接受全部注射疫苗
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1732853/)
 
-12/08/2021 郭文贵先生的歌曲Hcoin To the Moon上线第6天位列7国iTunes摇滚音乐榜首
+2021 年 12 月 7 日，星期二
 
-* * *
+作者：Ethan Huff
 
-[【PDF 下载】Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+翻译：沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2021/12/bill-de-blasio-edited.jpg)图片来源：网络
+自然新闻：从 12 月 27 日开始，纽约市的所有私营部门员工都必须按照市长比尔·德布白思豪（Bill de Blasio）的命令为武汉冠状病毒（Covid-19）接种疫苗。
 
-* * *
+为了对抗中共病毒的新“Omicron”（Moronic）变种，德布白思豪自豪地宣布，他的左翼城市将成为“全国第一个”向私营部门工人强制注射大型制药公司混合物的城市。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_2.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_3.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_4.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_6.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_8.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_11.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_12.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_13.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_14.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_15.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_16.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_17.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_18.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_19.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_20.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_21.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_22.jpg)
+根据白思豪的说法，纽约市需要“尽快最大限度地接种疫苗，以便我们能够领先于 Omicron 以及我们目前面临的所有其他挑战”。
 
+他在一份声明中补充说：“截至 12 月 27 日，纽约市的所有私营部门雇主都将受此疫苗规定的保护”。
 
-[【PDF 下载】Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+扩大的授权还将要求全市所有室内餐饮、娱乐和健身场所强制其员工和顾客按需出示注射证明。
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+此要求适用于所有 5 岁及以上的人，从 12 月 14 日起，他们将被要求与父母一起出示注射证明，才能进入室内场所。
 
+“据报道，12 月 27 日，那些年龄在这些年龄之间且未接种疫苗的人将被拒绝在餐馆、娱乐场所和体育馆提供服务，”布莱巴特新闻网报道。
+
+根据新的 白思豪 法令，唯一被认为“完全接种疫苗”的人是那些至少注射了两次“剂量”福奇流感疫苗的人，很快就会进行第三次和第四次“加强”注射。
+
+提醒：唯一能抓住的是那些愚蠢已经接种疫苗的人
+
+由于人们显然仍在购买所有这些废话，拜登政权及其在企业媒体中的同谋声称摩罗尼克现在已经蔓延到 17 个州。
+
+报告显示，唯一受 Moronic 影响的人是完全接种疫苗的人。 未接种疫苗的人似乎不受 Moronic 的影响。
+
+与此同时，佩多·乔·拜登 (Pedo Joe Biden) 继续错误地承诺他总有一天会根除这种病毒。 这不仅没有发生，而且新的“病例”和住院人数正在飙升。
+
+《纽约时报》去年 11 月承认，在拜登的领导下，福奇病毒检测呈“阳性”后死亡的人数比在唐纳德·特朗普的领导下死亡的人数还多。
+
+“我们将 Omicron 作为一个新因素，”白思豪在谈到他的新订单时补充说，这将影响大约 184,000 家企业，并导致死亡人数进一步飙升。
+
+“我们遇到了更冷的天气，这将真正给 Delta 变体带来额外的挑战，我们有假期聚会。 我们纽约市已决定采取先发制人的行动，真正采取大胆措施，以阻止 COVID 的进一步发展及其对我们所有人造成的危险”。
+
+白思豪在一条预制推文中继续声称，他的疫苗授权和“激励措施”已被证明可以“战胜这种病毒”。
+
+他补充说：“现在我们正朝着未来迈出又一步——私营部门员工接种疫苗的任务。”  “我们可以一起拯救生命并向前迈进”。
+
+12 月 15 日，白思豪计划发布“额外的执法和合理调整指南”，以帮助“支持”整个大苹果公司的小企业合规。
+
+至于不遵守规定的后果，德布白思豪没有具体说明，但他确实表示肯定会受到惩罚。
+
+当被问及他发布此类授权的法律权力时，德布白思豪指出亨特的父亲是他们符合宪法的“证据”。
+
+“当卫生专员认为存在紧迫的公共卫生威胁时，他有能力在这种情况下采取行动，”德布白思豪在谈到他的新“广泛中风”政策时进一步表示。
+
+来源链接：[https://www.afinalwarning.com/576479.html](https://www.afinalwarning.com/576479.html)
+
+编辑/发布：LILY
+
+20211208
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

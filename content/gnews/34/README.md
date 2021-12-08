@@ -2,34 +2,40 @@
 ---
 
 
-## 美国国会公布国防法案 涉及对俄罗斯和中共国的遏制
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1732327/)
+## 躺平币的获得方法
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1732393/)
 
-#### 翻译：肯塔基钢蛋儿
+作者: 香草山农场-文特
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/v_jhm4Wx-2.png)图片来源：House Armed Services Democrats‘ twitter
-据路透社（Reuters）12月08日报道，在美国总统乔·拜登(Joe Biden)和俄罗斯总统弗拉基米尔·普京（Vladimir Vladimirovich Putin）就乌克兰和其他争端进行两个小时的虚拟会谈后不久，周二，美国国会公布了国防授权法案的折中方案，该方案涉及了对俄罗斯和中共的遏制，并提议向乌克兰提供3亿美元的军事援助。此外，该法案还发表声明支持台湾的国家防御。
 
-但是，该方案没有包括一些曾在国会获得强烈支持的条款，例如针对俄罗斯北溪2号(Nord Stream 2，将俄罗斯天然气直接输送到德国)天然气管道项目实施强制性制裁，以及一项首次要求女性应征入伍的计划。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-10.jpg)
+依照郭文贵先生在直播中对躺平币的解读，12月5日，爆料革命战友在盖特平台上总结了未来可以获得躺平币的三个渠道，即，将躺平币分别与GTV、GNews以及盖特平台挂钩。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1efc0e24461bd87d8f1dab33401eccf5_500x0.jpeg)图片来自盖特(GETTR)
+首先，下载GTV、GNews和盖特应用软件的用户即可获得躺平币；其后，根据用户在GTV平台上的直播时长与观看人数量级，或者是作者在GNews和盖特平台上发表的文章数量与质量，依照对应的阅读量与点赞数等级的划分，相关用户可获取不同级别的躺平币奖励；而对于GTV观看用户和GNews及盖特的读者而言，通过积极参与直播互动，或活跃地对文章进行点赞、转发、留言，再加上后台对用户观看时长的统计，这些用户也可得到相应数量的躺平币回馈。
 
-2022财政年度国防授权法案(National Defense Authorization Act，简称NDAA)批准了7700亿美元的军费开支，比总统乔·拜登的国防预算要求增加了250亿美元，比去年的预算高出约5%。
+战友评论表示，G系列三个媒体平台的活跃度通过躺平币与全世界战友建立了更加紧密的互动联系，这样既可以提高平台的受众人数，又可将真相更多地传递给全球民众，并扩大爆料革命的影响力。
 
-该法案是众议院、参议院两党激烈谈判的结果，除了应对地缘政治威胁的战略外，还包括为军队增加 2.7% 的工资，以及采购更多的飞机和海军舰艇。
+**参考阅读**: [https://www.gettr.com/post/pis20v4c9c](https://www.gettr.com/post/pis20v4c9c)
 
-NDAA通常在获得两党多数支持的情况下获得通过，众议院周二晚些时候以363票对70票通过了这一折衷方案。
 
-由于该法案涉及面广，而且它是每年成为法律的为数不多的主要法案之一，因此受到业界和其他利益集团的密切关注。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-3.png)
+总编: Ivy001
 
-该法案包括用于乌克兰安全援助计划的3亿美元，该计划为乌克兰武装部队提供支持;用于欧洲防务计划的40亿美元;以及用于波罗的海安全合作的1.5亿美元。
+编辑: Irene木木
 
-议员们还删除了一项禁止美国人购买俄罗斯主权债务的修正案。
+校对/发稿: 卡夫卡的甲壳虫
 
-拜登的民主党同僚控制着众议院和参议院。白宫表示，如果俄罗斯入侵乌克兰，它支持制裁，但不支持可能威胁跨大西洋关系的条款。
+**更多资讯，更多关注**
 
-在遏制中共方面，该法案包括为太平洋威慑倡议(Pacific Deterrence Initiative)提供71亿美元，并发表国会支持台湾防御的声明，以及禁止国防部从中共国新疆地区采购强迫劳动生产的产品。
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-新闻来源：[U.S. Congress includes $300 million for Ukraine, addresses China in massive defense bill](https://www.reuters.com/world/us/us-congress-includes-300-million-ukraine-addresses-china-massive-defense-bill-2021-12-07/)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
  
 
