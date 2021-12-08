@@ -2,43 +2,36 @@
 ---
 
 
-## DC大中华时事：澳大利亚宣布不派官员出席北京冬奥会
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1732366/)
+## 中俄联军侵略：美防长奥斯汀说乌克兰、台湾可以自卫
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1732373/)
 
-*编辑：西北风 / 作图：*虎子哥
+作者：东京樱花团｜捆绑CCP一千年
+![](https://lh3.googleusercontent.com/sNwpj3oRpcqvWExoCTPDQjT0P3OiywvEhR-evXeuBGzq86Z4msniHPQSn5DtCDTAeH_yUlErge7sPkefVhSAT3mHf8DZqTWKwniYvitmi41IOZ9yUxEthtO9vtI_vD1QOFRxtA_e)[*图片来源*](https://www.defense.gov/News/News-Stories/Article/Article/2864875/austin-discusses-china-russia-american-public-survey-on-military-at-defense-one/)
+**五角大楼当地时间7日，**[**奥斯汀表示**](https://www.defense.gov/News/News-Stories/Article/Article/2864875/austin-discusses-china-russia-american-public-survey-on-military-at-defense-one/)**，他的工作是保卫美国。但面对中俄两国对乌克兰和台湾可能的军事侵略，奥斯汀表示，“关于俄罗斯对乌克兰的侵略和中国对台湾的侵略，美国的战略目标都是在外交上发挥作用。”**
 
-![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/ScreenShot-2021-08-01-at-17.25.09@2x.png)
+奥斯汀补充道，“我们对尊重每个国家主权领土的基于规则的国际秩序非常感兴趣。”他说，“我们相信乌克兰有权捍卫和保护其主权领土，美国以材料和顾问支持乌克兰，因此它拥有自卫所需的一切。”
 
-#   墙国妄语每日驳
+面对中共国对台湾的侵略，奥斯汀表示，“根据《台湾关系法》的概述，国防部将继续对台湾提供支持，以便台湾能够自卫。台湾也有两党的支持，国务卿说这很重要。”
 
-### 12.08.2021
-
-[外媒关注：中国接连出击争夺民主话语权\_参考消息网 (cankaoxiaoxi.com)](http://m.cankaoxiaoxi.com/china/20211207/2462179.shtml)
-
-***简评：***这篇文章里讲中国争夺民主话语权，我觉的中共讲这种话只能是让地球人都笑了，大家心里都知道这是个国际玩笑。中共能够在中囯维持统制，靠的就是商鞅的驭民五术愚民，弱民，贫民，疲民，辱民。这得有个前提，就是要占领道德制高点，有了道德制高点，才能有统治权的合法化。在国内，中共占有了马列宗教的共产主义理想的道德制高点，中共许诺给你共同富裕，中华民族伟大复兴等等空洞口号，中共永远要占领国内道德制高点，对外中共给国际讲述中共的民主，中共同样要占领国际道德制高点，中共知道，失去了道德制高点，就失去了执政合法性，也就失去了最高的权力，为此中共可以全世的建立孔子学院，不惜成本，甚至全蓝金黄全世界的主要新闻媒体，即使现在全世界都知道中共自己也知道中共是光着屁股在表演，但这就是中共的本性，中共要继续欺骗撤谎而且不断加码，中共知道自己靠谎言起家如果不继续这样做中共连一天也活不下去。
-
-### 12.08.2021
-
-[澳大利亚宣布不派官员出席北京冬奥会，中国驻澳使馆刚刚回应！ (huanqiu.com)](https://world.huanqiu.com/article/45tt8jtPjP9)
-
-***简评：***回想2000年北京申办奥运会成功那一刻，我们都是群情激昂，借那一刻也为中共经济打了一针强心剂，并随着加入WTO中共国的子宫经济成功为中共续命几十年，今天，中共同样希望通过北京冬奥会达到同样继命的机会，现在世界各国美国，澳州等开始陆续抵制北京冬奥会。前后对比己清晰的说明中共的未来，这就是风向标这就是信号，全球灭共的开始，世界各国开始抵制北京冬奥会这对中共打是巨大的，从这一刻起，灭共将进入一个新的阶段，里程碑式的全球灭共。
-
-### 12.08.2021
-
-[林郑月娥接受《环球时报》专访：香港终于度过大风大浪 (huanqiu.com)](https://china.huanqiu.com/article/45tfvCHoNH1)
-
-***简评：***香港能够从一个小渔港发展到国际金融中心，靠的是自由，民主和法制的制度和体系，通过香港人勤劳和智慧赢得了国际社会的认可和信任。现在恰恰是林郑月娥出卖了香港，她把香港的一切卖给邪恶的中共，中共不仅吞噬了香港的灵魂，也吞噬了香港百年积累的财富，林郑月娥是出卖香港最大恶人，一个个年轻鲜活生命的shi逝去，香港人不会忘记。
-
-#   港台资讯
-![](https://media.discordapp.net/attachments/858887785507323904/917962995840204830/01.png?width=1043&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/917963042434740294/02.png?width=1043&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/917963079986343966/03.png?width=1043&amp;height=586)
+- ***延展阅读：***[***拜登警告普京，如果俄罗斯的侵略继续下去，将会带来经济后果***](https://www.reuters.com/article/biden-putin-1207-tues-idCNKBS2IN025)
 
 
+奥斯汀强调，如果俄罗斯攻击乌克兰，这将是“一个非常糟糕的举动”。但这位部长说，“我们的综合威慑意味着以新的不同的方式将我们的现有军事能力联网。而综合威慑能力包括与美国盟友合作的能力。这意味着我们将在所有领域作战能力，包括网络和太空以及海底。”
+
+但这位国防部长称，我们综合威慑能力还包括“以外交为主导”的方式。他认为，“如果外交失败，无论出现什么问题，我们都将处于有利位置，能够取得胜利并果断取胜。”这也意味着奥斯汀在确保最坏情况出现后不放弃使用“国家力量”。
+![](https://lh3.googleusercontent.com/lWJPPFGIDV8WEcjdX_6OcJLO9InbETH1Cs9n2jt7ap2hJ1tpBDyEM0qawzx1ZwPr0w0mC0YLWP3k_TZ1GiTfpODutex0x-XiVDgcG4Jv3Q6B0QHQCfibsOfaMbzZ5ap6Bq_fEonZ)[*图片来源*](https://www.nytimes.com/2021/12/07/world/europe/listen-to-the-daily-why-does-american-military-assistance-to-ukraine-matter.html)
+奥斯汀援引国务卿的话说，国务卿相信有机会通过武力以外的方式解决分歧。“我们在边境地区看到了俄罗斯军队的数量，对此表达了数周的担忧。”乌克兰总统沃洛德米尔泽伦斯基说，“最近他担心有人试图破坏他的政府稳定。”奥斯汀说，“当你把所有信息加在一起分析，看起来很熟悉，就像 2014 年俄罗斯第一次入侵乌克兰时的重演。”
+
+- ***延展阅读：***[***奥斯汀接受福克斯采访称：乌克兰现在显然不属于北约，不受第5条款保护***](https://www.defense.gov/News/Transcripts/Transcript/Article/2862114/secretary-of-defense-lloyd-j-austin-iii-interview-with-bret-baier-fox-news-at-2/)
 
 
-*编辑：*西北风
-*作图：虎子哥
-发布：文顾*
+奥斯汀在继续谈到台湾时表示，“我们不希望看到现状发生变化，尤其是现状的单方面变化。”他强调台湾的所有紧张局势都应该首先通过外交途径解决，并且国防部还确保这个小国拥有自卫所需的东西，比如像对乌克兰的军事支持。但奥斯汀承认，“美国人对军队的信心有所下降，但他发誓要努力保持国家的信心。”
 
+2021年12月8日
+
+*校对：东京樱花团 / 東洋武士
+发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
