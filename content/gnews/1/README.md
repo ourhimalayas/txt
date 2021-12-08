@@ -2,22 +2,18 @@
 ---
 
 
-## 英国新增的心脏病患者多达30万
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1732543/)
+## 澳大利亚在美国之后亦宣布外交抵制北京冬奥
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1732557/)
 
-#### 翻译/撰稿：zzballack
+撰文 : 新中国联邦静
+![](https://assets.gnews.org/wp-content/uploads/2021/12/qw-1.jpg)澳大利亚总理莫里森12月7日宣布，不会派遣任何官方代表团出席北京冬奥会
+继美国于12/6白宫例行记者会上公布，鉴于中共在新疆正在进行的种族灭绝，反人类，以及其他侵犯人权的行为，拜登政府将不派任何外交或官方代表，参加北京2022年冬季奥运会和残奥会后，澳大利亚于12/7亦加入到美国外交抵制北京冬奥的队伍中。澳大利亚总理莫里森周三宣布，澳国不会派遣任何外交代表出席2022年北京冬奥会。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-2-5.jpg)图片来源：Sound Health and Lasting Wealth
-据《布雷特巴特新闻网》（Breitbart News）12月7日报道，伦敦的高级血管外科医生塔希尔·侯赛因（Tahir Hussain）说，英国新增的心脏病患者多达30万。但他却将此归咎于“大流行后的压力障碍（post-pandemic stress disorder，PPSD）”，绝口不提新冠疫苗。
+莫里森同时表示，北京在新疆严重违反人权，以及北京拒绝与澳大利亚官员会晤讨论相关问题也促使坎培拉作出上述决定。
 
-在诺斯威克公园医院（Northwick Park Hospital）工作的侯赛因告诉《伦敦旗帜晚报》(Evening Standard)：“我在工作中看到，与血栓有关的血管疾病患者大幅增加，而且住院需要手术和医疗干预的病人比大流行之前年轻得多。我们也有证据表明，死在家里的一些病人死于肺栓塞和心肌梗塞等疾病。我相信这是因为他们在家里自我隔离，不与外界接触，无法得到他们所需要的帮助所致。”
+引用新闻来源
 
-《伦敦旗帜晚报》还采访了前国民医疗服务体系（National Health Service）的高级心理治疗师马克·雷纳（Mark Rayner），雷纳声称英国可能有多达300万人受PPSD影响，导致出现冠状动脉疾病和其他心脏相关问题的患者急剧增加。
-
-译者个人认为，英国的心脏疾病患者猛增绝对与新冠疫苗有关，而绝非什么大流行后的压力障碍。因为英国的疫苗接种率是全世界最高之一，英国政府目前正在推广接种的新冠疫苗包括辉瑞、莫德纳和阿斯利康。大量事实证明，这三种疫苗会导致接种者患上血栓和心包炎、心肌炎等心脏疾病。尽管如此，英国政府还在忽悠人们接种加强针，甚至在最近还向辉瑞和莫德纳额外采购了1.14亿剂新冠疫苗，以作为未来两年的加强针，这无异于大屠杀。希望疯狂的疫苗接种行动赶快停止，不然人类会遭遇灭顶之灾。
-
-新闻来源：[Doctors: UK Faces Up to 300,000 New Heart Condition Cases – Due to ‘Post-Pandemic Stress Disorder’](https://www.breitbart.com/europe/2021/12/07/doctors-uk-faces-up-to-300000-new-heart-condition-cases-due-to-post-pandemic-stress-disorder/)
+[澳大利亚宣布外交抵制北京冬奥](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211208-%E6%BE%B3%E5%A4%A7%E5%88%A9%E4%BA%9A%E5%AE%A3%E5%B8%83%E5%A4%96%E4%BA%A4%E6%8A%B5%E5%88%B6%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5?ref=tw_i)
 
  
 

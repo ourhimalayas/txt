@@ -2,62 +2,26 @@
 ---
 
 
-## 120名学生注射后住院 越南一省叫停辉瑞疫苗
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1732501/)
+## 澳洲政府计划出台新政 推行加密货币
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1732509/)
 
-编译：Jenny Ball
+#### 翻译/校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/254737e23b5ec80b39473dc83081c3a94f846a65-4x3-x307y0w1835h1376-2.jpg)图片来源：The West Australian
+根据9News12月8日的报道，澳洲政府正采取行动，通过对加密货币实施新的监管制度，把比特币“从阴影中拉出来“，而且澳洲政府正忙于推出自己的数字货币。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-372.png) 图片来源 : newstarget.com
+经澳大利亚财政部长乔希·弗莱登伯格 (Josh Frydenberg)证实，目前联邦和储备银行（Commonwealth and Reserve Bank）正在研究澳大利亚建立中央加密货币的可行性。
 
-越南的清化省[暂停了辉瑞（Pfizer）的所有](https://e.vnexpress.net/news/news/120-children-hospitalized-province-suspends-pfizer-vaccine-batch-4397748.html)武汉冠状病毒（Covid-19）“疫苗”的使用，因120 多名学生注射后不得不住院治疗。
+弗莱登伯格在《今日》（Today）节目中说，现在是时候让加密货币在一个”深思熟虑的监管框架 “的保护伞下运作。“政府想要让加密货币的交易所和企业申请金融许可证，从而让用户对他们的交易方有更多的确定性和信心。”
 
-自 11 月 30 日以来，中部省份一直在向 15-17 岁的儿童注射辉瑞-生物科技的实验性 mRNA药物，美国监管机构宣布该溶液“安全有效”。然而，事实证明，疫苗并不像声称的那样安全有效。
+在过去的十年里，超过80万的澳洲人至少拥有过一次加密货币。但由于加密货币的匿名性，比特币已经与犯罪企业脱不开关系。
 
-省疾病控制中心（CDC）公开报告说，这 120 名学生出现的症状包括恶心、高烧和呼吸困难。 （相关：美国CDC一直在隐瞒数据，事实表明，注射福奇流感正在造成人员伤亡。）
+对此，弗莱登伯格表示，加密货币是一个快速发展的领域，政府需要走在前面。“我们的金融部门正在进行一场数字革命。”他还警告说，例如Afterpay这种先买后付的公司将来会面对更多的审查和监管措施。
 
-在这些病例中，有 17 例经历了更“严重的反应”，需要更高级别的医疗护理。越南的企业媒体声称，这些人已经“稳定”，但他们仍在整个地区的医院接受监测。
+最后弗莱登伯格总结说，更好的监管将为收费带来 “适当的透明度”，并确保为进入市场的新进入者提供公平的竞争环境。
 
-“他们症状的原因尚未得到清化当局的证实，” 假装疫苗注射与这些负面健康结果无关。《越南快讯》（VN Express）报道。
+评论：对加密货币进行监管是加密货币能够真正流通的必经之路，但澳洲别惦记那比特币了，比特币已经是中共和犯罪组织的黑金库，人们怎么可能接受对比特币洗白？
 
-**越南仍计划向儿童注射“其他批次”的辉瑞**
-
-不过，如果说辉瑞将不再在越南，甚至是清化市使用，你就错了。
-
-该省CDC主任梁玉长（Luong Ngoc Truong）告诉媒体，唯一叫停的是受影响批次的注射剂。
-
-“我们还有其他批次，还有辉瑞疫苗，”Truong 说。 “所以，我们将继续为孩子们接种疫苗。”
-
-**（点评：有这样的CDC主任，就是当地的灾难！）**
-
-到目前为止，清化CDC已向全国 27 个地区和城镇分发了约 117,000 剂福奇流感“疫苗”， 已经进行了超过 56,700 次注射，或大约一半。
-
-**就在上周，三名儿童在北江、河内和平福注射辉瑞后死亡。**他们的死因已被政府宣布为“对疫苗反应过度”。
-
-同样，上周清化金越鞋厂的四名工人因注射了科兴Vero Cell**中共病毒疫苗而死亡**，这是另一个鲜为人知的疫苗品牌。 这些死亡也被归类为对疫苗的“过度反应”。
-
-“我有一个更好的主意：根本就不注射疫苗不更好？” 一位评论者在 《越南快讯》上写道。
-
-“严重的反应是正常的副作用吗？” 另一个问道。“未知的长期副作用呢？ 这真的值得冒险吗？”
-
-在自然新闻的一篇关于 CDC 大规模掩盖疫苗反应和死亡的文章中，一位评论者写道，整个机构“腐烂到核心”，并且“现在对于任何有两个工作脑细胞的人来说都变得如此明显 。”
-
-“难怪他们想通过试图让每个人都出现神经功能障碍来掩盖他们的踪迹，”同一位评论者写道。
-
-另一位指出，疫苗不良事件报告系统 (VAERS) 仅捕获了所有接种受伤和死亡的大约 1%，因为“这是自愿的”，而且许多医生和卫生专业人员拒绝使用它。
-
-**评论：整个机构“腐烂到核心”，是该彻底改变的时刻了！**
-
-新闻来源: [ newstarget.com] [Vietnam province HALTS Pfizer covid vaccines after 120 students hospitalized following vaccine injections](https://www.newstarget.com/2021-12-06-vietnam-halts-pfizer-covid-vaccines-students-hospitalized.html) / [VNExpress.net](https://e.vnexpress.net/news/news/120-children-hospitalized-province-suspends-pfizer-vaccine-batch-4397748.html) / [NaturalNews.com](https://naturalnews.com/2021-06-01-cdc-removing-covid-vaccine-injury-reports-vaers.html)
-
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH..jpeg)
-
-
-
+新闻来源：[Australian government planning digital currency launch, as regulation looms for Bitcoin](https://www.9news.com.au/national/bitcoin-australian-government-planning-digital-currency-launch-as-regulation-looms-for-cryptocurrency/5e6fbf01-9e28-4ea7-b4e9-aeac85f3e0da)
 
  
 
