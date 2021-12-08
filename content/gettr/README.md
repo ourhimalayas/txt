@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/8/2021 10:53 PM (UTC)`
+
+12/8/2021 Miles Guo: Abu Dhabi cut diplomatic ties with CCP China;  all military and economic projects between the two nations are called off, so Xi Jinping blames Miles Guo for these? The boycott of Beijing Winter Olympics, H coin and Himalaya Exchange completely pissed the CCP off. But the CCP only dares to bully Chinese LaoBaixing. CCP is absolutely a gangster.<br/><br/>12/8/2021 文贵直播：阿布扎比和中共国断交，军事和经济的项目统统停了，习近平怪文贵？冬奥会遭抵制、喜币、喜联储彻底惹恼了中共，但它们只敢用流氓手段对付中国老百姓<br/>
+![img](https://media.gettr.com/group10/getter/2021/12/08/22/c02a4394-26a1-4dd0-9ce4-ae90f498f5b3/out.jpg)
+
+---
+
 `@miles 12/8/2021 6:59 PM (UTC)`
 
 12月8号：让这些爱中共的共产党的特务的所有的钱才和共产党的黑暗的交易曝光，以阳光之下让美国人民觉醒。<br/><br/>【https://www.dirt.com/moguls/finance/bo-shan-house-brentwood-1203303596/  单建伟儿子 Bo Shan /Leilei Shan( 单博/单磊磊)在2019年以2000万美元买下的豪宅，位于<br/>Brentwood, Los Angeles, Calif. https://www.dirt.com/moguls/finance/bo-shan-house-brentwood-1203303596/】
@@ -144,13 +151,6 @@ On Dec. 6, 2021, hundreds of police and over 100 people from BBMG sent by the CC
 
 12/6/2021 Miles Guo: The CCP has just committed yet another illegal robbery and abuse of the employees at the Pangu Plaza, and all of them and my 90-year-old father were forced out into the streets; all the CCP thugs at the scene will not be on our pardon list; fellow fighters shall do nothing but safely spreading the truths about the COVID vaccines, the antidotes, and the CCP virus<br/><br/>12/6/2021 文贵直播：中共刚对盘古的员工再次进行了非法抢劫和虐待，把所有员工和我90岁的父亲赶到马路上；现场的中共打手们都不会上我们的宽恕名单；战友们除了安全地传播疫苗、解药和病毒的真相，什么都不要做<br/><br/>
 ![img](https://media.gettr.com/group27/getter/2021/12/07/02/3792bc23-33a5-b48e-4111-13f2e664f968/out.jpg)
-
----
-
-`@miles 12/6/2021 3:21 PM (UTC)`
-
-Dec. 6th, 2021, after the CCP, filled with fear of our Whistleblowers’ Movement, turned the Pangu‘s dragon head into a bird's head, a few hours ago, 150 bailiffs, more than 100 special police, and over 100 people from BBMG, supposedly entrusted by the Dalian court to execute the seizure of all assets of Pangu, did a complete “cleanup”. All the female employees who were changing shifts in the dormitory in their pajamas were driven to the road, confiscated all their phones and belongings; throwing my old father, who had a stroke, out of the house and is now wandering on the street. All the thousands of employees, residents and guests were thrown out of the Pangu Hotel. The whole scene became a great arrest against humanity! I will have a live broadcast on this soon!
-![img](https://media.gettr.com/group23/getter/2021/12/06/15/2e07146c-9b83-c79c-1ba2-fdd0b4d27767/f89fe37532ba8854831a4795699bc4c2.jpg)
 
 ---
 
