@@ -2,42 +2,79 @@
 ---
 
 
-## 我们的中心化币将具备去中心化的外太空交易系统和技术
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1731559/)
+## 众议院军事委员会： 2022年国防开支案为我们的军队在与中共国的冲突中取得胜利做好准备
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1731608/)
 
-**郭文贵先生：**我今天告诉大家，你等看到咱们新中国联邦出来的东西，我们会让你看到这个纯金的金币。这个金币最大额可能100万美元，从100美金到100万美元。也就是从青藤手里拿着个东西，它有绝对的加密技术，这个加密的什么程度？是百分之一万的给你承担责任，没有任何人可以破解的。
+众议院军事委员会： 2022年国防开支案为我们的军队在与中国的冲突中取得胜利做好准备： 提供超过 70 亿美元的威慑资金 让 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 脱离国防部的供应链 对抗中共国人的恶性影响 大力支持台湾 寻求有关 COVID-19 起源的答案
 
-然后比如说，你给你这手拿着，交给了这个文疯而逃了，文疯拿着就逃了，是吧。怎么交给你呢？通过你的生理识别加技术识别，你就可以拿到这100万美元。100万美元你说我拿这个东西我想换现金，有专门的第三方H-Bank。H-Bank专门给你贴现，你要什么货币都给你。那我不要钱，我想提黄金。让你提到世界上最安全、最保障的，认可的黄金，你可以提走。
 
-这就是咱们这个未来的喜联储，绝对天下无敌啦。记住我今天说的话，你记住你七哥说的话，都会让你在突然间让你看到。这说的话都不是开玩笑的，我说你把它废了，这个技术的最重要是什么？就是电的能源，这你怎么解决电的问题？你怎么解决这个里面的金币有电的问题。和金币怎么来确认我的生理密码，从青藤的眼睛到了你的眼睛，甚至拿手指头，甚至未来可能扫屁股。人家扫眼睛，扫手指，咱们扫屁股。用屁股纹、手纹、眼睛纹，扫完却能到你那去。你拿着，你就可以到处提现。我们这叫什么？这叫太空币，完全是地球之外操作的，没有任何人，而且这就是合理、合法的。
 
-这种技术的核心，最重要就是那个芯片。这个芯片要被谁掌握了，那他就可以控制你。这个芯片IMB的2nm没有任何人可以掌握。而且这个芯片未来是跟我们的格芯一起生产。是吧？大家更懂了，是吧？
+> The FY22 NDAA prepares our military to prevail in conflict with China:
+> 
+> ✅Provides over $7 billion in funding for deterrence
+> ✅Gets China out of DoD supply chains 
+> ✅Counters Chinese Malign Influence 
+> ✅Strong support for Taiwan
+> ✅Seeks answers on the origin of COVID-19 [pic.twitter.com/Ri1iuIcs49](https://t.co/Ri1iuIcs49)
+> — Armed Services GOP (@HASCRepublicans) [December 7, 2021](https://twitter.com/HASCRepublicans/status/1468323633378517003?ref_src=twsrc%5Etfw)
 
-从芯片的生产，到芯片的合成，到芯片的保密，到外太空的交易系统，地球人就没人能管得了。而且你想关键问题，数字货币最大的问题：支付、兑现、安全、保密，天下无敌。那些去中心化的币都去死了吧，没有任何人使用的。我们这叫中心化的币，和去中心化的交易系统，和去中心化的技术，天下无敌，这就是技术的核心的核心。
 
-字幕来源：[2021年12月5日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1725245/)
 
-视频制作：Cindy
+参议员瑞克·斯科特：我晚上10:00上劳拉·英格拉汉姆[@IngrahamAngle](https://twitter.com/IngrahamAngle)的节目谈论乔·拜登软弱的外交抵制2022年北京奥运会[@Olympics](https://twitter.com/Olympics)，以及我给[@NBA](https://twitter.com/NBA)的信，谴责它没有站出来反对 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 骇人听闻的侵犯人权和种族灭绝罪行。 欢迎收看/收听！
 
-视频上传：Cindy；
 
-G-News发布：黎明之前；
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+> 🚨I’ll be on the [@IngrahamAngle](https://twitter.com/IngrahamAngle?ref_src=twsrc%5Etfw) at 10:00 PM to talk about Joe Biden’s weak diplomatic boycott of the 2022 [@Olympics](https://twitter.com/Olympics?ref_src=twsrc%5Etfw) & my letter to the [@NBA](https://twitter.com/NBA?ref_src=twsrc%5Etfw) on its failure to stand up against Communist China’s horrific human rights abuses & genocide. Tune in! [pic.twitter.com/EtteYlKcEf](https://t.co/EtteYlKcEf)
+> — Rick Scott (@SenRickScott) [December 8, 2021](https://twitter.com/SenRickScott/status/1468400049764057088?ref_src=twsrc%5Etfw)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+参议员卢比奥新闻办： 卢比奥参议员在一次中国委员会[@CECCgov](https://twitter.com/CECCgov)的听证会上发言，在那里，他讨论了美国如何应对中共 [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 的经济胁迫，并谴责美国大公司“懦弱”地游说反对他的’维吾尔强迫劳动预防法’法案 [#UyghurForcedLabor](https://twitter.com/hashtag/UyghurForcedLabor?src=hashtag_click)。
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+> Sen Rubio spoke during a [@CECCgov](https://twitter.com/CECCgov?ref_src=twsrc%5Etfw) hearing, where he discussed how the U.S. can counter the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s use of economic coercion & called out major American corporations for their “cowardly” efforts to lobby against his [#UyghurForcedLabor](https://twitter.com/hashtag/UyghurForcedLabor?src=hash&amp;ref_src=twsrc%5Etfw) bill.
+> 
+> Read & watch 👇[https://t.co/8O6ea8d9Z2](https://t.co/8O6ea8d9Z2)
+> — Senator Rubio Press (@SenRubioPress) [December 7, 2021](https://twitter.com/SenRubioPress/status/1468345824933564416?ref_src=twsrc%5Etfw)
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
+
+前国务卿蓬佩奥： 一个负责任的美国领导人怎么能在看了国际女子网球明星彭帅的遭遇后得出结论，我们的运动员在 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 境内是安全的？
+
+
+
+> How can responsible U.S. leaders look at what has happened to international women’s tennis star Peng Shuai and conclude that our athletes will be safe inside Communist China’s borders?
+> — Mike Pompeo (@mikepompeo) [December 7, 2021](https://twitter.com/mikepompeo/status/1468336988227096582?ref_src=twsrc%5Etfw)
+
+
+
+众议员莫·布鲁克斯： 我关于需要成立特别委员会对亨特·拜登进行全面调查的声明： 【附布鲁克斯众议员的声明全文】
+
+
+
+> My statement on the need for a full select committee investigation into Hunter Biden: [pic.twitter.com/bYG1OKBJW4](https://t.co/bYG1OKBJW4)
+> — Mo Brooks (@RepMoBrooks) [December 7, 2021](https://twitter.com/RepMoBrooks/status/1468323805282156551?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克·麦考尔： 私营公司，如谷歌和微软，正在加紧对抗俄罗斯和中共国 黑客。这表明美政府正在取得进展和私营公司打击俄罗斯和中共黑客祸害的能力。 【转推：谷歌正在起诉两名俄罗斯人，据称他们是一个庞大的计算机网络中毒的幕后黑手，这些计算机已被用于窃取个人信息秘密开采比特币等犯罪活动】
+
+
+
+> Private sector companies, like [@Google](https://twitter.com/Google?ref_src=twsrc%5Etfw) and [@Microsoft](https://twitter.com/Microsoft?ref_src=twsrc%5Etfw), are stepping up against Russian and PRC hackers. This demonstrates the progress that is being made in the USG and the private sector’s ability to combat the scourge of Russian and CCP hackers. [https://t.co/qWFkhEBB1Q](https://t.co/qWFkhEBB1Q)
+> — Michael McCaul (@RepMcCaul) [December 7, 2021](https://twitter.com/RepMcCaul/status/1468318110679810050?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克·加西亚： 由于加州港口的积压，[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 正在支付额外费用以取回空集装箱——导致美国商品无法出口。 拜登政府和加州的政策正在将美国(利益)放在中共国之后。 这是无法接受的。 【转华尔街日报：供应链混乱使南加州淹没在空集装箱中】
+
+
+
+> Due to the backlog at CA ports, China is paying premiums to get their empty containers back – resulting in American goods failing to be exported. The Biden admin & CA’s policies are putting America 2nd to China. This is unacceptable.[https://t.co/KlGh2ZeslS](https://t.co/KlGh2ZeslS)
+> — Rep. Mike Garcia (@RepMikeGarcia) [December 7, 2021](https://twitter.com/RepMikeGarcia/status/1468251521750118400?ref_src=twsrc%5Etfw)
+
+
 
  
 

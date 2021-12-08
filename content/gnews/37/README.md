@@ -2,32 +2,34 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月7日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1731630/)
+## 中共精神分裂：来不来无所谓，不来冬奥会就报复
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1731717/)
 
-作者：香草山翻译部
+#### 整理编辑：东京樱花团/peterwong
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-109-1280x172-1-2-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/精神分裂.png)[图片来源](https://upload.wikimedia.org/wikipedia/commons/3/39/August_Natterer_Meine_Augen_zur_Zeit_der_Erscheinungen.jpg)
 
+美国政府星期一（2021年12月6日）宣布外交抵制北京冬季奥运会，以兑现“捍卫人权”的承诺。中共国官员们对此做出了相互和前后矛盾的反应，使得中共的处境更加尴尬。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1207text-SC.png)
-校对：Stay文苑
+白宫发言人萨琪在做出这项宣布时说，“我们将不会为这场运动会凑热闹。面对中共国严重的践踏人权行为和在新疆的暴行，美国外交官和官方代表如果出席就是将这些赛事视为一切照常，这是我们绝对不能做的。”萨琪是在中国时间星期一深夜发布这一消息的。但中共的官员们没有立即对这一广受关注的宣布立即作出回应。
 
-编辑：Stay文苑
+在华盛顿，中共国驻美国大使馆发言人刘鹏宇发出推文说，“政客们呼吁抵制2022年北京冬季奥运会是为了自身政治利益和故作姿态。事实上，没有人关心这些人来不来。这对北京冬奥会成功举行不会有任何影响。”
 
-发稿：Stay文苑
+不过，刘鹏宇的上司们似乎很在乎美国是否外交抵制北京冬奥会。
 
-视频参看：[12.7  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61b00a09bbd75f62e53233b6)
+中共国外交部发言人战狼赵立坚星期二称，中方强烈反对美国宣布不派官员出席北京冬奥会，表示已向美方提出严正交涉，并会坚决反制。当被外媒追问中方将具体采取什么反制措施时，他说，“美方将为其错误行径付出代价，请大家拭目以待。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-69.jpeg)
+美国外交抵制北京冬奥会是一段时间来人们预料之中的决定，但是拜登政府此前未作出宣布据信一方面是为了不影响拜登总统与习近平上个月的视讯会议，另一方面是需要时间与美国的盟友协调如何应对北京冬奥会。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+美国国会众议院外交关系委员会首席共和党人迈克尔·麦考尔(Michael McCaul)星期一在一份声明中说：“我敦促拜登总统鼓励美国的盟友和伙伴加入我们的外交抵制，要国际奥委会和中共为其无视人权而承担责任。这些奥林匹克赛事是让中共将其包括种族灭绝在内的人权暴行正常化的一个关键机会，而自由世界必须团结起来对其说不。”
 
+在白宫星期一作出外交抵制北京冬奥会的宣布之后，美国的盟国们没有立即跟进，但一些盟国预计不久后会做出类似的宣布。
+
+消息来源:[美国宣布外交抵制北京冬奥会 中方扬言美国将“付出代价”](https://www.voachinese.com/a/reaction-us-diplomatic-boycott-beijing-olympics-20211207/6342378.html)
+
+*编辑：东京樱花团 / 知了知了
+发布：东京樱花团 / 野猫*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
