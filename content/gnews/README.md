@@ -15,137 +15,137 @@
 
 ---
 
-### [卡车广告回归：卡尔加里没有气候紧急情况](/content/gnews/1/README.md)
+### [杰克·塔珀对好莱坞、NBA等与中国做生意的公司进行了抨击](/content/gnews/1/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [【小一观点】俄罗斯重返亚洲，美国釜底抽薪，中共陷入绝境](/content/gnews/2/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm Toronto(CA)`
+
+### [南非遭受自七月以来最新的中共病毒OMICRON 袭击，当地科学家如是说](/content/gnews/3/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [采访：男子在第一次注射新冠疫苗时注射了正常剂量六倍的辉瑞疫苗](/content/gnews/4/README.md)
  ` MG FARM`
 
-### [加拿大加入美澳新等行列，宣布外交抵制北京奥运会](/content/gnews/2/README.md)
+### [卡车广告回归：卡尔加里没有气候紧急情况](/content/gnews/5/README.md)
+ ` MG FARM`
+
+### [加拿大加入美澳新等行列，宣布外交抵制北京奥运会](/content/gnews/6/README.md)
  ` YALUN 亚伦`
 
-### [美国正式外交抵制北京冬奥会，习近平实施高段位反击](/content/gnews/3/README.md)
+### [美国正式外交抵制北京冬奥会，习近平实施高段位反击](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [研究人员质疑中国人口数据，称实际数据可能更低](/content/gnews/4/README.md)
+### [研究人员质疑中国人口数据，称实际数据可能更低](/content/gnews/8/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [SEC主席强调加密货币市场易受操纵，投资者易受攻击](/content/gnews/5/README.md)
+### [SEC主席强调加密货币市场易受操纵，投资者易受攻击](/content/gnews/9/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [亚马逊网络服务AWS出现大规模宕机 多个平台受影响](/content/gnews/6/README.md)
+### [亚马逊网络服务AWS出现大规模宕机 多个平台受影响](/content/gnews/10/README.md)
  ` 日本东京方舟农场`
 
-### [中共国准备在大西洋建立第一个永久海军基地，震惊美国官员](/content/gnews/7/README.md)
+### [中共国准备在大西洋建立第一个永久海军基地，震惊美国官员](/content/gnews/11/README.md)
  ` 波士顿五月花农场`
 
-### [为了我们的尊严行动行动行动](/content/gnews/8/README.md)
+### [为了我们的尊严行动行动行动](/content/gnews/12/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [普京：俄罗斯将迅速跟进与美方就乌克兰危机进行的通话](/content/gnews/9/README.md)
+### [普京：俄罗斯将迅速跟进与美方就乌克兰危机进行的通话](/content/gnews/13/README.md)
  ` 纽约香草山MOS02`
 
-### [【粤语配音】2021年12月3日：爆料革命掌握共产党“马航”事件的核心机密](/content/gnews/10/README.md)
+### [【粤语配音】2021年12月3日：爆料革命掌握共产党“马航”事件的核心机密](/content/gnews/14/README.md)
  ` MOS香港部`
 
-### [中共长期渗透西方各国地方政府以瓦解对华强硬政策](/content/gnews/11/README.md)
+### [中共长期渗透西方各国地方政府以瓦解对华强硬政策](/content/gnews/15/README.md)
  ` 日本东京方舟农场`
 
-### [加拿大加入外交抵制北京冬奥会](/content/gnews/12/README.md)
+### [加拿大加入外交抵制北京冬奥会](/content/gnews/16/README.md)
  ` HimalayaRussia`
 
-### [美国会两党领袖呼吁国际社会共同抵制北京冬奥会](/content/gnews/13/README.md)
+### [美国会两党领袖呼吁国际社会共同抵制北京冬奥会](/content/gnews/17/README.md)
  ` 日本东京方舟农场`
 
-### [加拿大的新冠监狱回归，而且似乎比以往任何时候都更糟](/content/gnews/14/README.md)
+### [加拿大的新冠监狱回归，而且似乎比以往任何时候都更糟](/content/gnews/18/README.md)
  ` MG FARM`
 
-### [与比特币相关的 After pay 或被禁用](/content/gnews/15/README.md)
+### [与比特币相关的 After pay 或被禁用](/content/gnews/19/README.md)
  ` wenwu`
 
-### [朱莉·波内斯博士的新书：我的选择：反对新冠疫苗授权的道德案例](/content/gnews/16/README.md)
+### [朱莉·波内斯博士的新书：我的选择：反对新冠疫苗授权的道德案例](/content/gnews/20/README.md)
  ` MG FARM`
 
-### [埃隆马斯克猛烈抨击拜登的“重建”提议，称这将使美国赤字“疯狂”增加](/content/gnews/17/README.md)
+### [埃隆马斯克猛烈抨击拜登的“重建”提议，称这将使美国赤字“疯狂”增加](/content/gnews/21/README.md)
  ` MG FARM`
 
-### [怎样和亲朋有效讨论疫苗接种的话题](/content/gnews/18/README.md)
+### [怎样和亲朋有效讨论疫苗接种的话题](/content/gnews/22/README.md)
  ` 纽约香草山MOS03`
 
-### [由于中共的人权暴行，美国正式宣布抵制2022年冬奥会](/content/gnews/19/README.md)
+### [由于中共的人权暴行，美国正式宣布抵制2022年冬奥会](/content/gnews/23/README.md)
  ` 纽约香草山MOS01`
 
-### [英国宣布外交抵制北京冬奥会](/content/gnews/20/README.md)
+### [英国宣布外交抵制北京冬奥会](/content/gnews/24/README.md)
  ` HimalayaRussia`
 
-### [2021年春节对中共高官子女及情人和亲属大抗议行动方案](/content/gnews/21/README.md)
+### [2021年春节对中共高官子女及情人和亲属大抗议行动方案](/content/gnews/25/README.md)
  ` NewFOC`
 
-### [文贵爆料 12.8：春节将有全球大行动，丧钟只为中共而鸣](/content/gnews/22/README.md)
+### [文贵爆料 12.8：春节将有全球大行动，丧钟只为中共而鸣](/content/gnews/26/README.md)
  ` 秘密翻译组-原创组`
 
-### [12月8日文贵大直播快讯——美俄灭共的新时代来临](/content/gnews/23/README.md)
+### [12月8日文贵大直播快讯——美俄灭共的新时代来临](/content/gnews/27/README.md)
  ` 澳喜特战旅Gnews`
 
-### [班农战斗室发起小企业主诉讼，使得德州巡回法庭对强制疫苗发出禁制令](/content/gnews/24/README.md)
+### [班农战斗室发起小企业主诉讼，使得德州巡回法庭对强制疫苗发出禁制令](/content/gnews/28/README.md)
  ` MG 澳喜农场多语组`
 
-### [12月8日文贵大直播快讯——中共已经进入倒计时](/content/gnews/25/README.md)
+### [12月8日文贵大直播快讯——中共已经进入倒计时](/content/gnews/29/README.md)
  ` 澳喜特战旅Gnews`
 
-### [80名共和党人投票资助一个旨在监视美国人的联邦疫苗数据库](/content/gnews/26/README.md)
+### [80名共和党人投票资助一个旨在监视美国人的联邦疫苗数据库](/content/gnews/30/README.md)
  ` 纽约香草山MOS01`
 
-### [2021年12月8日文贵先生直播摘要——银河系农场](/content/gnews/27/README.md)
+### [2021年12月8日文贵先生直播摘要——银河系农场](/content/gnews/31/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [【文贵先生大直播PPT】郭文贵先生准确预告](/content/gnews/28/README.md)
+### [【文贵先生大直播PPT】郭文贵先生准确预告](/content/gnews/32/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [2021/12/08 墙内世界](/content/gnews/29/README.md)
+### [2021/12/08 墙内世界](/content/gnews/33/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021年12月8日 郭先生大直播文字同步精要](/content/gnews/30/README.md)
+### [2021年12月8日 郭先生大直播文字同步精要](/content/gnews/34/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [韩国单日新增9例本土奥密克戎病例](/content/gnews/31/README.md)
+### [韩国单日新增9例本土奥密克戎病例](/content/gnews/35/README.md)
  ` GTV新闻访谈`
 
-### [多国陆续声明外交抵制中共北京冬奥会](/content/gnews/32/README.md)
- ` GTV新闻访谈`
-
-### [纽约市长离任前宣布疫苗强制新规](/content/gnews/33/README.md)
+### [纽约市长离任前宣布疫苗强制新规](/content/gnews/36/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [纽约医生助理说她被迫不报告CCP病毒疫苗伤害事件](/content/gnews/34/README.md)
+### [纽约医生助理说她被迫不报告CCP病毒疫苗伤害事件](/content/gnews/37/README.md)
  ` 纽约香草山MOS01`
 
-### [2021年春节对中共高官子女及情人和亲属大抗议集结号](/content/gnews/35/README.md)
- ` NewFOC`
-
-### [12月8日文贵大直播快讯——我们将对中共高层展开海外行动](/content/gnews/36/README.md)
+### [12月8日文贵大直播快讯——我们将对中共高层展开海外行动](/content/gnews/38/README.md)
  ` 澳喜特战旅Gnews`
 
-### [GTV新闻访谈简报|2021年12月8日早](/content/gnews/37/README.md)
+### [GTV新闻访谈简报|2021年12月8日早](/content/gnews/39/README.md)
  ` 纽约香草山MOS01`
 
-### [12月8日文贵大直播快讯——新歌打榜资金将捐助法制基金](/content/gnews/38/README.md)
+### [12月8日文贵大直播快讯——新歌打榜资金将捐助法制基金](/content/gnews/40/README.md)
  ` 澳喜特战旅Gnews`
 
-### [【文贵先生大直播PPT】单伟建和PAG到底是啥玩意儿](/content/gnews/39/README.md)
+### [【文贵先生大直播PPT】单伟建和PAG到底是啥玩意儿](/content/gnews/41/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [自然免疫——阿米什人怎样应对病毒大流行](/content/gnews/40/README.md)
- ` 澳喜特战旅Gnews`
-
-### [南非新型变种病毒奥米克戎患者激增](/content/gnews/41/README.md)
+### [南非新型变种病毒奥米克戎患者激增](/content/gnews/42/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [有声|【每日读经】创世纪(2:1-25)](/content/gnews/42/README.md)
+### [有声|【每日读经】创世纪(2:1-25)](/content/gnews/43/README.md)
  ` MOSREC`
 
-### [鉴于人权暴行 美国官员抵制北京奥运会](/content/gnews/43/README.md)
+### [鉴于人权暴行 美国官员抵制北京奥运会](/content/gnews/44/README.md)
  ` 喜马拉雅农场新西兰站`
-
-### [12/08/2021 国际财经快讯：业界警告国会，美国对加密货币的监管存在 &#8220;寒蝉效应&#8221;；华尔街在市场 &#8220;泡沫化 &#8220;后重启](/content/gnews/44/README.md)
- ` 秘密翻译组金融团队`
 
 ### [盗国贼也穿着睡衣去零下四度的大街上走一走](/content/gnews/45/README.md)
  ` 骄子`

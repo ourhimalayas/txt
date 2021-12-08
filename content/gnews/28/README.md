@@ -2,14 +2,11 @@
 ---
 
 
-## 【文贵先生大直播PPT】郭文贵先生准确预告
-` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1733645/)
+## 班农战斗室发起小企业主诉讼，使得德州巡回法庭对强制疫苗发出禁制令
+` MG 澳喜农场多语组` [轉載自GNews](https://gnews.org/zh-hans/1733743/)
 
-撰稿：神奇四侠，北评2025
-美工：Bobby（文俊），姐夫说说，雷蒙
+由于百人企业的小业主联合起诉，德州巡回法庭发起对拜登政府的疫苗限制令，这是爆料革命班农战斗室发起的，这个禁令基本可以决定美国彻底结束疫苗。
 
-【2021年12月8日文贵先生大直播PPT：郭文贵先生准确预告：中共将在西非大西洋建立军事基地；世界各国将抵制北京冬奥会
-![](https://assets.gnews.org/wp-content/uploads/2021/12/41-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/43-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/441.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/44-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/45-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/46-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/111-2-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,34 +2,50 @@
 ---
 
 
-## 美国会两党领袖呼吁国际社会共同抵制北京冬奥会
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1733870/)
+## 普京：俄罗斯将迅速跟进与美方就乌克兰危机进行的通话
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1733918/)
 
-**撰稿：日本东京方舟农场  北极**
+作者：纽约香草山农场 – 四季
 
-12月7日，美国国会暨行政当局中国委员会（CECC）的两党领袖发表书面声明，赞扬拜登政府外交抵制北京冬奥会的决定，同时呼吁其他国家共同加入外交抵制的行列。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-拜登政府星期一（12月6日）正式宣布，对即将在明年2月开幕的北京冬季奥运会采取外交抵制，不派遣任何官方代表出席赛事，以兑现“捍卫人权”的承诺。对此，美国国会两党议员普遍表示支持，称此举是对中共在新疆的种族灭绝行动的强烈反击。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/微信图片_20211208131516.png)图片来自路透社
 
-CECC主席默克利参议员（Jeff  Merkley）和共同主席麦戈文众议员（Jim McGovern）还在联合声明中表示：“美国的盟友和伙伴应该在未来几个星期发表类似的声明。国际社会不能容忍他们（中共）（的恶行）而出席这样的奥运比赛。这场奥运已因种族灭绝及一些全世界最恶劣的侵犯人权行为而被蒙上了污点。”
 
-CECC的两党领袖还认为，仅仅外交抵制是不够的。他们强烈呼吁本届冬奥会的赞助厂商不要派遣高层代表赴中（共）国参加赛事。
 
-CECC的领袖们还表示，鉴于中共的暴行，与中共一如往常的商业往来是不可接受的。在接下来几周时间里，他们还将询问企业赞助商会采取什么行动抗议中共的人权侵犯行为。 此外，在白宫正式宣布外交抵制北京冬奥会后，多名美国政要也同时呼吁国际社会加入美国的外交抵制行列。
+据[OAN](https://www.oann.com/russia-says-both-sides-to-follow-up-quickly-on-putin-biden-call/)网站援引路透社12月8日报道，克里姆林宫周三表示，俄罗斯和美国官员将紧急跟进两国总统于前一天就乌克兰问题进行的、有关 “复杂对抗局势”的两小时通话。
 
-*参考链接：*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1643-1.jpg)2021年12月7日，俄罗斯总统弗拉基米尔·普京在俄罗斯索契通过视频链接主持经济问题会议。（Sputnik/Mikhail Metzel/Pool via REUTERS）
 
-[美国会两党赞扬外交抵制北京冬奥 呼吁国际社会加入](https://www.voachinese.com/a/us-congress-reax-biden-admin-diplomatic-boycott-beijing-olympics-20211207/6343912.html)
+在双方会谈中，拜登警告普京，如果俄罗斯入侵，西方将会对其实施 “强有力的经济和其他措施”，而普京则要求保证北约不会向东扩张。另外，俄罗斯否认其威胁了邻国，并表示相关动作是在回应乌克兰和北约的威胁性行动。
 
-* * *
+莫斯科对美国国务卿安东尼·布林肯上周提出的建议持开放态度，即由华盛顿推动关于冲突的谈判，乌克兰称自2014年以来已有超过14,000人丧生。
 
-*素材采编：北极*
+乌克兰外交部长德米特罗·库莱巴（Dmytro Kuleba）告诉路透社，拜登和普京的会谈达到了 “威慑和缓和 ”的目的。但他补充说，当务之急是制定一个威慑方案，以抵御莫斯科的任何进一步军事升级。
 
-*编辑：青衣青青*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月.png)
 
-*发布：Ranting*
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 

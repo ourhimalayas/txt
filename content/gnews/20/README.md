@@ -2,32 +2,41 @@
 ---
 
 
-## 英国宣布外交抵制北京冬奥会
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1733760/)
+## 朱莉·波内斯博士的新书：我的选择：反对新冠疫苗授权的道德案例
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1733836/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+作者：Rebel Wires
+翻译：Himasally
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/12/B-3.jpg)wordpress.ghanatalksradio.com
-英国首相称，英国将进行“事实上地”抵制冬奥会。
 
-路透社伦敦12月8日电 英国首相鲍里斯·约翰逊（Boris Johnson）周三（12月8日）对议会表示，由于没有部长或官员出席，英国将在外交上抵制在中共国举办的冬奥会。
 
-白宫12月6日宣布，美国政府官员将抵制即将在北京举行的冬奥会，理由是中共的人权“暴行”，尽管此举允许美国运动员前往参加比赛。
+这本书：朱莉·波内斯博士针对新冠疫苗强制执行的道德案例
 
-在两位不同的国会议员的压力下，约翰逊表示，如果英国也会这样做，那么“北京冬奥会将受到事实上的外交抵制，预计不会有部长出席，也不会有官员参加”。
+2021 年秋天，朱莉·波内斯博士 (Dr. Julie Ponesse) 拒绝遵守加拿大大学的新冠疫苗规定，使她 20 年的学术生涯分崩离析。
 
-他补充道：“我认为体育抵制是不明智的，但这仍然是政府的政策。”
+这是她对这场战斗及其后果的描述，充满了热情和智慧。但波内斯博士的故事超越了个人，审视了我们应对大流行病的伦理和哲学层面。
 
-（阅读权限原因，不能打开全文，也懒得看全文了，这些信息已经足够）
+如果有人在维护个人选择和自由的斗争中感到孤独，这本书就如何前进提供了一些非常人性化的建议，并明确表明您的声音值得被听到。
 
-看得出，这厮还是不想抵制，但是在大势所趋之下，不得已也得作出这样的决定，可见中共的渗透力量。
+来源：https://www.rebelnews.com/new\_book\_by\_dr\_julie\_ponesse\_my\_choice\_the\_ethical\_case\_against\_covid-19\_vaccine\_mandates
 
-此前澳大利亚也作出了抵制的决定，相信会有更多的国家宣布。中共，你完了！
+（文章仅代表作者个人观点）
 
-原文链接：
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-[https://www.reuters.com/lifestyle/sports/no-plans-uk-ministers-attend-china-winter-olympics-pm-johnson-2021-12-08/](https://www.reuters.com/lifestyle/sports/no-plans-uk-ministers-attend-china-winter-olympics-pm-johnson-2021-12-08/)
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)](https://www.gettr.com/user/7UPgogo)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
