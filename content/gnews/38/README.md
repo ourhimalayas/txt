@@ -2,42 +2,58 @@
 ---
 
 
-## 我们的中心化币将具备去中心化的外太空交易系统和技术
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1731559/)
+## G-Fashion + Mandelli: 天造地设的一对
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1731591/)
 
-**郭文贵先生：**我今天告诉大家，你等看到咱们新中国联邦出来的东西，我们会让你看到这个纯金的金币。这个金币最大额可能100万美元，从100美金到100万美元。也就是从青藤手里拿着个东西，它有绝对的加密技术，这个加密的什么程度？是百分之一万的给你承担责任，没有任何人可以破解的。
+撰稿：纽约香草山农场教育部 – Mr. Potato
 
-然后比如说，你给你这手拿着，交给了这个文疯而逃了，文疯拿着就逃了，是吧。怎么交给你呢？通过你的生理识别加技术识别，你就可以拿到这100万美元。100万美元你说我拿这个东西我想换现金，有专门的第三方H-Bank。H-Bank专门给你贴现，你要什么货币都给你。那我不要钱，我想提黄金。让你提到世界上最安全、最保障的，认可的黄金，你可以提走。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-这就是咱们这个未来的喜联储，绝对天下无敌啦。记住我今天说的话，你记住你七哥说的话，都会让你在突然间让你看到。这说的话都不是开玩笑的，我说你把它废了，这个技术的最重要是什么？就是电的能源，这你怎么解决电的问题？你怎么解决这个里面的金币有电的问题。和金币怎么来确认我的生理密码，从青藤的眼睛到了你的眼睛，甚至拿手指头，甚至未来可能扫屁股。人家扫眼睛，扫手指，咱们扫屁股。用屁股纹、手纹、眼睛纹，扫完却能到你那去。你拿着，你就可以到处提现。我们这叫什么？这叫太空币，完全是地球之外操作的，没有任何人，而且这就是合理、合法的。
 
-这种技术的核心，最重要就是那个芯片。这个芯片要被谁掌握了，那他就可以控制你。这个芯片IMB的2nm没有任何人可以掌握。而且这个芯片未来是跟我们的格芯一起生产。是吧？大家更懂了，是吧？
 
-从芯片的生产，到芯片的合成，到芯片的保密，到外太空的交易系统，地球人就没人能管得了。而且你想关键问题，数字货币最大的问题：支付、兑现、安全、保密，天下无敌。那些去中心化的币都去死了吧，没有任何人使用的。我们这叫中心化的币，和去中心化的交易系统，和去中心化的技术，天下无敌，这就是技术的核心的核心。
 
-字幕来源：[2021年12月5日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1725245/)
 
-视频制作：Cindy
+在古希腊和古罗马神话故事中，万神之神宙斯和象征着正义、智慧与法律的女神泰美斯有三个女儿，她们就是掌管人类命运的女神。三姐妹的名字分别是克洛托、拉刻西斯和阿特洛波斯。其中，克洛托负责将人类命运的丝线缠到纺锤上，拉刻西斯决定着丝线的长短，阿特洛波斯将会一刀剪断生命线，终结生命。由此，从公元前 8 世纪开始，手工纺织就象征着生命本身。![Image]()
 
-视频上传：Cindy；
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1642-1.jpg)图源网络
 
-G-News发布：黎明之前；
+不得不说，手工纺织象征着生命本身这个比喻真是再恰当不过了，因为对高品质衣饰的选择正是爱自己和爱生活的表现。由G-Fashion 的时装形象顾问郭文贵先生宣布的即将与意大利名牌 Mandelli的合作，是令人出乎意料的好消息，而这样简单的一个消息似乎都带来了惊天动地的效应。 G-Fashion 的创造概念是对上天的崇敬和正道主义，这一概念完美地呼应着Mandelli温柔对待自己和自然环境的设计理念。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+Enrico Mandelli先生在二十世纪初创立的这个坐落于米兰北部的工作坊，自之后的几十年来一直都是面料创新中的领军者。 Mandelli一直专注于天然纤维的使用和工业编织的创新，他们明白只有天然物质才具备体温调节功能。也正是因为天然自然，该品牌的衣物穿在身上才给人以无与伦比的舒适感和一种前所未有的宁静享受。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1642-2.jpg)图源网络
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+天然纤维分为两大类，一类是从种子、树叶或树皮中提取的植物纤维，另一类是动物纤维包括羊毛、羽毛或者丝绸类。最常见的天然面料是棉、麻、丝、羊毛、羊绒、柔麻和绸缎，人人皆知其天然、自然的优点，然而它们缺点却鲜为人知：天然纤维由于相对较重的分量，较弱的弹性，很难用多种颜色挑染，加之亦不具备非常好的透气性，故而无法直接转换成我们现在穿的衣物。 而Mandelli在拥有多种类型布料制作经验的基础上，不断改进和提升面料的生产技术，在打造出一个能体现生活中自由感的舒适休闲系列的同时，减少了对环境的污染。
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+Mandelli最初作为皮革供应商，其家族第二代的Paolo Mandelli先生于1925年推出男装和女装的运动系列及外衣系列，1964年，公司更名为Enrico Mandelli Spa来此纪念该公司的创始人。从那时起，Mandelli 就陆续与一些世界顶级设计师合作，比如改变意大利时尚的设计师Walter Albini、第一个制作成衣系列的米兰品牌Basile、法国高级时装设计师Emanuel Ungaro、幽默异类的Moschino 和代表着新一代意大利设计的Dolce & Gabana。
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1643-3.jpg)图源网络
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+两千年以来，命运的形象奇妙地与手工编制联系在一起。这是为什么呢？因为衣服所象征的、一个群体的认知和信仰，决定了人类的命运。 G-Fashion和 Mandelli 这次合作的系列传递着一个强烈的信息——爱自己和爱世界，可能会是一个终止世界第二大污染源“快时尚”的开始。美丽的衣服同时还可以拯救世界？太厉害了！
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月.png)
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 
