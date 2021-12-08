@@ -2,41 +2,35 @@
 ---
 
 
-## 躺平币的获得方法
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1732393/)
+## 辉瑞公司的新董事会成员是前Facebook董事
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1732434/)
 
-作者: 香草山农场-文特
+翻译：西班牙巴塞罗那喜悦农场-wenwu
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-367.png)图片来源: thenationalpulse.com
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-10.jpg)
-依照郭文贵先生在直播中对躺平币的解读，12月5日，爆料革命战友在盖特平台上总结了未来可以获得躺平币的三个渠道，即，将躺平币分别与GTV、GNews以及盖特平台挂钩。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1efc0e24461bd87d8f1dab33401eccf5_500x0.jpeg)图片来自盖特(GETTR)
-首先，下载GTV、GNews和盖特应用软件的用户即可获得躺平币；其后，根据用户在GTV平台上的直播时长与观看人数量级，或者是作者在GNews和盖特平台上发表的文章数量与质量，依照对应的阅读量与点赞数等级的划分，相关用户可获取不同级别的躺平币奖励；而对于GTV观看用户和GNews及盖特的读者而言，通过积极参与直播互动，或活跃地对文章进行点赞、转发、留言，再加上后台对用户观看时长的统计，这些用户也可得到相应数量的躺平币回馈。
+辉瑞公司的董事会成员Susan Desmond-Hellmann博士——曾在社交媒体巨头Facebook担任首席独立董事。Meta（Facebook）经常审查与中共病毒（COVID-19）疫苗有关的帖子，尤其是辉瑞公司[获得了各大企业的支持（存在利益冲突）。](https://thenationalpulse.com/news/conflict-reuters-chairman-is-pfizer-investor-and-board-member/)
 
-战友评论表示，G系列三个媒体平台的活跃度通过躺平币与全世界战友建立了更加紧密的互动联系，这样既可以提高平台的受众人数，又可将真相更多地传递给全球民众，并扩大爆料革命的影响力。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-369.png)图片来源: thenationalpulse.com
 
-**参考阅读**: [https://www.gettr.com/post/pis20v4c9c](https://www.gettr.com/post/pis20v4c9c)
+赫尔曼（Hellman）于2013年3月被[任命](https://about.fb.com/news/2019/10/desmond-hellmann-departs-board/)为 Meta 社交媒体平台的董事会成员，并在2015年6月至2019年10月30日期间担任其首席独立董事，即在武汉第一起报道 COVID-19 案件发生前不久时候。
 
+脸书创始人兼首席执行官马克·扎克伯格(Mark Zuckerberg)在回应她的离职时说：“六年来，赫尔曼一直是董事会中一个出色的、有思想的声音，我个人非常感谢她为这家公司所做的一切”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-3.png)
-总编: Ivy001
+“我仍然对 Meta 和赋予人们建立社区和使世界更紧密的力量的使命持积极态度。Meta 的股东需要一个充分参与并致力于解决脸书目前所面临的关键问题的董事会，”赫尔曼在提到她作为比尔和梅林达·盖茨基金会首席执行官的角色时解释说。
 
-编辑: Irene木木
+“不幸的是，来自我的首席执行官角色、我的大家庭和我自己的健康的要求越来越多，使我不再可能投入必要的时间和精力来适当地服务于 Meta 及其股东，”她在一份公开声明中补充说，尽管在[2020](https://www.pfizer.com/people/leadership/board-of-directors/susan_desmond-hellmann-md-mph)年加入了辉瑞公司董事会。
 
-校对/发稿: 卡夫卡的甲壳虫
+在赫尔曼担任辉瑞公司董事会成员期间，Meta 发起了审查 COVID-19 疫苗怀疑者（与政府观点不同）的[活动](https://nypost.com/2021/05/25/facebook-trying-to-censor-covid-19-vaccine-skeptics-report/)，正如 Meta 公司泄露的内部文件显示，其算法旨在“大幅减少用户暴露在对中共疫苗犹豫不决（VH）的想法中。”这份长达15页的文件—题为“疫苗犹豫不决评论降级”—将其目标概括为，减少这些评论的可见性是我们消除平台上用户可能遇到的疫苗接种障碍的另一个重要机会。
 
-**更多资讯，更多关注**
+潜在的另一个利益冲突是，赫尔曼还在乔·拜登总统的科技顾问委员会[任职](https://www.whitehouse.gov/pcast/members/sue-desmond-hellmann/)，该委员会被白宫[描述](https://www.whitehouse.gov/briefing-room/statements-releases/2021/09/22/president-biden-announces-members-of-presidents-council-of-advisors-on-science-and-technology/)为“负责向总统提出科学、技术和创新政策建议的唯一外部顾问机构。”
 
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+新闻来源：[thenationalpulse.com] [REVEALED: New Pfizer Board Member Is Ex-Facebook](https://thenationalpulse.com/exclusive/pfizer-board-member-is-former-facebook-director/)
 
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+* * *
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
-
+*发稿 : Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

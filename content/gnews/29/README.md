@@ -2,36 +2,23 @@
 ---
 
 
-## 中俄联军侵略：美防长奥斯汀说乌克兰、台湾可以自卫
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1732373/)
+## 秘翻在线：柳扶风称港人治港很失败 需要被中共管治
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1732433/)
 
-作者：东京樱花团｜捆绑CCP一千年
-![](https://lh3.googleusercontent.com/sNwpj3oRpcqvWExoCTPDQjT0P3OiywvEhR-evXeuBGzq86Z4msniHPQSn5DtCDTAeH_yUlErge7sPkefVhSAT3mHf8DZqTWKwniYvitmi41IOZ9yUxEthtO9vtI_vD1QOFRxtA_e)[*图片来源*](https://www.defense.gov/News/News-Stories/Article/Article/2864875/austin-discusses-china-russia-american-public-survey-on-military-at-defense-one/)
-**五角大楼当地时间7日，**[**奥斯汀表示**](https://www.defense.gov/News/News-Stories/Article/Article/2864875/austin-discusses-china-russia-american-public-survey-on-military-at-defense-one/)**，他的工作是保卫美国。但面对中俄两国对乌克兰和台湾可能的军事侵略，奥斯汀表示，“关于俄罗斯对乌克兰的侵略和中国对台湾的侵略，美国的战略目标都是在外交上发挥作用。”**
+**撰稿：葛大饼**
 
-奥斯汀补充道，“我们对尊重每个国家主权领土的基于规则的国际秩序非常感兴趣。”他说，“我们相信乌克兰有权捍卫和保护其主权领土，美国以材料和顾问支持乌克兰，因此它拥有自卫所需的一切。”
+**责编：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screenshot-2021-12-08-170456.jpg)
+根据2021年12月7日 今日头条发表柳扶风批评香港公务员的文章，感叹香港回归20多年，“港人治港”很失败。柳扶风是香港知名媒体人、时事评论员，现任香港中观研究所副所长。
 
-面对中共国对台湾的侵略，奥斯汀表示，“根据《台湾关系法》的概述，国防部将继续对台湾提供支持，以便台湾能够自卫。台湾也有两党的支持，国务卿说这很重要。”
+柳先生认为香港公务员体制和队伍有四大问题：1.政治问题，2.眼光眼界问题，3.故步自封能力问题4.官僚主义严重、懒政怠政。香港公务员体制来自英国文官制度，1997年前被吹得天花乱坠，然而遇到中共国的变化和内外环境的变化，香港公务员的内部运行和管理完全跟不上形势和大局的发展，柳先生强调香港未来方向铁定是融入国家发展大局、纳入国家治理体系，香港公务员的种种问题必须解决。
 
-- ***延展阅读：***[***拜登警告普京，如果俄罗斯的侵略继续下去，将会带来经济后果***](https://www.reuters.com/article/biden-putin-1207-tues-idCNKBS2IN025)
+柳先生作为香港资深媒体人完全颠倒黑白，1997年前的香港是世界的香港，被中共接管后，一个优等生当然适应不了土共的流氓黑社会体制，过去两年发生在香港街头的残暴行径被全世界有目共睹，柳先生作为中共的小打手竟然质疑英国文官制度，那就是在质疑西方民主法治自由的制度，柳先生一心拥护的是以黑治国，以警治国的中共国，希望您不要早日跟着土共跑进火葬场。
 
-
-奥斯汀强调，如果俄罗斯攻击乌克兰，这将是“一个非常糟糕的举动”。但这位部长说，“我们的综合威慑意味着以新的不同的方式将我们的现有军事能力联网。而综合威慑能力包括与美国盟友合作的能力。这意味着我们将在所有领域作战能力，包括网络和太空以及海底。”
-
-但这位国防部长称，我们综合威慑能力还包括“以外交为主导”的方式。他认为，“如果外交失败，无论出现什么问题，我们都将处于有利位置，能够取得胜利并果断取胜。”这也意味着奥斯汀在确保最坏情况出现后不放弃使用“国家力量”。
-![](https://lh3.googleusercontent.com/lWJPPFGIDV8WEcjdX_6OcJLO9InbETH1Cs9n2jt7ap2hJ1tpBDyEM0qawzx1ZwPr0w0mC0YLWP3k_TZ1GiTfpODutex0x-XiVDgcG4Jv3Q6B0QHQCfibsOfaMbzZ5ap6Bq_fEonZ)[*图片来源*](https://www.nytimes.com/2021/12/07/world/europe/listen-to-the-daily-why-does-american-military-assistance-to-ukraine-matter.html)
-奥斯汀援引国务卿的话说，国务卿相信有机会通过武力以外的方式解决分歧。“我们在边境地区看到了俄罗斯军队的数量，对此表达了数周的担忧。”乌克兰总统沃洛德米尔泽伦斯基说，“最近他担心有人试图破坏他的政府稳定。”奥斯汀说，“当你把所有信息加在一起分析，看起来很熟悉，就像 2014 年俄罗斯第一次入侵乌克兰时的重演。”
-
-- ***延展阅读：***[***奥斯汀接受福克斯采访称：乌克兰现在显然不属于北约，不受第5条款保护***](https://www.defense.gov/News/Transcripts/Transcript/Article/2862114/secretary-of-defense-lloyd-j-austin-iii-interview-with-bret-baier-fox-news-at-2/)
+**[新闻来源](https://www.toutiao.com/i7038765442072166949/?tt_from=copy_link&amp;utm_campaign=client_share&amp;timestamp=1638884039&amp;app=news_article&amp;utm_source=copy_link&amp;utm_medium=toutiao_ios&amp;use_new_style=1&amp;req_id=202112072133590101502202011A5D4E52&amp;share_token=C3ED73B4-5112-4506-9E92-4D732B750FBE&amp;group_id=7038765442072166949&amp;wid=1638947656605)**
 
 
-奥斯汀在继续谈到台湾时表示，“我们不希望看到现状发生变化，尤其是现状的单方面变化。”他强调台湾的所有紧张局势都应该首先通过外交途径解决，并且国防部还确保这个小国拥有自卫所需的东西，比如像对乌克兰的军事支持。但奥斯汀承认，“美国人对军队的信心有所下降，但他发誓要努力保持国家的信心。”
 
-2021年12月8日
-
-*校对：东京樱花团 / 東洋武士
-发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

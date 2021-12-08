@@ -2,45 +2,59 @@
 ---
 
 
-## Hcoin To the Moon 上线第6天位列7国iTunes摇滚音乐榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1732742/)
+## 重返大屠杀：欧盟希望废除纽伦堡法典，通过强制“疫苗接种”重建医学法西斯主义
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1732838/)
 
-12/08/2021 郭文贵先生的歌曲Hcoin To the Moon上线第6天位列7国iTunes摇滚音乐榜首
+2021 年 12 月 7 日，星期二
 
-* * *
+作者：Ethan Huff
 
-[【PDF 下载】Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+翻译：沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Authoritarianism-Autocracy-Despotism-Dictatorship-Fascism-Isolationism-Jingoism.jpg)图片来源：网络
+自然新闻：既然欧盟决定对欧洲人实施全面的医学法西斯主义，欧洲（可能还有世界其他地区）将迎来一个非常黑暗的冬天。
 
-* * *
+正如我们报道的那样，爬行动物欧盟委员会主席乌尔苏拉·冯德莱恩正在谈论在整个欧洲强制使用武汉冠状病毒（Covid-19）疫苗，有人称这是对 1940 年代医学法西斯主义的重建和纽伦堡法典的废除。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_2.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_3.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_4.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_6.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_8.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_11.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_12.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_13.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_14.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_15.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_16.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_17.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_18.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_19.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_20.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_21.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_22.jpg)
+顺便说一下，乌苏拉的丈夫海科是美国生物技术公司 Orgenesis 的董事，该公司恰好专门从事涉及“细胞和基因疗法”的医学研究。
 
+换句话说，乌苏拉和她的丈夫变得越来越富有，注射到人们身体里的注射液越多，必要时违背他们的意愿。 现在 Ursula 正计划大规模扩张她的银行账户，并提议对整个欧洲进行强制性刺激。
 
-[【PDF 下载】Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+“先生。  Heiko von der Leyen 组织了科学实验，然后他的妻子 Ursula 提倡为欧盟内的所有公民强制接种疫苗； 以及取消禁止性的纽伦堡法典，”保守派树屋的圣丹斯报道。
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+“这将是科幻电影中扭曲和病态的情节； 然而，这是非常真实的。”
 
+假的“Omicron”变种被用来为“covid”带来最终解决方案
+
+一些欧洲国家已经在采用乌苏拉的计划，包括奥地利、希腊、德国和立陶宛。 其他人肯定会在未来几天加入。
+
+奥地利人必须在 2022 年 2 月之前遵守那里的强制性注射计划，而希腊已经每个月对未接种疫苗的居民进行罚款，因为他们仍然不遵守规定。
+
+在德国，宣布在全国范围内对未接种疫苗的人进行封锁，领导人补充说，很快就会有强制接种政策，限制未接种疫苗的德国人参与社交。
+
+如果一切按计划进行，德国人到 2022 年 3 月能完全接种疫苗，否则人们在德国社会中将不再有立足之地。
+
+“这些欧洲领导人疯了，”圣丹斯说。  “现在是俄罗斯入侵乌克兰的最佳时机，让美国人民告诉我们的民选官员这不关我们的事。”
+
+“如果回到欧洲人民可以接受法西斯政府法令的时代，那就让他们战斗或倒下——我们有自己的斧头柄、焦油和羽毛要携带。”
+
+最新一轮疯狂开始所需要的只是引入了虚构的“Omicron”（变位形式的 Moronic）变体，该变体将在黑色星期五由主流媒体宣布，就在欺诈性股票市场发生重大变化的同一天 翻滚。
+
+所有这一切都在圣经中预言，只是为了清楚。  The Conservative Treehouse 的一位评论者指出，马太福音 24:2-51 是概述所有即将到来和即将过去的参考资料。
+
+对于寻求逃脱的信徒，我们可以参考路加福音 21:36 和启示录 3:10 等经文来提醒我们有福的希望。
+
+“饥饿是一种战争罪行，”保守派树屋的另一位评论者写道，关于未接种疫苗的人不再能够购买食物的前景。  “他们可能想重新考虑他们的杂货店法令。 这是不合情理的，绝不能忍受。”
+
+另一位写道：“我查看了 Orgenesis ……公开交易的股票——股价为 2.92 元/股——今年迄今为止下跌了 35% 以上，并且没有任何时期显示它是盈利的，”另一位写道。  “我想妻子可以帮助扭转这种局面。”
+
+另一个人写道：“他们（tptb）应该直接跳到最终版本的变体并称之为 Zyklon-B。”
+
+来源链接：[https://www.afinalwarning.com/576624.html](https://www.afinalwarning.com/576624.html)
+
+编辑/发布：LILY
+
+20211208
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

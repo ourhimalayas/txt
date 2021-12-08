@@ -2,94 +2,36 @@
 ---
 
 
-## 视频| 共产党的流氓手段无处不在
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1732050/)
+## 比特币监管问题凸显，喜币是数字货币的未来
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1732072/)
 
-## 摘自2021.12.5郭先生大直播
+作者：银河勇气星 – 骄子
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+12月1日，美国证券交易所委员会，即美国SEC，驳回了总部位于纽约的Wisdom Tree公司申请的关于成立现货比特币交易基金的请求。
 
-制作：香草山视频部
+SEC指出，Wisdom Tree的比特币交易基金缺乏“监视共享协议”，未履行《外汇法》中关于“防止欺诈和操纵行为”以及“保护投资者和公共利益”的要求。这是SEC对现货比特币交易基金的第二次拒绝。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture2-6.jpg)
+针对数字货币的监管问题。12月3日，郭先生在直播中指出，数字货币，尤其是比特币，因不受任何部门的监管，可能一夜之间消失，或者是在受到严格的监管一段时间后逐渐消失。
 
+在诸多因素作用下，近日比特币大跌，24小时跌幅超过17%。这反应了投资者对比特币交易市场欺诈和操纵的担忧与日俱增。
 
+另一方面，刚刚上市的喜币备受市场欢迎。喜币将责任中心化，用稳定币和数字币的设计，不仅接受各国法律的监管，并且在未来的市场中只寻求合作，不企图一家独大，是数字货币的未来。
 
-比如说恒大涉及了中共
-整个9万亿的这个外债
-美国人的投资这一块
-这个数额这是准确的
-所谓他说是3000个亿
-这是扯淡的啊 绝对不止那么简单
-光恒大集团在欧洲在荷兰在挪威
-这样的小国家比利时就这些国家
-所有的所谓相互担保所借的钱那是巨大的
-这是没办法计算在那儿
-你看这个同时许家印他的儿子
-在加州所谓处理自己的房子
-和许家印处理自己的私人飞机
-自己的画全家被抓了
-你愿意看到你家人被杀吗 没有吧
-去 把你海外的房子都卖了 把钱弄过来
-这就是他的目的共产党
-你看了吗他要把一个灾难
-变成了他的武器了
-这就是流氓共产党
-这个世界上看到恒大地产的时候
-你再看融创
-融创和恒大互相自己买
-这是很可怕的
-融创的票据跟恒大
-恒大卖汽车和融创买 互相炒
-恒大玩儿的这一段时间是
-共产党的蹂躏西方绑架西方
-经济超限战 货币超限战的一个缩影
-融创之重点
-融创比他厉害的多
-像富力，融创，合生创展，绿城，万达
-万达卖掉那个美国MC那个影院的时候
-那钱跑哪儿去了
-中央公园1600多套的房子
-卖了1000多套那钱去哪儿
-有一家钱能回到自己家腰包
-都是回到共产党腰包去了
-但是在UBS瑞士银行
-PS拿到中国的所有的第一个
-外国银行牌照就是因为
-卖掉七哥家族的海通股票
-黑掉了七哥的几百亿的钱
-但是UBS的所有存的黑钱
-我们掌握的情报几乎一分没动
-绝对是过万亿美元
-那些黑钱一个分都没动
-说明啥 共产党就是杀富治贫
-对在党内还真没动刀子
-连江家连王家还有什么姚依林家
-过去老常委家什么张高丽家钱都没动
-这海外这几万亿他绝对没动
-但动这些人是干嘛呢
-就让这些人的钱
-跟西方这些人连着呢
-共产党玩他就用它来搞美国经济一模一样
-我就让你美国人看着
-我用这些小三们搞你的经济
-不还你的钱我虐死你
-共产党这种流氓手段用到无处不在
+参考链接：[比特币监管问题凸显，喜币是数字货币的未来](https://forkast.news/headlines/sec-denies-wisdomtree-spot-bitcoin-etf/)
 
+[![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)](https://forkast.news/headlines/sec-denies-wisdomtree-spot-bitcoin-etf/)
 
-
-发稿：雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/M12.jpg)
+总编：木白
+编辑：木白
+校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
