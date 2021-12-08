@@ -2,23 +2,35 @@
 ---
 
 
-## 秘翻在线：柳扶风称港人治港很失败 需要被中共管治
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1732433/)
+## 辉瑞公司的新董事会成员是前Facebook董事
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1732434/)
 
-**撰稿：葛大饼**
+翻译：西班牙巴塞罗那喜悦农场-wenwu
 
-**责编：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screenshot-2021-12-08-170456.jpg)
-根据2021年12月7日 今日头条发表柳扶风批评香港公务员的文章，感叹香港回归20多年，“港人治港”很失败。柳扶风是香港知名媒体人、时事评论员，现任香港中观研究所副所长。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-367.png)图片来源: thenationalpulse.com
 
-柳先生认为香港公务员体制和队伍有四大问题：1.政治问题，2.眼光眼界问题，3.故步自封能力问题4.官僚主义严重、懒政怠政。香港公务员体制来自英国文官制度，1997年前被吹得天花乱坠，然而遇到中共国的变化和内外环境的变化，香港公务员的内部运行和管理完全跟不上形势和大局的发展，柳先生强调香港未来方向铁定是融入国家发展大局、纳入国家治理体系，香港公务员的种种问题必须解决。
+辉瑞公司的董事会成员Susan Desmond-Hellmann博士——曾在社交媒体巨头Facebook担任首席独立董事。Meta（Facebook）经常审查与中共病毒（COVID-19）疫苗有关的帖子，尤其是辉瑞公司[获得了各大企业的支持（存在利益冲突）。](https://thenationalpulse.com/news/conflict-reuters-chairman-is-pfizer-investor-and-board-member/)
 
-柳先生作为香港资深媒体人完全颠倒黑白，1997年前的香港是世界的香港，被中共接管后，一个优等生当然适应不了土共的流氓黑社会体制，过去两年发生在香港街头的残暴行径被全世界有目共睹，柳先生作为中共的小打手竟然质疑英国文官制度，那就是在质疑西方民主法治自由的制度，柳先生一心拥护的是以黑治国，以警治国的中共国，希望您不要早日跟着土共跑进火葬场。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-369.png)图片来源: thenationalpulse.com
 
-**[新闻来源](https://www.toutiao.com/i7038765442072166949/?tt_from=copy_link&amp;utm_campaign=client_share&amp;timestamp=1638884039&amp;app=news_article&amp;utm_source=copy_link&amp;utm_medium=toutiao_ios&amp;use_new_style=1&amp;req_id=202112072133590101502202011A5D4E52&amp;share_token=C3ED73B4-5112-4506-9E92-4D732B750FBE&amp;group_id=7038765442072166949&amp;wid=1638947656605)**
+赫尔曼（Hellman）于2013年3月被[任命](https://about.fb.com/news/2019/10/desmond-hellmann-departs-board/)为 Meta 社交媒体平台的董事会成员，并在2015年6月至2019年10月30日期间担任其首席独立董事，即在武汉第一起报道 COVID-19 案件发生前不久时候。
 
+脸书创始人兼首席执行官马克·扎克伯格(Mark Zuckerberg)在回应她的离职时说：“六年来，赫尔曼一直是董事会中一个出色的、有思想的声音，我个人非常感谢她为这家公司所做的一切”。
 
+“我仍然对 Meta 和赋予人们建立社区和使世界更紧密的力量的使命持积极态度。Meta 的股东需要一个充分参与并致力于解决脸书目前所面临的关键问题的董事会，”赫尔曼在提到她作为比尔和梅林达·盖茨基金会首席执行官的角色时解释说。
 
+“不幸的是，来自我的首席执行官角色、我的大家庭和我自己的健康的要求越来越多，使我不再可能投入必要的时间和精力来适当地服务于 Meta 及其股东，”她在一份公开声明中补充说，尽管在[2020](https://www.pfizer.com/people/leadership/board-of-directors/susan_desmond-hellmann-md-mph)年加入了辉瑞公司董事会。
+
+在赫尔曼担任辉瑞公司董事会成员期间，Meta 发起了审查 COVID-19 疫苗怀疑者（与政府观点不同）的[活动](https://nypost.com/2021/05/25/facebook-trying-to-censor-covid-19-vaccine-skeptics-report/)，正如 Meta 公司泄露的内部文件显示，其算法旨在“大幅减少用户暴露在对中共疫苗犹豫不决（VH）的想法中。”这份长达15页的文件—题为“疫苗犹豫不决评论降级”—将其目标概括为，减少这些评论的可见性是我们消除平台上用户可能遇到的疫苗接种障碍的另一个重要机会。
+
+潜在的另一个利益冲突是，赫尔曼还在乔·拜登总统的科技顾问委员会[任职](https://www.whitehouse.gov/pcast/members/sue-desmond-hellmann/)，该委员会被白宫[描述](https://www.whitehouse.gov/briefing-room/statements-releases/2021/09/22/president-biden-announces-members-of-presidents-council-of-advisors-on-science-and-technology/)为“负责向总统提出科学、技术和创新政策建议的唯一外部顾问机构。”
+
+新闻来源：[thenationalpulse.com] [REVEALED: New Pfizer Board Member Is Ex-Facebook](https://thenationalpulse.com/exclusive/pfizer-board-member-is-former-facebook-director/)
+
+* * *
+
+*发稿 : Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

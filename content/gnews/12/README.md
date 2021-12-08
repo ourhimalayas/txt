@@ -2,54 +2,66 @@
 ---
 
 
-## COVID-19是当局“制造”的恐惧大流行
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1732894/)
+## 汉密尔顿律师与迈克·亚当斯谈论违宪的疫苗规定
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1732905/)
 
-编译： Jenny Ball
+**翻译： Jenny Ball**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip39.png)图片来源：newstarget.com
+肯塔基州律师迈克·汉密尔顿与健康游侠迈克·亚当斯一起在“健康报告”中讨论了[违宪的疫苗规定](https://www.brighteon.com/924d0d75-8280-44c1-b17a-7b1fdfa31e52)。他在12 月 2 日布莱顿（[*Brighteon.TV*](https://brighteon.tv/) ）的节目中说，**反对这些命令的斗争，包括法律和精神两个方面。**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/risch-700x420-1.png)耶鲁大学公共卫生学院流行病学教授哈维·里施( Harvey Risch )博士, 2021 年 11 月 14 日出席在康涅狄格州哈特福德布朗斯通研究所成立大会。（Zhen Wang/大纪元）
+汉密尔顿告诉亚当斯，他积极参与涉及捍卫美国人的健康自由免受专制授权的诉讼。 肯塔基州律师与俄亥俄州律师，和 Brighteon.TV 主持人汤姆·伦茨（Tom Renz）一起担任这些诉讼的联合律师。“我能够与汤姆在其中一些事情上合作，”汉密尔顿说。
 
-耶鲁大学流行病学家哈维·里施博士表示，COVID-19 大流行一直是一种恐惧，是由处于权威地位的人，在去年该病毒开始在全球传播时制造的。
+其中一个案例涉及美国前线医生 (AFLDS)，该组织正在起诉卫生部长泽维尔·贝塞拉 (Xavier Becerra)。[2021 年 7 月](https://renz-law.com/wp-content/uploads/M-for-PI-file-stamped.pdf)，在美国阿拉巴马州北区地方法院提起的诉讼，将秘书和卫生与公众服务部 (HHS) 列为被告。
 
-在大纪元电视台的“美国思想领袖”节目中，耶鲁大学公共卫生学院和耶鲁大学医学院流行病学与公共卫生系的流行病学教授里施认为，总的来说，整个中共病毒的特点一直是“恐惧的程度和人们对恐惧的反应”。
+AFLDS 和其他原告提起的诉讼，请求禁止紧急批准的 (COVID-19) 疫苗用于三类人群：
 
-“总的来说，我想说的是，我们经历了一场大流行的恐惧。恐惧几乎影响了每个人，而感染影响的相对较少，”里施说。
+－ 18 岁以下的美国人
 
-“总的来说，**这是一种非常有选择的流行病，并且是可以预测的**。年轻人与老年人，健康人与慢性病患者之间的区别非常明显。所以，我们很快就知道谁有大流行的风险，谁没有。
+－ 从 COVID-19 中康复的人
 
-“然而，恐惧是为每个人制造的。这就是整个大流行的特征，是恐惧程度和人们对恐惧的反应。”
+－ 以及那些希望在知情同意下拒绝接种疫苗的人
 
-里施撰写了 300 多篇经过同行评审的原创出版物，并且曾是美国流行病学杂志的编辑委员会成员。
+（相关：医生和家长起诉 HHS 阻止批准针对青少年的冠状病毒疫苗[Doctors and parents sue HHS to block approval of coronavirus vaccines for teens](https://www.naturalnews.com/2021-09-12-doctors-parents-sue-hhs-approval-teen-vaccines.html)。）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/unknown-9.png)图片来自原文
+“我们打击了行政命令（EOs），其他一些州也受到了一些关注。行政令是行政部门的立法举措，因此违宪。当然，**强制使用 [COVID-19 疫苗] 违反了身体完整性——这是受宪法保护的一项基本自由**，”汉密尔顿说。
 
-这位流行病学教授表示，**在**** 2020 ****年**** 3 ****月大流行爆发期间担任名义上的权威职位的个人，**对最初传播的病毒“可怕性质”的描述，比所应有的要糟糕得多。
+“**这是拜登**[试图通过立法行动绕过宪法](https://joebiden.news/)，以便他可以侵犯人民的宪法自由，并允许这些罪犯伤害人民。”
 
-这包括这样一种信息，**即每个人都处于危险之中，任何人都可能因感染该病毒而死亡，每个人都需要呆在家里保护自己，从而保护社会**。
+**汉密尔顿还将目光投向了疫苗制造商**。“我们一直在跟踪疫苗制造商。[我们] 知道它们不是疫苗，并且，我们在 [其中一个] [投诉] 中谈到了错误标记。**错误标记是一种刑事犯罪，**”他说。
 
-“人们非常害怕这个信息，因为任何人都会……政府，当局，科学家，科学人员，公共卫生机构中的权威医疗人员，去年从大约 2 月，3 月开始，所有人都在说同样的信息。 因此，我们都相信这一点，”他说。
+“我们认为辉瑞、莫德纳和强生参与了错误标记…… [和] 掺假。他们称这些他们所没有的东西为“疫苗”。**他们在[疫苗]中加入了有害的东西。**”
 
-在大流行的前两个月，实施了严格的封锁和口罩规定，以遏制 COVID-19 在美国和全球的传播。里施说，**当局发布的各种信息导致广泛的焦虑水平升高**。
+**抗击疫苗也涵盖精神之战**
 
-“我们所有的焦虑水平都提高了，我们都做出了在不同程度上减少与他人接触的决定，有些人比其他人更多，但我认为，每个人都有一定程度的焦虑，这确实影响了他们那个时候的工作和生活。”他说。
+“真正的问题——在我看来也是第一个问题——是[身体完整性的权利](https://healthfreedom.news/)。**你有权拥有自己的身体，你可以决定注入身体里的内容**。如果你看看最高法院已经确认的案例——他们[一方面]说身体完整性非常重要，你可以处决一个还在子宫里的孩子。但另一方面，我们可以在未经您知情同意的情况下，对您进行实验性基因治疗，这毫无意义。 这毫无意义，”汉密尔顿说。
 
-与此同时，乔·拜登总统表示，在国家“恢复正常”之前，需要 96% 至 98% 的美国人接种 COVID-19 疫苗，**这推动未接种疫苗的美国人应为减缓国家经济复苏负责的言论。**
+**他告诉亚当斯，政府对疫苗有经济利益。**
 
-根据美国CDC的数据，截至 12 月 4 日，只有 70% 以上的美国成年人完全接种了该病毒的疫苗，而 23.9% 的成年人接受了加强剂量。
+“CDC拥有经济利益，NIH，福奇——**他们在这一切方面都拥有深厚的经济利益，**从 莫德纳的股票到版税。他们有专利，所以他们都在赚钱。 [但是] 我不认为这是他们唯一关心的事情。**我相信他们的议程远不止他们能赚多少钱**，”汉密尔顿说。（相关内容： [NIH 拥有莫德纳疫苗的一半股份](https://www.naturalnews.com/2020-07-10-nih-owns-half-of-moderna-vaccine.html))
 
-此链接可观看对耶鲁大学流行病学家里施博士的[完整采访](https://www.theepochtimes.com/dr-harvey-risch-hydroxychloroquine-ivermectin-and-other-therapeutics-highly-effective-in-early-covid-treatment_4131804.html)。
+“法律战是打这场战争的一种方式，[但]它最终不是一场法律战争。 我会说我们正在进行一场属灵的争战。”
 
-**评论：爆料革命灭共者文贵先生一再告诫人们：中共病毒旨在疫苗！恐惧是让人们乖乖就范的最有效手段！**
+健康守护员说：“我认为，我们从未见过只能被描述为串通一气的机构——大科技、大媒体、大政府、大制药公司——针对所有这一切的法律努力， 他们共同误导人们进行欺诈，从而造成极大的伤害。”
 
-参考资料：[theepochtimes][COVID-19 a Pandemic of Fear ‘Manufactured’ by Authorities: Yale Epidemiologist](https://www.theepochtimes.com/mkt_morningbrief/covid-19-a-pandemic-of-fear-manufactured-by-authorities-yale-epidemiologist_4106244.html?utm_source=Morningbrief&amp;utm_medium=email&amp;utm_campaign=mb-2021-12-06&amp;mktids=66665d50c01c691b90e3c21ab9f25ce0&amp;est=OGXNZdbUPjeKdHEppkT9kOahNAq5oQqBEdRig1MIZGidWYQ9HFtWqpUH2MS6jPEYec3F%2Fw%3D%3D)
+汉密尔顿同意。“这没有问题。我的意思是，我们要面对拥有大量资源的人、有长期计划的人，以及长期执行此计划的人，”他说。
+
+尽管如此，肯塔基州的律师仍然保持乐观。“不久前我和一个人谈过，他说：‘伙计，你这里的对手比上帝有钱。’我说：‘实际上，我[从中]感到心安的一件事是，他们没有。他们拥有大量资源，但他们的钱并不比上帝多。’”
+
+“**一旦上帝决定干预，没有人能与上帝的力量相比，**”亚当斯表示同意。
+
+素材链接：[the full Dec. 2 episode](https://www.brighteon.com/924d0d75-8280-44c1-b17a-7b1fdfa31e52)[*Brighteon.TV*](https://brighteon.tv/).
+
+**新闻链接**：[newstarget.com][Attorney Mike Hamilton talks about unconstitutional vaccine mandates with Mike Adams – Brighteon.TV](https://www.newstarget.com/2021-12-06-mike-hamilton-talks-about-unconstitutional-vaccine-mandates.html)
 
 * * *
 
-*审核：文乐
+***审核：文乐
 校对：阿伯塔
-发布：信心的选择*
+发布：信心满满***
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH..jpeg)
+
+
 
  
 

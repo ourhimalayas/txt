@@ -2,30 +2,24 @@
 ---
 
 
-## 拜登准备疏散计划以应对俄罗斯入侵乌克兰
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1732864/)
+## 秘翻在线：从2022年1月15日起 未接种疫苗的NBA球员不得进入加拿大
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1732875/)
 
-**翻译：Lulumi**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip38.png)图片来源：**hannity.com**
-一份新的报告为拜登政府在俄罗斯入侵乌克兰时的应对措施做了更多说明，报告称，白宫正在起草在武装冲突爆发时将美国公民从该地区撤离的计划。
+#### 翻译撰稿：zzballack
 
-据《国会山报》报道：“拜登政府正在考虑，如果俄罗斯的入侵引发乌克兰的安全问题，如何将美国公民从该国撤离。”
+![](https://assets.gnews.org/wp-content/uploads/2021/12/NBA-1024456asd465f4f5s15ad6x574.jpg)
 
-该媒体补充说：“一位熟悉情况的人士说，努兰德指出，美国在如何阻止俄罗斯完全攻击乌克兰方面的选择有限；但是，她也讨论了拜登政府在发生入侵时可能对莫斯科实施的严厉制裁。现在这个时候，政府认为没有必要疏散美国人。”
+据《布雷特巴特新闻网》（Breitbart News）12月7日报道，加拿大政府颁布法令说，从2022年1月15日开始，未接种新冠疫苗的NBA球员将不能进入该国，也不允许参加客场对阵多伦多猛龙队的比赛。
 
-拜登总统和俄罗斯总统弗拉基米尔·普京周二举行了2个小时的线上峰会，当时克里姆林宫继续在与乌克兰的边境地区集结军队。
+NBA记者沙姆·查拉尼亚 (Shams Charania)12月7日发推说，加拿大卫生官员表示，从2022年1月15日起，只有完全接种新冠疫苗的球员才能在猛龙队的主场比赛。猛龙队球员也被要求完全接种疫苗，否则将面临罚款和停赛。NBA也在今天通知球队，如果一名球员无法出示完全接种新冠疫苗的证明，将错过与猛龙队的比赛，并可能面临罚款、停赛或其他处罚。NBA声称，联盟中95%的人现在已经完全接种了疫苗。
 
-**新闻来源**：[**hannity.com**][REPORT: Biden Admin Planning ‘Evacuation Options’ for US Citizens if Russia Invades Ukraine](https://hannity.com/media-room/report-biden-admin-planning-evacuation-options-for-us-citizens-if-russia-invades-ukraine/)
+加拿大官方的这一最新公告并不令人惊讶。加拿大公共安全部长马科·曼迪西诺 (Marco Mendicino) 曾在11月宣布，将在2022年对外国游客实施强制性疫苗要求，对专业和业余运动员将不再有豁免。
 
-* * *
+事实上，加拿大已经基本取消了之前对游客的所有疫苗豁免。进入加拿大与家人团聚的人、18岁以上的国际学生、必要的工作人员、以及大多数临时外国工人和基本服务提供者的豁免权也被取消。所有这些人现在都必须完全接种疫苗，否则将被禁止入境。
 
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
+曾亲口说出“大重启（Great Reset）”的特鲁多治下的加拿大发生这事一点也不让人奇怪，希望人们团结起来，早日终结疫苗暴政。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH..jpeg)
-
-
+新闻来源：[**Canada Bans Unvaccinated NBA Players Starting on January 15**](https://www.breitbart.com/sports/2021/12/07/canada-bans-unvaccinated-nba-players-starting-on-january-15/)
 
  
 
