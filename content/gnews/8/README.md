@@ -2,39 +2,36 @@
 ---
 
 
-## 乌云罩顶 北京冬奥出师未捷名先坏
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1733214/)
+## 安大略省“奥米克戎”大爆发凸显疫苗的苍白无用
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1733241/)
 
-撰稿：东京樱花团/Ob
-![](https://assets.gnews.org/wp-content/uploads/2021/12/5-6.png)
-距离开幕不到2个月的时间，美国6日正式宣布外交抵制北京冬奥会。近日媒体盘点了与北京冬奥会相关的几件热点事件。
+**撰稿：路仁**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/unnamed-11.jpg)图片来源：网络图片
+最近在安大略省西南部的一个医疗辖区米德塞斯-伦敦卫生辖区，爆发了一个40人的群体感染。根据该辖区[最新发布](https://www.facebook.com/middlesex.london.health.unit/)（12月7日星期二）的消息，根据基因检测其中两位病人样品，确信属于“奥米克戎”变种感染。该辖区卫生官员推断，这个40人的感染群体极大可能是“奥米克戎”变种病毒感染，而与这个感染群体密切接触的高达171人，而随着时间的推移，这个数字还在增加。
 
-● 彭帅
+根据[米德塞斯-伦敦卫生辖区官方资料](http://communityhealthstats.healthunit.com/chapter/geography-and-demographics)，这个辖区总计人口约45.5万人左右（2016统计数据），由此可以推断，“奥米克戎”变种病毒在该区甚至整个安省大爆发，几乎难以避免。
 
-曾是女子网球双打世界排名第一的彭帅，11月在社交媒体发文，指控中共前国务院副总理张高丽对她性侵，引起国际社会严重关注。 现年35岁的彭帅随后神隐近3个星期，先前的贴文也迅速消失。
+这个感染的群体均可以追溯到11月底从尼日利亚回来的两个人，根据[环球新闻报道](https://globalnews.ca/news/8431848/covid-19-first-omicron-variant-case-london-ont/)，这两人均为完全疫苗接种者，并在下飞机后做了检测。而所有的感染的这个群体中，改辖区执行卫生管萨摩斯医生（Dr. Alex Summers）并没有指出这个40人感染群体疫苗的接种情况，只是说”许多人“已经完全接种了疫苗。
 
-● 新疆
+目前卫生部发现的这些确诊病例已经涉及到到多所学校、儿童看护中心。近期在伦敦南部一间教堂爆发的疫情也与这个确诊人群有关。卫生部仍在调查接触人员中，感染病例很可能还会增加。
 
-数百万100万名维吾尔人与其他突厥语系、以穆斯林为主的少数民族，被关押在中国新疆的拘留营，并被中共强迫劳动、政治思想灌输、以及适时酷刑和强迫绝育等情况。美国政府更将中共定义为种族灭绝和反人类罪。
+不出人意料的是，该区卫生官萨摩斯医生给出的办法依旧是：“接种疫苗，戴好口罩，确保口罩合适你，并在整个假日季节减少社交活动”
 
-● 西藏、香港
+尽管安大略省的疫苗覆盖率逐渐上升，但整个安大略省近期感染人数并没有随着疫苗增长而下降，加之“奥克米戎”变种病毒的出现，本周二省政府也宣布，整个省原本已经暂停的重新开放的时间表将无限期延长。
 
-长期以来，中共在西藏进行宗教镇压，同时大规模剥夺人权。2019年以来中共对香港实施武力镇压也让国际社会相当担忧。
+根据[加拿大官方文件](https://www.canada.ca/en/public-services-procurement/services/procuring-vaccines-covid19.html)，极左的小土豆政府，在疫情初期就为加拿大人购买了4.09亿支疫苗，平均每个加拿大人每人够打11针。尽管在变种病毒面前，所谓的“疫苗”显得苍白无力，但与中共一直不清不白的小土豆，与世界邪恶势力相勾结，强制推行疫苗护照，积极推行5-12儿童接种毒疫苗，通过官方禁止羟氯喹，伊维菌素等有效的预防和初期治疗药物，打压讲真话的医生。相信随着毒疫苗危害逐渐显现，随着真相的逐渐浮现，小土豆及其极左政府必将受到人民和法律的追究。
+![](https://lh4.googleusercontent.com/LX7Hc2txJX_6Trft82BzH7CiQ9nR3NBxVyV0T0M-_XhtI4HBxpig-3nVJ2xIPEJzoFv5jU2CTQTiIPBeMQHg2Xqf_3vgUWXNbRfJteFI8BqXfrWGKFdVsFYc5J5Mvvpojnbgf-JcTIX1nmqXw6U)
+参考链接：
 
-● 中共病毒
+[米德塞斯-伦敦卫生辖区官方资料](http://communityhealthstats.healthunit.com/chapter/geography-and-demographics)
 
-中共病毒肆虐全球，原定去年登场的东京夏季奥运被迫延至今年7月举行，如今北京冬奥也垄罩疫情阴影。
+[环球新闻报道](https://globalnews.ca/news/8431848/covid-19-first-omicron-variant-case-london-ont/)
 
-共匪之贪，天下无敌，坏事做尽，还要保留好名声，极尽狡辩否认之能事，还要自我标榜成民主的典范。只可惜人在做，天在看，虽自认“人定胜天”，但是中共毕竟不是天。作恶是有代价的，现在只是开始。全世界人的怒火必将射向共匪这条恶龙，将共匪钉死在耻辱柱上。
+[加拿大官方文件](https://www.canada.ca/en/public-services-procurement/services/procuring-vaccines-covid19.html)
 
-信息来源：
+* * *
 
-[从彭帅到新疆 4个争议让北京冬奥蒙上阴影](https://m.secretchina.com/news/gb/2021/12/08/991737.html)
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
-
+编辑、校对 ctt
 
  
 

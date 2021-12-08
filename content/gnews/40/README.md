@@ -2,35 +2,36 @@
 ---
 
 
-## 美国国会公布国防法案 涉及对俄罗斯和中共国的遏制
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1732327/)
+## 中俄联军侵略：美防长奥斯汀说乌克兰、台湾可以自卫
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1732373/)
 
-#### 翻译：肯塔基钢蛋儿
+作者：东京樱花团｜捆绑CCP一千年
+![](https://lh3.googleusercontent.com/sNwpj3oRpcqvWExoCTPDQjT0P3OiywvEhR-evXeuBGzq86Z4msniHPQSn5DtCDTAeH_yUlErge7sPkefVhSAT3mHf8DZqTWKwniYvitmi41IOZ9yUxEthtO9vtI_vD1QOFRxtA_e)[*图片来源*](https://www.defense.gov/News/News-Stories/Article/Article/2864875/austin-discusses-china-russia-american-public-survey-on-military-at-defense-one/)
+**五角大楼当地时间7日，**[**奥斯汀表示**](https://www.defense.gov/News/News-Stories/Article/Article/2864875/austin-discusses-china-russia-american-public-survey-on-military-at-defense-one/)**，他的工作是保卫美国。但面对中俄两国对乌克兰和台湾可能的军事侵略，奥斯汀表示，“关于俄罗斯对乌克兰的侵略和中国对台湾的侵略，美国的战略目标都是在外交上发挥作用。”**
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/v_jhm4Wx-2.png)图片来源：House Armed Services Democrats‘ twitter
-据路透社（Reuters）12月08日报道，在美国总统乔·拜登(Joe Biden)和俄罗斯总统弗拉基米尔·普京（Vladimir Vladimirovich Putin）就乌克兰和其他争端进行两个小时的虚拟会谈后不久，周二，美国国会公布了国防授权法案的折中方案，该方案涉及了对俄罗斯和中共的遏制，并提议向乌克兰提供3亿美元的军事援助。此外，该法案还发表声明支持台湾的国家防御。
+奥斯汀补充道，“我们对尊重每个国家主权领土的基于规则的国际秩序非常感兴趣。”他说，“我们相信乌克兰有权捍卫和保护其主权领土，美国以材料和顾问支持乌克兰，因此它拥有自卫所需的一切。”
 
-但是，该方案没有包括一些曾在国会获得强烈支持的条款，例如针对俄罗斯北溪2号(Nord Stream 2，将俄罗斯天然气直接输送到德国)天然气管道项目实施强制性制裁，以及一项首次要求女性应征入伍的计划。
+面对中共国对台湾的侵略，奥斯汀表示，“根据《台湾关系法》的概述，国防部将继续对台湾提供支持，以便台湾能够自卫。台湾也有两党的支持，国务卿说这很重要。”
 
-2022财政年度国防授权法案(National Defense Authorization Act，简称NDAA)批准了7700亿美元的军费开支，比总统乔·拜登的国防预算要求增加了250亿美元，比去年的预算高出约5%。
+- ***延展阅读：***[***拜登警告普京，如果俄罗斯的侵略继续下去，将会带来经济后果***](https://www.reuters.com/article/biden-putin-1207-tues-idCNKBS2IN025)
 
-该法案是众议院、参议院两党激烈谈判的结果，除了应对地缘政治威胁的战略外，还包括为军队增加 2.7% 的工资，以及采购更多的飞机和海军舰艇。
 
-NDAA通常在获得两党多数支持的情况下获得通过，众议院周二晚些时候以363票对70票通过了这一折衷方案。
+奥斯汀强调，如果俄罗斯攻击乌克兰，这将是“一个非常糟糕的举动”。但这位部长说，“我们的综合威慑意味着以新的不同的方式将我们的现有军事能力联网。而综合威慑能力包括与美国盟友合作的能力。这意味着我们将在所有领域作战能力，包括网络和太空以及海底。”
 
-由于该法案涉及面广，而且它是每年成为法律的为数不多的主要法案之一，因此受到业界和其他利益集团的密切关注。
+但这位国防部长称，我们综合威慑能力还包括“以外交为主导”的方式。他认为，“如果外交失败，无论出现什么问题，我们都将处于有利位置，能够取得胜利并果断取胜。”这也意味着奥斯汀在确保最坏情况出现后不放弃使用“国家力量”。
+![](https://lh3.googleusercontent.com/lWJPPFGIDV8WEcjdX_6OcJLO9InbETH1Cs9n2jt7ap2hJ1tpBDyEM0qawzx1ZwPr0w0mC0YLWP3k_TZ1GiTfpODutex0x-XiVDgcG4Jv3Q6B0QHQCfibsOfaMbzZ5ap6Bq_fEonZ)[*图片来源*](https://www.nytimes.com/2021/12/07/world/europe/listen-to-the-daily-why-does-american-military-assistance-to-ukraine-matter.html)
+奥斯汀援引国务卿的话说，国务卿相信有机会通过武力以外的方式解决分歧。“我们在边境地区看到了俄罗斯军队的数量，对此表达了数周的担忧。”乌克兰总统沃洛德米尔泽伦斯基说，“最近他担心有人试图破坏他的政府稳定。”奥斯汀说，“当你把所有信息加在一起分析，看起来很熟悉，就像 2014 年俄罗斯第一次入侵乌克兰时的重演。”
 
-该法案包括用于乌克兰安全援助计划的3亿美元，该计划为乌克兰武装部队提供支持;用于欧洲防务计划的40亿美元;以及用于波罗的海安全合作的1.5亿美元。
+- ***延展阅读：***[***奥斯汀接受福克斯采访称：乌克兰现在显然不属于北约，不受第5条款保护***](https://www.defense.gov/News/Transcripts/Transcript/Article/2862114/secretary-of-defense-lloyd-j-austin-iii-interview-with-bret-baier-fox-news-at-2/)
 
-议员们还删除了一项禁止美国人购买俄罗斯主权债务的修正案。
 
-拜登的民主党同僚控制着众议院和参议院。白宫表示，如果俄罗斯入侵乌克兰，它支持制裁，但不支持可能威胁跨大西洋关系的条款。
+奥斯汀在继续谈到台湾时表示，“我们不希望看到现状发生变化，尤其是现状的单方面变化。”他强调台湾的所有紧张局势都应该首先通过外交途径解决，并且国防部还确保这个小国拥有自卫所需的东西，比如像对乌克兰的军事支持。但奥斯汀承认，“美国人对军队的信心有所下降，但他发誓要努力保持国家的信心。”
 
-在遏制中共方面，该法案包括为太平洋威慑倡议(Pacific Deterrence Initiative)提供71亿美元，并发表国会支持台湾防御的声明，以及禁止国防部从中共国新疆地区采购强迫劳动生产的产品。
+2021年12月8日
 
-新闻来源：[U.S. Congress includes $300 million for Ukraine, addresses China in massive defense bill](https://www.reuters.com/world/us/us-congress-includes-300-million-ukraine-addresses-china-massive-defense-bill-2021-12-07/)
-
+*校对：东京樱花团 / 東洋武士
+发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

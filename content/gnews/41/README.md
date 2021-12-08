@@ -2,32 +2,35 @@
 ---
 
 
-## 滴滴美股退市致多个对冲基金损失惨重
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1732312/)
+## 美国国会公布国防法案 涉及对俄罗斯和中共国的遏制
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1732327/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-364.png)[图片来源](https://gnews.org/wp-admin/post-new.php#imgrc=fqFwIoQcX6rUNM)
-路透12月8日报，文件显示，自中国网约车公司滴滴宣布计划退出纽约证券交易所以来，滴滴全球[(DIDI.N)](https://www.reuters.com/companies/DIDI.N)股价暴跌后，几家对冲基金可能因押注滴滴全球[(DIDI.N)](https://www.reuters.com/companies/DIDI.N)而受挫。滴滴的股价较6月30日的IPO价格下跌了56.8%。在该公司周五表示计划从纽约证券交易所退市并寻求在香港上市后，股价加速下滑，屈服于对其在美国首次亮相感到愤怒的中共监管机构。
+#### 翻译：肯塔基钢蛋儿
 
-根据行业追踪公司Symmetric编制的美国13F文件，截至9月底，对冲基金投资了9440万股滴滴，较上一季度减少1320万股。自那时以来，对冲基金是否进一步减少了投资尚不得而知，但路透社的计算显示，滴滴股价在9月底至12月7日期间下跌7.9%，将从这些头寸中抹去总计6090万美元的价值。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/v_jhm4Wx-2.png)图片来源：House Armed Services Democrats‘ twitter
+据路透社（Reuters）12月08日报道，在美国总统乔·拜登(Joe Biden)和俄罗斯总统弗拉基米尔·普京（Vladimir Vladimirovich Putin）就乌克兰和其他争端进行两个小时的虚拟会谈后不久，周二，美国国会公布了国防授权法案的折中方案，该方案涉及了对俄罗斯和中共的遏制，并提议向乌克兰提供3亿美元的军事援助。此外，该法案还发表声明支持台湾的国家防御。
 
-截至9月底，该公司27%的价值由被Symmetric归类为对冲基金的经理所拥有的机构投资者持有。Symmetric指出，对冲基金持股比例高的股票在压力时期可能容易被这些基金清算。文件显示，在第三季度购买股票的对冲基金中，桥水基金购买了近900万股。
+但是，该方案没有包括一些曾在国会获得强烈支持的条款，例如针对俄罗斯北溪2号(Nord Stream 2，将俄罗斯天然气直接输送到德国)天然气管道项目实施强制性制裁，以及一项首次要求女性应征入伍的计划。
 
-文件显示，PenserraCapital购买了滴滴的540万股，而OwlCreekAssetManagement购买了170万股和七八资本537,145股。他们显示，保尔森公司在第三季度末增持了160万股，而七八资本购买了537,145股。
+2022财政年度国防授权法案(National Defense Authorization Act，简称NDAA)批准了7700亿美元的军费开支，比总统乔·拜登的国防预算要求增加了250亿美元，比去年的预算高出约5%。
 
-老虎环球管理和亿万富翁乔治索罗斯的基金在第三季度末也持有滴滴的大量股份，截至9月底合计持有470万股。
+该法案是众议院、参议院两党激烈谈判的结果，除了应对地缘政治威胁的战略外，还包括为军队增加 2.7% 的工资，以及采购更多的飞机和海军舰艇。
 
-截至9月30日，新加坡国有基金淡马锡减持滴滴360万股，但仍持有2940万股。
+NDAA通常在获得两党多数支持的情况下获得通过，众议院周二晚些时候以363票对70票通过了这一折衷方案。
 
-目前尚不清楚这些公司是否仍在投资，但一家美国大型对冲基金的高管表示，该基金在滴滴持有少量头寸并于近期退出之后。“还有一个问题是，散户甚至一些共同基金可能无法轻松拥有香港上市股票，将被迫出售，因此压力会更大，”该高管表示。
+由于该法案涉及面广，而且它是每年成为法律的为数不多的主要法案之一，因此受到业界和其他利益集团的密切关注。
 
-持有滴滴股份的公共养老金计划包括加拿大养老金计划（CPP）、位于蒙特利尔的CaissededépôtetplacementduQuébec和加州公共雇员退休系统（CalPERS）。
+该法案包括用于乌克兰安全援助计划的3亿美元，该计划为乌克兰武装部队提供支持;用于欧洲防务计划的40亿美元;以及用于波罗的海安全合作的1.5亿美元。
 
-消息来源：[一些对冲基金可能因押注中国滴滴全球而损失数百万美元](https://www.reuters.com/markets/europe/some-hedge-funds-may-have-lost-millions-bets-chinas-didi-global-2021-12-08/)
+议员们还删除了一项禁止美国人购买俄罗斯主权债务的修正案。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
+拜登的民主党同僚控制着众议院和参议院。白宫表示，如果俄罗斯入侵乌克兰，它支持制裁，但不支持可能威胁跨大西洋关系的条款。
+
+在遏制中共方面，该法案包括为太平洋威慑倡议(Pacific Deterrence Initiative)提供71亿美元，并发表国会支持台湾防御的声明，以及禁止国防部从中共国新疆地区采购强迫劳动生产的产品。
+
+新闻来源：[U.S. Congress includes $300 million for Ukraine, addresses China in massive defense bill](https://www.reuters.com/world/us/us-congress-includes-300-million-ukraine-addresses-china-massive-defense-bill-2021-12-07/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
