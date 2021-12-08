@@ -2,29 +2,26 @@
 ---
 
 
-## 七哥谈回报
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1731292/)
+## 马斯克：出生率降低会导致文明崩溃
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1731299/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+撰稿：西枫westca
 
-一句话，我任何一个机构直接说给你一个股份，最起码他得给我10倍的回报，谦虚地说，我要再多也得给我。我找赵长鹏这孙子，我说：“我给你，现在你给我拿20亿美元”，他马上给我，是吧？他得叫我爹，他得叫我郭爷，是不是，它就这么简单的事。为啥？这是给战友的，这东西只能战友拥有，这为什么我坚决的要求战友要有合资格的基金进来，而且战友要有两个董事会，因为战友要有两个。原来的管理团队人家还占20%的股权呢，人家有两个，然后咱们51%的机构投资者有三个，这就是三四五六七，咱们加在一起，就是说咱们战友们加在一起咱得有五票。所以说这是给战友东西，包括博彩是一样的道理，博彩一定是这结局。咱们也是七个董事，咱们战友两个，原来机构投资者三个，这样的话，可能是五个，博彩可能是五个董事了。那么它是一样的道理，也可以去抵押嘛。最重要的战友们，你这个喜币。
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/12/unnamed-9.jpg)图片来源：法新社
+据《今日美国》12月7日报道，埃隆·马斯克在《华尔街日报》周一举办的年底首席执行官委员会上表示，世界上如果没有足够多的人，可能会威胁到人类文明。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+马斯克在回答关于特斯拉机器人如何解决世界上一些劳工问题时说， “我认为文明面临的最大风险之一是低出生率和出生率迅速下降”，“然而，很多人，包括聪明人，认为世界上有太多的人，人口正在失控。事实恰恰相反。请查看数据，如果人们没有更多的孩子，文明就会崩溃。 ”
 
-**关注我们**
+这不是马斯克第一次对人口下降表示担忧。早在2017年，他在回应“新科学家”杂志的一篇文章时表示：“世界人口正在加速走向崩溃，但似乎很少有人注意或关心到这个问题。”  2019年，他与马云在上海世界人工智能大会互动时说，“如果人口增长状况仍然停滞不前或下降，世界将在未来几十年见证人口崩溃。”  今年7月他又发推称，“人口崩溃可能是未来文明面临的最大风险。“
 
-Discord 账号
+根据CDC的数据，2020年美国出生率下降了4%，创历史新低；印度的总生育率也降至到2%；而人口大国——中国，2020年的出生率降至1%以下，这是过去43年来的最低水准。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+马斯克在采访中还补充到，虽然他认为人口增长是理想的，但人们的寿命却是另一回事。他说，“我认为对我们来说，死亡很重要，因为多数时候，人们不会改变主意，如果他们永远活着，那么我们可能会成为一个非常僵化的社会，新思想无法成功。 ”
 
-Gettr 账号
+郭文贵先生在近几个月的大直播中，针对全球大部分国家的疫苗接种率超50%，一再强调未接种疫苗的新中国联邦人优良的精子和卵子，将会给未来社会带来不可估量的财富，是人类赖以存续的根源。同时，郭先生构思创立的G系列生态圈已具雏形，新中国联邦人在郭先生的引领下，一定会为人类文明史添上重彩。
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+**新闻来源：**[Elon Musk sees falling birthrate, population collapse as global threat (usatoday.com)](https://www.usatoday.com/story/money/business/2021/12/07/elon-musk-declining-birthrate-threatens-human-civilization/6414749001/)
 
  
 

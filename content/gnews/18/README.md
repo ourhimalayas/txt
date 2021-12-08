@@ -2,60 +2,112 @@
 ---
 
 
-## 在外交抵制北京奥运会之际，美众议院将对《维吾尔法案》进行投票
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1731183/)
+## 世界真正的较量就是中美俄
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1731190/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/120706-1.jpg)图片：@The Hill
-**摘要翻译：**
+[https://gtv.org/video/id=61af5c0a87fa7e74c92cbd1e](https://gtv.org/video/id=61af5c0a87fa7e74c92cbd1e)
 
-预计美国众议院本周将就禁止从中国新疆地区进口某些商品，并制裁涉及侵犯人权的官员的立法进行表决，中共政府被指控将维吾尔穆斯林关押在强制集中营。
+**郭文贵**
+**Miles Guo**
 
-继拜登政府宣布美国明年不会派任何政府官员前往北京参加奥运会后，议长南希•佩洛西(Nancy Pelosi) 在周一的声明中表示，将在本周对该法案进行投票。
+日本的表态，什么都不是，完全是咋呼，最后就是一定在中共
+Japan’s statement is nothing, it’s bluffing, and in the end it must be at the CCP
 
-佩洛西说：“作为一个团结的国际社会，我们有机会和责任追究中共当局的责任，并为该地区和世界各地的人类尊严和自由挺身而出。”
+如果说跟它做交易，一定会，它一定会出卖台湾利益的
+If it is said to have a deal with Japan, Japan will definitely betray Taiwan’s inter-ests
 
-这项名为《防止强迫维吾尔劳动法》的法案将禁止进口在中共国新疆地区生产的商品，除非海关和边境保护局确定这些商品不是强迫劳动生产的。该措施还将授权制裁为新疆维吾尔人和其他穆斯林少数民族强迫劳动提供便利的实体和个人。
+而且美国人弄得（怂恿）日本人上，日本人是一定要谈条件的
+And if the U.S. encourages Japan to fight with the Chinese Communist Party, Ja-pan is definitely going to negotiate a deal
 
-白宫周一在宣布不派任何外交或官方代表参加北京冬奥会时，引用了中国 “在新疆正在进行的种族灭绝和反人类罪行”。白宫新闻秘书珍•普萨基（Jen Psaki）表示，美国运动员仍然得到拜登政府的支持，但官员们不能“像往常一样”对待奥运会。
+你让我上是吧，让我加入联合国，一切军事正规化
+If Japan fight with CCP, then let Japan join the UN as a permanent member and allow Japan to regularize its military
 
-佩洛西在她的声明中呼应道：“虽然我们必须支持和庆祝我们的运动员，但美国—以及全世界―不能给予这些比赛我们的官方认可；也不能在一个实施种族灭绝和大规模侵犯人权的国家举办奥运会，好像没有错一样。”。
+允许我发展核武器，一定是这结局，是吧
+and allowing Japan to develop nuclear weapons, it must be the conclusion, right?
 
-在参议院上周努力推进年度国防政策法案之后，将就打击针对维吾尔人侵犯人权的法案进行投票，部分原因是参议员马克•卢比奥（佛罗里达州共和党人）要求对其禁止从新疆进口的修正案进行投票。
+就是日本现在，就是澳大利亚是一个德性的
+Now Japan and Australia are the same behavior
 
-众议院和参议院军事委员会的最高领导人预计最快将于周一公布一项妥协的国防法案，以此来结束参议院对共和党修正案的僵局。但是，对解决侵犯维吾尔人人权问题的独立法案进行表决，仍将使立法者有机会讨论这一问题，而不会陷入年度国防政策立法的困境。
+日本、澳大利亚它俩你给它再加一百倍的胆，他也不敢去干的对付中共去
+Japan and Australia, even you add a hundred times more courage to them, they don’t dare to confront with the CCP
 
-投票也将在立法者今年采取其他行动对中共政府施加外交压力之后进行。
+千万别被自己忽悠了，咱别一看到好事儿咱就上
+don’t fool yourself, let’s not have wishful thinking
 
-早在4月，众议院就通过了一项两党决议，正式谴责中共政府和香港地区政府“侵犯该地区公民的权利和自由”的行为，并呼吁释放根据一项对抗议者实施严厉惩罚的《国家安全法》而被捕的民主活动家和政治家。
+所有这个世界决定就是中、美、俄，他们都是凑伙儿的
+All the world’s decisions maker are China, the United States, and Russia, and others are bench player
 
-中共国外交部发言人赵立坚上周否认强迫劳动在新疆普遍存在，并称该法案是政治上破坏该地区的幌子。据《彭博社》报道，他说：“该法案纯粹是政治操纵，意图以人权为借口破坏新疆的稳定和发展。”
+台湾人也别在乎这事儿，关于共产党放核潜艇
+Taiwanese don’t need care about this, about the Communist Party’s release of nuclear submarines
 
-**简评：**
+刚才娜娜酱做的PPT这点事对了，核潜艇用得着打台湾吗，是吧
+The PPT that Nana-jiang made just now is right, it isn’t necessary for nuclear submarines to attack Taiwan, right?
 
-如爆料革命和新中国联邦的战友认知：外交抵制没什么影响，不许运动员参加才是真抵制。但以习近平的性格来说：都不来也没关系，咱关起门来拉上穷兄弟也要办北京冬奥会，只不过提高了穷兄弟的出场费而已！
+核潜艇就是澳大利亚给日本人给美国人说的
+The nuclear submarine is muscle showing to Australia, Japanese and Americans
 
-很明显，美国已经将矛头指向了中共国，正如拜登政府举办的民主峰会不邀请中共国一样。因为中共国在新疆的对维吾尔穆斯林进行的种族灭绝，是中共抹不去的罪恶。这次其他民主国家也会跟随美国步伐，通过外交抵制北京冬奥会。这也将掀起世界各国关注新疆及中国各地人权状况，虽然没有达到真正抵制的目的，但也让中共国恶心了一把。
+小子，你敢弄弄啊，是吧，你看我给你亮亮招是吧
+Hi, do you dare to do it, right? Look at me I will show you some tricks, right?
 
+中共想表现这个，美国人说那我也有招啊，是不是，你看看
+The CCP wants to show this, the Americans say that I have a trick too, right? Take a look at this
 
+美国人干啥，美国我也准备，我整个经济上要制裁
+What do Americans do, the United States is also prepared to impose sanctions on the entire economy
 
-新闻链接：[House to vote on Uyghur bill amid diplomatic boycott of Beijing Olympics](https://thehill.com/homenews/house/584538-house-to-vote-on-uyghur-bill-amid-diplomatic-boycott-of-beijing-olympics)
+就美国人三件事都不敢干，第一件美国人对付中共就非常简单
+The Americans dare not do three things，the first thing that Americans confront with the CCP is very simple
 
-*翻译/简评：Brianchow*
+我把你SWIFT给你停了，我不让你使用美元，还没等它说出来呢
+that is American stopped CCP using SWIFT, and I don’t let you use the US dollars, American haven’t said it yet
 
-*校对：感恩*
+因为美国通胀啊，美元又不值钱的，经济不行啊，是不是
+because of inflation in the United States, the US dollar is worthless, and the economy is not good, right?
 
-* * *
+它是叫股票政治啊，人家习近平出招了，我干掉所有的数字货币
+It’s called stock politics, Xi Jinping made a move, Xi wants to kill all the digital currency
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+我要取消这个SWIFT, 你别停我，我先停你的，
+American: I want to cancel this SWIFT, CCP: Are you? I’ll stop you first
 
+我要求所有的贸易商包括美国微软，包括IBM全要使用我的数字货币
+CCP requires all traders, including Microsoft, including IBM, to use my digital currency
 
-编辑：【英国伦敦喜庄园编辑部】
+就是把你美国对我提前对伊朗人、被朝鲜人要做的，我先做了
+It’s just to do what the U.S. treats Iranians and North Koreans ahead of time. CCP did it first.
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+你知道习近平要宣布一个决定，你要知道是什么概念吗
+Do you know that Xi Jinping is going to announce a decision, do you know what is the concept?
 
+就在过去十二个月，中共最怕的美国要停止它所有使用美元
+In the past twelve months, the CCP fears most that America will stop them using the US dollars
 
+今天已经变成一个翻过来了，美国华尔街、美联储、美国财政部怕什么
+it has been flipped today, what are the fears of the Wall Street, the Federal Re-serve, and the U.S. Treasury Department?
+
+怕共产党停止使用美元
+They are afraid the Communist Party will stop using the U.S. dollar
+
+**原视频链接**[:](https://gettr.com/post/piv4srebf4)[https://gettr.com/post/piv4srebf4](https://gettr.com/post/piv4srebf4)
+
+Date:12/06/2021
+原视频标题: 世界真正的较量就是中 美 俄
+The real contest in the world is between China, the United States, and Russia
+原视频日期：2021/12/05
+原视频链接https://gettr.com/post/piv4srebf4
+任务编号：KC316（3128）
+视频时间段 : 0:00-2:28
+
+中听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

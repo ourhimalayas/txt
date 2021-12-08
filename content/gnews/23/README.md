@@ -2,40 +2,29 @@
 ---
 
 
-## 法官判拜登对联邦承包商的疫苗强制令违宪
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1731103/)
+## 七哥谈AI技术
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1731142/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+文编：Hima
+听写：叮叮
+视频：七哥
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/12/t.jpg)
-《门道专家》12月7日发表文章，题目是“川普任命的法官阻止了全国范围内的拜登对联邦承包商的疫苗强制令”。【1】
+去中心化的交易系统和去中心化的技术天下无敌，这就是技术的核心的核心。那么你刚才看到这个电池的时候，这种电池的诞生，就是这种，未来所有的汽车都是用区块链技术，所有的电池都是区块链技术。如果电池不用区块链，这电池就会成为炸弹，汽车就会成为炸弹。无人驾驶汽车的时代不可能到来，它会成为武器。那么接下来就是AI，AI这个技术大家记住啊，人类控制不好，那绝对人类就灭了。但控制好了，绝对就像，就像娜娜酱跟她爷爷说话一样。你马上就变成你爷爷那个级别，就他完全听不懂咋回事了。就像娜娜酱给她讲社交媒体，你奶奶听不懂，你妈妈听不懂一样。就AI很快地到来，AI用在我们这些电池上，技术上，它是个相互的关系。没有电池，没有加密技术，没有这样的芯片，你没有AI。有了AI，未来就是AI一搜什么东西，郭文贵哪天讲什么话，分析到万分之一秒，亿分之一秒，啪，就给你出来。然后5G，AI，这就是咱们整个新中国联邦的大版图之一，那才是我们的城邦，那才是我们的未来！谢谢文疯而逃。
 
-全文如下：
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-周二（12月7日），一名联邦法官驳回了乔·拜登对联邦承包商的疫苗强制令。
+**关注我们**
 
-川普任命的美国佐治亚州南区法院法官斯坦·贝克（Stan Baker）对拜登的疫苗强制令发布了初步禁令。
+Discord 账号
 
-南卡罗来纳州总检察长艾伦·威尔逊（Alan Wilson）、南卡罗来纳州州长亨利·麦克马斯特（Henry McMaster）以及其他共和党总检察长提起的诉讼认为，拜登的疫苗强制令违反了第十修正案。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-该诉讼还称，拜登的疫苗强制令是违宪的，因为只有国会才能制定规则。
+Gettr 账号
 
-佐治亚州、阿拉巴马州、爱达荷州、堪萨斯州、犹他州和西弗吉尼亚州的总检察长们也加入了诉讼。
-
-“拜登政府滥用权力的行为再次受到冷遇，法治已占上风，自由得到保护，当总统越权时，法律有助于阻止他滥用权力。” 南卡罗来纳州总检察长艾伦·威尔逊说。
-
-上周，川普任命的一位法官阻止了拜登对医疗工作者的疫苗强制令。
-
-（原文完）
-
-第五巡回法院已经判决阻止了拜登疫苗强制令中对100人以上私企的强制令部分【2】，此次判决进一步证明“法治已占上风，自由得到保护，当总统越权时，法律有助于阻止他滥用权力”。期待疫苗集团彻底崩盘的日子。
-
-有关链接：
-
-【1】[https://www.thegatewaypundit.com/2021/12/breaking-trump-appointed-judge-blocks-bidens-vaccine-mandate-federal-contractors-nationwide/](https://www.thegatewaypundit.com/2021/12/breaking-trump-appointed-judge-blocks-bidens-vaccine-mandate-federal-contractors-nationwide/)
-
-【2】[https://gnews.org/zh-hans/1644969/](https://gnews.org/zh-hans/1644969/)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
