@@ -2,23 +2,27 @@
 ---
 
 
-## 香草山农场发布儿童新冠防治方案详解
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1732071/)
+## 比特币监管问题凸显，喜币是数字货币的未来
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1732072/)
 
-作者：东京樱花团 – 在远方
+作者：银河勇气星 – 骄子
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-12月7日，新中国联邦纽约香草山农场医疗部，在Gettr发布了最新的新冠防治方案详解。最重要的是，该方案包含了根据体重确定服用药量的儿童防治方案。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture1-11.jpg)
-该方案由香草山农场医疗部的Eglise医生和战友们，根据郭文贵先生爆料，参照多种方案翻译，并综合世界各地战友的提问后，以简明易懂的方式列出，包括几种不同的预防和治疗方法。
+12月1日，美国证券交易所委员会，即美国SEC，驳回了总部位于纽约的Wisdom Tree公司申请的关于成立现货比特币交易基金的请求。
 
-在当前全世界政府和主流媒体都极力掩饰中共病毒真相和治疗方法时，香草山医疗部发布的该防治方案，为在黑暗和恐惧种挣扎的人们带来了一丝希望和曙光。该医疗部声明，该详解仅供参考。如遇不适，请咨询当地医生。如果患者错误使用药物或者剂量，Gettr和香草山农场医疗部均不承担法律责任。
+SEC指出，Wisdom Tree的比特币交易基金缺乏“监视共享协议”，未履行《外汇法》中关于“防止欺诈和操纵行为”以及“保护投资者和公共利益”的要求。这是SEC对现货比特币交易基金的第二次拒绝。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture2-6.jpg)
+针对数字货币的监管问题。12月3日，郭先生在直播中指出，数字货币，尤其是比特币，因不受任何部门的监管，可能一夜之间消失，或者是在受到严格的监管一段时间后逐渐消失。
 
-参考链接：[香草山农场发布儿童新冠防治方案详解](https://gettr.com/post/peunhudb98)
+在诸多因素作用下，近日比特币大跌，24小时跌幅超过17%。这反应了投资者对比特币交易市场欺诈和操纵的担忧与日俱增。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+另一方面，刚刚上市的喜币备受市场欢迎。喜币将责任中心化，用稳定币和数字币的设计，不仅接受各国法律的监管，并且在未来的市场中只寻求合作，不企图一家独大，是数字货币的未来。
+
+参考链接：[比特币监管问题凸显，喜币是数字货币的未来](https://forkast.news/headlines/sec-denies-wisdomtree-spot-bitcoin-etf/)
+
+[![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)](https://forkast.news/headlines/sec-denies-wisdomtree-spot-bitcoin-etf/)
 
 总编：木白
-编辑：飞虹
+编辑：木白
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**

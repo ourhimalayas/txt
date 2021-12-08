@@ -2,46 +2,22 @@
 ---
 
 
-## 澳大利亚正在考虑创建自己的加密货币
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1732416/)
+## 秘翻在线：柳扶风称港人治港很失败 需要被中共管治
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1732433/)
 
-**【雅典娜快讯】，紧贴时代脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2021.12.8-7.jpg)图片来源：The Australian
-翻译：月映万川
+**撰稿：葛大饼**
 
-编辑：文泓
+**责编：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screenshot-2021-12-08-170456.jpg)
+根据2021年12月7日 今日头条发表柳扶风批评香港公务员的文章，感叹香港回归20多年，“港人治港”很失败。柳扶风是香港知名媒体人、时事评论员，现任香港中观研究所副所长。
 
-12月8日，据《先驱太阳报》报道，作为落后的支付系统全面升级现代化改革的一部分，澳大利亚将考虑创建自己的加密货币。
+柳先生认为香港公务员体制和队伍有四大问题：1.政治问题，2.眼光眼界问题，3.故步自封能力问题4.官僚主义严重、懒政怠政。香港公务员体制来自英国文官制度，1997年前被吹得天花乱坠，然而遇到中共国的变化和内外环境的变化，香港公务员的内部运行和管理完全跟不上形势和大局的发展，柳先生强调香港未来方向铁定是融入国家发展大局、纳入国家治理体系，香港公务员的种种问题必须解决。
 
-澳大利亚财长乔什·弗莱登伯格将会在本周三推出他的一系列金融改革计划。该计划会针对明年澳大利亚人是否能够使用政府背书的数字货币进行购物与储蓄给出相应的展望。
+柳先生作为香港资深媒体人完全颠倒黑白，1997年前的香港是世界的香港，被中共接管后，一个优等生当然适应不了土共的流氓黑社会体制，过去两年发生在香港街头的残暴行径被全世界有目共睹，柳先生作为中共的小打手竟然质疑英国文官制度，那就是在质疑西方民主法治自由的制度，柳先生一心拥护的是以黑治国，以警治国的中共国，希望您不要早日跟着土共跑进火葬场。
 
-财长也承诺，针对于市场上的加密货币交易者，政府会出台相应的准入资格机制来确保客户的安全，以及为在这一高风险市场上活跃的商家提供稳定性。同时，新的法律规则也会被引入加密货币领域，以确保税务问题得到解决。
+**[新闻来源](https://www.toutiao.com/i7038765442072166949/?tt_from=copy_link&amp;utm_campaign=client_share&amp;timestamp=1638884039&amp;app=news_article&amp;utm_source=copy_link&amp;utm_medium=toutiao_ios&amp;use_new_style=1&amp;req_id=202112072133590101502202011A5D4E52&amp;share_token=C3ED73B4-5112-4506-9E92-4D732B750FBE&amp;group_id=7038765442072166949&amp;wid=1638947656605)**
 
-根据澳大利亚税务办公室的数据，有多于819,000的澳大利亚人在过去三年里，曾经购买或者销售过数字货币。对比2020年与2021年，这一数字暴增了63%。
 
-在这一重要讲话中，弗莱登伯格先生将会推出澳大利亚近25年历史上最为重要的一次国家支付系统改革计划。
-
-他将说：**“如果我们不改革目前的框架，将由（美国）硅谷来决定我们支付系统的未来。澳大利亚必须保留对我们支付系统的主权。”**
-
-同时，联邦政府将对“先买后付”模式（Afterpay）和由技术巨头（苹果和谷歌）提供的数字钱包服务进行相关监管咨询与调查。这些将会以隐形费用为切入点，继而为这些领域引入更多的竞争。
-
-澳大利亚中央银行目前对此话题并未作出过多反应。虽然，央行支付政策部门主管托尼·理查德上月说，考虑到澳大利亚人可能已经在享受“安全，便捷，和低成本”的网上支付服务，**央行目前不认为出台相关政策是迫切需要的。**
-
-但是他认为，央行正在加大力度对数字货币领域进行研究。伴随着加密货币的兴起，央行认识到，这种创新可能“对维护国家货币的信心很重要”。
-
-在明年年中之前澳洲制定一个支付系统的战略计划将会是这一切的开始。进而财长也会启动立法引入新的权力，使他能更直接的对未来规则中的漏洞进行干预。
-
-消息人士透露，澳洲本周倒闭的一个颇具影响的加密货币交易平台，凸显了这一新兴行业里构建相应规则的必要性。而这些规则可以包括网络安全标准，或者最低资本要求准入制。
-
-原文链接： [Bold plan to create Aussie cryptocurrency](https://www.heraldsun.com.au/subscribe/news/1/?sourceCode=HSWEB_WRE170_a&amp;dest=https%3A%2F%2Fwww.heraldsun.com.au%2Fbusiness%2Fvictoria-business%2Faustralia-to-consider-creating-its-own-cryptocurrency%2Fnews-story%2F06bc2544cb023a92f02967d9c793b253&amp;memtype=anonymous&amp;mode=premium&amp;v21=dynamic-hot-control-score&amp;V21spcbehaviour=append)
-
-发布：去中心化Math
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

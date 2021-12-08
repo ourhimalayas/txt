@@ -2,43 +2,32 @@
 ---
 
 
-## 有声|文贵先生最新爆料：关于新中国联邦人的三大利好消息
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1732070/)
+## 香草山农场发布儿童新冠防治方案详解
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1732071/)
 
-配音：香草山香港部 – 文凯琳
+作者：东京樱花团 – 在远方
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+12月7日，新中国联邦纽约香草山农场医疗部，在Gettr发布了最新的新冠防治方案详解。最重要的是，该方案包含了根据体重确定服用药量的儿童防治方案。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture1-11.jpg)
+该方案由香草山农场医疗部的Eglise医生和战友们，根据郭文贵先生爆料，参照多种方案翻译，并综合世界各地战友的提问后，以简明易懂的方式列出，包括几种不同的预防和治疗方法。
 
+在当前全世界政府和主流媒体都极力掩饰中共病毒真相和治疗方法时，香草山医疗部发布的该防治方案，为在黑暗和恐惧种挣扎的人们带来了一丝希望和曙光。该医疗部声明，该详解仅供参考。如遇不适，请咨询当地医生。如果患者错误使用药物或者剂量，Gettr和香草山农场医疗部均不承担法律责任。
 
+参考链接：[香草山农场发布儿童新冠防治方案详解](https://gettr.com/post/peunhudb98)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-
-
-12月1日，文贵先生在最新的大直播节目中公布了未来有关新中国联邦人的三大利好消息。这三个消息都在未来保障新中国联邦人的人身与财富安全方面起到了关键性的作用，具有着里程碑式的意义。
-
-第一，在全球金融实力排名前三的某欧洲国家即将颁布给喜联储世界上的首个数字银行牌照。这意味着喜币即将成为第一个拥有主权国家颁发牌照的合法加密货币。文贵先生说，这一块数字银行牌照意味着新中国联邦自己的国家银行和储备系统受到了其他主权国家的认可，同时也意味着中共将与一个欧洲强国彻底决裂。这块数字银行牌照的价值甚至超过目前整个喜联储的市场估值。
-
-原文链接：[文贵先生最新爆料：关于新中国联邦人的三大利好消息](https://gnews.org/zh-hans/1727868/)
-
-音频处理：喜山必胜Maverick
-
-发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/rl-1-556x720.png)
+总编：木白
+编辑：飞虹
+校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-1.png)
-
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
