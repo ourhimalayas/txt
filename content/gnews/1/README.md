@@ -2,36 +2,82 @@
 ---
 
 
-## 安大略省“奥米克戎”大爆发凸显疫苗的苍白无用
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1733241/)
+## 南非新型变种病毒奥米克戎患者激增
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1733304/)
 
-**撰稿：路仁**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/unnamed-11.jpg)图片来源：网络图片
-最近在安大略省西南部的一个医疗辖区米德塞斯-伦敦卫生辖区，爆发了一个40人的群体感染。根据该辖区[最新发布](https://www.facebook.com/middlesex.london.health.unit/)（12月7日星期二）的消息，根据基因检测其中两位病人样品，确信属于“奥米克戎”变种感染。该辖区卫生官员推断，这个40人的感染群体极大可能是“奥米克戎”变种病毒感染，而与这个感染群体密切接触的高达171人，而随着时间的推移，这个数字还在增加。
+本文作者：Rebecca (一切心皆不可得！)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image001.png)
+据彭博社报导，早前南非已确诊奥米克戎（Omicron）病例不到250例，但最近，每日新病例突增至 16,000 多例。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image003-1.jpg)
+数据源：世界指数
 
-根据[米德塞斯-伦敦卫生辖区官方资料](http://communityhealthstats.healthunit.com/chapter/geography-and-demographics)，这个辖区总计人口约45.5万人左右（2016统计数据），由此可以推断，“奥米克戎”变种病毒在该区甚至整个安省大爆发，几乎难以避免。
+这是自7月以来该国每日新增病例最多的一天。
 
-这个感染的群体均可以追溯到11月底从尼日利亚回来的两个人，根据[环球新闻报道](https://globalnews.ca/news/8431848/covid-19-first-omicron-variant-case-london-ont/)，这两人均为完全疫苗接种者，并在下飞机后做了检测。而所有的感染的这个群体中，改辖区执行卫生管萨摩斯医生（Dr. Alex Summers）并没有指出这个40人感染群体疫苗的接种情况，只是说”许多人“已经完全接种了疫苗。
+以下是南非当地7位医生对这一情况的看法摘要：
 
-目前卫生部发现的这些确诊病例已经涉及到到多所学校、儿童看护中心。近期在伦敦南部一间教堂爆发的疫情也与这个确诊人群有关。卫生部仍在调查接触人员中，感染病例很可能还会增加。
+1
 
-不出人意料的是，该区卫生官萨摩斯医生给出的办法依旧是：“接种疫苗，戴好口罩，确保口罩合适你，并在整个假日季节减少社交活动”
+开普敦大学传染病科主任马克-门德尔森（Marc Mendelson）也在格罗特舒尔医院（Groote Schuur Hospital）工作，格罗特舒尔医院做了世界上首例心脏移植手术。
 
-尽管安大略省的疫苗覆盖率逐渐上升，但整个安大略省近期感染人数并没有随着疫苗增长而下降，加之“奥克米戎”变种病毒的出现，本周二省政府也宣布，整个省原本已经暂停的重新开放的时间表将无限期延长。
+- 目前，看到很多再次感染的情况。但还没统计，具体有多少奥米克戎患者是已接种疫苗的，还是未接种疫苗的。
 
-根据[加拿大官方文件](https://www.canada.ca/en/public-services-procurement/services/procuring-vaccines-covid19.html)，极左的小土豆政府，在疫情初期就为加拿大人购买了4.09亿支疫苗，平均每个加拿大人每人够打11针。尽管在变种病毒面前，所谓的“疫苗”显得苍白无力，但与中共一直不清不白的小土豆，与世界邪恶势力相勾结，强制推行疫苗护照，积极推行5-12儿童接种毒疫苗，通过官方禁止羟氯喹，伊维菌素等有效的预防和初期治疗药物，打压讲真话的医生。相信随着毒疫苗危害逐渐显现，随着真相的逐渐浮现，小土豆及其极左政府必将受到人民和法律的追究。
-![](https://lh4.googleusercontent.com/LX7Hc2txJX_6Trft82BzH7CiQ9nR3NBxVyV0T0M-_XhtI4HBxpig-3nVJ2xIPEJzoFv5jU2CTQTiIPBeMQHg2Xqf_3vgUWXNbRfJteFI8BqXfrWGKFdVsFYc5J5Mvvpojnbgf-JcTIX1nmqXw6U)
-参考链接：
 
-[米德塞斯-伦敦卫生辖区官方资料](http://communityhealthstats.healthunit.com/chapter/geography-and-demographics)
+2
 
-[环球新闻报道](https://globalnews.ca/news/8431848/covid-19-first-omicron-variant-case-london-ont/)
+南非最大的私人医疗保健网Netcare公司的首席执行官理查德德-弗里德兰（Richard Friedland）
 
-[加拿大官方文件](https://www.canada.ca/en/public-services-procurement/services/procuring-vaccines-covid19.html)
+- 奥米克戎具有高传染性，但患者症状比较轻微，并不严重，跟西班牙流感类似。估计这可能预示着新冠病毒的终结就要到了。
 
-* * *
 
-编辑、校对 ctt
+3
+
+威特沃特斯兰德大学的疫苗专家Shabir Madhi，他负责在阿斯利康公司和诺华公司的疫苗试验项目。
+
+- 奥米克戎似乎比德尔塔传播速度更快，虽然病例总数可能会更多，但住院和死亡人数将低于我们在前三波疫情经历的情况。
+
+
+4
+
+南非国家传染病研究所的临床微生物学家Anne von Gottberg
+
+所有数据显示，儿童的临床病程没有那么严重。我们相信，随着再感染，疾病将变得不那么严重.
+
+5
+
+NICD代理执行主任Adrian Puren
+
+- 目前，患病及住院人数大量增加，但有证据表明，奥米克戎患者占整个新冠病毒变异的75%左右。奥米克戎有完全取代德尔塔变种的可能性。
+
+
+如果奥米克戎确实取代了德尔塔变种，我们需要看看这是免疫规避的结果还是因为传播性的增加所致
+
+6
+
+莱昂-格芬是开普敦海角郊区的一名普通医生，也是萨姆森老龄化研究所的主任。
+
+- 我们看到了病例总数的大规模激增。 “人们大多以咳嗽和上呼吸道感染的方式出现。
+
+
+7
+
+安东尼-史密斯，开普敦的一名普通医生。
+
+- 从上周四或周五开始，病患就像开闸放水一般涌进来。主要是年轻人，但有20%左右是老年患者 “。
+- 大多数孩子都是在小区活动时感染的。其症状较轻，主要是喉咙痛和呼吸道现象。
+- 没有重症患者，但还不能判定奥米克戎病毒是一个较温和的变种。
+
+
+
+
+[新闻来源链接](https://www.zerohedge.com/markets/south-africa-suffers-most-new-covid-cases-july-scientists-ground-weigh)
+
+
+
+【文章仅限作者个人观点】
+
+审核校对：sherryok (水云间)
+
+上传排版：漂流瓶
 
  
 
