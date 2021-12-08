@@ -2,30 +2,25 @@
 ---
 
 
-## 雷军退出小米科技公司法人
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1731567/)
+## 法官暂停拜登政府针对全美联邦承包商的疫苗强制令
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1731600/)
 
-![雷军_最美奋斗者](https://lh3.googleusercontent.com/proxy/0hmVwyUEWZIfVZp7tC_6pI0jDvXKDgKKr1iE3sGX9zCrbbUHKwk9Kyjgt7w6fRKp4_4xUIauBjgBuXxDleODzLbUIlbeLjsn)*雷军。资料照*![](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2021%2F1207%2F6d11e92fj00r3qp0h000mc000go0089m.jpg&amp;thumbnail=690x10000&amp;quality=75&amp;type=jpg)
-据网易新闻12月7日报道，小米科技（武汉）有限公司发生工商变更，法人代表由雷军变更为曾学忠，同时雷军退出执行董事兼总经理职位。
+翻译：zzballack
+上传：追着曙光跑
 
-小米科技(武汉)有限公司成立于2017年9月，注册资本2. 1亿元，由小米通讯技术有限公司全资控股。经营范围包含数据处理和存储服务；房地产开发经营等。雷军目前依然任小米科技董事长兼CEO，同时兼任金山、YY、猎豹移动等三家上市公司董事长。2021年11月18日，小米汽车科技有限公司成立，法人代表雷军，注册资本10亿人民币，由小米科技有限责任公司全资持股。经营范围含新能源整车制造、技术研发等。首款小米汽车预计会在2024年实现量产。
+据《美联社》（Associated Press）12月8日报道，美国乔治亚州奥古斯塔（Augusta）的联邦地方法院法官斯坦·贝克（Stan Baker）12月7日发布了全美国范围内的禁令，禁止执行拜登政府针对联邦机构承包商的强制疫苗令。贝克法官裁定，拜登要求所有联邦承包商在2022年1月18日之前全面接种新冠疫苗，这超越了他的权力。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Image-2021-12-08-at-11.29.48.jpeg)图片来源：网络
+这起诉讼由乔治亚州、阿拉巴马州、印第安纳州、堪萨斯州、南卡罗来纳州、犹他州和西弗吉尼亚州的州检察长，以及代表承包商的一个贸易团体–美国全国贸易协会（Associated Builders and Contractors）发起。
 
-雷军信心满满要为小米汽车而战。新能源汽车是未来的趋势，全世界都在积极发展，力求占据未来的市场。中共也想要抢占一块领地。
+贝克法官在判决书中写道：“在实际应用中，这个疫苗强制令是作为公共卫生的法规来运作的。但它将对整个经济产生重大影响，因为它限制了承包商和其成员执行联邦合同工作的能力。对联邦承包商来，这项命令是昂贵、艰巨的任务，并可能导致他们可用的员工、劳动力减少。因此，它似乎具有巨大的经济和政治意义。即使在危机时期，本法院也必须维护法治，并确保政府所有部门在其宪法赋予的权力范围内行事。”法官表示，这项暂停白宫要求联邦承包商和分包商接种新冠疫苗的命令，适用于“美国任何州或地区的所有相关合同承包商”。
 
-新闻参考链接：[https://c.m.163.com/news/a/GQKPNNRK0527A5AV.html?spss=newsapp](https://c.m.163.com/news/a/GQKPNNRK0527A5AV.html?spss=newsapp)
+11月30日，肯塔基州东区地区法院法官格雷戈里·范·塔滕霍夫（Gregory Van Tatenhove）也发布了初步禁令，暂停执行针对联邦合同承包商的疫苗强制令，但只适用于肯塔基州、田纳西州和俄亥俄州的承包商。
 
-编辑：胖丁
+建筑业集团（the construction industry group）副总裁本·布鲁贝克（Ben Brubeck）在一份声明中说：“这是消除建筑业合规障碍的一大胜利，建筑业正面临着各种经济挑战，如43万劳动力短缺、材料价格上涨和供应链问题。”乔治亚州州长布莱恩·坎普 (Brian Kemp) 发推表示，这项裁决对工人的生活至关重要，“因为他们担心被迫在疫苗和他们的生计之间做出选择。”
 
-* * *
+随着这项裁决，目前，拜登政府针对私营部门的所有三项疫苗强制令均被法院暂停。另外两项是针对拥有100名雇员以上企业和全美医护人员的疫苗强制令。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+新闻来源：[Judge blocks Biden’s vaccine mandate for federal contractors](https://apnews.com/article/coronavirus-pandemic-vaccine-joe-biden-mandate-045740388704)
 
  
 

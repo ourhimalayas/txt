@@ -2,25 +2,40 @@
 ---
 
 
-## 法官暂停拜登政府针对全美联邦承包商的疫苗强制令
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1731600/)
+## 教皇表示须在“历史”背景下看待天主教的性虐待问题
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1731645/)
 
-翻译：zzballack
-上传：追着曙光跑
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-据《美联社》（Associated Press）12月8日报道，美国乔治亚州奥古斯塔（Augusta）的联邦地方法院法官斯坦·贝克（Stan Baker）12月7日发布了全美国范围内的禁令，禁止执行拜登政府针对联邦机构承包商的强制疫苗令。贝克法官裁定，拜登要求所有联邦承包商在2022年1月18日之前全面接种新冠疫苗，这超越了他的权力。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Image-2021-12-08-at-11.29.48.jpeg)图片来源：网络
-这起诉讼由乔治亚州、阿拉巴马州、印第安纳州、堪萨斯州、南卡罗来纳州、犹他州和西弗吉尼亚州的州检察长，以及代表承包商的一个贸易团体–美国全国贸易协会（Associated Builders and Contractors）发起。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/RNS-Reese-Abuse1-080718_0.jpg)
 
-贝克法官在判决书中写道：“在实际应用中，这个疫苗强制令是作为公共卫生的法规来运作的。但它将对整个经济产生重大影响，因为它限制了承包商和其成员执行联邦合同工作的能力。对联邦承包商来，这项命令是昂贵、艰巨的任务，并可能导致他们可用的员工、劳动力减少。因此，它似乎具有巨大的经济和政治意义。即使在危机时期，本法院也必须维护法治，并确保政府所有部门在其宪法赋予的权力范围内行事。”法官表示，这项暂停白宫要求联邦承包商和分包商接种新冠疫苗的命令，适用于“美国任何州或地区的所有相关合同承包商”。
 
-11月30日，肯塔基州东区地区法院法官格雷戈里·范·塔滕霍夫（Gregory Van Tatenhove）也发布了初步禁令，暂停执行针对联邦合同承包商的疫苗强制令，但只适用于肯塔基州、田纳西州和俄亥俄州的承包商。
+ 
+图片来源:  AP/Matt Rourke
 
-建筑业集团（the construction industry group）副总裁本·布鲁贝克（Ben Brubeck）在一份声明中说：“这是消除建筑业合规障碍的一大胜利，建筑业正面临着各种经济挑战，如43万劳动力短缺、材料价格上涨和供应链问题。”乔治亚州州长布莱恩·坎普 (Brian Kemp) 发推表示，这项裁决对工人的生活至关重要，“因为他们担心被迫在疫苗和他们的生计之间做出选择。”
 
-随着这项裁决，目前，拜登政府针对私营部门的所有三项疫苗强制令均被法院暂停。另外两项是针对拥有100名雇员以上企业和全美医护人员的疫苗强制令。
+#### 编译 ：小红帽
 
-新闻来源：[Judge blocks Biden’s vaccine mandate for federal contractors](https://apnews.com/article/coronavirus-pandemic-vaccine-joe-biden-mandate-045740388704)
+教皇弗朗西斯呼吁谨慎“解读”10月份发布的一份令人震惊的报告，该报告发现多达33万名儿童可能受到法国天主教会神职人员和非专业代表的性虐待。
+
+教皇周一说，在探讨几十年前事件时，必须将“历史情况”置于背景之中。报告背后的调查机构–教会性虐待问题独立委员会（CIASE），审查了法国天主教会从1950年代到2020年对未成年人进行性虐待的指控。
+
+教皇指出，必须根据当时的标准来看待历史上的虐待行为。他举例说，教会对虐待案件的“态度”是“掩盖它”，但承认这是“不幸的，这种态度今天仍然存在于许多家庭中”。
+
+这些评论引起了法国受害者团体的反对，其中一个协会，La Parole Liberee（自由言论）的创始人批评这位天主教领袖 “无知、愚蠢和否认”。
+
+在过去的70年里，大约有21.6万名儿童被发现受到神职人员的虐待，如果包括教会非专业代表的事件，受害者人数可能会增加到33万。在这段时间里，教会共有11.5万名神父和神职人员，证据显示约有2,900至3,200人被指控虐待。
+
+新闻来源：[Catholic church sexual abuse must be seen in ‘historical’ context, Pope says — RT World News](https://www.rt.com/news/542493-french-catholic-church-abuse-pope-remarks/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
