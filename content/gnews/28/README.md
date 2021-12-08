@@ -2,81 +2,46 @@
 ---
 
 
-## 有声|【每日读经】创世纪(2:1-25)
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1733293/)
+## 【Michael.Tonny专栏】越南数据证明 中共病毒疫苗才是真正的杀手（上）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1733382/)
 
-配音：香草山福音部 – Daxia
+作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+越南（Vietnam），这个拥有9,817万人口，位于东南亚中南半岛东端的共惨党一党专制国家，正在遭受疫苗灾难。
 
+在2021年3月7日开始注射疫苗前，越南仅2,512人被确诊感染中共病毒，死亡总数为35人。自3月7日开始，越南在全国推行向18岁及以上公民注射疫苗，感染中共病毒确诊人数、死亡数立即开始增长。今年7月开始，越南加大疫苗接种力度，感染中共病毒确诊数、死亡数迅速增长。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Covid-19-in-Vietnam_-New-wave-tally-tops-1340000-3.jpg)
+不仅如此，自11月15日开始，越南开始向12-18岁的青少年注射疫苗，目前已经有超过120例出现恶心、高烧或呼吸困难等症状后被送往医院，有多人死亡。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-**1**天地万物都造齐了。
+越南中共病毒疫苗注射百分比
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Vietnam-People-Vaccinated-per-Hundred.jpg)
+越南感染中共病毒确诊数
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Vietnam-Total-Cases.jpg)
+越南感染中共病毒死亡数
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Vietnam-Total-Deathes.jpg)
+从以上三张图可以看到，越南感染中共病毒诊数、死亡数都与注射疫苗正相关，三个方面的线型，时间点，增长趋势基本一致。注射疫苗人口比例越高，感染中共病毒诊数、死亡数增长越快。
 
-**2**到第七日，　神造物的工已经完毕，就在第七日歇了他一切的工，安息了。
+[精彩在下篇](https://gnews.org/zh-hans/1733468/)
 
-**3**　神赐福给第七日，定为圣日，因为在这日　神歇了他一切创造的工，就安息了。
+参考资料：
 
-**伊甸园**
+[120 children hospitalized, province suspends Pfizer vaccine batch](https://e.vnexpress.net/news/news/120-children-hospitalized-province-suspends-pfizer-vaccine-batch-4397748.html)
 
-**4**创造天地的来历，在耶和华　神造天地的日子，乃是这样：
+[3rd child in Vietnam dies after Covid vaccination](https://e.vnexpress.net/news/news/3rd-child-in-vietnam-dies-after-covid-vaccination-4396697.html)
 
-**5**野地还没有草木，田间的菜蔬还没有长起来，因为耶和华　神还没有降雨在地上，也没有人耕地，
+[Human trials for Vietnamese Covid vaccine suspended](https://e.vnexpress.net/news/news/human-trials-for-vietnamese-covid-vaccine-suspended-4396661.html)
 
-**6**但有雾气从地上腾，滋润遍地。
+[Bilateral sources account for lion’s share of Vietnam’s Covid vaccines: WHO](https://e.vnexpress.net/news/news/bilateral-sources-account-for-lion-s-share-of-vietnam-s-covid-vaccines-who-4397901.html)
 
-**7**耶和华　神用地上的尘土造人，将生气吹在他鼻孔里，他就成了有灵的活人，名叫亚当。
+[Report Shows Nearly 300 Athletes Worldwide Collapsed or Suffered Cardiac Arrests after Taking COVID Vaccine This Year – Many Died](https://www.thegatewaypundit.com/2021/12/report-shows-nearly-300-athletes-worldwide-collapsed-suffered-cardiac-arrests-taking-covid-vaccine-year-died/)
 
-**8**耶和华　神在东方的伊甸立了一个园子，把所造的人安置在那里。
+[covid-19-data](https://github.com/owid/covid-19-data/tree/master/public/data)
 
-**9**耶和华　神使各样的树从地里长出来，可以悦人的眼目，其上的果子好作食物。园子当中又有生命树和分别善恶的树。
+[越南](https://zh.wikipedia.org/wiki/%E8%B6%8A%E5%8D%97)
 
-**10**有河从伊甸流出来滋润那园子，从那里分为四道：
+[At Least 3 Children Die and 120 Hospitalized in Vietnam After Receiving Pfizer COVID-19 Vaccine – 4 Adults Die from Vero Cell Covid Vaccine](https://www.thegatewaypundit.com/2021/12/least-3-children-die-120-hospitalized-vietnam-receiving-pfizer-covid-19-vaccine-4-adults-die-vero-cell-covid-vaccine/)
 
-**11**第一道名叫比逊，就是环绕哈腓拉全地的。在那里有金子，
-
-**12**并且那地的金子是好的；在那里又有珍珠和红玛瑙。
-
-**13**第二道河名叫基训，就是环绕古实全地的。
-
-**14**第三道河名叫底格里斯，流在亚述的东边。第四道河就是幼发拉底河。
-
-**15**耶和华　神将那人安置在伊甸园，使他修理看守。
-
-**16**耶和华　神吩咐他说：“园中各样树上的果子，你可以随意吃，
-
-**17**只是分别善恶树上的果子，你不可吃，因为你吃的日子必定死。”
-
-**18**耶和华　神说：“那人独居不好，我要为他造一个配偶帮助他。”
-
-**19**耶和华　神用土所造成的野地各样走兽和空中各样飞鸟都带到那人面前，看他叫什么。那人怎样叫各样的活物，那就是它的名字。
-
-**20**那人便给一切牲畜和空中飞鸟、野地走兽都起了名，只是那人没有遇见配偶帮助他。
-
-**21**耶和华　神使他沉睡，他就睡了；于是取下他的一条肋骨，又把肉合起来。
-
-**22**耶和华　神就用那人身上所取的肋骨造成一个女人，领她到那人跟前。
-
-**23**那人说：“这是我骨中的骨，肉中的肉，可以称她为女人，因为她是从男人身上取出来的。”
-
-**24**因此，人要离开父母与妻子连合，二人成为一体。
-
-**25**当时夫妻二人赤身露体并不羞耻。
-
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/) 上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

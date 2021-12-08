@@ -2,39 +2,37 @@
 ---
 
 
-## 乌云罩顶 北京冬奥出师未捷名先坏
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1733214/)
+## 有声|美台将于芯片领域在新框架下开展合作
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1733264/)
 
-撰稿：东京樱花团/Ob
-![](https://assets.gnews.org/wp-content/uploads/2021/12/5-6.png)
-距离开幕不到2个月的时间，美国6日正式宣布外交抵制北京冬奥会。近日媒体盘点了与北京冬奥会相关的几件热点事件。
+配音：香草山美食部 – 玫瑰园
 
-● 彭帅
 
-曾是女子网球双打世界排名第一的彭帅，11月在社交媒体发文，指控中共前国务院副总理张高丽对她性侵，引起国际社会严重关注。 现年35岁的彭帅随后神隐近3个星期，先前的贴文也迅速消失。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+据[OAN](https://www.oann.com/u-s-taiwan-discuss-chips-again-to-cooperate-under-new-framework/)网站援引路透社12月7日的报道，美国商务部长吉娜·雷蒙多(Gina Raimondo) 在周一与台湾经济部长王美花通话中表示，美台将通过新的技术贸易和投资合作（或称TTIC）框架，在技术贸易和投资方面进行合作。
 
-● 新疆
+双方讨论了台湾在全球供应链中发挥的关键作用。美方强调了对台湾的支持以及美台商业和投资关系的重要性，并表示，美国有兴趣与台湾继续就共同的商业问题进行合作，特别是在半导体供应链和相关生态系统领域。并承诺通过确定其他步骤来支持半导体和其他关键供应链。
 
-数百万100万名维吾尔人与其他突厥语系、以穆斯林为主的少数民族，被关押在中国新疆的拘留营，并被中共强迫劳动、政治思想灌输、以及适时酷刑和强迫绝育等情况。美国政府更将中共定义为种族灭绝和反人类罪。
+早前，美国已多次向作为主要芯片生产国的台湾施加压力，要求其做出更多努力，帮助解决全球半导体短缺的问题。这一问题已使一些汽车生产线关闭，并影响到消费品的生产。
 
-● 西藏、香港
+文字版原文：[美台将于芯片领域在新框架下开展合作](https://gnews.org/zh-hans/1731221/)
 
-长期以来，中共在西藏进行宗教镇压，同时大规模剥夺人权。2019年以来中共对香港实施武力镇压也让国际社会相当担忧。
+音频处理：喜山必胜Maverick
+发稿：Tom Li
+[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
+**更多资讯，更多关注**
 
-● 中共病毒
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-中共病毒肆虐全球，原定去年登场的东京夏季奥运被迫延至今年7月举行，如今北京冬奥也垄罩疫情阴影。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-共匪之贪，天下无敌，坏事做尽，还要保留好名声，极尽狡辩否认之能事，还要自我标榜成民主的典范。只可惜人在做，天在看，虽自认“人定胜天”，但是中共毕竟不是天。作恶是有代价的，现在只是开始。全世界人的怒火必将射向共匪这条恶龙，将共匪钉死在耻辱柱上。
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-信息来源：
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-[从彭帅到新疆 4个争议让北京冬奥蒙上阴影](https://m.secretchina.com/news/gb/2021/12/08/991737.html)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

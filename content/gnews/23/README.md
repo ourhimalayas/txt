@@ -2,37 +2,58 @@
 ---
 
 
-## 澳大利亚站队美国外交抵制北京冬奥会
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1733380/)
+## 【Michael.Tonny专栏】越南数据证明 中共病毒疫苗才是真正的杀手(下）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1733468/)
 
-翻译：不要代表我Kari
-校对：Julia
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2021.12.8-14.jpg)图片来源：法广网
-澳大利亚总理斯科特·莫里森(Scott Morrison)证实，澳大利亚将跟随美国的脚步，不派政府官员参加明年在中国举行的冬奥会。
+作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+[接上篇](https://gnews.org/zh-hans/1733382/)
 
-莫里森Morrison周三表示，这”不足为奇，澳大利亚将不派任何官方代表参加即将在中国举行的冬季奥运会”，依据的理由是”在新疆发生的侵犯人权和澳大利亚一直向中方提出的有待解决的其他问题。”
+从去年1月23日越南出现两例中共病毒确诊案例到今年3月7日前，越南人感染中共病毒机率为0.00256%，死亡机率为1亿分之35。今年3月7日至6月30日期间，越南全国疫苗接种率为3.65%，新增感染14，540人，新增死亡46人。而到12月6日，越南全国疫苗接种率为75.04%，7月1日至12月6日间，越南全国新增感染为1,306,631人，新增死亡26,402人。
 
-“我们一直非常荣幸，也非常乐意与中国政府谈论这些事务，澳方这边没有任何阻碍，”他声称，”但中国政府一直拒绝我们就这些问题进行会晤的要求。”
+可见，接种疫苗，感染和死亡的风险都呈几何级数增长。
 
-然而，澳总理坚持认为，“虽然澳大利亚官员不会去中国参加奥运会，但澳大利亚运动员仍然可以参加比赛。”
+在开始疫苗接种前，越南全国单日新增确诊数一直在个位数徘徊，甚至已经连续几个月没有人感染。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/new_cases-between-2020-1-23-and-2021-3-6-1.jpg)
+自3月7日接种疫苗后，单日确诊数迅速增加。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/new_cases-between-2021-3-7-and-2021-6-30.jpg)
+自7月1日起，随着疫苗接种比例增加，单日确诊数直线增加，最高时单日接近4万人。目前在14,000左右。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/new_cases-between-2021-7-1-and-2021-12-7.jpg)
+在开始疫苗接种前，几天甚至十几天才有人死亡。2020年9月4日到疫苗接种前，根本没有人死亡。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/new-deathes-between-2020-1-23-and-2021-3-6.jpg)
+而3月7日至6月30日，全国疫苗接种率很低的阶段，单日新增死亡也非常少。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/new-deathes-between-2021-3-7-and-2021-6-30.jpg)
+自7月1日后，越南死亡人数迅速增加，单日新增死亡人数已经突破200。比推行疫苗前14个月总和还要多6倍。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/new-deathes-between-2021-7-1-and-2021-12-7.jpg)
+通过上述分析，中共病毒疫苗在越南的危害，远远比病毒本身要大得多。然而，越南共惨党从上月15日开始，将疫苗推广范围扩大到12岁及以上儿童。
 
-莫里森政府紧随美国总统拜登政府的脚步，拜登政府也在周一宣布对冬奥会进行外交抵制。
+11月28日，北江省北部（the northern Bac Giang Province）的一名16岁男孩和河内（Hanoi）一名九年级女孩在接种辉瑞疫苗后死亡。11月30日，平福省南部（the southern Binh Phuoc Province）的一名12岁男孩在接种辉瑞疫苗后死亡。自 11 月 30 日以来，越南中部省份一直在为 15-17 岁的儿童接种辉瑞的中共病毒疫苗。截止到12月2日，有超过120 名儿童在出现恶心（nausea）、高烧（high fever）或呼吸困难（breathing difficulties）等症状后被送往医院。上周，清化省（Thanh Hoa）金越鞋厂（Kim Viet Shoe factory）的四名工人在接种中共国药集团（sinopharm）Vero Cell疫苗后死亡。
 
-白宫新闻秘书珍·普萨基(Jen Psaki)告诉记者，”鉴于中华人民共和国在新疆正在发生的种族灭绝和反人类罪以及其他侵犯人权的行为”，美国将不派任何官方代表参加在北京举行的冬季奥运会。
+越南卫生部却表示，所有死亡原因是“对疫苗反应过度”，与疫苗质量或疫苗接种过程无关！
 
-普萨基(Psaki)说：“面对中华人民共和国在新疆(犯下的)令人震惊的侵犯人权行为和暴行，美国的外交或官方代表团会把这些赛事当作平常事，而我们根本不能这样做。”
+看来共惨体制不光祸害中共国人，更是对全世界祸害！
 
-中国在华盛顿驻美大使馆发言人刘鹏宇称此举是 “自命不凡”，”政治操弄”，”对《奥林匹克宪章》精神的严重扭曲”。他还补充说，”没有向美国政要发出任何邀请，所以这种’外交抵制’根本就是凭空而来，子虚乌有”。
+中国人民有郭文贵先生领导的新中国联邦和爆料革命在大声疾呼，消灭共惨党，传播病毒疫苗真相，尤其新中国联邦人都是无苗族，不知道什么时候越南人民能觉醒？
 
-“事实上，没有人会在意这些人是否来（参加北京冬奥会），这对北京2022年冬奥会的成功举办没有任何影响，”发言人说。
+参考数据：
 
-中国外交部部长助理华春莹发表了类似的声明，强调美国官员没有被邀请，她在推特上说：”一个人不能在没有收到邀请的情况下拒绝邀请”。
+[120 children hospitalized, province suspends Pfizer vaccine batch](https://e.vnexpress.net/news/news/120-children-hospitalized-province-suspends-pfizer-vaccine-batch-4397748.html)
 
-中国日报欧盟分社社长陈卫华在社交媒体上半开玩笑地说：“尽管没有收到邀请，但他将抵制白宫的圣诞和新年聚会。”
+[3rd child in Vietnam dies after Covid vaccination](https://e.vnexpress.net/news/news/3rd-child-in-vietnam-dies-after-covid-vaccination-4396697.html)
 
-文章链接： [https://www.rt.com/news/542502-australia-boycott-china-olympics/](https://www.rt.com/news/542502-australia-boycott-china-olympics/)
+[Human trials for Vietnamese Covid vaccine suspended](https://e.vnexpress.net/news/news/human-trials-for-vietnamese-covid-vaccine-suspended-4396661.html)
 
-发布：去中心化Math
+[Bilateral sources account for lion’s share of Vietnam’s Covid vaccines: WHO](https://e.vnexpress.net/news/news/bilateral-sources-account-for-lion-s-share-of-vietnam-s-covid-vaccines-who-4397901.html)
+
+[Report Shows Nearly 300 Athletes Worldwide Collapsed or Suffered Cardiac Arrests after Taking COVID Vaccine This Year – Many Died](https://www.thegatewaypundit.com/2021/12/report-shows-nearly-300-athletes-worldwide-collapsed-suffered-cardiac-arrests-taking-covid-vaccine-year-died/)
+
+[covid-19-data](https://github.com/owid/covid-19-data/tree/master/public/data)
+
+[越南](https://zh.wikipedia.org/wiki/%E8%B6%8A%E5%8D%97)
+
+[At Least 3 Children Die and 120 Hospitalized in Vietnam After Receiving Pfizer COVID-19 Vaccine – 4 Adults Die from Vero Cell Covid Vaccine](https://www.thegatewaypundit.com/2021/12/least-3-children-die-120-hospitalized-vietnam-receiving-pfizer-covid-19-vaccine-4-adults-die-vero-cell-covid-vaccine/)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/) 上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

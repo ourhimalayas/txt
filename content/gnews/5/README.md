@@ -2,35 +2,21 @@
 ---
 
 
-## 多国陆续声明外交抵制中共北京冬奥会
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1733605/)
+## 12月8日文贵大直播快讯——中共已经进入倒计时
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1733738/)
 
-作者：纽约香草山健身部—Ivy001 /日本方舟农场 Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间12月7日，继美国白宫宣布外交抵制中共北京冬奥会后，新西兰副总理罗伯逊在惠灵顿明确表示，新西兰将不会派出外交代表参加2022年2月中共在北京举行的冬奥会 。 与此同时，澳大利亚总理莫里森也于当天声明，澳洲不会派遣官员出席中共北京冬奥会。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-09-上午12.56.50.png)
-相关报道显示， 新西兰和澳大利亚各自发表了对中共政府在侵犯人权问题方面的担忧。另外，新西兰副总理也将新冠疫情的问题作为主要考量之一。
+撰稿：Gradient Boost
 
-早些时候，德国新任外长也肯定了德国外交抵制中共冬奥会的可能性。德国外长提到，鉴于中共在新疆地区实行的侵害人权的强制劳动行为，德国将采取对话和强硬态度面对与中共的外交。
+视频：永不言败
 
-参考链接：
-1）[New Zealand won’t send diplomats to Beijing Olympics, cites COVID-19](https://www.reuters.com/lifestyle/sports/new-zealand-wont-send-diplomats-beijing-olympics-cites-covid-19-2021-12-07/)
-2）[澳洲宣布外交抵制北京冬奥会](https://www.zaobao.com.sg/realtime/world/story20211208-1221034)
-3）[德国新外长不排除抵制北京冬奥](https://www.zaobao.com.sg/realtime/china/story20211202-1219200)
+美东时间当地12月8日，文贵先生在大直播当中谈到了拜登外交抵制冬奥会的相关议题。文贵先生称，接下来，WTO一定会将中共国剔除出去，而当SWIFT将中共国踢出美元系统的时候，我们就数着手指等待中共的倒台，2025中共将不会存在。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+同时中共的倒台将极为迅速，而且是以我们绝对想象不到的方式。现在美国与俄罗斯完成了勾兑，中共已经进入了倒数模式。俄罗斯目前已经转战整个东亚，和缅甸与柬埔寨等国都签订了军事合约，而美国已经默许。
 
-总编：Jack Li文阳/Irene木木
-编辑：Jack Li文阳/Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
+同时俄罗斯也准备回归南海开始采油，而南海目前的油料储备，大概可供亚洲使用大概1200年左右。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+中共仗俄罗斯之势的时代已经结束。现在的亚洲各国，不论是印度、越南，还是柬埔寨、菲律宾，宁可让俄罗斯回归也不愿继续让中共继续待着。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

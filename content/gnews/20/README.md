@@ -2,26 +2,29 @@
 ---
 
 
-## 北京丰台火车站突发大火
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1733429/)
+## 欧盟延长对侵犯人权中共官员的制裁期限
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1733476/)
 
-撰稿：东京樱花团 – 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间12月6日晚，北京新建的丰台火车站突发大火。
-
-视频中，可以听到拍摄的女士称，已经烧了5栋了，其他的几栋也即将被点燃。她说大火已经燃烧了半个多小时，虽然现场有很多救火车，但是由于胡同太窄救火车却进不来。最后她表示，火越烧越大，这栋楼已经被烧成了空架子。
+作者：纽约香草山医疗部 – 云豹
 
 
 
-目前，墙内各大媒体对这场大火全面噤声。中共当局历来面对灾难或重大事故，一贯的做法就是先掩盖真相，接着撒谎愚弄百姓，最后宣传所谓的正能量，把丧事当作喜事来办。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
+
+
+欧洲议会对中关系委员会主席包瑞翰于当地时间12月6日宣布，对侵犯人权中共官员的制裁，将被延长到2022年底。这个决定让中共认为欧盟会屈服于威胁的幻想破灭了。
+
+欧盟曾在今年3月公布，对新疆维吾尔自治区公安厅厅长陈明国、当地中共高干王明山及王君正发出旅游禁令，冻结他们在欧盟的资产。前新疆政法委书记朱海仑、新疆生产建设兵团公安局也遭到制裁。 中共随后也对欧盟官员作出了类似的反制禁令，试图让欧盟屈服。 欧洲议会现在则以行动清楚表达了欧盟对中共侵犯人权的坚定反对态度。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-83.jpg)
 参考链接：
-[https://gettr.com/post/piys87b24e](https://gettr.com/post/piys87b24e)
-[http://www.ncfcsa.cn/1/16398.aspx](http://www.ncfcsa.cn/1/16398.aspx)
+[歐盟延長制裁中國官員 歐洲議員：習近平誤判](https://www.cna.com.tw/news/firstnews/202112070005.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-**校对/发稿：童谣**
+总编：AN
+编辑：飞虹
+校对/发稿：为真不破20
 
 **更多资讯，更多关注**
 
@@ -34,7 +37,13 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
