@@ -2,28 +2,35 @@
 ---
 
 
-## 纽约市长离任前宣布疫苗强制新规
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1733603/)
+## 多国陆续声明外交抵制中共北京冬奥会
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1733605/)
 
-栏目作者：焦点20分
+作者：纽约香草山健身部—Ivy001 /日本方舟农场 Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间12月7日，继美国白宫宣布外交抵制中共北京冬奥会后，新西兰副总理罗伯逊在惠灵顿明确表示，新西兰将不会派出外交代表参加2022年2月中共在北京举行的冬奥会 。 与此同时，澳大利亚总理莫里森也于当天声明，澳洲不会派遣官员出席中共北京冬奥会。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-09-上午12.56.50.png)
+相关报道显示， 新西兰和澳大利亚各自发表了对中共政府在侵犯人权问题方面的担忧。另外，新西兰副总理也将新冠疫情的问题作为主要考量之一。
 
-据BBC网站、今日美国等多家媒体12月6日报道，纽约市新规定将要求该市所有私营部⻔员工接种新冠疫苗，这将是美国本土实施的最严格的疫苗命令。新规定将于12月27日生效，将覆盖18.4万家企业。此外，纽约也宣布从下个星期开始，所有5到11岁的儿童必须至少接种一剂疫苗，才能进入餐厅、戏院以及参加学校的课外活动。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/ahr.png)
-为避免疫情在冬季和年底假期蔓延，纽约市市⻓白思豪宣布，所有雇主必须强制员工12月27日前接种新冠疫苗。这意味着除了公务员，所有私营和跨国企业的员工也必须接种疫苗。
+早些时候，德国新任外长也肯定了德国外交抵制中共冬奥会的可能性。德国外长提到，鉴于中共在新疆地区实行的侵害人权的强制劳动行为，德国将采取对话和强硬态度面对与中共的外交。
 
-纽约市⻓白思豪周一表示，新规定将于12月27日生效，适用于所有私营企业，无论规模大小。他的办公室将于12月15日发布一套适用于约 18.4万家企业的协议，提供进一步的命令细节，包括执行方式和对违规行为的惩罚等。
+参考链接：
+1）[New Zealand won’t send diplomats to Beijing Olympics, cites COVID-19](https://www.reuters.com/lifestyle/sports/new-zealand-wont-send-diplomats-beijing-olympics-cites-covid-19-2021-12-07/)
+2）[澳洲宣布外交抵制北京冬奥会](https://www.zaobao.com.sg/realtime/world/story20211208-1221034)
+3）[德国新外长不排除抵制北京冬奥](https://www.zaobao.com.sg/realtime/china/story20211202-1219200)
 
-纽约也宣布从下个星期开始5至11岁儿童进餐厅与戏院需打疫苗 ，必须至少接种一剂疫苗，才能进入餐厅、戏院以及参加学校的课外活动。据报道，规定要求5岁至11岁的儿童进入餐馆、电影院与剧场时， 需要出示至少接种一剂新冠疫苗的证明，而12岁以上的⺠众则需出示完整接种证明，强生疫苗(J & J)除外。此外，白思豪也要求5岁至11岁的儿童接种疫苗后才能参加高⻛险的课外活动，包括:体育、乐队、管弦乐队和舞蹈，这项命令同样于下周生效。根据纽约州卫生厅截至6日下午的统计数据，5岁至11岁的纽约市儿 童有667990人，已有127745人接种疫苗，该年龄段接种率为19.1%。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-简评：
- 上述新闻报道表明：政府为了提高疫苗接种率，把强制疫苗规定覆盖数量众多的私营企业；同时更瞄准了接种率很低的5-11岁年龄段的孩子。 “身体发肤受之父母”，加上上天赋予我们自由的权利，任谁都没有权力迫使我们接种毒疫苗。毒疫苗是中共及黑暗势力奴役和杀死我们的工具；他们为了钱财和称霸世界，已毫无人性可言、丧心病狂。我们决不妥协和气馁，绝不会遵守会伤害到我们自身和孩子的任何法律及法令，并坚持通过各种手段传播疫苗危害、疫苗杀人的真相。
+总编：Jack Li文阳/Irene木木
+编辑：Jack Li文阳/Irene木木
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-参考链接：[https://newyork.cbslocal.com/2021/12/06/new-york-citys-new-vaccine-mandate-also-impacts-kids-5-11/](https://newyork.cbslocal.com/2021/12/06/new-york-citys-new-vaccine-mandate-also-impacts-kids-5-11/)
-
-翻译简评：ANGE 7
-校对：理工男文峰
-上传：零点
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

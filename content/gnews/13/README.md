@@ -2,59 +2,35 @@
 ---
 
 
-## 2021年12月8日文贵先生直播摘要——银河系农场
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1733654/)
+## 80名共和党人投票资助一个旨在监视美国人的联邦疫苗数据库
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1733695/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/bae89fcb983462510ea7778143b977fa.jpg)
-视频连接：[2021年12月08日 文贵大直播：拜登外交抵制冬奥会；盘古物业接管惊世界；中共高级特务单伟建；对准高层海外大行动](https://gettr.com/streaming/pj3xefa5bc)
+作者：纽约香草山翻译部 – defiance
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%96%B0.png)
+12月2日，美国国会刚刚通过了《免疫基础设施现代化法案》（IIMA），如果该法案在参议院获得通过，将建立一个大规模的监控体系，以跟踪谁接种了疫苗，谁没有接种疫苗。而80名共和党人与民主党人一起在众议院通过了该法案。
 
-1、全球抵制北京冬奥会，这绝对是新中国联邦的功劳，我们2019年就开始游说；
+H.R.550号法案将为政府提供4亿美元，以资助 ”免疫系统数据现代化和扩展”，该系统被定义为 ”一个保密的、以人口为基础的计算机化数据库，记录所有医疗机构对该数据库所覆盖的地理区域内的人进行的免疫接种剂量”。该法案的文本具体概述了美国疾病控制和预防中心（CDC）将如何扩大权力，地方和州卫生部门以及私营部门的各种参与者也将扩大权力，与联邦政府分享私人健康数据。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture1-13.jpg)
+该法案的主要发起人、民主党众议员安·卡斯特说，新系统将 ”提醒病人何时该接种推荐的疫苗”，并确定该国疫苗接种率低的地区，以 “确保疫苗的公平分配”。这项立法有四个共和党的共同提案人。众议员拉里·布森 , 詹姆斯·贝尔德, 大卫·麦金利, 还有布莱恩·菲茨帕特里克。没有民主党人投票反对该法案。
 
-2、习心中三件大事，拿回香港、收回台湾、希望他的母亲齐心观看冬奥会；
+共有130名共和党人投票反对该法案，其中包括众议员玛丽·米勒，她告诉布莱巴特新闻网，该法案将允许联邦政府 追踪 未接种疫苗的美国人，并强制他们遵守乔·拜登的全球疫苗接种愿景。
 
-3、单伟建、蔡崇信、吴征是中共最大的特务；
+参考来源：
+1. [80名共和党人投票资助一个旨在监视美国人的联邦疫苗数据库](https://vaccines.news/2021-12-06-80-republicans-voted-fund-federal-vaccine-database.html)
+2. [80名共和党人投票资助一个旨在监视美国人的联邦疫苗数据库](https://republicbrief.com/80-republicans-vote-to-fund-federal-vaccine-database-to-spy-on-americans/)
 
-4、亚洲投资公司太盟投资集团(Pacific Alliance Group) CEO单违建，经常和沃顿学院，美联储，财政部秘密交流，是王岐山最最忠实的马仔；
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88-1.png)
 
-5、文贵先生家人、父亲、员工被300特警，300法警，全部赶到大街上，手机失效、信用卡被停；
+编辑/校对/发稿：Hetangyuese
 
-6、新中国联邦未来1-3年重大行动，海外中共大使馆领事馆外，大年三十开始为中南坑的老杂毛们及家属送葬；
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-7、每天100美金、100个躺平币、1个喜币、食宿交通实报实销。战友们只要去参加给习近平送葬行动的，都将获得补助；
-
-8、今天开始，没有郭七条，只要能灭共；
-
-9、墙内战友尽量不要做 保障安全的情况下传播信息；
-
-10、WTO一定会把中共踢出，SWIFT只要把中共踢出去 中共死的 极为惨烈 极为快速；
-
-11、现在俄跟美勾兑以后，俄重返亚洲，美把亚洲让给俄比给中共强 ，美苏灭共新时代开始了；
-
-12、恒大许家印撑不住了，所以放雷，既然美国冬奥会不来了，恒大融创定期爆，死给你看；
-
-13、七哥会有一系列从国防、军事、媒体、国际的行动；
-
-14、接下来将把中共踢出世界卫生组织等国际组织；
-
-编辑整理：文俊；
-
-发布：黎明之前
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
  
 

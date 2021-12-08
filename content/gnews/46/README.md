@@ -2,31 +2,35 @@
 ---
 
 
-## 滴滴美股退市致多个对冲基金损失惨重
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1732312/)
+## 中俄联军侵略：美防长奥斯汀说乌克兰、台湾可以自卫
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1732373/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-364.png)[图片来源](https://gnews.org/wp-admin/post-new.php#imgrc=fqFwIoQcX6rUNM)
-路透12月8日报，文件显示，自中国网约车公司滴滴宣布计划退出纽约证券交易所以来，滴滴全球[(DIDI.N)](https://www.reuters.com/companies/DIDI.N)股价暴跌后，几家对冲基金可能因押注滴滴全球[(DIDI.N)](https://www.reuters.com/companies/DIDI.N)而受挫。滴滴的股价较6月30日的IPO价格下跌了56.8%。在该公司周五表示计划从纽约证券交易所退市并寻求在香港上市后，股价加速下滑，屈服于对其在美国首次亮相感到愤怒的中共监管机构。
+作者：东京樱花团｜捆绑CCP一千年
+![](https://lh3.googleusercontent.com/sNwpj3oRpcqvWExoCTPDQjT0P3OiywvEhR-evXeuBGzq86Z4msniHPQSn5DtCDTAeH_yUlErge7sPkefVhSAT3mHf8DZqTWKwniYvitmi41IOZ9yUxEthtO9vtI_vD1QOFRxtA_e)[*图片来源*](https://www.defense.gov/News/News-Stories/Article/Article/2864875/austin-discusses-china-russia-american-public-survey-on-military-at-defense-one/)
+**五角大楼当地时间7日，**[**奥斯汀表示**](https://www.defense.gov/News/News-Stories/Article/Article/2864875/austin-discusses-china-russia-american-public-survey-on-military-at-defense-one/)**，他的工作是保卫美国。但面对中俄两国对乌克兰和台湾可能的军事侵略，奥斯汀表示，“关于俄罗斯对乌克兰的侵略和中国对台湾的侵略，美国的战略目标都是在外交上发挥作用。”**
 
-根据行业追踪公司Symmetric编制的美国13F文件，截至9月底，对冲基金投资了9440万股滴滴，较上一季度减少1320万股。自那时以来，对冲基金是否进一步减少了投资尚不得而知，但路透社的计算显示，滴滴股价在9月底至12月7日期间下跌7.9%，将从这些头寸中抹去总计6090万美元的价值。
+奥斯汀补充道，“我们对尊重每个国家主权领土的基于规则的国际秩序非常感兴趣。”他说，“我们相信乌克兰有权捍卫和保护其主权领土，美国以材料和顾问支持乌克兰，因此它拥有自卫所需的一切。”
 
-截至9月底，该公司27%的价值由被Symmetric归类为对冲基金的经理所拥有的机构投资者持有。Symmetric指出，对冲基金持股比例高的股票在压力时期可能容易被这些基金清算。文件显示，在第三季度购买股票的对冲基金中，桥水基金购买了近900万股。
+面对中共国对台湾的侵略，奥斯汀表示，“根据《台湾关系法》的概述，国防部将继续对台湾提供支持，以便台湾能够自卫。台湾也有两党的支持，国务卿说这很重要。”
 
-文件显示，PenserraCapital购买了滴滴的540万股，而OwlCreekAssetManagement购买了170万股和七八资本537,145股。他们显示，保尔森公司在第三季度末增持了160万股，而七八资本购买了537,145股。
+- ***延展阅读：***[***拜登警告普京，如果俄罗斯的侵略继续下去，将会带来经济后果***](https://www.reuters.com/article/biden-putin-1207-tues-idCNKBS2IN025)
 
-老虎环球管理和亿万富翁乔治索罗斯的基金在第三季度末也持有滴滴的大量股份，截至9月底合计持有470万股。
 
-截至9月30日，新加坡国有基金淡马锡减持滴滴360万股，但仍持有2940万股。
+奥斯汀强调，如果俄罗斯攻击乌克兰，这将是“一个非常糟糕的举动”。但这位部长说，“我们的综合威慑意味着以新的不同的方式将我们的现有军事能力联网。而综合威慑能力包括与美国盟友合作的能力。这意味着我们将在所有领域作战能力，包括网络和太空以及海底。”
 
-目前尚不清楚这些公司是否仍在投资，但一家美国大型对冲基金的高管表示，该基金在滴滴持有少量头寸并于近期退出之后。“还有一个问题是，散户甚至一些共同基金可能无法轻松拥有香港上市股票，将被迫出售，因此压力会更大，”该高管表示。
+但这位国防部长称，我们综合威慑能力还包括“以外交为主导”的方式。他认为，“如果外交失败，无论出现什么问题，我们都将处于有利位置，能够取得胜利并果断取胜。”这也意味着奥斯汀在确保最坏情况出现后不放弃使用“国家力量”。
+![](https://lh3.googleusercontent.com/lWJPPFGIDV8WEcjdX_6OcJLO9InbETH1Cs9n2jt7ap2hJ1tpBDyEM0qawzx1ZwPr0w0mC0YLWP3k_TZ1GiTfpODutex0x-XiVDgcG4Jv3Q6B0QHQCfibsOfaMbzZ5ap6Bq_fEonZ)[*图片来源*](https://www.nytimes.com/2021/12/07/world/europe/listen-to-the-daily-why-does-american-military-assistance-to-ukraine-matter.html)
+奥斯汀援引国务卿的话说，国务卿相信有机会通过武力以外的方式解决分歧。“我们在边境地区看到了俄罗斯军队的数量，对此表达了数周的担忧。”乌克兰总统沃洛德米尔泽伦斯基说，“最近他担心有人试图破坏他的政府稳定。”奥斯汀说，“当你把所有信息加在一起分析，看起来很熟悉，就像 2014 年俄罗斯第一次入侵乌克兰时的重演。”
 
-持有滴滴股份的公共养老金计划包括加拿大养老金计划（CPP）、位于蒙特利尔的CaissededépôtetplacementduQuébec和加州公共雇员退休系统（CalPERS）。
+- ***延展阅读：***[***奥斯汀接受福克斯采访称：乌克兰现在显然不属于北约，不受第5条款保护***](https://www.defense.gov/News/Transcripts/Transcript/Article/2862114/secretary-of-defense-lloyd-j-austin-iii-interview-with-bret-baier-fox-news-at-2/)
 
-消息来源：[一些对冲基金可能因押注中国滴滴全球而损失数百万美元](https://www.reuters.com/markets/europe/some-hedge-funds-may-have-lost-millions-bets-chinas-didi-global-2021-12-08/)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
+奥斯汀在继续谈到台湾时表示，“我们不希望看到现状发生变化，尤其是现状的单方面变化。”他强调台湾的所有紧张局势都应该首先通过外交途径解决，并且国防部还确保这个小国拥有自卫所需的东西，比如像对乌克兰的军事支持。但奥斯汀承认，“美国人对军队的信心有所下降，但他发誓要努力保持国家的信心。”
+
+2021年12月8日
+
+*校对：东京樱花团 / 東洋武士
+发布：东京樱花团 / 平安卿卿*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
  
 

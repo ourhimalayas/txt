@@ -2,38 +2,34 @@
 ---
 
 
-## 与比特币相关的 After pay 或被禁用
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1733856/)
+## 美国会两党领袖呼吁国际社会共同抵制北京冬奥会
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1733870/)
 
-编译：西班牙巴塞罗那喜悦农场-wenwu
+**撰稿：日本东京方舟农场  北极**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-1-4.jpg)图片来源：9news.com.au (Getty)
+12月7日，美国国会暨行政当局中国委员会（CECC）的两党领袖发表书面声明，赞扬拜登政府外交抵制北京冬奥会的决定，同时呼吁其他国家共同加入外交抵制的行列。
 
-澳大利亚政府正在采取行动，通过对加密货币实施新的监管，将比特币“从（监管）阴影中拉出来”，同时忙于计划推出（政府）自己的数字货币。
+拜登政府星期一（12月6日）正式宣布，对即将在明年2月开幕的北京冬季奥运会采取外交抵制，不派遣任何官方代表出席赛事，以兑现“捍卫人权”的承诺。对此，美国国会两党议员普遍表示支持，称此举是对中共在新疆的种族灭绝行动的强烈反击。
 
-财政部长 Josh Frydenberg 证实，联邦和储备银行（Commonwealth and Reserve Bank）目前正在研究在澳大利亚建立中央加密货币的可行性；弗莱登伯格先生（Mr Frydenberg）在《今日》节目中说，是时候了，现在的加密货币正需要在一个“深思熟虑的监管框架”下运作。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/微信图片_20211208131516.png)图片来自路透社
 
-他说：“我们想把（加密货币）从阴影中拉出来（没有人为比特币负责做担保）。”
+CECC主席默克利参议员（Jeff  Merkley）和共同主席麦戈文众议员（Jim McGovern）还在联合声明中表示：“美国的盟友和伙伴应该在未来几个星期发表类似的声明。国际社会不能容忍他们（中共）（的恶行）而出席这样的奥运比赛。这场奥运已因种族灭绝及一些全世界最恶劣的侵犯人权行为而被蒙上了污点。”
 
-弗莱登伯格先生说，澳大利亚政府希望加密货币交易所和企业申请金融许可证（financial licences），以“让消费者对他们的交易方有更多一点确定性和信心（需要有最严格的KYC）。”
+CECC的两党领袖还认为，仅仅外交抵制是不够的。他们强烈呼吁本届冬奥会的赞助厂商不要派遣高层代表赴中（共）国参加赛事。
 
-自过去十年数字货币兴起以来，超过80万澳大利亚人至少拥有一次（购买）加密货币交易。
+CECC的领袖们还表示，鉴于中共的暴行，与中共一如往常的商业往来是不可接受的。在接下来几周时间里，他们还将询问企业赞助商会采取什么行动抗议中共的人权侵犯行为。 此外，在白宫正式宣布外交抵制北京冬奥会后，多名美国政要也同时呼吁国际社会加入美国的外交抵制行列。
 
-由于比特币的匿名性（公块链），犯罪企业已经被吸引到比特币；弗莱登伯格先生说，加密货币是一个”快速发展的领域”，政府需要走在前面。
+*参考链接：*
 
-“我们的金融部门正在进行一场数字革命”。
-
-他还警告说，Afterpay 等先买后付的公司在未来将面临更多的审查和监管措施。
-
-他说，更好的监管将为费用带来”适当的透明度”，并确保为进入市场的新进入者提供公平的竞争环境。
-
-**新闻来源：**[9news.com.au] [Australian government planning digital currency launch,as regulation looms for Bitcoin](https://www.9news.com.au/national/bitcoin-australian-government-planning-digital-currency-launch-as-regulation-looms-for-cryptocurrency/5e6fbf01-9e28-4ea7-b4e9-aeac85f3e0da) | 发布时间：2021年12月08日
+[美国会两党赞扬外交抵制北京冬奥 呼吁国际社会加入](https://www.voachinese.com/a/us-congress-reax-biden-admin-diplomatic-boycott-beijing-olympics-20211207/6343912.html)
 
 * * *
 
-*发稿：信心的选择*
+*素材采编：北极*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-1.jpeg)
+*编辑：青衣青青*
+
+*发布：Ranting*
 
  
 

@@ -2,26 +2,23 @@
 ---
 
 
-## 多国陆续声明外交抵制中共北京冬奥会
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1733605/)
+## 韩国单日新增9例本土奥密克戎病例
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1733606/)
 
-作者：纽约香草山健身部—Ivy001 /日本方舟农场 Andy5
+作者：纽约香草山 医疗部 云豹
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间12月7日，继美国白宫宣布外交抵制中共北京冬奥会后，新西兰副总理罗伯逊在惠灵顿明确表示，新西兰将不会派出外交代表参加2022年2月中共在北京举行的冬奥会 。 与此同时，澳大利亚总理莫里森也于当天声明，澳洲不会派遣官员出席中共北京冬奥会。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-09-上午12.56.50.png)
-相关报道显示， 新西兰和澳大利亚各自发表了对中共政府在侵犯人权问题方面的担忧。另外，新西兰副总理也将新冠疫情的问题作为主要考量之一。
+当地时间12月7日，韩国中央防疫中心发布公告称，当日韩国境内新增新冠病毒确诊感染人数4954例，其中还包含9例境内新冠奥密克戎变异病毒的感染病例。另外，韩国当日的新冠病毒死亡人数为64例。有数据显示，截止目前，韩国境内感染新冠奥密克戎变异病毒的总病例数已达36人，同时，韩国新冠危、重症病例达到774例的新高。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-09-上午12.57.00.png)
+另一方面，韩国完整接种新冠疫苗的人口比例已达80%，但韩国的每日新增确诊人数仍旧维持在接近五千人次的历史高点，且危、重症新冠患者屡创新高，而奥密克戎变异病毒的境内感染数也逐日增加。
 
-早些时候，德国新任外长也肯定了德国外交抵制中共冬奥会的可能性。德国外长提到，鉴于中共在新疆地区实行的侵害人权的强制劳动行为，德国将采取对话和强硬态度面对与中共的外交。
+对此，有评论称，现有证据表明，新冠疫苗既不能预防民众感染新冠病毒，也不能阻止新冠感染者将病毒二次传播，更不能防止新冠患者病情加重。 因此，政府及相关机构宣传的新冠疫苗有效论实为赤裸裸的骗局。
 
-参考链接：
-1）[New Zealand won’t send diplomats to Beijing Olympics, cites COVID-19](https://www.reuters.com/lifestyle/sports/new-zealand-wont-send-diplomats-beijing-olympics-cites-covid-19-2021-12-07/)
-2）[澳洲宣布外交抵制北京冬奥会](https://www.zaobao.com.sg/realtime/world/story20211208-1221034)
-3）[德国新外长不排除抵制北京冬奥](https://www.zaobao.com.sg/realtime/china/story20211202-1219200)
+参考链接：[韓國單日增12例確診Omicron 累計36人感染](https://www.cna.com.tw/news/firstnews/202112070030.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-总编：Jack Li文阳/Irene木木
-编辑：Jack Li文阳/Irene木木
+总编：文特
+编辑：Kathy文艺
 校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
