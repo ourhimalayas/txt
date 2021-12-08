@@ -2,30 +2,37 @@
 ---
 
 
-## 加拿大各地完全接种疫苗的母亲死产率激增28倍
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1733227/)
+## 有声|白宫正式宣布外交抵制北京冬奥会
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1733239/)
 
-本文作者：Rebecca (一切心皆不可得！)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image002-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/image003.jpg)
-2021年11月23日，Daniel Nagase医生揭露了加拿大妇女死胎的爆炸性案例。
+配音：香草山美食部 – 玫瑰园
 
-这是我们如今从各处听到的故事，尤其是来自殡仪馆的人，他们对接种疫苗的母亲中这些婴儿的死亡人数大幅增加感到震惊。
 
-这段4分钟的视频显示，Nagase医生解释说死胎发生在全国不同地区，而且只发生在接种疫苗的母亲身上。请从45秒开始听。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+12月6日，白宫发言人普萨基在例行记者会上公布，鉴于中共在新疆正在进行的种族灭绝，反人类，以及其他侵犯人权的行为，拜登政府将不派任何外交或官方代表，参加北京2022年冬季奥运会和残奥会。
 
-Nagase医生报告说，滑铁卢的死胎率比正常情况高28倍，但只有接种疫苗的母亲才会死。
+普萨基说，拜登政府已将该决定告知美国盟友，各国将做出自己的决定。政府不会通过禁止美国运动员参赛来 “惩罚 “他们。
 
-Nagase医生的数据来源是一位省级检察官（相当于州检察长），他是从在医院工作的一名护士那里得到的数据。
+拜登这一决策与上周媒体的预测相吻合。此前，因中共国在新疆、西藏、香港犯下严重侵犯人权的罪行，并计划武力侵犯台湾，一些鹰派共和党议员一直向拜登政府施压。随后，彭帅事件在体育界掀起抵制声浪。白宫外交抵制冬奥会政策终于落地。民主党众议员蒂姆·瑞安评论说，“抵制力度不够”。
 
-过去曾和Nagase医生谈过话的现在完全保持沉默。好似他们说出真相让他们感到害怕。这很奇怪。
+文字版原文：[白宫正式宣布外交抵制北京冬奥会](https://gnews.org/zh-hans/1730569/)
 
-[新闻来源链接](https://stevekirsch.substack.com/p/28x-increase-in-stillbirths-in-multiple)
+音频处理：喜山必胜Maverick
+发稿：Tom Li
+[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
+**更多资讯，更多关注**
 
-【文章仅限作者个人观点】
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-审核校对：sherryok (水云间)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-上传排版：漂流瓶
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

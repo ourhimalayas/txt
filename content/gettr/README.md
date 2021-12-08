@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/8/2021 3:33 PM (UTC)`
+
+From Oct. 23, 2019, when I said that the US would boycott the 2022 Winter Olympics, to Aug. 5, 2021, when I signed the first official document of the New Federal State of China demanding that the IOC cancel the Winter Olympics, and to Dec. 6, when the Biden Administration announced the diplomatic boycott of the Winter Olympics, we are changing the entire world on our way of taking down the CCP!<br/><br/>从2019年10月23日文贵说出美国要抵制2022年冬奥会，到2021年8月5日我签署新中国联邦第一份官方文件要求国际奥委会取消冬奥会，再到12月6日拜登政府宣布外交抵制冬奥会，我们在灭共的道路上改变了整个世界！<br/>
+![img](https://media.gettr.com/group3/getter/2021/12/08/15/ea9cb494-7646-ad99-33bd-8e5a9a2a47d7/out.jpg)
+
+---
+
 `@miles 12/8/2021 1:22 PM (UTC)`
 
 2021年12月08日 文贵大直播：拜登外交抵制冬奥会；盘古物业接管惊世界；中共高级特务单伟建；对准高层海外大行动
@@ -145,13 +152,6 @@ Dec. 6th, 2021, after the CCP, filled with fear of our Whistleblowers’ Movemen
 `@miles 12/6/2021 2:14 PM (UTC)`
 
 6/12/2021 “Hcoin To the Moon" Hits #1 🥇on 8 Countries' iTunes Rock Charts on 4th Day of Launch 🎉🎉🎉🎉🎉🎉🎉<br/>Thank you very much to all our brothers and sisters in HongKong, UAE, Taiwan, New Zealand, Malaysia, Spain, Australia, Singapore!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1726156/<br/><br/>12月6号，Hcoin To the Moon上线第4天位列8国iTunes摇滚音乐榜首🥇！🎉🎉🎉🎉🎉🎉🎉<br/>感谢香港，阿联酋，台湾，新西兰，马来西亚，西班牙，澳大利亚，新加坡的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/><br/>
-
----
-
-`@miles 12/6/2021 5:00 AM (UTC)`
-
-12/05/2021 Miles Guo: The CCP has turned the debt crises in the real estate into the weapons of the economic and currency unrestricted warfare targeting the West; Sunac’s debt crisis will have a much bigger impact than that of Evergrande; the CCP sent spy agents to force private entrepreneurs such as Xu Jiayin and Jack Ma to sell their overseas assets so that the CCP can take the cash<br/><br/>12/05/2021文贵直播：中共将房地产债务危机变成针对西方的经济超限战和货币超限战的武器；融创的雷比恒大还要大；中共派特务逼许家印、马云等私营企业家将海外资产变现，钱归中共<br/>
-![img](https://media.gettr.com/group32/getter/2021/12/06/05/dcbc268c-0594-cd10-433f-e2ebee8bea97/out.jpg)
 
 ---
 
