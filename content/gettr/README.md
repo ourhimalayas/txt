@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@tangping 12/8/2021 10:29 AM (UTC)`
+
+24秒试听！《Hcoin to the moon》外太空Snow版！<br/>诚邀会画漫画的，会编视频的，会做动漫的，超喜欢Snow的战友，给新歌Remix版本，给咱们的小Snow做个MV吧！<br/>这个版本将和HPAY一同上线，全球打榜啦！<br/>如果你的作品足够暖心，你将会被邀请加入我们的MV制作团队！！<br/><br/>https://forms.gle/JZ85evJZUb5WZCxb9<br/>
+![img](https://media.gettr.com/group3/getter/2021/12/08/10/ac796ae5-4a8e-ecdd-be8e-15b317bc30d8/out.jpg)
+
+---
+
 `@miles 12/8/2021 3:01 AM (UTC)`
 
 12/7/2021 Miles Guo’s GETTR: The economy of Communist China is in a terrible shape with lots of drama; after the Pangu employees were driven to the streets, people have sent food and drinks to them, indicating the support from the people; once the SWIFT system is terminated, it is the CCP's family members who will be driven to the streets; call for fellow fighters to find out the overseas assets of the families of the senior CCP cadres<br/><br/>12/7/2021 文贵盖特：国内经济惨淡、乱象四起；盘古员工被赶到街上后，有人送吃送喝体现人心所向；一旦停了SWIFT系统，中共的家人就会被赶到街上；号召战友们找出中共高官家人的海外资产<br/>
@@ -143,13 +152,6 @@ Dec. 6th, 2021, after the CCP, filled with fear of our Whistleblowers’ Movemen
 
 12/05/2021 Miles Guo:  The CCP and Russia are the cores of the evil forces, and the CCP is in cahoots with other dark forces in an attempt to eliminate the senior people and the people with disabilities. The birth of the New Federal State of China (NFSC) is God’s will. The mission of the NFSC is to defeat and destroy these evil forces<br/><br/>12/05/2021文贵直播：中共和俄罗斯是黑暗力量的核心，中共和其他邪恶势力沆瀣一气，妄图消灭老年人和残疾人。新中国联邦的诞生是天意，她的使命就是消灭这些邪恶力量<br/>
 ![img](https://media.gettr.com/group37/getter/2021/12/06/03/60c25b7f-1673-ffdf-d5f7-5eac90dbb360/out.jpg)
-
----
-
-`@miles 12/6/2021 2:51 AM (UTC)`
-
-12/5/2021 Miles Guo: When it comes to the Taiwan issue, Australia can’t defeat the CCP’s troops and prioritizes economic interests; the Japanese’s military is comparable to that of the CCP, but Abe’s statement on Taiwan was simple bluffing; the core of the Taiwan issue lies in the traitors and the government of Taiwan; it’s the CCP, the US, and Russia that have the say in the world<br/><br/>12/5/2021 文贵直播：在台湾问题上，澳大利亚打不过中共且以经济利益为优先考量；日本军力不输中共，但安倍的表态全是咋呼；台湾问题的核心是卖台贼和台政府；真正影响世界的是中美俄<br/>
-![img](https://media.gettr.com/group31/getter/2021/12/06/02/36ed4224-93f4-1b50-6802-45d14141a90d/out.jpg)
 
 ---
 
