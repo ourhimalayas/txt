@@ -2,29 +2,18 @@
 ---
 
 
-## 七哥谈AI技术
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1731142/)
+## 【#G时新闻】美国正式宣布外交抵制北京冬奥会
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/1731174/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+加拿大温哥华扬帆农场 播报：文广 制作：文所未闻
 
-去中心化的交易系统和去中心化的技术天下无敌，这就是技术的核心的核心。那么你刚才看到这个电池的时候，这种电池的诞生，就是这种，未来所有的汽车都是用区块链技术，所有的电池都是区块链技术。如果电池不用区块链，这电池就会成为炸弹，汽车就会成为炸弹。无人驾驶汽车的时代不可能到来，它会成为武器。那么接下来就是AI，AI这个技术大家记住啊，人类控制不好，那绝对人类就灭了。但控制好了，绝对就像，就像娜娜酱跟她爷爷说话一样。你马上就变成你爷爷那个级别，就他完全听不懂咋回事了。就像娜娜酱给她讲社交媒体，你奶奶听不懂，你妈妈听不懂一样。就AI很快地到来，AI用在我们这些电池上，技术上，它是个相互的关系。没有电池，没有加密技术，没有这样的芯片，你没有AI。有了AI，未来就是AI一搜什么东西，郭文贵哪天讲什么话，分析到万分之一秒，亿分之一秒，啪，就给你出来。然后5G，AI，这就是咱们整个新中国联邦的大版图之一，那才是我们的城邦，那才是我们的未来！谢谢文疯而逃。
+🔥 据《华尔街日报》 报道，拜登政府已正式宣布外交抵制在中国北京举行的 2022 年冬奥会。
+🔥 抵制背后是拜登总统受到立法者的压力下，采取措施来解决中共国饱受诟病的侵犯人权问题。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+盖特：ttps://gettr.com/post/piy7cz21a5
+编辑/上传：七觉花
 
-**关注我们**
 
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

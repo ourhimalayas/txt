@@ -2,39 +2,31 @@
 ---
 
 
-## 西喜时事新闻简报 — 美国时事篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1730843/)
+## 拜登敲定对北京冬奥会的外交抵制措施
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1730926/)
 
-编译：土饭团
+编译：喜妹
 
-**1.[Blinken对中共国就台湾问题发出加倍警告：如果北京进行打击，将产生“可怕的后果”](https://www.foxnews.com/world/blinken-china-warning-taiwan-terrible-consequences)**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yH5BAEAAAAALAAAAAABAAEAAAIBRAA7.png)图片来源： REUTERS/Jonathan Ernst
 
-福克斯新闻12月4日电，Blinken在周五的Reuters Next会议上发言，他重申了美国对捍卫台湾自治权的承诺，Blinken强调，中共国领导人应对任何此类行动“慎重考虑”， 他说这将“给许多人带来可怕的后果，而且不符合任何人的利益。”
+美国政府计划在本周宣布，美国高级官员将不参加明年2月在北京举行的冬奥会，这种外交抵制原则上不会涉及体育领域的变化，但却是1980年以来前所未有的。
 
-**2.[Austin在安全论坛讲话中针对中共国:“中共国没有10英尺高”](https://www.foxnews.com/politics/austin-targets-china-in-security-forum-address-china-is-not-10-feet-tall)**
+在当初，随着吉米-卡特入主白宫，美国在政治上与莫斯科奥运会脱离了关系。据美国有线电视新闻网（CNN）援引消息人士的话说，现在，华盛顿想通过拒绝派任何政治代表参加下一届体育赛事来显示其对中共国政策的拒绝。
 
-福克斯新闻12月4日电，国防部长周六在里根国防论坛的讲话中把矛头指向了中共国，他告诉福克斯新闻的Bret Baier，“中共国没有 10 英尺高。”“美国是一个太平洋强国，”Austin说。“印太地区是一个充满机遇和真正挑战的地区。其中一个挑战是一个日益自信和专制的中共国的出现。”
+美国总统拜登本人在11月承认，在包括众议院议长、民主党人南希-佩洛西在内的各主要政党声音的呼吁下，外交抵制已经摆在桌面上。
 
-**[3.共和党人指责Biden对奥运会的“外交抵制”过于微不足道](https://www.foxnews.com/politics/republicans-blast-biden-diplomatic-boycott-of-olympics-as-too-little)**
+近年来，美国和中共国之间的紧张关系一直存在，事实上，拜登没有邀请这个亚洲巨人参加他在本周组织的民主峰会。美国主要的指责之一是与新疆维吾尔人的遭遇有关，尽管它也批评了香港对异议人士的压制。
 
-福克斯新闻12月6日电，共和党议员针对Biden总统对北京奥运会的外交抵制，认为阻止美国官员参加奥运会还远远不够，他们呼吁将奥运会从中共国撤出。“虽然我曾呼吁美国和其他国家对2022年冬奥会进行外交抵制，但这是最起码的，Biden总统应该做得更多，以追究中共的责任，”参议员Bill Hagerty周一在一份声明中说。
+中共国的官方媒体在最近几周呼应了来自美国以及英国等其他国家的抵制威胁，在11月底，《环球时报》明确表示，北京不会邀请那些提出抵制的领导人，甚至提出与奥运会有关的外交报复。
 
-**4.[美国和欧盟对北京在南海的“问题”行动表示担忧](https://www.aninews.in/news/world/us/us-eu-expresses-concern-about-beijings-problematic-actions-in-south-china-sea20211204203724/)**
-
-ANI 12月4日电，美国和欧盟对中共国在南中国海和东中国海日益增长的军事侵略表示关切，并表示他们将共同管理与北京的竞争关系。双方表示，中共国在南海、东海和台湾海峡的行动“破坏了该地区的和平与安全，并直接影响到美国和欧盟的安全和繁荣。”
-
-**5.[美国太空部队将军警告中共国日益增长的太空军事潜力](https://www.politico.com/news/2021/12/05/space-force-china-military-523769)**
-
-POLITICO 12月5日电，美国太空部队副总司令周日警告说，中共国在太空发展方面正处于快速发展阶段，这加剧了人们对其可能在太空超越美国并获得军事优势的担忧。David Thompson将军说：“我不认为他们将在十年结束时成为太空领域的领导者已成定局，但他们的步伐令人难以置信，”他补充说，美国需要调整其方法，否则有可能被竞争者超越。
+**参考资料：**[europapress.es][Biden ultima el boicot diplomático de los Juegos Olímpicos de invierno en Pekín](https://www.europapress.es/internacional/noticia-biden-ultima-boicot-diplomatico-juegos-olimpicos-invierno-pekin-20211206031345.html)
 
 * * *
 
-*审核：蚂蚁兄弟
-校对：阿伯塔
-发布：信心的选择*
-
+*审核：Aries的星
+校对：阿伯塔*
+*发布：信心的选择*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH..jpeg)
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

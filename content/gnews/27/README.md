@@ -2,50 +2,176 @@
 ---
 
 
-## 越南120名青少年接种辉瑞疫苗后住院，3人死亡
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1731049/)
+## 咱那赌牌是数字赌牌的一个新的开始
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1731073/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/120702.jpg)图片：来自
-越南清化省暂停了一批辉瑞生物技术公司的新冠疫苗，因为有120多名青少年在接种疫苗后被送往医院。根据该省疾病控制中心的数据显示，这些青少年因出现恶心、高烧到呼吸困难等症状而住院，其中17名儿童出现了严重的反应。
+[https://gtv.org/video/id=61af5b7e87fa7e74c92cbcd8](https://gtv.org/video/id=61af5b7e87fa7e74c92cbcd8)
 
-疾病预防控制中心主任Luong Ngoc Truong表示，尽管该省停止使用目前这批疫苗，“我们还有其他批次的疫苗，也是辉瑞公司的疫苗，所以我们将继续为儿童接种疫苗”。Truong补充说，暂停使用的这批疫苗已被储存起来，以后可以用于其他群体，如成人。
+咱有条件啊
+Tenemos condiciones
 
-上周，清化市金越制鞋厂的四名工人在接种了世界卫生组织5月批准用于应急的国药集团新冠疫苗后死亡——也是由于“（对疫苗）过度反应”所致。
+这个夫妻档去这个赌场的时候
+Cuando estos esposos vayan al casino
 
-越南于11月30日推出了针对15至17岁儿童的新冠疫苗接种计划，并使用辉瑞公司的疫苗。自那时起，有三名儿童在接种第一针后死亡。死亡原因是“对疫苗的过度反应”。
+必须只能一方进去
+Debe entrar solamente una persona
 
-在越南报告的三起死亡事件中，包括南部平福省的一名12岁男孩，他在注射第一针辉瑞疫苗后一天死亡。这名男孩周一下午接种了疫苗，并被送回家休息。晚餐后，他出现了头晕、腹痛和腹泻。他被送往当地医院，然后转到另外两家医院，但在周二上午死亡。
+不能两方都进
+No se puede entrar los dos
 
-北部北江省的一名16岁男孩，以及河内的一名九年级女孩，都是在接受辉瑞公司的新冠疫苗后于周日死亡。卫生部说，这两起死亡事件是由“对疫苗的过度反应”引起的，而不是由疫苗的质量或接种过程引起的。
+因为必须给对方绝对自由
+Porque hay que darle absoluta libertad a la otra persona
 
-根据美国疫苗不良事件报告系统的最新数据，在12至17岁的青少年中，辉瑞公司的新冠疫苗后有18558起不良事件报告。
+咱们战友的规则啊
+Son reglas de nuestros compañeros luchadores
 
-新闻链接：[120 Teens Hospitalized, 3 Dead Following Pfizer Vaccine Rollout for 15- to 17-Year-Olds in Vietnam](https://childrenshealthdefense.org/defender/teens-hospitalized-dead-pfizer-vaccine-vietnam/)
+你们一定要答应七哥到那个地方去
+Ustedes deben prometerme si van a ese lugar
 
-**简评：**
+也是叫无禁之地
+También llamado el lugar sin prohibición
 
-结合相关报道，越南新冠疫苗至今完整接种率约52.3%。随着一些省份11月底开始为15至17岁青少年施打辉瑞生产的新冠疫苗，120名青少年接种后出现恶心、高烧及呼吸困难等症状入院治疗，更有3名儿童死于疫苗。而其疾病预防控制中心却没有质疑和阻止对青少年注射新冠疫苗，甚至只是暂时储存起来，还计划将其用于成人。
+啥叫无禁之地, 没有禁区的
+Qué es un lugar sin prohibición, no hay zona prohibida
 
-让我们不禁问道，是什么样的邪恶力量导致各国政府不顾本国民众安全，强行推广疫苗，甚至继续给儿童及青少年施打疫苗？ 这也从另一方面证明了全世界正义力量停止疫苗的迫切性。疫苗带来的负面影响及危害，已经严重影响到世界的每个角落和群体。所谓的“少数对疫苗的过度反应”发生在每个人和每个家庭身上，都是无法挽回的损失。如果不及时停止，我们很难想象如何面对疫苗的灾难导致的人类灭绝。
+大牛
+Daniu
 
+你要容忍得了, 巴黎自己在里边玩一天
+Debes tolerar a Bali que esté jugando adentro durante todo el día
 
+你自己才有资格玩一天
+Así tendrás derecho de jugar todo el dia
 
-*翻译/简评: Ying2064*
+你如果她自己玩
+Si ella juega sola
 
-*校对: clau*
+你也不能进去
+Tampoco puedes entrar
 
-* * *
+福利也是一样, 是吧
+Al igual que Fuli, cierto
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+你让对方有, 回来还不能问
+Si dejas que la otra persona vaya y regrese sin poder preguntar
 
+在里边看到是谁了
+A quién vío adentro
 
-编辑：【英国伦敦喜庄园编辑部】
+发生啥
+Qué sucedió
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+不能问, 给对方绝对的自由
+No puedes preguntar, debes darle la libertad absoluta a la otra persona
 
+绝对的自由啊, 这是非常
+Libertad absoluta, esto es realmente
 
+你看Rachel
+Mira a Rachel
+
+你把那个赌牌我发
+Les envié la carta de apuesta
+
+我给你们这个发到群里
+Al grupo
+
+你看到了吗, 你就看这个
+La viste, solamente mire esto
+
+咱么这个赌牌
+Nuestra carta de apuesta
+
+它在这个世界上是最最顶尖的钻石塔上
+Está en la torre de diamante más alta de este mundo
+
+钻石塔上啊
+Encima de la torre de diamante
+
+所以说, 这个刚才小福利应该叫Roy
+Por eso digo, hace rato Xiao Fuli debe llamar a Roy
+
+刚才说那个好事的时候
+Cuando se estaba hablando de ese asunto bueno
+
+你要想到这个
+Debes pensar en esto
+
+你们
+Ustedes
+
+咱那个赌牌
+Nuestra carta de apuesta
+
+它是数字赌牌的一个新的开始
+Es el comienzo de la carta de apuesta digital
+
+要记住Roy
+Recuerda, Roy
+
+是一个数字赌牌
+Es una carta de apuesta digital
+
+特别是在英国
+Especialmente en Reino Unido
+
+这种高质量的赌牌
+Esta alta calidad de cartas de apuesta
+
+而且绝对是稀有资源
+Y es definitivamente un recurso escaso
+
+而且更重要的事情
+Y lo más importante
+
+这个赌牌, 大家要记住
+Esta carta de apuesta, todos recuerden
+
+它有背后的体育界的
+Cuenta con el apoyo de nuestro Boss
+
+咱们大佬的支持
+Del mundo de deporte
+
+我还用说
+No les digo más
+
+再明白了嘛, 是吧
+Ya está más que claro, cierto
+
+你们跟那股东是世界上最大的体育玩家
+Ustedes y esa accionista son el mayor jugador de deporte en el mundo
+
+你会看到体育界
+Podrás ver en el mundo de deporte
+
+所有时尚界, 跑车界, 你们会看到前所未有你这辈子
+Todo el mundo de la moda, coches deportivos, verán cosas inéditas que no han experimentado antes en sus vidas
+
+没有经历的事情, 都会发生在我们这个事情当中
+Todo lo que no hemos vivido sucederá en dentro de este asunto de nosotros
+
+记住我的话
+Recuerde mis palabras
+
+日期：12/06/2021
+原视频标题：咱那赌牌是数字赌牌的一个新的开始
+Nuestra carta de apuesta es el nuevo comienzo de la apuesta digital
+原视频日期：12/04/2021
+原视频网址：https://gettr.com/post/pio7orb045
+任务编号：KC315（3107）
+视频时间段：0:00-1:43
+
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作: 洛杉矶盘古农场 – 天涯行
+审片: 洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
