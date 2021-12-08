@@ -2,42 +2,25 @@
 ---
 
 
-## 我们的中心化币将具备去中心化的外太空交易系统和技术
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1731559/)
+## 法官暂停拜登政府针对全美联邦承包商的疫苗强制令
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1731600/)
 
-**郭文贵先生：**我今天告诉大家，你等看到咱们新中国联邦出来的东西，我们会让你看到这个纯金的金币。这个金币最大额可能100万美元，从100美金到100万美元。也就是从青藤手里拿着个东西，它有绝对的加密技术，这个加密的什么程度？是百分之一万的给你承担责任，没有任何人可以破解的。
+翻译：zzballack
+上传：追着曙光跑
 
-然后比如说，你给你这手拿着，交给了这个文疯而逃了，文疯拿着就逃了，是吧。怎么交给你呢？通过你的生理识别加技术识别，你就可以拿到这100万美元。100万美元你说我拿这个东西我想换现金，有专门的第三方H-Bank。H-Bank专门给你贴现，你要什么货币都给你。那我不要钱，我想提黄金。让你提到世界上最安全、最保障的，认可的黄金，你可以提走。
+据《美联社》（Associated Press）12月8日报道，美国乔治亚州奥古斯塔（Augusta）的联邦地方法院法官斯坦·贝克（Stan Baker）12月7日发布了全美国范围内的禁令，禁止执行拜登政府针对联邦机构承包商的强制疫苗令。贝克法官裁定，拜登要求所有联邦承包商在2022年1月18日之前全面接种新冠疫苗，这超越了他的权力。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Image-2021-12-08-at-11.29.48.jpeg)图片来源：网络
+这起诉讼由乔治亚州、阿拉巴马州、印第安纳州、堪萨斯州、南卡罗来纳州、犹他州和西弗吉尼亚州的州检察长，以及代表承包商的一个贸易团体–美国全国贸易协会（Associated Builders and Contractors）发起。
 
-这就是咱们这个未来的喜联储，绝对天下无敌啦。记住我今天说的话，你记住你七哥说的话，都会让你在突然间让你看到。这说的话都不是开玩笑的，我说你把它废了，这个技术的最重要是什么？就是电的能源，这你怎么解决电的问题？你怎么解决这个里面的金币有电的问题。和金币怎么来确认我的生理密码，从青藤的眼睛到了你的眼睛，甚至拿手指头，甚至未来可能扫屁股。人家扫眼睛，扫手指，咱们扫屁股。用屁股纹、手纹、眼睛纹，扫完却能到你那去。你拿着，你就可以到处提现。我们这叫什么？这叫太空币，完全是地球之外操作的，没有任何人，而且这就是合理、合法的。
+贝克法官在判决书中写道：“在实际应用中，这个疫苗强制令是作为公共卫生的法规来运作的。但它将对整个经济产生重大影响，因为它限制了承包商和其成员执行联邦合同工作的能力。对联邦承包商来，这项命令是昂贵、艰巨的任务，并可能导致他们可用的员工、劳动力减少。因此，它似乎具有巨大的经济和政治意义。即使在危机时期，本法院也必须维护法治，并确保政府所有部门在其宪法赋予的权力范围内行事。”法官表示，这项暂停白宫要求联邦承包商和分包商接种新冠疫苗的命令，适用于“美国任何州或地区的所有相关合同承包商”。
 
-这种技术的核心，最重要就是那个芯片。这个芯片要被谁掌握了，那他就可以控制你。这个芯片IMB的2nm没有任何人可以掌握。而且这个芯片未来是跟我们的格芯一起生产。是吧？大家更懂了，是吧？
+11月30日，肯塔基州东区地区法院法官格雷戈里·范·塔滕霍夫（Gregory Van Tatenhove）也发布了初步禁令，暂停执行针对联邦合同承包商的疫苗强制令，但只适用于肯塔基州、田纳西州和俄亥俄州的承包商。
 
-从芯片的生产，到芯片的合成，到芯片的保密，到外太空的交易系统，地球人就没人能管得了。而且你想关键问题，数字货币最大的问题：支付、兑现、安全、保密，天下无敌。那些去中心化的币都去死了吧，没有任何人使用的。我们这叫中心化的币，和去中心化的交易系统，和去中心化的技术，天下无敌，这就是技术的核心的核心。
+建筑业集团（the construction industry group）副总裁本·布鲁贝克（Ben Brubeck）在一份声明中说：“这是消除建筑业合规障碍的一大胜利，建筑业正面临着各种经济挑战，如43万劳动力短缺、材料价格上涨和供应链问题。”乔治亚州州长布莱恩·坎普 (Brian Kemp) 发推表示，这项裁决对工人的生活至关重要，“因为他们担心被迫在疫苗和他们的生计之间做出选择。”
 
-字幕来源：[2021年12月5日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1725245/)
+随着这项裁决，目前，拜登政府针对私营部门的所有三项疫苗强制令均被法院暂停。另外两项是针对拥有100名雇员以上企业和全美医护人员的疫苗强制令。
 
-视频制作：Cindy
-
-视频上传：Cindy；
-
-G-News发布：黎明之前；
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+新闻来源：[Judge blocks Biden’s vaccine mandate for federal contractors](https://apnews.com/article/coronavirus-pandemic-vaccine-joe-biden-mandate-045740388704)
 
  
 

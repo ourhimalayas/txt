@@ -2,43 +2,38 @@
 ---
 
 
-## “一村一辅警” 中共的“全过程民主”是“全过程管控”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1732104/)
+## 澳洲著名加密货币平台myCryptoWallet倒闭
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1732188/)
 
-**作者:****  **青衣
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-35.png)
-（图片来自网络）
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-75.jpg)图片来源：Crypto News AU
+整理报道：Lish
+编辑：文泓
 
-在中共无耻地宣扬其所谓的“全过程民主”的同时，中共党魁习近平曾经强调的新时代“枫桥经验”，如今已在中共国各地以“一村一辅警”的“全过程管控”方式大肆推广。
+12月7日，据报道，又有一家著名的澳大利亚交易平台倒闭，有愤怒的客户在无法进入他们的账户后损失了数千澳元。
 
-据《阿波罗新闻网》12月8日报道，中共喉舌《人民日报》8日对云南红河的“一村一辅警”机制进行报道，显示出中共对于基层的管控愈发严苛。这与中共刚刚发表的《中（共）国的民主》形成了强烈的讽刺对比。
+周二《澳大利亚人报》报道，一些人在社交媒体平台上声称损失了4万澳元，这个澳大利亚加密货币交易平台正在面临清算。
 
-中共党媒除了大力宣传云南红河实行“一村一辅警”之外， 近日，《湖北日报》也报道称，截至目前，湖北全省在4714个居委会配备专、兼职社区民警5494人；全省22509个行政村共配备驻村辅警22126人，实现“一村（居）一辅警”全覆盖。
+澳大利亚证券投资委员会（ASIC）的文件显示，myCryptoWallet平台及其28岁的创始人贾里德·科尼格曼周五任命布里斯班清算公司SV Partners对该公司进行清算，该平台成为两个月内第二个失败的加密货币交易所。另一家在墨尔本的Blockchain Global公司，已在10月倒闭，据说欠了投资者2100万澳元。
 
-湖北对驻村辅警的要求是：1天跟班学习；4天村内执勤；每周最少巡逻2晚；重要节点随机待命。这一做法无疑是将老百姓的一举一动全都纳入中共的监控之下。
+MyCryptoWallet于2017年底推出，是一个让用户购买、出售和交易比特币、以太坊和瑞波币等资产的平台。曾自诩拥有2万名客户，但推出后的一系列问题让用户感到沮丧。2019年初，NAB（澳新银行）在发生纠纷后冻结了该公司的账户。**该平台的提款功能也在其技术合作伙伴出现问题后被暂停了一段时间。**
 
-早在2019年，中共中央办公厅、国务院办公厅就印发了《关于加强和改进乡村治理的指导意见》。这份所谓的指导意见要求，要发展新时代“枫桥经验”，加强农村警务工作，大力推行“一村一辅警”机制。
+顺便说一下，**该平台的崩溃是在比特币从历史最高点暴跌的时候发生的。这个世界上最大的加密货币在一个月前还值9.1万澳元**，周二上午，比特币的交易价格为69,000澳元，其价值已经缩减了30%。
 
-“枫桥经验”是中共国文革时期中共浙江省诸暨县枫桥区搞的一种“发动群众、对阶级敌人加强专政”的做法。所谓“枫桥经验”，宣称的就是“十个人包夹改造一个人，矛盾不上交，就地进行社会改造”。1963年，毛泽东批示要求全国学习“枫桥经验”。
+参议院在10月对加密货币行业进行了调查，建议对myCryptoWallet等交易所进行监管，以便向投资者提供保证。
 
-今年3月，中共中央机关刊物《求是》杂志发表了习近平的一篇文章，文中提及要重视基层工作，强调坚持和发展新时代“枫桥经验”。
+澳大利亚证券和投资委员会主席乔·朗格说，投资者应该非常谨慎地看待加密货币，并引用了一句格言：“不要把所有的鸡蛋放在一个篮子里。”
 
-从“枫桥经验”被中共再度强调，到对“一村（居）一辅警”的推广，显示出中共对于自己的人民已经恐惧到了极点，也管控到了极点。
+参考链接：[Bitcoin, ETH price: myCryptoWallet collapse sees liquidators called in | news.com.au — Australia’s leading news site](https://www.news.com.au/finance/money/wealth/liquidators-called-in-after-collapse-of-prominent-aussie-crypto-platform-mycryptowallet/news-story/5a0bd0b55b4be94150211180d6471ff6)
 
-12月4日上午，包括《人民日报》在内的各大中共喉舌纷纷刊登长达2万多字《中（共）国的民主》白皮书，吹嘘中共是“全过程民主”，是“全链条、全方位、全覆盖的民主，是最广泛、最真实、最管用的社会主义民主”。
+**发布：**去中心化Math
 
-然而仅仅过了4天，《人民日报》就又对“一村一辅警”进行“讴歌”。对照中共几天前所宣传的所谓“全过程民主”，简直是莫大的讽刺。
-
-中共所宣扬的“全过程民主”事实上就是对人民的 “全过程管控”，是“全链条、全方位、全覆盖”的管控，是“最广泛、最真实、最管用”的社会主义管控。
-
-新闻链接：
-
-
-
-> 中共自己打脸！“全过程民主”还是“全过程管控”？【阿波罗网报道】:… [https://t.co/MV8pd4aqvf](https://t.co/MV8pd4aqvf) [#阿波罗网报道](https://twitter.com/hashtag/%E9%98%BF%E6%B3%A2%E7%BD%97%E7%BD%91%E6%8A%A5%E9%81%93?src=hash&amp;ref_src=twsrc%5Etfw) [#习近平](https://twitter.com/hashtag/%E4%B9%A0%E8%BF%91%E5%B9%B3?src=hash&amp;ref_src=twsrc%5Etfw) [#枫桥经验](https://twitter.com/hashtag/%E6%9E%AB%E6%A1%A5%E7%BB%8F%E9%AA%8C?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/J1tEO55zEc](https://t.co/J1tEO55zEc)
-> — 阿波罗网唯一官方推号 (@aboluowang) [December 8, 2021](https://twitter.com/aboluowang/status/1468417566091608064?ref_src=twsrc%5Etfw)
-
-
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

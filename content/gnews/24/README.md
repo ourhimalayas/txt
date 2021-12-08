@@ -2,44 +2,38 @@
 ---
 
 
-## 中共为报复郭文贵先生及爆料革命再次残暴洗劫盘古大观
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1731987/)
+## 墙内再现房企债务违约、资不抵债 打脸中共维稳
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1732073/)
 
-#### 撰稿：日本东京方舟农场  幽蘭自得
+作者：日本方舟农场 – Andy5
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+12月6日，墙内媒体报道，著名房地产企业阳光100中国发生了金额超1.7亿美元的债务违约。该笔债务已经于12月5日到期，但阳光100中国无法偿还。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/FDBC9AAF-59DF-46D4-AC85-E7687249CF9B.jpeg)（图片来自GETTR）
+仅仅在3天前的12月3日，中共证监会还称恒大2.6亿美元的债务爆雷只是个案，不会影响中长期房地产市场的正常融资功能。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture3-5.jpg)
+事实上，不只阳光100中国，12月3日当天，总部位于广州的房企中国奥园就被曝出资金紧张、评级下调，宣布延期兑付约9亿美元的债务。另一家在11月通过债转股成功延期的地产企业阳光城，则被曝出评级从C级直落到接近“实质性违约”的RR5评级。其仅有的现金和等价物根本不足以偿还短期债务。面临同样状况的还有已经被大家熟知的华夏幸福，相对于超过1000亿元的债务，华夏幸福的净资产还不到500亿元，不足以偿还一半的债务。
 
-12月6日，郭文贵先生在盖特上发布盖文和视频，揭露中共出于对新中国联邦及爆料革命的恐惧，再次实施打击报复。继将盘古大观的“龙头”变成“鸟头”之后，又于当日对盘古资产进行全面查封，并且对郭先生的家人及盘古酒店和公寓的员工进行非法抢劫和虐待。
+有分析人士指出，墙内房企所面临的债务违约绝非中共说的个例，而是在接连发生。
 
-郭先生说，当日有大约150名法警、100多名特警以及100多个北京金隅公司的人声称，受大连法院委托执行对盘古所有资产的查封，并对盘古酒店进行全面清理。
+参考链接：
+1. [墙内再现房企债务违约、资不抵债 打脸中共维稳](https://finance.sina.com.cn/roll/2021-12-06/doc-ikyakumx2352027.shtml)
+2. [墙内再现房企债务违约、资不抵债 打脸中共维稳](http://finance.ce.cn/stock/gsgdbd/202112/06/t20211206_37146354.shtml)
+3. [墙内再现房企债务违约、资不抵债 打脸中共维稳](http://www.jntimes.cn/fwrx/202112/t20211205_7336492.shtml)
+4. [墙内再现房企债务违约、资不抵债 打脸中共维稳](http://finance.people.com.cn/n1/2021/1205/c1004-32299742.html)
 
-据郭先生描述，在执行查封的过程中，这帮穿着警衣的畜生，将当时正在宿舍换班、仅穿着睡衣的盘古女员工全都赶到马路上，手机和其它东西全部被没收。此外，他们还将数以千计的盘古员工以及所有的住户和客人全部撵出盘古酒店和公寓。更恶毒的是，中共的这些打手们还将郭先生患中风的年迈父亲也撵出了房间，使九十多岁的老人在如此严寒的天气中流落街头，下落不明。
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-郭先生愤怒地指出，中共就是如此邪恶，连妇女、老人、孩子、残疾人都不放过。这是一场丧失人道、灭绝人性的大抓捕。
+总编：Irene木木
+编辑：飞虹
+校对/发稿：Hetangyuese
 
-不过，郭先生同时也表示，中共的这次行动恰恰说明了他们对爆料革命的恐惧。
-
-在此之前，中共同样出于对郭先生领导的日益壮大的爆料革命和新中国联邦的恐惧，于今年10月下令改建盘古大观，将盘古的“龙头”变成“鸟头”。
-
-中共这个全世界最邪恶、宣称自己是无神论者的组织，却迷信地试图通过斩掉盘古的“龙头”来破坏郭先生的“风水”，为自己“续命”。岂料，这正应了中共最喜欢说的一句话——“搬起石头砸了自己的脚”。
-
-正如郭先生所言：“把龙头给斩了．祭出了真正的能量场”；“天助我新中国联邦呀 ……共产党真的完球蛋喽！”
-
-*参考链接：*
-
-1. [*https://www.gettr.com/post/piudoe19f2*](https://www.gettr.com/post/piudoe19f2)
-2. [*https://www.gettr.com/post/pixegu7f81*](https://www.gettr.com/post/pixegu7f81)
-3. [*https://www.gettr.com/post/pehjcxfdb9*](https://www.gettr.com/post/pehjcxfdb9)
-
-
-* * *
-
-*素材采编：幽蘭自得*
-
-*编辑：青衣青青*
-
-*发布：miumiu*
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

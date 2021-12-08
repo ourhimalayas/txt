@@ -2,24 +2,36 @@
 ---
 
 
-## 日本年度GDP实际下降3.6%
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1731982/)
+## 比特币监管问题凸显，喜币是数字货币的未来
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1732072/)
 
-撰稿：东京樱花农场/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-341.png)[图片来源](https://www.jiji.com/jc/article?k=2021120800311&amp;g=eco&amp;p=20211208ds60&amp;rel=pv#:~:text=%E5)
-来自《时事通信社》8日网站消息，12月8日内阁办公室公布的2021年7月至9月期间季节性调整的国内生产总值（GDP）修订版，扣除价格变化的影响，实际同比下降0.9%，如果这种增长速度持续一年，按年计算则下降3.6%。
+作者：银河勇气星 – 骄子
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+12月1日，美国证券交易所委员会，即美国SEC，驳回了总部位于纽约的Wisdom Tree公司申请的关于成立现货比特币交易基金的请求。
 
-这是对上个月公布的初步数据（年率-0.8%，年化3.0%）的下调。对消费支出的下调是在对中共病毒传播的统计处理进行审查后作出的，其中删除了季节性因素。
+SEC指出，Wisdom Tree的比特币交易基金缺乏“监视共享协议”，未履行《外汇法》中关于“防止欺诈和操纵行为”以及“保护投资者和公共利益”的要求。这是SEC对现货比特币交易基金的第二次拒绝。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture2-6.jpg)
+针对数字货币的监管问题。12月3日，郭先生在直播中指出，数字货币，尤其是比特币，因不受任何部门的监管，可能一夜之间消失，或者是在受到严格的监管一段时间后逐渐消失。
 
-这是两个季度以来的第一次负增长。由于供应链的中断导致汽车产量大幅减少，消费和出口等主要需求项目似乎已经崩溃了。新的变异毒株–Omicron的出现，更是增加了未来的不确定性。
+在诸多因素作用下，近日比特币大跌，24小时跌幅超过17%。这反应了投资者对比特币交易市场欺诈和操纵的担忧与日俱增。
 
-作为国内需求支柱的个人消费同比下降了1.3%（初步数据为下降1.1%）。部分原因是，由于供应短缺，汽车等耐用消费品比初步数据有所下降。私营部门库存变化对国内生产总值变化的贡献也从初步报告的0.3%下调至0.1%。
+另一方面，刚刚上市的喜币备受市场欢迎。喜币将责任中心化，用稳定币和数字币的设计，不仅接受各国法律的监管，并且在未来的市场中只寻求合作，不企图一家独大，是数字货币的未来。
 
-信息源：[ＧＤＰ、年３．６％減に下方修正　消費、一段の落ち込み―７～９月期改定値](https://www.jiji.com/jc/article?k=2021120800311&amp;g=eco&amp;p=20211208ds60&amp;rel=pv#:~:text=%E5)
+参考链接：[比特币监管问题凸显，喜币是数字货币的未来](https://forkast.news/headlines/sec-denies-wisdomtree-spot-bitcoin-etf/)
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
+[![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)](https://forkast.news/headlines/sec-denies-wisdomtree-spot-bitcoin-etf/)
+
+总编：木白
+编辑：木白
+校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

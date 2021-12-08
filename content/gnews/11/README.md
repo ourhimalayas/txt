@@ -2,38 +2,24 @@
 ---
 
 
-## 维多利亚州的大流行病法案在总督递交皇家御准后正式成为法律
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1732138/)
+## 参议员里克·斯科特呼吁NBA抵制北京冬奥会
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1732189/)
 
-澳洲新闻时事动态，尽在雅典娜【澳洲热点】
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2021.12.8-4-维多利亚州的大流行.png)图片来源：NCA NewsWire/Paul Jeffers
-**翻译：小鱼儿**
-**编辑：Mttfly**
+#### 搜集：彩虹       
 
-维多利亚州颇具争议的大流行病法案在周二已成为法律。因为紧急状态的权力将于12月15日到期，州长丹尼尔·安德鲁斯可能会根据《2021年公共卫生和福利修正案（大流行病管理）法案》宣布大流行病命令。
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-355.png)图片来源：国会山报
+12月7日，《新闻极限》发布文章，报道周一时，由于中共国侵犯人权，来自弗罗里达走州的参议员里克·斯科特（Rick Scott）致函NBA专员亚当·西尔弗（Adam Silver），呼吁举行会议，拟将中共国冬2022年的奥会中踢出去。
 
-维多利亚州将成为澳大利亚第一个拥有大流行病专门立法的州，为维州政府提供了管理卫生紧急情况所需的法律框架，包括疫苗授权和口罩法规。
+斯科特在信中表示，“我写信请求在尽快举行会议，讨论NBA是否（继续）参与中共国（相关活动）。我相信你们知道，因为我一直关注联盟在使用中国共产党制造的服装，关注达里尔·莫雷发表关于香港抗议活动的评论后（中共）对其打击的决定，关注NBA学院对年轻球员的虐待，关注贵组织对共产党中国可怕的人权侵犯和对新疆维吾尔族穆斯林的持续种族灭绝保持沉默，我一直在发表相关意见”。
 
-该法案以20票对18票通过。对新权力最重要的修正是建立一个独立小组以审查所有的拘留令。
+斯科特指出：“我还敦促过NBA支持我的呼吁，将2022年冬奥会从共产主义中国移出，移到一个真正尊重人权的国家。可悲的是，你们在这方面也选择了沉默”。
 
-修正案还包括成立一个新的议会联合委员会来审查大流行的命令，该委员会将被授权提出不允许的动议，但这些动议需要在议会中以三分之二的多数通过。
+针对相关的证据和事实，这位参议员在信中说：“我想说的很清楚，我简略陈述的这些问题既不是推测的，也不是可以讨论的，（因为）这些都是事实。NBA没有做任何事情来对抗中国共产党，而且在某些方面采取的行动似乎没有任何目的性，只是为了取悦习近平凶残暴虐的中共政府”。
 
-该法案中删除了较重的刑罚。违反该法案的行为不再会被判处监禁，但是，不遵守规定仍会被处以10,904澳币的罚款。
+**新闻来源**
 
-预计在未来几周内，将有更多反对大流行病法案和疫苗授权的抗议活动，组织者发誓要“每天”集会。
-
-反对党在10月份誓言，如果他们在下一次选举中被选上，他们将废除这项立法。他说：“这是一个民主国家。人们为这个民主制度而奋斗和牺牲。司法独立是如此的重要。”
-
-**原文链接：**[Victoria’s pandemic bill officially becomes law after Governor Linda Dessau gives royal assent to legislation](https://www.skynews.com.au/australia-news/coronavirus/victorias-pandemic-bill-officially-becomes-law-after-governor-linda-dessau-gave-royal-assent-to-legislation/news-story/4d6281c9cdda2435e818268f7fba1a8c)
-
-**发布：去中心化Math**
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[Sen. Rick Scott Urges NBA Support in Moving Olympics Out of China](https://www.newsmax.com/newsfront/nba-uyghur-muslims-human-rights/2021/12/07/id/1047739/)
 
  
 
