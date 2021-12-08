@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/8/2021 11:47 PM (UTC)`
+
+12/08/2021 Miles Guo: The Ministry of Foreign Affairs is a foreign intelligence agency of the CCP. Weijian Shan was born to the parents working for the CCP’s Ministry of Foreign Affairs, and he has been using the PAG to carry out actions against me in the US, BVI, and Beijing on behalf of the CCP<br/><br/>12/08/2021 文贵直播：中共外交部是共产党的对外情报机构，单伟建是外交部子弟，他利用太平联盟代表中共在美国、在BVI、和在北京采取的一系列活动都是针对文贵的<br/>
+![img](https://media.gettr.com/group11/getter/2021/12/08/23/30ccb19f-e037-6c32-bb56-3bd7d2bddf9b/out.jpg)
+
+---
+
 `@miles 12/8/2021 10:53 PM (UTC)`
 
 12/8/2021 Miles Guo: Abu Dhabi cut diplomatic ties with CCP China;  all military and economic projects between the two nations are called off, so Xi Jinping blames Miles Guo for these? The boycott of Beijing Winter Olympics, H coin and Himalaya Exchange completely pissed the CCP off. But the CCP only dares to bully Chinese LaoBaixing. CCP is absolutely a gangster.<br/><br/>12/8/2021 文贵直播：阿布扎比和中共国断交，军事和经济的项目统统停了，习近平怪文贵？冬奥会遭抵制、喜币、喜联储彻底惹恼了中共，但它们只敢用流氓手段对付中国老百姓<br/>
@@ -144,13 +151,6 @@ On Dec. 6, 2021, hundreds of police and over 100 people from BBMG sent by the CC
 
 12/6/2021 Miles Guo: Several hours ago, more than 100 judicial policemen, over 100 special policemen, and 100 or so people from BBMG seized the Pangu Plaza and drove 1,000 or so employees to the road, with my father being forced to wander in the streets - This is how the CCP’s evil works! But we shall not be swayed by greed, hatred, delusion, arrogance, and doubt. Because no one will be safe if the CCP is not taken down!<br/><br/>12/6/2021 文贵直播：数小时前，100多个法警、特警和100多个北京金隅的人封了盘古，将1000多名员工赶到街上，并让我的父亲被迫流落街头，这就是中共的邪恶！但我们不能被贪嗔痴慢疑左右，因为如果不灭共，没有任何人是安全的！<br/>
 ![img](https://media.gettr.com/group28/getter/2021/12/07/02/6b5dc20f-8277-ecf8-f2c2-758febe66b1a/out.jpg)
-
----
-
-`@miles 12/7/2021 2:10 AM (UTC)`
-
-12/6/2021 Miles Guo: The CCP has just committed yet another illegal robbery and abuse of the employees at the Pangu Plaza, and all of them and my 90-year-old father were forced out into the streets; all the CCP thugs at the scene will not be on our pardon list; fellow fighters shall do nothing but safely spreading the truths about the COVID vaccines, the antidotes, and the CCP virus<br/><br/>12/6/2021 文贵直播：中共刚对盘古的员工再次进行了非法抢劫和虐待，把所有员工和我90岁的父亲赶到马路上；现场的中共打手们都不会上我们的宽恕名单；战友们除了安全地传播疫苗、解药和病毒的真相，什么都不要做<br/><br/>
-![img](https://media.gettr.com/group27/getter/2021/12/07/02/3792bc23-33a5-b48e-4111-13f2e664f968/out.jpg)
 
 ---
 
