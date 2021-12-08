@@ -2,41 +2,38 @@
 ---
 
 
-## 朱莉·波内斯博士的新书：我的选择：反对新冠疫苗授权的道德案例
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1733836/)
+## 与比特币相关的 After pay 或被禁用
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1733856/)
 
-作者：Rebel Wires
-翻译：Himasally
+编译：西班牙巴塞罗那喜悦农场-wenwu
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-1-4.jpg)图片来源：9news.com.au (Getty)
 
+澳大利亚政府正在采取行动，通过对加密货币实施新的监管，将比特币“从（监管）阴影中拉出来”，同时忙于计划推出（政府）自己的数字货币。
 
-这本书：朱莉·波内斯博士针对新冠疫苗强制执行的道德案例
+财政部长 Josh Frydenberg 证实，联邦和储备银行（Commonwealth and Reserve Bank）目前正在研究在澳大利亚建立中央加密货币的可行性；弗莱登伯格先生（Mr Frydenberg）在《今日》节目中说，是时候了，现在的加密货币正需要在一个“深思熟虑的监管框架”下运作。
 
-2021 年秋天，朱莉·波内斯博士 (Dr. Julie Ponesse) 拒绝遵守加拿大大学的新冠疫苗规定，使她 20 年的学术生涯分崩离析。
+他说：“我们想把（加密货币）从阴影中拉出来（没有人为比特币负责做担保）。”
 
-这是她对这场战斗及其后果的描述，充满了热情和智慧。但波内斯博士的故事超越了个人，审视了我们应对大流行病的伦理和哲学层面。
+弗莱登伯格先生说，澳大利亚政府希望加密货币交易所和企业申请金融许可证（financial licences），以“让消费者对他们的交易方有更多一点确定性和信心（需要有最严格的KYC）。”
 
-如果有人在维护个人选择和自由的斗争中感到孤独，这本书就如何前进提供了一些非常人性化的建议，并明确表明您的声音值得被听到。
+自过去十年数字货币兴起以来，超过80万澳大利亚人至少拥有一次（购买）加密货币交易。
 
-来源：https://www.rebelnews.com/new\_book\_by\_dr\_julie\_ponesse\_my\_choice\_the\_ethical\_case\_against\_covid-19\_vaccine\_mandates
+由于比特币的匿名性（公块链），犯罪企业已经被吸引到比特币；弗莱登伯格先生说，加密货币是一个”快速发展的领域”，政府需要走在前面。
 
-（文章仅代表作者个人观点）
+“我们的金融部门正在进行一场数字革命”。
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+他还警告说，Afterpay 等先买后付的公司在未来将面临更多的审查和监管措施。
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)](https://www.gettr.com/user/7UPgogo)
+他说，更好的监管将为费用带来”适当的透明度”，并确保为进入市场的新进入者提供公平的竞争环境。
 
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+**新闻来源：**[9news.com.au] [Australian government planning digital currency launch,as regulation looms for Bitcoin](https://www.9news.com.au/national/bitcoin-australian-government-planning-digital-currency-launch-as-regulation-looms-for-cryptocurrency/5e6fbf01-9e28-4ea7-b4e9-aeac85f3e0da) | 发布时间：2021年12月08日
 
-**关注我们**
+* * *
 
-Discord 账号
+*发稿：信心的选择*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-1.jpeg)
 
  
 
