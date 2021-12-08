@@ -2,36 +2,29 @@
 ---
 
 
-## 中俄联军侵略：美防长奥斯汀说乌克兰、台湾可以自卫
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1732373/)
+## COVID-19 最新情报｜英国殡葬公司总监警示今年死亡人数激增 呼吁民众毋打疫苗“它正在杀死你”
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1732689/)
 
-作者：东京樱花团｜捆绑CCP一千年
-![](https://lh3.googleusercontent.com/sNwpj3oRpcqvWExoCTPDQjT0P3OiywvEhR-evXeuBGzq86Z4msniHPQSn5DtCDTAeH_yUlErge7sPkefVhSAT3mHf8DZqTWKwniYvitmi41IOZ9yUxEthtO9vtI_vD1QOFRxtA_e)[*图片来源*](https://www.defense.gov/News/News-Stories/Article/Article/2864875/austin-discusses-china-russia-american-public-survey-on-military-at-defense-one/)
-**五角大楼当地时间7日，**[**奥斯汀表示**](https://www.defense.gov/News/News-Stories/Article/Article/2864875/austin-discusses-china-russia-american-public-survey-on-military-at-defense-one/)**，他的工作是保卫美国。但面对中俄两国对乌克兰和台湾可能的军事侵略，奥斯汀表示，“关于俄罗斯对乌克兰的侵略和中国对台湾的侵略，美国的战略目标都是在外交上发挥作用。”**
+**撰文｜ 台湾宝岛农场 疫情关注组 / 发布时间｜8/12/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup）](https://gettr.com/user/mightygroup%EF%BC%89)**
 
-奥斯汀补充道，“我们对尊重每个国家主权领土的基于规则的国际秩序非常感兴趣。”他说，“我们相信乌克兰有权捍卫和保护其主权领土，美国以材料和顾问支持乌克兰，因此它拥有自卫所需的一切。”
+英国米尔顿·凯恩斯 (Milton Keynes) 家庭葬礼服务公司 (Milton Keynes Family Funeral Services) 的总监约翰·奥鲁尼 (John O’Looney)早几日（6日）在社交平台发出警示指，今年英国因血栓、中风、心脏病发作和脑出血而死亡的人数激增。
 
-面对中共国对台湾的侵略，奥斯汀表示，“根据《台湾关系法》的概述，国防部将继续对台湾提供支持，以便台湾能够自卫。台湾也有两党的支持，国务卿说这很重要。”
+影片足本版请移步官方GTV了解：[足本版点击观看](https://gtv.org/video/id=61b099a787fa7e74c92d27e1)
 
-- ***延展阅读：***[***拜登警告普京，如果俄罗斯的侵略继续下去，将会带来经济后果***](https://www.reuters.com/article/biden-putin-1207-tues-idCNKBS2IN025)
+他在影片中表示，自己今年所目睹的，因血栓而死亡的人，超过了他整个职业生涯，“我过去很少看到有人死于血凝块，但我今年看到的比过去 14 年加起来还多。”
 
+***“为此，我写信给英格兰首席验尸官，但他根本没放在心上，我几个星期都没有收到回复，最后得到的是他秘书的一封电子邮件，回覆说，『他不感兴趣』。这就是这些本应该保护我们免受伤害的人的嘴脸。”***
 
-奥斯汀强调，如果俄罗斯攻击乌克兰，这将是“一个非常糟糕的举动”。但这位部长说，“我们的综合威慑意味着以新的不同的方式将我们的现有军事能力联网。而综合威慑能力包括与美国盟友合作的能力。这意味着我们将在所有领域作战能力，包括网络和太空以及海底。”
+另外，他还指，除了血栓，他看到越来越多接种过疫苗的人，他们的免疫系统被摧毁，甚至连普通感冒那样最基础的疾病都无力抵抗，但政府却迅速将这些归咎于新的变体“Omicron” 然后，鼓动民众接种更多疫苗。
 
-但这位国防部长称，我们综合威慑能力还包括“以外交为主导”的方式。他认为，“如果外交失败，无论出现什么问题，我们都将处于有利位置，能够取得胜利并果断取胜。”这也意味着奥斯汀在确保最坏情况出现后不放弃使用“国家力量”。
-![](https://lh3.googleusercontent.com/lWJPPFGIDV8WEcjdX_6OcJLO9InbETH1Cs9n2jt7ap2hJ1tpBDyEM0qawzx1ZwPr0w0mC0YLWP3k_TZ1GiTfpODutex0x-XiVDgcG4Jv3Q6B0QHQCfibsOfaMbzZ5ap6Bq_fEonZ)[*图片来源*](https://www.nytimes.com/2021/12/07/world/europe/listen-to-the-daily-why-does-american-military-assistance-to-ukraine-matter.html)
-奥斯汀援引国务卿的话说，国务卿相信有机会通过武力以外的方式解决分歧。“我们在边境地区看到了俄罗斯军队的数量，对此表达了数周的担忧。”乌克兰总统沃洛德米尔泽伦斯基说，“最近他担心有人试图破坏他的政府稳定。”奥斯汀说，“当你把所有信息加在一起分析，看起来很熟悉，就像 2014 年俄罗斯第一次入侵乌克兰时的重演。”
+他警告，“如果你继续接种疫苗，你会死的 …… 我拜托你们不要再接种疫苗了，它正在杀死你。”
 
-- ***延展阅读：***[***奥斯汀接受福克斯采访称：乌克兰现在显然不属于北约，不受第5条款保护***](https://www.defense.gov/News/Transcripts/Transcript/Article/2862114/secretary-of-defense-lloyd-j-austin-iii-interview-with-bret-baier-fox-news-at-2/)
+其实，这不是奥鲁尼第一次站出来了，早前他就曾经在一档节目中揭露，自己在政府强推疫苗后发现死亡率飙升，他还指，知道有一些丧葬承办人接受贿赂而隐瞒死亡人数。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-6.jpg)
+来源｜[BitChute](https://www.bitchute.com/video/gigUyK3yLtMU/)
 
-
-奥斯汀在继续谈到台湾时表示，“我们不希望看到现状发生变化，尤其是现状的单方面变化。”他强调台湾的所有紧张局势都应该首先通过外交途径解决，并且国防部还确保这个小国拥有自卫所需的东西，比如像对乌克兰的军事支持。但奥斯汀承认，“美国人对军队的信心有所下降，但他发誓要努力保持国家的信心。”
-
-2021年12月8日
-
-*校对：东京樱花团 / 東洋武士
-发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
