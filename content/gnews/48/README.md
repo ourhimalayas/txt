@@ -2,143 +2,45 @@
 ---
 
 
-## 最新｜社媒消息：辉瑞的董事长兼首席执行官艾伯乐 (Albert Bourla)是个恐怖分子
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1729670/)
+## 12/7/2021国际财经快讯：拜登瞄准全现金房屋交易；全球石油CEO推动清洁能源
+` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1729722/)
 
-**By:[秘翻新闻](https://gtv.org/broadcast/watch/61af21e8bbd75f62e53191ca)**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-32.png)[图片来源](https://dzm0ugdauank9.cloudfront.net/wp-content/uploads/2021/12/2021-12-06T124237Z_1_LYNXMPEHB50HT_RTROPTP_0_USA-BIDEN_1.jpg)
+**1.****拜登在反腐行动中瞄准全现金房屋交易**
 
-**[2021-12-7](https://gtv.org/broadcast/watch/61af21e8bbd75f62e53191ca)**
+[华盛顿（路透社）–拜登政府周一发誓要打击为洗钱而支付现金的 “罪犯、贪污犯和其他人”，作为与本周美国民主峰会相关的更广泛的反腐败行动的一部分。财政部副部长瓦利-阿德耶莫（Wally Adeyemo）在布鲁金斯学会智囊团发言时，承诺将 “积极 “打击可疑的全现金房屋交易，加强执法力度，并加强与盟国的合作。乔-拜登总统在6月命令官员们加强反腐斗争。他们的初步建议在周一发布的38页的美国国家安全反腐战略中有所概述。阿德耶莫说：”我们的房地产市场有可能成为犯罪分子、贪污犯和其他寻求停放腐败利润的人的安全港。”他指出，现行法律允许人们匿名成立公司，进行隐藏资金来源的全现金房地产交易。](https://www.oann.com/biden-targets-cash-for-homes-deals-in-anti-corruption-drive/)
 
-**1.蓬佩奥12月7日发推说：**
+**2.****全球石油CEO强调需要化石燃料，尽管推动清洁能源**
 
-仅外交抵制北京冬奥会是不够的。中共根本不在乎外交抵制，因为世界各国运动员仍会前往北京参赛，他们面临巨大风险。乔·拜登需要站出来反对中共。
+[路透社休斯敦12月6日电–周一，一个专门讨论未来技术和低碳战略的全球能源会议在休斯敦拉开帷幕，能源公司的高层管理人员肯定了未来几十年对更多石油的需求。在为期四天的世界石油大会上，来自全球巨头埃克森美孚公司（XOM.N）、沙特阿美石油公司（2222.SE）和哈里伯顿公司（HAL.N）的首席执行官们都表示，即使世界在向清洁燃料过渡，也需要向全球输送石油和天然气。世界化石燃料需求在2021年大幅反弹，天然气已经达到大流行前的水平，石油接近2019年达到的水平。随着需求的飙升，欧洲和亚洲的经济体不得不面临电力和供暖供应短缺，迫使他们争相购买燃料或限制需求，价格也随之飙升。与此同时，众多产油大国也未能跟上产量目标。](https://www.reuters.com/markets/commodities/houston-oil-conference-speakers-pull-out-over-omicron-worries-2021-12-06/)
 
+**3.****英特尔将上市自动驾驶汽车部门Mobileye的股份**
 
+[12月6日（路透社）–一位熟悉此事的人士告诉路透社，英特尔公司（INTC.O）周一表示，它计划在2022年中期将自动驾驶汽车部门Mobileye在美国上市，这项交易可能使这个以色列部门的价值超过500亿美元。芯片巨头英特尔是以色列高科技行业最大的雇主，拥有近14,000名工人，预计将保留Mobileye的执行团队，并在上市后持有该部门的多数股权。英特尔在2017年以153亿美元收购了自动驾驶汽车技术公司Mobileye，使其在为全球汽车制造商开发无人驾驶系统方面与竞争对手Nvidia和高通公司展开直接竞争。](https://www.reuters.com/markets/us/intel-list-shares-self-driving-car-unit-mobileye-wsj-2021-12-07/)
 
-> A diplomatic boycott of the [#Olympics](https://twitter.com/hashtag/Olympics?src=hash&amp;ref_src=twsrc%5Etfw) is not enough. The CCP doesn’t give a rip about a diplomatic boycott, because at the end of the day, they are still hosting the world’s athletes. Joe Biden needs to stand up to the CCP. [#BoycottBeijingOlympics](https://twitter.com/hashtag/BoycottBeijingOlympics?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Mike Pompeo (@mikepompeo) [December 6, 2021](https://twitter.com/mikepompeo/status/1467931700818755585?ref_src=twsrc%5Etfw)
+**4.****欧米茄担忧缓解，伊朗延期，石油扩大涨幅 **
 
+[新加坡，12月7日（路透社）–油价在前一天反弹近5%后于周二上扬，因对欧米茄变种对全球燃料需求影响的担忧有所缓解，同时伊朗核谈判遭遇路障，推迟了伊朗原油供应的恢复。布伦特原油期货上涨34美分，或0.5%，至0124GMT时的每桶73.42美元，此前周一结算价上涨4.6%。美国西德克萨斯中质原油报每桶69.92美元，上涨43美分，或0.6%，在上一交易日上涨4.9%的基础上继续上涨。由于担心疫苗对新的冠状病毒变种Omicron的效果可能较差，引发了各国政府可能重新实施限制措施以遏制其蔓延并打击全球经济增长和石油需求的担忧，油价上周受到冲击。](https://www.reuters.com/markets/commodities/oil-extends-gains-easing-omicron-fears-iran-delay-2021-12-07/)
 
+**5.****香港开发商将以市场价格的50%折扣提供300套住房**
 
-**2.皮特纳瓦罗12月7日发推说：**
+[香港（路透社）–香港房地产开发商新世界发展有限公司周一表示，它计划在该市首个受补贴的私人住房项目中，以大约50%的市场价格折扣出售300套新房。作为在世界最昂贵的房地产市场之一提供更多可负担住房的举措的一部分，新世界表示，它将要求首付仅为单位价格的5%。此前，新世界在9月表示，它正在启动一个名为 “新世界建设美好 “的研究项目，以解决该市长期存在的住房短缺问题。新世界发展公司首席执行官郑志刚在一份声明中说：“这可能是一小步，但这是重要的一步，我们希望它能鼓励其他香港企业与我们一起创建类似的项目，并回馈社会。”](https://www.oann.com/hong-kong-developer-to-offer-300-homes-at-50-discount-to-market-price/)
 
-辉瑞这个奸商正通过新冠疫苗大发横财，疫苗应该是非盈利的。辉瑞的董事长兼首席执行官艾伯乐 (Albert Bourla)是个恐怖分子，因为他的公司正在操纵和掩盖疫苗数据。辉瑞通过推广加强针疫苗为其股东派发年金。
+**6.****供应链压力缓解，英国建筑业复苏**
 
+[伦敦（路透社）–周一的一项调查显示，英国建筑业的增长在11月创下了四个月的新高，因为供应链的困难似乎已经过了高峰期，商业地产工程的增加抵消了房屋建设的放缓。月度采购经理人数据还显示，通胀压力缓解至4月以来的最低点–尽管从整体上看，通胀压力仍然很高。该调查在很大程度上早于COVID-19的Omicron变体的出现，通胀放缓的迹象可能会鼓励英国央行等待，而不是像人们普遍预期的那样在本月加息。IHS Markit/CIPS英国建筑业采购经理人指数（PMI）从10月份的54.6上升至55.5，IHS Markit表示，对该行业来说，供应链短缺的最糟糕时期似乎已经过去。](https://www.oann.com/uk-construction-sector-gathers-more-speed-pmi/)
 
+**7.****欧元区对经济增长持乐观态度**
 
-> [@Pfizer](https://twitter.com/pfizer?ref_src=twsrc%5Etfw) = profiteer. Vaccines should be non-profit. [@albertbourla](https://twitter.com/AlbertBourla?ref_src=twsrc%5Etfw) of Pfizer is real domestic terrorist with company that rigs/hides data. Wants booster annuity for shareholders. For details, read In Trump Time on Amazon: [https://t.co/KPNUX2SBsy](https://t.co/KPNUX2SBsy)[https://t.co/BfAFJNV26g](https://t.co/BfAFJNV26g)
-> — Peter Navarro (@RealPNavarro) [December 6, 2021](https://twitter.com/RealPNavarro/status/1467899323933507586?ref_src=twsrc%5Etfw)
+[布鲁塞尔（路透社）–尽管出现了欧米茄冠状病毒变种，欧元区各国财政部长周一仍对经济增长前景持乐观态度，他们同意明年继续采取适度支持的财政政策。欧米茄病毒变种增加了一些经济学家的担忧，他们认为可能会有更多的封锁，这可能会在今年的过山车之旅之后降低增长。但部长们却不那么担心。被称为欧元集团的部长们在一份声明中说：”欧元区经济正以比预期更快的速度从衰退中恢复过来，”他们引用了欧盟委员会对2021年和2022年国内生产总值增长的最新预测，即5%和4.3%。部长们说，分享欧元的19个国家的经济有可能在今年年底前按季度恢复到大流行前的水平，尽管各国和各部门的复苏将是不平衡的。](https://www.oann.com/euro-zone-ministers-to-stay-upbeat-on-growth-despite-omicron/)
 
+**8.****破产重组的地产开发商中国恒大股价微涨**
 
+[香港，12月7日（路透社）–中国恒大集团（3333.HK）股价周二早盘上涨逾7%，这家陷入困境的开发商正朝着重组的方向迈进，数月来，全球市场和世界第二大经济体都在关注这一重组。市场正在关注这家房地产巨头是否已经支付了8250万美元的票据，30天的宽限期即将结束，该公司正在努力应对超过3000亿美元的负债，并有可能成为中国有史以来最大的违约。正式违约将引发交叉违约的浪潮，这将波及房地产行业和其他行业，可能会动摇全球投资者的信心，因为冠状病毒的欧米茄变种的出现已经使投资者的信心受到了冲击。恒大的股票在周一创下了历史新低，开盘报1.93港元。](https://www.reuters.com/world/china/developer-china-evergrandes-shares-set-rise-66-restructuring-looms-2021-12-07/)
 
-**3.娜塔莉温特斯12月7日发推说：**
+By 【秘密翻译组-金融组】
+作者：千年等一回
 
-辉瑞公司董事会的新成员苏·德斯蒙德-赫尔曼（Sue Desmond-Hellmann）在2013年3月被脸书任命为董事会成员，并在2015年6月至2019年10月30日期间担任脸书的首席独立董事。
-
-【推文转《国家脉动》报道，在赫尔曼担任辉瑞的董事会成员期间，脸书发起了审查新冠疫苗怀疑者的活动，脸书泄露的内部文件显示，其算法旨在“大幅减少用户接触到对疫苗有怀疑的评论的概率”，以扫清人们的疫苗接种障碍。潜在的另一个利益冲突是，赫尔曼还在拜登总统的科技顾问委员会任职，该委员会被白宫描述为“负责向总统提出科学、技术和创新政策建议的唯一外部顾问机构”。】
-
-
-
-> 🚨🚨🚨
-> 
-> REVEALED: New Pfizer Board Member Is Ex-Facebook Director. [https://t.co/d4EdQMr2Cw](https://t.co/d4EdQMr2Cw)
-> — Natalie Winters (@nataliegwinters) [December 6, 2021](https://twitter.com/nataliegwinters/status/1467972405301850115?ref_src=twsrc%5Etfw)
-
-
-
-**4.《网关专家》12月6日在盖特发文：**
-
-mRNA 疫苗的发明者罗伯特·马龙博士指责福奇和其他人通过阻止使用羟氯喹以及伊维菌素来给中共病毒患者进行治疗，导致50多万名美国人死亡。
-
-有充分证据表明，福奇和美国顶级医生共谋取消硫酸羟氯喹作为中共病毒的治疗方案，并用伪造的研究结果对其进行污蔑和诽谤，数百万人因此不幸逝世。
-
-【盖文转报道，参议员罗恩·约翰逊 (Ron Johnson) 抨击了福奇失败的防疫对策，指责他无视并破坏了使用廉价的和有效的仿制药用于中共病毒的早期治疗，反而选择了一种并不安全或有效的疫苗。现在已经有67项对照研究显示，67%的新冠患者在服用伊维菌素后病情得到改善。有298项研究显示，硫酸羟氯喹可以改善64%的新冠患者病情。】
-[![](https://assets.gnews.org/wp-content/uploads/2021/12/IMAGE-2021-12-07-211202.jpg)](https://gettr.com/post/pivpau362e)
-**5.新唐人12月6日在盖特发文：**
-
-上周末，澳大利亚维多利亚州数千公民连续第五个周六走上墨尔本的街头，抗议疫苗强制令和极具争议的法案–《2021年公共卫生和福利修正案，大流行管理法》。该法案将于12月16日生效，将赋予维多利亚州政府宣布大流行病和发布公共卫生命令的最终权力，并威胁要对违反命令的行为处以高额罚款。人们高举“废除草案”的横幅，该法案现已通过，正等待皇室批准。澳州自由党议员克雷格·凯利 (Craig Kelly)在抗议集会上说：“如果没有政府颁发的许可证，你就无法从事许多行业的工作。这是不民主的、不道德的，是对我们人权的侵犯，我们不应该容忍它。”
-[![](https://assets.gnews.org/wp-content/uploads/2021/12/IMAGE-2021-12-07-211505.jpg)](https://gettr.com/post/piufvyca01)
-**6.新唐人12月6日在盖特发文：**
-
-美国太空军副司令大卫·汤普森（David Thompson）12月4日在一个论坛上警告说：“中共正以两倍于我们的速度建设、部署和更新其太空能力。这意味着，很快，如果我们不开始加速我们的开发和交付能力，到 2030 年，中共在太空能力方面可能会超过美国。美国现在在许多太空领域正与中共进行战略竞争，但我毫不怀疑，我们完全有能力在这场竞争中获胜。”
-[![](https://assets.gnews.org/wp-content/uploads/2021/12/IMAGE-2021-12-07-211811.jpg)](https://gettr.com/post/pivpjl4d26)
-**7.Newsmax 12月6日发推说：**
-
-中共外交部发言人赵立坚12月6日威胁说，如果美国继续外交抵制明年2月举行的北京冬奥会，中共将采取措施进行“坚决反制”，但没有详细说明中共将如何报复。尽管美国总统拜登已正式宣布不派官方代表团参加北京冬季奥运会，但美国运动员仍将参加比赛。派遣高级别代表团参加每届奥运会一直是美国和其他主要国家的传统，目前还不清楚美国可能会派谁去北京参加奥运会。澳大利亚与中共的关系因一系列争端而恶化，它也提出了进行外交抵制的可能性。
-
-
-
-> China on Monday threatened to take “firm countermeasures” if the U.S. proceeds with a diplomatic boycott of February’s Beijing Winter Olympic Games. [https://t.co/fZAHan65lZ](https://t.co/fZAHan65lZ)
-> — Newsmax (@newsmax) [December 6, 2021](https://twitter.com/newsmax/status/1467843939143061505?ref_src=twsrc%5Etfw)
-
-
-
-**8.罗伯特马龙12月6日发推说：**
-
-美国第六巡回上诉法院在12月3日的裁决中，驳回了拜登政府将职业安全与健康管理局的新冠疫苗或测试要求的诉讼转移到其他法院的动议，同时也拒绝了白宫解除暂停疫苗强制令的提议，这对拜登当局的疫苗强制令造成了打击。
-
-
-
-> "The 6th Circuit Court denied the gov’s motion to transfer the OSHA vaccine-or-test req. lawsuit to a different court, while also rejecting the WH’s bid to dissolve a stay on the mandate, delivering a blow to the Biden admin’s efforts with implementation[https://t.co/DJ89WBNEPz](https://t.co/DJ89WBNEPz)
-> — Robert W Malone, MD (@RWMaloneMD) [December 5, 2021](https://twitter.com/RWMaloneMD/status/1467542141677285392?ref_src=twsrc%5Etfw)
-
-
-
-**9.真正美国之声12月7日发推说：**
-
-美国食品药品监督管理局FDA警告说，100多种药品正面临供应链短缺。
-
-【推文转报道，目前被FDA列入“短缺名单”的药物包括抗抑郁药、抗生素、心脏治疗药、抗癌药和止痛药。FDA在一份声明中写道：“FDA药物评估和研究中心的工作人员已经要求制造商评估他们的整个供应链，包括活性药物成分、成品剂量形式和任何可能因新冠疫情爆发而在供应链的任何区域受到影响的部分。”由FDA监管的产品占美国进口的14%，出口的15%。该机构还报告说：“大约80%的活性药物成分制造商位于美国之外。“全国社区药剂师协会11月的民意调查显示，60%的药店面临供应链中断的情况，更严重的问题是，68%的药店表示他们正面临人员短缺。】
-
-
-
-> More than 100 pharmaceutical drugs are facing supply chain shortages, the U.S. Food and Drug Administration warned.[https://t.co/tIosuUobKL](https://t.co/tIosuUobKL)
-> — Real America's Voice (RAV) (@RealAmVoice) [December 7, 2021](https://twitter.com/RealAmVoice/status/1468008604632596480?ref_src=twsrc%5Etfw)
-
-
-
-**10.Disclose.tv 12月7日发推说：**
-
-德国150家大企业纷纷将其品牌宣传语改为忽悠大家接种新冠疫苗，以配合德国政府有史以来规模最大的“疫苗接种宣传活动”。
-
-
-
-> JUST IN – 150 big corporations change brand claims in Germany for the largest "vaccination promotion campaign" ever. [pic.twitter.com/A4gJ8Qv97B](https://t.co/A4gJ8Qv97B)
-> — Disclose.tv (@disclosetv) [December 6, 2021](https://twitter.com/disclosetv/status/1467894541906817028?ref_src=twsrc%5Etfw)
-
-
-
-**11.Disclose.tv 12月7日发推说：**
-
-据《日经亚洲》报道，日本将对稳定币实行新限制，将限制由储备资产，比如如美元或日元支持的加密货币发行数量，比如泰达币 (Tether)。日本金融厅寻求在2022年提出立法，限制向银行和电汇公司发行稳定币。
-
-
-
-> JUST IN – Japan to restrict crypto stablecoins: Only banks, wire transfer companies to issue currency-backed coins such as [#Tether](https://twitter.com/hashtag/Tether?src=hash&amp;ref_src=twsrc%5Etfw) in proposed legislation (Nikkei)
-> — Disclose.tv (@disclosetv) [December 6, 2021](https://twitter.com/disclosetv/status/1467927237613785090?ref_src=twsrc%5Etfw)
-
-
-
-**12. 杰森米勒12月7日在盖特发文：**
-
-盖特网页版新增了“夜间”模式！感谢盖特的工程师团队！
-[![](https://assets.gnews.org/wp-content/uploads/2021/12/IMAGE-2021-12-07-213334.jpg)](https://gettr.com/post/piv6u3802f)
-**13.秘密翻译组12月6日在盖特发文：**
-
-泽伦科医生12月1日在接受Infowars采访时说：“真正的病毒是长期灌输进人们脑子里的恐惧言论，推动疫苗势力借此维持群体在精神上的病态。我们知道焦虑和人类群体的相互隔离导致心理代偿失调，而当人们处于那种脆弱的心理状态时，就可以被操纵和强迫，变得容易上当，去做有权势的人让你做的事情。在这种特殊情况下，人们就回去接种有毒并且致命的毒疫苗，从而患上血栓、心脏病、中风、心肌炎等症状，流产率从10%上升到82%，癌症、自身性免疫疾病增多，卵巢睾丸出现功能障碍，很有可能导致不育。但是所有这些与抗体依赖性增强导致群体灭绝的可能性相比，都算不上什么！疫苗的致命程度比天然病毒高100倍，越南刚发布的数据说，感染了中共病毒的人群中，接种者携带的病毒量是未接种者的251倍，这与以色列的数据一致。
-[![](https://assets.gnews.org/wp-content/uploads/2021/12/IMAGE-2021-12-07-213501.jpg)](https://gettr.com/post/piufnx03f4)
-**14.Eglise医生12月7日在盖特发文：**
-
-伊维菌素是个抗病毒”巨无霸”，通过蛋白质定量研究发现伊维菌素有广谱抗病毒能力。伊维菌素非但能抑制新冠病毒的复制，还对巨细胞病毒、人乳头瘤状病毒、EB病毒、艾滋病毒等等有抑制作用。
-[![](https://assets.gnews.org/wp-content/uploads/2021/12/IMAGE-2021-12-07-213612.jpg)](https://gettr.com/post/piw9h0ea83)
-***以上信息和作者观点不代表Gnews平台***
-
-发布:星星
-
-* * *
-
-**欢迎广大战友加入 【秘密翻译组-即时新闻播报组】**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/IMAGE-2021-11-29-195110.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

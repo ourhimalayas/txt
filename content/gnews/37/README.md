@@ -2,48 +2,44 @@
 ---
 
 
-## 美台将于芯片领域在新框架下开展合作
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1731221/)
+## 完全接种的美国第一例Omicron病人有话说
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1731246/)
 
-作者：纽约香草山农场 – 四季
+编译： Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/nyc-testing-1200x800-700x420-5.jpg)行人于 2021 年 12 月 2 日在纽约市通过 COVID-19 测试帐篷。（John Minchillo/美联社照片
 
+一名 30 岁的明尼苏达州男子周一透露，他接种了加强剂，是最早确诊的 COVID-19 Omicron 变体病例之一。
 
+彼得·麦金（Peter McGinn）说，他于 11 月底参加了纽约市的一个动漫大会，后来当他回到明尼苏达州时，他的 COVID-19 检测呈阳性，这种疾病是由中共病毒引起的。
 
+麦金在周一发表的一次采访中告诉美国广播公司新闻：“和我在一起的人感到非常安全，所以我从来没有想过自己感染了新冠病毒。” “我有点吃惊。”
 
+麦金说，他和其他完全接种疫苗的参加者去了动漫活动。他告诉** ABC**，那群人中有一半人的病毒检测呈阳性。
 
-据[OAN](https://www.oann.com/u-s-taiwan-discuss-chips-again-to-cooperate-under-new-framework/)网站援引路透社12月7日的报道，美国商务部长吉娜·雷蒙多(Gina Raimondo) 在周一与台湾经济部长王美花通话中表示，美台将通过新的技术贸易和投资合作（或称TTIC）框架，在技术贸易和投资方面进行合作。
+麦金还告诉《星际论坛报》，阳性的 COVID-19“让我感到很不舒服，因为我真的没有感觉不对劲”，并补充说，他出现了轻微的症状。他说，明尼苏达州卫生部几天后打电话给他，告诉他说他感染了 Omicron 变种。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1635-1.jpg)2021年11月9日，在美国华盛顿的白宫，美国商务部长吉娜-雷蒙多在白宫副新闻秘书卡琳-让-皮埃尔举行的新闻发布会上发言。（路透社利亚·米利斯）
+麦金继续说，该机构要求提供与他在一起的人的姓名，以及他们住在哪里以进行追踪。
 
-双方讨论了台湾在全球供应链中发挥的关键作用。美方强调了对台湾的支持以及美台商业和投资关系的重要性，并表示，美国有兴趣与台湾继续就共同的商业问题进行合作，特别是在半导体供应链和相关生态系统领域。并承诺通过确定其他步骤来支持半导体和其他关键供应链。
+“老实说，我一直感觉很好，”他说，并补充说，他相信疫苗有助于他的康复。 “我对看到结果更感兴趣，比如，是否有更多的人得到这个结果，以及他们对它的反应。”
 
-早前，美国已多次向作为主要芯片生产国的台湾施加压力，要求其做出更多努力，帮助解决全球半导体短缺的问题。这一问题已使一些汽车生产线关闭，并影响到消费品的生产。
+上周在加利福尼亚湾区报告了第一例确诊的 Omicron 病例。关于此人的信息很少被披露。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月.png)
+到目前为止，根据对新闻报道的分析，在美国大约三分之一的州中发现了 Omicron 变体。此前，世卫组织将这种菌株描述为“令人担忧的变种”。但警告说，人们对它是否更具传染性或导致更严重的症状知之甚少。
 
-编辑/校对/发稿：小鹿
+世界上任何地方都没有与 Omicron 变体相关的死亡。
 
+**点评：由于“疫苗”给人的误导，使得接种了实验药物的人们处在更危险之中！**
 
+参考资料：[theepochtimes] [Fully Vaccinated Man Who Became One of the 1st American Omicron Cases Speaks Out](https://www.theepochtimes.com/fully-vaccinated-man-who-became-one-of-the-1st-american-omicron-cases-speaks-out_4141206.html?utm_source=CCPVirusNewsletter&amp;utm_medium=email&amp;utm_campaign=2021-12-07)
 
-**更多资讯，更多关注**
+* * *
 
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+*审核：文乐
+校对：信心满满
+发布：信心的选择*
 
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH..jpeg)
 
  
 

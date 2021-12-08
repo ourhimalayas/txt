@@ -2,25 +2,79 @@
 ---
 
 
-## 法官暂停拜登政府针对全美联邦承包商的疫苗强制令
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1731600/)
+## 众议院军事委员会： 2022年国防开支案为我们的军队在与中共国的冲突中取得胜利做好准备
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1731608/)
 
-翻译：zzballack
-上传：追着曙光跑
+众议院军事委员会： 2022年国防开支案为我们的军队在与中国的冲突中取得胜利做好准备： 提供超过 70 亿美元的威慑资金 让 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 脱离国防部的供应链 对抗中共国人的恶性影响 大力支持台湾 寻求有关 COVID-19 起源的答案
 
-据《美联社》（Associated Press）12月8日报道，美国乔治亚州奥古斯塔（Augusta）的联邦地方法院法官斯坦·贝克（Stan Baker）12月7日发布了全美国范围内的禁令，禁止执行拜登政府针对联邦机构承包商的强制疫苗令。贝克法官裁定，拜登要求所有联邦承包商在2022年1月18日之前全面接种新冠疫苗，这超越了他的权力。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Image-2021-12-08-at-11.29.48.jpeg)图片来源：网络
-这起诉讼由乔治亚州、阿拉巴马州、印第安纳州、堪萨斯州、南卡罗来纳州、犹他州和西弗吉尼亚州的州检察长，以及代表承包商的一个贸易团体–美国全国贸易协会（Associated Builders and Contractors）发起。
 
-贝克法官在判决书中写道：“在实际应用中，这个疫苗强制令是作为公共卫生的法规来运作的。但它将对整个经济产生重大影响，因为它限制了承包商和其成员执行联邦合同工作的能力。对联邦承包商来，这项命令是昂贵、艰巨的任务，并可能导致他们可用的员工、劳动力减少。因此，它似乎具有巨大的经济和政治意义。即使在危机时期，本法院也必须维护法治，并确保政府所有部门在其宪法赋予的权力范围内行事。”法官表示，这项暂停白宫要求联邦承包商和分包商接种新冠疫苗的命令，适用于“美国任何州或地区的所有相关合同承包商”。
 
-11月30日，肯塔基州东区地区法院法官格雷戈里·范·塔滕霍夫（Gregory Van Tatenhove）也发布了初步禁令，暂停执行针对联邦合同承包商的疫苗强制令，但只适用于肯塔基州、田纳西州和俄亥俄州的承包商。
+> The FY22 NDAA prepares our military to prevail in conflict with China:
+> 
+> ✅Provides over $7 billion in funding for deterrence
+> ✅Gets China out of DoD supply chains 
+> ✅Counters Chinese Malign Influence 
+> ✅Strong support for Taiwan
+> ✅Seeks answers on the origin of COVID-19 [pic.twitter.com/Ri1iuIcs49](https://t.co/Ri1iuIcs49)
+> — Armed Services GOP (@HASCRepublicans) [December 7, 2021](https://twitter.com/HASCRepublicans/status/1468323633378517003?ref_src=twsrc%5Etfw)
 
-建筑业集团（the construction industry group）副总裁本·布鲁贝克（Ben Brubeck）在一份声明中说：“这是消除建筑业合规障碍的一大胜利，建筑业正面临着各种经济挑战，如43万劳动力短缺、材料价格上涨和供应链问题。”乔治亚州州长布莱恩·坎普 (Brian Kemp) 发推表示，这项裁决对工人的生活至关重要，“因为他们担心被迫在疫苗和他们的生计之间做出选择。”
 
-随着这项裁决，目前，拜登政府针对私营部门的所有三项疫苗强制令均被法院暂停。另外两项是针对拥有100名雇员以上企业和全美医护人员的疫苗强制令。
 
-新闻来源：[Judge blocks Biden’s vaccine mandate for federal contractors](https://apnews.com/article/coronavirus-pandemic-vaccine-joe-biden-mandate-045740388704)
+参议员瑞克·斯科特：我晚上10:00上劳拉·英格拉汉姆[@IngrahamAngle](https://twitter.com/IngrahamAngle)的节目谈论乔·拜登软弱的外交抵制2022年北京奥运会[@Olympics](https://twitter.com/Olympics)，以及我给[@NBA](https://twitter.com/NBA)的信，谴责它没有站出来反对 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 骇人听闻的侵犯人权和种族灭绝罪行。 欢迎收看/收听！
+
+
+
+> 🚨I’ll be on the [@IngrahamAngle](https://twitter.com/IngrahamAngle?ref_src=twsrc%5Etfw) at 10:00 PM to talk about Joe Biden’s weak diplomatic boycott of the 2022 [@Olympics](https://twitter.com/Olympics?ref_src=twsrc%5Etfw) & my letter to the [@NBA](https://twitter.com/NBA?ref_src=twsrc%5Etfw) on its failure to stand up against Communist China’s horrific human rights abuses & genocide. Tune in! [pic.twitter.com/EtteYlKcEf](https://t.co/EtteYlKcEf)
+> — Rick Scott (@SenRickScott) [December 8, 2021](https://twitter.com/SenRickScott/status/1468400049764057088?ref_src=twsrc%5Etfw)
+
+
+
+参议员卢比奥新闻办： 卢比奥参议员在一次中国委员会[@CECCgov](https://twitter.com/CECCgov)的听证会上发言，在那里，他讨论了美国如何应对中共 [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 的经济胁迫，并谴责美国大公司“懦弱”地游说反对他的’维吾尔强迫劳动预防法’法案 [#UyghurForcedLabor](https://twitter.com/hashtag/UyghurForcedLabor?src=hashtag_click)。
+
+
+
+> Sen Rubio spoke during a [@CECCgov](https://twitter.com/CECCgov?ref_src=twsrc%5Etfw) hearing, where he discussed how the U.S. can counter the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s use of economic coercion & called out major American corporations for their “cowardly” efforts to lobby against his [#UyghurForcedLabor](https://twitter.com/hashtag/UyghurForcedLabor?src=hash&amp;ref_src=twsrc%5Etfw) bill.
+> 
+> Read & watch 👇[https://t.co/8O6ea8d9Z2](https://t.co/8O6ea8d9Z2)
+> — Senator Rubio Press (@SenRubioPress) [December 7, 2021](https://twitter.com/SenRubioPress/status/1468345824933564416?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿蓬佩奥： 一个负责任的美国领导人怎么能在看了国际女子网球明星彭帅的遭遇后得出结论，我们的运动员在 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 境内是安全的？
+
+
+
+> How can responsible U.S. leaders look at what has happened to international women’s tennis star Peng Shuai and conclude that our athletes will be safe inside Communist China’s borders?
+> — Mike Pompeo (@mikepompeo) [December 7, 2021](https://twitter.com/mikepompeo/status/1468336988227096582?ref_src=twsrc%5Etfw)
+
+
+
+众议员莫·布鲁克斯： 我关于需要成立特别委员会对亨特·拜登进行全面调查的声明： 【附布鲁克斯众议员的声明全文】
+
+
+
+> My statement on the need for a full select committee investigation into Hunter Biden: [pic.twitter.com/bYG1OKBJW4](https://t.co/bYG1OKBJW4)
+> — Mo Brooks (@RepMoBrooks) [December 7, 2021](https://twitter.com/RepMoBrooks/status/1468323805282156551?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克·麦考尔： 私营公司，如谷歌和微软，正在加紧对抗俄罗斯和中共国 黑客。这表明美政府正在取得进展和私营公司打击俄罗斯和中共黑客祸害的能力。 【转推：谷歌正在起诉两名俄罗斯人，据称他们是一个庞大的计算机网络中毒的幕后黑手，这些计算机已被用于窃取个人信息秘密开采比特币等犯罪活动】
+
+
+
+> Private sector companies, like [@Google](https://twitter.com/Google?ref_src=twsrc%5Etfw) and [@Microsoft](https://twitter.com/Microsoft?ref_src=twsrc%5Etfw), are stepping up against Russian and PRC hackers. This demonstrates the progress that is being made in the USG and the private sector’s ability to combat the scourge of Russian and CCP hackers. [https://t.co/qWFkhEBB1Q](https://t.co/qWFkhEBB1Q)
+> — Michael McCaul (@RepMcCaul) [December 7, 2021](https://twitter.com/RepMcCaul/status/1468318110679810050?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克·加西亚： 由于加州港口的积压，[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 正在支付额外费用以取回空集装箱——导致美国商品无法出口。 拜登政府和加州的政策正在将美国(利益)放在中共国之后。 这是无法接受的。 【转华尔街日报：供应链混乱使南加州淹没在空集装箱中】
+
+
+
+> Due to the backlog at CA ports, China is paying premiums to get their empty containers back – resulting in American goods failing to be exported. The Biden admin & CA’s policies are putting America 2nd to China. This is unacceptable.[https://t.co/KlGh2ZeslS](https://t.co/KlGh2ZeslS)
+> — Rep. Mike Garcia (@RepMikeGarcia) [December 7, 2021](https://twitter.com/RepMikeGarcia/status/1468251521750118400?ref_src=twsrc%5Etfw)
+
+
 
  
 

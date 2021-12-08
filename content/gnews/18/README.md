@@ -2,10 +2,10 @@
 ---
 
 
-## 日本政府考虑跟随美国外交抵制北京冬奥会
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1731538/)
+## 法官裁定拜登停止所有中共病毒疫苗强制令
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1731545/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12._08-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1208-scaled.jpg)
 *编辑：东京樱花团/简报小组
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
