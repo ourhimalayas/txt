@@ -2,44 +2,38 @@
 ---
 
 
-## Hcoin To the Moon 上线第6天位列7国iTunes摇滚音乐榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1732742/)
+## 白宫正式宣布外交抵制2022北京冬奥会
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1732839/)
 
-12/08/2021 郭文贵先生的歌曲Hcoin To the Moon上线第6天位列7国iTunes摇滚音乐榜首
+**撰稿：日本东京方舟农场  老孙**
+
+12月6日，白宫发言人普萨基在新闻发布会上，正式宣布外交抵制北京冬季奥运会。
+
+白宫发言人表示，鉴于中共国在新疆进行的种族灭绝和反人类罪，以及其它侵犯人权的行为，拜登政府将不派外交人员或官方代表出席北京2022年冬奥委会和残奥委会。
+
+今年2月3日，全球180个国际人权组织曾发表公开信，集体向各国政府呼吁抵制中共主办的冬季奥运会。
+
+12月2日，中共政府伙同国际奥会共同起草《北京冬季奥运奥林匹克休战决议》，并在当日的联合国大会上通过。该决议呼吁各国在北京冬奥开幕的前后7日内，搁置冲突。但包括美国、加拿大、英国、澳洲、印度、日本等20国拒签此决议，旨在向中共传递对其侵犯新疆人权、香港议题和网球名将彭帅事件等诸多严重违反人的行为的不满。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/微信图片_20211208131516.png)北京2022冬季奥运会组委会外的标志（路透社资料照）
+
+此前，已有瑞士、澳大利亚、德国、立陶宛等多个国家主要官员，发表抵制北京冬奥会或考虑抵制北京冬奥会的言论。同时，NBA球星埃内斯·坎特也公开表示，所有的运动员和国家有责任站出来抵制北京冬奥会。
+
+此外，白宫抵制北京冬奥会的消息一出，新西兰政府随即公开表示，拒派部长级官员出席北京冬奥会。
+
+抵制2022年北京冬奥会，已成为国际社会有识之士的广泛共识。
+
+*参考链接：*
+
+[拜登预计本周宣布外交抵制北京冬奥会](https://www.voachinese.com/a/biden-diplomatic-boycott-beijing-olympics-20211206/6340873.html)
 
 * * *
 
-[【PDF 下载】Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+*素材采编：老孙*
 
-* * *
+*编辑：文顺*
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_2.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_3.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_4.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_6.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_8.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_11.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_12.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_13.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_14.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_15.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_16.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_17.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_18.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_19.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_20.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_21.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_22.jpg)
-
-
-[【PDF 下载】Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-8-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+*发布：Ranting*
 
  
 
