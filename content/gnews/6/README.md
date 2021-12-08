@@ -2,23 +2,22 @@
 ---
 
 
-## 有声|拜登宣布使用太空新战略与中俄竞争
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1732037/)
+## 有声|日本政府、媒体强硬回击中共
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1732057/)
 
 配音：香草山香港部 – 文凯琳
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-2.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo.png)
 
 
 
-当地时间12月1日，拜登政府宣布美国使用太空新战略，对太空进行民间、商业和与国家安全相关的负责任的使用，以应对中共和俄罗斯的威胁。
+日本前首相安倍晋三在出席台湾智库论坛时的表态继续发酵，中共泼妇骂街的丑陋行径导致日本政府和媒体发表强硬回击。
 
-中共今年实验了超高音速武器，增加了地球轨道武器竞赛的前景，而地球轨道武器系统可能躲避目前的导弹防御系统。拜登政府同时谴责俄罗斯上月进行的反卫星武器实验，后者产生的碎片对国际空间站构成了威胁。
+据日本TBS新闻报道，安倍前首相发出警告，“军事上的冒险将导致经济上的自杀”，来牵制日益对台湾军事施压的中共后，中共外交部做出了激烈的反应。日媒称，在外交部发言人愤怒表态后，连夜召见日本驻中共国大使的行为是非常罕见的。
 
-
-原文链接：[拜登宣布使用太空新战略与中俄竞争](https://gnews.org/zh-hans/1727857/)
+原文链接：[日本政府、媒体强硬回击中共](https://gnews.org/zh-hans/1727878/%20GNEWS)
 
 音频处理：喜山必胜Maverick
 发稿：Daxia
@@ -36,9 +35,7 @@
 [**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-2.png)
-
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-1.png)
 
 
  
