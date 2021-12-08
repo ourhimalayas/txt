@@ -2,48 +2,22 @@
 ---
 
 
-## 人权组织报告亚洲区台湾自由度最高
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1731901/)
+## 中共说美国外交抵制违背了奥运会精神
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1731950/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-5-768x103-4.jpg)
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-34.png)
+图片来源：www.rfa.org
 
-作者：纽约香草山 医疗部 云豹
+美联社12月7日报道，中共指责美国拜登政府昨天宣布因人权问题进行外交抵制在北京举行的冬季奥运会，认为此举违背了奥运会精神。
+美国右派团体一直在推动成熟的奥运会抵制活动，指控中共对少数民族人权的践踏，美国政府的决定并未完全达到这些右派团队的要求，但也招来了国家间关系的紧张尤其是中共的强烈批评。
+外交部发言人赵立坚说：“美国在努力将中共举办冬奥会列为意识形态偏见，是基于谎言和谣言。该抵制行为严重违反了政治中性化的，基于奥林匹克宪章的原则，完全与奥林匹克的‘更加团结’的座右铭背道而驰。”
+赵立坚发誓说中共将就此推出反制措施，他说：“美国将为此付出代价，你们等着瞧吧。”
+周一白宫新闻秘书简·萨基告诉记者，拜登完全支持美国运动员为比赛而付出努力，但不会派外交官和其他官员出席。
+中共驻华盛顿大使在推特上说：“ 事实上，没有人关心这些官员来或不来，这不会影响2022北京冬奥会的成功举行。”。
+美国和其他主要国家派遣高规格的代表团参加奥运会或冬奥会长期以来一直是一个传统，布什参加2008年北京奥运会，今年在日本东京举行的夏季奥运会上，第一夫人吉尔·拜登带队前往参加。
 
-
-
-当地时间12月8日，非政府人权组织CIVICUS在曼谷发表全球公民活动空间的自由程度报告，台湾连续3年被列为亚洲地区唯一自由度「开放」的国家。
-
-CIVICUS今天发布「2021年受威胁的公民力量报告」（People Power Under Attack 2021），该调查是从言论自由、新闻自由、集会自由等多个层面来评估全球各国公民的活动自由度。该自由度评比区分为5级，最好的一级是「开放」（Open），接着分别为「狭碍」（Narrowed ）、「受阻」（Obstructed）、「压制」（Repressed）、「封锁」（Closed）。
-
-亚洲地区26个国家中，台湾是唯一被评比为第一级、自由度开放的国家；日本、蒙古、韩国被列为第二级、自由度狭碍；中共、北韩、越南、寮国等4个国家被评比为第五级、自由度封锁。
-
-报告中指出，台湾保障所有人民的基本自由，政府容忍公民社会团体的批评，异议分子可以自由表达意见而不需要害怕被入罪或是攻击，民众可以和平集会，也可以没有阻碍、自由的组织和运作公民社会团体。
-
-台湾从数十年前的威权戒严，一党专政的年代，经过民众持续不断的抗争奋斗、流血、牺牲生命，才慢慢争取到今日相对自由的环境。所以自由是要民众自己努力去争取，不会凭空由天上掉下来，这是所有追求自由的民众都要具备的决心。
-
-(本文为作者观点，不代表G NEWS立场)
-
-新闻连接：
-
-[https://www.cna.com.tw/news/firstnews/202112080021.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/firstnews/202112080021.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec.png)
-
-
-
-校对/编辑/发稿：云豹
-
-**更多信息，更多关注**
-
-[**纽约香草山农场**** GTV****–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+##### **新闻来源： **[China says US diplomatic boycott violates Olympic spirit](https://apnews.com/article/sports-china-boycotts-united-states-beijing-706bba0b553d283e70af9f701341e945)
 
  
 

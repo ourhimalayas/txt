@@ -2,26 +2,24 @@
 ---
 
 
-## 比特币监管问题凸显，喜币是数字货币的未来
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1732072/)
+## 中风救急“神药”涨至860元一颗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1732074/)
 
-作者：银河勇气星 – 骄子
+作者：纽约香草山教育部 – Noemi
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-12月1日，美国证券交易所委员会，即美国SEC，驳回了总部位于纽约的Wisdom Tree公司申请的关于成立现货比特币交易基金的请求。
+12月6日，有墙内媒体报道，同仁堂天价“神药”安宫牛黄丸近日再次提价10%，达到了860元1盒。该药每1盒中仅含1颗约重3克的中药丸。
 
-SEC指出，Wisdom Tree的比特币交易基金缺乏“监视共享协议”，未履行《外汇法》中关于“防止欺诈和操纵行为”以及“保护投资者和公共利益”的要求。这是SEC对现货比特币交易基金的第二次拒绝。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture2-6.jpg)
-针对数字货币的监管问题。12月3日，郭先生在直播中指出，数字货币，尤其是比特币，因不受任何部门的监管，可能一夜之间消失，或者是在受到严格的监管一段时间后逐渐消失。
+有同仁堂药店内部人员表示，仅在涨价的前一晚，安宫牛黄丸销售量就超出了1000多盒。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture4-4.jpg)
+据了解，目前在中共国内，安宫牛黄丸独占血管疾病中成药市场的“半壁江山”。仅2021年中，该销售额就超过30亿，增长率达30%。
 
-在诸多因素作用下，近日比特币大跌，24小时跌幅超过17%。这反应了投资者对比特币交易市场欺诈和操纵的担忧与日俱增。
+据相关人士分析，安宫牛黄丸成为天价“神药”，与墙内疫苗灾难导致的脑中风患者数量急增相关。
 
-另一方面，刚刚上市的喜币备受市场欢迎。喜币将责任中心化，用稳定币和数字币的设计，不仅接受各国法律的监管，并且在未来的市场中只寻求合作，不企图一家独大，是数字货币的未来。
+参考链接：[中风救急“神药”涨至860元一颗](http://finance.china.com.cn/industry/medicine/20211207/5703841.shtml%20https://med.sina.com/article_detail_100_1_108038.html)
 
-参考链接：[比特币监管问题凸显，喜币是数字货币的未来](https://forkast.news/headlines/sec-denies-wisdomtree-spot-bitcoin-etf/)
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-[![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)](https://forkast.news/headlines/sec-denies-wisdomtree-spot-bitcoin-etf/)
-
-总编：木白
+总编：飞虹
 编辑：木白
 校对/发稿：Hetangyuese
 

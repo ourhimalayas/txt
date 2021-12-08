@@ -2,38 +2,55 @@
 ---
 
 
-## 墙内再现房企债务违约、资不抵债 打脸中共维稳
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1732073/)
+## 有声|【信仰之声】「启示录」的启示（1）爱是永恒的能量
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1732093/)
 
-作者：日本方舟农场 – Andy5
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-12月6日，墙内媒体报道，著名房地产企业阳光100中国发生了金额超1.7亿美元的债务违约。该笔债务已经于12月5日到期，但阳光100中国无法偿还。
+配音：香草山香港部 – 文凯琳
 
-仅仅在3天前的12月3日，中共证监会还称恒大2.6亿美元的债务爆雷只是个案，不会影响中长期房地产市场的正常融资功能。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture3-5.jpg)
-事实上，不只阳光100中国，12月3日当天，总部位于广州的房企中国奥园就被曝出资金紧张、评级下调，宣布延期兑付约9亿美元的债务。另一家在11月通过债转股成功延期的地产企业阳光城，则被曝出评级从C级直落到接近“实质性违约”的RR5评级。其仅有的现金和等价物根本不足以偿还短期债务。面临同样状况的还有已经被大家熟知的华夏幸福，相对于超过1000亿元的债务，华夏幸福的净资产还不到500亿元，不足以偿还一半的债务。
 
-有分析人士指出，墙内房企所面临的债务违约绝非中共说的个例，而是在接连发生。
 
-参考链接：
-1. [墙内再现房企债务违约、资不抵债 打脸中共维稳](https://finance.sina.com.cn/roll/2021-12-06/doc-ikyakumx2352027.shtml)
-2. [墙内再现房企债务违约、资不抵债 打脸中共维稳](http://finance.ce.cn/stock/gsgdbd/202112/06/t20211206_37146354.shtml)
-3. [墙内再现房企债务违约、资不抵债 打脸中共维稳](http://www.jntimes.cn/fwrx/202112/t20211205_7336492.shtml)
-4. [墙内再现房企债务违约、资不抵债 打脸中共维稳](http://finance.people.com.cn/n1/2021/1205/c1004-32299742.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-6.jpg)
 
-![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-总编：Irene木木
-编辑：飞虹
-校对/发稿：Hetangyuese
+
+**「**启示录**」**对我来说，奇幻磅礴，气势恢弘。每个章节的信息都奥秘无穷，震撼人心。基督再来时的大审判，殉道者和没有与撒旦联合的人将要和基督一同作王一千年。从第一章开始，就让我重新感受“信仰”的意义——在信靠中仰望。
+
+先回顾**「**使徒行传**」**中，主耶稣升天的情景。
+
+(使徒行传经文)
+
+1:9说了这话，他们正看的时候，他就被取上升，有一朵云彩把他接去，便看不见他了。
+
+1:10当他往上去，他们定睛望天的时候，忽然有两个人身穿白衣，站在旁边，说：
+
+1:11“加利利人哪，你们为什么站着望天呢？这离开你们被接升天的耶稣，你们见他怎样往天上去，他还要怎样来。”
+
+主耶稣用自己的生命和宝血赎了我们的罪，复活四十天后，回到了天上父那里，至今没有再来。一代一代的基督徒今天仍然翘首企盼。
+
+（雅各书经文）
+
+5:8 你们也当忍耐，坚固你们的心，因为主来的日子近了。
+
+原文链接：[「启示录」的启示（1）爱是永恒的能量](https://gnews.org/zh-hans/1727681/)
+
+音频处理：喜山必胜Maverick
+
+发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/rl-1-556x720.png)
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
