@@ -2,42 +2,32 @@
 ---
 
 
-## 有声|日本政府、媒体强硬回击中共
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1732057/)
+## 香草山农场发布儿童新冠防治方案详解
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1732071/)
 
-配音：香草山香港部 – 文凯琳
+作者：东京樱花团 – 在远方
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+12月7日，新中国联邦纽约香草山农场医疗部，在Gettr发布了最新的新冠防治方案详解。最重要的是，该方案包含了根据体重确定服用药量的儿童防治方案。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture1-11.jpg)
+该方案由香草山农场医疗部的Eglise医生和战友们，根据郭文贵先生爆料，参照多种方案翻译，并综合世界各地战友的提问后，以简明易懂的方式列出，包括几种不同的预防和治疗方法。
 
+在当前全世界政府和主流媒体都极力掩饰中共病毒真相和治疗方法时，香草山医疗部发布的该防治方案，为在黑暗和恐惧种挣扎的人们带来了一丝希望和曙光。该医疗部声明，该详解仅供参考。如遇不适，请咨询当地医生。如果患者错误使用药物或者剂量，Gettr和香草山农场医疗部均不承担法律责任。
 
+参考链接：[香草山农场发布儿童新冠防治方案详解](https://gettr.com/post/peunhudb98)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-
-
-日本前首相安倍晋三在出席台湾智库论坛时的表态继续发酵，中共泼妇骂街的丑陋行径导致日本政府和媒体发表强硬回击。
-
-据日本TBS新闻报道，安倍前首相发出警告，“军事上的冒险将导致经济上的自杀”，来牵制日益对台湾军事施压的中共后，中共外交部做出了激烈的反应。日媒称，在外交部发言人愤怒表态后，连夜召见日本驻中共国大使的行为是非常罕见的。
-
-原文链接：[日本政府、媒体强硬回击中共](https://gnews.org/zh-hans/1727878/%20GNEWS)
-
-音频处理：喜山必胜Maverick
-发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/rl-1-556x720.png)
+总编：木白
+编辑：飞虹
+校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-1.png)
-
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

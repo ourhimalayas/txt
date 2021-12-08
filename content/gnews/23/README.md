@@ -2,39 +2,26 @@
 ---
 
 
-## 澳洲著名加密货币平台myCryptoWallet倒闭
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1732188/)
+## 美国防授权法案出炉，加强美台合作，制裁中共种族灭绝
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1732266/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-75.jpg)图片来源：Crypto News AU
-整理报道：Lish
-编辑：文泓
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-358.png)[图片来源](https://www.voachinese.com/a/fy2022-ndaa-taiwan-20210922/6240685.html)
+美国国会周二（12月7日）宣布两党最终确定的《国防授权法案》（National Defence Authorization Act，也称国防预算法案）框架，准备2022年拨款7,700亿美元的军费开支，其中包括为太平洋威慑倡议提供71亿美元经费。
 
-12月7日，据报道，又有一家著名的澳大利亚交易平台倒闭，有愤怒的客户在无法进入他们的账户后损失了数千澳元。
+在中共国方面，法案还发表了国会支持台湾防务的声明，要求拟定联邦政府就中共问题制定一个大战略，并授权国防部长奥斯汀（Lloyd Austin）每年为国会军事委员会就增强美国国民卫队与台湾之间的合作问题，提供一个年度简报。
 
-周二《澳大利亚人报》报道，一些人在社交媒体平台上声称损失了4万澳元，这个澳大利亚加密货币交易平台正在面临清算。
+法案还禁止美国国防部采购中共国新疆地区的强迫劳动生产产品。美国将中共国（中共）对待新疆维吾尔族穆斯林少数民族的行为认定为种族灭绝，国会议员一直在推动禁止进口强迫维吾尔族人的劳动生产产品。
 
-澳大利亚证券投资委员会（ASIC）的文件显示，myCryptoWallet平台及其28岁的创始人贾里德·科尼格曼周五任命布里斯班清算公司SV Partners对该公司进行清算，该平台成为两个月内第二个失败的加密货币交易所。另一家在墨尔本的Blockchain Global公司，已在10月倒闭，据说欠了投资者2100万澳元。
+此外，众议长南希·佩洛西（Nancy Pelosi）周二发出的声明说，众院周三（8日）将就《防止强迫维吾尔劳动法案》投票。该法案规定禁止进口所有来自新疆的产品，除非企业提供明确与令人信服的证据，证明它们的供应链里面无强迫劳动，才可以获准进口。
 
-MyCryptoWallet于2017年底推出，是一个让用户购买、出售和交易比特币、以太坊和瑞波币等资产的平台。曾自诩拥有2万名客户，但推出后的一系列问题让用户感到沮丧。2019年初，NAB（澳新银行）在发生纠纷后冻结了该公司的账户。**该平台的提款功能也在其技术合作伙伴出现问题后被暂停了一段时间。**
+民主党领袖一直备受党内以及共和党人对新疆人权问题施压，参议院7月已通过了该法案，但法案一直在众议院未获推进。
 
-顺便说一下，**该平台的崩溃是在比特币从历史最高点暴跌的时候发生的。这个世界上最大的加密货币在一个月前还值9.1万澳元**，周二上午，比特币的交易价格为69,000澳元，其价值已经缩减了30%。
+消息来源：[美国防授权法案最终版本出炉 聚焦中俄](https://www.epochtimes.com/gb/21/12/8/n13423184.htm)
 
-参议院在10月对加密货币行业进行了调查，建议对myCryptoWallet等交易所进行监管，以便向投资者提供保证。
-
-澳大利亚证券和投资委员会主席乔·朗格说，投资者应该非常谨慎地看待加密货币，并引用了一句格言：“不要把所有的鸡蛋放在一个篮子里。”
-
-参考链接：[Bitcoin, ETH price: myCryptoWallet collapse sees liquidators called in | news.com.au — Australia’s leading news site](https://www.news.com.au/finance/money/wealth/liquidators-called-in-after-collapse-of-prominent-aussie-crypto-platform-mycryptowallet/news-story/5a0bd0b55b4be94150211180d6471ff6)
-
-**发布：**去中心化Math
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

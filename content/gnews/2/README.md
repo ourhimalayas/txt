@@ -2,43 +2,35 @@
 ---
 
 
-## DC大中华时事：澳大利亚宣布不派官员出席北京冬奥会
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1732366/)
+## 辉瑞公司的新董事会成员是前Facebook董事
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1732434/)
 
-*编辑：西北风 / 作图：*虎子哥
+翻译：西班牙巴塞罗那喜悦农场-wenwu
 
-![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/ScreenShot-2021-08-01-at-17.25.09@2x.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-367.png)图片来源: thenationalpulse.com
 
-#   墙国妄语每日驳
+辉瑞公司的董事会成员Susan Desmond-Hellmann博士——曾在社交媒体巨头Facebook担任首席独立董事。Meta（Facebook）经常审查与中共病毒（COVID-19）疫苗有关的帖子，尤其是辉瑞公司[获得了各大企业的支持（存在利益冲突）。](https://thenationalpulse.com/news/conflict-reuters-chairman-is-pfizer-investor-and-board-member/)
 
-### 12.08.2021
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-369.png)图片来源: thenationalpulse.com
 
-[外媒关注：中国接连出击争夺民主话语权\_参考消息网 (cankaoxiaoxi.com)](http://m.cankaoxiaoxi.com/china/20211207/2462179.shtml)
+赫尔曼（Hellman）于2013年3月被[任命](https://about.fb.com/news/2019/10/desmond-hellmann-departs-board/)为 Meta 社交媒体平台的董事会成员，并在2015年6月至2019年10月30日期间担任其首席独立董事，即在武汉第一起报道 COVID-19 案件发生前不久时候。
 
-***简评：***这篇文章里讲中国争夺民主话语权，我觉的中共讲这种话只能是让地球人都笑了，大家心里都知道这是个国际玩笑。中共能够在中囯维持统制，靠的就是商鞅的驭民五术愚民，弱民，贫民，疲民，辱民。这得有个前提，就是要占领道德制高点，有了道德制高点，才能有统治权的合法化。在国内，中共占有了马列宗教的共产主义理想的道德制高点，中共许诺给你共同富裕，中华民族伟大复兴等等空洞口号，中共永远要占领国内道德制高点，对外中共给国际讲述中共的民主，中共同样要占领国际道德制高点，中共知道，失去了道德制高点，就失去了执政合法性，也就失去了最高的权力，为此中共可以全世的建立孔子学院，不惜成本，甚至全蓝金黄全世界的主要新闻媒体，即使现在全世界都知道中共自己也知道中共是光着屁股在表演，但这就是中共的本性，中共要继续欺骗撤谎而且不断加码，中共知道自己靠谎言起家如果不继续这样做中共连一天也活不下去。
+脸书创始人兼首席执行官马克·扎克伯格(Mark Zuckerberg)在回应她的离职时说：“六年来，赫尔曼一直是董事会中一个出色的、有思想的声音，我个人非常感谢她为这家公司所做的一切”。
 
-### 12.08.2021
+“我仍然对 Meta 和赋予人们建立社区和使世界更紧密的力量的使命持积极态度。Meta 的股东需要一个充分参与并致力于解决脸书目前所面临的关键问题的董事会，”赫尔曼在提到她作为比尔和梅林达·盖茨基金会首席执行官的角色时解释说。
 
-[澳大利亚宣布不派官员出席北京冬奥会，中国驻澳使馆刚刚回应！ (huanqiu.com)](https://world.huanqiu.com/article/45tt8jtPjP9)
+“不幸的是，来自我的首席执行官角色、我的大家庭和我自己的健康的要求越来越多，使我不再可能投入必要的时间和精力来适当地服务于 Meta 及其股东，”她在一份公开声明中补充说，尽管在[2020](https://www.pfizer.com/people/leadership/board-of-directors/susan_desmond-hellmann-md-mph)年加入了辉瑞公司董事会。
 
-***简评：***回想2000年北京申办奥运会成功那一刻，我们都是群情激昂，借那一刻也为中共经济打了一针强心剂，并随着加入WTO中共国的子宫经济成功为中共续命几十年，今天，中共同样希望通过北京冬奥会达到同样继命的机会，现在世界各国美国，澳州等开始陆续抵制北京冬奥会。前后对比己清晰的说明中共的未来，这就是风向标这就是信号，全球灭共的开始，世界各国开始抵制北京冬奥会这对中共打是巨大的，从这一刻起，灭共将进入一个新的阶段，里程碑式的全球灭共。
+在赫尔曼担任辉瑞公司董事会成员期间，Meta 发起了审查 COVID-19 疫苗怀疑者（与政府观点不同）的[活动](https://nypost.com/2021/05/25/facebook-trying-to-censor-covid-19-vaccine-skeptics-report/)，正如 Meta 公司泄露的内部文件显示，其算法旨在“大幅减少用户暴露在对中共疫苗犹豫不决（VH）的想法中。”这份长达15页的文件—题为“疫苗犹豫不决评论降级”—将其目标概括为，减少这些评论的可见性是我们消除平台上用户可能遇到的疫苗接种障碍的另一个重要机会。
 
-### 12.08.2021
+潜在的另一个利益冲突是，赫尔曼还在乔·拜登总统的科技顾问委员会[任职](https://www.whitehouse.gov/pcast/members/sue-desmond-hellmann/)，该委员会被白宫[描述](https://www.whitehouse.gov/briefing-room/statements-releases/2021/09/22/president-biden-announces-members-of-presidents-council-of-advisors-on-science-and-technology/)为“负责向总统提出科学、技术和创新政策建议的唯一外部顾问机构。”
 
-[林郑月娥接受《环球时报》专访：香港终于度过大风大浪 (huanqiu.com)](https://china.huanqiu.com/article/45tfvCHoNH1)
+新闻来源：[thenationalpulse.com] [REVEALED: New Pfizer Board Member Is Ex-Facebook](https://thenationalpulse.com/exclusive/pfizer-board-member-is-former-facebook-director/)
 
-***简评：***香港能够从一个小渔港发展到国际金融中心，靠的是自由，民主和法制的制度和体系，通过香港人勤劳和智慧赢得了国际社会的认可和信任。现在恰恰是林郑月娥出卖了香港，她把香港的一切卖给邪恶的中共，中共不仅吞噬了香港的灵魂，也吞噬了香港百年积累的财富，林郑月娥是出卖香港最大恶人，一个个年轻鲜活生命的shi逝去，香港人不会忘记。
+* * *
 
-#   港台资讯
-![](https://media.discordapp.net/attachments/858887785507323904/917962995840204830/01.png?width=1043&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/917963042434740294/02.png?width=1043&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/917963079986343966/03.png?width=1043&amp;height=586)
-
-
-
-
-*编辑：*西北风
-*作图：虎子哥
-发布：文顾*
-
+*发稿 : Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

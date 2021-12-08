@@ -15,125 +15,125 @@
 
 ---
 
-### [中俄联军侵略：美防长奥斯汀说乌克兰、台湾可以自卫](/content/gnews/1/README.md)
+### [日本要闻汇编 12月8日](/content/gnews/1/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [DC大中华时事：澳大利亚宣布不派官员出席北京冬奥会](/content/gnews/2/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [辉瑞公司的新董事会成员是前Facebook董事](/content/gnews/2/README.md)
+ ` wenwu`
 
-### [币圈新闻动态：喜币（HCN）价格目前在44.258 HDO](/content/gnews/3/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [关闭学校与中共病毒传播并无因果关系！](/content/gnews/4/README.md)
- ` 澳喜农场`
-
-### [2021/12/05 文贵先生直播精要](/content/gnews/5/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [中共的民主是天底下最大的笑话](/content/gnews/6/README.md)
- ` 澳喜农场`
-
-### [美国国会公布国防法案 涉及对俄罗斯和中共国的遏制](/content/gnews/7/README.md)
+### [秘翻在线：柳扶风称港人治港很失败 需要被中共管治](/content/gnews/3/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [降准只是为了经济安乐死](/content/gnews/8/README.md)
- ` 澳喜农场`
+### [每日快报：联邦法官终止了拜登的疫苗强制令](/content/gnews/4/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [樱花灭共诗——过公交东站遇卖烤地瓜退伍老兵](/content/gnews/9/README.md)
+### [澳大利亚正在考虑创建自己的加密货币](/content/gnews/5/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [国际要闻汇编12月8日](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2018年6月13日郭文贵先生直播全文字版](/content/gnews/10/README.md)
+### [西媒头条 — 第126期](/content/gnews/7/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [躺平币的获得方法](/content/gnews/8/README.md)
+ ` GTV News Talk`
+
+### [中俄联军侵略：美防长奥斯汀说乌克兰、台湾可以自卫](/content/gnews/9/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [DC大中华时事：澳大利亚宣布不派官员出席北京冬奥会](/content/gnews/10/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [躺平币](/content/gnews/11/README.md)
+ ` 首尔天池农场`
+
+### [币圈新闻动态：喜币（HCN）价格目前在44.258 HDO](/content/gnews/12/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [关闭学校与中共病毒传播并无因果关系！](/content/gnews/13/README.md)
+ ` 澳喜农场`
+
+### [2021/12/05 文贵先生直播精要](/content/gnews/14/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [中共的民主是天底下最大的笑话](/content/gnews/15/README.md)
+ ` 澳喜农场`
+
+### [美国国会公布国防法案 涉及对俄罗斯和中共国的遏制](/content/gnews/16/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [降准只是为了经济安乐死](/content/gnews/17/README.md)
+ ` 澳喜农场`
+
+### [樱花灭共诗——过公交东站遇卖烤地瓜退伍老兵](/content/gnews/18/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [2018年6月13日郭文贵先生直播全文字版](/content/gnews/19/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [滴滴美股退市致多个对冲基金损失惨重](/content/gnews/11/README.md)
+### [滴滴美股退市致多个对冲基金损失惨重](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [外媒报道：中共加强大数据发展和管理](/content/gnews/12/README.md)
+### [外媒报道：中共加强大数据发展和管理](/content/gnews/21/README.md)
  ` 澳喜农场`
 
-### [马斯克的天空WIFI会对中共国造成何种冲击？](/content/gnews/13/README.md)
+### [马斯克的天空WIFI会对中共国造成何种冲击？](/content/gnews/22/README.md)
  ` 澳喜农场`
 
-### [美国防授权法案出炉，加强美台合作，制裁中共种族灭绝](/content/gnews/14/README.md)
+### [美国防授权法案出炉，加强美台合作，制裁中共种族灭绝](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [印媒报道：习近平浪费许多自然地缘政治优势](/content/gnews/15/README.md)
+### [印媒报道：习近平浪费许多自然地缘政治优势](/content/gnews/24/README.md)
  ` 澳喜农场`
 
-### [可怜学生被迫看洗脑电影，被打疫苗又被中共病毒感染](/content/gnews/16/README.md)
+### [可怜学生被迫看洗脑电影，被打疫苗又被中共病毒感染](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [被指控伪造疫苗接种证明的护士已被警方撤销欺诈指控](/content/gnews/17/README.md)
- ` 澳喜农场`
-
-### [比特币交易疫苗护照，毒疫苗逼新西兰人铤而走险](/content/gnews/18/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [儿童新冠防治方案祥解](/content/gnews/19/README.md)
+### [儿童新冠防治方案祥解](/content/gnews/26/README.md)
  ` 纽约香草山MOS03`
 
-### [美媒报道：港股走低令资本流出严重](/content/gnews/20/README.md)
- ` 澳喜农场`
-
-### [苹果与中共千亿秘密协议曝光，舆论哗然](/content/gnews/21/README.md)
+### [苹果与中共千亿秘密协议曝光，舆论哗然](/content/gnews/27/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [参议员里克·斯科特呼吁NBA抵制北京冬奥会](/content/gnews/22/README.md)
+### [参议员里克·斯科特呼吁NBA抵制北京冬奥会](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [澳洲著名加密货币平台myCryptoWallet倒闭](/content/gnews/23/README.md)
- ` 墨尔本雅典娜农场`
-
-### [美军领导人讨论中共国的军事挑战以及应对的方法](/content/gnews/24/README.md)
+### [美军领导人讨论中共国的军事挑战以及应对的方法](/content/gnews/29/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [澳大利亚宣布外交抵制北京冬奥会](/content/gnews/25/README.md)
+### [澳大利亚宣布外交抵制北京冬奥会](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [文·贵天成——文贵先生谈“疫苗”（三十六）](/content/gnews/26/README.md)
+### [文·贵天成——文贵先生谈“疫苗”（三十六）](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`
 
-### [澳大利亚继美国之后也宣布外交抵制北京冬奥会](/content/gnews/27/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [世卫组织对新冠病毒的“血浆疗法”发出警告](/content/gnews/28/README.md)
- ` 墨尔本雅典娜农场`
-
-### [有声|【信仰之声】「启示录」的启示（1）爱是永恒的能量](/content/gnews/29/README.md)
+### [有声|【信仰之声】「启示录」的启示（1）爱是永恒的能量](/content/gnews/32/README.md)
  ` MOSREC`
 
-### [中风救急“神药”涨至860元一颗](/content/gnews/30/README.md)
+### [中风救急“神药”涨至860元一颗](/content/gnews/33/README.md)
  ` GTV新闻访谈`
 
-### [墙内再现房企债务违约、资不抵债 打脸中共维稳](/content/gnews/31/README.md)
+### [墙内再现房企债务违约、资不抵债 打脸中共维稳](/content/gnews/34/README.md)
  ` GTV新闻访谈`
 
-### [比特币监管问题凸显，喜币是数字货币的未来](/content/gnews/32/README.md)
+### [比特币监管问题凸显，喜币是数字货币的未来](/content/gnews/35/README.md)
  ` GTV新闻访谈`
 
-### [香草山农场发布儿童新冠防治方案详解](/content/gnews/33/README.md)
+### [香草山农场发布儿童新冠防治方案详解](/content/gnews/36/README.md)
  ` GTV新闻访谈`
 
-### [有声|文贵先生最新爆料：关于新中国联邦人的三大利好消息](/content/gnews/34/README.md)
+### [有声|文贵先生最新爆料：关于新中国联邦人的三大利好消息](/content/gnews/37/README.md)
  ` MOSREC`
 
-### [【草根访谈】第289期新闻概要](/content/gnews/35/README.md)
- ` WindTalker`
-
-### [有声|日本政府、媒体强硬回击中共](/content/gnews/36/README.md)
+### [有声|日本政府、媒体强硬回击中共](/content/gnews/38/README.md)
  ` MOSREC`
 
-### [郭文贵先生12·7盖特内容概要](/content/gnews/37/README.md)
- ` 墨尔本雅典娜农场`
-
-### [视频| 共产党的流氓手段无处不在](/content/gnews/38/README.md)
+### [视频| 共产党的流氓手段无处不在](/content/gnews/39/README.md)
  ` MOSREC`
 
-### [有声|拜登宣布使用太空新战略与中俄竞争](/content/gnews/39/README.md)
+### [有声|拜登宣布使用太空新战略与中俄竞争](/content/gnews/40/README.md)
  ` MOSREC`
-
-### [奥密克戒变种使黑石和先锋等获得超过100亿美元的收益](/content/gnews/40/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [爱面子缺爱缺安全感-偏狭的习近平在梦游中走向一尊梦](/content/gnews/41/README.md)
  ` mary202064`
