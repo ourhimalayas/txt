@@ -2,23 +2,50 @@
 ---
 
 
-## 12月8日文贵大直播快讯——新歌打榜资金将捐助法制基金
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1733561/)
+## 纽约医生助理说她被迫不报告CCP病毒疫苗伤害事件
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1733596/)
 
-撰稿：Gradient Boost
+作者：纽约香草山翻译部 – defiance
 
-视频：永不言败
 
-美东时间当地12月8日，文贵先生在大直播当中谈到新歌Hcoin to the moon的ITunes打榜记录时说，这一次的打榜再次证明了爆料革命在全世界的影响力，同时默默无闻的战友占了99%——大家都能够感受到无处不在的战友力量。
 
-在6-8日的ITunes摇滚音乐榜的排名中，新曲Hcoin to the moon在新西兰、澳大利亚、香港、台湾等十个国家和地区获得第一位的成绩，在加拿大获得第二，美国和波兰获得第三。
 
-不过文贵先生也提到，这一次的打榜业绩相较上一回还有一定距离。过去如果打榜一次，现在应该扩大到五次或者十次——战友们千万别停，继续努力！
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新.png)
 
-打榜歌曲的收益最后将捐给法制基金，文贵先生称自己是不会要任何打榜金额的。因此，只要打榜新歌，就是在支持法制基金。
 
-这个榜不仅是音乐，同时也是政治——没有一个音乐有这样的力量。这样的音乐一定是有阳光力量的信仰作为支撑，单纯你爱我我爱你的情歌不可能有这样的力量，也不可能在短时间内立刻冲上排行榜第一。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
+
+
+据美国媒体12月6日报道，纽约联合纪念医疗中心（UMMC）的一名前雇员站出来声称，她在急诊室被教唆说关于CCP病毒疫苗伤害的假话。
+
+助理医生黛博拉·康拉德在她工作的急诊室，观察到大量福奇推广的流感疫苗的不良反应后，上级领导告诉她不要向政府官方提供疫苗伤害数据库VAERS（疫苗不良事件报告系统）报告。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture1-12.jpg)
+康拉德之前在UMMC工作了17年，从未经历过这样的事情，至少没有她在节目里说的这么离谱的事。在康拉德亲眼所见，不被允许报告的疫苗副作用中，有心脏病发作、心肌病、心律失常、血栓和肺栓塞。
+
+今年1、2月份，参与“曲速行动”的第一波美国人注射疫苗后，大量因疫苗受伤的病人就开始出现了。此问题出现的早期，康拉德说她看到有几个病人有这些症状。她立即将其报告给VAERS。她开始告知她的行政领导发生了什么事，但一位女上司却告诉她并不觉得有什么好担心的。最后，急诊室开始注意到发生的事情，康拉德的同事开始让她报告相关病人的信息。
+
+当康拉德第二次找到UMMC的管理层时，他们对她更加严厉，指责她过度报告，疫苗副作用的事情。
+
+参考来源：
+1. [纽约医生助理说她被迫不报告CCP病毒疫苗伤害事件](https://vaccines.news/2021-12-06-cover-up-assistant-forced-stop-reporting-covid-vaccine-injuries.html)
+2. [纽约医生助理说她被迫不报告CCP病毒疫苗伤害事件](https://www.lifesitenews.com/news/physician-assistant-says-she-was-told-to-stop-reporting-covid-vaccine-injuries/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88-1.png)
+
+编辑/校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

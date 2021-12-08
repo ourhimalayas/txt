@@ -2,50 +2,23 @@
 ---
 
 
-## 佛州Advent Health公司暂停为其8万多名雇员接种疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1733475/)
+## 12月8日文贵大直播快讯——新歌打榜资金将捐助法制基金
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1733561/)
 
-作者：纽约香草山医疗部 – 云豹
+撰稿：Gradient Boost
 
+视频：永不言败
 
+美东时间当地12月8日，文贵先生在大直播当中谈到新歌Hcoin to the moon的ITunes打榜记录时说，这一次的打榜再次证明了爆料革命在全世界的影响力，同时默默无闻的战友占了99%——大家都能够感受到无处不在的战友力量。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+在6-8日的ITunes摇滚音乐榜的排名中，新曲Hcoin to the moon在新西兰、澳大利亚、香港、台湾等十个国家和地区获得第一位的成绩，在加拿大获得第二，美国和波兰获得第三。
 
+不过文贵先生也提到，这一次的打榜业绩相较上一回还有一定距离。过去如果打榜一次，现在应该扩大到五次或者十次——战友们千万别停，继续努力！
 
+打榜歌曲的收益最后将捐给法制基金，文贵先生称自己是不会要任何打榜金额的。因此，只要打榜新歌，就是在支持法制基金。
 
-12月6日，总部位于佛罗里达州的大型医疗保健公司AdventHealth，中止了对其83000名雇员的疫苗接种任务。
-
-此前佛州州长曾提起多项法律行动来抵制拜登的疫苗强制接种令，并最终签署了一项法案，以防止私人雇主执行疫苗强制令。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1.2-4.jpg)
-AdventHealth的首席医疗主任说，我们将暂停新冠病毒的所有疫苗接种政策和要求，所有受雇、执行任务或为AdventHealth提供服务的人员均无需接种新冠病毒疫苗，也无需获得经批准的豁免。 对于AdventHealth的决定，佛州州长办公室表示欢迎，并称：佛罗里达州将继续捍卫自由，并挑战非法的联邦过度行为。
-
-参考链接：
-[Florida-based healthcare company suspends vaccine mandate for its 83,000 employees](https://thepostmillennial.com/florida-healthcare-company-suspends-vaccine-mandate)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
-
-总编：木白
-编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+这个榜不仅是音乐，同时也是政治——没有一个音乐有这样的力量。这样的音乐一定是有阳光力量的信仰作为支撑，单纯你爱我我爱你的情歌不可能有这样的力量，也不可能在短时间内立刻冲上排行榜第一。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
