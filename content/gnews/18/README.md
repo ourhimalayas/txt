@@ -2,112 +2,36 @@
 ---
 
 
-## 世界真正的较量就是中美俄
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1731190/)
+## 2021/12/07文贵先生盖特精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1731247/)
 
-[https://gtv.org/video/id=61af5c0a87fa7e74c92cbd1e](https://gtv.org/video/id=61af5c0a87fa7e74c92cbd1e)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/120707.png)[盖特直播链接](https://gettr.com/post/pizpiob51f)
+美国总统拜登在中共一再威胁和试图收买的情况下正式官方宣布不出席北京冬奥会。美国的官方不出席，日本和欧洲国家也都会紧随其后，这会给冬奥会的举办带来严重的打击。奥运会办不成，还会让北京丢大脸，不信试试看！
 
-**郭文贵**
-**Miles Guo**
+昨晚的北京零下4度，将文贵92岁中风的老父亲和员工穿着睡衣赶到马路上，盘古七星酒店和公寓全部以‘物业’为名强制接管，这简直就是笑话！木兰的秘密翻译组迅速把文件翻译好传送给各国家政府，所有人都表示不可思议，这比当年的斯大林、萨达姆、卡扎菲更加的疯狂可怕。西方的一些宗教人士已经定义了这是一场共产主义借用疫情和疫苗试图统治人类发动的生物战争（第三次世界大战），共产主义的党首代表就是中共国。
 
-日本的表态，什么都不是，完全是咋呼，最后就是一定在中共
-Japan’s statement is nothing, it’s bluffing, and in the end it must be at the CCP
+目前，国内从南方深圳、惠州、福州到北部的大连、哈尔滨、齐齐哈尔都出现了电力不足的问题。国内的27个城市房地产价格限制跌落，不让降价，按原价还贷款。所有银行要求修改报表，在降准的同时，要保障在今年春节前提高所谓的“还旧贷新”率。在广东，所有外来的出口型的商业现在进行预缴税，即预计好明年的营业额，提前把税先交了。很多在国内的外资酒店商都准备撤走，美国几个仍旧在中共试图勾兑的大商家，很快在美国国内经济下滑的时候也必定会退出。
 
-如果说跟它做交易，一定会，它一定会出卖台湾利益的
-If it is said to have a deal with Japan, Japan will definitely betray Taiwan’s inter-ests
+很多盘古的老顾客当得知我们的家人和员工被赶上大街以后，纷纷闻讯而来给予救助，这就是人心力量和我们为人的结果。过去5年盘古和裕达的所有收入没有拿走一分钱，全部都在公安、警察的监管下，说白了这是在为共产党打工呢。这样关闭了也好，我们家族也可以少一点负担。因为共产党的能力根本无法驾驭盘古和裕达，所以盘古A座酒店、龙头部分和裕达一定会着大火。整个大楼的消防、安保、上下楼的风道结构、多层次的电梯系统，在这种复杂的楼房体系里停水、停电，拔断稳定阀肯定会酿成大祸。
 
-而且美国人弄得（怂恿）日本人上，日本人是一定要谈条件的
-And if the U.S. encourages Japan to fight with the Chinese Communist Party, Ja-pan is definitely going to negotiate a deal
+七哥今天的遭遇绝对不是只针对我一个，这是整个中国所有人都会面临的环境，只要共产党存在，悲剧和灾难就会存在。共产党的美元支付系统SWIFT被停了，那一定是你共产党的家人们被赶到马路上的时候。当共产党把事做绝了，那么你们的家人和钱都一定会受到应有的报应。新中国联邦人要开始行动起来，搜集所有这些高官的家人、朋友和资产信息，按照当地国家的法律他们会被赶在大街上；当他们出国的时候，让他们在机场就受到限制。明天大直播！
 
-你让我上是吧，让我加入联合国，一切军事正规化
-If Japan fight with CCP, then let Japan join the UN as a permanent member and allow Japan to regularize its military
+*听写：阿甘*
 
-允许我发展核武器，一定是这结局，是吧
-and allowing Japan to develop nuclear weapons, it must be the conclusion, right?
+*校对： 小雨*
 
-就是日本现在，就是澳大利亚是一个德性的
-Now Japan and Australia are the same behavior
+* * *
 
-日本、澳大利亚它俩你给它再加一百倍的胆，他也不敢去干的对付中共去
-Japan and Australia, even you add a hundred times more courage to them, they don’t dare to confront with the CCP
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-千万别被自己忽悠了，咱别一看到好事儿咱就上
-don’t fool yourself, let’s not have wishful thinking
 
-所有这个世界决定就是中、美、俄，他们都是凑伙儿的
-All the world’s decisions maker are China, the United States, and Russia, and others are bench player
+编辑：【英国伦敦喜庄园编辑部】
 
-台湾人也别在乎这事儿，关于共产党放核潜艇
-Taiwanese don’t need care about this, about the Communist Party’s release of nuclear submarines
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-刚才娜娜酱做的PPT这点事对了，核潜艇用得着打台湾吗，是吧
-The PPT that Nana-jiang made just now is right, it isn’t necessary for nuclear submarines to attack Taiwan, right?
 
-核潜艇就是澳大利亚给日本人给美国人说的
-The nuclear submarine is muscle showing to Australia, Japanese and Americans
-
-小子，你敢弄弄啊，是吧，你看我给你亮亮招是吧
-Hi, do you dare to do it, right? Look at me I will show you some tricks, right?
-
-中共想表现这个，美国人说那我也有招啊，是不是，你看看
-The CCP wants to show this, the Americans say that I have a trick too, right? Take a look at this
-
-美国人干啥，美国我也准备，我整个经济上要制裁
-What do Americans do, the United States is also prepared to impose sanctions on the entire economy
-
-就美国人三件事都不敢干，第一件美国人对付中共就非常简单
-The Americans dare not do three things，the first thing that Americans confront with the CCP is very simple
-
-我把你SWIFT给你停了，我不让你使用美元，还没等它说出来呢
-that is American stopped CCP using SWIFT, and I don’t let you use the US dollars, American haven’t said it yet
-
-因为美国通胀啊，美元又不值钱的，经济不行啊，是不是
-because of inflation in the United States, the US dollar is worthless, and the economy is not good, right?
-
-它是叫股票政治啊，人家习近平出招了，我干掉所有的数字货币
-It’s called stock politics, Xi Jinping made a move, Xi wants to kill all the digital currency
-
-我要取消这个SWIFT, 你别停我，我先停你的，
-American: I want to cancel this SWIFT, CCP: Are you? I’ll stop you first
-
-我要求所有的贸易商包括美国微软，包括IBM全要使用我的数字货币
-CCP requires all traders, including Microsoft, including IBM, to use my digital currency
-
-就是把你美国对我提前对伊朗人、被朝鲜人要做的，我先做了
-It’s just to do what the U.S. treats Iranians and North Koreans ahead of time. CCP did it first.
-
-你知道习近平要宣布一个决定，你要知道是什么概念吗
-Do you know that Xi Jinping is going to announce a decision, do you know what is the concept?
-
-就在过去十二个月，中共最怕的美国要停止它所有使用美元
-In the past twelve months, the CCP fears most that America will stop them using the US dollars
-
-今天已经变成一个翻过来了，美国华尔街、美联储、美国财政部怕什么
-it has been flipped today, what are the fears of the Wall Street, the Federal Re-serve, and the U.S. Treasury Department?
-
-怕共产党停止使用美元
-They are afraid the Communist Party will stop using the U.S. dollar
-
-**原视频链接**[:](https://gettr.com/post/piv4srebf4)[https://gettr.com/post/piv4srebf4](https://gettr.com/post/piv4srebf4)
-
-Date:12/06/2021
-原视频标题: 世界真正的较量就是中 美 俄
-The real contest in the world is between China, the United States, and Russia
-原视频日期：2021/12/05
-原视频链接https://gettr.com/post/piv4srebf4
-任务编号：KC316（3128）
-视频时间段 : 0:00-2:28
-
-中听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

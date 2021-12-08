@@ -2,22 +2,29 @@
 ---
 
 
-## 台湾进入半强制性疫苗注射状态
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1728510/)
+## 德国研究揭示5至18岁健康儿童的“中共病毒”零死亡率
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1728512/)
 
-作者：纽约香草山 医疗部 – 云豹
+作者：纽约香草山信息部 – 诺雅
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-台湾流行疫情指挥中心于当地时间12月6日宣布，从2022年1月1日起，被指定的24类场所工作人员皆应完整接种2剂COVID-19疫苗，才能上班。 如果因为个人因素不能接受疫苗注射，则需要自费每周作一次快筛检查，阴性结果才能上班。
+德国研究人员于11月30日发表的，针对本国18岁以下儿童的研究发现，在中共病毒大流行的前15个月中，没有一个健康的5至18岁儿童死于中共病毒感染。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide4-5.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide5-5.jpeg)
 
-这24类行业主要是属于工作场所较易有密集人群聚集的行业。 主要包括娱乐、教育、医疗等相关工作场所。
+研究报告指出，总体而言，与中共病毒感染相关的儿童和青少年的重症或死亡率很低，对于没有基础疾病的5-11岁儿童来说更是如此。
 
-台湾民众在反对疫苗注射的行动上，至今仍保持在温和游行抗议，及经由在公共政策平台提案，投票反对强制性疫苗注射的阶段。
+在2020年3月至2021年5月期间，大约有150万德国儿童或青少年感染了中共病毒，总计14名18岁以下的德国人死于新冠肺炎。其中6名是有基础疾病的5-18岁儿童和青少年，8例婴幼儿死亡中，5名是患有先天性疾病的婴幼儿。
 
-有评论指出，如果政府加强疫苗注射的强制性，将会逐步激起民众反对疫苗注射的抗议行动。
+该报告显示，5-11岁的健康儿童感染中共病毒后，需要重症监护的几率约为五万分之一。在12-18岁和5岁以下的儿童中，重症率约为八千分之一。
 
-参考链接：[24場所人員應完整接種 陳時中：職業類別擬擴大](https://www.cna.com.tw/news/firstnews/202112060146.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+英国研究人员也发布了类似的发现：1200万名18岁以下儿童中，只有6名健康儿童死于中共病毒感染。
+
+评论称，鉴于已知的疫苗在年轻人口中诱发的心肌炎风险，以及疫苗公司仅做了少量和短暂测试的事实，让健康儿童和青少年接种中共病毒疫苗是极为不明智的。
+
+参考链接：
+1）[German Study Finds Zero Healthy Children Between 5 and 18 Died From COVID](https://gettr.com/post/pivcosc01f)
+2）[Huge new study shows ZERO Covid deaths of healthy German kids over 4 oradolescents](https://alexberenson.substack.com/p/huge-new-study-shows-zero-covid-deaths)
+2）[https://www.medrxiv.org/content/10.1101/2021.11.30.21267048v1.full.pdf](https://www.medrxiv.org/content/10.1101/2021.11.30.21267048v1.full.pdf)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
 

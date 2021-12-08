@@ -2,46 +2,45 @@
 ---
 
 
-## 被解雇的库莫准备起诉CNN
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1731396/)
+## 独家披露：新的辉瑞董事会成员是前脸书董事
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1731492/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+**整理报道：文泓**
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/12/C-2.jpg)newsyorklatestnews.com
-劣迹斑斑的、极左的前纽约州州长安德鲁·库莫（Andrew Cuomo）在佩洛西等袒护下，虽然多熬了数月，不得已在8月份辞职。其胞弟、CNN大牌主持、更左的克里斯·库莫（Chris Cuomo）却因利用职权，为其兄的性侵案件奔波、掩盖，事件败露后，CNN先是将克里斯·库莫停职，几天后停职变成了解雇，克里斯·库莫不干了，差我那么多钱，我得起诉。正可谓，“左干将诉大左媒”。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/22222.png)图片来源：Politico
 
-《华盛顿自由灯塔》（the Washington free beacon）发表文章，题目是“克里斯·库莫准备起诉CNN”。
+美国时间12月6日，《国家脉动》独家披露，辉瑞公司董事会成员苏·德斯蒙德·赫尔曼博士曾担任社交媒体巨头脸书（Facebook）的首席独立董事。脸书定期审查与新冠疫苗相关的帖子，尤其是辉瑞公司得到[了主要大企业的支持。](https://thenationalpulse.com/news/conflict-reuters-chairman-is-pfizer-investor-and-board-member/)
 
-全文如下：
+赫尔曼于2013年3月被任命为社交媒体平台脸书的董事会成员，并于2015年6月至2019年10月30日期[间](https://about.fb.com/news/2019/10/desmond-hellmann-departs-board/)担任首席独立董事，此时已接近报道第一例新冠病毒病例之前。
 
-就在CNN解雇了这位名誉扫地的新闻主播几天后，克里斯·库莫准备起诉CNN。
+当时，脸书创始人兼首席执行官马克·扎克伯格在回应她的离职时说：“六年来，苏一直是董事会中一个出色而有思想的声音，我个人非常感谢她为这家公司所做的一切。”
 
-据《纽约邮报》（the New York Post）周一（12月6日）报道，库莫已聘请律师，以确保可以得到其四年合同的剩余部分，合同价值每年600万美元。但CNN“无意”付钱给库莫。
+“我仍然对脸书和赋予人们建立社区和使世界更紧密联系的使命持积极态度。脸书的股东需要一个充分参与并致力于解决脸书目前所面临的关键问题的董事会，”赫尔曼在提到她作为**比尔和梅琳达****·****盖茨基金会**首席执行官的角色时解释说。
 
-一位知情人士告诉《华盛顿邮报》（the Post）：“CNN在他们的合同中有一个标准的道德条款，规定如果员工做了任何有损名誉的事情，他们可以立即被解雇。”
+“不幸的是，来自我的首席执行官角色、我的大家庭和我自己的健康状况的要求越来越多，使我不再有可能投入必要的时间和精力来适当地服务。”她在一份公开声明中补充道，尽管她2020年又加入了辉瑞董事会。
 
-周六（12月4日），CNN解雇了克里斯·库莫，因为他努力帮助他的兄弟、前纽约州州长安德鲁·库莫，对抗（有关各方）对安德鲁性侵的（调查与）指控。纽约州总检察长莱蒂娅·詹姆斯（Letitia James）上周公布的记录披露了克里斯·库莫参与其兄弟辩护的新信息后，美国有线电视新闻网（CNN）周二（11月30日）宣布库莫停职。据报道，该主播与州长办公室合作，发现了至少一名安德鲁·库莫的指控者的身份，并与记者联系，追踪有关这些指控的即将到来的报道。
+赫尔曼在辉瑞董事会任职期间，脸书发起了审查“新冠疫苗怀疑论者”运动，该公司泄露的内部文件显示，其算法旨在“大幅减少用户在评论中对疫苗犹豫不决（观点）的接触机会”。
 
-《华盛顿邮报》5月份报道说，库莫就如何回应几名妇女的指控，向他兄弟的员工提供了建议，这些妇女指控了前州长对她们的性骚扰。CNN称，上周的一项内部调查发现，库莫向网络主管谎报了自己的参与程度，从而为终止合同提供了理由。
+这份名为“疫苗犹豫评论降级”的15页文件，[将](https://nypost.com/2021/05/25/facebook-trying-to-censor-covid-19-vaccine-skeptics-report/)其目标[总结](https://nypost.com/2021/05/25/facebook-trying-to-censor-covid-19-vaccine-skeptics-report/)为“降低这些评论的可见性，为我们消除平台上用户可能遇到的疫苗接种障碍提供了另一个重要机会。”
 
-然而，库莫说，CNN主席杰夫·祖克（Jeff Zucker）知道到他参与了他兄弟的辩护。
+另一个潜在的利益冲突是，赫尔曼还在乔·拜登总统的科技顾问委员会任职，该委员会被白宫描述为“负责向总统提出科学、技术和创新政策建议的唯一外部顾问机构”。
 
-库莫的一位发言人告诉《华尔街日报》：“众所周知，库莫和祖克非常亲密，经常保持联系，包括关于库莫支持其兄弟的细节。这没有什么秘密，除了库莫先生以外的其他人都可以证明。”
+另据《国家脉动》12月1日披露，路透社董事长是辉瑞投资者和董事会成员。
 
-（全文完）
+新闻链接：
 
-看着这帮叫嚣、呐喊的中共走卒在狗咬狗，掩不住地有点开心，帮着演绎一段：
+1、[REVEALED: New Pfizer Board Member Is Ex-Facebook Director. (thenationalpulse.com)](https://thenationalpulse.com/exclusive/pfizer-board-member-is-former-facebook-director/)
 
-克里斯·库莫：我替你做了那么多，你得付我剩余的每年600万。
-老板杰夫·祖克：你是替中共做的，找中共要去。
-克里斯·库莫：你若是不给，我就爆料CNN与中共的关系……
-老板杰夫·祖克：……别……有话好商量……要不，咱们一起找中共要去？
-中共：……我在忙着勾兑那些抵制北京奥运的事，都给我滚……
+2、[CONFLICT: Reuters Chairman is Pfizer Investor and Board Member. (thenationalpulse.com)](https://thenationalpulse.com/news/conflict-reuters-chairman-is-pfizer-investor-and-board-member/)
 
-原文链接：
+*发布：盘古相聚*
 
-[https://freebeacon.com/media/report-chris-cuomo-preparing-to-sue-cnn/](https://freebeacon.com/media/report-chris-cuomo-preparing-to-sue-cnn/)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
