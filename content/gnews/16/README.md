@@ -2,47 +2,35 @@
 ---
 
 
-## 澳大利亚正在考虑创建自己的加密货币
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1732416/)
+## 辉瑞公司的新董事会成员是前Facebook董事
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1732434/)
 
-**【雅典娜快讯】，紧贴时代脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2021.12.8-7.jpg)图片来源：The Australian
-翻译：月映万川
+翻译：西班牙巴塞罗那喜悦农场-wenwu
 
-编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-367.png)图片来源: thenationalpulse.com
 
-12月8日，据《先驱太阳报》报道，作为落后的支付系统全面升级现代化改革的一部分，澳大利亚将考虑创建自己的加密货币。
+辉瑞公司的董事会成员Susan Desmond-Hellmann博士——曾在社交媒体巨头Facebook担任首席独立董事。Meta（Facebook）经常审查与中共病毒（COVID-19）疫苗有关的帖子，尤其是辉瑞公司[获得了各大企业的支持（存在利益冲突）。](https://thenationalpulse.com/news/conflict-reuters-chairman-is-pfizer-investor-and-board-member/)
 
-澳大利亚财长乔什·弗莱登伯格将会在本周三推出他的一系列金融改革计划。该计划会针对明年澳大利亚人是否能够使用政府背书的数字货币进行购物与储蓄给出相应的展望。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-369.png)图片来源: thenationalpulse.com
 
-财长也承诺，针对于市场上的加密货币交易者，政府会出台相应的准入资格机制来确保客户的安全，以及为在这一高风险市场上活跃的商家提供稳定性。同时，新的法律规则也会被引入加密货币领域，以确保税务问题得到解决。
+赫尔曼（Hellman）于2013年3月被[任命](https://about.fb.com/news/2019/10/desmond-hellmann-departs-board/)为 Meta 社交媒体平台的董事会成员，并在2015年6月至2019年10月30日期间担任其首席独立董事，即在武汉第一起报道 COVID-19 案件发生前不久时候。
 
-根据澳大利亚税务办公室的数据，有多于819,000的澳大利亚人在过去三年里，曾经购买或者销售过数字货币。对比2020年与2021年，这一数字暴增了63%。
+脸书创始人兼首席执行官马克·扎克伯格(Mark Zuckerberg)在回应她的离职时说：“六年来，赫尔曼一直是董事会中一个出色的、有思想的声音，我个人非常感谢她为这家公司所做的一切”。
 
-在这一重要讲话中，弗莱登伯格先生将会推出澳大利亚近25年历史上最为重要的一次国家支付系统改革计划。
+“我仍然对 Meta 和赋予人们建立社区和使世界更紧密的力量的使命持积极态度。Meta 的股东需要一个充分参与并致力于解决脸书目前所面临的关键问题的董事会，”赫尔曼在提到她作为比尔和梅林达·盖茨基金会首席执行官的角色时解释说。
 
-他将说：**“如果我们不改革目前的框架，将由（美国）硅谷来决定我们支付系统的未来。澳大利亚必须保留对我们支付系统的主权。”**
+“不幸的是，来自我的首席执行官角色、我的大家庭和我自己的健康的要求越来越多，使我不再可能投入必要的时间和精力来适当地服务于 Meta 及其股东，”她在一份公开声明中补充说，尽管在[2020](https://www.pfizer.com/people/leadership/board-of-directors/susan_desmond-hellmann-md-mph)年加入了辉瑞公司董事会。
 
-同时，联邦政府将对“先买后付”模式（Afterpay）和由技术巨头（苹果和谷歌）提供的数字钱包服务进行相关监管咨询与调查。这些将会以隐形费用为切入点，继而为这些领域引入更多的竞争。
+在赫尔曼担任辉瑞公司董事会成员期间，Meta 发起了审查 COVID-19 疫苗怀疑者（与政府观点不同）的[活动](https://nypost.com/2021/05/25/facebook-trying-to-censor-covid-19-vaccine-skeptics-report/)，正如 Meta 公司泄露的内部文件显示，其算法旨在“大幅减少用户暴露在对中共疫苗犹豫不决（VH）的想法中。”这份长达15页的文件—题为“疫苗犹豫不决评论降级”—将其目标概括为，减少这些评论的可见性是我们消除平台上用户可能遇到的疫苗接种障碍的另一个重要机会。
 
-澳大利亚中央银行目前对此话题并未作出过多反应。虽然，央行支付政策部门主管托尼·理查德上月说，考虑到澳大利亚人可能已经在享受“安全，便捷，和低成本”的网上支付服务，**央行目前不认为出台相关政策是迫切需要的。**
+潜在的另一个利益冲突是，赫尔曼还在乔·拜登总统的科技顾问委员会[任职](https://www.whitehouse.gov/pcast/members/sue-desmond-hellmann/)，该委员会被白宫[描述](https://www.whitehouse.gov/briefing-room/statements-releases/2021/09/22/president-biden-announces-members-of-presidents-council-of-advisors-on-science-and-technology/)为“负责向总统提出科学、技术和创新政策建议的唯一外部顾问机构。”
 
-但是他认为，央行正在加大力度对数字货币领域进行研究。伴随着加密货币的兴起，央行认识到，这种创新可能“对维护国家货币的信心很重要”。
+新闻来源：[thenationalpulse.com] [REVEALED: New Pfizer Board Member Is Ex-Facebook](https://thenationalpulse.com/exclusive/pfizer-board-member-is-former-facebook-director/)
 
-在明年年中之前澳洲制定一个支付系统的战略计划将会是这一切的开始。进而财长也会启动立法引入新的权力，使他能更直接的对未来规则中的漏洞进行干预。
+* * *
 
-消息人士透露，澳洲本周倒闭的一个颇具影响的加密货币交易平台，凸显了这一新兴行业里构建相应规则的必要性。而这些规则可以包括网络安全标准，或者最低资本要求准入制。
-
-原文链接： [Bold plan to create Aussie cryptocurrency](https://www.heraldsun.com.au/subscribe/news/1/?sourceCode=HSWEB_WRE170_a&amp;dest=https%3A%2F%2Fwww.heraldsun.com.au%2Fbusiness%2Fvictoria-business%2Faustralia-to-consider-creating-its-own-cryptocurrency%2Fnews-story%2F06bc2544cb023a92f02967d9c793b253&amp;memtype=anonymous&amp;mode=premium&amp;v21=dynamic-hot-control-score&amp;V21spcbehaviour=append)
-
-发布：去中心化Math
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*发稿 : Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

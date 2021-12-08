@@ -2,35 +2,33 @@
 ---
 
 
-## 中俄联军侵略：美防长奥斯汀说乌克兰、台湾可以自卫
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1732373/)
+## 国际要闻汇编12月8日
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1732409/)
 
-作者：东京樱花团｜捆绑CCP一千年
-![](https://lh3.googleusercontent.com/sNwpj3oRpcqvWExoCTPDQjT0P3OiywvEhR-evXeuBGzq86Z4msniHPQSn5DtCDTAeH_yUlErge7sPkefVhSAT3mHf8DZqTWKwniYvitmi41IOZ9yUxEthtO9vtI_vD1QOFRxtA_e)[*图片来源*](https://www.defense.gov/News/News-Stories/Article/Article/2864875/austin-discusses-china-russia-american-public-survey-on-military-at-defense-one/)
-**五角大楼当地时间7日，**[**奥斯汀表示**](https://www.defense.gov/News/News-Stories/Article/Article/2864875/austin-discusses-china-russia-american-public-survey-on-military-at-defense-one/)**，他的工作是保卫美国。但面对中俄两国对乌克兰和台湾可能的军事侵略，奥斯汀表示，“关于俄罗斯对乌克兰的侵略和中国对台湾的侵略，美国的战略目标都是在外交上发挥作用。”**
+素材：东京樱花团丨GNEWS组
+![](https://lh6.googleusercontent.com/twnHdXEGo05KRtsppLIR9q9Lg8SWHqRR0CfWSiKO7sgAuBH3MJl9qqIgZ75YS3xGk7V7r5_8FmKp7bGAF-ljJuJEPR8sXWg3J64Dtd4zbXA7h9QewI9xkzdt5JspTiHvDrM1gx-I)[*图片来源*](https://www.voachinese.com/a/biden-warns-putin-20211207/6343248.html)
+1、[**苹果与中共千亿秘密协议曝光**](https://www.voachinese.com/a/apple-secret-deal-with-china-2nd/6343811.html)
 
-奥斯汀补充道，“我们对尊重每个国家主权领土的基于规则的国际秩序非常感兴趣。”他说，“我们相信乌克兰有权捍卫和保护其主权领土，美国以材料和顾问支持乌克兰，因此它拥有自卫所需的一切。”
+周三(7日)，总部设在美国加州旧金山的付费网络媒体《信息》独家披露，苹果首席执行官库克，2016年与中国政府签署一份2750亿美元的秘密投资协议，以“安抚可能阻碍其在中国的设备和服务的威胁”。报道援引独家获取的苹果内部文件称，库克为取消中国政府对该公司的一系列监管行动，于2016年数度亲自到访中国，并与中国达成秘密协议，“他的干预为苹果在该国取得无与伦比的成功铺平了道路。”路透社援引原报道称，作为协议的一部分，苹果承诺将在其设备中使用更多来自中国供应商的组件，与中国软件公司签署协议，与中国大学进行技术合作，并直接投资中国科技公司。
 
-面对中共国对台湾的侵略，奥斯汀表示，“根据《台湾关系法》的概述，国防部将继续对台湾提供支持，以便台湾能够自卫。台湾也有两党的支持，国务卿说这很重要。”
+2、[**美参议员推出增加投资捍卫海外民主议案**](https://www.voachinese.com/a/bill-introduced-to-defend-democracy-20211207/6343379.html)
 
-- ***延展阅读：***[***拜登警告普京，如果俄罗斯的侵略继续下去，将会带来经济后果***](https://www.reuters.com/article/biden-putin-1207-tues-idCNKBS2IN025)
+美国参议院拨款委员会国家海外运作拨款小组委员会主席、民主党籍参议员库恩斯和首席共和党成员格雷厄姆参议员周一（6日）提出“21世纪民主法案”，要求大幅增加投资，利用现代化工具在海外促进并捍卫民主和人权。议案授权把美国全球民主援助资金从目前的24亿2000万美元增加到30亿美元，增幅25%，并成立四个灵活基金，重振全球民主资源，对海外民主面临的新兴威胁做出反应，尤其是数字和科技领域面临的威胁。
 
+3、[**拜登警告俄罗斯称如入侵乌克兰将面临制裁**](https://www.voachinese.com/a/biden-warns-putin-20211207/6343248.html)
 
-奥斯汀强调，如果俄罗斯攻击乌克兰，这将是“一个非常糟糕的举动”。但这位部长说，“我们的综合威慑意味着以新的不同的方式将我们的现有军事能力联网。而综合威慑能力包括与美国盟友合作的能力。这意味着我们将在所有领域作战能力，包括网络和太空以及海底。”
+美国总统拜登周二（7日）与俄罗斯总统普京进行了一次安全的视频通话，讨论美俄关系等议题。拜登总统就俄罗斯在乌克兰周边增加军事部署表达了美国与欧洲盟友的深切关注。拜登明确表示，“如果出现军事升级，美国与盟友将用强有力的经济和其它措施做出回应。”白宫说，拜登总统同时重申支持乌克兰的主权和领土完整，并呼吁缓和局势，恢复外交，并表示将与盟友和伙伴国家密切磋商。
 
-但这位国防部长称，我们综合威慑能力还包括“以外交为主导”的方式。他认为，“如果外交失败，无论出现什么问题，我们都将处于有利位置，能够取得胜利并果断取胜。”这也意味着奥斯汀在确保最坏情况出现后不放弃使用“国家力量”。
-![](https://lh3.googleusercontent.com/lWJPPFGIDV8WEcjdX_6OcJLO9InbETH1Cs9n2jt7ap2hJ1tpBDyEM0qawzx1ZwPr0w0mC0YLWP3k_TZ1GiTfpODutex0x-XiVDgcG4Jv3Q6B0QHQCfibsOfaMbzZ5ap6Bq_fEonZ)[*图片来源*](https://www.nytimes.com/2021/12/07/world/europe/listen-to-the-daily-why-does-american-military-assistance-to-ukraine-matter.html)
-奥斯汀援引国务卿的话说，国务卿相信有机会通过武力以外的方式解决分歧。“我们在边境地区看到了俄罗斯军队的数量，对此表达了数周的担忧。”乌克兰总统沃洛德米尔泽伦斯基说，“最近他担心有人试图破坏他的政府稳定。”奥斯汀说，“当你把所有信息加在一起分析，看起来很熟悉，就像 2014 年俄罗斯第一次入侵乌克兰时的重演。”
+4 、[**美台部长通话建立科技投资新架构**](https://www.voachinese.com/a/US-secretary-of-commerce-holds-introductory-call-with-Taiwan-minister-of-economic-affairs-20211207/6342983.html)
 
-- ***延展阅读：***[***奥斯汀接受福克斯采访称：乌克兰现在显然不属于北约，不受第5条款保护***](https://www.defense.gov/News/Transcripts/Transcript/Article/2862114/secretary-of-defense-lloyd-j-austin-iii-interview-with-bret-baier-fox-news-at-2/)
+在美国在台协会（AIT）和驻美国台北经济文化代表处(TECRO)的主持下，美国商务部长雷蒙多与台湾经济部长王美花进行了通话，雷蒙多在通话中强调美国对台湾的支持以及美台商业和投资关系的重要性。美台还将建立“科技贸易暨投资合作架构”(TTIC)，以促进双边贸易，达成关键供应链多元化目标。雷蒙多还表示了美国继续与台湾在共同关心的商业问题上合作的兴趣，特别是在半导体供应链和相关生态系统领域。
 
+5、[**澳大利亚宣布外交抵制北京冬奥**](https://www.aboluowang.com/2021/1208/1680860.html)
 
-奥斯汀在继续谈到台湾时表示，“我们不希望看到现状发生变化，尤其是现状的单方面变化。”他强调台湾的所有紧张局势都应该首先通过外交途径解决，并且国防部还确保这个小国拥有自卫所需的东西，比如像对乌克兰的军事支持。但奥斯汀承认，“美国人对军队的信心有所下降，但他发誓要努力保持国家的信心。”
+澳大利亚总理莫里森7日宣布，不会派遣任何官方代表团出席北京冬奥会。莫里森说，澳大利亚不会从坚决维护自身利益的强硬立场后退，因此，我们不派遣任何官方代表团出席北京冬奥会。莫里森同时表示，北京在新疆严重违反人权，以及北京拒绝与澳大利亚官员会晤讨论相关问题也促使堪培拉作出上述决定。在美国宣布以人权名义对北京冬奥进行外交抵制一天后，澳大利亚作出上述决定。这项决定并不妨碍运动员参加奥运会。
 
-2021年12月8日
-
-*校对：东京樱花团 / 東洋武士
-发布：东京樱花团 / 平安卿卿*
+*编辑：东京樱花团 / 文小白*
+*发布：东京樱花团 / 平安卿卿*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
  
 
