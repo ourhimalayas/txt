@@ -2,30 +2,43 @@
 ---
 
 
-## 雷军退出小米科技公司法人
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1731567/)
+## 全球数千亚马逊用户遭遇网络中断
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1731589/)
 
-![雷军_最美奋斗者](https://lh3.googleusercontent.com/proxy/0hmVwyUEWZIfVZp7tC_6pI0jDvXKDgKKr1iE3sGX9zCrbbUHKwk9Kyjgt7w6fRKp4_4xUIauBjgBuXxDleODzLbUIlbeLjsn)*雷军。资料照*![](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2021%2F1207%2F6d11e92fj00r3qp0h000mc000go0089m.jpg&amp;thumbnail=690x10000&amp;quality=75&amp;type=jpg)
-据网易新闻12月7日报道，小米科技（武汉）有限公司发生工商变更，法人代表由雷军变更为曾学忠，同时雷军退出执行董事兼总经理职位。
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-小米科技(武汉)有限公司成立于2017年9月，注册资本2. 1亿元，由小米通讯技术有限公司全资控股。经营范围包含数据处理和存储服务；房地产开发经营等。雷军目前依然任小米科技董事长兼CEO，同时兼任金山、YY、猎豹移动等三家上市公司董事长。2021年11月18日，小米汽车科技有限公司成立，法人代表雷军，注册资本10亿人民币，由小米科技有限责任公司全资持股。经营范围含新能源整车制造、技术研发等。首款小米汽车预计会在2024年实现量产。
-
-雷军信心满满要为小米汽车而战。新能源汽车是未来的趋势，全世界都在积极发展，力求占据未来的市场。中共也想要抢占一块领地。
-
-新闻参考链接：[https://c.m.163.com/news/a/GQKPNNRK0527A5AV.html?spss=newsapp](https://c.m.163.com/news/a/GQKPNNRK0527A5AV.html?spss=newsapp)
-
-编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Copy-of-omicron.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+ 
+图片来源:  The Sun
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+#### 编译 ：小红帽
+
+亚马逊网络服务（AWS）的故障正在导致整个互联网上出现连环问题，许多网站显示出“错误网关”的字样。Downdetector显示问题在太平洋时间12月7日上午8点后出现。
+
+亚马逊主网站已经有超过20,000份中断报告，AWS则有11,000份中断报告。Downdetector的热图显示问题在美国东部最为严重。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/rt.png)图片来源：RT NEWS
+
+
+由于很多网络基础设施使用AWS进行运营，从麦当劳的应用程序、迪士尼+流媒体服务，到支付网络Venmo，其他服务都出现中断的报告。
+
+约会应用程序Tinder、体育赌博应用程序FanDuel和脸书也出现了故障报告激增的情况。
+
+截止到太平洋时间12月7日上午8点26分，亚马逊表示，中断的原因是美国东部地区的 “API和控制台问题”。全球控制台登陆页面位于同一地区，也同样受到影响。亚马逊表示，已经“确定了根本原因”，并正在“积极努力恢复”。
+
+新闻来源：[Amazon down for thousands worldwide — RT World News](https://www.rt.com/news/542483-amazon-down-thousands-users/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

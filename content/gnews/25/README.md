@@ -2,35 +2,26 @@
 ---
 
 
-## 加拿大从 1 月 15 日起禁止未接种疫苗的 NBA 球员
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1731765/)
+## 中共的“宗教中国化”就是“宗教姓党”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1731770/)
 
-编译： 真北007
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Getty-Images-30-640x480-1-edited.jpg)图片来源：网络
-来自BREITBART 12月7日的新闻报道：
+撰稿：东京樱花团/天路天道
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-72.jpg)[图片来源](https://asiatimes.com/2019/04/chinas-dire-clampdown-on-religious-freedom/)
+习近平在12月3、4日召开的全国宗教工作会议上强调坚持“宗教中国化”，增进宗教界人士和群众对中国共产党、中国特色社会主义的认同。
 
-据报道，加拿大已颁布法令，未接种疫苗的 NBA 球员将不能进入加拿大多伦多参赛。
+由于长期迫害宗教自由，中共一直遭到国际谴责。美国国务院11月17日宣布将中国、俄罗斯等十个国家列入压制宗教自由的“特别关注国”黑名单，美国国务卿布林肯（Antony Blinken）在声明中表示，这些国家因参与或容忍“系统地、持续地、严重地侵犯宗教自由”，而被列为特别关注国家。
 
-据 The Athletic 的 Shams Charania 报道，加拿大卫生官员表示，从 1 月 15 日开始，球员必须完全接种疫苗才能与多伦多猛龙队比赛。 猛龙队球员还必须 100% 接种疫苗，否则将面临罚款和停赛。
+中共长期实施宗教迫害，“宗教中国化”实质就是“宗教姓党”，即“宗教共产党化”、“宗教跟党走”。
 
-该公告并不令人意外，加拿大公共安全部长 Marco Mendicino 于 11 月宣布，将于 2022 年对外国游客实施强制性疫苗接种要求。
+信仰是人生不可缺失的一部分。有信仰而知人生，更认识自我，调整人生看破红尘，走向良善的人生。共享上天赐下人世间的万物，和谐友善走向喜马拉雅的那一刻！
 
-门迪奇诺表示，“职业和业余运动员将不再享有豁免权”。
+信息来源：
 
-NBA 声称联盟中 95% 的人现在已经完全接种了疫苗。
+[**习近平重申宗教中国化 被批实质是”宗教党化”**](https://www.rfa.org/mandarin/yataibaodao/shehui/cm-12062021133446.html)
 
-当然，新规则不仅仅适用于 NBA，北美冰球联合会 NHL 在加拿大有七支职业冰球队。不过，NHL 仍未就北方邻国将实施的新规则发表任何声明。
-
-事实上，加拿大几乎取消了之前对游客的所有豁免。外加前往加拿大与家人团聚的人、18 岁以上的国际学生、从事关乎国计民生工作的跨境工人和服务人员以及大多数外国临时工人，现在所有人都必须完全接种疫苗或被禁止入境。
-
-**点评: **加拿大总理小特鲁多与全球有名的独裁暴君们有的一拼，左派自由势力的骨干，大家还记得他把MANKIND 改成HUMANKIND 吧? 他就是一个笑话。
-
-原文链接：[https://www.breitbart.com/sports/2021/12/07/canada-bans-unvaccinated-nba-players-starting-on-january-15/](https://www.breitbart.com/sports/2021/12/07/canada-bans-unvaccinated-nba-players-starting-on-january-15/)
-
-编辑/发布：LILY
-
-20211207
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
