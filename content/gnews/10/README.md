@@ -2,36 +2,37 @@
 ---
 
 
-## 安大略省“奥米克戎”大爆发凸显疫苗的苍白无用
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1733241/)
+## 澳大利亚站队美国外交抵制北京冬奥会
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1733380/)
 
-**撰稿：路仁**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/unnamed-11.jpg)图片来源：网络图片
-最近在安大略省西南部的一个医疗辖区米德塞斯-伦敦卫生辖区，爆发了一个40人的群体感染。根据该辖区[最新发布](https://www.facebook.com/middlesex.london.health.unit/)（12月7日星期二）的消息，根据基因检测其中两位病人样品，确信属于“奥米克戎”变种感染。该辖区卫生官员推断，这个40人的感染群体极大可能是“奥米克戎”变种病毒感染，而与这个感染群体密切接触的高达171人，而随着时间的推移，这个数字还在增加。
+翻译：不要代表我Kari
+校对：Julia
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2021.12.8-14.jpg)图片来源：法广网
+澳大利亚总理斯科特·莫里森(Scott Morrison)证实，澳大利亚将跟随美国的脚步，不派政府官员参加明年在中国举行的冬奥会。
 
-根据[米德塞斯-伦敦卫生辖区官方资料](http://communityhealthstats.healthunit.com/chapter/geography-and-demographics)，这个辖区总计人口约45.5万人左右（2016统计数据），由此可以推断，“奥米克戎”变种病毒在该区甚至整个安省大爆发，几乎难以避免。
+莫里森Morrison周三表示，这”不足为奇，澳大利亚将不派任何官方代表参加即将在中国举行的冬季奥运会”，依据的理由是”在新疆发生的侵犯人权和澳大利亚一直向中方提出的有待解决的其他问题。”
 
-这个感染的群体均可以追溯到11月底从尼日利亚回来的两个人，根据[环球新闻报道](https://globalnews.ca/news/8431848/covid-19-first-omicron-variant-case-london-ont/)，这两人均为完全疫苗接种者，并在下飞机后做了检测。而所有的感染的这个群体中，改辖区执行卫生管萨摩斯医生（Dr. Alex Summers）并没有指出这个40人感染群体疫苗的接种情况，只是说”许多人“已经完全接种了疫苗。
+“我们一直非常荣幸，也非常乐意与中国政府谈论这些事务，澳方这边没有任何阻碍，”他声称，”但中国政府一直拒绝我们就这些问题进行会晤的要求。”
 
-目前卫生部发现的这些确诊病例已经涉及到到多所学校、儿童看护中心。近期在伦敦南部一间教堂爆发的疫情也与这个确诊人群有关。卫生部仍在调查接触人员中，感染病例很可能还会增加。
+然而，澳总理坚持认为，“虽然澳大利亚官员不会去中国参加奥运会，但澳大利亚运动员仍然可以参加比赛。”
 
-不出人意料的是，该区卫生官萨摩斯医生给出的办法依旧是：“接种疫苗，戴好口罩，确保口罩合适你，并在整个假日季节减少社交活动”
+莫里森政府紧随美国总统拜登政府的脚步，拜登政府也在周一宣布对冬奥会进行外交抵制。
 
-尽管安大略省的疫苗覆盖率逐渐上升，但整个安大略省近期感染人数并没有随着疫苗增长而下降，加之“奥克米戎”变种病毒的出现，本周二省政府也宣布，整个省原本已经暂停的重新开放的时间表将无限期延长。
+白宫新闻秘书珍·普萨基(Jen Psaki)告诉记者，”鉴于中华人民共和国在新疆正在发生的种族灭绝和反人类罪以及其他侵犯人权的行为”，美国将不派任何官方代表参加在北京举行的冬季奥运会。
 
-根据[加拿大官方文件](https://www.canada.ca/en/public-services-procurement/services/procuring-vaccines-covid19.html)，极左的小土豆政府，在疫情初期就为加拿大人购买了4.09亿支疫苗，平均每个加拿大人每人够打11针。尽管在变种病毒面前，所谓的“疫苗”显得苍白无力，但与中共一直不清不白的小土豆，与世界邪恶势力相勾结，强制推行疫苗护照，积极推行5-12儿童接种毒疫苗，通过官方禁止羟氯喹，伊维菌素等有效的预防和初期治疗药物，打压讲真话的医生。相信随着毒疫苗危害逐渐显现，随着真相的逐渐浮现，小土豆及其极左政府必将受到人民和法律的追究。
-![](https://lh4.googleusercontent.com/LX7Hc2txJX_6Trft82BzH7CiQ9nR3NBxVyV0T0M-_XhtI4HBxpig-3nVJ2xIPEJzoFv5jU2CTQTiIPBeMQHg2Xqf_3vgUWXNbRfJteFI8BqXfrWGKFdVsFYc5J5Mvvpojnbgf-JcTIX1nmqXw6U)
-参考链接：
+普萨基(Psaki)说：“面对中华人民共和国在新疆(犯下的)令人震惊的侵犯人权行为和暴行，美国的外交或官方代表团会把这些赛事当作平常事，而我们根本不能这样做。”
 
-[米德塞斯-伦敦卫生辖区官方资料](http://communityhealthstats.healthunit.com/chapter/geography-and-demographics)
+中国在华盛顿驻美大使馆发言人刘鹏宇称此举是 “自命不凡”，”政治操弄”，”对《奥林匹克宪章》精神的严重扭曲”。他还补充说，”没有向美国政要发出任何邀请，所以这种’外交抵制’根本就是凭空而来，子虚乌有”。
 
-[环球新闻报道](https://globalnews.ca/news/8431848/covid-19-first-omicron-variant-case-london-ont/)
+“事实上，没有人会在意这些人是否来（参加北京冬奥会），这对北京2022年冬奥会的成功举办没有任何影响，”发言人说。
 
-[加拿大官方文件](https://www.canada.ca/en/public-services-procurement/services/procuring-vaccines-covid19.html)
+中国外交部部长助理华春莹发表了类似的声明，强调美国官员没有被邀请，她在推特上说：”一个人不能在没有收到邀请的情况下拒绝邀请”。
 
-* * *
+中国日报欧盟分社社长陈卫华在社交媒体上半开玩笑地说：“尽管没有收到邀请，但他将抵制白宫的圣诞和新年聚会。”
 
-编辑、校对 ctt
+文章链接： [https://www.rt.com/news/542502-australia-boycott-china-olympics/](https://www.rt.com/news/542502-australia-boycott-china-olympics/)
+
+发布：去中心化Math
 
  
 

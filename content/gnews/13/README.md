@@ -2,35 +2,83 @@
 ---
 
 
-## 417名滞留白俄的伊拉克公民被遣送回国
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1733226/)
+## 南非新型变种病毒奥米克戎患者激增
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1733304/)
 
-作者：香草山农场健身部 – 正道新闻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-根据视频消息，2021年12月7日伊拉克航空公司搭载417名非法滞留白俄的伊拉克公民回国。 2021年年初波兰边防部队记录大约有4万多次从白俄罗斯非法越境的企图。
+本文作者：Rebecca (一切心皆不可得！)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image001.png)
+据彭博社报导，早前南非已确诊奥米克戎（Omicron）病例不到250例，但最近，每日新病例突增至 16,000 多例。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image003-1.jpg)
+数据源：世界指数
 
-根据立陶宛、拉脱维亚、波兰最近的报告，来自于中东、非洲的非法移民暴增。目前约有3000名移民返回伊拉克和叙利亚，但是还有7000多人任然逗留在白俄罗斯境内，其中以库尔德人和中东人为主。
+这是自7月以来该国每日新增病例最多的一天。
 
-历史上，白俄罗斯对于西方渗透防范极为严格，拥有极为严格的边境管理制度。卢卡申科作为白俄罗斯总统，控制白俄罗斯政坛已经30余年。近年来，白俄罗斯与CCP关系极为密切。无论在军事、政治、经济、文化方面全面与CCP深度合作。在2020年4月CCP病毒全面爆发伊始就在本国建设投产了一条硫酸羟氯喹制剂的生产线。可以说这次非法移民灾难，极大可能性是CCP发动的一次试图拖垮欧洲，让其混乱的非超限战。
+以下是南非当地7位医生对这一情况的看法摘要：
 
-**（本文谨代表作者观点）**
+1
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+开普敦大学传染病科主任马克-门德尔森（Marc Mendelson）也在格罗特舒尔医院（Groote Schuur Hospital）工作，格罗特舒尔医院做了世界上首例心脏移植手术。
 
-**校对/发稿：童谣**
+- 目前，看到很多再次感染的情况。但还没统计，具体有多少奥米克戎患者是已接种疫苗的，还是未接种疫苗的。
 
-**更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+2
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+南非最大的私人医疗保健网Netcare公司的首席执行官理查德德-弗里德兰（Richard Friedland）
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+- 奥米克戎具有高传染性，但患者症状比较轻微，并不严重，跟西班牙流感类似。估计这可能预示着新冠病毒的终结就要到了。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3
+
+威特沃特斯兰德大学的疫苗专家Shabir Madhi，他负责在阿斯利康公司和诺华公司的疫苗试验项目。
+
+- 奥米克戎似乎比德尔塔传播速度更快，虽然病例总数可能会更多，但住院和死亡人数将低于我们在前三波疫情经历的情况。
+
+
+4
+
+南非国家传染病研究所的临床微生物学家Anne von Gottberg
+
+所有数据显示，儿童的临床病程没有那么严重。我们相信，随着再感染，疾病将变得不那么严重.
+
+5
+
+NICD代理执行主任Adrian Puren
+
+- 目前，患病及住院人数大量增加，但有证据表明，奥米克戎患者占整个新冠病毒变异的75%左右。奥米克戎有完全取代德尔塔变种的可能性。
+
+
+如果奥米克戎确实取代了德尔塔变种，我们需要看看这是免疫规避的结果还是因为传播性的增加所致
+
+6
+
+莱昂-格芬是开普敦海角郊区的一名普通医生，也是萨姆森老龄化研究所的主任。
+
+- 我们看到了病例总数的大规模激增。 “人们大多以咳嗽和上呼吸道感染的方式出现。
+
+
+7
+
+安东尼-史密斯，开普敦的一名普通医生。
+
+- 从上周四或周五开始，病患就像开闸放水一般涌进来。主要是年轻人，但有20%左右是老年患者 “。
+- 大多数孩子都是在小区活动时感染的。其症状较轻，主要是喉咙痛和呼吸道现象。
+- 没有重症患者，但还不能判定奥米克戎病毒是一个较温和的变种。
+
+
+
+
+[新闻来源链接](https://www.zerohedge.com/markets/south-africa-suffers-most-new-covid-cases-july-scientists-ground-weigh)
+
+
+
+【文章仅限作者个人观点】
+
+审核校对：sherryok (水云间)
+
+上传排版：漂流瓶
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

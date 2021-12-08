@@ -2,37 +2,50 @@
 ---
 
 
-## 澳大利亚站队美国外交抵制北京冬奥会
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1733380/)
+## 纽约市宣布疫苗强制令 遭商业团体猛烈抨击
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1733473/)
 
-翻译：不要代表我Kari
-校对：Julia
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2021.12.8-14.jpg)图片来源：法广网
-澳大利亚总理斯科特·莫里森(Scott Morrison)证实，澳大利亚将跟随美国的脚步，不派政府官员参加明年在中国举行的冬奥会。
+作者：加拿大扬帆农场 – Spirit
 
-莫里森Morrison周三表示，这”不足为奇，澳大利亚将不派任何官方代表参加即将在中国举行的冬季奥运会”，依据的理由是”在新疆发生的侵犯人权和澳大利亚一直向中方提出的有待解决的其他问题。”
 
-“我们一直非常荣幸，也非常乐意与中国政府谈论这些事务，澳方这边没有任何阻碍，”他声称，”但中国政府一直拒绝我们就这些问题进行会晤的要求。”
 
-然而，澳总理坚持认为，“虽然澳大利亚官员不会去中国参加奥运会，但澳大利亚运动员仍然可以参加比赛。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-莫里森政府紧随美国总统拜登政府的脚步，拜登政府也在周一宣布对冬奥会进行外交抵制。
 
-白宫新闻秘书珍·普萨基(Jen Psaki)告诉记者，”鉴于中华人民共和国在新疆正在发生的种族灭绝和反人类罪以及其他侵犯人权的行为”，美国将不派任何官方代表参加在北京举行的冬季奥运会。
 
-普萨基(Psaki)说：“面对中华人民共和国在新疆(犯下的)令人震惊的侵犯人权行为和暴行，美国的外交或官方代表团会把这些赛事当作平常事，而我们根本不能这样做。”
+12月6 日，纽约市市长白思豪宣布，对纽约市所有私营部门雇主全面实施新冠病毒疫苗强制令，没有测试选项，于12月27日开始。这项任务将涵盖大约18.4万家企业。同时，白思豪说，5到11岁的儿童在室内用餐、健身和娱乐时，也必须要有疫苗证明。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1.1-4.jpg)
+当天，纽约市合伙人组织的负责人凯瑟琳·怀尔德表示，他们对纽约市长措手不及的疫苗强制令感到震惊。拜登总统对雇员超过100人的雇主的疫苗强制目前因诉讼搁浅，很难想象市长能做到总统被挑战的事情。联邦、州和市等各级的政策不一致会使情况更加糟糕。
 
-中国在华盛顿驻美大使馆发言人刘鹏宇称此举是 “自命不凡”，”政治操弄”，”对《奥林匹克宪章》精神的严重扭曲”。他还补充说，”没有向美国政要发出任何邀请，所以这种’外交抵制’根本就是凭空而来，子虚乌有”。
+纽约市合伙人组织是一个非常有影响力的商业团体，摩根大通公司和高盛集团都是其成员。
 
-“事实上，没有人会在意这些人是否来（参加北京冬奥会），这对北京2022年冬奥会的成功举办没有任何影响，”发言人说。
+参考链接：
+1. [COVID vaccine mandate announced for NYC private-sector workers, new requirements for kids](https://abc7ny.com/new-york-city-vaccine-mandate-private-sector-workers-children-nyc-covid/11305096/)
+2. [NYC Business Group Blasts Private-Sector Vaccine Mandate](https://www.bnnbloomberg.ca/nyc-business-group-blasts-private-sector-vaccine-mandate-1.1691865)
 
-中国外交部部长助理华春莹发表了类似的声明，强调美国官员没有被邀请，她在推特上说：”一个人不能在没有收到邀请的情况下拒绝邀请”。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-中国日报欧盟分社社长陈卫华在社交媒体上半开玩笑地说：“尽管没有收到邀请，但他将抵制白宫的圣诞和新年聚会。”
+总编：Irene木木
+编辑：飞虹
+校对/发稿：为真不破20
 
-文章链接： [https://www.rt.com/news/542502-australia-boycott-china-olympics/](https://www.rt.com/news/542502-australia-boycott-china-olympics/)
+**更多资讯，更多关注**
 
-发布：去中心化Math
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

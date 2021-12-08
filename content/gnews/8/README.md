@@ -2,82 +2,36 @@
 ---
 
 
-## 有声|【每日读经】创世纪(2:1-25)
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1733293/)
+## 美法官阻止全美联邦承包商疫苗强制令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1733415/)
 
-配音：香草山福音部 – Daxia
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月7日，据美国乔治亚州南区法院的斯坦·贝克法官发布的初步禁令表明，法院将禁止全美范围内执行对联邦承包商雇员的新冠疫苗强制接种令。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/8-12.jpg)
+此前，联邦强制令要求，所有联邦承包商的雇员必须在2022年1月18日前完成新冠疫苗的全程接种。 对此，南卡罗莱纳州总检察长办公室称，包括南卡罗莱纳、佐治亚在内的七个州的总检察长和州长，以及其他州的相关实体正在对拜登政府提起诉讼。
 
+另外，南卡罗莱纳州的州长亨利·麦克马斯特曾在白宫宣布强制新冠疫苗政策后表示，要与拜登政府就疫苗强制令战斗到底。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-**1**天地万物都造齐了。
+截止目前，拜登政府颁布的针对不同行业和部门的三大疫苗强制令已经全部被美国法院阻止，其中包括第五巡回法院叫停OSHA针对具有100名以上员工的私营公司的新冠疫苗强制令，路易斯安那州联邦法院叫停CMS针对医护工作者的新冠疫苗强制令，还有此次南卡罗来纳州联邦法官叫停对联邦承包商执行的新冠疫苗强制令。
 
-**2**到第七日，　神造物的工已经完毕，就在第七日歇了他一切的工，安息了。
+参考链接：
+1) .[Federal judge blocks vaccine requirement for federal contractors](https://www.wbtw.com/news/national/federal-judge-blocks-vaccine-requirement-for-federal-contractors/?utm_campaign=socialflow&amp;utm_source=t.co&amp;utm_medium=referral)
+2) . [BREAKING: A federal judge has again sided with Attorney General Alan Wilson and today blocked the vaccine requirement for federal contractors. This is the third time courts have agreed with Attorney General Wilson and blocked vaccine mandates imposed by the Biden administration.](//twitter.com/scattygenoffice/status/1468268319371411460?s=21)
 
-**3**　神赐福给第七日，定为圣日，因为在这日　神歇了他一切创造的工，就安息了。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-**伊甸园**
+总编：Irene木木
+编辑：Lakeman文仁
+校正/发稿：Fei797
 
-**4**创造天地的来历，在耶和华　神造天地的日子，乃是这样：
-
-**5**野地还没有草木，田间的菜蔬还没有长起来，因为耶和华　神还没有降雨在地上，也没有人耕地，
-
-**6**但有雾气从地上腾，滋润遍地。
-
-**7**耶和华　神用地上的尘土造人，将生气吹在他鼻孔里，他就成了有灵的活人，名叫亚当。
-
-**8**耶和华　神在东方的伊甸立了一个园子，把所造的人安置在那里。
-
-**9**耶和华　神使各样的树从地里长出来，可以悦人的眼目，其上的果子好作食物。园子当中又有生命树和分别善恶的树。
-
-**10**有河从伊甸流出来滋润那园子，从那里分为四道：
-
-**11**第一道名叫比逊，就是环绕哈腓拉全地的。在那里有金子，
-
-**12**并且那地的金子是好的；在那里又有珍珠和红玛瑙。
-
-**13**第二道河名叫基训，就是环绕古实全地的。
-
-**14**第三道河名叫底格里斯，流在亚述的东边。第四道河就是幼发拉底河。
-
-**15**耶和华　神将那人安置在伊甸园，使他修理看守。
-
-**16**耶和华　神吩咐他说：“园中各样树上的果子，你可以随意吃，
-
-**17**只是分别善恶树上的果子，你不可吃，因为你吃的日子必定死。”
-
-**18**耶和华　神说：“那人独居不好，我要为他造一个配偶帮助他。”
-
-**19**耶和华　神用土所造成的野地各样走兽和空中各样飞鸟都带到那人面前，看他叫什么。那人怎样叫各样的活物，那就是它的名字。
-
-**20**那人便给一切牲畜和空中飞鸟、野地走兽都起了名，只是那人没有遇见配偶帮助他。
-
-**21**耶和华　神使他沉睡，他就睡了；于是取下他的一条肋骨，又把肉合起来。
-
-**22**耶和华　神就用那人身上所取的肋骨造成一个女人，领她到那人跟前。
-
-**23**那人说：“这是我骨中的骨，肉中的肉，可以称她为女人，因为她是从男人身上取出来的。”
-
-**24**因此，人要离开父母与妻子连合，二人成为一体。
-
-**25**当时夫妻二人赤身露体并不羞耻。
-
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
