@@ -2,28 +2,50 @@
 ---
 
 
-## 震惊！中共特洛伊木马—集装箱导弹
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1733433/)
+## 纽约市宣布疫苗强制令 遭商业团体猛烈抨击
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1733473/)
 
-**采集****/翻译：意翎    **
+作者：加拿大扬帆农场 – Spirit
 
-**责编：白夜**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-382.png)
-*专家警告称，北京一直在秘密开发隐藏在集装箱内的特洛伊木马导弹，图谋在世界各地发动攻击。*
 
-据美国《太阳报在线》一份令人震惊的报告称，在航运和物流成为全球焦点之际，北京一直在秘密开发隐藏在集装箱内的特洛伊木马导弹。这些导弹可以被伪装在中共庞大的货船和渔船舰队中，释放到敌人的港口，然后这些船只可以使用秘密导弹而变成军舰。报告称，这些导弹可以与船上数百个其他集装箱无缝对接，一旦发生战争，世界上集装箱船的数量比军舰更难以确定。
 
-国际评估与战略中心（International Assessment and Strategy Center）亚洲事务高级研究员里克·费舍尔（Rick Fisher）说，虽然中共官方还没有确认，但他们很可能已拥有这类特洛伊导弹。斯托克顿（Stockton Center）国际法中心的一项研究警告称，这种武器可能违反海军法律，“它不遵守武装冲突法，秘密将商船纳入中国的战斗力，危及民用海员，并使所有不能在敌对地区作业的民用船舶处于危险之中”。与同此时，前太平洋舰队情报负责人、退役海军上尉吉姆·法内尔（Jim Fanell）表示，集装箱反舰导弹将对美国海军构成“重大威胁”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-这种武器是在2016年的珠海航展上进入公众视野的，从那时起，就有猜测说它们可能在中共军队服役。费舍尔说，这种武器符合中共的军事战略偏好，“将为中共领导层提供广泛的选择”，这包括“使用更大的集装箱船、数千艘渔船或在港口储存的集装箱，执行军事或恐怖袭击任务，如果他们愿意的话。”中国这个共产主义巨魔正在挑战美国作为头号超级大国的地位。众所周知，中共正在积极发展其军事力量，扩大其在世界各地的影响力，比如北京在非洲西岸建立一系列新的海军基地，在大西洋建立立足点。在世界各国努力从疫情中恢复之际，中共也被认为将在全球军备竞赛的下一阶段处于领先地位，因为它向世界各地发射了一枚携带高超音速滑翔飞行器的火箭，该火箭在向目标加速之前环绕地球飞行，美国情报和军事官员对此感到震惊。
 
-费舍尔坚持认为“中共完全有能力在需要的时候使用集装箱导弹制造混乱”，例如，中共的导弹发射集装箱可以储存在西雅图港附近，它们可以被安置在“普通的小型中共船只上，以便对海岸防御系统发动突然的导弹袭击，以协助跟踪两栖或空降入侵部队” 。
 
-他说，集装箱导弹发射器可以通过港口或高速公路走私。然后，它们可以在美国军事基地范围内的一座温控建筑中储存数年，并在军事行动需要时取出。
+12月6 日，纽约市市长白思豪宣布，对纽约市所有私营部门雇主全面实施新冠病毒疫苗强制令，没有测试选项，于12月27日开始。这项任务将涵盖大约18.4万家企业。同时，白思豪说，5到11岁的儿童在室内用餐、健身和娱乐时，也必须要有疫苗证明。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1.1-4.jpg)
+当天，纽约市合伙人组织的负责人凯瑟琳·怀尔德表示，他们对纽约市长措手不及的疫苗强制令感到震惊。拜登总统对雇员超过100人的雇主的疫苗强制目前因诉讼搁浅，很难想象市长能做到总统被挑战的事情。联邦、州和市等各级的政策不一致会使情况更加糟糕。
 
-他还推测，电磁脉冲（EMP）可能与这种导弹一起使用，“电磁脉冲爆炸可能会摧毁潜艇和整个基地的电子设备，而无需从中国发射一枚核导弹”。介时，华盛顿将陷入混乱，不知道要报复谁。“也许中共会利用美国的干扰来开始其真正目标—军事征服台湾”，费舍尔总结道。
+纽约市合伙人组织是一个非常有影响力的商业团体，摩根大通公司和高盛集团都是其成员。
 
-[原文链接](https://www.the-sun.com/news/4214471/china-feared-hiding-missile-trojan-horse-containers/)
+参考链接：
+1. [COVID vaccine mandate announced for NYC private-sector workers, new requirements for kids](https://abc7ny.com/new-york-city-vaccine-mandate-private-sector-workers-children-nyc-covid/11305096/)
+2. [NYC Business Group Blasts Private-Sector Vaccine Mandate](https://www.bnnbloomberg.ca/nyc-business-group-blasts-private-sector-vaccine-mandate-1.1691865)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+
+总编：Irene木木
+编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

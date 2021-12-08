@@ -2,34 +2,25 @@
 ---
 
 
-## BBC被曝向中共企业投资超1.5亿英镑养老基金
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1732105/)
+## 参议员里克·斯科特呼吁NBA抵制北京冬奥会
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1732189/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月6日，据英国媒体报道，英国广播电视公司BBC将超过1.5亿英镑的养老基金用于投资多家中共公司。而相关资料显示，在这些公司当中，至少有10家被指控支持中共独裁政权，其中两家公司甚至直接被中共政府持有。
+#### 搜集：彩虹       
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide2-7.jpeg)
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-355.png)图片来源：国会山报
+12月7日，《新闻极限》发布文章，报道周一时，由于中共国侵犯人权，来自弗罗里达走州的参议员里克·斯科特（Rick Scott）致函NBA专员亚当·西尔弗（Adam Silver），呼吁举行会议，拟将中共国冬2022年的奥会中踢出去。
 
-报道提及，这些公司中包括中共国海外发展有限公司，该公司曾在2020年被美国政府列入黑名单，并禁止任何美国公司或个人拥有其股份。另外，BBC的投资还涉及到持有中共国建设银行、工商银行、农业银行，以及阿里巴巴、腾讯、拼多多等公司的股票。同时，中共国网易公司也获得了来自BBC的投资。但据有关资料表明，网易多次参与打压被认为是对中共不利的新闻和评论。
+斯科特在信中表示，“我写信请求在尽快举行会议，讨论NBA是否（继续）参与中共国（相关活动）。我相信你们知道，因为我一直关注联盟在使用中国共产党制造的服装，关注达里尔·莫雷发表关于香港抗议活动的评论后（中共）对其打击的决定，关注NBA学院对年轻球员的虐待，关注贵组织对共产党中国可怕的人权侵犯和对新疆维吾尔族穆斯林的持续种族灭绝保持沉默，我一直在发表相关意见”。
 
-报道还提到，截至3月31日，这些股票的价值在仅仅一年间增加了四千多万英镑。 对此，前保守党领袖伊恩·邓肯·史密斯称，BBC对中共国企业的投资规模“令人吃惊”。更重要的是，BBC的投资最终用于维持一个犯下种族灭绝罪行的残暴、独裁政权的统治，这根本不应该发生。为此，史密斯呼吁BBC立即停止这类投资。
+斯科特指出：“我还敦促过NBA支持我的呼吁，将2022年冬奥会从共产主义中国移出，移到一个真正尊重人权的国家。可悲的是，你们在这方面也选择了沉默”。
 
-参考链接：[BBC has invested more than £150million in Chinese state-owned companies accused of links to appalling human rights violations](https://www.dailymail.co.uk/news/article-10277275/BBC-invested-150million-Chinese-state-owned-companies.html)
+针对相关的证据和事实，这位参议员在信中说：“我想说的很清楚，我简略陈述的这些问题既不是推测的，也不是可以讨论的，（因为）这些都是事实。NBA没有做任何事情来对抗中国共产党，而且在某些方面采取的行动似乎没有任何目的性，只是为了取悦习近平凶残暴虐的中共政府”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
+**新闻来源**
 
-总编：飞虹
-编辑：Kathy文艺
-校正/发稿：谐趣园
+[Sen. Rick Scott Urges NBA Support in Moving Olympics Out of China](https://www.newsmax.com/newsfront/nba-uyghur-muslims-human-rights/2021/12/07/id/1047739/)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

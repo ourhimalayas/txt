@@ -2,38 +2,36 @@
 ---
 
 
-## DC每日热点1208
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1733294/)
+## 美法官阻止全美联邦承包商疫苗强制令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1733415/)
 
-编辑：楚门门
-![](https://assets.gnews.org/wp-content/uploads/2021/12/F1FC63D0-06C4-430E-9900-862CBDDE839C-scaled.jpeg)
-道琼斯指数 35719.43 ▲1.40%
-纳斯达克指数 15686.92 ▲3.03%
-WTI纽约原油CFD 71.720 ▼0.46%
-布伦特原油CFD 75.271 ▼0.22%
-标普50指数 3,181.77 ▼33.80%
-美元兑人民币 1USD=6.347 RMB
-美元兑港币 1USD=7.795 HKD
-国际黄金 1782.59美元/盎司
-全球CCP病毒感染人数 267,609,982例
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月7日，据美国乔治亚州南区法院的斯坦·贝克法官发布的初步禁令表明，法院将禁止全美范围内执行对联邦承包商雇员的新冠疫苗强制接种令。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/8-12.jpg)
+此前，联邦强制令要求，所有联邦承包商的雇员必须在2022年1月18日前完成新冠疫苗的全程接种。 对此，南卡罗莱纳州总检察长办公室称，包括南卡罗莱纳、佐治亚在内的七个州的总检察长和州长，以及其他州的相关实体正在对拜登政府提起诉讼。
 
-1、佩洛西宣布众议院将在同一天通过三项中共国人权问题法案
-2、美国众议院通过新财年国防授权法协调版本 “为战胜中共国做好准备”
-3、澳大利亚呼应美国外交抵制北京冬奥会
-4、美军领导人讨论中共的军事挑战以及应对的方法
-5、苹果与中共千亿秘密协议曝光，库克为取消中共政府对该公司的一系列监管行动，于2016年数度亲自到访中共国，并与中共达成2750亿美元秘密协议
-6、美国家安全顾问沙利文：美国将从威慑与外交两方面采取一切措施确保中共武统台湾永远不会发生
-7、拜登警告普京：俄罗斯如果入侵乌克兰将面临强有力制裁
-8、中共国央行下调银行存款准备金率 释放1.2万亿元人民币刺激经济
-9、美台部长通话建立科技投资新架构，加强半导体供应链
-10、因挺台湾遭中共国霸凌，立陶宛寻求欧盟团结应对经济胁迫
-11、WTA宣布2022上半年赛事 深圳赛事已不在其中
-12、英国首相约翰逊决定外交抵制北京冬奥会
-13、印度军方直升机坠毁：多位高官身亡
-14、习近平快速祝贺肖尔茨当选德国总理 促更提升两国关系
-15、法国共和党候选人佩克雷斯民调窜升 第二轮击败马克龙
-16、渥太华面临拜登政府施压和民意压力 加拿大驻华大使辞职
+另外，南卡罗莱纳州的州长亨利·麦克马斯特曾在白宫宣布强制新冠疫苗政策后表示，要与拜登政府就疫苗强制令战斗到底。
 
+截止目前，拜登政府颁布的针对不同行业和部门的三大疫苗强制令已经全部被美国法院阻止，其中包括第五巡回法院叫停OSHA针对具有100名以上员工的私营公司的新冠疫苗强制令，路易斯安那州联邦法院叫停CMS针对医护工作者的新冠疫苗强制令，还有此次南卡罗来纳州联邦法官叫停对联邦承包商执行的新冠疫苗强制令。
+
+参考链接：
+1) .[Federal judge blocks vaccine requirement for federal contractors](https://www.wbtw.com/news/national/federal-judge-blocks-vaccine-requirement-for-federal-contractors/?utm_campaign=socialflow&amp;utm_source=t.co&amp;utm_medium=referral)
+2) . [BREAKING: A federal judge has again sided with Attorney General Alan Wilson and today blocked the vaccine requirement for federal contractors. This is the third time courts have agreed with Attorney General Wilson and blocked vaccine mandates imposed by the Biden administration.](//twitter.com/scattygenoffice/status/1468268319371411460?s=21)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+
+总编：Irene木木
+编辑：Lakeman文仁
+校正/发稿：Fei797
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,37 +2,82 @@
 ---
 
 
-## 有声|美台将于芯片领域在新框架下开展合作
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1733264/)
+## 南非新型变种病毒奥米克戎患者激增
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1733304/)
 
-配音：香草山美食部 – 玫瑰园
+本文作者：Rebecca (一切心皆不可得！)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image001.png)
+据彭博社报导，早前南非已确诊奥米克戎（Omicron）病例不到250例，但最近，每日新病例突增至 16,000 多例。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image003-1.jpg)
+数据源：世界指数
+
+这是自7月以来该国每日新增病例最多的一天。
+
+以下是南非当地7位医生对这一情况的看法摘要：
+
+1
+
+开普敦大学传染病科主任马克-门德尔森（Marc Mendelson）也在格罗特舒尔医院（Groote Schuur Hospital）工作，格罗特舒尔医院做了世界上首例心脏移植手术。
+
+- 目前，看到很多再次感染的情况。但还没统计，具体有多少奥米克戎患者是已接种疫苗的，还是未接种疫苗的。
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-据[OAN](https://www.oann.com/u-s-taiwan-discuss-chips-again-to-cooperate-under-new-framework/)网站援引路透社12月7日的报道，美国商务部长吉娜·雷蒙多(Gina Raimondo) 在周一与台湾经济部长王美花通话中表示，美台将通过新的技术贸易和投资合作（或称TTIC）框架，在技术贸易和投资方面进行合作。
+2
 
-双方讨论了台湾在全球供应链中发挥的关键作用。美方强调了对台湾的支持以及美台商业和投资关系的重要性，并表示，美国有兴趣与台湾继续就共同的商业问题进行合作，特别是在半导体供应链和相关生态系统领域。并承诺通过确定其他步骤来支持半导体和其他关键供应链。
+南非最大的私人医疗保健网Netcare公司的首席执行官理查德德-弗里德兰（Richard Friedland）
 
-早前，美国已多次向作为主要芯片生产国的台湾施加压力，要求其做出更多努力，帮助解决全球半导体短缺的问题。这一问题已使一些汽车生产线关闭，并影响到消费品的生产。
+- 奥米克戎具有高传染性，但患者症状比较轻微，并不严重，跟西班牙流感类似。估计这可能预示着新冠病毒的终结就要到了。
 
-文字版原文：[美台将于芯片领域在新框架下开展合作](https://gnews.org/zh-hans/1731221/)
 
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
-**更多资讯，更多关注**
+3
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+威特沃特斯兰德大学的疫苗专家Shabir Madhi，他负责在阿斯利康公司和诺华公司的疫苗试验项目。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+- 奥米克戎似乎比德尔塔传播速度更快，虽然病例总数可能会更多，但住院和死亡人数将低于我们在前三波疫情经历的情况。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+4
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+南非国家传染病研究所的临床微生物学家Anne von Gottberg
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+所有数据显示，儿童的临床病程没有那么严重。我们相信，随着再感染，疾病将变得不那么严重.
+
+5
+
+NICD代理执行主任Adrian Puren
+
+- 目前，患病及住院人数大量增加，但有证据表明，奥米克戎患者占整个新冠病毒变异的75%左右。奥米克戎有完全取代德尔塔变种的可能性。
+
+
+如果奥米克戎确实取代了德尔塔变种，我们需要看看这是免疫规避的结果还是因为传播性的增加所致
+
+6
+
+莱昂-格芬是开普敦海角郊区的一名普通医生，也是萨姆森老龄化研究所的主任。
+
+- 我们看到了病例总数的大规模激增。 “人们大多以咳嗽和上呼吸道感染的方式出现。
+
+
+7
+
+安东尼-史密斯，开普敦的一名普通医生。
+
+- 从上周四或周五开始，病患就像开闸放水一般涌进来。主要是年轻人，但有20%左右是老年患者 “。
+- 大多数孩子都是在小区活动时感染的。其症状较轻，主要是喉咙痛和呼吸道现象。
+- 没有重症患者，但还不能判定奥米克戎病毒是一个较温和的变种。
+
+
+
+
+[新闻来源链接](https://www.zerohedge.com/markets/south-africa-suffers-most-new-covid-cases-july-scientists-ground-weigh)
+
+
+
+【文章仅限作者个人观点】
+
+审核校对：sherryok (水云间)
+
+上传排版：漂流瓶
 
  
 

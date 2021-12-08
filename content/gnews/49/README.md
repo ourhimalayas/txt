@@ -2,39 +2,22 @@
 ---
 
 
-## 喜币与法币共存 实现财务自由
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1732095/)
+## 澳大利亚宣布外交抵制北京冬奥会
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1732175/)
 
-作者：纽约香草山农场 – 四季
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月5日，郭文贵先生在大直播中表示，新中国联邦的喜币未来不会代替任何主权货币，将永远只做自己。
+#### 撰稿；彩虹
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide1-10.jpeg)
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-14.jpg)图片来源：FT
+北京时间12月8日，《国会山报》引述《路透社》报道，澳大利亚已经宣布，将与美国一起对明年北京冬奥会进行外交抵制。
 
-郭先生提到，未来三、五十年中，美元、瑞元及英镑肯定还会存在，但人民币和欧元一定会消失。至于喜币，则一定是世界上最稳定的货币。
+周三，澳大利亚总理斯科特·莫里森（Scott Morrison）表示，中共国没有做出任何尝试来回应澳大利亚的几个问题，包括涉嫌侵犯人权。他说，外交抵制仍将允许澳大利亚运动员参加奥运会，此举与美国的做法类似。“因此，毫不奇怪的是，澳大利亚政府官员不会去中国参加这些赛事。不过，澳大利亚运动员将会去”。
 
-郭先生还强调，自喜币上市以来，其价格已经实现了四百多倍的成长，但并不希望其价格大起大落。与此同时，很多战友目前已从市场中套现了三到四亿美元，很多人也因为喜币实现了财务自由。
+另据BBC报道，莫里森说：“我这样做是因为这符合澳大利亚的国家利益，这是正确的做法。”
 
-让郭先生感到十分欣慰的是，喜币上市后，战友在生活困难需要钱的时候，可以通过出售喜币解决燃眉之急。
+**新闻来源**
 
-同时，郭先生指出，喜币打通了一个随时能贴现的渠道，而这是喜币最大的魅力。
-
-参考链接：[2021年12月05日 文贵大直播](https://gtv.org/video/id=61acb7bebbd75f62e52f7ce4)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
-
-总编：Irene木木
-编辑：Kathy文艺
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+[Australia joins US in diplomatic boycott of Beijing Olympics](https://thehill.com/policy/international/asia-pacific/584813-australia-joins-us-in-diplomatic-boycott-of-beijing)
 
  
 
