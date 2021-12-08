@@ -2,32 +2,49 @@
 ---
 
 
-## 布林肯承诺美国确保台湾拥有自卫手段
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1730546/)
+## 美国证监会要求中国公司详细说明所有权结构和审计情况
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1731074/)
 
-作者：东京樱花团 – 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美国国务卿布林肯在12月3日接受采访时，当主持人问到中共是否会侵略台湾，他认为如果中共这样做将是一个灾难性决定。在过去40多年里，美国一贯坚持“一个中国”政策，并以台湾取得显著进步的方式进行有效管理。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/8-10.jpg)
-但是过去几年来，中共国试图改变这一现状，不断对台湾进行军事恫吓和挑衅，试图孤立台湾，禁止台湾与国际社会接触。而台湾是一个民主的、有着强大经济并且对世界有很多贡献的创新国家，因此中共的政策是极端危险的。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/120703-1.jpg)2021 年 5 月 12 日，美国华盛顿特区，美国证券交易委员会 (SEC) 总部的印章。路透社/Andrew Kelly摄
+来自路透社2021年12月02日的报道
 
-布林肯强调，他告诫中共领导人要慎重考虑台湾问题，不要玩火自焚。因为这会产生非常可怕的后果，不符合所有人的利益，尤其首先不符合中共国的利益。他再次声明，不论是防卫物品和服务方面，美国都将致力于确保台湾拥有自我防卫手段。
+**摘要翻译**：
 
-参考链接：[布林肯承诺，美国确保台湾有自卫的手段](https://gnews.org/zh-hans/1725479/)
+华盛顿，12月2日（路透社）——美国证券交易委员会（SEC）周四表示，在美国证券交易所上市的中国公司必须披露其是否由政府实体拥有或控制，并提供其审计检查的证据。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+该法规可能加速200多家（中共国）公司被踢出美国交易所，并可能降低一些中国公司对投资者的吸引力。新法规旨在实施由美国国会于2020年12月通过的一项法律，旨在确保在美国上市的外国公司，尤其是中国公司，遵守美国的法律法规。
 
-总编：Irene木木
-编辑：Lakeman文仁
-校正/发稿：Fei797
+与许多国家不同，中共国不允许美国证券交易委员会的会计机构——上市公司会计监督委员会，来监督对在美国上市的中国公司的账目进行认证的审计师。出于国家安全考虑，中共当局不愿意让海外监管机构检查当地的会计师事务所。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美国监管机构担心，缺乏美国的监督会使投资者面临风险。其核心问题，据SEC的一位官员说：“最终的法规将使投资者能轻松辨别特殊的企业，因他们的审计公司位于海外主权国家和地区，PCAOB无法有效的全面监管。此外，海外发行方将被要求披露他们当地政府在这些实体股份中所占有的比例”。该法规还将要求通过被称为可变利益实体（VIE）的工具在美国上市的中共国实体加强披露。
+
+虽然这种股权结构允许某些行业的中国公司在赴海外上市的过程中规避国内的规则，但美国监管机构担心这种股权结构会给投资者带来风险，并可能掩盖有关其最终所有权的信息。关于提高透明度的要求，这些公司将有15天的时间向美国证券交易委员会提出异议。
+
+美国证券交易委员会有长达三年的时间来迫使那些不遵守法规的公司退市。
+
+**简评：**
+
+几乎所有在美国上市的中共国公司都不可避免的与红色资本有联系。美国加强对在美国上市的中共国公司的股权所有人的监管，显示出美国开始重新认识中共的盗国体制。随着美国监管的深入，中美离全面脱钩又进了一步。
+
+新闻链接：[U.S. SEC mandates Chinese companies detail ownership structure, audits](https://www.reuters.com/business/us-sec-mandates-foreign-companies-spell-out-ownership-structure-disclose-2021-12-02/)
+
+*翻译/简评: kkoto(芬兰大灰狼)*
+
+*校对: clau*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

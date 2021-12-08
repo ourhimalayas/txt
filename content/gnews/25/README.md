@@ -2,34 +2,31 @@
 ---
 
 
-## 全球数千亚马逊用户遭遇网络中断
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1731589/)
+## 教皇表示须在“历史”背景下看待天主教的性虐待问题
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1731645/)
 
 #### **【雅典娜快讯】，紧贴时事脉搏**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Copy-of-omicron.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/RNS-Reese-Abuse1-080718_0.jpg)
 
 
  
-图片来源:  The Sun
+图片来源:  AP/Matt Rourke
 
 
 #### 编译 ：小红帽
 
-亚马逊网络服务（AWS）的故障正在导致整个互联网上出现连环问题，许多网站显示出“错误网关”的字样。Downdetector显示问题在太平洋时间12月7日上午8点后出现。
+教皇弗朗西斯呼吁谨慎“解读”10月份发布的一份令人震惊的报告，该报告发现多达33万名儿童可能受到法国天主教会神职人员和非专业代表的性虐待。
 
-亚马逊主网站已经有超过20,000份中断报告，AWS则有11,000份中断报告。Downdetector的热图显示问题在美国东部最为严重。
+教皇周一说，在探讨几十年前事件时，必须将“历史情况”置于背景之中。报告背后的调查机构–教会性虐待问题独立委员会（CIASE），审查了法国天主教会从1950年代到2020年对未成年人进行性虐待的指控。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/rt.png)图片来源：RT NEWS
+教皇指出，必须根据当时的标准来看待历史上的虐待行为。他举例说，教会对虐待案件的“态度”是“掩盖它”，但承认这是“不幸的，这种态度今天仍然存在于许多家庭中”。
 
+这些评论引起了法国受害者团体的反对，其中一个协会，La Parole Liberee（自由言论）的创始人批评这位天主教领袖 “无知、愚蠢和否认”。
 
-由于很多网络基础设施使用AWS进行运营，从麦当劳的应用程序、迪士尼+流媒体服务，到支付网络Venmo，其他服务都出现中断的报告。
+在过去的70年里，大约有21.6万名儿童被发现受到神职人员的虐待，如果包括教会非专业代表的事件，受害者人数可能会增加到33万。在这段时间里，教会共有11.5万名神父和神职人员，证据显示约有2,900至3,200人被指控虐待。
 
-约会应用程序Tinder、体育赌博应用程序FanDuel和脸书也出现了故障报告激增的情况。
-
-截止到太平洋时间12月7日上午8点26分，亚马逊表示，中断的原因是美国东部地区的 “API和控制台问题”。全球控制台登陆页面位于同一地区，也同样受到影响。亚马逊表示，已经“确定了根本原因”，并正在“积极努力恢复”。
-
-新闻来源：[Amazon down for thousands worldwide — RT World News](https://www.rt.com/news/542483-amazon-down-thousands-users/)
+新闻来源：[Catholic church sexual abuse must be seen in ‘historical’ context, Pope says — RT World News](https://www.rt.com/news/542493-french-catholic-church-abuse-pope-remarks/)
 
 ***发布：小红帽***
 

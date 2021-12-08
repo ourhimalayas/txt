@@ -2,11 +2,13 @@
 ---
 
 
-## 12/3/2021【粤语】 文貴直播： 釋放歐米克戎跟中共對台行動有關，中共用歐米克戎跟西方勾兌讓臺灣成犧牲品
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1731403/)
+## 日本政府考虑跟随美国外交抵制北京冬奥会
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1731538/)
 
-秘密翻译组-北美组
-
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12._08-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

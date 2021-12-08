@@ -2,21 +2,23 @@
 ---
 
 
-## 以色列首现巨幅反疫苗广告
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1730224/)
+## 白宫正式宣布外交抵制北京冬奥会
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1730569/)
 
-作者：纽约香草山健身部 – Ivy001
+作者：纽约香草山文艺部 – 宁文静
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间12月5日，在以色列的大街上，挂起了高达6，7层楼的巨幅广告：一个被妈妈拉着小手的小男孩，忧伤的看着镜头说，“妈妈，请不要把我的手交给他们！”下方是醒目的疫苗针管标志。这是以色列民间首次出现反对疫苗的广告。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/7-9.jpg)
-以色列是全球接种“中共病毒”疫苗的先锋，迄今已有超过62%的以色列人完全接种了疫苗；消息人士称，该国卫生部门已着手推进第四剂加强针的相关工作。然而，高疫苗接种率并未有效改善该国居高不下的新增感染病例，大部分“突破性感染”者都已完全接种疫苗。 全球的犹太法律学者已在11月下旬开始审视强制接种疫苗的种种问题。11月23日，以色列马阿勒-阿杜明市的一个犹太法学法庭发出警告，一旦儿童因疫苗而死，任何强制儿童接种疫苗的个人或团体都应罪同杀人犯；11月29日，纽约一个犹太法学法庭裁定：向儿童和大多数成年人注射中共病毒疫苗是违法犹太法律的，裁决明确禁止向儿童、青少年和育龄成年人注射以及推广中共病毒疫苗。
+12月6日，白宫发言人普萨基在例行记者会上公布，鉴于中共在新疆正在进行的种族灭绝，反人类，以及其他侵犯人权的行为，拜登政府将不派任何外交或官方代表，参加北京2022年冬季奥运会和残奥会。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/9-6.jpg)
+普萨基说，拜登政府已将该决定告知美国盟友，各国将做出自己的决定。政府不会通过禁止美国运动员参赛来 “惩罚 “他们。
 
-参考链接：[以色列首现巨幅反疫苗广告](https://gnews.org/zh-hans/1726708/)
+拜登这一决策与上周媒体的预测相吻合。此前，因中共国在新疆、西藏、香港犯下严重侵犯人权的罪行，并计划武力侵犯台湾，一些鹰派共和党议员一直向拜登政府施压。随后，彭帅事件在体育界掀起抵制声浪。白宫外交抵制冬奥会政策终于落地。民主党众议员蒂姆·瑞安评论说，“抵制力度不够”。
+
+参考链接：[White House announces diplomatic boycott of Beijing Winter Olympics over human rights concerns](https://www.nbcnews.com/politics/white-house/white-house-announces-diplomatic-boycott-beijing-winter-olympics-over-human-n1285419?cid=sm_npd_nn_tw_nw)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-总编：童谣
-编辑：Zion文恩
+总编：Ivy001
+编辑：Kathy文艺
 校正/发稿：Fei797
 
 **更多资讯，更多关注**

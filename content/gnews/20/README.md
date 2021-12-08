@@ -2,32 +2,33 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月7日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1731630/)
+## 年轻女子因为接触霉变玉米而得罕见肺炎，你信吗？
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1731695/)
 
-作者：香草山翻译部
+撰稿：童媚
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-109-1280x172-1-2-1.jpg)
+一位仅23岁的年轻女子，连续一个月咳嗽不止，前往医院就诊。经医生检查，她的肺部长满了黄曲霉菌，引发了真菌感染，而导致了罕见肺炎。
 
+那么什么原因引起了这种疾病呢？官方的解释，仅仅凭该女子回老家收玉米碰到了“可能”霉变的农作物这一条，就得出必然的结论：农作物的黄曲霉菌侵入肺部，引发感染，
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1207text-SC.png)
-校对：Stay文苑
+因此告诫百姓，平时不要接触霉变的食物，以免有类似的症状。
 
-编辑：Stay文苑
+这条新闻，您觉得合理吗？
 
-发稿：Stay文苑
+任何一件事，都不是单一的未验证的原因而能做出结论的，更何况是造成人体罕见疾病的严肃话题。为何人民日报也要出来报道？就十分值得怀疑了。
 
-视频参看：[12.7  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61b00a09bbd75f62e53233b6)
+视频中的医生是武汉一所医院的，第一问：为何又是武汉？
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-69.jpeg)
+该女子被感染的是罕见肺炎，第二问：为何又是肺炎？
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+人民日报等主流媒体争相报道，第三问：用得着惊动级别那么高的党媒吗？
 
+接触霉变玉米而感染肺炎，第四问：那么多农民收了几百年的农作物，有其他类似病症吗？
+
+问到此处，不得不与2019年底那场持续至今的灾难联想到了一起。在一个没有真相的国家，任何一个可怕的灾难都会开始于一个荒唐的现象，希望这次，是我多虑了。
+
+发稿：MG5
+![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

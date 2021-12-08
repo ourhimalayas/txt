@@ -2,45 +2,42 @@
 ---
 
 
-## 独家披露：新的辉瑞董事会成员是前脸书董事
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1731492/)
+## 我们的中心化币将具备去中心化的外太空交易系统和技术
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1731559/)
 
-**整理报道：文泓**
+**郭文贵先生：**我今天告诉大家，你等看到咱们新中国联邦出来的东西，我们会让你看到这个纯金的金币。这个金币最大额可能100万美元，从100美金到100万美元。也就是从青藤手里拿着个东西，它有绝对的加密技术，这个加密的什么程度？是百分之一万的给你承担责任，没有任何人可以破解的。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/22222.png)图片来源：Politico
+然后比如说，你给你这手拿着，交给了这个文疯而逃了，文疯拿着就逃了，是吧。怎么交给你呢？通过你的生理识别加技术识别，你就可以拿到这100万美元。100万美元你说我拿这个东西我想换现金，有专门的第三方H-Bank。H-Bank专门给你贴现，你要什么货币都给你。那我不要钱，我想提黄金。让你提到世界上最安全、最保障的，认可的黄金，你可以提走。
 
-美国时间12月6日，《国家脉动》独家披露，辉瑞公司董事会成员苏·德斯蒙德·赫尔曼博士曾担任社交媒体巨头脸书（Facebook）的首席独立董事。脸书定期审查与新冠疫苗相关的帖子，尤其是辉瑞公司得到[了主要大企业的支持。](https://thenationalpulse.com/news/conflict-reuters-chairman-is-pfizer-investor-and-board-member/)
+这就是咱们这个未来的喜联储，绝对天下无敌啦。记住我今天说的话，你记住你七哥说的话，都会让你在突然间让你看到。这说的话都不是开玩笑的，我说你把它废了，这个技术的最重要是什么？就是电的能源，这你怎么解决电的问题？你怎么解决这个里面的金币有电的问题。和金币怎么来确认我的生理密码，从青藤的眼睛到了你的眼睛，甚至拿手指头，甚至未来可能扫屁股。人家扫眼睛，扫手指，咱们扫屁股。用屁股纹、手纹、眼睛纹，扫完却能到你那去。你拿着，你就可以到处提现。我们这叫什么？这叫太空币，完全是地球之外操作的，没有任何人，而且这就是合理、合法的。
 
-赫尔曼于2013年3月被任命为社交媒体平台脸书的董事会成员，并于2015年6月至2019年10月30日期[间](https://about.fb.com/news/2019/10/desmond-hellmann-departs-board/)担任首席独立董事，此时已接近报道第一例新冠病毒病例之前。
+这种技术的核心，最重要就是那个芯片。这个芯片要被谁掌握了，那他就可以控制你。这个芯片IMB的2nm没有任何人可以掌握。而且这个芯片未来是跟我们的格芯一起生产。是吧？大家更懂了，是吧？
 
-当时，脸书创始人兼首席执行官马克·扎克伯格在回应她的离职时说：“六年来，苏一直是董事会中一个出色而有思想的声音，我个人非常感谢她为这家公司所做的一切。”
+从芯片的生产，到芯片的合成，到芯片的保密，到外太空的交易系统，地球人就没人能管得了。而且你想关键问题，数字货币最大的问题：支付、兑现、安全、保密，天下无敌。那些去中心化的币都去死了吧，没有任何人使用的。我们这叫中心化的币，和去中心化的交易系统，和去中心化的技术，天下无敌，这就是技术的核心的核心。
 
-“我仍然对脸书和赋予人们建立社区和使世界更紧密联系的使命持积极态度。脸书的股东需要一个充分参与并致力于解决脸书目前所面临的关键问题的董事会，”赫尔曼在提到她作为**比尔和梅琳达****·****盖茨基金会**首席执行官的角色时解释说。
+字幕来源：[2021年12月5日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1725245/)
 
-“不幸的是，来自我的首席执行官角色、我的大家庭和我自己的健康状况的要求越来越多，使我不再有可能投入必要的时间和精力来适当地服务。”她在一份公开声明中补充道，尽管她2020年又加入了辉瑞董事会。
+视频制作：Cindy
 
-赫尔曼在辉瑞董事会任职期间，脸书发起了审查“新冠疫苗怀疑论者”运动，该公司泄露的内部文件显示，其算法旨在“大幅减少用户在评论中对疫苗犹豫不决（观点）的接触机会”。
+视频上传：Cindy；
 
-这份名为“疫苗犹豫评论降级”的15页文件，[将](https://nypost.com/2021/05/25/facebook-trying-to-censor-covid-19-vaccine-skeptics-report/)其目标[总结](https://nypost.com/2021/05/25/facebook-trying-to-censor-covid-19-vaccine-skeptics-report/)为“降低这些评论的可见性，为我们消除平台上用户可能遇到的疫苗接种障碍提供了另一个重要机会。”
+G-News发布：黎明之前；
 
-另一个潜在的利益冲突是，赫尔曼还在乔·拜登总统的科技顾问委员会任职，该委员会被白宫描述为“负责向总统提出科学、技术和创新政策建议的唯一外部顾问机构”。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-另据《国家脉动》12月1日披露，路透社董事长是辉瑞投资者和董事会成员。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-新闻链接：
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-1、[REVEALED: New Pfizer Board Member Is Ex-Facebook Director. (thenationalpulse.com)](https://thenationalpulse.com/exclusive/pfizer-board-member-is-former-facebook-director/)
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-2、[CONFLICT: Reuters Chairman is Pfizer Investor and Board Member. (thenationalpulse.com)](https://thenationalpulse.com/news/conflict-reuters-chairman-is-pfizer-investor-and-board-member/)
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-*发布：盘古相聚*
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
