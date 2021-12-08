@@ -2,30 +2,43 @@
 ---
 
 
-## 9000亿债务明年到期，各房企年末掀起配股潮
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1731491/)
+## 全球数千亚马逊用户遭遇网络中断
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1731589/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Unknown-12.jpg)9000亿债务明年到期，各房企年末掀起配股潮 网络图片
-据新浪财经12月7日报道，龙光和世茂两家房企7日发布配股公告。龙光拟募资总额约11.70亿港元，用于投资和一般运营；世茂拟募资净额11.72亿港元，用于日常运营以及偿还债务。进入2021年最后一个月，房企们开始为新一轮偿债做准备。
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-11月分别有奥园、融创及旭辉三家房企进行配股。其中融创募集金额高达50.85亿港元。加上龙光、世茂，下半年房企配股融资总额超过124亿港元。而房企麾下共有碧桂园服务、旭辉永升服务、世茂服务、融创服务四家物管公司在10月和11月进行配股融资。其中，碧桂园服务融资总额达到80.03亿港元。
-
-自房地产融资收紧以来，房企屡屡发生违约事件，2022年房企偿债规模仍将维持在9000亿左右。12月6日，中国人民银行宣布于2021年12月15日进行降准，意味着有约1.2万亿元资金入市，这让房企看到了希望。为了活下去，房企抓紧配股融资。但是，面对巨大的房地产泡沫，中共不可能强撑多久。最终房地产一定会倒下，在压垮中共经济的同时，会把世界经济拖入黑暗期。
-
-新闻参考链接：[https://k.sina.cn/article\_1638782947\_61add7e3027015x6t.html?from=finance&kdurlshow=1&sinawapsharesource=newsapp](https://k.sina.cn/article_1638782947_61add7e3027015x6t.html?from=finance&amp;kdurlshow=1&amp;sinawapsharesource=newsapp)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Copy-of-omicron.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+ 
+图片来源:  The Sun
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+#### 编译 ：小红帽
+
+亚马逊网络服务（AWS）的故障正在导致整个互联网上出现连环问题，许多网站显示出“错误网关”的字样。Downdetector显示问题在太平洋时间12月7日上午8点后出现。
+
+亚马逊主网站已经有超过20,000份中断报告，AWS则有11,000份中断报告。Downdetector的热图显示问题在美国东部最为严重。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/rt.png)图片来源：RT NEWS
 
 
+由于很多网络基础设施使用AWS进行运营，从麦当劳的应用程序、迪士尼+流媒体服务，到支付网络Venmo，其他服务都出现中断的报告。
+
+约会应用程序Tinder、体育赌博应用程序FanDuel和脸书也出现了故障报告激增的情况。
+
+截止到太平洋时间12月7日上午8点26分，亚马逊表示，中断的原因是美国东部地区的 “API和控制台问题”。全球控制台登陆页面位于同一地区，也同样受到影响。亚马逊表示，已经“确定了根本原因”，并正在“积极努力恢复”。
+
+新闻来源：[Amazon down for thousands worldwide — RT World News](https://www.rt.com/news/542483-amazon-down-thousands-users/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

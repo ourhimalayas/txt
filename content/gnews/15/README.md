@@ -2,44 +2,22 @@
 ---
 
 
-## 全球数千亚马逊用户遭遇网络中断
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1731589/)
+## 关于房地产的崩盘&#8212;解梦实例一
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1731673/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+撰稿：东京樱花团/百灵鸟
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-328.png)[图片来源](https://www.sohu.com/a/154341209_124752)
+最近几年，房地产成了储水池，各国争相大印钞票，流通领域无法承载的巨额货币，都被吸进了房地产业。房地产的居住属性，已经彻底被金融属性替代。而随着房地产巨头恒大集团即将到期和已经到期的无力偿还的巨额借债，房地产的多骨牌效应将从拉跨中国房地产业开始，走向世界引爆世界经济灾难。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Copy-of-omicron.jpg)
+没有哪一个角落，能够幸免这场悲剧。
 
+解梦实例之一：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-329.png)
+忠告：不要投资、远离城市、即时躺下。
 
- 
-图片来源:  The Sun
-
-
-#### 编译 ：小红帽
-
-亚马逊网络服务（AWS）的故障正在导致整个互联网上出现连环问题，许多网站显示出“错误网关”的字样。Downdetector显示问题在太平洋时间12月7日上午8点后出现。
-
-亚马逊主网站已经有超过20,000份中断报告，AWS则有11,000份中断报告。Downdetector的热图显示问题在美国东部最为严重。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/rt.png)图片来源：RT NEWS
-
-
-由于很多网络基础设施使用AWS进行运营，从麦当劳的应用程序、迪士尼+流媒体服务，到支付网络Venmo，其他服务都出现中断的报告。
-
-约会应用程序Tinder、体育赌博应用程序FanDuel和脸书也出现了故障报告激增的情况。
-
-截止到太平洋时间12月7日上午8点26分，亚马逊表示，中断的原因是美国东部地区的 “API和控制台问题”。全球控制台登陆页面位于同一地区，也同样受到影响。亚马逊表示，已经“确定了根本原因”，并正在“积极努力恢复”。
-
-新闻来源：[Amazon down for thousands worldwide — RT World News](https://www.rt.com/news/542483-amazon-down-thousands-users/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

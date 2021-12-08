@@ -2,30 +2,41 @@
 ---
 
 
-## 以色列首现巨幅反疫苗广告
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1730224/)
+## 法官判拜登对联邦承包商的疫苗强制令违宪
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1731103/)
 
-作者：纽约香草山健身部 – Ivy001
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间12月5日，在以色列的大街上，挂起了高达6，7层楼的巨幅广告：一个被妈妈拉着小手的小男孩，忧伤的看着镜头说，“妈妈，请不要把我的手交给他们！”下方是醒目的疫苗针管标志。这是以色列民间首次出现反对疫苗的广告。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/7-9.jpg)
-以色列是全球接种“中共病毒”疫苗的先锋，迄今已有超过62%的以色列人完全接种了疫苗；消息人士称，该国卫生部门已着手推进第四剂加强针的相关工作。然而，高疫苗接种率并未有效改善该国居高不下的新增感染病例，大部分“突破性感染”者都已完全接种疫苗。 全球的犹太法律学者已在11月下旬开始审视强制接种疫苗的种种问题。11月23日，以色列马阿勒-阿杜明市的一个犹太法学法庭发出警告，一旦儿童因疫苗而死，任何强制儿童接种疫苗的个人或团体都应罪同杀人犯；11月29日，纽约一个犹太法学法庭裁定：向儿童和大多数成年人注射中共病毒疫苗是违法犹太法律的，裁决明确禁止向儿童、青少年和育龄成年人注射以及推广中共病毒疫苗。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-参考链接：[以色列首现巨幅反疫苗广告](https://gnews.org/zh-hans/1726708/)
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/12/t.jpg)
+《门道专家》12月7日发表文章，题目是“川普任命的法官阻止了全国范围内的拜登对联邦承包商的疫苗强制令”。【1】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+全文如下：
 
-总编：童谣
-编辑：Zion文恩
-校正/发稿：Fei797
+周二（12月7日），一名联邦法官驳回了乔·拜登对联邦承包商的疫苗强制令。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+川普任命的美国佐治亚州南区法院法官斯坦·贝克（Stan Baker）对拜登的疫苗强制令发布了初步禁令。
+
+南卡罗来纳州总检察长艾伦·威尔逊（Alan Wilson）、南卡罗来纳州州长亨利·麦克马斯特（Henry McMaster）以及其他共和党总检察长提起的诉讼认为，拜登的疫苗强制令违反了第十修正案。
+
+该诉讼还称，拜登的疫苗强制令是违宪的，因为只有国会才能制定规则。
+
+佐治亚州、阿拉巴马州、爱达荷州、堪萨斯州、犹他州和西弗吉尼亚州的总检察长们也加入了诉讼。
+
+“拜登政府滥用权力的行为再次受到冷遇，法治已占上风，自由得到保护，当总统越权时，法律有助于阻止他滥用权力。” 南卡罗来纳州总检察长艾伦·威尔逊说。
+
+上周，川普任命的一位法官阻止了拜登对医疗工作者的疫苗强制令。
+
+（原文完）
+
+第五巡回法院已经判决阻止了拜登疫苗强制令中对100人以上私企的强制令部分【2】，此次判决进一步证明“法治已占上风，自由得到保护，当总统越权时，法律有助于阻止他滥用权力”。期待疫苗集团彻底崩盘的日子。
+
+有关链接：
+
+【1】[https://www.thegatewaypundit.com/2021/12/breaking-trump-appointed-judge-blocks-bidens-vaccine-mandate-federal-contractors-nationwide/](https://www.thegatewaypundit.com/2021/12/breaking-trump-appointed-judge-blocks-bidens-vaccine-mandate-federal-contractors-nationwide/)
+
+【2】[https://gnews.org/zh-hans/1644969/](https://gnews.org/zh-hans/1644969/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,24 +2,31 @@
 ---
 
 
-## 韩国自爆发疫情以来，新增中共病毒病例首次突破 7,000 大关
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1731527/)
+## GTV新闻访谈简报|2021年12月7日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1731630/)
 
-撰稿：追着曙光跑
+作者：香草山翻译部
 
-韩国KBS新闻12月8日的报道，根据韩国中央防疫对策本部8日的通报，截至今天零时，韩国较前一天零时新增中共病毒确诊病例7175例，创下疫情爆发以来的历史新高。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Image-2021-12-08-at-11.01.06.jpeg)图片来自：KBS新闻
-新增确诊病例7,175例，比12月4日记录的5,352例多1,823例。与前一天相比，增加了2,221人。其中韩国本土确诊病例7,142例，境外输入病例33例，累计489,484例。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-109-1280x172-1-2-1.jpg)
 
-按地区划分，首尔2,890例、京畿道2,263例、仁川431例，首都圈约占国内确诊病例总量的78.1%。
 
-首都圈以外，釜山253人、忠南203人、大田184人、庆南155人、江原141人、庆北129人、大邱127人、全北103人。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1207text-SC.png)
+校对：Stay文苑
 
-住院重症患者840人，比前一天新增66例。单日死亡人数增加63人，累计死亡4,020人，病死率为0.82%。
+编辑：Stay文苑
 
-截至8日零时，全国已有42,774,131人接种首剂中共病毒疫苗，占总人口的83.3%，第二剂疫苗接种人数共计41,455,864人，占总人口的80.73%。第三剂接种人数共计4,538,521人，占人口的 8.84%。
+发稿：Stay文苑
 
-新闻来源：**[\[속보\] 코로나19 신규 확진자 발생 이래 최다 7,175명…위중증 환자 840명](https://news.kbs.co.kr/mobile/news/view.do?ncd=5343464)**
+视频参看：[12.7  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61b00a09bbd75f62e53233b6)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-69.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

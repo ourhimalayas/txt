@@ -2,43 +2,28 @@
 ---
 
 
-## 德国研究揭示5至18岁健康儿童的“中共病毒”零死亡率
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1728512/)
+## 日本政府计划改革财政税收，中小型企业提高工资，减免税款
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1729139/)
 
-作者：纽约香草山信息部 – 诺雅
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-德国研究人员于11月30日发表的，针对本国18岁以下儿童的研究发现，在中共病毒大流行的前15个月中，没有一个健康的5至18岁儿童死于中共病毒感染。
+撰稿：东京樱花农场/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2021/12/7-2.png)图片来源于网站
+《读卖新闻》网站12月7日报道，政府和执政党已经决定扩大税收优惠政策，以鼓励企业提高工资。如果中小型公司满足条件，如所有雇员（包括兼职工人）的工资总额至少增加2.5%，将能够从其公司税单中扣除高达40%的增加额。这将被纳入执政党的2022财政年度税收改革计划，该计划将于12月10日完成。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide5-5.jpeg)
+目前的“工资增长税”制度于今年4月启动，如果中小型公司所有员工的工资总额增加1.5%或以上，就可以从其公司税款中扣除15%的增长。如果公司的工资总额增加2.5%或更多，并且还符合其他条件，如改善员工培训，就可以额外扣除10%。新措施基本上维持了现有的制度，但如果公司的应税收入至少增加2.5%，或至少增加1.5%并改善员工培训。
 
-研究报告指出，总体而言，与中共病毒感染相关的儿童和青少年的重症或死亡率很低，对于没有基础疾病的5-11岁儿童来说更是如此。
+目前，如果大公司将新雇用员工的工资总额增加2%或更多，可以扣除15%，如果他们改善员工培训，这一比例将增加到20%。这将改为自上一年度以来连续受雇的雇员，加薪率将提高到 “3%或以上”。另一方面，如果他们的工资增加4%或更多，并改善员工培训，将能够扣除30%的增加额。对于大公司和小公司，工资增长将包括奖金以及基本工资。
 
-在2020年3月至2021年5月期间，大约有150万德国儿童或青少年感染了中共病毒，总计14名18岁以下的德国人死于新冠肺炎。其中6名是有基础疾病的5-18岁儿童和青少年，8例婴幼儿死亡中，5名是患有先天性疾病的婴幼儿。
+岸田首相呼吁建立一个“增长和分配的良性循环”，扩大提高工资的税收制度是这个计划的主要特点之一。这是因为他认为，提高工资会增加消费，提高企业利润，而这又会导致工资的进一步提高，形成一个良性循环。一直在制定细节的自民党和新公明党的税务委员会也已同意政府的政策。
 
-该报告显示，5-11岁的健康儿童感染中共病毒后，需要重症监护的几率约为五万分之一。在12-18岁和5岁以下的儿童中，重症率约为八千分之一。
+税收改革的重点是如何建立这样一个系统。公明党曾主张将工资提高到最高30%，包括对员工进行更多培训。为了回应热衷于提高工资的岸田首相的要求，这些激励措施似乎比这更进一步。
 
-英国研究人员也发布了类似的发现：1200万名18岁以下儿童中，只有6名健康儿童死于中共病毒感染。
+信息源：
 
-评论称，鉴于已知的疫苗在年轻人口中诱发的心肌炎风险，以及疫苗公司仅做了少量和短暂测试的事实，让健康儿童和青少年接种中共病毒疫苗是极为不明智的。
+[中小企業が賃上げしたら、税控除最大４０％…政府・与党が方針](https://news.yahoo.co.jp/articles/d93f70a8fd5864ee1c47311c0631a9c467cb6cbd#:~:text=%E3)
 
-参考链接：
-1）[German Study Finds Zero Healthy Children Between 5 and 18 Died From COVID](https://gettr.com/post/pivcosc01f)
-2）[Huge new study shows ZERO Covid deaths of healthy German kids over 4 oradolescents](https://alexberenson.substack.com/p/huge-new-study-shows-zero-covid-deaths)
-2）[https://www.medrxiv.org/content/10.1101/2021.11.30.21267048v1.full.pdf](https://www.medrxiv.org/content/10.1101/2021.11.30.21267048v1.full.pdf)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
-
-总编：Irene木木
-编辑：Lakeman文仁
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

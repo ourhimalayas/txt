@@ -2,32 +2,35 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月7日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1731630/)
+## 加拿大从 1 月 15 日起禁止未接种疫苗的 NBA 球员
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1731765/)
 
-作者：香草山翻译部
+编译： 真北007
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Getty-Images-30-640x480-1-edited.jpg)图片来源：网络
+来自BREITBART 12月7日的新闻报道：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-109-1280x172-1-2-1.jpg)
+据报道，加拿大已颁布法令，未接种疫苗的 NBA 球员将不能进入加拿大多伦多参赛。
 
+据 The Athletic 的 Shams Charania 报道，加拿大卫生官员表示，从 1 月 15 日开始，球员必须完全接种疫苗才能与多伦多猛龙队比赛。 猛龙队球员还必须 100% 接种疫苗，否则将面临罚款和停赛。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1207text-SC.png)
-校对：Stay文苑
+该公告并不令人意外，加拿大公共安全部长 Marco Mendicino 于 11 月宣布，将于 2022 年对外国游客实施强制性疫苗接种要求。
 
-编辑：Stay文苑
+门迪奇诺表示，“职业和业余运动员将不再享有豁免权”。
 
-发稿：Stay文苑
+NBA 声称联盟中 95% 的人现在已经完全接种了疫苗。
 
-视频参看：[12.7  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61b00a09bbd75f62e53233b6)
+当然，新规则不仅仅适用于 NBA，北美冰球联合会 NHL 在加拿大有七支职业冰球队。不过，NHL 仍未就北方邻国将实施的新规则发表任何声明。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-69.jpeg)
+事实上，加拿大几乎取消了之前对游客的所有豁免。外加前往加拿大与家人团聚的人、18 岁以上的国际学生、从事关乎国计民生工作的跨境工人和服务人员以及大多数外国临时工人，现在所有人都必须完全接种疫苗或被禁止入境。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+**点评: **加拿大总理小特鲁多与全球有名的独裁暴君们有的一拼，左派自由势力的骨干，大家还记得他把MANKIND 改成HUMANKIND 吧? 他就是一个笑话。
 
+原文链接：[https://www.breitbart.com/sports/2021/12/07/canada-bans-unvaccinated-nba-players-starting-on-january-15/](https://www.breitbart.com/sports/2021/12/07/canada-bans-unvaccinated-nba-players-starting-on-january-15/)
+
+编辑/发布：LILY
+
+20211207
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

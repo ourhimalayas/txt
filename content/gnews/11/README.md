@@ -2,79 +2,32 @@
 ---
 
 
-## 众议院军事委员会： 2022年国防开支案为我们的军队在与中共国的冲突中取得胜利做好准备
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1731608/)
+## 墙国一隅：CCP强行征订党报党刊
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1731729/)
 
-众议院军事委员会： 2022年国防开支案为我们的军队在与中国的冲突中取得胜利做好准备： 提供超过 70 亿美元的威慑资金 让 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 脱离国防部的供应链 对抗中共国人的恶性影响 大力支持台湾 寻求有关 COVID-19 起源的答案
+作者/图片提供者：清水冷香
+编辑：Mttfly
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2021.12.8-2-CCP.png)图片来源：Gnews
+每年年底，墙内地方市委就向各个机关单位下达来年报刊征订计划。各局机关多少任务，分堆摊派。局机关领到任务又向下级单位摊派。不问单位有无能力负担，只管摊派任务，且索要发票复印件，明说要拿到上级部门去交差。
 
+以笔者所在单位每年订阅报刊杂志的情况看，征订数量逐年增加，几十人的小单位今年的订阅费用约在万元左右。
 
+笔者曾向主管局反映摊派任务过重，希望根据单位实际情况适当减少。主管局负责人表示他们也没办法，是上级摊派下来的，每个单位都在去年的基础上增加了订阅计划，必须完成任务。
 
-> The FY22 NDAA prepares our military to prevail in conflict with China:
-> 
-> ✅Provides over $7 billion in funding for deterrence
-> ✅Gets China out of DoD supply chains 
-> ✅Counters Chinese Malign Influence 
-> ✅Strong support for Taiwan
-> ✅Seeks answers on the origin of COVID-19 [pic.twitter.com/Ri1iuIcs49](https://t.co/Ri1iuIcs49)
-> — Armed Services GOP (@HASCRepublicans) [December 7, 2021](https://twitter.com/HASCRepublicans/status/1468323633378517003?ref_src=twsrc%5Etfw)
+值得思考的是，即使摊派下来，CCP的报纸有什么理由让人主动去看呢？头版转载的CCP会议精神，通篇假话、空话。厚颜无耻强调CCP的领导地位，强调要围绕在习的周围。这些言论有谁爱看呢？CCP自己都不想看。论新鲜度，它没有网络媒体迅捷；论信息量，它绝不可能讲出对人民有价值的真话，恒大倒了它告诉你吗？房市崩了它告诉你吗？银行被掏空它告诉你吗？股票要跌它告诉你吗？病毒来了它告诉你吗？疫苗杀人它告诉你吗？青蒿素是解药它告诉你吗？能靠它获取什么有用的信息呢？论思想的深度，它连一句真话都容不下，遑论深度？就连文学爱好者的园地——副刊，也只能容纳所谓的“正能量”文章。《人民文学》一位编辑曾在一个文学讲座中无可奈何地说：“所谓编辑，不过是文字警察罢了，就是要从你的文字中看出问题（反CCP的言论），然后枪毙掉。”离政治稍远的文学期刊尚且如此，CCP的报刊杂志对言论的审核之严更是可想而知。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2021.12.8-2-1-CCP.png)图片来源：Gnews
+数字信息那么发达，且不说翻墙去看世界的人群，就以那些墙内的老老实实从手机、电脑获取资讯的人来看，CCP的报刊杂志也就是废纸。CCP也知道这些喉舌的处境，对CCP而言这些喉舌如同鸡肋一般，他们不愿拿钱养，就靠这种强行摊派订阅的办法让它多活一天算一天。
 
+对于那些每月每日准时送达的CCP报刊杂志，笔者专门腾出一个柜子来堆放，堆满了就请门卫师傅拿去卖，换回的钱够门卫师傅吃几顿小菜。这算是写满共产党伟大事迹的党报党刊的唯一价值了。
 
-
-参议员瑞克·斯科特：我晚上10:00上劳拉·英格拉汉姆[@IngrahamAngle](https://twitter.com/IngrahamAngle)的节目谈论乔·拜登软弱的外交抵制2022年北京奥运会[@Olympics](https://twitter.com/Olympics)，以及我给[@NBA](https://twitter.com/NBA)的信，谴责它没有站出来反对 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 骇人听闻的侵犯人权和种族灭绝罪行。 欢迎收看/收听！
-
-
-
-> 🚨I’ll be on the [@IngrahamAngle](https://twitter.com/IngrahamAngle?ref_src=twsrc%5Etfw) at 10:00 PM to talk about Joe Biden’s weak diplomatic boycott of the 2022 [@Olympics](https://twitter.com/Olympics?ref_src=twsrc%5Etfw) & my letter to the [@NBA](https://twitter.com/NBA?ref_src=twsrc%5Etfw) on its failure to stand up against Communist China’s horrific human rights abuses & genocide. Tune in! [pic.twitter.com/EtteYlKcEf](https://t.co/EtteYlKcEf)
-> — Rick Scott (@SenRickScott) [December 8, 2021](https://twitter.com/SenRickScott/status/1468400049764057088?ref_src=twsrc%5Etfw)
-
-
-
-参议员卢比奥新闻办： 卢比奥参议员在一次中国委员会[@CECCgov](https://twitter.com/CECCgov)的听证会上发言，在那里，他讨论了美国如何应对中共 [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 的经济胁迫，并谴责美国大公司“懦弱”地游说反对他的’维吾尔强迫劳动预防法’法案 [#UyghurForcedLabor](https://twitter.com/hashtag/UyghurForcedLabor?src=hashtag_click)。
-
-
-
-> Sen Rubio spoke during a [@CECCgov](https://twitter.com/CECCgov?ref_src=twsrc%5Etfw) hearing, where he discussed how the U.S. can counter the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s use of economic coercion & called out major American corporations for their “cowardly” efforts to lobby against his [#UyghurForcedLabor](https://twitter.com/hashtag/UyghurForcedLabor?src=hash&amp;ref_src=twsrc%5Etfw) bill.
-> 
-> Read & watch 👇[https://t.co/8O6ea8d9Z2](https://t.co/8O6ea8d9Z2)
-> — Senator Rubio Press (@SenRubioPress) [December 7, 2021](https://twitter.com/SenRubioPress/status/1468345824933564416?ref_src=twsrc%5Etfw)
-
-
-
-前国务卿蓬佩奥： 一个负责任的美国领导人怎么能在看了国际女子网球明星彭帅的遭遇后得出结论，我们的运动员在 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 境内是安全的？
-
-
-
-> How can responsible U.S. leaders look at what has happened to international women’s tennis star Peng Shuai and conclude that our athletes will be safe inside Communist China’s borders?
-> — Mike Pompeo (@mikepompeo) [December 7, 2021](https://twitter.com/mikepompeo/status/1468336988227096582?ref_src=twsrc%5Etfw)
-
-
-
-众议员莫·布鲁克斯： 我关于需要成立特别委员会对亨特·拜登进行全面调查的声明： 【附布鲁克斯众议员的声明全文】
-
-
-
-> My statement on the need for a full select committee investigation into Hunter Biden: [pic.twitter.com/bYG1OKBJW4](https://t.co/bYG1OKBJW4)
-> — Mo Brooks (@RepMoBrooks) [December 7, 2021](https://twitter.com/RepMoBrooks/status/1468323805282156551?ref_src=twsrc%5Etfw)
-
-
-
-众议员迈克·麦考尔： 私营公司，如谷歌和微软，正在加紧对抗俄罗斯和中共国 黑客。这表明美政府正在取得进展和私营公司打击俄罗斯和中共黑客祸害的能力。 【转推：谷歌正在起诉两名俄罗斯人，据称他们是一个庞大的计算机网络中毒的幕后黑手，这些计算机已被用于窃取个人信息秘密开采比特币等犯罪活动】
-
-
-
-> Private sector companies, like [@Google](https://twitter.com/Google?ref_src=twsrc%5Etfw) and [@Microsoft](https://twitter.com/Microsoft?ref_src=twsrc%5Etfw), are stepping up against Russian and PRC hackers. This demonstrates the progress that is being made in the USG and the private sector’s ability to combat the scourge of Russian and CCP hackers. [https://t.co/qWFkhEBB1Q](https://t.co/qWFkhEBB1Q)
-> — Michael McCaul (@RepMcCaul) [December 7, 2021](https://twitter.com/RepMcCaul/status/1468318110679810050?ref_src=twsrc%5Etfw)
-
-
-
-众议员迈克·加西亚： 由于加州港口的积压，[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 正在支付额外费用以取回空集装箱——导致美国商品无法出口。 拜登政府和加州的政策正在将美国(利益)放在中共国之后。 这是无法接受的。 【转华尔街日报：供应链混乱使南加州淹没在空集装箱中】
-
-
-
-> Due to the backlog at CA ports, China is paying premiums to get their empty containers back – resulting in American goods failing to be exported. The Biden admin & CA’s policies are putting America 2nd to China. This is unacceptable.[https://t.co/KlGh2ZeslS](https://t.co/KlGh2ZeslS)
-> — Rep. Mike Garcia (@RepMikeGarcia) [December 7, 2021](https://twitter.com/RepMikeGarcia/status/1468251521750118400?ref_src=twsrc%5Etfw)
-
-
+**发布：**去中心化Math
+**
+更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

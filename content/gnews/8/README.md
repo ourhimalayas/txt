@@ -2,41 +2,26 @@
 ---
 
 
-## 教皇表示须在“历史”背景下看待天主教的性虐待问题
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1731645/)
+## 中共的“宗教中国化”就是“宗教姓党”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1731770/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+撰稿：东京樱花团/天路天道
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-72.jpg)[图片来源](https://asiatimes.com/2019/04/chinas-dire-clampdown-on-religious-freedom/)
+习近平在12月3、4日召开的全国宗教工作会议上强调坚持“宗教中国化”，增进宗教界人士和群众对中国共产党、中国特色社会主义的认同。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/RNS-Reese-Abuse1-080718_0.jpg)
+由于长期迫害宗教自由，中共一直遭到国际谴责。美国国务院11月17日宣布将中国、俄罗斯等十个国家列入压制宗教自由的“特别关注国”黑名单，美国国务卿布林肯（Antony Blinken）在声明中表示，这些国家因参与或容忍“系统地、持续地、严重地侵犯宗教自由”，而被列为特别关注国家。
 
+中共长期实施宗教迫害，“宗教中国化”实质就是“宗教姓党”，即“宗教共产党化”、“宗教跟党走”。
 
- 
-图片来源:  AP/Matt Rourke
+信仰是人生不可缺失的一部分。有信仰而知人生，更认识自我，调整人生看破红尘，走向良善的人生。共享上天赐下人世间的万物，和谐友善走向喜马拉雅的那一刻！
 
+信息来源：
 
-#### 编译 ：小红帽
+[**习近平重申宗教中国化 被批实质是”宗教党化”**](https://www.rfa.org/mandarin/yataibaodao/shehui/cm-12062021133446.html)
 
-教皇弗朗西斯呼吁谨慎“解读”10月份发布的一份令人震惊的报告，该报告发现多达33万名儿童可能受到法国天主教会神职人员和非专业代表的性虐待。
-
-教皇周一说，在探讨几十年前事件时，必须将“历史情况”置于背景之中。报告背后的调查机构–教会性虐待问题独立委员会（CIASE），审查了法国天主教会从1950年代到2020年对未成年人进行性虐待的指控。
-
-教皇指出，必须根据当时的标准来看待历史上的虐待行为。他举例说，教会对虐待案件的“态度”是“掩盖它”，但承认这是“不幸的，这种态度今天仍然存在于许多家庭中”。
-
-这些评论引起了法国受害者团体的反对，其中一个协会，La Parole Liberee（自由言论）的创始人批评这位天主教领袖 “无知、愚蠢和否认”。
-
-在过去的70年里，大约有21.6万名儿童被发现受到神职人员的虐待，如果包括教会非专业代表的事件，受害者人数可能会增加到33万。在这段时间里，教会共有11.5万名神父和神职人员，证据显示约有2,900至3,200人被指控虐待。
-
-新闻来源：[Catholic church sexual abuse must be seen in ‘historical’ context, Pope says — RT World News](https://www.rt.com/news/542493-french-catholic-church-abuse-pope-remarks/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
