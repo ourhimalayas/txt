@@ -2,36 +2,81 @@
 ---
 
 
-## 安大略省“奥米克戎”大爆发凸显疫苗的苍白无用
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1733241/)
+## 有声|【每日读经】创世纪(2:1-25)
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1733293/)
 
-**撰稿：路仁**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/unnamed-11.jpg)图片来源：网络图片
-最近在安大略省西南部的一个医疗辖区米德塞斯-伦敦卫生辖区，爆发了一个40人的群体感染。根据该辖区[最新发布](https://www.facebook.com/middlesex.london.health.unit/)（12月7日星期二）的消息，根据基因检测其中两位病人样品，确信属于“奥米克戎”变种感染。该辖区卫生官员推断，这个40人的感染群体极大可能是“奥米克戎”变种病毒感染，而与这个感染群体密切接触的高达171人，而随着时间的推移，这个数字还在增加。
+配音：香草山福音部 – Daxia
 
-根据[米德塞斯-伦敦卫生辖区官方资料](http://communityhealthstats.healthunit.com/chapter/geography-and-demographics)，这个辖区总计人口约45.5万人左右（2016统计数据），由此可以推断，“奥米克戎”变种病毒在该区甚至整个安省大爆发，几乎难以避免。
 
-这个感染的群体均可以追溯到11月底从尼日利亚回来的两个人，根据[环球新闻报道](https://globalnews.ca/news/8431848/covid-19-first-omicron-variant-case-london-ont/)，这两人均为完全疫苗接种者，并在下飞机后做了检测。而所有的感染的这个群体中，改辖区执行卫生管萨摩斯医生（Dr. Alex Summers）并没有指出这个40人感染群体疫苗的接种情况，只是说”许多人“已经完全接种了疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+**1**天地万物都造齐了。
 
-目前卫生部发现的这些确诊病例已经涉及到到多所学校、儿童看护中心。近期在伦敦南部一间教堂爆发的疫情也与这个确诊人群有关。卫生部仍在调查接触人员中，感染病例很可能还会增加。
+**2**到第七日，　神造物的工已经完毕，就在第七日歇了他一切的工，安息了。
 
-不出人意料的是，该区卫生官萨摩斯医生给出的办法依旧是：“接种疫苗，戴好口罩，确保口罩合适你，并在整个假日季节减少社交活动”
+**3**　神赐福给第七日，定为圣日，因为在这日　神歇了他一切创造的工，就安息了。
 
-尽管安大略省的疫苗覆盖率逐渐上升，但整个安大略省近期感染人数并没有随着疫苗增长而下降，加之“奥克米戎”变种病毒的出现，本周二省政府也宣布，整个省原本已经暂停的重新开放的时间表将无限期延长。
+**伊甸园**
 
-根据[加拿大官方文件](https://www.canada.ca/en/public-services-procurement/services/procuring-vaccines-covid19.html)，极左的小土豆政府，在疫情初期就为加拿大人购买了4.09亿支疫苗，平均每个加拿大人每人够打11针。尽管在变种病毒面前，所谓的“疫苗”显得苍白无力，但与中共一直不清不白的小土豆，与世界邪恶势力相勾结，强制推行疫苗护照，积极推行5-12儿童接种毒疫苗，通过官方禁止羟氯喹，伊维菌素等有效的预防和初期治疗药物，打压讲真话的医生。相信随着毒疫苗危害逐渐显现，随着真相的逐渐浮现，小土豆及其极左政府必将受到人民和法律的追究。
-![](https://lh4.googleusercontent.com/LX7Hc2txJX_6Trft82BzH7CiQ9nR3NBxVyV0T0M-_XhtI4HBxpig-3nVJ2xIPEJzoFv5jU2CTQTiIPBeMQHg2Xqf_3vgUWXNbRfJteFI8BqXfrWGKFdVsFYc5J5Mvvpojnbgf-JcTIX1nmqXw6U)
-参考链接：
+**4**创造天地的来历，在耶和华　神造天地的日子，乃是这样：
 
-[米德塞斯-伦敦卫生辖区官方资料](http://communityhealthstats.healthunit.com/chapter/geography-and-demographics)
+**5**野地还没有草木，田间的菜蔬还没有长起来，因为耶和华　神还没有降雨在地上，也没有人耕地，
 
-[环球新闻报道](https://globalnews.ca/news/8431848/covid-19-first-omicron-variant-case-london-ont/)
+**6**但有雾气从地上腾，滋润遍地。
 
-[加拿大官方文件](https://www.canada.ca/en/public-services-procurement/services/procuring-vaccines-covid19.html)
+**7**耶和华　神用地上的尘土造人，将生气吹在他鼻孔里，他就成了有灵的活人，名叫亚当。
 
-* * *
+**8**耶和华　神在东方的伊甸立了一个园子，把所造的人安置在那里。
 
-编辑、校对 ctt
+**9**耶和华　神使各样的树从地里长出来，可以悦人的眼目，其上的果子好作食物。园子当中又有生命树和分别善恶的树。
+
+**10**有河从伊甸流出来滋润那园子，从那里分为四道：
+
+**11**第一道名叫比逊，就是环绕哈腓拉全地的。在那里有金子，
+
+**12**并且那地的金子是好的；在那里又有珍珠和红玛瑙。
+
+**13**第二道河名叫基训，就是环绕古实全地的。
+
+**14**第三道河名叫底格里斯，流在亚述的东边。第四道河就是幼发拉底河。
+
+**15**耶和华　神将那人安置在伊甸园，使他修理看守。
+
+**16**耶和华　神吩咐他说：“园中各样树上的果子，你可以随意吃，
+
+**17**只是分别善恶树上的果子，你不可吃，因为你吃的日子必定死。”
+
+**18**耶和华　神说：“那人独居不好，我要为他造一个配偶帮助他。”
+
+**19**耶和华　神用土所造成的野地各样走兽和空中各样飞鸟都带到那人面前，看他叫什么。那人怎样叫各样的活物，那就是它的名字。
+
+**20**那人便给一切牲畜和空中飞鸟、野地走兽都起了名，只是那人没有遇见配偶帮助他。
+
+**21**耶和华　神使他沉睡，他就睡了；于是取下他的一条肋骨，又把肉合起来。
+
+**22**耶和华　神就用那人身上所取的肋骨造成一个女人，领她到那人跟前。
+
+**23**那人说：“这是我骨中的骨，肉中的肉，可以称她为女人，因为她是从男人身上取出来的。”
+
+**24**因此，人要离开父母与妻子连合，二人成为一体。
+
+**25**当时夫妻二人赤身露体并不羞耻。
+
+音频处理：喜山必胜Maverick
+发稿：Tom Li
+[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

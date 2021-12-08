@@ -18,157 +18,157 @@
 ### [2021年12月8日文贵先生直播摘要——银河系农场](/content/gnews/1/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [2021年12月8日 郭先生大直播文字同步精要](/content/gnews/2/README.md)
+### [2021/12/08 墙内世界](/content/gnews/2/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [2021年12月8日 郭先生大直播文字同步精要](/content/gnews/3/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [韩国单日新增9例本土奥密克戎病例](/content/gnews/3/README.md)
+### [韩国单日新增9例本土奥密克戎病例](/content/gnews/4/README.md)
  ` GTV新闻访谈`
 
-### [多国陆续声明外交抵制中共北京冬奥会](/content/gnews/4/README.md)
+### [多国陆续声明外交抵制中共北京冬奥会](/content/gnews/5/README.md)
  ` GTV新闻访谈`
 
-### [纽约市长离任前宣布疫苗强制新规](/content/gnews/5/README.md)
+### [纽约市长离任前宣布疫苗强制新规](/content/gnews/6/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [2021年春节对中共高官子女及情人和亲属大抗议集结号](/content/gnews/6/README.md)
- ` NewFOC`
-
-### [12月8日文贵大直播快讯——我们将对中共高层展开海外行动](/content/gnews/7/README.md)
- ` 澳喜特战旅Gnews`
-
-### [GTV新闻访谈简报|2021年12月8日早](/content/gnews/8/README.md)
+### [纽约医生助理说她被迫不报告CCP病毒疫苗伤害事件](/content/gnews/7/README.md)
  ` 纽约香草山MOS01`
 
-### [12月8日文贵大直播快讯——新歌打榜资金将捐助法制基金](/content/gnews/9/README.md)
+### [2021年春节对中共高官子女及情人和亲属大抗议集结号](/content/gnews/8/README.md)
+ ` NewFOC`
+
+### [12月8日文贵大直播快讯——我们将对中共高层展开海外行动](/content/gnews/9/README.md)
  ` 澳喜特战旅Gnews`
 
-### [【文贵先生大直播PPT】单伟建和PAG到底是啥玩意儿](/content/gnews/10/README.md)
+### [GTV新闻访谈简报|2021年12月8日早](/content/gnews/10/README.md)
+ ` 纽约香草山MOS01`
+
+### [12月8日文贵大直播快讯——新歌打榜资金将捐助法制基金](/content/gnews/11/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [【文贵先生大直播PPT】单伟建和PAG到底是啥玩意儿](/content/gnews/12/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [自然免疫——阿米什人怎样应对病毒大流行](/content/gnews/11/README.md)
+### [自然免疫——阿米什人怎样应对病毒大流行](/content/gnews/13/README.md)
  ` 澳喜特战旅Gnews`
 
-### [欧盟延长对侵犯人权中共官员的制裁期限](/content/gnews/12/README.md)
+### [欧盟延长对侵犯人权中共官员的制裁期限](/content/gnews/14/README.md)
  ` GTV新闻访谈`
 
-### [佛州Advent Health公司暂停为其8万多名雇员接种疫苗](/content/gnews/13/README.md)
+### [佛州Advent Health公司暂停为其8万多名雇员接种疫苗](/content/gnews/15/README.md)
  ` GTV新闻访谈`
 
-### [纽约市宣布疫苗强制令 遭商业团体猛烈抨击](/content/gnews/14/README.md)
+### [纽约市宣布疫苗强制令 遭商业团体猛烈抨击](/content/gnews/16/README.md)
  ` GTV新闻访谈`
 
-### [【Michael.Tonny专栏】越南数据证明 中共病毒疫苗才是真正的杀手(下）](/content/gnews/15/README.md)
+### [【Michael.Tonny专栏】越南数据证明 中共病毒疫苗才是真正的杀手(下）](/content/gnews/17/README.md)
  ` 温哥华扬帆农场`
 
-### [多位议员抨击纽约市长的疫苗强制令](/content/gnews/16/README.md)
+### [多位议员抨击纽约市长的疫苗强制令](/content/gnews/18/README.md)
  ` GTV新闻访谈`
 
-### [震惊！中共特洛伊木马—集装箱导弹](/content/gnews/17/README.md)
+### [震惊！中共特洛伊木马—集装箱导弹](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [北京丰台火车站突发大火](/content/gnews/18/README.md)
+### [北京丰台火车站突发大火](/content/gnews/20/README.md)
  ` 纽约香草山MOS02`
 
-### [美法官阻止全美联邦承包商疫苗强制令](/content/gnews/19/README.md)
+### [美法官阻止全美联邦承包商疫苗强制令](/content/gnews/21/README.md)
  ` GTV新闻访谈`
 
-### [【Michael.Tonny专栏】越南数据证明 中共病毒疫苗才是真正的杀手（上）](/content/gnews/20/README.md)
+### [【Michael.Tonny专栏】越南数据证明 中共病毒疫苗才是真正的杀手（上）](/content/gnews/22/README.md)
  ` 温哥华扬帆农场`
 
-### [澳大利亚站队美国外交抵制北京冬奥会](/content/gnews/21/README.md)
+### [澳大利亚站队美国外交抵制北京冬奥会](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [12/08/21 香港快讯 罗冠聪将出席「全球民主峰会」　邓炳强斥「懦夫」](/content/gnews/22/README.md)
+### [12/08/21 香港快讯 罗冠聪将出席「全球民主峰会」　邓炳强斥「懦夫」](/content/gnews/24/README.md)
  ` 英喜-粵語組`
 
-### [文贵大直播 12/8 恼羞成怒的CCP只会欺负老百姓](/content/gnews/23/README.md)
+### [文贵大直播 12/8 恼羞成怒的CCP只会欺负老百姓](/content/gnews/25/README.md)
  ` 秘密翻译组-原创组`
 
-### [南非新型变种病毒奥米克戎患者激增](/content/gnews/24/README.md)
+### [南非新型变种病毒奥米克戎患者激增](/content/gnews/26/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [DC每日热点1208](/content/gnews/25/README.md)
+### [DC每日热点1208](/content/gnews/27/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [有声|【每日读经】创世纪(2:1-25)](/content/gnews/26/README.md)
+### [有声|【每日读经】创世纪(2:1-25)](/content/gnews/28/README.md)
  ` MOSREC`
 
-### [有声|美台将于芯片领域在新框架下开展合作](/content/gnews/27/README.md)
+### [有声|美台将于芯片领域在新框架下开展合作](/content/gnews/29/README.md)
  ` MOSREC`
 
-### [安大略省“奥米克戎”大爆发凸显疫苗的苍白无用](/content/gnews/28/README.md)
+### [安大略省“奥米克戎”大爆发凸显疫苗的苍白无用](/content/gnews/30/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm Toronto(CA)`
 
-### [有声|白宫正式宣布外交抵制北京冬奥会](/content/gnews/29/README.md)
+### [有声|白宫正式宣布外交抵制北京冬奥会](/content/gnews/31/README.md)
  ` MOSREC`
 
-### [加拿大各地完全接种疫苗的母亲死产率激增28倍](/content/gnews/30/README.md)
+### [加拿大各地完全接种疫苗的母亲死产率激增28倍](/content/gnews/32/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [417名滞留白俄的伊拉克公民被遣送回国](/content/gnews/31/README.md)
+### [417名滞留白俄的伊拉克公民被遣送回国](/content/gnews/33/README.md)
  ` 纽约香草山MOS02`
 
-### [乌云罩顶 北京冬奥出师未捷名先坏](/content/gnews/32/README.md)
+### [乌云罩顶 北京冬奥出师未捷名先坏](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文·贵天成——文贵先生谈“躺平币”（三）](/content/gnews/33/README.md)
- ` 墨尔本雅典娜农场`
-
-### [日本群马县再次出现聚集性感染](/content/gnews/34/README.md)
+### [日本群马县再次出现聚集性感染](/content/gnews/35/README.md)
  ` GTV新闻访谈`
 
-### [鉴于人权暴行 美国官员抵制北京奥运会](/content/gnews/35/README.md)
+### [鉴于人权暴行 美国官员抵制北京奥运会](/content/gnews/36/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [韩国当日新增感染及危重症数双创新高](/content/gnews/36/README.md)
+### [韩国当日新增感染及危重症数双创新高](/content/gnews/37/README.md)
  ` 纽约香草山MOS03`
 
-### [12/08/2021 国际财经快讯：业界警告国会，美国对加密货币的监管存在 &#8220;寒蝉效应&#8221;；华尔街在市场 &#8220;泡沫化 &#8220;后重启](/content/gnews/37/README.md)
+### [12/08/2021 国际财经快讯：业界警告国会，美国对加密货币的监管存在 &#8220;寒蝉效应&#8221;；华尔街在市场 &#8220;泡沫化 &#8220;后重启](/content/gnews/38/README.md)
  ` 秘密翻译组金融团队`
 
-### [最新研究表明接种疫苗者是COVID传播的主要来源](/content/gnews/38/README.md)
+### [最新研究表明接种疫苗者是COVID传播的主要来源](/content/gnews/39/README.md)
  ` 日本东京方舟农场`
 
-### [欧盟的反制来了 中共自作自受](/content/gnews/39/README.md)
+### [欧盟的反制来了 中共自作自受](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [信用卡巨头Visa开启数字货币全球咨询服务](/content/gnews/40/README.md)
+### [信用卡巨头Visa开启数字货币全球咨询服务](/content/gnews/41/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [盗国贼也穿着睡衣去零下四度的大街上走一走](/content/gnews/41/README.md)
+### [盗国贼也穿着睡衣去零下四度的大街上走一走](/content/gnews/42/README.md)
  ` 骄子`
 
-### [中俄联军侵略：美防长奥斯汀说乌克兰、台湾可以自卫](/content/gnews/42/README.md)
+### [中俄联军侵略：美防长奥斯汀说乌克兰、台湾可以自卫](/content/gnews/43/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [滴滴美股退市致多个对冲基金损失惨重](/content/gnews/43/README.md)
+### [滴滴美股退市致多个对冲基金损失惨重](/content/gnews/44/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国防授权法案出炉，加强美台合作，制裁中共种族灭绝](/content/gnews/44/README.md)
+### [美国防授权法案出炉，加强美台合作，制裁中共种族灭绝](/content/gnews/45/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [参议员里克·斯科特呼吁NBA抵制北京冬奥会](/content/gnews/45/README.md)
+### [参议员里克·斯科特呼吁NBA抵制北京冬奥会](/content/gnews/46/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [澳大利亚宣布外交抵制北京冬奥会](/content/gnews/46/README.md)
+### [澳大利亚宣布外交抵制北京冬奥会](/content/gnews/47/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [BBC被曝向中共企业投资超1.5亿英镑养老基金](/content/gnews/47/README.md)
+### [BBC被曝向中共企业投资超1.5亿英镑养老基金](/content/gnews/48/README.md)
  ` GTV新闻访谈`
 
-### [喜币与法币共存 实现财务自由](/content/gnews/48/README.md)
+### [喜币与法币共存 实现财务自由](/content/gnews/49/README.md)
  ` GTV新闻访谈`
 
-### [爱面子缺爱缺安全感-偏狭的习近平在梦游中走向一尊梦](/content/gnews/49/README.md)
+### [爱面子缺爱缺安全感-偏狭的习近平在梦游中走向一尊梦](/content/gnews/50/README.md)
  ` mary202064`
 
-### [日本央行高官表示未来经济令人堪忧](/content/gnews/50/README.md)
+### [日本央行高官表示未来经济令人堪忧](/content/gnews/51/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [电器“巨头”格力再度受到处罚](/content/gnews/51/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [【樱花深度报道】习近平对中国的铁腕控制面临着迄今为止最大的威胁（下）](/content/gnews/52/README.md)
+### [电器“巨头”格力再度受到处罚](/content/gnews/52/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [法官暂停拜登政府针对全美联邦承包商的疫苗强制令](/content/gnews/53/README.md)

@@ -2,17 +2,28 @@
 ---
 
 
-## 【文贵先生大直播PPT】单伟建和PAG到底是啥玩意儿
-` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1733515/)
+## GTV新闻访谈简报|2021年12月8日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1733573/)
 
-撰稿：顽童2017，Sima（正道主义）
-美工：Sotres，青山
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-109-1280x172-1-2-1.jpg)
 
-【2021年12月8日文贵先生大直播PPT：单伟建和PAG到底是啥玩意儿】
-![](https://assets.gnews.org/wp-content/uploads/2021/12/41-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/43-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/44-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/45-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/46-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/47-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/48-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/49-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/111-2-2.jpg)
-* * *
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-7.png)
+文章仅代表作者本人观点，与Gnews无关
 
-发稿：云起时
+视频参看：[2021.12.08早GTV新闻访谈](https://gtv.org/video/id=61b0b2ecbbd75f62e532d697)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/rl.png)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
