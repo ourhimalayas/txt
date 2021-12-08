@@ -2,48 +2,29 @@
 ---
 
 
-## 美台将于芯片领域在新框架下开展合作
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1731221/)
+## 七哥谈新中国联邦
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1731264/)
 
-作者：纽约香草山农场 – 四季
+文编：Hima
+听写：叮叮
+视频：七哥
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+他有支付系统吗？他有兑换系统吗？都没有。你怎么活得了？一个人，你说一个残疾人没胳膊没腿的，你怎么可能活得了？所以说今天看到这些数字货币的时候，在今年的年底的就12月份到明年5月份的会暴跌，跌到你无法想象，就像互联网一样，突然间美国几万家互联网企业，最后只剩下了三五家，只剩下三五家，谷歌大到什么程度你看见了，Facebook。我们就是那数字货币货币界的谷歌，一定是这结局。所以你会非常惊讶地看到人类在灾难，疫苗灾难，经济灾难，所有的灾难，突然诞生了新的货币金融系统的同时，诞生了一个无国家主权界限的，超过国家主权的，一个人类上最高尚的群体。无苗，完全没有任何战争，没有任何杀害、没有任何流血，却受世人绝对尊重，无数人愿意加入到这个国家的，叫新中国联邦。这就是我们的城邦。谢谢。
 
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
+**关注我们**
 
+Discord 账号
 
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-据[OAN](https://www.oann.com/u-s-taiwan-discuss-chips-again-to-cooperate-under-new-framework/)网站援引路透社12月7日的报道，美国商务部长吉娜·雷蒙多(Gina Raimondo) 在周一与台湾经济部长王美花通话中表示，美台将通过新的技术贸易和投资合作（或称TTIC）框架，在技术贸易和投资方面进行合作。
+Gettr 账号
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1635-1.jpg)2021年11月9日，在美国华盛顿的白宫，美国商务部长吉娜-雷蒙多在白宫副新闻秘书卡琳-让-皮埃尔举行的新闻发布会上发言。（路透社利亚·米利斯）
-
-双方讨论了台湾在全球供应链中发挥的关键作用。美方强调了对台湾的支持以及美台商业和投资关系的重要性，并表示，美国有兴趣与台湾继续就共同的商业问题进行合作，特别是在半导体供应链和相关生态系统领域。并承诺通过确定其他步骤来支持半导体和其他关键供应链。
-
-早前，美国已多次向作为主要芯片生产国的台湾施加压力，要求其做出更多努力，帮助解决全球半导体短缺的问题。这一问题已使一些汽车生产线关闭，并影响到消费品的生产。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月.png)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

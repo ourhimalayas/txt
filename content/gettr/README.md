@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/8/2021 3:01 AM (UTC)`
+
+12/7/2021 Miles Guo’s GETTR: The economy of Communist China is in a terrible shape with lots of drama; after the Pangu employees were driven to the streets, people have sent food and drinks to them, indicating the support from the people; once the SWIFT system is terminated, it is the CCP's family members who will be driven to the streets; call for fellow fighters to find out the overseas assets of the families of the senior CCP cadres<br/><br/>12/7/2021 文贵盖特：国内经济惨淡、乱象四起；盘古员工被赶到街上后，有人送吃送喝体现人心所向；一旦停了SWIFT系统，中共的家人就会被赶到街上；号召战友们找出中共高官家人的海外资产<br/>
+![img](https://media.gettr.com/group21/getter/2021/12/08/03/7a46a0be-057a-200a-62d8-66f507b712b5/out.jpg)
+
+---
+
 `@miles 12/7/2021 11:31 PM (UTC)`
 
 12/7/2021 Miles Guo’s GETTR: The US diplomatic boycott effectively renders the 2022 Winter Olympics meaningless, Europe and Japan will do the same, and the CCP won’t be able to host the Winter Olympics; the atrocities that the CCP has inflicted on my family members and my employees are way beyond those of any dictators; the Western religious communities believe that the COVID vaccination is the WWIII waged by the communists led by the CCP<br/><br/>12/7/2021 文贵盖特：美国外交抵制等于废了冬奥会，欧和日会也跟随，中共办不成冬奥会；中共对文贵家人和员工的暴行超过任何独裁者；西方宗教界认为疫苗是以中共为首的共产主义发动的第三次世界大战<br/>
@@ -143,13 +150,6 @@ Dec. 6th, 2021, after the CCP, filled with fear of our Whistleblowers’ Movemen
 
 12/5/2021 Miles Guo: When it comes to the Taiwan issue, Australia can’t defeat the CCP’s troops and prioritizes economic interests; the Japanese’s military is comparable to that of the CCP, but Abe’s statement on Taiwan was simple bluffing; the core of the Taiwan issue lies in the traitors and the government of Taiwan; it’s the CCP, the US, and Russia that have the say in the world<br/><br/>12/5/2021 文贵直播：在台湾问题上，澳大利亚打不过中共且以经济利益为优先考量；日本军力不输中共，但安倍的表态全是咋呼；台湾问题的核心是卖台贼和台政府；真正影响世界的是中美俄<br/>
 ![img](https://media.gettr.com/group31/getter/2021/12/06/02/36ed4224-93f4-1b50-6802-45d14141a90d/out.jpg)
-
----
-
-`@miles 12/6/2021 2:42 AM (UTC)`
-
-2021年12月05日: 法治基金,法治社会每周捐款留言精选集<br/>法治基金, 法治社会团队衷心感谢所有的捐款者和支持者！<br/><br/>December 5, 2021 Weekly Rule of Law Foundation and Society donors messages collection <br/><br/>The Rule of Law Foundation and Society team heartfully thank all of our supporters and donors！
-![img](https://media.gettr.com/group48/getter/2021/12/06/02/579955ae-725f-749a-bbb6-3da8a8ce3924/out.jpg)
 
 ---
 

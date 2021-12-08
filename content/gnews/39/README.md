@@ -2,44 +2,48 @@
 ---
 
 
-## 五角大楼网络公关承包商承认暗网儿童性虐待指控
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1730681/)
+## 美国证监会要求中国公司详细说明所有权结构和审计情况
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1731074/)
 
-**翻译：lovemiles**
-**编辑：Candy**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/120703-1.jpg)2021 年 5 月 12 日，美国华盛顿特区，美国证券交易委员会 (SEC) 总部的印章。路透社/Andrew Kelly摄
+来自路透社2021年12月02日的报道
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/暗网.png)图片来源：forbes.com
+**摘要翻译**：
+
+华盛顿，12月2日（路透社）——美国证券交易委员会（SEC）周四表示，在美国证券交易所上市的中国公司必须披露其是否由政府实体拥有或控制，并提供其审计检查的证据。
+
+该法规可能加速200多家（中共国）公司被踢出美国交易所，并可能降低一些中国公司对投资者的吸引力。新法规旨在实施由美国国会于2020年12月通过的一项法律，旨在确保在美国上市的外国公司，尤其是中国公司，遵守美国的法律法规。
+
+与许多国家不同，中共国不允许美国证券交易委员会的会计机构——上市公司会计监督委员会，来监督对在美国上市的中国公司的账目进行认证的审计师。出于国家安全考虑，中共当局不愿意让海外监管机构检查当地的会计师事务所。
+
+美国监管机构担心，缺乏美国的监督会使投资者面临风险。其核心问题，据SEC的一位官员说：“最终的法规将使投资者能轻松辨别特殊的企业，因他们的审计公司位于海外主权国家和地区，PCAOB无法有效的全面监管。此外，海外发行方将被要求披露他们当地政府在这些实体股份中所占有的比例”。该法规还将要求通过被称为可变利益实体（VIE）的工具在美国上市的中共国实体加强披露。
+
+虽然这种股权结构允许某些行业的中国公司在赴海外上市的过程中规避国内的规则，但美国监管机构担心这种股权结构会给投资者带来风险，并可能掩盖有关其最终所有权的信息。关于提高透明度的要求，这些公司将有15天的时间向美国证券交易委员会提出异议。
+
+美国证券交易委员会有长达三年的时间来迫使那些不遵守法规的公司退市。
+
+**简评：**
+
+几乎所有在美国上市的中共国公司都不可避免的与红色资本有联系。美国加强对在美国上市的中共国公司的股权所有人的监管，显示出美国开始重新认识中共的盗国体制。随着美国监管的深入，中美离全面脱钩又进了一步。
+
+新闻链接：[U.S. SEC mandates Chinese companies detail ownership structure, audits](https://www.reuters.com/business/us-sec-mandates-foreign-companies-spell-out-ownership-structure-disclose-2021-12-02/)
+
+*翻译/简评: kkoto(芬兰大灰狼)*
+
+*校对: clau*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-#### 在博思艾伦（Booz Allen）上，一名前空军情报分析师声称，他曾与国防部的美国网络司令部密切合作，同时他从暗网上下载了数千张儿童性虐待图片。
+编辑：【英国伦敦喜庄园编辑部】
 
-一位博思艾伦汉密尔顿的前公关专家，曾与五角大楼美国网络司令部有过合作，承认使用暗网寻找儿童性虐待资源。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-上周公布的认罪协议提及，53 岁的前空军公关人员兼照片情报分析师布伦丹·卡瓦诺 (Brendan Kavanaugh) 承认：自 2016 年以来，他一直在使用高度加密的洋葱网站来访问“与儿童相关的色情网站”。
 
-卡瓦诺在这些网站上与其他人聊天时使用了化名HebeMom。在认罪协议中写道：“他知道这些材料构成儿童色情内容，而且他拥有的许多图像都涉及青春期前的未成年人和未满12岁的未成年人。卡瓦诺也知道他拥有描绘未成年人参与虐待狂或受虐狂行为的材料。”
-
-博思艾伦汉密尔顿公司与美国网络司令部合作的高级公关人员，将于2月份，因剥削儿童罪被判刑。
-
-对加密硬盘的取证分析显示，卡瓦诺拥有大约3,674张儿童性虐待材料的图像。他于2020年12月被捕，现在等待定于2022年2月的宣判。他将面临最高20年的监禁。
-
-根据他的领英个人资料，卡瓦诺于2013年年中加入市值120亿美元的政府咨询公司 Booz Allen，并“为美国网络司令部的高级领导层提供公共事务支持和指导”。Booz对这一说法提出异议。一位发言人表示：他只在2020年7月至2020年12月期间为该公司工作，并且他的领英个人资料不准确。根据政府合同记录，博思艾伦公司（Booz Allen）自2012年就与美国网络司令部签订了合同，当时它获得了1.2亿美元的合同。今年它与该部门签署了各种其他合同，包括一笔1.65亿美元的交易。
-
-卡瓦诺在另一家承包商工作，声称曾担任“国防信息系统局 (DISA) 应用部门分支机构的战略通信主管”。他还将国家航空航天情报中心列为自己以前的雇主。
-
-除了与政府情报和国防机构密切合作的悠久历史之外，卡瓦诺还将自己列为共济会成员，是马萨诸塞州古代自由和公认的共济会大别墅的泥瓦匠大师。
-
-除了对卡瓦诺在领英上的声明提出异议之外，博思艾伦（Booz Allen）公司没有发表评论。它以前曾遇到过员工卷入非法行为的问题——尽管是不同的类型。2010 年代中期，前工作人员爱德华·斯诺登 (Edward Snowden) 从美国国家安全局窃取文件并与媒体机构分享后；另一名博斯员工哈罗德·托马斯·马丁三世 (Harold Thomas Martin III) 被[指控从情报机构窃取文件](https://www.forbes.com/sites/thomasbrewster/2016/10/05/booz-allen-hamilton-nsa-files-shadow-brokers/)。他后来被判处九年徒刑。
-
-原文链接：[https://www.forbes.com/sites/thomasbrewster/2021/12/06/booz-allen-cyber-command-pr-pleads-guilty-to-dark-web-child-pornography-charges/?sh=72216ad48cb0](https://www.forbes.com/sites/thomasbrewster/2021/12/06/booz-allen-cyber-command-pr-pleads-guilty-to-dark-web-child-pornography-charges/?sh=72216ad48cb0)
-
-***发布：Candy***
-
-**更多信息，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

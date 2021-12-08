@@ -2,24 +2,30 @@
 ---
 
 
-## 韩国自爆发疫情以来，新增中共病毒病例首次突破 7,000 大关
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1731527/)
+## 雷军退出小米科技公司法人
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1731567/)
 
-撰稿：追着曙光跑
+![雷军_最美奋斗者](https://lh3.googleusercontent.com/proxy/0hmVwyUEWZIfVZp7tC_6pI0jDvXKDgKKr1iE3sGX9zCrbbUHKwk9Kyjgt7w6fRKp4_4xUIauBjgBuXxDleODzLbUIlbeLjsn)*雷军。资料照*![](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2021%2F1207%2F6d11e92fj00r3qp0h000mc000go0089m.jpg&amp;thumbnail=690x10000&amp;quality=75&amp;type=jpg)
+据网易新闻12月7日报道，小米科技（武汉）有限公司发生工商变更，法人代表由雷军变更为曾学忠，同时雷军退出执行董事兼总经理职位。
 
-韩国KBS新闻12月8日的报道，根据韩国中央防疫对策本部8日的通报，截至今天零时，韩国较前一天零时新增中共病毒确诊病例7175例，创下疫情爆发以来的历史新高。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Image-2021-12-08-at-11.01.06.jpeg)图片来自：KBS新闻
-新增确诊病例7,175例，比12月4日记录的5,352例多1,823例。与前一天相比，增加了2,221人。其中韩国本土确诊病例7,142例，境外输入病例33例，累计489,484例。
+小米科技(武汉)有限公司成立于2017年9月，注册资本2. 1亿元，由小米通讯技术有限公司全资控股。经营范围包含数据处理和存储服务；房地产开发经营等。雷军目前依然任小米科技董事长兼CEO，同时兼任金山、YY、猎豹移动等三家上市公司董事长。2021年11月18日，小米汽车科技有限公司成立，法人代表雷军，注册资本10亿人民币，由小米科技有限责任公司全资持股。经营范围含新能源整车制造、技术研发等。首款小米汽车预计会在2024年实现量产。
 
-按地区划分，首尔2,890例、京畿道2,263例、仁川431例，首都圈约占国内确诊病例总量的78.1%。
+雷军信心满满要为小米汽车而战。新能源汽车是未来的趋势，全世界都在积极发展，力求占据未来的市场。中共也想要抢占一块领地。
 
-首都圈以外，釜山253人、忠南203人、大田184人、庆南155人、江原141人、庆北129人、大邱127人、全北103人。
+新闻参考链接：[https://c.m.163.com/news/a/GQKPNNRK0527A5AV.html?spss=newsapp](https://c.m.163.com/news/a/GQKPNNRK0527A5AV.html?spss=newsapp)
 
-住院重症患者840人，比前一天新增66例。单日死亡人数增加63人，累计死亡4,020人，病死率为0.82%。
+编辑：胖丁
 
-截至8日零时，全国已有42,774,131人接种首剂中共病毒疫苗，占总人口的83.3%，第二剂疫苗接种人数共计41,455,864人，占总人口的80.73%。第三剂接种人数共计4,538,521人，占人口的 8.84%。
+* * *
 
-新闻来源：**[\[속보\] 코로나19 신규 확진자 발생 이래 최다 7,175명…위중증 환자 840명](https://news.kbs.co.kr/mobile/news/view.do?ncd=5343464)**
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
