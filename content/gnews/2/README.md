@@ -2,46 +2,58 @@
 ---
 
 
-## COVID-19是当局“制造”的恐惧大流行
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1732894/)
+## 疫苗大屠杀：欧盟主席考虑给整个欧洲强制接种
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1732985/)
 
 编译： Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/risch-700x420-1.png)耶鲁大学公共卫生学院流行病学教授哈维·里施( Harvey Risch )博士, 2021 年 11 月 14 日出席在康涅狄格州哈特福德布朗斯通研究所成立大会。（Zhen Wang/大纪元）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/unknown-1-3.png)gettr照片
 
-耶鲁大学流行病学家哈维·里施博士表示，COVID-19 大流行一直是一种恐惧，是由处于权威地位的人，在去年该病毒开始在全球传播时制造的。
+欧盟委员会负责人乌尔苏拉·冯德莱恩（Ursula von der Leyen）敦促欧盟成员国“考虑”对所有公民（可能不包括“移民”）引入强制性的武汉冠状病毒（Covid-19）“疫苗接种”政策 。
 
-在大纪元电视台的“美国思想领袖”节目中，耶鲁大学公共卫生学院和耶鲁大学医学院流行病学与公共卫生系的流行病学教授里施认为，总的来说，整个中共病毒的特点一直是“恐惧的程度和人们对恐惧的反应”。
+在新闻发布会上，乌尔苏拉抱怨大约 33% 的欧盟公民尚未接受堕胎污染的注射剂，并提议欧盟 27 个欧洲国家之间采取“共同方法”政策。
 
-“总的来说，我想说的是，我们经历了一场大流行的恐惧。恐惧几乎影响了每个人，而感染影响的相对较少，”里施说。
+“三分之一的欧洲人口没有接种疫苗，” 乌尔苏拉抱怨道。 “有1.5亿人。 这是很多。”
 
-“总的来说，**这是一种非常有选择的流行病，并且是可以预测的**。年轻人与老年人，健康人与慢性病患者之间的区别非常明显。所以，我们很快就知道谁有大流行的风险，谁没有。
+（点评：让你家少赚很多带血的钱吧？）
 
-“然而，恐惧是为每个人制造的。这就是整个大流行的特征，是恐惧程度和人们对恐惧的反应。”
+乌尔苏拉继续表示，如果只有更多的领导人将这种法西斯主义强加给她，她希望看到这种法西斯主义从奥地利和德国等国家蔓延开来，那么，这三分之一的人可能会被迫接受注射，而现在这种情况已经在发生。
 
-里施撰写了 300 多篇经过同行评审的原创出版物，并且曾是美国流行病学杂志的编辑委员会成员。
+为了不被称为独裁者，乌尔苏拉强调这只是她的“个人立场”，但她希望被她领导的那些人都采用。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/unknown-9.png)图片来自原文
+**全球主义者希望整个欧洲都被强行注射“****Covid****”疫苗**
 
-这位流行病学教授表示，**在**** 2020 ****年**** 3 ****月大流行爆发期间担任名义上的权威职位的个人，**对最初传播的病毒“可怕性质”的描述，比所应有的要糟糕得多。
+这就是 6 月份推动欧盟范围内“疫苗护照”的同一个乌尔苏拉，声称这将是重新开放欧洲“新常态”的门票。
 
-这包括这样一种信息，**即每个人都处于危险之中，任何人都可能因感染该病毒而死亡，每个人都需要呆在家里保护自己，从而保护社会**。
+乌尔苏拉个人感觉好像“全面接种疫苗和加强疫苗，提供了目前可用的最强大的针对新冠病毒的保护。” **而且我们都知道，独裁者个人意见经常在枪口威慑下成为针对整个人群的“法律”。**
 
-“人们非常害怕这个信息，因为任何人都会……政府，当局，科学家，科学人员，公共卫生机构中的权威医疗人员，去年从大约 2 月，3 月开始，所有人都在说同样的信息。 因此，我们都相信这一点，”他说。
+这是“与时间赛跑”，乌尔苏拉接着说，指的是主流媒体声称的，新Omicron变体正在“完全接种疫苗”的人群中传播。
 
-在大流行的前两个月，实施了严格的封锁和口罩规定，以遏制 COVID-19 在美国和全球的传播。里施说，**当局发布的各种信息导致广泛的焦虑水平升高**。
+“科学家告诉我们，我们必须尽一切可能，充分利用我们拥有的时间，直到我们确定 Omicron 的可传播性和严重性的特征，”她进一步说道。
 
-“我们所有的焦虑水平都提高了，我们都做出了在不同程度上减少与他人接触的决定，有些人比其他人更多，但我认为，每个人都有一定程度的焦虑，这确实影响了他们那个时候的工作和生活。”他说。
+“做最坏的准备，抱最好的希望。”
 
-与此同时，乔·拜登总统表示，在国家“恢复正常”之前，需要 96% 至 98% 的美国人接种 COVID-19 疫苗，**这推动未接种疫苗的美国人应为减缓国家经济复苏负责的言论。**
+在随附的新闻稿中，乌尔苏拉声称新的 Moronic 变体可能会摧毁欧洲大陆，称其“大概是高度连续的”。
 
-根据美国CDC的数据，截至 12 月 4 日，只有 70% 以上的美国成年人完全接种了该病毒的疫苗，而 23.9% 的成年人接受了加强剂量。
+（点评：她已经在变种出来之前把剧本编好了。）
 
-此链接可观看对耶鲁大学流行病学家里施博士的[完整采访](https://www.theepochtimes.com/dr-harvey-risch-hydroxychloroquine-ivermectin-and-other-therapeutics-highly-effective-in-early-covid-treatment_4131804.html)。
+她接着说，欧盟现在正在“加强”其 Covid 注射计划，并“加大对治疗的投资……改善监测和预防，并加强我们的全球团结”。
 
-**评论：爆料革命灭共者文贵先生一再告诫人们：中共病毒旨在疫苗！恐惧是让人们乖乖就范的最有效手段！**
+“与此同时，”乌尔苏拉进一步漫不经心地说，“我再次向你们所有人发出紧急呼吁：接种疫苗，接种加强剂，并遵守规则保护自己。”
 
-参考资料：[theepochtimes][COVID-19 a Pandemic of Fear ‘Manufactured’ by Authorities: Yale Epidemiologist](https://www.theepochtimes.com/mkt_morningbrief/covid-19-a-pandemic-of-fear-manufactured-by-authorities-yale-epidemiologist_4106244.html?utm_source=Morningbrief&amp;utm_medium=email&amp;utm_campaign=mb-2021-12-06&amp;mktids=66665d50c01c691b90e3c21ab9f25ce0&amp;est=OGXNZdbUPjeKdHEppkT9kOahNAq5oQqBEdRig1MIZGidWYQ9HFtWqpUH2MS6jPEYec3F%2Fw%3D%3D)
+为了实现在最近的 G20 峰会上提出的目标，**全球主义者表示**，到 2022 年，全球至少 70% 的人口必须完全接种福奇流感疫苗。
+
+**为了实现这一目标，乌尔苏拉和其他人希望未接种疫苗的人受到惩罚，要么通过封锁、旅行限制或被剥夺进入商店的权利，包括那些出售杂货的商店。**
+
+“[乌尔苏拉] 必须解释她与辉瑞的秘密通信和协议，以及为什么她在他们展示‘变体和加强剂’叙述之前很久，就为大约 4 亿人签订了近 20 亿份辉瑞‘疫苗’，” 生活网站新闻一位评论者写道。
+
+文章内容来源：
+
+[LifeSiteNews.com](https://www.lifesitenews.com/news/eu-commission-president-suggests-for-mandatory-covid-vaccination-throughout-the-continent/)
+
+[NaturalNews.com](https://naturalnews.com/2021-06-16-europe-launches-covid-vaccine-passports-media-conspiracy-theory.html)
+
+参考资料：[newstarget][VAX HOLOCAUST: European Commission President Ursula von der Leyen says she’s considering forcing covid “vaccines” on all of Europe](https://www.newstarget.com/2021-12-06-european-commission-considering-forcing-covid-vaccines-europe.html)
 
 * * *
 

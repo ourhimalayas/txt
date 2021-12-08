@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/8/2021 1:22 PM (UTC)`
+
+2021年12月08日 文贵大直播：拜登外交抵制冬奥会；盘古物业接管惊世界；中共高级特务单伟建；对准高层海外大行动
+![img](https://media.gettr.com/group42/origin/2021/12/08/13/734d70a9-2e68-8ae6-7c5b-7dbf855247b7/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@tangping 12/8/2021 10:29 AM (UTC)`
@@ -145,13 +152,6 @@ Dec. 6th, 2021, after the CCP, filled with fear of our Whistleblowers’ Movemen
 
 12/05/2021 Miles Guo: The CCP has turned the debt crises in the real estate into the weapons of the economic and currency unrestricted warfare targeting the West; Sunac’s debt crisis will have a much bigger impact than that of Evergrande; the CCP sent spy agents to force private entrepreneurs such as Xu Jiayin and Jack Ma to sell their overseas assets so that the CCP can take the cash<br/><br/>12/05/2021文贵直播：中共将房地产债务危机变成针对西方的经济超限战和货币超限战的武器；融创的雷比恒大还要大；中共派特务逼许家印、马云等私营企业家将海外资产变现，钱归中共<br/>
 ![img](https://media.gettr.com/group32/getter/2021/12/06/05/dcbc268c-0594-cd10-433f-e2ebee8bea97/out.jpg)
-
----
-
-`@miles 12/6/2021 3:21 AM (UTC)`
-
-12/05/2021 Miles Guo:  The CCP and Russia are the cores of the evil forces, and the CCP is in cahoots with other dark forces in an attempt to eliminate the senior people and the people with disabilities. The birth of the New Federal State of China (NFSC) is God’s will. The mission of the NFSC is to defeat and destroy these evil forces<br/><br/>12/05/2021文贵直播：中共和俄罗斯是黑暗力量的核心，中共和其他邪恶势力沆瀣一气，妄图消灭老年人和残疾人。新中国联邦的诞生是天意，她的使命就是消灭这些邪恶力量<br/>
-![img](https://media.gettr.com/group37/getter/2021/12/06/03/60c25b7f-1673-ffdf-d5f7-5eac90dbb360/out.jpg)
 
 ---
 
