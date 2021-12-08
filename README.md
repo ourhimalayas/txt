@@ -27,53 +27,53 @@
 ### [因强制疫苗澳洲墨尔本女子在车内自焚](/content/gnews/4/README.md)
  ` 墨尔本雅典娜农场`
 
-### [佛罗里达州推在线工具 员工可举报雇主违反疫苗规定限制](/content/gnews/5/README.md)
+### [微软查封了中共黑客用来对美国机构进行网络攻击的 42 个网站](/content/gnews/5/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [樱花灭共诗——十二月六日盘古夺楼（新韵）](/content/gnews/6/README.md)
+### [佛罗里达州推在线工具 员工可举报雇主违反疫苗规定限制](/content/gnews/6/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [樱花灭共诗——十二月六日盘古夺楼（新韵）](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新冠疫苗导致的刺突蛋白会抑制DNA修复并诱发癌症](/content/gnews/7/README.md)
+### [新冠疫苗导致的刺突蛋白会抑制DNA修复并诱发癌症](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [苹果为保住中共国市场，承诺给中共2750亿美元保护费](/content/gnews/8/README.md)
+### [苹果为保住中共国市场，承诺给中共2750亿美元保护费](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共政治局会议隐晦承认中国经济出了大问题](/content/gnews/9/README.md)
+### [中共政治局会议隐晦承认中国经济出了大问题](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共城管暴力抢夺老人甘蔗，官方急甩锅“临时工”](/content/gnews/10/README.md)
+### [中共城管暴力抢夺老人甘蔗，官方急甩锅“临时工”](/content/gnews/11/README.md)
  ` 澳喜农场`
 
-### [中共快递年业务量首次突破千亿件大关](/content/gnews/11/README.md)
+### [中共快递年业务量首次突破千亿件大关](/content/gnews/12/README.md)
  ` 儒为`
 
-### [澳大利亚在美国之后亦宣布外交抵制北京冬奥](/content/gnews/12/README.md)
+### [澳大利亚在美国之后亦宣布外交抵制北京冬奥](/content/gnews/13/README.md)
  ` G-NEWS TAIWAN`
 
-### [英国新增的心脏病患者多达30万](/content/gnews/13/README.md)
+### [英国新增的心脏病患者多达30万](/content/gnews/14/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [澳洲政府计划出台新政 推行加密货币](/content/gnews/14/README.md)
+### [澳洲政府计划出台新政 推行加密货币](/content/gnews/15/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [120名学生注射后住院 越南一省叫停辉瑞疫苗](/content/gnews/15/README.md)
+### [120名学生注射后住院 越南一省叫停辉瑞疫苗](/content/gnews/16/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [日本要闻汇编 12月8日](/content/gnews/16/README.md)
+### [日本要闻汇编 12月8日](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [辉瑞公司的新董事会成员是前Facebook董事](/content/gnews/17/README.md)
+### [辉瑞公司的新董事会成员是前Facebook董事](/content/gnews/18/README.md)
  ` wenwu`
 
-### [秘翻在线：柳扶风称港人治港很失败 需要被中共管治](/content/gnews/18/README.md)
+### [秘翻在线：柳扶风称港人治港很失败 需要被中共管治](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [每日快报：联邦法官终止了拜登的疫苗强制令](/content/gnews/19/README.md)
+### [每日快报：联邦法官终止了拜登的疫苗强制令](/content/gnews/20/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [国际要闻汇编12月8日](/content/gnews/20/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [西媒头条 — 第126期](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
