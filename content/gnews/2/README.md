@@ -2,28 +2,32 @@
 ---
 
 
-## COVID-19 最新情报｜英国殡葬公司总监警示今年死亡人数激增 呼吁民众毋打疫苗“它正在杀死你”
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1732689/)
+## 研究表明：Omicron 变体可以部分逃避辉瑞疫苗
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1732691/)
 
-**撰文｜ 台湾宝岛农场 疫情关注组 / 发布时间｜8/12/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup）](https://gettr.com/user/mightygroup%EF%BC%89)**
+编译：玫瑰天空
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2fbb3ba7-4481-461c-b4f1-718730dc4285.png)
+南非非洲健康研究所实验室的研究负责人于本周二表示，中共病毒的 Omicron 变体可以部分逃避辉瑞公司以及 BioNTech 的所谓 COVID-19 疫苗的保护。
 
-英国米尔顿·凯恩斯 (Milton Keynes) 家庭葬礼服务公司 (Milton Keynes Family Funeral Services) 的总监约翰·奥鲁尼 (John O’Looney)早几日（6日）在社交平台发出警示指，今年英国因血栓、中风、心脏病发作和脑出血而死亡的人数激增。
+非洲健康研究所教授亚历克斯·西加尔 (Alex Sigal)[在推特上说](https://twitter.com/sigallab/status/1468325159501287434)，与较早的 COVID 毒株相比，Omicron 变体的中和作用“大幅下降”。根据实验室网站上发布的一份手稿，该实验室测试了 12 名接种过辉瑞/BioNTech 疫苗者的血液。
 
-影片足本版请移步官方GTV了解：[足本版点击观看](https://gtv.org/video/id=61b099a787fa7e74c92d27e1)
+该手稿中的初步数据尚未经过同行评审。
 
-他在影片中表示，自己今年所目睹的，因血栓而死亡的人，超过了他整个职业生涯，“我过去很少看到有人死于血凝块，但我今年看到的比过去 14 年加起来还多。”
+手稿说，六[分之](https://www.newshub.co.nz/home/storytag.:storyTag=newshub:story-tags___cd___coronavirus.:offset=0.html)五的人的血液仍然可以中和 Omicron 变体，这些人已经接种过疫苗并且之前感染了[COVID-19](https://www.newshub.co.nz/home/storytag.:storyTag=newshub:story-tags___cd___coronavirus.:offset=0.html)。
 
-***“为此，我写信给英格兰首席验尸官，但他根本没放在心上，我几个星期都没有收到回复，最后得到的是他秘书的一封电子邮件，回覆说，『他不感兴趣』。这就是这些本应该保护我们免受伤害的人的嘴脸。”***
+上个月在南部非洲首次发现的 Omicron 变种在全球引发了再次感染激增的警报，从日本到美国的二十多个国家都报告了相关感染病例。世界卫生组织于 11 月 26 日将其归类为“关注的变体”，但表示没有证据支持需要专门设计的新疫苗来应对具有许多突变的 Omicron 变体。
 
-另外，他还指，除了血栓，他看到越来越多接种过疫苗的人，他们的免疫系统被摧毁，甚至连普通感冒那样最基础的疾病都无力抵抗，但政府却迅速将这些归咎于新的变体“Omicron” 然后，鼓动民众接种更多疫苗。
+西格尔教授还没有立即回应路透社的置评请求。
 
-他警告，“如果你继续接种疫苗，你会死的 …… 我拜托你们不要再接种疫苗了，它正在杀死你。”
+编者按：
 
-其实，这不是奥鲁尼第一次站出来了，早前他就曾经在一档节目中揭露，自己在政府强推疫苗后发现死亡率飙升，他还指，知道有一些丧葬承办人接受贿赂而隐瞒死亡人数。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-6.jpg)
-来源｜[BitChute](https://www.bitchute.com/video/gigUyK3yLtMU/)
+目前越来越多的证据表明所谓的病毒疫苗不仅未经完整的实验测试，而且正在伤害万千盲目相信疫苗的民众。世界各地民众都正在以他们的生命和健康为代价成为所谓疫苗的被动试验品。尽管如此，全球疫苗推动者在巨大利益的推动下至今还坚持在媒体的掩护下把未接种疫苗的民众驱赶向最后的角落，这一切都是以限制他们自由和就业机会为要挟。全球高压的强制疫苗护照措施正在激起民众与生俱来的反抗精神。文贵先生的大直播不止一次的警示世界疫苗灾难和中共病毒带来的威胁，还有这场疫苗黑幕终将停止。我们期待，本世纪这场荒诞的疫苗大战会在某个瞬间发生戛然而止的转折！
+
+援引链接：[https://www.newshub.co.nz/home/world/2021/12/covid-19-omicron-variant-can-partially-evade-pfizer-vaccine-research.html](https://www.newshub.co.nz/home/world/2021/12/covid-19-omicron-variant-can-partially-evade-pfizer-vaccine-research.html)
+
+审 阅：神之一手
+审核校对：Barry Jack
+上传排版：F
 
  
 
