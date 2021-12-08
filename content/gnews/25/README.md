@@ -2,34 +2,23 @@
 ---
 
 
-## 中风救急“神药”涨至860元一颗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1732074/)
+## 澳大利亚宣布外交抵制北京冬奥会
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1732175/)
 
-作者：纽约香草山教育部 – Noemi
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-12月6日，有墙内媒体报道，同仁堂天价“神药”安宫牛黄丸近日再次提价10%，达到了860元1盒。该药每1盒中仅含1颗约重3克的中药丸。
+#### 撰稿；彩虹
 
-有同仁堂药店内部人员表示，仅在涨价的前一晚，安宫牛黄丸销售量就超出了1000多盒。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture4-4.jpg)
-据了解，目前在中共国内，安宫牛黄丸独占血管疾病中成药市场的“半壁江山”。仅2021年中，该销售额就超过30亿，增长率达30%。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-14.jpg)图片来源：FT
+北京时间12月8日，《国会山报》引述《路透社》报道，澳大利亚已经宣布，将与美国一起对明年北京冬奥会进行外交抵制。
 
-据相关人士分析，安宫牛黄丸成为天价“神药”，与墙内疫苗灾难导致的脑中风患者数量急增相关。
+周三，澳大利亚总理斯科特·莫里森（Scott Morrison）表示，中共国没有做出任何尝试来回应澳大利亚的几个问题，包括涉嫌侵犯人权。他说，外交抵制仍将允许澳大利亚运动员参加奥运会，此举与美国的做法类似。“因此，毫不奇怪的是，澳大利亚政府官员不会去中国参加这些赛事。不过，澳大利亚运动员将会去”。
 
-参考链接：[中风救急“神药”涨至860元一颗](http://finance.china.com.cn/industry/medicine/20211207/5703841.shtml%20https://med.sina.com/article_detail_100_1_108038.html)
+另据BBC报道，莫里森说：“我这样做是因为这符合澳大利亚的国家利益，这是正确的做法。”
 
-![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+**新闻来源**
 
-总编：飞虹
-编辑：木白
-校对/发稿：Hetangyuese
+[Australia joins US in diplomatic boycott of Beijing Olympics](https://thehill.com/policy/international/asia-pacific/584813-australia-joins-us-in-diplomatic-boycott-of-beijing)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
