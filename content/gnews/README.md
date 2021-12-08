@@ -15,92 +15,92 @@
 
 ---
 
-### [英国宣布外交抵制北京冬奥会](/content/gnews/1/README.md)
+### [由于中共的人权暴行，美国正式宣布抵制2022年冬奥会](/content/gnews/1/README.md)
+ ` 纽约香草山MOS01`
+
+### [英国宣布外交抵制北京冬奥会](/content/gnews/2/README.md)
  ` HimalayaRussia`
 
-### [2021年春节对中共高官子女及情人和亲属大抗议行动方案](/content/gnews/2/README.md)
+### [2021年春节对中共高官子女及情人和亲属大抗议行动方案](/content/gnews/3/README.md)
  ` NewFOC`
 
-### [文贵爆料 12.8：春节将有全球大行动，丧钟只为中共而鸣](/content/gnews/3/README.md)
+### [文贵爆料 12.8：春节将有全球大行动，丧钟只为中共而鸣](/content/gnews/4/README.md)
  ` 秘密翻译组-原创组`
 
-### [12月8日文贵大直播快讯——美俄灭共的新时代来临](/content/gnews/4/README.md)
+### [12月8日文贵大直播快讯——美俄灭共的新时代来临](/content/gnews/5/README.md)
  ` 澳喜特战旅Gnews`
 
-### [12月8日文贵大直播快讯——中共已经进入倒计时](/content/gnews/5/README.md)
+### [12月8日文贵大直播快讯——中共已经进入倒计时](/content/gnews/6/README.md)
  ` 澳喜特战旅Gnews`
 
-### [80名共和党人投票资助一个旨在监视美国人的联邦疫苗数据库](/content/gnews/6/README.md)
+### [80名共和党人投票资助一个旨在监视美国人的联邦疫苗数据库](/content/gnews/7/README.md)
  ` 纽约香草山MOS01`
 
-### [2021年12月8日文贵先生直播摘要——银河系农场](/content/gnews/7/README.md)
+### [2021年12月8日文贵先生直播摘要——银河系农场](/content/gnews/8/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [2021/12/08 墙内世界](/content/gnews/8/README.md)
+### [2021/12/08 墙内世界](/content/gnews/9/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021年12月8日 郭先生大直播文字同步精要](/content/gnews/9/README.md)
+### [2021年12月8日 郭先生大直播文字同步精要](/content/gnews/10/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [韩国单日新增9例本土奥密克戎病例](/content/gnews/10/README.md)
+### [韩国单日新增9例本土奥密克戎病例](/content/gnews/11/README.md)
  ` GTV新闻访谈`
 
-### [多国陆续声明外交抵制中共北京冬奥会](/content/gnews/11/README.md)
+### [多国陆续声明外交抵制中共北京冬奥会](/content/gnews/12/README.md)
  ` GTV新闻访谈`
 
-### [纽约市长离任前宣布疫苗强制新规](/content/gnews/12/README.md)
+### [纽约市长离任前宣布疫苗强制新规](/content/gnews/13/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [纽约医生助理说她被迫不报告CCP病毒疫苗伤害事件](/content/gnews/13/README.md)
+### [纽约医生助理说她被迫不报告CCP病毒疫苗伤害事件](/content/gnews/14/README.md)
  ` 纽约香草山MOS01`
 
-### [2021年春节对中共高官子女及情人和亲属大抗议集结号](/content/gnews/14/README.md)
+### [2021年春节对中共高官子女及情人和亲属大抗议集结号](/content/gnews/15/README.md)
  ` NewFOC`
 
-### [12月8日文贵大直播快讯——我们将对中共高层展开海外行动](/content/gnews/15/README.md)
+### [12月8日文贵大直播快讯——我们将对中共高层展开海外行动](/content/gnews/16/README.md)
  ` 澳喜特战旅Gnews`
 
-### [GTV新闻访谈简报|2021年12月8日早](/content/gnews/16/README.md)
+### [GTV新闻访谈简报|2021年12月8日早](/content/gnews/17/README.md)
  ` 纽约香草山MOS01`
 
-### [12月8日文贵大直播快讯——新歌打榜资金将捐助法制基金](/content/gnews/17/README.md)
+### [12月8日文贵大直播快讯——新歌打榜资金将捐助法制基金](/content/gnews/18/README.md)
  ` 澳喜特战旅Gnews`
 
-### [【文贵先生大直播PPT】单伟建和PAG到底是啥玩意儿](/content/gnews/18/README.md)
+### [【文贵先生大直播PPT】单伟建和PAG到底是啥玩意儿](/content/gnews/19/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [自然免疫——阿米什人怎样应对病毒大流行](/content/gnews/19/README.md)
+### [自然免疫——阿米什人怎样应对病毒大流行](/content/gnews/20/README.md)
  ` 澳喜特战旅Gnews`
 
-### [欧盟延长对侵犯人权中共官员的制裁期限](/content/gnews/20/README.md)
+### [欧盟延长对侵犯人权中共官员的制裁期限](/content/gnews/21/README.md)
  ` GTV新闻访谈`
 
-### [佛州Advent Health公司暂停为其8万多名雇员接种疫苗](/content/gnews/21/README.md)
+### [佛州Advent Health公司暂停为其8万多名雇员接种疫苗](/content/gnews/22/README.md)
  ` GTV新闻访谈`
 
-### [纽约市宣布疫苗强制令 遭商业团体猛烈抨击](/content/gnews/22/README.md)
+### [纽约市宣布疫苗强制令 遭商业团体猛烈抨击](/content/gnews/23/README.md)
  ` GTV新闻访谈`
 
-### [【Michael.Tonny专栏】越南数据证明 中共病毒疫苗才是真正的杀手(下）](/content/gnews/23/README.md)
+### [【Michael.Tonny专栏】越南数据证明 中共病毒疫苗才是真正的杀手(下）](/content/gnews/24/README.md)
  ` 温哥华扬帆农场`
 
-### [多位议员抨击纽约市长的疫苗强制令](/content/gnews/24/README.md)
+### [多位议员抨击纽约市长的疫苗强制令](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [震惊！中共特洛伊木马—集装箱导弹](/content/gnews/25/README.md)
+### [震惊！中共特洛伊木马—集装箱导弹](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [北京丰台火车站突发大火](/content/gnews/26/README.md)
+### [北京丰台火车站突发大火](/content/gnews/27/README.md)
  ` 纽约香草山MOS02`
 
-### [美法官阻止全美联邦承包商疫苗强制令](/content/gnews/27/README.md)
+### [美法官阻止全美联邦承包商疫苗强制令](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [【Michael.Tonny专栏】越南数据证明 中共病毒疫苗才是真正的杀手（上）](/content/gnews/28/README.md)
+### [【Michael.Tonny专栏】越南数据证明 中共病毒疫苗才是真正的杀手（上）](/content/gnews/29/README.md)
  ` 温哥华扬帆农场`
-
-### [澳大利亚站队美国外交抵制北京冬奥会](/content/gnews/29/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [12/08/21 香港快讯 罗冠聪将出席「全球民主峰会」　邓炳强斥「懦夫」](/content/gnews/30/README.md)
  ` 英喜-粵語組`

@@ -2,47 +2,36 @@
 ---
 
 
-## 【Michael.Tonny专栏】越南数据证明 中共病毒疫苗才是真正的杀手（上）
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1733382/)
+## 美法官阻止全美联邦承包商疫苗强制令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1733415/)
 
-作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
-越南（Vietnam），这个拥有9,817万人口，位于东南亚中南半岛东端的共惨党一党专制国家，正在遭受疫苗灾难。
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月7日，据美国乔治亚州南区法院的斯坦·贝克法官发布的初步禁令表明，法院将禁止全美范围内执行对联邦承包商雇员的新冠疫苗强制接种令。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/8-12.jpg)
+此前，联邦强制令要求，所有联邦承包商的雇员必须在2022年1月18日前完成新冠疫苗的全程接种。 对此，南卡罗莱纳州总检察长办公室称，包括南卡罗莱纳、佐治亚在内的七个州的总检察长和州长，以及其他州的相关实体正在对拜登政府提起诉讼。
 
-在2021年3月7日开始注射疫苗前，越南仅2,512人被确诊感染中共病毒，死亡总数为35人。自3月7日开始，越南在全国推行向18岁及以上公民注射疫苗，感染中共病毒确诊人数、死亡数立即开始增长。今年7月开始，越南加大疫苗接种力度，感染中共病毒确诊数、死亡数迅速增长。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Covid-19-in-Vietnam_-New-wave-tally-tops-1340000-3.jpg)
-不仅如此，自11月15日开始，越南开始向12-18岁的青少年注射疫苗，目前已经有超过120例出现恶心、高烧或呼吸困难等症状后被送往医院，有多人死亡。
+另外，南卡罗莱纳州的州长亨利·麦克马斯特曾在白宫宣布强制新冠疫苗政策后表示，要与拜登政府就疫苗强制令战斗到底。
 
-越南中共病毒疫苗注射百分比
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Vietnam-People-Vaccinated-per-Hundred.jpg)
-越南感染中共病毒确诊数
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Vietnam-Total-Cases.jpg)
-越南感染中共病毒死亡数
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Vietnam-Total-Deathes.jpg)
-从以上三张图可以看到，越南感染中共病毒诊数、死亡数都与注射疫苗正相关，三个方面的线型，时间点，增长趋势基本一致。注射疫苗人口比例越高，感染中共病毒诊数、死亡数增长越快。
+截止目前，拜登政府颁布的针对不同行业和部门的三大疫苗强制令已经全部被美国法院阻止，其中包括第五巡回法院叫停OSHA针对具有100名以上员工的私营公司的新冠疫苗强制令，路易斯安那州联邦法院叫停CMS针对医护工作者的新冠疫苗强制令，还有此次南卡罗来纳州联邦法官叫停对联邦承包商执行的新冠疫苗强制令。
 
-[精彩在下篇](https://gnews.org/zh-hans/1733468/)
+参考链接：
+1) .[Federal judge blocks vaccine requirement for federal contractors](https://www.wbtw.com/news/national/federal-judge-blocks-vaccine-requirement-for-federal-contractors/?utm_campaign=socialflow&amp;utm_source=t.co&amp;utm_medium=referral)
+2) . [BREAKING: A federal judge has again sided with Attorney General Alan Wilson and today blocked the vaccine requirement for federal contractors. This is the third time courts have agreed with Attorney General Wilson and blocked vaccine mandates imposed by the Biden administration.](//twitter.com/scattygenoffice/status/1468268319371411460?s=21)
 
-参考资料：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-[120 children hospitalized, province suspends Pfizer vaccine batch](https://e.vnexpress.net/news/news/120-children-hospitalized-province-suspends-pfizer-vaccine-batch-4397748.html)
+总编：Irene木木
+编辑：Lakeman文仁
+校正/发稿：Fei797
 
-[3rd child in Vietnam dies after Covid vaccination](https://e.vnexpress.net/news/news/3rd-child-in-vietnam-dies-after-covid-vaccination-4396697.html)
-
-[Human trials for Vietnamese Covid vaccine suspended](https://e.vnexpress.net/news/news/human-trials-for-vietnamese-covid-vaccine-suspended-4396661.html)
-
-[Bilateral sources account for lion’s share of Vietnam’s Covid vaccines: WHO](https://e.vnexpress.net/news/news/bilateral-sources-account-for-lion-s-share-of-vietnam-s-covid-vaccines-who-4397901.html)
-
-[Report Shows Nearly 300 Athletes Worldwide Collapsed or Suffered Cardiac Arrests after Taking COVID Vaccine This Year – Many Died](https://www.thegatewaypundit.com/2021/12/report-shows-nearly-300-athletes-worldwide-collapsed-suffered-cardiac-arrests-taking-covid-vaccine-year-died/)
-
-[covid-19-data](https://github.com/owid/covid-19-data/tree/master/public/data)
-
-[越南](https://zh.wikipedia.org/wiki/%E8%B6%8A%E5%8D%97)
-
-[At Least 3 Children Die and 120 Hospitalized in Vietnam After Receiving Pfizer COVID-19 Vaccine – 4 Adults Die from Vero Cell Covid Vaccine](https://www.thegatewaypundit.com/2021/12/least-3-children-die-120-hospitalized-vietnam-receiving-pfizer-covid-19-vaccine-4-adults-die-vero-cell-covid-vaccine/)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/) 上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

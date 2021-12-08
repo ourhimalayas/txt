@@ -2,51 +2,32 @@
 ---
 
 
-## 2021年春节对中共高官子女及情人和亲属大抗议行动方案
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1733756/)
+## 英国宣布外交抵制北京冬奥会
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1733760/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/index50_副本.jpg)
-据[2021年12月08日 文贵大直播：拜登外交抵制冬奥会；盘古物业接管惊世界；中共高级特务单伟建；对准高层海外大行动](https://gettr.com/streaming/pj3xefa5bc)时间点1：42：36——
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-**郭文贵先生：**我们要怎么行动兄弟姐妹们？我们从开始，我们要用金属、要用耐消耗的材料，别用那真正的那冥纸、中国的那花圈，用坚硬的铁、铝、化纤料做成真正的花圈，还有送葬车，然后不要拿嗓子喊，弄大喇叭——法律规定的。
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/12/B-3.jpg)wordpress.ghanatalksradio.com
+英国首相称，英国将进行“事实上地”抵制冬奥会。
 
-大喇叭、花圈、棺材，所有的七任常委的活着的爹、死了的妈什么的、活着的妈的名字、照片全上去，包括习近平和彭丽媛的本人的照片，他活着的都给他挂上去，包括他们家人，咱们就开始连续三年，连续三年，咱绝不是24小时，连续三年，每天你可以随便多少小时，你可以值6小时、8小时。我们细节马上会出台，大年今年三十开始。
+路透社伦敦12月8日电 英国首相鲍里斯·约翰逊（Boris Johnson）周三（12月8日）对议会表示，由于没有部长或官员出席，英国将在外交上抵制在中共国举办的冬奥会。
 
-你像美国华盛顿、纽约、旧金山、洛杉矶是吧？像巴黎、罗马、米兰、德国慕尼黑、法兰克福、东京、大坂，是不是？新加坡、香港现在是你是做不到的，台湾是一定能做得到的，就是所有共产党出没的机场、大使馆、领事馆——它标志性的地方，让他24小时能听到他们的父母被送葬的感觉——共产党被送葬。
+白宫12月6日宣布，美国政府官员将抵制即将在北京举行的冬奥会，理由是中共的人权“暴行”，尽管此举允许美国运动员前往参加比赛。
 
-我们一定要大家联合起来，把这个文宣要做好，用固定的坚定的材料，需要三年的时间。标准的大喇叭、标准的车，然后要写下来共产党必垂必朽，共产党，让你习近平、你父亲习仲勋和齐心，你是中国人民的杀手，然后你习近平、李克强、王岐山、孟建柱，你是全人类的冠状病毒的杀手、疫苗的杀手。共产党正在种族大屠杀，杀害全世界人民——利用病毒和疫苗。
+在两位不同的国会议员的压力下，约翰逊表示，如果英国也会这样做，那么“北京冬奥会将受到事实上的外交抵制，预计不会有部长出席，也不会有官员参加”。
 
-然后这些标准的语言，大家用标准的服装，这是一场三年的工作——1000天，我相信一定会，百分之百我有把握2025年前干掉共产党，我们在干掉之前先把他家人送进了坟墓，我们没有任何恐惧的理由，恐惧就是今天你看到我爹92岁，我爹还能活多少年？还能再活十年、二十年？如果他把我爹给炖了、给宰了、杀了，我爹就应该活到现在，我不会放弃。
+他补充道：“我认为体育抵制是不明智的，但这仍然是政府的政策。”
 
-我知道放弃，对爆料革命，它下一个就是动所有的家人，一定动海东他家人，然后一定会动你们的家人，因为他觉得你软了、你服了、你怕了、你疼了。
+（阅读权限原因，不能打开全文，也懒得看全文了，这些信息已经足够）
 
-从前天发生，昨天你嫂子跟我去出去转转，你嫂子说，文贵你想哭你就哭一场，我陪着你哭。我在那转着，我说我不会哭的，共产党现在就希望我在直播上掉眼泪、哭一场，让我痛、让我哭、让我害怕。
+看得出，这厮还是不想抵制，但是在大势所趋之下，不得已也得作出这样的决定，可见中共的渗透力量。
 
-我绝对不痛，我绝对不哭，我要把这些东西全留给共产党，我要让他看看你爸、你妈每天在全世界被人家用屎扣他的相，你爸、你妈的名字和照片出现全世界，每天给你送葬。我知道习近平对他妈多孝敬，他能给他爸建3000亩的陵园，他对齐心像佛一样供着，那你的父母像佛一样，难道郭文贵的父母就不值一分钱了吗？你还能干什么？你无非是把我爹给掐死、给毙了，我爹绝对是郭文贵的爹。
+此前澳大利亚也作出了抵制的决定，相信会有更多的国家宣布。中共，你完了！
 
-（以下暂略）
+原文链接：
 
-撰稿：喜马拉雅的肉夹馍；
-
-审核：喜马拉雅的馍夹肉；
-
-校对：Maarago
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+[https://www.reuters.com/lifestyle/sports/no-plans-uk-ministers-attend-china-winter-olympics-pm-johnson-2021-12-08/](https://www.reuters.com/lifestyle/sports/no-plans-uk-ministers-attend-china-winter-olympics-pm-johnson-2021-12-08/)
 
  
 

@@ -2,32 +2,37 @@
 ---
 
 
-## 英国宣布外交抵制北京冬奥会
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1733760/)
+## 由于中共的人权暴行，美国正式宣布抵制2022年冬奥会
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1733761/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+作者：香草山金融部 – 闲聊钱币
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
+12月7日（路透社）–白宫周一表示，美国政府官员将抵制2022年北京冬奥会基于中国的人权 “暴行”。这个声明距离习拜谈仅仅三周时间。
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/12/B-3.jpg)wordpress.ghanatalksradio.com
-英国首相称，英国将进行“事实上地”抵制冬奥会。
+在更早前的两次习拜通话和上次的视频会议后，中共方面都自嗨的认为是美国在求着中共沟通。墙内的媒体和各种专家也大唱赞歌。解读习拜谈为好像没了中共，美国甚至全世界都是活不下去的。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture1-14.jpg)
+怎料计划没有变化快。三周之后，美国正式宣布抵制北京冬奥会，同时美国也与它的盟友们分享了这个决定。加拿大，澳大利亚，日本，新西兰等国都发表了不同程度的声援，最终决定还未公布。
 
-路透社伦敦12月8日电 英国首相鲍里斯·约翰逊（Boris Johnson）周三（12月8日）对议会表示，由于没有部长或官员出席，英国将在外交上抵制在中共国举办的冬奥会。
+中共对美国的抵制自然震怒。驻华盛顿大使馆称这种抵制是 “政治操纵”，而且自嘲说此举不会对奥运会产生任何影响，因为中共并没有向美国发出邀请。
 
-白宫12月6日宣布，美国政府官员将抵制即将在北京举行的冬奥会，理由是中共的人权“暴行”，尽管此举允许美国运动员前往参加比赛。
+除非本国政府明令禁止运动员参加运动赛事，就像前苏联拒绝参加1948年在伦敦的奥运会，运动员都可以参赛不管该国的政要们是否出席。
 
-在两位不同的国会议员的压力下，约翰逊表示，如果英国也会这样做，那么“北京冬奥会将受到事实上的外交抵制，预计不会有部长出席，也不会有官员参加”。
+但是在中共这个流氓政府统治下，任何荒唐事都可能发生。希望各国参赛运动员们都不会再次沦落为加拿大两个麦克的命运，成为恶党要挟世界的筹码。
 
-他补充道：“我认为体育抵制是不明智的，但这仍然是政府的政策。”
+参考来源：[由于中共的人权暴行，美国正式宣布抵制2022年冬奥会](https://www.reuters.com/lifestyle/sports/us-officials-boycott-beijing-olympics-cnn-2021-12-06/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=7-12-21&amp;utm_campaign=7-12-21)
 
-（阅读权限原因，不能打开全文，也懒得看全文了，这些信息已经足够）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88-1.png)
 
-看得出，这厮还是不想抵制，但是在大势所趋之下，不得已也得作出这样的决定，可见中共的渗透力量。
+编辑/校对/发稿：Hetangyuese
 
-此前澳大利亚也作出了抵制的决定，相信会有更多的国家宣布。中共，你完了！
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-原文链接：
-
-[https://www.reuters.com/lifestyle/sports/no-plans-uk-ministers-attend-china-winter-olympics-pm-johnson-2021-12-08/](https://www.reuters.com/lifestyle/sports/no-plans-uk-ministers-attend-china-winter-olympics-pm-johnson-2021-12-08/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
  
 

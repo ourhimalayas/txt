@@ -2,10 +2,10 @@
 ---
 
 
-## 纽约市宣布疫苗强制令 遭商业团体猛烈抨击
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1733473/)
+## 佛州Advent Health公司暂停为其8万多名雇员接种疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1733475/)
 
-作者：加拿大扬帆农场 – Spirit
+作者：纽约香草山医疗部 – 云豹
 
 
 
@@ -13,19 +13,18 @@
 
 
 
-12月6 日，纽约市市长白思豪宣布，对纽约市所有私营部门雇主全面实施新冠病毒疫苗强制令，没有测试选项，于12月27日开始。这项任务将涵盖大约18.4万家企业。同时，白思豪说，5到11岁的儿童在室内用餐、健身和娱乐时，也必须要有疫苗证明。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1.1-4.jpg)
-当天，纽约市合伙人组织的负责人凯瑟琳·怀尔德表示，他们对纽约市长措手不及的疫苗强制令感到震惊。拜登总统对雇员超过100人的雇主的疫苗强制目前因诉讼搁浅，很难想象市长能做到总统被挑战的事情。联邦、州和市等各级的政策不一致会使情况更加糟糕。
+12月6日，总部位于佛罗里达州的大型医疗保健公司AdventHealth，中止了对其83000名雇员的疫苗接种任务。
 
-纽约市合伙人组织是一个非常有影响力的商业团体，摩根大通公司和高盛集团都是其成员。
+此前佛州州长曾提起多项法律行动来抵制拜登的疫苗强制接种令，并最终签署了一项法案，以防止私人雇主执行疫苗强制令。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1.2-4.jpg)
+AdventHealth的首席医疗主任说，我们将暂停新冠病毒的所有疫苗接种政策和要求，所有受雇、执行任务或为AdventHealth提供服务的人员均无需接种新冠病毒疫苗，也无需获得经批准的豁免。 对于AdventHealth的决定，佛州州长办公室表示欢迎，并称：佛罗里达州将继续捍卫自由，并挑战非法的联邦过度行为。
 
 参考链接：
-1. [COVID vaccine mandate announced for NYC private-sector workers, new requirements for kids](https://abc7ny.com/new-york-city-vaccine-mandate-private-sector-workers-children-nyc-covid/11305096/)
-2. [NYC Business Group Blasts Private-Sector Vaccine Mandate](https://www.bnnbloomberg.ca/nyc-business-group-blasts-private-sector-vaccine-mandate-1.1691865)
+[Florida-based healthcare company suspends vaccine mandate for its 83,000 employees](https://thepostmillennial.com/florida-healthcare-company-suspends-vaccine-mandate)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-总编：Irene木木
+总编：木白
 编辑：飞虹
 校对/发稿：为真不破20
 
