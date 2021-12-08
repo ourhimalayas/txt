@@ -2,50 +2,35 @@
 ---
 
 
-## 纽约医生助理说她被迫不报告CCP病毒疫苗伤害事件
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1733596/)
+## 多国陆续声明外交抵制中共北京冬奥会
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1733605/)
 
-作者：纽约香草山翻译部 – defiance
+作者：纽约香草山健身部—Ivy001 /日本方舟农场 Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间12月7日，继美国白宫宣布外交抵制中共北京冬奥会后，新西兰副总理罗伯逊在惠灵顿明确表示，新西兰将不会派出外交代表参加2022年2月中共在北京举行的冬奥会 。 与此同时，澳大利亚总理莫里森也于当天声明，澳洲不会派遣官员出席中共北京冬奥会。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-09-上午12.56.50.png)
+相关报道显示， 新西兰和澳大利亚各自发表了对中共政府在侵犯人权问题方面的担忧。另外，新西兰副总理也将新冠疫情的问题作为主要考量之一。
 
+早些时候，德国新任外长也肯定了德国外交抵制中共冬奥会的可能性。德国外长提到，鉴于中共在新疆地区实行的侵害人权的强制劳动行为，德国将采取对话和强硬态度面对与中共的外交。
 
+参考链接：
+1）[New Zealand won’t send diplomats to Beijing Olympics, cites COVID-19](https://www.reuters.com/lifestyle/sports/new-zealand-wont-send-diplomats-beijing-olympics-cites-covid-19-2021-12-07/)
+2）[澳洲宣布外交抵制北京冬奥会](https://www.zaobao.com.sg/realtime/world/story20211208-1221034)
+3）[德国新外长不排除抵制北京冬奥](https://www.zaobao.com.sg/realtime/china/story20211202-1219200)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新.png)
-
-
-
-
-据美国媒体12月6日报道，纽约联合纪念医疗中心（UMMC）的一名前雇员站出来声称，她在急诊室被教唆说关于CCP病毒疫苗伤害的假话。
-
-助理医生黛博拉·康拉德在她工作的急诊室，观察到大量福奇推广的流感疫苗的不良反应后，上级领导告诉她不要向政府官方提供疫苗伤害数据库VAERS（疫苗不良事件报告系统）报告。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture1-12.jpg)
-康拉德之前在UMMC工作了17年，从未经历过这样的事情，至少没有她在节目里说的这么离谱的事。在康拉德亲眼所见，不被允许报告的疫苗副作用中，有心脏病发作、心肌病、心律失常、血栓和肺栓塞。
-
-今年1、2月份，参与“曲速行动”的第一波美国人注射疫苗后，大量因疫苗受伤的病人就开始出现了。此问题出现的早期，康拉德说她看到有几个病人有这些症状。她立即将其报告给VAERS。她开始告知她的行政领导发生了什么事，但一位女上司却告诉她并不觉得有什么好担心的。最后，急诊室开始注意到发生的事情，康拉德的同事开始让她报告相关病人的信息。
-
-当康拉德第二次找到UMMC的管理层时，他们对她更加严厉，指责她过度报告，疫苗副作用的事情。
-
-参考来源：
-1. [纽约医生助理说她被迫不报告CCP病毒疫苗伤害事件](https://vaccines.news/2021-12-06-cover-up-assistant-forced-stop-reporting-covid-vaccine-injuries.html)
-2. [纽约医生助理说她被迫不报告CCP病毒疫苗伤害事件](https://www.lifesitenews.com/news/physician-assistant-says-she-was-told-to-stop-reporting-covid-vaccine-injuries/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88-1.png)
-
-编辑/校对/发稿：Hetangyuese
+总编：Jack Li文阳/Irene木木
+编辑：Jack Li文阳/Irene木木
+校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
-
-
-
-
-
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

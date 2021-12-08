@@ -2,65 +2,38 @@
 ---
 
 
-## 埃隆马斯克猛烈抨击拜登的“重建”提议，称这将使美国赤字“疯狂”增加
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1733828/)
+## 与比特币相关的 After pay 或被禁用
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1733856/)
 
-作者：Ian Miles Cheong
-翻译：Himasally
+编译：西班牙巴塞罗那喜悦农场-wenwu
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-102.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-1-4.jpg)图片来源：9news.com.au (Getty)
 
-周一，特斯拉和 SpaceX 首席执行官埃隆·马斯克猛烈抨击了乔·拜登总统的“重建”的提议。据报道，马斯克在《华尔街日报》的年度 CEO 委员会发表讲话时告诉与会者，参议院不应通过数万亿美元的大规模支出计划，因为该法案将使该国的赤字增加“疯狂”的数额。
+澳大利亚政府正在采取行动，通过对加密货币实施新的监管，将比特币“从（监管）阴影中拉出来”，同时忙于计划推出（政府）自己的数字货币。
 
-据马斯克评论的独立报报道，这位亿万富翁企业家表示，他并没有真正关注正在进行的国会山谈判，但告诉其他首席执行官，他反对支出计划。
+财政部长 Josh Frydenberg 证实，联邦和储备银行（Commonwealth and Reserve Bank）目前正在研究在澳大利亚建立中央加密货币的可行性；弗莱登伯格先生（Mr Frydenberg）在《今日》节目中说，是时候了，现在的加密货币正需要在一个“深思熟虑的监管框架”下运作。
 
-该独立报告：
+他说：“我们想把（加密货币）从阴影中拉出来（没有人为比特币负责做担保）。”
 
-“我会说这个法案可以，不要通过它。这是我的建议，”他周一在《华尔街日报》年度 CEO 委员会上对观众说，特斯拉团队甚至没有真正关注华盛顿的谈判。
+弗莱登伯格先生说，澳大利亚政府希望加密货币交易所和企业申请金融许可证（financial licences），以“让消费者对他们的交易方有更多一点确定性和信心（需要有最严格的KYC）。”
 
-“如果这项法案发生或不发生，我们根本不会考虑它，”他说。“老实说，如果法案不通过可能会更好。”
+自过去十年数字货币兴起以来，超过80万澳大利亚人至少拥有一次（购买）加密货币交易。
 
-这位首席执行官表示，他对 2 万亿美元的支出计划将如何 “疯狂”的增加联邦预算赤字表示质疑，并将让政府激励某些业务，包括为电动汽车购买者提供高达 12,500 美元的激励措施。
+由于比特币的匿名性（公块链），犯罪企业已经被吸引到比特币；弗莱登伯格先生说，加密货币是一个”快速发展的领域”，政府需要走在前面。
 
-马斯克的评论是在乔·拜登总统遭到多次公开攻击之后发表的。10 月，马斯克表示拜登拒绝承认 SpaceX 首次成功搭载美国人的民用航行。正如反叛新闻报道的那样，看到了一名平民船员绕地球运行，目标是为圣裘德研究医院获得 2 亿美元的捐款。
+“我们的金融部门正在进行一场数字革命”。
 
-当他在推特上的一位追随者问道：“美国总统甚至拒绝承认帮助为圣裘德筹集数亿美元的 4 位新的美国宇航员。为什么会这样，你的理论是什么？”
+他还警告说，Afterpay 等先买后付的公司在未来将面临更多的审查和监管措施。
 
-“他还在睡觉，”马斯克回答道。
+他说，更好的监管将为费用带来”适当的透明度”，并确保为进入市场的新进入者提供公平的竞争环境。
 
-拜登还将马斯克的汽车公司排除在电动汽车峰会之外，其中包括他的一些竞争对手。白宫新闻秘书珍·帕萨基暗示这是因为特斯拉没有加入工会。
+**新闻来源：**[9news.com.au] [Australian government planning digital currency launch,as regulation looms for Bitcoin](https://www.9news.com.au/national/bitcoin-australian-government-planning-digital-currency-launch-as-regulation-looms-for-cryptocurrency/5e6fbf01-9e28-4ea7-b4e9-aeac85f3e0da) | 发布时间：2021年12月08日
 
-在白宫新闻发布会上被问及这个主题时，珍·帕萨基说与会者包括“美国汽车工人联合会的三大雇主”，她补充说，记者应该“得出自己的结论。
+* * *
 
-尽管马斯克建议反对耗资近 2 万亿美元的“重建更好计划”，但华尔街高管预计该计划将在数月内成为法律。
+*发稿：信心的选择*
 
-CNBC 周二报道：
-
-华尔街经济学家认为，乔拜登总统近 2 万亿美元的“重建”计划的某些版本将成为法律。
-
-他们还认为，继总统今年秋天早些时候签署的一项价值 1 万亿美元的公共工程法之后，这项措施将成为基础设施行业的又一重大举措，其中包括数千亿美元的资金以应对气候变化。
-
-高盛、永恒核心ISI、摩根士丹利和摩根大通的经济学家最近几周都写道，他们认为参议院通过拜登的“重建”立法只是时间问题。
-
-他们说，这可能意味着该国一些建筑和材料公司的商业繁荣。
-
-摩根大通首席美国经济学家迈克·费罗利 (Mike Feroli) 对 CNBC 表示：“华盛顿没有任何事情是 100% 确定的，但我认为可能性非常高，我认为我们获得某种 BBB 的可能性为 80-90%。”
-
-来源：[https://www.rebelnews.com/elon\_musk\_slams\_bidens\_build\_back\_better\_proposal\_says\_it\_would\_raise\_us\_deficit\_by\_an\_insane\_amount](https://www.rebelnews.com/elon_musk_slams_bidens_build_back_better_proposal_says_it_would_raise_us_deficit_by_an_insane_amount)
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)](https://www.gettr.com/user/7UPgogo)
-
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-1.jpeg)
 
  
 
