@@ -2,38 +2,39 @@
 ---
 
 
-## DC每日热点1208
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1733294/)
+## 北京丰台火车站突发大火
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1733429/)
 
-编辑：楚门门
-![](https://assets.gnews.org/wp-content/uploads/2021/12/F1FC63D0-06C4-430E-9900-862CBDDE839C-scaled.jpeg)
-道琼斯指数 35719.43 ▲1.40%
-纳斯达克指数 15686.92 ▲3.03%
-WTI纽约原油CFD 71.720 ▼0.46%
-布伦特原油CFD 75.271 ▼0.22%
-标普50指数 3,181.77 ▼33.80%
-美元兑人民币 1USD=6.347 RMB
-美元兑港币 1USD=7.795 HKD
-国际黄金 1782.59美元/盎司
-全球CCP病毒感染人数 267,609,982例
+撰稿：东京樱花团 – 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间12月6日晚，北京新建的丰台火车站突发大火。
 
-1、佩洛西宣布众议院将在同一天通过三项中共国人权问题法案
-2、美国众议院通过新财年国防授权法协调版本 “为战胜中共国做好准备”
-3、澳大利亚呼应美国外交抵制北京冬奥会
-4、美军领导人讨论中共的军事挑战以及应对的方法
-5、苹果与中共千亿秘密协议曝光，库克为取消中共政府对该公司的一系列监管行动，于2016年数度亲自到访中共国，并与中共达成2750亿美元秘密协议
-6、美国家安全顾问沙利文：美国将从威慑与外交两方面采取一切措施确保中共武统台湾永远不会发生
-7、拜登警告普京：俄罗斯如果入侵乌克兰将面临强有力制裁
-8、中共国央行下调银行存款准备金率 释放1.2万亿元人民币刺激经济
-9、美台部长通话建立科技投资新架构，加强半导体供应链
-10、因挺台湾遭中共国霸凌，立陶宛寻求欧盟团结应对经济胁迫
-11、WTA宣布2022上半年赛事 深圳赛事已不在其中
-12、英国首相约翰逊决定外交抵制北京冬奥会
-13、印度军方直升机坠毁：多位高官身亡
-14、习近平快速祝贺肖尔茨当选德国总理 促更提升两国关系
-15、法国共和党候选人佩克雷斯民调窜升 第二轮击败马克龙
-16、渥太华面临拜登政府施压和民意压力 加拿大驻华大使辞职
+视频中，可以听到拍摄的女士称，已经烧了5栋了，其他的几栋也即将被点燃。她说大火已经燃烧了半个多小时，虽然现场有很多救火车，但是由于胡同太窄救火车却进不来。最后她表示，火越烧越大，这栋楼已经被烧成了空架子。
 
+
+
+目前，墙内各大媒体对这场大火全面噤声。中共当局历来面对灾难或重大事故，一贯的做法就是先掩盖真相，接着撒谎愚弄百姓，最后宣传所谓的正能量，把丧事当作喜事来办。
+
+参考链接：
+[https://gettr.com/post/piys87b24e](https://gettr.com/post/piys87b24e)
+[http://www.ncfcsa.cn/1/16398.aspx](http://www.ncfcsa.cn/1/16398.aspx)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+
+**校对/发稿：童谣**
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

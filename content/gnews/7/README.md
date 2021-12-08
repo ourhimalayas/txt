@@ -2,33 +2,23 @@
 ---
 
 
-## 多位议员抨击纽约市长的疫苗强制令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1733461/)
+## 12月8日文贵大直播快讯——新歌打榜资金将捐助法制基金
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1733561/)
 
-作者：加拿大扬帆农场 – Spirit
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月6日，据美国媒体报道，前美国海军陆战队队员、众议员迈克-格林姆在接受采访时表示，纽约市市长比尔-德布拉西奥对私营商家雇主的新冠疫苗授权是有害的，此举一经实施，将严重损害并削弱小企业的经营模式。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/9-8.jpg)
-此前，德布拉西奥要求，纽约所有的私营商家雇主需在三个星期内确保其员工接种新冠疫苗，甚至他还试图将此类疫苗授权推广至全美各地。
+撰稿：Gradient Boost
 
-对此，纽约州的一些民选官员抨击了德布拉西奥的新冠疫苗强制令。他们强调，德布拉西奥这一举动粉碎了纽约小企业的经营，也破坏了纽约的经济和民众的生活质量。纽约州的众议员提到，大量的民众因为新冠疫苗强制令而逃离了纽约，搬去自由的佛罗里达。
+视频：永不言败
 
-另有议员补充，德布拉西奥这种实为扼杀就业并打压小企业的政策是不合法的。该议员敦促即将上任的新市长可以收回这些武断的规定。
+美东时间当地12月8日，文贵先生在大直播当中谈到新歌Hcoin to the moon的ITunes打榜记录时说，这一次的打榜再次证明了爆料革命在全世界的影响力，同时默默无闻的战友占了99%——大家都能够感受到无处不在的战友力量。
 
-参考链接：[Grimm Slams de Blasio Vaccine Mandate](https://www.newsmax.com/newsmax-tv/grimm-deblasio-mandate-vaccines/2021/12/06/id/1047588/)
+在6-8日的ITunes摇滚音乐榜的排名中，新曲Hcoin to the moon在新西兰、澳大利亚、香港、台湾等十个国家和地区获得第一位的成绩，在加拿大获得第二，美国和波兰获得第三。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+不过文贵先生也提到，这一次的打榜业绩相较上一回还有一定距离。过去如果打榜一次，现在应该扩大到五次或者十次——战友们千万别停，继续努力！
 
-总编/编辑：Irene木木
-校正/发稿：Fei797
+打榜歌曲的收益最后将捐给法制基金，文贵先生称自己是不会要任何打榜金额的。因此，只要打榜新歌，就是在支持法制基金。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+这个榜不仅是音乐，同时也是政治——没有一个音乐有这样的力量。这样的音乐一定是有阳光力量的信仰作为支撑，单纯你爱我我爱你的情歌不可能有这样的力量，也不可能在短时间内立刻冲上排行榜第一。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

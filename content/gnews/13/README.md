@@ -2,108 +2,58 @@
 ---
 
 
-## 12/08/21 香港快讯 罗冠聪将出席「全球民主峰会」　邓炳强斥「懦夫」
-` 英喜-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1733378/)
+## 【Michael.Tonny专栏】越南数据证明 中共病毒疫苗才是真正的杀手(下）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1733468/)
 
-**搜集****/****整理：卡西欧**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1208fenmian.jpg)
-封面素材：立场新闻
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-10.11.34-AM.png)
-**1.****【入境处高官收礼】郭俊峰为接任处长热门人选****   ****曾与汪奇驻京****   ****黄贤贵为恒大香港主管**
+作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+[接上篇](https://gnews.org/zh-hans/1733382/)
 
-[据【立场新闻】12月08日讯，《立场》本周二（7 ）报道，今年中秋节前夕，中国恒大高层涉将酒店礼物篮送到入境处副处长郭俊峰及首席入境事务主任汪奇的寓所，两人承认收礼，指礼篮由恒大执董、香港公司总经理黄贤贵赠送，两人均指与黄贤贵为好友。郭俊峰今年 9 月刚升任入境处副处长，月薪约 21 万元，有前入境处官员称他是未来处长人选。郭亦曾与汪奇一同于港府驻京办工作。至于黄贤贵，他早于 2004 年加入恒大，据恒大简介，他有逾 23 年的营销及管理经验，负责集团国际资本运营与投资管理工作。](https://www.thestandnews.com/politics/入境處高官收禮郭俊峯為未來處長熱門人選-曾與汪奇駐京-黃賢貴為恒大香港主管)
+从去年1月23日越南出现两例中共病毒确诊案例到今年3月7日前，越南人感染中共病毒机率为0.00256%，死亡机率为1亿分之35。今年3月7日至6月30日期间，越南全国疫苗接种率为3.65%，新增感染14，540人，新增死亡46人。而到12月6日，越南全国疫苗接种率为75.04%，7月1日至12月6日间，越南全国新增感染为1,306,631人，新增死亡26,402人。
 
-[根据资料显示，郭俊峰曾于 2010 年参加「井冈山国情研习班」，及于 2012 年率团到北京，参加中国人民公安大学的「香港入境事务处第十八期赴内地研修班」。他于2016年，亦在北京参加「国家行政学院第二期香港纪律部队高级管理人员国策研修班」。](https://www.thestandnews.com/politics/入境處高官收禮郭俊峯為未來處長熱門人選-曾與汪奇駐京-黃賢貴為恒大香港主管)
+可见，接种疫苗，感染和死亡的风险都呈几何级数增长。
 
-[至于首席入境事务主任汪奇，公开资料显示他约于 2013 年 9 月至 2015年 11 月期间，在驻京办担任总入境事务主任。](https://www.thestandnews.com/politics/入境處高官收禮郭俊峯為未來處長熱門人選-曾與汪奇駐京-黃賢貴為恒大香港主管)
+在开始疫苗接种前，越南全国单日新增确诊数一直在个位数徘徊，甚至已经连续几个月没有人感染。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/new_cases-between-2020-1-23-and-2021-3-6-1.jpg)
+自3月7日接种疫苗后，单日确诊数迅速增加。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/new_cases-between-2021-3-7-and-2021-6-30.jpg)
+自7月1日起，随着疫苗接种比例增加，单日确诊数直线增加，最高时单日接近4万人。目前在14,000左右。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/new_cases-between-2021-7-1-and-2021-12-7.jpg)
+在开始疫苗接种前，几天甚至十几天才有人死亡。2020年9月4日到疫苗接种前，根本没有人死亡。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/new-deathes-between-2020-1-23-and-2021-3-6.jpg)
+而3月7日至6月30日，全国疫苗接种率很低的阶段，单日新增死亡也非常少。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/new-deathes-between-2021-3-7-and-2021-6-30.jpg)
+自7月1日后，越南死亡人数迅速增加，单日新增死亡人数已经突破200。比推行疫苗前14个月总和还要多6倍。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/new-deathes-between-2021-7-1-and-2021-12-7.jpg)
+通过上述分析，中共病毒疫苗在越南的危害，远远比病毒本身要大得多。然而，越南共惨党从上月15日开始，将疫苗推广范围扩大到12岁及以上儿童。
 
-[网上图片显示，郭、汪两人曾一同在 2015 年 11月，接待到访驻京办的中国人民公安大学学生。汪奇 2016 年 11 月曾率团到欧洲，向当地二代港人推广「输入中共国籍香港永久性居民第二代计划」及「优秀人才入境计划」。](https://www.thestandnews.com/politics/入境處高官收禮郭俊峯為未來處長熱門人選-曾與汪奇駐京-黃賢貴為恒大香港主管)
+11月28日，北江省北部（the northern Bac Giang Province）的一名16岁男孩和河内（Hanoi）一名九年级女孩在接种辉瑞疫苗后死亡。11月30日，平福省南部（the southern Binh Phuoc Province）的一名12岁男孩在接种辉瑞疫苗后死亡。自 11 月 30 日以来，越南中部省份一直在为 15-17 岁的儿童接种辉瑞的中共病毒疫苗。截止到12月2日，有超过120 名儿童在出现恶心（nausea）、高烧（high fever）或呼吸困难（breathing difficulties）等症状后被送往医院。上周，清化省（Thanh Hoa）金越鞋厂（Kim Viet Shoe factory）的四名工人在接种中共国药集团（sinopharm）Vero Cell疫苗后死亡。
 
-[邓炳强指相关官员已经解释了，入境处会作出调查，可等调查完结再讨论。](https://www.thestandnews.com/politics/入境處高官收禮郭俊峯為未來處長熱門人選-曾與汪奇駐京-黃賢貴為恒大香港主管)
+越南卫生部却表示，所有死亡原因是“对疫苗反应过度”，与疫苗质量或疫苗接种过程无关！
 
-[入境处称，正跟进事件，强调一向十分重视属下人员的行为操守，如发现有任何人员有违法或不当行为，会依照相关法例及既定程序作出严肃处理。](https://www.thestandnews.com/politics/入境處高官收禮郭俊峯為未來處長熱門人選-曾與汪奇駐京-黃賢貴為恒大香港主管)
+看来共惨体制不光祸害中共国人，更是对全世界祸害！
 
-[廉政公署今日（12 月 8 日）下午回覆《立场新闻》，指︰「不评论个别事件。廉署会依法按既定程序跟进涉嫌触犯《防止贿赂条例》的行为。」](https://www.thestandnews.com/politics/入境處高官收禮郭俊峯為未來處長熱門人選-曾與汪奇駐京-黃賢貴為恒大香港主管)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-10.11.44-AM.png)
-**2. ****罗冠聪将出席「全球民主峰会」****  ****邓炳强斥「懦夫」****  ****吁选民投票勿让「无耻之徒」得逞**
+中国人民有郭文贵先生领导的新中国联邦和爆料革命在大声疾呼，消灭共惨党，传播病毒疫苗真相，尤其新中国联邦人都是无苗族，不知道什么时候越南人民能觉醒？
 
-[据【立场新闻】12月08日讯，由美国召开的「全球民主峰会」将于本周四至五（12 月 9、10 日）在举行，正流亡海外的前立法会议员罗冠聪，亦受邀演讲。保安局局长邓炳强今晚（7 日）发表网志，批评「走佬」潜逃的罗冠聪，企图发表诋毁中央和特区政府的言论。邓炳强称罗冠聪违犯多条法例，形容他是死心不息，意图「揽炒」香港的「叛徒和懦夫」。邓炳强又呼吁，「为了不让这班无耻之徒得逞」，合资格选民要在 12 月 19 日的立法会选举中投票。](https://www.thestandnews.com/politics/羅冠聰將出席全球民主峰會-鄧炳強斥懦夫-籲選民投票勿讓無耻之徒得逞)
+参考数据：
 
-[邓炳强批评，罗冠聪在“犯”法后，「鬼祟逃到外地，继续无耻地充当外国代理人」，对香港选举作出「抹黑和违法呼吁」，说特区政府会依法追究刑事责任。](https://www.thestandnews.com/politics/羅冠聰將出席全球民主峰會-鄧炳強斥懦夫-籲選民投票勿讓無耻之徒得逞)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-10.11.53-AM.png)
-**3. ****圣公会去信辖下中小学　促鼓励家长老师立会选举投票　「表达对香港特区的热爱」**
+[120 children hospitalized, province suspends Pfizer vaccine batch](https://e.vnexpress.net/news/news/120-children-hospitalized-province-suspends-pfizer-vaccine-batch-4397748.html)
 
-[据【立场新闻】12月08日讯，拥有过百中、小学及幼稚园的香港圣公会，其教育服务部今天发信予辖下学校的校监、校董及校长，「恳请」校方鼓励老师和家长参与立法会选举投票，以表达对香港特区的「热爱和关怀」。](https://www.thestandnews.com/politics/聖公會去信轄下中小學-促鼓勵家長老師立會選舉投票-表達對香港特區的熱愛)
+[3rd child in Vietnam dies after Covid vaccination](https://e.vnexpress.net/news/news/3rd-child-in-vietnam-dies-after-covid-vaccination-4396697.html)
 
-[根据网页资料，圣公会现时属下共有 30 多间中学、50 间小学、50 多间幼稚园及幼儿园和一间特殊学校。圣公会在今年年初成立「教育服务部」，部门主要目的有 5 点，包括支援和协调香港圣公会的三个办学团体，作为对外沟通时的单一对口来表达意见。另外还包括提供行政工作和文书工作协助；为校董和教师等提供培训及进修；接受捐款作培训及进修之用；以及协助宣教，带领学生认识耶稣基督。](https://www.thestandnews.com/politics/聖公會去信轄下中小學-促鼓勵家長老師立會選舉投票-表達對香港特區的熱愛)
+[Human trials for Vietnamese Covid vaccine suspended](https://e.vnexpress.net/news/news/human-trials-for-vietnamese-covid-vaccine-suspended-4396661.html)
 
-[圣公会教省秘书长管浩鸣是教育服务部当然委员，但他既是选委，也是今届立法会选委界别候选人。](https://www.thestandnews.com/politics/聖公會去信轄下中小學-促鼓勵家長老師立會選舉投票-表達對香港特區的熱愛)
+[Bilateral sources account for lion’s share of Vietnam’s Covid vaccines: WHO](https://e.vnexpress.net/news/news/bilateral-sources-account-for-lion-s-share-of-vietnam-s-covid-vaccines-who-4397901.html)
 
-[发信的教育服务部总干事郭始基接受《立场新闻》查询时，指信件纯粹希望家长老师尽公民责任，为教育议题表态。他指信件用字中性，没有指向性，亦否认是为具争议性的新选举制度催票。](https://www.thestandnews.com/politics/聖公會去信轄下中小學-促鼓勵家長老師立會選舉投票-表達對香港特區的熱愛)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-10.12.02-AM.png)
-**4. ****会计师公会改选****   ****消息：建制派****7****人全胜****   ****非建制失主导权**
+[Report Shows Nearly 300 Athletes Worldwide Collapsed or Suffered Cardiac Arrests after Taking COVID Vaccine This Year – Many Died](https://www.thegatewaypundit.com/2021/12/report-shows-nearly-300-athletes-worldwide-collapsed-suffered-cardiac-arrests-taking-covid-vaccine-year-died/)
 
-[据【立场新闻】12月08日讯，香港会计师公会（ HKICPA ）理事会选举投票期昨（6 日）完结。 2019 及 20 年公会换届选举的投票率分别高达 27.45%及23.71%，据悉，今年投票率大跌，最终由建制派团队、以「会计七杰」名义参与的候选人全取 7 席；而被视为民主派的 6 人则全数落败，目前公会只余 5 名民主派理事，变相失去公会主导权。](https://www.thestandnews.com/politics/會計師公會改選-消息建制派-7-人全勝-非建制失主導權)
+[covid-19-data](https://github.com/owid/covid-19-data/tree/master/public/data)
 
-[有逾四十年历史的香港会计师公会，是本港唯一法定会计师注册机构，根据《专业会计师条例》成立，负责培训、发展和监管本港的会计专业。目前有逾 4.7 万名会员，均是认可（certified）会计师。至于公会理事选举，共有 21 个常设席位，每名理事任期为两年，其中由政府委任 4 席、政府官员出任 2 席，上届会长占一席，余下 14 席则每年轮替以选举产生，即每年选出 7 个席位。](https://www.thestandnews.com/politics/會計師公會改選-消息建制派-7-人全勝-非建制失主導權)
+[越南](https://zh.wikipedia.org/wiki/%E8%B6%8A%E5%8D%97)
 
-[自 2019 起，连续两年选举均是由被视为「民主派」阵营大胜，公会内一度有 11 名民主派，在公会内占优，其中 6 人在今次选举后卸任。](https://www.thestandnews.com/politics/會計師公會改選-消息建制派-7-人全勝-非建制失主導權)
+[At Least 3 Children Die and 120 Hospitalized in Vietnam After Receiving Pfizer COVID-19 Vaccine – 4 Adults Die from Vero Cell Covid Vaccine](https://www.thegatewaypundit.com/2021/12/least-3-children-die-120-hospitalized-vietnam-receiving-pfizer-covid-19-vaccine-4-adults-die-vero-cell-covid-vaccine/)
 
-[财经事务及库务局局长许正宇早前曾发表网志，呼吁会计界以「好选票」挑选出「真正为行业打拼奋斗」的新理事，并警告假若有人「模糊了专业及政治的界线」，令公会专业平台失焦，政府将「别无选择」，会检讨公会的定位和职能，及重新审视与公会的关系。](https://www.thestandnews.com/politics/會計師公會改選-消息建制派-7-人全勝-非建制失主導權)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-10.12.11-AM.png)
-**5. ****调查：****47%****受访者疫情下收入减少**
-
-[据【Now新闻台】12月08日讯，有机构调查发现疫情下，四成七受访市民收入减少，当中约四成人要借贷渡日。](https://news.now.com/home/local/player?newsId=459242)
-
-[香港基督教服务处在9月至10月期间，访问近600人，家庭平均收入约3.8万元，发现约四成七受访者于过去两年疫情期间，家庭收入平均减少近四成。情况平均持续八个半月，当中约一成三人，收入减少九成或以上。](https://news.now.com/home/local/player?newsId=459242)
-
-[过半受访者的收入至今未回复至疫情前水平，有四成一人曾经借贷以维持生活，平均借款约7.7万元，七成受访者因为还款，感到极大压力，机构建议政府容许经济困难的人，提取部份强积金应急，并建立失业支援制度 。](https://news.now.com/home/local/player?newsId=459242)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-10.12.19-AM.png)
-**6. ****西九龙法院大楼****12****月****18****日起全面安检****   ****须经金属探测器****X****光扫瞄**
-
-[据【大纪元时报】12月08日讯，上月爆出数宗针对司法人员的恐吓案，司法机构今日（8日）公布，出于安全考虑，本月18日起，西九龙法院大楼将全面实施保安检查。进入大楼前须通过金属探测器检查，随身物品亦要经X光扫瞄。司法机构发言人指，安检程序旨在防止违禁物品，例如武器、刀、剪刀、水和饮品，被带进法院大楼，以确保法官及司法人员、司法机构人员及法庭使用者的安全。](https://hk.epochtimes.com/news/2021-12-08/20776685)
-
-[司法机构指，基于保安考虑，法庭使用者不得携带水或饮品进入西九龙法院大楼的受管制区域。在受管制区域内会有饮用水提供，并鼓励自备水杯，法庭使用者亦可使用自动贩卖机购买饮品。](https://hk.epochtimes.com/news/2021-12-08/20776685)
-
-[此外，司法机构亦会设置专用通道，以便经常进出法院大楼的律师代表、传媒人士等，更快捷地进入受管制区域。](https://hk.epochtimes.com/news/2021-12-08/20776685)
-
-[西九龙裁判法院在11月16日曾收到可疑粉末信件，警方爆炸品处理课及消防到场处理，检查后证实粉末为俗称「哥士的」氢氧化钠，法院大楼3及4楼短暂封锁后解封。沙田裁判法院在此后约半个小时亦发现可疑信件，影响约40人疏散。](https://hk.epochtimes.com/news/2021-12-08/20776685)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-10.12.28-AM.png)
-**7.****【港股收市】恒指****24000****点下滑****.  ****阿里回套****4%**
-
-[据【Now新闻台】12月08日讯，港股缺乏方向，恒生指数于24000点关口窄幅上落。](https://news.now.com/home/finance/player?newsId=459285)
-
-[大市今日高开106点，开市即重上24000点，其后一度高见24097点，但之后回落，曾跌76点，午后走势反覆，收市升13点，报23996点。大市全日成交逾1161亿元。](https://news.now.com/home/finance/player?newsId=459285)
-
-[科技指数连升两日，收市微升1点，报5970点。](https://news.now.com/home/finance/player?newsId=459285)
-
-[昨日大升12%的阿里巴巴回套4%，是跌幅最大蓝筹，并拖低恒指83点，同系阿里健康跌2%。腾讯控股向上，美团及小米集团偏软。](https://news.now.com/home/finance/player?newsId=459285)
-
-[之前连升3日的港交所回落，中国平安及友邦保险齐升1%。](https://news.now.com/home/finance/player?newsId=459285)
-
-[中资电力股升幅显著，中国电力大升11%，华润电力及华能国际电力股份升6%至7%。](https://news.now.com/home/finance/player?newsId=459285)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-10.12.36-AM.png)
-**8. ****中移动香港****:****火炭数据中心****2025****年投入服务**
-
-[据【Now新闻台】12月08日讯，中国移动香港表示，新建的火炭数据中心将于2025年投入服务，透过光纤网络接通全国逾300个城市，接入内地大数据中心体系。](https://news.now.com/home/finance/player?newsId=459300)
-
-[中国移动香港董事长李锋说:「目前在大湾区内已新建5个自有数据中心，铺设了5条国际海缆，拥有5个粤港澳跨境陆缆系统，5G网络覆盖更是在全港领先 ，我们在大湾区新基建领域，已形成了完善的自有数据中心，有跨境数据国际传输资源，以及本地5G及光纤网络的独特优势。」。](https://news.now.com/home/finance/player?newsId=459300)
-
-[集团表示，火炭数据中心可供5G通讯、提供云服务及人工智能运算等。](https://news.now.com/home/finance/player?newsId=459300)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-10.12.44-AM.png)
-**9. FT:****内地拟设「黑名单」****  ****限初创吸外资**
-
-[据【Now新闻台】12月08日讯，市传内地计划收紧科技企业寻求外国融资或海外上市。](https://news.now.com/home/finance/player?newsId=459282)
-
-[为限制海外股东在新一代科技企业中的角色，据英国《金融时报 》报道，内地正准备一份黑名单，预期会限制初创企业吸引外资及在海外上市。](https://news.now.com/home/finance/player?newsId=459282)
-
-[黑名单的目标企业属敏感行业，例如涉及数据或国安范畴，以及用「可变利益实体」(VIE)架构营运中国业务的公司，预期这份黑名单最快月内公布，消息指，现有企业将不受限制。](https://news.now.com/home/finance/player?newsId=459282)
-
-[报道又称，采用VIE架构的企业不会完全消失，外资未来仍可投资科技以外的传统企业。](https://news.now.com/home/finance/player?newsId=459282)
-
-[据《金融时报》统计，241只在美国上市的中概股中，当中约79%以VIE架构上市营运中国业务。](https://news.now.com/home/finance/player?newsId=459282)
-
-校对 / 封面合成：文粤 / 发布：流光飞舞
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/) 上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

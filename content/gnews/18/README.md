@@ -2,37 +2,46 @@
 ---
 
 
-## 有声|美台将于芯片领域在新框架下开展合作
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1733264/)
+## 【Michael.Tonny专栏】越南数据证明 中共病毒疫苗才是真正的杀手（上）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1733382/)
 
-配音：香草山美食部 – 玫瑰园
+作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+越南（Vietnam），这个拥有9,817万人口，位于东南亚中南半岛东端的共惨党一党专制国家，正在遭受疫苗灾难。
 
+在2021年3月7日开始注射疫苗前，越南仅2,512人被确诊感染中共病毒，死亡总数为35人。自3月7日开始，越南在全国推行向18岁及以上公民注射疫苗，感染中共病毒确诊人数、死亡数立即开始增长。今年7月开始，越南加大疫苗接种力度，感染中共病毒确诊数、死亡数迅速增长。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Covid-19-in-Vietnam_-New-wave-tally-tops-1340000-3.jpg)
+不仅如此，自11月15日开始，越南开始向12-18岁的青少年注射疫苗，目前已经有超过120例出现恶心、高烧或呼吸困难等症状后被送往医院，有多人死亡。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-据[OAN](https://www.oann.com/u-s-taiwan-discuss-chips-again-to-cooperate-under-new-framework/)网站援引路透社12月7日的报道，美国商务部长吉娜·雷蒙多(Gina Raimondo) 在周一与台湾经济部长王美花通话中表示，美台将通过新的技术贸易和投资合作（或称TTIC）框架，在技术贸易和投资方面进行合作。
+越南中共病毒疫苗注射百分比
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Vietnam-People-Vaccinated-per-Hundred.jpg)
+越南感染中共病毒确诊数
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Vietnam-Total-Cases.jpg)
+越南感染中共病毒死亡数
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Vietnam-Total-Deathes.jpg)
+从以上三张图可以看到，越南感染中共病毒诊数、死亡数都与注射疫苗正相关，三个方面的线型，时间点，增长趋势基本一致。注射疫苗人口比例越高，感染中共病毒诊数、死亡数增长越快。
 
-双方讨论了台湾在全球供应链中发挥的关键作用。美方强调了对台湾的支持以及美台商业和投资关系的重要性，并表示，美国有兴趣与台湾继续就共同的商业问题进行合作，特别是在半导体供应链和相关生态系统领域。并承诺通过确定其他步骤来支持半导体和其他关键供应链。
+[精彩在下篇](https://gnews.org/zh-hans/1733468/)
 
-早前，美国已多次向作为主要芯片生产国的台湾施加压力，要求其做出更多努力，帮助解决全球半导体短缺的问题。这一问题已使一些汽车生产线关闭，并影响到消费品的生产。
+参考资料：
 
-文字版原文：[美台将于芯片领域在新框架下开展合作](https://gnews.org/zh-hans/1731221/)
+[120 children hospitalized, province suspends Pfizer vaccine batch](https://e.vnexpress.net/news/news/120-children-hospitalized-province-suspends-pfizer-vaccine-batch-4397748.html)
 
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
-**更多资讯，更多关注**
+[3rd child in Vietnam dies after Covid vaccination](https://e.vnexpress.net/news/news/3rd-child-in-vietnam-dies-after-covid-vaccination-4396697.html)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[Human trials for Vietnamese Covid vaccine suspended](https://e.vnexpress.net/news/news/human-trials-for-vietnamese-covid-vaccine-suspended-4396661.html)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[Bilateral sources account for lion’s share of Vietnam’s Covid vaccines: WHO](https://e.vnexpress.net/news/news/bilateral-sources-account-for-lion-s-share-of-vietnam-s-covid-vaccines-who-4397901.html)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[Report Shows Nearly 300 Athletes Worldwide Collapsed or Suffered Cardiac Arrests after Taking COVID Vaccine This Year – Many Died](https://www.thegatewaypundit.com/2021/12/report-shows-nearly-300-athletes-worldwide-collapsed-suffered-cardiac-arrests-taking-covid-vaccine-year-died/)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[covid-19-data](https://github.com/owid/covid-19-data/tree/master/public/data)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[越南](https://zh.wikipedia.org/wiki/%E8%B6%8A%E5%8D%97)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[At Least 3 Children Die and 120 Hospitalized in Vietnam After Receiving Pfizer COVID-19 Vaccine – 4 Adults Die from Vero Cell Covid Vaccine](https://www.thegatewaypundit.com/2021/12/least-3-children-die-120-hospitalized-vietnam-receiving-pfizer-covid-19-vaccine-4-adults-die-vero-cell-covid-vaccine/)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/) 上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

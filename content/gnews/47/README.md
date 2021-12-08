@@ -2,28 +2,24 @@
 ---
 
 
-## 喜币与法币共存 实现财务自由
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1732095/)
+## BBC被曝向中共企业投资超1.5亿英镑养老基金
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1732105/)
 
-作者：纽约香草山农场 – 四季
+作者：纽约香草山文艺部 – 宁文静
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月5日，郭文贵先生在大直播中表示，新中国联邦的喜币未来不会代替任何主权货币，将永远只做自己。
+12月6日，据英国媒体报道，英国广播电视公司BBC将超过1.5亿英镑的养老基金用于投资多家中共公司。而相关资料显示，在这些公司当中，至少有10家被指控支持中共独裁政权，其中两家公司甚至直接被中共政府持有。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide1-10.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide2-7.jpeg)
 
-郭先生提到，未来三、五十年中，美元、瑞元及英镑肯定还会存在，但人民币和欧元一定会消失。至于喜币，则一定是世界上最稳定的货币。
+报道提及，这些公司中包括中共国海外发展有限公司，该公司曾在2020年被美国政府列入黑名单，并禁止任何美国公司或个人拥有其股份。另外，BBC的投资还涉及到持有中共国建设银行、工商银行、农业银行，以及阿里巴巴、腾讯、拼多多等公司的股票。同时，中共国网易公司也获得了来自BBC的投资。但据有关资料表明，网易多次参与打压被认为是对中共不利的新闻和评论。
 
-郭先生还强调，自喜币上市以来，其价格已经实现了四百多倍的成长，但并不希望其价格大起大落。与此同时，很多战友目前已从市场中套现了三到四亿美元，很多人也因为喜币实现了财务自由。
+报道还提到，截至3月31日，这些股票的价值在仅仅一年间增加了四千多万英镑。 对此，前保守党领袖伊恩·邓肯·史密斯称，BBC对中共国企业的投资规模“令人吃惊”。更重要的是，BBC的投资最终用于维持一个犯下种族灭绝罪行的残暴、独裁政权的统治，这根本不应该发生。为此，史密斯呼吁BBC立即停止这类投资。
 
-让郭先生感到十分欣慰的是，喜币上市后，战友在生活困难需要钱的时候，可以通过出售喜币解决燃眉之急。
-
-同时，郭先生指出，喜币打通了一个随时能贴现的渠道，而这是喜币最大的魅力。
-
-参考链接：[2021年12月05日 文贵大直播](https://gtv.org/video/id=61acb7bebbd75f62e52f7ce4)
+参考链接：[BBC has invested more than £150million in Chinese state-owned companies accused of links to appalling human rights violations](https://www.dailymail.co.uk/news/article-10277275/BBC-invested-150million-Chinese-state-owned-companies.html)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
 
-总编：Irene木木
+总编：飞虹
 编辑：Kathy文艺
 校正/发稿：谐趣园
 
@@ -34,8 +30,6 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,50 +2,30 @@
 ---
 
 
-## 韩国当日新增感染及危重症数双创新高
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1733152/)
+## 加拿大各地完全接种疫苗的母亲死产率激增28倍
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1733227/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-5-768x103-6.jpg)
+本文作者：Rebecca (一切心皆不可得！)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image002-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/image003.jpg)
+2021年11月23日，Daniel Nagase医生揭露了加拿大妇女死胎的爆炸性案例。
 
-作者：纽约香草山 医疗部 云豹
+这是我们如今从各处听到的故事，尤其是来自殡仪馆的人，他们对接种疫苗的母亲中这些婴儿的死亡人数大幅增加感到震惊。
 
+这段4分钟的视频显示，Nagase医生解释说死胎发生在全国不同地区，而且只发生在接种疫苗的母亲身上。请从45秒开始听。
 
+Nagase医生报告说，滑铁卢的死胎率比正常情况高28倍，但只有接种疫苗的母亲才会死。
 
-当地时间12月8日，韩国中央防疫对策本部公告，至8日零时，韩国境内新增中共病毒确诊人数7175位，危重症病人数840例，双创新高记录。因感染死亡人数新增63例，累计达4020例。
+Nagase医生的数据来源是一位省级检察官（相当于州检察长），他是从在医院工作的一名护士那里得到的数据。
 
-新增境内感染变异株Omicron人数2例，累计38例。
+过去曾和Nagase医生谈过话的现在完全保持沉默。好似他们说出真相让他们感到害怕。这很奇怪。
 
-至12月6日为止，韩国完整疫苗接种率已达80%。在11月初，韩国政府认为完整疫苗接种率已达70%，应该可以有效的控制疫情，所以就放松部分的管制措施。随后的结果就是每日新增感染人数及危重症人数频创新高。
+[新闻来源链接](https://stevekirsch.substack.com/p/28x-increase-in-stillbirths-in-multiple)
 
-韩国政府已经从12月6日再度加强管制措施，限缩私人聚会人数与公共设施的营业时间，希望能将疫情控制下来。
+【文章仅限作者个人观点】
 
-疫苗注射无法控制疫情，在韩国又再次得到验证。
+审核校对：sherryok (水云间)
 
-(本文为作者观点，不代表G NEWS立场)
-
-新闻连接：
-
-&lt;https://www.cna.com.tw/news/firstnews/202112080044.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share&gt;
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec.png)
-
-
-
-校对/编辑/发稿：云豹
-
-**更多信息，更多关注**
-
-[**纽约香草山农场**** GTV****–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+上传排版：漂流瓶
 
  
 
