@@ -2,35 +2,35 @@
 ---
 
 
-## 加拿大从 1 月 15 日起禁止未接种疫苗的 NBA 球员
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1731765/)
+## 拜登疫苗授权于本周二被佐治亚州法官在全美叫停
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1731766/)
 
-编译： 真北007
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Getty-Images-30-640x480-1-edited.jpg)图片来源：网络
-来自BREITBART 12月7日的新闻报道：
+**翻译：雨季仰光**
 
-据报道，加拿大已颁布法令，未接种疫苗的 NBA 球员将不能进入加拿大多伦多参赛。
+**校对：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screenshot-2021-12-08-113416.jpg)
+据《国家档案》（National File）12月7日报道，本周二，拜登政府针对联邦承办商备受质疑的疫苗授权令被乔治亚州南区地方法官R.斯丹利.贝克(R Stanley Baker)下令在美国全国范围内中止，此事在今早得到确认。
 
-据 The Athletic 的 Shams Charania 报道，加拿大卫生官员表示，从 1 月 15 日开始，球员必须完全接种疫苗才能与多伦多猛龙队比赛。 猛龙队球员还必须 100% 接种疫苗，否则将面临罚款和停赛。
+该疫苗授权令原定于2022年1月4日开始生效，实施范围涵盖近四分之一的全美劳动力，因该疫苗授权令目标受众涉及所有与联邦政府有业务往来的公司，例如微软，谷歌，洛克希德.马丁(Lockheed Martin), 以及通用汽车公司。
 
-该公告并不令人意外，加拿大公共安全部长 Marco Mendicino 于 11 月宣布，将于 2022 年对外国游客实施强制性疫苗接种要求。
+最新的疫苗授权中止是在肯塔基联邦法官关于涉及肯塔基、田纳西及俄亥俄州的法律诉讼的一项初步禁令批准后产生的。
 
-门迪奇诺表示，“职业和业余运动员将不再享有豁免权”。
+从亚利桑那、佛罗里达、德克萨斯、俄克拉荷马到乔治亚州，拜登政府的承包商疫苗授权引发了大量的联邦诉讼，他们声称联邦政府不应有合法授权来要求这种实验性的疫苗注射，任何类似授权都是直接违反美国宪法的行为。
 
-NBA 声称联盟中 95% 的人现在已经完全接种了疫苗。
+疫苗授权是政府让更多美国民众接种一个试验性疫苗计划的一部分，而疾控中心（CDC）官员们确认疫苗并不能防止中共病毒疫情的感染和传播。
 
-当然，新规则不仅仅适用于 NBA，北美冰球联合会 NHL 在加拿大有七支职业冰球队。不过，NHL 仍未就北方邻国将实施的新规则发表任何声明。
+拜登政府的疫苗授权令计划更进一步涉及美国职业安全和健康署紧急法规的运用，该法规强迫100名雇员以上的企业必须让员工接受疫苗注射。
 
-事实上，加拿大几乎取消了之前对游客的所有豁免。外加前往加拿大与家人团聚的人、18 岁以上的国际学生、从事关乎国计民生工作的跨境工人和服务人员以及大多数外国临时工人，现在所有人都必须完全接种疫苗或被禁止入境。
+联邦承包商疫苗授权的中止源自几宗悬而未决的职业安全健康署的疫苗授权（诉讼）的挑战。美国第五巡回上诉法院最近临时停止了拜登的职业安全健康署法规的实施，第六巡回上诉法院也正在考虑这个问题。
 
-**点评: **加拿大总理小特鲁多与全球有名的独裁暴君们有的一拼，左派自由势力的骨干，大家还记得他把MANKIND 改成HUMANKIND 吧? 他就是一个笑话。
+第六巡回上诉法院已经拒绝了联邦政府意欲将案件移送华盛顿特区的请求，同时也拒绝了拜登政府搁置处理这些案件的请求。
 
-原文链接：[https://www.breitbart.com/sports/2021/12/07/canada-bans-unvaccinated-nba-players-starting-on-january-15/](https://www.breitbart.com/sports/2021/12/07/canada-bans-unvaccinated-nba-players-starting-on-january-15/)
+美国在苏醒。正如文贵先生在直播中预言，疫苗强制令一定很快看到从美国到世界的全面停止。
 
-编辑/发布：LILY
+**新闻来源：**[Joe Biden’s vaccine mandate for federal contractors’ employees nationwide was shot down by a federal judge in Georgia on Tuesday.](https://nationalfile.com/bidens-vaccine-mandate-federal-contractors-blocked-across-nation/)
 
-20211207
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
