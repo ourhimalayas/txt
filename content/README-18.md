@@ -16,6 +16,8 @@
 ---
 ## 頁面 18/38 [**<**](/content/README-17.md) [1](/content/README.md) ... [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) **18** [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) ... [38](/content/README-38.md) [**>**](/content/README-19.md) [查看全部](/content/README-all.md)
 
+[文字版： 2019年11月14日郭文贵先生华盛顿直播：香港一定赢！](/content/2019/11/20191115-1929062712375432404.md)
+
 [文字版：2019年11月12日郭文贵先生关于香港最新局势紧急直播](/content/2019/11/20191113-7768308991130879569.md)
 
 [文字版：2019年11月11日文贵班农谈](/content/2019/11/20191113-3588929521846219666.md)
@@ -63,8 +65,6 @@
 [文字版：2019年10月22日文贵报平安 乌镇“乌脸”网大会 BAT帮助CCP迫害战友西藏新疆同胞、去彭斯副总统推特下面留言为他演讲加油！](/content/2019/10/20191024-6179823633507138709.md)
 
 [文字版：2019年10月21日第二次紧急直播 陈彦霖是枉死，共产党准备了多处灭尸毁证机构](/content/2019/10/20191022-2968214834265730245.md)
-
-[文字版：2019年10月21日郭先生第一次报平安](/content/2019/10/20191022-1216375453972564281.md)
 
 
 ## 頁面 18/38 [**<**](/content/README-17.md) [1](/content/README.md) ... [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) **18** [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) ... [38](/content/README-38.md) [**>**](/content/README-19.md) [查看全部](/content/README-all.md)

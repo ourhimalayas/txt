@@ -16,6 +16,8 @@
 ---
 ## 頁面 21/38 [**<**](/content/README-20.md) [1](/content/README.md) ... [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) **21** [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) ... [38](/content/README-38.md) [**>**](/content/README-22.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年8月11日文貴船上直播高度關注香港](/content/2019/08/20190813-1303455060330520952.md)
+
 [文字版：2019年8月10日 今天是个好日子，开启灭共第三战场](/content/2019/08/20190811-3305401800182542531.md)
 
 [文字版：8月9日 郭文贵先生船上报平安直播](/content/2019/08/20190811-3314587443288819358.md)
@@ -63,8 +65,6 @@
 [文字版：2019年7月9日：香港逃犯法为什么死亡了？香港还会有抗议吗？会实现双普选吗？](/content/2019/07/20190710-3352711753808364354.md)
 
 [文字版：2019年7月8日：文贵车上谈王健之死](/content/2019/07/20190710-5360676795961744736.md)
-
-[文字版：2019年7月8日文贵在船上讲述在长岛买豪宅借战友和我是不是双料间谍](/content/2019/07/20190710-4802216487220776718.md)
 
 
 ## 頁面 21/38 [**<**](/content/README-20.md) [1](/content/README.md) ... [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) **21** [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) ... [38](/content/README-38.md) [**>**](/content/README-22.md) [查看全部](/content/README-all.md)
