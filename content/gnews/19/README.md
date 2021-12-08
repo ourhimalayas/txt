@@ -2,38 +2,36 @@
 ---
 
 
-## 澳大利亚站队美国外交抵制北京冬奥会
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1733380/)
+## 美法官阻止全美联邦承包商疫苗强制令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1733415/)
 
-翻译：不要代表我Kari
-校对：Julia
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2021.12.8-14.jpg)图片来源：法广网
-澳大利亚总理斯科特·莫里森(Scott Morrison)证实，澳大利亚将跟随美国的脚步，不派政府官员参加明年在中国举行的冬奥会。
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月7日，据美国乔治亚州南区法院的斯坦·贝克法官发布的初步禁令表明，法院将禁止全美范围内执行对联邦承包商雇员的新冠疫苗强制接种令。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/8-12.jpg)
+此前，联邦强制令要求，所有联邦承包商的雇员必须在2022年1月18日前完成新冠疫苗的全程接种。 对此，南卡罗莱纳州总检察长办公室称，包括南卡罗莱纳、佐治亚在内的七个州的总检察长和州长，以及其他州的相关实体正在对拜登政府提起诉讼。
 
-莫里森Morrison周三表示，这”不足为奇，澳大利亚将不派任何官方代表参加即将在中国举行的冬季奥运会”，依据的理由是”在新疆发生的侵犯人权和澳大利亚一直向中方提出的有待解决的其他问题。”
+另外，南卡罗莱纳州的州长亨利·麦克马斯特曾在白宫宣布强制新冠疫苗政策后表示，要与拜登政府就疫苗强制令战斗到底。
 
-“我们一直非常荣幸，也非常乐意与中国政府谈论这些事务，澳方这边没有任何阻碍，”他声称，”但中国政府一直拒绝我们就这些问题进行会晤的要求。”
+截止目前，拜登政府颁布的针对不同行业和部门的三大疫苗强制令已经全部被美国法院阻止，其中包括第五巡回法院叫停OSHA针对具有100名以上员工的私营公司的新冠疫苗强制令，路易斯安那州联邦法院叫停CMS针对医护工作者的新冠疫苗强制令，还有此次南卡罗来纳州联邦法官叫停对联邦承包商执行的新冠疫苗强制令。
 
-然而，澳总理坚持认为，“虽然澳大利亚官员不会去中国参加奥运会，但澳大利亚运动员仍然可以参加比赛。”
+参考链接：
+1) .[Federal judge blocks vaccine requirement for federal contractors](https://www.wbtw.com/news/national/federal-judge-blocks-vaccine-requirement-for-federal-contractors/?utm_campaign=socialflow&amp;utm_source=t.co&amp;utm_medium=referral)
+2) . [BREAKING: A federal judge has again sided with Attorney General Alan Wilson and today blocked the vaccine requirement for federal contractors. This is the third time courts have agreed with Attorney General Wilson and blocked vaccine mandates imposed by the Biden administration.](//twitter.com/scattygenoffice/status/1468268319371411460?s=21)
 
-莫里森政府紧随美国总统拜登政府的脚步，拜登政府也在周一宣布对冬奥会进行外交抵制。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-白宫新闻秘书珍·普萨基(Jen Psaki)告诉记者，”鉴于中华人民共和国在新疆正在发生的种族灭绝和反人类罪以及其他侵犯人权的行为”，美国将不派任何官方代表参加在北京举行的冬季奥运会。
+总编：Irene木木
+编辑：Lakeman文仁
+校正/发稿：Fei797
 
-普萨基(Psaki)说：“面对中华人民共和国在新疆(犯下的)令人震惊的侵犯人权行为和暴行，美国的外交或官方代表团会把这些赛事当作平常事，而我们根本不能这样做。”
-
-中国在华盛顿驻美大使馆发言人刘鹏宇称此举是 “自命不凡”，”政治操弄”，”对《奥林匹克宪章》精神的严重扭曲”。他还补充说，”没有向美国政要发出任何邀请，所以这种’外交抵制’根本就是凭空而来，子虚乌有”。
-
-“事实上，没有人会在意这些人是否来（参加北京冬奥会），这对北京2022年冬奥会的成功举办没有任何影响，”发言人说。
-
-中国外交部部长助理华春莹发表了类似的声明，强调美国官员没有被邀请，她在推特上说：”一个人不能在没有收到邀请的情况下拒绝邀请”。
-
-中国日报欧盟分社社长陈卫华在社交媒体上半开玩笑地说：“尽管没有收到邀请，但他将抵制白宫的圣诞和新年聚会。”
-
-文章链接： [https://www.rt.com/news/542502-australia-boycott-china-olympics/](https://www.rt.com/news/542502-australia-boycott-china-olympics/)
-
-发布：去中心化Math
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

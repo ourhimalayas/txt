@@ -2,28 +2,58 @@
 ---
 
 
-## 震惊！中共特洛伊木马—集装箱导弹
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1733433/)
+## 【Michael.Tonny专栏】越南数据证明 中共病毒疫苗才是真正的杀手(下）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1733468/)
 
-**采集****/翻译：意翎    **
+作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+[接上篇](https://gnews.org/zh-hans/1733382/)
 
-**责编：白夜**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-382.png)
-*专家警告称，北京一直在秘密开发隐藏在集装箱内的特洛伊木马导弹，图谋在世界各地发动攻击。*
+从去年1月23日越南出现两例中共病毒确诊案例到今年3月7日前，越南人感染中共病毒机率为0.00256%，死亡机率为1亿分之35。今年3月7日至6月30日期间，越南全国疫苗接种率为3.65%，新增感染14，540人，新增死亡46人。而到12月6日，越南全国疫苗接种率为75.04%，7月1日至12月6日间，越南全国新增感染为1,306,631人，新增死亡26,402人。
 
-据美国《太阳报在线》一份令人震惊的报告称，在航运和物流成为全球焦点之际，北京一直在秘密开发隐藏在集装箱内的特洛伊木马导弹。这些导弹可以被伪装在中共庞大的货船和渔船舰队中，释放到敌人的港口，然后这些船只可以使用秘密导弹而变成军舰。报告称，这些导弹可以与船上数百个其他集装箱无缝对接，一旦发生战争，世界上集装箱船的数量比军舰更难以确定。
+可见，接种疫苗，感染和死亡的风险都呈几何级数增长。
 
-国际评估与战略中心（International Assessment and Strategy Center）亚洲事务高级研究员里克·费舍尔（Rick Fisher）说，虽然中共官方还没有确认，但他们很可能已拥有这类特洛伊导弹。斯托克顿（Stockton Center）国际法中心的一项研究警告称，这种武器可能违反海军法律，“它不遵守武装冲突法，秘密将商船纳入中国的战斗力，危及民用海员，并使所有不能在敌对地区作业的民用船舶处于危险之中”。与同此时，前太平洋舰队情报负责人、退役海军上尉吉姆·法内尔（Jim Fanell）表示，集装箱反舰导弹将对美国海军构成“重大威胁”。
+在开始疫苗接种前，越南全国单日新增确诊数一直在个位数徘徊，甚至已经连续几个月没有人感染。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/new_cases-between-2020-1-23-and-2021-3-6-1.jpg)
+自3月7日接种疫苗后，单日确诊数迅速增加。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/new_cases-between-2021-3-7-and-2021-6-30.jpg)
+自7月1日起，随着疫苗接种比例增加，单日确诊数直线增加，最高时单日接近4万人。目前在14,000左右。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/new_cases-between-2021-7-1-and-2021-12-7.jpg)
+在开始疫苗接种前，几天甚至十几天才有人死亡。2020年9月4日到疫苗接种前，根本没有人死亡。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/new-deathes-between-2020-1-23-and-2021-3-6.jpg)
+而3月7日至6月30日，全国疫苗接种率很低的阶段，单日新增死亡也非常少。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/new-deathes-between-2021-3-7-and-2021-6-30.jpg)
+自7月1日后，越南死亡人数迅速增加，单日新增死亡人数已经突破200。比推行疫苗前14个月总和还要多6倍。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/new-deathes-between-2021-7-1-and-2021-12-7.jpg)
+通过上述分析，中共病毒疫苗在越南的危害，远远比病毒本身要大得多。然而，越南共惨党从上月15日开始，将疫苗推广范围扩大到12岁及以上儿童。
 
-这种武器是在2016年的珠海航展上进入公众视野的，从那时起，就有猜测说它们可能在中共军队服役。费舍尔说，这种武器符合中共的军事战略偏好，“将为中共领导层提供广泛的选择”，这包括“使用更大的集装箱船、数千艘渔船或在港口储存的集装箱，执行军事或恐怖袭击任务，如果他们愿意的话。”中国这个共产主义巨魔正在挑战美国作为头号超级大国的地位。众所周知，中共正在积极发展其军事力量，扩大其在世界各地的影响力，比如北京在非洲西岸建立一系列新的海军基地，在大西洋建立立足点。在世界各国努力从疫情中恢复之际，中共也被认为将在全球军备竞赛的下一阶段处于领先地位，因为它向世界各地发射了一枚携带高超音速滑翔飞行器的火箭，该火箭在向目标加速之前环绕地球飞行，美国情报和军事官员对此感到震惊。
+11月28日，北江省北部（the northern Bac Giang Province）的一名16岁男孩和河内（Hanoi）一名九年级女孩在接种辉瑞疫苗后死亡。11月30日，平福省南部（the southern Binh Phuoc Province）的一名12岁男孩在接种辉瑞疫苗后死亡。自 11 月 30 日以来，越南中部省份一直在为 15-17 岁的儿童接种辉瑞的中共病毒疫苗。截止到12月2日，有超过120 名儿童在出现恶心（nausea）、高烧（high fever）或呼吸困难（breathing difficulties）等症状后被送往医院。上周，清化省（Thanh Hoa）金越鞋厂（Kim Viet Shoe factory）的四名工人在接种中共国药集团（sinopharm）Vero Cell疫苗后死亡。
 
-费舍尔坚持认为“中共完全有能力在需要的时候使用集装箱导弹制造混乱”，例如，中共的导弹发射集装箱可以储存在西雅图港附近，它们可以被安置在“普通的小型中共船只上，以便对海岸防御系统发动突然的导弹袭击，以协助跟踪两栖或空降入侵部队” 。
+越南卫生部却表示，所有死亡原因是“对疫苗反应过度”，与疫苗质量或疫苗接种过程无关！
 
-他说，集装箱导弹发射器可以通过港口或高速公路走私。然后，它们可以在美国军事基地范围内的一座温控建筑中储存数年，并在军事行动需要时取出。
+看来共惨体制不光祸害中共国人，更是对全世界祸害！
 
-他还推测，电磁脉冲（EMP）可能与这种导弹一起使用，“电磁脉冲爆炸可能会摧毁潜艇和整个基地的电子设备，而无需从中国发射一枚核导弹”。介时，华盛顿将陷入混乱，不知道要报复谁。“也许中共会利用美国的干扰来开始其真正目标—军事征服台湾”，费舍尔总结道。
+中国人民有郭文贵先生领导的新中国联邦和爆料革命在大声疾呼，消灭共惨党，传播病毒疫苗真相，尤其新中国联邦人都是无苗族，不知道什么时候越南人民能觉醒？
 
-[原文链接](https://www.the-sun.com/news/4214471/china-feared-hiding-missile-trojan-horse-containers/)
+参考数据：
+
+[120 children hospitalized, province suspends Pfizer vaccine batch](https://e.vnexpress.net/news/news/120-children-hospitalized-province-suspends-pfizer-vaccine-batch-4397748.html)
+
+[3rd child in Vietnam dies after Covid vaccination](https://e.vnexpress.net/news/news/3rd-child-in-vietnam-dies-after-covid-vaccination-4396697.html)
+
+[Human trials for Vietnamese Covid vaccine suspended](https://e.vnexpress.net/news/news/human-trials-for-vietnamese-covid-vaccine-suspended-4396661.html)
+
+[Bilateral sources account for lion’s share of Vietnam’s Covid vaccines: WHO](https://e.vnexpress.net/news/news/bilateral-sources-account-for-lion-s-share-of-vietnam-s-covid-vaccines-who-4397901.html)
+
+[Report Shows Nearly 300 Athletes Worldwide Collapsed or Suffered Cardiac Arrests after Taking COVID Vaccine This Year – Many Died](https://www.thegatewaypundit.com/2021/12/report-shows-nearly-300-athletes-worldwide-collapsed-suffered-cardiac-arrests-taking-covid-vaccine-year-died/)
+
+[covid-19-data](https://github.com/owid/covid-19-data/tree/master/public/data)
+
+[越南](https://zh.wikipedia.org/wiki/%E8%B6%8A%E5%8D%97)
+
+[At Least 3 Children Die and 120 Hospitalized in Vietnam After Receiving Pfizer COVID-19 Vaccine – 4 Adults Die from Vero Cell Covid Vaccine](https://www.thegatewaypundit.com/2021/12/least-3-children-die-120-hospitalized-vietnam-receiving-pfizer-covid-19-vaccine-4-adults-die-vero-cell-covid-vaccine/)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/) 上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 
