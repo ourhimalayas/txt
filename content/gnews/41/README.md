@@ -2,23 +2,29 @@
 ---
 
 
-## 12月8日文贵大直播快讯——新歌打榜资金将捐助法制基金
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1733561/)
+## GTV新闻访谈简报|2021年12月8日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1733573/)
 
-撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-109-1280x172-1-2-1.jpg)
 
-视频：永不言败
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-7.png)
+文章仅代表作者本人观点，与Gnews无关
 
-美东时间当地12月8日，文贵先生在大直播当中谈到新歌Hcoin to the moon的ITunes打榜记录时说，这一次的打榜再次证明了爆料革命在全世界的影响力，同时默默无闻的战友占了99%——大家都能够感受到无处不在的战友力量。
+视频参看：[2021.12.08早GTV新闻访谈](https://gtv.org/video/id=61b0b2ecbbd75f62e532d697)
 
-在6-8日的ITunes摇滚音乐榜的排名中，新曲Hcoin to the moon在新西兰、澳大利亚、香港、台湾等十个国家和地区获得第一位的成绩，在加拿大获得第二，美国和波兰获得第三。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-不过文贵先生也提到，这一次的打榜业绩相较上一回还有一定距离。过去如果打榜一次，现在应该扩大到五次或者十次——战友们千万别停，继续努力！
+![](https://assets.gnews.org/wp-content/uploads/2021/12/rl.png)
 
-打榜歌曲的收益最后将捐给法制基金，文贵先生称自己是不会要任何打榜金额的。因此，只要打榜新歌，就是在支持法制基金。
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-这个榜不仅是音乐，同时也是政治——没有一个音乐有这样的力量。这样的音乐一定是有阳光力量的信仰作为支撑，单纯你爱我我爱你的情歌不可能有这样的力量，也不可能在短时间内立刻冲上排行榜第一。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

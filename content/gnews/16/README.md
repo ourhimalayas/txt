@@ -2,50 +2,32 @@
 ---
 
 
-## 普京：俄罗斯将迅速跟进与美方就乌克兰危机进行的通话
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1733918/)
+## 亚马逊网络服务AWS出现大规模宕机 多个平台受影响
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1733942/)
 
-作者：纽约香草山农场 – 四季
+**撰稿：日本东京方舟农场  海星**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+12月7日，美国电商巨头亚马逊（Amazon）旗下的网络服务（AWS）出现大规模宕机，影响到多个平台。
 
+据《自由时报》报道，亚马逊旗下网络服务（AWS）于美东时间7日上午10点左右发生大规模宕机。在宕机情况最严重的12点时，有上万名用户上网反馈问题。
 
+根据Downdetector.com的数据显示，此次宕机不仅使亚马逊自家物流系统受到冲击，还影响到了其客户——加密货币Coinbase、网络券商Robinhood、串流影音网飞Netflix和Disney+等平台。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-85.jpg)图片来源：路透社
 
+亚马逊于当日稍晚时表示，旗下多数服务已恢复正常，但公司仍在努力处理跨服务的问题。该公司还透露，这次网络服务中断与网络设备及API（应用程式介面）有关。 亚马逊网络服务（AWS）是云端运算服务供应商的领头羊，主要向企业出售运算能力和软件服务。其客户除了各领域的企业之外，也包含美国联邦政府和大学。
 
-据[OAN](https://www.oann.com/russia-says-both-sides-to-follow-up-quickly-on-putin-biden-call/)网站援引路透社12月8日报道，克里姆林宫周三表示，俄罗斯和美国官员将紧急跟进两国总统于前一天就乌克兰问题进行的、有关 “复杂对抗局势”的两小时通话。
+*参考链接：*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1643-1.jpg)2021年12月7日，俄罗斯总统弗拉基米尔·普京在俄罗斯索契通过视频链接主持经济问题会议。（Sputnik/Mikhail Metzel/Pool via REUTERS）
+[亞馬遜AWS大當機 Netflix、Disney+也受害](https://ec.ltn.com.tw/article/breakingnews/3761603)
 
-在双方会谈中，拜登警告普京，如果俄罗斯入侵，西方将会对其实施 “强有力的经济和其他措施”，而普京则要求保证北约不会向东扩张。另外，俄罗斯否认其威胁了邻国，并表示相关动作是在回应乌克兰和北约的威胁性行动。
+* * *
 
-莫斯科对美国国务卿安东尼·布林肯上周提出的建议持开放态度，即由华盛顿推动关于冲突的谈判，乌克兰称自2014年以来已有超过14,000人丧生。
+*素材采编：海星*
 
-乌克兰外交部长德米特罗·库莱巴（Dmytro Kuleba）告诉路透社，拜登和普京的会谈达到了 “威慑和缓和 ”的目的。但他补充说，当务之急是制定一个威慑方案，以抵御莫斯科的任何进一步军事升级。
+*编辑：青衣青青*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月.png)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+*发布：Ranting*
 
  
 
