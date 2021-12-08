@@ -2,35 +2,28 @@
 ---
 
 
-## 加拿大从 1 月 15 日起禁止未接种疫苗的 NBA 球员
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1731765/)
+## WTA明年上半年赛程公布，中共国被排除在外
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1731791/)
 
-编译： 真北007
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Getty-Images-30-640x480-1-edited.jpg)图片来源：网络
-来自BREITBART 12月7日的新闻报道：
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/5-5.png)[图片来源](https://www.rfa.org/mandarin/yataibaodao/zhengzhi/cm1202a-12022021054417.html)
+国际女子网球协会（WTA）星期一（12月6日）公布了2022年上半年赛程，其中并没有在中共国的深圳公开赛。WTA主席于上星期宣布因彭帅事件暂停WTA一切中共国赛事。
 
-据报道，加拿大已颁布法令，未接种疫苗的 NBA 球员将不能进入加拿大多伦多参赛。
+公开资料显示，WTA深圳网球公开赛通常在每年的第一周举办。该赛事从2013赛季开始首次举办，是WTA全球巡回赛中的其中一站国际级赛事。2022年上半年的WTA全球巡回赛将从澳大利亚阿德莱德开始，然后按照传统模式在俄罗斯圣彼得堡、美国迈阿密和意大利罗马等多地举行，上半年赛事的最后一站是6月的英国温布尔登网球公开赛。
 
-据 The Athletic 的 Shams Charania 报道，加拿大卫生官员表示，从 1 月 15 日开始，球员必须完全接种疫苗才能与多伦多猛龙队比赛。 猛龙队球员还必须 100% 接种疫苗，否则将面临罚款和停赛。
+WTA主席兼首席执行官史蒂夫•西蒙（Steve Simon）在一份声明中表示：“2022年WTA巡回赛日程将再次为世界最优秀的女子网球选手提供一个享有盛誉的舞台。”WTA下半年的赛程尚未公布。往年的WTA下半年的赛程中会有更多中共国赛事。中共国在2019年主办了九场比赛。
 
-该公告并不令人意外，加拿大公共安全部长 Marco Mendicino 于 11 月宣布，将于 2022 年对外国游客实施强制性疫苗接种要求。
+WTA出于对彭帅的安全担忧，已于上星期宣布将暂停在中共国举行的所有赛事，也包括在香港的赛事。该组织主席兼首席执行官史蒂夫·西蒙在一份声明中说：“在WTA董事会的全力支持下，我宣布立即暂停在中共国的所有WTA赛事，包括香港。凭良心说，当彭帅不被允许自由交流，并且似乎被施压以反驳她发出的性侵犯指控时，我不明白我怎么能要求我们的运动员在那里比赛。”
 
-门迪奇诺表示，“职业和业余运动员将不再享有豁免权”。
+声明接着说：“鉴于目前的状况，我也非常担心，如果我们在2022年在中共国举办赛事，我们所有的球员和工作人员都可能面临风险。”
 
-NBA 声称联盟中 95% 的人现在已经完全接种了疫苗。
+消息来源:
 
-当然，新规则不仅仅适用于 NBA，北美冰球联合会 NHL 在加拿大有七支职业冰球队。不过，NHL 仍未就北方邻国将实施的新规则发表任何声明。
+[WTA宣布2022年上半年赛事 深圳赛事已不在其中](https://www.voachinese.com/a/Shenzhen-open-missing-as-WTA-announces-schedule-for-2022-20211207/6342708.html)
 
-事实上，加拿大几乎取消了之前对游客的所有豁免。外加前往加拿大与家人团聚的人、18 岁以上的国际学生、从事关乎国计民生工作的跨境工人和服务人员以及大多数外国临时工人，现在所有人都必须完全接种疫苗或被禁止入境。
-
-**点评: **加拿大总理小特鲁多与全球有名的独裁暴君们有的一拼，左派自由势力的骨干，大家还记得他把MANKIND 改成HUMANKIND 吧? 他就是一个笑话。
-
-原文链接：[https://www.breitbart.com/sports/2021/12/07/canada-bans-unvaccinated-nba-players-starting-on-january-15/](https://www.breitbart.com/sports/2021/12/07/canada-bans-unvaccinated-nba-players-starting-on-january-15/)
-
-编辑/发布：LILY
-
-20211207
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
