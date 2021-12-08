@@ -2,25 +2,41 @@
 ---
 
 
-## 关闭学校与中共病毒传播并无因果关系！
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1732349/)
+## 躺平币的获得方法
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1732393/)
 
-撰稿：Wilson
+作者: 香草山农场-文特
 
-为减少中共病毒的传播，世界各地广泛采取关闭学校的措施。到2020年4月，也就是世界卫生组织（世卫组织）将中共病毒描述为一场大流行1个月后，有173个国家关闭了学校，影响了84.3%的世界入学学生。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/16389526801.png)网络截图
-然而，关闭学校有广泛的影响，包括学习损失（减少学习时间和测试分数）、未来收入损失、身体健康恶化（例如，取消学校餐和体重增加）等。值得注意的是，这些费用不成比例地强加给弱势家庭，从而扩大了社会和经济上的不平等。此外，学校的关闭甚至会导致长期的宏观经济损害。
 
-然而，关闭学校是否真的能防止病毒扩散？获益是否超过了这些成本？日本学者对比了疫情期间关闭学校与开放学校之间中共病毒感染率，定了学校关闭对中共病毒传播的影响。研究结果表明，2020年初，关闭学校对日本中共病毒病例的影响与零没有显著差异，意味着关闭学校对中共病毒的传播并未起到任何作用。没有发现日本关闭学校导致冠状病毒病例数量显著减少的证据。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-10.jpg)
+依照郭文贵先生在直播中对躺平币的解读，12月5日，爆料革命战友在盖特平台上总结了未来可以获得躺平币的三个渠道，即，将躺平币分别与GTV、GNews以及盖特平台挂钩。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1efc0e24461bd87d8f1dab33401eccf5_500x0.jpeg)图片来自盖特(GETTR)
+首先，下载GTV、GNews和盖特应用软件的用户即可获得躺平币；其后，根据用户在GTV平台上的直播时长与观看人数量级，或者是作者在GNews和盖特平台上发表的文章数量与质量，依照对应的阅读量与点赞数等级的划分，相关用户可获取不同级别的躺平币奖励；而对于GTV观看用户和GNews及盖特的读者而言，通过积极参与直播互动，或活跃地对文章进行点赞、转发、留言，再加上后台对用户观看时长的统计，这些用户也可得到相应数量的躺平币回馈。
 
-那些关于关闭学校的所谓好处尚无现实的研究支持，决策者在未来考虑到类似的政策时应谨慎，特别是考虑到这些政策可能会给孩子和父母的福祉带来的巨大成本。日本学者建议，各国政府应实时监测中共病毒感染率和学校关闭情况，避免过度采取关闭学校措施。
+战友评论表示，G系列三个媒体平台的活跃度通过躺平币与全世界战友建立了更加紧密的互动联系，这样既可以提高平台的受众人数，又可将真相更多地传递给全球民众，并扩大爆料革命的影响力。
 
-信息来源：
+**参考阅读**: [https://www.gettr.com/post/pis20v4c9c](https://www.gettr.com/post/pis20v4c9c)
 
-[No causal effect of school closures in Japan on the spread of COVID-19 in spring 2020](https://www.nature.com/articles/s41591-021-01571-8)
 
-编辑：五饼二鱼
-![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-3.png)
+总编: Ivy001
+
+编辑: Irene木木
+
+校对/发稿: 卡夫卡的甲壳虫
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

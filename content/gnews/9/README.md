@@ -2,22 +2,22 @@
 ---
 
 
-## 秘翻在线：柳扶风称港人治港很失败 需要被中共管治
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1732433/)
+## 英国新增的心脏病患者多达30万
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1732543/)
 
-**撰稿：葛大饼**
+#### 翻译/撰稿：zzballack
 
-**责编：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screenshot-2021-12-08-170456.jpg)
-根据2021年12月7日 今日头条发表柳扶风批评香港公务员的文章，感叹香港回归20多年，“港人治港”很失败。柳扶风是香港知名媒体人、时事评论员，现任香港中观研究所副所长。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-2-5.jpg)图片来源：Sound Health and Lasting Wealth
+据《布雷特巴特新闻网》（Breitbart News）12月7日报道，伦敦的高级血管外科医生塔希尔·侯赛因（Tahir Hussain）说，英国新增的心脏病患者多达30万。但他却将此归咎于“大流行后的压力障碍（post-pandemic stress disorder，PPSD）”，绝口不提新冠疫苗。
 
-柳先生认为香港公务员体制和队伍有四大问题：1.政治问题，2.眼光眼界问题，3.故步自封能力问题4.官僚主义严重、懒政怠政。香港公务员体制来自英国文官制度，1997年前被吹得天花乱坠，然而遇到中共国的变化和内外环境的变化，香港公务员的内部运行和管理完全跟不上形势和大局的发展，柳先生强调香港未来方向铁定是融入国家发展大局、纳入国家治理体系，香港公务员的种种问题必须解决。
+在诺斯威克公园医院（Northwick Park Hospital）工作的侯赛因告诉《伦敦旗帜晚报》(Evening Standard)：“我在工作中看到，与血栓有关的血管疾病患者大幅增加，而且住院需要手术和医疗干预的病人比大流行之前年轻得多。我们也有证据表明，死在家里的一些病人死于肺栓塞和心肌梗塞等疾病。我相信这是因为他们在家里自我隔离，不与外界接触，无法得到他们所需要的帮助所致。”
 
-柳先生作为香港资深媒体人完全颠倒黑白，1997年前的香港是世界的香港，被中共接管后，一个优等生当然适应不了土共的流氓黑社会体制，过去两年发生在香港街头的残暴行径被全世界有目共睹，柳先生作为中共的小打手竟然质疑英国文官制度，那就是在质疑西方民主法治自由的制度，柳先生一心拥护的是以黑治国，以警治国的中共国，希望您不要早日跟着土共跑进火葬场。
+《伦敦旗帜晚报》还采访了前国民医疗服务体系（National Health Service）的高级心理治疗师马克·雷纳（Mark Rayner），雷纳声称英国可能有多达300万人受PPSD影响，导致出现冠状动脉疾病和其他心脏相关问题的患者急剧增加。
 
-**[新闻来源](https://www.toutiao.com/i7038765442072166949/?tt_from=copy_link&amp;utm_campaign=client_share&amp;timestamp=1638884039&amp;app=news_article&amp;utm_source=copy_link&amp;utm_medium=toutiao_ios&amp;use_new_style=1&amp;req_id=202112072133590101502202011A5D4E52&amp;share_token=C3ED73B4-5112-4506-9E92-4D732B750FBE&amp;group_id=7038765442072166949&amp;wid=1638947656605)**
+译者个人认为，英国的心脏疾病患者猛增绝对与新冠疫苗有关，而绝非什么大流行后的压力障碍。因为英国的疫苗接种率是全世界最高之一，英国政府目前正在推广接种的新冠疫苗包括辉瑞、莫德纳和阿斯利康。大量事实证明，这三种疫苗会导致接种者患上血栓和心包炎、心肌炎等心脏疾病。尽管如此，英国政府还在忽悠人们接种加强针，甚至在最近还向辉瑞和莫德纳额外采购了1.14亿剂新冠疫苗，以作为未来两年的加强针，这无异于大屠杀。希望疯狂的疫苗接种行动赶快停止，不然人类会遭遇灭顶之灾。
 
-
+新闻来源：[Doctors: UK Faces Up to 300,000 New Heart Condition Cases – Due to ‘Post-Pandemic Stress Disorder’](https://www.breitbart.com/europe/2021/12/07/doctors-uk-faces-up-to-300000-new-heart-condition-cases-due-to-post-pandemic-stress-disorder/)
 
  
 
