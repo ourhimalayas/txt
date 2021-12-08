@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/8/2021 6:59 PM (UTC)`
+
+12月8号：让这些爱中共的共产党的特务的所有的钱才和共产党的黑暗的交易曝光，以阳光之下让美国人民觉醒。<br/><br/>【https://www.dirt.com/moguls/finance/bo-shan-house-brentwood-1203303596/  单建伟儿子 Bo Shan /Leilei Shan( 单博/单磊磊)在2019年以2000万美元买下的豪宅，位于<br/>Brentwood, Los Angeles, Calif. https://www.dirt.com/moguls/finance/bo-shan-house-brentwood-1203303596/】
+
+---
+
 `@miles 12/8/2021 4:22 PM (UTC)`
 
 8/12/2021 “Hcoin To the Moon" Hits #1 🥇on 7 Countries' iTunes Rock Charts on the 6th Day of Launch 🎉🎉🎉🎉🎉🎉🎉<br/>Thank you very much to all our brothers and sisters in HongKong, Taiwan, New Zealand, Australia, Laos, Singapore and Finland!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1732743/<br/><br/>12月8号， Hcoin To the Moon上线第6天位列7国iTunes摇滚音乐榜首🥇！🎉🎉🎉🎉🎉🎉🎉<br/>感谢香港，台湾，新西兰, 澳大利亚，老挝，新加坡，芬兰的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏
@@ -145,13 +151,6 @@ On Dec. 6, 2021, hundreds of police and over 100 people from BBMG sent by the CC
 
 Dec. 6th, 2021, after the CCP, filled with fear of our Whistleblowers’ Movement, turned the Pangu‘s dragon head into a bird's head, a few hours ago, 150 bailiffs, more than 100 special police, and over 100 people from BBMG, supposedly entrusted by the Dalian court to execute the seizure of all assets of Pangu, did a complete “cleanup”. All the female employees who were changing shifts in the dormitory in their pajamas were driven to the road, confiscated all their phones and belongings; throwing my old father, who had a stroke, out of the house and is now wandering on the street. All the thousands of employees, residents and guests were thrown out of the Pangu Hotel. The whole scene became a great arrest against humanity! I will have a live broadcast on this soon!
 ![img](https://media.gettr.com/group23/getter/2021/12/06/15/2e07146c-9b83-c79c-1ba2-fdd0b4d27767/f89fe37532ba8854831a4795699bc4c2.jpg)
-
----
-
-`@miles 12/6/2021 2:56 PM (UTC)`
-
-12月6号，在继中国共产党充满着对我们爆料革命的恐惧，将盘古龙头变成了鸟头之后，就在几个小时前，150个法警，100多个特警，100多个北京金隅的人，所谓受大连法院委托执行对盘古的所有资产查封，对盘古酒店进行了全面清理，并将当时所有的正在宿舍换班的女员工，穿着睡衣就被赶到了马路上，手机等所有东西全部没收，并将我中风的年迈的父亲也撵出了房子，现在流落街头，还将数以千计的全部员工，所有的住户和客人全部撵出盘古酒店整个公寓，整个现场成为了丧失人道，灭绝人性的一场大抓捕。这一切就在刚刚发生，稍后我会就此进行直播！<br/><br/>
-![img](https://media.gettr.com/group1/getter/2021/12/06/14/22993a42-9f9d-7148-fc4b-c56d24eab846/121d527163abd39edf83b94a458e4532.jpg)
 
 ---
 
