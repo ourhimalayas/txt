@@ -2,44 +2,24 @@
 ---
 
 
-## 世卫组织对新冠病毒的“血浆疗法”发出警告
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1732097/)
+## 参议员里克·斯科特呼吁NBA抵制北京冬奥会
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1732189/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+#### 搜集：彩虹       
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/GettyImages_1266352379.0.jpg)
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-355.png)图片来源：国会山报
+12月7日，《新闻极限》发布文章，报道周一时，由于中共国侵犯人权，来自弗罗里达走州的参议员里克·斯科特（Rick Scott）致函NBA专员亚当·西尔弗（Adam Silver），呼吁举行会议，拟将中共国冬2022年的奥会中踢出去。
 
+斯科特在信中表示，“我写信请求在尽快举行会议，讨论NBA是否（继续）参与中共国（相关活动）。我相信你们知道，因为我一直关注联盟在使用中国共产党制造的服装，关注达里尔·莫雷发表关于香港抗议活动的评论后（中共）对其打击的决定，关注NBA学院对年轻球员的虐待，关注贵组织对共产党中国可怕的人权侵犯和对新疆维吾尔族穆斯林的持续种族灭绝保持沉默，我一直在发表相关意见”。
 
- 
-图片来源:  Guillermo Legaria/Getty Images
+斯科特指出：“我还敦促过NBA支持我的呼吁，将2022年冬奥会从共产主义中国移出，移到一个真正尊重人权的国家。可悲的是，你们在这方面也选择了沉默”。
 
+针对相关的证据和事实，这位参议员在信中说：“我想说的很清楚，我简略陈述的这些问题既不是推测的，也不是可以讨论的，（因为）这些都是事实。NBA没有做任何事情来对抗中国共产党，而且在某些方面采取的行动似乎没有任何目的性，只是为了取悦习近平凶残暴虐的中共政府”。
 
-#### 编译 ：小红帽
+**新闻来源**
 
-世界卫生组织（WHO）建议不要使用含有新冠病毒（Covid-19）抗体的血浆来治疗该病毒患者，因为该疗法既无效又浪费资源。
-
-在《英国医学杂志》周一晚间发表的一份咨询报告中，世卫组织专家警告说，“不建议对新冠病毒患者输入已康复者的血浆。该疗法称为恢复期血浆疗法”。
-
-世卫组织针对轻症患者发布了一项“强烈建议”，并对那些患有严重或危重疾病的人发布了一般性建议。
-
-“尽管该疗法最初的前景不错，但目前的证据显示，并没有提高病人的生存率，也没有减少对机械输氧的需求，而且该疗法的给药成本很高，也很费时，”该咨询机构声明引用了来自16项试验和超过16000名患者的证据。
-
-美国国立卫生研究院在8月做出了类似的裁决，临床试验表明该疗法 “在出现症状的第一周内，对患有新冠病毒的高风险门诊病人进行治疗，并不能阻止新冠病情的发展”。
-
-参与该试验的克利夫顿卡拉威（Clifton Callaway）博士表示，研究人员希望血浆疗法“能使病情减少10%”，但观察到的结果却不到2%。
-
-美国食品和药物管理局在2020年8月发布了新冠病毒恢复期血浆疗法的紧急使用授权，但随后在2月更改了其使用限制。
-
-新闻来源：[WHO warns against ‘initially promising’ Covid therapy — RT World News](https://www.rt.com/news/542400-who-covid-plasma-warning/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[Sen. Rick Scott Urges NBA Support in Moving Olympics Out of China](https://www.newsmax.com/newsfront/nba-uyghur-muslims-human-rights/2021/12/07/id/1047739/)
 
  
 

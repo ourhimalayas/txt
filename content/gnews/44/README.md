@@ -2,44 +2,34 @@
 ---
 
 
-## 全球数千亚马逊用户遭遇网络中断
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1731589/)
+## 中共精神分裂：来不来无所谓，不来冬奥会就报复
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1731717/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+#### 整理编辑：东京樱花团/peterwong
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Copy-of-omicron.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/精神分裂.png)[图片来源](https://upload.wikimedia.org/wikipedia/commons/3/39/August_Natterer_Meine_Augen_zur_Zeit_der_Erscheinungen.jpg)
 
+美国政府星期一（2021年12月6日）宣布外交抵制北京冬季奥运会，以兑现“捍卫人权”的承诺。中共国官员们对此做出了相互和前后矛盾的反应，使得中共的处境更加尴尬。
 
- 
-图片来源:  The Sun
+白宫发言人萨琪在做出这项宣布时说，“我们将不会为这场运动会凑热闹。面对中共国严重的践踏人权行为和在新疆的暴行，美国外交官和官方代表如果出席就是将这些赛事视为一切照常，这是我们绝对不能做的。”萨琪是在中国时间星期一深夜发布这一消息的。但中共的官员们没有立即对这一广受关注的宣布立即作出回应。
 
+在华盛顿，中共国驻美国大使馆发言人刘鹏宇发出推文说，“政客们呼吁抵制2022年北京冬季奥运会是为了自身政治利益和故作姿态。事实上，没有人关心这些人来不来。这对北京冬奥会成功举行不会有任何影响。”
 
-#### 编译 ：小红帽
+不过，刘鹏宇的上司们似乎很在乎美国是否外交抵制北京冬奥会。
 
-亚马逊网络服务（AWS）的故障正在导致整个互联网上出现连环问题，许多网站显示出“错误网关”的字样。Downdetector显示问题在太平洋时间12月7日上午8点后出现。
+中共国外交部发言人战狼赵立坚星期二称，中方强烈反对美国宣布不派官员出席北京冬奥会，表示已向美方提出严正交涉，并会坚决反制。当被外媒追问中方将具体采取什么反制措施时，他说，“美方将为其错误行径付出代价，请大家拭目以待。”
 
-亚马逊主网站已经有超过20,000份中断报告，AWS则有11,000份中断报告。Downdetector的热图显示问题在美国东部最为严重。
+美国外交抵制北京冬奥会是一段时间来人们预料之中的决定，但是拜登政府此前未作出宣布据信一方面是为了不影响拜登总统与习近平上个月的视讯会议，另一方面是需要时间与美国的盟友协调如何应对北京冬奥会。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/rt.png)图片来源：RT NEWS
+美国国会众议院外交关系委员会首席共和党人迈克尔·麦考尔(Michael McCaul)星期一在一份声明中说：“我敦促拜登总统鼓励美国的盟友和伙伴加入我们的外交抵制，要国际奥委会和中共为其无视人权而承担责任。这些奥林匹克赛事是让中共将其包括种族灭绝在内的人权暴行正常化的一个关键机会，而自由世界必须团结起来对其说不。”
 
+在白宫星期一作出外交抵制北京冬奥会的宣布之后，美国的盟国们没有立即跟进，但一些盟国预计不久后会做出类似的宣布。
 
-由于很多网络基础设施使用AWS进行运营，从麦当劳的应用程序、迪士尼+流媒体服务，到支付网络Venmo，其他服务都出现中断的报告。
+消息来源:[美国宣布外交抵制北京冬奥会 中方扬言美国将“付出代价”](https://www.voachinese.com/a/reaction-us-diplomatic-boycott-beijing-olympics-20211207/6342378.html)
 
-约会应用程序Tinder、体育赌博应用程序FanDuel和脸书也出现了故障报告激增的情况。
-
-截止到太平洋时间12月7日上午8点26分，亚马逊表示，中断的原因是美国东部地区的 “API和控制台问题”。全球控制台登陆页面位于同一地区，也同样受到影响。亚马逊表示，已经“确定了根本原因”，并正在“积极努力恢复”。
-
-新闻来源：[Amazon down for thousands worldwide — RT World News](https://www.rt.com/news/542483-amazon-down-thousands-users/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团 / 知了知了
+发布：东京樱花团 / 野猫*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

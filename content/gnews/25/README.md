@@ -2,49 +2,24 @@
 ---
 
 
-## 人权组织报告亚洲区台湾自由度最高
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1731901/)
+## 日本年度GDP实际下降3.6%
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1731982/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-5-768x103-4.jpg)
+撰稿：东京樱花农场/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-341.png)[图片来源](https://www.jiji.com/jc/article?k=2021120800311&amp;g=eco&amp;p=20211208ds60&amp;rel=pv#:~:text=%E5)
+来自《时事通信社》8日网站消息，12月8日内阁办公室公布的2021年7月至9月期间季节性调整的国内生产总值（GDP）修订版，扣除价格变化的影响，实际同比下降0.9%，如果这种增长速度持续一年，按年计算则下降3.6%。
 
-作者：纽约香草山 医疗部 云豹
+这是对上个月公布的初步数据（年率-0.8%，年化3.0%）的下调。对消费支出的下调是在对中共病毒传播的统计处理进行审查后作出的，其中删除了季节性因素。
 
+这是两个季度以来的第一次负增长。由于供应链的中断导致汽车产量大幅减少，消费和出口等主要需求项目似乎已经崩溃了。新的变异毒株–Omicron的出现，更是增加了未来的不确定性。
 
+作为国内需求支柱的个人消费同比下降了1.3%（初步数据为下降1.1%）。部分原因是，由于供应短缺，汽车等耐用消费品比初步数据有所下降。私营部门库存变化对国内生产总值变化的贡献也从初步报告的0.3%下调至0.1%。
 
-当地时间12月8日，非政府人权组织CIVICUS在曼谷发表全球公民活动空间的自由程度报告，台湾连续3年被列为亚洲地区唯一自由度「开放」的国家。
+信息源：[ＧＤＰ、年３．６％減に下方修正　消費、一段の落ち込み―７～９月期改定値](https://www.jiji.com/jc/article?k=2021120800311&amp;g=eco&amp;p=20211208ds60&amp;rel=pv#:~:text=%E5)
 
-CIVICUS今天发布「2021年受威胁的公民力量报告」（People Power Under Attack 2021），该调查是从言论自由、新闻自由、集会自由等多个层面来评估全球各国公民的活动自由度。该自由度评比区分为5级，最好的一级是「开放」（Open），接着分别为「狭碍」（Narrowed ）、「受阻」（Obstructed）、「压制」（Repressed）、「封锁」（Closed）。
-
-亚洲地区26个国家中，台湾是唯一被评比为第一级、自由度开放的国家；日本、蒙古、韩国被列为第二级、自由度狭碍；中共、北韩、越南、寮国等4个国家被评比为第五级、自由度封锁。
-
-报告中指出，台湾保障所有人民的基本自由，政府容忍公民社会团体的批评，异议分子可以自由表达意见而不需要害怕被入罪或是攻击，民众可以和平集会，也可以没有阻碍、自由的组织和运作公民社会团体。
-
-台湾从数十年前的威权戒严，一党专政的年代，经过民众持续不断的抗争奋斗、流血、牺牲生命，才慢慢争取到今日相对自由的环境。所以自由是要民众自己努力去争取，不会凭空由天上掉下来，这是所有追求自由的民众都要具备的决心。
-
-(本文为作者观点，不代表G NEWS立场)
-
-新闻连接：
-
-[https://www.cna.com.tw/news/firstnews/202112080021.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/firstnews/202112080021.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec.png)
-
-
-
-校对/编辑/发稿：云豹
-
-**更多信息，更多关注**
-
-[**纽约香草山农场**** GTV****–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

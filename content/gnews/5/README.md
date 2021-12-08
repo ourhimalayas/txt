@@ -2,42 +2,22 @@
 ---
 
 
-## 有声|文贵先生最新爆料：关于新中国联邦人的三大利好消息
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1732070/)
+## 澳大利亚宣布外交抵制北京冬奥会
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1732175/)
 
-配音：香草山香港部 – 文凯琳
+#### 撰稿；彩虹
 
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-14.jpg)图片来源：FT
+北京时间12月8日，《国会山报》引述《路透社》报道，澳大利亚已经宣布，将与美国一起对明年北京冬奥会进行外交抵制。
 
+周三，澳大利亚总理斯科特·莫里森（Scott Morrison）表示，中共国没有做出任何尝试来回应澳大利亚的几个问题，包括涉嫌侵犯人权。他说，外交抵制仍将允许澳大利亚运动员参加奥运会，此举与美国的做法类似。“因此，毫不奇怪的是，澳大利亚政府官员不会去中国参加这些赛事。不过，澳大利亚运动员将会去”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-1.png)
+另据BBC报道，莫里森说：“我这样做是因为这符合澳大利亚的国家利益，这是正确的做法。”
 
+**新闻来源**
 
-
-12月1日，文贵先生在最新的大直播节目中公布了未来有关新中国联邦人的三大利好消息。这三个消息都在未来保障新中国联邦人的人身与财富安全方面起到了关键性的作用，具有着里程碑式的意义。
-
-第一，在全球金融实力排名前三的某欧洲国家即将颁布给喜联储世界上的首个数字银行牌照。这意味着喜币即将成为第一个拥有主权国家颁发牌照的合法加密货币。文贵先生说，这一块数字银行牌照意味着新中国联邦自己的国家银行和储备系统受到了其他主权国家的认可，同时也意味着中共将与一个欧洲强国彻底决裂。这块数字银行牌照的价值甚至超过目前整个喜联储的市场估值。
-
-原文链接：[文贵先生最新爆料：关于新中国联邦人的三大利好消息](https://gnews.org/zh-hans/1727868/)
-
-音频处理：喜山必胜Maverick
-
-发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/rl-1-556x720.png)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-1.png)
-
+[Australia joins US in diplomatic boycott of Beijing Olympics](https://thehill.com/policy/international/asia-pacific/584813-australia-joins-us-in-diplomatic-boycott-of-beijing)
 
  
 

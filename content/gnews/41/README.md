@@ -2,32 +2,34 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月7日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1731630/)
+## 立陶宛向欧盟投诉中共对其报复性制裁
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1731785/)
 
-作者：香草山翻译部
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3-19.jpg)[图片来源](https://www.voachinese.com/a/china-lithuania-20211201/6335512.html)
+立陶宛外交部长兰斯伯吉斯（Gabrielius Landsbergis）星期一（12月6日）致信欧盟委员会和外交部门，抱怨中共国政府以不宣而战的方式阻止立陶宛制药、电子和食品公司的产品进入中共国市场。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-109-1280x172-1-2-1.jpg)
+兰斯伯吉斯在信中说，中共国当局并没有通知立陶宛要实施制裁，却拒绝了中共和上海办公室提出的货物清关的要求。这使“中共国出于政治动机的经济压力上升到前所未有的高度，”兰斯伯吉斯说。
 
+立陶宛不顾中共的压力，坚持发展与台湾的关系，并同意台湾最近以“台湾”名义在维尔纽斯设立代表处引发中共国政府的震怒。中共不仅召回驻维尔纽斯的大使，更将两国外交关系从大使级降到代办级。中共国外交部长王毅更指责立陶宛在国际上制造“一中一台”，对中共国发起政治挑衅，形成恶劣先例。而民族主义倾向严重的中共国官媒《环球时报》更扬言要对立陶宛实施严厉的制裁和反击。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1207text-SC.png)
-校对：Stay文苑
+“这些针对欧盟一个成员国的行为直接影响到整个欧盟以及我们共同的贸易政策。因此我善意地请求你们出面，帮助立陶宛解决目前的状况，”兰斯伯吉斯在信中表示，其实在立陶宛在今年5月退出中共国与中东欧“17+1”合作机制后，中共对立陶宛的经济惩罚就已经开始。
 
-编辑：Stay文苑
+而立陶宛同意台湾以“台湾”名义设立代表处后，中共的制裁就更为明显。隶属中共国国家铁路集团的“中铁集装箱”停驶了一周一班直达立陶宛的铁路货运列车，有些立陶宛出口商已经接不到中共国新的订单，多个不同产业也已传出中方停止更新或批准进口许可，或对产品提出莫须有的抱怨，例如来自立陶宛的农作物有病虫害等等。
 
-发稿：Stay文苑
+中共除了在经贸问题上报复立陶宛之外，两国文化交流也被突然喊卡。立陶宛驻中共大使馆文化参赞伊万诺斯卡斯（Tomas Ivanauskas）曾在接受立陶宛国家广播电视台（LRT）采访时表示，目前中共国境内所有与立陶宛相关的文化艺术活动都已被叫停，连书籍出版也受到阻碍。
 
-视频参看：[12.7  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61b00a09bbd75f62e53233b6)
+“在欧盟层级上对此做出强烈反应很有必要…以便向中共国传递一个信号，出于政治动机的经济压力是不可接受的，”兰斯伯吉斯在致欧盟委员会和外交部门的信中指出。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-69.jpeg)
+立陶宛不顾中共打压力挺台湾的行动不仅在欧盟内部受到广泛的喝彩与支持，而且也得到美国政府的高度赞赏。为了支持立陶宛应对中共的贸易制裁，美国政府上个月向维尔纽斯提供了6亿美元的出口信贷。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+消息来源:
 
+[因挺台湾遭中共国霸凌，立陶宛寻求欧盟团结应对经济胁迫](https://www.voachinese.com/a/Lithuania-seeks-EU-protection-from-Chinese-bullying-20211207/6342941.html)
+
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

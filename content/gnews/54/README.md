@@ -2,32 +2,31 @@
 ---
 
 
-## 白宫正式宣布外交抵制北京冬奥会
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1730569/)
+## 新中国联邦一纸文书，以美国为首的西方世界开启抵制北京冬奥会之路
+` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/1731082/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月6日，白宫发言人普萨基在例行记者会上公布，鉴于中共在新疆正在进行的种族灭绝，反人类，以及其他侵犯人权的行为，拜登政府将不派任何外交或官方代表，参加北京2022年冬季奥运会和残奥会。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/9-6.jpg)
-普萨基说，拜登政府已将该决定告知美国盟友，各国将做出自己的决定。政府不会通过禁止美国运动员参赛来 “惩罚 “他们。
+新西兰伊甸农场Gnews组 财经G乐部 – 亚伦
 
-拜登这一决策与上周媒体的预测相吻合。此前，因中共国在新疆、西藏、香港犯下严重侵犯人权的罪行，并计划武力侵犯台湾，一些鹰派共和党议员一直向拜登政府施压。随后，彭帅事件在体育界掀起抵制声浪。白宫外交抵制冬奥会政策终于落地。民主党众议员蒂姆·瑞安评论说，“抵制力度不够”。
 
-参考链接：[White House announces diplomatic boycott of Beijing Winter Olympics over human rights concerns](https://www.nbcnews.com/politics/white-house/white-house-announces-diplomatic-boycott-beijing-winter-olympics-over-human-n1285419?cid=sm_npd_nn_tw_nw)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+美国白宫于12月6日星期一正式宣布，由于中共对人权的侵犯和在新疆种族灭绝的行为，美国政府将外交抵制明年在北京举行的冬季奥运与残奥运，而国际奥委会表示”尊重美国的决定”。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/ezgif.com-gif-maker.jpg)图片来源REUTERS – THOMAS PETER
 
-总编：Ivy001
-编辑：Kathy文艺
-校正/发稿：Fei797
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭文贵先生也在第二天的Gettr视频上与以回应，很巧合，在中共突击盘古把自己中风的92岁父亲和上千号员工赶到零下4度的北京大街上的几个小时内，美国总统拜登经受住中共的一再威胁、一再的出高价收买的情况下，正式官方宣布美国外交抵制北京举办的冬季奥运会。只要美国官方不参加奥运会，奥运会就不能代表世界，结果是滑稽的成为中国政府自娱自乐的游戏。
+
+不仅美国一个国家官方外交抵制，据郭文贵先生所知，欧洲很多国家、加拿大和日本也会做出同样的选择，都会坚定地进行官方抵制。然而，世界上最早、也只有一个人这么说过这样的话，即郭文贵先生。
+
+早在今年的8月5日，郭文贵先生代表新中国联邦 (NFSC) 数以百万计的公民签署了第一封官方文件，坚决谴责中国共产党（CCP），并要求国际奥委会取消在中国北京举行的 2022 年冬季奥运会。如今世界头号大国的美国总统正式官宣外交抵制，是对新中国联邦致函的一种肯定，抵制冬奥会、消灭中共已经成为世界绝大数国家维护正义秩序的必须。
+
+如此看来，习想武统台湾，花重金营造冬奥会的万国来朝，成就千古一帝的梦想破灭了，而且一切只会让北京更加颜面尽失。
+
+况且，西方宗教人士已经定义这场毒疫苗的行动是全球共产主义妄图统治全人类而发动的生物大战，而中共是世界共产主义的最高代表。如此看来，一切都在朝着灭共的路上前进。
+
+\*这是对北京冬奥会的外交抵制，参加运动会的美国运动员将不受影响。
+
+郭文贵先生代表新中国联邦签署的第一封官方文件有关要求取消北京冬奥会的Gettr链接：[https://gettr.com/post/p6ra53](https://gettr.com/post/p6ra53)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,43 +2,38 @@
 ---
 
 
-## 中共为报复郭文贵先生及爆料革命再次残暴洗劫盘古大观
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1731987/)
+## 维多利亚州的大流行病法案在总督递交皇家御准后正式成为法律
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1732138/)
 
-#### 撰稿：日本东京方舟农场  幽蘭自得
+澳洲新闻时事动态，尽在雅典娜【澳洲热点】
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2021.12.8-4-维多利亚州的大流行.png)图片来源：NCA NewsWire/Paul Jeffers
+**翻译：小鱼儿**
+**编辑：Mttfly**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/FDBC9AAF-59DF-46D4-AC85-E7687249CF9B.jpeg)（图片来自GETTR）
+维多利亚州颇具争议的大流行病法案在周二已成为法律。因为紧急状态的权力将于12月15日到期，州长丹尼尔·安德鲁斯可能会根据《2021年公共卫生和福利修正案（大流行病管理）法案》宣布大流行病命令。
 
-12月6日，郭文贵先生在盖特上发布盖文和视频，揭露中共出于对新中国联邦及爆料革命的恐惧，再次实施打击报复。继将盘古大观的“龙头”变成“鸟头”之后，又于当日对盘古资产进行全面查封，并且对郭先生的家人及盘古酒店和公寓的员工进行非法抢劫和虐待。
+维多利亚州将成为澳大利亚第一个拥有大流行病专门立法的州，为维州政府提供了管理卫生紧急情况所需的法律框架，包括疫苗授权和口罩法规。
 
-郭先生说，当日有大约150名法警、100多名特警以及100多个北京金隅公司的人声称，受大连法院委托执行对盘古所有资产的查封，并对盘古酒店进行全面清理。
+该法案以20票对18票通过。对新权力最重要的修正是建立一个独立小组以审查所有的拘留令。
 
-据郭先生描述，在执行查封的过程中，这帮穿着警衣的畜生，将当时正在宿舍换班、仅穿着睡衣的盘古女员工全都赶到马路上，手机和其它东西全部被没收。此外，他们还将数以千计的盘古员工以及所有的住户和客人全部撵出盘古酒店和公寓。更恶毒的是，中共的这些打手们还将郭先生患中风的年迈父亲也撵出了房间，使九十多岁的老人在如此严寒的天气中流落街头，下落不明。
+修正案还包括成立一个新的议会联合委员会来审查大流行的命令，该委员会将被授权提出不允许的动议，但这些动议需要在议会中以三分之二的多数通过。
 
-郭先生愤怒地指出，中共就是如此邪恶，连妇女、老人、孩子、残疾人都不放过。这是一场丧失人道、灭绝人性的大抓捕。
+该法案中删除了较重的刑罚。违反该法案的行为不再会被判处监禁，但是，不遵守规定仍会被处以10,904澳币的罚款。
 
-不过，郭先生同时也表示，中共的这次行动恰恰说明了他们对爆料革命的恐惧。
+预计在未来几周内，将有更多反对大流行病法案和疫苗授权的抗议活动，组织者发誓要“每天”集会。
 
-在此之前，中共同样出于对郭先生领导的日益壮大的爆料革命和新中国联邦的恐惧，于今年10月下令改建盘古大观，将盘古的“龙头”变成“鸟头”。
+反对党在10月份誓言，如果他们在下一次选举中被选上，他们将废除这项立法。他说：“这是一个民主国家。人们为这个民主制度而奋斗和牺牲。司法独立是如此的重要。”
 
-中共这个全世界最邪恶、宣称自己是无神论者的组织，却迷信地试图通过斩掉盘古的“龙头”来破坏郭先生的“风水”，为自己“续命”。岂料，这正应了中共最喜欢说的一句话——“搬起石头砸了自己的脚”。
+**原文链接：**[Victoria’s pandemic bill officially becomes law after Governor Linda Dessau gives royal assent to legislation](https://www.skynews.com.au/australia-news/coronavirus/victorias-pandemic-bill-officially-becomes-law-after-governor-linda-dessau-gave-royal-assent-to-legislation/news-story/4d6281c9cdda2435e818268f7fba1a8c)
 
-正如郭先生所言：“把龙头给斩了．祭出了真正的能量场”；“天助我新中国联邦呀 ……共产党真的完球蛋喽！”
+**发布：去中心化Math**
 
-*参考链接：*
-
-1. [*https://www.gettr.com/post/piudoe19f2*](https://www.gettr.com/post/piudoe19f2)
-2. [*https://www.gettr.com/post/pixegu7f81*](https://www.gettr.com/post/pixegu7f81)
-3. [*https://www.gettr.com/post/pehjcxfdb9*](https://www.gettr.com/post/pehjcxfdb9)
-
-
-* * *
-
-*素材采编：幽蘭自得*
-
-*编辑：青衣青青*
-
-*发布：miumiu*
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
