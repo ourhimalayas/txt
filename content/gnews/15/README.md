@@ -2,17 +2,19 @@
 ---
 
 
-## 9000亿债务明年到期，各房企年末掀起配股潮
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1731491/)
+## 雷军退出小米科技公司法人
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1731567/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Unknown-12.jpg)9000亿债务明年到期，各房企年末掀起配股潮 网络图片
-据新浪财经12月7日报道，龙光和世茂两家房企7日发布配股公告。龙光拟募资总额约11.70亿港元，用于投资和一般运营；世茂拟募资净额11.72亿港元，用于日常运营以及偿还债务。进入2021年最后一个月，房企们开始为新一轮偿债做准备。
+![雷军_最美奋斗者](https://lh3.googleusercontent.com/proxy/0hmVwyUEWZIfVZp7tC_6pI0jDvXKDgKKr1iE3sGX9zCrbbUHKwk9Kyjgt7w6fRKp4_4xUIauBjgBuXxDleODzLbUIlbeLjsn)*雷军。资料照*![](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2021%2F1207%2F6d11e92fj00r3qp0h000mc000go0089m.jpg&amp;thumbnail=690x10000&amp;quality=75&amp;type=jpg)
+据网易新闻12月7日报道，小米科技（武汉）有限公司发生工商变更，法人代表由雷军变更为曾学忠，同时雷军退出执行董事兼总经理职位。
 
-11月分别有奥园、融创及旭辉三家房企进行配股。其中融创募集金额高达50.85亿港元。加上龙光、世茂，下半年房企配股融资总额超过124亿港元。而房企麾下共有碧桂园服务、旭辉永升服务、世茂服务、融创服务四家物管公司在10月和11月进行配股融资。其中，碧桂园服务融资总额达到80.03亿港元。
+小米科技(武汉)有限公司成立于2017年9月，注册资本2. 1亿元，由小米通讯技术有限公司全资控股。经营范围包含数据处理和存储服务；房地产开发经营等。雷军目前依然任小米科技董事长兼CEO，同时兼任金山、YY、猎豹移动等三家上市公司董事长。2021年11月18日，小米汽车科技有限公司成立，法人代表雷军，注册资本10亿人民币，由小米科技有限责任公司全资持股。经营范围含新能源整车制造、技术研发等。首款小米汽车预计会在2024年实现量产。
 
-自房地产融资收紧以来，房企屡屡发生违约事件，2022年房企偿债规模仍将维持在9000亿左右。12月6日，中国人民银行宣布于2021年12月15日进行降准，意味着有约1.2万亿元资金入市，这让房企看到了希望。为了活下去，房企抓紧配股融资。但是，面对巨大的房地产泡沫，中共不可能强撑多久。最终房地产一定会倒下，在压垮中共经济的同时，会把世界经济拖入黑暗期。
+雷军信心满满要为小米汽车而战。新能源汽车是未来的趋势，全世界都在积极发展，力求占据未来的市场。中共也想要抢占一块领地。
 
-新闻参考链接：[https://k.sina.cn/article\_1638782947\_61add7e3027015x6t.html?from=finance&kdurlshow=1&sinawapsharesource=newsapp](https://k.sina.cn/article_1638782947_61add7e3027015x6t.html?from=finance&amp;kdurlshow=1&amp;sinawapsharesource=newsapp)
+新闻参考链接：[https://c.m.163.com/news/a/GQKPNNRK0527A5AV.html?spss=newsapp](https://c.m.163.com/news/a/GQKPNNRK0527A5AV.html?spss=newsapp)
+
+编辑：胖丁
 
 * * *
 
@@ -24,8 +26,6 @@
 编辑：【英国伦敦喜庄园编辑部】
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
 
  
 

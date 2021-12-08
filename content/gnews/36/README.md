@@ -2,29 +2,44 @@
 ---
 
 
-## 七哥谈区块链技术
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1731173/)
+## 完全接种的美国第一例Omicron病人有话说
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1731246/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+编译： Jenny Ball
 
-必须得死啊是吧，它那是更新换代。数字货币是人类的金融，精神，智慧，视野，技术的更新换代的不可逾越的，而且是此人类最伟大的一个，区块链技术不是光货币呀，区块链是所有的加密信息都是区块链，厉害了去了。再加上量子技术，量子电脑，量子力那就过去的所有神话都变成了现实当中。那么从这块儿说什么呢，那就看到这所有美国的，它没说我一定要把，你觉得三四年前你知道说什么吗？数字货币，当时一说比特币，骗局！Coinbase，骗局！币安，骗局！每个币诞生都被称为骗局，然后还crime，犯罪啊。现在你见还有人敢说这话吗？这要有一个人敢说比特币是犯罪集团，你看有人敢的吗？有一堆人会告死他。因为那已经成了一万多亿美元的资产，你敢说跌下来，我告死你。有敢说的吗？有谁敢说把这比特币或数字货币说我变成让你消失。技术上你做不到，政治上你做不到，权力你还做不到。连共产党都发现，噢！我让你消失做不到，老子就当老大吧，天下一切为我所有，搞数字化人民币，用数字化人民币区块链干掉美国美元。共产党发现了，你觉得这个世界还能被，你把美国不让数字货币的时候，他都搞数字人民币了，你不是死球了嘛。但这种挣扎，这种较量，这种愚昧无知，最后一番番地较量，最后就是优胜劣汰。而不是共产党的是啊，是优汰劣胜，是吧？王岐山坐那。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/nyc-testing-1200x800-700x420-5.jpg)行人于 2021 年 12 月 2 日在纽约市通过 COVID-19 测试帐篷。（John Minchillo/美联社照片
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+一名 30 岁的明尼苏达州男子周一透露，他接种了加强剂，是最早确诊的 COVID-19 Omicron 变体病例之一。
 
-**关注我们**
+彼得·麦金（Peter McGinn）说，他于 11 月底参加了纽约市的一个动漫大会，后来当他回到明尼苏达州时，他的 COVID-19 检测呈阳性，这种疾病是由中共病毒引起的。
 
-Discord 账号
+麦金在周一发表的一次采访中告诉美国广播公司新闻：“和我在一起的人感到非常安全，所以我从来没有想过自己感染了新冠病毒。” “我有点吃惊。”
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+麦金说，他和其他完全接种疫苗的参加者去了动漫活动。他告诉** ABC**，那群人中有一半人的病毒检测呈阳性。
 
-Gettr 账号
+麦金还告诉《星际论坛报》，阳性的 COVID-19“让我感到很不舒服，因为我真的没有感觉不对劲”，并补充说，他出现了轻微的症状。他说，明尼苏达州卫生部几天后打电话给他，告诉他说他感染了 Omicron 变种。
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+麦金继续说，该机构要求提供与他在一起的人的姓名，以及他们住在哪里以进行追踪。
+
+“老实说，我一直感觉很好，”他说，并补充说，他相信疫苗有助于他的康复。 “我对看到结果更感兴趣，比如，是否有更多的人得到这个结果，以及他们对它的反应。”
+
+上周在加利福尼亚湾区报告了第一例确诊的 Omicron 病例。关于此人的信息很少被披露。
+
+到目前为止，根据对新闻报道的分析，在美国大约三分之一的州中发现了 Omicron 变体。此前，世卫组织将这种菌株描述为“令人担忧的变种”。但警告说，人们对它是否更具传染性或导致更严重的症状知之甚少。
+
+世界上任何地方都没有与 Omicron 变体相关的死亡。
+
+**点评：由于“疫苗”给人的误导，使得接种了实验药物的人们处在更危险之中！**
+
+参考资料：[theepochtimes] [Fully Vaccinated Man Who Became One of the 1st American Omicron Cases Speaks Out](https://www.theepochtimes.com/fully-vaccinated-man-who-became-one-of-the-1st-american-omicron-cases-speaks-out_4141206.html?utm_source=CCPVirusNewsletter&amp;utm_medium=email&amp;utm_campaign=2021-12-07)
+
+* * *
+
+*审核：文乐
+校对：信心满满
+发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH..jpeg)
 
  
 
