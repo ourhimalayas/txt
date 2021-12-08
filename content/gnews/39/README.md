@@ -2,50 +2,30 @@
 ---
 
 
-## 韩国当日新增感染及危重症数双创新高
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1733152/)
+## 鉴于人权暴行 美国官员抵制北京奥运会
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1733177/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-5-768x103-6.jpg)
+本文作者：Rebecca (一切心皆不可得！)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image001.jpg)
+据路透社报道，12月6日，白宫表示，由于中共在新疆侵犯人权和暴行令人震惊，美国政府官员将抵制在北京举行的2022年冬奥会。
 
-作者：纽约香草山 医疗部 云豹
+这肯定会使已经处于几十年来最低点的关系更加紧张。
 
+虽然几周前，拜登和中共国领导人习近平进行过视频会晤，努力稳定两个超级大国之间的紧张关系，但乔-拜登总统的政府强调了华盛顿所说的中共对中国西部地区新疆的少数民族穆斯林的种族灭绝行为。
 
+美国国务卿安东尼-布林肯曾表示，美国就北京奥运会的 “共同方针 “与盟国进行了磋商。目前还不清楚盟国是否会跟随美国的步伐。
 
-当地时间12月8日，韩国中央防疫对策本部公告，至8日零时，韩国境内新增中共病毒确诊人数7175位，危重症病人数840例，双创新高记录。因感染死亡人数新增63例，累计达4020例。
+中共国驻华盛顿大使馆称抵制行动是 “政治操纵”，将以”坚决的反制措施”采取报复——但并未具体说明是什么措施。
 
-新增境内感染变异株Omicron人数2例，累计38例。
+中共国大使馆发言人刘鹏宇说，”事实上，没有人会关心美国人是否来，这对北京2022年冬奥会的成功举办不会有任何影响”。
 
-至12月6日为止，韩国完整疫苗接种率已达80%。在11月初，韩国政府认为完整疫苗接种率已达70%，应该可以有效的控制疫情，所以就放松部分的管制措施。随后的结果就是每日新增感染人数及危重症人数频创新高。
+[新闻来源链接](https://www.reuters.com/lifestyle/sports/us-officials-boycott-beijing-olympics-cnn-2021-12-06/)
 
-韩国政府已经从12月6日再度加强管制措施，限缩私人聚会人数与公共设施的营业时间，希望能将疫情控制下来。
+【文章仅限作者个人观点】
 
-疫苗注射无法控制疫情，在韩国又再次得到验证。
+审核校对：sherryok (水云间)
 
-(本文为作者观点，不代表G NEWS立场)
-
-新闻连接：
-
-&lt;https://www.cna.com.tw/news/firstnews/202112080044.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share&gt;
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec.png)
-
-
-
-校对/编辑/发稿：云豹
-
-**更多信息，更多关注**
-
-[**纽约香草山农场**** GTV****–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+上传排版：漂流瓶
 
  
 
