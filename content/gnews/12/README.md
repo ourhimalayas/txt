@@ -2,53 +2,48 @@
 ---
 
 
-## 要把共产党海外的私生子女、家人及财富通通送进棺材去
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1735749/)
+## 特斯拉上海工厂销量连续第二个月下降
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1735798/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/002211-6.jpg)
-据[2021年12月08日 文贵大直播：拜登外交抵制冬奥会；盘古物业接管惊世界；中共高级特务单伟建；对准高层海外大行动](https://gtv.org/video/id=61b0b18fbbd75f62e532ced8)时间点2：23：40——
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/5-8.png)图片来源：新华社/丁婷
+翻译：奋斗
+编辑：Mttfly
 
-**郭文贵先生：**我们这次只要是大年三十，从共产党的时间开始起，开始这一战直到共产党灭亡，我们的抗议行动，还有我们接下来的法律行动，还有一系列的行动，只能是越来越多、越来越高，否则就不配做战友。
+GLJ Research戈的登·约翰逊（Gordon Johnson）在周三早上发出了一份说明，称特斯拉11月份在中国的销量未达到预期的57,800辆。在他的说明中，CPCA数据报告显示，特斯拉公布的销售量为52,859辆，其中国内交付31,732辆，在中国制造并出口到世界其他地区的车辆为21,127辆。
 
-各地农场和所有的战友们在这个事儿上见，就看你行动的结果，你不能看到文耀来在那块儿只擦眼泪，是吧？你不要擦眼泪，你要让共产党流眼泪，钊颖不能流眼泪，要让共产党流眼泪。
+约翰逊指出，这是特斯拉上海工厂销量连续第二个月下降。
 
-我们一定要看到他的家人在明年一个一个的死去！让中国人相信，我们给他送棺材管用，送棺材的同时我们也把它海外的更年轻的私生子女、家人还有它的财富都得送进棺材去，绝对要结束共产党，跟着共产党走向火葬场。
+约翰逊写道：“尽管在过去两个月中，特斯拉的产量都有所提高，而且这还是在特斯拉于11月初提供回扣，以转移汽车的情况下出现的连续下降。”
 
-我们要知道只要你是共产党的家人和爹娘，你必须进火葬场！凭什么我们的家人进火葬场，它们的家人不进火葬场？！而且它们的家人进火葬场不限它父母！咱们走着看，它做的恶是天下没有再多的了，为什么不能惩罚它们？它们能做的事情，我们为什么不能做？
+特斯拉在中国的市场份额也落后于“三巨头”。他说：“虽然特斯拉在中国国内新能源汽车市场的份额按月增长了411bps，但“三巨头”的市场份额按月增长了495bps。”
 
-除了触碰法律之外、不能有暴力之外。但是一定要对方犯规，让对方触红线，只要用对方的触红线、战略性和战术的要求，海东兄弟老踢足球，钊颖妹妹也打球，战略性地让对方犯规，这是一个最聪明的做法。千万不要为了抗议而抗议，是为了结果而抗议。
+销售额上的误判，约翰逊归因于“出口的巨大失误”。特斯拉出口了21,100辆汽车，而预计是28,200辆。
 
-把所有的当地的大使馆的大使人员的爹妈名字全都拿出来，全都给它贴上去，共产党的爹妈可是爹、可是妈了，它拿着我们穷人的爹和妈不当人，它们拿着爹妈、私生子女可当事儿了，咱们这回就给它试试。
+约翰逊说，这些数据已经导致一位卖方分析师调整了他的第四季度交货模式。
 
-我们先说到这儿，咱们继续对这个行动上下一步大家说一说，谢谢老班长、长岛哥和大卫兄弟马上组成了咱们的班子，尽快落实，这是事儿上见，每一步都是事儿上见，七哥解决钱、解决政治关系。
+一位预测者（许多卖方分析师仿效他们的预测）今天早上告诉我们，这些数据与他2021年11月的预测相比是令人失望的；事实上，这位预测者告诉我们，这些数字意味着他将不得不把他的4Q21交付估计从28.1万辆调整为“低于28万辆”，因为欧洲的销售低于预期（我们维持4Q21交付估计为28万辆，目前的共识估计为262万辆。即，我们期望 “超越”）。
 
-各地的战友可以请安保的当地的安保团队进行保护，所有这些钱都是咱们集体出，放心吧，一定是最高端的、最永恒的，而且是最战略、最聪明的。
+约翰逊仍然预测第四季度的增长为38,609辆，低于第三季度的40,141辆的增长。
 
-千万别变成上访户，我们不是上访去了，我们这是一场战争！要让对方犯规，要对方痛苦！让对方触碰当地的红线，让全世界人民看清共产党的真相。
+约翰逊拿着这些数据，对特斯拉在2022年必须达到的标准进行了批评，他说。
 
-（以下暂略）
+为什么这很重要？好吧，考虑到共识的模型是特斯拉2021年的销量约为89万辆，在2022年跃升至130万辆，预期特斯拉在2022E年的销量比2021E年的销量多出约40万辆，或在2022E年的每个季度增加约10万辆的销量。
 
-撰稿：喜马拉雅的肉夹馍；
+“因此，为了从21年第四季度的3.9万辆增量跃升至2022E的10万辆/季度增量，TSLA将不得不积极提升其德克萨斯/勃兰登堡设施，并看到全球需求的阶梯式增长，”约翰逊写道。
 
-审核：喜马拉雅的馍夹肉；
+他继续说道：“然而，由于2021年11月的中国数据没有达到共识估计值，而TSLA的增量销售只有达到共识估计值所需的一小部分，现在可能是时候让牛市开始担心TSLA明年所需的销量大增与目前的趋势。”（即，当你的上海工厂无法卖出现有产能时，你如何卖出德国的新工厂？）
 
-校对：Maarago
+**原文链接：**[Gordon Johnson: Tesla Just Posted Its Second Straight Sequential Decline In Shanghai Sales Numbers](https://www.zerohedge.com/markets/gordon-johnson-tesla-just-posted-its-second-straight-sequential-decline-shanghai-production)
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**发布：**去中心化Math
+**
+更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

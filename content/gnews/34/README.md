@@ -2,10 +2,10 @@
 ---
 
 
-## 盖特高级副总裁Kaelan Dorr谈盖特新功能以及抗衡推特等社交媒体
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1735366/)
+## FDA宣布花55年披露疫苗数据是对每个美国人莫大的羞辱
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1735368/)
 
-12/06/2021 盖特高级副总裁Kaelan Dorr谈盖特新功能，以及如何抗衡推特等传统社交媒体。
+12/06/2021 拉尔夫·诺曼议员：美国食品药品监督管理局拖延疫苗数据披露长达55年，这对每一个美国人都是莫大羞辱，他已经提出法案要求信息透明。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
