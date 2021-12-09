@@ -2,37 +2,34 @@
 ---
 
 
-## 暖心！世卫组织警告不要强制接种疫苗
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1736741/)
+## 台湾首位千万订阅YouTuber诞生 曾遭中共国封杀
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1736742/)
 
-编译： 真北007
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2835-edited.jpg)图片来源：网络
-来自OAN 星期三 12月8日的新闻报道：
+台湾宝岛农场 斗阵来拼
 
-世界卫生组织就COVID-19疫苗强制接种公告犹豫不决。该组织的欧洲负责人汉斯·克鲁格博士，在最近的一个视频新闻发布会表明了WHO的立场。克鲁格博士说，这样的全球疫苗强制接种只应作为最后的手段。
+住台湾的27岁义大利籍YouTuber Davie504，本月6日他的YouTube频道成为全台“千万订阅”第一人；值得一提的是，他也是曾因发布的影片标注台湾为国家，而遭中共国封杀。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-442.png)图片来源: 翻摄Davie504 YouTube频道
+Davie504于2011年在YouTube创设频道，最初仅单纯弹奏贝斯，后来主题逐渐转型成贝斯弹奏实验，运用各种非常规且有趣的弹奏方式，并接受观众无厘头挑战，将影片分享到平台，因而打响知名度。
 
-“…如果还没有首先深入到社区调研，对疫苗接种强权是一个绝对的最后手段，只有在其它提高疫苗接种可行方案用尽之后。”
+Davie504后来透过网路结识了现任台湾女友，飞来台湾见女友，极富创意与喜欢挑战的他，曾为了弹奏《Around the World》，把他走访世界各地弹奏Bass的画面编辑成一部影片分享，其中在台北101前弹奏的画面，因为标注台湾是国家，随即遭受中共国影音平台封杀，但Davie504不理睬中共国网友抗议，还在影片下留言Taiwan is a country (台湾是个国家)。
 
-虽然他声称在某些情况下疫苗强制是有效的，克鲁格博士说，强制措施不应该被盲目使用对抗病毒。医生强调，具体情况具体分析是实施这种措施之前要考虑的一个重要因素。克鲁格博士还警告各国政府不要创建基于疫苗接种状态的两个等级公民。
+参考资料:
 
-“最终，疫苗令不应该促进在获得保健和社会服务日益增加的社会不平等，”他说。 “任何措施可能会限制个人的权利或自由活动，如社区封锁或暴力强制接种疫苗，都需要确保关心人们的身心健康。”
+- [https://www.cna.com.tw/news/amov/202112070425.aspx](https://www.cna.com.tw/news/amov/202112070425.aspx)
+- [https://www.youtube.com/watch?v=EZrvUQQ63PY](https://www.youtube.com/watch?v=EZrvUQQ63PY)
+- [https://www.youtube.com/watch?v=6lsJdGKfgu0](https://www.youtube.com/watch?v=6lsJdGKfgu0)
 
-克鲁格医生担心的另一个问题是公众的反对和不满。他声称，强制措施应该由其效果和公众的反应来评判，而不是政府的意图。
 
-“强制接种疫苗可能对公众的信心和信任，以及接种疫苗的决心的影响，必须加以考虑，”克鲁格博士继续。 “在一个社会或社区人们所能接受的可能在其它的就不能被接受。”
+* * *
 
-医生警告说，强迫接种疫苗可能导致公民怀疑其有效性， 因为是通过武力，而不是推理来说服他们。
+***更多资讯***
+[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
 
-但是拜登和纽约市长比尔·白思豪，按照与世界卫生组织不同的科学观，拜登政府仍在试图推进联邦疫苗强制令，而纽约市的强制疫苗令即将生于12月27日生效。
 
-**点评：**吃惊的发现WHO中还有这样有良知和理性的科学家，非常赞同其观点。希望好人有好报，能不受排挤，坚持到底！
 
-原文链接：[https://www.oann.com/who-warns-against-vaccine-mandates/](https://www.oann.com/who-warns-against-vaccine-mandates/)
-
-编辑/发布：LILY
-
-20211209
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

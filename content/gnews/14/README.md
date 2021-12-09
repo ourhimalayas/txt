@@ -2,40 +2,37 @@
 ---
 
 
-## 家居企业转让恒大股份 恒大债务违约在即
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1736785/)
+## 俄向美发警告在俄边境挑衅将导致危险后果
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1736956/)
 
-作者：日本方舟农场 – Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间12月7日，据相关媒体消息显示，自7月起，中共国内的家居企业开始密集地转让及抛售恒大集团的相关股份。随后，12月4日，河南恒大家居全面退出其参与控股的6家家居企业合资子公司，至此，恒大集团彻底结束了此前的地产连同家居的模式经营。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/4-13.jpg)
-与此同时，恒大集团在港股的走势再次大跌，刷新了自上市以来的新低，跌至每股1.73港元，仅为2009年11月发行价的三分之一。
+作者：Cristina Laila
 
-此外，多家海外媒体也报道称，在12月6日债务利息到期前，恒大集团未能按时支付之前获得宽限期的八千两百五十万美元利息，现已造成事实违约。此时，一旦相关债权人发出通知，恒大将正式处于违约状态。为此，中诚信也下调了恒大集团相关的债券项目信用评级。
+编译：尚劲哥
 
-对此，标普则表示，到2022年3月和4月，恒大集团将面临共计35亿美元的债券到期。由于难以获得新的融资来源，恒大集团的债务违约很可能已无法避免。
+据《网关专家》（thegatewaypundit) 12月8日新闻，俄罗斯总统普京在与美国总统乔·拜登12月7日通话之后的一天，俄罗斯就向美国驻莫斯科大使馆发出照会警告，称美在俄罗斯边境附近进行挑衅将带来危险后果， 拜登在视频电话中警告普京不要入侵乌克兰。
 
-参考链接：
-1) . [中國恆大23億境外債傳違約 寬限期滿未付利息](https://www.cna.com.tw/news/firstnews/202112070411.aspx)
-2) . [デフォルト可能性高まる　中国恒大、利払いできず](https://news.yahoo.co.jp/articles/3bdc7cf535e7d01a66e77da422a597c89ed94394)
-3) . [标普：恒大违约恐无法避免 2022年将面临巨额债务到期](//www.guandian.cn/article/20211208/278099.html)
-4) . [受恒大风波影响 家居企业现密集“追债” 恒大全面退出家居重资产合作模式](https://www.sohu.com/a/506216094_118622)
-5) . [中诚信：将恒大地产主体及相关债项下调至BB，继续列入可能降级的观察名单](http://hk.jrj.com.cn/2021/12/07173733980653.shtml)
-6) . [中国恒大株が上場以来最安値を更新](https://www.okinawatimes.co.jp/articles/-/876293)
+俄罗斯克里姆林宫发言人玛丽亚·扎哈罗娃（Maria Zakharova）在声明中说： 美国和北约成员国在俄罗斯边境周边的军事活动，包括战斗机飞行和海军舰艇的危险演习，继续呈螺旋上升趋势，他们已从试图测试我们的边境保护系统转向对民用飞机进行挑衅，危及空域安全和人类生命。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+通过保留对美国和以美国为首的北约成员国的挑战作出实物回应的权利，莫斯科呼吁就安全保障和降低军事和政治紧张局势的方法进行深入对话，包括防止空中和海上的碰撞选项。”
 
-总编：Irene木木
-编辑：Kathy文艺
-校正/发稿：Fei797
+“否则，我们将部署所有可用的手段来预防和消除新出现的威胁，”她补充道。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+与此同时，乔·拜登直接寻求绥靖，并表示他正在努力为普京“制定任何妥协”。
+
+译者简评：
+
+大国之间没有永远的朋友，只有永恒的利益，文贵先生早前指出，俄罗斯和中共之间的战略计划，就是分别行动——你取台湾、我取乌克兰。你开始在俄罗斯在欧洲推行你的天然气、技术，你把技术给我，天上地上我来干，我来占用市场，然后再把中东非洲亚洲拿下，让美国人饿死他。当前俄罗斯出现的精英和资金外逃现象，像极了苏联解体的前夕”。但是美国绝不会袖手旁观，一通电话，形势急转。
+
+文贵先生12月8日的直播透露，俄罗斯已经转战整个东亚，最近和缅甸、柬埔寨签订了秘密军事基地，越南的军事基地准备让给俄罗斯。俄罗斯在南海的采油，比中共国的多一倍。南海的油，够整个亚洲使用1200年，这是共产党的噩梦。习花了一万亿买俄罗斯，结果最后一刻人家把他卖了。
+
+这说明，美国的战略调整，美俄联合抗共，共产党必死无疑。看来老共白道黑道都无人问津，黄泉路上唢呐声声招魂。
+
+[援引原文：](https://www.thegatewaypundit.com/2021/12/russia-sends-warning-us-embassy-moscow-dangerous-consequences-provocations-near-russias-borders-one-day-biden-putin-call/)
+
+审核校对：sherryok (水云间)
+
+上传排版：CharlieNZ查理
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
