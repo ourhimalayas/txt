@@ -2,36 +2,35 @@
 ---
 
 
-## 美国安顾问：美国将采取行动 确保中共不会犯台
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1734893/)
+## 这是“一个道歉”或“一场教育”就能解决的问题吗？
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1735027/)
 
-作者：纽约香草山医疗部-云豹
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-3.png)
-12月7日，在关于拜登与普京视频会议的白宫新闻简报会上，有记者向美国安顾问苏利文提问，如果俄罗斯侵略乌克兰，同时中共以武力侵犯台湾，美国是否做好了应对准备？苏利文回答，美国将从威慑和外交方面采取一切可以采取的行动，以确保中共犯台的局面不会发生。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-401.png)
-苏利文同时表示，上述表态既是美国目前的政策目标，也是美国正在采取的应对步骤。在过去的8个月中，美国在印太地区所做的全部努力，也是为了避免中共作出任何不适当的选择。
+撰稿：童媚
 
-[新闻连接]：
+一段女大学生辱骂外卖小哥的视频引发全网关注。
 
-[https://www.cna.com.tw/news/firstnews/202112080008.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/firstnews/202112080008.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+据了解，此单外卖因为顾客本人填错手机号码，而导致没有及时配送。后外卖员成功送达时，要求该顾客说一次谢谢，却遭来该客人的辱骂，言语极尽羞辱之能事。（详情请见视频）
 
-[https://www.whitehouse.gov/briefing-room/press-briefings/2021/12/07/press-briefing-by-press-secretary-jen-psaki-and-national-security-advisor-jake-sullivan-december-7-2021/](https://www.whitehouse.gov/briefing-room/press-briefings/2021/12/07/press-briefing-by-press-secretary-jen-psaki-and-national-security-advisor-jake-sullivan-december-7-2021/)
+外卖员被骂后，十分屈辱，并表示受此事影响，已辞职。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-3.png)
+这位辱骂外卖员的顾客是一名刚入校的大学新生。事情发酵后，有媒体第一时间采访了校方，校方表示当事女学生已经向外卖员道歉，并得到了接受，并且确认不会把视频传到网上。
 
-总编：AN
+但为何外卖员“出尔反尔”呢？这名已离职的外卖骑手称，此事对他侮辱性太大了，为了几块钱的配送费，需要“打不还手，骂不还口”，让他觉得人格受到了侮辱，但凡家庭条件好，也不会送外卖。
 
-编辑：飞虹
+而当事人的家长则表示，该女生是大学新生，希望学校和社会能抱以宽容的态度，给她改正的机会。
 
-校正/发稿：浪迹天涯
+当众辱骂服务人员，肯定是当事女生的不对，而这一没有礼貌的行为，不能用“已经道歉”或者“大学新生”的理由而加以逃避。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-4.png)
+在中共国，不尊重他人已经是一个普遍现象。公司老板仗着给员工发工资而压榨他们的下班时间，企事业单位领导因为自己大而不倒对员工欺凌羞辱，家中长辈因“生你养你”的“高尚”理由而让孩子做他们不愿意做的事，种种的现象，均体现了在中共的社会中，没有人格的平等。
+
+但，另一方面，外卖小哥为何会出尔反尔，讲丑事公布与众呢？
+
+其实，内心的不平和埋伏的戾气导致他不惜毁该女生名誉。社会的不公让他无法咽下这口气，既然自己的工作也丢了，又怎么能让肇事者过的心安理得呢？
+
+综合事情的两方，我们可以看出，对于女学生，不是加强教育就能改变她的性格的，因为她的价值观在其过去的20年已经深入骨髓了，而对于外卖小哥，报复也无法改变他依然在底层生活的局面。
+
+发稿：MG5
+![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
