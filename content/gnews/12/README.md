@@ -2,10 +2,10 @@
 ---
 
 
-## 白宫正式宣布外交抵制2022年北京冬奥会和残奥会
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1735364/)
+## 盖特高级副总裁Kaelan Dorr谈盖特新功能以及抗衡推特等社交媒体
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1735366/)
 
-12/06/2021 白宫正式宣布：由于中共在新疆犯下的种族大屠杀和反人类罪行，美国对2022年北京冬奥会和残奥会进行外交抵制。
+12/06/2021 盖特高级副总裁Kaelan Dorr谈盖特新功能，以及如何抗衡推特等传统社交媒体。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
