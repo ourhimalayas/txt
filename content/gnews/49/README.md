@@ -2,36 +2,31 @@
 ---
 
 
-## 中俄联军侵略：美防长奥斯汀说乌克兰、台湾可以自卫
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1732373/)
+## 鉴于人权暴行 美国官员抵制北京奥运会
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1733177/)
 
-作者：东京樱花团｜捆绑CCP一千年
-![](https://lh3.googleusercontent.com/sNwpj3oRpcqvWExoCTPDQjT0P3OiywvEhR-evXeuBGzq86Z4msniHPQSn5DtCDTAeH_yUlErge7sPkefVhSAT3mHf8DZqTWKwniYvitmi41IOZ9yUxEthtO9vtI_vD1QOFRxtA_e)[*图片来源*](https://www.defense.gov/News/News-Stories/Article/Article/2864875/austin-discusses-china-russia-american-public-survey-on-military-at-defense-one/)
-**五角大楼当地时间7日，**[**奥斯汀表示**](https://www.defense.gov/News/News-Stories/Article/Article/2864875/austin-discusses-china-russia-american-public-survey-on-military-at-defense-one/)**，他的工作是保卫美国。但面对中俄两国对乌克兰和台湾可能的军事侵略，奥斯汀表示，“关于俄罗斯对乌克兰的侵略和中国对台湾的侵略，美国的战略目标都是在外交上发挥作用。”**
+本文作者：Rebecca (一切心皆不可得！)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image001.jpg)
+据路透社报道，12月6日，白宫表示，由于中共在新疆侵犯人权和暴行令人震惊，美国政府官员将抵制在北京举行的2022年冬奥会。
 
-奥斯汀补充道，“我们对尊重每个国家主权领土的基于规则的国际秩序非常感兴趣。”他说，“我们相信乌克兰有权捍卫和保护其主权领土，美国以材料和顾问支持乌克兰，因此它拥有自卫所需的一切。”
+这肯定会使已经处于几十年来最低点的关系更加紧张。
 
-面对中共国对台湾的侵略，奥斯汀表示，“根据《台湾关系法》的概述，国防部将继续对台湾提供支持，以便台湾能够自卫。台湾也有两党的支持，国务卿说这很重要。”
+虽然几周前，拜登和中共国领导人习近平进行过视频会晤，努力稳定两个超级大国之间的紧张关系，但乔-拜登总统的政府强调了华盛顿所说的中共对中国西部地区新疆的少数民族穆斯林的种族灭绝行为。
 
-- ***延展阅读：***[***拜登警告普京，如果俄罗斯的侵略继续下去，将会带来经济后果***](https://www.reuters.com/article/biden-putin-1207-tues-idCNKBS2IN025)
+美国国务卿安东尼-布林肯曾表示，美国就北京奥运会的 “共同方针 “与盟国进行了磋商。目前还不清楚盟国是否会跟随美国的步伐。
 
+中共国驻华盛顿大使馆称抵制行动是 “政治操纵”，将以”坚决的反制措施”采取报复——但并未具体说明是什么措施。
 
-奥斯汀强调，如果俄罗斯攻击乌克兰，这将是“一个非常糟糕的举动”。但这位部长说，“我们的综合威慑意味着以新的不同的方式将我们的现有军事能力联网。而综合威慑能力包括与美国盟友合作的能力。这意味着我们将在所有领域作战能力，包括网络和太空以及海底。”
+中共国大使馆发言人刘鹏宇说，”事实上，没有人会关心美国人是否来，这对北京2022年冬奥会的成功举办不会有任何影响”。
 
-但这位国防部长称，我们综合威慑能力还包括“以外交为主导”的方式。他认为，“如果外交失败，无论出现什么问题，我们都将处于有利位置，能够取得胜利并果断取胜。”这也意味着奥斯汀在确保最坏情况出现后不放弃使用“国家力量”。
-![](https://lh3.googleusercontent.com/lWJPPFGIDV8WEcjdX_6OcJLO9InbETH1Cs9n2jt7ap2hJ1tpBDyEM0qawzx1ZwPr0w0mC0YLWP3k_TZ1GiTfpODutex0x-XiVDgcG4Jv3Q6B0QHQCfibsOfaMbzZ5ap6Bq_fEonZ)[*图片来源*](https://www.nytimes.com/2021/12/07/world/europe/listen-to-the-daily-why-does-american-military-assistance-to-ukraine-matter.html)
-奥斯汀援引国务卿的话说，国务卿相信有机会通过武力以外的方式解决分歧。“我们在边境地区看到了俄罗斯军队的数量，对此表达了数周的担忧。”乌克兰总统沃洛德米尔泽伦斯基说，“最近他担心有人试图破坏他的政府稳定。”奥斯汀说，“当你把所有信息加在一起分析，看起来很熟悉，就像 2014 年俄罗斯第一次入侵乌克兰时的重演。”
+[新闻来源链接](https://www.reuters.com/lifestyle/sports/us-officials-boycott-beijing-olympics-cnn-2021-12-06/)
 
-- ***延展阅读：***[***奥斯汀接受福克斯采访称：乌克兰现在显然不属于北约，不受第5条款保护***](https://www.defense.gov/News/Transcripts/Transcript/Article/2862114/secretary-of-defense-lloyd-j-austin-iii-interview-with-bret-baier-fox-news-at-2/)
+【文章仅限作者个人观点】
 
+审核校对：sherryok (水云间)
 
-奥斯汀在继续谈到台湾时表示，“我们不希望看到现状发生变化，尤其是现状的单方面变化。”他强调台湾的所有紧张局势都应该首先通过外交途径解决，并且国防部还确保这个小国拥有自卫所需的东西，比如像对乌克兰的军事支持。但奥斯汀承认，“美国人对军队的信心有所下降，但他发誓要努力保持国家的信心。”
+上传排版：漂流瓶
 
-2021年12月8日
-
-*校对：东京樱花团 / 東洋武士
-发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,31 +2,37 @@
 ---
 
 
-## 佳兆业4亿美元债违约！
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1734587/)
+## 辉瑞公司的一个董事会成员是前Facebook董事
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1734723/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Unknown-14.jpg)佳兆业4亿美元债违约！ 网络图片
-据网易新闻12月8日报道，佳兆业因为4亿美元票据已到期，又一次宣布短暂停牌。佳兆业曾于11月5日停牌，11月25日复牌，时隔不到两周再次停牌。
+作者：纽约香草山健身部 – 童谣
+![This image has an empty alt attribute; its file name is 1-28.png](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
+12月6日，美国媒体揭露，2020年加入辉瑞公司的董事会成员——苏珊·德斯蒙德·赫尔曼博士——曾在社交媒体巨头Facebook担任首席独立董事。
 
-佳兆业关联公司深圳锦恒财富管理有限公司于11月4日宣布到期产品本息达127.88亿元，涉及的投资者总数超过7000人，其中不少是锦恒财富与佳兆业的内部员工。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/7-3.png)
 
-目前市场上有三家地产企业的美元债规模超过100亿美元，分别为恒大175.75亿美元、佳兆业153.85亿美元以及碧桂园117.94亿美元。佳兆业除了12月7日到期的4亿美元，明年有34亿美元到期；2023年29.3亿美元；2024年25.5亿美元到期等。如此负债，能坚持到2024年吗？
+赫尔曼于2013年到Facebook董事会任职，并在2015年至2019年10月30日期间担任首席独立董事，直到中共病毒大流行前不久辞职。离开Facebook后，赫尔曼于2020年加入了辉瑞公司的董事会。据了解，赫尔曼同时在比尔与梅琳达-盖茨基金会中担任首席执行官。
 
-新闻参考链接：[https://c.m.163.com/news/a/GQNSR6L40528MQRO.html?spss=newsapp](https://c.m.163.com/news/a/GQNSR6L40528MQRO.html?spss=newsapp)
+在赫尔曼担任辉瑞公司董事会成员期间，Facebook发起了审查“中共病毒疫苗怀疑者”的活动，据该公司泄露的内部文件显示，其算法旨在 “大幅消除用户在评论中对疫苗犹豫不决的言论”。
 
-* * *
+参考链接：
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+- [REVEALED: New Pfizer Board Member Is Ex-Facebook Director.](https://thenationalpulse.com/exclusive/pfizer-board-member-is-former-facebook-director/)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
 
+总编辑：文特
+编辑：飞虹
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

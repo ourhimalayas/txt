@@ -2,52 +2,41 @@
 ---
 
 
-## 挪威专家称奥米克戎可能会提供“自然免疫”的“最佳方案”
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1734653/)
+## 奏响让习近平彭丽媛王岐山姚明珊习仲勋齐心动听的哀乐
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1734772/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-391.png)
-挪威的新冠专家说，奥米克戎变体具有高度的传播性，但是“比较温和”，这可能会被证明是“最好的情况”，因为它将提高“自然免疫力”，并使大流行病更快结束。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/f391e4437dbc5b1b56d371ea8bc64af7.jpg)
+据[2021年12月08日 文贵大直播：拜登外交抵制冬奥会；盘古物业接管惊世界；中共高级特务单伟建；对准高层海外大行动](https://gettr.com/streaming/pj3xefa5bc)时间点1：54：54——
 
-该国的国家流行病学家弗洛德·福兰德（Frode Forland）正在对南非以外最大的奥米克戎爆发的消息作出回应，该事件发生在奥斯陆的一个圣诞聚会上。
+**郭文贵先生：**我们要做的事情，一定要把他们的丧事给它变成共产党有史以来最高级的，所有制造的棺材都是要特殊材料，花圈都是要特殊材料，甚至用碳纤维carbon fiber都行，要做得精美细化，要用的音乐、喇叭在各国大使馆响起的时候，要达到了世界专辑音乐水平，比七哥唱H-Coin to the moon还要厉害。
 
-电讯报报道“11月26日晚参加露易丝餐厅和酒吧的多达120人现在已经对冠状病毒检测呈阳性，其中大约一半的人对奥米克戎的筛查呈阳性，其中13人在测序中被证明有该变体”。
+叫它们的家人、它们的妈听到以后都直接想进天堂，非死不可那种的。这音乐听着它非死不可，让习近平、彭丽媛，它可以听不见，只要它听见它就想死。让王岐山、姚明珊叫它听见它就想死。它有它母亲齐心，它有习仲勋。我让它母亲齐心知道你对待别人的父母的感觉是什么样的。
 
-奥斯陆传染病医生蒂内·拉夫罗（Tine Ravlo）透露：“他们有发烧、咳嗽、头痛、肌肉疼痛、疲劳等症状，但就目前而言，他们中没有人病得很严重，也没有人在医院接受治疗”。
+你们一定要做到绝！要不就别做，要做就做到绝。我让所有驻海外的中国的大使馆的官员，我让他知道你们的父母一定不会老死，一定会被装在新中国联邦给准备的棺材里边去。
 
-福兰德认为这是一个积极的消息，因为它清楚地表明该变体 “将是非常温和的，也是非常容易传播的”。
+（以下暂略）
 
-“这就是希望。这是我们能得到的最好的情况，”他说。“那就是它变得更温和，大多数人会被感染，而且他们会得到一种自然免疫力。”
+撰稿：喜马拉雅的肉夹馍；
 
-“可能是病毒现在已经复制和变异了很多次，从病毒的角度来看，这是一个最佳的状态，可以广泛传播而不杀死宿主，”福兰德补充说。
+审核：喜马拉雅的馍夹肉；
 
-“这就是我们之前在其他疾病上看到的情况。当然，然后它更像流行阶段，”他总结说。
+校对：Maarago
 
-南非最大的私人医疗网络的首席执行官和挪威专家的立场一致，他断言奥米克戎变体 “非常温和”，它“可能标志着新冠疫情的结束”。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-期待那些依靠大药厂的巨额广告费和延长对新冠的恐惧而获得高收视率的企业媒体，完全无视所有这些发现。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-原文链接：[https://summit.news/2021/12/07/norwegian-covid-experts-says-omicron-could-provide-best-scenario-of-natural-immunity/](https://summit.news/2021/12/07/norwegian-covid-experts-says-omicron-could-provide-best-scenario-of-natural-immunity/)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-简评：新冠疫情已经肆虐将近两年的时间，世界经济遭受重大损失，人类生活方式也为之彻底改变。人们反复追问一个问题——这场灾难什么时候可以结束？
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-随着新病毒变种奥米克戎的传播，舆论被分成了两派。一方面，西方政要和主流媒体，利用此机会继续制造对新冠病毒的恐慌，选择忽略病毒变异的原因——例如其主要在接种两针疫苗的人群中传播，并加强限制性措施，压制个人自由。从媒体报道及各制药公司的反应，不难看出背后的利益捆绑，新的病毒变种给了制药公司又一次大商机，推广自己的疫苗和特效药。而主流媒体除了收取广告费外，又一次提高了关注度。
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-而另一边，一些有良知的科学和病毒学家开始研究新变种的特异性，即其具有的高传播性和病毒本身温和的特质，来判断下一步冠状病毒大流行的趋势。可喜的是，如果这次人们可以通过该变种获得自然免疫，这场疫情的结束离我们更近一步。此报道中的挪威科学家和南非最大的私人医疗网络首席执行官的观点，也印证了爆料革命新中国联邦的情报——这次奥米克戎病毒变种的释放，有助于彻底结束这场疫情。
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-Translator: Ying2064
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-PR: 感恩
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

@@ -2,32 +2,24 @@
 ---
 
 
-## 纽约医生助理说她被迫不报告CCP病毒疫苗伤害事件
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1733596/)
+## 由于中共的人权暴行，美国正式宣布抵制2022年冬奥会
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1733761/)
 
-作者：纽约香草山翻译部 – defiance
+作者：香草山金融部 – 闲聊钱币
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
+12月7日（路透社）–白宫周一表示，美国政府官员将抵制2022年北京冬奥会基于中国的人权 “暴行”。这个声明距离习拜谈仅仅三周时间。
 
+在更早前的两次习拜通话和上次的视频会议后，中共方面都自嗨的认为是美国在求着中共沟通。墙内的媒体和各种专家也大唱赞歌。解读习拜谈为好像没了中共，美国甚至全世界都是活不下去的。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture1-14.jpg)
+怎料计划没有变化快。三周之后，美国正式宣布抵制北京冬奥会，同时美国也与它的盟友们分享了这个决定。加拿大，澳大利亚，日本，新西兰等国都发表了不同程度的声援，最终决定还未公布。
 
+中共对美国的抵制自然震怒。驻华盛顿大使馆称这种抵制是 “政治操纵”，而且自嘲说此举不会对奥运会产生任何影响，因为中共并没有向美国发出邀请。
 
+除非本国政府明令禁止运动员参加运动赛事，就像前苏联拒绝参加1948年在伦敦的奥运会，运动员都可以参赛不管该国的政要们是否出席。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新.png)
+但是在中共这个流氓政府统治下，任何荒唐事都可能发生。希望各国参赛运动员们都不会再次沦落为加拿大两个麦克的命运，成为恶党要挟世界的筹码。
 
-
-
-
-据美国媒体12月6日报道，纽约联合纪念医疗中心（UMMC）的一名前雇员站出来声称，她在急诊室被教唆说关于CCP病毒疫苗伤害的假话。
-
-助理医生黛博拉·康拉德在她工作的急诊室，观察到大量福奇推广的流感疫苗的不良反应后，上级领导告诉她不要向政府官方提供疫苗伤害数据库VAERS（疫苗不良事件报告系统）报告。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture1-12.jpg)
-康拉德之前在UMMC工作了17年，从未经历过这样的事情，至少没有她在节目里说的这么离谱的事。在康拉德亲眼所见，不被允许报告的疫苗副作用中，有心脏病发作、心肌病、心律失常、血栓和肺栓塞。
-
-今年1、2月份，参与“曲速行动”的第一波美国人注射疫苗后，大量因疫苗受伤的病人就开始出现了。此问题出现的早期，康拉德说她看到有几个病人有这些症状。她立即将其报告给VAERS。她开始告知她的行政领导发生了什么事，但一位女上司却告诉她并不觉得有什么好担心的。最后，急诊室开始注意到发生的事情，康拉德的同事开始让她报告相关病人的信息。
-
-当康拉德第二次找到UMMC的管理层时，他们对她更加严厉，指责她过度报告，疫苗副作用的事情。
-
-参考来源：
-1. [纽约医生助理说她被迫不报告CCP病毒疫苗伤害事件](https://vaccines.news/2021-12-06-cover-up-assistant-forced-stop-reporting-covid-vaccine-injuries.html)
-2. [纽约医生助理说她被迫不报告CCP病毒疫苗伤害事件](https://www.lifesitenews.com/news/physician-assistant-says-she-was-told-to-stop-reporting-covid-vaccine-injuries/)
+参考来源：[由于中共的人权暴行，美国正式宣布抵制2022年冬奥会](https://www.reuters.com/lifestyle/sports/us-officials-boycott-beijing-olympics-cnn-2021-12-06/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=7-12-21&amp;utm_campaign=7-12-21)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88-1.png)
 
@@ -41,10 +33,6 @@
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
-
-
-
-
 
  
 

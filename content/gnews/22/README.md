@@ -2,45 +2,52 @@
 ---
 
 
-## 疫苗灾难：津巴布韦禁止未接种疫苗的人使用公共交通工具
-` 玫瑰新闻` [轉載自GNews](https://gnews.org/zh-hans/1734496/)
+## 挪威专家称奥米克戎可能会提供“自然免疫”的“最佳方案”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1734653/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/3801F36B-C264-4C0A-87AC-C3A40C029B4F.png)![pastedGraphic.png](https://gnews.org/225e87ce-28a1-4521-b59a-8b4c2199fad5)
-来源：Pixabay
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-391.png)
+挪威的新冠专家说，奥米克戎变体具有高度的传播性，但是“比较温和”，这可能会被证明是“最好的情况”，因为它将提高“自然免疫力”，并使大流行病更快结束。
 
-2021 年 12 月 8 日 [布兰登·泰勒](https://insiderpaper.com/author/brendan-taylor/)在insiderpaper发文报道：
+该国的国家流行病学家弗洛德·福兰德（Frode Forland）正在对南非以外最大的奥米克戎爆发的消息作出回应，该事件发生在奥斯陆的一个圣诞聚会上。
 
-津巴布韦政府对该国越来越多[的 Covid-19 病例](https://insiderpaper.com/singapore-records-715-new-covid-cases/)表示严重关切，这些[病例](https://insiderpaper.com/singapore-records-715-new-covid-cases/)是由 Omicron 变种引起的，并已宣布计划禁止未接种疫苗的人使用公共交通工具。
+电讯报报道“11月26日晚参加露易丝餐厅和酒吧的多达120人现在已经对冠状病毒检测呈阳性，其中大约一半的人对奥米克戎的筛查呈阳性，其中13人在测序中被证明有该变体”。
 
-据悉，Monica Mutsvangwa 部长在周二的内阁后媒体简报会上表示：“内阁关切地注意到，过去两周每天报告的平均新病例总数急剧增加，”因此，政府[将增加疫苗接种](https://insiderpaper.com/eu-should-discuss-mandatory-covid-vaccination-ursula-von-der-leyen/)，并声称实施加强措施以对抗病毒的传播。
+奥斯陆传染病医生蒂内·拉夫罗（Tine Ravlo）透露：“他们有发烧、咳嗽、头痛、肌肉疼痛、疲劳等症状，但就目前而言，他们中没有人病得很严重，也没有人在医院接受治疗”。
 
-据报导称，上周该国中共病毒每日病例呈指数级增长，从 11 月 28 日的 40 例增加到周一的 2,555 例。
+福兰德认为这是一个积极的消息，因为它清楚地表明该变体 “将是非常温和的，也是非常容易传播的”。
 
-穆茨万瓦表示[，政府](https://insiderpaper.com/heres-how-pfizer-exploits-secretive-vaccine-contracts-to-strong-arm-governments/)将在主要市内和城际巴士总站设立疫苗接种站，以确保未接种疫苗的人在上车前可以自愿接种疫苗。
+“这就是希望。这是我们能得到的最好的情况，”他说。“那就是它变得更温和，大多数人会被感染，而且他们会得到一种自然免疫力。”
 
-她说，那些没有有效疫苗接种卡的人最终将被拒绝乘坐公共交通工具，并补充说卫生部和教育部将继续合作为学校 16-17 岁的儿童接种疫苗。
+“可能是病毒现在已经复制和变异了很多次，从病毒的角度来看，这是一个最佳的状态，可以广泛传播而不杀死宿主，”福兰德补充说。
 
-根据官方数据，截至周一，该国的中共病毒（ Covid-19 ）病例总数为 141,601，治愈 128,966 例，死亡 4,713 例。共有 3,882,255 人接受[了第一次](https://insiderpaper.com/austria-imposes-full-nationwide-lockdown-makes-covid-vaccine-jabs-mandatory/)接种，2,892,366 人接受了第二次接种。津巴布韦的目标是到年底为 60% 的人口接种疫苗。
+“这就是我们之前在其他疾病上看到的情况。当然，然后它更像流行阶段，”他总结说。
 
-自从在该国发现 Omicron 变种以来，政府已强制要求所有返回的居民和访客，无论检测结果如何，都要自费进行 PCR 检测和[隔离](https://insiderpaper.com/saudi-arabia-removes-14-day-quarantine-rule-for-india-indonesia-pakistan/)。
+南非最大的私人医疗网络的首席执行官和挪威专家的立场一致，他断言奥米克戎变体 “非常温和”，它“可能标志着新冠疫情的结束”。
 
-目前，宵禁已延长至晚上 9 点至早上 6 点。酒类商店不允许进入酒类，只有已接种疫苗的顾客才能进入夜总会和酒吧。
+期待那些依靠大药厂的巨额广告费和延长对新冠的恐惧而获得高收视率的企业媒体，完全无视所有这些发现。
 
-撰稿人/米拉娅
+原文链接：[https://summit.news/2021/12/07/norwegian-covid-experts-says-omicron-could-provide-best-scenario-of-natural-immunity/](https://summit.news/2021/12/07/norwegian-covid-experts-says-omicron-could-provide-best-scenario-of-natural-immunity/)
 
-审阅/丘杰斯
+简评：新冠疫情已经肆虐将近两年的时间，世界经济遭受重大损失，人类生活方式也为之彻底改变。人们反复追问一个问题——这场灾难什么时候可以结束？
 
-上传/天赐良闻
+随着新病毒变种奥米克戎的传播，舆论被分成了两派。一方面，西方政要和主流媒体，利用此机会继续制造对新冠病毒的恐慌，选择忽略病毒变异的原因——例如其主要在接种两针疫苗的人群中传播，并加强限制性措施，压制个人自由。从媒体报道及各制药公司的反应，不难看出背后的利益捆绑，新的病毒变种给了制药公司又一次大商机，推广自己的疫苗和特效药。而主流媒体除了收取广告费外，又一次提高了关注度。
 
-[链接原文](https://insiderpaper.com/zimbabwe-to-ban-unvaccinated-from-using-public-transport/)
+而另一边，一些有良知的科学和病毒学家开始研究新变种的特异性，即其具有的高传播性和病毒本身温和的特质，来判断下一步冠状病毒大流行的趋势。可喜的是，如果这次人们可以通过该变种获得自然免疫，这场疫情的结束离我们更近一步。此报道中的挪威科学家和南非最大的私人医疗网络首席执行官的观点，也印证了爆料革命新中国联邦的情报——这次奥米克戎病毒变种的释放，有助于彻底结束这场疫情。
 
-[奥米克戎](https://insiderpaper.com/tag/omicron/) [津巴布韦](https://insiderpaper.com/tag/zimbabwe/)
+Translator: Ying2064
+
+PR: 感恩
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-> [Zimbabwe to ban unvaccinated from using public transport](https://insiderpaper.com/zimbabwe-to-ban-unvaccinated-from-using-public-transport/)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

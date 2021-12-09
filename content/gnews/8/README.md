@@ -2,39 +2,43 @@
 ---
 
 
-## 苹果公司的蒂姆库克与中共国签署了价值超过 2750 亿美元的秘密协议
-` RoseNews` [轉載自GNews](https://gnews.org/zh-hans/1734657/)
+## 郭文贵精品视频-新中国联邦人以血还血，以牙还牙
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1734773/)
 
-![蒂姆库克 275 美元交易中国](https://insiderpaper.com/wp-content/uploads/2021/12/8-990x505.jpg)图片：视频截图
+撰稿：澳喜cindy
 
-2021 年 12 月 8 日 ，[布伦丹·伯恩](https://insiderpaper.com/author/brendan/)发文报道：
+郭先生被中共盗国贼追剿逃到美国已经多年了，期间为了国内的家人、员工不受到牵连，他断绝了一切联系。即便这样，他的员工、公司若干个高官还是一直被非法关押，有的几出几进监狱。中共黑社会手腕随意关押，无法无天。当他们需要时就把你抓进去，当他们需要你的“作证”时就逼着你做假证，如果不从，就严刑伺候。
 
-据*The Information*报道，苹果首席执行官蒂姆库克与中共国官员“秘密”签署了一项价值超过 2750 亿美元的协议，承诺苹果将通过投资、商业交易和工人培训，为发展[中共国经济](https://insiderpaper.com/us-to-announce-diplomatic-boycott-of-2022-beijing-winter-olympics/)和技术实力尽自己的一份力量。
+2021年12月6日，住在盘古七星酒店郭先生的员工和客人都在零下4度的情况下，所有东西不允许带走，被赶到了大街上。中共300特警、300法警，全部用警车围住， 手机全部失效，家人和联系过的涉及10几万人的电话全部同时被停了，很多人的信用卡都被停了，水电都停了。对盘古所有资产进行了暴力查封。文贵90多岁身患疾病的父亲也被赶出房子并流落街头。
 
-据报道，这份之前没有报道过的五年协议是由苹果公司首席执行官蒂姆库克伪造的。[The Information](https://www.theinformation.com/articles/facing-hostile-chinese-authorities-apple-ceo-signed-275-billion-deal-with-them)查看的[苹果内部](https://insiderpaper.com/patent-apple-working-on-drone-device/)文件显示：“在 2016 年，他首次亲自访问该国，以平息针对苹果业务的突然爆发的监管行动。”
+这是继去年大连市中级法院所谓罚款130亿美元和非法查封1000亿资产后，中共再一次针对文贵的家人和员工的灭绝人性的暴行！这一切都是完全非法的！这是中共盗国贼指挥的一场践踏法律、毫无道德底线、惨无人道的大抓捕和大抢劫！
 
-文件显示，“在会议之前，苹果高管们争先恐后地挽救公司[与中共国官员](https://insiderpaper.com/more-than-200-chinese-companies-may-be-kicked-off-us-exchanges/)的关系[，中共国官员](https://insiderpaper.com/more-than-200-chinese-companies-may-be-kicked-off-us-exchanges/)认为该公司对当地经济的贡献不够。在政府的镇压和随之而来的不良宣传中，iPhone 的销量直线下降，”该报告周二晚间表示。
+基于此，郭先生今天向全世界及新中国联邦的战友们郑重宣布：四年前的郭七条即“四反：以黑治国；以警治国；以贪反贪；以黑反贪 。三不反：不反祖国；不反民族；不反习”。现在已经不存在了！只要能灭共的一切都要干！加速共产党的灭亡！大限：2025年。
 
-报道称，库克就针对 Apple Pay、iCloud 和 App Store 的威胁“亲自游说中共国官员”。
+郭先生发誓：
 
-报道称，苹果宣布向滴滴出行[投资](https://insiderpaper.com/china-and-eu-sign-cai-agreement-for-investment-and-fair-trade/)10 亿美元，以“安抚”当局。
+1.让爆料革命家人过不好年，以习近平母亲齐心为首的共产党老杂毛的家人也不要过年了。
 
-据 GizmoChina 援引 The Information 报道，不久之后，库克、苹果首席运营官杰夫威廉姆斯和政府事务负责人丽莎杰克逊据称在中国共产党中央总部中南海会见了高级政府官员。
+习近平海外家人、王岐山及海外的家人、北京高院的这帮人，是这次行动的主要目标。
 
-据报道，作为协议的一部分，苹果同意在其设备中使用更多来自中共国供应商的组件，与中共国软件公司签署协议，与中共国大学[进行技术合作](https://insiderpaper.com/a-mysterious-signal-that-looked-like-a-sign-of-alien-technology-turned-out-to-be-radio-interference/)，并直接投资于中共国科技公司。
+2.所有新老常委4000人的家人名单和联系方式包括习近平、彭丽媛、江泽民、江绵恒、王岐山、杨洁篪等所有资料都会提供给参战的战友。
 
-该[公司还](https://insiderpaper.com/israeli-nso-spyware-company-plans-to-reverse-us-ban/)承诺在中共国的投资将比目前的支出“多出数十亿美元”，包括新零售店、研发设施和可再生能源项目。
+3.行动开始时间：行动从2022年大年三十开始，直到共产党灭亡。
 
+4.行动地点：所有共产党大使馆、领事馆、经常出没的机场。
 
+5.行动注意事项：战友们除了注意疫情防控，还要尊重当地国的法律，让共产党外交、情报部门踩红线。
 
-编译/米拉娅
+6.现场参与的战友每人每天1个喜币，100个躺平币，100美元现金补助，其他费用实报实销。
 
-审阅/丘杰斯
+7.绝不放弃，3年的行动，把共产党送进火葬场。
 
-上传/天赐良闻
+“战友们不要流眼泪，要让共产党的家人流眼泪。把他们的家人和他们的财富都送进火葬场，战友们这次要有心理准备，共产党一定会对上街的战友家人发动进攻，国内的战友不要参与。这次行动有安保，全世界最高级的保护。这次活动不为抗议而抗议，为了结果而抗议。 习近平、彭丽媛面对自己的家人被送葬时的心理状态超不过3个月”。
 
-援引链接：https://insiderpaper.com/tim-cook-secret-signed-275-bn-deal-with-china-alleges-report/
+战争已经开始，战友们做好心理和行动前的准备。 行动！行动！行动！
 
+*编辑：cindy*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

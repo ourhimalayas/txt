@@ -2,40 +2,45 @@
 ---
 
 
-## 杰克·塔珀对好莱坞、NBA等与中国做生意的公司进行了抨击
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1734119/)
+## 疫苗灾难：津巴布韦禁止未接种疫苗的人使用公共交通工具
+` 玫瑰新闻` [轉載自GNews](https://gnews.org/zh-hans/1734496/)
 
-据《www.mediaite.com》作者：Ken Meyer，2021年12月5报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-387-e1639000639238.png)图片来自原文
-**美国有线电视新闻网（CNN）的杰克-塔珀（Jake Tapper）抨击了娱乐业和其他企业巨头对中共国的讨好，而不是在世界舞台谴责该国的独裁行为。**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3801F36B-C264-4C0A-87AC-C3A40C029B4F.png)![pastedGraphic.png](https://gnews.org/225e87ce-28a1-4521-b59a-8b4c2199fad5)
+来源：Pixabay
 
-在周日的国情咨文节目的结尾独白中，塔珀赞扬了女子网球协会（WTA）因担心网球明星彭帅的安全而终止了他们在中共国安排的活动。彭帅指控中共国前副总理张高丽对她进行性侵犯，许多人担心她无法自由发言，因为中共国当局正在强制审查她的说法。
+2021 年 12 月 8 日 [布兰登·泰勒](https://insiderpaper.com/author/brendan-taylor/)在insiderpaper发文报道：
 
-塔珀强调，WTA试图抗议中共国的暴行，比国际奥委会在准备在北京举办2022年冬季奥运会时的做法要强烈得多。虽然国际奥委会吹嘘他们已经和彭帅谈过；但塔珀指出，他们没有公开谴责她所处的困境，塔珀指责他们“表现得像一个黑帮律师”，为中共国的虐待行为作掩护。
+津巴布韦政府对该国越来越多[的 Covid-19 病例](https://insiderpaper.com/singapore-records-715-new-covid-cases/)表示严重关切，这些[病例](https://insiderpaper.com/singapore-records-715-new-covid-cases/)是由 Omicron 变种引起的，并已宣布计划禁止未接种疫苗的人使用公共交通工具。
 
-塔珀说：“是的，奥运会应该是自由的、没有政治的，但这不是关于政治。对中共国政府的指控远远超出了其对彭帅的待遇。”
+据悉，Monica Mutsvangwa 部长在周二的内阁后媒体简报会上表示：“内阁关切地注意到，过去两周每天报告的平均新病例总数急剧增加，”因此，政府[将增加疫苗接种](https://insiderpaper.com/eu-should-discuss-mandatory-covid-vaccination-ursula-von-der-leyen/)，并声称实施加强措施以对抗病毒的传播。
 
-塔珀指出，中共国政府被指控对新疆省的维吾尔族人进行了文化种族灭绝运动。在塔珀概述了“在中共国拘留营中发生的反人类罪行”之后，指责转向了继续从中共国的奴隶劳动中获利或拒绝揭露其侵犯人权行为的美国公司。
+据报导称，上周该国中共病毒每日病例呈指数级增长，从 11 月 28 日的 40 例增加到周一的 2,555 例。
 
-塔珀说：“当然，苹果和耐克公开声称要谴责奴隶制劳动，但要清楚的是，我们从美国公司看到的行为不是关于一个公司的生存，这是关于对仅仅数亿美元的不满，而是渴望数十亿美元。”
+穆茨万瓦表示[，政府](https://insiderpaper.com/heres-how-pfizer-exploits-secretive-vaccine-contracts-to-strong-arm-governments/)将在主要市内和城际巴士总站设立疫苗接种站，以确保未接种疫苗的人在上车前可以自愿接种疫苗。
 
-**塔珀最后列举了好莱坞向中共国屈服的几个例子。“他们费尽心思避免冒犯中共国。”他解释说，这一切都归结于这样一个事实：“好莱坞、NBA、国际奥委会和华尔街的百万富翁和亿万富翁们都对中共国的现金如此渴望，他们假装这一切都没有发生。”**
+她说，那些没有有效疫苗接种卡的人最终将被拒绝乘坐公共交通工具，并补充说卫生部和教育部将继续合作为学校 16-17 岁的儿童接种疫苗。
 
-塔珀最后说：“没有钱可以买到足够的肥皂来洗掉他们手上的血迹。”
+根据官方数据，截至周一，该国的中共病毒（ Covid-19 ）病例总数为 141,601，治愈 128,966 例，死亡 4,713 例。共有 3,882,255 人接受[了第一次](https://insiderpaper.com/austria-imposes-full-nationwide-lockdown-makes-covid-vaccine-jabs-mandatory/)接种，2,892,366 人接受了第二次接种。津巴布韦的目标是到年底为 60% 的人口接种疫苗。
 
-原文连接：[https://www.mediaite.com/tv/jake-tapper-unleashes-on-hollywood-nba-and-more-over-dealings-with-china-theres-not-enough-soap-to-wash-the-blood-off-their-hands/](https://www.mediaite.com/tv/jake-tapper-unleashes-on-hollywood-nba-and-more-over-dealings-with-china-theres-not-enough-soap-to-wash-the-blood-off-their-hands/)
+自从在该国发现 Omicron 变种以来，政府已强制要求所有返回的居民和访客，无论检测结果如何，都要自费进行 PCR 检测和[隔离](https://insiderpaper.com/saudi-arabia-removes-14-day-quarantine-rule-for-india-indonesia-pakistan/)。
 
-翻译：洛杉矶盘古农场—TrueSky
+目前，宵禁已延长至晚上 9 点至早上 6 点。酒类商店不允许进入酒类，只有已接种疫苗的顾客才能进入夜总会和酒吧。
 
-校对：洛杉矶盘古农场—Mike Li
+撰稿人/米拉娅
 
-编辑：洛杉矶盘古农场—心照
+审阅/丘杰斯
+
+上传/天赐良闻
+
+[链接原文](https://insiderpaper.com/zimbabwe-to-ban-unvaccinated-from-using-public-transport/)
+
+[奥米克戎](https://insiderpaper.com/tag/omicron/) [津巴布韦](https://insiderpaper.com/tag/zimbabwe/)
 
 
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+> [Zimbabwe to ban unvaccinated from using public transport](https://insiderpaper.com/zimbabwe-to-ban-unvaccinated-from-using-public-transport/)
+
+
 
  
 

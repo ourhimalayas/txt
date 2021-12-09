@@ -2,18 +2,13 @@
 ---
 
 
-## 【文贵先生大直播PPT】疫苗灾难
-` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1734343/)
+## 澳英加苏紧跟美国相继宣布外交抵制北京冬奥会
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1734567/)
 
-撰稿：莲心不染
-美工：青山
-
-【2021年12月8日文贵先生大直播PPT：疫苗灾难】
-![](https://assets.gnews.org/wp-content/uploads/2021/12/51-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/52-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/53-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/54-2.jpg)
-* * *
-
-发稿：云起时
-
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1209-1-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

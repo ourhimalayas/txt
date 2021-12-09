@@ -2,40 +2,38 @@
 ---
 
 
-## 年轻人心脏病爆炸性增长，英国专家却归咎于心理问题
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1734507/)
+## 苹果公司的蒂姆库克与中共国签署了价值超过 2750 亿美元的秘密协议
+` RoseNews` [轉載自GNews](https://gnews.org/zh-hans/1734657/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/5472-1.jpg)图片来源：**MEDYLIFE**
+![蒂姆库克 275 美元交易中国](https://insiderpaper.com/wp-content/uploads/2021/12/8-990x505.jpg)图片：视频截图
+
+2021 年 12 月 8 日 ，[布伦丹·伯恩](https://insiderpaper.com/author/brendan/)发文报道：
+
+据*The Information*报道，苹果首席执行官蒂姆库克与中共国官员“秘密”签署了一项价值超过 2750 亿美元的协议，承诺苹果将通过投资、商业交易和工人培训，为发展[中共国经济](https://insiderpaper.com/us-to-announce-diplomatic-boycott-of-2022-beijing-winter-olympics/)和技术实力尽自己的一份力量。
+
+据报道，这份之前没有报道过的五年协议是由苹果公司首席执行官蒂姆库克伪造的。[The Information](https://www.theinformation.com/articles/facing-hostile-chinese-authorities-apple-ceo-signed-275-billion-deal-with-them)查看的[苹果内部](https://insiderpaper.com/patent-apple-working-on-drone-device/)文件显示：“在 2016 年，他首次亲自访问该国，以平息针对苹果业务的突然爆发的监管行动。”
+
+文件显示，“在会议之前，苹果高管们争先恐后地挽救公司[与中共国官员](https://insiderpaper.com/more-than-200-chinese-companies-may-be-kicked-off-us-exchanges/)的关系[，中共国官员](https://insiderpaper.com/more-than-200-chinese-companies-may-be-kicked-off-us-exchanges/)认为该公司对当地经济的贡献不够。在政府的镇压和随之而来的不良宣传中，iPhone 的销量直线下降，”该报告周二晚间表示。
+
+报道称，库克就针对 Apple Pay、iCloud 和 App Store 的威胁“亲自游说中共国官员”。
+
+报道称，苹果宣布向滴滴出行[投资](https://insiderpaper.com/china-and-eu-sign-cai-agreement-for-investment-and-fair-trade/)10 亿美元，以“安抚”当局。
+
+据 GizmoChina 援引 The Information 报道，不久之后，库克、苹果首席运营官杰夫威廉姆斯和政府事务负责人丽莎杰克逊据称在中国共产党中央总部中南海会见了高级政府官员。
+
+据报道，作为协议的一部分，苹果同意在其设备中使用更多来自中共国供应商的组件，与中共国软件公司签署协议，与中共国大学[进行技术合作](https://insiderpaper.com/a-mysterious-signal-that-looked-like-a-sign-of-alien-technology-turned-out-to-be-radio-interference/)，并直接投资于中共国科技公司。
+
+该[公司还](https://insiderpaper.com/israeli-nso-spyware-company-plans-to-reverse-us-ban/)承诺在中共国的投资将比目前的支出“多出数十亿美元”，包括新零售店、研发设施和可再生能源项目。
 
 
-** 整理报道：文泓**
 
-近日，英国的有专家说，年轻患者中最新的心脏疾病爆炸性增长可以解释为一种叫做“大流行后应激障碍”的新疾病。
+编译/米拉娅
 
-《伦敦标准晚报》的一篇报道引用了在伦敦一家NHS医院工作的高级血管外科医生塔希尔·侯赛因（Tahir Hussain）的话。
+审阅/丘杰斯
 
-侯赛因说：“**在我的日常工作中，我看到与血栓有关的血管疾病大为增加**。**与大流行之前相比，更多年轻患者入院并需要手术和医疗干预**。”
-侯赛因说，这些病例是“PPSD（大流行后应激障碍）的影响造成的压力和焦虑水平增加的直接结果”。
-他还说，**在家里死于“肺栓塞和心肌梗塞等疾病”的人**是由于他们自我隔离，没有寻求他们所需要的医疗护理。
+上传/天赐良闻
 
-侯赛因的解释得到了前NHS高级心理治疗师马克·雷纳的赞同，他说**多达30万的心脏疾病可能是由于“大流行病后应激障碍”造成的**。
-雷纳说：“每个人都听说过创伤后应激障碍，但我们真的迫切需要了解PPSD”，他补充说：“**大流行病和由此带来的封锁对整个国家的心理健康产生了巨大影响**。”
-
-也一些人怀疑这种观点，即年轻人中心脏问题的突然增加完全是由于禁闭压力造成的——请注意，**英国已经有近****6个月没有任何形式的封锁禁闭**。
-
-“别在意我的最后一条推特！”作家和脱口秀主持人坎迪斯·欧文斯评论道。
-“我刚刚了解到，与心脏有关的疾病的突然增加很可能是由于某某在检查大药厂的‘笔记’，某某“大流行病后应激障碍”？这不值一看！”
-之前的推文中，她曾问道：**“今年有很多年轻健康的运动员突然死亡，这是我的原因吗？”**
-
-新闻链接：[Explosion In New Heart Conditions Dismissed As “Post Pandemic Stress Disorder” | ZeroHedge](https://www.zerohedge.com/covid-19/explosion-new-heart-conditions-dismissed-post-pandemic-stress-disorder)
-
-**编辑****/发布：文泓**
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+援引链接：https://insiderpaper.com/tim-cook-secret-signed-275-bn-deal-with-china-alleges-report/
 
  
 

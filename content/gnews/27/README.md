@@ -2,43 +2,30 @@
 ---
 
 
-## 人伦惨剧，德国家庭因疫苗接种证明而灭门
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1734396/)
+## 佳兆业4亿美元债违约！
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1734587/)
 
-**翻译：月映万川
-编辑：守望黎明**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月9日2-1.jpeg)图片来源：AFP
-据官方调查报道，一名德国男子因伪造新冠疫苗接种证明被发现，在杀死了妻子和三个女儿后，自己也自杀身亡。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Unknown-14.jpg)佳兆业4亿美元债违约！ 网络图片
+据网易新闻12月8日报道，佳兆业因为4亿美元票据已到期，又一次宣布短暂停牌。佳兆业曾于11月5日停牌，11月25日复牌，时隔不到两周再次停牌。
 
-据《纽约邮报》报道，这名被确认名为德维德 （Devid R）的男子12月4日被发现死于柏林南部柯尼希斯·乌斯特豪森的家中，他的妻子琳达和他们的三个女儿一起被枪杀。
+佳兆业关联公司深圳锦恒财富管理有限公司于11月4日宣布到期产品本息达127.88亿元，涉及的投资者总数超过7000人，其中不少是锦恒财富与佳兆业的内部员工。
 
-检查官称，根据现场的遗书，这位40岁的男子担心伪造疫苗接种证明被举报后，会导致分别为4岁、8岁和10岁的三个女儿被强制送到福利院。
+目前市场上有三家地产企业的美元债规模超过100亿美元，分别为恒大175.75亿美元、佳兆业153.85亿美元以及碧桂园117.94亿美元。佳兆业除了12月7日到期的4亿美元，明年有34亿美元到期；2023年29.3亿美元；2024年25.5亿美元到期等。如此负债，能坚持到2024年吗？
 
-德维德在遗书中承认他为妻子伪造了新冠疫苗接种证明。随后他妻子的雇主发现了疫苗证明系伪造的，并且威胁要向相关部门举报他们。
+新闻参考链接：[https://c.m.163.com/news/a/GQNSR6L40528MQRO.html?spss=newsapp](https://c.m.163.com/news/a/GQNSR6L40528MQRO.html?spss=newsapp)
 
-检察官说，该男子担心他和他的妻子都会被逮捕，他们也会因此失去对孩子的监护权。
+* * *
 
-据《柏林晨报》报道，德维德的妻子在TH 威尔道大学工作。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-目前还不清楚男方德维德的具体工作情况。
 
-当局表示，这起可怕的谋杀-自杀事件是在邻居们通过窗户看到屋内中枪的尸体后发现的。
+编辑：【英国伦敦喜庄园编辑部】
 
-从上个月开始，德国的雇主要求他们的雇员必须出具疫苗接种或新冠病毒测试阴性的证明才能继续工作。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-在最近收紧新冠限制措施的情况下，德国当局上周宣布禁止未接种疫苗的人进入非基本行业（包括非必要零售店等）。
 
-政府还计划出台规定，对某些工作岗位进行强制性的疫苗接种。
-
-原文链接： [Dad murders family after being caught with fake Covid vaccine card](https://www.news.com.au/lifestyle/real-life/news-life/dad-murders-family-after-being-caught-with-fake-covid-vaccine-card/news-story/79edb6737f3e23237a11f9fb99e056c5?amp)
-
-*发布：盘古相聚*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

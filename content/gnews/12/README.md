@@ -2,36 +2,25 @@
 ---
 
 
-## 美参众两院军委会提 助台发展不对称武力
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1734610/)
+## 法官暂停对纽约市警察和其他城市工作人员的疫苗强制令
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1734743/)
 
-作者：纽约香草山医疗部 – 云豹
-![This image has an empty alt attribute; its file name is 1-28.png](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
-当地时间12月7日，美国参众两院军事委员会就2022财政年度的国防授权法案达成共识并公布了内容。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/5-7.png)
-该法案有关台湾的条文有下列数项：第一，美国的政策是维持美军有足够的能力，能阻止中共企图以武力犯台来造成既成事实。 第二，要求美国防部长递交台湾防卫能力评估报告，并协助台湾发展不对称防卫能力。第三，加强美国国民警卫队与台湾的合作。第四，建议美国国防部邀请台湾参加2022年环太平洋军演。另外法案中也提到，需注意中共在拉丁美洲与加勒比海区域的扩张，及对台湾邦交国的施压与拉拢。该法案还特别规划了71亿美元的预算，用于此前2020年12月通过的与台湾有关的《太平洋威慑倡议》。
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-12.png)
+图片来源：网络截图
 
-这一由两院军委会达成的共识法案，仍须经参众两院表决通过，并送交白宫，由美国总统拜登签署后才能生效。
+据零对冲12月8日报道，纽约最高法院的一名法官弗兰克·内尔沃（Frank Nervo）周二批准了一场听证会，暂时搁置了纽约市市长比尔德布拉西奥（Bill de Blasio）在10月20日实施的对城市工人（包括所有纽约警察局雇员）的全面中共病毒的疫苗强制令，等待下周的听证。
 
-参考链接：
+根据这项强制令，纽约市警察局的官员和其他市政工作人员如果在10月29日之前还没有接种第一针中共病毒疫苗，就会从11月1日起被休无薪假。
 
-- [美參眾兩院軍委會達共識 助台發展不對稱防衛能力](https://www.cna.com.tw/news/firstnews/202112080009.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-- [Final Text Summary of the National Defense Authorization Act for Fiscal Year 2022](https://armedservices.house.gov/_cache/files/c/3/c307e8de-573a-4c71-b13a-c23c906ca65b/A6F1A40E11C8D6345C381097651DACC4.20211206-fy22-ndaa-final-text-summary-vfinalb.pdf)
+根据法庭文件，听证会定于12月14日上午11:30举行，市长办公室将在12月13日之前作出回应。文件指出，在听证会之前，德布拉西奥、纽约市卫生和心理卫生局局长戴夫·乔克西、警察局长德莫特·谢、纽约市卫生委员会和纽约市 “被限制执行 ”针对城市工作人员和某些城市承包商的中共病毒疫苗任务。该听证会可能导致对新的疫苗强制令的限制令。
 
+此前，纽约里士满县最高法院法官利泽特·科隆（Lizette Colon）拒绝了纽约最大的警察福利协会（PBA）工会提出的对该疫苗强制令发出临时限制令（TRO）的请求，PBA代表约23000名现任和退休的纽约警察。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
+PBA主席帕特里克J.林奇（Patrick J. Lynch）在当时的一份声明中说，这一裁决 “为城市带来了真正的危机”。他说市政厅没有给出任何理由，说明为什么带有每周测试选项的疫苗强制令不再足以保护警察和公众，特别是在中共病毒病例数量继续下降的情况下。这项强制令的草率推出已经在纽约警察局造成了混乱，警察被告知要在几天内做出可能改变生活的决定，而纽约市警察局的领导层却在转圈，没有提供任何指导，这不仅侵犯了警察的权利，也将不可避免地导致警察的减少。
 
-总编辑：飞虹
-编辑：飞虹
-校正/发稿：海阔天空1
+新闻来源：[Judge Temporarily Halts Vaccine Mandate For NYPD Employees, Other City Workers](https://www.zerohedge.com/political/judge-temporarily-halts-vaccine-mandate-nypd-employees-other-city-workers)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
