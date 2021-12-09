@@ -2,50 +2,28 @@
 ---
 
 
-## 普京：俄罗斯将迅速跟进与美方就乌克兰危机进行的通话
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1733918/)
+## 加拿大加入美澳新等行列，宣布外交抵制北京奥运会
+` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/1734060/)
 
-作者：纽约香草山农场 – 四季
+新西兰伊甸农场Gnews组 财经G乐部 – 亚伦
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
+据CTV网站12月8日报道渥太华的消息， 加拿大将对2022年北京冬奥会和残奥会进行外交抵制，这意味着政府官员不会出席，但运动员可以继续比赛。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/是多少.jpg)图片来源THE CANADIAN PRESS/Adrian Wyld
 
 
-据[OAN](https://www.oann.com/russia-says-both-sides-to-follow-up-quickly-on-putin-biden-call/)网站援引路透社12月8日报道，克里姆林宫周三表示，俄罗斯和美国官员将紧急跟进两国总统于前一天就乌克兰问题进行的、有关 “复杂对抗局势”的两小时通话。
+加拿大总理贾斯汀-特鲁多在星期三的新闻发布会上与外交部长梅拉妮-乔利和体育部长帕斯卡尔-圣昂热一起宣布了这一消息。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1643-1.jpg)2021年12月7日，俄罗斯总统弗拉基米尔·普京在俄罗斯索契通过视频链接主持经济问题会议。（Sputnik/Mikhail Metzel/Pool via REUTERS）
+“我们对中国政府一再侵犯人权的行为极为关注。这就是为什么我们今天宣布，我们将不派任何外交代表参加今年冬天的北京奥运会和残奥会，”特鲁多说。
 
-在双方会谈中，拜登警告普京，如果俄罗斯入侵，西方将会对其实施 “强有力的经济和其他措施”，而普京则要求保证北约不会向东扩张。另外，俄罗斯否认其威胁了邻国，并表示相关动作是在回应乌克兰和北约的威胁性行动。
+“我们的运动员已经进行了多年的训练，并期待着与来自世界各地的运动员进行最高水平的竞争。他们将继续得到我们所有最充分的支持。”
 
-莫斯科对美国国务卿安东尼·布林肯上周提出的建议持开放态度，即由华盛顿推动关于冲突的谈判，乌克兰称自2014年以来已有超过14,000人丧生。
+美国周一宣布进行外交抵制北京冬奥会，以此抗议中国对新疆省维吾尔族穆斯林的人权侵犯行为。此后，澳大利亚和英国也纷纷效仿。
 
-乌克兰外交部长德米特罗·库莱巴（Dmytro Kuleba）告诉路透社，拜登和普京的会谈达到了 “威慑和缓和 ”的目的。但他补充说，当务之急是制定一个威慑方案，以抵御莫斯科的任何进一步军事升级。
+保守党领袖Erin O’Toole周三表示，他赞同外交抵制。”他说：”我们不应该发出一个信息，即我们接受对维吾尔人的待遇，我们接受香港的情况，所以在这个阶段，外交抵制是合适的。新民主党也曾试图推动政府朝这个方向发展。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月.png)
+虽然开启了外交抵制，但是加拿大的运动员仍将可以参赛。而且在运动员的安全方面，圣昂热说，政府正在与加拿大皇家骑警密切合作，以确保强有力的安全措施到位。
 
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+相关新闻链接：[https://www.ctvnews.ca/politics/canada-announces-diplomatic-boycott-of-beijing-olympics-athletes-will-still-compete-1.5698625](https://www.ctvnews.ca/politics/canada-announces-diplomatic-boycott-of-beijing-olympics-athletes-will-still-compete-1.5698625)
 
  
 

@@ -15,155 +15,155 @@
 
 ---
 
-### [美大型医疗公司暂停疫苗强制接种](/content/gnews/1/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [从昔日德苏合击波兰，看今天中俄兵临台湾乌克兰](/content/gnews/2/README.md)
+### [未遂中共黑客攻击，险致数百万澳洲家庭断电](/content/gnews/1/README.md)
  ` 墨尔本雅典娜农场`
 
-### [法律专家质疑加拿大全民疫苗接种运动](/content/gnews/3/README.md)
+### [苹果公司曾与中共秘密达成巨额交易](/content/gnews/2/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [【文贵先生大直播PPT】疫苗灾难](/content/gnews/4/README.md)
- ` Mr. Miles Guo's News Briefing`
-
-### [有违初衷的宗教组织](/content/gnews/5/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [纽约市商业团体抨击市长白思豪恶政](/content/gnews/6/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [纽约市宣布对私营企业及儿童强制接种](/content/gnews/7/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [民主党人认为社会主义比资本主义更有利：盖洛普](/content/gnews/8/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [为中共提前唱葬歌，新中国联邦未来三年灭贼大行动](/content/gnews/9/README.md)
- ` YALUN 亚伦`
-
-### [12/8/2021 文贵直播：阿布扎比和中共国断交，军事和经济的项目统统停了，习近平怪文贵？](/content/gnews/10/README.md)
+### [12/8/2021 文贵直播：单伟建是外交部子弟，他利用太平联盟代表中共在美国、在BVI、和在北京采取的一系列活动都是针对文贵的](/content/gnews/3/README.md)
  ` 秘密翻译组-北美组`
 
-### [加拿大与美国、英国和澳大利亚一道外交抵制北京冬奥会](/content/gnews/11/README.md)
- ` MG FARM`
+### [加拿大驻华大使辞职引发各界舆论浪潮](/content/gnews/4/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
 
-### [老员工罢工拒新协议 家乐氏雇永久性人员替代](/content/gnews/12/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [杰克·塔珀对好莱坞、NBA等与中国做生意的公司进行了抨击](/content/gnews/13/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [未接种疫苗（现已停职）的多伦多警察举行静坐抗议](/content/gnews/14/README.md)
- ` MG FARM`
-
-### [【小一观点】俄罗斯重返亚洲，美国釜底抽薪，中共陷入绝境](/content/gnews/15/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm Toronto(CA)`
-
-### [南非遭受自七月以来最新的中共病毒OMICRON 袭击，当地科学家如是说](/content/gnews/16/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [采访：男子在第一次注射新冠疫苗时注射了正常剂量六倍的辉瑞疫苗](/content/gnews/17/README.md)
- ` MG FARM`
-
-### [郭文贵精品视频-盘古物业被暴力查封震惊世界](/content/gnews/18/README.md)
- ` 澳喜农场`
-
-### [卡车广告回归：卡尔加里没有气候紧急情况](/content/gnews/19/README.md)
- ` MG FARM`
-
-### [加拿大加入美澳新等行列，宣布外交抵制北京奥运会](/content/gnews/20/README.md)
- ` YALUN 亚伦`
-
-### [美国正式外交抵制北京冬奥会，习近平实施高段位反击](/content/gnews/21/README.md)
+### [人伦惨剧，德国家庭因疫苗接种证明而灭门](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [研究人员质疑中国人口数据，称实际数据可能更低](/content/gnews/22/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [加拿大政府因疫苗政策面临法律诉讼](/content/gnews/6/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
 
-### [SEC主席强调加密货币市场易受操纵，投资者易受攻击](/content/gnews/23/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [SARS-CoV-2 刺突蛋白是武器化的毒素](/content/gnews/7/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm Toronto(CA)`
 
-### [亚马逊网络服务AWS出现大规模宕机 多个平台受影响](/content/gnews/24/README.md)
- ` 日本东京方舟农场`
+### [美大型医疗公司暂停疫苗强制接种](/content/gnews/8/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
 
-### [中共国准备在大西洋建立第一个永久海军基地，震惊美国官员](/content/gnews/25/README.md)
- ` 波士顿五月花农场`
+### [从昔日德苏合击波兰，看今天中俄兵临台湾乌克兰](/content/gnews/9/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [为了我们的尊严行动行动行动](/content/gnews/26/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [法律专家质疑加拿大全民疫苗接种运动](/content/gnews/10/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
 
-### [普京：俄罗斯将迅速跟进与美方就乌克兰危机进行的通话](/content/gnews/27/README.md)
- ` 纽约香草山MOS02`
+### [【文贵先生大直播PPT】疫苗灾难](/content/gnews/11/README.md)
+ ` Mr. Miles Guo's News Briefing`
 
-### [【粤语配音】2021年12月3日：爆料革命掌握共产党“马航”事件的核心机密](/content/gnews/28/README.md)
- ` MOS香港部`
+### [有违初衷的宗教组织](/content/gnews/12/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [加拿大加入外交抵制北京冬奥会](/content/gnews/29/README.md)
- ` HimalayaRussia`
+### [纽约市商业团体抨击市长白思豪恶政](/content/gnews/13/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
 
-### [加拿大的新冠监狱回归，而且似乎比以往任何时候都更糟](/content/gnews/30/README.md)
+### [纽约市宣布对私营企业及儿童强制接种](/content/gnews/14/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [民主党人认为社会主义比资本主义更有利：盖洛普](/content/gnews/15/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [为中共提前唱葬歌，新中国联邦未来三年灭贼大行动](/content/gnews/16/README.md)
+ ` YALUN 亚伦`
+
+### [12/8/2021 文贵直播：阿布扎比和中共国断交，军事和经济的项目统统停了，习近平怪文贵？](/content/gnews/17/README.md)
+ ` 秘密翻译组-北美组`
+
+### [加拿大与美国、英国和澳大利亚一道外交抵制北京冬奥会](/content/gnews/18/README.md)
  ` MG FARM`
 
-### [与比特币相关的 After pay 或被禁用](/content/gnews/31/README.md)
+### [老员工罢工拒新协议 家乐氏雇永久性人员替代](/content/gnews/19/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [杰克·塔珀对好莱坞、NBA等与中国做生意的公司进行了抨击](/content/gnews/20/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [未接种疫苗（现已停职）的多伦多警察举行静坐抗议](/content/gnews/21/README.md)
+ ` MG FARM`
+
+### [【小一观点】俄罗斯重返亚洲，美国釜底抽薪，中共陷入绝境](/content/gnews/22/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm Toronto(CA)`
+
+### [南非遭受自七月以来最新的中共病毒OMICRON 袭击，当地科学家如是说](/content/gnews/23/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [采访：男子在第一次注射新冠疫苗时注射了正常剂量六倍的辉瑞疫苗](/content/gnews/24/README.md)
+ ` MG FARM`
+
+### [郭文贵精品视频-盘古物业被暴力查封震惊世界](/content/gnews/25/README.md)
+ ` 澳喜农场`
+
+### [卡车广告回归：卡尔加里没有气候紧急情况](/content/gnews/26/README.md)
+ ` MG FARM`
+
+### [加拿大加入美澳新等行列，宣布外交抵制北京奥运会](/content/gnews/27/README.md)
+ ` YALUN 亚伦`
+
+### [美国正式外交抵制北京冬奥会，习近平实施高段位反击](/content/gnews/28/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [研究人员质疑中国人口数据，称实际数据可能更低](/content/gnews/29/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [SEC主席强调加密货币市场易受操纵，投资者易受攻击](/content/gnews/30/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [亚马逊网络服务AWS出现大规模宕机 多个平台受影响](/content/gnews/31/README.md)
+ ` 日本东京方舟农场`
+
+### [中共国准备在大西洋建立第一个永久海军基地，震惊美国官员](/content/gnews/32/README.md)
+ ` 波士顿五月花农场`
+
+### [为了我们的尊严行动行动行动](/content/gnews/33/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [【粤语配音】2021年12月3日：爆料革命掌握共产党“马航”事件的核心机密](/content/gnews/34/README.md)
+ ` MOS香港部`
+
+### [与比特币相关的 After pay 或被禁用](/content/gnews/35/README.md)
  ` wenwu`
 
-### [由于中共的人权暴行，美国正式宣布抵制2022年冬奥会](/content/gnews/32/README.md)
+### [由于中共的人权暴行，美国正式宣布抵制2022年冬奥会](/content/gnews/36/README.md)
  ` 纽约香草山MOS01`
 
-### [英国宣布外交抵制北京冬奥会](/content/gnews/33/README.md)
- ` HimalayaRussia`
-
-### [2021年春节对中共高官子女及情人和亲属大抗议行动方案](/content/gnews/34/README.md)
+### [2021年春节对中共高官子女及情人和亲属大抗议行动方案](/content/gnews/37/README.md)
  ` NewFOC`
 
-### [文贵爆料 12.8：春节将有全球大行动，丧钟只为中共而鸣](/content/gnews/35/README.md)
+### [文贵爆料 12.8：春节将有全球大行动，丧钟只为中共而鸣](/content/gnews/38/README.md)
  ` 秘密翻译组-原创组`
 
-### [12月8日文贵大直播快讯——美俄灭共的新时代来临](/content/gnews/36/README.md)
+### [12月8日文贵大直播快讯——美俄灭共的新时代来临](/content/gnews/39/README.md)
  ` 澳喜特战旅Gnews`
 
-### [12月8日文贵大直播快讯——中共已经进入倒计时](/content/gnews/37/README.md)
+### [12月8日文贵大直播快讯——中共已经进入倒计时](/content/gnews/40/README.md)
  ` 澳喜特战旅Gnews`
 
-### [【文贵先生大直播PPT】郭文贵先生准确预告](/content/gnews/38/README.md)
+### [【文贵先生大直播PPT】郭文贵先生准确预告](/content/gnews/41/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [2021/12/08 墙内世界](/content/gnews/39/README.md)
+### [2021/12/08 墙内世界](/content/gnews/42/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [纽约医生助理说她被迫不报告CCP病毒疫苗伤害事件](/content/gnews/40/README.md)
+### [纽约医生助理说她被迫不报告CCP病毒疫苗伤害事件](/content/gnews/43/README.md)
  ` 纽约香草山MOS01`
 
-### [12月8日文贵大直播快讯——我们将对中共高层展开海外行动](/content/gnews/41/README.md)
- ` 澳喜特战旅Gnews`
-
-### [【文贵先生大直播PPT】单伟建和PAG到底是啥玩意儿](/content/gnews/42/README.md)
+### [【文贵先生大直播PPT】单伟建和PAG到底是啥玩意儿](/content/gnews/44/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [南非新型变种病毒奥米克戎患者激增](/content/gnews/43/README.md)
+### [南非新型变种病毒奥米克戎患者激增](/content/gnews/45/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [鉴于人权暴行 美国官员抵制北京奥运会](/content/gnews/44/README.md)
+### [鉴于人权暴行 美国官员抵制北京奥运会](/content/gnews/46/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [盗国贼也穿着睡衣去零下四度的大街上走一走](/content/gnews/45/README.md)
+### [盗国贼也穿着睡衣去零下四度的大街上走一走](/content/gnews/47/README.md)
  ` 骄子`
 
-### [中俄联军侵略：美防长奥斯汀说乌克兰、台湾可以自卫](/content/gnews/46/README.md)
+### [中俄联军侵略：美防长奥斯汀说乌克兰、台湾可以自卫](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [滴滴美股退市致多个对冲基金损失惨重](/content/gnews/47/README.md)
+### [滴滴美股退市致多个对冲基金损失惨重](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国防授权法案出炉，加强美台合作，制裁中共种族灭绝](/content/gnews/48/README.md)
+### [美国防授权法案出炉，加强美台合作，制裁中共种族灭绝](/content/gnews/50/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [参议员里克·斯科特呼吁NBA抵制北京冬奥会](/content/gnews/49/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [澳大利亚宣布外交抵制北京冬奥会](/content/gnews/50/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [爱面子缺爱缺安全感-偏狭的习近平在梦游中走向一尊梦](/content/gnews/51/README.md)
  ` mary202064`

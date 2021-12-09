@@ -2,25 +2,27 @@
 ---
 
 
-## 纽约市商业团体抨击市长白思豪恶政
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1734319/)
+## 加拿大政府因疫苗政策面临法律诉讼
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1734395/)
 
-采编/翻译：Spirit      校对编辑：硫酸羟氯喹64
+原文采编：文莱      翻译编辑：文文-自由法兰西
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/a-1-edited.jpg)图片来源：ABC
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-42-edited.jpg)图片来源：TCN
 
 
-据《彭博社》12月6 日报道， [摩根大通公司]和[高盛集团]所属的[纽约市商会]负责人表示，他们对纽约市长当天推出的疫苗强制接种措施感到难以置信的震惊。
+据《多伦多太阳报》12月6日报道，加拿大联邦政府目前面临至少90起与“疫苗强制接种政策”有关的劳工申诉。
 
-据悉，该接种授权令规定纽约市大约18万私营企业的雇主必须要求其员工在12月27日前接种“新冠病毒”疫苗，并且将同时取消病毒测试选项。由于当局此前并未与任何相关机构或企业团体进行过协商，因此该命令或将直接破坏纽约商界的稳定性。
+这项于今年10月生效的政策，要求所有政府公务员和加拿大皇家骑警雇员都必须向当局提供“新冠病毒”疫苗完全接种证明，否则将被迫无薪休假。
 
-报道称，联邦、州和市等各级政府的政策不一致使得情况更为混乱。目前还不清楚将由谁来执行市长的新命令，以及该命令是否合法。拜登总统类似的政策目前因法律诉讼而搁浅，因此纽约各界对市长此举能否成功都深表怀疑。
+据悉，在最近的一次裁决中，联邦法官以“法院不得干涉与就业的相关事务”为由，驳回了以上250多名公务员关于暂停执行该接种政策的请求。并宣称此类案件将由一个独立劳工法庭来裁决其是否合法。
+
+报道称，联邦政府的疫苗接种政策适用于约27万名公务员，而其中约96%的人已完全接种。由于缺乏关于“在工作场所强制接种”方面的法律先例，预计法院、劳工法庭及人权委员会都将在未来几年内面临大量相关诉讼的挑战。
 
 * * *
 
-发稿：硫酸羟氯喹64
+校对编辑，发稿：硫酸羟氯喹64
 
-原文链接:  https://www.bnnbloomberg.ca/nyc-business-group-blasts-private-sector-vaccine-mandate-1.1691865
+原文链接： [https://torontosun.com/news/local-news/federal-government-faces-90-individual-labour-grievances-on-mandatory-vaccine-policy/wcm/ca79a2c0-09b9-4f62-a9dd-0bb036f5302b](https://torontosun.com/news/local-news/federal-government-faces-90-individual-labour-grievances-on-mandatory-vaccine-policy/wcm/ca79a2c0-09b9-4f62-a9dd-0bb036f5302b)
 
  
 

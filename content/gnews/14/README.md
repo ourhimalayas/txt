@@ -2,51 +2,25 @@
 ---
 
 
-## 未接种疫苗（现已停职）的多伦多警察举行静坐抗议
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1734109/)
+## 纽约市宣布对私营企业及儿童强制接种
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1734273/)
 
-作者：David Menzies
-翻译：Himasally
+采编/编译: Spirit       撰稿：文莱
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/a-edited.jpg)图片来源：ABC
 
 
+据美国新闻媒体《ABC7》12月6 日报道，纽约市长白思豪当天宣布，将从12月27日开始对该市所有私营企业雇主全面实施“新冠病毒”疫苗强制接种授权政策。
 
-还记得包括执法人员在内的形容词“前线英雄”吗？嗯，就是上个月！现在这些英雄的人数都是零……嗯，至少那些没有未接种新冠疫苗的公职人员在任。
+据悉，除此之外，5至11岁儿童在进入非必要公共场时，也必须出示疫苗接种证明。并试图以此提高目前仅20%的儿童疫苗接种率。
 
-事实上，最近多伦多警察局员工必须在截至日期透露他们的新冠疫苗接种情况或者留在家中休无薪假。
+对此，本台记者报道指出，在拜登政府的强制接种令目前被联邦法院暂停的情况下，纽约市政无视民意，挑战法律并企图以强权施压人民的恶行，必将引起各界更多的抵制。同时，唯有团结起来反抗当局违宪和侵害人权的暴政才能彻底结束这场疫情灾难。
 
-虽然大多数人确实遵守了规定，无论是自愿的还是因为面临可怕的财务状况的前景，但现在有 200 多人因不遵守规定而被无薪停职。
+* * *
 
-代表多伦多警察雇员工会（TPA）多伦多警察协会此前曾鼓励其成员接种疫苗。
+校对编辑，发稿：硫酸羟氯喹64
 
-但 TPA 主席乔恩·里德 (Jon Reid) 最近发表声明指出：“TPA 对多伦多警察局因我们的成员做出不披露或不接种疫苗的决定而无薪休假感到失望。在整个大流行期间，这些成员都无私地为社区服务。”
-
-但谈话是廉价的，大约有 100 名警察出现在 TPA 办公室进行静坐抗议。
-
-唉，这是从来没有发生过的，主要是因为通往 TPA 办公室所在的办公大楼楼层的电梯被禁用了。在一个超现实的举动中，TPA 显然解雇了他们的普通保安人员，保安人员要求（收效甚微）警察离开财产或面临非法侵入指控。
-
-这如何增加超现实感？一名警察可以犯下一级谋杀罪，并且该警官将被停职并带薪停职多年，直到作出判决。但拒绝透露自己的医疗状况就会带来了即时的经济死刑判决。
-
-得到这个：虽然好人必须接受疫苗，但坏人却没有。也就是说，囚犯不受新冠疫苗规则的约束。这有什么意义？
-
-来源：[https://www.rebelnews.com/unvaccinated\_now\_suspended\_toronto\_police\_officers\_hold\_sit\_in\_protest](https://www.rebelnews.com/unvaccinated_now_suspended_toronto_police_officers_hold_sit_in_protest)
-
-（文章仅代表作者个人观点）
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)](https://www.gettr.com/user/7UPgogo)
-
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+原文链接： https://abc7ny.com/new-york-city-vaccine-mandate-private-sector-workers-children-nyc-covid/11305096/
 
  
 

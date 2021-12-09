@@ -2,82 +2,49 @@
 ---
 
 
-## 南非新型变种病毒奥米克戎患者激增
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1733304/)
+## 纽约医生助理说她被迫不报告CCP病毒疫苗伤害事件
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1733596/)
 
-本文作者：Rebecca (一切心皆不可得！)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image001.png)
-据彭博社报导，早前南非已确诊奥米克戎（Omicron）病例不到250例，但最近，每日新病例突增至 16,000 多例。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image003-1.jpg)
-数据源：世界指数
-
-这是自7月以来该国每日新增病例最多的一天。
-
-以下是南非当地7位医生对这一情况的看法摘要：
-
-1
-
-开普敦大学传染病科主任马克-门德尔森（Marc Mendelson）也在格罗特舒尔医院（Groote Schuur Hospital）工作，格罗特舒尔医院做了世界上首例心脏移植手术。
-
-- 目前，看到很多再次感染的情况。但还没统计，具体有多少奥米克戎患者是已接种疫苗的，还是未接种疫苗的。
-
-
-2
-
-南非最大的私人医疗保健网Netcare公司的首席执行官理查德德-弗里德兰（Richard Friedland）
-
-- 奥米克戎具有高传染性，但患者症状比较轻微，并不严重，跟西班牙流感类似。估计这可能预示着新冠病毒的终结就要到了。
-
-
-3
-
-威特沃特斯兰德大学的疫苗专家Shabir Madhi，他负责在阿斯利康公司和诺华公司的疫苗试验项目。
-
-- 奥米克戎似乎比德尔塔传播速度更快，虽然病例总数可能会更多，但住院和死亡人数将低于我们在前三波疫情经历的情况。
-
-
-4
-
-南非国家传染病研究所的临床微生物学家Anne von Gottberg
-
-所有数据显示，儿童的临床病程没有那么严重。我们相信，随着再感染，疾病将变得不那么严重.
-
-5
-
-NICD代理执行主任Adrian Puren
-
-- 目前，患病及住院人数大量增加，但有证据表明，奥米克戎患者占整个新冠病毒变异的75%左右。奥米克戎有完全取代德尔塔变种的可能性。
-
-
-如果奥米克戎确实取代了德尔塔变种，我们需要看看这是免疫规避的结果还是因为传播性的增加所致
-
-6
-
-莱昂-格芬是开普敦海角郊区的一名普通医生，也是萨姆森老龄化研究所的主任。
-
-- 我们看到了病例总数的大规模激增。 “人们大多以咳嗽和上呼吸道感染的方式出现。
-
-
-7
-
-安东尼-史密斯，开普敦的一名普通医生。
-
-- 从上周四或周五开始，病患就像开闸放水一般涌进来。主要是年轻人，但有20%左右是老年患者 “。
-- 大多数孩子都是在小区活动时感染的。其症状较轻，主要是喉咙痛和呼吸道现象。
-- 没有重症患者，但还不能判定奥米克戎病毒是一个较温和的变种。
+作者：纽约香草山翻译部 – defiance
 
 
 
 
-[新闻来源链接](https://www.zerohedge.com/markets/south-africa-suffers-most-new-covid-cases-july-scientists-ground-weigh)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新.png)
 
 
 
-【文章仅限作者个人观点】
 
-审核校对：sherryok (水云间)
+据美国媒体12月6日报道，纽约联合纪念医疗中心（UMMC）的一名前雇员站出来声称，她在急诊室被教唆说关于CCP病毒疫苗伤害的假话。
 
-上传排版：漂流瓶
+助理医生黛博拉·康拉德在她工作的急诊室，观察到大量福奇推广的流感疫苗的不良反应后，上级领导告诉她不要向政府官方提供疫苗伤害数据库VAERS（疫苗不良事件报告系统）报告。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture1-12.jpg)
+康拉德之前在UMMC工作了17年，从未经历过这样的事情，至少没有她在节目里说的这么离谱的事。在康拉德亲眼所见，不被允许报告的疫苗副作用中，有心脏病发作、心肌病、心律失常、血栓和肺栓塞。
+
+今年1、2月份，参与“曲速行动”的第一波美国人注射疫苗后，大量因疫苗受伤的病人就开始出现了。此问题出现的早期，康拉德说她看到有几个病人有这些症状。她立即将其报告给VAERS。她开始告知她的行政领导发生了什么事，但一位女上司却告诉她并不觉得有什么好担心的。最后，急诊室开始注意到发生的事情，康拉德的同事开始让她报告相关病人的信息。
+
+当康拉德第二次找到UMMC的管理层时，他们对她更加严厉，指责她过度报告，疫苗副作用的事情。
+
+参考来源：
+1. [纽约医生助理说她被迫不报告CCP病毒疫苗伤害事件](https://vaccines.news/2021-12-06-cover-up-assistant-forced-stop-reporting-covid-vaccine-injuries.html)
+2. [纽约医生助理说她被迫不报告CCP病毒疫苗伤害事件](https://www.lifesitenews.com/news/physician-assistant-says-she-was-told-to-stop-reporting-covid-vaccine-injuries/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88-1.png)
+
+编辑/校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+
+
+
+
 
  
 
