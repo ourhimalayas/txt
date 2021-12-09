@@ -2,52 +2,52 @@
 ---
 
 
-## 印度：帮助开发 Covid疫苗的医生Suresh S. Jadhav 博士去世
-` RoseNews` [轉載自GNews](https://gnews.org/zh-hans/1734549/)
+## 挪威专家称奥米克戎可能会提供“自然免疫”的“最佳方案”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1734653/)
 
-![苏雷什·贾达夫博士去世](https://insiderpaper.com/wp-content/uploads/2021/12/6-1-990x527.jpg)图片：视频截图
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-391.png)
+挪威的新冠专家说，奥米克戎变体具有高度的传播性，但是“比较温和”，这可能会被证明是“最好的情况”，因为它将提高“自然免疫力”，并使大流行病更快结束。
 
-*世卫组织首席科学家 Soumya Swaminathan 博士对 Jadhav 的逝世表示哀悼，称他为疫苗研发做出了非凡的终生贡献。*
+该国的国家流行病学家弗洛德·福兰德（Frode Forland）正在对南非以外最大的奥米克戎爆发的消息作出回应，该事件发生在奥斯陆的一个圣诞聚会上。
 
-2021 年 12 月 8 日 4 小时前[布兰登·泰勒](https://insiderpaper.com/author/brendan-taylor/)通过insiderpaper发文报道：
+电讯报报道“11月26日晚参加露易丝餐厅和酒吧的多达120人现在已经对冠状病毒检测呈阳性，其中大约一半的人对奥米克戎的筛查呈阳性，其中13人在测序中被证明有该变体”。
 
-印度血清研究所 (SII) 的杰出科学家兼执行董事 Suresh S. Jadhav 博士在开发Covishield 疫苗方面发挥了重要作用，他在长期患病后于周二深夜在[一家私人医院](https://insiderpaper.com/north-carolina-hospital-system-fires-over-175-employees-over-vaccine-mandate/)去世。
+奥斯陆传染病医生蒂内·拉夫罗（Tine Ravlo）透露：“他们有发烧、咳嗽、头痛、肌肉疼痛、疲劳等症状，但就目前而言，他们中没有人病得很严重，也没有人在医院接受治疗”。
 
-他享年72岁，遗下妻子和[两个孩子](https://insiderpaper.com/elon-musk-civilization-is-going-to-crumble-people-more-children/)。
+福兰德认为这是一个积极的消息，因为它清楚地表明该变体 “将是非常温和的，也是非常容易传播的”。
 
-Jadhav 的去世受到 SII 首席执行官 Adar Poonawalla[和](https://insiderpaper.com/federal-court-blocks-bidens-vaccine-mandate-for-health-care-workers/)世界卫生组织（WHO）首席科学家 Soumya Swaminathan 博士等的哀悼。
+“这就是希望。这是我们能得到的最好的情况，”他说。“那就是它变得更温和，大多数人会被感染，而且他们会得到一种自然免疫力。”
 
-Poonawalla 说，“随着 Suresh Jadhav 博士的去世，印度疫苗行业失去了指路明灯”。
+“可能是病毒现在已经复制和变异了很多次，从病毒的角度来看，这是一个最佳的状态，可以广泛传播而不杀死宿主，”福兰德补充说。
 
-据该报道称，“Jadhav 博士在建立发展中国家[疫苗](https://insiderpaper.com/omicron-list-of-countries-where-new-covid-variant-is-detected/)制造网络 (DCVMN) 方面发挥了重要作用。他在 GAVI 董事会代表 SII，并在国家和国际监管机构之间的联络中发挥了重要作用。他在获得世卫组织几种产品的资格预审方面发挥了关键作用，”
+“这就是我们之前在其他疾病上看到的情况。当然，然后它更像流行阶段，”他总结说。
 
-Jadhav 博士出生于马哈拉施特拉邦东部的一个小村庄，获得那格浦尔大学药学学士学位，并于 1970 年获得 CSIR 研究奖学金，开始了他的职业生涯。
+南非最大的私人医疗网络的首席执行官和挪威专家的立场一致，他断言奥米克戎变体 “非常温和”，它“可能标志着新冠疫情的结束”。
 
-在在那格浦尔大学药学系、孟买大学、SNDT[女子大学](https://insiderpaper.com/unvaccinated-students-bath-university-wear-colored-wristbands/)和哈夫金研究所的学术界工作了几年后，他于 1979 年加入 SII，并于 1992 年成为其执行董事。
+期待那些依靠大药厂的巨额广告费和延长对新冠的恐惧而获得高收视率的企业媒体，完全无视所有这些发现。
 
-根据Terrapinn 的疫苗接种统计数据库显示，Jadhav 博士在全球疫苗领域最具影响力的 50 人中排名第七，他还拥有两项专利。
+原文链接：[https://summit.news/2021/12/07/norwegian-covid-experts-says-omicron-could-provide-best-scenario-of-natural-immunity/](https://summit.news/2021/12/07/norwegian-covid-experts-says-omicron-could-provide-best-scenario-of-natural-immunity/)
 
-他在 SII 生产的各种疫苗获得 WHO 认证方面发挥了重要作用，SII 现在被列为全球疫苗供应的领导者，向 140 多个国家供应疫苗。
+简评：新冠疫情已经肆虐将近两年的时间，世界经济遭受重大损失，人类生活方式也为之彻底改变。人们反复追问一个问题——这场灾难什么时候可以结束？
 
-Jadhav 的技术专长范围从质量控制技术到药物定价，他曾多次担任[世卫组织](https://insiderpaper.com/who-calls-nations-to-lift-naive-omicron-travel-ban-on-south-africa/)的专家和临时[顾问，](https://insiderpaper.com/who-calls-nations-to-lift-naive-omicron-travel-ban-on-south-africa/)负责其疫苗规划和政策、新疫苗、新疫苗测试方法、制定新参考标准以及很快。
+随着新病毒变种奥米克戎的传播，舆论被分成了两派。一方面，西方政要和主流媒体，利用此机会继续制造对新冠病毒的恐慌，选择忽略病毒变异的原因——例如其主要在接种两针疫苗的人群中传播，并加强限制性措施，压制个人自由。从媒体报道及各制药公司的反应，不难看出背后的利益捆绑，新的病毒变种给了制药公司又一次大商机，推广自己的疫苗和特效药。而主流媒体除了收取广告费外，又一次提高了关注度。
 
-凭借其丰富的经验，他领导 DCVMN 担任总裁（2004-2008 年），并自 2000 年成立以来一直在其指导委员会任职，此外还曾在多个国际[疫苗机构](https://insiderpaper.com/judge-blocks-bidens-nationwide-vaccine-mandate-for-federal-contractors/)的董事会任职。
+而另一边，一些有良知的科学和病毒学家开始研究新变种的特异性，即其具有的高传播性和病毒本身温和的特质，来判断下一步冠状病毒大流行的趋势。可喜的是，如果这次人们可以通过该变种获得自然免疫，这场疫情的结束离我们更近一步。此报道中的挪威科学家和南非最大的私人医疗网络首席执行官的观点，也印证了爆料革命新中国联邦的情报——这次奥米克戎病毒变种的释放，有助于彻底结束这场疫情。
 
-他周游世界讲学，参加科学研讨会或会议，发表了 60 多篇科学研究论文，在多家印度和[国际政府](https://insiderpaper.com/australia-to-reopen-international-border-in-nov/)或私人学术机构、大学等机构任职，并获得了无数荣誉/奖项。
+Translator: Ying2064
 
-编者按：
+PR: 感恩
 
-愿这位履历卓越的世界知名疫苗专家逝者安息！如果医者还有仁心，相信有良知的医者都不愿意看到如今世界遭受的疫苗洗劫！无论这位逝去的所谓疫苗开发者是否知晓这一轮世界疫苗灾难对人类的伤害有多么惨痛，都希望他帮助研发的covid-19疫苗早日逝去！
+* * *
 
-撰稿人/米拉娅
-
-审阅/丘杰斯
-
-上传/天赐良闻
-
-援引原文：https://insiderpaper.com/doctor-who-helped-develop-a-covid-vaccine-in-india-has-died/
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

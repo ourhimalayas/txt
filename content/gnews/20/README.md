@@ -2,31 +2,36 @@
 ---
 
 
-## 接种了三剂疫苗的联合国秘书长中共病毒检测阳性
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1734788/)
+## 美国安顾问：美国将采取行动 确保中共不会犯台
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1734893/)
 
-**作者:****  **青衣
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-39.png)
-（图片来自网络）
+作者：纽约香草山医疗部-云豹
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-3.png)
+12月7日，在关于拜登与普京视频会议的白宫新闻简报会上，有记者向美国安顾问苏利文提问，如果俄罗斯侵略乌克兰，同时中共以武力侵犯台湾，美国是否做好了应对准备？苏利文回答，美国将从威慑和外交方面采取一切可以采取的行动，以确保中共犯台的局面不会发生。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-401.png)
+苏利文同时表示，上述表态既是美国目前的政策目标，也是美国正在采取的应对步骤。在过去的8个月中，美国在印太地区所做的全部努力，也是为了避免中共作出任何不适当的选择。
 
-据《希望之声》12月8日报道，联合国秘书长发言人办公室周二（7日）证实，联合国秘书长古特雷斯（Antonio Guterres）中共病毒初步检测结果为阳性，目前正在居家隔离中。
+[新闻连接]：
 
-据了解，古特雷斯将于周四（9日）再次进行病毒检测。而在这之前，古特雷斯已经在美国纽约完成了两剂中共病毒疫苗的接种，并且最近可能还接种了第三剂疫苗。
+[https://www.cna.com.tw/news/firstnews/202112080008.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/firstnews/202112080008.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-联合国秘书长发言人杜雅里克（Stephane Dujarric）告诉记者，现年72岁的古特雷斯周二在接触到一名感染了中共病毒的联合国官员后中招。目前他已取消接下来所有需要亲自出席的活动，未来几天都将进行自我隔离。不过，该发言人拒绝就古特雷斯的具体情况置评。
+[https://www.whitehouse.gov/briefing-room/press-briefings/2021/12/07/press-briefing-by-press-secretary-jen-psaki-and-national-security-advisor-jake-sullivan-december-7-2021/](https://www.whitehouse.gov/briefing-room/press-briefings/2021/12/07/press-briefing-by-press-secretary-jen-psaki-and-national-security-advisor-jake-sullivan-december-7-2021/)
 
-而在数天前，杜雅里克曾表示，古特雷斯最近接种了第3剂中共病毒疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-3.png)
 
-据消息人士披露，古特雷斯原定于8日在曼哈顿举行的联合国新闻协会（UN Press Association）年度晚会上担任贵宾；9日则计划参加由安理会轮值主席尼日尔（Niger）总统贝佐姆（Mohamed Bazoum）主持的商讨关于恐怖主义和气候变迁挑战的联合国安全理事会会议。
+总编：AN
 
-另据联合国官网先前的报道，古特雷斯上个月在纽约举行的77国集团会议上发表讲话时曾指出，新冠（中共病毒）疫情继续对发达国家和发展中国家造成严重破坏，而摆脱病毒大流行的唯一途径是实现全球疫苗接种。
+编辑：飞虹
 
-古特雷斯当时表示，联合国支持世界卫生组织制定的疫苗接种战略，目标是到今年年底让所有国家40%的人获得疫苗接种，到2022年年中达到70%。
+校正/发稿：浪迹天涯
 
-极具讽刺的是，大力支持和推广疫苗接种、并且接种了3剂疫苗的古特雷斯如今却“亲自”染上中共病毒了。这再一次证明疫苗根本无效。
-
-新闻链接：[https://m.soundofhope.org/post/573251](https://m.soundofhope.org/post/573251)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-4.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

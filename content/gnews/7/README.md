@@ -2,34 +2,51 @@
 ---
 
 
-## 加拿大加入美国等其他国家对北京奥运会进行外交抵制
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1734875/)
+## 让中共新老常委海外4000家人回家就看得到棺材和花圈
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1735014/)
 
-**【雅典娜快讯】，紧贴时代脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2021.12.9-2加拿大加入美国等.jpg)图片来源：Business Today
-整理报道：Lish
-编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1700f9afb6613f9b89adb8ef4deac22e.jpg)
+据[2021年12月08日 文贵大直播：拜登外交抵制冬奥会；盘古物业接管惊世界；中共高级特务单伟建；对准高层海外大行动](https://gettr.com/streaming/pj3xefa5bc)时间点1：56：15——
 
-12月9日，加拿大政府表示，它将与美国和其他国家一道，对明年2月份的北京冬奥会进行外交抵制。
+**郭文贵先生：**大家一定要记住，尊重各个驻地国的法律。还有一个冠状病毒现在正在全球蔓延，聚会的问题、法规的问题。永远记住咱不要踩红线，我们就要让驻外大使馆踩红线，让它买通地方关系BGY，像当年梁冠军一样，是吧，到我楼下抗议，现在全家都得被调查，所有资产都都得会被没收。
 
-在新闻发布会上加拿大总理贾斯汀·特鲁多说，“与世界各地的许多我们伙伴一样，我们对中共国政府一再侵犯人权的行为极为关注，这就是为什么我们今天宣布，我们将不派任何外交代表参加今年冬季的北京奥运会和残奥会。”但他说，加拿大运动员将可以参加奥运会的比赛。
+我们就让这些驻外大使馆要给习近平、王岐山、杨洁篪献忠心，杨洁篪个王八蛋得搁上去，这两天杨洁篪要出面了。从双规状态、病恢复状态，吃的是伊维菌素、青蒿素，现在要恢复，就这两天要出场了，要出场了，我们得到确切情报，杨洁篪一定放上去。
 
-此举是继美国周一宣布外交抵制之后，西方国家的又一抵制举措。因为华盛顿谴责中共国对新疆地区的维吾尔族有“种族灭绝”和其他侵犯人权的行为。澳大利亚和英国周三也表示，他们的官员将不参加冬奥会。
+要让他们外交部、情报部，他们要有什么冲动？——向习、王表忠心，杀害我们，派杀手，蓝金黄当地政府陷害我们，像对海东家、颖妹家去摔瓶子、打酒的吓唬你们。
 
-西方盟国在一系列问题上与中共国的分歧越来越大，使中共国与西方外交关系陷入自1989年天安门广场镇压事件以来最严重的危机。
+派杀手出来，还有想办法遣返我们什么战友，给我们战友制造假刑事案子文件，我们都要做好最坏的准备。就让他踩红线！就让他在海外暴露！
 
-尤其是加拿大，它与中共国的关系因中共政府拘留两名加拿大国民而陷入深深的冰点，这是中共国对加拿大根据美国要求逮捕华为创始人女儿孟晚舟的回应。
+七哥有一个给你一个大概4000个人的名单，所有老常委和新常委的海外的家人、亲属信息我都有，电话、手机都有，家庭地址。我都会发给你们的，大家就让他们所有人回家就是看到棺材和花圈。让他们所有共产党在的地方、聚会的地方、能看见的地方都是花圈给共产党送葬。
 
-新闻链接：[Canada joins US, other countries in diplomatic boycott of Beijing Olympics | World News – Hindustan Times](https://www.hindustantimes.com/world-news/canada-joins-us-other-countries-in-diplomatic-boycott-of-beijing-olympics-101638988976776.html)
+就是要告诉世界，共产党给世界准备了最大的棺材就是冠状病毒和疫苗，共产主义正在杀害全人类的人，然后共产党他们的家人、他的父亲是这个样子，母亲是这个样子，他本人是这个样子，他应该被世界的正义、法律所送葬。
 
-**发布：**去中心化Math
+他们最相信迷信，他不相信迷信他不把盘古龙头变成鸟头、变成了包头了。咱们从大年开始就开始送葬，送三年他要能活下去我把郭字倒写，你们就把我装棺材里边去，我太了解这帮孙子什么德行了。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+他们的老婆天天照片儿出在了送葬的名单上，他们的活着的妈在送葬名单上，我不相信他能坐得住！你怎么对待我们的父母，我们就百倍万倍地给你还过去。
+
+（以下暂略）
+
+撰稿：喜马拉雅的肉夹馍；
+
+审核：喜马拉雅的馍夹肉；
+
+校对：Maarago
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

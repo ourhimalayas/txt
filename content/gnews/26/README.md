@@ -2,37 +2,18 @@
 ---
 
 
-## 辉瑞公司的一个董事会成员是前Facebook董事
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1734723/)
+## 珍珠港偷袭事件80周年的反思
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1734850/)
 
-作者：纽约香草山健身部 – 童谣
-![This image has an empty alt attribute; its file name is 1-28.png](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
-12月6日，美国媒体揭露，2020年加入辉瑞公司的董事会成员——苏珊·德斯蒙德·赫尔曼博士——曾在社交媒体巨头Facebook担任首席独立董事。
+撰稿：文飞天
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/7-3.png)
+80年前夏威夷，1941年12月7日上午7点55分，日本偷袭美国夏威夷珍珠港海军基地。 日本海军派出6艘航空母舰、300多架战机奇袭轰炸，击沉美国多艘战舰，摧毁上百架战机。 这场战役造成美国超过3500人死亡，引爆太平洋战争，也是二战的一大转折点。
+珍珠港事件80周年纪念仪式，在美国夏威夷珍珠港海军基地举行，亲历过当年日军偷袭事件的150名美军退伍老兵，美国现役海军、空军代表，民众代表近千人参加了纪念仪式。
+美国海军部长在演讲中表示，对珍珠港事件的纪念，是对当年牺牲士兵的致敬和纪念，也是对所有参与过战争的牺牲美军纪念。
+中共网军趁珍珠港事件80周年，讥讽美国人把耻辱变成了欢乐夜，忘了仇恨。 事实是，美日早已结成亲密的战略盟友关系，美日共同维护台海和平，不容中共造次。
 
-赫尔曼于2013年到Facebook董事会任职，并在2015年至2019年10月30日期间担任首席独立董事，直到中共病毒大流行前不久辞职。离开Facebook后，赫尔曼于2020年加入了辉瑞公司的董事会。据了解，赫尔曼同时在比尔与梅琳达-盖茨基金会中担任首席执行官。
-
-在赫尔曼担任辉瑞公司董事会成员期间，Facebook发起了审查“中共病毒疫苗怀疑者”的活动，据该公司泄露的内部文件显示，其算法旨在 “大幅消除用户在评论中对疫苗犹豫不决的言论”。
-
-参考链接：
-
-- [REVEALED: New Pfizer Board Member Is Ex-Facebook Director.](https://thenationalpulse.com/exclusive/pfizer-board-member-is-former-facebook-director/)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
-
-总编辑：文特
-编辑：飞虹
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
+发稿：MG5
+![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

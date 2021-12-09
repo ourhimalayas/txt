@@ -2,32 +2,32 @@
 ---
 
 
-## 美国立法对中共制裁，禁止进口新疆产品
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1734805/)
+## 有声|普京：俄罗斯将迅速跟进与美方就乌克兰危机进行的通话
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1734914/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-396.png)[图片来源](https://www.bbc.com/zhongwen/simp/world-57859756)
-美国众议院出于对中共强迫劳动与种族灭绝的关切，周三通过了禁止从中共国新疆地区进口产品的立法。这是华盛顿继续制裁中共对待其维吾尔穆斯林少数民族的做法，而以压倒性优势通过的三项措施之一。
+配音：香草山美食部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+据[OAN](https://www.oann.com/russia-says-both-sides-to-follow-up-quickly-on-putin-biden-call/)网站援引路透社12月8日报道，克里姆林宫周三表示，俄罗斯和美国官员将紧急跟进两国总统于前一天就乌克兰问题进行的、有关 “复杂对抗局势”的两小时通话。
 
-众议院以428比1的压倒性优势通过“防止强迫维吾尔族劳动法案”。该法案还必须获得参议院通过，并由总统拜登签署成为法律。这项涉疆措施将建立一个“可反驳的推定”，即所有来自新疆的商品都是通过强迫劳动制造的。
+在双方会谈中，拜登警告普京，如果俄罗斯入侵，西方将会对其实施 “强有力的经济和其他措施”，而普京则要求保证北约不会向东扩张。另外，俄罗斯否认其威胁了邻国，并表示相关动作是在回应乌克兰和北约的威胁性行动。
 
-中共国否认在新疆有侵犯人权行为，但美国政府和许多人权组织证实北京在那里实施种族灭绝。
+莫斯科对美国国务卿安东尼·布林肯上周提出的建议持开放态度，即由华盛顿推动关于冲突的谈判，乌克兰称自2014年以来已有超过14,000人丧生。
 
-共和党人指责拜登政府及其国会民主党同僚拖延立法，因为这将使总统的可再生能源议程变得复杂。全球大部分太阳能电池板材料来自新疆。
+乌克兰外交部长德米特罗·库莱巴（Dmytro Kuleba）告诉路透社，拜登和普京的会谈达到了 “威慑和缓和 ”的目的。但他补充说，当务之急是制定一个威慑方案，以抵御莫斯科的任何进一步军事升级。
 
-白宫以及国会的民主党人否认拖延相关法案。美国白宫周一表示，由于中共国的人权“暴行”，美国将不会派政府官员参加2022年北京冬奥会。
+文字版原文：[普京：俄罗斯将迅速跟进与美方就乌克兰危机进行的通话](https://gnews.org/zh-hans/1733918/)
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-民主党占多数席位的众议院周三还以巨大的优势通过了另外两项与中共国和人权有关的措施。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-众议院以428比0的投票结果通过一项决议，称国际奥委会与中共国政府合作，违反了自己的人权承诺。
-
-众议院还以427票赞成1票反对的结果通过了一项决议，谴责中共国对维吾尔族和其他宗教及少数民族群体实施的“持续种族灭绝和反人类罪”，并呼吁在联合国采取行动。
-
-消息来源：[美国众议院通过三项针对中共国的决议 包括禁止自新疆地区进口产品](https://cn.reuters.com/article/us-house-china-xinjiang-bill-1209-idCNKBS2IO03T?il=0)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

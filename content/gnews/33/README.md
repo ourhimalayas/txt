@@ -2,53 +2,37 @@
 ---
 
 
-## 挪威专家称奥米克戎可能会提供“自然免疫”的“最佳方案”
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1734653/)
+## 辉瑞公司的一个董事会成员是前Facebook董事
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1734723/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-391.png)
-挪威的新冠专家说，奥米克戎变体具有高度的传播性，但是“比较温和”，这可能会被证明是“最好的情况”，因为它将提高“自然免疫力”，并使大流行病更快结束。
+作者：纽约香草山健身部 – 童谣
+![This image has an empty alt attribute; its file name is 1-28.png](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
+12月6日，美国媒体揭露，2020年加入辉瑞公司的董事会成员——苏珊·德斯蒙德·赫尔曼博士——曾在社交媒体巨头Facebook担任首席独立董事。
 
-该国的国家流行病学家弗洛德·福兰德（Frode Forland）正在对南非以外最大的奥米克戎爆发的消息作出回应，该事件发生在奥斯陆的一个圣诞聚会上。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/7-3.png)
 
-电讯报报道“11月26日晚参加露易丝餐厅和酒吧的多达120人现在已经对冠状病毒检测呈阳性，其中大约一半的人对奥米克戎的筛查呈阳性，其中13人在测序中被证明有该变体”。
+赫尔曼于2013年到Facebook董事会任职，并在2015年至2019年10月30日期间担任首席独立董事，直到中共病毒大流行前不久辞职。离开Facebook后，赫尔曼于2020年加入了辉瑞公司的董事会。据了解，赫尔曼同时在比尔与梅琳达-盖茨基金会中担任首席执行官。
 
-奥斯陆传染病医生蒂内·拉夫罗（Tine Ravlo）透露：“他们有发烧、咳嗽、头痛、肌肉疼痛、疲劳等症状，但就目前而言，他们中没有人病得很严重，也没有人在医院接受治疗”。
+在赫尔曼担任辉瑞公司董事会成员期间，Facebook发起了审查“中共病毒疫苗怀疑者”的活动，据该公司泄露的内部文件显示，其算法旨在 “大幅消除用户在评论中对疫苗犹豫不决的言论”。
 
-福兰德认为这是一个积极的消息，因为它清楚地表明该变体 “将是非常温和的，也是非常容易传播的”。
+参考链接：
 
-“这就是希望。这是我们能得到的最好的情况，”他说。“那就是它变得更温和，大多数人会被感染，而且他们会得到一种自然免疫力。”
-
-“可能是病毒现在已经复制和变异了很多次，从病毒的角度来看，这是一个最佳的状态，可以广泛传播而不杀死宿主，”福兰德补充说。
-
-“这就是我们之前在其他疾病上看到的情况。当然，然后它更像流行阶段，”他总结说。
-
-南非最大的私人医疗网络的首席执行官和挪威专家的立场一致，他断言奥米克戎变体 “非常温和”，它“可能标志着新冠疫情的结束”。
-
-期待那些依靠大药厂的巨额广告费和延长对新冠的恐惧而获得高收视率的企业媒体，完全无视所有这些发现。
-
-原文链接：[https://summit.news/2021/12/07/norwegian-covid-experts-says-omicron-could-provide-best-scenario-of-natural-immunity/](https://summit.news/2021/12/07/norwegian-covid-experts-says-omicron-could-provide-best-scenario-of-natural-immunity/)
-
-简评：新冠疫情已经肆虐将近两年的时间，世界经济遭受重大损失，人类生活方式也为之彻底改变。人们反复追问一个问题——这场灾难什么时候可以结束？
-
-随着新病毒变种奥米克戎的传播，舆论被分成了两派。一方面，西方政要和主流媒体，利用此机会继续制造对新冠病毒的恐慌，选择忽略病毒变异的原因——例如其主要在接种两针疫苗的人群中传播，并加强限制性措施，压制个人自由。从媒体报道及各制药公司的反应，不难看出背后的利益捆绑，新的病毒变种给了制药公司又一次大商机，推广自己的疫苗和特效药。而主流媒体除了收取广告费外，又一次提高了关注度。
-
-而另一边，一些有良知的科学和病毒学家开始研究新变种的特异性，即其具有的高传播性和病毒本身温和的特质，来判断下一步冠状病毒大流行的趋势。可喜的是，如果这次人们可以通过该变种获得自然免疫，这场疫情的结束离我们更近一步。此报道中的挪威科学家和南非最大的私人医疗网络首席执行官的观点，也印证了爆料革命新中国联邦的情报——这次奥米克戎病毒变种的释放，有助于彻底结束这场疫情。
-
-Translator: Ying2064
-
-PR: 感恩
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- [REVEALED: New Pfizer Board Member Is Ex-Facebook Director.](https://thenationalpulse.com/exclusive/pfizer-board-member-is-former-facebook-director/)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+总编辑：文特
+编辑：飞虹
+校正/发稿：海阔天空1
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

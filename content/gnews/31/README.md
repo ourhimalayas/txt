@@ -2,40 +2,31 @@
 ---
 
 
-## 墙内3-11岁儿童半数接种新冠疫苗 “儿童白血病”搜索量激增
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1734681/)
+## 接种了三剂疫苗的联合国秘书长中共病毒检测阳性
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1734788/)
 
-作者：纽约香草山教育部 – Noemi
-![This image has an empty alt attribute; its file name is 1-28.png](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
-12月8日，据中共政府官方数据，国内3-11岁儿童中已有8400万人接种过中共病毒疫苗，接种率达到了50%。在中共国展开儿童新冠病毒疫苗接种工作一个多月以来，疫苗的副作用已在儿童群体中逐渐凸显出来。
+**作者:****  **青衣
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-39.png)
+（图片来自网络）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/6-5.png)
+据《希望之声》12月8日报道，联合国秘书长发言人办公室周二（7日）证实，联合国秘书长古特雷斯（Antonio Guterres）中共病毒初步检测结果为阳性，目前正在居家隔离中。
 
-据盖特网友爆料，近期内，“儿童白血病”一词的搜索量在中共国内出现直线飙升趋势。仅在微信平台中，该词的单日最高搜索量就超过了四百万次，是日常搜索量的近十倍。
+据了解，古特雷斯将于周四（9日）再次进行病毒检测。而在这之前，古特雷斯已经在美国纽约完成了两剂中共病毒疫苗的接种，并且最近可能还接种了第三剂疫苗。
 
-另有盖特网友爆料称，儿童接种新冠病毒疫苗引发的急性白血病案例与科兴疫苗的某些特定批次紧密相关。在网友所在当地，某一批次的科兴疫苗只要一接种，接种者在短期内大概率就会患上急性白血病。
+联合国秘书长发言人杜雅里克（Stephane Dujarric）告诉记者，现年72岁的古特雷斯周二在接触到一名感染了中共病毒的联合国官员后中招。目前他已取消接下来所有需要亲自出席的活动，未来几天都将进行自我隔离。不过，该发言人拒绝就古特雷斯的具体情况置评。
 
-参考链接：
+而在数天前，杜雅里克曾表示，古特雷斯最近接种了第3剂中共病毒疫苗。
 
-- [中国如何为1.6亿儿童接种新冠疫苗](https://cn.nytimes.com/china/20211206/china-covid-vaccine-children/)
-- [儿童白血病数据直线飙升](https://gettr.com/post/piqh1p24e6)
-- [https://gettr.com/post/piqh1p24e6](https://gettr.com/post/piqh1p24e6)
-- [保险公司预知白血病风潮的来临，紧急停售儿童白血病专项保险！](https://gettr.com/post/pi1krk1e1a)
+据消息人士披露，古特雷斯原定于8日在曼哈顿举行的联合国新闻协会（UN Press Association）年度晚会上担任贵宾；9日则计划参加由安理会轮值主席尼日尔（Niger）总统贝佐姆（Mohamed Bazoum）主持的商讨关于恐怖主义和气候变迁挑战的联合国安全理事会会议。
 
+另据联合国官网先前的报道，古特雷斯上个月在纽约举行的77国集团会议上发表讲话时曾指出，新冠（中共病毒）疫情继续对发达国家和发展中国家造成严重破坏，而摆脱病毒大流行的唯一途径是实现全球疫苗接种。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
+古特雷斯当时表示，联合国支持世界卫生组织制定的疫苗接种战略，目标是到今年年底让所有国家40%的人获得疫苗接种，到2022年年中达到70%。
 
-总编辑：童谣
-编辑：飞虹
-校正/发稿：海阔天空1
+极具讽刺的是，大力支持和推广疫苗接种、并且接种了3剂疫苗的古特雷斯如今却“亲自”染上中共病毒了。这再一次证明疫苗根本无效。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
+新闻链接：[https://m.soundofhope.org/post/573251](https://m.soundofhope.org/post/573251)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
