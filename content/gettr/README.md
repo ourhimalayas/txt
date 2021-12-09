@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/9/2021 1:39 PM (UTC)`
+
+Billboard Digital Song Sales Top 50 (USA🇺🇸 week of December 11th 2021)<br/><br/>No.28 Hcoin To The Moon<br/>🎉🎉🎉🎉🎉🎉🎉<br/><br/>公告牌数字歌曲销售前50名综合排行榜（美国🇺🇸本周排行至2021年12月11日）<br/><br/>第28名 Hcoin To The Moon<br/>🎉🎉🎉🎉🎉🎉🎉<br/><br/><br/>
+![img](https://media.gettr.com/group26/getter/2021/12/09/13/dcfd79d4-1b9b-da99-6448-1f8903d36a9d/out.jpg)
+
+---
+
 `@miles 12/9/2021 1:08 PM (UTC)`
 
 Forbes news on Dec 8, 2021:<br/><br/>This week’s World Digital Song Sales chart is dominated by an artist who is simultaneously<br/>famous, and relatively unknown. <br/><br/>No. 1 - Miles Guo - “Hcoin to the Moon”<br/>Mysterious Chinese billionaire and controversial political commentator Miles Guo is back on the Billboard charts with his latest release “Hcoin to the Moon.” The tune opens at No. 1 on the World Digital Song Sales ranking, conquering the tally with ease. The cut also reaches other purchase-focused lists, including the all-genre Digital Song Sales tally, where it starts off at No. 28 with just under 2,800 copies sold, according to MRC Data.<br/><br/>https://www.forbes.com/sites/hughmcintyre/2021/12/08/exos-kai-stray-kids-chung-ha-and-ive-moves-on-the-world-songs-chart/amp/
@@ -146,12 +153,6 @@ G| Fashion-Fitting in Milan🇮🇹, more styles are coming soon 🔥🔥🔥❤
 `@miles 12/7/2021 2:11 PM (UTC)`
 
 7/12/2021 “Hcoin To the Moon" Hits #1 🥇on 6 Countries' iTunes Rock Charts on 5th Day of Launch 🎉🎉🎉🎉🎉🎉🎉<br/>Thank you very much to all our brothers and sisters in HongKong, Taiwan, New Zealand, Australia, Laos, Singapore!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1729807/<br/><br/>12月7号，Hcoin To the Moon上线第5天位列6国iTunes摇滚音乐榜首🥇！🎉🎉🎉🎉🎉🎉🎉<br/>感谢香港，台湾，新西兰, 澳大利亚，老挝，新加坡的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏
-
----
-
-`@miles 12/7/2021 5:04 AM (UTC)`
-
-On Dec. 6, 2021, hundreds of police and over 100 people from BBMG sent by the CCP violently seized Pangu’s assets. Over 1,000 employees and guests were thrown out of the Pangu hotel, and my father, who is over 90 years old, was driven out of his home. This is the CCP’s yet another atrocity against my family and employees after the $13 billion fine and illegal auction of Pangu's assets by the Dalian Intermediate Court! All is totally illegal! It’s a law-trampling, immoral, and inhumane mass arrest and robbery directed by the CCP kleptocrats!<br/><br/>Intermediate People’s Court of Dalian, Liaoning Province Public Announcement<br/><br/>https://gnews.org/1727858/<br/><br/>Appointment of Emergency Property Management Company for Pangu Plaza<br/><br/>https://gnews.org/1727906/
 
 ---
 
