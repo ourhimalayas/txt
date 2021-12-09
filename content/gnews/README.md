@@ -15,89 +15,89 @@
 
 ---
 
-### [重要：郭文贵先生正式宣布“消灭中共的海外大行动”！](/content/gnews/1/README.md)
+### [喜币才是你财富的避风港](/content/gnews/1/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [封城的日子 新西兰篇](/content/gnews/2/README.md)
+### [东京5个主要区写字楼的租赁价格预计会持续下降](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [重要：郭文贵先生正式宣布“消灭中共的海外大行动”！](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [封城的日子 新西兰篇](/content/gnews/4/README.md)
  ` 澳喜农场`
 
-### [12/8/2021 文贵直播：全球抗议中共联合大行动总动员，为了我们的尊严，必须行动、行动、行动！](/content/gnews/3/README.md)
+### [12/8/2021 文贵直播：全球抗议中共联合大行动总动员，为了我们的尊严，必须行动、行动、行动！](/content/gnews/5/README.md)
  ` 秘密翻译组-北美组`
 
-### [美参议院通过法案 拜登疫苗强制接种令该歇菜了](/content/gnews/4/README.md)
+### [美参议院通过法案 拜登疫苗强制接种令该歇菜了](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美众议院一天内几乎全票通过三项中共国人权法案](/content/gnews/5/README.md)
+### [美众议院一天内几乎全票通过三项中共国人权法案](/content/gnews/7/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【粤语配音】2021年12月8日： 全球战友为共产党及其家人送葬，以牙还牙](/content/gnews/6/README.md)
+### [【粤语配音】2021年12月8日： 全球战友为共产党及其家人送葬，以牙还牙](/content/gnews/8/README.md)
  ` MOS香港部`
 
-### [美国对俄罗斯入侵乌克兰和中共入侵台湾发出“预警”](/content/gnews/7/README.md)
+### [美国对俄罗斯入侵乌克兰和中共入侵台湾发出“预警”](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [英国、加拿大加入外交抵制北京冬奥会行列](/content/gnews/8/README.md)
+### [英国、加拿大加入外交抵制北京冬奥会行列](/content/gnews/10/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [德国出现自二月以来最高的CCP病毒死亡记录](/content/gnews/9/README.md)
+### [德国出现自二月以来最高的CCP病毒死亡记录](/content/gnews/11/README.md)
  ` 澳喜特战旅Gnews`
 
-### [新的国家与货币金融的概念](/content/gnews/10/README.md)
+### [新的国家与货币金融的概念](/content/gnews/12/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [欧盟提案“反胁迫”贸易制裁 谴责中共力挺立陶宛](/content/gnews/11/README.md)
+### [欧盟提案“反胁迫”贸易制裁 谴责中共力挺立陶宛](/content/gnews/13/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [德国新政府走在悬崖边缘](/content/gnews/12/README.md)
+### [德国新政府走在悬崖边缘](/content/gnews/14/README.md)
  ` 澳喜农场`
 
-### [币圈新闻动态：喜币（HCN）价格目前在44.235 HDO](/content/gnews/13/README.md)
+### [币圈新闻动态：喜币（HCN）价格目前在44.235 HDO](/content/gnews/15/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [习近平是爆料革命和灭共事业最大的礼物](/content/gnews/14/README.md)
+### [习近平是爆料革命和灭共事业最大的礼物](/content/gnews/16/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [莫德纳加强针在澳洲获批](/content/gnews/15/README.md)
+### [莫德纳加强针在澳洲获批](/content/gnews/17/README.md)
  ` 澳喜特战旅Gnews`
 
-### [美众议院一天内近全票通过三项有关中共人权问题法案](/content/gnews/16/README.md)
+### [美众议院一天内近全票通过三项有关中共人权问题法案](/content/gnews/18/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [文·贵天成——文贵先生谈“疫苗”（三十九）](/content/gnews/17/README.md)
+### [文·贵天成——文贵先生谈“疫苗”（三十九）](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [避免战略利益受中共影响，澳洲加快推进制造业基金](/content/gnews/18/README.md)
+### [避免战略利益受中共影响，澳洲加快推进制造业基金](/content/gnews/20/README.md)
  ` 走进澳洲`
 
-### [12/8/2021 文贵直播：王岐山的家族企业以盘古酒店管理公司“不能履行业务”为由将其撵走，并用物管公司接管了盘古七星酒店](/content/gnews/19/README.md)
+### [12/8/2021 文贵直播：王岐山的家族企业以盘古酒店管理公司“不能履行业务”为由将其撵走，并用物管公司接管了盘古七星酒店](/content/gnews/21/README.md)
  ` 秘密翻译组-北美组`
 
-### [每时每刻的认知（三）](/content/gnews/20/README.md)
+### [每时每刻的认知（三）](/content/gnews/22/README.md)
  ` 澳喜农场`
 
-### [文·贵天成——文贵先生谈“疫苗”（三十八）](/content/gnews/21/README.md)
+### [文·贵天成——文贵先生谈“疫苗”（三十八）](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [注射国产灭活疫苗相当于感染了中共病毒！](/content/gnews/22/README.md)
+### [注射国产灭活疫苗相当于感染了中共病毒！](/content/gnews/24/README.md)
  ` 澳喜农场`
 
-### [在大年三十和初一北京放烟花的时候给共产党全球送棺材](/content/gnews/23/README.md)
+### [在大年三十和初一北京放烟花的时候给共产党全球送棺材](/content/gnews/25/README.md)
  ` NewFOC`
 
-### [关于我自己对于躺平币的一些肤浅认识](/content/gnews/24/README.md)
+### [关于我自己对于躺平币的一些肤浅认识](/content/gnews/26/README.md)
  ` 澳喜农场`
 
-### [12/8/2021 文贵直播：单伟建的直接领导是王岐山，一个电话就能安排见中共高官](/content/gnews/25/README.md)
+### [12/8/2021 文贵直播：单伟建的直接领导是王岐山，一个电话就能安排见中共高官](/content/gnews/27/README.md)
  ` 秘密翻译组-北美组`
 
-### [郭文贵直播摘要和音频 2021.12.08](/content/gnews/26/README.md)
+### [郭文贵直播摘要和音频 2021.12.08](/content/gnews/28/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [为什么SARS-CoV-2 刺突蛋白如此毒](/content/gnews/27/README.md)
- ` 秘密翻译组-原创组`
-
-### [文·贵天成——文贵先生谈“疫苗”（三十七）](/content/gnews/28/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [路透社：恒大声明无法保证偿还其庞大债务后股价暴跌](/content/gnews/29/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
