@@ -2,28 +2,18 @@
 ---
 
 
-## 英国外长称欧洲需要结束对俄罗斯的能源依赖
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1735873/)
+## 韩国重申暂未决定是否出席北京冬奥会
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1735903/)
 
-**翻译: 里奇**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip42.png)2021 年 11 月 24 日，英国外交大臣 Liz Truss 在英国伦敦的外交与发展办公室接受路透社采访后代表肖像。 REUTERS/Toby Melville
-路透伦敦 12 月 8 日 – 英国外交大臣利兹·特拉斯 (Liz Truss) 周三表示，如果莫斯科如愿以偿，欧洲将越来越依赖俄罗斯天然气，现在是各国结束这种依赖的时候了。
+撰稿——追着曙光跑
+![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Image-2021-12-09-at-21.11.49.jpeg)图片来自：原新闻
+12月9日上午，韩国外交部副部长崔钟建出现在TBS电台，在节目中表示，就政府是否会派遣代表出席北京冬奥会的提问回答说，平昌、东京、北京的东北亚奥运接力意义重大，目前政府尚未做出任何决定。
 
-“欧盟超过 40% 的天然气依赖于俄罗斯，在一些国家，俄罗斯完全垄断了供应。如果俄罗斯如愿以偿，欧洲将越来越依赖它的天然气” 特拉斯告诉查塔姆大厦智库。
+对此，青瓦台一名高级官员昨天（8日）也表示，“政府目前不考虑抵制明年北京冬奥会，但是否参与尚未定论。”
 
-“我们必须结束这种战略依赖” 她说，并补充说她将于周三会见她的乌克兰同行，以加强他们的关系，并重申俄罗斯对乌克兰的任何入侵都是错误的。
+目前，美国、新西兰、澳大利亚、加拿大已决定参与外交抵制北京冬奥会，英国也提到了事实上的外交抵制。据了解，日本也在考虑是否参与。
 
-**新闻来源**: [路透社][Europe needs to end energy dependency on Russia, says UK foreign minister](https://www.reuters.com/world/europe/europe-needs-end-energy-dependency-russia-says-uk-foreign-minister-2021-12-08/)
-
-* * *
-
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH..jpeg)
-
-
+新闻来源：**[최종건 외교차관, ‘올림픽 보이콧’ 여부에 “직전 주최국 역할하려 해”](https://news.kbs.co.kr/mobile/news/view.do?ncd=5344448)**
 
  
 
