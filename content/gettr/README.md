@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/9/2021 3:39 PM (UTC)`
+
+12/8/2021 Miles Guo: Weijian Shan is a ministerial level spy of the CCP under the Secret Six Bureau, which has the highest security clearance, and he reports directly to the CCP’s Politburo Standing Committee members; Weijian Shan is the founder of the Western Returned Scholars Association in Beijing<br/><br/>12/8/2021 文贵直播：单伟建是中共的正部级间谍，隶属具有最高保密级别的秘六局，他直接给中共政治局常委汇报工作；单伟建是北京欧美同学会的创始人<br/>
+![img](https://media.gettr.com/group43/getter/2021/12/09/15/d1ccc6a2-3a8b-ca4c-5f43-efe28045200d/out.jpg)
+
+---
+
+`@miles 12/9/2021 3:33 PM (UTC)`
+
+12/8/2021 Miles Guo: General mobilization for the global joint protests against the CCP - For the sake of our dignity, we must take action! Action! Action! What happened to my father and Pangu’s employees will happen to all Chinese people. We have no reason to fear, and we must take down the CCP!<br/><br/>12/8/2021文贵直播：全球抗议中共联合大行动总动员，为了我们的尊严，必须行动、行动、行动！发生在我父亲和盘古员工身上的事会发生在每一个中国人身上，我们没有任何恐惧的理由，必须灭掉中国共产党！<br/>
+![img](https://media.gettr.com/group40/getter/2021/12/09/15/70e78c5b-6530-04cb-59c5-92c756ce984a/out.jpg)
+
+---
+
+`@miles 12/9/2021 3:27 PM (UTC)`
+
+12/8/2021 Miles Guo: Boycotting the Winter Olympics is the decision of all Americans, and the CCP’s Winter Olympics is finished for good; the CCP is bound to be kicked out of the WTO and the SWIFT international payment network; Russia is returning to East Asia, and the new era of the US-Russia coalition to destroy the CCP has begun<br/><br/>12/8/2021 文贵直播：抵制冬奥会是所有美国人的决定，中共冬奥会已彻底结束；中共必被踢WTO和SWIFT系统；俄罗斯正在重返东亚，开启美俄联合灭共新时代；中共只能去打台湾了<br/>
+![img](https://media.gettr.com/group47/getter/2021/12/09/15/db1a7699-a640-3246-c424-ef3c4f9fccac/out.jpg)
+
+---
+
 `@miles 12/9/2021 3:19 PM (UTC)`
 
 12/8/2021 Miles Guo: Boycotting the Beijing Winter Olympics basically means the CCP is sentenced to death, and the New Federal State of China has made great contributions to it! The Guo’s Seven Principles no longer apply, and we will do everything we can to take down the CCP!<br/><br/>12/8/2021 文贵直播: 干掉北京冬奥会意味着中共基本被判处了死刑，新中国联邦在此事上功不可没！世上不再有郭七条，我们会采取一切手段来灭共！<br/>
@@ -133,27 +154,6 @@ From Oct. 23, 2019, when I said that the US would boycott the 2022 Winter Olympi
 
 12/7/2021 Miles Guo’s GETTR: The US diplomatic boycott effectively renders the 2022 Winter Olympics meaningless, Europe and Japan will do the same, and the CCP won’t be able to host the Winter Olympics; the atrocities that the CCP has inflicted on my family members and my employees are way beyond those of any dictators; the Western religious communities believe that the COVID vaccination is the WWIII waged by the communists led by the CCP<br/><br/>12/7/2021 文贵盖特：美国外交抵制等于废了冬奥会，欧和日会也跟随，中共办不成冬奥会；中共对文贵家人和员工的暴行超过任何独裁者；西方宗教界认为疫苗是以中共为首的共产主义发动的第三次世界大战<br/>
 ![img](https://media.gettr.com/group36/getter/2021/12/07/23/39857121-bad7-dc0b-71f2-25ff702d8f50/out.jpg)
-
----
-
-`@miles 12/7/2021 5:31 PM (UTC)`
-
-G|Fashion: that’s the fire 🔥 🔥🔥we’re talking about @gfashion @DDNYC  
-![img](https://media.gettr.com/group48/getter/2021/12/07/17/43a0f7fc-73dd-6df8-27bb-9b920a4fe8fa/out.jpg)
-
----
-
-`@miles 12/7/2021 4:58 PM (UTC)`
-
-G| Fashion-Fitting in Milan🇮🇹, more styles are coming soon 🔥🔥🔥❤️❤️❤️@gfashion@DDNYC 
-![img](https://media.gettr.com/group43/getter/2021/12/07/16/62d26a2e-3421-6b3c-9443-23e20a45904a/out.jpg)
-
----
-
-`@miles 12/7/2021 3:22 PM (UTC)`
-
-12月7号：尊敬的战友们好……全球的新中国联邦人……要准备好，在所有的国家了解共产党官员的在海外各国的资产，财产，亲人朋友的详细的资料，和当地的各国的政府合作，把这些王八蛋的爹和娘和他们的私生子女，依法让他们的爹娘，兄弟姐妹们尝一下睡大街的滋味！让他们也感觉一下我们所有中国同胞在中国内部……所受到的待遇……行动行动行动，明天直播详聊！
-![img](https://media.gettr.com/group36/getter/2021/12/07/15/e4581448-32c8-5a03-6266-6bb4eb2b12ce/out.jpg)
 
 ---
 

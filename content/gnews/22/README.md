@@ -2,37 +2,35 @@
 ---
 
 
-## 港共政府借国安法恐吓媒体
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1736146/)
+## 首届“民主峰会”即将正式开幕 拜登将致开幕词
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1736160/)
 
-作者：纽约香草山农场 007
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间12月7日，港共政府以所谓的涉嫌煽动为由，警告有关媒体发表的关于香港选举的社论，并声称要对该媒体保留采取必要行动的权利。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-09-下午9.21.49.png)圖片來源：EPA
-据了解，对于香港即将举行的立法会选举，媒体报道提及，中共在香港施行了一项新的立法会选举制度，当中要求，只有通过港共政府筛选的候选人才能参加公职竞选，且立法会可被直接选举的席位比过去减少了一半。为此，有媒体此前曾发表评论表示，港共政府正在试图进行欺骗性投票，而在香港民主权利被反复压迫的当下，抵制投票或将是港人表达政治观点的最后一个途径。
+#### **撰稿：**日本东京方舟农场 子辰
 
-随即，港共政府对该媒体发出警告称，鼓励香港民众抵制投票或消极参与投票将触犯中共国安法，港共政府或将采取必要行动。而相关报道也显示，港共政府以此为借口，逮捕了三名香港民众和两名海外香港人。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/E2198C34-86D5-4B71-8DB9-FA9AFAED5C30.jpeg)（图片来自《大纪元》）
 
-对此，有评论表示，中共非但正在摧毁香港的自治，甚至试图将其政治镇压扩张至海外群体。
+据《大纪元》12月9日报道，首届“民主峰会”即将于美东时间12月9日正式开幕，美国总统拜登将致开幕词。此次全球民主峰会台湾受邀参加，而中共则被拒之门外。
 
-参考链接：
-1）[Hong Kong Says Vote—or Else](https://www.wsj.com/articles/hong-kongs-rigged-election-china-legislative-council-11638224614)
-2）[Hong Kong Issues a Threat to the WSJ](https://www.wsj.com/articles/hong-kong-china-wsj-threat-election-legco-democracy-freedom-protest-ccp-11638575014)
-3）[港府威胁对《华尔街日报》采取必要的行动](https://www.voachinese.com/a/hk-threatens-wsj-20211206/6341777.html)
+据报道，在12月9日和10日的两天时间内，有来自110个国家的政府、公民社会和商界领导人出席由拜登主持的线上“民主峰会”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+据悉，此次峰会主要聚焦三大主题，包括：“对抗威权”、“打击贪腐”和“促进对人权的尊重”。美国国务院表示，峰会旨在“通过集体行动应对当今民主国家面临的最大威胁”。
 
-总编：Irene木木
-编辑：Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
+在此次峰会上，受邀参加的台湾将由行政院政务委员唐凤以预录影片的方式发表国家声明（national statement）。此外，唐凤还将在美东时间10日参与“对抗数位威权主义及肯定民主价值”分组讨论，并分享台湾民主故事。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+中共和俄罗斯未受邀参加此次民主峰会，反过来谴责美国搞分裂，遭美国政府严词驳回。
+
+美国财务部随后表示，本周将宣布一系列制裁以配合此次民主峰会，而制裁将针对那些从事腐败、严重侵犯人权和破坏民主的人。
+
+*参考链接： [https://www.epochtimes.com/gb/21/12/9/n13425940.htm](https://www.epochtimes.com/gb/21/12/9/n13425940.htm)*
+
+* * *
+
+*素材采编：子辰*
+
+*编辑：青衣青青*
+
+*发布：miumiu*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
