@@ -2,35 +2,36 @@
 ---
 
 
-## 加拿大加入美国等其他国家对北京奥运会进行外交抵制
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1734875/)
+## 美国安顾问：美国将采取行动 确保中共不会犯台
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1734893/)
 
-**【雅典娜快讯】，紧贴时代脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2021.12.9-2加拿大加入美国等.jpg)图片来源：Business Today
-整理报道：Lish
-编辑：文泓
+作者：纽约香草山医疗部-云豹
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-3.png)
+12月7日，在关于拜登与普京视频会议的白宫新闻简报会上，有记者向美国安顾问苏利文提问，如果俄罗斯侵略乌克兰，同时中共以武力侵犯台湾，美国是否做好了应对准备？苏利文回答，美国将从威慑和外交方面采取一切可以采取的行动，以确保中共犯台的局面不会发生。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-401.png)
+苏利文同时表示，上述表态既是美国目前的政策目标，也是美国正在采取的应对步骤。在过去的8个月中，美国在印太地区所做的全部努力，也是为了避免中共作出任何不适当的选择。
 
-12月9日，加拿大政府表示，它将与美国和其他国家一道，对明年2月份的北京冬奥会进行外交抵制。
+[新闻连接]：
 
-在新闻发布会上加拿大总理贾斯汀·特鲁多说，“与世界各地的许多我们伙伴一样，我们对中共国政府一再侵犯人权的行为极为关注，这就是为什么我们今天宣布，我们将不派任何外交代表参加今年冬季的北京奥运会和残奥会。”但他说，加拿大运动员将可以参加奥运会的比赛。
+[https://www.cna.com.tw/news/firstnews/202112080008.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/firstnews/202112080008.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-此举是继美国周一宣布外交抵制之后，西方国家的又一抵制举措。因为华盛顿谴责中共国对新疆地区的维吾尔族有“种族灭绝”和其他侵犯人权的行为。澳大利亚和英国周三也表示，他们的官员将不参加冬奥会。
+[https://www.whitehouse.gov/briefing-room/press-briefings/2021/12/07/press-briefing-by-press-secretary-jen-psaki-and-national-security-advisor-jake-sullivan-december-7-2021/](https://www.whitehouse.gov/briefing-room/press-briefings/2021/12/07/press-briefing-by-press-secretary-jen-psaki-and-national-security-advisor-jake-sullivan-december-7-2021/)
 
-西方盟国在一系列问题上与中共国的分歧越来越大，使中共国与西方外交关系陷入自1989年天安门广场镇压事件以来最严重的危机。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-3.png)
 
-尤其是加拿大，它与中共国的关系因中共政府拘留两名加拿大国民而陷入深深的冰点，这是中共国对加拿大根据美国要求逮捕华为创始人女儿孟晚舟的回应。
+总编：AN
 
-新闻链接：[Canada joins US, other countries in diplomatic boycott of Beijing Olympics | World News – Hindustan Times](https://www.hindustantimes.com/world-news/canada-joins-us-other-countries-in-diplomatic-boycott-of-beijing-olympics-101638988976776.html)
+编辑：飞虹
 
-**发布：**去中心化Math
+校正/发稿：浪迹天涯
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-4.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

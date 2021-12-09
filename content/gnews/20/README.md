@@ -2,36 +2,33 @@
 ---
 
 
-## 美国安顾问：美国将采取行动 确保中共不会犯台
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1734893/)
+## 有声|中风救急“神药”涨至860元一颗
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1734917/)
 
-作者：纽约香草山医疗部-云豹
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-3.png)
-12月7日，在关于拜登与普京视频会议的白宫新闻简报会上，有记者向美国安顾问苏利文提问，如果俄罗斯侵略乌克兰，同时中共以武力侵犯台湾，美国是否做好了应对准备？苏利文回答，美国将从威慑和外交方面采取一切可以采取的行动，以确保中共犯台的局面不会发生。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-401.png)
-苏利文同时表示，上述表态既是美国目前的政策目标，也是美国正在采取的应对步骤。在过去的8个月中，美国在印太地区所做的全部努力，也是为了避免中共作出任何不适当的选择。
+配音：香草山美食部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+12月6日，有墙内媒体报道，同仁堂天价“神药”安宫牛黄丸近日再次提价10%，达到了860元1盒。该药每1盒中仅含1颗约重3克的中药丸。
 
-[新闻连接]：
+有同仁堂药店内部人员表示，仅在涨价的前一晚，安宫牛黄丸销售量就超出了1000多盒。
 
-[https://www.cna.com.tw/news/firstnews/202112080008.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/firstnews/202112080008.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+据了解，目前在中共国内，安宫牛黄丸独占血管疾病中成药市场的“半壁江山”。仅2021年中，该销售额就超过30亿，增长率达30%。
 
-[https://www.whitehouse.gov/briefing-room/press-briefings/2021/12/07/press-briefing-by-press-secretary-jen-psaki-and-national-security-advisor-jake-sullivan-december-7-2021/](https://www.whitehouse.gov/briefing-room/press-briefings/2021/12/07/press-briefing-by-press-secretary-jen-psaki-and-national-security-advisor-jake-sullivan-december-7-2021/)
+据相关人士分析，安宫牛黄丸成为天价“神药”，与墙内疫苗灾难导致的脑中风患者数量急增相关。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-3.png)
+文字版原文：[中风救急“神药”涨至860元一颗](https://gnews.org/zh-hans/1732074/)
 
-总编：AN
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-编辑：飞虹
-
-校正/发稿：浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-4.png)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
