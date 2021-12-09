@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/9/2021 1:08 PM (UTC)`
+
+Forbes news on Dec 8, 2021:<br/><br/>This week’s World Digital Song Sales chart is dominated by an artist who is simultaneously<br/>famous, and relatively unknown. <br/><br/>No. 1 - Miles Guo - “Hcoin to the Moon”<br/>Mysterious Chinese billionaire and controversial political commentator Miles Guo is back on the Billboard charts with his latest release “Hcoin to the Moon.” The tune opens at No. 1 on the World Digital Song Sales ranking, conquering the tally with ease. The cut also reaches other purchase-focused lists, including the all-genre Digital Song Sales tally, where it starts off at No. 28 with just under 2,800 copies sold, according to MRC Data.<br/><br/>https://www.forbes.com/sites/hughmcintyre/2021/12/08/exos-kai-stray-kids-chung-ha-and-ive-moves-on-the-world-songs-chart/amp/
+![img](https://media.gettr.com/group40/getter/2021/12/09/13/e6bcc696-5f2c-c6aa-11c4-d64403d7e17e/edc0c170ddab2c504c0eb69b90c00abe.jpg)
+
+---
+
+`@miles 12/9/2021 12:58 PM (UTC)`
+
+福布斯12月8日报道：<br/>本周的世界数字歌曲销售排行榜由一位既有名，又相对不为人知的艺术家所主导。<br/><br/>No. 1 – 郭文贵 - “Hcoin to the Moon”<br/><br/>神秘的中国亿万富豪和极具争议的政治评论家郭文贵(在其音乐作品中名为 Miles Guo)带着他的最新作品 "HCoin to the Moon "重回公告牌榜单。这首曲子在世界数字歌曲销售排名中位列第一，轻松地征服了这个排行榜。这首曲子还进入了其他以购买为主的榜单，包括综合类数字歌曲销量总榜，根据 MRC 数据，它以 将近2800 张的销量位列第 28 名。<br/><br/>https://gnews.org/zh-hans/1735953/<br/>
+![img](https://media.gettr.com/group35/getter/2021/12/09/12/ba1ec980-242a-41e0-4777-52a1955de607/0ca25f16037d391e0faa372e5a8bacef.jpg)
+
+---
+
 `@miles 12/9/2021 12:44 PM (UTC)`
 
 12月9日 衷心地感谢全球的兄弟姐妹们的打榜! Hcoin To The Moon 荣登公告牌榜世界数字歌曲销售榜第一名🥇了！🎉🎉🎉🎉🎉🎉🎉🙏🙏🙏🙏🙏🙏🙏<br/><br/>Dec 9, 2021 Many thanks to my dearest brothers and sisters around the world! Hcoin To The Moon ranks No. 1 🥇 on billboard’s World Digital Song Sales Chart now! 🎉🎉🎉🎉🎉🎉🎉🙏🙏🙏🙏🙏🙏🙏
@@ -138,19 +152,6 @@ G| Fashion-Fitting in Milan🇮🇹, more styles are coming soon 🔥🔥🔥❤
 `@miles 12/7/2021 5:04 AM (UTC)`
 
 On Dec. 6, 2021, hundreds of police and over 100 people from BBMG sent by the CCP violently seized Pangu’s assets. Over 1,000 employees and guests were thrown out of the Pangu hotel, and my father, who is over 90 years old, was driven out of his home. This is the CCP’s yet another atrocity against my family and employees after the $13 billion fine and illegal auction of Pangu's assets by the Dalian Intermediate Court! All is totally illegal! It’s a law-trampling, immoral, and inhumane mass arrest and robbery directed by the CCP kleptocrats!<br/><br/>Intermediate People’s Court of Dalian, Liaoning Province Public Announcement<br/><br/>https://gnews.org/1727858/<br/><br/>Appointment of Emergency Property Management Company for Pangu Plaza<br/><br/>https://gnews.org/1727906/
-
----
-
-`@miles 12/7/2021 4:37 AM (UTC)`
-
-2021年12月6日，中共派出数百名警察和100多个北京金隅的人，对盘古所有资产进行了暴力查封。1000多位员工和客人被撵出酒店，其中包括身着睡衣的女员工，而文贵90多岁的父亲也被赶出房子并流落街头。这是继大连市中级法院所谓罚款130亿美元和非法拍卖盘古资产后，中共再一次针对文贵的家人和员工的灭绝人性的暴行！这一切都是完全非法的！这是中共盗国贼指挥的一场践踏法律、毫无道德底线、惨无人道的大抓捕和大抢劫！<br/><br/>辽宁省大连市中级人民法院公告<br/><br/>https://gnews.org/zh-hans/1727850/<br/><br/>关于指定盘古大观应急物业服务企业的公告<br/><br/>https://gnews.org/zh-hans/1727809/
-
----
-
-`@miles 12/7/2021 3:24 AM (UTC)`
-
-澳大利亚墨尔本市再次爆发大规模反对强制中共病毒疫苗游行<br/><br/>Thousands gather in Melbourne again to protest against the vaccine mandates<br/>
-![img](https://media.gettr.com/group46/getter/2021/12/07/03/430f109e-8a4a-6c25-1495-1401dc96d558/out.jpg)
 
 ---
 
