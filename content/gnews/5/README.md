@@ -2,101 +2,45 @@
 ---
 
 
-## 明是非 辨善恶
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1734466/)
+## 疫苗灾难：津巴布韦禁止未接种疫苗的人使用公共交通工具
+` 玫瑰新闻` [轉載自GNews](https://gnews.org/zh-hans/1734496/)
 
-- 启蒙不分长幼 –
-- 善恶定出真伪 –
-- 喜玛拉雅华盛顿DC农场 –
-- 写给喜币上市之喜币扬真善罚伪恶 –
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3801F36B-C264-4C0A-87AC-C3A40C029B4F.png)![pastedGraphic.png](https://gnews.org/225e87ce-28a1-4521-b59a-8b4c2199fad5)
+来源：Pixabay
 
-![此图像的alt属性为空；文件名为PHOTO-2021-12-01-15-03-35.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/PHOTO-2021-12-01-15-03-35.jpg)
-**作者：澄道来了、Polaris
-编辑：翼族**
+2021 年 12 月 8 日 [布兰登·泰勒](https://insiderpaper.com/author/brendan-taylor/)在insiderpaper发文报道：
 
-人之初始
-识良心
+津巴布韦政府对该国越来越多[的 Covid-19 病例](https://insiderpaper.com/singapore-records-715-new-covid-cases/)表示严重关切，这些[病例](https://insiderpaper.com/singapore-records-715-new-covid-cases/)是由 Omicron 变种引起的，并已宣布计划禁止未接种疫苗的人使用公共交通工具。
 
-心之切要
-秉良知
+据悉，Monica Mutsvangwa 部长在周二的内阁后媒体简报会上表示：“内阁关切地注意到，过去两周每天报告的平均新病例总数急剧增加，”因此，政府[将增加疫苗接种](https://insiderpaper.com/eu-should-discuss-mandatory-covid-vaccination-ursula-von-der-leyen/)，并声称实施加强措施以对抗病毒的传播。
 
-人人释迦有牟尼
-主媒闻见顾遮迷
-而今指与真实面
-唯有正道莫再疑
+据报导称，上周该国中共病毒每日病例呈指数级增长，从 11 月 28 日的 40 例增加到周一的 2,555 例。
 
-二针疫苗全接种
-一针白挨？
+穆茨万瓦表示[，政府](https://insiderpaper.com/heres-how-pfizer-exploits-secretive-vaccine-contracts-to-strong-arm-governments/)将在主要市内和城际巴士总站设立疫苗接种站，以确保未接种疫苗的人在上车前可以自愿接种疫苗。
 
-违心接种为他人
-何为尊重？
+她说，那些没有有效疫苗接种卡的人最终将被拒绝乘坐公共交通工具，并补充说卫生部和教育部将继续合作为学校 16-17 岁的儿童接种疫苗。
 
-“喵绑架”
-罪业累积
-过半喵者被洗脑
-大恶成魔
+根据官方数据，截至周一，该国的中共病毒（ Covid-19 ）病例总数为 141,601，治愈 128,966 例，死亡 4,713 例。共有 3,882,255 人接受[了第一次](https://insiderpaper.com/austria-imposes-full-nationwide-lockdown-makes-covid-vaccine-jabs-mandatory/)接种，2,892,366 人接受了第二次接种。津巴布韦的目标是到年底为 60% 的人口接种疫苗。
 
-“迷途返”
-良心发现
-半数民众渐觉醒
-大善正道
+自从在该国发现 Omicron 变种以来，政府已强制要求所有返回的居民和访客，无论检测结果如何，都要自费进行 PCR 检测和[隔离](https://insiderpaper.com/saudi-arabia-removes-14-day-quarantine-rule-for-india-indonesia-pakistan/)。
 
-有苗人群
-真相无处寻
-认知偏离
-良心无可觅
-又何尝不是
-恶人行径
+目前，宵禁已延长至晚上 9 点至早上 6 点。酒类商店不允许进入酒类，只有已接种疫苗的顾客才能进入夜总会和酒吧。
 
-无苗一族
-正道认知启
-免遭蒙蔽
-良知藏于心
-笃信天注定
-善人善行
+撰稿人/米拉娅
 
-Omicron
-病毒变种
-邪共放毒
-再袭全球
+审阅/丘杰斯
 
-加强疫苗
-儿童接种
-狼子野心
-令人发指
+上传/天赐良闻
 
-良心不泯不灭
-GETTR 自媒
+[链接原文](https://insiderpaper.com/zimbabwe-to-ban-unvaccinated-from-using-public-transport/)
 
-斩断幕后黑手
-GNEWS GTV
+[奥米克戎](https://insiderpaper.com/tag/omicron/) [津巴布韦](https://insiderpaper.com/tag/zimbabwe/)
 
-喜币赠与战友
-正道大慈大悲
 
-喜联储喜支付
-自由诺亚方舟
 
-启蒙未必
-仅少年
-善恶一定
-存真伪
+> [Zimbabwe to ban unvaccinated from using public transport](https://insiderpaper.com/zimbabwe-to-ban-unvaccinated-from-using-public-transport/)
 
-明是非认知启蒙
-辨善恶正道展鹏
 
-@ 佛前一杯饮
-@ Polaris（北极星）
-@ 澄道来了
-@ 爱动爱议码12073
-
-发布：陶子
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

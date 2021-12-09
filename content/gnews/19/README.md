@@ -2,25 +2,17 @@
 ---
 
 
-## 纽约市宣布对私营企业及儿童强制接种
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1734273/)
+## 【文贵先生大直播PPT】疫苗灾难
+` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1734343/)
 
-采编/编译: Spirit       撰稿：文莱
+撰稿：莲心不染
+美工：青山
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/a-edited.jpg)图片来源：ABC
-
-
-据美国新闻媒体《ABC7》12月6 日报道，纽约市长白思豪当天宣布，将从12月27日开始对该市所有私营企业雇主全面实施“新冠病毒”疫苗强制接种授权政策。
-
-据悉，除此之外，5至11岁儿童在进入非必要公共场时，也必须出示疫苗接种证明。并试图以此提高目前仅20%的儿童疫苗接种率。
-
-对此，本台记者报道指出，在拜登政府的强制接种令目前被联邦法院暂停的情况下，纽约市政无视民意，挑战法律并企图以强权施压人民的恶行，必将引起各界更多的抵制。同时，唯有团结起来反抗当局违宪和侵害人权的暴政才能彻底结束这场疫情灾难。
-
+【2021年12月8日文贵先生大直播PPT：疫苗灾难】
+![](https://assets.gnews.org/wp-content/uploads/2021/12/51-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/52-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/53-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/54-2.jpg)
 * * *
 
-校对编辑，发稿：硫酸羟氯喹64
-
-原文链接： https://abc7ny.com/new-york-city-vaccine-mandate-private-sector-workers-children-nyc-covid/11305096/
+发稿：云起时
 
  
 
