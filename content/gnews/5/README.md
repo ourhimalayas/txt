@@ -2,40 +2,30 @@
 ---
 
 
-## 美国参议员布朗特警告说，强制疫苗将产生破坏性影响
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1736484/)
+## 日本发明可测新冠的发光口罩
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1736505/)
 
-编译： 真北007
-![](https://assets.gnews.org/wp-content/uploads/2021/12/bluen-655x437-1-edited.jpg)图片来源：网络
-来自OAN 星期三 12月8日的新闻报道：
+翻译/编辑：守望黎明
+![](https://assets.gnews.org/wp-content/uploads/2021/12/9.jpeg)图片来源：Kyoto Prefectural University
+来自日本的科学家说，他们利用鸵鸟抗体设计出的发光口罩，能够判断一个人是否感染了新冠病毒。
 
-共和党参议员罗伊布朗特（密苏里州）警告乔拜登的疫苗强制令可能对美国雇主产生有害影响。
+据共同社报道，这种不寻常的检测方法是由京都府立大学的一个团队开发的。研究人员给鸵鸟注射了一种不惧危险性的灭活冠状病毒，并从它们产下的蛋里提取到了抗体。然后他们将带有抗体的荧光染料喷洒在一个特殊的滤膜上，再把滤膜装在口罩中。当有冠状病毒出现时，这个滤膜会在紫外线下发光。
 
-“我认为拜登政府可能，而且绝对应该，重新考虑这个问题，”布朗特说。
+研究人员在对32名感染者进行了10天的监测后，发现他们所配戴的口罩都在发光。随着时间的推移，当被试者身上的病毒量减少时，发光的程度也会逐渐减弱。
 
-参议员布朗特谈到了国家疫苗规定及其对雇主的影响。他在周二的共和党领导人会议上发表了他的意见。
+该大学的校长也是该项目的负责人塚本康弘（Yasuhiro Tsukamoto）说，他是在戴了实验性口罩后，才发现的自己已经感染了新冠。
 
-尽管他支持疫苗，但布朗特表示，他认为疫苗强制将削弱全国的多个行业。
+冢本的团队计划将该实验对象扩大到150名，并计划在明年获得政府批准销售这种口罩。 冢本说：”我们可以以低廉的成本在鸵鸟身上大量生产抗体。在未来，我想把这种口罩变成一个人人可以使用的简易病毒测试套件。”
 
-“他们将发现，拥有 100 多名员工的杂货店老板将失去很多员工。这些员工将到少于 100 人杂货店，或者在其他地方，工作并赚取一样多的收入，”布朗特解释说。 “所以，杂货店老板说我们现在几乎无法保持货架上货和后台运行，如果这些人离开会怎样？”
+原文链接：[Scientists design glowing masks that detect Covid](https://www.rt.com/news/542665-japan-glowing-mask-covid/)
 
-此外，他强调，如果法院允许当前的疫苗强制令继续有效，它将极大破坏医疗保健设施。
+发布：去中心化Math
 
-“我采访过的密苏里州几乎每家乡村医院都指出，他们无法让 100% 的专业人员接种疫苗。他们当然不认为他们可以有 100% 的员工保持医院开放、拖地、自助餐厅运行和系统运行，”共和党人说。
-
-他援引已故作者 C.S. Lewis 来描述此举的暴政。
-
-“最阴险的威权主义形式是政府告诉你必须做某事，因为这是为了你自己的利益，”他说。 “如果这是为了人们自己的利益，这是他们可以自己解决的。”
-
-尽管疫苗强制令目前在法庭上停滞不前，但拜登政府仍在继续推动该指令。
-
-原文链接：[https://www.oann.com/sen-blunt-warns-of-damaging-impact-vaccine-mandates-will-have/](https://www.oann.com/sen-blunt-warns-of-damaging-impact-vaccine-mandates-will-have/)
-
-编辑/发布：LILY
-
-20211209
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
-
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

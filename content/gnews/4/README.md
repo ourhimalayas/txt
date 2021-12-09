@@ -2,30 +2,28 @@
 ---
 
 
-## 日本发明可测新冠的发光口罩
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1736505/)
+## GTV新闻访谈简报|2021年12月9日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1736507/)
 
-翻译/编辑：守望黎明
-![](https://assets.gnews.org/wp-content/uploads/2021/12/9.jpeg)图片来源：Kyoto Prefectural University
-来自日本的科学家说，他们利用鸵鸟抗体设计出的发光口罩，能够判断一个人是否感染了新冠病毒。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-109-1280x172-1-2-1.jpg)
 
-据共同社报道，这种不寻常的检测方法是由京都府立大学的一个团队开发的。研究人员给鸵鸟注射了一种不惧危险性的灭活冠状病毒，并从它们产下的蛋里提取到了抗体。然后他们将带有抗体的荧光染料喷洒在一个特殊的滤膜上，再把滤膜装在口罩中。当有冠状病毒出现时，这个滤膜会在紫外线下发光。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-8.png)
+文章仅代表作者本人观点，与Gnews无关
 
-研究人员在对32名感染者进行了10天的监测后，发现他们所配戴的口罩都在发光。随着时间的推移，当被试者身上的病毒量减少时，发光的程度也会逐渐减弱。
+视频参看：[2021.12.09早GTV新闻访谈](https://gtv.org/video/id=61b204ecbbd75f62e533b289)
 
-该大学的校长也是该项目的负责人塚本康弘（Yasuhiro Tsukamoto）说，他是在戴了实验性口罩后，才发现的自己已经感染了新冠。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-冢本的团队计划将该实验对象扩大到150名，并计划在明年获得政府批准销售这种口罩。 冢本说：”我们可以以低廉的成本在鸵鸟身上大量生产抗体。在未来，我想把这种口罩变成一个人人可以使用的简易病毒测试套件。”
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-69.jpeg)
 
-原文链接：[Scientists design glowing masks that detect Covid](https://www.rt.com/news/542665-japan-glowing-mask-covid/)
-
-发布：去中心化Math
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
