@@ -2,37 +2,37 @@
 ---
 
 
-## 港共政府借国安法恐吓媒体
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1736146/)
+## 一场噩梦：八十多万西藏学生被送寄宿学校
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1736181/)
 
-作者：纽约香草山农场 007
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间12月7日，港共政府以所谓的涉嫌煽动为由，警告有关媒体发表的关于香港选举的社论，并声称要对该媒体保留采取必要行动的权利。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-09-下午9.21.49.png)圖片來源：EPA
-据了解，对于香港即将举行的立法会选举，媒体报道提及，中共在香港施行了一项新的立法会选举制度，当中要求，只有通过港共政府筛选的候选人才能参加公职竞选，且立法会可被直接选举的席位比过去减少了一半。为此，有媒体此前曾发表评论表示，港共政府正在试图进行欺骗性投票，而在香港民主权利被反复压迫的当下，抵制投票或将是港人表达政治观点的最后一个途径。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/51346697-0-image-a-41_1638660590891-4.jpg)图片来源：自由亚洲电台
+据自由亚洲电台12月8日报道，流亡藏人组织“西藏行动中心”7日发布报告，八十多万六岁到十八岁的西藏学生被迫入住寄宿学校，甚至包括四岁的孩子，学习汉语和接受爱党爱国教育。他们从小和家人与社区分离，禁止信奉和践行自己的宗教信仰。
 
-随即，港共政府对该媒体发出警告称，鼓励香港民众抵制投票或消极参与投票将触犯中共国安法，港共政府或将采取必要行动。而相关报道也显示，港共政府以此为借口，逮捕了三名香港民众和两名海外香港人。
+过去十年间，中共政府系统性地铲除地方学校、西藏寺院学校和其他私立学校，代之以中央化的寄宿学校。 民办学校负责人和藏语老师、知识分子遭到抓捕。西藏行动中心的主任拉珍**.**哲彤强调，中共国在西藏建立的寄宿制学校网络是殖民式的，这种学校的设计目标就是要塑造、改变或者清除西藏人的身份，忠诚于中国共产党。但是这些西藏学生依然被国家系统当作二等公民，不能接受一流的教育，享有平等和成功。
 
-对此，有评论表示，中共非但正在摧毁香港的自治，甚至试图将其政治镇压扩张至海外群体。
+藏族学生在寄宿学校面临着失去母语和文化认同的风险。教师只说普通话，所有课程都使用普通话教学。这些孩子长大后，有八成人完全失去了语言、文化和家庭纽带，西藏人的身份认同会显著下滑。西藏寄宿学校的藏族孩子经受着严重的感情和心理创伤，包括身体和性虐待，种族歧视和政治洗脑，并且这种噩梦般的虐待和创伤会伴随他们一生。
 
-参考链接：
-1）[Hong Kong Says Vote—or Else](https://www.wsj.com/articles/hong-kongs-rigged-election-china-legislative-council-11638224614)
-2）[Hong Kong Issues a Threat to the WSJ](https://www.wsj.com/articles/hong-kong-china-wsj-threat-election-legco-democracy-freedom-protest-ccp-11638575014)
-3）[港府威胁对《华尔街日报》采取必要的行动](https://www.voachinese.com/a/hk-threatens-wsj-20211206/6341777.html)
+有西藏女学生目睹了任意性侵和殴打的案例，校内外的男性甚至男老师经常闯入女生宿舍，“而且肉体惩罚是难以想象的可怕……老师生气的时候会用椅子、铁棒和棍子等任何东西打人到流血。殴打是如此严重和频繁，我们无时无刻不在恐惧之中。殖民寄宿学校的三年初中生活完全是一场噩梦。那是一种身体、情感和心理上的折磨和精疲力竭。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+哲彤表示，2022年北京冬奥会即将开幕之际，美国、英国和澳大利亚等国的外交抵制还远远不够，运动员、赞助商和国际社会也应该全面抵制。如果北京冬奥会如期举行，对所有西藏人、维吾尔人、香港人、权利和自由受到侵害的中国人来说，这完全是当面扇耳光，是在伤口上撒盐，是一种嘲弄。
 
-总编：Irene木木
-编辑：Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
+中共的殖民寄宿制学校制度违反了《世界人权宣言》、《经济、社会及文化权利国际公约》、《儿童权利公约》、《公民及政治权利公约》等多项国际人权公约，哲彤呼吁联合国人权高专办亲自到西藏校区走访调查。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+新闻参考链接：[报告：八十多万西藏学生被送寄宿学校，“一场噩梦”](https://www.rfa.org/mandarin/yataibaodao/shaoshuminzu/xx-12082021144746.html)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

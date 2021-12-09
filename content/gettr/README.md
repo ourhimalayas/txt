@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/9/2021 2:19 PM (UTC)`
+
+12月9号 亲爱的兄弟姐妹们，Hcoin To The Moon 的MV刚刚已经成功上线iTunes了，这是七哥第一个MV上线打榜，请大家再接再厉，继续打榜，非常感谢兄弟姐妹们！🎉🎉🎉🎉🎉🎉🎉🙏🙏🙏🙏🙏🙏🙏<br/><br/>Hcoin To the Moon by Miles Guo<br/>https://music.apple.com/au/music-video/hcoin-to-the-moon/1596409781
+![img](https://media.gettr.com/group1/getter/2021/12/09/14/2f25b5de-4877-95f1-40e6-b0d2773293b3/061534f911e9422bb42ae12ed138fa2f.jpg)
+
+---
+
 `@miles 12/9/2021 1:39 PM (UTC)`
 
 Billboard Digital Song Sales Top 50 (USA🇺🇸 week of December 11th 2021)<br/><br/>No.28 Hcoin To The Moon<br/>🎉🎉🎉🎉🎉🎉🎉<br/><br/>公告牌数字歌曲销售前50名综合排行榜（美国🇺🇸本周排行至2021年12月11日）<br/><br/>第28名 Hcoin To The Moon<br/>🎉🎉🎉🎉🎉🎉🎉<br/><br/><br/>
@@ -147,12 +154,6 @@ G| Fashion-Fitting in Milan🇮🇹, more styles are coming soon 🔥🔥🔥❤
 
 12月7号：尊敬的战友们好，感谢全球亿万战友的关心，文贵的亲爹已经安顿下来啦……盘古的员工已经开始维权了……并很多人的救助……请大家放心！日久见人心，战友的牵挂和担心……和对我家人和我同事的爱……文贵定当以身相报，以灭共相还！莘县阳谷县搭县走着看！
 ![img](https://media.gettr.com/group10/getter/2021/12/07/14/a88d667f-c87b-7b47-ee84-4e246d6d0f2f/out.jpg)
-
----
-
-`@miles 12/7/2021 2:11 PM (UTC)`
-
-7/12/2021 “Hcoin To the Moon" Hits #1 🥇on 6 Countries' iTunes Rock Charts on 5th Day of Launch 🎉🎉🎉🎉🎉🎉🎉<br/>Thank you very much to all our brothers and sisters in HongKong, Taiwan, New Zealand, Australia, Laos, Singapore!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1729807/<br/><br/>12月7号，Hcoin To the Moon上线第5天位列6国iTunes摇滚音乐榜首🥇！🎉🎉🎉🎉🎉🎉🎉<br/>感谢香港，台湾，新西兰, 澳大利亚，老挝，新加坡的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏
 
 ---
 
