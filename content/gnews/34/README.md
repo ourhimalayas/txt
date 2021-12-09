@@ -2,26 +2,37 @@
 ---
 
 
-## 美国会呼吁更多国家抵制北京冬奥会
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1734718/)
+## 辉瑞公司的一个董事会成员是前Facebook董事
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1734723/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-392.png)[图片来源](https://www.bbc.com/zhongwen/trad/world-59558877)
-美国政府星期一（12月6日）正式宣布对即将在明年2月登场的北京冬季奥运会采取外交抵制，不派遣任何官方代表出席赛事，以兑现“捍卫人权”的承诺。对此，美国国会两党普遍表示支持，称此举是对中国共产党在新疆的种族灭绝行动的强烈反击。多位议员同时呼吁国际社会加入美国的外交抵制行列。
+作者：纽约香草山健身部 – 童谣
+![This image has an empty alt attribute; its file name is 1-28.png](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
+12月6日，美国媒体揭露，2020年加入辉瑞公司的董事会成员——苏珊·德斯蒙德·赫尔曼博士——曾在社交媒体巨头Facebook担任首席独立董事。
 
-美国国会暨行政当局中国委员会（CECC）两党领袖星期二（12月7日）发表书面声明，赞扬拜登政府外交抵制北京冬奥的决定，同时认为美国应该要采取更多行动，呼吁其他国家加入外交抵制的行列。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/7-3.png)
 
-“美国盟友和伙伴应该在未来几个星期发表类似的声明，国际社会不能容忍他们出席这样的奥运比赛，这场奥运已被种族灭绝和一些全世界最恶劣的侵犯人权行为蒙上了污点，”CECC主席默克利参议员（Sen. Jeff Merkley, D-OR）和共同主席麦戈文众议员（Rep. Jim McGovern, D-MA）在联合声明中说。
+赫尔曼于2013年到Facebook董事会任职，并在2015年至2019年10月30日期间担任首席独立董事，直到中共病毒大流行前不久辞职。离开Facebook后，赫尔曼于2020年加入了辉瑞公司的董事会。据了解，赫尔曼同时在比尔与梅琳达-盖茨基金会中担任首席执行官。
 
-“我们仍认为外交抵制是不够的，”CECC领袖们接着呼吁北京冬奥会的赞助厂商不要派遣高层代表赴北京参加赛事。
+在赫尔曼担任辉瑞公司董事会成员期间，Facebook发起了审查“中共病毒疫苗怀疑者”的活动，据该公司泄露的内部文件显示，其算法旨在 “大幅消除用户在评论中对疫苗犹豫不决的言论”。
 
-CECC还表示，接下来几周时间里他们将询问企业赞助商将采取什么行动抗议中共国的人权侵犯行为。“有鉴于中共国政府的暴行，（与中共国）一如往常的往来是不可接受的，” 默克利参议员和麦戈文众议员说。
+参考链接：
 
-消息来源：[美国会两党赞扬外交抵制北京冬奥 呼吁国际社会加入](https://www.voachinese.com/a/us-congress-reax-biden-admin-diplomatic-boycott-beijing-olympics-20211207/6343912.html)
+- [REVEALED: New Pfizer Board Member Is Ex-Facebook Director.](https://thenationalpulse.com/exclusive/pfizer-board-member-is-former-facebook-director/)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
+
+总编辑：文特
+编辑：飞虹
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

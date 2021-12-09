@@ -2,52 +2,38 @@
 ---
 
 
-## 挪威专家称奥米克戎可能会提供“自然免疫”的“最佳方案”
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1734653/)
+## 苹果公司的蒂姆库克与中共国签署了价值超过 2750 亿美元的秘密协议
+` RoseNews` [轉載自GNews](https://gnews.org/zh-hans/1734657/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-391.png)
-挪威的新冠专家说，奥米克戎变体具有高度的传播性，但是“比较温和”，这可能会被证明是“最好的情况”，因为它将提高“自然免疫力”，并使大流行病更快结束。
+![蒂姆库克 275 美元交易中国](https://insiderpaper.com/wp-content/uploads/2021/12/8-990x505.jpg)图片：视频截图
 
-该国的国家流行病学家弗洛德·福兰德（Frode Forland）正在对南非以外最大的奥米克戎爆发的消息作出回应，该事件发生在奥斯陆的一个圣诞聚会上。
+2021 年 12 月 8 日 ，[布伦丹·伯恩](https://insiderpaper.com/author/brendan/)发文报道：
 
-电讯报报道“11月26日晚参加露易丝餐厅和酒吧的多达120人现在已经对冠状病毒检测呈阳性，其中大约一半的人对奥米克戎的筛查呈阳性，其中13人在测序中被证明有该变体”。
+据*The Information*报道，苹果首席执行官蒂姆库克与中共国官员“秘密”签署了一项价值超过 2750 亿美元的协议，承诺苹果将通过投资、商业交易和工人培训，为发展[中共国经济](https://insiderpaper.com/us-to-announce-diplomatic-boycott-of-2022-beijing-winter-olympics/)和技术实力尽自己的一份力量。
 
-奥斯陆传染病医生蒂内·拉夫罗（Tine Ravlo）透露：“他们有发烧、咳嗽、头痛、肌肉疼痛、疲劳等症状，但就目前而言，他们中没有人病得很严重，也没有人在医院接受治疗”。
+据报道，这份之前没有报道过的五年协议是由苹果公司首席执行官蒂姆库克伪造的。[The Information](https://www.theinformation.com/articles/facing-hostile-chinese-authorities-apple-ceo-signed-275-billion-deal-with-them)查看的[苹果内部](https://insiderpaper.com/patent-apple-working-on-drone-device/)文件显示：“在 2016 年，他首次亲自访问该国，以平息针对苹果业务的突然爆发的监管行动。”
 
-福兰德认为这是一个积极的消息，因为它清楚地表明该变体 “将是非常温和的，也是非常容易传播的”。
+文件显示，“在会议之前，苹果高管们争先恐后地挽救公司[与中共国官员](https://insiderpaper.com/more-than-200-chinese-companies-may-be-kicked-off-us-exchanges/)的关系[，中共国官员](https://insiderpaper.com/more-than-200-chinese-companies-may-be-kicked-off-us-exchanges/)认为该公司对当地经济的贡献不够。在政府的镇压和随之而来的不良宣传中，iPhone 的销量直线下降，”该报告周二晚间表示。
 
-“这就是希望。这是我们能得到的最好的情况，”他说。“那就是它变得更温和，大多数人会被感染，而且他们会得到一种自然免疫力。”
+报道称，库克就针对 Apple Pay、iCloud 和 App Store 的威胁“亲自游说中共国官员”。
 
-“可能是病毒现在已经复制和变异了很多次，从病毒的角度来看，这是一个最佳的状态，可以广泛传播而不杀死宿主，”福兰德补充说。
+报道称，苹果宣布向滴滴出行[投资](https://insiderpaper.com/china-and-eu-sign-cai-agreement-for-investment-and-fair-trade/)10 亿美元，以“安抚”当局。
 
-“这就是我们之前在其他疾病上看到的情况。当然，然后它更像流行阶段，”他总结说。
+据 GizmoChina 援引 The Information 报道，不久之后，库克、苹果首席运营官杰夫威廉姆斯和政府事务负责人丽莎杰克逊据称在中国共产党中央总部中南海会见了高级政府官员。
 
-南非最大的私人医疗网络的首席执行官和挪威专家的立场一致，他断言奥米克戎变体 “非常温和”，它“可能标志着新冠疫情的结束”。
+据报道，作为协议的一部分，苹果同意在其设备中使用更多来自中共国供应商的组件，与中共国软件公司签署协议，与中共国大学[进行技术合作](https://insiderpaper.com/a-mysterious-signal-that-looked-like-a-sign-of-alien-technology-turned-out-to-be-radio-interference/)，并直接投资于中共国科技公司。
 
-期待那些依靠大药厂的巨额广告费和延长对新冠的恐惧而获得高收视率的企业媒体，完全无视所有这些发现。
-
-原文链接：[https://summit.news/2021/12/07/norwegian-covid-experts-says-omicron-could-provide-best-scenario-of-natural-immunity/](https://summit.news/2021/12/07/norwegian-covid-experts-says-omicron-could-provide-best-scenario-of-natural-immunity/)
-
-简评：新冠疫情已经肆虐将近两年的时间，世界经济遭受重大损失，人类生活方式也为之彻底改变。人们反复追问一个问题——这场灾难什么时候可以结束？
-
-随着新病毒变种奥米克戎的传播，舆论被分成了两派。一方面，西方政要和主流媒体，利用此机会继续制造对新冠病毒的恐慌，选择忽略病毒变异的原因——例如其主要在接种两针疫苗的人群中传播，并加强限制性措施，压制个人自由。从媒体报道及各制药公司的反应，不难看出背后的利益捆绑，新的病毒变种给了制药公司又一次大商机，推广自己的疫苗和特效药。而主流媒体除了收取广告费外，又一次提高了关注度。
-
-而另一边，一些有良知的科学和病毒学家开始研究新变种的特异性，即其具有的高传播性和病毒本身温和的特质，来判断下一步冠状病毒大流行的趋势。可喜的是，如果这次人们可以通过该变种获得自然免疫，这场疫情的结束离我们更近一步。此报道中的挪威科学家和南非最大的私人医疗网络首席执行官的观点，也印证了爆料革命新中国联邦的情报——这次奥米克戎病毒变种的释放，有助于彻底结束这场疫情。
-
-Translator: Ying2064
-
-PR: 感恩
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+该[公司还](https://insiderpaper.com/israeli-nso-spyware-company-plans-to-reverse-us-ban/)承诺在中共国的投资将比目前的支出“多出数十亿美元”，包括新零售店、研发设施和可再生能源项目。
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+编译/米拉娅
+
+审阅/丘杰斯
+
+上传/天赐良闻
+
+援引链接：https://insiderpaper.com/tim-cook-secret-signed-275-bn-deal-with-china-alleges-report/
 
  
 

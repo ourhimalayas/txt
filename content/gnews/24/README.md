@@ -2,66 +2,36 @@
 ---
 
 
-## 美国参议院投票以52比48票废除拜登的疫苗强制要求
-` RoseNews` [轉載自GNews](https://gnews.org/zh-hans/1734892/)
+## 美国安顾问：美国将采取行动 确保中共不会犯台
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1734893/)
 
-2021 年 12 月 8 日 ，据哥伦比亚广播公司新闻报道，美国参议院周三晚上投票推翻拜登总统的[COVID-19 疫苗规定](https://www.cbsnews.com/news/biden-covid-vaccine-mandate-employees-deadline-january-4/)和对私营企业的检测要求。
+作者：纽约香草山医疗部-云豹
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-3.png)
+12月7日，在关于拜登与普京视频会议的白宫新闻简报会上，有记者向美国安顾问苏利文提问，如果俄罗斯侵略乌克兰，同时中共以武力侵犯台湾，美国是否做好了应对准备？苏利文回答，美国将从威慑和外交方面采取一切可以采取的行动，以确保中共犯台的局面不会发生。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-401.png)
+苏利文同时表示，上述表态既是美国目前的政策目标，也是美国正在采取的应对步骤。在过去的8个月中，美国在印太地区所做的全部努力，也是为了避免中共作出任何不适当的选择。
 
-- 最终的票数是 52-48，西弗吉尼亚州的民主党参议员乔曼钦和蒙大拿州的乔恩泰斯特加入了所有共和党人的行列，投票赞成取消这些要求。立法者通过《国会审查法》，有权在一定的时间内推翻联邦机构的规则，在众议院和参议院均以简单多数票通过。根据法律，如果众议院遵循参议院并通过该法案，总统可以签署——允许撤销该规则——或否决它，这将使该规则有效。
+[新闻连接]：
 
+[https://www.cna.com.tw/news/firstnews/202112080008.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/firstnews/202112080008.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-该决议现在提交给民主党控制的众议院，在那里通过的道路是模糊的。白宫新闻秘书 Jen Psaki 周二表示，如果该法案送到他的办公桌，总统将否决该法案。
+[https://www.whitehouse.gov/briefing-room/press-briefings/2021/12/07/press-briefing-by-press-secretary-jen-psaki-and-national-security-advisor-jake-sullivan-december-7-2021/](https://www.whitehouse.gov/briefing-room/press-briefings/2021/12/07/press-briefing-by-press-secretary-jen-psaki-and-national-security-advisor-jake-sullivan-december-7-2021/)
 
-本周一曼钦表示，应为政府雇员和与政府雇员互动的承包商实施疫苗规定，但他更愿意看到一个“激励”私营部门雇员的过程，而不是惩罚他们。印第安纳州共和党参议员迈克布劳恩领导了这项工作，并启动了国会审查程序以废除该规则。
-![美国-政治-国会 ](https://cbsnews1.cbsistatic.com/hub/i/r/2020/11/06/224bf0c0-acf8-4eeb-a673-9440534ef418/thumbnail/640x427/9d16e538f4bcf59d053b1f106b07d172/gettyimages-1133282164.jpg#)美国国会大厦的圆顶于 2019 年 3 月 27 日在华盛顿特区出现。 照片由 MANDEL NGAN/法新社通过盖蒂图片社拍摄
-拜登政府和公共卫生官员将拥有 100 多名员工的私人雇主的（强制接种）疫苗和检测要求视为阻止 COVID-19 大流行的关键方法。在主要由共和党领导的州提起的几起诉讼试图推翻该规则，认为要求拥有超过 100 名雇员的私人雇主接种疫苗或每周进行测试是违宪的。联邦上诉法院随后于 11 月停止了这一要求，一个包含联邦对私人疫苗要求的所有挑战的合并案件现在正在另一个上诉法院，即第六巡回上诉法院审理。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-3.png)
 
-周三投票前，共和党参议员举行了新闻发布会。
+总编：AN
 
-共和党参议员约翰巴拉索说：“我支持疫苗，但我反对授权，”“这是因为我认为政府的授权是一个巨大的过度和一个巨大的错误。在这一点上，法院显然同意我们正在努力做的事情。”
+编辑：飞虹
 
-此外，多位共和党参议员表示同意巴拉索的观点，并重申他们支持疫苗并反对强制接种疫苗的要求。
+校正/发稿：浪迹天涯
 
-西弗吉尼亚州的共和党参议员雪莱·摩尔·卡皮托 (Shelley Moore Capito) 说：““鼓励和要求是两件不同的事情。”
-
-在投票之前，康涅狄格州民主党参议员克里斯墨菲为私人雇主的疫苗和检测要求辩护，并批评共和党人围绕该要求的言论。
-
-墨菲在参议院声称：“我们明白我们在这个地方的话的力量。” “共和党人知道，当他们日复一日地站到地板上并日复一日地攻击疫苗授权时，他们知道他们正在为反疫苗运动火上浇油。”
-
-United Airlines Holdings, Inc. 首席执行官 Scott Kirby 为其员工强制执行了 COVID-19 疫苗接种任务，现在几乎所有美联航员工都接种了疫苗。柯比在 10 月份[告诉](https://www.cbsnews.com/video/united-airlines-ceo-scott-kirby-talks-vaccine-mandate-1000-employee-bonuses-holiday-travel/#x)CBS Mornings，美联航“根据为安全做正确的事情的原则”制定了疫苗要求。
-
-美联航是美国首家要求雇员接种冠病疫苗的航空公司。此前，美联航官员称，共有593名员工拒绝遵守公司的接种冠病疫苗规定。这些员工因此被美联航辞退。
-
-另有2000名员工以医疗或宗教理由要求豁免接种冠病疫苗，这约占美联航员工总数的3%。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/B89E7BA7-C3F3-4F7D-BB46-5C768A78BF58.jpeg)
-参议院多数党领袖查克舒默则在周三早上指责他的共和党同事推动“反科学、反疫苗提案”。
-
-舒默在参议院说：“我的朋友们，美国，我们正处于公共卫生危机之中，”“每个人都看到它对自己、他们的朋友、他们的家人、他们的社区造成的损害。解决这个问题的方法是由科学驱动。”
-
-编者按：
-
-这也许只是疯狂的疫苗强制令体系多米诺骨牌中的一环，我们在这场邪恶的疫苗大战中看着太多无辜的人倒下去， 太多生命因疫苗而逝去，因疫苗而牺牲了余生的健康。我们不愿意看到，飞行员在行驶飞行任务时因疫苗后可能突发的血栓而突发空难；我们也不愿意看到，世界体育赛场上无比健康矫健的运动员在赛场上因疫苗后遗症而倒下去；我们更不愿意看到无辜的孩子们也蒙受接种疫苗后的健康灾难，但是，这种灾难已经在发生！而且，还在继续发生！这一切该停下来了！
-
-全球民众都如笼中困兽，早已经厌倦了失去自由行动权的生活！反抗的声音越来越唤起更多的人加入进来。传播真相，保护家人，远离疫苗，是我们此刻的使命！
-
-编译/米拉娅
-
-审阅/丘杰斯
-
-上传/天赐良闻
-
-援引链接：https://www.cbsnews.com/news/biden-vaccine-mandate-defund-senate-republican-vote/
-
-[https://www.zaobao.com.sg/realtime/world/story20210929-1198396?amp](https://www.zaobao.com.sg/realtime/world/story20210929-1198396?amp)
-
-相关视频链接：https://www.cbsnews.com/video/appeals-court-halts-biden-covid-19-vaccine-rule-for-large-companies/
-
-
-
-
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-4.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,35 +2,36 @@
 ---
 
 
-## 民主党立法：拜登对北京的外交联合抵制“做得还远远不够”
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1734708/)
+## 盘古再次被非法查封，共产党加速走向灭亡
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1734712/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/9a7eea5f7a49455199ae321c56134810-1.jpg)
-来自THE HILL的报道，明年中期选举的参议员候选人Tim Ryan说，拜登总统对北京冬奥会的外交联合抵制“还远远不够”。
+撰稿人：香草山农场-晓仙女
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-4.png)
+2021年12月6日，郭文贵先生盖文爆料，中国共产党充满着对爆料革命的恐惧，先是将盘古龙头变成了鸟头，随后于12月6日派出数百名警察和100多个北京金隅的人，对盘古所有资产进行暴力查封，1000多名员工和客人被撵出酒店，其中包括换班在宿舍休息，身着睡衣的女员工，文贵先生90多岁的老父亲被撵出房子，一并流落街头。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1291.png)
+这是继大连市中级法院，所谓罚款130亿美元和非法拍卖盘古资产后，中共再一次针对文贵先生家人和员工的一次大抓捕，整个现场丧失人道，灭绝人性。
 
-Ryan在周一的一份声明中说：“每个人都知道中共国的表现一直很糟糕——从持续阻挠世卫组织对新冠病毒起源的调查到实施种族灭绝和大规模侵犯人权”。 “我很高兴看到拜登政府采取行动追究中共国的责任，但仅仅外交联合抵制还远远不够。”    我很高兴看到白宫采取行动追究中共国的责任，但仅仅外交联合抵制还远远不够。中共国一次又一次地向外界展示了，他们完全没有资格举办奥运会。Ryan说，从一开始就不应该允许中共国举办奥运会。
-
-拜登政府周一早些时候宣布对2022年北京冬奥会进行外交联合抵制，声明中称美国将不会派遣任何政府官员参加为期两周的冬奥会活动，以抗议中共国对人权的侵犯。这一声明得到了美国两党立法委员的一致赞赏，他们都对这样的举动表示欢迎。8月，Ryan呼吁国际奥林匹克委员会（IOC）完全禁止中共国举办冬奥会，除非北京当局完全配合世卫组织对冠状病毒来源展开调查。
-
-简评：中共在做死的道路上一刻不停的加速狂奔。美国官方宣布联合抵制北京冬奥会意味着民主党总统拜登在外交上对中共国的态度进一步恶化。中共国与拜登政府勾兑的希望越来越渺茫。在目前美国主导全球的态势下，其他欧亚各国的外交政策都以美国为风向标。美国公开不支持北京冬奥会的表态将促进其他更多国家在外交也开始对中国采取强硬姿态。中共也将一步一步从人人羡慕的暴发户沦为人人喊打的过街老鼠。
-
-News Link:[https://thehill.com/homenews/house/584594-democratic-lawmaker-bidens-diplomatic-boycott-of-beijing-does-not-go-far](https://thehill.com/homenews/house/584594-democratic-lawmaker-bidens-diplomatic-boycott-of-beijing-does-not-go-far)
-
-翻译/简评: kkoto(芬兰大灰狼)
-
-PR: clau
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+文贵先生称，这是中共盗国贼指挥的一场践踏法律、毫无道德底线、惨无人道的非法大抓捕和大抢劫，全球新中国联邦人将全面行动，加速共产党的灭亡！
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+链接：[2021年12月6日郭文贵先生盖特关于共产党在盘古非法执法](https://gettr.com/post/piy7859de9)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-3.png)
+
+总编：飞虹
+
+编辑：童谣
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
