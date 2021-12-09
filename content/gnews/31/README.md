@@ -2,35 +2,66 @@
 ---
 
 
-## 辉瑞公司的新董事会成员是前Facebook董事
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1732434/)
+## 美国参议院投票以52比48票废除拜登的疫苗强制要求
+` RoseNews` [轉載自GNews](https://gnews.org/zh-hans/1734892/)
 
-翻译：西班牙巴塞罗那喜悦农场-wenwu
+2021 年 12 月 8 日 ，据哥伦比亚广播公司新闻报道，美国参议院周三晚上投票推翻拜登总统的[COVID-19 疫苗规定](https://www.cbsnews.com/news/biden-covid-vaccine-mandate-employees-deadline-january-4/)和对私营企业的检测要求。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-367.png)图片来源: thenationalpulse.com
+- 最终的票数是 52-48，西弗吉尼亚州的民主党参议员乔曼钦和蒙大拿州的乔恩泰斯特加入了所有共和党人的行列，投票赞成取消这些要求。立法者通过《国会审查法》，有权在一定的时间内推翻联邦机构的规则，在众议院和参议院均以简单多数票通过。根据法律，如果众议院遵循参议院并通过该法案，总统可以签署——允许撤销该规则——或否决它，这将使该规则有效。
 
-辉瑞公司的董事会成员Susan Desmond-Hellmann博士——曾在社交媒体巨头Facebook担任首席独立董事。Meta（Facebook）经常审查与中共病毒（COVID-19）疫苗有关的帖子，尤其是辉瑞公司[获得了各大企业的支持（存在利益冲突）。](https://thenationalpulse.com/news/conflict-reuters-chairman-is-pfizer-investor-and-board-member/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-369.png)图片来源: thenationalpulse.com
+该决议现在提交给民主党控制的众议院，在那里通过的道路是模糊的。白宫新闻秘书 Jen Psaki 周二表示，如果该法案送到他的办公桌，总统将否决该法案。
 
-赫尔曼（Hellman）于2013年3月被[任命](https://about.fb.com/news/2019/10/desmond-hellmann-departs-board/)为 Meta 社交媒体平台的董事会成员，并在2015年6月至2019年10月30日期间担任其首席独立董事，即在武汉第一起报道 COVID-19 案件发生前不久时候。
+本周一曼钦表示，应为政府雇员和与政府雇员互动的承包商实施疫苗规定，但他更愿意看到一个“激励”私营部门雇员的过程，而不是惩罚他们。印第安纳州共和党参议员迈克布劳恩领导了这项工作，并启动了国会审查程序以废除该规则。
+![美国-政治-国会 ](https://cbsnews1.cbsistatic.com/hub/i/r/2020/11/06/224bf0c0-acf8-4eeb-a673-9440534ef418/thumbnail/640x427/9d16e538f4bcf59d053b1f106b07d172/gettyimages-1133282164.jpg#)美国国会大厦的圆顶于 2019 年 3 月 27 日在华盛顿特区出现。 照片由 MANDEL NGAN/法新社通过盖蒂图片社拍摄
+拜登政府和公共卫生官员将拥有 100 多名员工的私人雇主的（强制接种）疫苗和检测要求视为阻止 COVID-19 大流行的关键方法。在主要由共和党领导的州提起的几起诉讼试图推翻该规则，认为要求拥有超过 100 名雇员的私人雇主接种疫苗或每周进行测试是违宪的。联邦上诉法院随后于 11 月停止了这一要求，一个包含联邦对私人疫苗要求的所有挑战的合并案件现在正在另一个上诉法院，即第六巡回上诉法院审理。
 
-脸书创始人兼首席执行官马克·扎克伯格(Mark Zuckerberg)在回应她的离职时说：“六年来，赫尔曼一直是董事会中一个出色的、有思想的声音，我个人非常感谢她为这家公司所做的一切”。
+周三投票前，共和党参议员举行了新闻发布会。
 
-“我仍然对 Meta 和赋予人们建立社区和使世界更紧密的力量的使命持积极态度。Meta 的股东需要一个充分参与并致力于解决脸书目前所面临的关键问题的董事会，”赫尔曼在提到她作为比尔和梅林达·盖茨基金会首席执行官的角色时解释说。
+共和党参议员约翰巴拉索说：“我支持疫苗，但我反对授权，”“这是因为我认为政府的授权是一个巨大的过度和一个巨大的错误。在这一点上，法院显然同意我们正在努力做的事情。”
 
-“不幸的是，来自我的首席执行官角色、我的大家庭和我自己的健康的要求越来越多，使我不再可能投入必要的时间和精力来适当地服务于 Meta 及其股东，”她在一份公开声明中补充说，尽管在[2020](https://www.pfizer.com/people/leadership/board-of-directors/susan_desmond-hellmann-md-mph)年加入了辉瑞公司董事会。
+此外，多位共和党参议员表示同意巴拉索的观点，并重申他们支持疫苗并反对强制接种疫苗的要求。
 
-在赫尔曼担任辉瑞公司董事会成员期间，Meta 发起了审查 COVID-19 疫苗怀疑者（与政府观点不同）的[活动](https://nypost.com/2021/05/25/facebook-trying-to-censor-covid-19-vaccine-skeptics-report/)，正如 Meta 公司泄露的内部文件显示，其算法旨在“大幅减少用户暴露在对中共疫苗犹豫不决（VH）的想法中。”这份长达15页的文件—题为“疫苗犹豫不决评论降级”—将其目标概括为，减少这些评论的可见性是我们消除平台上用户可能遇到的疫苗接种障碍的另一个重要机会。
+西弗吉尼亚州的共和党参议员雪莱·摩尔·卡皮托 (Shelley Moore Capito) 说：““鼓励和要求是两件不同的事情。”
 
-潜在的另一个利益冲突是，赫尔曼还在乔·拜登总统的科技顾问委员会[任职](https://www.whitehouse.gov/pcast/members/sue-desmond-hellmann/)，该委员会被白宫[描述](https://www.whitehouse.gov/briefing-room/statements-releases/2021/09/22/president-biden-announces-members-of-presidents-council-of-advisors-on-science-and-technology/)为“负责向总统提出科学、技术和创新政策建议的唯一外部顾问机构。”
+在投票之前，康涅狄格州民主党参议员克里斯墨菲为私人雇主的疫苗和检测要求辩护，并批评共和党人围绕该要求的言论。
 
-新闻来源：[thenationalpulse.com] [REVEALED: New Pfizer Board Member Is Ex-Facebook](https://thenationalpulse.com/exclusive/pfizer-board-member-is-former-facebook-director/)
+墨菲在参议院声称：“我们明白我们在这个地方的话的力量。” “共和党人知道，当他们日复一日地站到地板上并日复一日地攻击疫苗授权时，他们知道他们正在为反疫苗运动火上浇油。”
 
-* * *
+United Airlines Holdings, Inc. 首席执行官 Scott Kirby 为其员工强制执行了 COVID-19 疫苗接种任务，现在几乎所有美联航员工都接种了疫苗。柯比在 10 月份[告诉](https://www.cbsnews.com/video/united-airlines-ceo-scott-kirby-talks-vaccine-mandate-1000-employee-bonuses-holiday-travel/#x)CBS Mornings，美联航“根据为安全做正确的事情的原则”制定了疫苗要求。
 
-*发稿 : Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-1.jpeg)
+美联航是美国首家要求雇员接种冠病疫苗的航空公司。此前，美联航官员称，共有593名员工拒绝遵守公司的接种冠病疫苗规定。这些员工因此被美联航辞退。
+
+另有2000名员工以医疗或宗教理由要求豁免接种冠病疫苗，这约占美联航员工总数的3%。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/B89E7BA7-C3F3-4F7D-BB46-5C768A78BF58.jpeg)
+参议院多数党领袖查克舒默则在周三早上指责他的共和党同事推动“反科学、反疫苗提案”。
+
+舒默在参议院说：“我的朋友们，美国，我们正处于公共卫生危机之中，”“每个人都看到它对自己、他们的朋友、他们的家人、他们的社区造成的损害。解决这个问题的方法是由科学驱动。”
+
+编者按：
+
+这也许只是疯狂的疫苗强制令体系多米诺骨牌中的一环，我们在这场邪恶的疫苗大战中看着太多无辜的人倒下去， 太多生命因疫苗而逝去，因疫苗而牺牲了余生的健康。我们不愿意看到，飞行员在行驶飞行任务时因疫苗后可能突发的血栓而突发空难；我们也不愿意看到，世界体育赛场上无比健康矫健的运动员在赛场上因疫苗后遗症而倒下去；我们更不愿意看到无辜的孩子们也蒙受接种疫苗后的健康灾难，但是，这种灾难已经在发生！而且，还在继续发生！这一切该停下来了！
+
+全球民众都如笼中困兽，早已经厌倦了失去自由行动权的生活！反抗的声音越来越唤起更多的人加入进来。传播真相，保护家人，远离疫苗，是我们此刻的使命！
+
+编译/米拉娅
+
+审阅/丘杰斯
+
+上传/天赐良闻
+
+援引链接：https://www.cbsnews.com/news/biden-vaccine-mandate-defund-senate-republican-vote/
+
+[https://www.zaobao.com.sg/realtime/world/story20210929-1198396?amp](https://www.zaobao.com.sg/realtime/world/story20210929-1198396?amp)
+
+相关视频链接：https://www.cbsnews.com/video/appeals-court-halts-biden-covid-19-vaccine-rule-for-large-companies/
+
+
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
