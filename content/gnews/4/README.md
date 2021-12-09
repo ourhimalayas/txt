@@ -2,28 +2,34 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月9日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1736507/)
+## 爆料革命日记：回到生活（三）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1736599/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-109-1280x172-1-2-1.jpg)
+作者：湖畔
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-8.png)
-文章仅代表作者本人观点，与Gnews无关
+![](https://assets.gnews.org/wp-content/uploads/2021/12/BLGM.001.jpeg)
 
-视频参看：[2021.12.09早GTV新闻访谈](https://gtv.org/video/id=61b204ecbbd75f62e533b289)
+2021年12月9日 农历十一月初六 辛丑年 庚子月 辛卯日
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+强子，狠狠的吸了一口烟，再一次迈进退伍军人事务部大门，维权。
+和盘古员工有着类似遭遇的强子，第六次踏进这个大门。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-69.jpeg)
+2018年，强子，以一人之力单挑整个“班子”，不仅拆散了单位党委班子，还把单位一把手送到中纪委双规，一时间他成了单位里无数同事的希望，终于有一个不用跪着也能吃饭的人站出来了，一时间强子自己都觉得，虽然联系不到七哥，但是他在他力所能及的范围内做着和七哥一样的事情，他践行着“要做一个七哥一样的人”的自我约定。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+强子，一个体制内技术核心系统的主管，一个上有老下有小的中年男人，是儿子、是父亲、是丈夫还是一名爆料革命战友！
+
+然而，共产党一向的做法，不会去解决问题，要去解决提出问题的人。强子被莫须有的罪名辞退了。尽管在2018年拿着确凿的证据实名举报了前任一把手和班子的贪腐行为，新任领导来了，面对这样的“刺头”怎能轻易放手，如芒在背，必须痛下杀手！
+
+瘫痪在床的老人，茁壮成长的孩子，房贷，车贷，一下子冲到他面前，除了维权，他什么都做不了，然而维权也解决不了一家生计。
+
+他最大的希望的就是七哥振臂高呼那一刻，冲向街头，与国内战友一起将中南坑老杂毛，埋葬！
+
+* * *
+
+*审核：蚂蚁兄弟*
+*发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH..jpeg)
 
  
 
