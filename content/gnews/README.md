@@ -33,68 +33,68 @@
 ### [布林肯提示美国商业领袖应对中共国投资保持“警惕”](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [日本卫生部警告瑞辉疫苗或莫德纳疫苗会导致年轻人群患上心脏疾病](/content/gnews/7/README.md)
+### [新西兰计划（逐步）永久禁烟](/content/gnews/7/README.md)
+ ` MG FARM`
+
+### [日本卫生部警告瑞辉疫苗或莫德纳疫苗会导致年轻人群患上心脏疾病](/content/gnews/8/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [世界各地抗议专制的封锁和疫苗强制令](/content/gnews/8/README.md)
+### [世界各地抗议专制的封锁和疫苗强制令](/content/gnews/9/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [Hcoin To the Moon 登上Billboard全球数字歌曲销量榜首](/content/gnews/9/README.md)
+### [Hcoin To the Moon 登上Billboard全球数字歌曲销量榜首](/content/gnews/10/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [主导信念决定你如何应对现实以及命运的方向（1/2）](/content/gnews/10/README.md)
+### [主导信念决定你如何应对现实以及命运的方向（1/2）](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [投身正义之战 送葬中共！](/content/gnews/11/README.md)
+### [投身正义之战 送葬中共！](/content/gnews/12/README.md)
  ` 秘密翻译组-原创组`
 
-### [研究证明接种强生疫苗会增加患格林-巴利综合征的风险](/content/gnews/12/README.md)
+### [研究证明接种强生疫苗会增加患格林-巴利综合征的风险](/content/gnews/13/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [“躺平币”是向中共讨债的工具，解放更多的灭共力量](/content/gnews/13/README.md)
+### [“躺平币”是向中共讨债的工具，解放更多的灭共力量](/content/gnews/14/README.md)
  ` YALUN 亚伦`
 
-### [Covid 疫苗的 8 种最常见和最严重的不良反应](/content/gnews/14/README.md)
+### [Covid 疫苗的 8 种最常见和最严重的不良反应](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [《美国之音》对众议院三项法案的报道在掩盖啥？](/content/gnews/15/README.md)
+### [《美国之音》对众议院三项法案的报道在掩盖啥？](/content/gnews/16/README.md)
  ` HimalayaRussia`
 
-### [灭共者之疫苗灾难（一）](/content/gnews/16/README.md)
+### [灭共者之疫苗灾难（一）](/content/gnews/17/README.md)
  ` MOS Designer香草山设计部`
 
-### [前总统候选人希拉里·克林顿泪流满面地再现了她从未发表的胜利演讲](/content/gnews/17/README.md)
+### [前总统候选人希拉里·克林顿泪流满面地再现了她从未发表的胜利演讲](/content/gnews/18/README.md)
  ` MG FARM`
 
-### [爆出疫苗含有石墨烯，德国化学家神秘离世](/content/gnews/18/README.md)
+### [爆出疫苗含有石墨烯，德国化学家神秘离世](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [灭共者之追悼习包子（一）](/content/gnews/19/README.md)
+### [灭共者之追悼习包子（一）](/content/gnews/20/README.md)
  ` MOS Designer香草山设计部`
 
-### [“公正的”新闻媒体？路透社主席是辉瑞公司的顶级投资者和董事会成员](/content/gnews/20/README.md)
+### [“公正的”新闻媒体？路透社主席是辉瑞公司的顶级投资者和董事会成员](/content/gnews/21/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [中共上调外汇储备率后人民币暴跌](/content/gnews/21/README.md)
+### [中共上调外汇储备率后人民币暴跌](/content/gnews/22/README.md)
  ` 纽约香草山MOS02`
 
-### [疫苗的幕后不仅有CCP还有世界上的黑暗势力](/content/gnews/22/README.md)
+### [疫苗的幕后不仅有CCP还有世界上的黑暗势力](/content/gnews/23/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [爆料回顾：盗国贼对郭文贵超限战之 “不让你发声”](/content/gnews/23/README.md)
+### [爆料回顾：盗国贼对郭文贵超限战之 “不让你发声”](/content/gnews/24/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [美参议院通过法案废除拜登的企业疫苗强制令](/content/gnews/24/README.md)
+### [美参议院通过法案废除拜登的企业疫苗强制令](/content/gnews/25/README.md)
  ` HimalayaRussia`
 
-### [一年后：英国首相的高级职员在违反规则的圣诞派对上被捕](/content/gnews/25/README.md)
+### [一年后：英国首相的高级职员在违反规则的圣诞派对上被捕](/content/gnews/26/README.md)
  ` MG FARM`
 
-### [英国、加拿大宣布外交抵制中共北京冬奥会](/content/gnews/26/README.md)
+### [英国、加拿大宣布外交抵制中共北京冬奥会](/content/gnews/27/README.md)
  ` GTV新闻访谈`
-
-### [加拿大通过有害转化疗法禁令](/content/gnews/27/README.md)
- ` MG FARM`
 
 ### [灭共者之郭先生直播厅（一）](/content/gnews/28/README.md)
  ` MOS Designer香草山设计部`

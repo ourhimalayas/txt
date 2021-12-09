@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/9/2021 10:15 PM (UTC)`
+
+9/12/2021 “Hcoin To the Moon"  Hits #1 🥇on Billboard's World Digital Song Sales Chart and Hits #1 🥇on 9 Countries' iTunes Rock Charts on the 7th Day of Launch ! 🎉🎉🎉🎉🎉🎉🎉<br/>Thank you very much to all our brothers and sisters in HongKong, Taiwan, Singapore, USA, New Zealand, Hungary, Australia, Laos, and Finland, Macau, Cambodia, Kenya!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1737218/<br/><br/>12月9号， Hcoin To the Moon上线第7天登上Billboard全球数字歌曲销量榜首🥇！同时位列9国iTunes摇滚音乐榜首🥇！🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港，台湾，新加坡，美国，新西兰, 匈牙利，澳大利亚，老挝，芬兰，澳门，柬埔寨，肯尼亚的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏
+![img](https://media.gettr.com/group43/getter/2021/12/09/22/55308976-f319-dce6-82c8-88e1b0a335c4/451aa03e07245157d30829b06e1860e4.jpg)
+
+---
+
 `@miles 12/9/2021 5:30 PM (UTC)`
 
 Hcoin To The Moon MV 上线仅仅3小时， 澳洲🇦🇺，香港 🇭🇰的iTunes MV 榜已经第一名🥇了，这就是新中国联邦战友们的力量！太厉害了！衷心地感谢澳洲，香港的兄弟姐妹们，全球的兄弟姐妹们继续打榜！🙏🙏🙏🙏🙏🙏🙏👍👍👍👍👍👍👍
@@ -145,15 +152,6 @@ From Oct. 23, 2019, when I said that the US would boycott the 2022 Winter Olympi
 
 2021年12月08日 文贵大直播：拜登外交抵制冬奥会；盘古物业接管惊世界；中共高级特务单伟建；对准高层海外大行动
 ![img](https://media.gettr.com/group42/origin/2021/12/08/13/734d70a9-2e68-8ae6-7c5b-7dbf855247b7/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@tangping 12/8/2021 10:29 AM (UTC)`
-
-24秒试听！《Hcoin to the moon》外太空Snow版！<br/>诚邀会画漫画的，会编视频的，会做动漫的，超喜欢Snow的战友，给新歌Remix版本，给咱们的小Snow做个MV吧！<br/>这个版本将和HPAY一同上线，全球打榜啦！<br/>如果你的作品足够暖心，你将会被邀请加入我们的MV制作团队！！<br/><br/>https://forms.gle/JZ85evJZUb5WZCxb9<br/>
-![img](https://media.gettr.com/group3/getter/2021/12/08/10/ac796ae5-4a8e-ecdd-be8e-15b317bc30d8/out.jpg)
 
 ---
 
