@@ -2,55 +2,38 @@
 ---
 
 
-## 新中国联邦成功干掉北京冬奥会相当于宣判共产党的死刑
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1734594/)
+## 苹果公司的蒂姆库克与中共国签署了价值超过 2750 亿美元的秘密协议
+` RoseNews` [轉載自GNews](https://gnews.org/zh-hans/1734657/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/index8_副本.jpg)
-据[2021年12月08日 文贵大直播：拜登外交抵制冬奥会；盘古物业接管惊世界；中共高级特务单伟建；对准高层海外大行动](https://gettr.com/streaming/pj3xefa5bc)时间点1：38：50——
+![蒂姆库克 275 美元交易中国](https://insiderpaper.com/wp-content/uploads/2021/12/8-990x505.jpg)图片：视频截图
 
-**郭文贵先生：**我先简单说一下，就是你可能刚才看了2019年七哥当时说消灭冬奥会这件事情，冬奥会这件事情只有东弟和颖妹妹最有资格说对共产党意味着什么。
+2021 年 12 月 8 日 ，[布伦丹·伯恩](https://insiderpaper.com/author/brendan/)发文报道：
 
-昨天一个国内的体制内的一位老大哥，这是绝对是听说我老爹的事情义愤填膺，他说我干了一辈子政法，他说我们也干过很多坏良心的事情，现在也后悔。但是对盘古这个做法，他是无法想象的。
+据*The Information*报道，苹果首席执行官蒂姆库克与中共国官员“秘密”签署了一项价值超过 2750 亿美元的协议，承诺苹果将通过投资、商业交易和工人培训，为发展[中共国经济](https://insiderpaper.com/us-to-announce-diplomatic-boycott-of-2022-beijing-winter-olympics/)和技术实力尽自己的一份力量。
 
-他说我又就在同时听到了北京冬奥会被取消，他说文贵这是天意呀！他说所有党内、体制内，他说我们所有人的电话都打爆了，他说他对郭文贵、对盘古这个真的是太夸张了，然后就说了很多。最重要的事情大家都有爹、都有妈，是吧？习近平也有爹有妈，他爹不在了他妈还活着呢，齐心还活着呢，是吧。
+据报道，这份之前没有报道过的五年协议是由苹果公司首席执行官蒂姆库克伪造的。[The Information](https://www.theinformation.com/articles/facing-hostile-chinese-authorities-apple-ceo-signed-275-billion-deal-with-them)查看的[苹果内部](https://insiderpaper.com/patent-apple-working-on-drone-device/)文件显示：“在 2016 年，他首次亲自访问该国，以平息针对苹果业务的突然爆发的监管行动。”
 
-那么冬奥会这件事情，习近平最希望是他妈能看到，这是他的一生所谓的盛世——拿回香港、收回台湾、成功举办冬奥会，然后修宪，是吧？这是他最最在乎的事情，但冬奥会被灭了。
+文件显示，“在会议之前，苹果高管们争先恐后地挽救公司[与中共国官员](https://insiderpaper.com/more-than-200-chinese-companies-may-be-kicked-off-us-exchanges/)的关系[，中共国官员](https://insiderpaper.com/more-than-200-chinese-companies-may-be-kicked-off-us-exchanges/)认为该公司对当地经济的贡献不够。在政府的镇压和随之而来的不良宣传中，iPhone 的销量直线下降，”该报告周二晚间表示。
 
-冬奥会被灭我可以告诉大家，新中国联邦独一无二的最大的功劳，是我们最早提出灭冬奥会的，包括班农先生、包括欧洲我们取的所有的公关院、政治院说的，所有的人说不可能，Miles，他说你知道把它冬奥会给它干掉，中国共产党会是什么呢？他说基本共产党就宣判了死刑，他说只是哪一天了。
+报道称，库克就针对 Apple Pay、iCloud 和 App Store 的威胁“亲自游说中共国官员”。
 
-他说取消冬奥会比取消世贸严格讲还严重，原因是什么？他说取消冬奥会以后，再有任何国际盛事来中国都会成为被审视，就咱俩过去关系是正常的，咱俩上你家吃个饭、吃个午餐都正常，东弟、钊颖妹妹，突然间今天东弟说，今天搞成个最大的我郝海东35大寿，是吧，七哥你一定来，结果七哥宣布，正式宣布我不参加这个大寿，那我下次再来不来你家吃午饭、吃晚饭？大家都会看着七哥来不来，因为这是证明着七哥和你的证明的关系。
+报道称，苹果宣布向滴滴出行[投资](https://insiderpaper.com/china-and-eu-sign-cai-agreement-for-investment-and-fair-trade/)10 亿美元，以“安抚”当局。
 
-更主要的事情，冬奥会的目的，它不是，冬奥会谁搞的？不是企业家搞的，它是以国家的名义搞的，是共产党搞的，是给习近平搞政治分儿的。全世界的领导人我知道原来是约好的57国领导人，现在只剩三国了，三国现在还提出要求必须习近平本人接见。
+据 GizmoChina 援引 The Information 报道，不久之后，库克、苹果首席运营官杰夫威廉姆斯和政府事务负责人丽莎杰克逊据称在中国共产党中央总部中南海会见了高级政府官员。
 
-这三国的本人接见现在习一个也没答应，其中一个就是我给他拉的关系，中东某国还有一个非洲某国都是我拉的关系，托尼布莱尔和我给他拉的关系。
+据报道，作为协议的一部分，苹果同意在其设备中使用更多来自中共国供应商的组件，与中共国软件公司签署协议，与中共国大学[进行技术合作](https://insiderpaper.com/a-mysterious-signal-that-looked-like-a-sign-of-alien-technology-turned-out-to-be-radio-interference/)，并直接投资于中共国科技公司。
 
-现在这些人都问我为什么习就不让我们去，不见我们呢？他怕染毒我难道不怕染毒吗？所以你看看这个冬奥会根本不存在美国、欧洲、澳大利亚、日本这种一线国家了，二线国家都轮不着了，三线国家还得见习，习还不见。
+该[公司还](https://insiderpaper.com/israeli-nso-spyware-company-plans-to-reverse-us-ban/)承诺在中共国的投资将比目前的支出“多出数十亿美元”，包括新零售店、研发设施和可再生能源项目。
 
-你这个冬奥会的政治在国际上个人政治已经彻底破产，国家信用彻底破产，中国人的运动员，过去中国打开国门是乒乓外交，还有体育外交，一系列的什么篮球外交，反正都是去球外交是吧？——全完蛋。
 
-（以下暂略）
 
-撰稿：喜马拉雅的肉夹馍；
+编译/米拉娅
 
-审核：喜马拉雅的馍夹肉；
+审阅/丘杰斯
 
-校对：Maarago
+上传/天赐良闻
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+援引链接：https://insiderpaper.com/tim-cook-secret-signed-275-bn-deal-with-china-alleges-report/
 
  
 

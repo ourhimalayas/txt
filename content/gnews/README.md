@@ -15,80 +15,80 @@
 
 ---
 
-### [加拿大生活美谈 2021-12-02第三十二期](/content/gnews/1/README.md)
- ` canadalifetalk`
-
-### [新中国联邦成功干掉北京冬奥会相当于宣判共产党的死刑](/content/gnews/2/README.md)
- ` NewFOC`
-
-### [佳兆业4亿美元债违约！](/content/gnews/3/README.md)
+### [中共国印钞造币总公司陈耀明投案接受审查调查](/content/gnews/1/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [澳英加苏紧跟美国相继宣布外交抵制北京冬奥会](/content/gnews/4/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [日本修正第三季度GDP，预计全年GDP下降3.6%](/content/gnews/5/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [印度：帮助开发 Covid疫苗的医生Suresh S. Jadhav 博士去世](/content/gnews/6/README.md)
+### [苹果公司的蒂姆库克与中共国签署了价值超过 2750 亿美元的秘密协议](/content/gnews/2/README.md)
  ` RoseNews`
 
-### [苹果为绕过中共的运营监管所做的交易](/content/gnews/7/README.md)
- ` 墨尔本雅典娜农场`
-
-### [法官停止了对全美联邦承包商的疫苗强制接种令](/content/gnews/8/README.md)
+### [挪威专家称奥米克戎可能会提供“自然免疫”的“最佳方案”](/content/gnews/3/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [年轻人心脏病爆炸性增长，英国专家却归咎于心理问题](/content/gnews/9/README.md)
+### [前白宫经济顾问彼得·纳瓦罗: 中共病毒袭击是美国第二次珍珠港事件](/content/gnews/4/README.md)
+ ` 美国政要直译推`
+
+### [面对疫苗灾难安大略省卫生部长无言以对](/content/gnews/5/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [美参众两院军委会提 助台发展不对称武力](/content/gnews/6/README.md)
+ ` GTV新闻访谈`
+
+### [加拿大生活美谈 2021-12-02第三十二期](/content/gnews/7/README.md)
+ ` canadalifetalk`
+
+### [新中国联邦成功干掉北京冬奥会相当于宣判共产党的死刑](/content/gnews/8/README.md)
+ ` NewFOC`
+
+### [佳兆业4亿美元债违约！](/content/gnews/9/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [澳英加苏紧跟美国相继宣布外交抵制北京冬奥会](/content/gnews/10/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [日本修正第三季度GDP，预计全年GDP下降3.6%](/content/gnews/11/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [印度：帮助开发 Covid疫苗的医生Suresh S. Jadhav 博士去世](/content/gnews/12/README.md)
+ ` RoseNews`
+
+### [苹果为绕过中共的运营监管所做的交易](/content/gnews/13/README.md)
  ` 墨尔本雅典娜农场`
 
-### [疫苗灾难：津巴布韦禁止未接种疫苗的人使用公共交通工具](/content/gnews/10/README.md)
+### [法官停止了对全美联邦承包商的疫苗强制接种令](/content/gnews/14/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [年轻人心脏病爆炸性增长，英国专家却归咎于心理问题](/content/gnews/15/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [疫苗灾难：津巴布韦禁止未接种疫苗的人使用公共交通工具](/content/gnews/16/README.md)
  ` 玫瑰新闻`
 
-### [*ST海航：控股股东变更为方大航空 实控人方威](/content/gnews/11/README.md)
+### [*ST海航：控股股东变更为方大航空 实控人方威](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [无声的镇压 人权团体指控中共系统性剥夺被告法律权益](/content/gnews/12/README.md)
+### [无声的镇压 人权团体指控中共系统性剥夺被告法律权益](/content/gnews/18/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [明是非 辨善恶](/content/gnews/13/README.md)
+### [明是非 辨善恶](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [未遂中共黑客攻击，险致数百万澳洲家庭断电](/content/gnews/14/README.md)
+### [未遂中共黑客攻击，险致数百万澳洲家庭断电](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [苹果公司曾与中共秘密达成巨额交易](/content/gnews/15/README.md)
+### [苹果公司曾与中共秘密达成巨额交易](/content/gnews/21/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [12/8/2021 文贵直播：单伟建是外交部子弟，他利用太平联盟代表中共在美国、在BVI、和在北京采取的一系列活动都是针对文贵的](/content/gnews/16/README.md)
+### [12/8/2021 文贵直播：单伟建是外交部子弟，他利用太平联盟代表中共在美国、在BVI、和在北京采取的一系列活动都是针对文贵的](/content/gnews/22/README.md)
  ` 秘密翻译组-北美组`
 
-### [加拿大驻华大使辞职引发各界舆论浪潮](/content/gnews/17/README.md)
+### [加拿大驻华大使辞职引发各界舆论浪潮](/content/gnews/23/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [人伦惨剧，德国家庭因疫苗接种证明而灭门](/content/gnews/18/README.md)
+### [人伦惨剧，德国家庭因疫苗接种证明而灭门](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [加拿大政府因疫苗政策面临法律诉讼](/content/gnews/19/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [SARS-CoV-2 刺突蛋白是武器化的毒素](/content/gnews/20/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm Toronto(CA)`
-
-### [美大型医疗公司暂停疫苗强制接种](/content/gnews/21/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [从昔日德苏合击波兰，看今天中俄兵临台湾乌克兰](/content/gnews/22/README.md)
- ` 墨尔本雅典娜农场`
-
-### [法律专家质疑加拿大全民疫苗接种运动](/content/gnews/23/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [【文贵先生大直播PPT】疫苗灾难](/content/gnews/24/README.md)
+### [【文贵先生大直播PPT】疫苗灾难](/content/gnews/25/README.md)
  ` Mr. Miles Guo's News Briefing`
-
-### [有违初衷的宗教组织](/content/gnews/25/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [苹果与中国签署了 $275B 的秘密协议](/content/gnews/26/README.md)
  ` MG FARM`
