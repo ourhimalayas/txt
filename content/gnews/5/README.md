@@ -2,82 +2,138 @@
 ---
 
 
-## 美众议院涉及彭帅的“第837号决议”
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1737453/)
+## 英国赌场牌照的意义
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1737580/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+现在我告诉大家, 这种英国的赌牌
+Ahora les digo a todos, estas licencias de apuesta del Reino Unido
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/12/R-1.jpg)data.poughkeepsiejournal.com
-12月8日获得428票对0票通过的“众议院第837号决议”（H. RES. 837）全文：
+它不是价值
+No es el valor
 
-H.Res.837-表达众议院对北京应该立即保障网球明星彭帅安全和自由的关注。
+这是英国赌牌
+Esta es la licencia de apuesta del Reino Unido
 
-众议院第837号决议
+它有一个最安全的资金来源通道
+Tiene el canal de fuentes de fondos más seguro
 
-表达众议院对国际奥林匹克委员会没有履行其自身人权承诺的关注。
+听懂了吗
+¿ Entendieron?
 
-鉴于，在2021年11月2日，三届奥运会选手彭帅在中共国社交媒体网站微博上被删除的帖子中说，她遭到了性侵，并被迫与2013年至2018年期间担任中共副总理的张高丽发生性关系；
+对我们喜联储的重大的利好
+Es de gran beneficio para nuestra Reserva Federal de Himalaya
 
-鉴于，中共当局对有关彭帅的案件的讨论实施了媒体和互联网封锁，并且在中共国境内，“网球”和“彭”的文字在网上受到了审查；
+因为我们的喜联储通过这个咱们的H-coin也好, H-pay也好
+Porque nuestra Reserva Federal de Himalaya ya sea a través de H-coin, H-pay
 
-鉴于，在2021年11月14日，在12天没有看到或听到彭之后，世界女子网球协会（WTA）首席执行官史蒂夫·西蒙（Steve Simon）要求对彭帅的指控进行“全面透明”的调查；
+H-dollar也好
+O H-dollar
 
-鉴于，“彭帅在哪里”（Where Is Peng Shuai）的标签在全球社交媒体上流行，但在中共国受到审查；
+全部都活了, 一下子就(活了)
+Todo habrá vitalidad
 
-鉴于，在2021年11月17日，WTA收到了一份声称是彭帅的声明，放弃了她的虐待指控，并说“一切都很好”；
+而且是每天的这种流量应该是相当巨大
+Y el flujo de todos los días es bastante grande
 
-鉴于，作为回应，WTA首席执行官史蒂夫·西蒙（Steve Simon）表示，“中共国官方媒体今天发布的关于彭帅的回应，只会引起我对她的安全和下落的担忧”；
+如果特别像台湾大牛
+Si es especialmente como Daniu de Taiwán
 
-鉴于，国际奥委会（IOC）在一份声明中对此表示“对她安全的保证感到鼓舞”；
+巴黎在台湾的人
+Y Bali que son de Taiwán
 
-鉴于，在2021年11月19日和20日，有彭帅在北京的家、一家餐厅和一个青年网球赛事中的照片和视频出现在了与中共政府有关的媒体的推特账户上，与此同时，彭帅没有直接与媒体或WTA对话；
+我告诉你台湾我知道几个家族
+Déjame decirte que yo sé de algunas familias en Taiwán
+每年就是到欧洲
+Donde van todos los años a Europa
 
-鉴于，2021年11月19日，白宫新闻秘书普萨基（Jen Psaki）说白宫对彭的失踪深表关切，并寻求“独立和可核实的证据”来说明她的处境和状况；
+到英国去赌
+A apostar en Reino Unido
 
-鉴于，在2021年11月19日，联合国人权办公室发言人利兹·思罗塞尔（Liz Throssell）告诉记者：“重要的是要证明她的下落和幸福，我们敦促中共她对性侵的指控进行充分透明的调查”；
+都是几亿几亿美元的赌
+Son apuestas de cientos de millones de dólares
 
-鉴于，2021年11月21日，国际奥委会在声明中表示，其主席托马斯·巴赫（Thomas Bach）与三届奥运会选手彭帅进行了30分钟的视频通话，过程中有一名中共国体育官员和一名国际奥委会官员参加；
+有的大的玩得更大
+Algunos juegan aún más grande
 
-鉴于声明说，在此通话中彭帅看起来“不错”和“放松”，并说她“希望自己的隐私受到尊重”；
+我再告诉大家
+También les digo
 
-鉴于，其他相关方难以联系到她，国际奥委会没有解释与彭帅的视频通话是如何组织的；
+赌场某种程度上是一个
+El casino es de alguna manera un
 
-鉴于，2021年11月30日，国际奥委会官员迪克·庞德（Dick Pound）在接受美国有线电视新闻网采访时为中共政府处理这一局面辩护，并说国际奥委会官员对这个问题的“一致结论”是：彭帅“没有问题”；
+最高端的金融游戏的智慧家的玩者
+Jugador más inteligente y sofisticado del juego finaciero
 
-鉴于《国会中共国问题执行委员会2020年度报告》（the annual report of the Congressional-Executive Commission on China for 2020）发现，在中共国，基于性别的暴力仍然是一个严重的问题，极为普遍的性侵案件不断出现；
+在英国
+En Reino Unido
 
-鉴于国际奥委会在彭帅的性侵指控和安全问题上对中共的默许，削弱了全球对中共通过透明和全面的程序调查彭帅指控的要求；
+只要你按我这个规矩玩儿
+Si juegas siguiendo mis reglas
 
-鉴于国际奥委会领导层在与中共官员合作掩盖彭帅的性侵和失踪指控方面所起的作用，使人质疑该组织是否有能力和意愿追究施暴者的责任并保护参加2022年北京奥运会和残奥会的运动员；
+你绝对受到保护和尊重
+Serás absolutamente protegido y respetado
 
-鉴于国际奥委会向中共控制的北京2022年奥运会和残奥会组委会提供了约8.9亿美元，“以减轻主办城市的财政负担”；
+他和中共国到澳门去
+Él va con el PCCh a Macao
 
-因此，现在，请，众议院的决议，认为——
+一会儿你涉黑了
+En un momento serás involucrado en la organización criminal
 
-（1）通过与中共的合作，国际奥林匹克委员会（IOC）未能履行其自身的人权承诺并保护参加奥林匹克的运动员的言论和自由；
+你本来赌场就是黑社会
+El casino en sí es una organización criminal
+你涉个屁黑啊
+Para qué dices que estás involucrado en eso
 
-（2）国际奥委会再次未能保护运动员免受性虐待和性骚扰，并应公开承诺追究性暴力滥用者的责任；
+你本来就是黑社会还涉黑呢
+Porque ya en sí ya eres de la organización criminal
 
-（3）国际奥委会的行为破坏了美国政府、人权组织、女子网球协会以及其他国际机构和个人，为确保彭帅安全所做的努力；
+是吧, 洗钱了
+Cierto, dinero blanqueado
 
-（4）为了恢复失去的公众信心，国际奥委会应该呼吁中共——
+那赌场就是洗钱的
+Los casinos juegan el dinero blanquedo
 
-（A）对彭帅的指控展开独立透明的调查；
+是不是, 他就这么简单
+Es o no es así, es tan sencillo
 
-（B）公开承诺追究性暴力滥用者的责任；
+你在英国不存在这个
+En Reino Unido no existe esto
 
-（C）停止对彭案件报道和讨论进行的审查；
+只要你按我的规则来
+Si sigues mis reglamentos
 
-（D）如果彭女士愿意，允许她离开中共国，并且不对留在中共国的家庭成员进行报复。
+你永远受保护
+Serás siempre protegido
 
-（决议全文完）
+你去看看千年的历史
+Puedes ver la historia de hace mil años atrás
 
-期待对世界卫生、联合国人权等这些被中共渗透的组织出现这样的质疑，一旦世界对中共邪恶进行了清醒的认知，也就它的死期来临之日。
+英国没干过这事儿
+En Reino Unido no han hecho este tipo de cosas
 
-决议原文链接：
+明白了吗, 意义重大
+¿ Comprenden? Este es muy significativo
 
-[https://www.congress.gov/bill/117th-congress/house-resolution/837/text](https://www.congress.gov/bill/117th-congress/house-resolution/837/text)
+**原视频网址：**[https://gettr.com/post/pisqau958b](https://gettr.com/post/pisqau958b)
+
+日期：12/08/2021
+原视频标题：英国赌场牌照的意义
+El significado de la licencia de casino del Reino Unido
+原视频日期：12/05/2021
+原视频网址：https://gettr.com/post/pisqau958b
+任务编号：KC318(3123)
+视频时间段：0:00-1:43
+
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
+审片： 洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

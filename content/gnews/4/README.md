@@ -2,41 +2,50 @@
 ---
 
 
-## 英国与美国、澳大利亚一起对中共的冬奥会进行外交抵制
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1737510/)
+## “班农先生不睬案”审理日期已确定
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1737586/)
 
-**据《零对冲》作者：TYLER DURDEN，2021年12月8报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/a9tkb-kf7u8.jpg)**图片来自原文**
-**据《纽约时报》报道，因中（共）国侵犯人权，英国加入了对北京冬奥会实施外交抵制的国家名单。这一名单正在不断扩大**。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-英国首相鲍里斯-约翰逊周三说：“北京冬奥会实际上将受到外交抵制。英国与美国、澳大利亚、立陶宛和新西兰一道，禁止高级官员参加冬奥会。”
-约翰逊说，英国“毫不犹豫地”向中（共）国提出对侵犯人权的关切，并补充说，“预计没有部长会参加，也没有官员会参加”。
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/12/B-4.jpg)hurriyetdailynews.com
+“班农先生不睬案”的定义详见Gnews文章。【1】
 
-美国和其他国家要求中（共）国对各种问题负责的压力越来越大，包括对新疆维吾尔族和其他穆斯林的虐待以及对香港民运人士的野蛮镇压。
-约翰逊的评论暗示英国皇室成员仍有可能出席。
+司法部企图回避班农先生团队要求公布更多的文件，希望速战速决，快速了解此案，提出明年4月份审理的要求，而班农先生需要追究这起诉讼案更深的背景，提出明年10月份进行法庭审理，法官则进行了折中，确定在2022年7月18日进行。【2】
 
-国会议员、前保守党领袖邓肯-史密斯对约翰逊的抵制决定表示欢迎，并希望“许多其他国家也能效仿”。
+《门道专家》对司法部的行径进行了指责，“对班农先生的案子希望隐藏证据、光速结案——而对1.6抗议者无审判日期，要他们牢底坐穿”。【3】
 
-周一，美国正式宣布对冬季奥运会进行外交抵制。白宫新闻秘书Jen Psaki说，由于中（共）国侵犯人权，拜登总统或任何其他美国政府官员都不会参加在北京举行的活动。
+全文如下：
 
-外交抵制意味着运动员将被允许参加比赛，但政治家将缺席。
-今年早些时候，美国和西方盟友对中（共）国进行了多项人权制裁。
-作为对美国抵制行动的回应，中共威胁拜登政府要对其决定进行报复，并警告此举可能损害双边关系。
+有关史蒂夫·班农藐视国会案的有关信息今天公布。
 
-中（共）国驻美国大使馆发言人李鹏宇称美国的抵制行为是“政治操纵”，并补充说，这对冬奥会的成功影响甚微。
+美国《伟大》（American Greatness）杂志撰稿人朱莉·凯利（Julie Kelly）在推特上发布了大量描述班农在其案件中的战略信息。
 
-与此同时，俄罗斯奥委会称美国的行动“适得其反”。俄罗斯的弗拉基米尔-普京曾非常明确地表示，他将出席北京冬季奥运会。
+班农的团队计划向美国检察官办公室、司法部、白宫和美国众议院索取信息。
 
-**原文连接：**[https://www.zerohedge.com/geopolitical/uk-declares-diplomatic-boycott-chinas-winter-olympics](https://www.zerohedge.com/geopolitical/uk-declares-diplomatic-boycott-chinas-winter-olympics)
+司法部很害怕，试图阻止班农向媒体发布信息，班农的团队提醒法官，媒体希望看到这些信息。
 
-翻译：洛杉矶盘古农场- TrueSky
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – 柯镇恶
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+文章附上了凯利的推文。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+法官似乎站在腐败犯罪的司法部一边。
+
+班农正在追捕腐败和非法的1.6委员会。
+
+共和党人迷路了，他们在树林里寻找出路，他们根本帮不上忙。
+
+1.6（抗议者的）案件被推迟，但班农的案子必须以光速行动？
+
+掌管我们司法部和美国政府的是一个多么腐败的集团啊。这一切都始于奥巴马。
+
+（原文完）
+
+有关链接：
+
+【1】[https://gnews.org/zh-hans/1706104/](https://gnews.org/zh-hans/1706104/)
+
+【2】[https://thehill.com/regulation/court-battles/584703-judge-sets-july-trial-date-in-bannon-case](https://thehill.com/regulation/court-battles/584703-judge-sets-july-trial-date-in-bannon-case)
+
+【3】[https://www.thegatewaypundit.com/2021/12/doj-steve-bannons-court-case-wants-withhold-evidence-move-light-speed-j6-protesters-held-jail-still-dont-court-dates/](https://www.thegatewaypundit.com/2021/12/doj-steve-bannons-court-case-wants-withhold-evidence-move-light-speed-j6-protesters-held-jail-still-dont-court-dates/)
 
  
 

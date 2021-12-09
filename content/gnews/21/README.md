@@ -2,60 +2,24 @@
 ---
 
 
-## 灭共者之疫苗灾难（一）
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1737175/)
+## 投身正义之战 送葬中共！
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1737208/)
 
-**出品：纽约香草山设计部**
+撰稿：北纬农夫
+![此图像的alt属性为空；文件名为Picture的1.png](https://assets.gnews.org/wp-content/uploads/2021/12/Picture%E7%9A%841.png)图片来源：Gnews
+亲爱的全球战友们，你是否听到了期待已久战斗的号角？12月8日大直播文贵先生正式吹响了同共产党近身肉搏战的冲锋号。身在海外的华人，却依然无法摆脱共产党的威胁迫害，身在国内的亲朋好友时刻还处在共产党的恐吓与残害中。
 
+共产党盗取政权，荼毒中华大地上百年，屠杀上亿国人、奴役几代家人、破坏大好河山、盗夺人民财富，更生化袭击全世界。这场病毒与疫苗的战争就是中国共产党及全球的共产主义者向全世界发动的赤裸裸的屠杀，他们盗光了我们的财富和养老金，就通过病毒与疫苗消灭我们，达到消减人口的邪恶目的。
 
+共产党统治下的中国，已满目疮痍、道德沦丧、社会失序、法治不张。不仅没有任何应该有的福利政策，更是变本加厉，利用高房价、昂贵医疗、收费教育等把每一个人都变成他们的奴隶，直至榨干你最后一滴血汗。最勤劳智慧的中国人民创造了世界上位居前列的财富，但他们却没有享受世界上公认的一点点福利待遇，唯有日夜工作，才可能在中国苟且偷生，任何一场大医疗就会葬送一家人所谓的的岁月静好。共产党每年几万亿的军费和维稳费，却不愿意让人民享受几千亿的免费医疗和教育，因为，他们需要的仅仅是干活的奴才。
 
+共产党在世界上的战狼外交和一带一路的侵略性作为，更将数千万海外华人置于极度不安全的处境中，共产党的恐怖主义行径更是时刻让我们和家人置身于恐惧中，这就是他们希望达到的，让我们所有人跪着，好好听话，否则，株连九族！
 
+共产党还利用盗取的财富，培植世界上的共产主义，将邪恶触角伸向全世界。中共收买西方政客、蓝金黄西方精英、渗透西方社会，意图控制全世界，这些共产党的邪恶手段已经被爆料革命展示给全世界。我们看到西方善良正义的人们正在觉醒，消灭共产党的力量在日益壮大，消灭共产党已是全世界人民匡扶正义的需要！
 
+全球爆料革命的战友们，所有的新中国联邦人，跟随文贵先生，让我们克服恐惧，展现勇气，履行使命，一起行动，送葬中共！
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
-
-
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/2-image1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/1-image0.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/4-image1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/3-image0.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/6-123.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/5-123.jpg)
-
-
-
-
-**编辑/发稿：小鹿**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-2.png)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
-
+校对发布：Shifter
 
  
 
