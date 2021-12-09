@@ -2,34 +2,29 @@
 ---
 
 
-## 中共国批准首个新冠病毒中和抗体联合治疗药物
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1736225/)
+## 日本新发现“杀伤性T细胞”，将可能治疗中共奥密克戒病毒
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1736262/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-113.png)图片来源：央视网
-翻译：不要代表我Kari
-编辑：Mttfly
+撰稿：东京樱花团/风翼
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-91.jpg)
+[图片来源](https://www.jiji.com/sp/article?k=2021120900181&amp;g=soc&amp;p=20211209ds60&amp;rel=pv)：
 
-中共国国家药品监督管理局已经批准了腾盛华创医药技术有限公司的联合抗体新冠肺炎疗法用于成人和青少年，这是此类治疗药物第一次在中国获得批准。
+据【JIJI.COM】日本理化学研究所的高级研究员清水加奈子和藤井伸一郎的团队发表实验结果。实验表明，具有消除感染季节性冠状病毒的细胞记忆的“杀伤性T细胞”可能是使感染过季节性冠状病毒的人对中共病毒产生抗性的“交叉反应”的原因。
 
-国家药品监督管理局在一份声明中说，BRII-196/BRII-198组合旨在治疗轻度新冠肺炎和重症高危患者的“常见类型”的疾病。
+发生交叉反应的速度尚不清楚，但藤井认为，这可能是日本人感染中共病毒的人数和严重疾病的比率低于欧洲和美国的原因之一。研究说明，当病毒进入人体时，抗体首先附着在细胞上以阻止其进入，但如果细胞无法被阻止并被感染，杀伤性T细胞就会摧毁它并将其消灭。在受感染的细胞表面有一种叫做人类白细胞抗原（HLA）的蛋白质，它是病毒的标记。病毒被摧毁。
 
-中和抗体鸡尾酒（药物疗法）被批准用于成人和12至17岁的未成年人。
+清水和他的同事检查了中共病毒的穗状蛋白，以确定在日本人口中最常见的HLA类型是否有容易被杀伤性T细胞标记的部位，并确定了最容易标记的部位。在细胞实验中，他们证实四个季节性冠状病毒的穗状蛋白的氨基酸序列与中共病毒的非常相似，并且杀伤性T细胞以同样的方式对它们作出反应。
 
-腾盛华创声称，最近BRII-196/BRII-198鸡尾酒的第三阶段试验表明，非住院临床易感患者在统计学上显著减少了78%的住院或死亡。
+通过这一发现，研究人员说“希望开发出虽然接种疫苗后仍被感染奥密克戒病毒的治疗方法。”并将相关研究成果发表在国际科学期刊《通信生物学》上与大家探讨。
 
-该公司在中国设有两个办事处，在美国设有两个办事处，最近向美国食品和药物管理局FDA申请了抗体治疗的紧急使用授权。来自再生元制药有限公司（Regeneron Pharmaceuticals）和礼来公司（Eli Lilly）的类似鸡尾酒疗法已经在美国获得批准。
+信息来源：
 
-**原文链接：**[China approves first antibody Covid treatment](https://www.rt.com/news/542601-china-approves-antibody-covid/)
+[風邪を記憶、新型コロナにも　「キラーＴ細胞」が交差反応―治療法に応用期待・理研](https://www.jiji.com/sp/article?k=2021120900181&amp;g=soc&amp;p=20211209ds60&amp;rel=pv)
 
-**发布：**去中心化Math
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
+
 
  
 
