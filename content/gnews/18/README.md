@@ -2,40 +2,52 @@
 ---
 
 
-## 无声的镇压 人权团体指控中共系统性剥夺被告法律权益
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1734471/)
+## 印度：帮助开发 Covid疫苗的医生Suresh S. Jadhav 博士去世
+` RoseNews` [轉載自GNews](https://gnews.org/zh-hans/1734549/)
 
-![资料照：香港民众手举当时被中国政府监禁的维权律师的画像表达对中国人权律师的支持。（2017年7月9日）](https://gdb.voanews.com/9E1455F2-9130-497C-B8BE-EC314413ACDC_cx0_cy1_cw0_w1023_r1_s.jpg)*资料照：香港民众手举当时被中国政府监禁的维权律师的画像表达对中国人权律师的支持。（2017年7月9日）*
-据美国之音12月8日报道，人权团体“保护卫士”7日公布人权报告，指控缺乏正义的中共国司法机关迫害律师等异议人士日益极端。“保护卫士”表示，中共近年来以威胁、恐吓等方式，阻止刑事被告会见自己聘请的律师，或强迫他们接受官派律师。报告追踪多位受访者，包括被监禁的中共国维权律师和社运人士及其家属，了解他们的亲身经历。
+![苏雷什·贾达夫博士去世](https://insiderpaper.com/wp-content/uploads/2021/12/6-1-990x527.jpg)图片：视频截图
 
-依据中共国《刑事诉讼法》第39条之规定，被拘留的嫌疑人有权在提出请求后的48小时内，会见其选择或通过家庭成员委托聘任的辩护人，也就是自己的律师。然而，“保护卫士”针对数10名在2015年“709大抓捕”后被长期囚禁的中共国维权律师所做的调查显示，法条里载明的被告人权利在现实中并不存在。“保护卫士”最新公布的第三册报告《法律途径剥夺》指出近6年来，至少有82起遭刑事起诉的被告人被迫解雇自己的律师，接受官派律师。
+*世卫组织首席科学家 Soumya Swaminathan 博士对 Jadhav 的逝世表示哀悼，称他为疫苗研发做出了非凡的终生贡献。*
 
-一旦被控以“国安罪名”，中共警方就有权在长达8到13个月的“侦查阶段”，拒绝被告会见律师。在“保护卫士”2013年到2021年7月间所追踪的173名被告中，有82人被控国家安全罪，有44人未曾获准与律师见过面。警方也会强迫被拘留者放弃聘请律师的权利。前香港铜锣湾书店创办人林荣基在半年的囚禁期间就曾亲身经历过这样的压迫。
+2021 年 12 月 8 日 4 小时前[布兰登·泰勒](https://insiderpaper.com/author/brendan-taylor/)通过insiderpaper发文报道：
 
-尽管中共国刑事案件定罪率高达99.9%，但一名好的辩护律师仍有机会协助被告获得减刑。但官派律师多半与警方、检察院与法院站在同一阵线。多年来不少人权律师和维权人士预录声明影片来表明自己拒绝接受官派律师。曾因声援香港反送中运动于2020年4月被捕的湖南维权人士谢文飞就是其中一人。
+印度血清研究所 (SII) 的杰出科学家兼执行董事 Suresh S. Jadhav 博士在开发Covishield 疫苗方面发挥了重要作用，他在长期患病后于周二深夜在[一家私人医院](https://insiderpaper.com/north-carolina-hospital-system-fires-over-175-employees-over-vaccine-mandate/)去世。
 
-中共当局还可以拒绝核发正式的拘留通知书，或是在看守所使用假名登记等方式藏匿被拘留者，让家属无处寻人。家属就算找到狱中亲人，警方可能故意将被拘留者转移。而对于为被告发声的律师，中共当局会暂时或永久吊销律师证。2016年以来至少有35名维权律师的执业权遭到剥夺，2020年湖南省清除了1200多名律师。
+他享年72岁，遗下妻子和[两个孩子](https://insiderpaper.com/elon-musk-civilization-is-going-to-crumble-people-more-children/)。
 
-由于中共国历次对维权人士的“大抓捕”都会引发国际谴责和反对。因此，北京采取“无声镇压”的方式摧毁维权行动。瑞典籍的“保护卫士”创办人彼得·达林就曾经历过在关押期间无法会见律师、不能关闭日光灯、甚至连每天服用的药物也被没收。
+Jadhav 的去世受到 SII 首席执行官 Adar Poonawalla[和](https://insiderpaper.com/federal-court-blocks-bidens-vaccine-mandate-for-health-care-workers/)世界卫生组织（WHO）首席科学家 Soumya Swaminathan 博士等的哀悼。
 
-中共国的人权问题持续引发世界关注，但中共依然我行我素，只是采取了隐晦的方式。人人生而平等，中共没有权利剥夺他人应得的权利甚至生命，国际社会不应该仅仅谴责或者声援，需要采取行动阻止中共的行为。
+Poonawalla 说，“随着 Suresh Jadhav 博士的去世，印度疫苗行业失去了指路明灯”。
 
-新闻参考链接：[https://www.voachinese.com/a/Safeguard-Defenders-accuses-CCP-of-depriving-detainees-of-legal-rights-in-what-it-calls-silent-crackdown-20211208/6343035.html](https://www.voachinese.com/a/Safeguard-Defenders-accuses-CCP-of-depriving-detainees-of-legal-rights-in-what-it-calls-silent-crackdown-20211208/6343035.html)
+据该报道称，“Jadhav 博士在建立发展中国家[疫苗](https://insiderpaper.com/omicron-list-of-countries-where-new-covid-variant-is-detected/)制造网络 (DCVMN) 方面发挥了重要作用。他在 GAVI 董事会代表 SII，并在国家和国际监管机构之间的联络中发挥了重要作用。他在获得世卫组织几种产品的资格预审方面发挥了关键作用，”
 
-编辑：胖丁
+Jadhav 博士出生于马哈拉施特拉邦东部的一个小村庄，获得那格浦尔大学药学学士学位，并于 1970 年获得 CSIR 研究奖学金，开始了他的职业生涯。
 
-PR：MQ
+在在那格浦尔大学药学系、孟买大学、SNDT[女子大学](https://insiderpaper.com/unvaccinated-students-bath-university-wear-colored-wristbands/)和哈夫金研究所的学术界工作了几年后，他于 1979 年加入 SII，并于 1992 年成为其执行董事。
 
-* * *
+根据Terrapinn 的疫苗接种统计数据库显示，Jadhav 博士在全球疫苗领域最具影响力的 50 人中排名第七，他还拥有两项专利。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord 官方群](https://discord.gg/VsNaHaMUsy)
+他在 SII 生产的各种疫苗获得 WHO 认证方面发挥了重要作用，SII 现在被列为全球疫苗供应的领导者，向 140 多个国家供应疫苗。
+
+Jadhav 的技术专长范围从质量控制技术到药物定价，他曾多次担任[世卫组织](https://insiderpaper.com/who-calls-nations-to-lift-naive-omicron-travel-ban-on-south-africa/)的专家和临时[顾问，](https://insiderpaper.com/who-calls-nations-to-lift-naive-omicron-travel-ban-on-south-africa/)负责其疫苗规划和政策、新疫苗、新疫苗测试方法、制定新参考标准以及很快。
+
+凭借其丰富的经验，他领导 DCVMN 担任总裁（2004-2008 年），并自 2000 年成立以来一直在其指导委员会任职，此外还曾在多个国际[疫苗机构](https://insiderpaper.com/judge-blocks-bidens-nationwide-vaccine-mandate-for-federal-contractors/)的董事会任职。
+
+他周游世界讲学，参加科学研讨会或会议，发表了 60 多篇科学研究论文，在多家印度和[国际政府](https://insiderpaper.com/australia-to-reopen-international-border-in-nov/)或私人学术机构、大学等机构任职，并获得了无数荣誉/奖项。
+
+编者按：
+
+愿这位履历卓越的世界知名疫苗专家逝者安息！如果医者还有仁心，相信有良知的医者都不愿意看到如今世界遭受的疫苗洗劫！无论这位逝去的所谓疫苗开发者是否知晓这一轮世界疫苗灾难对人类的伤害有多么惨痛，都希望他帮助研发的covid-19疫苗早日逝去！
+
+撰稿人/米拉娅
+
+审阅/丘杰斯
+
+上传/天赐良闻
+
+援引原文：https://insiderpaper.com/doctor-who-helped-develop-a-covid-vaccine-in-india-has-died/
 
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

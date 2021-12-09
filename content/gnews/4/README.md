@@ -2,85 +2,34 @@
 ---
 
 
-## 前白宫经济顾问彼得·纳瓦罗: 中共病毒袭击是美国第二次珍珠港事件
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1734645/)
+## 民主党立法：拜登对北京的外交联合抵制“做得还远远不够”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1734708/)
 
-前白宫经济顾问彼得·纳瓦罗: 查看川普时代[@intrumptime](https://twitter.com/InTrumpTime) 播客的第 2 集。 会发现为什么 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 袭击是美国第二次科德尔·赫尔珍珠港事件，以及为什么马克·梅多斯[@markmeadows](https://twitter.com/MarkMeadows) 是个懦夫。 另外感谢在苹果博客的政治类型中首次推出位列第15位。 请今天就订阅！ 【附《川普时代》的博客链接】
+![](https://assets.gnews.org/wp-content/uploads/2021/12/9a7eea5f7a49455199ae321c56134810-1.jpg)
+来自THE HILL的报道，明年中期选举的参议员候选人Tim Ryan说，拜登总统对北京冬奥会的外交联合抵制“还远远不够”。
 
+Ryan在周一的一份声明中说：“每个人都知道中共国的表现一直很糟糕——从持续阻挠世卫组织对新冠病毒起源的调查到实施种族灭绝和大规模侵犯人权”。 “我很高兴看到拜登政府采取行动追究中共国的责任，但仅仅外交联合抵制还远远不够。”    我很高兴看到白宫采取行动追究中共国的责任，但仅仅外交联合抵制还远远不够。中共国一次又一次地向外界展示了，他们完全没有资格举办奥运会。Ryan说，从一开始就不应该允许中共国举办奥运会。
 
+拜登政府周一早些时候宣布对2022年北京冬奥会进行外交联合抵制，声明中称美国将不会派遣任何政府官员参加为期两周的冬奥会活动，以抗议中共国对人权的侵犯。这一声明得到了美国两党立法委员的一致赞赏，他们都对这样的举动表示欢迎。8月，Ryan呼吁国际奥林匹克委员会（IOC）完全禁止中共国举办冬奥会，除非北京当局完全配合世卫组织对冠状病毒来源展开调查。
 
-> Check out Ep 2 of [@intrumptime](https://twitter.com/InTrumpTime?ref_src=twsrc%5Etfw) podcast. Find out why Communist China's virus attack was America's second Cordell Hull Pearl Harbor moment & why [@markmeadows](https://twitter.com/MarkMeadows?ref_src=twsrc%5Etfw) a coward. 
-> And thanks for debuting podcast at #15 in Politics on Apple Podcasts. Subscribe today![https://t.co/y0LQ9PrRPp](https://t.co/y0LQ9PrRPp)
-> — Peter Navarro (@RealPNavarro) [December 8, 2021](https://twitter.com/RealPNavarro/status/1468616238091878404?ref_src=twsrc%5Etfw)
+简评：中共在做死的道路上一刻不停的加速狂奔。美国官方宣布联合抵制北京冬奥会意味着民主党总统拜登在外交上对中共国的态度进一步恶化。中共国与拜登政府勾兑的希望越来越渺茫。在目前美国主导全球的态势下，其他欧亚各国的外交政策都以美国为风向标。美国公开不支持北京冬奥会的表态将促进其他更多国家在外交也开始对中国采取强硬姿态。中共也将一步一步从人人羡慕的暴发户沦为人人喊打的过街老鼠。
 
+News Link:[https://thehill.com/homenews/house/584594-democratic-lawmaker-bidens-diplomatic-boycott-of-beijing-does-not-go-far](https://thehill.com/homenews/house/584594-democratic-lawmaker-bidens-diplomatic-boycott-of-beijing-does-not-go-far)
 
+翻译/简评: kkoto(芬兰大灰狼)
 
-参议员泰德·克鲁兹： 我希望其他体育联盟也能像女子网球协会一样，勇敢地面对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)。
+PR: clau
 
+* * *
 
-
-> I wish other sports leagues would show the same kind of courage as the Women’s Tennis Association and stand up to China. [pic.twitter.com/wHGZgJ8mue](https://t.co/wHGZgJ8mue)
-> — Senator Ted Cruz (@SenTedCruz) [December 9, 2021](https://twitter.com/SenTedCruz/status/1468752233865134089?ref_src=twsrc%5Etfw)
-
-
-
-参议员瑞克·斯科特： 今天参议院民主党[@SenateDems](https://twitter.com/SenateDems)阻止了我支持中国网球选手彭帅的决议，阻止了我谴责 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的暴行。民主党人没有要求问责，而是站在 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 官员一边，让彭帅女士闭嘴。在美国参议院这是一个悲伤的日子。
-
-
-
-> Today, [@SenateDems](https://twitter.com/SenateDems?ref_src=twsrc%5Etfw) blocked my resolution in support of Chinese tennis player Peng Shuai & to condemn Communist China’s abuses. Instead of demanding accountability, Dems are standing with the Chinese Communist Party officials silencing Ms. Shuai. It's a sad day in the U.S. Senate. [pic.twitter.com/LRBBy2dTmg](https://t.co/LRBBy2dTmg)
-> — Rick Scott (@SenRickScott) [December 9, 2021](https://twitter.com/SenRickScott/status/1468748005394333706?ref_src=twsrc%5Etfw)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-参议员汤姆·科顿： 二十年前，中国加入了世界贸易组织，这是我国历史上最大的外交政策错误之一。
-
-
-
-> Twenty years ago China joined the World Trade Organization, marking one of the greatest foreign policy mistakes in our nation's history. [pic.twitter.com/s54wRjtO1S](https://t.co/s54wRjtO1S)
-> — Tom Cotton (@SenTomCotton) [December 8, 2021](https://twitter.com/SenTomCotton/status/1468666165048266752?ref_src=twsrc%5Etfw)
-
-
-
-参议员约翰·巴拉索： 我是个医生。我支持疫苗，但我反对强制令。那是因为我认为这项任务是政府的一个巨大的越权和一个巨大的错误。所以今天，我们将通过《国会审查法》来取消这一强制令。
-
-
-
-> I'm a doctor. I am pro-vaccine but I'm anti mandate. That's because I believe this mandate is a massive overreach by the government and a massive mistake. So today, we are going to pass the Congressional Review Act to get rid of this mandate. [pic.twitter.com/0qWLHiKNU1](https://t.co/0qWLHiKNU1)
-> — Sen. John Barrasso (@SenJohnBarrasso) [December 8, 2021](https://twitter.com/SenJohnBarrasso/status/1468648786524315650?ref_src=twsrc%5Etfw)
-
-
-
-众议员迈克·华尔兹： 目前，[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 垄断了我们的电子、能源和军事所依赖的关键矿物。 我们不能继续依赖我们最大的对手。我们必须通过与澳大利亚等盟友合作，将我们的供应链带回家并实现多元化。 【转华尔兹官网推文：包含华尔兹议员补充条款的2022国防开支案获通过】
-
-
-
-> Right now, the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) has a monopoly on the critical minerals we rely on for our electronics, energy & our military.
-> 
-> We can't continue to rely on our greatest adversary. We must bring home our supply chain and diversify by partnering with our allies like Australia. [https://t.co/dHjQHoVQtb](https://t.co/dHjQHoVQtb)
-> — Rep. Mike Waltz (@michaelgwaltz) [December 8, 2021](https://twitter.com/michaelgwaltz/status/1468643789753311239?ref_src=twsrc%5Etfw)
-
-
-
-众议员马克·格林： 追究中国共产党责任的胜利！ （转众议院共和党武装部队委员会推文： 2022财年NDAA 为我们的军队在与中国的冲突中取得胜利做好准备： 提供超过 70 亿美元的威慑资金 让中国退出国防部供应链 对抗中国的恶性影响 强烈支持台湾 寻求有关 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) [#COVID](https://twitter.com/hashtag/COVID?src=hashtag_click)-19 起源的答案）
-
-
-
-> A win in our efforts to hold the Chinese Communist Party accountable! [https://t.co/fC7ebTHlNE](https://t.co/fC7ebTHlNE)
-> — Rep. Mark Green (@RepMarkGreen) [December 8, 2021](https://twitter.com/RepMarkGreen/status/1468677852891598852?ref_src=twsrc%5Etfw)
-
-
-
-众议院中国问题特别工作组： 工作组组长麦考尔议员[@RepMcCaul](https://twitter.com/RepMcCaul)说：“感谢(前副国务卿)基思·克拉奇[@KeithJKrach](https://twitter.com/KeithJKrach) 今天在国会山加入中国问题特别工作组成员，一起讨论我们如何阻止资本流入 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)[#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) ，并共同努力，将中共按其真实面目做为美国的最大威胁来对待。
-
-
-
-> CHM [@RepMcCaul](https://twitter.com/RepMcCaul?ref_src=twsrc%5Etfw): "Thank you to [@KeithJKrach](https://twitter.com/KeithJKrach?ref_src=twsrc%5Etfw) for joining China Task Force members today on Capitol Hill to discuss how we can stop capital flow into the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) and work together to treat the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) as the most significant threat that it truly is to the U.S.” [pic.twitter.com/0AIgl3vJO3](https://t.co/0AIgl3vJO3)
-> — China Task Force (@China\_TaskForce) [December 8, 2021](https://twitter.com/China_TaskForce/status/1468623530644459523?ref_src=twsrc%5Etfw)
-
-
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
