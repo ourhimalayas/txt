@@ -24,68 +24,68 @@
 ### [墙内要闻汇编 12月8日（最后一期）](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本与辉瑞公司正在谈判，提前供应疫苗](/content/gnews/4/README.md)
+### [西喜时事新闻简报 — 美国时事篇](/content/gnews/4/README.md)
+ ` wenwu`
+
+### [日本与辉瑞公司正在谈判，提前供应疫苗](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [西媒头条 — 第127期](/content/gnews/5/README.md)
+### [西媒头条 — 第127期](/content/gnews/6/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [韭菜不够了，镰刀很着急](/content/gnews/6/README.md)
+### [韭菜不够了，镰刀很着急](/content/gnews/7/README.md)
  ` 首尔天池农场`
 
-### [无国界记者组织：中共国有全世界最大的记者俘虏营](/content/gnews/7/README.md)
+### [无国界记者组织：中共国有全世界最大的记者俘虏营](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [继恒大后佳兆业又爆雷，中国政府无力应对](/content/gnews/8/README.md)
+### [继恒大后佳兆业又爆雷，中国政府无力应对](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [每日快报：参议院撤销拜登对私营企业的疫苗强制令](/content/gnews/9/README.md)
+### [每日快报：参议院撤销拜登对私营企业的疫苗强制令](/content/gnews/10/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [20年前中国加入WTO的协议扼杀了美国梦](/content/gnews/10/README.md)
+### [20年前中国加入WTO的协议扼杀了美国梦](/content/gnews/11/README.md)
  ` 澳喜农场`
 
-### [七哥朋友圈](/content/gnews/11/README.md)
+### [七哥朋友圈](/content/gnews/12/README.md)
  ` 墨尔本雅典娜农场`
 
-### [自即日起不存在郭七条，一定在2025年以前消灭共产党](/content/gnews/12/README.md)
+### [自即日起不存在郭七条，一定在2025年以前消灭共产党](/content/gnews/13/README.md)
  ` NewFOC`
 
-### [纽约市议员抨击市长白思豪对私营部门的疫苗强制令](/content/gnews/13/README.md)
+### [纽约市议员抨击市长白思豪对私营部门的疫苗强制令](/content/gnews/14/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [南非总统宣布不会施行疫苗强制令](/content/gnews/14/README.md)
+### [南非总统宣布不会施行疫苗强制令](/content/gnews/15/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [纽约市拟推行全国最严格的疫苗限制令](/content/gnews/15/README.md)
+### [纽约市拟推行全国最严格的疫苗限制令](/content/gnews/16/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [乔·艾伦：可自我复制的生物体机器人已经造出来](/content/gnews/16/README.md)
+### [乔·艾伦：可自我复制的生物体机器人已经造出来](/content/gnews/17/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [前英国军情六处局长：将审查中共对科学界的恶意渗透](/content/gnews/17/README.md)
+### [前英国军情六处局长：将审查中共对科学界的恶意渗透](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
 
-### [突破：习近平向德国新当选总理舒尔茨发贺电表示共同抗疫](/content/gnews/18/README.md)
+### [突破：习近平向德国新当选总理舒尔茨发贺电表示共同抗疫](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [喜币才是你财富的避风港](/content/gnews/19/README.md)
+### [喜币才是你财富的避风港](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [东京5个主要区写字楼的租赁价格预计会持续下降](/content/gnews/20/README.md)
+### [东京5个主要区写字楼的租赁价格预计会持续下降](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [重要：郭文贵先生正式宣布“消灭中共的海外大行动”！](/content/gnews/21/README.md)
+### [重要：郭文贵先生正式宣布“消灭中共的海外大行动”！](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [封城的日子 新西兰篇](/content/gnews/22/README.md)
+### [封城的日子 新西兰篇](/content/gnews/23/README.md)
  ` 澳喜农场`
 
-### [12/8/2021 文贵直播：全球抗议中共联合大行动总动员，为了我们的尊严，必须行动、行动、行动！](/content/gnews/23/README.md)
+### [12/8/2021 文贵直播：全球抗议中共联合大行动总动员，为了我们的尊严，必须行动、行动、行动！](/content/gnews/24/README.md)
  ` 秘密翻译组-北美组`
-
-### [美参议院通过法案 拜登疫苗强制接种令该歇菜了](/content/gnews/24/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [FDA宣布花55年披露疫苗数据是对每个美国人莫大的羞辱](/content/gnews/25/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
