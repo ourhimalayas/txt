@@ -2,52 +2,38 @@
 ---
 
 
-## 印度：帮助开发 Covid疫苗的医生Suresh S. Jadhav 博士去世
-` RoseNews` [轉載自GNews](https://gnews.org/zh-hans/1734549/)
+## 苹果公司的蒂姆库克与中共国签署了价值超过 2750 亿美元的秘密协议
+` RoseNews` [轉載自GNews](https://gnews.org/zh-hans/1734657/)
 
-![苏雷什·贾达夫博士去世](https://insiderpaper.com/wp-content/uploads/2021/12/6-1-990x527.jpg)图片：视频截图
+![蒂姆库克 275 美元交易中国](https://insiderpaper.com/wp-content/uploads/2021/12/8-990x505.jpg)图片：视频截图
 
-*世卫组织首席科学家 Soumya Swaminathan 博士对 Jadhav 的逝世表示哀悼，称他为疫苗研发做出了非凡的终生贡献。*
+2021 年 12 月 8 日 ，[布伦丹·伯恩](https://insiderpaper.com/author/brendan/)发文报道：
 
-2021 年 12 月 8 日 4 小时前[布兰登·泰勒](https://insiderpaper.com/author/brendan-taylor/)通过insiderpaper发文报道：
+据*The Information*报道，苹果首席执行官蒂姆库克与中共国官员“秘密”签署了一项价值超过 2750 亿美元的协议，承诺苹果将通过投资、商业交易和工人培训，为发展[中共国经济](https://insiderpaper.com/us-to-announce-diplomatic-boycott-of-2022-beijing-winter-olympics/)和技术实力尽自己的一份力量。
 
-印度血清研究所 (SII) 的杰出科学家兼执行董事 Suresh S. Jadhav 博士在开发Covishield 疫苗方面发挥了重要作用，他在长期患病后于周二深夜在[一家私人医院](https://insiderpaper.com/north-carolina-hospital-system-fires-over-175-employees-over-vaccine-mandate/)去世。
+据报道，这份之前没有报道过的五年协议是由苹果公司首席执行官蒂姆库克伪造的。[The Information](https://www.theinformation.com/articles/facing-hostile-chinese-authorities-apple-ceo-signed-275-billion-deal-with-them)查看的[苹果内部](https://insiderpaper.com/patent-apple-working-on-drone-device/)文件显示：“在 2016 年，他首次亲自访问该国，以平息针对苹果业务的突然爆发的监管行动。”
 
-他享年72岁，遗下妻子和[两个孩子](https://insiderpaper.com/elon-musk-civilization-is-going-to-crumble-people-more-children/)。
+文件显示，“在会议之前，苹果高管们争先恐后地挽救公司[与中共国官员](https://insiderpaper.com/more-than-200-chinese-companies-may-be-kicked-off-us-exchanges/)的关系[，中共国官员](https://insiderpaper.com/more-than-200-chinese-companies-may-be-kicked-off-us-exchanges/)认为该公司对当地经济的贡献不够。在政府的镇压和随之而来的不良宣传中，iPhone 的销量直线下降，”该报告周二晚间表示。
 
-Jadhav 的去世受到 SII 首席执行官 Adar Poonawalla[和](https://insiderpaper.com/federal-court-blocks-bidens-vaccine-mandate-for-health-care-workers/)世界卫生组织（WHO）首席科学家 Soumya Swaminathan 博士等的哀悼。
+报道称，库克就针对 Apple Pay、iCloud 和 App Store 的威胁“亲自游说中共国官员”。
 
-Poonawalla 说，“随着 Suresh Jadhav 博士的去世，印度疫苗行业失去了指路明灯”。
+报道称，苹果宣布向滴滴出行[投资](https://insiderpaper.com/china-and-eu-sign-cai-agreement-for-investment-and-fair-trade/)10 亿美元，以“安抚”当局。
 
-据该报道称，“Jadhav 博士在建立发展中国家[疫苗](https://insiderpaper.com/omicron-list-of-countries-where-new-covid-variant-is-detected/)制造网络 (DCVMN) 方面发挥了重要作用。他在 GAVI 董事会代表 SII，并在国家和国际监管机构之间的联络中发挥了重要作用。他在获得世卫组织几种产品的资格预审方面发挥了关键作用，”
+据 GizmoChina 援引 The Information 报道，不久之后，库克、苹果首席运营官杰夫威廉姆斯和政府事务负责人丽莎杰克逊据称在中国共产党中央总部中南海会见了高级政府官员。
 
-Jadhav 博士出生于马哈拉施特拉邦东部的一个小村庄，获得那格浦尔大学药学学士学位，并于 1970 年获得 CSIR 研究奖学金，开始了他的职业生涯。
+据报道，作为协议的一部分，苹果同意在其设备中使用更多来自中共国供应商的组件，与中共国软件公司签署协议，与中共国大学[进行技术合作](https://insiderpaper.com/a-mysterious-signal-that-looked-like-a-sign-of-alien-technology-turned-out-to-be-radio-interference/)，并直接投资于中共国科技公司。
 
-在在那格浦尔大学药学系、孟买大学、SNDT[女子大学](https://insiderpaper.com/unvaccinated-students-bath-university-wear-colored-wristbands/)和哈夫金研究所的学术界工作了几年后，他于 1979 年加入 SII，并于 1992 年成为其执行董事。
+该[公司还](https://insiderpaper.com/israeli-nso-spyware-company-plans-to-reverse-us-ban/)承诺在中共国的投资将比目前的支出“多出数十亿美元”，包括新零售店、研发设施和可再生能源项目。
 
-根据Terrapinn 的疫苗接种统计数据库显示，Jadhav 博士在全球疫苗领域最具影响力的 50 人中排名第七，他还拥有两项专利。
 
-他在 SII 生产的各种疫苗获得 WHO 认证方面发挥了重要作用，SII 现在被列为全球疫苗供应的领导者，向 140 多个国家供应疫苗。
 
-Jadhav 的技术专长范围从质量控制技术到药物定价，他曾多次担任[世卫组织](https://insiderpaper.com/who-calls-nations-to-lift-naive-omicron-travel-ban-on-south-africa/)的专家和临时[顾问，](https://insiderpaper.com/who-calls-nations-to-lift-naive-omicron-travel-ban-on-south-africa/)负责其疫苗规划和政策、新疫苗、新疫苗测试方法、制定新参考标准以及很快。
-
-凭借其丰富的经验，他领导 DCVMN 担任总裁（2004-2008 年），并自 2000 年成立以来一直在其指导委员会任职，此外还曾在多个国际[疫苗机构](https://insiderpaper.com/judge-blocks-bidens-nationwide-vaccine-mandate-for-federal-contractors/)的董事会任职。
-
-他周游世界讲学，参加科学研讨会或会议，发表了 60 多篇科学研究论文，在多家印度和[国际政府](https://insiderpaper.com/australia-to-reopen-international-border-in-nov/)或私人学术机构、大学等机构任职，并获得了无数荣誉/奖项。
-
-编者按：
-
-愿这位履历卓越的世界知名疫苗专家逝者安息！如果医者还有仁心，相信有良知的医者都不愿意看到如今世界遭受的疫苗洗劫！无论这位逝去的所谓疫苗开发者是否知晓这一轮世界疫苗灾难对人类的伤害有多么惨痛，都希望他帮助研发的covid-19疫苗早日逝去！
-
-撰稿人/米拉娅
+编译/米拉娅
 
 审阅/丘杰斯
 
 上传/天赐良闻
 
-援引原文：https://insiderpaper.com/doctor-who-helped-develop-a-covid-vaccine-in-india-has-died/
-
-
+援引链接：https://insiderpaper.com/tim-cook-secret-signed-275-bn-deal-with-china-alleges-report/
 
  
 

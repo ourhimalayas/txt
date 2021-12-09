@@ -2,43 +2,83 @@
 ---
 
 
-## 疫苗灾难：津巴布韦禁止未接种疫苗的人使用公共交通工具
-` 玫瑰新闻` [轉載自GNews](https://gnews.org/zh-hans/1734496/)
+## 前白宫经济顾问彼得·纳瓦罗: 中共病毒袭击是美国第二次珍珠港事件
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1734645/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/3801F36B-C264-4C0A-87AC-C3A40C029B4F.png)![pastedGraphic.png](https://gnews.org/225e87ce-28a1-4521-b59a-8b4c2199fad5)
-来源：Pixabay
-
-2021 年 12 月 8 日 [布兰登·泰勒](https://insiderpaper.com/author/brendan-taylor/)在insiderpaper发文报道：
-
-津巴布韦政府对该国越来越多[的 Covid-19 病例](https://insiderpaper.com/singapore-records-715-new-covid-cases/)表示严重关切，这些[病例](https://insiderpaper.com/singapore-records-715-new-covid-cases/)是由 Omicron 变种引起的，并已宣布计划禁止未接种疫苗的人使用公共交通工具。
-
-据悉，Monica Mutsvangwa 部长在周二的内阁后媒体简报会上表示：“内阁关切地注意到，过去两周每天报告的平均新病例总数急剧增加，”因此，政府[将增加疫苗接种](https://insiderpaper.com/eu-should-discuss-mandatory-covid-vaccination-ursula-von-der-leyen/)，并声称实施加强措施以对抗病毒的传播。
-
-据报导称，上周该国中共病毒每日病例呈指数级增长，从 11 月 28 日的 40 例增加到周一的 2,555 例。
-
-穆茨万瓦表示[，政府](https://insiderpaper.com/heres-how-pfizer-exploits-secretive-vaccine-contracts-to-strong-arm-governments/)将在主要市内和城际巴士总站设立疫苗接种站，以确保未接种疫苗的人在上车前可以自愿接种疫苗。
-
-她说，那些没有有效疫苗接种卡的人最终将被拒绝乘坐公共交通工具，并补充说卫生部和教育部将继续合作为学校 16-17 岁的儿童接种疫苗。
-
-根据官方数据，截至周一，该国的中共病毒（ Covid-19 ）病例总数为 141,601，治愈 128,966 例，死亡 4,713 例。共有 3,882,255 人接受[了第一次](https://insiderpaper.com/austria-imposes-full-nationwide-lockdown-makes-covid-vaccine-jabs-mandatory/)接种，2,892,366 人接受了第二次接种。津巴布韦的目标是到年底为 60% 的人口接种疫苗。
-
-自从在该国发现 Omicron 变种以来，政府已强制要求所有返回的居民和访客，无论检测结果如何，都要自费进行 PCR 检测和[隔离](https://insiderpaper.com/saudi-arabia-removes-14-day-quarantine-rule-for-india-indonesia-pakistan/)。
-
-目前，宵禁已延长至晚上 9 点至早上 6 点。酒类商店不允许进入酒类，只有已接种疫苗的顾客才能进入夜总会和酒吧。
-
-撰稿人/米拉娅
-
-审阅/丘杰斯
-
-上传/天赐良闻
-
-[链接原文](https://insiderpaper.com/zimbabwe-to-ban-unvaccinated-from-using-public-transport/)
-
-[奥米克戎](https://insiderpaper.com/tag/omicron/) [津巴布韦](https://insiderpaper.com/tag/zimbabwe/)
+前白宫经济顾问彼得·纳瓦罗: 查看川普时代[@intrumptime](https://twitter.com/InTrumpTime) 播客的第 2 集。 会发现为什么 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 袭击是美国第二次科德尔·赫尔珍珠港事件，以及为什么马克·梅多斯[@markmeadows](https://twitter.com/MarkMeadows) 是个懦夫。 另外感谢在苹果博客的政治类型中首次推出位列第15位。 请今天就订阅！ 【附《川普时代》的博客链接】
 
 
 
-> [Zimbabwe to ban unvaccinated from using public transport](https://insiderpaper.com/zimbabwe-to-ban-unvaccinated-from-using-public-transport/)
+> Check out Ep 2 of [@intrumptime](https://twitter.com/InTrumpTime?ref_src=twsrc%5Etfw) podcast. Find out why Communist China's virus attack was America's second Cordell Hull Pearl Harbor moment & why [@markmeadows](https://twitter.com/MarkMeadows?ref_src=twsrc%5Etfw) a coward. 
+> And thanks for debuting podcast at #15 in Politics on Apple Podcasts. Subscribe today![https://t.co/y0LQ9PrRPp](https://t.co/y0LQ9PrRPp)
+> — Peter Navarro (@RealPNavarro) [December 8, 2021](https://twitter.com/RealPNavarro/status/1468616238091878404?ref_src=twsrc%5Etfw)
+
+
+
+参议员泰德·克鲁兹： 我希望其他体育联盟也能像女子网球协会一样，勇敢地面对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)。
+
+
+
+> I wish other sports leagues would show the same kind of courage as the Women’s Tennis Association and stand up to China. [pic.twitter.com/wHGZgJ8mue](https://t.co/wHGZgJ8mue)
+> — Senator Ted Cruz (@SenTedCruz) [December 9, 2021](https://twitter.com/SenTedCruz/status/1468752233865134089?ref_src=twsrc%5Etfw)
+
+
+
+参议员瑞克·斯科特： 今天参议院民主党[@SenateDems](https://twitter.com/SenateDems)阻止了我支持中国网球选手彭帅的决议，阻止了我谴责 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的暴行。民主党人没有要求问责，而是站在 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 官员一边，让彭帅女士闭嘴。在美国参议院这是一个悲伤的日子。
+
+
+
+> Today, [@SenateDems](https://twitter.com/SenateDems?ref_src=twsrc%5Etfw) blocked my resolution in support of Chinese tennis player Peng Shuai & to condemn Communist China’s abuses. Instead of demanding accountability, Dems are standing with the Chinese Communist Party officials silencing Ms. Shuai. It's a sad day in the U.S. Senate. [pic.twitter.com/LRBBy2dTmg](https://t.co/LRBBy2dTmg)
+> — Rick Scott (@SenRickScott) [December 9, 2021](https://twitter.com/SenRickScott/status/1468748005394333706?ref_src=twsrc%5Etfw)
+
+
+
+参议员汤姆·科顿： 二十年前，中国加入了世界贸易组织，这是我国历史上最大的外交政策错误之一。
+
+
+
+> Twenty years ago China joined the World Trade Organization, marking one of the greatest foreign policy mistakes in our nation's history. [pic.twitter.com/s54wRjtO1S](https://t.co/s54wRjtO1S)
+> — Tom Cotton (@SenTomCotton) [December 8, 2021](https://twitter.com/SenTomCotton/status/1468666165048266752?ref_src=twsrc%5Etfw)
+
+
+
+参议员约翰·巴拉索： 我是个医生。我支持疫苗，但我反对强制令。那是因为我认为这项任务是政府的一个巨大的越权和一个巨大的错误。所以今天，我们将通过《国会审查法》来取消这一强制令。
+
+
+
+> I'm a doctor. I am pro-vaccine but I'm anti mandate. That's because I believe this mandate is a massive overreach by the government and a massive mistake. So today, we are going to pass the Congressional Review Act to get rid of this mandate. [pic.twitter.com/0qWLHiKNU1](https://t.co/0qWLHiKNU1)
+> — Sen. John Barrasso (@SenJohnBarrasso) [December 8, 2021](https://twitter.com/SenJohnBarrasso/status/1468648786524315650?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克·华尔兹： 目前，[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 垄断了我们的电子、能源和军事所依赖的关键矿物。 我们不能继续依赖我们最大的对手。我们必须通过与澳大利亚等盟友合作，将我们的供应链带回家并实现多元化。 【转华尔兹官网推文：包含华尔兹议员补充条款的2022国防开支案获通过】
+
+
+
+> Right now, the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) has a monopoly on the critical minerals we rely on for our electronics, energy & our military.
+> 
+> We can't continue to rely on our greatest adversary. We must bring home our supply chain and diversify by partnering with our allies like Australia. [https://t.co/dHjQHoVQtb](https://t.co/dHjQHoVQtb)
+> — Rep. Mike Waltz (@michaelgwaltz) [December 8, 2021](https://twitter.com/michaelgwaltz/status/1468643789753311239?ref_src=twsrc%5Etfw)
+
+
+
+众议员马克·格林： 追究中国共产党责任的胜利！ （转众议院共和党武装部队委员会推文： 2022财年NDAA 为我们的军队在与中国的冲突中取得胜利做好准备： 提供超过 70 亿美元的威慑资金 让中国退出国防部供应链 对抗中国的恶性影响 强烈支持台湾 寻求有关 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) [#COVID](https://twitter.com/hashtag/COVID?src=hashtag_click)-19 起源的答案）
+
+
+
+> A win in our efforts to hold the Chinese Communist Party accountable! [https://t.co/fC7ebTHlNE](https://t.co/fC7ebTHlNE)
+> — Rep. Mark Green (@RepMarkGreen) [December 8, 2021](https://twitter.com/RepMarkGreen/status/1468677852891598852?ref_src=twsrc%5Etfw)
+
+
+
+众议院中国问题特别工作组： 工作组组长麦考尔议员[@RepMcCaul](https://twitter.com/RepMcCaul)说：“感谢(前副国务卿)基思·克拉奇[@KeithJKrach](https://twitter.com/KeithJKrach) 今天在国会山加入中国问题特别工作组成员，一起讨论我们如何阻止资本流入 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)[#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) ，并共同努力，将中共按其真实面目做为美国的最大威胁来对待。
+
+
+
+> CHM [@RepMcCaul](https://twitter.com/RepMcCaul?ref_src=twsrc%5Etfw): "Thank you to [@KeithJKrach](https://twitter.com/KeithJKrach?ref_src=twsrc%5Etfw) for joining China Task Force members today on Capitol Hill to discuss how we can stop capital flow into the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) and work together to treat the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) as the most significant threat that it truly is to the U.S.” [pic.twitter.com/0AIgl3vJO3](https://t.co/0AIgl3vJO3)
+> — China Task Force (@China\_TaskForce) [December 8, 2021](https://twitter.com/China_TaskForce/status/1468623530644459523?ref_src=twsrc%5Etfw)
+
+
 
 
 

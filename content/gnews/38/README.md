@@ -2,29 +2,46 @@
 ---
 
 
-## 郭文贵精品视频-盘古物业被暴力查封震惊世界
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1734083/)
+## 疫苗灾难：津巴布韦禁止未接种疫苗的人使用公共交通工具
+` 玫瑰新闻` [轉載自GNews](https://gnews.org/zh-hans/1734496/)
 
-撰稿：澳喜cindy
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3801F36B-C264-4C0A-87AC-C3A40C029B4F.png)![pastedGraphic.png](https://gnews.org/225e87ce-28a1-4521-b59a-8b4c2199fad5)
+来源：Pixabay
 
-郭先生2017年对以黑治国、以警治国、以贪反贪的中共盗国集团发起了前无古人、 后无来者、轰轰烈烈的爆料革命运动。在这次全球抵制北京2022年冬奥会的历史大事件中新中国联邦起到了关键的推动作用，2年前郭先生和班农先生就已经开始行动了！
+2021 年 12 月 8 日 [布兰登·泰勒](https://insiderpaper.com/author/brendan-taylor/)在insiderpaper发文报道：
 
-被激怒的中共利用其独裁体制赋予他们手中的权力，以莫须有的罪名掠夺郭先生的资产。非法占有盘古七星酒店并将其龙头变成了鸟头。
+津巴布韦政府对该国越来越多[的 Covid-19 病例](https://insiderpaper.com/singapore-records-715-new-covid-cases/)表示严重关切，这些[病例](https://insiderpaper.com/singapore-records-715-new-covid-cases/)是由 Omicron 变种引起的，并已宣布计划禁止未接种疫苗的人使用公共交通工具。
 
-2021年12月6日中共更是派出法警、北京高院等数百人，声称受大连法院委托对盘古所有资产进行了暴力查封。1000多位员工和客人被撵出酒店，其中包括正在宿舍换班身著睡衣的女员工，他们的手机等所有东西全部被没收，并将郭先生90多岁，中风的父亲也撵出了房子，流落在零下4度的寒冷的街头。
+据悉，Monica Mutsvangwa 部长在周二的内阁后媒体简报会上表示：“内阁关切地注意到，过去两周每天报告的平均新病例总数急剧增加，”因此，政府[将增加疫苗接种](https://insiderpaper.com/eu-should-discuss-mandatory-covid-vaccination-ursula-von-der-leyen/)，并声称实施加强措施以对抗病毒的传播。
 
-这是继大连市中级法院对郭先生莫须有的罪名罚款130亿美元和非法拍卖盘古资产后，中共再一次针对郭先生的家人和员工的灭绝人性的暴行！这一切都是完全非法的！这是中共盗国贼指挥的一场践踏法律、毫无道德底线、惨无人道的大抓捕和大抢劫！
+据报导称，上周该国中共病毒每日病例呈指数级增长，从 11 月 28 日的 40 例增加到周一的 2,555 例。
+
+穆茨万瓦表示[，政府](https://insiderpaper.com/heres-how-pfizer-exploits-secretive-vaccine-contracts-to-strong-arm-governments/)将在主要市内和城际巴士总站设立疫苗接种站，以确保未接种疫苗的人在上车前可以自愿接种疫苗。
+
+她说，那些没有有效疫苗接种卡的人最终将被拒绝乘坐公共交通工具，并补充说卫生部和教育部将继续合作为学校 16-17 岁的儿童接种疫苗。
+
+根据官方数据，截至周一，该国的中共病毒（ Covid-19 ）病例总数为 141,601，治愈 128,966 例，死亡 4,713 例。共有 3,882,255 人接受[了第一次](https://insiderpaper.com/austria-imposes-full-nationwide-lockdown-makes-covid-vaccine-jabs-mandatory/)接种，2,892,366 人接受了第二次接种。津巴布韦的目标是到年底为 60% 的人口接种疫苗。
+
+自从在该国发现 Omicron 变种以来，政府已强制要求所有返回的居民和访客，无论检测结果如何，都要自费进行 PCR 检测和[隔离](https://insiderpaper.com/saudi-arabia-removes-14-day-quarantine-rule-for-india-indonesia-pakistan/)。
+
+目前，宵禁已延长至晚上 9 点至早上 6 点。酒类商店不允许进入酒类，只有已接种疫苗的顾客才能进入夜总会和酒吧。
+
+撰稿人/米拉娅
+
+审阅/丘杰斯
+
+上传/天赐良闻
+
+[链接原文](https://insiderpaper.com/zimbabwe-to-ban-unvaccinated-from-using-public-transport/)
+
+[奥米克戎](https://insiderpaper.com/tag/omicron/) [津巴布韦](https://insiderpaper.com/tag/zimbabwe/)
 
 
 
-“1000多个同事穿着睡衣在风中颤颤发抖，他们是无辜的孩子，给你们工作、纳税，你们这帮王八蛋在家里双修，你们真下得了手”。
+> [Zimbabwe to ban unvaccinated from using public transport](https://insiderpaper.com/zimbabwe-to-ban-unvaccinated-from-using-public-transport/)
 
-“所以说兄弟姐妹们，灭共这个事业是个信仰，你必须有绝对的准备，否则你就会被他们击垮。听天命，没有真正的信仰，你在这些事面前你就会慌，你就会失去，你就会怀疑你想做的事情。只有你坚信不疑，他们的行动说明了他们的恐惧，他们的行动就是我们惩罚他们的证据，他们的行动就是我们的力量，谁也改变不了！ 稳扎稳打，继续我们的战略。在你们的安全和个人能承受的情况下，继续传播疫苗解药、病毒真相。”
 
-几年来，郭先生无数次遭中共邪恶势力的非人般的对待，不但中共体制内的党员看到了，中国老百姓更是心知肚明。所以才有今天不断壮大的新中国联邦的队伍。每一次中共恶人们的所作所为让国际文明社会的人们更加认清了，中共那道貌岸然的伪君子的真面目，更激起世界人民坚定的灭共斗志。
 
-*编辑：cindy*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,25 +2,42 @@
 ---
 
 
-## 加主媒掩盖医学专家与疫苗公司的利益关系
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1734728/)
+## 日本国内也在讨论是否对北京冬奥会进行外交抵制
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1734782/)
 
-采编：文莱    编译撰稿：文明(添草灭共)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/03-image-1.jpg)
-据加拿大自媒体【真北方】12月6日报道，卑诗省推行儿童“新冠病毒”疫苗接种的一名专家最近被发现与【辉瑞制药】等公司存在着资金利益关系。
+作者：日本方舟农场 – Andy5
+![This image has an empty alt attribute; its file name is 1-28.png](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
+在12月6日美国白宫明确表态将外交抵制北京冬奥会之后，澳大利亚、新西兰等国也纷纷跟进，表示官方不会派员出席。当前，日本也在讨论是否跟进表态。
 
-据悉，加尼医生是卑诗省儿科传染病教授、著名传染病研究专家，同时兼任该省儿童医院疫苗评估中心主任。其研究项目影响着加拿大人对疫苗的看法，包括最近针对低龄儿童疫苗接种授权的官方政策。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/9-2.png)
 
-报道称，在该医生于2016和2018年发表的科研论文及演讲资料中发现，其研究项目均得益于【辉瑞公司】资助的 “研究经费”。但包括【CBC新闻】和【环球邮报】等在内的加拿大主流媒体都对此保持一致的沉默。
+12月7日，日本前首相安倍表示他不能认同中共的人权状况，并指出国家首脑以及政府官员出席冬奥会，跟体育竞技无关，却表明了一个国家的态度。他还呼吁各国在认识到香港、维吾尔人的问题后，要认真考虑是否还能装作若无其事地跑到北京集聚。
 
-校对编辑：硫酸羟氯喹64
+在自民党内部会议中，日本现任首相岸田文雄批驳了中共试图用“中共已经全力支持东京奥运，所以日本应有基本信义”绑架日本的说辞，称中共的发言不符合事实。在是否抵制冬奥会上日本会做出最符合日本利益的选择。同时，自民党保守派议员团体已经在会议上要求首相提出外交抵制。
 
-发稿：苦尽甜来 (文來）
+有评论人士称，虽然日本一直首鼠两端，但在美国明确表态后，日本应该最终会选择跟进。
 
-[原文链接](https://tnc.news/2021/12/06/canadian-media-did-not-disclose-child-vaccination-experts-pfizer-funding/)
+参考链接：
+
+- [20211208日本FNN](https://www.gettr.com/post/pj2718bb56)
+- [岸田首相、北京五輪対応に苦慮　米外交ボイコット、「折衷案」も](https://www.jiji.com/jc/article?k=2021120701106&amp;g=pol)
+- [赵立坚：中方已全力支持日方举办东京奥运会，日方应有基本信义](http://japan.people.com.cn/n1/2021/1126/c35421-32292763.html)
+- [自民保守系議員グループ「外交ボイコット」首相に申し入れ](https://www3.nhk.or.jp/news/html/20211207/k10013378501000.html)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
 
+总编辑：飞虹
+编辑：飞虹
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

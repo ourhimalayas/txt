@@ -2,37 +2,30 @@
 ---
 
 
-## 辉瑞公司的一个董事会成员是前Facebook董事
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1734723/)
+## 柬埔寨与中共勾兑，被美国制裁
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1734778/)
 
-作者：纽约香草山健身部 – 童谣
-![This image has an empty alt attribute; its file name is 1-28.png](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
-12月6日，美国媒体揭露，2020年加入辉瑞公司的董事会成员——苏珊·德斯蒙德·赫尔曼博士——曾在社交媒体巨头Facebook担任首席独立董事。
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-394.png)[图片来源](https://www.seetao.com/details/14976.html)
+美国星期三(12月8日)对柬埔寨实施武器禁运和新的出口限制，原因是美国政府指出的中共国对柬埔寨越来越大的军事影响以及人权和腐败问题。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/7-3.png)
+美国国务院和商务部采取的这些行动反映了华盛顿抗衡中共国在东南亚日益扩大的影响力的努力。柬埔寨已经成为中共国在该地区最重要的盟友。
 
-赫尔曼于2013年到Facebook董事会任职，并在2015年至2019年10月30日期间担任首席独立董事，直到中共病毒大流行前不久辞职。离开Facebook后，赫尔曼于2020年加入了辉瑞公司的董事会。据了解，赫尔曼同时在比尔与梅琳达-盖茨基金会中担任首席执行官。
+根据提交给《联邦公报》的文件，美国国务院把柬埔寨加入禁止所有武器输出的国家的名单。这份文件说：“柬埔寨继续允许中共国扩大其军事存在并在泰国湾修建用途具有排它性的设施。”宣布武器禁运的文件也把腐败和践踏人权列为原因。
 
-在赫尔曼担任辉瑞公司董事会成员期间，Facebook发起了审查“中共病毒疫苗怀疑者”的活动，据该公司泄露的内部文件显示，其算法旨在 “大幅消除用户在评论中对疫苗犹豫不决的言论”。
+上个月，美国财政部宣布制裁被控有腐败行为的两位柬埔寨军方高级官员。他们是柬埔寨国防部物资与技术服务司司长邵彼伦(Chau Phirun)将军和皇家海军司令狄旺(Tea Vinh)将军。狄旺的哥哥是国防大臣狄班(Tea Banh)。腐败指称涉及云朗海军基地。美国官员对中共国在该基地的施工项目的不透明表示了关切。
 
-参考链接：
+就在华盛顿宣布对柬埔寨实行武器禁运之际，美国国务院宣布，国务院顾问德里克·乔莱特(Derek Chollet)星期三启程前往柬埔寨和印尼访问。柬埔寨目前是东盟的轮值主席国。
 
-- [REVEALED: New Pfizer Board Member Is Ex-Facebook Director.](https://thenationalpulse.com/exclusive/pfizer-board-member-is-former-facebook-director/)
+美国商务部也发布了新的出口限制措施，将限制柬埔寨获取军民两用设备。
 
+商务部长吉娜·雷蒙多(Gina Raimondo)在一项声明中说：“我们敦促柬埔寨政府在处理腐败和践踏人权方面取得有意义的进展，并努力减少中共国军方在柬埔寨的影响，这威胁着地区与全球安全。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
+消息来源：[美国对受中共国军事影响越来越大的柬埔寨实行武器禁运](https://www.voachinese.com/a/us-cambodia-china-arms-embargo-20211208/6344939.html)
 
-总编辑：文特
-编辑：飞虹
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

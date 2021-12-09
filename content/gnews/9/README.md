@@ -2,42 +2,26 @@
 ---
 
 
-## 奏响让习近平彭丽媛王岐山姚明珊习仲勋齐心动听的哀乐
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1734772/)
+## 【樱花深度报道】中共吹嘘其民主制度优于美国民主（上）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1734815/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/f391e4437dbc5b1b56d371ea8bc64af7.jpg)
-据[2021年12月08日 文贵大直播：拜登外交抵制冬奥会；盘古物业接管惊世界；中共高级特务单伟建；对准高层海外大行动](https://gettr.com/streaming/pj3xefa5bc)时间点1：54：54——
+编译：东京樱花团/Hopkins
 
-**郭文贵先生：**我们要做的事情，一定要把他们的丧事给它变成共产党有史以来最高级的，所有制造的棺材都是要特殊材料，花圈都是要特殊材料，甚至用碳纤维carbon fiber都行，要做得精美细化，要用的音乐、喇叭在各国大使馆响起的时候，要达到了世界专辑音乐水平，比七哥唱H-Coin to the moon还要厉害。
+编者按：在美国12 月 9 日至 10 日组织召开世界民主峰会前夕，中共官员和御用文人倾国出动，抹黑民主宪政，吹捧习近平全过程民主是“更高更切实的民主，”这些指鹿为马的蠢人让世界笑掉大牙，不过也说明他们不敢明目张胆地反对民主理念，只能利用民主反民主，这也算是一个发明。《经济学家》12月4日周刊发表了这篇文章。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-397.png)[图片来源](https://www.economist.com/china/2021/12/04/china-says-it-is-more-democratic-than-america)
+中国共产党领导人花了很长时间等待自由民主看起来像今天这样脆弱。现在，充满对功能失调的西方的蔑视，他们认为他们的时刻已经到来。具体而言，拜登总统于 12 月 9 日至 10 日将召集 100 多个国家参加虚拟民主峰会——包括中共声称为其领土的岛屿台湾——中共正在以空谈作为回应。官员们正抓住一切机会解释为什么他们总是控制欲强、有时甚至无情的政治制度不仅适合一个试图富强的大国：党的四年防线。他们越来越多地处于攻势中。他们坚持认为，中国的政治模式非常有效，非常符合人民的意愿，比美国的更民主。
 
-叫它们的家人、它们的妈听到以后都直接想进天堂，非死不可那种的。这音乐听着它非死不可，让习近平、彭丽媛，它可以听不见，只要它听见它就想死。让王岐山、姚明珊叫它听见它就想死。它有它母亲齐心，它有习仲勋。我让它母亲齐心知道你对待别人的父母的感觉是什么样的。
+用中共外交部发言人的话来说，美国民主处于“灾难性状态”，令人怀疑美国作为此类峰会东道主的合法性。在视频通话中，中共外交部长王毅向匈牙利外长表示同情，匈牙利日益独裁的政府也没有被邀请。王先生谴责美国将一些国家排除在外，并补充说，民主的衡量标准应该是政府是否“满足人民的需要，并给予他们足够的参与感、满足感和获得感”。
 
-你们一定要做到绝！要不就别做，要做就做到绝。我让所有驻海外的中国的大使馆的官员，我让他知道你们的父母一定不会老死，一定会被装在新中国联邦给准备的棺材里边去。
+自由世界——广义上的意思是，在这个社会中，政府可能会输掉选举，即使是富人和强者（有时）也被独立法官、未经审查的新闻媒体、反对派政客和民间团体追究——不应低估这个中国人挑战。
 
-（以下暂略）
+中共关于一党专政的言论在比拜登先生可能愿意承认的更多国家具有一定的吸引力。这不仅适用于那些用中共资金或外交支持来吸引当地暴君的国家。许多国家对 1945 年后由美国主导的世界秩序主导的时代没有多少怀旧之情，并渴望寻找替代品。 11 月 29 日，习近平主席在向非洲领导人发表的在线讲话中，将向非洲出口提供 Covid-19疫苗和进一步开放中国市场的承诺与提供自由、正义、民主和发展的“真正的多边主义”相结合。他还批评“干涉内政、种族歧视和单边制裁”。习近平的听众会听到一段暗语，即中共愿意阻止或削弱美国领导的在联合国等论坛上向侵犯人权者或盗贼统治者施加压力的企图。在与俄罗斯驻美国大使共同撰写的一篇抨击拜登峰会的文章中，驻华盛顿的中共外交官秦刚走得更远。两人称，任何权力以打击腐败或保护人权的名义干涉别国事务，都违反了联合国宪章。
 
-撰稿：喜马拉雅的肉夹馍；
+信息来源：[China says it is more democratic than America](https://www.economist.com/china/2021/12/04/china-says-it-is-more-democratic-than-america)
 
-审核：喜马拉雅的馍夹肉；
-
-校对：Maarago
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

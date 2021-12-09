@@ -2,31 +2,25 @@
 ---
 
 
-## 墙内3-11岁儿童半数接种新冠疫苗 “儿童白血病”搜索量激增
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1734681/)
+## 佳兆业再度宣布暂时停牌 或与到期债务无法偿付有关
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1734764/)
 
-作者：纽约香草山教育部 – Noemi
+作者：纽约香草山文艺部 – 宁文静
 ![This image has an empty alt attribute; its file name is 1-28.png](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
-12月8日，据中共政府官方数据，国内3-11岁儿童中已有8400万人接种过中共病毒疫苗，接种率达到了50%。在中共国展开儿童新冠病毒疫苗接种工作一个多月以来，疫苗的副作用已在儿童群体中逐渐凸显出来。
+12月8日，中共国大型综合性投资集团佳兆业集团发布公告，公司股票于上午9时起暂停买卖。这是该公司11月5日暂时停牌、11月25短暂复牌后，再次宣布停牌。公司并未披露具体原因，但业内人士称，可能跟12月7日到期的一笔4亿美元的票据债务有关。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/6-5.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/8-2.png)
 
-据盖特网友爆料，近期内，“儿童白血病”一词的搜索量在中共国内出现直线飙升趋势。仅在微信平台中，该词的单日最高搜索量就超过了四百万次，是日常搜索量的近十倍。
-
-另有盖特网友爆料称，儿童接种新冠病毒疫苗引发的急性白血病案例与科兴疫苗的某些特定批次紧密相关。在网友所在当地，某一批次的科兴疫苗只要一接种，接种者在短期内大概率就会患上急性白血病。
+为了缓解偿债压力，佳兆业曾于11月25日发布一则要约公告，提议投资人将这笔债券交换成2023年6月到期的新债券，以避免违约。这种要约交换至少需要获得3.8亿美元或95%债券持有人的同意才能生效。但是，12月3日，佳兆业发布公告称，该笔交换要约失败。
 
 参考链接：
 
-- [中国如何为1.6亿儿童接种新冠疫苗](https://cn.nytimes.com/china/20211206/china-covid-vaccine-children/)
-- [儿童白血病数据直线飙升](https://gettr.com/post/piqh1p24e6)
-- [https://gettr.com/post/piqh1p24e6](https://gettr.com/post/piqh1p24e6)
-- [保险公司预知白血病风潮的来临，紧急停售儿童白血病专项保险！](https://gettr.com/post/pi1krk1e1a)
+- [佳兆业宣布短暂停牌](https://finance.sina.cn/2021-12-08/detail-ikyamrmy7560891.d.html?from=wap)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
 
 总编辑：童谣
-编辑：飞虹
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
