@@ -2,18 +2,13 @@
 ---
 
 
-## 【文贵先生大直播PPT】单伟建和PAG到底是啥玩意儿
-` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1733515/)
+## 澳英加苏紧跟美国相继宣布外交抵制北京冬奥会
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1734567/)
 
-撰稿：顽童2017，Sima（正道主义）
-美工：Sotres，青山
-
-【2021年12月8日文贵先生大直播PPT：单伟建和PAG到底是啥玩意儿】
-![](https://assets.gnews.org/wp-content/uploads/2021/12/41-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/43-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/44-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/45-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/46-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/47-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/48-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/49-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/111-2-2.jpg)
-* * *
-
-发稿：云起时
-
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1209-1-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

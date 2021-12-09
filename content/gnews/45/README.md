@@ -2,40 +2,31 @@
 ---
 
 
-## 五年前秘密协议首曝光，苹果2750亿美元买通中共
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1734884/)
+## 美众议院一天内近全票通过三项有关中共人权问题法案
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1735265/)
 
-撰稿：纽约香草山农场-007
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-4.png)
-12月7日，美国媒体The Information首次曝光了苹果五年前的内部文件。文件显示，苹果首席执行官库克，为讨好中共，于2016年数次到访中共国，并签署了一份2750亿美元、为期五年的秘密投资协议。也因此，中共国现在已成为iPhone的第二大市场。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-400.png)
-当年，在中共的突然打压和负面宣传中，iPhone 销量直线下降，库克因此亲自向中共游说。秘密协议内容至少包括，向初创公司滴滴投资10亿美元，承诺在其设备中使用更多来自中共国的组件，与中共国软件公司签署协议，与中共国大学进行技术合作，并直接投资中共国科技公司。
+**作者:****  **青衣
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-39.png)
+新疆一个棉花制品厂内的情景（图片来自网络）
 
-另外，苹果不仅按中共要求，严格审查上线苹果商店的应用，还在中共国建立数据中心，把全部用户信息出卖给中共。今年10 月下旬，苹果还表示将遵守中共的数据安全法，而领英和雅虎，则在法律生效前后停止了在中共国的业务。
+据《美国之音》12月9日报道，美国国会众议院星期三（12月8日）几乎以全票通过了三项有关中共人权问题的议案。
 
-苹果在中共国的一系列举措，遭到了社会的广泛批评。批评者认为，苹果的妥协，起于中共的要挟和流氓行径，但也反映出苹果为了商业利益，抛弃了普世价值观，屈服甚至勾结于独裁者。其在中共国的成功，是建立在牺牲所有用户利益的基础之上的。
+众议院院会以428票对1票通过了《防止强迫维吾尔人劳动法》 （The Uyghur Forced Labor Prevention Act）。这一法案旨在确保中共国新疆强迫劳动制造的商品不得进入美国市场。
 
-新闻链接：
+该法案将设立一个“可反驳的推定”（rebuttable presumption）制度。该制度规定：除非得到美国当局的无强迫劳动认证，否则会推定凡在新疆制造的产品均使用了强迫劳动，并因此会按照《1930年关税法》（1930 Tariff Act）禁止进口这些产品。
 
-[Inside Tim Cook’s Secret $275 Billion Deal with Chinese Authorities](https://www.theinformation.com/articles/facing-hostile-chinese-authorities-apple-ceo-signed-275-billion-deal-with-them)
+这一法案的参议院版本已于今年7月获得两党议员无异议的一致通过。预计两院的协调版本会轻松获得通过，并由总统签字成为法律。
 
-[苹果与中共千亿秘密协议曝光，舆论哗然](https://www.voachinese.com/a/apple-secret-deal-with-china-2nd/6343811.html)
+此外，众议院星期三还以427票对1票通过了一项决议案，谴责中共继续针对维吾尔人及其他宗教和少数民族实施的种族灭绝和犯罪行为，并敦促美国采取行动。
 
+同样在星期三，众议院还以428票对0票通过了一项决议案，认定国际奥林匹克运动会未能遵守自身对人权的承诺。
 
+众议院议长佩洛西星期二在宣布安排三项议案的投票时表示，“通过这三项法案，众议院发出一个清晰且直接的信息：中华人民共和国针对维吾尔人的犯罪行为构成种族灭绝罪，必须立即停止。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-3.png)
+美国国会此前已通过了《2020年维吾尔人权政策法》、《支持西藏人政策法》和《2019年香港人权与民主法》。佩洛西表示，将这些法案加在一起，众议院会继续要求北京（中共）对其践踏和压制人权的行为负责。
 
-总编：飞虹
+新闻链接：[https://twitter.com/VOAChinese/status/1468785751236116483](https://twitter.com/VOAChinese/status/1468785751236116483)
 
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-4.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

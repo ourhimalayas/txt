@@ -2,36 +2,33 @@
 ---
 
 
-## 美国安顾问：美国将采取行动 确保中共不会犯台
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1734893/)
+## 欧盟提案“反胁迫”贸易制裁 谴责中共力挺立陶宛
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1735278/)
 
-作者：纽约香草山医疗部-云豹
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-3.png)
-12月7日，在关于拜登与普京视频会议的白宫新闻简报会上，有记者向美国安顾问苏利文提问，如果俄罗斯侵略乌克兰，同时中共以武力侵犯台湾，美国是否做好了应对准备？苏利文回答，美国将从威慑和外交方面采取一切可以采取的行动，以确保中共犯台的局面不会发生。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-401.png)
-苏利文同时表示，上述表态既是美国目前的政策目标，也是美国正在采取的应对步骤。在过去的8个月中，美国在印太地区所做的全部努力，也是为了避免中共作出任何不适当的选择。
+**作者:****  **青衣
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-40.png)
+（图片来自网络）
 
-[新闻连接]：
+欧盟周三（12月8日）针对中共对立陶宛进行经济迫害的行为发表声明予以谴责，并出台了一个反制中共的“反胁迫”贸易制裁提案。
 
-[https://www.cna.com.tw/news/firstnews/202112080008.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/firstnews/202112080008.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+据《大纪元》12月9日报道，欧盟指责中共对立陶宛进行经济迫害，同时出台了一个“反胁迫”贸易制裁提案。该提案要求，当第三国向欧盟成员国施加经济压力、干预成员国合法主权政策时，欧盟要向第三国进行经济报复。欧盟强调，这个方案的主要目的是“威慑”对方。
 
-[https://www.whitehouse.gov/briefing-room/press-briefings/2021/12/07/press-briefing-by-press-secretary-jen-psaki-and-national-security-advisor-jake-sullivan-december-7-2021/](https://www.whitehouse.gov/briefing-room/press-briefings/2021/12/07/press-briefing-by-press-secretary-jen-psaki-and-national-security-advisor-jake-sullivan-december-7-2021/)
+根据这项“反胁迫”草案，当任何人、公司或国家试图胁迫欧盟成员国时，欧盟委员会不需要27个国家的一致同意就可立即做出相应制裁。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-3.png)
+如果欧盟按照以前的外交施压方式，每一项制裁都需要27个成员国的一致同意，不仅在程序上会慢得多，并且常常还会受到个别成员国的掣肘。
 
-总编：AN
+欧盟执行副总裁瓦尔迪斯‧东布罗夫斯基斯（Valdis Dombrovskis）在声明中表示：“在地缘政治紧张局势加剧之际，贸易日益被武器化，欧盟及其成员国成为经济恐吓的目标，我们要对此进行适当回应”。“通过这项提议，我们发出了一个明确的信息，即欧盟将坚定捍卫其成员国利益”。
 
-编辑：飞虹
+上述“反胁迫”草案所列明的制裁措施包括：加收商品和服务关税；使用配额或交易许可证以暂停市场准入；限制公共采购项目；限制投资市场准入等。同时，参与胁迫的企业可能会被禁止采购受欧盟出口管控的商品，并被排除在“欧盟庞大的金融服务等行业之外”。此外，在开发欧盟食品市场时，同样也会面临卫生或植物检疫方面的障碍。
 
-校正/发稿：浪迹天涯
+今年11月，在立陶宛允许台湾设立“驻立陶宛台湾代表处”后，中共降低了与立陶宛的外交关系，并对该国的出口货物进行封杀，同时还施压第三国公司不要与立陶宛做生意。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-4.png)
+立陶宛称，这是“未经宣布的制裁”，“一个欧盟成员国受到单向制裁是前所未有的”。立陶宛因此于6日致函欧盟，要求欧盟做出“强力回应”。
+
+针对中共对立陶宛的经济压迫，欧盟在声明中警告中共称，胁迫立陶宛“会影响整个欧中关系”。除此之外，欧盟还表示，将评估中共的行动是否违反了世界贸易组织的相关规定。
+
+新闻链接：[https://www.epochtimes.com/gb/21/12/8/n13424824.htm](https://www.epochtimes.com/gb/21/12/8/n13424824.htm)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

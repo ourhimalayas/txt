@@ -2,13 +2,17 @@
 ---
 
 
-## 南非总统宣布不会施行疫苗强制令
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1735513/)
+## 西媒头条 — 第127期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1735615/)
 
-12/06/2021 南非总统宣布不会施行疫苗强制令。
+制作: 蚂蚁兄弟
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/xm1209.001.jpeg)
+
+*发稿: Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH..jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
