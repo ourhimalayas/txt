@@ -2,55 +2,33 @@
 ---
 
 
-## 因为共同的使命我们一起战斗,若有任何犹豫,请一定要退出
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1736645/)
+## 台湾首位千万订阅YouTuber诞生 曾遭中共国封杀
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1736742/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/202eb3965447369cfc8254a514e3cd4f.jpg)
-据[2021年12月08日 文贵大直播：拜登外交抵制冬奥会；盘古物业接管惊世界；中共高级特务单伟建；对准高层海外大行动](https://gtv.org/video/id=61b0b18fbbd75f62e532ced8)时间点3：21：36——
+台湾宝岛农场 斗阵来拼
 
-**郭文贵先生：**如果中国人不能把中南坑这帮老杂毛给活吃了活剥了，中国人就不配活在地球上，走着看，它让我老爹这一次流落街头，对1000多个员工零下四度给扔在马路上，如果有手机、电、水停这种抢劫方式，和对我们新中国联邦所有人都要这么干，这次我们跟它之间一定是一场决战，我们一定赢，不是该我们赢了，是我们必须赢！一定会赢！
+住台湾的27岁义大利籍YouTuber Davie504，本月6日他的YouTube频道成为全台“千万订阅”第一人；值得一提的是，他也是曾因发布的影片标注台湾为国家，而遭中共国封杀。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-442.png)图片来源: 翻摄Davie504 YouTube频道
+Davie504于2011年在YouTube创设频道，最初仅单纯弹奏贝斯，后来主题逐渐转型成贝斯弹奏实验，运用各种非常规且有趣的弹奏方式，并接受观众无厘头挑战，将影片分享到平台，因而打响知名度。
 
-否则我们人类就没有主人，我们不是猴子变的，那我们就整个就是魔鬼变的，没有阳光、没有太阳、没有水、没有空气的存在。世界在万变之中，它有一些东西是不变的，阳光和太阳从来没变过，水从来没变过，我不相信阳光下和干净的天空和水，我们人类赖以生存的水资源当中能容纳下共产党。
+Davie504后来透过网路结识了现任台湾女友，飞来台湾见女友，极富创意与喜欢挑战的他，曾为了弹奏《Around the World》，把他走访世界各地弹奏Bass的画面编辑成一部影片分享，其中在台北101前弹奏的画面，因为标注台湾是国家，随即遭受中共国影音平台封杀，但Davie504不理睬中共国网友抗议，还在影片下留言Taiwan is a country (台湾是个国家)。
 
-新中国联邦人做好一切准备，最痛苦、最艰难、最考验人的时刻到来了，从今天开始起，然后我们将彻底改变人类，改变全人类，改变全地球。我们会完成上天给我们的使命——消灭这个邪恶的共产党，信不信由你，都不干就剩我一个人我也会干，有你们很好，没你们七哥也得干，这是我必须要做到的。
+参考资料:
 
-七哥今天直播中做到这个还有退路吗？还有回路吗？是吧，我们接下来就让习近平的父亲、习近平的母亲齐心、彭丽媛、李克强的父亲、李克强的母亲、王岐山的父亲、母亲和他老婆姚明姗、北京高院的法官和中国高院的法官和大连高院的法官、所有它的家人，还有在海外盗国贼的家人还有它的父母的所有东西，开始从棺材走向它的灭亡。
+- [https://www.cna.com.tw/news/amov/202112070425.aspx](https://www.cna.com.tw/news/amov/202112070425.aspx)
+- [https://www.youtube.com/watch?v=EZrvUQQ63PY](https://www.youtube.com/watch?v=EZrvUQQ63PY)
+- [https://www.youtube.com/watch?v=6lsJdGKfgu0](https://www.youtube.com/watch?v=6lsJdGKfgu0)
 
-我不想对任何人说感激，如果你认为这是共同的使命，咱们就一起战斗，如果你觉得有任何的犹豫，你一定要退出。在这场战争当中、决战之中，谁也不欠谁的，永远不要说谁欠谁的。我特别讨厌说你们欠七哥的、感谢七哥，你就不要感谢我，我不是为了报仇、保财、保命，我不会走到今天的。
 
-它不杀害我的弟弟、不虐待我的父母，不是把我抓到20几个月在监狱里，不是谋我的财、谋我的命，我不会干掉共产党的，这是个基本的前提。
+* * *
 
-只要我有这个心，没有人可以跟我交易，没有人跟我交换得了。习近平能帮我报仇吗？它能把我的钱全还给我们吗？它能保住我的命吗？它怎么保住我的命？它说我能信吗？
+***更多资讯***
+[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
 
-所以任何说郭文贵是共产党的间谍的这帮王八蛋，它不仅是共产党，它比共产党还坏，我的家人三抓两判，我的同事三抓两判，几次流落街头，被罚款130亿美元、800多亿人民币，被整个查封将近上千亿美元的资产。我们就这种情况下六年内还给他们赚钱纳税几个亿、十几亿，他们竟然把我92岁的一个中风半瘫的老爹扔到了马路上，寸草不生，连个小狗都不放过。
 
-如果你们觉得这是我一个人的战争，你们就不要参与。如果你觉得是感恩七哥，那你绝对错，你不用感恩七哥，我没有选择，这就是今天发自内心的跟战友说的心里话，你要有放弃的机会，你一定放弃，绝不埋怨！
-
-这不是说你不跟着七哥干你就是敌人，不是的，完全尊重，你不砸爆料革命，你不和共产党作恶，你该是战友还是战友，不会恨你的，剩下的就是联盟委员会，大家我们做好三年的全面准备，更猛的行动一定在你们吹响开战的角斗号之后，你看着七哥会有一系列的从国防、情报、军事、爆料、媒体和把它踢出国际组织，以及全世界对共产党的高干子女以及海外学生，他们所有的带有这种高干背景的所有的查处——全球性的，咱们走着看。
-
-（以下暂略）
-
-撰稿：喜马拉雅的肉夹馍；
-
-审核：喜马拉雅的馍夹肉；
-
-校对：Maarago
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
