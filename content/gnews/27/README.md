@@ -2,41 +2,36 @@
 ---
 
 
-## 在大年三十和初一北京放烟花的时候给共产党全球送棺材
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1735189/)
+## 避免战略利益受中共影响，澳洲加快推进制造业基金
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1735233/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/index1_副本.jpg)
-据[2021年12月08日 文贵大直播：拜登外交抵制冬奥会；盘古物业接管惊世界；中共高级特务单伟建；对准高层海外大行动](https://gettr.com/streaming/pj3xefa5bc)时间点2：01：25在——
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-**郭文贵先生：**当我们去抗议的时候，给它送葬的时候，今年大年三十、初一一定按照他们的时间，在他们北京放烟花的时候、过年的时候，全球都是棺材。如果在晚上的时间赶上了一定要有巨大的灯光，一定要直播，一定把这个给它记载下来。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/OIP-1.jpg)
 
-记住你祈祷对你平安、有病管用，你给对方送葬，你记住，对方绝对有感觉，百分之百有感觉，我知道共产党怕什么，别忘了江泽民要带上，江泽民和他儿子咱也得给它送了，江泽民、江绵恒、江志成也得给它送了这回，咱都给它送上。
 
-非常简单，当地语言、高级质量、艺术化的制作，有程序化的整个的所有的操作，干它三年基本上共产党绝对没了。我们剩下就这东西都成古董了，这车、这些工具都留着，都是送在北京，我们再要建一个地方——共产党的墓地，把这都留做古董了。
+#### 整理报道 ：小红帽
 
-（以下暂略）
+为了应对新冠病毒（Covid-19）造成的破坏、中国在印太地区的侵略性以及在供应链的威胁中保护澳大利亚的战略利益，总理斯科特·莫里森（Scott Morriso）加快了政府投资13亿的制造业计划，并提前为项目和产品提供资金。
 
-撰稿：喜马拉雅的肉夹馍；
+在莫里森总理推动帮助企业加工关键矿物及开发新的国防、医疗、食品和饮料、清洁能源和太空产品之际，反对党领袖安东尼·艾博年（Anthony Albanese）将制造业置于其选举议程的核心。
 
-审核：喜马拉雅的馍夹肉；
+澳洲制造业投资战略的核心是扩大澳大利亚的战略供应链足迹，解决制造业的弱点，包括**过度依赖中国的关键矿物加工和技术部件及电池生产。**虽然澳大利亚拥有一些推动现代全球经济发展的关键矿物和金属的最大储量，**但中国目前主导着全球关键矿物生产的约****70%****至****80%****，并保持着对供应链的控制。**
 
-校对：Maarago
+**澳洲与美国、日本、印度、韩国和其他国家一起，帮助供应链远离中国，实现多样化。**这项制造业基金已经在支持企业提炼用于智能手机、电脑、充电电池和电动汽车的稀土矿，建立 “完全独立的国防制造能力”，并生产以电池为动力的地下采矿车辆。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+该基金还支持在达尔文港生产电池级氢氧化锂的加工设施、生产世界领先的皮肤贴片疫苗装置、脱脂坚果粉生产、环保包装、绿色钛太空车和卫星部件、先进的国防车辆悬吊系统以及每天可快速测试9万多人的新冠病毒筛查系统。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+新闻来源：[Morrison加快推进制造业基金 保护战略利益免受中国及COVID影响 – 澳大利亚人报中文网 | 国内外时事新闻 | 金融财经 | 教育 | 房产投资 (theaustralian.com.au)](https://cn.theaustralian.com.au/2021/12/09/61733/)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+***发布：小红帽***
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
