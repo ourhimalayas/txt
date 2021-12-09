@@ -2,40 +2,45 @@
 ---
 
 
-## 无声的镇压 人权团体指控中共系统性剥夺被告法律权益
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1734471/)
+## 疫苗灾难：津巴布韦禁止未接种疫苗的人使用公共交通工具
+` 玫瑰新闻` [轉載自GNews](https://gnews.org/zh-hans/1734496/)
 
-![资料照：香港民众手举当时被中国政府监禁的维权律师的画像表达对中国人权律师的支持。（2017年7月9日）](https://gdb.voanews.com/9E1455F2-9130-497C-B8BE-EC314413ACDC_cx0_cy1_cw0_w1023_r1_s.jpg)*资料照：香港民众手举当时被中国政府监禁的维权律师的画像表达对中国人权律师的支持。（2017年7月9日）*
-据美国之音12月8日报道，人权团体“保护卫士”7日公布人权报告，指控缺乏正义的中共国司法机关迫害律师等异议人士日益极端。“保护卫士”表示，中共近年来以威胁、恐吓等方式，阻止刑事被告会见自己聘请的律师，或强迫他们接受官派律师。报告追踪多位受访者，包括被监禁的中共国维权律师和社运人士及其家属，了解他们的亲身经历。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3801F36B-C264-4C0A-87AC-C3A40C029B4F.png)![pastedGraphic.png](https://gnews.org/225e87ce-28a1-4521-b59a-8b4c2199fad5)
+来源：Pixabay
 
-依据中共国《刑事诉讼法》第39条之规定，被拘留的嫌疑人有权在提出请求后的48小时内，会见其选择或通过家庭成员委托聘任的辩护人，也就是自己的律师。然而，“保护卫士”针对数10名在2015年“709大抓捕”后被长期囚禁的中共国维权律师所做的调查显示，法条里载明的被告人权利在现实中并不存在。“保护卫士”最新公布的第三册报告《法律途径剥夺》指出近6年来，至少有82起遭刑事起诉的被告人被迫解雇自己的律师，接受官派律师。
+2021 年 12 月 8 日 [布兰登·泰勒](https://insiderpaper.com/author/brendan-taylor/)在insiderpaper发文报道：
 
-一旦被控以“国安罪名”，中共警方就有权在长达8到13个月的“侦查阶段”，拒绝被告会见律师。在“保护卫士”2013年到2021年7月间所追踪的173名被告中，有82人被控国家安全罪，有44人未曾获准与律师见过面。警方也会强迫被拘留者放弃聘请律师的权利。前香港铜锣湾书店创办人林荣基在半年的囚禁期间就曾亲身经历过这样的压迫。
+津巴布韦政府对该国越来越多[的 Covid-19 病例](https://insiderpaper.com/singapore-records-715-new-covid-cases/)表示严重关切，这些[病例](https://insiderpaper.com/singapore-records-715-new-covid-cases/)是由 Omicron 变种引起的，并已宣布计划禁止未接种疫苗的人使用公共交通工具。
 
-尽管中共国刑事案件定罪率高达99.9%，但一名好的辩护律师仍有机会协助被告获得减刑。但官派律师多半与警方、检察院与法院站在同一阵线。多年来不少人权律师和维权人士预录声明影片来表明自己拒绝接受官派律师。曾因声援香港反送中运动于2020年4月被捕的湖南维权人士谢文飞就是其中一人。
+据悉，Monica Mutsvangwa 部长在周二的内阁后媒体简报会上表示：“内阁关切地注意到，过去两周每天报告的平均新病例总数急剧增加，”因此，政府[将增加疫苗接种](https://insiderpaper.com/eu-should-discuss-mandatory-covid-vaccination-ursula-von-der-leyen/)，并声称实施加强措施以对抗病毒的传播。
 
-中共当局还可以拒绝核发正式的拘留通知书，或是在看守所使用假名登记等方式藏匿被拘留者，让家属无处寻人。家属就算找到狱中亲人，警方可能故意将被拘留者转移。而对于为被告发声的律师，中共当局会暂时或永久吊销律师证。2016年以来至少有35名维权律师的执业权遭到剥夺，2020年湖南省清除了1200多名律师。
+据报导称，上周该国中共病毒每日病例呈指数级增长，从 11 月 28 日的 40 例增加到周一的 2,555 例。
 
-由于中共国历次对维权人士的“大抓捕”都会引发国际谴责和反对。因此，北京采取“无声镇压”的方式摧毁维权行动。瑞典籍的“保护卫士”创办人彼得·达林就曾经历过在关押期间无法会见律师、不能关闭日光灯、甚至连每天服用的药物也被没收。
+穆茨万瓦表示[，政府](https://insiderpaper.com/heres-how-pfizer-exploits-secretive-vaccine-contracts-to-strong-arm-governments/)将在主要市内和城际巴士总站设立疫苗接种站，以确保未接种疫苗的人在上车前可以自愿接种疫苗。
 
-中共国的人权问题持续引发世界关注，但中共依然我行我素，只是采取了隐晦的方式。人人生而平等，中共没有权利剥夺他人应得的权利甚至生命，国际社会不应该仅仅谴责或者声援，需要采取行动阻止中共的行为。
+她说，那些没有有效疫苗接种卡的人最终将被拒绝乘坐公共交通工具，并补充说卫生部和教育部将继续合作为学校 16-17 岁的儿童接种疫苗。
 
-新闻参考链接：[https://www.voachinese.com/a/Safeguard-Defenders-accuses-CCP-of-depriving-detainees-of-legal-rights-in-what-it-calls-silent-crackdown-20211208/6343035.html](https://www.voachinese.com/a/Safeguard-Defenders-accuses-CCP-of-depriving-detainees-of-legal-rights-in-what-it-calls-silent-crackdown-20211208/6343035.html)
+根据官方数据，截至周一，该国的中共病毒（ Covid-19 ）病例总数为 141,601，治愈 128,966 例，死亡 4,713 例。共有 3,882,255 人接受[了第一次](https://insiderpaper.com/austria-imposes-full-nationwide-lockdown-makes-covid-vaccine-jabs-mandatory/)接种，2,892,366 人接受了第二次接种。津巴布韦的目标是到年底为 60% 的人口接种疫苗。
 
-编辑：胖丁
+自从在该国发现 Omicron 变种以来，政府已强制要求所有返回的居民和访客，无论检测结果如何，都要自费进行 PCR 检测和[隔离](https://insiderpaper.com/saudi-arabia-removes-14-day-quarantine-rule-for-india-indonesia-pakistan/)。
 
-PR：MQ
+目前，宵禁已延长至晚上 9 点至早上 6 点。酒类商店不允许进入酒类，只有已接种疫苗的顾客才能进入夜总会和酒吧。
 
-* * *
+撰稿人/米拉娅
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord 官方群](https://discord.gg/VsNaHaMUsy)
+审阅/丘杰斯
+
+上传/天赐良闻
+
+[链接原文](https://insiderpaper.com/zimbabwe-to-ban-unvaccinated-from-using-public-transport/)
+
+[奥米克戎](https://insiderpaper.com/tag/omicron/) [津巴布韦](https://insiderpaper.com/tag/zimbabwe/)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+> [Zimbabwe to ban unvaccinated from using public transport](https://insiderpaper.com/zimbabwe-to-ban-unvaccinated-from-using-public-transport/)
+
+
 
  
 
