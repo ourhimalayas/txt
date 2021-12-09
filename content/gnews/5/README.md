@@ -2,82 +2,64 @@
 ---
 
 
-## 主导信念决定你如何应对现实以及命运的方向（1/2）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1737211/)
+## Hcoin To the Moon 登上Billboard全球数字歌曲销量榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1737217/)
 
-编译：Jenny Ball
+12/09/2021 郭文贵先生的歌曲Hcoin To the Moon上线第7天登上Billboard全球数字歌曲销量榜榜首，且位列9国iTunes摇滚音乐榜首。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/HRR-2021-12-08-Situation-Update.jpg)图片来源：naturalnews.com（作者：Mike Adams）
-
-自然新闻([Natural News](https://www.naturalnews.com/))今天的播客深入探讨了塑造我们周围的人和世界的错觉。前提是，即大多数人都生活在支配着他们意识的深刻而复杂的妄想中。这种集体妄想的例子——通常类似于邪教——是以错误宗教为焦点的腐败大型教会的成员。
-
-• 乞求被告知要接种更多疫苗、戴更多层口罩，并服从像福奇这样虚假的权威人物的 Covid 邪教徒。
-
-• 对海平面上升和二氧化碳的存在恐慌的气候变化崇拜者。
-
-• 加密货币崇拜者，他们的整个存在都投资于荒谬的加密货币炒作。
-
-• 相信男性可以怀孕，而女性有阴茎的跨性别邪教徒。
-
-• 左翼虚假信息“泡沫”团体，他们认为 J6 是一场“叛乱”，认为白人至上主义在美国盛行。
-
-我们都被妄想的人包围着，生活中的关键挑战之一，是通过挑战我们的思维和重新连接我们自己的神经系统，来消除我们自己的妄想，以消除错误的信念、想法和偏见。
-
-这个过程很少实现。 大多数人一生都活在妄想、虚假的现实中。**新冠病毒崇拜者就是一个完美的例子，他们崇拜福奇，迫不及待地被命令戴上另一层口罩，并再次加强注射。**
-
-**当人们陷入妄想中时，他们开始热心捍卫它**
-
-人类神经病学的工作原理是这样的：**一旦人们陷入妄想，他们就会成为捍卫它的狂热分子。**例如，一个对比特币进行大量投资的人，往往完全听不到任何批评加密货币的信息。这与接种新冠病毒疫苗的人无法再容忍任何信息显示这些疫苗是危险（甚至是致命的）的方式完全相同。
-
-一旦一个人完全沉浸在妄想中，以至于他们将自己的意识与周围的现实世界切断了联系，他们就会成为淹没在自己教条中的“邪教徒”。在某个时候，“清算的一天”会打破他们的妄想，导致创伤性心理崩溃，他们通常用诸如：“我的整个世界刚刚被粉碎”之类的话语来描述。
-
-**提示：你对世界的认知地图越接近现实，你在面对清算的那一天时所经历的创伤就越小。**那些遭受最严重创伤的，**是那些精神扭曲，表现出与现实最极端背离的人**。（如果你一直生活在童话般的世界里，那么修正路线可能会很残酷。这正是股票市场科技股追逐者、加密货币泡沫投资者和疫苗崇拜者，在某个时刻即将面对的事情。）
-
-**将妄想投射到**** 3D ****世界**
-
-当妄想在一个人的心理中根深蒂固时，他们就会开始将自己的内在妄想投射到周围的 3D 世界上。这在下面的视频中得到了完美的描述，该视频显示了加拿大卡尔加里的一家酒店，被改造成一个 Covid“隔离”中心，用塑料布装饰，地板上有蓝色的“隔离”胶带，许多戴口罩的工作人员在走廊检查。这是妄想性 Covid 偏执狂的最终表现，这是一种真正的大众精神疾病，在人群中普遍存在。
-
-你在视频中看到的是加拿大官僚的极端精神疾病，他们将内心的疯狂，投射到周围的世界里。这是一种心理上的“装饰”世界，试图让外界与内心的妄想相匹配。
-
-妄想变得越疯狂和强大，分享这种妄想的人就越拼命地试图改变他们周围的 3D 世界，以在可观察的物理世界中，重建他们内在的疯狂。
-
-**坚信某事不会让你产生妄想****……****如果你的信念植根于因果关系**
-
-**不要将妄想思维与强烈信念混为一谈。**例如，一个人可能对食品清洁过度，以至于其他人认为他们疯了。但是，鉴于食品污染物、杀虫剂和毒素对人类健康具有非常真实且非常有害的影响，因此，清洁食品是有物理基础的。因此，仅仅对某事有强烈兴趣或热情的人，并不一定是妄想。**使事物产生妄想的，是他们脱离了真实的因果世界，或者是，他们在追求更进一步的妄想中，故意悬置无视逻辑和理性**。
-
-同样，考虑到供应链故障、自然灾害、价格上涨、抢劫、电网故障和战争的历史，而做准备工作也不是妄想。虽然未做好准备的人，可能会看着做好准备的人，并认为他们疯了，但这些未做好准备的人仍然会系好安全带，并在自己的家中购买保险以防发生火灾。所以，他们实际上确实相信要为灾难做准备……他们只是不把它带到每周都在恶化的食品、枪支、医药、通讯等领域。）
-
-在Covid领域，很容易看到妄想的想法。例如，在新冠疫苗发布初期，接种的人经常说：“**我相信科学**。”在最初的几个月里，没有太多的科学可以证明疫苗实验的危险性，所以这种“我相信科学”的立场可能会被那些援引它的人所坚持。
-
-但是，在疫苗强制后的一年里——是的，已经一年了——大量的科学信息已经发布，表明疫苗是危险和致命的。**这包括在同行评审期刊（例如**** AHA ****的**** Circulation****）上发表的基于科学的研究和文章、****VAERS ****数据库的原始数据、接种疫苗者的全因死亡率飙升趋势**、**完全接种疫苗的专业人士的高度可疑现象，体育人物心脏病发作等问题**。
-
-现在，科学清楚地表明，新冠病毒疫苗：
-
-1) 不能阻止感染，
-
-2) 即使有效也不能长期有效，
-
-3) 导致住院和死亡风险增加，
-
-4) 抑制免疫功能，使人们更容易受到其他感染。
-
-那么，既然“科学”表明这些疫苗具有难以置信的风险，那么，接种疫苗的人是否仍然遵循“科学”，是否要重新评估他们的立场？
-
-在文章的后半部分，让我们看看聪明人是怎么做的。
-
-评论：“**不要将妄想思维与强烈信念混为一谈。”爆料革命战友就是一群有强烈信念的人们：他们只有一个目标——消灭人类最邪恶的邪灵恶党中国共产党！所以才能在全球强制疫苗的恶势力推动中，用正常逻辑和常识思维，成为“无苗一族”！**
-
-请阅读下一篇：主导信念决定你如何应对现实以及命运的方向（2/2）
-
-**参考资料：**[naturalnews][Your dominant DELUSION determines how you experience “reality” and how it all ends for you](https://www.naturalnews.com/2021-12-08-your-dominant-delusion-determines-how-you-experience-reality.html)
+[https://www.billboard.com/charts/world-digital-song-sales/2021-12-11/](https://www.billboard.com/charts/world-digital-song-sales/2021-12-11/)
 
 * * *
 
-*审核：文乐
-校对：信心满满
-发布：信心的选择*
+[【PDF Download】Thursday-9-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record.pdf)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH..jpeg)
+* * *
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_2.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_3.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_4.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_6.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_8.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_11.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_12.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_13.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_14.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_15.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_16.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_17.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_18.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_19.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_20.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_21.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_22.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_23.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_24.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_25.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_26.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_27.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_28.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_29.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_30.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_31.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_32.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_33.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_34.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_35.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_36.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_39.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_40.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_41.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_42.jpg)
+
+
+[【PDF 下载】Thursday-9-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record.pdf)
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
