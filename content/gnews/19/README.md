@@ -2,63 +2,70 @@
 ---
 
 
-## 前总统候选人希拉里·克林顿泪流满面地再现了她从未发表的胜利演讲
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1737168/)
+## Covid 疫苗的 8 种最常见和最严重的不良反应
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1737187/)
 
-作者：Ian Miles Cheong
-翻译：KK
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-117.png)
-希拉里克林顿还没有从前总统唐纳德特朗普竞选的失败中走出来。在NBC的新大师班主流媒体平台上，这位前民主党总统候选人含泪演绎了她打算发表的胜利演讲，在社交媒体上引起了广泛的嘲讽。
+翻译： Jenny Ball
 
-在大师班的视频中，她说出了迄今为止无人听到的话。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-4-3.jpg)图片来源：naturalnews.com（作者：SD Wells）
 
-她说：“我的美国同胞们，今天你们向全世界发出了一个信息。我们的价值观经久不衰。我们的民主是强大的。我们的座右铭仍然是：在众多中，仅一个。”
+自然新闻([Natural News](https://www.naturalnews.com/)) – 长期以来，疫苗一直被认为是美国医学的圣杯，因为它们以这种方式出售。在一个以商品、服务和药物的广告和营销为基础的资本主义国家，大多数美国人相信他们在电视上听到、在线阅读以及在杂志和报纸上看到的一切。他们认为这一切都是真实的、合法的，并被当地的官员批准使用或消费。然而，媒体和政府推动的大多数产品和药物都是掺假的，对人体有毒，尤其是疫苗。
 
-“我们不会仅仅被我们的差异所定义。我们不会是‘只有我们与他们’的国家，”克林顿补充说，但在她的演讲中没有提到她之前将共和党选民称为“一篮子的可悲者”。
+更糟糕的是，假冒疫苗会导致[可怕的副作用和不良事件](https://thepulse.one/2021/11/25/pfizer-was-aware-of-over-50k-serious-covid-vaccine-reactions-with-months-of-distribution/)，这些副作用和不良事件通常是永久性的，包括死亡。现在，这些有害的健康损害正在被掩盖，不仅在它们发生之后，而且在临床试验期间。
 
-“美国梦对每个人来说都足够大，”她说。“经过漫长而艰苦的竞选，我们面临着在两种截然不同的美国愿景之间做出选择的挑战。我们如何共同成长，我们如何共同生活，以及我们如何共同面对一个充满危险和希望的世界。”
+事实上， [新发现的辉瑞文件显示](https://www.naturalnews.com/2021-12-02-smoking-gun-pfizer-document-exposes-fda-criminal-cover-up-of-vaccine-deaths.html)，在近一年前的 2021 年 1 月和 2 月，报告了数以万计的不良反应。这些文件是在一组原告教授/科学家提交《信息自由法》请求后出现的。这通常是唯一途径让公众发现这些制药罪犯和他们大规模杀人犯的阴谋，以及用有毒疫苗蒙骗群众的伎俩。
 
-“从根本上说，这次选举挑战了我们决定在 21 世纪成为美国人意味着什么。通过争取团结、体面以及林肯总统所说的“我们本性中更好的天使”。我们遇到了这个挑战，”她补充道。
+**谁会相信年复一年的惯犯的制药罪犯？**
 
-以女性身份竞选的克林顿宣称她（想象中的）胜利是“所有女性的胜利”。
+怎么会有人相信为辉瑞、莫德纳、强生、默克或任何疫苗制造这样黑帮的人，他们的行为就像重犯一样，都应该在监狱里服刑。在我们应该击退流行病的最重要的医学领域，**完全缺乏透明度，**** ****这肯定不会****“****拉平曲线****”****或阻止**** Covid ****的传播**。美国各地的医生和护士被虚假信息误导，并受到不适当的教育，将虚假信息传递给他们的患者。这些错误信息导致医护人员通过基因注射治疗，不计后果地的危及人们的生命。这些注射杀死（并致残）的人，远远多于他们挽救的人。
 
-“今天，你的孩子在你的肩膀上，你的邻居在你身边，新老朋友团结一致，你更新了我们的民主，”克林顿吟诵道。“而且因为你给我的荣誉，你已经永远改变了它的面貌。”
+在疫苗分发后的短短几个月内，辉瑞的高管和科学家们就知道，在最初几个月内，报告了大约 50,000 多种由 Covid 疫苗引起的[严重不良反应](https://phmpt.org/wp-content/uploads/2021/11/5.3.6-postmarketing-experience.pdf)，但他们没有告诉任何人。
 
-“我见过在女性拥有投票权之前出生的女性，”她继续说道。“他们为今晚等了一百年。我见过一些小男孩和女孩，他们不明白为什么以前从来没有女人当过总统。现在他们知道，全世界都知道，在美国，每个男孩和每个女孩都可以长大成为他们梦想的样子，甚至是美国总统。这是所有美国人的胜利。男女。男生和女生。因为正如我们的国家再次证明的那样，当没有天花板时，天空就是极限。”
+**辉瑞在向**** FDA ****的**** SECRET ****中承认，****mRNA Covid ****疫苗会导致****“****病情加重****”****，从而加剧大流行。**
 
-“如果你在所有政治泥潭中挖掘得足够深，最终你会遇到一些艰难而真实的事情，”克林顿说，尽管在投票前宣传了俄罗斯勾结骗局，但他的努力未能破坏特朗普成为总统的结果。
+**在一份确凿的文件中，辉瑞在****“****安全问题****”****的标题下向**** FDA ****承认，****mRNA ****注射会导致****“****疫苗相关增强疾病****”****（****VAED****），这也可能是呼吸道感染****/****功能障碍。设想，**** Covid ****病毒是由人类在实验室进行基因改造的病毒引起的呼吸道感染，针对该病毒感染的疫苗会导致人类呼吸系统患上呼吸道疾病，这无异于火上浇油。**
 
-“将我们作为美国人团结在一起的基本价值观为基础，”她说。“你今天证明了这一点。在一个因种族和宗教、阶级和文化而分裂的国家，往往使党派之争陷入瘫痪，一个广泛的美国人联盟拥抱了一个充满希望、包容、心胸开阔美国的共同愿景。”
+所以 FDA 知道这一点，辉瑞知道这一点，但他们仍然被授予“紧急使用批准”，以进一步感染数百万美国人，而人们却一无所知。
 
-克林顿在她的演讲中加入了一个美德信号：“一个尊重女性、欢迎移民的美国。在退伍军人受到尊重的地方，父母得到支持，工人得到公平的报酬。在一个我们相信科学的美国，在那里我们超越人们的残疾并看到他们的可能性，在那里婚姻是正确的，而歧视是错误的。不管你是谁，你长什么样，你来自哪里，或者你爱谁。”
+这份秘密文件还披露了辉瑞 mRNA 注射的 **1200 ****多人死亡和**** 42,000 ****多份不良报告**，总计近 **160,000 ****次不良反应**。这将使他们不得不为每一个被他们欺骗而受伤或死亡的患者（包括每个男人、女人、儿童、婴儿或怀孕终止），承担数百万美元的损失。
 
-“每个人都很重要，每个人都有一席之地的美国。一个地方和一个目的。因为我们每个人都可以在我们伟大的美国故事中发挥作用。是的，这绝对包括所有投票给其他候选人或根本没有投票的人，”她说。
+一般疾病和神经系统疾病， 在这些已知不良反应的图表中名列前茅。此外，由于某种未知原因（人口控制），女性受到的影响是男性的三倍。这种疫苗是为了减少人口而设计的，是针对性别特定的损害吗？ 辉瑞和 FDA 肯定知道这件事。看看下面这些 Covid 疫苗最常见和最严重的 8 种不良反应：
 
-克林顿甚至在回忆起母亲对她的影响时哭了。
+#1. 心肌炎
+#2. 新的神经系统疾病
+#3. 新的呼吸系统疾病
+#4. 血块
+#5. 新的肌肉骨骼疾病
+#6. 新的胃肠道疾病
+#7. 过敏性休克（近 10%） #8. 新感染，包括感染 Covid 及其变种[New infections](https://www.naturalnews.com/2021-12-03-mrna-vaccines-dramatically-increase-inflammatory-markers.html)
 
-今年夏天，一位作家问我是否可以回到过去，向历史上的任何人讲述这个里程碑，会是谁？答案很简单。我的妈妈，多萝西。你可能听过我谈论她艰难的童年。 8岁那年，她被父母遗弃。他们把她放在去加利福尼亚的火车上，在那里她受到祖父母的虐待，最后独自一人，当了女佣。然而，她仍然找到了一种方法，向我提供她从未得到过的无限爱和支持。她教给我卫理公会信仰的话：“尽你所能，尽你所能，尽你所能，为所有人尽你所能。”
+![](https://assets.gnews.org/wp-content/uploads/2021/12/unknown-4-2.png)图片来自原文
 
-我每天都在想我的妈妈。有时我会在火车上想起她。我希望我能走在过道上，找到她坐着的小木椅，紧紧地抱着她和妹妹。独自、感到恐惧的的她还不知道自己要承受多少痛苦。她还不知道自己会找到摆脱那种痛苦的力量。那还有很长的路要走。当她凝视着从她身边掠过的广阔国家时，整个未来仍然未知。我梦想着走到她身边，坐在她身边，把她抱在怀里，说：“看着我。听我说。你会活下来。你会有一个自己的好家庭。还有三个孩子。尽管很难想象，你的女儿会长大并成为美国总统。”
+文章内容来源：
 
-“正如我所知道的那样，我确信这一点：美国是世界上最伟大的国家。从今晚开始，我们将一起让美国变得比以往任何时候都更加伟大，对我们每个人来说都是如此。谢谢你，上帝保佑你，愿上帝保佑美国，”她总结道。
+[Pandemic.news](https://www.pandemic.news/2021-03-04-who-insider-exposes-gavi-gates-perpetrating-plandemic.html)
 
-来源：https://www.rebelnews.com/former\_presidential\_candidate\_hilary\_clinton\_offers\_tearful\_rendition\_of\_her\_intended\_victory\_speech\_that\_never\_was
+[TruthWiki.org](http://www.truthwiki.org/cdc-centers-for-disease-control-and-prevention/)
 
-（文章仅代表作者个人观点）
+[NaturalNews.com](https://www.naturalnews.com/2021-12-02-smoking-gun-pfizer-document-exposes-fda-criminal-cover-up-of-vaccine-deaths.html)
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+[ZeroHedge.com](https://www.zerohedge.com/covid-19/joe-rogan-crushes-cnn-over-ivermectin-horse-paste-propaganda-gets-gupta-concede)
 
-**关注我们**
+[FoodSupply.news](http://www.foodsupply.news/2021-11-18-food-shortage-engineered-to-control-people.html)
 
-Discord 账号
+[RepublicWorld.com](https://www.republicworld.com/world-news/us-news/thousands-of-americans-have-experienced-severe-reactions-to-covid-vaccines-cdc-report.html)
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+[ThePulse.one](https://thepulse.one/2021/11/25/pfizer-was-aware-of-over-50k-serious-covid-vaccine-reactions-with-months-of-distribution/)
 
-Gettr 账号
+[naturalnews][Top 8 most COMMON and SERIOUS adverse reactions to Covid vaccines](https://www.naturalnews.com/2021-12-04-top-8-most-common-serious-adverse-reactions-covid-vaccines.html)
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+* * *
+
+*审核：文乐
+校对：信心满满
+发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH..jpeg)
 
  
 

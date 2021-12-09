@@ -2,8 +2,8 @@
 ---
 
 
-## 灭共者之追悼习包子（一）
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1737153/)
+## 灭共者之疫苗灾难（一）
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1737175/)
 
 **出品：纽约香草山设计部**
 
@@ -21,15 +21,16 @@
 
 
 
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/2-image1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/1-image0.jpg)
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/1-13-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/2-11-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/4-image1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/3-image0.jpg)
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/3-022.jpg)
-
-
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/6-123.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/5-123.jpg)
 
 
 
