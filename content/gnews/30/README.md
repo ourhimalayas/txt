@@ -2,93 +2,157 @@
 ---
 
 
-## 文·贵天成——文贵先生谈“疫苗”（三十九）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1735235/)
+## 习近平是爆料革命和灭共事业最大的礼物
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1735270/)
 
-整理：BENJ1
-编辑：Mttfly
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2021.12.4-文·贵天成——郭文贵先生谈疫苗（二十八）28-图片-2.png)图片来源：墨尔本雅典娜农场设计组（姐夫说说）
-**郭文贵先生2021年8月25日直播**
+[https://gtv.org/video/id=61b1620a87fa7e74c92d70de](https://gtv.org/video/id=61b1620a87fa7e74c92d70de)
 
-郭文贵先生：你要不要他，就让他去打去。你要想换他时，就让他打去，很快就换了。你告诉他千万别打，打了就那四种选择。你打勾，你回家拿个板打勾，谁打疫苗了，他会是第一号还是第二号第三个第四个，你就安排好你的生活吧。真的，你告诉我还有第五招吗？更加可怕的是政治疫苗是延伸下去，这个社会上分成了三个大极端，四个你不能接受的现象。三个极端四个现象。
+从头到尾我没觉得谁占上风
+Desde el principio hasta el final yo no sentí quién prevaleció
 
-一个极端：所有的政府政治家，因为这件事情以后，都不会是让任何人再相信的政府了。人类只存在着死亡尸体的味道，人与人之间没有信任了，没有信任的社会我们怎么存在啊？你相信法官吗？你相信检察官吗？你还相信电视台吗？你还相信政府吗？到处都不相信，你咋活呢？
+政治上, 大家用老百姓的观点是不对的
+Usar el punto de vista de los ciudadanos para ver la política no es correcto
 
-第二个：没有法律，没有国家政权，只有邪恶，你的财产还能保证吗？你的闺女老婆、你的出行安全各方面还有公平吗？没有公平，没有安全。
+肉体之身被消灭了没有任何上风
+No hay ninguna predominación en cuanto a la extinción del cuerpo físico
 
-第三个：你还有机会打工赚钱吗？你还有就业机会吗？记住一个没有就业机会，你就没饭吃。没有公平和安全你是不是要恐惧？没有信用如何与人相处？所以疫苗政治之后的政治疫苗的时代的到来，很有可能人类最终或长或短打破黑暗，重建安全、信用、法治信仰互信的社会。那是要革命的，那是要流血的。说到这的时候，这四个方式，你面对你身边的人亲人四个方式的时候，你能做什么？
+像斯大林死了, 整个就彻底结束了
+Así como la muerte de Stalin todo culminó, en definitiva
 
-你觉得七哥去年建立新中国联邦，然后建立全球农场，然后建立G系列还有G-Clubs，还有G-Fashion，G-News，G-TV，GETTR，还有喜联储喜币，你觉得是偶然的吗？是蒙的吗？是Sara撒币制造者她能理解的吗？路大脑袋蛇妖闫让你独立，住着咱的房子，用着咱的摄像机让人家独立。
+希特勒死了, 整个德国的纳粹就结束了
+Hitler murió y todo el nazi de Alemania terminó
 
-对了刚才重申人家强子刚才那有错误，到了路大脑袋那没拿樱花这边一分钱支持，强子对不起给你道歉。七哥就是有时候说话太快，老是犯错误。我得改，你需要我掌嘴我掌嘴，绝对错了，给你道歉了强子哥。我不能跟你双修，你离我那么老远但给你道歉是没问题的。
+毛泽东死了
+Mao Zedong murió
 
-郭文贵先生：所以说兄弟姐妹们，现在活着，看着电视直播，你们觉得多无聊是吧？很累是吧？这种时光在你生命中不会太多的。我们每个人想这样轻松的直播跟战友沟通，这未来真没那么简单。政治疫苗时代的到来第一个就封你的口，第二就绑住你的手和绑住你的腿，你别随便出行，你少说话。第三个消除你这些所谓聪明人和异己。
+整个中国的共产党的时代他撤底就过去了
+Toda la época de él y del Partido Comunista en China pasó en definitiva
 
-再干什么？你必须听我的，按我的办，歌功颂德我是正确的。洗脑的目的是让你听我的，跟着我行动，洗脑不是目的。洗脑后你脑子里放进我的东西才是我的目的，对吧？
+邓小平死了 邓小平时代就过去了
+Deng Xiaoping murió, y su época pasó
 
-那么叫你闭嘴了，那你怎么办呢？那你要为我说话。绑住你的手和腿要让你干嘛呢？按照我的行动来走。这不就是共产主义吗？一切都是党的，一切都听党的，爹亲娘亲没毛主席、没党亲，跟党走。
+这个里边没有１和100 的关系
+Dentro de esto no hay una relación de 1 y 100
 
-来了吧，兄弟姐妹们，给你解释完了吧？政治疫苗的时代就是全球要进入到共产主义时代!你不听是吧？不听好办，胳臂腿绑了，你够硬，有勇气？我不相信有几个，我想这种人我估计也就郭文贵。我是真没见过活着的，有像我这样的。我在清丰看守所呆过所以我有话说，我才有这个种说。没人能撑住，绑住胳臂绑住腿，闭住嘴饿你，还不让你双修。
+没有50和50的关系
+No hay una relación de 50 y 50
 
-当这个疫苗让更多人死亡的时候，各国政治家面临着要么你穷途末路毁掉全人类，要么你被人类毁掉的时候，最终是要把病毒的来源搞清。你知道政治疫苗会诞生什么吗？最后所有的政客想活下去，土豆输了赢了也好，只有一个，给老百姓一个解释，这病毒哪儿来的，咱打这帮孙子去。
+谁拿着军权和印刷钞票的权利
+Quien tenga el poder militar y de imprimir los billetes
 
-最后全世界的所有政治疫苗的灾难者只有一招，集体灭共。把所有老百姓的怨气、恨气、杀气统统抹掉。能把全人类团结在一起的共产主义，所谓两大阵营，资本主义阵营和社会主义阵营，不就是要团结更多的哥们儿兄弟姐们儿吗？拿钱买，蓝金黄，所谓的社会主义和共产主义。
+谁就是老大
+Ese es el que manda
 
-疫苗政治注定了新中国联邦在世界强势诞生，政治疫苗我们希望它不发生，但我们已经尽力了，冒着生命危险天天警告大家，但是你的造化你的修行，政治疫苗最后把全人类所有的愿景、东西两大阵营全连接在新中国联邦的正道主义下，我这个观点你们同不同意？
+这点无庸置疑的
+Esto es indispensable
+这里没有50 70
+Aquí no hay 50 70
 
-郭文贵先生：谢谢兄弟姐妹们，抱歉我都没听，你们讲得都非常好。在疫苗政治和政治疫苗中，疫苗政治是分左右派的，分得很清楚；政治疫苗就不分左右派了，到政治疫苗就只有生死派了。生派和死派，没有黑白之分，没有善恶之分，只有生和死的问题。
+但是你要想平衡一下
+Pero si quieres balancearlo
 
-在我们新中国联邦面前，疫苗政治我们没有任何发言权，我们只能爆料，但到政治疫苗我们就是主角了。主角的力量靠什么？我们凭什么当主角？你们回答回答兄弟姐妹们，每个人30秒，凭啥当主角？我听听。我看看下面战友留言，高人在这呢。
+算一算也可以 绝对上一直以来
+Y sacar la cuenta también se puede, en lo absoluto desde siempre
 
-**往期回顾：
-**
-[文·贵天成——文贵先生谈“疫苗”（一）](https://gnews.org/zh-hans/1645800/)
-[文·贵天成——文贵先生谈“疫苗”（二）](https://gnews.org/zh-hans/1645804/)
-[文·贵天成——文贵先生谈“疫苗”（三）](https://gnews.org/zh-hans/1668258/)
-[文·贵天成——文贵先生谈“疫苗”（四）](https://gnews.org/zh-hans/1668474/)
-[文·贵天成——文贵先生谈“疫苗”（五）](https://gnews.org/zh-hans/1668591/)
-[文·贵天成——文贵先生谈“疫苗”（六）](https://gnews.org/zh-hans/1670496/)
-[文·贵天成——文贵先生谈“疫苗”（七）](https://gnews.org/zh-hans/1670125/)
-[文·贵天成——文贵先生谈“疫苗”（八）](https://gnews.org/zh-hans/1684720/)
-[文·贵天成——文贵先生谈“疫苗”（九）](https://gnews.org/zh-hans/1684707/)
-[文·贵天成——文贵先生谈“疫苗”（十）](https://gnews.org/zh-hans/1704875/)
-[文·贵天成——文贵先生谈“疫苗”（十一）](https://gnews.org/zh-hans/1689446/)
-[文·贵天成——文贵先生谈“疫苗”（十二）](https://gnews.org/zh-hans/1689743/)
-[文·贵天成——文贵先生谈“疫苗”（十三）](https://gnews.org/zh-hans/1694796/)
-[文·贵天成——文贵先生谈“疫苗”（十四）](https://gnews.org/zh-hans/1695670/)
-[文·贵天成——文贵先生谈“疫苗”（十五）](https://gnews.org/zh-hans/1695638/)
-[文·贵天成——文贵先生谈“疫苗”（十六）](https://gnews.org/zh-hans/1695695/)
-文·贵天成——文贵先生谈“疫苗”（十七）
-文·贵天成——文贵先生谈“疫苗”（十八）
-文·贵天成——文贵先生谈“疫苗”（十九）
-[文·贵天成——文贵先生谈“疫苗”（二十）](https://gnews.org/zh-hans/1703796/)
-[文·贵天成——文贵先生谈“疫苗”（二十一）](https://gnews.org/wp-admin/post.php?post=1703749&amp;action=edit&amp;lang=zh-hans)
-[文·贵天成——文贵先生谈“疫苗”（二十二）](https://gnews.org/wp-admin/post.php?post=1703970&amp;action=edit&amp;lang=zh-hans)
-[文·贵天成——文贵先生谈“疫苗”（二十三）](https://gnews.org/wp-admin/post.php?post=1703992&amp;action=edit&amp;lang=zh-hans)
-[文·贵天成——文贵先生谈“疫苗”（二十四）](https://gnews.org/zh-hans/1704142/)
-[文·贵天成——文贵先生谈“疫苗”（二十五）](https://gnews.org/zh-hans/1710182/)
-[文·贵天成——文贵先生谈“疫苗”（二十六）](https://gnews.org/zh-hans/1710207/)
-[文·贵天成——文贵先生谈“疫苗”（二十七）](https://gnews.org/zh-hans/1710218/)
-[文·贵天成——文贵先生谈“疫苗”（二十八）](https://gnews.org/zh-hans/1719792/)
-[文·贵天成——文贵先生谈“疫苗”（二十九）](https://gnews.org/zh-hans/1719861/)
-[文·贵天成——文贵先生谈“疫苗”（三十）](https://gnews.org/zh-hans/1728380/)
-[文·贵天成——文贵先生谈“疫苗”（三十一）](https://gnews.org/zh-hans/1728390/)
-[文·贵天成——文贵先生谈“疫苗”（三十二）](https://gnews.org/zh-hans/1728442/)
-[文·贵天成——文贵先生谈“疫苗”（三十三）](https://gnews.org/zh-hans/1728442/)
-[文·贵天成——文贵先生谈“疫苗”（三十四）](https://gnews.org/zh-hans/1728442/https:/gnews.org/zh-hans/1731671/)
-[文·贵天成——文贵先生谈“疫苗”（三十五）](https://gnews.org/zh-hans/1731651/)
-[文·贵天成——文贵先生谈“疫苗”（三十六）](https://gnews.org/zh-hans/1732165/)
-[文·贵天成——文贵先生谈“疫苗”（三十七）](https://gnews.org/zh-hans/1735148/)
-[文·贵天成——文贵先生谈“疫苗”（三十八）](https://gnews.org/zh-hans/1735212/)
+习都占绝对上风
+Xi ha tenido predominación
 
-**发布：去中心化Math
+习在用掉他所有的优势
+Xi está usando todas sus ventajas
 
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+他逐渐在消减自己的一切
+Para ir reduciendo gradualmente todo sobre él mismo
+
+但是这跟他的安全系数
+Pero esto con su nivel de seguridad
+
+从第一天到现在没有任何变化
+Desde el primer día hasta ahora no hay ningún cambio
+
+每个人都想杀掉习
+Todos quieren matar a Xi
+
+想干掉他的人一定比想干掉江的人
+Las personas que lo quieren matar a él son innumerables a las
+
+和王岐山的人、孟建柱人要多得多得
+Que quieren matar a Jiang, Wang Qishan y Meng Jianzhu
+
+因为他是所有利益的相关核心
+Porque él es el núcleo de todos los beneficios
+
+他决定了太多好人和坏人的命运
+Él decide el destino de muchísimas personas buenas y malas
+好人和坏人都想杀他
+Personas buenas y malas lo quieren matar
+
+这是个必然的结局
+Este es un final inevitable
+
+所以他现在是每天居无定所
+Por eso ahora él no tiene un hogar permanente todos los días
+
+装神弄鬼
+Hace trucos
+
+他就又戴假胡子、又戴假帽子、又装老人、又装孩子到处跑
+Lleva barba falsa, sombrero falso, finge ser un anciano y un niño corriendo por todas partes
+
+他想吹他的萨克斯、吹他的笛子他都不敢吹
+Él quiere tocar su saxofón y su flauta pero no se atreve
+
+笛子怕有毒、萨克斯怕有毒
+Teme a que la flauta y el saxofón haya veneno
+
+偶尔的搞点儿音乐也搞不成了
+Ni siquiera puede hacer música de vez en cuando
+
+现在就喝点茅台了
+Ahora sólo le queda beber un poco de Moutai
+
+有时候可能在地下火车或者什么地方喝
+Puede que a veces beba en el metro o en alguna parte
+
+比卡扎菲还惨
+Peor que Gadafi
+
+习现在真的是爆料革命和灭故事业最大的礼物
+Xi ahora de verdad es el regalo más grande del proyecto de Movimiento de Denunciantes y del exterminio del PCCh
+
+所以他千万在党沒灭之前
+Por eso él debe estar bien vivo antes de destruir el PCCh
+
+他别被灭 他好好活着
+Debe estar vivo y no ser asesinado
+
+就他北戴河这一转悠
+Él con solo darse una vuelta en Beidaihe
+
+是我们爆料革命再干一千年也干不了的事
+Es lo que nosotros el Movimiento de Denunciante no logramos hacer ni en mil años
+
+好 谢谢
+Listo, gracias
+
+* * *
+
+日期：12/08/2021
+原视频标题：习近平是爆料革命和灭共事业最大的礼物
+Xi Jinping es el regalo más grande del proyecto de Movimiento de Denunciantes y del exterminio del PCCh
+原视频日期：12/06/2021
+原视频网址：[https://gettr.com/post/pit95x77ec](https://gettr.com/post/pit95x77ec)
+任务编号：KC317(3128)
+视频时间段：0:00-2:00
+西听校：洛杉矶盘古农场-小文萱
+翻译：洛杉矶盘古农场-霙霙（文霙）
+翻译终校：洛杉矶盘古农场-小文萱
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布: 洛杉矶盘古农场-恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

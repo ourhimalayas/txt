@@ -2,51 +2,46 @@
 ---
 
 
-## 自即日起不存在郭七条，一定在2025年以前消灭共产党
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1735547/)
+## 无国界记者组织：中共国有全世界最大的记者俘虏营
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1735598/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/51702dbb44b4b07b94b718d9480946e1.jpg)
-据[2021年12月08日 文贵大直播：拜登外交抵制冬奥会；盘古物业接管惊世界；中共高级特务单伟建；对准高层海外大行动](https://gettr.com/streaming/pj3xefa5bc)时间点2：20：36——
+翻译：文扬
+整理报道：文泓
+![](https://assets.gnews.org/wp-content/uploads/2021/12/4-12.jpg)图片来源：Reddit
+近日，一个新闻自由组织揭露，中共国有世界上最大的记者“俘虏营”。该组织发现，目前至少有127名记者在中共国被拘押。
 
-**郭文贵先生：**从今天起没有郭七条，不存在郭七条，只要能灭共的，一切都得干！只要能保护好战友的，什么就得干！充分地利用当地国的法律，只要是保护好战友的，一切都得干！
+无国界记者组织（RSF）的一份新报告强调,中共国违反自己对不同意见和言论自由的承诺，揭示了中共政权近年来在全世界范围内对新闻业和知情权实施“前所未有的镇压运动”。
 
-因为这个行动所有遭受的损失，郭文贵、新中国联邦、法治基金、法治社会承担一切后果，所有的成本、所有的后果我们承担一切后果。如果大家有信心，我们要加速共产党的灭亡！一定在2025年以前，把它消灭！离开这个世界！否则它会教我们的父亲、母亲、所有的亲人离开这个世界！
+本周二，这份82页的报告发布，标题是《中国新闻界的‘大跃进’》。报告也探讨了香港的新闻自由，目前，香港正以国家安全的名义逮捕越来越多的记者。
 
-郭文贵就没有什么失去的了，就剩一个老爹了，92岁了。我做好了一切的准备，它要把我爹给宰了、给炖了，让全世界看看，所有人的爹你都有可能像郭文贵的爹一样，我爹这辈子不白活了。
+RSF组织秘书长克里斯托夫·德洛瓦说：“如果中共国继续疯狂地倒行逆施，中国公民可将他们的国家建立新闻自由彻底失去希望，而中共政权可能会成功地在国内外推行这套模式。”
 
-我们恐惧、磕头、妥协就让我爹多活几年吗？老人家是半中风状态，他能怎么着？一个我爹半中风的人都能撵到马路上去，你觉得你们还有希望吗？你们还有任何机会吗？你觉得任何参与新中国联邦的，包括马云也没有参与新中国联邦，但凡你长那样儿、你有点儿钱，你觉得回中国你能得好儿吗？你家人就能得好儿吗？
+RSF组织说，至少有127名记者在中共国被拘留，记者调查“敏感”话题或发布被（政府）审查的信息，可能导致其在肮脏不堪的监狱中被羁押多年，甚至被虐待致死。
 
-我们只有一个选择，要不是它死，要么就是我们赢，没有任何选择。战友们如果有选择的，千万记住，我还是那句话，做你最有利的选择，你不要承担风险、承担痛苦，你不真心灭共的不要跟我们走在一起，很危险，很恐惧，很多挑战。
+有关西藏、台湾和中共腐败的报道都受到审查，禁忌话题（敏感词）的数量不断增加。自然灾害和争取妇女权益的MeToo运动话题也遭遇审查。
 
-像雅阁说他的恐惧，被人家怕敲门，是不是？把他和家人带走，这是完全凭空地压制在我们精神上的、压制我们肉体上的，我们活一天都是挣的，我们这一辈子都值了，再多走一步都是赚的。
+去年，中共政权的恐吓和勒索也迫使18名外国记者离境，而记者桂民海、杨恒均和程磊则因间谍罪被拘留。
 
-我再说一遍，不管喜联储、喜币有多伟大、G-TV多伟大，你们要记住，不灭共我们这些东西只能是祸害，没有一点好处。为了安全，为了未来，为了我们的利益，我们必须要灭共。
+这场大流行还加剧了新闻限制，在2020年至少有10名记者和在线评论员因报道武汉的新冠病毒危机而被捕，而武汉是中共病毒的发源地。
 
-只要不灭共，你没有真心灭共的，千万别掺和这些投资，也别掺和这些事情，因为风险太大。包括这次抗议游行，我们看到这个SEC的抗议，小王子坚持了两三个月了，非常棒，这小王子展示给我们一个年轻人的执着、坚定、标准。
+去年12月，公民记者张展在社交媒体上发布关于中共国应对冠状病毒爆发的消息后，被判处四年徒刑。
 
-（以下暂略）
+上个月，人权组织“大赦国际”呼吁释放她，称其为抗议监禁而进行的长期绝食使她“面临在狱中死亡的严重风险”。
 
-撰稿：喜马拉雅的肉夹馍；
+香港利用2020年6月通过压制性的《国家安全法》，结束了民主抗议活动，并关闭了有26年历史的《苹果日报》，该报曾直言不讳地批评中共和香港政府限制该市的民主自由。
 
-审核：喜马拉雅的馍夹肉；
+在RSF组织的2021年世界新闻自由指数中，中共国在180个国家中排名第177位，称中共政府将互联网审查、监视和宣传提升到前所未有的水平。
 
-校对：Maarago
+原文链接：[China detaining 127 journalists in ‘great leap backwards’ for press freedom, says Reporters Without Borders (msn.com)](https://www.msn.com/en-gb/news/world/china-detaining-127-journalists-in-great-leap-backwards-for-press-freedom-says-reporters-without-borders/ar-AARBsgC?ocid=msedgdhp&amp;pc=U531)
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+发布：去中心化Math
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
