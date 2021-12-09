@@ -2,31 +2,26 @@
 ---
 
 
-## 美国参议院通过共和党法案推翻拜登疫苗授权
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1736445/)
+## 中共外汇告急，上调外汇存款准备金率2个点
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1736461/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/51346697-0-image-a-41_1638660590891-7.jpg)11月3日，美国总统乔•拜登(Joe Biden)在美国华盛顿白宫艾森豪威尔行政办公大楼的南法院礼堂发表讲话时，就授权5至11岁儿童接种新冠病毒（COVID-19）疫苗发表了讲话。 路透社Evelyn Hockstein提供文件及照片
-路透社报道：华盛顿12月8日——民主党控制的美国参议院周三批准了一项共和党倡议的法案，该法案将推翻乔•拜登(Joe Biden)总统对私营企业强制推行新冠(COVID-19)疫苗或测试的授权，两名民主党人与共和党人一道支持了该倡议。
+撰稿：东京樱花团/知了知了
+![](https://assets.gnews.org/wp-content/uploads/2021/12/5-14.jpg)
+[图片来源](https://www.google.com/search?q=%E5%A4%AE%E8%A1%8C&amp;rlz=1C1YKST_enUS900US901&amp;sxsrf=AOaemvITqwn4DPRABHJkpcxtKUUnCXbY1w:1639061868447&amp;source=lnms&amp;tbm=isch&amp;sa=X&amp;ved=2ahUKEwjtgruj_db0AhXUfHAKHeVDCwYQ_AUoAnoECAIQBA&amp;biw=1366&amp;bih=625&amp;dpr=1#imgrc=u9G4r-j24oYIDM)
 
-投票将立法申请提交给了众议院，在那里它将面临着不确定的未来。
+盘古时间9日晚间，中共央行决定，自2021年12月15日起，上调金融机构外汇存款准备金率2个百分点，即外汇存款准备金率由现行的7%提高到9%。随即，在岸、离岸人民币汇率直线跳水。离岸人民币兑美元跌破6.36关口，短线跌超300个基点。
 
-简评：
+12月6日，中共央行宣布，决定于2021年12月15日下调金融机构存款准备金率0.5个百分点（不含已执行5%存款准备金率的金融机构）。本次下调后，金融机构加权平均存款准备金率为8.4%。预计此次降准共计释放长期资金约1.2万亿元。
 
-爆料革命的战友都知道，中共病毒和中共病毒疫苗都是以中共为首的世界黑暗力量迫害人类的生物武器。拜登政府强制推行新冠疫苗接种更是助纣为虐，将成为人类历史的罪人。此报道显示，美国共和民主两党的有识之士已经开始觉醒并认清了拜登政府的黑暗本质，他们开始走到前台对抗拜登政府，给世界各国做出榜样，给世界人民带来一线曙光。
+这一收一放凸显中共经济的三驾马车全部散架。出口凋敝，造成外汇枯竭；内需萧条、投资冰封，唯有放水漫山。随后，中共国被踢出WTO，被禁用SWIFT，人民币注定破纸一张，中共国经济雪崩将至，中共命数已定，但哀民生之多艰。
 
-新闻链接：[U.S. Senate passes Republican bill to overturn Biden vaccine mandate](https://www.reuters.com/world/us/us-senate-passes-republican-bill-overturn-biden-vaccine-mandate-2021-12-09/)
+信息来源：
 
-* * *
+[央行：上调金融机构外汇存款准备金率2个百分点](https://finance.eastmoney.com/a/202112092208805046.html)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
 
 
  
