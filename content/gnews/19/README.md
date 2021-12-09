@@ -2,32 +2,36 @@
 ---
 
 
-## 七哥说决战之中谁也不欠谁的（2021-12-08摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1736774/)
+## 英国、加拿大宣布外交抵制中共北京冬奥会
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1737025/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+作者：日本方舟农场 – Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间12月8日，因中共政府在人权问题上的恶行，英国、加拿大分别宣布外交抵制2022中共北京冬奥会。这是继立陶宛、美国、澳大利亚、新西兰后，再度宣布外交抵制中共冬奥会的国家。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/5-15.jpg)
+加拿大总理特鲁多称，加拿大对中共政府一再侵犯人权的行为感到极为关切，因此，加拿大将不会派遣任何外交代表参加中共举办的冬奥会。同日，英国首相约翰逊也表示，虽然英国不对运动员参赛奥运会做出限制，但英国政府会毫无犹豫地对中共北京冬奥会实施外交抵制。
 
-来源：郭先生2021-12-08直播11：46：19摘录
+对此，在12月8日的直播中，郭文贵先生也提到，依照原先约定，本将有57国的领导人参加中共此次的冬奥会，但如今只余3国领导人表示会出席，且他们要求习近平本人必须亲自接见。郭先生解释，这意味着习近平在冬奥会上的个人政治彻底破产，同时，中共的国家信用也彻底破产。
 
-我不想对任何人说感激，如果你认为这是共同的使命咱就一起战斗，如果你觉得有任何犹豫，你一定要退出。在这场战争当中，决战之中谁也不欠谁的？ 永远不要说谁欠谁的，我特别讨厌说你们欠七哥的，感谢七哥的，你们不要感谢我。 我不是为了报仇，保财，保命，我不会走到今天的。 他不杀害我的弟弟，不虐待我的父母，不是把我抓到二十几个监狱里，不是保我的财保我的命，我不会干共产党的，这是个基本的前提。 只要我有这个心，没有人可以跟我交易，没有人可以交换得了。
+郭先生强调，对于中共来说，取消中共北京冬奥会的打击远胜于取消世贸组织成员国的待遇。更为重要的是，今后中共国举办的任何国际盛事都会被重新审视。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+参考链接：
+1) .[继美国之后，英国、澳大利亚、加拿大、苏格兰等宣布外交抵制北京冬奥会](https://www.voachinese.com/a/UK-plans-diplomatic-boycott-of-Beijing-winter-olympics-20211208/6344427.html)
+2) . [立陶宛抵制北京冬奧 總統和部長們不出席](https://www.epochtimes.com/b5/21/12/3/n13414954.htm)
 
-**关注我们**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-Discord 账号
+总编：Irene木木
+编辑：Ivy001
+校正/发稿：Fei797
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -15,104 +15,104 @@
 
 ---
 
-### [投身正义之战 送葬中共！](/content/gnews/1/README.md)
- ` 秘密翻译组-原创组`
+### [日本卫生部警告瑞辉疫苗或莫德纳疫苗会导致年轻人群患上心脏疾病](/content/gnews/1/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [研究证明接种强生疫苗会增加患格林-巴利综合征的风险](/content/gnews/2/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [“躺平币”是向中共讨债的工具，解放更多的灭共力量](/content/gnews/3/README.md)
- ` YALUN 亚伦`
-
-### [Covid 疫苗的 8 种最常见和最严重的不良反应](/content/gnews/4/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [《美国之音》对众议院三项法案的报道在掩盖啥？](/content/gnews/5/README.md)
- ` HimalayaRussia`
-
-### [灭共者之疫苗灾难（一）](/content/gnews/6/README.md)
- ` MOS Designer香草山设计部`
-
-### [爆出疫苗含有石墨烯，德国化学家神秘离世](/content/gnews/7/README.md)
- ` 墨尔本雅典娜农场`
-
-### [灭共者之追悼习包子（一）](/content/gnews/8/README.md)
- ` MOS Designer香草山设计部`
-
-### [“公正的”新闻媒体？路透社主席是辉瑞公司的顶级投资者和董事会成员](/content/gnews/9/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [中共上调外汇储备率后人民币暴跌](/content/gnews/10/README.md)
- ` 纽约香草山MOS02`
-
-### [疫苗的幕后不仅有CCP还有世界上的黑暗势力](/content/gnews/11/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [爆料回顾：盗国贼对郭文贵超限战之 “不让你发声”](/content/gnews/12/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [美参议院通过法案废除拜登的企业疫苗强制令](/content/gnews/13/README.md)
- ` HimalayaRussia`
-
-### [一年后：英国首相的高级职员在违反规则的圣诞派对上被捕](/content/gnews/14/README.md)
- ` MG FARM`
-
-### [加拿大通过有害转化疗法禁令](/content/gnews/15/README.md)
- ` MG FARM`
-
-### [灭共者之郭先生直播厅（一）](/content/gnews/16/README.md)
- ` MOS Designer香草山设计部`
-
-### [俄向美发警告在俄边境挑衅将导致危险后果](/content/gnews/17/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [家居企业转让恒大股份 恒大债务违约在即](/content/gnews/18/README.md)
- ` GTV新闻访谈`
-
-### [七哥说决战之中谁也不欠谁的（2021-12-08摘录）](/content/gnews/19/README.md)
- ` MG FARM`
-
-### [2021年12月8日郭文贵先生直播全文字版](/content/gnews/20/README.md)
- ` 温哥华扬帆农场七哥直播全文听写组`
-
-### [美众议院昨通过三项法案施压中共](/content/gnews/21/README.md)
- ` HimalayaRussia`
-
-### [结对合作帮扶是否为体制内上山下乡的开端](/content/gnews/22/README.md)
- ` G-NEWS TAIWAN`
-
-### [台湾首位千万订阅YouTuber诞生 曾遭中共国封杀](/content/gnews/23/README.md)
- ` G-NEWS TAIWAN`
-
-### [暖心！世卫组织警告不要强制接种疫苗](/content/gnews/24/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [FDA发布第一批关于辉瑞Covid疫苗的FOIA文件](/content/gnews/25/README.md)
+### [世界各地抗议专制的封锁和疫苗强制令](/content/gnews/2/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [银河快讯：日本对赴北京冬奥会态度消极；日本和台湾加强联系](/content/gnews/26/README.md)
- ` 日本银河系农场-阿尔法星球`
+### [Hcoin To the Moon 登上Billboard全球数字歌曲销量榜首](/content/gnews/3/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [银河快讯:日本将启动国家安全战略讨论；自卫队与美军举行部队联合训练](/content/gnews/27/README.md)
- ` 日本银河系农场-阿尔法星球`
+### [主导信念决定你如何应对现实以及命运的方向（1/2）](/content/gnews/4/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [GTV新闻访谈简报|2021年12月9日早](/content/gnews/28/README.md)
+### [投身正义之战 送葬中共！](/content/gnews/5/README.md)
+ ` 秘密翻译组-原创组`
+
+### [研究证明接种强生疫苗会增加患格林-巴利综合征的风险](/content/gnews/6/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [“躺平币”是向中共讨债的工具，解放更多的灭共力量](/content/gnews/7/README.md)
+ ` YALUN 亚伦`
+
+### [Covid 疫苗的 8 种最常见和最严重的不良反应](/content/gnews/8/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [《美国之音》对众议院三项法案的报道在掩盖啥？](/content/gnews/9/README.md)
+ ` HimalayaRussia`
+
+### [灭共者之疫苗灾难（一）](/content/gnews/10/README.md)
+ ` MOS Designer香草山设计部`
+
+### [爆出疫苗含有石墨烯，德国化学家神秘离世](/content/gnews/11/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [灭共者之追悼习包子（一）](/content/gnews/12/README.md)
+ ` MOS Designer香草山设计部`
+
+### [“公正的”新闻媒体？路透社主席是辉瑞公司的顶级投资者和董事会成员](/content/gnews/13/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [中共上调外汇储备率后人民币暴跌](/content/gnews/14/README.md)
+ ` 纽约香草山MOS02`
+
+### [疫苗的幕后不仅有CCP还有世界上的黑暗势力](/content/gnews/15/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [爆料回顾：盗国贼对郭文贵超限战之 “不让你发声”](/content/gnews/16/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [美参议院通过法案废除拜登的企业疫苗强制令](/content/gnews/17/README.md)
+ ` HimalayaRussia`
+
+### [一年后：英国首相的高级职员在违反规则的圣诞派对上被捕](/content/gnews/18/README.md)
+ ` MG FARM`
+
+### [英国、加拿大宣布外交抵制中共北京冬奥会](/content/gnews/19/README.md)
+ ` GTV新闻访谈`
+
+### [加拿大通过有害转化疗法禁令](/content/gnews/20/README.md)
+ ` MG FARM`
+
+### [灭共者之郭先生直播厅（一）](/content/gnews/21/README.md)
+ ` MOS Designer香草山设计部`
+
+### [俄向美发警告在俄边境挑衅将导致危险后果](/content/gnews/22/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [家居企业转让恒大股份 恒大债务违约在即](/content/gnews/23/README.md)
+ ` GTV新闻访谈`
+
+### [七哥说决战之中谁也不欠谁的（2021-12-08摘录）](/content/gnews/24/README.md)
+ ` MG FARM`
+
+### [2021年12月8日郭文贵先生直播全文字版](/content/gnews/25/README.md)
+ ` 温哥华扬帆农场七哥直播全文听写组`
+
+### [美众议院昨通过三项法案施压中共](/content/gnews/26/README.md)
+ ` HimalayaRussia`
+
+### [暖心！世卫组织警告不要强制接种疫苗](/content/gnews/27/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [FDA发布第一批关于辉瑞Covid疫苗的FOIA文件](/content/gnews/28/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [GTV新闻访谈简报|2021年12月9日早](/content/gnews/29/README.md)
  ` 纽约香草山MOS01`
 
-### [12/8/2021 文贵直播：单伟建是中共的正部级间谍，隶属具有最高保密级别的秘六局，他直接给中共政治局常委汇报工作](/content/gnews/29/README.md)
+### [12/8/2021 文贵直播：单伟建是中共的正部级间谍，隶属具有最高保密级别的秘六局，他直接给中共政治局常委汇报工作](/content/gnews/30/README.md)
  ` 秘密翻译组-北美组`
 
-### [12/8/2021 文贵直播：抵制冬奥会是所有美国人的决定，中共冬奥会已彻底结束](/content/gnews/30/README.md)
+### [12/8/2021 文贵直播：抵制冬奥会是所有美国人的决定，中共冬奥会已彻底结束](/content/gnews/31/README.md)
  ` 秘密翻译组-北美组`
 
-### [“身在曹营心在汉”-加拿大离职华裔科学家遭起诉](/content/gnews/31/README.md)
+### [“身在曹营心在汉”-加拿大离职华裔科学家遭起诉](/content/gnews/32/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm Toronto(CA)`
 
-### [人生终点服务站欢迎盗国贼家族](/content/gnews/32/README.md)
+### [人生终点服务站欢迎盗国贼家族](/content/gnews/33/README.md)
  ` 骄子`
-
-### [港共政府借国安法恐吓媒体](/content/gnews/33/README.md)
- ` GTV新闻访谈`
 
 ### [12/09/2021 国际财经快讯：美国劳动者有望在经济蛋糕中占大头，但要过美联储这关；苹果公司在垄断案中赢得时间，获准暂缓修改App Store规则](/content/gnews/34/README.md)
  ` 秘密翻译组金融团队`
