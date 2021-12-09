@@ -2,43 +2,20 @@
 ---
 
 
-## 给共产党送葬一天送三个一:100美元+100躺平币+1喜币
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1735099/)
+## 文贵视角:北京冬奥会将成为一个笑话
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1735109/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/7dfb971882882774ba562910a1488be9.jpg)
-据[2021年12月08日 文贵大直播：拜登外交抵制冬奥会；盘古物业接管惊世界；中共高级特务单伟建；对准高层海外大行动](https://gettr.com/streaming/pj3xefa5bc)时间点1：58：56——
+撰稿:牛小妹
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Image-1-3-5.jpg)
+**新中国联邦在冬奥会展现举足轻重的地位**
 
-**郭文贵先生：**咱们现在各农场开始行动，行动的前提是准备好当地的法律律师，如果肯定他们的蓝金黄力量，像单伟建这样的都要出手，骚扰啊什么告状啊，我们的律师要出手；
+“习近平最希望他妈能看见他的盛世，就是拿回香港、强佔台湾、成功举办冬奥会，然后修宪，这是他最在乎的事情。”郭文贵先生在大直播中说。”2019年我就说过要消灭冬奥会，是我们最早提出消灭冬奥会。冬奥会被灭，新中国联邦是独一无二最大的功臣。”
 
-第二，钱没有问题，除法治基金、法治社会捐的钱，就花多少钱七哥来帮你筹足，咱先拿10亿美元的预算出来，然后咱们拿1亿个币出来，再一个记住，每个人到现场的，只要到现场的，咱登记好的，每天100个躺平币。我不说躺平币未来会值多少钱，但每天一人一个喜币、100个躺平币。
+“全世界原本有57国领导人要参加冬奥会，现在只剩下三个国家。这三个国家还提出要求，必须习近平本人接见，习一个也没答应。”文贵先生细数箇中原委。”中东某国、非洲某国，都是托尼布莱尔和我拉的关系。现在这些人都问我，为什么习近平不见我们呢？他怕染毒，难道我们不怕染毒吗？”看来放病毒杀害世人的中共国正拿着石头砸自己的命。
 
-记住啊！这是今天七哥给你承诺的，然后每天不低于100美金的现金补助。这是三个：不低于100美金、100个躺平币、一个喜币，然后所有的有涉及到住宿、交通、纸张、所有成本、所有的吃饭全部实报实销。
+**干掉冬奥会就是对共产党宣判死刑**
 
-我不相信共产党还能花得起这个钱，连中石化现在都是减半发工资了，中石化应该里边儿现在退休工资的都减半发了，甭说是现在工作的。他们没钱了，马上经济危机即将到来。
-
-（以下暂略）
-
-撰稿：喜马拉雅的肉夹馍；
-
-审核：喜马拉雅的馍夹肉；
-
-校对：Maarago
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+“包括班农先生，欧洲所有政治游说的人都说冬奥会不可能被灭掉，他们认为如果干掉冬奥会，基本上就是对共产党宣判死刑。取消冬奥会，比取消世贸还严重。取消冬奥会以后，中共国举办任何国际盛事都会被小心审视。”文贵先生说起冬奥会被取消过程的不可思议。”冬奥会代表的是国家主权，是给习近平政治主权的认可。取消冬奥会代表习近平个人政治彻底破产，国家信用彻底破产，过去中共国运动员的乒乓外交、篮球外交也彻底完蛋。”所以，共产党完球蛋了!
 
  
 

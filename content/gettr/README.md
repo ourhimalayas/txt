@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/9/2021 5:19 AM (UTC)`
+
+12/08/2021 Miles Guo: The CCP court seized Pangu Plaza on the trumped-up charge of "forced trading," and the ownership of the assets involved was collateralized to Abu Dhabi in 2013; Wang Qishan's family business ousted the Pangu Hotel management company for its so-called “inability to operate properly” and the Pangu 7 Stars Hotel has been taken over by a property management company<br/><br/>12/08/2021 文贵直播：中共法院以莫须有的“强迫交易罪”将盘古抢走，涉案资产所有权已在2013年抵押给了阿布扎比；王岐山的家族企业以盘古酒店管理公司“不能履行业务”为由将其撵走，并用物管公司接管了盘古七星酒店<br/>
+![img](https://media.gettr.com/group30/getter/2021/12/09/05/197b0c74-1576-ad51-68c8-fbd9ba75ae6d/out.jpg)
+
+---
+
 `@miles 12/9/2021 2:18 AM (UTC)`
 
 12/08/2021 Miles Guo: Weijian Shan reports directly to Wang Qishan and can arrange meetings with the CCP’s high level cadres by making a single phone call; Weijian Shan looks down upon Xi Jinping, and he, Bruno Wu, and others work together to attack me and the Whistleblowers’ Movement; Shan can meet with the world’s leaders in the secret rooms in Davos<br/><br/>12/08/2021 文贵直播：单伟建的直接领导是王岐山，一个电话就能安排见中共高官；单伟建瞧不起习近平，他和吴征等联合攻击文贵和爆料革命；单伟建能在达沃斯跟国际领导人在密室会谈<br/>
@@ -144,13 +151,6 @@ On Dec. 6, 2021, hundreds of police and over 100 people from BBMG sent by the CC
 
 美国国防部长再一次将中共国描述为国防部的日渐逼近的挑战：我们的新举措是利用所有国家力量工具来应对中共国的挑战<br/><br/>The United States Secretary of Defense repeatedly describes China as a pacing challenge for the Department of Defense: Our new initiatives draw on all tools of national power to meet the China challenge.
 ![img](https://media.gettr.com/group34/getter/2021/12/07/03/ce22770e-6628-b2c0-359f-9e1b533c3a4e/out.jpg)
-
----
-
-`@miles 12/7/2021 2:16 AM (UTC)`
-
-12/06/2021 Miles Guo: What is going on in Pangu is also happening all the time in every corner of communist China. The CCP is frightened by the wealth, freedom and enlightenment enjoyed by the fellow fighters of the Whistleblowers’ Movement. The only way for us to save our families and our fellow Chinese, is to take actions and take down the CCP.<br/><br/>12/06/2021文贵直播：今天发生在盘古的事情在中共国每时每刻都在发生，爆料革命战友们的富有、自由和明眼开智让中共恐惧，我们唯有继续行动，只有灭共，才能拯救家人和中国同胞<br/>
-![img](https://media.gettr.com/group34/getter/2021/12/06/23/c81cde42-f49d-2b3f-9e1f-cd2d9e772984/out.jpg)
 
 ---
 

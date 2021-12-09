@@ -15,71 +15,71 @@
 
 ---
 
-### [在大年三十和初一北京放烟花的时候给共产党全球送棺材](/content/gnews/1/README.md)
- ` NewFOC`
-
-### [关于我自己对于躺平币的一些肤浅认识](/content/gnews/2/README.md)
+### [注射国产灭活疫苗相当于感染了中共病毒！](/content/gnews/1/README.md)
  ` 澳喜农场`
 
-### [12/8/2021 文贵直播：单伟建的直接领导是王岐山，一个电话就能安排见中共高官](/content/gnews/3/README.md)
+### [在大年三十和初一北京放烟花的时候给共产党全球送棺材](/content/gnews/2/README.md)
+ ` NewFOC`
+
+### [关于我自己对于躺平币的一些肤浅认识](/content/gnews/3/README.md)
+ ` 澳喜农场`
+
+### [12/8/2021 文贵直播：单伟建的直接领导是王岐山，一个电话就能安排见中共高官](/content/gnews/4/README.md)
  ` 秘密翻译组-北美组`
 
-### [郭文贵直播摘要和音频 2021.12.08](/content/gnews/4/README.md)
+### [郭文贵直播摘要和音频 2021.12.08](/content/gnews/5/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [为什么SARS-CoV-2 刺突蛋白如此毒](/content/gnews/5/README.md)
+### [为什么SARS-CoV-2 刺突蛋白如此毒](/content/gnews/6/README.md)
  ` 秘密翻译组-原创组`
 
-### [文·贵天成——文贵先生谈“疫苗”（三十七）](/content/gnews/6/README.md)
+### [文·贵天成——文贵先生谈“疫苗”（三十七）](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [佳兆业因债务违约再次宣布停牌](/content/gnews/7/README.md)
+### [佳兆业因债务违约再次宣布停牌](/content/gnews/8/README.md)
  ` 日本东京方舟农场`
 
-### [中共三胎强推，党员必须先行](/content/gnews/8/README.md)
+### [中共三胎强推，党员必须先行](/content/gnews/9/README.md)
  ` 澳喜农场`
 
-### [路透社：恒大声明无法保证偿还其庞大债务后股价暴跌](/content/gnews/9/README.md)
+### [路透社：恒大声明无法保证偿还其庞大债务后股价暴跌](/content/gnews/10/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [文贵视角:北京冬奥会将成为一个笑话](/content/gnews/10/README.md)
+### [文贵视角:北京冬奥会将成为一个笑话](/content/gnews/11/README.md)
  ` 秘密翻译组-原创组`
 
-### [给共产党送葬一天送三个一:100美元+100躺平币+1喜币](/content/gnews/11/README.md)
+### [给共产党送葬一天送三个一:100美元+100躺平币+1喜币](/content/gnews/12/README.md)
  ` NewFOC`
 
-### [中共国社交媒体公开宣传使用青蒿素治疗中共病毒](/content/gnews/12/README.md)
+### [中共国社交媒体公开宣传使用青蒿素治疗中共病毒](/content/gnews/13/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [博明：中共打压大型科技公司的最终目的是控制其数据](/content/gnews/13/README.md)
+### [博明：中共打压大型科技公司的最终目的是控制其数据](/content/gnews/14/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [史蒂夫·基尔什：中共病毒疫苗是人类历史上最危险的疫苗](/content/gnews/14/README.md)
+### [史蒂夫·基尔什：中共病毒疫苗是人类历史上最危险的疫苗](/content/gnews/15/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [郭文贵精品视频-美苏联合灭共时代已经开启](/content/gnews/15/README.md)
+### [郭文贵精品视频-美苏联合灭共时代已经开启](/content/gnews/16/README.md)
  ` 澳喜农场`
 
-### [欧议会议员：澳洲不需要零感染抗疫策略，而需要零压迫策略](/content/gnews/16/README.md)
+### [欧议会议员：澳洲不需要零感染抗疫策略，而需要零压迫策略](/content/gnews/17/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [这是“一个道歉”或“一场教育”就能解决的问题吗？](/content/gnews/17/README.md)
+### [这是“一个道歉”或“一场教育”就能解决的问题吗？](/content/gnews/18/README.md)
  ` 澳喜农场`
 
-### [让中共新老常委海外4000家人回家就看得到棺材和花圈](/content/gnews/18/README.md)
+### [让中共新老常委海外4000家人回家就看得到棺材和花圈](/content/gnews/19/README.md)
  ` NewFOC`
 
-### [FBI推纪录片展示中共对美国企业和国家的危害](/content/gnews/19/README.md)
+### [FBI推纪录片展示中共对美国企业和国家的危害](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【粤语配音】2021年12月8日：新中国联邦未来1-3年对准中高层海外大行动](/content/gnews/20/README.md)
+### [【粤语配音】2021年12月8日：新中国联邦未来1-3年对准中高层海外大行动](/content/gnews/21/README.md)
  ` MOS香港部`
 
-### [纳奥米博士：疫苗强制是战区伪装和极权主义恐怖](/content/gnews/21/README.md)
+### [纳奥米博士：疫苗强制是战区伪装和极权主义恐怖](/content/gnews/22/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [【樱花深度报道】中共吹嘘其民主制度优于美国民主（下）](/content/gnews/22/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [乔·艾伦：谷歌施密特等人想让你相信，我们将与AI共生](/content/gnews/23/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
