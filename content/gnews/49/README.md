@@ -2,41 +2,36 @@
 ---
 
 
-## 杰克·塔珀对好莱坞、NBA等与中国做生意的公司进行了抨击
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1734119/)
+## 盘古再次被非法查封，共产党加速走向灭亡
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1734712/)
 
-据《www.mediaite.com》作者：Ken Meyer，2021年12月5报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-387-e1639000639238.png)图片来自原文
-**美国有线电视新闻网（CNN）的杰克-塔珀（Jake Tapper）抨击了娱乐业和其他企业巨头对中共国的讨好，而不是在世界舞台谴责该国的独裁行为。**
+撰稿人：香草山农场-晓仙女
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-4.png)
+2021年12月6日，郭文贵先生盖文爆料，中国共产党充满着对爆料革命的恐惧，先是将盘古龙头变成了鸟头，随后于12月6日派出数百名警察和100多个北京金隅的人，对盘古所有资产进行暴力查封，1000多名员工和客人被撵出酒店，其中包括换班在宿舍休息，身着睡衣的女员工，文贵先生90多岁的老父亲被撵出房子，一并流落街头。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1291.png)
+这是继大连市中级法院，所谓罚款130亿美元和非法拍卖盘古资产后，中共再一次针对文贵先生家人和员工的一次大抓捕，整个现场丧失人道，灭绝人性。
 
-在周日的国情咨文节目的结尾独白中，塔珀赞扬了女子网球协会（WTA）因担心网球明星彭帅的安全而终止了他们在中共国安排的活动。彭帅指控中共国前副总理张高丽对她进行性侵犯，许多人担心她无法自由发言，因为中共国当局正在强制审查她的说法。
-
-塔珀强调，WTA试图抗议中共国的暴行，比国际奥委会在准备在北京举办2022年冬季奥运会时的做法要强烈得多。虽然国际奥委会吹嘘他们已经和彭帅谈过；但塔珀指出，他们没有公开谴责她所处的困境，塔珀指责他们“表现得像一个黑帮律师”，为中共国的虐待行为作掩护。
-
-塔珀说：“是的，奥运会应该是自由的、没有政治的，但这不是关于政治。对中共国政府的指控远远超出了其对彭帅的待遇。”
-
-塔珀指出，中共国政府被指控对新疆省的维吾尔族人进行了文化种族灭绝运动。在塔珀概述了“在中共国拘留营中发生的反人类罪行”之后，指责转向了继续从中共国的奴隶劳动中获利或拒绝揭露其侵犯人权行为的美国公司。
-
-塔珀说：“当然，苹果和耐克公开声称要谴责奴隶制劳动，但要清楚的是，我们从美国公司看到的行为不是关于一个公司的生存，这是关于对仅仅数亿美元的不满，而是渴望数十亿美元。”
-
-**塔珀最后列举了好莱坞向中共国屈服的几个例子。“他们费尽心思避免冒犯中共国。”他解释说，这一切都归结于这样一个事实：“好莱坞、NBA、国际奥委会和华尔街的百万富翁和亿万富翁们都对中共国的现金如此渴望，他们假装这一切都没有发生。”**
-
-塔珀最后说：“没有钱可以买到足够的肥皂来洗掉他们手上的血迹。”
-
-原文连接：[https://www.mediaite.com/tv/jake-tapper-unleashes-on-hollywood-nba-and-more-over-dealings-with-china-theres-not-enough-soap-to-wash-the-blood-off-their-hands/](https://www.mediaite.com/tv/jake-tapper-unleashes-on-hollywood-nba-and-more-over-dealings-with-china-theres-not-enough-soap-to-wash-the-blood-off-their-hands/)
-
-翻译：洛杉矶盘古农场—TrueSky
-
-校对：洛杉矶盘古农场—Mike Li
-
-编辑：洛杉矶盘古农场—心照
+文贵先生称，这是中共盗国贼指挥的一场践踏法律、毫无道德底线、惨无人道的非法大抓捕和大抢劫，全球新中国联邦人将全面行动，加速共产党的灭亡！
 
 
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+链接：[2021年12月6日郭文贵先生盖特关于共产党在盘古非法执法](https://gettr.com/post/piy7859de9)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-3.png)
+
+总编：飞虹
+
+编辑：童谣
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
