@@ -2,63 +2,60 @@
 ---
 
 
-## 前总统候选人希拉里·克林顿泪流满面地再现了她从未发表的胜利演讲
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1737168/)
+## 灭共者之疫苗灾难（一）
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1737175/)
 
-作者：Ian Miles Cheong
-翻译：KK
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-117.png)
-希拉里克林顿还没有从前总统唐纳德特朗普竞选的失败中走出来。在NBC的新大师班主流媒体平台上，这位前民主党总统候选人含泪演绎了她打算发表的胜利演讲，在社交媒体上引起了广泛的嘲讽。
+**出品：纽约香草山设计部**
 
-在大师班的视频中，她说出了迄今为止无人听到的话。
 
-她说：“我的美国同胞们，今天你们向全世界发出了一个信息。我们的价值观经久不衰。我们的民主是强大的。我们的座右铭仍然是：在众多中，仅一个。”
 
-“我们不会仅仅被我们的差异所定义。我们不会是‘只有我们与他们’的国家，”克林顿补充说，但在她的演讲中没有提到她之前将共和党选民称为“一篮子的可悲者”。
 
-“美国梦对每个人来说都足够大，”她说。“经过漫长而艰苦的竞选，我们面临着在两种截然不同的美国愿景之间做出选择的挑战。我们如何共同成长，我们如何共同生活，以及我们如何共同面对一个充满危险和希望的世界。”
 
-“从根本上说，这次选举挑战了我们决定在 21 世纪成为美国人意味着什么。通过争取团结、体面以及林肯总统所说的“我们本性中更好的天使”。我们遇到了这个挑战，”她补充道。
 
-以女性身份竞选的克林顿宣称她（想象中的）胜利是“所有女性的胜利”。
 
-“今天，你的孩子在你的肩膀上，你的邻居在你身边，新老朋友团结一致，你更新了我们的民主，”克林顿吟诵道。“而且因为你给我的荣誉，你已经永远改变了它的面貌。”
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-“我见过在女性拥有投票权之前出生的女性，”她继续说道。“他们为今晚等了一百年。我见过一些小男孩和女孩，他们不明白为什么以前从来没有女人当过总统。现在他们知道，全世界都知道，在美国，每个男孩和每个女孩都可以长大成为他们梦想的样子，甚至是美国总统。这是所有美国人的胜利。男女。男生和女生。因为正如我们的国家再次证明的那样，当没有天花板时，天空就是极限。”
 
-“如果你在所有政治泥潭中挖掘得足够深，最终你会遇到一些艰难而真实的事情，”克林顿说，尽管在投票前宣传了俄罗斯勾结骗局，但他的努力未能破坏特朗普成为总统的结果。
 
-“将我们作为美国人团结在一起的基本价值观为基础，”她说。“你今天证明了这一点。在一个因种族和宗教、阶级和文化而分裂的国家，往往使党派之争陷入瘫痪，一个广泛的美国人联盟拥抱了一个充满希望、包容、心胸开阔美国的共同愿景。”
 
-克林顿在她的演讲中加入了一个美德信号：“一个尊重女性、欢迎移民的美国。在退伍军人受到尊重的地方，父母得到支持，工人得到公平的报酬。在一个我们相信科学的美国，在那里我们超越人们的残疾并看到他们的可能性，在那里婚姻是正确的，而歧视是错误的。不管你是谁，你长什么样，你来自哪里，或者你爱谁。”
 
-“每个人都很重要，每个人都有一席之地的美国。一个地方和一个目的。因为我们每个人都可以在我们伟大的美国故事中发挥作用。是的，这绝对包括所有投票给其他候选人或根本没有投票的人，”她说。
 
-克林顿甚至在回忆起母亲对她的影响时哭了。
 
-今年夏天，一位作家问我是否可以回到过去，向历史上的任何人讲述这个里程碑，会是谁？答案很简单。我的妈妈，多萝西。你可能听过我谈论她艰难的童年。 8岁那年，她被父母遗弃。他们把她放在去加利福尼亚的火车上，在那里她受到祖父母的虐待，最后独自一人，当了女佣。然而，她仍然找到了一种方法，向我提供她从未得到过的无限爱和支持。她教给我卫理公会信仰的话：“尽你所能，尽你所能，尽你所能，为所有人尽你所能。”
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/2-image1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/1-image0.jpg)
 
-我每天都在想我的妈妈。有时我会在火车上想起她。我希望我能走在过道上，找到她坐着的小木椅，紧紧地抱着她和妹妹。独自、感到恐惧的的她还不知道自己要承受多少痛苦。她还不知道自己会找到摆脱那种痛苦的力量。那还有很长的路要走。当她凝视着从她身边掠过的广阔国家时，整个未来仍然未知。我梦想着走到她身边，坐在她身边，把她抱在怀里，说：“看着我。听我说。你会活下来。你会有一个自己的好家庭。还有三个孩子。尽管很难想象，你的女儿会长大并成为美国总统。”
 
-“正如我所知道的那样，我确信这一点：美国是世界上最伟大的国家。从今晚开始，我们将一起让美国变得比以往任何时候都更加伟大，对我们每个人来说都是如此。谢谢你，上帝保佑你，愿上帝保佑美国，”她总结道。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/4-image1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/3-image0.jpg)
 
-来源：https://www.rebelnews.com/former\_presidential\_candidate\_hilary\_clinton\_offers\_tearful\_rendition\_of\_her\_intended\_victory\_speech\_that\_never\_was
 
-（文章仅代表作者个人观点）
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/6-123.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/5-123.jpg)
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-**关注我们**
 
-Discord 账号
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+**编辑/发稿：小鹿**
 
-Gettr 账号
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-2.png)
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
 
  
 
