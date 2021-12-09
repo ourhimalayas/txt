@@ -2,27 +2,29 @@
 ---
 
 
-## 完全接种疫苗后的澳副总理在访美期间新冠检测呈阳性
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1734836/)
+## 加拿大加入美国等其他国家对北京奥运会进行外交抵制
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1734875/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-110.png)图片来源：澳联社
-翻译：Lish
-编辑：Mttfly
+**【雅典娜快讯】，紧贴时代脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2021.12.9-2加拿大加入美国等.jpg)图片来源：Business Today
+整理报道：Lish
+编辑：文泓
 
-2021年12月9日，据澳大利亚金融评论报道，澳大利亚副总理巴纳比·乔伊斯（Barnaby Joyce）在访问华盛顿特区的时候新冠检测呈阳性。澳大利亚代表团的其他成员检测结果呈阴性，但澳大利亚驻华盛顿大使馆官员，包括在乔伊斯先生抵达后与他会面的亚瑟·斯诺蒂诺斯（Arthur Sinodinos）大使，现在正按照规程进行隔离，等待新冠检测结果。
+12月9日，加拿大政府表示，它将与美国和其他国家一道，对明年2月份的北京冬奥会进行外交抵制。
 
-副总理办公室的一份声明说，已经完全接种了疫苗的乔伊斯先生在周二（澳大利亚东部时间周三）从伦敦降落在华盛顿的一天后检测出阳性。声明还说：“乔伊斯先生将继续处于隔离状态，直到得到进一步的建议。”乔伊斯先生说，他一直有轻微的症状，并选择接受检测。
+在新闻发布会上加拿大总理贾斯汀·特鲁多说，“与世界各地的许多我们伙伴一样，我们对中共国政府一再侵犯人权的行为极为关注，这就是为什么我们今天宣布，我们将不派任何外交代表参加今年冬季的北京奥运会和残奥会。”但他说，加拿大运动员将可以参加奥运会的比赛。
 
-乔伊斯先生预计将住在离白宫800米的杰斐逊酒店，在返回澳洲前，他需要在那里完成隔离。周二晚上，澳大利亚驻华盛顿大使馆取消了一个媒体活动，也并没有重新安排活动时间。
+此举是继美国周一宣布外交抵制之后，西方国家的又一抵制举措。因为华盛顿谴责中共国对新疆地区的维吾尔族有“种族灭绝”和其他侵犯人权的行为。澳大利亚和英国周三也表示，他们的官员将不参加冬奥会。
 
-乔伊斯先生为期10天的海外旅行计划，包括在华盛顿特区和伦敦停留。周一，他会见了英国副首相多米尼克·拉布（Dominic Raab）和交通大臣格兰特·沙普斯（Grant Shapps）。11月6日出台的美国新规定乔伊斯先生在飞往美国的前一天进行新冠测试，如果测试结果为阴性，将被允许进入美国。
+西方盟国在一系列问题上与中共国的分歧越来越大，使中共国与西方外交关系陷入自1989年天安门广场镇压事件以来最严重的危机。
 
-**原文链接：**[Barnaby Joyce tests positive for COVID-19 in US](https://www.afr.com/politics/federal/barnaby-joyce-tests-positive-for-covid-19-in-us-20211209-p59g37)
+尤其是加拿大，它与中共国的关系因中共政府拘留两名加拿大国民而陷入深深的冰点，这是中共国对加拿大根据美国要求逮捕华为创始人女儿孟晚舟的回应。
+
+新闻链接：[Canada joins US, other countries in diplomatic boycott of Beijing Olympics | World News – Hindustan Times](https://www.hindustantimes.com/world-news/canada-joins-us-other-countries-in-diplomatic-boycott-of-beijing-olympics-101638988976776.html)
 
 **发布：**去中心化Math
-**
-更多资讯，请关注：
+
+**更多资讯，请关注：****
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)

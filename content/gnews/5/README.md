@@ -2,25 +2,36 @@
 ---
 
 
-## 世界联合外交抵制北京冬奥会已成定局
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1734838/)
+## 美国安顾问：美国将采取行动 确保中共不会犯台
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1734893/)
 
-采编/翻译：文莱
-![](https://assets.gnews.org/wp-content/uploads/2021/12/06-image-1.jpg)
-[图片来源](https://nationalpost.com/news/politics/canada-joins-u-s-u-k-in-diplomatic-boycott-of-beijing-olympics)
+作者：纽约香草山医疗部-云豹
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-3.png)
+12月7日，在关于拜登与普京视频会议的白宫新闻简报会上，有记者向美国安顾问苏利文提问，如果俄罗斯侵略乌克兰，同时中共以武力侵犯台湾，美国是否做好了应对准备？苏利文回答，美国将从威慑和外交方面采取一切可以采取的行动，以确保中共犯台的局面不会发生。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-401.png)
+苏利文同时表示，上述表态既是美国目前的政策目标，也是美国正在采取的应对步骤。在过去的8个月中，美国在印太地区所做的全部努力，也是为了避免中共作出任何不适当的选择。
 
-据加拿大自媒体【后千禧年】12月8日报道，总理特鲁多当天宣布，联邦政府将不会派遣任何官方“外交团队代表”参加本次北京冬季奥运会。
+[新闻连接]：
 
-报道称，尽管加拿大执政的自由党政府决定杯葛此次北京冬奥会，但该国运动员仍然可以个人名义参加该比赛。据悉英国和澳大利亚政府当天都加已入了美国外交抵制北京冬奥会的行列中，
+[https://www.cna.com.tw/news/firstnews/202112080008.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/firstnews/202112080008.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-对此，本台记者报道指出，【新中国联邦】创始人郭文贵先生，早在今年9月份就向联合国提交了一份关于反对在中共国举办冬奥会的外交照会。在【爆料革命】正义使命的影响之下，在中共暴政“种族灭绝”的真相面前，以美国为首的西方民主同盟最终达成目前一致的局面，联合外交抵制中共独裁党魁习近平痴梦难求的奥运盛会。
+[https://www.whitehouse.gov/briefing-room/press-briefings/2021/12/07/press-briefing-by-press-secretary-jen-psaki-and-national-security-advisor-jake-sullivan-december-7-2021/](https://www.whitehouse.gov/briefing-room/press-briefings/2021/12/07/press-briefing-by-press-secretary-jen-psaki-and-national-security-advisor-jake-sullivan-december-7-2021/)
 
-校对编辑：硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-3.png)
 
-发稿：苦尽甜来 (文來）
+总编：AN
 
-[原文链接](https://thepostmillennial.com/breaking-canada-joins-allies-in-diplomatically-boycotting-beijing-olympic-games)
+编辑：飞虹
 
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-4.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

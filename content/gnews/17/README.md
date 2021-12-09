@@ -2,42 +2,32 @@
 ---
 
 
-## 奏响让习近平彭丽媛王岐山姚明珊习仲勋齐心动听的哀乐
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1734772/)
+## 美国立法对中共制裁，禁止进口新疆产品
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1734805/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/f391e4437dbc5b1b56d371ea8bc64af7.jpg)
-据[2021年12月08日 文贵大直播：拜登外交抵制冬奥会；盘古物业接管惊世界；中共高级特务单伟建；对准高层海外大行动](https://gettr.com/streaming/pj3xefa5bc)时间点1：54：54——
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-396.png)[图片来源](https://www.bbc.com/zhongwen/simp/world-57859756)
+美国众议院出于对中共强迫劳动与种族灭绝的关切，周三通过了禁止从中共国新疆地区进口产品的立法。这是华盛顿继续制裁中共对待其维吾尔穆斯林少数民族的做法，而以压倒性优势通过的三项措施之一。
 
-**郭文贵先生：**我们要做的事情，一定要把他们的丧事给它变成共产党有史以来最高级的，所有制造的棺材都是要特殊材料，花圈都是要特殊材料，甚至用碳纤维carbon fiber都行，要做得精美细化，要用的音乐、喇叭在各国大使馆响起的时候，要达到了世界专辑音乐水平，比七哥唱H-Coin to the moon还要厉害。
+众议院以428比1的压倒性优势通过“防止强迫维吾尔族劳动法案”。该法案还必须获得参议院通过，并由总统拜登签署成为法律。这项涉疆措施将建立一个“可反驳的推定”，即所有来自新疆的商品都是通过强迫劳动制造的。
 
-叫它们的家人、它们的妈听到以后都直接想进天堂，非死不可那种的。这音乐听着它非死不可，让习近平、彭丽媛，它可以听不见，只要它听见它就想死。让王岐山、姚明珊叫它听见它就想死。它有它母亲齐心，它有习仲勋。我让它母亲齐心知道你对待别人的父母的感觉是什么样的。
+中共国否认在新疆有侵犯人权行为，但美国政府和许多人权组织证实北京在那里实施种族灭绝。
 
-你们一定要做到绝！要不就别做，要做就做到绝。我让所有驻海外的中国的大使馆的官员，我让他知道你们的父母一定不会老死，一定会被装在新中国联邦给准备的棺材里边去。
+共和党人指责拜登政府及其国会民主党同僚拖延立法，因为这将使总统的可再生能源议程变得复杂。全球大部分太阳能电池板材料来自新疆。
 
-（以下暂略）
+白宫以及国会的民主党人否认拖延相关法案。美国白宫周一表示，由于中共国的人权“暴行”，美国将不会派政府官员参加2022年北京冬奥会。
 
-撰稿：喜马拉雅的肉夹馍；
+民主党占多数席位的众议院周三还以巨大的优势通过了另外两项与中共国和人权有关的措施。
 
-审核：喜马拉雅的馍夹肉；
+众议院以428比0的投票结果通过一项决议，称国际奥委会与中共国政府合作，违反了自己的人权承诺。
 
-校对：Maarago
+众议院还以427票赞成1票反对的结果通过了一项决议，谴责中共国对维吾尔族和其他宗教及少数民族群体实施的“持续种族灭绝和反人类罪”，并呼吁在联合国采取行动。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+消息来源：[美国众议院通过三项针对中共国的决议 包括禁止自新疆地区进口产品](https://cn.reuters.com/article/us-house-china-xinjiang-bill-1209-idCNKBS2IO03T?il=0)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

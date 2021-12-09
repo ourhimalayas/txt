@@ -2,22 +2,24 @@
 ---
 
 
-## 加拿大特鲁多政府疑滥用疫情救济资金
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1734766/)
+## 加拿大情报部门称中共已全面渗透当地媒体
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1734795/)
 
-原文采编：UCool优酷  翻译编辑：文所未闻
-![](https://assets.gnews.org/wp-content/uploads/2021/12/04-image-1.jpg)
-据知名自媒体《后千禧年》12月8日报道，加拿大保守党议员最近成功地阻止了特鲁多政府的一项高达74亿加元的“新冠病毒”疫情救济计划。
+编译：文所未闻          撰稿：文文-自由法兰西
+![](https://assets.gnews.org/wp-content/uploads/2021/12/05-image-1.jpg)
+[图片来源](https://nationalpost.com/news/world/canada-puts-its-faith-in-trump-in-high-stakes-meeting-between-u-s-china)
 
-报道称，该项由自由党提出的联邦支出法案可能比其最初承诺的计划要高出数十亿加元。为此，财政委员会称特鲁多当局不仅随心所欲地巨额花费，同时还因缺乏必要的监督和审计，导致其各项支出用途严重缺乏透明度。
+据【加拿大广播公司】12月7日报道，【加拿大安全情报部】最近发出警告称，中共势力对当地媒体的影响已成常态，并为此呼吁特鲁多政府出台更严厉的应对措施。
 
-针对以上弊端，有保守党人士表示，有必要尽快立法来遏制特鲁多政府目前对疫情救济资金毫无节制地滥用。
+报道指出，不仅加拿大中文媒体及华裔社区是中共当局进行渗透的主要目标，各主流媒体及社区资源也包括其内。并试图以此误导该国舆论，破坏民主进程。此外，中共政权还通过微信，抖音等社交媒体，垄断了许多加拿大人的信息来源。
+
+为此，该情报部门不仅敦促联邦政府应出台更强硬的反制政策，以确保加拿大媒体对其传播的信息负责。同时也加大了调查力度，并启动了减少和应对中共威胁的有效措施。
 
 校对编辑：硫酸羟氯喹64
 
 发稿：苦尽甜来 (文來）
 
-[原文链接](https://thepostmillennial.com/trudeaus-new-pandemic-relief-may-cost-billions-more-than-expected)
+[原文链接](https://www.cbc.ca/news/politics/csis-trudeau-china-media-1.6270750)
 
  
 

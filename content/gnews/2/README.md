@@ -2,35 +2,32 @@
 ---
 
 
-## 加拿大加入美国等其他国家对北京奥运会进行外交抵制
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1734875/)
+## 有声|普京：俄罗斯将迅速跟进与美方就乌克兰危机进行的通话
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1734914/)
 
-**【雅典娜快讯】，紧贴时代脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2021.12.9-2加拿大加入美国等.jpg)图片来源：Business Today
-整理报道：Lish
-编辑：文泓
+配音：香草山美食部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+据[OAN](https://www.oann.com/russia-says-both-sides-to-follow-up-quickly-on-putin-biden-call/)网站援引路透社12月8日报道，克里姆林宫周三表示，俄罗斯和美国官员将紧急跟进两国总统于前一天就乌克兰问题进行的、有关 “复杂对抗局势”的两小时通话。
 
-12月9日，加拿大政府表示，它将与美国和其他国家一道，对明年2月份的北京冬奥会进行外交抵制。
+在双方会谈中，拜登警告普京，如果俄罗斯入侵，西方将会对其实施 “强有力的经济和其他措施”，而普京则要求保证北约不会向东扩张。另外，俄罗斯否认其威胁了邻国，并表示相关动作是在回应乌克兰和北约的威胁性行动。
 
-在新闻发布会上加拿大总理贾斯汀·特鲁多说，“与世界各地的许多我们伙伴一样，我们对中共国政府一再侵犯人权的行为极为关注，这就是为什么我们今天宣布，我们将不派任何外交代表参加今年冬季的北京奥运会和残奥会。”但他说，加拿大运动员将可以参加奥运会的比赛。
+莫斯科对美国国务卿安东尼·布林肯上周提出的建议持开放态度，即由华盛顿推动关于冲突的谈判，乌克兰称自2014年以来已有超过14,000人丧生。
 
-此举是继美国周一宣布外交抵制之后，西方国家的又一抵制举措。因为华盛顿谴责中共国对新疆地区的维吾尔族有“种族灭绝”和其他侵犯人权的行为。澳大利亚和英国周三也表示，他们的官员将不参加冬奥会。
+乌克兰外交部长德米特罗·库莱巴（Dmytro Kuleba）告诉路透社，拜登和普京的会谈达到了 “威慑和缓和 ”的目的。但他补充说，当务之急是制定一个威慑方案，以抵御莫斯科的任何进一步军事升级。
 
-西方盟国在一系列问题上与中共国的分歧越来越大，使中共国与西方外交关系陷入自1989年天安门广场镇压事件以来最严重的危机。
+文字版原文：[普京：俄罗斯将迅速跟进与美方就乌克兰危机进行的通话](https://gnews.org/zh-hans/1733918/)
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-尤其是加拿大，它与中共国的关系因中共政府拘留两名加拿大国民而陷入深深的冰点，这是中共国对加拿大根据美国要求逮捕华为创始人女儿孟晚舟的回应。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-新闻链接：[Canada joins US, other countries in diplomatic boycott of Beijing Olympics | World News – Hindustan Times](https://www.hindustantimes.com/world-news/canada-joins-us-other-countries-in-diplomatic-boycott-of-beijing-olympics-101638988976776.html)
-
-**发布：**去中心化Math
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

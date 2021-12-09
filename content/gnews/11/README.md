@@ -2,24 +2,33 @@
 ---
 
 
-## 加拿大情报部门称中共已全面渗透当地媒体
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1734795/)
+## 埃隆·马斯克：人口不足、出生率下降可能威胁人类文明
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1734844/)
 
-编译：文所未闻          撰稿：文文-自由法兰西
-![](https://assets.gnews.org/wp-content/uploads/2021/12/05-image-1.jpg)
-[图片来源](https://nationalpost.com/news/world/canada-puts-its-faith-in-trump-in-high-stakes-meeting-between-u-s-china)
+作者：纽约香草山健身部 – 童谣
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-4.png)
+美国媒体12月7日报道，特斯拉CEO马斯克几天前在《华尔街日报》的年度CEO理事会上表示，人类文明的最大威胁是正在极速下降的低出生率。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-399.png)
+马斯克称，当前很多优秀且自以为很聪明的人认为世界人口已经过剩，但事实恰恰相反，如果人们不生育更多孩子，人类文明将会走向崩溃。而根据世界银行的数据，自1960年以来，全球人口的出生率一直在持续下降。
 
-据【加拿大广播公司】12月7日报道，【加拿大安全情报部】最近发出警告称，中共势力对当地媒体的影响已成常态，并为此呼吁特鲁多政府出台更严厉的应对措施。
+新闻链接：
 
-报道指出，不仅加拿大中文媒体及华裔社区是中共当局进行渗透的主要目标，各主流媒体及社区资源也包括其内。并试图以此误导该国舆论，破坏民主进程。此外，中共政权还通过微信，抖音等社交媒体，垄断了许多加拿大人的信息来源。
+[Elon Musk says there are ‘not enough people’ and that the falling birthrate could threaten human civilization](https://www.businessinsider.com/elon-musk-on-demographics-population-ageing-2021-12?r=US&amp;IR=T)
 
-为此，该情报部门不仅敦促联邦政府应出台更强硬的反制政策，以确保加拿大媒体对其传播的信息负责。同时也加大了调查力度，并启动了减少和应对中共威胁的有效措施。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-2.png)
 
-校对编辑：硫酸羟氯喹64
+总编：飞虹
 
-发稿：苦尽甜来 (文來）
+校正/发稿：浪迹天涯
 
-[原文链接](https://www.cbc.ca/news/politics/csis-trudeau-china-media-1.6270750)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-3.png)
+
 
  
 
