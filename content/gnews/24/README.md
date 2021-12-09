@@ -2,62 +2,54 @@
 ---
 
 
-## 灭共者之郭先生直播厅（一）
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1736961/)
+## 美参议院通过法案废除拜登的企业疫苗强制令
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1737059/)
 
-**出品：纽约香草山设计部**
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/12/S-1.jpg)ohtheme.com
+不过别高兴太早，此法案有待民主党掌控的众议院的通过，之后，拜登还有权进行否决。要使得此法案再次通过，参议院必须有三分之二的赞成投票，所以，该法案最终不能获得通过，将会是大概率事件。但是，这反映最高立法者对此问题的态度，对各州正在进行的各种反对疫苗强制政策的法律诉讼无疑是一种高强度的提振，增加了对强制行为说不的信心。
 
+《福克斯新闻》发表文章，题目是“参议院投票废除拜登对企业的联邦疫苗强制令”，副标题称即使众议院也批准，这项措施还将面临拜登的否决。
 
+全文如下：
 
+参议院星期三（12月8日）投票废除拜登支持的、联邦对私营企业的中共病毒“疫苗”强制令。
 
+最终投票结果是52票对48票，来自西弗吉尼亚州的温和派民主党参议员乔·曼钦（Joe Manchin）和蒙大拿州的乔恩·泰斯特（Jon Tester）与共和党人一起投票赞成该废除法案。
 
+即使获得参议院批准，共和党支持的决议也不太可能推翻这项强制令，民主党控制的众议院预计不会同意采取这项措施，如果法案获得国会通过，拜登总统可能会否决该法案。
 
+共和党人根据《国会审查法案》（the “Congressional Review Act”）将废除法案提交给参议院，该法案允许国会审查总统的行政命令。该决议的发起人、印第安纳州参议员迈克·布劳恩（Mike Braun）说，这项强制令是“政府重拳”伤害企业的一个例子。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/3-20211209-02-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/4-20211209-05-scaled.jpg)
+布劳恩在投票前说：“这让美国一般企业和家庭作为一个群体而感到害怕，他们担心的是，这在其他问题上意味着什么？任何认为这是一个好主意的人，想象一下下次发生这种情况时，无论案情如何，你都会站在错误的一方。”
 
+拜登政府要求对拥有100名及以上雇员的私营公司强制雇员接种中共病毒疫苗，或者进行定期的检查，不遵守规定的公司将面临高额罚款。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/5-20211209-03-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/6-20211209-06-scaled.jpg)
+共和党议员称，这项强制令过于宽泛，构成了联邦政府的越权行为，反对这项强制令的商业团体表示，考虑到紧张的经济状况，执行这项强制令将增加企业繁重的负担。
 
+弗吉尼亚州共和党参议员雪莉·摩尔·卡皮托（Shelley Moore Capito）说：“家庭面临着更高的煤气费和取暖费，这让他们感到气馁。”他在投票前说，“他们非常担心这对他们找到工作、保住工作的长期能力会造成什么影响，我想他们意识到这是对他们自己在生活保健方面决策能力的侵犯。”
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/1-92-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/2-34-scaled.jpg)
+这一强制令立即引起了几个州以及商业和宗教团体的法律挑战，上个月，一家联邦上诉法院颁布了一项临时禁令，在诉讼结果出来之前暂缓执行这项行政令。
 
+参议院多数党领袖查克·舒默（Chuck Schumer）猛烈抨击共和党废除强制令的努力。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/7-20211209-07-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/8-20211209-12-scaled.jpg)
+舒默在当天早些时候说：“在座的一些反疫苗主义者让我想起了400年前发生的事情，当时人们坚持认为太阳绕着地球转，他们只是不相信科学，或者500年前他们确信地球是平的那样。”
 
+在上周一个关键的最后期限之前，围绕强制令的斗争几乎破坏了为政府提供资金的努力。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/9-20211209__1-scaled.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/10-20211209-04-scaled.jpg)
+参议院在仅剩几个小时的时间里批准了一项为政府提供资金的持续决议，但拒绝了共和党支持的一项修正案，该修正案旨在剥夺负责执行该任务的实体，即职业安全与健康管理局（Occupative Safety and Health Administration）的资金。
 
+（全文完）
 
+昏聩的老查克·舒默竟然用“反疫苗主义”冠名，不认为现在的“科学”被绑架，被滥用，被罪恶集团作为实施阴谋的手段，不去追究病毒来源，不去质疑针对来源不明的病毒、大跃进速度开发出的疫苗，不去质疑媒体的集体禁言禁声，说你昏聩是抬高你，严重怀疑你也是阴谋集团的一分子。
 
+这样的人把控着多数党的参议院，法案能获得简单多数的通过实属不易。
 
-**发稿：小鹿**
+原文链接：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-2.png)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
-
+[https://www.foxbusiness.com/politics/senate-votes-repeal-biden-federal-vaccine-mandate-businesses](https://www.foxbusiness.com/politics/senate-votes-repeal-biden-federal-vaccine-mandate-businesses)
 
  
 

@@ -2,38 +2,64 @@
 ---
 
 
-## “躺平币”是向中共讨债的工具，解放更多的灭共力量
-` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/1737197/)
+## Hcoin To the Moon 登上Billboard全球数字歌曲销量榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1737217/)
 
-新西兰伊甸农场Gnews组 财经G乐部 – 亚伦
+12/09/2021 郭文贵先生的歌曲Hcoin To the Moon上线第7天登上Billboard全球数字歌曲销量榜榜首，且位列9国iTunes摇滚音乐榜首。
+
+[https://www.billboard.com/charts/world-digital-song-sales/2021-12-11/](https://www.billboard.com/charts/world-digital-song-sales/2021-12-11/)
+
+* * *
+
+[【PDF Download】Thursday-9-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record.pdf)
+
+* * *
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_2.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_3.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_4.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_6.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_8.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_11.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_12.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_13.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_14.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_15.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_16.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_17.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_18.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_19.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_20.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_21.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_22.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_23.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_24.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_25.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_26.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_27.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_28.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_29.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_30.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_31.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_32.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_33.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_34.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_35.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_36.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_39.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_40.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_41.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_42.jpg)
 
 
+[【PDF 下载】Thursday-9-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record.pdf)
 
-继5月19日“躺平币”的概念横冲出世，就引起了中外各界人士的强烈关注。12月9日郭文贵先生于Gettr直播中对“躺平币”进行了更为深入的解读，国内只要灭共的，按照在社交媒体平台上推广灭共的文章、视频的次数（网络上有记忆可统计），按劳收入“躺平币”。而且，“躺平币”的规划会超出想象，上市后立即就可以实现兑换（比如买面包买油）。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/e885-keyancw9784822-2.jpg)图片来源于盖特
-
-
-
-据以往视频中的内容来看，“躺平币”是一种新型加密货币，也会有20%的黄金做储备，言外之意这也是与黄金挂钩的，并且无论谁都可以交易买卖。“躺平币”还会每间隔一个时间段来摇奖，而且摇奖时段间隔也会越来越短。
-
-今天郭文贵先生主要解惑很多人关心的背后支持“躺平币”的钱从哪里来的问题，即“躺平币”的价值支撑来源。原来，“躺平币”与本身并无关系，主要是“躺平币”得以与国际上很多金融机构合作，是这些大机构为“躺平币”的支付和贴现提供了坚实保证。虽说“躺平币”是完全去中心化的、完全独立的，但是有第三方、第四方愿意拿真金白银投资这个币，一切就成了。自“躺平币”上线的第一天起，一定是可兑现、可支付、可流通的。所以国内真心灭共的而因为各种原因没能赶上喜币战友们，和参与即将开展的国外盗国贼送丧游行的战友们都有机会。
-
-由于中共目前内忧外患的经济形势，人民币即将变冥纸对美元大幅贬值（即使美元自身也存在超发导致实际购买力下降），那么“躺平币”极有可能成为未来人民币和美元之间的“桥”（人民币大幅贬值的缓冲地带）。而只需要“躺平”、发盖特、转Gnews等做好灭共资讯的传播，便可以按劳获取可兑换生活用品的“躺平币”。
-
-“躺平币”是向中共讨债的工具，让更多的人有资格、有经济能力为了灭共而“躺平”，解放更多的灭共力量。
-
-
-
-
-
-\*后附卢布兑美元贬值年录，
-
-1990年，100美元兑换180多卢布
-
-1991年， 100美元能够兑换17000多卢布
-
-1995年，100美元兑换450000多卢布
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

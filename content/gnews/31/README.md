@@ -2,10 +2,28 @@
 ---
 
 
-## 12/8/2021 文贵直播：抵制冬奥会是所有美国人的决定，中共冬奥会已彻底结束
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1736418/)
+## GTV新闻访谈简报|2021年12月9日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1736507/)
 
-秘密翻译组-北美组
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-109-1280x172-1-2-1.jpg)
+
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-8.png)
+文章仅代表作者本人观点，与Gnews无关
+
+视频参看：[2021.12.09早GTV新闻访谈](https://gtv.org/video/id=61b204ecbbd75f62e533b289)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-69.jpeg)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
