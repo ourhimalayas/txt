@@ -2,45 +2,27 @@
 ---
 
 
-## 战争已经开始,习近平撑不了三个月,要么它死要么我们赢
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1736451/)
+## 中共外汇告急，上调外汇存款准备金率2个点
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1736461/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/73945a5dc57ba824ba40f61e5d56c696.jpg)
-据[2021年12月08日 文贵大直播：拜登外交抵制冬奥会；盘古物业接管惊世界；中共高级特务单伟建；对准高层海外大行动](https://gtv.org/video/id=61b0b18fbbd75f62e532ced8)时间点2：34：44——
+撰稿：东京樱花团/知了知了
+![](https://assets.gnews.org/wp-content/uploads/2021/12/5-14.jpg)
+[图片来源](https://www.google.com/search?q=%E5%A4%AE%E8%A1%8C&amp;rlz=1C1YKST_enUS900US901&amp;sxsrf=AOaemvITqwn4DPRABHJkpcxtKUUnCXbY1w:1639061868447&amp;source=lnms&amp;tbm=isch&amp;sa=X&amp;ved=2ahUKEwjtgruj_db0AhXUfHAKHeVDCwYQ_AUoAnoECAIQBA&amp;biw=1366&amp;bih=625&amp;dpr=1#imgrc=u9G4r-j24oYIDM)
 
-**郭文贵先生：**习近平会愤怒的，它看到它妈齐心的照片、习仲勋的照片、它弟弟习远平的照片、彭丽媛的照片天天在全世界大使馆门口转悠，嗷嗷地喊，哭着、喊着给它送葬，它一天行，两天行，三天行，它一个月它撑不住，它的心理状态撑不住的，彭丽媛就受不了，它母亲齐心也受不了。
+盘古时间9日晚间，中共央行决定，自2021年12月15日起，上调金融机构外汇存款准备金率2个百分点，即外汇存款准备金率由现行的7%提高到9%。随即，在岸、离岸人民币汇率直线跳水。离岸人民币兑美元跌破6.36关口，短线跌超300个基点。
 
-这一定记住，它能受一个月，能受三个月，百分之百受不到三个月。它会对我们动手，把我爹抓起来，把我爹给炖了、肢解了、解剖了，是吧？弄个标本送给我，是吧？它就是这嘛，这就行了我爹就整个成了，我这个爹就真的伟大了，我郭文贵的爹成了中国民主之爹了，郭文贵将很荣幸，我对我爹从小到大的所有的伟大和爱，我爹都体现出来了，我已经做好了准备，我希望它行动。
+12月6日，中共央行宣布，决定于2021年12月15日下调金融机构存款准备金率0.5个百分点（不含已执行5%存款准备金率的金融机构）。本次下调后，金融机构加权平均存款准备金率为8.4%。预计此次降准共计释放长期资金约1.2万亿元。
 
-你说战友们你们想想你有选择吗？你告诉我，我爹这个下一个就是所有战友的爹妈都这样，你们一定现在做好准备，来得及，来的到你家的时候，你爹妈手机没了，你什么姨呀、姑啊、什么小舅、什么小姨都没了，手机也没了，信用卡也没了，他们怎么活下去？你们要做好准备——每个人！
+这一收一放凸显中共经济的三驾马车全部散架。出口凋敝，造成外汇枯竭；内需萧条、投资冰封，唯有放水漫山。随后，中共国被踢出WTO，被禁用SWIFT，人民币注定破纸一张，中共国经济雪崩将至，中共命数已定，但哀民生之多艰。
 
-一定会找你们的，这是对新中国联邦的一次行动，绝不是对郭文贵一个人的行动。它准备了很久，这个程序、人员、编制、马上进屋监控室、人，你想想，55万平方米的大楼，它迅速把你给断电、断水、给你清理出去，它要筹划了多长时间，是吧？
+信息来源：
 
-大家做好准备吧，战争已经开始了，不是不可避免，战争已经开始了，你想避免你试试，这是七哥唯一的选择，没有任何选择，我人生从小到大从不留后路，我认为留后路就是失败的象征，我不留后路，要么我赢，要么我死，没有任何选择，就这么简单，我相信一定在2025年以前共产党彻底被我们消灭，彻底完蛋。
+[央行：上调金融机构外汇存款准备金率2个百分点](https://finance.eastmoney.com/a/202112092208805046.html)
 
-（以下暂略）
+校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
 
-撰稿：喜马拉雅的肉夹馍；
-
-审核：喜马拉雅的馍夹肉；
-
-校对：Maarago
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

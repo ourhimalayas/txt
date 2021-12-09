@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/9/2021 3:55 PM (UTC)`
+
+点按即可编辑直播详情
+![img](https://media.gettr.com/group49/getter/2021/12/09/15/37a98eb8-3c08-eb09-8689-9de77f98ce0b/59eedecd0ea5ddb4343c216e14fb29c9.jpg)
+
+---
+
 `@miles 12/9/2021 3:39 PM (UTC)`
 
 12/8/2021 Miles Guo: Weijian Shan is a ministerial level spy of the CCP under the Secret Six Bureau, which has the highest security clearance, and he reports directly to the CCP’s Politburo Standing Committee members; Weijian Shan is the founder of the Western Returned Scholars Association in Beijing<br/><br/>12/8/2021 文贵直播：单伟建是中共的正部级间谍，隶属具有最高保密级别的秘六局，他直接给中共政治局常委汇报工作；单伟建是北京欧美同学会的创始人<br/>
@@ -147,13 +154,6 @@ From Oct. 23, 2019, when I said that the US would boycott the 2022 Winter Olympi
 
 12/7/2021 Miles Guo’s GETTR: The economy of Communist China is in a terrible shape with lots of drama; after the Pangu employees were driven to the streets, people have sent food and drinks to them, indicating the support from the people; once the SWIFT system is terminated, it is the CCP's family members who will be driven to the streets; call for fellow fighters to find out the overseas assets of the families of the senior CCP cadres<br/><br/>12/7/2021 文贵盖特：国内经济惨淡、乱象四起；盘古员工被赶到街上后，有人送吃送喝体现人心所向；一旦停了SWIFT系统，中共的家人就会被赶到街上；号召战友们找出中共高官家人的海外资产<br/>
 ![img](https://media.gettr.com/group21/getter/2021/12/08/03/7a46a0be-057a-200a-62d8-66f507b712b5/out.jpg)
-
----
-
-`@miles 12/7/2021 11:31 PM (UTC)`
-
-12/7/2021 Miles Guo’s GETTR: The US diplomatic boycott effectively renders the 2022 Winter Olympics meaningless, Europe and Japan will do the same, and the CCP won’t be able to host the Winter Olympics; the atrocities that the CCP has inflicted on my family members and my employees are way beyond those of any dictators; the Western religious communities believe that the COVID vaccination is the WWIII waged by the communists led by the CCP<br/><br/>12/7/2021 文贵盖特：美国外交抵制等于废了冬奥会，欧和日会也跟随，中共办不成冬奥会；中共对文贵家人和员工的暴行超过任何独裁者；西方宗教界认为疫苗是以中共为首的共产主义发动的第三次世界大战<br/>
-![img](https://media.gettr.com/group36/getter/2021/12/07/23/39857121-bad7-dc0b-71f2-25ff702d8f50/out.jpg)
 
 ---
 
