@@ -2,64 +2,33 @@
 ---
 
 
-## FDA发布第一批关于辉瑞Covid疫苗的FOIA文件
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1736727/)
+## 台湾首位千万订阅YouTuber诞生 曾遭中共国封杀
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1736742/)
 
-据《NEWSTARGET》记者 Ethan Huff，2021年12月4日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-441-e1639071415982.png)图片源自NEWSTARGETy
-**通过信息自由法案 (FOIA) 要求发现的第一批文件显示，美国食品和药物管理局 （FDA）早在1月份就知道辉瑞的武汉冠状病毒 （Covid-19）“疫苗”正在杀害数千人，但无论如何都授权他们紧急使用。**
+台湾宝岛农场 斗阵来拼
 
-在腐败的 FDA要求其在2076年之前不必获取辉瑞中共病毒注射剂的“安全性”和“有效性”数据后，公共卫生和透明医疗专业人员（PHMPT）提交并发布了这些文件。
+住台湾的27岁义大利籍YouTuber Davie504，本月6日他的YouTube频道成为全台“千万订阅”第一人；值得一提的是，他也是曾因发布的影片标注台湾为国家，而遭中共国封杀。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-442.png)图片来源: 翻摄Davie504 YouTube频道
+Davie504于2011年在YouTube创设频道，最初仅单纯弹奏贝斯，后来主题逐渐转型成贝斯弹奏实验，运用各种非常规且有趣的弹奏方式，并接受观众无厘头挑战，将影片分享到平台，因而打响知名度。
 
-在第一份文件转储中透露，早在2021年2月，FDA就已经收到消息，称有1,223 人死于辉瑞的新冠疫苗注射。然而，美国食品和药物管理局决定授权并在世界范围内推广上述疫苗作为该疾病的“治愈方法”。
+Davie504后来透过网路结识了现任台湾女友，飞来台湾见女友，极富创意与喜欢挑战的他，曾为了弹奏《Around the World》，把他走访世界各地弹奏Bass的画面编辑成一部影片分享，其中在台北101前弹奏的画面，因为标注台湾是国家，随即遭受中共国影音平台封杀，但Davie504不理睬中共国网友抗议，还在影片下留言Taiwan is a country (台湾是个国家)。
 
-**文件解释说：“截至2021年2月28日，总共有42,086份病例报告（25,379例医学确诊和16,707例非医学确诊）包含158,893个不良事件。”**
+参考资料:
 
-“大多数病例（34,762）来自美国（13,739）、英国（13,404）、意大利（2,578）、德国（1913）、法国（1506）、葡萄牙（866）和西班牙（756）；其余的7,324份病例信息来自其他56个国家。”
-
-31-50岁的人在注射辉瑞后表现最差
-
-数据显示，与男性相比，女性受到的伤害似乎要大得多，31到50岁之间的男性和女性也是如此。
-
-紧随其后的是51-64岁人口，其次是老年人和18-30岁之间的年轻人。
-
-**最多的不良事件是注射给药部位的一般紊乱，其次是神经系统疾病；肌肉骨骼和结缔组织疾病；呼吸、胸部和纵隔疾病；感染和侵扰；损伤、中毒和手术并发症 。**
-
-**文件中还有一个部分涉及“特别关注”的不良事件 (AESIs)，包括过敏（过敏）反应和各种心血管事件，如心力衰竭、心源性休克、心肌梗塞、冠状动脉疾病、体位性直立性心动过速综合征、应激性心肌病和心动过速。**
-
-**以及那些可能已经想不起来的皮肤病、血液病和肝脏反应，更不用说面瘫、自身免疫性疾病、神经系统问题和各种感染，如疱疹。**
-
-这样的例子不胜枚举，有数以万计的相关报告，所有这些报告都被 FDA 收到并忽略，同时继续假装辉瑞的mRNA注射剂是完全“安全有效的”。
-
-令人惊讶的是，FDA在这份报告中写道，所有这些都是正常的，并且“与已知的疫苗安全性一致”。
-
-“对这种累积PM体验的可用数据进行审查，确认了一个有利的好处：BNT162b2 的风险平衡，”FDA 进一步写道，BNT152b2 是辉瑞注射剂的“序列号”，如果你愿意接种的话。
-
-**“在过去的美好时光里，法院认为隐藏或销毁证据就是认罪，”一位自然新闻评论员写道，FDA试图隐藏这些信息，直到今天活着的大多数人在55年后死去。**
-
-**“FDA翻译：我们正在掩盖我们邪恶的人口减少议程，这是一个骗局，因此我们可以从中赚取数十亿美元，而无需为危害人类罪负责，只要符合议程，我们就不关心谁生谁死不惜一切代价。”另一位写道。**
-
-“这是一项商业交易，所以我们将通过它并在几年后找出其中的真正内容，同时我们进一步坑害你。”同一个人补充道。
-
-另一位人士指出，FDA显然已经充斥着犯罪分子，但其公然要求将数据发布再推迟半个世纪，这表明该联邦机构变得多么荒谬。
-
-可以在Genocide.news上找到有关Fauci流感疫苗造成的死亡人数上升的最新消息。
-
-文章来源：[https://newstarget.com/2021-12-04-foia-documents-fda-pfizer-covid-vaccines-deaths.html](https://newstarget.com/2021-12-04-foia-documents-fda-pfizer-covid-vaccines-deaths.html)
-
-翻译：洛杉矶盘古农场 – Raul
-
-校对：洛杉矶盘古农场 – Mike Li
-
-评论：洛杉矶盘古农场 – Wendy
-
-编辑：洛杉矶盘古农场 – Wendy
+- [https://www.cna.com.tw/news/amov/202112070425.aspx](https://www.cna.com.tw/news/amov/202112070425.aspx)
+- [https://www.youtube.com/watch?v=EZrvUQQ63PY](https://www.youtube.com/watch?v=EZrvUQQ63PY)
+- [https://www.youtube.com/watch?v=6lsJdGKfgu0](https://www.youtube.com/watch?v=6lsJdGKfgu0)
 
 
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
+* * *
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+***更多资讯***
+[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+
+
 
  
 
