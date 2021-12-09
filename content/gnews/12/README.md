@@ -2,12 +2,10 @@
 ---
 
 
-## 盖特高级副总裁Kaelan Dorr谈盖特新功能以及抗衡推特等社交媒体
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1735366/)
+## 12/8/2021 文贵直播：全球抗议中共联合大行动总动员，为了我们的尊严，必须行动、行动、行动！
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1735387/)
 
-12/06/2021 盖特高级副总裁Kaelan Dorr谈盖特新功能，以及如何抗衡推特等传统社交媒体。
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+秘密翻译组-北美组
 
  
 
