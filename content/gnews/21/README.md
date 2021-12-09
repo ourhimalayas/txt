@@ -2,40 +2,28 @@
 ---
 
 
-## 美国参议员布朗特警告说，强制疫苗将产生破坏性影响
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1736484/)
+## GTV新闻访谈简报|2021年12月9日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1736507/)
 
-编译： 真北007
-![](https://assets.gnews.org/wp-content/uploads/2021/12/bluen-655x437-1-edited.jpg)图片来源：网络
-来自OAN 星期三 12月8日的新闻报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-109-1280x172-1-2-1.jpg)
 
-共和党参议员罗伊布朗特（密苏里州）警告乔拜登的疫苗强制令可能对美国雇主产生有害影响。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-8.png)
+文章仅代表作者本人观点，与Gnews无关
 
-“我认为拜登政府可能，而且绝对应该，重新考虑这个问题，”布朗特说。
+视频参看：[2021.12.09早GTV新闻访谈](https://gtv.org/video/id=61b204ecbbd75f62e533b289)
 
-参议员布朗特谈到了国家疫苗规定及其对雇主的影响。他在周二的共和党领导人会议上发表了他的意见。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-尽管他支持疫苗，但布朗特表示，他认为疫苗强制将削弱全国的多个行业。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-69.jpeg)
 
-“他们将发现，拥有 100 多名员工的杂货店老板将失去很多员工。这些员工将到少于 100 人杂货店，或者在其他地方，工作并赚取一样多的收入，”布朗特解释说。 “所以，杂货店老板说我们现在几乎无法保持货架上货和后台运行，如果这些人离开会怎样？”
-
-此外，他强调，如果法院允许当前的疫苗强制令继续有效，它将极大破坏医疗保健设施。
-
-“我采访过的密苏里州几乎每家乡村医院都指出，他们无法让 100% 的专业人员接种疫苗。他们当然不认为他们可以有 100% 的员工保持医院开放、拖地、自助餐厅运行和系统运行，”共和党人说。
-
-他援引已故作者 C.S. Lewis 来描述此举的暴政。
-
-“最阴险的威权主义形式是政府告诉你必须做某事，因为这是为了你自己的利益，”他说。 “如果这是为了人们自己的利益，这是他们可以自己解决的。”
-
-尽管疫苗强制令目前在法庭上停滞不前，但拜登政府仍在继续推动该指令。
-
-原文链接：[https://www.oann.com/sen-blunt-warns-of-damaging-impact-vaccine-mandates-will-have/](https://www.oann.com/sen-blunt-warns-of-damaging-impact-vaccine-mandates-will-have/)
-
-编辑/发布：LILY
-
-20211209
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
-
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

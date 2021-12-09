@@ -2,26 +2,39 @@
 ---
 
 
-## 中共外汇告急，上调外汇存款准备金率2个点
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1736461/)
+## 美国参议员布朗特警告说，强制疫苗将产生破坏性影响
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1736484/)
 
-撰稿：东京樱花团/知了知了
-![](https://assets.gnews.org/wp-content/uploads/2021/12/5-14.jpg)
-[图片来源](https://www.google.com/search?q=%E5%A4%AE%E8%A1%8C&amp;rlz=1C1YKST_enUS900US901&amp;sxsrf=AOaemvITqwn4DPRABHJkpcxtKUUnCXbY1w:1639061868447&amp;source=lnms&amp;tbm=isch&amp;sa=X&amp;ved=2ahUKEwjtgruj_db0AhXUfHAKHeVDCwYQ_AUoAnoECAIQBA&amp;biw=1366&amp;bih=625&amp;dpr=1#imgrc=u9G4r-j24oYIDM)
+编译： 真北007
+![](https://assets.gnews.org/wp-content/uploads/2021/12/bluen-655x437-1-edited.jpg)图片来源：网络
+来自OAN 星期三 12月8日的新闻报道：
 
-盘古时间9日晚间，中共央行决定，自2021年12月15日起，上调金融机构外汇存款准备金率2个百分点，即外汇存款准备金率由现行的7%提高到9%。随即，在岸、离岸人民币汇率直线跳水。离岸人民币兑美元跌破6.36关口，短线跌超300个基点。
+共和党参议员罗伊布朗特（密苏里州）警告乔拜登的疫苗强制令可能对美国雇主产生有害影响。
 
-12月6日，中共央行宣布，决定于2021年12月15日下调金融机构存款准备金率0.5个百分点（不含已执行5%存款准备金率的金融机构）。本次下调后，金融机构加权平均存款准备金率为8.4%。预计此次降准共计释放长期资金约1.2万亿元。
+“我认为拜登政府可能，而且绝对应该，重新考虑这个问题，”布朗特说。
 
-这一收一放凸显中共经济的三驾马车全部散架。出口凋敝，造成外汇枯竭；内需萧条、投资冰封，唯有放水漫山。随后，中共国被踢出WTO，被禁用SWIFT，人民币注定破纸一张，中共国经济雪崩将至，中共命数已定，但哀民生之多艰。
+参议员布朗特谈到了国家疫苗规定及其对雇主的影响。他在周二的共和党领导人会议上发表了他的意见。
 
-信息来源：
+尽管他支持疫苗，但布朗特表示，他认为疫苗强制将削弱全国的多个行业。
 
-[央行：上调金融机构外汇存款准备金率2个百分点](https://finance.eastmoney.com/a/202112092208805046.html)
+“他们将发现，拥有 100 多名员工的杂货店老板将失去很多员工。这些员工将到少于 100 人杂货店，或者在其他地方，工作并赚取一样多的收入，”布朗特解释说。 “所以，杂货店老板说我们现在几乎无法保持货架上货和后台运行，如果这些人离开会怎样？”
 
-校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
+此外，他强调，如果法院允许当前的疫苗强制令继续有效，它将极大破坏医疗保健设施。
+
+“我采访过的密苏里州几乎每家乡村医院都指出，他们无法让 100% 的专业人员接种疫苗。他们当然不认为他们可以有 100% 的员工保持医院开放、拖地、自助餐厅运行和系统运行，”共和党人说。
+
+他援引已故作者 C.S. Lewis 来描述此举的暴政。
+
+“最阴险的威权主义形式是政府告诉你必须做某事，因为这是为了你自己的利益，”他说。 “如果这是为了人们自己的利益，这是他们可以自己解决的。”
+
+尽管疫苗强制令目前在法庭上停滞不前，但拜登政府仍在继续推动该指令。
+
+原文链接：[https://www.oann.com/sen-blunt-warns-of-damaging-impact-vaccine-mandates-will-have/](https://www.oann.com/sen-blunt-warns-of-damaging-impact-vaccine-mandates-will-have/)
+
+编辑/发布：LILY
+
+20211209
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
 
 
  
