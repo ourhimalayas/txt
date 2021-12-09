@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/9/2021 2:18 AM (UTC)`
+
+12/08/2021 Miles Guo: Weijian Shan reports directly to Wang Qishan and can arrange meetings with the CCP’s high level cadres by making a single phone call; Weijian Shan looks down upon Xi Jinping, and he, Bruno Wu, and others work together to attack me and the Whistleblowers’ Movement; Shan can meet with the world’s leaders in the secret rooms in Davos<br/><br/>12/08/2021 文贵直播：单伟建的直接领导是王岐山，一个电话就能安排见中共高官；单伟建瞧不起习近平，他和吴征等联合攻击文贵和爆料革命；单伟建能在达沃斯跟国际领导人在密室会谈<br/>
+![img](https://media.gettr.com/group2/getter/2021/12/09/02/5980d9a1-c683-4e20-4141-979c484a71c9/out.jpg)
+
+---
+
 `@miles 12/8/2021 11:47 PM (UTC)`
 
 12/08/2021 Miles Guo: The Ministry of Foreign Affairs is a foreign intelligence agency of the CCP. Weijian Shan was born to the parents working for the CCP’s Ministry of Foreign Affairs, and he has been using the PAG to carry out actions against me in the US, BVI, and Beijing on behalf of the CCP<br/><br/>12/08/2021 文贵直播：中共外交部是共产党的对外情报机构，单伟建是外交部子弟，他利用太平联盟代表中共在美国、在BVI、和在北京采取的一系列活动都是针对文贵的<br/>
@@ -144,13 +151,6 @@ On Dec. 6, 2021, hundreds of police and over 100 people from BBMG sent by the CC
 
 12/06/2021 Miles Guo: What is going on in Pangu is also happening all the time in every corner of communist China. The CCP is frightened by the wealth, freedom and enlightenment enjoyed by the fellow fighters of the Whistleblowers’ Movement. The only way for us to save our families and our fellow Chinese, is to take actions and take down the CCP.<br/><br/>12/06/2021文贵直播：今天发生在盘古的事情在中共国每时每刻都在发生，爆料革命战友们的富有、自由和明眼开智让中共恐惧，我们唯有继续行动，只有灭共，才能拯救家人和中国同胞<br/>
 ![img](https://media.gettr.com/group34/getter/2021/12/06/23/c81cde42-f49d-2b3f-9e1f-cd2d9e772984/out.jpg)
-
----
-
-`@miles 12/7/2021 2:14 AM (UTC)`
-
-12/6/2021 Miles Guo: Several hours ago, more than 100 judicial policemen, over 100 special policemen, and 100 or so people from BBMG seized the Pangu Plaza and drove 1,000 or so employees to the road, with my father being forced to wander in the streets - This is how the CCP’s evil works! But we shall not be swayed by greed, hatred, delusion, arrogance, and doubt. Because no one will be safe if the CCP is not taken down!<br/><br/>12/6/2021 文贵直播：数小时前，100多个法警、特警和100多个北京金隅的人封了盘古，将1000多名员工赶到街上，并让我的父亲被迫流落街头，这就是中共的邪恶！但我们不能被贪嗔痴慢疑左右，因为如果不灭共，没有任何人是安全的！<br/>
-![img](https://media.gettr.com/group28/getter/2021/12/07/02/6b5dc20f-8277-ecf8-f2c2-758febe66b1a/out.jpg)
 
 ---
 
