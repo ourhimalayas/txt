@@ -2,33 +2,36 @@
 ---
 
 
-## 台湾首位千万订阅YouTuber诞生 曾遭中共国封杀
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1736742/)
+## 俄向美发警告在俄边境挑衅将导致危险后果
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1736956/)
 
-台湾宝岛农场 斗阵来拼
+作者：Cristina Laila
 
-住台湾的27岁义大利籍YouTuber Davie504，本月6日他的YouTube频道成为全台“千万订阅”第一人；值得一提的是，他也是曾因发布的影片标注台湾为国家，而遭中共国封杀。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-442.png)图片来源: 翻摄Davie504 YouTube频道
-Davie504于2011年在YouTube创设频道，最初仅单纯弹奏贝斯，后来主题逐渐转型成贝斯弹奏实验，运用各种非常规且有趣的弹奏方式，并接受观众无厘头挑战，将影片分享到平台，因而打响知名度。
+编译：尚劲哥
 
-Davie504后来透过网路结识了现任台湾女友，飞来台湾见女友，极富创意与喜欢挑战的他，曾为了弹奏《Around the World》，把他走访世界各地弹奏Bass的画面编辑成一部影片分享，其中在台北101前弹奏的画面，因为标注台湾是国家，随即遭受中共国影音平台封杀，但Davie504不理睬中共国网友抗议，还在影片下留言Taiwan is a country (台湾是个国家)。
+据《网关专家》（thegatewaypundit) 12月8日新闻，俄罗斯总统普京在与美国总统乔·拜登12月7日通话之后的一天，俄罗斯就向美国驻莫斯科大使馆发出照会警告，称美在俄罗斯边境附近进行挑衅将带来危险后果， 拜登在视频电话中警告普京不要入侵乌克兰。
 
-参考资料:
+俄罗斯克里姆林宫发言人玛丽亚·扎哈罗娃（Maria Zakharova）在声明中说： 美国和北约成员国在俄罗斯边境周边的军事活动，包括战斗机飞行和海军舰艇的危险演习，继续呈螺旋上升趋势，他们已从试图测试我们的边境保护系统转向对民用飞机进行挑衅，危及空域安全和人类生命。
 
-- [https://www.cna.com.tw/news/amov/202112070425.aspx](https://www.cna.com.tw/news/amov/202112070425.aspx)
-- [https://www.youtube.com/watch?v=EZrvUQQ63PY](https://www.youtube.com/watch?v=EZrvUQQ63PY)
-- [https://www.youtube.com/watch?v=6lsJdGKfgu0](https://www.youtube.com/watch?v=6lsJdGKfgu0)
+通过保留对美国和以美国为首的北约成员国的挑战作出实物回应的权利，莫斯科呼吁就安全保障和降低军事和政治紧张局势的方法进行深入对话，包括防止空中和海上的碰撞选项。”
 
+“否则，我们将部署所有可用的手段来预防和消除新出现的威胁，”她补充道。
 
-* * *
+与此同时，乔·拜登直接寻求绥靖，并表示他正在努力为普京“制定任何妥协”。
 
-***更多资讯***
-[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
-[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
-[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+译者简评：
 
+大国之间没有永远的朋友，只有永恒的利益，文贵先生早前指出，俄罗斯和中共之间的战略计划，就是分别行动——你取台湾、我取乌克兰。你开始在俄罗斯在欧洲推行你的天然气、技术，你把技术给我，天上地上我来干，我来占用市场，然后再把中东非洲亚洲拿下，让美国人饿死他。当前俄罗斯出现的精英和资金外逃现象，像极了苏联解体的前夕”。但是美国绝不会袖手旁观，一通电话，形势急转。
 
+文贵先生12月8日的直播透露，俄罗斯已经转战整个东亚，最近和缅甸、柬埔寨签订了秘密军事基地，越南的军事基地准备让给俄罗斯。俄罗斯在南海的采油，比中共国的多一倍。南海的油，够整个亚洲使用1200年，这是共产党的噩梦。习花了一万亿买俄罗斯，结果最后一刻人家把他卖了。
+
+这说明，美国的战略调整，美俄联合抗共，共产党必死无疑。看来老共白道黑道都无人问津，黄泉路上唢呐声声招魂。
+
+[援引原文：](https://www.thegatewaypundit.com/2021/12/russia-sends-warning-us-embassy-moscow-dangerous-consequences-provocations-near-russias-borders-one-day-biden-putin-call/)
+
+审核校对：sherryok (水云间)
+
+上传排版：CharlieNZ查理
 
  
 

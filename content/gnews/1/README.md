@@ -2,50 +2,36 @@
 ---
 
 
-## 中共上调外汇储备率后人民币暴跌
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1737119/)
+## 《美国之音》对众议院三项法案的报道在掩盖啥？
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1737183/)
 
-作者：纽约香草山农场 – 四季
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/12/A-1.jpg)projects.voanews.com
+昨天（12月8日）美国众议院通过了三项施压中共的法案，各大媒体进行了争先恐后的报道，笔者也转发了《国会山》的文章，并加注了自己的观点【1】，同时留神了《美国之音》对此事的报道【2】。
 
+笔者想了解文章对涉及彭帅那个法案的看法，结果在《美国之音》的这篇报道里似乎找不到“彭帅”两个字，更不用说“张高丽”的名字了。
 
+《美国之音》文章的相关内容如下：
 
+*“……众议院院会以428票对1票通过了《防止强迫维吾尔人劳动法》，旨在确保中国新疆强迫劳动制造的商品不得进入美国市场。*
 
+……
 
-据[零对冲](https://www.zerohedge.com/markets/yuan-tumbles-after-china-hikes-fx-reserve-ratio)12月9日报道，中共央行在北京时间12月9日晚间的一份声明中说，从12月15日起，金融机构将须持有9%的外汇储备，该比例较之前上调了2个百分点。
+*众议院还以427票对1票通过了一项决议案，谴责中（共）国继续针对维吾尔人和其他宗教和少数民族实施的种族灭绝和犯罪行为，并敦促美国采取行动。*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1655-2021-12-09_04-33-14.jpg)图片来源：彭博社
+*同样众议院以428票对零票通过了一项决议案，认定国际奥林匹克运动会未能遵守自身对人权的承诺……”*
 
-外汇存款准备金率的上调水平在过去10年中两次与人民币的重大贬值有关。此次的上调对人民币隐含地施加了贬值压力。
+众议院以428票对零票通过的决议是“H.Res.837众议院表达对北京应该立即保障网球明星彭帅安全和自由的关注”，议案题目包括了彭帅，议案内容质疑了国际奥委会与彭帅的通话，张高丽的名字也出现在了议案中。
 
-另外，此次外汇存款准备金率的上调是在美国财政部发布报告、批评中共国的人民币政策缺乏透明度，及中共对相关政策进行干预后不到一周内发生的，这表明中共已经更直接地进行了“干预”，并旨在迫使银行持有更多外汇储备。
+这样重要的内容被《美国之音》忽略了，这令人生疑，是不是在替江曾势力作某些掩盖？给笔者的印象是，即使火鸡龚被炒掉后，《美国之音》还总是在做“小骂大帮忙”的事情。
 
-美国股市将如何应对突然飙升的美元，以及中共过去对外汇存款准备金率进行干预所导致的市场隐形波动性的增加，是未来市场将要面对的问题。
+有关链接：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月.png)
+【1】[https://gnews.org/zh-hans/1736748/](https://gnews.org/zh-hans/1736748/)
 
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+【2】[https://www.voachinese.com/a/house-overwhelmingly-pass-three-china-human-rights-bills-20211209/6346150.html](https://www.voachinese.com/a/house-overwhelmingly-pass-three-china-human-rights-bills-20211209/6346150.html)
 
  
 
