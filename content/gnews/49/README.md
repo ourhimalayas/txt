@@ -2,10 +2,12 @@
 ---
 
 
-## 本·汉威尔：反对强制疫苗接种的世界联盟正在集结中
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1734864/)
+## 乔·艾伦：谷歌施密特等人想让你相信，我们将与AI共生
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1734906/)
 
-12/04/2021 国际记者本·汉威尔做客战斗室称对强制疫苗接种的世界联盟正在集结中。大家从来没感觉到像今天这样团结一致。对抗邪恶力量的正义力量正在聚集中。
+12/03/2021 乔·艾伦发文谈AI：埃里克·施密特、基辛格、李开复，他们想让人们相信，AI将成为精神伙伴，我们被迫与之共生。
+
+文章链接：[https://salvomag.com/post/artificial-intelligence-is-an-alien-mind-transforming-the-human-race](https://salvomag.com/post/artificial-intelligence-is-an-alien-mind-transforming-the-human-race)
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

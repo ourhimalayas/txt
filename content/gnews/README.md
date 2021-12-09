@@ -153,41 +153,41 @@
 ### [美众议院一天内近全票通过三项有关中共人权问题法案](/content/gnews/46/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [纳奥米博士：疫苗强制是战区伪装和极权主义恐怖](/content/gnews/47/README.md)
+### [郭文贵精品视频-美苏联合灭共时代已经开启](/content/gnews/47/README.md)
+ ` 澳喜农场`
+
+### [纳奥米博士：疫苗强制是战区伪装和极权主义恐怖](/content/gnews/48/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [乔·艾伦：谷歌施密特等人想让你相信，我们将与AI共生](/content/gnews/48/README.md)
+### [乔·艾伦：谷歌施密特等人想让你相信，我们将与AI共生](/content/gnews/49/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [本·汉威尔：反对强制疫苗接种的世界联盟正在集结中](/content/gnews/49/README.md)
+### [本·汉威尔：反对强制疫苗接种的世界联盟正在集结中](/content/gnews/50/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [西方多国和人权团体全面抵制北京冬奥会](/content/gnews/50/README.md)
+### [西方多国和人权团体全面抵制北京冬奥会](/content/gnews/51/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国会呼吁更多国家抵制北京冬奥会](/content/gnews/51/README.md)
+### [美国会呼吁更多国家抵制北京冬奥会](/content/gnews/52/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [澳英加苏紧跟美国相继宣布外交抵制北京冬奥会](/content/gnews/52/README.md)
+### [澳英加苏紧跟美国相继宣布外交抵制北京冬奥会](/content/gnews/53/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【文贵先生大直播PPT】单伟建和PAG到底是啥玩意儿](/content/gnews/53/README.md)
+### [【文贵先生大直播PPT】单伟建和PAG到底是啥玩意儿](/content/gnews/54/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [法官暂停拜登政府针对全美联邦承包商的疫苗强制令](/content/gnews/54/README.md)
+### [法官暂停拜登政府针对全美联邦承包商的疫苗强制令](/content/gnews/55/README.md)
  ` 首尔天池农场`
 
-### [我们的中心化币将具备去中心化的外太空交易系统和技术](/content/gnews/55/README.md)
+### [我们的中心化币将具备去中心化的外太空交易系统和技术](/content/gnews/56/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [韩国自爆发疫情以来，新增中共病毒病例首次突破 7,000 大关](/content/gnews/56/README.md)
+### [韩国自爆发疫情以来，新增中共病毒病例首次突破 7,000 大关](/content/gnews/57/README.md)
  ` 首尔天池农场`
 
-### [9000亿债务明年到期，各房企年末掀起配股潮](/content/gnews/57/README.md)
+### [9000亿债务明年到期，各房企年末掀起配股潮](/content/gnews/58/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [马斯克：出生率降低会导致文明崩溃](/content/gnews/58/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [班农的传票将1.6委员会吓得半死](/content/gnews/59/README.md)
  ` HimalayaRussia`

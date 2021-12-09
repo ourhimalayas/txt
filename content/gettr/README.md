@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/9/2021 12:44 PM (UTC)`
+
+12月9日 衷心地感谢全球的兄弟姐妹们的打榜! Hcoin To The Moon 荣登公告牌榜世界数字歌曲销售榜第一名🥇了！🎉🎉🎉🎉🎉🎉🎉🙏🙏🙏🙏🙏🙏🙏<br/><br/>Dec 9, 2021 Many thanks to my dearest brothers and sisters around the world! Hcoin To The Moon ranks No. 1 🥇 on billboard’s World Digital Song Sales Chart now! 🎉🎉🎉🎉🎉🎉🎉🙏🙏🙏🙏🙏🙏🙏
+![img](https://media.gettr.com/group47/getter/2021/12/09/12/b638a627-c27f-e602-66ee-5919695877fc/d99cd829452323e391f20aa502bcd724.jpg)
+
+---
+
 `@miles 12/9/2021 5:19 AM (UTC)`
 
 12/08/2021 Miles Guo: The CCP court seized Pangu Plaza on the trumped-up charge of "forced trading," and the ownership of the assets involved was collateralized to Abu Dhabi in 2013; Wang Qishan's family business ousted the Pangu Hotel management company for its so-called “inability to operate properly” and the Pangu 7 Stars Hotel has been taken over by a property management company<br/><br/>12/08/2021 文贵直播：中共法院以莫须有的“强迫交易罪”将盘古抢走，涉案资产所有权已在2013年抵押给了阿布扎比；王岐山的家族企业以盘古酒店管理公司“不能履行业务”为由将其撵走，并用物管公司接管了盘古七星酒店<br/>
@@ -144,13 +151,6 @@ On Dec. 6, 2021, hundreds of police and over 100 people from BBMG sent by the CC
 
 澳大利亚墨尔本市再次爆发大规模反对强制中共病毒疫苗游行<br/><br/>Thousands gather in Melbourne again to protest against the vaccine mandates<br/>
 ![img](https://media.gettr.com/group46/getter/2021/12/07/03/430f109e-8a4a-6c25-1495-1401dc96d558/out.jpg)
-
----
-
-`@miles 12/7/2021 3:20 AM (UTC)`
-
-美国国防部长再一次将中共国描述为国防部的日渐逼近的挑战：我们的新举措是利用所有国家力量工具来应对中共国的挑战<br/><br/>The United States Secretary of Defense repeatedly describes China as a pacing challenge for the Department of Defense: Our new initiatives draw on all tools of national power to meet the China challenge.
-![img](https://media.gettr.com/group34/getter/2021/12/07/03/ce22770e-6628-b2c0-359f-9e1b533c3a4e/out.jpg)
 
 ---
 
