@@ -2,21 +2,42 @@
 ---
 
 
-## 中共三胎强推，党员必须先行
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1735124/)
+## 在大年三十和初一北京放烟花的时候给共产党全球送棺材
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1735189/)
 
-撰稿人：自由战士
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-406.png)（图片来自网络）
-目前根据中共党中央的一份报告：《中共中央 国务院关于优化生育政策促进人口长期均衡发展的决定》（以下简称《决定》）指出，“老龄化是全球性人口发展趋势，也是我国发展面临的重大挑战。预计’十四五’期间我国人口将进入中度老龄化阶段，2035年前后进入重度老龄化阶段，将对经济运行全领域、社会建设各环节、社会文化多方面产生深远影响。实施三孩政策及配套支持措施，有利于释放生育潜能，减缓人口老龄化进程，促进代际和谐，增强社会整体活力。”因此，每一名党员干部应该始终站在讲政治的高度，积极自觉学习、宣传、践行国家新的生育政策，从现在做起，从我做起，为三孩生育政策在自己身边落地见效，积极贡献自己的力量。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/index1_副本.jpg)
+据[2021年12月08日 文贵大直播：拜登外交抵制冬奥会；盘古物业接管惊世界；中共高级特务单伟建；对准高层海外大行动](https://gettr.com/streaming/pj3xefa5bc)时间点2：01：25在——
 
-首先，中共国内部在过去一年多的二胎的政策推广效果来看，全国人口出生率再创新低。根据《中国统计年鉴2021》中披露，2020年全国人口出生率为8.52‰，首次跌破10‰，而同期人口自然增长率仅为1.45‰，这个官方数据已经是多次掺水后的数据，实际情况来看，中国人口在几年前已经进入负增长模式。
+**郭文贵先生：**当我们去抗议的时候，给它送葬的时候，今年大年三十、初一一定按照他们的时间，在他们北京放烟花的时候、过年的时候，全球都是棺材。如果在晚上的时间赶上了一定要有巨大的灯光，一定要直播，一定把这个给它记载下来。
 
-其次，在无法推动普通百姓的强制生育后，只能在党员内部进行硬性指标考核，强压大家必须完成任务，但是参考文贵先生最近几天的直播情况，其中一条信息反馈，目前墙内的公务员体系里面的工资大部分都是折半发放，甚至有些地区，财政吃紧，工资都拖欠几个月了。此时党员内部又强压生育，更加推动了党员内部的引爆速度。
+记住你祈祷对你平安、有病管用，你给对方送葬，你记住，对方绝对有感觉，百分之百有感觉，我知道共产党怕什么，别忘了江泽民要带上，江泽民和他儿子咱也得给它送了，江泽民、江绵恒、江志成也得给它送了这回，咱都给它送上。
 
-最后，中共的杀鸡取卵的疯狂模式，一定会加速他们的灭亡速度。加上9号文贵先生的大直播，正式宣布了全面开战，对中国海外的资产和私生子，情人，亲人等进行大围剿，最后的结果肯定是众叛离亲，彻底瓦解。战友们接下来的1000天，我们只有一个行动，行动，行动！
+非常简单，当地语言、高级质量、艺术化的制作，有程序化的整个的所有的操作，干它三年基本上共产党绝对没了。我们剩下就这东西都成古董了，这车、这些工具都留着，都是送在北京，我们再要建一个地方——共产党的墓地，把这都留做古董了。
 
-*编辑：cindy*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-2.jpg)
+（以下暂略）
+
+撰稿：喜马拉雅的肉夹馍；
+
+审核：喜马拉雅的馍夹肉；
+
+校对：Maarago
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

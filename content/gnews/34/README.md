@@ -2,37 +2,40 @@
 ---
 
 
-## 辉瑞公司的一个董事会成员是前Facebook董事
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1734723/)
+## 西方多国和人权团体全面抵制北京冬奥会
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1734791/)
 
-作者：纽约香草山健身部 – 童谣
-![This image has an empty alt attribute; its file name is 1-28.png](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
-12月6日，美国媒体揭露，2020年加入辉瑞公司的董事会成员——苏珊·德斯蒙德·赫尔曼博士——曾在社交媒体巨头Facebook担任首席独立董事。
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-395.png)[图片来源](https://www.rfa.org/mandarin/yataibaodao/renquanfazhi/al-11172021093018.html)
+继美国之后，英国、澳大利亚、加拿大、苏格兰等宣布外交抵制北京冬奥会，因中共在新疆的“种族灭绝”行为和在香港的暴行，人权团体则发起了全面抵制北京冬奥会的运动。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/7-3.png)
+美国是宣布外交抵制北京冬奥会的第一个西方主要国家。白宫星期一宣布，美国政府官员将抵制北京冬奥会，以表达对中共国侵犯人权“暴行”的抗议。
 
-赫尔曼于2013年到Facebook董事会任职，并在2015年至2019年10月30日期间担任首席独立董事，直到中共病毒大流行前不久辞职。离开Facebook后，赫尔曼于2020年加入了辉瑞公司的董事会。据了解，赫尔曼同时在比尔与梅琳达-盖茨基金会中担任首席执行官。
+白宫宣布外交抵制北京冬奥会之后，澳大利亚随即在星期三早些时候宣布跟进。澳大利亚总理莫里森（Scott Morrison）在解释澳大利亚的外交抵制决定时表示，“澳大利亚一直向中共国提出发生在新疆的侵犯人权行为和许多其他问题。我们会很乐意与中共国政府讨论这些问题，但是中共国政府一直不接受这些机会。”
 
-在赫尔曼担任辉瑞公司董事会成员期间，Facebook发起了审查“中共病毒疫苗怀疑者”的活动，据该公司泄露的内部文件显示，其算法旨在 “大幅消除用户在评论中对疫苗犹豫不决的言论”。
+加拿大总理特鲁多也在星期三宣布，加拿大将外交抵制北京冬奥会。
 
-参考链接：
+特鲁多说：“我们对中共国政府一再侵犯人权的行为感到极为关切……他们不应该对我们不会派出任何外交代表感到惊讶。”
 
-- [REVEALED: New Pfizer Board Member Is Ex-Facebook Director.](https://thenationalpulse.com/exclusive/pfizer-board-member-is-former-facebook-director/)
+苏格兰政府也于星期三证实，苏格兰将和美国等国家一起外交抵制北京冬奥会。
 
+英国首相约翰逊（Boris Johnson）星期三（12月8日）宣布，英国也将有效实施针对北京冬奥会的外交抵制，因为英国政府不会派遣部长或高层官员出席预定于明年2月4日开幕的北京冬奥会。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
+新西兰副总理罗伯逊表示，新西兰已经在今年10月通知北京不会派部长级官员出席北京冬奥会，主要原因是对中共病毒疫情的忧虑。
 
-总编辑：文特
-编辑：飞虹
-校正/发稿：海阔天空1
+日本首相岸田文雄则对媒体表示，“我们将考虑奥运会的意义、我们的外交关系等因素，并会本着我们最佳国家利益做出自己的决定”。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
+约翰逊星期三在英国议会被议员问及英国是否会跟随美国、澳大利亚和立陶宛，因中共的人权纪录不佳而对北京冬奥会实施外交抵制时表示，他反对让运动员参与抵制，但英国将在事实上对北京冬奥会实施外交抵制。
+
+“对北京冬奥会将会有有效的外交抵制，”约翰逊说。“不会有部长，也不会有官员出席。”“政府与中共国提出这些问题从来都不犹豫，就像我上次与习主席通话时一样，”
+
+包括美国、澳大利亚和英国在内的西方政府越来越强烈地抨击中共国当局在新疆对维吾尔族人的“种族灭绝”行为，西方国家同样对中共国政府对香港民主派和异议人士的打压表达过强烈的不满。人权团体则发起了全面抵制北京冬奥会的运动。
+
+消息来源：[继美国之后，英国、澳大利亚、加拿大、苏格兰等宣布外交抵制北京冬奥会](https://www.voachinese.com/a/UK-plans-diplomatic-boycott-of-Beijing-winter-olympics-20211208/6344427.html)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

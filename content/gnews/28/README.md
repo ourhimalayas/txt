@@ -2,22 +2,26 @@
 ---
 
 
-## 埃隆·马斯克：人口不足、出生率下降可能威胁人类文明
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1734844/)
+## 美国安顾问：美国将采取行动 确保中共不会犯台
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1734893/)
 
-作者：纽约香草山健身部 – 童谣
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-4.png)
-美国媒体12月7日报道，特斯拉CEO马斯克几天前在《华尔街日报》的年度CEO理事会上表示，人类文明的最大威胁是正在极速下降的低出生率。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-399.png)
-马斯克称，当前很多优秀且自以为很聪明的人认为世界人口已经过剩，但事实恰恰相反，如果人们不生育更多孩子，人类文明将会走向崩溃。而根据世界银行的数据，自1960年以来，全球人口的出生率一直在持续下降。
+作者：纽约香草山医疗部-云豹
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-3.png)
+12月7日，在关于拜登与普京视频会议的白宫新闻简报会上，有记者向美国安顾问苏利文提问，如果俄罗斯侵略乌克兰，同时中共以武力侵犯台湾，美国是否做好了应对准备？苏利文回答，美国将从威慑和外交方面采取一切可以采取的行动，以确保中共犯台的局面不会发生。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-401.png)
+苏利文同时表示，上述表态既是美国目前的政策目标，也是美国正在采取的应对步骤。在过去的8个月中，美国在印太地区所做的全部努力，也是为了避免中共作出任何不适当的选择。
 
-新闻链接：
+[新闻连接]：
 
-[Elon Musk says there are ‘not enough people’ and that the falling birthrate could threaten human civilization](https://www.businessinsider.com/elon-musk-on-demographics-population-ageing-2021-12?r=US&amp;IR=T)
+[https://www.cna.com.tw/news/firstnews/202112080008.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/firstnews/202112080008.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-2.png)
+[https://www.whitehouse.gov/briefing-room/press-briefings/2021/12/07/press-briefing-by-press-secretary-jen-psaki-and-national-security-advisor-jake-sullivan-december-7-2021/](https://www.whitehouse.gov/briefing-room/press-briefings/2021/12/07/press-briefing-by-press-secretary-jen-psaki-and-national-security-advisor-jake-sullivan-december-7-2021/)
 
-总编：飞虹
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-3.png)
+
+总编：AN
+
+编辑：飞虹
 
 校正/发稿：浪迹天涯
 
@@ -27,9 +31,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-3.png)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-4.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
