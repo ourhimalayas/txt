@@ -2,86 +2,36 @@
 ---
 
 
-## 文·贵天成——文贵先生谈“疫苗”（三十七）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1735148/)
+## 美国安顾问：美国将采取行动 确保中共不会犯台
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1734893/)
 
-**整理：BENJ1**
-**编辑：守望黎明**
+作者：纽约香草山医疗部-云豹
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-3.png)
+12月7日，在关于拜登与普京视频会议的白宫新闻简报会上，有记者向美国安顾问苏利文提问，如果俄罗斯侵略乌克兰，同时中共以武力侵犯台湾，美国是否做好了应对准备？苏利文回答，美国将从威慑和外交方面采取一切可以采取的行动，以确保中共犯台的局面不会发生。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-401.png)
+苏利文同时表示，上述表态既是美国目前的政策目标，也是美国正在采取的应对步骤。在过去的8个月中，美国在印太地区所做的全部努力，也是为了避免中共作出任何不适当的选择。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2021.12.4-文·贵天成——郭文贵先生谈疫苗（二十八）28-图片-2.png)图片来源：墨尔本雅典娜农场设计组
+[新闻连接]：
 
-**郭文贵****先生****2021年8月25日直播**
+[https://www.cna.com.tw/news/firstnews/202112080008.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/firstnews/202112080008.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-谁让别人打疫苗，他自己不打，他就一定是坏人。辉瑞的CEO和前CEO，他知道这玩意儿有害，咱说一万遍不管用，但这俩人说的真的很管用，他们知道疫苗含有石墨烯。这个疫苗是什么概念，我再给大家举个例子，再给你们举个最清楚的例子。
+[https://www.whitehouse.gov/briefing-room/press-briefings/2021/12/07/press-briefing-by-press-secretary-jen-psaki-and-national-security-advisor-jake-sullivan-december-7-2021/](https://www.whitehouse.gov/briefing-room/press-briefings/2021/12/07/press-briefing-by-press-secretary-jen-psaki-and-national-security-advisor-jake-sullivan-december-7-2021/)
 
-这个打到你身体的刺突蛋白，不但一生不会拿下去，拿不掉的。它在你血管壁上建了40万亿个像是给心脏搭桥的那种桥，除非你死了烧了它才会没了，否则它永远不会消失。我再次问了欧洲科学家，科学家说我告诉你石墨烯可以做成各种服装，各种化妆品，因为它是脂质纳米颗粒。纳米级别进到你身体里的，没有一样是可以消失的。这是为什么PM2.5进到你肺里边儿它不会再出去了，它出不去了。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-3.png)
 
-这是什么概念呢？纳米颗粒是可以在钢铁里边游走的，它都可以在钢铁里流动的。钢铁啊，昨天我听了都吓傻了。他说就像暗物质一样，在钢铁之间都可以游走的，大家去好好查查去。科学家说，只有老百姓不懂，科学家全懂。
+总编：AN
 
-为什么做脸膜呀，做衣服，纳米衣服呀。他说所有这些东西，全部都是有害的。因为它在你身体里、在你细胞里走来走去，就像是在自由空间一样的。这就像咱把一把面撒在了渔网里，我们的细胞就是渔网，石墨烯就是面，畅通无阻。
+编辑：飞虹
 
-这个面若是掉到地上，你就永远收不回来了。科学家专门跟我说，文贵，你可以把血管形容为沾了水、沾了油的地，当一把面漏过渔网沾到地上，地上还有一滩油，你还能收回来吗？这油就相当于你的血液，刺突蛋白粘到你血管上，它就再也下不来了。
+校正/发稿：浪迹天涯
 
-这就是为什么最大伤害的是大脑。他说这个脂质纳米在大脑里游走，在你大脑里边儿随便转，哎呦，永远不可能出去了。它会影响你的神经系统，血液循环、血管壁，可以导致你抑郁，真的让你抑郁。
-
-为什么呢？你的神经系统出问题了，而且是大量的出现。女的子宫癌、胸腺癌、胰腺癌，也会大量发生。男人老坐着，所有的病全传导下边去了——胰腺癌。当你的器官老不用的时候，里边儿沉积的全是病毒，还有末端神经和迷走神经，全都沉到那去了。这就像一把面扔到网里，最终落到哪儿去？落到有油的地面，沾到地面最低的地方，它的危害就这么大。他说谁要说这个东西会自己消解，绝对就是骗人的。
-
-欧洲科学家还说，研究者和制药者全都清楚，辉瑞制药前CEO和现CEO说的是实在话，他不管谁打疫苗，我都不打。科学家说，给孩子打有什么样的威胁么？他说，我告诉你，对孩子的威胁就大了去了！孩子就像一个海绵吸满了油，你如果把一把面撒到了海绵里，最终哪怕你把那个油给挤干了，你看那个面能不能出来。永远都出不来的！你打了疫苗，就是打开了你所有基因的大门，每个基因和细胞的门，你怎么可以再把门关上，把刺突蛋白撵出去呢？永远不可能了。
-
-能消解也是细胞把它消解，但石墨烯是不可消解、不能消化的东西，怎么消解啊？
-
-好了，大家知道了，巴西、德国、包括议会这些人，法国、日本的议会，中共二十大，美国中期选举，还有谁呀，加拿大小土豆（特鲁多），所有这些人将会面临什么事情，知道吗？政治疫苗接下来就是疫苗诉讼，疫苗反抗，疫苗运动，疫苗死亡，然后疫苗追责。为什么？大家要记住，所有疫苗的推广都是有黑手的，这个疫苗的创始者是中共和俄罗斯，还有部分沼泽地，这是毋庸置疑的。就这么简单！所有政府都被利用了，被欺骗了，别把它们想得这么坏。
-
-第二条，最大的问题，战友们现在你们在看的，你们去上你电脑去查，疫苗俩字儿，中英文、法文、德文去查，专门儿在Google，在中共国的百度，在雅虎，在所有的搜索引擎和所有的云计算里面，辉瑞制药和中国的科兴疫苗在过去的6个月里面，改变了人类上所有的大数据。大家记住，AI推送是所有互联网最大的问题。就是我知道你的信息，我拿走了你个人的数据。然后你看过一把枪，你看过一个性视频，你看了一个虐待视频，我就推给你相同的视频，因为我拿了你的数据分析，这就叫AI。
-
-所以说这就是最可怕的，人类互联网的可怕就来自于这里，那么AI一旦用这个程度，你下一步干什么，你怀孕你买怀孕的什么东西它都知道了，掌握了你的一切。这是人类第一次真正在一个领域使用AI达到了81%。记住，当你的行为被控制超过40%的时候，实际上你就没有自由了。现在AI和疫苗绑一块了。
-
-**往期回顾：
-**[文·贵天成——文贵先生谈“疫苗”（一）](https://gnews.org/zh-hans/1645800/)
-[文·贵天成——文贵先生谈“疫苗”（二）](https://gnews.org/zh-hans/1645804/)
-[文·贵天成——文贵先生谈“疫苗”（三）](https://gnews.org/zh-hans/1668258/)
-[文·贵天成——文贵先生谈“疫苗”（四）](https://gnews.org/zh-hans/1668474/)
-[文·贵天成——文贵先生谈“疫苗”（五）](https://gnews.org/zh-hans/1668591/)
-[文·贵天成——文贵先生谈“疫苗”（六）](https://gnews.org/zh-hans/1670496/)
-[文·贵天成——文贵先生谈“疫苗”（七）](https://gnews.org/zh-hans/1670125/)
-[文·贵天成——文贵先生谈“疫苗”（八）](https://gnews.org/zh-hans/1684720/)
-[文·贵天成——文贵先生谈“疫苗”（九）](https://gnews.org/zh-hans/1684707/)
-[文·贵天成——文贵先生谈“疫苗”（十）](https://gnews.org/zh-hans/1704875/)
-[文·贵天成——文贵先生谈“疫苗”（十一）](https://gnews.org/zh-hans/1689446/)
-[文·贵天成——文贵先生谈“疫苗”（十二）](https://gnews.org/zh-hans/1689743/)
-[文·贵天成——文贵先生谈“疫苗”（十三）](https://gnews.org/zh-hans/1694796/)
-[文·贵天成——文贵先生谈“疫苗”（十四）](https://gnews.org/zh-hans/1695670/)
-[文·贵天成——文贵先生谈“疫苗”（十五）](https://gnews.org/zh-hans/1695638/)
-[文·贵天成——文贵先生谈“疫苗”（十六）](https://gnews.org/zh-hans/1695695/)
-[文·贵天成——文贵先生谈“疫苗”（十七）](https://gnews.org/zh-hans/1728442/)
-[文·贵天成——文贵先生谈“疫苗”（十八）](https://gnews.org/zh-hans/1728442/)
-[文·贵天成——文贵先生谈“疫苗”（十九）](https://gnews.org/zh-hans/1728442/)
-[文·贵天成——文贵先生谈“疫苗”（二十）](https://gnews.org/zh-hans/1703796/)
-[文·贵天成——文贵先生谈“疫苗”（二十一）](https://gnews.org/wp-admin/post.php?post=1703749&amp;action=edit&amp;lang=zh-hans)
-[文·贵天成——文贵先生谈“疫苗”（二十二）](https://gnews.org/wp-admin/post.php?post=1703970&amp;action=edit&amp;lang=zh-hans)
-[文·贵天成——文贵先生谈“疫苗”（二十三）](https://gnews.org/wp-admin/post.php?post=1703992&amp;action=edit&amp;lang=zh-hans)
-[文·贵天成——文贵先生谈“疫苗”（二十四）](https://gnews.org/zh-hans/1704142/)
-[文·贵天成——文贵先生谈“疫苗”（二十五）](https://gnews.org/zh-hans/1710182/)
-[文·贵天成——文贵先生谈“疫苗”（二十六）](https://gnews.org/zh-hans/1710207/)
-[文·贵天成——文贵先生谈“疫苗”（二十七）](https://gnews.org/zh-hans/1710218/)
-[文·贵天成——文贵先生谈“疫苗”（二十八）](https://gnews.org/zh-hans/1719792/)
-[文·贵天成——文贵先生谈“疫苗”（二十九）](https://gnews.org/zh-hans/1719861/)
-[文·贵天成——文贵先生谈“疫苗”（三十）](https://gnews.org/zh-hans/1728380/)
-[文·贵天成——文贵先生谈“疫苗”（三十一）](https://gnews.org/zh-hans/1728390/)
-[文·贵天成——文贵先生谈“疫苗”（三十二）](https://gnews.org/zh-hans/1728442/)
-[文·贵天成——文贵先生谈“疫苗”（三十三）](https://gnews.org/zh-hans/1728442/)
-[文·贵天成——文贵先生谈“疫苗”（三十四）](https://gnews.org/zh-hans/1728442/https://gnews.org/zh-hans/1731671/)
-[文·贵天成——文贵先生谈“疫苗”（三十五）](https://gnews.org/zh-hans/1731651/)
-[文·贵天成——文贵先生谈“疫苗”（三十六）](https://gnews.org/zh-hans/1732165/)
-
-*发布：盘古相聚*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-4.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

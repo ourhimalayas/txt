@@ -2,36 +2,45 @@
 ---
 
 
-## 美国安顾问：美国将采取行动 确保中共不会犯台
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1734893/)
+## 12/08/2021 国际财经快讯：业界警告国会，美国对加密货币的监管存在 &#8220;寒蝉效应&#8221;；华尔街在市场 &#8220;泡沫化 &#8220;后重启
+` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1733135/)
 
-作者：纽约香草山医疗部-云豹
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-3.png)
-12月7日，在关于拜登与普京视频会议的白宫新闻简报会上，有记者向美国安顾问苏利文提问，如果俄罗斯侵略乌克兰，同时中共以武力侵犯台湾，美国是否做好了应对准备？苏利文回答，美国将从威慑和外交方面采取一切可以采取的行动，以确保中共犯台的局面不会发生。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-401.png)
-苏利文同时表示，上述表态既是美国目前的政策目标，也是美国正在采取的应对步骤。在过去的8个月中，美国在印太地区所做的全部努力，也是为了避免中共作出任何不适当的选择。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2021208-2.jpg)[图片来源](https://www.reuters.com/resizer/qhKYoCLEH9OCX2ARrbvyDLIyPUw=/960x0/filters:quality%2880%29/cloudfront-us-east-2.images.arcpublishing.com/reuters/47SHBFTI7NKAHNKIAPS6BBFQ64.jpg)
+**1.业界警告国会，美国对加密货币的监管存在 “寒蝉效应”**
 
-[新闻连接]：
+[华盛顿，12月8日（路透社）–六家加密货币公司的高层管理人员周三将告诉国会，在对数字资产实施新规则时要谨慎行事–否则就有可能将活动转入地下或转移到美国以外。在美国东部时间10点开始的美国众议院金融服务委员会的听证会之前，领导世界上一些最大的加密货币公司的高管在准备好的证词中表示，他们将普遍支持更清晰的规则。但他们将强调，过度的限制性规则不会扼杀这种活动，而只是将其推离美国的范围。”Coinbase Inc.的首席执行官Alesia Haas在周二发布的证词中警告说：”如果没有在公众参与下公开辩论的量身定制的立法解决方案，美国将面临不必要的繁琐和令人寒心的法律和法规。](https://www.reuters.com/markets/europe/us-risks-chilling-regulations-crypto-industry-warns-congress-2021-12-07/)
 
-[https://www.cna.com.tw/news/firstnews/202112080008.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/firstnews/202112080008.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+**2.华尔街在市场 “泡沫化 “后重启，但美联储的担忧迫在眉睫**
 
-[https://www.whitehouse.gov/briefing-room/press-briefings/2021/12/07/press-briefing-by-press-secretary-jen-psaki-and-national-security-advisor-jake-sullivan-december-7-2021/](https://www.whitehouse.gov/briefing-room/press-briefings/2021/12/07/press-briefing-by-press-secretary-jen-psaki-and-national-security-advisor-jake-sullivan-december-7-2021/)
+[纽约，12月8日（路透社）–利用股市最近的暴跌来挖角的投资者希望今年的最后几周能给股票价格带来新的力量，即使对欧米茄变种和更激进的美联储的担忧继续笼罩。两天的大涨使标准普尔500指数（.SPX）回到了历史高点附近，并几乎抹去了该指数在中共病毒的新欧米茄变种出现和美联储可能的鹰派转向后所遭受的超过4%的损失。欧米茄的不确定性仍然存在，即使它可能导致较温和的疾病的乐观情绪有助于提振市场，而下周的美联储会议可能为投资者带来不受欢迎的消息，他们担心央行可能以比预期更快的速度开始正常化货币政策，以对抗激增的通货膨胀。](https://www.reuters.com/markets/europe/wall-st-hits-reset-after-market-froth-fed-fears-loom-2021-12-08/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-3.png)
+**3.日本第三季度GDP下滑，因消费支出受到打击**
 
-总编：AN
+[东京（路透社）–日本第三季度的经济萎缩速度略高于最初报告的速度，因为当地中共病毒病例的急剧增加打击了私人消费，全球芯片供应短缺伤害了企业的情绪。更深层次的萎缩是决策者的一个挫折，他们希望缓解供应短缺和放松对大流行病的抑制将支持世界第三大经济体在本季度的复苏。周三内阁办公室的修订数据显示，日本经济在7-9月的年化降幅为3.6%，比初步读数3.0%的萎缩更糟糕。该数据比经济学家预测的3.1%的降幅中值要差，相当于实际季度环比下降0.9%，而初值为下降0.8%。](https://www.oann.com/japans-q3-gdp-revised-down-to-3-6-annualised-contraction/)
 
-编辑：飞虹
+**4.防御性行业在两天的反弹后支撑欧洲股市**
 
-校正/发稿：浪迹天涯
+[(路透社）–欧洲股市在创下一年多来最强劲的两天涨幅后，周三走高，防御性股票处于领先地位，因为投资者权衡现有疫苗对欧米茄冠状病毒变体的有效性。在过去两天跳涨3.8%之后，整个地区的STOXX 600指数在上午的交易中上涨了0.3%。与辉瑞公司合作生产中共病毒疫苗的BioNTech公司在法兰克福上市的股票下跌了6.3%，此前一项研究显示，Omicron变体可以部分规避其两剂疫苗的保护。在经济不确定时期被认为比较稳定的行业，如医疗保健、食品和饮料以及公用事业，都是涨幅最大的行业。”Forte Securities的销售交易员Keith Temperton说：”证据开始变得清晰，这是一个传播性更强但破坏性更小的变体。](https://www.oann.com/defensive-sectors-lift-european-shares-after-two-day-rally/)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-4.png)
+**5.丹麦为实现气候目标首次发行绿色债券**
+
+[哥本哈根（路透社）–丹麦中央银行周三表示，丹麦将在明年初发行其首只绿色债券，以帮助其向碳中和和可持续经济过渡。AAA级评级的丹麦一直处于风力发电发展的前沿，一直在寻找为其绿色转型提供资金的方法，其中包括到2030年将温室气体排放量比1990年的水平减少70%。丹麦央行表示，10年期绿色债券将于2022年1月19日发行，票面利率为0.00%，2031年11月15日到期，但前提是市场条件稳定。”央行副行长Signe Krogstrup在一份声明中说：”通过绿色债券，丹麦政府提供了一种在投资者中需求量很大的产品，它可以支持一个广泛和多样化的投资者基础。](https://www.oann.com/denmark-lines-up-first-green-bond-to-hit-climate-goals/)
+
+**6.美国贸易主管与英国贸易部长讨论钢铁和铝业贸易**
+
+[华盛顿（路透社）–美国最高贸易谈判代表Katherine Tai在周二与英国贸易部长Anne-Marie Trevelyan的会谈中强调了华盛顿对解决来自 “非市场 “经济体的钢铁和铝行业的过剩产能的关注，其办公室表示。戴笠和特维尔安强调了两国之间的 “特殊关系”，并同意就贸易问题保持密切联系，但没有宣布就将英国纳入美国和欧盟10月份签署的钢铁贸易协议进行任何正式谈判。美国贸易代表办公室说，戴氏强调了正在进行的共同努力和与其他伙伴合作，以解决包括中国在内的非市场政策和做法所带来的共同挑战。鉴于原定于上周举行的世界贸易组织（WTO）部长级会议被推迟，两人还同意继续就重要的世界贸易组织（WTO）议题进行合作，包括知识产权问题、中共病毒大流行病和渔业补贴。](https://www.oann.com/u-s-trade-chief-uk-trade-minister-discuss-steel-and-aluminum-sectors-ustr/)
+
+**7.法国经济第四季度增长将略低于0.75%**
+
+[巴黎（路透社）–法国央行周二表示，由于企业正在努力应对日益不确定的健康状况，法国经济在今年最后一个季度的增长将略低于0.75%。由于法国现在处于第五波中共病毒疫情中，与上个月法国央行预测的第三季度起0.75%的增长相比，前景略显乐观。总理Jean Castex周一晚间表示，俱乐部将在圣诞节前关闭，并收紧社会疏导措施，但排除了新的封锁，因为近90%的合格者已经接种了疫苗。根据对8500家企业的月度调查结果，央行表示，企业预计工业和服务业的经营状况将有所改善，而建筑业的活动被认为是稳定的。](https://www.oann.com/french-economy-set-for-fourth-quarter-growth-slightly-below-0-75-central-bank/)
+
+**8.Visa为金融机构和商户推出加密货币咨询服务**
+
+[12月8日（路透社）–全球最大的支付处理商Visa Inc（V.N）周三为其银行客户和商户推出了一项全球加密货币咨询服务，因为数字货币的采用在不断增长。该公司表示，此举针对的是渴望用加密货币产品吸引或留住客户的金融机构、希望深入研究不可伪造代币（NFTs）的零售商或探索数字货币的中央银行。Visa的服务包括对机构进行加密货币的教育，允许客户使用支付处理器的网络来提供数字产品，并帮助管理后端操作。Visa的一项新的全球研究显示，近40%的受访加密货币持有者表示，他们很可能或非常可能在未来12个月内将其主要银行换成提供加密货币相关产品的银行。](https://www.reuters.com/markets/currencies/visa-launches-crypto-advisory-service-financial-institutions-merchants-2021-12-08/)
+
+By 【秘密翻译组-金融法律组】
+作者：千年等一回
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
