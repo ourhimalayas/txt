@@ -2,31 +2,62 @@
 ---
 
 
-## 七哥说决战之中谁也不欠谁的（2021-12-08摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1736774/)
+## 灭共者之郭先生直播厅（一）
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1736961/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+**出品：纽约香草山设计部**
 
-来源：郭先生2021-12-08直播11：46：19摘录
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-我不想对任何人说感激，如果你认为这是共同的使命咱就一起战斗，如果你觉得有任何犹豫，你一定要退出。在这场战争当中，决战之中谁也不欠谁的？ 永远不要说谁欠谁的，我特别讨厌说你们欠七哥的，感谢七哥的，你们不要感谢我。 我不是为了报仇，保财，保命，我不会走到今天的。 他不杀害我的弟弟，不虐待我的父母，不是把我抓到二十几个监狱里，不是保我的财保我的命，我不会干共产党的，这是个基本的前提。 只要我有这个心，没有人可以跟我交易，没有人可以交换得了。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-**关注我们**
 
-Discord 账号
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-Gettr 账号
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/3-20211209-02-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/4-20211209-05-scaled.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/5-20211209-03-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/6-20211209-06-scaled.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/1-92-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/2-34-scaled.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/7-20211209-07-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/8-20211209-12-scaled.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/9-20211209__1-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/10-20211209-04-scaled.jpg)
+
+
+
+
+**发稿：小鹿**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-2.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
 
  
 

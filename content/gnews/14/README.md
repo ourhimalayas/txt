@@ -2,36 +2,41 @@
 ---
 
 
-## 俄向美发警告在俄边境挑衅将导致危险后果
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1736956/)
+## 一年后：英国首相的高级职员在违反规则的圣诞派对上被捕
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1737047/)
 
-作者：Cristina Laila
+作者：RebelNews
+翻译：KK
 
-编译：尚劲哥
 
-据《网关专家》（thegatewaypundit) 12月8日新闻，俄罗斯总统普京在与美国总统乔·拜登12月7日通话之后的一天，俄罗斯就向美国驻莫斯科大使馆发出照会警告，称美在俄罗斯边境附近进行挑衅将带来危险后果， 拜登在视频电话中警告普京不要入侵乌克兰。
 
-俄罗斯克里姆林宫发言人玛丽亚·扎哈罗娃（Maria Zakharova）在声明中说： 美国和北约成员国在俄罗斯边境周边的军事活动，包括战斗机飞行和海军舰艇的危险演习，继续呈螺旋上升趋势，他们已从试图测试我们的边境保护系统转向对民用飞机进行挑衅，危及空域安全和人类生命。
+在昨晚的节目中的以斯拉地中海秀中，我们看到新发布的视频从2020年显示鲍里斯·约翰逊保守党政府成员在唐宁街10号出席一个违反规定的圣诞派对的证据。
 
-通过保留对美国和以美国为首的北约成员国的挑战作出实物回应的权利，莫斯科呼吁就安全保障和降低军事和政治紧张局势的方法进行深入对话，包括防止空中和海上的碰撞选项。”
+以下是以斯拉不得不说的一些内容：
 
-“否则，我们将部署所有可用的手段来预防和消除新出现的威胁，”她补充道。
+“……当权者不遵守规则。除了伊丽莎白女王，她的丈夫在70多岁的时候去世了，她遵守规则，独自坐在他的葬礼上，戴着口罩。
 
-与此同时，乔·拜登直接寻求绥靖，并表示他正在努力为普京“制定任何妥协”。
+“她遵守规则。但没有一个政客做到了。
 
-译者简评：
+所以有消息说，正是在鲍里斯约翰逊命令公民不要聚集的时候，为什么去年在唐宁街 10 号举行了一系列圣诞派对。”
 
-大国之间没有永远的朋友，只有永恒的利益，文贵先生早前指出，俄罗斯和中共之间的战略计划，就是分别行动——你取台湾、我取乌克兰。你开始在俄罗斯在欧洲推行你的天然气、技术，你把技术给我，天上地上我来干，我来占用市场，然后再把中东非洲亚洲拿下，让美国人饿死他。当前俄罗斯出现的精英和资金外逃现象，像极了苏联解体的前夕”。但是美国绝不会袖手旁观，一通电话，形势急转。
+来源：[https://www.rebelnews.com/uk\_prime\_ministers\_senior\_staff\_caught\_at\_rule-breaking\_christmas\_party](https://www.rebelnews.com/uk_prime_ministers_senior_staff_caught_at_rule-breaking_christmas_party)
 
-文贵先生12月8日的直播透露，俄罗斯已经转战整个东亚，最近和缅甸、柬埔寨签订了秘密军事基地，越南的军事基地准备让给俄罗斯。俄罗斯在南海的采油，比中共国的多一倍。南海的油，够整个亚洲使用1200年，这是共产党的噩梦。习花了一万亿买俄罗斯，结果最后一刻人家把他卖了。
+（文章仅代表作者个人观点）
 
-这说明，美国的战略调整，美俄联合抗共，共产党必死无疑。看来老共白道黑道都无人问津，黄泉路上唢呐声声招魂。
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-[援引原文：](https://www.thegatewaypundit.com/2021/12/russia-sends-warning-us-embassy-moscow-dangerous-consequences-provocations-near-russias-borders-one-day-biden-putin-call/)
+**关注我们**
 
-审核校对：sherryok (水云间)
+Discord 账号
 
-上传排版：CharlieNZ查理
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

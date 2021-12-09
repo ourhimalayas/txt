@@ -2,47 +2,70 @@
 ---
 
 
-## 爆出疫苗含有石墨烯，德国化学家神秘离世
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1737155/)
+## Covid 疫苗的 8 种最常见和最严重的不良反应
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1737187/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Vaccine2-scaled.jpeg)图片来源：Daily Sabah
-翻译/编辑：守望黎明
+翻译： Jenny Ball
 
-11月23日，世界知名的德国化学家安德烈亚斯·诺亚克（Andreas Noack）博士发布了一段视频（在《每日曝光》上还可以看到这段视频），曝光出在新冠疫苗中存在有氧化石墨烯。三天后，诺亚克神秘地死去。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-4-3.jpg)图片来源：naturalnews.com（作者：SD Wells）
 
-虽然围绕诺亚克死亡的具体原因仍然不明，但有报道说，他是因为受到了”攻击”而死去的。这是诺亚克怀孕的妻子所说的，她在诺亚克死后发布了自己的视频，以发出报警。
+自然新闻([Natural News](https://www.naturalnews.com/)) – 长期以来，疫苗一直被认为是美国医学的圣杯，因为它们以这种方式出售。在一个以商品、服务和药物的广告和营销为基础的资本主义国家，大多数美国人相信他们在电视上听到、在线阅读以及在杂志和报纸上看到的一切。他们认为这一切都是真实的、合法的，并被当地的官员批准使用或消费。然而，媒体和政府推动的大多数产品和药物都是掺假的，对人体有毒，尤其是疫苗。
 
-诺亚克的妻子在视频中透露：“他在拍摄氧化石墨烯视频的当天，就出现了呼吸困难，并在三天后的2021年11月26日清晨死亡。”。
+更糟糕的是，假冒疫苗会导致[可怕的副作用和不良事件](https://thepulse.one/2021/11/25/pfizer-was-aware-of-over-50k-serious-covid-vaccine-reactions-with-months-of-distribution/)，这些副作用和不良事件通常是永久性的，包括死亡。现在，这些有害的健康损害正在被掩盖，不仅在它们发生之后，而且在临床试验期间。
 
-诺亚克的妻子进一步提出，诺亚克身上没有什么外伤，他也许是受到了某种定向武器（DEW）的攻击。诺亚克是在揭露疫苗真相的当天，患上的一种奇怪的呼吸道疾病。
+事实上， [新发现的辉瑞文件显示](https://www.naturalnews.com/2021-12-02-smoking-gun-pfizer-document-exposes-fda-criminal-cover-up-of-vaccine-deaths.html)，在近一年前的 2021 年 1 月和 2 月，报告了数以万计的不良反应。这些文件是在一组原告教授/科学家提交《信息自由法》请求后出现的。这通常是唯一途径让公众发现这些制药罪犯和他们大规模杀人犯的阴谋，以及用有毒疫苗蒙骗群众的伎俩。
 
-诺亚克的妻子用德语解释道：就在氧化石墨烯视频发布的那一天，他还接受了Herald Thiers的采访。然后，我们一起上了楼，聊天谈笑，气氛轻松。随后，他想下楼到厨房去拿点东西吃，通常他在那里待一会就会出来。我也跟下楼去，并跟他开玩笑说：’你又把所有东西都吃光了！’。在那一刻，他的身体开始摇晃，我还以为他在逗我。”
+**谁会相信年复一年的惯犯的制药罪犯？**
 
-**诺亚克是被谋杀的吗？**
+怎么会有人相信为辉瑞、莫德纳、强生、默克或任何疫苗制造这样黑帮的人，他们的行为就像重犯一样，都应该在监狱里服刑。在我们应该击退流行病的最重要的医学领域，**完全缺乏透明度，**** ****这肯定不会****“****拉平曲线****”****或阻止**** Covid ****的传播**。美国各地的医生和护士被虚假信息误导，并受到不适当的教育，将虚假信息传递给他们的患者。这些错误信息导致医护人员通过基因注射治疗，不计后果地的危及人们的生命。这些注射杀死（并致残）的人，远远多于他们挽救的人。
 
-就在这一刻，诺亚克的妻子仍然认为他是假装的，并试图叫他停下来。但诺亚克并没有停下来，而接下来发生的事情更令人震惊。
+在疫苗分发后的短短几个月内，辉瑞的高管和科学家们就知道，在最初几个月内，报告了大约 50,000 多种由 Covid 疫苗引起的[严重不良反应](https://phmpt.org/wp-content/uploads/2021/11/5.3.6-postmarketing-experience.pdf)，但他们没有告诉任何人。
 
-她继续解释说：“在那一刻，电突然停了。整个事情就发生在接受采访后的20-30分钟，然后他就瘫倒在了那里，并开始呻吟，有严重的疼痛。他的身体完全绷紧了，而且突然间就不能说话了。起初，我以为他可能中毒了，因为他发出了上不来气的声音。于是，我给他灌了些盐水，然后他就把吃的东西吐了出来，其实也不多。我再也没有别的什么办法了。”
+**辉瑞在向**** FDA ****的**** SECRET ****中承认，****mRNA Covid ****疫苗会导致****“****病情加重****”****，从而加剧大流行。**
 
-诺亚克处在一种无法描述的 “瘫痪”状态，妻子一直陪着他，并帮助他保持身体直立，以免撞到头。诺亚克最终能够站起来自己上了楼，但在最终又出现了第二轮”瘫痪”，继续出现呼吸困难。
+**在一份确凿的文件中，辉瑞在****“****安全问题****”****的标题下向**** FDA ****承认，****mRNA ****注射会导致****“****疫苗相关增强疾病****”****（****VAED****），这也可能是呼吸道感染****/****功能障碍。设想，**** Covid ****病毒是由人类在实验室进行基因改造的病毒引起的呼吸道感染，针对该病毒感染的疫苗会导致人类呼吸系统患上呼吸道疾病，这无异于火上浇油。**
 
-她回忆说：“他不能呼吸了，我开始尖叫。我对他大喊，想让他摆脱这种状况。我哭了，他还试图安慰我。而我忙着确保他能够正常地呼吸。”
+所以 FDA 知道这一点，辉瑞知道这一点，但他们仍然被授予“紧急使用批准”，以进一步感染数百万美国人，而人们却一无所知。
 
-紧急救援人员试图通过电话指导诺亚克的妻子对他施救，她说感觉时间就像是过了几个小时。最后，六个救援人员来到了现场，为诺亚克装上了呼吸器。
+这份秘密文件还披露了辉瑞 mRNA 注射的 **1200 ****多人死亡和**** 42,000 ****多份不良报告**，总计近 **160,000 ****次不良反应**。这将使他们不得不为每一个被他们欺骗而受伤或死亡的患者（包括每个男人、女人、儿童、婴儿或怀孕终止），承担数百万美元的损失。
 
-诺亚克的妻子被告知，她的丈夫能够被救活。但他被送往医院后，却在那里永远地离去了。医生说他死于心脏病发作，“他的心脏瓣膜已经完全失效”。
+一般疾病和神经系统疾病， 在这些已知不良反应的图表中名列前茅。此外，由于某种未知原因（人口控制），女性受到的影响是男性的三倍。这种疫苗是为了减少人口而设计的，是针对性别特定的损害吗？ 辉瑞和 FDA 肯定知道这件事。看看下面这些 Covid 疫苗最常见和最严重的 8 种不良反应：
 
-（文章仅代表作者个人观点，内容与GNEWS无关）
+#1. 心肌炎
+#2. 新的神经系统疾病
+#3. 新的呼吸系统疾病
+#4. 血块
+#5. 新的肌肉骨骼疾病
+#6. 新的胃肠道疾病
+#7. 过敏性休克（近 10%） #8. 新感染，包括感染 Covid 及其变种[New infections](https://www.naturalnews.com/2021-12-03-mrna-vaccines-dramatically-increase-inflammatory-markers.html)
 
-原文链接：[German chemist Dr. Andreas Noack found DEAD after exposing presence of graphene hydroxide in covid “vaccines”](https://www.naturalnews.com/2021-12-08-andreas-noack-dead-graphene-hydroxide-covid-vaccines.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/unknown-4-2.png)图片来自原文
 
-发布：Peter Xin
+文章内容来源：
 
-**更多****资讯****，****请关****注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[Pandemic.news](https://www.pandemic.news/2021-03-04-who-insider-exposes-gavi-gates-perpetrating-plandemic.html)
+
+[TruthWiki.org](http://www.truthwiki.org/cdc-centers-for-disease-control-and-prevention/)
+
+[NaturalNews.com](https://www.naturalnews.com/2021-12-02-smoking-gun-pfizer-document-exposes-fda-criminal-cover-up-of-vaccine-deaths.html)
+
+[ZeroHedge.com](https://www.zerohedge.com/covid-19/joe-rogan-crushes-cnn-over-ivermectin-horse-paste-propaganda-gets-gupta-concede)
+
+[FoodSupply.news](http://www.foodsupply.news/2021-11-18-food-shortage-engineered-to-control-people.html)
+
+[RepublicWorld.com](https://www.republicworld.com/world-news/us-news/thousands-of-americans-have-experienced-severe-reactions-to-covid-vaccines-cdc-report.html)
+
+[ThePulse.one](https://thepulse.one/2021/11/25/pfizer-was-aware-of-over-50k-serious-covid-vaccine-reactions-with-months-of-distribution/)
+
+[naturalnews][Top 8 most COMMON and SERIOUS adverse reactions to Covid vaccines](https://www.naturalnews.com/2021-12-04-top-8-most-common-serious-adverse-reactions-covid-vaccines.html)
+
+* * *
+
+*审核：文乐
+校对：信心满满
+发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH..jpeg)
 
  
 
