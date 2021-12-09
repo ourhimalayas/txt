@@ -2,32 +2,30 @@
 ---
 
 
-## 美国参议院通过共和党法案推翻拜登疫苗授权
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1736445/)
+## 日本发明可测新冠的发光口罩
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1736505/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/51346697-0-image-a-41_1638660590891-7.jpg)11月3日，美国总统乔•拜登(Joe Biden)在美国华盛顿白宫艾森豪威尔行政办公大楼的南法院礼堂发表讲话时，就授权5至11岁儿童接种新冠病毒（COVID-19）疫苗发表了讲话。 路透社Evelyn Hockstein提供文件及照片
-路透社报道：华盛顿12月8日——民主党控制的美国参议院周三批准了一项共和党倡议的法案，该法案将推翻乔•拜登(Joe Biden)总统对私营企业强制推行新冠(COVID-19)疫苗或测试的授权，两名民主党人与共和党人一道支持了该倡议。
+翻译/编辑：守望黎明
+![](https://assets.gnews.org/wp-content/uploads/2021/12/9.jpeg)图片来源：Kyoto Prefectural University
+来自日本的科学家说，他们利用鸵鸟抗体设计出的发光口罩，能够判断一个人是否感染了新冠病毒。
 
-投票将立法申请提交给了众议院，在那里它将面临着不确定的未来。
+据共同社报道，这种不寻常的检测方法是由京都府立大学的一个团队开发的。研究人员给鸵鸟注射了一种不惧危险性的灭活冠状病毒，并从它们产下的蛋里提取到了抗体。然后他们将带有抗体的荧光染料喷洒在一个特殊的滤膜上，再把滤膜装在口罩中。当有冠状病毒出现时，这个滤膜会在紫外线下发光。
 
-简评：
+研究人员在对32名感染者进行了10天的监测后，发现他们所配戴的口罩都在发光。随着时间的推移，当被试者身上的病毒量减少时，发光的程度也会逐渐减弱。
 
-爆料革命的战友都知道，中共病毒和中共病毒疫苗都是以中共为首的世界黑暗力量迫害人类的生物武器。拜登政府强制推行新冠疫苗接种更是助纣为虐，将成为人类历史的罪人。此报道显示，美国共和民主两党的有识之士已经开始觉醒并认清了拜登政府的黑暗本质，他们开始走到前台对抗拜登政府，给世界各国做出榜样，给世界人民带来一线曙光。
+该大学的校长也是该项目的负责人塚本康弘（Yasuhiro Tsukamoto）说，他是在戴了实验性口罩后，才发现的自己已经感染了新冠。
 
-新闻链接：[U.S. Senate passes Republican bill to overturn Biden vaccine mandate](https://www.reuters.com/world/us/us-senate-passes-republican-bill-overturn-biden-vaccine-mandate-2021-12-09/)
+冢本的团队计划将该实验对象扩大到150名，并计划在明年获得政府批准销售这种口罩。 冢本说：”我们可以以低廉的成本在鸵鸟身上大量生产抗体。在未来，我想把这种口罩变成一个人人可以使用的简易病毒测试套件。”
 
-* * *
+原文链接：[Scientists design glowing masks that detect Covid](https://www.rt.com/news/542665-japan-glowing-mask-covid/)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+发布：去中心化Math
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -15,92 +15,92 @@
 
 ---
 
-### [银河快讯:日本将启动国家安全战略讨论；自卫队与美军举行部队联合训练](/content/gnews/1/README.md)
+### [美众议院昨通过三项法案施压中共](/content/gnews/1/README.md)
+ ` HimalayaRussia`
+
+### [结对合作帮扶是否为体制内上山下乡的开端](/content/gnews/2/README.md)
+ ` G-NEWS TAIWAN`
+
+### [台湾首位千万订阅YouTuber诞生 曾遭中共国封杀](/content/gnews/3/README.md)
+ ` G-NEWS TAIWAN`
+
+### [FDA发布第一批关于辉瑞Covid疫苗的FOIA文件](/content/gnews/4/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [银河快讯：日本对赴北京冬奥会态度消极；日本和台湾加强联系](/content/gnews/5/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [因为共同的使命我们一起战斗,若有任何犹豫,请一定要退出](/content/gnews/2/README.md)
+### [银河快讯:日本将启动国家安全战略讨论；自卫队与美军举行部队联合训练](/content/gnews/6/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [因为共同的使命我们一起战斗,若有任何犹豫,请一定要退出](/content/gnews/7/README.md)
  ` NewFOC`
 
-### [12/09/21 香港快讯 黎智英、邹幸彤、何桂蓝未经批准集结全部罪成 12.13求情判刑](/content/gnews/3/README.md)
+### [12/09/21 香港快讯 黎智英、邹幸彤、何桂蓝未经批准集结全部罪成 12.13求情判刑](/content/gnews/8/README.md)
  ` 英喜-粵語組`
 
-### [爆料革命日记：回到生活（三）](/content/gnews/4/README.md)
+### [爆料革命日记：回到生活（三）](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [GTV新闻访谈简报|2021年12月9日早](/content/gnews/5/README.md)
+### [GTV新闻访谈简报|2021年12月9日早](/content/gnews/10/README.md)
  ` 纽约香草山MOS01`
 
-### [日本发明可测新冠的发光口罩](/content/gnews/6/README.md)
+### [日本发明可测新冠的发光口罩](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国参议员布朗特警告说，强制疫苗将产生破坏性影响](/content/gnews/7/README.md)
+### [美国参议员布朗特警告说，强制疫苗将产生破坏性影响](/content/gnews/12/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [12/8/2021 文贵直播：单伟建是中共的正部级间谍，隶属具有最高保密级别的秘六局，他直接给中共政治局常委汇报工作](/content/gnews/8/README.md)
+### [12/8/2021 文贵直播：单伟建是中共的正部级间谍，隶属具有最高保密级别的秘六局，他直接给中共政治局常委汇报工作](/content/gnews/13/README.md)
  ` 秘密翻译组-北美组`
 
-### [中共外汇告急，上调外汇存款准备金率2个点](/content/gnews/9/README.md)
+### [中共外汇告急，上调外汇存款准备金率2个点](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [战争已经开始,习近平撑不了三个月,要么它死要么我们赢](/content/gnews/10/README.md)
+### [战争已经开始,习近平撑不了三个月,要么它死要么我们赢](/content/gnews/15/README.md)
  ` NewFOC`
 
-### [美国参议院通过共和党法案推翻拜登疫苗授权](/content/gnews/11/README.md)
+### [美国参议院通过共和党法案推翻拜登疫苗授权](/content/gnews/16/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [12/8/2021 文贵直播：抵制冬奥会是所有美国人的决定，中共冬奥会已彻底结束](/content/gnews/12/README.md)
+### [12/8/2021 文贵直播：抵制冬奥会是所有美国人的决定，中共冬奥会已彻底结束](/content/gnews/17/README.md)
  ` 秘密翻译组-北美组`
 
-### [秘翻在线：“跑的快”的李嘉诚 也逃不出中共的魔爪](/content/gnews/13/README.md)
+### [秘翻在线：“跑的快”的李嘉诚 也逃不出中共的魔爪](/content/gnews/18/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [海外维吾尔人虽身处民主国家但仍受到中共监控与威胁](/content/gnews/14/README.md)
+### [海外维吾尔人虽身处民主国家但仍受到中共监控与威胁](/content/gnews/19/README.md)
  ` 日本东京方舟农场`
 
-### [以美灭共重大进展：美俄首脑举行远程会谈 拜登不会派遣美军赴俄边境](/content/gnews/15/README.md)
+### [以美灭共重大进展：美俄首脑举行远程会谈 拜登不会派遣美军赴俄边境](/content/gnews/20/README.md)
  ` 首尔天池农场`
 
-### [【#G时新闻】病毒疫苗背后的黑暗势力及其终极目的](/content/gnews/16/README.md)
+### [【#G时新闻】病毒疫苗背后的黑暗势力及其终极目的](/content/gnews/21/README.md)
  ` G-时新闻`
 
-### [“身在曹营心在汉”-加拿大离职华裔科学家遭起诉](/content/gnews/17/README.md)
+### [“身在曹营心在汉”-加拿大离职华裔科学家遭起诉](/content/gnews/22/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm Toronto(CA)`
 
-### [文贵视角:92岁中风的亲爹被迫流落在零下4度的街头](/content/gnews/18/README.md)
+### [文贵视角:92岁中风的亲爹被迫流落在零下4度的街头](/content/gnews/23/README.md)
  ` 秘密翻译组-原创组`
 
-### [中共此番折腾这位“瑞士科学家”为哪般](/content/gnews/19/README.md)
+### [中共此番折腾这位“瑞士科学家”为哪般](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [党啊“亲爱的妈妈”！您给孩子留点脸，行吗？](/content/gnews/20/README.md)
+### [党啊“亲爱的妈妈”！您给孩子留点脸，行吗？](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [英国独立机构：中共国在新疆犯下种族灭绝罪](/content/gnews/21/README.md)
+### [英国独立机构：中共国在新疆犯下种族灭绝罪](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线：富力暴雷之际黑石抄底其优质资产](/content/gnews/22/README.md)
+### [秘翻在线：富力暴雷之际黑石抄底其优质资产](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [公家的余粮也不多了 苦日子要来了](/content/gnews/23/README.md)
+### [公家的余粮也不多了 苦日子要来了](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本新发现“杀伤性T细胞”，将可能治疗中共奥密克戒病毒](/content/gnews/24/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [DC每日热点1209](/content/gnews/25/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [美国三部门相继制裁柬埔寨 遏制中共在东南亚的影响力](/content/gnews/26/README.md)
- ` 日本东京方舟农场`
-
-### [中共国批准首个新冠病毒中和抗体联合治疗药物](/content/gnews/27/README.md)
- ` 墨尔本雅典娜农场`
-
-### [蛋壳和盘古](/content/gnews/28/README.md)
+### [蛋壳和盘古](/content/gnews/29/README.md)
  ` 骄子`
-
-### [2021年12月9日 澳喜要闻摘要](/content/gnews/29/README.md)
- ` 澳喜特战旅Gnews`
 
 ### [人生终点服务站欢迎盗国贼家族](/content/gnews/30/README.md)
  ` 骄子`
