@@ -2,27 +2,43 @@
 ---
 
 
-## 加拿大政府因疫苗政策面临法律诉讼
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1734395/)
+## 人伦惨剧，德国家庭因疫苗接种证明而灭门
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1734396/)
 
-原文采编：文莱      翻译编辑：文文-自由法兰西
+**翻译：月映万川
+编辑：守望黎明**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月9日2-1.jpeg)图片来源：AFP
+据官方调查报道，一名德国男子因伪造新冠疫苗接种证明被发现，在杀死了妻子和三个女儿后，自己也自杀身亡。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-42-edited.jpg)图片来源：TCN
+据《纽约邮报》报道，这名被确认名为德维德 （Devid R）的男子12月4日被发现死于柏林南部柯尼希斯·乌斯特豪森的家中，他的妻子琳达和他们的三个女儿一起被枪杀。
 
+检查官称，根据现场的遗书，这位40岁的男子担心伪造疫苗接种证明被举报后，会导致分别为4岁、8岁和10岁的三个女儿被强制送到福利院。
 
-据《多伦多太阳报》12月6日报道，加拿大联邦政府目前面临至少90起与“疫苗强制接种政策”有关的劳工申诉。
+德维德在遗书中承认他为妻子伪造了新冠疫苗接种证明。随后他妻子的雇主发现了疫苗证明系伪造的，并且威胁要向相关部门举报他们。
 
-这项于今年10月生效的政策，要求所有政府公务员和加拿大皇家骑警雇员都必须向当局提供“新冠病毒”疫苗完全接种证明，否则将被迫无薪休假。
+检察官说，该男子担心他和他的妻子都会被逮捕，他们也会因此失去对孩子的监护权。
 
-据悉，在最近的一次裁决中，联邦法官以“法院不得干涉与就业的相关事务”为由，驳回了以上250多名公务员关于暂停执行该接种政策的请求。并宣称此类案件将由一个独立劳工法庭来裁决其是否合法。
+据《柏林晨报》报道，德维德的妻子在TH 威尔道大学工作。
 
-报道称，联邦政府的疫苗接种政策适用于约27万名公务员，而其中约96%的人已完全接种。由于缺乏关于“在工作场所强制接种”方面的法律先例，预计法院、劳工法庭及人权委员会都将在未来几年内面临大量相关诉讼的挑战。
+目前还不清楚男方德维德的具体工作情况。
 
-* * *
+当局表示，这起可怕的谋杀-自杀事件是在邻居们通过窗户看到屋内中枪的尸体后发现的。
 
-校对编辑，发稿：硫酸羟氯喹64
+从上个月开始，德国的雇主要求他们的雇员必须出具疫苗接种或新冠病毒测试阴性的证明才能继续工作。
 
-原文链接： [https://torontosun.com/news/local-news/federal-government-faces-90-individual-labour-grievances-on-mandatory-vaccine-policy/wcm/ca79a2c0-09b9-4f62-a9dd-0bb036f5302b](https://torontosun.com/news/local-news/federal-government-faces-90-individual-labour-grievances-on-mandatory-vaccine-policy/wcm/ca79a2c0-09b9-4f62-a9dd-0bb036f5302b)
+在最近收紧新冠限制措施的情况下，德国当局上周宣布禁止未接种疫苗的人进入非基本行业（包括非必要零售店等）。
+
+政府还计划出台规定，对某些工作岗位进行强制性的疫苗接种。
+
+原文链接： [Dad murders family after being caught with fake Covid vaccine card](https://www.news.com.au/lifestyle/real-life/news-life/dad-murders-family-after-being-caught-with-fake-covid-vaccine-card/news-story/79edb6737f3e23237a11f9fb99e056c5?amp)
+
+*发布：盘古相聚*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
