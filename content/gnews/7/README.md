@@ -2,157 +2,46 @@
 ---
 
 
-## 习近平是爆料革命和灭共事业最大的礼物
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1735270/)
+## 美国对俄罗斯入侵乌克兰和中共入侵台湾发出“预警”
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1735324/)
 
-[https://gtv.org/video/id=61b1620a87fa7e74c92d70de](https://gtv.org/video/id=61b1620a87fa7e74c92d70de)
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-从头到尾我没觉得谁占上风
-Desde el principio hasta el final yo no sentí quién prevaleció
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Snipaste_2021-03-27_23-19-39.jpg)
 
-政治上, 大家用老百姓的观点是不对的
-Usar el punto de vista de los ciudadanos para ver la política no es correcto
 
-肉体之身被消灭了没有任何上风
-No hay ninguna predominación en cuanto a la extinción del cuerpo físico
+ 
+图片来源: nternational.sindonews.com
 
-像斯大林死了, 整个就彻底结束了
-Así como la muerte de Stalin todo culminó, en definitiva
 
-希特勒死了, 整个德国的纳粹就结束了
-Hitler murió y todo el nazi de Alemania terminó
+#### 整理报道 ：小红帽
 
-毛泽东死了
-Mao Zedong murió
+12月7日，美国总统拜登（Joe Biden）与俄罗斯总统普京（Vladimir Putin）举行线上虚拟会晤。**美国表示，由于担心俄罗斯入侵乌克兰，华盛顿正准备“强有力的回应”。**
 
-整个中国的共产党的时代他撤底就过去了
-Toda la época de él y del Partido Comunista en China pasó en definitiva
+**拜登总统在视像会议中表达了对俄军在边境集结的深切关注，并威胁要采取****“****有力的经济和其他措施****”****。**
 
-邓小平死了 邓小平时代就过去了
-Deng Xiaoping murió, y su época pasó
+俄罗斯则表示不会袭击乌克兰。普京指责基辅进行挑衅，并要求获得保证北约不会东扩以及避免在俄附近部署进攻性武器。
 
-这个里边没有１和100 的关系
-Dentro de esto no hay una relación de 1 y 100
+翌日，12月8日，美国五角大楼负责亚洲事务的最高官员表示，**加强台湾的防御是一项紧迫的任务，对于遏制中国的入侵威胁至关重要，并补充说美国的合作伙伴正在加强在印太地区的军事存在。**
 
-没有50和50的关系
-No hay una relación de 50 y 50
+近几个月来，台湾和中国之间的紧张局势不断升级，北京派出多种战机在台湾海峡上空执行认务对台湾施加压力。
 
-谁拿着军权和印刷钞票的权利
-Quien tenga el poder militar y de imprimir los billetes
+美国国防部负责印太安全事务的助理部长拉特纳 (Ely Ratner)在参议院外交关系委员会的听证会上表示：“中国在台湾周围的空中和海上活动是‘有意的挑衅’，增加了印太地区武装力量之间误判的可能性。此举将该地区的繁荣和安全置于危险当中，是中国对该地区其他美国盟友和伙伴，包括印度、日本、菲律宾和越南的军事胁迫和侵略模式的一部分。”
 
-谁就是老大
-Ese es el que manda
+新闻来源：
 
-这点无庸置疑的
-Esto es indispensable
-这里没有50 70
-Aquí no hay 50 70
+1. [乌克兰东部边境战云密布，拜登警告普京若入侵将采取“强硬措施” – BBC News 中文](https://www.bbc.com/zhongwen/simp/world-59575099)
+2. [中国军机秀肌肉 美称加强台湾防御“急迫任务” | 德国之声 来自德国 介绍德国 | DW | 09.12.2021](https://www.dw.com/zh/%E4%B8%AD%E5%9B%BD%E5%86%9B%E6%9C%BA%E7%A7%80%E8%82%8C%E8%82%89-%E7%BE%8E%E7%A7%B0%E5%8A%A0%E5%BC%BA%E5%8F%B0%E6%B9%BE%E9%98%B2%E5%BE%A1%E6%80%A5%E8%BF%AB%E4%BB%BB%E5%8A%A1/a-60063228)
 
-但是你要想平衡一下
-Pero si quieres balancearlo
 
-算一算也可以 绝对上一直以来
-Y sacar la cuenta también se puede, en lo absoluto desde siempre
+***发布：小红帽***
 
-习都占绝对上风
-Xi ha tenido predominación
-
-习在用掉他所有的优势
-Xi está usando todas sus ventajas
-
-他逐渐在消减自己的一切
-Para ir reduciendo gradualmente todo sobre él mismo
-
-但是这跟他的安全系数
-Pero esto con su nivel de seguridad
-
-从第一天到现在没有任何变化
-Desde el primer día hasta ahora no hay ningún cambio
-
-每个人都想杀掉习
-Todos quieren matar a Xi
-
-想干掉他的人一定比想干掉江的人
-Las personas que lo quieren matar a él son innumerables a las
-
-和王岐山的人、孟建柱人要多得多得
-Que quieren matar a Jiang, Wang Qishan y Meng Jianzhu
-
-因为他是所有利益的相关核心
-Porque él es el núcleo de todos los beneficios
-
-他决定了太多好人和坏人的命运
-Él decide el destino de muchísimas personas buenas y malas
-好人和坏人都想杀他
-Personas buenas y malas lo quieren matar
-
-这是个必然的结局
-Este es un final inevitable
-
-所以他现在是每天居无定所
-Por eso ahora él no tiene un hogar permanente todos los días
-
-装神弄鬼
-Hace trucos
-
-他就又戴假胡子、又戴假帽子、又装老人、又装孩子到处跑
-Lleva barba falsa, sombrero falso, finge ser un anciano y un niño corriendo por todas partes
-
-他想吹他的萨克斯、吹他的笛子他都不敢吹
-Él quiere tocar su saxofón y su flauta pero no se atreve
-
-笛子怕有毒、萨克斯怕有毒
-Teme a que la flauta y el saxofón haya veneno
-
-偶尔的搞点儿音乐也搞不成了
-Ni siquiera puede hacer música de vez en cuando
-
-现在就喝点茅台了
-Ahora sólo le queda beber un poco de Moutai
-
-有时候可能在地下火车或者什么地方喝
-Puede que a veces beba en el metro o en alguna parte
-
-比卡扎菲还惨
-Peor que Gadafi
-
-习现在真的是爆料革命和灭故事业最大的礼物
-Xi ahora de verdad es el regalo más grande del proyecto de Movimiento de Denunciantes y del exterminio del PCCh
-
-所以他千万在党沒灭之前
-Por eso él debe estar bien vivo antes de destruir el PCCh
-
-他别被灭 他好好活着
-Debe estar vivo y no ser asesinado
-
-就他北戴河这一转悠
-Él con solo darse una vuelta en Beidaihe
-
-是我们爆料革命再干一千年也干不了的事
-Es lo que nosotros el Movimiento de Denunciante no logramos hacer ni en mil años
-
-好 谢谢
-Listo, gracias
-
-* * *
-
-日期：12/08/2021
-原视频标题：习近平是爆料革命和灭共事业最大的礼物
-Xi Jinping es el regalo más grande del proyecto de Movimiento de Denunciantes y del exterminio del PCCh
-原视频日期：12/06/2021
-原视频网址：[https://gettr.com/post/pit95x77ec](https://gettr.com/post/pit95x77ec)
-任务编号：KC317(3128)
-视频时间段：0:00-2:00
-西听校：洛杉矶盘古农场-小文萱
-翻译：洛杉矶盘古农场-霙霙（文霙）
-翻译终校：洛杉矶盘古农场-小文萱
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布: 洛杉矶盘古农场-恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

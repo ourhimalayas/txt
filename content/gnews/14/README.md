@@ -2,101 +2,157 @@
 ---
 
 
-## 文·贵天成——文贵先生谈“疫苗”（三十八）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1735212/)
+## 习近平是爆料革命和灭共事业最大的礼物
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1735270/)
 
-**整理：BENJ1**
-**编辑：文泓**
+[https://gtv.org/video/id=61b1620a87fa7e74c92d70de](https://gtv.org/video/id=61b1620a87fa7e74c92d70de)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2021.12.4-文·贵天成——郭文贵先生谈疫苗（二十八）28-图片-1.png)图片来源：墨尔本雅典娜农场设计组（姐夫说说）
+从头到尾我没觉得谁占上风
+Desde el principio hasta el final yo no sentí quién prevaleció
 
-**郭文贵****先生****2021年8月25日直播**
+政治上, 大家用老百姓的观点是不对的
+Usar el punto de vista de los ciudadanos para ver la política no es correcto
 
-我说的话我付法律责任！去查吧，不要说你我，任何人上网和咨询所有的地方，拜登总统、美国CDC几乎200%就把你给干掉了，你不可能收到任何他的负面的信息。
+肉体之身被消灭了没有任何上风
+No hay ninguna predominación en cuanto a la extinción del cuerpo físico
 
-石墨烯这词你找找，任何副作用都没有了，社交媒体背后的大佬是真正的黑手。能控制社交媒体的人是谁？世界上还有几个？在深网里的大佬是共产党和俄罗斯，还有伊朗北朝鲜（等），这叫邪恶五国。美国里面有沼泽地，而大家也看到了美国的大选（舞弊），那我今天告诉大家，政治疫苗未来将发生什么？媒体还会帮他们打掩护。那么媒体掩盖的结果，会让这些疯狂的（政府）自己惹了麻烦，让各自国民打了30%、40%、50%的疫苗什意思知道吗？这些打了疫苗的国民几乎100%都是他的敌人。为什么100%是他的敌人？
+像斯大林死了, 整个就彻底结束了
+Así como la muerte de Stalin todo culminó, en definitiva
 
-因为你这个人打了疫苗，你家朋友和亲戚，没打疫苗的和打疫苗的他们都有社会联系。一个家庭背后有3到5个家庭，这个打了疫苗的恐惧、死亡和副作用会影响到没打的，一切全包含了。
+希特勒死了, 整个德国的纳粹就结束了
+Hitler murió y todo el nazi de Alemania terminó
 
-这个时候（他们）就要追责，追责的时候那是会流血、会死人的。唯一的是，让政治家抓到了一根稻草，就是动用媒体；还有医疗界专家为证明我做的决定是对的，做的决定是正确的，甚至我做的决定是无辜的，（那就是）推给第三方，没有任何招。
+毛泽东死了
+Mao Zedong murió
 
-所以，未来你会看到说，我为什么要打疫苗？美国福奇会怎么说？专家什么什么的……最后你记住，像卫辉制药、辉瑞制药、科兴疫苗这些都会被追杀全部破产。你是不是觉得沼泽地的坏人都会被受到惩罚？恰恰相反，这早在计划之中，你本来就是我的炮仗，你听到响的那一刻，你就已经粉身碎骨了。你本来就是二踢脚，我点着了，砰！一响，砰！第二响，你本来就是我的二踢脚嘛，你就该响嘛，是不是。
+整个中国的共产党的时代他撤底就过去了
+Toda la época de él y del Partido Comunista en China pasó en definitiva
 
-受益者和操作者你是不知道的，牺牲者包括美国现在政府的CDC专家，包括辉瑞制药现在股市（股价），还有那些（公司）CEO，这些人都是非知情者。
+邓小平死了 邓小平时代就过去了
+Deng Xiaoping murió, y su época pasó
 
-极少数人，就像星球大战最后（才）发现穿黑衣服来的人，就那么一个人坐着飞船来了是吧，那家伙才是最大的坏蛋。
+这个里边没有１和100 的关系
+Dentro de esto no hay una relación de 1 y 100
 
-所以说，兄弟姐妹们，不要恨身边的人，也不要以为全世界都是阴谋者，更不要分左派都是坏人、右派是坏人，右派里的坏人比左派也不少。坏人也不分左右派，也不分大鳄和小鳄。**这个里边真正的万恶之首不是淫****，****万恶之首真的就是共产党。**不是我们要灭共才这么说，始发者、执行者就是共产党和那5个国家。75亿人口就被那百十个人玩，就这百十个还多说了，甚至更少。
+没有50和50的关系
+No hay una relación de 50 y 50
 
-所以你恨身边的人，恨这个媒体，这都是你（在）浪费精力。这个世界上（谁）最愚蠢啊？为啥我爱看动物世界啊？你要看看狮子是怎么能活下来的，为什么有自己的领地。狮子一旦回来，当了狮王，母狮子闭上眼睛，狮王要把一切小狮子全吃掉，是吧!跨过界以后，那这狮子你死我活地PK，两个狮王它俩先要较量较量，咱俩能不能PK合作啊，不能PK不能合作滚蛋，你不滚就弄死你。
+谁拿着军权和印刷钞票的权利
+Quien tenga el poder militar y de imprimir los billetes
 
-然后狮子吃饱了以后，去找猎狗的孩子，在洞里全咬死。因为不咬死猎狗的孩子，它们就会咬狮子。狮子的孩子猎狗也会去猎杀，它是个动物的链。我们也处在一个食物链，我们的食物链是很悲哀的事情，不是狮子吃到我们这些小斑马、小白鹿，也不是猎狗掏我们肛，是我们的同类设计好的局，就是要猎杀我们。
+谁就是老大
+Ese es el que manda
 
-把我们这帮人赶到一个凹坑里面，最后突然间放洪水全淹死我们。帮助我们把我们赶到地下的兄弟姐妹绝对不是知情者，有可能正义小Sarah，也可能小福利或娜娜酱。“快去吧，七哥快走，好心为了你好，都下去”。他不是想害你，他就是无知。最后那个站在高山上的那个人，你看不着的那个人，那个人才是坏蛋。
+这点无庸置疑的
+Esto es indispensable
+这里没有50 70
+Aquí no hay 50 70
 
-这里面（有）一二三层的设局，那么我告诉你，今年的政治疫苗发生以后，社会会大动乱，经济会大崩溃。我今天不跟你们讲，明天我给你们讲疫苗后的世界军事，再后天讲疫苗后的文化，我都给你们好好讲讲。
+但是你要想平衡一下
+Pero si quieres balancearlo
 
-（你就当）我说的都是胡说八道，你们不要信我。当你看到这些问题的时候，战友们你们现在身处世界各地，两千多万战友，想想你的国家政府，当大家知道打疫苗会带来最可怕的（结果）。再看看打完疫苗，你有四个选择，是可能啊完全胡说八道不负责任啊，这事儿是九指妖让我说的，这个路大脑袋蛇妖闫让我说的，这帮孙子让我说的，你们找他去吧。
+算一算也可以 绝对上一直以来
+Y sacar la cuenta también se puede, en lo absoluto desde siempre
 
-第一个:突然性的心梗、脑梗、眼梗、肛梗、血梗，各种梗死，突然死了，很痛苦很不幸，家人很痛苦，说实在话这个是最好的（结果），因为你不会再虐待别人。
+习都占绝对上风
+Xi ha tenido predominación
 
-第二个:你在某种情况下开飞机开汽车，很多战友，像我们的好多战友昨天给我发信息说七哥我是开飞机的，七哥我是开高铁的，这惨了，他哪天梗了，可要带走很多人，这是第二种。
+习在用掉他所有的优势
+Xi está usando todas sus ventajas
 
-第三种:这是挺可怕的，突然间你发现他又有病了，他还不知道，把家人把朋友把孩子把社会全给传染上，他成了一个传染疾病的，可怕不？带走一批人，还带走最亲最近的人和无辜的人，真正的敌人带不走，敌人不见面啊，是不是？他也见不着王岐山习近平孟建柱，他见的都是和他又亲又近和无辜的人，这第三种可怕吧。
+他逐渐在消减自己的一切
+Para ir reduciendo gradualmente todo sobre él mismo
 
-第四种：更可怕，他既没死他也活不了，脑梗了心梗了他躺在床上，这样这样……你管不管他呀？能管他的人都是最亲最近的人，你还不能弄死他，还要花钱还要养着，还要把活人活活虐死，善良人就要被虐待到死，恶人那可能也虐待不着。
+但是这跟他的安全系数
+Pero esto con su nivel de seguridad
 
-这世界太不公平了，好人要痛苦，坏人会更快乐，就这四招，这四招，我不想让共产党说你们抑郁、恐惧、怀疑，我告诉大家如果你们真的心中有佛有信仰的话，（请）把生命衡量在三万六千天，（再）把生命看透、把生死看透。
+从第一天到现在没有任何变化
+Desde el primer día hasta ahora no hay ningún cambio
 
-**资料来源：郭文贵先生直播记录**
+每个人都想杀掉习
+Todos quieren matar a Xi
 
-**往期回顾：**
-[文·贵天成——文贵先生谈“疫苗”（一）](https://gnews.org/zh-hans/1645800/)
-[文·贵天成——文贵先生谈“疫苗”（二）](https://gnews.org/zh-hans/1645804/)
-[文·贵天成——文贵先生谈“疫苗”（三）](https://gnews.org/zh-hans/1668258/)
-[文·贵天成——文贵先生谈“疫苗”（四）](https://gnews.org/zh-hans/1668474/)
-[文·贵天成——文贵先生谈“疫苗”（五）](https://gnews.org/zh-hans/1668591/)
-[文·贵天成——文贵先生谈“疫苗”（六）](https://gnews.org/zh-hans/1670496/)
-[文·贵天成——文贵先生谈“疫苗”（七）](https://gnews.org/zh-hans/1670125/)
-[文·贵天成——文贵先生谈“疫苗”（八）](https://gnews.org/zh-hans/1684720/)
-[文·贵天成——文贵先生谈“疫苗”（九）](https://gnews.org/zh-hans/1684707/)
-[文·贵天成——文贵先生谈“疫苗”（十）](https://gnews.org/zh-hans/1704875/)
-[文·贵天成——文贵先生谈“疫苗”（十一）](https://gnews.org/zh-hans/1689446/)
-[文·贵天成——文贵先生谈“疫苗”（十二）](https://gnews.org/zh-hans/1689743/)
-[文·贵天成——文贵先生谈“疫苗”（十三）](https://gnews.org/zh-hans/1694796/)
-[文·贵天成——文贵先生谈“疫苗”（十四）](https://gnews.org/zh-hans/1695670/)
-[文·贵天成——文贵先生谈“疫苗”（十五）](https://gnews.org/zh-hans/1695638/)
-[文·贵天成——文贵先生谈“疫苗”（十六）](https://gnews.org/zh-hans/1695695/)
-文·贵天成——文贵先生谈“疫苗”（十七）
-文·贵天成——文贵先生谈“疫苗”（十八）
-文·贵天成——文贵先生谈“疫苗”（十九）
-[文·贵天成——文贵先生谈“疫苗”（二十）](https://gnews.org/zh-hans/1703796/)
-[文·贵天成——文贵先生谈“疫苗”（二十一）](https://gnews.org/wp-admin/post.php?post=1703749&amp;action=edit&amp;lang=zh-hans)
-[文·贵天成——文贵先生谈“疫苗”（二十二）](https://gnews.org/wp-admin/post.php?post=1703970&amp;action=edit&amp;lang=zh-hans)
-[文·贵天成——文贵先生谈“疫苗”（二十三）](https://gnews.org/wp-admin/post.php?post=1703992&amp;action=edit&amp;lang=zh-hans)
-[文·贵天成——文贵先生谈“疫苗”（二十四）](https://gnews.org/zh-hans/1704142/)
-[文·贵天成——文贵先生谈“疫苗”（二十五）](https://gnews.org/zh-hans/1710182/)
-[文·贵天成——文贵先生谈“疫苗”（二十六）](https://gnews.org/zh-hans/1710207/)
-[文·贵天成——文贵先生谈“疫苗”（二十七）](https://gnews.org/zh-hans/1710218/)
-[文·贵天成——文贵先生谈“疫苗”（二十八）](https://gnews.org/zh-hans/1719792/)
-[文·贵天成——文贵先生谈“疫苗”（二十九）](https://gnews.org/zh-hans/1719861/)
-[文·贵天成——文贵先生谈“疫苗”（二十九）](https://gnews.org/zh-hans/1719861/)
-[文·贵天成——文贵先生谈“疫苗”（三十）](https://gnews.org/zh-hans/1728380/)
-[文·贵天成——文贵先生谈“疫苗”（三十一）](https://gnews.org/zh-hans/1728390/)
-[文·贵天成——文贵先生谈“疫苗”（三十二）](https://gnews.org/zh-hans/1728442/)
-[文·贵天成——文贵先生谈“疫苗”（三十三）](https://gnews.org/zh-hans/1728442/)
-[文·贵天成——文贵先生谈“疫苗”（三十四）](https://gnews.org/zh-hans/1728442/https:/gnews.org/zh-hans/1731671/)
-[文·贵天成——文贵先生谈“疫苗”（三十五）](https://gnews.org/zh-hans/1731651/)
-[文·贵天成——文贵先生谈“疫苗”（三十六）](https://gnews.org/zh-hans/1732165/)
-[文·贵天成——文贵先生谈“疫苗”（三十七）](https://gnews.org/zh-hans/1732165/)
+想干掉他的人一定比想干掉江的人
+Las personas que lo quieren matar a él son innumerables a las
 
-*发布： 盘古相聚*
+和王岐山的人、孟建柱人要多得多得
+Que quieren matar a Jiang, Wang Qishan y Meng Jianzhu
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+因为他是所有利益的相关核心
+Porque él es el núcleo de todos los beneficios
+
+他决定了太多好人和坏人的命运
+Él decide el destino de muchísimas personas buenas y malas
+好人和坏人都想杀他
+Personas buenas y malas lo quieren matar
+
+这是个必然的结局
+Este es un final inevitable
+
+所以他现在是每天居无定所
+Por eso ahora él no tiene un hogar permanente todos los días
+
+装神弄鬼
+Hace trucos
+
+他就又戴假胡子、又戴假帽子、又装老人、又装孩子到处跑
+Lleva barba falsa, sombrero falso, finge ser un anciano y un niño corriendo por todas partes
+
+他想吹他的萨克斯、吹他的笛子他都不敢吹
+Él quiere tocar su saxofón y su flauta pero no se atreve
+
+笛子怕有毒、萨克斯怕有毒
+Teme a que la flauta y el saxofón haya veneno
+
+偶尔的搞点儿音乐也搞不成了
+Ni siquiera puede hacer música de vez en cuando
+
+现在就喝点茅台了
+Ahora sólo le queda beber un poco de Moutai
+
+有时候可能在地下火车或者什么地方喝
+Puede que a veces beba en el metro o en alguna parte
+
+比卡扎菲还惨
+Peor que Gadafi
+
+习现在真的是爆料革命和灭故事业最大的礼物
+Xi ahora de verdad es el regalo más grande del proyecto de Movimiento de Denunciantes y del exterminio del PCCh
+
+所以他千万在党沒灭之前
+Por eso él debe estar bien vivo antes de destruir el PCCh
+
+他别被灭 他好好活着
+Debe estar vivo y no ser asesinado
+
+就他北戴河这一转悠
+Él con solo darse una vuelta en Beidaihe
+
+是我们爆料革命再干一千年也干不了的事
+Es lo que nosotros el Movimiento de Denunciante no logramos hacer ni en mil años
+
+好 谢谢
+Listo, gracias
+
+* * *
+
+日期：12/08/2021
+原视频标题：习近平是爆料革命和灭共事业最大的礼物
+Xi Jinping es el regalo más grande del proyecto de Movimiento de Denunciantes y del exterminio del PCCh
+原视频日期：12/06/2021
+原视频网址：[https://gettr.com/post/pit95x77ec](https://gettr.com/post/pit95x77ec)
+任务编号：KC317(3128)
+视频时间段：0:00-2:00
+西听校：洛杉矶盘古农场-小文萱
+翻译：洛杉矶盘古农场-霙霙（文霙）
+翻译终校：洛杉矶盘古农场-小文萱
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布: 洛杉矶盘古农场-恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

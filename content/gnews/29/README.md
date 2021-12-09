@@ -2,12 +2,10 @@
 ---
 
 
-## 乔·艾伦：谷歌施密特等人想让你相信，我们将与AI共生
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1734906/)
+## 路透社：恒大声明无法保证偿还其庞大债务后股价暴跌
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1735110/)
 
-12/03/2021 乔·艾伦发文谈AI：埃里克·施密特、基辛格、李开复，他们想让人们相信，AI将成为精神伙伴，我们被迫与之共生。
-
-文章链接：[https://salvomag.com/post/artificial-intelligence-is-an-alien-mind-transforming-the-human-race](https://salvomag.com/post/artificial-intelligence-is-an-alien-mind-transforming-the-human-race)
+12/03/2021 路透社：在声明无法保证能够偿还其庞大的债务之后，恒大周一股价暴跌至11年低点，许家印被广东政府召见
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

@@ -15,134 +15,134 @@
 
 ---
 
-### [英国、加拿大加入外交抵制北京冬奥会行列](/content/gnews/1/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [重要：郭文贵先生正式宣布“消灭中共的海外大行动”！](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [德国出现自二月以来最高的CCP病毒死亡记录](/content/gnews/2/README.md)
- ` 澳喜特战旅Gnews`
-
-### [新的国家与货币金融的概念](/content/gnews/3/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [欧盟提案“反胁迫”贸易制裁 谴责中共力挺立陶宛](/content/gnews/4/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [德国新政府走在悬崖边缘](/content/gnews/5/README.md)
+### [封城的日子 新西兰篇](/content/gnews/2/README.md)
  ` 澳喜农场`
 
-### [币圈新闻动态：喜币（HCN）价格目前在44.235 HDO](/content/gnews/6/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [习近平是爆料革命和灭共事业最大的礼物](/content/gnews/7/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [莫德纳加强针在澳洲获批](/content/gnews/8/README.md)
- ` 澳喜特战旅Gnews`
-
-### [美众议院一天内近全票通过三项有关中共人权问题法案](/content/gnews/9/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [文·贵天成——文贵先生谈“疫苗”（三十九）](/content/gnews/10/README.md)
- ` 墨尔本雅典娜农场`
-
-### [避免战略利益受中共影响，澳洲加快推进制造业基金](/content/gnews/11/README.md)
- ` 走进澳洲`
-
-### [12/8/2021 文贵直播：王岐山的家族企业以盘古酒店管理公司“不能履行业务”为由将其撵走，并用物管公司接管了盘古七星酒店](/content/gnews/12/README.md)
+### [12/8/2021 文贵直播：全球抗议中共联合大行动总动员，为了我们的尊严，必须行动、行动、行动！](/content/gnews/3/README.md)
  ` 秘密翻译组-北美组`
 
-### [每时每刻的认知（三）](/content/gnews/13/README.md)
- ` 澳喜农场`
+### [美参议院通过法案 拜登疫苗强制接种令该歇菜了](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文·贵天成——文贵先生谈“疫苗”（三十八）](/content/gnews/14/README.md)
- ` 墨尔本雅典娜农场`
-
-### [注射国产灭活疫苗相当于感染了中共病毒！](/content/gnews/15/README.md)
- ` 澳喜农场`
-
-### [在大年三十和初一北京放烟花的时候给共产党全球送棺材](/content/gnews/16/README.md)
- ` NewFOC`
-
-### [关于我自己对于躺平币的一些肤浅认识](/content/gnews/17/README.md)
- ` 澳喜农场`
-
-### [12/8/2021 文贵直播：单伟建的直接领导是王岐山，一个电话就能安排见中共高官](/content/gnews/18/README.md)
- ` 秘密翻译组-北美组`
-
-### [郭文贵直播摘要和音频 2021.12.08](/content/gnews/19/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [为什么SARS-CoV-2 刺突蛋白如此毒](/content/gnews/20/README.md)
- ` 秘密翻译组-原创组`
-
-### [文·贵天成——文贵先生谈“疫苗”（三十七）](/content/gnews/21/README.md)
- ` 墨尔本雅典娜农场`
-
-### [佳兆业因债务违约再次宣布停牌](/content/gnews/22/README.md)
- ` 日本东京方舟农场`
-
-### [中共三胎强推，党员必须先行](/content/gnews/23/README.md)
- ` 澳喜农场`
-
-### [路透社：恒大声明无法保证偿还其庞大债务后股价暴跌](/content/gnews/24/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中共国社交媒体公开宣传使用青蒿素治疗中共病毒](/content/gnews/25/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [博明：中共打压大型科技公司的最终目的是控制其数据](/content/gnews/26/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [这是“一个道歉”或“一场教育”就能解决的问题吗？](/content/gnews/27/README.md)
- ` 澳喜农场`
-
-### [纳奥米博士：疫苗强制是战区伪装和极权主义恐怖](/content/gnews/28/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [乔·艾伦：谷歌施密特等人想让你相信，我们将与AI共生](/content/gnews/29/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [美国安顾问：美国将采取行动 确保中共不会犯台](/content/gnews/30/README.md)
- ` GTV新闻访谈`
-
-### [美国参议院投票以52比48票废除拜登的疫苗强制要求](/content/gnews/31/README.md)
- ` RoseNews`
-
-### [五年前秘密协议首曝光，苹果2750亿美元买通中共](/content/gnews/32/README.md)
- ` GTV新闻访谈`
-
-### [本·汉威尔：反对强制疫苗接种的世界联盟正在集结中](/content/gnews/33/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [参议院可能投票使拜登的大公司疫苗强制令作废](/content/gnews/34/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [在注射新冠病毒疫苗以后有292名运动员心脏骤停，167人死亡](/content/gnews/35/README.md)
+### [美众议院一天内几乎全票通过三项中共国人权法案](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [西方多国和人权团体全面抵制北京冬奥会](/content/gnews/36/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [【粤语配音】2021年12月8日： 全球战友为共产党及其家人送葬，以牙还牙](/content/gnews/6/README.md)
+ ` MOS香港部`
 
-### [接种了三剂疫苗的联合国秘书长中共病毒检测阳性](/content/gnews/37/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [法官暂停对纽约市警察和其他城市工作人员的疫苗强制令](/content/gnews/38/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [美国会呼吁更多国家抵制北京冬奥会](/content/gnews/39/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [盘古再次被非法查封，共产党加速走向灭亡](/content/gnews/40/README.md)
- ` GTV新闻访谈`
-
-### [GTV新闻访谈简报|2021年12月8日晚](/content/gnews/41/README.md)
- ` GTV新闻访谈`
-
-### [澳英加苏紧跟美国相继宣布外交抵制北京冬奥会](/content/gnews/42/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [7·24系列之“单伟健”——沃顿商学院助理教授](/content/gnews/43/README.md)
+### [美国对俄罗斯入侵乌克兰和中共入侵台湾发出“预警”](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
+
+### [英国、加拿大加入外交抵制北京冬奥会行列](/content/gnews/8/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [德国出现自二月以来最高的CCP病毒死亡记录](/content/gnews/9/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [新的国家与货币金融的概念](/content/gnews/10/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [欧盟提案“反胁迫”贸易制裁 谴责中共力挺立陶宛](/content/gnews/11/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [德国新政府走在悬崖边缘](/content/gnews/12/README.md)
+ ` 澳喜农场`
+
+### [币圈新闻动态：喜币（HCN）价格目前在44.235 HDO](/content/gnews/13/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [习近平是爆料革命和灭共事业最大的礼物](/content/gnews/14/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [莫德纳加强针在澳洲获批](/content/gnews/15/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [美众议院一天内近全票通过三项有关中共人权问题法案](/content/gnews/16/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [文·贵天成——文贵先生谈“疫苗”（三十九）](/content/gnews/17/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [避免战略利益受中共影响，澳洲加快推进制造业基金](/content/gnews/18/README.md)
+ ` 走进澳洲`
+
+### [12/8/2021 文贵直播：王岐山的家族企业以盘古酒店管理公司“不能履行业务”为由将其撵走，并用物管公司接管了盘古七星酒店](/content/gnews/19/README.md)
+ ` 秘密翻译组-北美组`
+
+### [每时每刻的认知（三）](/content/gnews/20/README.md)
+ ` 澳喜农场`
+
+### [文·贵天成——文贵先生谈“疫苗”（三十八）](/content/gnews/21/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [注射国产灭活疫苗相当于感染了中共病毒！](/content/gnews/22/README.md)
+ ` 澳喜农场`
+
+### [在大年三十和初一北京放烟花的时候给共产党全球送棺材](/content/gnews/23/README.md)
+ ` NewFOC`
+
+### [关于我自己对于躺平币的一些肤浅认识](/content/gnews/24/README.md)
+ ` 澳喜农场`
+
+### [12/8/2021 文贵直播：单伟建的直接领导是王岐山，一个电话就能安排见中共高官](/content/gnews/25/README.md)
+ ` 秘密翻译组-北美组`
+
+### [郭文贵直播摘要和音频 2021.12.08](/content/gnews/26/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [为什么SARS-CoV-2 刺突蛋白如此毒](/content/gnews/27/README.md)
+ ` 秘密翻译组-原创组`
+
+### [文·贵天成——文贵先生谈“疫苗”（三十七）](/content/gnews/28/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [路透社：恒大声明无法保证偿还其庞大债务后股价暴跌](/content/gnews/29/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [中共国社交媒体公开宣传使用青蒿素治疗中共病毒](/content/gnews/30/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [这是“一个道歉”或“一场教育”就能解决的问题吗？](/content/gnews/31/README.md)
+ ` 澳喜农场`
+
+### [纳奥米博士：疫苗强制是战区伪装和极权主义恐怖](/content/gnews/32/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [乔·艾伦：谷歌施密特等人想让你相信，我们将与AI共生](/content/gnews/33/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [美国安顾问：美国将采取行动 确保中共不会犯台](/content/gnews/34/README.md)
+ ` GTV新闻访谈`
+
+### [美国参议院投票以52比48票废除拜登的疫苗强制要求](/content/gnews/35/README.md)
+ ` RoseNews`
+
+### [五年前秘密协议首曝光，苹果2750亿美元买通中共](/content/gnews/36/README.md)
+ ` GTV新闻访谈`
+
+### [本·汉威尔：反对强制疫苗接种的世界联盟正在集结中](/content/gnews/37/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [在注射新冠病毒疫苗以后有292名运动员心脏骤停，167人死亡](/content/gnews/38/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [西方多国和人权团体全面抵制北京冬奥会](/content/gnews/39/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美国会呼吁更多国家抵制北京冬奥会](/content/gnews/40/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [盘古再次被非法查封，共产党加速走向灭亡](/content/gnews/41/README.md)
+ ` GTV新闻访谈`
+
+### [GTV新闻访谈简报|2021年12月8日晚](/content/gnews/42/README.md)
+ ` GTV新闻访谈`
+
+### [澳英加苏紧跟美国相继宣布外交抵制北京冬奥会](/content/gnews/43/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [老员工罢工拒新协议 家乐氏雇永久性人员替代](/content/gnews/44/README.md)
  ` 喜马拉雅农场新西兰站`

@@ -2,41 +2,30 @@
 ---
 
 
-## 在大年三十和初一北京放烟花的时候给共产党全球送棺材
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1735189/)
+## 美众议院一天内近全票通过三项有关中共人权问题法案
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1735265/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/index1_副本.jpg)
-据[2021年12月08日 文贵大直播：拜登外交抵制冬奥会；盘古物业接管惊世界；中共高级特务单伟建；对准高层海外大行动](https://gettr.com/streaming/pj3xefa5bc)时间点2：01：25在——
+**作者:****  **青衣
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-39.png)
+新疆一个棉花制品厂内的情景（图片来自网络）
 
-**郭文贵先生：**当我们去抗议的时候，给它送葬的时候，今年大年三十、初一一定按照他们的时间，在他们北京放烟花的时候、过年的时候，全球都是棺材。如果在晚上的时间赶上了一定要有巨大的灯光，一定要直播，一定把这个给它记载下来。
+据《美国之音》12月9日报道，美国国会众议院星期三（12月8日）几乎以全票通过了三项有关中共人权问题的议案。
 
-记住你祈祷对你平安、有病管用，你给对方送葬，你记住，对方绝对有感觉，百分之百有感觉，我知道共产党怕什么，别忘了江泽民要带上，江泽民和他儿子咱也得给它送了，江泽民、江绵恒、江志成也得给它送了这回，咱都给它送上。
+众议院院会以428票对1票通过了《防止强迫维吾尔人劳动法》 （The Uyghur Forced Labor Prevention Act）。这一法案旨在确保中共国新疆强迫劳动制造的商品不得进入美国市场。
 
-非常简单，当地语言、高级质量、艺术化的制作，有程序化的整个的所有的操作，干它三年基本上共产党绝对没了。我们剩下就这东西都成古董了，这车、这些工具都留着，都是送在北京，我们再要建一个地方——共产党的墓地，把这都留做古董了。
+该法案将设立一个“可反驳的推定”（rebuttable presumption）制度。该制度规定：除非得到美国当局的无强迫劳动认证，否则会推定凡在新疆制造的产品均使用了强迫劳动，并因此会按照《1930年关税法》（1930 Tariff Act）禁止进口这些产品。
 
-（以下暂略）
+这一法案的参议院版本已于今年7月获得两党议员无异议的一致通过。预计两院的协调版本会轻松获得通过，并由总统签字成为法律。
 
-撰稿：喜马拉雅的肉夹馍；
+此外，众议院星期三还以427票对1票通过了一项决议案，谴责中共继续针对维吾尔人及其他宗教和少数民族实施的种族灭绝和犯罪行为，并敦促美国采取行动。
 
-审核：喜马拉雅的馍夹肉；
+同样在星期三，众议院还以428票对0票通过了一项决议案，认定国际奥林匹克运动会未能遵守自身对人权的承诺。
 
-校对：Maarago
+众议院议长佩洛西星期二在宣布安排三项议案的投票时表示，“通过这三项法案，众议院发出一个清晰且直接的信息：中华人民共和国针对维吾尔人的犯罪行为构成种族灭绝罪，必须立即停止。”
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+美国国会此前已通过了《2020年维吾尔人权政策法》、《支持西藏人政策法》和《2019年香港人权与民主法》。佩洛西表示，将这些法案加在一起，众议院会继续要求北京（中共）对其践踏和压制人权的行为负责。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+新闻链接：[https://twitter.com/VOAChinese/status/1468785751236116483](https://twitter.com/VOAChinese/status/1468785751236116483)
 
  
 
