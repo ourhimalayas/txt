@@ -2,158 +2,29 @@
 ---
 
 
-## 习近平是爆料革命和灭共事业最大的礼物
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1735270/)
+## 德国新政府走在悬崖边缘
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1735277/)
 
-[https://gtv.org/video/id=61b1620a87fa7e74c92d70de](https://gtv.org/video/id=61b1620a87fa7e74c92d70de)
+撰稿： 天鹅
+![](https://assets.gnews.org/wp-content/uploads/2021/12/66C354A0-05AE-4E66-9169-CEE5361A878A.png)
+图片来源：theguardian
 
-从头到尾我没觉得谁占上风
-Desde el principio hasta el final yo no sentí quién prevaleció
+根据卫报报道[1]，奥拉夫·舒尔茨（Olaf Scholz）将于周三被联邦议院投票推举为总理，默克尔时代的即将结束。新政府将有社会民主党、自由民主党和绿党组成。随着新政府的上台，德国将面临诸多挑战，中共病毒再次爆发、俄罗斯与乌克兰关系紧张、改革德国经济问题等。
 
-政治上, 大家用老百姓的观点是不对的
-Usar el punto de vista de los ciudadanos para ver la política no es correcto
+在应对病毒方面，德国卫生部长表示[2]，德国第四波中共病毒大流行很可能在圣诞节前后在全国各地达到高峰。首都柏林宣布，将禁止未接种疫苗的人进入圣诞市场，并普遍限制公众集会的人数。柏林的夜总会可以继续营业，但不允许游客跳舞。德国疾病控制机构罗伯特科赫研究所 (RKI) 报告称，在7天内，全国发病率为每100,000名公民442.1 例，过去 24 小时内有 390 名患者死于该病。联合政府还表示，它希望议员们能够参考奥地利的投票，从明年开始强制接种疫苗。来自三个联盟党派的主要人物，包括候任财政大臣奥拉夫·舒尔茨和财政部长克里斯蒂安·林德纳，最近都表示将支持这一举措。德国在疫苗问题上已经对人民采取了强烈的维稳手段，德国政客如果继续在疫苗问题上执行疯狂的政策会一定把德国人民推向地狱。
 
-肉体之身被消灭了没有任何上风
-No hay ninguna predominación en cuanto a la extinción del cuerpo físico
+在外交方面，舒尔茨表示，“德国的外交政策是一项连续性政策”。虽然德国将中共国称为“系统性竞争对手”，但是在默克尔在任的德中16年以来的经济合作不可能在短时间内中断。此外，本周在记者提问关于中共国冬奥会的相关问题时，舒尔茨回避了德国是否会加入外交抵制北京 2022 年冬季奥运会的问题。在俄乌问题上，舒尔茨也表示，对乌克兰的进一步威胁是不可接受的。他对俄乌边境局势表示关切，称必须遵守冷战后普遍存在的降级原则。
 
-像斯大林死了, 整个就彻底结束了
-Así como la muerte de Stalin todo culminó, en definitiva
+郭先生在近期的直播中也说过，“德国政客的流氓，是你无法想象的；表面一套，背后一套，完全的自私、傲慢、愚蠢；德国总理上来，你千万别相信这个混蛋的话，这小子说完话他要告诉中国，我说这话玩的你别当真啊，一定是这结局。”奥拉夫·舒尔茨从2001年担任汉堡市内政局长开始就涉足政坛，其后一路稳步上升，他的仕途是否与中共有勾兑仍然未知。但是种种迹象表明，德国在中共面前已经低下了头，不可能有勇气与中共对抗。特别是在疫苗问题上，德国政客继续与中共等黑暗势力勾兑，德国人民必将遭受自二战之后最大的人道、经济灾难。混乱、疯狂、残酷的时代即将到来，德国可能会成为地狱。希望战友们在爆料革命、新中国联邦的带领下抱团取暖，继续传播病毒真相、疫苗真相，扩大我们的影响力，唤醒更多的人民！
 
-希特勒死了, 整个德国的纳粹就结束了
-Hitler murió y todo el nazi de Alemania terminó
+参考消息：
 
-毛泽东死了
-Mao Zedong murió
+[1] [Olaf Scholz to be voted in as German chancellor as Merkel era ends](https://www.theguardian.com/world/2021/dec/08/olaf-scholz-to-be-voted-in-as-german-chancellor-as-merkel-era-ends)
 
-整个中国的共产党的时代他撤底就过去了
-Toda la época de él y del Partido Comunista en China pasó en definitiva
+[2] [Germany’s Covid wave could reach ‘sad peak’ at Christmas, minister says](https://www.theguardian.com/world/2021/dec/03/germanys-covid-wave-could-reach-sad-peak-at-christmas-outgoing-minister-says)
 
-邓小平死了 邓小平时代就过去了
-Deng Xiaoping murió, y su época pasó
-
-这个里边没有１和100 的关系
-Dentro de esto no hay una relación de 1 y 100
-
-没有50和50的关系
-No hay una relación de 50 y 50
-
-谁拿着军权和印刷钞票的权利
-Quien tenga el poder militar y de imprimir los billetes
-
-谁就是老大
-Ese es el que manda
-
-这点无庸置疑的
-Esto es indispensable
-这里没有50 70
-Aquí no hay 50 70
-
-但是你要想平衡一下
-Pero si quieres balancearlo
-
-算一算也可以 绝对上一直以来
-Y sacar la cuenta también se puede, en lo absoluto desde siempre
-
-习都占绝对上风
-Xi ha tenido predominación
-
-习在用掉他所有的优势
-Xi está usando todas sus ventajas
-
-他逐渐在消减自己的一切
-Para ir reduciendo gradualmente todo sobre él mismo
-
-但是这跟他的安全系数
-Pero esto con su nivel de seguridad
-
-从第一天到现在没有任何变化
-Desde el primer día hasta ahora no hay ningún cambio
-
-每个人都想杀掉习
-Todos quieren matar a Xi
-
-想干掉他的人一定比想干掉江的人
-Las personas que lo quieren matar a él son innumerables a las
-
-和王岐山的人、孟建柱人要多得多得
-Que quieren matar a Jiang, Wang Qishan y Meng Jianzhu
-
-因为他是所有利益的相关核心
-Porque él es el núcleo de todos los beneficios
-
-他决定了太多好人和坏人的命运
-Él decide el destino de muchísimas personas buenas y malas
-好人和坏人都想杀他
-Personas buenas y malas lo quieren matar
-
-这是个必然的结局
-Este es un final inevitable
-
-所以他现在是每天居无定所
-Por eso ahora él no tiene un hogar permanente todos los días
-
-装神弄鬼
-Hace trucos
-
-他就又戴假胡子、又戴假帽子、又装老人、又装孩子到处跑
-Lleva barba falsa, sombrero falso, finge ser un anciano y un niño corriendo por todas partes
-
-他想吹他的萨克斯、吹他的笛子他都不敢吹
-Él quiere tocar su saxofón y su flauta pero no se atreve
-
-笛子怕有毒、萨克斯怕有毒
-Teme a que la flauta y el saxofón haya veneno
-
-偶尔的搞点儿音乐也搞不成了
-Ni siquiera puede hacer música de vez en cuando
-
-现在就喝点茅台了
-Ahora sólo le queda beber un poco de Moutai
-
-有时候可能在地下火车或者什么地方喝
-Puede que a veces beba en el metro o en alguna parte
-
-比卡扎菲还惨
-Peor que Gadafi
-
-习现在真的是爆料革命和灭故事业最大的礼物
-Xi ahora de verdad es el regalo más grande del proyecto de Movimiento de Denunciantes y del exterminio del PCCh
-
-所以他千万在党沒灭之前
-Por eso él debe estar bien vivo antes de destruir el PCCh
-
-他别被灭 他好好活着
-Debe estar vivo y no ser asesinado
-
-就他北戴河这一转悠
-Él con solo darse una vuelta en Beidaihe
-
-是我们爆料革命再干一千年也干不了的事
-Es lo que nosotros el Movimiento de Denunciante no logramos hacer ni en mil años
-
-好 谢谢
-Listo, gracias
-
-* * *
-
-日期：12/08/2021
-原视频标题：习近平是爆料革命和灭共事业最大的礼物
-Xi Jinping es el regalo más grande del proyecto de Movimiento de Denunciantes y del exterminio del PCCh
-原视频日期：12/06/2021
-原视频网址：[https://gettr.com/post/pit95x77ec](https://gettr.com/post/pit95x77ec)
-任务编号：KC317(3128)
-视频时间段：0:00-2:00
-西听校：洛杉矶盘古农场-小文萱
-翻译：洛杉矶盘古农场-霙霙（文霙）
-翻译终校：洛杉矶盘古农场-小文萱
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布: 洛杉矶盘古农场-恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*编辑：cindy*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
