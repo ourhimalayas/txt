@@ -60,53 +60,53 @@
 ### [民主党人认为社会主义比资本主义更有利：盖洛普](/content/gnews/15/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [为中共提前唱葬歌，新中国联邦未来三年灭贼大行动](/content/gnews/16/README.md)
+### [苹果与中国签署了 $275B 的秘密协议](/content/gnews/16/README.md)
+ ` MG FARM`
+
+### [为中共提前唱葬歌，新中国联邦未来三年灭贼大行动](/content/gnews/17/README.md)
  ` YALUN 亚伦`
 
-### [12/8/2021 文贵直播：阿布扎比和中共国断交，军事和经济的项目统统停了，习近平怪文贵？](/content/gnews/17/README.md)
+### [12/8/2021 文贵直播：阿布扎比和中共国断交，军事和经济的项目统统停了，习近平怪文贵？](/content/gnews/18/README.md)
  ` 秘密翻译组-北美组`
 
-### [加拿大与美国、英国和澳大利亚一道外交抵制北京冬奥会](/content/gnews/18/README.md)
+### [加拿大与美国、英国和澳大利亚一道外交抵制北京冬奥会](/content/gnews/19/README.md)
  ` MG FARM`
 
-### [老员工罢工拒新协议 家乐氏雇永久性人员替代](/content/gnews/19/README.md)
+### [老员工罢工拒新协议 家乐氏雇永久性人员替代](/content/gnews/20/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [杰克·塔珀对好莱坞、NBA等与中国做生意的公司进行了抨击](/content/gnews/20/README.md)
+### [杰克·塔珀对好莱坞、NBA等与中国做生意的公司进行了抨击](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [未接种疫苗（现已停职）的多伦多警察举行静坐抗议](/content/gnews/21/README.md)
+### [未接种疫苗（现已停职）的多伦多警察举行静坐抗议](/content/gnews/22/README.md)
  ` MG FARM`
 
-### [【小一观点】俄罗斯重返亚洲，美国釜底抽薪，中共陷入绝境](/content/gnews/22/README.md)
+### [【小一观点】俄罗斯重返亚洲，美国釜底抽薪，中共陷入绝境](/content/gnews/23/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm Toronto(CA)`
 
-### [南非遭受自七月以来最新的中共病毒OMICRON 袭击，当地科学家如是说](/content/gnews/23/README.md)
+### [南非遭受自七月以来最新的中共病毒OMICRON 袭击，当地科学家如是说](/content/gnews/24/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [采访：男子在第一次注射新冠疫苗时注射了正常剂量六倍的辉瑞疫苗](/content/gnews/24/README.md)
+### [采访：男子在第一次注射新冠疫苗时注射了正常剂量六倍的辉瑞疫苗](/content/gnews/25/README.md)
  ` MG FARM`
 
-### [郭文贵精品视频-盘古物业被暴力查封震惊世界](/content/gnews/25/README.md)
+### [郭文贵精品视频-盘古物业被暴力查封震惊世界](/content/gnews/26/README.md)
  ` 澳喜农场`
 
-### [卡车广告回归：卡尔加里没有气候紧急情况](/content/gnews/26/README.md)
+### [卡车广告回归：卡尔加里没有气候紧急情况](/content/gnews/27/README.md)
  ` MG FARM`
 
-### [加拿大加入美澳新等行列，宣布外交抵制北京奥运会](/content/gnews/27/README.md)
+### [加拿大加入美澳新等行列，宣布外交抵制北京奥运会](/content/gnews/28/README.md)
  ` YALUN 亚伦`
 
-### [美国正式外交抵制北京冬奥会，习近平实施高段位反击](/content/gnews/28/README.md)
+### [美国正式外交抵制北京冬奥会，习近平实施高段位反击](/content/gnews/29/README.md)
  ` 墨尔本雅典娜农场`
 
-### [研究人员质疑中国人口数据，称实际数据可能更低](/content/gnews/29/README.md)
+### [研究人员质疑中国人口数据，称实际数据可能更低](/content/gnews/30/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [SEC主席强调加密货币市场易受操纵，投资者易受攻击](/content/gnews/30/README.md)
+### [SEC主席强调加密货币市场易受操纵，投资者易受攻击](/content/gnews/31/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [亚马逊网络服务AWS出现大规模宕机 多个平台受影响](/content/gnews/31/README.md)
- ` 日本东京方舟农场`
 
 ### [中共国准备在大西洋建立第一个永久海军基地，震惊美国官员](/content/gnews/32/README.md)
  ` 波士顿五月花农场`
