@@ -2,104 +2,186 @@
 ---
 
 
-## 文·贵天成——文贵先生谈“疫苗”（四十二）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1740093/)
+## 马航事件绝对是杀人灭口
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1740126/)
 
-整理：BENJ1
-编辑：李易通
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2021.12.4-文·贵天成——郭文贵先生谈疫苗（二十八）28-图片-3.png)图片来源：墨尔本雅典娜农场设计组（姐夫说说）
-郭文贵先生**2021**年**8**月**25**日直播
+[https://gtv.org/video/id=61b3593887fa7e74c92e2348](https://gtv.org/video/id=61b3593887fa7e74c92e2348)
 
-大牛:关于疫苗政治，因为台湾最近有自己研发的高端疫苗，刚刚我们在盖特账号@MilesGuoLive留言，他说这个高端疫苗的合作厂商是在美国上市的一家公司，然后说这两家公司恰好也都是中国科兴集团合作开发疫苗的公司。最近刚好在施打，第二天、第三天已经有四个人死亡了，不知道这个高端疫苗对于台湾会不会有一些影响？
+马航的事情
+El asunto de Malaysia Airlines
 
-郭文贵先生:所谓的高端疫苗，记住全世界的疫苗基本上都是一样的，不管他起什么名。氧化石墨乙烯、肌肽素这些东西，都是一样的。高端疫苗就是加大了剂量，它无非是换了个说法，本质都是一样的。为什么我说台湾政府是很糟糕的，它现在这个时候还搞疫苗经济。台湾应该考虑的是疫苗安全，不应该搞疫苗经济，但它现在把疫苗经济放在前面，然后是搞政治疫苗。
+一定是和孟建柱和江绵恒
+Debe tener relación con Meng Jianzhu, Jiang mianheng
 
-台湾觉得别的国家都搞，如果我不搞不行，所以它也搞政治疫苗，但你台湾搞疫苗经济和政治疫苗，那台湾人就会死。只有考虑疫苗安全的领导人才会是永恒的，才是人民的福祉。你想想，如果巴黎打了疫苗以后结局是什么？生出的孩子一定是带这个基因的，即使再过50年，你俩生的孩子也是这样。即使你在精子库冰冻精子，无论过了多少年都是这样，这是很恐怖的。
+还有当时的这几个医学家出事是有绝对关系的
+Y el accidente con ciertos científicos médicos
 
-所以疫苗安全是台湾和任何一个国家民族的福祉。你搞疫苗经济和政治疫苗都是要死人的，都是绝后的。然后这个国家民族可能是灭绝式的，所以强迫接种疫苗真是混蛋至极的事。
+绝对是杀人灭口
+Definitivamente está matando gente
 
-好，咱们今天的直播怎么样了？可以，还没有大家要问的了吧？
+特别是这个飞机的牵引技术
+Especialmente la tecnología de tracción de este avión
 
-天机:娜娜酱，你是不是在盖特留言有一个问题想问？
+特别是在欧盟
+Especialmente en la UE
 
-娜娜酱:好，那我念一下，但我觉得好像这个问题郭先生回答过。但我讲一下，第一个就是说：“七哥您好，您昨天直播说不要被感染病毒是2025年前唯一要做的事，又说任何打了疫苗的染上病毒的对周围人都是灾难，随着病毒的肆虐，也许还会有战友中招，那么应如何规范和已经感染病毒痊愈后的人正确接触避免病毒感染呢？就是说没打疫苗但是感染了病毒已经愈合了，以后要怎么跟这些人正确接触？”
+当时还没有脱欧的英国
+Aquel momento no se había separado el Reino Unido de la UE
 
-郭文贵先生:对于这个事儿，我也问了很多这方面的专家，包括我们的欧洲的科学家。真的是我们觉得没有太好的办法，最可怕的事情就是什么呢？家里边儿的人打疫苗的，就他打了疫苗，他容易有两个核心的误区，一个是他以为我打了疫苗我就不会被传染了，然后出去就不防护了，这是非常危险的。
+还有现在的美国
+Y EE. UU de ahora
 
-还有一个，打了疫苗的人，他很大的可能是无症状的带菌者，这个时候对家人和朋友的伤害是最严重的。如果说目前你没被感染，你也不去做这种无知的事，故意去找传染去，比如不戴口罩、不防护、无知的认识，那么你对家人是没有威胁的。
+它是个很大的事情
+Es un asunto muy grande
 
-但是如果你打完疫苗以后到处活动，然后回来是无症状带菌者，而且是超级传播者，那么最先杀掉的就是你的亲人和家人。所以说这是一个我们大家最关心的问题。
+它能把它给牵(引)走了, 它把谁的飞机都能牵(引)走
+Puede (alejarlo), puede alejar el avión de cualquier persona
 
-另外一个，就是所有打了疫苗的人，还有一个核心的问题。这是人与人之间的本性，打了疫苗以后他就认为不打疫苗的人有病，这个时候他染上病了，他反而认为是不打疫苗的人把病毒传染给他。如果检查有前有后的话，没打疫苗的人先检查，结果是这个打了疫苗的人就把你传染了，这是很可悲的事情，你们想过没有。
+现在美国已经
+Ahora EE. UU ya
 
-这一点是肯定的，只要是打疫苗的和不打疫苗的人住在一起，不打疫苗的还吃羟氯喹，你不用想一定是这个打疫苗的人感染病毒。
+基本上是咱爆料革命有史以来
+Básicamente desde que comenzamos con el Movimiento de Denunciantes
 
-当然了，你像Angela也是那种没被传染上的，是她的小儿子把她的老公和俩孩子都传染上了。所以说跟自己人相处，大家一定要有心理准备，很有可能是打了疫苗的人把疾病传染给你，但他还自己没事。还有一个，一旦你被传染了，他认为是你传染了他，这是一个伦理和逻辑上的谬误，大家一定要有所准备。
+知道咱们是掌握着共产党核心的机密和情报的
+Sabe que nosotros tenemos los secretos y la información del núcleo de Partido Comunista
 
-但是怎么防？大家记住，现在最好的防范就是羟氯喹加锌，有事儿你就吃土霉素、伊维菌素，关键是打了疫苗的人更应该吃，既能把他疫苗的副作用排除，也能避免传染，关键他未必听你的吃这些药物。这个世界让谁亡是天定的，不是每个人都觉得地狱是很恐惧的。
+因为他们一开始都不相信, 觉得这是阴谋论
+Porque al principio ellos no creían, sentían que es una teoría de conspiración
 
-娜娜酱:还有就是想问七哥，拜登政府90天病毒报告被弱化后，习近平会不会又发大头症，为了在六中全会上拿到绝对的发言权，在十月底前打台湾？谢谢。
+那么现在西方的人跟我们见面
+Y ahora las personas occidentales se reunen con nosotros
 
-郭文贵先生:不管有没有这个报告，他都会做的，打台湾的概率几乎是95%。
+当时CIA的情报部门我跟他说
+En ese momento, le dije al departamento de inteligencia de la CIA
 
-娜娜酱:十月底前吗？
+马航事件一定是不正常的
+El incidente de Malaysia Airlines no es algo normal
 
-郭文贵先生:我觉得今年年底前是很有可能的，明年五月份之前是最后的时间，因为两会之前干台湾的可能性很大。
+他说我不觉得中国有这种牵引技术
+Él decía que no creía que China pueda tener esta tecnología de tracción
 
-还有一个就是美国的经济，随着现在你看到的全球的政治经济、政治疫苗和经济疫苗灾难，这个发生以后会给共产党提供各种打台湾的理由，台湾绝对是很危险的。
+如果有这种牵引技术就不正常
+Si tiene esta tecnología entonces no es normal
 
-另外一个，大家问打了疫苗以后还要不要吃羟氯喹加锌？更要吃，我再重申，吃了只对你有好处没坏处，而且很大可能会把你打了疫苗以后的坏处大大降低，彻底铲除是不可能的，只能是大大降低。
+我说中国有这种牵引技术
+Yo le dije que China si tiene este tipo de tecnología
 
-发布：去中心化Math
+而负责人就是江绵恒
+Y la persona a cargo es Jiang Mianheng
 
-**往期回顾：**
-[文·贵天成——文贵先生谈“疫苗”（一）](https://gnews.org/zh-hans/1645800/)
-[文·贵天成——文贵先生谈“疫苗”（二）](https://gnews.org/zh-hans/1645804/)
-[文·贵天成——文贵先生谈“疫苗”（三）](https://gnews.org/zh-hans/1668258/)
-[文·贵天成——文贵先生谈“疫苗”（四）](https://gnews.org/zh-hans/1668474/)
-[文·贵天成——文贵先生谈“疫苗”（五）](https://gnews.org/zh-hans/1668591/)
-[文·贵天成——文贵先生谈“疫苗”（六）](https://gnews.org/zh-hans/1670496/)
-[文·贵天成——文贵先生谈“疫苗”（七）](https://gnews.org/zh-hans/1670125/)
-[文·贵天成——文贵先生谈“疫苗”（八）](https://gnews.org/zh-hans/1684720/)
-[文·贵天成——文贵先生谈“疫苗”（九）](https://gnews.org/zh-hans/1684707/)
-[文·贵天成——文贵先生谈“疫苗”（十）](https://gnews.org/zh-hans/1704875/)
-[文·贵天成——文贵先生谈“疫苗”（十一）](https://gnews.org/zh-hans/1689446/)
-[文·贵天成——文贵先生谈“疫苗”（十二）](https://gnews.org/zh-hans/1689743/)
-[文·贵天成——文贵先生谈“疫苗”（十三）](https://gnews.org/zh-hans/1694796/)
-[文·贵天成——文贵先生谈“疫苗”（十四）](https://gnews.org/zh-hans/1695670/)
-[文·贵天成——文贵先生谈“疫苗”（十五）](https://gnews.org/zh-hans/1695638/)
-[文·贵天成——文贵先生谈“疫苗”（十六）](https://gnews.org/zh-hans/1695695/)
-[文·贵天成——文贵先生谈“疫苗”（十七）](https://gnews.org/zh-hans/1739501/)
-[文·贵天成——文贵先生谈“疫苗”（十八）](https://gnews.org/zh-hans/1739501/)
-[文·贵天成——文贵先生谈“疫苗”（十九）](https://gnews.org/zh-hans/1739501/)
-[文·贵天成——文贵先生谈“疫苗”（二十）](https://gnews.org/zh-hans/1703796/)
-[文·贵天成——文贵先生谈“疫苗”（二十一）](https://gnews.org/wp-admin/post.php?post=1703749&amp;action=edit&amp;lang=zh-hans)
-[文·贵天成——文贵先生谈“疫苗”（二十二）](https://gnews.org/wp-admin/post.php?post=1703970&amp;action=edit&amp;lang=zh-hans)
-[文·贵天成——文贵先生谈“疫苗”（二十三）](https://gnews.org/wp-admin/post.php?post=1703992&amp;action=edit&amp;lang=zh-hans)
-[文·贵天成——文贵先生谈“疫苗”（二十四）](https://gnews.org/zh-hans/1704142/)
-[文·贵天成——文贵先生谈“疫苗”（二十五）](https://gnews.org/zh-hans/1710182/)
-[文·贵天成——文贵先生谈“疫苗”（二十六）](https://gnews.org/zh-hans/1710207/)
-[文·贵天成——文贵先生谈“疫苗”（二十七）](https://gnews.org/zh-hans/1710218/)
-[文·贵天成——文贵先生谈“疫苗”（二十八）](https://gnews.org/zh-hans/1719792/)
-[文·贵天成——文贵先生谈“疫苗”（二十九）](https://gnews.org/zh-hans/1719861/)
-[文·贵天成——文贵先生谈“疫苗”（三十）](https://gnews.org/zh-hans/1728380/)
-[文·贵天成——文贵先生谈“疫苗”（三十一）](https://gnews.org/zh-hans/1728390/)
-[文·贵天成——文贵先生谈“疫苗”（三十二）](https://gnews.org/zh-hans/1728442/)
-[文·贵天成——文贵先生谈“疫苗”（三十三）](https://gnews.org/zh-hans/1728442/)
-[文·贵天成——文贵先生谈“疫苗”（三十四）](https://gnews.org/zh-hans/1728442/https:/gnews.org/zh-hans/1731671/)
-[文·贵天成——文贵先生谈“疫苗”（三十五）](https://gnews.org/zh-hans/1731651/)
-[文·贵天成——文贵先生谈“疫苗”（三十六）](https://gnews.org/zh-hans/1732165/)
-[文·贵天成——文贵先生谈“疫苗”（三十七）](https://gnews.org/zh-hans/1735148/)
-[文·贵天成——文贵先生谈“疫苗”（三十八）](https://gnews.org/zh-hans/1735212/)
-[文·贵天成——文贵先生谈“疫苗”（三十九）](https://gnews.org/zh-hans/1735235/)
-[文·贵天成——文贵先生谈“疫苗”（四十）](https://gnews.org/zh-hans/1739501/)
-[文·贵天成——文贵先生谈“疫苗”（四十一）](https://gnews.org/zh-hans/1740057/)
+现在美国发现了
+Ahora EE. UU se dió cuenta
 
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+不但能听你的手机, 全球手机监听
+No solamente puede escuchar tu teléfono móvil, sino de todo el mundo
+
+最近大家看到, 很多咱们做的视频都出来了吧
+Recientemente, todos vieron que salieron muchos videos que hicimos
+
+中共可以在世界上, 它叫做全世界的数据帝国
+El PCCh puede estar en el mundo, se llama el imperio de datos del mundo
+
+中国就是数据帝国
+China es el imperio de datos
+
+就能掌握全世界各种数据
+Puede controlar todo tipo de datos en todo el mundo
+
+能监听全世界任何一个人的手机, 任何电脑
+Puede monitorear el teléfono celular de cualquier persona y cualquier computadora en el mundo
+
+这一点儿都不用怀疑
+No duden de esto
+
+就像这个马航的事情
+Así como el asunto de Malaysia Airlines
+
+美国西方知道了以后
+Luego que EE. UU se enteró
+
+雷达、车、收音都能控制
+El radar, el automóvil y la radio pueden ser controlados
+
+这为什么给我们搞新中国联邦国防的这哥们
+Y por qué nuestro hermano que se dedica a la defensa nacional del Nuevo Estado Federal de China
+
+电脑不连Wi-Fi
+No se conecta el Wi-Fi con su computadora
+
+从来也不连任何有线的
+Nunca se conecta con los cables
+
+就让你看电脑从来就是看完以后, 展示完就拉倒
+Solamente mira la computadora y luego la expone
+
+他的车上都是没有雷达的
+No hay radar en su carro
+
+没有任何现代智能设备
+Y ningún dispositivo inteligente moderno
+
+他手机都是最老的手机
+Su teléfono móvil es el más antiguo
+
+因为他相信
+Porque el confía
+
+共产党和俄罗斯能听任何人
+El Partido Comunista y Rusia puede escuchar a cualquier persona
+
+他不能再容易了
+No hay nada más fácil que eso
+
+最好的监听软件就是以色列的
+El mejor software de monitoreo es de Israel
+
+它已经是5年前都能想听谁听谁
+Ya hace 5 años atrás puede escuchar a cualquier persona
+
+WhatsApp 100%不安全
+WhatsApp es 100% inseguro
+
+微信是1000%不安全
+WeChat es 1000% inseguro
+
+所以说只要你想干的事, 你想安全是不可能的
+Por eso si quieres hacer algo y a la vez deseas que sea seguro es imposible
+
+那么在这种情况下, 马航的事件
+Y bajo esta situación, el incidente de Malaysia Airlines
+
+为什么西方认定了共产党真的有干掉世界的野心
+¿Por qué Occidente cree que el Partido Comunista realmente tiene la ambición de matar al mundo?
+
+而且他也敢, 还有这个技术, 还有这个能力
+Además también se atreve, tiene esta tecnología y capacidad
+
+那么现在病毒的事情证明了这一点
+También el tema de virus actual comprobó esto
+
+所以马航的事情迟早会出来的
+Por lo tanto, el asunto de Malaysia Airlines tarde o temprano será expuesto
+
+* * *
+
+日期：12/09/2021
+原视频标题：马航事件绝对是杀人灭口
+El incidente de Malaysia Airlines es absolutamente mortal
+原视频日期：12/06/2021
+原视频网址：[https://gettr.com/post/piua3lb0ce](https://gettr.com/post/piua3lb0ce)
+任务编号：3129
+视频时间段：0:00-2:24
+西听校：洛杉矶盘古农场-霙霙（文霙）
+翻译：洛杉矶盘古农场-小文萱
+翻译终校：洛杉矶盘古农场-霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布 ：洛杉矶盘古农场-恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
