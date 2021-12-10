@@ -2,49 +2,47 @@
 ---
 
 
-## 福布斯含蓄报道“Hcoin To The Moon”打榜奇迹
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1739392/)
+## 梁家河子出来的习近平看看赵家沟出来的七哥会出啥重拳
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1739448/)
 
-**翻译：Lulumi**
+**郭文贵先生：**他就想让我痛苦，他想看到我今天坐在这儿，是不是，鼻涕一把泪一把的，“哎呦，我的呀，兄弟呀，六月鲜花呀，没法活了，咱不灭共了！”是吧。去你大爷的吧，我们—。
 
-大家都知道亚洲乐坛的风向标非韩国偶像团体莫属，K-POP在世界范围内有着非常广泛的粉丝群体。然而文贵先生的新歌“Hcoin To The Moon”一上线便力压所有韩国打榜明星，稳据Billboard世界数字歌曲销售排行榜第一名位置。
+习近平你去过（过去）梁家河子混过，我是赵家沟出来的。咱都睡过炕，是吧。我给女老师递过擦屁股纸，你没少看女厕所。咱们都是最底层生活干过；你看过死人，我也看过死人，我在清丰看守所看的死人我的经历，你在三次被关押，是吧。咱们也都知道。
 
-以下内容援引自福布斯的报道，原新闻配图用Billboard排行代替。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-495.png)图片来源: forbes.com
-本周的世界数字歌曲销售排行榜由一位既出名又相对不出名的艺术家霸榜，超越韩国K-POP明星。他曾被卷入许多争议，现在正尝试作为音乐家的第二次行动，看看他在公告牌排名上的胜利，事情似乎进展得不错。
+你现在你的彭丽媛是人是吗？你觉得你妈是人是吗？我们的爹妈不是人是吗？咱就试试！你看看你梁家河子出来，和我是赵家沟出来，看咱谁狠，看谁能狠到底！
 
-在他身后，韩国最受欢迎的几个表演者通过新发行的歌曲打开市场，其中一个团体通过他们有史以来的第一支单曲挤入只限购买的排名。
+习近平咱就从今年大年三十初一开始起，未来三年看咱俩谁先死。你要不把我做死，要不然我就让你死，就这么简单。你看看咱俩谁先退。习近平！看看谁先软，谁先退。你要有种习近平你站出来你对着我，咱们单对单地来。你要没种你用你手里边奴役的机器，虐杀我们所谓的被你绑架的这些家人。你看你还能做啥，我已经做好下每1分钟我爹被你给弄死，是吧？我就做好这准备了。我一滴泪都不会掉，如果你要看到我要能掉一滴泪，我就不叫郭文贵，我就不叫郭七儿。咱走着看。
 
-以下是本周世界数字歌曲销售榜上值得注意的五首歌曲的动向。
+我不可能让这件事情就这么过的去。你对我家人下了如此之重手已经不是一次了，全家抓两次，判两次。所有我同事都这样。
 
-**第1名：Miles Guo—“Hcoin to the Moon”**
+有在现场的人给我发信息说，七哥这不是没有人权，连起码的人格都不给了。他说，我看到你的员工出来，光着脚狼狈的样子，连打加骂加踹的，他说这真是比电影还恐怖。这仇不报我能是人吗！甭说是男人了，我连什么人都不是。
 
-**神秘的中国亿万富翁和有争议的政治评论家郭文贵带着他的最新作品“Hcoin to the Moon”回到了公告牌榜单。以不到2800张的销量开始一路狂飙，这首曲子在Billboard世界数字歌曲销售排行榜上排名第一，轻松地征服了该排行榜。根据MRC数据，这首曲子也进入了其他以购买为重点的榜单，包括所有类型的数字歌曲销售统计。**
+所以说兄弟姐妹们，行不行动，怎么行动，战友们你们看着办。你们行不行动，我都会行动。这只是咱来点前奏，你看七哥接下来会给他出什么重拳。
 
-第9名：Chung Ha—“Killing Me”
+我会让他所有的家人在海外的—。习近平的家人在海外所有的地方没有我不知道的。北京高院所有的院长、王岐山—。记住，我们直瞄——其他常委不用管，主要是习近平，主要是王岐山。这俩人是我们绝对的，还有北京高院这帮人，是我们的敌人。其他常委几乎可以不搭理他。
 
-Chung Ha金请夏带着她的新单曲”Killing Me”回到了世界数字歌曲销售榜上，开始了她在该榜单前十名中的日子。这位前I.O.I成员在该女子团体中获得了成功，在该乐队解散后的几年里，她继续不时地在美国打榜。看起来，”Killing Me”是她同名单曲专辑中的主打歌，标志着她作为个人明星第四次进入前十名。
+字幕来源：[2021年12月8日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1736773/) ；
 
-第10名：Stray Kids—“Christmas EveL”
+视频制作及上传：Cindy；
 
-韩国男团Stray Kids继续出现在美国的排行榜上，他们以节日为主题的单曲 “Christmas EveL”在本周的世界数字歌曲销售排名中首次进入前十。这首曲子增加了乐队不断增长的点击率，乐队正在迅速接近这个特定名册上的20首前10名。这首曲子是他们的圣诞EP《Christmas EveL》中的四首之一，下周他的其它一些曲子也可能达到这个数字。
+G-News上传：黎明之前；
 
-第12位：IVE—“Eleven”
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-全新的韩国女子组合IVE在本周的世界数字歌曲销售榜上以其首支单曲“Eleven”获得了一个特殊的首发，该单曲被收录在同名的单曲专辑中。这首曲子在第12位开张，对于一个基本上刚刚开始职业生涯的乐队来说，这是一个非常健康的开始。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-第13位：Kai—“Peaches”
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-在之前两个男团获得成功后，Kai在2020年启动了个人事业，从那时起，事情对他来说就非常顺利了。这一次，他的新单曲 “Peaches”在世界数字歌曲销售榜上获得第13位，成为他自己排名第三好的成绩，也是他影响最大的曲子。他之前的两首作品停滞在第15位。作为Exo和SuperM的成员，凯已经通过其他几十首作品达到了这个排名。
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-新闻来源 : [forbes.com][Exo’s Kai, Stray Kids, Chung Ha And IVE: Moves On The World Songs Chart](https://www.forbes.com/sites/hughmcintyre/2021/12/08/exos-kai-stray-kids-chung-ha-and-ive-moves-on-the-world-songs-chart/?sh=3853c7571371)
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-* * *
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-*审核：文乐 
-校对：信心满满
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH..jpeg)
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

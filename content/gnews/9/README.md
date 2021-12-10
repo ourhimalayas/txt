@@ -2,40 +2,34 @@
 ---
 
 
-## 喜报——“HLA-A24”特殊蛋白拯救了全日本
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1739784/)
+## 拜登民主峰会三大主题直指中共
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1739810/)
 
-撰稿:东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/3-11.png)[图片来源](https://en.wikipedia.org/wiki/HLA-A24#/media/File:HLA-A24.png)
-日本理研研究团队最近发现一种名为“HLA-A24”的特定类型蛋白，可以有效预警中共病毒的入侵。具体如下。
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月9日，美国总统拜登在白宫举行了“全球民主峰会”视频会议的开幕式并致开幕辞。据了解，有110个国家和地区参与了此次民主峰会，然而，自称实行所谓“全过程人民民主”的中共国被排除在外。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/6-17.jpg)
+消息显示，此次民主峰会的三大主题包括对抗极权、打击贪腐，以及促进对人权的尊重。会上，拜登总统指出，当今的民主和普世人权正在面临来自极权政府的严重挑战，但世界必须继续捍卫民主，阻止民主的倒退趋势。另外，拜登总统也提出，应加强理念相同的国家间的合作。同时，各国应进一步通过出口管制，防范创新技术被用于迫害人权的行为上。而对于非法融资问题，拜登总统表示，全球应建立多边反腐败框架，追究腐败者的责任。
 
-理研研究团队专注于研究细胞表面蛋白质的“类型”。人体细胞表面有很多蛋白质，种类有数万种。不同的人有不同的类型组合。
+有分析人士称，此次民主峰会的三大主题直指中共。另一方面，该峰会撇开中共国，先是邀请了台湾代表以预录方式发表“国家声明”，后续又邀请被迫逃亡英国的香港青年领袖罗冠聪于12月10日在峰会上发表演讲，这一系列举措意在直击中共独裁政权。
 
-当细胞被病毒感染时，细胞表面蛋白质会释放一种物质，表明此细胞被病毒入侵。这种物质会作为线索，促使杀伤性T细胞可以识别受感染的细胞，攻击并击败它们。所以这个标记性物质非常重要。
+参考链接：
+1) . [Happening Now: President Biden delivers opening remarks at the virtual Summit for Democracy](https://www.voachinese.com/a/fbi-documentary-china-eco-espionage-20211208/6344965.html)
+2) . [这是我们这个时代决定性的挑战”，美国总统拜登9日在首次白宫民主峰会开幕致辞中说在民主和普世人权面临挑战的情况下，要捍卫民主，阻止民主倒退趋势。这次峰会将进行两天，一些未被邀请的国家包括中国和俄罗斯指责美国政府有冷战思维。](https://twitter.com/voachinese/status/1468991585610260486?s=21)
 
-这一次，当研究团队从众多蛋白质类型中，发现一种名为“HLA-A24”的特定类型，发现该类型蛋白质对中共病毒有反应。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-事实上，60%的日本人有这种类型，而西方只有10-20%的人拥有。
+总编：Irene木木
+编辑：Kathy文艺
+校正/发稿：Fei797
 
-“被病毒感染的细胞表面会产生标记物质”，新发现表明，感染中共病毒时产生的标记物质与感染季节性感冒时产生的标记物质非常相似。
-
-我们一生中都得过一两次普通感冒。因此，所有击败流感的杀伤性T细胞都在体内并在沉睡。
-
-在感染中共病毒的情况下，此特殊蛋白会识别为感染流感而释放相似的标记物质，杀死季节性感冒的杀手T细胞也会被唤醒，从而杀死被中共病毒感染的细胞。
-
-所以人体固有的杀伤性T细胞可以杀死感冒和中共病毒。但是能释放标记物质的“HLA-A24”的特定类型蛋白更重要，起着预警作用。
-
-爆料革命Eglise钟声医生多次提醒，中共病毒就是大号流感。只可惜西方多数人没有起预警作用的“HLA-A24”类型蛋白，加上毒疫苗，牢牢堵死了杀伤性T细胞发挥作用，导致西方各国的高死亡率。所以郭文贵先生讲的“疫苗定向杀人，灭白计划”进一步得到验证。
-
-信息源:
-
-[なぜ欧米よりコロナ重症者・死者少ない? “ファクターX”は日本人の免疫細胞か…研究発表](https://news.yahoo.co.jp/articles/837f2d809c4822c174f6d9014919351a164ca95f)
-
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
