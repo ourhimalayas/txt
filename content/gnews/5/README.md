@@ -2,22 +2,31 @@
 ---
 
 
-## 美国组合拳惩罚中共
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1738000/)
+## 金地集团拟发行15亿元中期票据用于还贷
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1738047/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-467.png)[图片来源](https://baike.sogou.com/PicBooklet.v?relateImageGroupIds=&amp;lemmaId=319512&amp;now=https%3A%2F%2Fpic.baike.soso.com%2Fugc%2Fbaikepic2%2F1942%2F20200619052150-1130741357_jpeg_550_353_24481.jpg%2F0&amp;type=1#simple_0)
-网易新闻12月9日报道，美国众议院日前以428:0全票通过了一项反共决议。其将矛头对准了国际奥委会，声称国际奥委会与中共国的合作不符合人权标准。
+![金地集团图片](http://y.qichejiashi.com/tupian/upload/221438700.jpg)资料照
+据中国网财经12月9日报道，金地集团拟发行2021年第七期中期票据约为15亿元，所募资金将全部用于偿还银行贷款。
 
-美国众议院近来接连通过了3项反共决议，而除上述决议外，另两项则：1，出台对中共国新疆商品的进口禁令，美国众议院先是出台决议要求禁止美军采购中共国部分商品，原因是中共国进行了强迫劳动；2，禁止美国企业进口中共国部分商品，除非该商品能够被充分证明是并非强迫劳动产生。
+金地集团待偿还债务融资折合人民币537.9亿元，具体为：境内债券本金人民币240.36亿元；境外美元债券本金合计9.3亿美元；中期票据、超短融和证监会ABS分别为人民币205亿元、8亿元和24.09亿元。
 
-11月24日美国务院公布将于12月召开民主峰会，将台湾列入官网，排除了中共参与，一系列行动措施明确的告诉中共国，中共属于一党专政独裁体制，排除在世界民主国家之外，美国将要惩罚围堵孤立中共。
+中共的经济已到崩溃的边缘，只是强撑着不倒。无论是银行贷款，还是债务、票据等，企业已经无力偿还，只是换个名字，玩一玩左手倒右手的把戏，最后一次骗一骗不明真相的百姓，逃不过破产的结局。
 
-信息来源：[428：0！美国众议院接连表决3项反华决议，对华围堵](https://3g.163.com/dy/article/GQQEGJQA05521C6G.html?spss=adap_pc)
+新闻参考链接：[https://c.m.163.com/news/a/GQPO3P9U0519A8ON.html?spss=newsapp](https://c.m.163.com/news/a/GQPO3P9U0519A8ON.html?spss=newsapp)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+编辑：胖丁
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

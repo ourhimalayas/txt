@@ -2,30 +2,43 @@
 ---
 
 
-## 中共逼迫跨国公司断绝与立陶宛的合作
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1738008/)
+## 中国政府的维族政策构成种族灭绝和危害人类罪
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1738063/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-468.png)[图片来源](https://mingdemedia.org/zhengzhiyitijingjixiepozhonggongyaoqiukuaguoqiyeyulitaowanduanjuehezuo/)
-路透社12月9日报道 ，中共国已经告诉多家跨国公司断绝与立陶宛的关系，否则将面临被排除在中共国市场之外的命运，这将使企业卷入立陶宛与中共之间的争端。
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-驻立陶宛台湾代表处上个月挂牌运作后，中共国把其与立陶宛间的外交关系降级。立陶宛的执政联盟去年11月同意支持台湾，使立陶宛与中共国的关系陷入险境。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/276399.jpg)
 
-立陶宛与中共国的直接贸易额不大，但其出口导向经济中，有数百家公司生产家具、激光器、食品和服装等产品，供应给那些在中共国销售的跨国公司。
 
-立陶宛外交部副部长Mantas Adomenas说：“他们(中共国)一直在向跨国公司传递信息，如果他们使用立陶宛的零部件和用品，他们将不再被允许向中共国市场销售或在中共国取得供应。”“我们已经看到一些公司取消了与立陶宛供应商的合同。”
+ 
+图片来源:  www.amnesty.org/Molly Crabapple
 
-代表数千家立陶宛公司的立陶宛工业家联盟(Lithuania Confederation of Industrialists)证实，一些从立陶宛供应商购买商品的跨国公司已成为中共国的目标。
 
-“本周我们第一次看到中共国直接向一供应商施压，要求其放弃立陶宛制造的商品。”该联盟的主席Vidmantas Janulevicius对路透表示，“以前我们只是感到会有这个威胁，现在这些威胁变成了现实。”
+#### 整理报道 ：小红帽
 
-“对我们来说，最痛苦的部分是，它是一家欧洲公司，”Janulevicius在谈及这家跨国公司时说道。“许多立陶宛企业是这些公司的供应商。”
+12月9日周四，由一名英国大律师设立的非官方独立机构–维吾尔族法庭（ The Uyghur Tribunal ），在评估有关中国政府涉嫌侵犯维吾尔人权利的证据后公布结论说，**中国政府犯有种族灭绝罪和危害人类罪。**
 
-消息来源：[独家：中共国施压跨国企业断绝与立陶宛的商业合作](https://cn.reuters.com/article/china-lithuania-trade-business-1209-idCNKBS2IO0JY?il=0)
+该维吾尔族法庭由律师、学者和商界人士组成。法庭希望经由公开程序获得的证据，促使国际社会采取行动，阻止对维族人民（主要是穆斯林族群）的不人道对待。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+“维吾尔族法庭在调查、评估了中国西部新疆自治区针对维吾尔人的强制节育和绝育政策后得出结论：这一政策旨在减少维族人口，与习近平主席和政府最高层直接相关”，法庭庭长杰弗里·尼斯爵士（Geoffrey Nice ）通报说。
+
+维吾尔法庭确认，**在新疆发生的情况毫无疑问属于危害人类罪，其中包括酷刑和强奸，当事人被关押在巨大的拘留中心。**
+
+尼斯律师曾负责起诉前塞尔维亚总统斯洛博丹·米洛舍维奇，并与国际刑事法院合作。他指出，**习近平和其他中国高层人士要对新疆发生的事情承担责任。**
+
+**美国政府已表示，北京当局的维族政策构成种族灭绝和危害人类罪。英国、比利时、荷兰、加拿大的立法机构也有同样表态。**** **
+
+新闻来源： [维吾尔族法庭：北京犯有种族灭绝罪 | 德国之声 来自德国 介绍德国 | DW | 09.12.2021](https://www.dw.com/zh/%E7%BB%B4%E5%90%BE%E5%B0%94%E6%97%8F%E6%B3%95%E5%BA%AD%E5%8C%97%E4%BA%AC%E7%8A%AF%E6%9C%89%E7%A7%8D%E6%97%8F%E7%81%AD%E7%BB%9D%E7%BD%AA/a-60072382)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
