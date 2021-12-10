@@ -2,33 +2,34 @@
 ---
 
 
-## 在美国施压下阿联酋叫停该国中共在建军事设施
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1739615/)
+## 拜登民主峰会三大主题直指中共
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1739810/)
 
-#### **撰稿：**日本东京方舟农场 子辰
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月9日，美国总统拜登在白宫举行了“全球民主峰会”视频会议的开幕式并致开幕辞。据了解，有110个国家和地区参与了此次民主峰会，然而，自称实行所谓“全过程人民民主”的中共国被排除在外。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/6-17.jpg)
+消息显示，此次民主峰会的三大主题包括对抗极权、打击贪腐，以及促进对人权的尊重。会上，拜登总统指出，当今的民主和普世人权正在面临来自极权政府的严重挑战，但世界必须继续捍卫民主，阻止民主的倒退趋势。另外，拜登总统也提出，应加强理念相同的国家间的合作。同时，各国应进一步通过出口管制，防范创新技术被用于迫害人权的行为上。而对于非法融资问题，拜登总统表示，全球应建立多边反腐败框架，追究腐败者的责任。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/4F07652A-4260-447A-A231-C87C4C2FD830.jpeg)（图片来自《大纪元》）
+有分析人士称，此次民主峰会的三大主题直指中共。另一方面，该峰会撇开中共国，先是邀请了台湾代表以预录方式发表“国家声明”，后续又邀请被迫逃亡英国的香港青年领袖罗冠聪于12月10日在峰会上发表演讲，这一系列举措意在直击中共独裁政权。
 
-据《大纪元》12月10日报道，阿拉伯联合酋长国的一位高级官员周四（12月9日）表示，在美国认为北京（中共）打算在阿联酋新建军事设施后，阿联酋政府最近已下令叫停了中方的施工。
+参考链接：
+1) . [Happening Now: President Biden delivers opening remarks at the virtual Summit for Democracy](https://www.voachinese.com/a/fbi-documentary-china-eco-espionage-20211208/6344965.html)
+2) . [这是我们这个时代决定性的挑战”，美国总统拜登9日在首次白宫民主峰会开幕致辞中说在民主和普世人权面临挑战的情况下，要捍卫民主，阻止民主倒退趋势。这次峰会将进行两天，一些未被邀请的国家包括中国和俄罗斯指责美国政府有冷战思维。](https://twitter.com/voachinese/status/1468991585610260486?s=21)
 
-《华尔街日报》上个月曾引述一位知情人士的消息报道称，美国情报机构发现，中共正在阿联酋首都阿布扎比附近的一个港口秘密建造疑似军事设施。据了解，情报所指之处是中共国中远海运集团经营的一个商业集装箱码头。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-阿联酋是美国最亲密的中东盟友之一。拜登政府在得知这一情报后，随即警告阿联酋政府，中共的军事存在可能会威胁到两国之间的关系。
+总编：Irene木木
+编辑：Kathy文艺
+校正/发稿：Fei797
 
-据报道，12月8日，阿拉伯联合酋长国外交顾问、前外交部长安瓦尔‧加尔贾什（Anwar Gargash）在出席华盛顿智库“阿拉伯海湾国家研究所”的视频会议时表示，在华盛顿的要求下，阿联酋已下令停止了上述建筑工程。
-
-《大纪元》的报道指出，中东地区越来越成为中美竞争的主要场所。阿联酋和美国有长期的贸易和安全关系，这也使得中共在那里的入侵对美国的利益更具潜在威胁。
-
-*参考链接：[叫停中方施工 阿联酋：不考虑美国担忧是愚蠢的](https://www.epochtimes.com/gb/21/12/9/n13427649.htm)*
-
-* * *
-
-*素材采编：子辰*
-
-*编辑：青衣青青*
-
-*发布：miumiu*
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
