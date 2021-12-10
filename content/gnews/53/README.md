@@ -2,53 +2,42 @@
 ---
 
 
-## 参议员玛丽亚·坎特维尔：FTC 应调查脸书的“欺骗性”广告行为
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1737672/)
+## 恒大违约将拖累加密货币、机构投资者、养老基金
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1738416/)
 
-作者：Ian Miles Cheong
-翻译：KK
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-26.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/economiccrisisadobestockweb.jpg)
 
-美国最高立法者要求脸书为其“误导”广告行为负责。
 
-周三，参议院商务委员会主席要求监管机构调查脸书是否因其广告的影响力误导了其广告客户和公众，该公司的母公司现在是 Meta。
+ 
+图片来源:  www.cdrecycler.com
 
-在给联邦贸易委员会的一封信中，参议院商务委员会主席、参议员玛丽亚·坎特维尔表示，“有证据表明脸书可能在其品牌安全和广告指标方面欺骗了其广告客户”，并且该公司“可能参与了欺骗行为，”路透社报道。
 
-脸书的母公司和 FTC 尚未公开评论参议员的要求。
+#### 整理报道 ：小红帽
 
-据路透社报道，坎特维尔在她的信中写道，“公开信息表明，脸书对品牌安全和广告指标的潜在虚假陈述可能是不公平的，而且具有欺骗性，”并补充说，“委员会和其他执法机构的彻底调查是至关重要的，不仅因为脸书及其高管可能违反了联邦法律，还因为公众和企业成员有权了解有关脸书行为的事实。”
+中国庞氏房地产开发商恒大现已正式违约，因为惠誉（Fitch）已确认这家负债累累的公司错过了债券利息支付，未偿债券超过3千亿美元。房地产开发商佳兆业（Kaisa）也被点名，还有近十几家其他中国房地产开发商被广泛认为正在违约的路上。
 
-该出版物报道说，坎特维尔引用了 2020 年参议院的一份报告，该报告 脸书控制了约 74% 的社交媒体市场。
+“**这不仅仅是恒大的违约，这是中国和银行体系的违约**，”丹· 大卫（Dan David）告诉福克斯商业频道。“他们将迎来如2008年美国次贷房地产泡沫一样的崩溃。”
 
-坎特维尔向 FTC 提出请求是在参议员理查德布卢门撒尔于 10 月发表讲话之后提出的。
+**在整个2022年，我们都将目睹极端的金融压力，以及许多可能的违约。这将通过持有恒大债务的各种机构蔓延。同时，这可能会影响养老基金，对冲基金，机构投资者，私人投资者甚至中央银行。**
 
-布卢门撒尔表示，美国证券交易委员会和联邦贸易委员会都应调查对脸书举报人提出的指控，称该公司知道其应用程序正在损害青少年用户的心理健康。
+许多分析师认为，凭空创造加密货币的“稳定币””提供商Tether可能在恒大拥有数百亿美元的敞口。随着恒大的违约现已正式宣布，**这意味着Tether对恒大、佳兆业或其他中国房地产开发商的持股价值实际上为零**。重要的是，这可能意味着**Tether不再有足够的资产来覆盖其发行到加密生态系统中的USDT硬币**。
 
-尽管对所谓举报人的证词采取的行动很少，但 FTC 已对这家社交媒体巨头提起反垄断诉讼，敦促法院要求该公司出售给其他公司。
+**由于所有比特币购买行为中有三分之二实际上是使用Tether硬币进行的，这也意味着比特币的市场估值可能会被数字货币印刷业务大幅夸大。**
 
-脸书的母公司 Meta 还拥有 Whatsapp 和 Instagram 以及其他几家公司。FTC 对这家社交媒体公司提起的诉讼是美国政府几十年来对大型科技公司提出的最大挑战之一。
+约翰·佩雷斯（John Perez）认为**整个加密生态系统都依赖于大规模的数字货币伪造操作，泡沫很快就会破裂，使加密货币持有者处于与恒大债务持有者相同的位置。**
 
-美国联邦贸易委员会此前曾在特朗普执政期间起诉脸书，其诉状被法院驳回。该政府机构已于 8 月提交了一份修正后的投诉，但脸书已要求法院驳回。
+新闻来源：[恒大违约 – 传染风险将蔓延到加密货币、机构投资者、养老基金等 – NaturalNews.com](https://www.naturalnews.com/2021-12-09-evergrande-defaults-contagion-risk-will-spread-to-crypto-institutional-investors-pension-funds.html)
 
-来源：[https://www.rebelnews.com/facebooks\_deceptive\_ad\_practices\_should\_be\_investigated\_by\_ftc\_sen\_maria\_cantwell](https://www.rebelnews.com/facebooks_deceptive_ad_practices_should_be_investigated_by_ftc_sen_maria_cantwell)
+***发布：小红帽***
 
-（文章仅代表作者个人观点）
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
