@@ -2,17 +2,40 @@
 ---
 
 
-## 【文贵先生大直播PPT】单伟建和PAG到底是啥玩意儿
-` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1733515/)
+## 共魔战狼
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1732313/)
 
-撰稿：顽童2017，Sima（正道主义）
-美工：Sotres，青山
-
-【2021年12月8日文贵先生大直播PPT：单伟建和PAG到底是啥玩意儿】
-![](https://assets.gnews.org/wp-content/uploads/2021/12/41-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/43-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/44-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/45-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/46-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/47-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/48-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/49-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/111-2-2.jpg)
-* * *
-
-发稿：云起时
+作者—爱战神
+校对/发布—无明逆流
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-23.jpg)
+**中共恶魔老杂毛，挑战一百一十国。
+地球只是一粒沙，我想干啥就干啥。
+吹起牛来嘴很硬，其实外强内中干。
+回顾历史大清国，战书下达八国军。
+百年过去红魔都，出个太阳习大神。
+神助贼胆战天下，处处树敌以为荣。
+生化战争早挑起，世界放满了病毒。
+种种病毒胡乱放，先放国内再放外。
+假仁假义送疫苗，疫苗杀人更疯狂！
+幸亏七哥料如神，提前告知全世界。
+中共杂毛坏尿性，早被七哥来破解。
+阴狠毒辣天下横，难逃七哥手掌心。
+百十一国就是牛，不尿共魔淫和威。
+七哥早就神预测，办不成还尽丢人。
+偷鸡不成蚀把米，陪了夫人又折兵。
+百国不来共奥会，魔鬼气得要跳楼。
+魔鬼长得实在丑，粉饰表面来遮丑。
+死要面子活受罪，不来比赛是敌人。
+正人君子都不来，剩下一帮泼皮赖。
+给钱就来喊加油，墙国永远是第一。
+魔鬼喜欢做老大，笑逐颜开心花放。
+冠军奖牌满天飞，爱国煽情粉红泪。
+百姓冼脑已成功，中华伟大再崛起！
+满脸屎蛆贴成金，自愚自乐天下笑。
+魔鬼嘻笑百姓苦，江山永固红旗飘。
+掐断共魔的咽喉，唯有战神郭老七！
+吓得共匪老杂毛，屁滚尿流满地爬！
+新中国联邦的旗帜，盘古龙头来飘扬！**
 
  
 
