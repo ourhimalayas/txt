@@ -2,26 +2,33 @@
 ---
 
 
-## 秘翻在线: 美议员呼吁运动员不应参加北京冬奥会
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1740410/)
+## 七哥说：习近平你站出来对着我（2021-12-08摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1740468/)
 
-撰稿：西枫westca
+文编：Hima
+听写：叮叮
+视频：七哥
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/12/unnamed-14.jpg)图片来源：网络截屏
-据福克斯新闻12月9日报道，美国参议院议员玛莎·布莱克呼吁，美国奥委会不应该送运动员去北京参加比赛。
+来源：郭先生2021-12-08直播10：12：15 摘录
 
-她说，“多年来西方的商业界和媒体界都认为，挑战中共的人权纪录是不明智的，如果激怒中共，后果会很严重的。”布莱克还提到，近年来，苹果、耐克、迪斯尼、AirBnB等大型企业在追求更高利润率的过程中，无视中共的暴力镇压、文化破坏和种族灭绝的行为。
+看看谁先软谁先退，你要有种，习近平你站出来你对着我，咱们单对单的来，你要没种，你用你手里边奴役的机器，掠杀我们所谓的被你绑架的这些家人，你看你还能做啥，我已经做好下每一分钟我爹给你弄死，是吧，我就做好这准备了。我一滴泪都不会掉，如果我让他看到我掉一滴泪，我就不叫郭文贵，我就不叫郭七，咱走着看。我不可能让这件事就这么过的去，你对我家人下了如此之重手，已经不是一次了，全家抓两次，判两次，所有同事都这样。有在现场的人给我发信息说，七哥这不是没有人权，连起码的人格都不给了，他说我看到你的员工出来，光着脚狼狈的样子，连打连骂的踹着比电影还恐怖。这仇不报我能是人吗，别说是男人了，我连什么人都不是。
 
-12月初，世界女子网球协会因为彭帅的失踪而决定放弃1亿元的封口费，宣布暂停在中共国的比赛，这是一个令人震惊的道德选择。 布莱克呼吁其他公司或组织也能鼓起勇气，“从这种无耻的勒索计划中解脱出来。”
+校对：HimaFaFA
+发布：HimaBoy
 
-中共已经宣布要藉奥运之机让世界各国运动员测试“数字人民币”，不仅如此，中共的“国家安全法”适用于地球上的每一个人。她认为美国运动员去中共国，就等于“准备走入陷阱，因为国际奥委会同意北京成为东道国的那一刻，中共就盯上了这些运动员。”他们不仅会实行行动和言论控制，还会密切监视各国运动员。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
 
-布莱克还提到，中共会利用奥运会实现自己的国际野心，“事实上，如果美国只是官员缺席，外交抵制，但仍然派遣美国队运动员前往，这对中共官员来说是一个可喜的进展。” 但如果美国政府对此视而不见，就是支持北京的外交伪装，我们不仅仅是在助长邪恶，而是参与了邪恶之中。
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-我们希望在2022年冬奥会前，把更多的、真实的有关中共国的邪恶和野心传达给世界、给欲参赛的运动员们。 为虎作伥最终危害的终究是自己。
+**关注我们**
 
-**新闻来源：**[US must not enable evil in China and at the Beijing Olympics | Fox News](https://www.foxnews.com/opinion/us-evil-china-beijing-olympics-sen-marsha-blackburn)
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

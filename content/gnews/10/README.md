@@ -2,33 +2,50 @@
 ---
 
 
-## 七哥谈我们要加速共产党的灭亡（2021-12-08摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1740676/)
+## 欧洲国家何时宣布抵制北京冬奥？
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1740723/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-来源：郭先生2021-12-08直播10：43：34 摘录
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/12/e.jpg)c-vine.com
+截止笔者发稿时，仍未看到德国等欧洲对是否抵制北京冬奥会的态度。
 
-我们承担一切后果。如果大家有信心，我们要加速共产党的灭亡，一定在2025以前把它消灭，离开这个世界。否则就会让我们的父亲母亲所有的亲人离开这个世界，郭文贵就没有什么失去了，就剩一个老爹了，92岁了，我做好了一切的准备，他要把我爹给宰了给炖了，让全世界看看，所有人的爹你都有可能像郭文贵的爹一样，我爹这一辈子不白活了。
+昨天（12月9日）法国马克龙“不会加入‘微不足道’的抵制”的表态，加上体育部长与外交部长不同的表态【1】，让人看到了法国内部在此问题上的角力，笔者没有看好中共马仔马克龙，认定法国为中共所期将会是大概率事件。鉴于中共正在加大对法国的拉拢，更令人觉得法国难与中共割舍。
 
-校对：HimaFaFA
-发布：HimaBoy
+且看中共对法国的最新动作：【2】
 
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+“经中法双方商定，第八次中法高级别经济财金对话将于12月13日以视频会议形式举行，国务院副总理胡春华与法国经济、财政和振兴部长布鲁诺·勒梅尔将共同主持对话。对话将积极落实两国元首在经济财金领域达成的一系列重要共识，就全球经济治理，应对气候变化，经贸、农业、航空航天、民用核能、科技创新、金融、第三方市场等领域合作展开讨论。
 
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+中法高级别经济财金对话机制成立于2013年，是中法两国就经济财金领域重大问题进行磋商协调的重要平台，为深化两国经济财金领域务实合作，加强双方在重大国际经济财金议题上的沟通协调，推动中法全面战略伙伴关系发展作出了积极贡献。”
 
-**关注我们**
+这是公开的，还有私下的勾兑，对相关操办人施展的诱惑，这都是法国目前态度的写照。
 
-Discord 账号
+与其说是在拉拢法国，也是在喊话德国、喊话欧洲，中共清楚，虽然蓝金黄手段很到位，但是总有正义力量的存在，而且世界都在认知中共的邪恶，这就是双方角力的现状。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+正像《政治》（politico）描述的那样：【3】
 
-Gettr 账号
+当乔·拜登和他的朋友们在雪地里划一条线时，欧盟不仅在成员国之间分裂，而且像法国这样的国家也在内部传递着复杂的信息。
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+法国体育部长让·米歇尔·布兰克（Jean-Michel Blanker）周四（12月9日）凌晨对媒体表示，他的年轻同事、前奥运会银牌得主罗克萨娜·马拉西尼亚努（Roxana Maracineanu）将出席北京奥运会，并宣布法国不会抵制。
+
+但几分钟后，法国外长让·伊夫·勒德里安（Jean-Yves Le Drian）反驳了布兰克的说法，勒德里安表示，他愿意接受欧盟范围的谈判，讨论外交抵制。
+
+他说：“我们赞成（欧盟内部）的共同立场，我们将在下一次外长会议或后续会议上讨论这一立场的各个方面，但这一问题必须在欧洲层面上解决。”
+
+他的立场立即得到了德国新任外交部长安娜莉娜·贝尔博克（Annalena Baerbock）的响应，她于周三（12月8日）上任后首次前往巴黎进行外交访问，“我们将在新的联邦政府中决定如何进一步处理这一问题，但这也将与我们的欧洲朋友协调一致。” 贝尔博克补充道。
+
+荷兰还希望与欧盟伙伴讨论这一问题，其他国家，如瑞典，表示尚未收到北京的邀请。
+
+期待欧洲作出明智选择！
+
+有关链接：
+
+【1】[https://gnews.org/zh-hans/1737621/](https://gnews.org/zh-hans/1737621/)
+
+【2】[https://www.fmprc.gov.cn/web/wjdt\_674879/fyrbt\_674889/202112/t20211210\_10466651.shtml](https://www.fmprc.gov.cn/web/wjdt_674879/fyrbt_674889/202112/t20211210_10466651.shtml)
+
+【3】[https://www.politico.eu/article/olympic-mess-eu-dither-winter-olympics-boycott/](https://www.politico.eu/article/olympic-mess-eu-dither-winter-olympics-boycott/)
 
  
 

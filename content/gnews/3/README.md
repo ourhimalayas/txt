@@ -2,23 +2,26 @@
 ---
 
 
-## 苹果公司与北京秘密签署2750亿美元投资协议
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1740818/)
+## 英国儿童感染奥米克戎Omicron后出现不寻常皮疹
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1740855/)
 
 本文作者：Rebecca (一切心皆不可得！)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image001-1.png)
-据路透社报道，网媒《信息》（The Information）周二（7日）独家披露，苹果公司 (AAPL.O) 首席执行官蒂姆-库克（Tim Cook），2016年5月曾与中共政府官员“秘密”签署了一份 2,750 亿美元的投资协议。以缓解可能会导致其产品与服务在中国市场受挫的威胁。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image002-9.jpg)
+伦敦北部全科医生大卫-劳埃德博士说，被确诊感染新变种奥米克戎Omicron的儿童出现了皮疹，主要在幼儿中出现这种因感染新变种而引发的症状。
 
-该份协议内容包括：
+英国星期二（当地时间）记录了437名奥米克戎Omicron患者中有101名出现了皮疹症状，占总病患的15%。
 
-- 苹果承诺帮助中共国制造业者开发‘最先进的制造技术’并‘支持培养高素质的中共国人才’
-- 苹果承诺在其产品使用更多来自中共国供应商的组件，与中共国软件公司签署协议，与中共国大学进行技术合作，并直接投资中共国科技公司
-- 苹果承诺在中共国市场的投资将比当时的水平高出“数十亿美元“
+世界卫生组织（WHO）此前曾表示，目前没发现奥米克戎的症状与其他新冠病毒变体有什么不同。
+
+劳埃德博士说，该病毒变种引发的皮疹与其他菌株略有不同，我们注意到了这个情况。对奥米克戎变种病毒有了进一步了解。
+
+Tim Spector教授说，奥米克戎继续在英国蔓延，他怀疑在英国已经有至少1000个这种新变体的病例。
+
+南非非洲健康研究所一个实验室的研究负责人说，奥米克戎变体可以部分逃避辉瑞公司和合作伙伴BioNTech的新冠病毒疫苗的保护。
+
+[新闻来源链接](https://www.newshub.co.nz/home/world/2021/12/covid-19-unusual-rash-linked-to-children-infected-with-omicron-cases-in-uk-gp.html)
 
 
-如果双方都不反对，该份协议将自动延期至第六年，即到2022年5月。
-
-参考来源：[https://www.reuters.com/business/retail-consumer/apples-tim-cook-signed-275-bln-deal-with-chinese-officials-placate-china-2021-12-07/](https://www.reuters.com/business/retail-consumer/apples-tim-cook-signed-275-bln-deal-with-chinese-officials-placate-china-2021-12-07/)[链接](https://www.reuters.com/business/retail-consumer/apples-tim-cook-signed-275-bln-deal-with-chinese-officials-placate-china-2021-12-07/)
 
 审核校对：sherryok (水云间)
 
