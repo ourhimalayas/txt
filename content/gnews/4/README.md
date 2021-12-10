@@ -2,31 +2,43 @@
 ---
 
 
-## 《蜘蛛侠：无路可走》在中共国可能出现问题
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1739096/)
+## 美两院就国防授权法达成共识，阻止中共犯台
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1739144/)
 
-翻译：蚂蚁兄弟
-![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕截图-2021-12-10-111100.jpg)图片来源： cinemascomics.com
-《蜘蛛侠：无路可走》上映在即，目前仍不清楚它是否能在中共国上映。
+作者：东京樱花团—在远方
 
-一部美国电影要进入中共国的电影院，必须通过一系列的审查，最近中共放映单位说《蜘蛛侠：无路可走》不会有任何上映问题，但到现在结果并不那么明朗。离该电影世界公映日只有几天时间了，审核官员还没有拍板。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-10.jpg)
 
-对于漫威影业来说，如果此电影能顺利在中共国公映，这将是漫威2021年抵达中共国的第一部电影，因为到目前为止，《黑寡妇》、《尚志》和《十环传奇》以及《永恒者》都因为各种不同的原因被审查了。所以大陆蜘蛛侠粉丝能否在电影院看到彼得-帕克，必须等待一段时间才能知晓。
 
-迪士尼亚太区总裁Luke Kang对《蜘蛛侠：无路可走》的上映充满信心，他说：“迪士尼在中共国有一个非常好的记录。在过去的十年里，在中共国，并非所有的事情都是成功的，但总的来说，没有人可以质疑我们作为一个动漫公司在中共国的整体成功。展望未来，我们是非常乐观的，短期挑战最终会自行解决。”
 
-“漫威影业在中共国非常受欢迎，但我们很难预测一个政府的举动。我们的工作是在消费者所在的地方了解消费者，了解当地的约束和限制下，我们能做到的最大限度地发挥的影响力和潜力。”
+![圖為美國國會大廈。（法新社資料照）](https://img.ltn.com.tw/Upload/news/600/2021/12/08/phpo4yI6S.jpg)（美国国会大厦）（图片来自法新社）
 
-《蜘蛛侠：无路可走》将于12月16日在全球许多国家上映。中共国能否成为其中之一，我们拭目以待。
+当地时间12月7日，美国参众两院军事委员会，就2022年度国防授权法案达成共识。其中有关台湾的内容包括建议邀请台湾参加环太平洋演习，以及保持美军阻止中共武力犯台形成既成事实等。该法案在经过参众两院表决通过后，将由拜登总统签署生效。
 
-新闻来源：[cinemascomics.com][Spider-Man: Sin camino a casa podría tener problemas en China](https://www.cinemascomics.com/spider-man-sin-camino-a-casa-podria-tener-problemas-en-china/)
+据悉，该法案涉及军费总额高达7680亿美元。该法案要求美国国防部评估协助台湾发展不对称防御战略，要求国防部长提出美军与台湾合作的可行性报告，还要求提供中共对美国军事联盟影响力的报告，并分拨71亿美元用在太平洋吓阻倡议中。另外，由于中共在南美和加勒比海地区持续不断的威胁，该报告还要求，留意中共对该地区台湾外交关系的持续施压。
 
-* * *
+参考链接：
 
-*审核：Aries的星
-校对：阿伯塔
-发布：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH..jpeg)
+[https://news.ltn.com.tw/news/world/breakingnews/3761291](https://news.ltn.com.tw/news/world/breakingnews/3761291)
+
+校对/发稿：有莫举名
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-3.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-5.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

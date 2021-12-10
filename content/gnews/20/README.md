@@ -2,30 +2,22 @@
 ---
 
 
-## 研究表明寒冷天气会导致血栓和心脏病发作 给疫苗灾难敲响警钟
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1738811/)
+## COVID-19 最新情报｜研究指出：鼻咽处清除后 新冠病毒仍持续存在于肠道组织
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1738900/)
 
-#### 翻译：肯塔基钢蛋儿
+**疫情關注組 / 發佈時間｜10/12/2021**
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/covid-19-vaccine-mixing-shutterstock_1891563244-2.jpg)图片来源：clinicaltrialsarena
-据News Punch网站12月2日报道， 随着英国寒冷的冬季到来，天气预报员会在全国范围内发布天气预警，研究人员表示，寒冷的天气也会影响你的健康。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-他们警告说，在寒冷的天气里，人们更有可能患上心脏病或血栓等严重疾病，即使是温度的小幅下降也会导致心脏病发作人数的增加。
 
-在今年早些时候发表的一份报告中，《太阳报》（The Sun）报道了寒冷天气可能引发的一些健康危害，包括:
+据BMC所载的相关研究，新冠病毒可能会引起轻微的肠道症状，而部分患者可能发生更严重的肠道并发症。研究通过**透射电子显微镜** (TEM)，证实新冠病毒(SARS-CoV-2)可存在于肠道组织内皮细胞中。
 
-#### 1. 血栓
+研究内容提及两名COVID-19 患者（其中一名患有肠道淋巴瘤，另一名患有缺血性结肠炎），在确定鼻咽处的新冠病毒被清除后，通过透射电子显微镜 (TEM)发现新冠病毒仍继续存在于肠道组织内皮细胞。其中一病例，**在鼻咽部病毒清理完成后6个月，肠组织仍留存病毒，具潜伏感染可能**。
 
-温度的突然变化会给身体造成热应力—身体必须更加努力地工作以保持恒定的温度。来自法国尼斯一家医院的研究者表示，冬季呼吸道感染的患者可能会更容易出现血栓。此外，寒冷的天气可能会使血管收缩，也会更有可能形成血栓。
-
-#### 2. 心脏病发作
-
-最近的一项研究显示，暴露在寒冷天气中，人们更容易患心脏病。瑞典隆德大学的研究人员发现，与天气温暖时相比，天气寒冷时，日均心脏病发作次数明显提高。在日常基础上，当平均气温低于零度时，每天又会有额外的四次心脏病发作。人们认为在寒冷的天气中心脏病发作的风险更高，原因是身体通过限制浅表血管来应对寒冷。这会降低皮肤的温度，并增加动脉中的血流量，同时身体也开始颤抖，心跳加快以保持温暖。但这些反应会给心脏增加额外的压力。
-
-评论：按照文章所述，天气寒冷会引发心脏或血栓等疾病，这有可能是预先为疫苗灾难做铺垫找理由，但更重要的是给已经打了疫苗的人敲响警钟，毒疫苗本来就会引起血栓或心肌炎等疾病。如今随着冬天的到来，这也意味着疫苗灾难即将爆发。
-
-原文连接[：Researchers Warn That Cold Weather Can Cause Blood Clots & Heart Attacks](https://newspunch.com/researchers-warn-that-cold-weather-can-cause-blood-clots-heart-attacks/)
+2020 年 3 月 1 日至 4 月 30 日期间，有932名COVID-19病患在 Universitari Mútua Terrassa住院治疗，其中41名（4.4%）病患发生严重腹痛，6名需要进行腹部手术。通过透射电子显微镜 (TEM)可以确定COVID-19 引发肠道损伤具有因果关系，但严重肠道并发症并不常见。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-2.png)
+来源￨[BMC](https://bmcgastroenterol.biomedcentral.com/articles/10.1186/s12876-021-01905-3)
 
  
 

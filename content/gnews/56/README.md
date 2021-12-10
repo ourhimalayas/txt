@@ -2,30 +2,45 @@
 ---
 
 
-## 美众议院一天内几乎全票通过三项中共国人权法案
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1735358/)
+## 国会回击迫使拜登撤回银行监管机构人选提名
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1735821/)
 
-![新疆一个棉花制品厂内的情景（路透社转发2021年4月1日照片）](https://gdb.voanews.com/1A56ED50-D12D-409D-9F07-64618977B113_w1023_r1_s.jpg)*新疆一个棉花制品厂内的情景（路透社转发2021年4月1日照片）*
-据美国之音12月9日报道，美国国会众议院8日以428票对1票通过了《防止强迫维吾尔人劳动法》，除非得到美国当局的无强迫劳动认证，否则会推定凡在新疆制造的产品均使用了强迫劳动而禁止进口这些产品。众议院还以427票对1票通过了一项决议案，谴责中共国继续针对维吾尔人的种族灭绝和犯罪行为。同一天，众议院全票通过了一项决议案，认定国际奥林匹克运动会未能遵守自身对人权的承诺。国会此前已经通过了2020年维吾尔人权政策法、支持西藏人政策法和2019年香港人权与民主法。
+**翻译： Jenny Ball**
 
-众议院议长佩洛西今年早些时候因新疆人权问题敦促拜登政府对北京冬奥会实施外交制裁，美国总统拜登上个月与中共国领导人习近平举行视讯会晤时直接表达了对中共国在新疆、西藏、香港事务上的做法和广泛的人权问题的忧虑。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip41.png)绍尔·奥马洛娃（Saule Omarova） 于 2021 年 11 月 18 日在国会山的参议院银行、住房和城市事务委员会的提名担任货币审计长的听证会上。（Anna Moneymaker/Getty Images）
+ 
 
-人权问题是中共跨越不了的障碍，也是人类的底线。每个人的生命都是宝贵的，应该享有基本的人权，获得基本的尊重。中共国老百姓的生命主权掌握在中共手里，中共或杀或留，老百姓没有权利把握。因此中共才会蔑视人权、践踏生命，打压少数民族，全球释放病毒，这种独裁体制是人类社会的肿瘤，应该尽早割除。
+在参议院共和党人和几位民主党人的强烈反对之后，总统拜登周二撤回了对银行监管最高职位的选择。
 
-新闻参考链接：[https://www.voachinese.com/a/house-overwhelmingly-pass-three-china-human-rights-bills-20211209/6346150.html](https://www.voachinese.com/a/house-overwhelmingly-pass-three-china-human-rights-bills-20211209/6346150.html)
+康奈尔大学法学院教授绍尔·奥马洛娃， 因她提议将银行业戏剧性地集中化，以及她关于赞誉共产主义创始人卡尔·马克思的论文而招致批评。
 
-编辑：胖丁
+拜登在一份声明中表示，他同意撤回对奥马洛娃担任货币审计长的提名。
+
+奥马洛娃在白宫发布的一封信中没有说明她提出这一要求的原因，只是将其描述为，让她继续担任拜登候选人“不再站得住脚”。
+
+参议院银行委员会最高共和党参议员帕特·图米 (Pat Toomey) 指出，奥马洛娃本人称，她的提议激进。在著作中，她表达了“正如我们所知，有效‘结束银行业’”的愿望，并让美联储为食品和能源设定价格。
+
+“在确认过程中，两党达成共识，即奥马洛娃教授自称对美国金融体系的激进想法，不适合我们国家的最高银行监管机构。我希望拜登政府能够选出一位对美国经济有主流观点的候选人，”图米周二表示。
+
+奥马洛娃是一个激进的人，她自由地以书面形式分享她的马克思主义观点。她希望大政府官僚支配美国经济。“让她负责美国的银行，对美国工人和家庭来说是灾难性的，”参议员约翰·肯尼迪（John Kennedy）补充道。
+
+奥玛洛娃在听证会上说，她不是共产主义者，并试图与自己的作品保持距离。
+
+一些民主党人表示，他们支持拜登的选择，但参议员马克·华纳（Mark Warner）和乔恩·泰斯特（Jon Tester）表达了对她的担忧。泰斯特不喜欢奥马洛娃批评他帮助撰写的《经济增长、监管救济和消费者保护法》的立法。
+
+审计长是参议院确认的职位。参议院目前以 50-50 的比例分裂。民主党人可以通过副总统卡马拉·哈里斯打破平衡。任何民主党的叛变都可能注定奥马洛娃的命运。
+
+此前，拜登撤回了对内拉·坦登 (Neera Tanden) 负责白宫预算和管理办公室，和大卫奇普曼 (David Chipman) 负责酒精、烟草、枪支和爆炸物管理局的提名。
+
+**新闻来源**：[theepochtimes.com][Biden Withdraws Bank Regulator Pick After Congressional Pushback](https://www.theepochtimes.com/mkt_morningbrief/biden-withdraws-bank-regulator-pick-after-congressional-pushback_4144165.html?utm_source=Morningbrief&amp;utm_medium=email&amp;utm_campaign=mb-2021-12-08&amp;mktids=9f133939191013dda5b9efa6e91f97e2&amp;est=T63%2BJDsAB4TYFvhUZK%2BYtooaugGWKQTxoDOP9laYjzV%2Ba%2FLeKoJWIOJXUbGfa9VVPbq4Ug%3D%3D)
 
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH..jpeg)
 
  
 
