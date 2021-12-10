@@ -2,52 +2,37 @@
 ---
 
 
-## 喜币利好&#8211;加密货币行业高管请求国会明确立法
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1738393/)
+## 一百万过期疫苗救了多少人？
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1738462/)
 
-翻译：温哥华扬帆农场 路仁
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1111-2.jpg)
-据路透社12月8日报道，包括 Coinbase 和 Circle 在内的六家主要加密货币公司的高管周三敦促国会为蓬勃发展的 3 万亿美元行业制定更明确的规则，但警告称，过于严格的限制会将其推向海外。
+作者：香草山金融部 – 闲聊钱币
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
+根据路透社12月7日的一则新闻，非洲第一人口大国尼日利亚大约有100万支COVID-19疫苗在上个月过期而未被使用，是迄今比较大的一次“浪费”。
 
-这次首次美国众议院金融服务委员会就加密货币举行听证会。这也标志着该行业的高级领导人首次向美国立法者解释他们的业务，因为人们越来越担心加密货币可能构成系统性风险并伤害投资者。与会加密货币公司管理人员反复呼吁制定谨慎的、定制的规则，而不是强迫行业遵守现有法规。
+该则新闻强调非洲国家落后的基础设施，匮乏的医疗条件，和短暂的保质期是导致疫苗过期的主要原因。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture1-17.jpg)
+然而非洲国家是不是由于没有注射这100万疫苗就死亡无数呢？根据[worldometers.info](http://worldometers.info) 的数据显示，尼日利亚总人口约两亿一千三百万（213,000,000），染病二十一万五千（215,000），死亡两千九百八十（2,980）。WHO数据显示尼日利亚疫苗成人接种率小于百分之四（4%）。
 
-Coinbase Inc 的首席执行官阿莱西亚·哈斯 (Alesia Haas) 警告说：“如果没有经过公众参与的公开辩论的量身定制的立法解决方案，美国将面临不必要的繁重和令人不寒而栗的法律法规的风险。”
+用更通俗的话来说就是每1000个尼日利亚人中只有1个被感染，每100个被感染的人中有1.38人失去生命。
 
-据一位行业分析师表示，国会不太可能在短期内制定新的加密货币规则，本次听证会的立法者主要将其视为事实调查活动。
+与此形成鲜明对比的是医疗条件基础设施都极为发达的美国。根据同一网站数据计算，每1000个美国人有151人感染，每100个被感染的人有1.61个人丧生。更为可笑的是美国的接种率高达60%。
 
-担任该小组主席的民主党众议员 Maxine Waters 表示，存在关于适当监督的问题，并指出脸书Facebook Inc (FB.O) 的稳定币计划是该公司巨大的全球影响力的主要问题。
+任何疫苗的主要作用是防止疾病的扩散，但是从以上数据我们很难看到令人信服的证据。郭文贵先生从疫苗被强行推广的第一天起就大声呼吁世界各国重视由毒疫苗引起的人道灾难。这一百万过期的疫苗在无形中挽救了很多人的生命。
 
-但也有一些立法者，尤其是共和党人，称赞高管们在可能成为关键技术的领域发挥了带头作用。
+参考来源：[一百万过期疫苗救了多少人？](https://www.reuters.com/business/healthcare-pharmaceuticals/exclusive-up-1-million-covid-vaccines-wasted-nigeria-last-month-2021-12-08/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=Hitachi%20UK%208/12/21%20Sponsorship&amp;utm_campaign=Hitachi%20UK%208/12/21%20Sponsorship)
 
-“我印象非常深刻。我看到了很多独创性和创业精神，”德克萨斯州共和党众议员皮特·塞申斯 (Pete Sessions) 说。 “我们需要作为你们的支持。”
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88-1.png)
 
-Circle 首席执行官 Jeremy Allaire、FTX Trading 首席执行官 Sam Bankman-Fried、Paxos 首席执行官 Chad Cascarilla、Stellar Development Foundation 首席执行官 Dennelle Dixon 和 BitFury 负责人 Brian Brooks 也参加了听证。
+编辑/校对/发稿：Hetangyuese
 
-加密货币，尤其是稳定币——一种与传统货币挂钩的数字资产——的快速增长引起了监管机构的注意，他们担心如果得不到适当的监控，他们可能会将金融体系置于风险之中。
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-一些政策制定者，如参议员伊丽莎白·沃伦（Elizabeth Warren)和证券交易委员会主席加里·根斯勒(Gary Gensler)，也担心这些产品可能被用于非法目的，或利用毫无戒心的消费者。
-
-在11 月，美国财政部领导的一个工作组建议国会通过一项法律，强调稳定币只能由银行等有保险存款的公司发行。
-
-高管们表示，他们欢迎监管清晰，这可能有助于该行业的扩张，但过于严格的规则可能会适得其反。
-
-他们表示，该行业的快速增长凸显了投资者对数字资产的强烈兴趣，应该得到明确规则的支持，而不是扼杀。
-
-BitFury 的布鲁克斯曾是币安美国业务的前首席执行官，在此之前是银行监管人员，他告诉立法者加密货币类似于传统资产。
-
-“我们是最后一个没有弄清楚这一点的国家，”他说。
-
-但加密货币的复杂性和波动性，以及围绕披露、储备、消费者保护和其他政策的千差万别的标准让一些立法者感到担忧。
-
-“我认识的大多数人都投资了加密货币（已经这样做了）……因为他们认为他们可以快速致富，”众议员胡安·巴尔加斯说。 “不幸的是，我们以前见过这种情况，这导致了金融危机。”
-
-【译者评】：正是由于许多加密货币如比特币等，无限的去中心化，使得政府无所适从，从而变成了洗钱和隐匿财富的工具。也成为暗网和犯罪分子的作案工具。从这个国会听证会可以看出，无论是加密货币从业者，还是主权国家监管部门，都希望能使这个人类新兴的科技创新变成可控的金融交流模式。而这一点，正是喜马拉雅设计之初就预定的模式。相信随着立法部门的政策明晰，喜币已经胜在起跑线，必将在鱼龙混杂的众多加密货币中一枝独秀，傲视群雄！
-
-[原文链接](https://www.reuters.com/markets/europe/us-risks-chilling-regulations-crypto-industry-warns-congress-2021-12-07/)
-
-* * *
-
-编辑/发稿：云起时
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
  
 
