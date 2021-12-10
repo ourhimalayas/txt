@@ -2,27 +2,30 @@
 ---
 
 
-## 美国众院压倒性通过《防止强迫维吾尔人劳动法》
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1737771/)
+## 美参议院投票否决拜登政府的疫苗强制授权
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1737854/)
 
-作者：日本方舟农场 – Andy5
+作者：银河勇气星 – 骄子
 ![This image has an empty alt attribute; its file name is 1-28.png](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
-周三，美国众议院以428票赞成、1票反对，压倒性通过了《防止强迫维吾尔人劳动法》。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/5-16.jpg)
-该法案由民主党众议员吉姆·麦戈文和共和党议员克里斯·史密斯联合提出。史密斯议员表示，新疆所发生的种族灭绝，直接违反了《联合国防止及惩治灭绝种族罪公约》的第二条，习近平应该为其下达的命令负责。
+12月8日，美国参议院以52比48，否决了拜登政府针对大企业的疫苗强制令。
 
-该法案要求国土安全部拟定一项清单，列举出与中共政府合作压迫维吾尔人的实体，并禁止所有涉及强迫劳动生产的商品流入美国市场。除了这项法案，众议院在当天还高票通过了另外两项涉及新疆维吾尔人权的议案。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/6-15.jpg)
+
+按照职业安全和健康管理局（OSAH）发布的规定，对人数不少于100人的企业，雇主需要在2022年1月4日前，要求其员工接种疫苗，或定期接受检测。
+
+印第安纳州参议员迈克·布劳恩称，这是政府的强硬手段，是过度干预。很多共和党人也认为，拜登政府的疫苗强制令，严重侵犯了美国公民的自由。
+
+据11月底公布的民意调查显示，高达86%的美国就业人员反对，业主解雇拒绝接种疫苗的员工。
 
 参考链接：
 
-- [众议院通过三项涉新疆人权议案 禁止强迫劳动产品入美国](https://www.voachinese.com/a/us-house-passes-uyghur-bills-20211208/6346179.html)
-- [美参议院一致通过《防止强迫维吾尔人劳动法》将禁止进口新疆产品](https://www.voachinese.com/a/senate-passes-bill-to-ban-all-products-from-xinjiang-20210714/5966494.html)
+- [Senate votes to nix Biden’s vaccine mandate for businesses](https://thehill.com/homenews/senate/585005-senate-votes-to-nix-bidens-vaccine-mandate-for-businesses)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
 
 总编辑：飞虹
-编辑：飞虹/雪梨
+编辑：Lakeman文仁/雪梨
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

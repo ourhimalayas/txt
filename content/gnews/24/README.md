@@ -2,44 +2,50 @@
 ---
 
 
-## 证券监管机构对数字世界与特朗普媒体公司的交易展开调查
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1737541/)
+## “班农先生不睬案”审理日期已确定
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1737586/)
 
-**简评：前总统特朗普的媒体公司与数字世界的合并之事，郭文贵先生已经做了很详细的分析：是吴征代表的CCP在后面捣鬼，他们想让特朗普背后8000万支持者彻底抛弃特朗普，从而断送特朗普2024年的总统大选；且下一个目标就是爆料革命的伟大战友蓬佩奥先生。另外，爆料革命战友始终要支持特朗普总统。此外，我们看到SEC明确强调，调查并不意味者任何人违反了法律，反观中共国的经济调查，相关人士的下场我们心知肚明。**
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-**据《纽约时报》记者：Matthew Goldstein和David Enrich，2021年12月06日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/0-image0.jpg)**图片来源：Erin Schaff/The New York Times**
-监管机构正在审查数字世界（Digital World）的股票交易，该公司打算与一家由前总统唐纳德·特朗普支持的社交媒体公司合并。
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/12/B-4.jpg)hurriyetdailynews.com
+“班农先生不睬案”的定义详见Gnews文章。【1】
 
-美国证券监管机构已经对一家由前总统唐纳德·特朗普(Donald J. Trump)支持的新兴社交媒体公司与一家所谓的空白支票公司的合并计划展开调查，该公司在9月份的首次公开募股（IPO）中筹集了近3亿美元。
+司法部企图回避班农先生团队要求公布更多的文件，希望速战速决，快速了解此案，提出明年4月份审理的要求，而班农先生需要追究这起诉讼案更深的背景，提出明年10月份进行法庭审理，法官则进行了折中，确定在2022年7月18日进行。【2】
 
-周一，数字世界收购公司提交了一份监管文件。正是该文件披露了美国证券交易委员会(SEC）和金融业监管局(Financial Industry Regulatory Authority)对上述合并计划的调查。
+《门道专家》对司法部的行径进行了指责，“对班农先生的案子希望隐藏证据、光速结案——而对1.6抗议者无审判日期，要他们牢底坐穿”。【3】
 
-两家监管机构都在寻找有关数字世界股票交易的信息。 SEC还在调查数字世界和Trump Media之间的“文件和通信”。
+全文如下：
 
-数字世界表示正在配合索取信息的请求，“调查并不意味着SEC认为任何人违反了法律，或SEC对D.W.A.C或任何人、事件或证券持负面看法”。
+有关史蒂夫·班农藐视国会案的有关信息今天公布。
 
-《纽约时报》报道称，数字世界的首席执行官帕特里克·奥兰多（Patrick Or-lando）早在今年3月就与特朗普媒体（Trump Media）的代表就达成某项交易进行了谈判。随后，数字世界表示，这项调查始于11月初。
+美国《伟大》（American Greatness）杂志撰稿人朱莉·凯利（Julie Kelly）在推特上发布了大量描述班农在其案件中的战略信息。
 
-成立时是一家特殊目的收购公司——一个通过首次公开募股筹集资金的实体。然后寻找一家公司进行收购。当SPAC上市时，他们不应该在不向投资者披露的情况下进行合并谈判。
+班农的团队计划向美国检察官办公室、司法部、白宫和美国众议院索取信息。
 
-数字世界在一份文件中披露了监管机构的调查，该文件宣布：机构投资者已承诺再提供10亿美元，以换取大幅折价的股票。
+司法部很害怕，试图阻止班农向媒体发布信息，班农的团队提醒法官，媒体希望看到这些信息。
 
-该文件称，美国金融业监管局要求数字世界在10月21日宣布计划与特朗普媒体合并之前提供有关交易活动的信息。据该公司称，SEC.要求提供的文件，包括与数字世界董事会会议有关的文件以及“D.W.A.C.与T.M.T.G.之间的某些文件和通讯”。
+文章附上了凯利的推文。
 
-消息公布后，数字世界股价下跌1%，至每股约44.33美元。
+法官似乎站在腐败犯罪的司法部一边。
 
-**原文连接：**[https://www.nytimes.com/2021/12/06/business/trump-media-spac-investigation.html](https://www.nytimes.com/2021/12/06/business/trump-media-spac-investigation.html)
+班农正在追捕腐败和非法的1.6委员会。
 
-翻译：洛杉矶盘古农场–比格渣餐厅老板の娘
-校对：洛杉矶盘古农场–Mike Li
-评论：洛杉矶盘古农场–比格渣餐厅老板の娘
-编辑：洛杉矶盘古农场–心照
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+共和党人迷路了，他们在树林里寻找出路，他们根本帮不上忙。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+1.6（抗议者的）案件被推迟，但班农的案子必须以光速行动？
+
+掌管我们司法部和美国政府的是一个多么腐败的集团啊。这一切都始于奥巴马。
+
+（原文完）
+
+有关链接：
+
+【1】[https://gnews.org/zh-hans/1706104/](https://gnews.org/zh-hans/1706104/)
+
+【2】[https://thehill.com/regulation/court-battles/584703-judge-sets-july-trial-date-in-bannon-case](https://thehill.com/regulation/court-battles/584703-judge-sets-july-trial-date-in-bannon-case)
+
+【3】[https://www.thegatewaypundit.com/2021/12/doj-steve-bannons-court-case-wants-withhold-evidence-move-light-speed-j6-protesters-held-jail-still-dont-court-dates/](https://www.thegatewaypundit.com/2021/12/doj-steve-bannons-court-case-wants-withhold-evidence-move-light-speed-j6-protesters-held-jail-still-dont-court-dates/)
 
  
 

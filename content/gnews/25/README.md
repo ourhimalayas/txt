@@ -2,45 +2,133 @@
 ---
 
 
-## 美国空军部长称新飞机必须对中共国形成威慑
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1737530/)
+## 英国赌场牌照的意义
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1737580/)
 
-**简评：郭文贵先生直播中曾经提到，美中必有一战。另外还提到，中共国攻打台湾之时，就是其灭亡之日。在10月17日直播中更是爆料了美国军事实力远远高于中共国，美国可以在三分钟内清除所有的中共军事设施（包括天上、地上、水里等）。要么不做，要么就是百分之百，因为没有被摧毁的核基地是会进行反击的。多数人目前无法想象这种速度有多快，甚至还会产生疑惑，如同我们还不能理解明年就能轻松登上月球、生物计算机芯片、AI处理的智能金币一样。此文大概是说给美国普通民众看或是说给中共看的，让中共继续嚣张，这样才能继续加速迈向坟墓。**
+现在我告诉大家, 这种英国的赌牌
+Ahora les digo a todos, estas licencias de apuesta del Reino Unido
 
-**据《Taiwan News》记者：Liam Gibson，2021年12月5日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/au75e-r4k1y.jpg)**艺术家绘制的一架蒙着面纱的中国 H-20 隐形轰炸机。图片来源：推特航空图片**
-（台北）台湾新闻—美国空军领导人表示，必须迅速将军种部门的老式机型替换为新的机型，这样才能应对即将到来的竞争对手——正在崛起的中共国形成威慑。
+它不是价值
+No es el valor
 
-周六（12月4日）在里根国防论坛上，对于像MQ-9Reapers和A-10Warthog这样过时的飞机能否对中国人民解放军（PLA）空军构成了足够的威胁一事，空军部长弗兰克·肯德尔（Frank Kendall）表示了怀疑 。
+这是英国赌牌
+Esta es la licencia de apuesta del Reino Unido
 
-据《国防新闻》报道，肯德尔说：“如果它（这些老旧机型）威胁不到中共国，我们为什么还需要他们？”
+它有一个最安全的资金来源通道
+Tiene el canal de fuentes de fondos más seguro
 
-肯德尔说，美国空军平台的大部分战机机型已有30年的历史，他们在中东执行反恐任务时处于鼎盛时期。尽管在当时很有用，但该平台目前已无法胜任与中共国抗衡的任务，相比之下，中共国已战略性地发展其空军以摧毁美国的高价值资产（空中装备）。
+听懂了吗
+¿ Entendieron?
 
-他说，美国现在需要做出相应的回应，并开发能够超越解放军自身（不断增强的）能力的平台。
+对我们喜联储的重大的利好
+Es de gran beneficio para nuestra Reserva Federal de Himalaya
 
-肯德尔解释说，美国的立法者在很大程度上要为“淘汰旧机型的”延误负责。许多国会议员不希望现有的武器装备在他们家乡停产，因为这通常是选民的稳定工作来源。
+因为我们的喜联储通过这个咱们的H-coin也好, H-pay也好
+Porque nuestra Reserva Federal de Himalaya ya sea a través de H-coin, H-pay
 
-空军参谋长查尔斯·Q·布朗（Charles Q. Brown）将军表示同意，并补充说需要装备更多像 F-35 这样的高端战斗机。
+H-dollar也好
+O H-dollar
 
-他说，空军几十年来一直在中东宽松的环境中作战。在那个战区，军种不必担心敌人的先进防空系统。
+全部都活了, 一下子就(活了)
+Todo habrá vitalidad
 
-然而，与中共国的潜在战争将完全不同。他说，这个共产主义国家拥有先进的武器，可以阻止美国进入其领土。
+而且是每天的这种流量应该是相当巨大
+Y el flujo de todos los días es bastante grande
 
-不过，战胜中共国绝非易事
+如果特别像台湾大牛
+Si es especialmente como Daniu de Taiwán
 
-据传，中国新型歼-20（威龙）双座隐形战斗机上个月首飞。绰号“双头龙”，它被认为是世界上第一架可以容纳两名飞行员的隐形战斗机。
+巴黎在台湾的人
+Y Bali que son de Taiwán
 
-解放军空军还在研制一种新的战略隐形轰炸机，可能被称为H-20，它采用了“许多第五代技术”，拥有8500公里的航程，并具有“至少10公吨的载荷”。
+我告诉你台湾我知道几个家族
+Déjame decirte que yo sé de algunas familias en Taiwán
+每年就是到欧洲
+Donde van todos los años a Europa
 
-相信这种轰炸机将能够执行常规任务以及核任务。据传，H-20还能够携带和发射四枚高超音速隐形巡航导弹。
+到英国去赌
+A apostar en Reino Unido
 
-**文章来源：**[https://www.taiwannews.com.tw/en/news/4365995](https://www.taiwannews.com.tw/en/news/4365995)
+都是几亿几亿美元的赌
+Son apuestas de cientos de millones de dólares
 
-翻译：洛杉矶盘古农场–Raul
-校对：洛杉矶盘古农场–比格渣餐厅老板の娘
-评论：洛杉矶盘古农场–比格渣餐厅老板の娘
-编辑：洛杉矶盘古农场–心照
+有的大的玩得更大
+Algunos juegan aún más grande
+
+我再告诉大家
+También les digo
+
+赌场某种程度上是一个
+El casino es de alguna manera un
+
+最高端的金融游戏的智慧家的玩者
+Jugador más inteligente y sofisticado del juego finaciero
+
+在英国
+En Reino Unido
+
+只要你按我这个规矩玩儿
+Si juegas siguiendo mis reglas
+
+你绝对受到保护和尊重
+Serás absolutamente protegido y respetado
+
+他和中共国到澳门去
+Él va con el PCCh a Macao
+
+一会儿你涉黑了
+En un momento serás involucrado en la organización criminal
+
+你本来赌场就是黑社会
+El casino en sí es una organización criminal
+你涉个屁黑啊
+Para qué dices que estás involucrado en eso
+
+你本来就是黑社会还涉黑呢
+Porque ya en sí ya eres de la organización criminal
+
+是吧, 洗钱了
+Cierto, dinero blanqueado
+
+那赌场就是洗钱的
+Los casinos juegan el dinero blanquedo
+
+是不是, 他就这么简单
+Es o no es así, es tan sencillo
+
+你在英国不存在这个
+En Reino Unido no existe esto
+
+只要你按我的规则来
+Si sigues mis reglamentos
+
+你永远受保护
+Serás siempre protegido
+
+你去看看千年的历史
+Puedes ver la historia de hace mil años atrás
+
+英国没干过这事儿
+En Reino Unido no han hecho este tipo de cosas
+
+明白了吗, 意义重大
+¿ Comprenden? Este es muy significativo
+
+**原视频网址：**[https://gettr.com/post/pisqau958b](https://gettr.com/post/pisqau958b)
+
+日期：12/08/2021
+原视频标题：英国赌场牌照的意义
+El significado de la licencia de casino del Reino Unido
+原视频日期：12/05/2021
+原视频网址：https://gettr.com/post/pisqau958b
+任务编号：KC318(3123)
+视频时间段：0:00-1:43
+
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
+审片： 洛杉矶盘古农场 – 银龙
 发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）

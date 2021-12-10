@@ -2,50 +2,60 @@
 ---
 
 
-## “班农先生不睬案”审理日期已确定
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1737586/)
+## 马克龙称法国不会抵制北京冬奥会
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1737621/)
 
 俄罗斯莫斯科喀秋莎农场   仰望七星
 
 编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/12/B-4.jpg)hurriyetdailynews.com
-“班农先生不睬案”的定义详见Gnews文章。【1】
-
-司法部企图回避班农先生团队要求公布更多的文件，希望速战速决，快速了解此案，提出明年4月份审理的要求，而班农先生需要追究这起诉讼案更深的背景，提出明年10月份进行法庭审理，法官则进行了折中，确定在2022年7月18日进行。【2】
-
-《门道专家》对司法部的行径进行了指责，“对班农先生的案子希望隐藏证据、光速结案——而对1.6抗议者无审判日期，要他们牢底坐穿”。【3】
+![](https://assets.gnews.org/wp-content/uploads/2021/12/M-2.jpg)i24news.tv
+《法兰西24》（france24）发表文章，题目“马克龙说，法国不会加入对北京奥运会‘微不足道’的抵制”。
 
 全文如下：
 
-有关史蒂夫·班农藐视国会案的有关信息今天公布。
+法国总统伊曼纽尔·马克龙（Emmanuel Macron）周四（11月9日）表示，法国不会加入对2022年北京冬奥会的外交抵制，称此举“微不足道”。与此同时，法国外交部长勒德里安（Jean-Yves Le Drian）表示，巴黎仍在寻求欧盟在这一问题上的共同立场。
 
-美国《伟大》（American Greatness）杂志撰稿人朱莉·凯利（Julie Kelly）在推特上发布了大量描述班农在其案件中的战略信息。
+马克龙在周四（12月9日）的一次新闻发布会上说：“需要明确的是：你要么完全抵制，不派遣运动员，要么你试图用有用的行动来改变现状。”他补充说，他“支持有用的行动”。
 
-班农的团队计划向美国检察官办公室、司法部、白宫和美国众议院索取信息。
+美国、澳大利亚和英国等几个西方国家表示，他们不会派遣官员参加2022年冬季奥运会，以向中共国传递有关其人权记录的信息，然而这一决定并未阻止运动员参加北京奥运会。
 
-司法部很害怕，试图阻止班农向媒体发布信息，班农的团队提醒法官，媒体希望看到这些信息。
+在质疑外交抵制的效用时，马克龙指出，他“没有听到世界上有人说，让我们不要派遣我们的运动员，所以我们谈论的是一些相当具有象征意义的事情。”
 
-文章附上了凯利的推文。
+马克龙在提到中共国网球选手彭帅一案时表示，法国将与国际奥委会合作，制定一份宪章，保证“考虑到最近几周发生的事情”，保护运动员。彭帅在社交媒体上对一名前共产党高级官员提出性侵指控后失踪三周。
 
-法官似乎站在腐败犯罪的司法部一边。
+法国教育和体育部长让·米歇尔·布兰克（Jean-Michel Blanker）周四（12月9日）早些时候宣布了法国的决定，警告不要将这一问题政治化。
 
-班农正在追捕腐败和非法的1.6委员会。
+“我们需要小心体育和政治之间的联系。” 布兰克告诉RMC电台和BFM电视台。
 
-共和党人迷路了，他们在树林里寻找出路，他们根本帮不上忙。
+他说：“体育是一个不同的世界，需要保护它不受政治干预，如果不这样做，事情可能会失去控制，最终可能扼杀所有的比赛。”
 
-1.6（抗议者的）案件被推迟，但班农的案子必须以光速行动？
+布兰克说，法国将继续谴责中共侵犯人权的行为。
 
-掌管我们司法部和美国政府的是一个多么腐败的集团啊。这一切都始于奥巴马。
+他不会前往中共国首都，但法国体育部副部长罗克萨纳·马拉西内努（Roxana Maracineanu）将代表法国政府出席。
 
-（原文完）
+英国和加拿大加入盟国对北京奥运会的“外交抵制”。
 
-有关链接：
+寻求欧盟的共同立场
 
-【1】[https://gnews.org/zh-hans/1706104/](https://gnews.org/zh-hans/1706104/)
+与此同时，外交部长让·伊夫·勒德里安（Jean-Yves Le Drian）表示，他仍在寻求欧盟在这一问题上的共同立场，当时在记者招待会上被问及可能抵制的问题。
 
-【2】[https://thehill.com/regulation/court-battles/584703-judge-sets-july-trial-date-in-bannon-case](https://thehill.com/regulation/court-battles/584703-judge-sets-july-trial-date-in-bannon-case)
+“当涉及到外交抵制的问题时，这个问题将在欧洲层面处理。” 他告诉记者。
 
-【3】[https://www.thegatewaypundit.com/2021/12/doj-steve-bannons-court-case-wants-withhold-evidence-move-light-speed-j6-protesters-held-jail-still-dont-court-dates/](https://www.thegatewaypundit.com/2021/12/doj-steve-bannons-court-case-wants-withhold-evidence-move-light-speed-j6-protesters-held-jail-still-dont-court-dates/)
+倡导团体支持美国领导的努力，“人权观察”（Human Rights Watch）中国主任索菲·理查森（Sophie Richardson）称（抵制北京）是“向挑战中共政府针对维吾尔族和其他少数族裔社区的反人类罪迈出的关键一步”。
+
+但联合国秘书长安东尼奥·古特雷斯（Antonio Guterres）的发言人周四（12月9日）表示，联合国秘书长将出席北京奥运会。
+
+发言人斯蒂芬·杜加里克（Stephane Dujarric）告诉记者：“秘书长收到了国际奥委会的邀请，参加北京冬奥会开幕式，他已经接受了邀请。”
+
+中共周四（12月9日）警告西方国家，他们将为外交抵制“付出代价”。
+
+（全文完）
+
+中共终于撕开一个突破口，马克龙就是中共在欧洲的代理人之一，红旗已经插遍了欧洲。杀害王健之所以选在法国，因为在那里作恶比在自家还方便。庆幸文贵先生的出现，否则，美国也难免在中共的渗透下走向灭亡。
+
+原文链接：
+
+[https://www.france24.com/en/europe/20211209-france-will-not-join-boycott-of-beijing-olympics-seeking-common-eu-stance](https://www.france24.com/en/europe/20211209-france-will-not-join-boycott-of-beijing-olympics-seeking-common-eu-stance)
 
  
 

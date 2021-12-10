@@ -2,138 +2,82 @@
 ---
 
 
-## 英国赌场牌照的意义
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1737580/)
+## 纽约市报告仇恨犯罪增加了 100%
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1737603/)
 
-现在我告诉大家, 这种英国的赌牌
-Ahora les digo a todos, estas licencias de apuesta del Reino Unido
+作者：Ian Miles Cheong
+翻译：KK
 
-它不是价值
-No es el valor
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2-25.png)
 
-这是英国赌牌
-Esta es la licencia de apuesta del Reino Unido
+纽约市警察局周二宣布，今年全市的仇恨犯罪增加了 100%。
 
-它有一个最安全的资金来源通道
-Tiene el canal de fuentes de fondos más seguro
+截至 2021 年 12 月 5 日，已报告了 503 起仇恨犯罪，高于 2020 年的 252 起。在报告的所有仇恨犯罪中，超过 50% 的仇恨犯罪针对的是犹太人和亚洲人。
 
-听懂了吗
-¿ Entendieron?
+纽约市警察局表示，仇恨犯罪激增的主要原因是针对亚裔社区的袭击事件增加了 361%。与去年的 28 起相比，今年的事件多达 129 起。
 
-对我们喜联储的重大的利好
-Es de gran beneficio para nuestra Reserva Federal de Himalaya
+同样，反犹太主义犯罪从 2020 年的 121 起增加到 2021 年的 183 起，增加了 51%。警方指出，今年有 85 起性取向犯罪，高于去年的 29 起。
 
-因为我们的喜联储通过这个咱们的H-coin也好, H-pay也好
-Porque nuestra Reserva Federal de Himalaya ya sea a través de H-coin, H-pay
+完整的统计数据如下：
 
-H-dollar也好
-O H-dollar
+- 亚洲：129 (2021)，从 28 (2020) 上升
+- 黑色：30 (2021)，低于 34 (2020)
+- 已禁用：0 (2021)，与 0 (2020) 相比没有变化
+- 种族：7 (2021)，从 0 (2020) 上调
+- 性别：20 (2021)，从 13 (2020) 上升
+- 西班牙裔：7 (2021)，从 0 (2020) 上升
+- 犹太人：183 (2021)，从 121 (2020) 上升
+- 穆斯林：12 (2021)，从 4 (2020) 上升
+- 宗教：8 (2021)，低于 12 (2020)
+- 性取向：85 (2021)，从 29 (2020) 上升
+- 白色：20 (2021)，从 10 (2020) 上升
 
-全部都活了, 一下子就(活了)
-Todo habrá vitalidad
 
-而且是每天的这种流量应该是相当巨大
-Y el flujo de todos los días es bastante grande
+“另一方面，这表明我们的仇恨犯罪工作组正在做着伟大工作，我们的逮捕率上升了 106%。因此，在那 503 起事件中，我们已经逮捕了 249 人，”纽约警察局局长詹姆斯·埃西格 (James Essig) 说。
 
-如果特别像台湾大牛
-Si es especialmente como Daniu de Taiwán
+“我们必须对此发出非常亮的光，然后确保每个人都知道，当你做这样的事情时，第一，你将被追究责任。但第二，这是不可接受的，不仅在这个城市，在任何地方都是如此，”纽约警察局专员德莫特·谢伊 (Dermot Shea) 说。
 
-巴黎在台湾的人
-Y Bali que son de Taiwán
+“我们看到的是，反亚裔的比例和原始人数都在增加。我认为当你看到反犹和反亚裔时，这占纽约市所有仇恨犯罪的 50% 以上，”谢伊说。“就我们所看到的而言，这是同一个老调。我们看到了一点点精神疾病，我们看到的是无视公共礼仪。”
 
-我告诉你台湾我知道几个家族
-Déjame decirte que yo sé de algunas familias en Taiwán
-每年就是到欧洲
-Donde van todos los años a Europa
+谢伊专员认为，仇恨犯罪的过度上升是由较低的监禁率所推动的，应该指出的是，这是民主党政策的结果。
 
-到英国去赌
-A apostar en Reino Unido
+“当你让大量被关押在监狱的人放回到街道上时，你会看到其中一些影响着治安。我的意思是，这是事实。这是一个人们不想谈论的事实，但是当你……有些人不尊重他人，并期望他们显著改变自己的行为时。这行不通，”他说。
 
-都是几亿几亿美元的赌
-Son apuestas de cientos de millones de dólares
+谢伊引用了 2019 年纽约市的保释改革法，有效地阻止了执法人员履行职责。
 
-有的大的玩得更大
-Algunos juegan aún más grande
+“这一系列的改革已经完成。你知道我们所说的，我们支持但这是仓促完成的，而且没有执法部门的介入，我们今天仍在处理它，”西亚说，每日电讯报道。“毫无疑问，这必须是第一大问题，因为正如我刚才所说，这是我们都非常热爱的城市。看到它在很多方面被拉下来，真的很难看。”
 
-我再告诉大家
-También les digo
+“这几乎就像我们的许多立法者仍然处于否认状态。这是下一任市长和下一任警察局长将不得不面对的首要问题，因为一切都建立在公共安全之上，”他补充道。
 
-赌场某种程度上是一个
-El casino es de alguna manera un
+在美国各地，民主党检察官正在积极努力“改革”警务，拒绝监禁甚至指控暴力重罪犯。在某些情况下，被控犯有暴力罪行的重罪犯以“过分”低的保释金获释。
 
-最高端的金融游戏的智慧家的玩者
-Jugador más inteligente y sofisticado del juego finaciero
+在威斯康星州沃克夏，圣诞游行大屠杀嫌疑人达雷尔·布鲁克斯被指控试图用他的 SUV 碾压一名妇女，导致 6 人死亡，其中一名 8岁的男孩，超过60人受伤。然而之后却以$1000保释金保释。显然这是蓄意攻击。反叛新闻报道。
 
-在英国
-En Reino Unido
+随着纽约市继续应对仇恨犯罪和暴力犯罪的激增，纽约民主党众议员亚历山大·奥卡西奥·科尔特斯继续反对该市检察官要求的“过度保释”。
 
-只要你按我这个规矩玩儿
-Si juegas siguiendo mis reglas
+据反叛新闻报道，11 月下旬，奥卡西奥·科尔特斯与众议员马洛尼和拉斯金致信纽约市的五名地区检察官，要求提供有关“过度保释”的信息 。
 
-你绝对受到保护和尊重
-Serás absolutamente protegido y respetado
+奥卡西奥·科尔特斯声称，大多数在押人员并未被定罪，只是因为在等待审判期间无法支付现金保释金而被关押。
 
-他和中共国到澳门去
-Él va con el PCCh a Macao
+来源：[https://www.rebelnews.com/nyc\_reports\_100\_per\_cent\_increase\_in\_hate\_crimes](https://www.rebelnews.com/nyc_reports_100_per_cent_increase_in_hate_crimes)
 
-一会儿你涉黑了
-En un momento serás involucrado en la organización criminal
+（文章仅代表作者个人观点）
 
-你本来赌场就是黑社会
-El casino en sí es una organización criminal
-你涉个屁黑啊
-Para qué dices que estás involucrado en eso
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-你本来就是黑社会还涉黑呢
-Porque ya en sí ya eres de la organización criminal
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
 
-是吧, 洗钱了
-Cierto, dinero blanqueado
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-那赌场就是洗钱的
-Los casinos juegan el dinero blanquedo
+**关注我们**
 
-是不是, 他就这么简单
-Es o no es así, es tan sencillo
+Discord 账号
 
-你在英国不存在这个
-En Reino Unido no existe esto
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-只要你按我的规则来
-Si sigues mis reglamentos
+Gettr 账号
 
-你永远受保护
-Serás siempre protegido
-
-你去看看千年的历史
-Puedes ver la historia de hace mil años atrás
-
-英国没干过这事儿
-En Reino Unido no han hecho este tipo de cosas
-
-明白了吗, 意义重大
-¿ Comprenden? Este es muy significativo
-
-**原视频网址：**[https://gettr.com/post/pisqau958b](https://gettr.com/post/pisqau958b)
-
-日期：12/08/2021
-原视频标题：英国赌场牌照的意义
-El significado de la licencia de casino del Reino Unido
-原视频日期：12/05/2021
-原视频网址：https://gettr.com/post/pisqau958b
-任务编号：KC318(3123)
-视频时间段：0:00-1:43
-
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
-审片： 洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
