@@ -2,40 +2,33 @@
 ---
 
 
-## 心脏疾病的爆炸性增长为“新冠大流行后应激障碍”
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1740296/)
+## 七哥：我绝对不哭
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1740313/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/51346697-0-image-a-41_1638660590891-2.jpg)图片来源: Giosia Perretta / EyeEm
-英国的专家表示，年轻病人中新的心脏疾病的爆炸性增长可以用一种叫做（新冠）“大流行病后应激障碍”的新情况来解释。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-伦敦标准晚报的一篇报道引用了在伦敦一家国家医疗服务医院工作的高级血管外科医生塔希尔**·**侯赛因（Tahir Hussain）的表述。
+来源：郭先生2021-12-08直播10：08：00 摘录
 
-侯赛因说：“在我的工作中，我看到与血栓有关的血管病症大增。与大流行之前相比，入院并需要手术和医疗干预的病人要年轻得多。”
+一定会动你们的家人，因为他觉得你软了，你服了，你怕了，你疼了。从昨天发生，你嫂子跟我出去转转，你嫂子说，文贵你想哭你就哭一场，我陪着你哭。我说我不会哭的，共产党就希望我在直播中掉眼泪，哭一场，让我痛，让我哭，让我害怕。我绝对不痛，我绝对不哭，我要把这些全留给共产党。我要让你看看你爸你妈每天在全世界被人家用屎扣他的像，你爸你妈的名字和照片出现在全世界，每天给你送葬，我知道你习近平对他妈有多孝敬，他能给他爸建3000亩的陵园，他对齐心像佛一样供着。那你的父母像佛一样，难道郭文贵的父母就不值一分钱了吗，你还能干什么，你无非是把我爹给掐死，给毙了，我爹绝对是郭文贵的爹。这是真的是。这些人来时我父亲说我不会走的，搭都不搭理他们，我爹中风状态还这样，在外面转了几个小时，很多人要去他们家，我爹说不能去因为我哥哥家也没电了。盘古账上6亿多人民币的现金，6亿多呀！我们过去五年没有动过一分钱。盘古裕达的经营和钱完全是警察监督的，就在这几年里边现金就6个多亿啊，所有这些家人哪个家里边没有个几千万啊，是吧，所有东西全给你封掉，一夜之间你啥都没有了，不管你多少钱多少房子，警察来了，特警来了，你啥都没了，我爹就流落街头了。这就是今天发生的事情。
 
-侯赛因还表示，这些病例是 “大流行病后应激障碍”影响造成的压力和焦虑水平增加的直接结果”。
+校对：HimaFaFA
+发布：HimaBoy
 
-他还说，“死于肺栓塞和心肌梗塞等疾病”的人是由于他们自我隔离，没有寻求医疗护理。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
 
-侯赛因的解释得到了前国家医疗服务高级心理治疗师马克·雷纳（Mark Rayner）的赞同，他表示多达30万的心脏疾病可能是由于“大流行病后应激障碍”。
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-雷纳说：“每个人都听说过创伤后应激障碍，但我们真的迫切需要了解大流行病后应激障碍”，他补充说：“大流行病和由此带来的封锁对整个国家人民的心理健康产生了巨大影响。”
+**关注我们**
 
-简评：随着新冠病毒大流行和疫苗灾难的发生，各国都发现与血栓相关的血管病及心脏病例爆炸性增长。根据爆料革命，新中国联邦和一些正义的科学家的情报及研究揭露，其中最重要的原因是疫苗及病毒中的刺突蛋白穿过血脑屏障并通过血管传播散播到全身导致的。文章中英国科学家提出的“新冠大流行后应激障碍”是从心理层面解释病人遭受的压力和焦虑对生理的影响。
+Discord 账号
 
-这场疫情彻底改变了人类生活方式，让人们生活在政府出台的限制性措施中，严重缩小了人类自由生活空间。另外，世界经济也因疫情遭到重创，人们经历了前所未有的压力、焦虑、不安和痛苦。对未来的不确定性，让每个人都生活在恐惧下。这也迫使我们尽快行动，加大宣传，争取早一天结束疫情和疫苗灾难，以拯救人类。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-原文链接：[Explosion in New Heart Conditions Explained as “Post Pandemic Stress Disorder”](https://summit.news/2021/12/08/explosion-in-new-heart-conditions-explained-as-post-pandemic-stress-disorder/)
+Gettr 账号
 
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
