@@ -2,30 +2,37 @@
 ---
 
 
-## 尼加拉瓜“二次”与台湾断交，承诺支持中共政策
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1738373/)
+## 一百万过期疫苗救了多少人？
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1738462/)
 
-撰稿—虎眼
-校对/发布—无明逆流
+作者：香草山金融部 – 闲聊钱币
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
+根据路透社12月7日的一则新闻，非洲第一人口大国尼日利亚大约有100万支COVID-19疫苗在上个月过期而未被使用，是迄今比较大的一次“浪费”。
 
-俄罗斯卫星通讯社报道，尼加拉瓜9日宣布与台湾“断交”，承认中共的一个“中国原则”。
-报道称，尼加拉瓜外交部长丹尼斯·蒙卡达当天表示，“尼加拉瓜共和国政府宣布承认世界上只有一个中国，中华人民共和国是代表全中国的唯一合法政府，台湾是中国领土不可分割的一部分，尼加拉瓜政府将停止和台湾官方的一切往来。”
+该则新闻强调非洲国家落后的基础设施，匮乏的医疗条件，和短暂的保质期是导致疫苗过期的主要原因。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture1-17.jpg)
+然而非洲国家是不是由于没有注射这100万疫苗就死亡无数呢？根据[worldometers.info](http://worldometers.info) 的数据显示，尼日利亚总人口约两亿一千三百万（213,000,000），染病二十一万五千（215,000），死亡两千九百八十（2,980）。WHO数据显示尼日利亚疫苗成人接种率小于百分之四（4%）。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Image-20215-PM.jpeg)图片来源：中共新闻网
+用更通俗的话来说就是每1000个尼日利亚人中只有1个被感染，每100个被感染的人中有1.38人失去生命。
 
-**据悉，这次尼加拉瓜与台湾断交，是总统奥尔特加及其执政党在执政期间第二次与台湾“断绝外交关系”。**
+与此形成鲜明对比的是医疗条件基础设施都极为发达的美国。根据同一网站数据计算，每1000个美国人有151人感染，每100个被感染的人有1.61个人丧生。更为可笑的是美国的接种率高达60%。
 
-尼加拉瓜总统奥尔特加从2007年就一直担任总统职务，在今年11月结束的尼加拉瓜选举中，奥尔特加再次当选，这是奥尔特加连续近15年连任尼加拉瓜总统。在奥尔特加在职的2014年，尼加拉瓜修改宪法，总统被允许连选连任。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Image-202.-PM.jpeg)图片来源网络（奥尔特加右1）
-现年75岁信仰社会主义的奥尔特加对美国长期持批评态度，在香港、新疆等问题上支持中共立场。
+任何疫苗的主要作用是防止疾病的扩散，但是从以上数据我们很难看到令人信服的证据。郭文贵先生从疫苗被强行推广的第一天起就大声呼吁世界各国重视由毒疫苗引起的人道灾难。这一百万过期的疫苗在无形中挽救了很多人的生命。
 
-**中共政府高度赞扬尼加拉瓜政府承认中共的“一个中国原则”。**
+参考来源：[一百万过期疫苗救了多少人？](https://www.reuters.com/business/healthcare-pharmaceuticals/exclusive-up-1-million-covid-vaccines-wasted-nigeria-last-month-2021-12-08/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=Hitachi%20UK%208/12/21%20Sponsorship&amp;utm_campaign=Hitachi%20UK%208/12/21%20Sponsorship)
 
-当地时间12月9日，尼加拉瓜政府宣布与台湾“断交”后，中共驻联合国代表张军发文赞赏尼加拉瓜政府的决定是“顺应大势、合乎民心”，他同时强调一个中国原则是国际社会普遍共识，不容挑战！
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88-1.png)
 
-12月10日上午，中共外交部发言人赵立坚在微博上评价尼台“断交”是“大势所趋”。
+编辑/校对/发稿：Hetangyuese
 
-12月10日，中共外交部网站消息称，尼加拉瓜政府同台湾断绝“外交关系”，与中国恢复外交关系，并承诺不再同台湾发生任何官方关系、进行任何官方往来，承认一个中国原则，是顺应大势、合乎民心的正确抉择。中方对此表示高度赞赏。
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
  
 

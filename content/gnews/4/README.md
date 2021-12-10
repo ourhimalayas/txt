@@ -2,85 +2,95 @@
 ---
 
 
-## 币圈新闻动态：Huobi Global将于12月15日正式停止中国大陆用户服务
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1738591/)
+## 新冠病毒的预防与治疗 ——一定不要接种疫苗
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1738620/)
 
-*喜马拉雅华盛顿DC 编辑：aQ*
+**作者：Darwin(达尔文)**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/11960.jpeg)
+**以下内容仅供参考，具体情况，请遵医嘱。**
 
-![](http://himalayawashingtondc.org/wp-content/uploads/2021/07/ScreenShot-2021-07-31-at-16.20.22@2x.png)
+摘要：
 
-
-
-## 每日一问
-
-
-
-
-
-家族办公室如何才能实现税务隔离风险？
+- 预防：健身、口罩、洗手、口服青蒿素或羟氯喹（根据情况）
+- 治疗：青蒿素或伊维菌素或中和抗体，地塞米松（根据缺氧与否）
+- 监控：血中抗体、抗原
 
 
+**不要过分的恐惧病毒**
+
+新冠病毒不是那么可怕，一般来讲，病毒必须在毒力和传染性两者之间做个平衡（参考《瘟疫公司》（Plague Inc.）这款游戏）。病毒的毒力太强，会迅速地杀死宿主（人），并引发其他的宿主（人）的关注，这样，人们可以采取短期封闭的措施，将病毒的感染控制在一定范围内。而新冠病毒设计是用来击垮社会和经济秩序的，所以它的毒力和致死率不是那么可怕。而且最重要的是，我们可以用青蒿素、伊维菌素、硫酸氢氯喹、中和抗体等药物进行治疗，因此不要对病毒产生过分的恐惧。
+
+**预防是第一位的**
+
+尽管病毒不那么可怕，尽管有特效的药物，但是，仍然要做好防治工作。病毒感染人体，第一步是通过接触，病毒不进入人体的细胞，是无法自我增殖的，因为它没有自身复制所必需的组件。ACE2受体是病毒进入细胞的关键。也就是说，即使你接触了病毒，如果病毒不能通过ACE2进入细胞，你是不会被感染的，携带一段时间后，病毒就被清除了。
+
+根据已有的资料，人感染新冠病毒的途径主要有两种：一是吸入含有病毒的飞沫；二是手上沾染的病毒通过眼睛、鼻子和嘴巴的粘膜进入体内。根据这两条途径，可以参考美国CDC(虽然这家机构在疫苗的建议上没做什么好事)的建议，做好预防，预防疾病的最佳方式是避免接触该病毒：
+
+- 避免与患病的人近距离接触；
+- 避免用手触碰自己的眼睛、鼻子和嘴巴；
+- 咳嗽或打喷嚏时用纸巾遮住，然后将纸巾丢进垃圾桶；
+- 用家用清洁喷雾或消毒纸巾清洁消毒经常碰到的物体表面；
+- 请遵循 CDC 关于戴口罩的建议；
+- 用肥皂和水洗手至少20秒，特别是在上过洗手间后，饭前、擤鼻涕、咳嗽或打喷嚏后。如果没有肥皂和水，可以使用含75%酒精的酒精类手部消毒液，看到手脏了必须用肥皂和水清洗。
 
 
+**健身是关键**
 
-## 喜马拉雅交易所要闻
+病毒感染了宿主的细胞后，就会复制出大量的病毒，这些病毒释放后再去感染新的细胞。在这个过程中，感染了病毒的细胞，会发出信号，激发机体的免疫系统进行工作，免疫系统清除病毒的过程就会出现恶寒、发热、头痛等症状，这其实是免疫系统工作的表现。
 
+病毒进入人体后，还有几种可能性：
 
-
-
-
-- 喜交所网站行情显示，喜币（HCN）价格目前在44.525 HDO，24H最高价格为44.689 HDO，24H最低价格为44.005 HDO，24H成交量约为31541.201 HCN。
-
-
-
+1. 一、机体没有任何症状的情况下，将病毒清除并获得对病毒的免疫；
+2. 二、经历身体不适的阶段，自行康复，并获得对新冠病毒的长期免疫；
+3. 三、有少数人会在这一阶段引发严重的“细胞因子风暴”，就是免疫系统对病毒的过度反应。会出现高热、寒颤甚至缺氧，在这个过程中，就需要适当的压制自身的免疫系统，以避免对自身造成严重的损害。可以在医生的指导下使用地塞米松。
 
 
+上述是病毒和人体互相作用的一个过程，在这个过程中机体的自身状态也是非常重要的，也就是平时要健身，保持作息规律的重要性，所谓“正气存内，邪不可干”。
 
-## 新闻动态
+**治疗**
 
+当你怀疑自己被新冠病毒感染后，首要的建议仍然是去找当地的医师。新冠病毒的诊治并不复杂，但是如果你有基础疾病的话，这时候最好有你信任的医师帮助你，因为在治疗过程中，你的基础疾病，以及所用药物可能会与治疗新冠的药物产生干扰作用。如果你没有其他基础疾病，身体健康，那么，你有很大的概率可以自己痊愈。治疗方案请参考香草山农场的文章《新冠感染防治方案详解》（[https://gnews.org/zh-hans/1609900/](https://gnews.org/zh-hans/1609900/)）
 
+**自我检测及应对**
 
+如果实在没有好的医疗资源，又怀疑自己被感染，最好能实时监测自己的感染情况。目前有主要有三种检测方法：PCR、抗原检测、抗体检测（参考下图），分别适用于不同的阶段。在感染的潜伏期，PCR可以检测到。当病毒开始复制的时候，有可能抗原会是阳性的。当机体的免疫系统已经对病毒产生反应的时候，血中IgM开始呈现阳性。当获得了对新冠病毒的免疫力的时候，IgG的滴度开始上升，这时候也有可能提示重症。
+[![](https://spark.adobe.com/page/A7nnGuRjAlSaf/images/d96a0019-2f1f-4543-8861-d158322f5454.png?asset_id=3bd4ed23-287b-458f-836d-d07e38029a62&amp;img_etag=%222b856627afd885607b34b8a43d04ac06%22&amp;size=2560)](https://spark.adobe.com/page/A7nnGuRjAlSaf/images/d96a0019-2f1f-4543-8861-d158322f5454.png?asset_id=3bd4ed23-287b-458f-836d-d07e38029a62&amp;img_etag=%222b856627afd885607b34b8a43d04ac06%22&amp;size=1024)
+一、PCR
 
+当你怀疑自己可能接触了新冠病毒时，可以尽快做个PCR检测，这个检测非常灵敏，能够发现无症状携带者和感染的的潜伏期，大规模的筛查一般也是采用这个手段。这个检测一般要在医疗机构或有资质的检测机构进行。采集方法一般是鼻咽拭子。如果检测结果是阳性，一方面要准备服用药物，另一方面要做好个人防护，在痊愈之前，减少接触其他人，尽量不要再传播疾病。
+[![](https://spark.adobe.com/page/A7nnGuRjAlSaf/images/2df5fef5-17dd-4248-8a81-47094f0ac872.png?asset_id=6ac76110-f468-456b-b5af-c19a41c5dc34&amp;img_etag=%22b5a3f78ba514de82b1d8567131994048%22&amp;size=2560)](https://spark.adobe.com/page/A7nnGuRjAlSaf/images/2df5fef5-17dd-4248-8a81-47094f0ac872.png?asset_id=6ac76110-f468-456b-b5af-c19a41c5dc34&amp;img_etag=%22b5a3f78ba514de82b1d8567131994048%22&amp;size=1024)PCR检测
+二、抗原检测
 
-1. Forkast报道，Visa周三发布的一项新调查显示，18%的中国香港居民是加密货币积极投资者，13%是被动投资者。该调查从8月25日至9月13日收集来自阿根廷、澳大利亚、巴西、德国、中国香港、南非、美国和英国的6430份在线调查回复。在接受调查的发达市场中，美国的投资者参与度似乎最高，其次是中国香港。
-2. Blockworks报道，机构流动性网络Paradigm完成3500万美元A轮融资，使其估值达到4亿美元。此轮融资由Alameda Ventures和Jump Capital领投。
-3. 12月9日消息，来自越南的链游应用平台Whydah宣布获得2500万美元融资，投资机构包括Hashkey。据悉，Whydah目前已于越南7大游戏工作室合作，计划为越南游戏开发商开设一个游戏应用中心，将他们最好的想法带到区块链平台上，推动了越南和东南亚区块链行业的发展。
-4. Bitcoinist报道，多链区块链和NFT游戏Plato Farm完成180万美元种子轮融资。据悉，Plato Farm是一款支持ERC-1155和HRC-721代币协议的多链区块链和NFT游戏。
-5. 12月9日消息，云银行平台Mambu E轮融资2.66亿美元，由EQT Growth领投，Mambu E声称这是迄今为止银行软件服务最大一笔融资。目前，Mambu E估值55亿美元。Mambu是旨在将云计算引入金融世界的银行即服务平台的一部分。
-6. U.Today报道，区块链钱包和基础设施平台Safle完成400万美元代币私募融资，由Maple Block、GSR和Ghaf Capital Partners领投。
-7. TheNewscrypto报道，在Uniswap V3上提供可编程流动性挖矿的创新协议izumi已完成350万美元A轮融资，其融资总额达560万美元。最近融资资金将用于促进izumi的原生代币iZi发布。iZi将于12月20日发布，紧接着将于12月21日发布izumi“Liquid Box”平台。
-8. TheBlock报道，Web3人才网络Braintrust通过代币私募融资1亿美元，Coatue领投。据悉，Braintrust旨在将公司与Web3领域的技术人员联系起来，该公司声称拥有70多万名社区成员。根据周四的公告，Braintrust将使用这些资金来扩大其网络，并通过赠款为社区项目提供资金。该公司表示，其70多万会员都有资格申请旨在改善网络的项目资助。
-9. 12月9日消息，非托管自动化做市商Voltz宣布完成600万美元种子轮融资，Framework Ventures领投。
-10. 官方消息，Clearpool与FBG Capital达成合作，FBG Capital表示，去中心化的低抵押贷款市场是提高资本效率并将DeFi贷款提升到新水平的关键。通过Clearpool上的信用历史，可以很容易地显示新的潜在贷款人，这对于新贷款的启动过程更有效。
-11. ESPN报道，美国Nascar车手Landon Cassill将于2022年在Xfinity系列赛中为Kaulig Racing车队效力。加密货币经纪商Voyager Digital周四宣布与Landon Cassill延长两年赞助期，该公司将再次完全以加密货币的形式支付其报酬。
-12. 官方消息，World Mobile将成为富勒姆足球俱乐部的官方主要合作伙伴。富勒姆足球俱乐部是伦敦历史最悠久的职业足球俱乐部。这份为期三年的合作伙伴关系包括富勒姆足球俱乐部中的男士、女士、23岁以下和18岁以下球队成员。
-13. CoinDesk报道，加密友好旅行预订平台Travala旗下的去中心化共享房屋租赁平台Dtravel表示，客户可以使用加密货币在该公司全球2万个目的地网络中预订25万套住房。Dtravel表示，潜在的租客可以使用其最近推出的TRVL代币进行支付、获取旅行奖励、治理参与和其他福利。
-14. 12月9日消息，百事可乐宣布发行Pepsi Mic Dropgenesis NFT系列收藏品（由VaynerX控股公司旗下的咨询公司Vayner NFT设计和创建），并将城建1893枚独一无二的NFT，旨在纪念百事可乐诞生年份，这些NFT将于美国东部标准时间12月10日星期五下午12:00）在以太坊区块链上上线，对用户免费（但需支付Gas费用）。Pepsi Mic Dropgenesis NFT系列由算法随机生成，NFT包括经典蓝色百事可乐、银色无糖百事可乐、红色野樱桃百事、黑色零糖百事可乐——甚至是粉丝最喜欢的水晶百事可乐等等。
-15. Businesswire报道，万事达卡今天宣布，加入Mastercard Start Path Crypto计划的五家新初创公司是智能合约平台Ava Labs、基于AI的移动银行应用程序Envel、点对点储蓄平台Kash、比特币银行应用程序LVL和加密奖励平台Nifty Key。
-16. 官方消息，Animoca Brands宣布与马匹牧场Aquis Farm创办合资企业。据悉，新的合资企业将开发与现实世界马术活动和资产直接相关的元宇宙产品、游戏和NFT。本次合作中，Aquis Farm将负责提供现实世界的马术知识产权、商业机会以及马术NFT生态系统和元宇宙的概念开发。
-17. 官方消息，新魔幻RPG链游Nirvana Meta将于2021年12月14日在马来西亚举行全球发布会，届时Nirvana Meta团队将对外详细介绍Nirvana Meta玩法模式及未来战略部署。据悉，Nirvana Meta是一款基于区块链技术数字化，以西方魔法世界为背景打造的3D新魔幻RPG链游，已于12月5日开启内测。
-18. 12月9日消息，飞桨（Paddle Paddle）与百度超级链联合推出的首款可信分布式AI产品将于12月12日在WAVESUMMIT+2021深度学习开发者峰会首次发布，此次产品的推出，是飞桨与百度超级链在技术融合领域的重要布局，也使得双方开源生态的底座更加繁荣与扎实。
-19. Forkast报道，新加坡NFT市场Brytehall将于12月16日与自行车制造商Specialized共同举办一场NFT艺术品拍卖，以实物和NFT的形式出售日本艺术家Masuda Kosuke创作的自行车艺术品“enishi-E”。该自行车及其数字NFT的拍卖预计在12月9日至12月16日进行，底价为5万美元。
-20. 官方消息，跨链漫游衍生品平台Chainge已全面支持People、Babyswap（Baby）。Baby可在Fusion和BSC之间链跨链漫游，People可在Fusion、以太坊、BSC、HECO、OEC、Avalanche共6条链上跨链漫游，添加Baby/USDT或CHNG、People/USDT或CHNG到Chainge流动性池可获得相应收益。
-21. CoinDesk报道，可持续比特币挖矿和能源技术公司Clean Spark（CLSK）已为其位于佐治亚州诺克罗斯的比特币挖矿设施购买20兆瓦的浸入式冷却基础设施，并计划将其挖矿效率提高20%以上。该公司表示，预计该技术不仅将提高Clean Spark的挖矿效率，还将降低运营费用。
-22. 12月9日消息，Layer2数据网站L2BEAT宣布，将与专注于ZK-rollups技术的StarkWare合作，为dYdX构建状态浏览器，该工具将显示dYdX通过Rollup方案存储在以太坊主网的解码调用数据。L2BEAT表示，该项目的代码将被开源，将于后续公布在GitHub上。
-23. 12月9日消息，Crystal Palace宣布与体育和娱乐行业区块链提供商Chiliz建立合作伙伴关系。通过合作，俱乐部将在粉丝参与和奖励应用程序Socios.com上推出$CPFC粉丝代币。Chiliz和Socios.com首席执行官Alexandre Dreyfus说：“Socios.com正在为粉丝们创造新的机会，让他们每天与他们最喜欢的球队建立联系并得到奖励。
-24. Cointelegraph报道，Coinbase宣布将支持Ledger等硬件钱包，Coinbase Wallet浏览器扩展插件用户将能够连接其Ledger硬件钱包，保持对其资产的自我监管和完全控制。该合作伙伴关系将从2022年第一季度开始分阶段展开。Coinbase移动应用程序也将支持Ledger硬件钱包。
-25. Decrypt报道，加密硬件制造商Ledger周四宣布将于2022年初推出借记卡，让用户可以直接使用加密货币或将其用作现金购买的抵押品。
-26. 12月9日消息，新加坡数字资产管理托管平台Cobo Custody宣布集成智能合约平台Avalanche，Cobo Wallet和Cobo Custody目前都支持Avalanche的C-Chain，通过C-Chain完善Avalanche生态系统。双方将在社区建设和生态扩展方面保持深入合作。此外，所有Cobo客户端都可以与Avalanche连接，而无需额外的限制或利用。
-27. Kazinform报道，哈萨克斯坦央行行长Erbolat Dossayev宣布，哈萨克斯坦国家银行已经完成了该国CBDC数字坚戈平台的原型。Dossayev说，央行现在正准备在12月15日公布数字货币测试和CBDC试点项目的初步结果。他指出，试点涉及当地金融公司和一些国际合作伙伴。
-28. 12月9日消息，Novi钱包负责人Stephane Kasriel表示，社交巨WhatsApp已开始面向美国部分用户测试在聊天界面内使用Novi发送和接收加密货币。据此前11月份报道，WhatsApp已开始测试Facebook的Novi加密钱包，该更新已经通过Google Pay测试版程序提供，Novi版本为2.21.22.17。
-29. 官网公告，Huobi Global将于12月15日11:00正式停止中国大陆地区用户币币交易服务，官方建议用户合理安排时间，在12月15日之前尽快完成个人资产处置。
+这个是利用试纸上的抗体来检测分泌物中的抗原，出结果比较快，大概半小时。如果能够检测到抗原，说明属于感染状态了，根据这时候的症状就要及时服药了。同时做好防护，减少传播。
+[![](https://spark.adobe.com/page/A7nnGuRjAlSaf/images/7b2ea879-c14f-4373-9c5a-249492794773.png?asset_id=219e9308-8497-42c4-b8a1-7325ca1c48e6&amp;img_etag=%22cc5931d7e2a3b940a02f96a480f7fcc6%22&amp;size=2560)](https://spark.adobe.com/page/A7nnGuRjAlSaf/images/7b2ea879-c14f-4373-9c5a-249492794773.png?asset_id=219e9308-8497-42c4-b8a1-7325ca1c48e6&amp;img_etag=%22cc5931d7e2a3b940a02f96a480f7fcc6%22&amp;size=1024)抗原检测
+三、抗体检测
+
+类似于检测血糖，如果能检测到抗体的存在，说明感染已经进入至少中期了。这时候，应该关注IgM和IgG两种抗体。特别是IgG抗体，这个抗体出现比较晚，如果IgG抗体阳性的时候，症状仍然得不到缓解，要密切关注疾病的进展，及时寻求医生的救助，因为这时候就有可能发展成重症了。
+[![](https://spark.adobe.com/page/A7nnGuRjAlSaf/images/52fa8178-d9a1-4582-aaee-3c82f3afe302.png?asset_id=4d710c13-30fe-480b-a43f-51cd17354488&amp;img_etag=%2297e059a1035ff1b4414139a3d99a1415%22&amp;size=1024)](https://spark.adobe.com/page/A7nnGuRjAlSaf/images/52fa8178-d9a1-4582-aaee-3c82f3afe302.png?asset_id=4d710c13-30fe-480b-a43f-51cd17354488&amp;img_etag=%2297e059a1035ff1b4414139a3d99a1415%22&amp;size=1024)
+综上所述，经过这么长时间，我们已经对新冠病毒有了一些初步的认识。预防仍然是首要的，健身是关键。如果很不幸，得了这个病，不要担心，我们有解药，及时联系你信任的医生，配合适当的检测和药物，一定可以痊愈！
+
+参考资料：
+
+- [Gnaws纽约香草山MOS03：土霉素,地塞米松在新冠疫情中的应用](https://gnews.org/zh-hans/1522227/)
+- [南京医科大学图书馆：COVID-19防治](http://lib.smu.edu.cn/Article/Detail/1497)
+- [知乎：中和抗体与结合抗体的区别是什么？](https://www.zhihu.com/question/348039233)
+- [知乎：病毒感染人体的过程和免疫系统的应对方式](https://zhuanlan.zhihu.com/p/106557564)
+- [Gnaws温哥华圆成农场：Eglise医生新冠治疗的观察摘要](https://gnews.org/zh-hans/1687346/)
+- [Gnaws纽约香草山MOS03：新冠感染防治方案详解](https://gnews.org/zh-hans/1609900/)
+- Ivermectin: panacea for resource-poor communities? Ōmura, Satoshi et al. Trends in Parasitology, Volume 30, Issue 9, 445 – 455
 
 
+*编辑：【英国伦敦喜庄园编辑部】*
+
+*校对：文明明 | 审核：仙女儿-文善 | Page: Daoiii*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+[![](https://spark.adobe.com/page/A7nnGuRjAlSaf/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/A7nnGuRjAlSaf/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 
-
-*编辑：aQ
-发布：文顾*
-
-
- 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
