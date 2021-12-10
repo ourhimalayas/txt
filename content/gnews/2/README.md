@@ -2,34 +2,36 @@
 ---
 
 
-## 美以酝酿联合演习，拟打击伊朗核设施
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1737758/)
+## 美国众院压倒性通过《防止强迫维吾尔人劳动法》
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1737771/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
+作者：日本方舟农场 – Andy5
+![This image has an empty alt attribute; its file name is 1-28.png](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
+周三，美国众议院以428票赞成、1票反对，压倒性通过了《防止强迫维吾尔人劳动法》。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/5-16.jpg)
+该法案由民主党众议员吉姆·麦戈文和共和党议员克里斯·史密斯联合提出。史密斯议员表示，新疆所发生的种族灭绝，直接违反了《联合国防止及惩治灭绝种族罪公约》的第二条，习近平应该为其下达的命令负责。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-461.png)图片来源：DEBKA
+该法案要求国土安全部拟定一项清单，列举出与中共政府合作压迫维吾尔人的实体，并禁止所有涉及强迫劳动生产的商品流入美国市场。除了这项法案，众议院在当天还高票通过了另外两项涉及新疆维吾尔人权的议案。
 
-12月9日，据多方报道，在美伊重启谈判几天后，以色列和美国将讨论举行联合军演的可能性，为攻击伊朗核设施做准备。
+参考链接：
 
-路透社报道，美国军事官员和以色列国防部长本尼·甘茨定于周四举行的会议将考虑进行联合演习。
+- [众议院通过三项涉新疆人权议案 禁止强迫劳动产品入美国](https://www.voachinese.com/a/us-house-passes-uyghur-bills-20211208/6346179.html)
+- [美参议院一致通过《防止强迫维吾尔人劳动法》将禁止进口新疆产品](https://www.voachinese.com/a/senate-passes-bill-to-ban-all-products-from-xinjiang-20210714/5966494.html)
 
-虽然这位美国官员拒绝讨论演习的细节，但以色列坎特广播公司周三早些时候的一份报告显示，这些演习将涉及“几十架”飞机——包括F-35、F-16和F-15战斗机、侦察机和加油机，演习将在地中海上空举行，以模拟战斗机对伊朗核设施进行打击所需的距离，大约620英里（1,000公里）。媒体称，演习可能会在2022年上半年的某个时候举行。
 
-尽管德黑兰长期以来一直坚称它没有发展核武器的计划，而且其原子能计划仅用于和平目的，但这位美国官员继续说，如果伊朗追求核弹，未来的演习将为针对伊朗的“最坏情况”做好准备。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
 
-美国官员与以色列防长的会晤，双方希望恢复在2015年签署的伊核协议内容，该协议对伊朗的核计划进行了严格限制，以换取制裁减免。自美国前总统唐纳德·川普于2018年单方面退出该协议以来，伊朗不断缩减自己对该协议的承诺，坚持认为只有在美国解除制裁后才会回到协议条款中。自那时起，它逐渐提高了铀的浓缩程度，根据国际原子能机构(IAEA)的数据，上周将铀的纯度提高到20%，但离生产核武器所需的90%或更高的纯度仍有较大差距。
+总编辑：飞虹
+编辑：飞虹/雪梨
+校正/发稿：海阔天空1
 
-新闻链接：[US & Israel mull drills to strike Iran’s nuclear sites – reports — RT World News](https://www.rt.com/news/542623-us-israel-iran-nuclear-drills/)
-
-**编辑/发布：文泓**** **
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

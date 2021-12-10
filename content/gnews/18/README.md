@@ -2,138 +2,42 @@
 ---
 
 
-## 英国赌场牌照的意义
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1737580/)
+## 2021/12/09文贵先生盖特直播精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1737597/)
 
-现在我告诉大家, 这种英国的赌牌
-Ahora les digo a todos, estas licencias de apuesta del Reino Unido
+![](https://assets.gnews.org/wp-content/uploads/2021/12/120801.jpg)[盖特直播链接](https://gettr.com/streaming/pj858hb609)
+谢谢战友们，7000多个战友们表示要将喜币以及400万、600万、1700万美元捐出来，可是一个都不需要，新中国联邦有足够的能力去应对。这份情谊七哥感受到了，永远不会忘！
 
-它不是价值
-No es el valor
+昨天的大直播后，国内体制内的各种人来说情，想要收手各退一步。可是这种对我家人和同事们的侮辱，盘古员工们辛辛苦苦地工作，赚取微薄的收入并且合法纳税，现在被赶到马路上，真得是忍无可忍！这比奴隶社会还可怕！
 
-这是英国赌牌
-Esta es la licencia de apuesta del Reino Unido
+关于全球行动，需要满足科技化、合法化、智慧化、持久化。车上要安上360度的防撞击摄像头；要懂当地的法律，什么是底线，什么是红线一定要了解清楚，我们一定要守法；中共到时候一定“蓝、金、黄”当地部门来威胁我们，只要他们犯规我们就去国际法庭起诉。战友吗要与联盟委员会、大卫、老班长、长岛哥以及各农场保持联系；团体行动，一致行动，要有专业的救助系统、通讯系统和专业的突发事件应对系统。
 
-它有一个最安全的资金来源通道
-Tiene el canal de fuentes de fondos más seguro
+只要国内战友参与灭共，付诸具体行动的，比如推文、小视频等通过证实就会有“躺平币”作为奖励。“躺平币”上市的第一天起就可以兑现、支付和流通，因为这个币的背后有很多国际性的金融机构的合作支持，是完全去中心化独立的币。对于国内战友和国外上街参加全球抗议活动的战友们非常的重要。
 
-听懂了吗
-¿ Entendieron?
+由于冬奥会被干掉的事情，国内体制内整个都乱了。阿富汗这个冬天的死亡人数将超过预期的200万，现在已经死亡80万人，未来各国跟共产党算总账的时候，这个事件也会被添上。本来共产党想用新疫苗和新病毒来控制各国，开好冬奥会，但是现在露馅了，为什么中共在新的Omicron疫情开始前就有了应对Omicron的疫苗，这个事实很多国家都注意到了。随着死亡人数越来越多，大家都会觉醒的。
 
-对我们喜联储的重大的利好
-Es de gran beneficio para nuestra Reserva Federal de Himalaya
+最近，俄罗斯和美国之间已经开始秘密谈判，俄罗斯一定会把中共卖了；而且俄罗斯在柬埔寨、越南、巴基斯坦、菲律宾以及整个南海都会建立军事基地，直接代替中共的地位。连印度现在都可能要和俄罗斯联盟了，那么中共会沦落到岌岌可危的地步。
 
-因为我们的喜联储通过这个咱们的H-coin也好, H-pay也好
-Porque nuestra Reserva Federal de Himalaya ya sea a través de H-coin, H-pay
+国内的很多国有企业1/3或20%降薪而且迟发缓发，22家房地产企业给政府报告要求破产。我们谈过的每一件事在过去都是很难发生的，爆料革命新中国联邦这个时候一定要冷静，把握住和驾驭这个千载难逢的机会。上天给了我们机会，我们不能辜负，不为事所动，不为情所动，不为利所动，不为名所动；战友们要学会大悲大喜时不做决定，超越情绪的束缚，把该做的事情做好。关键是这1000天是否能够持之以恒，是否守住法律红线，是否足够有智慧。
 
-H-dollar也好
-O H-dollar
+西方如果还天真的试图勾兑，那么共产党利用病毒和疫苗会让在我父亲和员工身上的遭遇很快来到西方。中共一定会万劫不复！
 
-全部都活了, 一下子就(活了)
-Todo habrá vitalidad
+*听写：阿甘*
 
-而且是每天的这种流量应该是相当巨大
-Y el flujo de todos los días es bastante grande
+*校对： 小雨*
 
-如果特别像台湾大牛
-Si es especialmente como Daniu de Taiwán
+* * *
 
-巴黎在台湾的人
-Y Bali que son de Taiwán
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-我告诉你台湾我知道几个家族
-Déjame decirte que yo sé de algunas familias en Taiwán
-每年就是到欧洲
-Donde van todos los años a Europa
 
-到英国去赌
-A apostar en Reino Unido
+编辑：【英国伦敦喜庄园编辑部】
 
-都是几亿几亿美元的赌
-Son apuestas de cientos de millones de dólares
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-有的大的玩得更大
-Algunos juegan aún más grande
 
-我再告诉大家
-También les digo
-
-赌场某种程度上是一个
-El casino es de alguna manera un
-
-最高端的金融游戏的智慧家的玩者
-Jugador más inteligente y sofisticado del juego finaciero
-
-在英国
-En Reino Unido
-
-只要你按我这个规矩玩儿
-Si juegas siguiendo mis reglas
-
-你绝对受到保护和尊重
-Serás absolutamente protegido y respetado
-
-他和中共国到澳门去
-Él va con el PCCh a Macao
-
-一会儿你涉黑了
-En un momento serás involucrado en la organización criminal
-
-你本来赌场就是黑社会
-El casino en sí es una organización criminal
-你涉个屁黑啊
-Para qué dices que estás involucrado en eso
-
-你本来就是黑社会还涉黑呢
-Porque ya en sí ya eres de la organización criminal
-
-是吧, 洗钱了
-Cierto, dinero blanqueado
-
-那赌场就是洗钱的
-Los casinos juegan el dinero blanquedo
-
-是不是, 他就这么简单
-Es o no es así, es tan sencillo
-
-你在英国不存在这个
-En Reino Unido no existe esto
-
-只要你按我的规则来
-Si sigues mis reglamentos
-
-你永远受保护
-Serás siempre protegido
-
-你去看看千年的历史
-Puedes ver la historia de hace mil años atrás
-
-英国没干过这事儿
-En Reino Unido no han hecho este tipo de cosas
-
-明白了吗, 意义重大
-¿ Comprenden? Este es muy significativo
-
-**原视频网址：**[https://gettr.com/post/pisqau958b](https://gettr.com/post/pisqau958b)
-
-日期：12/08/2021
-原视频标题：英国赌场牌照的意义
-El significado de la licencia de casino del Reino Unido
-原视频日期：12/05/2021
-原视频网址：https://gettr.com/post/pisqau958b
-任务编号：KC318(3123)
-视频时间段：0:00-1:43
-
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
-审片： 洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
