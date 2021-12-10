@@ -15,158 +15,158 @@
 
 ---
 
-### [UFC总裁：不会在自由的国家强迫人们接种疫苗](/content/gnews/1/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [奥米克戎变种出现在感染很低、疫苗接种最少的南非](/content/gnews/2/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [人生最重要的是无尽的智慧](/content/gnews/3/README.md)
+### [洗米华是孟建柱的马仔 孟掌控中国西部贩毒人口走私的巨大网络](/content/gnews/1/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [青蒿素是神药](/content/gnews/4/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [福奇隐瞒武汉实验室真相](/content/gnews/5/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [美議員在眾議院會議上直指習近平犯有種族滅絕罪](/content/gnews/6/README.md)
+### [在美国施压下阿联酋叫停该国中共在建军事设施](/content/gnews/2/README.md)
  ` 日本东京方舟农场`
 
-### [班农专访3: 中共外交官访问南非后，病毒新变异出现](/content/gnews/7/README.md)
+### [蓝色正道主义新文化](/content/gnews/3/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [千万不要放松对病毒的警惕性](/content/gnews/8/README.md)
+### [美国对数字货币监管的两弊两利](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [女性的归宿全取决于国家和民族是否强大](/content/gnews/9/README.md)
+### [该坦诚地重现审视这一切了](/content/gnews/5/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [UFC总裁：不会在自由的国家强迫人们接种疫苗](/content/gnews/6/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [孟建柱在打造一个真正的隐形的王国](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文·贵天成——文贵先生谈“疫苗”（四十）](/content/gnews/10/README.md)
+### [刘志华事件后彻底改变了共产党的生活方式](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [奥米克戎变种出现在感染很低、疫苗接种最少的南非](/content/gnews/9/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [人生最重要的是无尽的智慧](/content/gnews/10/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [青蒿素是神药](/content/gnews/11/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [福奇隐瞒武汉实验室真相](/content/gnews/12/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [美議員在眾議院會議上直指習近平犯有種族滅絕罪](/content/gnews/13/README.md)
+ ` 日本东京方舟农场`
+
+### [大规模接种本应恢复正常状态而死亡人数却在上升？](/content/gnews/14/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [班农专访3: 中共外交官访问南非后，病毒新变异出现](/content/gnews/15/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [千万不要放松对病毒的警惕性](/content/gnews/16/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [女性的归宿全取决于国家和民族是否强大](/content/gnews/17/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [文·贵天成——文贵先生谈“疫苗”（四十）](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共国老百姓“翻墙”看世界“有罪”](/content/gnews/11/README.md)
+### [中共国老百姓“翻墙”看世界“有罪”](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [再谈中共毒苗的反人类本质](/content/gnews/12/README.md)
+### [再谈中共毒苗的反人类本质](/content/gnews/20/README.md)
  ` 银河勇气之星`
 
-### [“全过程民主”遭弃，台湾获高调邀请](/content/gnews/13/README.md)
+### [“全过程民主”遭弃，台湾获高调邀请](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共工信部勒令106款APP下架 高压管制步步升级](/content/gnews/14/README.md)
+### [中共工信部勒令106款APP下架 高压管制步步升级](/content/gnews/22/README.md)
  ` 日本东京方舟农场`
 
-### [中共将无法再骗钱——中共信用被降级](/content/gnews/15/README.md)
+### [中共将无法再骗钱——中共信用被降级](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [梁家河子出来的习近平看看赵家沟出来的七哥会出啥重拳](/content/gnews/16/README.md)
+### [梁家河子出来的习近平看看赵家沟出来的七哥会出啥重拳](/content/gnews/24/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [中共病毒带给日本政府又一大麻烦！](/content/gnews/17/README.md)
+### [中共病毒带给日本政府又一大麻烦！](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [FBI 可以在 15 分钟内收集WhatsApp元数据](/content/gnews/18/README.md)
+### [FBI 可以在 15 分钟内收集WhatsApp元数据](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [福布斯含蓄报道“Hcoin To The Moon”打榜奇迹](/content/gnews/19/README.md)
+### [福布斯含蓄报道“Hcoin To The Moon”打榜奇迹](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [透碧霄 &#8211; “盘古”换头灭共始](/content/gnews/20/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [参议员布莱克本呼吁运动员不要参加中共冬奥会](/content/gnews/21/README.md)
+### [参议员布莱克本呼吁运动员不要参加中共冬奥会](/content/gnews/28/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [共产党的暗棋单伟建](/content/gnews/22/README.md)
- ` 银河勇气之星`
-
-### [天上人间，你最珍贵](/content/gnews/23/README.md)
+### [天上人间，你最珍贵](/content/gnews/29/README.md)
  ` 骄子`
 
-### [邪恶中共政权株植物九族](/content/gnews/24/README.md)
+### [邪恶中共政权株植物九族](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [维多利亚州总督无视民意，御批维州政府大流行病法案](/content/gnews/25/README.md)
+### [大直播后记——文贵先生分享早年IBM经历（三）](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`
 
-### [房地产硬着陆，倒闭潮、失业潮滚滚而来](/content/gnews/26/README.md)
- ` 墨尔本雅典娜农场`
-
-### [大直播后记——文贵先生分享早年IBM经历（三）](/content/gnews/27/README.md)
- ` 墨尔本雅典娜农场`
-
-### [联合国秘书长接受邀请将出席北京冬奥会](/content/gnews/28/README.md)
- ` 儒为`
-
-### [COVID-19 最新情报｜中国网路“脑梗死”关键词搜索量激增](/content/gnews/29/README.md)
+### [COVID-19 最新情报｜中国网路“脑梗死”关键词搜索量激增](/content/gnews/32/README.md)
  ` G&#124;News TAIWAN`
 
-### [魁省医院抗议者因反对儿童疫苗而被威胁逮捕罚款](/content/gnews/30/README.md)
+### [魁省医院抗议者因反对儿童疫苗而被威胁逮捕罚款](/content/gnews/33/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [继上海后，南京也发出疫情通告](/content/gnews/31/README.md)
+### [继上海后，南京也发出疫情通告](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美众议院通过涉疆法案 但两院版本不同将延长签署时间](/content/gnews/32/README.md)
- ` 日本东京方舟农场`
-
-### [被深度蓝金黄的法国称 不会外交抵制北京冬奥会](/content/gnews/33/README.md)
+### [被深度蓝金黄的法国称 不会外交抵制北京冬奥会](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [一位加州母亲说学校用披萨作为奖励引诱孩子接种疫苗](/content/gnews/34/README.md)
+### [一位加州母亲说学校用披萨作为奖励引诱孩子接种疫苗](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [两党议员宣布强制要求社交媒体公司对外分享数据的法案](/content/gnews/35/README.md)
+### [两党议员宣布强制要求社交媒体公司对外分享数据的法案](/content/gnews/37/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [百分之六十五的美国人认为中共国是敌人](/content/gnews/36/README.md)
+### [百分之六十五的美国人认为中共国是敌人](/content/gnews/38/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共国未成年女孩在KTV里当“小姐”](/content/gnews/37/README.md)
+### [中共国未成年女孩在KTV里当“小姐”](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [COVID-19 最新情报｜研究指出：鼻咽处清除后 新冠病毒仍持续存在于肠道组织](/content/gnews/38/README.md)
+### [COVID-19 最新情报｜研究指出：鼻咽处清除后 新冠病毒仍持续存在于肠道组织](/content/gnews/40/README.md)
  ` G&#124;News TAIWAN`
 
-### [中共政府发钱鼓励百姓感染中共病毒](/content/gnews/39/README.md)
+### [中共政府发钱鼓励百姓感染中共病毒](/content/gnews/41/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [研究表明寒冷天气会导致血栓和心脏病发作 给疫苗灾难敲响警钟](/content/gnews/40/README.md)
+### [研究表明寒冷天气会导致血栓和心脏病发作 给疫苗灾难敲响警钟](/content/gnews/42/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中日财经爆：联想发声明回怼司马南质疑](/content/gnews/41/README.md)
+### [中日财经爆：中共国房子卖不掉，库存创5年新高](/content/gnews/43/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆：中共国房子卖不掉，库存创5年新高](/content/gnews/42/README.md)
+### [我们一定会赢！](/content/gnews/44/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [我们一定会赢！](/content/gnews/43/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共再发文，要求党员干部带头落实三胎政策](/content/gnews/44/README.md)
+### [中共再发文，要求党员干部带头落实三胎政策](/content/gnews/45/README.md)
  ` GTV新闻访谈`
 
-### [掘地三尺挖出中共核心家族的海外家眷，以行动为中共送行](/content/gnews/45/README.md)
+### [掘地三尺挖出中共核心家族的海外家眷，以行动为中共送行](/content/gnews/46/README.md)
  ` GTV新闻访谈`
 
-### [纳瓦罗：拜登政府的疫情死亡人数比川普政府时还多](/content/gnews/46/README.md)
+### [纳瓦罗：拜登政府的疫情死亡人数比川普政府时还多](/content/gnews/47/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [当今天谈论12月7日，记住我们正处于第三次珍珠港事件](/content/gnews/47/README.md)
+### [当今天谈论12月7日，记住我们正处于第三次珍珠港事件](/content/gnews/48/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共以黑治国，非法暴力查封盘古](/content/gnews/48/README.md)
+### [中共以黑治国，非法暴力查封盘古](/content/gnews/49/README.md)
  ` GTV新闻访谈`
 
-### [COVID-19 最新情报｜诚实豆沙包？新西兰总理承认“疫苗接种计划没有终点”](/content/gnews/49/README.md)
+### [COVID-19 最新情报｜诚实豆沙包？新西兰总理承认“疫苗接种计划没有终点”](/content/gnews/50/README.md)
  ` G&#124;News TAIWAN`
 
-### [恒大违约将拖累加密货币、机构投资者、养老基金](/content/gnews/50/README.md)
+### [恒大违约将拖累加密货币、机构投资者、养老基金](/content/gnews/51/README.md)
  ` 墨尔本雅典娜农场`
-
-### [抵制北京冬奥会的呼声开始在日本政界内蔓延](/content/gnews/51/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [日本计划在2022年出台“稳定币”监管法律](/content/gnews/52/README.md)
  ` 日本东京方舟农场`

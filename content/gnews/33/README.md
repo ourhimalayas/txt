@@ -2,28 +2,35 @@
 ---
 
 
-## 被深度蓝金黄的法国称 不会外交抵制北京冬奥会
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1739115/)
+## 魁省医院抗议者因反对儿童疫苗而被威胁逮捕罚款
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1739250/)
 
-撰稿：东京樱花团/闻雨
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-121.png)
-12月10日，据法新社报道：12月9日，法国教育部长Jean-Michel Blanquer表示，法国将不会和其他西方国家一起抵制明年2月的北京冬奥会。
+翻译：**Lulumi**
 
-法国教育部长还说：“我们必须谨慎对待体育和政治之间的关系”，“体育是一个完全不同的世界，需要保护它不受政治干预。”
+![](https://assets.gnews.org/wp-content/uploads/2021/12/unknown-5-1.png)图片来源：rebelnews.com（作者：Alexandra Lavoie）
 
-你可能认为法国是一个自由民主的国家。
+一群抗议者聚集在蒙特利尔的圣贾斯汀医院外面，对政府最近决定为5至11岁的儿童开展疫苗接种活动表示不满。
 
-事实上，它早已经是社会主义国家了，而且法国政客也已经被中共深度地蓝金黄。那些对中共的暴政视而不见、充耳不闻的政客是中共的朋友，不是中国人民的朋友。很遗憾，这些政客，更多地考虑的是他们的个人利益。
+几个月前，CAQ（魁北克未來联盟）政府还出台了一项裁决，规定在学校或医院周围五十米范围内示威是非法的。
 
-试问代表和平的奥运会怎么能在一个侵犯人权，而且还试图用武力收回台湾的一个暴力国家举行呢？这些政客的逻辑都到哪里去了呢？
+这就是为什么在人们到达现场后几乎一分钟，警察就来找抗议者了，并警告他们，如果他们继续留在现场，都会收到罚款。
 
-信息来源:
+抗议者决定留下来。于是警察试图驱散人群并逮捕他们，同时为抗议者开出违章罚单。
 
-[フランス、北京五輪外交ボイコット「しない」 スポーツ相見解](https://news.yahoo.co.jp/articles/f2988407c0b1d77d61653ab7353dfc86d3745896)
+警方还用橙色带子封锁了抗议者不允许示威的区域。
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+这就是我们所说的言论自由吗？
+
+**参考资料：**[rebelnews][Protesters outside Quebec hospital arrested and fined for opposing the vaccination of children](https://www.rebelnews.com/protesters_outside_quebec_hospital_arrested_and_fined_for_protesting_outside_of_a_quebec_hospital)
+
+* * *
+
+*审核：文乐
+校对：信心满满*
+*发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH..jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

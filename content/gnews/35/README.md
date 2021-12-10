@@ -2,25 +2,28 @@
 ---
 
 
-## 两党议员宣布强制要求社交媒体公司对外分享数据的法案
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1739033/)
+## 被深度蓝金黄的法国称 不会外交抵制北京冬奥会
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1739115/)
 
-#### 撰稿：彩虹
+撰稿：东京樱花团/闻雨
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-121.png)
+12月10日，据法新社报道：12月9日，法国教育部长Jean-Michel Blanquer表示，法国将不会和其他西方国家一起抵制明年2月的北京冬奥会。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-2-2.png)图片来源：参议院
-12月9日，《国会山报》报道，根据两党参议员于周四宣布的一项新法案，Meta（即Facebook）和其他社交媒体公司将被要求与外部研究人员分享其数据。
+法国教育部长还说：“我们必须谨慎对待体育和政治之间的关系”，“体育是一个完全不同的世界，需要保护它不受政治干预。”
 
-发起该法案的参议员分别是民主党人克里斯·库恩斯(Chris Coons)、艾米·克洛布切(Amy Klobuchar)和共和党人罗伯·波特曼(Rob Portman)。他们强调，该法案也适用于其他社交媒体公司，但主要是由于脸书（Facebook）文件中泄露的有关Meta公司平台的信息，从而提出了该法案。
+你可能认为法国是一个自由民主的国家。
 
-该《平台问责和透明度法案》（Platform Accountability and Consumer Transparency Act）将允许独立研究人员向国家科学基金会（NSF）提交请求，如果这些请求得到批准，则社交媒体公司将被要求在遵守某些隐私保护规定的情况下提供必要的数据。
+事实上，它早已经是社会主义国家了，而且法国政客也已经被中共深度地蓝金黄。那些对中共的暴政视而不见、充耳不闻的政客是中共的朋友，不是中国人民的朋友。很遗憾，这些政客，更多地考虑的是他们的个人利益。
 
-如果社交媒体公司未能遵守该法案的要求，他们将受到联邦贸易委员会（FTC）的强制执行，并将失去《通讯规范法》（Communications Decency Act）第230条的保护。该法案还赋予联邦贸易委员会权力，可以要求平台持续主动地将有关信息向资源（研究机构）和公众提供，例如包含用户定位和参与的相关广告信息库。
+试问代表和平的奥运会怎么能在一个侵犯人权，而且还试图用武力收回台湾的一个暴力国家举行呢？这些政客的逻辑都到哪里去了呢？
 
-**新闻来源**
+信息来源:
 
-[Senators unveil bipartisan bill requiring social media giants to open data to researchers](https://thehill.com/policy/technology/585069-senators-unveil-bipartisan-unveil-bill-requiring-social-media-giants-to)
+[フランス、北京五輪外交ボイコット「しない」 スポーツ相見解](https://news.yahoo.co.jp/articles/f2988407c0b1d77d61653ab7353dfc86d3745896)
 
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,27 +2,24 @@
 ---
 
 
-## 一位加州母亲说学校用披萨作为奖励引诱孩子接种疫苗
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1739095/)
+## 继上海后，南京也发出疫情通告
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1739223/)
 
-#### 翻译/撰稿：zzballack
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/12/22222.jpg)[图片来源](https://www.google.com/search?q=%E5%8D%97%E4%BA%AC%E9%80%9A%E6%8A%A5+%E4%B8%8D%E7%A6%BB%E5%AE%81&amp;tbm=isch&amp;ved=2ahUKEwj0t7Xvgtn0AhWpB7cAHcYIAkgQ2-cCegQIABAA&amp;oq=%E5%8D%97%E4%BA%AC%E9%80%9A%E6%8A%A5+%E4%B8%8D%E7%A6%BB%E5%AE%81&amp;gs_lcp=CgNpbWcQAzoHCCMQ7wMQJ1CWCFiXKGDHKmgAcAB4AIABmwaIAdkSkgENMC4zLjEuMC4yLjAuMZgBAKABAaoBC2d3cy13aXotaW1nwAEB&amp;sclient=img&amp;ei=uSuzYbT3FqmP3LUPxpGIwAQ&amp;bih=625&amp;biw=1366&amp;rlz=1C1YKST_enUS900US901#imgrc=8CO5tfNIQkT5mM)
+12月10潇湘晨报报道，12月9日，南京市中共病毒疫情联防联控工作指挥部发布《关于进一步做好当前中共病毒疫情防控工作的通告》。为有效阻止疫情在南京市扩散，倡导全体市民非必要不离宁。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-17.jpg)图片来源：CBS Los Angeles
-据《真正美国之声》12月10日报道，美国加利福尼亚州洛杉矶联合学区（LAUSD）的一位名叫玛丽贝尔·杜阿尔特（Maribel Duarte）的母亲日前表示，她的13岁儿子所属学校–巴拉克·奥巴马全球预备学院（Barack Obama Global Prep Academy），在未征得家长同意下，以免费披萨作为交换条件，让她孩子在校内接种了新冠疫苗，而作为家长的她竟对这一切毫不知情。
+12月8日，上海召开的疫情防控新闻发布，根据《上海市集体类活动中共病毒疫情常态化防控工作指导意见》要求，对于各类活动坚持“非必要不举办”原则，能取消的取消，能延期的延期，能线上的线上。尽量不要组织年会、节庆等人员聚集活动。同时也提醒广大市民，非必要不离沪。据公开报道显示，这是上海市首度提出非必要不离沪的通告。
 
-杜阿尔特是在她孩子将一张疫苗接种卡带回家时才知道了此事。她告诉媒体说：“给他打针并在文件上签字的女士告诉我儿子不要提及任何事，她不想惹上麻烦。孩子在没有得到我的允许、不知道（疫苗具体详情）、也没有签署任何文件的情况下就打了一针疫苗，这让我很伤心。”
+距离元旦21天，距离春节52天，上海也是今年首个出台元旦春节期间疫情防控指导意见的省市，继上海后南京紧跟其后发布同样的通告，中共病毒是政治病毒，下一步就会发出封城通告。
 
-杜阿尔特说，她不反对接种疫苗，但她的儿子有“哮喘和过敏的问题”，没人可以保证接种疫苗对他的健康完全没有影响。
+信息来源：
 
-LAUSD对此表示，学生的事情是保密的，校方不愿具体评论。但表示学校确实设有一个计划，名为“安全学校安全措施奖励计划”（safe schools to safe steps incentive program），旨在确保采取一些行动以奖励接种疫苗的学生。
+[非必要不离开！南京上海发布最新提醒](https://me.mbd.baidu.com/r/xLzWHmGSqI?f=cp&amp;rs=3979175934&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=e6bc1268d2f86be0)
 
-正在密切关注两起针对LAUSD疫苗强制令案件进展情况的律师詹妮弗-肯尼迪（Jennifer Kennedy）对此事评论说：“问题在于加州的儿童不能同意接种疫苗，作为全美第二大学区的LAUSD没有法律权力在加州学校的时间表上增加疫苗接种。”
-
-LAUSD表示，截至感恩节假期，巴拉克·奥巴马全球预备学院已有80%的学生接种了新冠疫苗。并且已强制要求所有12岁及以上的学生在2022年1月10日前接种疫苗，那些既没有接种疫苗又没有获得豁免的学生，将被迫进行网络在线学习，不得返校。
-
-新闻来源：[Los Angeles mom says teen son got COVID shot at school in exchange for pizza, without her consent](https://americasvoice.news/justthenews/los-angeles-mons-teen-shot-got-covid-shot-school-exchange-pizza-without/)
-
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

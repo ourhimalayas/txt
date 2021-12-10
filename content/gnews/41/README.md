@@ -2,28 +2,30 @@
 ---
 
 
-## 中日财经爆：联想发声明回怼司马南质疑
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1738807/)
+## 中共政府发钱鼓励百姓感染中共病毒
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1738830/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-98.jpg)
-[图片来源](https://www.google.com/imgres?imgurl=http%3A%2F%2Fimg1.gtimg.com%2Ftech%2Fpics%2Fhv1%2F151%2F33%2F1795%2F116728441.jpg&amp;imgrefurl=https%3A%2F%2Ftech.qq.com%2Fa%2F20150227%2F012501.htm&amp;tbnid=mvkIORADABmD2M&amp;vet=12ahUKEwijw6X83tj0AhUBg-YKHSWRBk8QMyg1egQIARAc..i&amp;docid=lXs3cG2_Jj3oiM&amp;w=530&amp;h=353&amp;itg=1&amp;q=%E8%81%94%E6%83%B3%20%E5%8F%B8%E9%A9%AC%E5%8D%97&amp;hl=zh-CN&amp;ved=2ahUKEwijw6X83tj0AhUBg-YKHSWRBk8QMyg1egQIARAc#imgrc=mvkIORADABmD2M&amp;imgdii=WIFFwj6qMfETGM)
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2-36.jpg)
+[图片来源](https://voi.id/zh/news/22985/remember-the-murder-of-tkw-at-the-geylang-hotel-singapore-the-perpetrator-was-sentenced-to-death-zh)
 
-早前，“大五毛”司马南公开质疑联想2009年将29%股权转让给泛海集团，“涉嫌国有资产流失”。12月10日联想声明：2009年股权转让，严格按照相关要求进行了审计、资产评估和备案。本次股权转让，实现了国有资产的保值增值。
+中共辽宁锦州、阜新政府发布通告称主动核酸检测中共病毒，结果呈阳性人员奖励2万元,这样的邪恶政策或将导致贫苦老百姓主动感染中共病毒。
 
-今日（12月10日），联想控股在内网发布声明，内容如下：
+**辽宁锦州**
 
-我们经向中国科学院控股有限公司确认了以下事实：
+12月7日，辽宁锦州市新冠肺炎疫情防控总指挥部办公室发布通告：鉴于当前疫情形势复杂严峻，为进一步筑牢锦州市外防输入防线，广大市民要自觉落实个人防护责任，确保能够在最短时间、最小范围控制阻断疫情。
 
-2004年8月，按照党中央关于“大力发展国有资本、集体资本和非公有资本等参股的混合所有制经济，实现投资主体多元化”的要求，为加快高技术产业规模化发展，中科院做出加快院所投资企业股权社会化改革的决定。2009年，按照企业国有资产交易相关规定，中国科学院控股有限公司通过北京产权交易所公开挂牌交易，转让了联想控股29%股权。本次转让，严格按照国有资产产权交易相关要求进行了审计、资产评估和备案。经专业机构认定，联想控股归属于母公司所有者权益账面值为77.2亿元，评估值为92.6亿元。本次交易联想控股归属于母公司所有者权益溢价至95亿元，对应的29%股权交易价格为27.55亿元。本次股权转让，实现了国有资产的保值增值，历次中央巡视和国家审计署审计均未对此提出过任何异议。
+为鼓励广大市民响应号召，经锦州市疫情防控总指挥部研究决定，对锦州市户籍人员第一时间主动进行核酸筛查，核酸检测结果为阳性的，经核实确认后由属地县（市）区指挥部奖励2万元。
 
-就此问题的具体情况，可以联系国科控股。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-481.png)
+**辽宁阜新**
+
+12月5日，辽宁阜新市新冠肺炎疫情防控指挥部通告称，对主动进行核酸检测以及自觉身体不适、主动前往医疗机构发热门诊就诊并说明情况，核酸检测结果为阳性的人员，经核实后奖励2万元。
+
+中共邪恶的体制造就邪恶的政策，中共国有6亿人月收入不足1千元，这2万元就相当于他们近2年的收入，况且如今中共国内经济萧条，再加上疫情管控，更多的人入不敷出，此时推行这样的奖励政策，无异于鼓励人们感染病毒，这将导致更大的人道灾难。
+
 消息来源:
 
-**[联想控股内网发声明：国有资产未流失，历次中央巡视未提异议](https://finance.sina.com.cn/roll/2021-12-10/doc-ikyamrmy8066317.shtml)**
-
-**[早前，司马南公开质疑联想2009年将29%股权转让给泛海集团……](https://cj.sina.com.cn/articles/view/6890756658/19ab89a32040012z6l)**
+[两地先后宣布：主动核酸检测，有奖！](https://www.sohu.com/a/506875176_121123834)
 
 校对：东京樱花团/知了知了
 发布：东京樱花团/yuxingcao01
