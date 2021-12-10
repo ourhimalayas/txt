@@ -2,54 +2,46 @@
 ---
 
 
-## 戴口罩缺氧综合症现已席卷全球
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1739028/)
+## 两名婴儿在注射辉瑞COVID 疫苗后住院
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1739068/)
 
-**编译：JennyBall**
+**编译： Jenny Ball**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip01.png)图片来源：newstarget.com
+![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip04.png)
 
-研究表明，长时间使用自制或 N95口罩，会导致氧气损失 5% 至 20%，导致高碳酸血症（通常由呼吸不足引起的血液中二氧化碳过多）、惊恐发作、眩晕、 复视、耳鸣、注意力不集中、头痛、反应迟缓、癫痫发作、血液化学变化和空气置换导致的窒息。
+巴西的两名婴儿，因误注射辉瑞的武汉冠状病毒Covid疫苗而住院。一名护士给两人意外注射的 mRNA COVID-19 疫苗，而不是旨在预防五种疾病的疫苗。
 
-约翰斯·霍普金斯大学健康安全中心资深学者称，长时间戴口罩会改变血液化学成分，
+这两个婴儿——一个两个月大的女孩和一个四个月大的男孩——于 12 月 1 日前往巴西圣保罗州索罗卡巴市的一家医疗机构接种五价疫苗，该疫苗可保护儿童免受白喉， 百日咳、破伤风、乙型肝炎和乙型流感嗜血杆菌疾病。
 
-美国NIH的专家表示，**吸入过多呼出的二氧化碳**** (CO2) ****可能会危及生命**。到现在为止，至少每个人都经历过那种头晕目眩、心慌意乱的感觉，就是不断地重新吸入自己已经处理过的空气。这些只是更严重的健康问题的开始警告信号。
+但两个婴儿回家后不久就出现了高烧和呕吐，他们拒绝喝牛奶，父母给的药也无济于事。直到索罗卡巴卫生部长维尼修斯·罗德里格斯（Vinicius Rodrigues）博士与两个家庭取得联系后，真相才浮出水面：两个婴儿都错误地接种了 COVID-19 疫苗，而不是五合一疫苗。
 
-事实上，根据约翰斯·霍普金斯中心高级学者，马里兰州的健康安全医学博士阿梅什·阿达利亚（Amesh A. Adalja）的说法，**日复一日地戴口罩会导致血液化学变化，如果严重的话，会导致****“****意识水平发生变化**”。
+“我的生活发生了天翻地覆的变化。我知道每个人都会犯错，但这样的错误是不可接受的，”两个月大女孩的母亲说。
 
-更糟的是，专门研究神经毒理学和环境医学的德国神经学家玛格丽特·格里兹-布里松（Margarite Griesz-Brisson）博士（药理学博士）警告说，长时间佩戴 Covid 口罩导致缺氧，**会导致**[永久性神经损伤](https://braindamaged.news/)。
+这两名婴儿于12月2日被送往当地儿童癌症研究与援助小组（GPACI）医院接受进一步治疗。虽然从那以后两个婴儿都得到了改善，但他们有一段时间无法回家。 GPACI 医院的临床主任说，这是该机构首次处理错误注射 COVID-19 疫苗的婴儿病例。
 
-在她的研究中写道：“我们呼出的空气又重新呼吸，毫无疑问会造成氧气缺乏和二氧化碳泛滥。我们知道，人脑对缺氧非常敏感。例如海马体中有神经细胞，在没有氧气的情况下，不能超过 3 分钟——它们无法生存。**急性警告症状是头痛、困倦、头晕、注意力不集中、反应时间减慢****——****认知系统的反应**。”
+索罗卡巴的当局也联系了辉瑞，辉瑞告诉他们，应该在接下来的 10 到 15 天内对婴儿进行监测。这两者现在每 48 小时接受一次测试——通过血液样本提取、超声波和心电图检查。迄今为止，尚未在婴儿中观察到 COVID-19 疫苗引起的并发症。
 
-众多的口罩佩戴者，不知道这种慢性损伤正发生在他们身上的原因是，因为一旦一个人长期缺氧，**所有这些症状都会消失，因为这个人已经习惯了这种缺氧状态**； **但他们的效率仍然受到损害，并且，缺乏足够的氧气输送到大脑，其危险继续地发展。**
+与此同时，医护人员在第二天检查疫苗库存时才发现错误。这位犯错的护士说，她混淆了装 COVID-19 疫苗和五价疫苗的小瓶，因为它们看起来太相似了。她已被停职，等待行政调查。（点评：有点像中共国推卸责任的替罪羊临时工的做派。）
 
-这就是为什么在长时间使用口罩后，许多人说他们不再“介意”（Mind——**这是一个不经意的双关语，因为他们正在失去理智**）。
+辉瑞疫苗对婴儿比 COVID 更危险
 
-**神经退行性疾病需要数年才能发展**，**但我们已经进入戴口罩大流行两年了**
+辉瑞的 mRNA 疫苗也致一名 6 周的婴儿死亡，这是迄今为止最年轻的死者。根据 《生活新闻》（LifeSiteNews）的报道，婴儿的母亲——**一名来自新墨西哥州的 36 岁女子——于 6 月 4 日在母乳喂养儿子时注射了 COVID-19 疫苗**。
 
-媒体和CDC大肆宣传这种流行病，包括几乎无害的 Omicron 变体，以至于美国人即使完全独自在家、汽车里、办公室，或在外面散步和慢跑时也戴着口罩。孩子们被迫在学校一整天都戴着口罩，即使在课间休息时，也很少不戴口罩或零戴口罩。有些人在健身房使用有氧运动器械锻炼时确实戴着口罩。
+这两起事件，**说明了 COVID-19 疫苗对婴儿的危险**。然而，辉瑞仍然坚持寻求 FDA的批准，将其 COVID-19 注射剂注射到婴儿身上。
 
-玛格丽特博士解释说，你认为自己越习惯戴口罩，随着缺氧的持续，你大脑中的退化过程就越放大。 此外，**大脑中的神经细胞，无法以正常方式自我分裂，受损的神经细胞会因为大脑无法清空****“****垃圾****”****而再生**。
-
-**口罩就像二氧化碳诱导麻醉**
-
-大脑的新陈代谢越活跃，它需要的氧气就越多，**这就是为什么孩子们整天戴着口罩绝对是荒谬的**。此外，正如这位德国神经学家所说，人们的免疫系统非常具有适应性，需要“与地球微生物组持续互动”。
-
-**点评：邪恶势力是千方百计要灭绝人口，疫苗杀不死的，就让口罩去解决！再不行动更待何时？**
+**点评：是“意外注射”，还是“蓄意谋杀”？为什么已经听到如此多的“意外”注射疫苗事件？**
 
 文章内容来源：
 
-[Pandemic.news](https://www.pandemic.news/2021-03-04-who-insider-exposes-gavi-gates-perpetrating-plandemic.html)
+[RT.com](https://www.rt.com/news/542288-babies-vaccine-pfizer-brazil/)
 
-[TruthWiki.org](https://www.truthwiki.org/cdc-centers-for-disease-control-and-prevention/)
+[IBTimes.com](https://www.ibtimes.com/2-infants-hospitalized-after-accidentally-getting-covid-19-vaccine-instead-immunity-3352092)
 
-[NaturalNews.com](https://www.naturalnews.com/2021-12-01-how-plan-to-kill-billions-with-the-common-flu-covid-vaccines-induce-aids-immune-system-failure-opening-door-to-death-via-common-flu-strains.html)
+[LifeSiteNews.com](https://www.lifesitenews.com/news/nursing-baby-died-with-blood-clots-inflamed-arteries-following-mothers-pfizer-shot-vaers-report-says/)
 
-[BlueCat.Media](https://bluecat.media/oxygen-deprivation-causes-permanent-neurological-damage-dr-margarita-griesz-brisson-md-phd/)
+[DailyMail.co.uk](https://www.dailymail.co.uk/news/article-9993523/American-BABIES-given-low-dose-Pfizers-jab-winter.html)
 
-[UCC.org](https://www.ucc.org/daily_covid_19_brief_issue_39/)
-
-**新闻来源**：[newstarget.com][ODMS: Oxygen Deprivation Mask Syndrome now sweeping across the globe](https://www.newstarget.com/2021-12-08-oxygen-deprivation-mask-syndrome-sweeping-the-globe.html)
+**新闻来源**：[newstarget.com][Two babies hospitalized after getting injected with Pfizer’s COVID shot](https://www.newstarget.com/2021-12-08-two-babies-hospitalized-injected-pfizer-covid-vaccine.html)
 
 * * *
 

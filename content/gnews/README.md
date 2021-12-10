@@ -15,56 +15,56 @@
 
 ---
 
-### [继上海后，南京也发出疫情通告](/content/gnews/1/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [联合国秘书长接受邀请将出席北京冬奥会](/content/gnews/1/README.md)
+ ` 儒为`
 
-### [美国广播公司在与外交部会晤后 仍未能解除中共国对其网站的禁令](/content/gnews/2/README.md)
+### [COVID-19 最新情报｜中国网路“脑梗死”关键词搜索量激增](/content/gnews/2/README.md)
+ ` G&#124;News TAIWAN`
+
+### [魁省医院抗议者因反对儿童疫苗而被威胁逮捕罚款](/content/gnews/3/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美众议院通过涉疆法案 但两院版本不同将延长签署时间](/content/gnews/3/README.md)
+### [继上海后，南京也发出疫情通告](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美国广播公司在与外交部会晤后 仍未能解除中共国对其网站的禁令](/content/gnews/5/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [美众议院通过涉疆法案 但两院版本不同将延长签署时间](/content/gnews/6/README.md)
  ` 日本东京方舟农场`
 
-### [美两院就国防授权法达成共识，阻止中共犯台](/content/gnews/4/README.md)
+### [美两院就国防授权法达成共识，阻止中共犯台](/content/gnews/7/README.md)
  ` GTV News Talk`
 
-### [疫苗专家警告未接种者切勿接种 COVID 疫苗](/content/gnews/5/README.md)
+### [疫苗专家警告未接种者切勿接种 COVID 疫苗](/content/gnews/8/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [日本富豪前泽友作乘俄飞船抵达国际空间站](/content/gnews/6/README.md)
+### [日本富豪前泽友作乘俄飞船抵达国际空间站](/content/gnews/9/README.md)
  ` 日本东京方舟农场`
 
-### [被深度蓝金黄的法国称 不会外交抵制北京冬奥会](/content/gnews/7/README.md)
+### [被深度蓝金黄的法国称 不会外交抵制北京冬奥会](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [《蜘蛛侠：无路可走》在中共国可能出现问题](/content/gnews/8/README.md)
+### [《蜘蛛侠：无路可走》在中共国可能出现问题](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [一位加州母亲说学校用披萨作为奖励引诱孩子接种疫苗](/content/gnews/9/README.md)
+### [一位加州母亲说学校用披萨作为奖励引诱孩子接种疫苗](/content/gnews/12/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [恒大违约——连带风险将蔓延至加密货币、机构投资者、养老基金等(2/2)](/content/gnews/10/README.md)
+### [恒大违约——连带风险将蔓延至加密货币、机构投资者、养老基金等(2/2)](/content/gnews/13/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共国是世界新闻界“最大的监狱”](/content/gnews/11/README.md)
+### [中共国是世界新闻界“最大的监狱”](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [恒大违约——连带风险将蔓延至加密货币、机构投资者、养老基金等（1/2）](/content/gnews/12/README.md)
+### [恒大违约——连带风险将蔓延至加密货币、机构投资者、养老基金等（1/2）](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [两名婴儿在注射辉瑞COVID 疫苗后住院](/content/gnews/13/README.md)
+### [两名婴儿在注射辉瑞COVID 疫苗后住院](/content/gnews/16/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [揭疫苗含氢氧化石墨烯 德化学家神秘死亡](/content/gnews/14/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [两党议员宣布强制要求社交媒体公司对外分享数据的法案](/content/gnews/15/README.md)
+### [两党议员宣布强制要求社交媒体公司对外分享数据的法案](/content/gnews/17/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [戴口罩缺氧综合症现已席卷全球](/content/gnews/16/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [中共国将称霸国有稀土巨头 以加强对供应链的控制](/content/gnews/17/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [百分之六十五的美国人认为中共国是敌人](/content/gnews/18/README.md)
  ` 秘密翻譯組G-Translators`
@@ -147,50 +147,50 @@
 ### [中共金钱外交再次奏效，尼加拉瓜宣布与台湾断交](/content/gnews/44/README.md)
  ` 墨尔本雅典娜农场`
 
-### [抵制北京冬奥会的呼声开始在日本政界内蔓延](/content/gnews/45/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共的“叫嚣逻辑”，究竟谁会为外交抵制付出代价](/content/gnews/46/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共逼迫跨国公司断绝与立陶宛的合作](/content/gnews/47/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共又买到了一个“朋友”，尼加拉瓜与台湾断交](/content/gnews/48/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美国立法全面禁止进口所有新疆产品](/content/gnews/49/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [日本计划在2022年出台“稳定币”监管法律](/content/gnews/50/README.md)
- ` 日本东京方舟农场`
-
-### [“班农先生不睬案”审理日期已确定](/content/gnews/51/README.md)
- ` HimalayaRussia`
-
-### [美国公司是中共国的“人质”](/content/gnews/52/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [“躺平币”是向中共讨债的工具，解放更多的灭共力量](/content/gnews/53/README.md)
- ` YALUN 亚伦`
-
-### [2021年12月8日郭文贵先生直播全文字版](/content/gnews/54/README.md)
- ` 温哥华扬帆农场七哥直播全文听写组`
-
-### [12/09/2021 国际财经快讯：美国劳动者有望在经济蛋糕中占大头，但要过美联储这关；苹果公司在垄断案中赢得时间，获准暂缓修改App Store规则](/content/gnews/55/README.md)
- ` 秘密翻译组金融团队`
-
-### [国会回击迫使拜登撤回银行监管机构人选提名](/content/gnews/56/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [美众议院一天内几乎全票通过三项中共国人权法案](/content/gnews/57/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [郭文贵精品视频-美苏联合灭共时代已经开启](/content/gnews/58/README.md)
+### [新研究发现Covid19病毒的抗疫苗突变与疫苗接种率密切相关](/content/gnews/45/README.md)
  ` 澳喜农场`
 
-### [【文贵先生大直播PPT】单伟建和PAG到底是啥玩意儿](/content/gnews/59/README.md)
- ` Mr. Miles Guo's News Briefing`
+### [抵制北京冬奥会的呼声开始在日本政界内蔓延](/content/gnews/46/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共的“叫嚣逻辑”，究竟谁会为外交抵制付出代价](/content/gnews/47/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共逼迫跨国公司断绝与立陶宛的合作](/content/gnews/48/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共又买到了一个“朋友”，尼加拉瓜与台湾断交](/content/gnews/49/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美国立法全面禁止进口所有新疆产品](/content/gnews/50/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [日本计划在2022年出台“稳定币”监管法律](/content/gnews/51/README.md)
+ ` 日本东京方舟农场`
+
+### [“班农先生不睬案”审理日期已确定](/content/gnews/52/README.md)
+ ` HimalayaRussia`
+
+### [美国公司是中共国的“人质”](/content/gnews/53/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [“躺平币”是向中共讨债的工具，解放更多的灭共力量](/content/gnews/54/README.md)
+ ` YALUN 亚伦`
+
+### [2021年12月8日郭文贵先生直播全文字版](/content/gnews/55/README.md)
+ ` 温哥华扬帆农场七哥直播全文听写组`
+
+### [12/09/2021 国际财经快讯：美国劳动者有望在经济蛋糕中占大头，但要过美联储这关；苹果公司在垄断案中赢得时间，获准暂缓修改App Store规则](/content/gnews/56/README.md)
+ ` 秘密翻译组金融团队`
+
+### [国会回击迫使拜登撤回银行监管机构人选提名](/content/gnews/57/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [美众议院一天内几乎全票通过三项中共国人权法案](/content/gnews/58/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [郭文贵精品视频-美苏联合灭共时代已经开启](/content/gnews/59/README.md)
+ ` 澳喜农场`
 
 ### [班农的传票将1.6委员会吓得半死](/content/gnews/60/README.md)
  ` HimalayaRussia`

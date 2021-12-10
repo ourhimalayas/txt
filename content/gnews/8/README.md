@@ -2,30 +2,64 @@
 ---
 
 
-## 《蜘蛛侠：无路可走》在中共国可能出现问题
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1739096/)
+## 疫苗专家警告未接种者切勿接种 COVID 疫苗
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1739126/)
 
-翻译：蚂蚁兄弟
-![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕截图-2021-12-10-111100.jpg)图片来源： cinemascomics.com
-《蜘蛛侠：无路可走》上映在即，目前仍不清楚它是否能在中共国上映。
+**编译：Jenny Ball**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip07-2.png)图片来源：naturalnews.com
+生活新闻([Natural News](https://www.naturalnews.com/)) – 著名疫苗专家、病毒学家、比尔和梅琳达·盖茨基金会前高级官员海尔特·范登·博舍（ Geert Vanden Bossche） 博士敦促那些没有接种过武汉冠状病毒 (COVID-19) 疫苗的人，如果他们想保护自己的身体，就“不要接种疫苗”，你们有先天免疫系统。
 
-一部美国电影要进入中共国的电影院，必须通过一系列的审查，最近中共放映单位说《蜘蛛侠：无路可走》不会有任何上映问题，但到现在结果并不那么明朗。离该电影世界公映日只有几天时间了，审核官员还没有拍板。
+范登·博舍以视频的形式播放了这条消息，该视频于 11 月 20 日发布，恰逢奥地利维也纳举行的反对该国最新一轮 COVID-19 限制的大型集会。（相关：奥地利强制要求所有居民接种 COVID-19 疫苗；拒绝的人将支付高额罚款。)
 
-对于漫威影业来说，如果此电影能顺利在中共国公映，这将是漫威2021年抵达中共国的第一部电影，因为到目前为止，《黑寡妇》、《尚志》和《十环传奇》以及《永恒者》都因为各种不同的原因被审查了。所以大陆蜘蛛侠粉丝能否在电影院看到彼得-帕克，必须等待一段时间才能知晓。
+“**永远，永远不要允许任何事物或任何人干扰或抑制您的先天免疫系统**，” 范登·博舍说。他说，一个人的自然免疫系统是抵御任何疾病（包括 COVID-19）的[第一道防线](https://www.theburningplatform.com/2021/12/04/from-an-immunological-point-of-view-boosters-and-mass-vaccination-are-as-harmful-as-mold-on-a-wall/)。
 
-迪士尼亚太区总裁Luke Kang对《蜘蛛侠：无路可走》的上映充满信心，他说：“迪士尼在中共国有一个非常好的记录。在过去的十年里，在中共国，并非所有的事情都是成功的，但总的来说，没有人可以质疑我们作为一个动漫公司在中共国的整体成功。展望未来，我们是非常乐观的，短期挑战最终会自行解决。”
+范登·博舍警告说，COVID-19 疫苗产生的“抗体”会抑制一个人的天然免疫力，并且，它们[“无法替代天然免疫力”](http://immunesystem.news/)，因为这些“抗体”，如果它们提供了任何防止感染或传播的保护， 也不会持续很长时间。
 
-“漫威影业在中共国非常受欢迎，但我们很难预测一个政府的举动。我们的工作是在消费者所在的地方了解消费者，了解当地的约束和限制下，我们能做到的最大限度地发挥的影响力和潜力。”
+因此，范登·博舍警告人们，不要相信什么只要有足够多的人接种疫苗，整个社会就会受到保护的言论。**他说，疫苗“无助于群体免疫”**。
 
-《蜘蛛侠：无路可走》将于12月16日在全球许多国家上映。中共国能否成为其中之一，我们拭目以待。
+“看在上帝的份上，不要接种疫苗。他们应该保持未接种疫苗的状态，”范登·博舍说。 他建议未接种疫苗的人，继续通过照顾自己的健康来照顾自己的自然免疫力。“如果你这样做，并且你没有接种疫苗，你将在没有任何疫苗的情况下免于严重疾病。相反，疫苗会起到相反的作用。”
 
-新闻来源：[cinemascomics.com][Spider-Man: Sin camino a casa podría tener problemas en China](https://www.cinemascomics.com/spider-man-sin-camino-a-casa-podria-tener-problemas-en-china/)
+建议那些更容易感染 COVID-19 的人，例如老年人、免疫系统受损的人，或有合并症的人，要小心你们与谁密切接触。
+
+他说：“**这不是歧视疫苗，但未接种疫苗的人，此时尤其应避免与已接种疫苗的人接触。”**
+
+范登·博舍还警告，**不要向儿童提供实验性和致命的 COVID-19 疫苗**。他称这一行动要“绝对禁止”。
+
+他说，研究表明，儿童的免疫系统很容易被 COVID-19 疫苗提供的“抗体”抑制，因为“他们的抗体非常年轻和幼稚，很容易被疫苗抗体击败。”
+
+由于疫苗会抑制儿童的免疫系统，因此可能会使他们接触更多疾病，“甚至可能导致自身免疫性疾病”。
+
+范登·博舍：**卫生系统濒临崩溃**
+
+在给奥地利抗议者的视频信息中，范登·博舍警告说，世界卫生系统正处于崩溃的边缘。 他还对那些因无知，或胁迫而接种疫苗的人表示了极大的关注。
+
+“我们需要尽可能多地帮助他们，因为在许多情况下，他们需要广泛的治疗，”他说。 在他的研究中，范登·博舍已经观察到很大比例的完全接种疫苗的人住院——而且这个数字还在稳步增加。
+
+“然而，随着越来越多地接触病毒，先天免疫系统的训练越来越多，越来越多的未接种疫苗的人得以保护，”他说。
+
+“我不是世界末日的传教士，但这将不可避免地导致我们的卫生系统崩溃。只能会是这样的结局。”
+
+**他鼓励未接种疫苗的奥地利人继续为自己的健康而战**。如果他们仍未接种疫苗，政府的其他 COVID-19 措施将无法持续。他说，封锁措施不会持续“很长时间”。
+
+他告诉未接种疫苗的奥地利人“保持冷静”，并分享了一句德语谚语，该谚语用英语翻译为：“力量来自宁静。”
+
+**评论：疫苗造成了极度的社会分裂，不仅未接种的人们避免接触接种者，接种的社会大多数更视未接种者为“病毒传播者”，而一家人也都因“疫苗”失去了亲情。**
+
+文章内容来源：
+
+[GlobalResearch.ca](https://www.globalresearch.ca/renowned-virologist-warns-collapse-health-system-due-complications-covid-vaccines/5763796)
+
+[TheBurningPlatform.com](https://www.theburningplatform.com/2021/12/04/from-an-immunological-point-of-view-boosters-and-mass-vaccination-are-as-harmful-as-mold-on-a-wall/)
+
+[LifeSiteNews.com](https://www.lifesitenews.com/news/renowned-virologist-warns-of-collapse-of-our-health-system-due-to-complications-from-covid-vaccines/)
+
+**新闻来源**：[naturalnews.com][Vaccine expert warns the unvaccinated to never take COVID vaccines](https://www.naturalnews.com/2021-12-09-vaccine-expert-says-never-take-covid-vaccines.html)
 
 * * *
 
-*审核：Aries的星
+***审核：文乐
 校对：阿伯塔
-发布：Nuevo唐人*
+发布：信心满满***
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH..jpeg)
  
 
