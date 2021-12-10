@@ -2,31 +2,17 @@
 ---
 
 
-## 七哥说：习近平咱就从今年大年三十初一开始 （2021-12-08摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1740329/)
+## 【文贵先生大直播PPT】捍卫人权 全球抵制北京2022冬奥会
+` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1740368/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+撰稿：待命（文晓）
+美工：嘿虎，雷蒙
 
-来源：郭先生2021-12-08直播10：11：51 摘录
+【2021年12月10日文贵先生大直播PPT：捍卫人权 全球抵制北京2022冬奥会】
+![](https://assets.gnews.org/wp-content/uploads/2021/12/21-6.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/22-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/23-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/24-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/111-2-4.jpg)
+* * *
 
-咱就试试，你看看你梁家河的出来的河我这赵家沟出来看看谁狠，看谁能狠到底，习近平咱就从今年大年三十初一开始起，未来三年看咱俩谁先死，你要么把我做死，要不然我就让你死，就这么简单，你看看咱俩谁先退。
-
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+发稿：云起时
 
  
 

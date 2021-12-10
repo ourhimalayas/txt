@@ -2,132 +2,31 @@
 ---
 
 
-## 各种解药的功效
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1740180/)
+## 有声|墙内3-11岁儿童半数接种新冠疫苗 “儿童白血病”搜索量激增
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1740201/)
 
-[https://gtv.org/video/id=61b359ce87fa7e74c92e236b](https://gtv.org/video/id=61b359ce87fa7e74c92e236b)
+配音：香草山教育部 – 蒙古鸿雁
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+12月8日，据中共政府官方数据，国内3-11岁儿童中已有8400万人接种过中共病毒疫苗，接种率达到了50%。在中共国展开儿童新冠病毒疫苗接种工作一个多月以来，疫苗的副作用已在儿童群体中逐渐凸显出来。
 
-**郭文贵
-Miles Guo**
+据盖特网友爆料，近期内，“儿童白血病”一词的搜索量在中共国内出现直线飙升趋势。仅在微信平台中，该词的单日最高搜索量就超过了四百万次，是日常搜索量的近十倍。
 
-地塞米松一定是有症状以后吃的
-Dexamethasone must be taken after having symptoms
+另有盖特网友爆料称，儿童接种新冠病毒疫苗引发的急性白血病案例与科兴疫苗的某些特定批次紧密相关。在网友所在当地，某一批次的科兴疫苗只要一接种，接种者在短期内大概率就会患上急性白血病。
 
-它是救急的药，副作用非常之大
-It is an emergency medicine, and the side effects are very large
+文字版原文：[墙内3-11岁儿童半数接种新冠疫苗 “儿童白血病”搜索量激增](https://gnews.org/zh-hans/1734681/)
 
-这几种药里边，副作用最大的就是地塞米松
-Among these drugs, dexamethasone is the one with the most side effects
+音频处理：喜山必胜Maverick
+发稿：Fei797
 
-这里面最温性的药就是伊维菌素
-The most mild drug among these drugs is ivermectin
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88-1.png)
 
-伊维菌素，他说，吃这个东西解疫苗，包括解病毒，挡病毒是最好的药
-Ivermectin, he said, is the best medicine for anti-vaccine, including anti-virus
-
-他说青蒿素是所有这几种药里边的杀手锏
-He said that artemisinin is the master medicine of all these drugs
-
-但是这个青蒿素不能随便吃
-but artemisinin can’t be taken casually
-
-比如青蒿素，你跟伊维菌素不要放在一起吃
-For example, you should not take artemisinin and ivermectin at same time
-
-青蒿素最好不要和羟氯喹一起吃
-The best is not to take artemisinin with hydroxychloroquine
-
-但是青蒿素有分很多种
-there are many kinds of artemisinin
-
-他说，好的青蒿素单独就可以完全灭毒灭疫苗
-He said that good artemisinin alone can completely eliminate the virus and the vaccine
-
-他说几乎是100%
-He said it works almost 100%
-
-最重要是你吃什么青蒿素
-The most important thing is what kind of artemisinin you take
-
-青蒿素最好的就是美国（产的）
-The best artemisinin is (produced) in the United States
-
-最好的就是美国的药
-The best artemisinin is made in US
-
-他说特别是癌症病人
-He said especially for cancer patients
-
-他说一定是（服用）药剂的青蒿素
-He said it must be (taken) pharmaceutical artemisinin
-
-就刚才那个针剂啊，还有高纯度的药剂的青蒿素，而不是保健品
-Just the injection medicine we just discussed, and high purity pharmaceutical artemisinin, not health care products
-
-咱战友现在买的99%都是保健品
-99% of what our comrades bought are health products
-
-保健品可以防，但真的要有着解除疫苗和解除病毒的，包括战友得了病毒有后遗症的
-Health care products can prevent virus, but really need to have the lifting of the vaccines and lifting the virus, including the sequelae of the COVID-19
-
-一定是要青蒿素的药吃
-it must be pharmaceutical artemisinin
-
-他说几乎是100%就能铲除
-He said almost 100% of the sequelae can be eradicated
-
-但是身体里不会留下来的
-The body will not leave after-effects
-
-所以兄弟姐妹们要吃对药，吃正确药
-So brothers and sisters, please take the right medicine
-
-特别像地塞米松，它是等躺到了病房里边，稳定你的血氧（用的）
-Especially like dexamethasone, which is used to stabilize your blood oxygen when you are lying in the ward
-
-然后这个彻底的，有伤害性的救你命的药，它不能天天吃，它也不能病前吃 but this is thorough, harmful life-saving medicine.
-
-它不能天天吃，它也不能病前吃
-It can not be taken every day, and it can not be taken before you have COVID-19
-
-伊维菌素和羟氯喹和锌是防病毒，解病毒的
-Ivermectin, hydroxychloroquine and zinc are antiviral
-
-青蒿素是彻底铲除疫苗残留和防止病毒和挡病毒的
-Artemisinin is a complete eradication of vaccine residues, prevent viruses and block viruses
-
-青蒿素里的保健品是防病毒
-Artemisinin’s health products are anti-viral
-
-青蒿素的药治癌症，消除疫苗毒
-Pharmaceutical artemisinin cures cancer and eliminate vaccine poison
-
-包括消除得冠状病毒后的所有身体的残毒
-Including the elimination of all the residual virus of the body after the coronavitus
-
-大家一定要把这个搞明白，谢谢
-Everyone must understand this, thank you
-
-* * *
-
-Date:11/30/2021
-原视频标题: 各种解药的功效
-The efficacy of various antidotes
-原视频日期：2021/11/26
-原视频链接[https://gettr.com/post/pi1eag4d14](https://gettr.com/post/pi1eag4d14)
-任务编号：KC321(3035)
-视频时间段 : 0:00-02:06
-中听校：洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 -Layka Mike
-翻译终校：洛杉矶盘古农场 – Freeearth
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
