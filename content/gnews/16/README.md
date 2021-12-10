@@ -2,24 +2,20 @@
 ---
 
 
-## 被深度蓝金黄的法国称 不会外交抵制北京冬奥会
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1739115/)
+## 继上海后，南京也发出疫情通告
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1739223/)
 
-撰稿：东京樱花团/闻雨
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-121.png)
-12月10日，据法新社报道：12月9日，法国教育部长Jean-Michel Blanquer表示，法国将不会和其他西方国家一起抵制明年2月的北京冬奥会。
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/12/22222.jpg)[图片来源](https://www.google.com/search?q=%E5%8D%97%E4%BA%AC%E9%80%9A%E6%8A%A5+%E4%B8%8D%E7%A6%BB%E5%AE%81&amp;tbm=isch&amp;ved=2ahUKEwj0t7Xvgtn0AhWpB7cAHcYIAkgQ2-cCegQIABAA&amp;oq=%E5%8D%97%E4%BA%AC%E9%80%9A%E6%8A%A5+%E4%B8%8D%E7%A6%BB%E5%AE%81&amp;gs_lcp=CgNpbWcQAzoHCCMQ7wMQJ1CWCFiXKGDHKmgAcAB4AIABmwaIAdkSkgENMC4zLjEuMC4yLjAuMZgBAKABAaoBC2d3cy13aXotaW1nwAEB&amp;sclient=img&amp;ei=uSuzYbT3FqmP3LUPxpGIwAQ&amp;bih=625&amp;biw=1366&amp;rlz=1C1YKST_enUS900US901#imgrc=8CO5tfNIQkT5mM)
+12月10潇湘晨报报道，12月9日，南京市中共病毒疫情联防联控工作指挥部发布《关于进一步做好当前中共病毒疫情防控工作的通告》。为有效阻止疫情在南京市扩散，倡导全体市民非必要不离宁。
 
-法国教育部长还说：“我们必须谨慎对待体育和政治之间的关系”，“体育是一个完全不同的世界，需要保护它不受政治干预。”
+12月8日，上海召开的疫情防控新闻发布，根据《上海市集体类活动中共病毒疫情常态化防控工作指导意见》要求，对于各类活动坚持“非必要不举办”原则，能取消的取消，能延期的延期，能线上的线上。尽量不要组织年会、节庆等人员聚集活动。同时也提醒广大市民，非必要不离沪。据公开报道显示，这是上海市首度提出非必要不离沪的通告。
 
-你可能认为法国是一个自由民主的国家。
+距离元旦21天，距离春节52天，上海也是今年首个出台元旦春节期间疫情防控指导意见的省市，继上海后南京紧跟其后发布同样的通告，中共病毒是政治病毒，下一步就会发出封城通告。
 
-事实上，它早已经是社会主义国家了，而且法国政客也已经被中共深度地蓝金黄。那些对中共的暴政视而不见、充耳不闻的政客是中共的朋友，不是中国人民的朋友。很遗憾，这些政客，更多地考虑的是他们的个人利益。
+信息来源：
 
-试问代表和平的奥运会怎么能在一个侵犯人权，而且还试图用武力收回台湾的一个暴力国家举行呢？这些政客的逻辑都到哪里去了呢？
-
-信息来源:
-
-[フランス、北京五輪外交ボイコット「しない」 スポーツ相見解](https://news.yahoo.co.jp/articles/f2988407c0b1d77d61653ab7353dfc86d3745896)
+[非必要不离开！南京上海发布最新提醒](https://me.mbd.baidu.com/r/xLzWHmGSqI?f=cp&amp;rs=3979175934&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=e6bc1268d2f86be0)
 
 *校对：东京樱花团/知了知了*
 *发布：东京樱花团/tdownc2p*

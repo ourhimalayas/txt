@@ -2,24 +2,42 @@
 ---
 
 
-## 两党议员宣布强制要求社交媒体公司对外分享数据的法案
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1739033/)
+## 美两院就国防授权法达成共识，阻止中共犯台
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1739144/)
 
-#### 撰稿：彩虹
+作者：东京樱花团—在远方
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-2-2.png)图片来源：参议院
-12月9日，《国会山报》报道，根据两党参议员于周四宣布的一项新法案，Meta（即Facebook）和其他社交媒体公司将被要求与外部研究人员分享其数据。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-10.jpg)
 
-发起该法案的参议员分别是民主党人克里斯·库恩斯(Chris Coons)、艾米·克洛布切(Amy Klobuchar)和共和党人罗伯·波特曼(Rob Portman)。他们强调，该法案也适用于其他社交媒体公司，但主要是由于脸书（Facebook）文件中泄露的有关Meta公司平台的信息，从而提出了该法案。
 
-该《平台问责和透明度法案》（Platform Accountability and Consumer Transparency Act）将允许独立研究人员向国家科学基金会（NSF）提交请求，如果这些请求得到批准，则社交媒体公司将被要求在遵守某些隐私保护规定的情况下提供必要的数据。
 
-如果社交媒体公司未能遵守该法案的要求，他们将受到联邦贸易委员会（FTC）的强制执行，并将失去《通讯规范法》（Communications Decency Act）第230条的保护。该法案还赋予联邦贸易委员会权力，可以要求平台持续主动地将有关信息向资源（研究机构）和公众提供，例如包含用户定位和参与的相关广告信息库。
+![圖為美國國會大廈。（法新社資料照）](https://img.ltn.com.tw/Upload/news/600/2021/12/08/phpo4yI6S.jpg)（美国国会大厦）（图片来自法新社）
 
-**新闻来源**
+当地时间12月7日，美国参众两院军事委员会，就2022年度国防授权法案达成共识。其中有关台湾的内容包括建议邀请台湾参加环太平洋演习，以及保持美军阻止中共武力犯台形成既成事实等。该法案在经过参众两院表决通过后，将由拜登总统签署生效。
 
-[Senators unveil bipartisan bill requiring social media giants to open data to researchers](https://thehill.com/policy/technology/585069-senators-unveil-bipartisan-unveil-bill-requiring-social-media-giants-to)
+据悉，该法案涉及军费总额高达7680亿美元。该法案要求美国国防部评估协助台湾发展不对称防御战略，要求国防部长提出美军与台湾合作的可行性报告，还要求提供中共对美国军事联盟影响力的报告，并分拨71亿美元用在太平洋吓阻倡议中。另外，由于中共在南美和加勒比海地区持续不断的威胁，该报告还要求，留意中共对该地区台湾外交关系的持续施压。
+
+参考链接：
+
+[https://news.ltn.com.tw/news/world/breakingnews/3761291](https://news.ltn.com.tw/news/world/breakingnews/3761291)
+
+校对/发稿：有莫举名
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-3.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-5.jpg)
 
  
 

@@ -2,32 +2,34 @@
 ---
 
 
-## 日本富豪前泽友作乘俄飞船抵达国际空间站
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1739119/)
+## 魁省医院抗议者因反对儿童疫苗而被威胁逮捕罚款
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1739250/)
 
-**撰稿：日本东京方舟农场  老孙**
+翻译：**Lulumi**
 
-12月8日，日本亿万富豪前泽友作搭乘俄“联盟MS-20”号飞船到达国际空间站并完成对接。与之同行的还有一名助手和一名俄宇航员，3人将在太空停留12天，预计于20日返回地球。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/unknown-5-1.png)图片来源：rebelnews.com（作者：Alexandra Lavoie）
 
-据报道，该飞船从位于哈萨克斯坦境内的拜科努尔航天发射场发射升空，经过约6小时的飞行，顺利抵达空间站并与之对接。
+一群抗议者聚集在蒙特利尔的圣贾斯汀医院外面，对政府最近决定为5至11岁的儿童开展疫苗接种活动表示不满。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/608a9ab29e63ba6.jpg)图片来自于cnBeta.COM
+几个月前，CAQ（魁北克未來联盟）政府还出台了一项裁决，规定在学校或医院周围五十米范围内示威是非法的。
 
-今年46岁的前泽友作是日本最大在线时装平台“ZOZOTOWN”的创始人，同时他也是一位艺术品收藏家。前泽友作和助手此次太空之旅的具体费用并未向外界透露。
+这就是为什么在人们到达现场后几乎一分钟，警察就来找抗议者了，并警告他们，如果他们继续留在现场，都会收到罚款。
 
-前泽友作还计划于2023年乘坐美国太空探索技术公司的航天器绕月飞行，此次空间站之旅被他视为一次预演。
+抗议者决定留下来。于是警察试图驱散人群并逮捕他们，同时为抗议者开出违章罚单。
 
-*参考链接：*
+警方还用橙色带子封锁了抗议者不允许示威的区域。
 
-[日本太空游客乘俄飞船抵达国际空间站](https://www.cnbeta.com/articles/science/1212495.htm)
+这就是我们所说的言论自由吗？
+
+**参考资料：**[rebelnews][Protesters outside Quebec hospital arrested and fined for opposing the vaccination of children](https://www.rebelnews.com/protesters_outside_quebec_hospital_arrested_and_fined_for_protesting_outside_of_a_quebec_hospital)
 
 * * *
 
-*素材采编：老孙*
+*审核：文乐
+校对：信心满满*
+*发布：信心的选择*
 
-*编辑：文顺*
-
-*发布：Ranting*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH..jpeg)
 
  
 

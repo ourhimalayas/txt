@@ -2,10 +2,10 @@
 ---
 
 
-## 玛莉亚呼吁美国公司支持坎特这样体现美国价值的明星
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1738505/)
+## 纳瓦罗：拜登政府的疫情死亡人数比川普政府时还多
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1738511/)
 
-12/06/2021 玛莉亚呼吁美国公司支持坎特这样体现美国价值并且抵制中共的明星，并请他们代言。
+12/07/2021 纳瓦罗：拜登政府的疫情死亡人数比川普政府时还多。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
