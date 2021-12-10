@@ -2,84 +2,23 @@
 ---
 
 
-## 疫苗正在破坏免疫系统 带状疱疹可略见一斑（2/3）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1740085/)
+## 2021年12月10日文贵大直播要点海报（1）
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1740118/)
 
-翻译：Jenny Ball
+[#milesguobroadcast](https://gettr.com/hashtag/%23milesguobroadcast) [#文贵大直播](https://gettr.com/hashtag/%23%E6%96%87%E8%B4%B5%E5%A4%A7%E7%9B%B4%E6%92%AD)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-24.jpg)图片来源：childrenshealthdefense.org（Children’s Health Defense Team）
+2021年12月10日文贵大直播： 共产党的狂妄，认为冬奥会，打台湾，就是全世界政治实力的重新划分。 只要冬奥会开成功，共产党就会告诉世界，病毒不是我放的。万邦来朝，让病毒真相模糊化，去中化；数字人民币国际化。这是中共的狼子野心 。 The communist arrogance, the belief that the Winter Olympics, the fight against Taiwan , is a redistribution of political power around the world. As long as the Winter Olympics will be a success, the Communist Party will tell the world that the virus was not released by me. Wanbang came to the dynasty, let the virus truth blurred, de-China; digital yuan internationalization. This is the wolf’s ambition of the Chinese Communist Party .
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1210-03.png)
+2021年12月10日文贵大直播： 共产党对他们自己家人的保护是真的，春节对共产党的行动，会是最刺激的行动，可以看到无法想象的无数个共产党官员低级，会震撼世界。 The Communist Party’s protection of their own families is real, and a Spring Festival action against the Communist Party would be the most exciting action to see the unimaginable number of low-level Communist Party officials that would rock the world.
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1210-02.png)
+俄罗斯撇清与中共的关系，对乌克兰的行动与中共对台湾的行动无关。所有南海，台湾的任何行动，完全是俄罗斯自身利益的考量。明确美国如果对中共动手，俄罗斯不参与。 Russia has set aside its relations with the Chinese Communist Party, and its actions against Ukraine have nothing to do with the actions of the Chinese Communist Party against Taiwan. All the South China Sea, any action by Taiwan, is entirely a consideration of Russia’s own interests. It is clear that if the United States takes action against the Chinese Communist Party, Russia will not participate.
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1210-01.png)
+海报校对发布：千年等一回
+文本来源：20minfocus
+视频链接：[2021年12月10月文贵大直播](https://gtv.org/broadcast/watch/61b350ad56f4921401b40ccb)
+(海报文本摘自网络，如有出入以文贵大直播视频为准）
 
-“不直接”和“不一定”联系在一起？
 
-坚持带状疱疹等不良事件只是“随机事件”的现象，媒体正在使用通常的篡意语言告诉公众，报道的带状疱疹爆发“不直接”或“不一定”与 COVID 疫苗有关。
-
-一位医生说：“我最近看到了很多带状疱疹，但我个人没有看到它与疫苗有关。”
-
-“如果人们没有接种带状疱疹疫苗，而是在接种 COVID 疫苗后感染了带状疱疹，‘**这只是巧合’**，” 另一位医生轻率地补充道，“没有什么是没有风险的。”
-
-另一位医生迂回地表示，“并不是疫苗导致了带状疱疹——**疫苗只是导致带状疱疹发作的许多不同诱因之一。”**
-
-药物时代（Pharmacy Times）等新闻媒体同意“因果关系尚无法证明”，但善意地声明，“警惕和安全监控……是有必要的”。
-
-美国过敏、哮喘和免疫学学会 (AAAAI)——与哈佛大学和其他大学合作开发一种名为“妊娠监测系统中的疫苗和药物”的疫苗监测工具——应该有兴趣深入研究潜在的安全信号。
-
-但是，AAAAI 驳回了患者对COVID 注射引起的带状疱疹的担忧。在 4 月份的“咨询专家”帖子中，AAAAI 断言，“[辉瑞] 疫苗和带状疱疹之间没有明确的关联。”
-
-此外，尽管研究记录了在那个时期接种疫苗的妇女的妊娠流产率惊人，但 AAAI 还是支持在孕早期接种 COVID 疫苗。
-
-所有这些虚伪的“这里没什么可看的”说辞，与医学界长期以来承认的免疫抑制会增加带状疱疹的风险，以及疫苗的免疫影响可能是触发因素的偶尔不情愿的承认，都自相矛盾。
-
-令人沮丧的是，患有带状疱疹的消费者会问：“有人在跟踪接种 [COVID] 疫苗后有多少人感染了带状疱疹吗？”
-
-最近关于 COVID 疫苗和带状疱疹病例报告的一些作者，谨慎地提出了回应。关键事实，例如，带状疱疹不仅发生在免疫功能低下的 COVID 疫苗接种者身上，而且发生在健康个体中，以及“接种疫苗后发病的短暂延迟”，迫使一些人得出结论，疫苗会导致“免疫失调”、“免疫力改变”，或 引起带状疱疹的“免疫调节”。
-
-**流感疫苗接种的线索**
-
-在 COVID 之前，在线网站上充斥着人们在接种**流感疫苗后**数天或数周内出现带状疱疹的报道。
-
-一名男子写道，他咨询了六名医疗专业人士，他们都坚持“流感疫苗不可能引起带状疱疹”。在注意到他“在接种流感疫苗后仅 3 小时”就出现了“第一次，也是唯一一次”带状疱疹爆发后，他报告说：
-
-“我停止注射流感疫苗。 从那以后我再也没得过带状疱疹。**这也太巧了吧**……“
-
-在同一论坛上发帖的许多其他人都同意他们“不相信‘巧合’的解释”，包括 20 多岁和 30 多岁的非常健康（即具有免疫能力）的人，在感染疫苗后不久报告“可怕”和“痛苦”的带状疱疹病例。
-
-在另一个论坛上，版主回应了大量关于流感疫苗和带状疱疹的投诉如下：
-
-“我们从读者那里知道的是：所有这些都存在相关性，并且，所有 [他们] **都被告知没有相关性。**这时我们被医生和大型制药公司（[Big Pharma](https://childrenshealthdefense.org/defender_category/big-pharma/)）[引导] 接种疫苗不会产生严重的副作用时，**一般人很难再相信他们**。”
-
-**水痘和带状疱疹疫苗接种的线索**
-
-1995 年，FDA 批准， CDC在 12 至 15 个月大的儿童的儿童期计划中添加了一种水痘活疫苗 Varivax，为一种微不足道的儿童疾病增加了风险，一时间，几乎是一种普遍的体验。
-
-**引入**** Varivax ****后，成人和一些儿童的带状疱疹病例激增。**有时，接种疫苗的孩子还会患上水痘，通常在年龄较大的情况下会更严重。
-
-默克针对 Varivax 及其麻疹-腮腺炎-风疹-水痘疫苗 ProQuad 的包装说明书，**明确将带状疱疹列为不良事件**，**几种肝炎疫苗和脑膜炎球菌疫苗 （****Menactra****） 也是如此**。
-
-在引入水痘疫苗接种十年后，CDC 并没有承认存在任何问题，而是将疫苗诱导的免疫力减弱作为在儿童期接种水痘疫苗的理由。
-
-该机构还开始推荐默克的 Zostavax 疫苗来“抵消”成年人带状疱疹发病率的增加。
-
-（注释：FDA 要求默克公司再次更改标签，以警告使用 Zostavax 的人，疫苗可能导致坏死性视网膜炎——一种极其严重的眼病。并使Zostavax撤出市场）
-
-**默克公司于**** 2020 ****年底将**** Zostavax ****撤出市场，并卷入了疫苗伤害诉讼，“范围从因疫苗感染带状疱疹到严重的人身伤害，例如一只眼睛失明，四肢严重瘫痪的人， 脑损伤，直至死亡。”**
-
-当 CDC 举报人试图发布记录带状疱疹和其他水痘疫苗接种引起的其他不良后果发生率增加的数据时，CDC 人员试图掩盖调查结果，包括采取“**助长混淆和渎职”的行动**。
-
-最后，在文章的最后部分，再从历史线索看，疫苗造成了免疫失调而出现带状疱疹的相关性。
-
-请阅读上一篇：[疫苗正在破坏免疫系统 带状疱疹可略见一斑（1／3）](https://gnews.org/zh-hans/1740007/)
-
-下一篇：疫苗正在破坏免疫系统 带状疱疹可略见一斑（3／3）
-
-**参考资料：**[childrenshealthdefense.org][Vaccines Are Sabotaging the Immune System. Shingles May Hold Some Answers.](https://childrenshealthdefense.org/defender/covid-vaccines-shingles-immune-system-detoxification/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=bab690cc-6081-47bc-9178-aa913b21cfc7)
-
-* * *
-
-*审核：文乐
-校对：阿伯塔*
-*发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH..jpeg)
 
  
 

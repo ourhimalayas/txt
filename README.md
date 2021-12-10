@@ -15,119 +15,119 @@
 
 ---
 
-### [清单花（MIDI改编歌曲）](/content/gnews/1/README.md)
+### [七哥预计世界经济危机会在今年底到明年（2021-12-08摘录）](/content/gnews/1/README.md)
+ ` MG FARM`
+
+### [清单花（MIDI改编歌曲）](/content/gnews/2/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥谈我们要加速共产党的灭亡（2021-12-08摘录）](/content/gnews/2/README.md)
+### [七哥谈我们要加速共产党的灭亡（2021-12-08摘录）](/content/gnews/3/README.md)
  ` MG FARM`
 
-### [七哥谈让共产党应受到严厉的审判（2021-12-08摘录）](/content/gnews/3/README.md)
+### [七哥谈让共产党应受到严厉的审判（2021-12-08摘录）](/content/gnews/4/README.md)
  ` MG FARM`
 
-### [良心，到底值几个钱！](/content/gnews/4/README.md)
+### [良心，到底值几个钱！](/content/gnews/5/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥说：2015年开始我家人是两抓两放（2021-12-08摘录）](/content/gnews/5/README.md)
+### [伊利诺伊州法案提议剥夺未接种疫苗者的健康保险](/content/gnews/6/README.md)
+ ` 纽约香草山MOS02`
+
+### [七哥说：2015年开始我家人是两抓两放（2021-12-08摘录）](/content/gnews/7/README.md)
  ` MG FARM`
 
-### [七哥说：你们行不行动，我都会行动！（2021-12-08摘录）](/content/gnews/6/README.md)
+### [七哥说：你们行不行动，我都会行动！（2021-12-08摘录）](/content/gnews/8/README.md)
  ` MG FARM`
 
-### [七哥说：习近平你站出来对着我（2021-12-08摘录）](/content/gnews/7/README.md)
+### [七哥说：习近平你站出来对着我（2021-12-08摘录）](/content/gnews/9/README.md)
  ` MG FARM`
 
-### [【文贵先生大直播PPT】数字货币近期动向](/content/gnews/8/README.md)
+### [【文贵先生大直播PPT】数字货币近期动向](/content/gnews/10/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [【文贵先生大直播PPT】中共金融 房地产危机最新信息分析](/content/gnews/9/README.md)
+### [【文贵先生大直播PPT】中共金融 房地产危机最新信息分析](/content/gnews/11/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [秘翻在线: 美议员呼吁运动员不应参加北京冬奥会](/content/gnews/10/README.md)
+### [秘翻在线: 美议员呼吁运动员不应参加北京冬奥会](/content/gnews/12/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [【文贵先生大直播PPT】捍卫人权 全球抵制北京2022冬奥会](/content/gnews/11/README.md)
+### [【文贵先生大直播PPT】捍卫人权 全球抵制北京2022冬奥会](/content/gnews/13/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [七哥说：习近平咱就从今年大年三十初一开始 （2021-12-08摘录）](/content/gnews/12/README.md)
+### [七哥说：习近平咱就从今年大年三十初一开始 （2021-12-08摘录）](/content/gnews/14/README.md)
  ` MG FARM`
 
-### [DC大中华时事：中国“入世”20周年启示录](/content/gnews/13/README.md)
+### [DC大中华时事：中国“入世”20周年启示录](/content/gnews/15/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [七哥：我绝对不哭](/content/gnews/14/README.md)
+### [七哥：我绝对不哭](/content/gnews/16/README.md)
  ` MG FARM`
 
-### [银河快讯: 日本将不再允许外国学生购买免税商品；日本将承担更多的美军托管费用](/content/gnews/15/README.md)
+### [银河快讯: 日本将不再允许外国学生购买免税商品；日本将承担更多的美军托管费用](/content/gnews/17/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [心脏疾病的爆炸性增长为“新冠大流行后应激障碍”](/content/gnews/16/README.md)
+### [心脏疾病的爆炸性增长为“新冠大流行后应激障碍”](/content/gnews/18/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [文贵爆料 12.10：看时代更迭中的“替罪羊”，中共会是下一个](/content/gnews/17/README.md)
+### [文贵爆料 12.10：看时代更迭中的“替罪羊”，中共会是下一个](/content/gnews/19/README.md)
  ` 秘密翻译组-原创组`
 
-### [有声|怎样和亲朋有效讨论疫苗接种的话题](/content/gnews/18/README.md)
+### [2021年12月10日文贵先生直播大雨围城速记](/content/gnews/20/README.md)
+ ` Mr. Miles Guo's News Briefing`
+
+### [有声|怎样和亲朋有效讨论疫苗接种的话题](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [有声|美国安顾问：美国将采取行动 确保中共不会犯台](/content/gnews/19/README.md)
+### [有声|美国安顾问：美国将采取行动 确保中共不会犯台](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [【Michael.Tonny专栏】中共病毒及疫苗对越南人的残害远比越中战争严重得多](/content/gnews/20/README.md)
+### [【Michael.Tonny专栏】中共病毒及疫苗对越南人的残害远比越中战争严重得多](/content/gnews/23/README.md)
  ` 温哥华扬帆农场`
 
-### [有声|墙内3-11岁儿童半数接种新冠疫苗 “儿童白血病”搜索量激增](/content/gnews/21/README.md)
+### [有声|墙内3-11岁儿童半数接种新冠疫苗 “儿童白血病”搜索量激增](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [各种解药的功效](/content/gnews/22/README.md)
+### [各种解药的功效](/content/gnews/25/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [GTV新闻访谈简报|2021年12月10日早](/content/gnews/23/README.md)
+### [GTV新闻访谈简报|2021年12月10日早](/content/gnews/26/README.md)
  ` 纽约香草山MOS01`
 
-### [马航事件绝对是杀人灭口](/content/gnews/24/README.md)
+### [马航事件绝对是杀人灭口](/content/gnews/27/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2021年12月10日文贵大直播要点海报（1）](/content/gnews/25/README.md)
+### [2021年12月10日文贵大直播要点海报（1）](/content/gnews/28/README.md)
  ` 秘密翻译组-原创组`
 
-### [有声|GTV新闻访谈简报|2021年12月8日早](/content/gnews/26/README.md)
+### [有声|GTV新闻访谈简报|2021年12月8日早](/content/gnews/29/README.md)
  ` MOSREC`
 
-### [文·贵天成——文贵先生谈“疫苗”（四十二）](/content/gnews/27/README.md)
+### [文·贵天成——文贵先生谈“疫苗”（四十二）](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
 
-### [疫苗正在破坏免疫系统 带状疱疹可略见一斑（2/3）](/content/gnews/28/README.md)
+### [疫苗正在破坏免疫系统 带状疱疹可略见一斑（2/3）](/content/gnews/31/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|GTV新闻访谈简报|2021年12月8日晚](/content/gnews/29/README.md)
+### [有声|GTV新闻访谈简报|2021年12月8日晚](/content/gnews/32/README.md)
  ` MOSREC`
 
-### [文·贵天成——文贵先生谈“疫苗”（四十一）](/content/gnews/30/README.md)
- ` 墨尔本雅典娜农场`
-
-### [12/10/21 香港快讯 就选举办反恐演习 香港民研：近四成受访者称减投票意欲](/content/gnews/31/README.md)
+### [12/10/21 香港快讯 就选举办反恐演习 香港民研：近四成受访者称减投票意欲](/content/gnews/33/README.md)
  ` 英喜-粵語組`
 
-### [浅谈当前危机的本质及发展 ——物理推论法](/content/gnews/32/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [疫苗正在破坏免疫系统 带状疱疹可略见一斑（1／3）](/content/gnews/33/README.md)
+### [疫苗正在破坏免疫系统 带状疱疹可略见一斑（1／3）](/content/gnews/34/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [银河快讯：日本支持台湾出席世卫组织会议；呼吁核武器国家提高透明度](/content/gnews/34/README.md)
+### [银河快讯：日本支持台湾出席世卫组织会议；呼吁核武器国家提高透明度](/content/gnews/35/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [不寒而慄—可怕的实验室病毒泄露](/content/gnews/35/README.md)
+### [不寒而慄—可怕的实验室病毒泄露](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [12/10/2021国际财经快讯：10个国家模拟全球金融体系网络攻击；英国金融公司实施新中共病毒规则](/content/gnews/36/README.md)
+### [12/10/2021国际财经快讯：10个国家模拟全球金融体系网络攻击；英国金融公司实施新中共病毒规则](/content/gnews/37/README.md)
  ` 秘密翻译组金融团队`
 
-### [中共金融、房地产危机最新信息分析](/content/gnews/37/README.md)
+### [中共金融、房地产危机最新信息分析](/content/gnews/38/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
-
-### [DC每日热点1210](/content/gnews/38/README.md)
- ` 喜马拉雅-华盛顿DC农场`
 
 ### [在美国施压下阿联酋叫停该国中共在建军事设施](/content/gnews/39/README.md)
  ` 日本东京方舟农场`
