@@ -2,42 +2,61 @@
 ---
 
 
-## 恒大违约将拖累加密货币、机构投资者、养老基金
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1738416/)
+## 赞德蕾·博塔医生分享打疫苗后缓解血栓的治疗方案
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1738463/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+作者：纽约香草山翻译部 – defiance
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
+在12月2日的Stew Peter节目上，Zandre Botha医生分享了打了疫苗后，缓解血栓的方法。她总结了治疗方案分成两部分，日常部分，也就是营养保健品，医疗部分，也就是高剂量的药物。不管是轻度打疫苗后不良反应还是重度的都可用，调整的只是剂量：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture1-18.jpg)
+日常部分，用于轻度疫苗不良反应治疗方案
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/economiccrisisadobestockweb.jpg)
+•营养保健品 Nutraceuticals
+
+•抗凝血剂 anti-coagulant
+
+•血小板thrombocyte，阿斯匹林asprin（过敏的除外），姜黄素/姜黄curcumin/turmeric（剂量要大），大蒜garlic。
+
+•伊维菌素 Ivermectin 每天12毫克，持续5天，然后每周1次12毫克。
+
+•N-乙酰-L-半胱氨酸 NAC 每天3次 每次500毫克（肝脏解毒）。
+
+•氧气胶囊仓oxygen capsule/血液氧合器blood oxygenator。
+
+•水针 Hydro shot——药片形式的氢分子Molecular Hydrogen in pill form（对抗细菌、病毒，特别是严重氧化应激）。
+
+•沸石化学品 Zeolite Chemicals（辐射及重金属解毒，她为一个病人用了3大盒）。
+
+•胶体银Colloidal Silver、二氧化氯 chlorine dioxide饮用drink，雾化nebulize之。
+
+•维他命D  Vitamin D 5000毫克
+
+•碱粉Alkaline powder（对心脏有帮助，酸性环境对心脏不好）
+
+•Botha医生秘制“解毒加强神药”Miracle Booster Detox（是来自不同国家地区的超级食物，包括螺旋藻Spirulina，辣木moringa，黑种草籽 black seed 大麦 barley, 还有甜菜根粉beetroot powder（补铁，提升载氧量））
+
+医生还说，充血淤血、疲劳本身就是种病的征兆，要重视起来。身体疲劳的原因就是心脑供氧不足。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture2-7.jpg)
+医疗部分专注四种靶向治疗方法。一是使用氢分子（有些美国科学家也提过），二是使用臭氧，通过静脉输入，或者在一个平板舱内，有利于解毒和细胞再生。三是莱夫机，如果有莱夫机的，可以修复三磷酸腺苷（ATP）和DNA。ATP可以改善线粒体。四是激光（comra laser），作用于干细胞。
+
+Botha医生已经临床实验了6个月。她通过观测血相得出结论：吃药加治疗后3-4周，病人感觉良好，这些病人都是已经感到有明显的严重不良反应的病人。而且仅吃药就有很多病人感觉舒服多了。
+
+参考来源：[赞德蕾·博塔医生分享打疫苗后缓解血栓的治疗方案](https://www.redvoicemedia.com/2021/12/doctor-finds-treatment-for-vaxx-victims-sees-major-improvement-in-blood/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88-1.png)
+
+编辑/校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
 
- 
-图片来源:  www.cdrecycler.com
-
-
-#### 整理报道 ：小红帽
-
-中国庞氏房地产开发商恒大现已正式违约，因为惠誉（Fitch）已确认这家负债累累的公司错过了债券利息支付，未偿债券超过3千亿美元。房地产开发商佳兆业（Kaisa）也被点名，还有近十几家其他中国房地产开发商被广泛认为正在违约的路上。
-
-“**这不仅仅是恒大的违约，这是中国和银行体系的违约**，”丹· 大卫（Dan David）告诉福克斯商业频道。“他们将迎来如2008年美国次贷房地产泡沫一样的崩溃。”
-
-**在整个2022年，我们都将目睹极端的金融压力，以及许多可能的违约。这将通过持有恒大债务的各种机构蔓延。同时，这可能会影响养老基金，对冲基金，机构投资者，私人投资者甚至中央银行。**
-
-许多分析师认为，凭空创造加密货币的“稳定币””提供商Tether可能在恒大拥有数百亿美元的敞口。随着恒大的违约现已正式宣布，**这意味着Tether对恒大、佳兆业或其他中国房地产开发商的持股价值实际上为零**。重要的是，这可能意味着**Tether不再有足够的资产来覆盖其发行到加密生态系统中的USDT硬币**。
-
-**由于所有比特币购买行为中有三分之二实际上是使用Tether硬币进行的，这也意味着比特币的市场估值可能会被数字货币印刷业务大幅夸大。**
-
-约翰·佩雷斯（John Perez）认为**整个加密生态系统都依赖于大规模的数字货币伪造操作，泡沫很快就会破裂，使加密货币持有者处于与恒大债务持有者相同的位置。**
-
-新闻来源：[恒大违约 – 传染风险将蔓延到加密货币、机构投资者、养老基金等 – NaturalNews.com](https://www.naturalnews.com/2021-12-09-evergrande-defaults-contagion-risk-will-spread-to-crypto-institutional-investors-pension-funds.html)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
