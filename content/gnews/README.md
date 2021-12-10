@@ -141,52 +141,52 @@
 ### [2021/12/09 墙内世界](/content/gnews/42/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共又要跳脚——日本首相敦促世卫组以观察员身份让台湾加入](/content/gnews/43/README.md)
+### [国会回击迫使拜登撤回银行监管机构人选提名](/content/gnews/43/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [中共又要跳脚——日本首相敦促世卫组以观察员身份让台湾加入](/content/gnews/44/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [纽约市议员抨击市长白思豪对私营部门的疫苗强制令](/content/gnews/44/README.md)
+### [纽约市议员抨击市长白思豪对私营部门的疫苗强制令](/content/gnews/45/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [南非总统宣布不会施行疫苗强制令](/content/gnews/45/README.md)
+### [南非总统宣布不会施行疫苗强制令](/content/gnews/46/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [乔·艾伦：可自我复制的生物体机器人已经造出来](/content/gnews/46/README.md)
+### [乔·艾伦：可自我复制的生物体机器人已经造出来](/content/gnews/47/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美众议院一天内几乎全票通过三项中共国人权法案](/content/gnews/47/README.md)
+### [美众议院一天内几乎全票通过三项中共国人权法案](/content/gnews/48/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [郭文贵精品视频-美苏联合灭共时代已经开启](/content/gnews/48/README.md)
+### [郭文贵精品视频-美苏联合灭共时代已经开启](/content/gnews/49/README.md)
  ` 澳喜农场`
 
-### [纳奥米博士：疫苗强制是战区伪装和极权主义恐怖](/content/gnews/49/README.md)
+### [纳奥米博士：疫苗强制是战区伪装和极权主义恐怖](/content/gnews/50/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [乔·艾伦：谷歌施密特等人想让你相信，我们将与AI共生](/content/gnews/50/README.md)
+### [乔·艾伦：谷歌施密特等人想让你相信，我们将与AI共生](/content/gnews/51/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [郭先生谈音乐的力量](/content/gnews/51/README.md)
+### [郭先生谈音乐的力量](/content/gnews/52/README.md)
  ` GTV新闻访谈`
 
-### [本·汉威尔：反对强制疫苗接种的世界联盟正在集结中](/content/gnews/52/README.md)
+### [本·汉威尔：反对强制疫苗接种的世界联盟正在集结中](/content/gnews/53/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [新中国联邦未来1到3年内的重大行动](/content/gnews/53/README.md)
+### [新中国联邦未来1到3年内的重大行动](/content/gnews/54/README.md)
  ` GTV新闻访谈`
 
-### [西方多国和人权团体全面抵制北京冬奥会](/content/gnews/54/README.md)
+### [西方多国和人权团体全面抵制北京冬奥会](/content/gnews/55/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国会呼吁更多国家抵制北京冬奥会](/content/gnews/55/README.md)
+### [美国会呼吁更多国家抵制北京冬奥会](/content/gnews/56/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【文贵先生大直播PPT】单伟建和PAG到底是啥玩意儿](/content/gnews/56/README.md)
+### [【文贵先生大直播PPT】单伟建和PAG到底是啥玩意儿](/content/gnews/57/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [法官暂停拜登政府针对全美联邦承包商的疫苗强制令](/content/gnews/57/README.md)
- ` 首尔天池农场`
-
-### [韩国自爆发疫情以来，新增中共病毒病例首次突破 7,000 大关](/content/gnews/58/README.md)
+### [法官暂停拜登政府针对全美联邦承包商的疫苗强制令](/content/gnews/58/README.md)
  ` 首尔天池农场`
 
 ### [班农的传票将1.6委员会吓得半死](/content/gnews/59/README.md)
