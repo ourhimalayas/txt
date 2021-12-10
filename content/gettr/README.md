@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/10/2021 7:47 PM (UTC)`
+
+🔥世界的盘古-为灭共而生<br/>”谁也拿不走盘古，记住我说的话！<br/>他们越这么干，盘古越坚定，越坚固，越坚不可摧！”<br/>既然已经开始，我们决不妥协！💪💪💪<br/>既然已经开始，我们一定会赢！👊👊👊<br/><br/>🔥The Meaning of Pangu of the World – To Take Down the CCP<br/>"No one can take Pangu away. Mark my words. The more they wanted to take it away, the steadier Pangu is, the stronger and the more indestructible Pangu is!"<br/>Since we have started, we will never compromise!<br/>Since we have started, we must win!
+![img](https://media.gettr.com/group33/origin/2021/12/10/19/0dfe671c-2c7a-601e-e822-9db4170d4d46/out.jpg)
+
+---
+
 `@miles 12/10/2021 1:06 PM (UTC)`
 
 2021年12月10日 文贵大直播：全球各国抵制冬奥会；数字货币市场变化大；七哥新歌打榜冲一名；稳步安排春节大行动
@@ -145,12 +152,6 @@ Forbes news on Dec 8, 2021:<br/><br/>This week’s World Digital Song Sales char
 `@miles 12/8/2021 6:59 PM (UTC)`
 
 12月8号：让这些爱中共的共产党的特务的所有的钱才和共产党的黑暗的交易曝光，以阳光之下让美国人民觉醒。<br/><br/>【https://www.dirt.com/moguls/finance/bo-shan-house-brentwood-1203303596/  单建伟儿子 Bo Shan /Leilei Shan( 单博/单磊磊)在2019年以2000万美元买下的豪宅，位于<br/>Brentwood, Los Angeles, Calif. https://www.dirt.com/moguls/finance/bo-shan-house-brentwood-1203303596/】
-
----
-
-`@miles 12/8/2021 4:22 PM (UTC)`
-
-8/12/2021 “Hcoin To the Moon" Hits #1 🥇on 7 Countries' iTunes Rock Charts on the 6th Day of Launch 🎉🎉🎉🎉🎉🎉🎉<br/>Thank you very much to all our brothers and sisters in HongKong, Taiwan, New Zealand, Australia, Laos, Singapore and Finland!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1732743/<br/><br/>12月8号， Hcoin To the Moon上线第6天位列7国iTunes摇滚音乐榜首🥇！🎉🎉🎉🎉🎉🎉🎉<br/>感谢香港，台湾，新西兰, 澳大利亚，老挝，新加坡，芬兰的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏
 
 ---
 
