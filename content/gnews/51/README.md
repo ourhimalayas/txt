@@ -2,45 +2,31 @@
 ---
 
 
-## 国会回击迫使拜登撤回银行监管机构人选提名
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1735821/)
+## 快手“断手”能否重振雄风？
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1735969/)
 
-**翻译： Jenny Ball**
+撰稿：东京樱花团/ Ob
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2-31.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fp6.toutiaoimg.com%2Flarge%2Ftos-cn-i-qvj2lq49k0%2F91ebc4e303d74201a744a60d55d841e2&amp;imgrefurl=https%3A%2F%2Fsunnews.site%2Fscience%2F332529.html&amp;tbnid=Gaf2MMQEmG-y_M&amp;vet=12ahUKEwjJw-_P1Nb0AhUQ4GEKHXGXA0AQMygAegUIARDAAQ..i&amp;docid=Ibd7AJdlh6FLcM&amp;w=640&amp;h=418&amp;itg=1&amp;q=%E5%BF%AB%E6%89%8B%E8%A3%81%E5%91%98&amp;ved=2ahUKEwjJw-_P1Nb0AhUQ4GEKHXGXA0AQMygAegUIARDAAQ)
+看中国2021年12月9日讯，继字节跳动、爱奇艺裁员后，快手裁员的消息近日也闹得沸沸扬扬。最新消息显示，快手裁员涉及范围包括北京、上海、广东、深圳等地公司12月初有快手员工发布消息称，快手12月开始劝退低绩效员工，但由于直接裁员公司需要支付“N+1经济补偿金”，因此公司先从绩效打C开始。随后，又有网友爆料称，快手裁员人数多达30%，国际业务裁员已经开始裁员。 据澎湃新闻8日最新消息，从多位内部员工处获悉，快手内部确实正在进行新一轮裁员。快手员工爆料，快手在北京、上海、广州、深圳四地的商业化团队将在年底前完成转型，其中部分业务条线将被取消。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip41.png)绍尔·奥马洛娃（Saule Omarova） 于 2021 年 11 月 18 日在国会山的参议院银行、住房和城市事务委员会的提名担任货币审计长的听证会上。（Anna Moneymaker/Getty Images）
- 
+此前还有员工在“脉脉”爆料，快手此次裁员范围不仅包括基层员工，部分年龄超过35岁、非技术岗位的高管团队也被裁员，其中不少人的年薪达到100万级别。
 
-在参议院共和党人和几位民主党人的强烈反对之后，总统拜登周二撤回了对银行监管最高职位的选择。
+针对裁员传闻，快手方面一直未作出回应。事实上，作为短视频领域的开创者，快手一早就抢占了市场先机，但被竞争对手抖音超过，只用了不到半年时间。此外，在过去1、2年中，快手出海也屡屡碰壁。
 
-康奈尔大学法学院教授绍尔·奥马洛娃， 因她提议将银行业戏剧性地集中化，以及她关于赞誉共产主义创始人卡尔·马克思的论文而招致批评。
+根据11月23日快手发布的三季度报显示，快手亏损进一步暴增。三季度快手营收204.9亿元，高于市场预估的201亿元，同比增长33.4%；净亏损70.9亿元，经调整后净亏损达到了48.22亿元，同比暴增401.4%。
 
-拜登在一份声明中表示，他同意撤回对奥马洛娃担任货币审计长的提名。
+报告还显示，今年以来快手现金及等价物减少171.31亿元，大幅度下滑近3成。另外，三季度研发开支达到了42亿元，比去年同期的19亿元增加126％。
 
-奥马洛娃在白宫发布的一封信中没有说明她提出这一要求的原因，只是将其描述为，让她继续担任拜登候选人“不再站得住脚”。
+值得注意，与同样大裁员的爱奇艺不同，快手曾经有过盈利。2017年至2019年间，快手每年盈利在2亿元至10亿元。亏损转折点出现在快手和抖音展开全面竞争。2020年，快手亏损79亿元；2021年前三季度，快手共亏损145亿元。快手在经历海外业务大调整、联合创始人退位、公司亏损暴增等一系列事件后，内外交困问题似乎愈发严重。程一笑担任快手CEO一职后，是否可以重振快手，仍有待观望。
 
-参议院银行委员会最高共和党参议员帕特·图米 (Pat Toomey) 指出，奥马洛娃本人称，她的提议激进。在著作中，她表达了“正如我们所知，有效‘结束银行业’”的愿望，并让美联储为食品和能源设定价格。
+消息来源：
 
-“在确认过程中，两党达成共识，即奥马洛娃教授自称对美国金融体系的激进想法，不适合我们国家的最高银行监管机构。我希望拜登政府能够选出一位对美国经济有主流观点的候选人，”图米周二表示。
+[快手大裁员 高管在列100万年薪员工难逃(图)](https://m.secretchina.com/news/gb/2021/12/09/991859.html)
 
-奥马洛娃是一个激进的人，她自由地以书面形式分享她的马克思主义观点。她希望大政府官僚支配美国经济。“让她负责美国的银行，对美国工人和家庭来说是灾难性的，”参议员约翰·肯尼迪（John Kennedy）补充道。
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
 
-奥玛洛娃在听证会上说，她不是共产主义者，并试图与自己的作品保持距离。
-
-一些民主党人表示，他们支持拜登的选择，但参议员马克·华纳（Mark Warner）和乔恩·泰斯特（Jon Tester）表达了对她的担忧。泰斯特不喜欢奥马洛娃批评他帮助撰写的《经济增长、监管救济和消费者保护法》的立法。
-
-审计长是参议院确认的职位。参议院目前以 50-50 的比例分裂。民主党人可以通过副总统卡马拉·哈里斯打破平衡。任何民主党的叛变都可能注定奥马洛娃的命运。
-
-此前，拜登撤回了对内拉·坦登 (Neera Tanden) 负责白宫预算和管理办公室，和大卫奇普曼 (David Chipman) 负责酒精、烟草、枪支和爆炸物管理局的提名。
-
-**新闻来源**：[theepochtimes.com][Biden Withdraws Bank Regulator Pick After Congressional Pushback](https://www.theepochtimes.com/mkt_morningbrief/biden-withdraws-bank-regulator-pick-after-congressional-pushback_4144165.html?utm_source=Morningbrief&amp;utm_medium=email&amp;utm_campaign=mb-2021-12-08&amp;mktids=9f133939191013dda5b9efa6e91f97e2&amp;est=T63%2BJDsAB4TYFvhUZK%2BYtooaugGWKQTxoDOP9laYjzV%2Ba%2FLeKoJWIOJXUbGfa9VVPbq4Ug%3D%3D)
-
-* * *
-
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH..jpeg)
 
  
 

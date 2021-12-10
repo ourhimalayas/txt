@@ -2,36 +2,31 @@
 ---
 
 
-## 郭先生谈音乐的力量
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1734867/)
+## 美众议院一天内几乎全票通过三项中共国人权法案
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1735358/)
 
-作者：MOS 翻译组-祈望明天会更好，香草山医疗部 – 云豹
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-439.png)
-郭文贵先生在12月8日的直播中感谢了各位参与歌曲“HCoin to the moon” iTunes打榜的战友们。
+![新疆一个棉花制品厂内的情景（路透社转发2021年4月1日照片）](https://gdb.voanews.com/1A56ED50-D12D-409D-9F07-64618977B113_w1023_r1_s.jpg)*新疆一个棉花制品厂内的情景（路透社转发2021年4月1日照片）*
+据美国之音12月9日报道，美国国会众议院8日以428票对1票通过了《防止强迫维吾尔人劳动法》，除非得到美国当局的无强迫劳动认证，否则会推定凡在新疆制造的产品均使用了强迫劳动而禁止进口这些产品。众议院还以427票对1票通过了一项决议案，谴责中共国继续针对维吾尔人的种族灭绝和犯罪行为。同一天，众议院全票通过了一项决议案，认定国际奥林匹克运动会未能遵守自身对人权的承诺。国会此前已经通过了2020年维吾尔人权政策法、支持西藏人政策法和2019年香港人权与民主法。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide2-8.jpeg)
+众议院议长佩洛西今年早些时候因新疆人权问题敦促拜登政府对北京冬奥会实施外交制裁，美国总统拜登上个月与中共国领导人习近平举行视讯会晤时直接表达了对中共国在新疆、西藏、香港事务上的做法和广泛的人权问题的忧虑。
 
-郭先生提到，这首歌曲的iTunes打榜目前在新加坡、老挝、西班牙、美国等地全面开始，其中，此曲在西班牙和新西兰iTunes榜上连续霸榜五天。
+人权问题是中共跨越不了的障碍，也是人类的底线。每个人的生命都是宝贵的，应该享有基本的人权，获得基本的尊重。中共国老百姓的生命主权掌握在中共手里，中共或杀或留，老百姓没有权利把握。因此中共才会蔑视人权、践踏生命，打压少数民族，全球释放病毒，这种独裁体制是人类社会的肿瘤，应该尽早割除。
 
-郭先生强调，此次打榜中默默无闻的战友占了99%，但也是这些无处不在的战友展现出了瞬间爆发的凝聚力，再次证明了爆料革命在全世界范围内的影响力。除此之外，郭先生还鼓励战友继续打榜billboard。同时，郭先生承诺，所有歌曲打榜所得的收入将全部捐献给法治基金。
+新闻参考链接：[https://www.voachinese.com/a/house-overwhelmingly-pass-three-china-human-rights-bills-20211209/6346150.html](https://www.voachinese.com/a/house-overwhelmingly-pass-three-china-human-rights-bills-20211209/6346150.html)
 
-另外，郭先生解释道，爆料革命的歌曲打榜不仅仅在于一个娱乐性的音乐榜单，它还代表着政治影响力，是真正的政治行动。而这样的音乐在如此短的时间里给全球造成这样大的回响，说明这种音乐具有信仰、宗教以及人类更阳光的力量，这是全球任何一种音乐都不具备的特性。
+编辑：胖丁
 
-参考链接：[2021年12月08日 文贵大直播：拜登外交抵制冬奥会；盘古物业接管惊世界；中共高级特务单伟建；新中国联邦未来1-3年对准中共高层海外大行动](https://gtv.org/video/id=61b0b18fbbd75f62e532ced8)
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-总编：Ivy001
-编辑：Irene木木
-校正/发稿：谐趣园
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
