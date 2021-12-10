@@ -2,47 +2,36 @@
 ---
 
 
-## 澳、英、美、加抵制冬奥会，法国和德国表示不会加入
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1737745/)
+## 美国众院压倒性通过《防止强迫维吾尔人劳动法》
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1737771/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+作者：日本方舟农场 – Andy5
+![This image has an empty alt attribute; its file name is 1-28.png](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
+周三，美国众议院以428票赞成、1票反对，压倒性通过了《防止强迫维吾尔人劳动法》。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/5-16.jpg)
+该法案由民主党众议员吉姆·麦戈文和共和党议员克里斯·史密斯联合提出。史密斯议员表示，新疆所发生的种族灭绝，直接违反了《联合国防止及惩治灭绝种族罪公约》的第二条，习近平应该为其下达的命令负责。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/06dc-bidenolympics-master1050.jpg)
+该法案要求国土安全部拟定一项清单，列举出与中共政府合作压迫维吾尔人的实体，并禁止所有涉及强迫劳动生产的商品流入美国市场。除了这项法案，众议院在当天还高票通过了另外两项涉及新疆维吾尔人权的议案。
 
+参考链接：
 
- 
-图片来源: 纽约时报
-
-
-#### 整理报道 ：小红帽
-
-继澳大利亚、英国、美国和加拿大对北京冬奥会进行外交抵制后，中国政府宣布，美国将为其决定“付出代价”，并警告将采取反制措施，。
-
-澳大利亚坚称，决定不派官员参加冬季奥运会，原因是**澳洲在与中国重开外交渠道以谈论新疆地区的人权问题方面遇到困难。**
-
-**同时，法国和德国宣布，不会对北京冬奥会作出外交抵制。**
-
-12月9日，法国和德国举行了联合新闻发布会并表示，体育本身就是一个世界，必须保护其不受政治干扰。
-
-法国外交部长让-米歇尔·布朗克（Jean-Michel Blanquer）表示，**中国的侵犯人权行为必须受到谴责，**但法国体育部长玛拉西尼亚努（Roxana Maracineanu）仍然会出席奥运会。
-
-澳大利亚奥委会（Australian Olympic Committee）表示，抵制不会影响运动员为2月4日至20日举行的奥运会做准备，并指出“外交选择”是各国政府的事。
-
-新闻来源：
-
-1. [法国和德国宣布不会外交抵制北京冬奥会 (sbs.com.au)](https://www.sbs.com.au/chinese/mandarin/zh-hans/france-and-germany-have-declared-they-won-t-join-a-diplomatic-boycott-of-the-beijing-winter-olympics)
-2. [加拿大、英国宣布对北京冬奥会进行外交抵制 (sbs.com.au)](https://www.sbs.com.au/chinese/mandarin/zh-hans/canada-and-the-uk-join-australia-and-the-us-in-diplomatic-boycott-of-the-beijing-winter-olympics)
+- [众议院通过三项涉新疆人权议案 禁止强迫劳动产品入美国](https://www.voachinese.com/a/us-house-passes-uyghur-bills-20211208/6346179.html)
+- [美参议院一致通过《防止强迫维吾尔人劳动法》将禁止进口新疆产品](https://www.voachinese.com/a/senate-passes-bill-to-ban-all-products-from-xinjiang-20210714/5966494.html)
 
 
-***发布：小红帽***
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+总编辑：飞虹
+编辑：飞虹/雪梨
+校正/发稿：海阔天空1
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,18 +2,26 @@
 ---
 
 
-## 美国组合拳惩罚中共
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1738000/)
+## 中共逼迫跨国公司断绝与立陶宛的合作
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1738008/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-467.png)[图片来源](https://baike.sogou.com/PicBooklet.v?relateImageGroupIds=&amp;lemmaId=319512&amp;now=https%3A%2F%2Fpic.baike.soso.com%2Fugc%2Fbaikepic2%2F1942%2F20200619052150-1130741357_jpeg_550_353_24481.jpg%2F0&amp;type=1#simple_0)
-网易新闻12月9日报道，美国众议院日前以428:0全票通过了一项反共决议。其将矛头对准了国际奥委会，声称国际奥委会与中共国的合作不符合人权标准。
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-468.png)[图片来源](https://mingdemedia.org/zhengzhiyitijingjixiepozhonggongyaoqiukuaguoqiyeyulitaowanduanjuehezuo/)
+路透社12月9日报道 ，中共国已经告诉多家跨国公司断绝与立陶宛的关系，否则将面临被排除在中共国市场之外的命运，这将使企业卷入立陶宛与中共之间的争端。
 
-美国众议院近来接连通过了3项反共决议，而除上述决议外，另两项则：1，出台对中共国新疆商品的进口禁令，美国众议院先是出台决议要求禁止美军采购中共国部分商品，原因是中共国进行了强迫劳动；2，禁止美国企业进口中共国部分商品，除非该商品能够被充分证明是并非强迫劳动产生。
+驻立陶宛台湾代表处上个月挂牌运作后，中共国把其与立陶宛间的外交关系降级。立陶宛的执政联盟去年11月同意支持台湾，使立陶宛与中共国的关系陷入险境。
 
-11月24日美国务院公布将于12月召开民主峰会，将台湾列入官网，排除了中共参与，一系列行动措施明确的告诉中共国，中共属于一党专政独裁体制，排除在世界民主国家之外，美国将要惩罚围堵孤立中共。
+立陶宛与中共国的直接贸易额不大，但其出口导向经济中，有数百家公司生产家具、激光器、食品和服装等产品，供应给那些在中共国销售的跨国公司。
 
-信息来源：[428：0！美国众议院接连表决3项反华决议，对华围堵](https://3g.163.com/dy/article/GQQEGJQA05521C6G.html?spss=adap_pc)
+立陶宛外交部副部长Mantas Adomenas说：“他们(中共国)一直在向跨国公司传递信息，如果他们使用立陶宛的零部件和用品，他们将不再被允许向中共国市场销售或在中共国取得供应。”“我们已经看到一些公司取消了与立陶宛供应商的合同。”
+
+代表数千家立陶宛公司的立陶宛工业家联盟(Lithuania Confederation of Industrialists)证实，一些从立陶宛供应商购买商品的跨国公司已成为中共国的目标。
+
+“本周我们第一次看到中共国直接向一供应商施压，要求其放弃立陶宛制造的商品。”该联盟的主席Vidmantas Janulevicius对路透表示，“以前我们只是感到会有这个威胁，现在这些威胁变成了现实。”
+
+“对我们来说，最痛苦的部分是，它是一家欧洲公司，”Janulevicius在谈及这家跨国公司时说道。“许多立陶宛企业是这些公司的供应商。”
+
+消息来源：[独家：中共国施压跨国企业断绝与立陶宛的商业合作](https://cn.reuters.com/article/china-lithuania-trade-business-1209-idCNKBS2IO0JY?il=0)
 
 *校对：东京樱花团/知了知了
 发布：东京樱花团/平安卿卿*
