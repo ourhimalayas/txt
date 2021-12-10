@@ -2,27 +2,22 @@
 ---
 
 
-## 苹果公司与北京秘密签署2750亿美元投资协议
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1740818/)
+## 加拿大国际旅行防疫政策备受非议
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1740851/)
 
-本文作者：Rebecca (一切心皆不可得！)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image001-1.png)
-据路透社报道，网媒《信息》（The Information）周二（7日）独家披露，苹果公司 (AAPL.O) 首席执行官蒂姆-库克（Tim Cook），2016年5月曾与中共政府官员“秘密”签署了一份 2,750 亿美元的投资协议。以缓解可能会导致其产品与服务在中国市场受挫的威胁。
+采编/翻译：文莱
+![](https://assets.gnews.org/wp-content/uploads/2021/12/02-image-2.jpg)
+据加拿大自媒体【真北方】12月9日报道，由于特鲁多政府的“要求在‘当地国’进行‘新冠病毒’检测”的国际旅行防疫政策，而导致该国女子曲棍球国家队在南非滞留近两周后，预计将于当天返回加拿大。
 
-该份协议内容包括：
+报道称，加拿大联邦政府于11月30日规定所有旅客在入境前都必须在当地国进行有效的病毒阴性检测。自从11月26日，因“奥密克戎”疫情而取消了世界杯曲棍球比赛以来，这些年龄在18-21岁的女运动员就一直被困在南非的一所大学里。
 
-- 苹果承诺帮助中共国制造业者开发‘最先进的制造技术’并‘支持培养高素质的中共国人才’
-- 苹果承诺在其产品使用更多来自中共国供应商的组件，与中共国软件公司签署协议，与中共国大学进行技术合作，并直接投资中共国科技公司
-- 苹果承诺在中共国市场的投资将比当时的水平高出“数十亿美元“
+据悉，以上仅被加拿大政府采用的所谓“第三方”病毒检测措施，受到了世卫组织以及国内众多卫生官员的抨击。并在当地媒体和国会议员的施压之下，才迫使特鲁多当局同意让这些被困运动员安全回国。
 
+校对编辑：硫酸羟氯喹64
 
-如果双方都不反对，该份协议将自动延期至第六年，即到2022年5月。
+发稿：苦尽甜来 (文來）
 
-参考来源：[https://www.reuters.com/business/retail-consumer/apples-tim-cook-signed-275-bln-deal-with-chinese-officials-placate-china-2021-12-07/](https://www.reuters.com/business/retail-consumer/apples-tim-cook-signed-275-bln-deal-with-chinese-officials-placate-china-2021-12-07/)[链接](https://www.reuters.com/business/retail-consumer/apples-tim-cook-signed-275-bln-deal-with-chinese-officials-placate-china-2021-12-07/)
-
-审核校对：sherryok (水云间)
-
-上传排版：漂流瓶
+[原文链接](https://tnc.news/2021/12/09/federal-testing-requirement-led-to-girls-field-hockey-team-being-trapped-in-south-africa/)
 
  
 
