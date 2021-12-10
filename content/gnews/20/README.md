@@ -2,28 +2,42 @@
 ---
 
 
-## 泰德-克鲁兹怒斥疫苗强制是非法的，违宪的，是荒谬的滥用权力
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1737902/)
+## 中国政府的维族政策构成种族灭绝和危害人类罪
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1738063/)
 
-加拿大扬帆农场 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2021/12/IMG_3341.jpg)图片来源： Fox Business
-根据《福克斯商业新闻》12月9日报道，参议院周三否决了拜登对私人雇主的疫苗强制令。
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-得克萨斯州参议员和律师泰德-克鲁兹周四在接受福克斯商业频道采访时抨击拜登总统，认为拜登对私人雇主的疫苗强制是”荒谬的滥用权力”。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/276399.jpg)
 
-克鲁兹说：“需要彻底灭了这项强制令。疫苗强制是非法的，是违宪的，是一种荒谬的滥用权力。我认为拜登知道这一点，我认为白宫的律师应该告诉拜登这是非法的，会在法庭上被否决。但是他们还是做出了决定，试图执行这项强制令。假设诉讼需要时间，也许需要几个月或几年，在此期间，一大批人会屈从”。
 
-他继续说道：“昨晚的投票是一次真正重要的投票。我们就撤销拜登对私人雇主的疫苗授权进行了投票，它以两党的多数票否决了强制令。每位共和党人和两位民主党人乔-曼钦和乔恩-特斯特都投了我们的票”。
+ 
+图片来源:  www.amnesty.org/Molly Crabapple
 
-克鲁兹表示：“现在将进入众议院。南希-佩洛西将面临压力。南希不想对此进行投票，她会尽力争取不对这个进行投票。而众议院的共和党人将迫使其投票。问题是，是否会有少数众议院的民主党人有勇气站出来反对南希-佩洛西？我不知道这个问题的答案。南希将试图扼杀它，但如果他们在众议院投票，你看到少数民主党人有哪怕一点点的勇气，它就会否决，然后会交给乔-拜登。现在，考虑到他是那么极端，他可能会反对。但这是两党对非法和滥用疫苗授权的否定”。
 
-原文链接：
+#### 整理报道 ：小红帽
 
-[https://www.foxbusiness.com/politics/ted-cruz-vaccine-mandate-is-illegal-unconstitutional-and-grotesque-abuse-of-power](https://www.foxbusiness.com/politics/ted-cruz-vaccine-mandate-is-illegal-unconstitutional-and-grotesque-abuse-of-power)
+12月9日周四，由一名英国大律师设立的非官方独立机构–维吾尔族法庭（ The Uyghur Tribunal ），在评估有关中国政府涉嫌侵犯维吾尔人权利的证据后公布结论说，**中国政府犯有种族灭绝罪和危害人类罪。**
 
-* * *
+该维吾尔族法庭由律师、学者和商界人士组成。法庭希望经由公开程序获得的证据，促使国际社会采取行动，阻止对维族人民（主要是穆斯林族群）的不人道对待。
 
-发稿Spirit
+“维吾尔族法庭在调查、评估了中国西部新疆自治区针对维吾尔人的强制节育和绝育政策后得出结论：这一政策旨在减少维族人口，与习近平主席和政府最高层直接相关”，法庭庭长杰弗里·尼斯爵士（Geoffrey Nice ）通报说。
+
+维吾尔法庭确认，**在新疆发生的情况毫无疑问属于危害人类罪，其中包括酷刑和强奸，当事人被关押在巨大的拘留中心。**
+
+尼斯律师曾负责起诉前塞尔维亚总统斯洛博丹·米洛舍维奇，并与国际刑事法院合作。他指出，**习近平和其他中国高层人士要对新疆发生的事情承担责任。**
+
+**美国政府已表示，北京当局的维族政策构成种族灭绝和危害人类罪。英国、比利时、荷兰、加拿大的立法机构也有同样表态。**** **
+
+新闻来源： [维吾尔族法庭：北京犯有种族灭绝罪 | 德国之声 来自德国 介绍德国 | DW | 09.12.2021](https://www.dw.com/zh/%E7%BB%B4%E5%90%BE%E5%B0%94%E6%97%8F%E6%B3%95%E5%BA%AD%E5%8C%97%E4%BA%AC%E7%8A%AF%E6%9C%89%E7%A7%8D%E6%97%8F%E7%81%AD%E7%BB%9D%E7%BD%AA/a-60072382)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
