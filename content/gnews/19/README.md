@@ -2,42 +2,36 @@
 ---
 
 
-## 日本卫生部警告瑞辉疫苗或莫德纳疫苗会导致年轻人群患上心脏疾病
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1737353/)
+## 天空新闻主持James Morrow：中共国没有资格举办2022年冬季奥运会
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1737391/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/51346697-0-image-a-41_1638660590891-2.jpg)图片来源：https://www.infowars.com/
-日本卫生部已将心脏疾病列为注射辉瑞疫苗或莫德纳疫苗潜在的副作用
+《天空新闻台》，2021年12月05日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-458-e1639084038802.png)图片来源：天空新闻台
+**天空新闻主持人詹姆斯·莫罗（James Morrow）表示，中共国的“邪恶行为和对全世界的煤气灯效应（一种心理操纵的形式， gaslighting不仅是在撒谎或操纵，它还在说服受害人一切都​​是他们的错。受害人感到焦虑、悲伤、愤怒和困惑）”，使其不应该得到“举办奥运会”的奖励。**
 
-日本厚生劳动省称，截至11月14日，在每100万接种莫德纳新冠疫苗的男性中，其中有82名10至19岁和49名20岁左右的男性报告了心脏及其外膜的炎症。
+与此同时，美国前国务卿迈克·蓬佩奥（Mike Pompeo）呼吁抵制北京2022年冬季奥运会，并在推特上表示，国际奥委会有“责任”确保奥运会的主办方是“应得的”（即在各个方面均有资格举办奥运会）。
 
-注射了辉瑞疫苗的16名10 至 19 岁和13名20岁左右的男性中发现了心肌炎症。
+**莫罗说：“蓬佩奥是对的，中共国的恶毒行为和对世界人民的撒谎、操纵让其没有资格举办奥运会。很高兴听到澳大利亚和拜登政府至少都在考虑通过外交手段抵制明年的奥运会，以免让该政权获得它所渴望的尊重。”**
 
-卫生部在上周的会议上建议，需在新冠疫苗附带的文件上加上“严重副作用”的免责声明警告。医院也要向政府机构详细报告在注射新冠疫苗28天之内出现的炎症反应病人的事件。
+原文连接[：https://www.skynews.com.au/opinion/outsiders/china-does-not-deserve-to-be-rewarded-with-an-olympics/video/bcd75a712c319936501b2c28a2052efa](https://www.skynews.com.au/opinion/outsiders/china-does-not-deserve-to-be-rewarded-with-an-olympics/video/bcd75a712c319936501b2c28a2052efa)
 
-在有报道称260万剂莫德纳疫苗被“对磁铁有反应”的“微小金属片”污染后，日本在8月停止了这些疫苗的使用。
-
-虽然有人死于注射莫德纳疫苗，但在几天后日本又恢复了莫德纳疫苗的使用。
-
-简评：
-
-据今年1月18号报道，美国加州停用了33万剂的莫德纳疫苗，但是禁用的疫苗不会被处理掉，而是储藏起来直到公共卫生部门和莫德纳官方给出合理报告（出处：[https://khn.org/](https://khn.org/)）。在两天后，加州又恢复使用莫德纳疫苗。日本一直紧跟美国做决策，这次日本卫生部发出的疫苗副作用的警告，想必也是形势所需。据爆料革命郭文贵先生爆料，明年5月是疫苗灾难的到来，那日本卫生部的官方的警告是不是为之在做铺垫？
-
-新闻链接：
-
-[Japan Health Ministry Warns Moderna & Pfizer COVID Vaccines Causing Heart Inflammation in Young People](https://www.infowars.com/posts/japan-health-ministry-warns-moderna-pfizer-covid-vaccines-causing-heart-inflammation-in-young-people/)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+**【评论****】***2021年8月5日，新中国联邦创始人郭文贵先生致函敦促国际奥委会取消2022北京冬奥会，这是第一份以新中国联邦创始人郭文贵先生发出的官方文件。然而，对于抵制北京冬奥会的呼声，奥委会官员和商业领袖提出异议，他们说奥运会是非政治性的，运动员才是奥运会的主角。奥运会当然是政治性的，中共就是基于政治原因举办奥运会，其目的是为了获得国际合法性，其本质就是行贿、蓝金黄。面对中共如此恶劣的罪行，奥运会的组织者和官员仍然言之凿凿，为中共背书。今日的奥运会早已经没有了奥林匹克精神，本质上已经变成钱和利益的交换工具。*
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+翻译：洛杉矶盘古农场 – 比格渣餐厅老板の娘
+
+校对：洛杉矶盘古农场 – Mike Li
+
+评论：洛杉矶盘古农场 – 比格渣餐厅老板の娘
+
+编辑：洛杉矶盘古农场 –  Wendy
 
 
+![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入: (或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
