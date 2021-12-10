@@ -2,30 +2,128 @@
 ---
 
 
-## 英国儿童感染奥米克戎Omicron后出现不寻常皮疹
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1740855/)
+## MV版Hcoin To the Moon上线第1天位列29国iTunes热门MV榜首 !
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1740912/)
 
-本文作者：Rebecca (一切心皆不可得！)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image002-9.jpg)
-伦敦北部全科医生大卫-劳埃德博士说，被确诊感染新变种奥米克戎Omicron的儿童出现了皮疹，主要在幼儿中出现这种因感染新变种而引发的症状。
+12/10/2021 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线第1天位列29国iTunes热门MV榜榜首!
 
-英国星期二（当地时间）记录了437名奥米克戎Omicron患者中有101名出现了皮疹症状，占总病患的15%。
+* * *
 
-世界卫生组织（WHO）此前曾表示，目前没发现奥米克戎的症状与其他新冠病毒变体有什么不同。
+[【PDF 下载】Friday-10-Dec-2021-Songs-by-Miles-Guo-Billboard-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record.pdf)
 
-劳埃德博士说，该病毒变种引发的皮疹与其他菌株略有不同，我们注意到了这个情况。对奥米克戎变种病毒有了进一步了解。
-
-Tim Spector教授说，奥米克戎继续在英国蔓延，他怀疑在英国已经有至少1000个这种新变体的病例。
-
-南非非洲健康研究所一个实验室的研究负责人说，奥米克戎变体可以部分逃避辉瑞公司和合作伙伴BioNTech的新冠病毒疫苗的保护。
-
-[新闻来源链接](https://www.newshub.co.nz/home/world/2021/12/covid-19-unusual-rash-linked-to-children-infected-with-omicron-cases-in-uk-gp.html)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_2.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_3.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_4.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_6.jpg)
 
 
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_8-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_9-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_10-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_11-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_12-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_13-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_14-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_15-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_16-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_17.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_18.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_19.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_20.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_21.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_22.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_23.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_24.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_25.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_26.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_27.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_28.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_29.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_30.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_31.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_32.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_33.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_34.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_35.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_36.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_37.jpg)
 
-审核校对：sherryok (水云间)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_38.jpg)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_39.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_40.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_41.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_42.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_43.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_44.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_45.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_46.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_47.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_48.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_49.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_50.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_51.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_52.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_53.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_54.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_55.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_56.jpg)
 
-上传排版：漂流瓶
+![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_58-1.jpg)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_59-3.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_60.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_61.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_62.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_63.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_64.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_65.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_66.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_67.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_68.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_69.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_70.jpg)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_71.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_72.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_73.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_74.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_75.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_76.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_77.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_78.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_79.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_80.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_81.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_82.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_83.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_84.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_85.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_86.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_87.jpg)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_88.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_89.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_90.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_91.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_92.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_93.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_94.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_95.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_96.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_97.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_98.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_99.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_100.jpg)
+[【PDF 下载】Friday-10-Dec-2021-Songs-by-Miles-Guo-Billboard-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record.pdf)
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
