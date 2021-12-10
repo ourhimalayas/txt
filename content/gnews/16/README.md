@@ -2,30 +2,50 @@
 ---
 
 
-## 太盟集团董事长单建伟之子洛杉矶神秘豪宅
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1739587/)
+## 美军最高将领分析中共国扩军，称中共试图改写全球既定规则
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1739634/)
 
-采编/翻译撰稿：薇文
-![](https://assets.gnews.org/wp-content/uploads/2021/12/01-image02-1.jpg)
-[图片来源](https://www.dirt.com/gallery/moguls/finance/tracy-tutor-house-brentwood-1203303599/)
+作者：台湾宝岛农场 — 鬥陣來拼
 
-据本台记者12月8日报道，[新中国联邦]创始人郭文贵先生当天在GTV直播节目中披露，中共盗国贼王岐山的[太盟集团]董事长单建伟，是曾经得到毛泽东、周恩来亲自关照的[中共安全部]，海外“秘六局”的正部级特务。
 
-据悉，单建伟之子单博于2002年创办[戈壁创投公司]，管理约19亿美元资产。至今年11月，单博拥有价值1940万美元的公司股权。其妻杜林曾是“硅谷社区基金”的投资管理官员。
 
-报道指出，单博夫妇于2019年11月购买了位于洛杉矶 Rentwood 奢华住宅区，占地11,000平方英尺，价值约2千万美元的豪宅。同时，其购房款被指当时全部使用现金支付。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-5.jpg)
 
-但值得注意的是，由于单博当时并未出售自己的公司股权，其妻也非富豪，且他们于2016 年以1640万美元在加州圣马特奥县购置的另一豪宅也未出售，因而单博用于屡购房地产的巨额现金来源备受各界质疑。对此，[新中国联邦]已呼吁美国相关执法部门对此介入调查。
 
-校对编辑：硫酸羟氯喹64
 
-发稿：苦尽甜来 (文來）
+美军参谋首长联席会议主席密利 (Mark Milley) 在7日出席华尔街日报的「执行长理事会会议」(CEO Council Summit)时指出，习近平已表明，中共国计划在2027年达到在区域上与美国抗衡，2040年与美军平起平坐、甚至超越美军；密利还指出中共发展远洋海军、高超音速飞弹等扩军行动，目的是要「改写全球既定规则」，推翻第二次世界大战后的国家安全架构。
 
-[参考链接1](https://www.dirt.com/moguls/finance/bo-shan-house-brentwood-1203303596/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2021-12-10美军参谋长.jpg)图片来源：自由时报
 
-[参考链接2](https://www.insidermonkey.com/insider-trading/company/gobi+acquisition+corp/1854593/)
+有关中共国的问题，是密利在此次论坛中，讨论的几项国家安全议题之一，同时他也警告：「我们将迈入在战略、地缘上更为复杂的世界，包括科技正以空前飞速地进展，这也使世界更加不稳定，我们并不在意与中共国或者任何其他人竞争，但不希望陷入战争，我们将会透过威慑的手段，拥有强大实力的军队，并在必要时展现用来制止对手的意愿」。
 
-[参考链接3](https://smartadvisormatch.com/advisor-network/california/bo-shan-5321003)
+
+
+参考链接：
+
+[美軍最高將領稱中國試圖修改全球既定規則](https://www.rfi.fr/tw/%E4%B8%AD%E5%9C%8B/20211208-%E7%BE%8E%E8%BB%8D%E6%9C%80%E9%AB%98%E5%B0%87%E9%A0%98%E7%A8%B1%E4%B8%AD%E5%9C%8B%E8%A9%A6%E5%9C%96%E4%BF%AE%E6%94%B9%E5%85%A8%E7%90%83%E6%97%A2%E5%AE%9A%E8%A6%8F%E5%89%87)
+
+[美軍最高將領分析中國擴軍 密利：美國不在意競爭但要避免戰爭](https://news.ltn.com.tw/news/world/breakingnews/3762459)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-3.png)
+
+*总编：Irene木木*
+
+*编辑/校对/发稿：Petite abeille*
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-s2-1.png)
 
  
 
