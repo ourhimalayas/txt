@@ -2,12 +2,10 @@
 ---
 
 
-## 乔·艾伦：谷歌施密特等人想让你相信，我们将与AI共生
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1734906/)
+## 纳奥米博士：疫苗强制是战区伪装和极权主义恐怖
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1734983/)
 
-12/03/2021 乔·艾伦发文谈AI：埃里克·施密特、基辛格、李开复，他们想让人们相信，AI将成为精神伙伴，我们被迫与之共生。
-
-文章链接：[https://salvomag.com/post/artificial-intelligence-is-an-alien-mind-transforming-the-human-race](https://salvomag.com/post/artificial-intelligence-is-an-alien-mind-transforming-the-human-race)
+12/06/2021 纳奥米博士：疫苗强制已经来到美国，这是战区伪装和极权主义恐怖
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
