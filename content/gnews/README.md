@@ -75,29 +75,29 @@
 ### [2021年12月10日文贵先生直播大雨围城速记](/content/gnews/20/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [有声|怎样和亲朋有效讨论疫苗接种的话题](/content/gnews/21/README.md)
+### [2021年12月10日文贵先生直播小飞象大雨围城速记](/content/gnews/21/README.md)
+ ` Mr. Miles Guo's News Briefing`
+
+### [有声|怎样和亲朋有效讨论疫苗接种的话题](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [有声|美国安顾问：美国将采取行动 确保中共不会犯台](/content/gnews/22/README.md)
+### [有声|美国安顾问：美国将采取行动 确保中共不会犯台](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [【Michael.Tonny专栏】中共病毒及疫苗对越南人的残害远比越中战争严重得多](/content/gnews/23/README.md)
+### [【Michael.Tonny专栏】中共病毒及疫苗对越南人的残害远比越中战争严重得多](/content/gnews/24/README.md)
  ` 温哥华扬帆农场`
 
-### [有声|墙内3-11岁儿童半数接种新冠疫苗 “儿童白血病”搜索量激增](/content/gnews/24/README.md)
+### [有声|墙内3-11岁儿童半数接种新冠疫苗 “儿童白血病”搜索量激增](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [各种解药的功效](/content/gnews/25/README.md)
+### [各种解药的功效](/content/gnews/26/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [GTV新闻访谈简报|2021年12月10日早](/content/gnews/26/README.md)
+### [GTV新闻访谈简报|2021年12月10日早](/content/gnews/27/README.md)
  ` 纽约香草山MOS01`
 
-### [马航事件绝对是杀人灭口](/content/gnews/27/README.md)
+### [马航事件绝对是杀人灭口](/content/gnews/28/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [2021年12月10日文贵大直播要点海报（1）](/content/gnews/28/README.md)
- ` 秘密翻译组-原创组`
 
 ### [有声|GTV新闻访谈简报|2021年12月8日早](/content/gnews/29/README.md)
  ` MOSREC`
