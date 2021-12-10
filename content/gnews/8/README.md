@@ -2,36 +2,34 @@
 ---
 
 
-## 有声|美国安顾问：美国将采取行动 确保中共不会犯台
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1740258/)
+## 七哥：我绝对不哭
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1740313/)
 
-配音：香草山美食部 – 玫瑰园
+文编：Hima
+听写：叮叮
+视频：七哥
 
+来源：郭先生2021-12-08直播10：08：00 摘录
 
+一定会动你们的家人，因为他觉得你软了，你服了，你怕了，你疼了。从昨天发生，你嫂子跟我出去转转，你嫂子说，文贵你想哭你就哭一场，我陪着你哭。我说我不会哭的，共产党就希望我在直播中掉眼泪，哭一场，让我痛，让我哭，让我害怕。我绝对不痛，我绝对不哭，我要把这些全留给共产党。我要让你看看你爸你妈每天在全世界被人家用屎扣他的像，你爸你妈的名字和照片出现在全世界，每天给你送葬，我知道你习近平对他妈有多孝敬，他能给他爸建3000亩的陵园，他对齐心像佛一样供着。那你的父母像佛一样，难道郭文贵的父母就不值一分钱了吗，你还能干什么，你无非是把我爹给掐死，给毙了，我爹绝对是郭文贵的爹。这是真的是。这些人来时我父亲说我不会走的，搭都不搭理他们，我爹中风状态还这样，在外面转了几个小时，很多人要去他们家，我爹说不能去因为我哥哥家也没电了。盘古账上6亿多人民币的现金，6亿多呀！我们过去五年没有动过一分钱。盘古裕达的经营和钱完全是警察监督的，就在这几年里边现金就6个多亿啊，所有这些家人哪个家里边没有个几千万啊，是吧，所有东西全给你封掉，一夜之间你啥都没有了，不管你多少钱多少房子，警察来了，特警来了，你啥都没了，我爹就流落街头了。这就是今天发生的事情。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%96%B0-3.png)
+校对：HimaFaFA
+发布：HimaBoy
 
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
 
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-12月7日，在关于拜登与普京视频会议的白宫新闻简报会上，有记者向美国安顾问苏利文提问，如果俄罗斯侵略乌克兰，同时中共以武力侵犯台湾，美国是否做好了应对准备？苏利文回答，美国将从威慑和外交方面采取一切可以采取的行动，以确保中共犯台的局面不会发生。
+**关注我们**
 
-苏利文同时表示，上述表态既是美国目前的政策目标，也是美国正在采取的应对步骤。在过去的8个月中，美国在印太地区所做的全部努力，也是为了避免中共作出任何不适当的选择。
+Discord 账号
 
-原文链接：[美国安顾问：美国将采取行动 确保中共不会犯台](https://gnews.org/zh-hans/1734893/)
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-音频处理：喜山必胜Maverick
+Gettr 账号
 
-发稿：Daxia
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-3.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%96%B0-4.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

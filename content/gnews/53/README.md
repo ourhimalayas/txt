@@ -2,35 +2,53 @@
 ---
 
 
-## 日本计划在2022年出台“稳定币”监管法律
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1737596/)
+## 参议员玛丽亚·坎特维尔：FTC 应调查脸书的“欺骗性”广告行为
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1737672/)
 
-**撰稿：日本东京方舟农场  老孙**
+作者：Ian Miles Cheong
+翻译：KK
 
-近期，据《日经新闻》报道，日本金融服务局（FSA）计划在2022年推出法案，对银行和电汇公司等金融机构发行“稳定币”实施严格的限制。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2-26.png)
 
-据报道，日本金融服务管理局（FSA）计划在 2022 年出台相关法律，对从事“稳定币”交易的钱包提供商实施监管、要求平台必须遵守某些安全协议，包括验证用户身份、以及报告任何可疑的网络活动。
+美国最高立法者要求脸书为其“误导”广告行为负责。
 
-“稳定币”作为一种与外部资产（如法定货币、黄金或其它投资）挂钩的数字货币，必须储备足够支撑兑换的准备金。去年10月，美国Tether公司发行泰达币（USDT）就因为未能履行其承诺的1：1 的比例储备美元，收到了美国商品期货交易委员会（CFTC）4100 万美元的罚单。
+周三，参议院商务委员会主席要求监管机构调查脸书是否因其广告的影响力误导了其广告客户和公众，该公司的母公司现在是 Meta。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/consortium-of-private-firms-in-japan-to-launch-yen-based-digital-currency-730x360-1-1200x720-1.jpg)图片来自网络
+在给联邦贸易委员会的一封信中，参议院商务委员会主席、参议员玛丽亚·坎特维尔表示，“有证据表明脸书可能在其品牌安全和广告指标方面欺骗了其广告客户”，并且该公司“可能参与了欺骗行为，”路透社报道。
 
-FSA认为，将稳定币发行限制在银行和电汇公司是保护客户资产的一种方式，可降低稳定币拥有者的风险。FSA还将加强旨在防止洗钱的法规，涉及稳定币相关交易和钱包管理服务等业务。
+脸书的母公司和 FTC 尚未公开评论参议员的要求。
 
-与此同时，日本还计划在 2022 年推出一款与日元挂钩的加密货币（或被称作 DCJPY）。其有望得到银行交易支持，以加速企业之间的大量资金转移。
-此外，美国也正在推进关于稳定币的立法。12月3日，美国国会议员Rashida Tlaib、Jesús “Chuy” García和Stephen Lynch提出名为《稳定币网络共享和银行执照执行法》（STABLE）的新法案，该法案将要求稳定币发行商在发行稳定币之前必须获得银行特许执照并获得监管部门的批准。
+据路透社报道，坎特维尔在她的信中写道，“公开信息表明，脸书对品牌安全和广告指标的潜在虚假陈述可能是不公平的，而且具有欺骗性，”并补充说，“委员会和其他执法机构的彻底调查是至关重要的，不仅因为脸书及其高管可能违反了联邦法律，还因为公众和企业成员有权了解有关脸书行为的事实。”
 
-*参考链接：*
+该出版物报道说，坎特维尔引用了 2020 年参议院的一份报告，该报告 脸书控制了约 74% 的社交媒体市场。
 
-[紧随美国：日本计划在2022年出台严格的“稳定币”监管法律](https://www.cnbeta.com/articles/tech/1211747.htm)
+坎特维尔向 FTC 提出请求是在参议员理查德布卢门撒尔于 10 月发表讲话之后提出的。
 
-* * *
+布卢门撒尔表示，美国证券交易委员会和联邦贸易委员会都应调查对脸书举报人提出的指控，称该公司知道其应用程序正在损害青少年用户的心理健康。
 
-*素材采编：老孙*
+尽管对所谓举报人的证词采取的行动很少，但 FTC 已对这家社交媒体巨头提起反垄断诉讼，敦促法院要求该公司出售给其他公司。
 
-*编辑：文顺*
+脸书的母公司 Meta 还拥有 Whatsapp 和 Instagram 以及其他几家公司。FTC 对这家社交媒体公司提起的诉讼是美国政府几十年来对大型科技公司提出的最大挑战之一。
 
-*发布：Ranting*
+美国联邦贸易委员会此前曾在特朗普执政期间起诉脸书，其诉状被法院驳回。该政府机构已于 8 月提交了一份修正后的投诉，但脸书已要求法院驳回。
+
+来源：[https://www.rebelnews.com/facebooks\_deceptive\_ad\_practices\_should\_be\_investigated\_by\_ftc\_sen\_maria\_cantwell](https://www.rebelnews.com/facebooks_deceptive_ad_practices_should_be_investigated_by_ftc_sen_maria_cantwell)
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

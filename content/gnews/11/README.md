@@ -2,131 +2,30 @@
 ---
 
 
-## 各种解药的功效
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1740180/)
+## 文贵爆料 12.10：看时代更迭中的“替罪羊”，中共会是下一个
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1740287/)
 
-[https://gtv.org/video/id=61b359ce87fa7e74c92e236b](https://gtv.org/video/id=61b359ce87fa7e74c92e236b)
+撰稿：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/12/snapshot2-4.jpg)
+中共成功地以病毒、疫苗和债务对人类进行了安静的屠杀和无声的掠夺。然而，天道有轮回、苍天饶过谁 。郭文贵先生在12月10日的大直播中说，历史是一面镜子，习近平和中共将会像萨达姆、卡扎菲和齐奥塞斯库一样，成为这个时代的“替罪羊”，最终灰飞烟灭。
 
-**郭文贵
-Miles Guo**
+我告诉你会发生什么事情，世界上最终的一个结果是没有什么大用，也不存在什么科学家被侵犯。你们这太天真了。人类的历史永远是消灭掉一个替罪羊，再发展另外一个替罪羊的开始。乌干达干掉了阿明。跑去了利比亚，到了沙特终老一生。乌干达有民主吗？坦桑尼亚推翻了十几个总统，坦桑尼亚有民主吗？非洲把白人的土地都收了，都赶走了，它有民主吗？南非是吧，所谓培养了个诺贝尔获奖者曼德拉，但是非洲失去了当大国的一个最核心的地位，因为发展核武器，放弃了核武器，所谓的给了个和平的一个态度，非洲人永远不会是非洲之王啊。再看看大家想一想，萨达姆、卡扎菲被消灭以后，你觉得中东萨达姆和卡扎菲这些国家多长时间找出真相了？
 
-地塞米松一定是有症状以后吃的
-Dexamethasone must be taken after having symptoms
+所以告诉大家，人类就是这样子的，一个大灾难的到来，找出一两个替罪羊，掩盖了所有人的罪过，最后再培养下一个灾难，这就是人类的历史。你必须要看清，我们很不幸，也很幸运的，这次人类上有史以来将惩处另外一个最邪恶的共产主义，包括今天习近平为首的中南坑这帮老杂毛和病毒的制造者。最后大家一定看到结果就是共产党肯定被消灭了，它就是要把全人类所有的罪都顶起来，一定这结果，辉瑞制造药厂换个名字还叫什么制药厂，美国cdc还在。没有夫妻了，换另外一个人，看着比较顺眼的，实际上还是夫妻，这就是美国好莱坞电影让你看得有意思的地方。
 
-它是救急的药，副作用非常之大
-It is an emergency medicine, and the side effects are very large
+这当年战狼啊，这个叫什么吴京骂那些人说你们贱不贱？美国人一巴掌能拍死几千人啊，我拍个人，我就是一掌打死几个，枪准点就骂我，你们这帮贱民。吴京忘了个根本的本质，好莱坞的所有的科技和幻想，它有一个逻辑就是黑白道。星球大战有黑道、有白道，有黑武士，白武士是吧？有信仰者和没有信仰者。最后邪恶被惩罚，他没有歌颂邪恶。那么吴京拍的片是为邪恶而宣传，他完全搞错了两个概念，他就用一个极小的事实来否定那些傻人所为，这是人的本能。
 
-这几种药里边，副作用最大的就是地塞米松
-Among these drugs, dexamethasone is the one with the most side effects
+那么这次疫苗完了，你记住它，这就是为什么我们一定能干灭共产党，美国的所谓辉瑞制药也好、德国制药也好，所有的这些黑暗势力，包括意大利的、澳大利亚，都会找出几个政客来做替罪羊，然后把共和党消灭。当然习近平是第一个替罪羊，这是一点儿都不用怀疑。你想想，习近平家就他和他老婆有一中国护照，其他家族的人都在国外，习近平没了，你觉得中国人和外国人能跟他拉倒吗？就像你们没有见过萨达姆、卡扎菲，还有齐奥塞斯库的家人在西方受到什么待遇，那真叫生不如死。
 
-这里面最温性的药就是伊维菌素
-The most mild drug among these drugs is ivermectin
+这七个常委，包括王岐山、孟建柱他们的家人，现在绝对不会像他们幻想的我会没事，我会长治久安，任何情况下我都会享福。我会告诉你，他们比谁都惨，我爹和我的员工被赶到零下四度的大街上，我可以告诉你，他们的家人、他们的子女未来所受到的绝对不是被鸡奸、被轮奸、被砍头那么简单。你记住，全人类所有人都有仇恨感，就是这一次病毒和疫苗。我们不用做任何事情，只要告诉说澳大利亚墨尔本、悉尼，这是习近平的姐姐的家、安安的家、安安的女儿的家。告知徐远平的房子，告知是习永平的房子，我们告诉你这是习近平的房子，告诉外国人就够了。然后把这些消息发给那些因疫苗死亡者的家人，这些人就把他吃了。
 
-伊维菌素，他说，吃这个东西解疫苗，包括解病毒，挡病毒是最好的药
-Ivermectin, he said, is the best medicine for anti-vaccine, including anti-virus
+以后杨洁篪、王毅出来到各国开会，咱们把几个棺材都往那一停，说就是他们杀了你们这些人，你放心，咱大家在这抽烟，看这些外国人跟他们算账，就像僵尸大片一样，一群僵尸就会过去。全世界疫苗灾难和病毒灾难死亡的家属，就是我们未来最好的战友。告诉他真相，他就是杀害你家的人，你觉得这管不管用？我问你，外国死了家人的人能跟他拉倒吗？
 
-他说青蒿素是所有这几种药里边的杀手锏
-He said that artemisinin is the master medicine of all these drugs
+郭先生说，咱们的下一个战略是让全世界的人站起来，共产党的那个国歌怎么唱的？是不是全世界人们站起来是吧？我们只要做好带路人，连外国的法官、检察官都拎着家伙冲上去。
 
-但是这个青蒿素不能随便吃
-but artemisinin can’t be taken casually
+参考链接：
 
-比如青蒿素，你跟伊维菌素不要放在一起吃
-For example, you should not take artemisinin and ivermectin at same time
-
-青蒿素最好不要和羟氯喹一起吃
-The best is not to take artemisinin with hydroxychloroquine
-
-但是青蒿素有分很多种
-there are many kinds of artemisinin
-
-他说，好的青蒿素单独就可以完全灭毒灭疫苗
-He said that good artemisinin alone can completely eliminate the virus and the vaccine
-
-他说几乎是100%
-He said it works almost 100%
-
-最重要是你吃什么青蒿素
-The most important thing is what kind of artemisinin you take
-
-青蒿素最好的就是美国（产的）
-The best artemisinin is (produced) in the United States
-
-最好的就是美国的药
-The best artemisinin is made in US
-
-他说特别是癌症病人
-He said especially for cancer patients
-
-他说一定是（服用）药剂的青蒿素
-He said it must be (taken) pharmaceutical artemisinin
-
-就刚才那个针剂啊，还有高纯度的药剂的青蒿素，而不是保健品
-Just the injection medicine we just discussed, and high purity pharmaceutical artemisinin, not health care products
-
-咱战友现在买的99%都是保健品
-99% of what our comrades bought are health products
-
-保健品可以防，但真的要有着解除疫苗和解除病毒的，包括战友得了病毒有后遗症的
-Health care products can prevent virus, but really need to have the lifting of the vaccines and lifting the virus, including the sequelae of the COVID-19
-
-一定是要青蒿素的药吃
-it must be pharmaceutical artemisinin
-
-他说几乎是100%就能铲除
-He said almost 100% of the sequelae can be eradicated
-
-但是身体里不会留下来的
-The body will not leave after-effects
-
-所以兄弟姐妹们要吃对药，吃正确药
-So brothers and sisters, please take the right medicine
-
-特别像地塞米松，它是等躺到了病房里边，稳定你的血氧（用的）
-Especially like dexamethasone, which is used to stabilize your blood oxygen when you are lying in the ward
-
-然后这个彻底的，有伤害性的救你命的药，它不能天天吃，它也不能病前吃 but this is thorough, harmful life-saving medicine.
-
-它不能天天吃，它也不能病前吃
-It can not be taken every day, and it can not be taken before you have COVID-19
-
-伊维菌素和羟氯喹和锌是防病毒，解病毒的
-Ivermectin, hydroxychloroquine and zinc are antiviral
-
-青蒿素是彻底铲除疫苗残留和防止病毒和挡病毒的
-Artemisinin is a complete eradication of vaccine residues, prevent viruses and block viruses
-
-青蒿素里的保健品是防病毒
-Artemisinin’s health products are anti-viral
-
-青蒿素的药治癌症，消除疫苗毒
-Pharmaceutical artemisinin cures cancer and eliminate vaccine poison
-
-包括消除得冠状病毒后的所有身体的残毒
-Including the elimination of all the residual virus of the body after the coronavitus
-
-大家一定要把这个搞明白，谢谢
-Everyone must understand this, thank you
-
-* * *
-
-Date:11/30/2021
-原视频标题: 各种解药的功效
-The efficacy of various antidotes
-原视频日期：2021/11/26
-原视频链接[https://gettr.com/post/pi1eag4d14](https://gettr.com/post/pi1eag4d14)
-任务编号：KC321(3035)
-视频时间段 : 0:00-02:06
-中听校：洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 -Layka Mike
-翻译终校：洛杉矶盘古农场 – Freeearth
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[2021年12月10日 文贵大直播](https://gettr.com/streaming/pj3xefa5bc)[https://gettr.com/streaming/pjaq82eb67](https://gettr.com/streaming/pjaq82eb67)
 
  
 

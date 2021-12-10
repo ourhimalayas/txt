@@ -2,33 +2,32 @@
 ---
 
 
-## 有声|80名共和党人投票资助一个旨在监视美国人的联邦疫苗数据库
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1739978/)
+## 浅谈当前危机的本质及发展 ——物理推论法
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1740044/)
 
-配音：香草山教育部 – 蒙古鸿雁
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-12月2日，美国国会刚刚通过了《免疫基础设施现代化法案》（IIMA），如果该法案在参议院获得通过，将建立一个大规模的监控体系，以跟踪谁接种了疫苗，谁没有接种疫苗。而80名共和党人与民主党人一起在众议院通过了该法案。
+**作者: JuvenGuo**
+[![](https://spark.adobe.com/page/dvY3vhBcWmCMY/images/688f9c8f-d605-4d7f-8733-34b8ba7fd07a.jpg?asset_id=d0187e53-c3f2-4952-b771-a858ed24cc1b&amp;img_etag=%22396f3d2abea22e1b60db7c1d7ae2840a%22&amp;size=1024)](https://spark.adobe.com/page/dvY3vhBcWmCMY/images/688f9c8f-d605-4d7f-8733-34b8ba7fd07a.jpg?asset_id=d0187e53-c3f2-4952-b771-a858ed24cc1b&amp;img_etag=%22396f3d2abea22e1b60db7c1d7ae2840a%22&amp;size=1024)
+生活中有个很简单的常识，当风扇不转的时候，我们看不到扇叶后面的东西，当风扇转起来，转得越快，扇叶就几乎成了透明的。
 
-H.R.550号法案将为政府提供4亿美元，以资助 ”免疫系统数据现代化和扩展”，该系统被定义为 ”一个保密的、以人口为基础的计算机化数据库，记录所有医疗机构对该数据库所覆盖的地理区域内的人进行的免疫接种剂量”。该法案的文本具体概述了美国疾病控制和预防中心（CDC）将如何扩大权力，地方和州卫生部门以及私营部门的各种参与者也将扩大权力，与联邦政府分享私人健康数据。
+这种情况在温度升高过程中也会出现，比如各种金属的游离态固液气变化、化合态固液气变化，核裂变聚变等等。金属随着其温度的升高，会逐渐变得透明和发光。固液气变化的原理也是在温度升高过程中热运动越来越剧烈，而使其变得更加透明。核聚变裂变更不用说了，不但本身不透明的质量变成光和能量传递出去，还会加剧其他接收光和辐射的物质的热运动。
 
-该法案的主要发起人、民主党众议员安·卡斯特说，新系统将 ”提醒病人何时该接种推荐的疫苗”，并确定该国疫苗接种率低的地区，以 “确保疫苗的公平分配”。这项立法有四个共和党的共同提案人。众议员拉里·布森 , 詹姆斯·贝尔德, 大卫·麦金利, 还有布莱恩·菲茨帕特里克。没有民主党人投票反对该法案。
+社会发展也是同样的道理，技术的发展、通信的便捷会创造更多的财富。财富就像物质，积累的时候会越来越不透明，但是当积累到了一定的量时，温度就会升高，并向外散发光和辐射。作为财富的拥有者和支配者，要先明白这个道理，在特定的阶段或一定条件下，财富的积累会导致不透明甚至黑暗，但这些只是社会事物发展过程中一个非常短的过程。宇宙中根本不存在不发光不发热的物体，只是它正处于哪个过程或状态中罢了。
 
-共有130名共和党人投票反对该法案，其中包括众议员玛丽·米勒，她告诉布莱巴特新闻网，该法案将允许联邦政府 追踪 未接种疫苗的美国人，并强制他们遵守乔·拜登的全球疫苗接种愿景。
+CCP少数邪恶势力和家族显然没有足够的常识，靠不停地作恶积累了大量肮脏的财富，继而还妄想统治世界，最终只会让自己灭亡的更加悲惨。
+[![](https://spark.adobe.com/page/dvY3vhBcWmCMY/images/f53575e7-5f21-4f00-8c49-c1a8c136896e.jpg?asset_id=f8b0ce99-4a75-42e5-ad37-3a2da4f482e0&amp;img_etag=%223a9464715f2e3a06cfc0c96a342d8751%22&amp;size=1024)](https://spark.adobe.com/page/dvY3vhBcWmCMY/images/f53575e7-5f21-4f00-8c49-c1a8c136896e.jpg?asset_id=f8b0ce99-4a75-42e5-ad37-3a2da4f482e0&amp;img_etag=%223a9464715f2e3a06cfc0c96a342d8751%22&amp;size=1024)
+物理世界中目前公开的最小的单位是量子，量子纠缠能突破时空到达光之上的其他物质无法想象的遥远的时空，其本质就是自身携带的能量少。当人类度过本次危机，公开了更先进的理论，大家就会发现CCP是最愚蠢和无知的代表。灭共就是一个让更多的人开智的过程，无论你今天是不是共产党员，只要有机会在爆料革命这里看到了真相，推开了智慧之门，我相信每一个人都会坚定的站在正义的爆料革命和新中国联邦一边，共同铲除奴役百姓的反人类罪犯——中国共产党。
 
-文字版原文：[80名共和党人投票资助一个旨在监视美国人的联邦疫苗数据库](https://gnews.org/zh-hans/1733695/)
+*编辑：【英国伦敦喜庄园编辑部】*
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
+*校对: 仙女儿-文善 | 审核：文明明 | Page: Daoiii*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88-1.png)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[![](https://spark.adobe.com/page/dvY3vhBcWmCMY/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/dvY3vhBcWmCMY/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,104 +2,131 @@
 ---
 
 
-## 文·贵天成——文贵先生谈“疫苗”（四十二）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1740093/)
+## 各种解药的功效
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1740180/)
 
-整理：BENJ1
-编辑：李易通
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2021.12.4-文·贵天成——郭文贵先生谈疫苗（二十八）28-图片-3.png)图片来源：墨尔本雅典娜农场设计组（姐夫说说）
-郭文贵先生**2021**年**8**月**25**日直播
+[https://gtv.org/video/id=61b359ce87fa7e74c92e236b](https://gtv.org/video/id=61b359ce87fa7e74c92e236b)
 
-大牛:关于疫苗政治，因为台湾最近有自己研发的高端疫苗，刚刚我们在盖特账号@MilesGuoLive留言，他说这个高端疫苗的合作厂商是在美国上市的一家公司，然后说这两家公司恰好也都是中国科兴集团合作开发疫苗的公司。最近刚好在施打，第二天、第三天已经有四个人死亡了，不知道这个高端疫苗对于台湾会不会有一些影响？
+**郭文贵
+Miles Guo**
 
-郭文贵先生:所谓的高端疫苗，记住全世界的疫苗基本上都是一样的，不管他起什么名。氧化石墨乙烯、肌肽素这些东西，都是一样的。高端疫苗就是加大了剂量，它无非是换了个说法，本质都是一样的。为什么我说台湾政府是很糟糕的，它现在这个时候还搞疫苗经济。台湾应该考虑的是疫苗安全，不应该搞疫苗经济，但它现在把疫苗经济放在前面，然后是搞政治疫苗。
+地塞米松一定是有症状以后吃的
+Dexamethasone must be taken after having symptoms
 
-台湾觉得别的国家都搞，如果我不搞不行，所以它也搞政治疫苗，但你台湾搞疫苗经济和政治疫苗，那台湾人就会死。只有考虑疫苗安全的领导人才会是永恒的，才是人民的福祉。你想想，如果巴黎打了疫苗以后结局是什么？生出的孩子一定是带这个基因的，即使再过50年，你俩生的孩子也是这样。即使你在精子库冰冻精子，无论过了多少年都是这样，这是很恐怖的。
+它是救急的药，副作用非常之大
+It is an emergency medicine, and the side effects are very large
 
-所以疫苗安全是台湾和任何一个国家民族的福祉。你搞疫苗经济和政治疫苗都是要死人的，都是绝后的。然后这个国家民族可能是灭绝式的，所以强迫接种疫苗真是混蛋至极的事。
+这几种药里边，副作用最大的就是地塞米松
+Among these drugs, dexamethasone is the one with the most side effects
 
-好，咱们今天的直播怎么样了？可以，还没有大家要问的了吧？
+这里面最温性的药就是伊维菌素
+The most mild drug among these drugs is ivermectin
 
-天机:娜娜酱，你是不是在盖特留言有一个问题想问？
+伊维菌素，他说，吃这个东西解疫苗，包括解病毒，挡病毒是最好的药
+Ivermectin, he said, is the best medicine for anti-vaccine, including anti-virus
 
-娜娜酱:好，那我念一下，但我觉得好像这个问题郭先生回答过。但我讲一下，第一个就是说：“七哥您好，您昨天直播说不要被感染病毒是2025年前唯一要做的事，又说任何打了疫苗的染上病毒的对周围人都是灾难，随着病毒的肆虐，也许还会有战友中招，那么应如何规范和已经感染病毒痊愈后的人正确接触避免病毒感染呢？就是说没打疫苗但是感染了病毒已经愈合了，以后要怎么跟这些人正确接触？”
+他说青蒿素是所有这几种药里边的杀手锏
+He said that artemisinin is the master medicine of all these drugs
 
-郭文贵先生:对于这个事儿，我也问了很多这方面的专家，包括我们的欧洲的科学家。真的是我们觉得没有太好的办法，最可怕的事情就是什么呢？家里边儿的人打疫苗的，就他打了疫苗，他容易有两个核心的误区，一个是他以为我打了疫苗我就不会被传染了，然后出去就不防护了，这是非常危险的。
+但是这个青蒿素不能随便吃
+but artemisinin can’t be taken casually
 
-还有一个，打了疫苗的人，他很大的可能是无症状的带菌者，这个时候对家人和朋友的伤害是最严重的。如果说目前你没被感染，你也不去做这种无知的事，故意去找传染去，比如不戴口罩、不防护、无知的认识，那么你对家人是没有威胁的。
+比如青蒿素，你跟伊维菌素不要放在一起吃
+For example, you should not take artemisinin and ivermectin at same time
 
-但是如果你打完疫苗以后到处活动，然后回来是无症状带菌者，而且是超级传播者，那么最先杀掉的就是你的亲人和家人。所以说这是一个我们大家最关心的问题。
+青蒿素最好不要和羟氯喹一起吃
+The best is not to take artemisinin with hydroxychloroquine
 
-另外一个，就是所有打了疫苗的人，还有一个核心的问题。这是人与人之间的本性，打了疫苗以后他就认为不打疫苗的人有病，这个时候他染上病了，他反而认为是不打疫苗的人把病毒传染给他。如果检查有前有后的话，没打疫苗的人先检查，结果是这个打了疫苗的人就把你传染了，这是很可悲的事情，你们想过没有。
+但是青蒿素有分很多种
+there are many kinds of artemisinin
 
-这一点是肯定的，只要是打疫苗的和不打疫苗的人住在一起，不打疫苗的还吃羟氯喹，你不用想一定是这个打疫苗的人感染病毒。
+他说，好的青蒿素单独就可以完全灭毒灭疫苗
+He said that good artemisinin alone can completely eliminate the virus and the vaccine
 
-当然了，你像Angela也是那种没被传染上的，是她的小儿子把她的老公和俩孩子都传染上了。所以说跟自己人相处，大家一定要有心理准备，很有可能是打了疫苗的人把疾病传染给你，但他还自己没事。还有一个，一旦你被传染了，他认为是你传染了他，这是一个伦理和逻辑上的谬误，大家一定要有所准备。
+他说几乎是100%
+He said it works almost 100%
 
-但是怎么防？大家记住，现在最好的防范就是羟氯喹加锌，有事儿你就吃土霉素、伊维菌素，关键是打了疫苗的人更应该吃，既能把他疫苗的副作用排除，也能避免传染，关键他未必听你的吃这些药物。这个世界让谁亡是天定的，不是每个人都觉得地狱是很恐惧的。
+最重要是你吃什么青蒿素
+The most important thing is what kind of artemisinin you take
 
-娜娜酱:还有就是想问七哥，拜登政府90天病毒报告被弱化后，习近平会不会又发大头症，为了在六中全会上拿到绝对的发言权，在十月底前打台湾？谢谢。
+青蒿素最好的就是美国（产的）
+The best artemisinin is (produced) in the United States
 
-郭文贵先生:不管有没有这个报告，他都会做的，打台湾的概率几乎是95%。
+最好的就是美国的药
+The best artemisinin is made in US
 
-娜娜酱:十月底前吗？
+他说特别是癌症病人
+He said especially for cancer patients
 
-郭文贵先生:我觉得今年年底前是很有可能的，明年五月份之前是最后的时间，因为两会之前干台湾的可能性很大。
+他说一定是（服用）药剂的青蒿素
+He said it must be (taken) pharmaceutical artemisinin
 
-还有一个就是美国的经济，随着现在你看到的全球的政治经济、政治疫苗和经济疫苗灾难，这个发生以后会给共产党提供各种打台湾的理由，台湾绝对是很危险的。
+就刚才那个针剂啊，还有高纯度的药剂的青蒿素，而不是保健品
+Just the injection medicine we just discussed, and high purity pharmaceutical artemisinin, not health care products
 
-另外一个，大家问打了疫苗以后还要不要吃羟氯喹加锌？更要吃，我再重申，吃了只对你有好处没坏处，而且很大可能会把你打了疫苗以后的坏处大大降低，彻底铲除是不可能的，只能是大大降低。
+咱战友现在买的99%都是保健品
+99% of what our comrades bought are health products
 
-发布：去中心化Math
+保健品可以防，但真的要有着解除疫苗和解除病毒的，包括战友得了病毒有后遗症的
+Health care products can prevent virus, but really need to have the lifting of the vaccines and lifting the virus, including the sequelae of the COVID-19
 
-**往期回顾：**
-[文·贵天成——文贵先生谈“疫苗”（一）](https://gnews.org/zh-hans/1645800/)
-[文·贵天成——文贵先生谈“疫苗”（二）](https://gnews.org/zh-hans/1645804/)
-[文·贵天成——文贵先生谈“疫苗”（三）](https://gnews.org/zh-hans/1668258/)
-[文·贵天成——文贵先生谈“疫苗”（四）](https://gnews.org/zh-hans/1668474/)
-[文·贵天成——文贵先生谈“疫苗”（五）](https://gnews.org/zh-hans/1668591/)
-[文·贵天成——文贵先生谈“疫苗”（六）](https://gnews.org/zh-hans/1670496/)
-[文·贵天成——文贵先生谈“疫苗”（七）](https://gnews.org/zh-hans/1670125/)
-[文·贵天成——文贵先生谈“疫苗”（八）](https://gnews.org/zh-hans/1684720/)
-[文·贵天成——文贵先生谈“疫苗”（九）](https://gnews.org/zh-hans/1684707/)
-[文·贵天成——文贵先生谈“疫苗”（十）](https://gnews.org/zh-hans/1704875/)
-[文·贵天成——文贵先生谈“疫苗”（十一）](https://gnews.org/zh-hans/1689446/)
-[文·贵天成——文贵先生谈“疫苗”（十二）](https://gnews.org/zh-hans/1689743/)
-[文·贵天成——文贵先生谈“疫苗”（十三）](https://gnews.org/zh-hans/1694796/)
-[文·贵天成——文贵先生谈“疫苗”（十四）](https://gnews.org/zh-hans/1695670/)
-[文·贵天成——文贵先生谈“疫苗”（十五）](https://gnews.org/zh-hans/1695638/)
-[文·贵天成——文贵先生谈“疫苗”（十六）](https://gnews.org/zh-hans/1695695/)
-[文·贵天成——文贵先生谈“疫苗”（十七）](https://gnews.org/zh-hans/1739501/)
-[文·贵天成——文贵先生谈“疫苗”（十八）](https://gnews.org/zh-hans/1739501/)
-[文·贵天成——文贵先生谈“疫苗”（十九）](https://gnews.org/zh-hans/1739501/)
-[文·贵天成——文贵先生谈“疫苗”（二十）](https://gnews.org/zh-hans/1703796/)
-[文·贵天成——文贵先生谈“疫苗”（二十一）](https://gnews.org/wp-admin/post.php?post=1703749&amp;action=edit&amp;lang=zh-hans)
-[文·贵天成——文贵先生谈“疫苗”（二十二）](https://gnews.org/wp-admin/post.php?post=1703970&amp;action=edit&amp;lang=zh-hans)
-[文·贵天成——文贵先生谈“疫苗”（二十三）](https://gnews.org/wp-admin/post.php?post=1703992&amp;action=edit&amp;lang=zh-hans)
-[文·贵天成——文贵先生谈“疫苗”（二十四）](https://gnews.org/zh-hans/1704142/)
-[文·贵天成——文贵先生谈“疫苗”（二十五）](https://gnews.org/zh-hans/1710182/)
-[文·贵天成——文贵先生谈“疫苗”（二十六）](https://gnews.org/zh-hans/1710207/)
-[文·贵天成——文贵先生谈“疫苗”（二十七）](https://gnews.org/zh-hans/1710218/)
-[文·贵天成——文贵先生谈“疫苗”（二十八）](https://gnews.org/zh-hans/1719792/)
-[文·贵天成——文贵先生谈“疫苗”（二十九）](https://gnews.org/zh-hans/1719861/)
-[文·贵天成——文贵先生谈“疫苗”（三十）](https://gnews.org/zh-hans/1728380/)
-[文·贵天成——文贵先生谈“疫苗”（三十一）](https://gnews.org/zh-hans/1728390/)
-[文·贵天成——文贵先生谈“疫苗”（三十二）](https://gnews.org/zh-hans/1728442/)
-[文·贵天成——文贵先生谈“疫苗”（三十三）](https://gnews.org/zh-hans/1728442/)
-[文·贵天成——文贵先生谈“疫苗”（三十四）](https://gnews.org/zh-hans/1728442/https:/gnews.org/zh-hans/1731671/)
-[文·贵天成——文贵先生谈“疫苗”（三十五）](https://gnews.org/zh-hans/1731651/)
-[文·贵天成——文贵先生谈“疫苗”（三十六）](https://gnews.org/zh-hans/1732165/)
-[文·贵天成——文贵先生谈“疫苗”（三十七）](https://gnews.org/zh-hans/1735148/)
-[文·贵天成——文贵先生谈“疫苗”（三十八）](https://gnews.org/zh-hans/1735212/)
-[文·贵天成——文贵先生谈“疫苗”（三十九）](https://gnews.org/zh-hans/1735235/)
-[文·贵天成——文贵先生谈“疫苗”（四十）](https://gnews.org/zh-hans/1739501/)
-[文·贵天成——文贵先生谈“疫苗”（四十一）](https://gnews.org/zh-hans/1740057/)
+一定是要青蒿素的药吃
+it must be pharmaceutical artemisinin
 
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+他说几乎是100%就能铲除
+He said almost 100% of the sequelae can be eradicated
+
+但是身体里不会留下来的
+The body will not leave after-effects
+
+所以兄弟姐妹们要吃对药，吃正确药
+So brothers and sisters, please take the right medicine
+
+特别像地塞米松，它是等躺到了病房里边，稳定你的血氧（用的）
+Especially like dexamethasone, which is used to stabilize your blood oxygen when you are lying in the ward
+
+然后这个彻底的，有伤害性的救你命的药，它不能天天吃，它也不能病前吃 but this is thorough, harmful life-saving medicine.
+
+它不能天天吃，它也不能病前吃
+It can not be taken every day, and it can not be taken before you have COVID-19
+
+伊维菌素和羟氯喹和锌是防病毒，解病毒的
+Ivermectin, hydroxychloroquine and zinc are antiviral
+
+青蒿素是彻底铲除疫苗残留和防止病毒和挡病毒的
+Artemisinin is a complete eradication of vaccine residues, prevent viruses and block viruses
+
+青蒿素里的保健品是防病毒
+Artemisinin’s health products are anti-viral
+
+青蒿素的药治癌症，消除疫苗毒
+Pharmaceutical artemisinin cures cancer and eliminate vaccine poison
+
+包括消除得冠状病毒后的所有身体的残毒
+Including the elimination of all the residual virus of the body after the coronavitus
+
+大家一定要把这个搞明白，谢谢
+Everyone must understand this, thank you
+
+* * *
+
+Date:11/30/2021
+原视频标题: 各种解药的功效
+The efficacy of various antidotes
+原视频日期：2021/11/26
+原视频链接[https://gettr.com/post/pi1eag4d14](https://gettr.com/post/pi1eag4d14)
+任务编号：KC321(3035)
+视频时间段 : 0:00-02:06
+中听校：洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 -Layka Mike
+翻译终校：洛杉矶盘古农场 – Freeearth
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -2,91 +2,23 @@
 ---
 
 
-## 文·贵天成——文贵先生谈“疫苗”（四十一）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1740057/)
+## 2021年12月10日文贵大直播要点海报（1）
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1740118/)
 
-**整理：**BENJ1
-**编辑：**隔壁老章
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2021.12.4-文·贵天成——郭文贵先生谈疫苗（二十八）28-图片-3.png)图片来源：墨尔本雅典娜农场设计组（姐夫说说）
-**郭文贵先生2021****年8****月25****日直播**
+[#milesguobroadcast](https://gettr.com/hashtag/%23milesguobroadcast) [#文贵大直播](https://gettr.com/hashtag/%23%E6%96%87%E8%B4%B5%E5%A4%A7%E7%9B%B4%E6%92%AD)
 
-中国的残疾人，大家上网搜搜，比例很夸张，尤其是中老年残疾人，共产党认为他们没用了，觉得这些人是累赘，而且还啰嗦，麻烦不断。
+2021年12月10日文贵大直播： 共产党的狂妄，认为冬奥会，打台湾，就是全世界政治实力的重新划分。 只要冬奥会开成功，共产党就会告诉世界，病毒不是我放的。万邦来朝，让病毒真相模糊化，去中化；数字人民币国际化。这是中共的狼子野心 。 The communist arrogance, the belief that the Winter Olympics, the fight against Taiwan , is a redistribution of political power around the world. As long as the Winter Olympics will be a success, the Communist Party will tell the world that the virus was not released by me. Wanbang came to the dynasty, let the virus truth blurred, de-China; digital yuan internationalization. This is the wolf’s ambition of the Chinese Communist Party .
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1210-03.png)
+2021年12月10日文贵大直播： 共产党对他们自己家人的保护是真的，春节对共产党的行动，会是最刺激的行动，可以看到无法想象的无数个共产党官员低级，会震撼世界。 The Communist Party’s protection of their own families is real, and a Spring Festival action against the Communist Party would be the most exciting action to see the unimaginable number of low-level Communist Party officials that would rock the world.
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1210-02.png)
+俄罗斯撇清与中共的关系，对乌克兰的行动与中共对台湾的行动无关。所有南海，台湾的任何行动，完全是俄罗斯自身利益的考量。明确美国如果对中共动手，俄罗斯不参与。 Russia has set aside its relations with the Chinese Communist Party, and its actions against Ukraine have nothing to do with the actions of the Chinese Communist Party against Taiwan. All the South China Sea, any action by Taiwan, is entirely a consideration of Russia’s own interests. It is clear that if the United States takes action against the Chinese Communist Party, Russia will not participate.
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1210-01.png)
+海报校对发布：千年等一回
+文本来源：20minfocus
+视频链接：[2021年12月10月文贵大直播](https://gtv.org/broadcast/watch/61b350ad56f4921401b40ccb)
+(海报文本摘自网络，如有出入以文贵大直播视频为准）
 
-这是他们很早就商量好的，怎么把国内这些他们眼里的废物消灭掉，不再浪费资源，不再成为他们的不稳定因素，说过这种话的不是一个两个人。曾经的某政法委书记（不是孟建柱），（他和我）一起吃饭时说，看文贵这小伙子，如果个儿再高上三寸就完美了，文贵真了不得，如果文贵没结婚，我闺女必须跟你结婚，你的基因好。
 
-他这样说没有任何不好意思。他接着说，（如果）中国人都像文贵这样，这个国家就真的是赶英超美了，你喝一斤酒啥事儿没有，因为你的基因好，咋看你咋喜欢。中国麻烦的是现在残疾人（废物）太多，怎么消灭掉是个大问题。用部队也杀不完，即使杀完还得需要清理，哪有那么多资源处理他们。
-
-他认为自己是最优秀的，他女儿也是最优秀的，郭文贵也是最优秀的，（只有这些人才相配）。曾经有政治局委员两口子跟我说，你跟我闺女生个孩子行吗，啥也不要你的，就因为你这个基因好，否则就浪费了。他们就这么想和做的。
-
-普通人会把共产党想象的很正常，实际上爬到共产党厅局级干部的人都不正常。他们把老百姓都当成猪狗，可以任意宰杀，这么说一点儿不夸张。马云已经很牛了，他和共产党在一起的时候，只要有一个科长在，(马云)绝对只能坐边上，税务局的税管科长如果在，一定坐上座，他觉得马云没啥了不起，只不过是有点钱，长得跟外星人似的，说句不好听话，在他们眼里就是残疾人。
-
-马化腾（和马云相比）长得还不错，一次马化腾在饭店吃饭，柳传志来了，他赶快给柳传志让位，旁边的证监委员会几个处长，轰狗一样让他一边去。共产党的骨子里边儿，都透着种族歧视。
-
-共产党对云南的彝族藏族这些少数民族都歧视，对新疆人的歧视就更不用说了。台湾也属于少数民族。他们就说，台湾那么个破地方，一个小岛，比我们低多少级，属于少数民族少数派。你有选票，我们也有选票。至于大陆哪些人有资格有选票，他们说了算，没有比共产党更加种族歧视的，没有比共产党更分阶级的。
-
-连非洲都看不到的奴性，都能体现在共产党的骨子里、血液里。只要他站着，别人就应该是跪着的奴才，比他低的都是奴才，他们的逻辑就是，要么我跪着你站着，要么你跪着我站着，没有任何其他角度，因此所有他能俯视的人，在他们眼里全是奴才。他到美国来，当美国人客气地和他握手时，他就觉得美国人是奴才，共产党就是这么变态。
-
-所以在如何看待共产党这个问题上，我们通过他们干什么就清楚。就拿打疫苗来说，它早就把人分出成三六九等，他们认为低端人口就该死，就该灭，谁生谁死他们说了算，这点在他们看来再正常不过了。他们在全世界范围投毒，看到印度大量死人时，心里念诵，烧吧、死吧，多烧点、多死点；看日本死人，心里念诵，小日本儿鬼子死越多越好，精英全死才好；病毒到了台湾，心里念诵，专门让民进党死，把台湾男女当兵的全毒死了才好，他们就这么变态。
-
-看见美国兵打疫苗，共产党绝对比庆祝911开Party开的还多，不信就走着瞧。大家会看到，整个中共比2008年奥运获选还狂欢，因为他们自己打的疫苗跟美国不一样。
-
-大牛:七哥，我有个问题：有传闻同样是辉瑞疫苗，但瓶盖可能不一样，比如红色的优先给年长者打，它的病变的机会比较大，有可能吗?
-
-郭文贵先生: 我觉得这是胡说八道，不可能，辉瑞不会这么干，也干不成，我不相信。辉瑞的人基本上都认为疫苗是救人的，他们自己也都打打了。我曾经联系过起码上百的辉瑞的员工，他们深信疫苗是救人的，他们自己都打，也主动给家人打，包括孩子，还觉得自己占了便宜，绝大多数人都打了两针。我昨天晚上联系了一个辉瑞公司的人，他不看我们爆料革命，是个搞科研的书呆子。他提到现在世界上很多反疫苗的人都是神经病，我说你知道现在我是反疫苗的，他说你反疫苗很正常。我问他，你知道我是怎么看疫苗的，随后就把秘密翻译组的资料发给他，他觉得很惊讶，问为什么这么说。我告诉他，你不觉得疫苗就是这样吗，里边有没有石墨乙烯？他承认有。
-
-今天谈的话题我未来还要谈。两年后世界什么最贵——健康的精子和卵子，你们结合疫苗就明白了。另外，两年后的世界的经济一定是数字经济，数字经济中这种做试管婴儿的医疗股票一定大赚。
-
-未来人们最想要的东西就是健康的精子和卵子，特别是在中国六比四的男女比例，再加上老龄化、疫苗病毒，稀有的自然是最值钱的。到那时想找个健康的精子和卵子，即使是敌人的，急需的时候也只能要。
-
-*发布：*去中心化Math
-
-**往期回顾：**
-[文·贵天成——文贵先生谈“疫苗”（一）](https://gnews.org/zh-hans/1645800/)
-[文·贵天成——文贵先生谈“疫苗”（二）](https://gnews.org/zh-hans/1645804/)
-[文·贵天成——文贵先生谈“疫苗”（三）](https://gnews.org/zh-hans/1668258/)
-[文·贵天成——文贵先生谈“疫苗”（四）](https://gnews.org/zh-hans/1668474/)
-[文·贵天成——文贵先生谈“疫苗”（五）](https://gnews.org/zh-hans/1668591/)
-[文·贵天成——文贵先生谈“疫苗”（六）](https://gnews.org/zh-hans/1670496/)
-[文·贵天成——文贵先生谈“疫苗”（七）](https://gnews.org/zh-hans/1670125/)
-[文·贵天成——文贵先生谈“疫苗”（八）](https://gnews.org/zh-hans/1684720/)
-[文·贵天成——文贵先生谈“疫苗”（九）](https://gnews.org/zh-hans/1684707/)
-[文·贵天成——文贵先生谈“疫苗”（十）](https://gnews.org/zh-hans/1704875/)
-[文·贵天成——文贵先生谈“疫苗”（十一）](https://gnews.org/zh-hans/1689446/)
-[文·贵天成——文贵先生谈“疫苗”（十二）](https://gnews.org/zh-hans/1689743/)
-[文·贵天成——文贵先生谈“疫苗”（十三）](https://gnews.org/zh-hans/1694796/)
-[文·贵天成——文贵先生谈“疫苗”（十四）](https://gnews.org/zh-hans/1695670/)
-[文·贵天成——文贵先生谈“疫苗”（十五）](https://gnews.org/zh-hans/1695638/)
-[文·贵天成——文贵先生谈“疫苗”（十六）](https://gnews.org/zh-hans/1695695/)
-[文·贵天成——文贵先生谈“疫苗”（十七）](https://gnews.org/zh-hans/1739501/)
-[文·贵天成——文贵先生谈“疫苗”（十八）](https://gnews.org/zh-hans/1739501/)
-[文·贵天成——文贵先生谈“疫苗”（十九）](https://gnews.org/zh-hans/1739501/)
-[文·贵天成——文贵先生谈“疫苗”（二十）](https://gnews.org/zh-hans/1703796/)
-[文·贵天成——文贵先生谈“疫苗”（二十一）](https://gnews.org/wp-admin/post.php?post=1703749&amp;action=edit&amp;lang=zh-hans)
-[文·贵天成——文贵先生谈“疫苗”（二十二）](https://gnews.org/wp-admin/post.php?post=1703970&amp;action=edit&amp;lang=zh-hans)
-[文·贵天成——文贵先生谈“疫苗”（二十三）](https://gnews.org/wp-admin/post.php?post=1703992&amp;action=edit&amp;lang=zh-hans)
-[文·贵天成——文贵先生谈“疫苗”（二十四）](https://gnews.org/zh-hans/1704142/)
-[文·贵天成——文贵先生谈“疫苗”（二十五）](https://gnews.org/zh-hans/1710182/)
-[文·贵天成——文贵先生谈“疫苗”（二十六）](https://gnews.org/zh-hans/1710207/)
-[文·贵天成——文贵先生谈“疫苗”（二十七）](https://gnews.org/zh-hans/1710218/)
-[文·贵天成——文贵先生谈“疫苗”（二十八）](https://gnews.org/zh-hans/1719792/)
-[文·贵天成——文贵先生谈“疫苗”（二十九）](https://gnews.org/zh-hans/1719861/)
-[文·贵天成——文贵先生谈“疫苗”（三十）](https://gnews.org/zh-hans/1728380/)
-[文·贵天成——文贵先生谈“疫苗”（三十一）](https://gnews.org/zh-hans/1728390/)
-[文·贵天成——文贵先生谈“疫苗”（三十二）](https://gnews.org/zh-hans/1728442/)
-[文·贵天成——文贵先生谈“疫苗”（三十三）](https://gnews.org/zh-hans/1728442/)
-[文·贵天成——文贵先生谈“疫苗”（三十四）](https://gnews.org/zh-hans/1728442/https:/gnews.org/zh-hans/1731671/)
-[文·贵天成——文贵先生谈“疫苗”（三十五）](https://gnews.org/zh-hans/1731651/)
-[文·贵天成——文贵先生谈“疫苗”（三十六）](https://gnews.org/zh-hans/1732165/)
-[文·贵天成——文贵先生谈“疫苗”（三十七）](https://gnews.org/zh-hans/1735148/)
-[文·贵天成——文贵先生谈“疫苗”（三十八）](https://gnews.org/zh-hans/1735212/)
-[文·贵天成——文贵先生谈“疫苗”（三十九）](https://gnews.org/zh-hans/1735235/)
-[文·贵天成——文贵先生谈“疫苗”（四十）](https://gnews.org/zh-hans/1739501/)
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
