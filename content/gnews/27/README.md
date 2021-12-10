@@ -2,28 +2,30 @@
 ---
 
 
-## 纳瓦罗称，中共病毒是珍珠港式的袭击
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1737852/)
+## 美参议院投票否决拜登政府的疫苗强制授权
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1737854/)
 
-作者：日本方舟农场 – Andy5
+作者：银河勇气星 – 骄子
 ![This image has an empty alt attribute; its file name is 1-28.png](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
-12月7日，纳瓦罗先生在班农战斗室珍珠港纪念日的特别节目中表示，中共释放病毒，是中共向世界发动的珍珠港式的袭击。
+12月8日，美国参议院以52比48，否决了拜登政府针对大企业的疫苗强制令。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/9-9-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/6-15.jpg)
 
-纳瓦罗先生说，在武汉已经爆发病毒的情况下，中共隐瞒疫情，于2020年1月15日来到美国，和美国签署了所谓的“中美第一阶段贸易协议”。这与二战时期，日本派遣使者到美国，和时任国务卿赫尔谈和平协定，并在次日发动珍珠港袭击的行径 如出一辙。
+按照职业安全和健康管理局（OSAH）发布的规定，对人数不少于100人的企业，雇主需要在2022年1月4日前，要求其员工接种疫苗，或定期接受检测。
 
-纳瓦罗先生表示，在珍珠港纪念日，美国人民必须清醒地意识到，中共病毒在美国本土所造成的死亡人数，已经超过美国历史上所有参与战争死亡的人数。这次中共病毒的袭击，是美国人经历的又一次珍珠港袭击。
+印第安纳州参议员迈克·布劳恩称，这是政府的强硬手段，是过度干预。很多共和党人也认为，拜登政府的疫苗强制令，严重侵犯了美国公民的自由。
+
+据11月底公布的民意调查显示，高达86%的美国就业人员反对，业主解雇拒绝接种疫苗的员工。
 
 参考链接：
 
-- [20211207納瓦羅先生參加戰鬥室節目紀念珍珠港](https://www.gettr.com/post/pj6otfe63b)
+- [Senate votes to nix Biden’s vaccine mandate for businesses](https://thehill.com/homenews/senate/585005-senate-votes-to-nix-bidens-vaccine-mandate-for-businesses)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
 
 总编辑：飞虹
-编辑：飞虹/雪梨
+编辑：Lakeman文仁/雪梨
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
