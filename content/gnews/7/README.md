@@ -2,30 +2,31 @@
 ---
 
 
-## 中共逼迫跨国公司断绝与立陶宛的合作
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1738008/)
+## 金地集团拟发行15亿元中期票据用于还贷
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1738047/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-468.png)[图片来源](https://mingdemedia.org/zhengzhiyitijingjixiepozhonggongyaoqiukuaguoqiyeyulitaowanduanjuehezuo/)
-路透社12月9日报道 ，中共国已经告诉多家跨国公司断绝与立陶宛的关系，否则将面临被排除在中共国市场之外的命运，这将使企业卷入立陶宛与中共之间的争端。
+![金地集团图片](http://y.qichejiashi.com/tupian/upload/221438700.jpg)资料照
+据中国网财经12月9日报道，金地集团拟发行2021年第七期中期票据约为15亿元，所募资金将全部用于偿还银行贷款。
 
-驻立陶宛台湾代表处上个月挂牌运作后，中共国把其与立陶宛间的外交关系降级。立陶宛的执政联盟去年11月同意支持台湾，使立陶宛与中共国的关系陷入险境。
+金地集团待偿还债务融资折合人民币537.9亿元，具体为：境内债券本金人民币240.36亿元；境外美元债券本金合计9.3亿美元；中期票据、超短融和证监会ABS分别为人民币205亿元、8亿元和24.09亿元。
 
-立陶宛与中共国的直接贸易额不大，但其出口导向经济中，有数百家公司生产家具、激光器、食品和服装等产品，供应给那些在中共国销售的跨国公司。
+中共的经济已到崩溃的边缘，只是强撑着不倒。无论是银行贷款，还是债务、票据等，企业已经无力偿还，只是换个名字，玩一玩左手倒右手的把戏，最后一次骗一骗不明真相的百姓，逃不过破产的结局。
 
-立陶宛外交部副部长Mantas Adomenas说：“他们(中共国)一直在向跨国公司传递信息，如果他们使用立陶宛的零部件和用品，他们将不再被允许向中共国市场销售或在中共国取得供应。”“我们已经看到一些公司取消了与立陶宛供应商的合同。”
+新闻参考链接：[https://c.m.163.com/news/a/GQPO3P9U0519A8ON.html?spss=newsapp](https://c.m.163.com/news/a/GQPO3P9U0519A8ON.html?spss=newsapp)
 
-代表数千家立陶宛公司的立陶宛工业家联盟(Lithuania Confederation of Industrialists)证实，一些从立陶宛供应商购买商品的跨国公司已成为中共国的目标。
+编辑：胖丁
 
-“本周我们第一次看到中共国直接向一供应商施压，要求其放弃立陶宛制造的商品。”该联盟的主席Vidmantas Janulevicius对路透表示，“以前我们只是感到会有这个威胁，现在这些威胁变成了现实。”
+* * *
 
-“对我们来说，最痛苦的部分是，它是一家欧洲公司，”Janulevicius在谈及这家跨国公司时说道。“许多立陶宛企业是这些公司的供应商。”
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-消息来源：[独家：中共国施压跨国企业断绝与立陶宛的商业合作](https://cn.reuters.com/article/china-lithuania-trade-business-1209-idCNKBS2IO0JY?il=0)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
