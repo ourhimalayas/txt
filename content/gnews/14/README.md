@@ -2,56 +2,31 @@
 ---
 
 
-## 疫苗正在破坏免疫系统 带状疱疹可略见一斑（1／3）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1740007/)
+## 浅谈当前危机的本质及发展 ——物理推论法
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1740044/)
 
-翻译：Jenny Ball
+**作者: JuvenGuo**
+[![](https://spark.adobe.com/page/dvY3vhBcWmCMY/images/688f9c8f-d605-4d7f-8733-34b8ba7fd07a.jpg?asset_id=d0187e53-c3f2-4952-b771-a858ed24cc1b&amp;img_etag=%22396f3d2abea22e1b60db7c1d7ae2840a%22&amp;size=1024)](https://spark.adobe.com/page/dvY3vhBcWmCMY/images/688f9c8f-d605-4d7f-8733-34b8ba7fd07a.jpg?asset_id=d0187e53-c3f2-4952-b771-a858ed24cc1b&amp;img_etag=%22396f3d2abea22e1b60db7c1d7ae2840a%22&amp;size=1024)
+生活中有个很简单的常识，当风扇不转的时候，我们看不到扇叶后面的东西，当风扇转起来，转得越快，扇叶就几乎成了透明的。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-24.jpg)图片来源：childrenshealthdefense.org（Children’s Health Defense Team）
+这种情况在温度升高过程中也会出现，比如各种金属的游离态固液气变化、化合态固液气变化，核裂变聚变等等。金属随着其温度的升高，会逐渐变得透明和发光。固液气变化的原理也是在温度升高过程中热运动越来越剧烈，而使其变得更加透明。核聚变裂变更不用说了，不但本身不透明的质量变成光和能量传递出去，还会加剧其他接收光和辐射的物质的热运动。
 
-早在实验性 COVID 注射剂问世之前——别忘了，制药公司的高管们将其称为“细胞和基因疗法”，而不是“疫苗”——许可疫苗的包装说明书就向公众讲述了一个令人不安的故事。
+社会发展也是同样的道理，技术的发展、通信的便捷会创造更多的财富。财富就像物质，积累的时候会越来越不透明，但是当积累到了一定的量时，温度就会升高，并向外散发光和辐射。作为财富的拥有者和支配者，要先明白这个道理，在特定的阶段或一定条件下，财富的积累会导致不透明甚至黑暗，但这些只是社会事物发展过程中一个非常短的过程。宇宙中根本不存在不发光不发热的物体，只是它正处于哪个过程或状态中罢了。
 
-几乎影响所有器官和身体系统的 400 种不同类型的不良反应的文件，任何人愿意点击FDA的链接都可以看到，文件提供了“隐藏在普通视线中”的无数种疫苗攻击方式的线索。**免疫系统干预会导致微调的免疫反应出错。**
+CCP少数邪恶势力和家族显然没有足够的常识，靠不停地作恶积累了大量肮脏的财富，继而还妄想统治世界，最终只会让自己灭亡的更加悲惨。
+[![](https://spark.adobe.com/page/dvY3vhBcWmCMY/images/f53575e7-5f21-4f00-8c49-c1a8c136896e.jpg?asset_id=f8b0ce99-4a75-42e5-ad37-3a2da4f482e0&amp;img_etag=%223a9464715f2e3a06cfc0c96a342d8751%22&amp;size=1024)](https://spark.adobe.com/page/dvY3vhBcWmCMY/images/f53575e7-5f21-4f00-8c49-c1a8c136896e.jpg?asset_id=f8b0ce99-4a75-42e5-ad37-3a2da4f482e0&amp;img_etag=%223a9464715f2e3a06cfc0c96a342d8751%22&amp;size=1024)
+物理世界中目前公开的最小的单位是量子，量子纠缠能突破时空到达光之上的其他物质无法想象的遥远的时空，其本质就是自身携带的能量少。当人类度过本次危机，公开了更先进的理论，大家就会发现CCP是最愚蠢和无知的代表。灭共就是一个让更多的人开智的过程，无论你今天是不是共产党员，只要有机会在爆料革命这里看到了真相，推开了智慧之门，我相信每一个人都会坚定的站在正义的爆料革命和新中国联邦一边，共同铲除奴役百姓的反人类罪犯——中国共产党。
 
-这些包装插页尽管仍然是该死的，但刚刚被信息自由法案 (FOIA) 要求强制公开的令人震惊的辉瑞内部数据黯然失色。
+*编辑：【英国伦敦喜庄园编辑部】*
 
-该公司的机密反应清单显示，在注射剂紧急使用的前 90 天（截至 2021 年 2 月 28 日），**辉瑞记录了超过**** 158,000 ****起不同的不良事件——包括**** 1223 ****人死亡——分布在**** 42,086 ****份病例报告中。**
+*校对: 仙女儿-文善 | 审核：文明明 | Page: Daoiii*
 
-虽然 COVID 疫苗接种后的血栓和心脏问题可能引起了最广泛的关注，但辉瑞的不良事件图表显示了 **27 ****种不同的“系统器官类别**”，揭示了广泛的问题——其中，许多突出了受害者免疫反应令人不安的“重新编程”。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-**接种后的带状疱疹**
+[![](https://spark.adobe.com/page/dvY3vhBcWmCMY/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/dvY3vhBcWmCMY/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
-在辉瑞指出“特别关注”（列在“其他”类别中）的免疫功能障碍中，有 281 起与带状疱疹相关的事件，中位发病时间为接种 COVID 疫苗后一天。
-
-带状疱疹是一种以皮疹、水泡、灼痛或神经痛和各种潜在并发症为特征的疼痛疾病。多达 20% 的带状疱疹发作会影响眼睛，**并可能导致永久性视力障碍，包括失明**。
-
-辉瑞公司在 2 月份总结的病例，在越来越多的患者、临床医生和已发表的报告中得到了呼应，这些报告将带状疱疹（包括眼部并发症）描述为 COVID 疫苗接种后的“不幸事件”——其中许多是“一生中的第一次”事件。
-
-大多数发生在注射后的几天或几周内，有些发生在注射一剂疫苗之后。
-
-在讨论带状疱疹和其他皮肤对注射的反应时，大约五分之一的反应被归类为严重或“非常严重”。
-
-欧洲的各种更新估计，带状疱疹占 COVID 疫苗报告的不良事件总数的 1.3% 至 4.1%。
-
-总的来说，这些报告不仅将责任归咎于辉瑞的注射剂，还归咎于莫德纳的 mRNA 注射剂和世界各地使用的所有其他主要 COVID 疫苗，包括中共国的 Sinovac、印度的 Covaxin ，以及由强生（ Janssen/Johnson & Johnson ）和阿斯利康（AstraZeneca）开发的注射剂。
-
-在文章的后面两个部分，我们看看这些Covid实验剂与这些严重的不良反应，是否如CDC专家所称“不直接”和“不一定”联系在一起？
-
-**请阅读下两篇：**
-
-[疫苗正在破坏免疫系统 带状疱疹可略见一斑（2／3）](https://gnews.org/zh-hans/1740085/)
-
-疫苗正在破坏免疫系统 带状疱疹可略见一斑（3／3）
-
-**参考资料：**[childrenshealthdefense.org][Vaccines Are Sabotaging the Immune System. Shingles May Hold Some Answers.](https://childrenshealthdefense.org/defender/covid-vaccines-shingles-immune-system-detoxification/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=bab690cc-6081-47bc-9178-aa913b21cfc7)
-
-* * *
-
-*审核：文乐
-校对：信心满满*
-*发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH..jpeg)
 
  
 
