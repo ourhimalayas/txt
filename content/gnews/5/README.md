@@ -2,31 +2,52 @@
 ---
 
 
-## 该坦诚地重现审视这一切了
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1739597/)
+## 有这么一撮“人”
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1739696/)
 
-#### 简评：
+作者：波士顿五月花 Little c
+![](https://assets.gnews.org/wp-content/uploads/2021/12/20211210.jpg)
+有这么一撮“人”，
 
-过去20年，中共一直致力于以廉价和有效的方式对抗美国的实力。无论是航空母舰、F35战斗机，还是核潜艇，美国不再是太平洋地区最强大的军队，中共在迅速崛起。
+自诩开国英雄，实为盗国魔王；
 
-**GTV视频链接：**[Gen. Spalding：我们不再是太平洋地区最强大的军队，无论是航空母舰，还是F35战斗机，还是核潜艇](https://gtv.org/video/id=61b169fd87fa7e74c92d7412)
+开口仁义道德，出手丧心病狂；
+
+人前嘘寒问暖，背后黑手暗枪；
+
+开门衣冠楚楚，关门龌龊淫荡；
+
+开会一致通过，桌下你争我抢；
+
+高唱唯物马列，转身拜佛烧香；
+
+台上热爱祖国，台下移民媚洋；
+
+推行一带一路，全靠黑蓝金黄，
+
+要问它们是谁，中共犯罪恶党。
 
 
 
-#### 视频字幕：
+自从武汉放毒，开始暴露真相；
 
-现在是我们坦诚的时候了。我们不再是太平洋地区最强大的军队，无论是航空母舰，还是F35战斗机，还是核潜艇。在过去20年，中共一直致力于以廉价和有效的方式对抗我们的实力。是时候该重新审视这一切了。
+病毒只是圈套，疫苗才是真枪；
 
-***编辑：【英国伦敦喜庄园编辑部】***
+勾结黑暗组织，无知人们遭殃；
 
-*字幕：Vekap | 听写：云岭 | 翻译：Roberts | 校对：致良知 | 简评/文字整理/编辑：胖丁 | PAGE：彼岸花*
+文贵直播爆料，拯救人类万邦；
 
-- [点击阅读英国伦敦喜庄园在G-News的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+冬奥门庭冷落，世界渐明方向；
 
-[![](https://spark.adobe.com/page/JrWFzUwM9C23R/images/A3120A68-78FC-4A63-8703-7DECBA8B05D5.jpg?asset_id=4E893AAF-61E8-44BA-86E9-2C1D7377B120&amp;size=1024)](https://spark.adobe.com/page/JrWFzUwM9C23R/images/A3120A68-78FC-4A63-8703-7DECBA8B05D5.jpg?asset_id=4E893AAF-61E8-44BA-86E9-2C1D7377B120&amp;size=1024)
+建构正道主义，请跟随新中国联邦！
 
+* * *
+
+*编辑：文合*
+
+*封面：霹雳鼠年*
+
+*发布：吐纳*
 
  
 
