@@ -2,182 +2,127 @@
 ---
 
 
-## 马航事件绝对是杀人灭口
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1740126/)
+## 各种解药的功效
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1740180/)
 
-[https://gtv.org/video/id=61b3593887fa7e74c92e2348](https://gtv.org/video/id=61b3593887fa7e74c92e2348)
+[https://gtv.org/video/id=61b359ce87fa7e74c92e236b](https://gtv.org/video/id=61b359ce87fa7e74c92e236b)
 
-马航的事情
-El asunto de Malaysia Airlines
+**郭文贵
+Miles Guo**
 
-一定是和孟建柱和江绵恒
-Debe tener relación con Meng Jianzhu, Jiang mianheng
+地塞米松一定是有症状以后吃的
+Dexamethasone must be taken after having symptoms
 
-还有当时的这几个医学家出事是有绝对关系的
-Y el accidente con ciertos científicos médicos
+它是救急的药，副作用非常之大
+It is an emergency medicine, and the side effects are very large
 
-绝对是杀人灭口
-Definitivamente está matando gente
+这几种药里边，副作用最大的就是地塞米松
+Among these drugs, dexamethasone is the one with the most side effects
 
-特别是这个飞机的牵引技术
-Especialmente la tecnología de tracción de este avión
+这里面最温性的药就是伊维菌素
+The most mild drug among these drugs is ivermectin
 
-特别是在欧盟
-Especialmente en la UE
+伊维菌素，他说，吃这个东西解疫苗，包括解病毒，挡病毒是最好的药
+Ivermectin, he said, is the best medicine for anti-vaccine, including anti-virus
 
-当时还没有脱欧的英国
-Aquel momento no se había separado el Reino Unido de la UE
+他说青蒿素是所有这几种药里边的杀手锏
+He said that artemisinin is the master medicine of all these drugs
 
-还有现在的美国
-Y EE. UU de ahora
+但是这个青蒿素不能随便吃
+but artemisinin can’t be taken casually
 
-它是个很大的事情
-Es un asunto muy grande
+比如青蒿素，你跟伊维菌素不要放在一起吃
+For example, you should not take artemisinin and ivermectin at same time
 
-它能把它给牵(引)走了, 它把谁的飞机都能牵(引)走
-Puede (alejarlo), puede alejar el avión de cualquier persona
+青蒿素最好不要和羟氯喹一起吃
+The best is not to take artemisinin with hydroxychloroquine
 
-现在美国已经
-Ahora EE. UU ya
+但是青蒿素有分很多种
+there are many kinds of artemisinin
 
-基本上是咱爆料革命有史以来
-Básicamente desde que comenzamos con el Movimiento de Denunciantes
+他说，好的青蒿素单独就可以完全灭毒灭疫苗
+He said that good artemisinin alone can completely eliminate the virus and the vaccine
 
-知道咱们是掌握着共产党核心的机密和情报的
-Sabe que nosotros tenemos los secretos y la información del núcleo de Partido Comunista
+他说几乎是100%
+He said it works almost 100%
 
-因为他们一开始都不相信, 觉得这是阴谋论
-Porque al principio ellos no creían, sentían que es una teoría de conspiración
+最重要是你吃什么青蒿素
+The most important thing is what kind of artemisinin you take
 
-那么现在西方的人跟我们见面
-Y ahora las personas occidentales se reunen con nosotros
+青蒿素最好的就是美国（产的）
+The best artemisinin is (produced) in the United States
 
-当时CIA的情报部门我跟他说
-En ese momento, le dije al departamento de inteligencia de la CIA
+最好的就是美国的药
+The best artemisinin is made in US
 
-马航事件一定是不正常的
-El incidente de Malaysia Airlines no es algo normal
+他说特别是癌症病人
+He said especially for cancer patients
 
-他说我不觉得中国有这种牵引技术
-Él decía que no creía que China pueda tener esta tecnología de tracción
+他说一定是（服用）药剂的青蒿素
+He said it must be (taken) pharmaceutical artemisinin
 
-如果有这种牵引技术就不正常
-Si tiene esta tecnología entonces no es normal
+就刚才那个针剂啊，还有高纯度的药剂的青蒿素，而不是保健品
+Just the injection medicine we just discussed, and high purity pharmaceutical artemisinin, not health care products
 
-我说中国有这种牵引技术
-Yo le dije que China si tiene este tipo de tecnología
+咱战友现在买的99%都是保健品
+99% of what our comrades bought are health products
 
-而负责人就是江绵恒
-Y la persona a cargo es Jiang Mianheng
+保健品可以防，但真的要有着解除疫苗和解除病毒的，包括战友得了病毒有后遗症的
+Health care products can prevent virus, but really need to have the lifting of the vaccines and lifting the virus, including the sequelae of the COVID-19
 
-现在美国发现了
-Ahora EE. UU se dió cuenta
+一定是要青蒿素的药吃
+it must be pharmaceutical artemisinin
 
-不但能听你的手机, 全球手机监听
-No solamente puede escuchar tu teléfono móvil, sino de todo el mundo
+他说几乎是100%就能铲除
+He said almost 100% of the sequelae can be eradicated
 
-最近大家看到, 很多咱们做的视频都出来了吧
-Recientemente, todos vieron que salieron muchos videos que hicimos
+但是身体里不会留下来的
+The body will not leave after-effects
 
-中共可以在世界上, 它叫做全世界的数据帝国
-El PCCh puede estar en el mundo, se llama el imperio de datos del mundo
+所以兄弟姐妹们要吃对药，吃正确药
+So brothers and sisters, please take the right medicine
 
-中国就是数据帝国
-China es el imperio de datos
+特别像地塞米松，它是等躺到了病房里边，稳定你的血氧（用的）
+Especially like dexamethasone, which is used to stabilize your blood oxygen when you are lying in the ward
 
-就能掌握全世界各种数据
-Puede controlar todo tipo de datos en todo el mundo
+然后这个彻底的，有伤害性的救你命的药，它不能天天吃，它也不能病前吃 but this is thorough, harmful life-saving medicine.
 
-能监听全世界任何一个人的手机, 任何电脑
-Puede monitorear el teléfono celular de cualquier persona y cualquier computadora en el mundo
+它不能天天吃，它也不能病前吃
+It can not be taken every day, and it can not be taken before you have COVID-19
 
-这一点儿都不用怀疑
-No duden de esto
+伊维菌素和羟氯喹和锌是防病毒，解病毒的
+Ivermectin, hydroxychloroquine and zinc are antiviral
 
-就像这个马航的事情
-Así como el asunto de Malaysia Airlines
+青蒿素是彻底铲除疫苗残留和防止病毒和挡病毒的
+Artemisinin is a complete eradication of vaccine residues, prevent viruses and block viruses
 
-美国西方知道了以后
-Luego que EE. UU se enteró
+青蒿素里的保健品是防病毒
+Artemisinin’s health products are anti-viral
 
-雷达、车、收音都能控制
-El radar, el automóvil y la radio pueden ser controlados
+青蒿素的药治癌症，消除疫苗毒
+Pharmaceutical artemisinin cures cancer and eliminate vaccine poison
 
-这为什么给我们搞新中国联邦国防的这哥们
-Y por qué nuestro hermano que se dedica a la defensa nacional del Nuevo Estado Federal de China
+包括消除得冠状病毒后的所有身体的残毒
+Including the elimination of all the residual virus of the body after the coronavitus
 
-电脑不连Wi-Fi
-No se conecta el Wi-Fi con su computadora
-
-从来也不连任何有线的
-Nunca se conecta con los cables
-
-就让你看电脑从来就是看完以后, 展示完就拉倒
-Solamente mira la computadora y luego la expone
-
-他的车上都是没有雷达的
-No hay radar en su carro
-
-没有任何现代智能设备
-Y ningún dispositivo inteligente moderno
-
-他手机都是最老的手机
-Su teléfono móvil es el más antiguo
-
-因为他相信
-Porque el confía
-
-共产党和俄罗斯能听任何人
-El Partido Comunista y Rusia puede escuchar a cualquier persona
-
-他不能再容易了
-No hay nada más fácil que eso
-
-最好的监听软件就是以色列的
-El mejor software de monitoreo es de Israel
-
-它已经是5年前都能想听谁听谁
-Ya hace 5 años atrás puede escuchar a cualquier persona
-
-WhatsApp 100%不安全
-WhatsApp es 100% inseguro
-
-微信是1000%不安全
-WeChat es 1000% inseguro
-
-所以说只要你想干的事, 你想安全是不可能的
-Por eso si quieres hacer algo y a la vez deseas que sea seguro es imposible
-
-那么在这种情况下, 马航的事件
-Y bajo esta situación, el incidente de Malaysia Airlines
-
-为什么西方认定了共产党真的有干掉世界的野心
-¿Por qué Occidente cree que el Partido Comunista realmente tiene la ambición de matar al mundo?
-
-而且他也敢, 还有这个技术, 还有这个能力
-Además también se atreve, tiene esta tecnología y capacidad
-
-那么现在病毒的事情证明了这一点
-También el tema de virus actual comprobó esto
-
-所以马航的事情迟早会出来的
-Por lo tanto, el asunto de Malaysia Airlines tarde o temprano será expuesto
+大家一定要把这个搞明白，谢谢
+Everyone must understand this, thank you
 
 * * *
 
-日期：12/09/2021
-原视频标题：马航事件绝对是杀人灭口
-El incidente de Malaysia Airlines es absolutamente mortal
-原视频日期：12/06/2021
-原视频网址：[https://gettr.com/post/piua3lb0ce](https://gettr.com/post/piua3lb0ce)
-任务编号：3129
-视频时间段：0:00-2:24
-西听校：洛杉矶盘古农场-霙霙（文霙）
-翻译：洛杉矶盘古农场-小文萱
-翻译终校：洛杉矶盘古农场-霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布 ：洛杉矶盘古农场-恩典
+Date:11/30/2021
+原视频标题: 各种解药的功效
+The efficacy of various antidotes
+原视频日期：2021/11/26
+原视频链接[https://gettr.com/post/pi1eag4d14](https://gettr.com/post/pi1eag4d14)
+任务编号：KC321(3035)
+视频时间段 : 0:00-02:06
+中听校：洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 -Layka Mike
+翻译终校：洛杉矶盘古农场 – Freeearth
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

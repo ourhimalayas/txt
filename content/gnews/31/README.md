@@ -2,45 +2,35 @@
 ---
 
 
-## 12/10/2021国际财经快讯：10个国家模拟全球金融体系网络攻击；英国金融公司实施新中共病毒规则
-` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1739855/)
+## 汤姆·科顿敦促国会取消中共最惠国待遇
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1739879/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-49.png)[图片来源](https://www.reuters.com/)
-**1.10个国家模拟全球金融体系网络攻击**
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月8日，在美国参议院演讲中，参议员汤姆-科顿历数了自中共国加入世界贸易组织WTO后的 二十多年来，中共对美国工业基础和经济等方面造成的各种伤害和破坏。为此，科顿敦促国会尽快通过法案，取消中共国贸易最惠国待遇。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/7-14.jpg)
+科顿在演讲中提到，2001年，美国当时的立法者和世贸组织成员为中共极权政府打开了机会之门，使其能够掠夺美国，甚至霸权世界。而在其后的20年里，中共国实现了百分之一千二的经济增长，成为了世界上最大的出口国。与之相反的是，数以百万计的美国人在 来自”中共国的贸易冲击 “中失去了高薪的蓝领工作——这也导致美国本土制造业和基础经济的空洞化。
 
-[以色列周四牵头对10个国家进行了一场全球金融体系重大网络攻击模拟，以期加强合作，帮助最大程度地减少对金融市场和银行的任何潜在损害。模拟的“战争游戏”，正如以色列财政部在过去一年中所称的和计划的那样，演进了10多天，敏感数据出现在暗网上。该模拟还使用了假新闻报道，这些报道在该场景中导致全球市场混乱和银行挤兑。模拟 – 可能是由官员称之为“老练”的参与者引起的 – 以几种类型的攻击为特色，这些攻击影响了全球外汇和债券市场、流动性、数据完整性以及进出口商之间的交易。以色列政府官员表示，在针对大公司的许多备受瞩目的网络攻击之后，这种威胁是可能的，并且遏制任何损害的唯一方法是通过全球合作，因为当前的网络安全并不总是足够强大。](https://www.reuters.com/markets/europe/exclusive-imf-10-countries-simulate-cyber-attack-global-financial-system-2021-12-09/)
+对此，科顿敦促国会尽快通过他于今年3月份提出的《中共国贸易关系法案》，从而可以取消中共在2000年9月获得的最惠国待遇。
 
-**2.英国金融公司实施“具有挑战性”的新COVID-19规则**
+科顿指出，中共国徒享WTO的特殊地位，但从不履行当初对世界的承诺，因此，使美中贸易关系回到2001年之前的模式，并承认中共国是一个非市场经济的共产主义国家，才是纠正历史错误的重要方式。
 
-[在政府收紧规定后，英国的金融公司已开始发布一系列员工居家工作指导。但普华永道周四表示，遵循更严格的政府COVID-19在家工作指南对会计师来说将是一个“挑战”，因为他们正面临一年中最繁忙的时期。英国周三宣布了更严格的限制，命令人们在家工作以减缓Omicron冠状病毒变种的传播。近几个月来，英国庞大的金融服务业员工开始大量返回办公室，伦敦金融城和金丝雀码头的金融区在圣诞节前忙碌。普华永道董事长兼高级合伙人凯文·埃利斯(Kevin Ellis)表示：“一如既往，我们将遵循政府指导方针，但不可否认，这对某些行业来说将是一个挑战。”](https://www.reuters.com/business/finance/uk-finance-firms-implement-challenging-new-covid-19-rules-2021-12-09/)
+参考链接：
+[Tom Cotton Marks 20 Years of China’s ‘Great Hollowing’ of U.S. ‘Industrial Base, Economy, and Working Class’](https://www.breitbart.com/politics/2021/12/08/tom-cotton-marks-20-years-of-chinas-great-hollowing-of-u-s-industrial-base-economy-and-working-class/)
 
-**3.股市在美国通胀前失去光泽**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-[世界股市周五下跌，从前一交易日创下的两周高位回落，原因是对COVID-19的担忧再次出现，以及美国关键通胀数据公布前的谨慎态度，尽管油价仍有望创下八月底以来最大单周涨幅。本周风险较高的市场表现良好，这得益于有迹象表明新型冠状病毒的Omicron菌株可能不像最初担心的那样对经济造成破坏。但在美国11月消费者物价指数数据稍后公布之前，周五的反弹已经耗尽能量。路透社对经济学家的一项调查预计，CPI同比上涨6.8%，超过10月份6.2%的涨幅，这是31年来的最快涨幅。Allspring Global Investments 投资组合管理全球主管马蒂亚斯·谢伯(Matthias Scheiber)表示：“基数可能看起来不太好，与前几个月相比，预计会有相当大的增长。”](https://www.oann.com/asian-shares-slip-ahead-of-key-u-s-inflation-data/)
+总编：Irene木木
+编辑：Kathy文艺
+校正/发稿：Fei797
 
-**4.荷兰皇家壳牌股东预计将批准迁往伦敦**
-
-[预计荷兰皇家壳牌公司的股东将在周五投票批准一项计划，以结束该公司的双重股权结构，并将其总部从海牙迁至伦敦。这家英荷公司的董事会成员于11月提出了该计划。他们表示，简化将增强壳牌的竞争力，并使股票回购和支付股息更容易。该计划将使该公司更名为壳牌PLC，失去其一个多世纪以来一直拥有的“荷兰皇家”称号，该计划需要在鹿特丹会议上获得75%的投票批准。董事会成员将稍后开会做出最终决定，此举计划于2022年初进行。批评人士称，壳牌做出这一决定的部分动机是5月份荷兰法院的一项裁决，该裁决要求其到2030年将碳排放量减少45%。](https://www.oann.com/royal-dutch-shell-plc-shareholders-set-to-approve-move-to-london/)
-
-**5.ACCC不会反对悉尼机场交易**
-
-[据天空新闻商业记者爱德华博伊德称，竞争监管机构不会反对一群退休基金和全球投资者以240亿美元收购悉尼机场。ACCC为这笔交易开了绿灯，尽管该负责人认为机场是“垄断企业”，因为它通常是该市唯一的航站楼，但悉尼机场的运营方式与其他主要城市的枢纽机场并没有任何不同。该交易将于明年2月股东投票，并且需要超过75%的人投票赞成才能通过。](https://www.skynews.com.au/business/finance/accc-will-not-oppose-sydney-airport-deal/video/73a6a4ad6513fd5c4a7e0e1e6439a77b)
-
-**6.沃尔沃和Northvolt将开设电池研发中心**
-
-[沃尔沃汽车公司和电池制造商Northvolt周五表示，作为300亿克朗（33亿美元）投资的一部分，沃尔沃汽车和电池制造商Northvolt将在瑞典开设一个联合研发中心。今年6月，这两家瑞典公司宣布了合资企业开发电动汽车电池的计划，包括建立一个生产超级工厂和一个研发中心。沃尔沃汽车表示，两家公司现已签署了一项具有约束力的合资协议。位于哥德堡的研发中心将于明年开始运营。“我们与Northvolt的合作关系确保为下一代纯电动沃尔沃汽车提供高质量、可持续生产的电池，”首席执行官Hakan Samuelsson在一份声明中表示。沃尔沃汽车由中国吉利控股，其目标是到本十年中期销售50%的纯电动汽车，到2030年销售纯电动汽车。](https://www.oann.com/volvo-cars-northvolt-to-open-battery-rd-centre-as-part-of-3-3-billion-investment/)
-
-**7.Nubank成为巴西第三大最有价值的上市公司**
-
-[数字银行Nubank(NU.N)的股票在周四首次亮相时比发行价高出25%，使该公司市值接近520亿美元，成为巴西在美国市值最高的第三大上市公司。按照这个估值，这家总部位于圣保罗的金融科技公司由沃伦巴菲特的伯克希尔哈撒韦公司(BRKa.N)支持，仅次于大宗商品公司Petrobras(PETR4.SA)和Vale(VALE3.SA)。周三，Nubank筹集了近26亿美元。一位知情人士称，该报价被超额认购八倍。Nubank表示，其巴西业务已在2021年上半年实现盈利。创始人兼首席执行官David Velez表示，公司将继续专注于三个市场——巴西、墨西哥和哥伦比亚。](https://www.reuters.com/markets/europe/brazils-nubank-valued-nearly-52-bln-nyse-debut-2021-12-09/)
-
-**8.戴姆勒卡车股票在法兰克福市场首次亮相**
-
-[商用车制造商戴姆勒卡车的股价周五在法兰克福首次亮相时小幅走高，标志着其期待已久的从戴姆勒股份公司分拆出来。分拆于2月宣布，两家公司将其视为释放戴姆勒卡车以及梅赛德斯-奔驰乘用车和货车所有者价值的机会。格林威治标准时间0855，戴姆勒卡车的股价为29.03欧元，高于其28欧元的首发价。戴姆勒股价下跌17%，这是分拆的技术副作用。“我们确信我们会创造价值，”戴姆勒首席执行官奥拉·凯伦纽斯(Ola Kaellenius)在法兰克福一个比往常更空旷的大厅发表讲话时说，因为大流行限制了与会者的数量。戴姆勒股份公司，即将更名为梅赛德斯-奔驰股份公司，持有戴姆勒卡车35%的股份，而65%的股份于周五剥离。戴姆勒的股东每持有两股戴姆勒股份，即可获得一股戴姆勒卡车股份。](https://www.oann.com/daimler-truck-shares-trade-at-28-euros-on-market-debut/)
-
-By【秘密翻译组-金融组】
-作者：小海星
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
