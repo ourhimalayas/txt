@@ -15,16 +15,16 @@
 
 ---
 
-### [七哥预计世界经济危机会在今年底到明年（2021-12-08摘录）](/content/gnews/1/README.md)
+### [欧洲国家何时宣布抵制北京冬奥？](/content/gnews/1/README.md)
+ ` HimalayaRussia`
+
+### [七哥预计世界经济危机会在今年底到明年（2021-12-08摘录）](/content/gnews/2/README.md)
  ` MG FARM`
 
-### [清单花（MIDI改编歌曲）](/content/gnews/2/README.md)
+### [清单花（MIDI改编歌曲）](/content/gnews/3/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥谈我们要加速共产党的灭亡（2021-12-08摘录）](/content/gnews/3/README.md)
- ` MG FARM`
-
-### [七哥谈让共产党应受到严厉的审判（2021-12-08摘录）](/content/gnews/4/README.md)
+### [七哥谈我们要加速共产党的灭亡（2021-12-08摘录）](/content/gnews/4/README.md)
  ` MG FARM`
 
 ### [良心，到底值几个钱！](/content/gnews/5/README.md)
@@ -99,26 +99,26 @@
 ### [马航事件绝对是杀人灭口](/content/gnews/28/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [有声|GTV新闻访谈简报|2021年12月8日早](/content/gnews/29/README.md)
+### [2021年12月10日文贵大直播要点海报（1）](/content/gnews/29/README.md)
+ ` 秘密翻译组-原创组`
+
+### [有声|GTV新闻访谈简报|2021年12月8日早](/content/gnews/30/README.md)
  ` MOSREC`
 
-### [文·贵天成——文贵先生谈“疫苗”（四十二）](/content/gnews/30/README.md)
+### [文·贵天成——文贵先生谈“疫苗”（四十二）](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`
 
-### [疫苗正在破坏免疫系统 带状疱疹可略见一斑（2/3）](/content/gnews/31/README.md)
+### [疫苗正在破坏免疫系统 带状疱疹可略见一斑（2/3）](/content/gnews/32/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|GTV新闻访谈简报|2021年12月8日晚](/content/gnews/32/README.md)
+### [有声|GTV新闻访谈简报|2021年12月8日晚](/content/gnews/33/README.md)
  ` MOSREC`
 
-### [12/10/21 香港快讯 就选举办反恐演习 香港民研：近四成受访者称减投票意欲](/content/gnews/33/README.md)
+### [12/10/21 香港快讯 就选举办反恐演习 香港民研：近四成受访者称减投票意欲](/content/gnews/34/README.md)
  ` 英喜-粵語組`
 
-### [疫苗正在破坏免疫系统 带状疱疹可略见一斑（1／3）](/content/gnews/34/README.md)
+### [疫苗正在破坏免疫系统 带状疱疹可略见一斑（1／3）](/content/gnews/35/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [银河快讯：日本支持台湾出席世卫组织会议；呼吁核武器国家提高透明度](/content/gnews/35/README.md)
- ` 日本银河系农场-阿尔法星球`
 
 ### [不寒而慄—可怕的实验室病毒泄露](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
