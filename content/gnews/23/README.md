@@ -2,43 +2,33 @@
 ---
 
 
-## 反疫苗抗议者阻塞白思豪在布鲁克林家外的交通
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1739833/)
+## 西捷航空飞行员突发疾病紧急返航
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1739915/)
 
-作者肯尼斯·加格
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间12月6日，加拿大西捷航空公司的一名飞行员在所属航班起飞后不久突发疾病，飞机被迫紧急返航卡尔加里。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/8-15.jpg)
+根据航空公司公开的飞行日志显示，这架西捷航空1590号航班原定于当天中午从卡尔加里飞往亚特兰大，但在起飞后不到一个小时内又返回该机场。虽然西捷航空以隐私问题为由，拒绝提供有关该飞行员的病情和相关细节，但据航班上一名乘客描述，当时空乘人员将急救箱和除颤器带入了驾驶舱。
 
-翻译：沉默老歌
+有专业人士对此分析称，鉴于英国航空公司有四名接种过新冠疫苗的飞行员在一周内猝死的先例，各大航空公司应该对接种过疫苗的飞行员的身体状况进行更为严密的监控。
 
-2021 年 12 月 7 日 | 晚上 11:31
-![](https://assets.gnews.org/wp-content/uploads/2021/12/anti-vax-protesters-608-edited.jpg)图片来源：网络
-作者肯尼斯·加格
+参考链接：
+[WestJet flight diverted back to Calgary after pilot medical emergency](https://calgarysun.com/news/local-news/westjet-flight-diverted-back-to-calgary-after-pilot-passes-out/wcm/64bef129-e76f-452d-887c-f899af1642d3)
 
-翻译：沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-2021 年 12 月 7 日 | 晚上 11:31
+总编：文特
+编辑：Lakeman文仁
+校正/发稿：Fei797
 
-周二晚上，几十名抗议者扰乱了市长白思豪位于布鲁克林的家外的交通，并对 COVID-19 疫苗的强制要求表示愤慨。
-
-示威者高呼“不强制接种疫苗” 和“我的身体，我的选择” ！根据《华盛顿邮报》获得的镜头，他们聚集在马路中间，堵住了一辆垃圾车至少 10 分钟。
-
-“我们说不，我们说不” 和“拯救我们的孩子” ，一行人也喊道。
-
-一名男子举着一个牌子，上面写着：“纽约醒来，守住阵线”。
-
-抗议者在白思豪市长家外高呼“我们说不，我们说不”和“我的身体，我的选择” ！
-
-周一，白思豪突然对所有私营企业提出了一项强制要求，该要求将于 12 月 27 日生效。
-
-市长周一还表示，进入五个行政区的许多室内企业，包括酒吧、餐馆和健身中心，将需要接种两剂 COVID-19 疫苗。
-
-5 至 11 岁的儿童，也将被要求在本月底前至少接种一次疫苗系列才能进入室内场所。
-
-来源链接：[https://nypost.com/2021/12/07/anti-vax-protesters-block-cars-outside-de-blasios-brooklyn-home/amp/](https://nypost.com/2021/12/07/anti-vax-protesters-block-cars-outside-de-blasios-brooklyn-home/amp/)
-
-编辑/发布：LILY
-
-20211210
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

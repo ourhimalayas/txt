@@ -2,84 +2,131 @@
 ---
 
 
-## 疫苗正在破坏免疫系统 带状疱疹可略见一斑（2/3）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1740085/)
+## 各种解药的功效
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1740180/)
 
-翻译：Jenny Ball
+[https://gtv.org/video/id=61b359ce87fa7e74c92e236b](https://gtv.org/video/id=61b359ce87fa7e74c92e236b)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-24.jpg)图片来源：childrenshealthdefense.org（Children’s Health Defense Team）
+**郭文贵
+Miles Guo**
 
-“不直接”和“不一定”联系在一起？
+地塞米松一定是有症状以后吃的
+Dexamethasone must be taken after having symptoms
 
-坚持带状疱疹等不良事件只是“随机事件”的现象，媒体正在使用通常的篡意语言告诉公众，报道的带状疱疹爆发“不直接”或“不一定”与 COVID 疫苗有关。
+它是救急的药，副作用非常之大
+It is an emergency medicine, and the side effects are very large
 
-一位医生说：“我最近看到了很多带状疱疹，但我个人没有看到它与疫苗有关。”
+这几种药里边，副作用最大的就是地塞米松
+Among these drugs, dexamethasone is the one with the most side effects
 
-“如果人们没有接种带状疱疹疫苗，而是在接种 COVID 疫苗后感染了带状疱疹，‘**这只是巧合’**，” 另一位医生轻率地补充道，“没有什么是没有风险的。”
+这里面最温性的药就是伊维菌素
+The most mild drug among these drugs is ivermectin
 
-另一位医生迂回地表示，“并不是疫苗导致了带状疱疹——**疫苗只是导致带状疱疹发作的许多不同诱因之一。”**
+伊维菌素，他说，吃这个东西解疫苗，包括解病毒，挡病毒是最好的药
+Ivermectin, he said, is the best medicine for anti-vaccine, including anti-virus
 
-药物时代（Pharmacy Times）等新闻媒体同意“因果关系尚无法证明”，但善意地声明，“警惕和安全监控……是有必要的”。
+他说青蒿素是所有这几种药里边的杀手锏
+He said that artemisinin is the master medicine of all these drugs
 
-美国过敏、哮喘和免疫学学会 (AAAAI)——与哈佛大学和其他大学合作开发一种名为“妊娠监测系统中的疫苗和药物”的疫苗监测工具——应该有兴趣深入研究潜在的安全信号。
+但是这个青蒿素不能随便吃
+but artemisinin can’t be taken casually
 
-但是，AAAAI 驳回了患者对COVID 注射引起的带状疱疹的担忧。在 4 月份的“咨询专家”帖子中，AAAAI 断言，“[辉瑞] 疫苗和带状疱疹之间没有明确的关联。”
+比如青蒿素，你跟伊维菌素不要放在一起吃
+For example, you should not take artemisinin and ivermectin at same time
 
-此外，尽管研究记录了在那个时期接种疫苗的妇女的妊娠流产率惊人，但 AAAI 还是支持在孕早期接种 COVID 疫苗。
+青蒿素最好不要和羟氯喹一起吃
+The best is not to take artemisinin with hydroxychloroquine
 
-所有这些虚伪的“这里没什么可看的”说辞，与医学界长期以来承认的免疫抑制会增加带状疱疹的风险，以及疫苗的免疫影响可能是触发因素的偶尔不情愿的承认，都自相矛盾。
+但是青蒿素有分很多种
+there are many kinds of artemisinin
 
-令人沮丧的是，患有带状疱疹的消费者会问：“有人在跟踪接种 [COVID] 疫苗后有多少人感染了带状疱疹吗？”
+他说，好的青蒿素单独就可以完全灭毒灭疫苗
+He said that good artemisinin alone can completely eliminate the virus and the vaccine
 
-最近关于 COVID 疫苗和带状疱疹病例报告的一些作者，谨慎地提出了回应。关键事实，例如，带状疱疹不仅发生在免疫功能低下的 COVID 疫苗接种者身上，而且发生在健康个体中，以及“接种疫苗后发病的短暂延迟”，迫使一些人得出结论，疫苗会导致“免疫失调”、“免疫力改变”，或 引起带状疱疹的“免疫调节”。
+他说几乎是100%
+He said it works almost 100%
 
-**流感疫苗接种的线索**
+最重要是你吃什么青蒿素
+The most important thing is what kind of artemisinin you take
 
-在 COVID 之前，在线网站上充斥着人们在接种**流感疫苗后**数天或数周内出现带状疱疹的报道。
+青蒿素最好的就是美国（产的）
+The best artemisinin is (produced) in the United States
 
-一名男子写道，他咨询了六名医疗专业人士，他们都坚持“流感疫苗不可能引起带状疱疹”。在注意到他“在接种流感疫苗后仅 3 小时”就出现了“第一次，也是唯一一次”带状疱疹爆发后，他报告说：
+最好的就是美国的药
+The best artemisinin is made in US
 
-“我停止注射流感疫苗。 从那以后我再也没得过带状疱疹。**这也太巧了吧**……“
+他说特别是癌症病人
+He said especially for cancer patients
 
-在同一论坛上发帖的许多其他人都同意他们“不相信‘巧合’的解释”，包括 20 多岁和 30 多岁的非常健康（即具有免疫能力）的人，在感染疫苗后不久报告“可怕”和“痛苦”的带状疱疹病例。
+他说一定是（服用）药剂的青蒿素
+He said it must be (taken) pharmaceutical artemisinin
 
-在另一个论坛上，版主回应了大量关于流感疫苗和带状疱疹的投诉如下：
+就刚才那个针剂啊，还有高纯度的药剂的青蒿素，而不是保健品
+Just the injection medicine we just discussed, and high purity pharmaceutical artemisinin, not health care products
 
-“我们从读者那里知道的是：所有这些都存在相关性，并且，所有 [他们] **都被告知没有相关性。**这时我们被医生和大型制药公司（[Big Pharma](https://childrenshealthdefense.org/defender_category/big-pharma/)）[引导] 接种疫苗不会产生严重的副作用时，**一般人很难再相信他们**。”
+咱战友现在买的99%都是保健品
+99% of what our comrades bought are health products
 
-**水痘和带状疱疹疫苗接种的线索**
+保健品可以防，但真的要有着解除疫苗和解除病毒的，包括战友得了病毒有后遗症的
+Health care products can prevent virus, but really need to have the lifting of the vaccines and lifting the virus, including the sequelae of the COVID-19
 
-1995 年，FDA 批准， CDC在 12 至 15 个月大的儿童的儿童期计划中添加了一种水痘活疫苗 Varivax，为一种微不足道的儿童疾病增加了风险，一时间，几乎是一种普遍的体验。
+一定是要青蒿素的药吃
+it must be pharmaceutical artemisinin
 
-**引入**** Varivax ****后，成人和一些儿童的带状疱疹病例激增。**有时，接种疫苗的孩子还会患上水痘，通常在年龄较大的情况下会更严重。
+他说几乎是100%就能铲除
+He said almost 100% of the sequelae can be eradicated
 
-默克针对 Varivax 及其麻疹-腮腺炎-风疹-水痘疫苗 ProQuad 的包装说明书，**明确将带状疱疹列为不良事件**，**几种肝炎疫苗和脑膜炎球菌疫苗 （****Menactra****） 也是如此**。
+但是身体里不会留下来的
+The body will not leave after-effects
 
-在引入水痘疫苗接种十年后，CDC 并没有承认存在任何问题，而是将疫苗诱导的免疫力减弱作为在儿童期接种水痘疫苗的理由。
+所以兄弟姐妹们要吃对药，吃正确药
+So brothers and sisters, please take the right medicine
 
-该机构还开始推荐默克的 Zostavax 疫苗来“抵消”成年人带状疱疹发病率的增加。
+特别像地塞米松，它是等躺到了病房里边，稳定你的血氧（用的）
+Especially like dexamethasone, which is used to stabilize your blood oxygen when you are lying in the ward
 
-（注释：FDA 要求默克公司再次更改标签，以警告使用 Zostavax 的人，疫苗可能导致坏死性视网膜炎——一种极其严重的眼病。并使Zostavax撤出市场）
+然后这个彻底的，有伤害性的救你命的药，它不能天天吃，它也不能病前吃 but this is thorough, harmful life-saving medicine.
 
-**默克公司于**** 2020 ****年底将**** Zostavax ****撤出市场，并卷入了疫苗伤害诉讼，“范围从因疫苗感染带状疱疹到严重的人身伤害，例如一只眼睛失明，四肢严重瘫痪的人， 脑损伤，直至死亡。”**
+它不能天天吃，它也不能病前吃
+It can not be taken every day, and it can not be taken before you have COVID-19
 
-当 CDC 举报人试图发布记录带状疱疹和其他水痘疫苗接种引起的其他不良后果发生率增加的数据时，CDC 人员试图掩盖调查结果，包括采取“**助长混淆和渎职”的行动**。
+伊维菌素和羟氯喹和锌是防病毒，解病毒的
+Ivermectin, hydroxychloroquine and zinc are antiviral
 
-最后，在文章的最后部分，再从历史线索看，疫苗造成了免疫失调而出现带状疱疹的相关性。
+青蒿素是彻底铲除疫苗残留和防止病毒和挡病毒的
+Artemisinin is a complete eradication of vaccine residues, prevent viruses and block viruses
 
-请阅读上一篇：[疫苗正在破坏免疫系统 带状疱疹可略见一斑（1／3）](https://gnews.org/zh-hans/1740007/)
+青蒿素里的保健品是防病毒
+Artemisinin’s health products are anti-viral
 
-下一篇：疫苗正在破坏免疫系统 带状疱疹可略见一斑（3／3）
+青蒿素的药治癌症，消除疫苗毒
+Pharmaceutical artemisinin cures cancer and eliminate vaccine poison
 
-**参考资料：**[childrenshealthdefense.org][Vaccines Are Sabotaging the Immune System. Shingles May Hold Some Answers.](https://childrenshealthdefense.org/defender/covid-vaccines-shingles-immune-system-detoxification/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=bab690cc-6081-47bc-9178-aa913b21cfc7)
+包括消除得冠状病毒后的所有身体的残毒
+Including the elimination of all the residual virus of the body after the coronavitus
+
+大家一定要把这个搞明白，谢谢
+Everyone must understand this, thank you
 
 * * *
 
-*审核：文乐
-校对：阿伯塔*
-*发布：信心的选择*
+Date:11/30/2021
+原视频标题: 各种解药的功效
+The efficacy of various antidotes
+原视频日期：2021/11/26
+原视频链接[https://gettr.com/post/pi1eag4d14](https://gettr.com/post/pi1eag4d14)
+任务编号：KC321(3035)
+视频时间段 : 0:00-02:06
+中听校：洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 -Layka Mike
+翻译终校：洛杉矶盘古农场 – Freeearth
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH..jpeg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
