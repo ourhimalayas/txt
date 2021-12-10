@@ -2,39 +2,26 @@
 ---
 
 
-## 澳、英、美、加抵制冬奥会，法国和德国表示不会加入
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1737745/)
+## 美以酝酿联合演习，拟打击伊朗核设施
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1737758/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+**【雅典娜快讯】，紧贴时事脉搏**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/06dc-bidenolympics-master1050.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-461.png)图片来源：DEBKA
 
+12月9日，据多方报道，在美伊重启谈判几天后，以色列和美国将讨论举行联合军演的可能性，为攻击伊朗核设施做准备。
 
- 
-图片来源: 纽约时报
+路透社报道，美国军事官员和以色列国防部长本尼·甘茨定于周四举行的会议将考虑进行联合演习。
 
+虽然这位美国官员拒绝讨论演习的细节，但以色列坎特广播公司周三早些时候的一份报告显示，这些演习将涉及“几十架”飞机——包括F-35、F-16和F-15战斗机、侦察机和加油机，演习将在地中海上空举行，以模拟战斗机对伊朗核设施进行打击所需的距离，大约620英里（1,000公里）。媒体称，演习可能会在2022年上半年的某个时候举行。
 
-#### 整理报道 ：小红帽
+尽管德黑兰长期以来一直坚称它没有发展核武器的计划，而且其原子能计划仅用于和平目的，但这位美国官员继续说，如果伊朗追求核弹，未来的演习将为针对伊朗的“最坏情况”做好准备。
 
-继澳大利亚、英国、美国和加拿大对北京冬奥会进行外交抵制后，中国政府宣布，美国将为其决定“付出代价”，并警告将采取反制措施，。
+美国官员与以色列防长的会晤，双方希望恢复在2015年签署的伊核协议内容，该协议对伊朗的核计划进行了严格限制，以换取制裁减免。自美国前总统唐纳德·川普于2018年单方面退出该协议以来，伊朗不断缩减自己对该协议的承诺，坚持认为只有在美国解除制裁后才会回到协议条款中。自那时起，它逐渐提高了铀的浓缩程度，根据国际原子能机构(IAEA)的数据，上周将铀的纯度提高到20%，但离生产核武器所需的90%或更高的纯度仍有较大差距。
 
-澳大利亚坚称，决定不派官员参加冬季奥运会，原因是**澳洲在与中国重开外交渠道以谈论新疆地区的人权问题方面遇到困难。**
+新闻链接：[US & Israel mull drills to strike Iran’s nuclear sites – reports — RT World News](https://www.rt.com/news/542623-us-israel-iran-nuclear-drills/)
 
-**同时，法国和德国宣布，不会对北京冬奥会作出外交抵制。**
-
-12月9日，法国和德国举行了联合新闻发布会并表示，体育本身就是一个世界，必须保护其不受政治干扰。
-
-法国外交部长让-米歇尔·布朗克（Jean-Michel Blanquer）表示，**中国的侵犯人权行为必须受到谴责，**但法国体育部长玛拉西尼亚努（Roxana Maracineanu）仍然会出席奥运会。
-
-澳大利亚奥委会（Australian Olympic Committee）表示，抵制不会影响运动员为2月4日至20日举行的奥运会做准备，并指出“外交选择”是各国政府的事。
-
-新闻来源：
-
-1. [法国和德国宣布不会外交抵制北京冬奥会 (sbs.com.au)](https://www.sbs.com.au/chinese/mandarin/zh-hans/france-and-germany-have-declared-they-won-t-join-a-diplomatic-boycott-of-the-beijing-winter-olympics)
-2. [加拿大、英国宣布对北京冬奥会进行外交抵制 (sbs.com.au)](https://www.sbs.com.au/chinese/mandarin/zh-hans/canada-and-the-uk-join-australia-and-the-us-in-diplomatic-boycott-of-the-beijing-winter-olympics)
-
-
-***发布：小红帽***
+**编辑/发布：文泓**** **
 
 **更多资讯，请关注：****
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena

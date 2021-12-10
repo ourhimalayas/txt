@@ -2,36 +2,34 @@
 ---
 
 
-## 美国众院压倒性通过《防止强迫维吾尔人劳动法》
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1737771/)
+## 澳大利亚政府强烈建议5至11岁儿童从1月初开始接种中共病毒疫苗
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1737773/)
 
-作者：日本方舟农场 – Andy5
-![This image has an empty alt attribute; its file name is 1-28.png](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
-周三，美国众议院以428票赞成、1票反对，压倒性通过了《防止强迫维吾尔人劳动法》。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/5-16.jpg)
-该法案由民主党众议员吉姆·麦戈文和共和党议员克里斯·史密斯联合提出。史密斯议员表示，新疆所发生的种族灭绝，直接违反了《联合国防止及惩治灭绝种族罪公约》的第二条，习近平应该为其下达的命令负责。
+**翻译/编辑 ：心语心生**
 
-该法案要求国土安全部拟定一项清单，列举出与中共政府合作压迫维吾尔人的实体，并禁止所有涉及强迫劳动生产的商品流入美国市场。除了这项法案，众议院在当天还高票通过了另外两项涉及新疆维吾尔人权的议案。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-463.png)**图片来源: www.abc.net.au**
 
-参考链接：
+超过200万名儿童将要被接种中共病毒疫苗，这会进一步扩大澳大利亚人口接种疫苗的覆盖面。
 
-- [众议院通过三项涉新疆人权议案 禁止强迫劳动产品入美国](https://www.voachinese.com/a/us-house-passes-uyghur-bills-20211208/6346179.html)
-- [美参议院一致通过《防止强迫维吾尔人劳动法》将禁止进口新疆产品](https://www.voachinese.com/a/senate-passes-bill-to-ban-all-products-from-xinjiang-20210714/5966494.html)
+儿童最初将接受辉瑞公司的疫苗，但是Moderna公司也在寻求批准加入病毒疫苗推广计划。
 
+政府声称儿童一般只有轻微的中共病毒疫苗症状，但会有潜在的严重疾病或长期并发症的风险。并特别建议已经有其他风险因素（如严重疾病）的孩子或生活在病毒疫苗爆发地区的孩子接种疫苗。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
+卫生部长格雷格-亨特说，政府将强烈建议儿童接种疫苗。
 
-总编辑：飞虹
-编辑：飞虹/雪梨
-校正/发稿：海阔天空1
+预订接种中共病毒疫苗将于12月下旬开始，预计将通过各州和地区的诊所、全科医生、药房和原住民健康服务机构提供疫苗接种。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
+##### 新闻来源：[COVID.AU](http://COVID-19%20vaccine%20to%20be%20rolled%20out%20to%20children%20aged%20five%20to%2011%20from%20early%20January)
+
+*发布：盘古相聚*
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
