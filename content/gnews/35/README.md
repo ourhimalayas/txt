@@ -2,40 +2,28 @@
 ---
 
 
-## 澳洲储备银行行长表示：有可能发行央行数字货币
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1737821/)
+## 泰德-克鲁兹怒斥疫苗强制是非法的，违宪的，是荒谬的滥用权力
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1737902/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+加拿大扬帆农场 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2021/12/IMG_3341.jpg)图片来源： Fox Business
+根据《福克斯商业新闻》12月9日报道，参议院周三否决了拜登对私人雇主的疫苗强制令。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/8746618-3x2-940x627-1-1.jpg)图片来源：ABC NEWS
+得克萨斯州参议员和律师泰德-克鲁兹周四在接受福克斯商业频道采访时抨击拜登总统，认为拜登对私人雇主的疫苗强制是”荒谬的滥用权力”。
 
+克鲁兹说：“需要彻底灭了这项强制令。疫苗强制是非法的，是违宪的，是一种荒谬的滥用权力。我认为拜登知道这一点，我认为白宫的律师应该告诉拜登这是非法的，会在法庭上被否决。但是他们还是做出了决定，试图执行这项强制令。假设诉讼需要时间，也许需要几个月或几年，在此期间，一大批人会屈从”。
 
-#### 整理报道 ：小红帽
+他继续说道：“昨晚的投票是一次真正重要的投票。我们就撤销拜登对私人雇主的疫苗授权进行了投票，它以两党的多数票否决了强制令。每位共和党人和两位民主党人乔-曼钦和乔恩-特斯特都投了我们的票”。
 
-澳大利亚储备银行（RBA）行长菲利普·洛（Philip Lowe）表示，欢迎政府对支付系统进行监管整顿。如果更多的澳大利亚人利用数字钱包来使用密货币支付，那么“可能很快出现令人信服的理由”来推出由中央银行支持的数字货币。
+克鲁兹表示：“现在将进入众议院。南希-佩洛西将面临压力。南希不想对此进行投票，她会尽力争取不对这个进行投票。而众议院的共和党人将迫使其投票。问题是，是否会有少数众议院的民主党人有勇气站出来反对南希-佩洛西？我不知道这个问题的答案。南希将试图扼杀它，但如果他们在众议院投票，你看到少数民主党人有哪怕一点点的勇气，它就会否决，然后会交给乔-拜登。现在，考虑到他是那么极端，他可能会反对。但这是两党对非法和滥用疫苗授权的否定”。
 
-澳储行此前一直对一种零售央行数字货币（CBDC）的必要性持怀疑态度，但在今天上午对澳大利亚支付网络（Australian Payments Network）的一次演讲中，菲利普提供了最明确的信号，即”电子澳元（eAUD）”的合理性正在增长。
+原文链接：
 
-菲利普表示，数字钱包，如Apple Pay、Google Pay和Samsung Pay，正在取代实体钱包，而且它们只会越来越受欢迎。
+[https://www.foxbusiness.com/politics/ted-cruz-vaccine-mandate-is-illegal-unconstitutional-and-grotesque-abuse-of-power](https://www.foxbusiness.com/politics/ted-cruz-vaccine-mandate-is-illegal-unconstitutional-and-grotesque-abuse-of-power)
 
-所谓的 “稳定币”(stablecoins)——一种政府支持的加密货币形式，将提供更稳定的价值，有可能变得更加普遍。
+* * *
 
-“该加密货币可能会为新的代币或基于账户的钱的数字形式提供访问。这可能允许通过移动代币来进行日常支付，而不是在银行账户之间移动钞票或价值。”
-
-“有可能，这种代币由澳大利亚央行发行并由其支持，就像我们发行和支持澳元纸币一样。这将是一种零售央行数字货币（CBDC）的形式——或电子澳元。”
-
-菲利普重申了储行的立场，即其他加密货币没有受到任何传统资产的支持，而且价值经常出现剧烈波动，不适合作为日常支付形式。
-
-新闻来源：[澳储行行长发出讯号：央行支持的数字货币是有可能的 – 澳大利亚人报中文网 | 国内外时事新闻 | 金融财经 | 教育 | 房产投资 (theaustralian.com.au)](https://cn.theaustralian.com.au/2021/12/09/61755/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+发稿Spirit
 
  
 
