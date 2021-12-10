@@ -2,22 +2,24 @@
 ---
 
 
-## COVID-19 最新情报｜研究指出：鼻咽处清除后 新冠病毒仍持续存在于肠道组织
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1738900/)
+## 两党议员宣布强制要求社交媒体公司对外分享数据的法案
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1739033/)
 
-**疫情關注組 / 發佈時間｜10/12/2021**
+#### 撰稿：彩虹
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-2-2.png)图片来源：参议院
+12月9日，《国会山报》报道，根据两党参议员于周四宣布的一项新法案，Meta（即Facebook）和其他社交媒体公司将被要求与外部研究人员分享其数据。
 
+发起该法案的参议员分别是民主党人克里斯·库恩斯(Chris Coons)、艾米·克洛布切(Amy Klobuchar)和共和党人罗伯·波特曼(Rob Portman)。他们强调，该法案也适用于其他社交媒体公司，但主要是由于脸书（Facebook）文件中泄露的有关Meta公司平台的信息，从而提出了该法案。
 
-据BMC所载的相关研究，新冠病毒可能会引起轻微的肠道症状，而部分患者可能发生更严重的肠道并发症。研究通过**透射电子显微镜** (TEM)，证实新冠病毒(SARS-CoV-2)可存在于肠道组织内皮细胞中。
+该《平台问责和透明度法案》（Platform Accountability and Consumer Transparency Act）将允许独立研究人员向国家科学基金会（NSF）提交请求，如果这些请求得到批准，则社交媒体公司将被要求在遵守某些隐私保护规定的情况下提供必要的数据。
 
-研究内容提及两名COVID-19 患者（其中一名患有肠道淋巴瘤，另一名患有缺血性结肠炎），在确定鼻咽处的新冠病毒被清除后，通过透射电子显微镜 (TEM)发现新冠病毒仍继续存在于肠道组织内皮细胞。其中一病例，**在鼻咽部病毒清理完成后6个月，肠组织仍留存病毒，具潜伏感染可能**。
+如果社交媒体公司未能遵守该法案的要求，他们将受到联邦贸易委员会（FTC）的强制执行，并将失去《通讯规范法》（Communications Decency Act）第230条的保护。该法案还赋予联邦贸易委员会权力，可以要求平台持续主动地将有关信息向资源（研究机构）和公众提供，例如包含用户定位和参与的相关广告信息库。
 
-2020 年 3 月 1 日至 4 月 30 日期间，有932名COVID-19病患在 Universitari Mútua Terrassa住院治疗，其中41名（4.4%）病患发生严重腹痛，6名需要进行腹部手术。通过透射电子显微镜 (TEM)可以确定COVID-19 引发肠道损伤具有因果关系，但严重肠道并发症并不常见。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-2.png)
-来源￨[BMC](https://bmcgastroenterol.biomedcentral.com/articles/10.1186/s12876-021-01905-3)
+**新闻来源**
+
+[Senators unveil bipartisan bill requiring social media giants to open data to researchers](https://thehill.com/policy/technology/585069-senators-unveil-bipartisan-unveil-bill-requiring-social-media-giants-to)
 
  
 

@@ -2,39 +2,22 @@
 ---
 
 
-## 中共金钱外交再次奏效，尼加拉瓜宣布与台湾断交
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1738310/)
+## COVID-19 最新情报｜诚实豆沙包？新西兰总理承认“疫苗接种计划没有终点”
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1738442/)
 
-**【雅典娜快讯】，紧贴时代脉搏**
+**撰文｜疫情关注组 / 发布时间｜10/12/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup）](https://gettr.com/user/mightygroup%EF%BC%89)**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-476.png)图片来源：TrtWorld
+自从COVID-19 疫情爆发起，坊间就一直流传着一种说法，“疫情是前菜，疫苗才是主菜。”暗示少数权贵为实现全球人口锐减计划，会永续推行疫苗接种，直至全球总人口降到10亿为止。
 
-**整理报道：文泓**
+本来这种被认为是“疫苗阴谋论”的说法一直受到主流媒体及政治精英们的贬斥，不料，新西兰总理杰辛达·阿德恩 (Jacinta Ardern) 在日前一次采访中，竟然说漏嘴，间接证实了“阴谋论”的猜测。
 
-当地时间周四，[尼加拉瓜外交部长丹尼斯·蒙卡达在一份声明中宣布与台湾断交，中共国金钱外交攻势再次奏效。](https://www.rt.com/usa/542624-pentagon-china-taiwan-defenses/)
+**阿德恩总理表示，“在我看来，只要还有符合条件但没有接种疫苗的人，我就不会满意，我们就有事要做，这就是我所说的，这个疫苗接种计划不会有终点。”**
 
-声明说，“尼加拉瓜共和国政府宣布，它承认世界上只有一个中共国”，并补充说，“中华人民共和国是代表全中国的唯一合法政府”，“台湾是中共国领土不可分割的一部分”。
-
-12月10日，即日起尼加拉瓜共和国政府与台湾断绝外交关系，停止任何接触或官方关系。
-
-台湾外交部对此回应，它对尼加拉瓜的决定感到“痛苦和遗憾”。外交部还辩称，它有权在世界各地建立外交关系。
-
-现在只有14个主权国家与台湾有正式的外交关系——其中大部分是小国和经济欠发达国家。它们是危地马拉、洪都拉斯、巴拉圭、伯利兹、海地、圣文森特和格林纳丁斯、圣基茨和尼维斯、圣卢西亚、瑙鲁、马绍尔群岛、帕劳、图瓦卢、埃斯瓦蒂尼和（梵蒂冈）教廷。
-
-尼加拉瓜加入了几十年来将外交关系从台湾转到中共国的一百多个国家的名单。所罗门群岛在2019年将其外交承认从台湾转向中共国，而多米尼加共和国和萨尔瓦多在2018年与台湾断绝关系。巴拿马在2017年与台湾断绝外交关系，转而支持中共国。
-
-目前，台湾外交空间遭中共国空前挤压。
-
-新闻链接：[Another country breaks ties with Taiwan — RT World News](https://www.rt.com/news/542746-nicaragua-breaks-ties-taiwan/)
-
-*发布：盘古相聚*
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+值得留意的是，在整个采访中，她多次转换用词，屡次将“只要还有人选择不『接种疫苗』”更正为“只要还有符合条件的人选择不 ‘接种疫苗’ ”，令人担忧，这位总理的潜意识里，是否正在计划推行全民疫苗强制令。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-7.jpg)
+来源｜[MSN](https://thecovidworld.com/new-zealand-pm-jacinda-ardern-theres-not-going-to-be-an-endpoint-to-this-vaccination-program/)
 
  
 

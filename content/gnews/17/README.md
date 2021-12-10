@@ -2,30 +2,328 @@
 ---
 
 
-## 我们一定会赢！
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1738601/)
+## 每日快报：挪威专家称Omicron可提供自然免疫
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1738655/)
 
-**撰稿：东京樱花团/****黑猫**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-120.png)
-习猪头这次对七哥老父亲和盘古员工及住客的行动，再次向全世界证明了中共有多么残暴，他们是怎样对待人民的，想抓就抓，想杀就杀。
+*作者：*映兰轩
 
-以前因为有防火墙，加上全世界没有一个报道真相的媒体，全世界都被谎言蒙蔽洗脑。现在不同了，我们自己已有报道真相的媒体–GTV、GNEWS、盖特。几乎是在他们胡作非为的同时就被暴露到全世界。世界越来越多的人不再相信他们的谎言了。这也让我们爆料革命战友再次看到媒体有多么重要。
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/每日快报.png)
 
-七哥说过他手上有几千个盗国贼子女亲属的地址、银行账号、电话号码等个人信息，这些都是这几十年老杂毛们掏空国库，费尽心思隐藏在海外的命根子。这次的行动直接针对每一个老杂毛的个人财产和子女，直接掏了他们的心窝。估计七哥直播后，中南坑就炸窝了，七哥昨天也说很多人打电话来和他求情勾兑。
+# ***今日摘要***
 
-想必这些老杂毛们要恨死习猪头，尤其是江派的，几十年来韬光养晦闷声发的大财，被习猪头拱得鸡飞狗跳，最后连他们最在意的血脉也要被断掉，想想不得咬着后槽牙要杀习猪头，中共内部将会成为最后的厮杀战场。
+1. [挪威COVID专家称Omicron是可提供 “自然免疫 “的 “最佳方案”](https://www.zerohedge.com/covid-19/norwegian-covid-experts-says-omicron-could-provide-best-scenario-natural-immunity)
+2. [科学家可能已经发现为什么COVID对胖人的打击更大](https://www.zerohedge.com/covid-19/scientists-may-have-discovered-why-covid-hits-fat-people-harder)
+3. [维吾尔族法庭裁定: 中共在新疆犯下种族灭绝罪](https://www.voachinese.com/a/Uyghur-tribunal-rules-China-committed-genocide-against-Uyghurs-20211209/6347695.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
+4. [辉瑞公司首席执行官Bourla：由于Omicron的存在，我们可能更快需要第四剂疫苗](https://www.breitbart.com/clips/2021/12/09/pfizer-ceo-bourla-we-may-need-fourth-dose-of-vaccine-sooner-because-of-omicron/)
+5. [中国用基因编辑技术制造 “人化猪 “然后用冠状病毒感染它们](https://www.breitbart.com/asia/2021/12/09/china-creating-humanized-pigs-gene-editing-infecting-coronavirus/)
 
-七哥宣布取消郭七条，这是爆料革命的一个重大的转折点，也是吹起了爆料革命总攻的号角。
 
-到现在为止跟随爆料革命走下来的战友，是真的为灭共来的？还是来投机赚钱的？还是来蹭热度的？到了考验战友的时刻。
+# 重要事件
 
-大浪淘沙，沙里淘金。希望战友们不离不弃，最后都能成为跟着七哥走向喜马拉雅的5%的金子。
+- [** 12.09.Zerohedge ：**挪威COVID专家称Omicron是可提供 “自然免疫 “的 “最佳方案”Norwegian COVID Experts Says Omicron Could Provide “Best Scenario” Of “Natural Immunity”](https://www.zerohedge.com/covid-19/norwegian-covid-experts-says-omicron-could-provide-best-scenario-natural-immunity)
 
-相信天地之间，人类是有主人的！
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+挪威的COVID专家说，Omicron变体具有高度的传播性，但是 “比较温和”，这可能被证明是 “最好的情况”，因为它将提高 “自然免疫力”，并使大流行病的结束更接近。
+
+该国的国家流行病学家弗洛德-福兰德（Frode Forland）正在对南非以外最大的Omicron疫情的消息作出回应，该疫情发生在奥斯陆的一个圣诞聚会上。《电讯报》报道：”11月26日晚参加Louise餐厅和酒吧的多达120人现在已经对冠状病毒检测呈阳性，其中约有一半人对Omicron检测呈阳性，其中13人在测序中被证明有该变体” 。奥斯陆传染病医生蒂内-拉夫罗透露：”他们有发烧、咳嗽、头痛、肌肉疼痛、疲劳等症状，但就目前而言，他们中没有人病得很严重，也没有人在医院接受治疗”。
+
+福兰德认为这是一个积极的消息，因为它清楚地表明该变体 “将是非常温和的，而且非常具有传播性”。”这就是希望。这是我们能得到的最好的情况，”他说，”那就是它变得更容易，大多数人都会得到它，而且他们会得到一种自然免疫力。””可能是它现在已经复制和变异了很多次，从病毒的角度来看，这是一个最佳的位置，可以广泛传播而不杀死宿主，”福兰德补充说。”这就是我们之前在其他疾病上看到的情况。当然，然后它就会进入更像流行病的阶段。”他总结说。
+
+南非最大的私人医疗网络的首席执行官反映了挪威专家的立场，他断言Omicron变体 “非常温和”，它 “可能标志着COVID-19的结束”。
+
+据Netcare有限公司的首席执行官Richard Friedland称，Omicron变体 “具有高度传染性，但不会导致严重的疾病。这就是西班牙流感的情况”。”所以我实际上认为这里有一线希望，这可能预示着Covid-19的结束。”他补充说。期待那些依靠大药厂的巨额广告费和延长对COVID的恐惧而获得高收视率的企业媒体，完全无视所有这些发现。
+
+- ** **[**12.09.Zerohedge：**科学家可能已经发现为什么COVID对胖人的打击更大Scientists May Have Discovered Why COVID Hits Fat People Harder](https://www.zerohedge.com/covid-19/scientists-may-have-discovered-why-covid-hits-fat-people-harder)
+
+
+据《纽约时报》援引10月份发表的一项研究称，现在，科学家可能有了一条线索，知道为什么Covid对胖子的影响更严重–它同时感染脂肪细胞和身体脂肪内的某些免疫细胞，促使身体做出积极的反应。
+
+这项研究还没有经过同行评议或发表在科学杂志上，但它已于10月被张贴在网上。如果研究结果成立，它们不仅可以说明为什么体重过重的病人容易受到病毒的影响，而且还可以说明为什么某些没有其他风险的年轻成年人会变得如此糟糕。
+
+该研究的资深作者，斯坦福大学医学院的Tracey McLaughlin博士和Catherine Blish博士表示，这些证据可能指向针对身体脂肪的新Covid疗法。
+
+这一发现与美国特别相关，美国是世界上肥胖率最高的国家之一。大多数美国成年人都超重，42%有肥胖症。美国的黑人、西班牙裔、美国原住民和阿拉斯加原住民的肥胖率高于白人成年人和亚裔美国人；他们也不成比例地受到这种流行病的影响，其死亡率大约是美国白人的两倍。-纽约时报
+
+耶鲁大学医学院比较医学和免疫学教授Vishwa Deep Dixit博士说：”也许这就是病毒用来逃避我们的保护性免疫反应的阿基里斯之踵–通过躲在这个地方。“
+
+据斯坦福大学的Blish博士说，”这很可能是导致严重疾病的原因……。我们看到我在真正生病的病人的血液中看到的相同的炎症细胞因子正在对这些组织的感染做出反应。”
+
+- ** **[**12.09. Voachinese：**维吾尔族法庭裁定: 中共在新疆犯下种族灭绝罪](https://www.voachinese.com/a/Uyghur-tribunal-rules-China-committed-genocide-against-Uyghurs-20211209/6347695.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
+
+
+总部位于英国的独立审判机构“维吾尔族法庭”（Uyghur tribunal）星期四（12月9日）表示，法庭“确信”中国政府犯下了种族灭绝罪。
+
+法庭主席杰弗里·尼斯爵士（Geoffrey Nice）表示，根据公开听取的证据，法庭确信，“中国通过限制和减少出生数量”来达到毁灭新疆大部分维吾尔人的长期计划，“已经犯下灭绝种族罪”。
+
+法庭还确信“习近平主席、陈全国以及中国和中共其他高级的官员对在新疆发生的行为负有主要责任”。
+
+法庭还表认为，虽然“可能发生的任何犯罪行为，无论强奸或酷刑，不会在习近平和其他人详细了解的情况下进行”，但法庭确信这些行为是政策以及习近平等人言论的直接结果。
+
+维吾尔族法庭还确信“中华人民共和国实施了一项全面的政策，摧毁宗教场所，对维吾尔族宗教进行了系统的攻击，以消除宗教‘极端主义’”。
+
+中国外交部发言人星期四就维吾尔族法庭的“最终判决”作出回应。发言人称“法庭”既“无任何法律资质，也不具备任何公信力，此前多次反华活动的险恶用心已经被事实戳破，为国际社会有识之士所不齿。这样一个‘谎言制造机’搞所谓‘最终判决’，就是几个跳梁小丑表演的政治闹剧”。中国外交部发言人还说：“谎言掩盖不了事实真相，蒙蔽不了国际社会，更阻挡不了中国新疆稳定发展繁荣的历史进程。这场闹剧注定要被世人所唾弃、被历史扫进垃圾堆。”
+
+据该组织官网介绍，世界维吾尔代表大会主席多里坤·艾沙（Dolkun Isa）于2020年6月要求杰弗里·尼斯爵士（Geoffrey Nice）成立并主持一个独立的人民法庭，以调查针对维吾尔族，哈萨克族和其他穆斯林人口的“持续暴行和可能的种族灭绝”。维吾尔族法庭于2020年9月3日在非政府组织“应对种族灭绝联盟”的协助下成立。
+
+法庭官网还介绍说，虽然没有制裁权力，但法庭将根据调查结果作出判决，这可能是一个起点，让各国、国际组织、公司、个人和其他行动者根据相关调查结果采取行动。为了调查中国政府在新疆涉嫌侵犯维吾尔人和其他穆斯林少数民族的权利，法庭曾于6月在伦敦的教堂之家举行了首次听证会，听取了38名证人的证词。第二次听证会在9月举行。
+
+中共当局在新疆对维族人进行系统性迫害的行为正在受到日益扩大的国际关注。一些国际人权组织说，新疆规模庞大的拘押营关押了至少一百万维吾尔和其他少数民族的穆斯林。据指控，被关押者遭受了酷刑、强迫绝育、洗脑、强迫劳动等虐待。中共官方否认虐待维族人，和“强拆清真寺”的指控。中共辩称新疆问题的本质是反暴恐、去极端化、反分裂问题，而不是所谓人权宗教问题。
+
+就在一天前，美国国会众议院通过了《防止强迫维吾尔人劳动法》(The Uyghur Forced Labor Prevention Act)，将禁止任何由强迫劳动生产的产品进入美国市场。众议院还通过了另外两项涉及新疆的决议，在新疆穆斯林少数民族穆面临的人权危机问题上谴责中国政府，并批评国际奥委会未能遵守对捍卫人权的承诺。
+
+- [** 12.09.Breitbart ：**辉瑞公司首席执行官Bourla：由于Omicron的存在，我们可能更快需要第四剂疫苗Pfizer CEO Bourla: We May Need Fourth Dose of Vaccine Sooner Because of Omicron](https://www.breitbart.com/clips/2021/12/09/pfizer-ceo-bourla-we-may-need-fourth-dose-of-vaccine-sooner-because-of-omicron/)
+
+
+辉瑞公司首席执行官Albert Bourla周三建议，随着Omicron变体的扩散，可能有必要接种第四剂COVID疫苗。
+
+“看到它的最好方式是病毒是敌人。我们想保护自己。我们建立一堵墙。Bourla在CNBC的 “Squawk Box “节目中解释说：”第一剂疫苗建立了一堵墙，但它不是很高”。
+
+他继续说：”第三剂把墙筑得很高，应该有望阻止Omicron的到来。因此，有两剂的人，他们应该得到第三剂，但如果他们有两剂，很可能你比他们没有任何或只有一剂的人得到更好的保护，因为有不同的免疫反应要素。”
+
+“任何国家都给免疫力低下的人和特殊人群注射了第四剂，我想包括美国，所以如果你免疫力低下，你可能会比–使其超过三剂–更早得到它，”Bourla后来补充说。”而且我认为他们是有预防措施的。我认为当我们看到真实世界的数据时，我们将确定Omicron是否能很好地覆盖第三剂，以及多长时间。而在某一点上，我认为我们将需要第四剂。我已经说过很多次了。对于前者，我预测那将是在第三剂后的12个月。对于Omicron，我们需要等待和观察，因为我们的信息非常少。我们可能需要更快。”
+
+- [** 12.09. Breitbart：**中国用基因编辑技术制造 “人化猪 “然后用冠状病毒感染它们China Creating ‘Humanized Pigs’ with Gene Editing Then Infecting Them with Coronavirus](https://www.breitbart.com/asia/2021/12/09/china-creating-humanized-pigs-gene-editing-infecting-coronavirus/)
+
+
+中国国营的《环球时报》周四庆祝据称发现了一个科学过程，可以创造出更容易感染中国严重冠状病毒病例的 “人性化猪”，科学家可以感染并用于研究。
+
+该宣传媒体将这一科学成就归功于中国科学院微生物研究所（IMCAS）。中科院是一个研究机构，是世界上最大的同类组织，也是中国政府的一个正式机构。《泰晤士报》发表了一个关于 “人性化 “猪的发展的说明性数字，该数字似乎首次出现在8月份发表的一项研究中，该研究基于科学家可以快速生成猪以及它们与人体的高度相似性，提倡将转基因猪用于中国冠状病毒研究。
+
+8月的研究–发表在中科院主办的《细胞发现》杂志上–显示中国科学家曾试图使用CRISPR基因编辑技术来移除基因保护罩，这些保护罩使中国冠状病毒对大多数猪没有重大威胁。2018年，CRISPR技术成为全球争议的来源，此前中国科学家贺建奎声称使用该方法对未出生的双胞胎婴儿进行基因改造，使其对艾滋病毒具有免疫力。共产党判处贺建奎有期徒刑三年，因为他在没有得到党的充分批准的情况下进行了人体实验。
+
+除了 “人化猪 “之外，《环球时报》还称赞英卡思创造了 “人类远端肺器官（hDLO）”。根据同行评议杂志《自然方法》，类器官是 “一种三维多细胞体外组织构造，模仿其相应的体内器官，从而可用于在组织培养皿中研究该器官的各个方面。”
+
+“现有的细胞系和用于模拟COVID-19[中国冠状病毒]感染的豚鼠和一些灵长类动物模型不能捕捉人类生理学的关键特征，因此限制了对疫苗和药物疗效测试的准确性，”《环球时报》断言说。”这两个新模型可以显示与实际的COVID-19患者相似的临床特征。”
+
+“更好地模拟人体使这两个模型在深入研究COVID-19如何在人体中感染和发展方面更加可靠，”该国家报纸声称，几个国家基金 “支持 “人源化猪 “和 “类器官 “实验。
+
+8月发表在《细胞发现》上的关于人源化猪的研究感叹，尚未发现与人类相似的自然发生的哺乳动物形式出现严重的冠状病毒症状，”呼吁建立一个更好的大型动物模型，可以模拟COVID-19的全部症状”。为了创造出更容易受到中国冠状病毒严重影响的猪，科学家们声称利用CRISPR/Cas9技术在子宫内对猪进行了改造，使其具有ACE2受体，这是中国冠状病毒用来结合在细胞上并造成损害的一种蛋白质。研究表明，如果没有它们，该病毒繁殖和伤害其宿主身体的机会要小得多。
+
+CRISPR，即聚类规律性间隔短文重复，是基因编辑技术的一种形式。根据CRISPR疗法，CRISPR/Cas9 “通过精确切割DNA来编辑基因，然后让自然的DNA修复过程来接管。”
+
+“在这里，我们报告了我们为COVID-19研究创建第一只表达hACE2受体的人源化猪的尝试，推测猪ACE2受体的人源化可以使猪对SARS-CoV-2具有敏感性，”研究报告写道。
+
+科学家们指出，该实验的最终目的是生猪害人–让它们感染中国冠状病毒并研究其健康的高级退化。细胞发现实验中的科学家说，他们故意用中国冠状病毒感染小猪的肾脏和肺部细胞，与自然猪相比，中国冠状病毒 “显示出明显的细胞病理学效应”。
+
+据世界卫生组织（W.H.O.）称，中国冠状病毒感染的严重病例可引起极其痛苦的症状，如多器官衰竭、呼吸困难、肺炎和其他危及生命的情况。
+
+科学家们庆祝他们的实验在 “短时间内 “产生了 “大量 “的小猪。他们写道，这些小猪也可以被制成其他疾病，从而提供了 “一个独特的机会，结合这些现有的疾病来复制COVID-19的严重病例”。
+
+这个实验远不是第一个关于猪作为人类疾病容器的实验。早在2014年，研究人员就试图对猪进行基因改造，在它们体内创造出能够在人体中发挥作用的器官，从而有可能消除对人类器官捐赠者的需求。科学家们还试图改造猪的干细胞，以创造 “人性化的猪”，用于研究中国冠状病毒以外的其他疾病。
+
+猪的实验再次引起了人们对中国使用活体动物进行科学研究的担忧。6月，上海的科学家声称成功使一只雄性老鼠受孕，震惊了世界。实际上，科学家们把一只雄鼠和怀孕的雌鼠缝在一起，把雌鼠的子宫移到雄鼠体内，并让它们活着，直到雌鼠分娩。科学家们不祥地指出，这项研究 “可能对生殖生物学产生深远影响”。
+
+中国共产党目前正在东突厥斯坦进行广泛的绝育运动，这是一个被该政权称为新疆的西部占领区，它破坏了少数民族妇女的生殖能力，主要是维吾尔族，以限制该群体的人口。研究该运动的独立组织–维吾尔族法庭周四裁定，中国 “毫无疑问 “犯有对维吾尔族的种族灭绝罪–主要是基于其强迫妇女绝育和杀害维吾尔婴儿。
+
+# 每日文贵说
+![Image](https://media.discordapp.net/attachments/825592691433668612/911188005455286303/20211117.jpg?width=1043&amp;height=587)
+# 更多要闻链接
+
+1. [专家：全部中国公司退市也不会对华尔街造成重大冲击](https://www.voachinese.com/a/China-delist-20211209/6347884.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
+2. [拜登试图减缓乌克兰对俄罗斯可能入侵的担忧](https://www.voachinese.com/a/biden-seeks-to-allay-ukraine-concerns-of-possible-russian-invasion-20211209/6348546.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
+3. [纽约市民主党通过法案，允许非公民投票https://www.zerohedge.com/political/new-york-city-dems-pass-bill-allowing-non-citizens-vote](https://www.zerohedge.com/political/new-york-city-dems-pass-bill-allowing-non-citizens-vote)
+4. [埃隆-马斯克：”文明要崩溃了”Elon Musk: “Civilization Is Going To Crumble”](https://www.zerohedge.com/geopolitical/elon-musk-civilization-going-crumble)
+5. [中国抨击美国禁止新疆商品的法案：伪装的单边主义、保护主义和欺凌行为China Blasts US Bill Banning Xinjiang Goods: “Masquerading Unilateralism, Protectionism & Bullying](https://www.zerohedge.com/political/china-blasts-us-bill-banning-xinjiang-goods-masquerading-unilateralism-protectionism)
+6. [中国出暗招报复立陶宛，逼跨国企业放弃立陶宛产品](https://www.voachinese.com/a/lithuania-braces-for-china-led-corporate-boycott-20211209/6346620.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
+
+
+# 每日推特文摘
+
+
+
+给中共送葬的战友们在这1000天中要持之以恒、合法、科技、智慧的统一行动~~~ 要准备好应急和处理突发事件的系统~~~ 现场车辆最好配备360度摄像头，留有证据防止敌人搞破坏~~~特斯拉正好符合这个标准 战友们准备好干活了~~~
+
+
+
+
+
+> 给中共送葬的战友们在这1000天中要持之以恒、合法、科技、智慧的统一行动~~~
+> 
+> 要准备好应急和处理突发事件的系统~~~
+> 
+> 现场车辆最好配备360度摄像头，留有证据防止敌人搞破坏~~~特斯拉正好符合这个标准
+> 
+> 战友们准备好干活了~~~
+> — 小郑州 (@g\_defense777) [December 9, 2021](https://twitter.com/g_defense777/status/1468977115861327875?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+汤姆·科顿议员认为如果美国政府无法保证运动员的安全，就不该派运动员去参加北京冬奥会
+
+
+
+
+
+> 汤姆·科顿议员认为如果美国政府无法保证运动员的安全，就不该派运动员去参加北京冬奥会 [pic.twitter.com/xjw9Eiau5A](https://t.co/xjw9Eiau5A)
+> — 日本銀河系農場2 (@HJapanGalaxyII) [December 9, 2021](https://twitter.com/HJapanGalaxyII/status/1468907531443765248?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+12月9日沙利文说：华府将採取一切威吓与外交行动，确保武统永远不会发生。 《环时》随即评论：这是美高官迄今吹的最大牛皮，美国阻止不了大陆在必要时发动武统。更不会有人相信美国不惜一切代价保卫台湾。而且美台勾结越甚，民进党当局在谋“独”路上越猖獗，武统来得越快。 加速帝真不是说着玩的
+
+
+
+
+
+> 12月9日沙利文说：华府将採取一切威吓与外交行动，确保武统永远不会发生。
+> 《环时》随即评论：这是美高官迄今吹的最大牛皮，美国阻止不了大陆在必要时发动武统。更不会有人相信美国不惜一切代价保卫台湾。而且美台勾结越甚，民进党当局在谋“独”路上越猖獗，武统来得越快。
+> 加速帝真不是说着玩的😂👏✌️ [https://t.co/T6YFKDX0IC](https://t.co/T6YFKDX0IC)
+> — Stupidwz (@Stupidwz1) [December 10, 2021](https://twitter.com/Stupidwz1/status/1469117528777498631?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+[https://gettr.com/post/pj858hb609](https://t.co/VwmwemmVl0) 中共这些垃圾们终于慌了 这帮垃圾居然幻想跟七哥勾兑 我去你妈的勾兑吧 你觉得七哥会理会你们吗？ 七哥的一切都是根据全球灭共态势所做的布局和推进 你们把老百姓整这么惨 等发现自己无力抵抗 等发现自己家人无法幸免时 你们才想到求饶和勾兑 我真是R你们盗国贼八倍祖宗了
+
+
+
+
+
+> [https://t.co/VwmwemmVl0](https://t.co/VwmwemmVl0) 
+> 
+> 中共这些垃圾们终于慌了
+> 这帮垃圾居然幻想跟七哥勾兑
+> 我去你妈的勾兑吧
+> 你觉得七哥会理会你们吗？
+> 
+> 七哥的一切都是根据全球灭共态势所做的布局和推进
+> 你们把老百姓整这么惨
+> 等发现自己无力抵抗
+> 等发现自己家人无法幸免时
+> 你们才想到求饶和勾兑
+> 我真是R你们盗国贼八倍祖宗了
+> — 新中国联邦公民（北评2025） (@tGj6kq0sAMr4NWx) [December 10, 2021](https://twitter.com/tGj6kq0sAMr4NWx/status/1469118906879344640?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+昨晚在英国
+![Flag of United Kingdom](https://abs-0.twimg.com/emoji/v2/svg/1f1ec-1f1e7.svg "Flag of United Kingdom")
+伦敦示威中的紧张局势，反对一项加强警察权力和限制抗议权的严厉法案。在议会最后一次阅读文本之前，政府採取了严厉的新措施。
+
+
+
+
+
+> 昨晚在英國🇬🇧倫敦示威中的緊張局勢，反對一項加強警察權力和限制抗議權的嚴厲法案。在議會最後一次閱讀文本之前，政府採取了嚴厲的新措施。
+> 
+>  [pic.twitter.com/Dy6nyBAotS](https://t.co/Dy6nyBAotS)
+> — 默默 (@zixinho17) [December 9, 2021](https://twitter.com/zixinho17/status/1469094037009453062?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+飞行员正在以惊人的速度死亡。 2019年1人 2020年6人 2021年109人（9月） 我能想到的唯一条件，注射 [#疫苗](https://twitter.com/hashtag/%E7%96%AB%E8%8B%97?src=hashtag_click)！疫苗！疫苗！
+
+
+
+
+
+
+
+> 飞行员正在以惊人的速度死亡。
+>  2019年1人
+> 2020年6人
+> 2021年109人（9月）
+> 
+> 我能想到的唯一条件，注射 [#疫苗](https://twitter.com/hashtag/%E7%96%AB%E8%8B%97?src=hash&amp;ref_src=twsrc%5Etfw)！疫苗！疫苗！ [https://t.co/V9YduW6v5W](https://t.co/V9YduW6v5W)
+> — 88jj (@2\_88jj) [December 9, 2021](https://twitter.com/2_88jj/status/1468961867997794311?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+战友的最新作品，第一个想到发给你 屎公主
+
+
+
+
+
+> 战友的最新作品，第一个想到发给你 屎公主 [pic.twitter.com/k5MkIt4fr0](https://t.co/k5MkIt4fr0)
+> — Paige🌟🌟🌟银河系 (@Song14167388) [December 10, 2021](https://twitter.com/Song14167388/status/1469115084450721794?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+新中国联邦全球灭共开始了
+
+
+
+
+
+> 新中国联邦全球灭共开始了👍💪 [pic.twitter.com/SGs87VTgeP](https://t.co/SGs87VTgeP)
+> — 苍天饶过誰64 (@furun20170604) [December 9, 2021](https://twitter.com/furun20170604/status/1468945569800495105?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+冬奥谁负责邀请外国政要？ 华春莹和党媒说法矛盾 美欧国家接连 [#外交抵制](https://twitter.com/hashtag/%E5%A4%96%E4%BA%A4%E6%8A%B5%E5%88%B6?src=hashtag_click) [#北京冬奥](https://twitter.com/hashtag/%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A7?src=hashtag_click)，中共宣传口径陷入混乱。中共外交部部长助理 [#华春莹](https://twitter.com/hashtag/%E8%8F%AF%E6%98%A5%E7%91%A9?src=hashtag_click) 宣称中方“没邀请美国政客”，党媒则称各国政要“由本国奥委会邀请”。
+
+
+
+
+
+> 冬奧誰負責邀請外國政要？ 華春瑩和黨媒說法矛盾 
+> 
+> 美歐國家接連 [#外交抵制](https://twitter.com/hashtag/%E5%A4%96%E4%BA%A4%E6%8A%B5%E5%88%B6?src=hash&amp;ref_src=twsrc%5Etfw) [#北京冬奧](https://twitter.com/hashtag/%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A7?src=hash&amp;ref_src=twsrc%5Etfw)，中共宣傳口徑陷入混亂。中共外交部部長助理 [#華春瑩](https://twitter.com/hashtag/%E8%8F%AF%E6%98%A5%E7%91%A9?src=hash&amp;ref_src=twsrc%5Etfw) 宣稱中方「沒邀請美國政客」，黨媒則稱各國政要「由本國奧委會邀請」。[https://t.co/T5XSlPYbdA](https://t.co/T5XSlPYbdA)
+> — 新唐人電視台 (@NTDChinese) [December 10, 2021](https://twitter.com/NTDChinese/status/1469115401896398856?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+20211207纳瓦罗先生纪念珍珠港 3.CCP签署第一阶段协议，就相当于日本袭击珍珠港 4.必须牢记CCP用疫情彻底拿下香港，以疫情为由把人们关在家裡不让他们上街抗议 5.CCPVirus在美国本土造成的死亡，已经超过所有美国参加的战争死亡数 6.现在正在经历第三次珍珠港袭击 完整版
+
+
+
+
+
+> 20211207納瓦羅先生紀念珍珠港
+> 3.CCP簽署第一階段協議，就相當於日本襲擊珍珠港
+> 4.必須牢記CCP用疫情徹底拿下香港，以疫情為由把人們關在家裡不讓他們上街抗議
+> 5.CCPVirus在美國本土造成的死亡，已經超過所有美國參加的戰爭死亡數
+> 6.現在正在經歷第三次珍珠港襲擊
+> 完整版[https://t.co/gLdrMQcD8y](https://t.co/gLdrMQcD8y) [pic.twitter.com/5t8MOPOI0e](https://t.co/5t8MOPOI0e)
+> — Andy5 (@andy5\_123) [December 9, 2021](https://twitter.com/andy5_123/status/1468766474940850176?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+
+
+*编辑：映兰轩
+审核发布：文顾*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
