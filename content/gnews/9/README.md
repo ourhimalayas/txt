@@ -2,27 +2,30 @@
 ---
 
 
-## 苹果公司与北京秘密签署2750亿美元投资协议
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1740818/)
+## “黑命贵”呼吁圣诞节抵制“白人公司”
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1740830/)
 
-本文作者：Rebecca (一切心皆不可得！)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image001-1.png)
-据路透社报道，网媒《信息》（The Information）周二（7日）独家披露，苹果公司 (AAPL.O) 首席执行官蒂姆-库克（Tim Cook），2016年5月曾与中共政府官员“秘密”签署了一份 2,750 亿美元的投资协议。以缓解可能会导致其产品与服务在中国市场受挫的威胁。
+作者：泰勒·杜登
 
-该份协议内容包括：
+翻译：沉默老歌
 
-- 苹果承诺帮助中共国制造业者开发‘最先进的制造技术’并‘支持培养高素质的中共国人才’
-- 苹果承诺在其产品使用更多来自中共国供应商的组件，与中共国软件公司签署协议，与中共国大学进行技术合作，并直接投资中共国科技公司
-- 苹果承诺在中共国市场的投资将比当时的水平高出“数十亿美元“
+2021 年 12 月 10 日，星期五 – 下午 04:20
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Untitled-design-70-.jpg)图片来源：网络
+Black Lives Matter 组织明确呼吁，在圣诞节期间抵制“白人公司”，从而引发了强烈反对。
 
+在其网站上并在社交媒体上分享的宣传图片中，BLM 表示“我们梦想着#Blackxmas。 这意味着从 11/26/2021 到 01/01/2022 没有与白人公司的支出。
 
-如果双方都不反对，该份协议将自动延期至第六年，即到2022年5月。
+该组织进一步表示，努力的重点不是“用黑人资本主义取代白人资本主义”，而是“摆脱对猖獗消费主义的呼吁，有意识地用我们的钱来建立黑人社区”。
 
-参考来源：[https://www.reuters.com/business/retail-consumer/apples-tim-cook-signed-275-bln-deal-with-chinese-officials-placate-china-2021-12-07/](https://www.reuters.com/business/retail-consumer/apples-tim-cook-signed-275-bln-deal-with-chinese-officials-placate-china-2021-12-07/)[链接](https://www.reuters.com/business/retail-consumer/apples-tim-cook-signed-275-bln-deal-with-chinese-officials-placate-china-2021-12-07/)
+包括其他黑人激进组织在内的批评者指出，BLM 发布的信息是负面的和种族隔离主义的，将导致“更不健康的种族氛围”。
 
-审核校对：sherryok (水云间)
+来源链接：[https://t.co/hFalFYh147](https://t.co/hFalFYh147)
 
-上传排版：漂流瓶
+编辑/发布：LILY
+
+20211210
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
+
 
  
 

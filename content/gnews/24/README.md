@@ -2,14 +2,14 @@
 ---
 
 
-## 【文贵先生大直播PPT】捍卫人权 全球抵制北京2022冬奥会
-` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1740368/)
+## 【文贵先生大直播PPT】中共金融 房地产危机最新信息分析
+` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1740414/)
 
-撰稿：待命（文晓）
-美工：嘿虎，雷蒙
+撰稿：财经G乐部，北评2025
+美工：青山
 
-【2021年12月10日文贵先生大直播PPT：捍卫人权 全球抵制北京2022冬奥会】
-![](https://assets.gnews.org/wp-content/uploads/2021/12/21-6.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/22-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/23-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/24-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/111-2-4.jpg)
+【2021年12月10日文贵先生大直播PPT：中共金融 房地产危机最新信息分析】
+![](https://assets.gnews.org/wp-content/uploads/2021/12/41-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/42-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/43-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/44-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/45-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/46-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/47-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/48-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/49-2.jpg)
 * * *
 
 发稿：云起时
