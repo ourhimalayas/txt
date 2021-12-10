@@ -2,39 +2,24 @@
 ---
 
 
-## 中共再发文，要求党员干部带头落实三胎政策
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1738574/)
+## COVID-19 最新情报｜为自由松绑 巴西总统对“疫苗护照”说不
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1738582/)
 
-撰稿：日本方舟农场-Andy5
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-2.png)
-在今年7月出台三胎政策之后，12月9日，中共党媒再次发动宣传机器，发文要求党员干部为落实三胎政策做好带头作用。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/121010.png)
-该文章强调，中共党员干部要肩负国家人口发展的责任，不能因为主客观原因，不结婚、不生育，也不能只生育一个或两个孩子，党员干部要落实中共的三孩生育政策，即使年龄和身体条件不允许，也要积极主动教育引导，促成他人落实三胎政策。
+**撰文｜疫情关注组 / 发布时间｜10/12/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup）](https://gettr.com/user/mightygroup%EF%BC%89)**
 
-文贵先生此前不止一次透露，中共国的人口少于官方所谓的14亿，很可能只有10亿左右。面对日益严重的老龄化社会现状，和老百姓对中共三孩政策的漠视，中共只好发文件要求党员带头，以达到其政治目的。
+巴西总统贾尔·博尔索纳罗 （Jair Bolsonaro）周二（7日）宣布，不要求入境旅客提供 Covid-19 疫苗接种证明。
 
-新闻链接：
+早前，巴西卫生部长马塞洛·奎罗加（Marcelo Queiroga）在总统会议后告诉记者，“建议施加限制以区分疫苗接种者与未接种者。”
 
-[中共中央 国务院关于优化生育政策促进人口长期均衡发展的决定](http://www.gov.cn/zhengce/2021-07/20/content_5626190.htm)
+不过，总统博尔索纳罗显然未有采纳卫生部长提出的疫苗护照计划，仅要求入境旅客进行“为期五日隔离”，通过PCR检测，若显示为阴性，即可不受限制的在巴西境内自由行动。
 
-[落实三孩政策,党员干部应见行动](http://redchinacn.net/forum.php?mod=viewthread&amp;tid=21354)
+针对自己的这一决定，总统博尔索纳罗在记者会上解释，“接种过疫苗也会染上病毒、传播病毒、甚至染疫而死，那么疫苗护照有什么用？为什么要在巴西人民身上强加这条锁链。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-4.png)
-
-总编：飞虹
-
-编辑：Lakeman文仁/雪梨
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-2.png)
-
+这位至今未接种COVID-19疫苗的总统强调，“不自由，毋宁死。”
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Sddfdfpace-Channel-Banner.jpg)
+来源｜[France24](https://www.france24.com/en/live-news/20211207-brazil-rules-out-vaccine-requirement-for-travelers)
 
  
 

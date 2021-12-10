@@ -2,22 +2,50 @@
 ---
 
 
-## COVID-19 最新情报｜诚实豆沙包？新西兰总理承认“疫苗接种计划没有终点”
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1738442/)
+## 新中国联邦即将合法追讨盗国贼财产
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1738477/)
 
-**撰文｜疫情关注组 / 发布时间｜10/12/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup）](https://gettr.com/user/mightygroup%EF%BC%89)**
+作者：银河勇气星—骄子
 
-自从COVID-19 疫情爆发起，坊间就一直流传着一种说法，“疫情是前菜，疫苗才是主菜。”暗示少数权贵为实现全球人口锐减计划，会永续推行疫苗接种，直至全球总人口降到10亿为止。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-10.jpg)
 
-本来这种被认为是“疫苗阴谋论”的说法一直受到主流媒体及政治精英们的贬斥，不料，新西兰总理杰辛达·阿德恩 (Jacinta Ardern) 在日前一次采访中，竟然说漏嘴，间接证实了“阴谋论”的猜测。
 
-**阿德恩总理表示，“在我看来，只要还有符合条件但没有接种疫苗的人，我就不会满意，我们就有事要做，这就是我所说的，这个疫苗接种计划不会有终点。”**
 
-值得留意的是，在整个采访中，她多次转换用词，屡次将“只要还有人选择不『接种疫苗』”更正为“只要还有符合条件的人选择不 ‘接种疫苗’ ”，令人担忧，这位总理的潜意识里，是否正在计划推行全民疫苗强制令。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-7.jpg)
-来源｜[MSN](https://thecovidworld.com/new-zealand-pm-jacinda-ardern-theres-not-going-to-be-an-endpoint-to-this-vaccination-program/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Image-1-3-10.jpg)
+
+12月6日和7日，郭先生分别在直播和盖特视频中透露，他的亲人和员工再次遭到中共的凌辱和虐待，他一手创建的盘古大观也被中共非法接管。中共以极其低劣的手段，又一次验证了郭先生一直在揭露的中共盗国贼的丑恶嘴脸。
+
+12月6日，中共派出大量警察、特警、法官，对郭先生一手打造的北京盘古酒店实施暴力查封，在零下4度的冬天，把穿着睡衣的盘古员工和郭先生中风的父亲赶到大街上。这是继大连市中级法院对郭先生罚款130亿美元并非法拍卖盘古资产后，中共再一次犯下针对郭先生家人和员工的灭绝人性的暴行！次日，在得知此消息后，世界多国政府都感到不可思议，认为共产党今日的残暴比当年的苏联、萨达姆、卡扎菲等尤有过之。不消灭共产党，郭先生的遭遇就会在全世界上演，共产党释放生物武器冠状病毒就是最好的例证。
+
+郭先生最后在视频中表示，新中国联邦将会采取更多行动，敦促世界各大机构站出来封杀共产党，包括全球抵制北京奥运会，把中共国踢出swift，等等，在全世界范围内合理合法地追讨共产党盗国贼资产，惩办他们的家人。
+
+
+
+参考链接：
+
+[https://gettr.com/post/pizpiob51f](https://gettr.com/post/pizpiob51f)
+
+编辑：飞虹
+
+校对/发稿：有莫举名
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-3.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-5.jpg)
+
+
 
  
 
