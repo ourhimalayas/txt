@@ -2,23 +2,34 @@
 ---
 
 
-## COVID-19 最新情报｜诚实豆沙包？新西兰总理承认“疫苗接种计划没有终点”
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1738442/)
+## 掘地三尺挖出中共核心家族的海外家眷，以行动为中共送行
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1738550/)
 
-**撰文｜疫情关注组 / 发布时间｜10/12/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup）](https://gettr.com/user/mightygroup%EF%BC%89)**
+撰稿：纽约香草山文艺部 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-2.png)
+12月8日，郭文贵先生在直播中号召全球的新中国联邦人，在2022年全面行动，反击中共当局对全人类，尤其是华人同胞灭绝人性的迫害；同时，新中国联邦将在政治、贸易、金融、军事、科技等各个方面促成世界各国与中共的全面脱钩，誓将中共送上黄泉路。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12109.png)
+郭先生号召知情的战友提供高官家属及情人、子女及私生子女的物业、银行账户等一切资产信息；联盟委员会即刻成立全球抗议领导小组，统一制定行动方案并寻求法律保护框架，从春节开始在各国中共大使馆领事馆前持续抗议，行动方式包括但不限于为中共核心领导家族的健在家人举行声势浩大的“活出殡”庆典，并对这些家族的各个成员的个人信息、非法资产持续曝光，充分利用当地媒体将这些中共假恶丑暴露于天下。
 
-自从COVID-19 疫情爆发起，坊间就一直流传着一种说法，“疫情是前菜，疫苗才是主菜。”暗示少数权贵为实现全球人口锐减计划，会永续推行疫苗接种，直至全球总人口降到10亿为止。
+另外，郭先生指出，新中国联邦有能力促成世界各国政府抵制北京冬奥会，也一定能促使世界把中共国踢出世贸组织，踢出环球同业银行金融通信协会——SWIFT系统。 眼泪和愤怒是恶魔的战利品，战友们，行动！行动！行动
 
-本来这种被认为是“疫苗阴谋论”的说法一直受到主流媒体及政治精英们的贬斥，不料，新西兰总理杰辛达·阿德恩 (Jacinta Ardern) 在日前一次采访中，竟然说漏嘴，间接证实了“阴谋论”的猜测。
 
-**阿德恩总理表示，“在我看来，只要还有符合条件但没有接种疫苗的人，我就不会满意，我们就有事要做，这就是我所说的，这个疫苗接种计划不会有终点。”**
 
-值得留意的是，在整个采访中，她多次转换用词，屡次将“只要还有人选择不『接种疫苗』”更正为“只要还有符合条件的人选择不 ‘接种疫苗’ ”，令人担忧，这位总理的潜意识里，是否正在计划推行全民疫苗强制令。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-7.jpg)
-来源｜[MSN](https://thecovidworld.com/new-zealand-pm-jacinda-ardern-theres-not-going-to-be-an-endpoint-to-this-vaccination-program/)
+新闻链接: [2021年12月08日 文贵大直播](https://gtv.org/video/id=61b0b18fbbd75f62e532ced8)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-4.png)
+
+编辑: Zion文恩
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

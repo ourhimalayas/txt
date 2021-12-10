@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/10/2021 1:06 PM (UTC)`
+
+2021年12月10日 文贵大直播：全球各国抵制冬奥会；数字货币市场变化大；七哥新歌打榜冲一名；稳步安排春节大行动
+![img](https://media.gettr.com/group21/origin/2021/12/10/13/b6e432de-f7e9-f118-5f93-1260ed8e3a15/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 12/10/2021 6:40 AM (UTC)`
 
 Hcoin To The Moon 官方MV12月10号已在以下平台全球上线，感谢大家继续打榜，订阅！🎉🎉🎉🎉🎉🎉🎉<br/><br/>VEVO: https://youtu.be/foVjKjgyN4Q <br/><br/>Apple: https://music.apple.com/us/music-video/hcoin-to-the-moon/1596409781?ls=1<br/><br/>TIDAL: http://tidal.com/video/205740632 <br/><br/>Vimeo: https://vimeo.com/646980855/38939d49f1
@@ -144,13 +151,6 @@ Forbes news on Dec 8, 2021:<br/><br/>This week’s World Digital Song Sales char
 `@miles 12/8/2021 4:22 PM (UTC)`
 
 8/12/2021 “Hcoin To the Moon" Hits #1 🥇on 7 Countries' iTunes Rock Charts on the 6th Day of Launch 🎉🎉🎉🎉🎉🎉🎉<br/>Thank you very much to all our brothers and sisters in HongKong, Taiwan, New Zealand, Australia, Laos, Singapore and Finland!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1732743/<br/><br/>12月8号， Hcoin To the Moon上线第6天位列7国iTunes摇滚音乐榜首🥇！🎉🎉🎉🎉🎉🎉🎉<br/>感谢香港，台湾，新西兰, 澳大利亚，老挝，新加坡，芬兰的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏
-
----
-
-`@miles 12/8/2021 3:33 PM (UTC)`
-
-From Oct. 23, 2019, when I said that the US would boycott the 2022 Winter Olympics, to Aug. 5, 2021, when I signed the first official document of the New Federal State of China demanding that the IOC cancel the Winter Olympics, and to Dec. 6, when the Biden Administration announced the diplomatic boycott of the Winter Olympics, we are changing the entire world on our way of taking down the CCP!<br/><br/>从2019年10月23日文贵说出美国要抵制2022年冬奥会，到2021年8月5日我签署新中国联邦第一份官方文件要求国际奥委会取消冬奥会，再到12月6日拜登政府宣布外交抵制冬奥会，我们在灭共的道路上改变了整个世界！<br/>
-![img](https://media.gettr.com/group3/getter/2021/12/08/15/ea9cb494-7646-ad99-33bd-8e5a9a2a47d7/out.jpg)
 
 ---
 

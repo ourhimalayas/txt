@@ -2,32 +2,30 @@
 ---
 
 
-## 日本富豪前泽友作乘俄飞船抵达国际空间站
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1739119/)
+## 参议员布莱克本呼吁运动员不要参加中共冬奥会
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1739374/)
 
-**撰稿：日本东京方舟农场  老孙**
+翻译：**Lulumi**
 
-12月8日，日本亿万富豪前泽友作搭乘俄“联盟MS-20”号飞船到达国际空间站并完成对接。与之同行的还有一名助手和一名俄宇航员，3人将在太空停留12天，预计于20日返回地球。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-7-3.jpg)图片来源：路透社
 
-据报道，该飞船从位于哈萨克斯坦境内的拜科努尔航天发射场发射升空，经过约6小时的飞行，顺利抵达空间站并与之对接。
+美国参议员玛莎·布莱克本(Marsha Blackburn)在周三的布萊巴特每日新闻节目中与主持人阿历克斯·马洛（Alex Marlow）说，美国运动员不应参加在北京举行的2022年冬季奥运会。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/608a9ab29e63ba6.jpg)图片来自于cnBeta.COM
+布莱克本说：“我不认为我们应该派我们的运动员参加这些比赛。我认为，我们的运动员应该呆在家里。我们没有必要去参加这些比赛。”
 
-今年46岁的前泽友作是日本最大在线时装平台“ZOZOTOWN”的创始人，同时他也是一位艺术品收藏家。前泽友作和助手此次太空之旅的具体费用并未向外界透露。
+她补充说：“当你去参加这些运动会，让中国成为体育界的焦点，习近平挥舞着手臂说，‘看看我做了什么，我为世界做了这些，’那么你所做的就是让他们美化自己，另一件事是，他们将利用奥运会推进数字人民币，这是他们的数字货币，他们想让世界与人民币挂钩而不是与美元挂钩。”
 
-前泽友作还计划于2023年乘坐美国太空探索技术公司的航天器绕月飞行，此次空间站之旅被他视为一次预演。
+她最后说：“虽然（美国运动员）技术娴熟，我们为他们的技术感到兴奋。但你所拥有的是一个不会为他们争光的场地，因为为中共争光不是我们作为一个国家应该做的事情。这不是我们的运动员应该做的事。这不是美国企业应该做的事。”
 
-*参考链接：*
-
-[日本太空游客乘俄飞船抵达国际空间站](https://www.cnbeta.com/articles/science/1212495.htm)
+**参考资料：**[breitbart][Exclusive — Sen. Marsha Blackburn: U.S. Athletes Should Not Be Sent to China Olympics for CCP Glorification](https://www.breitbart.com/radio/2021/12/08/exclusive-sen-marsha-blackburn-u-s-athletes-should-not-be-sent-to-china-olympics-for-ccp-glorification/)
 
 * * *
 
-*素材采编：老孙*
+*审核：文乐
+校对：信心满满*
+*发布：信心的选择*
 
-*编辑：文顺*
-
-*发布：Ranting*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH..jpeg)
 
  
 

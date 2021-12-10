@@ -2,12 +2,22 @@
 ---
 
 
-## 澳洲财长乔什·弗莱登伯格：澳洲金融系统正经历数字革命
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1738513/)
+## COVID-19 最新情报｜研究指出：鼻咽处清除后 新冠病毒仍持续存在于肠道组织
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1738900/)
 
-12/07/2021 澳大利亚财政部长乔什·弗莱登伯格：数字货币正迅速成为新常态。澳大利亚的金融系统正在经历一场数字革命。三项主要改革旨在创建一个受监管的国内数字货币平台，现代化支付系统；给买卖数字货币的企业颁发执照；有中心化数字货币的储备银行。
+**疫情關注組 / 發佈時間｜10/12/2021**
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+
+
+据BMC所载的相关研究，新冠病毒可能会引起轻微的肠道症状，而部分患者可能发生更严重的肠道并发症。研究通过**透射电子显微镜** (TEM)，证实新冠病毒(SARS-CoV-2)可存在于肠道组织内皮细胞中。
+
+研究内容提及两名COVID-19 患者（其中一名患有肠道淋巴瘤，另一名患有缺血性结肠炎），在确定鼻咽处的新冠病毒被清除后，通过透射电子显微镜 (TEM)发现新冠病毒仍继续存在于肠道组织内皮细胞。其中一病例，**在鼻咽部病毒清理完成后6个月，肠组织仍留存病毒，具潜伏感染可能**。
+
+2020 年 3 月 1 日至 4 月 30 日期间，有932名COVID-19病患在 Universitari Mútua Terrassa住院治疗，其中41名（4.4%）病患发生严重腹痛，6名需要进行腹部手术。通过透射电子显微镜 (TEM)可以确定COVID-19 引发肠道损伤具有因果关系，但严重肠道并发症并不常见。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-2.png)
+来源￨[BMC](https://bmcgastroenterol.biomedcentral.com/articles/10.1186/s12876-021-01905-3)
 
  
 

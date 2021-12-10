@@ -2,24 +2,24 @@
 ---
 
 
-## COVID-19 最新情报｜为自由松绑 巴西总统对“疫苗护照”说不
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1738582/)
+## 两党议员宣布强制要求社交媒体公司对外分享数据的法案
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1739033/)
 
-**撰文｜疫情关注组 / 发布时间｜10/12/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup）](https://gettr.com/user/mightygroup%EF%BC%89)**
+#### 撰稿：彩虹
 
-巴西总统贾尔·博尔索纳罗 （Jair Bolsonaro）周二（7日）宣布，不要求入境旅客提供 Covid-19 疫苗接种证明。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-2-2.png)图片来源：参议院
+12月9日，《国会山报》报道，根据两党参议员于周四宣布的一项新法案，Meta（即Facebook）和其他社交媒体公司将被要求与外部研究人员分享其数据。
 
-早前，巴西卫生部长马塞洛·奎罗加（Marcelo Queiroga）在总统会议后告诉记者，“建议施加限制以区分疫苗接种者与未接种者。”
+发起该法案的参议员分别是民主党人克里斯·库恩斯(Chris Coons)、艾米·克洛布切(Amy Klobuchar)和共和党人罗伯·波特曼(Rob Portman)。他们强调，该法案也适用于其他社交媒体公司，但主要是由于脸书（Facebook）文件中泄露的有关Meta公司平台的信息，从而提出了该法案。
 
-不过，总统博尔索纳罗显然未有采纳卫生部长提出的疫苗护照计划，仅要求入境旅客进行“为期五日隔离”，通过PCR检测，若显示为阴性，即可不受限制的在巴西境内自由行动。
+该《平台问责和透明度法案》（Platform Accountability and Consumer Transparency Act）将允许独立研究人员向国家科学基金会（NSF）提交请求，如果这些请求得到批准，则社交媒体公司将被要求在遵守某些隐私保护规定的情况下提供必要的数据。
 
-针对自己的这一决定，总统博尔索纳罗在记者会上解释，“接种过疫苗也会染上病毒、传播病毒、甚至染疫而死，那么疫苗护照有什么用？为什么要在巴西人民身上强加这条锁链。”
+如果社交媒体公司未能遵守该法案的要求，他们将受到联邦贸易委员会（FTC）的强制执行，并将失去《通讯规范法》（Communications Decency Act）第230条的保护。该法案还赋予联邦贸易委员会权力，可以要求平台持续主动地将有关信息向资源（研究机构）和公众提供，例如包含用户定位和参与的相关广告信息库。
 
-这位至今未接种COVID-19疫苗的总统强调，“不自由，毋宁死。”
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Sddfdfpace-Channel-Banner.jpg)
-来源｜[France24](https://www.france24.com/en/live-news/20211207-brazil-rules-out-vaccine-requirement-for-travelers)
+**新闻来源**
+
+[Senators unveil bipartisan bill requiring social media giants to open data to researchers](https://thehill.com/policy/technology/585069-senators-unveil-bipartisan-unveil-bill-requiring-social-media-giants-to)
 
  
 

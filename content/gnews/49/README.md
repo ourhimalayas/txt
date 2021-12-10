@@ -2,30 +2,23 @@
 ---
 
 
-## 中共逼迫跨国公司断绝与立陶宛的合作
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1738008/)
+## COVID-19 最新情报｜诚实豆沙包？新西兰总理承认“疫苗接种计划没有终点”
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1738442/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-468.png)[图片来源](https://mingdemedia.org/zhengzhiyitijingjixiepozhonggongyaoqiukuaguoqiyeyulitaowanduanjuehezuo/)
-路透社12月9日报道 ，中共国已经告诉多家跨国公司断绝与立陶宛的关系，否则将面临被排除在中共国市场之外的命运，这将使企业卷入立陶宛与中共之间的争端。
+**撰文｜疫情关注组 / 发布时间｜10/12/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup）](https://gettr.com/user/mightygroup%EF%BC%89)**
 
-驻立陶宛台湾代表处上个月挂牌运作后，中共国把其与立陶宛间的外交关系降级。立陶宛的执政联盟去年11月同意支持台湾，使立陶宛与中共国的关系陷入险境。
+自从COVID-19 疫情爆发起，坊间就一直流传着一种说法，“疫情是前菜，疫苗才是主菜。”暗示少数权贵为实现全球人口锐减计划，会永续推行疫苗接种，直至全球总人口降到10亿为止。
 
-立陶宛与中共国的直接贸易额不大，但其出口导向经济中，有数百家公司生产家具、激光器、食品和服装等产品，供应给那些在中共国销售的跨国公司。
+本来这种被认为是“疫苗阴谋论”的说法一直受到主流媒体及政治精英们的贬斥，不料，新西兰总理杰辛达·阿德恩 (Jacinta Ardern) 在日前一次采访中，竟然说漏嘴，间接证实了“阴谋论”的猜测。
 
-立陶宛外交部副部长Mantas Adomenas说：“他们(中共国)一直在向跨国公司传递信息，如果他们使用立陶宛的零部件和用品，他们将不再被允许向中共国市场销售或在中共国取得供应。”“我们已经看到一些公司取消了与立陶宛供应商的合同。”
+**阿德恩总理表示，“在我看来，只要还有符合条件但没有接种疫苗的人，我就不会满意，我们就有事要做，这就是我所说的，这个疫苗接种计划不会有终点。”**
 
-代表数千家立陶宛公司的立陶宛工业家联盟(Lithuania Confederation of Industrialists)证实，一些从立陶宛供应商购买商品的跨国公司已成为中共国的目标。
+值得留意的是，在整个采访中，她多次转换用词，屡次将“只要还有人选择不『接种疫苗』”更正为“只要还有符合条件的人选择不 ‘接种疫苗’ ”，令人担忧，这位总理的潜意识里，是否正在计划推行全民疫苗强制令。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-7.jpg)
+来源｜[MSN](https://thecovidworld.com/new-zealand-pm-jacinda-ardern-theres-not-going-to-be-an-endpoint-to-this-vaccination-program/)
 
-“本周我们第一次看到中共国直接向一供应商施压，要求其放弃立陶宛制造的商品。”该联盟的主席Vidmantas Janulevicius对路透表示，“以前我们只是感到会有这个威胁，现在这些威胁变成了现实。”
-
-“对我们来说，最痛苦的部分是，它是一家欧洲公司，”Janulevicius在谈及这家跨国公司时说道。“许多立陶宛企业是这些公司的供应商。”
-
-消息来源：[独家：中共国施压跨国企业断绝与立陶宛的商业合作](https://cn.reuters.com/article/china-lithuania-trade-business-1209-idCNKBS2IO0JY?il=0)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
