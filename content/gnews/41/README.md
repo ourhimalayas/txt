@@ -2,51 +2,34 @@
 ---
 
 
-## 新中国联邦即将合法追讨盗国贼财产
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1738477/)
+## 中共以黑治国，非法暴力查封盘古
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1738478/)
 
-作者：银河勇气星—骄子
+撰稿：香草山农场-晓仙女
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-2.png)
+2021年12月6日，中共打着业主和物业公司的名义，对北京盘古进行非法暴力查封，致使数千名员工和酒店客人、盘古业主，和郭先生92岁的老父亲，遭到驱赶，流落寒冷的街头，无家可归。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12108.png)
+郭先生在12月8日大直播中表示，中共派出数百名警察突袭查封盘古大楼，监控大楼的水、电、气，持枪逼迫所有员工、客人和业主离开，不允许带走任何财物。不仅员工的电话和信用卡遭停，就连这些员工家人的电话和信用卡，也被中共非法监听或封停，涉及多达十几万人。此前，中共还假借所谓的大连法庭罚款的判决，非法查封了郭先生家人及公司高管的、共计66套房产。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-10.jpg)
+中共向来以牺牲老百姓的利益，完成党内的权力斗争，实现自己的政治利益。这次对盘古的非法查封事件，再次证实了中共以黑治国的本质。
 
+链接：https://gtv.org/video/id=61b0b18fbbd75f62e532ced8
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-4.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Image-1-3-10.jpg)
+总编：文特
 
-12月6日和7日，郭先生分别在直播和盖特视频中透露，他的亲人和员工再次遭到中共的凌辱和虐待，他一手创建的盘古大观也被中共非法接管。中共以极其低劣的手段，又一次验证了郭先生一直在揭露的中共盗国贼的丑恶嘴脸。
+编辑：Lakeman文仁/雪梨
 
-12月6日，中共派出大量警察、特警、法官，对郭先生一手打造的北京盘古酒店实施暴力查封，在零下4度的冬天，把穿着睡衣的盘古员工和郭先生中风的父亲赶到大街上。这是继大连市中级法院对郭先生罚款130亿美元并非法拍卖盘古资产后，中共再一次犯下针对郭先生家人和员工的灭绝人性的暴行！次日，在得知此消息后，世界多国政府都感到不可思议，认为共产党今日的残暴比当年的苏联、萨达姆、卡扎菲等尤有过之。不消灭共产党，郭先生的遭遇就会在全世界上演，共产党释放生物武器冠状病毒就是最好的例证。
-
-郭先生最后在视频中表示，新中国联邦将会采取更多行动，敦促世界各大机构站出来封杀共产党，包括全球抵制北京奥运会，把中共国踢出swift，等等，在全世界范围内合理合法地追讨共产党盗国贼资产，惩办他们的家人。
-
-
-
-参考链接：
-
-[https://gettr.com/post/pizpiob51f](https://gettr.com/post/pizpiob51f)
-
-编辑：飞虹
-
-校对/发稿：有莫举名
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-3.png)
+校正/发稿：浪迹天涯
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-5.jpg)
-
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

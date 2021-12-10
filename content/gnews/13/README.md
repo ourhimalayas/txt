@@ -2,28 +2,43 @@
 ---
 
 
-## 被深度蓝金黄的法国称 不会外交抵制北京冬奥会
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1739115/)
+## 美两院就国防授权法达成共识，阻止中共犯台
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1739144/)
 
-撰稿：东京樱花团/闻雨
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-121.png)
-12月10日，据法新社报道：12月9日，法国教育部长Jean-Michel Blanquer表示，法国将不会和其他西方国家一起抵制明年2月的北京冬奥会。
+作者：东京樱花团—在远方
 
-法国教育部长还说：“我们必须谨慎对待体育和政治之间的关系”，“体育是一个完全不同的世界，需要保护它不受政治干预。”
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-10.jpg)
 
-你可能认为法国是一个自由民主的国家。
 
-事实上，它早已经是社会主义国家了，而且法国政客也已经被中共深度地蓝金黄。那些对中共的暴政视而不见、充耳不闻的政客是中共的朋友，不是中国人民的朋友。很遗憾，这些政客，更多地考虑的是他们的个人利益。
 
-试问代表和平的奥运会怎么能在一个侵犯人权，而且还试图用武力收回台湾的一个暴力国家举行呢？这些政客的逻辑都到哪里去了呢？
+![圖為美國國會大廈。（法新社資料照）](https://img.ltn.com.tw/Upload/news/600/2021/12/08/phpo4yI6S.jpg)（美国国会大厦）（图片来自法新社）
 
-信息来源:
+当地时间12月7日，美国参众两院军事委员会，就2022年度国防授权法案达成共识。其中有关台湾的内容包括建议邀请台湾参加环太平洋演习，以及保持美军阻止中共武力犯台形成既成事实等。该法案在经过参众两院表决通过后，将由拜登总统签署生效。
 
-[フランス、北京五輪外交ボイコット「しない」 スポーツ相見解](https://news.yahoo.co.jp/articles/f2988407c0b1d77d61653ab7353dfc86d3745896)
+据悉，该法案涉及军费总额高达7680亿美元。该法案要求美国国防部评估协助台湾发展不对称防御战略，要求国防部长提出美军与台湾合作的可行性报告，还要求提供中共对美国军事联盟影响力的报告，并分拨71亿美元用在太平洋吓阻倡议中。另外，由于中共在南美和加勒比海地区持续不断的威胁，该报告还要求，留意中共对该地区台湾外交关系的持续施压。
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+参考链接：
+
+[https://news.ltn.com.tw/news/world/breakingnews/3761291](https://news.ltn.com.tw/news/world/breakingnews/3761291)
+
+校对/发稿：有莫举名
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-3.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-5.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

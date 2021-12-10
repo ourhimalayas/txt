@@ -2,33 +2,30 @@
 ---
 
 
-## 中日财经爆：联想发声明回怼司马南质疑
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1738807/)
+## 研究表明寒冷天气会导致血栓和心脏病发作 给疫苗灾难敲响警钟
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1738811/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-98.jpg)
-[图片来源](https://www.google.com/imgres?imgurl=http%3A%2F%2Fimg1.gtimg.com%2Ftech%2Fpics%2Fhv1%2F151%2F33%2F1795%2F116728441.jpg&amp;imgrefurl=https%3A%2F%2Ftech.qq.com%2Fa%2F20150227%2F012501.htm&amp;tbnid=mvkIORADABmD2M&amp;vet=12ahUKEwijw6X83tj0AhUBg-YKHSWRBk8QMyg1egQIARAc..i&amp;docid=lXs3cG2_Jj3oiM&amp;w=530&amp;h=353&amp;itg=1&amp;q=%E8%81%94%E6%83%B3%20%E5%8F%B8%E9%A9%AC%E5%8D%97&amp;hl=zh-CN&amp;ved=2ahUKEwijw6X83tj0AhUBg-YKHSWRBk8QMyg1egQIARAc#imgrc=mvkIORADABmD2M&amp;imgdii=WIFFwj6qMfETGM)
+#### 翻译：肯塔基钢蛋儿
 
-早前，“大五毛”司马南公开质疑联想2009年将29%股权转让给泛海集团，“涉嫌国有资产流失”。12月10日联想声明：2009年股权转让，严格按照相关要求进行了审计、资产评估和备案。本次股权转让，实现了国有资产的保值增值。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/covid-19-vaccine-mixing-shutterstock_1891563244-2.jpg)图片来源：clinicaltrialsarena
+据News Punch网站12月2日报道， 随着英国寒冷的冬季到来，天气预报员会在全国范围内发布天气预警，研究人员表示，寒冷的天气也会影响你的健康。
 
-今日（12月10日），联想控股在内网发布声明，内容如下：
+他们警告说，在寒冷的天气里，人们更有可能患上心脏病或血栓等严重疾病，即使是温度的小幅下降也会导致心脏病发作人数的增加。
 
-我们经向中国科学院控股有限公司确认了以下事实：
+在今年早些时候发表的一份报告中，《太阳报》（The Sun）报道了寒冷天气可能引发的一些健康危害，包括:
 
-2004年8月，按照党中央关于“大力发展国有资本、集体资本和非公有资本等参股的混合所有制经济，实现投资主体多元化”的要求，为加快高技术产业规模化发展，中科院做出加快院所投资企业股权社会化改革的决定。2009年，按照企业国有资产交易相关规定，中国科学院控股有限公司通过北京产权交易所公开挂牌交易，转让了联想控股29%股权。本次转让，严格按照国有资产产权交易相关要求进行了审计、资产评估和备案。经专业机构认定，联想控股归属于母公司所有者权益账面值为77.2亿元，评估值为92.6亿元。本次交易联想控股归属于母公司所有者权益溢价至95亿元，对应的29%股权交易价格为27.55亿元。本次股权转让，实现了国有资产的保值增值，历次中央巡视和国家审计署审计均未对此提出过任何异议。
+#### 1. 血栓
 
-就此问题的具体情况，可以联系国科控股。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-481.png)
-消息来源:
+温度的突然变化会给身体造成热应力—身体必须更加努力地工作以保持恒定的温度。来自法国尼斯一家医院的研究者表示，冬季呼吸道感染的患者可能会更容易出现血栓。此外，寒冷的天气可能会使血管收缩，也会更有可能形成血栓。
 
-**[联想控股内网发声明：国有资产未流失，历次中央巡视未提异议](https://finance.sina.com.cn/roll/2021-12-10/doc-ikyamrmy8066317.shtml)**
+#### 2. 心脏病发作
 
-**[早前，司马南公开质疑联想2009年将29%股权转让给泛海集团……](https://cj.sina.com.cn/articles/view/6890756658/19ab89a32040012z6l)**
+最近的一项研究显示，暴露在寒冷天气中，人们更容易患心脏病。瑞典隆德大学的研究人员发现，与天气温暖时相比，天气寒冷时，日均心脏病发作次数明显提高。在日常基础上，当平均气温低于零度时，每天又会有额外的四次心脏病发作。人们认为在寒冷的天气中心脏病发作的风险更高，原因是身体通过限制浅表血管来应对寒冷。这会降低皮肤的温度，并增加动脉中的血流量，同时身体也开始颤抖，心跳加快以保持温暖。但这些反应会给心脏增加额外的压力。
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
+评论：按照文章所述，天气寒冷会引发心脏或血栓等疾病，这有可能是预先为疫苗灾难做铺垫找理由，但更重要的是给已经打了疫苗的人敲响警钟，毒疫苗本来就会引起血栓或心肌炎等疾病。如今随着冬天的到来，这也意味着疫苗灾难即将爆发。
 
+原文连接[：Researchers Warn That Cold Weather Can Cause Blood Clots & Heart Attacks](https://newspunch.com/researchers-warn-that-cold-weather-can-cause-blood-clots-heart-attacks/)
 
  
 
