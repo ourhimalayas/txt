@@ -2,64 +2,42 @@
 ---
 
 
-## Hcoin To the Moon 登上Billboard全球数字歌曲销量榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1737217/)
+## 日本卫生部警告瑞辉疫苗或莫德纳疫苗会导致年轻人群患上心脏疾病
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1737353/)
 
-12/09/2021 郭文贵先生的歌曲Hcoin To the Moon上线第7天登上Billboard全球数字歌曲销量榜榜首，且位列9国iTunes摇滚音乐榜首。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/51346697-0-image-a-41_1638660590891-2.jpg)图片来源：https://www.infowars.com/
+日本卫生部已将心脏疾病列为注射辉瑞疫苗或莫德纳疫苗潜在的副作用
 
-[https://www.billboard.com/charts/world-digital-song-sales/2021-12-11/](https://www.billboard.com/charts/world-digital-song-sales/2021-12-11/)
+日本厚生劳动省称，截至11月14日，在每100万接种莫德纳新冠疫苗的男性中，其中有82名10至19岁和49名20岁左右的男性报告了心脏及其外膜的炎症。
+
+注射了辉瑞疫苗的16名10 至 19 岁和13名20岁左右的男性中发现了心肌炎症。
+
+卫生部在上周的会议上建议，需在新冠疫苗附带的文件上加上“严重副作用”的免责声明警告。医院也要向政府机构详细报告在注射新冠疫苗28天之内出现的炎症反应病人的事件。
+
+在有报道称260万剂莫德纳疫苗被“对磁铁有反应”的“微小金属片”污染后，日本在8月停止了这些疫苗的使用。
+
+虽然有人死于注射莫德纳疫苗，但在几天后日本又恢复了莫德纳疫苗的使用。
+
+简评：
+
+据今年1月18号报道，美国加州停用了33万剂的莫德纳疫苗，但是禁用的疫苗不会被处理掉，而是储藏起来直到公共卫生部门和莫德纳官方给出合理报告（出处：[https://khn.org/](https://khn.org/)）。在两天后，加州又恢复使用莫德纳疫苗。日本一直紧跟美国做决策，这次日本卫生部发出的疫苗副作用的警告，想必也是形势所需。据爆料革命郭文贵先生爆料，明年5月是疫苗灾难的到来，那日本卫生部的官方的警告是不是为之在做铺垫？
+
+新闻链接：
+
+[Japan Health Ministry Warns Moderna & Pfizer COVID Vaccines Causing Heart Inflammation in Young People](https://www.infowars.com/posts/japan-health-ministry-warns-moderna-pfizer-covid-vaccines-causing-heart-inflammation-in-young-people/)
 
 * * *
 
-[【PDF Download】Thursday-9-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record.pdf)
-
-* * *
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_2.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_3.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_4.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_6.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_8.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_11.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_12.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_13.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_14.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_15.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_16.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_17.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_18.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_19.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_20.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_21.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_22.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_23.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_24.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_25.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_26.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_27.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_28.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_29.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_30.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_31.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_32.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_33.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_34.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_35.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_36.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_39.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_40.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_41.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_42.jpg)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-[【PDF 下载】Thursday-9-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/【iTunesBillboard】Thursday-9-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record.pdf)
+编辑：【英国伦敦喜庄园编辑部】
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

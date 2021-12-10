@@ -15,92 +15,92 @@
 
 ---
 
-### [马克龙称法国不会抵制北京冬奥会](/content/gnews/1/README.md)
+### [德桑蒂斯：因拜登疫苗强制令被停职的医生现已恢复原职](/content/gnews/1/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [马克龙称法国不会抵制北京冬奥会](/content/gnews/2/README.md)
  ` HimalayaRussia`
 
-### [2021/12/09文贵先生盖特直播精要](/content/gnews/2/README.md)
+### [2021/12/09文贵先生盖特直播精要](/content/gnews/3/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [日本计划在2022年出台“稳定币”监管法律](/content/gnews/3/README.md)
+### [日本计划在2022年出台“稳定币”监管法律](/content/gnews/4/README.md)
  ` 日本东京方舟农场`
 
-### [“班农先生不睬案”审理日期已确定](/content/gnews/4/README.md)
+### [“班农先生不睬案”审理日期已确定](/content/gnews/5/README.md)
  ` HimalayaRussia`
 
-### [英国赌场牌照的意义](/content/gnews/5/README.md)
+### [英国赌场牌照的意义](/content/gnews/6/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [12/8/2021 文贵直播：全球联合反共抗议活动一定要遵守联盟、农场的统一标准和培训，遵守当地法律，将抗议行动智慧化、合法化、科技化、永恒化](/content/gnews/6/README.md)
+### [意大利拒绝第三剂新冠疫苗人数在增加：这包括推迟和取消预约的人](/content/gnews/7/README.md)
+ ` xiaobaige`
+
+### [12/8/2021 文贵直播：全球联合反共抗议活动一定要遵守联盟、农场的统一标准和培训，遵守当地法律，将抗议行动智慧化、合法化、科技化、永恒化](/content/gnews/8/README.md)
  ` 秘密翻译组-北美组`
 
-### [证券监管机构对数字世界与特朗普媒体公司的交易展开调查](/content/gnews/7/README.md)
+### [证券监管机构对数字世界与特朗普媒体公司的交易展开调查](/content/gnews/9/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美国空军部长称新飞机必须对中共国形成威慑](/content/gnews/8/README.md)
+### [美国空军部长称新飞机必须对中共国形成威慑](/content/gnews/10/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [英国与美国、澳大利亚一起对中共的冬奥会进行外交抵制](/content/gnews/9/README.md)
+### [英国与美国、澳大利亚一起对中共的冬奥会进行外交抵制](/content/gnews/11/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美众议院涉及彭帅的“第837号决议”](/content/gnews/10/README.md)
+### [美众议院涉及彭帅的“第837号决议”](/content/gnews/12/README.md)
  ` HimalayaRussia`
 
-### [主导信念决定你如何应对现实以及命运的方向（2/2）](/content/gnews/11/README.md)
+### [主导信念决定你如何应对现实以及命运的方向（2/2）](/content/gnews/13/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2018年6月29日郭文贵先生直播全文字版](/content/gnews/12/README.md)
+### [2018年6月29日郭文贵先生直播全文字版](/content/gnews/14/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [美国公司是中共国的“人质”](/content/gnews/13/README.md)
+### [美国公司是中共国的“人质”](/content/gnews/15/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [天空新闻主持James Morrow：中共国没有资格举办2022年冬季奥运会](/content/gnews/14/README.md)
+### [天空新闻主持James Morrow：中共国没有资格举办2022年冬季奥运会](/content/gnews/16/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [布林肯提示美国商业领袖应对中共国投资保持“警惕”](/content/gnews/15/README.md)
+### [布林肯提示美国商业领袖应对中共国投资保持“警惕”](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [新西兰计划（逐步）永久禁烟](/content/gnews/16/README.md)
+### [新西兰计划（逐步）永久禁烟](/content/gnews/18/README.md)
  ` MG FARM`
 
-### [日本卫生部警告瑞辉疫苗或莫德纳疫苗会导致年轻人群患上心脏疾病](/content/gnews/17/README.md)
+### [日本卫生部警告瑞辉疫苗或莫德纳疫苗会导致年轻人群患上心脏疾病](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [世界各地抗议专制的封锁和疫苗强制令](/content/gnews/18/README.md)
+### [世界各地抗议专制的封锁和疫苗强制令](/content/gnews/20/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [Hcoin To the Moon 登上Billboard全球数字歌曲销量榜首](/content/gnews/19/README.md)
+### [Hcoin To the Moon 登上Billboard全球数字歌曲销量榜首](/content/gnews/21/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [主导信念决定你如何应对现实以及命运的方向（1/2）](/content/gnews/20/README.md)
+### [主导信念决定你如何应对现实以及命运的方向（1/2）](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [投身正义之战 送葬中共！](/content/gnews/21/README.md)
+### [投身正义之战 送葬中共！](/content/gnews/23/README.md)
  ` 秘密翻译组-原创组`
 
-### [研究证明接种强生疫苗会增加患格林-巴利综合征的风险](/content/gnews/22/README.md)
+### [研究证明接种强生疫苗会增加患格林-巴利综合征的风险](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [“躺平币”是向中共讨债的工具，解放更多的灭共力量](/content/gnews/23/README.md)
+### [“躺平币”是向中共讨债的工具，解放更多的灭共力量](/content/gnews/25/README.md)
  ` YALUN 亚伦`
 
-### [Covid 疫苗的 8 种最常见和最严重的不良反应](/content/gnews/24/README.md)
+### [Covid 疫苗的 8 种最常见和最严重的不良反应](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [《美国之音》对众议院三项法案的报道在掩盖啥？](/content/gnews/25/README.md)
+### [《美国之音》对众议院三项法案的报道在掩盖啥？](/content/gnews/27/README.md)
  ` HimalayaRussia`
 
-### [灭共者之疫苗灾难（一）](/content/gnews/26/README.md)
+### [灭共者之疫苗灾难（一）](/content/gnews/28/README.md)
  ` MOS Designer香草山设计部`
 
-### [前总统候选人希拉里·克林顿泪流满面地再现了她从未发表的胜利演讲](/content/gnews/27/README.md)
+### [前总统候选人希拉里·克林顿泪流满面地再现了她从未发表的胜利演讲](/content/gnews/29/README.md)
  ` MG FARM`
-
-### [爆出疫苗含有石墨烯，德国化学家神秘离世](/content/gnews/28/README.md)
- ` 墨尔本雅典娜农场`
-
-### [灭共者之追悼习包子（一）](/content/gnews/29/README.md)
- ` MOS Designer香草山设计部`
 
 ### [英国、加拿大宣布外交抵制中共北京冬奥会](/content/gnews/30/README.md)
  ` GTV新闻访谈`

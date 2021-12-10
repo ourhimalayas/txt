@@ -2,138 +2,50 @@
 ---
 
 
-## 英国赌场牌照的意义
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1737580/)
+## “班农先生不睬案”审理日期已确定
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1737586/)
 
-现在我告诉大家, 这种英国的赌牌
-Ahora les digo a todos, estas licencias de apuesta del Reino Unido
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-它不是价值
-No es el valor
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/12/B-4.jpg)hurriyetdailynews.com
+“班农先生不睬案”的定义详见Gnews文章。【1】
 
-这是英国赌牌
-Esta es la licencia de apuesta del Reino Unido
+司法部企图回避班农先生团队要求公布更多的文件，希望速战速决，快速了解此案，提出明年4月份审理的要求，而班农先生需要追究这起诉讼案更深的背景，提出明年10月份进行法庭审理，法官则进行了折中，确定在2022年7月18日进行。【2】
 
-它有一个最安全的资金来源通道
-Tiene el canal de fuentes de fondos más seguro
+《门道专家》对司法部的行径进行了指责，“对班农先生的案子希望隐藏证据、光速结案——而对1.6抗议者无审判日期，要他们牢底坐穿”。【3】
 
-听懂了吗
-¿ Entendieron?
+全文如下：
 
-对我们喜联储的重大的利好
-Es de gran beneficio para nuestra Reserva Federal de Himalaya
+有关史蒂夫·班农藐视国会案的有关信息今天公布。
 
-因为我们的喜联储通过这个咱们的H-coin也好, H-pay也好
-Porque nuestra Reserva Federal de Himalaya ya sea a través de H-coin, H-pay
+美国《伟大》（American Greatness）杂志撰稿人朱莉·凯利（Julie Kelly）在推特上发布了大量描述班农在其案件中的战略信息。
 
-H-dollar也好
-O H-dollar
+班农的团队计划向美国检察官办公室、司法部、白宫和美国众议院索取信息。
 
-全部都活了, 一下子就(活了)
-Todo habrá vitalidad
+司法部很害怕，试图阻止班农向媒体发布信息，班农的团队提醒法官，媒体希望看到这些信息。
 
-而且是每天的这种流量应该是相当巨大
-Y el flujo de todos los días es bastante grande
+文章附上了凯利的推文。
 
-如果特别像台湾大牛
-Si es especialmente como Daniu de Taiwán
+法官似乎站在腐败犯罪的司法部一边。
 
-巴黎在台湾的人
-Y Bali que son de Taiwán
+班农正在追捕腐败和非法的1.6委员会。
 
-我告诉你台湾我知道几个家族
-Déjame decirte que yo sé de algunas familias en Taiwán
-每年就是到欧洲
-Donde van todos los años a Europa
+共和党人迷路了，他们在树林里寻找出路，他们根本帮不上忙。
 
-到英国去赌
-A apostar en Reino Unido
+1.6（抗议者的）案件被推迟，但班农的案子必须以光速行动？
 
-都是几亿几亿美元的赌
-Son apuestas de cientos de millones de dólares
+掌管我们司法部和美国政府的是一个多么腐败的集团啊。这一切都始于奥巴马。
 
-有的大的玩得更大
-Algunos juegan aún más grande
+（原文完）
 
-我再告诉大家
-También les digo
+有关链接：
 
-赌场某种程度上是一个
-El casino es de alguna manera un
+【1】[https://gnews.org/zh-hans/1706104/](https://gnews.org/zh-hans/1706104/)
 
-最高端的金融游戏的智慧家的玩者
-Jugador más inteligente y sofisticado del juego finaciero
+【2】[https://thehill.com/regulation/court-battles/584703-judge-sets-july-trial-date-in-bannon-case](https://thehill.com/regulation/court-battles/584703-judge-sets-july-trial-date-in-bannon-case)
 
-在英国
-En Reino Unido
-
-只要你按我这个规矩玩儿
-Si juegas siguiendo mis reglas
-
-你绝对受到保护和尊重
-Serás absolutamente protegido y respetado
-
-他和中共国到澳门去
-Él va con el PCCh a Macao
-
-一会儿你涉黑了
-En un momento serás involucrado en la organización criminal
-
-你本来赌场就是黑社会
-El casino en sí es una organización criminal
-你涉个屁黑啊
-Para qué dices que estás involucrado en eso
-
-你本来就是黑社会还涉黑呢
-Porque ya en sí ya eres de la organización criminal
-
-是吧, 洗钱了
-Cierto, dinero blanqueado
-
-那赌场就是洗钱的
-Los casinos juegan el dinero blanquedo
-
-是不是, 他就这么简单
-Es o no es así, es tan sencillo
-
-你在英国不存在这个
-En Reino Unido no existe esto
-
-只要你按我的规则来
-Si sigues mis reglamentos
-
-你永远受保护
-Serás siempre protegido
-
-你去看看千年的历史
-Puedes ver la historia de hace mil años atrás
-
-英国没干过这事儿
-En Reino Unido no han hecho este tipo de cosas
-
-明白了吗, 意义重大
-¿ Comprenden? Este es muy significativo
-
-**原视频网址：**[https://gettr.com/post/pisqau958b](https://gettr.com/post/pisqau958b)
-
-日期：12/08/2021
-原视频标题：英国赌场牌照的意义
-El significado de la licencia de casino del Reino Unido
-原视频日期：12/05/2021
-原视频网址：https://gettr.com/post/pisqau958b
-任务编号：KC318(3123)
-视频时间段：0:00-1:43
-
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
-审片： 洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+【3】[https://www.thegatewaypundit.com/2021/12/doj-steve-bannons-court-case-wants-withhold-evidence-move-light-speed-j6-protesters-held-jail-still-dont-court-dates/](https://www.thegatewaypundit.com/2021/12/doj-steve-bannons-court-case-wants-withhold-evidence-move-light-speed-j6-protesters-held-jail-still-dont-court-dates/)
 
  
 

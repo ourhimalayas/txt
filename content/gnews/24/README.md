@@ -2,67 +2,52 @@
 ---
 
 
-## Covid 疫苗的 8 种最常见和最严重的不良反应
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1737187/)
+## 研究证明接种强生疫苗会增加患格林-巴利综合征的风险
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1737201/)
 
-翻译： Jenny Ball
+翻译：Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-4-3.jpg)图片来源：naturalnews.com（作者：SD Wells）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/52eba7e5-4ccc-471a-876a-8d4566128918.jpg)图片来源：Radek Mica /法新社
 
-自然新闻([Natural News](https://www.naturalnews.com/)) – 长期以来，疫苗一直被认为是美国医学的圣杯，因为它们以这种方式出售。在一个以商品、服务和药物的广告和营销为基础的资本主义国家，大多数美国人相信他们在电视上听到、在线阅读以及在杂志和报纸上看到的一切。他们认为这一切都是真实的、合法的，并被当地的官员批准使用或消费。然而，媒体和政府推动的大多数产品和药物都是掺假的，对人体有毒，尤其是疫苗。
+一项新的研究表明，接受强生 COVID-19 疫苗的人患严重自身免疫性疾病的风险增加，这可能导致瘫痪。
 
-更糟糕的是，假冒疫苗会导致[可怕的副作用和不良事件](https://thepulse.one/2021/11/25/pfizer-was-aware-of-over-50k-serious-covid-vaccine-reactions-with-months-of-distribution/)，这些副作用和不良事件通常是永久性的，包括死亡。现在，这些有害的健康损害正在被掩盖，不仅在它们发生之后，而且在临床试验期间。
+研究人员使用了由CDC运营的疫苗安全数据链中的数据。他们发现 21 例潜在病例，其中 11 例得到确认，在接种疫苗的人群中，患有格林-巴利综合症 (GBS)。 大多数发生在接种疫苗 13 天后。
 
-事实上， [新发现的辉瑞文件显示](https://www.naturalnews.com/2021-12-02-smoking-gun-pfizer-document-exposes-fda-criminal-cover-up-of-vaccine-deaths.html)，在近一年前的 2021 年 1 月和 2 月，报告了数以万计的不良反应。这些文件是在一组原告教授/科学家提交《信息自由法》请求后出现的。这通常是唯一途径让公众发现这些制药罪犯和他们大规模杀人犯的阴谋，以及用有毒疫苗蒙骗群众的伎俩。
+接种后1～21天，每10万人年确诊病例发生率为34.6例，远高于历史背景发病率为每年10万人2例。
 
-**谁会相信年复一年的惯犯的制药罪犯？**
+研究人员确定，在接种基于信使 RNA 的疫苗、莫德纳或辉瑞疫苗的人群中，GBS 的发生率要低得多。这些疫苗接种后的比率与背景比率相似。
 
-怎么会有人相信为辉瑞、莫德纳、强生、默克或任何疫苗制造这样黑帮的人，他们的行为就像重犯一样，都应该在监狱里服刑。在我们应该击退流行病的最重要的医学领域，**完全缺乏透明度，**** ****这肯定不会****“****拉平曲线****”****或阻止**** Covid ****的传播**。美国各地的医生和护士被虚假信息误导，并受到不适当的教育，将虚假信息传递给他们的患者。这些错误信息导致医护人员通过基因注射治疗，不计后果地的危及人们的生命。这些注射杀死（并致残）的人，远远多于他们挽救的人。
+研究人员说，这项研究验证了疫苗不良事件报告系统 (VAERS) 的发现，该系统是由 CDC 和FDA运营的被动报告系统。
 
-在疫苗分发后的短短几个月内，辉瑞的高管和科学家们就知道，在最初几个月内，报告了大约 50,000 多种由 Covid 疫苗引起的[严重不良反应](https://phmpt.org/wp-content/uploads/2021/11/5.3.6-postmarketing-experience.pdf)，但他们没有告诉任何人。
+10 月份发表在《美国医学会杂志》上的一项研究，分析了该系统的数据，发现“在收到强生疫苗后，格林-巴利综合征存在潜在的安全问题，虽然小但具有统计学意义”。到 12 月 8 日注射疫苗的人，向 VAERS 报告的 GBS 病例数为 210。
 
-**辉瑞在向**** FDA ****的**** SECRET ****中承认，****mRNA Covid ****疫苗会导致****“****病情加重****”****，从而加剧大流行。**
+威斯康星州马什菲尔德诊所研究所的凯拉·汉森（ Kayla Hanson）， 在凯撒永久研究（Kaiser Permanente Research ）的科学家、丹佛的门诊护理服务和明尼阿波利斯的 “健康伙伴”研究所的帮助下完成了这项新研究。
 
-**在一份确凿的文件中，辉瑞在****“****安全问题****”****的标题下向**** FDA ****承认，****mRNA ****注射会导致****“****疫苗相关增强疾病****”****（****VAED****），这也可能是呼吸道感染****/****功能障碍。设想，**** Covid ****病毒是由人类在实验室进行基因改造的病毒引起的呼吸道感染，针对该病毒感染的疫苗会导致人类呼吸系统患上呼吸道疾病，这无异于火上浇油。**
+该研究由 CDC 赞助，它在 Medrxiv 服务器上作为预印本或同行评审之前发布。限制包括在美国使用的强生注射剂相对于辉瑞和莫德纳注射剂的剂量要少得多，并排除了加强剂量。
 
-所以 FDA 知道这一点，辉瑞知道这一点，但他们仍然被授予“紧急使用批准”，以进一步感染数百万美国人，而人们却一无所知。
+强生公司没有回应置评请求。
 
-这份秘密文件还披露了辉瑞 mRNA 注射的 **1200 ****多人死亡和**** 42,000 ****多份不良报告**，总计近 **160,000 ****次不良反应**。这将使他们不得不为每一个被他们欺骗而受伤或死亡的患者（包括每个男人、女人、儿童、婴儿或怀孕终止），承担数百万美元的损失。
+该公司在本周的一份新闻稿中表示，GBS“已经发生在一些接受过”该公司疫苗的人身上。它说，在大多数人中，症状在 42 天后开始出现，并补充说“发生这种情况的可能性非常低。”
 
-一般疾病和神经系统疾病， 在这些已知不良反应的图表中名列前茅。此外，由于某种未知原因（人口控制），女性受到的影响是男性的三倍。这种疫苗是为了减少人口而设计的，是针对性别特定的损害吗？ 辉瑞和 FDA 肯定知道这件事。看看下面这些 Covid 疫苗最常见和最严重的 8 种不良反应：
+强生公司敦促人们，在接种疫苗后出现以下任何症状时立即就医：
 
-#1. 心肌炎
-#2. 新的神经系统疾病
-#3. 新的呼吸系统疾病
-#4. 血块
-#5. 新的肌肉骨骼疾病
-#6. 新的胃肠道疾病
-#7. 过敏性休克（近 10%） #8. 新感染，包括感染 Covid 及其变种[New infections](https://www.naturalnews.com/2021-12-03-mrna-vaccines-dramatically-increase-inflammatory-markers.html)
+- 虚弱或刺痛感，尤其是腿部或手臂，正在恶化并扩散到身体的其他部位；
+- 行走困难；
+- 面部运动困难，包括说话、咀嚼或吞咽；
+- 复视或无法移动眼睛；
+- 膀胱控制或肠道功能困难。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/unknown-4-2.png)图片来自原文
 
-文章内容来源：
+FDA 7 月在强生公司的疫苗中添加了一个标签，警告人们,与 GBS 的“观察到的风险增加”有关警告。
 
-[Pandemic.news](https://www.pandemic.news/2021-03-04-who-insider-exposes-gavi-gates-perpetrating-plandemic.html)
+然而，监管机构表示，疫苗的好处超过了与之相关的风险。
 
-[TruthWiki.org](http://www.truthwiki.org/cdc-centers-for-disease-control-and-prevention/)
-
-[NaturalNews.com](https://www.naturalnews.com/2021-12-02-smoking-gun-pfizer-document-exposes-fda-criminal-cover-up-of-vaccine-deaths.html)
-
-[ZeroHedge.com](https://www.zerohedge.com/covid-19/joe-rogan-crushes-cnn-over-ivermectin-horse-paste-propaganda-gets-gupta-concede)
-
-[FoodSupply.news](http://www.foodsupply.news/2021-11-18-food-shortage-engineered-to-control-people.html)
-
-[RepublicWorld.com](https://www.republicworld.com/world-news/us-news/thousands-of-americans-have-experienced-severe-reactions-to-covid-vaccines-cdc-report.html)
-
-[ThePulse.one](https://thepulse.one/2021/11/25/pfizer-was-aware-of-over-50k-serious-covid-vaccine-reactions-with-months-of-distribution/)
-
-[naturalnews][Top 8 most COMMON and SERIOUS adverse reactions to Covid vaccines](https://www.naturalnews.com/2021-12-04-top-8-most-common-serious-adverse-reactions-covid-vaccines.html)
+**参考资料：**[theepochtimes][People Who Get Johnson & Johnson Vaccine at Elevated Risk of Guillain-Barré Syndrome: Study](https://www.theepochtimes.com/mkt_morningbrief/people-who-get-johnson-johnson-vaccine-at-elevated-risk-of-guillain-barre-syndrome-study_4145771.html?utm_source=Morningbrief&amp;utm_medium=email&amp;utm_campaign=mb-2021-12-09&amp;mktids=1d74b01a65bdf6b768d7855cabbd21fc&amp;est=U6MK2xQLDLaeA0vmZLteCWcph7JXIIybSbE08Vrcc9yxSYT%2FrbFuUAYjpHeAvYgoPCf0CQ%3D%3D)
 
 * * *
 
 *审核：文乐
-校对：信心满满
+校对：阿伯塔
 发布：信心的选择*
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH..jpeg)
