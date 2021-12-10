@@ -15,163 +15,163 @@
 
 ---
 
-### [中共不得不继续使用磁性电机以避免稀土消耗](/content/gnews/1/README.md)
- ` 澳喜农场`
+### [新冠病毒的预防与治疗 ——一定不要接种疫苗](/content/gnews/1/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [辉瑞加大游说力度以废除旨在保护举报人的法律](/content/gnews/2/README.md)
- ` 首尔天池农场`
+### [中共国抗疫收益67万亿意味着什么？](/content/gnews/2/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [一百万过期疫苗救了多少人？](/content/gnews/3/README.md)
- ` 纽约香草山MOS01`
+### [我们一定会赢！](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共高级特务！郭先生揭秘单伟建真实身份](/content/gnews/4/README.md)
- ` GTV新闻访谈`
+### [币圈新闻动态：Huobi Global将于12月15日正式停止中国大陆用户服务](/content/gnews/4/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [COVID-19 最新情报｜诚实豆沙包？新西兰总理承认“疫苗接种计划没有终点”](/content/gnews/5/README.md)
+### [第三方公司抢甘蔗与中共的法西斯美学](/content/gnews/5/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [COVID-19 最新情报｜为自由松绑 巴西总统对“疫苗护照”说不](/content/gnews/6/README.md)
  ` G&#124;News TAIWAN`
 
-### [恒大违约将拖累加密货币、机构投资者、养老基金](/content/gnews/6/README.md)
- ` 墨尔本雅典娜农场`
+### [锂业巨头出手削弱中共国电动汽车和电池所需矿产上的主导地位](/content/gnews/7/README.md)
+ ` 澳喜农场`
 
-### [喜币利好&#8211;加密货币行业高管请求国会明确立法](/content/gnews/7/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm Toronto(CA)`
+### [纳瓦罗：拜登政府的疫情死亡人数比川普政府时还多](/content/gnews/8/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [尼加拉瓜“二次”与台湾断交，承诺支持中共政策](/content/gnews/8/README.md)
+### [当今天谈论12月7日，记住我们正处于第三次珍珠港事件](/content/gnews/9/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [日本厚生省警告疫苗会对年轻男性造成心脏相关的副作用](/content/gnews/10/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [玛莉亚呼吁美国公司支持坎特这样体现美国价值的明星](/content/gnews/11/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [中共不得不继续使用磁性电机以避免稀土消耗](/content/gnews/12/README.md)
+ ` 澳喜农场`
+
+### [我们将把中共及其亲属送进地狱](/content/gnews/13/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [辉瑞加大游说力度以废除旨在保护举报人的法律](/content/gnews/14/README.md)
  ` 首尔天池农场`
 
-### [一个对疫苗引发的血液栓塞的治疗方案](/content/gnews/9/README.md)
- ` 澳喜农场`
-
-### [串珠473:为什么必须反对冠状病毒疫苗？](/content/gnews/10/README.md)
- ` 郭爆料串珠`
-
-### [CCP的假](/content/gnews/11/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm Toronto(CA)`
-
-### [串珠472:美国的强制疫苗政策停了，全球才会停](/content/gnews/12/README.md)
- ` 郭爆料串珠`
-
-### [中共威胁西方国家，抵制北京冬奥会必将付出代价](/content/gnews/13/README.md)
- ` 墨尔本雅典娜农场`
-
-### [串珠471:平民都被忽悠打真的，高官都在演戏打假的](/content/gnews/14/README.md)
- ` 郭爆料串珠`
-
-### [中共金钱外交再次奏效，尼加拉瓜宣布与台湾断交](/content/gnews/15/README.md)
- ` 墨尔本雅典娜农场`
-
-### [新研究发现Covid19病毒的抗疫苗突变与疫苗接种率密切相关](/content/gnews/16/README.md)
- ` 澳喜农场`
-
-### [集结号角已吹响——行动! 行动! 行动!](/content/gnews/17/README.md)
- ` 澳喜特战旅Gnews`
-
-### [12/9/2021文贵盖特：中共万万没想到冬奥会真的会打水漂；阿富汗已饿死80余万人、奥米炕病毒和疫苗谁先谁后是中共的死穴](/content/gnews/18/README.md)
- ` 秘密翻译组-北美组`
-
-### [视频| 新中国联邦人肩负着使命](/content/gnews/19/README.md)
- ` MOSREC`
-
-### [矢板明夫解读中共政协主席汪洋向两岸企业家紫金山峰会发的贺信](/content/gnews/20/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [南非医生：人们对Omicron变体反应过度了](/content/gnews/21/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [12/5/2021 【粤语】文贵直播：中共和其他邪惡勢力沆瀣一氣，妄圖消滅老年人和殘疾人](/content/gnews/22/README.md)
- ` 秘密翻译组-北美组`
-
-### [视频| 美联俄抗共，共产党必死无疑](/content/gnews/23/README.md)
- ` MOSREC`
-
-### [视频| 从今天起没有“郭七条”](/content/gnews/24/README.md)
- ` MOSREC`
-
-### [疫苗专家警告：不要接种&#8221;新冠疫苗&#8221;特别是儿童](/content/gnews/25/README.md)
- ` 墨尔本雅典娜农场`
-
-### [中共病毒及其疫苗全球超限战中的典型案例（三十八）](/content/gnews/26/README.md)
+### [硅谷夫妇买下特蕾西·都铎的2000万美元房子](/content/gnews/15/README.md)
  ` 纽约香草山MOS01`
 
-### [美议员——中共利用美国科技攻击美国，美国如何反击](/content/gnews/27/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [赞德蕾·博塔医生分享打疫苗后缓解血栓的治疗方案](/content/gnews/16/README.md)
+ ` 纽约香草山MOS01`
 
-### [台湾连续第三年被评为亚洲唯一拥有开放公民空间的国家](/content/gnews/28/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [一百万过期疫苗救了多少人？](/content/gnews/17/README.md)
+ ` 纽约香草山MOS01`
 
-### [抵制北京冬奥会的呼声开始在日本政界内蔓延](/content/gnews/29/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [中共高级特务！郭先生揭秘单伟建真实身份](/content/gnews/18/README.md)
+ ` GTV新闻访谈`
 
-### [韩国发布行政命令增加中共病毒重症患者专用治疗床](/content/gnews/30/README.md)
- ` 首尔天池农场`
+### [COVID-19 最新情报｜诚实豆沙包？新西兰总理承认“疫苗接种计划没有终点”](/content/gnews/19/README.md)
+ ` G&#124;News TAIWAN`
 
-### [中国政府的维族政策构成种族灭绝和危害人类罪](/content/gnews/31/README.md)
+### [恒大违约将拖累加密货币、机构投资者、养老基金](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共的“叫嚣逻辑”，究竟谁会为外交抵制付出代价](/content/gnews/32/README.md)
+### [北京市宣布官方在线辅导平台将推向全市](/content/gnews/21/README.md)
+ ` G-NEWS TAIWAN`
+
+### [尼加拉瓜“二次”与台湾断交，承诺支持中共政策](/content/gnews/22/README.md)
+ ` 首尔天池农场`
+
+### [一个对疫苗引发的血液栓塞的治疗方案](/content/gnews/23/README.md)
+ ` 澳喜农场`
+
+### [串珠473:为什么必须反对冠状病毒疫苗？](/content/gnews/24/README.md)
+ ` 郭爆料串珠`
+
+### [串珠472:美国的强制疫苗政策停了，全球才会停](/content/gnews/25/README.md)
+ ` 郭爆料串珠`
+
+### [中共威胁西方国家，抵制北京冬奥会必将付出代价](/content/gnews/26/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [中共金钱外交再次奏效，尼加拉瓜宣布与台湾断交](/content/gnews/27/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [新研究发现Covid19病毒的抗疫苗突变与疫苗接种率密切相关](/content/gnews/28/README.md)
+ ` 澳喜农场`
+
+### [矢板明夫解读中共政协主席汪洋向两岸企业家紫金山峰会发的贺信](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共逼迫跨国公司断绝与立陶宛的合作](/content/gnews/33/README.md)
+### [疫苗专家警告：不要接种&#8221;新冠疫苗&#8221;特别是儿童](/content/gnews/30/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [美议员——中共利用美国科技攻击美国，美国如何反击](/content/gnews/31/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [台湾连续第三年被评为亚洲唯一拥有开放公民空间的国家](/content/gnews/32/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [抵制北京冬奥会的呼声开始在日本政界内蔓延](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [参议院共和党拒绝必须通过的国防法案上的债务限额](/content/gnews/34/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [韩国发布行政命令增加中共病毒重症患者专用治疗床](/content/gnews/34/README.md)
+ ` 首尔天池农场`
 
-### [澳大利亚和美国一起对北京冬奥会进行外交抵制](/content/gnews/35/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [联邦法官叫停拜登政府对联邦承包商的中共疫苗强制令](/content/gnews/36/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中共正寻求建立大西洋上的第一个军事基地](/content/gnews/37/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [如果美国政府无法保证运动员的安全，就不该派运动员参加北京冬奥会](/content/gnews/38/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中共又买到了一个“朋友”，尼加拉瓜与台湾断交](/content/gnews/39/README.md)
+### [中共的“叫嚣逻辑”，究竟谁会为外交抵制付出代价](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [泰德-克鲁兹怒斥疫苗强制是非法的，违宪的，是荒谬的滥用权力](/content/gnews/40/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm Toronto(CA)`
+### [中共逼迫跨国公司断绝与立陶宛的合作](/content/gnews/36/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [GTV新闻访谈简报|2021年12月9日晚](/content/gnews/41/README.md)
+### [澳大利亚和美国一起对北京冬奥会进行外交抵制](/content/gnews/37/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [联邦法官叫停拜登政府对联邦承包商的中共疫苗强制令](/content/gnews/38/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [中共正寻求建立大西洋上的第一个军事基地](/content/gnews/39/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [如果美国政府无法保证运动员的安全，就不该派运动员参加北京冬奥会](/content/gnews/40/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [中共又买到了一个“朋友”，尼加拉瓜与台湾断交](/content/gnews/41/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [GTV新闻访谈简报|2021年12月9日晚](/content/gnews/42/README.md)
  ` GTV新闻访谈`
 
-### [美国立法全面禁止进口所有新疆产品](/content/gnews/42/README.md)
+### [美国立法全面禁止进口所有新疆产品](/content/gnews/43/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本计划在2022年出台“稳定币”监管法律](/content/gnews/43/README.md)
+### [日本计划在2022年出台“稳定币”监管法律](/content/gnews/44/README.md)
  ` 日本东京方舟农场`
 
-### [“班农先生不睬案”审理日期已确定](/content/gnews/44/README.md)
+### [“班农先生不睬案”审理日期已确定](/content/gnews/45/README.md)
  ` HimalayaRussia`
 
-### [美国公司是中共国的“人质”](/content/gnews/45/README.md)
+### [美国公司是中共国的“人质”](/content/gnews/46/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [“躺平币”是向中共讨债的工具，解放更多的灭共力量](/content/gnews/46/README.md)
+### [“躺平币”是向中共讨债的工具，解放更多的灭共力量](/content/gnews/47/README.md)
  ` YALUN 亚伦`
 
-### [英国、加拿大宣布外交抵制中共北京冬奥会](/content/gnews/47/README.md)
+### [英国、加拿大宣布外交抵制中共北京冬奥会](/content/gnews/48/README.md)
  ` GTV新闻访谈`
 
-### [家居企业转让恒大股份 恒大债务违约在即](/content/gnews/48/README.md)
+### [家居企业转让恒大股份 恒大债务违约在即](/content/gnews/49/README.md)
  ` GTV新闻访谈`
 
-### [2021年12月8日郭文贵先生直播全文字版](/content/gnews/49/README.md)
+### [2021年12月8日郭文贵先生直播全文字版](/content/gnews/50/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [人生终点服务站欢迎盗国贼家族](/content/gnews/50/README.md)
+### [人生终点服务站欢迎盗国贼家族](/content/gnews/51/README.md)
  ` 骄子`
 
-### [12/09/2021 国际财经快讯：美国劳动者有望在经济蛋糕中占大头，但要过美联储这关；苹果公司在垄断案中赢得时间，获准暂缓修改App Store规则](/content/gnews/51/README.md)
+### [12/09/2021 国际财经快讯：美国劳动者有望在经济蛋糕中占大头，但要过美联储这关；苹果公司在垄断案中赢得时间，获准暂缓修改App Store规则](/content/gnews/52/README.md)
  ` 秘密翻译组金融团队`
 
-### [快手“断手”能否重振雄风？](/content/gnews/52/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共高校连年增加1400余家马克思学院](/content/gnews/53/README.md)
+### [快手“断手”能否重振雄风？](/content/gnews/53/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [国会回击迫使拜登撤回银行监管机构人选提名](/content/gnews/54/README.md)

@@ -2,13 +2,30 @@
 ---
 
 
-## 美国立法全面禁止进口所有新疆产品
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1737744/)
+## GTV新闻访谈简报|2021年12月9日晚
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1737801/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1210-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-2.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/1209text-SC.png)
+
+
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+视频参看：[12.9  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61b2ad0556f4921401b365cb)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-4.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

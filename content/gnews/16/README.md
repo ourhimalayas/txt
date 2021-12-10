@@ -2,42 +2,59 @@
 ---
 
 
-## 新研究发现Covid19病毒的抗疫苗突变与疫苗接种率密切相关
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1738300/)
+## 赞德蕾·博塔医生分享打疫苗后缓解血栓的治疗方案
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1738463/)
 
-撰稿：Runaway
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Mutation-111.jpg)网络图片
-**病毒为生存而进化**
+作者：纽约香草山翻译部 – defiance
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
+在12月2日的Stew Peter节目上，Zandre Botha医生分享了打了疫苗后，缓解血栓的方法。她总结了治疗方案分成两部分，日常部分，也就是营养保健品，医疗部分，也就是高剂量的药物。不管是轻度打疫苗后不良反应还是重度的都可用，调整的只是剂量：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture1-18.jpg)
+日常部分，用于轻度疫苗不良反应治疗方案
 
-理查德·弗莱明博士：“病毒和所有生命一样，包括这种人造病毒，都会为了生存而进化。病毒依赖宿主生存和繁殖，就SARS-CoV-2而言人就是其宿主。如果病毒变得太危险并杀死了您，那么病毒将无法生存，也无法传播给其他人，它会在你体内死去。”
+•营养保健品 Nutraceuticals
 
-一项新研究表明，疫苗突破或反-抗体突变提供了病毒进化的新机制。
+•抗凝血剂 anti-coagulant
 
-“通过跟踪超过220万个SARS-CoV-2基因组中抗疫苗突变的进化轨迹发现，病毒抗疫苗突变的发生和频率与疫苗接种率密切相关。我们预计…当世界上大多数人口接种疫苗或被感染时，疫苗突破或反-抗体突变将成为病毒进化的主要机制”，该研究的作者写道。
+•血小板thrombocyte，阿斯匹林asprin（过敏的除外），姜黄素/姜黄curcumin/turmeric（剂量要大），大蒜garlic。
 
-该研究特别提到了刺突蛋白受体结合域中的抗疫苗突变，发现突变降低了传染性，但破坏了现有的对抗病毒的抗体。
+•伊维菌素 Ivermectin 每天12毫克，持续5天，然后每周1次12毫克。
 
-理查德弗莱明博士解释了这一现象：“如果你的免疫力取决于接种特定版本变体的刺突蛋白，那么T细胞和B细胞（抗体）反应将只识别SARS-CoV-2的那个版本（变体）。该病毒的那个版本（变种）无疑会被成功阻击，而其他版本很可能不会。当您同时感染多种病毒变体时，其它变体将存活下来并感染您和其他人。”
+•N-乙酰-L-半胱氨酸 NAC 每天3次 每次500毫克（肝脏解毒）。
 
-**T细胞在消失**
+•氧气胶囊仓oxygen capsule/血液氧合器blood oxygenator。
 
-T淋巴细胞（T lymphocyte）简称T细胞，是由来源于骨髓的淋巴干细胞，在胸腺中分化、发育成熟后，通过淋巴和血液循环而分布到全身的器官和组织中发挥免疫功能 。
+•水针 Hydro shot——药片形式的氢分子Molecular Hydrogen in pill form（对抗细菌、病毒，特别是严重氧化应激）。
 
-一项测量刺突蛋白和T细胞含量的研究揭示，一个先前具有天然免疫力的患者，在接种2针疫苗后不再具有非刺突蛋白类T细胞免疫。
+•沸石化学品 Zeolite Chemicals（辐射及重金属解毒，她为一个病人用了3大盒）。
 
-理查德·弗莱明 (Richard Fleming)揭示了Covid疫苗引起的ADE的真实情况，随着新变异的出现，抗体反应将变得越来越无效。
+•胶体银Colloidal Silver、二氧化氯 chlorine dioxide饮用drink，雾化nebulize之。
 
-另一项研究发现，疫苗的接种实际上推动了病毒的持续传播，使大流行保持了活力，否则它早就已经过去了。“抗体依赖性增强（“ADE”）正在‘完全接种疫苗’的体内发生，导致他们成为行走的突变体和刺突蛋白工厂，使他们周围的每个人都有感染的风险。”
+•维他命D  Vitamin D 5000毫克
 
-**结论**
+•碱粉Alkaline powder（对心脏有帮助，酸性环境对心脏不好）
 
-疫苗不但推动了病毒的变异，还消灭了T细胞（全能自然免疫力），令人类更加依赖针对新变异病毒的疫苗。只要你打过疫苗后，接种还能停下来吗？
+•Botha医生秘制“解毒加强神药”Miracle Booster Detox（是来自不同国家地区的超级食物，包括螺旋藻Spirulina，辣木moringa，黑种草籽 black seed 大麦 barley, 还有甜菜根粉beetroot powder（补铁，提升载氧量））
 
-[参考链接](https://dailyexpose.uk/2021/12/09/just-in-new-research-finds-that-covid-vaccine-resistant-mutations-strongly-correlate-with-vaccination-rates/)
+医生还说，充血淤血、疲劳本身就是种病的征兆，要重视起来。身体疲劳的原因就是心脑供氧不足。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture2-7.jpg)
+医疗部分专注四种靶向治疗方法。一是使用氢分子（有些美国科学家也提过），二是使用臭氧，通过静脉输入，或者在一个平板舱内，有利于解毒和细胞再生。三是莱夫机，如果有莱夫机的，可以修复三磷酸腺苷（ATP）和DNA。ATP可以改善线粒体。四是激光（comra laser），作用于干细胞。
 
-发稿：Runaway
-![此图像的alt属性为空；文件名为澳喜图标2-1-2.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1-2.jpg)
+Botha医生已经临床实验了6个月。她通过观测血相得出结论：吃药加治疗后3-4周，病人感觉良好，这些病人都是已经感到有明显的严重不良反应的病人。而且仅吃药就有很多病人感觉舒服多了。
 
+参考来源：[赞德蕾·博塔医生分享打疫苗后缓解血栓的治疗方案](https://www.redvoicemedia.com/2021/12/doctor-finds-treatment-for-vaxx-victims-sees-major-improvement-in-blood/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88-1.png)
+
+编辑/校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
 
 

@@ -2,38 +2,30 @@
 ---
 
 
-## 一百万过期疫苗救了多少人？
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1738462/)
+## 我们一定会赢！
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1738601/)
 
-作者：香草山金融部 – 闲聊钱币
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
-根据路透社12月7日的一则新闻，非洲第一人口大国尼日利亚大约有100万支COVID-19疫苗在上个月过期而未被使用，是迄今比较大的一次“浪费”。
+**撰稿：东京樱花团/****黑猫**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-120.png)
+习猪头这次对七哥老父亲和盘古员工及住客的行动，再次向全世界证明了中共有多么残暴，他们是怎样对待人民的，想抓就抓，想杀就杀。
 
-该则新闻强调非洲国家落后的基础设施，匮乏的医疗条件，和短暂的保质期是导致疫苗过期的主要原因。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture1-17.jpg)
-然而非洲国家是不是由于没有注射这100万疫苗就死亡无数呢？根据[worldometers.info](http://worldometers.info) 的数据显示，尼日利亚总人口约两亿一千三百万（213,000,000），染病二十一万五千（215,000），死亡两千九百八十（2,980）。WHO数据显示尼日利亚疫苗成人接种率小于百分之四（4%）。
+以前因为有防火墙，加上全世界没有一个报道真相的媒体，全世界都被谎言蒙蔽洗脑。现在不同了，我们自己已有报道真相的媒体–GTV、GNEWS、盖特。几乎是在他们胡作非为的同时就被暴露到全世界。世界越来越多的人不再相信他们的谎言了。这也让我们爆料革命战友再次看到媒体有多么重要。
 
-用更通俗的话来说就是每1000个尼日利亚人中只有1个被感染，每100个被感染的人中有1.38人失去生命。
+七哥说过他手上有几千个盗国贼子女亲属的地址、银行账号、电话号码等个人信息，这些都是这几十年老杂毛们掏空国库，费尽心思隐藏在海外的命根子。这次的行动直接针对每一个老杂毛的个人财产和子女，直接掏了他们的心窝。估计七哥直播后，中南坑就炸窝了，七哥昨天也说很多人打电话来和他求情勾兑。
 
-与此形成鲜明对比的是医疗条件基础设施都极为发达的美国。根据同一网站数据计算，每1000个美国人有151人感染，每100个被感染的人有1.61个人丧生。更为可笑的是美国的接种率高达60%。
+想必这些老杂毛们要恨死习猪头，尤其是江派的，几十年来韬光养晦闷声发的大财，被习猪头拱得鸡飞狗跳，最后连他们最在意的血脉也要被断掉，想想不得咬着后槽牙要杀习猪头，中共内部将会成为最后的厮杀战场。
 
-任何疫苗的主要作用是防止疾病的扩散，但是从以上数据我们很难看到令人信服的证据。郭文贵先生从疫苗被强行推广的第一天起就大声呼吁世界各国重视由毒疫苗引起的人道灾难。这一百万过期的疫苗在无形中挽救了很多人的生命。
+七哥宣布取消郭七条，这是爆料革命的一个重大的转折点，也是吹起了爆料革命总攻的号角。
 
-参考来源：[一百万过期疫苗救了多少人？](https://www.reuters.com/business/healthcare-pharmaceuticals/exclusive-up-1-million-covid-vaccines-wasted-nigeria-last-month-2021-12-08/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=Hitachi%20UK%208/12/21%20Sponsorship&amp;utm_campaign=Hitachi%20UK%208/12/21%20Sponsorship)
+到现在为止跟随爆料革命走下来的战友，是真的为灭共来的？还是来投机赚钱的？还是来蹭热度的？到了考验战友的时刻。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88-1.png)
+大浪淘沙，沙里淘金。希望战友们不离不弃，最后都能成为跟着七哥走向喜马拉雅的5%的金子。
 
-编辑/校对/发稿：Hetangyuese
+相信天地之间，人类是有主人的！
 
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

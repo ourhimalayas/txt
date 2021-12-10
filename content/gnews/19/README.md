@@ -2,38 +2,22 @@
 ---
 
 
-## 视频| 新中国联邦人肩负着使命
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1738257/)
+## COVID-19 最新情报｜诚实豆沙包？新西兰总理承认“疫苗接种计划没有终点”
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1738442/)
 
-## 摘自2021.12.9郭先生盖特直播
+**撰文｜疫情关注组 / 发布时间｜10/12/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup）](https://gettr.com/user/mightygroup%EF%BC%89)**
 
-制作：香草山视频部，香草山香港部
+自从COVID-19 疫情爆发起，坊间就一直流传着一种说法，“疫情是前菜，疫苗才是主菜。”暗示少数权贵为实现全球人口锐减计划，会永续推行疫苗接种，直至全球总人口降到10亿为止。
 
+本来这种被认为是“疫苗阴谋论”的说法一直受到主流媒体及政治精英们的贬斥，不料，新西兰总理杰辛达·阿德恩 (Jacinta Ardern) 在日前一次采访中，竟然说漏嘴，间接证实了“阴谋论”的猜测。
 
+**阿德恩总理表示，“在我看来，只要还有符合条件但没有接种疫苗的人，我就不会满意，我们就有事要做，这就是我所说的，这个疫苗接种计划不会有终点。”**
 
-在昨天直播后，很多国内的各种人士来跟我说情，我们可以收手，他们也可以收手，各让一步，没有人能懂得七哥的感受，就这种对七哥和家人，对我同事的侮辱，他们把他赶到马路上，这比奴隶社会还可怕，这帮，孙子太狠了。
-
-另外一个看到共产党冬奥被干掉以后。整个乱了。他们做梦没想到。一定记住，他这是狂妄到认为自己真的是上帝了，他做梦都没想到，听说内部已经炸了锅了。所以说爆料革命新中国联邦这个时候，一定要冷静，把握住、驾驭住这个千载难逢的机会，上天给了我们使命，我们一定要不辜负使命，不为事所动，不为情所动，不为利所动、不为名所动，切记躁动，躁动有的时候是情绪决定的，背时不做决定，大乐不做决定，大悲大乐都不做决定，这是高人。
-
-大家一定要记住，把行动用习近平的话说，沉甸甸的扎扎实实地，关键是这1000天，是否持之以恒，是否守住法律红线，是否用智慧，这才是关键中的关键，我们要让他们的家人，我们要让他们的亲人，付出千倍万倍的代价都不拉倒，全球人民正义的力量，一定会把这些老杂毛砸到地底下万层的地狱，万劫不复，啥都不说了，行动！行动！再行动！共产党，你不旦完了，你还会完的非常的惨，走着看。
-
-
-
-发稿：雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/M12.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+值得留意的是，在整个采访中，她多次转换用词，屡次将“只要还有人选择不『接种疫苗』”更正为“只要还有符合条件的人选择不 ‘接种疫苗’ ”，令人担忧，这位总理的潜意识里，是否正在计划推行全民疫苗强制令。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-7.jpg)
+来源｜[MSN](https://thecovidworld.com/new-zealand-pm-jacinda-ardern-theres-not-going-to-be-an-endpoint-to-this-vaccination-program/)
 
  
 
