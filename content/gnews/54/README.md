@@ -2,35 +2,22 @@
 ---
 
 
-## 日本计划在2022年出台“稳定币”监管法律
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1737596/)
+## COVID-19 最新情报｜诚实豆沙包？新西兰总理承认“疫苗接种计划没有终点”
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1738442/)
 
-**撰稿：日本东京方舟农场  老孙**
+**撰文｜疫情关注组 / 发布时间｜10/12/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup）](https://gettr.com/user/mightygroup%EF%BC%89)**
 
-近期，据《日经新闻》报道，日本金融服务局（FSA）计划在2022年推出法案，对银行和电汇公司等金融机构发行“稳定币”实施严格的限制。
+自从COVID-19 疫情爆发起，坊间就一直流传着一种说法，“疫情是前菜，疫苗才是主菜。”暗示少数权贵为实现全球人口锐减计划，会永续推行疫苗接种，直至全球总人口降到10亿为止。
 
-据报道，日本金融服务管理局（FSA）计划在 2022 年出台相关法律，对从事“稳定币”交易的钱包提供商实施监管、要求平台必须遵守某些安全协议，包括验证用户身份、以及报告任何可疑的网络活动。
+本来这种被认为是“疫苗阴谋论”的说法一直受到主流媒体及政治精英们的贬斥，不料，新西兰总理杰辛达·阿德恩 (Jacinta Ardern) 在日前一次采访中，竟然说漏嘴，间接证实了“阴谋论”的猜测。
 
-“稳定币”作为一种与外部资产（如法定货币、黄金或其它投资）挂钩的数字货币，必须储备足够支撑兑换的准备金。去年10月，美国Tether公司发行泰达币（USDT）就因为未能履行其承诺的1：1 的比例储备美元，收到了美国商品期货交易委员会（CFTC）4100 万美元的罚单。
+**阿德恩总理表示，“在我看来，只要还有符合条件但没有接种疫苗的人，我就不会满意，我们就有事要做，这就是我所说的，这个疫苗接种计划不会有终点。”**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/consortium-of-private-firms-in-japan-to-launch-yen-based-digital-currency-730x360-1-1200x720-1.jpg)图片来自网络
-
-FSA认为，将稳定币发行限制在银行和电汇公司是保护客户资产的一种方式，可降低稳定币拥有者的风险。FSA还将加强旨在防止洗钱的法规，涉及稳定币相关交易和钱包管理服务等业务。
-
-与此同时，日本还计划在 2022 年推出一款与日元挂钩的加密货币（或被称作 DCJPY）。其有望得到银行交易支持，以加速企业之间的大量资金转移。
-此外，美国也正在推进关于稳定币的立法。12月3日，美国国会议员Rashida Tlaib、Jesús “Chuy” García和Stephen Lynch提出名为《稳定币网络共享和银行执照执行法》（STABLE）的新法案，该法案将要求稳定币发行商在发行稳定币之前必须获得银行特许执照并获得监管部门的批准。
-
-*参考链接：*
-
-[紧随美国：日本计划在2022年出台严格的“稳定币”监管法律](https://www.cnbeta.com/articles/tech/1211747.htm)
-
-* * *
-
-*素材采编：老孙*
-
-*编辑：文顺*
-
-*发布：Ranting*
+值得留意的是，在整个采访中，她多次转换用词，屡次将“只要还有人选择不『接种疫苗』”更正为“只要还有符合条件的人选择不 ‘接种疫苗’ ”，令人担忧，这位总理的潜意识里，是否正在计划推行全民疫苗强制令。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-7.jpg)
+来源｜[MSN](https://thecovidworld.com/new-zealand-pm-jacinda-ardern-theres-not-going-to-be-an-endpoint-to-this-vaccination-program/)
 
  
 

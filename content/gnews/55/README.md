@@ -2,50 +2,42 @@
 ---
 
 
-## “班农先生不睬案”审理日期已确定
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1737586/)
+## 恒大违约将拖累加密货币、机构投资者、养老基金
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1738416/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/12/B-4.jpg)hurriyetdailynews.com
-“班农先生不睬案”的定义详见Gnews文章。【1】
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/economiccrisisadobestockweb.jpg)
 
-司法部企图回避班农先生团队要求公布更多的文件，希望速战速决，快速了解此案，提出明年4月份审理的要求，而班农先生需要追究这起诉讼案更深的背景，提出明年10月份进行法庭审理，法官则进行了折中，确定在2022年7月18日进行。【2】
 
-《门道专家》对司法部的行径进行了指责，“对班农先生的案子希望隐藏证据、光速结案——而对1.6抗议者无审判日期，要他们牢底坐穿”。【3】
+ 
+图片来源:  www.cdrecycler.com
 
-全文如下：
 
-有关史蒂夫·班农藐视国会案的有关信息今天公布。
+#### 整理报道 ：小红帽
 
-美国《伟大》（American Greatness）杂志撰稿人朱莉·凯利（Julie Kelly）在推特上发布了大量描述班农在其案件中的战略信息。
+中国庞氏房地产开发商恒大现已正式违约，因为惠誉（Fitch）已确认这家负债累累的公司错过了债券利息支付，未偿债券超过3千亿美元。房地产开发商佳兆业（Kaisa）也被点名，还有近十几家其他中国房地产开发商被广泛认为正在违约的路上。
 
-班农的团队计划向美国检察官办公室、司法部、白宫和美国众议院索取信息。
+“**这不仅仅是恒大的违约，这是中国和银行体系的违约**，”丹· 大卫（Dan David）告诉福克斯商业频道。“他们将迎来如2008年美国次贷房地产泡沫一样的崩溃。”
 
-司法部很害怕，试图阻止班农向媒体发布信息，班农的团队提醒法官，媒体希望看到这些信息。
+**在整个2022年，我们都将目睹极端的金融压力，以及许多可能的违约。这将通过持有恒大债务的各种机构蔓延。同时，这可能会影响养老基金，对冲基金，机构投资者，私人投资者甚至中央银行。**
 
-文章附上了凯利的推文。
+许多分析师认为，凭空创造加密货币的“稳定币””提供商Tether可能在恒大拥有数百亿美元的敞口。随着恒大的违约现已正式宣布，**这意味着Tether对恒大、佳兆业或其他中国房地产开发商的持股价值实际上为零**。重要的是，这可能意味着**Tether不再有足够的资产来覆盖其发行到加密生态系统中的USDT硬币**。
 
-法官似乎站在腐败犯罪的司法部一边。
+**由于所有比特币购买行为中有三分之二实际上是使用Tether硬币进行的，这也意味着比特币的市场估值可能会被数字货币印刷业务大幅夸大。**
 
-班农正在追捕腐败和非法的1.6委员会。
+约翰·佩雷斯（John Perez）认为**整个加密生态系统都依赖于大规模的数字货币伪造操作，泡沫很快就会破裂，使加密货币持有者处于与恒大债务持有者相同的位置。**
 
-共和党人迷路了，他们在树林里寻找出路，他们根本帮不上忙。
+新闻来源：[恒大违约 – 传染风险将蔓延到加密货币、机构投资者、养老基金等 – NaturalNews.com](https://www.naturalnews.com/2021-12-09-evergrande-defaults-contagion-risk-will-spread-to-crypto-institutional-investors-pension-funds.html)
 
-1.6（抗议者的）案件被推迟，但班农的案子必须以光速行动？
+***发布：小红帽***
 
-掌管我们司法部和美国政府的是一个多么腐败的集团啊。这一切都始于奥巴马。
-
-（原文完）
-
-有关链接：
-
-【1】[https://gnews.org/zh-hans/1706104/](https://gnews.org/zh-hans/1706104/)
-
-【2】[https://thehill.com/regulation/court-battles/584703-judge-sets-july-trial-date-in-bannon-case](https://thehill.com/regulation/court-battles/584703-judge-sets-july-trial-date-in-bannon-case)
-
-【3】[https://www.thegatewaypundit.com/2021/12/doj-steve-bannons-court-case-wants-withhold-evidence-move-light-speed-j6-protesters-held-jail-still-dont-court-dates/](https://www.thegatewaypundit.com/2021/12/doj-steve-bannons-court-case-wants-withhold-evidence-move-light-speed-j6-protesters-held-jail-still-dont-court-dates/)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
