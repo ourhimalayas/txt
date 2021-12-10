@@ -2,60 +2,50 @@
 ---
 
 
-## 中共威胁西方国家，抵制北京冬奥会必将付出代价
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1738326/)
+## 新中国联邦即将合法追讨盗国贼财产
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1738477/)
 
-**翻译：文扬
-编辑：文泓**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-477.png)图片来源：Business Insider
-本周，中共警告西方国家，他们将为外交抵制2022年北京冬奥会“付出代价”。
+作者：银河勇气星—骄子
 
-在美国时间本周三，华盛顿宣布外交抵制，称这是由于中共国存在广泛的人权侵犯和对新疆维吾尔族穆斯林的“种族灭绝”行为。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-10.jpg)
 
-同期，澳大利亚、英国和加拿大效仿美国实施外交抵制，并不阻止运动员参加。但仍然激怒了中共，继本周早对美国发出类似威胁之后，本周五北京暗示要进行报复。
 
-中共外交部发言人说：“美国、澳大利亚、英国和加拿大利用奥运平台进行政治操纵是不得人心和自我孤立的，他们将不可避免地为其错误行为付出代价。”
 
-在发出这一威胁之前，中共国已经指责澳大利亚是美国的“头号走狗”。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Image-1-3-10.jpg)
 
-人权观察的中国主任苏菲·理查森称，这是“挑战中共国政府针对维吾尔族和其他突厥社区的反人类罪行的关键一步”。
+12月6日和7日，郭先生分别在直播和盖特视频中透露，他的亲人和员工再次遭到中共的凌辱和虐待，他一手创建的盘古大观也被中共非法接管。中共以极其低劣的手段，又一次验证了郭先生一直在揭露的中共盗国贼的丑恶嘴脸。
 
-活动人士说，至少有100万维吾尔人和其他讲突厥语的穆斯林少数民族被关押在新疆的“再教育营”，中共国还被指控在那里强行对妇女进行绝育和强迫劳动。
+12月6日，中共派出大量警察、特警、法官，对郭先生一手打造的北京盘古酒店实施暴力查封，在零下4度的冬天，把穿着睡衣的盘古员工和郭先生中风的父亲赶到大街上。这是继大连市中级法院对郭先生罚款130亿美元并非法拍卖盘古资产后，中共再一次犯下针对郭先生家人和员工的灭绝人性的暴行！次日，在得知此消息后，世界多国政府都感到不可思议，认为共产党今日的残暴比当年的苏联、萨达姆、卡扎菲等尤有过之。不消灭共产党，郭先生的遭遇就会在全世界上演，共产党释放生物武器冠状病毒就是最好的例证。
 
-中共辩称，它们是职业培训中心，旨在减少伊斯兰极端主义的吸引力。
+郭先生最后在视频中表示，新中国联邦将会采取更多行动，敦促世界各大机构站出来封杀共产党，包括全球抵制北京奥运会，把中共国踢出swift，等等，在全世界范围内合理合法地追讨共产党盗国贼资产，惩办他们的家人。
 
-近年来，所有这四个抵制的西方国家与北京的关系急剧降温。
 
-英国批评了中共国在香港的镇压行为，还阻止了中共国科技巨头华为参与其5G宽带的推广，这激怒了北京。
 
-加拿大与中共国的关系，因2018年12月华为高管孟晚舟在温哥华被美国逮捕，以及中共国政府拘留两名加拿大国民而陷入低潮。虽然三人均于今年9月获释并遣返。
+参考链接：
 
-近年来，堪培拉与北京的关系也直线下滑，中共国对澳大利亚商品实施了一系列惩罚性制裁。
+[https://gettr.com/post/pizpiob51f](https://gettr.com/post/pizpiob51f)
 
-中共国对澳大利亚同意立法反对海外影响行动，禁止华为参与5G合同，以及要求对冠状病毒大流行的起源进行独立调查等行为感到愤怒。
+编辑：飞虹
 
-根据AUKUS三国防务条约，将为其海军装备了核动力潜艇，这被广泛认为是为了对抗中共国在太平洋地区的影响，这进一步激怒了中共政府。
+校对/发稿：有莫举名
 
-周三，英国首相鲍里斯·约翰逊在议会宣布了英国的抵制行动，但他与其他三个国家一起表示，运动员仍应参加。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-3.png)
 
-在渥太华，总理贾斯汀·特鲁多宣布加拿大官员也将不参加奥运会，称他的政府“对中共国政府一再侵犯人权的行为极为关切”。
+**更多资讯，更多关注**
 
-澳大利亚总理斯科特·莫里森在当天早些时候也发表了类似的声明。其他国家正在权衡自己的行动。
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-法国将于明年1月1接任欧洲理事会轮值主席国，周二表示将寻求欧盟对美国决定的反应，作出协调一致的回应。
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-克里姆林宫批评了美国的举动，称2022年的奥运会应该“远离政治”。普京总统已经接受了中共国习近平主席的邀请。
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-原文链接：[China threatens Australia, US over Winter Olympics boycott, Beijing response | news.com.au — Australia’s leading news site](https://www.news.com.au/sport/olympics/pay-the-price-china-threatens-australia-over-olympics-boycott/news-story/6dad3c0e1fd42c61e4a1d16d64c33f25)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-*发布：盘古相聚*
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-5.jpg)
+
+
 
  
 

@@ -2,10 +2,10 @@
 ---
 
 
-## 玛莉亚呼吁美国公司支持坎特这样体现美国价值的明星
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1738505/)
+## 当今天谈论12月7日，记住我们正处于第三次珍珠港事件
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1738509/)
 
-12/06/2021 玛莉亚呼吁美国公司支持坎特这样体现美国价值并且抵制中共的明星，并请他们代言。
+12/07/2021 纳瓦罗：当我们今天谈论12月7日这一天时，让我们记住，我们正处于第三次珍珠港事件中。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

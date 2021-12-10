@@ -2,56 +2,26 @@
 ---
 
 
-## 两名婴儿在注射辉瑞COVID 疫苗后住院
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1739068/)
+## 一位加州母亲说学校用披萨作为奖励引诱孩子接种疫苗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1739095/)
 
-**编译： Jenny Ball**
+#### 翻译/撰稿：zzballack
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip04.png)
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-17.jpg)图片来源：CBS Los Angeles
+据《真正美国之声》12月10日报道，美国加利福尼亚州洛杉矶联合学区（LAUSD）的一位名叫玛丽贝尔·杜阿尔特（Maribel Duarte）的母亲日前表示，她的13岁儿子所属学校–巴拉克·奥巴马全球预备学院（Barack Obama Global Prep Academy），在未征得家长同意下，以免费披萨作为交换条件，让她孩子在校内接种了新冠疫苗，而作为家长的她竟对这一切毫不知情。
 
-巴西的两名婴儿，因误注射辉瑞的武汉冠状病毒Covid疫苗而住院。一名护士给两人意外注射的 mRNA COVID-19 疫苗，而不是旨在预防五种疾病的疫苗。
+杜阿尔特是在她孩子将一张疫苗接种卡带回家时才知道了此事。她告诉媒体说：“给他打针并在文件上签字的女士告诉我儿子不要提及任何事，她不想惹上麻烦。孩子在没有得到我的允许、不知道（疫苗具体详情）、也没有签署任何文件的情况下就打了一针疫苗，这让我很伤心。”
 
-这两个婴儿——一个两个月大的女孩和一个四个月大的男孩——于 12 月 1 日前往巴西圣保罗州索罗卡巴市的一家医疗机构接种五价疫苗，该疫苗可保护儿童免受白喉， 百日咳、破伤风、乙型肝炎和乙型流感嗜血杆菌疾病。
+杜阿尔特说，她不反对接种疫苗，但她的儿子有“哮喘和过敏的问题”，没人可以保证接种疫苗对他的健康完全没有影响。
 
-但两个婴儿回家后不久就出现了高烧和呕吐，他们拒绝喝牛奶，父母给的药也无济于事。直到索罗卡巴卫生部长维尼修斯·罗德里格斯（Vinicius Rodrigues）博士与两个家庭取得联系后，真相才浮出水面：两个婴儿都错误地接种了 COVID-19 疫苗，而不是五合一疫苗。
+LAUSD对此表示，学生的事情是保密的，校方不愿具体评论。但表示学校确实设有一个计划，名为“安全学校安全措施奖励计划”（safe schools to safe steps incentive program），旨在确保采取一些行动以奖励接种疫苗的学生。
 
-“我的生活发生了天翻地覆的变化。我知道每个人都会犯错，但这样的错误是不可接受的，”两个月大女孩的母亲说。
+正在密切关注两起针对LAUSD疫苗强制令案件进展情况的律师詹妮弗-肯尼迪（Jennifer Kennedy）对此事评论说：“问题在于加州的儿童不能同意接种疫苗，作为全美第二大学区的LAUSD没有法律权力在加州学校的时间表上增加疫苗接种。”
 
-这两名婴儿于12月2日被送往当地儿童癌症研究与援助小组（GPACI）医院接受进一步治疗。虽然从那以后两个婴儿都得到了改善，但他们有一段时间无法回家。 GPACI 医院的临床主任说，这是该机构首次处理错误注射 COVID-19 疫苗的婴儿病例。
+LAUSD表示，截至感恩节假期，巴拉克·奥巴马全球预备学院已有80%的学生接种了新冠疫苗。并且已强制要求所有12岁及以上的学生在2022年1月10日前接种疫苗，那些既没有接种疫苗又没有获得豁免的学生，将被迫进行网络在线学习，不得返校。
 
-索罗卡巴的当局也联系了辉瑞，辉瑞告诉他们，应该在接下来的 10 到 15 天内对婴儿进行监测。这两者现在每 48 小时接受一次测试——通过血液样本提取、超声波和心电图检查。迄今为止，尚未在婴儿中观察到 COVID-19 疫苗引起的并发症。
-
-与此同时，医护人员在第二天检查疫苗库存时才发现错误。这位犯错的护士说，她混淆了装 COVID-19 疫苗和五价疫苗的小瓶，因为它们看起来太相似了。她已被停职，等待行政调查。（点评：有点像中共国推卸责任的替罪羊临时工的做派。）
-
-辉瑞疫苗对婴儿比 COVID 更危险
-
-辉瑞的 mRNA 疫苗也致一名 6 周的婴儿死亡，这是迄今为止最年轻的死者。根据 《生活新闻》（LifeSiteNews）的报道，婴儿的母亲——**一名来自新墨西哥州的 36 岁女子——于 6 月 4 日在母乳喂养儿子时注射了 COVID-19 疫苗**。
-
-这两起事件，**说明了 COVID-19 疫苗对婴儿的危险**。然而，辉瑞仍然坚持寻求 FDA的批准，将其 COVID-19 注射剂注射到婴儿身上。
-
-**点评：是“意外注射”，还是“蓄意谋杀”？为什么已经听到如此多的“意外”注射疫苗事件？**
-
-文章内容来源：
-
-[RT.com](https://www.rt.com/news/542288-babies-vaccine-pfizer-brazil/)
-
-[IBTimes.com](https://www.ibtimes.com/2-infants-hospitalized-after-accidentally-getting-covid-19-vaccine-instead-immunity-3352092)
-
-[LifeSiteNews.com](https://www.lifesitenews.com/news/nursing-baby-died-with-blood-clots-inflamed-arteries-following-mothers-pfizer-shot-vaers-report-says/)
-
-[DailyMail.co.uk](https://www.dailymail.co.uk/news/article-9993523/American-BABIES-given-low-dose-Pfizers-jab-winter.html)
-
-**新闻来源**：[newstarget.com][Two babies hospitalized after getting injected with Pfizer’s COVID shot](https://www.newstarget.com/2021-12-08-two-babies-hospitalized-injected-pfizer-covid-vaccine.html)
-
-* * *
-
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH..jpeg)
-
-
+新闻来源：[Los Angeles mom says teen son got COVID shot at school in exchange for pizza, without her consent](https://americasvoice.news/justthenews/los-angeles-mons-teen-shot-got-covid-shot-school-exchange-pizza-without/)
 
  
 

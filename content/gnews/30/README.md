@@ -2,10 +2,10 @@
 ---
 
 
-## 日本厚生省警告疫苗会对年轻男性造成心脏相关的副作用
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1738507/)
+## 纳瓦罗：拜登政府的疫情死亡人数比川普政府时还多
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1738511/)
 
-12/07/2021 日本广播公司：日本厚生省警告中共病毒疫苗可能会对年轻男性造成与心脏有关的副作用。
+12/07/2021 纳瓦罗：拜登政府的疫情死亡人数比川普政府时还多。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

@@ -2,46 +2,25 @@
 ---
 
 
-## 中共国未成年女孩在KTV里当“小姐”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1738937/)
+## 两党议员宣布强制要求社交媒体公司对外分享数据的法案
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1739033/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-99.jpg)[图片来源](https://www.kompas.com/global/read/2021/07/17/174448570/mengenal-ktv-klaster-baru-covid-19-singapura-yang-disebut-karaoke-plus?page=all)
-根据中共国墙内媒体新闻报道，广西省桂林市又出现了流调信息泄露事件，这次被泄露的不止有相关人员身份证号、手机号、家庭住址等，还有这些人的工作场所——花都国际娱乐会所。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-37.jpg)
-这份文件上面清楚地列着每个人的信息,这些本该属于防疫部门内部使用的东西，本该属于隐私的东西，又一次泄露出来了：
-![](https://assets.gnews.org/wp-content/uploads/2021/12/3-22.jpg)
-因为流调导致感染者信息泄露的事情我们已经写过太多次了，这事虽然值得一讲再讲，但今天的主题不是这个，今天有更重要的事情。
+#### 撰稿：彩虹
 
-因为从身份证号能看出来，这些标注为夜场“ 公主” 的人，很多是 00 后，其中最小的甚至有 2005 年，2006 年出生的：
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-2-2.png)图片来源：参议院
+12月9日，《国会山报》报道，根据两党参议员于周四宣布的一项新法案，Meta（即Facebook）和其他社交媒体公司将被要求与外部研究人员分享其数据。
 
-这是什么概念？
+发起该法案的参议员分别是民主党人克里斯·库恩斯(Chris Coons)、艾米·克洛布切(Amy Klobuchar)和共和党人罗伯·波特曼(Rob Portman)。他们强调，该法案也适用于其他社交媒体公司，但主要是由于脸书（Facebook）文件中泄露的有关Meta公司平台的信息，从而提出了该法案。
 
-2006 年出生的人，今年才**15 ****岁**，而我在网上搜索了这家名为“花都国际”的夜场，发现他们家是这个画风的：
-![](https://assets.gnews.org/wp-content/uploads/2021/12/4-15.jpg)
-让年仅 15 岁的女孩子在这种地方工作，合适吗？
+该《平台问责和透明度法案》（Platform Accountability and Consumer Transparency Act）将允许独立研究人员向国家科学基金会（NSF）提交请求，如果这些请求得到批准，则社交媒体公司将被要求在遵守某些隐私保护规定的情况下提供必要的数据。
 
-更别说中共国《劳动法》规定，小于 16 岁的人根本不允许工作。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/5-17.jpg)
-无论雇佣这些“公主”是做啥的，其实都不合法。
+如果社交媒体公司未能遵守该法案的要求，他们将受到联邦贸易委员会（FTC）的强制执行，并将失去《通讯规范法》（Communications Decency Act）第230条的保护。该法案还赋予联邦贸易委员会权力，可以要求平台持续主动地将有关信息向资源（研究机构）和公众提供，例如包含用户定位和参与的相关广告信息库。
 
-可惜的是，翻翻新闻，会发现像这样雇佣未满 16 岁甚至未满 14 岁少女去夜场工作的新闻并不少见。
+**新闻来源**
 
-**15 ****岁：**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/6-16.jpg)
-**14 ****岁：**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/7-13.jpg)
-**甚至是 13 岁：**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/8-14.jpg)
-这些女孩本该是在学校接受教育的年纪，却在成人娱乐场所当起了“公主”，这就是中共邪恶独裁统治造成的结果，俗话说“上有所好，下必甚焉”，郭文贵先生多次在直播中爆料，中共高层官员历来就有恋童的恶习，以占有性侵处女为乐，各级官员争相效仿，不以为耻，更以此为荣，然后这种邪恶的风气在全社会蔓延，这些娱乐场所的经营者就是为了满足这样的变态需求，才会诱骗和强迫这些未成年女孩提供服务。
+[Senators unveil bipartisan bill requiring social media giants to open data to researchers](https://thehill.com/policy/technology/585069-senators-unveil-bipartisan-unveil-bill-requiring-social-media-giants-to)
 
-消息来源:
-
-[流调报告里的KTV“公主”，年仅15岁？](https://www.wenxuecity.com/news/2021/12/09/11115371.html)
-
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,23 +2,29 @@
 ---
 
 
-## 中共又买到了一个“朋友”，尼加拉瓜与台湾断交
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1737942/)
+## 中共逼迫跨国公司断绝与立陶宛的合作
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1738008/)
 
 整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-465.png)[图片来源](https://tw.news.yahoo.com/%E5%8F%AA%E6%89%BF%E8%AA%8D-%E4%B8%AD-%E5%8F%8B%E9%82%A6%E5%B0%BC%E5%8A%A0%E6%8B%89%E7%93%9C%E5%AE%A3%E5%B8%83-%E4%BB%8A%E8%B5%B7%E8%88%87%E6%88%91%E5%9C%8B%E6%96%B7%E4%BA%A4-231313336.html)
-尼加拉瓜周四与台湾断绝长期外交关系，令台湾政府的国际盟友数量进一步减少。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-468.png)[图片来源](https://mingdemedia.org/zhengzhiyitijingjixiepozhonggongyaoqiukuaguoqiyeyulitaowanduanjuehezuo/)
+路透社12月9日报道 ，中共国已经告诉多家跨国公司断绝与立陶宛的关系，否则将面临被排除在中共国市场之外的命运，这将使企业卷入立陶宛与中共之间的争端。
 
-“尼加拉瓜共和国政府今天与台湾断绝外交关系，停止任何接触和官方关系，”尼加拉瓜外交部在一份以西班牙语和英语发表的声明中说。“中华人民共和国是代表全中国的唯一合法政府，台湾是中国领土不可分割的一部分，”声明还称。尼加拉瓜与台湾断交对美国是一个打击。尼加拉瓜总统奥德嘉(Daniel Ortega)的政府与华盛顿的关系几个月来不断恶化。
+驻立陶宛台湾代表处上个月挂牌运作后，中共国把其与立陶宛间的外交关系降级。立陶宛的执政联盟去年11月同意支持台湾，使立陶宛与中共国的关系陷入险境。
 
-对于尼加拉瓜的断交决定，台湾外交部周五称感“痛心与遗憾”，并决定自即日起终止与尼加拉瓜共和国的外交关系，全面停止双边合作及援助计划，撤离大使馆及技术团人员。
+立陶宛与中共国的直接贸易额不大，但其出口导向经济中，有数百家公司生产家具、激光器、食品和服装等产品，供应给那些在中共国销售的跨国公司。
 
-尼加拉瓜的举动使台湾只剩下14个邦交国，此前洪都拉斯即将上任的领导人也威胁要与台湾断交。但自上月该国选举以来，总统当选人卡蕬楚(Xiomara Castro)的团队在某种程度上改变了这一立场。
+立陶宛外交部副部长Mantas Adomenas说：“他们(中共国)一直在向跨国公司传递信息，如果他们使用立陶宛的零部件和用品，他们将不再被允许向中共国市场销售或在中共国取得供应。”“我们已经看到一些公司取消了与立陶宛供应商的合同。”
 
-消息来源：[尼加拉瓜与台湾断交 承认一个中国原则](https://cn.reuters.com/article/nicaragua-tw-dip-relation-break-1210-idCNKBS2IP04D?il=0)
+代表数千家立陶宛公司的立陶宛工业家联盟(Lithuania Confederation of Industrialists)证实，一些从立陶宛供应商购买商品的跨国公司已成为中共国的目标。
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿
+“本周我们第一次看到中共国直接向一供应商施压，要求其放弃立陶宛制造的商品。”该联盟的主席Vidmantas Janulevicius对路透表示，“以前我们只是感到会有这个威胁，现在这些威胁变成了现实。”
+
+“对我们来说，最痛苦的部分是，它是一家欧洲公司，”Janulevicius在谈及这家跨国公司时说道。“许多立陶宛企业是这些公司的供应商。”
+
+消息来源：[独家：中共国施压跨国企业断绝与立陶宛的商业合作](https://cn.reuters.com/article/china-lithuania-trade-business-1209-idCNKBS2IO0JY?il=0)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 

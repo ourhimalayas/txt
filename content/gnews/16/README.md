@@ -2,35 +2,22 @@
 ---
 
 
-## 中共政府发钱鼓励百姓感染中共病毒
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1738830/)
+## COVID-19 最新情报｜研究指出：鼻咽处清除后 新冠病毒仍持续存在于肠道组织
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1738900/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-36.jpg)
-[图片来源](https://voi.id/zh/news/22985/remember-the-murder-of-tkw-at-the-geylang-hotel-singapore-the-perpetrator-was-sentenced-to-death-zh)
+**疫情關注組 / 發佈時間｜10/12/2021**
 
-中共辽宁锦州、阜新政府发布通告称主动核酸检测中共病毒，结果呈阳性人员奖励2万元,这样的邪恶政策或将导致贫苦老百姓主动感染中共病毒。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-**辽宁锦州**
 
-12月7日，辽宁锦州市新冠肺炎疫情防控总指挥部办公室发布通告：鉴于当前疫情形势复杂严峻，为进一步筑牢锦州市外防输入防线，广大市民要自觉落实个人防护责任，确保能够在最短时间、最小范围控制阻断疫情。
+据BMC所载的相关研究，新冠病毒可能会引起轻微的肠道症状，而部分患者可能发生更严重的肠道并发症。研究通过**透射电子显微镜** (TEM)，证实新冠病毒(SARS-CoV-2)可存在于肠道组织内皮细胞中。
 
-为鼓励广大市民响应号召，经锦州市疫情防控总指挥部研究决定，对锦州市户籍人员第一时间主动进行核酸筛查，核酸检测结果为阳性的，经核实确认后由属地县（市）区指挥部奖励2万元。
+研究内容提及两名COVID-19 患者（其中一名患有肠道淋巴瘤，另一名患有缺血性结肠炎），在确定鼻咽处的新冠病毒被清除后，通过透射电子显微镜 (TEM)发现新冠病毒仍继续存在于肠道组织内皮细胞。其中一病例，**在鼻咽部病毒清理完成后6个月，肠组织仍留存病毒，具潜伏感染可能**。
 
-**辽宁阜新**
-
-12月5日，辽宁阜新市新冠肺炎疫情防控指挥部通告称，对主动进行核酸检测以及自觉身体不适、主动前往医疗机构发热门诊就诊并说明情况，核酸检测结果为阳性的人员，经核实后奖励2万元。
-
-中共邪恶的体制造就邪恶的政策，中共国有6亿人月收入不足1千元，这2万元就相当于他们近2年的收入，况且如今中共国内经济萧条，再加上疫情管控，更多的人入不敷出，此时推行这样的奖励政策，无异于鼓励人们感染病毒，这将导致更大的人道灾难。
-
-消息来源:
-
-[两地先后宣布：主动核酸检测，有奖！](https://www.sohu.com/a/506875176_121123834)
-
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
-
+2020 年 3 月 1 日至 4 月 30 日期间，有932名COVID-19病患在 Universitari Mútua Terrassa住院治疗，其中41名（4.4%）病患发生严重腹痛，6名需要进行腹部手术。通过透射电子显微镜 (TEM)可以确定COVID-19 引发肠道损伤具有因果关系，但严重肠道并发症并不常见。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-2.png)
+来源￨[BMC](https://bmcgastroenterol.biomedcentral.com/articles/10.1186/s12876-021-01905-3)
 
  
 
