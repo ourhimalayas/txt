@@ -2,10 +2,10 @@
 ---
 
 
-## 纳瓦罗：拜登政府的疫情死亡人数比川普政府时还多
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1738511/)
+## 当今天谈论12月7日，记住我们正处于第三次珍珠港事件
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1738509/)
 
-12/07/2021 纳瓦罗：拜登政府的疫情死亡人数比川普政府时还多。
+12/07/2021 纳瓦罗：当我们今天谈论12月7日这一天时，让我们记住，我们正处于第三次珍珠港事件中。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

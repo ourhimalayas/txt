@@ -2,22 +2,35 @@
 ---
 
 
-## COVID-19 最新情报｜诚实豆沙包？新西兰总理承认“疫苗接种计划没有终点”
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1738442/)
+## 郭先生携新歌再登《公告牌》榜首
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1738137/)
 
-**撰文｜疫情关注组 / 发布时间｜10/12/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup）](https://gettr.com/user/mightygroup%EF%BC%89)**
+作者：纽约香草山教育部—Noemi
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月8日，据福布斯官方网站报道，本周，郭文贵先生凭借新歌《HCoin to the moon》再度登上《公告牌》排行榜榜首之位。
 
-自从COVID-19 疫情爆发起，坊间就一直流传着一种说法，“疫情是前菜，疫苗才是主菜。”暗示少数权贵为实现全球人口锐减计划，会永续推行疫苗接种，直至全球总人口降到10亿为止。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide3-5.jpeg)
 
-本来这种被认为是“疫苗阴谋论”的说法一直受到主流媒体及政治精英们的贬斥，不料，新西兰总理杰辛达·阿德恩 (Jacinta Ardern) 在日前一次采访中，竟然说漏嘴，间接证实了“阴谋论”的猜测。
+据了解，《HCoin to the moon》在本周凭借最高的销量轻松地征服了著名的世界数字歌曲排行榜，占据了该榜榜首。同时，MRC数据显示，这首歌还进入了其他偏重销量的榜单之中，以近两千八百张的销量暂列相关榜单的第28位。
 
-**阿德恩总理表示，“在我看来，只要还有符合条件但没有接种疫苗的人，我就不会满意，我们就有事要做，这就是我所说的，这个疫苗接种计划不会有终点。”**
+对于这样亮眼的成绩，郭文贵先生也在直播中对每一位默默打榜的战友表示了感谢。郭先生强调，歌曲打榜是一项政治活动，这证明了新中国联邦、爆料革命在全球的影响力，更是每一位战友协同作战的成果。
 
-值得留意的是，在整个采访中，她多次转换用词，屡次将“只要还有人选择不『接种疫苗』”更正为“只要还有符合条件的人选择不 ‘接种疫苗’ ”，令人担忧，这位总理的潜意识里，是否正在计划推行全民疫苗强制令。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-7.jpg)
-来源｜[MSN](https://thecovidworld.com/new-zealand-pm-jacinda-ardern-theres-not-going-to-be-an-endpoint-to-this-vaccination-program/)
+参考链接：[Exo’s Kai, Stray Kids, Chung Ha And IVE: Moves On The World Songs Chart](https://www.forbes.com/sites/hughmcintyre/2021/12/08/exos-kai-stray-kids-chung-ha-and-ive-moves-on-the-world-songs-chart/?sh=7593287a1371)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
+
+总编：文特
+编辑：Kathy文艺，Lakeman文仁
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
 
  
 

@@ -2,34 +2,43 @@
 ---
 
 
-## 中共以黑治国，非法暴力查封盘古
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1738478/)
+## 恒大违约将拖累加密货币、机构投资者、养老基金
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1738416/)
 
-撰稿：香草山农场-晓仙女
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-2.png)
-2021年12月6日，中共打着业主和物业公司的名义，对北京盘古进行非法暴力查封，致使数千名员工和酒店客人、盘古业主，和郭先生92岁的老父亲，遭到驱赶，流落寒冷的街头，无家可归。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12108.png)
-郭先生在12月8日大直播中表示，中共派出数百名警察突袭查封盘古大楼，监控大楼的水、电、气，持枪逼迫所有员工、客人和业主离开，不允许带走任何财物。不仅员工的电话和信用卡遭停，就连这些员工家人的电话和信用卡，也被中共非法监听或封停，涉及多达十几万人。此前，中共还假借所谓的大连法庭罚款的判决，非法查封了郭先生家人及公司高管的、共计66套房产。
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-中共向来以牺牲老百姓的利益，完成党内的权力斗争，实现自己的政治利益。这次对盘古的非法查封事件，再次证实了中共以黑治国的本质。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/economiccrisisadobestockweb.jpg)
 
-链接：https://gtv.org/video/id=61b0b18fbbd75f62e532ced8
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-4.png)
+ 
+图片来源:  www.cdrecycler.com
 
-总编：文特
 
-编辑：Lakeman文仁/雪梨
+#### 整理报道 ：小红帽
 
-校正/发稿：浪迹天涯
+中国庞氏房地产开发商恒大现已正式违约，因为惠誉（Fitch）已确认这家负债累累的公司错过了债券利息支付，未偿债券超过3千亿美元。房地产开发商佳兆业（Kaisa）也被点名，还有近十几家其他中国房地产开发商被广泛认为正在违约的路上。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-2.png)
+“**这不仅仅是恒大的违约，这是中国和银行体系的违约**，”丹· 大卫（Dan David）告诉福克斯商业频道。“他们将迎来如2008年美国次贷房地产泡沫一样的崩溃。”
+
+**在整个2022年，我们都将目睹极端的金融压力，以及许多可能的违约。这将通过持有恒大债务的各种机构蔓延。同时，这可能会影响养老基金，对冲基金，机构投资者，私人投资者甚至中央银行。**
+
+许多分析师认为，凭空创造加密货币的“稳定币””提供商Tether可能在恒大拥有数百亿美元的敞口。随着恒大的违约现已正式宣布，**这意味着Tether对恒大、佳兆业或其他中国房地产开发商的持股价值实际上为零**。重要的是，这可能意味着**Tether不再有足够的资产来覆盖其发行到加密生态系统中的USDT硬币**。
+
+**由于所有比特币购买行为中有三分之二实际上是使用Tether硬币进行的，这也意味着比特币的市场估值可能会被数字货币印刷业务大幅夸大。**
+
+约翰·佩雷斯（John Perez）认为**整个加密生态系统都依赖于大规模的数字货币伪造操作，泡沫很快就会破裂，使加密货币持有者处于与恒大债务持有者相同的位置。**
+
+新闻来源：[恒大违约 – 传染风险将蔓延到加密货币、机构投资者、养老基金等 – NaturalNews.com](https://www.naturalnews.com/2021-12-09-evergrande-defaults-contagion-risk-will-spread-to-crypto-institutional-investors-pension-funds.html)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

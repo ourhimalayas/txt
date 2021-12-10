@@ -2,19 +2,35 @@
 ---
 
 
-## 对墙内传播青蒿素疫苗真相是重中之重
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1739777/)
+## 汤姆·科顿敦促国会取消中共最惠国待遇
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1739879/)
 
-文编：东京樱花团/樱花传媒
-视频:东京樱花团/中文小视频组
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月8日，在美国参议院演讲中，参议员汤姆-科顿历数了自中共国加入世界贸易组织WTO后的 二十多年来，中共对美国工业基础和经济等方面造成的各种伤害和破坏。为此，科顿敦促国会尽快通过法案，取消中共国贸易最惠国待遇。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/7-14.jpg)
+科顿在演讲中提到，2001年，美国当时的立法者和世贸组织成员为中共极权政府打开了机会之门，使其能够掠夺美国，甚至霸权世界。而在其后的20年里，中共国实现了百分之一千二的经济增长，成为了世界上最大的出口国。与之相反的是，数以百万计的美国人在 来自”中共国的贸易冲击 “中失去了高薪的蓝领工作——这也导致美国本土制造业和基础经济的空洞化。
 
-12月3日，郭文贵先生在GTV大直播指出：
+对此，科顿敦促国会尽快通过他于今年3月份提出的《中共国贸易关系法案》，从而可以取消中共在2000年9月获得的最惠国待遇。
 
-战友们一定要想尽办法，冲破中共的封锁，尽可能地通过短视频短信息，传播真相。这是拯救同胞的最好方法。用简单直接的方法加大向国内传播的力度，是重中之重，要广泛传播疫苗的灾难和青蒿素的效用，特别是青蒿素，尤为重要，哪怕暂时不谈灭共不谈投资不谈钱，救人要紧。
+科顿指出，中共国徒享WTO的特殊地位，但从不履行当初对世界的承诺，因此，使美中贸易关系回到2001年之前的模式，并承认中共国是一个非市场经济的共产主义国家，才是纠正历史错误的重要方式。
 
-*编辑：东京樱花团/墨然
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+参考链接：
+[Tom Cotton Marks 20 Years of China’s ‘Great Hollowing’ of U.S. ‘Industrial Base, Economy, and Working Class’](https://www.breitbart.com/politics/2021/12/08/tom-cotton-marks-20-years-of-chinas-great-hollowing-of-u-s-industrial-base-economy-and-working-class/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+
+总编：Irene木木
+编辑：Kathy文艺
+校正/发稿：Fei797
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
