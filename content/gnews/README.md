@@ -15,198 +15,198 @@
 
 ---
 
-### [彼得·麦卡洛：许多运动员因疫苗引发心肌炎在赛场猝死](/content/gnews/1/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [美俄联合灭共即将开启，中共灭亡倒计时](/content/gnews/1/README.md)
+ ` 澳喜特战旅Gnews`
 
-### [美参议院投票否决拜登政府的疫苗强制授权](/content/gnews/2/README.md)
- ` GTV新闻访谈`
-
-### [韩国向青少年推行防疫通行证 遭民众强烈反对](/content/gnews/3/README.md)
- ` GTV新闻访谈`
-
-### [澳洲储备银行行长表示：有可能发行央行数字货币](/content/gnews/4/README.md)
- ` 走进澳洲`
-
-### [澳大利亚政府强烈建议5至11岁儿童从1月初开始接种中共病毒疫苗](/content/gnews/5/README.md)
- ` 走进澳洲`
-
-### [美国众院压倒性通过《防止强迫维吾尔人劳动法》](/content/gnews/6/README.md)
- ` GTV新闻访谈`
-
-### [【粤语配音】2021年12月9日： 新中国联邦人肩负着上天的使命](/content/gnews/7/README.md)
- ` MOS香港部`
-
-### [美以酝酿联合演习，拟打击伊朗核设施](/content/gnews/8/README.md)
- ` 墨尔本雅典娜农场`
-
-### [澳、英、美、加抵制冬奥会，法国和德国表示不会加入](/content/gnews/9/README.md)
- ` 走进澳洲`
-
-### [美国立法全面禁止进口所有新疆产品](/content/gnews/10/README.md)
+### [中共又买到了一个“朋友”，尼加拉瓜与台湾断交](/content/gnews/2/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [管天管地管生殖器&#8212;-中共国开始限制甚至禁止做输精管切除术](/content/gnews/11/README.md)
- ` 首尔天池农场`
+### [中国央行降准放水意在何为](/content/gnews/3/README.md)
+ ` 澳喜特战旅Gnews`
 
-### [京都大学研究发现中共病毒疫苗对Omicron无效](/content/gnews/12/README.md)
+### [“快手”年底将大规模裁员](/content/gnews/4/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [郭文贵先生2021年12月09日盖特直播视频（11分13秒）全文字版](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [1208文贵大直播（二）：新中国联邦发起给中共送葬行动](/content/gnews/13/README.md)
- ` 墨尔本雅典娜农场`
-
-### [辉瑞等大药企加大游说力度以废除旨在保护举报人的法律（1/2）](/content/gnews/14/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [辉瑞等大药企加大游说力度以废除旨在保护举报人的法律（2/2）](/content/gnews/15/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [新西兰以疫情为由，将不派外交官参加北京奥运会](/content/gnews/16/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [安省省长的女儿强烈反对中共病毒疫苗！](/content/gnews/17/README.md)
- ` 丁过`
-
-### [辉瑞首席执行官认为美国人可能需要第 4 剂新冠疫苗](/content/gnews/18/README.md)
- ` MG FARM`
-
-### [德桑蒂斯：因拜登疫苗强制令被停职的医生现已恢复原职](/content/gnews/19/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [马克龙称法国不会抵制北京冬奥会](/content/gnews/20/README.md)
- ` HimalayaRussia`
-
-### [纽约市报告仇恨犯罪增加了 100%](/content/gnews/21/README.md)
- ` MG FARM`
-
-### [2021/12/09文贵先生盖特直播精要](/content/gnews/22/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [日本计划在2022年出台“稳定币”监管法律](/content/gnews/23/README.md)
- ` 日本东京方舟农场`
-
-### [“班农先生不睬案”审理日期已确定](/content/gnews/24/README.md)
- ` HimalayaRussia`
-
-### [英国赌场牌照的意义](/content/gnews/25/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [意大利拒绝第三剂新冠疫苗人数在增加：这包括推迟和取消预约的人](/content/gnews/26/README.md)
- ` xiaobaige`
-
-### [12/8/2021 文贵直播：全球联合反共抗议活动一定要遵守联盟、农场的统一标准和培训，遵守当地法律，将抗议行动智慧化、合法化、科技化、永恒化](/content/gnews/27/README.md)
- ` 秘密翻译组-北美组`
-
-### [证券监管机构对数字世界与特朗普媒体公司的交易展开调查](/content/gnews/28/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [美国空军部长称新飞机必须对中共国形成威慑](/content/gnews/29/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [英国与美国、澳大利亚一起对中共的冬奥会进行外交抵制](/content/gnews/30/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [2018年6月29日郭文贵先生直播全文字版](/content/gnews/31/README.md)
- ` 温哥华扬帆农场七哥直播全文听写组`
-
-### [美国公司是中共国的“人质”](/content/gnews/32/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [“躺平币”是向中共讨债的工具，解放更多的灭共力量](/content/gnews/33/README.md)
- ` YALUN 亚伦`
-
-### [英国、加拿大宣布外交抵制中共北京冬奥会](/content/gnews/34/README.md)
- ` GTV新闻访谈`
-
-### [家居企业转让恒大股份 恒大债务违约在即](/content/gnews/35/README.md)
- ` GTV新闻访谈`
-
-### [2021年12月8日郭文贵先生直播全文字版](/content/gnews/36/README.md)
- ` 温哥华扬帆农场七哥直播全文听写组`
-
-### [GTV新闻访谈简报|2021年12月9日早](/content/gnews/37/README.md)
- ` 纽约香草山MOS01`
-
-### [12/8/2021 文贵直播：单伟建是中共的正部级间谍，隶属具有最高保密级别的秘六局，他直接给中共政治局常委汇报工作](/content/gnews/38/README.md)
- ` 秘密翻译组-北美组`
-
-### [12/8/2021 文贵直播：抵制冬奥会是所有美国人的决定，中共冬奥会已彻底结束](/content/gnews/39/README.md)
- ` 秘密翻译组-北美组`
-
-### [“身在曹营心在汉”-加拿大离职华裔科学家遭起诉](/content/gnews/40/README.md)
+### [泰德-克鲁兹怒斥疫苗强制是非法的，违宪的，是荒谬的滥用权力](/content/gnews/6/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm Toronto(CA)`
 
-### [人生终点服务站欢迎盗国贼家族](/content/gnews/41/README.md)
- ` 骄子`
-
-### [12/09/2021 国际财经快讯：美国劳动者有望在经济蛋糕中占大头，但要过美联储这关；苹果公司在垄断案中赢得时间，获准暂缓修改App Store规则](/content/gnews/42/README.md)
- ` 秘密翻译组金融团队`
-
-### [快手“断手”能否重振雄风？](/content/gnews/43/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共高校连年增加1400余家马克思学院](/content/gnews/44/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [2021/12/09 墙内世界](/content/gnews/45/README.md)
+### [维吾尔法庭判处中共种族灭绝 世维会呼吁追责中共](/content/gnews/7/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [国会回击迫使拜登撤回银行监管机构人选提名](/content/gnews/46/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [人口负增长，中共以降“养老金”等方式催生？](/content/gnews/8/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [中共又要跳脚——日本首相敦促世卫组以观察员身份让台湾加入](/content/gnews/47/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [乔·艾伦：可自我复制的生物体机器人已经造出来](/content/gnews/48/README.md)
+### [只有一个孩子死于中共病毒，因为没有得到任何早期治疗](/content/gnews/9/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美众议院一天内几乎全票通过三项中共国人权法案](/content/gnews/49/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [郭文贵精品视频-美苏联合灭共时代已经开启](/content/gnews/50/README.md)
- ` 澳喜农场`
-
-### [纳奥米博士：疫苗强制是战区伪装和极权主义恐怖](/content/gnews/51/README.md)
+### [疫苗刺突蛋白S2片段可导致癌症等退行性疾病大规模流行](/content/gnews/10/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [乔·艾伦：谷歌施密特等人想让你相信，我们将与AI共生](/content/gnews/52/README.md)
+### [儿童因疫苗引起的心肌炎住院比因中共病毒住院的可能性要大得多](/content/gnews/11/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [郭先生谈音乐的力量](/content/gnews/53/README.md)
+### [彼得·麦卡洛：许多运动员因疫苗引发心肌炎在赛场猝死](/content/gnews/12/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [美参议院投票否决拜登政府的疫苗强制授权](/content/gnews/13/README.md)
  ` GTV新闻访谈`
 
-### [本·汉威尔：反对强制疫苗接种的世界联盟正在集结中](/content/gnews/54/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [新中国联邦未来1到3年内的重大行动](/content/gnews/55/README.md)
+### [韩国向青少年推行防疫通行证 遭民众强烈反对](/content/gnews/14/README.md)
  ` GTV新闻访谈`
 
-### [西方多国和人权团体全面抵制北京冬奥会](/content/gnews/56/README.md)
+### [纳瓦罗称，中共病毒是珍珠港式的袭击](/content/gnews/15/README.md)
+ ` GTV新闻访谈`
+
+### [澳洲储备银行行长表示：有可能发行央行数字货币](/content/gnews/16/README.md)
+ ` 走进澳洲`
+
+### [澳大利亚政府强烈建议5至11岁儿童从1月初开始接种中共病毒疫苗](/content/gnews/17/README.md)
+ ` 走进澳洲`
+
+### [美国众院压倒性通过《防止强迫维吾尔人劳动法》](/content/gnews/18/README.md)
+ ` GTV新闻访谈`
+
+### [【粤语配音】2021年12月9日： 新中国联邦人肩负着上天的使命](/content/gnews/19/README.md)
+ ` MOS香港部`
+
+### [美以酝酿联合演习，拟打击伊朗核设施](/content/gnews/20/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [澳、英、美、加抵制冬奥会，法国和德国表示不会加入](/content/gnews/21/README.md)
+ ` 走进澳洲`
+
+### [美国立法全面禁止进口所有新疆产品](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【文贵先生大直播PPT】单伟建和PAG到底是啥玩意儿](/content/gnews/57/README.md)
- ` Mr. Miles Guo's News Briefing`
-
-### [法官暂停拜登政府针对全美联邦承包商的疫苗强制令](/content/gnews/58/README.md)
+### [管天管地管生殖器&#8212;-中共国开始限制甚至禁止做输精管切除术](/content/gnews/23/README.md)
  ` 首尔天池农场`
 
-### [班农的传票将1.6委员会吓得半死](/content/gnews/59/README.md)
- ` HimalayaRussia`
-
-### [日本东京方舟农场文化灭共「力挺班农」](/content/gnews/60/README.md)
- ` WindTalker`
-
-### [媒体集团响应班农 要求司法部公开调查文件](/content/gnews/61/README.md)
- ` HimalayaRussia`
-
-### [班农“不睬民主党人国会调查委员会”案新进展](/content/gnews/62/README.md)
- ` HimalayaRussia`
-
-### [班农提出动议 要求公开法庭案件中的所有文件](/content/gnews/63/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [平明运动的本质就是一人一票](/content/gnews/64/README.md)
+### [京都大学研究发现中共病毒疫苗对Omicron无效](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [班农的愿景－川普耳边人正在组织一场平民主义革命](/content/gnews/65/README.md)
+### [1208文贵大直播（二）：新中国联邦发起给中共送葬行动](/content/gnews/25/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [辉瑞等大药企加大游说力度以废除旨在保护举报人的法律（1/2）](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
+
+### [辉瑞等大药企加大游说力度以废除旨在保护举报人的法律（2/2）](/content/gnews/27/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [新西兰以疫情为由，将不派外交官参加北京奥运会](/content/gnews/28/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [安省省长的女儿强烈反对中共病毒疫苗！](/content/gnews/29/README.md)
+ ` 丁过`
+
+### [辉瑞首席执行官认为美国人可能需要第 4 剂新冠疫苗](/content/gnews/30/README.md)
+ ` MG FARM`
+
+### [德桑蒂斯：因拜登疫苗强制令被停职的医生现已恢复原职](/content/gnews/31/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [纽约市报告仇恨犯罪增加了 100%](/content/gnews/32/README.md)
+ ` MG FARM`
+
+### [2021/12/09文贵先生盖特直播精要](/content/gnews/33/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [日本计划在2022年出台“稳定币”监管法律](/content/gnews/34/README.md)
+ ` 日本东京方舟农场`
+
+### [“班农先生不睬案”审理日期已确定](/content/gnews/35/README.md)
+ ` HimalayaRussia`
+
+### [美国公司是中共国的“人质”](/content/gnews/36/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [“躺平币”是向中共讨债的工具，解放更多的灭共力量](/content/gnews/37/README.md)
+ ` YALUN 亚伦`
+
+### [英国、加拿大宣布外交抵制中共北京冬奥会](/content/gnews/38/README.md)
+ ` GTV新闻访谈`
+
+### [家居企业转让恒大股份 恒大债务违约在即](/content/gnews/39/README.md)
+ ` GTV新闻访谈`
+
+### [2021年12月8日郭文贵先生直播全文字版](/content/gnews/40/README.md)
+ ` 温哥华扬帆农场七哥直播全文听写组`
+
+### [GTV新闻访谈简报|2021年12月9日早](/content/gnews/41/README.md)
+ ` 纽约香草山MOS01`
+
+### [“身在曹营心在汉”-加拿大离职华裔科学家遭起诉](/content/gnews/42/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm Toronto(CA)`
+
+### [人生终点服务站欢迎盗国贼家族](/content/gnews/43/README.md)
+ ` 骄子`
+
+### [12/09/2021 国际财经快讯：美国劳动者有望在经济蛋糕中占大头，但要过美联储这关；苹果公司在垄断案中赢得时间，获准暂缓修改App Store规则](/content/gnews/44/README.md)
+ ` 秘密翻译组金融团队`
+
+### [快手“断手”能否重振雄风？](/content/gnews/45/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共高校连年增加1400余家马克思学院](/content/gnews/46/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [2021/12/09 墙内世界](/content/gnews/47/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [国会回击迫使拜登撤回银行监管机构人选提名](/content/gnews/48/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [中共又要跳脚——日本首相敦促世卫组以观察员身份让台湾加入](/content/gnews/49/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [乔·艾伦：可自我复制的生物体机器人已经造出来](/content/gnews/50/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [美众议院一天内几乎全票通过三项中共国人权法案](/content/gnews/51/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [郭文贵精品视频-美苏联合灭共时代已经开启](/content/gnews/52/README.md)
+ ` 澳喜农场`
+
+### [纳奥米博士：疫苗强制是战区伪装和极权主义恐怖](/content/gnews/53/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [乔·艾伦：谷歌施密特等人想让你相信，我们将与AI共生](/content/gnews/54/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [郭先生谈音乐的力量](/content/gnews/55/README.md)
+ ` GTV新闻访谈`
+
+### [本·汉威尔：反对强制疫苗接种的世界联盟正在集结中](/content/gnews/56/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [新中国联邦未来1到3年内的重大行动](/content/gnews/57/README.md)
+ ` GTV新闻访谈`
+
+### [【文贵先生大直播PPT】单伟建和PAG到底是啥玩意儿](/content/gnews/58/README.md)
+ ` Mr. Miles Guo's News Briefing`
+
+### [法官暂停拜登政府针对全美联邦承包商的疫苗强制令](/content/gnews/59/README.md)
+ ` 首尔天池农场`
+
+### [班农的传票将1.6委员会吓得半死](/content/gnews/60/README.md)
+ ` HimalayaRussia`
+
+### [日本东京方舟农场文化灭共「力挺班农」](/content/gnews/61/README.md)
+ ` WindTalker`
+
+### [媒体集团响应班农 要求司法部公开调查文件](/content/gnews/62/README.md)
+ ` HimalayaRussia`
+
+### [班农“不睬民主党人国会调查委员会”案新进展](/content/gnews/63/README.md)
+ ` HimalayaRussia`
+
+### [班农提出动议 要求公开法庭案件中的所有文件](/content/gnews/64/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [平明运动的本质就是一人一票](/content/gnews/65/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 

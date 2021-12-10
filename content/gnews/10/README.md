@@ -2,13 +2,13 @@
 ---
 
 
-## 美国立法全面禁止进口所有新疆产品
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1737744/)
+## 疫苗刺突蛋白S2片段可导致癌症等退行性疾病大规模流行
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1737859/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1210-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+12/01/2021 彼得·麦卡洛博士：现在有来自中共国的数据表明中共病毒疫苗中的刺突蛋白的S2片段实际上与两个癌症基因P53和BRCA基因相互作用，并可能导致这些癌症等退行性疾病的新的大规模的、基本上是慢性病的流行。
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

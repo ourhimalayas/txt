@@ -2,36 +2,29 @@
 ---
 
 
-## 美国众院压倒性通过《防止强迫维吾尔人劳动法》
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1737771/)
+## 泰德-克鲁兹怒斥疫苗强制是非法的，违宪的，是荒谬的滥用权力
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1737902/)
 
-作者：日本方舟农场 – Andy5
-![This image has an empty alt attribute; its file name is 1-28.png](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
-周三，美国众议院以428票赞成、1票反对，压倒性通过了《防止强迫维吾尔人劳动法》。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/5-16.jpg)
-该法案由民主党众议员吉姆·麦戈文和共和党议员克里斯·史密斯联合提出。史密斯议员表示，新疆所发生的种族灭绝，直接违反了《联合国防止及惩治灭绝种族罪公约》的第二条，习近平应该为其下达的命令负责。
+加拿大扬帆农场 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2021/12/IMG_3341.jpg)图片来源： Fox Business
+根据《福克斯商业新闻》12月9日报道，参议院周三否决了拜登对私人雇主的疫苗强制令。
 
-该法案要求国土安全部拟定一项清单，列举出与中共政府合作压迫维吾尔人的实体，并禁止所有涉及强迫劳动生产的商品流入美国市场。除了这项法案，众议院在当天还高票通过了另外两项涉及新疆维吾尔人权的议案。
+得克萨斯州参议员和律师泰德-克鲁兹周四在接受福克斯商业频道采访时抨击拜登总统，认为拜登对私人雇主的疫苗强制是”荒谬的滥用权力”。
 
-参考链接：
+克鲁兹说：“需要彻底灭了这项强制令。疫苗强制是非法的，是违宪的，是一种荒谬的滥用权力。我认为拜登知道这一点，我认为白宫的律师应该告诉拜登这是非法的，会在法庭上被否决。但是他们还是做出了决定，试图执行这项强制令。假设诉讼需要时间，也许需要几个月或几年，在此期间，一大批人会屈从”。
 
-- [众议院通过三项涉新疆人权议案 禁止强迫劳动产品入美国](https://www.voachinese.com/a/us-house-passes-uyghur-bills-20211208/6346179.html)
-- [美参议院一致通过《防止强迫维吾尔人劳动法》将禁止进口新疆产品](https://www.voachinese.com/a/senate-passes-bill-to-ban-all-products-from-xinjiang-20210714/5966494.html)
+他继续说道：“昨晚的投票是一次真正重要的投票。我们就撤销拜登对私人雇主的疫苗授权进行了投票，它以两党的多数票否决了强制令。每位共和党人和两位民主党人乔-曼钦和乔恩-特斯特都投了我们的票”。
 
+克鲁兹表示：“现在将进入众议院。南希-佩洛西将面临压力。南希不想对此进行投票，她会尽力争取不对这个进行投票。而众议院的共和党人将迫使其投票。问题是，是否会有少数众议院的民主党人有勇气站出来反对南希-佩洛西？我不知道这个问题的答案。南希将试图扼杀它，但如果他们在众议院投票，你看到少数民主党人有哪怕一点点的勇气，它就会否决，然后会交给乔-拜登。现在，考虑到他是那么极端，他可能会反对。但这是两党对非法和滥用疫苗授权的否定”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
+原文链接：
 
-总编辑：飞虹
-编辑：飞虹/雪梨
-校正/发稿：海阔天空1
+[https://www.foxbusiness.com/politics/ted-cruz-vaccine-mandate-is-illegal-unconstitutional-and-grotesque-abuse-of-power](https://www.foxbusiness.com/politics/ted-cruz-vaccine-mandate-is-illegal-unconstitutional-and-grotesque-abuse-of-power)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
+* * *
+
+发稿Spirit
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

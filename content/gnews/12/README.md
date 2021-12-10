@@ -2,14 +2,12 @@
 ---
 
 
-## 京都大学研究发现中共病毒疫苗对Omicron无效
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1737736/)
+## 彼得·麦卡洛：许多运动员因疫苗引发心肌炎在赛场猝死
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1737855/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12._10-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+12/01/2021 彼得·麦卡洛博士：许多运动员因心肌炎在赛场上猝死，而疫苗是引发的原因。
 
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
