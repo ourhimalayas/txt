@@ -2,34 +2,27 @@
 ---
 
 
-## 美参议员抨击强制疫苗 ，称其是非法、违宪的滥用权力
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1741841/)
+## 数据表明中共病毒疫苗没有作用
+` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1741850/)
 
-作者：加拿大扬帆农场 – Spirit
-![This image has an empty alt attribute; its file name is 1-28.png](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
-据当地媒体12月9日报道，美国参议院于12月8日否决了拜登对私人雇主的疫苗强制令。第二天，德州参议员泰德·克鲁兹接受采访时，抨击了该命令，并称其非法、违宪，是荒谬的滥用权力。
+世界各地都在推出大规模疫苗，但新的研究表明疫苗未能阻止 COVID 病毒传播。 事实上，数据显示病毒在完全接种疫苗的人群中的流行率正在增加。正如海报所说，大多数选民现在不信任大型制药公司。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/9-3.png)
+Trinity Chavez 在纽约辉瑞总部外，了解更多细节。 随着辉瑞等病毒制药公司在全球范围内推出疫苗，专家表示，接种疫苗仍然是对抗病毒的最佳保护措施。 然而，新数据表明，60 岁及以上完全接种疫苗的人的染病阳性率实际上正在上升。 很多人对制药行业产生了进一步的质疑。
 
-克鲁兹在采访中表示，需要彻底消灭此命令，拜登应该意识到，白宫的律师也应该告诉拜登，这是非法的，会在法庭上被否决。但是，他们仍然试图实施这项强制令。因此，12月8日的投票是一次真正重要的投票，以两党的多数票否决了强制令。
+今天，一项新发布的数据表明，大规模疫苗的推出未能阻止 COVID 传播。 根据《柳叶刀》上的一项医学研究，该病毒在完全接种疫苗的人群中的流行率正在增加。 在检查德国的新感染病例后，研究人员发现 60 岁及以上完全接种疫苗的人的病例率从 7 月份的16.9%上升到10月份的 58.9%。 这增加了42%，表明完全接种疫苗的人是COVID传播的主要来源。
 
-参考链接：
+在整个英国，暴露于未接种疫苗病例的家庭接触人数为23%，略低于暴露于接种疫苗的人数的25%。 此外，在以色列爆发的感染了多名医护人员和患者及其家人的疫情是来自一名完全接种疫苗的医院患者。这是在大多数美国选民不信任大型制药公司并认为制药商对美国的医疗保健政策影响太大的时候。 Rasmussen 报告的一项新的全国电话在线调查发现，53%的可能的美国选民不信任大型制药公司，其中19%的人根本不信任它们。只有大约6%的人表示他们非常信任主要的制药商。大约36%的选民有点信任他们。现在，我联系了辉瑞（Pfizer）以获取对这两项研究的回应，并联系了CDC，以了解他们对完全接种疫苗的人群中传播率的看法。 但是，我没有收到回复。
 
-[https://www.foxbusiness.com/politics/ted-cruz-vaccine-mandate-is-illegal-unconstitutional-and-grotesque-abuse-of-power-20211208/6344544.html](https://www.foxbusiness.com/politics/ted-cruz-vaccine-mandate-is-illegal-unconstitutional-and-grotesque-abuse-of-power-20211208/6344544.html)
+素材：坐看云起时
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
+翻译：文佩
 
-总编辑：文特
-编辑：DM
-校正/发稿：海阔天空1
+字幕：文雅
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
+发布：风云小哥
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

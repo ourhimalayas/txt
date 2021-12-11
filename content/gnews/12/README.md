@@ -2,40 +2,42 @@
 ---
 
 
-## 凡在国内枪口抬高一寸的将会得到百倍躺平币和十倍喜币
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1741935/)
+## 美国或把商汤科技列入黑名单并防堵中芯购买关键技术
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1741955/)
 
-**郭文贵先生：**国内很多战友这次一定是新中国联邦遭受的一场最大的攻击，最大的攻击。那么很多这种事情会发生，凡是在国内枪口抬高一寸的，记住我们未来的躺平币是以百倍的给他们留着，喜币是十倍给他留着，一定会的！只要战友作证当初某警察、某检察官、某人给我枪口抬高一寸，我获得自由，一定会！一个都不少，而且是十倍和百倍的给予。
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-我们在设计这个币的时候专门有战友比如说Q May的一个同学被抓了、被喝茶了，结果没被虐待、没被掏裤裆、没被打，然后呢问完以后叫他回去了，没动家人，他知道这个警官的名字，知道是什么情况。她作证了，说没说，你看我这是我的同学，我们就马上给这个不管这个警察他接不接受，我们都会在他名下记下这个币，他即使暂时不要，最终他一定会要的。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/GettyImages-1063617496.jpg)
 
-比如说我们国内某个医院的人救我们战友的家人，我们的战友就说了我没啥给你的，给啥你也不要，说我给你点儿喜币，这个医生还真不知道啥叫喜币，说啥叫喜币？给他说了半天，这医生说我也不敢要，我也不敢动，我现在也不需要钱。他说我有一样事儿，你可以给我孩子。他给他孩子发信息，他孩子说我知道这喜币现在多火多火，孩子在日本留学，结果这个战友跟我说，七哥我能不能把这个给这个医生的孩子，我说马上支持，马上给。我们已经给完了，已经给完了。给了这位医生是4000个币，我又送他1000个币——5000个币给他了。结果这个医生就把这个咱们战友的家人照顾好得不得了，安全地回了家，我不能再具体地说了。
 
-所以这些事情每天都在发生，只是你们不知道，你们能听到七哥说的和七哥做的，就像干掉奥运会一样，那是非常表面的一点点！非常表面的！每时每刻都在发生，你这个瑞卡问这个问题很好，一定告诉所有国内的战友们被枪口抬高一寸的人的名字，一定要记住！我们一个恩人也不能忘了！
+ 
+图片来源:  techcrunch.com
 
-编辑整理：喜马拉雅的肉夹馍；
 
-视频制作：小满；
+#### 整理报道 ：小红帽
 
-视频上传：Cindy；
+**据媒体报道，美国正收紧对中国科技企业的监管，或将把中国****AI****巨头商汤科技列入黑名单。与此同时，美国官员正考虑国防部做出的提案，防堵中国芯片制造商中芯国际购买美国关键技术。**
 
-G-News发布：黎明之前
+英国《金融时报》周四引述三名消息人士称，美国财政部将于周五将专长人脸识别技术的中国AI巨头商汤科技（SenseTime）列入“中国军工复合体企业”黑名单。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+这一行动将是美国为纪念12月10日“国际人权日”而对多个国家实施的一系列制裁措施的一部分。华盛顿认为商汤科技协助了在新疆对维吾尔族穆斯林的人权侵犯行为。本周三，基于强迫劳动疑虑，美国众议院通过全面禁止新疆产品的法案。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+美国总统拜登六月签署了一项行政命令，禁止美国人士投资黑名单上的公司。而如今美国财政部的这一举措可能使商汤科技在香港首次公开募股的计划复杂化。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+美国《华尔街日报》则引述消息人士报道，美国官员计划在本月讨论国防部的一项提议，以填补中国芯片制造公司中芯国际（SMIC）能购买美国关键技术的这一监管漏洞。
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+对商汤和中芯国际的关注表明，在国会两党的呼吁下，拜登政府收紧对中国科技企业监管的势头越来越强，这是争夺全球主导地位的一部分。
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+新闻来源： [美国或将AI公司商汤科技列入黑名单 | 经济纵横 | DW | 10.12.2021](https://www.dw.com/zh/%E7%BE%8E%E5%9B%BD%E6%88%96%E5%B0%86ai%E5%85%AC%E5%8F%B8%E5%95%86%E6%B1%A4%E7%A7%91%E6%8A%80%E5%88%97%E5%85%A5%E9%BB%91%E5%90%8D%E5%8D%95/a-60079350)
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+***发布：小红帽***
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
