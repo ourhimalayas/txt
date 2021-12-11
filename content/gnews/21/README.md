@@ -2,18 +2,29 @@
 ---
 
 
-## 美国制裁中共国人工智能企业
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1742437/)
+## 樱花灭共诗——清平乐（新韵）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1742459/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-531.png)[图片来源](https://news.yahoo.co.jp/articles/0cc541533a61e17ebf125e1accb61583053f7cdb#:~:text=%E3)
-据《共同通信》网站11日的报道，12月10日，美国政府宣布对中共国、俄罗斯、朝鲜和缅甸的侵犯人权行为实施新的制裁。一家在中共国新疆维吾尔自治区开发面部识别程序的中共国人工智能（AI）开发公司已被列入禁止美国投资的黑名单。这种对抗在先进技术和数字领域更加尖锐，这些领域处于美中竞争的最前沿。
+撰稿：东京樱花团/曲非烟
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-532.png)
+党运积习日渐涸，
 
-由美国主导的“民主峰会”于12月10日结束。拜登总统在讲话中特别强调：“我们将努力加强国内和国外的民主，证明民主可以解决对人民最重要的问题。”
+英雄怒剑走白蛇。
 
-信息源：[米、中共国AI企業に制裁　デジタル競争先鋭化](https://news.yahoo.co.jp/articles/0cc541533a61e17ebf125e1accb61583053f7cdb#:~:text=%E3)
+丧钟先铸悼哀曲，
 
-*编辑：东京樱花团/知了知了
+唢呐排鸣嘹凯歌。
+
+千里传音除祸乱，
+
+一针见血起沉疴。
+
+礼还父老清平乐，
+
+开辟乾坤载盛德。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-533.png)
+*插图：东京樱花团/闪闪
+校对：东京樱花团/知了知了
 发布：东京樱花团/平安卿卿*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
