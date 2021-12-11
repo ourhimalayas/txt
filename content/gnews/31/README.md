@@ -2,14 +2,14 @@
 ---
 
 
-## 【文贵先生大直播PPT】中共金融 房地产危机最新信息分析
-` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1740414/)
+## 【文贵先生大直播PPT】数字货币近期动向
+` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1740450/)
 
-撰稿：财经G乐部，北评2025
-美工：青山
+撰稿：Sotres，足球队长，Arthur文徐
+美工：Bobby （文俊）
 
-【2021年12月10日文贵先生大直播PPT：中共金融 房地产危机最新信息分析】
-![](https://assets.gnews.org/wp-content/uploads/2021/12/41-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/42-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/43-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/44-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/45-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/46-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/47-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/48-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/49-2.jpg)
+【2021年12月10日文贵先生大直播PPT：数字货币近期动向】
+![](https://assets.gnews.org/wp-content/uploads/2021/12/51-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/52-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/53-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/54-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/55-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/56-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/57-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/58-1.jpg)
 * * *
 
 发稿：云起时
