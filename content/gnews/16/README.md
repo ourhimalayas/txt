@@ -2,30 +2,46 @@
 ---
 
 
-## 日本研究发现近90%中共病毒重症患者血液中有过多血小板团块
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1743374/)
+## 有声|中共上调外汇储备率后人民币暴跌
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1743386/)
 
-撰稿:东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/7-17.jpg)
-[图片源](https://news.yahoo.co.jp/articles/05e2b70780759cce02f6a32384e1fe31e7e5e10a)
+配音：香草山香港部 – 文凯琳
 
-东京大学研究生院的合田圭介教授和他的同事们发现，血小板浓度可以作为预知中共病毒感染恶化的一个标志。研究人员对东京大学医学部附属医院收治的110名中共病毒感染患者身上采集了血液，并对其中含有的大量血小板团块进行拍照与大数据分析，发现约90%患者的血小板团块数量过多. 此研究发现预计将有助于阐明中共病毒感染中血栓形成的发病机制并作为标志预测病情。
 
-众所周知，血栓形成，尤其是发生在微血管中的“微血管血栓症”，是影响中共病毒严重程度和死亡率的重要因素之一。
 
-研究小组利用微流控芯片的高速流体成像技术，对东京大学医院收治的110名轻度至重度新冠患者血液中的循环血小板团块进行了大规模成像。利用获得的循环血小板团块的图像大数据，进行了各种分析。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-结果发现，与健康人相比，87.3%的患者存在过多的循环血小板团块。
 
-还发现，在中共病毒患者中，循环血小板团块的出现频率与患者病情的严重程度、死亡率、呼吸状况和血管内皮功能障碍的程度有很大的关联。
 
-爆料革命Eglise钟声医生在喜马拉雅农场联盟新闻访谈节目中多次预警，中共毒疫苗会引起血栓等血管疾病。此项研究发现进一步证明了爆料革命的唯真不破。短时间内，血小板团块（血栓）的大量出现，导致重症化，也只有中共毒疫苗有这样的“威力”了。日本的研究越来越接近真相，也一步一步佐证了郭文贵先生的情报。
+据[零对冲](https://www.zerohedge.com/markets/yuan-tumbles-after-china-hikes-fx-reserve-ratio)12月9日报道，中共央行在北京时间12月9日晚间的一份声明中说，从12月15日起，金融机构将须持有9%的外汇储备，该比例较之前上调了2个百分点。
+据[零对冲](https://www.zerohedge.com/markets/yuan-tumbles-after-china-hikes-fx-reserve-ratio)12月9日报道，中共央行在北京时间12月9日晚间的一份声明中说，从12月15日起，金融机构将须持有9%的外汇储备，该比例较之前上调了2个百分点。
 
-信息源：[血小板濃度は新型コロナ重症化リスクの目印になる。東大など発見](https://news.yahoo.co.jp/articles/f90b95affe55dba62eb691e5fba3e9cf17a38739)
+外汇存款准备金率的上调水平在过去10年中两次与人民币的重大贬值有关。此次的上调对人民币隐含地施加了贬值压力。
 
-**编辑：东京樱花团/知了知了**
-**发布：东京樱花团/**yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
+另外，此次外汇存款准备金率的上调是在美国财政部发布报告、批评中共国的人民币政策缺乏透明度，及中共对相关政策进行干预后不到一周内发生的，这表明中共已经更直接地进行了“干预”，并旨在迫使银行持有更多外汇储备。
+
+原文链接：[中共上调外汇储备率后人民币暴跌](https://gnews.org/zh-hans/1737119/)
+
+音频处理：喜山必胜Maverick
+
+发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
 
 
  

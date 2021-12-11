@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/11/2021 3:42 PM (UTC)`
+
+12/10/2021 Miles Guo: During the 2022 Winter Olympics, the CCP will strengthen its brainwashing domestically and ramp up propaganda internationally, and then the CCP will take the initiative to go against the foreign businesses that are going to withdraw from Communist China. Later, the CCP will scapegoat those who have the so-called political ambitions to cover up its own mistakes. The CCP may eventually invade Taiwan and implement war-time nationalization in Communist China<br/><br/>12/10/2021文贵直播：中共在冬奥会期间将加大对内洗脑和对外宣传，对将撤资的外企先下手为强，然后找出所谓的政治野心家充当替死鬼，掩盖错误，最后可能打台湾，国内实行战时国有化<br/>
+![img](https://media.gettr.com/group47/getter/2021/12/11/15/0ef4e5fd-26ae-927c-9303-e4b91b1f5c0f/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@mr3rights 12/11/2021 2:38 PM (UTC)`
@@ -147,13 +154,6 @@ Hcoin To The Moon MV 上线仅仅3小时， 澳洲🇦🇺，香港 🇭🇰的i
 
 12/8/2021 Miles Guo: Boycotting the Beijing Winter Olympics basically means the CCP is sentenced to death, and the New Federal State of China has made great contributions to it! The Guo’s Seven Principles no longer apply, and we will do everything we can to take down the CCP!<br/><br/>12/8/2021 文贵直播: 干掉北京冬奥会意味着中共基本被判处了死刑，新中国联邦在此事上功不可没！世上不再有郭七条，我们会采取一切手段来灭共！<br/>
 ![img](https://media.gettr.com/group6/getter/2021/12/09/15/7de1dfdb-3758-d2bb-7561-b3e457d1e25c/out.jpg)
-
----
-
-`@miles 12/9/2021 2:19 PM (UTC)`
-
-12月9号 亲爱的兄弟姐妹们，Hcoin To The Moon 的MV刚刚已经成功上线iTunes了，这是七哥第一个MV上线打榜，请大家再接再厉，继续打榜，非常感谢兄弟姐妹们！🎉🎉🎉🎉🎉🎉🎉🙏🙏🙏🙏🙏🙏🙏<br/><br/>Hcoin To the Moon by Miles Guo<br/>https://music.apple.com/au/music-video/hcoin-to-the-moon/1596409781
-![img](https://media.gettr.com/group1/getter/2021/12/09/14/2f25b5de-4877-95f1-40e6-b0d2773293b3/061534f911e9422bb42ae12ed138fa2f.jpg)
 
 ---
 
