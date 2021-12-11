@@ -15,65 +15,65 @@
 
 ---
 
-### [加拿大学生受害于疫苗接种政策](/content/gnews/1/README.md)
+### [伦敦独立法庭裁定中共犯有种族灭绝罪](/content/gnews/1/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [纽约市警方：针对亚裔的仇恨犯罪增至去年4倍](/content/gnews/2/README.md)
+### [加拿大学生受害于疫苗接种政策](/content/gnews/2/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [纽约市警方：针对亚裔的仇恨犯罪增至去年4倍](/content/gnews/3/README.md)
  ` 向真`
 
-### [有病毒不意味 &#8220;染病&#8221;：PCR测试被揭科学欺诈](/content/gnews/3/README.md)
+### [有病毒不意味 &#8220;染病&#8221;：PCR测试被揭科学欺诈](/content/gnews/4/README.md)
  ` 墨尔本雅典娜农场`
 
-### [日本卫生部对辉瑞和Moderna covid疫苗发出心脏警告](/content/gnews/4/README.md)
+### [日本卫生部对辉瑞和Moderna covid疫苗发出心脏警告](/content/gnews/5/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [取消的手术揭示了政府封锁的悲惨代价](/content/gnews/5/README.md)
+### [取消的手术揭示了政府封锁的悲惨代价](/content/gnews/6/README.md)
  ` MG FARM`
 
-### [MV版Hcoin To the Moon上线第1天位列29国iTunes热门MV榜首 !](/content/gnews/6/README.md)
+### [MV版Hcoin To the Moon上线第1天位列29国iTunes热门MV榜首 !](/content/gnews/7/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [2021/12/10墙内世界](/content/gnews/7/README.md)
+### [2021/12/10墙内世界](/content/gnews/8/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [恶心：加州学校用垃圾食物诱骗儿童打疫苗](/content/gnews/8/README.md)
+### [恶心：加州学校用垃圾食物诱骗儿童打疫苗](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [扎克伯格基金与中共利益息息相关](/content/gnews/9/README.md)
+### [扎克伯格基金与中共利益息息相关](/content/gnews/10/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [美参议院通过废除疫苗强制接种令的法案](/content/gnews/10/README.md)
+### [美参议院通过废除疫苗强制接种令的法案](/content/gnews/11/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [特鲁多政府将扩展疫苗强制接种范围](/content/gnews/11/README.md)
+### [特鲁多政府将扩展疫苗强制接种范围](/content/gnews/12/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [英国儿童感染奥米克戎Omicron后出现不寻常皮疹](/content/gnews/12/README.md)
+### [英国儿童感染奥米克戎Omicron后出现不寻常皮疹](/content/gnews/13/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [加拿大国际旅行防疫政策备受非议](/content/gnews/13/README.md)
+### [加拿大国际旅行防疫政策备受非议](/content/gnews/14/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [我为什么成为美国人](/content/gnews/14/README.md)
+### [我为什么成为美国人](/content/gnews/15/README.md)
  ` MG FARM`
 
-### [“黑命贵”呼吁圣诞节抵制“白人公司”](/content/gnews/15/README.md)
+### [“黑命贵”呼吁圣诞节抵制“白人公司”](/content/gnews/16/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [众议院通过的国防法案削减了一些旨在对抗中共国的条款](/content/gnews/16/README.md)
+### [众议院通过的国防法案削减了一些旨在对抗中共国的条款](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [苹果公司与北京秘密签署2750亿美元投资协议](/content/gnews/17/README.md)
+### [苹果公司与北京秘密签署2750亿美元投资协议](/content/gnews/18/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [法官限制了班农先生公开证据的要求](/content/gnews/18/README.md)
+### [法官限制了班农先生公开证据的要求](/content/gnews/19/README.md)
  ` HimalayaRussia`
 
-### [2018年6月30日郭文贵先生直播第一部分全文字版](/content/gnews/19/README.md)
+### [2018年6月30日郭文贵先生直播第一部分全文字版](/content/gnews/20/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
-
-### [11名涉嫌Antifa活动人士在圣地亚哥被指控犯有重罪](/content/gnews/20/README.md)
- ` MG FARM`
 
 ### [欧洲国家何时宣布抵制北京冬奥？](/content/gnews/21/README.md)
  ` HimalayaRussia`

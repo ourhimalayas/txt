@@ -2,30 +2,22 @@
 ---
 
 
-## 英国儿童感染奥米克戎Omicron后出现不寻常皮疹
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1740855/)
+## 特鲁多政府将扩展疫苗强制接种范围
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1740865/)
 
-本文作者：Rebecca (一切心皆不可得！)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image002-9.jpg)
-伦敦北部全科医生大卫-劳埃德博士说，被确诊感染新变种奥米克戎Omicron的儿童出现了皮疹，主要在幼儿中出现这种因感染新变种而引发的症状。
+采编：文莱            编译撰稿：文文-自由法兰西
+![](https://assets.gnews.org/wp-content/uploads/2021/12/03-image-2.jpg)
+据《多伦多太阳报》12月7日报道，加拿大劳工部长当天宣布，将在明年初把疫苗强制接种政策扩展到银行、电信公司和所有其他由联邦政府监管的企业和机构。
 
-英国星期二（当地时间）记录了437名奥米克戎Omicron患者中有101名出现了皮疹症状，占总病患的15%。
+此前，当局已责令加拿大公共部门和由联邦政府监管的航空、铁路及运输机构近100万名雇员都必须接种“新冠病毒”疫苗。
 
-世界卫生组织（WHO）此前曾表示，目前没发现奥米克戎的症状与其他新冠病毒变体有什么不同。
+截至11月27日止，约有87%的12岁及以上加拿大人已完全接种了该疫苗。
 
-劳埃德博士说，该病毒变种引发的皮疹与其他菌株略有不同，我们注意到了这个情况。对奥米克戎变种病毒有了进一步了解。
+校对编辑：硫酸羟氯喹64
 
-Tim Spector教授说，奥米克戎继续在英国蔓延，他怀疑在英国已经有至少1000个这种新变体的病例。
+发稿：苦尽甜来 (文來）
 
-南非非洲健康研究所一个实验室的研究负责人说，奥米克戎变体可以部分逃避辉瑞公司和合作伙伴BioNTech的新冠病毒疫苗的保护。
-
-[新闻来源链接](https://www.newshub.co.nz/home/world/2021/12/covid-19-unusual-rash-linked-to-children-infected-with-omicron-cases-in-uk-gp.html)
-
-
-
-审核校对：sherryok (水云间)
-
-上传排版：漂流瓶
+[原文链接](https://torontosun.com/news/national/canada-to-expand-covid-19-mandates-targets-banking-telecoms-sectors)
 
  
 
