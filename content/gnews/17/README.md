@@ -2,47 +2,37 @@
 ---
 
 
-## 宾夕法尼亚州最高法院驳回口罩强制令
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1744468/)
+## 日本高級官員表示將不參加北京奧運會
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1744487/)
 
-作者：纽约香草山农场 – 四季
+![](https://assets.gnews.org/wp-content/uploads/2021/12/israel-healthcare-worker-700x420-2.jpg)圖片來源：路透社
+路透12月11日報導，日本讀賣新聞周六援引多位知情人士的話報導稱，日本政府高級官員可能會不參加2月份在北京舉行的冬奧會，加入美國的外交抵制。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+本週早些時候，加拿大與澳大利亞、英國和美國一道表示，他們不會派高級官員參加奧運會，理由是長期以來對中國人權記錄的擔憂。
 
+中共國稱抵制是“政治姿態”和抹黑運動。
 
+《讀賣新聞》稱，日本可能會在本月底做出正式決定。該報稱，現在預計將出席的唯一官員是與奧運會相關的人員，包括前東京奧組委主席橋本聖子。
 
+週五，日本首席發言人表示，尚未決定該國是否計劃派官員參加此次活動。
 
+簡評：郭先生說過，抵制北京冬奧會只是剛剛開始。其實全球滅共早已開始，只是沒有放在明面上，滅共的趨勢只會增，不會減。
 
-据[网关专家](https://www.thegatewaypundit.com/2021/12/pennsylvania-state-supreme-court-strikes-school-mask-mandate/)12月10报道，宾夕法尼亚州最高法院周五驳回了一项全州范围内的口罩强制令，裁定宾夕法尼亚州代理卫生部长艾莉森·贝姆无权要求学生在学校佩戴口罩。
+日本最終會緊跟美國對北京的冬奧會進行抵制，在中共獨裁政權實施了針對新疆、香港等地的種族滅絕措施後，如果讓中共繼續舉辦奧運會實在是一件令世界蒙羞的事。抵制北京冬奧會的原因絕不僅僅是簡單的人權問題，隨著中共國在全世界施行的“超限戰”、“藍金黃”、滲透和間諜等活動愈演愈烈，加之爆料革命、新中國聯邦人不斷堅持傳播真相，揭露中共罪行，如此才造成了全世界抵制中共冬奧會的行動。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1667.jpg)图片来源：网关专家
+新聞來源：
 
-最初的诉讼是由一个由家长、学区和共和党政治家组成的联盟提起的。
+https://www.reuters.com/lifestyle/sports/senior-japanese-officials-skip-beijing-olympics-report-2021-12-11/
 
-宾夕法尼亚州最高法院已经确认了联邦法院的决定，并撤销了代理卫生部长发布的要求在K-12学校和幼儿园实施的口罩强制令。
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月.png)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+- [點擊閱讀英國倫敦喜莊園在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [點擊觀看英國倫敦喜莊園在G-TV的精彩視頻](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [歡迎加入【英國倫敦喜莊園】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-
+編輯：【英國倫敦喜莊園編輯部】
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
  
