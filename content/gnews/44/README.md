@@ -2,32 +2,34 @@
 ---
 
 
-## FBI纪录片揭露中共经济间谍手段
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1741576/)
+## 郭先生新歌MV登陆VEVO平台
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1741777/)
 
-作者：东京樱花团—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月9日，据相关媒体消息称，美国联邦调查局FBI即将推出一部名为《中共制造：统治全球市场计划》的纪录片。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-11-上午11.16.42.png)
-据悉，该纪录片中揭露了中共通过各种手段，对美国商业实体开展经济间谍活动的行为，给美国企业和国家安全造成了严重的损失。其中，该纪录片列举了四起中共窃取美国商业秘密的知名案件，包括2011年中共华锐风电窃取美国超导公司商业秘密案、2011年中共国公民莫海龙窃取美国优质玉米良种案、2015年美籍华裔化工专家黄锡文窃取商业秘密案，以及2019年美籍华裔石山盗取特瑞堡集团美国子公司复合薄膜塑料技术案。
+撰稿：纽约香草山教育部 – Irene木木
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-2.png)
+12月10日，据盖特平台消息称，郭文贵先生携新歌《HCoin to the moon》的MV正式登陆VEVO平台，同时，郭先生在VEVO平台上的官方频道也同步上线。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-513.png)
+资料显示，VEVO，即Video evolution网站，是一个由环球音乐集团、索尼音乐娱乐、华纳音乐集团和阿布扎比传媒联合提供免股权分红的授权内容的合资营运企业，主营音乐视频项目。该网站于2009年12月正式推出服务，并立即成为美国访问量最大的音乐服务类网站。目前，VEVO的服务范围覆盖全球多个国家，且观众可在包括苹果、安卓在内的大部分电子平台上浏览该网站的内容。
 
-报道还提及，早在2020年，联邦调查局就曾推出类似短片，警告美国现任和前任官员不要被中共诱骗，向中共泄漏美国机密信息。
+与此同时，郭先生的新歌MV也登顶iTunes平台音乐视频排行榜榜首之位。
 
-参考链接：[FBI纪录片《北京制造》 警惕中国对美经济间谍手段](https://www.voachinese.com/a/fbi-documentary-china-eco-espionage-20211208/6344965.html)
+【新闻链接】[Miles Guo！首位华人强势杀入国际摇滚巨星阵营！引领国际流行乐坛新浪潮！！](https://gettr.com/post/pja1gle3c0)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+[维基百科关于Vevo](https://zh.wikipedia.org/wiki/Vevo)
 
-总编：Ivy001
-编辑：文特
-校正/发稿：呼吸的雾霾（文小呼吸）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-4.png)
+
+总编/编辑：正义的小新
+
+校正/发稿：浪迹天涯
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

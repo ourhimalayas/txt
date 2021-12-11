@@ -2,45 +2,29 @@
 ---
 
 
-## 白宫呼吁民主国家与台湾加强往来
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1741908/)
+## 行动起来！构建HPAY商圈
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1742126/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-5-768x103-8.jpg)
+撰稿：澳喜文飞
+![](https://assets.gnews.org/wp-content/uploads/2021/12/HPAY.png)
+之前我写了HCN-HDO双币架构之绝！未来的HPAY支付平台，这是郭先生秉承他的利他信念，以他超人的商业智慧为我开设的致富之门，在引我们进门之后如果建设这个家园这应该是我们广大战友要做的；HCN-HDO长足发展成为宇宙第一数字币的前提还是应用环境（也就是生态），HPAY（HPAY商圈），HLOAN（借贷），HSHARE MARKET（股票交易所）。
 
-作者：纽约香草山 医疗部 云豹
+今天我们先来谈一下HPAY商圈的一些初步构思，注意只是一些我们力所能及的设想，也就是说在社会上广泛接受HPAY之前我们如何用自己的能力去构成第一支HPAY的样板用户队伍，既能给日后推广提供经验，同时也能成就成新中国联邦的现实商圈。就如我之前写过的新中国联邦是一个虚拟之国（云上之国），就此商圈的主要模式也应是云上电商。
 
+我的设想先有三个方向：
+1.平台
+平台应该就是G-MALL ，这个我想不必解释了，就是一个可以使用HPAY的eBay+Amazon，唯有一点特点是，新中国联邦是无疆之国，国民遍布全球，将来的G-MALL难点在邮路，在G-MALL上开店从选择商品开始就得考虑如何适合邮递全球。这是今天就不详述了。
 
+2.垂直电商
+垂直电商，直白的说就是专注于某一领域，某类商品，某类服务的独立电商，这个方向很可能成为我们新中国联邦人创业商圈的最先头部队，首先我们的群体所在地域决定了我们的联系只适合于云上经济，就从我们的4G（GTV ,GNEWS,GETTR,GFASHION)的成功就可以看出这个趋势，为什么要说垂直电商呢？这是相对电商平台而论的，平台电商可以是无限关键词，引流由平台负责，但面对于小企业创我们只能选取自己有优势的产品，服务形成专注形电商（垂直电商），好处就是关键词简单，易于推广和引流，客户群除了HPAY群体外还可以面向全球，并且库存及投资风险不高，现在最受欢迎的软件提供商就是Shopify 。
 
-当地时间12月10日，美国白宫发言人莎琪在记者会上，批评尼加拉瓜政府与台湾断交，并转向承认中共的作为。她呼吁民主自由国家扩大与台湾的各种交流往来。
+3.地区实体店
+这个就是指在战友群体比较大的地区或城市，可以是现在生意增加HPAY，或许可以有针对性地开设生意先以HPAY为媒介起步再向其他群体拓展，有点像香港的黄色经济圈。
 
-莎琪表示，尼加拉瓜政府让人民损失台湾这个可靠的民主伙伴。台湾是该区域内理念相近国家的民主坚实伙伴，也是大家的朋友。
+这些只是我个人粗浅之见，抛砖引玉。
 
-莎琪表示，美国鼓励所有重视民主法治、信息透明、为民众褔利来发展经济的国家，扩大与台湾的往来。
-
-(本文为作者观点，不代表G NEWS立场)
-
-[新闻连接]：[https://www.cna.com.tw/news/firstnews/202112110011.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/firstnews/202112110011.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec.png)
-
-
-
-校对/编辑/发稿：云豹
-
-**更多信息，更多关注**
-
-[**纽约香草山农场**** GTV****–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
-
+发稿：MG4
+![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

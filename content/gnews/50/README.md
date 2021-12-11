@@ -2,32 +2,27 @@
 ---
 
 
-## 在美国施压下阿联酋叫停该国中共在建军事设施
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1739615/)
+## 苹果公司与北京秘密签署2750亿美元投资协议
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1740818/)
 
-#### **撰稿：**日本东京方舟农场 子辰
+本文作者：Rebecca (一切心皆不可得！)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image001-1.png)
+据路透社报道，网媒《信息》（The Information）周二（7日）独家披露，苹果公司 (AAPL.O) 首席执行官蒂姆-库克（Tim Cook），2016年5月曾与中共政府官员“秘密”签署了一份 2,750 亿美元的投资协议。以缓解可能会导致其产品与服务在中国市场受挫的威胁。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/4F07652A-4260-447A-A231-C87C4C2FD830.jpeg)（图片来自《大纪元》）
+该份协议内容包括：
 
-据《大纪元》12月10日报道，阿拉伯联合酋长国的一位高级官员周四（12月9日）表示，在美国认为北京（中共）打算在阿联酋新建军事设施后，阿联酋政府最近已下令叫停了中方的施工。
+- 苹果承诺帮助中共国制造业者开发‘最先进的制造技术’并‘支持培养高素质的中共国人才’
+- 苹果承诺在其产品使用更多来自中共国供应商的组件，与中共国软件公司签署协议，与中共国大学进行技术合作，并直接投资中共国科技公司
+- 苹果承诺在中共国市场的投资将比当时的水平高出“数十亿美元“
 
-《华尔街日报》上个月曾引述一位知情人士的消息报道称，美国情报机构发现，中共正在阿联酋首都阿布扎比附近的一个港口秘密建造疑似军事设施。据了解，情报所指之处是中共国中远海运集团经营的一个商业集装箱码头。
 
-阿联酋是美国最亲密的中东盟友之一。拜登政府在得知这一情报后，随即警告阿联酋政府，中共的军事存在可能会威胁到两国之间的关系。
+如果双方都不反对，该份协议将自动延期至第六年，即到2022年5月。
 
-据报道，12月8日，阿拉伯联合酋长国外交顾问、前外交部长安瓦尔‧加尔贾什（Anwar Gargash）在出席华盛顿智库“阿拉伯海湾国家研究所”的视频会议时表示，在华盛顿的要求下，阿联酋已下令停止了上述建筑工程。
+参考来源：[https://www.reuters.com/business/retail-consumer/apples-tim-cook-signed-275-bln-deal-with-chinese-officials-placate-china-2021-12-07/](https://www.reuters.com/business/retail-consumer/apples-tim-cook-signed-275-bln-deal-with-chinese-officials-placate-china-2021-12-07/)[链接](https://www.reuters.com/business/retail-consumer/apples-tim-cook-signed-275-bln-deal-with-chinese-officials-placate-china-2021-12-07/)
 
-《大纪元》的报道指出，中东地区越来越成为中美竞争的主要场所。阿联酋和美国有长期的贸易和安全关系，这也使得中共在那里的入侵对美国的利益更具潜在威胁。
+审核校对：sherryok (水云间)
 
-*参考链接：[叫停中方施工 阿联酋：不考虑美国担忧是愚蠢的](https://www.epochtimes.com/gb/21/12/9/n13427649.htm)*
-
-* * *
-
-*素材采编：子辰*
-
-*编辑：青衣青青*
-
-*发布：miumiu*
+上传排版：漂流瓶
 
  
 

@@ -2,35 +2,42 @@
 ---
 
 
-## 文贵先生对即将发起的灭共行动之提醒
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1741742/)
+## 欧盟列举实例批评中共侵犯人权
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1741959/)
 
-撰写：香草山农场-晓仙女
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-2.png)
-2021年12月9日，爆料革命发起人郭文贵先生发布视频盖文，对爆料革命战友刚刚启动的最新灭共行动给予了提醒，文贵先生表示：这次全球的行动一定要科技化、合法化、智慧化、永恒化，各国战友要跟新中国联邦委员会和各农场主保持有效沟通，统一行动，需要具备专业的通讯系统，360度防破损摄像头，同时完善救助系统和突发事件处理系统。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-512.png)
-文贵先生拒绝了战友们的友情捐助并表示了感谢，新中国联邦具备此次行动的实力和灭共的能力，不会辜负上天给予的使命。 文贵先生传递着坚定的灭共信念，以智慧引领着爆料革命。他告诫所有人，要不为事所动；不为情所动；不为利所动；不为名所动，切记躁动，大悲大乐不要做决定。郭先生在自己的行动中提升着新中国联邦人的高度！
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-5-768x103-10.jpg)
+
+作者：纽约香草山 医疗部 云豹
 
 
 
-链接：[2021年12月9日郭文贵先生盖特文章](https://gettr.com/post/pj858hb609)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-4.png)
 
-总编/编辑：文特
+当地时间12月10日，就世界人权日，欧盟驻华代表团发表声明，批评中共侵犯人权。在声明中特别列举出中共在新疆非法拘捕维吾尔人，强摘器官，拘留人权活动人士，限制新闻工作者的自由采访权，及女网名将彭帅被中共高官性侵等违犯人权的事件。
 
-校正/发稿：浪迹天涯
+欧盟表示，将继续与中共对话接触，监督中共对待人权的状况。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-2.png)
+(本文为作者观点，不代表G NEWS 立场)
+
+新闻连接：
+
+[https://www.cna.com.tw/news/aopl/202112110012.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/aopl/202112110012.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
 
 
+校对/编辑/发稿：云豹
+
+**更多信息，更多关注**
+
+[**纽约香草山农场**** GTV****–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
  
 

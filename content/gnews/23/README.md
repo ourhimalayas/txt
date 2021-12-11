@@ -2,43 +2,24 @@
 ---
 
 
-## 欧盟列举实例批评中共侵犯人权
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1741959/)
+## 继兰州关闭中国银行后，山西关闭19家银行
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1742196/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-5-768x103-10.jpg)
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/12/44-6.jpg)图片来源
+中国经济网12月10报道，山西监管局发布关于多处交通银行支行终止营业的批复，交通银行共终止营业19家支行，涉及太原、晋中、运城、阳泉、长治、朔州、晋城等地。
 
-作者：纽约香草山 医疗部 云豹
+交通银行年报显示，该行始建于1908年，是中国历史最悠久的银行之一，也是近代中国的发钞行之一。1986年7月，国务院批准重新组建交通银行，是新中国第一家股份制商业银行。2003年，划归中国银行业监督管理委员会管理。于2005年6月、2007年5月先后在港交所、上交所上市。交通银行前三季度实现营业收入1999.70亿元，净利润643.60亿通银行曾是国有银行信用卡业务的排头兵。
 
+这是继11月30日，甘肃中国银行兰州分行关闭后又一省份关闭银行，早在2016年时，交通银行便成为第四家发卡量突破5000万张大关的银行，2020年末，在国有六大行中，交通银行仍以2.27%的信用卡不良率位居第一位。
 
+消息来源：
 
+[交通银行1个月关19家山西支行！投诉量居国有大型商业银行第一](https://ms.mbd.baidu.com/r/xMPDHj12Rq?f=cp&amp;rs=3313457208&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=d45dea174b3aa4fe)
 
-
-当地时间12月10日，就世界人权日，欧盟驻华代表团发表声明，批评中共侵犯人权。在声明中特别列举出中共在新疆非法拘捕维吾尔人，强摘器官，拘留人权活动人士，限制新闻工作者的自由采访权，及女网名将彭帅被中共高官性侵等违犯人权的事件。
-
-欧盟表示，将继续与中共对话接触，监督中共对待人权的状况。
-
-(本文为作者观点，不代表G NEWS 立场)
-
-新闻连接：
-
-[https://www.cna.com.tw/news/aopl/202112110012.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/aopl/202112110012.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-
-
-
-校对/编辑/发稿：云豹
-
-**更多信息，更多关注**
-
-[**纽约香草山农场**** GTV****–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
-
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
