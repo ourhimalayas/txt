@@ -2,44 +2,42 @@
 ---
 
 
-## 日本厚生劳动省对辉瑞和莫德纳新冠疫苗发出警告提示
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1741901/)
+## 欧盟列举实例批评中共侵犯人权
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1741959/)
 
-**【雅典娜快讯】，紧贴时代脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-5-768x103-10.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-518.png)图片来源：WebMD
+作者：纽约香草山 医疗部 云豹
 
-**整理报道：皮特
-编辑：文泓**
 
-12月10日，**日本厚生劳动省已收到多份报告，显示年轻人在接种辉瑞或莫德纳mRNA疫苗后出现严重的心脏炎症**。公共卫生官员最近与一个专家小组举行会议，专题讨论年轻男子和青少年的心肌炎和心包炎的发病率。目前，**在世界各地，以往身体健康的运动员、教练员和裁判员都因心脏问题倒在球场上**。日本也有年轻的和中年男子出现类似的心血管问题。
 
-厚生劳动省官员警告说，**心肌炎是由mRNA疫苗引起的**。经他们研究发现，**“****莫德****纳和辉瑞的新冠疫苗，可能对年轻男性产生与心脏有关的副作用”**。该机构正在调查需要住院治疗的心脏炎症病例的上升情况。青少年和成年人几乎没有新冠严重感染的风险，但他们正在排队接种无效的疫苗，并在受到伤害，日本的心肌炎、心包炎的发病率正在上升。
 
-根据厚生劳动省记录，截至2021年11月14日，每百万名接种莫德纳疫苗的男性青少年中，就有80例心肌炎患者！这说明了什么？该机构没有报告女性心肌炎的发病率。对于20多岁的男性来说，每百万针就有48例心肌炎——新冠mRNA疫苗是市场上最危险的疫苗。辉瑞公司的疫苗也有类似的问题，在男性青少年中，每百万剂引起15例心肌炎，在20多岁的男性中，每百万剂引起13例心肌炎。
 
-但厚生劳动省没有禁止疫苗，而是**同意在疫苗说明书中增加一个警告。医院将必须报告任何在接种疫苗后28天内出现症状的事件。**还要有多少年轻人遭受痛苦，才能停止这些生物武器？
+当地时间12月10日，就世界人权日，欧盟驻华代表团发表声明，批评中共侵犯人权。在声明中特别列举出中共在新疆非法拘捕维吾尔人，强摘器官，拘留人权活动人士，限制新闻工作者的自由采访权，及女网名将彭帅被中共高官性侵等违犯人权的事件。
 
-**以色列也发现心肌炎风险**
+欧盟表示，将继续与中共对话接触，监督中共对待人权的状况。
 
-这一数据与以色列官方报告的心肌炎病例相吻合。一项“大型医疗机构接种新冠疫苗后的心肌炎”的研究发现，辉瑞公司的疫苗在普通人群中每百万人中引起21.3例心肌炎。该研究调查了以色列最大的保健组织Clalit保健服务机构中的250万名接种者，接受过至少一剂辉瑞疫苗的以色列人患心肌炎的风险增加，特别是年轻人。在16至29岁的年龄组中，每百万人中大约有100例心肌炎。尽管有大量证据表明疫苗的失败和对心脏的损伤，以色列仍在推动新一轮的注射，并哄骗儿童去接种，这会破坏他们的健康。
+(本文为作者观点，不代表G NEWS 立场)
 
-**刺突蛋白mRNA将氧气从红血球中拉出**
+新闻连接：
 
-在显微镜研究中，可以看到刺突蛋白mRNA将氧气直接从红细胞中拉出。美国心脏病专家理查德·弗莱明博士从一个人身上获得了红血球样本，并将它们放在显微镜下的两个不同的环境中。一种是生理盐水，一种是辉瑞公司的刺突蛋白mRNA。
+[https://www.cna.com.tw/news/aopl/202112110012.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/aopl/202112110012.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-“很不幸我们发现，**当加入辉瑞公司的疫苗时，红血球会失去红色。这意味着要么氧气被从细胞中抽出，要么血红蛋白本身在细胞中被分解**，”弗莱明说。当血液与疫苗接触时，红血球失去颜色，变得苍白。氧气被吸走后，红血球开始凝聚，在显微镜下凝结成块。“你可以看到辉瑞公司疫苗溶液中细胞的运动。我第一次做的时候，我的反应是‘这非常令人不安'”。
 
-新闻链接：[Japan Health Ministry issues HEART WARNING for Pfizer and Moderna covid vaccines – NaturalNews.com](https://www.naturalnews.com/2021-12-10-japan-health-ministry-issues-heart-warning-covid-vaccines.html)
 
-*发布：盘古相聚*
+校对/编辑/发稿：云豹
 
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**更多信息，更多关注**
+
+[**纽约香草山农场**** GTV****–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
  
 

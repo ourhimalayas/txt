@@ -2,30 +2,21 @@
 ---
 
 
-## 讣 告
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1741350/)
+## COVID-19 最新情报｜美式幽默！一女子在加州县议会上翻唱圣诞歌曲 用歌词反讽疫苗暴政
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1741662/)
 
-百年恶党中共匪首习近平,于北京时间2021年12月8日晚，在中南坑，穿着皇帝的新衣，裸死，享年68岁。
+**撰文｜疫情关注组 / 发布时间｜11/12/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup）](https://gettr.com/user/mightygroup%EF%BC%89)**
 
-当晚，新中国联邦缔造者郭文贵先生发布了这一消息，面向全世界宣判了这个历史罪人生命的终结！消息传开，群山起舞、四海欢腾！
+一位名为布里吉特（Bridgette）的加利福尼亚女士日前在加州圣地亚哥县议会上，就延长COVID-19紧急状态的公众讨论环节，上演一出精彩又幽默的抗议表演。
 
-在习近平病重期间，郭文贵先生对其予了不遗余力的救治。但终因其恶及膏肓、执迷不悟，而救治无果。
+她当众翻唱了玛丽亚·凯莉（Mariah Carey）的“All I Want For Christmas Is You”，用歌词反讽无休止的口罩及封锁措施，揭露自然免疫优于疫苗，更暗示当局刻意隐瞒伊维菌素、羟氯奎、锌、槲皮素等药物对抵抗疫情的实质效用。
 
-习近平的一生，是乐视生父吃屎的一生、是记食不记打的一生、是视同胞如草芥的一生、是祸国殃民的一生！
+话不多说，一起来欣赏看看这极具美式幽默风格的抗议表演：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-8.jpg)
+来源｜[FOX5](https://fox5sandiego.com/news/coronavirus/woman-sings-all-i-want-for-christmas-is-you-parody-to-oppose-pandemic-emergency-extension/)
 
-鉴于习近平曾倾尽其愚蠢助力爆料革命,新中国联邦已于当晚为他以及他的家人启动了全球送葬活动！
-
-为这个恶棍送葬！送习近平的追随者们陪葬！
-
-望尊敬的先生们、女士们、所有追求民主法治、渴望自由和平的人们广而告之，以期同心协力将习近平等送至地狱最底层！
-
-2021年12月9日
-
-新中国联邦人全体
-
-*制作：东京樱花团/待命（文晓）*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

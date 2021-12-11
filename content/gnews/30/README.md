@@ -2,36 +2,37 @@
 ---
 
 
-## 文贵先生对即将发起的灭共行动之提醒
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1741742/)
+## 无国界记者组织称 中共政权逮捕记者世界第一
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1741807/)
 
-撰写：香草山农场-晓仙女
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-2.png)
-2021年12月9日，爆料革命发起人郭文贵先生发布视频盖文，对爆料革命战友刚刚启动的最新灭共行动给予了提醒，文贵先生表示：这次全球的行动一定要科技化、合法化、智慧化、永恒化，各国战友要跟新中国联邦委员会和各农场主保持有效沟通，统一行动，需要具备专业的通讯系统，360度防破损摄像头，同时完善救助系统和突发事件处理系统。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-512.png)
-文贵先生拒绝了战友们的友情捐助并表示了感谢，新中国联邦具备此次行动的实力和灭共的能力，不会辜负上天给予的使命。 文贵先生传递着坚定的灭共信念，以智慧引领着爆料革命。他告诫所有人，要不为事所动；不为情所动；不为利所动；不为名所动，切记躁动，大悲大乐不要做决定。郭先生在自己的行动中提升着新中国联邦人的高度！
+作者：纽约香草山医疗部 – 云豹
+![This image has an empty alt attribute; its file name is 1-28.png](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
+12月7日，无国界记者组织发布最新报告《中共国新闻业的大倒退》，指出中共政权正在加速违反其对言论自由的国际承诺，对世界范围内的新闻业和信息权进行了前所未有的镇压。 目前至少有127名记者被中共政权逮捕，排名世界第一位。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/7-15.jpg)
+
+报告中提及，在中共国工作的记者被迫成为党的喉舌，为了获得和更新记者证，他们不得不接受每年90个小时的培训，主要是研读习近平思想；记者调查敏感话题或擅自发布当局认为需要审查的内容，就可能被送进监狱长时间监禁，遭受虐待甚至死亡。因报道新疆议题，有71名维吾尔记者被逮捕。在香港实施国安法后，至少有12名记者或新闻工作者受到迫害。中共对外国新闻记者也极不友善，在2020年驱逐了18名外国新闻机构派驻在中共国的记者。
+
+无国界记者组织的秘书长德洛雷呼吁民主国家，采取任何可行的手段，来阻止中共压抑新闻自由的政策，并支持悍卫新闻自由的中国人。
+
+参考链接：
+
+- [An unprecedented RSF investigation: The Great Leap Backwards of Journalism in China](https://rsf.org/en/reports/unprecedented-rsf-investigation-great-leap-backwards-journalism-china)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
 
-链接：[2021年12月9日郭文贵先生盖特文章](https://gettr.com/post/pj858hb609)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-4.png)
-
-总编/编辑：文特
-
-校正/发稿：浪迹天涯
+总编辑：飞虹
+编辑：飞虹
+校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-2.png)
-
-
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
