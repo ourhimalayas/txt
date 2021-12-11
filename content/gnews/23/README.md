@@ -2,47 +2,22 @@
 ---
 
 
-## 取消的手术揭示了政府封锁的悲惨代价
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1740938/)
+## 纽约市警方：针对亚裔的仇恨犯罪增至去年4倍
+` 向真` [轉載自GNews](https://gnews.org/zh-hans/1741282/)
 
-作者：RebelNews
-翻译：HimaBoy
+#### 加拿大温哥华农场 向真
+![](https://assets.gnews.org/wp-content/uploads/2021/12/6A6E2482-71A5-4528-871A-A9CF8E0C57FB_4_5005_c.jpeg)来源：superpyq
+据共同社12月9日报道，美国纽约市警察局近日透露，今年截至本月5日，市内针对亚裔的仇恨犯罪骤增至去年全年的4倍以上。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-126.png)
+实际的仇恨犯罪数量可能要多得多。因为即使是可能以种族为犯罪动机的案件，由于缺乏现场歧视性言论的明确记录，警方也大多只是作为暴力案件等处理，而不作为仇恨犯罪处理。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-10-下午6.38.46.png)来源：RFA
+此前有人批评美国前总统特朗普称新冠病毒为“中国病毒”，导致从去年2月开始，针对亚裔居民的歧视性言行及骚扰事件激增。拜登上台后对中共病毒溯源采取了模糊策略，不再提“中国病毒”这个词，但针对亚裔的仇恨犯罪事态反而进一步恶化。
 
-在昨晚的节目以斯拉地中海秀中，以斯拉讨论新报告，强调在过去两年政府封锁的悲惨成本。
+随着全球性的疫苗灾难和经济危机的临近，世界各国对华裔的仇视将不断累积和爆发。因此，郭文贵先生发起今年春节开始大规模揭露邪恶中共释放病毒、主导全球有毒疫苗的真相，为中共举办一千天的送葬行动，是所有海外华人不能错过的自救及消灭中共的重要机会。
 
-在过去两年中，有 29,000 名加拿大人死于新冠肺炎。好多啊。但事实并非如此，这比同一时期死于流感的人数要高一些。
+参考：
 
-但根据这份新报告，包括癌症手术在内的 50 万例手术已被取消。您是否怀疑过那些错过的手术而死亡或将死亡的人会超过 29,000 人？
-
-这只是手术。
-
-《环球邮报》最近一篇关于该主题的文章如下：
-
-根据一份强调大流行造成的附带损害新报告，从 2020 年 3 月到 2021 年 6 月，在加拿大医院进行的手术数量减少了 50 多万。
-
-对此，以斯拉表达，政客们封锁的政策没有阻止新冠反而导致更多的死亡。
-
-来源：[https://www.rebelnews.com/cancelled\_surgeries\_showcase\_the\_tragic\_costs\_of\_government\_lockdowns](https://www.rebelnews.com/cancelled_surgeries_showcase_the_tragic_costs_of_government_lockdowns)
-
-（文章仅代表作者个人观点）
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)](https://www.gettr.com/user/7UPgogo)
-
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+[纽约针对亚裔的仇恨犯罪增至去年4倍](https://china.kyodonews.net/news/2021/12/6df40f7b50b9-4.html)
 
  
 

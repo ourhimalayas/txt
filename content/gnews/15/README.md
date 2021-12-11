@@ -2,32 +2,30 @@
 ---
 
 
-## 七哥谈：唢呐送葬（2021-12-10摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1741324/)
+## 讣 告
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1741350/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+百年恶党中共匪首习近平,于北京时间2021年12月8日晚，在中南坑，穿着皇帝的新衣，裸死，享年68岁。
 
-来源：郭先生2021-12-10直播09：02：36 摘录
+当晚，新中国联邦缔造者郭文贵先生发布了这一消息，面向全世界宣判了这个历史罪人生命的终结！消息传开，群山起舞、四海欢腾！
 
-大年春节咱要给共产党送葬，给习近平给习近平的娘齐心送葬。我们一定要带上最好的音乐，我们那个唢呐中国的唢呐，是送你生送你死都是唢呐。那我们的唢呐一定向我们山德老家‘啊啊啊啊’，哎呦我的妈呀这浑身都哆嗦‘啊啊啊’是吧。咱要让他听着一嗓子叫他终生难忘。
+在习近平病重期间，郭文贵先生对其予了不遗余力的救治。但终因其恶及膏肓、执迷不悟，而救治无果。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+习近平的一生，是乐视生父吃屎的一生、是记食不记打的一生、是视同胞如草芥的一生、是祸国殃民的一生！
 
-**关注我们**
+鉴于习近平曾倾尽其愚蠢助力爆料革命,新中国联邦已于当晚为他以及他的家人启动了全球送葬活动！
 
-Discord 账号
+为这个恶棍送葬！送习近平的追随者们陪葬！
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+望尊敬的先生们、女士们、所有追求民主法治、渴望自由和平的人们广而告之，以期同心协力将习近平等送至地狱最底层！
 
-Gettr 账号
+2021年12月9日
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+新中国联邦人全体
 
+*制作：东京樱花团/待命（文晓）*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

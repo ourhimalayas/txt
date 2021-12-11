@@ -2,10 +2,56 @@
 ---
 
 
-## 12/10/2021 文贵直播：杨洁篪抓了拿塞浦路斯护照的十几位战友，联盟委员会将全力营救他们
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1741477/)
+## 灭共者之郭氏情报站（二）
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1741507/)
 
-秘密翻译组-北美组
+**出品：纽约香草山设计部**
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
+
+
+
+
+
+## **2021年12月10日大直播提炼总结**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/191520.png)2021年12月10日大直播提炼总结
+
+**上一期：**
+
+[**灭共者之郭氏情报站（一） – GNEWS**](https://gnews.org/zh-hans/1734601/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-2.png)
+
+
+
+**编辑/发稿：小鹿**
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
 
  
 
