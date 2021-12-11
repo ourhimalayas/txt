@@ -2,32 +2,28 @@
 ---
 
 
-## 澳大利亚考虑发行本国的加密货币
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1742853/)
+## 澳大利亚的疫苗护照，是出于政治需要还是医疗原因？
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1742917/)
 
 作者：悯先生
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-11-19.31.49.png)
-财政部长Josh Frydenberg在本周三会宣布是否推行政府承认的数字澳元。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片-1-22.jpg)
+近日，Australian Technical Advisory Group on Immunisation (ATAGI)的免疫学专家参加澳大利亚议会所举行的听证会。
 
-同时，他也承诺会有一个加密货币监管执照的框架，其中包括如何收税。
+被问到关于由各州制定的疫苗护照是否有必要的的时候，ATAGI的主席Christopher Blyth说，ATAGI从未推荐强制疫苗。
 
-过去三年，超过80万澳洲人使用加密货币，从2020年到2021年，增长超过60%。
+他继续解释，如何具体推广疫苗和管理，是各州自己决定。
 
-财长同时指出，如果不对现有的体系进行改革，硅谷将支配澳洲支付系统。
+同时，另一位专家Allen Cheng对澳洲已形成新冠病毒群体免疫的观点有自己的看法。他提出，疫苗并非100%有效，有效性会随时间推移减弱，而且病毒有变异情况。
 
-在国际上，中央银行发行数字货币，数字货币直接挂钩法币这个概念得到越来越多的关注。
+卫生部长Greg Hunt说澳洲居民很快就可以选择辉瑞或是莫德纳作为加强针。
 
-Mr Frydenberg 透露他希望澳大利亚成为在加密货币的技术上成为全球的领头羊，而且认为加密技术对经济上影响极具深远。
+他强调面临新变种的威胁，加强针是必要的。
 
-具体措施的第一步就是在2022年中之前，针对支付系统，制订一个战略性的计划，立法赋予政府更多权力去堵住现有漏洞。
+官方专家对强制疫苗的表态，让笔者联想到很多西方国家的强制疫苗的政令层出不穷，这到底是出于科学健康，还是这些政府的政治需要？
 
-如此看来，这位澳洲财长对于加密货币是有理解的。澳洲支持第二阶段的Hpay（获得当地的支付牌照）以及喜澳元有望实现。
+同时，最近政府媒体大量扩散新变种的消息，恰好正是推行加强针的时间点，这是不是太巧合了？
 
-同时，一旦喜澳元与澳元法币挂钩，势必就会产生政府监管和收税的问题。
-
-参考链接：[https://www.heraldsun.com.au/business/victoria-business/australia-to-consider-creating-its-own-cryptocurrency/news-story/06bc2544cb023a92f02967d9c793b253](https://www.heraldsun.com.au/business/victoria-business/australia-to-consider-creating-its-own-cryptocurrency/news-story/06bc2544cb023a92f02967d9c793b253)
-
-
+新闻链接：[https://www.heraldsun.com.au/coronavirus/australias-expert-immunisation-says-they-never-recommended-covid-vaccine-mandates/news-story/6adbdda47821393af156772501490691](https://www.heraldsun.com.au/coronavirus/australias-expert-immunisation-says-they-never-recommended-covid-vaccine-mandates/news-story/6adbdda47821393af156772501490691)
 
 审核校对：Barry Jack
 上传排版：F
