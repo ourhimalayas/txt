@@ -2,42 +2,47 @@
 ---
 
 
-## 巴西一个负责颁发新冠疫苗证书的网站被黑客攻击
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1742680/)
+## 中共以经济要挟世界以病毒威胁抵制冬奥会的印度和日本
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1742759/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/f8a032f0e29698123c3ab58b6c0335a0_副本.jpg)
+据[2021年12月10日 文贵大直播：全球各国抵制冬奥会；数字货币市场未来变化趋势；郭先生新歌Billboard数字歌曲销售排行榜一名；Hcoin To The Moon iTunes打榜记录；对准中共高层海外春节大行动](https://gtv.org/video/id=61b350ad56f4921401b40cca)时间点1：34：04
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/cyberattack.jpg)
+**郭文贵先生：**现在马上共产党给全人类带来最好的礼物，让所有人失去面包，让你的车没有油，就是经济灾难。恒大七哥说对了吧？我说只要冬奥会一说你不去，马上让你破产，咋样？
 
+据据说银行内部已经发完文了三天前，说让恒大所有的值钱的东西都要归银行所有，第一偿还者银行，第二偿还者大家是谁绝对没想到——恒大的国内的票据银行，大家记住；第三由中央统一协调的境外债务人，记住啊，统一协调的！就是谁呀？
 
+欠唐平、欠威廉王、欠Q May、欠Rica的钱一概不还，欠郭文贵的钱就更不能还了，是吧？安红、天机，欸，这俩人是不是能团结一下子，给你点儿钱，就要拿债务来搞什么桥水Ray Dalio，是吧？黑石啊，说你多干点事儿嘛，拿债务威胁别人，你看这个最后是什么？把所有的处理完这几个优先之后，把部分资产归还给当地政府涉及到敏感的所谓能造成不良反应的社会的一些债务，最后是个人。
 
-图片来源:   ZDNET
+你去想想这个银行发放这个有多可怕，所以说你的冬奥会完了马上经济让你崩溃，共产党这个崩溃还不说，它要联苏抗美、联苏打台——你去乌克兰，我去台湾。
 
+然后让日本跪下，竟然能对印度私下威胁说什么话，我要在冬奥会上你抵制我、你敢发高声，我现在整个会让你在喜马拉雅山周围，你会感受无法想象的冬天的到来，甚至更多的病毒的传染，直接说给印度，我现在对着印度视频说的，印度这傻眼了，你这啥意思？他说我们只要不帮你防毒，你毒就会越来越多呀，这几乎就告诉你老子就是放毒的，把印度给吓得腿软。
 
-#### 整理报道 ：小红帽
+对日本也几乎明了，说你们现在病毒控制得不错，是吧？你知道明年会有什么病毒？你要是搞抵制奥运，你要敢公开弄的话，我这我这块儿这病毒可能就控制不了了，最近的咱可是友邦啊！受害者，可能是你日本呐！
 
-**据RT新闻12月10日报道，一个属于巴西卫生部的网站被勒索软件攻击而关闭。该勒索软件还袭击了存有该国免疫计划详细信息的系统以及用于颁发数字新冠疫苗接种证书的门户网站。**
+（以下暂略）
 
-巴西卫生部（MoH）在一份声明中指出，“周五凌晨‘发生的’事件‘暂时破坏’了一些系统，联邦警察和国家安全机构正在进行调查”。该部证实，（截止到新闻发稿时间）这些系统仍然不可用。
+撰稿：喜马拉雅的肉夹馍；
 
-巴西卫生部长马塞洛·奎罗加（Marcelo Queiroga）告诉记者，网站不会丢失任何数据，并坚称卫生部仍然保留在黑客攻击期间获取、复制和删除的所有信息。犯罪责任人将受到惩罚。
+审核：喜马拉雅的馍夹肉；
 
-根据“Lapsus$集团”在网站上发布的消息，该集团声称对这次攻击负责但没有说明动机。该集团从卫生部系统中提取了大约50TB的数据。
+校对：Maarago；
 
-这次袭击迫使博尔索纳罗政府推迟了，针对前往该国旅行者实施的新公共卫生要求计划。新规定原定于周六开始实施，但巴西政府证实，由于疫苗接种数据无法在线获取，该规定将推迟一周实施。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-但是，航空公司乘客在抵达巴西时所填写的新冠病毒（Covid-19）追踪表格，仍然可以在国家卫生监管机构Anvisa的网站上找到。该网站并未成为此次攻击的目标。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-新闻来源：[巴西的健康门户网站受到黑客攻击 — RT 世界新闻](https://www.rt.com/news/542865-brazil-health-websites-hacked-ransom/)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-***发布：小红帽***
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
