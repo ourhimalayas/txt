@@ -17,6 +17,19 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/11/2021 1:08 AM (UTC)`
+
+12/10/2021 Miles Guo: Four European countries say they will boycott the Winter Olympics and consider decoupling from the CCP economy - This is a historic event! The reason is a) the CCP threatened the US, Japanese, and European companies in Communist China regarding these countries’ boycotts of the Winter Olympics and b) the Russians demanded that the US and Europe separate them from the CCP<br/><br/>12/10/2021 文贵直播：欧洲四国表示将抵制冬奥会并考虑与中共经济脱钩是历史性的事件！原因是中共就抵制冬奥会威胁美日欧的在华企业以及俄罗斯要求美欧将其与中共分开<br/>
+![img](https://media.gettr.com/group26/getter/2021/12/11/01/d8fe228d-5d69-d73e-b885-54cfc8b63d07/out.jpg)
+
+---
+
+`@miles 12/11/2021 12:59 AM (UTC)`
+
+10/12/2021 MV "Hcoin To the Moon" Hits #1 🥇on 29 Countries' iTunes Top Music Video Charts on 1st Day of Launch! 🎉🎉🎉🎉🎉🎉🎉<br/>Thank you very much to all our brothers and sisters in HongKong, USA, Taiwan, Japan, Russia, Germany, France, Australia, Canada, Singapore, Macau, New Zealand, Hungary, Thailand, Cambodia, Laos, Netherlands, Sweden, Philippines, Malaysia, UAE, Portugal, Italy, UK, Vietnam, Finland, Greece, Denmark, Switzerland!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1740913/<br/><br/>12月10号，MV版Hcoin To the Moon上线第1天位列29国iTunes热门MV榜首🥇！🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港，美国，台湾，日本，俄罗斯，德国，法国，澳大利亚，加拿大，新加坡，澳门，新西兰, 匈牙利，泰国，柬埔寨，老挝，荷兰， 瑞典，菲律宾， 马来西亚，阿联酋， 葡萄牙， 意大利， 英国，越南， 芬兰，希腊， 丹麦，瑞士的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏
+
+---
+
 `@miles 12/10/2021 7:47 PM (UTC)`
 
 🔥世界的盘古-为灭共而生<br/>”谁也拿不走盘古，记住我说的话！<br/>他们越这么干，盘古越坚定，越坚固，越坚不可摧！”<br/>既然已经开始，我们决不妥协！💪💪💪<br/>既然已经开始，我们一定会赢！👊👊👊<br/><br/>🔥The Meaning of Pangu of the World – To Take Down the CCP<br/>"No one can take Pangu away. Mark my words. The more they wanted to take it away, the steadier Pangu is, the stronger and the more indestructible Pangu is!"<br/>Since we have started, we will never compromise!<br/>Since we have started, we must win!
@@ -139,19 +152,6 @@ Forbes news on Dec 8, 2021:<br/><br/>This week’s World Digital Song Sales char
 
 12/08/2021 Miles Guo: The Ministry of Foreign Affairs is a foreign intelligence agency of the CCP. Weijian Shan was born to the parents working for the CCP’s Ministry of Foreign Affairs, and he has been using the PAG to carry out actions against me in the US, BVI, and Beijing on behalf of the CCP<br/><br/>12/08/2021 文贵直播：中共外交部是共产党的对外情报机构，单伟建是外交部子弟，他利用太平联盟代表中共在美国、在BVI、和在北京采取的一系列活动都是针对文贵的<br/>
 ![img](https://media.gettr.com/group11/getter/2021/12/08/23/30ccb19f-e037-6c32-bb56-3bd7d2bddf9b/out.jpg)
-
----
-
-`@miles 12/8/2021 10:53 PM (UTC)`
-
-12/8/2021 Miles Guo: Abu Dhabi cut diplomatic ties with CCP China;  all military and economic projects between the two nations are called off, so Xi Jinping blames Miles Guo for these? The boycott of Beijing Winter Olympics, H coin and Himalaya Exchange completely pissed the CCP off. But the CCP only dares to bully Chinese LaoBaixing. CCP is absolutely a gangster.<br/><br/>12/8/2021 文贵直播：阿布扎比和中共国断交，军事和经济的项目统统停了，习近平怪文贵？冬奥会遭抵制、喜币、喜联储彻底惹恼了中共，但它们只敢用流氓手段对付中国老百姓<br/>
-![img](https://media.gettr.com/group10/getter/2021/12/08/22/c02a4394-26a1-4dd0-9ce4-ae90f498f5b3/out.jpg)
-
----
-
-`@miles 12/8/2021 6:59 PM (UTC)`
-
-12月8号：让这些爱中共的共产党的特务的所有的钱才和共产党的黑暗的交易曝光，以阳光之下让美国人民觉醒。<br/><br/>【https://www.dirt.com/moguls/finance/bo-shan-house-brentwood-1203303596/  单建伟儿子 Bo Shan /Leilei Shan( 单博/单磊磊)在2019年以2000万美元买下的豪宅，位于<br/>Brentwood, Los Angeles, Calif. https://www.dirt.com/moguls/finance/bo-shan-house-brentwood-1203303596/】
 
 ---
 
