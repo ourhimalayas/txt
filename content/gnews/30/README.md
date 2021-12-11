@@ -2,42 +2,46 @@
 ---
 
 
-## 中国东北小镇街景随笔
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1741337/)
+## 灭共者之疫苗灾难（二）
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1741392/)
 
-作者：香草山农场-晓仙女
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-5-768x103-6.jpg)
+**出品：纽约香草山设计部**
 
 
 
-今天是2021年12月10日, 拉开窗帘习惯性地望眼窗外，这是一个奇特的清晨，冬季的中国东北竟然下起了小雨，慢悠悠地洒落在寂静的雪地上。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-雨中的一只狗仔，在雪地上添加一抹色彩，空荡荡的街，偶遇快递小哥，友好地拍拍狗仔，似乎刻意讨好当下的空寂，人们都去哪了？
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/558ebd4b2be7465d9904c09057c3525c-1.jpg)
 
-这是个特别的冬季，雨落在雪上，街道空寂无人，只看到狗仔尽情玩耍，满身脏水不以为然。人们用两年的时光，习惯着突变的生活，享受着天赐美妙，遍体鳞伤亦不以为然……
 
-有个声音呼唤着：冬雨并非美景，病毒亦不是天赐……是邪恶让世界乱了阵脚，让人类遍野伤亡。修复伤口的使者从每个人做起，传播真相唤醒正义联盟，还冬季应有的洁净，还清晨喧哗人气，还世界一片和谐……
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec.png)
 
-编辑/校对/发稿：菩提树
+![疫苗一定会被停止的！疫苗的灾难绝对是人为的设计，绝对是共产党和西方贪婪的人和黑暗的势力的共同作案的结果。](https://cdn.discordapp.com/attachments/918719621299851264/919037433314701333/CCP_Virus_Genocide_Bioweapon_Vaccine_Disaster_2.jpg)疫苗一定会被停止的！疫苗的灾难绝对是人为的设计，绝对是共产党和西方贪婪的人和黑暗的势力的共同作案的结果。![](https://cdn.discordapp.com/attachments/918719621299851264/919037432970760213/CCP_Virus_Genocide_Bioweapon_Vaccine_Disaster.jpg)
+The COVID vaccine push for sure will be stopped at some point. The vaccine catastrophe is definitely a well-crafted plan by some; absolutely the outcome of a crime committed by the CCP, greedy Westerners, and the Dark Forces.
+![](https://cdn.discordapp.com/attachments/918719621299851264/919037471201853480/CCP_Virus_Genocide_Bioweapon_Vaccine_Disaster.jpg)疫苗护照不是他们的目的，杀人才是的目的，种族残杀才是目的。更重要的是医疗垄断，也就是所谓的优胜劣汰，变成两极的社会。这是一次人类绝对的大屠杀，而且绝对是黑暗力量和共产党勾结在一起的。![](https://cdn.discordapp.com/attachments/918719621299851264/919037471520608326/CCP_Virus_Genocide_Bioweapon_Vaccine_Disaster_2.jpg)
+The vaccine passport is not their aim; killing people is; genocide is.More importantly, the medical monopoly is, aka, the so-called “survival of the fittest”, or the polarization of the society. This is an absolute massacre of humanity, an outcome of which the Dark Forces colludes with the Communist Party.
+
+
+
+**编辑/发稿：小鹿**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-2.png)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
 [**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
 
 

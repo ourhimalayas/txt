@@ -2,41 +2,46 @@
 ---
 
 
-## 黎巴嫩难民营发生巨大爆炸,恐造成多人伤亡
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1741567/)
+## 落实三孩政策,党员干部要带头
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1741590/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/黎巴嫩.png)图片来源：零对冲网
+作者：MOS 翻译组-祈望明天会更好
+
+- ![This image has an empty alt attribute; its file name is image-40-1-9-1.png](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-1.png)
 
 
-**翻译：文扬**
-**编辑：Candy**
 
-周五晚上，黎巴嫩南部港口城市提尔的一个巴勒斯坦难民营发生多起爆炸事件，国际报道称伤亡人数不明，一些社交媒体视频显示，大火直冲夜空。
 
-虽然未经证实，但许多报道称哈马斯武器库被点燃，并且也有大量猜测：可能是遭到以色列空袭。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-25.jpg)图片源自网络
 
-《德国之声》和各机构写道：”初步报告显示，事件始于一辆柴油罐车的火灾，然后蔓延到附近由哈马斯控制的一座清真寺。
+根据 12月9日 中国报道党建先锋 刊登了《落实三孩政策,党员干部应见行动》明文规定: 每一名党员干部不能因为这样那样的主客观原因，不结婚、不生育，也不能因为这样那样的原因只生育一个或两个孩子。落实三孩生育政策，是每一名党员干部承担国家人口发展的责任，也是每一名党员干部履行国家人口发展的义务。 
 
-报道补充说：“当地媒体分享的录像显示，港口城市上空出现了一些小的、明亮的红色闪光，随后是爆炸和玻璃破碎的声音。”
+诚然，有的党员干部因为年龄、身体等原因已经不允许生育孩子，但可以积极主 动教育、引导、促成自己家人或周围人积极、自觉落实三孩生育政策。千万不可 漠视、放任自己家人或周围人不结婚、不生育，也千万不可以漠视、放任自己家人或周围人以这样那样的借口只生育一个或两个孩子。
 
-人们担心至少有十几人伤亡，然而，有不同的说法，一些当地记者说，爆炸发生时实际上没有多少人在爆炸现场附近。
+ 这就如同郭先生所说的, 中国共产党管天, 管地, 管空气, 还管生殖器. 现在要党员干部 , 落实三孩政策,党员干部积极贡献自己的行动。
 
-在爆炸发生后，救护车赶往现场。目击者说，数次爆炸震动了整个营地。
 
-美联社报道：“一名黎巴嫩安全官员说，当局还没有确切的伤亡数字，但在港口城市提尔的沙马里塔（Burj Shamali）营地，可能有多达12人死亡。
+参考链接：[http://redchinacn.net/forum.php?mod=viewthread&tid=21354](http://redchinacn.net/forum.php?mod=viewthread&amp;tid=21354)
 
-半岛电视台报道：“在黎巴嫩的一些巴勒斯坦难民营中留有哈马斯武器库。”“国家核安全局说：军队封锁了该地区，阻止人们进出营地。”
+![](https://assets.gnews.org/wp-content/uploads/2021/12/unknown-2.jpg)
 
-原文链接： [Huge Blast Rocks Refugee Camp In Lebanon, Many Casualties Feared | ZeroHedge](https://www.zerohedge.com/geopolitical/huge-blast-rocks-refugee-camp-lebanon-large-casualties-feared)
+总编：雪梨
 
-***发布：Candy***
+校对/发稿：Daxia
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-1.png)
+
 
  
 

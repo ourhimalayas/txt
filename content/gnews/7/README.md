@@ -2,30 +2,38 @@
 ---
 
 
-## 落实三孩政策,党员干部要带头
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1741590/)
+## 尼加拉瓜跟台湾断交后迅速跟中共复交，还在天津举行会谈
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1741685/)
 
-作者：MOS 翻译组-祈望明天会更好
-
-- ![This image has an empty alt attribute; its file name is image-40-1-9-1.png](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-1.png)
+作者：日本方舟农场- Andy5
 
 
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-25.jpg)图片源自网络
-
-根据 12月9日 中国报道党建先锋 刊登了《落实三孩政策,党员干部应见行动》明文规定: 每一名党员干部不能因为这样那样的主客观原因，不结婚、不生育，也不能因为这样那样的原因只生育一个或两个孩子。落实三孩生育政策，是每一名党员干部承担国家人口发展的责任，也是每一名党员干部履行国家人口发展的义务。 
-
-诚然，有的党员干部因为年龄、身体等原因已经不允许生育孩子，但可以积极主 动教育、引导、促成自己家人或周围人积极、自觉落实三孩生育政策。千万不可 漠视、放任自己家人或周围人不结婚、不生育，也千万不可以漠视、放任自己家人或周围人以这样那样的借口只生育一个或两个孩子。
-
- 这就如同郭先生所说的, 中国共产党管天, 管地, 管空气, 还管生殖器. 现在要党员干部 , 落实三孩政策,党员干部积极贡献自己的行动。
+![This image has an empty alt attribute; its file name is image-40-1-9-1.png](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-1.png)
 
 
-参考链接：[http://redchinacn.net/forum.php?mod=viewthread&tid=21354](http://redchinacn.net/forum.php?mod=viewthread&amp;tid=21354)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-1-7.jpg)图片源自网络
+
+12月10日，尼加拉瓜宣布跟台湾断交，并且在之后数小时内迅速跟中共复交，引起人们的猜疑。 据了解，这并不是尼加拉瓜第一次宣布跟台湾断交，而这两次断交都是奥蒂加主政时期发生的。而中共也趁热打铁，在短短2小时之后就发布消息称跟尼加拉瓜复交，并否认外界所猜测的这背后存在经济上的勾兑。
+
+ 然而，中共外交部华春莹在推上发布尼加拉瓜政府代表团跟中共在天津举行会谈的消息，又让人们加深了疑问。分析人士指出，在目前墙内疫情让各地紧张的情况下，不可能让尼加拉瓜代表当日赶到天津而不采取隔离措施，也就说明从会晤到断交、复交，其实是早就商量好的。而选在这一天也无疑是中共想给正在参加民主峰会的台湾一个下马威。
+
+
+参考链接：
+1 [https://mil.news.sina.com.cn/2021-12-10/doc-ikyamrmy7993753.shtml](https://mil.news.sina.com.cn/2021-12-10/doc-ikyamrmy7993753.shtml)
+
+2 [https://world.huanqiu.com/article/45vWl5AqYlk](https://world.huanqiu.com/article/45vWl5AqYlk)
+
+3 [https://www.cna.com.tw/news/firstnews/202112105001.aspx](https://www.cna.com.tw/news/firstnews/202112105001.aspx)
+
+4 [https://news.sina.com.cn/c/2021-12-10/doc-ikyamrmy8017435.shtml](https://news.sina.com.cn/c/2021-12-10/doc-ikyamrmy8017435.shtml)
+
+5 [https://www.sohu.com/a/506995328\_260616](https://www.sohu.com/a/506995328_260616)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/unknown-2.jpg)
 
-总编：雪梨
+总编：Irene木木
 
 校对/发稿：Daxia
 
