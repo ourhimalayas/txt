@@ -2,42 +2,39 @@
 ---
 
 
-## 中共军机飞越台湾领空，台湾部署防空导弹系统应对
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1743060/)
+## 洛杉矶禁止未接种疫苗学生参与实体授课
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1742865/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+作者：纽约香草山农场 文真
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/np_file_115556.jpeg)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+12月10日，据相关媒体报道，由于未完成新冠疫苗的完全接种，洛杉矶将有大约三万四千名的学生被禁止参与实体授课。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-11-at-9.30.50-PM.png)
+报道提及，洛杉矶联合学区刚刚颁布了全美最严厉的新冠疫苗接种政策，当中要求，在1月10日第二学期开始前，该地区所有12岁及以上的学生必须完全接种实验性新冠疫苗，而数据显示，上万名洛杉矶学生将因此被排除在该地区的独立学习计划之外。目前，当地政府没有试图对此进行宽大处理或延长截止日期。
+
+有评论表示，鉴于洛杉矶的强制新冠疫苗政策，这部分学生或许只能被迫进入洛杉矶以外的公立学校， 但这对于任何家庭，尤其是低收入家庭的孩子来说，将是巨大的困难。 而加利福尼亚大学流行病学和生物统计学系副教授、血液肿瘤学家普拉萨德博士也批评道，政府将孩子在最需要上学的时候赶出学校，这有悖于美国的价值观。
+
+此前，郭文贵先生也在直播中一再呼吁，新冠疫苗会对未成年人造成超乎寻常的伤害，极有可能导致儿童快速发育，甚至引发肿瘤。任何人，尤其是儿童，都不应该被强制接种新冠疫苗。
+
+参考链接：[34k Los Angeles students barred from in-person learning for not taking COVID shots](https://www.lifesitenews.com/news/34000-los-angeles-pupils-to-be-expelled-from-class-for-not-being-fully-jabbed/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
+
+总编：Irene木木
+编辑：JKathy文艺
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
- 
-图片来源: REUTERS
-
-
-#### 整理报道 ：小红帽
-
-据RT新闻12月10日报道，在周五，台湾领空发现了十三架中国军用飞机。这促使台湾当局部署其空中控制飞机和防空系统。
-
-台湾国防部表示，已部署作战空中巡逻，“发出无线电警告并部署防空导弹系统，以监视在防空识别区（ADIZ）西南部发现的十三架中国军机的活动”。
-
-北京当局的飞机频繁飞越台湾岛。在10月4日，更在台湾领空发现了56架中国军机。
-
-这是在中国和美国之间的关系日益紧张的情况下发生的。中国将台湾视为其领土不可分割的一部分，而美国则一直在与台湾的独立运动合作。
-
-美国与台湾签订了数十亿美元的武器合同，并定期派代表团前往台湾，而美国的军舰则经常出现在台湾海峡，这激怒了北京当局。
-
-中国《环球时报》近日称，“如果美国继续把台湾岛作为遏制中国大陆的棋子”，那么局势将进一步恶化，“以武力解决台湾问题将成为中国大陆必然和唯一的选择”。
-
-新闻来源： [Chinese military aircraft detected in Taiwan airspace — RT World News](https://www.rt.com/news/542833-taiwan-planes-china-tensions/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

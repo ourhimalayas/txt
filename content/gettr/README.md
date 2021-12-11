@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/11/2021 4:56 PM (UTC)`
+
+Dec 11，2021 Mr. Miles Guo's “HCoin To The Moon ” has once again created a series of unprecedented historical miracles: not only did it reach the prestigious Billboard charts, but it also reached the top of the global sales charts. The music video for the song swept the world, topping the iTunes MV charts in nearly 30 countries. Not only has no Chinese ever achieved this, but even the world's top renowned musicians also have never been able to do so. This charting success once again proves the united strength of the global fellow fighters of the New Federal State of China and their determination to take down the CCP!🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters around the world!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1743730/
+
+---
+
 `@miles 12/11/2021 4:51 PM (UTC)`
 
 12月11日， 郭文贵先生的新歌“HCoin To The Moon”打榜再次创造了一系列前所未有的历史奇迹：不仅登上了音乐界享有盛名的Billboard排行榜，更是一举取得了全球销量榜首的骄人成绩。而该歌曲的音乐视频一上线就横扫全球，雄霸将近三十个国家的iTunes MV榜首。不仅从未有任何一个中国人做到如此，即便是世界顶级的知名音乐家也是望尘莫及。这次打榜的成功再一次显示了新中国联邦全球战友们团结的实力以及灭共的决心！🎉🎉🎉🎉🎉🎉🙏🙏🙏🙏🙏🙏🙏<br/><br/>MV版Hcoin To the Moon上线第2天位列25国iTunes热门MV榜首🥇！🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港，美国，台湾，日本，俄罗斯，德国，法国，澳大利亚，加拿大，新加坡，澳门，新西兰, 匈牙利，泰国，柬埔寨，老挝，瑞典，菲律宾， 马来西亚，阿联酋， 意大利，芬兰，马耳他，斐济，拉脱维亚的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/1743729/
@@ -144,13 +150,6 @@ Hcoin To The Moon MV 上线仅仅3小时， 澳洲🇦🇺，香港 🇭🇰的i
 
 12/8/2021 Miles Guo: General mobilization for the global joint protests against the CCP - For the sake of our dignity, we must take action! Action! Action! What happened to my father and Pangu’s employees will happen to all Chinese people. We have no reason to fear, and we must take down the CCP!<br/><br/>12/8/2021文贵直播：全球抗议中共联合大行动总动员，为了我们的尊严，必须行动、行动、行动！发生在我父亲和盘古员工身上的事会发生在每一个中国人身上，我们没有任何恐惧的理由，必须灭掉中国共产党！<br/>
 ![img](https://media.gettr.com/group40/getter/2021/12/09/15/70e78c5b-6530-04cb-59c5-92c756ce984a/out.jpg)
-
----
-
-`@miles 12/9/2021 3:27 PM (UTC)`
-
-12/8/2021 Miles Guo: Boycotting the Winter Olympics is the decision of all Americans, and the CCP’s Winter Olympics is finished for good; the CCP is bound to be kicked out of the WTO and the SWIFT international payment network; Russia is returning to East Asia, and the new era of the US-Russia coalition to destroy the CCP has begun<br/><br/>12/8/2021 文贵直播：抵制冬奥会是所有美国人的决定，中共冬奥会已彻底结束；中共必被踢WTO和SWIFT系统；俄罗斯正在重返东亚，开启美俄联合灭共新时代；中共只能去打台湾了<br/>
-![img](https://media.gettr.com/group47/getter/2021/12/09/15/db1a7699-a640-3246-c424-ef3c4f9fccac/out.jpg)
 
 ---
 

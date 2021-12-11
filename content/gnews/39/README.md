@@ -2,27 +2,30 @@
 ---
 
 
-## 洛杉矶禁止未接种疫苗学生参与实体授课
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1742865/)
+## 研究表明，自然免疫远胜于疫苗提供的保护
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1742863/)
 
-作者：纽约香草山农场 文真
+作者：纽约香草山农场 柳是多水土透
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-12月10日，据相关媒体报道，由于未完成新冠疫苗的完全接种，洛杉矶将有大约三万四千名的学生被禁止参与实体授课。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-11-at-9.30.50-PM.png)
-报道提及，洛杉矶联合学区刚刚颁布了全美最严厉的新冠疫苗接种政策，当中要求，在1月10日第二学期开始前，该地区所有12岁及以上的学生必须完全接种实验性新冠疫苗，而数据显示，上万名洛杉矶学生将因此被排除在该地区的独立学习计划之外。目前，当地政府没有试图对此进行宽大处理或延长截止日期。
+2月10日，据媒体消息显示，以色列的一项新研究表明，个体从新冠病毒感染康复后所获得的免疫力远胜于新冠疫苗所宣传的保护力。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-11-at-8.19.02-PM.png)
+消息称，以色列的科学家对该国的健康数据库进行了长达几个月的研究，其后发现，那些具有自然免疫力的人在康复后的四至六个月内，其再次感染新冠病毒的比率仅为那些接种新冠疫苗的七分之一。
 
-有评论表示，鉴于洛杉矶的强制新冠疫苗政策，这部分学生或许只能被迫进入洛杉矶以外的公立学校， 但这对于任何家庭，尤其是低收入家庭的孩子来说，将是巨大的困难。 而加利福尼亚大学流行病学和生物统计学系副教授、血液肿瘤学家普拉萨德博士也批评道，政府将孩子在最需要上学的时候赶出学校，这有悖于美国的价值观。
+研究人员表示，自然免疫者能够更好地抵御新冠病毒感染和其所带来的严重疾病，同时，自然免疫的防护会更加持久和全面。
 
-此前，郭文贵先生也在直播中一再呼吁，新冠疫苗会对未成年人造成超乎寻常的伤害，极有可能导致儿童快速发育，甚至引发肿瘤。任何人，尤其是儿童，都不应该被强制接种新冠疫苗。
+另据数据显示，新冠感染和重症患者在新冠疫苗接种人群中出现的比率更高。
 
-参考链接：[34k Los Angeles students barred from in-person learning for not taking COVID shots](https://www.lifesitenews.com/news/34000-los-angeles-pupils-to-be-expelled-from-class-for-not-being-fully-jabbed/)
+参考链接：
+
+1. [New study suggests natural immunity is more protective over time than COVID-19 vaccine](https://justthenews.com/politics-policy/coronavirus/new-study-suggests-natural-immunity-more-protective-over-time-covid-19)
+2. [体制内专家爆料，疫苗会导致儿童快速发育，早熟比例是以前的很多倍，很大可能会长肿瘤。](https://gettr.com/post/piowln8d9e)
+
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
 
-总编：Irene木木
-编辑：JKathy文艺
+编辑/总编：Irene木木
 校正/发稿：我不在这里
 
 **更多资讯，更多关注**
@@ -33,8 +36,6 @@
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
 
  
 

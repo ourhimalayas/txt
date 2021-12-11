@@ -111,62 +111,62 @@
 ### [【#G时新闻】 美参议院通过废除疫苗强制接种令的法案](/content/gnews/32/README.md)
  ` G-时新闻`
 
-### [好奇的印度因与大型制药公司的利益冲突而抛弃盖茨基金会](/content/gnews/33/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [中共查封盘古动龙脉引欧美抵制冬奥](/content/gnews/34/README.md)
+### [中共查封盘古动龙脉引欧美抵制冬奥](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新西兰财经G乐部 2021年12月10日](/content/gnews/35/README.md)
+### [新西兰财经G乐部 2021年12月10日](/content/gnews/34/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [“中共如为独裁侵台，日本将如何接受台湾难民”进入具体讨论](/content/gnews/36/README.md)
+### [“中共如为独裁侵台，日本将如何接受台湾难民”进入具体讨论](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共军机飞越台湾领空，台湾部署防空导弹系统应对](/content/gnews/37/README.md)
+### [中共军机飞越台湾领空，台湾部署防空导弹系统应对](/content/gnews/36/README.md)
  ` 墨尔本雅典娜农场`
 
-### [文贵爆料12.10.2021 欧盟四国递书抵制冬奥会，俄撇清与中共关系，中共成众矢之的！](/content/gnews/38/README.md)
- ` 秘密翻译组-原创组`
-
-### [洛杉矶禁止未接种疫苗学生参与实体授课](/content/gnews/39/README.md)
+### [洛杉矶禁止未接种疫苗学生参与实体授课](/content/gnews/37/README.md)
  ` GTV新闻访谈`
 
-### [佩罗西就世贸问题针对中共发表强硬讲话](/content/gnews/40/README.md)
+### [佩罗西就世贸问题针对中共发表强硬讲话](/content/gnews/38/README.md)
  ` GTV新闻访谈`
 
-### [研究表明，自然免疫远胜于疫苗提供的保护](/content/gnews/41/README.md)
+### [研究表明，自然免疫远胜于疫苗提供的保护](/content/gnews/39/README.md)
  ` GTV新闻访谈`
 
-### [抖音内幕人士说公司的决策方向仍由中共掌控](/content/gnews/42/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [澳大利亚、丹麦、挪威将与美国共同限制向中共出口技术](/content/gnews/43/README.md)
+### [澳大利亚、丹麦、挪威将与美国共同限制向中共出口技术](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [意大利拟对禁止中资收购的企业进行补偿](/content/gnews/44/README.md)
+### [意大利拟对禁止中资收购的企业进行补偿](/content/gnews/41/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国制裁中共国人工智能企业](/content/gnews/45/README.md)
+### [美国制裁中共国人工智能企业](/content/gnews/42/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [我们知道非选举而出的人获得权力会怎么样](/content/gnews/46/README.md)
+### [我们知道非选举而出的人获得权力会怎么样](/content/gnews/43/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [卫生官僚拥有无比的权力，几乎可以对任何人做任何事](/content/gnews/47/README.md)
+### [卫生官僚拥有无比的权力，几乎可以对任何人做任何事](/content/gnews/44/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共国又一零食巨头宣布涨价](/content/gnews/48/README.md)
+### [中共国又一零食巨头宣布涨价](/content/gnews/45/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [继兰州关闭中国银行后，山西关闭19家银行](/content/gnews/49/README.md)
+### [继兰州关闭中国银行后，山西关闭19家银行](/content/gnews/46/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [如何理解共产党驱赶文贵先生九十多岁老父亲露宿街头的流氓行为？](/content/gnews/50/README.md)
+### [如何理解共产党驱赶文贵先生九十多岁老父亲露宿街头的流氓行为？](/content/gnews/47/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [揭秘“躺平币”背后埋单资金，远瞻灭共赚钱新思路](/content/gnews/51/README.md)
+### [新中国联邦已对中共造成实质性威胁](/content/gnews/48/README.md)
+ ` GTV新闻访谈`
+
+### [揭秘“躺平币”背后埋单资金，远瞻灭共赚钱新思路](/content/gnews/49/README.md)
  ` YALUN 亚伦`
+
+### [躺平币是“行为”的价值衡量和回报](/content/gnews/50/README.md)
+ ` GTV新闻访谈`
+
+### [杨洁篪发动针对爆料革命的海外行动](/content/gnews/51/README.md)
+ ` GTV新闻访谈`
 
 ### [苹果公司与北京秘密签署2750亿美元投资协议](/content/gnews/52/README.md)
  ` 喜马拉雅农场新西兰站`
