@@ -2,12 +2,15 @@
 ---
 
 
-## 一女士在丈夫打完第一针疫苗患上心肌炎后终于觉醒
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1743102/)
+## 【#G时新闻】 美共和党议员在众议院会议上直指习近平犯有种族灭绝罪
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/1743313/)
 
-12/09/2021 一位女士在丈夫打完第一针疫苗患上心肌炎后终于清醒，疫苗与我们的健康无关，它是为了控制。
+**加拿大温哥华扬帆农场** 播报：文广 制作：Gracelshan
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+🔥 美国共和党众议员克里斯·斯密斯12月8日在众议院会议上公开指责中共总书记习近平犯有种族灭绝罪，并称习近平须为其所下达的命令负责。
+
+盖特链接：[https://gettr.com/post/pjbrog8d58](https://gettr.com/post/pjbrog8d58)
+编辑/上传：七觉花
 
  
 

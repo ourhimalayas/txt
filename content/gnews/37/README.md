@@ -2,37 +2,40 @@
 ---
 
 
-## 美驻华使馆代办谴责中共侵犯人权
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1742697/)
+## 研究表明，自然免疫远胜于疫苗提供的保护
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1742863/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-43.jpg)
-[图片来源](https://thediplomat.com/2020/08/chinas-human-rights-abuses-invite-us-leadership/)
+作者：纽约香草山农场 柳是多水土透
 
-周五（12月10日）是国际人权日，美国驻华使馆临时代办发表声明，谴责中共在多方面侵犯人权；并表示，美国及其伙伴都有责任促进问责中共对人权的践踏。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-今年是联合国《世界人权宣言》通过73周年。美驻华使馆临时代办米德伟（David Meale）在一份声明中写道，美国致力于履行在宣言中的承诺，并认识到推动国内外对人权的尊重是美方庄严的任务。美国正在主办民主峰会，来自世界各地的民主政体和美国一道，共同抵御威权主义、打击贪污腐败并推动对人权的尊重。
+2月10日，据媒体消息显示，以色列的一项新研究表明，个体从新冠病毒感染康复后所获得的免疫力远胜于新冠疫苗所宣传的保护力。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-11-at-8.19.02-PM.png)
+消息称，以色列的科学家对该国的健康数据库进行了长达几个月的研究，其后发现，那些具有自然免疫力的人在康复后的四至六个月内，其再次感染新冠病毒的比率仅为那些接种新冠疫苗的七分之一。
 
-**米尔德列举中共践踏人权的种种行径**
+研究人员表示，自然免疫者能够更好地抵御新冠病毒感染和其所带来的严重疾病，同时，自然免疫的防护会更加持久和全面。
 
-“我见证到中国在诸多领域的进展，但我也看到中共在中国、在国际媒体、在联合国，不实地宣称其支持人权和民主价值。在新疆问题上，国务卿布林肯已确认中共犯下种族灭绝和危害人类罪，危害绝大多数为穆斯林的维吾尔人，以及其它少数民族和宗教少数群体。美国重申对中共的呼吁，停止暴行、释放那些被不正当拘留的人，以及允许独立调查人员畅通无阻前往该地区。我们呼吁中共允许藏传佛教徒信奉其信仰的自由，并停止侵犯他们自决的权利。在香港问题上，我们仍极度关切国安法之下香港高度自治的瓦解，以及其居民受到保护的权利和自由持续恶化。”声明写道。
+另据数据显示，新冠感染和重症患者在新冠疫苗接种人群中出现的比率更高。
 
-米尔德随后提到中共在包括行使表达自由在内的更广泛领域，对行使人权和基本自由的中国公民人权的侵犯行为。他在声明中表示，据报导，中共将之监禁、虐待，并让他们消失。为了模糊事实和打压新闻自由，记者面临人身和数字威胁与骚扰。随着非政府组织的运作和得到支持的能力面临更大的限制，公民社会的空间不断缩小。律师无法发挥基本职能来捍卫公民的权利，因为其自身也面临来自警方的恐吓，持续面临被撤销律师资格的风险，以及言论受到严重限制。
+参考链接：
 
-**声明还强调人权无国界，而且也不是内部事务**
+1. [New study suggests natural immunity is more protective over time than COVID-19 vaccine](https://justthenews.com/politics-policy/coronavirus/new-study-suggests-natural-immunity-more-protective-over-time-covid-19)
+2. [体制内专家爆料，疫苗会导致儿童快速发育，早熟比例是以前的很多倍，很大可能会长肿瘤。](https://gettr.com/post/piowln8d9e)
 
-米尔德援引国务卿布林肯的话说：“美国并不宣称自己是十全十美，但是我们每天致力于追求改进，对自己负责，成为更完善的联邦。我们公开、透明地面对自身的挑战，让全世界都看得到。”
 
-“我希望中共能履行承诺和义务、信任其公民、进行透明治理、保护人权。在这种情况下，中共便能开始，将其行动与对中国人民和国际社会的职责保持一致。直到那时，美国和我们的伙伴都有责任，促进问责中共对人权的践踏。”声明最后写道。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
 
-消息来源:
+编辑/总编：Irene木木
+校正/发稿：我不在这里
 
-[国际人权日 美驻华使馆：问责中共践踏人权](https://www.epochtimes.com/gb/21/12/10/n13430057.htm)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
-
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 

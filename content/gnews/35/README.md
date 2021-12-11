@@ -2,47 +2,37 @@
 ---
 
 
-## 郭文贵直播摘要和音频 2021.12.10
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1742807/)
+## 洛杉矶禁止未接种疫苗学生参与实体授课
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1742865/)
 
-摘要撰稿人：文俊
+作者：纽约香草山农场 文真
 
-音频提供者：左媛
-![](https://assets.gnews.org/wp-content/uploads/2021/12/64f2459d4e25a549a77af92f1840c73a.jpg)
-### 视频链接：
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-[https://gtv.org/video/id=61b350ad56f4921401b40cca](https://gtv.org/video/id=61b350ad56f4921401b40cca)
+12月10日，据相关媒体报道，由于未完成新冠疫苗的完全接种，洛杉矶将有大约三万四千名的学生被禁止参与实体授课。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-11-at-9.30.50-PM.png)
+报道提及，洛杉矶联合学区刚刚颁布了全美最严厉的新冠疫苗接种政策，当中要求，在1月10日第二学期开始前，该地区所有12岁及以上的学生必须完全接种实验性新冠疫苗，而数据显示，上万名洛杉矶学生将因此被排除在该地区的独立学习计划之外。目前，当地政府没有试图对此进行宽大处理或延长截止日期。
 
-### 音频链接：
+有评论表示，鉴于洛杉矶的强制新冠疫苗政策，这部分学生或许只能被迫进入洛杉矶以外的公立学校， 但这对于任何家庭，尤其是低收入家庭的孩子来说，将是巨大的困难。 而加利福尼亚大学流行病学和生物统计学系副教授、血液肿瘤学家普拉萨德博士也批评道，政府将孩子在最需要上学的时候赶出学校，这有悖于美国的价值观。
 
-### 摘要:
+此前，郭文贵先生也在直播中一再呼吁，新冠疫苗会对未成年人造成超乎寻常的伤害，极有可能导致儿童快速发育，甚至引发肿瘤。任何人，尤其是儿童，都不应该被强制接种新冠疫苗。
 
-- 欧洲4个国家不但明确抵制冬奥会，而且考虑要与中共国经济脱钩
-- 中共威胁日本若抵制冬奥会的话 会对在华企业全面关闭
-- 俄罗斯警告美国 绝对不允许把乌克兰、台湾战争放在一起 千万不要把病毒 疫苗 经济危机跟俄罗斯绑在一起 我们绝对不一样
-- 杨洁篪在塞浦路斯和非洲抓了新中国联邦几十个战友
-- 加拿大战友要小心 中共工作小组正在收集很多加拿大战友信息
-- 拜登也会对中共展开一系列的动作对中共
-- 俄罗斯明确跟美国说他们不会跟中共站在一起
-- 俄罗斯明确表示不会参与中共的台海战争
-- 七哥判断：2022年年底以前中共将被踢出WTO，2023年5月份以前中共应该会被踢出SWIFT系统
-- 恒大债务中共卑鄙的处理方式：第一还欠银行的 第二还恒大的抵押的债务银行 第三选择性还海外 最后才是个人
-- 中共想要成功办好冬奥会的最大目的是：洗脱病毒来自中共、数学人民币国际化、冬奥会经济、万国来朝、然后在打台湾
-- 年轻人出奇一致地接受疫苗说明： 社交媒体、宗教、学习、工作，对大学生的洗脑程度最高的，四重围剿
-- 中国竟然75%的银行业务跟房地产有关系 在国际上 对西方是致命的 所有西方投到中共的钱是基金 不是贷款 基金经理人都是合法的小偷 房地产的烂账会打开西方所有灭垬的大门
-- Google每次点击，Google已经收钱了，这就是个人数据消费，躺平币的来源 就是被大数据公司拿走出卖的价值
-- 躺平币是根据你行动的结果 一切的行为结果都能计算成结果
-- 国内公检法等对战友们枪口抬高一寸的，都会得到百倍的躺币，十倍的喜币，每一个都会得到
-- 躺平币的计划是新中国联邦64两周年推出
-- 喜币超过比特币 绝对不只能单一比价格 还要比流通性等
-- 星期天在大直播
+参考链接：[34k Los Angeles students barred from in-person learning for not taking COVID shots](https://www.lifesitenews.com/news/34000-los-angeles-pupils-to-be-expelled-from-class-for-not-being-fully-jabbed/)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
 
+总编：Irene木木
+编辑：JKathy文艺
+校正/发稿：我不在这里
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-
-
-编辑发布：闪电训练
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
 
