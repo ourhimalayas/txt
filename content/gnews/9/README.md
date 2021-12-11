@@ -2,34 +2,38 @@
 ---
 
 
-## 美众议院通过三项针对中共国人权问题法案
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1743663/)
+## 俄罗斯通报绝非中共在乌克兰台湾和病毒疫苗方面的同盟
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1743728/)
 
-#### **撰稿：**日本东京方舟农场 子辰
+**郭文贵先生：**原因还有一个就是俄罗斯，在俄罗斯这次上太明确的，俄罗斯就告诉了美国和欧洲，你们绝对不允许——两件事儿不能把我们放在一起，你们要放在一起，我可以告诉大家今天文贵说这是天下第一个人说出来的，没有任何人知道的，参加会的人就是极少人。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/E8D759D9-6EAF-4B35-A1A6-D6279BDDE7E3.jpeg)（图片来自网络）
+你知道俄罗斯说什么？——绝对不允许把我们和乌克兰和台湾和共产党的行动放在一起，绝对没有这事儿！你们千万别这么想，那将是战略上重大失误！咱们之间就会出大误会了；
 
-据《美国之音》报道，近日，三项有关中共国人权问题的议案在美国国会众议院获得表决通过。
+第二件事情，你们千万别把共产党的病毒和疫苗，还有整个疫苗政策和共产党的经济跟我俄罗斯绑在一起，我们绝对跟它不一样；
 
-此前，众议院议长佩洛西在一份声明中表示，“通过这三项法案，众议院发出一个清晰且直接的信息：中（共）国针对维吾尔人的犯罪行为构成种族灭绝罪，必须立即停止。”
+最后，欸，等等等等！还有个南海问题，南海问题我们跟中共绝对不同步，它给我们钱我们就去转去，我们在哪都是转悠。记住这是七哥今天给你们说的历史性的时刻，还会像过一两年让你们证明。
 
-此次通过的三项法案中的其中一项是《防止强迫维吾尔人劳动法》（The Uyghur Forced Labor Prevention Act）。这一法案旨在确保中共国新疆强迫劳动制造的商品不得进入美国市场。今年7月，该法案已获得国会参议院两党议员一致通过。
+视频制作：小满；
 
-另一项法案则是有关谴责中共继续针对维吾尔人及其他宗教和少数民族实施的种族灭绝和犯罪行为。
+视频上传：Cindy；
 
-第三项法案是国会众议院认为国际奥林匹克运动会未能遵守自身对人权的承诺。这一法案的立场对白宫最终宣布外交抵制北京冬奥会起到决定性作用。
+G-News发布：黎明之前；
 
-美国国会之前已经通过了《2020年维吾尔人权政策法》、《支持西藏人政策法》和《2019年香港人权与民主法》。议长佩洛西表示，将这些法案加在一起，众议院会继续要求中共对其践踏和压制人权的行为负责。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-*参考链接： [佩洛西宣布众议院将在同一天通过三项中国人权问题法案](https://www.voachinese.com/a/congress-china-human-rights-20211208/6344051.html)*
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-* * *
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-*素材采编：子辰*
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-*编辑：青衣青青*
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-*发布：miumiu*
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
