@@ -15,115 +15,115 @@
 
 ---
 
-### [澳大利亚的疫苗护照，是出于政治需要还是医疗原因？](/content/gnews/1/README.md)
+### [向共产党火力全开](/content/gnews/1/README.md)
+ ` 首尔天池农场`
+
+### [英国殡仪馆主任揭露大量疫苗致死及政府不作为](/content/gnews/2/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [澳洲男子打疫苗后得心包炎而医生试图隐瞒疫苗副作用](/content/gnews/3/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [8岁男孩因疫苗引发“迷你”心脏病](/content/gnews/4/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [澳大利亚的疫苗护照，是出于政治需要还是医疗原因？](/content/gnews/5/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [从国内企业纷纷裁员，看中共国的经济崩塌](/content/gnews/2/README.md)
+### [从国内企业纷纷裁员，看中共国的经济崩塌](/content/gnews/6/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [澳大利亚考虑发行本国的加密货币](/content/gnews/3/README.md)
+### [澳大利亚考虑发行本国的加密货币](/content/gnews/7/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [回顾历届停办延期的四届奥运会，第五次会发生什么？](/content/gnews/4/README.md)
+### [回顾历届停办延期的四届奥运会，第五次会发生什么？](/content/gnews/8/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [Costco苏州开业首日挤爆说明了什么](/content/gnews/5/README.md)
+### [Costco苏州开业首日挤爆说明了什么](/content/gnews/9/README.md)
  ` 澳喜农场`
 
-### [真、善、狠的真谛](/content/gnews/6/README.md)
+### [真、善、狠的真谛](/content/gnews/10/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [中概股人人网再度触发熔断](/content/gnews/7/README.md)
+### [中概股人人网再度触发熔断](/content/gnews/11/README.md)
  ` 澳喜农场`
 
-### [唯真不破反洗脑我信谁之一：医护的不同声音](/content/gnews/8/README.md)
+### [唯真不破反洗脑我信谁之一：医护的不同声音](/content/gnews/12/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共中央经济工作会议发出“导航”信息](/content/gnews/9/README.md)
+### [中共中央经济工作会议发出“导航”信息](/content/gnews/13/README.md)
  ` 儒为`
 
-### [郭文贵直播摘要和音频 2021.12.10](/content/gnews/10/README.md)
+### [郭文贵直播摘要和音频 2021.12.10](/content/gnews/14/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [新西兰医生Jonie Girouard博士被偷拍向反疫苗人士发放医疗证明豁免遭多项调查](/content/gnews/11/README.md)
+### [新西兰医生Jonie Girouard博士被偷拍向反疫苗人士发放医疗证明豁免遭多项调查](/content/gnews/15/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [文贵视角：劫富致贫，企业国有化，个人神圣化，发动战争](/content/gnews/12/README.md)
+### [文贵视角：劫富致贫，企业国有化，个人神圣化，发动战争](/content/gnews/16/README.md)
  ` 秘密翻译组-原创组`
 
-### [美国商会调查：超过 40% 外企人员可能会离开香港](/content/gnews/13/README.md)
+### [美国商会调查：超过 40% 外企人员可能会离开香港](/content/gnews/17/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [中共以经济要挟世界以病毒威胁抵制冬奥会的印度和日本](/content/gnews/14/README.md)
+### [中共以经济要挟世界以病毒威胁抵制冬奥会的印度和日本](/content/gnews/18/README.md)
  ` NewFOC`
 
-### [家乐氏员工罢工——拒签新五年期合同](/content/gnews/15/README.md)
+### [家乐氏员工罢工——拒签新五年期合同](/content/gnews/19/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [快讯：希拉里2024年欲重出江湖](/content/gnews/16/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [2021年12月10日郭文贵先生直播全文字版（一）](/content/gnews/17/README.md)
+### [2021年12月10日郭文贵先生直播全文字版（一）](/content/gnews/20/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [美驻华使馆代办谴责中共侵犯人权](/content/gnews/18/README.md)
+### [美驻华使馆代办谴责中共侵犯人权](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【中日财经爆】当代置业和花样年信用评级被撤销](/content/gnews/19/README.md)
+### [【中日财经爆】当代置业和花样年信用评级被撤销](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [巴西一个负责颁发新冠疫苗证书的网站被黑客攻击](/content/gnews/20/README.md)
+### [巴西一个负责颁发新冠疫苗证书的网站被黑客攻击](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [抖音内幕人士说公司的决策方向仍由中共掌控](/content/gnews/21/README.md)
+### [抖音内幕人士说公司的决策方向仍由中共掌控](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [英国表示Omicron将在数日内成为主要病毒变体](/content/gnews/22/README.md)
+### [英国表示Omicron将在数日内成为主要病毒变体](/content/gnews/25/README.md)
  ` 澳喜特战旅Gnews`
 
-### [澳大利亚五至十一岁儿童将于一月十日开始接种疫苗](/content/gnews/23/README.md)
+### [澳大利亚五至十一岁儿童将于一月十日开始接种疫苗](/content/gnews/26/README.md)
  ` 澳喜特战旅Gnews`
 
-### [南通被抢甘蔗老伯拒绝城管道歉](/content/gnews/24/README.md)
- ` 澳喜特战旅Gnews`
-
-### [国防部正“积极讨论”强制军队接种中共病毒加强针](/content/gnews/25/README.md)
+### [国防部正“积极讨论”强制军队接种中共病毒加强针](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [澳大利亚、丹麦、挪威将与美国共同限制向中共出口技术](/content/gnews/26/README.md)
+### [澳大利亚、丹麦、挪威将与美国共同限制向中共出口技术](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [意大利拟对禁止中资收购的企业进行补偿](/content/gnews/27/README.md)
+### [意大利拟对禁止中资收购的企业进行补偿](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [纽约市针对亚裔美国人的仇恨犯罪一年来急剧上升](/content/gnews/28/README.md)
+### [纽约市针对亚裔美国人的仇恨犯罪一年来急剧上升](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [无论占尽多少“嘴便宜”该来的终会来，世界人权日 美全面制裁中共](/content/gnews/29/README.md)
+### [无论占尽多少“嘴便宜”该来的终会来，世界人权日 美全面制裁中共](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [每日快报:美司法部提升对外国势力代理人的遏制力度](/content/gnews/30/README.md)
+### [每日快报:美司法部提升对外国势力代理人的遏制力度](/content/gnews/32/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [维基解密创始人阿桑奇被英国高院裁定或引渡美国](/content/gnews/31/README.md)
+### [维基解密创始人阿桑奇被英国高院裁定或引渡美国](/content/gnews/33/README.md)
  ` 墨尔本雅典娜农场`
 
-### [“全过程民主”也挡不住 台湾代表民主峰会发表《国家声明》](/content/gnews/32/README.md)
+### [“全过程民主”也挡不住 台湾代表民主峰会发表《国家声明》](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国制裁中共国人工智能企业](/content/gnews/33/README.md)
+### [美国制裁中共国人工智能企业](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [DC大中华时事：中共经济工作会议在北京举行](/content/gnews/34/README.md)
+### [DC大中华时事：中共经济工作会议在北京举行](/content/gnews/36/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [美国大型企业为中共国市场代表中共游说或自我审查](/content/gnews/35/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [加拿大总理宣布不派外交代表出席北京奥运会和残奥会](/content/gnews/36/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [加州一学校用披萨作为交换给13岁男孩注射疫苗](/content/gnews/37/README.md)
+### [美国大型企业为中共国市场代表中共游说或自我审查](/content/gnews/37/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [我们知道非选举而出的人获得权力会怎么样](/content/gnews/38/README.md)
