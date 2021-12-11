@@ -2,17 +2,15 @@
 ---
 
 
-## 【#G时新闻】 美参议院通过废除疫苗强制接种令的法案
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/1743180/)
+## 【#G时新闻】 美共和党议员在众议院会议上直指习近平犯有种族灭绝罪
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/1743313/)
 
-**加拿大温哥华扬帆农场** 播报：悠然 制作：文所未闻
+**加拿大温哥华扬帆农场** 播报：文广 制作：Gracelshan
 
-🔥 美国参议院于12月9日通过一项法案，废除总统拜登关于私营企业雇主必须要求其员工接种新冠疫苗。
+🔥 美国共和党众议员克里斯·斯密斯12月8日在众议院会议上公开指责中共总书记习近平犯有种族灭绝罪，并称习近平须为其所下达的命令负责。
 
-盖特链接：[https://gettr.com/post/pjcacn6a46](https://gettr.com/post/pjcacn6a46)
+盖特链接：[https://gettr.com/post/pjbrog8d58](https://gettr.com/post/pjbrog8d58)
 编辑/上传：七觉花
-
-
 
  
 

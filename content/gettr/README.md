@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@mr3rights 12/11/2021 2:38 PM (UTC)`
+
+DC农场DC政经的蔻依和文零战友策划和制作的精美视频，伴随着Victory激越的音乐旋律，记录了今年以来爆料革命过程中的两件大事：盖特的成功推出和喜币的成功上市！一个是媒体，一个是铸币权，如果加上国防军的话，郭先生说的新中国联邦建国的三件利器就基本完成了！这是值得纪念的里程碑式的大事件。这两件事意味着爆料革命从战略防御阶段进入了战略相持阶段，郭先生计划明年大年三十启动的持久抗议运动意味着爆料革命将进入战略反攻阶段！<br/><br/>感谢蔻依和文零的精美制作，欢迎转发。<br/><br/>顺便说一下，视频3分45秒的对联是我创作的，图片是另一位不方便透露的DC战友制作的。夹带一下私货哈。
+![img](https://media.gettr.com/group28/origin/2021/12/11/14/86150240-e2c2-2720-f219-c335fc57d521/out.jpg)
+
+---
+
 `@miles 12/11/2021 2:51 PM (UTC)`
 
 12月11号：尊敬的战友们好，你们健身了吗？你们传播C C P病毒和疫苗解药的真相了吗？一切都已经开始！
@@ -145,13 +154,6 @@ Hcoin To The Moon MV 上线仅仅3小时， 澳洲🇦🇺，香港 🇭🇰的i
 
 12月9号 亲爱的兄弟姐妹们，Hcoin To The Moon 的MV刚刚已经成功上线iTunes了，这是七哥第一个MV上线打榜，请大家再接再厉，继续打榜，非常感谢兄弟姐妹们！🎉🎉🎉🎉🎉🎉🎉🙏🙏🙏🙏🙏🙏🙏<br/><br/>Hcoin To the Moon by Miles Guo<br/>https://music.apple.com/au/music-video/hcoin-to-the-moon/1596409781
 ![img](https://media.gettr.com/group1/getter/2021/12/09/14/2f25b5de-4877-95f1-40e6-b0d2773293b3/061534f911e9422bb42ae12ed138fa2f.jpg)
-
----
-
-`@miles 12/9/2021 1:39 PM (UTC)`
-
-Billboard Digital Song Sales Top 50 (USA🇺🇸 week of December 11th 2021)<br/><br/>No.28 Hcoin To The Moon<br/>🎉🎉🎉🎉🎉🎉🎉<br/><br/>公告牌数字歌曲销售前50名综合排行榜（美国🇺🇸本周排行至2021年12月11日）<br/><br/>第28名 Hcoin To The Moon<br/>🎉🎉🎉🎉🎉🎉🎉<br/><br/><br/>
-![img](https://media.gettr.com/group26/getter/2021/12/09/13/dcfd79d4-1b9b-da99-6448-1f8903d36a9d/out.jpg)
 
 ---
 

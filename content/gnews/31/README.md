@@ -2,27 +2,42 @@
 ---
 
 
-## 23.9万香港市民注册“港康码”，实行预约出行
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1743007/)
+## 中共军机飞越台湾领空，台湾部署防空导弹系统应对
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1743060/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/12/4-17.jpg)
-[图片来源](http://news.xhby.net/index/202112/t20211210_7343963.shtml)：
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-12月12日每日经济报报道，截至11日上午9时，超过23.9万名香港市民申请注册“香港健康码”（简称“港康码”）账户，其中约5.3万人已启动账户。香港特区政府表示，“港康码”是为配合粤港澳三地通关之用。未来，香港市民要符合“港康码”绿码、出发前新冠病毒检测结果呈阴性、已完成新冠疫苗接种和配额预约四项条件才能前往澳门及广东。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/np_file_115556.jpeg)
 
-“港康码”申请人须登记个人资料如姓名、身份证明文件号码和签发日期、联络电话号码、居住地址等资料，并上载在港住址证明，核实住址后，申请人会获发个人识别码以启动账户。网上申报健康状况，经系统对比其住址和过去21天出行记录，以及确诊与密切接触者名单，从而获取由系统判定的红、黄或绿色个人“港康码”。只有持当天有效绿色“港康码”且符合其他特定条件人士，方可申请转码到“粤康码”或“澳康码”。
 
-中共以疫情为由，用政策蚕食香港，掌握香港所有人员的个人信息和行踪。
+ 
+图片来源: REUTERS
 
-消息来源：
 
-“[港康码”开通24小时 逾23万香港市民完成注册](https://ml.mbd.baidu.com/r/xPuZQqKL5u?f=cp&amp;rs=368708206&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=d58062334a4c80d3)
+#### 整理报道 ：小红帽
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
+据RT新闻12月10日报道，在周五，台湾领空发现了十三架中国军用飞机。这促使台湾当局部署其空中控制飞机和防空系统。
 
+台湾国防部表示，已部署作战空中巡逻，“发出无线电警告并部署防空导弹系统，以监视在防空识别区（ADIZ）西南部发现的十三架中国军机的活动”。
+
+北京当局的飞机频繁飞越台湾岛。在10月4日，更在台湾领空发现了56架中国军机。
+
+这是在中国和美国之间的关系日益紧张的情况下发生的。中国将台湾视为其领土不可分割的一部分，而美国则一直在与台湾的独立运动合作。
+
+美国与台湾签订了数十亿美元的武器合同，并定期派代表团前往台湾，而美国的军舰则经常出现在台湾海峡，这激怒了北京当局。
+
+中国《环球时报》近日称，“如果美国继续把台湾岛作为遏制中国大陆的棋子”，那么局势将进一步恶化，“以武力解决台湾问题将成为中国大陆必然和唯一的选择”。
+
+新闻来源： [Chinese military aircraft detected in Taiwan airspace — RT World News](https://www.rt.com/news/542833-taiwan-planes-china-tensions/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,10 +2,10 @@
 ---
 
 
-## 一女士在丈夫打完第一针疫苗患上心肌炎后终于觉醒
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1743102/)
+## 美参议院通过法案推翻拜登私企疫苗强制令
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1743106/)
 
-12/09/2021 一位女士在丈夫打完第一针疫苗患上心肌炎后终于清醒，疫苗与我们的健康无关，它是为了控制。
+12/09/2021 美国参议院通过了一项法案推翻私企疫苗强制令。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
