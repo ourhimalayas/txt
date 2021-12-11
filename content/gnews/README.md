@@ -15,95 +15,95 @@
 
 ---
 
-### [日本高級官員表示將不參加北京奧運會](/content/gnews/1/README.md)
+### [美国会议员将结束中共对美国农田的购买狂潮](/content/gnews/1/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [宾夕法尼亚州最高法院驳回口罩强制令](/content/gnews/2/README.md)
+### [对习近平来说,一切即将终结](/content/gnews/2/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [笔录新生——战友日常之为共送终](/content/gnews/3/README.md)
+ ` MOS Designer香草山设计部`
+
+### [日本高級官員表示將不參加北京奧運會](/content/gnews/4/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [宾夕法尼亚州最高法院驳回口罩强制令](/content/gnews/5/README.md)
  ` 纽约香草山MOS02`
 
-### [研究表明：随着时间的推移，自然免疫比新冠病毒疫苗更具保护性](/content/gnews/3/README.md)
+### [研究表明：随着时间的推移，自然免疫比新冠病毒疫苗更具保护性](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021年12月10日文贵大直播简报](/content/gnews/4/README.md)
+### [2021年12月10日文贵大直播简报](/content/gnews/7/README.md)
  ` 秘密翻译组-原创组`
 
-### [媒体试图诋毁VAERS对Covid疫苗副作用的报道](/content/gnews/5/README.md)
+### [媒体试图诋毁VAERS对Covid疫苗副作用的报道](/content/gnews/8/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [小肯尼迪出版商挑战批评家 呼吁公开辩论](/content/gnews/6/README.md)
+### [小肯尼迪出版商挑战批评家 呼吁公开辩论](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [俄罗斯尽显双头鹰本色，与美国私下表态形成联美抗共统一战线](/content/gnews/7/README.md)
+### [俄罗斯尽显双头鹰本色，与美国私下表态形成联美抗共统一战线](/content/gnews/10/README.md)
  ` YALUN 亚伦`
 
-### [一切都是刚刚开始](/content/gnews/8/README.md)
+### [一切都是刚刚开始](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [习近平“红色皇帝” （二）](/content/gnews/9/README.md)
+### [习近平“红色皇帝” （二）](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [伊维菌素可以对抗冠状病毒](/content/gnews/10/README.md)
+### [伊维菌素可以对抗冠状病毒](/content/gnews/13/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [习近平“红色皇帝” （一）](/content/gnews/11/README.md)
+### [习近平“红色皇帝” （一）](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [斯伯丁准将3: 中共全球释放病毒，视同对世界开战](/content/gnews/12/README.md)
+### [斯伯丁准将3: 中共全球释放病毒，视同对世界开战](/content/gnews/15/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [CNN 制片人被捕，被指控强奸年仅 9 岁的儿童](/content/gnews/13/README.md)
+### [CNN 制片人被捕，被指控强奸年仅 9 岁的儿童](/content/gnews/16/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [斯伯丁准将2: 中共国力图成为数据资源的霸主](/content/gnews/14/README.md)
+### [斯伯丁准将2: 中共国力图成为数据资源的霸主](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [埃隆.马斯克：“文明行将崩溃”](/content/gnews/15/README.md)
+### [埃隆.马斯克：“文明行将崩溃”](/content/gnews/18/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [普京和拜登会谈继续向亚洲倾斜，普京的最新对外政策告诉我们什么？](/content/gnews/16/README.md)
+### [普京和拜登会谈继续向亚洲倾斜，普京的最新对外政策告诉我们什么？](/content/gnews/19/README.md)
  ` 纽约香草山MOS02`
 
-### [斯伯丁准将1: 当你控制了信息，基本上可以控制世界](/content/gnews/17/README.md)
+### [斯伯丁准将1: 当你控制了信息，基本上可以控制世界](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [家庭反洗脑序列-第39篇 法在哪里](/content/gnews/18/README.md)
+### [家庭反洗脑序列-第39篇 法在哪里](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [班农专访4: 美国千人专家团队发起反人类诉讼](/content/gnews/19/README.md)
+### [班农专访4: 美国千人专家团队发起反人类诉讼](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [班农专访3:金融大亨们正在抛售股票，逃离股市](/content/gnews/20/README.md)
+### [班农专访3:金融大亨们正在抛售股票，逃离股市](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [藏族学生国际奥委会外抗议北京冬奥会，把自己锁上奥运五环](/content/gnews/21/README.md)
+### [藏族学生国际奥委会外抗议北京冬奥会，把自己锁上奥运五环](/content/gnews/24/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [爆料革命日记（三）：强子（中）](/content/gnews/22/README.md)
+### [爆料革命日记（三）：强子（中）](/content/gnews/25/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共承诺放弃许多发展中国家在WTO享有的利益](/content/gnews/23/README.md)
+### [中共承诺放弃许多发展中国家在WTO享有的利益](/content/gnews/26/README.md)
  ` HimalayaRussia`
 
-### [班农专访2：滴滴退市，私募股权和养老基金损失巨大](/content/gnews/24/README.md)
+### [班农专访2：滴滴退市，私募股权和养老基金损失巨大](/content/gnews/27/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [俄罗斯作壁上观，使美国与中共变成毫无悬念的局部战争](/content/gnews/25/README.md)
+### [俄罗斯作壁上观，使美国与中共变成毫无悬念的局部战争](/content/gnews/28/README.md)
  ` NewFOC`
 
-### [《我是音雄》第二季第十六期半决赛第三场｜节目预告](/content/gnews/26/README.md)
+### [《我是音雄》第二季第十六期半决赛第三场｜节目预告](/content/gnews/29/README.md)
  ` 我是音雄`
 
-### [中共加入WTO骗取美国西方大量资产](/content/gnews/27/README.md)
- ` G-NEWS TAIWAN`
-
-### [联合国将公布中共在新疆侵犯人权的调查结果](/content/gnews/28/README.md)
+### [联合国将公布中共在新疆侵犯人权的调查结果](/content/gnews/30/README.md)
  ` HimalayaRussia`
-
-### [银河快讯:日本新增8例Omicron病例；丰田公司12月的停产范围扩大](/content/gnews/29/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [GTV新闻访谈简报|2021年12月11日早](/content/gnews/30/README.md)
- ` 纽约香草山MOS01`
 
 ### [反对医疗欺诈和争取人权的国际游行](/content/gnews/31/README.md)
  ` 西班牙巴塞罗那喜悦农场`
