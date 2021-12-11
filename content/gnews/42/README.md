@@ -2,53 +2,38 @@
 ---
 
 
-## 揭秘“躺平币”背后埋单资金，远瞻灭共赚钱新思路
-` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/1741851/)
+## 洛杉矶一学校以匹萨诱骗学生打疫苗 家长震惊
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1741871/)
 
-新西兰伊甸农场Gnews组 财经G乐部 – 亚伦
+作者：纽约香草山翻译部 – defiance
+![This image has an empty alt attribute; its file name is 1-28.png](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
+12月9日，美国媒体报道，洛杉矶南部巴拉克·奥巴马全球预科学院的学生家长震惊地发现，学校居然在家长不知情的情况下，用匹萨饼作为诱饵，为他们的孩子接种了疫苗。这些学生同时被要求不要告知自己的父母。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/10-1.png)
 
+一位学生家长表示，学校在未经她同意的情况下，为她儿子接种疫苗，给她造成了极大的心理创伤。一位律师则认为，这所学校没有法律权力在上课时间为学生接种疫苗。
 
-12月10日郭文贵先生于GTV、Gettr大直播中关于“躺平币”兑现的钱来自哪里进行了揭底，而且正式公布了在明年6月4日新中国联邦两周年的时候，“躺平币“一定会上线。
+据美国媒体报道，洛杉矶联合学区以学生事务保密为由拒绝对此事发表评论。但他们确实承认，他们的“安全到校奖励计划”为接种疫苗的学生提供了奖品。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/e885-keyancw9784822-2-2.jpg)图片来源Gettr
+参考链接：
 
-
-
-法币和数字货币的本质都是人们劳动成果价值的衡量和体现，可兑现。法币，是国家利用国家机器强制衡量人们生产价值的标准。数字货币也是货币，只不过是添加了数字加密的技术别人无法剥夺。
-
-这个世界上不存在没有价值的东西，只是没找到愿意花钱的买主而已。
-
-得益于互联网时代无论任何都是可以被量化计算的，打个比方在网上用谷歌看家具，结果不管去了哪个网站的都会出现推广家具的广告。这些广告商在背后按照我们的点击已付费给谷歌公司，这就叫用户数据销售。目前，在Twitter、Facebook上但凡注册了账号，每个人、每年的数据都会被不自觉地卖给广告商150-180美元。
-
-当使用Gettr、GTV、Gnews发文章、留言、点赞、在线阅读观看的时候，所有的活动都已经被系统量化记录，按标准换取“躺平币”。系统通过计算这些活动发出“躺平币”并把这些有价值的流量活动卖到广告市场上，和谷歌公司等不同的是这个不是纯粹的卖数据，完全是利用区块链的手段。这笔推送广告的隐藏收入不会像谷歌、Facebook和苹果全部被偷走，而会把应得部分存放在第三方机构。最终是买流量的广告商出资购买这些赚取“躺平币”的各种行为，这些钱就用来支付给“躺平币”兑现时的价值支撑。假设通过系统计算需要发放10亿个“躺平币”作为酬劳，广告商按照市场价值出资1亿美元，那么一个“躺平币”的兑现价值就是10美分。但是通过现有同行的金融操作后可变50-100倍，即5-10美元一个“躺平币”。同时，在线的支付系统，可以轻松的实现“躺平币”与生活用品的直接兑换（买油买面包）。
-
-“躺平币”归SEC监管，因为它是Token，是有交易的。一个去中心化的币，却有中心化的第三方公司兑付。即便是正在参加直播的战友们，都在被系统按标准计算着“躺平币”。换句话说，是把Google、Twitter、Facebook等在背后偷走的销售用户数据的钱，转化成“躺平币”发给使用G系列平台的灭共人士。凡是踏入到爆料革命的有关系的任何G系列生态圈内的网站、APP，每一秒都在赚钱。
-
-人的行为，是有价值的；行为的结果，就是价值的体现。“躺平币”作为数字货币，数字成为衡量人的时间、行为、结果的唯一公平方式。根据行为贡献的大小还被分别出不同层级的币，“躺平币”之上就是”走行币”，用手机记录能看到的不公平现象而获取的币；再之上就是”视野币”，用手机记录看到的不公平现象后能加以评论又被大量点赞转载而获取的币；再之上就是“观点币”，用手机记录看到的不公平现象加以评论得以建立自己的独到观点又被大量点在转载而获取的币，再之上就是“行动币”……
-
-“躺平币”币是不可掠夺和篡改的，绝对去中心化的。最终将演化成灭共币、病毒真相币、减少疫苗灾难死亡币。而且具有正义化、良心化、安全化、健康化、全球统一化、自由信仰化等特征。
+- [LA school vaccinates students without parental consent in exchange for pizza](https://thepostmillennial.com/la-school-vaccinate-students-parental-consent-pizza)
+- [SICK: California school uses junk food to BRIBE children to get vaccinated without parental consent](https://vaccines.news/2021-12-09-california-school-junk-food-bribe-children-get-vaccinated.html)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
 
+总编辑：飞虹
+编辑：飞虹
+校正/发稿：海阔天空1
 
-
-谢谢阅读，欢迎点赞、转发赚取您的“躺平币”：）
-
-
-
-**相关文章链接推荐：**
-
-
-
-
-
-> [“躺平币”是向中共讨债的工具，解放更多的灭共力量](https://gnews.org/zh-hans/1737197/)
-
-
-“躺平币”是向中共讨债的工具，解放更多的灭共力量
-![](https://assets.gnews.org/wp-content/uploads/2021/12/6cf4ddd115c7fca8ffc4afdddb958e33.jpg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
