@@ -2,20 +2,42 @@
 ---
 
 
-## 继上海后，南京也发出疫情通告
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1739223/)
+## 中共国未成年女孩在KTV里当“小姐”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1738937/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/12/22222.jpg)[图片来源](https://www.google.com/search?q=%E5%8D%97%E4%BA%AC%E9%80%9A%E6%8A%A5+%E4%B8%8D%E7%A6%BB%E5%AE%81&amp;tbm=isch&amp;ved=2ahUKEwj0t7Xvgtn0AhWpB7cAHcYIAkgQ2-cCegQIABAA&amp;oq=%E5%8D%97%E4%BA%AC%E9%80%9A%E6%8A%A5+%E4%B8%8D%E7%A6%BB%E5%AE%81&amp;gs_lcp=CgNpbWcQAzoHCCMQ7wMQJ1CWCFiXKGDHKmgAcAB4AIABmwaIAdkSkgENMC4zLjEuMC4yLjAuMZgBAKABAaoBC2d3cy13aXotaW1nwAEB&amp;sclient=img&amp;ei=uSuzYbT3FqmP3LUPxpGIwAQ&amp;bih=625&amp;biw=1366&amp;rlz=1C1YKST_enUS900US901#imgrc=8CO5tfNIQkT5mM)
-12月10潇湘晨报报道，12月9日，南京市中共病毒疫情联防联控工作指挥部发布《关于进一步做好当前中共病毒疫情防控工作的通告》。为有效阻止疫情在南京市扩散，倡导全体市民非必要不离宁。
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-99.jpg)[图片来源](https://www.kompas.com/global/read/2021/07/17/174448570/mengenal-ktv-klaster-baru-covid-19-singapura-yang-disebut-karaoke-plus?page=all)
+根据中共国墙内媒体新闻报道，广西省桂林市又出现了流调信息泄露事件，这次被泄露的不止有相关人员身份证号、手机号、家庭住址等，还有这些人的工作场所——花都国际娱乐会所。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2-37.jpg)
+这份文件上面清楚地列着每个人的信息,这些本该属于防疫部门内部使用的东西，本该属于隐私的东西，又一次泄露出来了：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3-22.jpg)
+因为流调导致感染者信息泄露的事情我们已经写过太多次了，这事虽然值得一讲再讲，但今天的主题不是这个，今天有更重要的事情。
 
-12月8日，上海召开的疫情防控新闻发布，根据《上海市集体类活动中共病毒疫情常态化防控工作指导意见》要求，对于各类活动坚持“非必要不举办”原则，能取消的取消，能延期的延期，能线上的线上。尽量不要组织年会、节庆等人员聚集活动。同时也提醒广大市民，非必要不离沪。据公开报道显示，这是上海市首度提出非必要不离沪的通告。
+因为从身份证号能看出来，这些标注为夜场“ 公主” 的人，很多是 00 后，其中最小的甚至有 2005 年，2006 年出生的：
 
-距离元旦21天，距离春节52天，上海也是今年首个出台元旦春节期间疫情防控指导意见的省市，继上海后南京紧跟其后发布同样的通告，中共病毒是政治病毒，下一步就会发出封城通告。
+这是什么概念？
 
-信息来源：
+2006 年出生的人，今年才**15 ****岁**，而我在网上搜索了这家名为“花都国际”的夜场，发现他们家是这个画风的：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/4-15.jpg)
+让年仅 15 岁的女孩子在这种地方工作，合适吗？
 
-[非必要不离开！南京上海发布最新提醒](https://me.mbd.baidu.com/r/xLzWHmGSqI?f=cp&amp;rs=3979175934&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=e6bc1268d2f86be0)
+更别说中共国《劳动法》规定，小于 16 岁的人根本不允许工作。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/5-17.jpg)
+无论雇佣这些“公主”是做啥的，其实都不合法。
+
+可惜的是，翻翻新闻，会发现像这样雇佣未满 16 岁甚至未满 14 岁少女去夜场工作的新闻并不少见。
+
+**15 ****岁：**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/6-16.jpg)
+**14 ****岁：**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/7-13.jpg)
+**甚至是 13 岁：**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/8-14.jpg)
+这些女孩本该是在学校接受教育的年纪，却在成人娱乐场所当起了“公主”，这就是中共邪恶独裁统治造成的结果，俗话说“上有所好，下必甚焉”，郭文贵先生多次在直播中爆料，中共高层官员历来就有恋童的恶习，以占有性侵处女为乐，各级官员争相效仿，不以为耻，更以此为荣，然后这种邪恶的风气在全社会蔓延，这些娱乐场所的经营者就是为了满足这样的变态需求，才会诱骗和强迫这些未成年女孩提供服务。
+
+消息来源:
+
+[流调报告里的KTV“公主”，年仅15岁？](https://www.wenxuecity.com/news/2021/12/09/11115371.html)
 
 *校对：东京樱花团/知了知了*
 *发布：东京樱花团/tdownc2p*

@@ -2,31 +2,34 @@
 ---
 
 
-## 广州恒大病入膏肓
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1741702/)
+## 美参议员抨击强制疫苗 ，称其是非法、违宪的滥用权力
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1741841/)
 
-撰稿：菜园子112～尕虎
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1102.jpg)图片来自网络
-自从9月份恒大理财暴雷以来，恒大集团就直接被抬进了重症监护室。
+作者：加拿大扬帆农场 – Spirit
+![This image has an empty alt attribute; its file name is 1-28.png](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
+据当地媒体12月9日报道，美国参议院于12月8日否决了拜登对私人雇主的疫苗强制令。第二天，德州参议员泰德·克鲁兹接受采访时，抨击了该命令，并称其非法、违宪，是荒谬的滥用权力。
 
-11月中旬，许老板演了一出大戏，将香港、深圳、广州的豪宅，以及私人飞机，拿去抵押、出售，凑了70亿元，借给恒大还债。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/9-3.png)
 
-**然而，恒大购房者那颗悬着的心，还没有放下多久，许老板就画风一变，直接给还在****ICU抢救的恒大，下了个病危通知书！**
+克鲁兹在采访中表示，需要彻底消灭此命令，拜登应该意识到，白宫的律师也应该告诉拜登，这是非法的，会在法庭上被否决。但是，他们仍然试图实施这项强制令。因此，12月8日的投票是一次真正重要的投票，以两党的多数票否决了强制令。
 
-12月3日晚间，恒大集团发公告说接到一笔2.6亿美元的偿还通知，但不确定是否有充足的资金继续履行财务责任。集团会统筹考虑其整体财务状况，尊重全体利益相关方，秉承公平性、法制化原则，将积极与境外债权人沟通，为所有利益相关方制定可行的境外重组方案。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1103.png)图片来自网络
-12月3日晚上，恒大集团的躺平公告发出来没多久，广东省人民政府立即约谈了许老板。
+参考链接：
 
-广东省人民政府同意向恒大地产集团派驻工作组，督促推进企业风险处置工作，督促切实加强内控管理，维护正常经营。
+[https://www.foxbusiness.com/politics/ted-cruz-vaccine-mandate-is-illegal-unconstitutional-and-grotesque-abuse-of-power-20211208/6344544.html](https://www.foxbusiness.com/politics/ted-cruz-vaccine-mandate-is-illegal-unconstitutional-and-grotesque-abuse-of-power-20211208/6344544.html)
 
-由此可见，苦苦支撑几个月之后，恒大集团终于走到了债务实质性违约这一步。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
 
-新闻参考链接：
+总编辑：文特
+编辑：DM
+校正/发稿：海阔天空1
 
-[搜狐新闻](https://www.sohu.com/a/505358259_100001551)（中共国墙内媒体）
-
-*发稿：mgjxs*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

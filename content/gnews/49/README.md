@@ -2,28 +2,23 @@
 ---
 
 
-## 被深度蓝金黄的法国称 不会外交抵制北京冬奥会
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1739115/)
+## COVID-19 最新情报｜研究指出：鼻咽处清除后 新冠病毒仍持续存在于肠道组织
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1738900/)
 
-撰稿：东京樱花团/闻雨
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-121.png)
-12月10日，据法新社报道：12月9日，法国教育部长Jean-Michel Blanquer表示，法国将不会和其他西方国家一起抵制明年2月的北京冬奥会。
+**疫情關注組 / 發佈時間｜10/12/2021**
 
-法国教育部长还说：“我们必须谨慎对待体育和政治之间的关系”，“体育是一个完全不同的世界，需要保护它不受政治干预。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-你可能认为法国是一个自由民主的国家。
 
-事实上，它早已经是社会主义国家了，而且法国政客也已经被中共深度地蓝金黄。那些对中共的暴政视而不见、充耳不闻的政客是中共的朋友，不是中国人民的朋友。很遗憾，这些政客，更多地考虑的是他们的个人利益。
+据BMC所载的相关研究，新冠病毒可能会引起轻微的肠道症状，而部分患者可能发生更严重的肠道并发症。研究通过**透射电子显微镜** (TEM)，证实新冠病毒(SARS-CoV-2)可存在于肠道组织内皮细胞中。
 
-试问代表和平的奥运会怎么能在一个侵犯人权，而且还试图用武力收回台湾的一个暴力国家举行呢？这些政客的逻辑都到哪里去了呢？
+研究内容提及两名COVID-19 患者（其中一名患有肠道淋巴瘤，另一名患有缺血性结肠炎），在确定鼻咽处的新冠病毒被清除后，通过透射电子显微镜 (TEM)发现新冠病毒仍继续存在于肠道组织内皮细胞。其中一病例，**在鼻咽部病毒清理完成后6个月，肠组织仍留存病毒，具潜伏感染可能**。
 
-信息来源:
+2020 年 3 月 1 日至 4 月 30 日期间，有932名COVID-19病患在 Universitari Mútua Terrassa住院治疗，其中41名（4.4%）病患发生严重腹痛，6名需要进行腹部手术。通过透射电子显微镜 (TEM)可以确定COVID-19 引发肠道损伤具有因果关系，但严重肠道并发症并不常见。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-2.png)
+来源￨[BMC](https://bmcgastroenterol.biomedcentral.com/articles/10.1186/s12876-021-01905-3)
 
-[フランス、北京五輪外交ボイコット「しない」 スポーツ相見解](https://news.yahoo.co.jp/articles/f2988407c0b1d77d61653ab7353dfc86d3745896)
-
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

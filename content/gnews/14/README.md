@@ -2,24 +2,26 @@
 ---
 
 
-## FBI纪录片揭露中共经济间谍手段
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1741576/)
+## 继政府之后 坎特呼吁运动员进一步抵制北京冬奥会
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1741754/)
 
-作者：东京樱花团—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月9日，据相关媒体消息称，美国联邦调查局FBI即将推出一部名为《中共制造：统治全球市场计划》的纪录片。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-11-上午11.16.42.png)
-据悉，该纪录片中揭露了中共通过各种手段，对美国商业实体开展经济间谍活动的行为，给美国企业和国家安全造成了严重的损失。其中，该纪录片列举了四起中共窃取美国商业秘密的知名案件，包括2011年中共华锐风电窃取美国超导公司商业秘密案、2011年中共国公民莫海龙窃取美国优质玉米良种案、2015年美籍华裔化工专家黄锡文窃取商业秘密案，以及2019年美籍华裔石山盗取特瑞堡集团美国子公司复合薄膜塑料技术案。
+作者：飞虹
+![This image has an empty alt attribute; its file name is 1-28.png](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
+12月9日，美国NBA明星，凯尔特人队的欧内斯特·坎特在接受媒体采访时，称尽管目前有多个国家已经宣布对即将举办的北京冬奥会进行外交抵制，但这远远不够。同时他呼吁所有的国家、政府和运动员站出来，推动将2022年冬奥会转移到其他国家举办。并呼吁运动员们敦促他们的政府和相关企业，停止对北京冬奥会的支持和赞助。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/6-19.jpg)
+坎特接着表示，在中共独裁政权实施了针对新疆、香港等地的种族灭绝措施后，如果让中共继续举办奥运会实在是一件令世界蒙羞的事。
 
-报道还提及，早在2020年，联邦调查局就曾推出类似短片，警告美国现任和前任官员不要被中共诱骗，向中共泄漏美国机密信息。
+最后，针对主持人提出的抵制冬奥会可能会影响运动员职业生涯的问题，坎特分析道，对于运动员来说，坚持正确的道德准则、价值原则，比赢得金牌更加重要，彭帅的遭遇已经充分说明了运动员在中共国会非常不安全。
 
-参考链接：[FBI纪录片《北京制造》 警惕中国对美经济间谍手段](https://www.voachinese.com/a/fbi-documentary-china-eco-espionage-20211208/6344965.html)
+参考链接：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+- [Kanter Freedom: How Can We Trust China with Our Athletes After What They Did to Peng Shuai?](https://www.breitbart.com/clips/2021/12/09/kanter-freedom-how-can-we-trust-china-with-our-athletes-after-what-they-did-to-peng-shuai/)
 
-总编：Ivy001
-编辑：文特
-校正/发稿：呼吸的雾霾（文小呼吸）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
+
+总编辑：文特
+校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -27,7 +29,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
