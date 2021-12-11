@@ -2,25 +2,12 @@
 ---
 
 
-## 这就是暴政:人民的权利在哪里？
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1742195/)
+## 12/1郭文贵直播：孟建柱把习近平当傻子，认为一定能熬死习（粤语配音）
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1742213/)
 
-#### 翻译：Annabelle
-校对：枳实
-字幕/剪辑：向上James
+12/1/2021 郭文贵直播：孟建柱一直把习近平当傻子，他认为一定能熬死习，习有近300天未在党内露面且未签署任何文件；孟建柱的政治智慧和曾庆红齐名，他俩是身体最好的老杂毛。
 
-
-
-视频链接：[“THIS IS TYRANNY – WHERE ARE PEOPLE’S RIGHTS?”](https://www.bitchute.com/video/8W2BANg40PEH/)
-
-发布：枳实
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
