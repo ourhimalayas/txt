@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/11/2021 1:24 PM (UTC)`
+
+12/10/2021 Miles Guo: The U.S. will have 10 striking actions against the CCP; the U.S. and Russia who have been arch-enemies started to hold a secret meeting for negotiating deals; Russia stabbed Xi Jinping at the critical moment; the CCP won’t survive till 2025 for sure<br/><br/>12/10/2021文贵直播：美国会有十招对付中共，招招毙命，一向互为死敌的美俄开始秘密会面讲数，“北极熊”在关键时刻背后捅了习太阳一刀，中共一定撑不过2025年<br/>
+![img](https://media.gettr.com/group45/getter/2021/12/11/13/49d62ce0-48f6-27b5-1cf5-86cc6ed790e6/out.jpg)
+
+---
+
+`@miles 12/11/2021 1:13 PM (UTC)`
+
+12/10/2021 Miles Guo: Xi Jinping originally wanted to take the opportunity of the Winter Olympics during which leaders of various nations will pay him a visit to worship him such that he can become the world leader, and he planned to use the DCEP to take down the SWIFT, the U.S. dollar, and invade Taiwan after the Winter Olympics is over, and later it would carve up the world. But the Whistleblowers’ Movement said in 2019 the CCP would not be able to hold the Winter Olympics, why were we able to do so?<br/><br/>12/10/2021文贵直播：习近平本想借冬奥会万邦来朝的机会当世界老大，用数字人民币干掉SWIFT和美元，开完冬奥会就打台湾、然后对世界进行瓜分，但爆料革命在2019年就说出了中共开不成冬奥会，为什么？<br/>
+![img](https://media.gettr.com/group16/getter/2021/12/11/13/f17ff701-f281-4acd-ded6-02417e83bad3/out.jpg)
+
+---
+
 `@miles 12/11/2021 5:44 AM (UTC)`
 
 12/10/2021 Miles Guo: The Whistleblowers’ Movement has dedicated to pushing the boycotts of the 2022 Beijing Winter Olympics since 2019 and has completely smashed the CCP’s dreams - to obfuscate the origin of COVID and shift the blame to others by holding the Winter Olympics, after which they would invade Taiwan and pass the economic disasters caused by the collapse of the real estate market to the West to launch the DCEP and get rid of the US dollar<br/><br/>12/10/2021 文贵直播：爆料革命自2019年开始运作抵制北京冬奥会，已彻底击碎了中共的美梦 - 借举办冬奥会将病毒来源模糊化、去共化，冬奥会后打台湾，将中共房地产经济爆雷引向西方，实现人民币数字化、货币去美国化<br/>
@@ -138,20 +152,6 @@ Billboard Digital Song Sales Top 50 (USA🇺🇸 week of December 11th 2021)<br/
 
 Forbes news on Dec 8, 2021:<br/><br/>This week’s World Digital Song Sales chart is dominated by an artist who is simultaneously<br/>famous, and relatively unknown. <br/><br/>No. 1 - Miles Guo - “Hcoin to the Moon”<br/>Mysterious Chinese billionaire and controversial political commentator Miles Guo is back on the Billboard charts with his latest release “Hcoin to the Moon.” The tune opens at No. 1 on the World Digital Song Sales ranking, conquering the tally with ease. The cut also reaches other purchase-focused lists, including the all-genre Digital Song Sales tally, where it starts off at No. 28 with just under 2,800 copies sold, according to MRC Data.<br/><br/>https://www.forbes.com/sites/hughmcintyre/2021/12/08/exos-kai-stray-kids-chung-ha-and-ive-moves-on-the-world-songs-chart/amp/
 ![img](https://media.gettr.com/group40/getter/2021/12/09/13/e6bcc696-5f2c-c6aa-11c4-d64403d7e17e/edc0c170ddab2c504c0eb69b90c00abe.jpg)
-
----
-
-`@miles 12/9/2021 12:58 PM (UTC)`
-
-福布斯12月8日报道：<br/>本周的世界数字歌曲销售排行榜由一位既有名，又相对不为人知的艺术家所主导。<br/><br/>No. 1 – 郭文贵 - “Hcoin to the Moon”<br/><br/>神秘的中国亿万富豪和极具争议的政治评论家郭文贵(在其音乐作品中名为 Miles Guo)带着他的最新作品 "HCoin to the Moon "重回公告牌榜单。这首曲子在世界数字歌曲销售排名中位列第一，轻松地征服了这个排行榜。这首曲子还进入了其他以购买为主的榜单，包括综合类数字歌曲销量总榜，根据 MRC 数据，它以 将近2800 张的销量位列第 28 名。<br/><br/>https://gnews.org/zh-hans/1735953/<br/>
-![img](https://media.gettr.com/group35/getter/2021/12/09/12/ba1ec980-242a-41e0-4777-52a1955de607/0ca25f16037d391e0faa372e5a8bacef.jpg)
-
----
-
-`@miles 12/9/2021 12:44 PM (UTC)`
-
-12月9日 衷心地感谢全球的兄弟姐妹们的打榜! Hcoin To The Moon 荣登公告牌榜世界数字歌曲销售榜第一名🥇了！🎉🎉🎉🎉🎉🎉🎉🙏🙏🙏🙏🙏🙏🙏<br/><br/>Dec 9, 2021 Many thanks to my dearest brothers and sisters around the world! Hcoin To The Moon ranks No. 1 🥇 on billboard’s World Digital Song Sales Chart now! 🎉🎉🎉🎉🎉🎉🎉🙏🙏🙏🙏🙏🙏🙏
-![img](https://media.gettr.com/group47/getter/2021/12/09/12/b638a627-c27f-e602-66ee-5919695877fc/d99cd829452323e391f20aa502bcd724.jpg)
 
 ---
 
