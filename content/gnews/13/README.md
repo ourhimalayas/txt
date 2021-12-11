@@ -2,47 +2,38 @@
 ---
 
 
-## 伊维菌素可以对抗冠状病毒
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1744358/)
+## 小肯尼迪出版商挑战批评家 呼吁公开辩论
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1744390/)
 
-**简评：**
+编译：Jenny Ball
 
-新冠感染有几个不同的阶段，伊维菌素在不同阶段均能起到作用。在初始阶段，伊维菌素能阻止病毒复制；在感染后期，能阻挡刺突蛋白。不仅如此，伊维菌素还是一种消炎药，对预防和治疗新冠病毒有奇效。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-7-4.jpg)图片来源：childrenshealthdefense.org（作者：** Tony Lyons**）
 
-[GTV视频链接](https://gtv.org/video/id=61b41cbb87fa7e74c92e5ac3)
+编者注：托尼·里昂斯 (Tony Lyons) 是“天马出版社”（ Skyhorse Publishing ）的一名律师、总裁和出版商，他是小罗伯特·肯尼迪 (Robert F. Kennedy, Jr.) 的新畅销书《真正的安东尼·福奇：比尔·盖茨、大型制药公司与全球公共卫生和民主的战争》的出版商。下面是出版商里昂斯写的注释 ，它出现在这本书的第 xii 页。
 
+复杂的科学和道德问题，不是通过审查科学家和作者的不同意见、删除他们互联网内容或诽谤，来解决他们向当权者提出的具有挑战性的信息的。
 
+审查反而导致对政府机构和大公司的更不信任。
 
-**视频字幕：**
+没有任何意识形态或政治可以指出显而易见的问题：科学错误和公共政策错误确实会发生——并且可能产生毁灭性的后果。
 
-**主持人：**对于我们这些不是护士和医生的人，你是否可以给我们解释一下，如果你知道的话。伊维菌素是如何对抗新冠病毒的吗？据我所知伊维菌素是抗寄生虫的，对吗？
+错误可能源于，有缺陷的分析、仓促、傲慢，有时甚至是腐败。
 
-**菲利普医生：**是的。
+无论是什么原因，解决方案都来自于开放的探索、反省和不断的调查。
 
-**主持人：**它如何治疗新冠呢？
+理想的情况是，科学和公共政策，不能永远一成不变。它们应该是一个过程、合作、辩论和伙伴的关系。
 
-**菲利普医生：**有几方面的作用。我不熟悉整个作用机理，但是其中一个是因为伊维菌素可以与刺突蛋白结合，所以它可以帮助阻止刺突蛋白。这可能是它在疾病后期有效的原因。
+**评论：科技的根本就是质疑求解，但在这次邪恶势力和中共发起的病毒疫苗生化战争中， 邪恶势力颠覆了一切常识和逻辑。**
 
-新冠感染有几个不同的阶段，开始是病毒复制阶段。在这个阶段，症状不是很严重，病毒在鼻腔和肺部复制。伊维菌素主要在这个阶段起作用，因为它阻止了病毒复制所需要的某些蛋白质的运输，因此阻止了病毒的复制。
-
-另外一个作用机制似乎是与刺突蛋白的结合。在疾病的后期，病人到急救室，或者病情特别严重，或者形成血栓。第5天到第8天以后的阶段，病毒不再复制。病毒开始分解，刺突蛋白在鼻腔中散落进入肺部，人们开始生病。伊维菌素在后期的这一阶段阻挡刺突蛋白。所以它在两个阶段都起作用，同时它是一种消炎药。
-
-*编辑：【英国伦敦喜庄园编辑部】*
-
-*视频字幕：雨中漫步 | 听写：云岭 | 翻译：Roberts | PR：Wade | 简评/文字整理/编辑：胖丁 | Page：青山*
+**参考资料：**[childrenshealthdefense.org][Publisher of ‘The Real Anthony Fauci’ Challenges Critics to Find Factual Errors in Book, Calls for Open Debate](https://childrenshealthdefense.org/defender/tony-lyons-the-real-anthony-fauci-challenge-factual-errors-open-debate/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=a790ba0e-e452-45bc-aaae-d39305be9c54)
 
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+*审核：文乐
+校对：信心满满*
+*发布：信心的选择*
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-2.jpeg)
 
  
 

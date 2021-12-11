@@ -2,38 +2,48 @@
 ---
 
 
-## 小肯尼迪出版商挑战批评家 呼吁公开辩论
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1744390/)
+## 宾夕法尼亚州最高法院驳回口罩强制令
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1744468/)
 
-编译：Jenny Ball
+作者：纽约香草山农场 – 四季
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-7-4.jpg)图片来源：childrenshealthdefense.org（作者：** Tony Lyons**）
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-编者注：托尼·里昂斯 (Tony Lyons) 是“天马出版社”（ Skyhorse Publishing ）的一名律师、总裁和出版商，他是小罗伯特·肯尼迪 (Robert F. Kennedy, Jr.) 的新畅销书《真正的安东尼·福奇：比尔·盖茨、大型制药公司与全球公共卫生和民主的战争》的出版商。下面是出版商里昂斯写的注释 ，它出现在这本书的第 xii 页。
 
-复杂的科学和道德问题，不是通过审查科学家和作者的不同意见、删除他们互联网内容或诽谤，来解决他们向当权者提出的具有挑战性的信息的。
 
-审查反而导致对政府机构和大公司的更不信任。
 
-没有任何意识形态或政治可以指出显而易见的问题：科学错误和公共政策错误确实会发生——并且可能产生毁灭性的后果。
 
-错误可能源于，有缺陷的分析、仓促、傲慢，有时甚至是腐败。
+据[网关专家](https://www.thegatewaypundit.com/2021/12/pennsylvania-state-supreme-court-strikes-school-mask-mandate/)12月10报道，宾夕法尼亚州最高法院周五驳回了一项全州范围内的口罩强制令，裁定宾夕法尼亚州代理卫生部长艾莉森·贝姆无权要求学生在学校佩戴口罩。
 
-无论是什么原因，解决方案都来自于开放的探索、反省和不断的调查。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1667.jpg)图片来源：网关专家
 
-理想的情况是，科学和公共政策，不能永远一成不变。它们应该是一个过程、合作、辩论和伙伴的关系。
+最初的诉讼是由一个由家长、学区和共和党政治家组成的联盟提起的。
 
-**评论：科技的根本就是质疑求解，但在这次邪恶势力和中共发起的病毒疫苗生化战争中， 邪恶势力颠覆了一切常识和逻辑。**
+宾夕法尼亚州最高法院已经确认了联邦法院的决定，并撤销了代理卫生部长发布的要求在K-12学校和幼儿园实施的口罩强制令。
 
-**参考资料：**[childrenshealthdefense.org][Publisher of ‘The Real Anthony Fauci’ Challenges Critics to Find Factual Errors in Book, Calls for Open Debate](https://childrenshealthdefense.org/defender/tony-lyons-the-real-anthony-fauci-challenge-factual-errors-open-debate/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=a790ba0e-e452-45bc-aaae-d39305be9c54)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月.png)
 
-* * *
+编辑/校对/发稿：小鹿
 
-*审核：文乐
-校对：信心满满*
-*发布：信心的选择*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-2.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 
