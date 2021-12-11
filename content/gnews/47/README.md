@@ -2,22 +2,24 @@
 ---
 
 
-## 文贵先生对即将发起的灭共行动之提醒
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1741742/)
+## 郭先生新歌MV登陆VEVO平台
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1741777/)
 
-撰写：香草山农场-晓仙女
+撰稿：纽约香草山教育部 – Irene木木
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-2.png)
-2021年12月9日，爆料革命发起人郭文贵先生发布视频盖文，对爆料革命战友刚刚启动的最新灭共行动给予了提醒，文贵先生表示：这次全球的行动一定要科技化、合法化、智慧化、永恒化，各国战友要跟新中国联邦委员会和各农场主保持有效沟通，统一行动，需要具备专业的通讯系统，360度防破损摄像头，同时完善救助系统和突发事件处理系统。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-512.png)
-文贵先生拒绝了战友们的友情捐助并表示了感谢，新中国联邦具备此次行动的实力和灭共的能力，不会辜负上天给予的使命。 文贵先生传递着坚定的灭共信念，以智慧引领着爆料革命。他告诫所有人，要不为事所动；不为情所动；不为利所动；不为名所动，切记躁动，大悲大乐不要做决定。郭先生在自己的行动中提升着新中国联邦人的高度！
+12月10日，据盖特平台消息称，郭文贵先生携新歌《HCoin to the moon》的MV正式登陆VEVO平台，同时，郭先生在VEVO平台上的官方频道也同步上线。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-513.png)
+资料显示，VEVO，即Video evolution网站，是一个由环球音乐集团、索尼音乐娱乐、华纳音乐集团和阿布扎比传媒联合提供免股权分红的授权内容的合资营运企业，主营音乐视频项目。该网站于2009年12月正式推出服务，并立即成为美国访问量最大的音乐服务类网站。目前，VEVO的服务范围覆盖全球多个国家，且观众可在包括苹果、安卓在内的大部分电子平台上浏览该网站的内容。
 
+与此同时，郭先生的新歌MV也登顶iTunes平台音乐视频排行榜榜首之位。
 
+【新闻链接】[Miles Guo！首位华人强势杀入国际摇滚巨星阵营！引领国际流行乐坛新浪潮！！](https://gettr.com/post/pja1gle3c0)
 
-链接：[2021年12月9日郭文贵先生盖特文章](https://gettr.com/post/pj858hb609)
+[维基百科关于Vevo](https://zh.wikipedia.org/wiki/Vevo)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-4.png)
 
-总编/编辑：文特
+总编/编辑：正义的小新
 
 校正/发稿：浪迹天涯
 
@@ -28,10 +30,6 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-2.png)
-
-
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,33 +2,37 @@
 ---
 
 
-## 日本首相岸田再次表态欢迎台湾加入CPTPP
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1742286/)
+## 单伟建父子利用空壳公司上市圈钱 中饱私囊
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1742304/)
 
-#### **撰稿：日本东京方舟农场 Kevin wang**
+作者：纽约香草山农场 – 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭文贵先生近期爆料单伟建是中共在海外布局多年的高级特务，他直属于中共情报机构“秘密第6局”，有中共国家安全最高保密级别，直接向中共现任常委汇报。在美国SEC网站的官方文件显示，单伟建、单博父子利用空壳公司在美上市，圈钱后将获利转变为私人信托基金。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-525.png)
+2021年4月，单伟建在开曼群岛注册了一家名为“戈壁收购”的空壳公司。该公司于6月在美国纳斯达克上市，共发行2500万股、价格为10美元一股的股票。发行承销商是花旗集团、高盛亚洲和瑞银，这三家银行总共购得375万股超配额发股。“太盟集团”购买70万股，单博的 “戈壁创投 ”购买200万股。空壳公司上市后共募集约 2.87 亿美元。这笔钱随即转入美国 “大陆股票转让与信托公司”，变成了私人信托基金，从此可以安全长久地存放于该公司账户上，用于投资美国国债。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/768F18EA-0D43-4C80-BD73-95B631EA0321.jpeg)（图片来自大纪元）
+同时，“戈壁收购”把560万股股权转让给单博拥有的戈壁创投、单博和“戈壁大师基金”等个人和公司名下，抵消了“戈壁创投”购买的200万股，单博净得了360万股，约3600万美元的信托基金。
 
-日本首相岸田文雄近日再次表示，欢迎台湾申请加入“跨太平洋伙伴全面进步协议”（CPTPP）。他同时还强调，对中共国的申请持审慎态度。
+单伟建父子不但和华尔街勾兑，而且通过全球金融机构，进行金融欺诈。单伟建父子的做法是盗国贼家族利用美国法律监管漏洞榨取全世界老百姓血汗的典型案例。
 
-《中央社》12月10日援引《每日新闻》的消息报道称，岸田首相是在参议院回答提问时表示，台湾和日本有着共同的基本价值观，是经济关系密切的极重要的合作伙伴。台湾为申请加入CPTPP正在做出各种努力，而他对于台湾申请加入表示欢迎。
+信息来源：[https://gettr.com/post/pja9ox6a67](https://gettr.com/post/pja9ox6a67)
 
-岸田同时还强调，他对于中（共）国申请加入CPTPP持审慎态度。他指出，需要确实判断中（共）国是否已准备好，并完全符合CPTPP的高标准。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-日本前首相安倍晋三日前也表态支持台湾加入CPTPP。安倍表示，保障自由及人权的台湾符合日本及全世界的利益。台湾具备加入CPTPP的充分条件，因此他支持台湾加入CPTPP。
+**校对/发稿：童谣**
 
-CPTPP （“跨太平洋伙伴全面进步协议”）是由日本主导的、从2002年开始酝酿的一组多边关系自由贸易协定。该协定旨在促进亚太地区贸易自由化。日本是CPTPP今年的轮值主席国。
+**更多资讯，更多关注**
 
-*参考链接：[日相岸田參院答詢 歡迎台灣申請加入CPTPP](https://www.cna.com.tw/news/aopl/202112100330.aspx)*
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-* * *
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-*素材采编：Kevin wang*
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-*编辑：青衣青青*
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-*发布：miumiu*
-
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
