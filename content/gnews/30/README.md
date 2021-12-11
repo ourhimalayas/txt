@@ -2,28 +2,47 @@
 ---
 
 
-## “全过程民主”也挡不住 台湾代表民主峰会发表《国家声明》
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1742467/)
+## 维基解密创始人阿桑奇被英国高院裁定或引渡美国
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1742469/)
 
-撰稿/配图：东京樱花团/ Ob
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-534.png)
-看中国2021年12月11日讯，12月10日，美国总统拜登主持的全球“民主峰会”进入第二天，台湾行政院政务委员唐凤受邀代表台湾政府发表《国家声明》，强调台湾坚定站在全球对抗威权主义的最前线，更愿在促进全球自由民主人权领域扮演领导角色。
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-唐凤在周五“科技与民主”（Technology and Democracy）场次的“对抗数位威权主义及肯定民主价值”分会场致词，介绍台湾民主发展的成果。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/1a7c9d3a9ea3e0349786ba4e48e31b40_w.jpg)
 
-唐凤强调，台湾已响应美国的号召，承诺资助“全球反贪集团”，也有意愿、有能力贡献于“公益媒体国际基金”。两项多边倡议分别专注于反贪，以及反制错假讯息，都符合这次峰会的目标。
 
-此外，台湾更将透过“全球合作暨训练架构(GCTF)”，努力实践我们的承诺。在此架构下，台湾和美国、日本、澳洲等理念相近国家，就反贪腐、媒体识读及妇女赋权等至关重要的国际议题，协力举办工作坊。
+ 
+图片来源:   Reuters
 
-美国国务卿布林肯（Antony Blinken）在“民主峰会”首日的“强化民主韧性”的会场上，公开肯定了台湾与美国等多国一同支持“全球反贪集团”（Global Anti-Corruption Consortium,GACC）。
 
-真的假不了，假的真不了。无论多么冠冕堂皇地宣布自己多么民主，无论多么绘声绘色地描绘自己“全过程民主”，世界人民的眼睛是雪亮的。纵然能被你一时迷惑，捆绑，威吓，人民依旧会醒来。共产党和邪恶势力妄图通过释放病毒，借疫苗契机，用威权主义控制全世界，控制全人类，主导人类命运共同体，未免有些猖狂。民主，自由，正义之声会逐渐醒来，连点成线，连线成面，必将邪恶黑暗势力逐渐挤出人类社会。
+#### 整理报道 ：小红帽
 
-消息来源：[台湾代表民主峰会发表《国家声明》(图)](https://m.secretchina.com/news/gb/2021/12/11/992035.html)
+**据SBS中文12月11日报道，美国在英国伦敦高等法院赢得上诉，事关引渡维基解密创始人朱利安·阿桑奇(Julian Assange)以面对刑事指控。**
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+该裁决推翻了伦敦地区法官1月4日拒绝美国引渡的决定。该决定认为阿桑奇不应被引渡，因为他可能会在美国监狱中自杀。
+
+澳大利亚人阿桑奇因维基解密在2010年公布与美国在阿富汗和伊拉克战争有关的机密军事文件而面临审判。
+
+美国政府已向阿桑奇提出18项指控，这些指控与维基解密发布50万份有关阿富汗和伊拉克冲突的秘密文件有关。
+
+如果被引渡、审判和定罪，一旦罪名成立，阿桑奇将面临最长至175年的监禁。
+
+周五，高等法院首席大法官伯内特勋爵（Lord Chief Justice Burnett）和霍罗伊德大法官（Lord Justice Holroyde）做出了有利于美国的裁决。阿桑奇的未婚妻斯特拉·莫里斯(Stella Moris) 表示会上诉。
+
+否认有任何不当行为的阿桑奇并未出庭。 他被关押在伦敦戒备森严的贝尔马什监狱（Belmarsh Prison）已逾两年半之久。
+
+亲阿桑奇的支持者聚集在法庭外，挥舞着标语，要求立即将他从伦敦东南部戒备森严的监狱中释放。
+
+新闻来源：[英国高等法院裁定维基解密创始人阿桑奇可被引渡美国 (sbs.com.au)](https://www.sbs.com.au/chinese/mandarin/zh-hans/wikileaks-founder-julian-assange-can-be-extradited-to-the-us-british-court-rules)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

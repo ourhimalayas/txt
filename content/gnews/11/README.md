@@ -2,44 +2,31 @@
 ---
 
 
-## 全人类只有爆料革命在2019年第一个提出干掉中共冬奥会
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1742657/)
+## 英国表示Omicron将在数日内成为主要病毒变体
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1742669/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/P-10-13.004.jpeg)
-据[2021年12月10日 文贵大直播：全球各国抵制冬奥会；数字货币市场未来变化趋势；郭先生新歌Billboard数字歌曲销售排行榜一名；Hcoin To The Moon iTunes打榜记录；对准中共高层海外春节大行动](https://gtv.org/video/id=61b350ad56f4921401b40cca)时间点1：32：11
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1106.jpg)图片来自网络
+英国卫生安全局周五表示，CCP病毒的Omicron 变异株正在英国各地迅速传播，该病到本月中旬可能成为在全国的主要传播形式。
 
-**郭文贵先生：**你要看共产党这个奥运会有几个因素，你们大家要注意到，苏联被抵制奥运会、希特勒被抵制奥运会是明确的跟西方对抗，甚至发生战争——冷战、火战、民族之战、种族之战，这都是很清楚的。
+该机构在其最新的技术简报中表示，来自英国的新数据证实，Omicron 相比其他病毒变体更容易传播。
 
-只有这一次共产党没有明确说出来跟西方、跟世界有火战、有冷战，还要两国共同治理世界呢！发起了这场抵制冬奥会，这个是什么情况下？是七哥2019年说我们要让它开不成，记住！2019年的世界和今天2021年可是没有病毒、没有疫苗。
+其他研究表明，阿斯利康和辉瑞疫苗在预防Omicron的症状性感染方面效果较差。初步数据显示，在接种第三次加强针后，有效性似乎提高到 70% 至 75%。
 
-那时候全世界认为灭共它是个笑话！是疯子的想法！大家想想新中国联邦的牛是牛有多大，你们永远中国人不懂得爱自己的伟大，永远看着别人的好，而且中国人是全世界最容易忘掉悲哀和伤痛的民族，我们也愿意很容易忘掉自己的辉煌历史、好处。
+最新数据显示，截至 12 月 8 日，有 568 例确诊或可能确诊Omicron 变异病毒，而一周前该数字仅为 2 例。卫生安全机构表示，如果目前的趋势继续下去，到 12 月底，英国的 Omicron 感染人数将超过 100 万。
 
-你想想2019年我就告诉你奥运会上让它开不成，那么共产党竟然在张家口河北北边开发了一个城——冬奥城，而且冬奥会的开幕式就在盘古的隔壁鸟巢、水立方，还有很多仪式，你们想想这跟七哥的关系有多深！跟咱爆料革命有多深！龙头变成了包头了、变成鸟头了。马上要开冬奥会了，这个时候你发现2019年之后很快全世界知道冠状病毒来了，习近平不出国了，然后疫苗灾难来了。
+该机构的首席执行官珍妮哈里斯博士（Dr. Jenny Harries）在简报中说：“我们再次敦促所有能够接受加强针注射的人赶快行动。”
 
-（以下暂略）
+该机构强调了有关 Omicron 变体所带来风险的早期警告，但表示仍然应该谨慎对待这些数据，因为结论是基于对少数病例的早期分析而得到的。
 
-撰稿：喜马拉雅的肉夹馍；
+笔者认为，目前的新型Omicron病毒变体已经成为某些政府部门进一步实施加强针注射计划的口实。新变体病毒首先帮助药厂找到了疫苗效果不佳的理由和借口，同时又起到了帮助药厂推广第三剂疫苗的作用，可谓一箭双雕。
 
-审核：喜马拉雅的馍夹肉；
+也许在不久的未来，我们会发现两针疫苗已经不再算作完全接种，所有人必须接种第三剂才能够出入各类场所。只要我们退让一步，无耻的邪恶势力便会蹬鼻子上脸，逼迫你打第四针、第五针等等。人生所具有的自由是人权的一部分，而不是接种疫苗之后才得以被权威施舍自由。
 
-校对：Maarago；
+新闻参考链接：[9 news](https://www.9news.com.au/world/uk-says-omicron-to-become-its-dominant-variant-within-days/97b1166f-db3f-464f-a9f2-13df6314bb85)
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
