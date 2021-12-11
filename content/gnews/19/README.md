@@ -2,41 +2,71 @@
 ---
 
 
-## 澳大利亚提前退役欧盟机队，全面引进美军现役直升机
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1741398/)
+## 2021年12月10日文贵先生直播摘要及音频—银河系农场
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1741408/)
 
-**【雅典娜快讯】，紧贴时代脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/snapshot-9.jpg)
+视频连接：[2021年12月10日 文贵大直播：全球各国抵制冬奥会；数字货币市场未来变化趋势；郭先生新歌Billboard数字歌曲销售排行榜一名；Hcoin To The Moon iTunes打榜记录；对准中共高层海外春节大行动](https://gtv.org/video/id=61b350ad56f4921401b40cca)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-506.png)图片来源：Lockheed Martin
+1、欧洲4个国家不但明确抵制冬奥会，而且考虑要与中共国经济脱钩；
 
-编辑报道：文泓
+2、中共威胁日本若抵制冬奥会的话 会对在华企业全面关闭；
 
-澳大利亚将放弃由47架欧盟生产的大班（MRH90 Taipan）多用途军用直升机机队，将用美国洛克希德·马丁公司设计的“黑鹰”直升机取代，费用为48亿美元。
+3、俄罗斯警告美国，绝对不允许把乌克兰、台湾战争放在一起，千万不要把病毒、疫苗、经济危机跟俄罗斯绑在一起，我们绝对不一样；
 
-12月10日，据《澳大利亚人报》报道，堪培拉于周五证实了关于更换欧洲设计直升机的决定。
+4、杨洁篪在塞浦路斯和非洲抓了新中国联邦几十个战友；
 
-“大班机队没有达标，就这么简单”，总理斯科特·莫里森在一次新闻发布会上说：“我们希望确保我们的国防部队有最好的装备来保卫这个国家，而黑鹰将提供这种装备。”
+5、加拿大战友要小心，中共工作小组正在收集很多加拿大战友信息；
 
-大班直升机是由澳大利亚陆军和海军运营的，由空客设计的NH90双引擎直升机，大部分机体由澳大利亚制造。这些飞机于2005年首次订购，但在推出时受到技术故障和其他问题的困扰，这使得机队实现全面作战能力的时间被推迟了多年。
+6、拜登也会对中共展开一系列的动作；
 
-在发现越来越多的问题后，澳大利亚海军在2011年拒绝购买更多的大班直升机，而是选择了美制SH-60海鹰直升机。今年10月，澳洲宣布追加12架海鹰的订单，交易价值30亿澳元（9.85亿美元）。
+7、俄罗斯明确跟美国说他们不会跟中共站在一起；
 
-现在，澳大利亚政府已经决定让整个大班直升机机队退役，该机队本应服役至2037年，再以美制直升机取代。除了海军订购的“海鹰”之外，它还寻求为陆军购买多达40架UH-60黑鹰。这两种飞机都是由洛克希德·马丁公司下属的西科斯基公司生产。
+8、俄罗斯明确表示不会参与中共的台海战争；
 
-政府表示，这笔新的交易估计将花费70亿澳元（48亿美元），考虑到大班机队的高运营成本，最终将节省资金。
+9、七哥判断：2022年年底以前中共将被踢出WTO，2023年5月份以前中共应该会被踢出SWIFT系统；
 
-今年，当澳大利亚取消了一项价值数十亿美元的12艘攻击型潜艇的交易，转而购买8艘美制核动力潜艇，从而惹怒了法国。现在不到三个月，澳洲又就发生了对欧洲军事技术的冷遇。这项交易是与澳英美三边安全条约AUKUS一起宣布的，被誉为威慑中共国的一种方式。
+10、恒大债务中共卑鄙的处理方式：第一还欠银行的，第二还恒大的抵押的债务银行，第三选择性还海外，最后才是个人；
 
-新闻链接：[Victorian Governor LIES to avoid the responsibility of her job](https://www.rebelnews.com/victorian_governor_lies_to_avoid_the_responsibility_of_her_job)
+11、中共想要成功办好冬奥会的最大目的是：洗脱病毒来自中共、数学人民币国际化、冬奥会经济、万国来朝、然后再打台湾；
 
-*发布：盘古相聚*
+12、年轻人出奇一致地接受疫苗说明： 社交媒体、宗教、学习、工作，对大学生的洗脑程度最高的，四重围剿；
 
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+13、中国竟然75%的银行业务跟房地产有关系；在国际上对西方是致命的。所有西方投到中共的钱是基金，不是贷款，基金经理人都是合法的小偷，房地产的烂账会打开西方所有灭共的大门；
+
+14、Google每次点击，Google已经收钱了，这就是个人数据消费，躺平币的来源，就是被大数据公司拿走出卖的价值；
+
+15、躺平币是根据你行动的结果，一切的行为都能计算成结果；
+
+16、国内公检法等对战友们枪口抬高一寸的，都会得到百倍的躺币，十倍的喜币，每一个人都会得到；
+
+17、躺平币的计划是新中国联邦64两周年推出；
+
+18、喜币超过比特币，绝对不只能单一比价格，还要比流通性等；
+
+**注：大直播同期音频正在制作和上传中，稍后将在本条注明下边附上音频，敬请期待——**
+
+（音频连接位置）
+
+编辑整理：文俊
+
+发布：黎明之前
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

@@ -2,32 +2,47 @@
 ---
 
 
-## FBI纪录片揭露中共经济间谍手段
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1741576/)
+## 落实三孩政策,党员干部要带头
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1741590/)
 
-作者：东京樱花团—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月9日，据相关媒体消息称，美国联邦调查局FBI即将推出一部名为《中共制造：统治全球市场计划》的纪录片。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-11-上午11.16.42.png)
-据悉，该纪录片中揭露了中共通过各种手段，对美国商业实体开展经济间谍活动的行为，给美国企业和国家安全造成了严重的损失。其中，该纪录片列举了四起中共窃取美国商业秘密的知名案件，包括2011年中共华锐风电窃取美国超导公司商业秘密案、2011年中共国公民莫海龙窃取美国优质玉米良种案、2015年美籍华裔化工专家黄锡文窃取商业秘密案，以及2019年美籍华裔石山盗取特瑞堡集团美国子公司复合薄膜塑料技术案。
+作者：MOS 翻译组-祈望明天会更好
 
-报道还提及，早在2020年，联邦调查局就曾推出类似短片，警告美国现任和前任官员不要被中共诱骗，向中共泄漏美国机密信息。
+- ![This image has an empty alt attribute; its file name is image-40-1-9-1.png](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-1.png)
 
-参考链接：[FBI纪录片《北京制造》 警惕中国对美经济间谍手段](https://www.voachinese.com/a/fbi-documentary-china-eco-espionage-20211208/6344965.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-总编：Ivy001
-编辑：文特
-校正/发稿：呼吸的雾霾（文小呼吸）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-25.jpg)图片源自网络
+
+根据 12月9日 中国报道党建先锋 刊登了《落实三孩政策,党员干部应见行动》明文规定: 每一名党员干部不能因为这样那样的主客观原因，不结婚、不生育，也不能因为这样那样的原因只生育一个或两个孩子。落实三孩生育政策，是每一名党员干部承担国家人口发展的责任，也是每一名党员干部履行国家人口发展的义务。 
+
+诚然，有的党员干部因为年龄、身体等原因已经不允许生育孩子，但可以积极主 动教育、引导、促成自己家人或周围人积极、自觉落实三孩生育政策。千万不可 漠视、放任自己家人或周围人不结婚、不生育，也千万不可以漠视、放任自己家人或周围人以这样那样的借口只生育一个或两个孩子。
+
+ 这就如同郭先生所说的, 中国共产党管天, 管地, 管空气, 还管生殖器. 现在要党员干部 , 落实三孩政策,党员干部积极贡献自己的行动。
+
+
+参考链接：[http://redchinacn.net/forum.php?mod=viewthread&tid=21354](http://redchinacn.net/forum.php?mod=viewthread&amp;tid=21354)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/unknown-2.jpg)
+
+总编：雪梨
+
+校对/发稿：Daxia
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-1.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

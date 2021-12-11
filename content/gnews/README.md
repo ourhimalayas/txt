@@ -15,80 +15,80 @@
 
 ---
 
-### [FBI纪录片揭露中共经济间谍手段](/content/gnews/1/README.md)
+### [落实三孩政策,党员干部要带头](/content/gnews/1/README.md)
+ ` GTV News Talk`
+
+### [FBI纪录片揭露中共经济间谍手段](/content/gnews/2/README.md)
  ` GTV新闻访谈`
 
-### [恒大、佳兆业债务违约导致信用评级下调](/content/gnews/2/README.md)
+### [恒大、佳兆业债务违约导致信用评级下调](/content/gnews/3/README.md)
  ` GTV新闻访谈`
 
-### [12/10/2021 文贵直播：爆料革命自2019年开始运作抵制北京冬奥会，已彻底击碎了中共的美梦](/content/gnews/3/README.md)
+### [12/10/2021 文贵直播：爆料革命自2019年开始运作抵制北京冬奥会，已彻底击碎了中共的美梦](/content/gnews/4/README.md)
  ` 秘密翻译组-北美组`
 
-### [盘古人的人品和盘古未来要发生的大火](/content/gnews/4/README.md)
+### [盘古人的人品和盘古未来要发生的大火](/content/gnews/5/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [感染Omicron变种病毒的人，多数都已打过中共病毒疫苗](/content/gnews/5/README.md)
+### [感染Omicron变种病毒的人，多数都已打过中共病毒疫苗](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本民间人士成功开启首次太空之旅](/content/gnews/6/README.md)
+### [日本民间人士成功开启首次太空之旅](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [12/10/2021 文贵直播：今天中共的狂妄就是所有独裁者都干的事 &#8211; 企业国有化、个人神圣化、彻底消灭宗教和控制媒体，最后一定是发动战争](/content/gnews/7/README.md)
+### [12/10/2021 文贵直播：今天中共的狂妄就是所有独裁者都干的事 &#8211; 企业国有化、个人神圣化、彻底消灭宗教和控制媒体，最后一定是发动战争](/content/gnews/8/README.md)
  ` 秘密翻译组-北美组`
 
-### [恒大违约后会发生什么？](/content/gnews/8/README.md)
+### [恒大违约后会发生什么？](/content/gnews/9/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [灭共者之郭氏情报站（二）](/content/gnews/9/README.md)
+### [灭共者之郭氏情报站（二）](/content/gnews/10/README.md)
  ` MOS Designer香草山设计部`
 
-### [中共冬夜将郭先生父亲和盘古员工赶出酒店流落街头](/content/gnews/10/README.md)
+### [中共冬夜将郭先生父亲和盘古员工赶出酒店流落街头](/content/gnews/11/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [灭共者之死神来了](/content/gnews/11/README.md)
+### [灭共者之死神来了](/content/gnews/12/README.md)
  ` MOS Designer香草山设计部`
 
-### [12/10/2021 文贵直播：杨洁篪抓了拿塞浦路斯护照的十几位战友，联盟委员会将全力营救他们](/content/gnews/12/README.md)
+### [12/10/2021 文贵直播：杨洁篪抓了拿塞浦路斯护照的十几位战友，联盟委员会将全力营救他们](/content/gnews/13/README.md)
  ` 秘密翻译组-北美组`
 
-### [佩洛西演讲支持立法反对中共侵犯人权](/content/gnews/13/README.md)
+### [佩洛西演讲支持立法反对中共侵犯人权](/content/gnews/14/README.md)
  ` HimalayaRussia`
 
-### [对待中国不能等待， 勇气、 坚定、团结、与盟友协同行动， 是唯一的选择](/content/gnews/14/README.md)
+### [对待中国不能等待， 勇气、 坚定、团结、与盟友协同行动， 是唯一的选择](/content/gnews/15/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [美国官员考虑禁止向中国芯片制造商中芯国际出口](/content/gnews/15/README.md)
+### [美国官员考虑禁止向中国芯片制造商中芯国际出口](/content/gnews/16/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [美国设定为期 一 周的最后期限，看看伊朗是否会在以色列推动军事选择时取得进展的报告](/content/gnews/16/README.md)
+### [美国设定为期 一 周的最后期限，看看伊朗是否会在以色列推动军事选择时取得进展的报告](/content/gnews/17/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [堪比香港恶警澳洲警察对平民出重手恶意执法](/content/gnews/17/README.md)
+### [堪比香港恶警澳洲警察对平民出重手恶意执法](/content/gnews/18/README.md)
  ` 澳喜农场`
 
-### [2021年12月10日文贵先生直播摘要及音频—银河系农场](/content/gnews/18/README.md)
+### [2021年12月10日文贵先生直播摘要及音频—银河系农场](/content/gnews/19/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [澳大利亚提前退役欧盟机队，全面引进美军现役直升机](/content/gnews/19/README.md)
+### [澳大利亚提前退役欧盟机队，全面引进美军现役直升机](/content/gnews/20/README.md)
  ` 走进澳洲`
 
-### [灭共者之疫苗灾难（二）](/content/gnews/20/README.md)
+### [灭共者之疫苗灾难（二）](/content/gnews/21/README.md)
  ` MOS Designer香草山设计部`
 
-### [12/10/2021 文贵直播：欧洲四国表示将抵制冬奥会并考虑与中共经济脱钩是历史性的事件！](/content/gnews/21/README.md)
+### [12/10/2021 文贵直播：欧洲四国表示将抵制冬奥会并考虑与中共经济脱钩是历史性的事件！](/content/gnews/22/README.md)
  ` 秘密翻译组-北美组`
 
-### [讣 告](/content/gnews/22/README.md)
+### [讣 告](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [从今天起没有郭7条](/content/gnews/23/README.md)
+### [从今天起没有郭7条](/content/gnews/24/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [恐惧不属于新中国联邦人](/content/gnews/24/README.md)
+### [恐惧不属于新中国联邦人](/content/gnews/25/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [七哥谈：唢呐送葬（2021-12-10摘录）](/content/gnews/25/README.md)
- ` MG FARM`
 
 ### [英国独立机构称：中共国在新疆犯下了种族灭绝罪](/content/gnews/26/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`

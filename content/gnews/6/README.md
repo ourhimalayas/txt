@@ -2,10 +2,10 @@
 ---
 
 
-## 日本民间人士成功开启首次太空之旅
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1741544/)
+## 感染Omicron变种病毒的人，多数都已打过中共病毒疫苗
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1741550/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12._11-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1211-scaled.jpg)
 *编辑：东京樱花团/简报小组
 发布：东京樱花团/平安卿卿*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)

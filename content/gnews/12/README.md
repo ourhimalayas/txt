@@ -2,10 +2,48 @@
 ---
 
 
-## 12/10/2021 文贵直播：杨洁篪抓了拿塞浦路斯护照的十几位战友，联盟委员会将全力营救他们
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1741477/)
+## 灭共者之死神来了
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1741488/)
 
-秘密翻译组-北美组
+**出品：纽约香草山设计部**
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
+
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-习包子之死独裁者灭亡悼念习主席_岛国贼必亡Dictator-Xi-Death-of-Xi_Chinese-Communist-Party.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/2-习包子之死独裁者灭亡悼念习主席_岛国贼必亡Dictator-Xi-Death-of-Xi_Chinese-Communist-Party.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/3-习包子之死独裁者灭亡悼念习主席_岛国贼必亡Dictator-Xi-Death-of-Xi_Chinese-Communist-Party.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/4-习包子之死独裁者灭亡悼念习主席_岛国贼必亡Dictator-Xi-Death-of-Xi_Chinese-Communist-Party.jpg)
+* * *
+
+
+
+**编辑/发稿：小鹿**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-2.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
 
  
 
