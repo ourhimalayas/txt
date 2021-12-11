@@ -2,22 +2,33 @@
 ---
 
 
-## 纽约市警方：针对亚裔的仇恨犯罪增至去年4倍
-` 向真` [轉載自GNews](https://gnews.org/zh-hans/1741282/)
+## 七哥谈：音乐是什么（2021-12-10摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1741303/)
 
-#### 加拿大温哥华农场 向真
-![](https://assets.gnews.org/wp-content/uploads/2021/12/6A6E2482-71A5-4528-871A-A9CF8E0C57FB_4_5005_c.jpeg)来源：superpyq
-据共同社12月9日报道，美国纽约市警察局近日透露，今年截至本月5日，市内针对亚裔的仇恨犯罪骤增至去年全年的4倍以上。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-实际的仇恨犯罪数量可能要多得多。因为即使是可能以种族为犯罪动机的案件，由于缺乏现场歧视性言论的明确记录，警方也大多只是作为暴力案件等处理，而不作为仇恨犯罪处理。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-10-下午6.38.46.png)来源：RFA
-此前有人批评美国前总统特朗普称新冠病毒为“中国病毒”，导致从去年2月开始，针对亚裔居民的歧视性言行及骚扰事件激增。拜登上台后对中共病毒溯源采取了模糊策略，不再提“中国病毒”这个词，但针对亚裔的仇恨犯罪事态反而进一步恶化。
+来源：郭先生2021-12-10直播09：00：54 摘录
 
-随着全球性的疫苗灾难和经济危机的临近，世界各国对华裔的仇视将不断累积和爆发。因此，郭文贵先生发起今年春节开始大规模揭露邪恶中共释放病毒、主导全球有毒疫苗的真相，为中共举办一千天的送葬行动，是所有海外华人不能错过的自救及消灭中共的重要机会。
+音乐是什么，音乐是自由的，音乐是浪漫的，音乐是情感和自然之间唯一的没被解码的一种沟通的最好的方式，音乐是男女之间最美好的桥梁，音乐是达到了你精神上的最高自由境界，可以让你精神上达到了高潮和天地，和神之间的沟通，和不能和你有共同语言的动物和植物，石头，山川，河流之间的沟通的唯一的方式，唯一的方式。这是为什么当时的希腊的故事里边宙斯，缪斯以及九个音乐之神，所诞生的各种神的母亲神的父亲，当时所有的这种希腊的故事，音乐之神为什么是宙斯为什么是缪斯，为什么是提携的所有的生出的儿女? 他们和山川和河流和狮子和动物之间沟通的唯一方式就叫音乐，甚至他们对天上唯一祈祷的方式，允许的共同方式就是音乐，因为音乐的力量是唯一一个是没有性别，没有语言，没有黑白，没有任何物理区域隔离的和能拦得住的方式的沟通方式，而且从人类到现在为止所有的祈祷上天和向上天祈福，包括去诅咒某些人用的唯一方式不是献命，不是献血，音乐！
 
-参考：
+校对：HimaFaFA
+发布：HimaBoy
 
-[纽约针对亚裔的仇恨犯罪增至去年4倍](https://china.kyodonews.net/news/2021/12/6df40f7b50b9-4.html)
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
