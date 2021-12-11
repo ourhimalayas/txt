@@ -2,26 +2,25 @@
 ---
 
 
-## 联合国将发布新疆局势评估报告
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1742566/)
+## 国防部正“积极讨论”强制军队接种中共病毒加强针
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1742607/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-540.png)[图片来源](https://news.un.org/zh/story/2021/06/1085962)
-联合国人权办公室发言人Rupert Colville周五（12月10日）表示，该办公室正在完成对中共国新疆地区局势的评估，据称该地区的维吾尔族人遭到非法拘留、虐待和强迫工作。
+#### 撰稿：彩虹 
 
-Colville表示，联合国人权高级专员巴切莱特(Michelle Bachelet)的办公室希望在未来几周内发表报告，与中共国官员就拟议中的访问进行的长期磋商“未取得具体进展”。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-2-6.jpg)图片来源：Military Time
+截至上周五，大约96.4%的现役军人已经接受了至少一剂疫苗，90%的人已经完全接种。在整个部队中，包括国民警卫队和后备队，近74%的军事人员已经接种。但是，周五，国防部最高发言人证实，五角大楼领导人正在就是否强制军队接种中共病毒（COVID-19）疫苗加强针进行“积极讨论”。12月10日，《国会山报》对此进行了报道。
 
-英国民间法院“维吾尔族法庭”上日判决中共国在新疆对维吾尔人和其他少数民族犯下种族灭绝罪。
+五角大楼新闻秘书约翰·柯比（John Kirby）告诉记者：“部门内正在政策层面上积极讨论加强针，以及是否需要强制接种该加强针，对此还没有做出最终决定”。
 
-Colville在日内瓦的联合国简报会上表示，“维吾尔族法庭揭露了更多令人深感不安的信息，这些信息与新疆维吾尔族人和其他穆斯林少数族裔的受到的对待有关。”
+文章披露，根据8月24日的一份备忘录，五角大楼强制要求为军队进行首轮中共病毒疫苗接种的要求当时遭到了一些反对，特别是俄克拉荷马州州长凯文·斯蒂特（Kevin Stitt），他已起诉该国防部，要求阻止对国民警卫队成员进行中共病毒疫苗的强制接种。
 
-他称，“当然，我们也同样发现了机构中任意拘留和虐待的模式，强迫劳动做法，以及对社会和文化权利的总体侵蚀。”
+根据五角大楼周三公布的最新数据，共有79名军人死于中共病毒，超过25.7万人感染了中共病毒。
 
-消息来源：[联合国人权办公室称将在未来几周发布有关新疆局势的评估报告](https://cn.reuters.com/article/un-human-right-xinjiang-report-1211-idCNKBS2IQ033)
+**新闻来源**
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+[Pentagon considering mandating vaccine booster](https://thehill.com/policy/defense/585371-pentagon-considering-mandating-covid-19-vaccine-booster)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

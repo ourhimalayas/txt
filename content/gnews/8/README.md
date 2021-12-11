@@ -2,43 +2,42 @@
 ---
 
 
-## 全人类只有爆料革命在2019年第一个提出干掉中共冬奥会
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1742657/)
+## 巴西一个负责颁发新冠疫苗证书的网站被黑客攻击
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1742680/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/P-10-13.004.jpeg)
-据[2021年12月10日 文贵大直播：全球各国抵制冬奥会；数字货币市场未来变化趋势；郭先生新歌Billboard数字歌曲销售排行榜一名；Hcoin To The Moon iTunes打榜记录；对准中共高层海外春节大行动](https://gtv.org/video/id=61b350ad56f4921401b40cca)时间点1：32：11
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-**郭文贵先生：**你要看共产党这个奥运会有几个因素，你们大家要注意到，苏联被抵制奥运会、希特勒被抵制奥运会是明确的跟西方对抗，甚至发生战争——冷战、火战、民族之战、种族之战，这都是很清楚的。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/cyberattack.jpg)
 
-只有这一次共产党没有明确说出来跟西方、跟世界有火战、有冷战，还要两国共同治理世界呢！发起了这场抵制冬奥会，这个是什么情况下？是七哥2019年说我们要让它开不成，记住！2019年的世界和今天2021年可是没有病毒、没有疫苗。
 
-那时候全世界认为灭共它是个笑话！是疯子的想法！大家想想新中国联邦的牛是牛有多大，你们永远中国人不懂得爱自己的伟大，永远看着别人的好，而且中国人是全世界最容易忘掉悲哀和伤痛的民族，我们也愿意很容易忘掉自己的辉煌历史、好处。
 
-你想想2019年我就告诉你奥运会上让它开不成，那么共产党竟然在张家口河北北边开发了一个城——冬奥城，而且冬奥会的开幕式就在盘古的隔壁鸟巢、水立方，还有很多仪式，你们想想这跟七哥的关系有多深！跟咱爆料革命有多深！龙头变成了包头了、变成鸟头了。马上要开冬奥会了，这个时候你发现2019年之后很快全世界知道冠状病毒来了，习近平不出国了，然后疫苗灾难来了。
+图片来源:   ZDNET
 
-（以下暂略）
 
-撰稿：喜马拉雅的肉夹馍；
+#### 整理报道 ：小红帽
 
-审核：喜马拉雅的馍夹肉；
+**据RT新闻12月10日报道，一个属于巴西卫生部的网站被勒索软件攻击而关闭。该勒索软件还袭击了存有该国免疫计划详细信息的系统以及用于颁发数字新冠疫苗接种证书的门户网站。**
 
-校对：Maarago；
+巴西卫生部（MoH）在一份声明中指出，“周五凌晨‘发生的’事件‘暂时破坏’了一些系统，联邦警察和国家安全机构正在进行调查”。该部证实，（截止到新闻发稿时间）这些系统仍然不可用。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+巴西卫生部长马塞洛·奎罗加（Marcelo Queiroga）告诉记者，网站不会丢失任何数据，并坚称卫生部仍然保留在黑客攻击期间获取、复制和删除的所有信息。犯罪责任人将受到惩罚。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+根据“Lapsus$集团”在网站上发布的消息，该集团声称对这次攻击负责但没有说明动机。该集团从卫生部系统中提取了大约50TB的数据。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+这次袭击迫使博尔索纳罗政府推迟了，针对前往该国旅行者实施的新公共卫生要求计划。新规定原定于周六开始实施，但巴西政府证实，由于疫苗接种数据无法在线获取，该规定将推迟一周实施。
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+但是，航空公司乘客在抵达巴西时所填写的新冠病毒（Covid-19）追踪表格，仍然可以在国家卫生监管机构Anvisa的网站上找到。该网站并未成为此次攻击的目标。
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+新闻来源：[巴西的健康门户网站受到黑客攻击 — RT 世界新闻](https://www.rt.com/news/542865-brazil-health-websites-hacked-ransom/)
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+***发布：小红帽***
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
