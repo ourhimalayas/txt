@@ -2,37 +2,30 @@
 ---
 
 
-## 单伟建父子利用空壳公司上市圈钱 中饱私囊
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1742304/)
+## 国际人权日 美国对中共制裁再加码
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1742341/)
 
-作者：纽约香草山农场 – 文真
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生近期爆料单伟建是中共在海外布局多年的高级特务，他直属于中共情报机构“秘密第6局”，有中共国家安全最高保密级别，直接向中共现任常委汇报。在美国SEC网站的官方文件显示，单伟建、单博父子利用空壳公司在美上市，圈钱后将获利转变为私人信托基金。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-525.png)
-2021年4月，单伟建在开曼群岛注册了一家名为“戈壁收购”的空壳公司。该公司于6月在美国纳斯达克上市，共发行2500万股、价格为10美元一股的股票。发行承销商是花旗集团、高盛亚洲和瑞银，这三家银行总共购得375万股超配额发股。“太盟集团”购买70万股，单博的 “戈壁创投 ”购买200万股。空壳公司上市后共募集约 2.87 亿美元。这笔钱随即转入美国 “大陆股票转让与信托公司”，变成了私人信托基金，从此可以安全长久地存放于该公司账户上，用于投资美国国债。
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-528.png)[图片来源](https://gnews.org/wp-admin/post-new.php#imgrc=Q_Ox2_dlj7OL_M)
+在周五（12月10日）国际人权日，美国财政部宣布对中共国、缅甸、朝鲜和孟加拉国的15名个人和10个实体进行制裁，包括中共国公民扎克尔、吐尼亚孜、卢和政，中共国公司商汤科技。
 
-同时，“戈壁收购”把560万股股权转让给单博拥有的戈壁创投、单博和“戈壁大师基金”等个人和公司名下，抵消了“戈壁创投”购买的200万股，单博净得了360万股，约3600万美元的信托基金。
+周五的行动是根据第13818号行政令采取的，该行政令是在《全球马格尼茨基人权问责法》等一系列法律的基础上发布的，针对全球严重侵犯人权者。
 
-单伟建父子不但和华尔街勾兑，而且通过全球金融机构，进行金融欺诈。单伟建父子的做法是盗国贼家族利用美国法律监管漏洞榨取全世界老百姓血汗的典型案例。
+美国国务院宣布，对中共国公民扎克尔和吐尼亚孜实施签证限制，他们参与了严重侵犯人权的行为，没有资格进入美国。
 
-信息来源：[https://gettr.com/post/pja9ox6a67](https://gettr.com/post/pja9ox6a67)
+至少从2018年到2021年担任新疆自治区主席的雪克来提‧扎克尔（Shohrat Zakir），和自2008年以来一直担任新疆自治区副主席、现任代理主席的艾尔肯‧吐尼亚孜（Erken Tuniyaz）；在他们任职期间，超过一百万维吾尔人和其他少数民族被关押在新疆。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+被制裁的中共国公民还有重庆市柠⾊动漫发展有限公司（Nings Cartoon Studio）的前股东Lu Hezheng（卢和政，音译）。他为朝鲜政权的动画公司SEK Studio提供物质协助、技术支持、商品或服务等。
 
-**校对/发稿：童谣**
+SEK Studio在朝鲜内部的名字是“4‧26动画电影制片”，对于延续三代的朝鲜政权而言，SEK是一台外汇印钞机。美国商务部提到，外国媒体公司似乎因为其价格低廉而对其趋之若鹜，SEK Studio利用各种幌子公司来逃避国际制裁并欺骗国际金融机构。SEK Studio和重庆市柠⾊动漫发展有限公司这两家公司也出现在制裁名单上。
 
-**更多资讯，更多关注**
+美国财政部还把中共国人工智能公司商汤科技（SenseTime Group Limited）列入“中共国军工企业”名单，因为其专门从事对维吾尔族人脸识别技术的开发，涉嫌助长侵犯维吾尔人人权的行动。商汤科技在申请专利时，重点强调了对长胡子、墨镜、戴口罩的维吾尔人的识别能力。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+消息来源：[国际人权日 美制裁新疆官员和一家科技中企](https://www.epochtimes.com/gb/21/12/10/n13429921.htm)
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
