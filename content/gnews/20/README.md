@@ -2,41 +2,47 @@
 ---
 
 
-## 对待中国不能等待， 勇气、 坚定、团结、与盟友协同行动， 是唯一的选择
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1741453/)
+## 灭共者之死神来了
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1741488/)
 
-编译：16626
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1445.png)图片来源：法新社照片
-据蒙特利尔日报2021 年 12 月 10 日（马里奥·杜蒙 MARIO DUMONT， 2021 年 12 月 10 日星期五 5:00）报道：加拿大将对北京奥运会进行外交抵制是特鲁多政府正确的决定。该篇题为“杜鲁多和中国：为什么会这样犹豫？”的报道编译如下：
+**出品：纽约香草山设计部**
 
-加拿大将对北京奥运会进行外交抵制是特鲁多政府正确的决定。在盟友国家几天前做出了这个决定后，贾斯汀·特鲁多也做出了这个别无选择的决定。
 
-在美国宣布抵制奥运会后，美国大使表示，他相信像加拿大这样的盟友应该与美国的立场“保持一致”。加拿大实际上只是一个追随者尽管看上去是自主决策者并辩称“我和他们（美国）想的一样”。
 
-**为什么犹豫****？**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-贾斯汀·特鲁多对中国的态度值得我们关注。他为什么会这样的犹豫不决？举棋不定？在两位同名的加拿大人迈克尔事件之后（中国外交部周四（5月16日）宣布，康明凯（Michael Kovrig）涉嫌“为境外刺探国家秘密和情报”，另外迈克尔（Michael Spavor）涉嫌“为境外窃取、非法提供国家秘密犯罪”。[https://www.bbc.com/zhongwen/simp/chinese-news-48295637](https://www.bbc.com/zhongwen/simp/chinese-news-48295637)），加拿大应该是一个在对中国人权问题上持强硬态度的国家。
 
-在奥运会的问题上，加拿大是不是自愿等在其他国家之后发言？是不是采取一种不得罪中国的策略？是不是试图让自己有亲中的形象，是不是如果由贾斯汀·特鲁多决定，他永远不会抵制中国奥运会，除非盟友强行影响加拿大的决策？
 
-如果答案是肯定的，加拿大将会越来越不受尊重。
 
-**是出于贾斯汀****·****特鲁多的个人偏见吗？**
 
-如果加拿大政府不愿面对中国，那么针对中国的策略可能就是单纯出于贾斯汀·特鲁多的个人观点，几年前，他表达了对中国的深深钦佩。他能否会认清他的个人感受和政治现实的区别？
 
-还是加拿大根本没有针对中国外交政策方针？或者加拿大是一个立场摇摆不定的国家？或者加拿大真的害怕来自中国的威胁，经济报复和政治报复？推迟了针对中国的决策，就像推迟了牙医预约一样，顺其自然。这就解释了为什么华为参与我们 5G 网络部署的决定被推迟了四年 （但不被终止或取消）。
 
-对待中国不能等待， 勇气、坚定，团结，与盟友协同行动，是唯一的选择。
 
-该篇报道反应了魁北克公民对加拿大联邦政府及加拿大对华政策的关心并开始倾向于对待中国不能等待， 勇气、坚定、团结、与盟友协同行动，是唯一的选择。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-习包子之死独裁者灭亡悼念习主席_岛国贼必亡Dictator-Xi-Death-of-Xi_Chinese-Communist-Party.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/2-习包子之死独裁者灭亡悼念习主席_岛国贼必亡Dictator-Xi-Death-of-Xi_Chinese-Communist-Party.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/3-习包子之死独裁者灭亡悼念习主席_岛国贼必亡Dictator-Xi-Death-of-Xi_Chinese-Communist-Party.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/4-习包子之死独裁者灭亡悼念习主席_岛国贼必亡Dictator-Xi-Death-of-Xi_Chinese-Communist-Party.jpg)
+* * *
 
-参考资料：[Journal De Montreal] [https://www.journaldemontreal.com/2021/12/10/trudeau-et-la-chine-pourquoi-cette-hesitation](https://www.journaldemontreal.com/2021/12/10/trudeau-et-la-chine-pourquoi-cette-hesitation)
 
-编辑/发布：LILY
 
-20211210
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
+**编辑/发稿：小鹿**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-2.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
 
 
  
