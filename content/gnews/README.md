@@ -15,95 +15,95 @@
 
 ---
 
-### [中共查封盘古动龙脉引欧美抵制冬奥](/content/gnews/1/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [一女士在丈夫打完第一针疫苗患上心肌炎后终于觉醒](/content/gnews/2/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [将未接种疫苗者从社会隔离不仅不合理且缺乏科学依据](/content/gnews/3/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [新西兰财经G乐部 2021年12月10日](/content/gnews/4/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [“中共如为独裁侵台，日本将如何接受台湾难民”进入具体讨论](/content/gnews/5/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [新西兰财经G乐部 2021年12月9日](/content/gnews/6/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [中共军机飞越台湾领空，台湾部署防空导弹系统应对](/content/gnews/7/README.md)
- ` 墨尔本雅典娜农场`
-
-### [日英外长首次会晤 印太地区成为关注焦点](/content/gnews/8/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [23.9万香港市民注册“港康码”，实行预约出行](/content/gnews/9/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [文贵爆料12.10.2021 欧盟四国递书抵制冬奥会，俄撇清与中共关系，中共成众矢之的！](/content/gnews/10/README.md)
+### [文贵视角: 共产党让人类进入末法时代](/content/gnews/1/README.md)
  ` 秘密翻译组-原创组`
 
-### [【玫瑰看新闻】每日快讯](/content/gnews/11/README.md)
+### [好奇的印度因与大型制药公司的利益冲突而抛弃盖茨基金会](/content/gnews/2/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [中共查封盘古动龙脉引欧美抵制冬奥](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美参议院通过法案推翻拜登私企疫苗强制令](/content/gnews/4/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [拜登和民主党疫苗强制令是非法、违宪，是权力的滥用](/content/gnews/5/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [一女士在丈夫打完第一针疫苗患上心肌炎后终于觉醒](/content/gnews/6/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [将未接种疫苗者从社会隔离不仅不合理且缺乏科学依据](/content/gnews/7/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [新西兰财经G乐部 2021年12月10日](/content/gnews/8/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [向共产党火力全开](/content/gnews/12/README.md)
+### [“中共如为独裁侵台，日本将如何接受台湾难民”进入具体讨论](/content/gnews/9/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [新西兰财经G乐部 2021年12月9日](/content/gnews/10/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [中共军机飞越台湾领空，台湾部署防空导弹系统应对](/content/gnews/11/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [日英外长首次会晤 印太地区成为关注焦点](/content/gnews/12/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [23.9万香港市民注册“港康码”，实行预约出行](/content/gnews/13/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [文贵爆料12.10.2021 欧盟四国递书抵制冬奥会，俄撇清与中共关系，中共成众矢之的！](/content/gnews/14/README.md)
+ ` 秘密翻译组-原创组`
+
+### [【玫瑰看新闻】每日快讯](/content/gnews/15/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [向共产党火力全开](/content/gnews/16/README.md)
  ` 首尔天池农场`
 
-### [巴西总统指出疫苗没用，疫苗护照是控制人民手段](/content/gnews/13/README.md)
+### [巴西总统指出疫苗没用，疫苗护照是控制人民手段](/content/gnews/17/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [英国殡仪馆主任揭露大量疫苗致死及政府不作为](/content/gnews/14/README.md)
+### [英国殡仪馆主任揭露大量疫苗致死及政府不作为](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [澳洲男子打疫苗后得心包炎而医生试图隐瞒疫苗副作用](/content/gnews/15/README.md)
+### [澳洲男子打疫苗后得心包炎而医生试图隐瞒疫苗副作用](/content/gnews/19/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [8岁男孩因疫苗引发“迷你”心脏病](/content/gnews/16/README.md)
+### [8岁男孩因疫苗引发“迷你”心脏病](/content/gnews/20/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [澳大利亚的疫苗护照，是出于政治需要还是医疗原因？](/content/gnews/17/README.md)
+### [澳大利亚的疫苗护照，是出于政治需要还是医疗原因？](/content/gnews/21/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [从国内企业纷纷裁员，看中共国的经济崩塌](/content/gnews/18/README.md)
+### [从国内企业纷纷裁员，看中共国的经济崩塌](/content/gnews/22/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [澳大利亚考虑发行本国的加密货币](/content/gnews/19/README.md)
+### [澳大利亚考虑发行本国的加密货币](/content/gnews/23/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [回顾历届停办延期的四届奥运会，第五次会发生什么？](/content/gnews/20/README.md)
+### [回顾历届停办延期的四届奥运会，第五次会发生什么？](/content/gnews/24/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [Costco苏州开业首日挤爆说明了什么](/content/gnews/21/README.md)
+### [Costco苏州开业首日挤爆说明了什么](/content/gnews/25/README.md)
  ` 澳喜农场`
 
-### [真、善、狠的真谛](/content/gnews/22/README.md)
+### [真、善、狠的真谛](/content/gnews/26/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [中概股人人网再度触发熔断](/content/gnews/23/README.md)
+### [中概股人人网再度触发熔断](/content/gnews/27/README.md)
  ` 澳喜农场`
 
-### [唯真不破反洗脑我信谁之一：医护的不同声音](/content/gnews/24/README.md)
+### [唯真不破反洗脑我信谁之一：医护的不同声音](/content/gnews/28/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共中央经济工作会议发出“导航”信息](/content/gnews/25/README.md)
- ` 儒为`
-
-### [郭文贵直播摘要和音频 2021.12.10](/content/gnews/26/README.md)
+### [郭文贵直播摘要和音频 2021.12.10](/content/gnews/29/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [新西兰医生Jonie Girouard博士被偷拍向反疫苗人士发放医疗证明豁免遭多项调查](/content/gnews/27/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [文贵视角：劫富致贫，企业国有化，个人神圣化，发动战争](/content/gnews/28/README.md)
- ` 秘密翻译组-原创组`
-
-### [7·24系列之“单伟建”——儿子单博](/content/gnews/29/README.md)
+### [7·24系列之“单伟建”——儿子单博](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
-
-### [美国商会调查：超过 40% 外企人员可能会离开香港](/content/gnews/30/README.md)
- ` 喜马拉雅农场新西兰站`
 
 ### [美驻华使馆代办谴责中共侵犯人权](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

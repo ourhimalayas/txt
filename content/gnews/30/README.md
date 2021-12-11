@@ -2,44 +2,57 @@
 ---
 
 
-## 美国商会调查：超过 40% 外企人员可能会离开香港
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1742783/)
+## 7·24系列之“单伟建”——儿子单博
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1742792/)
 
-编译：玫瑰天空
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片-1-19.jpg)
-据香港【美联社】12月8日发文报道——香港这个昔日繁华、国际化的商业中心可能正在失去其在外国公司和外籍人士心中的光彩，因为其严格的抗疫规定要求对新来者进行长达 21 天的隔离。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/bo-shan-house.png)图片来源：DIRT.com
+**整理/编辑：**翼族
 
-随着北京当局对这个前英国殖民地施加的更多控制，这些限制令使得各国游客和商务旅客望而却步，此外，还增加了这片半自治的中共国领土所面临的其他挑战。几个月来，商界一直在敦促当局放宽一些检疫限制，称香港可能会失去一些国际人才和作为区域金融中心的吸引力。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片-2-4.jpg)
-摩根大通首席执行官杰米·戴蒙 (Jamie Dimon) 曾于 11 月访问了香港，当香港允许其豁免规则时，这令一些人感到愤怒。香港特首林郑月娥则表示，戴蒙被给予与经济有关的例外，摩根大通“是一家在香港拥有主要业务的非常庞大的银行”。
+12月8号郭文贵先生盖特：让这些爱中共的共产党特务的所有的钱财和共产党的黑暗的交易曝光在阳光之下，让美国人民觉醒。 【[https://www.dirt.com/moguls/finance/…](https://www.dirt.com/moguls/finance/bo-shan-house-brentwood-1203303596/) 单建伟儿子 Bo Shan /Leilei Shan( 单博/单磊磊)在2019年以2000万美元买下的豪宅，位于Brentwood, Los Angeles, Calif. https://www.dirt.com/moguls/finance/bo-shan-house-brentwood-1203303596/】
 
-女演员妮可·基德曼 (Nicole Kidman) 在赴香港拍摄有关外籍人士的电视剧的部分内容时也获得了豁免，这也引起了评论家和当地立法者的愤怒。适逢香港本土居民必须支付高昂费用才能回国，是否应该允许名人来跳过隔离？这种例外令他们感到愤怒。
+根据郭先生转发的这篇DIRT网站的文章介绍，洛杉矶的这座豪宅被单博夫妇以约 1970万美元的“**全现金交易”（all-cash deal）**买下。
 
-香港的“COVID-zero”立场符合中共国大陆在很大程度上对国际世界关闭大门以防止病例被带入该国的政策。
-
-新的 omicron 病毒变种已在香港至少有四人为确诊病例。香港当局已将美国、英国、澳大利亚等约60个国家列为高风险地区。
-
-对于来自高风险地区的旅客，只允许香港居民入境，并必须自费在酒店隔离21天。从南非和津巴布韦等某些非洲国家抵达并报告出发地有omicron感染的旅行者必须在政府机构呆 7 天，接受日常检测，然后在酒店住两周，相关费用自理。
-
-只有来自中共国的旅客基本上免于隔离，但是，从香港前往中共国大陆大部分省份的旅客仍需隔离 3 周。
-
-香港领导人林郑月娥声称，她更关心的是恢复与中共国大陆的免检疫跨境旅行，而不是国际旅行。
-
-香港美国商会会长 Tara Joseph 表示，长期的限制正在损害香港的竞争力。香港欧盟商会主席弗雷德里克·戈洛布 (Frederik Gollob) 于 8 月给香港政府写了一封公开信，称该市严格的隔离措施可能“导致国际社会中的许多人质疑他们是否想无限期地留在香港。”
-
-许多居住在香港的外国人已经厌倦了这些限制。在美国商会最近的一项调查中，超过 40% 的成员表示他们可能会离开香港。
-
-香港的一些公司，如摩根大通、高盛和摩根士丹利，已开始提供员工的隔离费用。在该市最便宜的隔离酒店住 21 天，一人至少要花费 1,200 美元。很多企业员工因为无力支付高额隔离和检测费用而不得不放弃回家探亲。这也是最终他们会选择离开香港的原因之一。
-
-作为昔日亚洲金融中心的香港不仅仅是繁华和民主自由已然不再，随着各领域高端专业人才和外企的逐渐立场，其国际竞争力也会消失殆尽。在中共当局实施的留港不留人的计划之下，香港的没落虽然令人惋惜，但是却无法改变。
-
-援引原文：[https://apnews.com/article/coronavirus-pandemic-health-business-hong-kong-beijing-820c19dea64e62765697506db24dec2c](https://apnews.com/article/coronavirus-pandemic-health-business-hong-kong-beijing-820c19dea64e62765697506db24dec2c)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/million-dollar-listing-star-tracy-tutor-asking-23-9m-for-elegant-brentwood-abode2.jpg)图片来源：American Luxury
 
 
+单博（英文名：Bo Leilei Shan）是单伟建（Weijian Shan）的独子，对冲基金“戈壁资本有限责任公司”（Gobi Capital LLC）的创始人，在旧金山和洛杉矶设有办事处。单博的夫人凯瑟琳·杜琳（Catherine Dooling）是硅谷社区基金会（Silicon Valley Community Foundation，2018年传出丑闻的一家慈善机构）的投资官。
 
-审 阅：神之一手
-审核校对：Barry Jack
-上传排版：F
+据网络公开信息，单博是宾夕法尼亚大学沃顿商学院的工商管理硕士学位（MBA），自2009年8月1日起加入戈壁资本，拥有75%以上的股权。
+
+戈壁资本有限责任公司（以下简称“戈壁资本”）的登记地址在旧金山的一处公寓：909 Montgomery Street, Suite 400, San Francisco, CA 94133。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/GOBI.jpg)图片来源：Bloomberg
+
+
+有意思的是，戈壁资本的登记地址与加州参议员黛安·费恩斯坦（Dianne Feinstein）丈夫的百隆资本公司（Blum Capital）的地址一致。关于单伟建与费恩斯坦的关系，请参见文章《[7·24系列之“单伟建”——新桥资本和费恩斯坦参议员的关系](https://gnews.org/zh-hans/1735941/)》。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/BLUM.jpg)图片来源：blumcapital.com
+
+
+根据戈壁资本公布的最新文件，2021第二财政季度，戈壁资本收购了Gobi Acquisition Corp（戈壁收购公司）和Karooooo（新加坡的一家网络公司），出售了Visa Inc、Sea、Dragoneer Growth Opportunities Corp所持股份。截至2021年的第二财政季度，戈壁资本共持有13只股票，总价值17亿美元。其中戈壁资本投资占比最大的三家股票分别是：
+Facebook Inc（脸书） – 1,087,941 股，占总投资组合的22.78%；
+Alphabet Inc （谷歌） – 135,192 股，占总投资组合的 20.40%；
+Credit Acceptance Corp ( CACC ) – 587,803 股，占总投资组合的 16.07%。
+
+戈壁资本的总持股金额，从2016年开始的1.1亿美元，到2021年已增长至近40亿美元。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/未标题-1-1.jpg)gurufocus.com
+
+
+“戈壁收购”（Gobi Acquisition）是一家由太平洋联盟集团（PAG Group，即“太盟”） 成立的空白支票公司（SPAC），注册地在香港皇后大道东1号的太古广场3座33楼（Three Pacific Place, 33rd Floor, 1 Queen’s Road East），与太盟的办公地址一致。
+
+目前“戈壁收购”已向美国证券交易委员会SEC提交了不超过2.5亿美元的首次公开募股书，计划在纳斯达克上市，代码为“GOBI”。
+
+单伟建曾在2019年出版过一本自传式的回忆录，名为《走出戈壁》，由此可见单伟建的戈壁情节。但无论是戈壁资本公司还是戈壁收购公司，都不过是单伟建家族洗劫中国人民财富的壳公司。所以，即使单伟建的肉身走出了戈壁，但良知却永远留在了那片荒芜之地。
+
+*发布：翼族*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

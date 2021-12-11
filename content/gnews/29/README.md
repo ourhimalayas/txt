@@ -2,57 +2,49 @@
 ---
 
 
-## 7·24系列之“单伟建”——儿子单博
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1742792/)
+## 郭文贵直播摘要和音频 2021.12.10
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1742807/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/bo-shan-house.png)图片来源：DIRT.com
-**整理/编辑：**翼族
+摘要撰稿人：文俊
 
-12月8号郭文贵先生盖特：让这些爱中共的共产党特务的所有的钱财和共产党的黑暗的交易曝光在阳光之下，让美国人民觉醒。 【[https://www.dirt.com/moguls/finance/…](https://www.dirt.com/moguls/finance/bo-shan-house-brentwood-1203303596/) 单建伟儿子 Bo Shan /Leilei Shan( 单博/单磊磊)在2019年以2000万美元买下的豪宅，位于Brentwood, Los Angeles, Calif. https://www.dirt.com/moguls/finance/bo-shan-house-brentwood-1203303596/】
+音频提供者：左媛
+![](https://assets.gnews.org/wp-content/uploads/2021/12/64f2459d4e25a549a77af92f1840c73a.jpg)
+### 视频链接：
 
-根据郭先生转发的这篇DIRT网站的文章介绍，洛杉矶的这座豪宅被单博夫妇以约 1970万美元的“**全现金交易”（all-cash deal）**买下。
+[https://gtv.org/video/id=61b350ad56f4921401b40cca](https://gtv.org/video/id=61b350ad56f4921401b40cca)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/million-dollar-listing-star-tracy-tutor-asking-23-9m-for-elegant-brentwood-abode2.jpg)图片来源：American Luxury
+### 音频链接：
 
+### 摘要:
 
-单博（英文名：Bo Leilei Shan）是单伟建（Weijian Shan）的独子，对冲基金“戈壁资本有限责任公司”（Gobi Capital LLC）的创始人，在旧金山和洛杉矶设有办事处。单博的夫人凯瑟琳·杜琳（Catherine Dooling）是硅谷社区基金会（Silicon Valley Community Foundation，2018年传出丑闻的一家慈善机构）的投资官。
-
-据网络公开信息，单博是宾夕法尼亚大学沃顿商学院的工商管理硕士学位（MBA），自2009年8月1日起加入戈壁资本，拥有75%以上的股权。
-
-戈壁资本有限责任公司（以下简称“戈壁资本”）的登记地址在旧金山的一处公寓：909 Montgomery Street, Suite 400, San Francisco, CA 94133。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/GOBI.jpg)图片来源：Bloomberg
-
-
-有意思的是，戈壁资本的登记地址与加州参议员黛安·费恩斯坦（Dianne Feinstein）丈夫的百隆资本公司（Blum Capital）的地址一致。关于单伟建与费恩斯坦的关系，请参见文章《[7·24系列之“单伟建”——新桥资本和费恩斯坦参议员的关系](https://gnews.org/zh-hans/1735941/)》。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/BLUM.jpg)图片来源：blumcapital.com
-
-
-根据戈壁资本公布的最新文件，2021第二财政季度，戈壁资本收购了Gobi Acquisition Corp（戈壁收购公司）和Karooooo（新加坡的一家网络公司），出售了Visa Inc、Sea、Dragoneer Growth Opportunities Corp所持股份。截至2021年的第二财政季度，戈壁资本共持有13只股票，总价值17亿美元。其中戈壁资本投资占比最大的三家股票分别是：
-Facebook Inc（脸书） – 1,087,941 股，占总投资组合的22.78%；
-Alphabet Inc （谷歌） – 135,192 股，占总投资组合的 20.40%；
-Credit Acceptance Corp ( CACC ) – 587,803 股，占总投资组合的 16.07%。
-
-戈壁资本的总持股金额，从2016年开始的1.1亿美元，到2021年已增长至近40亿美元。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/未标题-1-1.jpg)gurufocus.com
+- 欧洲4个国家不但明确抵制冬奥会，而且考虑要与中共国经济脱钩
+- 中共威胁日本若抵制冬奥会的话 会对在华企业全面关闭
+- 俄罗斯警告美国 绝对不允许把乌克兰、台湾战争放在一起 千万不要把病毒 疫苗 经济危机跟俄罗斯绑在一起 我们绝对不一样
+- 杨洁篪在塞浦路斯和非洲抓了新中国联邦几十个战友
+- 加拿大战友要小心 中共工作小组正在收集很多加拿大战友信息
+- 拜登也会对中共展开一系列的动作对中共
+- 俄罗斯明确跟美国说他们不会跟中共站在一起
+- 俄罗斯明确表示不会参与中共的台海战争
+- 七哥判断：2022年年底以前中共将被踢出WTO，2023年5月份以前中共应该会被踢出SWIFT系统
+- 恒大债务中共卑鄙的处理方式：第一还欠银行的 第二还恒大的抵押的债务银行 第三选择性还海外 最后才是个人
+- 中共想要成功办好冬奥会的最大目的是：洗脱病毒来自中共、数学人民币国际化、冬奥会经济、万国来朝、然后在打台湾
+- 年轻人出奇一致地接受疫苗说明： 社交媒体、宗教、学习、工作，对大学生的洗脑程度最高的，四重围剿
+- 中国竟然75%的银行业务跟房地产有关系 在国际上 对西方是致命的 所有西方投到中共的钱是基金 不是贷款 基金经理人都是合法的小偷 房地产的烂账会打开西方所有灭垬的大门
+- Google每次点击，Google已经收钱了，这就是个人数据消费，躺平币的来源 就是被大数据公司拿走出卖的价值
+- 躺平币是根据你行动的结果 一切的行为结果都能计算成结果
+- 国内公检法等对战友们枪口抬高一寸的，都会得到百倍的躺币，十倍的喜币，每一个都会得到
+- 躺平币的计划是新中国联邦64两周年推出
+- 喜币超过比特币 绝对不只能单一比价格 还要比流通性等
+- 星期天在大直播
 
 
-“戈壁收购”（Gobi Acquisition）是一家由太平洋联盟集团（PAG Group，即“太盟”） 成立的空白支票公司（SPAC），注册地在香港皇后大道东1号的太古广场3座33楼（Three Pacific Place, 33rd Floor, 1 Queen’s Road East），与太盟的办公地址一致。
 
-目前“戈壁收购”已向美国证券交易委员会SEC提交了不超过2.5亿美元的首次公开募股书，计划在纳斯达克上市，代码为“GOBI”。
 
-单伟建曾在2019年出版过一本自传式的回忆录，名为《走出戈壁》，由此可见单伟建的戈壁情节。但无论是戈壁资本公司还是戈壁收购公司，都不过是单伟建家族洗劫中国人民财富的壳公司。所以，即使单伟建的肉身走出了戈壁，但良知却永远留在了那片荒芜之地。
 
-*发布：翼族*
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+编辑发布：闪电训练
+
+
 
  
 
