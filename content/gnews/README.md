@@ -15,101 +15,101 @@
 
 ---
 
-### [习近平“红色皇帝” （二）](/content/gnews/1/README.md)
+### [俄罗斯尽显双头鹰本色，与美国私下表态形成联美抗共统一战线](/content/gnews/1/README.md)
+ ` YALUN 亚伦`
+
+### [一切都是刚刚开始](/content/gnews/2/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [伊维菌素可以对抗冠状病毒](/content/gnews/2/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [习近平“红色皇帝” （一）](/content/gnews/3/README.md)
+### [习近平“红色皇帝” （二）](/content/gnews/3/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [斯伯丁准将3: 中共全球释放病毒，视同对世界开战](/content/gnews/4/README.md)
+### [伊维菌素可以对抗冠状病毒](/content/gnews/4/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [CNN 制片人被捕，被指控强奸年仅 9 岁的儿童](/content/gnews/5/README.md)
+### [习近平“红色皇帝” （一）](/content/gnews/5/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [斯伯丁准将3: 中共全球释放病毒，视同对世界开战](/content/gnews/6/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [CNN 制片人被捕，被指控强奸年仅 9 岁的儿童](/content/gnews/7/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [斯伯丁准将2: 中共国力图成为数据资源的霸主](/content/gnews/6/README.md)
+### [斯伯丁准将2: 中共国力图成为数据资源的霸主](/content/gnews/8/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [埃隆.马斯克：“文明行将崩溃”](/content/gnews/7/README.md)
+### [埃隆.马斯克：“文明行将崩溃”](/content/gnews/9/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [普京和拜登会谈继续向亚洲倾斜，普京的最新对外政策告诉我们什么？](/content/gnews/8/README.md)
+### [普京和拜登会谈继续向亚洲倾斜，普京的最新对外政策告诉我们什么？](/content/gnews/10/README.md)
  ` 纽约香草山MOS02`
 
-### [斯伯丁准将1: 当你控制了信息，基本上可以控制世界](/content/gnews/9/README.md)
+### [斯伯丁准将1: 当你控制了信息，基本上可以控制世界](/content/gnews/11/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [家庭反洗脑序列-第39篇 法在哪里](/content/gnews/10/README.md)
+### [家庭反洗脑序列-第39篇 法在哪里](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [班农专访4: 美国千人专家团队发起反人类诉讼](/content/gnews/11/README.md)
+### [班农专访4: 美国千人专家团队发起反人类诉讼](/content/gnews/13/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [班农专访3:金融大亨们正在抛售股票，逃离股市](/content/gnews/12/README.md)
+### [班农专访3:金融大亨们正在抛售股票，逃离股市](/content/gnews/14/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [藏族学生国际奥委会外抗议北京冬奥会，把自己锁上奥运五环](/content/gnews/13/README.md)
+### [藏族学生国际奥委会外抗议北京冬奥会，把自己锁上奥运五环](/content/gnews/15/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [爆料革命日记（三）：强子（中）](/content/gnews/14/README.md)
+### [爆料革命日记（三）：强子（中）](/content/gnews/16/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共承诺放弃许多发展中国家在WTO享有的利益](/content/gnews/15/README.md)
+### [中共承诺放弃许多发展中国家在WTO享有的利益](/content/gnews/17/README.md)
  ` HimalayaRussia`
 
-### [班农专访2：滴滴退市，私募股权和养老基金损失巨大](/content/gnews/16/README.md)
+### [班农专访2：滴滴退市，私募股权和养老基金损失巨大](/content/gnews/18/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [俄罗斯作壁上观，使美国与中共变成毫无悬念的局部战争](/content/gnews/17/README.md)
+### [俄罗斯作壁上观，使美国与中共变成毫无悬念的局部战争](/content/gnews/19/README.md)
  ` NewFOC`
 
-### [《我是音雄》第二季第十六期半决赛第三场｜节目预告](/content/gnews/18/README.md)
+### [《我是音雄》第二季第十六期半决赛第三场｜节目预告](/content/gnews/20/README.md)
  ` 我是音雄`
 
-### [中共加入WTO骗取美国西方大量资产](/content/gnews/19/README.md)
+### [中共加入WTO骗取美国西方大量资产](/content/gnews/21/README.md)
  ` G-NEWS TAIWAN`
 
-### [联合国将公布中共在新疆侵犯人权的调查结果](/content/gnews/20/README.md)
+### [联合国将公布中共在新疆侵犯人权的调查结果](/content/gnews/22/README.md)
  ` HimalayaRussia`
 
-### [银河快讯:日本新增8例Omicron病例；丰田公司12月的停产范围扩大](/content/gnews/21/README.md)
+### [银河快讯:日本新增8例Omicron病例；丰田公司12月的停产范围扩大](/content/gnews/23/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [GTV新闻访谈简报|2021年12月11日早](/content/gnews/22/README.md)
+### [GTV新闻访谈简报|2021年12月11日早](/content/gnews/24/README.md)
  ` 纽约香草山MOS01`
 
-### [反对医疗欺诈和争取人权的国际游行](/content/gnews/23/README.md)
+### [反对医疗欺诈和争取人权的国际游行](/content/gnews/25/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [国际人权日美国宣布制裁中共国等国侵犯人权官员和实体](/content/gnews/24/README.md)
+### [国际人权日美国宣布制裁中共国等国侵犯人权官员和实体](/content/gnews/26/README.md)
  ` 日本东京方舟农场`
 
-### [MV版Hcoin To the Moon上线第2天位列25国iTunes热门MV榜首！](/content/gnews/25/README.md)
+### [MV版Hcoin To the Moon上线第2天位列25国iTunes热门MV榜首！](/content/gnews/27/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [俄罗斯通报绝非中共在乌克兰台湾和病毒疫苗方面的同盟](/content/gnews/26/README.md)
+### [俄罗斯通报绝非中共在乌克兰台湾和病毒疫苗方面的同盟](/content/gnews/28/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [浙江三地疫情升温 全省进入“战斗状态”](/content/gnews/27/README.md)
+### [浙江三地疫情升温 全省进入“战斗状态”](/content/gnews/29/README.md)
  ` 日本东京方舟农场`
 
-### [台湾多家银行ATM机出现大规模宕机 众多民众无法取款](/content/gnews/28/README.md)
+### [台湾多家银行ATM机出现大规模宕机 众多民众无法取款](/content/gnews/30/README.md)
  ` 日本东京方舟农场`
 
-### [12/10/2021 文贵直播：独裁者通过社交媒体洗脑、散播仇恨，收买大学、科学家和大机构，制造宗教矛盾、国家和民族冲突，用科学宗教主义让人打毒疫苗](/content/gnews/29/README.md)
- ` 秘密翻译组-北美组`
-
-### [12/11/21 香港快讯 港驻伦敦经贸办去信《星期日泰晤士报》 斥社论失实 吁杯葛选举违法](/content/gnews/30/README.md)
+### [12/11/21 香港快讯 港驻伦敦经贸办去信《星期日泰晤士报》 斥社论失实 吁杯葛选举违法](/content/gnews/31/README.md)
  ` 英喜-粵語組`
 
-### [美众议院通过三项针对中共国人权问题法案](/content/gnews/31/README.md)
+### [美众议院通过三项针对中共国人权问题法案](/content/gnews/32/README.md)
  ` 日本东京方舟农场`
-
-### [12/10/2021文贵直播：中共在冬奥会期间将加大对内洗脑和对外宣传，对将撤资的外企先下手为强，然后找出所谓的政治野心家充当替死鬼，掩盖错误，最后可能打台湾，国内实行战时国有化](/content/gnews/32/README.md)
- ` 秘密翻译组-北美组`
 
 ### [俄罗斯的站位](/content/gnews/33/README.md)
  ` 骄子`

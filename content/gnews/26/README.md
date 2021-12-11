@@ -2,38 +2,36 @@
 ---
 
 
-## 俄罗斯通报绝非中共在乌克兰台湾和病毒疫苗方面的同盟
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1743728/)
+## 国际人权日美国宣布制裁中共国等国侵犯人权官员和实体
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1743737/)
 
-**郭文贵先生：**原因还有一个就是俄罗斯，在俄罗斯这次上太明确的，俄罗斯就告诉了美国和欧洲，你们绝对不允许——两件事儿不能把我们放在一起，你们要放在一起，我可以告诉大家今天文贵说这是天下第一个人说出来的，没有任何人知道的，参加会的人就是极少人。
+#### 撰稿：日本东京方舟农场 北极
 
-你知道俄罗斯说什么？——绝对不允许把我们和乌克兰和台湾和共产党的行动放在一起，绝对没有这事儿！你们千万别这么想，那将是战略上重大失误！咱们之间就会出大误会了；
+![](https://assets.gnews.org/wp-content/uploads/2021/12/4FAC7535-1617-4707-95E5-CEF3EB089FD4.jpeg)鸟瞰位于华盛顿的美国财政部大楼（资料图片来《美国之音》中文网  ）
 
-第二件事情，你们千万别把共产党的病毒和疫苗，还有整个疫苗政策和共产党的经济跟我俄罗斯绑在一起，我们绝对跟它不一样；
+美国财政部在12月10日“国际人权日”这一天宣布，对被认定严重侵犯人权的中（共）国、朝鲜等几个国家的15个个人及10个实体依法实施制裁。此次制裁对象中包括中共国新疆的两名官员以及数家中共国公司及其主管。
 
-最后，欸，等等等等！还有个南海问题，南海问题我们跟中共绝对不同步，它给我们钱我们就去转去，我们在哪都是转悠。记住这是七哥今天给你们说的历史性的时刻，还会像过一两年让你们证明。
+“在国际人权日，财政部使用其工具揭露严重侵犯人权者，并对他们究责，”美国财政部副部长沃利∙阿德耶莫（Wally Adeyemo）在新闻稿中指出： “我们今天的行动，特别是与英国和加拿大合作采取行动，是要传递这样一个信息：全球的民主国家都会对那些滥用国家权力迫害人权者采取行动。”
 
-视频制作：小满；
+当天，美国财政部外国资产管制办公室点名了在2018年至2021年期间，分别担任新疆维吾尔族自治区政府主席和副主席、代主席的雪克来提∙扎克尔和艾尔肯∙吐尼亚孜，指责他们在任职期间非法拘押100多万维吾尔族人和其他穆斯林少数民族人士。
 
-视频上传：Cindy；
+美国财政部认定扎克尔和吐尼亚孜属于在任职期间严重侵犯人权的政府机构领导人或官员，因此依法对他们实施制裁，并冻结他们藏匿在外国的财产。同一天，美国国务院也宣布对上述两人实施签证限制，禁止他们进入美国。
 
-G-News发布：黎明之前；
+今年7月9日，美国财政部资产管制办公室已经认定新疆公安厅严重侵犯人权。该办公室称，自2016年下半年以来，新疆公安厅使用名为“一体化联合行动平台”的人工智能电脑系统，对新疆几百万维吾尔族人的相貌进行了生物统计学录制，并进行监控和跟踪，甚至还利用这些数据在新疆对维吾尔族人进行大规模拘押。美国财政部因此对新疆公安厅实施了制裁。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+而此次，财政部外国资产管制办公室又认定中共国人工智能公司“商汤科技”同样涉及侵犯人权，理由是该公司研发出可以识别少数民族人脸，特别是有胡子、戴眼镜或戴口罩维吾尔族人的人脸识别技术，因此对其予以制裁。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+此外，在同一天，同样因严重侵犯人权而受到美国制裁的还有朝鲜SEK动画工作室、朝鲜中央公共检察官办公室、朝鲜人民武装力量部部长李永吉，以及俄国欧洲公平学院等个人和实体。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+*参考链接：[美国在国际人权日宣布制裁中国等国严重侵权官员和实体](https://www.voachinese.com/a/US-treasury-sanctions-perpetrators-of-serious-human-rights-abuse-on-international-human-rights-day-20211210/6349239.html)*
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+* * *
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+*素材采编：北极*
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+*编辑：青衣青青*
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+*发布：miumiu*
 
  
 

@@ -2,34 +2,38 @@
 ---
 
 
-## 台湾多家银行ATM机出现大规模宕机 众多民众无法取款
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1743699/)
+## 俄罗斯通报绝非中共在乌克兰台湾和病毒疫苗方面的同盟
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1743728/)
 
-#### 撰稿：日本东京方舟农场  海星
+**郭文贵先生：**原因还有一个就是俄罗斯，在俄罗斯这次上太明确的，俄罗斯就告诉了美国和欧洲，你们绝对不允许——两件事儿不能把我们放在一起，你们要放在一起，我可以告诉大家今天文贵说这是天下第一个人说出来的，没有任何人知道的，参加会的人就是极少人。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/D4D65174-691D-46F1-B271-AE6EAE7F3A68.jpeg)图片来源：Unsplash
+你知道俄罗斯说什么？——绝对不允许把我们和乌克兰和台湾和共产党的行动放在一起，绝对没有这事儿！你们千万别这么想，那将是战略上重大失误！咱们之间就会出大误会了；
 
-12月11日，台湾多家银行的ATM机（自动柜员机）出现大规模宕机，众多民众上网求助，直呼不能取款购物。
+第二件事情，你们千万别把共产党的病毒和疫苗，还有整个疫苗政策和共产党的经济跟我俄罗斯绑在一起，我们绝对跟它不一样；
 
-据台湾媒体综合报道，12月11日傍晚，有台湾民众投诉，多家银行的ATM机出现宕机，不仅无法跨行交易，甚至还不能取款，涉及银行包括中信、台新、国泰等。
+最后，欸，等等等等！还有个南海问题，南海问题我们跟中共绝对不同步，它给我们钱我们就去转去，我们在哪都是转悠。记住这是七哥今天给你们说的历史性的时刻，还会像过一两年让你们证明。
 
-许多民众在网络论坛上纷纷发帖，表示遇到无法取钱的问题：“渣打、邮局都不能取钱”、“彰银和兆丰也是”、 “刚刚去7-11和全家购物，全部宕机”。
+视频制作：小满；
 
-金管会银行局随后证实，由于财金公司的大型主机系统异常，导致各银行的跨行交易系统受到影响。不过目前许多银行已经逐步恢复正常使用。
+视频上传：Cindy；
 
-*参考链接：*
+G-News发布：黎明之前；
 
-1. [*ATM大當機！金管會：財金公司主機異常 目前已恢復*](https://ec.ltn.com.tw/article/breakingnews/3765586)
-2. [*全台ATM大當機！ 財金公司董事長回應了*](https://tw.news.yahoo.com/%E5%85%A8%E5%8F%B0atm%E5%A4%A7%E7%95%B6%E6%A9%9F-%E6%B0%91%E7%9C%BE%E9%A0%98%E4%B8%8D%E5%88%B0%E9%8C%A2%E5%B4%A9%E6%BD%B0-101330083.html)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-* * *
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-*素材采编：海星*
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-*编辑：青衣青青*
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-*发布：miumiu*
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
