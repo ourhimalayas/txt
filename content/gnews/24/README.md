@@ -2,37 +2,31 @@
 ---
 
 
-## DC每日热点1211
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1743314/)
+## 有声|英国、加拿大宣布外交抵制中共北京冬奥会
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1743362/)
 
-编辑：楚门门
-![](https://assets.gnews.org/wp-content/uploads/2021/12/62D23859-B0D3-4A9E-BF7F-A3395C87CC03-scaled.jpeg)
-道琼斯指数 35970.99 ▲0.61%
-纳斯达克指数 15630.60 ▲0.73%
-WTI纽约原油CFD 71.997 ▲1.49%
-布伦特原油CFD 75.314 ▲0.22%
-标普50指数 3,179.42 ▼34.78%
-美元兑人民币 1USD=6.370 RMB
-美元兑港币 1USD=7.798 HKD
-国际黄金 1782.84美元/盎司
-全球CCP病毒感染人数 269,570,782例
+配音：香草山香港部 – 文凯琳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+加拿大总理特鲁多称，加拿大对中共政府一再侵犯人权的行为感到极为关切，因此，加拿大将不会派遣任何外交代表参加中共举办的冬奥会。同日，英国首相约翰逊也表示，虽然英国不对运动员参赛奥运会做出限制，但英国政府会毫无犹豫地对中共北京冬奥会实施外交抵制。
 
-1、世界银行向阿富汗拨款2.8亿美元助其应对人道主义危机
-2、法国与希腊正在谈的海军军售恐生变：美国也向希腊提出军售计划
-3、中俄两国敲定远东超大石化工厂融资
-4、德国安联保险公司考虑削减在北京冬奥会的广告
-5、美国通胀飙升至近40年高位，考验拜登
-6、接送国际运动员和官员：北京冬奥将主要靠包机，临时航班与防疫闭环
-7、潜舰合同事件后 澳大利亚计划弃用欧产直升机改用美制
-8、美国或要求乌克兰给予乌东分裂地区自治权 乌总统表态不排除公投
-9、俄要求北约否决乌克兰入盟的希望，北约称不允许俄重建大国势力范围
-10、欧盟将制裁俄罗斯雇佣军公司瓦格纳
-11、美国公布制裁名单 新疆维吾尔自治区政府现任前任主席上榜
-12、美澳挪丹四国发表联合声明 推出“出口管制和人权”倡议
-13、不满受制裁白俄钾肥继续过境 立陶宛外长要求辞职
-14、阿联酋证实已停止阿布扎比港口中共国设施的施工
-15、英高等法院裁定阿桑奇可被引渡赴美 亲属指将上诉
-16、新披露新疆文件将习近平新疆政策直接挂钩，中共国官媒开始混淆视听
+对此，在12月8日的直播中，郭文贵先生也提到，依照原先约定，本将有57国的领导人参加中共此次的冬奥会，但如今只余3国领导人表示会出席，且他们要求习近平本人必须亲自接见。郭先生解释，这意味着习近平在冬奥会上的个人政治彻底破产，同时，中共的国家信用也彻底破产。
+
+原文链接：[英国、加拿大宣布外交抵制中共北京冬奥会](https://gnews.org/zh-hans/1737025/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+
+音频处理：喜山必胜Maverick
+
+发稿：Daxia
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
 
  
 

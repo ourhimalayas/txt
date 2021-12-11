@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/11/2021 4:38 PM (UTC)`
+
+12/10/2021 Miles Guo: Social media is more lethal than nukes! Dictators control people by brainwashing them and spreading hatred via social media, buying off universities, scientists, and major institutions, provoking religious conflicts, nationalistic and ethnic conflicts, and using the science cult to make people get the poisonous COVID jabs; we are witnessing the Degenerate Age of Dharma, and it’s the stupid ones who will die<br/><br/>12/10/2021 文贵直播：社交媒体胜过核武器！独裁者通过社交媒体洗脑、散播仇恨，收买大学、科学家和大机构，制造宗教矛盾、国家和民族冲突，用科学宗教主义让人打毒疫苗；现在是末法时代，死的是愚蠢的人<br/>
+![img](https://media.gettr.com/group16/getter/2021/12/11/16/c368733f-5d59-5eae-c0d5-559b0a12ed53/out.jpg)
+
+---
+
 `@miles 12/11/2021 3:42 PM (UTC)`
 
 12/10/2021 Miles Guo: During the 2022 Winter Olympics, the CCP will strengthen its brainwashing domestically and ramp up propaganda internationally, and then the CCP will take the initiative to go against the foreign businesses that are going to withdraw from Communist China. Later, the CCP will scapegoat those who have the so-called political ambitions to cover up its own mistakes. The CCP may eventually invade Taiwan and implement war-time nationalization in Communist China<br/><br/>12/10/2021文贵直播：中共在冬奥会期间将加大对内洗脑和对外宣传，对将撤资的外企先下手为强，然后找出所谓的政治野心家充当替死鬼，掩盖错误，最后可能打台湾，国内实行战时国有化<br/>
@@ -147,13 +154,6 @@ Hcoin To The Moon MV 上线仅仅3小时， 澳洲🇦🇺，香港 🇭🇰的i
 
 12/8/2021 Miles Guo: Boycotting the Winter Olympics is the decision of all Americans, and the CCP’s Winter Olympics is finished for good; the CCP is bound to be kicked out of the WTO and the SWIFT international payment network; Russia is returning to East Asia, and the new era of the US-Russia coalition to destroy the CCP has begun<br/><br/>12/8/2021 文贵直播：抵制冬奥会是所有美国人的决定，中共冬奥会已彻底结束；中共必被踢WTO和SWIFT系统；俄罗斯正在重返东亚，开启美俄联合灭共新时代；中共只能去打台湾了<br/>
 ![img](https://media.gettr.com/group47/getter/2021/12/09/15/db1a7699-a640-3246-c424-ef3c4f9fccac/out.jpg)
-
----
-
-`@miles 12/9/2021 3:19 PM (UTC)`
-
-12/8/2021 Miles Guo: Boycotting the Beijing Winter Olympics basically means the CCP is sentenced to death, and the New Federal State of China has made great contributions to it! The Guo’s Seven Principles no longer apply, and we will do everything we can to take down the CCP!<br/><br/>12/8/2021 文贵直播: 干掉北京冬奥会意味着中共基本被判处了死刑，新中国联邦在此事上功不可没！世上不再有郭七条，我们会采取一切手段来灭共！<br/>
-![img](https://media.gettr.com/group6/getter/2021/12/09/15/7de1dfdb-3758-d2bb-7561-b3e457d1e25c/out.jpg)
 
 ---
 
