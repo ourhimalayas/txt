@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/11/2021 2:07 AM (UTC)`
+
+12/10/2021 Miles Guo: Yang Jiechi has arrested over a dozen fellow fighters who are Cypriot passport holders; the Himalaya Alliance Committee will rescue them at all cost; fellow fighters must leave Cyprus immediately if possible, and Dubai is not safe either; fellow fighters in Canada must watch out for the CCP spies lurking in our Whistleblowers’ Movement!<br/><br/>12/10/2021 文贵直播：杨洁篪抓了拿塞浦路斯护照的十几位战友，联盟委员会将全力营救他们；请能离开塞浦路斯的战友马上走，迪拜也不安全；请加拿大的战友务必小心中共潜伏的特务！<br/>
+![img](https://media.gettr.com/group31/getter/2021/12/11/02/53983b06-28da-c60c-9b9f-83c9a3c2c24a/out.jpg)
+
+---
+
 `@miles 12/11/2021 1:08 AM (UTC)`
 
 12/10/2021 Miles Guo: Four European countries say they will boycott the Winter Olympics and consider decoupling from the CCP economy - This is a historic event! The reason is a) the CCP threatened the US, Japanese, and European companies in Communist China regarding these countries’ boycotts of the Winter Olympics and b) the Russians demanded that the US and Europe separate them from the CCP<br/><br/>12/10/2021 文贵直播：欧洲四国表示将抵制冬奥会并考虑与中共经济脱钩是历史性的事件！原因是中共就抵制冬奥会威胁美日欧的在华企业以及俄罗斯要求美欧将其与中共分开<br/>
@@ -145,13 +152,6 @@ Forbes news on Dec 8, 2021:<br/><br/>This week’s World Digital Song Sales char
 
 12/08/2021 Miles Guo: Weijian Shan reports directly to Wang Qishan and can arrange meetings with the CCP’s high level cadres by making a single phone call; Weijian Shan looks down upon Xi Jinping, and he, Bruno Wu, and others work together to attack me and the Whistleblowers’ Movement; Shan can meet with the world’s leaders in the secret rooms in Davos<br/><br/>12/08/2021 文贵直播：单伟建的直接领导是王岐山，一个电话就能安排见中共高官；单伟建瞧不起习近平，他和吴征等联合攻击文贵和爆料革命；单伟建能在达沃斯跟国际领导人在密室会谈<br/>
 ![img](https://media.gettr.com/group2/getter/2021/12/09/02/5980d9a1-c683-4e20-4141-979c484a71c9/out.jpg)
-
----
-
-`@miles 12/8/2021 11:47 PM (UTC)`
-
-12/08/2021 Miles Guo: The Ministry of Foreign Affairs is a foreign intelligence agency of the CCP. Weijian Shan was born to the parents working for the CCP’s Ministry of Foreign Affairs, and he has been using the PAG to carry out actions against me in the US, BVI, and Beijing on behalf of the CCP<br/><br/>12/08/2021 文贵直播：中共外交部是共产党的对外情报机构，单伟建是外交部子弟，他利用太平联盟代表中共在美国、在BVI、和在北京采取的一系列活动都是针对文贵的<br/>
-![img](https://media.gettr.com/group11/getter/2021/12/08/23/30ccb19f-e037-6c32-bb56-3bd7d2bddf9b/out.jpg)
 
 ---
 

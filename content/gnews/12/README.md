@@ -2,20 +2,31 @@
 ---
 
 
-## 加拿大学生受害于疫苗接种政策
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1741283/)
+## 七哥谈：唢呐送葬（2021-12-10摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1741324/)
 
-原文采编：文莱  翻译编辑：文所未闻
-![](https://assets.gnews.org/wp-content/uploads/2021/12/06-image-3.jpg)
-据加拿大自媒体《真北方》12月8日报道，安大略省皮尔学区的家长接到通知：凡12岁以上的学生必须完全接种“新冠病毒”疫苗，否则将无资格参与学校之间进行的各项体育比赛。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-报道称，学生及其家长对此深受其困。不仅担心以上规定会在接种和未接种的学生之间产生分裂，更恐惧该疫苗对青春期孩子带来高发病率的心肌炎或心包炎等重大疾病及其导致的死亡。
+来源：郭先生2021-12-10直播09：02：36 摘录
 
-校对编辑：硫酸羟氯喹64
+大年春节咱要给共产党送葬，给习近平给习近平的娘齐心送葬。我们一定要带上最好的音乐，我们那个唢呐中国的唢呐，是送你生送你死都是唢呐。那我们的唢呐一定向我们山德老家‘啊啊啊啊’，哎呦我的妈呀这浑身都哆嗦‘啊啊啊’是吧。咱要让他听着一嗓子叫他终生难忘。
 
-发稿：苦尽甜来 (文來）
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-[原文链接](https://tnc.news/2021/12/08/peel-students-must-be-vaccinated-to-play-high-school-sports/)
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
