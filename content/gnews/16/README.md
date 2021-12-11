@@ -2,45 +2,47 @@
 ---
 
 
-## 2021/12/10墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1740911/)
+## 取消的手术揭示了政府封锁的悲惨代价
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1740938/)
 
-一、12月7日， 广东广州。佳兆业千万豪宅烂尾，大量业主购房5年仍未收房，业主现场哭诉无门。
+作者：RebelNews
+翻译：HimaBoy
 
-二、12月7日，长沙平和堂商场内一女子轻生跳楼，砸中一名路过老人。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-126.png)
 
-三、12月8日，山东菏泽，女子驾车到劳务市场招工人，被大量失业工人瞬间“围住”。
+在昨晚的节目以斯拉地中海秀中，以斯拉讨论新报告，强调在过去两年政府封锁的悲惨成本。
 
-四、12月8日，福建莆田。疑因药店占道经营，城管将店外药品扔进垃圾桶。
+在过去两年中，有 29,000 名加拿大人死于新冠肺炎。好多啊。但事实并非如此，这比同一时期死于流感的人数要高一些。
 
-五、12月5日，广东深圳。男子躺在钉板上用真石头表演胸口碎大石，表演时间长达半小时。
+但根据这份新报告，包括癌症手术在内的 50 万例手术已被取消。您是否怀疑过那些错过的手术而死亡或将死亡的人会超过 29,000 人？
 
-六、12月7日，湖北武汉。一男乘客在地铁站候车时突然倒地。
+这只是手术。
 
-七、12月5日，新疆喀什。一女子在吃饭途中突然晕倒。
+《环球邮报》最近一篇关于该主题的文章如下：
 
-八、12月3日，云南昭通。 一家长在自己孩子朗诵比赛前突然晕倒在地不省人事。
+根据一份强调大流行造成的附带损害新报告，从 2020 年 3 月到 2021 年 6 月，在加拿大医院进行的手术数量减少了 50 多万。
 
-九、同工不同命，黄色的是建筑工地工人干活时佩戴的安全帽，白色的是建筑工地监理所佩戴。
+对此，以斯拉表达，政客们封锁的政策没有阻止新冠反而导致更多的死亡。
 
-十、12月6日，上海。劣质的建筑质量加混乱的日常维护，不出意外得靠个人的“好运”。顶楼房檐水泥块松动也无人处理。
+来源：[https://www.rebelnews.com/cancelled\_surgeries\_showcase\_the\_tragic\_costs\_of\_government\_lockdowns](https://www.rebelnews.com/cancelled_surgeries_showcase_the_tragic_costs_of_government_lockdowns)
 
-十一、山东枣庄，土地被开发商违占，开发商挖掘机在凌晨五点房内有人熟睡的情况下进行强拆。
+（文章仅代表作者个人观点）
 
-*搜集： Filon / 翻译：yyshere / 校对：clau*
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-* * *
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)](https://www.gettr.com/user/7UPgogo)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
+**关注我们**
 
-编辑：【英国伦敦喜庄园编辑部】
+Discord 账号
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
+Gettr 账号
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

@@ -2,31 +2,20 @@
 ---
 
 
-## 七哥谈：唢呐送葬（2021-12-10摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1741324/)
+## 从今天起没有郭7条
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1741338/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+从今天起，只要能灭共的，一切都得干，只要能保护好战友的，什么都得干。充分的利用当地国的法律。
 
-来源：郭先生2021-12-10直播09：02：36 摘录
+**【郭先生直播摘要】**** 2021.12.8 ****从今天起没有郭****7****条**
 
-大年春节咱要给共产党送葬，给习近平给习近平的娘齐心送葬。我们一定要带上最好的音乐，我们那个唢呐中国的唢呐，是送你生送你死都是唢呐。那我们的唢呐一定向我们山德老家‘啊啊啊啊’，哎呦我的妈呀这浑身都哆嗦‘啊啊啊’是吧。咱要让他听着一嗓子叫他终生难忘。
+**郭先生：**
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+从今天起，没有郭7条，不存在郭7条。 只要能灭共的，一切都得干。只要能保护好战友的，什么都得干。充分的利用当地国的法律，只要是保护好战友的一切都得干。因为这个行动所有遭受损失，郭文贵、新中国联邦、法治基金、法治社会，承担一切后果。
 
-**关注我们**
+所有的成本，所有的后果我们承担一切后果，如果大家有信心，我们要加速共产党的灭亡，一定在2025年以前把它消灭，离开这个世界。
 
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+视频剪辑：北方信使 |听写/校对：烟波浩淼 | 翻译：Arthur | 视频制作+字幕：刀锋舞者 |编辑&发布：断播
 
  
 

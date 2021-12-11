@@ -2,128 +2,42 @@
 ---
 
 
-## MV版Hcoin To the Moon上线第1天位列29国iTunes热门MV榜首 !
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1740912/)
+## 日本卫生部对辉瑞和Moderna covid疫苗发出心脏警告
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1741261/)
 
-12/10/2021 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线第1天位列29国iTunes热门MV榜榜首!
+2021 年 12 月 10 日，星期五
 
-* * *
+作者：Lance D Johnson
 
-[【PDF 下载】Friday-10-Dec-2021-Songs-by-Miles-Guo-Billboard-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record.pdf)
+翻译：沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2021/12/red-blood-cell-edited.jpg)图片来源：网络
+自然新闻：日本厚生省收到了几份关于年轻人在服用辉瑞或现代 mRNA 疫苗后出现严重心脏炎症的报告。 公共卫生官员最近召开了一个专家小组会议，讨论年轻男性和青少年心肌炎和心包炎的发病率。 在世界各地，原本健康的运动员、教练员和裁判员因心脏问题而在球场上倒下。 日本在年轻和中年男性中看到了类似的心血管问题。
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_2.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_3.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_4.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_6.jpg)
+日本厚生省警告 mRNA 疫苗引起心肌炎
 
+日本厚生省发现“Moderna 和辉瑞 Covid 疫苗可能会对年轻男性造成与心脏相关的副作用”。 该机构正在调查需要住院治疗的心脏炎症病例的上升情况。 没有感染严重新冠病毒风险的青少年和成年人正在排队购买无效的疫苗并被疫苗损坏。 心肌和心脏外层炎症的发生率正在上升。
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_8-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_9-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_10-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_11-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_12-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_13-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_14-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_15-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_16-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_17.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_18.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_19.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_20.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_21.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_22.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_23.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_24.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_25.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_26.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_27.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_28.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_29.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_30.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_31.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_32.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_33.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_34.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_35.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_36.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_37.jpg)
+根据日本厚生省截至 2021 年 11 月 14 日记录的官方数据，每 100 万名男性青少年接种 Moderna 疫苗，就有 80 例心肌炎！ 该机构没有报告女性心肌炎的发病率。 对于20多岁的男性来说，每100万剂就有48例心肌炎。Covid mRNA疫苗是市场上最危险的疫苗。 辉瑞注射剂也表现出类似的问题，导致青少年男性每 100 万剂中有 15 例心肌炎，20 多岁的男性每 100 万剂中有 13 例心肌炎。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_38.jpg)
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_39.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_40.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_41.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_42.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_43.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_44.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_45.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_46.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_47.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_48.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_49.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_50.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_51.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_52.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_53.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_54.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_55.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_56.jpg)
+日本厚生劳动省没有将疫苗从市场上撤下，而是同意在疫苗随附的文件中添加警告。 医院必须报告在接种疫苗后 28 天内出现症状的任何事件。 在这些生物武器被处理和焚烧之前，有多少年轻人要受苦？
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_58-1.jpg)
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_59-3.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_60.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_61.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_62.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_63.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_64.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_65.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_66.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_67.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_68.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_69.jpg)
+以色列也发现了心肌炎风险
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_70.jpg)
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_71.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_72.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_73.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_74.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_75.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_76.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_77.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_78.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_79.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_80.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_81.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_82.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_83.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_84.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_85.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_86.jpg)
+该数据与以色列官方报告的心肌炎病例一致。 一项题为“大型医疗保健组织接种 Covid-19 疫苗后的心肌炎”的研究发现，辉瑞疫苗在普通人群中每 100 万人引发了 21.3 例心肌炎。 该研究调查了以色列最大的医疗保健组织 Clalit Health Services 的 250 万接种疫苗的人。 接受至少一剂辉瑞的以色列人患心肌炎的风险增加，特别是如果他们年轻。 在 16 至 29 岁年龄组中，每 100 万人中约有 100 例心肌炎。 尽管有大量证据表明疫苗失败和心脏受损，但以色列正在推动另一轮疫苗接种并哄骗儿童破坏他们的健康。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_87.jpg)
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_88.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_89.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_90.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_91.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_92.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_93.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_94.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_95.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_96.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_97.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_98.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_99.jpg)
+刺突蛋白 mRNA 将氧气从红细胞中拉出
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_100.jpg)
-[【PDF 下载】Friday-10-Dec-2021-Songs-by-Miles-Guo-Billboard-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Friday-10-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record.pdf)
+在简单的显微镜研究中，可以看到刺突蛋白 mRNA 将氧气从红细胞中拉出来。 理查德·弗莱明 (Richard Fleming) 博士从一个人身上获取了红细胞样本，并将它们置于显微镜下的两种不同环境中。 一种设置是盐水溶液，一种是辉瑞的刺突蛋白 mRNA。
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+“我们不幸地发现，当加入辉瑞疫苗时，红细胞会失去红色。 这意味着要么氧气被抽出细胞，要么血红蛋白本身在细胞中被分解”，弗莱明说。 当血液与疫苗接触时，红细胞会失去颜色，变得苍白。 吸出氧气后，红细胞开始凝聚，在显微镜下凝固。  “你可以看到辉瑞疫苗溶液中细胞的运动。 我第一次这样做时，我的反应是这太令人不安了”。
+
+来源链接：[https://www.afinalwarning.com/577888.html](https://www.afinalwarning.com/577888.html)
+
+编辑/发布：LILY
+
+20211210
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
+
 
  
 

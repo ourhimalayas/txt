@@ -2,22 +2,33 @@
 ---
 
 
-## 伦敦独立法庭裁定中共犯有种族灭绝罪
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1741291/)
+## 七哥谈：音乐是什么（2021-12-10摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1741303/)
 
-原文采编：文莱   翻译编辑：文所未闻
-![](https://assets.gnews.org/wp-content/uploads/2021/12/07-image-1.jpg)
-据美国《CNN新闻网》12月9日报道，总部设在伦敦的独立法庭当天裁定，中共对新疆地区的维吾尔人和其他少数民族实施了“种族灭绝”，并谴责独裁党魁习近平及其他中共领导人应对以上罪行负主要责任。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-报道称，该由英国大律师和国际人权律师，于2020年成立的独立法庭，在基于各方面提供的证据和证词之上，通过陪审团裁定中共政权蓄意地，系统地实施了一系列针对新疆200多万维吾尔族人的“种族灭绝”政策。
+来源：郭先生2021-12-10直播09：00：54 摘录
 
-最近，美国和加拿大及众多西方民主国家纷纷宣布外交抵制北京2022冬奥会之举，就是世界正义联盟对中共的“种族灭绝”罪行的公开谴责。
+音乐是什么，音乐是自由的，音乐是浪漫的，音乐是情感和自然之间唯一的没被解码的一种沟通的最好的方式，音乐是男女之间最美好的桥梁，音乐是达到了你精神上的最高自由境界，可以让你精神上达到了高潮和天地，和神之间的沟通，和不能和你有共同语言的动物和植物，石头，山川，河流之间的沟通的唯一的方式，唯一的方式。这是为什么当时的希腊的故事里边宙斯，缪斯以及九个音乐之神，所诞生的各种神的母亲神的父亲，当时所有的这种希腊的故事，音乐之神为什么是宙斯为什么是缪斯，为什么是提携的所有的生出的儿女? 他们和山川和河流和狮子和动物之间沟通的唯一方式就叫音乐，甚至他们对天上唯一祈祷的方式，允许的共同方式就是音乐，因为音乐的力量是唯一一个是没有性别，没有语言，没有黑白，没有任何物理区域隔离的和能拦得住的方式的沟通方式，而且从人类到现在为止所有的祈祷上天和向上天祈福，包括去诅咒某些人用的唯一方式不是献命，不是献血，音乐！
 
-校对编辑：硫酸羟氯喹64
+校对：HimaFaFA
+发布：HimaBoy
 
-发稿：苦尽甜来 (文來）
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
 
-[原文链接](https://www.cnn.com/2021/12/09/china/uyghur-tribunal-judgment-intl/index.html)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
