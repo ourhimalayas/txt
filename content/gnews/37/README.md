@@ -2,30 +2,30 @@
 ---
 
 
-## 有声|英国、加拿大宣布外交抵制中共北京冬奥会
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1743362/)
+## 日本研究发现近90%中共病毒重症患者血液中有过多血小板团块
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1743374/)
 
-配音：香草山香港部 – 文凯琳
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-加拿大总理特鲁多称，加拿大对中共政府一再侵犯人权的行为感到极为关切，因此，加拿大将不会派遣任何外交代表参加中共举办的冬奥会。同日，英国首相约翰逊也表示，虽然英国不对运动员参赛奥运会做出限制，但英国政府会毫无犹豫地对中共北京冬奥会实施外交抵制。
+撰稿:东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/7-17.jpg)
+[图片源](https://news.yahoo.co.jp/articles/05e2b70780759cce02f6a32384e1fe31e7e5e10a)
 
-对此，在12月8日的直播中，郭文贵先生也提到，依照原先约定，本将有57国的领导人参加中共此次的冬奥会，但如今只余3国领导人表示会出席，且他们要求习近平本人必须亲自接见。郭先生解释，这意味着习近平在冬奥会上的个人政治彻底破产，同时，中共的国家信用也彻底破产。
+东京大学研究生院的合田圭介教授和他的同事们发现，血小板浓度可以作为预知中共病毒感染恶化的一个标志。研究人员对东京大学医学部附属医院收治的110名中共病毒感染患者身上采集了血液，并对其中含有的大量血小板团块进行拍照与大数据分析，发现约90%患者的血小板团块数量过多. 此研究发现预计将有助于阐明中共病毒感染中血栓形成的发病机制并作为标志预测病情。
 
-原文链接：[英国、加拿大宣布外交抵制中共北京冬奥会](https://gnews.org/zh-hans/1737025/)
+众所周知，血栓形成，尤其是发生在微血管中的“微血管血栓症”，是影响中共病毒严重程度和死亡率的重要因素之一。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+研究小组利用微流控芯片的高速流体成像技术，对东京大学医院收治的110名轻度至重度新冠患者血液中的循环血小板团块进行了大规模成像。利用获得的循环血小板团块的图像大数据，进行了各种分析。
 
-音频处理：喜山必胜Maverick
+结果发现，与健康人相比，87.3%的患者存在过多的循环血小板团块。
 
-发稿：Daxia
+还发现，在中共病毒患者中，循环血小板团块的出现频率与患者病情的严重程度、死亡率、呼吸状况和血管内皮功能障碍的程度有很大的关联。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+爆料革命Eglise钟声医生在喜马拉雅农场联盟新闻访谈节目中多次预警，中共毒疫苗会引起血栓等血管疾病。此项研究发现进一步证明了爆料革命的唯真不破。短时间内，血小板团块（血栓）的大量出现，导致重症化，也只有中共毒疫苗有这样的“威力”了。日本的研究越来越接近真相，也一步一步佐证了郭文贵先生的情报。
+
+信息源：[血小板濃度は新型コロナ重症化リスクの目印になる。東大など発見](https://news.yahoo.co.jp/articles/f90b95affe55dba62eb691e5fba3e9cf17a38739)
+
+**编辑：东京樱花团/知了知了**
+**发布：东京樱花团/**yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
 
 
  
