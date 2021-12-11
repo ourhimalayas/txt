@@ -2,48 +2,33 @@
 ---
 
 
-## 宾夕法尼亚州最高法院驳回口罩强制令
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1744468/)
+## 七哥谈打歌（2021－12－10摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1744561/)
 
-作者：纽约香草山农场 – 四季
+文编：Hima
+听写：叮叮
+视频：七哥
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+来源：郭先生2021-12-10直播09：18：29摘录
 
+这个歌在恰到的时机，恰到的情况下，直接干到第一去。战友们还一定要打，记住这个歌要在一个月以内降下来，爆料革命新中国联邦每个人都有责任。你可以不刷牙不吃饭，你一定要打这个歌，一定要打这所有的榜，而且稳定下去。为什么，这就是对共产党最大的否定和羞辱。共产党像习近平那是真懂音乐，彭丽媛是真懂音乐，汪洋也很懂音乐的。李克祥不懂，李克祥瞎就吹，他说他懂，他老婆可是懂。程红真的懂，绝对懂程红。这些人知道这音乐意味着什么。
 
+校对：HimaFaFA
+发布：HimaBoy
 
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
 
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-据[网关专家](https://www.thegatewaypundit.com/2021/12/pennsylvania-state-supreme-court-strikes-school-mask-mandate/)12月10报道，宾夕法尼亚州最高法院周五驳回了一项全州范围内的口罩强制令，裁定宾夕法尼亚州代理卫生部长艾莉森·贝姆无权要求学生在学校佩戴口罩。
+**关注我们**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1667.jpg)图片来源：网关专家
+Discord 账号
 
-最初的诉讼是由一个由家长、学区和共和党政治家组成的联盟提起的。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-宾夕法尼亚州最高法院已经确认了联邦法院的决定，并撤销了代理卫生部长发布的要求在K-12学校和幼儿园实施的口罩强制令。
+Gettr 账号
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月.png)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
