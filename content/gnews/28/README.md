@@ -2,13 +2,31 @@
 ---
 
 
-## 加州一学校用披萨作为交换给13岁男孩注射疫苗
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1742382/)
+## 樱花灭共诗——清平乐（新韵）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1742459/)
 
-12/07/2021 加州一学校不通知父母，用一个披萨作为交换给一个13岁男孩注射了疫苗，并告诉他不要对外讲这件事。
+撰稿：东京樱花团/曲非烟
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-532.png)
+党运积习日渐涸，
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+英雄怒剑走白蛇。
 
+丧钟先铸悼哀曲，
+
+唢呐排鸣嘹凯歌。
+
+千里传音除祸乱，
+
+一针见血起沉疴。
+
+礼还父老清平乐，
+
+开辟乾坤载盛德。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-533.png)
+*插图：东京樱花团/闪闪
+校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

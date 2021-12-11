@@ -2,24 +2,28 @@
 ---
 
 
-## 郭先生新歌MV登陆VEVO平台
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1741777/)
+## 中共言论管控再收紧，下架豆瓣等106款应用程序
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1741808/)
 
-撰稿：纽约香草山教育部 – Irene木木
+撰稿：香草山农场教育部－飞虹
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-2.png)
-12月10日，据盖特平台消息称，郭文贵先生携新歌《HCoin to the moon》的MV正式登陆VEVO平台，同时，郭先生在VEVO平台上的官方频道也同步上线。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-513.png)
-资料显示，VEVO，即Video evolution网站，是一个由环球音乐集团、索尼音乐娱乐、华纳音乐集团和阿布扎比传媒联合提供免股权分红的授权内容的合资营运企业，主营音乐视频项目。该网站于2009年12月正式推出服务，并立即成为美国访问量最大的音乐服务类网站。目前，VEVO的服务范围覆盖全球多个国家，且观众可在包括苹果、安卓在内的大部分电子平台上浏览该网站的内容。
+12月9日，中共工信部当天发布“关于下架侵害用户权益应用程序名单的通报”，通报称经过检测，包括豆瓣在内的106款应用程序存在“违规收集个人信息”等行为，依据相关法律规定，对其作出下架处理。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-514.png)
+据悉，豆瓣网是墙内非常著名的社群网站，其小组自由讨论的风气也有一定的知名度，注册用户一度超过2.3亿。但在中共的严密监管和整肃之下，自今年以来，豆瓣用户流失严重，目前仅剩了1000万左右。
 
-与此同时，郭先生的新歌MV也登顶iTunes平台音乐视频排行榜榜首之位。
+据相关信息，在12月2日，中共国家网信办曾约谈豆瓣网的主要负责人和总编辑，指出豆瓣网及其账号屡次出现法律、法规禁止发布的信息，且情节严重。其中，中共所谓的“违法违规信息”一般指的是不能与中央保持一致的另类言行或不同政见。
 
-【新闻链接】[Miles Guo！首位华人强势杀入国际摇滚巨星阵营！引领国际流行乐坛新浪潮！！](https://gettr.com/post/pja1gle3c0)
+据知情人士爆料，豆瓣自今年以来多次因言论问题受到罚款处罚，累计处罚总额已达900万元人民币，这次下架无非是中共找一个冠冕堂皇的借口对其进行彻底封杀。
 
-[维基百科关于Vevo](https://zh.wikipedia.org/wiki/Vevo)
+新闻链接：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-4.png)
+[工信部下架106款侵害用户权益App](https://baijiahao.baidu.com/s?id=1718658585081933961&amp;wfr=spider&amp;for=pc)
 
-总编/编辑：正义的小新
+[中国以侵害用户权益为由 下架豆瓣等106款应用程序](https://www.voachinese.com/a/China-removes-106-apps-from-app-stores-citing-privacy-violations-20211209/6346608.html)
+
+总编／编辑：文特
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-3.png)
 
 校正/发稿：浪迹天涯
 

@@ -2,28 +2,20 @@
 ---
 
 
-## 代替性排毒方案可有效治疗新冠病毒
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1742653/)
+## 快讯：希拉里2024年欲重出江湖
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1742706/)
 
-翻译：Rosa
+撰稿：东京樱花团/华夏小哥
 
-视频：澳洲天好蓝
+在拜登和哈里斯的支持率暴跌之后，有关希拉里.克林顿将在 2024 年重新竞选的传言甚嚣尘上。 12月9日她在推特发布了她的宣传视频，暗示了她竞选总统的意愿和动力。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3-25.jpg)
+笔者分析希拉里的动作一方面有可能在2024年再次上演和川普的一对一较量，另一方面也说明了美国民主党内后继无人，有面临解党或者分裂的危险。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-541.png)
+[信息来源](https://twitter.com/HillaryClinton/status/1468944801349476362?s=20)：
 
-12月2号，知名主播兼评论员斯图-彼得斯(Stew Peters) 在他最新一期节目中采访了一名替代医学从业者Zandra Botha博士。
-
-节目中，Zandra Botha博士向大家讲述了几种主流的排毒方法。
-
-其中包含了对治疗新冠病毒行之有效的代替性治疗方案，这些方案已经被她亲身验证行之有效。
-视频来自网络
-
-其他相关阅读：
-
-[一个对疫苗引发的血液栓塞的治疗方案](https://gnews.org/zh-hans/1738361/)
-
-
-
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1-2.jpg)
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
 
 
  

@@ -2,22 +2,24 @@
 ---
 
 
-## 广州机械模具厂工人春节提前放假
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1741867/)
+## 中共研发面部识别系统的公司被美国列入黑名单
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1741944/)
 
-纽约香草山健身部 – 童谣
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-2.png)
-12月9日，广州一家机械模具厂的放假通知显示，“由于公司订单没有了，经公司决定，从2021年12月31日起开始放年假，1月1日来财务结清本年度工资，具体开工时间待公司另行通知！”
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12111-1.png)
-据模具厂工人透露，往年都是腊月二十左右放假，并且在年后初十左右返工。但今年春节大量工厂提前放假，开工时间还不确定。有工人抱怨道“年年打工年年穷，一年到头存不着钱，行情也越来越差”。
+撰稿：美东香草山农场－飞虹
 
+信息采集：侠肝义胆
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-3.png)
+12月9日消息，美国财政部将于12月10日在中共投资黑名单中的“中共军工综合企业”名单上增加一家企业，即专门从事面部识别软件开发的中共国人工智能公司商汤科技。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12112-1.png)
+据悉，12月10日是这家公司在香港股市首次公开募股的第一天，也是拜登总统与100个国家召开民主峰会的最后一天，同时，这一天也是世界人权日。
 
-
-新闻链接：https://www.youtube.com/watch?v=dadIncQwYEE
+据知情人士爆料，华盛顿针对商汤科技的行动是美国为纪念世界人权日，对多个国家实施的一系列制裁措施的一部分，中共利用商汤科技的面部识别系统对新疆维吾尔族穆斯林实施了系统性人权侵犯。
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-4.png)
 
 总编／编辑：文特
+
+新闻链接：[U.S. to blacklist Chinese AI company SenseTime ahead of IPO](https://asia.nikkei.com/Politics/International-relations/US-China-tensions/U.S.-to-blacklist-Chinese-AI-company-SenseTime-ahead-of-IPO)
 
 校正/发稿：浪迹天涯
 
