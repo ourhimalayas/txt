@@ -2,42 +2,40 @@
 ---
 
 
-## 以色列领导对全球金融市场进行“黑客模拟”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1741856/)
+## 凡在国内枪口抬高一寸的将会得到百倍躺平币和十倍喜币
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1741935/)
 
-**【雅典娜快讯】，紧贴时代脉搏**
+**郭文贵先生：**国内很多战友这次一定是新中国联邦遭受的一场最大的攻击，最大的攻击。那么很多这种事情会发生，凡是在国内枪口抬高一寸的，记住我们未来的躺平币是以百倍的给他们留着，喜币是十倍给他留着，一定会的！只要战友作证当初某警察、某检察官、某人给我枪口抬高一寸，我获得自由，一定会！一个都不少，而且是十倍和百倍的给予。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-516.png)**图片来源：The Times of Israel**
+我们在设计这个币的时候专门有战友比如说Q May的一个同学被抓了、被喝茶了，结果没被虐待、没被掏裤裆、没被打，然后呢问完以后叫他回去了，没动家人，他知道这个警官的名字，知道是什么情况。她作证了，说没说，你看我这是我的同学，我们就马上给这个不管这个警察他接不接受，我们都会在他名下记下这个币，他即使暂时不要，最终他一定会要的。
 
-**整理报道：文扬
-编辑：文泓**
+比如说我们国内某个医院的人救我们战友的家人，我们的战友就说了我没啥给你的，给啥你也不要，说我给你点儿喜币，这个医生还真不知道啥叫喜币，说啥叫喜币？给他说了半天，这医生说我也不敢要，我也不敢动，我现在也不需要钱。他说我有一样事儿，你可以给我孩子。他给他孩子发信息，他孩子说我知道这喜币现在多火多火，孩子在日本留学，结果这个战友跟我说，七哥我能不能把这个给这个医生的孩子，我说马上支持，马上给。我们已经给完了，已经给完了。给了这位医生是4000个币，我又送他1000个币——5000个币给他了。结果这个医生就把这个咱们战友的家人照顾好得不得了，安全地回了家，我不能再具体地说了。
 
-12月10日，据路透社报道，在一次由10个国家参加的演习中，以色列模拟了全球金融市场遭遇破坏性网络攻击的情况，试图创造一个随之而来的恐慌和混乱的现实场景。
+所以这些事情每天都在发生，只是你们不知道，你们能听到七哥说的和七哥做的，就像干掉奥运会一样，那是非常表面的一点点！非常表面的！每时每刻都在发生，你这个瑞卡问这个问题很好，一定告诉所有国内的战友们被枪口抬高一寸的人的名字，一定要记住！我们一个恩人也不能忘了！
 
-在周四进行的这次国际网络演习被称为“集体力量”，是美国、英国、德国、意大利、泰国和阿拉伯联合酋长国等国家，以及国际货币基金组织和世界银行等主要金融机构一起进行的。
+编辑整理：喜马拉雅的肉夹馍；
 
-**演习****参与国的财政部官员观看了一部电影，以概述****一个****模拟事件，其中一个叙述者说，敏感数据被盗并在暗网上分享，在10天内****“****给金融市场造成了破坏****”****。**
+视频制作：小满；
 
-据报道，这项被以色列财政部称为“战争游戏”的演习，模拟了许多不同类型的攻击，包括**影响外汇和债券市场的违规行为****；****流动性以及全球进出口商之间共享****数据的安全性****；****它还研究了误导性新闻报道对潜在危机的影响，以及政府应采取的****相应****措施**。
+视频上传：Cindy；
 
-叙述者继续说：**“银行正在呼吁以多种货币提供紧急流动性援助，以制止交易****方****撤回资金并限制流动性的混乱局面，****避免****银行陷入混乱和破产**。”
+G-News发布：黎明之前
 
-以色列官员指出，过去（黑客）对公司的小规模攻击，说明此类攻击有可能在更大范围内发生，只有全球合作才有希望在发生重大黑客攻击时避免最坏的结果。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-以色列财政部金融网络经理米哈·维斯告诉路透社，“攻击者比防御者领先了10步”，而另一位财政部官员补充说，政府和国际机构之间的合作“是金融生态系统复原力的关键”。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-网络演习原定于今年早些时候在阿联酋迪拜世博会举行，但由于新冠大流行而推迟，并被迫在耶路撒冷寻找新场地。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-原文链接： [Israel heads ‘hack simulation’ on global financial markets — RT World News](https://www.rt.com/news/542753-israel-leads-hack-simulation/)
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-*发布：盘古相聚*
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

@@ -2,43 +2,24 @@
 ---
 
 
-## 欧盟列举实例批评中共侵犯人权
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1741959/)
+## 日本放弃派高级官员参加北京奥运会
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1742015/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-5-768x103-10.jpg)
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2021/12/4-10.png)图片来自本文链接
+据《读卖新闻》网站11的报道，日本政府已决定不派内阁部长和其他高级政府官员参加明年的北京冬季奥运会和残奥会。只派东京奥运会和残奥会组织委员会主席桥本圣子和其他成员参加，日本要跟上已经宣布“外交抵制”的国家，最终决定将在年内做出。
 
-作者：纽约香草山 医疗部 云豹
+政府与七国集团一起，对中共国新疆维吾尔自治区和香港的人权问题表示关注。岸田首相已明确表示他对人权的重视，由于中共国的人权问题没有任何改善，越来越多的人认为派遣高级政府官员是不合理的。
 
+岸田总理希望早日访问美国，与拜登总统进行面对面的会谈，目前正在安排会谈日期。届时会议上，他可能会传达日本对北京奥运会的政策。
 
+信息源：
 
+[【独自】北京五輪に高官派遣見送りへ、橋本聖子氏が出席…選手団は派遣](https://news.yahoo.co.jp/articles/ac89a4469ba62dff6af4885dee54750afd350f36#:~:text=%E7)
 
-
-当地时间12月10日，就世界人权日，欧盟驻华代表团发表声明，批评中共侵犯人权。在声明中特别列举出中共在新疆非法拘捕维吾尔人，强摘器官，拘留人权活动人士，限制新闻工作者的自由采访权，及女网名将彭帅被中共高官性侵等违犯人权的事件。
-
-欧盟表示，将继续与中共对话接触，监督中共对待人权的状况。
-
-(本文为作者观点，不代表G NEWS 立场)
-
-新闻连接：
-
-[https://www.cna.com.tw/news/aopl/202112110012.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/aopl/202112110012.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-
-
-
-校对/编辑/发稿：云豹
-
-**更多信息，更多关注**
-
-[**纽约香草山农场**** GTV****–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
-
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

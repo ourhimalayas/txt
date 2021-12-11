@@ -2,34 +2,45 @@
 ---
 
 
-## 美参议员抨击强制疫苗 ，称其是非法、违宪的滥用权力
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1741841/)
+## 日本厚生劳动省对辉瑞和莫德纳新冠疫苗发出警告提示
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1741901/)
 
-作者：加拿大扬帆农场 – Spirit
-![This image has an empty alt attribute; its file name is 1-28.png](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
-据当地媒体12月9日报道，美国参议院于12月8日否决了拜登对私人雇主的疫苗强制令。第二天，德州参议员泰德·克鲁兹接受采访时，抨击了该命令，并称其非法、违宪，是荒谬的滥用权力。
+**【雅典娜快讯】，紧贴时代脉搏**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/9-3.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-518.png)图片来源：WebMD
 
-克鲁兹在采访中表示，需要彻底消灭此命令，拜登应该意识到，白宫的律师也应该告诉拜登，这是非法的，会在法庭上被否决。但是，他们仍然试图实施这项强制令。因此，12月8日的投票是一次真正重要的投票，以两党的多数票否决了强制令。
+**整理报道：皮特
+编辑：文泓**
 
-参考链接：
+12月10日，**日本厚生劳动省已收到多份报告，显示年轻人在接种辉瑞或莫德纳mRNA疫苗后出现严重的心脏炎症**。公共卫生官员最近与一个专家小组举行会议，专题讨论年轻男子和青少年的心肌炎和心包炎的发病率。目前，**在世界各地，以往身体健康的运动员、教练员和裁判员都因心脏问题倒在球场上**。日本也有年轻的和中年男子出现类似的心血管问题。
 
-[https://www.foxbusiness.com/politics/ted-cruz-vaccine-mandate-is-illegal-unconstitutional-and-grotesque-abuse-of-power-20211208/6344544.html](https://www.foxbusiness.com/politics/ted-cruz-vaccine-mandate-is-illegal-unconstitutional-and-grotesque-abuse-of-power-20211208/6344544.html)
+厚生劳动省官员警告说，**心肌炎是由mRNA疫苗引起的**。经他们研究发现，**“****莫德****纳和辉瑞的新冠疫苗，可能对年轻男性产生与心脏有关的副作用”**。该机构正在调查需要住院治疗的心脏炎症病例的上升情况。青少年和成年人几乎没有新冠严重感染的风险，但他们正在排队接种无效的疫苗，并在受到伤害，日本的心肌炎、心包炎的发病率正在上升。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
+根据厚生劳动省记录，截至2021年11月14日，每百万名接种莫德纳疫苗的男性青少年中，就有80例心肌炎患者！这说明了什么？该机构没有报告女性心肌炎的发病率。对于20多岁的男性来说，每百万针就有48例心肌炎——新冠mRNA疫苗是市场上最危险的疫苗。辉瑞公司的疫苗也有类似的问题，在男性青少年中，每百万剂引起15例心肌炎，在20多岁的男性中，每百万剂引起13例心肌炎。
 
-总编辑：文特
-编辑：DM
-校正/发稿：海阔天空1
+但厚生劳动省没有禁止疫苗，而是**同意在疫苗说明书中增加一个警告。医院将必须报告任何在接种疫苗后28天内出现症状的事件。**还要有多少年轻人遭受痛苦，才能停止这些生物武器？
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
+**以色列也发现心肌炎风险**
+
+这一数据与以色列官方报告的心肌炎病例相吻合。一项“大型医疗机构接种新冠疫苗后的心肌炎”的研究发现，辉瑞公司的疫苗在普通人群中每百万人中引起21.3例心肌炎。该研究调查了以色列最大的保健组织Clalit保健服务机构中的250万名接种者，接受过至少一剂辉瑞疫苗的以色列人患心肌炎的风险增加，特别是年轻人。在16至29岁的年龄组中，每百万人中大约有100例心肌炎。尽管有大量证据表明疫苗的失败和对心脏的损伤，以色列仍在推动新一轮的注射，并哄骗儿童去接种，这会破坏他们的健康。
+
+**刺突蛋白mRNA将氧气从红血球中拉出**
+
+在显微镜研究中，可以看到刺突蛋白mRNA将氧气直接从红细胞中拉出。美国心脏病专家理查德·弗莱明博士从一个人身上获得了红血球样本，并将它们放在显微镜下的两个不同的环境中。一种是生理盐水，一种是辉瑞公司的刺突蛋白mRNA。
+
+“很不幸我们发现，**当加入辉瑞公司的疫苗时，红血球会失去红色。这意味着要么氧气被从细胞中抽出，要么血红蛋白本身在细胞中被分解**，”弗莱明说。当血液与疫苗接触时，红血球失去颜色，变得苍白。氧气被吸走后，红血球开始凝聚，在显微镜下凝结成块。“你可以看到辉瑞公司疫苗溶液中细胞的运动。我第一次做的时候，我的反应是‘这非常令人不安'”。
+
+新闻链接：[Japan Health Ministry issues HEART WARNING for Pfizer and Moderna covid vaccines – NaturalNews.com](https://www.naturalnews.com/2021-12-10-japan-health-ministry-issues-heart-warning-covid-vaccines.html)
+
+*发布：盘古相聚*
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

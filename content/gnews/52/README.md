@@ -2,24 +2,20 @@
 ---
 
 
-## 被深度蓝金黄的法国称 不会外交抵制北京冬奥会
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1739115/)
+## 中共将无法再骗钱——中共信用被降级
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1739461/)
 
-撰稿：东京樱花团/闻雨
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-121.png)
-12月10日，据法新社报道：12月9日，法国教育部长Jean-Michel Blanquer表示，法国将不会和其他西方国家一起抵制明年2月的北京冬奥会。
+撰稿：东京樱花团/风翼
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2-27.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fs.wsj.net%2Fpublic%2Fresources%2Fimages%2FS1-BF306_1025ch_M_20181025072644.jpg&amp;imgrefurl=https%3A%2F%2Fcn.wsj.com%2Farticles%2FCN-FIN-20181026141453&amp;tbnid=BeC1pSlmbon2qM&amp;vet=12ahUKEwiQ1_COndn0AhWg43MBHe7NC7gQMygAegUIARCZAQ..i&amp;docid=_1Gx9KvG_88brM&amp;w=1280&amp;h=853&amp;q=%E6%83%A0%E8%AA%89&amp;ved=2ahUKEwiQ1_COndn0AhWg43MBHe7NC7gQMygAegUIARCZAQ)
+据产经新闻报道：评级机构惠誉评级将中国恒大集团的信用评级下调至“部分违约”，这导致债券市场出现风险厌恶情绪，高评级的发达国家政府债券被买入，加密资产市场的资金也出现了强烈的外流。
 
-法国教育部长还说：“我们必须谨慎对待体育和政治之间的关系”，“体育是一个完全不同的世界，需要保护它不受政治干预。”
+截至10日上午10点10分，参考以太坊（ETH）报460,049日元（下跌7.67%）。
 
-你可能认为法国是一个自由民主的国家。
+作为评级机构信用级下调意味着什么呢？信用评级越高，意味着你借钱给评级对象，顺利回收的机会越大，信用度越高的评级公司，或国家更容易受到投资家的青睐，获得更好的贷款条件，更低的利率贷款。而信用度下降，将要面对更严厉的贷款条件，更高的利率和融资失败的风险，导致中共国的金融市场脆弱不堪，股市大幅下跌，债券收益率迅速攀升，投资者对中共国的前景不看好，资本直接撤出。在实业不彰、经济滑坡、外储缩水，而又将被别国和投资者抛弃的情况下，中共还能支持多久，不言而喻。
 
-事实上，它早已经是社会主义国家了，而且法国政客也已经被中共深度地蓝金黄。那些对中共的暴政视而不见、充耳不闻的政客是中共的朋友，不是中国人民的朋友。很遗憾，这些政客，更多地考虑的是他们的个人利益。
+信息来源：
 
-试问代表和平的奥运会怎么能在一个侵犯人权，而且还试图用武力收回台湾的一个暴力国家举行呢？这些政客的逻辑都到哪里去了呢？
-
-信息来源:
-
-[フランス、北京五輪外交ボイコット「しない」 スポーツ相見解](https://news.yahoo.co.jp/articles/f2988407c0b1d77d61653ab7353dfc86d3745896)
+[＜今日の仮想通貨市況＞中国恒大デフォルト認定を嫌気](https://www.morningstar.co.jp/market_spn/2021/1210/economy_01566.html)
 
 *校对：东京樱花团/知了知了*
 *发布：东京樱花团/tdownc2p*

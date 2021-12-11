@@ -2,38 +2,43 @@
 ---
 
 
-## 中共言论管控再收紧，下架豆瓣等106款应用程序
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1741808/)
+## 澳洲前新南威尔士州州长宣布结束政治生涯
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1741894/)
 
-撰稿：香草山农场教育部－飞虹
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-2.png)
-12月9日，中共工信部当天发布“关于下架侵害用户权益应用程序名单的通报”，通报称经过检测，包括豆瓣在内的106款应用程序存在“违规收集个人信息”等行为，依据相关法律规定，对其作出下架处理。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-514.png)
-据悉，豆瓣网是墙内非常著名的社群网站，其小组自由讨论的风气也有一定的知名度，注册用户一度超过2.3亿。但在中共的严密监管和整肃之下，自今年以来，豆瓣用户流失严重，目前仅剩了1000万左右。
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-据相关信息，在12月2日，中共国家网信办曾约谈豆瓣网的主要负责人和总编辑，指出豆瓣网及其账号屡次出现法律、法规禁止发布的信息，且情节严重。其中，中共所谓的“违法违规信息”一般指的是不能与中央保持一致的另类言行或不同政见。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/1da0dadd4c2d713c843c8e5cacf630e7.jpg)
 
-据知情人士爆料，豆瓣自今年以来多次因言论问题受到罚款处罚，累计处罚总额已达900万元人民币，这次下架无非是中共找一个冠冕堂皇的借口对其进行彻底封杀。
 
-新闻链接：
+ 
+图片来源:  *AAP: Bianca De Marchi*
 
-[工信部下架106款侵害用户权益App](https://baijiahao.baidu.com/s?id=1718658585081933961&amp;wfr=spider&amp;for=pc)
 
-[中国以侵害用户权益为由 下架豆瓣等106款应用程序](https://www.voachinese.com/a/China-removes-106-apps-from-app-stores-citing-privacy-violations-20211209/6346608.html)
+#### 整理报道 ：小红帽
 
-总编／编辑：文特
+**澳大利亚前新南威尔士州州长格拉迪斯****·****贝瑞吉克莲（****Gladys Berejiklian****）正式拒绝了总理斯科特****·****莫里森（****Scott Morrison****）将她空降到沃林加（****Warringah****）联邦席位参选的提议，宣布结束其政治生涯。**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-3.png)
+贝瑞吉克莲在新州反腐败独立委员会（ICAC，又作廉政公署）对她的前男友，前沃加沃加（Wagga Wagga）自由党州议员达里尔·马奎尔（Daryl Maguire）的调查期间于9月份辞职。
 
-校正/发稿：浪迹天涯
+贝瑞吉克莲于周四将她的决定通知总理。总理莫里森周四表示，他尊重瑞吉克莲的决定。《澳大利亚人报》获悉，贝瑞吉克将在私营企业任职。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-2.png)
+此前，贝瑞吉克的自由党的同事们进行了数周的激烈游说，希望她在辞去州长职务后转到联邦政坛。
+
+虽然贝瑞吉克莲表示已经做好了职业规划，但她在明年之前不会发表评论。
+
+在贝瑞吉克莲表示会考虑提名为候选人后，莫里森上周进行了干预，以保持这个悉尼都市区席位预选过程中的提名开放。
+
+新闻来源：[前新州州长Gladys Berejiklian拒绝竞选联邦议席 宣布结束政治生涯 – 澳大利亚人报中文网 | 国内外时事新闻 | 金融财经 | 教育 | 房产投资 (theaustralian.com.au)](https://cn.theaustralian.com.au/2021/12/10/61768/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

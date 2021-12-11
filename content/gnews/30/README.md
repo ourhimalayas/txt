@@ -2,22 +2,23 @@
 ---
 
 
-## 无国界记者组织称 中共政权逮捕记者世界第一
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1741807/)
+## 洛杉矶一学校以匹萨诱骗学生打疫苗 家长震惊
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1741871/)
 
-作者：纽约香草山医疗部 – 云豹
+作者：纽约香草山翻译部 – defiance
 ![This image has an empty alt attribute; its file name is 1-28.png](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
-12月7日，无国界记者组织发布最新报告《中共国新闻业的大倒退》，指出中共政权正在加速违反其对言论自由的国际承诺，对世界范围内的新闻业和信息权进行了前所未有的镇压。 目前至少有127名记者被中共政权逮捕，排名世界第一位。
+12月9日，美国媒体报道，洛杉矶南部巴拉克·奥巴马全球预科学院的学生家长震惊地发现，学校居然在家长不知情的情况下，用匹萨饼作为诱饵，为他们的孩子接种了疫苗。这些学生同时被要求不要告知自己的父母。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/7-15.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/10-1.png)
 
-报告中提及，在中共国工作的记者被迫成为党的喉舌，为了获得和更新记者证，他们不得不接受每年90个小时的培训，主要是研读习近平思想；记者调查敏感话题或擅自发布当局认为需要审查的内容，就可能被送进监狱长时间监禁，遭受虐待甚至死亡。因报道新疆议题，有71名维吾尔记者被逮捕。在香港实施国安法后，至少有12名记者或新闻工作者受到迫害。中共对外国新闻记者也极不友善，在2020年驱逐了18名外国新闻机构派驻在中共国的记者。
+一位学生家长表示，学校在未经她同意的情况下，为她儿子接种疫苗，给她造成了极大的心理创伤。一位律师则认为，这所学校没有法律权力在上课时间为学生接种疫苗。
 
-无国界记者组织的秘书长德洛雷呼吁民主国家，采取任何可行的手段，来阻止中共压抑新闻自由的政策，并支持悍卫新闻自由的中国人。
+据美国媒体报道，洛杉矶联合学区以学生事务保密为由拒绝对此事发表评论。但他们确实承认，他们的“安全到校奖励计划”为接种疫苗的学生提供了奖品。
 
 参考链接：
 
-- [An unprecedented RSF investigation: The Great Leap Backwards of Journalism in China](https://rsf.org/en/reports/unprecedented-rsf-investigation-great-leap-backwards-journalism-china)
+- [LA school vaccinates students without parental consent in exchange for pizza](https://thepostmillennial.com/la-school-vaccinate-students-parental-consent-pizza)
+- [SICK: California school uses junk food to BRIBE children to get vaccinated without parental consent](https://vaccines.news/2021-12-09-california-school-junk-food-bribe-children-get-vaccinated.html)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)

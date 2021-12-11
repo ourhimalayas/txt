@@ -2,18 +2,33 @@
 ---
 
 
-## 加拿大新任卫生部长：可以肯定需要注射两次以上才能被视为完全接种疫苗
-` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1741802/)
+## 广州机械模具厂工人春节提前放假
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1741867/)
 
-您认为第三针(疫苗)，有些人称之为第三针也有些人称之为加强针，最终会成为疫苗护照的一部分，并规定需要注射两针以上才能被视为完全接种吗？
+纽约香草山健身部 – 童谣
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-2.png)
+12月9日，广州一家机械模具厂的放假通知显示，“由于公司订单没有了，经公司决定，从2021年12月31日起开始放年假，1月1日来财务结清本年度工资，具体开工时间待公司另行通知！”
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12111-1.png)
+据模具厂工人透露，往年都是腊月二十左右放假，并且在年后初十左右返工。但今年春节大量工厂提前放假，开工时间还不确定。有工人抱怨道“年年打工年年穷，一年到头存不着钱，行情也越来越差”。
 
-可能是，几乎可以肯定是，因为这就是疫苗接种的历史。(我们)知道接种的疫苗只在一个有限的时间内完全有效，COVID-19疫苗就是这种情况，现在，我们还没有到那一步，我们正处于一个重要的加强针的开始阶段，我们还没有给很多加拿大人打过加强针，所以我们现在必须专注于此。
 
-素材：文倩
-翻译：雅典娜2020
-字幕：米小乐
 
-发布：风云小哥
+新闻链接：https://www.youtube.com/watch?v=dadIncQwYEE
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-4.png)
+
+总编／编辑：文特
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-2.png)
+
 
  
 
