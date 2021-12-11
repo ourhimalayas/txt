@@ -2,22 +2,48 @@
 ---
 
 
-## 恐惧不属于新中国联邦人
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1741334/)
+## 灭共者之疫苗灾难（二）
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1741392/)
 
-共产党现在就希望我在直播上掉眼泪，哭一场，让我痛，让我哭，让我害怕，我绝对不痛，我绝对不哭，我要把这些东西全留给共产党。
+**出品：纽约香草山设计部**
 
-**【郭先生直播摘要】**** 2021.12.8****恐惧不属于新中国联邦人**
 
-**郭先生：**
 
-恐惧就是今天你看到我爹92岁，我爹还能活多少年，还能再活十年二十年。如果他把我爹给炖了给宰了，杀了我爹就应该活到现在，我不会放弃。我知道放弃对爆料革命，他下一个就是动所有的家人。一定动海东他家人，这样一定会动你们的家人，因为他觉得你软了，你服了你怕了你疼了。从前天发生，昨天你你嫂子跟我去转转，你嫂子说文贵你想哭你就哭一场，我陪着你哭。我在那转转我说我不会哭的。共产党现在就希望我在直播上掉眼泪，哭一场，让我痛，让我哭，让我害怕，我绝对不痛，我绝对不哭，我要把这些东西全留给共产党。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-我要让看看你爸你妈每天在全世界，被人家用屎扣他的相。你爸你妈的名字和照片出现全世界，每天给你送葬。我知道习近平对他妈多孝敬，他能给他爸建三千亩的陵园，你他对齐心像佛一样供着。那你的父母像佛一样，难道郭文贵的父母就不值一分钱了吗？你还能干什么？你无非是把我爹给掐死，给毙了。我爹绝对是郭文贵的爹，这真的是，这些人来的时候我父亲说我不会走的，搭都不搭理他们，我爹中风状态还有这么贵。在外面转了几个小时，很多人要让去他们家，我爹说不能去，因为我哥哥家也没了，我哥哥家也没电了。
 
-光盘古账上6亿多人民币的现金，6亿多呀。我们过去五年没动过一分钱啊。盘古裕达的经营和钱完全是警察监督的，就在这几年里边就是现金就6个多亿，所有这些家人，哪个家里边没有个几千万，是吧。所有东西全给你封掉去，去那一夜之间你啥都没有了。不管你多少钱，多少房子他给你警察来了，特警来你啥都没了。我爹就流落街头了，这就是今天发生的事情，如果我们不行动，我们每个人的家人和父母和家人都是个结局。
 
-视频剪辑：北方信使 |听写/校对：烟波浩淼 | 翻译 ：阿基米德 | 视频制作+字幕：CG. |编辑&发布：|编辑&发布：断播
+
+
+
+![疫苗一定会被停止的！疫苗的灾难绝对是人为的设计，绝对是共产党和西方贪婪的人和黑暗的势力的共同作案的结果。](https://cdn.discordapp.com/attachments/918719621299851264/919037433314701333/CCP_Virus_Genocide_Bioweapon_Vaccine_Disaster_2.jpg)疫苗一定会被停止的！疫苗的灾难绝对是人为的设计，绝对是共产党和西方贪婪的人和黑暗的势力的共同作案的结果。![](https://cdn.discordapp.com/attachments/918719621299851264/919037432970760213/CCP_Virus_Genocide_Bioweapon_Vaccine_Disaster.jpg)
+The COVID vaccine push for sure will be stopped at some point. The vaccine catastrophe is definitely a well-crafted plan by some; absolutely the outcome of a crime committed by the CCP, greedy Westerners, and the Dark Forces.
+![](https://cdn.discordapp.com/attachments/918719621299851264/919037471201853480/CCP_Virus_Genocide_Bioweapon_Vaccine_Disaster.jpg)疫苗护照不是他们的目的，杀人才是的目的，种族残杀才是目的。更重要的是医疗垄断，也就是所谓的优胜劣汰，变成两极的社会。这是一次人类绝对的大屠杀，而且绝对是黑暗力量和共产党勾结在一起的。![](https://cdn.discordapp.com/attachments/918719621299851264/919037471520608326/CCP_Virus_Genocide_Bioweapon_Vaccine_Disaster_2.jpg)
+The vaccine passport is not their aim; killing people is; genocide is.More importantly, the medical monopoly is, aka, the so-called “survival of the fittest”, or the polarization of the society. This is an absolute massacre of humanity, an outcome of which the Dark Forces colludes with the Communist Party.
+
+
+
+**编辑/发稿：小鹿**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-2.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
 
  
 

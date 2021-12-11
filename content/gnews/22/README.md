@@ -2,22 +2,31 @@
 ---
 
 
-## 伦敦独立法庭裁定中共犯有种族灭绝罪
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1741291/)
+## 七哥谈：唢呐送葬（2021-12-10摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1741324/)
 
-原文采编：文莱   翻译编辑：文所未闻
-![](https://assets.gnews.org/wp-content/uploads/2021/12/07-image-1.jpg)
-据美国《CNN新闻网》12月9日报道，总部设在伦敦的独立法庭当天裁定，中共对新疆地区的维吾尔人和其他少数民族实施了“种族灭绝”，并谴责独裁党魁习近平及其他中共领导人应对以上罪行负主要责任。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-报道称，该由英国大律师和国际人权律师，于2020年成立的独立法庭，在基于各方面提供的证据和证词之上，通过陪审团裁定中共政权蓄意地，系统地实施了一系列针对新疆200多万维吾尔族人的“种族灭绝”政策。
+来源：郭先生2021-12-10直播09：02：36 摘录
 
-最近，美国和加拿大及众多西方民主国家纷纷宣布外交抵制北京2022冬奥会之举，就是世界正义联盟对中共的“种族灭绝”罪行的公开谴责。
+大年春节咱要给共产党送葬，给习近平给习近平的娘齐心送葬。我们一定要带上最好的音乐，我们那个唢呐中国的唢呐，是送你生送你死都是唢呐。那我们的唢呐一定向我们山德老家‘啊啊啊啊’，哎呦我的妈呀这浑身都哆嗦‘啊啊啊’是吧。咱要让他听着一嗓子叫他终生难忘。
 
-校对编辑：硫酸羟氯喹64
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-发稿：苦尽甜来 (文來）
+**关注我们**
 
-[原文链接](https://www.cnn.com/2021/12/09/china/uyghur-tribunal-judgment-intl/index.html)
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
