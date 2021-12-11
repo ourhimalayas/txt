@@ -2,36 +2,38 @@
 ---
 
 
-## 浙江三地疫情升温 全省进入“战斗状态”
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1743716/)
+## 俄罗斯通报绝非中共在乌克兰台湾和病毒疫苗方面的同盟
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1743728/)
 
-#### 撰稿：日本东京方舟农场  幽蘭自得
+**郭文贵先生：**原因还有一个就是俄罗斯，在俄罗斯这次上太明确的，俄罗斯就告诉了美国和欧洲，你们绝对不允许——两件事儿不能把我们放在一起，你们要放在一起，我可以告诉大家今天文贵说这是天下第一个人说出来的，没有任何人知道的，参加会的人就是极少人。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/99AB0C37-83B9-4C84-8452-3DDEE216C48C.jpeg)图为市民连夜排队做核酸检测（图片来源：Getty Images）
+你知道俄罗斯说什么？——绝对不允许把我们和乌克兰和台湾和共产党的行动放在一起，绝对没有这事儿！你们千万别这么想，那将是战略上重大失误！咱们之间就会出大误会了；
 
-近日，中共国浙江省宁波、绍兴、杭州三地中共病毒疫情升温，该省日前宣布进入“战斗状态”。
+第二件事情，你们千万别把共产党的病毒和疫苗，还有整个疫苗政策和共产党的经济跟我俄罗斯绑在一起，我们绝对跟它不一样；
 
-据《大纪元》12月11日报道，浙江省宁波、绍兴、杭州三地从12月5日至11日15时，累计报告中共病毒确诊感染病例60例，无症状感染者38例。报道称，由于中共一贯掩盖疫情，官方公布的数据或远低于实际数据。
+最后，欸，等等等等！还有个南海问题，南海问题我们跟中共绝对不同步，它给我们钱我们就去转去，我们在哪都是转悠。记住这是七哥今天给你们说的历史性的时刻，还会像过一两年让你们证明。
 
-据悉，浙江省政府已于12月7日宣布全省进入“战斗状态”。随后，宁波、绍兴、杭州三地疫情防控升级，多个区域实行封控措施。
+视频制作：小满；
 
-其中，浙江绍兴上虞区官方宣布，自12月11日13时起，对进出上虞区的高速公路、国省道公路、县乡道公路、村（小区）道路、车站、水路等出入口，实施交通全面封控，禁止其它一切车辆、人员进出上虞区域。
+视频上传：Cindy；
 
-宁波市则是宣布自12月7日起进入I级应急状态，镇海区“封城”，全区各类企业暂时停工。
+G-News发布：黎明之前；
 
-杭州的情况也不乐观。杭州市拱墅区武林路的居民周天豪（化名）12月11日下午在接受《大纪元》记者采访时说：“这里的疫情挺严重。距我这里100米开外的小区（劳工弄小区）发现确诊病例。小区在武林街道上，小区全都封禁了。我们现在不敢外出，如果有外人到这个区域来，健康码可能会变色。”
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-杭州市拱墅区武林路劳工弄4号楼附近的一位男性居民也表示，由于劳工弄4号楼里有人确诊感染中共病毒，其家人也有一人确诊，导致现在整个4号楼被封禁。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-*参考链接：[浙江三地疫情擴散 多地停工停產 出貨受阻](https://www.epochtimes.com/b5/21/12/11/n13430972.htm)*
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-* * *
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-*素材采编：幽蘭自得*
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-*编辑：青衣青青*
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-*发布：miumiu*
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
