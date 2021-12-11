@@ -2,37 +2,57 @@
 ---
 
 
-## 美驻华使馆代办谴责中共侵犯人权
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1742697/)
+## 7·24系列之“单伟建”——儿子单博
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1742792/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-43.jpg)
-[图片来源](https://thediplomat.com/2020/08/chinas-human-rights-abuses-invite-us-leadership/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/bo-shan-house.png)图片来源：DIRT.com
+**整理/编辑：**翼族
 
-周五（12月10日）是国际人权日，美国驻华使馆临时代办发表声明，谴责中共在多方面侵犯人权；并表示，美国及其伙伴都有责任促进问责中共对人权的践踏。
+12月8号郭文贵先生盖特：让这些爱中共的共产党特务的所有的钱财和共产党的黑暗的交易曝光在阳光之下，让美国人民觉醒。 【[https://www.dirt.com/moguls/finance/…](https://www.dirt.com/moguls/finance/bo-shan-house-brentwood-1203303596/) 单建伟儿子 Bo Shan /Leilei Shan( 单博/单磊磊)在2019年以2000万美元买下的豪宅，位于Brentwood, Los Angeles, Calif. https://www.dirt.com/moguls/finance/bo-shan-house-brentwood-1203303596/】
 
-今年是联合国《世界人权宣言》通过73周年。美驻华使馆临时代办米德伟（David Meale）在一份声明中写道，美国致力于履行在宣言中的承诺，并认识到推动国内外对人权的尊重是美方庄严的任务。美国正在主办民主峰会，来自世界各地的民主政体和美国一道，共同抵御威权主义、打击贪污腐败并推动对人权的尊重。
+根据郭先生转发的这篇DIRT网站的文章介绍，洛杉矶的这座豪宅被单博夫妇以约 1970万美元的“**全现金交易”（all-cash deal）**买下。
 
-**米尔德列举中共践踏人权的种种行径**
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/million-dollar-listing-star-tracy-tutor-asking-23-9m-for-elegant-brentwood-abode2.jpg)图片来源：American Luxury
 
-“我见证到中国在诸多领域的进展，但我也看到中共在中国、在国际媒体、在联合国，不实地宣称其支持人权和民主价值。在新疆问题上，国务卿布林肯已确认中共犯下种族灭绝和危害人类罪，危害绝大多数为穆斯林的维吾尔人，以及其它少数民族和宗教少数群体。美国重申对中共的呼吁，停止暴行、释放那些被不正当拘留的人，以及允许独立调查人员畅通无阻前往该地区。我们呼吁中共允许藏传佛教徒信奉其信仰的自由，并停止侵犯他们自决的权利。在香港问题上，我们仍极度关切国安法之下香港高度自治的瓦解，以及其居民受到保护的权利和自由持续恶化。”声明写道。
 
-米尔德随后提到中共在包括行使表达自由在内的更广泛领域，对行使人权和基本自由的中国公民人权的侵犯行为。他在声明中表示，据报导，中共将之监禁、虐待，并让他们消失。为了模糊事实和打压新闻自由，记者面临人身和数字威胁与骚扰。随着非政府组织的运作和得到支持的能力面临更大的限制，公民社会的空间不断缩小。律师无法发挥基本职能来捍卫公民的权利，因为其自身也面临来自警方的恐吓，持续面临被撤销律师资格的风险，以及言论受到严重限制。
+单博（英文名：Bo Leilei Shan）是单伟建（Weijian Shan）的独子，对冲基金“戈壁资本有限责任公司”（Gobi Capital LLC）的创始人，在旧金山和洛杉矶设有办事处。单博的夫人凯瑟琳·杜琳（Catherine Dooling）是硅谷社区基金会（Silicon Valley Community Foundation，2018年传出丑闻的一家慈善机构）的投资官。
 
-**声明还强调人权无国界，而且也不是内部事务**
+据网络公开信息，单博是宾夕法尼亚大学沃顿商学院的工商管理硕士学位（MBA），自2009年8月1日起加入戈壁资本，拥有75%以上的股权。
 
-米尔德援引国务卿布林肯的话说：“美国并不宣称自己是十全十美，但是我们每天致力于追求改进，对自己负责，成为更完善的联邦。我们公开、透明地面对自身的挑战，让全世界都看得到。”
+戈壁资本有限责任公司（以下简称“戈壁资本”）的登记地址在旧金山的一处公寓：909 Montgomery Street, Suite 400, San Francisco, CA 94133。
 
-“我希望中共能履行承诺和义务、信任其公民、进行透明治理、保护人权。在这种情况下，中共便能开始，将其行动与对中国人民和国际社会的职责保持一致。直到那时，美国和我们的伙伴都有责任，促进问责中共对人权的践踏。”声明最后写道。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/GOBI.jpg)图片来源：Bloomberg
 
-消息来源:
 
-[国际人权日 美驻华使馆：问责中共践踏人权](https://www.epochtimes.com/gb/21/12/10/n13430057.htm)
+有意思的是，戈壁资本的登记地址与加州参议员黛安·费恩斯坦（Dianne Feinstein）丈夫的百隆资本公司（Blum Capital）的地址一致。关于单伟建与费恩斯坦的关系，请参见文章《[7·24系列之“单伟建”——新桥资本和费恩斯坦参议员的关系](https://gnews.org/zh-hans/1735941/)》。
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/BLUM.jpg)图片来源：blumcapital.com
 
+
+根据戈壁资本公布的最新文件，2021第二财政季度，戈壁资本收购了Gobi Acquisition Corp（戈壁收购公司）和Karooooo（新加坡的一家网络公司），出售了Visa Inc、Sea、Dragoneer Growth Opportunities Corp所持股份。截至2021年的第二财政季度，戈壁资本共持有13只股票，总价值17亿美元。其中戈壁资本投资占比最大的三家股票分别是：
+Facebook Inc（脸书） – 1,087,941 股，占总投资组合的22.78%；
+Alphabet Inc （谷歌） – 135,192 股，占总投资组合的 20.40%；
+Credit Acceptance Corp ( CACC ) – 587,803 股，占总投资组合的 16.07%。
+
+戈壁资本的总持股金额，从2016年开始的1.1亿美元，到2021年已增长至近40亿美元。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/未标题-1-1.jpg)gurufocus.com
+
+
+“戈壁收购”（Gobi Acquisition）是一家由太平洋联盟集团（PAG Group，即“太盟”） 成立的空白支票公司（SPAC），注册地在香港皇后大道东1号的太古广场3座33楼（Three Pacific Place, 33rd Floor, 1 Queen’s Road East），与太盟的办公地址一致。
+
+目前“戈壁收购”已向美国证券交易委员会SEC提交了不超过2.5亿美元的首次公开募股书，计划在纳斯达克上市，代码为“GOBI”。
+
+单伟建曾在2019年出版过一本自传式的回忆录，名为《走出戈壁》，由此可见单伟建的戈壁情节。但无论是戈壁资本公司还是戈壁收购公司，都不过是单伟建家族洗劫中国人民财富的壳公司。所以，即使单伟建的肉身走出了戈壁，但良知却永远留在了那片荒芜之地。
+
+*发布：翼族*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

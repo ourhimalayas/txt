@@ -2,10 +2,10 @@
 ---
 
 
-## 将未接种疫苗者从社会隔离不仅不合理且缺乏科学依据
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1743100/)
+## 美参议院通过法案推翻拜登私企疫苗强制令
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1743106/)
 
-12/07/2021 谢伊·布拉德利·法维尔博士指出将未接种疫苗者从社会隔离出来不仅不合理，还缺乏科学依据。
+12/09/2021 美国参议院通过了一项法案推翻私企疫苗强制令。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

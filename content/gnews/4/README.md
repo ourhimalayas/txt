@@ -2,12 +2,17 @@
 ---
 
 
-## 美参议院通过法案推翻拜登私企疫苗强制令
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1743106/)
+## 【#G时新闻】 美参议院通过废除疫苗强制接种令的法案
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/1743180/)
 
-12/09/2021 美国参议院通过了一项法案推翻私企疫苗强制令。
+**加拿大温哥华扬帆农场** 播报：悠然 制作：文所未闻
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+🔥 美国参议院于12月9日通过一项法案，废除总统拜登关于私营企业雇主必须要求其员工接种新冠疫苗。
+
+盖特链接：[https://gettr.com/post/pjcacn6a46](https://gettr.com/post/pjcacn6a46)
+编辑/上传：七觉花
+
+
 
  
 
