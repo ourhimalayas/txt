@@ -15,139 +15,139 @@
 
 ---
 
-### [12/10/2021文贵直播：中共在冬奥会期间将加大对内洗脑和对外宣传，对将撤资的外企先下手为强，然后找出所谓的政治野心家充当替死鬼，掩盖错误，最后可能打台湾，国内实行战时国有化](/content/gnews/1/README.md)
+### [台湾多家银行ATM机出现大规模宕机 众多民众无法取款](/content/gnews/1/README.md)
+ ` 日本东京方舟农场`
+
+### [12/10/2021 文贵直播：独裁者通过社交媒体洗脑、散播仇恨，收买大学、科学家和大机构，制造宗教矛盾、国家和民族冲突，用科学宗教主义让人打毒疫苗](/content/gnews/2/README.md)
  ` 秘密翻译组-北美组`
 
-### [俄罗斯的站位](/content/gnews/2/README.md)
+### [12/11/21 香港快讯 港驻伦敦经贸办去信《星期日泰晤士报》 斥社论失实 吁杯葛选举违法](/content/gnews/3/README.md)
+ ` 英喜-粵語組`
+
+### [美众议院通过三项针对中共国人权问题法案](/content/gnews/4/README.md)
+ ` 日本东京方舟农场`
+
+### [12/10/2021文贵直播：中共在冬奥会期间将加大对内洗脑和对外宣传，对将撤资的外企先下手为强，然后找出所谓的政治野心家充当替死鬼，掩盖错误，最后可能打台湾，国内实行战时国有化](/content/gnews/5/README.md)
+ ` 秘密翻译组-北美组`
+
+### [俄罗斯的站位](/content/gnews/6/README.md)
  ` 骄子`
 
-### [世界洗脑全球化](/content/gnews/3/README.md)
+### [世界洗脑全球化](/content/gnews/7/README.md)
  ` 骄子`
 
-### [2021年12月10日 郭先生大直播文字同步精要](/content/gnews/4/README.md)
+### [2021年12月10日 郭先生大直播文字同步精要](/content/gnews/8/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [欧洲四国照会中共将抵制冬奥会并经济脱钩和WTO起诉](/content/gnews/5/README.md)
+### [欧洲四国照会中共将抵制冬奥会并经济脱钩和WTO起诉](/content/gnews/9/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [COVID病例增加 瑞士考虑有限的封锁](/content/gnews/6/README.md)
+### [COVID病例增加 瑞士考虑有限的封锁](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [年轻和健康人遭受新冠疫苗后可怕的副作用](/content/gnews/7/README.md)
+### [年轻和健康人遭受新冠疫苗后可怕的副作用](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [12/10/2021文贵直播：美国会有十招对付中共，招招毙命，一向互为死敌的美俄开始秘密会面讲数，北极熊在关键时刻背后捅了习太阳一刀，中共一定撑不过2025年](/content/gnews/8/README.md)
+### [12/10/2021文贵直播：美国会有十招对付中共，招招毙命，一向互为死敌的美俄开始秘密会面讲数，北极熊在关键时刻背后捅了习太阳一刀，中共一定撑不过2025年](/content/gnews/12/README.md)
  ` 秘密翻译组-北美组`
 
-### [病毒和疫苗是共匪谋财害命的武器](/content/gnews/9/README.md)
+### [病毒和疫苗是共匪谋财害命的武器](/content/gnews/13/README.md)
  ` 银河勇气之星`
 
-### [12/11/2021国际财经快讯：美司法部广泛调查卖空行为；投资者期待美联储加快缩表和通胀观点](/content/gnews/10/README.md)
+### [12/11/2021国际财经快讯：美司法部广泛调查卖空行为；投资者期待美联储加快缩表和通胀观点](/content/gnews/14/README.md)
  ` 秘密翻译组金融团队`
 
-### [12/10/2021 文贵直播：习近平本想借冬奥会万邦来朝的机会当世界老大，用数字人民币干掉SWIFT和美元，开完冬奥会就打台湾](/content/gnews/11/README.md)
+### [12/10/2021 文贵直播：习近平本想借冬奥会万邦来朝的机会当世界老大，用数字人民币干掉SWIFT和美元，开完冬奥会就打台湾](/content/gnews/15/README.md)
  ` 秘密翻译组-北美组`
 
-### [新冠患者不是死于病毒，而是死于疫苗副作用和瑞德西韦](/content/gnews/12/README.md)
+### [新冠患者不是死于病毒，而是死于疫苗副作用和瑞德西韦](/content/gnews/16/README.md)
  ` 墨尔本雅典娜农场`
 
-### [新冠状病毒是全体中南坑所共同拥有的生化武器](/content/gnews/13/README.md)
+### [新冠状病毒是全体中南坑所共同拥有的生化武器](/content/gnews/17/README.md)
  ` G-NEWS TAIWAN`
 
-### [美俄手中的“宠物”](/content/gnews/14/README.md)
+### [美俄手中的“宠物”](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国CPI以1982年来最快的年增长率攀升](/content/gnews/15/README.md)
+### [美国CPI以1982年来最快的年增长率攀升](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|中共上调外汇储备率后人民币暴跌](/content/gnews/16/README.md)
+### [有声|中共上调外汇储备率后人民币暴跌](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [中共送葬名单目标不止五千，到时一定展示小视频和豪宅](/content/gnews/17/README.md)
+### [中共送葬名单目标不止五千，到时一定展示小视频和豪宅](/content/gnews/21/README.md)
  ` NewFOC`
 
-### [日本研究发现近90%中共病毒重症患者血液中有过多血小板团块](/content/gnews/18/README.md)
+### [日本研究发现近90%中共病毒重症患者血液中有过多血小板团块](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|英国、加拿大宣布外交抵制中共北京冬奥会](/content/gnews/19/README.md)
+### [有声|英国、加拿大宣布外交抵制中共北京冬奥会](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [DC每日热点1211](/content/gnews/20/README.md)
+### [DC每日热点1211](/content/gnews/24/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [【#G时新闻】 美共和党议员在众议院会议上直指习近平犯有种族灭绝罪](/content/gnews/21/README.md)
+### [【#G时新闻】 美共和党议员在众议院会议上直指习近平犯有种族灭绝罪](/content/gnews/25/README.md)
  ` G-时新闻`
 
-### [文贵视角: 共产党让人类进入末法时代](/content/gnews/22/README.md)
+### [文贵视角: 共产党让人类进入末法时代](/content/gnews/26/README.md)
  ` 秘密翻译组-原创组`
 
-### [【#G时新闻】 美参议院通过废除疫苗强制接种令的法案](/content/gnews/23/README.md)
+### [【#G时新闻】 美参议院通过废除疫苗强制接种令的法案](/content/gnews/27/README.md)
  ` G-时新闻`
 
-### [好奇的印度因与大型制药公司的利益冲突而抛弃盖茨基金会](/content/gnews/24/README.md)
+### [好奇的印度因与大型制药公司的利益冲突而抛弃盖茨基金会](/content/gnews/28/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [中共查封盘古动龙脉引欧美抵制冬奥](/content/gnews/25/README.md)
+### [中共查封盘古动龙脉引欧美抵制冬奥](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美参议院通过法案推翻拜登私企疫苗强制令](/content/gnews/26/README.md)
+### [美参议院通过法案推翻拜登私企疫苗强制令](/content/gnews/30/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [拜登和民主党疫苗强制令是非法、违宪，是权力的滥用](/content/gnews/27/README.md)
+### [拜登和民主党疫苗强制令是非法、违宪，是权力的滥用](/content/gnews/31/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [一女士在丈夫打完第一针疫苗患上心肌炎后终于觉醒](/content/gnews/28/README.md)
+### [一女士在丈夫打完第一针疫苗患上心肌炎后终于觉醒](/content/gnews/32/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [将未接种疫苗者从社会隔离不仅不合理且缺乏科学依据](/content/gnews/29/README.md)
+### [将未接种疫苗者从社会隔离不仅不合理且缺乏科学依据](/content/gnews/33/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [新西兰财经G乐部 2021年12月10日](/content/gnews/30/README.md)
+### [新西兰财经G乐部 2021年12月10日](/content/gnews/34/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [“中共如为独裁侵台，日本将如何接受台湾难民”进入具体讨论](/content/gnews/31/README.md)
+### [“中共如为独裁侵台，日本将如何接受台湾难民”进入具体讨论](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新西兰财经G乐部 2021年12月9日](/content/gnews/32/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [中共军机飞越台湾领空，台湾部署防空导弹系统应对](/content/gnews/33/README.md)
+### [中共军机飞越台湾领空，台湾部署防空导弹系统应对](/content/gnews/36/README.md)
  ` 墨尔本雅典娜农场`
 
-### [日英外长首次会晤 印太地区成为关注焦点](/content/gnews/34/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [文贵爆料12.10.2021 欧盟四国递书抵制冬奥会，俄撇清与中共关系，中共成众矢之的！](/content/gnews/35/README.md)
+### [文贵爆料12.10.2021 欧盟四国递书抵制冬奥会，俄撇清与中共关系，中共成众矢之的！](/content/gnews/37/README.md)
  ` 秘密翻译组-原创组`
 
-### [【玫瑰看新闻】每日快讯](/content/gnews/36/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [洛杉矶禁止未接种疫苗学生参与实体授课](/content/gnews/37/README.md)
+### [洛杉矶禁止未接种疫苗学生参与实体授课](/content/gnews/38/README.md)
  ` GTV新闻访谈`
 
-### [佩罗西就世贸问题针对中共发表强硬讲话](/content/gnews/38/README.md)
+### [佩罗西就世贸问题针对中共发表强硬讲话](/content/gnews/39/README.md)
  ` GTV新闻访谈`
 
-### [研究表明，自然免疫远胜于疫苗提供的保护](/content/gnews/39/README.md)
+### [研究表明，自然免疫远胜于疫苗提供的保护](/content/gnews/40/README.md)
  ` GTV新闻访谈`
 
-### [抖音内幕人士说公司的决策方向仍由中共掌控](/content/gnews/40/README.md)
+### [抖音内幕人士说公司的决策方向仍由中共掌控](/content/gnews/41/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [国防部正“积极讨论”强制军队接种中共病毒加强针](/content/gnews/41/README.md)
+### [国防部正“积极讨论”强制军队接种中共病毒加强针](/content/gnews/42/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [澳大利亚、丹麦、挪威将与美国共同限制向中共出口技术](/content/gnews/42/README.md)
+### [澳大利亚、丹麦、挪威将与美国共同限制向中共出口技术](/content/gnews/43/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [意大利拟对禁止中资收购的企业进行补偿](/content/gnews/43/README.md)
+### [意大利拟对禁止中资收购的企业进行补偿](/content/gnews/44/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [无论占尽多少“嘴便宜”该来的终会来，世界人权日 美全面制裁中共](/content/gnews/44/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [“全过程民主”也挡不住 台湾代表民主峰会发表《国家声明》](/content/gnews/45/README.md)
+### [无论占尽多少“嘴便宜”该来的终会来，世界人权日 美全面制裁中共](/content/gnews/45/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [美国制裁中共国人工智能企业](/content/gnews/46/README.md)
