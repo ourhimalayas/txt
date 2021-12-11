@@ -2,10 +2,27 @@
 ---
 
 
-## 12/10/2021 文贵直播：爆料革命自2019年开始运作抵制北京冬奥会，已彻底击碎了中共的美梦
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1741574/)
+## GTV新闻访谈简报|2021年12月10日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1741581/)
 
-秘密翻译组-北美组
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-5.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/1210text-TC.png)
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+视频参看：[12.10  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61b3fe9256f4921401b4d49f)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-69.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

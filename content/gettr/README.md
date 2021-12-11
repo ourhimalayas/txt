@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/11/2021 5:38 AM (UTC)`
+
+12/10/2021 Miles Guo: The arrogance and insanity of the CCP shows exactly what all the dictators would do – Nationalization of enterprises, deification of dictators, complete destruction of religions and total control of media, and eventually starting a war; 20 more bills will come out following the global boycotts of the 2022 Beijing Winter Olympics. Let’s wait and see!<br/><br/>12/10/2021 文贵直播：今天中共的狂妄就是所有独裁者都干的事 - 企业国有化、个人神圣化、彻底消灭宗教和控制媒体，最后一定是发动战争；全球抵制北京冬奥会后，还有20多个法案会出台，走着看！<br/>
+![img](https://media.gettr.com/group30/getter/2021/12/11/05/662971ec-d7db-5e85-f378-0dbfc2ddc38c/out.jpg)
+
+---
+
 `@miles 12/11/2021 2:07 AM (UTC)`
 
 12/10/2021 Miles Guo: Yang Jiechi has arrested over a dozen fellow fighters who are Cypriot passport holders; the Himalaya Alliance Committee will rescue them at all cost; fellow fighters must leave Cyprus immediately if possible, and Dubai is not safe either; fellow fighters in Canada must watch out for the CCP spies lurking in our Whistleblowers’ Movement!<br/><br/>12/10/2021 文贵直播：杨洁篪抓了拿塞浦路斯护照的十几位战友，联盟委员会将全力营救他们；请能离开塞浦路斯的战友马上走，迪拜也不安全；请加拿大的战友务必小心中共潜伏的特务！<br/>
@@ -145,13 +152,6 @@ Forbes news on Dec 8, 2021:<br/><br/>This week’s World Digital Song Sales char
 
 12/08/2021 Miles Guo: The CCP court seized Pangu Plaza on the trumped-up charge of "forced trading," and the ownership of the assets involved was collateralized to Abu Dhabi in 2013; Wang Qishan's family business ousted the Pangu Hotel management company for its so-called “inability to operate properly” and the Pangu 7 Stars Hotel has been taken over by a property management company<br/><br/>12/08/2021 文贵直播：中共法院以莫须有的“强迫交易罪”将盘古抢走，涉案资产所有权已在2013年抵押给了阿布扎比；王岐山的家族企业以盘古酒店管理公司“不能履行业务”为由将其撵走，并用物管公司接管了盘古七星酒店<br/>
 ![img](https://media.gettr.com/group30/getter/2021/12/09/05/197b0c74-1576-ad51-68c8-fbd9ba75ae6d/out.jpg)
-
----
-
-`@miles 12/9/2021 2:18 AM (UTC)`
-
-12/08/2021 Miles Guo: Weijian Shan reports directly to Wang Qishan and can arrange meetings with the CCP’s high level cadres by making a single phone call; Weijian Shan looks down upon Xi Jinping, and he, Bruno Wu, and others work together to attack me and the Whistleblowers’ Movement; Shan can meet with the world’s leaders in the secret rooms in Davos<br/><br/>12/08/2021 文贵直播：单伟建的直接领导是王岐山，一个电话就能安排见中共高官；单伟建瞧不起习近平，他和吴征等联合攻击文贵和爆料革命；单伟建能在达沃斯跟国际领导人在密室会谈<br/>
-![img](https://media.gettr.com/group2/getter/2021/12/09/02/5980d9a1-c683-4e20-4141-979c484a71c9/out.jpg)
 
 ---
 

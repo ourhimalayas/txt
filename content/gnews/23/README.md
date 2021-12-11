@@ -2,49 +2,53 @@
 ---
 
 
-## 新冠病毒是一种集体催眠术
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1741612/)
+## 尼加拉瓜跟台湾断交后迅速跟中共复交，还在天津举行会谈
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1741685/)
 
-MOS 翻译组-祈望明天会更好
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-11.jpg)
+作者：日本方舟农场- Andy5
 
 
 
-新冠病毒让全人类处于大规模心理超限战的攻击之下。临床心理学教授蒂亚斯-德斯梅特正在研究极权主义心理学，他解释了我们目前处于什么样的状况，以及我们如何在独裁统治中获胜。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image1-6.jpg)
-服从是独裁统治者的手段，被迫服从来自于对独裁者的恐惧。在极权主义下，人们被心理催眠。这种心理催眠的目的是使被催眠的人们服从。 这种大面积人群被集体催眠的现象称为群众集结，而极权主义最开始总是从人群中集结而成。
+![This image has an empty alt attribute; its file name is image-40-1-9-1.png](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-1.png)
 
-蒂亚斯-德斯梅特教授说，现在有30%的人被深度催眠，这30%的人并非理性地接受了实验性打针作为他们的解决方案； 40%的人还没有被催眠，但最终这40%的人都会随波逐流；而剩下的30%的人则看清了事情的真相的人。
 
-独裁统治者拼命地试图挑起内战或暴力革命，因为他们可以控制群众。暴力不会使人们摆脱催眠状态，它只会把更多的人陷入其中。实话实说已经成为一种革命性的行为, 对你遇到的每个人说实话会拯救人类，所以继续做下去。
 
-参考来源：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-1-7.jpg)图片源自网络
 
-[Exclusive Report: This Is How We Overcome The Globalist Takeover](https://www.infowars.com/posts/exclusive-report-this-is-how-we-overcome-the-globalist-takeover/)
+12月10日，尼加拉瓜宣布跟台湾断交，并且在之后数小时内迅速跟中共复交，引起人们的猜疑。 据了解，这并不是尼加拉瓜第一次宣布跟台湾断交，而这两次断交都是奥蒂加主政时期发生的。而中共也趁热打铁，在短短2小时之后就发布消息称跟尼加拉瓜复交，并否认外界所猜测的这背后存在经济上的勾兑。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4.png)
+ 然而，中共外交部华春莹在推上发布尼加拉瓜政府代表团跟中共在天津举行会谈的消息，又让人们加深了疑问。分析人士指出，在目前墙内疫情让各地紧张的情况下，不可能让尼加拉瓜代表当日赶到天津而不采取隔离措施，也就说明从会晤到断交、复交，其实是早就商量好的。而选在这一天也无疑是中共想给正在参加民主峰会的台湾一个下马威。
 
-编辑/校对/发稿：兰兰
+
+参考链接：
+1 [https://mil.news.sina.com.cn/2021-12-10/doc-ikyamrmy7993753.shtml](https://mil.news.sina.com.cn/2021-12-10/doc-ikyamrmy7993753.shtml)
+
+2 [https://world.huanqiu.com/article/45vWl5AqYlk](https://world.huanqiu.com/article/45vWl5AqYlk)
+
+3 [https://www.cna.com.tw/news/firstnews/202112105001.aspx](https://www.cna.com.tw/news/firstnews/202112105001.aspx)
+
+4 [https://news.sina.com.cn/c/2021-12-10/doc-ikyamrmy8017435.shtml](https://news.sina.com.cn/c/2021-12-10/doc-ikyamrmy8017435.shtml)
+
+5 [https://www.sohu.com/a/506995328\_260616](https://www.sohu.com/a/506995328_260616)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/unknown-2.jpg)
+
+总编：Irene木木
+
+校对/发稿：Daxia
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
 [**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-12.jpg)
-
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-1.png)
 
 
  

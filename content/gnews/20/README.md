@@ -2,21 +2,31 @@
 ---
 
 
-## COVID-19 最新情报｜美式幽默！一女子在加州县议会上翻唱圣诞歌曲 用歌词反讽疫苗暴政
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1741662/)
+## 广州恒大病入膏肓
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1741702/)
 
-**撰文｜疫情关注组 / 发布时间｜11/12/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup）](https://gettr.com/user/mightygroup%EF%BC%89)**
+撰稿：菜园子112～尕虎
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1102.jpg)图片来自网络
+自从9月份恒大理财暴雷以来，恒大集团就直接被抬进了重症监护室。
 
-一位名为布里吉特（Bridgette）的加利福尼亚女士日前在加州圣地亚哥县议会上，就延长COVID-19紧急状态的公众讨论环节，上演一出精彩又幽默的抗议表演。
+11月中旬，许老板演了一出大戏，将香港、深圳、广州的豪宅，以及私人飞机，拿去抵押、出售，凑了70亿元，借给恒大还债。
 
-她当众翻唱了玛丽亚·凯莉（Mariah Carey）的“All I Want For Christmas Is You”，用歌词反讽无休止的口罩及封锁措施，揭露自然免疫优于疫苗，更暗示当局刻意隐瞒伊维菌素、羟氯奎、锌、槲皮素等药物对抵抗疫情的实质效用。
+**然而，恒大购房者那颗悬着的心，还没有放下多久，许老板就画风一变，直接给还在****ICU抢救的恒大，下了个病危通知书！**
 
-话不多说，一起来欣赏看看这极具美式幽默风格的抗议表演：
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-8.jpg)
-来源｜[FOX5](https://fox5sandiego.com/news/coronavirus/woman-sings-all-i-want-for-christmas-is-you-parody-to-oppose-pandemic-emergency-extension/)
+12月3日晚间，恒大集团发公告说接到一笔2.6亿美元的偿还通知，但不确定是否有充足的资金继续履行财务责任。集团会统筹考虑其整体财务状况，尊重全体利益相关方，秉承公平性、法制化原则，将积极与境外债权人沟通，为所有利益相关方制定可行的境外重组方案。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1103.png)图片来自网络
+12月3日晚上，恒大集团的躺平公告发出来没多久，广东省人民政府立即约谈了许老板。
 
+广东省人民政府同意向恒大地产集团派驻工作组，督促推进企业风险处置工作，督促切实加强内控管理，维护正常经营。
+
+由此可见，苦苦支撑几个月之后，恒大集团终于走到了债务实质性违约这一步。
+
+新闻参考链接：
+
+[搜狐新闻](https://www.sohu.com/a/505358259_100001551)（中共国墙内媒体）
+
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

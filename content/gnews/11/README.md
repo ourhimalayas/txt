@@ -2,34 +2,37 @@
 ---
 
 
-## 郭先生新歌MV登陆VEVO平台
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1741777/)
+## 无国界记者组织称 中共政权逮捕记者世界第一
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1741807/)
 
-撰稿：纽约香草山教育部 – Irene木木
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-2.png)
-12月10日，据盖特平台消息称，郭文贵先生携新歌《HCoin to the moon》的MV正式登陆VEVO平台，同时，郭先生在VEVO平台上的官方频道也同步上线。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-513.png)
-资料显示，VEVO，即Video evolution网站，是一个由环球音乐集团、索尼音乐娱乐、华纳音乐集团和阿布扎比传媒联合提供免股权分红的授权内容的合资营运企业，主营音乐视频项目。该网站于2009年12月正式推出服务，并立即成为美国访问量最大的音乐服务类网站。目前，VEVO的服务范围覆盖全球多个国家，且观众可在包括苹果、安卓在内的大部分电子平台上浏览该网站的内容。
+作者：纽约香草山医疗部 – 云豹
+![This image has an empty alt attribute; its file name is 1-28.png](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
+12月7日，无国界记者组织发布最新报告《中共国新闻业的大倒退》，指出中共政权正在加速违反其对言论自由的国际承诺，对世界范围内的新闻业和信息权进行了前所未有的镇压。 目前至少有127名记者被中共政权逮捕，排名世界第一位。
 
-与此同时，郭先生的新歌MV也登顶iTunes平台音乐视频排行榜榜首之位。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/7-15.jpg)
 
-【新闻链接】[Miles Guo！首位华人强势杀入国际摇滚巨星阵营！引领国际流行乐坛新浪潮！！](https://gettr.com/post/pja1gle3c0)
+报告中提及，在中共国工作的记者被迫成为党的喉舌，为了获得和更新记者证，他们不得不接受每年90个小时的培训，主要是研读习近平思想；记者调查敏感话题或擅自发布当局认为需要审查的内容，就可能被送进监狱长时间监禁，遭受虐待甚至死亡。因报道新疆议题，有71名维吾尔记者被逮捕。在香港实施国安法后，至少有12名记者或新闻工作者受到迫害。中共对外国新闻记者也极不友善，在2020年驱逐了18名外国新闻机构派驻在中共国的记者。
 
-[维基百科关于Vevo](https://zh.wikipedia.org/wiki/Vevo)
+无国界记者组织的秘书长德洛雷呼吁民主国家，采取任何可行的手段，来阻止中共压抑新闻自由的政策，并支持悍卫新闻自由的中国人。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-4.png)
+参考链接：
 
-总编/编辑：正义的小新
+- [An unprecedented RSF investigation: The Great Leap Backwards of Journalism in China](https://rsf.org/en/reports/unprecedented-rsf-investigation-great-leap-backwards-journalism-china)
 
-校正/发稿：浪迹天涯
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
+
+总编辑：飞虹
+编辑：飞虹
+校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-2.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

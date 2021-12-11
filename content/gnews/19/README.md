@@ -2,54 +2,22 @@
 ---
 
 
-## 尼加拉瓜跟台湾断交后迅速跟中共复交，还在天津举行会谈
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1741685/)
+## 伤尽人道天良的共产党将万劫不复
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1741724/)
 
-作者：日本方舟农场- Andy5
+郭先生的爹都92岁了，被CCP你给他扔到大街上去。听说那盘古的很多的住户里边的狗都给饿死了，这丧尽良心。
 
+**【郭先生直播摘要】 2021.12.5****丧尽人道天良的共产党将万劫不复**
 
+**郭先生:**
 
-![This image has an empty alt attribute; its file name is image-40-1-9-1.png](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-1.png)
+哎呀我爹都92了, 你给他扔到大街上去。听说那盘古的很多的住户里边的狗都给饿死了， 这丧尽良心， 日本鬼子进中国也有没这么狠， 真的是从小听说。 日本人是很坏， 但是日本人绝对没有共产党坏。 现在我真明白了，日本人没把我爹我娘扔马路上， 没把我娘逼死，这是共产党逼的。 你说我们该感谢日本人还是感谢共产党？这帮孙子太坏了，所以说兄弟姐妹们，七哥今天的遭遇绝对不是我一个人，这是整个全中国人面对的环境。要不灭共产党，一切都是扯淡。
 
+谁愿意喜欢共产党，忠于共产党，很忠让他忠于去，我们是一定要消灭共产党。除了奥运会还有一个SWIFT。 共产党你想美国人把你这个SWIFT停了，美元支付系统到那时候，不是我爹被赶在路上，不是我的同事赶在马路上，那将是你共产党的家人。走着看，共产党你没有想过你把事做绝，你在全世界你的亲人你的家人你的钱。新中国联邦人，但凡有一点骨气，大家要现在开始准备行动。明天我们直播中说，我们要全球的新中国联邦战友们开始行动。
 
+我们要找所有这些高官家人亲人朋友和他的资产，我们准备好明年来一场大行动。我们要让他们的家人按照当地国家的法律，被赶在大街上。当他们出国的时候，我们一定要在机场，我们要采取行动，咱们明天直播说。兄弟姐妹们，天助我们新中国联邦，让我们如果不坚定的反共任何一个人，都将你看到这样的下场。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-1-7.jpg)图片源自网络
-
-12月10日，尼加拉瓜宣布跟台湾断交，并且在之后数小时内迅速跟中共复交，引起人们的猜疑。 据了解，这并不是尼加拉瓜第一次宣布跟台湾断交，而这两次断交都是奥蒂加主政时期发生的。而中共也趁热打铁，在短短2小时之后就发布消息称跟尼加拉瓜复交，并否认外界所猜测的这背后存在经济上的勾兑。
-
- 然而，中共外交部华春莹在推上发布尼加拉瓜政府代表团跟中共在天津举行会谈的消息，又让人们加深了疑问。分析人士指出，在目前墙内疫情让各地紧张的情况下，不可能让尼加拉瓜代表当日赶到天津而不采取隔离措施，也就说明从会晤到断交、复交，其实是早就商量好的。而选在这一天也无疑是中共想给正在参加民主峰会的台湾一个下马威。
-
-
-参考链接：
-1 [https://mil.news.sina.com.cn/2021-12-10/doc-ikyamrmy7993753.shtml](https://mil.news.sina.com.cn/2021-12-10/doc-ikyamrmy7993753.shtml)
-
-2 [https://world.huanqiu.com/article/45vWl5AqYlk](https://world.huanqiu.com/article/45vWl5AqYlk)
-
-3 [https://www.cna.com.tw/news/firstnews/202112105001.aspx](https://www.cna.com.tw/news/firstnews/202112105001.aspx)
-
-4 [https://news.sina.com.cn/c/2021-12-10/doc-ikyamrmy8017435.shtml](https://news.sina.com.cn/c/2021-12-10/doc-ikyamrmy8017435.shtml)
-
-5 [https://www.sohu.com/a/506995328\_260616](https://www.sohu.com/a/506995328_260616)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/unknown-2.jpg)
-
-总编：Irene木木
-
-校对/发稿：Daxia
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-1.png)
-
+剪辑：北方信使 | 听写：雨山溪桥客|翻译：Arthur |校对：tonyj |视频制作+字幕： CG. | 编辑&发布：断播
 
  
 

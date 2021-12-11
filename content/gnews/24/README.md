@@ -2,27 +2,20 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月10日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1741581/)
+## COVID-19 最新情报｜美式幽默！一女子在加州县议会上翻唱圣诞歌曲 用歌词反讽疫苗暴政
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1741662/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-5.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/1210text-TC.png)
-校对：Stay文苑
+**撰文｜疫情关注组 / 发布时间｜11/12/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup）](https://gettr.com/user/mightygroup%EF%BC%89)**
 
-编辑：Stay文苑
+一位名为布里吉特（Bridgette）的加利福尼亚女士日前在加州圣地亚哥县议会上，就延长COVID-19紧急状态的公众讨论环节，上演一出精彩又幽默的抗议表演。
 
-发稿：Stay文苑
+她当众翻唱了玛丽亚·凯莉（Mariah Carey）的“All I Want For Christmas Is You”，用歌词反讽无休止的口罩及封锁措施，揭露自然免疫优于疫苗，更暗示当局刻意隐瞒伊维菌素、羟氯奎、锌、槲皮素等药物对抵抗疫情的实质效用。
 
-视频参看：[12.10  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61b3fe9256f4921401b4d49f)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-69.jpeg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+话不多说，一起来欣赏看看这极具美式幽默风格的抗议表演：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-8.jpg)
+来源｜[FOX5](https://fox5sandiego.com/news/coronavirus/woman-sings-all-i-want-for-christmas-is-you-parody-to-oppose-pandemic-emergency-extension/)
 
  
 

@@ -2,34 +2,34 @@
 ---
 
 
-## 继政府之后 坎特呼吁运动员进一步抵制北京冬奥会
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1741754/)
+## 郭先生新歌MV登陆VEVO平台
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1741777/)
 
-作者：飞虹
-![This image has an empty alt attribute; its file name is 1-28.png](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
-12月9日，美国NBA明星，凯尔特人队的欧内斯特·坎特在接受媒体采访时，称尽管目前有多个国家已经宣布对即将举办的北京冬奥会进行外交抵制，但这远远不够。同时他呼吁所有的国家、政府和运动员站出来，推动将2022年冬奥会转移到其他国家举办。并呼吁运动员们敦促他们的政府和相关企业，停止对北京冬奥会的支持和赞助。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/6-19.jpg)
-坎特接着表示，在中共独裁政权实施了针对新疆、香港等地的种族灭绝措施后，如果让中共继续举办奥运会实在是一件令世界蒙羞的事。
+撰稿：纽约香草山教育部 – Irene木木
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-2.png)
+12月10日，据盖特平台消息称，郭文贵先生携新歌《HCoin to the moon》的MV正式登陆VEVO平台，同时，郭先生在VEVO平台上的官方频道也同步上线。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-513.png)
+资料显示，VEVO，即Video evolution网站，是一个由环球音乐集团、索尼音乐娱乐、华纳音乐集团和阿布扎比传媒联合提供免股权分红的授权内容的合资营运企业，主营音乐视频项目。该网站于2009年12月正式推出服务，并立即成为美国访问量最大的音乐服务类网站。目前，VEVO的服务范围覆盖全球多个国家，且观众可在包括苹果、安卓在内的大部分电子平台上浏览该网站的内容。
 
-最后，针对主持人提出的抵制冬奥会可能会影响运动员职业生涯的问题，坎特分析道，对于运动员来说，坚持正确的道德准则、价值原则，比赢得金牌更加重要，彭帅的遭遇已经充分说明了运动员在中共国会非常不安全。
+与此同时，郭先生的新歌MV也登顶iTunes平台音乐视频排行榜榜首之位。
 
-参考链接：
+【新闻链接】[Miles Guo！首位华人强势杀入国际摇滚巨星阵营！引领国际流行乐坛新浪潮！！](https://gettr.com/post/pja1gle3c0)
 
-- [Kanter Freedom: How Can We Trust China with Our Athletes After What They Did to Peng Shuai?](https://www.breitbart.com/clips/2021/12/09/kanter-freedom-how-can-we-trust-china-with-our-athletes-after-what-they-did-to-peng-shuai/)
+[维基百科关于Vevo](https://zh.wikipedia.org/wiki/Vevo)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-4.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
+总编/编辑：正义的小新
 
-总编辑：文特
-校正/发稿：海阔天空1
+校正/发稿：浪迹天涯
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
