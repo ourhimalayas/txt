@@ -2,47 +2,26 @@
 ---
 
 
-## 维基解密创始人阿桑奇被英国高院裁定或引渡美国
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1742469/)
+## 意大利拟对禁止中资收购的企业进行补偿
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1742536/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-538.png)[图片来源](https://www.cifnews.com/article/73852)
+路透社12月10日报道，两名意大利政府官员表示，意大利正在考虑向因政府行使反收购权力而受到打击的企业提供补偿，此举旨在降低出现法律纠纷的风险。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/1a7c9d3a9ea3e0349786ba4e48e31b40_w.jpg)
+意大利总理德拉吉自2月上任以来，曾多次行使所谓的“黄金权力”，以阻止中共国投资者收购被视为具有战略重要性的企业的控股权。
 
+今年4月，政府阻止了总部位于米兰的半导体设备生产商LPE被中共国深圳创疆科技控股有限公司收购，随后，LPE向行政法院提起上诉。
 
- 
-图片来源:   Reuters
+不具名消息人士表示，提供经济补偿的想法旨在限制企业向法院提起诉讼，并帮助政府就针对剥夺股东权利的指控进行辩护。这项尚未敲定的提案是由工业部长Giancarlo Giorgetti发起的。LPE案件的首次听证会定于2022年7月举行，并补充称，深圳创疆将作为共同原告出席。德拉吉最近一次在11月行使黄金权力的行动可能引发另一场官司。
 
+浙江晶盛机电上月表示，意大利政府阻止了其与应用材料[AMAT.O](https://cn.reuters.com/companies/AMAT.O)香港公司成立的合资企业，收购后者在意大利的丝网印刷设备业务的计划。消息人士称，应用材料意大利公司可能会对政府采取行动，该公司认为这笔交易对增加其在中共国的市场份额很重要。
 
-#### 整理报道 ：小红帽
+消息来源：[屡次阻止中资收购 意大利拟补偿受打击企业以避免遭提诉–消息人士](https://cn.reuters.com/article/italy-china-acquisition-compensation-121-idCNKBS2IQ02Z?il=0)
 
-**据SBS中文12月11日报道，美国在英国伦敦高等法院赢得上诉，事关引渡维基解密创始人朱利安·阿桑奇(Julian Assange)以面对刑事指控。**
-
-该裁决推翻了伦敦地区法官1月4日拒绝美国引渡的决定。该决定认为阿桑奇不应被引渡，因为他可能会在美国监狱中自杀。
-
-澳大利亚人阿桑奇因维基解密在2010年公布与美国在阿富汗和伊拉克战争有关的机密军事文件而面临审判。
-
-美国政府已向阿桑奇提出18项指控，这些指控与维基解密发布50万份有关阿富汗和伊拉克冲突的秘密文件有关。
-
-如果被引渡、审判和定罪，一旦罪名成立，阿桑奇将面临最长至175年的监禁。
-
-周五，高等法院首席大法官伯内特勋爵（Lord Chief Justice Burnett）和霍罗伊德大法官（Lord Justice Holroyde）做出了有利于美国的裁决。阿桑奇的未婚妻斯特拉·莫里斯(Stella Moris) 表示会上诉。
-
-否认有任何不当行为的阿桑奇并未出庭。 他被关押在伦敦戒备森严的贝尔马什监狱（Belmarsh Prison）已逾两年半之久。
-
-亲阿桑奇的支持者聚集在法庭外，挥舞着标语，要求立即将他从伦敦东南部戒备森严的监狱中释放。
-
-新闻来源：[英国高等法院裁定维基解密创始人阿桑奇可被引渡美国 (sbs.com.au)](https://www.sbs.com.au/chinese/mandarin/zh-hans/wikileaks-founder-julian-assange-can-be-extradited-to-the-us-british-court-rules)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
