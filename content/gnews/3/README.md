@@ -2,13 +2,11 @@
 ---
 
 
-## 日本民间人士成功开启首次太空之旅
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1741544/)
+## 12/10/2021 文贵直播：爆料革命自2019年开始运作抵制北京冬奥会，已彻底击碎了中共的美梦
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1741574/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12._11-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+秘密翻译组-北美组
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

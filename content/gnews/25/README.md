@@ -2,22 +2,31 @@
 ---
 
 
-## 纽约市警方：针对亚裔的仇恨犯罪增至去年4倍
-` 向真` [轉載自GNews](https://gnews.org/zh-hans/1741282/)
+## 七哥谈：唢呐送葬（2021-12-10摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1741324/)
 
-#### 加拿大温哥华农场 向真
-![](https://assets.gnews.org/wp-content/uploads/2021/12/6A6E2482-71A5-4528-871A-A9CF8E0C57FB_4_5005_c.jpeg)来源：superpyq
-据共同社12月9日报道，美国纽约市警察局近日透露，今年截至本月5日，市内针对亚裔的仇恨犯罪骤增至去年全年的4倍以上。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-实际的仇恨犯罪数量可能要多得多。因为即使是可能以种族为犯罪动机的案件，由于缺乏现场歧视性言论的明确记录，警方也大多只是作为暴力案件等处理，而不作为仇恨犯罪处理。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-10-下午6.38.46.png)来源：RFA
-此前有人批评美国前总统特朗普称新冠病毒为“中国病毒”，导致从去年2月开始，针对亚裔居民的歧视性言行及骚扰事件激增。拜登上台后对中共病毒溯源采取了模糊策略，不再提“中国病毒”这个词，但针对亚裔的仇恨犯罪事态反而进一步恶化。
+来源：郭先生2021-12-10直播09：02：36 摘录
 
-随着全球性的疫苗灾难和经济危机的临近，世界各国对华裔的仇视将不断累积和爆发。因此，郭文贵先生发起今年春节开始大规模揭露邪恶中共释放病毒、主导全球有毒疫苗的真相，为中共举办一千天的送葬行动，是所有海外华人不能错过的自救及消灭中共的重要机会。
+大年春节咱要给共产党送葬，给习近平给习近平的娘齐心送葬。我们一定要带上最好的音乐，我们那个唢呐中国的唢呐，是送你生送你死都是唢呐。那我们的唢呐一定向我们山德老家‘啊啊啊啊’，哎呦我的妈呀这浑身都哆嗦‘啊啊啊’是吧。咱要让他听着一嗓子叫他终生难忘。
 
-参考：
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-[纽约针对亚裔的仇恨犯罪增至去年4倍](https://china.kyodonews.net/news/2021/12/6df40f7b50b9-4.html)
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
