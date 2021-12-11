@@ -2,20 +2,33 @@
 ---
 
 
-## 加拿大学生受害于疫苗接种政策
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1741283/)
+## 七哥谈：音乐是什么（2021-12-10摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1741303/)
 
-原文采编：文莱  翻译编辑：文所未闻
-![](https://assets.gnews.org/wp-content/uploads/2021/12/06-image-3.jpg)
-据加拿大自媒体《真北方》12月8日报道，安大略省皮尔学区的家长接到通知：凡12岁以上的学生必须完全接种“新冠病毒”疫苗，否则将无资格参与学校之间进行的各项体育比赛。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-报道称，学生及其家长对此深受其困。不仅担心以上规定会在接种和未接种的学生之间产生分裂，更恐惧该疫苗对青春期孩子带来高发病率的心肌炎或心包炎等重大疾病及其导致的死亡。
+来源：郭先生2021-12-10直播09：00：54 摘录
 
-校对编辑：硫酸羟氯喹64
+音乐是什么，音乐是自由的，音乐是浪漫的，音乐是情感和自然之间唯一的没被解码的一种沟通的最好的方式，音乐是男女之间最美好的桥梁，音乐是达到了你精神上的最高自由境界，可以让你精神上达到了高潮和天地，和神之间的沟通，和不能和你有共同语言的动物和植物，石头，山川，河流之间的沟通的唯一的方式，唯一的方式。这是为什么当时的希腊的故事里边宙斯，缪斯以及九个音乐之神，所诞生的各种神的母亲神的父亲，当时所有的这种希腊的故事，音乐之神为什么是宙斯为什么是缪斯，为什么是提携的所有的生出的儿女? 他们和山川和河流和狮子和动物之间沟通的唯一方式就叫音乐，甚至他们对天上唯一祈祷的方式，允许的共同方式就是音乐，因为音乐的力量是唯一一个是没有性别，没有语言，没有黑白，没有任何物理区域隔离的和能拦得住的方式的沟通方式，而且从人类到现在为止所有的祈祷上天和向上天祈福，包括去诅咒某些人用的唯一方式不是献命，不是献血，音乐！
 
-发稿：苦尽甜来 (文來）
+校对：HimaFaFA
+发布：HimaBoy
 
-[原文链接](https://tnc.news/2021/12/08/peel-students-must-be-vaccinated-to-play-high-school-sports/)
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
