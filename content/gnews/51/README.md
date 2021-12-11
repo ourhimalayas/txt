@@ -2,28 +2,30 @@
 ---
 
 
-## 苹果公司与北京秘密签署2750亿美元投资协议
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1740818/)
+## 讣 告
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1741350/)
 
-本文作者：Rebecca (一切心皆不可得！)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image001-1.png)
-据路透社报道，网媒《信息》（The Information）周二（7日）独家披露，苹果公司 (AAPL.O) 首席执行官蒂姆-库克（Tim Cook），2016年5月曾与中共政府官员“秘密”签署了一份 2,750 亿美元的投资协议。以缓解可能会导致其产品与服务在中国市场受挫的威胁。
+百年恶党中共匪首习近平,于北京时间2021年12月8日晚，在中南坑，穿着皇帝的新衣，裸死，享年68岁。
 
-该份协议内容包括：
+当晚，新中国联邦缔造者郭文贵先生发布了这一消息，面向全世界宣判了这个历史罪人生命的终结！消息传开，群山起舞、四海欢腾！
 
-- 苹果承诺帮助中共国制造业者开发‘最先进的制造技术’并‘支持培养高素质的中共国人才’
-- 苹果承诺在其产品使用更多来自中共国供应商的组件，与中共国软件公司签署协议，与中共国大学进行技术合作，并直接投资中共国科技公司
-- 苹果承诺在中共国市场的投资将比当时的水平高出“数十亿美元“
+在习近平病重期间，郭文贵先生对其予了不遗余力的救治。但终因其恶及膏肓、执迷不悟，而救治无果。
 
+习近平的一生，是乐视生父吃屎的一生、是记食不记打的一生、是视同胞如草芥的一生、是祸国殃民的一生！
 
-如果双方都不反对，该份协议将自动延期至第六年，即到2022年5月。
+鉴于习近平曾倾尽其愚蠢助力爆料革命,新中国联邦已于当晚为他以及他的家人启动了全球送葬活动！
 
-参考来源：[https://www.reuters.com/business/retail-consumer/apples-tim-cook-signed-275-bln-deal-with-chinese-officials-placate-china-2021-12-07/](https://www.reuters.com/business/retail-consumer/apples-tim-cook-signed-275-bln-deal-with-chinese-officials-placate-china-2021-12-07/)[链接](https://www.reuters.com/business/retail-consumer/apples-tim-cook-signed-275-bln-deal-with-chinese-officials-placate-china-2021-12-07/)
+为这个恶棍送葬！送习近平的追随者们陪葬！
 
-审核校对：sherryok (水云间)
+望尊敬的先生们、女士们、所有追求民主法治、渴望自由和平的人们广而告之，以期同心协力将习近平等送至地狱最底层！
 
-上传排版：漂流瓶
+2021年12月9日
 
+新中国联邦人全体
+
+*制作：东京樱花团/待命（文晓）*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

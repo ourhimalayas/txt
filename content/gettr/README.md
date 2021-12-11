@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/11/2021 2:51 PM (UTC)`
+
+12月11号：尊敬的战友们好，你们健身了吗？你们传播C C P病毒和疫苗解药的真相了吗？一切都已经开始！
+![img](https://media.gettr.com/group40/getter/2021/12/11/14/75cc5cb2-5e5b-7e93-f94d-4c9cf26b64d3/out.jpg)
+
+---
+
 `@miles 12/11/2021 1:24 PM (UTC)`
 
 12/10/2021 Miles Guo: The U.S. will have 10 striking actions against the CCP; the U.S. and Russia who have been arch-enemies started to hold a secret meeting for negotiating deals; Russia stabbed Xi Jinping at the critical moment; the CCP won’t survive till 2025 for sure<br/><br/>12/10/2021文贵直播：美国会有十招对付中共，招招毙命，一向互为死敌的美俄开始秘密会面讲数，“北极熊”在关键时刻背后捅了习太阳一刀，中共一定撑不过2025年<br/>
@@ -145,13 +152,6 @@ Hcoin To The Moon MV 上线仅仅3小时， 澳洲🇦🇺，香港 🇭🇰的i
 
 Billboard Digital Song Sales Top 50 (USA🇺🇸 week of December 11th 2021)<br/><br/>No.28 Hcoin To The Moon<br/>🎉🎉🎉🎉🎉🎉🎉<br/><br/>公告牌数字歌曲销售前50名综合排行榜（美国🇺🇸本周排行至2021年12月11日）<br/><br/>第28名 Hcoin To The Moon<br/>🎉🎉🎉🎉🎉🎉🎉<br/><br/><br/>
 ![img](https://media.gettr.com/group26/getter/2021/12/09/13/dcfd79d4-1b9b-da99-6448-1f8903d36a9d/out.jpg)
-
----
-
-`@miles 12/9/2021 1:08 PM (UTC)`
-
-Forbes news on Dec 8, 2021:<br/><br/>This week’s World Digital Song Sales chart is dominated by an artist who is simultaneously<br/>famous, and relatively unknown. <br/><br/>No. 1 - Miles Guo - “Hcoin to the Moon”<br/>Mysterious Chinese billionaire and controversial political commentator Miles Guo is back on the Billboard charts with his latest release “Hcoin to the Moon.” The tune opens at No. 1 on the World Digital Song Sales ranking, conquering the tally with ease. The cut also reaches other purchase-focused lists, including the all-genre Digital Song Sales tally, where it starts off at No. 28 with just under 2,800 copies sold, according to MRC Data.<br/><br/>https://www.forbes.com/sites/hughmcintyre/2021/12/08/exos-kai-stray-kids-chung-ha-and-ive-moves-on-the-world-songs-chart/amp/
-![img](https://media.gettr.com/group40/getter/2021/12/09/13/e6bcc696-5f2c-c6aa-11c4-d64403d7e17e/edc0c170ddab2c504c0eb69b90c00abe.jpg)
 
 ---
 

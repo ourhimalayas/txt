@@ -2,33 +2,43 @@
 ---
 
 
-## 一个对疫苗引发的血液栓塞的治疗方案
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1738361/)
+## 恒大违约将拖累加密货币、机构投资者、养老基金
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1738416/)
 
-翻译：喜国公民
-视频来自网络
-[Stew Peters最近采访了Zandre Botha 医生](https://www.redvoicemedia.com/2021/12/doctor-finds-treatment-for-vaxx-victims-sees-major-improvement-in-blood/)。对于疫苗引起的可怕的副作用， Botha 医生提出了有助于改善血液栓塞的疗法。
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-Botha 医生说，她的所有完全处于康复期的癌症患者，在打过疫苗后，癌症复发，并且完全扩散。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/economiccrisisadobestockweb.jpg)
 
-世界各地的医生团体举行了多次会议并交换了信息。Botha 医生根据交换的信息，提出了一个治疗方法。
 
-这个疗法只是针对轻微症状的病人，包括癌症和高血压患者。是为每一个接种过疫苗并且醒悟了，需要帮助的病人准备的。
+ 
+图片来源:  www.cdrecycler.com
 
-该治疗方案包括伊维菌素，12毫克，每天一粒，持续五天，然后每周一粒。同时给予高剂量的NAC，一天三次，每次500毫克。这有利于肝脏排毒。
 
-还有血液增氧剂，一种叫做氢气注射的东西。是整体形式的氢气分子，对解毒非常好，但也适用于严重的缺氧症状。
+#### 整理报道 ：小红帽
 
-人们最应该用的一样药是叫做沸石的东西。沸石实际上可以对化学品、辐射和金属进行解毒。对于打了疫苗的人来说，要吃三盒。
+中国庞氏房地产开发商恒大现已正式违约，因为惠誉（Fitch）已确认这家负债累累的公司错过了债券利息支付，未偿债券超过3千亿美元。房地产开发商佳兆业（Kaisa）也被点名，还有近十几家其他中国房地产开发商被广泛认为正在违约的路上。
 
-还有1000毫克的维生素D，以及碱性粉末。碱性粉末对心脏有好处，而酸性会给心脏带来很多问题。
+“**这不仅仅是恒大的违约，这是中国和银行体系的违约**，”丹· 大卫（Dan David）告诉福克斯商业频道。“他们将迎来如2008年美国次贷房地产泡沫一样的崩溃。”
 
-还有一个叫“奇迹增强”的方子，用于修复DNA。里面的东西是一个食物组合，包括了超级食物，像印度的螺旋藻，黑米，大麦等。还有甜菜根粉，只是要帮助吸收铁
+**在整个2022年，我们都将目睹极端的金融压力，以及许多可能的违约。这将通过持有恒大债务的各种机构蔓延。同时，这可能会影响养老基金，对冲基金，机构投资者，私人投资者甚至中央银行。**
 
-铁对氧气运输至关重要。人的心脏和大脑缺氧会产生疲劳和消化不良。
+许多分析师认为，凭空创造加密货币的“稳定币””提供商Tether可能在恒大拥有数百亿美元的敞口。随着恒大的违约现已正式宣布，**这意味着Tether对恒大、佳兆业或其他中国房地产开发商的持股价值实际上为零**。重要的是，这可能意味着**Tether不再有足够的资产来覆盖其发行到加密生态系统中的USDT硬币**。
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-2.jpg)
+**由于所有比特币购买行为中有三分之二实际上是使用Tether硬币进行的，这也意味着比特币的市场估值可能会被数字货币印刷业务大幅夸大。**
+
+约翰·佩雷斯（John Perez）认为**整个加密生态系统都依赖于大规模的数字货币伪造操作，泡沫很快就会破裂，使加密货币持有者处于与恒大债务持有者相同的位置。**
+
+新闻来源：[恒大违约 – 传染风险将蔓延到加密货币、机构投资者、养老基金等 – NaturalNews.com](https://www.naturalnews.com/2021-12-09-evergrande-defaults-contagion-risk-will-spread-to-crypto-institutional-investors-pension-funds.html)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
