@@ -2,40 +2,31 @@
 ---
 
 
-## 研究表明，自然免疫远胜于疫苗提供的保护
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1742863/)
+## 澳大利亚的疫苗护照，是出于政治需要还是医疗原因？
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1742917/)
 
-作者：纽约香草山农场 柳是多水土透
+作者：悯先生
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片-1-22.jpg)
+近日，Australian Technical Advisory Group on Immunisation (ATAGI)的免疫学专家参加澳大利亚议会所举行的听证会。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+被问到关于由各州制定的疫苗护照是否有必要的的时候，ATAGI的主席Christopher Blyth说，ATAGI从未推荐强制疫苗。
 
-2月10日，据媒体消息显示，以色列的一项新研究表明，个体从新冠病毒感染康复后所获得的免疫力远胜于新冠疫苗所宣传的保护力。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-11-at-8.19.02-PM.png)
-消息称，以色列的科学家对该国的健康数据库进行了长达几个月的研究，其后发现，那些具有自然免疫力的人在康复后的四至六个月内，其再次感染新冠病毒的比率仅为那些接种新冠疫苗的七分之一。
+他继续解释，如何具体推广疫苗和管理，是各州自己决定。
 
-研究人员表示，自然免疫者能够更好地抵御新冠病毒感染和其所带来的严重疾病，同时，自然免疫的防护会更加持久和全面。
+同时，另一位专家Allen Cheng对澳洲已形成新冠病毒群体免疫的观点有自己的看法。他提出，疫苗并非100%有效，有效性会随时间推移减弱，而且病毒有变异情况。
 
-另据数据显示，新冠感染和重症患者在新冠疫苗接种人群中出现的比率更高。
+卫生部长Greg Hunt说澳洲居民很快就可以选择辉瑞或是莫德纳作为加强针。
 
-参考链接：
+他强调面临新变种的威胁，加强针是必要的。
 
-1. [New study suggests natural immunity is more protective over time than COVID-19 vaccine](https://justthenews.com/politics-policy/coronavirus/new-study-suggests-natural-immunity-more-protective-over-time-covid-19)
-2. [体制内专家爆料，疫苗会导致儿童快速发育，早熟比例是以前的很多倍，很大可能会长肿瘤。](https://gettr.com/post/piowln8d9e)
+官方专家对强制疫苗的表态，让笔者联想到很多西方国家的强制疫苗的政令层出不穷，这到底是出于科学健康，还是这些政府的政治需要？
 
+同时，最近政府媒体大量扩散新变种的消息，恰好正是推行加强针的时间点，这是不是太巧合了？
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
+新闻链接：[https://www.heraldsun.com.au/coronavirus/australias-expert-immunisation-says-they-never-recommended-covid-vaccine-mandates/news-story/6adbdda47821393af156772501490691](https://www.heraldsun.com.au/coronavirus/australias-expert-immunisation-says-they-never-recommended-covid-vaccine-mandates/news-story/6adbdda47821393af156772501490691)
 
-编辑/总编：Irene木木
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+审核校对：Barry Jack
+上传排版：F
 
  
 

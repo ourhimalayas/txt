@@ -2,25 +2,40 @@
 ---
 
 
-## 真、善、狠的真谛
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1742835/)
+## 研究表明，自然免疫远胜于疫苗提供的保护
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1742863/)
 
-作者：道行天下
-![](https://assets.gnews.org/wp-content/uploads/2021/12/下载.jpeg)
-真、善、狠是文贵先生最先提出，是爆料革命战友精神的追求和宗旨，也是每一位战友的行为准则。
+作者：纽约香草山农场 柳是多水土透
 
-唯“真”不破是爆料革命中最响量的口号，也是最有力的武器。共产党是以假、骗、偷、抢而获天下，坐天下。他的假如乌云遮住太阳的光芒，让中国人生活在黑暗中，带给中国人只有寒冷和苦难，中共百年来的发展就是假、丑、恶的发展，一个又一个的运动就是在假的掩盖下，造着丧尽天良的孽。以解放的名义，杀戳他人的生命；以共产的名义，抢劫他人财富；以国家的名义，维护独裁的统冶；一次次的运动，一个个政策，都会以人民的名义，其背后无不是金钱与权力的争斗。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-假是中共的代名词，而真是消灭他的最好武器，只有真，才能让假无处藏身身，只有真才能让假大白于天下，只有真才能让我们生活在阳光下。真是一切美好和健康的基础，所以真排在第一，这也是做人的基础与底线，是爆料革命最基本的要求。
+2月10日，据媒体消息显示，以色列的一项新研究表明，个体从新冠病毒感染康复后所获得的免疫力远胜于新冠疫苗所宣传的保护力。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-11-at-8.19.02-PM.png)
+消息称，以色列的科学家对该国的健康数据库进行了长达几个月的研究，其后发现，那些具有自然免疫力的人在康复后的四至六个月内，其再次感染新冠病毒的比率仅为那些接种新冠疫苗的七分之一。
 
-真，首先是对自我的要求。然后才是外部的探寻真相，这是智慧的觉悟与提高。能不被虚、假所欺骗是真的另一层次。爆料革命不仅要求自己做到真，也要求我们去探索世界的一切真相，去提升自己的智慧。
+研究人员表示，自然免疫者能够更好地抵御新冠病毒感染和其所带来的严重疾病，同时，自然免疫的防护会更加持久和全面。
 
-除了真以外，爆料革命最需要的是善。善首先是对他人的态度。善是阳光，温暖的是世界，善待他人，善良待自己，是爆料革命新中国联邦人的行为准则。只有善，才能让这个世界更温暖更美好。爆料革命的善能去除医治中共的恶。中共可以说是恶贯满容，为了自己一己私利，可以不顾一切去伤害他人。为了烤熟自己一只鸡，可以去烧毁他人的一栋房屋，极其自私与残忍。为了自己的统治，为了一统江湖，用病毒危害世界，弃天下人生命与财产不顾，其根本是心无善心。
+另据数据显示，新冠感染和重症患者在新冠疫苗接种人群中出现的比率更高。
 
-“狠”是文贵先生和爆料革命的伟大大创新，狠是宣布对假丑恶的开战。面对邪恶，需要的不是忍，那是懦弱的借口。只有狠，才能让丑、恶害怕并最终消失。 世上的恶，从来不会因为你的忍让而止步，只有狠才能让他们害怕。只要恶出现，就比他狠十倍百倍，谁欺负爆料革命新中国联邦人，谁给爆料革命造成伤害，哪怕是他跑到天涯海角，也要找到和他算帐，让他百倍千倍偿还，只有这样，才能让恶的人恐惧，才是保护自我的最好方式。“狠”是给中国人注入血性，多少年了，忍让让中国老百姓成了跪族，而爆料革命的狠，是让中国人重新回到勇的时代，回归我们的血性！
+参考链接：
 
-审核校对：Barry Jack
-上传排版：F
+1. [New study suggests natural immunity is more protective over time than COVID-19 vaccine](https://justthenews.com/politics-policy/coronavirus/new-study-suggests-natural-immunity-more-protective-over-time-covid-19)
+2. [体制内专家爆料，疫苗会导致儿童快速发育，早熟比例是以前的很多倍，很大可能会长肿瘤。](https://gettr.com/post/piowln8d9e)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
+
+编辑/总编：Irene木木
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 
