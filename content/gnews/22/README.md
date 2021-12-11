@@ -2,57 +2,25 @@
 ---
 
 
-## 7·24系列之“单伟建”——儿子单博
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1742792/)
+## 真、善、狠的真谛
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1742835/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/bo-shan-house.png)图片来源：DIRT.com
-**整理/编辑：**翼族
+作者：道行天下
+![](https://assets.gnews.org/wp-content/uploads/2021/12/下载.jpeg)
+真、善、狠是文贵先生最先提出，是爆料革命战友精神的追求和宗旨，也是每一位战友的行为准则。
 
-12月8号郭文贵先生盖特：让这些爱中共的共产党特务的所有的钱财和共产党的黑暗的交易曝光在阳光之下，让美国人民觉醒。 【[https://www.dirt.com/moguls/finance/…](https://www.dirt.com/moguls/finance/bo-shan-house-brentwood-1203303596/) 单建伟儿子 Bo Shan /Leilei Shan( 单博/单磊磊)在2019年以2000万美元买下的豪宅，位于Brentwood, Los Angeles, Calif. https://www.dirt.com/moguls/finance/bo-shan-house-brentwood-1203303596/】
+唯“真”不破是爆料革命中最响量的口号，也是最有力的武器。共产党是以假、骗、偷、抢而获天下，坐天下。他的假如乌云遮住太阳的光芒，让中国人生活在黑暗中，带给中国人只有寒冷和苦难，中共百年来的发展就是假、丑、恶的发展，一个又一个的运动就是在假的掩盖下，造着丧尽天良的孽。以解放的名义，杀戳他人的生命；以共产的名义，抢劫他人财富；以国家的名义，维护独裁的统冶；一次次的运动，一个个政策，都会以人民的名义，其背后无不是金钱与权力的争斗。
 
-根据郭先生转发的这篇DIRT网站的文章介绍，洛杉矶的这座豪宅被单博夫妇以约 1970万美元的“**全现金交易”（all-cash deal）**买下。
+假是中共的代名词，而真是消灭他的最好武器，只有真，才能让假无处藏身身，只有真才能让假大白于天下，只有真才能让我们生活在阳光下。真是一切美好和健康的基础，所以真排在第一，这也是做人的基础与底线，是爆料革命最基本的要求。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/million-dollar-listing-star-tracy-tutor-asking-23-9m-for-elegant-brentwood-abode2.jpg)图片来源：American Luxury
+真，首先是对自我的要求。然后才是外部的探寻真相，这是智慧的觉悟与提高。能不被虚、假所欺骗是真的另一层次。爆料革命不仅要求自己做到真，也要求我们去探索世界的一切真相，去提升自己的智慧。
 
+除了真以外，爆料革命最需要的是善。善首先是对他人的态度。善是阳光，温暖的是世界，善待他人，善良待自己，是爆料革命新中国联邦人的行为准则。只有善，才能让这个世界更温暖更美好。爆料革命的善能去除医治中共的恶。中共可以说是恶贯满容，为了自己一己私利，可以不顾一切去伤害他人。为了烤熟自己一只鸡，可以去烧毁他人的一栋房屋，极其自私与残忍。为了自己的统治，为了一统江湖，用病毒危害世界，弃天下人生命与财产不顾，其根本是心无善心。
 
-单博（英文名：Bo Leilei Shan）是单伟建（Weijian Shan）的独子，对冲基金“戈壁资本有限责任公司”（Gobi Capital LLC）的创始人，在旧金山和洛杉矶设有办事处。单博的夫人凯瑟琳·杜琳（Catherine Dooling）是硅谷社区基金会（Silicon Valley Community Foundation，2018年传出丑闻的一家慈善机构）的投资官。
+“狠”是文贵先生和爆料革命的伟大大创新，狠是宣布对假丑恶的开战。面对邪恶，需要的不是忍，那是懦弱的借口。只有狠，才能让丑、恶害怕并最终消失。 世上的恶，从来不会因为你的忍让而止步，只有狠才能让他们害怕。只要恶出现，就比他狠十倍百倍，谁欺负爆料革命新中国联邦人，谁给爆料革命造成伤害，哪怕是他跑到天涯海角，也要找到和他算帐，让他百倍千倍偿还，只有这样，才能让恶的人恐惧，才是保护自我的最好方式。“狠”是给中国人注入血性，多少年了，忍让让中国老百姓成了跪族，而爆料革命的狠，是让中国人重新回到勇的时代，回归我们的血性！
 
-据网络公开信息，单博是宾夕法尼亚大学沃顿商学院的工商管理硕士学位（MBA），自2009年8月1日起加入戈壁资本，拥有75%以上的股权。
-
-戈壁资本有限责任公司（以下简称“戈壁资本”）的登记地址在旧金山的一处公寓：909 Montgomery Street, Suite 400, San Francisco, CA 94133。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/GOBI.jpg)图片来源：Bloomberg
-
-
-有意思的是，戈壁资本的登记地址与加州参议员黛安·费恩斯坦（Dianne Feinstein）丈夫的百隆资本公司（Blum Capital）的地址一致。关于单伟建与费恩斯坦的关系，请参见文章《[7·24系列之“单伟建”——新桥资本和费恩斯坦参议员的关系](https://gnews.org/zh-hans/1735941/)》。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/BLUM.jpg)图片来源：blumcapital.com
-
-
-根据戈壁资本公布的最新文件，2021第二财政季度，戈壁资本收购了Gobi Acquisition Corp（戈壁收购公司）和Karooooo（新加坡的一家网络公司），出售了Visa Inc、Sea、Dragoneer Growth Opportunities Corp所持股份。截至2021年的第二财政季度，戈壁资本共持有13只股票，总价值17亿美元。其中戈壁资本投资占比最大的三家股票分别是：
-Facebook Inc（脸书） – 1,087,941 股，占总投资组合的22.78%；
-Alphabet Inc （谷歌） – 135,192 股，占总投资组合的 20.40%；
-Credit Acceptance Corp ( CACC ) – 587,803 股，占总投资组合的 16.07%。
-
-戈壁资本的总持股金额，从2016年开始的1.1亿美元，到2021年已增长至近40亿美元。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/未标题-1-1.jpg)gurufocus.com
-
-
-“戈壁收购”（Gobi Acquisition）是一家由太平洋联盟集团（PAG Group，即“太盟”） 成立的空白支票公司（SPAC），注册地在香港皇后大道东1号的太古广场3座33楼（Three Pacific Place, 33rd Floor, 1 Queen’s Road East），与太盟的办公地址一致。
-
-目前“戈壁收购”已向美国证券交易委员会SEC提交了不超过2.5亿美元的首次公开募股书，计划在纳斯达克上市，代码为“GOBI”。
-
-单伟建曾在2019年出版过一本自传式的回忆录，名为《走出戈壁》，由此可见单伟建的戈壁情节。但无论是戈壁资本公司还是戈壁收购公司，都不过是单伟建家族洗劫中国人民财富的壳公司。所以，即使单伟建的肉身走出了戈壁，但良知却永远留在了那片荒芜之地。
-
-*发布：翼族*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+审核校对：Barry Jack
+上传排版：F
 
  
 

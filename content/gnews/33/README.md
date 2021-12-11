@@ -2,26 +2,43 @@
 ---
 
 
-## 意大利拟对禁止中资收购的企业进行补偿
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1742536/)
+## 巴西一个负责颁发新冠疫苗证书的网站被黑客攻击
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1742680/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-538.png)[图片来源](https://www.cifnews.com/article/73852)
-路透社12月10日报道，两名意大利政府官员表示，意大利正在考虑向因政府行使反收购权力而受到打击的企业提供补偿，此举旨在降低出现法律纠纷的风险。
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-意大利总理德拉吉自2月上任以来，曾多次行使所谓的“黄金权力”，以阻止中共国投资者收购被视为具有战略重要性的企业的控股权。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/cyberattack.jpg)
 
-今年4月，政府阻止了总部位于米兰的半导体设备生产商LPE被中共国深圳创疆科技控股有限公司收购，随后，LPE向行政法院提起上诉。
 
-不具名消息人士表示，提供经济补偿的想法旨在限制企业向法院提起诉讼，并帮助政府就针对剥夺股东权利的指控进行辩护。这项尚未敲定的提案是由工业部长Giancarlo Giorgetti发起的。LPE案件的首次听证会定于2022年7月举行，并补充称，深圳创疆将作为共同原告出席。德拉吉最近一次在11月行使黄金权力的行动可能引发另一场官司。
 
-浙江晶盛机电上月表示，意大利政府阻止了其与应用材料[AMAT.O](https://cn.reuters.com/companies/AMAT.O)香港公司成立的合资企业，收购后者在意大利的丝网印刷设备业务的计划。消息人士称，应用材料意大利公司可能会对政府采取行动，该公司认为这笔交易对增加其在中共国的市场份额很重要。
+图片来源:   ZDNET
 
-消息来源：[屡次阻止中资收购 意大利拟补偿受打击企业以避免遭提诉–消息人士](https://cn.reuters.com/article/italy-china-acquisition-compensation-121-idCNKBS2IQ02Z?il=0)
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+#### 整理报道 ：小红帽
+
+**据RT新闻12月10日报道，一个属于巴西卫生部的网站被勒索软件攻击而关闭。该勒索软件还袭击了存有该国免疫计划详细信息的系统以及用于颁发数字新冠疫苗接种证书的门户网站。**
+
+巴西卫生部（MoH）在一份声明中指出，“周五凌晨‘发生的’事件‘暂时破坏’了一些系统，联邦警察和国家安全机构正在进行调查”。该部证实，（截止到新闻发稿时间）这些系统仍然不可用。
+
+巴西卫生部长马塞洛·奎罗加（Marcelo Queiroga）告诉记者，网站不会丢失任何数据，并坚称卫生部仍然保留在黑客攻击期间获取、复制和删除的所有信息。犯罪责任人将受到惩罚。
+
+根据“Lapsus$集团”在网站上发布的消息，该集团声称对这次攻击负责但没有说明动机。该集团从卫生部系统中提取了大约50TB的数据。
+
+这次袭击迫使博尔索纳罗政府推迟了，针对前往该国旅行者实施的新公共卫生要求计划。新规定原定于周六开始实施，但巴西政府证实，由于疫苗接种数据无法在线获取，该规定将推迟一周实施。
+
+但是，航空公司乘客在抵达巴西时所填写的新冠病毒（Covid-19）追踪表格，仍然可以在国家卫生监管机构Anvisa的网站上找到。该网站并未成为此次攻击的目标。
+
+新闻来源：[巴西的健康门户网站受到黑客攻击 — RT 世界新闻](https://www.rt.com/news/542865-brazil-health-websites-hacked-ransom/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
