@@ -2,50 +2,46 @@
 ---
 
 
-## 英国独立机构称：中共国在新疆犯下了种族灭绝罪
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1741304/)
+## 灭共者之疫苗灾难（二）
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1741392/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/121006-1.jpg)图片：@newsmax.com
-伦敦（美联社）——一个由英国著名大律师成立的独立的非官方机构，评估指控中共国侵犯维吾尔族权利的证据，周四得出结论，中共国政府犯下了种族灭绝和反人类罪。
-
-维吾尔族特别法庭是由律师、学者和商界人士组成。虽然它没有任何政府支持，也没有制裁或惩罚中共国的权力，但组织者希望，公开展示证据的过程将迫使国际社会采取行动，解救维吾尔人（一个庞大的穆斯林民族）。
-
-特别法庭主席杰弗里-尼斯(Geoffrey Nice)说：“该小组确信，针对中国最西部的新疆省维吾尔人的强制节育和绝育政策是为了减少该族群的人口。”他说，“这种虐待是与习近平和中共国政府最高层直接相关的，全面政策的一部分。”
-
-中共国驻伦敦大使馆没有立即回应。外交部发言人汪文彬星期四在北京说，“所谓新疆的强迫劳动和种族灭绝完全是恶毒的谣言”。
-
-汪文彬回应的是关于美国众议院周三通过的一项法案的问题：该法律因强迫劳动问题而禁止从新疆进口。汪文彬指责美国利用与新疆有关的问题“打着人权的幌子散布谣言，进行政治操纵和经济欺凌”。
-
-维吾尔特别法庭的结论是，中共国在新疆毫无疑问地犯下了反人类罪，包括对关押在庞大的拘留中心人员实施酷刑和强奸。“根据公开听取的证据，特别法庭确定无疑，中共国通过实施节育禁育的措施，旨在摧毁新疆维吾尔人中的大部分人，犯下了种族灭绝罪”尼斯说。他是一名高级律师，曾领导起诉前塞尔维亚总统斯洛博丹-米洛舍维奇，并曾与国际刑事法院合作。
-
-他说，习近平和其他高级官员对在新疆发生的事情 “负有主要责任”。“尼斯说：“如果没有最高层的授权，这种庞大的国家镇压机器就不可能存在。据研究人员称，近年来，估计有100万人或更多—其中大部分是维吾尔人—被关押在新疆的再教育营中。
-
-听证会试图要求中共国对维吾尔族和其他以穆斯林和突厥族为主的少数民族犯下的罪行负责。
-
-今年年初，在伦敦市中心举行的一系列公开听证会上大约30名证人和专家提供了证据，指控当局在新疆省的再教育拘留中心实施酷刑、强奸和殴打。听证会还审查了包括泄露的中共国政府文件在内的证据，详细说明了其他政策：包括系统性的强制节育、将幼儿与家人分离、强迫劳动和破坏清真寺等。
-
-美国政府已经宣布，北京对维吾尔人的政策构成了种族灭绝和反人类罪。英国、比利时、荷兰和加拿大的立法机构也采取了同样的做法。
-
-**简评**
-
-郭先生的爆料中提到中共国在新疆进行种族灭绝，而且每次直播都会为新疆人民祈福。而这一事件终于得到了国际社会的关注。即美国宣布中共国在新疆犯下了反人类罪之后，英国、加拿大、荷兰、比利时等先后谴责中共国。这件事件可以看出爆料革命的巨大影响力。
-
-新闻链接：[UK Independent Body: China Committed Genocide in Xinjiang](https://www.newsmax.com/world/globaltalk/britain-china-uyghur-tribunal/2021/12/09/id/1047962/)
-
-*翻译/简评： Helen*
-
-*校对: clau*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+**出品：纽约香草山设计部**
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
+
+
+![疫苗一定会被停止的！疫苗的灾难绝对是人为的设计，绝对是共产党和西方贪婪的人和黑暗的势力的共同作案的结果。](https://cdn.discordapp.com/attachments/918719621299851264/919037433314701333/CCP_Virus_Genocide_Bioweapon_Vaccine_Disaster_2.jpg)疫苗一定会被停止的！疫苗的灾难绝对是人为的设计，绝对是共产党和西方贪婪的人和黑暗的势力的共同作案的结果。![](https://cdn.discordapp.com/attachments/918719621299851264/919037432970760213/CCP_Virus_Genocide_Bioweapon_Vaccine_Disaster.jpg)
+The COVID vaccine push for sure will be stopped at some point. The vaccine catastrophe is definitely a well-crafted plan by some; absolutely the outcome of a crime committed by the CCP, greedy Westerners, and the Dark Forces.
+![](https://cdn.discordapp.com/attachments/918719621299851264/919037471201853480/CCP_Virus_Genocide_Bioweapon_Vaccine_Disaster.jpg)疫苗护照不是他们的目的，杀人才是的目的，种族残杀才是目的。更重要的是医疗垄断，也就是所谓的优胜劣汰，变成两极的社会。这是一次人类绝对的大屠杀，而且绝对是黑暗力量和共产党勾结在一起的。![](https://cdn.discordapp.com/attachments/918719621299851264/919037471520608326/CCP_Virus_Genocide_Bioweapon_Vaccine_Disaster_2.jpg)
+The vaccine passport is not their aim; killing people is; genocide is.More importantly, the medical monopoly is, aka, the so-called “survival of the fittest”, or the polarization of the society. This is an absolute massacre of humanity, an outcome of which the Dark Forces colludes with the Communist Party.
+
+
+
+**编辑/发稿：小鹿**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-2.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
 
 

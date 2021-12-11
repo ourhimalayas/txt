@@ -15,127 +15,127 @@
 
 ---
 
-### [落实三孩政策,党员干部要带头](/content/gnews/1/README.md)
+### [COVID-19 最新情报｜美式幽默！一女子在加州县议会上翻唱圣诞歌曲 用歌词反讽疫苗暴政](/content/gnews/1/README.md)
+ ` G&#124;News TAIWAN`
+
+### [中美脱钩不断加速，文贵先生的预判得到验证](/content/gnews/2/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [美国在国际人权日宣布制裁中共等国侵权官员和实体](/content/gnews/3/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [落实三孩政策,党员干部要带头](/content/gnews/4/README.md)
  ` GTV News Talk`
 
-### [FBI纪录片揭露中共经济间谍手段](/content/gnews/2/README.md)
+### [GTV新闻访谈简报|2021年12月10日晚](/content/gnews/5/README.md)
+ ` 纽约香草山MOS01`
+
+### [FBI纪录片揭露中共经济间谍手段](/content/gnews/6/README.md)
  ` GTV新闻访谈`
 
-### [恒大、佳兆业债务违约导致信用评级下调](/content/gnews/3/README.md)
+### [恒大、佳兆业债务违约导致信用评级下调](/content/gnews/7/README.md)
  ` GTV新闻访谈`
 
-### [12/10/2021 文贵直播：爆料革命自2019年开始运作抵制北京冬奥会，已彻底击碎了中共的美梦](/content/gnews/4/README.md)
+### [12/10/2021 文贵直播：爆料革命自2019年开始运作抵制北京冬奥会，已彻底击碎了中共的美梦](/content/gnews/8/README.md)
  ` 秘密翻译组-北美组`
 
-### [盘古人的人品和盘古未来要发生的大火](/content/gnews/5/README.md)
+### [黎巴嫩难民营发生巨大爆炸,恐造成多人伤亡](/content/gnews/9/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [盘古人的人品和盘古未来要发生的大火](/content/gnews/10/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [感染Omicron变种病毒的人，多数都已打过中共病毒疫苗](/content/gnews/6/README.md)
+### [感染Omicron变种病毒的人，多数都已打过中共病毒疫苗](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本民间人士成功开启首次太空之旅](/content/gnews/7/README.md)
+### [日本民间人士成功开启首次太空之旅](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [12/10/2021 文贵直播：今天中共的狂妄就是所有独裁者都干的事 &#8211; 企业国有化、个人神圣化、彻底消灭宗教和控制媒体，最后一定是发动战争](/content/gnews/8/README.md)
+### [12/10/2021 文贵直播：今天中共的狂妄就是所有独裁者都干的事 &#8211; 企业国有化、个人神圣化、彻底消灭宗教和控制媒体，最后一定是发动战争](/content/gnews/13/README.md)
  ` 秘密翻译组-北美组`
 
-### [恒大违约后会发生什么？](/content/gnews/9/README.md)
+### [恒大违约后会发生什么？](/content/gnews/14/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [灭共者之郭氏情报站（二）](/content/gnews/10/README.md)
+### [灭共者之郭氏情报站（二）](/content/gnews/15/README.md)
  ` MOS Designer香草山设计部`
 
-### [中共冬夜将郭先生父亲和盘古员工赶出酒店流落街头](/content/gnews/11/README.md)
+### [中共冬夜将郭先生父亲和盘古员工赶出酒店流落街头](/content/gnews/16/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [灭共者之死神来了](/content/gnews/12/README.md)
+### [灭共者之死神来了](/content/gnews/17/README.md)
  ` MOS Designer香草山设计部`
 
-### [12/10/2021 文贵直播：杨洁篪抓了拿塞浦路斯护照的十几位战友，联盟委员会将全力营救他们](/content/gnews/13/README.md)
+### [12/10/2021 文贵直播：杨洁篪抓了拿塞浦路斯护照的十几位战友，联盟委员会将全力营救他们](/content/gnews/18/README.md)
  ` 秘密翻译组-北美组`
 
-### [佩洛西演讲支持立法反对中共侵犯人权](/content/gnews/14/README.md)
+### [佩洛西演讲支持立法反对中共侵犯人权](/content/gnews/19/README.md)
  ` HimalayaRussia`
 
-### [对待中国不能等待， 勇气、 坚定、团结、与盟友协同行动， 是唯一的选择](/content/gnews/15/README.md)
+### [对待中国不能等待， 勇气、 坚定、团结、与盟友协同行动， 是唯一的选择](/content/gnews/20/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [美国官员考虑禁止向中国芯片制造商中芯国际出口](/content/gnews/16/README.md)
+### [美国官员考虑禁止向中国芯片制造商中芯国际出口](/content/gnews/21/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [美国设定为期 一 周的最后期限，看看伊朗是否会在以色列推动军事选择时取得进展的报告](/content/gnews/17/README.md)
+### [美国设定为期 一 周的最后期限，看看伊朗是否会在以色列推动军事选择时取得进展的报告](/content/gnews/22/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [堪比香港恶警澳洲警察对平民出重手恶意执法](/content/gnews/18/README.md)
+### [堪比香港恶警澳洲警察对平民出重手恶意执法](/content/gnews/23/README.md)
  ` 澳喜农场`
 
-### [2021年12月10日文贵先生直播摘要及音频—银河系农场](/content/gnews/19/README.md)
+### [2021年12月10日文贵先生直播摘要及音频—银河系农场](/content/gnews/24/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [澳大利亚提前退役欧盟机队，全面引进美军现役直升机](/content/gnews/20/README.md)
+### [澳大利亚提前退役欧盟机队，全面引进美军现役直升机](/content/gnews/25/README.md)
  ` 走进澳洲`
 
-### [灭共者之疫苗灾难（二）](/content/gnews/21/README.md)
+### [灭共者之疫苗灾难（二）](/content/gnews/26/README.md)
  ` MOS Designer香草山设计部`
 
-### [12/10/2021 文贵直播：欧洲四国表示将抵制冬奥会并考虑与中共经济脱钩是历史性的事件！](/content/gnews/22/README.md)
+### [12/10/2021 文贵直播：欧洲四国表示将抵制冬奥会并考虑与中共经济脱钩是历史性的事件！](/content/gnews/27/README.md)
  ` 秘密翻译组-北美组`
 
-### [讣 告](/content/gnews/23/README.md)
+### [讣 告](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [从今天起没有郭7条](/content/gnews/24/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [中国东北小镇街景随笔](/content/gnews/29/README.md)
+ ` 纽约香草山MOS03`
 
-### [恐惧不属于新中国联邦人](/content/gnews/25/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [英国独立机构称：中共国在新疆犯下了种族灭绝罪](/content/gnews/26/README.md)
+### [英国独立机构称：中共国在新疆犯下了种族灭绝罪](/content/gnews/30/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [拜登行政当局就亚裔美国人的平权行动案与哈佛站在一起](/content/gnews/27/README.md)
- ` MG FARM`
-
-### [纽约市警方：针对亚裔的仇恨犯罪增至去年4倍](/content/gnews/28/README.md)
+### [纽约市警方：针对亚裔的仇恨犯罪增至去年4倍](/content/gnews/31/README.md)
  ` 向真`
 
-### [有病毒不意味 &#8220;染病&#8221;：PCR测试被揭科学欺诈](/content/gnews/29/README.md)
+### [有病毒不意味 &#8220;染病&#8221;：PCR测试被揭科学欺诈](/content/gnews/32/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2021/12/10墙内世界](/content/gnews/30/README.md)
+### [2021/12/10墙内世界](/content/gnews/33/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [恶心：加州学校用垃圾食物诱骗儿童打疫苗](/content/gnews/31/README.md)
+### [恶心：加州学校用垃圾食物诱骗儿童打疫苗](/content/gnews/34/README.md)
  ` 墨尔本雅典娜农场`
 
-### [众议院通过的国防法案削减了一些旨在对抗中共国的条款](/content/gnews/32/README.md)
+### [众议院通过的国防法案削减了一些旨在对抗中共国的条款](/content/gnews/35/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [苹果公司与北京秘密签署2750亿美元投资协议](/content/gnews/33/README.md)
+### [苹果公司与北京秘密签署2750亿美元投资协议](/content/gnews/36/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [法官限制了班农先生公开证据的要求](/content/gnews/34/README.md)
+### [法官限制了班农先生公开证据的要求](/content/gnews/37/README.md)
  ` HimalayaRussia`
 
-### [2018年6月30日郭文贵先生直播第一部分全文字版](/content/gnews/35/README.md)
+### [2018年6月30日郭文贵先生直播第一部分全文字版](/content/gnews/38/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [欧洲国家何时宣布抵制北京冬奥？](/content/gnews/36/README.md)
+### [欧洲国家何时宣布抵制北京冬奥？](/content/gnews/39/README.md)
  ` HimalayaRussia`
 
-### [清单花（MIDI改编歌曲）](/content/gnews/37/README.md)
+### [良心，到底值几个钱！](/content/gnews/40/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [良心，到底值几个钱！](/content/gnews/38/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [伊利诺伊州法案提议剥夺未接种疫苗者的健康保险](/content/gnews/39/README.md)
- ` 纽约香草山MOS02`
-
-### [【文贵先生大直播PPT】数字货币近期动向](/content/gnews/40/README.md)
- ` Mr. Miles Guo's News Briefing`
-
-### [【文贵先生大直播PPT】中共金融 房地产危机最新信息分析](/content/gnews/41/README.md)
+### [【文贵先生大直播PPT】数字货币近期动向](/content/gnews/41/README.md)
  ` Mr. Miles Guo's News Briefing`
 
 ### [12/10/2021国际财经快讯：10个国家模拟全球金融体系网络攻击；英国金融公司实施新中共病毒规则](/content/gnews/42/README.md)

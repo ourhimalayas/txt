@@ -2,46 +2,20 @@
 ---
 
 
-## 落实三孩政策,党员干部要带头
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1741590/)
+## COVID-19 最新情报｜美式幽默！一女子在加州县议会上翻唱圣诞歌曲 用歌词反讽疫苗暴政
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1741662/)
 
-作者：MOS 翻译组-祈望明天会更好
+**撰文｜疫情关注组 / 发布时间｜11/12/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup）](https://gettr.com/user/mightygroup%EF%BC%89)**
 
-- ![This image has an empty alt attribute; its file name is image-40-1-9-1.png](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-1.png)
+一位名为布里吉特（Bridgette）的加利福尼亚女士日前在加州圣地亚哥县议会上，就延长COVID-19紧急状态的公众讨论环节，上演一出精彩又幽默的抗议表演。
 
+她当众翻唱了玛丽亚·凯莉（Mariah Carey）的“All I Want For Christmas Is You”，用歌词反讽无休止的口罩及封锁措施，揭露自然免疫优于疫苗，更暗示当局刻意隐瞒伊维菌素、羟氯奎、锌、槲皮素等药物对抵抗疫情的实质效用。
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-25.jpg)图片源自网络
-
-根据 12月9日 中国报道党建先锋 刊登了《落实三孩政策,党员干部应见行动》明文规定: 每一名党员干部不能因为这样那样的主客观原因，不结婚、不生育，也不能因为这样那样的原因只生育一个或两个孩子。落实三孩生育政策，是每一名党员干部承担国家人口发展的责任，也是每一名党员干部履行国家人口发展的义务。 
-
-诚然，有的党员干部因为年龄、身体等原因已经不允许生育孩子，但可以积极主 动教育、引导、促成自己家人或周围人积极、自觉落实三孩生育政策。千万不可 漠视、放任自己家人或周围人不结婚、不生育，也千万不可以漠视、放任自己家人或周围人以这样那样的借口只生育一个或两个孩子。
-
- 这就如同郭先生所说的, 中国共产党管天, 管地, 管空气, 还管生殖器. 现在要党员干部 , 落实三孩政策,党员干部积极贡献自己的行动。
-
-
-参考链接：[http://redchinacn.net/forum.php?mod=viewthread&tid=21354](http://redchinacn.net/forum.php?mod=viewthread&amp;tid=21354)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/unknown-2.jpg)
-
-总编：雪梨
-
-校对/发稿：Daxia
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-1.png)
-
+话不多说，一起来欣赏看看这极具美式幽默风格的抗议表演：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-8.jpg)
+来源｜[FOX5](https://fox5sandiego.com/news/coronavirus/woman-sings-all-i-want-for-christmas-is-you-parody-to-oppose-pandemic-emergency-extension/)
 
  
 

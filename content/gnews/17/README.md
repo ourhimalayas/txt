@@ -2,37 +2,49 @@
 ---
 
 
-## 美国设定为期 一 周的最后期限，看看伊朗是否会在以色列推动军事选择时取得进展的报告
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1741420/)
+## 灭共者之死神来了
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1741488/)
 
-作者：泰勒·杜登
+**出品：纽约香草山设计部**
 
-翻译：沉默老歌
 
-2021 年 12 月 10 日，星期五 – 下午 04:40
-![](https://assets.gnews.org/wp-content/uploads/2021/12/blinkenandgantz.jpg)图片来源：网络
-本周早些时候，路透社透露，美国和以色列高级官员正在谈判启动联合军事训练演习，重点是准备摧毁伊朗的核设施。 国防部长本尼·甘茨本周一直在华盛顿与布林肯国务卿和其他人会面，以考虑“可能的行动方式，以确保（伊朗）停止试图进入核领域并扩大其在该地区的活动”。
 
-白宫周四证实，如果在维也纳举行的 JCPOA 核谈判失败，“其他选择”将摆在桌面上：“总统已要求他的团队做好准备，以防外交失败，我们必须转向其他选择”，白宫国务卿 珍·普萨基说，“我们别无选择，只能采取额外措施”。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-路透社在其之前的独家报道中进一步描述，“五角大楼领导人于 10 月 25 日向白宫国家安全顾问杰克沙利文介绍了可确保伊朗采取行动的全套军事选项之后，将无法生产核武器。美国与来访的以色列国防部长本尼甘茨进行了预定会谈，这位不愿透露姓名的官员周三表示”。
 
-周五，以色列当地媒体报道称，在伊朗核谈判于周四恢复后，美国和以色列政府已经确定了为期一周的时间表，以查看维也纳谈判是否取得任何进展。 上周，美国谈判代表表示，他们仍不完全相信德黑兰对谈判“是认真的”。 据报道，甘茨还试图说服国防部长劳埃德·奥斯汀，让两国寻求“联合军事准备”。
 
-以色列时报关于“军事选择”的最新报道包括以下内容：
 
-以色列正在加紧准备一项军事选择，以防伊朗与世界大国之间的核谈判导致签署“糟糕的协议”。 这些准备工作包括扩大目标库、增加培训和购买先进设备。
 
-与此同时，特拉维夫坚持认为，伊斯兰共和国只是利用维也纳会谈无休止地拖延，以暗中提高其最终生产核武器的能力。 伊朗长期以来一直否认它甚至对核武器感兴趣，称其目标是满足该国国内的能源需求。
 
-本周援引拜登行政官员的话说：“我们陷入困境，因为伊朗的核计划正在发展到一个超出任何常规理由的地步”，这与以色列的立场相呼应。
 
-来源链接：[https://t.co/Jvu6YtgL4g](https://t.co/Jvu6YtgL4g)
 
-编辑/发布：LILY
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-习包子之死独裁者灭亡悼念习主席_岛国贼必亡Dictator-Xi-Death-of-Xi_Chinese-Communist-Party.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/2-习包子之死独裁者灭亡悼念习主席_岛国贼必亡Dictator-Xi-Death-of-Xi_Chinese-Communist-Party.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/3-习包子之死独裁者灭亡悼念习主席_岛国贼必亡Dictator-Xi-Death-of-Xi_Chinese-Communist-Party.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/4-习包子之死独裁者灭亡悼念习主席_岛国贼必亡Dictator-Xi-Death-of-Xi_Chinese-Communist-Party.jpg)
+* * *
 
-20211210
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
+
+
+**编辑/发稿：小鹿**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-2.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
