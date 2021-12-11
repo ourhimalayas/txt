@@ -2,23 +2,41 @@
 ---
 
 
-## Costco苏州开业首日挤爆说明了什么
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1742851/)
+## 研究表明，自然免疫远胜于疫苗提供的保护
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1742863/)
 
-撰稿人：冰沙奶茶
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Costco.png)
-网络截图
+作者：纽约香草山农场 柳是多水土透
 
-12月8日Costco苏州开业的第一天，凌晨3点就有市民开始排队等着进商场，排队长龙还瘫痪了周边交通，因为人潮太拥挤，当局出动无人机监控秩序。在开业前会员卡开办首日，就有超万人申请，这一纪录不但超越上海，更是打破了全球纪录。
-此时此景的这一幕着实让人吃惊。环顾全球，因CCP病毒肆虐，各地关店潮此起彼伏，因社交距离限制、新变异病毒不断出现等等顾虑，人们也是能不出门尽量不出门，往日热闹店铺门前冷落。
-但是细细一想也不奇怪，诚信在中共国生活的方方面面中早已坍塌，不信任，不安全成为常态，衣食住行没有一样是安全的、可以放心使用的。通常来说民以食为天，食品安全是第一基本要求，但是在中共国食品不安全是普遍现象。在金钱的驱使下食品中加入超量食品添加，滥用非食品加工用化学添加剂，甚至使用劣质原料；农产品、禽类产品、水产品中过度使用抗生素、激素，这些有害物质残留于食品中，众所周知的案例有：苏丹红咸鸭蛋事件、三鹿奶粉事件等等。更可怕的是随著土地、河流被污染造成农业种植和养殖业的源头污染。另一个重灾区是装修行业，人们花了巨资买房、装修、添置家具，到头来因甲醛、苯化合物等有害物质超标而得病住院，甚至死亡的报道也是经常看到，人们都在提心吊胆中过日子。
-以上种种的发生完全和中共相关法律规章制度不健全、监管不力、政府不作为有关，一个健康的社会是不会发生这些荒唐事的。Costco开业当日被挤爆，是当地居民用行动再一次证明，在中共国人们没有一个值得信任的场所来购买安全物品，一个连最基本的安全都保障不了，这样的政府完全没有存在的必要！
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-新闻来源：
-[好市多苏州开业首日挤爆 市民凌晨3点排队 | Costco | 大纪元 (epochtimes.com)](https://www.epochtimes.com/gb/21/12/9/n13427566.htm)
+2月10日，据媒体消息显示，以色列的一项新研究表明，个体从新冠病毒感染康复后所获得的免疫力远胜于新冠疫苗所宣传的保护力。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-11-at-8.19.02-PM.png)
+消息称，以色列的科学家对该国的健康数据库进行了长达几个月的研究，其后发现，那些具有自然免疫力的人在康复后的四至六个月内，其再次感染新冠病毒的比率仅为那些接种新冠疫苗的七分之一。
 
-发稿：MG4
-![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-2.jpg)
+研究人员表示，自然免疫者能够更好地抵御新冠病毒感染和其所带来的严重疾病，同时，自然免疫的防护会更加持久和全面。
+
+另据数据显示，新冠感染和重症患者在新冠疫苗接种人群中出现的比率更高。
+
+参考链接：
+
+1. [New study suggests natural immunity is more protective over time than COVID-19 vaccine](https://justthenews.com/politics-policy/coronavirus/new-study-suggests-natural-immunity-more-protective-over-time-covid-19)
+2. [体制内专家爆料，疫苗会导致儿童快速发育，早熟比例是以前的很多倍，很大可能会长肿瘤。](https://gettr.com/post/piowln8d9e)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
+
+编辑/总编：Irene木木
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

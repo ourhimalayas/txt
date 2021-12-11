@@ -2,26 +2,24 @@
 ---
 
 
-## 纽约市针对亚裔美国人的仇恨犯罪一年来急剧上升
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1742531/)
+## 国防部正“积极讨论”强制军队接种中共病毒加强针
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1742607/)
 
-#### 撰稿：彩虹
+#### 撰稿：彩虹 
 
 #### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-18.jpg)图片来源：雅虎
-12月10日，《国会山报》报道，根据纽约警察局（NYPD）在本周新闻发布会公开的数据，纽约市反亚裔仇恨犯罪上升了361%。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-2-6.jpg)图片来源：Military Time
+截至上周五，大约96.4%的现役军人已经接受了至少一剂疫苗，90%的人已经完全接种。在整个部队中，包括国民警卫队和后备队，近74%的军事人员已经接种。但是，周五，国防部最高发言人证实，五角大楼领导人正在就是否强制军队接种中共病毒（COVID-19）疫苗加强针进行“积极讨论”。12月10日，《国会山报》对此进行了报道。
 
-根据局长德莫特·麦克谢（Dermot McShea）的新闻稿，纽约警察局仇恨犯罪审查小组是一个由社区领袖组成的“多元化小组”，其任务是与该部门合作，确保“大力执行仇恨犯罪执法，为作为其受害者的纽约人最终伸张正义”。
+五角大楼新闻秘书约翰·柯比（John Kirby）告诉记者：“部门内正在政策层面上积极讨论加强针，以及是否需要强制接种该加强针，对此还没有做出最终决定”。
 
-根据NBC的新闻报道，纽约警察局仇恨犯罪审查小组发现，针对亚裔美国人的仇恨犯罪数量从2020年的28起跃升至2021年迄今为止的129起。
+文章披露，根据8月24日的一份备忘录，五角大楼强制要求为军队进行首轮中共病毒疫苗接种的要求当时遭到了一些反对，特别是俄克拉荷马州州长凯文·斯蒂特（Kevin Stitt），他已起诉该国防部，要求阻止对国民警卫队成员进行中共病毒疫苗的强制接种。
 
-在会议上，执法部门表示，今年共有500多起仇恨犯罪，执法部门已经逮捕了近250人。这个数字表明，自2020年以来，仇恨犯罪总数增加了106%。
-
-涉及犹太社区的仇恨犯罪从121起跳到183起，而基于性取向的仇恨犯罪从29起跳到85起。
+根据五角大楼周三公布的最新数据，共有79名军人死于中共病毒，超过25.7万人感染了中共病毒。
 
 **新闻来源**
 
-[Anti-Asian hate crimes in NYC rose 361 percent: police](https://thehill.com/blogs/blog-briefing-room/news/585405-anti-asian-hate-crimes-in-nyc-rose-361-percent-police)
+[Pentagon considering mandating vaccine booster](https://thehill.com/policy/defense/585371-pentagon-considering-mandating-covid-19-vaccine-booster)
 
  
 

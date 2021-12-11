@@ -90,74 +90,74 @@
 ### [从国内企业纷纷裁员，看中共国的经济崩塌](/content/gnews/25/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [澳大利亚考虑发行本国的加密货币](/content/gnews/26/README.md)
+### [洛杉矶禁止未接种疫苗学生参与实体授课](/content/gnews/26/README.md)
+ ` GTV新闻访谈`
+
+### [佩罗西就世贸问题针对中共发表强硬讲话](/content/gnews/27/README.md)
+ ` GTV新闻访谈`
+
+### [研究表明，自然免疫远胜于疫苗提供的保护](/content/gnews/28/README.md)
+ ` GTV新闻访谈`
+
+### [澳大利亚考虑发行本国的加密货币](/content/gnews/29/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [回顾历届停办延期的四届奥运会，第五次会发生什么？](/content/gnews/27/README.md)
+### [回顾历届停办延期的四届奥运会，第五次会发生什么？](/content/gnews/30/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [Costco苏州开业首日挤爆说明了什么](/content/gnews/28/README.md)
+### [Costco苏州开业首日挤爆说明了什么](/content/gnews/31/README.md)
  ` 澳喜农场`
 
-### [真、善、狠的真谛](/content/gnews/29/README.md)
+### [真、善、狠的真谛](/content/gnews/32/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [郭文贵直播摘要和音频 2021.12.10](/content/gnews/30/README.md)
+### [郭文贵直播摘要和音频 2021.12.10](/content/gnews/33/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [7·24系列之“单伟建”——儿子单博](/content/gnews/31/README.md)
+### [7·24系列之“单伟建”——儿子单博](/content/gnews/34/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美驻华使馆代办谴责中共侵犯人权](/content/gnews/32/README.md)
+### [美驻华使馆代办谴责中共侵犯人权](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【中日财经爆】当代置业和花样年信用评级被撤销](/content/gnews/33/README.md)
+### [【中日财经爆】当代置业和花样年信用评级被撤销](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [抖音内幕人士说公司的决策方向仍由中共掌控](/content/gnews/34/README.md)
+### [抖音内幕人士说公司的决策方向仍由中共掌控](/content/gnews/37/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [国防部正“积极讨论”强制军队接种中共病毒加强针](/content/gnews/35/README.md)
+### [国防部正“积极讨论”强制军队接种中共病毒加强针](/content/gnews/38/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [澳大利亚、丹麦、挪威将与美国共同限制向中共出口技术](/content/gnews/36/README.md)
+### [澳大利亚、丹麦、挪威将与美国共同限制向中共出口技术](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [意大利拟对禁止中资收购的企业进行补偿](/content/gnews/37/README.md)
+### [意大利拟对禁止中资收购的企业进行补偿](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [纽约市针对亚裔美国人的仇恨犯罪一年来急剧上升](/content/gnews/38/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [无论占尽多少“嘴便宜”该来的终会来，世界人权日 美全面制裁中共](/content/gnews/39/README.md)
+### [无论占尽多少“嘴便宜”该来的终会来，世界人权日 美全面制裁中共](/content/gnews/41/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [“全过程民主”也挡不住 台湾代表民主峰会发表《国家声明》](/content/gnews/40/README.md)
+### [“全过程民主”也挡不住 台湾代表民主峰会发表《国家声明》](/content/gnews/42/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国制裁中共国人工智能企业](/content/gnews/41/README.md)
+### [美国制裁中共国人工智能企业](/content/gnews/43/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [我们知道非选举而出的人获得权力会怎么样](/content/gnews/42/README.md)
+### [我们知道非选举而出的人获得权力会怎么样](/content/gnews/44/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [卫生官僚拥有无比的权力，几乎可以对任何人做任何事](/content/gnews/43/README.md)
+### [卫生官僚拥有无比的权力，几乎可以对任何人做任何事](/content/gnews/45/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共国又一零食巨头宣布涨价](/content/gnews/44/README.md)
+### [中共国又一零食巨头宣布涨价](/content/gnews/46/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [继兰州关闭中国银行后，山西关闭19家银行](/content/gnews/45/README.md)
+### [继兰州关闭中国银行后，山西关闭19家银行](/content/gnews/47/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [如何理解共产党驱赶文贵先生九十多岁老父亲露宿街头的流氓行为？](/content/gnews/46/README.md)
+### [如何理解共产党驱赶文贵先生九十多岁老父亲露宿街头的流氓行为？](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共研发面部识别系统的公司被美国列入黑名单](/content/gnews/47/README.md)
- ` GTV新闻访谈`
-
-### [广州机械模具厂工人春节提前放假](/content/gnews/48/README.md)
- ` GTV新闻访谈`
 
 ### [揭秘“躺平币”背后埋单资金，远瞻灭共赚钱新思路](/content/gnews/49/README.md)
  ` YALUN 亚伦`
