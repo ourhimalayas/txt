@@ -2,34 +2,35 @@
 ---
 
 
-## 美参议员抨击强制疫苗 ，称其是非法、违宪的滥用权力
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1741841/)
+## 卑躬屈膝的马克龙政府
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1741983/)
 
-作者：加拿大扬帆农场 – Spirit
-![This image has an empty alt attribute; its file name is 1-28.png](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
-据当地媒体12月9日报道，美国参议院于12月8日否决了拜登对私人雇主的疫苗强制令。第二天，德州参议员泰德·克鲁兹接受采访时，抨击了该命令，并称其非法、违宪，是荒谬的滥用权力。
+撰稿： 天鵝
+![](https://assets.gnews.org/wp-content/uploads/2021/12/马克龙.png)图片来源：[Beijing Winter Olympics boycott is insignificant, says Macron – BBC News](https://www.bbc.com/news/world-europe-59599063)
+根据法国24报道[1]，法国总统埃马纽埃尔-马克龙周四表示，法国不会加入对2022年北京冬奥会的外交抵制，并称此举 “无关紧要”。同时，外交部长让-伊夫-勒德里昂表示，巴黎仍在寻求欧盟在这个问题上的共同立场。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/9-3.png)
+马克龙在周四的新闻发布会上说：”说白了：你要么完全抵制，不派运动员，要么就尝试用有益的行动来改变现状，”他补充说，他 “赞成有有益结果的行动”。
 
-克鲁兹在采访中表示，需要彻底消灭此命令，拜登应该意识到，白宫的律师也应该告诉拜登，这是非法的，会在法庭上被否决。但是，他们仍然试图实施这项强制令。因此，12月8日的投票是一次真正重要的投票，以两党的多数票否决了强制令。
+美国、澳大利亚和英国等几个西方国家表示，他们将不派官员参加2022年冬奥会，以便就中国的人权记录向中国发出信息。然而，该决定并没有阻止运动员参加北京奥运会。
 
-参考链接：
+在质疑外交抵制的效用时，马克龙指出，他 “没有听到世界上有人说。让我们不要派我们的运动员。他说：”因此，我们谈论的是相当具有象征意义的事情。马克龙说，”鉴于最近几周发生的事情”，法国将与国际奥委会合作制定一项宪章，保证对运动员的保护，这显然是指中国网球运动员彭帅的案件，她在社交媒体上对一名前共产党高层政治家提出性侵犯指控后，失踪了三周。
 
-[https://www.foxbusiness.com/politics/ted-cruz-vaccine-mandate-is-illegal-unconstitutional-and-grotesque-abuse-of-power-20211208/6344544.html](https://www.foxbusiness.com/politics/ted-cruz-vaccine-mandate-is-illegal-unconstitutional-and-grotesque-abuse-of-power-20211208/6344544.html)
+在周四早些时候宣布法国的决定时，法国教育和体育部长Jean-Michel Blanquer警告说不要将这个问题政治化。”Blanquer告诉RMC电台和BFM电视台：”我们需要谨慎对待体育和政治之间的联系。”体育是一个独立的世界，需要保护它不受政治干扰。他说：”如果不是这样，事情就会失去控制，最终可能会扼杀所有的比赛。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
+与此同时，外交部长让-伊夫-勒德里昂在大约同一时间举行的新闻发布会上被问及可能的抵制时，他说他仍在寻求欧盟在这个问题上的共同立场。”他告诉记者：”当涉及到外交抵制的问题时，这个问题将在欧洲层面上处理。
 
-总编辑：文特
-编辑：DM
-校正/发稿：海阔天空1
+联合国秘书长安东尼奥-古特雷斯的发言人周四表示，联合国秘书长将出席北京奥运会。”发言人Stephane Dujarric告诉记者：”秘书长收到了国际奥委会发出的出席北京冬季奥运会开幕式的邀请，他已经接受了邀请。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
+点评：
+此次马克龙政府在北京冬奥会事件上再次向中共下跪，卑躬屈膝的态度丢尽了法兰西民族的脸。马克龙政府愚蠢的将不抵制北京冬奥会的原因归结为“没有实际的效用”，并傲慢地称美、加、英抵制北京冬奥会的原因是为了反击中共国的人权劣迹。中共国威胁、制裁欧盟议会官员，经济制裁欧盟成员国立陶宛等粗暴行径已经坐实。马克龙政府的低智商回应必然会让世界政坛嘲笑，他还想将此愚蠢的观点推广到欧盟，这完全与欧盟的自身利益相悖。可见一群无知的政客操控着欧洲国家，郭先生在直播中预言的欧盟解体很可能会发生。
+
+我们都知道国际社会抵制北京冬奥会的原因绝不仅仅是简单的人权问题，随着中共国在全世界施行的“超限战”、“蓝金黄”、渗透和间谍等活动愈演愈烈，加之爆料革命、新中国联邦人不断坚持传播真相，揭露中共罪行，如此才造成了全世界抵制中共冬奥会的行动。郭先生说过，抵制北京冬奥会只是刚刚开始。其实全球灭共早已开始，只是没有放在明面上，灭共的趋势只会增，不会减。随着郭先生呼吁的和中共全面开战的开始，全世界的战友都会投身到揭露中共家族、私生子女、情人中去，越来越多的幕后勾兑会被揭开，中共和邪恶势力必将灭亡！
+
+参考消息：
+[1] [Beijing Winter Olympics boycott is insignificant, says Macron – BBC News](https://www.bbc.com/news/world-europe-59599063)
+
+发稿：MG4
+![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

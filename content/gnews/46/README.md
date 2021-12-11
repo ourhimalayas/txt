@@ -2,24 +2,33 @@
 ---
 
 
-## 继上海后，南京也发出疫情通告
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1739223/)
+## 在美国施压下阿联酋叫停该国中共在建军事设施
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1739615/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/12/22222.jpg)[图片来源](https://www.google.com/search?q=%E5%8D%97%E4%BA%AC%E9%80%9A%E6%8A%A5+%E4%B8%8D%E7%A6%BB%E5%AE%81&amp;tbm=isch&amp;ved=2ahUKEwj0t7Xvgtn0AhWpB7cAHcYIAkgQ2-cCegQIABAA&amp;oq=%E5%8D%97%E4%BA%AC%E9%80%9A%E6%8A%A5+%E4%B8%8D%E7%A6%BB%E5%AE%81&amp;gs_lcp=CgNpbWcQAzoHCCMQ7wMQJ1CWCFiXKGDHKmgAcAB4AIABmwaIAdkSkgENMC4zLjEuMC4yLjAuMZgBAKABAaoBC2d3cy13aXotaW1nwAEB&amp;sclient=img&amp;ei=uSuzYbT3FqmP3LUPxpGIwAQ&amp;bih=625&amp;biw=1366&amp;rlz=1C1YKST_enUS900US901#imgrc=8CO5tfNIQkT5mM)
-12月10潇湘晨报报道，12月9日，南京市中共病毒疫情联防联控工作指挥部发布《关于进一步做好当前中共病毒疫情防控工作的通告》。为有效阻止疫情在南京市扩散，倡导全体市民非必要不离宁。
+#### **撰稿：**日本东京方舟农场 子辰
 
-12月8日，上海召开的疫情防控新闻发布，根据《上海市集体类活动中共病毒疫情常态化防控工作指导意见》要求，对于各类活动坚持“非必要不举办”原则，能取消的取消，能延期的延期，能线上的线上。尽量不要组织年会、节庆等人员聚集活动。同时也提醒广大市民，非必要不离沪。据公开报道显示，这是上海市首度提出非必要不离沪的通告。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/4F07652A-4260-447A-A231-C87C4C2FD830.jpeg)（图片来自《大纪元》）
 
-距离元旦21天，距离春节52天，上海也是今年首个出台元旦春节期间疫情防控指导意见的省市，继上海后南京紧跟其后发布同样的通告，中共病毒是政治病毒，下一步就会发出封城通告。
+据《大纪元》12月10日报道，阿拉伯联合酋长国的一位高级官员周四（12月9日）表示，在美国认为北京（中共）打算在阿联酋新建军事设施后，阿联酋政府最近已下令叫停了中方的施工。
 
-信息来源：
+《华尔街日报》上个月曾引述一位知情人士的消息报道称，美国情报机构发现，中共正在阿联酋首都阿布扎比附近的一个港口秘密建造疑似军事设施。据了解，情报所指之处是中共国中远海运集团经营的一个商业集装箱码头。
 
-[非必要不离开！南京上海发布最新提醒](https://me.mbd.baidu.com/r/xLzWHmGSqI?f=cp&amp;rs=3979175934&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=e6bc1268d2f86be0)
+阿联酋是美国最亲密的中东盟友之一。拜登政府在得知这一情报后，随即警告阿联酋政府，中共的军事存在可能会威胁到两国之间的关系。
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+据报道，12月8日，阿拉伯联合酋长国外交顾问、前外交部长安瓦尔‧加尔贾什（Anwar Gargash）在出席华盛顿智库“阿拉伯海湾国家研究所”的视频会议时表示，在华盛顿的要求下，阿联酋已下令停止了上述建筑工程。
+
+《大纪元》的报道指出，中东地区越来越成为中美竞争的主要场所。阿联酋和美国有长期的贸易和安全关系，这也使得中共在那里的入侵对美国的利益更具潜在威胁。
+
+*参考链接：[叫停中方施工 阿联酋：不考虑美国担忧是愚蠢的](https://www.epochtimes.com/gb/21/12/9/n13427649.htm)*
+
+* * *
+
+*素材采编：子辰*
+
+*编辑：青衣青青*
+
+*发布：miumiu*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

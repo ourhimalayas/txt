@@ -2,38 +2,28 @@
 ---
 
 
-## 洛杉矶一学校以匹萨诱骗学生打疫苗 家长震惊
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1741871/)
+## 维吾尔族法庭：北京犯有种族灭绝罪
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1742010/)
 
-作者：纽约香草山翻译部 – defiance
-![This image has an empty alt attribute; its file name is 1-28.png](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
-12月9日，美国媒体报道，洛杉矶南部巴拉克·奥巴马全球预科学院的学生家长震惊地发现，学校居然在家长不知情的情况下，用匹萨饼作为诱饵，为他们的孩子接种了疫苗。这些学生同时被要求不要告知自己的父母。
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3-24.jpg)（图片来源于本文链接）
+维吾尔族法庭由律师、学者和商界人士组成，无任何政府支持，亦无权制裁或惩罚中共国。但法庭希望经由公开程序获得的证据，促使国际社会采取行动，阻止对维族人民（主要是穆斯林族群）的不人道对待。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/10-1.png)
+法庭庭长杰弗里·尼斯爵士（Geoffrey Nice ）通报说，维吾尔族法庭在调查、评估了中共国西部新疆自治区针对维吾尔人的强制节育和绝育政策后得出结论：这一政策旨在减少维族人口，与习近平和政府最高层直接相关。维吾尔法庭确认，在新疆发生的情况毫无疑问是犯罪，属于危害人类罪，其中包括酷刑和强奸，当事人被关押在巨大的拘留中心。
 
-一位学生家长表示，学校在未经她同意的情况下，为她儿子接种疫苗，给她造成了极大的心理创伤。一位律师则认为，这所学校没有法律权力在上课时间为学生接种疫苗。
+法庭庭长尼斯律师表示，根据公开听取的证据，法庭确认，中共政府使用节育措施，旨在摧毁新疆维吾尔族群的很大一部分，犯下了种族灭绝罪。“尼斯律师曾负责起诉前塞尔维亚总统斯洛博丹·米洛舍维奇，并与国际刑事法院合作。”他指出，“习近平和其他中共国高层人士要对新疆发生的事情承担责任。尼斯爵士表示， 若相关计划未获最高层授权，就不会存在这一巨大的国家镇压机器。”研究人员称，近年来，估计有100万人或更多——其中大部分是维吾尔人，被关押在新疆所谓的再教育营里。
 
-据美国媒体报道，洛杉矶联合学区以学生事务保密为由拒绝对此事发表评论。但他们确实承认，他们的“安全到校奖励计划”为接种疫苗的学生提供了奖品。
+今年早些时候 ，共约30名证人和专家出席了在伦敦市中心举行的系列公开听证会，证明当事人在“再教育中心”拘留期间遭到殴打、酷刑或强奸。听证会还审查、评估了证据，其中包括曝光的政府文件。相关文件详细说明了其政策，包括系统性强制节育、将幼儿同家庭分开、强迫劳动以及摧毁清真寺。
 
-参考链接：
+美国政府已表示，北京的维族政策构成种族灭绝和危害人类罪。英国、比利时、荷兰、加拿大的立法机构也有同样表态。
 
-- [LA school vaccinates students without parental consent in exchange for pizza](https://thepostmillennial.com/la-school-vaccinate-students-parental-consent-pizza)
-- [SICK: California school uses junk food to BRIBE children to get vaccinated without parental consent](https://vaccines.news/2021-12-09-california-school-junk-food-bribe-children-get-vaccinated.html)
+信息来源：
 
+[维吾尔族法庭：北京犯有种族灭绝罪](https://www.dw.com/zh/%E7%BB%B4%E5%90%BE%E5%B0%94%E6%97%8F%E6%B3%95%E5%BA%AD%E5%8C%97%E4%BA%AC%E7%8A%AF%E6%9C%89%E7%A7%8D%E6%97%8F%E7%81%AD%E7%BB%9D%E7%BD%AA/a-60072382)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
-
-总编辑：飞虹
-编辑：飞虹
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

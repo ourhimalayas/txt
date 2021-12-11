@@ -2,25 +2,29 @@
 ---
 
 
-## 继政府之后 坎特呼吁运动员进一步抵制北京冬奥会
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1741754/)
+## 洛杉矶一学校以匹萨诱骗学生打疫苗 家长震惊
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1741871/)
 
-作者：飞虹
+作者：纽约香草山翻译部 – defiance
 ![This image has an empty alt attribute; its file name is 1-28.png](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
-12月9日，美国NBA明星，凯尔特人队的欧内斯特·坎特在接受媒体采访时，称尽管目前有多个国家已经宣布对即将举办的北京冬奥会进行外交抵制，但这远远不够。同时他呼吁所有的国家、政府和运动员站出来，推动将2022年冬奥会转移到其他国家举办。并呼吁运动员们敦促他们的政府和相关企业，停止对北京冬奥会的支持和赞助。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/6-19.jpg)
-坎特接着表示，在中共独裁政权实施了针对新疆、香港等地的种族灭绝措施后，如果让中共继续举办奥运会实在是一件令世界蒙羞的事。
+12月9日，美国媒体报道，洛杉矶南部巴拉克·奥巴马全球预科学院的学生家长震惊地发现，学校居然在家长不知情的情况下，用匹萨饼作为诱饵，为他们的孩子接种了疫苗。这些学生同时被要求不要告知自己的父母。
 
-最后，针对主持人提出的抵制冬奥会可能会影响运动员职业生涯的问题，坎特分析道，对于运动员来说，坚持正确的道德准则、价值原则，比赢得金牌更加重要，彭帅的遭遇已经充分说明了运动员在中共国会非常不安全。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/10-1.png)
+
+一位学生家长表示，学校在未经她同意的情况下，为她儿子接种疫苗，给她造成了极大的心理创伤。一位律师则认为，这所学校没有法律权力在上课时间为学生接种疫苗。
+
+据美国媒体报道，洛杉矶联合学区以学生事务保密为由拒绝对此事发表评论。但他们确实承认，他们的“安全到校奖励计划”为接种疫苗的学生提供了奖品。
 
 参考链接：
 
-- [Kanter Freedom: How Can We Trust China with Our Athletes After What They Did to Peng Shuai?](https://www.breitbart.com/clips/2021/12/09/kanter-freedom-how-can-we-trust-china-with-our-athletes-after-what-they-did-to-peng-shuai/)
+- [LA school vaccinates students without parental consent in exchange for pizza](https://thepostmillennial.com/la-school-vaccinate-students-parental-consent-pizza)
+- [SICK: California school uses junk food to BRIBE children to get vaccinated without parental consent](https://vaccines.news/2021-12-09-california-school-junk-food-bribe-children-get-vaccinated.html)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
 
-总编辑：文特
+总编辑：飞虹
+编辑：飞虹
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
