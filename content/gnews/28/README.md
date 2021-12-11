@@ -2,128 +2,55 @@
 ---
 
 
-## MV版Hcoin To the Moon上线第2天位列25国iTunes热门MV榜首！
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1743729/)
+## 联合国将公布中共在新疆侵犯人权的调查结果
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1744099/)
 
-12/11/2021 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线第2天位列25国iTunes热门MV榜榜首！
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-* * *
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/12/X-1.jpg)unewbalance.com
+《路透社》12月11日发表文章，题目是“联合国表示将很快公布关于新疆虐待行为的调查结果”，文章摘要指出：
 
-[【PDF 下载】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record.pdf)
+联合国人权办公室希望在未来几周发布报告
+发言人援引新疆“令人深感不安”的信息
+指出非法拘留、强迫劳动的模式
+关于维吾尔人集中营的指控首次出现在2018年
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_2.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_3.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_4.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_5.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_6.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_7.jpg)
+路透社日内瓦12月11日讯 联合国人权办公室发言人周五表示，该办公室正在对中共国新疆地区的情况进行最后评估，据称维吾尔人在那里被非法拘留、被虐待和强迫劳动。【1】
 
+续文：【2】
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_8.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_9.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_10.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_11.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_12.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_13.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_14.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_15.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_16.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_17.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_18.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_19.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_20.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_21.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_22.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_23.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_24.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_26.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_27.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_28.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_29.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_30.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_33.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_34.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_35.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_36.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_37.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_38.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_39.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_40.jpg)
+鲁珀特·科尔维尔（Rupert Colville）说，联合国人权事务高级专员办事处米歇尔·巴切莱特（Michelle Bachelet）的办公室希望在未来几周内公布其报告，并说与中共国官员就拟议的访问进行的长期会谈 “没有具体进展”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_41.jpg)
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_42.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_43.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_44.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_45.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_46.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_47.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_48.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_49.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_50.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_51.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_52.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_53.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_54.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_55.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_56.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_57.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_59.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_60.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_61.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_62.jpg)
+星期五（12月20日）早些时候，一个由律师和活动家组成的非官方的英国法庭说，中共的习近平主席对其所说的种族灭绝、反人类罪以及新疆地区的维吾尔族和其他少数民族成员的酷刑负有首要责任。中共国将该法庭视为一场“闹剧”，而该法庭没有制裁权或执行权。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_63.jpg)
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_64.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_65.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_66.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_67.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_70.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_72.jpg)
+科尔维尔在日内瓦的一次联合国简报会上说：“维吾尔族法庭揭露了更多与新疆维吾尔族和其他穆斯林少数民族待遇有关的令人深感不安的信息。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_75.jpg)
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_76-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_77.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_78.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_79.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_80.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_81.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_82.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_83.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_84.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_85.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_86.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_87.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_88.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_89.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_90.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_91.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_92.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_93.jpg)
+他说：“当然，我们同样确定了收容所中发生的任意拘留和虐待、强迫劳动行为，以及社会和文化权利普遍受到侵蚀的情况。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_94.jpg)
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_95.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_96.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_97.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_98.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_99.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_100.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_101.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_103.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_104.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_105.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_107.jpg)
+“操纵”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_108.jpg)
-[【PDF 下载】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Saturday-11-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record.pdf)
+中共驻日内瓦联合国代表团在周六（12月11日）发表的一份声明中说，它经常邀请巴切莱特进行“友好访问”。
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+“然而，在推定有罪的情况下，这次访问绝不会成为所谓的‘调查’。”该报告说。
+
+它补充说，如果她的办公室只对“美国和西方反华势力的政治操纵”感兴趣，那么这将对其公正性产生严重怀疑。
+
+6月，巴切莱特公开提出了今年访问的时间表，她自2018年9月以来一直在就访问条款进行谈判，当时有指控称约100万维吾尔人被拘留在集中营中。
+
+科尔维尔说，她的调查结果需要与北京政府分享，然后才能公布，她补充说，她希望这将在几周内完成。
+
+（原文完）
+
+（路透社原址文章访问权受限，续文部分应该是原文的APP阅读模式。）
+
+冲破遭严重渗透的联合国相关组织的阻拦不是一件易事，此事若成，则能反映有识之士的正义感以及坚忍不拔的精神，重灾区联合国人权理事会有拒绝中共的力量，也折射出世界对中共邪恶的认知和觉醒，更说明文贵先生引领的爆料革命在向纵深发展。
+
+有关链接：
+
+【1】[https://www.reuters.com/world/china/un-publish-xinjiang-findings-soon-2021-12-10/](https://www.reuters.com/world/china/un-publish-xinjiang-findings-soon-2021-12-10/)
+
+【2】[https://nordot.app/841991793508974592?c=776487456938950656](https://nordot.app/841991793508974592?c=776487456938950656)
 
  
 

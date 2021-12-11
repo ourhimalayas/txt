@@ -2,38 +2,38 @@
 ---
 
 
-## 小肯尼迪出版商挑战批评家 呼吁公开辩论
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1744390/)
+## 日本高級官員表示將不參加北京奧運會
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1744487/)
 
-编译：Jenny Ball
+![](https://assets.gnews.org/wp-content/uploads/2021/12/israel-healthcare-worker-700x420-2.jpg)圖片來源：路透社
+路透12月11日報導，日本讀賣新聞周六援引多位知情人士的話報導稱，日本政府高級官員可能會不參加2月份在北京舉行的冬奧會，加入美國的外交抵制。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-7-4.jpg)图片来源：childrenshealthdefense.org（作者：** Tony Lyons**）
+本週早些時候，加拿大與澳大利亞、英國和美國一道表示，他們不會派高級官員參加奧運會，理由是長期以來對中國人權記錄的擔憂。
 
-编者注：托尼·里昂斯 (Tony Lyons) 是“天马出版社”（ Skyhorse Publishing ）的一名律师、总裁和出版商，他是小罗伯特·肯尼迪 (Robert F. Kennedy, Jr.) 的新畅销书《真正的安东尼·福奇：比尔·盖茨、大型制药公司与全球公共卫生和民主的战争》的出版商。下面是出版商里昂斯写的注释 ，它出现在这本书的第 xii 页。
+中共國稱抵制是“政治姿態”和抹黑運動。
 
-复杂的科学和道德问题，不是通过审查科学家和作者的不同意见、删除他们互联网内容或诽谤，来解决他们向当权者提出的具有挑战性的信息的。
+《讀賣新聞》稱，日本可能會在本月底做出正式決定。該報稱，現在預計將出席的唯一官員是與奧運會相關的人員，包括前東京奧組委主席橋本聖子。
 
-审查反而导致对政府机构和大公司的更不信任。
+週五，日本首席發言人表示，尚未決定該國是否計劃派官員參加此次活動。
 
-没有任何意识形态或政治可以指出显而易见的问题：科学错误和公共政策错误确实会发生——并且可能产生毁灭性的后果。
+簡評：郭先生說過，抵制北京冬奧會只是剛剛開始。其實全球滅共早已開始，只是沒有放在明面上，滅共的趨勢只會增，不會減。
 
-错误可能源于，有缺陷的分析、仓促、傲慢，有时甚至是腐败。
+日本最終會緊跟美國對北京的冬奧會進行抵制，在中共獨裁政權實施了針對新疆、香港等地的種族滅絕措施後，如果讓中共繼續舉辦奧運會實在是一件令世界蒙羞的事。抵制北京冬奧會的原因絕不僅僅是簡單的人權問題，隨著中共國在全世界施行的“超限戰”、“藍金黃”、滲透和間諜等活動愈演愈烈，加之爆料革命、新中國聯邦人不斷堅持傳播真相，揭露中共罪行，如此才造成了全世界抵制中共冬奧會的行動。
 
-无论是什么原因，解决方案都来自于开放的探索、反省和不断的调查。
+新聞來源：
 
-理想的情况是，科学和公共政策，不能永远一成不变。它们应该是一个过程、合作、辩论和伙伴的关系。
-
-**评论：科技的根本就是质疑求解，但在这次邪恶势力和中共发起的病毒疫苗生化战争中， 邪恶势力颠覆了一切常识和逻辑。**
-
-**参考资料：**[childrenshealthdefense.org][Publisher of ‘The Real Anthony Fauci’ Challenges Critics to Find Factual Errors in Book, Calls for Open Debate](https://childrenshealthdefense.org/defender/tony-lyons-the-real-anthony-fauci-challenge-factual-errors-open-debate/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=a790ba0e-e452-45bc-aaae-d39305be9c54)
+https://www.reuters.com/lifestyle/sports/senior-japanese-officials-skip-beijing-olympics-report-2021-12-11/
 
 * * *
 
-*审核：文乐
-校对：信心满满*
-*发布：信心的选择*
+- [點擊閱讀英國倫敦喜莊園在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [點擊觀看英國倫敦喜莊園在G-TV的精彩視頻](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [歡迎加入【英國倫敦喜莊園】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-2.jpeg)
+
+編輯：【英國倫敦喜莊園編輯部】
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
 
  
 
