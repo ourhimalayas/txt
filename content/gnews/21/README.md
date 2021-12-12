@@ -2,45 +2,32 @@
 ---
 
 
-## 厄瓜多尔前总统：起诉阿桑奇是一场完全的骗局
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1746440/)
+## 奥林匹克峰会：北京将 “马克思新时代冬奥会”推向国际
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1746455/)
 
-【雅典娜快讯】，紧贴时代脉搏
-![](https://assets.gnews.org/wp-content/uploads/2021/12/11-2.jpg)图片来源：The Voiceof London
-整理报道：文扬
-编辑：文泓
+作者：东京樱花团｜捆绑CCP一千年
+![](https://lh6.googleusercontent.com/6teAgx79PWwNXZ8erFurSomT4jm5-uOhjEARlpuMSJrrHNKpfEUble79Up8W9Kb6B_ZSpWT7TX_y_OiDU6V6E6ANvCMl1k8x8SeZIKSuR46V3w9-BWYpBFc_4SL1ux_ZR_IZOMlj)[图片来源](https://twitter.com/ians_india/status/1469707800725139460?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1469707800725139460%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.latestly.com%2Fsocially%2Findia%2Fnews%2Fthe-10th-olympic-summit-firmly-stood-behind-the-intl-olympic-committee-over-its-latest-tweet-by-ians-india-3146229.html)
+**北京冬奥会遭遇美国等西方国家抵制后，奥林匹克峰会宣布为北京冬奥会背书称，北京将开启“全球冬季运动的新时代。” 历史在重演，1980 年，美国吉米卡特总统第一次发起抵制前苏联奥运会后，苏联入侵阿富汗，10年后苏联解体。2021年12月，美国拜登总统再次率先抵制中共国的奥运会。中共国会入侵台湾，中共政权因此解体将是历史的必然。**
 
-12月11日，一位厄瓜多尔前总统在主持RT西班牙语节目时说，那些追捕朱利安·阿桑奇的人想阻止其他人揭露战争罪行。他认为，**起诉阿桑奇是一场完全的骗局。**
+中共国新华社巴黎12月11日消息，第10届奥林匹克峰会11日通过线上会议的方式举行。峰会所谓公告宣布“北京冬奥会的举办将开启全球冬季运动的新时代，”而“新时代”又是习近平马克思共产国际运动的大重启。峰会已经将奥运政治化，却矛盾地“[坚决反对将奥林匹克运动‘政治化](https://twitter.com/ians_india/status/1469707800725139460?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1469707800725139460%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.latestly.com%2Fsocially%2Findia%2Fnews%2Fthe-10th-olympic-summit-firmly-stood-behind-the-intl-olympic-committee-over-its-latest-tweet-by-ians-india-3146229.html)’”。
 
-2007年至2017年期间担任厄瓜多尔总统的拉斐尔·科雷亚，他在接受RT西班牙语电视台采访时说：“在国际人权日，一个记者的人权受到了巨大的侵犯，因为他说出了真相，这真是一个悖论。”
+消息指出，国际奥委会主席巴赫和4名国际奥委会副主席参加了本次峰会，“参会代表包括以及国际奥委会执委会、国际单项体育联合会、国家（地区）奥委会以及世界反兴奋剂机构等的代表。” 中共代表们在峰会上“提出要带动3亿人参与冰雪运动”，中共宣称“将使得全球冬季运动的开展迈向新高度。”
 
-**上周五，英国高等法院裁定，维基解密的联合创始人可以被引渡到美国**，因他在美国因间谍罪被通缉。
+- ***延展阅读：***[***西方五国联手外交抵制中国冬奥会***](https://www.voanews.com/a/western-nations-join-together-in-diplomatic-boycott-of-china-s-winter-olympics/6346222.html)***。***
+- ***延展阅读：***[***马克龙表示抵制北京冬奥会无关紧要***](https://www.bbc.com/news/world-europe-59599063)***。***
 
-在阿桑奇的主导下，**维基解密公布了大量有关美国在阿富汗和伊拉克战争的机密材料**，包括2007年美国直升机在巴格达枪杀平民的令人痛心的视频。
 
-科雷亚说，“战犯正在迫害谴责他们的人”，这个案件“非常虚伪”。
+峰会除了确认上述机构表示对北京冬奥会的背书外，还表扬了东京夏季奥运会的成功举办。但有没有国际人权组织参加？显然，中共借此加强收买国际奥委会，以期确保2022北京冬奥会不被国际社会制裁。
 
-“如果阿桑奇揭露中共国、俄罗斯或拉美左翼政府，包括我国政府的秘密，他就会受到国际媒体的赞扬，受到美国国会和英国议会的嘉奖。但由于他的行动违背了美国这个霸权国家的利益，他被贴上了罪犯的标签。”
+国际奥委会在美国等西方民主国家抵制冬奥会的压力下继续为北京冬奥会背书，但表示，“[在更多成员国宣布外交抵制即将在北京举行的冬季奥运会后，国际奥委会的立场表示支持。因为中国在人权问题上的记录并且国内缺乏言论自由](https://www.thequint.com/sports/olympic-summit-supports-ioc-stand-against-politicisation-of-games)，”但“[峰会获悉了奥运会的筹备情况，并讨论了美国、英国、澳大利亚和加拿大宣布外交抵制冬奥会，”国际奥委会谴责为“政治决定](https://www.thequint.com/sports/olympic-summit-supports-ioc-stand-against-politicisation-of-games)”。
 
-科雷亚说，起诉的目的是恐吓他人，让“其他人都不敢揭穿大国的秘密”。 他认为**，（人类）不应将战争罪视为受保护的国家机密。“全世界都必须知道他们。这种罪行必须受到惩罚。**”
+美国对北京冬奥说不，触动北京愤怒，并警告华盛顿将为其决定“付出代价”。奥运历史上[第一次由美国发起全面抵制奥运会是在 1980 年冷战期间，当时前总统吉米卡特在前一年苏联入侵阿富汗](https://www.theguardian.com/sport/2021/dec/07/ioc-says-it-respects-us-boycott-of-beijing-winter-olympics)后，与其他 64 个国家和地区一起冷落了莫斯科夏季奥运会。10年后，前苏联解体。如今，美国又一次率先抵制全球最大极权国家中共国的奥运会，习近平政府一定会历史重演，像前苏联入侵阿富汗一样入侵台湾，中共国政权因此解体将是历史的必然。
 
-2012年起，阿桑奇一直躲在厄瓜多尔驻伦敦大使馆内。期间他获得了科雷亚政府的庇护。2019年，在科雷亚的继任者列宁·莫雷诺的当政后取消了庇护。同年，阿桑奇被指控违反了庇护条款，赶出了厄瓜多尔驻英大使馆，当即被英国警方逮捕并入狱。
+2021年12月12日
 
-今年早些时候，英国一家下级法院裁定不引渡阿桑奇，理由是担心他的心理健康。美国对判决提出上诉，并在承诺不会将阿桑奇单独监禁，并以其他方式降低他在监狱中自杀的风险后胜诉。
-
-阿桑奇的法律团队和支持者承诺将对判决提出上诉。
-
-原文链接： [Aim of Assange’s prosecution is to ‘scare others’ – Rafael Correa to RT — RT World News](https://www.rt.com/news/542890-rafael-correa-assange-case/)
-
-**发布：**去中心化Math
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团 / 文小白
+发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

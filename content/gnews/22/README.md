@@ -2,108 +2,44 @@
 ---
 
 
-## 美国联俄抗共 共产党必死无疑
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1746423/)
+## 厄瓜多尔前总统：起诉阿桑奇是一场完全的骗局
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1746440/)
 
-[https://gtv.org/video/id=61b4d14187fa7e74c92ea2c0](https://gtv.org/video/id=61b4d14187fa7e74c92ea2c0)
+【雅典娜快讯】，紧贴时代脉搏
+![](https://assets.gnews.org/wp-content/uploads/2021/12/11-2.jpg)图片来源：The Voiceof London
+整理报道：文扬
+编辑：文泓
 
-**郭文贵
-Miles Guo**
+12月11日，一位厄瓜多尔前总统在主持RT西班牙语节目时说，那些追捕朱利安·阿桑奇的人想阻止其他人揭露战争罪行。他认为，**起诉阿桑奇是一场完全的骗局。**
 
-现在俄罗斯跟美国的勾兑以后，共产党的时间已经倒数了
-Now after Russia’s collusion with the United States, the Communist Party’s time is counting down
+2007年至2017年期间担任厄瓜多尔总统的拉斐尔·科雷亚，他在接受RT西班牙语电视台采访时说：“在国际人权日，一个记者的人权受到了巨大的侵犯，因为他说出了真相，这真是一个悖论。”
 
-它唯一的所谓的仗势，还是狗仗人势啊，还是虚假之势啊
-It’s only so-called fighting power, it’s still doomed, or it’s falsehood
+**上周五，英国高等法院裁定，维基解密的联合创始人可以被引渡到美国**，因他在美国因间谍罪被通缉。
 
-俄罗斯已经转战整个东亚
-Russia has shift focus to all of East Asia
+在阿桑奇的主导下，**维基解密公布了大量有关美国在阿富汗和伊拉克战争的机密材料**，包括2007年美国直升机在巴格达枪杀平民的令人痛心的视频。
 
-最近跟缅甸、柬埔寨都签署了军事基地合约
-It recently signed military base contracts with Myanmar and Cambodia
+科雷亚说，“战犯正在迫害谴责他们的人”，这个案件“非常虚伪”。
 
-重返东亚，美国已经默许
-the United States has acquiesced that Russia returns to East Asia
+“如果阿桑奇揭露中共国、俄罗斯或拉美左翼政府，包括我国政府的秘密，他就会受到国际媒体的赞扬，受到美国国会和英国议会的嘉奖。但由于他的行动违背了美国这个霸权国家的利益，他被贴上了罪犯的标签。”
 
-越南整个的叫什么梁湾(金兰湾)军事基地重新恢复，美国都可能让给它
-The entire Cam Ranh Bay military base in Vietnam has been restored, and the U. S. may let them have it
+科雷亚说，起诉的目的是恐吓他人，让“其他人都不敢揭穿大国的秘密”。 他认为**，（人类）不应将战争罪视为受保护的国家机密。“全世界都必须知道他们。这种罪行必须受到惩罚。**”
 
-就把亚洲让给俄罗斯比让给中共强
-It’s better to give Asia to Russia than to CCP
+2012年起，阿桑奇一直躲在厄瓜多尔驻伦敦大使馆内。期间他获得了科雷亚政府的庇护。2019年，在科雷亚的继任者列宁·莫雷诺的当政后取消了庇护。同年，阿桑奇被指控违反了庇护条款，赶出了厄瓜多尔驻英大使馆，当即被英国警方逮捕并入狱。
 
-现在俄罗斯已经在南海的采油已经超过了给中共供油的一倍
-Russia’s oil extraction in the South China Sea has now more doubled than its oil supply to the CCP
+今年早些时候，英国一家下级法院裁定不引渡阿桑奇，理由是担心他的心理健康。美国对判决提出上诉，并在承诺不会将阿桑奇单独监禁，并以其他方式降低他在监狱中自杀的风险后胜诉。
 
-所谓中国南海，俄罗斯要回来，知道你不行了，我要回南海采油
-The so-called South China Sea, Russia is going to come back, knowing that CCP are not doing well, Russia went back to the South China Sea to extract oil
+阿桑奇的法律团队和支持者承诺将对判决提出上诉。
 
-就是印度、越南、缅甸、柬埔寨、菲律宾
-even like India, Vietnam, Myanmar, Cambodia and Philippines
+原文链接： [Aim of Assange’s prosecution is to ‘scare others’ – Rafael Correa to RT — RT World News](https://www.rt.com/news/542890-rafael-correa-assange-case/)
 
-宁可让俄罗斯回来也不让你中共在这，多少油呢
-They would rather let Russia come back than let the CCP dominant here, how much oil?
+**发布：**去中心化Math
 
-南海能采出的油，可以是现在供应整个亚洲，大概使用1200年
-The oil that can be produced in the South China Sea can be supplied to all of Asia now, it will probably be used for 1,200 years
-
-虽然现在电瓶化，太阳能，这是对共产党的噩梦
-Although it’s batteryization and solar energy now, this is a nightmare for the Communist Party
-
-你想想习这些年花了一万亿，就是买俄罗斯这个帮手
-Think about that Xi has spent a trillion dollars in these years, just to buy Russia as a helper
-
-结果最后1分钟放弃了，大家记住，乌克兰不会发生事
-As result it gave up in the last minute, remember, nothing will happen in Ukraine
-
-美国已经基本默许，你别动乌克兰
-The United States has basically acquiesced that you don’t touch Ukraine
-
-然后呢，德国的天然气管道我也不让你废掉，你可以继续供气
-Then, the German natural gas pipeline won’t be abolished and Russia can continue to supply gas there
-
-南海你别太过分，中国南海、缅甸、柬埔寨军事基地你可以签
-Don’t overdo it in the South China Sea, Russia can sign for military bases in the South China Sea, Myanmar, and Cambodia
-
-我今天跟你报这个料，世界上美国人都是极少人知道的
-I’ll spill the beans to you today, very few people in the world and even Americans know about it
-
-这就说明了美国的战略调整，又是美、苏(俄)灭共新的时代开始
-This shows that the strategic adjustment of the United States, also this is the beginning of a new era in which the United States and Russia have annihilated the Communist Party
-
-共产党当年是联俄制美，它活下来的
-The Communist Party was survived back then when they used Russia to contain the U. S.
-
-现在是联苏(俄)抗共， 共产党必死无疑
-Now it’s the United States uniting Russia to resist the Communist Party, and the Communist Party will be undoubtedly gone
-
-这就是日本咋呼的原因，它当不了这个亚洲老大
-This is why Japan is bluffing, but it can’t be the boss of Asia
-
-俄罗斯来，你别当了，还是我当吧
-Russia is coming back, Japan sits down, let me be the boss
-
-采气、采油军事基地一恢复，俄罗斯在亚洲无人敢挡
-Once the gas and oil production military bases are restored, no one dares to stop Russia in Asia
-
-* * *
-
-Date:12/09/2021
-原视频标题: 美国联俄抗共 共产党必死无疑
-The U.S. unites with Russia to resist the Communist China, and the Communist Party will be undoubtedly gone
-原视频日期：2021/12/08
-原视频链接**[https://gettr.com/post/pj80ixace0](https://gettr.com/post/pj80ixace0)**
-任务编号：KC322（3163）
-视频时间段 : 0:00-2:17
-中听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

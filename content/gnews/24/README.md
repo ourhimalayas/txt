@@ -2,108 +2,54 @@
 ---
 
 
-## 单伟建一家是典型的中国共产党对外情报机构的特务
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1746389/)
+## 震惊！澳免疫专家组披露其从未建议实施有争议的疫苗强制措施
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1746392/)
 
-[https://gtv.org/video/id=61b4d09587fa7e74c92ea283](https://gtv.org/video/id=61b4d09587fa7e74c92ea283)
+**翻译：不要代表我Kari**
+**编辑：MSGZ**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/11-2.png)图片来源dailymail.co.uk
+澳大利亚的免疫专家小组表示没有建议强制接种疫苗。澳大利亚免疫技术咨询小组本周举行听证会。专家小组被问及，如果民众接种了疫苗，是否还有必要强制疫苗接种？主席说，推出疫苗接种取决于各州的公共卫生命令。
 
-**郭文贵
-Miles Guo**
+澳大利亚的免疫专家小组已与国家强制执行的 新冠疫苗规定保持距离，并表示从未推荐强制疫苗规定。
 
-外交部的王子、王孙、私生子女
-sons, grandsons, and illegitimate children of the people in the Ministry of Foreign Affairs
+澳大利亚免疫技术咨询小组 (ATAGI) 坚持认为，任何时候都没有就强制接种疫苗规定向各州提出建议，这在全国引发了广泛的抗议
 
-你像单伟建就是外交部的老人, 他妈他爸那都是跟杨洁篪是超级好
-like Shan Weijian, he has deep roots in the Ministry of Foreign Affairs, his mother and his father have super good friendship with Yang Jieshi
+该咨询机构在周三的议会委员会听证会上受到了质询，被问及如果90%的人都接种了二剂疫苗，那么有争议的强制授权是否还有必要。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/22-4.png)图片来源hindustantimes.com
+大约88.5%的16岁以上的澳大利亚人都接种了二剂疫苗。图为游泳运动员凯特-坎贝尔Cate Campbell在东京奥运会前接受疫苗接种。
 
-单伟建是共产党, 外交部就是中国对外的情报机构，这是一点都不用怀疑的吧
-Shan Weijian is a the Communist Party member, and the Ministry of Foreign Affairs is China’s foreign intelligence agency, there is no doubt about it at all
+联合主席克里斯托弗·布莱斯博士回答说：“澳大利亚免疫技术咨询小组ATAGI 在任何时候都没有提供强制疫苗授权建议。” “我们相信疫苗的有效性和安全性，至于如何实施和推广则完全取决于各州的公共卫生命令。”
 
-单伟建是在当时下放后回来，是经中央和当时林强、林弟这一波人回来的, 是周恩来亲自(安排)
-Shan Weijian came back after being exiled at that time，he came back through the Central Committee that Zhou Enlai arranged himself with Lin Qiang and Lin Di at same time
+这一消息是在澳大利亚药物管理局TGA批准莫德纳Moderna疫苗作为18岁以上人群的疫苗加强剂以后披露的。
 
-那个林强、林弟一个是安全部，一个是公安部一局, 林弟跟他很熟
-Lin Qiang and Lin Di, one belong to the Ministry of Security and the other one belong to the First Bureau of the Ministry of Public Security and Lin Di knew Shan Weijian very well
+最终决定将取决于澳大利亚免疫技术咨询小组ATAGI，预计将在下周公布。
 
-单伟建这一家子是典型的特务, 所谓太平联盟公司，目的就是干你七哥来了
-Shan Weijian’s family is a typical spy family, the so-called PAG whose purpose is go after me Miles
+预计澳大利亚人“很快 ”就能在辉瑞Pfzier和莫德纳Moderna疫苗加强针之间做出决定。
 
-就像在盘古，这些警察在现场的时候告诉他说
-Just like these policemen threatened us at the scene in Pangu, said
+联邦卫生部长格雷格-亨特 Greg Hunt说：”当我们看到类似omicron这样的变种病毒时，疫苗加强针计划从根本上来说是至关重要的。
 
-我会让你们郭文贵在纽约失去他的房子，我会让郭文贵在世界失去他的房子
-that I will let yours Guo Wengui (Miles) lose his house in New York, I will let Guo Wengui (Miles) lose his house in the world
+大多数澳大利亚人有计划接种第三针强化疫苗，但犹豫不决的情况仍然存在。
 
-我会让郭文贵所有的家人睡在马路上，他毫不忌讳警察、法官
-I will let all Guo Wengui (Miles)’s family sleep on the street, the policemen and judges are not shy away about this attacks
+澳大利亚国立大学的最新调查发现，71.9% 的已接种疫苗的成年人打算接受第三剂加强针，但担心潜在的副作用。
 
-你看到单伟建说到西方干什么, 美联储、美财政部、美国体育界
-You see what Shan Weijian is doing in the West, he hooked up with the U.S. Federal Reserve, the U.S. Treasury, the U.S. sports world
+在 16 岁以上的澳大利亚人中，大约 88.5% 的人接种过二剂疫苗，93% 的人接种过一剂疫苗。
 
-你看他跟谁，所有的美国体育界NBA被谁买了，蔡崇信
-Look at who he is with, Joseph C. Tsai who bought NBA team
+在澳洲，超过90%的16岁以上儿童已完全接种疫苗的地区是新南威尔士州、维多利亚州和澳大利亚首都领地。
 
-蔡崇信是中共在美国最大的特务，蔡崇信又买了洋基
-Joseph C. Tsai is the largest CCP agent in the United States, Joseph C. Tsai also bought NBA Net
+超过58万名澳大利亚人已经接种了强化疫苗，建议在第二剂疫苗注射至少6个月后再接种第三剂强化疫苗。
 
-蔡崇信又代表马云花了几十亿美元买了曼哈顿无数个房子
-Joseph C. Tsai also spent billions of dollars on behalf of Jack Ma to buy countless apartments in Manhattan
+澳大利亚免疫技术咨询小组ATAGI 也有望在本周就关于 5-11 岁儿童的疫苗接种做出最终决定。
 
-蔡崇信 马云，然后单伟建、Bruno Wu
-Joseph C. Tsai, Ma Yun, then Shan Weijian, Bruno Wu
+原文链接：[https://www.dailymail.co.uk/news/article-10289849/Therapeutic-Goods-Administration-expert-panel-didnt-recommend-Covid-vaccine-mandates.html](https://www.dailymail.co.uk/news/article-10289849/Therapeutic-Goods-Administration-expert-panel-didnt-recommend-Covid-vaccine-mandates.html)
 
-单伟建借给吴征这些东西，这5亿美元
-Shan Weijian lent Bruno Wu 500 million US dollars
+*发布：*去中心化Math
 
-海航最大投资者，腾讯音乐100%
-He’s HNA’s largest investor, Tencent Music 100%
-
-然后告美国七哥官司打最多的钱的超过6000万美元到8000万美元的律师费的，就一个单伟建
-Then he sued me in the United States for the most money in lawsuits of over US$60 million to US$80 million in attorney fees, just only Shan Weijian himself
-
-这不符合任何逻辑，你看看单伟建跟谁呢
-This doesn’t make any sense, look at who Shan Weijian is with
-
-平安的马明哲，特别是康典，王岐山的大马仔
-PingAn’s Ma Mingzhe, especially Kang Dian, Wang Qishan’s big helper
-
-绝对是中国整个保险业的老大，王岐山的大马仔
-They are definitely the boss of China’s entire insurance industry, Wang Qishan’s big helper
-
-然后周亮，大家都记住了吧，看着没有
-Then Zhou Liang, everyone remember it, don’t you see this?
-
-马明哲，然后腾讯，是不是，马化腾，全部是他的人，包括SOHO的张欣
-Ma Mingzhe, then Tencent’s Ma Huateng, right? all his people, including SOHO’s Zhang Xin
-
-张欣跟单伟建那是男女关系，那是胡来的关系
-Zhang Xin and Shan Weijian do have special relationship beyond their own Martial relationship, it’s a unusual relationship
-
-潘石亿绝对是一看张欣和单伟建见面，自己要躲一边去，看门去了
-When Pan Shiyi saw Zhang Xin and Shan Weijian meet, he went to hide away and watched the surroundings
-
-就跟那个张高丽老婆一样
-Just like Zhang Gaoli’s wife
-
-* * *
-
-Date:12/10/2021
-原视频标题: 单伟建一家是典型的中国共产党对外情报机构的特务
-Shan Weijian’s family is a typical special agent of the Chinese Communist Party’s foreign intelligence agency
-原视频日期：2021/12/08
-原视频链接[https://gettr.com/post/pja934f93e](https://gettr.com/post/pja934f93e)
-任务编号：KC329（3174）
-视频时间段 : 0:00-2:02
-中听校： 洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

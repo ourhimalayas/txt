@@ -2,122 +2,46 @@
 ---
 
 
-## 最高级别送葬共产党
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1746461/)
+## 法国驻华使馆微博发文谴责中共侵犯人权
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1746466/)
 
-[https://gtv.org/video/id=61b4d1cc87fa7e74c92ea2ea](https://gtv.org/video/id=61b4d1cc87fa7e74c92ea2ea)
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-128.jpg)
+##### [图片来源](https://www.google.com.hk/search?q=%E6%B3%95%E5%9B%BD%E9%A9%BB%E5%8D%8E%E4%BD%BF%E9%A6%86&amp;newwindow=1&amp;rlz=1C1YKST_enUS900US901&amp;source=lnms&amp;tbm=isch&amp;sa=X&amp;ved=2ahUKEwj_jPiM-930AhWesFYBHdYaAzIQ_AUoAnoECAIQBA&amp;biw=1366&amp;bih=625&amp;dpr=1#imgrc=eiuDB7JXpSjvUM)
 
-大家看到这个了
-Todos vieron esto
+##### 法国驻华大使馆官方微博在12月10日国际人权日，代表欧盟发文谴责中共活摘器官、在新疆种族灭绝罪行和在中共大陆以及在香港的人权侵犯等暴行。
 
-咱们这个是个草率的
-Lo nuestro es un poco riguroso
+全文如下：
 
-谢谢Qmay, 墨镜先生, 小白, Rain
-Gracias a Qmay, Señor Mojing, Xiaobai y Rain
+欧洲联盟驻华代表团关于国际人权日的声明
 
-这个你们做的非常非常非常棒
-Lo hicieron muy bien
+北京, 10/12/2021
 
-我们要做的事情一定要是
-Lo que vamos a hacer debe ser
+欧洲联盟以人权的普世性、相互依存性和不可剥夺性为指导，人权是所有人类、所有文化无论何时何地都固有的权利。正如《世界人权宣言》所载的，思想、良心、宗教的自由权，言论自由、和平集会自由和结社自由权，都是不可剥夺和普世的权利。无论在世界何处或者什么文化中，这些权利是不可分割的。
 
-咱做这事儿
-Nosotros hacemos esto
+近几年，中共国在减贫、改善医疗、教育等其他为其公民的社会改善方面做出了显著努力。不过，与此同时，公民和政治权利并未受到保障，而且在某些案例中这些权利受到有意的、系统性侵犯。
 
-咱把它这个他们的丧事儿, 给它变成共产党有史来最高级的
-Hagamos que sea su funeral y que sea el más alto nivel en la historia del Partido Comunista 
-所有制造的棺材都是要特殊材料
-Todos los ataúdes fabricados estarán hechos de materiales especiales
+根据估计，在中共国的死刑判决和处决数量远远超过所有其他国家的总和，并且也适用于非暴力犯罪案件。欧盟呼吁中共国在适用和判处死刑方面提高透明度，并进一步减少刑事犯罪的死刑罪名。欧盟重申死刑是一种无效的、不必要的和不可撤销的惩罚，并敦促中共国暂停执行死刑和最终废除这种不人道的做法。欧盟还注意到有告称在中共国持续出现摘取器官行为，而往往发生在属于种族、语言或宗教少数群体的被拘留者和其他处于弱势地位的人身上。强制性摘取器官是犯罪、不人道和不道德的做法，必须予以制止。
 
-花圈都是特殊材料
-Las coronas son todos de materiales especiales
+欧盟继续对新疆维吾尔自治区人权状况表示严重关切，尤其对大规模的任意拘留、广泛监控和宗教或信仰自由的系统性限制，以及对基于证据的报告所指出有针对维吾尔族和其他少数民族的强迫劳动、强制计划生育以及性暴力和基于性别的暴力。欧盟再次呼吁中共国履行其国家法律和国际法规定的义务，尊重和保护属于中共国所有民族和宗教群体人的权利，包括在新疆、西藏和内蒙古。欧盟鼓励联合国人权委员会高级专员处理新疆人权情况，包括对情况进行独立、客观、公正和透明的评估。欧盟还继续呼吁独立和国际专家、外国记者和外交官能够有意的、不受限制的和不受监督的访问新疆、西藏和中共国其他地方。
 
-甚至用这个碳纤维carbon fiber都行
-Incluso se puede usar esta fibra de carbono o fibra
+欧盟对人权捍卫者、律师和知识分子遭受任意拘留、不公平的审判和不公正的判决，表示严重关切。特别是：常玮平、陈建芳、陈云飞、程渊、丁家喜、高智晟、郭泉、黄琦、李翘楚、李昱函、刘飞跃、秦永敏、覃永沛、塔西甫拉提・特依拜（Tiyip Tashpolat）、萨哈罗夫奖获得者伊力哈木·土赫提（Ilham Tohti）、王怡牧师、王藏、吴淦、吴葛健雄、许志永、余文生以及欧盟公民桂敏海等许多其他被不公正地定罪、被任意拘留或被强迫失踪的人。我们要求立即、无条件释放上述人员以及其他良心犯。
 
-要做的精美细化
-Debe hacerlo exquisitamente refinado
+欧盟敦促中共国确保充分尊重法治、确保正当程序以及公正审判保障，并彻底调查任意拘留、酷刑、不人道或有辱人格待遇或处罚以及对人权捍卫者及其家属的骚扰等被报告的案例。被拘留者理应享有接触自己选择的律师、获得医疗援助和联系家属的权利。中共国应该停止在指定地点进行监视居住（RSDL）的做法，该做法已被联合国特别程序谴责。中共国也应该停止以获取强迫和公开的口供为目的，对被拘留者使用酷刑、不人道或有辱人格的待遇或处罚。
 
-要用的音乐喇叭在(中共的)各国大使馆响起来的时候
-Cuando suene la música a través del parlante en las embajadas (PCCh) de varios países
+在中共国，通过对记者和媒体工作者进行审查、恐吓和监视的方式，言论自由和获取信息的自由越来越严重地被压制。中共国记者或公民因勇敢、真实地报道新冠肺炎疫情初期而失踪、被拘留或被骚扰的案例尤其值得关注。欧盟希望张展、黄雪琴（Sophia）、方斌等其他人士立即被释放。因为他们在本职工作中没有 “讲好中共国故事”而如实进行报道，驻华外国记者和媒体工作者继续面临骚扰、恐吓、任意拘留、签证限制、监视等问题。欧洲联盟及其成员国强调言论自由和媒体自由对善政的关键作用。
 
-要达到了这个世界专家音乐水平的
-Debe alcanzar el nivel experto mundial en música
+欧盟坚信，性别平等、妇女权利和LGBTI人士的权利应该在全球范围内得到充分尊重和保护。在中共国，虽然在性别平等方面取得了进展，但是基于性别的暴力仍然广泛存在。#MeToo行动被镇压，女性活动人士成为侵犯人权和虐待行为的受害者。欧盟呼吁中共国坚守其消除性暴力和基于性别暴力的承诺。近期，网球选手彭帅的案例引起了国际社会（包括欧盟成员国在内）对中共国妇女权利的关注。欧盟继续敦促中共国当局对她的性侵犯指控进行全面、公正和透明的调查。
 
-比七哥唱H-coin to the moon还要厉害
-Y más poderoso que la canción que canté de H-coin to the moon
+在香港特别行政区，《国家安全法》破坏中共国曾承诺至少尊重到2047年的基本权利和自由。
 
-叫他们的家人, 他们的妈听到以后都直接想进天堂
-Para que su familia y sus madres luego que la escuchen quieran entrar de una vez al paraíso
+人权、民主和法治是我们社会和共同认同的基石。虽然双方“存异”，欧盟及其成员国随时准备在中欧人权对话的框架下以及多边论坛上与中共国接触，以促进按照国际人权义务尊重法治和人权。
 
-非死不可的那种的
-Del tipo que debe morir sí o sí
+消息来源:
 
-这音乐听得他非死不可
-Debe morir sí o sí escuchando esta música
+##### [欧洲联盟驻华代表团关于国际人权日的声明](https://weibo.com/1987630007/L5n5ny5iF)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
 
-让习近平, 彭丽媛他们可以听不见
-Xi Jinping y Peng Liyuan pueden no escucharla
-
-只要他们听见, 他们就想死
-Y si la escuchan, querrán morir
-
-让王岐山, 姚明珊叫他们听见, 他们就想死
-También a Wang Qishan y Yaomingshan
-
-他有他母亲齐心
-Tiene a su madre Qi Xin
-
-他有习仲勋
-Tiene a Xi Zhongxun
-
-我让他母亲齐心知道
-Voy a hacer saber a su madre Qi Xin
-
-你儿子对待别人的父母的感觉是什么样子
-Cómo trata su hijo hacia los padres de otros
-
-你们一定要做到绝
-Ustedes deben hacerlo de manera absoluta
-
-要不就别做
-O sino no lo hagan
-
-要做就做到绝
-Y si lo hacen debe ser despiadadamente
-
-我让所有驻海外的中共的大使馆的官员
-Voy a dejar que todos los funcionarios de la embajada del PCCh en el extranjero
-
-我让他们知道
-Voy a hacerlos saber
-
-你们的父母一定不会老死
-Sus padres no morirán de manera natural
-
-一定会被装在这个新中国联邦给准备的棺材里边去
-Se empaquetará en un ataúd preparado por el Nuevo Estado Federal de China
-
-* * *
-
-日期：12/11/2021
-原视频标题：最高级别送葬共产党
-El funeral del Partido Comunista al más alto nivel
-原视频日期：12/09/2021
-原视频网址：**[https://gettr.com/post/pj7lri2975](https://gettr.com/post/pj7lri2975)**
-任务编号：KC330(3162)
-视频时间段：0:00-1:43
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 ：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

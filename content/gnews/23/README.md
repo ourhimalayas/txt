@@ -2,54 +2,108 @@
 ---
 
 
-## 震惊！澳免疫专家组披露其从未建议实施有争议的疫苗强制措施
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1746392/)
+## 美国联俄抗共 共产党必死无疑
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1746423/)
 
-**翻译：不要代表我Kari**
-**编辑：MSGZ**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/11-2.png)图片来源dailymail.co.uk
-澳大利亚的免疫专家小组表示没有建议强制接种疫苗。澳大利亚免疫技术咨询小组本周举行听证会。专家小组被问及，如果民众接种了疫苗，是否还有必要强制疫苗接种？主席说，推出疫苗接种取决于各州的公共卫生命令。
+[https://gtv.org/video/id=61b4d14187fa7e74c92ea2c0](https://gtv.org/video/id=61b4d14187fa7e74c92ea2c0)
 
-澳大利亚的免疫专家小组已与国家强制执行的 新冠疫苗规定保持距离，并表示从未推荐强制疫苗规定。
+**郭文贵
+Miles Guo**
 
-澳大利亚免疫技术咨询小组 (ATAGI) 坚持认为，任何时候都没有就强制接种疫苗规定向各州提出建议，这在全国引发了广泛的抗议
+现在俄罗斯跟美国的勾兑以后，共产党的时间已经倒数了
+Now after Russia’s collusion with the United States, the Communist Party’s time is counting down
 
-该咨询机构在周三的议会委员会听证会上受到了质询，被问及如果90%的人都接种了二剂疫苗，那么有争议的强制授权是否还有必要。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/22-4.png)图片来源hindustantimes.com
-大约88.5%的16岁以上的澳大利亚人都接种了二剂疫苗。图为游泳运动员凯特-坎贝尔Cate Campbell在东京奥运会前接受疫苗接种。
+它唯一的所谓的仗势，还是狗仗人势啊，还是虚假之势啊
+It’s only so-called fighting power, it’s still doomed, or it’s falsehood
 
-联合主席克里斯托弗·布莱斯博士回答说：“澳大利亚免疫技术咨询小组ATAGI 在任何时候都没有提供强制疫苗授权建议。” “我们相信疫苗的有效性和安全性，至于如何实施和推广则完全取决于各州的公共卫生命令。”
+俄罗斯已经转战整个东亚
+Russia has shift focus to all of East Asia
 
-这一消息是在澳大利亚药物管理局TGA批准莫德纳Moderna疫苗作为18岁以上人群的疫苗加强剂以后披露的。
+最近跟缅甸、柬埔寨都签署了军事基地合约
+It recently signed military base contracts with Myanmar and Cambodia
 
-最终决定将取决于澳大利亚免疫技术咨询小组ATAGI，预计将在下周公布。
+重返东亚，美国已经默许
+the United States has acquiesced that Russia returns to East Asia
 
-预计澳大利亚人“很快 ”就能在辉瑞Pfzier和莫德纳Moderna疫苗加强针之间做出决定。
+越南整个的叫什么梁湾(金兰湾)军事基地重新恢复，美国都可能让给它
+The entire Cam Ranh Bay military base in Vietnam has been restored, and the U. S. may let them have it
 
-联邦卫生部长格雷格-亨特 Greg Hunt说：”当我们看到类似omicron这样的变种病毒时，疫苗加强针计划从根本上来说是至关重要的。
+就把亚洲让给俄罗斯比让给中共强
+It’s better to give Asia to Russia than to CCP
 
-大多数澳大利亚人有计划接种第三针强化疫苗，但犹豫不决的情况仍然存在。
+现在俄罗斯已经在南海的采油已经超过了给中共供油的一倍
+Russia’s oil extraction in the South China Sea has now more doubled than its oil supply to the CCP
 
-澳大利亚国立大学的最新调查发现，71.9% 的已接种疫苗的成年人打算接受第三剂加强针，但担心潜在的副作用。
+所谓中国南海，俄罗斯要回来，知道你不行了，我要回南海采油
+The so-called South China Sea, Russia is going to come back, knowing that CCP are not doing well, Russia went back to the South China Sea to extract oil
 
-在 16 岁以上的澳大利亚人中，大约 88.5% 的人接种过二剂疫苗，93% 的人接种过一剂疫苗。
+就是印度、越南、缅甸、柬埔寨、菲律宾
+even like India, Vietnam, Myanmar, Cambodia and Philippines
 
-在澳洲，超过90%的16岁以上儿童已完全接种疫苗的地区是新南威尔士州、维多利亚州和澳大利亚首都领地。
+宁可让俄罗斯回来也不让你中共在这，多少油呢
+They would rather let Russia come back than let the CCP dominant here, how much oil?
 
-超过58万名澳大利亚人已经接种了强化疫苗，建议在第二剂疫苗注射至少6个月后再接种第三剂强化疫苗。
+南海能采出的油，可以是现在供应整个亚洲，大概使用1200年
+The oil that can be produced in the South China Sea can be supplied to all of Asia now, it will probably be used for 1,200 years
 
-澳大利亚免疫技术咨询小组ATAGI 也有望在本周就关于 5-11 岁儿童的疫苗接种做出最终决定。
+虽然现在电瓶化，太阳能，这是对共产党的噩梦
+Although it’s batteryization and solar energy now, this is a nightmare for the Communist Party
 
-原文链接：[https://www.dailymail.co.uk/news/article-10289849/Therapeutic-Goods-Administration-expert-panel-didnt-recommend-Covid-vaccine-mandates.html](https://www.dailymail.co.uk/news/article-10289849/Therapeutic-Goods-Administration-expert-panel-didnt-recommend-Covid-vaccine-mandates.html)
+你想想习这些年花了一万亿，就是买俄罗斯这个帮手
+Think about that Xi has spent a trillion dollars in these years, just to buy Russia as a helper
 
-*发布：*去中心化Math
+结果最后1分钟放弃了，大家记住，乌克兰不会发生事
+As result it gave up in the last minute, remember, nothing will happen in Ukraine
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+美国已经基本默许，你别动乌克兰
+The United States has basically acquiesced that you don’t touch Ukraine
+
+然后呢，德国的天然气管道我也不让你废掉，你可以继续供气
+Then, the German natural gas pipeline won’t be abolished and Russia can continue to supply gas there
+
+南海你别太过分，中国南海、缅甸、柬埔寨军事基地你可以签
+Don’t overdo it in the South China Sea, Russia can sign for military bases in the South China Sea, Myanmar, and Cambodia
+
+我今天跟你报这个料，世界上美国人都是极少人知道的
+I’ll spill the beans to you today, very few people in the world and even Americans know about it
+
+这就说明了美国的战略调整，又是美、苏(俄)灭共新的时代开始
+This shows that the strategic adjustment of the United States, also this is the beginning of a new era in which the United States and Russia have annihilated the Communist Party
+
+共产党当年是联俄制美，它活下来的
+The Communist Party was survived back then when they used Russia to contain the U. S.
+
+现在是联苏(俄)抗共， 共产党必死无疑
+Now it’s the United States uniting Russia to resist the Communist Party, and the Communist Party will be undoubtedly gone
+
+这就是日本咋呼的原因，它当不了这个亚洲老大
+This is why Japan is bluffing, but it can’t be the boss of Asia
+
+俄罗斯来，你别当了，还是我当吧
+Russia is coming back, Japan sits down, let me be the boss
+
+采气、采油军事基地一恢复，俄罗斯在亚洲无人敢挡
+Once the gas and oil production military bases are restored, no one dares to stop Russia in Asia
+
+* * *
+
+Date:12/09/2021
+原视频标题: 美国联俄抗共 共产党必死无疑
+The U.S. unites with Russia to resist the Communist China, and the Communist Party will be undoubtedly gone
+原视频日期：2021/12/08
+原视频链接**[https://gettr.com/post/pj80ixace0](https://gettr.com/post/pj80ixace0)**
+任务编号：KC322（3163）
+视频时间段 : 0:00-2:17
+中听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

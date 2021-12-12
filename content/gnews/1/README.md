@@ -2,52 +2,141 @@
 ---
 
 
-## 奥运会：大谈，小抵制，尽管中国已经沦为一个种族灭绝和极权主义的国家
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1746652/)
+## 关于新中国联邦为战友们提供药品的解释
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1746662/)
 
-编译：16626
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片147-edited.png)图片来源：法新社
-蒙特利尔日报2021 年 12 月 11 日（洛伊克·塔塞 LOÏC TASSÉ， 2021 年 12 月 11 日星期六 5:00）发表评论文章指出，真正的抵制北京冬季奥运会将不会发生。真正的抵制应该是所有运动员都不参加这个运动会。然而，只有包括加拿大在内的少数几个国家的政府不会派出任何官方运动员参加这个运动会。这是一种相当温和的，不会带来严重后果的抵制。该篇题为《奥运会：大谈，小抵制》的评论编译如下：
+[https://gtv.org/video/id=61b5792787fa7e74c92ede04](https://gtv.org/video/id=61b5792787fa7e74c92ede04)
 
-真正的抵制北京冬季奥运会将不会发生。真正的抵制应该是所有运动员都不参加这个运动会。然而，只有包括加拿大在内的少数几个国家的政府不会派出任何官方运动员参加这个运动会。这是一种相当温和的，不会带来严重后果的抵制。
+**郭文贵
+Miles Guo**
 
-很显然抵制的原因是多方面的：
+我觉得这个事情非常非常简单
+I think this is very, very simple
 
-- 中共国已经沦为一个种族灭绝和极权主义的国家。
-- 中共国政府无视与英国政府签署的条约，镇压香港的民主运动，并将独裁统治推向香港。
-- 习近平政府背信弃义完全违反世贸组织协议，继续进行大规模的，全球性的，包括制造业等的工业间谍活动。
+我觉得现在没有病的人吃青蒿素，就一定要补铁这个问题
+I think healthy people who takes artemisinin, must take iron supplements
 
+还有一个不要吃过量
+Do not take too much
 
-然而中国领导人却说，奥运会不是政治事件。甚至一些西方领导人，如埃马纽埃尔·马克龙（Emmanuel Macron），也赞同这种简单化的宣传。
+不要吃过量
+Don’t take it over dose
 
-**1.为什么奥运会是一个非常重大政治化的事件？ **
+吃补品就行可
+health products just fine
 
-任何通过国家组织和发起的事件都是政治事件。中国政府同意为这届奥运会花费近40亿美元的资金，那是因为北京政府想从中获利。通常情况下，奥运会会给举办国带来正面的形象，提高了举办国的国际威望，有利于其开展外交官工作。冬奥会是中共恢复被习近平政策严重破坏的国际声誉的绝佳机会。
+你有病了，那就按病（情）说了
+If you’re sick
 
-**2.为什么真正的全面的抵制是不可能的？ **
+没有一样的病是吃一种药管用的
+Not one medicine can cure all diseases
 
-中国并不是唯一组织奥运会的国家。巴黎将举办2024年夏季奥运会，法国政府会担心中国将来会抵制巴黎奥运会。同样，参与这个抵制的加拿大，美国，英国或任何其他国家都会有这种担心。譬如，在莫斯科奥运会被美国及其盟国抵制之后，苏联及其盟国采取了报复行动，抵制了1984 年的洛杉矶奥运会。另外，还有一些像马克龙一样的其它国家的领导人，他们会把贸易看的比人权更重要。
+怎么吃法？我觉得大家要征询医生
+How to take? I think you need to consult a doctor
 
-**3.** **真正的全面的抵制给国际奥委会带来什么问题？  **
+第三个，这个药绝对不适合跟很多药放在一起吃
+Thirdly, this medicine is definitely not suitable to be taken together with many other medicines
 
-奥运会的赞助商很大一部分来自中国公司。考虑经济利益，抵制北京冬季奥运会将可能对组织者和奥运会本身是致命的。
+这是肯定的
+It is for sure
 
-**4 、抵制北京冬季奥运会对美国和他的盟国意味什么？ **
+大家这个都要听医生的
+We should all listen to the doctor
 
-一个外交抵制不会在奥运会上造成太大的耻辱。何况迄今为止，只有很少数的国家宣布外交抵制，这表明华盛顿的软弱和北京的实力与强硬。抵制北京冬季奥运会显然是对习近平极权主义国家实施的一个非常微不足道的措施。
+另外一个就是现在，接下来咱们战友家里有病的人
+If you’re sick
 
-**5 、中国政府会有何反应？ **
+请跟飞飞，还有咱们Eglise联系的时候
+Please contact Fei Fei and Eglise
 
-北京政府已经重新拾起了毛泽东时代的意识形态。如有敢于背离伟大的习近平的思路的国家，他必将受到无尽的侮辱，惩罚和威胁。共产主义意识形态会战胜西方理念。
+大家要记住
+Remember
 
-**评：**该篇评论文章反应了魁北克公民已经清醒地认识到中共国已经沦为一个种族灭绝和极权主义的国家，并将独裁统治推向香港。同时魁北克公民也认识到当今世界上还有一些像马克龙一样的其它国家的领导人，他们会把贸易看的比人权更重要，向中共国磕头，跪舔中共国。可以看出官方语言同是法语的魁北克公民比法国公民更加敢于公开蔑视像马克龙一样的人。该篇评论文章还揭露中共国行将威胁世界的狼子野心。尽管该篇评论文章隐隐地彰显出一点悲观和无奈的情绪，这必将激起更多的魁北克公民加入全球日益壮大的灭共行列。
+帮你一时，不能帮你一切
+We can help for a while, but not for a lifetime
 
-参考资料：[Journal De Montreal] [https://www.journaldemontreal.com/2021/12/11/jeux-olympiques-grosse-parlotte-petit-boycott](https://www.journaldemontreal.com/2021/12/11/jeux-olympiques-grosse-parlotte-petit-boycott)
+特别是药
+Especially for the medicine
 
-编辑/发布：LILY
+你不能说一直吃下去，全都帮那是不可能的，临时解决
+It is impossible for us to provide you with medicine all the time. It’s a temporary solution only
 
-20211212
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
+但是最终的结果一定是你，需要者负责任
+But you are the person need to take the responsibility
+
+我们没有处方权
+We do not have the right to prescribe
+
+只能建议权，只能给你提供一些药的帮助
+only the right to advise,
+
+只能给你提供一些药的帮助
+Can only provide you with some help for the medicine
+
+但是这个东西千万记住，副作用就是沉闷乏力
+But you must remember, the side effect is dull and weak
+
+和铁之间有冲突，你必须要补铁
+There is a conflict with iron. You have to take iron supplements
+
+还有一个就是跟其他症状有没有副作用，但现在还没有发现
+Is there any other side effect? We haven’t found it yet
+
+这个大家要负起自己应负的责任
+Everyone need to take their own responsibilities
+
+我们不能100%保证，这是基本常识，请Eglise你说
+We can not guarantee 100%. This is basic common sense. Eglise, please
+
+Eglise
+
+对，因为讲到这个针剂，已经有战友开始问了
+Yes, talking about this injection, some comrades already have some questions
+
+我就想告诉大家，青蒿素它是有副作用的
+I just want to tell everyone that artemisinin has side effects
+
+因为青蒿素它是100%经过肝脏代谢
+Because artemisinin is 100% metabolized by the liver
+
+对肝脏有绝对的毒性
+It is absolutely toxic to the liver
+
+所以，前面讲的针剂青蒿琥酯针剂，不是什么人都能用的
+Therefore, the injection artesunate injection mentioned earlier is not suitable for everyone
+
+一定要在监护下使用，而且不是什么人都能用
+It must be used under supervision, and not for everyone
+
+我一定要再这么说，因为它的副作用
+I must say that again because of its side effects
+
+可能你的疾病不一定要你的命，但是它副作用能要了你的命
+It may not necessarily kill you with your disease, but it can kill you with its side effects
+
+就是提醒大家这一点
+Here is a reminder to everyone
+
+* * *
+
+Date:12/04/2021
+原视频标题: 关于新中国联邦为战友们提供药品的解释
+Explanation of the drugs provided for the comrades in arms
+原视频日期：2021/12/01
+原视频链接**[https://gettr.com/post/pinbbgd63d](https://gettr.com/post/pinbbgd63d)**
+任务编号：KC323（3099）
+视频时间段 : 0:00-01:49
+中听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka & Mike L
+翻译终校：洛杉矶盘古农场 – Freeearth
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

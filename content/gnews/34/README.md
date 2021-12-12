@@ -2,22 +2,28 @@
 ---
 
 
-## 一名与中共勾兑的世卫组织新冠病毒溯源小组成员消失
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1746161/)
+## 成千上万澳大利亚人上街抗议强制接种中共病毒疫苗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1746223/)
 
 #### 撰稿：彩虹
 
 #### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-4-1.jpg)图片来源：路透社
-12月10日，《国家脉动》调查记者娜塔莉·温特斯（Natalie Winters）发表文章，报道与中共勾兑的世界卫生组织新冠病毒溯源小组成员玛丽恩·库普曼斯（Marion Koopmans）在新的溯源小组名单中消失。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-59.png)图片来源：新闻视频截图
+12月12日，澳大利亚《天空新闻台》报道，12月4日和12月12日，在悉尼、墨尔本、霍巴特和黄金海岸，数以千计的澳大利亚人分别举行了抗议活动，抵制澳大利亚政府对中共病毒（COVID-19）疫情的响应和强制接种中共病毒疫苗。
 
-文章说，库普曼斯遭遇了与世界卫生组织同行彼得·达萨克（Peter Daszak）相同的命运。她曾在世界卫生组织第一个新冠病毒（COVID-19）起源调查小组中任职，并且，在今年10月份，世卫组织新成立的SAGO（新冠病毒起源科学顾问小组）的最初公告中，库普曼斯被列为28名成员之一。然而，目前最新的SAGO的成员名单中却不见了库普曼斯。
+在墨尔本，一千多名手持标志和旗帜的人聚集在墨尔本州议会外，然后沿着伯克街走到卡尔顿花园。他们边走边喊：“解雇丹·安德鲁斯（Dan Andrews）”、“自由的维多利亚”和“我的身体我做主”。
 
-之前，《国家脉动》挖掘了库普曼斯在中国广东疾病控制中心担任科学顾问的角色，报道了她撰写的由中国共产党拨款支持的科研论文和期刊文章，揭露了她与中国共产党的长期关系。
+在墨尔本中央商务区，一度出现了混乱的场面，因为抗议活动和墨尔本马拉松比赛相冲突，导致了道路关闭。
+
+在悉尼，抗议者出现在海德公园，反对针对娱乐、创意艺术和医疗行业的强制接种中国病毒疫苗。抗议者们打着鼓，吹着口哨，从海德公园游行到了阿尔弗雷德王子公园，然后在那里搭建了一个舞台，并配备有扬声器，现场响起了音乐。
+
+在更北边的黄金海岸和库伦加塔，因为该州准备向完全接种疫苗的旅客重新开放边界，数千人聚集在一起，反对中共病毒疫苗、封锁和戴口罩。组织者估计现场大约有六千人。
+
+在霍巴特，抗议强制接种中共病毒疫苗的数百人聚集在议会大厦的草坪上，然后穿过萨拉曼卡广场。现场，人们为那些因拒绝接种疫苗而失去工作的人默哀了几分钟。
 
 **新闻来源**
 
-[SCALP: COVID Investigator Funded By Chinese Communist Party Removed From WHO Team Following National Pulse Exposé.](https://thenationalpulse.com/news/scalp-koopmans-removed-from-who-team/)
+[Thousands turn out in NSW, Victoria, Queensland and Tasmania to protest against vaccine mandates](https://www.skynews.com.au/australia-news/thousands-turn-out-in-nsw-victoria-queensland-and-tasmania-to-protest-against-vaccine-mandates/news-story/9ecda44ba53f490caed7c0ea54426b12)
 
  
 
