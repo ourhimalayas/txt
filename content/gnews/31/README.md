@@ -2,14 +2,48 @@
 ---
 
 
-## 2021年12月10日文贵大直播简报
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1744449/)
+## 笔录新生——战友日常(七）
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1744607/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/文贵大直播12.10.1.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/文贵大直播12.10.2.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/文贵大直播12.10.3.png)
-【参考链接】[https://gtv.org/broadcast/watch/61b0b18fbbd75f62e532ced9](https://gtv.org/video/id=61b350ad56f4921401b40cca)
+作者：纽约香草山设计部 – 蜂鸟
 
-撰稿：回响 / Ermat / Skagen / Naughty（文行） / 牛小妹
-制作：艾伦
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
+
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/19-38da244de89b341d-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/20-3ad24923c63f6a76-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/21-7-scaled.jpg)
+* * *
+
+
+
+发稿：小鹿
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-2.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
 
  
 

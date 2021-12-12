@@ -2,34 +2,24 @@
 ---
 
 
-## 美众院外委会主席米克斯将率团访台
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1745072/)
+## 杰森 • 米勒：从左翼游说团体手中拯救言论自由的斗争正在进行中
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1745088/)
 
-作者：纽约香草山 医疗部 云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月9日，美国众议院外交委员会主席米克斯在接受采访时表示，他计划将于2022年1月率领一个由50多位外委会成员组成的代表团访问台湾，届时希望能与蔡英文总统会面。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-12-上午10.36.23.png)
-米克斯表示，美国政府及其他政界人士已经明确表达了将与台湾站在一起的立场，对此，美国将不会理会来自于中共的任何压力。
+撰稿：GoergeC（乔治）
+上传：追着曙光跑
 
-米克斯强调，依照现有的协议，台湾会长期维持当前的存在方式。为此，美国将确保台湾能拥有自我防卫的能力。米克斯还警告称，如果中共企图侵犯台湾，那将会是个天大的错误。
+据EXPRESS新闻12月12日的报道，言论自由和政治表达权正在美国受到攻击。不幸的是，左翼走向审查制度的步伐在英国正在加快，甚至英国第一修正案对言论自由的保护也无法阻挡他们。英国政府即将为大型科技公司开绿灯，践踏言论自由。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Image-2021-12-12-at-11.40.24.jpeg)图片来源：原新闻
+英国议会目前正在起草一项”在线安全法案”（Online Safety Bill），这是一项庞大的立法，将授权社交媒体平台监管”有害”内容，但并没有明确区分什么内容能被认定为”有害”。尽管这项法案可能是善意的，但那些经常暂停、禁止或审查用户言论的社交媒体巨头，将得到英国政府的法律支持。如果发表被左翼暴徒认为具有”冒犯性”的政治观点，用户将被踢出这些社交媒体平台。
 
-对于中共威胁美国取消访问的言论，米克斯声明，他不惧怕中共施压，并表示会为其所坚持的事情持续发声。
+作为盖特（Gettr）的CEO和美国第45届总统唐纳德•川普的高级顾问，杰森 • 米勒针对英国国会起草的这份文件发表了及时的观点，那就是言论自由的权利不仅在美国，在其他自由世界国家包括英国都是神圣不可侵犯的。
 
-参考链接：[力挺台灣 美眾院外委會主席計劃明年1月率團訪台](https://www.cna.com.tw/news/firstnews/202112110007.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+由这项法案的推动，可以看出左翼媒体和政治勾结之深，并不仅仅在美国发生，而且是一个世界性问题。面对疫苗灾难即将在明年爆发，左翼媒体唯恐普通人真正觉醒发现毒疫苗消灭人口的计划，所以现在着急提前布局以求彻底控制言论。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+但是，盖特和新中国联邦的G-TV，G-News等真正秉承言论自由精神的新兴媒体平台，必将打破左翼媒体和深层政府的言论封锁，必将为消灭CCP和摧毁少数黑暗世界的邪恶计划发挥巨大作用。
 
-总编：Irene木木
-编辑：Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
+信息来源：[The fight is on to save free speech from Woke lobby, says JASON MILLER](https://www.express.co.uk/comment/expresscomment/1534871/free-speech-political-expression-woke-online-safety-bill-gettr-comment)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
