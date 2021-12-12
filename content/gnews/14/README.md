@@ -2,177 +2,53 @@
 ---
 
 
-## 美 日 澳 印之间复杂的战略合作关系
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1747868/)
+## 2021年12月12日郭先生大直播文字同步精要
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1747915/)
 
-[https://gtv.org/video/id=61b57a3b87fa7e74c92ede8e](https://gtv.org/video/id=61b57a3b87fa7e74c92ede8e)
+栏目作者：焦点20分
 
-**郭文贵
-Miles Guo**
+战友们好，12月12日郭先生继续给战友们做了大直播，主要的内容包括：
 
-就是日澳美这三国跟欧洲和美国完全不同的关系
-Japan, Australia and the United States have completely different relationship with Europe and the United States
+1，今天郭先生大直播给战友们3个思考的问题： 1）双11双12是中国历史的大日子。双十二西安事变外，还有什么重大意义？ 2）为什么 川普总统没有为皮特纳瓦拉先生的《川普时代》宣传，川普时代没有了？ 3）发生了对共产党最不利的大事是什么？
 
-说白了就是澳大利亚属于亚洲
-To put it bluntly, Australia belongs to Asia
+2，宗教非常重要的表达方式——修。和佛祖沟通的声音——经。动物世界最重要的是——动静。人与人最好听的声音——叫床。西方的宗教进了教堂，要求不能有动静，大风琴代表了上帝的脚步声。希特勒要求被统治者唱—纳粹的歌。希特勒手汗多，内心是个极度自卑的人。斯大林流氓出身，只要一敲桌子就有大事，要求俄罗斯音乐完全统一化，农田里可以听音乐，回家听音乐是犯罪。萨达姆10年副总统、建立情报部门、军队、中东音乐。毛泽东改民歌音乐，周恩来不停的审批修改。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/aerq.jpg)
+3，洗脑三利器：1）音乐；2）告诉你所有问题的答案，不允许听到其他的答案；3）社交媒体、视频。今天影响人类最深的不是社交媒体，现在世界Facebook，twitter，whatsapp控制了20亿的人类。而背后的 AI 无处不在，控制人类的言行。
 
-日本是亚洲的过去的第一强国
-In the past, Japan is the number one power in Asia
+4，打榜震撼了世界。1）7000万的点击，数据显示只有200万。2）所有政权不愿意看到，一个非专业的歌手搞出来的动静 超越了歌手；3）打榜方式、非专业团队、听众都是非传统的方式，超出政治家的思考范围；4）金融方式完全不同，打榜不要钱，还捐钱。好莱坞团队有威胁性的话语，必须和他们签约，再不签约，很危险！郭先生永远不会和好莱坞合作，不会要一分钱。共产党拼命的打压，倾一国之力干的事，爆料革命战友轻松完成。
 
-也是经济上的第二强国
-and the second strongest country economically
+5，国内亲美势力远大于亲习势力，掌握绝对信息。美国最高级的情报部门得知，国内很多人想杀掉习近平！共产党内部时不时都会发生，世界集权政府都会发生副手干掉一把手的事情，这是副手必然的选择。即使是美国副总统也是竞选总统很好的台阶。杀掉习近平，会让灭共的道路更加艰险。习近平统一思想、打台湾、挑战美国，只有习近平才能完成爆料革命灭共的脚步。杀掉习近平就会塑造一个虚伪的英雄，要消灭这个体制才是根本。祈祷习近平安全，帮助爆料革命顺利完成灭共的道路。
 
-军事上严格讲说是第二
-In the military, strictly speaking, it is the second
+6，中国被骗子毁掉了一切，毛泽东、张学良。这个社会没有真，中国就没有办法恢复正常。
 
-但是绝对不输中共的
-but it definitely does not lose to the CCP
+7，双十二西安事变外，还有什么重大意义？1936年出了一个中国人的二货——张学良。张学良自私的原因：干掉蒋介石，继续当东北王，甚至当国民党老大。张学良是一个土匪、流氓、纨绔子弟、共产党走狗，和他爹一样，从来没有抗日，一生最佩服德军和日军，军粮军饷共产党给了最多。在苏联的要挟下，张学良才释放蒋介石。张学良差点挑起苏联动核武器灭掉中国人，差点挑起美国轰炸中国。共产党和张学良对苏联跪舔，导致中国380万军人，1300万老百姓直接死于二战。张学良的军阀思想，为了自己家族私立，打着民族的幌子，对民族造成最大伤害。民国时期是断代的时代，中国人当时拥有最单纯的状态，完全重新接受新的思想，如果没有张学良，中国一定会走上最美好的民主道路。爆料革命一定要警惕张学良这样的民族败类。习近平如果被杀，会出无数个张学良。
 
-那么在这个关系上对中共的态度上
-So, in terms of the attitude towards the CCP in this relationship,
+8，习近平的女儿，护照李木子，住在党校旁边，李长春家旁边。经常来美国，确实在曼哈顿有房子，比网上twitter那个假的夸张一万倍。习近平对家人的呵护，超出常人想象。粉钻石根本不是事情，2007钻石大王的钻石矿曾经被习近平家人问价，钻石矿都不算事。没有人敢偷拍李木子的照片。郭先生将公开李木子哈佛大学的时候，那时候习公主就有美国特勤局保护。冠军、刘呈杰、孙瑶根本没有办法和习公主相提并论。
 
-在台湾的问题上
-and on the issue of Taiwan
+9，李木子早已经参政，中国过去10年根本没有常委。习近平和彭丽媛的日常都是习公主说了算，军队是习远平说了算。彭蕾、习乔乔、习安安（英国护照，英国老公拉菲），习近平的家人实际控制着中国。
 
-大家看待问题的时候不要一样看
-Please don’t look at problems the same way
+10，中国人和非洲人的婚姻，和谐到老的几乎为零。中国人懦弱和不勇敢、虚伪；而俄罗斯有欧洲生理的优越性，鲁莽、团结、性能力不强、崇尚当下文化。东北文化就是受了俄罗斯的糟粕文化的影响。中国在任何情况下，无法抵御北边的不安全，中国风水， 北边是大凶。俄罗斯和中国的关系，可以和平相处，注定不会成为朋友。习近平 是崇俄派，崇拜希特勒、沙皇。中国过去对俄罗斯的错误认知，从1919年开始，注定中国人民要陪葬俄罗斯百年。
 
-就像中共和俄罗斯和美国关系一样
-Just like the relationship between the CCP and Russia and the United States
+11，俄罗斯对中共的反水，是对中共最大的打击。1）俄罗斯告诉了中共的决定，打台湾不参与；2）所有中俄之间的油气协议必须兑现，不兑现就和美国一起打中共；3）俄国、印度、北朝鲜、巴基斯坦、北朝鲜形成新的战略同盟，俄罗斯反对中共在阿富汗的事情。俄罗斯的外交是世界最成功的，完全的不要脸，最大的利益收割；4）俄罗斯对中共的经济不看好，准备 “离婚”。
 
-中俄永远不可能所谓的永远的好
-China and Russia can never be so-called forever good
+12，习近平 所有的“自信”，离不开俄罗斯。中共满足不了俄罗斯，俄罗斯必然另结新欢。
 
-最后
-In the end,
+13，假 习公主的twitter账号，甚至比李木子还重要，战友们还要持续关注。
 
-又一定是中国人作为牺牲品
-it must be the Chinese people as victims
+14，为什么川普没有为皮特纳瓦拉先生的《川普时代》宣传？因为书中提到了川普总统的女婿和女儿！郭先生提这件事的7个为什么？在美国发生的，在中共国都不会发生，美国社会文明，这是美国空前伟大的原因。1）皮特纳瓦罗敢问川普总；2）在美国顺利，中共国无法出版；3）在美国成功，在中共国会送命；4）在中共国不会有人不敢问习近平这样的问题；5）在美国成为最畅销的书，川普也没有否认，在中共国不可能；6）在中共国会被定义为卖国罪；7）皮特纳瓦罗个人空前成功，收到了拜登政府的邀请。
 
-历史以来杀中国人最多的是俄罗斯人
-It’s the Russians who have killed the most Chinese in history
+15，西方国家联合灭共，全面经济脱钩，会查出共产的所有 海外资产。共产主义会被定义为人类的邪教，人人可以诛杀。
 
-而且是美国人几乎跟中国人没有什么利益冲突
-And the Americans have almost no conflict of interest with the Chinese
+16，共产党改变对冬奥会的策略，开启习近平的滑铁卢。1）报道西方国家官方不出席冬奥会，不允许出现“抵制”两个字。中共拿了美国NBC直播权20亿美元，担心NBC也不去。选手奥运金牌1：10的补偿。2）内部经济通知：中国的经济只能向好，局部调整。
 
-那你去想一想亚洲人，不管你有多大
-Then think about the Asians, No matter how big you are
+17，躺平币有成本，有投资者投入，是真钱。拒绝锁币，未来的喜美元的兑换会有问题。公平是要让弱者守规矩的人获得利益。战友们已经创造了稳定喜币的奇迹。
 
-是澳大利亚人跑到亚洲不属于亚洲
-it’s Australians who went to Asia but it does not belong to Asia
+18，世界邪恶组织继续推动疫苗，不会停的。美41%没有打疫苗，70%反对打疫苗，世界80%反对打疫苗。美国大选结束，福奇和扎克伯格一定会进监狱。现在给孩子打疫苗的，全部会被审批，一个都不会少。西方官方数据：2500万美国人直接受到大直播的影响，欧洲也如此。影响力排名：1)爆料革命2)大胡子医生3)班农战斗室。 疫苗对人类的影响，堪比恐龙灭绝。伊维菌素和青蒿素可以清除疫苗影响，绝对救命。
 
-它属于整个南澳到亚洲参战
-It belongs to the entire South Australia to participate in the war in Asia
+以上大直播文字精要，由新西兰农场焦点组提供。最终内容请以郭先生大直播视频为准。
 
-就它那个军事实力，那都是基本上就是表演型的
-As far as its military strength, it is basically a performance, a show
-
-它只是拉过来，就凑数
-It just pulls over and makes up the count
-
-你知道就像路大脑袋
-You know it’s like the big head Lude
-
-他自己骗不了钱
-He couldn’t scam money by himself
-
-他就把蛇妖闫弄来了
-so he got Snake Demon Yan here
-
-你去看跟路大脑袋、蛇妖闫下边在看的
-Go check out the big head lude and the Snake Demon Yan’s broadcast
-
-现在还有3000人
-There are still 3000 people watching
-
-几乎80%的都是对着蛇妖闫去的
-Almost 80% of them are there because of Snake Demon Yan
-
-那么，日本人拉着澳洲就拉了这么一个，就这个意思
-therefore the Japanese are pulling Australia together with it. That’s what it means
-
-我得拉个站台的
-The Japanese have to pull a backer
-
-美国人不见得跟他站台
-but the Americans haven’t acted for them as a backer
-
-美国是为了让自己当老大
-The U.S. wants to be the boss itself
-
-我要当老大，我要……我要喊两嗓子
-They want to be the boss and shout it out loud
-
-美国人是想日本人，你上，你先打
-Americans want the Japanese to go and to fight first
-
-因为第一个死是你
-because it would be the first one to die
-
-澳洲说下个就是你澳洲，澳洲是什么？
-Australia said Australia is the next. What about Australia?
-
-澳洲的所有的经济百分之六、七十并不来源于美国，是来源于亚洲
-60%-70% of Australia’s economy does not originate from the United States, but from Asia
-
-它是经济利益在前
-Its economic interests at the head of the line
-
-特别是台湾
-especially Taiwan
-
-所以说它是经济和日本的战略安全
-So (Australia) is the economy and Japan’s strategic security
-
-美国人怂恿的是日本人、澳洲人和印度人上
-The Americans encouraged the Japanese, Australians, and Indians to go
-
-哎，印度人这个莫迪说，咱不掺和这事儿，你们打
-The Indian Narendra Modi said you could fight, but Indians would not participate
-
-反正我不想当老大
-I don’t want to be the boss anyway
-
-你也灭不了我
-and you can’t destroy me
-
-所以说它这个关系，战略关系到最后的结局是什么？
-So that the relationship, what is the final outcome of this strategy relationship?
-
-日本人，你看安倍现在讲的话
-The Japanese, look at what Abe is saying now
-
-安倍在任的时候，没有比他对中国再舔腚的了
-When Abe was in office, there was nothing more licking China than he did
-
-这个家伙你可别相信他说那么多话
-Do not trust this guy that much on what he said
-
-他的家族和他的政治立场，如果他硬一点点
-On his family and his political standpoints, if he was a little tougher
-
-习近平不至于到今天对台湾
-Xi Jinping would not treat Taiwan like he does today
-
-* * *
-
-Date: 12/06/2021
-原视频标题: 美 日 澳 印之间复杂的战略合作关系
-The Complex Strategic Partnership Within The United States, Japan, Australia and India
-原视频日期：2021/12/05
-原视频链接: [**https://gettr.com/post/pivgnud674**](https://gettr.com/post/pivgnud674)
-任务编号：KC325(3132)
-视频时间段 : 0:00-2:13
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译：洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+文案提供：梦田
+上传：零点
 
  
 

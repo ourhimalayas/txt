@@ -2,54 +2,122 @@
 ---
 
 
-## 共产党对新中国联邦、顷一国之力的全面行动
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1747842/)
+## 从此没有郭七条 加速灭共让它消失
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1747878/)
 
-作者：MOS 翻译部-祈望明天会更好
+[https://gtv.org/video/id=61b5ffd587fa7e74c92f0f6a](https://gtv.org/video/id=61b5ffd587fa7e74c92f0f6a)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-12.jpg)
+**郭文贵**
+**Miles Guo**
 
+大家看到这个了
+Everyone has seen this
 
+咱做这个是个草率的
+This one that we did is hasty
 
+谢谢Q妹、墨镜先生、小白、Ryan
+Thank you sister Q, Mr. Sunglasses, Xiaobai, and Ryan
 
+这个你们做得非常非常棒
+You guys did a very good job
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-647.png)
+我们要做的事情一定要是
+What we have to do must be (perfect)
 
-郭先生在12月10日大直播中明确表明:
+咱做这事儿
+When we plan this thing
 
-共产党对新中国联邦、爆料革命的恐惧, 已顷一国之力, 并采取一系列的全面行动:
+咱把它这个他们的丧事给它变成共产党有史以来最高级的
+Let’s make it their funeral the highest level in the history of the Communist Par-ty ever
 
-一. 杨洁篪出来的第一个行动是在塞浦路斯抓了我们三个战友，关押12个战友，涉及战友上千人拿塞浦路斯护照。在非洲抓了10几个战友要遣返，中间说服西班牙，要遣返我们正在关押的大概6-7个战友. 对我们部分战友进行威胁，包括对国内战友进行诋毁, 绑架和打击.
+所有制造的棺材都是要特殊材料
+All coffins will be made of special materials
 
-二. 零下四度，把郭先生老爹赶到马路上，把同事1000多个员工赶到马路上.
+花圈都是特殊材料
+All wreaths will be used in special materials
 
-三. 爆料革命当中有2-3个潜伏地很深的共产党的情报人, 要把加拿大，能投5亿，20亿，30亿的人都找出，所以大家在加拿大务必要小心.
+甚至用这个碳纤维carbon fiber都行
+even with this carbon fiber works too
 
-郭先生再次强调:严格讲大家已经没有选择了，他对我父母动手那一刻不是对我，是对整个新中国联邦动手，说明共产党真正把我们当成了和他对抗，认为能对他产生威胁的一级力量。
+要做得精美细化
+It need to be exquisitely detailed
 
-新闻链接：[https://gtv.org/video/id=61b350ad56f4921401b40cca](https://gtv.org/video/id=61b350ad56f4921401b40cca)
+要用的音乐喇叭
+We should use music laud speakers
 
-编辑/校对/发稿：小小安
+在（中共的）各国大使馆响起的时候
+When (all speakers) sound at every Chinese (the CCP) embassy in a different country
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-192.jpeg)
+要达到了这个世界专家音乐水平的
+It should reach the level of expert music in the world
 
-**更多资讯，更多关注**
+比七哥唱Hcoin to the Moon还要厉害
+and better than the result of Miles Guo singing Hcoin to The Moon
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+叫他们的家人、他们的妈听到以后都直接进天堂
+So that their (the CCP)family, their mother go straight to heaven after hearing it
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+非死不可那种的
+and to reach must die that kind of effect
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+这音乐听得他非死不可
+This music makes him have to die
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+让习近平，彭丽媛他们可以听不见
+Xi Jinping and Peng Liyuan may not hear
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+只要他们听见，他们就想死
+But they would want to die upon hearing it
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/C63FEDBD-BD98-417E-9087-749CFBBB3C01.jpeg)
+他有他母亲齐心
+His mother Qixin is in his heart
 
+他有习仲勋
+His father Xi Zhongxun is in his heart
 
+我让他母亲齐心知道
+I’ll let his mother Qixin know
 
+你儿子对待别人的父母的感觉是什么样子
+the feeling about her son treating other people’s parents
 
+你们一定要做得绝
+You must do it extremely
+
+要不就别做，要做就做到绝
+do it by all means, otherwise don’t touch it at all
+
+我让所有驻海外的中共的大使馆的官员
+I’ll let all the officials of the CCP’s embassies abroad
+
+我让他们知道
+I’ll let them know
+
+你们的父母一定不会老死
+their parents will never be end well
+
+一定会被装在这个新中国联邦给准备的棺材里边去
+They will be packed in a coffin prepared by the New China State of China
+
+Date: 12/09/2021
+原视频标题: 从此没有郭七条 加速灭共让它消失
+There is no More Guo Qitiao From Now on And Speed up The Process of Taking Down the CCP
+原视频日期：2021/12/08
+原视频链接: https://gettr.com/post/pj7l1r6d6d
+任务编号：KC331（3164）
+视频时间段 : 0:00-1:43
+
+英听校：洛杉矶盘古农场 – 郭班之樱
+翻译：洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 -天涯行
+审片：洛杉矶盘古农场 -银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

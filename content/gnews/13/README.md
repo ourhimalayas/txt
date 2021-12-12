@@ -2,122 +2,65 @@
 ---
 
 
-## 从此没有郭七条 加速灭共让它消失
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1747878/)
+## 2021年12月12日文贵先生直播摘要及音频——银河系农场
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1747937/)
 
-[https://gtv.org/video/id=61b5ffd587fa7e74c92f0f6a](https://gtv.org/video/id=61b5ffd587fa7e74c92f0f6a)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/9b27209a37cef7fe30c62af72c70640f.jpg)
+视频连接：[2021年12月12日 文贵大直播：疫苗 冬奥会 数字货币； 除夕 大游行 回答问题](https://gettr.com/streaming/pjgjwbc1bf)
 
-**郭文贵**
-**Miles Guo**
+1、上天给我们人类与动物完全不同的区别是我们可以说话和歌唱，这是我们最本能的权利，是有性繁殖世界对上天万物表达的最本质方式，所以统治者都要控制人表达音乐的能力，而我们打破了；
 
-大家看到这个了
-Everyone has seen this
+2、洗脑有三招：动静（音乐）、答案（话语权）、社交媒体；
 
-咱做这个是个草率的
-This one that we did is hasty
+3、希拉里2024竞选美国总统；
 
-谢谢Q妹、墨镜先生、小白、Ryan
-Thank you sister Q, Mr. Sunglasses, Xiaobai, and Ryan
+4、美国朋友跟七哥说：他们掌握情报党内很多人想要杀掉习近平，习若被暗杀会被塑造成独裁的英雄，这会让中共被灭延后很多年，要消灭这个体制才是根本；
 
-这个你们做得非常非常棒
-You guys did a very good job
+5、双十二西安事变，中国人最有机会走向民主，被毛泽东、张学良一帮骗子，毁掉了一切；
 
-我们要做的事情一定要是
-What we have to do must be (perfect)
+6、习近平女儿护照名字-李木子；
 
-咱做这事儿
-When we plan this thing
+7、习近平和彭丽媛的日常都是习公主说了算，军队都是习远平说了算。中国过去10年根本没有常委，只有国家安全委员会：习远平、彭丽媛、习明泽、彭蕾、习乔乔、习安安，情报主要是习安安和英国老公拉菲，习近平的家人实际控制着中国；
 
-咱把它这个他们的丧事给它变成共产党有史以来最高级的
-Let’s make it their funeral the highest level in the history of the Communist Par-ty ever
+8、俄罗斯派特使到中共通报了俄美沟通的结果：
 
-所有制造的棺材都是要特殊材料
-All coffins will be made of special materials
+1）、俄罗斯告诉中共打台湾不参与；
 
-花圈都是特殊材料
-All wreaths will be used in special materials
+2）、所有中俄之间的油气协议必须兑现，不兑现就和美国一起打中共；
 
-甚至用这个碳纤维carbon fiber都行
-even with this carbon fiber works too
+3）、俄罗斯、印度、北朝鲜、巴基斯坦形成新的战略同盟，没有中共；
 
-要做得精美细化
-It need to be exquisitely detailed
+4）、俄罗斯反对中共在阿富汗的事情；
 
-要用的音乐喇叭
-We should use music laud speakers
+9、古巴、伊朗、北朝鲜、巴基斯坦、坦桑尼亚、乌干达、尼日利亚、泰国、马来西亚、塞舌尔、尼泊尔、缅甸都会派政府代表团冬奥会；
 
-在（中共的）各国大使馆响起的时候
-When (all speakers) sound at every Chinese (the CCP) embassy in a different country
+10、中共的经济非常糟糕，涨价最严重的是粮食，俄罗斯的合同没有钱支付，冬奥运后，中共国失业断供潮涌现，2022年是中共国回到1958年；
 
-要达到了这个世界专家音乐水平的
-It should reach the level of expert music in the world
+11、世界邪恶组织继续推动疫苗：美国大选后，福奇和扎克伯格 一定会进监狱；
 
-比七哥唱Hcoin to the Moon还要厉害
-and better than the result of Miles Guo singing Hcoin to The Moon
+**注：音频正在转码和上传中，稍后音频将附加到下边，敬请期待——**
 
-叫他们的家人、他们的妈听到以后都直接进天堂
-So that their (the CCP)family, their mother go straight to heaven after hearing it
+（大直播音频）
 
-非死不可那种的
-and to reach must die that kind of effect
+编辑整理：文俊；
 
-这音乐听得他非死不可
-This music makes him have to die
+发布：黎明之前；
 
-让习近平，彭丽媛他们可以听不见
-Xi Jinping and Peng Liyuan may not hear
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
 
-只要他们听见，他们就想死
-But they would want to die upon hearing it
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-他有他母亲齐心
-His mother Qixin is in his heart
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-他有习仲勋
-His father Xi Zhongxun is in his heart
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-我让他母亲齐心知道
-I’ll let his mother Qixin know
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-你儿子对待别人的父母的感觉是什么样子
-the feeling about her son treating other people’s parents
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-你们一定要做得绝
-You must do it extremely
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-要不就别做，要做就做到绝
-do it by all means, otherwise don’t touch it at all
-
-我让所有驻海外的中共的大使馆的官员
-I’ll let all the officials of the CCP’s embassies abroad
-
-我让他们知道
-I’ll let them know
-
-你们的父母一定不会老死
-their parents will never be end well
-
-一定会被装在这个新中国联邦给准备的棺材里边去
-They will be packed in a coffin prepared by the New China State of China
-
-Date: 12/09/2021
-原视频标题: 从此没有郭七条 加速灭共让它消失
-There is no More Guo Qitiao From Now on And Speed up The Process of Taking Down the CCP
-原视频日期：2021/12/08
-原视频链接: https://gettr.com/post/pj7l1r6d6d
-任务编号：KC331（3164）
-视频时间段 : 0:00-1:43
-
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译：洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 -天涯行
-审片：洛杉矶盘古农场 -银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
