@@ -2,83 +2,140 @@
 ---
 
 
-## 金融大师：我们被引诱给自己建起监狱 (1/4)
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1746613/)
+## 关于新中国联邦为战友们提供药品的解释
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1746662/)
 
-**翻译：Jenny Ball**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip12-1.png)图片来源：childrenshealthdefense
-凯瑟琳·奥斯汀·菲茨 (Catherine Austin Fitts) 说，如果您不想为建设这座全球监狱做出贡献，您就必须采取实际行动，并改变与您开展业务的方式和对象。
+[https://gtv.org/video/id=61b5792787fa7e74c92ede04](https://gtv.org/video/id=61b5792787fa7e74c92ede04)
 
-故事一览：
+**郭文贵
+Miles Guo**
 
-- 1998 年开始，数万亿美元被中央银行从美国政府那里吸走。我们的退休基金被洗劫一空，在短短几年内将不复存在。
-- 从历史上看，美国情报机构主要代表中央银行工作。
-- 中央银行家现在正在建立一个系统，允许他们在没有代表的情况下征税。
-- 中央银行家，其中大多数是技术官僚，创造了一个分离的社会，一个平行的社会，在这个社会中，他们高于法律，并控制着一切。
-- 为了对抗他们的控制系统，我们必须首先能够认识到它是什么，并意识到它是如何让我们对我们自己不利地使用着。
+我觉得这个事情非常非常简单
+I think this is very, very simple
 
+我觉得现在没有病的人吃青蒿素，就一定要补铁这个问题
+I think healthy people who takes artemisinin, must take iron supplements
 
-菲茨花了几十年时间揭露银行业和政府内部的腐败和欺诈行为，他们的腐败和欺诈行为也是 COVID 大流行的驱动力。她在华尔街开始了她的职业生涯，拥有超过十年的成功职业生涯。
+还有一个不要吃过量
+Do not take too much
 
-1989年，她成为布什政府的住房和城市发展部助理部长。18 个月后，她辞职了，但在那里，她发现了技术如何提高社区融资的效率。
+不要吃过量
+Don’t take it over dose
 
-**“政府资金正在摧毁社区，而不是帮助他们，”**她说，但私营企业家可以利用这项新技术进行私人融资。为此，菲茨创办了一家名为汉密尔顿证券集团的投资银行和经纪商。
+吃补品就行可
+health products just fine
 
-几年后，他们被联邦住房管理局聘为首席财务顾问，这使菲茨能够访问“关于房地产、土地以及许多抵押贷款融资和房屋建筑在美国3,100 个县的运作方式的极其丰富的数据库。”
+你有病了，那就按病（情）说了
+If you’re sick
 
-菲茨继续说：
+没有一样的病是吃一种药管用的
+Not one medicine can cure all diseases
 
-“然后我进入了一个长达11年与联邦政府打官司的时期。司法部没收了所有数据库和所有软件工具，我向联邦政府提起诉讼。这就是迫使我真正深入研究控制系统的工作方式的起因。”
+怎么吃法？我觉得大家要征询医生
+How to take? I think you need to consult a doctor
 
-“当我在华尔街时，我看到了金融控制系统是如何运作的，但由于中央银行和政府操纵了这么多，这让我有机会真正了解华盛顿政府如何在秘密运作方面与华尔街有关。”
+第三个，这个药绝对不适合跟很多药放在一起吃
+Thirdly, this medicine is definitely not suitable to be taken together with many other medicines
 
-**我们的退休金被洗劫一空**
+这是肯定的
+It is for sure
 
-菲茨说，1998 年，美国政府开始抽走数万亿美元。**从本质上讲，这是“通过金融手段发动的政变”。**
+大家这个都要听医生的
+We should all listen to the doctor
 
-她当时意识到，我们的政府在多大程度上吸走了——偷走了——钱。 “**他们偷走了每个人的退休金，**”菲茨说。
+另外一个就是现在，接下来咱们战友家里有病的人
+If you’re sick
 
-“每个人都将在 20 或 30 年后退休，但他们会预先偷钱。因此，当我们到达现在这个时候，钱已经花光了，他们可以转向每个人说，‘好吧，我们真的负担不起你的退休金。’”
+请跟飞飞，还有咱们Eglise联系的时候
+Please contact Fei Fei and Eglise
 
-**在华尔街，有由中央银行管理的市场和货币政策，然后是影响财政政策和政府的选民。所以，它是一个双支柱系统。**
+大家要记住
+Remember
 
-市场是集中管理的。因此，控制货币政策的中央银行可以简单地印钞票，然后军方确保货币被占用，从而保持一切流动性。
+帮你一时，不能帮你一切
+We can help for a while, but not for a lifetime
 
-菲茨解释说：
+特别是药
+Especially for the medicine
 
-“经济等式是：你能从印钞中赚到比你在军事和系统上花费更多的钱吗？我给你举个例子。在 1980 年代，我们经历了巨大的货币扩张时期。”
+你不能说一直吃下去，全都帮那是不可能的，临时解决
+It is impossible for us to provide you with medicine all the time. It’s a temporary solution only
 
-“在这十年的最后一年，也就是 89 年，杜兰合伙企业 （Furey, Doolan & Abell LLP） 进行了激烈的争论，关于应该向交易员支付多少奖金。”
+但是最终的结果一定是你，需要者负责任
+But you are the person need to take the responsibility
 
-“我有一个很棒的合作伙伴，他做了一项研究，结果表明……如果不是让交易员坐在那个座位上，而是让一个黑猩猩，我们会赚更多的钱。这很有趣，因为你会在周末去汉普顿，你会……听到每个人都在谈论赚大钱，因为他们很聪明，个个是天才，很聪明绝顶。”
+我们没有处方权
+We do not have the right to prescribe
 
-“但这不是“因为他们的聪明”，这只是简单的货币政策浮动……很多钱来自经济战。所以，当你印刷更多美元时，你就是在把钱从美国政府转移出去。由于我们正在经历全球化的巨大变化时代，你借出了大量美元。”
+只能建议权，只能给你提供一些药的帮助
+only the right to advise,
 
-“然后，突然之间你就收回了所有的贷款。你把他们扔进了一个死胡同。你收回钱，然后就崩溃了。现在你的美元比价很高，所以，你去买便宜的东西。”
+只能给你提供一些药的帮助
+Can only provide you with some help for the medicine
 
-“金融政变之前存在的治理结构基本上是：中央银行执行货币政策，然后主权政府执行财政政策。”
+但是这个东西千万记住，副作用就是沉闷乏力
+But you must remember, the side effect is dull and weak
 
-“公民向主权政府纳税，**公民选出的代表对财政资金如何[分配]有发言权。”**
+和铁之间有冲突，你必须要补铁
+There is a conflict with iron. You have to take iron supplements
 
-“然后你有控制货币政策，并且相对独立于财政的私人中央银行家和私人利益。我们所看到的[是]……**政府拥有的信息主权和金融主权越少，它就越依赖中央银行家**。”
+还有一个就是跟其他症状有没有副作用，但现在还没有发现
+Is there any other side effect? We haven’t found it yet
 
-“因此，随着政府举债，举债并失去信息和金融主权——这部分是数字技术所发生的事情——央行行长的权力变得越来越强大。”
+这个大家要负起自己应负的责任
+Everyone need to take their own responsibilities
 
-“自 1998 财年以来，发生了我所说的金融政变。因此，在美国，多达 100 万亿美元已被转移出去。 斯基德莫尔（Skidmore）博士和我做了一项研究，**截至 2015 年，这个数字是 21 万亿美元……**
+我们不能100%保证，这是基本常识，请Eglise你说
+We can not guarantee 100%. This is basic common sense. Eglise, please
 
-“在那个确切的时间，我们有 20 万亿美元的债务。因此，消失的钱多于债务。 [所以，他们把那] 钱拿出来了。这就是金融政变。既然钱用完了，你就可以垮台了。”
+Eglise
 
-**文章第二部分，我们看一看为什么中央银行家故意让政府垮台？**
+对，因为讲到这个针剂，已经有战友开始问了
+Yes, talking about this injection, some comrades already have some questions
 
-**新闻来源**：[childrenshealthdefense][Finance Guru Explains: ‘We’ve Been Lured to Create Our Own Prison’](https://childrenshealthdefense.org/defender/catherine-austin-fitts-central-banks/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=a790ba0e-e452-45bc-aaae-d39305be9c54)
+我就想告诉大家，青蒿素它是有副作用的
+I just want to tell everyone that artemisinin has side effects
+
+因为青蒿素它是100%经过肝脏代谢
+Because artemisinin is 100% metabolized by the liver
+
+对肝脏有绝对的毒性
+It is absolutely toxic to the liver
+
+所以，前面讲的针剂青蒿琥酯针剂，不是什么人都能用的
+Therefore, the injection artesunate injection mentioned earlier is not suitable for everyone
+
+一定要在监护下使用，而且不是什么人都能用
+It must be used under supervision, and not for everyone
+
+我一定要再这么说，因为它的副作用
+I must say that again because of its side effects
+
+可能你的疾病不一定要你的命，但是它副作用能要了你的命
+It may not necessarily kill you with your disease, but it can kill you with its side effects
+
+就是提醒大家这一点
+Here is a reminder to everyone
 
 * * *
 
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
+Date:12/04/2021
+原视频标题: 关于新中国联邦为战友们提供药品的解释
+Explanation of the drugs provided for the comrades in arms
+原视频日期：2021/12/01
+原视频链接**[https://gettr.com/post/pinbbgd63d](https://gettr.com/post/pinbbgd63d)**
+任务编号：KC323（3099）
+视频时间段 : 0:00-01:49
+中听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka & Mike L
+翻译终校：洛杉矶盘古农场 – Freeearth
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-2.jpeg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

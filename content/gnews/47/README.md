@@ -2,47 +2,33 @@
 ---
 
 
-## 哥伦比亚最大的银行提供比特币交易
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1745606/)
+## 中共将成为世界黑暗势力的替罪羊
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1745611/)
 
-**编者按：**
+撰稿：纽约香草山文艺部 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-6.png)
+在12月10日的大直播中，郭文贵先生指出，病毒、疫苗与经济相互关联，当全球经济崩塌，病毒溯源、疫苗追责开始后，受害者会将怒火指向中共。最后中共将成为黑暗势力的替罪羊，并因此被消灭。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-603.png)
+郭先生感慨道，人类历史向来如此：当一个大灾难到来时，人们总会找出一两个替罪羊，掩盖所有人的罪过，历史上的独裁者诸如萨达姆、卡扎菲、齐奥塞斯库等人的下场皆如此，而这一次，当经济崩溃，民怨沸腾的时候，习近平将成为首个替罪羊。
 
-在全球经济即将崩塌之际，加密数字货币已成为世界金融的聚焦热点与发展方向。而作为比特币并没有黄金锚锭，如来时有影，将去而无声，它始终带有原罪，没有中心负责的交易何以保持稳定地兑现法币?比特币虽然成为一些南美洲小国大银行的交易许可，然而作为这些地区的毒品交易，它不过成为一个洗钱的工具而已，它 将如一个匆匆过客，当经济大萧条崩盘时，比特币必将坠落而消失。
+对于是否会有纽伦堡大审判，郭先生透露，现实未必尽如人意。美国中期选举结束后，十大灭共举措将连环出台。中共将背负所有的罪恶，被全世界追责直至灭亡。但黑暗势力仍会继续操纵政治，CDC、大药企也会照旧经营。
 
-据《**Zerohedge**》记者：**TYLER DURDEN，2021**年**12**月**7**日报道：
+新闻链接：[2021年12月10日 文贵大直播](https://gtv.org/video/id=61b350ad56f4921401b40cca)
 
-比特币杂志投稿
-加密货币交易所**Gemini**周一在一份声明中表示，该公司将很快在哥伦比亚为该国最大银行**Bancolombia**的客户提供无阻力的比特币交易。然而，目前尚不清楚用户是否能够提取资金** —— **这是比特币实现金融主权的重要特征。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-122-e1639288136280.jpg)图片源自原文
-该合作伙伴关系是政府资助的试点计划的一部分。它将于12月14日推出，为Bancolombia的首批客户提供无缝的进出通道，以通过交易所交易比特币。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-4.png)
 
-Gemini战略和企业发展负责人Cynthia del Pozo García 在声明中表示：“此次合作也是Gemini在拉丁美洲战略扩张的重要一步。”
+总编/编辑：文真
 
-“我们期待与哥伦比亚加密生态系统密切合作，并支持加密产品，使哥伦比亚人能够控制他们的财务生活。”
+校正/发稿：浪迹天涯
 
-**哥伦比亚政府通过该国的金融监管机构Superintendencia Financiera de Colombia (SFC) 启动了一项为期一年的试点计划，以更直接的方式为公民提供比特币和加密货币服务。**
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-6.png)
 
-“加密本质上是无国界的，我们致力于扩大对全球个人的加密访问，” del Pozo García 补充道。
-
-Bancolombia银行是Bancolombia集团的一部分，该集团还拥有巴拿马和中美洲最大的银行Banistmo；BAM，来自危地马拉；以及为萨尔瓦多客户提供服务的 Banco Agricola。根据其数据报告，截至2020年12月31日，该集团拥有1780万客户。
-
-今年1月，证监会宣布已从14家申请人中选择了9家加密货币交易所参与试点。除了Gemini之外，该名单还包括币安 (Binance) 和墨西哥公司Bitso。币安 (Binance)将与哥伦比亚第三大银行Davivienda和数字支付应用程序Powwi合作，而Bitso将与 Banco de Bogotá合作。
-
-文章来源：[https://www.zerohedge.com/crypto/colombias-biggest-bank-offer-bitcoin-trading](https://www.zerohedge.com/crypto/colombias-biggest-bank-offer-bitcoin-trading)
-
-翻译：洛杉矶盘古农场 – Raul
-
-校对：洛杉矶盘古农场 – Mike Li
-
-评论：洛杉矶盘古农场 – 滴水穿石
-
-编辑：洛杉矶盘古农场– 滴水穿石
-
-
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

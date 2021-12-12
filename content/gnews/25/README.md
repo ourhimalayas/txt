@@ -2,108 +2,46 @@
 ---
 
 
-## 单伟建一家是典型的中国共产党对外情报机构的特务
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1746389/)
+## 法国驻华使馆微博发文谴责中共侵犯人权
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1746466/)
 
-[https://gtv.org/video/id=61b4d09587fa7e74c92ea283](https://gtv.org/video/id=61b4d09587fa7e74c92ea283)
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-128.jpg)
+##### [图片来源](https://www.google.com.hk/search?q=%E6%B3%95%E5%9B%BD%E9%A9%BB%E5%8D%8E%E4%BD%BF%E9%A6%86&amp;newwindow=1&amp;rlz=1C1YKST_enUS900US901&amp;source=lnms&amp;tbm=isch&amp;sa=X&amp;ved=2ahUKEwj_jPiM-930AhWesFYBHdYaAzIQ_AUoAnoECAIQBA&amp;biw=1366&amp;bih=625&amp;dpr=1#imgrc=eiuDB7JXpSjvUM)
 
-**郭文贵
-Miles Guo**
+##### 法国驻华大使馆官方微博在12月10日国际人权日，代表欧盟发文谴责中共活摘器官、在新疆种族灭绝罪行和在中共大陆以及在香港的人权侵犯等暴行。
 
-外交部的王子、王孙、私生子女
-sons, grandsons, and illegitimate children of the people in the Ministry of Foreign Affairs
+全文如下：
 
-你像单伟建就是外交部的老人, 他妈他爸那都是跟杨洁篪是超级好
-like Shan Weijian, he has deep roots in the Ministry of Foreign Affairs, his mother and his father have super good friendship with Yang Jieshi
+欧洲联盟驻华代表团关于国际人权日的声明
 
-单伟建是共产党, 外交部就是中国对外的情报机构，这是一点都不用怀疑的吧
-Shan Weijian is a the Communist Party member, and the Ministry of Foreign Affairs is China’s foreign intelligence agency, there is no doubt about it at all
+北京, 10/12/2021
 
-单伟建是在当时下放后回来，是经中央和当时林强、林弟这一波人回来的, 是周恩来亲自(安排)
-Shan Weijian came back after being exiled at that time，he came back through the Central Committee that Zhou Enlai arranged himself with Lin Qiang and Lin Di at same time
+欧洲联盟以人权的普世性、相互依存性和不可剥夺性为指导，人权是所有人类、所有文化无论何时何地都固有的权利。正如《世界人权宣言》所载的，思想、良心、宗教的自由权，言论自由、和平集会自由和结社自由权，都是不可剥夺和普世的权利。无论在世界何处或者什么文化中，这些权利是不可分割的。
 
-那个林强、林弟一个是安全部，一个是公安部一局, 林弟跟他很熟
-Lin Qiang and Lin Di, one belong to the Ministry of Security and the other one belong to the First Bureau of the Ministry of Public Security and Lin Di knew Shan Weijian very well
+近几年，中共国在减贫、改善医疗、教育等其他为其公民的社会改善方面做出了显著努力。不过，与此同时，公民和政治权利并未受到保障，而且在某些案例中这些权利受到有意的、系统性侵犯。
 
-单伟建这一家子是典型的特务, 所谓太平联盟公司，目的就是干你七哥来了
-Shan Weijian’s family is a typical spy family, the so-called PAG whose purpose is go after me Miles
+根据估计，在中共国的死刑判决和处决数量远远超过所有其他国家的总和，并且也适用于非暴力犯罪案件。欧盟呼吁中共国在适用和判处死刑方面提高透明度，并进一步减少刑事犯罪的死刑罪名。欧盟重申死刑是一种无效的、不必要的和不可撤销的惩罚，并敦促中共国暂停执行死刑和最终废除这种不人道的做法。欧盟还注意到有告称在中共国持续出现摘取器官行为，而往往发生在属于种族、语言或宗教少数群体的被拘留者和其他处于弱势地位的人身上。强制性摘取器官是犯罪、不人道和不道德的做法，必须予以制止。
 
-就像在盘古，这些警察在现场的时候告诉他说
-Just like these policemen threatened us at the scene in Pangu, said
+欧盟继续对新疆维吾尔自治区人权状况表示严重关切，尤其对大规模的任意拘留、广泛监控和宗教或信仰自由的系统性限制，以及对基于证据的报告所指出有针对维吾尔族和其他少数民族的强迫劳动、强制计划生育以及性暴力和基于性别的暴力。欧盟再次呼吁中共国履行其国家法律和国际法规定的义务，尊重和保护属于中共国所有民族和宗教群体人的权利，包括在新疆、西藏和内蒙古。欧盟鼓励联合国人权委员会高级专员处理新疆人权情况，包括对情况进行独立、客观、公正和透明的评估。欧盟还继续呼吁独立和国际专家、外国记者和外交官能够有意的、不受限制的和不受监督的访问新疆、西藏和中共国其他地方。
 
-我会让你们郭文贵在纽约失去他的房子，我会让郭文贵在世界失去他的房子
-that I will let yours Guo Wengui (Miles) lose his house in New York, I will let Guo Wengui (Miles) lose his house in the world
+欧盟对人权捍卫者、律师和知识分子遭受任意拘留、不公平的审判和不公正的判决，表示严重关切。特别是：常玮平、陈建芳、陈云飞、程渊、丁家喜、高智晟、郭泉、黄琦、李翘楚、李昱函、刘飞跃、秦永敏、覃永沛、塔西甫拉提・特依拜（Tiyip Tashpolat）、萨哈罗夫奖获得者伊力哈木·土赫提（Ilham Tohti）、王怡牧师、王藏、吴淦、吴葛健雄、许志永、余文生以及欧盟公民桂敏海等许多其他被不公正地定罪、被任意拘留或被强迫失踪的人。我们要求立即、无条件释放上述人员以及其他良心犯。
 
-我会让郭文贵所有的家人睡在马路上，他毫不忌讳警察、法官
-I will let all Guo Wengui (Miles)’s family sleep on the street, the policemen and judges are not shy away about this attacks
+欧盟敦促中共国确保充分尊重法治、确保正当程序以及公正审判保障，并彻底调查任意拘留、酷刑、不人道或有辱人格待遇或处罚以及对人权捍卫者及其家属的骚扰等被报告的案例。被拘留者理应享有接触自己选择的律师、获得医疗援助和联系家属的权利。中共国应该停止在指定地点进行监视居住（RSDL）的做法，该做法已被联合国特别程序谴责。中共国也应该停止以获取强迫和公开的口供为目的，对被拘留者使用酷刑、不人道或有辱人格的待遇或处罚。
 
-你看到单伟建说到西方干什么, 美联储、美财政部、美国体育界
-You see what Shan Weijian is doing in the West, he hooked up with the U.S. Federal Reserve, the U.S. Treasury, the U.S. sports world
+在中共国，通过对记者和媒体工作者进行审查、恐吓和监视的方式，言论自由和获取信息的自由越来越严重地被压制。中共国记者或公民因勇敢、真实地报道新冠肺炎疫情初期而失踪、被拘留或被骚扰的案例尤其值得关注。欧盟希望张展、黄雪琴（Sophia）、方斌等其他人士立即被释放。因为他们在本职工作中没有 “讲好中共国故事”而如实进行报道，驻华外国记者和媒体工作者继续面临骚扰、恐吓、任意拘留、签证限制、监视等问题。欧洲联盟及其成员国强调言论自由和媒体自由对善政的关键作用。
 
-你看他跟谁，所有的美国体育界NBA被谁买了，蔡崇信
-Look at who he is with, Joseph C. Tsai who bought NBA team
+欧盟坚信，性别平等、妇女权利和LGBTI人士的权利应该在全球范围内得到充分尊重和保护。在中共国，虽然在性别平等方面取得了进展，但是基于性别的暴力仍然广泛存在。#MeToo行动被镇压，女性活动人士成为侵犯人权和虐待行为的受害者。欧盟呼吁中共国坚守其消除性暴力和基于性别暴力的承诺。近期，网球选手彭帅的案例引起了国际社会（包括欧盟成员国在内）对中共国妇女权利的关注。欧盟继续敦促中共国当局对她的性侵犯指控进行全面、公正和透明的调查。
 
-蔡崇信是中共在美国最大的特务，蔡崇信又买了洋基
-Joseph C. Tsai is the largest CCP agent in the United States, Joseph C. Tsai also bought NBA Net
+在香港特别行政区，《国家安全法》破坏中共国曾承诺至少尊重到2047年的基本权利和自由。
 
-蔡崇信又代表马云花了几十亿美元买了曼哈顿无数个房子
-Joseph C. Tsai also spent billions of dollars on behalf of Jack Ma to buy countless apartments in Manhattan
+人权、民主和法治是我们社会和共同认同的基石。虽然双方“存异”，欧盟及其成员国随时准备在中欧人权对话的框架下以及多边论坛上与中共国接触，以促进按照国际人权义务尊重法治和人权。
 
-蔡崇信 马云，然后单伟建、Bruno Wu
-Joseph C. Tsai, Ma Yun, then Shan Weijian, Bruno Wu
+消息来源:
 
-单伟建借给吴征这些东西，这5亿美元
-Shan Weijian lent Bruno Wu 500 million US dollars
+##### [欧洲联盟驻华代表团关于国际人权日的声明](https://weibo.com/1987630007/L5n5ny5iF)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
 
-海航最大投资者，腾讯音乐100%
-He’s HNA’s largest investor, Tencent Music 100%
-
-然后告美国七哥官司打最多的钱的超过6000万美元到8000万美元的律师费的，就一个单伟建
-Then he sued me in the United States for the most money in lawsuits of over US$60 million to US$80 million in attorney fees, just only Shan Weijian himself
-
-这不符合任何逻辑，你看看单伟建跟谁呢
-This doesn’t make any sense, look at who Shan Weijian is with
-
-平安的马明哲，特别是康典，王岐山的大马仔
-PingAn’s Ma Mingzhe, especially Kang Dian, Wang Qishan’s big helper
-
-绝对是中国整个保险业的老大，王岐山的大马仔
-They are definitely the boss of China’s entire insurance industry, Wang Qishan’s big helper
-
-然后周亮，大家都记住了吧，看着没有
-Then Zhou Liang, everyone remember it, don’t you see this?
-
-马明哲，然后腾讯，是不是，马化腾，全部是他的人，包括SOHO的张欣
-Ma Mingzhe, then Tencent’s Ma Huateng, right? all his people, including SOHO’s Zhang Xin
-
-张欣跟单伟建那是男女关系，那是胡来的关系
-Zhang Xin and Shan Weijian do have special relationship beyond their own Martial relationship, it’s a unusual relationship
-
-潘石亿绝对是一看张欣和单伟建见面，自己要躲一边去，看门去了
-When Pan Shiyi saw Zhang Xin and Shan Weijian meet, he went to hide away and watched the surroundings
-
-就跟那个张高丽老婆一样
-Just like Zhang Gaoli’s wife
-
-* * *
-
-Date:12/10/2021
-原视频标题: 单伟建一家是典型的中国共产党对外情报机构的特务
-Shan Weijian’s family is a typical special agent of the Chinese Communist Party’s foreign intelligence agency
-原视频日期：2021/12/08
-原视频链接[https://gettr.com/post/pja934f93e](https://gettr.com/post/pja934f93e)
-任务编号：KC329（3174）
-视频时间段 : 0:00-2:02
-中听校： 洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

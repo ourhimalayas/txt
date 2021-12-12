@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/12/2021 1:10 PM (UTC)`
+
+2021年12月12日 文贵大直播：疫苗 冬奥会 数字货币；  除夕 大游行 回答问题
+![img](https://media.gettr.com/group22/origin/2021/12/12/12/a6ffe464-7d97-2aa3-9abb-c0f0e7606fc2/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 12/12/2021 12:28 AM (UTC)`
 
 12/10/2021 Miles Guo: Most of the investments in the CCP’s financial sector and real estate are made by foreign financial institutions, and this alone violates the CCP’s so-called policies and regulations regarding the prohibition of foreign investments in certain domains and the foreign currency exchange settlement. The Western funds represented by Weijian Shan and PAG are simply crooks and “lawful thieves” who swindle money, and the consequences of the collapse of these funds will be extremely serious!<br/><br/>12/10/2021文贵直播：中共国金融房地产的大部分钱来自国外金融机构，这本身就触碰了所谓的外商禁入产业和外汇管制政策和法律，以单伟建、太平联盟为代表的西方基金都是骗子、合法的小偷，爆雷的后果是要命的！<br/>
@@ -143,13 +150,6 @@ Hcoin To The Moon 官方MV12月10号已在以下平台全球上线，感谢大�
 
 Hcoin To The Moon MV 上线仅仅3小时， 澳洲🇦🇺，香港 🇭🇰的iTunes MV 榜已经第一名🥇了，这就是新中国联邦战友们的力量！太厉害了！衷心地感谢澳洲，香港的兄弟姐妹们，全球的兄弟姐妹们继续打榜！🙏🙏🙏🙏🙏🙏🙏👍👍👍👍👍👍👍
 ![img](https://media.gettr.com/group39/getter/2021/12/09/17/0ce2338d-04a9-64dc-1f1a-eaee86416f4c/69faa0feba44b56a851aa30e11fa0c5a.jpg)
-
----
-
-`@miles 12/9/2021 3:55 PM (UTC)`
-
-点按即可编辑直播详情
-![img](https://media.gettr.com/group49/getter/2021/12/09/15/37a98eb8-3c08-eb09-8689-9de77f98ce0b/59eedecd0ea5ddb4343c216e14fb29c9.jpg)
 
 ---
 
