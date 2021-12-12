@@ -2,166 +2,45 @@
 ---
 
 
-## 去中心化的数字货币可能一夜之间消失
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1746691/)
+## 军备超限战？ 中共不计成本用NASA“废弃设计”开发高超音速核导弹
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1746703/)
 
-[https://gtv.org/video/id=61b579b287fa7e74c92ede49](https://gtv.org/video/id=61b579b287fa7e74c92ede49)
+撰稿/配图：东京樱花团/ Ob
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-148.png)
+看中国2021年12月11日讯，中共当局正在开发一种时速6,000英里的高超音速核导弹发动机，然而，据《纽约邮报》报导，该发动机是基于美国宇航局（NASA）放弃的设计，不是北京自主研发的。
 
-在日本国已经出现了一个新的，叫岸田派
-A new (political) faction has appeared in Japan, called the Kishida faction
+一个中国的研究团队在二十多年前根据美国航天局（NASA）科学家的激进设计建造并测试了一个原型。
 
-一定看看岸田的家族是干什么的
-Must see what Kishida’s family does
+据《南华早报》报导，该设计思路是由华裔美国人唐明汉（Ming Han Tang）提出的，他是1990年代后期美国宇航局高超音速计划的总工程师。
 
-岸田的家族是搞金融的, 在日本
-Kishida’s family is engaged in finance in Japan
+然而，波音Manta X-47C，一项测试唐的设计的计划，在2000年代初被美国政府放弃了，因为它被认为成本太高。
 
-日本的政界是不可能有腐败的
-There can’t be corruption in Japanese politics field
+中共当局不计成本开展军备竞赛
 
-就是你搞政治的搞政治
-It’s that people who do politics do politics
+然而，对当今迅速军事化的中共当局来说，金钱不是问题——特别是如果大洒金钱能够使中共政权在军备竞赛中保持领先的话。
 
-搞经济的搞经济
-People who are in economics run economy
+事态发展的消息是在中共最近向太空发射两枚导弹之后传播开的。去年（2020年）10月，北京当局在全球范围内发射了一枚高超音速导弹，美国对中共所展现的军事实力表现感到震惊。
 
-你搞工厂的搞工厂
-The people who engage in the factories run the factories
+但消息人士称，这次令人不安的试验令美国官员感到惊讶，它表明中共政府在其高超音速武器的发展方面取得了惊人的进展。
 
-这就是为什么日本几百年来你干啥的干啥
-That’s why people dedicate in their own industries in Japan for hundreds of years
+高超音速导弹
 
-你别跨界
-People don’t cross the border
+高超音速导弹的飞行速度是音速的5倍，射程可达1500英里。俄罗斯近年来利用该技术制造了尖端导弹。
 
-但是岸田和安倍这两人是不一样的
-But both Kishida and Abe are different,
+在可怕的军备竞赛中，中共当局一直在争先恐后地制造强大的武器。
 
-这两人家里面是很殷富的那种
-The families of these two people are very wealthy
+中国运载火箭技术研究院已经公开宣布了一些火箭发射，但据报导，中共当局在8月份的高超音速导弹试验却是保密的。
 
-人家一定不会腐败
-They will not be corrupted
+中共自卑又自大，明知技不如人，却又要千方百计地想出一个“美国人不敢想，也不敢干而中共敢想又敢干”的不计成本，不计代价的“锦囊妙计”——“超限战”，并逐渐运用于战略规划的方方面面。寄希望用“田忌赛马”的战略弯道超车，从而击垮美国，控制全世界，主导人类命运共同体。中共不计成本不计代价的疯狂战略部署将中国和世界带入一条不归路，拖垮了经济，拖垮了世界。超限战是不可理喻的近乎疯狂的所谓“伟大英豪”的杰作，是灾难式的仅为满足某部分人“自我标榜”的疯狂幻想，用来证明其伟大，并且他越想越伟大，越想越老子天下第一。
 
-腐败一定会搞出来，人家就搞这个
-Corruption will surely be discovered
+消息来源：
 
-这家伙有这个经验
-This guy has experience,
+[抄的 北京用NASA弃设开发高超音速核导弹(图)](https://m.secretchina.com/news/gb/2021/12/11/992045.html)
 
-而且这个人呢，英文还不错
-what’s more, he is pretty good in English
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
 
-有国际视野
-and has an international perspective
-
-他会对数字货币非常严的严管
-He will strictly manage the digital currency
-
-但最后， 他一定是跟着美国走的
-But in the end, he must follow the USA
-
-那么监管数字银行的结果是什么呢？
-So what are the results of regulating digital banks?
-
-我先告诉大家
-Let me tell you first
-
-美国和日本，特别像欧洲
-The USA and Japan, especially like Europe
-
-一定跟着美国走
-must follow the U.S.
-
-数字货币的去中心化货币
-Decentralized digital currency
-
-可以告诉大家，我今天说了啊
-I can tell everyone, I said it today
-
-战友们， 你听不听
-My fellow comrades, you listen or not
-
-那是你的事儿， 我告诉你了
-That’s your business, I told you
-
-我也愿意为此负责任
-I am also willing to take responsibility for this
-
-我认为接下来的世界去中心化货币，特别是比特币
-I think the next decentralized currencies in the world, especially like Bitcoin
-
-可能一夜之间被消失
-may disappear overnight.
-
-也可能是给你一段时间
-It may also give you a little time
-
-受到严格的监管，逐渐消失
-and be subject to strict supervision and gradually disappear
-
-去中心化的数字币 基本在世界上流行的可能性没有
-There is no possibility that decentralized digital currency will be popular in the world
-
-你像现在比特币的什么提款机呀
-Like the current Bitcoin cash machine
-
-比特币的那个金融产品呀
-and those financial products of Bitcoin
-
-比特币抵押啊
-Bitcoin mortgage
-
-比特币数字交换啊
-Bitcoin digital exchange
-
-所有这些东西 不可能这些国家政府不管你
-All these things, it’s impossible for these governments to ignore you
-
-你现在就是在地球上呆着, 你还有国家
-You are staying on the earth now, and you still have your country
-
-你不可能被接受
-You can’t be accepted
-
-那么大家记住
-Then everyone has to remember
-
-美国现在和全世界开展的数字货币监管的结局
-The outcome of digital currency regulation in the United States and the world
-
-就是去中心化货币给你整没了
-is just that the decentralized currency is gone
-
-剩下的就是咱这个中心化货币，有人负责的货币
-The rest is our centralized currency, the currency that someone is responsible for
-
-会在各国畅通
-will be unimpeded in various countries
-
-那日本就关键了
-Then Japan is the key
-
-* * *
-
-Date: 12/05/2021
-原视频标题:
-去中心化的数字货币可能一夜之间消失
-Decentralized Digital Currency May Disappear Overnight
-原视频日期：2021/12/04
-原视频链接 **[https://gettr.com/post/pip7xz8cb4](https://gettr.com/post/pip7xz8cb4)**
-任务编号：KC324(3108)
-视频时间段 : 00:00-02:05
-听校：洛杉矶盘古农场 – Raul
-翻译：洛杉矶盘古农场 – Raul
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 ：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
