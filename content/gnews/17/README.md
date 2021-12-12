@@ -2,36 +2,140 @@
 ---
 
 
-## 中国农村养猪业现状（一）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1746632/)
+## 关于新中国联邦为战友们提供药品的解释
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1746662/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/jonathan-kemper-yCCan7K_lYg-unsplash-P1-1024x768-1.jpg)图片来源：农传媒
-**作者：**Mttfly
-**编辑：**翼族
+[https://gtv.org/video/id=61b5792787fa7e74c92ede04](https://gtv.org/video/id=61b5792787fa7e74c92ede04)
 
-2018年非洲猪瘟横扫中国时，我所知道的附近几个县，猪都全部死光。当然，肯定会有一些地方没有非洲猪瘟，但肯定也只是少数。
+**郭文贵
+Miles Guo**
 
-2018年初，我们家死的就只剩最后一头猪，到了夏天，不光我家的猪都死了，我们县的猪也基本上死光了。县政府在马路旁搞了一个收死猪的点，俗称“生猪无害化处理点”。政府开出价码，死猪一头补贴30元，但这个需要已认证的兽医开勘察证明。明面上，政府说要弄到焚烧厂之类的，到最后大都用挖掘机就地掩埋了。非洲猪瘟的病毒，如果不将猪尸体有效处理还会再次爆发的，可是政府只顾眼前了。当时猪尸体的腐烂味，常人一开始真受不了，我去交死猪时就如走进纳粹毒气室一样令人窒息。
+我觉得这个事情非常非常简单
+I think this is very, very simple
 
-和中共病毒惊人的相似，非洲猪瘟一直阴魂不散。新华社去年5月12日还扬言取得了阶段性进展，作为一个亲身经历者，看到这些党媒的表演，我真是哭笑不得。以我们县为例，实际情况是，非洲猪瘟就像砸地鼠一样，时不时冒个头。只要非洲猪瘟一来，基本上就全军覆没。
+我觉得现在没有病的人吃青蒿素，就一定要补铁这个问题
+I think healthy people who takes artemisinin, must take iron supplements
 
-今年八九月份，我所知的附近几个县区的猪又死光了。这次非洲猪瘟不像前几次，来势并不是那么凶猛，而是像温水煮青蛙。之前每次都是一两个月内所有的猪被一扫光，这一次则是在五六个月内猪瘟一家一家的光顾。最后的结果一样，所有的猪都死光。和中共病毒一样，非洲猪瘟病毒也在一波又一波的变异。
+还有一个不要吃过量
+Do not take too much
 
-中共农业部部长韩长赋去年说，“各地报告疫情数量、病死生猪无害化处理数量、农业农村部受理的疫情举报数量等也呈下降趋势，没有发生区域性重大动物疫情。”我不禁想问韩大部长，中国哪个地方政府敢报告非洲猪瘟疫情？谁上报谁就是防疫不利。
+不要吃过量
+Don’t take it over dose
 
-新华社最近一篇关于非洲猪瘟的报道是在5月17日，报道称菲律宾“因非洲猪瘟疫情在该国持续蔓延，菲律宾进入为期一年的全国灾难状态”。中国自己的猪瘟如此严重不报道，却去报道菲律宾疫情，这就是中共官媒的一贯嘴脸。根据新华社的报道，中国境内貌似只发生了两三起猪瘟，而我们这的非瘟如此严重，却根本没人报道，再一次反映出中共“以骗治国，以假治国”的低劣手段。
+吃补品就行可
+health products just fine
 
-另外，新华社报道的云南富宁的非洲猪瘟时称：“疫情发生后，当地迅速启动应急预案，对所有仔猪进行扑杀和无害化处理，对相关场所、沿途道路及运输车辆等进行彻底清洗消毒。”但是却绝口不提扑杀了多少头猪，在多大范围内扑杀的。而可悲的是，中共官媒敢这样报，有人就敢这么信。
+你有病了，那就按病（情）说了
+If you’re sick
 
-之前听一个某某教授的课，她说现在国家治理的好，生态环境保护做到位，养殖环保成本上涨，所以现在吃贵猪肉不是坏事。作为一个多次亲身经历非洲猪瘟的我，无话可说，只想请这位教授到我们这来体验一下国家的“好”治理……
+没有一样的病是吃一种药管用的
+Not one medicine can cure all diseases
 
-*发布：翼族*
+怎么吃法？我觉得大家要征询医生
+How to take? I think you need to consult a doctor
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+第三个，这个药绝对不适合跟很多药放在一起吃
+Thirdly, this medicine is definitely not suitable to be taken together with many other medicines
+
+这是肯定的
+It is for sure
+
+大家这个都要听医生的
+We should all listen to the doctor
+
+另外一个就是现在，接下来咱们战友家里有病的人
+If you’re sick
+
+请跟飞飞，还有咱们Eglise联系的时候
+Please contact Fei Fei and Eglise
+
+大家要记住
+Remember
+
+帮你一时，不能帮你一切
+We can help for a while, but not for a lifetime
+
+特别是药
+Especially for the medicine
+
+你不能说一直吃下去，全都帮那是不可能的，临时解决
+It is impossible for us to provide you with medicine all the time. It’s a temporary solution only
+
+但是最终的结果一定是你，需要者负责任
+But you are the person need to take the responsibility
+
+我们没有处方权
+We do not have the right to prescribe
+
+只能建议权，只能给你提供一些药的帮助
+only the right to advise,
+
+只能给你提供一些药的帮助
+Can only provide you with some help for the medicine
+
+但是这个东西千万记住，副作用就是沉闷乏力
+But you must remember, the side effect is dull and weak
+
+和铁之间有冲突，你必须要补铁
+There is a conflict with iron. You have to take iron supplements
+
+还有一个就是跟其他症状有没有副作用，但现在还没有发现
+Is there any other side effect? We haven’t found it yet
+
+这个大家要负起自己应负的责任
+Everyone need to take their own responsibilities
+
+我们不能100%保证，这是基本常识，请Eglise你说
+We can not guarantee 100%. This is basic common sense. Eglise, please
+
+Eglise
+
+对，因为讲到这个针剂，已经有战友开始问了
+Yes, talking about this injection, some comrades already have some questions
+
+我就想告诉大家，青蒿素它是有副作用的
+I just want to tell everyone that artemisinin has side effects
+
+因为青蒿素它是100%经过肝脏代谢
+Because artemisinin is 100% metabolized by the liver
+
+对肝脏有绝对的毒性
+It is absolutely toxic to the liver
+
+所以，前面讲的针剂青蒿琥酯针剂，不是什么人都能用的
+Therefore, the injection artesunate injection mentioned earlier is not suitable for everyone
+
+一定要在监护下使用，而且不是什么人都能用
+It must be used under supervision, and not for everyone
+
+我一定要再这么说，因为它的副作用
+I must say that again because of its side effects
+
+可能你的疾病不一定要你的命，但是它副作用能要了你的命
+It may not necessarily kill you with your disease, but it can kill you with its side effects
+
+就是提醒大家这一点
+Here is a reminder to everyone
+
+* * *
+
+Date:12/04/2021
+原视频标题: 关于新中国联邦为战友们提供药品的解释
+Explanation of the drugs provided for the comrades in arms
+原视频日期：2021/12/01
+原视频链接**[https://gettr.com/post/pinbbgd63d](https://gettr.com/post/pinbbgd63d)**
+任务编号：KC323（3099）
+视频时间段 : 0:00-01:49
+中听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka & Mike L
+翻译终校：洛杉矶盘古农场 – Freeearth
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

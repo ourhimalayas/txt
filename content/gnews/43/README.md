@@ -2,22 +2,35 @@
 ---
 
 
-## 国际奥委会委员警告参加北京冬奥会的运动员不要乱说话
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1746070/)
+## 美财政部设立基金奖励对外国领导人贪污腐败举报者
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1746069/)
 
-#### 撰稿：彩虹
+作者：纽约香草山文艺部 宁文静
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-3-5.jpg)图片来源：以色列时报
-12月11日，根据《新闻极限》的报道内容，国际奥委会成员理查德·庞德（Richard Pound）告诉《时代周刊》，只要他们遵守中共国的法律，参加2022年北京冬奥会的运动员是可以自由表达自己意见的。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-这位奥委会委员的言论如此的荒唐和前后矛盾，以至于他自己都不得不进一步解释。他说：“这种情况下并不意味着你可以完全的为所欲为。所以，你知道，要小心你做的事情，因为你可能会被关注。”庞德继而表达了对运动员威胁的话语，他说，在过去，东道国“基本上”保护了运动员的自由。
+12月9日，在历时两天的全球民主峰会上，美国务卿布林肯和财长耶伦宣布联手打击贪污腐败，尤其针对外国领导人藏匿在美国的非法资产，将设立专项基金，重奖有效举报者。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-12-at-8.36.58-PM.png)
+为此，美国务院将设立全球反腐败协调员的角色，负责美国外交及对外援助方面的反腐能力的整合，实施白宫的首个反腐败战略；美财政部将成立专项“腐败资产追回奖励基金”，以鼓励提供外国领导人藏匿在美国境内所有非法资产线索的举报行动。耶伦说，财政部正在努力打击来自海外的洗钱和非法金融活动，包括用现金一次性支付巨额房产的交易行为。
 
-这位奥委会的资深会员，完全无视中共国是一个专制独裁的国家，罔顾中共“反人类罪”事实，将中共国的法律视为运动员应该遵守的红线，是何等的无知、无耻和用心险恶。
+有时评人士称，美国政府反腐举措的推出，与爆料革命即将开展的对盗国贼家族的声讨举报，堪称珠联璧合。由此产生的蝴蝶效应，会在不久的将来全球上演。
 
-**新闻来源**
+参考链接：[Treasury’s Yellen vows big push against corruption, new ‘kleptocracy fund’](https://www.reuters.com/business/finance/treasurys-yellen-vows-big-push-against-corruption-new-kleptocracy-fund-2021-12-09/%20https://gettr.com/post/pj7o1le4fc%20https://gettr.com/post/pjd0r087bb)
 
-[Olympic Athletes Free to Express Opinions in Beijing, IOC Says](https://www.newsmax.com/newsfront/olympics-2022-winter-china/2021/12/11/id/1048264/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
+
+总编：正义的小新
+编辑：Lakeman文仁
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 

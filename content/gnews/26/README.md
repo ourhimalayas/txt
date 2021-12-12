@@ -2,30 +2,38 @@
 ---
 
 
-## 西班牙政府将决定是否与欧洲伙伴一起对中共国冬奥会进行外交抵制
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1746556/)
+## FDA现在希望在75年内发布辉瑞疫苗文件
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1746576/)
 
-**翻译：七龙珠**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip11-1.png)（图为：2021年12月10日，在马德里领土政策部长兼政府发言人伊莎贝尔-罗德里格斯在部长理事会会议后的新闻发布会上与记者交谈情景。欧洲记者报）
-政府发言人伊莎贝尔-罗德里格斯（Isabel Rodríguez）上周五表示，西班牙决定将与“欧洲伙伴”一起，加入2022年北京冬奥会的外交抵制的可能性立场。
+编译：Jenny Ball
 
-该抵制运动由美国牵头，即不派政府官员代表参加明年2月在中共国北京举行的冬奥会，但不影响国家的运动员参与，此举激怒了中共国。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-2-6.jpg)图片来源：epochtimes.com（Sarah Silbiger/Getty Images）
 
-“关于政治关系问题，我们将与我们的欧洲伙伴一起采取共同的立场”，这位女发言人在部长理事会之后的新闻发布会上说。她还保证，西班牙将去实现最大数量的奖牌，国家运动员们“将一如既往地让旗帜高高飘扬”。
+“……这是反乌托邦的，要求政府给辉瑞数十亿美元，强制美国人使用它的产品，禁止美国人对其提起诉讼，还拒绝让美国人看到其执照背后的数据。”
 
-澳大利亚、英国和加拿大已经加入了抵制行动，虽然联合国秘书长安东尼奥-古特雷斯(Antonio Guterres)将出席奥运会，但他们也不会向中共国派出外交代表，据一位发言人周四表示。
+美国FDA现在表示，它需要 75 年的时间——比该机构最初要求的 55 年还长时间——才能完全发布与该机构批准辉瑞 Comirnaty COVID-19 疫苗相关的所有文件的编辑版本。
 
-尽管法国政府排除了加入抵制行动的可能性，因为他认为“体育必须是一个尽可能不受政治干扰的世界”，而法国总统埃马纽埃尔-马克龙本人则称该行为“无关紧要”。
+在 12 月 7 日提交的一份法律简报中，FDA 表示，需要处理另外 59,000 页文件，这些文件未包含在该机构之前的文件中。该机构没有解释为什么最初忽略了这些文件。
 
-**新闻来源**：[europapress.es][El Gobierno decidirá si se suma al boicot diplomático contra China en los JJOO junto a los socios europeos](https://www.europapress.es/nacional/noticia-gobierno-decidira-si-suma-boicot-diplomatico-contra-china-jjoo-junto-socios-europeos-20211210160244.html)
+（**点评：****FDA****为什么不花****75****年，让辉瑞研究出它的****mRNA****药物会对人们造成什么危害？如果需要****75****年看完这些文件，那么，****FDA****依据什么授予实验期未完成的辉瑞药物用于市场？）**
+
+该机构表示，它可以在 1 月底之前发布大约 12,000 页的首批内容。过了那个日期，FDA 表示，它每月只能处理和披露 500 页的文件。
+
+这意味着整个文件缓存要到 2096 年才能完全发布。FDA 的最初时间表，意味着文件的发布要到 2076 年，或从现在起 55 年才能完成。
+
+FDA 没有透露它将用来选择最初 12,000 页文件的标准，也没有透露该机构将如何优先发布这些页面或未来的其他页面。
+
+有问题的文件源于信息自由法 (FOIA) 请求，该请求是由公共卫生和医疗专业人员透明组织 (PHMPT) 于 8 月提交的。
+
+**参考资料：**[childrenshealthdefense.org][FDA Now Wants 75 Years to Release Pfizer Vaccine Documents](https://childrenshealthdefense.org/defender/fda-75-years-release-pfizer-vaccine-documents/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=a790ba0e-e452-45bc-aaae-d39305be9c54)
 
 * * *
 
-***审核：Aries的星
-校对：信心满满
-发布：信心满满***
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-2.jpeg)
+*审核：文乐
+校对：信心满满*
+*发布：信心的选择*
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-2.jpeg)
 
  
 

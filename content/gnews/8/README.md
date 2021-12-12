@@ -2,28 +2,28 @@
 ---
 
 
-## 美大学开始调查教授删除中共病毒研究数据
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1746730/)
+## GETTR假日抽大奖活动注册将于本周日截止
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1746807/)
 
-撰稿：东京樱花团/风翼
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-39.png)
-[图片来源](https://www.google.com.hk/search?q=%E4%BD%9B%E7%BD%97%E9%87%8C%E8%BE%BE%E5%A4%A7%E5%AD%A6&amp;tbm=isch&amp;ved=2ahUKEwiw3fWSkt70AhXBg3IEHWxsAXkQ2-cCegQIABAA#imgrc=qROAdejEMfPxUM)
+作者：纽约香草山 – Delilah小胖
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据盖特官方12月9日公布，本期假日抽大奖活动注册时间，即将于美东时间12月12日，本周日23点59分59秒截止。还没有填表的意向参与者，可以抓紧时间填写活动参与表格。填表链接及活动规则，可以登陆gettr.com首页获取。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-12-下午9.13.19.png)
+参考链接：[https://gettr.com/post/pj88is55f0](https://gettr.com/post/pj88is55f0)
 
-据CNN报道：美国佛罗里达大学已经对该校教授在与中共病毒有关的研究数据上受到来自校外的政治压力的指控展开了全面调查。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-诺顿副校长11月10日在给教职员工的一封电子邮件中说，大学正在调查据说在新科罗纳上的研究数据被删除一事中可能违反了有关研究公平的规则。副校长表示，他将公布调查的结果，具体到时候提出，没有明确表示。
+总编：文特
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-4月6日，该大学教务委员会发布的报告称，该大学在研究中共病毒与州政府的合作关系中出现了问题。他说，因删除数据的要求和对获取数据、分析和发表研究成果的干扰，使教师们在中共病毒大流行期间无法提供相关科学资料。
-
-信息来源：
-
-[米フロリダ大学、教授陣への政治的圧力を調査　コロナ関連データの消去要請か](https://www.cnn.co.jp/usa/35180747.html)
-
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
