@@ -2,34 +2,25 @@
 ---
 
 
-## 郭先生谈新中国联邦灭共后的中国重建
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1745555/)
+## 日本将不会派内阁高官参加中共冬奥会
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1745565/)
 
-撰稿：银河勇气星—骄子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-2.png)
-12月10日，郭先生在直播中提及，由于在中共走向灭亡的同时，会出现无数个新的势力妄图继续奴役中国人。所以新中国联邦要避免中国内部出现天真的政治家、美国某政党控制的傀儡、军阀割据等乱象，以至于催生另一个被苏维埃共产主义洗脑的新独裁政权，再次将中国人拉向独裁统治的时代。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-602.png)
-文贵先生确信，新中国联邦会在这无数次的较量中，利用一切力量来捍卫中国人一人一票选出新政权，完全兑现新中国联邦宣言，在台湾、香港、新疆、西藏、广东等地采取联邦制。
+#### 翻译/撰稿：黃金精神
 
-郭先生最后提到，在灭共以后，中国人必须要在三个方面实现独立，一是人格、法律、宗教、信仰的独立；二是思维方式、言语自由的独立；三是在国际上完全独立，不再受包括好莱坞、华尔街在内的黑暗势力的摆布。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-19.jpg)图片来源：德国之声
+12月11日据零对冲（ZeroHedge）报道，截至目前，英国、加拿大、澳大利亚、新西兰和立陶宛已经表示不会派政府官员参加在中共举办的2022年冬奥会，其中新西兰以中共病毒为主要理由，此前美国公布了自己的外交抵制。在过去的一周，美国的上述盟友加入了美国的抵制行动，同时引用了对中共人权记录的长期批评。
 
+现在日本也加入了这一不断增加的名单，《读卖新闻》（Yomiuri newspaper）周六援引多名知情人士消息称，日本政府高官可能不参加2月中共举办的冬奥会，而加入美国的外交抵制。日本国家广播公司NHK也证实了这一报道，称东京“倾向于不派内阁部长参加即将举行的北京冬奥会”。另外NHK称，目前预计出席的唯一官员是与奥运会有关的人员，包括东京奥组委前负责人桥本清子（Seiko Hashimoto）。
 
+中共谴责外交抵制是“政治姿态”，同时再次“代表中国人”表示中国人不在乎美国是否出席，并称美国反正没有被邀请。但美国有能力让其他国家跟随他的行列，这将是中共难以忽视的，此前中共官员曾警告说（如果其他国家加入美国外交抵制）将有未可知的报复性措施。
 
-新闻来源：[2021年12月10日 文贵大直播](https://gtv.org/video/id=61b350ad56f4921401b40cca)
+上个月末，当有报道开始显示日本正在酝酿外交抵制时，中共官员警告不要将体育和政治混为一谈。中共提醒日本领导人，中共已经“完全支持”日本的夏季奥运会。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-4.png)
+日本政府尚未确认全面的外交抵制，这意味着日本可能派出较低级别的官员（参加冬奥会）。但在中共眼里这仍将是足够的侮辱。
 
-总编/编辑：飞虹
+新闻来源：[Top Japan Officials To Join US Boycott Of Beijing Olympics As List Grows](https://www.zerohedge.com/political/top-japan-officials-join-us-boycott-beijing-olympics-list-grows)
 
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-6.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

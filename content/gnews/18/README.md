@@ -2,20 +2,23 @@
 ---
 
 
-## 中共国11月汽车销量同比下降9.1%
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1745564/)
+## 澳大利亚帮助太平洋国家修复互联网以对抗中共国
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1745588/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-605.png)[图片来源](https://www.google.com.hk/imgres?imgurl=http%3A%2F%2Ffile.cnautonews.com%3A8881%2F20211210%2Fae0ea8fd012445a0b4e78a804f600134.png&amp;imgrefurl=http%3A%2F%2Fwww.cnautonews.com%2F&amp;tbnid=JUyHZJxVTN1zoM&amp;vet=12ahUKEwjAjrq7s930AhUTg5QKHRNvAdIQMygsegUIARCUAg..i&amp;docid=8YSAWlxyhliq9M&amp;w=1543&amp;h=868&amp;itg=1&amp;q=%E6%B1%BD%E8%BD%A6&amp;hl=zh-CN&amp;ved=2ahUKEwjAjrq7s930AhUTg5QKHRNvAdIQMygsegUIARCUAg)
-12月12日重庆晨报报道，工信部发布11月汽车工业经济运行情况。据工信部介绍，2021年11月，受车用芯片供应短缺等不利因素影响，中共国汽车产销同比呈下降趋势。1-11月，新能源汽车年累计产量突破300万辆，市场渗透率达到12.7%。11月汽车销量同比下降9.1%，乘用车销量同比下降4.7%，商用车销量同比下降30.3%。
+翻译：Shirley
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Aus-.png)图片来自网络
+澳大利亚与日本和美国合作，帮助改善三个太平洋岛国的互联网接入，努力对抗中共国在该地区的影响。此项合作将建立一条新的海底电缆，为基里巴斯、瑙鲁和密克罗尼西亚联邦提供更快和更可靠的互联网连接。
 
-2020年中共国家庭的偿债负担为137.9％，变成纯负债大国，每个国人负债7万元额度，疫情病毒和毒疫苗肆虐，高消费，高房价，零福利，高支出，房子和汽车成为国人头顶的两座大山，只求能够平安健康，以无从过多消费支出。
+[澳洲外交部长玛丽斯](https://www.smh.com.au/politics/federal/australia-to-help-fix-internet-for-pacific-nations-in-bid-to-counter-china-20211212-p59guj.html)[·佩恩在与其他部长的联合声明中说](https://www.smh.com.au/politics/federal/australia-to-help-fix-internet-for-pacific-nations-in-bid-to-counter-china-20211212-p59guj.html)，更好的互联网将为密克罗尼西亚三国的10万人提供经济增长，更多的发展机会和改善生活水平。
 
-消息来源：[重磅数据｜工信部：11月汽车销量同比下降9.1%](https://ml.mbd.baidu.com/r/xRN4lPdrwI?f=cp&amp;rs=829276569&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=f01a0f4869b5e763)
+联合声明说，”这不仅是一项基础设施投资，它代表了一种持久的伙伴关系，在此地区面临前所未有的经济和战略挑战时，提供实际和有意义的解决方案。六国合作强调了在关键电信基础设施方面合作的承诺，并为该地区的可靠和安全的互联网做出贡献。”
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
+来自密克罗尼西亚三国总统、日本外相和美国国务卿的声明说，这种伙伴关系表明有关国家致力于 “与太平洋国家以及它们之间建立透明的、财政上可持续的、具有催化作用的基础设施伙伴关系”。它补充说，这些伙伴关系满足了真正的需求并尊重主权。
+
+这一伙伴关系是在中共国支持的铺设海底电信电缆的投标于6月被否决之后建立的。在过去十年中，中共国向太平洋国家提供了数亿澳元的贷款，用于各种项目，包括移动电话网络。这一伙伴关系帮助该地区避免了由中共国支持的贷款及引发的债务负担。
+
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
