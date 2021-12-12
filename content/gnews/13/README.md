@@ -2,22 +2,49 @@
 ---
 
 
-## G7外长会议 集结民主国家抗衡中俄威胁
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1746015/)
+## 【Michael.Tonny专栏】英国卫生安全局报告显示 疫苗就是杀人的毒药
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1746079/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-610.png)[图片来源](https://www.dw.com/zh/g7%E5%A4%96%E9%95%BF%E4%BC%9A%E8%AE%AE-%E9%9B%86%E7%BB%93%E6%B0%91%E4%B8%BB%E5%9B%BD%E5%AE%B6%E6%8A%97%E8%A1%A1%E4%B8%AD%E4%BF%84%E5%A8%81%E8%83%81/a-60088896)
-G7七国外长会议本周六、日两天（12月11日和12日）在英国利物浦登场，英国外交大臣特拉斯（Liz Truss）担纲主持此次会议。在上周的一场讲话中，特拉斯已先行预告，此次会议将把美国、英国、法国、德国、意大利、加拿大和日本七个具有国际影响力的民主国家集结起来，展现对抗全球侵略者、捍卫自由边界的团结力。英国媒体《卫报》报导，G7外长会议聚焦的议题包括俄罗斯对乌克兰的潜在侵略行为、南海争议、伊朗核协议和缅甸危机等。此外，预计也会谈到气候、中共病毒疫苗分配以及对发展中国家提供的援助。
+作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+中共病毒（Covid-19）源头真相没有弄清楚以前，强行让民众接种所谓的中共病毒疫苗，无异于故意杀人！疫苗就是杀人的毒药！
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-1639128383-4203-1639128388_r_680x408.jpg)
+根据[英国卫生安全局（UK Health Security Agency）](https://www.gov.uk/government/organisations/uk-health-security-agency)2021年12月9日发布的第49周全国流感和COVID-19监测报告（[National flu and COVID-19surveillance report:9 December 2021 (week 49)](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1039639/Weekly_Flu_and_COVID-19_report_w49.pdf)）：自8月以来的过去4个月里，英国每5个感染中共病毒的病例中有3个、每5个住院病例中有3个、每5个死亡病例中有4个是完全接种疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-612.png)
+接种中共病毒疫苗，即不能预防感染，也不能减少死亡！
 
-本日，特拉斯在正式宣布会议开始时说：“我们需要坚定地一同行动，抵制那些试图限制自由和民主的侵略者。要做到这一点，我们需要有完全团结一致的声音。”特拉斯先前表示：“我希望七国集团国家在贸易、投资、科技和安全等领域加深联系，以便我们能够在全世界捍卫、推进自由和民主。在接下来的几天里，我将继续为此努力。”特拉斯承诺为发展中国家提供安全和经济支持，以捍卫世界各地的“自由边界”，这指的是美国、欧盟和英国正在组建的一系列基础设施投资设备，以应对中共国“一带一路”的竞争。她说：“我们需要与整个自由世界的盟友一起站在前线，因为经济影响力之争已经全面展开了。”她希望英国及其合作伙伴在金融和基础设施方面为发展中国家提供更多可靠的选择，这样他们就不需要仅仅依赖一个国家。特拉斯指出，44个中低收入国家对北京的债务超过了其国内生产总值的10%。对于俄乌边境的纷争，特拉斯表示，如果莫斯科进攻乌克兰，将是“一个战略错误”，会给莫斯科带来“严重后果”。她也说到，七国集团会议“将在反对侵略乌克兰的立场上绝对坚定”。特拉斯表示，希望在从俄罗斯到德国的北溪2号管道问题上与德国外长贝尔博克合作，以减少西方对专制政权的能源和技术的依赖。本次的会议也是德国新任外交部长贝尔博克（Annalena Baerbock）在多边论坛上的首次亮相。贝尔博克提到，七国集团拥有共同的价值观，如民主、人权以及对基于规则而非强权法则的国际秩序承诺。然而，“这些价值观不是天上掉下来的礼物，而是必须由我们站出来捍卫它们”。这就是为什么会议中必须聚焦俄罗斯在与乌克兰边境的军事行动以及“中共国和民主国家与专制国家之间的制度竞争”。
+下图为今年8月16日到12月5日16周内按疫苗接种状态划分的英格兰感染中共病毒病例数。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/from-16-Aug-21-to-05-Dec-21-Covid-19-cases.png)
+在考虑学生们在9月开学后，学校“鼓励”学生进行定期进行测试，导致9月中旬和10 月初的数据有波动的因素后， 9月前和10月初到现在，完全接种疫苗的人群占了英格兰感染中共病毒病例的大部分。
 
-韩国、澳大利亚、南非和印度的外长也受邀出席此次会议，而东南亚国家联盟（ASEAN）其中10个国家的外长则会在周日通过视频连线参与。
+下图为今年8月16日到12月5日16周内按疫苗接种状态划分的住院病例，接种疫苗后感染中共病毒而住院的人数一直比未接种疫苗的人要多。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/number-of-hospitalisations-by-vaccination-status-between-16-Aug-21-and-05Dec-21.png)
+下图说明，自今年8月以来，完全接种疫苗的人群占感染中共病毒死亡人数的大部分。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/fully-vaccinated-population-have-accounted-for-the-majority-of-Covid-19-deaths-every-single-month-since-August-2021.png)
+在完全接种疫苗的人群中，单周感染中共病毒死亡人数最高为3,284，而未接种疫苗人群中，因感染中共病毒死亡的单周最高人数为 850。
 
-信息来源：[G7外长会议 集结民主国家抗衡中俄威胁](https://www.dw.com/zh/g7%E5%A4%96%E9%95%BF%E4%BC%9A%E8%AE%AE-%E9%9B%86%E7%BB%93%E6%B0%91%E4%B8%BB%E5%9B%BD%E5%AE%B6%E6%8A%97%E8%A1%A1%E4%B8%AD%E4%BF%84%E5%A8%81%E8%83%81/a-60088896)
+下图显示了过去16周内，未接种疫苗人群因感染中共病毒的病死率和完全接种人群的病死率对比。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/not-vaccinated-population-and-the-case-fatality-rate-among-the-vaccinated-population.png)
+未接种疫苗的人群的病死率仅为0.2%，完全接种疫苗的人群的病死率为0.8%。因此，根据英国政府的官方数据，如果感染中共病毒，完全接种疫苗的人死亡的可能性会比未接种疫苗的人增加4 倍。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
+下图显示未接种疫苗的人群因感染中共病毒的住院死亡率与完全接种疫苗的人群住院死亡率对比。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/The-hospitalisation-fatality-rate.png)
+未接种疫苗人群感染中共病毒后的住院死亡率为26%，完全接种疫苗的人群感染中共病毒后的住院死亡率达到了令人震惊的63%。这意味着完全接种疫苗的人群在因Covid-19住院后死亡的可能性要高2.4倍。
+
+疫苗就是杀人武器！
+
+参考数据：
+
+[Whilst you were distracted by a Christmas Party the UK Gov. released a report confirming the Fully Vaccinated account for 4 in every 5 Covid-19 Deaths in England since August](https://dailyexpose.uk/2021/12/11/report-shows-4-in-5-covid-deaths-fully-vaccinated/)
+
+[Official Statistics National flu and COVID-19 surveillance reports: 2021 to 2022 season](https://www.gov.uk/government/statistics/national-flu-and-covid-19-surveillance-reports-2021-to-2022-season)
+
+[National flu and COVID-19 surveillance report: 9 December 2021 (week 49)](https://www.gov.uk/government/statistics/national-flu-and-covid-19-surveillance-reports-2021-to-2022-season)
+
+[Statistics and Research Coronavirus Pandemic (COVID-19)](https://ourworldindata.org/coronavirus)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/) 上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

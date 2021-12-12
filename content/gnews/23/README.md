@@ -2,34 +2,39 @@
 ---
 
 
-## 习近平家族布局全球社交媒体
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1745623/)
+## 中共核心目的幻想用冬奥会成功证明病毒不是它的生化武器
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1745883/)
 
-作者：纽约香草山农场-文真
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-6.png)
-在12月10日的大直播中，郭文贵先生爆料，中共在全球投资了近三万家社交媒体。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-604.png)
-2016至2017年期间，郭先生曾在许多重大场合揭露社交媒体是中共的核武器，当时遭到众多非议。直到2020年中共病毒大流行和美国大选，主流社交媒体联合一致对自由言论进行打压，西方国家才清醒地认识到社交媒体对西方民主的危害。
+**郭文贵先生：**你不要忘了联合国最早而且联合国一定会表态我去参加，为什么？因为它想拿钱，WHO一定去，我证明这个病毒不是中共的，最后一条大家记住，只要冬奥会开成功，基本上可以证明，中国共产党在全世界宣布病毒不是来自我这儿，病毒不是我的生化武器，这是它最后的一个核心目的。兄弟姐妹们，这是它的最狼子野心。
 
-文贵先生爆料，习近平家人早在2006年以前，就开始在海外投资社交媒体了。习近平家族控制华为公司、中兴公司和稀土资源的目的，就是相信社交硬件、社交媒体是社交必需品，控制社交媒体就控制了人类的未来。
+我在家里边儿，是不是，天机、安红、Rica上我们家来了，家人都让我宰杀完了，现在我把地洗干净了，我家里开晚餐，你家你都来参加晚餐，穿着流丽的衣裳，你还能说我是你的杀手吗？杀你家的人吗？绝对不是。外界村子里一看安红、天机、Rica都参加七哥晚餐了，肯定他家人不是七哥干的，这是共产党最后一个狼子野心——万邦来朝将整个病毒的发源地彻底模糊化甚至去中化、去共化。
 
-共产党善于利用社交媒体给人洗脑，划分派别，散布仇恨。过去二十年，社交媒体蓬勃发展，使用社交媒体的人群集中在15至45岁，同时他们也是受社交媒体毒害最深的人群。
+同时让共产党的房地产经济，所有的张家口这块，大家看完以后，开完冬奥会打台湾，把所有的经济再次灾难扔给西方，然而扔给西方的同时自己啪~人民币数字化。这叫做货币去美化、人民币国际化的一场绝对的战略成功，这个狼子野心你没看透的时候，你就不知道共产党它有多黑，它有多傲慢，它有多无知。
 
-新闻链接：[2021年12月10日 文贵大直播](https://gtv.org/video/id=61b350ad56f4921401b40cca)
+编辑整理：喜马拉雅的肉夹馍；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-4.png)
+视频制作：Cindy；
 
-总编/编辑：飞虹
+视频上传：Cindy；
 
-校正/发稿：浪迹天涯
+G-News发布：黎明之前；
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-6.png)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
