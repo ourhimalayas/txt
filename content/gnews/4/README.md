@@ -2,41 +2,23 @@
 ---
 
 
-## 有声|新中国联邦已对中共造成实质性威胁
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1746907/)
+## 中共恐吓性经济政策令G7担忧
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1747008/)
 
-配音：香草山美食部 – 玫瑰园
+撰稿:东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/5-18.jpg)
+12月12日，在英国利物浦举行的新闻发布会上，七国集团外长会议主席、英国外长特拉斯说，七国集团一致表示对 “中共的恐吓性经济政策”感到担忧。
 
+据路透社和其他消息来源称，特拉斯说：”我们在外长会议上明确表示，我们对中共的恐吓性经济政策表示担忧。我们将促进对热爱自由的民主国家的投资和经济贸易。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-郭文贵先生也在12月10日的直播中畅谈并详细解析了音乐的本质。
+信息来源：
 
-郭先生解释，音乐是可以传递上天信息的声音，自然界中，连狮子听到音乐也会跪下来，对于人类而言，音乐则是沟通人和天地之间的桥梁，它能启迪人类最深层本质的潜能。
+[トラス英外相「中国の威圧的な経済政策に懸念」で一致　Ｇ７外相会合議長](https://news.yahoo.co.jp/articles/9f720945ee9f941fb0bab9d00c46618d08811262)
 
-郭先生又提到，新歌《Hcoin to the moon》目前已经在亚洲众多国家，特别是日本的排行榜上获得榜首之位。另外根据战友提供的消息，该曲的MV也在美区iTunes音乐视频榜上稳居魁首。
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
 
-对此，郭先生解读，在过去100年中，中国没有任何音乐能够参与国际打榜。而此次的新歌以及此前一系列的爆料革命歌曲打破了共产党对音乐的认知，其所带来的成果更是刺激了共产党的神经。
-
-郭先生强调，新中国联邦的创举已经对共产党造成了实质性的威胁
-
-文字版原文：[新中国联邦已对中共造成实质性威胁](https://gnews.org/zh-hans/1741893/)
-
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

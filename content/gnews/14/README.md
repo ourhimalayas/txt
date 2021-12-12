@@ -2,27 +2,43 @@
 ---
 
 
-## 美大学开始调查教授删除中共病毒研究数据
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1746730/)
+## 有声|躺平币是“行为”的价值衡量和回报
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1746883/)
 
-撰稿：东京樱花团/风翼
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-39.png)
-[图片来源](https://www.google.com.hk/search?q=%E4%BD%9B%E7%BD%97%E9%87%8C%E8%BE%BE%E5%A4%A7%E5%AD%A6&amp;tbm=isch&amp;ved=2ahUKEwiw3fWSkt70AhXBg3IEHWxsAXkQ2-cCegQIABAA#imgrc=qROAdejEMfPxUM)
+配音：香草山美食部 – 玫瑰园
 
-据CNN报道：美国佛罗里达大学已经对该校教授在与中共病毒有关的研究数据上受到来自校外的政治压力的指控展开了全面调查。
 
-诺顿副校长11月10日在给教职员工的一封电子邮件中说，大学正在调查据说在新科罗纳上的研究数据被删除一事中可能违反了有关研究公平的规则。副校长表示，他将公布调查的结果，具体到时候提出，没有明确表示。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+12月10日，郭文贵先生在直播中诠释了躺平币的内涵，即，每一位参与个体的“行为”导致的价值衡量以及取得的相应回报。
 
-4月6日，该大学教务委员会发布的报告称，该大学在研究中共病毒与州政府的合作关系中出现了问题。他说，因删除数据的要求和对获取数据、分析和发表研究成果的干扰，使教师们在中共病毒大流行期间无法提供相关科学资料。
+郭先生说，“行”指的是行动，而“为”则表示结果。因此，只要参与其中，每一个战友的行为都可以变得有价值，并且能够得到相应的回报。
 
-信息来源：
+郭先生解释，躺平币作为去中心化的数字货币，它能将时间转化为价值。郭先生举例道，国内同胞翻墙上GETTR，GTV，GNEWS，根据他们的在线时间与产生内容的流量，可以通过躺平币衡量其价值。
 
-[米フロリダ大学、教授陣への政治的圧力を調査　コロナ関連データの消去要請か](https://www.cnn.co.jp/usa/35180747.html)
+郭先生还提到，如果哪天有战友拍到大料，或者取得了关键证据，亦或因为某种行动而得到重大结果，其所获得的躺平币将会升华为观点币、信仰币等，最后还可以转变为灭共币。
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
+郭先生强调，躺平币本身所具备的正义化、良心化、健康化及安全化等特质，已经给它赋予了独一无二的时代属性。
 
+最后，郭先生在回答战友提问时间接表明，躺平币的上市时间或将在明年六月四日——新中国联邦成立的两周年纪念日。
+
+文字版原文：[躺平币是“行为”的价值衡量和回报](https://gnews.org/zh-hans/1741849/)
+
+音频处理：喜山必胜Maverick
+发稿：Tom Li
+[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

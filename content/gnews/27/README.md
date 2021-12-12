@@ -2,45 +2,140 @@
 ---
 
 
-## 是否推出房地产税使中共面临两难选择
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1746585/)
+## 关于新中国联邦为战友们提供药品的解释
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1746662/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-147.png)图片来源：Kevin Frayer/Getty Images
-作者：顺其自然
-编辑：Mttfly
+[https://gtv.org/video/id=61b5792787fa7e74c92ede04](https://gtv.org/video/id=61b5792787fa7e74c92ede04)
 
-2021年10月16日，《求是》杂志发表了习近平近期的一个谈话稿——《扎实推动共同富裕》。此文，一方面强调了习近平要推动的“共同富裕”计划，另一方面，强调要积极稳妥推动房地产税的改革立法，并做好试点工作。
+**郭文贵
+Miles Guo**
 
-2021年10月23日，中共国全国人大常委会公布决定：授权国务院在部分地区开展房地产税改革试点工作。征税对象包括居住用、非居住用等各类物业，不含农村宅基地。试点期限为五年。
+我觉得这个事情非常非常简单
+I think this is very, very simple
 
-但一个多月过去了，征收房地产税这事没了动静，这是为什么呢？
+我觉得现在没有病的人吃青蒿素，就一定要补铁这个问题
+I think healthy people who takes artemisinin, must take iron supplements
 
-因为，中共没想到，十月份之后，中国经济形势急转直下，大量人员失业或降薪。第一支失业大军是房地产企业大幅度裁员。9月15日，新力公司总部员工已陆续收到降薪50%的口头通知，其后传出裁员50%。很多房企裁员，房地产中介公司关门，员工失业。教培行业就不用说了，在“双减”政策下，中国各地上千家教培机构被“团灭”，上千万教职人员失业。据报，教培机构新东方截至9月中旬，裁员近一万人，预计年底前将裁减4万。还有跨境电商、制造业、国企、央企、互联网大厂，也在裁员。至于这两年苦苦支撑的商铺、饭店、旅行社、游乐场就甭题了，基本这两年就没开过什么工，一直在关门的状态。所以失业大军怎么也有一亿多吧。
+还有一个不要吃过量
+Do not take too much
 
-现在又传出人人羡慕的公务员也要降薪的消息。最近网上大家都在转发一个消息，也就是基层公务员何时才能发2020年的目标考核线?文章以匿名网友身份如下：“请问下各位领导，四川省地市的乡镇公务员儿何时才能发2020年的目标考核奖？一个家庭快支撑不下去了，到底什么时候才能发钱？2021年都到了最后一个月了，2020年的目标考核钱都还没有发，基层人员也是人，也需要生活，一家人全靠信用卡生活，这日子咋过啊？所以什么时候才能发钱，能给个准话吗？” 四川财政厅回复直接把他的名字给说出来了。说：“杨海琼你好，你反映的情况已收悉，现回复如下。目前中央正在清理规范公务员工资津贴补贴，对绩效奖金管理作出了规范要求。我省正在按照中央规定开展相关工作，就绩效奖金发放有关事宜进行安排部署。”
+不要吃过量
+Don’t take it over dose
 
-很多人说，公务员不是各方面待遇很好吗？但是基层的公务员工资不是很高，而所以考核奖很关键。一般考核奖能抵上三个月的工资，多的能抵五个月的工资。如果考核奖没了，一些基层公务员可能连房子都供不起。有人说基层公务员不是有公积金吗？大家也别把这些公务员的公积金想的有多高，像四川底下那些小县城，公务员的公积金一个月也就800左右，1000都不会到。房贷很多，通常是每月2000到3000左右，他们月工资到手也就在三千五到四千五之间，如果没有了这个考核的钱，生活的确会有压力。小地方的考核奖能顶三五个月工资，发考核奖金多的地方，比如江浙、珠三角地区，可能会发小十万。在这个消息下面网友留言，杭州余杭区老师确定降薪20%，上海少了7万。
+吃补品就行可
+health products just fine
 
-一亿多失业大军，再加上国企央企、公务员、教师收入减少，若再征收房地产税，那人们肯定没钱交，现在都有很多断供的了。截至12月10日看法拍房的数量，从挂拍数量来看，在某拍卖平台挂拍的深圳法拍房数量达到9904套。
+你有病了，那就按病（情）说了
+If you’re sick
 
-据广州小鹰科技和深圳市不良资产处置协会联合发布的《2020年深圳市住宅法拍房研究报告》显示，去年全年深圳的挂拍法拍房为2839套。在过去一年不到的时间，深圳挂拍的法拍房数量激增了248%，这还不包括其他拍卖平台的挂拍房源。网易新闻2021年9月26日报导，相关数据显示在2017年的时候，法拍房的全国总量大概就是9000套、1万套左右，到了2018年法拍房的数量上升到了2万套，2019年法拍房数量50万套，2020年法拍房数量超过200万套。很多人预测2021年全年的法拍房数量将达到300万套到400万套之多，这个数字真是很惊人。
+没有一样的病是吃一种药管用的
+Not one medicine can cure all diseases
 
-我们知道出现法拍房的原因大部分断供，有些是有经济纠纷，出现断供不就是没钱还房贷嘛。明年的经济形势会更糟糕，会有更多的人失业降薪，收入减少，连房贷都还不上，还能交房地产税吗？再让人们交房地产税，更没人买房了，那房地产就真的彻底嗝屁了。房地产到了倒没什么，关键房地产牵扯的金融、银行、保险都得玩完。这会引发一场大的经济危机，之后会引发社会动乱，所以中共一直强调要软着陆，不让房地产一下子玩完。所以之前吵吵一阵的要出台房地产税，现在也没动静了。
+怎么吃法？我觉得大家要征询医生
+How to take? I think you need to consult a doctor
 
-若是不推出房地产税呢? 我们知道，这么多年来，中共国地方政府的收入，一个是中央财政拨款，一个是地方上的企业和个人的税收，再有一个就是卖地收入，而卖地收入占了大头儿。现在由于这么多年盖的房子太多，年轻人又减少，中共的房地产已经走到了尽头，各地土地都流拍，很多地已经卖不出去了，没有了土地出让金这个地方政府收入的大头，地方政府的财政就玩完了。因为地方财政除了要为公务员、教师、事业单位发工资之外，还要负责基础道路建设、维修。如果没有了这笔卖地收入，不仅公务员，教师的工资发不出来，连这么多年来国内人引以为傲的漂亮的公园、宽敞的街道、春风拂面的河堤用不了几年都会破败不堪。桥梁没有资金维修也会坍塌。中国就会重回上世纪八九十年代的样子。
+第三个，这个药绝对不适合跟很多药放在一起吃
+Thirdly, this medicine is definitely not suitable to be taken together with many other medicines
 
-所以出台房地产税，房地产会倒下，然后引发系统性的金融风险，经济危机；不出台房地产税，那么地方财政就会玩完。中共已经到了左也是死，右也是死的阶段。
+这是肯定的
+It is for sure
 
-那有的网友会说了，那只征收有钱人的房地产税呢？有多套房的房地产税呢？首先他们的现金流也不充裕，他们的几千万的资产其实也是在房地产上。若征收房地产税，他们就会抛售房产，更会引发房地产价格的暴跌。
+大家这个都要听医生的
+We should all listen to the doctor
 
-**发布：**去中心化Math
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+另外一个就是现在，接下来咱们战友家里有病的人
+If you’re sick
+
+请跟飞飞，还有咱们Eglise联系的时候
+Please contact Fei Fei and Eglise
+
+大家要记住
+Remember
+
+帮你一时，不能帮你一切
+We can help for a while, but not for a lifetime
+
+特别是药
+Especially for the medicine
+
+你不能说一直吃下去，全都帮那是不可能的，临时解决
+It is impossible for us to provide you with medicine all the time. It’s a temporary solution only
+
+但是最终的结果一定是你，需要者负责任
+But you are the person need to take the responsibility
+
+我们没有处方权
+We do not have the right to prescribe
+
+只能建议权，只能给你提供一些药的帮助
+only the right to advise,
+
+只能给你提供一些药的帮助
+Can only provide you with some help for the medicine
+
+但是这个东西千万记住，副作用就是沉闷乏力
+But you must remember, the side effect is dull and weak
+
+和铁之间有冲突，你必须要补铁
+There is a conflict with iron. You have to take iron supplements
+
+还有一个就是跟其他症状有没有副作用，但现在还没有发现
+Is there any other side effect? We haven’t found it yet
+
+这个大家要负起自己应负的责任
+Everyone need to take their own responsibilities
+
+我们不能100%保证，这是基本常识，请Eglise你说
+We can not guarantee 100%. This is basic common sense. Eglise, please
+
+Eglise
+
+对，因为讲到这个针剂，已经有战友开始问了
+Yes, talking about this injection, some comrades already have some questions
+
+我就想告诉大家，青蒿素它是有副作用的
+I just want to tell everyone that artemisinin has side effects
+
+因为青蒿素它是100%经过肝脏代谢
+Because artemisinin is 100% metabolized by the liver
+
+对肝脏有绝对的毒性
+It is absolutely toxic to the liver
+
+所以，前面讲的针剂青蒿琥酯针剂，不是什么人都能用的
+Therefore, the injection artesunate injection mentioned earlier is not suitable for everyone
+
+一定要在监护下使用，而且不是什么人都能用
+It must be used under supervision, and not for everyone
+
+我一定要再这么说，因为它的副作用
+I must say that again because of its side effects
+
+可能你的疾病不一定要你的命，但是它副作用能要了你的命
+It may not necessarily kill you with your disease, but it can kill you with its side effects
+
+就是提醒大家这一点
+Here is a reminder to everyone
+
+* * *
+
+Date:12/04/2021
+原视频标题: 关于新中国联邦为战友们提供药品的解释
+Explanation of the drugs provided for the comrades in arms
+原视频日期：2021/12/01
+原视频链接**[https://gettr.com/post/pinbbgd63d](https://gettr.com/post/pinbbgd63d)**
+任务编号：KC323（3099）
+视频时间段 : 0:00-01:49
+中听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka & Mike L
+翻译终校：洛杉矶盘古农场 – Freeearth
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

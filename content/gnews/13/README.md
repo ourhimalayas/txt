@@ -2,32 +2,72 @@
 ---
 
 
-## 郭文贵先生爆料中共国当下真实状况
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1746805/)
+## 【灿烂笑容】
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1746889/)
 
-作者：香草山农场-晓仙女
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2021年12月10日，文贵先生在大直播中爆料，当下，共产党极其狂妄，极力捕杀基督教徒、佛教徒、天主教徒、道教徒以及新疆人，树立习一神为太阳神。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-12-下午9.12.56.png)
-中共国房地产崩塌，银行危机，一亿多人失业，大量商铺关闭，85%的私人企业被收归国有。所有独裁者都是一样，将企业国有化，个人神圣化。只有独裁者才会消灭宗教，控制媒体，最后发动战争。
+撰稿：东京樱花团/待命（文晓）
 
-面对中共的垂死挣扎，新中国联邦将采取一系列方案抗争到底，直至中共灭亡。
+（视频系作者本人制作）
 
-参考链接：[https://gettr.com/post/pjdf6x663a](https://gettr.com/post/pjdf6x663a)
+战友们好！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+希望这首歌能表达出战友们对中共霸凌盘古的愤慨❗️
 
-总编：Jack Li文阳
-编辑：Kathy文艺
-校正/发稿：呼吸的雾霾（文小呼吸）
+能把2021年12月6日中共在不朽的建筑“盘古大厦”施行的残暴传唱到世界每个角落❗️
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+让我们记住那一天、那一刻，文贵先生展现给这个世界的最灿烂的笑容🙏
+
+【灿烂笑容】
+
+演唱：MC文艺
+
+作词：待命(文晓)
+
+我从来没有想到过
+
+人间有如此灿烂笑容
+
+刹那间仿佛已误闯入梦境
+
+眼前难以置信
+
+那笑容亲善迷人
+
+那笑容铁骨铮铮
+
+在刀光剑影中魅力无穷
+
+国恨家仇
+
+燃心中
+
+天降好男儿不辱使命
+
+信仰托着他前行
+
+膝不屈腰绝不弓
+
+挥起正义双拳无悔前行
+
+有谁人能够忍受这
+
+手足被摧残如此无情
+
+慈祥的老父亲
+
+多年的同事亲如姐妹弟兄
+
+那笑容翻江倒海
+
+那笑声天摇地动
+
+明知山有虎他也大步流星
+
+校对：东京樱花团/
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
