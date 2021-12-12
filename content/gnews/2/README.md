@@ -2,26 +2,31 @@
 ---
 
 
-## 七国集团外长 呼吁“关注”中共国和俄罗斯问题
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1745251/)
+## 每一位“真人真事”嘉宾都是一本故事书
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1745257/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-585.png)[图片来源](https://news.yahoo.co.jp/articles/d36fbd77de4f2418581e87e6fe33845a9b47244b#:~:text=%E3%)
-据《产经新闻》12日网站消息，为期两天的七国集团（G7）外长会议于12月11日在英国利物浦开始。东南亚国家联盟（东盟，ASEAN）成员首次被邀请参加会议，讨论如何应对中共国在印太地区日益增长的霸权主义行动。
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月11日，第37期《真人真事》嘉宾是新西兰伊甸农场CEO文疯而动战友。这位在大家眼里坚毅果敢，又耐心随和的老大哥，用风趣的语言讲述了自己丰富的人生经历。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-12-上午11.38.05.png)
+谈到名字的由来，文疯战友解释到，为爆料革命而疯狂，并付诸行动，这就是起名的初衷。出生于六十年代，经历过所谓三年自然灾害、文革、八九六四等非常时期。在改革开放的年代，他作为体制内常被外派执行“蓝金黄”任务的一员，更加认清共产主义的邪恶，早早就移民澳洲。当郭先生2017年开始爆料，强烈的共鸣让文疯战友紧紧跟随，最终克服顾虑和恐惧，坚定地战斗在爆料革命第一线。
 
-会议主席国英国强调需要“打击那些试图破坏自由基础的侵略者”，并着眼于中共国和俄罗斯等独裁国家。
+对长岛哥询问胜利后有没有打算回国发展，文疯战友回答，再也没有比现在参与爆料革命更有意义及价值的事情了。未来会和郭先生及战友们相聚在裕达盘古，回首往事对酒当歌。每一位来到《真人真事》节目的战友，都像一本打开的故事书，且持续在书写。他们，是无数爆料革命战友的缩影。
 
-日本的外交部长林芳正出席了这次会议。林芳正对中共国单方面改变东海和南海现状的企图表示严重关切和反对。他对香港和新疆的人权状况表示关切，并强调台湾海峡和平与稳定的重要性，还提出了中共国在经济上的胁迫问题。
+参考链接：[2021年12月11日 《GTV-真人真事》第37期嘉宾：新西兰伊甸农场 文疯而动](https://gtv.org/video/id=61b4c37e56f4921401b5593a)
 
-针对担心俄罗斯入侵乌克兰的局势，各国表示“深切关注”，并确认支持乌克兰主权和领土完整的立场。林芳正还与其它国家分享了他的关切，并表示七国集团共同努力应对这一局面非常重要。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-12日，七国集团将与东盟成员国举行首次扩大会议，介于中共国在此地区的影响力，会议将确认加强在印太地区的合作，预计韩国、澳大利亚和印度的外长也将作为客座国家参加会议。预计会议还将讨论对明年北京冬奥会和残奥会的“外交抵制”，届时将不派部长参加。
+总编：文真
+编辑/校正/发稿：呼吸的雾霾（文小呼吸）
 
-信息源：[Ｇ７外相会合、中露の動向に「懸念」](https://news.yahoo.co.jp/articles/d36fbd77de4f2418581e87e6fe33845a9b47244b#:~:text=%E3%)
-
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

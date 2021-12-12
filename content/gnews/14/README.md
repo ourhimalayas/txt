@@ -2,23 +2,38 @@
 ---
 
 
-## 杰森 • 米勒：从左翼游说团体手中拯救言论自由的斗争正在进行中
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1745088/)
+## CNN制片人被指控犯有令人不安的未成年性犯罪
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1745094/)
 
-撰稿：GoergeC（乔治）
-上传：追着曙光跑
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-据EXPRESS新闻12月12日的报道，言论自由和政治表达权正在美国受到攻击。不幸的是，左翼走向审查制度的步伐在英国正在加快，甚至英国第一修正案对言论自由的保护也无法阻挡他们。英国政府即将为大型科技公司开绿灯，践踏言论自由。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Image-2021-12-12-at-11.40.24.jpeg)图片来源：原新闻
-英国议会目前正在起草一项”在线安全法案”（Online Safety Bill），这是一项庞大的立法，将授权社交媒体平台监管”有害”内容，但并没有明确区分什么内容能被认定为”有害”。尽管这项法案可能是善意的，但那些经常暂停、禁止或审查用户言论的社交媒体巨头，将得到英国政府的法律支持。如果发表被左翼暴徒认为具有”冒犯性”的政治观点，用户将被踢出这些社交媒体平台。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/FGU2mfiWUAo2voT.png)图片来源：推特
 
-作为盖特（Gettr）的CEO和美国第45届总统唐纳德•川普的高级顾问，杰森 • 米勒针对英国国会起草的这份文件发表了及时的观点，那就是言论自由的权利不仅在美国，在其他自由世界国家包括英国都是神圣不可侵犯的。
 
-由这项法案的推动，可以看出左翼媒体和政治勾结之深，并不仅仅在美国发生，而且是一个世界性问题。面对疫苗灾难即将在明年爆发，左翼媒体唯恐普通人真正觉醒发现毒疫苗消灭人口的计划，所以现在着急提前布局以求彻底控制言论。
+#### 整理报道 ：小红帽
 
-但是，盖特和新中国联邦的G-TV，G-News等真正秉承言论自由精神的新兴媒体平台，必将打破左翼媒体和深层政府的言论封锁，必将为消灭CCP和摧毁少数黑暗世界的邪恶计划发挥巨大作用。
+根据RT新闻12月11日报道， 一名曾与前主持人克里斯·科莫（Chris Cuomo）一起工作的CNN制片人被捕，并被指控引诱未成年人到他家进行性活动。这名被指控的恋童癖者希望“训练”他的受害者成为“性顺从者”。
 
-信息来源：[The fight is on to save free speech from Woke lobby, says JASON MILLER](https://www.express.co.uk/comment/expresscomment/1534871/free-speech-political-expression-woke-online-safety-bill-gettr-comment)
+现年44岁的约翰·格里芬（John Griffin）在工作之外，具有黑暗和令人不安的兴趣。格里芬于周五被捕，并被指控犯有三项企图引诱未成年人从事非法性活动的罪性。
+
+根据司法部的一份声明，格里芬去年使用即时通讯应用程序联系未成年女儿的父母，并说服该父母“允许格里芬训练他们的女儿成为性方面的顺从者”。
+
+据称，在6月，格里芬告诉一位母亲，她的9岁和13岁的女儿应该接受“适当的培训”，并支付了3000美元，让两名女孩从内华达州飞往波士顿。从那里，格里芬被指控开车将两名女孩带到他在佛蒙特州勒德洛的家中，在那里女孩被指示并且确实进行了非法性活动。
+
+被指控的恋童癖者还针对另外两名未成年人实施了非法性行为。在去年4月的一个例子中，格里芬被指控举行“虚拟培训课程”，他指示一名母亲脱掉衣服并猥亵她14岁的女儿。据称，在6月，格里芬提议另一位母亲带她16岁的女儿到他家进行“小母女旅行”，在那里女孩会受到虐待。
+
+CNN已经为格里芬洗白。在周五给《每日邮报》的一份声明中表示，CNN“非常认真地对待对格里芬的指控”。
+
+新闻来源：[CNN producer charged with shocking underage sex crimes — RT USA News](https://www.rt.com/usa/542903-cnn-producer-sex-abuse/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

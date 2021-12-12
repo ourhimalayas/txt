@@ -2,86 +2,62 @@
 ---
 
 
-## 千万不要放松对病毒的警惕性
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1744904/)
+## 是否抵制北京冬奥会欧洲态度仍不明朗
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1744933/)
 
-[https://gtv.org/video/id=61b4bef287fa7e74c92e9baa](https://gtv.org/video/id=61b4bef287fa7e74c92e9baa)
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-**郭文贵**
-**Miles Guo**
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/12/B-6.jpg)newsinsouthkorea.com
+来自英国G7外长会议的消息，“七国集团外长就北京冬奥会仍在交换意见”。
 
-千万别以为这个病毒（Omicron）
-Don’t ever think the new virus’ (Omicron)
+《共同社新闻》（Kyodo News）的全文如下：【1】
 
-你认为它致死率低，你就放松警惕
-You think the fatality rate is low, so you can let your guard down
+一位日本代表团消息人士说，工业化七国集团（G7）的外交部长周六（12月11日）各自就今冬北京奥运会表达了立场，因为美国在外交上率先抵制了这一活动。
 
-我可以告诉大家，你要染上病毒和没染上病毒的人，一定是天地之差
-I can tell you all that there must be a huge difference between those who are infected and those who are not
+七国集团在英国利物浦召开会议之际，英国和加拿大以中共的人权记录为由与美国联手进行了外交抵制，但2024年在巴黎主办夏季奥运会的法国，以及2026年将主办冬季奥运会的意大利不太可能效仿。
 
-什么毒你也不要染上
-You should not catch any virus
+消息人士称，在为期两天的会议的第一天，日本外相林芳正（Yoshimasa Hayashi）告诉七国集团的同僚，东京将在综合考虑各种问题后，在适当的时候作出决定。
 
-还有一个，它现在没有得到验证不死人
-One more, the virus is not proven to be lethal
+日本外务省表示，林芳正对中共国单方面改变东海和南海现状的企图表示反对，他对香港的局势表示严重关切，并对中共国西部新疆地区的侵犯人权行为表示关注。
 
-但不等于以后不死人
-but that doesn’t mean it won’t kill you in the future
+日本外务省还强调了确保台湾海峡和平与稳定的重要性。
 
-而且你不知道共产党会不会放新病毒
-And you don’t know if the Communists will release a new virus
+日本外务省援引他的话说：“日本的目标是与中共国建立建设性和稳定的关系，在这种关系中，东京在需要时表示支持，并敦促北京采取负责任的行动，同时继续对话与合作，应对共同的挑战。”
 
-兄弟姐妹们千万呆在家里
-Brothers and sisters, stay at home
+其他七国集团成员国——英国、加拿大、法国、德国、意大利和美国以及欧盟——发表了关于对中共国的言论，包括表达了对中共国的关切，但没有提供细节。
 
-千万准备好药
-Be prepared with medicines
+外务省表示，除其他地缘政治问题外，七国集团的部长们对俄罗斯军队在乌克兰边境附近的行动深表关切。
 
-更重要的是灾难疫苗不会因为这个会停止
-More importantly, the vaccine disaster will not stop because of this
+他们重申，面对俄罗斯的侵略，七国集团支持乌克兰的主权和领土完整。
 
-我不相信这个世界一半打了疫苗的人都知道吃青蒿素
-I don’t believe that half the people in the world who have been vaccinated know to take artemisinin
+美国及其欧洲盟国担心俄罗斯军队和武器向边境地区的移动可能是入侵的前奏。
 
-我不相信
-I don’t believe it
+英国外交大臣利兹·特拉斯（Liz Truss）在会议开幕时说：“我们需要抵御来自敌对行为者日益增长的威胁，我们需要团结一致，坚决抵制那些试图限制自由和民主界限的侵略者。”
 
-疫苗灾难我觉得会减缓，不会受到任何影响
-I think the vaccine disaster will slow down and not be affected in any way
+周日（12月12日），七国集团外交部长将首次与东南亚国家联盟的外长一起参加扩大会议。
 
-我们的真正的噩梦的时间还没有来呢
-Our real nightmare has not come yet
+预计这两个组织将寻求中共在印度洋-太平洋地区的军事集结和领土主张的问题上进行协调。
 
-人类要经历一次巨大的考验，才能分出这个世界的阴阳两极
-Humanity have to go through a great test to be able to separate the yin (dark) and yang (light) of this world
+在东盟10个成员国中，缅甸将被排除在会议之外，因为该国在2月军事政变后陷入政治动荡。
 
-最后才能分出了好人、坏人，最后剩下是谁
-Eventually, good people and bad people can be distinguished
-, and (we will know) who will survive at the end
+今年担任七国集团主席国的英国也邀请了澳大利亚、韩国和印度，将在周日与七国集团和东盟就印太地区的安全和基础设施发展、中共病毒疫情和两性平等问题举行扩大会议。
 
-千万不要有任何侥幸的心理，不要有幻想，好吧？
-Never take any chances, never have any illusions, okay？
+东盟集团包括文莱、柬埔寨、印度尼西亚、老挝、马来西亚、缅甸、菲律宾、新加坡、泰国和越南。
 
-**原视频链接:** [https://gettr.com/post/pihaudccc6](https://gettr.com/post/pihaudccc6)
+（全文完）
 
-Date:12/03/2021
-原视频标题: 千万不要放松对病毒的警惕性
-Never let down your guard against viruses
-原视频日期：2021/12/01
-原视频链接https://gettr.com/post/pihaudccc6
-任务编号：KC326(3090)
-视频时间段 : 0:00-01:03
+“2024年在巴黎主办夏季奥运会的法国，以及2026年将主办冬季奥运会的意大利不太可能效仿。”如果属实则说明，法国外交部长让·伊夫·勒德里安（Jean-Yves Le Drian）在中共马仔马克龙、体育部长的压力下屈服了？此前传出的消息是，勒德里安要与欧洲有协调一致的行动，那就是要进行抵制【2】。意大利是反共声音很弱的“共占区”，有这样的表态不足为奇。没有看到德国的表态，德国新任外交部长安娜莉娜·贝尔博克（Annalena Baerbock）是反共的力量，估计在做呼吁和周旋，但总统亲共（至少有亲共嫌疑），有些像法国的情况。日本属于首鼠两端，在静观事态发展。
 
-中听校 : 洛杉矶盘古农场 – Layka
-翻译 : 洛杉矶盘古农场 – Layka & Mike Li
-翻译终校：洛杉矶盘古农场 – Freeearth
-字幕+视频制作：洛杉矶盘古农场 – 汪汪
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+为中共的渗透不寒而栗，若是没有文贵先生引领的爆料革命，整个欧洲会像意大利那样，几乎听不到反共的声音，继而成为中共的统治区。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+就在笔者完稿，待审核时，看到了一则消息，“日本将不派部长参加北京奥运会”，玩文字游戏？
+
+有关链接：
+
+【1】[https://english.kyodonews.net/news/2021/12/cb607ae74259-g-7-foreign-chiefs-to-meet-as-tensions-grow-over-china-russia.html?phrase=sex%20japan&words=](https://english.kyodonews.net/news/2021/12/cb607ae74259-g-7-foreign-chiefs-to-meet-as-tensions-grow-over-china-russia.html?phrase=sex%20japan&amp;words=)
+
+【2】[https://gnews.org/zh-hans/1740723/](https://gnews.org/zh-hans/1740723/)
 
  
 
