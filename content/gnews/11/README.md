@@ -2,31 +2,37 @@
 ---
 
 
-## 继“维吾尔族法庭”判决中共种族灭绝罪，联合国将发布新疆局势评估报告
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1746900/)
+## 有声|中共研发面部识别系统的公司被美国列入黑名单
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1746948/)
 
-撰稿：东京樱花/Ob
-![](https://assets.gnews.org/wp-content/uploads/2021/12/3-15.png)
-路透社12月10日报道， 联合国人权办公室发言人Rupert Colville周五表示，该办公室正在完成对中国新疆地区局势的评估，据称该地区的维吾尔族人遭到非法拘留、虐待和强迫工作。
+配音：香草山美食部 – 玫瑰园
 
-Colville表示，联合国人权高级专员巴切莱特(Michelle Bachelet)的办公室希望在未来几周内发表报告，与中共官员就拟议中的访问进行的长期磋商“未取得具体进展”。
 
-英国民间法院“维吾尔族法庭”9日判决中共在新疆对维吾尔人和其他少数民族犯下种族灭绝罪。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+12月9日消息，美国财政部将于12月10日在中共投资黑名单中的“中共军工综合企业”名单上增加一家企业，即专门从事面部识别软件开发的中共国人工智能公司商汤科技。
 
-Colville在日内瓦的联合国简报会上表示，“维吾尔族法庭揭露了更多令人深感不安的信息，这些信息与新疆维吾尔族人和其他穆斯林少数族裔的受到的对待有关。”
+据悉，12月10日是这家公司在香港股市首次公开募股的第一天，也是拜登总统与100个国家召开民主峰会的最后一天，同时，这一天也是世界人权日。
 
-他称，“当然，我们也同样发现了机构中任意拘留和虐待的模式，强迫劳动做法，以及对社会和文化权利的总体侵蚀。”
+据知情人士爆料，华盛顿针对商汤科技的行动是美国为纪念世界人权日，对多个国家实施的一系列制裁措施的一部分，中共利用商汤科技的面部识别系统对新疆维吾尔族穆斯林实施了系统性人权侵犯。
 
-百般抵赖，万般诋毁，试图希望用“口炮”改变历史只能是“黄粱一梦”。事实终究是事实，狡辩只能表明中共的下作与无底线，于事情本身毫无益处，只能让世界更快、更清醒地看清中共的本质，更加快速地与其脱离。中共实际上很清楚地知道这一点，却一而再再而三的做出这种不智之举，实际上他们更明白“开工没有回头箭”，恶举已出便已无法回头，只好一根筋地继续作恶下去，直到全世界人民将其踢出历史舞台。
+文字版原文：[中共研发面部识别系统的公司被美国列入黑名单](https://gnews.org/zh-hans/1741944/)
 
-信息来源：
+音频处理：喜山必胜Maverick
+发稿：Tom Li
+[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
+**更多资讯，更多关注**
 
-[联合国人权办公室称将在未来几周发布有关新疆局势的评估报告](https://cn.reuters.com/article/un-human-right-xinjiang-report-1211-idCNKBS2IQ033)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

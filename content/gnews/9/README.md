@@ -2,41 +2,32 @@
 ---
 
 
-## 有声|新中国联邦已对中共造成实质性威胁
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1746907/)
+## 美澳丹挪倡议对侵犯人权的网络技术实行监管和出口限制
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1746975/)
 
-配音：香草山美食部 – 玫瑰园
+**撰稿：日本东京方舟农场 北极**
 
+为期两天的全球民主峰会于星期五（12月10日）在美国落幕。在此次峰会期间，美国、澳大利亚、丹麦和挪威联合发起了一个名为“出口控制与人权”的倡议，对被滥用于侵犯人权的网络技术实行监管和限制。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-郭文贵先生也在12月10日的直播中畅谈并详细解析了音乐的本质。
+“出口控制与人权倡议”（The Export Controls and Human Rights Initiative）旨在应对威权政府滥用网络技术监视和侵入政治对手、新闻业者、活动人士和少数群体的通讯这一问题。
 
-郭先生解释，音乐是可以传递上天信息的声音，自然界中，连狮子听到音乐也会跪下来，对于人类而言，音乐则是沟通人和天地之间的桥梁，它能启迪人类最深层本质的潜能。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-149.png)美国总统拜登与国务卿布林肯出席线上“民主峰会”（图片来自《美国之音》）
 
-郭先生又提到，新歌《Hcoin to the moon》目前已经在亚洲众多国家，特别是日本的排行榜上获得榜首之位。另外根据战友提供的消息，该曲的MV也在美区iTunes音乐视频榜上稳居魁首。
+白宫一位高级官员在简报会上对记者表示，这项倡议的目标是让更多的政府参与进来，共同协作，有效管控那些可能被用来侵犯人权的技术，确保这些技术被用于良善，而不是邪恶的用途。
 
-对此，郭先生解读，在过去100年中，中国没有任何音乐能够参与国际打榜。而此次的新歌以及此前一系列的爆料革命歌曲打破了共产党对音乐的认知，其所带来的成果更是刺激了共产党的神经。
+美国最近对以色列的NSO公司采取了行动，将其纳入受管制公司名单。这家公司制造的“飞马”（Pegasus）间谍软件被用来侵入记者和官员的智能手机，将这些手机变成间谍设备，使间谍软件用户可以阅读被监视目标的讯息和文件，追踪他们的位置，甚至在他们不知情时打开他们的摄像头。
 
-郭先生强调，新中国联邦的创举已经对共产党造成了实质性的威胁
+*参考链接：*
 
-文字版原文：[新中国联邦已对中共造成实质性威胁](https://gnews.org/zh-hans/1741893/)
+[民主峰会闭幕之际 美澳丹挪宣布出口管控项目 限制输出用于压迫的网络工具](https://www.voachinese.com/a/as-democracy-summit-wraps-us-restricts-exports-of-cyber-tools-used-for-repression-20211210/6349515.html)
 
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
-**更多资讯，更多关注**
+* * *
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+*素材采编：北极*
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+*编辑：青衣青青*
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+*发布：Ranting*
 
  
 

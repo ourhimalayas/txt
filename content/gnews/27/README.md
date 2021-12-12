@@ -2,140 +2,45 @@
 ---
 
 
-## 关于新中国联邦为战友们提供药品的解释
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1746662/)
+## 军备超限战？ 中共不计成本用NASA“废弃设计”开发高超音速核导弹
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1746703/)
 
-[https://gtv.org/video/id=61b5792787fa7e74c92ede04](https://gtv.org/video/id=61b5792787fa7e74c92ede04)
+撰稿/配图：东京樱花团/ Ob
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-148.png)
+看中国2021年12月11日讯，中共当局正在开发一种时速6,000英里的高超音速核导弹发动机，然而，据《纽约邮报》报导，该发动机是基于美国宇航局（NASA）放弃的设计，不是北京自主研发的。
 
-**郭文贵
-Miles Guo**
+一个中国的研究团队在二十多年前根据美国航天局（NASA）科学家的激进设计建造并测试了一个原型。
 
-我觉得这个事情非常非常简单
-I think this is very, very simple
+据《南华早报》报导，该设计思路是由华裔美国人唐明汉（Ming Han Tang）提出的，他是1990年代后期美国宇航局高超音速计划的总工程师。
 
-我觉得现在没有病的人吃青蒿素，就一定要补铁这个问题
-I think healthy people who takes artemisinin, must take iron supplements
+然而，波音Manta X-47C，一项测试唐的设计的计划，在2000年代初被美国政府放弃了，因为它被认为成本太高。
 
-还有一个不要吃过量
-Do not take too much
+中共当局不计成本开展军备竞赛
 
-不要吃过量
-Don’t take it over dose
+然而，对当今迅速军事化的中共当局来说，金钱不是问题——特别是如果大洒金钱能够使中共政权在军备竞赛中保持领先的话。
 
-吃补品就行可
-health products just fine
+事态发展的消息是在中共最近向太空发射两枚导弹之后传播开的。去年（2020年）10月，北京当局在全球范围内发射了一枚高超音速导弹，美国对中共所展现的军事实力表现感到震惊。
 
-你有病了，那就按病（情）说了
-If you’re sick
+但消息人士称，这次令人不安的试验令美国官员感到惊讶，它表明中共政府在其高超音速武器的发展方面取得了惊人的进展。
 
-没有一样的病是吃一种药管用的
-Not one medicine can cure all diseases
+高超音速导弹
 
-怎么吃法？我觉得大家要征询医生
-How to take? I think you need to consult a doctor
+高超音速导弹的飞行速度是音速的5倍，射程可达1500英里。俄罗斯近年来利用该技术制造了尖端导弹。
 
-第三个，这个药绝对不适合跟很多药放在一起吃
-Thirdly, this medicine is definitely not suitable to be taken together with many other medicines
+在可怕的军备竞赛中，中共当局一直在争先恐后地制造强大的武器。
 
-这是肯定的
-It is for sure
+中国运载火箭技术研究院已经公开宣布了一些火箭发射，但据报导，中共当局在8月份的高超音速导弹试验却是保密的。
 
-大家这个都要听医生的
-We should all listen to the doctor
+中共自卑又自大，明知技不如人，却又要千方百计地想出一个“美国人不敢想，也不敢干而中共敢想又敢干”的不计成本，不计代价的“锦囊妙计”——“超限战”，并逐渐运用于战略规划的方方面面。寄希望用“田忌赛马”的战略弯道超车，从而击垮美国，控制全世界，主导人类命运共同体。中共不计成本不计代价的疯狂战略部署将中国和世界带入一条不归路，拖垮了经济，拖垮了世界。超限战是不可理喻的近乎疯狂的所谓“伟大英豪”的杰作，是灾难式的仅为满足某部分人“自我标榜”的疯狂幻想，用来证明其伟大，并且他越想越伟大，越想越老子天下第一。
 
-另外一个就是现在，接下来咱们战友家里有病的人
-If you’re sick
+消息来源：
 
-请跟飞飞，还有咱们Eglise联系的时候
-Please contact Fei Fei and Eglise
+[抄的 北京用NASA弃设开发高超音速核导弹(图)](https://m.secretchina.com/news/gb/2021/12/11/992045.html)
 
-大家要记住
-Remember
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
 
-帮你一时，不能帮你一切
-We can help for a while, but not for a lifetime
-
-特别是药
-Especially for the medicine
-
-你不能说一直吃下去，全都帮那是不可能的，临时解决
-It is impossible for us to provide you with medicine all the time. It’s a temporary solution only
-
-但是最终的结果一定是你，需要者负责任
-But you are the person need to take the responsibility
-
-我们没有处方权
-We do not have the right to prescribe
-
-只能建议权，只能给你提供一些药的帮助
-only the right to advise,
-
-只能给你提供一些药的帮助
-Can only provide you with some help for the medicine
-
-但是这个东西千万记住，副作用就是沉闷乏力
-But you must remember, the side effect is dull and weak
-
-和铁之间有冲突，你必须要补铁
-There is a conflict with iron. You have to take iron supplements
-
-还有一个就是跟其他症状有没有副作用，但现在还没有发现
-Is there any other side effect? We haven’t found it yet
-
-这个大家要负起自己应负的责任
-Everyone need to take their own responsibilities
-
-我们不能100%保证，这是基本常识，请Eglise你说
-We can not guarantee 100%. This is basic common sense. Eglise, please
-
-Eglise
-
-对，因为讲到这个针剂，已经有战友开始问了
-Yes, talking about this injection, some comrades already have some questions
-
-我就想告诉大家，青蒿素它是有副作用的
-I just want to tell everyone that artemisinin has side effects
-
-因为青蒿素它是100%经过肝脏代谢
-Because artemisinin is 100% metabolized by the liver
-
-对肝脏有绝对的毒性
-It is absolutely toxic to the liver
-
-所以，前面讲的针剂青蒿琥酯针剂，不是什么人都能用的
-Therefore, the injection artesunate injection mentioned earlier is not suitable for everyone
-
-一定要在监护下使用，而且不是什么人都能用
-It must be used under supervision, and not for everyone
-
-我一定要再这么说，因为它的副作用
-I must say that again because of its side effects
-
-可能你的疾病不一定要你的命，但是它副作用能要了你的命
-It may not necessarily kill you with your disease, but it can kill you with its side effects
-
-就是提醒大家这一点
-Here is a reminder to everyone
-
-* * *
-
-Date:12/04/2021
-原视频标题: 关于新中国联邦为战友们提供药品的解释
-Explanation of the drugs provided for the comrades in arms
-原视频日期：2021/12/01
-原视频链接**[https://gettr.com/post/pinbbgd63d](https://gettr.com/post/pinbbgd63d)**
-任务编号：KC323（3099）
-视频时间段 : 0:00-01:49
-中听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka & Mike L
-翻译终校：洛杉矶盘古农场 – Freeearth
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 ：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

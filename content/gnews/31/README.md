@@ -2,99 +2,140 @@
 ---
 
 
-## 国内疫苗强迫的真相
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1746622/)
+## 关于新中国联邦为战友们提供药品的解释
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1746662/)
 
-撰稿：东京樱花团/『花落几人怜』
-![](https://assets.gnews.org/wp-content/uploads/2021/12/3-29.jpg)
-图片来自盖特
+[https://gtv.org/video/id=61b5792787fa7e74c92ede04](https://gtv.org/video/id=61b5792787fa7e74c92ede04)
 
-毒针害死的人多了
+**郭文贵
+Miles Guo**
 
-人民才会醒 才会发觉上当了。
+我觉得这个事情非常非常简单
+I think this is very, very simple
 
-这种上当 是会把命给赔进去的。
+我觉得现在没有病的人吃青蒿素，就一定要补铁这个问题
+I think healthy people who takes artemisinin, must take iron supplements
 
-当然还有一部分是被逼无奈。
+还有一个不要吃过量
+Do not take too much
 
-小孩子不打不让上学
+不要吃过量
+Don’t take it over dose
 
-单位不打用工作威胁。
+吃补品就行可
+health products just fine
 
-老百姓就吓你骗你 不让坐车 不让去超市 不让开店。
+你有病了，那就按病（情）说了
+If you’re sick
 
-种种手段 喝 吓 哄 诈 骗 打压 威胁
+没有一样的病是吃一种药管用的
+Not one medicine can cure all diseases
 
-让你的熟人朋友 来劝你
+怎么吃法？我觉得大家要征询医生
+How to take? I think you need to consult a doctor
 
-让单位上的朋友来洗脑你。
+第三个，这个药绝对不适合跟很多药放在一起吃
+Thirdly, this medicine is definitely not suitable to be taken together with many other medicines
 
-我有个朋友是社区生产队长。
+这是肯定的
+It is for sure
 
-他说 土共明摆着给 200的电话费。
+大家这个都要听医生的
+We should all listen to the doctor
 
-让他们去执行任务 最好全员接种。
+另外一个就是现在，接下来咱们战友家里有病的人
+If you’re sick
 
-他打电话去 先是提醒。
+请跟飞飞，还有咱们Eglise联系的时候
+Please contact Fei Fei and Eglise
 
-不听的 不打的 直接威胁 你们家族
+大家要记住
+Remember
 
-生产队里的年底土地租金分红 不打就不给你们家了。
+帮你一时，不能帮你一切
+We can help for a while, but not for a lifetime
 
-以后你们家任何人 不要去社区盖章。
+特别是药
+Especially for the medicine
 
-直接吓村民 村民哪懂什么 觉得多一事不如少一事。
+你不能说一直吃下去，全都帮那是不可能的，临时解决
+It is impossible for us to provide you with medicine all the time. It’s a temporary solution only
 
-就都打了。
+但是最终的结果一定是你，需要者负责任
+But you are the person need to take the responsibility
 
-他说他们社区 最多有10多个人没打。
+我们没有处方权
+We do not have the right to prescribe
 
-基本上就是 只有比较老弱病残孕 没打。
+只能建议权，只能给你提供一些药的帮助
+only the right to advise,
 
-我邻村 我看到了数据 基本上达到全员接种。
+只能给你提供一些药的帮助
+Can only provide you with some help for the medicine
 
-18岁以上接种率 95％那时候 还没普及几个月呢。
+但是这个东西千万记住，副作用就是沉闷乏力
+But you must remember, the side effect is dull and weak
 
-按百分百来算的话 一百个人 出不了一个没打的。
+和铁之间有冲突，你必须要补铁
+There is a conflict with iron. You have to take iron supplements
 
-墙内很恐怖的 根本不拿人当人。
+还有一个就是跟其他症状有没有副作用，但现在还没有发现
+Is there any other side effect? We haven’t found it yet
 
-基本上想在墙内不打的人
+这个大家要负起自己应负的责任
+Everyone need to take their own responsibilities
 
-多多少少 算本事好的 硬气的 不怕共产党的。
+我们不能100%保证，这是基本常识，请Eglise你说
+We can not guarantee 100%. This is basic common sense. Eglise, please
 
-要不然会被 千夫所指 无疾而终
+Eglise
 
-攻击你 你宣传疫苗害人力度越大
+对，因为讲到这个针剂，已经有战友开始问了
+Yes, talking about this injection, some comrades already have some questions
 
-这个病态的共产社会更觉得你有病。
+我就想告诉大家，青蒿素它是有副作用的
+I just want to tell everyone that artemisinin has side effects
 
-我反正不吃这套 在他们眼里我是刺头
+因为青蒿素它是100%经过肝脏代谢
+Because artemisinin is 100% metabolized by the liver
 
-他们是不惹我 因为惹我 我会拼命。
+对肝脏有绝对的毒性
+It is absolutely toxic to the liver
 
-我先好说 讲理 拿上级压他们
+所以，前面讲的针剂青蒿琥酯针剂，不是什么人都能用的
+Therefore, the injection artesunate injection mentioned earlier is not suitable for everyone
 
-拿所谓的中央自愿政策对付 如果来混的 那我也得来混的。
+一定要在监护下使用，而且不是什么人都能用
+It must be used under supervision, and not for everyone
 
-要让共产党知道 我死不要紧 我要拉垫背。
+我一定要再这么说，因为它的副作用
+I must say that again because of its side effects
 
-他们就会怕你了。到时候他们会自己找台阶
+可能你的疾病不一定要你的命，但是它副作用能要了你的命
+It may not necessarily kill you with your disease, but it can kill you with its side effects
 
-自己滚 说：我们也是打工混饭吃 是的是的。
+就是提醒大家这一点
+Here is a reminder to everyone
 
-中央是说自愿 我们就是工作人员 来鼓励一下 你不打。
+* * *
 
-你就填个表登记一下。
+Date:12/04/2021
+原视频标题: 关于新中国联邦为战友们提供药品的解释
+Explanation of the drugs provided for the comrades in arms
+原视频日期：2021/12/01
+原视频链接**[https://gettr.com/post/pinbbgd63d](https://gettr.com/post/pinbbgd63d)**
+任务编号：KC323（3099）
+视频时间段 : 0:00-01:49
+中听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka & Mike L
+翻译终校：洛杉矶盘古农场 – Freeearth
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-——来自云南受压迫的回民同胞战友。
-
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
-
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
