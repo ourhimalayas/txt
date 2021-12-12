@@ -2,28 +2,38 @@
 ---
 
 
-## 苹果公司与北京秘密签署2750亿美元投资协议
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1740818/)
+## 杨洁篪发动针对爆料革命的海外行动
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1741824/)
 
-本文作者：Rebecca (一切心皆不可得！)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image001-1.png)
-据路透社报道，网媒《信息》（The Information）周二（7日）独家披露，苹果公司 (AAPL.O) 首席执行官蒂姆-库克（Tim Cook），2016年5月曾与中共政府官员“秘密”签署了一份 2,750 亿美元的投资协议。以缓解可能会导致其产品与服务在中国市场受挫的威胁。
+作者：纽约香草山农场 – 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在12月10日的直播中，郭文贵先生着重提醒多个国家的战友务必注意人身安全。
 
-该份协议内容包括：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide1-13.jpeg)
 
-- 苹果承诺帮助中共国制造业者开发‘最先进的制造技术’并‘支持培养高素质的中共国人才’
-- 苹果承诺在其产品使用更多来自中共国供应商的组件，与中共国软件公司签署协议，与中共国大学进行技术合作，并直接投资中共国科技公司
-- 苹果承诺在中共国市场的投资将比当时的水平高出“数十亿美元“
+据郭先生近日获得的情报表明，中共外交部杨洁篪正在发动多个国家的中共海外潜伏势力。目前，新一轮针对爆料革命的海外行动已经全面开始。
 
+郭先生提到，持有塞浦路斯护照的上千名战友是这次行动的目标之一，如今已有十几位战友被捕。另外，迪拜和中共之间签署了遣返协议，因此，身处迪拜的战友绝对不安全。郭先生表示，希望这些地区的战友，尽快拿到免签护照，暂时离开这些国家。
 
-如果双方都不反对，该份协议将自动延期至第六年，即到2022年5月。
+郭先生还提及，加拿大有中共深度潜伏的特务，这些共产党情报人员正在收集战友们的个人信息，其目的就是为了挖出那些可以投资五亿到二十亿的有实力的战友。
 
-参考来源：[https://www.reuters.com/business/retail-consumer/apples-tim-cook-signed-275-bln-deal-with-chinese-officials-placate-china-2021-12-07/](https://www.reuters.com/business/retail-consumer/apples-tim-cook-signed-275-bln-deal-with-chinese-officials-placate-china-2021-12-07/)[链接](https://www.reuters.com/business/retail-consumer/apples-tim-cook-signed-275-bln-deal-with-chinese-officials-placate-china-2021-12-07/)
+郭先生强调，新中国联邦的战友们，无论是在中共国内、还是国外的，请务必注意自己的人身安全和个人信息安全，一定要保护好自己。
 
-审核校对：sherryok (水云间)
+参考链接：[2021年12月10日 文贵大直播](https://gtv.org/video/id=61b350ad56f4921401b40cca)
 
-上传排版：漂流瓶
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
 
+总编：Irene木木
+编辑：Ivy001
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

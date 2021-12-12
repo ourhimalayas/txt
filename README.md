@@ -135,59 +135,59 @@
 ### [中共查封盘古动龙脉引欧美抵制冬奥](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [澳大利亚、丹麦、挪威将与美国共同限制向中共出口技术](/content/gnews/41/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [意大利拟对禁止中资收购的企业进行补偿](/content/gnews/42/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美国制裁中共国人工智能企业](/content/gnews/43/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [我们知道非选举而出的人获得权力会怎么样](/content/gnews/44/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [卫生官僚拥有无比的权力，几乎可以对任何人做任何事](/content/gnews/45/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中共国又一零食巨头宣布涨价](/content/gnews/46/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [继兰州关闭中国银行后，山西关闭19家银行](/content/gnews/47/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [如何理解共产党驱赶文贵先生九十多岁老父亲露宿街头的流氓行为？](/content/gnews/48/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [新中国联邦已对中共造成实质性威胁](/content/gnews/49/README.md)
- ` GTV新闻访谈`
-
-### [揭秘“躺平币”背后埋单资金，远瞻灭共赚钱新思路](/content/gnews/50/README.md)
- ` YALUN 亚伦`
-
-### [躺平币是“行为”的价值衡量和回报](/content/gnews/51/README.md)
- ` GTV新闻访谈`
-
-### [杨洁篪发动针对爆料革命的海外行动](/content/gnews/52/README.md)
- ` GTV新闻访谈`
-
-### [苹果公司与北京秘密签署2750亿美元投资协议](/content/gnews/53/README.md)
+### [从国内企业纷纷裁员，看中共国的经济崩塌](/content/gnews/41/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [法官限制了班农先生公开证据的要求](/content/gnews/54/README.md)
+### [澳大利亚、丹麦、挪威将与美国共同限制向中共出口技术](/content/gnews/42/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [意大利拟对禁止中资收购的企业进行补偿](/content/gnews/43/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美国制裁中共国人工智能企业](/content/gnews/44/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [我们知道非选举而出的人获得权力会怎么样](/content/gnews/45/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [卫生官僚拥有无比的权力，几乎可以对任何人做任何事](/content/gnews/46/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [中共国又一零食巨头宣布涨价](/content/gnews/47/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [继兰州关闭中国银行后，山西关闭19家银行](/content/gnews/48/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [如何理解共产党驱赶文贵先生九十多岁老父亲露宿街头的流氓行为？](/content/gnews/49/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [新中国联邦已对中共造成实质性威胁](/content/gnews/50/README.md)
+ ` GTV新闻访谈`
+
+### [揭秘“躺平币”背后埋单资金，远瞻灭共赚钱新思路](/content/gnews/51/README.md)
+ ` YALUN 亚伦`
+
+### [躺平币是“行为”的价值衡量和回报](/content/gnews/52/README.md)
+ ` GTV新闻访谈`
+
+### [杨洁篪发动针对爆料革命的海外行动](/content/gnews/53/README.md)
+ ` GTV新闻访谈`
+
+### [苹果公司与北京秘密签署2750亿美元投资协议](/content/gnews/54/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [法官限制了班农先生公开证据的要求](/content/gnews/55/README.md)
  ` HimalayaRussia`
 
-### [COVID-19 最新情报｜诚实豆沙包？新西兰总理承认“疫苗接种计划没有终点”](/content/gnews/55/README.md)
+### [COVID-19 最新情报｜诚实豆沙包？新西兰总理承认“疫苗接种计划没有终点”](/content/gnews/56/README.md)
  ` G&#124;News TAIWAN`
 
-### [恒大违约将拖累加密货币、机构投资者、养老基金](/content/gnews/56/README.md)
+### [恒大违约将拖累加密货币、机构投资者、养老基金](/content/gnews/57/README.md)
  ` 墨尔本雅典娜农场`
 
-### [一个对疫苗引发的血液栓塞的治疗方案](/content/gnews/57/README.md)
+### [一个对疫苗引发的血液栓塞的治疗方案](/content/gnews/58/README.md)
  ` 澳喜农场`
-
-### [日本计划在2022年出台“稳定币”监管法律](/content/gnews/58/README.md)
- ` 日本东京方舟农场`
 
 ### [“班农先生不睬案”审理日期已确定](/content/gnews/59/README.md)
  ` HimalayaRussia`
