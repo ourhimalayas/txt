@@ -2,31 +2,23 @@
 ---
 
 
-## 每一位“真人真事”嘉宾都是一本故事书
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1745257/)
+## 新冠疫情爆发前秘密签署了mRNA新冠疫苗转让协议
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1745295/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月11日，第37期《真人真事》嘉宾是新西兰伊甸农场CEO文疯而动战友。这位在大家眼里坚毅果敢，又耐心随和的老大哥，用风趣的语言讲述了自己丰富的人生经历。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-12-上午11.38.05.png)
-谈到名字的由来，文疯战友解释到，为爆料革命而疯狂，并付诸行动，这就是起名的初衷。出生于六十年代，经历过所谓三年自然灾害、文革、八九六四等非常时期。在改革开放的年代，他作为体制内常被外派执行“蓝金黄”任务的一员，更加认清共产主义的邪恶，早早就移民澳洲。当郭先生2017年开始爆料，强烈的共鸣让文疯战友紧紧跟随，最终克服顾虑和恐惧，坚定地战斗在爆料革命第一线。
+翻译：喜国公民
+视频来自网络
+格林贝克节目主持人贝克先生接受[塔克卡尔森采访时披露](https://www.foxnews.com/shows/tucker-carlson-tonight)，在2019年12月，即新冠大流行爆发的几星期前，有一项秘密转让mRNA冠状病毒疫苗技术的协议。
 
-对长岛哥询问胜利后有没有打算回国发展，文疯战友回答，再也没有比现在参与爆料革命更有意义及价值的事情了。未来会和郭先生及战友们相聚在裕达盘古，回首往事对酒当歌。每一位来到《真人真事》节目的战友，都像一本打开的故事书，且持续在书写。他们，是无数爆料革命战友的缩影。
+[该转让协议在推特上也有报道](https://twitter.com/pbhushan1/status/1406998785348182017)。这份日期为2019年12月12日的协议是由福奇管辖的美国国家过敏和传染病研究所 、莫得纳公司和巴里克博士签署的，将”美国国家过敏和传染病研究所和莫得纳共同拥有的mRNA冠状病毒候选疫苗”转让给巴里克（武汉病毒研究所制造致命冠状病毒的合作伙伴）!
 
-参考链接：[2021年12月11日 《GTV-真人真事》第37期嘉宾：新西兰伊甸农场 文疯而动](https://gtv.org/video/id=61b4c37e56f4921401b5593a)
+奇怪的是，签署秘密协议的几周后就爆发了全球范围的新冠病毒大流行。之后，巴里克等人在1月底开会，开始诋毁任何提出实验室泄漏理论的人。他们极力掩盖实验室泄漏。甚至提出不要去武汉那里检查。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+在2021年5月参议员兰德·保罗在参议院卫生委员会听证会上与福奇辩论时，提到巴里克博士一直与武汉病毒研究所的石正丽合作，分享他关于如何创造超级病毒的研究成果。
 
-总编：文真
-编辑/校正/发稿：呼吸的雾霾（文小呼吸）
+贝克先生已经把这个信息交给了国会和参议院的几个人，兰德·保罗议员正在处理这个问题。相信福奇博士对此要给出答案。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
