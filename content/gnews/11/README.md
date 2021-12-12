@@ -2,20 +2,48 @@
 ---
 
 
-## 中共国11月汽车销量同比下降9.1%
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1745564/)
+## 哥伦比亚最大的银行提供比特币交易
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1745606/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-605.png)[图片来源](https://www.google.com.hk/imgres?imgurl=http%3A%2F%2Ffile.cnautonews.com%3A8881%2F20211210%2Fae0ea8fd012445a0b4e78a804f600134.png&amp;imgrefurl=http%3A%2F%2Fwww.cnautonews.com%2F&amp;tbnid=JUyHZJxVTN1zoM&amp;vet=12ahUKEwjAjrq7s930AhUTg5QKHRNvAdIQMygsegUIARCUAg..i&amp;docid=8YSAWlxyhliq9M&amp;w=1543&amp;h=868&amp;itg=1&amp;q=%E6%B1%BD%E8%BD%A6&amp;hl=zh-CN&amp;ved=2ahUKEwjAjrq7s930AhUTg5QKHRNvAdIQMygsegUIARCUAg)
-12月12日重庆晨报报道，工信部发布11月汽车工业经济运行情况。据工信部介绍，2021年11月，受车用芯片供应短缺等不利因素影响，中共国汽车产销同比呈下降趋势。1-11月，新能源汽车年累计产量突破300万辆，市场渗透率达到12.7%。11月汽车销量同比下降9.1%，乘用车销量同比下降4.7%，商用车销量同比下降30.3%。
+**编者按：**
 
-2020年中共国家庭的偿债负担为137.9％，变成纯负债大国，每个国人负债7万元额度，疫情病毒和毒疫苗肆虐，高消费，高房价，零福利，高支出，房子和汽车成为国人头顶的两座大山，只求能够平安健康，以无从过多消费支出。
+在全球经济即将崩塌之际，加密数字货币已成为世界金融的聚焦热点与发展方向。而作为比特币并没有黄金锚锭，如来时有影，将去而无声，它始终带有原罪，没有中心负责的交易何以保持稳定地兑现法币?比特币虽然成为一些南美洲小国大银行的交易许可，然而作为这些地区的毒品交易，它不过成为一个洗钱的工具而已，它 将如一个匆匆过客，当经济大萧条崩盘时，比特币必将坠落而消失。
 
-消息来源：[重磅数据｜工信部：11月汽车销量同比下降9.1%](https://ml.mbd.baidu.com/r/xRN4lPdrwI?f=cp&amp;rs=829276569&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=f01a0f4869b5e763)
+据《**Zerohedge**》记者：**TYLER DURDEN，2021**年**12**月**7**日报道：
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
+比特币杂志投稿
+加密货币交易所**Gemini**周一在一份声明中表示，该公司将很快在哥伦比亚为该国最大银行**Bancolombia**的客户提供无阻力的比特币交易。然而，目前尚不清楚用户是否能够提取资金** —— **这是比特币实现金融主权的重要特征。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-122-e1639288136280.jpg)图片源自原文
+该合作伙伴关系是政府资助的试点计划的一部分。它将于12月14日推出，为Bancolombia的首批客户提供无缝的进出通道，以通过交易所交易比特币。
+
+Gemini战略和企业发展负责人Cynthia del Pozo García 在声明中表示：“此次合作也是Gemini在拉丁美洲战略扩张的重要一步。”
+
+“我们期待与哥伦比亚加密生态系统密切合作，并支持加密产品，使哥伦比亚人能够控制他们的财务生活。”
+
+**哥伦比亚政府通过该国的金融监管机构Superintendencia Financiera de Colombia (SFC) 启动了一项为期一年的试点计划，以更直接的方式为公民提供比特币和加密货币服务。**
+
+“加密本质上是无国界的，我们致力于扩大对全球个人的加密访问，” del Pozo García 补充道。
+
+Bancolombia银行是Bancolombia集团的一部分，该集团还拥有巴拿马和中美洲最大的银行Banistmo；BAM，来自危地马拉；以及为萨尔瓦多客户提供服务的 Banco Agricola。根据其数据报告，截至2020年12月31日，该集团拥有1780万客户。
+
+今年1月，证监会宣布已从14家申请人中选择了9家加密货币交易所参与试点。除了Gemini之外，该名单还包括币安 (Binance) 和墨西哥公司Bitso。币安 (Binance)将与哥伦比亚第三大银行Davivienda和数字支付应用程序Powwi合作，而Bitso将与 Banco de Bogotá合作。
+
+文章来源：[https://www.zerohedge.com/crypto/colombias-biggest-bank-offer-bitcoin-trading](https://www.zerohedge.com/crypto/colombias-biggest-bank-offer-bitcoin-trading)
+
+翻译：洛杉矶盘古农场 – Raul
+
+校对：洛杉矶盘古农场 – Mike Li
+
+评论：洛杉矶盘古农场 – 滴水穿石
+
+编辑：洛杉矶盘古农场– 滴水穿石
+
+
+![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入: (或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

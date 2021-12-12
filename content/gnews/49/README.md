@@ -2,31 +2,34 @@
 ---
 
 
-## 澳大利亚的疫苗护照，是出于政治需要还是医疗原因？
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1742917/)
+## 美众议院通过三项针对中共国人权问题法案
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1743663/)
 
-作者：悯先生
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片-1-22.jpg)
-近日，Australian Technical Advisory Group on Immunisation (ATAGI)的免疫学专家参加澳大利亚议会所举行的听证会。
+#### **撰稿：**日本东京方舟农场 子辰
 
-被问到关于由各州制定的疫苗护照是否有必要的的时候，ATAGI的主席Christopher Blyth说，ATAGI从未推荐强制疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/E8D759D9-6EAF-4B35-A1A6-D6279BDDE7E3.jpeg)（图片来自网络）
 
-他继续解释，如何具体推广疫苗和管理，是各州自己决定。
+据《美国之音》报道，近日，三项有关中共国人权问题的议案在美国国会众议院获得表决通过。
 
-同时，另一位专家Allen Cheng对澳洲已形成新冠病毒群体免疫的观点有自己的看法。他提出，疫苗并非100%有效，有效性会随时间推移减弱，而且病毒有变异情况。
+此前，众议院议长佩洛西在一份声明中表示，“通过这三项法案，众议院发出一个清晰且直接的信息：中（共）国针对维吾尔人的犯罪行为构成种族灭绝罪，必须立即停止。”
 
-卫生部长Greg Hunt说澳洲居民很快就可以选择辉瑞或是莫德纳作为加强针。
+此次通过的三项法案中的其中一项是《防止强迫维吾尔人劳动法》（The Uyghur Forced Labor Prevention Act）。这一法案旨在确保中共国新疆强迫劳动制造的商品不得进入美国市场。今年7月，该法案已获得国会参议院两党议员一致通过。
 
-他强调面临新变种的威胁，加强针是必要的。
+另一项法案则是有关谴责中共继续针对维吾尔人及其他宗教和少数民族实施的种族灭绝和犯罪行为。
 
-官方专家对强制疫苗的表态，让笔者联想到很多西方国家的强制疫苗的政令层出不穷，这到底是出于科学健康，还是这些政府的政治需要？
+第三项法案是国会众议院认为国际奥林匹克运动会未能遵守自身对人权的承诺。这一法案的立场对白宫最终宣布外交抵制北京冬奥会起到决定性作用。
 
-同时，最近政府媒体大量扩散新变种的消息，恰好正是推行加强针的时间点，这是不是太巧合了？
+美国国会之前已经通过了《2020年维吾尔人权政策法》、《支持西藏人政策法》和《2019年香港人权与民主法》。议长佩洛西表示，将这些法案加在一起，众议院会继续要求中共对其践踏和压制人权的行为负责。
 
-新闻链接：[https://www.heraldsun.com.au/coronavirus/australias-expert-immunisation-says-they-never-recommended-covid-vaccine-mandates/news-story/6adbdda47821393af156772501490691](https://www.heraldsun.com.au/coronavirus/australias-expert-immunisation-says-they-never-recommended-covid-vaccine-mandates/news-story/6adbdda47821393af156772501490691)
+*参考链接： [佩洛西宣布众议院将在同一天通过三项中国人权问题法案](https://www.voachinese.com/a/congress-china-human-rights-20211208/6344051.html)*
 
-审核校对：Barry Jack
-上传排版：F
+* * *
+
+*素材采编：子辰*
+
+*编辑：青衣青青*
+
+*发布：miumiu*
 
  
 

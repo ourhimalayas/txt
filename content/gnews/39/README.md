@@ -2,32 +2,30 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月11日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1745084/)
+## 樱花灭共诗——赠别孟凡海
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1745244/)
 
-作者：香草山翻译部
+撰稿：东京樱花团/小小杜
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-584.png)
+未离询去处，
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-3.jpg)
+君已白头翁。
 
+大路余残叶，
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1211text-SC.png)
-校对：Stay文苑
+天边只北风。
 
-编辑：Stay文苑
+世传朝国裕，
 
-发稿：Stay文苑
+谁问子民穷。
 
-视频参看：[12.11  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61b54fbd56f4921401b5947b)
+不惜将衰老，
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-69.jpeg)
+奔波道路中。
 
-**更多资讯，更多关注**
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

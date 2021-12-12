@@ -2,46 +2,51 @@
 ---
 
 
-## 日本东京方舟农场文化灭共「力挺班农」
-` WindTalker` [轉載自GNews](https://gnews.org/zh-hans/1711799/)
+## “班农先生不睬案”审理日期已确定
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1737586/)
 
-——日本东京方舟农场战友「方舟柒公子」言：积跬步，致千里，每天做一点，不虚度光阴。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-**设计/策划/撰文：宇宙之泾 **
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/12/B-4.jpg)hurriyetdailynews.com
+“班农先生不睬案”的定义详见Gnews文章。【1】
 
-**绘画/书法/篆刻：方舟柒公子**
+司法部企图回避班农先生团队要求公布更多的文件，希望速战速决，快速了解此案，提出明年4月份审理的要求，而班农先生需要追究这起诉讼案更深的背景，提出明年10月份进行法庭审理，法官则进行了折中，确定在2022年7月18日进行。【2】
 
-**书法：Livre 动漫画：星空**
+《门道专家》对司法部的行径进行了指责，“对班农先生的案子希望隐藏证据、光速结案——而对1.6抗议者无审判日期，要他们牢底坐穿”。【3】
 
-近期，日本东京方舟文化灭共组我们有关注到美国影子政府鬼魅势力与邪魔中国共产党明来暗往的勾结，就是对于我们新中国联邦最坚定的战友，美国天主教徒，美国政坛和世界政坛的领袖级人物班农先生的污蔑诋毁和政治迫害。对此，战友们作为新中国联邦的小水滴也迅速作出了回应和行动。班农先生倡导的平民主义和文贵先生一直挂在嘴边的正道主义不谋而合，都是为了我们平民草根在发声和奔走呼告，而班农先生在法治基金成立三周年大直播中，我们尊敬的文贵先生专门提起：班农先生认为「平民主义」运动和路线一定是来自于社会各个阶层并不单是一个阶层。
+全文如下：
 
-在说到我们每个战友非常敬佩和喜爱的班农先生时，有说起班农先生对中国人真挚的爱和疼惜，媒体平台直播不要任何他经常提到的中国「老百姓」的打赏，拒绝文贵先生的生日「红包」等等细节描述，七哥说：“中国共产党永远不会知道这个世界还有灵魂如此高贵的人物”！我们不禁又重新·把文贵先生2018年11月20日信息发布会的视频找出来再一次见证奇迹和震撼的演讲内容，历历在目，时过境迁今天再一次体会到什么是唯真不破，昨天的怒吼犹在耳旁，今天的病毒和疫苗灾难已经活生生，血淋淋呈现在各位眼前。
+有关史蒂夫·班农藐视国会案的有关信息今天公布。
 
-今年的1120当天，看完十几个小时的大直播后，我在盖特写下这么一段文字：各位战友和灭共者，今天是新中国联邦法治基金成立三周年。我们跟随七哥一直以来，坚持正道主义，平民主义，坚持揭露中国共产党的邪恶和集权独裁杀人政权，揭露真相，追求真相和信仰。经历了十几个小时的【七哥&班农先生】大直播，我们看到了文贵先生和班农先生的大智慧和勇气，灭共的自信和决心！让我们一起携手互爱互助，有钱出钱有力出力，没力出时间。把法治基金，法治社会建设得更加坚实和完善。
+美国《伟大》（American Greatness）杂志撰稿人朱莉·凯利（Julie Kelly）在推特上发布了大量描述班农在其案件中的战略信息。
 
-以下是日本东京方舟农场文化灭共组近期支持班农先生，「力挺班农」的平面作品如下：
+班农的团队计划向美国检察官办公室、司法部、白宫和美国众议院索取信息。
 
+司法部很害怕，试图阻止班农向媒体发布信息，班农的团队提醒法官，媒体希望看到这些信息。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/80AD72DC-4EFC-4E89-AE67-EBCDEC829568_1_201_a.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/F4983E9C-0416-4BA0-8874-DE4839B0E706.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/00343A9F-BEEB-4B64-9BF2-C9F6C2346CDB_1_102_o.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/7AC28DA0-AAAC-4832-9C15-18FFB95B0E0C_1_102_o.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/28326041-352A-48DF-A85F-6CB512C66357_1_102_o.jpeg)![](https://assets.gnews.org/wp-content/uploads/2021/12/1C9341BF-3B1B-4170-B029-EC299AE44039.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/85A9DBF3-4860-4C4F-8B7B-962289F759D4_1_100_o-1-scaled.jpeg)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/73A43459-2029-4DBE-89E4-993EF95E97A9_1_201_a.jpeg)
+文章附上了凯利的推文。
 
-- **只有那些疯狂到认为自己可以改变世界的人，才能真正改变这个世界。**
+法官似乎站在腐败犯罪的司法部一边。
 
+班农正在追捕腐败和非法的1.6委员会。
 
+共和党人迷路了，他们在树林里寻找出路，他们根本帮不上忙。
 
+1.6（抗议者的）案件被推迟，但班农的案子必须以光速行动？
 
+掌管我们司法部和美国政府的是一个多么腐败的集团啊。这一切都始于奥巴马。
 
+（原文完）
 
-2021年12月| 一 | 二 | 三 | 四 | 五 | 六 | 日 |
-| --- | --- | --- | --- | --- | --- | --- |
-|   | [1](https://gnews.org/zh-hans/date/2021/12/01/) | 2 | 3 | 4 | 5 |
-| 6 | 7 | 8 | 9 | 10 | 11 | 12 |
-| 13 | 14 | 15 | 16 | 17 | 18 | 19 |
-| 20 | 21 | 22 | 23 | 24 | 25 | 26 |
-| 27 | 28 | 29 | 30 | 31 |   |
+有关链接：
 
-[« 11月](https://gnews.org/zh-hans/date/2021/11/)  
- 
+【1】[https://gnews.org/zh-hans/1706104/](https://gnews.org/zh-hans/1706104/)
+
+【2】[https://thehill.com/regulation/court-battles/584703-judge-sets-july-trial-date-in-bannon-case](https://thehill.com/regulation/court-battles/584703-judge-sets-july-trial-date-in-bannon-case)
+
+【3】[https://www.thegatewaypundit.com/2021/12/doj-steve-bannons-court-case-wants-withhold-evidence-move-light-speed-j6-protesters-held-jail-still-dont-court-dates/](https://www.thegatewaypundit.com/2021/12/doj-steve-bannons-court-case-wants-withhold-evidence-move-light-speed-j6-protesters-held-jail-still-dont-court-dates/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

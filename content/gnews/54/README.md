@@ -2,24 +2,32 @@
 ---
 
 
-## 继兰州关闭中国银行后，山西关闭19家银行
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1742196/)
+## 澳大利亚的疫苗护照，是出于政治需要还是医疗原因？
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1742917/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/12/44-6.jpg)图片来源
-中国经济网12月10报道，山西监管局发布关于多处交通银行支行终止营业的批复，交通银行共终止营业19家支行，涉及太原、晋中、运城、阳泉、长治、朔州、晋城等地。
+作者：悯先生
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片-1-22.jpg)
+近日，Australian Technical Advisory Group on Immunisation (ATAGI)的免疫学专家参加澳大利亚议会所举行的听证会。
 
-交通银行年报显示，该行始建于1908年，是中国历史最悠久的银行之一，也是近代中国的发钞行之一。1986年7月，国务院批准重新组建交通银行，是新中国第一家股份制商业银行。2003年，划归中国银行业监督管理委员会管理。于2005年6月、2007年5月先后在港交所、上交所上市。交通银行前三季度实现营业收入1999.70亿元，净利润643.60亿通银行曾是国有银行信用卡业务的排头兵。
+被问到关于由各州制定的疫苗护照是否有必要的的时候，ATAGI的主席Christopher Blyth说，ATAGI从未推荐强制疫苗。
 
-这是继11月30日，甘肃中国银行兰州分行关闭后又一省份关闭银行，早在2016年时，交通银行便成为第四家发卡量突破5000万张大关的银行，2020年末，在国有六大行中，交通银行仍以2.27%的信用卡不良率位居第一位。
+他继续解释，如何具体推广疫苗和管理，是各州自己决定。
 
-消息来源：
+同时，另一位专家Allen Cheng对澳洲已形成新冠病毒群体免疫的观点有自己的看法。他提出，疫苗并非100%有效，有效性会随时间推移减弱，而且病毒有变异情况。
 
-[交通银行1个月关19家山西支行！投诉量居国有大型商业银行第一](https://ms.mbd.baidu.com/r/xMPDHj12Rq?f=cp&amp;rs=3313457208&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=d45dea174b3aa4fe)
+卫生部长Greg Hunt说澳洲居民很快就可以选择辉瑞或是莫德纳作为加强针。
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+他强调面临新变种的威胁，加强针是必要的。
+
+官方专家对强制疫苗的表态，让笔者联想到很多西方国家的强制疫苗的政令层出不穷，这到底是出于科学健康，还是这些政府的政治需要？
+
+同时，最近政府媒体大量扩散新变种的消息，恰好正是推行加强针的时间点，这是不是太巧合了？
+
+新闻链接：[https://www.heraldsun.com.au/coronavirus/australias-expert-immunisation-says-they-never-recommended-covid-vaccine-mandates/news-story/6adbdda47821393af156772501490691](https://www.heraldsun.com.au/coronavirus/australias-expert-immunisation-says-they-never-recommended-covid-vaccine-mandates/news-story/6adbdda47821393af156772501490691)
+
+审核校对：Barry Jack
+上传排版：F
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

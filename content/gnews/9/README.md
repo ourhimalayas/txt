@@ -2,23 +2,34 @@
 ---
 
 
-## 澳大利亚帮助太平洋国家修复互联网以对抗中共国
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1745588/)
+## 习近平家族布局全球社交媒体
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1745623/)
 
-翻译：Shirley
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Aus-.png)图片来自网络
-澳大利亚与日本和美国合作，帮助改善三个太平洋岛国的互联网接入，努力对抗中共国在该地区的影响。此项合作将建立一条新的海底电缆，为基里巴斯、瑙鲁和密克罗尼西亚联邦提供更快和更可靠的互联网连接。
+作者：纽约香草山农场-文真
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-6.png)
+在12月10日的大直播中，郭文贵先生爆料，中共在全球投资了近三万家社交媒体。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-604.png)
+2016至2017年期间，郭先生曾在许多重大场合揭露社交媒体是中共的核武器，当时遭到众多非议。直到2020年中共病毒大流行和美国大选，主流社交媒体联合一致对自由言论进行打压，西方国家才清醒地认识到社交媒体对西方民主的危害。
 
-[澳洲外交部长玛丽斯](https://www.smh.com.au/politics/federal/australia-to-help-fix-internet-for-pacific-nations-in-bid-to-counter-china-20211212-p59guj.html)[·佩恩在与其他部长的联合声明中说](https://www.smh.com.au/politics/federal/australia-to-help-fix-internet-for-pacific-nations-in-bid-to-counter-china-20211212-p59guj.html)，更好的互联网将为密克罗尼西亚三国的10万人提供经济增长，更多的发展机会和改善生活水平。
+文贵先生爆料，习近平家人早在2006年以前，就开始在海外投资社交媒体了。习近平家族控制华为公司、中兴公司和稀土资源的目的，就是相信社交硬件、社交媒体是社交必需品，控制社交媒体就控制了人类的未来。
 
-联合声明说，”这不仅是一项基础设施投资，它代表了一种持久的伙伴关系，在此地区面临前所未有的经济和战略挑战时，提供实际和有意义的解决方案。六国合作强调了在关键电信基础设施方面合作的承诺，并为该地区的可靠和安全的互联网做出贡献。”
+共产党善于利用社交媒体给人洗脑，划分派别，散布仇恨。过去二十年，社交媒体蓬勃发展，使用社交媒体的人群集中在15至45岁，同时他们也是受社交媒体毒害最深的人群。
 
-来自密克罗尼西亚三国总统、日本外相和美国国务卿的声明说，这种伙伴关系表明有关国家致力于 “与太平洋国家以及它们之间建立透明的、财政上可持续的、具有催化作用的基础设施伙伴关系”。它补充说，这些伙伴关系满足了真正的需求并尊重主权。
+新闻链接：[2021年12月10日 文贵大直播](https://gtv.org/video/id=61b350ad56f4921401b40cca)
 
-这一伙伴关系是在中共国支持的铺设海底电信电缆的投标于6月被否决之后建立的。在过去十年中，中共国向太平洋国家提供了数亿澳元的贷款，用于各种项目，包括移动电话网络。这一伙伴关系帮助该地区避免了由中共国支持的贷款及引发的债务负担。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-4.png)
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1.jpg)
+总编/编辑：飞虹
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-6.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

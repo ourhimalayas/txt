@@ -2,40 +2,50 @@
 ---
 
 
-## 班农提出动议 要求公开法庭案件中的所有文件
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1699695/)
+## 媒体集团响应班农 要求司法部公开调查文件
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1711504/)
 
-**编译：Jenny Ball**
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip81.png)调查 1 月 6 日在国会大厦发生的未遂叛乱的众议院特别委员会面临着与前特朗普政府官员的艰苦战斗。 （布莱尔公会/华盛顿邮报）
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/12/B.jpg)djhjmedia.com
+令笔者惊讶的是，那些左媒，甚至是极左媒体也加入了此行列，包括《有线电视新闻网》（CNN）、《美国广播公司》（ABC）、《纽约时报》（NYT）、《华盛顿邮报》（WaPo）、《华尔街日报》等。
 
-前川普白宫顾问斯蒂夫·班农 (Stephen K. Bannon) , 已向美国地方法院提出反对标准的发现保护令，该命令禁止任何一方公开发布文件或证据。
+《门道专家》文章的题目是“包括CNN、ABC、NYT和WaPo在内的《媒体集团》（Media Group），提交了法律诉求摘要，加入了‘班农先生不睬案’而要求公开司法部文件的诉讼”。【1】
 
-67 岁的班农上周对藐视国会的指控表示不认罪，他的法律团队此前争辩道，如果同意检方的发现保护令，案件会更加复杂。
+笔者注，“班农先生不睬案”乃“班农‘不睬民主党人国会调查委员会’案”，参见Gnews文章：班农“不睬民主党人国会调查委员会”案新进展【2】。
 
-律师代表班农向《华盛顿邮报》提供的一份声明说：“公众应该根据所有事实，才能对美国司法部是否致力于公正做出他们自己的独立判断。”“在今天提出的反对意见中，班农先生要求法官遵循正常程序，并允许不受限制地访问和使用文件。”
+《门道专家》的全文如下：
 
-美国助理检察官阿曼达·沃恩（Amanda R. Vaughn）表示，将提供“少于 20 份文件”，但班农律师埃文·科克兰（Evan Corcoran）告诉记者，辩方可能需要找到更多文件和证人。
+周一（11月30日），美国司法部拒绝了史蒂夫·班农（Steve Bannon）关于透明度的要求，并（试图）剥夺他要求公开司法部有关虚假的1.6委员会调查文件的权利。
 
-班农的法律团队称，政府没有提供任何理由不让公众看到这些文件，并补充说，在本案中，许多受拟议保护令限制的文件已经公开。
+司法部称这是班农“通过媒体审理此案”的一次尝试，他要将所有文件和材料公开，以便美国人民能够了解情况，并对案件的是非曲直做出自己的判断。但朝鲜政权不希望这样，毕竟，如果真相泄露，政权应该如何控制话语权？
 
-“政府没有提供任何理由限制班农先生的律师使用这些文件准备辩护，”班农的声明说。
+史蒂夫·班农因拒绝与利兹·切尼（Liz Cheney）的垃圾的1.6委员会合作而被指控藐视国会。
 
-班农拒绝遵守调查 1 月 6 日国会大厦袭击事件的众议院特别委员会的命令，以提供有关他在袭击前的行为的记录和证词。委员会有兴趣就 1 月 6 日之前一周内，班农在威拉德酒店的活动向他提问。
+但周二（11月30日），美国几家主要媒体提交了一份法律诉求摘要，支持班农及其向美国公众公开的努力。
 
-**评论：所有伟人都是经历的巨大的磨难，如果班农先生没有在中共渗透和控制的美国司法走一遭，他永远不会真切地认识到中共对美国影响的灾难到了什么程度！不在痛苦中生，必将在痛苦中亡！**
+《每日邮报》（The Daily Mail）报道：
 
-**新闻来源**：[washingtonpost.com][Stephen K. Bannon files motion to request all documents in court case be made public](https://www.washingtonpost.com/politics/stephen-k-bannons-lawyers-file-opposition-to-keeping-documents-from-being-released/2021/11/25/29889174-4e3e-11ec-b73b-a00d6e559a6e_story.html?utm_campaign=wp_post_most&amp;utm_medium=email&amp;utm_source=newsletter&amp;wpisrc=nl_most&amp;carta-url=https%3A%2F%2Fs2.washingtonpost.com%2Fcar-ln-tr%2F3561315%2F61a114979d2fdab56ba15957%2F5e2dde419bbc0f6326309bfd%2F39%2F72%2F61a114979d2fdab56ba15957)
+一个主要媒体公司联盟提交了一份法律诉求摘要，支持前川普白宫首席策略师史蒂夫·班农在法庭上反对一项拟议的保护令，该保护令将阻止他公布1月6日的文件和信息。
 
-* * *
+《媒体集团》——包括CNN、ABC、NBC、华盛顿邮报、纽约时报和《华尔街日报》的母公司——提出了一项干预动议，因为班农反对政府提出的命令，这是他藐视国会案的一部分。
 
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
+这项命令将严重限制班农利用政府信息库的能力，而政府的这些信息必须作为正常取证过程的一部分进行共享，并且应该已经开始移交。根据之前的一份政府文件，这包括1000多页的证人证词、大陪审团材料，甚至“众议院1月6日调查国会暴乱委员会”（the House Jan. 6th Committee investigating the Capitol riot）工作人员的电子邮件。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
+该新闻集团认为，政府提出的命令将违反第一修正案——并引用了政府自己的观点，即允许班农使用这些材料将导致审前宣传，可能会玷污陪审团成员。
 
+（全文完）
 
+笔者前天（11月29日）的文章，对拜登政府司法部的逻辑，“允许班农使用这些材料将导致审前宣传，可能会玷污陪审团成员”，表示过愤怒与无奈，“花纳税人巨额资金供养的司法部竟然堕落到了如此地步，如此荒诞的逻辑居然好意思公开发表，而且如此贬低公众，低估公众的智商，无语了！看看法官怎样判决吧！”【2】。经过几天的反思，媒体清醒了？不想成为被愚弄的一部分？不想生活在“中共和朝鲜”的环境？看来“大觉醒”进入到“媒体醒悟”阶段，竟然大左媒也不甘受辱了！
+
+需要订正一下《门道专家》此文的不当一处，利兹·切尼（Liz Cheney）在“垃圾委员会”的角色只是个帮凶，共和党的叛徒，祸根是佩洛西。佩洛西在成立这个垃圾1.6委员会时，利用权力将共和党主管推荐的公正人员排除，自己挑选了几个共和党叛徒，构成了号称是个“两党的委员会”，她是陷害川普、班农的罪魁祸首。
+
+原文链接：
+
+【1】[https://www.thegatewaypundit.com/2021/11/media-group-including-cnn-abc-nyt-wapo-file-legal-brief-joining-steve-bannons-bid-unseal-documents-doj-contempt-congress-case/](https://www.thegatewaypundit.com/2021/11/media-group-including-cnn-abc-nyt-wapo-file-legal-brief-joining-steve-bannons-bid-unseal-documents-doj-contempt-congress-case/)
+
+【2】[https://gnews.org/zh-hans/1706104/](https://gnews.org/zh-hans/1706104/)
 
  
 

@@ -2,34 +2,20 @@
 ---
 
 
-## 郭先生谈新中国联邦灭共后的中国重建
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1745555/)
+## 日本和韩国外长首次会晤，谈话涉及慰安妇
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1745589/)
 
-撰稿：银河勇气星—骄子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-2.png)
-12月10日，郭先生在直播中提及，由于在中共走向灭亡的同时，会出现无数个新的势力妄图继续奴役中国人。所以新中国联邦要避免中国内部出现天真的政治家、美国某政党控制的傀儡、军阀割据等乱象，以至于催生另一个被苏维埃共产主义洗脑的新独裁政权，再次将中国人拉向独裁统治的时代。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-602.png)
-文贵先生确信，新中国联邦会在这无数次的较量中，利用一切力量来捍卫中国人一人一票选出新政权，完全兑现新中国联邦宣言，在台湾、香港、新疆、西藏、广东等地采取联邦制。
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-608.png)[图片来源](https://news.yahoo.co.jp/articles/629c02a4c6fae184eb652b3381c9dfe0925d0b32)
+时事通信社12月12日消息：日本时间12日在利物浦举行的七国集团外长晚宴上，日本外长林芳正与韩国外长郑义溶进行了简短的交谈。
 
-郭先生最后提到，在灭共以后，中国人必须要在三个方面实现独立，一是人格、法律、宗教、信仰的独立；二是思维方式、言语自由的独立；三是在国际上完全独立，不再受包括好莱坞、华尔街在内的黑暗势力的摆布。
+林芳正要求对前劳工和慰安妇问题作出适当的应对，但郑义溶重申了韩国的立场，触碰到了这一话题的平行点。这是林芳正上任以来日本和韩国外长之间的首次接触。林芳正说，是韩国方面主动跟他搭话。
 
+信息来源：[元徴用工、慰安婦で平行線　日韓外相が初対面（時事通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/629c02a4c6fae184eb652b3381c9dfe0925d0b32)
 
-
-新闻来源：[2021年12月10日 文贵大直播](https://gtv.org/video/id=61b350ad56f4921401b40cca)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-4.png)
-
-总编/编辑：飞虹
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-6.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
