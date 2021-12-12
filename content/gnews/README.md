@@ -15,119 +15,119 @@
 
 ---
 
-### [改编《满江红 · 怒发冲冠》](/content/gnews/1/README.md)
+### [日本反北京冬奥委会游行：决不忘苦于中共独裁的中国人](/content/gnews/1/README.md)
+ ` 日本东京方舟农场`
+
+### [改编《满江红 · 怒发冲冠》](/content/gnews/2/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm Toronto(CA)`
 
-### [秘翻在线: 布林肯将访问东南亚三国，加强反共联盟](/content/gnews/2/README.md)
+### [秘翻在线: 布林肯将访问东南亚三国，加强反共联盟](/content/gnews/3/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国对中共国、缅甸和朝鲜实施广泛人权制裁](/content/gnews/3/README.md)
+### [美国对中共国、缅甸和朝鲜实施广泛人权制裁](/content/gnews/4/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [秘翻在线: 布林肯将访问东南亚三国，加强反共联盟](/content/gnews/4/README.md)
+### [秘翻在线: 布林肯将访问东南亚三国，加强反共联盟](/content/gnews/5/README.md)
  ` 秘密翻译组-原创组`
 
-### [文贵爆料12.12：躺平币为公有链 100% 独立 可与任何币互换](/content/gnews/5/README.md)
+### [文贵爆料12.12：躺平币为公有链 100% 独立 可与任何币互换](/content/gnews/6/README.md)
  ` 秘密翻译组-原创组`
 
-### [爆炸新闻-英格兰儿童 &#8220;突然死亡&#8221;是因为不良批次的辉瑞疫苗造成的吗？](/content/gnews/6/README.md)
+### [爆炸新闻-英格兰儿童 &#8220;突然死亡&#8221;是因为不良批次的辉瑞疫苗造成的吗？](/content/gnews/7/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [随喜币上月球的文化逻辑](/content/gnews/7/README.md)
+### [随喜币上月球的文化逻辑](/content/gnews/8/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm Toronto(CA)`
 
-### [美29州现Omicron病例 大部分已接种疫苗](/content/gnews/8/README.md)
+### [美29州现Omicron病例 大部分已接种疫苗](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [韩儿童接种疫苗规定激怒家长 学校陷入困境](/content/gnews/9/README.md)
+### [韩儿童接种疫苗规定激怒家长 学校陷入困境](/content/gnews/10/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [俄警告美国：领空入侵危险](/content/gnews/10/README.md)
+### [俄警告美国：领空入侵危险](/content/gnews/11/README.md)
  ` 焦點20分`
 
-### [CCP如何运用驭民五术奴役中国人民](/content/gnews/11/README.md)
+### [CCP如何运用驭民五术奴役中国人民](/content/gnews/12/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm Toronto(CA)`
 
-### [12.12文贵视角: “坚决不希望习死”](/content/gnews/12/README.md)
+### [12.12文贵视角: “坚决不希望习死”](/content/gnews/13/README.md)
  ` 秘密翻译组-原创组`
 
-### [6万名科学家呼吁结束大规模疫苗接种](/content/gnews/13/README.md)
+### [6万名科学家呼吁结束大规模疫苗接种](/content/gnews/14/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [南非——一个被Omicron污名化的国家](/content/gnews/14/README.md)
+### [南非——一个被Omicron污名化的国家](/content/gnews/15/README.md)
  ` 纽约香草山MOS02`
 
-### [日本专家警告称，疫苗对年轻人的死亡风险是COVID-19的7倍](/content/gnews/15/README.md)
+### [日本专家警告称，疫苗对年轻人的死亡风险是COVID-19的7倍](/content/gnews/16/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [香草山翻译部周刊|2021年12月12日第26期](/content/gnews/16/README.md)
+### [香草山翻译部周刊|2021年12月12日第26期](/content/gnews/17/README.md)
  ` 纽约香草山MOS01`
 
-### [俄罗斯喀秋莎农场12月11日直播 聊聊奥运会](/content/gnews/17/README.md)
+### [俄罗斯喀秋莎农场12月11日直播 聊聊奥运会](/content/gnews/18/README.md)
  ` HimalayaRussia`
 
-### [美国疾病控制与预防中心（CDC）承认：大多数Omicron感染者是完全接种疫苗者](/content/gnews/18/README.md)
+### [美国疾病控制与预防中心（CDC）承认：大多数Omicron感染者是完全接种疫苗者](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [金融大师：我们被引诱给自己建起监狱(4/4)](/content/gnews/19/README.md)
+### [金融大师：我们被引诱给自己建起监狱(4/4)](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中国粮食问题研究](/content/gnews/20/README.md)
+### [中国粮食问题研究](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [金融大师：我们被引诱给自己建起监狱(3/4)](/content/gnews/21/README.md)
+### [金融大师：我们被引诱给自己建起监狱(3/4)](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2021/12/12 墙内世界](/content/gnews/22/README.md)
+### [2021/12/12 墙内世界](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [金融大师：我们被引诱给自己建起监狱(2/4)](/content/gnews/23/README.md)
+### [金融大师：我们被引诱给自己建起监狱(2/4)](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [南非医疗保健主管表示Omicron“可能标志着 COVID-19 的终结”](/content/gnews/24/README.md)
+### [南非医疗保健主管表示Omicron“可能标志着 COVID-19 的终结”](/content/gnews/25/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美财政部在国际人权日宣布制裁严重侵犯人权的犯罪者](/content/gnews/25/README.md)
+### [美财政部在国际人权日宣布制裁严重侵犯人权的犯罪者](/content/gnews/26/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [12月12日文贵大直播快讯——习神的狂妄将导致中共的毁灭](/content/gnews/26/README.md)
+### [12月12日文贵大直播快讯——习神的狂妄将导致中共的毁灭](/content/gnews/27/README.md)
  ` 澳喜特战旅Gnews`
 
-### [元曲今作：南吕·Hcoin To the Moon 颠覆之歌](/content/gnews/27/README.md)
+### [元曲今作：南吕·Hcoin To the Moon 颠覆之歌](/content/gnews/28/README.md)
  ` HimalayaRussia`
 
-### [英国间谍头子对中共数字人民币的表示担忧](/content/gnews/28/README.md)
+### [英国间谍头子对中共数字人民币的表示担忧](/content/gnews/29/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [文贵爆料 12.12：联俄抗美——一场相思一场梦](/content/gnews/29/README.md)
+### [文贵爆料 12.12：联俄抗美——一场相思一场梦](/content/gnews/30/README.md)
  ` 秘密翻译组-原创组`
 
-### [共产党张牙舞爪的日子到头了 欧盟开始抵制中共](/content/gnews/30/README.md)
+### [共产党张牙舞爪的日子到头了 欧盟开始抵制中共](/content/gnews/31/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2021年12月12日郭先生大直播文字同步精要](/content/gnews/31/README.md)
+### [2021年12月12日郭先生大直播文字同步精要](/content/gnews/32/README.md)
  ` 焦點20分`
 
-### [12月12日文贵大直播快讯——俄方明确声明不支持攻台战略](/content/gnews/32/README.md)
+### [12月12日文贵大直播快讯——俄方明确声明不支持攻台战略](/content/gnews/33/README.md)
  ` 澳喜特战旅Gnews`
 
-### [加州学校为男孩接种COVID-19疫苗，并告诉他不要说出去](/content/gnews/33/README.md)
+### [加州学校为男孩接种COVID-19疫苗，并告诉他不要说出去](/content/gnews/34/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2021年12月08日郭文贵先生直播中文简报](/content/gnews/34/README.md)
+### [2021年12月08日郭文贵先生直播中文简报](/content/gnews/35/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [GTV新闻访谈简报|2021年12月12日早](/content/gnews/35/README.md)
+### [GTV新闻访谈简报|2021年12月12日早](/content/gnews/36/README.md)
  ` 纽约香草山MOS01`
 
-### [2022日本经济复苏仍不容乐观](/content/gnews/36/README.md)
+### [2022日本经济复苏仍不容乐观](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [12/12/21 香港快讯 圆玄小学按教育局建议 向学生播南京大屠杀片段 小一学生受惊](/content/gnews/37/README.md)
+### [12/12/21 香港快讯 圆玄小学按教育局建议 向学生播南京大屠杀片段 小一学生受惊](/content/gnews/38/README.md)
  ` 英喜-粵語組`
-
-### [美国再次制裁中共官员和军企科技帮凶](/content/gnews/38/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [有声|中共研发面部识别系统的公司被美国列入黑名单](/content/gnews/39/README.md)
  ` MOSREC`

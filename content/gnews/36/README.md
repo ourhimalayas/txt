@@ -2,31 +2,28 @@
 ---
 
 
-## 2022日本经济复苏仍不容乐观
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1747390/)
+## GTV新闻访谈简报|2021年12月12日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1747696/)
 
-撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/6-23.jpg)
-[图片来源](https://diamond.jp/articles/-/284512)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-3.jpg)
 
-展望2022年的日本经济，“从疫情灾难中复苏”很可能是基调。10家主要金融机构和智库的平均预测是，2022财年（2022年4月至2023年3月）实际GDP（国内生产总值）增长率估计达到3.2%。 有明显的观点认为，在2020财年GDP跌至负4.4%的谷底后，从2021财年2.7%的预测值开始逐步恢复被认为是最可能的。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-11.png)
+文章仅代表作者本人观点，与Gnews无关
 
-2022年经济复苏的关键将是消费者支出的恢复，与疫情之前的水平相比，2021年的消费者支出下降了约6%。另一方面，由于在此期间对外出行为的限制，各家庭“强制储蓄 “数额预计接近30万亿日元。重点是这种 “强制储蓄 “有多少会流入消费。
+视频参看：[2021.12.12早GTV新闻访谈](https://gtv.org/video/id=61b5f8d856f4921401b61209)
 
-呼吁实现 “增长和分配的良性循环 “的岸田文雄首相在11月26日的“新资本主义实现会议”上表示，希望经营业绩已经恢复的公司在2022年把工资提高3%以上，这表明他希望工资增长能够有效刺激消费。岸田首相还将在明年的税收改革中扩大税收激励制度，以鼓励企业提高工资。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-但岸田首相的这项政策，有多少公司能够实施，尚且不明。所以同时也有其他观点认为，在疫情灾难的第三年，经济可能会因 “报复性消费 “而加速发展，但也存在货币过剩造成的局部泡沫破灭和经济降温的风险。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-69.jpeg)
 
-爆料革命、新中国联邦认为疫苗灾难刚刚开始，中共国恒大爆雷引起的全球经济大萧条正徐徐拉开帷幕。每个人都应做好准备。
-
-信息来源：
-
-[22年の日本経済は緩やかに改善　成長軌道にはなお高い壁](https://news.yahoo.co.jp/articles/21773948413af96d3e539c39439086863dcc4da1)
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
-
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
