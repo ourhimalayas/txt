@@ -2,58 +2,40 @@
 ---
 
 
-## 福奇称接种完第三针才能称为“完全接种疫苗”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1746058/)
+## 揭露病毒、冬奥会和踢出WTO和SWIFT来自七哥家族3亿捐款
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1746071/)
 
-**【雅典娜快讯】，紧贴时事脉****搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-144.png)图片来源：REUTERS
-翻译：不要代表我Kari
-编辑：Mttfly
+**郭文贵先生：**共产党的这种无知狂妄已经到了让我们可以跳舞的阶段了，它不走上这段儿咱没有机会灭共，到这一阶段才能证明我们对共产党的把握、对共产党的狂妄和对共产党的无知，我们是最大的赢家，绝不是美国不是联盟。
 
-《自然新闻》报道托尼·福奇（Tony Fauci）声称，“完全接种疫苗”一词将被修正为接种三次武汉冠状病毒（Covid-19）疫苗，而不只是（原来的）二次接种，“这仅是一个什么时间打的问题，而非是否应该打三针的问题。”
+我今天可以毫不夸张地、一点不夸张地说，历史会告诉你们，我们在干掉冬奥会和共产党想成功办奥运会上，历史会告诉你，我们是最早也用了合法的蓝金黄勾兑好，一定会有把握让他这些人不参加冬奥会。
 
-国家过敏和传染病研究所(NIAID)负责人，一个来自伪政府的所谓的“医生”告诉假新闻巨头媒体CNN，最终需要将接种第三针新冠疫苗加强针作为参与“新常态”的基线方案的一部分。
+七哥现在不方便说，未来哪天黑客黑掉文件以后，你们会看到，你们会万分地惊讶，记住我说过法治基金，我们在法治基金捐款到现在我们家族是第一大。我们光管给战友药品、买药、口罩，包括政治支持，包括政治游说超过3亿美元，记住我今天的话，我负法律责任的，但是我们没有捐到法治基金，跟法治基金追求的目标是一样的。
 
-福奇强调，这只是他个人的观点，与拜登政权无关。“三针疫苗接种”计划是否真的被强制授权执行，还有待观察。
+这些钱有很大一部分用在了三件事儿上——让世界认可病毒是中共的生化武器；第二就是停止冬奥会；第三把他踢出WTO和SWIFT。你们走着看。
 
-福奇在最近的另一次采访中还表示，他计划最早在2022年春季开始为婴儿完全接种疫苗，这样在他们体内也可以合成刺突蛋白（“保护他们”）。
+编辑整理：喜马拉雅的肉夹馍；
 
-福奇坚持认为，所谓的奥米克戎（omicron）变体，也被称为“蠢货”（moronic）变体，预计不会像之前的德尔塔（delta）变体那样严重。但他补充说，“蠢货”可能更具传播性。
+视频制作：Cindy；
 
-与此同时，媒体已经在头条新闻中充斥着关于辉瑞的第三剂加强针在某种程度上对“蠢货病毒”如何有效的宣传。世界卫生组织（WHO）显然也同意这一点。
+视频上传：Cindy；
 
-世卫组织紧急事务主任迈克·瑞安（Mike Ryan）博士在给法新社的一份声明中宣称：“我们拥有超极有效的疫苗，迄今为止，在严重疾病和住院治疗方面，这些疫苗已被证明对所有变异有效，没有理由期望它不会如此（有效）”。
+G-News发布：黎明之前；
 
-非洲研究人员声称“蠢货病毒”变体降低了辉瑞疫苗对抗体的保护。非洲健康研究所（AHRI）的一个科学家小组在测试了12名注射了福氏流感疫苗（福奇畅导的新冠疫苗）的人的血样后得出了不同的结论。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-注射后测试结果显示这些人的身体对抗这种“蠢货”变种病毒的能力与最初的SARS-CoV-2病毒相比惊人地下降了41倍（假设新冠病毒真的存在，因为它从未被分离出来）。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-令人惊讶的是，非洲健康研究所研究小组仍然建议人们接受“加强针”来预防“蠢货”病毒，这一建议可能源于该小组不希望因违背支持疫苗接种的说法而失去研究经费。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-任何受人尊敬的、具有高度科学水准的人居然会建议采取多次注射相同的疫苗来“对抗新的变种蠢货病毒”以修复以前疫苗造成的损害，这实在让人无法理解，这就是现在我们所处的境况。
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-请记住，该国疫苗接种率最高的地区也是新冠病例最多的地区。人们会认为，一般公众，无论其政治倾向如何，都会在这个问题上一分为二，并考虑其关联性。
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-相反，主要是左派，似乎在加倍坚持终生接种疫苗（的强制政策），他们只对福奇和拜登这种人惟命是从。
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-“这个庸医，又名福奇博士，才真需要给自己立马打一打所谓的加强针”，《自然新闻》的一位评论员开玩笑说。
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-另一个人开玩笑说：“福奇就像服用类固醇和冰毒的哈罗德·希普曼（Harold Shipman）一样”。(注：哈罗德·希普曼是英国家庭医生、连环杀手。)
-
-另一位写道：“如果父母真的把孩子交给福奇，那是他们的耻辱。然而，他们已经将6000万孩子堕胎而折磨至死，所以现在任何事情都是可以接受的。”
-
-其他人指出，大规模减少人口一直是“精英”计划的一部分，他们操纵像福奇这样没有灵魂、冷血的傀儡来完成这一计划。
-
-**原文链接：**[Fauci says “fully vaccinated” will soon mean three injections](https://www.naturalnews.com/2021-12-10-fauci-fully-vaccinated-soon-mean-three-injections.html)
-
-**发布：**去中心化Math
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

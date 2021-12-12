@@ -2,20 +2,34 @@
 ---
 
 
-## 日本和韩国外长首次会晤，谈话涉及慰安妇
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1745589/)
+## 中共将成为世界黑暗势力的替罪羊
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1745611/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-608.png)[图片来源](https://news.yahoo.co.jp/articles/629c02a4c6fae184eb652b3381c9dfe0925d0b32)
-时事通信社12月12日消息：日本时间12日在利物浦举行的七国集团外长晚宴上，日本外长林芳正与韩国外长郑义溶进行了简短的交谈。
+撰稿：纽约香草山文艺部 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-6.png)
+在12月10日的大直播中，郭文贵先生指出，病毒、疫苗与经济相互关联，当全球经济崩塌，病毒溯源、疫苗追责开始后，受害者会将怒火指向中共。最后中共将成为黑暗势力的替罪羊，并因此被消灭。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-603.png)
+郭先生感慨道，人类历史向来如此：当一个大灾难到来时，人们总会找出一两个替罪羊，掩盖所有人的罪过，历史上的独裁者诸如萨达姆、卡扎菲、齐奥塞斯库等人的下场皆如此，而这一次，当经济崩溃，民怨沸腾的时候，习近平将成为首个替罪羊。
 
-林芳正要求对前劳工和慰安妇问题作出适当的应对，但郑义溶重申了韩国的立场，触碰到了这一话题的平行点。这是林芳正上任以来日本和韩国外长之间的首次接触。林芳正说，是韩国方面主动跟他搭话。
+对于是否会有纽伦堡大审判，郭先生透露，现实未必尽如人意。美国中期选举结束后，十大灭共举措将连环出台。中共将背负所有的罪恶，被全世界追责直至灭亡。但黑暗势力仍会继续操纵政治，CDC、大药企也会照旧经营。
 
-信息来源：[元徴用工、慰安婦で平行線　日韓外相が初対面（時事通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/629c02a4c6fae184eb652b3381c9dfe0925d0b32)
+新闻链接：[2021年12月10日 文贵大直播](https://gtv.org/video/id=61b350ad56f4921401b40cca)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-4.png)
+
+总编/编辑：文真
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-6.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
