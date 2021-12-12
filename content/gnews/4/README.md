@@ -2,42 +2,20 @@
 ---
 
 
-## 奥地利上万人游行反对疫苗授权
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1745463/)
+## 中共国11月汽车销量同比下降9.1%
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1745564/)
 
-**翻译：皮特**
-**编辑：Julia**
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-605.png)[图片来源](https://www.google.com.hk/imgres?imgurl=http%3A%2F%2Ffile.cnautonews.com%3A8881%2F20211210%2Fae0ea8fd012445a0b4e78a804f600134.png&amp;imgrefurl=http%3A%2F%2Fwww.cnautonews.com%2F&amp;tbnid=JUyHZJxVTN1zoM&amp;vet=12ahUKEwjAjrq7s930AhUTg5QKHRNvAdIQMygsegUIARCUAg..i&amp;docid=8YSAWlxyhliq9M&amp;w=1543&amp;h=868&amp;itg=1&amp;q=%E6%B1%BD%E8%BD%A6&amp;hl=zh-CN&amp;ved=2ahUKEwjAjrq7s930AhUTg5QKHRNvAdIQMygsegUIARCUAg)
+12月12日重庆晨报报道，工信部发布11月汽车工业经济运行情况。据工信部介绍，2021年11月，受车用芯片供应短缺等不利因素影响，中共国汽车产销同比呈下降趋势。1-11月，新能源汽车年累计产量突破300万辆，市场渗透率达到12.7%。11月汽车销量同比下降9.1%，乘用车销量同比下降4.7%，商用车销量同比下降30.3%。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/000000.jpg)图片来源：rt.com截图
+2020年中共国家庭的偿债负担为137.9％，变成纯负债大国，每个国人负债7万元额度，疫情病毒和毒疫苗肆虐，高消费，高房价，零福利，高支出，房子和汽车成为国人头顶的两座大山，只求能够平安健康，以无从过多消费支出。
 
-据今日俄罗斯12月11日报导，周六(11日)，约2万名示威者涌入维也纳街头，抗议奥地利政府计划在明年初执行的新冠(中共病毒)疫苗强制令。
+消息来源：[重磅数据｜工信部：11月汽车销量同比下降9.1%](https://ml.mbd.baidu.com/r/xRN4lPdrwI?f=cp&amp;rs=829276569&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=f01a0f4869b5e763)
 
-示威组织反对将于2022年2月推出的全国性Covid-19疫苗强制接种，并将该活动宣传为 “为自由、反对混乱和胁迫的示威”。
-
-维也纳警方已经部署了1400名警察，包括来自其他地区的增援，以防止出现重大骚乱，并确保人们佩戴口罩。
-
-示威者举着 “反对强制接种疫苗 “和 “不要碰我们的孩子 “等标语游行。其他人则呼吁政府下台。
-
-奥地利的右翼自由党是周六举行的最大的反强制疫苗抗议活动背后的团体之一。活动人士本周向维也纳当局通报了32个计划中的集会，尽管并非所有的集会都是反强制疫苗抗议活动。其中有8个示威活动因各种原因被禁止。
-
-在周六的集会之前，奥地利自由党领导人赫伯特·基克尔呼吁示威者表现得和平一些。上周的一次类似集会吸引了4万多人参加。
-
-上个月，当时的总理亚历山大·沙伦伯格宣布，所有奥地利人，除了那些有医疗豁免权的人和14岁以下的儿童，都必须在明年2月1日前接种疫苗。他后来辞职了，但他的继任者卡尔·内哈默表示，这一政策将继续实施。
-
-保守派政府周四宣布，拒绝接种疫苗的人将面临每三个月3600欧元（4071美元）的罚款，直到2024年1月。如果这一政令得到议会的批准（这很有可能），奥地利将成为第一个实施全面的强制疫苗的欧盟国家。
-
-大约68%的奥地利人已经完全接种了Covid疫苗，这一比例明显低于大多数西欧国家。自11月以来，奥地利一直在努力抑制大规模的Covid疫情，医生警告说，一些地区的医疗系统已经紧张到了极点。
-
-原文链接：[https://www.rt.com/news/542912-vienna-vaccine-mandate-protest/](https://www.rt.com/news/542912-vienna-vaccine-mandate-protest/)
-
-*发布：盘古相聚*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,45 +2,25 @@
 ---
 
 
-## 国际奥委会在彭帅事件上的矛盾发言 引发外界质疑
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1745395/)
+## 澳洲国防部长警告澳洲人要面对中共国的威胁
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1745437/)
 
-作者：日本方舟农场 – Andy5
+翻译：Shirley
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Australia-Peter.png)图片来自网络
+[国防部长彼得](https://www.skynews.com.au/australia-news/politics/peter-dutton-labels-chinas-reaction-to-aukus-trilateral-deal-irrational/news-story/7895da219eafa2940fc6f74df501f120)[·](https://www.skynews.com.au/australia-news/politics/peter-dutton-labels-chinas-reaction-to-aukus-trilateral-deal-irrational/news-story/7895da219eafa2940fc6f74df501f120)达顿先生周日告诉澳大利亚天空新闻，称中国对澳大利亚、美国和英国之间的AUKUS安全联盟的反应是 “非理性的”，他警告澳大利亚人要对中国日益增长的存在持现实态度。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-440.png)
+澳大利亚今年9月宣布将获得8艘核动力潜艇，这一AUKUS三边协议引起了中国政府的愤怒，中共宣布这是一个 “地缘政治游戏工具”，并暗示澳洲处于军备竞赛中。然而中共正在以每18个月的吨位速度生产的海军舰艇比澳大利亚皇家海军的整个舰队还多。
 
-12月8日和9日国际奥委会主席巴赫关于彭帅的矛盾发言，引发了外界对其正在帮助中共掩盖真相的质疑。
+达顿部长说，虽然 “没有人想要冲突”，但”这是一个不确定的时期，我们需要确保我们将志同道合的国家、朋友以及那些与我们有共同价值观和共同利益的国家联系在一起。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/10-3.png)
+达顿先生坚称澳大利亚不会放弃其主权，尽管寻求与中国保持“良好的工作关系”。
 
-国际奥委会主席巴赫在8日的记者会上称，上个月与本月，他已两次同彭帅视频通话，彭帅过得不错并且看不出受到了压迫。然而就在次日，当有记者提问“如果过得不错或者没有受到压迫，为什么国际奥委会需要站出来支援彭帅”时，巴赫却改变了论调，称彭帅处于很脆弱、不安定的状态。
+“中国大使提出了一份包含14个问题的文件，希望在两国关系正常化之前解决这些问题。然而，如果澳洲答应了中共国的14个问题，就等于交出我们的言论自由和民主价值以及我们的主权，这是澳大利亚绝不会考虑的。”
 
-这个前后矛盾的说辞，引发了外界对彭帅现状的担忧，以及对国际奥委会与中共串通一气，掩盖事件真相的质疑。
+他还补充说：”我们的问题是与中国政府有关，而不是与中国人民有关，我们希望确保我们能尽一切努力看到我们地区的和平继续下去，因为这也符合我们和我们朋友的最佳利益。”
 
-美国众议院前几天就这一问题全票通过了谴责国际奥委会的议案，并要求国际奥委会公开视频通话经过，全面调查中共前副主席、冬奥会工作小组组长张高丽对彭帅的性侵事件。
-
-参考链接：
-
-- [20211210日本FNN報導IOC巴赫前後矛盾的發言](https://www.gettr.com/post/pjdf7e867b)
-- [美众院推跨党派决议案 谴责国际奥委会配合中共掩盖彭帅事件](https://www.voachinese.com/a/us-house-resolution-condemns-ioc-china-human-rights-20211203/6339218.html)
-- [全票通过 美众院决议案谴责奥委会袒护中共](https://www.ntdtv.com/gb/2021/12/09/a103289600.html)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
-
-总编辑：飞虹
-编辑：飞虹
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
-
-
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

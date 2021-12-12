@@ -2,14 +2,31 @@
 ---
 
 
-## 习近平内心五大阴暗秘密揭秘
-` mary202064` [轉載自GNews](https://gnews.org/zh-hans/1745030/)
+## GTV新闻访谈简报|2021年12月11日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1745084/)
 
-中共国的习近平先生已经成功地把自己变成了世界人民眼中的最大独裁者和极权者，是一位视14亿百姓如草芥的CCP恶魔！习近平已经成了中华民族最大的负资产，世界邪恶轴心的代言人。从习近平本人的成长过程看，他曾经是享受特权的太子党，文化大革命让他一夜从天堂到地狱。共产党加诸于习近平的非人虐待，造就了习近平的变态人格和他对共产党的刻骨仇恨。本视频分析了习近平内心深处的五大阴暗秘密：面子大于一切的虚荣；缺乏安全感的恐惧；缺少真爱的内心孤独；睚眦必报的复仇欲望；走入“习帝一尊梦”的幻境。
+作者：香草山翻译部
 
-文案作者：正道人&海阔天空
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-3.jpg)
 
-查看作者更多文章，请点击——[中文简体](https://gnews.org/zh-hans/author/mary202064/)、[中文繁體](https://gnews.org/zh-hant/author/mary202064/)、[English Articles](https://gnews.org/author/mary202064/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1211text-SC.png)
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+视频参看：[12.11  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61b54fbd56f4921401b5947b)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-69.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
  
 

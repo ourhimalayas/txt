@@ -2,39 +2,23 @@
 ---
 
 
-## 岸田文雄支持台湾参与世界卫生组织
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1745217/)
+## 新冠疫情爆发前秘密签署了mRNA新冠疫苗转让协议
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1745295/)
 
-作者：纽约香草山教育部 – Irene木木
+翻译：喜国公民
+视频来自网络
+格林贝克节目主持人贝克先生接受[塔克卡尔森采访时披露](https://www.foxnews.com/shows/tucker-carlson-tonight)，在2019年12月，即新冠大流行爆发的几星期前，有一项秘密转让mRNA冠状病毒疫苗技术的协议。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-440.png)
+[该转让协议在推特上也有报道](https://twitter.com/pbhushan1/status/1406998785348182017)。这份日期为2019年12月12日的协议是由福奇管辖的美国国家过敏和传染病研究所 、莫得纳公司和巴里克博士签署的，将”美国国家过敏和传染病研究所和莫得纳共同拥有的mRNA冠状病毒候选疫苗”转让给巴里克（武汉病毒研究所制造致命冠状病毒的合作伙伴）!
 
-当地时间12月9日，日本首相岸田文雄在声明中表示，日本将支持台湾以观察员的身份出席世界卫生组织决策机构的年度会议。
+奇怪的是，签署秘密协议的几周后就爆发了全球范围的新冠病毒大流行。之后，巴里克等人在1月底开会，开始诋毁任何提出实验室泄漏理论的人。他们极力掩盖实验室泄漏。甚至提出不要去武汉那里检查。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/6-22.jpg)
+在2021年5月参议员兰德·保罗在参议院卫生委员会听证会上与福奇辩论时，提到巴里克博士一直与武汉病毒研究所的石正丽合作，分享他关于如何创造超级病毒的研究成果。
 
-岸田文雄提到，世界卫生组织一直坚持认为，在处理国际卫生问题时不应存在地理空白，台湾理应作为观察员出席会议。他还提出，广泛分享各国和各地区的信息与知识是很重要的，尤其在全球疫情问题上，台湾采取了很好的防控措施。
+贝克先生已经把这个信息交给了国会和参议院的几个人，兰德·保罗议员正在处理这个问题。相信福奇博士对此要给出答案。
 
-此前，由于中共国的反对，台湾被排除在大多数国际组织之外。在今年5月，包括日本在内的七大工业国就曾呼吁邀请台湾出席上一轮的世界卫生大会，但台湾未能成行。为此，日本参议院在6月通过了一项决议，要求政府敦促其他国家尽快实现台湾在世卫组织的出席。
-
-参考链接：
-
-- [Japan PM Kishida backs Taiwan’s WHO attendance](https://english.kyodonews.net/news/2021/12/300db10483c2-japan-pm-kishida-backs-taiwans-who-attendance.html)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
-
-总编辑：Ivy001
-编辑：Jack Li文阳
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
