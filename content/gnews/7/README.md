@@ -2,45 +2,48 @@
 ---
 
 
-## 恒大倒闭，澳大利亚又一个“失去的十年”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1746021/)
+## 【Michael.Tonny专栏】英国卫生安全局报告显示 疫苗就是杀人的毒药
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1746079/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-123.jpg)图片来源：墨尔本雅典娜农场设计组（姐夫说说）
-整理报道：文泓
+作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+中共病毒（Covid-19）源头真相没有弄清楚以前，强行让民众接种所谓的中共病毒疫苗，无异于故意杀人！疫苗就是杀人的毒药！
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-1639128383-4203-1639128388_r_680x408.jpg)
+根据[英国卫生安全局（UK Health Security Agency）](https://www.gov.uk/government/organisations/uk-health-security-agency)2021年12月9日发布的第49周全国流感和COVID-19监测报告（[National flu and COVID-19surveillance report:9 December 2021 (week 49)](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1039639/Weekly_Flu_and_COVID-19_report_w49.pdf)）：自8月以来的过去4个月里，英国每5个感染中共病毒的病例中有3个、每5个住院病例中有3个、每5个死亡病例中有4个是完全接种疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-612.png)
+接种中共病毒疫苗，即不能预防感染，也不能减少死亡！
 
-12月12日，澳洲媒体报道，中共国地产巨头恒大的倒闭可能为澳大利亚开启另一个“失去的十年”，表现特点是**工资增长停滞、澳元贬值、预算赤字和税收增加。**
+下图为今年8月16日到12月5日16周内按疫苗接种状态划分的英格兰感染中共病毒病例数。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/from-16-Aug-21-to-05-Dec-21-Covid-19-cases.png)
+在考虑学生们在9月开学后，学校“鼓励”学生进行定期进行测试，导致9月中旬和10 月初的数据有波动的因素后， 9月前和10月初到现在，完全接种疫苗的人群占了英格兰感染中共病毒病例的大部分。
 
-有专家表示，恒大的违约不同于雷曼兄弟式的金融危机，而是标志着中共国经济的重大结构性调整。这可能会导致重组，**外国投资者将遭受重创，但国内贷方、客户和供应商在一定程度上受到保护**。
+下图为今年8月16日到12月5日16周内按疫苗接种状态划分的住院病例，接种疫苗后感染中共病毒而住院的人数一直比未接种疫苗的人要多。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/number-of-hospitalisations-by-vaccination-status-between-16-Aug-21-and-05Dec-21.png)
+下图说明，自今年8月以来，完全接种疫苗的人群占感染中共病毒死亡人数的大部分。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/fully-vaccinated-population-have-accounted-for-the-majority-of-Covid-19-deaths-every-single-month-since-August-2021.png)
+在完全接种疫苗的人群中，单周感染中共病毒死亡人数最高为3,284，而未接种疫苗人群中，因感染中共病毒死亡的单周最高人数为 850。
 
-澳洲影响最大的是铁矿石出口，它在上一财政年度带来了1490亿澳元的收入。
+下图显示了过去16周内，未接种疫苗人群因感染中共病毒的病死率和完全接种人群的病死率对比。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/not-vaccinated-population-and-the-case-fatality-rate-among-the-vaccinated-population.png)
+未接种疫苗的人群的病死率仅为0.2%，完全接种疫苗的人群的病死率为0.8%。因此，根据英国政府的官方数据，如果感染中共病毒，完全接种疫苗的人死亡的可能性会比未接种疫苗的人增加4 倍。
 
-“好消息是你不会遇到快速的危机，但长期预期不佳，因为重要的所有大宗商品需求都会长期下降，”MB基金首席策略师大卫·卢埃林·史密斯说。
+下图显示未接种疫苗的人群因感染中共病毒的住院死亡率与完全接种疫苗的人群住院死亡率对比。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/The-hospitalisation-fatality-rate.png)
+未接种疫苗人群感染中共病毒后的住院死亡率为26%，完全接种疫苗的人群感染中共病毒后的住院死亡率达到了令人震惊的63%。这意味着完全接种疫苗的人群在因Covid-19住院后死亡的可能性要高2.4倍。
 
-恒大是全球负债最多的房地产开发商，负债超过3,000亿美元（4,200亿澳元），在本周错过重要的海外债券利息支付后，评级机构惠誉隔夜正式宣布其违约。
+疫苗就是杀人武器！
 
-自夏季以来，至少有10家仍具规模的中共国房企拖欠了债券（利息）支付。与此同时，北京对中国失控的房地产市场进行了更广泛的挤压。习近平去年出台了一套新规则，称为“三条红线”，规定了严格的借贷限额，以控制该行业不断膨胀的债务。
+参考数据：
 
-虽然中共当局正在采取措施减轻国内的压力——中国人民银行试图通过提高银行外汇持有率的要求来抑制人民币汇率，但拒绝提高利率——三条红线政策已经很大程度上推动了去杠杆，保持不变。
+[Whilst you were distracted by a Christmas Party the UK Gov. released a report confirming the Fully Vaccinated account for 4 in every 5 Covid-19 Deaths in England since August](https://dailyexpose.uk/2021/12/11/report-shows-4-in-5-covid-deaths-fully-vaccinated/)
 
-“所以换句话说，他们是故意这样做的，”卢埃林·史密斯先生说。他将其描述为试图“管控（破产）过程”，而不是引起市场恐慌。
+[Official Statistics National flu and COVID-19 surveillance reports: 2021 to 2022 season](https://www.gov.uk/government/statistics/national-flu-and-covid-19-surveillance-reports-2021-to-2022-season)
 
-卢埃林·史密斯先生说：“让恒大在这个有‘管控’的过程中破产，是他们决心在对澳大利亚最重要的领域永久放缓经济增长的一个例子。”
+[National flu and COVID-19 surveillance report: 9 December 2021 (week 49)](https://www.gov.uk/government/statistics/national-flu-and-covid-19-surveillance-reports-2021-to-2022-season)
 
-“看起来基本情况是我们将避免雷曼式危机，但在全球金融危机之后，中共国将变得像欧洲的希腊一样，它将被永久（债务）重组。因此，这是对澳大利亚经济的结构性挑战。”
+[Statistics and Research Coronavirus Pandemic (COVID-19)](https://ourworldindata.org/coronavirus)
 
-（未来）数十亿澳元的大宗商品收入损失将抹去澳大利亚当前的贸易顺差和经常账户顺差。
-
-“这将对澳大利亚名义增长造成巨大打击”，卢埃林·史密斯先生说：“这将对澳洲收入造成很大压力，很难提高工资，政府预算会受到打击，你可能面临加税以试图替代下降的企业收入。虽然这不一定是一场灾难，但它意味着又一个失去的十年。最有可能的是，生活水平将再下降十年，这就是我们在上次大宗商品崩盘后面临的情况。”
-
-新闻链接：[Iron ore: What China Evergrande’s collapse means for Australia | news.com.au — Australia’s leading news site](https://www.news.com.au/finance/economy/australian-economy/another-lost-decade-what-evergrandes-collapse-means-for-australia/news-story/0d886615c9e0ae84828f5cc9d1ae2c33)
-
-发布：去中心化Math
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/) 上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

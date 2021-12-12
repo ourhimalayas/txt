@@ -2,55 +2,34 @@
 ---
 
 
-## WHO/CDC承认全球Omicron病患症状轻微，零死亡
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1745451/)
+## 郭先生谈新中国联邦灭共后的中国重建
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1745555/)
 
-**作者**：香草山美食部-蓝天大海
+撰稿：银河勇气星—骄子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-2.png)
+12月10日，郭先生在直播中提及，由于在中共走向灭亡的同时，会出现无数个新的势力妄图继续奴役中国人。所以新中国联邦要避免中国内部出现天真的政治家、美国某政党控制的傀儡、军阀割据等乱象，以至于催生另一个被苏维埃共产主义洗脑的新独裁政权，再次将中国人拉向独裁统治的时代。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-602.png)
+文贵先生确信，新中国联邦会在这无数次的较量中，利用一切力量来捍卫中国人一人一票选出新政权，完全兑现新中国联邦宣言，在台湾、香港、新疆、西藏、广东等地采取联邦制。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-5-768x103-7.jpg)
+郭先生最后提到，在灭共以后，中国人必须要在三个方面实现独立，一是人格、法律、宗教、信仰的独立；二是思维方式、言语自由的独立；三是在国际上完全独立，不再受包括好莱坞、华尔街在内的黑暗势力的摆布。
 
 
 
+新闻来源：[2021年12月10日 文贵大直播](https://gtv.org/video/id=61b350ad56f4921401b40cca)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-4.png)
 
-12月11日，据零对冲报道，美国疾病预防控制中心（CDC）主任罗谢尔·瓦伦斯基 (Rochelle Walensky)于12月10日下午证实，美国到目前为止只有一名病患因 Omicron 病毒住院，更没有人死于Omicron，而且迄今为止，在美国发现的所有此类病例的症状都非常轻微。
+总编/编辑：飞虹
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/walensky.png)
-
-CDC与媒体共享的数据显示，目前美国至少在22个州检测到了Omicron病毒。CDC在调查了其中43名感染者后，提交了一份报告称，感染者中有超过一半的患者是年轻人，年龄介于18到39岁之间，大约75%的人完全接种了疫苗，其中包括三分之一的人接受了加强针，6例之前曾感染过新冠病毒，三分之一的感染者最近曾在国际上旅行。
-
-世界卫生组织日前也承认，目前尚未收到Omicron病毒引起的死亡病例。
-
-如果这一切都是真的，为什么人们还要恐慌呢？
-
-参阅链接：
-
-[https://www.zerohedge.com/covid-19/only-1-american-has-been-hospitalized-omicron-variant-spreads-22-states](https://www.zerohedge.com/covid-19/only-1-american-has-been-hospitalized-omicron-variant-spreads-22-states)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/dec.jpg)
-
-***终审：飞虹***
-
-***校对/发稿：遍地开花***
+校正/发稿：浪迹天涯
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-5-768x103-8.jpg)
-
-
-
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-6.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
