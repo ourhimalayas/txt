@@ -2,36 +2,31 @@
 ---
 
 
-## 德国学校搞仪式侮辱未接种疫苗儿童
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1745202/)
+## 每一位“真人真事”嘉宾都是一本故事书
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1745257/)
 
-翻译：美哥
-编辑：守望黎明
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-143.png)图片来源：Everyday Health
-德国的学校正在开始对未打中共疫苗的幼童举行羞辱仪式，让他们被迫在全班面前，解释自己不打疫苗的原因，而且每天如此。记者亚历克斯-斯托里（Alex Story）说：“老师对打过疫苗的小朋友就拍手赞赏，对没打疫苗的小朋友则天天进行这种公示质询。”
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月11日，第37期《真人真事》嘉宾是新西兰伊甸农场CEO文疯而动战友。这位在大家眼里坚毅果敢，又耐心随和的老大哥，用风趣的语言讲述了自己丰富的人生经历。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-12-上午11.38.05.png)
+谈到名字的由来，文疯战友解释到，为爆料革命而疯狂，并付诸行动，这就是起名的初衷。出生于六十年代，经历过所谓三年自然灾害、文革、八九六四等非常时期。在改革开放的年代，他作为体制内常被外派执行“蓝金黄”任务的一员，更加认清共产主义的邪恶，早早就移民澳洲。当郭先生2017年开始爆料，强烈的共鸣让文疯战友紧紧跟随，最终克服顾虑和恐惧，坚定地战斗在爆料革命第一线。
 
-是的，这是真的！
+对长岛哥询问胜利后有没有打算回国发展，文疯战友回答，再也没有比现在参与爆料革命更有意义及价值的事情了。未来会和郭先生及战友们相聚在裕达盘古，回首往事对酒当歌。每一位来到《真人真事》节目的战友，都像一本打开的故事书，且持续在书写。他们，是无数爆料革命战友的缩影。
 
-斯托里讲述了这一令人震惊的事件，德国媒体对此进行了报道。
+参考链接：[2021年12月11日 《GTV-真人真事》第37期嘉宾：新西兰伊甸农场 文疯而动](https://gtv.org/video/id=61b4c37e56f4921401b5593a)
 
-斯托里对英国媒体GB 新闻说道：”这本质上是对儿童进行羞辱的仪式性，让他们每天走到班级前面，讲述自己的疫苗接种情况。”
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-此外，德国政府只让打过疫苗、佩戴有手环的民众有资格进入商场，从而禁止不打疫苗的人购物。简直就如同上世纪30年代纳粹对待犹太人的方式。
+总编：文真
+编辑/校正/发稿：呼吸的雾霾（文小呼吸）
 
-柏林的有一个咖啡店因为给未打疫苗的人发放免费咖啡以表示支持，就招来媒体疯狂的抵制。
-
-看来现任德国领导人完全淡忘了历史，希特勒第三帝国昔日的歧视政策在最不应该出现的的地方回光返照了。
-
-原文链接：[German Schoolchildren Subjected to ‘Ritual Humiliation’ Over Their Vaccine Status](https://summit.news/2021/12/10/german-schoolchildren-subjected-to-ritual-humiliation-over-their-vaccine-status/)
-
-发布：去中心化Math
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

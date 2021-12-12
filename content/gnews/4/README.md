@@ -2,39 +2,25 @@
 ---
 
 
-## 意大利民众焚烧“绿色通行证” 声援未接种人士
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1745396/)
+## 澳洲国防部长警告澳洲人要面对中共国的威胁
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1745437/)
 
-作者：纽约香草山文艺部 – 宁文静
+翻译：Shirley
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Australia-Peter.png)图片来自网络
+[国防部长彼得](https://www.skynews.com.au/australia-news/politics/peter-dutton-labels-chinas-reaction-to-aukus-trilateral-deal-irrational/news-story/7895da219eafa2940fc6f74df501f120)[·](https://www.skynews.com.au/australia-news/politics/peter-dutton-labels-chinas-reaction-to-aukus-trilateral-deal-irrational/news-story/7895da219eafa2940fc6f74df501f120)达顿先生周日告诉澳大利亚天空新闻，称中国对澳大利亚、美国和英国之间的AUKUS安全联盟的反应是 “非理性的”，他警告澳大利亚人要对中国日益增长的存在持现实态度。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-440.png)
+澳大利亚今年9月宣布将获得8艘核动力潜艇，这一AUKUS三边协议引起了中国政府的愤怒，中共宣布这是一个 “地缘政治游戏工具”，并暗示澳洲处于军备竞赛中。然而中共正在以每18个月的吨位速度生产的海军舰艇比澳大利亚皇家海军的整个舰队还多。
 
-12月10日，在推特公布的一则视频中，意大利佩鲁贾已接种疫苗的公民，把象征行动自由的绿色通行证，投入一个空汽油桶熊熊燃烧的大火中，以示对未接种疫苗人士的声援，以及共同抵抗强权政府的决心。
+达顿部长说，虽然 “没有人想要冲突”，但”这是一个不确定的时期，我们需要确保我们将志同道合的国家、朋友以及那些与我们有共同价值观和共同利益的国家联系在一起。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/9-10.jpg)
+达顿先生坚称澳大利亚不会放弃其主权，尽管寻求与中国保持“良好的工作关系”。
 
-早在12月6日，意大利就已经开始对未接种疫苗的人群进行严格封锁，并要求只有持“超级绿色通行证”的人才能进入餐厅、电影院、博物馆等室内场所。意大利警察被赋予随机检查及罚款的特权。焚烧通行证的民众很清楚这一举动意味着什么。但他们高呼“不要绿色通行证”，称这样做是“为了捍卫宪法”，夺回本该属于每一个人的权利。
+“中国大使提出了一份包含14个问题的文件，希望在两国关系正常化之前解决这些问题。然而，如果澳洲答应了中共国的14个问题，就等于交出我们的言论自由和民主价值以及我们的主权，这是澳大利亚绝不会考虑的。”
 
-据悉，意大利是目前实行疫苗封锁最严格的国家之一。但生性自由的意大利人，从米兰到罗马，每周都在进行轰轰烈烈的街头抵制运动。他们的口号是：团结在一起 ，抵抗强权。
+他还补充说：”我们的问题是与中国政府有关，而不是与中国人民有关，我们希望确保我们能尽一切努力看到我们地区的和平继续下去，因为这也符合我们和我们朋友的最佳利益。”
 
-参考链接：
-
-- [Vaccinated citizens in Perugia, Italy BURN their covid “GREEN PASSES” in #Solidarity with the unvaccinated:](https://twitter.com/maajidnawaz/status/1469375950961917954?s=21)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
-
-总编辑：飞虹
-编辑：飞虹
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

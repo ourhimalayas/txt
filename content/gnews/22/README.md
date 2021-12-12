@@ -2,33 +2,36 @@
 ---
 
 
-## 有声|家居企业转让恒大股份 恒大债务违约在即
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1745157/)
+## 德国学校搞仪式侮辱未接种疫苗儿童
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1745202/)
 
-配音：香草山香港部 – 文凯琳
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-当地时间12月7日，据相关媒体消息显示，自7月起，中共国内的家居企业开始密集地转让及抛售恒大集团的相关股份。随后，12月4日，河南恒大家居全面退出其参与控股的6家家居企业合资子公司，至此，恒大集团彻底结束了此前的地产连同家居的模式经营。
+翻译：美哥
+编辑：守望黎明
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-143.png)图片来源：Everyday Health
+德国的学校正在开始对未打中共疫苗的幼童举行羞辱仪式，让他们被迫在全班面前，解释自己不打疫苗的原因，而且每天如此。记者亚历克斯-斯托里（Alex Story）说：“老师对打过疫苗的小朋友就拍手赞赏，对没打疫苗的小朋友则天天进行这种公示质询。”
 
-与此同时，恒大集团在港股的走势再次大跌，刷新了自上市以来的新低，跌至每股1.73港元，仅为2009年11月发行价的三分之一。
+是的，这是真的！
 
-此外，多家海外媒体也报道称，在12月6日债务利息到期前，恒大集团未能按时支付之前获得宽限期的八千两百五十万美元利息，现已造成事实违约。此时，一旦相关债权人发出通知，恒大将正式处于违约状态。为此，中诚信也下调了恒大集团相关的债券项目信用评级。
+斯托里讲述了这一令人震惊的事件，德国媒体对此进行了报道。
 
-对此，标普则表示，到2022年3月和4月，恒大集团将面临共计35亿美元的债券到期。由于难以获得新的融资来源，恒大集团的债务违约很可能已无法避免。
+斯托里对英国媒体GB 新闻说道：”这本质上是对儿童进行羞辱的仪式性，让他们每天走到班级前面，讲述自己的疫苗接种情况。”
 
-文字版原文：[家居企业转让恒大股份 恒大债务违约在即](https://gnews.org/zh-hans/1736785/)
+此外，德国政府只让打过疫苗、佩戴有手环的民众有资格进入商场，从而禁止不打疫苗的人购物。简直就如同上世纪30年代纳粹对待犹太人的方式。
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
+柏林的有一个咖啡店因为给未打疫苗的人发放免费咖啡以表示支持，就招来媒体疯狂的抵制。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+看来现任德国领导人完全淡忘了历史，希特勒第三帝国昔日的歧视政策在最不应该出现的的地方回光返照了。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+原文链接：[German Schoolchildren Subjected to ‘Ritual Humiliation’ Over Their Vaccine Status](https://summit.news/2021/12/10/german-schoolchildren-subjected-to-ritual-humiliation-over-their-vaccine-status/)
+
+发布：去中心化Math
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

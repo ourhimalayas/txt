@@ -2,30 +2,30 @@
 ---
 
 
-## 美国CDC称大多数Omicron病例源自完全接种疫苗者
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1745368/)
+## 意大利民众焚烧“绿色通行证” 声援未接种人士
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1745396/)
 
 作者：纽约香草山文艺部 – 宁文静
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/image-440.png)
 
-12月10日，美国疾病控制和预防中心称，目前在美国发现的43例Omicron变体确诊病例中，34人已完全接种了中共病毒疫苗，其中14人还接种了加强针。
+12月10日，在推特公布的一则视频中，意大利佩鲁贾已接种疫苗的公民，把象征行动自由的绿色通行证，投入一个空汽油桶熊熊燃烧的大火中，以示对未接种疫苗人士的声援，以及共同抵抗强权政府的决心。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/8-16-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/9-10.jpg)
 
-Omicron变体病毒病例迄今已在美国22个州被发现。在这些病例中，有25例是年龄在18至39岁的人，14例曾有国际旅行史，有6个人曾感染过中共病毒。绝大多数人症状轻微，多表现为咳嗽、鼻塞和疲劳，接近普通流感的症状。
+早在12月6日，意大利就已经开始对未接种疫苗的人群进行严格封锁，并要求只有持“超级绿色通行证”的人才能进入餐厅、电影院、博物馆等室内场所。意大利警察被赋予随机检查及罚款的特权。焚烧通行证的民众很清楚这一举动意味着什么。但他们高呼“不要绿色通行证”，称这样做是“为了捍卫宪法”，夺回本该属于每一个人的权利。
 
-据悉，所有感染者中，近八成已经完全接种疫苗，表明中共病毒疫苗不能有效防止这种高传染度的新变种病毒的传播。
+据悉，意大利是目前实行疫苗封锁最严格的国家之一。但生性自由的意大利人，从米兰到罗马，每周都在进行轰轰烈烈的街头抵制运动。他们的口号是：团结在一起 ，抵抗强权。
 
 参考链接：
 
-- [Most reported U.S. Omicron cases have hit the fully vaccinated -CDC](https://www.reuters.com/world/us/most-reported-us-omicron-cases-have-hit-fully-vaccinated-cdc-2021-12-10/)
+- [Vaccinated citizens in Perugia, Italy BURN their covid “GREEN PASSES” in #Solidarity with the unvaccinated:](https://twitter.com/maajidnawaz/status/1469375950961917954?s=21)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
 
-总编辑：文真
-编辑：文真
+总编辑：飞虹
+编辑：飞虹
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
