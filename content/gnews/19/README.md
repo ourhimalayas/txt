@@ -2,53 +2,126 @@
 ---
 
 
-## 2021年12月12日郭先生大直播文字同步精要
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1747915/)
+## 共产党张牙舞爪的日子到头了 欧盟开始抵制中共
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1747963/)
 
-栏目作者：焦点20分
+[https://gtv.org/video/id=61b6009087fa7e74c92f0f87](https://gtv.org/video/id=61b6009087fa7e74c92f0f87)
 
-战友们好，12月12日郭先生继续给战友们做了大直播，主要的内容包括：
+**郭文贵**
+**Miles Guo**
 
-1，今天郭先生大直播给战友们3个思考的问题： 1）双11双12是中国历史的大日子。双十二西安事变外，还有什么重大意义？ 2）为什么 川普总统没有为皮特纳瓦拉先生的《川普时代》宣传，川普时代没有了？ 3）发生了对共产党最不利的大事是什么？
+欧洲的大概4个国家，给中国明确地说我们要抵制奥运会
+About 4 countries in Europe clearly stated to China that they want to boycott the 2022 Winter Olympics game
 
-2，宗教非常重要的表达方式——修。和佛祖沟通的声音——经。动物世界最重要的是——动静。人与人最好听的声音——叫床。西方的宗教进了教堂，要求不能有动静，大风琴代表了上帝的脚步声。希特勒要求被统治者唱—纳粹的歌。希特勒手汗多，内心是个极度自卑的人。斯大林流氓出身，只要一敲桌子就有大事，要求俄罗斯音乐完全统一化，农田里可以听音乐，回家听音乐是犯罪。萨达姆10年副总统、建立情报部门、军队、中东音乐。毛泽东改民歌音乐，周恩来不停的审批修改。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/aerq.jpg)
-3，洗脑三利器：1）音乐；2）告诉你所有问题的答案，不允许听到其他的答案；3）社交媒体、视频。今天影响人类最深的不是社交媒体，现在世界Facebook，twitter，whatsapp控制了20亿的人类。而背后的 AI 无处不在，控制人类的言行。
+说不但抵制奥运会，更重要的是作出一个决定
+It is not only to boycott the Olympics game, but more importantly to make a de-cision
 
-4，打榜震撼了世界。1）7000万的点击，数据显示只有200万。2）所有政权不愿意看到，一个非专业的歌手搞出来的动静 超越了歌手；3）打榜方式、非专业团队、听众都是非传统的方式，超出政治家的思考范围；4）金融方式完全不同，打榜不要钱，还捐钱。好莱坞团队有威胁性的话语，必须和他们签约，再不签约，很危险！郭先生永远不会和好莱坞合作，不会要一分钱。共产党拼命的打压，倾一国之力干的事，爆料革命战友轻松完成。
+我们正在考虑与你中共经济脱钩，我们要在WTO对你发起一系列的抗议
+that they are considering decoupling with your CCP’s economy, going to launch a series of protests against you in the WTO
 
-5，国内亲美势力远大于亲习势力，掌握绝对信息。美国最高级的情报部门得知，国内很多人想杀掉习近平！共产党内部时不时都会发生，世界集权政府都会发生副手干掉一把手的事情，这是副手必然的选择。即使是美国副总统也是竞选总统很好的台阶。杀掉习近平，会让灭共的道路更加艰险。习近平统一思想、打台湾、挑战美国，只有习近平才能完成爆料革命灭共的脚步。杀掉习近平就会塑造一个虚伪的英雄，要消灭这个体制才是根本。祈祷习近平安全，帮助爆料革命顺利完成灭共的道路。
+就是欧盟向中共发出的这个(抗议)，在他今天晚上睡觉前发出去
+before he went to bed tonight that EU sent this protest to the CCP
 
-6，中国被骗子毁掉了一切，毛泽东、张学良。这个社会没有真，中国就没有办法恢复正常。
+他说今天我们发出去以后3分钟内给回复，稍慢，我们逐级上报, 我们今天争取给你们回复
+He said that we got reply within 3 minutes after we send it out today, and it said to hold on the decision that we will report it level by level, and we try to reply to you today
 
-7，双十二西安事变外，还有什么重大意义？1936年出了一个中国人的二货——张学良。张学良自私的原因：干掉蒋介石，继续当东北王，甚至当国民党老大。张学良是一个土匪、流氓、纨绔子弟、共产党走狗，和他爹一样，从来没有抗日，一生最佩服德军和日军，军粮军饷共产党给了最多。在苏联的要挟下，张学良才释放蒋介石。张学良差点挑起苏联动核武器灭掉中国人，差点挑起美国轰炸中国。共产党和张学良对苏联跪舔，导致中国380万军人，1300万老百姓直接死于二战。张学良的军阀思想，为了自己家族私立，打着民族的幌子，对民族造成最大伤害。民国时期是断代的时代，中国人当时拥有最单纯的状态，完全重新接受新的思想，如果没有张学良，中国一定会走上最美好的民主道路。爆料革命一定要警惕张学良这样的民族败类。习近平如果被杀，会出无数个张学良。
+七哥告诉你这个历史性的事件
+I am telling you about this historic event
 
-8，习近平的女儿，护照李木子，住在党校旁边，李长春家旁边。经常来美国，确实在曼哈顿有房子，比网上twitter那个假的夸张一万倍。习近平对家人的呵护，超出常人想象。粉钻石根本不是事情，2007钻石大王的钻石矿曾经被习近平家人问价，钻石矿都不算事。没有人敢偷拍李木子的照片。郭先生将公开李木子哈佛大学的时候，那时候习公主就有美国特勤局保护。冠军、刘呈杰、孙瑶根本没有办法和习公主相提并论。
+大家说，我不说什么立陶宛，我不谈任何事情了，我也不谈WTO了
+they said, I won’t talk about Lithuania, I won’t talk about anything, and I won’t talk about WTO anymore
 
-9，李木子早已经参政，中国过去10年根本没有常委。习近平和彭丽媛的日常都是习公主说了算，军队是习远平说了算。彭蕾、习乔乔、习安安（英国护照，英国老公拉菲），习近平的家人实际控制着中国。
+我也不谈跟你的这个汇率问题，我现在就是明确地告诉你
+I won’t talk about the exchange rate issue with you either, I’m telling you clear-ly now
 
-10，中国人和非洲人的婚姻，和谐到老的几乎为零。中国人懦弱和不勇敢、虚伪；而俄罗斯有欧洲生理的优越性，鲁莽、团结、性能力不强、崇尚当下文化。东北文化就是受了俄罗斯的糟粕文化的影响。中国在任何情况下，无法抵御北边的不安全，中国风水， 北边是大凶。俄罗斯和中国的关系，可以和平相处，注定不会成为朋友。习近平 是崇俄派，崇拜希特勒、沙皇。中国过去对俄罗斯的错误认知，从1919年开始，注定中国人民要陪葬俄罗斯百年。
+我们肯定抵制奥运，这几国是不想抵制的，
+We definitely boycott the Olympics game, these countries do not want to boy-cott the Olympics game from the beginning
 
-11，俄罗斯对中共的反水，是对中共最大的打击。1）俄罗斯告诉了中共的决定，打台湾不参与；2）所有中俄之间的油气协议必须兑现，不兑现就和美国一起打中共；3）俄国、印度、北朝鲜、巴基斯坦、北朝鲜形成新的战略同盟，俄罗斯反对中共在阿富汗的事情。俄罗斯的外交是世界最成功的，完全的不要脸，最大的利益收割；4）俄罗斯对中共的经济不看好，准备 “离婚”。
+你像英国、法国甚至意大利, 都是有条件的跟中共谈谈这个抵制奥运，这几乎这四国基本带上整个欧盟了
+like Britain, France and even Italy, they all have conditions to negotiate with the CCP about the boycott the Olympics game, and these four countries basically represent the entire EU
 
-12，习近平 所有的“自信”，离不开俄罗斯。中共满足不了俄罗斯，俄罗斯必然另结新欢。
+就连日本现在里边各种说法都有，但是日本今天也就几个小时以前大变
+Even Japan now has all kinds of various thoughts internally, but today a few hours ago that Japan has changed drastically
 
-13，假 习公主的twitter账号，甚至比李木子还重要，战友们还要持续关注。
+我告诉大家来源是什么？什么原因导致的, 就是中共的内部做出了强硬的决定
+Let me tell you why? What caused this result? because the CCP made a tough decision internally
 
-14，为什么川普没有为皮特纳瓦拉先生的《川普时代》宣传？因为书中提到了川普总统的女婿和女儿！郭先生提这件事的7个为什么？在美国发生的，在中共国都不会发生，美国社会文明，这是美国空前伟大的原因。1）皮特纳瓦罗敢问川普总；2）在美国顺利，中共国无法出版；3）在美国成功，在中共国会送命；4）在中共国不会有人不敢问习近平这样的问题；5）在美国成为最畅销的书，川普也没有否认，在中共国不可能；6）在中共国会被定义为卖国罪；7）皮特纳瓦罗个人空前成功，收到了拜登政府的邀请。
+给各国所谓的五眼联盟，说你要敢抵制这个中共的奥运, 后果很严重，就是威胁
+that put threat to the Five Eyes Alliance countries, saying if you will dare to boycott the CCP’s Olympics game, the consequences are serious, it is a threat
 
-15，西方国家联合灭共，全面经济脱钩，会查出共产的所有 海外资产。共产主义会被定义为人类的邪教，人人可以诛杀。
+不仅仅是不让你美国人说, 我不让你干这，不让你干那的问题了，说我(中共)要对美国的企业甚至对苹果都要大开杀戒
+It’s not only let American speak, not only I order you not to do this and that, the Chinese Communist Party want to punish American companies even Apple
 
-16，共产党改变对冬奥会的策略，开启习近平的滑铁卢。1）报道西方国家官方不出席冬奥会，不允许出现“抵制”两个字。中共拿了美国NBC直播权20亿美元，担心NBC也不去。选手奥运金牌1：10的补偿。2）内部经济通知：中国的经济只能向好，局部调整。
+给日本明确地说了，如果你要是敢要来这块儿张狂地说抵制奥运
+CCP make it clear to Japan, if you dare to come here to boycott the Olympics game
 
-17，躺平币有成本，有投资者投入，是真钱。拒绝锁币，未来的喜美元的兑换会有问题。公平是要让弱者守规矩的人获得利益。战友们已经创造了稳定喜币的奇迹。
+对日本在华的企业全面抵制、全面关闭，我都查你的税
+they will totally boycott and fully closed Japanese companies in China, and check the company’s tax issues
 
-18，世界邪恶组织继续推动疫苗，不会停的。美41%没有打疫苗，70%反对打疫苗，世界80%反对打疫苗。美国大选结束，福奇和扎克伯格一定会进监狱。现在给孩子打疫苗的，全部会被审批，一个都不会少。西方官方数据：2500万美国人直接受到大直播的影响，欧洲也如此。影响力排名：1)爆料革命2)大胡子医生3)班农战斗室。 疫苗对人类的影响，堪比恐龙灭绝。伊维菌素和青蒿素可以清除疫苗影响，绝对救命。
+欧盟本来还有点想跟美国，就是想较量较量，想在中共那再弄一块肉出来
+The European Union originally wanted to compete with the United States, just compete a little bit, and wanted to get another piece of “meat” out of the CCP
 
-以上大直播文字精要，由新西兰农场焦点组提供。最终内容请以郭先生大直播视频为准。
+偷块肉出来，这些不要脸的政治家的都这样想
+like stealing a piece of “meat”, this is all the these shameless politicians thoughts
 
-文案提供：梦田
-上传：零点
+但是在这20分钟前发出这个东西，绝对对中共最后又是致命一击
+But sending this thing 20 minutes ago was definitely another fatal attack to the CCP
+
+原因还有一个就是俄罗斯，俄罗斯这次明确地，俄罗斯告诉了美国和欧洲
+Another reason is Russia, this time Russia clearly told the United States and Eu-rope
+
+你们绝对不允许把两件事儿跟我们放在一起，你们要放在一起
+you are absolutely not allowed to put these two things with us, if you put them together and plan…
+
+我可以告诉大家，今天文贵是天下第一个人说出来的
+I can tell everyone that Miles was the first person in the world to talk about this today
+
+没有任何人知道的，参加会的人就是极少人，你知道俄罗斯说什么
+No one knows, there are very few people attending the meeting, do you know what Russia said？
+
+绝对不允许把我们和乌克兰和台湾和共产党的行动放在一起
+It is absolutely not allowed to put the attack actions of Ukraine and Taiwan and the Communist Party with us
+
+绝对没有这事儿，你们千万别这么想，那将是战略上重大失误, 咱们之间就会出大误会了
+There is absolutely no such thing, don’t think about it this way, it will be a ma-jor strategic mistake, and we will have a big misunderstanding
+
+第二件事情，你们千万别把共产党的病毒和疫苗
+The second thing, you can not put the communist virus and vaccine
+
+还有这个疫苗政策，和共产党的经济跟我俄罗斯绑在一起
+and this vaccine policy and the Communist Party’s economy bomb tie to Russia
+
+我们绝对跟它不一样，最后还有哥南海问题
+We are definitely different with the CCP, and finally there is the problem of South China Sea
+
+南海问题我们跟中共绝对不同步，它给我们钱我们就去转悠, 我们在哪都是转悠
+We are absolutely out of sync with the CCP on the South China Sea issue, we will go around when the CCP give us money and wherever we can go
+
+记住，这是七哥，今天跟你们说得历史性的时刻
+remember, this is the historic moment I told you today
+
+**原视频链接**[:](https://gettr.com/post/pje1i71ce9)[https://gettr.com/post/pje1i71ce9](https://gettr.com/post/pje1i71ce9)
+
+Date:12/11/2021
+**原视频标题**: 共产党张牙舞爪的日子到头了 欧盟开始抵制中共
+When European Union begins to boycott the CCP that the Communist Party’s arrogant days are the end
+原视频日期：2021/12/10
+**原视频链接**https://gettr.com/post/pje1i71ce9
+任务编号：KC332（3186）
+视频时间段 : 0:00-2:19
+
+中听校 : 洛杉矶盘古农场 – Layka
+翻译 : 洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场- 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+
 
  
 
