@@ -2,22 +2,22 @@
 ---
 
 
-## 国际奥委会委员警告参加北京冬奥会的运动员不要乱说话
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1746070/)
+## 一名与中共勾兑的世卫组织新冠病毒溯源小组成员消失
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1746161/)
 
 #### 撰稿：彩虹
 
 #### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-3-5.jpg)图片来源：以色列时报
-12月11日，根据《新闻极限》的报道内容，国际奥委会成员理查德·庞德（Richard Pound）告诉《时代周刊》，只要他们遵守中共国的法律，参加2022年北京冬奥会的运动员是可以自由表达自己意见的。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-4-1.jpg)图片来源：路透社
+12月10日，《国家脉动》调查记者娜塔莉·温特斯（Natalie Winters）发表文章，报道与中共勾兑的世界卫生组织新冠病毒溯源小组成员玛丽恩·库普曼斯（Marion Koopmans）在新的溯源小组名单中消失。
 
-这位奥委会委员的言论如此的荒唐和前后矛盾，以至于他自己都不得不进一步解释。他说：“这种情况下并不意味着你可以完全的为所欲为。所以，你知道，要小心你做的事情，因为你可能会被关注。”庞德继而表达了对运动员威胁的话语，他说，在过去，东道国“基本上”保护了运动员的自由。
+文章说，库普曼斯遭遇了与世界卫生组织同行彼得·达萨克（Peter Daszak）相同的命运。她曾在世界卫生组织第一个新冠病毒（COVID-19）起源调查小组中任职，并且，在今年10月份，世卫组织新成立的SAGO（新冠病毒起源科学顾问小组）的最初公告中，库普曼斯被列为28名成员之一。然而，目前最新的SAGO的成员名单中却不见了库普曼斯。
 
-这位奥委会的资深会员，完全无视中共国是一个专制独裁的国家，罔顾中共“反人类罪”事实，将中共国的法律视为运动员应该遵守的红线，是何等的无知、无耻和用心险恶。
+之前，《国家脉动》挖掘了库普曼斯在中国广东疾病控制中心担任科学顾问的角色，报道了她撰写的由中国共产党拨款支持的科研论文和期刊文章，揭露了她与中国共产党的长期关系。
 
 **新闻来源**
 
-[Olympic Athletes Free to Express Opinions in Beijing, IOC Says](https://www.newsmax.com/newsfront/olympics-2022-winter-china/2021/12/11/id/1048264/)
+[SCALP: COVID Investigator Funded By Chinese Communist Party Removed From WHO Team Following National Pulse Exposé.](https://thenationalpulse.com/news/scalp-koopmans-removed-from-who-team/)
 
  
 

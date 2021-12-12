@@ -2,28 +2,32 @@
 ---
 
 
-## 美大学开始调查教授删除中共病毒研究数据
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1746730/)
+## 郭文贵先生爆料中共国当下真实状况
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1746805/)
 
-撰稿：东京樱花团/风翼
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-39.png)
-[图片来源](https://www.google.com.hk/search?q=%E4%BD%9B%E7%BD%97%E9%87%8C%E8%BE%BE%E5%A4%A7%E5%AD%A6&amp;tbm=isch&amp;ved=2ahUKEwiw3fWSkt70AhXBg3IEHWxsAXkQ2-cCegQIABAA#imgrc=qROAdejEMfPxUM)
+作者：香草山农场-晓仙女
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2021年12月10日，文贵先生在大直播中爆料，当下，共产党极其狂妄，极力捕杀基督教徒、佛教徒、天主教徒、道教徒以及新疆人，树立习一神为太阳神。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-12-下午9.12.56.png)
+中共国房地产崩塌，银行危机，一亿多人失业，大量商铺关闭，85%的私人企业被收归国有。所有独裁者都是一样，将企业国有化，个人神圣化。只有独裁者才会消灭宗教，控制媒体，最后发动战争。
 
-据CNN报道：美国佛罗里达大学已经对该校教授在与中共病毒有关的研究数据上受到来自校外的政治压力的指控展开了全面调查。
+面对中共的垂死挣扎，新中国联邦将采取一系列方案抗争到底，直至中共灭亡。
 
-诺顿副校长11月10日在给教职员工的一封电子邮件中说，大学正在调查据说在新科罗纳上的研究数据被删除一事中可能违反了有关研究公平的规则。副校长表示，他将公布调查的结果，具体到时候提出，没有明确表示。
+参考链接：[https://gettr.com/post/pjdf6x663a](https://gettr.com/post/pjdf6x663a)
 
-4月6日，该大学教务委员会发布的报告称，该大学在研究中共病毒与州政府的合作关系中出现了问题。他说，因删除数据的要求和对获取数据、分析和发表研究成果的干扰，使教师们在中共病毒大流行期间无法提供相关科学资料。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-信息来源：
+总编：Jack Li文阳
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-[米フロリダ大学、教授陣への政治的圧力を調査　コロナ関連データの消去要請か](https://www.cnn.co.jp/usa/35180747.html)
-
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

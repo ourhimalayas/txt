@@ -2,141 +2,55 @@
 ---
 
 
-## 关于新中国联邦为战友们提供药品的解释
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1746662/)
+## Vladimir Zelenko 博士敦促人们站出来反对政府的暴政
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1746675/)
 
-[https://gtv.org/video/id=61b5792787fa7e74c92ede04](https://gtv.org/video/id=61b5792787fa7e74c92ede04)
+2021 年 12 月 10 日，星期五
 
-**郭文贵
-Miles Guo**
+作者：Ramon Tomey
 
-我觉得这个事情非常非常简单
-I think this is very, very simple
+翻译：沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Chain-Break-Freedom-Danger.jpg)图片来源：网络
+自然新闻：弗拉基米尔·泽连科博士呼吁“有上帝意识”的美国人在武汉冠状病毒 (COVID-19) 大流行中站出来反对政府的暴政。 他还对希望通过在全球推广 COVID-19 疫苗来扮演上帝的人发表了强烈的言论。
 
-我觉得现在没有病的人吃青蒿素，就一定要补铁这个问题
-I think healthy people who takes artemisinin, must take iron supplements
+Zelenko 首先通过使用羟氯喹 (HCQ) 和硫酸锌开发 COVID-19 的早期治疗方案而声名鹊起。 在 2021 年 3 月接受精神病学家 Peter Breggin 博士采访时他解释了他是如何偶然发现这一医疗方案的。
 
-还有一个不要吃过量
-Do not take too much
+“我在 [2020 年 3 月] 向上帝祈祷，寻求帮助，因为我有成千上万的病人死去。 这些人我照顾了 20 年，我没有什么可以提供给他们的”，他告诉布雷金。
 
-不要吃过量
-Don’t take it over dose
+“我一直在祈求一些指导，然后我知道的下一件事，我的电子邮件中给我发了一封信 [关于] 锌离子载体和锌在理论上如何抑制 RNA 病毒。 这对我来说是一个很大的启发，它确实影响了世界，因为我将这些东西推向了全球”。
 
-吃补品就行可
-health products just fine
+根据泽连科的说法，人类历史的特点是“试图过一种有上帝意识或以上帝为中心的生活”的人和“一直试图成为上帝一样并[想要]对其余部分进行全球控制的人之间的人性的斗争”。  “我们是按照上帝的形象被造的，我们的生命之所以神圣，只是因为它们是——而不是因为任何其他原因”，他说。
 
-你有病了，那就按病（情）说了
-If you’re sick
+另一方面，那些想要控制人类、扮演上帝的人只能通过“心理奴役[人类]”来做到这一点。 泽连科提到，COVID-19 大流行本身是一种“精心策划、出色执行 [和] 异常邪恶”的尝试，旨在控制人口。  “我们正在经历的可能是人类历史上最大的心理战”，他告诉布雷金。
 
-没有一样的病是吃一种药管用的
-Not one medicine can cure all diseases
+不过，泽连科指出，仍有希望。  “不要生活在恐惧中，不要孤立地生活[并且]不要采取毒死措施。 对 COVID 采取预防性治疗，必要时尽早治疗，但更重要的是，带着上帝的意识生活。 作为一个个体改善自己，当有足够多的人改善自己时，整个社会都会得到改善，我们就会摆脱异教、偶像崇拜和儿童祭祀，转向一个充满真理、爱和上帝启示的世界”，他建议道。
 
-怎么吃法？我觉得大家要征询医生
-How to take? I think you need to consult a doctor
+“[我们]需要联合志同道合的人，形成我们自己的社会。我们需要团结一致和公民不服从，希望以非暴力的方式工作”。
 
-第三个，这个药绝对不适合跟很多药放在一起吃
-Thirdly, this medicine is definitely not suitable to be taken together with many other medicines
+泽连科谴责宣传 COVID 疫苗的实体
 
-这是肯定的
-It is for sure
+在随后对 InfoWars 创始人 Alex Jones 的采访中，Zelenko 谈到了食品和药物管理局 (FDA) 发布的文件，以证明其完全批准辉瑞 (Pfizer) 的 COVID-19 mRNA 疫苗是合理的。 根据 LifeSiteNews 的一份报告，FDA 于 11 月 19 日发布了 91 页的藏品，是对律师 Aaron Siri 提出的《信息自由法》请求的回应。
 
-大家这个都要听医生的
-We should all listen to the doctor
+文件显示，在紧急批准后的前三个月内，监管机构了解到约 150,000 起与辉瑞疫苗相关的严重不良事件和 1,200 多起死亡事件。  FDA 于 2020 年 12 月授予了 mRNA 疫苗的紧急使用授权。（相关：FDA 发布的第一批​​关于辉瑞 Covid 疫苗的 FOIA 文件显示，2021 年 2 月上旬已经报告了 1,223 例死亡病例。）
 
-另外一个就是现在，接下来咱们战友家里有病的人
-If you’re sick
+“美国政府用 [其] 凶残的政策攻击和殴打美国人民，证明 FDA 在部署这种疫苗之前就知道副作用。”  Zelenko 告诉琼斯，HCQ-锌医疗方案的先驱感叹美国人民“被[他们的] 政府强奸”。
 
-请跟飞飞，还有咱们Eglise联系的时候
-Please contact Fei Fei and Eglise
+“我们看到的是数以百万计的不利影响和数十万人的死亡。 与人们将要经历的长期影响相比，这算不了什么。 我们看到癌症和自身免疫性疾病的激增。 您认为这将如何影响未来的繁殖和人口数量？”
 
-大家要记住
-Remember
+泽连科提到微软创始人比尔盖茨是那些希望“像上帝一样”并控制全人类的人之一。 医生猛烈抨击盖茨所谓的“预测”天花流行病并引发下一次健康危机。  （相关：天花生物战——全球主义者准备了“完美”的计划来掩盖疫苗死亡并通过引发新的致命流行病来取消中期选举。）
 
-帮你一时，不能帮你一切
-We can help for a while, but not for a lifetime
+据雅虎新闻报道，盖茨敦促各国政府举行“细菌游戏”，为下一次大流行做好准备。 他说：“如果一个生物恐怖分子将天花带到 10 个机场怎么办？ 世界将如何回应。 自然引起的流行病和生物恐怖主义引起的流行病甚至可能比我们今天所经历的还要糟糕。”
 
-特别是药
-Especially for the medicine
+“他不是先知，他是罪犯”，泽连科谈到盖茨时说。 他警告说，盖茨“只是冒尖的一角”，因为世界上最富有的 150 人中的大多数人都与反人类的心理行动息息相关。
 
-你不能说一直吃下去，全都帮那是不可能的，临时解决
-It is impossible for us to provide you with medicine all the time. It’s a temporary solution only
+“从各个角度来看，他们都拥有所有行业。 谁经营并拥有该实体，谁就能够协调这一过程，因为他们可以操纵媒体、行业、政治和学术界”。
 
-但是最终的结果一定是你，需要者负责任
-But you are the person need to take the responsibility
+来源链接：[https://www.afinalwarning.com/577703.html](https://www.afinalwarning.com/577703.html)
 
-我们没有处方权
-We do not have the right to prescribe
+编辑/发布：LILY
 
-只能建议权，只能给你提供一些药的帮助
-only the right to advise,
-
-只能给你提供一些药的帮助
-Can only provide you with some help for the medicine
-
-但是这个东西千万记住，副作用就是沉闷乏力
-But you must remember, the side effect is dull and weak
-
-和铁之间有冲突，你必须要补铁
-There is a conflict with iron. You have to take iron supplements
-
-还有一个就是跟其他症状有没有副作用，但现在还没有发现
-Is there any other side effect? We haven’t found it yet
-
-这个大家要负起自己应负的责任
-Everyone need to take their own responsibilities
-
-我们不能100%保证，这是基本常识，请Eglise你说
-We can not guarantee 100%. This is basic common sense. Eglise, please
-
-Eglise
-
-对，因为讲到这个针剂，已经有战友开始问了
-Yes, talking about this injection, some comrades already have some questions
-
-我就想告诉大家，青蒿素它是有副作用的
-I just want to tell everyone that artemisinin has side effects
-
-因为青蒿素它是100%经过肝脏代谢
-Because artemisinin is 100% metabolized by the liver
-
-对肝脏有绝对的毒性
-It is absolutely toxic to the liver
-
-所以，前面讲的针剂青蒿琥酯针剂，不是什么人都能用的
-Therefore, the injection artesunate injection mentioned earlier is not suitable for everyone
-
-一定要在监护下使用，而且不是什么人都能用
-It must be used under supervision, and not for everyone
-
-我一定要再这么说，因为它的副作用
-I must say that again because of its side effects
-
-可能你的疾病不一定要你的命，但是它副作用能要了你的命
-It may not necessarily kill you with your disease, but it can kill you with its side effects
-
-就是提醒大家这一点
-Here is a reminder to everyone
-
-* * *
-
-Date:12/04/2021
-原视频标题: 关于新中国联邦为战友们提供药品的解释
-Explanation of the drugs provided for the comrades in arms
-原视频日期：2021/12/01
-原视频链接**[https://gettr.com/post/pinbbgd63d](https://gettr.com/post/pinbbgd63d)**
-任务编号：KC323（3099）
-视频时间段 : 0:00-01:49
-中听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka & Mike L
-翻译终校：洛杉矶盘古农场 – Freeearth
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 ：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+20211212
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
