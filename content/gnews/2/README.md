@@ -2,44 +2,28 @@
 ---
 
 
-## 6万名科学家呼吁结束大规模疫苗接种
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1748229/)
+## 俄警告美国：领空入侵危险
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1748328/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/0b859e72bd4b4b2a0c7a261941c69f20@1200x1200-4.jpg)图片来源：frenchdailynews.com
-科学界发声反对官方的健康政策：反对大规模注射mRNA疫苗的大巴林顿宣言已经收集到87万个签名。
+据《Rebel News》报道，俄罗斯克里姆林宫发出了一封措辞严厉的信，警告美国驻莫斯科大使馆：俄军在俄罗斯 – 乌克兰边境集结，拜登政府和北约国家的强烈反对，美国将面临”危险后果”。
 
-科学界一直对使用尚处于试验阶段的信使RNA疫苗进行大规模免疫接种表示担忧。2020年10月4日，三位高级科学家——哈佛大学的医学教授马丁·库尔多夫（Martin Kulldorff），牛津大学教授苏尼特拉·古普塔（Sunetra Gupta）博士和斯坦福大学医学院教授杰伊·巴塔查里亚（Jay Bhattacharya）博士提出了被称之为大巴林顿宣言的应对新冠病毒的替代方案。因为他们非常担忧人口大规模接种疫苗的副作用。
+这封信引用了美国在俄罗斯边境附近持续的军事飞行和海军活动。俄罗斯外交部发言人玛丽亚·扎哈罗娃（Maria Zakharova）将美国的行动描述为”俄罗斯边境附近的挑衅”。
 
-他们提倡的是什么？“重点”保护。即尽可能地保护年老体弱身体虚弱者，让其他人正常地生活直到社会实现集体免疫。然而，大规模接种mRNA疫苗让集体免疫变得不可能。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/download-10.jpg)
 
-随着人们的免疫力增强，所有人（包括弱势群体）的感染风险都会下降。我们知道，所有人群最终都将获得群体免疫力——即新感染率保持稳定——这可以通过疫苗（但并不依赖于疫苗）来协助取得。因此，在我们获得群体免疫之前，我们的目标应该是尽量降低死亡率和对社会的危害。
+俄罗斯发言人引用了一起事件，12月3日上午，美国空军CL-600侦察机在俄罗斯空中交通管制管理的地区进行了一次飞行，并从11，000米的高度急剧下降到9，200米的高度，从而越过了为民用飞机保留的路线。发言人称，美国空军并没有回答空中交通管制员的反复呼叫，可能造成危险的碰撞。俄罗斯发言人还列举了另外两起几乎导致空中碰撞的事件。
 
-平衡群体免疫的风险和利益的最富有同情心的做法是，使死亡风险最小的人正常生活，让他们通过自然感染增强对病毒的免疫力，同时加强保护处于高风险的人，我们称之为重点保护。
+俄方表示，“保留对美国和北约成员国构成的相应挑战，作出反应的权利。呼吁就安全保障问题进行实质性对话，并讨论减少军事和政治紧张局势，以及防止空中和海上危险事件的途径。否则，俄方掌握的所有手段都将用于预防和消除新出现的威胁”。
 
-采取措施保护弱势群体应该是应对COVID-19的公共卫生措施的主要目标。
+自1991年起苏联解体后，波罗的海周围的国家纷纷加入北约和欧盟。从[地缘政治](https://www.zhihu.com/search?q=%E5%9C%B0%E7%BC%98%E6%94%BF%E6%B2%BB&amp;search_source=Entity&amp;hybrid_search_source=Entity&amp;hybrid_search_extra=%7B%22sourceType%22%3A%22answer%22%2C%22sourceId%22%3A28158330%7D)角度看，乌克兰是俄罗斯战略收缩的底线和进入欧洲的第一站。[布热津斯基](https://www.zhihu.com/search?q=%E5%B8%83%E7%83%AD%E6%B4%A5%E6%96%AF%E5%9F%BA&amp;search_source=Entity&amp;hybrid_search_source=Entity&amp;hybrid_search_extra=%7B%22sourceType%22%3A%22answer%22%2C%22sourceId%22%3A28158330%7D)在其《大棋局》中指出，只有拥有乌克兰，俄罗斯才可能成为其梦想中的“[欧亚帝国](https://www.zhihu.com/search?q=%E6%AC%A7%E4%BA%9A%E5%B8%9D%E5%9B%BD&amp;search_source=Entity&amp;hybrid_search_source=Entity&amp;hybrid_search_extra=%7B%22sourceType%22%3A%22answer%22%2C%22sourceId%22%3A28158330%7D)”，而失去了乌克兰的俄罗斯，则最多成为一个[亚洲帝国](https://www.zhihu.com/search?q=%E4%BA%9A%E6%B4%B2%E5%B8%9D%E5%9B%BD&amp;search_source=Entity&amp;hybrid_search_source=Entity&amp;hybrid_search_extra=%7B%22sourceType%22%3A%22answer%22%2C%22sourceId%22%3A28158330%7D)。有了乌克兰之后，俄罗斯才能更多地介入黑海、波兰以及[巴尔干半岛](https://www.zhihu.com/search?q=%E5%B7%B4%E5%B0%94%E5%B9%B2%E5%8D%8A%E5%B2%9B&amp;search_source=Entity&amp;hybrid_search_source=Entity&amp;hybrid_search_extra=%7B%22sourceType%22%3A%22answer%22%2C%22sourceId%22%3A28158330%7D)的事务，从而真正进入欧洲。
 
-简评：
+爆料革命指出：俄罗斯一定会出卖中共，与美国合作，寻求在欧洲的主导地位以及能够卖给欧洲各国天然气以及能源；所以新闻中的这些报道基本都是表演给外界看的。真实的情况是俄罗斯明确告诉中共：如果中共攻打台湾，俄罗斯不会同时攻占乌克兰；另外俄罗斯已经开始在越南、菲律宾等地启用军事基地，并且将与北韩、巴基斯坦、伊朗、印度等结盟，排除了中共；爆料革命的情报显示俄罗斯在南海开采石油已成事实。习近平联俄抗美，称霸世界的战略彻底失败，危及习近平在党内的地位，宣告习近平战略的彻底失败。
 
-科学界从专业的角度出发，对大规模接种新冠病毒疫苗表达了严肃地担忧。寻常百姓也可以根据一些简单的表面现象来理性看待疫苗接种：首先对病毒的来源尚未有定论；其次按正常的疫苗研发周期，现在出现的各种新冠疫苗应该还处于试验阶段；另外让人颇觉诡异的是，接种疫苗的后果只有个人承担，政府、医疗机构、生产商免责。基于这些常识，相信更多的人会选择远离新冠疫苗。
+翻译简评：明亚、理工男文峰
 
-新闻链接：
+校对： 理工男文峰
 
-
-
-> [60,000 scientists call for an end to mass vaccination](https://frenchdailynews.com/society/3732-60000-scientists-call-for-an-end-to-mass-vaccination)
-
-
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+上传：米线
 
  
 
