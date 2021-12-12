@@ -2,52 +2,166 @@
 ---
 
 
-## 盖特CEO：拯救言论自由的斗争正在进行
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1746614/)
+## 去中心化的数字货币可能一夜之间消失
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1746691/)
 
-翻译：Lulumi
+[https://gtv.org/video/id=61b579b287fa7e74c92ede49](https://gtv.org/video/id=61b579b287fa7e74c92ede49)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-3-5.jpg)GETTR是一个不会因为表达你的意见而被取消的平台。（图片: SOPA Images/Getty）
+在日本国已经出现了一个新的，叫岸田派
+A new (political) faction has appeared in Japan, called the Kishida faction
 
-在美国，自由言论和政治表达的权利正受到攻击。不幸的是，在英国，左派走向审查制度的步伐更进一步，第一修正案对言论自由的保护无法阻挡他们的步伐，英国政府即将给大科技公司践踏言论自由打开绿灯。
+一定看看岸田的家族是干什么的
+Must see what Kishida’s family does
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/unknown-11.png)《上网安全法案》可能会造成更多的伤害，而不是好事。
+岸田的家族是搞金融的, 在日本
+Kishida’s family is engaged in finance in Japan
 
-英国议会目前正在撰写“上网安全法案”，这是一项巨大的立法，将授权社交媒体平台对“有害”内容进行监管，同时对什么是“有害”没有明确的区分。这项法案可能是善意的，但那些经常暂停、禁止或审查那些表达被左派暴徒视为“冒犯”的政治观点的用户的社交媒体巨头，将得到英国政府的法律支持，把他们从其平台上踢出去。
+日本的政界是不可能有腐败的
+There can’t be corruption in Japanese politics field
 
-事实上，即使是首相鲍里斯·约翰逊和他的执政的保守党在网络安全和言论自由的十字路口似乎也感到困惑。
+就是你搞政治的搞政治
+It’s that people who do politics do politics
 
-他们在具体问题上挣扎，在保护人们不受实际有害内容（如剥削儿童）影响上徘徊，同时不知不觉地给予大科技公司广泛的权力，继续取消他们根本不同意的内容。
+搞经济的搞经济
+People who are in economics run economy
 
-约翰逊和政府中根深蒂固的国家主义者可能要犯一个严重的错误，这将使数以百万计的英国公民在数十年内被蒙蔽。这使英国走上了一条危险的道路。
+你搞工厂的搞工厂
+The people who engage in the factories run the factories
 
-人们因为认为男人是男人，女人是女人而失去工作。学者们因为发表与进步主义机构不一致的意见而被拒绝参加会议。
+这就是为什么日本几百年来你干啥的干啥
+That’s why people dedicate in their own industries in Japan for hundreds of years
 
-将这种有毒的审查心态写入法律，将是对英国争取言论自由和新闻自由的致命打击。这就是为什么“取消自由”的社交媒体平台盖特要到英国来帮忙。
+你别跨界
+People don’t cross the border
 
-我们正在赞助我们的“反击会议”，这是一个为期一天的会议，政治家、评论员和媒体人士都围绕着辩论思想和反击极端政治正确性的寒蝉效应的目的而团结起来。
+但是岸田和安倍这两人是不一样的
+But both Kishida and Abe are different,
 
-由于中共病毒OMICRON变种的旅行限制，我们已经将会议推迟到2022年初。
+这两人家里面是很殷富的那种
+The families of these two people are very wealthy
 
-GBNews新闻台广播员奈杰尔·法拉奇和演员兼复兴党领袖劳伦斯·福克斯在会议重新安排时仍将是会议的头条发言人。
+人家一定不会腐败
+They will not be corrupted
 
-同时，随着各国政府恢复强制封锁，社交媒体将成为数百万人与外界联系的关键环节。表达自我的能力比以往任何时候都重要，而这些新的锁定措施证明盖特在社交媒体上的存在是至关重要的。
+腐败一定会搞出来，人家就搞这个
+Corruption will surely be discovered
 
-考虑一下皮尔斯·摩根的案例，他在电视上表达了对梅根·马克尔的看法后，被踢出了节目，并受到了政府的调查。
+这家伙有这个经验
+This guy has experience,
 
-英国通讯管理局（Ofcom）用了94页的篇幅得出结论，摩根事实上没有违反任何规则，同时警告ITV要“更加小心”。
+而且这个人呢，英文还不错
+what’s more, he is pretty good in English
 
-监管机构说，他的评论是“潜在的有害和攻击性”。任何人都可能因为表达“潜在的有害和攻击性”的意见而受到审查和调查，这一事实是非常可怕的。不管他们的裁决是什么，英国通讯管理局对ITV的警告和对摩根的调查都会对言论自由产生寒蝉效应。
+有国际视野
+and has an international perspective
 
-**参考资料：**[express.co.uk][The fight is on to save free speech from Woke lobby, says JASON MILLER](https://www.express.co.uk/comment/expresscomment/1534871/free-speech-political-expression-woke-online-safety-bill-gettr-comment)
+他会对数字货币非常严的严管
+He will strictly manage the digital currency
+
+但最后， 他一定是跟着美国走的
+But in the end, he must follow the USA
+
+那么监管数字银行的结果是什么呢？
+So what are the results of regulating digital banks?
+
+我先告诉大家
+Let me tell you first
+
+美国和日本，特别像欧洲
+The USA and Japan, especially like Europe
+
+一定跟着美国走
+must follow the U.S.
+
+数字货币的去中心化货币
+Decentralized digital currency
+
+可以告诉大家，我今天说了啊
+I can tell everyone, I said it today
+
+战友们， 你听不听
+My fellow comrades, you listen or not
+
+那是你的事儿， 我告诉你了
+That’s your business, I told you
+
+我也愿意为此负责任
+I am also willing to take responsibility for this
+
+我认为接下来的世界去中心化货币，特别是比特币
+I think the next decentralized currencies in the world, especially like Bitcoin
+
+可能一夜之间被消失
+may disappear overnight.
+
+也可能是给你一段时间
+It may also give you a little time
+
+受到严格的监管，逐渐消失
+and be subject to strict supervision and gradually disappear
+
+去中心化的数字币 基本在世界上流行的可能性没有
+There is no possibility that decentralized digital currency will be popular in the world
+
+你像现在比特币的什么提款机呀
+Like the current Bitcoin cash machine
+
+比特币的那个金融产品呀
+and those financial products of Bitcoin
+
+比特币抵押啊
+Bitcoin mortgage
+
+比特币数字交换啊
+Bitcoin digital exchange
+
+所有这些东西 不可能这些国家政府不管你
+All these things, it’s impossible for these governments to ignore you
+
+你现在就是在地球上呆着, 你还有国家
+You are staying on the earth now, and you still have your country
+
+你不可能被接受
+You can’t be accepted
+
+那么大家记住
+Then everyone has to remember
+
+美国现在和全世界开展的数字货币监管的结局
+The outcome of digital currency regulation in the United States and the world
+
+就是去中心化货币给你整没了
+is just that the decentralized currency is gone
+
+剩下的就是咱这个中心化货币，有人负责的货币
+The rest is our centralized currency, the currency that someone is responsible for
+
+会在各国畅通
+will be unimpeded in various countries
+
+那日本就关键了
+Then Japan is the key
 
 * * *
 
-*审核：文乐
-校对：信心满满*
-*发布：信心的选择*
+Date: 12/05/2021
+原视频标题:
+去中心化的数字货币可能一夜之间消失
+Decentralized Digital Currency May Disappear Overnight
+原视频日期：2021/12/04
+原视频链接 **[https://gettr.com/post/pip7xz8cb4](https://gettr.com/post/pip7xz8cb4)**
+任务编号：KC324(3108)
+视频时间段 : 00:00-02:05
+听校：洛杉矶盘古农场 – Raul
+翻译：洛杉矶盘古农场 – Raul
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-2.jpeg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -2,34 +2,27 @@
 ---
 
 
-## 中共地方债1/4超警戒线，明年墙内经济堪忧
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1745260/)
+## 美国财政部禁止对“商汤”投资
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1745283/)
 
-作者：日本方舟农场 Andy5
+作者：纽约香草山农场 – 文真
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-综合中共12月10日媒体消息，目前，墙内超过1/4省区地方债务率超过警戒线，借新还旧加上房地产爆雷，中共经济已是雪上加霜。
+12月10日，联合国“人权日”当天，美国财政部公布了对中共国人工智能创业公司“商汤”的投资禁制令。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide4-7.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide5-7.jpeg)
 
-中共人民大学经济研究所联席所长毛振华本周四表示，地方债规模超过27万亿。墙内31省区中，有8个省区债务率超过了100%的警戒线。天津市更是以153%的负债率，远超国际货币基金组织所划定的风险上限。上海财经大学10月的报告也指出，2021-2025年，墙内地方债务到期额度均在4.4万亿元以上。
+早在2019年，商汤公司因其技术涉及侵犯维吾尔族人权，已经被美国商务部列入实体黑名单。就在财政部公布禁制令的前几个小时，商汤推迟了本应周五在香港的首次公开发行。
 
-同时，这些债务又适时撞上正在爆雷，且将在明年密集到期的房地产美元债务。老百姓对买房均持观望态度，房企越来越难以贷到新的资金继续之前借新还旧的循环模式。
+根据财政部外国资产管制处的信息，商汤公司的面部识别程序可以确定目标种族，尤其重点识别维吾尔族人。在申请专利时，商汤重点强调了其产品识别维吾尔族人的能力，甚至可以识别戴胡须、太阳镜和面具的维吾尔人。
 
-刚结束的中共经济工作会议中，中共也明确提出明年还是稳字当头，特别是针对房地产采取的调控政策，只是继续实施限涨限跌并存的模式。
+中共正是利用此类数据驱动的监控技术，在新疆地区建立集中营，大规模拘捕关押无辜的维吾尔人。
 
-在12月10日大直播里，郭文贵先生指出，中共越是要保房地产，其死得越快。打个比方，就像在将要引爆的手雷上盖上更多挡板，爆炸时会有更多碎片裂出，杀伤力更大。
-
-参考链接：
-1）[稳字当头，详解中央经济工作会议：透露10大信号](https://www.sohu.com/a/507150557_115479)
-2）[毛振华：建议将部分地方债转为国债，降低债务风险](https://finance.sina.com.cn/china/gncj/2021-12-10/doc-ikyamrmy8025209.shtml)
-3）[规模超270000亿，地方债治理如何更有效？](https://www.yicai.com/news/101252293.html)
-4）[促进房地产业良性循环，中央经济工作会议释放四大关键信号](https://www.yicai.com/news/101255104.html)
-5）[2021年12月10日 文贵大直播](https://gtv.org/video/id=61b350ad56f4921401b40cca)
+参考链接：[US Blocks Investment In Uyghur-Hunting Facial-Recognition AI Startup](https://www.zerohedge.com/geopolitical/us-blocks-investment-uyghur-spotting-recognition-ai-startup)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
 
-总编：飞虹
-编辑：Kathy文艺
+总编：Ivy001
+编辑：正义的小新
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**

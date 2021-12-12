@@ -2,27 +2,25 @@
 ---
 
 
-## 美国财政部禁止对“商汤”投资
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1745283/)
+## 美国陆续出台制裁中共国芯片产业链的措施
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1745296/)
 
-作者：纽约香草山农场 – 文真
+作者：纽约香草山农场 -文真
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月10日，联合国“人权日”当天，美国财政部公布了对中共国人工智能创业公司“商汤”的投资禁制令。
+12月10日，美国媒体报道，一份最新报告显示美国官员正在考虑禁止向中芯国际出口。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide5-7.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide6-3.jpeg)
 
-早在2019年，商汤公司因其技术涉及侵犯维吾尔族人权，已经被美国商务部列入实体黑名单。就在财政部公布禁制令的前几个小时，商汤推迟了本应周五在香港的首次公开发行。
+自2020年，中芯国际因与中共军方的连带关系，被美国列入黑名单，因此被拒绝获得美国供应商的先进制造设备。但跟据近期外媒报道，中芯国际一直在利用美国的监管漏洞购买美国技术，美国国防部已经就此提出了一项阻止出口的建议。
 
-根据财政部外国资产管制处的信息，商汤公司的面部识别程序可以确定目标种族，尤其重点识别维吾尔族人。在申请专利时，商汤重点强调了其产品识别维吾尔族人的能力，甚至可以识别戴胡须、太阳镜和面具的维吾尔人。
+近期，美国政府连续出台了多项政令，以针对中共的芯片产业链。上个月，美国通过了阻止英特尔在中共国的扩张计划。最近，美国政府要求三星和台积电交出与中共国相关的供应链“敏感信息”。
 
-中共正是利用此类数据驱动的监控技术，在新疆地区建立集中营，大规模拘捕关押无辜的维吾尔人。
-
-参考链接：[US Blocks Investment In Uyghur-Hunting Facial-Recognition AI Startup](https://www.zerohedge.com/geopolitical/us-blocks-investment-uyghur-spotting-recognition-ai-startup)
+参考链接：[U.S. Officials Consider Banning Exports To Chinese Chipmaker SMIC](https://www.zerohedge.com/markets/us-officials-consider-banning-exports-chinese-chipmaker-smic)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
 
-总编：Ivy001
-编辑：正义的小新
+总编：Jack Li文阳
+编辑：Jack Li文阳
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**
@@ -32,6 +30,8 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

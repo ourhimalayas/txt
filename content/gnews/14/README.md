@@ -2,106 +2,177 @@
 ---
 
 
-## 文·贵天成——文贵先生谈“疫苗”（四十四）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1747830/)
+## 美 日 澳 印之间复杂的战略合作关系
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1747868/)
 
-**整理：**BENJ1
-**编辑：**隔壁老章
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1.jpg-5.png)图片来源：墨尔本雅典娜农场设计组（姐夫说说）
-**郭文贵先生2021****年8****月26****日直播**
+[https://gtv.org/video/id=61b57a3b87fa7e74c92ede8e](https://gtv.org/video/id=61b57a3b87fa7e74c92ede8e)
 
-中共送(疫苗的)二十几个国家的军队，加一起不是美国一个航空母舰编队的对手，对于（美军而言）（他们）可以忽略不计。但是，中共为啥要送这给他们疫苗呢？共产党这样做是有目的的，也就是打了疫苗后的军队，一半或者全部被干掉，这个国家的战斗力基本就没了。
+**郭文贵
+Miles Guo**
 
-共产党送疫苗的国家将近30个，他们是中国共产党很想要的市场，以及在联合国的投票权，也是未来输出共产主义的阵营。中共是大本营，削弱对方是政治需要。
+就是日澳美这三国跟欧洲和美国完全不同的关系
+Japan, Australia and the United States have completely different relationship with Europe and the United States
 
-南韩94%到95%的人打了疫苗以后，共产党跟北朝鲜都开心。昨天普京讲话的视频大家都看到了，他强调不要强制打疫苗。这个世界上的总统很多，非洲总统这样说了也没人理会，只有他这个总统这么牛，作为世界级的游戏参与者，普京站出来说了，不要强迫人家打疫苗，不打就不打吧，语气很委婉，但态度很坚决。
+说白了就是澳大利亚属于亚洲
+To put it bluntly, Australia belongs to Asia
 
-大家觉得俄罗斯军人有多少打疫苗？我断言，俄罗斯说百分之百都打的时候，大家要记住，那他就是百分之百没打。
+日本是亚洲的过去的第一强国
+In the past, Japan is the number one power in Asia
 
-我再强调，中国的军队不管说多少打了疫苗，那也只是选择性的打。金正恩没打，伊朗所有的核心部队绝对也不会打，巴基斯坦明确表示他们的战略部队一个都不打。五个邪恶国家中的四个核心部队不打。要打就让那些没用的人去打。
+也是经济上的第二强国
+and the second strongest country economically
 
-就像九指妖，让大家写遗书，她为何不让飞飞写遗书，不让小福利写遗书，不让小王子写遗书？因为这些人都比她精明，她要是让猫本写遗书，猫本一定回怼她，凭啥给你写遗书！只有不长脑子的才去写遗书。
+军事上严格讲说是第二
+In the military, strictly speaking, it is the second
 
-所以说，共产党和这四个邪恶国就抓住善良的穷兄弟爱占便宜的心理，免费送疫苗。但不能说因为你是老大，拿个垃圾往我嘴里塞的时候，我还要感谢你，是不是该想想，他们为啥不打疫苗？
+但是绝对不输中共的
+but it definitely does not lose to the CCP
 
-从这点这就能看出蔡英文这种人，是纯粹的政客。美国人说打我就打，美国军队打我也打。韩国没有独立的军队，完全听从美国，美国打我也打。日本也如此，美国大哥打我也打。
+那么在这个关系上对中共的态度上
+So, in terms of the attitude towards the CCP in this relationship,
 
-世界上，最终这些跟班小弟牺牲的原因，归结起来无非是两种结局：要么是大哥带错了路，要么跟错了大哥，被大哥出卖了。所以说要独立自主（思考）。
+在台湾的问题上
+and on the issue of Taiwan
 
-今天我非常清楚地告诉大家，要严防病毒。就在台海、日本海，最近两天在潜艇中有人感染病毒了，即使这样，这些军人回来以后也不准打疫苗。不要听信任何共产党的宣传，他们绝对不让军队打疫苗，特别是潜艇部队和导弹部队，绝对不会，疫苗注射分三六九由此可见一斑。
+大家看待问题的时候不要一样看
+Please don’t look at problems the same way
 
-现在我们说疫苗后军事。共产党今天的嚣张，仰仗的是网络、5G、无人机、导弹，还有自杀式潜水艇，这些是共匪的的压箱底武器。现在又有了生化武器，以及生化武器的衍生武器，叫子母弹，也就是今天的疫苗。共匪这招太厉害了。
+就像中共和俄罗斯和美国关系一样
+Just like the relationship between the CCP and Russia and the United States
 
-从全球看，军人是一个国家民族的精华所在，任何国家，所有的优秀男人女人都集中在军队里，只要军人打了疫苗军这个国家军事能力就丧失了。还有就是知识分子，不管哪个国家知识分子都是最胆小的，他们在全世界任何国家的疫苗接种率都高于普通人。最怕死就是知识分子、名人、有钱人，他们都是社会精英，疫苗接种率最高的就是他们。知识分子、教授、教书的、有钱人，名人明星都怕死，以为自己先打了就不会死，穷人没钱打没机会打就得死。
+中俄永远不可能所谓的永远的好
+China and Russia can never be so-called forever good
 
-这就是为什么有人乘私人飞机到美国来打辉瑞疫苗，然后再飞再回去，很多有钱人都这样。有欧洲人提早飞往迪拜，去打中国的科兴疫苗，打完以后再拉着家人乘飞机去打，大家想想这有多可怕。
+最后
+In the end,
 
-世界上疫苗扩散最大的两个地方，一个是美国一个是迪拜。生产疫苗最多的地方是中共国。所谓的子母弹，子弹出去是冠状病毒，母弹，也就是第二个弹，就是疫苗。很可怕。
+又一定是中国人作为牺牲品
+it must be the Chinese people as victims
 
-那么军队打了疫苗会产生什么结果？今天我们先不谈文化，明天再谈。别认为2025年100%中国共产党就被消灭了，世界真有可能就进入一段很长的黑暗期。
+历史以来杀中国人最多的是俄罗斯人
+It’s the Russians who have killed the most Chinese in history
 
-希特勒当年所想干的没干成的事，现在共产党基本全干上——洗脑，100%的舆论控制。
+而且是美国人几乎跟中国人没有什么利益冲突
+And the Americans have almost no conflict of interest with the Chinese
 
-由于欧洲的国家太小，生活品质太好，大家都不想发生战争。共产党在欧洲人之间挑拨离间，让他们支离破碎，从而打烂欧洲的经济，也就打烂了欧洲的骨头，欧洲就会向共产党跪下来，现在已经是这样。
+那你去想一想亚洲人，不管你有多大
+Then think about the Asians, No matter how big you are
 
-日本由于它独特的岛屿特点，几乎所有供给资源依赖于海外，依赖海上交通线，所以轻易不敢开战。
+是澳大利亚人跑到亚洲不属于亚洲
+it’s Australians who went to Asia but it does not belong to Asia
 
-最后剩下一个袋鼠国，猫本小哥所在的这个国家。澳大利亚根本不堪一击。区区五千军队，只要敢动手，就会遭到毁灭性的打击，全部被消灭。
+它属于整个南澳到亚洲参战
+It belongs to the entire South Australia to participate in the war in Asia
 
-能和共产党谈的、交手的也这几个国家:美国、俄罗斯、日本、北约、澳大利亚，他们都不行，印度也基本如此。印度跟中共开战，就像是赶着牛车和坦克去打战，根本没有还手余地，结局不难想象。这些国家看看现在多少人打疫苗了，多少军队现在开始打疫苗了，除了俄罗斯和中共国，其他国家全打了。
+就它那个军事实力，那都是基本上就是表演型的
+As far as its military strength, it is basically a performance, a show
 
-*发布：*去中心化Math
+它只是拉过来，就凑数
+It just pulls over and makes up the count
 
-**往期回顧：**
-[文·貴天成——文貴先生談“疫苗”（一）](https://gnews.org/zh-hant/1645817/)
-[文·貴天成——文貴先生談“疫苗”（二）](https://gnews.org/zh-hant/1645823/)
-[文·貴天成——文貴先生談“疫苗”（三）](https://gnews.org/zh-hant/1668344/)
-[文·貴天成——文貴先生談“疫苗”（四）](https://gnews.org/zh-hant/1668507/)
-[文·貴天成——文貴先生談“疫苗”（五）](https://gnews.org/zh-hant/1668746/)
-[文·貴天成——文貴先生談“疫苗”（六）](https://gnews.org/zh-hant/1670621/)
-[文·貴天成——文貴先生談“疫苗”（七）](https://gnews.org/zh-hant/1670323/)
-[文·貴天成——文貴先生談“疫苗”（八）](https://gnews.org/zh-hant/1684732/)
-[文·貴天成——文貴先生談“疫苗”（九）](https://gnews.org/zh-hant/1684718/)
-[文·貴天成——文貴先生談“疫苗”（十）](https://gnews.org/zh-hant/1705041/)
-[文·貴天成——文貴先生談“疫苗”（十一）](https://gnews.org/zh-hant/1689817/)
-[文·貴天成——文貴先生談“疫苗”（十二）](https://gnews.org/zh-hant/1689842/)
-[文·貴天成——文貴先生談“疫苗”（十三）](https://gnews.org/zh-hant/1696409/)
-[文·貴天成——文貴先生談“疫苗”（十四）](https://gnews.org/zh-hant/1696426/)
-[文·貴天成——文貴先生談“疫苗”（十五）](https://gnews.org/zh-hant/1696506/)
-[文·貴天成——文貴先生談“疫苗”（十六）](https://gnews.org/zh-hant/1696670/)
-[文·貴天成——文貴先生談“疫苗”（十七）](https://gnews.org/zh-hant/1698300/)
-[文·貴天成——文貴先生談“疫苗”（十八）](https://gnews.org/zh-hant/1701520/)
-[文·貴天成——文貴先生談“疫苗”（十九）](https://gnews.org/zh-hant/1703862/)
-[文·貴天成——文貴先生談“疫苗”（二十）](https://gnews.org/zh-hant/1703902/)
-[文·貴天成——文貴先生談“疫苗”（二十一）](https://gnews.org/zh-hant/1703942/)
-[文·貴天成——文貴先生談“疫苗”（二十二）](https://gnews.org/zh-hant/1704319/)
-[文·貴天成——文貴先生談“疫苗”（二十三）](https://gnews.org/zh-hant/1704375/)
-[文·貴天成——文貴先生談“疫苗”（二十四)](https://gnews.org/zh-hant/1704459/)
-[文·貴天成——文貴先生談“疫苗”（二十五）](https://gnews.org/zh-hant/1710418/)
-[文·貴天成——文貴先生談“疫苗”（二十六）](https://gnews.org/zh-hant/1710450/)
-[文·貴天成——文貴先生談“疫苗”（二十七）](https://gnews.org/zh-hant/1710460/)
-[文·貴天成——文貴先生談“疫苗”（二十八）](https://gnews.org/zh-hant/1720891/)
-[文·貴天成——文貴先生談“疫苗”（二十九）](https://gnews.org/zh-hant/1721026/)
-[文·貴天成——文貴先生談“疫苗”（三十）](https://gnews.org/zh-hant/1728712/)
-[文·貴天成——文貴先生談“疫苗”（三十一）](https://gnews.org/zh-hant/1728742/)
-[文·貴天成——文貴先生談“疫苗”（三十二）](https://gnews.org/zh-hant/1728786/)
-[文·貴天成——文貴先生談“疫苗”（三十三）](https://gnews.org/zh-hant/1731835/)
-[文·貴天成——文貴先生談“疫苗”（三十四）](https://gnews.org/zh-hant/1731905/)
-[文·貴天成——文貴先生談“疫苗”（三十五）](https://gnews.org/zh-hant/1731921/)
-[文·貴天成——文貴先生談“疫苗”（三十六）](https://gnews.org/zh-hant/1732239/)
-[文·貴天成——文貴先生談“疫苗”（三十七）](https://gnews.org/zh-hant/1735257/)
-[文·貴天成——文貴先生談“疫苗”（三十八）](https://gnews.org/zh-hant/1735300/)
-[文·貴天成——文貴先生談“疫苗”（三十九）](https://gnews.org/zh-hant/1735321/)
-[文·貴天成——文貴先生談“疫苗”（四十）](https://gnews.org/zh-hant/1739792/)
-[文·贵天成——文贵先生谈“疫苗”（四十一）](https://gnews.org/zh-hans/1740057/)
-[文·贵天成——文贵先生谈“疫苗”（四十二）](https://gnews.org/zh-hans/1740093/)
-[文·贵天成——文贵先生谈“疫苗”（四十三）](https://gnews.org/zh-hans/1746718/)
+你知道就像路大脑袋
+You know it’s like the big head Lude
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+他自己骗不了钱
+He couldn’t scam money by himself
+
+他就把蛇妖闫弄来了
+so he got Snake Demon Yan here
+
+你去看跟路大脑袋、蛇妖闫下边在看的
+Go check out the big head lude and the Snake Demon Yan’s broadcast
+
+现在还有3000人
+There are still 3000 people watching
+
+几乎80%的都是对着蛇妖闫去的
+Almost 80% of them are there because of Snake Demon Yan
+
+那么，日本人拉着澳洲就拉了这么一个，就这个意思
+therefore the Japanese are pulling Australia together with it. That’s what it means
+
+我得拉个站台的
+The Japanese have to pull a backer
+
+美国人不见得跟他站台
+but the Americans haven’t acted for them as a backer
+
+美国是为了让自己当老大
+The U.S. wants to be the boss itself
+
+我要当老大，我要……我要喊两嗓子
+They want to be the boss and shout it out loud
+
+美国人是想日本人，你上，你先打
+Americans want the Japanese to go and to fight first
+
+因为第一个死是你
+because it would be the first one to die
+
+澳洲说下个就是你澳洲，澳洲是什么？
+Australia said Australia is the next. What about Australia?
+
+澳洲的所有的经济百分之六、七十并不来源于美国，是来源于亚洲
+60%-70% of Australia’s economy does not originate from the United States, but from Asia
+
+它是经济利益在前
+Its economic interests at the head of the line
+
+特别是台湾
+especially Taiwan
+
+所以说它是经济和日本的战略安全
+So (Australia) is the economy and Japan’s strategic security
+
+美国人怂恿的是日本人、澳洲人和印度人上
+The Americans encouraged the Japanese, Australians, and Indians to go
+
+哎，印度人这个莫迪说，咱不掺和这事儿，你们打
+The Indian Narendra Modi said you could fight, but Indians would not participate
+
+反正我不想当老大
+I don’t want to be the boss anyway
+
+你也灭不了我
+and you can’t destroy me
+
+所以说它这个关系，战略关系到最后的结局是什么？
+So that the relationship, what is the final outcome of this strategy relationship?
+
+日本人，你看安倍现在讲的话
+The Japanese, look at what Abe is saying now
+
+安倍在任的时候，没有比他对中国再舔腚的了
+When Abe was in office, there was nothing more licking China than he did
+
+这个家伙你可别相信他说那么多话
+Do not trust this guy that much on what he said
+
+他的家族和他的政治立场，如果他硬一点点
+On his family and his political standpoints, if he was a little tougher
+
+习近平不至于到今天对台湾
+Xi Jinping would not treat Taiwan like he does today
+
+* * *
+
+Date: 12/06/2021
+原视频标题: 美 日 澳 印之间复杂的战略合作关系
+The Complex Strategic Partnership Within The United States, Japan, Australia and India
+原视频日期：2021/12/05
+原视频链接: [**https://gettr.com/post/pivgnud674**](https://gettr.com/post/pivgnud674)
+任务编号：KC325(3132)
+视频时间段 : 0:00-2:13
+英听校：洛杉矶盘古农场 – 郭班之樱
+翻译：洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
