@@ -15,86 +15,86 @@
 
 ---
 
-### [新冠变体Omicron表现温和，美国零死亡](/content/gnews/1/README.md)
- ` 墨尔本雅典娜农场`
+### [为什么COVID疫苗不能也不应该强制](/content/gnews/1/README.md)
+ ` 日本东京方舟农场`
 
-### [七国集团外长就北京冬奥会交换意见](/content/gnews/2/README.md)
- ` HimalayaRussia`
-
-### [12/10/2021 文贵直播：中共国金融房地产的大部分钱来自国外金融机构，这本身就触碰了所谓的外商禁入产业和外汇管制政策和法律](/content/gnews/3/README.md)
- ` 秘密翻译组-北美组`
-
-### [澳大利亚免疫技术专家咨询小组（ATAGI）透露其从未建议实施有争议的中共疫苗强制令，令人震惊](/content/gnews/4/README.md)
- ` 走进澳洲`
-
-### [岸田文雄在民主峰会上谴责中共侵犯人权](/content/gnews/5/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [是否抵制北京冬奥会欧洲态度仍不明朗](/content/gnews/6/README.md)
- ` HimalayaRussia`
-
-### [1210文贵大直播（二）：中共地产暴雷，促使西方联合灭共](/content/gnews/7/README.md)
- ` 墨尔本雅典娜农场`
-
-### [千万不要放松对病毒的警惕性](/content/gnews/8/README.md)
+### [主流经济学家正在努力隐藏即将到来的经济崩溃](/content/gnews/2/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [马斯克透露了他对特斯拉赛博卡车的最大担忧](/content/gnews/9/README.md)
+### [新冠变体Omicron表现温和，美国零死亡](/content/gnews/3/README.md)
  ` 墨尔本雅典娜农场`
 
-### [1210文贵大直播（一）：北京冬奥会落空，中共加速走向灭亡](/content/gnews/10/README.md)
- ` 墨尔本雅典娜农场`
+### [七国集团外长就北京冬奥会交换意见](/content/gnews/4/README.md)
+ ` HimalayaRussia`
 
-### [师生们纷纷逃离香港的“爱国”教育](/content/gnews/11/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [12/10/2021 文贵直播：单伟建之流标榜独裁的中共国是西方冒险家的乐园](/content/gnews/12/README.md)
+### [12/10/2021 文贵直播：中共国金融房地产的大部分钱来自国外金融机构，这本身就触碰了所谓的外商禁入产业和外汇管制政策和法律](/content/gnews/5/README.md)
  ` 秘密翻译组-北美组`
 
-### [【粤语配音】2021年12月10日：欧洲四国坚决抵制北京冬奥会](/content/gnews/13/README.md)
+### [澳大利亚免疫技术专家咨询小组（ATAGI）透露其从未建议实施有争议的中共疫苗强制令，令人震惊](/content/gnews/6/README.md)
+ ` 走进澳洲`
+
+### [岸田文雄在民主峰会上谴责中共侵犯人权](/content/gnews/7/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [是否抵制北京冬奥会欧洲态度仍不明朗](/content/gnews/8/README.md)
+ ` HimalayaRussia`
+
+### [1210文贵大直播（二）：中共地产暴雷，促使西方联合灭共](/content/gnews/9/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [千万不要放松对病毒的警惕性](/content/gnews/10/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [马斯克透露了他对特斯拉赛博卡车的最大担忧](/content/gnews/11/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [1210文贵大直播（一）：北京冬奥会落空，中共加速走向灭亡](/content/gnews/12/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [师生们纷纷逃离香港的“爱国”教育](/content/gnews/13/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [12/10/2021 文贵直播：单伟建之流标榜独裁的中共国是西方冒险家的乐园](/content/gnews/14/README.md)
+ ` 秘密翻译组-北美组`
+
+### [【粤语配音】2021年12月10日：欧洲四国坚决抵制北京冬奥会](/content/gnews/15/README.md)
  ` MOS香港部`
 
-### [七哥谈普金和习近平的关系（2021－12－10摘录）](/content/gnews/14/README.md)
+### [七哥谈普金和习近平的关系（2021－12－10摘录）](/content/gnews/16/README.md)
  ` MG FARM`
 
-### [笔录新生——战友日常(七）](/content/gnews/15/README.md)
+### [笔录新生——战友日常(七）](/content/gnews/17/README.md)
  ` MOS Designer香草山设计部`
 
-### [笔录新生——战友日常(六）](/content/gnews/16/README.md)
+### [笔录新生——战友日常(六）](/content/gnews/18/README.md)
  ` MOS Designer香草山设计部`
 
-### [笔录新生——战友日常(五）](/content/gnews/17/README.md)
+### [笔录新生——战友日常(五）](/content/gnews/19/README.md)
  ` MOS Designer香草山设计部`
 
-### [笔录新生——战友日常(四）](/content/gnews/18/README.md)
+### [笔录新生——战友日常(四）](/content/gnews/20/README.md)
  ` MOS Designer香草山设计部`
 
-### [笔录新生——战友日常(三）](/content/gnews/19/README.md)
+### [笔录新生——战友日常(三）](/content/gnews/21/README.md)
  ` MOS Designer香草山设计部`
 
-### [七哥谈好人与坏人（2021－12－10摘录）](/content/gnews/20/README.md)
- ` MG FARM`
-
-### [笔录新生——战友日常(二）](/content/gnews/21/README.md)
+### [笔录新生——战友日常(二）](/content/gnews/22/README.md)
  ` MOS Designer香草山设计部`
 
-### [美国会议员将结束中共对美国农田的购买狂潮](/content/gnews/22/README.md)
+### [美国会议员将结束中共对美国农田的购买狂潮](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [加拿大总理特鲁多宣布外交抵制北京冬奥会](/content/gnews/23/README.md)
+### [加拿大总理特鲁多宣布外交抵制北京冬奥会](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [日本高級官員表示將不參加北京奧運會](/content/gnews/24/README.md)
+### [日本高級官員表示將不參加北京奧運會](/content/gnews/25/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [宾夕法尼亚州最高法院驳回口罩强制令](/content/gnews/25/README.md)
+### [宾夕法尼亚州最高法院驳回口罩强制令](/content/gnews/26/README.md)
  ` 纽约香草山MOS02`
 
-### [2021年12月10日文贵大直播简报](/content/gnews/26/README.md)
+### [2021年12月10日文贵大直播简报](/content/gnews/27/README.md)
  ` 秘密翻译组-原创组`
-
-### [媒体试图诋毁VAERS对Covid疫苗副作用的报道](/content/gnews/27/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [俄罗斯尽显双头鹰本色，与美国私下表态形成联美抗共统一战线](/content/gnews/28/README.md)
  ` YALUN 亚伦`
