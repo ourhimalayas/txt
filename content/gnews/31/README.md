@@ -2,47 +2,42 @@
 ---
 
 
-## 哥伦比亚最大的银行提供比特币交易
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1745606/)
+## 美国向乌克兰提供导弹和火箭发射器
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1746009/)
 
-**编者按：**
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-在全球经济即将崩塌之际，加密数字货币已成为世界金融的聚焦热点与发展方向。而作为比特币并没有黄金锚锭，如来时有影，将去而无声，它始终带有原罪，没有中心负责的交易何以保持稳定地兑现法币?比特币虽然成为一些南美洲小国大银行的交易许可，然而作为这些地区的毒品交易，它不过成为一个洗钱的工具而已，它 将如一个匆匆过客，当经济大萧条崩盘时，比特币必将坠落而消失。
-
-据《**Zerohedge**》记者：**TYLER DURDEN，2021**年**12**月**7**日报道：
-
-比特币杂志投稿
-加密货币交易所**Gemini**周一在一份声明中表示，该公司将很快在哥伦比亚为该国最大银行**Bancolombia**的客户提供无阻力的比特币交易。然而，目前尚不清楚用户是否能够提取资金** —— **这是比特币实现金融主权的重要特征。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-122-e1639288136280.jpg)图片源自原文
-该合作伙伴关系是政府资助的试点计划的一部分。它将于12月14日推出，为Bancolombia的首批客户提供无缝的进出通道，以通过交易所交易比特币。
-
-Gemini战略和企业发展负责人Cynthia del Pozo García 在声明中表示：“此次合作也是Gemini在拉丁美洲战略扩张的重要一步。”
-
-“我们期待与哥伦比亚加密生态系统密切合作，并支持加密产品，使哥伦比亚人能够控制他们的财务生活。”
-
-**哥伦比亚政府通过该国的金融监管机构Superintendencia Financiera de Colombia (SFC) 启动了一项为期一年的试点计划，以更直接的方式为公民提供比特币和加密货币服务。**
-
-“加密本质上是无国界的，我们致力于扩大对全球个人的加密访问，” del Pozo García 补充道。
-
-Bancolombia银行是Bancolombia集团的一部分，该集团还拥有巴拿马和中美洲最大的银行Banistmo；BAM，来自危地马拉；以及为萨尔瓦多客户提供服务的 Banco Agricola。根据其数据报告，截至2020年12月31日，该集团拥有1780万客户。
-
-今年1月，证监会宣布已从14家申请人中选择了9家加密货币交易所参与试点。除了Gemini之外，该名单还包括币安 (Binance) 和墨西哥公司Bitso。币安 (Binance)将与哥伦比亚第三大银行Davivienda和数字支付应用程序Powwi合作，而Bitso将与 Banco de Bogotá合作。
-
-文章来源：[https://www.zerohedge.com/crypto/colombias-biggest-bank-offer-bitcoin-trading](https://www.zerohedge.com/crypto/colombias-biggest-bank-offer-bitcoin-trading)
-
-翻译：洛杉矶盘古农场 – Raul
-
-校对：洛杉矶盘古农场 – Mike Li
-
-评论：洛杉矶盘古农场 – 滴水穿石
-
-编辑：洛杉矶盘古农场– 滴水穿石
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/1560429199-6740-1.jpg)
 
 
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
+ 
+图片来源: NSDC
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+#### 整理报道 ：小红帽
+
+**根据RT新闻12月11日报道，美国五角大楼披露了向基辅运送反坦克导弹系统和射弹的细节，原因是莫斯科越来越担心乌克兰顿巴斯地区爆发全面冲突。**
+
+在俄罗斯新闻媒体塔斯社周四收到的一份声明中，五角大楼发言人安东·塞梅尔罗斯（Anton Semelroth）中校表示：“价值6000万美元的货物……包括30个标枪指挥和控制发射器，以及180枚导弹”。据悉，火箭发射器于10月23日交付给乌克兰。
+
+“2021年，美国向乌克兰拨出超过4.5亿美元的援助用于安全任务，作为我们继续致力于支持乌克兰捍卫其主权和领土完整的能力的一部分，”塞梅尔罗斯补充说。
+
+乌克兰军事情报局局长基里尔·布达诺夫（Kirill Budanov）透露，乌克兰军队已经测试了由美国制造的先进标枪系统，并被顿巴斯的士兵使用。
+
+俄罗斯驻华盛顿大使阿纳托利·安东诺夫（Anatoly Antonov）在11月初警告白宫，向乌克兰提供致命武器装备可能会削弱该地区和平的希望。莫斯科认为“另一个鼓励基辅停止战争的机会已经错过”。
+
+乌克兰东部的冲突始于2014年独立广场事件，该事件最终导致顿涅茨克和卢甘斯克的“人民共和国”宣布独立。然而，莫斯科和基辅都没有正式承认他们。克里姆林宫坚持认为，乌克兰有责任与分离地区的领导人达成和平协议。
+
+新闻来源：[US delivers rockets to Ukraine — RT Russia & Former Soviet Union](https://www.rt.com/russia/542840-ukraine-delivery-american-rockets/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,24 +2,28 @@
 ---
 
 
-## 可怕！德国的儿童被强制要求公布自己的疫苗接种状况！
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1746111/)
+## 成千上万澳大利亚人上街抗议强制接种中共病毒疫苗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1746223/)
 
-翻译：坤哥
-编辑：zzballack
-上传：无明逆流
+#### 撰稿：彩虹
 
-据《网关专家》（Gateway Pundit）12月10日报道，记者亚历克斯·史都瑞 (Alex Story)近日在接受英国媒体《GB News》采访时透露，现在德国的孩子们被要求走到教室前面，说明自己的疫苗接种情况，接种了疫苗的人将获得掌声，而未接种疫苗的孩子必须解释为什么没有接种。这个仪式是对德国儿童的羞辱。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-59.png)图片来源：新闻视频截图
+12月12日，澳大利亚《天空新闻台》报道，12月4日和12月12日，在悉尼、墨尔本、霍巴特和黄金海岸，数以千计的澳大利亚人分别举行了抗议活动，抵制澳大利亚政府对中共病毒（COVID-19）疫情的响应和强制接种中共病毒疫苗。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/6ine.jpg)图片来源：原新闻
+在墨尔本，一千多名手持标志和旗帜的人聚集在墨尔本州议会外，然后沿着伯克街走到卡尔顿花园。他们边走边喊：“解雇丹·安德鲁斯（Dan Andrews）”、“自由的维多利亚”和“我的身体我做主”。
 
-据报道，上个月，德国库克斯港区 (Cuxhaven) 的一名12岁儿童在接种辉瑞疫苗两天后死亡。官员们因此撤回了对儿童的疫苗强制令。
+在墨尔本中央商务区，一度出现了混乱的场面，因为抗议活动和墨尔本马拉松比赛相冲突，导致了道路关闭。
 
-但是，上周四（11月2日），德国前总理安格拉·默克尔（Angela Merkel和刚接替默克尔的现任总理奥拉夫·朔尔茨（Olaf Scholz）公布了新的防疫限制令，并对未接种疫苗的人实施封锁。新的防疫措施包括：强制给医院、护理院的员工接种新冠疫苗；在圣诞节前要完成3000万支疫苗的接种；增加疫苗管理人员的数量，只有接种者和新冠康复者才能进入餐厅、剧院和非必要商店；对未接种者实行更严格的接触限制；关闭高感染率地区的夜总会；限制大型公共活动的观众人数；扩大危机处理小组以配合联邦、区域的行动。
+在悉尼，抗议者出现在海德公园，反对针对娱乐、创意艺术和医疗行业的强制接种中国病毒疫苗。抗议者们打着鼓，吹着口哨，从海德公园游行到了阿尔弗雷德王子公园，然后在那里搭建了一个舞台，并配备有扬声器，现场响起了音乐。
 
-疫苗接种状况是个人的医疗隐私，强制要求孩子透露自己是否接种了疫苗明显侵犯了个人权利。这是对未接种疫苗孩子的公开羞辱，也是在对其心理施压。这很像中共治下的批斗运动，野蛮、残暴，不尊重人。现在的德国越来越像纳粹德国，全球有良心、正义感的人必须团结起来，对抗并终结愈演愈烈的疫苗暴政。
+在更北边的黄金海岸和库伦加塔，因为该州准备向完全接种疫苗的旅客重新开放边界，数千人聚集在一起，反对中共病毒疫苗、封锁和戴口罩。组织者估计现场大约有六千人。
 
-新闻来源：[Ritual Humiliation of Children in Germany: Kids are Forced to go to Front of the Class and State Their Vaccination Status – the Vaccinated are Applauded](https://www.thegatewaypundit.com/2021/12/ritual-humiliation-children-germany-kids-forced-go-front-class-state-vaccination-status-unvaccinated-applauded/)
+在霍巴特，抗议强制接种中共病毒疫苗的数百人聚集在议会大厦的草坪上，然后穿过萨拉曼卡广场。现场，人们为那些因拒绝接种疫苗而失去工作的人默哀了几分钟。
+
+**新闻来源**
+
+[Thousands turn out in NSW, Victoria, Queensland and Tasmania to protest against vaccine mandates](https://www.skynews.com.au/australia-news/thousands-turn-out-in-nsw-victoria-queensland-and-tasmania-to-protest-against-vaccine-mandates/news-story/9ecda44ba53f490caed7c0ea54426b12)
 
  
 

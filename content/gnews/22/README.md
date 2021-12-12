@@ -2,20 +2,24 @@
 ---
 
 
-## 秘翻在线：又一个！曼联球员林德洛夫比赛中突然胸痛和心脏不适
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1745935/)
+## 可怕！德国的儿童被强制要求公布自己的疫苗接种状况！
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1746111/)
 
-#### 翻译/撰稿：zzballack
+翻译：坤哥
+编辑：zzballack
+上传：无明逆流
 
-#### 校对：白夜
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-609.png)   图片来源：每日邮报
-据《网关专家》（Gateway Pundit）12月11日报道，在英国时间12月11日晚间进行的诺维奇对阵曼联的英超比赛中，曼联后卫维克托·林德洛夫 (Victor Lindelöf)在比赛进行到第70分钟时，在一次对抗后突然感觉胸口疼痛，而且心率过快、呼吸困难，在经队医检查后不得不提前提前离场。
+据《网关专家》（Gateway Pundit）12月10日报道，记者亚历克斯·史都瑞 (Alex Story)近日在接受英国媒体《GB News》采访时透露，现在德国的孩子们被要求走到教室前面，说明自己的疫苗接种情况，接种了疫苗的人将获得掌声，而未接种疫苗的孩子必须解释为什么没有接种。这个仪式是对德国儿童的羞辱。
 
-曼联队的门将大卫·德赫亚（David de Gea）表示：“当我看到林德洛夫突然呼吸困难时，不禁想起了克里斯蒂安·埃里克森（Christian Eriksen）和塞尔希奥·阿圭罗（Sergio Agüero），这种情况真的很让人担心，生命安全第一，我希望他没事。”丹麦球员埃里克森在今夏的欧洲杯比赛中，因心脏骤停晕倒在球场上，之后被送往医院抢救。而巴塞罗那前锋阿圭罗在11月8日的比赛中，也是在一次对抗后突然胸口不适，被迫提前下场。阿圭罗在随后的体检中被查出心律失常，这类心脏病非常危险，可能导致他提前退役。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/6ine.jpg)图片来源：原新闻
 
-林德洛夫的情况不是少数个例，自新冠疫苗开始推广以来，越来越多运动员突然晕倒或心脏骤停，有些人甚至死亡。已有许多人开始关注这一反常现象，怀疑其是否与疫苗有关。无奈审查与疫苗有关言论的网络太过森严，这些声音立即就被拦截或删除，鼓吹疫苗接种的声音仍占据主流。正如文贵先生所说，当明年5月疫苗灾难开始爆发时，随着人们逐渐看清疫苗真相，全球才会觉醒，共同应对人类这一史无前例的危机。
+据报道，上个月，德国库克斯港区 (Cuxhaven) 的一名12岁儿童在接种辉瑞疫苗两天后死亡。官员们因此撤回了对儿童的疫苗强制令。
 
-新闻来源：[Another One… Manchester United Player Stops Play, Leaves Game Early with Reported Chest Pains](https://www.thegatewaypundit.com/2021/12/another-one-manchester-united-player-stops-play-leaves-game-early-reported-chest-pains/?utm_source=add2any&amp;utm_medium=PostBottomSharingButtons&amp;utm_campaign=websitesharingbuttons)
+但是，上周四（11月2日），德国前总理安格拉·默克尔（Angela Merkel和刚接替默克尔的现任总理奥拉夫·朔尔茨（Olaf Scholz）公布了新的防疫限制令，并对未接种疫苗的人实施封锁。新的防疫措施包括：强制给医院、护理院的员工接种新冠疫苗；在圣诞节前要完成3000万支疫苗的接种；增加疫苗管理人员的数量，只有接种者和新冠康复者才能进入餐厅、剧院和非必要商店；对未接种者实行更严格的接触限制；关闭高感染率地区的夜总会；限制大型公共活动的观众人数；扩大危机处理小组以配合联邦、区域的行动。
+
+疫苗接种状况是个人的医疗隐私，强制要求孩子透露自己是否接种了疫苗明显侵犯了个人权利。这是对未接种疫苗孩子的公开羞辱，也是在对其心理施压。这很像中共治下的批斗运动，野蛮、残暴，不尊重人。现在的德国越来越像纳粹德国，全球有良心、正义感的人必须团结起来，对抗并终结愈演愈烈的疫苗暴政。
+
+新闻来源：[Ritual Humiliation of Children in Germany: Kids are Forced to go to Front of the Class and State Their Vaccination Status – the Vaccinated are Applauded](https://www.thegatewaypundit.com/2021/12/ritual-humiliation-children-germany-kids-forced-go-front-class-state-vaccination-status-unvaccinated-applauded/)
 
  
 

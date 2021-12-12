@@ -2,22 +2,227 @@
 ---
 
 
-## G7外长会议 集结民主国家抗衡中俄威胁
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1746015/)
+## 每日快报：纽约计划建设&#8221;世界上最大的加密货币交易大厅&#8221;
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1746143/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-610.png)[图片来源](https://www.dw.com/zh/g7%E5%A4%96%E9%95%BF%E4%BC%9A%E8%AE%AE-%E9%9B%86%E7%BB%93%E6%B0%91%E4%B8%BB%E5%9B%BD%E5%AE%B6%E6%8A%97%E8%A1%A1%E4%B8%AD%E4%BF%84%E5%A8%81%E8%83%81/a-60088896)
-G7七国外长会议本周六、日两天（12月11日和12日）在英国利物浦登场，英国外交大臣特拉斯（Liz Truss）担纲主持此次会议。在上周的一场讲话中，特拉斯已先行预告，此次会议将把美国、英国、法国、德国、意大利、加拿大和日本七个具有国际影响力的民主国家集结起来，展现对抗全球侵略者、捍卫自由边界的团结力。英国媒体《卫报》报导，G7外长会议聚焦的议题包括俄罗斯对乌克兰的潜在侵略行为、南海争议、伊朗核协议和缅甸危机等。此外，预计也会谈到气候、中共病毒疫苗分配以及对发展中国家提供的援助。
+*作者：GSeries*
 
-本日，特拉斯在正式宣布会议开始时说：“我们需要坚定地一同行动，抵制那些试图限制自由和民主的侵略者。要做到这一点，我们需要有完全团结一致的声音。”特拉斯先前表示：“我希望七国集团国家在贸易、投资、科技和安全等领域加深联系，以便我们能够在全世界捍卫、推进自由和民主。在接下来的几天里，我将继续为此努力。”特拉斯承诺为发展中国家提供安全和经济支持，以捍卫世界各地的“自由边界”，这指的是美国、欧盟和英国正在组建的一系列基础设施投资设备，以应对中共国“一带一路”的竞争。她说：“我们需要与整个自由世界的盟友一起站在前线，因为经济影响力之争已经全面展开了。”她希望英国及其合作伙伴在金融和基础设施方面为发展中国家提供更多可靠的选择，这样他们就不需要仅仅依赖一个国家。特拉斯指出，44个中低收入国家对北京的债务超过了其国内生产总值的10%。对于俄乌边境的纷争，特拉斯表示，如果莫斯科进攻乌克兰，将是“一个战略错误”，会给莫斯科带来“严重后果”。她也说到，七国集团会议“将在反对侵略乌克兰的立场上绝对坚定”。特拉斯表示，希望在从俄罗斯到德国的北溪2号管道问题上与德国外长贝尔博克合作，以减少西方对专制政权的能源和技术的依赖。本次的会议也是德国新任外交部长贝尔博克（Annalena Baerbock）在多边论坛上的首次亮相。贝尔博克提到，七国集团拥有共同的价值观，如民主、人权以及对基于规则而非强权法则的国际秩序承诺。然而，“这些价值观不是天上掉下来的礼物，而是必须由我们站出来捍卫它们”。这就是为什么会议中必须聚焦俄罗斯在与乌克兰边境的军事行动以及“中共国和民主国家与专制国家之间的制度竞争”。
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/每日快报.png)
 
-韩国、澳大利亚、南非和印度的外长也受邀出席此次会议，而东南亚国家联盟（ASEAN）其中10个国家的外长则会在周日通过视频连线参与。
+# ***今日摘要***
 
-信息来源：[G7外长会议 集结民主国家抗衡中俄威胁](https://www.dw.com/zh/g7%E5%A4%96%E9%95%BF%E4%BC%9A%E8%AE%AE-%E9%9B%86%E7%BB%93%E6%B0%91%E4%B8%BB%E5%9B%BD%E5%AE%B6%E6%8A%97%E8%A1%A1%E4%B8%AD%E4%BF%84%E5%A8%81%E8%83%81/a-60088896)
+1. **[由中共资助的COVID调查员在国家脉搏曝光后被从世卫组织团队中除名](https://thenationalpulse.com/news/scalp-koopmans-removed-from-who-team/)**
+2. **[纽约市新赌场的计划包括 “世界上最大的加密货币交易大厅”](https://www.zerohedge.com/markets/plans-new-nyc-casino-include-worlds-largest-cryptocurrency-trading-floor)**
+3. ** [中国前财长质疑中国数据准确性，人为作假危害甚大](https://www.voachinese.com/a/china-s-stats-accentuate-positive-play-down-negatives-says-lou-jiwei-2-211211/6350327.html)**
+4. **[川普说他 1 月 6 日的演讲“非常平静”](https://thehill.com/blogs/blog-briefing-room/news/585414-trump-says-his-jan-6-speech-was-extremely-calming)**
+5. [**美众院外委会主席米克斯将率团访台**](https://gnews.org/zh-hans/1745072/)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
+
+# 重要事件
+
+- **[12.12. The National Pulse：由中共资助的COVID调查员在国家脉搏曝光后被从世卫组织团队中除名SCALP: COVID Investigator Funded By Chinese Communist Party Removed From WHO Team Following National Pulse Exposé.](https://thenationalpulse.com/news/scalp-koopmans-removed-from-who-team/)**
+
+
+玛丽恩-库普曼斯（Marion Koopmans）–曾在世界卫生组织的第一个COVID-19起源调查小组任职–似乎已被从该机构追踪病毒来源的新 “努力 “中移除，因为在《国家脉搏》披露了她与中国共产党的长期关系后，她似乎已被从该机构追踪病毒来源的新 “努力 “中移除。
+
+库普曼斯似乎遭遇了与世界卫生组织（WHO）同行彼得-达斯扎克类似的命运–他是一名美国研究人员，其武汉病毒研究所的合作得到了安东尼-福奇的资助。
+
+在世卫组织新成立的新型病原体起源科学顾问小组（SAGO）10月的最初公告中，Koopmans被列为28名成员之一。然而，SAGO的最新成员名单中没有包括Koopmans，因为他是据称揭开COVID-19起源的努力的贡献者。
+
+Daszak的生态健康联盟的科学和政策顾问Hume Field博士在Twitter上对Koopmans似乎被从委员会中除名表示遗憾。
+
+《国家脉搏》之前发现了库普曼斯在中国广东省疾病控制中心科学顾问委员会中的角色。”她曾为该地区新发传染病检测的实验室能力建设提供建议，并不断进行研究合作，试图通过该地区的动物生产链解开病毒的出现和传播，”该国有机构的工作总结指出她的工作。
+
+
+
+- **[12.12. ZeroHedge：纽约市新赌场的计划包括 “世界上最大的加密货币交易大厅” Plans For New NYC Casino Include “World’s Largest Cryptocurrency Trading Floor”](https://www.zerohedge.com/markets/plans-new-nyc-casino-include-worlds-largest-cryptocurrency-trading-floor)**
+
+
+一个为纽约市全新的赌场，包括 “世界上最大的加密货币交易大厅 “的想法计划被提出。据彭博社报道，该赌场计划是由资金经理Jason Ader于12月10日提交的，预计还包括一个飞行汽车的起落架计划。该项目预计耗资超过30亿美元，还将包括一个电子竞技场和举办纽约时装周等活动的空间。
+
+曾任赌场分析师的阿德本周说。”我们的目标是有一个差异化但全面的娱乐方式，超越赌场游戏，有一些相当酷的元素。”阿德也曾是金沙集团的董事会成员，他是作为与环球娱乐公司合作的一部分进行竞标。
+
+纽约州博彩委员会正在为该州最南部地区发放三个新的赌场许可证。Ader的计划将是其他提交的计划之一。报道称，米高梅国际集团和云顶集团将寻求扩大他们在纽约市地区已有的老虎机和赛马场。Bally’s Corp.和Las Vegas Sands Corp.也已经就扩大他们在该地区的影响力进行了初步会谈。这家赌场将被命名为 “Mirai”，在日语中意为 “未来”。
+
+
+
+[** 12.12. VOAChinese：中国前财长质疑中国数据准确性，人为作假危害甚大**](https://www.voachinese.com/a/china-s-stats-accentuate-positive-play-down-negatives-says-lou-jiwei-2-211211/6350327.html)
+
+中国政协外事委员会主任、前财政部长楼继伟星期六（12月11日）再次直言不讳地批评中国国家统计数据不能反映经济负面变化的怪异现象，重新聚焦外界长期以来对中国经济数据准确性和可靠性的担忧。
+
+中共中央12月8日至10日在北京举行年度经济工作会议。根据中国官媒报道，中共中央总书记习近平在会上总结了今年经济工作，分析了当前的经济形势，并且部署了明年的经济工作。而国务院总理李克强则对明年经济工作作了具体的部署。会议认为，中国今年的经济表现实现了“十四五”的良好开局，经济发展和疫情防控“保持全球领先地位”，但是也承认中国经济发展面临“需求收缩、供给冲击和预期转弱”三重压力。
+
+楼继伟星期六表示，所谓上述三重压力根本就在中国的统计数据中看不到。能看到的统计数据都显示情况“非常好”。“没有足够的数字反映（经济中）出现的负面变化，”楼继伟说。他认为单向的数据让人很难评判政府所说的中国经济发展面临“需求收缩、供给冲击和预期转弱”的三重压力。“相反，美国的统计数据则包含正负两个方面的数字，”楼继伟说。
+
+数据掺水甚至造假是中国和其它专制国家的一个痼疾。很多为官之人为了政绩靓丽，博得上司欢心和提拔，常常人为修改数据；而一些公司，为了骗取贷款或融资，也会刻意根据需要拉高或压下数据。中国部分官员和公司数据造假的恶习，不仅给国家经济规划的部署和金融市场的秩序带来重创，而且让中国某些引以为傲的数据在国际间成为遭人诟病的笑话。
+
+习近平上台以后拼命抓权，把官场溜须拍马、奉迎上级的风气推向新的高度。尽管中国经济遭遇了空前的困难，但经济数据依然光鲜亮丽。许多中外专业人士对此普遍持怀疑态度。楼继伟在发言中举例说，中国政府认为尽管有疫情的冲击，但是注册的公司和市场实体却一直在增加。但是，真正的事实是这些公司中的一大部分早已经因为疫情对它们市场的冲击而停止营运，而取消官方的公司注册又非常困难。
+
+楼继伟还说，政府的统计数据显示就业人数有增加，但是却没有跟进和追踪，看看这些就业人口是否在半年或稍长一点时间后又被解雇。楼继伟曾经长期身处中国官场，对中国官场中报喜不报忧、迎奉拍马和欺上瞒下等恶习均有第一手的观察和体验。他在评论中国经济时也常常直言不讳，他的直率令人印象深刻。
+
+
+
+- **[12.12. The Hill：川普说他 1 月 6 日的演讲“非常平静” Trump says his Jan. 6 speech was ‘extremely calming’](https://thehill.com/blogs/blog-briefing-room/news/585414-trump-says-his-jan-6-speech-was-extremely-calming)**
+
+
+前任川普总统说他在国会大厦骚乱之前的 1 月 6 日演讲“非常平静”。在接受福克斯新闻采访时 劳拉·英格拉汉姆据《商业内幕》报道，周五，川普讨论了 1 月 6 日的国会小组，该小组正在调查导致数人死亡的国会大厦骚乱事件。“我没有什么好隐瞒的，”川普说。“我没有参与其中，如果你看看我的话和我在演讲中所说的话，实际上它们非常平静。”
+
+川普表示，对国会大厦的袭击是一次“抗议”，并谴责 2020 年的大选是真正的“叛乱”。“这是一次抗议。叛乱发生在11月3日，也就是选举日。这是一次抗议，很多无辜的人都受到了伤害。很多无辜的人都受到了伤害，”他说。
+
+自国会大厦骚乱以来，已有数百人被捕，其中许多人被控于 1 月 6 日袭击警察。川普在 1 月 6 日发生在国会大厦骚乱之前的一次集会上发表讲话，在此期间，他重申了虚假的选举欺诈指控，并告诉支持者他们需要“像地狱一样战斗”。
+
+“你永远不会以软弱的方式夺回我们的国家。你必须展示实力，你必须变得强大，”川普说。“我们拼命地战斗。如果你不拼命地战斗，你将不再拥有一个国家。”
+
+尽管有几个州的审计证明了选举结果，但川普并没有从他对 2020 年大选的虚假声明中退缩。
+
+
+
+[** 12.12. GNEWS：美众院外委会主席米克斯将率团访台**](https://gnews.org/zh-hans/1745072/)
+
+12月9日，美国众议院外交委员会主席米克斯在接受采访时表示，他计划将于2022年1月率领一个由50多位外委会成员组成的代表团访问台湾，届时希望能与蔡英文总统会面。米克斯表示，美国政府及其他政界人士已经明确表达了将与台湾站在一起的立场，对此，美国将不会理会来自于中共的任何压力。
+
+米克斯强调，依照现有的协议，台湾会长期维持当前的存在方式。为此，美国将确保台湾能拥有自我防卫的能力。米克斯还警告称，如果中共企图侵犯台湾，那将会是个天大的错误。
+
+对于中共威胁美国取消访问的言论，米克斯声明，他不惧怕中共施压，并表示会为其所坚持的事情持续发声。
+
+# 每日文贵说
+![](https://assets.gnews.org/wp-content/uploads/2021/04/2020-9-19-3__1.jpg)
+# 更多要闻链接
+
+1. [英国法院裁决为美国引渡阿桑奇打开大门](https://www.voachinese.com/a/uk-us-assange-20211210/6348768.html)
+2. [在英国的维吾尔特别法庭裁定中共当局犯有种族灭绝罪](https://www.voachinese.com/a/Uyghur-tribunal-rules-China-committed-genocide-in-Xinjiang-20211210/6348930.html)
+3. [G7外长会议 集结民主国家抗衡中俄威胁](https://www.dw.com/zh/g7%E5%A4%96%E9%95%BF%E4%BC%9A%E8%AE%AE-%E9%9B%86%E7%BB%93%E6%B0%91%E4%B8%BB%E5%9B%BD%E5%AE%B6%E6%8A%97%E8%A1%A1%E4%B8%AD%E4%BF%84%E5%A8%81%E8%83%81/a-60088896)
+4. [德语媒体：欧盟要对中国拿出“撒手锏”](https://www.dw.com/zh/%E5%BE%B7%E8%AF%AD%E5%AA%92%E4%BD%93%E6%AC%A7%E7%9B%9F%E8%A6%81%E5%AF%B9%E4%B8%AD%E5%9B%BD%E6%8B%BF%E5%87%BA%E6%92%92%E6%89%8B%E9%94%8F/a-60080666)
+5. [马斯克：“文明行将崩溃”](https://www.zerohedge.com/geopolitical/elon-musk-civilization-going-crumble)
+
+
+# 每日推特文摘
+
+
+
+一路下來4年，7哥頭髮都白了，一直教導戰友該如何提升個人境界，待人接物，對事不對人！辛苦7哥了一路下來4年，7哥頭髮都白了，一直教導戰友該如何提升個人境界，待人接物，對事不對人！辛苦7哥了🙏🙏🙏總有那麼一幫人讓7哥滅共還要教小朋友一樣教他們做人！！！
+
+
+
+
+
+> 一路下來4年，7哥頭髮都白了，一直教導戰友該如何提升個人境界，待人接物，對事不對人！辛苦7哥了🙏🙏🙏總有那麼一幫人讓7哥滅共還要教小朋友一樣教他們做人！！！ [https://t.co/lKequOQoBX](https://t.co/lKequOQoBX)
+> — Crazy James (@James15817613) [December 11, 2021](https://twitter.com/James15817613/status/1469685345897885700?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+12/10/2021 文贵直播：社交媒体胜过核武器！独裁者通过社交媒体洗脑、散播仇恨，收买大学、科学家和大机构，制造宗教矛盾、国家和民族冲突，用科学宗教主义让人打毒疫苗；现在是末法时代，死的是愚蠢的人
+
+
+
+
+
+> [https://t.co/dhwsqLORUC](https://t.co/dhwsqLORUC) 12/10/2021 文贵直播：社交媒体胜过核武器！独裁者通过社交媒体洗脑、散播仇恨，收买大学、科学家和大机构，制造宗教矛盾、国家和民族冲突，用科学宗教主义让人打毒疫苗；现在是末法时代，死的是愚蠢的人
+> — 新中国联邦公民（北评2025） (@tGj6kq0sAMr4NWx) [December 11, 2021](https://twitter.com/tGj6kq0sAMr4NWx/status/1469714443588468738?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+Eglise医生：打过疫苗的人未来将可能成为人造艾滋病状态 😱😱😱
+
+
+
+
+
+> Eglise医生：打过疫苗的人未来将可能成为人造艾滋病状态 😱😱😱[https://t.co/CPL6RnugmP](https://t.co/CPL6RnugmP)
+> — 希茜(澳喜特战旅) (@yfdemmler8) [December 11, 2021](https://twitter.com/yfdemmler8/status/1469649107312689156?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+美国肯塔基州遭受最严重的龙卷风‼️
+圣诞节前夕，数以十万计的居民家园被毁‼️
+
+
+
+
+
+> 美国肯塔基州遭受最严重的龙卷风‼️
+> 圣诞节前夕，数以十万计的居民家园被毁‼️
+> 
+>  [pic.twitter.com/WLovlfgM8W](https://t.co/WLovlfgM8W)
+> — 三文鱼Salmon (@Salmon\_Ten) [December 12, 2021](https://twitter.com/Salmon_Ten/status/1469868452265410560?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+Join us #tomorrow ⁦@SundayFutures⁩ ⁦@FoxNews⁩ 10am et #LIVE ⁦@SenJohnBarrasso⁩ ⁦@mikepompeo⁩ ⁦@HerschelWalker⁩ ⁦@StephenM
+
+
+
+
+
+> Join us [#tomorrow](https://twitter.com/hashtag/tomorrow?src=hash&amp;ref_src=twsrc%5Etfw) ⁦[@SundayFutures](https://twitter.com/SundayFutures?ref_src=twsrc%5Etfw)⁩ ⁦[@FoxNews](https://twitter.com/FoxNews?ref_src=twsrc%5Etfw)⁩ 10am et [#LIVE](https://twitter.com/hashtag/LIVE?src=hash&amp;ref_src=twsrc%5Etfw) ⁦[@SenJohnBarrasso](https://twitter.com/SenJohnBarrasso?ref_src=twsrc%5Etfw)⁩ ⁦[@mikepompeo](https://twitter.com/mikepompeo?ref_src=twsrc%5Etfw)⁩ ⁦[@HerschelWalker](https://twitter.com/HerschelWalker?ref_src=twsrc%5Etfw)⁩ ⁦[@StephenM](https://twitter.com/StephenM?ref_src=twsrc%5Etfw)⁩ [pic.twitter.com/FljDPCEOsV](https://t.co/FljDPCEOsV)
+> — Maria Bartiromo (@MariaBartiromo) [December 12, 2021](https://twitter.com/MariaBartiromo/status/1469868370770239491?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+连续第 22 个星期六在巴黎举行反对健康通行证和政府的示威活动。
+
+
+
+
+
+> 连续第 22 个星期六在巴黎举行反对健康通行证和政府的示威活动。 [https://t.co/WgRxpXbdOd](https://t.co/WgRxpXbdOd)
+> — 阿月（澳喜特战旅） (@yue\_1990) [December 11, 2021](https://twitter.com/yue_1990/status/1469775750765158405?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+ 
+
+ 
+
+
+
+ 
+
+ 
+
+
+
+ 
+
+ 
+
+
+
+ 
+
+ 
+
+
+
+
+
+
+*编辑：GSeries
+审核发布：文顾*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
