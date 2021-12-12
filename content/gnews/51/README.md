@@ -2,38 +2,24 @@
 ---
 
 
-## 新中国联邦已对中共造成实质性威胁
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1741893/)
+## 继兰州关闭中国银行后，山西关闭19家银行
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1742196/)
 
-作者：香草山农场-晓仙女
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生也在12月10日的直播中畅谈并详细解析了音乐的本质。
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/12/44-6.jpg)图片来源
+中国经济网12月10报道，山西监管局发布关于多处交通银行支行终止营业的批复，交通银行共终止营业19家支行，涉及太原、晋中、运城、阳泉、长治、朔州、晋城等地。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide3-6.jpeg)
+交通银行年报显示，该行始建于1908年，是中国历史最悠久的银行之一，也是近代中国的发钞行之一。1986年7月，国务院批准重新组建交通银行，是新中国第一家股份制商业银行。2003年，划归中国银行业监督管理委员会管理。于2005年6月、2007年5月先后在港交所、上交所上市。交通银行前三季度实现营业收入1999.70亿元，净利润643.60亿通银行曾是国有银行信用卡业务的排头兵。
 
-郭先生解释，音乐是可以传递上天信息的声音，自然界中，连狮子听到音乐也会跪下来，对于人类而言，音乐则是沟通人和天地之间的桥梁，它能启迪人类最深层本质的潜能。
+这是继11月30日，甘肃中国银行兰州分行关闭后又一省份关闭银行，早在2016年时，交通银行便成为第四家发卡量突破5000万张大关的银行，2020年末，在国有六大行中，交通银行仍以2.27%的信用卡不良率位居第一位。
 
-郭先生又提到，新歌《Hcoin to the moon》目前已经在亚洲众多国家，特别是日本的排行榜上获得榜首之位。另外根据战友提供的消息，该曲的MV也在美区iTunes音乐视频榜上稳居魁首。
+消息来源：
 
-对此，郭先生解读，在过去100年中，中国没有任何音乐能够参与国际打榜。而此次的新歌以及此前一系列的爆料革命歌曲打破了共产党对音乐的认知，其所带来的成果更是刺激了共产党的神经。
+[交通银行1个月关19家山西支行！投诉量居国有大型商业银行第一](https://ms.mbd.baidu.com/r/xMPDHj12Rq?f=cp&amp;rs=3313457208&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=d45dea174b3aa4fe)
 
-郭先生强调，新中国联邦的创举已经对共产党造成了实质性的威胁。
-
-参考链接：[2021年12月10日 文贵大直播](https://gtv.org/video/id=61b350ad56f4921401b40cca)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
-
-总编：Irene木木
-编辑：Kathy文艺
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
