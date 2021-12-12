@@ -2,54 +2,48 @@
 ---
 
 
-## 共产党对新中国联邦、顷一国之力的全面行动
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1747842/)
+## 加州学校为男孩接种COVID-19疫苗，并告诉他不要说出去
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1747848/)
 
-作者：MOS 翻译部-祈望明天会更好
+据《福克斯新闻》作者：Stephen Sorace，2021年12月7报道：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-12.jpg)
+据当地报道，一位加州母亲声称，她13岁的儿子在未经她同意的情况下，在学校被注射了COVID-19疫苗以换取披萨饼后，被告知不要说出去。
 
+杜阿尔特周一告诉NBC洛杉矶电视台，她的儿子最近从位于南洛杉矶的巴拉克-奥巴马全球预科学院回家，拿着一张疫苗卡，告诉她他是在得到披萨后接受的注射。
 
+杜阿尔特说：“知道他在没有得到我的允许，在不知情和没有签署任何文件的情况下就打了一针，这让我很伤心。”她补充说，她接种了疫苗，并不反对疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-648-e1639327499346.png)图片源自：美联社
+**洛杉矶联合学区在9月宣布，所有12岁或以上的学生将被要求在2022年1月10日之前全面接种COVID-19疫苗，除非他们获得医疗或其他豁免。这位母亲告诉电视台，给她儿子打针并在文件上签字的妇女告诉他：“请不要对外界说什么，我不想惹上麻烦。”**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-649-e1639327659336.png)图片源自：福克斯新闻
+孩子的学校隶属于美国第二大的洛杉矶联合学区（LAUSD），该学区在本学年开始时，在对12岁以上的孩子进行疫苗强制接种后，入学人数减少了27000多人或6%。
 
+该校区告诉本台，虽然它不能对学生的事情发表评论，但它确实遵循一个“安全学校到安全步骤的激励计划”，目的是确保为接种疫苗的学生设置措施，以获得接种奖励。
 
+洛杉矶特区的一位发言人周一上午告诉福克斯新闻数字报，“目前无法确认这一事件发生在巴拉克-奥巴马全球预科学院”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-647.png)
+该发言人说：“随着2022年1月10日学生接种疫苗截止日期的临近，该区在整个洛杉矶联合学校推出了‘安全学校到安全步骤的奖励计划’，这个计划为上传疫苗证明、有批准的医疗豁免或有条件申请入学的家庭提供奖励。”
 
-郭先生在12月10日大直播中明确表明:
+该发言人说，学校的总体疫苗接种率超过80%，并补充说，疫苗接种是“针对COVID-19的多层次保护的一个重要部分”，将使学生能够保持健康，进行当面学习。
 
-共产党对新中国联邦、爆料革命的恐惧, 已顷一国之力, 并采取一系列的全面行动:
+洛杉矶地区在9月宣布，所有12岁或以上的学生将被要求在2022年1月10日之前完全接种COVID-19疫苗，除非他们被授予医疗或其他豁免。
 
-一. 杨洁篪出来的第一个行动是在塞浦路斯抓了我们三个战友，关押12个战友，涉及战友上千人拿塞浦路斯护照。在非洲抓了10几个战友要遣返，中间说服西班牙，要遣返我们正在关押的大概6-7个战友. 对我们部分战友进行威胁，包括对国内战友进行诋毁, 绑架和打击.
+**没有豁免而仍未接种疫苗的学生将被迫转回虚拟学习。**
 
-二. 零下四度，把郭先生老爹赶到马路上，把同事1000多个员工赶到马路上.
+11月22日，洛杉矶区表示，该区79%的学生有完整、待定或部分的疫苗接种记录，或符合有条件录取或医疗豁免的条件。
 
-三. 爆料革命当中有2-3个潜伏地很深的共产党的情报人, 要把加拿大，能投5亿，20亿，30亿的人都找出，所以大家在加拿大务必要小心.
+原文连接：[https://www.foxnews.com/us/california-boy-coronavirus-vaccine-pizza-consent-school](https://www.foxnews.com/us/california-boy-coronavirus-vaccine-pizza-consent-school)
 
-郭先生再次强调:严格讲大家已经没有选择了，他对我父母动手那一刻不是对我，是对整个新中国联邦动手，说明共产党真正把我们当成了和他对抗，认为能对他产生威胁的一级力量。
+翻译：洛杉矶盘古农场 – TrueSky
 
-新闻链接：[https://gtv.org/video/id=61b350ad56f4921401b40cca](https://gtv.org/video/id=61b350ad56f4921401b40cca)
+校对：洛杉矶盘古农场 – Mike Li
 
-编辑/校对/发稿：小小安
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-192.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/C63FEDBD-BD98-417E-9087-749CFBBB3C01.jpeg)
+评论：洛杉矶盘古农场 – Wendy 编辑：洛杉矶盘古农场 – Wendy
 
 
+![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入: (或点击上方图片）
 
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

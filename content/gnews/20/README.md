@@ -2,123 +2,19 @@
 ---
 
 
-## 从此没有郭七条 加速灭共让它消失
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1747878/)
+## 12月12日文贵大直播快讯——俄方明确声明不支持攻台战略
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1747879/)
 
-[https://gtv.org/video/id=61b5ffd587fa7e74c92f0f6a](https://gtv.org/video/id=61b5ffd587fa7e74c92f0f6a)
+撰稿：Gradient Boost
 
-**郭文贵**
-**Miles Guo**
+视频：上帝的随从
 
-大家看到这个了
-Everyone has seen this
+美东时间当地12月12日，文贵先生在大直播当中谈过去24小时在中共国发生的事情时说，最让中共受到刺激接受不了的，其实就是来自俄罗斯的问题。在俄美两国会谈之前，俄罗斯原本是准备和中共上演“你弄我要喝”这样一出戏码的，甚至还会给与技术上的支持。而现在俄罗斯派出特使向中共声明，不会跟从中共国参与到攻打台湾的战略中去。
 
-咱做这个是个草率的
-This one that we did is hasty
+俄罗斯的决议是已经确定的，不存在绕弯的问题。而且俄方明确向中共国表示，所有中共与俄罗斯签署的油气协议，中共国必须执行。言下之意，中共该给的钱一分也不能少，如果少了就不仅是不支持的问题了，俄方甚至就会站到美国那一边。
 
-谢谢Q妹、墨镜先生、小白、Ryan
-Thank you sister Q, Mr. Sunglasses, Xiaobai, and Ryan
-
-这个你们做得非常非常棒
-You guys did a very good job
-
-我们要做的事情一定要是
-What we have to do must be (perfect)
-
-咱做这事儿
-When we plan this thing
-
-咱把它这个他们的丧事给它变成共产党有史以来最高级的
-Let’s make it their funeral the highest level in the history of the Communist Par-ty ever
-
-所有制造的棺材都是要特殊材料
-All coffins will be made of special materials
-
-花圈都是特殊材料
-All wreaths will be used in special materials
-
-甚至用这个碳纤维carbon fiber都行
-even with this carbon fiber works too
-
-要做得精美细化
-It need to be exquisitely detailed
-
-要用的音乐喇叭
-We should use music laud speakers
-
-在（中共的）各国大使馆响起的时候
-When (all speakers) sound at every Chinese (the CCP) embassy in a different country
-
-要达到了这个世界专家音乐水平的
-It should reach the level of expert music in the world
-
-比七哥唱Hcoin to the Moon还要厉害
-and better than the result of Miles Guo singing Hcoin to The Moon
-
-叫他们的家人、他们的妈听到以后都直接进天堂
-So that their (the CCP)family, their mother go straight to heaven after hearing it
-
-非死不可那种的
-and to reach must die that kind of effect
-
-这音乐听得他非死不可
-This music makes him have to die
-
-让习近平，彭丽媛他们可以听不见
-Xi Jinping and Peng Liyuan may not hear
-
-只要他们听见，他们就想死
-But they would want to die upon hearing it
-
-他有他母亲齐心
-His mother Qixin is in his heart
-
-他有习仲勋
-His father Xi Zhongxun is in his heart
-
-我让他母亲齐心知道
-I’ll let his mother Qixin know
-
-你儿子对待别人的父母的感觉是什么样子
-the feeling about her son treating other people’s parents
-
-你们一定要做得绝
-You must do it extremely
-
-要不就别做，要做就做到绝
-do it by all means, otherwise don’t touch it at all
-
-我让所有驻海外的中共的大使馆的官员
-I’ll let all the officials of the CCP’s embassies abroad
-
-我让他们知道
-I’ll let them know
-
-你们的父母一定不会老死
-their parents will never be end well
-
-一定会被装在这个新中国联邦给准备的棺材里边去
-They will be packed in a coffin prepared by the New China State of China
-
-Date: 12/09/2021
-原视频标题: 从此没有郭七条 加速灭共让它消失
-There is no More Guo Qitiao From Now on And Speed up The Process of Taking Down the CCP
-原视频日期：2021/12/08
-原视频链接: https://gettr.com/post/pj7l1r6d6d
-任务编号：KC331（3164）
-视频时间段 : 0:00-1:43
-
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译：洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 -天涯行
-审片：洛杉矶盘古农场 -银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+对习神来说，俄方的表态可以说是一种巨大的羞辱。过去世界格局的变化，其根源就在中共联俄抗美的战略路线，而现在已经走到尽头。同时，俄国和印度、北朝鲜、巴基斯坦以及伊朗等国家将形成一个新的联盟关系，但是排除了共产党。这些国家将中共撇在一边，要单独与美国进行交易。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
