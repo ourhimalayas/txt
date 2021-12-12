@@ -2,122 +2,82 @@
 ---
 
 
-## 最高级别送葬共产党
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1746461/)
+## 为什么CNN发表了攻击副总统卡马拉·哈里斯的文章（一）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1746538/)
 
-[https://gtv.org/video/id=61b4d1cc87fa7e74c92ea2ea](https://gtv.org/video/id=61b4d1cc87fa7e74c92ea2ea)
+编译：The world
 
-大家看到这个了
-Todos vieron esto
+*本文章取材于Ben Shapiro，Ben Shapiro是著名的世界上最有名的右翼媒体Daily wire的创始人*
 
-咱们这个是个草率的
-Lo nuestro es un poco riguroso
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-27.jpg)图片来源：bbc.com
 
-谢谢Qmay, 墨镜先生, 小白, Rain
-Gracias a Qmay, Señor Mojing, Xiaobai y Rain
+让我们来谈谈乔·拜登给自己挖的一个大坑。
 
-这个你们做的非常非常非常棒
-Lo hicieron muy bien
+他在竞选期间就犯了一个大错误。他当时面临着必须去挑选一位副总统的局面。而在他面前有很多选择，他本来可以选择像艾米·克洛布切这样的人，这样可以讨好一些中立选民。 他本可以选择像伊丽莎白·沃伦这样的人，打动极左人士。或者你可以尝试讨好少数人种联盟，选一位黑人女士。
 
-我们要做的事情一定要是
-Lo que vamos a hacer debe ser
+而他决定，他要去取悦少数人种联盟。通过挑选一位黑人女士作为副总统，但这不是一位普通的黑人女士。这位黑人女士是卡马拉-哈里斯，曾经攻击拜登说他是种族主义者，还可能犯下过性侵犯。
 
-咱做这事儿
-Nosotros hacemos esto
+而且作为一个总统竞选者，哈里斯的表现也非常糟糕，甚至在她的大本营加利福尼亚州可以进行初选投票之前她就已经完全出局了。
 
-咱把它这个他们的丧事儿, 给它变成共产党有史来最高级的
-Hagamos que sea su funeral y que sea el más alto nivel en la historia del Partido Comunista 
-所有制造的棺材都是要特殊材料
-Todos los ataúdes fabricados estarán hechos de materiales especiales
+卡马拉-哈里斯作为一名政治家就是一个彻底的失败者。她是来自加利福尼亚的参议员，任何民主党人只要是个活人就能在加州获胜。她现在是美国副总统的唯一原因是，乔·拜登把她从政治垃圾桶里捞出来，决定让她当副总统，据说是因为拜登认为他需要一个有色人种出现在他的选票上。
 
-花圈都是特殊材料
-Las coronas son todos de materiales especiales
+当然，考虑到他如何在初选中击败了伯尼-桑德斯，这并不是真的。具体来说，这是因为就在这之前南卡罗来纳州等地的黑人的选票统统投给了拜登而不是桑德斯。
 
-甚至用这个碳纤维carbon fiber都行
-Incluso se puede usar esta fibra de carbono o fibra
+所以他犯了一个错误。他基本上是把布莱恩-加伯特签为替补，然后意识到布莱恩-加伯特并不是如他想象的那样。
 
-要做的精美细化
-Debe hacerlo exquisitamente refinado
+而现在的事情是这样的，乔·拜登是一个糟糕的总统。每个人都知道他是个糟糕的总统。他的支持率在40分以下，30以上。
 
-要用的音乐喇叭在(中共的)各国大使馆响起来的时候
-Cuando suene la música a través del parlante en las embajadas (PCCh) de varios países
+通常情况下，如果你是一个民主党人。你会想，好吧，好吧。乔·拜登必将承受打击。因为他要做的所有这些都是非常左派非常具有变革性的事情。而一旦他做完了这些进步的变革性的事情，他就会让开把位置交给别人。他将承受所有的指责。然后下一个民主党人就会走上荣耀之路，因为他们会有乔-拜登推动他们前进的这种动力。
 
-要达到了这个世界专家音乐水平的
-Debe alcanzar el nivel experto mundial en música
+他们将面对这个已经存在的新的美国的经济情况。所以他们不会因此而受到指责。它们将走进一个新的现状，光鲜亮丽，蓄势待发。
 
-比七哥唱H-coin to the moon还要厉害
-Y más poderoso que la canción que canté de H-coin to the moon
+然而这里有一个问题。这位接替乔·拜登的人，一旦乔-拜登拄着拐杖走下舞台，一旦拜登自然而然的下台，这是不是意味着接替他的人是卡马拉-哈里斯。而卡马拉·哈里斯目前的支持率为28%，这意味着所有人都讨厌她。
 
-叫他们的家人, 他们的妈听到以后都直接想进天堂
-Para que su familia y sus madres luego que la escuchen quieran entrar de una vez al paraíso
+基本上喜欢他的人只有哈里斯自己和她的粉丝俱乐部。这就是全部了，因为真的没有人喜欢她。因此，现在你开始看到左翼媒体转向攻击卡马拉-哈里斯。这是因为他们意识到他们手上有一个滚烫的垃圾，如果乔·拜登在2024年不参选而卡马拉·哈里斯参选了。
 
-非死不可的那种的
-Del tipo que debe morir sí o sí
+如果你的获选人比一个植物人还要差的话，这对于民主党来说会是一个灾难。
 
-这音乐听得他非死不可
-Debe morir sí o sí escuchando esta música
+而拜登作为美国总统，他不能在不磕磕绊绊地读完一个完整的段落，他会在自己的裤子里撒尿拉屎，而支持他的人甚至比支持哈里斯副总统的人还多。这还不是因为副总统在公众面做了不受欢迎的事情而变得不受欢迎，这是因为每次她张嘴说话，即使是最无关的事情也会，也会使人们马上滋生反感。
 
-让习近平, 彭丽媛他们可以听不见
-Xi Jinping y Peng Liyuan pueden no escucharla
+因为卡马拉·哈里斯在某种程度上甚至不如希拉里-克林顿真诚，卡马拉·哈里斯在某种程度上甚至不如哈里-里德有个性。她比巴斯比-伯克利音乐剧中的作品还要更矫揉造作，每个人都能感觉到这一点。
 
-只要他们听见, 他们就想死
-Y si la escuchan, querrán morir
+我的意思是，这并不是说拜登一直在试探她，让她一直在外面做各种重要的事情。记住，拜登答应要和她共同执政，然后在上任前三周，当他们意识到卡马拉在这方面有多糟糕时，它们就像在说你为什么不去在楼梯下的这个柜子里做副总统？就像哈利波特一样。 我们只需要让你在那里呆上几年。我们会把你锁在玛蒂尔达的木屋里，然后再把你带出去，也许去竞选总统。
 
-让王岐山, 姚明珊叫他们听见, 他们就想死
-También a Wang Qishan y Yaomingshan
+但事实证明，即使是这样也不足以让她免受现实的残酷影响，因为任何时候只要她把嘴巴张开就会说出很糟糕的话。
 
-他有他母亲齐心
-Tiene a su madre Qi Xin
+因此，现在，民主党把刀子拿出来了，民主党人意识到他们必须摆脱她，他们必须用其他人代替她。而现在他们的人选很少。
 
-他有习仲勋
-Tiene a Xi Zhongxun
+他们一直在努力提彼得-拔布塔朱吉而他刚刚在供应链危机中作为交通部长完全失踪了整整两个月，这个行为让他自己受到了侮辱。
 
-我让他母亲齐心知道
-Voy a hacer saber a su madre Qi Xin
+事情是他去休了2个月的产假，这能符合人民的意愿吗？我不认为大多数美国中产阶级会喜欢这种人。我知道为什么我的妻子可以休产假。因为她在生孩子时不得不把一个婴儿从身体里推出去。而彼得-布塔朱吉用政府的钱获得了整整两个月的陪同产假就在美国陷入供应链危机之中的时刻。
 
-你儿子对待别人的父母的感觉是什么样子
-Cómo trata su hijo hacia los padres de otros
+我休陪同产假是因为我的妻子不得不把肚子里的东西推出去，然后我不得不照顾她的身体，因为这实际上对她的身体有损伤，这和我带着别人家母亲生的婴儿休息两个月是两回事。
 
-你们一定要做到绝
-Ustedes deben hacerlo de manera absoluta
+彼得与一个男人同性恋结婚了，他们收养了孩子所以没有受到任何身体上的伤害。
 
-要不就别做
-O sino no lo hagan
+从传统上讲，陪产假的目的是爸爸可以照顾妈妈，而妈妈可以照顾宝宝。这就是陪产假的实际目的。如果你要去休陪产假的话。这不是为了让你与孩子有所谓亲近的时间。如果你曾经结婚有孩子，你就会明白。生孩子会对一个女人造成身体上的伤害，她需要事后的帮助。
 
-要做就做到绝
-Y si lo hacen debe ser despiadadamente
+但如果没有人需要帮助，为什么你要用政府的钱请假两个月，不告诉任何人，然后是我们发现你突然离职了，所以彼得-布塔朱吉现在很有麻烦。因此，他一直在试图修复形象。通过解释说，他休产假是因为他是一个英雄。
 
-我让所有驻海外的中共的大使馆的官员
-Voy a dejar que todos los funcionarios de la embajada del PCCh en el extranjero
+然后他还说“如果每个人都休两个月的陪产假，经济就会更好”。尽管现在我们国家有大规模的劳动力短缺，通货膨胀严重。而供应链危机在一定程度上是由彼得这样的人促成的。
 
-我让他们知道
-Voy a hacerlos saber
+所以他们的候选人是相当的少的。拜登政府正在尝试像米奇·兰德里欧这样的人？我不是在开玩笑。
 
-你们的父母一定不会老死
-Sus padres no morirán de manera natural
+他是路易斯安那州的前州长。他们想让他负责基础设施。给他造势让他站在桥上，也许他就会参加选举了。
 
-一定会被装在这个新中国联邦给准备的棺材里边去
-Se empaquetará en un ataúd preparado por el Nuevo Estado Federal de China
+他们遇到了如此严重的麻烦。而他们所有人都知道的一件事是，卡马拉·哈里斯必须离开。卡马拉·哈里斯不能成为2024年的竞选者。
+
+【接下篇：[为什么CNN发表了攻击副总统卡马拉·哈里斯的文章（二）](https://gnews.org/zh-hans/1746575/)】
+
+参考资料：[youtube][What If Biden Stabs Kamala Harris In The Back First? | Ep. 1376](https://www.youtube.com/watch?v=PKKrb4C9ypw&amp;t=988s)
 
 * * *
 
-日期：12/11/2021
-原视频标题：最高级别送葬共产党
-El funeral del Partido Comunista al más alto nivel
-原视频日期：12/09/2021
-原视频网址：**[https://gettr.com/post/pj7lri2975](https://gettr.com/post/pj7lri2975)**
-任务编号：KC330(3162)
-视频时间段：0:00-1:43
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 ：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+*审核：蚂蚁兄弟*
+*校对：信心满满*
+*发布：信心的选择*
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-2.jpeg)
 
  
 

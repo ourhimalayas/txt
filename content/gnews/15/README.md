@@ -2,38 +2,26 @@
 ---
 
 
-## FDA现在希望在75年内发布辉瑞疫苗文件
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1746576/)
+## 秘翻在线 :社交媒体Facebook比核武器更血腥?
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1746634/)
 
-编译：Jenny Ball
+撰稿：William
+校对：牛小妹
+![](https://assets.gnews.org/wp-content/uploads/2021/12/p.jpg-1.png)
+图片来源：Twitter
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-2-6.jpg)图片来源：epochtimes.com（Sarah Silbiger/Getty Images）
+**Facebook牺牲罗兴亚人的生命以换取市场佔有率**
 
-“……这是反乌托邦的，要求政府给辉瑞数十亿美元，强制美国人使用它的产品，禁止美国人对其提起诉讼，还拒绝让美国人看到其执照背后的数据。”
+根据《零对冲》(Zero Hedge) 的报导,罗兴亚难民(Rohingya efugees)近日起诉 Facebook，指控 Facebook 宣扬仇恨言论，煽动对穆斯林少数群体的暴力行为，犯下缅甸穆斯林少数民族的种族灭绝罪，
+并要求以 1500 亿美元赔偿罗兴亚难民。该诉讼引用一名 Facebook 员工告密者曾亲身参与过种族灭绝相关的团队经验，称投诉的主要目的是掲露 Facebook竟然残忍到用罗兴亚人的宝贵生命，来换取东南亚一个小国更好的市场佔有率。
 
-美国FDA现在表示，它需要 75 年的时间——比该机构最初要求的 55 年还长时间——才能完全发布与该机构批准辉瑞 Comirnaty COVID-19 疫苗相关的所有文件的编辑版本。
+无国界医生估计有10,000 名罗兴亚人在 2017 年缅甸的军事镇压中丧生，超过 700,000 人逃往邻国孟加拉国，约占该国罗兴亚人口的一半。原告律师表示，Facebook 在缅甸的社交媒体的出现对罗兴亚人造成关键的杀伤力，尽管 Facebook 承认罪行，高管们早就充分了解罗兴亚人多年来在 Facebook 成为被攻击的目标、缅甸政府下令打击罗兴亚人的帖子在 Facebook 上疯狂传播，却从未制止此一不法行为，更遑论向幸存者提供任何有意义的补偿?
 
-在 12 月 7 日提交的一份法律简报中，FDA 表示，需要处理另外 59,000 页文件，这些文件未包含在该机构之前的文件中。该机构没有解释为什么最初忽略了这些文件。
+**社交媒体比核武器更可怕**
 
-（**点评：****FDA****为什么不花****75****年，让辉瑞研究出它的****mRNA****药物会对人们造成什么危害？如果需要****75****年看完这些文件，那么，****FDA****依据什么授予实验期未完成的辉瑞药物用于市场？）**
+“社交媒体比核武器还厉害!”数年前郭文贵先生曾在欧美各国大声疾呼，却遭来欧美人士嗤之以鼻。2021年的今日，我们发现无论是惨绝人寰的种族大屠杀、操纵中共病毒疫苗、愚弄人民，后面的黑手就包括社交媒体，社交媒体的杀伤力果然比核武器还狠毒!
 
-该机构表示，它可以在 1 月底之前发布大约 12,000 页的首批内容。过了那个日期，FDA 表示，它每月只能处理和披露 500 页的文件。
-
-这意味着整个文件缓存要到 2096 年才能完全发布。FDA 的最初时间表，意味着文件的发布要到 2076 年，或从现在起 55 年才能完成。
-
-FDA 没有透露它将用来选择最初 12,000 页文件的标准，也没有透露该机构将如何优先发布这些页面或未来的其他页面。
-
-有问题的文件源于信息自由法 (FOIA) 请求，该请求是由公共卫生和医疗专业人员透明组织 (PHMPT) 于 8 月提交的。
-
-**参考资料：**[childrenshealthdefense.org][FDA Now Wants 75 Years to Release Pfizer Vaccine Documents](https://childrenshealthdefense.org/defender/fda-75-years-release-pfizer-vaccine-documents/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=a790ba0e-e452-45bc-aaae-d39305be9c54)
-
-* * *
-
-*审核：文乐
-校对：信心满满*
-*发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-2.jpeg)
+新闻来源：[Rohingya Refugees Sue Facebook For $150 Billion Over Myanmar Genocide](http://Rohingya%20Refugees%20Sue%20Facebook%20For%20$150%20Billion%20Over%20Myanmar%20Genocide)
 
  
 

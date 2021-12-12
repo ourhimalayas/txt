@@ -2,34 +2,28 @@
 ---
 
 
-## 为确保供应链和防止敏感技术的泄露，日本政府将建立经济安全&#8221;指挥所&#8221;
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1746685/)
+## GETTR假日抽大奖活动注册将于本周日截止
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1746807/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2021/12/4-12.png)
-图片来源于本文网站
+作者：纽约香草山 – Delilah小胖
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据盖特官方12月9日公布，本期假日抽大奖活动注册时间，即将于美东时间12月12日，本周日23点59分59秒截止。还没有填表的意向参与者，可以抓紧时间填写活动参与表格。填表链接及活动规则，可以登陆gettr.com首页获取。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-12-下午9.13.19.png)
+参考链接：[https://gettr.com/post/pj88is55f0](https://gettr.com/post/pj88is55f0)
 
-据《读卖新闻》网站12日的报道，日本政府已决定在内阁办公室设立一个新部门，作为经济安全的“指挥所”。该部门将与相关部委合作，要求各公司制定计划，确保半导体和其他产品的稳定供应，从而使供应链更具弹性。该部还将负责对关键设备的脆弱性进行预先评估，并有权向公司建议纠正措施。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-部分政府和执政党官员透露，“指挥所”的职能将由内阁办公室执行。经济安全事务办公室（暂定名）将作为控制塔，目前正在准备将来自财政、经济、工业、国防和其他部委的几十名人员聚集在一起。鉴于以美国和中共国为首的国家正在争相确保半导体和其它商品的供应以及技术创新的国际形势，政府决定日本需要加强其跨部会制度。
+总编：文特
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-政府的目标是向明年1月召开的普通国会会议提交《促进经济安全法》（暂定名）。该法案通过后，政府打算设立这个办公室。迄今为止，在经济安全方面发挥核心作用的国家安全局（NSS）将向该办公室提供信息和建议。国家安全局的经济安全工作将仅限于审查外国公司的收购和投资。
-
-经济安全办公室与相关部委合作，将收到各公司的计划，以确保重要货物的稳定供应。如果发现该计划是有效的，预计该办公室将提供补贴和其他支持。如果该计划被判定为不可持续，将制定替代计划，以储备和分散供应网络。
-
-预评估将涵盖核心基础设施（社会基础设施）。为了维护社会基础设施的运作，它将检查可能构成安全威胁的外国产品是否用于电力和通信的关键设备和系统。我们还将检查承包商是否合适。如果它发现任何漏洞，能够及时向公司建议弥补措施。
-
-该办公室还将被赋予支持人工智能（AI）和量子技术等先进技术的研究和发展的作用。预计它还将参与审查敏感的专利申请，如用于武器开发的专利，是否应该保密以防止技术泄露。
-
-信息源：
-
-[【独自】経済安保の「司令塔」内閣府に新設…半導体の供給網強化、電気・通信の脆弱性審査も](https://news.yahoo.co.jp/articles/740d591a33af00206ab171087883b9c28dc5283d#:~:text=%E3)
-
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

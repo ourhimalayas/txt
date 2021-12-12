@@ -2,23 +2,24 @@
 ---
 
 
-## 一名与中共勾兑的世卫组织新冠病毒溯源小组成员消失
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1746161/)
+## 北京冬奥会遭全球抵制 中共邀请联合国秘书长“找面子”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1746270/)
 
-#### 撰稿：彩虹
+撰稿：东京樱花团/小小星
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3-26.jpg)[图片来源](https://www.dw.com/zh/%E5%BE%B7%E8%AF%AD%E5%AA%92%E4%BD%93%E4%B8%8E%E4%B8%96%E9%9A%94%E7%BB%9D%E7%9A%84%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E4%BC%9A/a-59379387)
+中共官媒近日急忙放出消息称，联合国秘书长古特雷斯收到了国际奥委会发出的参加北京冬奥会的邀请，并已经接受邀请。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-4-1.jpg)图片来源：路透社
-12月10日，《国家脉动》调查记者娜塔莉·温特斯（Natalie Winters）发表文章，报道与中共勾兑的世界卫生组织新冠病毒溯源小组成员玛丽恩·库普曼斯（Marion Koopmans）在新的溯源小组名单中消失。
+距离北京冬奥会开幕还不到60天，包括美国，澳大利亚，加拿大，立陶宛和英国等多个国家，将对2022年北京冬奥会进行外交抵制。这意味着各国政府不会派遣部长级代表前往北京。
 
-文章说，库普曼斯遭遇了与世界卫生组织同行彼得·达萨克（Peter Daszak）相同的命运。她曾在世界卫生组织第一个新冠病毒（COVID-19）起源调查小组中任职，并且，在今年10月份，世卫组织新成立的SAGO（新冠病毒起源科学顾问小组）的最初公告中，库普曼斯被列为28名成员之一。然而，目前最新的SAGO的成员名单中却不见了库普曼斯。
+在疫情蔓延的世界，在彭帅事件的问题上，各国政府和运动员都纷纷拒绝参加北京冬奥会。但也不乏有一部分为利益而勾兑的政客。2022年的北京冬奥会只能成为中共领导人的一个“梦“！
 
-之前，《国家脉动》挖掘了库普曼斯在中国广东疾病控制中心担任科学顾问的角色，报道了她撰写的由中国共产党拨款支持的科研论文和期刊文章，揭露了她与中国共产党的长期关系。
+信息来源：
 
-**新闻来源**
+[联合国秘书长古特雷斯接受邀请将出席北京冬奥会](https://c.m.163.com/news/a/GQSMAUE1000189FH.html?spss=newsapp)
 
-[SCALP: COVID Investigator Funded By Chinese Communist Party Removed From WHO Team Following National Pulse Exposé.](https://thenationalpulse.com/news/scalp-koopmans-removed-from-who-team/)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

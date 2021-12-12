@@ -2,42 +2,28 @@
 ---
 
 
-## 美国向乌克兰提供导弹和火箭发射器
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1746009/)
+## 成千上万澳大利亚人上街抗议强制接种中共病毒疫苗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1746223/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+#### 撰稿：彩虹
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/1560429199-6740-1.jpg)
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-59.png)图片来源：新闻视频截图
+12月12日，澳大利亚《天空新闻台》报道，12月4日和12月12日，在悉尼、墨尔本、霍巴特和黄金海岸，数以千计的澳大利亚人分别举行了抗议活动，抵制澳大利亚政府对中共病毒（COVID-19）疫情的响应和强制接种中共病毒疫苗。
 
+在墨尔本，一千多名手持标志和旗帜的人聚集在墨尔本州议会外，然后沿着伯克街走到卡尔顿花园。他们边走边喊：“解雇丹·安德鲁斯（Dan Andrews）”、“自由的维多利亚”和“我的身体我做主”。
 
- 
-图片来源: NSDC
+在墨尔本中央商务区，一度出现了混乱的场面，因为抗议活动和墨尔本马拉松比赛相冲突，导致了道路关闭。
 
+在悉尼，抗议者出现在海德公园，反对针对娱乐、创意艺术和医疗行业的强制接种中国病毒疫苗。抗议者们打着鼓，吹着口哨，从海德公园游行到了阿尔弗雷德王子公园，然后在那里搭建了一个舞台，并配备有扬声器，现场响起了音乐。
 
-#### 整理报道 ：小红帽
+在更北边的黄金海岸和库伦加塔，因为该州准备向完全接种疫苗的旅客重新开放边界，数千人聚集在一起，反对中共病毒疫苗、封锁和戴口罩。组织者估计现场大约有六千人。
 
-**根据RT新闻12月11日报道，美国五角大楼披露了向基辅运送反坦克导弹系统和射弹的细节，原因是莫斯科越来越担心乌克兰顿巴斯地区爆发全面冲突。**
+在霍巴特，抗议强制接种中共病毒疫苗的数百人聚集在议会大厦的草坪上，然后穿过萨拉曼卡广场。现场，人们为那些因拒绝接种疫苗而失去工作的人默哀了几分钟。
 
-在俄罗斯新闻媒体塔斯社周四收到的一份声明中，五角大楼发言人安东·塞梅尔罗斯（Anton Semelroth）中校表示：“价值6000万美元的货物……包括30个标枪指挥和控制发射器，以及180枚导弹”。据悉，火箭发射器于10月23日交付给乌克兰。
+**新闻来源**
 
-“2021年，美国向乌克兰拨出超过4.5亿美元的援助用于安全任务，作为我们继续致力于支持乌克兰捍卫其主权和领土完整的能力的一部分，”塞梅尔罗斯补充说。
-
-乌克兰军事情报局局长基里尔·布达诺夫（Kirill Budanov）透露，乌克兰军队已经测试了由美国制造的先进标枪系统，并被顿巴斯的士兵使用。
-
-俄罗斯驻华盛顿大使阿纳托利·安东诺夫（Anatoly Antonov）在11月初警告白宫，向乌克兰提供致命武器装备可能会削弱该地区和平的希望。莫斯科认为“另一个鼓励基辅停止战争的机会已经错过”。
-
-乌克兰东部的冲突始于2014年独立广场事件，该事件最终导致顿涅茨克和卢甘斯克的“人民共和国”宣布独立。然而，莫斯科和基辅都没有正式承认他们。克里姆林宫坚持认为，乌克兰有责任与分离地区的领导人达成和平协议。
-
-新闻来源：[US delivers rockets to Ukraine — RT Russia & Former Soviet Union](https://www.rt.com/russia/542840-ukraine-delivery-american-rockets/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[Thousands turn out in NSW, Victoria, Queensland and Tasmania to protest against vaccine mandates](https://www.skynews.com.au/australia-news/thousands-turn-out-in-nsw-victoria-queensland-and-tasmania-to-protest-against-vaccine-mandates/news-story/9ecda44ba53f490caed7c0ea54426b12)
 
  
 
