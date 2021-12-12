@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/12/2021 12:20 AM (UTC)`
+
+12/10/2021 Miles Guo: Weijian Shan and his gangs have been promoting the notion that Communist China is the Western adventurers’ La-la Land; 9 trillion dollars have been injected into the CCP’s real estate sector through the U.S. PE funds and hedge funds; the fund managers in the Wall Street are the middlemen between the Adventurers' La-la Land (i.e., Communist China) and the fund investors; those fund managers are always making money regardless of whether the funds make money or not<br/><br/>12/10/2021 文贵直播：单伟建之流标榜独裁的中共国是西方冒险家的乐园，美国风投、对冲基金等有9万亿美元投进了中共国房地产，华尔街基金经理是连接冒险家乐园（中共国）和风投的中间人，无论基金赔钱还是赚钱，基金经理稳赚不赔<br/>
+![img](https://media.gettr.com/group37/getter/2021/12/12/00/5374f48f-7daf-03d0-6a65-9478fbbc7da9/out.jpg)
+
+---
+
 `@miles 12/11/2021 4:56 PM (UTC)`
 
 Dec 11，2021 Mr. Miles Guo's “HCoin To The Moon ” has once again created a series of unprecedented historical miracles: not only did it reach the prestigious Billboard charts, but it also reached the top of the global sales charts. The music video for the song swept the world, topping the iTunes MV charts in nearly 30 countries. Not only has no Chinese ever achieved this, but even the world's top renowned musicians also have never been able to do so. This charting success once again proves the united strength of the global fellow fighters of the New Federal State of China and their determination to take down the CCP!🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters around the world!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1743730/
@@ -143,13 +150,6 @@ Hcoin To The Moon MV 上线仅仅3小时， 澳洲🇦🇺，香港 🇭🇰的i
 
 12/8/2021 Miles Guo: Weijian Shan is a ministerial level spy of the CCP under the Secret Six Bureau, which has the highest security clearance, and he reports directly to the CCP’s Politburo Standing Committee members; Weijian Shan is the founder of the Western Returned Scholars Association in Beijing<br/><br/>12/8/2021 文贵直播：单伟建是中共的正部级间谍，隶属具有最高保密级别的秘六局，他直接给中共政治局常委汇报工作；单伟建是北京欧美同学会的创始人<br/>
 ![img](https://media.gettr.com/group43/getter/2021/12/09/15/d1ccc6a2-3a8b-ca4c-5f43-efe28045200d/out.jpg)
-
----
-
-`@miles 12/9/2021 3:33 PM (UTC)`
-
-12/8/2021 Miles Guo: General mobilization for the global joint protests against the CCP - For the sake of our dignity, we must take action! Action! Action! What happened to my father and Pangu’s employees will happen to all Chinese people. We have no reason to fear, and we must take down the CCP!<br/><br/>12/8/2021文贵直播：全球抗议中共联合大行动总动员，为了我们的尊严，必须行动、行动、行动！发生在我父亲和盘古员工身上的事会发生在每一个中国人身上，我们没有任何恐惧的理由，必须灭掉中国共产党！<br/>
-![img](https://media.gettr.com/group40/getter/2021/12/09/15/70e78c5b-6530-04cb-59c5-92c756ce984a/out.jpg)
 
 ---
 
