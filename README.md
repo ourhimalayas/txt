@@ -15,116 +15,116 @@
 
 ---
 
-### [美国疾控中心报告说美国79%的奥米炕病例接种了新冠疫苗](/content/gnews/1/README.md)
- ` 首尔天池农场`
-
-### [美国CDC称大多数Omicron病例源自完全接种疫苗者](/content/gnews/2/README.md)
- ` GTV新闻访谈`
-
-### [中国继续利用美国大学来提升其军事现代化水平](/content/gnews/3/README.md)
- ` 澳喜农场`
-
-### [众议员佩里：世界必须挑战中共的“邪恶设计”，结束强制摘取器官](/content/gnews/4/README.md)
+### [澳门赌场大亨被抓标志着中共的政治内斗日益加剧](/content/gnews/1/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [新冠疫情爆发前秘密签署了mRNA新冠疫苗转让协议](/content/gnews/5/README.md)
+### [视频| 中共放出杨洁篪的目的和对战友们的预警](/content/gnews/2/README.md)
+ ` MOSREC`
+
+### [视频| 中共的外交威胁加速了自己的灭亡进程](/content/gnews/3/README.md)
+ ` MOSREC`
+
+### [意大利民众焚烧“绿色通行证” 声援未接种人士](/content/gnews/4/README.md)
+ ` GTV新闻访谈`
+
+### [国际奥委会在彭帅事件上的矛盾发言 引发外界质疑](/content/gnews/5/README.md)
+ ` GTV新闻访谈`
+
+### [视频| 欧洲四国坚决抵制北京冬奥会](/content/gnews/6/README.md)
+ ` MOSREC`
+
+### [美国疾控中心报告说美国79%的奥米炕病例接种了新冠疫苗](/content/gnews/7/README.md)
+ ` 首尔天池农场`
+
+### [美国CDC称大多数Omicron病例源自完全接种疫苗者](/content/gnews/8/README.md)
+ ` GTV新闻访谈`
+
+### [视频| 共产党用病毒威胁他国参加冬奥会](/content/gnews/9/README.md)
+ ` MOSREC`
+
+### [中国继续利用美国大学来提升其军事现代化水平](/content/gnews/10/README.md)
  ` 澳喜农场`
 
-### [每一位“真人真事”嘉宾都是一本故事书](/content/gnews/6/README.md)
+### [众议员佩里：世界必须挑战中共的“邪恶设计”，结束强制摘取器官](/content/gnews/11/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [新冠疫情爆发前秘密签署了mRNA新冠疫苗转让协议](/content/gnews/12/README.md)
+ ` 澳喜农场`
+
+### [视频| 抵制冬奥是里程碑的胜利](/content/gnews/13/README.md)
+ ` MOSREC`
+
+### [每一位“真人真事”嘉宾都是一本故事书](/content/gnews/14/README.md)
  ` GTV News Talk`
 
-### [七国集团外长 呼吁“关注”中共国和俄罗斯问题](/content/gnews/7/README.md)
+### [七国集团外长 呼吁“关注”中共国和俄罗斯问题](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花灭共诗——赠别孟凡海](/content/gnews/8/README.md)
+### [樱花灭共诗——赠别孟凡海](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [岸田文雄支持台湾参与世界卫生组织](/content/gnews/9/README.md)
+### [岸田文雄支持台湾参与世界卫生组织](/content/gnews/17/README.md)
  ` GTV新闻访谈`
 
-### [德国学校搞仪式侮辱未接种疫苗儿童](/content/gnews/10/README.md)
+### [德国学校搞仪式侮辱未接种疫苗儿童](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|纳瓦罗称，中共病毒是珍珠港式的袭击](/content/gnews/11/README.md)
+### [有声|纳瓦罗称，中共病毒是珍珠港式的袭击](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [有声|美国众院压倒性通过《防止强迫维吾尔人劳动法》](/content/gnews/12/README.md)
+### [有声|美国众院压倒性通过《防止强迫维吾尔人劳动法》](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [有声|美参议院投票否决拜登政府的疫苗强制授权](/content/gnews/13/README.md)
+### [有声|美参议院投票否决拜登政府的疫苗强制授权](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [有声|家居企业转让恒大股份 恒大债务违约在即](/content/gnews/14/README.md)
+### [有声|家居企业转让恒大股份 恒大债务违约在即](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [有声|韩国向青少年推行防疫通行证 遭民众强烈反对](/content/gnews/15/README.md)
+### [有声|韩国向青少年推行防疫通行证 遭民众强烈反对](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [中共国通过基因编辑创造“人源化猪”，然后用冠状病毒感染它们](/content/gnews/16/README.md)
+### [中共国通过基因编辑创造“人源化猪”，然后用冠状病毒感染它们](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [征讨共产党檄](/content/gnews/17/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [文贵爆料12.10 喜马拉雅真义四解：新中国联邦人要不断地自我升华](/content/gnews/18/README.md)
+### [文贵爆料12.10 喜马拉雅真义四解：新中国联邦人要不断地自我升华](/content/gnews/25/README.md)
  ` 秘密翻译组-原创组`
 
-### [CNN制片人被指控犯有令人不安的未成年性犯罪](/content/gnews/19/README.md)
+### [CNN制片人被指控犯有令人不安的未成年性犯罪](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
 
-### [墙内草根的青蒿素应用杂谈](/content/gnews/20/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [杰森 • 米勒：从左翼游说团体手中拯救言论自由的斗争正在进行中](/content/gnews/21/README.md)
+### [杰森 • 米勒：从左翼游说团体手中拯救言论自由的斗争正在进行中](/content/gnews/27/README.md)
  ` 首尔天池农场`
 
-### [美国对中国、缅甸、朝鲜实施全面的人权制裁](/content/gnews/22/README.md)
+### [美国对中国、缅甸、朝鲜实施全面的人权制裁](/content/gnews/28/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [GTV新闻访谈简报|2021年12月11日晚](/content/gnews/23/README.md)
+### [GTV新闻访谈简报|2021年12月11日晚](/content/gnews/29/README.md)
  ` 纽约香草山MOS01`
 
-### [世界人权日当天墙内维权人士遭中共限制](/content/gnews/24/README.md)
+### [世界人权日当天墙内维权人士遭中共限制](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [美众院外委会主席米克斯将率团访台](/content/gnews/25/README.md)
+### [美众院外委会主席米克斯将率团访台](/content/gnews/31/README.md)
  ` GTV新闻访谈`
 
-### [郭文贵精品视频-中共培养的“经济艾滋病”将贪婪者置于死地](/content/gnews/26/README.md)
+### [郭文贵精品视频-中共培养的“经济艾滋病”将贪婪者置于死地](/content/gnews/32/README.md)
  ` 澳喜农场`
 
-### [南非的研究发现辉瑞疫苗对 Omicron 的有效性只有 23%](/content/gnews/27/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [我们无法选择出生地，但可以选择如何行动](/content/gnews/28/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [BioNTech 表示，与 Omicron 战斗需要另外三剂辉瑞 Covid 疫苗：“完全”疫苗接种需要总共六剂](/content/gnews/29/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [习近平内心五大阴暗秘密揭秘](/content/gnews/30/README.md)
+### [习近平内心五大阴暗秘密揭秘](/content/gnews/33/README.md)
  ` mary202064`
 
-### [就是否需要Omicron特定疫苗的问题，福奇态度含糊](/content/gnews/31/README.md)
+### [就是否需要Omicron特定疫苗的问题，福奇态度含糊](/content/gnews/34/README.md)
  ` 墨尔本雅典娜农场`
 
-### [日本玩平衡 称不派部长参加北京奥运会](/content/gnews/32/README.md)
+### [日本玩平衡 称不派部长参加北京奥运会](/content/gnews/35/README.md)
  ` HimalayaRussia`
 
-### [为什么COVID疫苗不能也不应该强制](/content/gnews/33/README.md)
- ` 日本东京方舟农场`
-
-### [主流经济学家正在努力隐藏即将到来的经济崩溃](/content/gnews/34/README.md)
+### [主流经济学家正在努力隐藏即将到来的经济崩溃](/content/gnews/36/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [新冠变体Omicron表现温和，美国零死亡](/content/gnews/35/README.md)
- ` 墨尔本雅典娜农场`
-
-### [12/10/2021 文贵直播：中共国金融房地产的大部分钱来自国外金融机构，这本身就触碰了所谓的外商禁入产业和外汇管制政策和法律](/content/gnews/36/README.md)
+### [12/10/2021 文贵直播：中共国金融房地产的大部分钱来自国外金融机构，这本身就触碰了所谓的外商禁入产业和外汇管制政策和法律](/content/gnews/37/README.md)
  ` 秘密翻译组-北美组`
-
-### [澳大利亚免疫技术专家咨询小组（ATAGI）透露其从未建议实施有争议的中共疫苗强制令，令人震惊](/content/gnews/37/README.md)
- ` 走进澳洲`
 
 ### [1210文贵大直播（二）：中共地产暴雷，促使西方联合灭共](/content/gnews/38/README.md)
  ` 墨尔本雅典娜农场`

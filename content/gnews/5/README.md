@@ -2,23 +2,45 @@
 ---
 
 
-## 新冠疫情爆发前秘密签署了mRNA新冠疫苗转让协议
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1745295/)
+## 国际奥委会在彭帅事件上的矛盾发言 引发外界质疑
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1745395/)
 
-翻译：喜国公民
-视频来自网络
-格林贝克节目主持人贝克先生接受[塔克卡尔森采访时披露](https://www.foxnews.com/shows/tucker-carlson-tonight)，在2019年12月，即新冠大流行爆发的几星期前，有一项秘密转让mRNA冠状病毒疫苗技术的协议。
+作者：日本方舟农场 – Andy5
 
-[该转让协议在推特上也有报道](https://twitter.com/pbhushan1/status/1406998785348182017)。这份日期为2019年12月12日的协议是由福奇管辖的美国国家过敏和传染病研究所 、莫得纳公司和巴里克博士签署的，将”美国国家过敏和传染病研究所和莫得纳共同拥有的mRNA冠状病毒候选疫苗”转让给巴里克（武汉病毒研究所制造致命冠状病毒的合作伙伴）!
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-440.png)
 
-奇怪的是，签署秘密协议的几周后就爆发了全球范围的新冠病毒大流行。之后，巴里克等人在1月底开会，开始诋毁任何提出实验室泄漏理论的人。他们极力掩盖实验室泄漏。甚至提出不要去武汉那里检查。
+12月8日和9日国际奥委会主席巴赫关于彭帅的矛盾发言，引发了外界对其正在帮助中共掩盖真相的质疑。
 
-在2021年5月参议员兰德·保罗在参议院卫生委员会听证会上与福奇辩论时，提到巴里克博士一直与武汉病毒研究所的石正丽合作，分享他关于如何创造超级病毒的研究成果。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/10-3.png)
 
-贝克先生已经把这个信息交给了国会和参议院的几个人，兰德·保罗议员正在处理这个问题。相信福奇博士对此要给出答案。
+国际奥委会主席巴赫在8日的记者会上称，上个月与本月，他已两次同彭帅视频通话，彭帅过得不错并且看不出受到了压迫。然而就在次日，当有记者提问“如果过得不错或者没有受到压迫，为什么国际奥委会需要站出来支援彭帅”时，巴赫却改变了论调，称彭帅处于很脆弱、不安定的状态。
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-2.jpg)
+这个前后矛盾的说辞，引发了外界对彭帅现状的担忧，以及对国际奥委会与中共串通一气，掩盖事件真相的质疑。
+
+美国众议院前几天就这一问题全票通过了谴责国际奥委会的议案，并要求国际奥委会公开视频通话经过，全面调查中共前副主席、冬奥会工作小组组长张高丽对彭帅的性侵事件。
+
+参考链接：
+
+- [20211210日本FNN報導IOC巴赫前後矛盾的發言](https://www.gettr.com/post/pjdf7e867b)
+- [美众院推跨党派决议案 谴责国际奥委会配合中共掩盖彭帅事件](https://www.voachinese.com/a/us-house-resolution-condemns-ioc-china-human-rights-20211203/6339218.html)
+- [全票通过 美众院决议案谴责奥委会袒护中共](https://www.ntdtv.com/gb/2021/12/09/a103289600.html)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
+
+总编辑：飞虹
+编辑：飞虹
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
