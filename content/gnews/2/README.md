@@ -2,68 +2,60 @@
 ---
 
 
-## 【Michael.Tonny专栏】中共国三个人四实体被美国财政部OPAC加入制裁清单
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1747411/)
+## 中共国《落实三孩政策，党员干部应见行动》一文引热议
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1747474/)
 
-作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
-2021年12月10日，根据第13818 号行政命令 (EO，Executive Order (E.O.) 13818)和EO 13959（EO，Executive Order (E.O.) 13959）修正案，美国财政部(Department of the Treasury’s Office)外国资产控制办公室(Foreign Assets Control ,OFAC)将中共国3个人和4家公司加入制裁清单。
+中共国《落实三孩政策，党员干部应见行动》一文引热议
 
-Executive Order (E.O.) 13818是建立在全球马格尼茨基人权问责法（Global Magnitsky Designations）基础上，专门制裁腐败和严重侵犯人权的作恶者；经修订的Executive Order (E.O.) 13959，制裁目标是在中共国监控技术领域正在经营或曾经经营的公司，以及拥有或控制这些公司的实体或个人。
+作者：顺其自然
+编辑：**Kelly**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-151.png)
+中国报道网12月9日一篇“党建先锋”的时评《落实三孩政策，党员干部应见行动》在网络热传，相关微博点击量达到570万，在遭到网民 嘲讽之后，此文章被删除。
 
-另外，E.O. 13687 and E.O. 13722是针对北韩政府和北韩劳动党以及某些与劳动有关的行为。
+该文称，虽然中国人口出现负增长有许多主观客观原因，诸如：上学难、上学贵、就医难、就医贵等，但每一名党员干部不能因为这样那样的主客观原因，不结婚、不生育，也不能因为这样那样的原因只生育一个或两个孩子。
 
-被列入SDN（特别指定国民名单，List of Specially Designated Nationals）制裁名单的个人是：
+90后表示，想让我生先给我发个对象先，我连对象都没有呢，你让我跟谁生去？
 
-艾尔肯·吐尼亚孜（维吾尔语：ئەركىن تۇنىياز‎，英文：TUNIYAZ, Erken）：1961年12月出生，现任中共新疆维吾尔自治区党委副书记、新疆维吾尔自治区人民政府代主席，中共第十九届中央候补委员。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/TUNIYAZ-Erken.jpg)
-雪克来提·扎克尔（维吾尔族：شۆھرەتزاكىر，英文：ZAKIR, Shohrat）：1953年8月出生，前任中共新疆维吾尔自治区党委副书记、新疆维吾尔族自治区主席，2021年10月23日起，任中共国全国人大民族事务委员会副主任委员。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/ZAKIR-Shohrat.jpg)
-根据美国国务院的声明《[The United States Promotes Accountability for Human Rights Violations and Abuses](https://www.state.gov/the-united-states-promotes-accountability-for-human-rights-violations-and-abuses/)》，雪克来提·扎克尔、艾尔肯·吐尼亚孜，以及现任中共国新疆维吾尔自治区人民政府副主席、公安厅厅长陈明国（2021年3月22日，欧盟宣布制裁陈明国，并冻结其资产、对其实施旅游禁令）与原中共统战部八局、九局副局长胡联合，参与任意拘留以穆斯林为主的维吾尔人以及新疆其他少数民族和宗教群体的成员等，犯有严重侵犯人权罪。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Chen-Mingguo.jpeg)
-陆和正（拼音：LU, Hezheng）：1974 年 4 月出生，身份证号31010619740406283X，现居住中共国上海市徐汇区钦州路760号810室。陆和正违反北韩制裁条例E.O. 13722第510.201、510.210和510.214，透过重庆市柠⾊动漫发展有限公司（Nings Cartoon Studio）和上海弘漫动漫设计工作室（Shanghai Hongman Cartoon and Animation Design Studio），向与朝鲜当局有关的北韩动漫公司SEK Studio提供金融、材料及技术上的支持。
+80后表示我上有老下有小，实在是折腾不动了，学区房辅导班鸡娃已经快把我搞疯掉了，你和我谈什么三胎？
 
-以上三个盗国贼或CCP特务，被美国财政部依照2021年美国国务院、对外行动和相关项目拨款法7031款(c)（Section 7031(c) of the FY 2021 Department of State, Foreign Operations, and Related Programs Appropriations Act）制裁，本人及其直系亲属即日起被禁进入美国，包含中共国内的银行在内的所有银行应该也不敢再给这些人及其亲属提供银行卡或信用卡。
+70后说，我是真的想生，但身体条件实在不允许啊。要不你们给我每天补点海参鲍鱼?
 
-被列入SDN制裁名单的中共国实体有：
+很多女性表示你把我当牲口吗？生这么多，我一个人开疆拓土猫狗双全挺好的，为啥要我放弃事业生这么多娃？像我这么优秀的人，就不该在柴米油盐中埋没才华！
 
-重庆市柠⾊动漫发展有限公司（Nings Cartoon Studio）：中共国重庆市永川区回龙大道东一路19号，根据EO13722，被美国认定为由北韩SEK Studio直接或间接拥有或控制，或曾为或声称代表SEK Studio行事。
+以后相亲不问房产和存款，就问：“你是党员吗？”“是”。“哦，再见。”
 
-上海墨星出口文化传播有限公司（Shanghai Hongman Cartoon and Animation Design Studio）：中共国上海市徐汇区宜山路439号901-7，根据EO13722，因试图作为或声称为北韩SEK Studio指定直接或间接代表SEK Studio行事。
+今年中共国为了提高生育率出台了各种政策，比如修改《婚姻法》，出台离婚“冷静期”，降低离婚率；开放了三胎，甚至提议对女性生育实行奖励机制。2021年七普数据公布，2020年出生人口1200万，尽管这数据已经美化修饰了，仍然是1978年来的新低。人口出生率太低，眼见2021年要过去了，今年的出生人口数据估计更难看，年底，中共终于憋不住急眼了，发出了让党员带头生三胎的号召。
 
-上海弘漫动漫设计工作室（Shanghai Hongman Cartoon and Animation Design Studio）：中共国上海市徐汇区中山西路1919号1号楼7层705室，根据EO13722被指定为由陆和政直接或间接拥有或控制，或曾经或声称代表其行事。
+上世纪70年代末80年代初，中共为了“控制人口”，强行推进“一胎化计划生育”政策。多生了一个孩子的家庭被扒房牵牛，对于党员干部，事业单位公务员，多生一个，工作就没了。很多孕妇被迫流产，引产。40年后，中共国人口急剧下滑、男女比例严重失衡、老龄化日趋严重、劳动力紧缺。于是，中共2015年决定终结“一胎化政策”，于2016年全面实施“两孩政策”。
 
-被列入Non-SDN(非指定国民名单，Non-List of Specially Designated Nationals)制裁名单的实体：
+数据显示，从2017年开始，大陆的生育率不升反降。今年11月的官方数据显示，中国
 
-[商汤集团有限公司](https://www.sensetime.com/)（SenseTime Group Limited，商汤科技，SenseTime）：SenseTime 100% 拥有的深圳市商汤科技有限公司（SenseTime Group Limited）开发了可以确定目标民族的面部识别程序，特别专注于识别维吾尔族人。深圳商汤科技在申请专利时，就重点强调了对戴胡须（beards）、墨镜（sunglasses）、戴口罩（masks）的维吾尔人的识别能力。根据EO 13959、EO 14032修正案，SenseTime作为Non-SDN中国军工联合体公司（Non-SDN Chinese Military-Industrial Complex Company ，NS-CMIC），拥有或控制，直接或间接地正在中共国监控技术领域经营或已经经营的公司。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/sensetime.png)
-值得注意的是，SenseTime是第二次被美国制裁。
+去年每1,000人的生育率为8.5，创下70多年来新低，甚至低过“老龄化”严重的日本。我们知道，中共官方的数据都是夸大美化的，实际出生率肯定比这低很多，很多医院妇幼保健院的今年新生人口比去年少了近三分之一，那中国各级部门为什么要夸大出生数据呢？中央政府需要一个好看的出生率给外国投资机构看，中共国人多，市场大，到这里来投资吧。对于地方政府来说，修改提高出生人口数据，可以拿到更多的经费和补贴，无论是学校教育，还是公务员编制， 尤其是贫穷省份和地方政府，县镇。对于计生部门来说，那就更有动力来做假了，没有那么多人口，他们的部门就要被裁撤了，所以要虚报多报新生人口，趋利避害，为了职位，当然有动力来做假。不过现在看这形式，中国计生部门有可能转化为催生部门，之前把怀胎八九个月的孕妇拖去打胎，现在估计是查哪天来月经，然后在其余的几天内催着让你赶紧造人生小韭菜。
 
-2019年10月，SenseTime因侵犯人权被美国商务部加入“实体清单”。当时与商汤集团一起被加入“实体清单”的还有大华科技、海康威视、科大讯飞、旷视科技等 ，在没有美国商务部许可的情况下，任何个人或公司不得将美国特定商品、技术或服务提供给这些企业。
+中共忽悠老百姓多生孩子，老百姓为啥不听话了呢？
 
-按照之前的计划，12月10日也是商汤科技在香港IPO上市的时间。商汤科技公开发售于12月7日开始，至12月10日中午结束，最终发售价及配售结果预期将于12月16日公布，并预计将于12月17日挂牌上市。
+这些年，房价飞涨，老百姓累死累活，每天996，就是为了能有个蜗居的地方。连房子都没有，孩子生下来住在哪？普通老百姓家的年轻人拼死拼活一辈子估计也买不起一套房，动辄百万的房价，就算六个钱包支持现在也已经不好使了。
 
-从目前持股来看，软银集团和淘宝是商汤科技的两大股东，分别持股14.88%、7.59%；美资方面的股东 Silver Lake（银湖资本）持有约3%的股权，富达投资公司和高通也持有商汤科技少量股份。
+中共国所谓改革开放，其中一个最大的转变就是人们生育观念的转变，现在普遍观念就是少生优生幸福一生，让孩子受到最好的教育，提高全家的生活质量。多生孩子，必然降低生活质量，交不起补课费上不了高中大学，初中毕业的孩子都上工厂去打工，低人一等，大多数人都是不愿意的。再说，现在如此之高的房价，就算自己靠六个钱包买了房子，也要还几十年房贷，怎么可能生几个儿子，再给几个儿子买房子娶媳妇？
 
-最后提醒，任何公司和个人购买商汤科技股票，都可能因违反EO 13959、EO 14032修正案受到制裁。根据EO 13959，禁止美国人购买或出售NS-CMIC标识的任何公开交易的证券，这些证券是此类证券的衍生品。
+中共国男女的比例严重失调，尤其是适龄结婚人口，这部分人口恰好就是八零后，九零后，零零后，他们是生育的主力军，而就是这部分人口，男性比女性多出几千万。加上现在女性受教育程度普遍提高，有独立的经济能力，越来越多的女性认识到中共国的婚姻法对女性的权益没有保障，选择独身女性也日益增加，所以单身男性会越来越多。
 
-参考数据：
+中国2亿人单身，其中很多人不想当房奴、孩儿奴。如果一个人努力奋斗一辈子，一辈子的小目标就是一套房子，这人生该有多悲催多无奈。中共妄图靠整顿取缔课外辅导班，忽悠老百姓结婚生孩子真是白费功夫。
 
-[Treasury Sanctions Perpetrators of Serious Human Rights Abuse on International Human Rights Day](https://home.treasury.gov/news/press-releases/jy0526)
+中共为什么对于新生人口下降急了呢?原因是，虽然AI，机器人可以代替人们的生产，但是它不能代替人们的消费，没有新生儿就没有人买婴儿车、买奶粉、买衣服、买课、将来的买手机，买车、买房子，等等一系列的消费都会萎缩。老年人的消费除了医院养老产业，跟年轻人比，消费能力差的太远。中国现在老年人越来越多，还需要年轻人口交社保，如果交社保的年轻人越来越少的话，老年人的退休金恐怕都发不出来了。
 
-[Global Magnitsky Designations; North Korea Designations; Burma-related Designations; Non-SDN Chinese Military-Industrial Complex Companies (NS-CMIC) List Update](https://home.treasury.gov/policy-issues/financial-sanctions/recent-actions/20211210)
+再有，并不是所有的行业和职业都能用的上机器人，或者是都能用的上AI。有很多行业还是需要劳动力的，而没有年轻人的话，这些行业也就萎缩了，作为世界工厂如果没有了所谓的人口红利，没有足够的奴工生产加工出口创汇，那么中共就没有在世界上可以拿得出手的优势了。所以他们就着急了，忽悠不了老百姓，就想着对党员干部下手了。
 
-[Specially Designated Nationals and Blocked Persons](https://home.treasury.gov/policy-issues/financial-sanctions/specially-designated-nationals-and-blocked-persons-list-sdn-human-readable-lists)
+时评文章中写到：让党员干部在落实三孩政策方面发光发热，要站在讲政治的高度，践行中共国的生育政策。政策落地见效，实际操作上会不会不生三胎不能升职、不能评职称？完不成指标就开除公职？共产党这个流氓体制一贯就是管天管地中间还管生殖器，真是什么事都干得出来！只有你想不到，没有它做不到。
 
-[艾尔肯·吐尼亚孜](https://zh.wikipedia.org/wiki/%E8%89%BE%E5%B0%94%E8%82%AF%C2%B7%E5%90%90%E5%B0%BC%E4%BA%9A%E5%AD%9C)
-
-[雪克来提·扎克尔](https://en.wikipedia.org/wiki/Shohrat_Zakir)
-
-[The United States Promotes Accountability for Human Rights Violations and Abuses](https://www.state.gov/the-united-states-promotes-accountability-for-human-rights-violations-and-abuses/)
-
-[陈明国](https://zh.wikipedia.org/wiki/%E9%99%88%E6%98%8E%E5%9B%BD)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/) 上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+发布：去中心化Math
+**
+**更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

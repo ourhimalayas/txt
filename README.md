@@ -15,88 +15,88 @@
 
 ---
 
-### [中共国《落实三孩政策，党员干部应见行动》一文引热议](/content/gnews/1/README.md)
+### [GTV新闻访谈简报|2021年12月12日早](/content/gnews/1/README.md)
+ ` 纽约香草山MOS01`
+
+### [中共国《落实三孩政策，党员干部应见行动》一文引热议](/content/gnews/2/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【Michael.Tonny专栏】中共国三个人四实体被美国财政部OPAC加入制裁清单](/content/gnews/2/README.md)
+### [【Michael.Tonny专栏】中共国三个人四实体被美国财政部OPAC加入制裁清单](/content/gnews/3/README.md)
  ` 温哥华扬帆农场`
 
-### [文贵大直播 12/12 双12：中国不能再出张学良](/content/gnews/3/README.md)
+### [文贵大直播 12/12 双12：中国不能再出张学良](/content/gnews/4/README.md)
  ` 秘密翻译组-原创组`
 
-### [接种疫苗者占病毒感染案例77%——英权威研究数据证实疫苗无效甚至低至负数](/content/gnews/4/README.md)
+### [接种疫苗者占病毒感染案例77%——英权威研究数据证实疫苗无效甚至低至负数](/content/gnews/5/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [奥地利民众游行抗议政府推出的疫苗强制措施](/content/gnews/5/README.md)
+### [奥地利民众游行抗议政府推出的疫苗强制措施](/content/gnews/6/README.md)
  ` 日本东京方舟农场`
 
-### [2022日本经济复苏仍不容乐观](/content/gnews/6/README.md)
+### [2022日本经济复苏仍不容乐观](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [12/12/21 香港快讯 圆玄小学按教育局建议 向学生播南京大屠杀片段 小一学生受惊](/content/gnews/7/README.md)
+### [12/12/21 香港快讯 圆玄小学按教育局建议 向学生播南京大屠杀片段 小一学生受惊](/content/gnews/8/README.md)
  ` 英喜-粵語組`
 
-### [美国再次制裁中共官员和军企科技帮凶](/content/gnews/8/README.md)
+### [美国再次制裁中共官员和军企科技帮凶](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [耶鲁大学流行病学家：CCP病毒 是当局“制造”的恐惧大流行](/content/gnews/9/README.md)
+### [耶鲁大学流行病学家：CCP病毒 是当局“制造”的恐惧大流行](/content/gnews/10/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [关于北京冬奥会日本特色的立场表明](/content/gnews/10/README.md)
+### [关于北京冬奥会日本特色的立场表明](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [奧運會東道主中國連續第三年被評為世界上最糟糕的關押記者的國家](/content/gnews/11/README.md)
+### [奧運會東道主中國連續第三年被評為世界上最糟糕的關押記者的國家](/content/gnews/12/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [拜登明确告知普京：若入侵乌克兰将付出惨重代价](/content/gnews/12/README.md)
+### [拜登明确告知普京：若入侵乌克兰将付出惨重代价](/content/gnews/13/README.md)
  ` 日本东京方舟农场`
 
-### [DC每日热点1212](/content/gnews/13/README.md)
+### [DC每日热点1212](/content/gnews/14/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中共恐吓性经济政策令G7担忧](/content/gnews/14/README.md)
+### [中共恐吓性经济政策令G7担忧](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美澳丹挪倡议对侵犯人权的网络技术实行监管和出口限制](/content/gnews/15/README.md)
+### [美澳丹挪倡议对侵犯人权的网络技术实行监管和出口限制](/content/gnews/16/README.md)
  ` 日本东京方舟农场`
 
-### [套路多！中共国婚恋平台骗局被踢爆](/content/gnews/16/README.md)
+### [套路多！中共国婚恋平台骗局被踢爆](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|中共研发面部识别系统的公司被美国列入黑名单](/content/gnews/17/README.md)
+### [有声|中共研发面部识别系统的公司被美国列入黑名单](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [有声|杨洁篪发动针对爆料革命的海外行动](/content/gnews/18/README.md)
+### [有声|杨洁篪发动针对爆料革命的海外行动](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [有声|新中国联邦已对中共造成实质性威胁](/content/gnews/19/README.md)
+### [有声|新中国联邦已对中共造成实质性威胁](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [MV版Hcoin To the Moon上线第3天位列28国iTunes热门MV榜首！](/content/gnews/20/README.md)
+### [MV版Hcoin To the Moon上线第3天位列28国iTunes热门MV榜首！](/content/gnews/21/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [继“维吾尔族法庭”判决中共种族灭绝罪，联合国将发布新疆局势评估报告](/content/gnews/21/README.md)
+### [继“维吾尔族法庭”判决中共种族灭绝罪，联合国将发布新疆局势评估报告](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [畅销书《真正的安东尼•福奇》详述福奇如何搞砸了艾滋流行病](/content/gnews/22/README.md)
+### [畅销书《真正的安东尼•福奇》详述福奇如何搞砸了艾滋流行病](/content/gnews/23/README.md)
  ` 首尔天池农场`
 
-### [【灿烂笑容】](/content/gnews/23/README.md)
+### [【灿烂笑容】](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|躺平币是“行为”的价值衡量和回报](/content/gnews/24/README.md)
+### [有声|躺平币是“行为”的价值衡量和回报](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [有声|两名婴儿在注射辉瑞公司的新冠疫苗后被送医](/content/gnews/25/README.md)
+### [有声|两名婴儿在注射辉瑞公司的新冠疫苗后被送医](/content/gnews/26/README.md)
  ` MOSREC`
 
-### [浅析躺平币的重要作用和意义](/content/gnews/26/README.md)
+### [浅析躺平币的重要作用和意义](/content/gnews/27/README.md)
  ` 波士顿五月花农场`
 
-### [GETTR假日抽大奖活动注册将于本周日截止](/content/gnews/27/README.md)
- ` GTV新闻访谈`
-
-### [欧盟四国联合抵制冬奥会，美俄勾兑促台安全](/content/gnews/28/README.md)
+### [GETTR假日抽大奖活动注册将于本周日截止](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
 ### [美大学开始调查教授删除中共病毒研究数据](/content/gnews/29/README.md)
