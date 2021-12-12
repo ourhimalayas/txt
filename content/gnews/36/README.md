@@ -2,37 +2,166 @@
 ---
 
 
-## 银河快讯:日本发现第13例Omicron感染者；日本内阁阁员将出席冬奥会
-` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1746690/)
+## 去中心化的数字货币可能一夜之间消失
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1746691/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-61.png)[图片来源](https://www.rfi.fr/cn)
-**1.****日本发现第13例Omicron感染者**
+[https://gtv.org/video/id=61b579b287fa7e74c92ede49](https://gtv.org/video/id=61b579b287fa7e74c92ede49)
 
-[据NHK 12月11日报道，一名来自岐阜县的男子，之前曾在逗留斯里兰卡，在本月4日进入日本后被证实感染了中共病毒新变种Omicron。 这使得日本被证实感染Omicron的人数达到13人。他在成田机场的检测结果呈阴性，但在返回岐阜后证实了感染。岐阜县知事于11日下午6:30召开新闻发布会，并透露一名来自岐阜县的40多岁男子被证实感染了Omicron。](https://www3.nhk.or.jp/news/html/20211211/k10013384881000.html)
+在日本国已经出现了一个新的，叫岸田派
+A new (political) faction has appeared in Japan, called the Kishida faction
 
-**2.****日本内阁阁员将不出席冬奥会　**
+一定看看岸田的家族是干什么的
+Must see what Kishida’s family does
 
-[据时事通讯社12月11日报道，日本政府已决定从明年2月起不派内阁阁员出席北京冬奥会和残奥会的开幕式和其他活动，并正在考虑派遣日本奥林匹克委员会（JOC）主席山下泰裕出席奥运会，同时也在考虑是否派遣体育局局长等人。考虑到中日明年将迎来外交关系正常化50周年，鉴于中共国的人权状况，日本政府将向已经宣布了 “外交抵制”的美国看齐。 预计在考虑到德国和其他尚未表态的国家的情况后，将在今年年底前做出最终决定。](https://www.jiji.com/sp/article?k=2021121100314&amp;g=pol&amp;utm_source=yahoo&amp;utm_medium=referral&amp;utm_campaign=link_back_auto)
+岸田的家族是搞金融的, 在日本
+Kishida’s family is engaged in finance in Japan
 
-**3.****七国集团外长在英国举行会议**
+日本的政界是不可能有腐败的
+There can’t be corruption in Japanese politics field
 
-[据NHK 12月11日报道，七国集团外长会议在英国开幕。除了与中共国的安全和人权问题外，还计划就应对中共病毒的措施等问题进行讨论会议计划持续到12日晚，东南亚国家联盟（东盟）国家将首次通过在线等方式参与部分会议。 外务大臣希望通过展示日本对这些问题的积极贡献来提高日本的形象。早些时候，外务大臣会见了担任会议主席的英国外长，他们同意深化合作，促进印度-太平洋地区的和平与繁荣，鉴于Omicron毒株的扩散，他们将共同致力于在全世界推广疫苗接种。](https://www3.nhk.or.jp/news/html/20211211/k10013384891000.html?utm_int=news-politics_contents_list-items_001)
+就是你搞政治的搞政治
+It’s that people who do politics do politics
 
-**4.****日本是七国集团中唯一的通胀率为0****%****的国家**
+搞经济的搞经济
+People who are in economics run economy
 
-[据时共同社 12月11日报道，随着中共病毒爆发后经济活动的恢复，美国和欧洲的通货膨胀正在加速。 许多国家的价格上涨了4%以上，包括美国39年多来的最高增长率。 相比之下，日本10月份的消费者价格与去年同月相比上升了0.1%，是七国集团中唯一一个价格保持在0%水平的国家。随着投资的增加和工资的提高，价格的逐步上升对长期经济增长至关重要。 日本物价的缓慢上涨可以看作是低工资和非正常就业的结果。](https://nordot.app/842302807307567104?c=39546741839462401)
+你搞工厂的搞工厂
+The people who engage in the factories run the factories
 
-**5.****美日外长加强对中共国的威慑**
+这就是为什么日本几百年来你干啥的干啥
+That’s why people dedicate in their own industries in Japan for hundreds of years
 
-[据共同社 12月11日报道，日本外相在英国利物浦与美国国务卿布林肯会面。 鉴于中共国和朝鲜的军事活动，他们确认加强了日美联盟的威慑和反应能力。 他们同意与东南亚国家联盟（东盟）、印度和其他国家合作，在法治基础上维护海洋秩序。 他们还就首相岸田文雄早日访问美国和协调日美安全协议委员会（2+2）达成一致，该委员会是预计明年1月初在美国举行的外交部长和国防部长会议。](https://nordot.app/842389981652893696?c=39546741839462401)
+你别跨界
+People don’t cross the border
 
-**6.****日本减免税收以加速食品出口**
+但是岸田和安倍这两人是不一样的
+But both Kishida and Abe are different,
 
-[据时事通讯社12月11日报道，2022年税制改革纲要包括加快农、林、渔和食品出口的特别措施。 税制改革方案包括为满足出口国标准和要求所需的机器和设施的投资提供为期五年的30-35%的公司税特别折旧。 这些措施只在2011年底前可用。日本政府已经设定了一个目标，即在30年前将农业、林业、渔业和食品的出口价值提高到5万亿日元。](https://www.jiji.com/jc/article?k=2021121000994&amp;g=eco)
+这两人家里面是很殷富的那种
+The families of these two people are very wealthy
 
-【日本银河系农场-阿尔法星球】
-作者：Totoro
-校对：Windfish
+人家一定不会腐败
+They will not be corrupted
+
+腐败一定会搞出来，人家就搞这个
+Corruption will surely be discovered
+
+这家伙有这个经验
+This guy has experience,
+
+而且这个人呢，英文还不错
+what’s more, he is pretty good in English
+
+有国际视野
+and has an international perspective
+
+他会对数字货币非常严的严管
+He will strictly manage the digital currency
+
+但最后， 他一定是跟着美国走的
+But in the end, he must follow the USA
+
+那么监管数字银行的结果是什么呢？
+So what are the results of regulating digital banks?
+
+我先告诉大家
+Let me tell you first
+
+美国和日本，特别像欧洲
+The USA and Japan, especially like Europe
+
+一定跟着美国走
+must follow the U.S.
+
+数字货币的去中心化货币
+Decentralized digital currency
+
+可以告诉大家，我今天说了啊
+I can tell everyone, I said it today
+
+战友们， 你听不听
+My fellow comrades, you listen or not
+
+那是你的事儿， 我告诉你了
+That’s your business, I told you
+
+我也愿意为此负责任
+I am also willing to take responsibility for this
+
+我认为接下来的世界去中心化货币，特别是比特币
+I think the next decentralized currencies in the world, especially like Bitcoin
+
+可能一夜之间被消失
+may disappear overnight.
+
+也可能是给你一段时间
+It may also give you a little time
+
+受到严格的监管，逐渐消失
+and be subject to strict supervision and gradually disappear
+
+去中心化的数字币 基本在世界上流行的可能性没有
+There is no possibility that decentralized digital currency will be popular in the world
+
+你像现在比特币的什么提款机呀
+Like the current Bitcoin cash machine
+
+比特币的那个金融产品呀
+and those financial products of Bitcoin
+
+比特币抵押啊
+Bitcoin mortgage
+
+比特币数字交换啊
+Bitcoin digital exchange
+
+所有这些东西 不可能这些国家政府不管你
+All these things, it’s impossible for these governments to ignore you
+
+你现在就是在地球上呆着, 你还有国家
+You are staying on the earth now, and you still have your country
+
+你不可能被接受
+You can’t be accepted
+
+那么大家记住
+Then everyone has to remember
+
+美国现在和全世界开展的数字货币监管的结局
+The outcome of digital currency regulation in the United States and the world
+
+就是去中心化货币给你整没了
+is just that the decentralized currency is gone
+
+剩下的就是咱这个中心化货币，有人负责的货币
+The rest is our centralized currency, the currency that someone is responsible for
+
+会在各国畅通
+will be unimpeded in various countries
+
+那日本就关键了
+Then Japan is the key
+
+* * *
+
+Date: 12/05/2021
+原视频标题:
+去中心化的数字货币可能一夜之间消失
+Decentralized Digital Currency May Disappear Overnight
+原视频日期：2021/12/04
+原视频链接 **[https://gettr.com/post/pip7xz8cb4](https://gettr.com/post/pip7xz8cb4)**
+任务编号：KC324(3108)
+视频时间段 : 00:00-02:05
+听校：洛杉矶盘古农场 – Raul
+翻译：洛杉矶盘古农场 – Raul
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -2,71 +2,41 @@
 ---
 
 
-## 【灿烂笑容】
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1746889/)
+## 有声|新中国联邦已对中共造成实质性威胁
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1746907/)
 
-撰稿：东京樱花团/待命（文晓）
+配音：香草山美食部 – 玫瑰园
 
-（视频系作者本人制作）
 
-战友们好！
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+郭文贵先生也在12月10日的直播中畅谈并详细解析了音乐的本质。
 
-希望这首歌能表达出战友们对中共霸凌盘古的愤慨❗️
+郭先生解释，音乐是可以传递上天信息的声音，自然界中，连狮子听到音乐也会跪下来，对于人类而言，音乐则是沟通人和天地之间的桥梁，它能启迪人类最深层本质的潜能。
 
-能把2021年12月6日中共在不朽的建筑“盘古大厦”施行的残暴传唱到世界每个角落❗️
+郭先生又提到，新歌《Hcoin to the moon》目前已经在亚洲众多国家，特别是日本的排行榜上获得榜首之位。另外根据战友提供的消息，该曲的MV也在美区iTunes音乐视频榜上稳居魁首。
 
-让我们记住那一天、那一刻，文贵先生展现给这个世界的最灿烂的笑容🙏
+对此，郭先生解读，在过去100年中，中国没有任何音乐能够参与国际打榜。而此次的新歌以及此前一系列的爆料革命歌曲打破了共产党对音乐的认知，其所带来的成果更是刺激了共产党的神经。
 
-【灿烂笑容】
+郭先生强调，新中国联邦的创举已经对共产党造成了实质性的威胁
 
-演唱：MC文艺
+文字版原文：[新中国联邦已对中共造成实质性威胁](https://gnews.org/zh-hans/1741893/)
 
-作词：待命(文晓)
+音频处理：喜山必胜Maverick
+发稿：Tom Li
+[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
+**更多资讯，更多关注**
 
-我从来没有想到过
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-人间有如此灿烂笑容
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-刹那间仿佛已误闯入梦境
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-眼前难以置信
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-那笑容亲善迷人
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-那笑容铁骨铮铮
-
-在刀光剑影中魅力无穷
-
-国恨家仇
-
-燃心中
-
-天降好男儿不辱使命
-
-信仰托着他前行
-
-膝不屈腰绝不弓
-
-挥起正义双拳无悔前行
-
-有谁人能够忍受这
-
-手足被摧残如此无情
-
-慈祥的老父亲
-
-多年的同事亲如姐妹弟兄
-
-那笑容翻江倒海
-
-那笑声天摇地动
-
-明知山有虎他也大步流星
-
-校对：东京樱花团/
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
