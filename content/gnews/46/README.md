@@ -2,27 +2,20 @@
 ---
 
 
-## 美财长民主峰会发言剑指跨国政商犯罪
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1746068/)
+## 美财政部设立基金奖励对外国领导人贪污腐败举报者
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1746069/)
 
-作者：纽约香草山医疗部 Zion文恩
+作者：纽约香草山文艺部 宁文静
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-当地时间12月9日，在由美国发起、110余国参与的全球民主峰会上，美国财政部珍妮特-耶伦表示，美国财政部将在惩治跨国政商腐败方面发挥更激进的作用，并将主导成立一个全新的“盗国贼基金”，以奖励向美国政府提供相关信息的爆料人，揭露外国腐败政客在美国所藏匿非法资产。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-12-at-8.43.59-PM.png)
+12月9日，在历时两天的全球民主峰会上，美国务卿布林肯和财长耶伦宣布联手打击贪污腐败，尤其针对外国领导人藏匿在美国的非法资产，将设立专项基金，重奖有效举报者。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-12-at-8.36.58-PM.png)
+为此，美国务院将设立全球反腐败协调员的角色，负责美国外交及对外援助方面的反腐能力的整合，实施白宫的首个反腐败战略；美财政部将成立专项“腐败资产追回奖励基金”，以鼓励提供外国领导人藏匿在美国境内所有非法资产线索的举报行动。耶伦说，财政部正在努力打击来自海外的洗钱和非法金融活动，包括用现金一次性支付巨额房产的交易行为。
 
+有时评人士称，美国政府反腐举措的推出，与爆料革命即将开展的对盗国贼家族的声讨举报，堪称珠联璧合。由此产生的蝴蝶效应，会在不久的将来全球上演。
 
-在8日的《文贵大直播》中，郭文贵先生也提前透露，美欧等西方国家对中共的海外渗透和跨国犯罪行为已展开全面的立法和行政反击，抵制北京冬奥会只是开始。此外，郭先生着重揭露了中共安插在美国金融界的资深特务——太盟集团的董事长单伟健、其一系列非法收买美国金融精英、骗取美国投资者的巨额资金的犯罪行为。
-
-在10日的《文贵大直播中》，郭先生进一步指出，随着美俄两国在灭共事宜上日趋求同，中共习近平政权的对外行为日益疯狂。西方政商界逐渐意识到中共以票据、虚假信贷为支撑的金融核弹随时会被疯狂的习近平当局引爆。郭先生表示，民主峰会上各国政要的表态，虽为形式上的政治做秀，然而其本质是，全球各国已达成共识，以中共当局作为替罪羊，来平息当下环球金融、政治、公共卫生等各项危机。
-
-参考链接：
-
-1. [Treasury’s Yellen vows big push against corruption, new ‘kleptocracy fund’](https://www.reuters.com/business/finance/treasurys-yellen-vows-big-push-against-corruption-new-kleptocracy-fund-2021-12-09/%20https://gettr.com/post/pj7o1le4fc%20https://gettr.com/post/pjd0r087bb)
-2. [抵制冬奥会是所有美国人的决定](https://gettr.com/post/pj7o1le4fc)
-3. [欧洲四国表示将抵制冬奥会并考虑与中共经济脱钩是历史性的事件！](https://gettr.com/post/pjd0r087bb)
-
+参考链接：[Treasury’s Yellen vows big push against corruption, new ‘kleptocracy fund’](https://www.reuters.com/business/finance/treasurys-yellen-vows-big-push-against-corruption-new-kleptocracy-fund-2021-12-09/%20https://gettr.com/post/pj7o1le4fc%20https://gettr.com/post/pjd0r087bb)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
 
