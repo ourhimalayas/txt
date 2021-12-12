@@ -2,30 +2,41 @@
 ---
 
 
-## 西班牙政府将决定是否与欧洲伙伴一起对中共国冬奥会进行外交抵制
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1746556/)
+## 有声|新中国联邦已对中共造成实质性威胁
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1746907/)
 
-**翻译：七龙珠**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip11-1.png)（图为：2021年12月10日，在马德里领土政策部长兼政府发言人伊莎贝尔-罗德里格斯在部长理事会会议后的新闻发布会上与记者交谈情景。欧洲记者报）
-政府发言人伊莎贝尔-罗德里格斯（Isabel Rodríguez）上周五表示，西班牙决定将与“欧洲伙伴”一起，加入2022年北京冬奥会的外交抵制的可能性立场。
+配音：香草山美食部 – 玫瑰园
 
-该抵制运动由美国牵头，即不派政府官员代表参加明年2月在中共国北京举行的冬奥会，但不影响国家的运动员参与，此举激怒了中共国。
 
-“关于政治关系问题，我们将与我们的欧洲伙伴一起采取共同的立场”，这位女发言人在部长理事会之后的新闻发布会上说。她还保证，西班牙将去实现最大数量的奖牌，国家运动员们“将一如既往地让旗帜高高飘扬”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+郭文贵先生也在12月10日的直播中畅谈并详细解析了音乐的本质。
 
-澳大利亚、英国和加拿大已经加入了抵制行动，虽然联合国秘书长安东尼奥-古特雷斯(Antonio Guterres)将出席奥运会，但他们也不会向中共国派出外交代表，据一位发言人周四表示。
+郭先生解释，音乐是可以传递上天信息的声音，自然界中，连狮子听到音乐也会跪下来，对于人类而言，音乐则是沟通人和天地之间的桥梁，它能启迪人类最深层本质的潜能。
 
-尽管法国政府排除了加入抵制行动的可能性，因为他认为“体育必须是一个尽可能不受政治干扰的世界”，而法国总统埃马纽埃尔-马克龙本人则称该行为“无关紧要”。
+郭先生又提到，新歌《Hcoin to the moon》目前已经在亚洲众多国家，特别是日本的排行榜上获得榜首之位。另外根据战友提供的消息，该曲的MV也在美区iTunes音乐视频榜上稳居魁首。
 
-**新闻来源**：[europapress.es][El Gobierno decidirá si se suma al boicot diplomático contra China en los JJOO junto a los socios europeos](https://www.europapress.es/nacional/noticia-gobierno-decidira-si-suma-boicot-diplomatico-contra-china-jjoo-junto-socios-europeos-20211210160244.html)
+对此，郭先生解读，在过去100年中，中国没有任何音乐能够参与国际打榜。而此次的新歌以及此前一系列的爆料革命歌曲打破了共产党对音乐的认知，其所带来的成果更是刺激了共产党的神经。
 
-* * *
+郭先生强调，新中国联邦的创举已经对共产党造成了实质性的威胁
 
-***审核：Aries的星
-校对：信心满满
-发布：信心满满***
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-2.jpeg)
+文字版原文：[新中国联邦已对中共造成实质性威胁](https://gnews.org/zh-hans/1741893/)
 
+音频处理：喜山必胜Maverick
+发稿：Tom Li
+[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

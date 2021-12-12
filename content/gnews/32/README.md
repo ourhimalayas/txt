@@ -2,29 +2,19 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月12日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1747696/)
+## 12月12日文贵大直播快讯——俄方明确声明不支持攻台战略
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1747879/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-3.jpg)
+撰稿：Gradient Boost
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-11.png)
-文章仅代表作者本人观点，与Gnews无关
+视频：上帝的随从
 
-视频参看：[2021.12.12早GTV新闻访谈](https://gtv.org/video/id=61b5f8d856f4921401b61209)
+美东时间当地12月12日，文贵先生在大直播当中谈过去24小时在中共国发生的事情时说，最让中共受到刺激接受不了的，其实就是来自俄罗斯的问题。在俄美两国会谈之前，俄罗斯原本是准备和中共上演“你弄我要喝”这样一出戏码的，甚至还会给与技术上的支持。而现在俄罗斯派出特使向中共声明，不会跟从中共国参与到攻打台湾的战略中去。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+俄罗斯的决议是已经确定的，不存在绕弯的问题。而且俄方明确向中共国表示，所有中共与俄罗斯签署的油气协议，中共国必须执行。言下之意，中共该给的钱一分也不能少，如果少了就不仅是不支持的问题了，俄方甚至就会站到美国那一边。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-69.jpeg)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+对习神来说，俄方的表态可以说是一种巨大的羞辱。过去世界格局的变化，其根源就在中共联俄抗美的战略路线，而现在已经走到尽头。同时，俄国和印度、北朝鲜、巴基斯坦以及伊朗等国家将形成一个新的联盟关系，但是排除了共产党。这些国家将中共撇在一边，要单独与美国进行交易。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

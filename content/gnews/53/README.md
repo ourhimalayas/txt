@@ -2,28 +2,26 @@
 ---
 
 
-## 美国财政部禁止对“商汤”投资
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1745283/)
+## 日本将不会派内阁官员出席北京冬奥会 正式公布将安排在年后
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1745716/)
 
-作者：纽约香草山农场 – 文真
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月10日，联合国“人权日”当天，美国财政部公布了对中共国人工智能创业公司“商汤”的投资禁制令。
+撰稿：日本方舟农场-Andy5
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-6.png)
+据日本媒体12月11日报道，日本政府坚持不向北京冬奥会派出内阁官员的方针。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-607.png)
+继美国等国因为中共的新疆、香港等人权问题，用外交手段抵制北京冬奥会，并且日本自民党内部也出现前首相安倍晋三、政调会长高市早苗发出警告后，日本政府内部官员透露，将在明年开年后立即公布这一方针。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide5-7.jpeg)
+还有消息称，日本将派出非本届内阁成员的2020年东京奥委会主席桥本圣子出席，以这种在政治层面上跟随欧美，同时又不彻底跟中共翻脸的方式，来达成岸田首相之前所说的将最大程度维护日本国利益的目标。
 
-早在2019年，商汤公司因其技术涉及侵犯维吾尔族人权，已经被美国商务部列入实体黑名单。就在财政部公布禁制令的前几个小时，商汤推迟了本应周五在香港的首次公开发行。
+链接：[20211211日本ANN新聞](https://www.gettr.com/post/pjd5i2312c)
 
-根据财政部外国资产管制处的信息，商汤公司的面部识别程序可以确定目标种族，尤其重点识别维吾尔族人。在申请专利时，商汤重点强调了其产品识别维吾尔族人的能力，甚至可以识别戴胡须、太阳镜和面具的维吾尔人。
 
-中共正是利用此类数据驱动的监控技术，在新疆地区建立集中营，大规模拘捕关押无辜的维吾尔人。
 
-参考链接：[US Blocks Investment In Uyghur-Hunting Facial-Recognition AI Startup](https://www.zerohedge.com/geopolitical/us-blocks-investment-uyghur-spotting-recognition-ai-startup)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-4.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
+总编：飞虹
 
-总编：Ivy001
-编辑：正义的小新
-校正/发稿：谐趣园
+校正/发稿：浪迹天涯
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -31,7 +29,9 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-6.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,177 +2,37 @@
 ---
 
 
-## 美 日 澳 印之间复杂的战略合作关系
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1747868/)
+## 文贵爆料 12.12：联俄抗美——一场相思一场梦
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1747971/)
 
-[https://gtv.org/video/id=61b57a3b87fa7e74c92ede8e](https://gtv.org/video/id=61b57a3b87fa7e74c92ede8e)
+撰稿：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/12/snapshot-10.jpg)
+在这场大国博弈中，中共试图再次勾结俄罗斯，拉下那幅横贯欧亚大陆的“铁幕”，但这注定将事与愿违，也注定是一场灾难。郭文贵先生在12月12日的大直播中说，俄罗斯人和中国人有着迥然不同的思维、文化和历史 ，最近俄罗斯的三点官方通报表明，中共计划的联俄抗美、联俄攻台，终不过是一场遥不可及的梦。
 
-**郭文贵
-Miles Guo**
+俄罗斯这个民族，一定要了解这个民族的个性和文化。了解后，你就知道，中国人和俄罗斯人永远不可能。你要看它的历史、文化和对气候的适应性。就像蛇可以吞大象，但和大象不能交配。狮子可以吃掉斑马，但永远不能和它性交。俄罗斯是两天鹰，看着欧洲，看着亚洲。
 
-就是日澳美这三国跟欧洲和美国完全不同的关系
-Japan, Australia and the United States have completely different relationship with Europe and the United States
+当年的沙皇和整个的宗教，认为我是代表上帝的。它对大自然的理解，对人性的理解，他崇上的东西，和我们的文化正好发生两个巨大的问题。就中国人没有的，它有，就是中国人变成了一个叫文化储备。绝对中国人对俄罗斯已经有骨子里文化崇拜。
 
-说白了就是澳大利亚属于亚洲
-To put it bluntly, Australia belongs to Asia
+你永远是要查历史去。中国人就懦弱、不勇敢、虚伪、爱撒谎，而且永远是农耕为主。俄罗斯人恰恰相反，鲁莽，中国人看来叫勇敢，敢干敢行动。中国人不敢行动，中国人不团结。俄罗斯在打仗的时候绝对团结。俄罗斯人的性能力并不是那么强。大家都知道生命力越来越不好。但是对文化上他们享受啊，基本上就是那个状态。中国人就是文化崇拜、生理崇拜啊。
 
-日本是亚洲的过去的第一强国
-In the past, Japan is the number one power in Asia
+另外一个就俄罗斯人正好治中国人的病。敢出手敢打敢弄，是东北三省的所有的那鲁莽的打架，酗酒几乎都来自俄罗斯。但我们都是不赖，看看东北文化里受影响有多深。而且俄罗斯这个民族是当下文化，就是今年有酒今日醉。呃，也就是今天漂亮老婆热炕头啊，今天有酒，今日醉啊。
 
-也是经济上的第二强国
-and the second strongest country economically
+但是又有一个很可怕的，他在跟欧洲连着，就欧洲这种优越的文化历史有深深影响的吗？而西方的宗教在他长得又像白人。还有一个这种生理的优越性和文化的多样性。所以注定和中国在骨子里不一样。
 
-军事上严格讲说是第二
-In the military, strictly speaking, it is the second
+我今天说过去二十四小时，我觉得对共产党这是最大的刺激。在俄美交流之后，俄罗斯派去的特使，在私下的交谈中告诉了中共，在任何情况下，任何情况下你打台湾，我不会跟你一起。原来是说你打我吆喝啊，甚至给你技术支持。这就对中共是致命的。俄罗斯人现在不会说跟你商量啊，对不起啊，为什么说这就是我的决定啊。
 
-但是绝对不输中共的
-but it definitely does not lose to the CCP
+第二，所有中俄之间签署的油气的协议，你们必须执行。
+言外之意，你该给我的钱，该买我的油，一点也不能少。如果少了，我不仅不支持你，还要打你，我就跟美国在一起。这对习近平来讲是简直是巨大的羞辱。他本想联俄抗美联俄收台这个战略。这下世界局势变化的一切根本不一样。这已经完了。
 
-那么在这个关系上对中共的态度上
-So, in terms of the attitude towards the CCP in this relationship,
+第三，俄国、印度、北朝鲜、巴基斯坦和伊朗，将形成了一个新的联盟关系。这几个国要联合起来跟美国谈价。咱们不打。大家注意啊，特别是俄罗斯很明确反对中国在阿富汗干的事情。我告诉你为啥这么干啊，这就是我俄国的外交。俄罗斯一千年来最成功的就是它的外交。不要脸，完全不要脸，就是现实主义。告诉你，你在阿富汗的干的事对俄罗斯不利呀。
 
-在台湾的问题上
-and on the issue of Taiwan
+还有一个就是现在在你跟美国和西方这种挑战什么都可以，这是中国的事，俄罗斯说，你的人权和你的整个企业经济权就让我们很失望。言外之意，你再给我钱也给不起。
 
-大家看待问题的时候不要一样看
-Please don’t look at problems the same way
+郭先生说，这对习近平在共产党的位置，是致命的，是他的滑铁卢，他认为俄罗斯百分之百帮他，在后面帮他拿着枪顶着。
 
-就像中共和俄罗斯和美国关系一样
-Just like the relationship between the CCP and Russia and the United States
+参考链接：
 
-中俄永远不可能所谓的永远的好
-China and Russia can never be so-called forever good
-
-最后
-In the end,
-
-又一定是中国人作为牺牲品
-it must be the Chinese people as victims
-
-历史以来杀中国人最多的是俄罗斯人
-It’s the Russians who have killed the most Chinese in history
-
-而且是美国人几乎跟中国人没有什么利益冲突
-And the Americans have almost no conflict of interest with the Chinese
-
-那你去想一想亚洲人，不管你有多大
-Then think about the Asians, No matter how big you are
-
-是澳大利亚人跑到亚洲不属于亚洲
-it’s Australians who went to Asia but it does not belong to Asia
-
-它属于整个南澳到亚洲参战
-It belongs to the entire South Australia to participate in the war in Asia
-
-就它那个军事实力，那都是基本上就是表演型的
-As far as its military strength, it is basically a performance, a show
-
-它只是拉过来，就凑数
-It just pulls over and makes up the count
-
-你知道就像路大脑袋
-You know it’s like the big head Lude
-
-他自己骗不了钱
-He couldn’t scam money by himself
-
-他就把蛇妖闫弄来了
-so he got Snake Demon Yan here
-
-你去看跟路大脑袋、蛇妖闫下边在看的
-Go check out the big head lude and the Snake Demon Yan’s broadcast
-
-现在还有3000人
-There are still 3000 people watching
-
-几乎80%的都是对着蛇妖闫去的
-Almost 80% of them are there because of Snake Demon Yan
-
-那么，日本人拉着澳洲就拉了这么一个，就这个意思
-therefore the Japanese are pulling Australia together with it. That’s what it means
-
-我得拉个站台的
-The Japanese have to pull a backer
-
-美国人不见得跟他站台
-but the Americans haven’t acted for them as a backer
-
-美国是为了让自己当老大
-The U.S. wants to be the boss itself
-
-我要当老大，我要……我要喊两嗓子
-They want to be the boss and shout it out loud
-
-美国人是想日本人，你上，你先打
-Americans want the Japanese to go and to fight first
-
-因为第一个死是你
-because it would be the first one to die
-
-澳洲说下个就是你澳洲，澳洲是什么？
-Australia said Australia is the next. What about Australia?
-
-澳洲的所有的经济百分之六、七十并不来源于美国，是来源于亚洲
-60%-70% of Australia’s economy does not originate from the United States, but from Asia
-
-它是经济利益在前
-Its economic interests at the head of the line
-
-特别是台湾
-especially Taiwan
-
-所以说它是经济和日本的战略安全
-So (Australia) is the economy and Japan’s strategic security
-
-美国人怂恿的是日本人、澳洲人和印度人上
-The Americans encouraged the Japanese, Australians, and Indians to go
-
-哎，印度人这个莫迪说，咱不掺和这事儿，你们打
-The Indian Narendra Modi said you could fight, but Indians would not participate
-
-反正我不想当老大
-I don’t want to be the boss anyway
-
-你也灭不了我
-and you can’t destroy me
-
-所以说它这个关系，战略关系到最后的结局是什么？
-So that the relationship, what is the final outcome of this strategy relationship?
-
-日本人，你看安倍现在讲的话
-The Japanese, look at what Abe is saying now
-
-安倍在任的时候，没有比他对中国再舔腚的了
-When Abe was in office, there was nothing more licking China than he did
-
-这个家伙你可别相信他说那么多话
-Do not trust this guy that much on what he said
-
-他的家族和他的政治立场，如果他硬一点点
-On his family and his political standpoints, if he was a little tougher
-
-习近平不至于到今天对台湾
-Xi Jinping would not treat Taiwan like he does today
-
-* * *
-
-Date: 12/06/2021
-原视频标题: 美 日 澳 印之间复杂的战略合作关系
-The Complex Strategic Partnership Within The United States, Japan, Australia and India
-原视频日期：2021/12/05
-原视频链接: [**https://gettr.com/post/pivgnud674**](https://gettr.com/post/pivgnud674)
-任务编号：KC325(3132)
-视频时间段 : 0:00-2:13
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译：洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[2021年12月12日 文贵大直播](https://gettr.com/streaming/pjgjwbc1bf)
 
  
 

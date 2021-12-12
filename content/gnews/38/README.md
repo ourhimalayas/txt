@@ -2,41 +2,29 @@
 ---
 
 
-## 有声|新中国联邦已对中共造成实质性威胁
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1746907/)
+## 美国再次制裁中共官员和军企科技帮凶
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1747377/)
 
-配音：香草山美食部 – 玫瑰园
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screenshot_1-2.png)
+[图片来源](https://ipvm.com/reports/treasury-sanctions)
 
+证劵时报12月12日报道，当地时间12月10日，美国财政部将中国、俄罗斯、朝鲜、缅甸、孟加拉国五个国家的共15名个人及10个实体列入美国财政部海外资产控制办公室的制裁名单，其中有包括3名中国公民及多家中企。此外美国财政部还将中国商汤科技有限公司列入涉军企业名单，实施投资限制。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-郭文贵先生也在12月10日的直播中畅谈并详细解析了音乐的本质。
+商汤科技成立于2014年，是计算机视觉和深度学习领域的算法提供商。2014年商汤团队发表DeepID系列人脸识别算法击败Facebook，在全球首次超过人眼识别率。被美国一同被加入实体清单的还有大华科技、海康威视、科大讯飞、旷视科技等AI企业。
 
-郭先生解释，音乐是可以传递上天信息的声音，自然界中，连狮子听到音乐也会跪下来，对于人类而言，音乐则是沟通人和天地之间的桥梁，它能启迪人类最深层本质的潜能。
+这是继2019年商汤等多家公司被美方列入实体清单后，美国政府第二次实施对商汤科技的打压措施。今年8月27日，商汤科技向港交所递交招股书；11月22日，商汤科技通过港交所聆讯，并发布聆讯后资料集。12月7日，商汤科技的上市主体商汤集团股份有限公司发布招股章程，公司将正式开展全球首次公开募股。
 
-郭先生又提到，新歌《Hcoin to the moon》目前已经在亚洲众多国家，特别是日本的排行榜上获得榜首之位。另外根据战友提供的消息，该曲的MV也在美区iTunes音乐视频榜上稳居魁首。
+中共当局利用拘押和数据控制监控，在商汤科技IPO正进入最后阶段被美国加入制裁黑名单，对其是致命打击。
 
-对此，郭先生解读，在过去100年中，中国没有任何音乐能够参与国际打榜。而此次的新歌以及此前一系列的爆料革命歌曲打破了共产党对音乐的认知，其所带来的成果更是刺激了共产党的神经。
+信息来源：
 
-郭先生强调，新中国联邦的创举已经对共产党造成了实质性的威胁
+[【突发！IPO关键阶段，商汤科技再遭美制裁，被列入投资黑名单，公司紧急回应……】](https://mi.mbd.baidu.com/r/xSW7A2YQjm?f=cp&amp;rs=2253027488&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=0a7a359440c0b975)
 
-文字版原文：[新中国联邦已对中共造成实质性威胁](https://gnews.org/zh-hans/1741893/)
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
 
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

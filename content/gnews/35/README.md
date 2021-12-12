@@ -2,29 +2,28 @@
 ---
 
 
-## 美国再次制裁中共官员和军企科技帮凶
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1747377/)
+## GTV新闻访谈简报|2021年12月12日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1747696/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screenshot_1-2.png)
-[图片来源](https://ipvm.com/reports/treasury-sanctions)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-3.jpg)
 
-证劵时报12月12日报道，当地时间12月10日，美国财政部将中国、俄罗斯、朝鲜、缅甸、孟加拉国五个国家的共15名个人及10个实体列入美国财政部海外资产控制办公室的制裁名单，其中有包括3名中国公民及多家中企。此外美国财政部还将中国商汤科技有限公司列入涉军企业名单，实施投资限制。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-11.png)
+文章仅代表作者本人观点，与Gnews无关
 
-商汤科技成立于2014年，是计算机视觉和深度学习领域的算法提供商。2014年商汤团队发表DeepID系列人脸识别算法击败Facebook，在全球首次超过人眼识别率。被美国一同被加入实体清单的还有大华科技、海康威视、科大讯飞、旷视科技等AI企业。
+视频参看：[2021.12.12早GTV新闻访谈](https://gtv.org/video/id=61b5f8d856f4921401b61209)
 
-这是继2019年商汤等多家公司被美方列入实体清单后，美国政府第二次实施对商汤科技的打压措施。今年8月27日，商汤科技向港交所递交招股书；11月22日，商汤科技通过港交所聆讯，并发布聆讯后资料集。12月7日，商汤科技的上市主体商汤集团股份有限公司发布招股章程，公司将正式开展全球首次公开募股。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-中共当局利用拘押和数据控制监控，在商汤科技IPO正进入最后阶段被美国加入制裁黑名单，对其是致命打击。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-69.jpeg)
 
-信息来源：
-
-[【突发！IPO关键阶段，商汤科技再遭美制裁，被列入投资黑名单，公司紧急回应……】](https://mi.mbd.baidu.com/r/xSW7A2YQjm?f=cp&amp;rs=2253027488&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=0a7a359440c0b975)
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
-
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

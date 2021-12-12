@@ -2,122 +2,58 @@
 ---
 
 
-## 从此没有郭七条 加速灭共让它消失
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1747878/)
+## 英国间谍头子对中共数字人民币的表示担忧
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1747973/)
 
-[https://gtv.org/video/id=61b5ffd587fa7e74c92f0f6a](https://gtv.org/video/id=61b5ffd587fa7e74c92f0f6a)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/121201-1.jpg)杰里米·弗莱明爵士是英国情报、网络和安全局 GCHQ 的主任。 他于 2017 年被任命，是第 16 位担任该职位的人。图片：来自@californianewstimes.com
+来自California News Times 2021年12月11日的报道，
 
-**郭文贵**
-**Miles Guo**
+**摘要翻译：**
 
-大家看到这个了
-Everyone has seen this
+英国情报机构–政府通信总部（GCHQ）主任说，中共的数字人民币在北京冬奥会前被广泛吹捧，我警告过，它有可能成为监控用户和管理全球货币交易的工具。
 
-咱做这个是个草率的
-This one that we did is hasty
+杰里米·弗莱明（Jeremy Fleming）爵士在接受《金融时报》采访时说，虽然数字货币为支付系统的民主化提供了一个“巨大的机会”，但这种新技术的发展也带来了威胁。他说：“如果做不好，它让敌对国家有能力监控交易。它赋予了中共有权力……去控制数字货币的交易。”
 
-谢谢Q妹、墨镜先生、小白、Ryan
-Thank you sister Q, Mr. Sunglasses, Xiaobai, and Ryan
+在宣布新的网络战略之前，这位间谍头子本周早些时候在国家网络安全中心（GCHQ的防御部门）的伦敦总部接受了《金融时报》的采访。
 
-这个你们做得非常非常棒
-You guys did a very good job
+该文件定于本月晚些时候发布，随着战争越来越多地转移到网络空间，该文件将作为对抗数字威胁的蓝图。弗莱明说，GCHQ是这个领域的 “偷猎者和守猎者”，既负责保护国家不受攻击，又负责对敌人做出反击。我做到了。
 
-我们要做的事情一定要是
-What we have to do must be (perfect)
+该机构在英国和国外都有监听站，并与著名的同行机构军情五处和军情六处合作，分别从事国内和国际情报工作。然而，GCHQ急需大量的数字专业知识，正如弗莱明所称，技术的提高，会使社会更加“卓越”。
 
-咱做这事儿
-When we plan this thing
+事实上，该机构在二战中发挥着历史性作用，当时GCHQ的破译员在布莱切利公园的草屋中破译了纳粹的通信，但随着时代变迁，如今所面临的威胁已经发生了很大变化。
 
-咱把它这个他们的丧事给它变成共产党有史以来最高级的
-Let’s make it their funeral the highest level in the history of the Communist Par-ty ever
+他说，中共国目前是英国面临的“最大的战略问题”，因为中共国正在扩大其间谍活动并寻求对其数字基础设施的控制。弗莱明解释说“中共通过公开和秘密地方式进行大量投资，抢占了先机。因为道路准则开始真正影响他们在技术和数字方面的行为。我们需要知道我们该如何应对所有的这一切。”
 
-所有制造的棺材都是要特殊材料
-All coffins will be made of special materials
+但他指出，当其他国家收集大量英国公民的数据（他们如何工作、购物、社交和旅行）时，这是“非常具有侵扰性”。我担心这可能会导致“国家主权受到侵蚀”。本月初，军情六处负责人理查德·摩尔（Richard Moore）提出，我指责了中共正在出口技术，使其能够在世界各地行使其“网络威权统治”，通过“数据陷阱”给其他国家下套。
 
-花圈都是特殊材料
-All wreaths will be used in special materials
+数字货币就是这样一个陷阱。据中国人民银行称：“我们已经有1.4亿个人和企业注册使用数字人民币。”弗莱明说：“在即将到来的冬奥会的背景下，中共国正在利用一切机会为推广数字货币预热，并希望外国游客与国内游客一样使用数字货币。”
 
-甚至用这个碳纤维carbon fiber都行
-even with this carbon fiber works too
+他希望中共能与国际伙伴协商，共同制定一个在线货币监管系统。弗莱明说：“我们还没有看到中共的有任何意愿对此进行探讨，而有些国家和机构已经表现出“真正的渴望”，希望就这个问题进行更好的对话。”
 
-要做得精美细化
-It need to be exquisitely detailed
+在短期内，GCHQ将处理由中共病毒大流行所产生的一些后果，其中既包括窃取疫苗研究的间谍活动，也包括由于远程办公导致的网络易受攻击以致勒索软件攻击数量激增。重点在于此。今年截止目前，约有40%的英国公司遭遇了网络被破防或攻击。
 
-要用的音乐喇叭
-We should use music laud speakers
+**简评：**
 
-在（中共的）各国大使馆响起的时候
-When (all speakers) sound at every Chinese (the CCP) embassy in a different country
+中共的数字货币其目的就是要取代超发的人民币，打破现有的国际金融秩序，进而取代美元，为统治世界做准备。然后中共推行的数字人民币并不是真正意义上的数字货币，其主要目的是成为套在每个人脖子上的枷锁，最终控制每个人的一举一动。中共七十年奴役中国老百姓的历史助涨了它贪得无厌的狼子野心，它不要但奴役14亿中国人民，还有将他们的魔爪伸向整个世界，统治全球。当代金融强国的英国已经感受到了危机，也将有越来越多的国家看清共产党的邪恶本质，只有消灭共产党才能有未来！
 
-要达到了这个世界专家音乐水平的
-It should reach the level of expert music in the world
+新闻链接：[UK spy chief raises fears over China’s digital renminbi](https://californianewstimes.com/uk-spy-chief-raises-fears-over-chinas-digital-renminbi/620126/)
 
-比七哥唱Hcoin to the Moon还要厉害
-and better than the result of Miles Guo singing Hcoin to The Moon
+*翻译/简评: kkoto(芬兰大灰狼)*
 
-叫他们的家人、他们的妈听到以后都直接进天堂
-So that their (the CCP)family, their mother go straight to heaven after hearing it
+*校对: clau*
 
-非死不可那种的
-and to reach must die that kind of effect
+* * *
 
-这音乐听得他非死不可
-This music makes him have to die
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-让习近平，彭丽媛他们可以听不见
-Xi Jinping and Peng Liyuan may not hear
 
-只要他们听见，他们就想死
-But they would want to die upon hearing it
+编辑：【英国伦敦喜庄园编辑部】
 
-他有他母亲齐心
-His mother Qixin is in his heart
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-他有习仲勋
-His father Xi Zhongxun is in his heart
 
-我让他母亲齐心知道
-I’ll let his mother Qixin know
-
-你儿子对待别人的父母的感觉是什么样子
-the feeling about her son treating other people’s parents
-
-你们一定要做得绝
-You must do it extremely
-
-要不就别做，要做就做到绝
-do it by all means, otherwise don’t touch it at all
-
-我让所有驻海外的中共的大使馆的官员
-I’ll let all the officials of the CCP’s embassies abroad
-
-我让他们知道
-I’ll let them know
-
-你们的父母一定不会老死
-their parents will never be end well
-
-一定会被装在这个新中国联邦给准备的棺材里边去
-They will be packed in a coffin prepared by the New China State of China
-
-Date: 12/09/2021
-原视频标题: 从此没有郭七条 加速灭共让它消失
-There is no More Guo Qitiao From Now on And Speed up The Process of Taking Down the CCP
-原视频日期：2021/12/08
-原视频链接: https://gettr.com/post/pj7l1r6d6d
-任务编号：KC331（3164）
-视频时间段 : 0:00-1:43
-
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译：洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 -天涯行
-审片：洛杉矶盘古农场 -银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

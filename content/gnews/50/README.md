@@ -2,35 +2,22 @@
 ---
 
 
-## 日本将不会派内阁官员出席北京冬奥会 正式公布将安排在年后
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1745716/)
+## 国际奥委会委员警告参加北京冬奥会的运动员不要乱说话
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1746070/)
 
-撰稿：日本方舟农场-Andy5
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-6.png)
-据日本媒体12月11日报道，日本政府坚持不向北京冬奥会派出内阁官员的方针。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-607.png)
-继美国等国因为中共的新疆、香港等人权问题，用外交手段抵制北京冬奥会，并且日本自民党内部也出现前首相安倍晋三、政调会长高市早苗发出警告后，日本政府内部官员透露，将在明年开年后立即公布这一方针。
+#### 撰稿：彩虹
 
-还有消息称，日本将派出非本届内阁成员的2020年东京奥委会主席桥本圣子出席，以这种在政治层面上跟随欧美，同时又不彻底跟中共翻脸的方式，来达成岸田首相之前所说的将最大程度维护日本国利益的目标。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-3-5.jpg)图片来源：以色列时报
+12月11日，根据《新闻极限》的报道内容，国际奥委会成员理查德·庞德（Richard Pound）告诉《时代周刊》，只要他们遵守中共国的法律，参加2022年北京冬奥会的运动员是可以自由表达自己意见的。
 
-链接：[20211211日本ANN新聞](https://www.gettr.com/post/pjd5i2312c)
+这位奥委会委员的言论如此的荒唐和前后矛盾，以至于他自己都不得不进一步解释。他说：“这种情况下并不意味着你可以完全的为所欲为。所以，你知道，要小心你做的事情，因为你可能会被关注。”庞德继而表达了对运动员威胁的话语，他说，在过去，东道国“基本上”保护了运动员的自由。
 
+这位奥委会的资深会员，完全无视中共国是一个专制独裁的国家，罔顾中共“反人类罪”事实，将中共国的法律视为运动员应该遵守的红线，是何等的无知、无耻和用心险恶。
 
+**新闻来源**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-4.png)
-
-总编：飞虹
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-6.png)
-
+[Olympic Athletes Free to Express Opinions in Beijing, IOC Says](https://www.newsmax.com/newsfront/olympics-2022-winter-china/2021/12/11/id/1048264/)
 
  
 
