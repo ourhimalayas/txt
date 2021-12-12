@@ -2,58 +2,48 @@
 ---
 
 
-## 福奇称接种完第三针才能称为“完全接种疫苗”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1746058/)
+## 【Michael.Tonny专栏】英国卫生安全局报告显示 疫苗就是杀人的毒药
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1746079/)
 
-**【雅典娜快讯】，紧贴时事脉****搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-144.png)图片来源：REUTERS
-翻译：不要代表我Kari
-编辑：Mttfly
+作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+中共病毒（Covid-19）源头真相没有弄清楚以前，强行让民众接种所谓的中共病毒疫苗，无异于故意杀人！疫苗就是杀人的毒药！
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-1639128383-4203-1639128388_r_680x408.jpg)
+根据[英国卫生安全局（UK Health Security Agency）](https://www.gov.uk/government/organisations/uk-health-security-agency)2021年12月9日发布的第49周全国流感和COVID-19监测报告（[National flu and COVID-19surveillance report:9 December 2021 (week 49)](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1039639/Weekly_Flu_and_COVID-19_report_w49.pdf)）：自8月以来的过去4个月里，英国每5个感染中共病毒的病例中有3个、每5个住院病例中有3个、每5个死亡病例中有4个是完全接种疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-612.png)
+接种中共病毒疫苗，即不能预防感染，也不能减少死亡！
 
-《自然新闻》报道托尼·福奇（Tony Fauci）声称，“完全接种疫苗”一词将被修正为接种三次武汉冠状病毒（Covid-19）疫苗，而不只是（原来的）二次接种，“这仅是一个什么时间打的问题，而非是否应该打三针的问题。”
+下图为今年8月16日到12月5日16周内按疫苗接种状态划分的英格兰感染中共病毒病例数。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/from-16-Aug-21-to-05-Dec-21-Covid-19-cases.png)
+在考虑学生们在9月开学后，学校“鼓励”学生进行定期进行测试，导致9月中旬和10 月初的数据有波动的因素后， 9月前和10月初到现在，完全接种疫苗的人群占了英格兰感染中共病毒病例的大部分。
 
-国家过敏和传染病研究所(NIAID)负责人，一个来自伪政府的所谓的“医生”告诉假新闻巨头媒体CNN，最终需要将接种第三针新冠疫苗加强针作为参与“新常态”的基线方案的一部分。
+下图为今年8月16日到12月5日16周内按疫苗接种状态划分的住院病例，接种疫苗后感染中共病毒而住院的人数一直比未接种疫苗的人要多。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/number-of-hospitalisations-by-vaccination-status-between-16-Aug-21-and-05Dec-21.png)
+下图说明，自今年8月以来，完全接种疫苗的人群占感染中共病毒死亡人数的大部分。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/fully-vaccinated-population-have-accounted-for-the-majority-of-Covid-19-deaths-every-single-month-since-August-2021.png)
+在完全接种疫苗的人群中，单周感染中共病毒死亡人数最高为3,284，而未接种疫苗人群中，因感染中共病毒死亡的单周最高人数为 850。
 
-福奇强调，这只是他个人的观点，与拜登政权无关。“三针疫苗接种”计划是否真的被强制授权执行，还有待观察。
+下图显示了过去16周内，未接种疫苗人群因感染中共病毒的病死率和完全接种人群的病死率对比。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/not-vaccinated-population-and-the-case-fatality-rate-among-the-vaccinated-population.png)
+未接种疫苗的人群的病死率仅为0.2%，完全接种疫苗的人群的病死率为0.8%。因此，根据英国政府的官方数据，如果感染中共病毒，完全接种疫苗的人死亡的可能性会比未接种疫苗的人增加4 倍。
 
-福奇在最近的另一次采访中还表示，他计划最早在2022年春季开始为婴儿完全接种疫苗，这样在他们体内也可以合成刺突蛋白（“保护他们”）。
+下图显示未接种疫苗的人群因感染中共病毒的住院死亡率与完全接种疫苗的人群住院死亡率对比。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/The-hospitalisation-fatality-rate.png)
+未接种疫苗人群感染中共病毒后的住院死亡率为26%，完全接种疫苗的人群感染中共病毒后的住院死亡率达到了令人震惊的63%。这意味着完全接种疫苗的人群在因Covid-19住院后死亡的可能性要高2.4倍。
 
-福奇坚持认为，所谓的奥米克戎（omicron）变体，也被称为“蠢货”（moronic）变体，预计不会像之前的德尔塔（delta）变体那样严重。但他补充说，“蠢货”可能更具传播性。
+疫苗就是杀人武器！
 
-与此同时，媒体已经在头条新闻中充斥着关于辉瑞的第三剂加强针在某种程度上对“蠢货病毒”如何有效的宣传。世界卫生组织（WHO）显然也同意这一点。
+参考数据：
 
-世卫组织紧急事务主任迈克·瑞安（Mike Ryan）博士在给法新社的一份声明中宣称：“我们拥有超极有效的疫苗，迄今为止，在严重疾病和住院治疗方面，这些疫苗已被证明对所有变异有效，没有理由期望它不会如此（有效）”。
+[Whilst you were distracted by a Christmas Party the UK Gov. released a report confirming the Fully Vaccinated account for 4 in every 5 Covid-19 Deaths in England since August](https://dailyexpose.uk/2021/12/11/report-shows-4-in-5-covid-deaths-fully-vaccinated/)
 
-非洲研究人员声称“蠢货病毒”变体降低了辉瑞疫苗对抗体的保护。非洲健康研究所（AHRI）的一个科学家小组在测试了12名注射了福氏流感疫苗（福奇畅导的新冠疫苗）的人的血样后得出了不同的结论。
+[Official Statistics National flu and COVID-19 surveillance reports: 2021 to 2022 season](https://www.gov.uk/government/statistics/national-flu-and-covid-19-surveillance-reports-2021-to-2022-season)
 
-注射后测试结果显示这些人的身体对抗这种“蠢货”变种病毒的能力与最初的SARS-CoV-2病毒相比惊人地下降了41倍（假设新冠病毒真的存在，因为它从未被分离出来）。
+[National flu and COVID-19 surveillance report: 9 December 2021 (week 49)](https://www.gov.uk/government/statistics/national-flu-and-covid-19-surveillance-reports-2021-to-2022-season)
 
-令人惊讶的是，非洲健康研究所研究小组仍然建议人们接受“加强针”来预防“蠢货”病毒，这一建议可能源于该小组不希望因违背支持疫苗接种的说法而失去研究经费。
+[Statistics and Research Coronavirus Pandemic (COVID-19)](https://ourworldindata.org/coronavirus)
 
-任何受人尊敬的、具有高度科学水准的人居然会建议采取多次注射相同的疫苗来“对抗新的变种蠢货病毒”以修复以前疫苗造成的损害，这实在让人无法理解，这就是现在我们所处的境况。
-
-请记住，该国疫苗接种率最高的地区也是新冠病例最多的地区。人们会认为，一般公众，无论其政治倾向如何，都会在这个问题上一分为二，并考虑其关联性。
-
-相反，主要是左派，似乎在加倍坚持终生接种疫苗（的强制政策），他们只对福奇和拜登这种人惟命是从。
-
-“这个庸医，又名福奇博士，才真需要给自己立马打一打所谓的加强针”，《自然新闻》的一位评论员开玩笑说。
-
-另一个人开玩笑说：“福奇就像服用类固醇和冰毒的哈罗德·希普曼（Harold Shipman）一样”。(注：哈罗德·希普曼是英国家庭医生、连环杀手。)
-
-另一位写道：“如果父母真的把孩子交给福奇，那是他们的耻辱。然而，他们已经将6000万孩子堕胎而折磨至死，所以现在任何事情都是可以接受的。”
-
-其他人指出，大规模减少人口一直是“精英”计划的一部分，他们操纵像福奇这样没有灵魂、冷血的傀儡来完成这一计划。
-
-**原文链接：**[Fauci says “fully vaccinated” will soon mean three injections](https://www.naturalnews.com/2021-12-10-fauci-fully-vaccinated-soon-mean-three-injections.html)
-
-**发布：**去中心化Math
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/) 上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

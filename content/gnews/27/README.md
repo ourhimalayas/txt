@@ -2,22 +2,42 @@
 ---
 
 
-## 国际奥委会委员警告参加北京冬奥会的运动员不要乱说话
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1746070/)
+## 党媒称：如美军阻止北京统一台湾，将受到猛烈攻击
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1746080/)
 
-#### 撰稿：彩虹
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-3-5.jpg)图片来源：以色列时报
-12月11日，根据《新闻极限》的报道内容，国际奥委会成员理查德·庞德（Richard Pound）告诉《时代周刊》，只要他们遵守中共国的法律，参加2022年北京冬奥会的运动员是可以自由表达自己意见的。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Untitled-15.png)
 
-这位奥委会委员的言论如此的荒唐和前后矛盾，以至于他自己都不得不进一步解释。他说：“这种情况下并不意味着你可以完全的为所欲为。所以，你知道，要小心你做的事情，因为你可能会被关注。”庞德继而表达了对运动员威胁的话语，他说，在过去，东道国“基本上”保护了运动员的自由。
 
-这位奥委会的资深会员，完全无视中共国是一个专制独裁的国家，罔顾中共“反人类罪”事实，将中共国的法律视为运动员应该遵守的红线，是何等的无知、无耻和用心险恶。
+ 
+图片来源: AFP
 
-**新闻来源**
 
-[Olympic Athletes Free to Express Opinions in Beijing, IOC Says](https://www.newsmax.com/newsfront/olympics-2022-winter-china/2021/12/11/id/1048264/)
+#### 整理报道 ：小红帽
+
+根据RT新闻12月11日报道，一家中国官方媒体警告华盛顿当局，如果美军试图阻止中国统一台湾，北京当局将毫不犹豫地打击美军。
+
+《环球时报》报道了美国国家安全顾问杰克·沙利文（Jake Sullivan）周二的声明，“美国‘将从威慑和外交的角度采取一切可以采取的行动’，以防止中国军事接管台湾”。
+
+美国国务卿安东尼·布林肯（Antony Blinken）当天也发出了同样的信息，他警告中国对台湾的军事行动将是一个“非常严重的错误”。
+
+然而，《环球时报》推测，沙利文的保证不应被解释为“美国政策的宣言”，因为“美国根本无法建立威慑力，阻止中国大陆在必要时以武力实现统一” 。华盛顿当局并没有真正“不惜一切代价保卫台湾的意愿”。
+
+文中指出，如果美军来救台湾，如果真的发生“武力统一”，美国军队将受到中国人民解放军的“猛烈攻击”。
+
+除非华盛顿当局说服台湾接受“一国两制”的概念，并与中国大陆“在和平统一的道路上”接触，否则“武力统一肯定会发生”。
+
+新闻来源：[Chinese state-run media says Beijing ready to use force against US — RT World News](https://www.rt.com/news/542900-china-military-scenario-taiwan-america/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

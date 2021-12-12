@@ -2,106 +2,118 @@
 ---
 
 
-## 中共一定会被踢出WTO SWIFT
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1746234/)
+## 【樱花深度报道】中共可能将核导弹走私到委内瑞拉以突袭美国（中）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1746260/)
 
-[https://gtv.org/video/id=61b4cf6987fa7e74c92ea222](https://gtv.org/video/id=61b4cf6987fa7e74c92ea222)
+编译：东京樱花团/Hopkins
 
-**郭文贵
-Miles Guo**
 
-连中石化的现在都是减半发工资了
-Even the wages of the China Petroleum and Chemical Corporation (Sinopec) are halved now
+```
+编者按：英国太阳在线网站12月10日最新报道，专家警告说，中共可能会通过集装箱将核导弹走私到南美港口，以对美国发动突然袭击。军事分析人士对据信是北京悄悄发展的集装箱导弹能力敲响了警钟。
+```
 
-中石化现在里面退休工资都减半发了
-Sinopec has halved retirement wages
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2-38.png)（图片说明）分析人士认为，中国航天公司发布的一段视频剧照展示了军事风格的技术
 
-（更）甭说是现在工作的了
-There is no need to mention the people that are working now
 
-他们没钱了
-They (The CCP) have no more money
 
-马上经济危机就将到来
-The economic crisis will come very soon
+```
+虽然美国和中共国之间的紧张局势仍然很严重——但没有迹象表明两国正面临一场迫在眉睫的战争，而且双方都在考虑先发制人。
+```
 
-你们看到这几天世界上有谁还说（不相信）
-You have already seen that who else in the world still does not believe it these days
 
-七哥几年前说的经济危机
-The economic crisis that Miles Guo said a few years ago
 
-就像我们2019
-Just like in 2019
+```
+费舍尔先生解释说，中共法律要求企业将他们的技术“军民两用”——因此解放军很可能已经在研究集装箱化 OS-M2 的军用版本。
+```
 
-我说我一定会把（北京）冬奥会给它灭掉一样
-I said I would definitely call off the (Beijing) Winter Olympics
 
-东弟当时你相信吗
-Brother Dong, did you believe it at that time?
 
-颖妹妹 是吧
-Right? Sister Ying
+```
+“即使是配备核弹头而不是卫星的版本，”专家补充说。
+```
 
-记住七哥说的
-Remember what I said
 
-我一定把它（中共）踢出WTO去
-I must kick it (the CCP) out of the World Trade Organization (WTO)
 
-我一定会让它（被）踢出SWIFT美元支付系统
-I will definitely let it (being) kicked out of the SWIFT dollar payment system
+```
+他将 OneSpace 的视频描述为“奇怪”，并表示它只显示了中共太空计划如何专注于军事技术。
+```
 
-然后世界经济危机一定会在今年年底到明年五月份以前来
-Then the world economic crisis will definitely come from the end of this year to May next year
 
-七哥说的连天数都不差
-There’ll be not even days difference from what I said
 
-就这过去的24小时
-Just the past 24 hours
+```
+这位专家补充说，这些集装箱导弹还可以用作反太空武器，从低轨道上打击天空中的卫星。
+```
 
-全世界70多个有影响力的经济专家说
-more than 70 influential economic experts around the world said that
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3-13.png)（图片说明）火箭被装载到货船上的集装箱中
 
-世界发生有史以来1929年以来最大
-there would be the largest occurrence in the world’s history since 1929
+![](https://assets.gnews.org/wp-content/uploads/2021/12/4-11.png)（图片说明）然后可以从船上发射导弹……
 
-2008年以来最大的经济危机，全球
-There would be the biggest economic crisis since 2008 globally
+![](https://assets.gnews.org/wp-content/uploads/2021/12/5-12.png)（图片说明）….或从陆地上的集装箱装在卡车上或装在火车上
 
-而且是5年到10年甚至更长时间的
-And it would be last 5 to 10 years and even longer
 
-由于通胀、通缩、供应和需求之间的巨大矛盾
-Due to the huge contradiction between inflation, deflation, supply and demand
 
-大家记住
-everyone remember that
+```
+范内尔上尉告诉《太阳报》在线：“当你看到火箭被装在集装箱里，可以装在火车、轮船和卡车上，你可以称之为‘军民两用’，但我不知道它的民用是什么。
+```
 
-可能真的钱就不是钱了
-it’s possible that the real money may not be the money anymore
 
-* * *
 
-Date: 12/09/2021
-原视频标题: 中共一定会被踢出WTO SWIFT
-The CCP Will Certainly be Kicked Out of WTO And SWIFT
-原视频日期：2021/12/08
-原视频链接: [https://gettr.com/post/pj7ur694a5](https://gettr.com/post/pj7ur694a5)
-任务编号：KC327(3165)
-视频时间段 : 0:00-1:18
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译：洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+```
+“每个人都知道卡纳维拉尔角在哪里——这是一个平民区。”
+```
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
+
+```
+他补充说：“火箭科学家并不没有意识到这只是中共应对非对称战争的另一种方式。
+```
+
+
+
+```
+“这不仅仅是‘军民两用’——它显然是一种不对称的军事威胁。”
+```
+
+
+
+```
+这位前情报官员将中共的集装箱导弹描述为一种“进攻性”武器，而不是“防御性”武器。
+```
+
+
+
+```
+他警告说，他们可能会携带装在屏蔽容器中的核武器以避免被发现。
+```
+
+
+
+```
+北京可以使用集装箱式武器来制造混乱——可能使用电磁脉冲弹头来摧毁电网。
+```
+
+
+
+```
+众所周知，中共正在积极发展其军事力量，并与美国抗衡——扩大其在世界各地的影响力，例如在非洲。
+```
+
+
+
+```
+导弹的模型首次出现在 2016 年的军火展上，此后一直有人猜测它们现在可能在中国武装部队服役。
+```
+
+
+作者：Henry Holloway，TARIQ TAHIR  Foreign News Reporter in London
+
+信息来源：
+
+[China could smuggle nuclear missiles hidden in shipping containers to Venezuela for surprise attack on US, experts warn](https://www.thesun.co.uk/news/16963561/china-smuggle-nuclear-missiles-venezuela/)
+
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

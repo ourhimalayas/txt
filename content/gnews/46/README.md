@@ -2,89 +2,54 @@
 ---
 
 
-## 视频| 中共高级特工-单伟建
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1745442/)
+## WHO/CDC承认全球Omicron病患症状轻微，零死亡
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1745451/)
 
-## 摘自2021.12.8郭先生大直播
+**作者**：香草山美食部-蓝天大海
 
-制作：香草山视频部
-
-
-
-你说到单伟建的时候 中国的大咖里边
-沈南鹏 马云 马化腾
-史玉柱 董文标 马明哲 柳传志
-就这样大佬级的 包括泛海卢志强
-你可以数出一堆的私营企业家
-你看单伟建
-是很少有在媒体上你能看到他说话的
-单伟建在海外的级别相当于在中国的正部级
-单伟建直接是给国家做事
-现任的国家常委直接汇报工作的
-别人是不能 你要敢点出来说
-你下边什么省委书记跟单伟建吃饭 啊
-哥们儿不错啊 咱们在海外的情报工作不错
-完了 这人绝对给免了
-你怎么知道他情报工作啊？
-所以你看他跟美国打交道
-耶伦 财政部 沃顿学院
-单伟建神秘到啥人物？
-一个电话拽过去跟王岐山见面 是吧？
-然后当时（跟）黄菊见面、锦涛见面
-那都是必须的 温家宝
-为啥呀？这是国家动作
-这不是你个人的问题了 就是“蓝金黄”的
-单伟建你看他这名
-他在当时深圳招商行
-叫深圳商业行 深商行竞争的时候
-必须让出他去
-批完以后都几十天了都给它改了
-一讲习近平就说“那个笨蛋”
-他在香港 你问问香港认识（他）的人
-当时习当了副主席2006年的时候
-他们所有的经常去盘古的
-你看到那人一上那去
-一说习问单伟建习咋样？
-这个笨蛋 他懂什么？他说
-小学文化 没有读书
-但是你看《60分钟》的采访
-他最后两句话说到点上了
-胆小的不敢去中国投资
-美国你觉得是美国人担心去中国投资
-还是中国担心美国呢？
-中国在美国钱多得多
-你根本没有资格挑战中国
-然后就告诉你
-去中国市场是你美国别无选择 两国只能好
-单伟建的基金号称450亿美元
-在英国几个上市公司也是几百亿美元
-说上市就上市 说下市就下市
-整个达沃斯
-马云带着十几个厨师行贿世界领导人
-单伟建去的时候 单伟建在密室相见
-马云还得到处带着钱带着厨师公关
-单伟建是密室相见
-沃顿学院 美联储 美财政部
-这种大磅 你去想想是什么概念？
-这是王岐山绝对的最最忠实的马仔
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-5-768x103-7.jpg)
 
 
 
-发稿：雪梨
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/M12.jpg)
+
+12月11日，据零对冲报道，美国疾病预防控制中心（CDC）主任罗谢尔·瓦伦斯基 (Rochelle Walensky)于12月10日下午证实，美国到目前为止只有一名病患因 Omicron 病毒住院，更没有人死于Omicron，而且迄今为止，在美国发现的所有此类病例的症状都非常轻微。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/walensky.png)
+
+CDC与媒体共享的数据显示，目前美国至少在22个州检测到了Omicron病毒。CDC在调查了其中43名感染者后，提交了一份报告称，感染者中有超过一半的患者是年轻人，年龄介于18到39岁之间，大约75%的人完全接种了疫苗，其中包括三分之一的人接受了加强针，6例之前曾感染过新冠病毒，三分之一的感染者最近曾在国际上旅行。
+
+世界卫生组织日前也承认，目前尚未收到Omicron病毒引起的死亡病例。
+
+如果这一切都是真的，为什么人们还要恐慌呢？
+
+参阅链接：
+
+[https://www.zerohedge.com/covid-19/only-1-american-has-been-hospitalized-omicron-variant-spreads-22-states](https://www.zerohedge.com/covid-19/only-1-american-has-been-hospitalized-omicron-variant-spreads-22-states)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/dec.jpg)
+
+***终审：飞虹***
+
+***校对/发稿：遍地开花***
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-5-768x103-8.jpg)
+
+
+
+
 
  
 

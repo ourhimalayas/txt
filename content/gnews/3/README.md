@@ -2,157 +2,114 @@
 ---
 
 
-## 【樱花深度报道】中共可能将核导弹走私到委内瑞拉以突袭美国（下）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1746289/)
+## 一个喜币 一百个躺平币 一百美元
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1746322/)
 
-编译：东京樱花团/Hopkins
+[https://gtv.org/video/id=61b4cff687fa7e74c92ea253](https://gtv.org/video/id=61b4cff687fa7e74c92ea253)
 
+**郭文贵
+Miles Guo**
 
-```
-编者按：英国太阳在线网站12月10日最新报道，专家警告说，中共可能会通过集装箱将核导弹走私到南美港口，以对美国发动突然袭击。军事分析人士对据信是北京悄悄发展的集装箱导弹能力敲响了警钟。
-```
+你怎么对待我们的父母
+How you had treated our parents
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-127.jpg)（图片说明）迄今为止，从集装箱船上发射导弹的唯一记录是以色列进行的一次试验的照片。
+我们就百倍万倍给你还过去
+We will return it back to you a hundred times ten thousand times
 
+咱们现在各农场开始行动
+Let’s start actions on each farm
 
+行动的前提是准备好当地的法律律师
+The premise of the actions is to get prepared with local legal team
 
-```
-美国官员认为，部署在较小集装箱中的武器是一种名为 YJ-18C 的先进反舰导弹，它是俄罗斯 Club-K 武器的一个版本。
-```
+肯定他们蓝金黄力量都会出手，骚扰、什么告状
+I’m sure that they (the CCP) will take actions by using their BGY powers i.e. harassment or complaints
 
+我们律师要出手
+Our lawyers need to take actions
 
+第二 钱没问题
+Secondly, money is not a problem
 
-```
-导弹可装入标准的 8 英尺宽、8.5 英尺高、20 英尺或 40 英尺长的标准集装箱中。
-```
+除法治基金、法治社会捐的钱
+Other than the money donated by the rule of law foundation and the rule of law society
 
+就花多少钱
+no matter how much it cost
 
+七哥来帮你筹
+I’ll help for the fundraising
 
-```
-据战略与国际研究中心称，该导弹的速度高达 3 马赫——是音速的三倍，即 2,300 英里/小时。
-```
+咱先拿10亿美元的预算出来
+Let’s take out a budget of $1 billion first
 
+然后咱们拿一亿个币出来
+and then take out 100 million coins
 
+再一个记住呀
+Remember
 
-```
-虽然不属于中共的高超音速导弹联盟，它的速度可以达到 10 马赫，但分析人士认为，它们仍然可以一拳毙命。
-```
+每个人到现场的
+Everyone who comes to the scene
 
+只要到现场的
+as long as they come to the scene
 
+当然得是登记好的
+of course, they have to register
 
-```
-阿姆斯特朗先生告诉太阳在线：“委内瑞拉和古巴都是这方面的关键，因为两者都受到广泛的武器禁运。
-```
+每天一百个躺平币
+one hundred Lay Flat and Earn Coins a day for them
 
+我不说躺平币未来会值多少钱
+I don’t say how much the Lay Flat and Earn Coins will be worth in the future
 
+但每天一人一个喜币100个躺平币
+But every day, one HCoin and 100 Lay Flat and Earn coins for every individual
 
-```
-“所以你在这里看到的情况是，各国无法进口他们想要的武器——但他们有这样做的手段和意愿。
-```
+记住，这是今天七哥给你承诺的
+Keep it in mind that this is what I promised you today
 
+然后每天不低于100美金的现金补助
+Then a cash subsidy of no less than $100 per day
 
+这是第三个
+This is the third
 
-```
-“无论是手段还是意愿，都有机会走私。其极有可能的集装箱武器将运往南美洲。”
-```
+不低于100美金（补助）
+Not less than $100 dollars subsidy
 
+100个躺平币一个喜币
+100 Lay Flat and Earn Coins and one HCoin
 
+然后所有的涉及到住宿、交通、纸张（等）所有成本
+Then all the costs related to accommodation, transportation, cost of banners (etc.)
 
-```
-然而，这位专家补充说，他怀疑它们会被用于进攻——对这些武器进行伪装然后开展打击。
-```
+所有的吃饭全部实报实销
+and all meals are reimbursable and will be paid for
 
+不相信共产党还能花得起这个钱（应对我们）
+I don’t believe that the Communist Party can afford this money (to against us)
 
+* * *
 
-```
-“如果这种能力得到证实，它将需要对所有开往美国港口的悬挂中共国旗的商船实行全新的筛查制度，”法内尔说。
-```
-
-
-
-```
-斯托克顿国际法中心的一项研究警告说，这些武器可能违反海军法。
-```
-
-
-
-```
-斯托克顿中心的研究得出结论，在民用船只上秘密装载武器可能违反国际法。
-```
-
-
-
-```
-它写道：“不遵守武装冲突法，秘密将商船纳入中国的作战/维持战争的努力会危及平民海员，并使所有可能在敌对地区作业的民用船只处于危险之中。”
-```
-
-
-
-```
-随着世界试图从病毒大流行中恢复过来，中共被认为直接挑战西方的地位。
-```
-
-
-
-```
-北京正在采取行动，在非洲西海岸建立一系列新的海军基地，以在大西洋建立立足点。
-```
-
-
-
-```
-该国第一个海外海军基地多年前在非洲之角的吉布提建成，并且正在稳步增加其容量。
-```
-
-
-
-```
-一段时间以来，许多人认为中共正在努力在坦桑尼亚建立一个海军基地，坦桑尼亚位于非洲东海岸，与北京有着长期牢固的军事关系。
-```
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-45.jpg)（图片说明）一艘以色列集装箱船正在发射一枚类似的导弹
-
-
-
-```
-与此同时，中共也被视为在全球军备竞赛的下一阶段处于领先地位，因为它在世界各地发射了具有核武器能力的导弹。
-```
-
-
-
-```
-高超音速导弹改变了游戏规则，因为与弹道导弹不同，弹道导弹在返回陡峭的轨迹之前先飞入太空，它们放大较低高度的目标。
-```
-
-
-
-```
-中共，紧随其后的是俄罗斯，已经被认为拥有最强大的高超音速导弹武器库，向其投入数十亿美元，但其他国家正在迎头赶上。
-```
-
-
-
-```
-但是，他们在 8 月份进行导弹试验的令人震惊的揭露让西方情报部门感到震惊，他们担心他们实际上低估了北京。
-```
-
-
-
-```
-据报道，在中共向太空发射了一枚载有高超音速滑翔飞行器的火箭后，美国情报和军事官员惊呆了，该飞行器在加速飞向目标之前环绕地球一周。
-```
-
-
-作者：Henry Holloway，TARIQ TAHIR  Foreign News Reporter in London
-
-信息来源：
-
-[China could smuggle nuclear missiles hidden in shipping containers to Venezuela for surprise attack on US, experts warn](https://www.thesun.co.uk/news/16963561/china-smuggle-nuclear-missiles-venezuela/)
-
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
-
+Date: 12/09/2021
+原视频标题: 一个喜币 一百个躺平币 一百美元
+1 Hcoin, 100 Flat coins, and 100 Dollars
+原视频日期：2021/12/08
+原视频链接: [https://gettr.com/post/pj7gl1cac8](https://gettr.com/post/pj7gl1cac8)
+任务编号：KC328(3166)
+视频时间段 : 0:00-1:18
+英听校：洛杉矶盘古农场 – 郭班之樱
+翻译：洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

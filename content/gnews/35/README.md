@@ -2,35 +2,20 @@
 ---
 
 
-## 日本将不会派内阁官员出席北京冬奥会 正式公布将安排在年后
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1745716/)
+## 秘翻在线：又一个！曼联球员林德洛夫比赛中突然胸痛和心脏不适
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1745935/)
 
-撰稿：日本方舟农场-Andy5
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-6.png)
-据日本媒体12月11日报道，日本政府坚持不向北京冬奥会派出内阁官员的方针。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-607.png)
-继美国等国因为中共的新疆、香港等人权问题，用外交手段抵制北京冬奥会，并且日本自民党内部也出现前首相安倍晋三、政调会长高市早苗发出警告后，日本政府内部官员透露，将在明年开年后立即公布这一方针。
+#### 翻译/撰稿：zzballack
 
-还有消息称，日本将派出非本届内阁成员的2020年东京奥委会主席桥本圣子出席，以这种在政治层面上跟随欧美，同时又不彻底跟中共翻脸的方式，来达成岸田首相之前所说的将最大程度维护日本国利益的目标。
+#### 校对：白夜
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-609.png)   图片来源：每日邮报
+据《网关专家》（Gateway Pundit）12月11日报道，在英国时间12月11日晚间进行的诺维奇对阵曼联的英超比赛中，曼联后卫维克托·林德洛夫 (Victor Lindelöf)在比赛进行到第70分钟时，在一次对抗后突然感觉胸口疼痛，而且心率过快、呼吸困难，在经队医检查后不得不提前提前离场。
 
-链接：[20211211日本ANN新聞](https://www.gettr.com/post/pjd5i2312c)
+曼联队的门将大卫·德赫亚（David de Gea）表示：“当我看到林德洛夫突然呼吸困难时，不禁想起了克里斯蒂安·埃里克森（Christian Eriksen）和塞尔希奥·阿圭罗（Sergio Agüero），这种情况真的很让人担心，生命安全第一，我希望他没事。”丹麦球员埃里克森在今夏的欧洲杯比赛中，因心脏骤停晕倒在球场上，之后被送往医院抢救。而巴塞罗那前锋阿圭罗在11月8日的比赛中，也是在一次对抗后突然胸口不适，被迫提前下场。阿圭罗在随后的体检中被查出心律失常，这类心脏病非常危险，可能导致他提前退役。
 
+林德洛夫的情况不是少数个例，自新冠疫苗开始推广以来，越来越多运动员突然晕倒或心脏骤停，有些人甚至死亡。已有许多人开始关注这一反常现象，怀疑其是否与疫苗有关。无奈审查与疫苗有关言论的网络太过森严，这些声音立即就被拦截或删除，鼓吹疫苗接种的声音仍占据主流。正如文贵先生所说，当明年5月疫苗灾难开始爆发时，随着人们逐渐看清疫苗真相，全球才会觉醒，共同应对人类这一史无前例的危机。
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-4.png)
-
-总编：飞虹
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-6.png)
-
+新闻来源：[Another One… Manchester United Player Stops Play, Leaves Game Early with Reported Chest Pains](https://www.thegatewaypundit.com/2021/12/another-one-manchester-united-player-stops-play-leaves-game-early-reported-chest-pains/?utm_source=add2any&amp;utm_medium=PostBottomSharingButtons&amp;utm_campaign=websitesharingbuttons)
 
  
 
