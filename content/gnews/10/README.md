@@ -2,104 +2,118 @@
 ---
 
 
-## 单伟建一家是典型的中国共产党对外情报机构的特务
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1746389/)
+## 最高级别送葬共产党
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1746461/)
 
-[https://gtv.org/video/id=61b4d09587fa7e74c92ea283](https://gtv.org/video/id=61b4d09587fa7e74c92ea283)
+[https://gtv.org/video/id=61b4d1cc87fa7e74c92ea2ea](https://gtv.org/video/id=61b4d1cc87fa7e74c92ea2ea)
 
-**郭文贵
-Miles Guo**
+大家看到这个了
+Todos vieron esto
 
-外交部的王子、王孙、私生子女
-sons, grandsons, and illegitimate children of the people in the Ministry of Foreign Affairs
+咱们这个是个草率的
+Lo nuestro es un poco riguroso
 
-你像单伟建就是外交部的老人, 他妈他爸那都是跟杨洁篪是超级好
-like Shan Weijian, he has deep roots in the Ministry of Foreign Affairs, his mother and his father have super good friendship with Yang Jieshi
+谢谢Qmay, 墨镜先生, 小白, Rain
+Gracias a Qmay, Señor Mojing, Xiaobai y Rain
 
-单伟建是共产党, 外交部就是中国对外的情报机构，这是一点都不用怀疑的吧
-Shan Weijian is a the Communist Party member, and the Ministry of Foreign Affairs is China’s foreign intelligence agency, there is no doubt about it at all
+这个你们做的非常非常非常棒
+Lo hicieron muy bien
 
-单伟建是在当时下放后回来，是经中央和当时林强、林弟这一波人回来的, 是周恩来亲自(安排)
-Shan Weijian came back after being exiled at that time，he came back through the Central Committee that Zhou Enlai arranged himself with Lin Qiang and Lin Di at same time
+我们要做的事情一定要是
+Lo que vamos a hacer debe ser
 
-那个林强、林弟一个是安全部，一个是公安部一局, 林弟跟他很熟
-Lin Qiang and Lin Di, one belong to the Ministry of Security and the other one belong to the First Bureau of the Ministry of Public Security and Lin Di knew Shan Weijian very well
+咱做这事儿
+Nosotros hacemos esto
 
-单伟建这一家子是典型的特务, 所谓太平联盟公司，目的就是干你七哥来了
-Shan Weijian’s family is a typical spy family, the so-called PAG whose purpose is go after me Miles
+咱把它这个他们的丧事儿, 给它变成共产党有史来最高级的
+Hagamos que sea su funeral y que sea el más alto nivel en la historia del Partido Comunista 
+所有制造的棺材都是要特殊材料
+Todos los ataúdes fabricados estarán hechos de materiales especiales
 
-就像在盘古，这些警察在现场的时候告诉他说
-Just like these policemen threatened us at the scene in Pangu, said
+花圈都是特殊材料
+Las coronas son todos de materiales especiales
 
-我会让你们郭文贵在纽约失去他的房子，我会让郭文贵在世界失去他的房子
-that I will let yours Guo Wengui (Miles) lose his house in New York, I will let Guo Wengui (Miles) lose his house in the world
+甚至用这个碳纤维carbon fiber都行
+Incluso se puede usar esta fibra de carbono o fibra
 
-我会让郭文贵所有的家人睡在马路上，他毫不忌讳警察、法官
-I will let all Guo Wengui (Miles)’s family sleep on the street, the policemen and judges are not shy away about this attacks
+要做的精美细化
+Debe hacerlo exquisitamente refinado
 
-你看到单伟建说到西方干什么, 美联储、美财政部、美国体育界
-You see what Shan Weijian is doing in the West, he hooked up with the U.S. Federal Reserve, the U.S. Treasury, the U.S. sports world
+要用的音乐喇叭在(中共的)各国大使馆响起来的时候
+Cuando suene la música a través del parlante en las embajadas (PCCh) de varios países
 
-你看他跟谁，所有的美国体育界NBA被谁买了，蔡崇信
-Look at who he is with, Joseph C. Tsai who bought NBA team
+要达到了这个世界专家音乐水平的
+Debe alcanzar el nivel experto mundial en música
 
-蔡崇信是中共在美国最大的特务，蔡崇信又买了洋基
-Joseph C. Tsai is the largest CCP agent in the United States, Joseph C. Tsai also bought NBA Net
+比七哥唱H-coin to the moon还要厉害
+Y más poderoso que la canción que canté de H-coin to the moon
 
-蔡崇信又代表马云花了几十亿美元买了曼哈顿无数个房子
-Joseph C. Tsai also spent billions of dollars on behalf of Jack Ma to buy countless apartments in Manhattan
+叫他们的家人, 他们的妈听到以后都直接想进天堂
+Para que su familia y sus madres luego que la escuchen quieran entrar de una vez al paraíso
 
-蔡崇信 马云，然后单伟建、Bruno Wu
-Joseph C. Tsai, Ma Yun, then Shan Weijian, Bruno Wu
+非死不可的那种的
+Del tipo que debe morir sí o sí
 
-单伟建借给吴征这些东西，这5亿美元
-Shan Weijian lent Bruno Wu 500 million US dollars
+这音乐听得他非死不可
+Debe morir sí o sí escuchando esta música
 
-海航最大投资者，腾讯音乐100%
-He’s HNA’s largest investor, Tencent Music 100%
+让习近平, 彭丽媛他们可以听不见
+Xi Jinping y Peng Liyuan pueden no escucharla
 
-然后告美国七哥官司打最多的钱的超过6000万美元到8000万美元的律师费的，就一个单伟建
-Then he sued me in the United States for the most money in lawsuits of over US$60 million to US$80 million in attorney fees, just only Shan Weijian himself
+只要他们听见, 他们就想死
+Y si la escuchan, querrán morir
 
-这不符合任何逻辑，你看看单伟建跟谁呢
-This doesn’t make any sense, look at who Shan Weijian is with
+让王岐山, 姚明珊叫他们听见, 他们就想死
+También a Wang Qishan y Yaomingshan
 
-平安的马明哲，特别是康典，王岐山的大马仔
-PingAn’s Ma Mingzhe, especially Kang Dian, Wang Qishan’s big helper
+他有他母亲齐心
+Tiene a su madre Qi Xin
 
-绝对是中国整个保险业的老大，王岐山的大马仔
-They are definitely the boss of China’s entire insurance industry, Wang Qishan’s big helper
+他有习仲勋
+Tiene a Xi Zhongxun
 
-然后周亮，大家都记住了吧，看着没有
-Then Zhou Liang, everyone remember it, don’t you see this?
+我让他母亲齐心知道
+Voy a hacer saber a su madre Qi Xin
 
-马明哲，然后腾讯，是不是，马化腾，全部是他的人，包括SOHO的张欣
-Ma Mingzhe, then Tencent’s Ma Huateng, right? all his people, including SOHO’s Zhang Xin
+你儿子对待别人的父母的感觉是什么样子
+Cómo trata su hijo hacia los padres de otros
 
-张欣跟单伟建那是男女关系，那是胡来的关系
-Zhang Xin and Shan Weijian do have special relationship beyond their own Martial relationship, it’s a unusual relationship
+你们一定要做到绝
+Ustedes deben hacerlo de manera absoluta
 
-潘石亿绝对是一看张欣和单伟建见面，自己要躲一边去，看门去了
-When Pan Shiyi saw Zhang Xin and Shan Weijian meet, he went to hide away and watched the surroundings
+要不就别做
+O sino no lo hagan
 
-就跟那个张高丽老婆一样
-Just like Zhang Gaoli’s wife
+要做就做到绝
+Y si lo hacen debe ser despiadadamente
+
+我让所有驻海外的中共的大使馆的官员
+Voy a dejar que todos los funcionarios de la embajada del PCCh en el extranjero
+
+我让他们知道
+Voy a hacerlos saber
+
+你们的父母一定不会老死
+Sus padres no morirán de manera natural
+
+一定会被装在这个新中国联邦给准备的棺材里边去
+Se empaquetará en un ataúd preparado por el Nuevo Estado Federal de China
 
 * * *
 
-Date:12/10/2021
-原视频标题: 单伟建一家是典型的中国共产党对外情报机构的特务
-Shan Weijian’s family is a typical special agent of the Chinese Communist Party’s foreign intelligence agency
-原视频日期：2021/12/08
-原视频链接[https://gettr.com/post/pja934f93e](https://gettr.com/post/pja934f93e)
-任务编号：KC329（3174）
-视频时间段 : 0:00-2:02
-中听校： 洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+日期：12/11/2021
+原视频标题：最高级别送葬共产党
+El funeral del Partido Comunista al más alto nivel
+原视频日期：12/09/2021
+原视频网址：**[https://gettr.com/post/pj7lri2975](https://gettr.com/post/pj7lri2975)**
+任务编号：KC330(3162)
+视频时间段：0:00-1:43
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
 审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
+发布 ：洛杉矶盘古农场 – 恩典
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

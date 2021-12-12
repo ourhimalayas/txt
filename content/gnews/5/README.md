@@ -2,122 +2,53 @@
 ---
 
 
-## 最高级别送葬共产党
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1746461/)
+## 日本深层观察系列之四：由郭先生直播所说的“今后主要的能源是电力”，看日本能源界最大收购案
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1746536/)
 
-[https://gtv.org/video/id=61b4d1cc87fa7e74c92ea2ea](https://gtv.org/video/id=61b4d1cc87fa7e74c92ea2ea)
+撰稿：东京樱花团/华夏小哥
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2-46.jpg)
+图片来源于网络
 
-大家看到这个了
-Todos vieron esto
+郭文贵先生在最近的直播中不止一次谈到**未来的社会就是电力能源的社会，电动汽车也将会是未来主要的出行方式。**
 
-咱们这个是个草率的
-Lo nuestro es un poco riguroso
+身在日本的笔者不禁注意到最近日本企业界发生的一次巨大并购案。
 
-谢谢Qmay, 墨镜先生, 小白, Rain
-Gracias a Qmay, Señor Mojing, Xiaobai y Rain
+ENEOSHoldings10月11日宣布，将收购可再生能源初创公司日本可再生能源（JRE）。收购价格为2000亿日元。从JRE的母公司高盛集团和新加坡政府投资公司(GIC)收购所有股份。将可再生能源业务发展成为新的盈利支柱。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-623.png)
+这是日本大型石油批发商对可再生新能源公司的首次重大收购。ENEOS将收购JRE在日本和海外拥有60座可再生能源发电厂，作为正式扩大可再生能源业务的垫脚石。10月11日与高盛等就股份转让达成基本协议。股权转让计划于2022年1月下旬左右进行。
 
-这个你们做的非常非常非常棒
-Lo hicieron muy bien
+JRE是一家成立于2012年的初创公司。截至2008年12月的财政年度的合并销售额为224亿日元，最终亏损为9.12亿日元。合并后的净资产为397亿日元，购买价格减去净资产后的商誉为1603亿日元。那么ENEOSHD在JRE中发现了什么价值呢？
 
-我们要做的事情一定要是
-Lo que vamos a hacer debe ser
+JRE已经在运营一个总输出功率约为42万千瓦的可再生能源发电厂，包括太阳能、陆上风能和生物能。包括在建的发电厂JRE拥有约88万千瓦的可再生能源发电厂。此外，JRE正在参与秋田、长崎和北海道的海上风力发电项目，政府将其视为“脱碳王牌”。
 
-咱做这事儿
-Nosotros hacemos esto
+另一方面，ENEOSHD拥有的可再生能源发电厂只有约13万千瓦。在能源行业，包括电力、燃气、综合贸易公司，ENEOSHD在可再生能源的发展上已经远远落后，一位能源业内人士表示，“ENEOSHD对收购可再生能源企业相当焦急。”
 
-咱把它这个他们的丧事儿, 给它变成共产党有史来最高级的
-Hagamos que sea su funeral y que sea el más alto nivel en la historia del Partido Comunista 
-所有制造的棺材都是要特殊材料
-Todos los ataúdes fabricados estarán hechos de materiales especiales
+可以说，ENEOSHD之所以决定以2000亿日元大规模收购JRE，是因为渴望获得可再生能源以实现脱碳。运营子公司ENEOS的常务执行官井上啓太先生在一次在线新闻发布会上表示，“这是一个彻底改变业务结构的机会，而且争取时间（发展可再生能源业务）也很有意义。”
 
-花圈都是特殊材料
-Las coronas son todos de materiales especiales
+井上先生解释说，2000亿日元的巨额收购金额是“**根据JRE的现有资产和未来价值**计算出来的”。同时“买到了时间（发展可再生能源业务）对我们也很有意义，”他说，JRE成立以来，已经积累了大约10年的经验，拥有专业知识和人力资源，很有发展潜力。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-624.png)
+JRE的海上风电是井上先生指出的“未来价值”的主轴。虽然海上风电的建设和运营成本高达数千亿日元，但它有可能在数十年内超越成本。
 
-甚至用这个碳纤维carbon fiber都行
-Incluso se puede usar esta fibra de carbono o fibra
+通过收购JRE，ENEOS强调：“我们的目标是成为日本领先的可再生能源公司。”在截至2023年3月财政年度的中期经营计划中，公司制定了在8,600亿日元的战略投资限额中向脱碳相关事项投资4,000亿日元的政策。我们已经决定参与美国和澳大利亚的太阳能发电和台湾的海上风电等海外业务。井上先生表示，“我们计划在未来（认真地）通过结合JRE技术向海外扩张”。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-625.png)
+事实上，丰田汽车集团和日本电报电话（NTT）集团等对脱碳不太感冒的传统公司也积极参与了此次大规模收购。
 
-要做的精美细化
-Debe hacerlo exquisitamente refinado
+1888年创业拥有133年历史的老牌企业，以2000亿日元收购一家年销售额只有36亿日元初创公司的并购行为，看似疯狂，实际上可以看出ENEOS非常急切地想要转型，摆脱传统能源企业的经营模式。与此同时在可以预见的未来，丰田汽车等传统品牌也肯定会拼命转向电动汽车，因为这是世界潮流。
 
-要用的音乐喇叭在(中共的)各国大使馆响起来的时候
-Cuando suene la música a través del parlante en las embajadas (PCCh) de varios países
+笔者认为，日本的这些传统企业应该有更高的视野，从历史发展的潮流中抓住机遇和新中国联邦及早合作，因为在未来几年新中国联邦将会涌现无数专业人才，**拥有喜联储的资金实力和高端人才的新中国联邦才是日本企业的未来之路。**
 
-要达到了这个世界专家音乐水平的
-Debe alcanzar el nivel experto mundial en música
+参考资料
 
-比七哥唱H-coin to the moon还要厉害
-Y más poderoso que la canción que canté de H-coin to the moon
+1.[https://ja.m.wikipedia.org/wiki/ENEOS](https://ja.m.wikipedia.org/wiki/ENEOS)
 
-叫他们的家人, 他们的妈听到以后都直接想进天堂
-Para que su familia y sus madres luego que la escuchen quieran entrar de una vez al paraíso
+2.[ENEOS、新興再エネ買収を発表　2000億円で](https://www.nikkei.com/article/DGXZQOUC113QP0R11C21A0000000/)
 
-非死不可的那种的
-Del tipo que debe morir sí o sí
+3.[https://www.jre.co.jp/](https://www.jre.co.jp/)
 
-这音乐听得他非死不可
-Debe morir sí o sí escuchando esta música
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
 
-让习近平, 彭丽媛他们可以听不见
-Xi Jinping y Peng Liyuan pueden no escucharla
-
-只要他们听见, 他们就想死
-Y si la escuchan, querrán morir
-
-让王岐山, 姚明珊叫他们听见, 他们就想死
-También a Wang Qishan y Yaomingshan
-
-他有他母亲齐心
-Tiene a su madre Qi Xin
-
-他有习仲勋
-Tiene a Xi Zhongxun
-
-我让他母亲齐心知道
-Voy a hacer saber a su madre Qi Xin
-
-你儿子对待别人的父母的感觉是什么样子
-Cómo trata su hijo hacia los padres de otros
-
-你们一定要做到绝
-Ustedes deben hacerlo de manera absoluta
-
-要不就别做
-O sino no lo hagan
-
-要做就做到绝
-Y si lo hacen debe ser despiadadamente
-
-我让所有驻海外的中共的大使馆的官员
-Voy a dejar que todos los funcionarios de la embajada del PCCh en el extranjero
-
-我让他们知道
-Voy a hacerlos saber
-
-你们的父母一定不会老死
-Sus padres no morirán de manera natural
-
-一定会被装在这个新中国联邦给准备的棺材里边去
-Se empaquetará en un ataúd preparado por el Nuevo Estado Federal de China
-
-* * *
-
-日期：12/11/2021
-原视频标题：最高级别送葬共产党
-El funeral del Partido Comunista al más alto nivel
-原视频日期：12/09/2021
-原视频网址：**[https://gettr.com/post/pj7lri2975](https://gettr.com/post/pj7lri2975)**
-任务编号：KC330(3162)
-视频时间段：0:00-1:43
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 ：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

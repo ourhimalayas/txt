@@ -15,92 +15,92 @@
 
 ---
 
-### [12/11/2021国内经济财经周报：楼市天雷滚滚，降准杯水车薪](/content/gnews/1/README.md)
+### [强迫疫苗灾难真人真事](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [打疫苗真人真事之一](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [西班牙政府将决定是否与欧洲伙伴一起对中共国冬奥会进行外交抵制](/content/gnews/3/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [为什么CNN发表了攻击副总统卡马拉·哈里斯的文章（一）](/content/gnews/4/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [日本深层观察系列之四：由郭先生直播所说的“今后主要的能源是电力”，看日本能源界最大收购案](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [12/11/2021国内经济财经周报：楼市天雷滚滚，降准杯水车薪](/content/gnews/6/README.md)
  ` 秘密翻译组金融团队`
 
-### [中共钟南山谈奥密克戎为强制疫苗背书](/content/gnews/2/README.md)
+### [中共钟南山谈奥密克戎为强制疫苗背书](/content/gnews/7/README.md)
  ` 儒为`
 
-### [大直播后记——文贵先生谈修养和品味（一）](/content/gnews/3/README.md)
+### [大直播后记——文贵先生谈修养和品味（一）](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [法国驻华使馆微博发文谴责中共侵犯人权](/content/gnews/4/README.md)
+### [法国驻华使馆微博发文谴责中共侵犯人权](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [最高级别送葬共产党](/content/gnews/5/README.md)
+### [最高级别送葬共产党](/content/gnews/10/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [奥林匹克峰会：北京将 “马克思新时代冬奥会”推向国际](/content/gnews/6/README.md)
+### [奥林匹克峰会：北京将 “马克思新时代冬奥会”推向国际](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [厄瓜多尔前总统：起诉阿桑奇是一场完全的骗局](/content/gnews/7/README.md)
+### [厄瓜多尔前总统：起诉阿桑奇是一场完全的骗局](/content/gnews/12/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国联俄抗共 共产党必死无疑](/content/gnews/8/README.md)
+### [美国联俄抗共 共产党必死无疑](/content/gnews/13/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [震惊！澳免疫专家组披露其从未建议实施有争议的疫苗强制措施](/content/gnews/9/README.md)
+### [震惊！澳免疫专家组披露其从未建议实施有争议的疫苗强制措施](/content/gnews/14/README.md)
  ` 墨尔本雅典娜农场`
 
-### [单伟建一家是典型的中国共产党对外情报机构的特务](/content/gnews/10/README.md)
+### [单伟建一家是典型的中国共产党对外情报机构的特务](/content/gnews/15/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [铁饭碗生锈，公务员大减薪社会失业严重](/content/gnews/11/README.md)
+### [铁饭碗生锈，公务员大减薪社会失业严重](/content/gnews/16/README.md)
  ` 澳喜特战旅Gnews`
 
-### [英权威研究数据证实：接种疫苗者占病毒感染案例大多数 《每日揭露》详述疫苗护照不起作用四个理由](/content/gnews/12/README.md)
+### [英权威研究数据证实：接种疫苗者占病毒感染案例大多数 《每日揭露》详述疫苗护照不起作用四个理由](/content/gnews/17/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [中共公开以病毒威胁日本和印度放弃抵制北京冬奥会](/content/gnews/13/README.md)
+### [中共公开以病毒威胁日本和印度放弃抵制北京冬奥会](/content/gnews/18/README.md)
  ` 澳喜特战旅Gnews`
 
-### [英国年底 Omicron变体病毒确数目数或突破百万](/content/gnews/14/README.md)
+### [英国年底 Omicron变体病毒确数目数或突破百万](/content/gnews/19/README.md)
  ` 澳喜特战旅Gnews`
 
-### [澳大利亚加强针注射等待周期缩短至五个月](/content/gnews/15/README.md)
+### [澳大利亚加强针注射等待周期缩短至五个月](/content/gnews/20/README.md)
  ` 澳喜特战旅Gnews`
 
-### [一个喜币 一百个躺平币 一百美元](/content/gnews/16/README.md)
+### [一个喜币 一百个躺平币 一百美元](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [二十年未兑现承诺！ 中共将被踢出世贸组织](/content/gnews/17/README.md)
+### [二十年未兑现承诺！ 中共将被踢出世贸组织](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美澳日资助太平洋国家建海底电缆，以遏制中共渗透](/content/gnews/18/README.md)
+### [美澳日资助太平洋国家建海底电缆，以遏制中共渗透](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【樱花深度报道】中共可能将核导弹走私到委内瑞拉以突袭美国（下）](/content/gnews/19/README.md)
+### [【樱花深度报道】中共可能将核导弹走私到委内瑞拉以突袭美国（下）](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国央行降准放水意在何为](/content/gnews/20/README.md)
- ` 澳喜特战旅Gnews`
-
-### [北京冬奥会遭全球抵制 中共邀请联合国秘书长“找面子”](/content/gnews/21/README.md)
+### [北京冬奥会遭全球抵制 中共邀请联合国秘书长“找面子”](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【樱花深度报道】中共可能将核导弹走私到委内瑞拉以突袭美国（中）](/content/gnews/22/README.md)
+### [【樱花深度报道】中共可能将核导弹走私到委内瑞拉以突袭美国（中）](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【樱花深度报道】中共可能将核导弹走私到委内瑞拉以突袭美国（上）](/content/gnews/23/README.md)
+### [【樱花深度报道】中共可能将核导弹走私到委内瑞拉以突袭美国（上）](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [“战狼”丛培武威胁加拿大：禁止华为后果严重](/content/gnews/24/README.md)
+### [“战狼”丛培武威胁加拿大：禁止华为后果严重](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共一定会被踢出WTO SWIFT](/content/gnews/25/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [成千上万澳大利亚人上街抗议强制接种中共病毒疫苗](/content/gnews/26/README.md)
+### [成千上万澳大利亚人上街抗议强制接种中共病毒疫苗](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [中共国住宅库存创五年新高](/content/gnews/27/README.md)
- ` 澳喜特战旅Gnews`
-
-### [文雍漫谈：天良丧尽是统治者的通行证 礼义廉耻是穷苦人的墓志铭](/content/gnews/28/README.md)
- ` 文雍`
-
-### [中共交警直播查酒驾“翻车”，曝出包庇酒驾者](/content/gnews/29/README.md)
- ` 澳喜农场`
 
 ### [一名与中共勾兑的世卫组织新冠病毒溯源小组成员消失](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`

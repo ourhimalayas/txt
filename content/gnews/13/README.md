@@ -2,33 +2,109 @@
 ---
 
 
-## 中共公开以病毒威胁日本和印度放弃抵制北京冬奥会
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1746334/)
+## 美国联俄抗共 共产党必死无疑
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1746423/)
 
-撰稿：Angelsky
+[https://gtv.org/video/id=61b4d14187fa7e74c92ea2c0](https://gtv.org/video/id=61b4d14187fa7e74c92ea2c0)
 
-撰稿：Angelsky
+**郭文贵
+Miles Guo**
 
-病毒真相最新消息：中共对世界各国抵制北京冬奥会恐惧之极，竟然公开威胁日本、印度：若敢加入美国抵制北京冬奥会的行列，则两国将很难预防民众病毒的感染状况。
+现在俄罗斯跟美国的勾兑以后，共产党的时间已经倒数了
+Now after Russia’s collusion with the United States, the Communist Party’s time is counting down
 
-该消息是郭文贵先生在2021年12月10日在新中国联邦文贵大直播中爆料。郭先生说，中共一厢情愿的策略是与俄罗斯结成联盟，中共取台湾，俄罗斯取乌克兰，然后让日本跪下。而目前北京奥运会是其制造万邦来朝大国气势的关键，鉴于奥运会近日遭各国抵制，中共就将枪口瞄准了他的邻居日本和印度。
+它唯一的所谓的仗势，还是狗仗人势啊，还是虚假之势啊
+It’s only so-called fighting power, it’s still doomed, or it’s falsehood
 
-中共竟然私下对印度说，如果你敢在抵制冬奥会上高调发声，我会让你们在喜马拉雅山周围感受到无法想象的冬天的到来甚至更多病毒的传染，说的直截了当。印度人不明白什么意思，中共更加露骨的解释，我们如果不帮你们防毒，你们的病毒就会越来越多。几乎是在肆无忌惮的告诉印度，我中共就是放毒者，把印度吓到腿软。对日本更是几乎明说，中共问日本，你们现在病毒防治的还不错是吧，知道明年会有什么病毒吗？如果你敢公开抵制北京冬奥会，日本的病毒可能就控制不了啦！我们可是友邦啊，受害的可能是你日本！一副赤裸裸的魔鬼嘴脸！
+俄罗斯已经转战整个东亚
+Russia has shift focus to all of East Asia
 
-郭先生说，中共对于自己的放毒、疫苗、召开冬奥会一系列决定，包括中共国对世界房地产经济的万亿违约，他们很清楚会导致世界经济崩溃。他们至今贼心不死，竟然相信自己冬奥会可以顺利召开。最荒唐的是，中共外交部公开宣称，不欢迎外国来宾参观其冬奥会，只允许各国运动员参加，但绝对不允许运动员之外的人进来。即记者、媒体等一概拒绝进入中共国。之所以如此荒唐，是因为其非常恐惧病毒的真相被随着冬奥会进来的良心媒体人公诸于世。
+最近跟缅甸、柬埔寨都签署了军事基地合约
+It recently signed military base contracts with Myanmar and Cambodia
 
-郭先生说，这是何等的嚣张狂妄，比当年的希特勒、前苏联狂妄多了！而中共之所以一次次的如此疯狂，就在于各国无良政客与中共的勾兑。郭先生举例说，美国众议院各派政党高度共识、一天之内公布了三个关于制裁中共对新疆维吾尔族实施种族灭绝的人权保护、产品法案等三个法案，但白宫却试图阻止其尽可能不成为美国的法律，唯有不成为正式法律，白宫的无良政客们才可以再与中共勾兑，这是很大的事儿！
+重返东亚，美国已经默许
+the United States has acquiesced that Russia returns to East Asia
 
-再有，联合国最早、也一定会表态参加北京冬奥会，因为联合国想从中共那里拿钱；而早已被中共买通的世界卫生组织也一定会去，他们要证明病毒不来自于中共。大家一定要记住，只要北京冬奥会开成功，中共必然宣布病毒不来自于中共，病毒不是中共的生化武器。这是中共最最核心的目的，这是最狼子野心的。
+越南整个的叫什么梁湾(金兰湾)军事基地重新恢复，美国都可能让给它
+The entire Cam Ranh Bay military base in Vietnam has been restored, and the U. S. may let them have it
 
-那么中共最终会怎么样？郭先生的也给出了答案。他说，中共梦想一箭三雕，一是北京冬奥会成功为中共创造万邦来朝之后，将整个病毒来源地模糊化、去中共化；二是开完冬奥会之后打台湾，将经济灾难再次扔给西方各国；第三，中共将人民币数字化，完成后就是中共把货币去美化、人民币国际化的一场绝对的战略成功。如果国际上对中共这个狼子野心没有看透，那就绝对不知道中共有多黑、多傲慢、多无知！
+就把亚洲让给俄罗斯比让给中共强
+It’s better to give Asia to Russia than to CCP
 
-郭先生说到这里，话锋一转，接着说，但是，我们都要看到一个事实，中共的这种无知、狂妄，已经到了让我们新中国联邦跳舞庆祝的阶段了，他们不走上这一阶段，我们没有机会灭共！
+现在俄罗斯已经在南海的采油已经超过了给中共供油的一倍
+Russia’s oil extraction in the South China Sea has now more doubled than its oil supply to the CCP
 
-小编想起一句名言：上帝欲让其灭亡，必先让其疯狂。目前我们处于黎明前的黑暗，冬天来了，春天还会远吗？历史的规律任何人和组织都无法规避，中共的灭亡已经近在咫尺了！
+所谓中国南海，俄罗斯要回来，知道你不行了，我要回南海采油
+The so-called South China Sea, Russia is going to come back, knowing that CCP are not doing well, Russia went back to the South China Sea to extract oil
 
-加油，世界的正义力量们！加油，新中国联邦人!
-![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
+就是印度、越南、缅甸、柬埔寨、菲律宾
+even like India, Vietnam, Myanmar, Cambodia and Philippines
+
+宁可让俄罗斯回来也不让你中共在这，多少油呢
+They would rather let Russia come back than let the CCP dominant here, how much oil?
+
+南海能采出的油，可以是现在供应整个亚洲，大概使用1200年
+The oil that can be produced in the South China Sea can be supplied to all of Asia now, it will probably be used for 1,200 years
+
+虽然现在电瓶化，太阳能，这是对共产党的噩梦
+Although it’s batteryization and solar energy now, this is a nightmare for the Communist Party
+
+你想想习这些年花了一万亿，就是买俄罗斯这个帮手
+Think about that Xi has spent a trillion dollars in these years, just to buy Russia as a helper
+
+结果最后1分钟放弃了，大家记住，乌克兰不会发生事
+As result it gave up in the last minute, remember, nothing will happen in Ukraine
+
+美国已经基本默许，你别动乌克兰
+The United States has basically acquiesced that you don’t touch Ukraine
+
+然后呢，德国的天然气管道我也不让你废掉，你可以继续供气
+Then, the German natural gas pipeline won’t be abolished and Russia can continue to supply gas there
+
+南海你别太过分，中国南海、缅甸、柬埔寨军事基地你可以签
+Don’t overdo it in the South China Sea, Russia can sign for military bases in the South China Sea, Myanmar, and Cambodia
+
+我今天跟你报这个料，世界上美国人都是极少人知道的
+I’ll spill the beans to you today, very few people in the world and even Americans know about it
+
+这就说明了美国的战略调整，又是美、苏(俄)灭共新的时代开始
+This shows that the strategic adjustment of the United States, also this is the beginning of a new era in which the United States and Russia have annihilated the Communist Party
+
+共产党当年是联俄制美，它活下来的
+The Communist Party was survived back then when they used Russia to contain the U. S.
+
+现在是联苏(俄)抗共， 共产党必死无疑
+Now it’s the United States uniting Russia to resist the Communist Party, and the Communist Party will be undoubtedly gone
+
+这就是日本咋呼的原因，它当不了这个亚洲老大
+This is why Japan is bluffing, but it can’t be the boss of Asia
+
+俄罗斯来，你别当了，还是我当吧
+Russia is coming back, Japan sits down, let me be the boss
+
+采气、采油军事基地一恢复，俄罗斯在亚洲无人敢挡
+Once the gas and oil production military bases are restored, no one dares to stop Russia in Asia
+
+* * *
+
+Date:12/09/2021
+原视频标题: 美国联俄抗共 共产党必死无疑
+The U.S. unites with Russia to resist the Communist China, and the Communist Party will be undoubtedly gone
+原视频日期：2021/12/08
+原视频链接**[https://gettr.com/post/pj80ixace0](https://gettr.com/post/pj80ixace0)**
+任务编号：KC322（3163）
+视频时间段 : 0:00-2:17
+中听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

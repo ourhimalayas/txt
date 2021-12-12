@@ -2,27 +2,55 @@
 ---
 
 
-## 英国年底 Omicron变体病毒确数目数或突破百万
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1746330/)
+## 震惊！澳免疫专家组披露其从未建议实施有争议的疫苗强制措施
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1746392/)
 
-撰稿：美好时光
-![](https://assets.gnews.org/wp-content/uploads/2021/12/123-2.jpg)图片来自网络
-新的病毒Omicron变种病毒在世界范围的传播，被认为具有高度传染性，频繁变异，12月1日尼日利亚确认在10月份的病例中发现了omicron变异病毒。截止12月初，Omicron已经扩散到了39个国家，并在不断迅速增加。
+**翻译：不要代表我Kari**
+**编辑：MSGZ**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/11-2.png)图片来源dailymail.co.uk
+澳大利亚的免疫专家小组表示没有建议强制接种疫苗。澳大利亚免疫技术咨询小组本周举行听证会。专家小组被问及，如果民众接种了疫苗，是否还有必要强制疫苗接种？主席说，推出疫苗接种取决于各州的公共卫生命令。
 
-英国卫生与社会服务大臣警告，按照当前感染速度，到本月底英国累计 Omicron 确诊病例可能会超过 100 万——目前英国已记录超过550 宗 Omicron 确诊病例，而实际感染人数，可能比已确诊的超出20倍。
+澳大利亚的免疫专家小组已与国家强制执行的 新冠疫苗规定保持距离，并表示从未推荐强制疫苗规定。
 
-专家预测，感染高峰可能会比本年 1 月曾出现的冬季 COVID-19 大爆发时还要大。如此下去， Omicron 预计将在数周内成为主要流行病毒株——在不改变现有措施的情况下，到今年年底， Omicron 在英格兰的住院人数可能最高达每日 2,000 人。
+澳大利亚免疫技术咨询小组 (ATAGI) 坚持认为，任何时候都没有就强制接种疫苗规定向各州提出建议，这在全国引发了广泛的抗议
 
-为遏止Omicron扩散，英国首相约翰逊本周已宣布收紧防疫措施：从国周五开始，强制戴口罩令扩及电影院在内的大部分室内公共场所。下周一起民众尽可能在家上班，如需进入群众聚集的大型场合，则强制要求出示疫苗完全接种的证明。同时，到明年 1 月底前，成年人群需要完成接种加强针。
+该咨询机构在周三的议会委员会听证会上受到了质询，被问及如果90%的人都接种了二剂疫苗，那么有争议的强制授权是否还有必要。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/22-4.png)图片来源hindustantimes.com
+大约88.5%的16岁以上的澳大利亚人都接种了二剂疫苗。图为游泳运动员凯特-坎贝尔Cate Campbell在东京奥运会前接受疫苗接种。
 
-笔者认为，最新出现的病毒变体加速了政府推行加强针剂的步伐，同时也再一次对各国经济实施进一步打击。文贵先生曾非常严肃提醒CCP会持续释放病毒：在美国西部、在中东、非洲等。当前形势再次证明文贵先生情报分析的准确性。
+联合主席克里斯托弗·布莱斯博士回答说：“澳大利亚免疫技术咨询小组ATAGI 在任何时候都没有提供强制疫苗授权建议。” “我们相信疫苗的有效性和安全性，至于如何实施和推广则完全取决于各州的公共卫生命令。”
 
-同时，Omicron跟台湾或许存在关联：中共妄图通过病毒与世界达成交易，筹码就是台湾。共产党想让西方知道，能放一次，就能放两次，而西方政客是否有勇气面对这个问题则是一大关键。Omicron病毒爆发，是超限战的进一步升级，亦是一次关键的战役。
+这一消息是在澳大利亚药物管理局TGA批准莫德纳Moderna疫苗作为18岁以上人群的疫苗加强剂以后披露的。
 
-新闻参考链接：[立场新闻](https://www.thestandnews.com/international/%E8%8B%B1%E8%A1%9B%E7%94%9F%E5%A4%A7%E8%87%A3%E8%AD%A6%E5%91%8A%E8%8B%B1%E5%9C%8B%E5%B9%B4%E5%BA%95-omicron-%E7%A2%BA%E8%A8%BA%E6%95%B8%E6%81%90%E9%80%BE%E7%99%BE%E8%90%AC)
+最终决定将取决于澳大利亚免疫技术咨询小组ATAGI，预计将在下周公布。
 
-*发稿：mgjxs*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
+预计澳大利亚人“很快 ”就能在辉瑞Pfzier和莫德纳Moderna疫苗加强针之间做出决定。
+
+联邦卫生部长格雷格-亨特 Greg Hunt说：”当我们看到类似omicron这样的变种病毒时，疫苗加强针计划从根本上来说是至关重要的。
+
+大多数澳大利亚人有计划接种第三针强化疫苗，但犹豫不决的情况仍然存在。
+
+澳大利亚国立大学的最新调查发现，71.9% 的已接种疫苗的成年人打算接受第三剂加强针，但担心潜在的副作用。
+
+在 16 岁以上的澳大利亚人中，大约 88.5% 的人接种过二剂疫苗，93% 的人接种过一剂疫苗。
+
+在澳洲，超过90%的16岁以上儿童已完全接种疫苗的地区是新南威尔士州、维多利亚州和澳大利亚首都领地。
+
+超过58万名澳大利亚人已经接种了强化疫苗，建议在第二剂疫苗注射至少6个月后再接种第三剂强化疫苗。
+
+澳大利亚免疫技术咨询小组ATAGI 也有望在本周就关于 5-11 岁儿童的疫苗接种做出最终决定。
+
+原文链接：[https://www.dailymail.co.uk/news/article-10289849/Therapeutic-Goods-Administration-expert-panel-didnt-recommend-Covid-vaccine-mandates.html](https://www.dailymail.co.uk/news/article-10289849/Therapeutic-Goods-Administration-expert-panel-didnt-recommend-Covid-vaccine-mandates.html)
+
+*发布：*去中心化Math
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
