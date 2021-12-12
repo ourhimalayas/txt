@@ -2,115 +2,35 @@
 ---
 
 
-## 一个喜币 一百个躺平币 一百美元
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1746322/)
+## 铁饭碗生锈，公务员大减薪社会失业严重
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1746383/)
 
-[https://gtv.org/video/id=61b4cff687fa7e74c92ea253](https://gtv.org/video/id=61b4cff687fa7e74c92ea253)
+撰稿：永遠の小学生文筝
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1212H.png)图片来自网络
+2022年全国各种的高校毕业生将达到1076万人，而参加今年公务员考试的有212.3万人，居然有大约20%的人要去当公务员，然而只从16745个职位中录取31242个人，录取率只有1.47%。
 
-**郭文贵
-Miles Guo**
+但不要以为这就已经很低了，在中共国各种关系后门才是硬实力——某些人肯定早就通过关系搞定了，参加考试就是走个过场，就是说普通人的录取率就更低了，可能连1%都不到。
 
-你怎么对待我们的父母
-How you had treated our parents
+中共国当今的社会在僵尸主席习近平的推动下极速地向左转，社会上的风险越来越高。大家不是躺平就是去当公务员，都不再相信个人创造能改变命运了，国家不断收割韭菜个人的机会越来越少。
 
-我们就百倍万倍给你还过去
-We will return it back to you a hundred times ten thousand times
+但公务员现在的日子也不如以前了，僵尸习近平到处抓人搞得当官的也人心惶惶。最不可思议的是要大砍多地公务员的薪水了。通常被认为是铁饭碗的公职也要减薪裁员，伴随着的铁定是权力的崩溃。
 
-咱们现在各农场开始行动
-Let’s start actions on each farm
+有网民爆料说，杭州、江苏、浙江、上海的公务员减薪幅度在20%-30%，广东、福建等大概要降15%。中纪委说下班后开滴滴、送外卖等，公务员干这些事不算违纪。
 
-行动的前提是准备好当地的法律律师
-The premise of the actions is to get prepared with local legal team
+问题是公务员干副业有没有人要还是个问题，现在失业人数如此之众，养尊处优的公务员在劳苦大众干的行业里不会有什么竞争优势。
 
-肯定他们蓝金黄力量都会出手，骚扰、什么告状
-I’m sure that they (the CCP) will take actions by using their BGY powers i.e. harassment or complaints
+再过段时间全国的公务员都要被减薪了，这种情况发生时就是经济全面崩溃的时候了。本来公职人员的减薪就是国家财政入不敷出就意味着国家经济的灾难，以及大量企业的倒闭与持续的失业。尽管如此考公务员的人数却年年在增长，这也就说明了大家都认为其他行业都不合心意或者难以为生，大家都宁愿选择躺平，毕竟现状是没有什么职业是安稳的。
 
-我们律师要出手
-Our lawyers need to take actions
+大公司也都负债累累濒临破产，但都这样了还想着割自己人的韭菜。那些房地产公司都有发行自己的理财产品，还都优先自己内部购买，现在爆雷了被骗的公司员工都觉醒了。原来自己进了大公司，打工赚的钱买了公司的理财，最后都替公司还债了，自己落得个倾家荡产。
 
-第二 钱没问题
-Secondly, money is not a problem
+直到真的失去自己财产的时候，人们才会去思考是谁抢了我的钱。是中国共产党，现在是该还债的时候了，真不建议那些人现在还要去考公务员，只能跟着共产党陪葬。
 
-除法治基金、法治社会捐的钱
-Other than the money donated by the rule of law foundation and the rule of law society
+参考消息：
 
-就花多少钱
-no matter how much it cost
+[国家公务员考试、人才配置和社会内卷](https://www.hk01.com/%E4%B8%AD%E5%9C%8B%E8%A7%80%E5%AF%9F/707884/%E5%9C%8B%E5%AE%B6%E5%85%AC%E5%8B%99%E5%93%A1%E8%80%83%E8%A9%A6-%E4%BA%BA%E6%89%8D%E9%85%8D%E7%BD%AE%E5%92%8C%E7%A4%BE%E6%9C%83%E5%85%A7%E5%8D%B7-%E5%AE%89%E9%82%A6%E6%99%BA%E5%BA%AB)
 
-七哥来帮你筹
-I’ll help for the fundraising
-
-咱先拿10亿美元的预算出来
-Let’s take out a budget of $1 billion first
-
-然后咱们拿一亿个币出来
-and then take out 100 million coins
-
-再一个记住呀
-Remember
-
-每个人到现场的
-Everyone who comes to the scene
-
-只要到现场的
-as long as they come to the scene
-
-当然得是登记好的
-of course, they have to register
-
-每天一百个躺平币
-one hundred Lay Flat and Earn Coins a day for them
-
-我不说躺平币未来会值多少钱
-I don’t say how much the Lay Flat and Earn Coins will be worth in the future
-
-但每天一人一个喜币100个躺平币
-But every day, one HCoin and 100 Lay Flat and Earn coins for every individual
-
-记住，这是今天七哥给你承诺的
-Keep it in mind that this is what I promised you today
-
-然后每天不低于100美金的现金补助
-Then a cash subsidy of no less than $100 per day
-
-这是第三个
-This is the third
-
-不低于100美金（补助）
-Not less than $100 dollars subsidy
-
-100个躺平币一个喜币
-100 Lay Flat and Earn Coins and one HCoin
-
-然后所有的涉及到住宿、交通、纸张（等）所有成本
-Then all the costs related to accommodation, transportation, cost of banners (etc.)
-
-所有的吃饭全部实报实销
-and all meals are reimbursable and will be paid for
-
-不相信共产党还能花得起这个钱（应对我们）
-I don’t believe that the Communist Party can afford this money (to against us)
-
-* * *
-
-Date: 12/09/2021
-原视频标题: 一个喜币 一百个躺平币 一百美元
-1 Hcoin, 100 Flat coins, and 100 Dollars
-原视频日期：2021/12/08
-原视频链接: [https://gettr.com/post/pj7gl1cac8](https://gettr.com/post/pj7gl1cac8)
-任务编号：KC328(3166)
-视频时间段 : 0:00-1:18
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译：洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+[中国多省市公务员减薪 鼓励公务员业余另谋职业](https://www.rfa.org/mandarin/yataibaodao/jingmao/ql2-12092021054023.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

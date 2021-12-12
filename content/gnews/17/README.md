@@ -2,42 +2,105 @@
 ---
 
 
-## 干掉中共冬奥会是给世界带来未来及和平的里程碑式胜利
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1746170/)
+## 中共一定会被踢出WTO SWIFT
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1746234/)
 
-**郭文贵先生：**这个世界上记住，干死萨达姆、卡扎菲的，萨达姆当到英国去杀他的部长，卡扎菲支持恐怖主义、炸掉美国飞机，萨达姆也愿尝试炸飞机是吧？南斯拉夫当时挑战美国也要炸飞机，挑战美国的核心利益，伊朗几次被搞，就是因为要和恐怖分子搞在一起，跟共产党站在一起。
+[https://gtv.org/video/id=61b4cf6987fa7e74c92ea222](https://gtv.org/video/id=61b4cf6987fa7e74c92ea222)
 
-你再想想当年的苏联，美国现在已经完全感受到了共产党的彻彻底底的威胁。用美国帮助我们建国防的一个哥们说的一句话，他说Miles你一定要相信我，过去20年我只干了一件事儿，我今天到这个位置上就是因为我20年啥也没干，我不知，我甚至不记得谁当总统，但我只记得我有一个使命——消灭中国共产党，消灭伊朗政府，消灭沙特政府——独裁政府。
+**郭文贵
+Miles Guo**
 
-这一刻不是说这么简单的，现在能对新中国联邦说，Miles你们就是来自我们想要的中国那部分人，我们最担心的就是没有你们这样的中国人。现在我们看到了你们，我们每天都在看你们的行动，你就是我们想要的那些中国人。
+连中石化的现在都是减半发工资了
+Even the wages of the China Petroleum and Chemical Corporation (Sinopec) are halved now
 
-天时、地利、人和，从冬奥会、从病毒、从疫苗、从数字化人民币、从习太阳、习宗教、习大神还有他们共产党戏称地叫习爸爸、习大大、彭麻麻，以及所有的房地产的倒闭、香港的整个的沦陷、新疆的大屠杀、对台湾的威胁和俄罗斯的这种所有的勾结，无一条不是驶向一个方向——人类必须消灭共产党。
+中石化现在里面退休工资都减半发了
+Sinopec has halved retirement wages
 
-所以抵制冬奥是一个里程碑的胜利，是一次我们是谁承受天意，是谁祸国殃民，是谁在危害世界，是谁意图霸占世界，是谁在给世界带来未来和和平，我们在前面用事实说了话，所以新中国联邦人在这件事上你们完全可以骄傲地说，是我们干倒了它，这一招我们赢得非常精彩，一个左勾拳就把它KO了，而且是2019年开始的。
+（更）甭说是现在工作的了
+There is no need to mention the people that are working now
 
-编辑整理：喜马拉雅的肉夹馍；
+他们没钱了
+They (The CCP) have no more money
 
-视频制作：Cindy；
+马上经济危机就将到来
+The economic crisis will come very soon
 
-视频上传：Cindy；
+你们看到这几天世界上有谁还说（不相信）
+You have already seen that who else in the world still does not believe it these days
 
-G-News发布：黎明之前；
+七哥几年前说的经济危机
+The economic crisis that Miles Guo said a few years ago
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+就像我们2019
+Just like in 2019
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+我说我一定会把（北京）冬奥会给它灭掉一样
+I said I would definitely call off the (Beijing) Winter Olympics
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+东弟当时你相信吗
+Brother Dong, did you believe it at that time?
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+颖妹妹 是吧
+Right? Sister Ying
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+记住七哥说的
+Remember what I said
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+我一定把它（中共）踢出WTO去
+I must kick it (the CCP) out of the World Trade Organization (WTO)
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+我一定会让它（被）踢出SWIFT美元支付系统
+I will definitely let it (being) kicked out of the SWIFT dollar payment system
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+然后世界经济危机一定会在今年年底到明年五月份以前来
+Then the world economic crisis will definitely come from the end of this year to May next year
+
+七哥说的连天数都不差
+There’ll be not even days difference from what I said
+
+就这过去的24小时
+Just the past 24 hours
+
+全世界70多个有影响力的经济专家说
+more than 70 influential economic experts around the world said that
+
+世界发生有史以来1929年以来最大
+there would be the largest occurrence in the world’s history since 1929
+
+2008年以来最大的经济危机，全球
+There would be the biggest economic crisis since 2008 globally
+
+而且是5年到10年甚至更长时间的
+And it would be last 5 to 10 years and even longer
+
+由于通胀、通缩、供应和需求之间的巨大矛盾
+Due to the huge contradiction between inflation, deflation, supply and demand
+
+大家记住
+everyone remember that
+
+可能真的钱就不是钱了
+it’s possible that the real money may not be the money anymore
+
+* * *
+
+Date: 12/09/2021
+原视频标题: 中共一定会被踢出WTO SWIFT
+The CCP Will Certainly be Kicked Out of WTO And SWIFT
+原视频日期：2021/12/08
+原视频链接: [https://gettr.com/post/pj7ur694a5](https://gettr.com/post/pj7ur694a5)
+任务编号：KC327(3165)
+视频时间段 : 0:00-1:18
+英听校：洛杉矶盘古农场 – 郭班之樱
+翻译：洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

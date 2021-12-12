@@ -2,29 +2,109 @@
 ---
 
 
-## 澳大利亚加强针注射等待周期缩短至五个月
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1746327/)
+## 单伟建一家是典型的中国共产党对外情报机构的特务
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1746389/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1212D.jpg)网络图片
-在澳洲，原本注射CCP病毒疫苗的加强针剂需要六个月的等待时间，而现在，有150 万澳大利亚人现被批准在完成疫苗接种五个月后进行 CCP病毒加强针注射。这是澳大利亚免疫技术咨询小组以及医疗用品管理局在考虑Omicron新型变种防治问题后作出的最新决定。
+[https://gtv.org/video/id=61b4d09587fa7e74c92ea283](https://gtv.org/video/id=61b4d09587fa7e74c92ea283)
 
-18 岁及以上的澳大利亚成年人群可以选择接受辉瑞或莫德纳进行加强针注射，不论他们之前接种过哪一类型的疫苗。阿斯利康疫苗目前尚未被注册认可成为加强剂，但仍可供无法接种 mRNA 疫苗的人使用。
+**郭文贵
+Miles Guo**
 
-联邦卫生秘书长 Brendan Murphy表示，ATAGI 已经检查了疫苗的免疫力，发现经六个月后，两剂疫苗对于CCP病毒的保护作用实际已经发生下降。他表示：“有证据表明，到六个月时，对 Omicron 的保护会有所下降。因此 ATAGI 认为，有充分的理由让人们在六个月之前得到加强（注射）。”
+外交部的王子、王孙、私生子女
+sons, grandsons, and illegitimate children of the people in the Ministry of Foreign Affairs
 
-联邦卫生部长Greg Hunt则表示，澳大利亚是最早推出全国性加强针计划的国家之一。他认为将加强针注射等待周期缩短至五个月是非常合理而安全的做法。到本月底，或是明年的 1 月初期，将有 410 万澳大利亚人有资格进行加强针疫苗的注射。超过 8500 家全科医生、药房和诊所将提供莫德纳或者辉瑞的加强针。
+你像单伟建就是外交部的老人, 他妈他爸那都是跟杨洁篪是超级好
+like Shan Weijian, he has deep roots in the Ministry of Foreign Affairs, his mother and his father have super good friendship with Yang Jieshi
 
-截至目前，澳大利亚已有93.3%的人群完成了第一剂疫苗的注射，有89.2%的人群完成了第二针疫苗的注射。同时，已经有68.3万人完成了疫苗加强针的接种。
+单伟建是共产党, 外交部就是中国对外的情报机构，这是一点都不用怀疑的吧
+Shan Weijian is a the Communist Party member, and the Ministry of Foreign Affairs is China’s foreign intelligence agency, there is no doubt about it at all
 
-笔者认为，许多媒体最近一段时间之所以两剂疫苗的有效性提出质疑，实质并非对疫苗产生根本性怀疑，相反则是为加强针的普及进行舆论上的渲染。而政府部门随即就能获得缩短加强针等待时间的正当理由，甚至在未来注射第三针才能够被称为“完成疫苗接种”。
+单伟建是在当时下放后回来，是经中央和当时林强、林弟这一波人回来的, 是周恩来亲自(安排)
+Shan Weijian came back after being exiled at that time，he came back through the Central Committee that Zhou Enlai arranged himself with Lin Qiang and Lin Di at same time
 
-然而只要放毒和变异持续进行，第四针、第五针到来也是迟早的问题，而接种剂量的增加对人体会造成愈发严重的伤害甚至丧命——病毒不过是疫苗的手段，而两剂疫苗的所谓“完全接种”，又是为后面的加强针以及最终的致死剂量所进行的铺垫。
+那个林强、林弟一个是安全部，一个是公安部一局, 林弟跟他很熟
+Lin Qiang and Lin Di, one belong to the Ministry of Security and the other one belong to the First Bureau of the Ministry of Public Security and Lin Di knew Shan Weijian very well
 
-新闻参考链接：
+单伟建这一家子是典型的特务, 所谓太平联盟公司，目的就是干你七哥来了
+Shan Weijian’s family is a typical spy family, the so-called PAG whose purpose is go after me Miles
 
-[9 news](https://www.9news.com.au/national/australia-covid-19-vaccine-booster-shots-brought-forward-five-months-omicron-moderna-approved/63f5aec3-7859-4602-9f05-543d43e938c1)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
+就像在盘古，这些警察在现场的时候告诉他说
+Just like these policemen threatened us at the scene in Pangu, said
+
+我会让你们郭文贵在纽约失去他的房子，我会让郭文贵在世界失去他的房子
+that I will let yours Guo Wengui (Miles) lose his house in New York, I will let Guo Wengui (Miles) lose his house in the world
+
+我会让郭文贵所有的家人睡在马路上，他毫不忌讳警察、法官
+I will let all Guo Wengui (Miles)’s family sleep on the street, the policemen and judges are not shy away about this attacks
+
+你看到单伟建说到西方干什么, 美联储、美财政部、美国体育界
+You see what Shan Weijian is doing in the West, he hooked up with the U.S. Federal Reserve, the U.S. Treasury, the U.S. sports world
+
+你看他跟谁，所有的美国体育界NBA被谁买了，蔡崇信
+Look at who he is with, Joseph C. Tsai who bought NBA team
+
+蔡崇信是中共在美国最大的特务，蔡崇信又买了洋基
+Joseph C. Tsai is the largest CCP agent in the United States, Joseph C. Tsai also bought NBA Net
+
+蔡崇信又代表马云花了几十亿美元买了曼哈顿无数个房子
+Joseph C. Tsai also spent billions of dollars on behalf of Jack Ma to buy countless apartments in Manhattan
+
+蔡崇信 马云，然后单伟建、Bruno Wu
+Joseph C. Tsai, Ma Yun, then Shan Weijian, Bruno Wu
+
+单伟建借给吴征这些东西，这5亿美元
+Shan Weijian lent Bruno Wu 500 million US dollars
+
+海航最大投资者，腾讯音乐100%
+He’s HNA’s largest investor, Tencent Music 100%
+
+然后告美国七哥官司打最多的钱的超过6000万美元到8000万美元的律师费的，就一个单伟建
+Then he sued me in the United States for the most money in lawsuits of over US$60 million to US$80 million in attorney fees, just only Shan Weijian himself
+
+这不符合任何逻辑，你看看单伟建跟谁呢
+This doesn’t make any sense, look at who Shan Weijian is with
+
+平安的马明哲，特别是康典，王岐山的大马仔
+PingAn’s Ma Mingzhe, especially Kang Dian, Wang Qishan’s big helper
+
+绝对是中国整个保险业的老大，王岐山的大马仔
+They are definitely the boss of China’s entire insurance industry, Wang Qishan’s big helper
+
+然后周亮，大家都记住了吧，看着没有
+Then Zhou Liang, everyone remember it, don’t you see this?
+
+马明哲，然后腾讯，是不是，马化腾，全部是他的人，包括SOHO的张欣
+Ma Mingzhe, then Tencent’s Ma Huateng, right? all his people, including SOHO’s Zhang Xin
+
+张欣跟单伟建那是男女关系，那是胡来的关系
+Zhang Xin and Shan Weijian do have special relationship beyond their own Martial relationship, it’s a unusual relationship
+
+潘石亿绝对是一看张欣和单伟建见面，自己要躲一边去，看门去了
+When Pan Shiyi saw Zhang Xin and Shan Weijian meet, he went to hide away and watched the surroundings
+
+就跟那个张高丽老婆一样
+Just like Zhang Gaoli’s wife
+
+* * *
+
+Date:12/10/2021
+原视频标题: 单伟建一家是典型的中国共产党对外情报机构的特务
+Shan Weijian’s family is a typical special agent of the Chinese Communist Party’s foreign intelligence agency
+原视频日期：2021/12/08
+原视频链接[https://gettr.com/post/pja934f93e](https://gettr.com/post/pja934f93e)
+任务编号：KC329（3174）
+视频时间段 : 0:00-2:02
+中听校： 洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
