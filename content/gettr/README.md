@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/12/2021 12:28 AM (UTC)`
+
+12/10/2021 Miles Guo: Most of the investments in the CCP’s financial sector and real estate are made by foreign financial institutions, and this alone violates the CCP’s so-called policies and regulations regarding the prohibition of foreign investments in certain domains and the foreign currency exchange settlement. The Western funds represented by Weijian Shan and PAG are simply crooks and “lawful thieves” who swindle money, and the consequences of the collapse of these funds will be extremely serious!<br/><br/>12/10/2021文贵直播：中共国金融房地产的大部分钱来自国外金融机构，这本身就触碰了所谓的外商禁入产业和外汇管制政策和法律，以单伟建、太平联盟为代表的西方基金都是骗子、合法的小偷，爆雷的后果是要命的！<br/>
+![img](https://media.gettr.com/group11/getter/2021/12/12/00/7579c049-0fa1-bf91-f6e7-347ff5eaffb9/out.jpg)
+
+---
+
 `@miles 12/12/2021 12:20 AM (UTC)`
 
 12/10/2021 Miles Guo: Weijian Shan and his gangs have been promoting the notion that Communist China is the Western adventurers’ La-la Land; 9 trillion dollars have been injected into the CCP’s real estate sector through the U.S. PE funds and hedge funds; the fund managers in the Wall Street are the middlemen between the Adventurers' La-la Land (i.e., Communist China) and the fund investors; those fund managers are always making money regardless of whether the funds make money or not<br/><br/>12/10/2021 文贵直播：单伟建之流标榜独裁的中共国是西方冒险家的乐园，美国风投、对冲基金等有9万亿美元投进了中共国房地产，华尔街基金经理是连接冒险家乐园（中共国）和风投的中间人，无论基金赔钱还是赚钱，基金经理稳赚不赔<br/>
@@ -143,13 +150,6 @@ Hcoin To The Moon MV 上线仅仅3小时， 澳洲🇦🇺，香港 🇭🇰的i
 
 点按即可编辑直播详情
 ![img](https://media.gettr.com/group49/getter/2021/12/09/15/37a98eb8-3c08-eb09-8689-9de77f98ce0b/59eedecd0ea5ddb4343c216e14fb29c9.jpg)
-
----
-
-`@miles 12/9/2021 3:39 PM (UTC)`
-
-12/8/2021 Miles Guo: Weijian Shan is a ministerial level spy of the CCP under the Secret Six Bureau, which has the highest security clearance, and he reports directly to the CCP’s Politburo Standing Committee members; Weijian Shan is the founder of the Western Returned Scholars Association in Beijing<br/><br/>12/8/2021 文贵直播：单伟建是中共的正部级间谍，隶属具有最高保密级别的秘六局，他直接给中共政治局常委汇报工作；单伟建是北京欧美同学会的创始人<br/>
-![img](https://media.gettr.com/group43/getter/2021/12/09/15/d1ccc6a2-3a8b-ca4c-5f43-efe28045200d/out.jpg)
 
 ---
 

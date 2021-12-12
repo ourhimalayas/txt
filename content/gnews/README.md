@@ -15,49 +15,49 @@
 
 ---
 
-### [马斯克透露了他对特斯拉赛博卡车的最大担忧](/content/gnews/1/README.md)
+### [千万不要放松对病毒的警惕性](/content/gnews/1/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [马斯克透露了他对特斯拉赛博卡车的最大担忧](/content/gnews/2/README.md)
  ` 墨尔本雅典娜农场`
 
-### [1210文贵大直播（一）：北京冬奥会落空，中共加速走向灭亡](/content/gnews/2/README.md)
+### [1210文贵大直播（一）：北京冬奥会落空，中共加速走向灭亡](/content/gnews/3/README.md)
  ` 墨尔本雅典娜农场`
 
-### [师生们纷纷逃离香港的“爱国”教育](/content/gnews/3/README.md)
+### [师生们纷纷逃离香港的“爱国”教育](/content/gnews/4/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [12/10/2021 文贵直播：单伟建之流标榜独裁的中共国是西方冒险家的乐园](/content/gnews/4/README.md)
+### [12/10/2021 文贵直播：单伟建之流标榜独裁的中共国是西方冒险家的乐园](/content/gnews/5/README.md)
  ` 秘密翻译组-北美组`
 
-### [【粤语配音】2021年12月10日：欧洲四国坚决抵制北京冬奥会](/content/gnews/5/README.md)
+### [【粤语配音】2021年12月10日：欧洲四国坚决抵制北京冬奥会](/content/gnews/6/README.md)
  ` MOS香港部`
 
-### [七哥谈普金和习近平的关系（2021－12－10摘录）](/content/gnews/6/README.md)
+### [七哥谈普金和习近平的关系（2021－12－10摘录）](/content/gnews/7/README.md)
  ` MG FARM`
 
-### [笔录新生——战友日常(七）](/content/gnews/7/README.md)
+### [笔录新生——战友日常(七）](/content/gnews/8/README.md)
  ` MOS Designer香草山设计部`
 
-### [笔录新生——战友日常(六）](/content/gnews/8/README.md)
+### [笔录新生——战友日常(六）](/content/gnews/9/README.md)
  ` MOS Designer香草山设计部`
 
-### [笔录新生——战友日常(五）](/content/gnews/9/README.md)
+### [笔录新生——战友日常(五）](/content/gnews/10/README.md)
  ` MOS Designer香草山设计部`
 
-### [笔录新生——战友日常(四）](/content/gnews/10/README.md)
+### [笔录新生——战友日常(四）](/content/gnews/11/README.md)
  ` MOS Designer香草山设计部`
 
-### [笔录新生——战友日常(三）](/content/gnews/11/README.md)
+### [笔录新生——战友日常(三）](/content/gnews/12/README.md)
  ` MOS Designer香草山设计部`
 
-### [七哥谈好人与坏人（2021－12－10摘录）](/content/gnews/12/README.md)
+### [七哥谈好人与坏人（2021－12－10摘录）](/content/gnews/13/README.md)
  ` MG FARM`
 
-### [笔录新生——战友日常(二）](/content/gnews/13/README.md)
+### [笔录新生——战友日常(二）](/content/gnews/14/README.md)
  ` MOS Designer香草山设计部`
 
-### [七哥谈打歌（2021－12－10摘录）](/content/gnews/14/README.md)
- ` MG FARM`
-
-### [七哥谈歌的力量（2021－12－10摘录）](/content/gnews/15/README.md)
+### [七哥谈打歌（2021－12－10摘录）](/content/gnews/15/README.md)
  ` MG FARM`
 
 ### [美国会议员将结束中共对美国农田的购买狂潮](/content/gnews/16/README.md)
