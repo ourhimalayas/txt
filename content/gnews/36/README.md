@@ -2,42 +2,22 @@
 ---
 
 
-## 美国向乌克兰提供导弹和火箭发射器
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1746009/)
+## 国际奥委会委员警告参加北京冬奥会的运动员不要乱说话
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1746070/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+#### 撰稿：彩虹
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/1560429199-6740-1.jpg)
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-3-5.jpg)图片来源：以色列时报
+12月11日，根据《新闻极限》的报道内容，国际奥委会成员理查德·庞德（Richard Pound）告诉《时代周刊》，只要他们遵守中共国的法律，参加2022年北京冬奥会的运动员是可以自由表达自己意见的。
 
+这位奥委会委员的言论如此的荒唐和前后矛盾，以至于他自己都不得不进一步解释。他说：“这种情况下并不意味着你可以完全的为所欲为。所以，你知道，要小心你做的事情，因为你可能会被关注。”庞德继而表达了对运动员威胁的话语，他说，在过去，东道国“基本上”保护了运动员的自由。
 
- 
-图片来源: NSDC
+这位奥委会的资深会员，完全无视中共国是一个专制独裁的国家，罔顾中共“反人类罪”事实，将中共国的法律视为运动员应该遵守的红线，是何等的无知、无耻和用心险恶。
 
+**新闻来源**
 
-#### 整理报道 ：小红帽
-
-**根据RT新闻12月11日报道，美国五角大楼披露了向基辅运送反坦克导弹系统和射弹的细节，原因是莫斯科越来越担心乌克兰顿巴斯地区爆发全面冲突。**
-
-在俄罗斯新闻媒体塔斯社周四收到的一份声明中，五角大楼发言人安东·塞梅尔罗斯（Anton Semelroth）中校表示：“价值6000万美元的货物……包括30个标枪指挥和控制发射器，以及180枚导弹”。据悉，火箭发射器于10月23日交付给乌克兰。
-
-“2021年，美国向乌克兰拨出超过4.5亿美元的援助用于安全任务，作为我们继续致力于支持乌克兰捍卫其主权和领土完整的能力的一部分，”塞梅尔罗斯补充说。
-
-乌克兰军事情报局局长基里尔·布达诺夫（Kirill Budanov）透露，乌克兰军队已经测试了由美国制造的先进标枪系统，并被顿巴斯的士兵使用。
-
-俄罗斯驻华盛顿大使阿纳托利·安东诺夫（Anatoly Antonov）在11月初警告白宫，向乌克兰提供致命武器装备可能会削弱该地区和平的希望。莫斯科认为“另一个鼓励基辅停止战争的机会已经错过”。
-
-乌克兰东部的冲突始于2014年独立广场事件，该事件最终导致顿涅茨克和卢甘斯克的“人民共和国”宣布独立。然而，莫斯科和基辅都没有正式承认他们。克里姆林宫坚持认为，乌克兰有责任与分离地区的领导人达成和平协议。
-
-新闻来源：[US delivers rockets to Ukraine — RT Russia & Former Soviet Union](https://www.rt.com/russia/542840-ukraine-delivery-american-rockets/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[Olympic Athletes Free to Express Opinions in Beijing, IOC Says](https://www.newsmax.com/newsfront/olympics-2022-winter-china/2021/12/11/id/1048264/)
 
  
 

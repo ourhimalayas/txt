@@ -2,114 +2,44 @@
 ---
 
 
-## 一个喜币 一百个躺平币 一百美元
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1746322/)
+## 厄瓜多尔前总统：起诉阿桑奇是一场完全的骗局
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1746440/)
 
-[https://gtv.org/video/id=61b4cff687fa7e74c92ea253](https://gtv.org/video/id=61b4cff687fa7e74c92ea253)
+【雅典娜快讯】，紧贴时代脉搏
+![](https://assets.gnews.org/wp-content/uploads/2021/12/11-2.jpg)图片来源：The Voiceof London
+整理报道：文扬
+编辑：文泓
 
-**郭文贵
-Miles Guo**
+12月11日，一位厄瓜多尔前总统在主持RT西班牙语节目时说，那些追捕朱利安·阿桑奇的人想阻止其他人揭露战争罪行。他认为，**起诉阿桑奇是一场完全的骗局。**
 
-你怎么对待我们的父母
-How you had treated our parents
+2007年至2017年期间担任厄瓜多尔总统的拉斐尔·科雷亚，他在接受RT西班牙语电视台采访时说：“在国际人权日，一个记者的人权受到了巨大的侵犯，因为他说出了真相，这真是一个悖论。”
 
-我们就百倍万倍给你还过去
-We will return it back to you a hundred times ten thousand times
+**上周五，英国高等法院裁定，维基解密的联合创始人可以被引渡到美国**，因他在美国因间谍罪被通缉。
 
-咱们现在各农场开始行动
-Let’s start actions on each farm
+在阿桑奇的主导下，**维基解密公布了大量有关美国在阿富汗和伊拉克战争的机密材料**，包括2007年美国直升机在巴格达枪杀平民的令人痛心的视频。
 
-行动的前提是准备好当地的法律律师
-The premise of the actions is to get prepared with local legal team
+科雷亚说，“战犯正在迫害谴责他们的人”，这个案件“非常虚伪”。
 
-肯定他们蓝金黄力量都会出手，骚扰、什么告状
-I’m sure that they (the CCP) will take actions by using their BGY powers i.e. harassment or complaints
+“如果阿桑奇揭露中共国、俄罗斯或拉美左翼政府，包括我国政府的秘密，他就会受到国际媒体的赞扬，受到美国国会和英国议会的嘉奖。但由于他的行动违背了美国这个霸权国家的利益，他被贴上了罪犯的标签。”
 
-我们律师要出手
-Our lawyers need to take actions
+科雷亚说，起诉的目的是恐吓他人，让“其他人都不敢揭穿大国的秘密”。 他认为**，（人类）不应将战争罪视为受保护的国家机密。“全世界都必须知道他们。这种罪行必须受到惩罚。**”
 
-第二 钱没问题
-Secondly, money is not a problem
+2012年起，阿桑奇一直躲在厄瓜多尔驻伦敦大使馆内。期间他获得了科雷亚政府的庇护。2019年，在科雷亚的继任者列宁·莫雷诺的当政后取消了庇护。同年，阿桑奇被指控违反了庇护条款，赶出了厄瓜多尔驻英大使馆，当即被英国警方逮捕并入狱。
 
-除法治基金、法治社会捐的钱
-Other than the money donated by the rule of law foundation and the rule of law society
+今年早些时候，英国一家下级法院裁定不引渡阿桑奇，理由是担心他的心理健康。美国对判决提出上诉，并在承诺不会将阿桑奇单独监禁，并以其他方式降低他在监狱中自杀的风险后胜诉。
 
-就花多少钱
-no matter how much it cost
+阿桑奇的法律团队和支持者承诺将对判决提出上诉。
 
-七哥来帮你筹
-I’ll help for the fundraising
+原文链接： [Aim of Assange’s prosecution is to ‘scare others’ – Rafael Correa to RT — RT World News](https://www.rt.com/news/542890-rafael-correa-assange-case/)
 
-咱先拿10亿美元的预算出来
-Let’s take out a budget of $1 billion first
+**发布：**去中心化Math
 
-然后咱们拿一亿个币出来
-and then take out 100 million coins
-
-再一个记住呀
-Remember
-
-每个人到现场的
-Everyone who comes to the scene
-
-只要到现场的
-as long as they come to the scene
-
-当然得是登记好的
-of course, they have to register
-
-每天一百个躺平币
-one hundred Lay Flat and Earn Coins a day for them
-
-我不说躺平币未来会值多少钱
-I don’t say how much the Lay Flat and Earn Coins will be worth in the future
-
-但每天一人一个喜币100个躺平币
-But every day, one HCoin and 100 Lay Flat and Earn coins for every individual
-
-记住，这是今天七哥给你承诺的
-Keep it in mind that this is what I promised you today
-
-然后每天不低于100美金的现金补助
-Then a cash subsidy of no less than $100 per day
-
-这是第三个
-This is the third
-
-不低于100美金（补助）
-Not less than $100 dollars subsidy
-
-100个躺平币一个喜币
-100 Lay Flat and Earn Coins and one HCoin
-
-然后所有的涉及到住宿、交通、纸张（等）所有成本
-Then all the costs related to accommodation, transportation, cost of banners (etc.)
-
-所有的吃饭全部实报实销
-and all meals are reimbursable and will be paid for
-
-不相信共产党还能花得起这个钱（应对我们）
-I don’t believe that the Communist Party can afford this money (to against us)
-
-* * *
-
-Date: 12/09/2021
-原视频标题: 一个喜币 一百个躺平币 一百美元
-1 Hcoin, 100 Flat coins, and 100 Dollars
-原视频日期：2021/12/08
-原视频链接: [https://gettr.com/post/pj7gl1cac8](https://gettr.com/post/pj7gl1cac8)
-任务编号：KC328(3166)
-视频时间段 : 0:00-1:18
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译：洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

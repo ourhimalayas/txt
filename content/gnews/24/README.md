@@ -2,157 +2,108 @@
 ---
 
 
-## 【樱花深度报道】中共可能将核导弹走私到委内瑞拉以突袭美国（下）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1746289/)
+## 单伟建一家是典型的中国共产党对外情报机构的特务
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1746389/)
 
-编译：东京樱花团/Hopkins
+[https://gtv.org/video/id=61b4d09587fa7e74c92ea283](https://gtv.org/video/id=61b4d09587fa7e74c92ea283)
 
+**郭文贵
+Miles Guo**
 
-```
-编者按：英国太阳在线网站12月10日最新报道，专家警告说，中共可能会通过集装箱将核导弹走私到南美港口，以对美国发动突然袭击。军事分析人士对据信是北京悄悄发展的集装箱导弹能力敲响了警钟。
-```
+外交部的王子、王孙、私生子女
+sons, grandsons, and illegitimate children of the people in the Ministry of Foreign Affairs
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-127.jpg)（图片说明）迄今为止，从集装箱船上发射导弹的唯一记录是以色列进行的一次试验的照片。
+你像单伟建就是外交部的老人, 他妈他爸那都是跟杨洁篪是超级好
+like Shan Weijian, he has deep roots in the Ministry of Foreign Affairs, his mother and his father have super good friendship with Yang Jieshi
 
+单伟建是共产党, 外交部就是中国对外的情报机构，这是一点都不用怀疑的吧
+Shan Weijian is a the Communist Party member, and the Ministry of Foreign Affairs is China’s foreign intelligence agency, there is no doubt about it at all
 
+单伟建是在当时下放后回来，是经中央和当时林强、林弟这一波人回来的, 是周恩来亲自(安排)
+Shan Weijian came back after being exiled at that time，he came back through the Central Committee that Zhou Enlai arranged himself with Lin Qiang and Lin Di at same time
 
-```
-美国官员认为，部署在较小集装箱中的武器是一种名为 YJ-18C 的先进反舰导弹，它是俄罗斯 Club-K 武器的一个版本。
-```
+那个林强、林弟一个是安全部，一个是公安部一局, 林弟跟他很熟
+Lin Qiang and Lin Di, one belong to the Ministry of Security and the other one belong to the First Bureau of the Ministry of Public Security and Lin Di knew Shan Weijian very well
 
+单伟建这一家子是典型的特务, 所谓太平联盟公司，目的就是干你七哥来了
+Shan Weijian’s family is a typical spy family, the so-called PAG whose purpose is go after me Miles
 
+就像在盘古，这些警察在现场的时候告诉他说
+Just like these policemen threatened us at the scene in Pangu, said
 
-```
-导弹可装入标准的 8 英尺宽、8.5 英尺高、20 英尺或 40 英尺长的标准集装箱中。
-```
+我会让你们郭文贵在纽约失去他的房子，我会让郭文贵在世界失去他的房子
+that I will let yours Guo Wengui (Miles) lose his house in New York, I will let Guo Wengui (Miles) lose his house in the world
 
+我会让郭文贵所有的家人睡在马路上，他毫不忌讳警察、法官
+I will let all Guo Wengui (Miles)’s family sleep on the street, the policemen and judges are not shy away about this attacks
 
+你看到单伟建说到西方干什么, 美联储、美财政部、美国体育界
+You see what Shan Weijian is doing in the West, he hooked up with the U.S. Federal Reserve, the U.S. Treasury, the U.S. sports world
 
-```
-据战略与国际研究中心称，该导弹的速度高达 3 马赫——是音速的三倍，即 2,300 英里/小时。
-```
+你看他跟谁，所有的美国体育界NBA被谁买了，蔡崇信
+Look at who he is with, Joseph C. Tsai who bought NBA team
 
+蔡崇信是中共在美国最大的特务，蔡崇信又买了洋基
+Joseph C. Tsai is the largest CCP agent in the United States, Joseph C. Tsai also bought NBA Net
 
+蔡崇信又代表马云花了几十亿美元买了曼哈顿无数个房子
+Joseph C. Tsai also spent billions of dollars on behalf of Jack Ma to buy countless apartments in Manhattan
 
-```
-虽然不属于中共的高超音速导弹联盟，它的速度可以达到 10 马赫，但分析人士认为，它们仍然可以一拳毙命。
-```
+蔡崇信 马云，然后单伟建、Bruno Wu
+Joseph C. Tsai, Ma Yun, then Shan Weijian, Bruno Wu
 
+单伟建借给吴征这些东西，这5亿美元
+Shan Weijian lent Bruno Wu 500 million US dollars
 
+海航最大投资者，腾讯音乐100%
+He’s HNA’s largest investor, Tencent Music 100%
 
-```
-阿姆斯特朗先生告诉太阳在线：“委内瑞拉和古巴都是这方面的关键，因为两者都受到广泛的武器禁运。
-```
+然后告美国七哥官司打最多的钱的超过6000万美元到8000万美元的律师费的，就一个单伟建
+Then he sued me in the United States for the most money in lawsuits of over US$60 million to US$80 million in attorney fees, just only Shan Weijian himself
 
+这不符合任何逻辑，你看看单伟建跟谁呢
+This doesn’t make any sense, look at who Shan Weijian is with
 
+平安的马明哲，特别是康典，王岐山的大马仔
+PingAn’s Ma Mingzhe, especially Kang Dian, Wang Qishan’s big helper
 
-```
-“所以你在这里看到的情况是，各国无法进口他们想要的武器——但他们有这样做的手段和意愿。
-```
+绝对是中国整个保险业的老大，王岐山的大马仔
+They are definitely the boss of China’s entire insurance industry, Wang Qishan’s big helper
 
+然后周亮，大家都记住了吧，看着没有
+Then Zhou Liang, everyone remember it, don’t you see this?
 
+马明哲，然后腾讯，是不是，马化腾，全部是他的人，包括SOHO的张欣
+Ma Mingzhe, then Tencent’s Ma Huateng, right? all his people, including SOHO’s Zhang Xin
 
-```
-“无论是手段还是意愿，都有机会走私。其极有可能的集装箱武器将运往南美洲。”
-```
+张欣跟单伟建那是男女关系，那是胡来的关系
+Zhang Xin and Shan Weijian do have special relationship beyond their own Martial relationship, it’s a unusual relationship
 
+潘石亿绝对是一看张欣和单伟建见面，自己要躲一边去，看门去了
+When Pan Shiyi saw Zhang Xin and Shan Weijian meet, he went to hide away and watched the surroundings
 
+就跟那个张高丽老婆一样
+Just like Zhang Gaoli’s wife
 
-```
-然而，这位专家补充说，他怀疑它们会被用于进攻——对这些武器进行伪装然后开展打击。
-```
+* * *
 
+Date:12/10/2021
+原视频标题: 单伟建一家是典型的中国共产党对外情报机构的特务
+Shan Weijian’s family is a typical special agent of the Chinese Communist Party’s foreign intelligence agency
+原视频日期：2021/12/08
+原视频链接[https://gettr.com/post/pja934f93e](https://gettr.com/post/pja934f93e)
+任务编号：KC329（3174）
+视频时间段 : 0:00-2:02
+中听校： 洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-
-```
-“如果这种能力得到证实，它将需要对所有开往美国港口的悬挂中共国旗的商船实行全新的筛查制度，”法内尔说。
-```
-
-
-
-```
-斯托克顿国际法中心的一项研究警告说，这些武器可能违反海军法。
-```
-
-
-
-```
-斯托克顿中心的研究得出结论，在民用船只上秘密装载武器可能违反国际法。
-```
-
-
-
-```
-它写道：“不遵守武装冲突法，秘密将商船纳入中国的作战/维持战争的努力会危及平民海员，并使所有可能在敌对地区作业的民用船只处于危险之中。”
-```
-
-
-
-```
-随着世界试图从病毒大流行中恢复过来，中共被认为直接挑战西方的地位。
-```
-
-
-
-```
-北京正在采取行动，在非洲西海岸建立一系列新的海军基地，以在大西洋建立立足点。
-```
-
-
-
-```
-该国第一个海外海军基地多年前在非洲之角的吉布提建成，并且正在稳步增加其容量。
-```
-
-
-
-```
-一段时间以来，许多人认为中共正在努力在坦桑尼亚建立一个海军基地，坦桑尼亚位于非洲东海岸，与北京有着长期牢固的军事关系。
-```
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-45.jpg)（图片说明）一艘以色列集装箱船正在发射一枚类似的导弹
-
-
-
-```
-与此同时，中共也被视为在全球军备竞赛的下一阶段处于领先地位，因为它在世界各地发射了具有核武器能力的导弹。
-```
-
-
-
-```
-高超音速导弹改变了游戏规则，因为与弹道导弹不同，弹道导弹在返回陡峭的轨迹之前先飞入太空，它们放大较低高度的目标。
-```
-
-
-
-```
-中共，紧随其后的是俄罗斯，已经被认为拥有最强大的高超音速导弹武器库，向其投入数十亿美元，但其他国家正在迎头赶上。
-```
-
-
-
-```
-但是，他们在 8 月份进行导弹试验的令人震惊的揭露让西方情报部门感到震惊，他们担心他们实际上低估了北京。
-```
-
-
-
-```
-据报道，在中共向太空发射了一枚载有高超音速滑翔飞行器的火箭后，美国情报和军事官员惊呆了，该飞行器在加速飞向目标之前环绕地球一周。
-```
-
-
-作者：Henry Holloway，TARIQ TAHIR  Foreign News Reporter in London
-
-信息来源：
-
-[China could smuggle nuclear missiles hidden in shipping containers to Venezuela for surprise attack on US, experts warn](https://www.thesun.co.uk/news/16963561/china-smuggle-nuclear-missiles-venezuela/)
-
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

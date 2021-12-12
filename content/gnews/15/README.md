@@ -2,109 +2,36 @@
 ---
 
 
-## 单伟建一家是典型的中国共产党对外情报机构的特务
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1746389/)
+## 一些音乐故事
+` 骄子` [轉載自GNews](https://gnews.org/zh-hans/1746530/)
 
-[https://gtv.org/video/id=61b4d09587fa7e74c92ea283](https://gtv.org/video/id=61b4d09587fa7e74c92ea283)
+文：银河勇气星｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-12-20.07.54.png)图源：网路
+听七哥直播里讲音乐的故事。非洲送葬的队伍一开始使用的天然的节拍，一路把去世的人送到墓地，很多不同的节拍就是POP，送葬变成了音乐会，怪不得现在的葬礼上都要放送音乐，很隆重的葬礼都要邀请管弦乐队，一整天都在奏乐。这种POP的节拍来自宗教圣母玛利亚，后来不断地扩散，蔓延到美国的中西部，在此基础上又有了Rock，还有爵士，就是Miles Davis的萨克斯音乐。后来形成的美国黑人音乐，同样配合有各种肢体街拍，比如摇屁股，这是现在都非常流行的一种方式，短视频平台上经常能刷到这些。这些天然的节奏后来还加入了歌词，嘴巴很快，在全美叫做毒品歌曲，警察经常要干预这些，然而挡不住这种源自天然的交流方式，现在黑人音乐都在美国音乐上占据着重要的地位。
 
-**郭文贵
-Miles Guo**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/srchttp-_inews.gtimg_.com_newsapp_bt_0_11584534662_1000.jpgreferhttp-_inews.gtimg_.comapp2002sizef999910000qa80n0g0nfmtjpeg.jpg)黑人抬棺材 / 图源：网路
 
-外交部的王子、王孙、私生子女
-sons, grandsons, and illegitimate children of the people in the Ministry of Foreign Affairs
+音乐是一种纯天然跨物种的交流方式，很多动物植物对音乐都是有感觉的。比如高级草莓成长过程中的时候会放音乐，种出来的草莓是很不一样的。大熊猫基地也经常有音乐，动物园甚至会给动物定期举办音乐会，有的交配困难的动物也会配合音乐帮助交配。现代数字音乐的流行更加为音乐传播提供了便捷的方式，有很多爱好者自己整理的一些氛围音乐，比如学习的时候听，运动的时候听，胎教音乐，宗教音乐，很早之前因为介质的不方便，比如一个播放机（需要有电池），还需要有光碟或者磁带，然后配一个耳机，都凑齐了才能欣赏音乐，现在只需要有手机有耳机就可以了，随时随地能够畅听音乐。童年时代曾经认为随身听是这个世界最伟大的发明，那时候只能在家里固定的场合听的一些音乐，如今可以便携，再次走在平平无奇，多年不变的大街上的时候，耳朵里有音乐，突然感觉这个世界这棵树这朵花这个迎面走来的陌生人，啊，完全不一样的感觉，真好。没错，人就是这样奇怪的生物，一个器官感知的改变就能带来整体的愉悦。耳朵是用来听的，音乐舒缓地进入耳朵，有耳朵真好，如果没有音乐，或者听不到音乐，那该是多大的损失啊。那时候根本不知道音乐这种东西的力量为什么如此强大。
 
-你像单伟建就是外交部的老人, 他妈他爸那都是跟杨洁篪是超级好
-like Shan Weijian, he has deep roots in the Ministry of Foreign Affairs, his mother and his father have super good friendship with Yang Jieshi
+![](https://assets.gnews.org/wp-content/uploads/2021/12/srchttp-_upload.qudong.com_uploads_allimg_090706_0927420.jpgreferhttp-_upload.qudong.comapp2002sizef999910000qa80n0g0nfmtjpeg.jpg)随声听 / 图源：网路
 
-单伟建是共产党, 外交部就是中国对外的情报机构，这是一点都不用怀疑的吧
-Shan Weijian is a the Communist Party member, and the Ministry of Foreign Affairs is China’s foreign intelligence agency, there is no doubt about it at all
+通过文贵先生对音乐的来源的阐述，我们得知原来崇尚自然的节拍是人的本能，这种节拍就是最开始的音乐。这个世界没有人不爱听音乐的，无论是镇定还是要起其他的作用，那些独裁杀人犯，他们杀人的时候都爱听着音乐，萨达姆，和那个希特勒的活剥犹太人皮的纳粹分子在进行屠杀的时候都听印度巫师的妖乐。之前记得曾经有一个网路传说，很早了，说是有一首歌叫《黑色星期五》，谁听谁就会死，现在网上流传的都是改版，已经没有那么大的杀伤力了。这首歌成为当时互联网的禁曲，在人们口口相传的故事里，无论什么人，听过这首歌以后会有各种各样的死亡，传得有鼻子有眼。不可否认的就是音乐确实是无法抵抗的一种力量，一首歌能够让犯罪分子选来杀人，一首歌也可以自己就去杀人，无论是被动还是主动，总是会有各种各样的出发点，这个出发点是人自己给的。
 
-单伟建是在当时下放后回来，是经中央和当时林强、林弟这一波人回来的, 是周恩来亲自(安排)
-Shan Weijian came back after being exiled at that time，he came back through the Central Committee that Zhou Enlai arranged himself with Lin Qiang and Lin Di at same time
+![](https://assets.gnews.org/wp-content/uploads/2021/12/srchttp-_crawl.nosdn_.127.net_5edd3209b682628b61b49109cbc0ee69.jpegreferhttp-_crawl.nosdn_.127.netapp2002sizef999910000qa80n0g0nfmtjpeg.jpg)
 
-那个林强、林弟一个是安全部，一个是公安部一局, 林弟跟他很熟
-Lin Qiang and Lin Di, one belong to the Ministry of Security and the other one belong to the First Bureau of the Ministry of Public Security and Lin Di knew Shan Weijian very well
+说到这里就不得不提童年阴影发条橙，库布里克让主角Alex听着贝多芬的音乐强奸妇女，那首浪漫的sing in the rain被用作暴力少年犯罪时候嘴里哼着的歌，三观被迫不断地倾倒，倒出来的都是无法理解却有深刻同情，因为在剧情上看来，这种设置竟然能够完美契合。同样的阴影还有汉尼拔选择听着巴赫的音乐吃人肉。这种创作手段似乎风靡了好一阵子，以至于很多后来者、创作者都开始抄袭这些名场面，就算没有抄袭画面和运镜模式，在杀人场合给罪犯选择一首世界名曲，成为通用的做法。然而现实生活中这些熟悉或者不熟悉的名曲，依然能够是可以被选择作为胎教音乐的，音乐的跨度如此广大，创作者几百年来以来都未曾料到的事情，如今可以被用在任何地方，着实让人大跌眼镜。
 
-单伟建这一家子是典型的特务, 所谓太平联盟公司，目的就是干你七哥来了
-Shan Weijian’s family is a typical spy family, the so-called PAG whose purpose is go after me Miles
+同样的，在看电影的时候，其实看到的是导演的创作思想，一个真正的杀人犯不可能真正拥有华丽的心情，任何邪恶犯罪者其实都违背自然在做着这些，不听点带劲的邪魔音乐怎么能下得了手呢？导演在表现手法上的殊途同归，无非就是创立一种荧幕暴力美学，是一种形式，形式大于内核，换句话说电影是给人看的，人在电影面前拥有的是全视角，什么都看得到，而电影中的主角根本就是片面的视角，了解他到底怎么想的，要进入电影中的那个世界，哈哈，好难，似乎要用到二向泊了。现实生活中杀人者听的都是印度巫师的妖乐。
 
-就像在盘古，这些警察在现场的时候告诉他说
-Just like these policemen threatened us at the scene in Pangu, said
-
-我会让你们郭文贵在纽约失去他的房子，我会让郭文贵在世界失去他的房子
-that I will let yours Guo Wengui (Miles) lose his house in New York, I will let Guo Wengui (Miles) lose his house in the world
-
-我会让郭文贵所有的家人睡在马路上，他毫不忌讳警察、法官
-I will let all Guo Wengui (Miles)’s family sleep on the street, the policemen and judges are not shy away about this attacks
-
-你看到单伟建说到西方干什么, 美联储、美财政部、美国体育界
-You see what Shan Weijian is doing in the West, he hooked up with the U.S. Federal Reserve, the U.S. Treasury, the U.S. sports world
-
-你看他跟谁，所有的美国体育界NBA被谁买了，蔡崇信
-Look at who he is with, Joseph C. Tsai who bought NBA team
-
-蔡崇信是中共在美国最大的特务，蔡崇信又买了洋基
-Joseph C. Tsai is the largest CCP agent in the United States, Joseph C. Tsai also bought NBA Net
-
-蔡崇信又代表马云花了几十亿美元买了曼哈顿无数个房子
-Joseph C. Tsai also spent billions of dollars on behalf of Jack Ma to buy countless apartments in Manhattan
-
-蔡崇信 马云，然后单伟建、Bruno Wu
-Joseph C. Tsai, Ma Yun, then Shan Weijian, Bruno Wu
-
-单伟建借给吴征这些东西，这5亿美元
-Shan Weijian lent Bruno Wu 500 million US dollars
-
-海航最大投资者，腾讯音乐100%
-He’s HNA’s largest investor, Tencent Music 100%
-
-然后告美国七哥官司打最多的钱的超过6000万美元到8000万美元的律师费的，就一个单伟建
-Then he sued me in the United States for the most money in lawsuits of over US$60 million to US$80 million in attorney fees, just only Shan Weijian himself
-
-这不符合任何逻辑，你看看单伟建跟谁呢
-This doesn’t make any sense, look at who Shan Weijian is with
-
-平安的马明哲，特别是康典，王岐山的大马仔
-PingAn’s Ma Mingzhe, especially Kang Dian, Wang Qishan’s big helper
-
-绝对是中国整个保险业的老大，王岐山的大马仔
-They are definitely the boss of China’s entire insurance industry, Wang Qishan’s big helper
-
-然后周亮，大家都记住了吧，看着没有
-Then Zhou Liang, everyone remember it, don’t you see this?
-
-马明哲，然后腾讯，是不是，马化腾，全部是他的人，包括SOHO的张欣
-Ma Mingzhe, then Tencent’s Ma Huateng, right? all his people, including SOHO’s Zhang Xin
-
-张欣跟单伟建那是男女关系，那是胡来的关系
-Zhang Xin and Shan Weijian do have special relationship beyond their own Martial relationship, it’s a unusual relationship
-
-潘石亿绝对是一看张欣和单伟建见面，自己要躲一边去，看门去了
-When Pan Shiyi saw Zhang Xin and Shan Weijian meet, he went to hide away and watched the surroundings
-
-就跟那个张高丽老婆一样
-Just like Zhang Gaoli’s wife
+一首真正的音乐，写给上天写给信仰的歌，给真正有力量的人来唱来听，也给世界上热爱和平热爱生命的人来听，那真得会启发人的，人会去思考善恶的。比如文贵先生所有的歌，怪不得共产党就很害怕歌星的号召力，总是会限制这个限制那个。Miles Guo当之无愧的摇滚硬汉，take down the CCP！
 
 * * *
 
-Date:12/10/2021
-原视频标题: 单伟建一家是典型的中国共产党对外情报机构的特务
-Shan Weijian’s family is a typical special agent of the Chinese Communist Party’s foreign intelligence agency
-原视频日期：2021/12/08
-原视频链接[https://gettr.com/post/pja934f93e](https://gettr.com/post/pja934f93e)
-任务编号：KC329（3174）
-视频时间段 : 0:00-2:02
-中听校： 洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+作者：骄子
+发布：骄子
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，欢迎加入银河系农场，欢迎各农场兄弟姐妹们坐客串门，欢迎订阅我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/345-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

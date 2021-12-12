@@ -2,108 +2,53 @@
 ---
 
 
-## 美国联俄抗共 共产党必死无疑
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1746423/)
+## 日本深层观察系列之四：由郭先生直播所说的“今后主要的能源是电力”，看日本能源界最大收购案
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1746536/)
 
-[https://gtv.org/video/id=61b4d14187fa7e74c92ea2c0](https://gtv.org/video/id=61b4d14187fa7e74c92ea2c0)
+撰稿：东京樱花团/华夏小哥
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2-46.jpg)
+图片来源于网络
 
-**郭文贵
-Miles Guo**
+郭文贵先生在最近的直播中不止一次谈到**未来的社会就是电力能源的社会，电动汽车也将会是未来主要的出行方式。**
 
-现在俄罗斯跟美国的勾兑以后，共产党的时间已经倒数了
-Now after Russia’s collusion with the United States, the Communist Party’s time is counting down
+身在日本的笔者不禁注意到最近日本企业界发生的一次巨大并购案。
 
-它唯一的所谓的仗势，还是狗仗人势啊，还是虚假之势啊
-It’s only so-called fighting power, it’s still doomed, or it’s falsehood
+ENEOSHoldings10月11日宣布，将收购可再生能源初创公司日本可再生能源（JRE）。收购价格为2000亿日元。从JRE的母公司高盛集团和新加坡政府投资公司(GIC)收购所有股份。将可再生能源业务发展成为新的盈利支柱。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-623.png)
+这是日本大型石油批发商对可再生新能源公司的首次重大收购。ENEOS将收购JRE在日本和海外拥有60座可再生能源发电厂，作为正式扩大可再生能源业务的垫脚石。10月11日与高盛等就股份转让达成基本协议。股权转让计划于2022年1月下旬左右进行。
 
-俄罗斯已经转战整个东亚
-Russia has shift focus to all of East Asia
+JRE是一家成立于2012年的初创公司。截至2008年12月的财政年度的合并销售额为224亿日元，最终亏损为9.12亿日元。合并后的净资产为397亿日元，购买价格减去净资产后的商誉为1603亿日元。那么ENEOSHD在JRE中发现了什么价值呢？
 
-最近跟缅甸、柬埔寨都签署了军事基地合约
-It recently signed military base contracts with Myanmar and Cambodia
+JRE已经在运营一个总输出功率约为42万千瓦的可再生能源发电厂，包括太阳能、陆上风能和生物能。包括在建的发电厂JRE拥有约88万千瓦的可再生能源发电厂。此外，JRE正在参与秋田、长崎和北海道的海上风力发电项目，政府将其视为“脱碳王牌”。
 
-重返东亚，美国已经默许
-the United States has acquiesced that Russia returns to East Asia
+另一方面，ENEOSHD拥有的可再生能源发电厂只有约13万千瓦。在能源行业，包括电力、燃气、综合贸易公司，ENEOSHD在可再生能源的发展上已经远远落后，一位能源业内人士表示，“ENEOSHD对收购可再生能源企业相当焦急。”
 
-越南整个的叫什么梁湾(金兰湾)军事基地重新恢复，美国都可能让给它
-The entire Cam Ranh Bay military base in Vietnam has been restored, and the U. S. may let them have it
+可以说，ENEOSHD之所以决定以2000亿日元大规模收购JRE，是因为渴望获得可再生能源以实现脱碳。运营子公司ENEOS的常务执行官井上啓太先生在一次在线新闻发布会上表示，“这是一个彻底改变业务结构的机会，而且争取时间（发展可再生能源业务）也很有意义。”
 
-就把亚洲让给俄罗斯比让给中共强
-It’s better to give Asia to Russia than to CCP
+井上先生解释说，2000亿日元的巨额收购金额是“**根据JRE的现有资产和未来价值**计算出来的”。同时“买到了时间（发展可再生能源业务）对我们也很有意义，”他说，JRE成立以来，已经积累了大约10年的经验，拥有专业知识和人力资源，很有发展潜力。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-624.png)
+JRE的海上风电是井上先生指出的“未来价值”的主轴。虽然海上风电的建设和运营成本高达数千亿日元，但它有可能在数十年内超越成本。
 
-现在俄罗斯已经在南海的采油已经超过了给中共供油的一倍
-Russia’s oil extraction in the South China Sea has now more doubled than its oil supply to the CCP
+通过收购JRE，ENEOS强调：“我们的目标是成为日本领先的可再生能源公司。”在截至2023年3月财政年度的中期经营计划中，公司制定了在8,600亿日元的战略投资限额中向脱碳相关事项投资4,000亿日元的政策。我们已经决定参与美国和澳大利亚的太阳能发电和台湾的海上风电等海外业务。井上先生表示，“我们计划在未来（认真地）通过结合JRE技术向海外扩张”。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-625.png)
+事实上，丰田汽车集团和日本电报电话（NTT）集团等对脱碳不太感冒的传统公司也积极参与了此次大规模收购。
 
-所谓中国南海，俄罗斯要回来，知道你不行了，我要回南海采油
-The so-called South China Sea, Russia is going to come back, knowing that CCP are not doing well, Russia went back to the South China Sea to extract oil
+1888年创业拥有133年历史的老牌企业，以2000亿日元收购一家年销售额只有36亿日元初创公司的并购行为，看似疯狂，实际上可以看出ENEOS非常急切地想要转型，摆脱传统能源企业的经营模式。与此同时在可以预见的未来，丰田汽车等传统品牌也肯定会拼命转向电动汽车，因为这是世界潮流。
 
-就是印度、越南、缅甸、柬埔寨、菲律宾
-even like India, Vietnam, Myanmar, Cambodia and Philippines
+笔者认为，日本的这些传统企业应该有更高的视野，从历史发展的潮流中抓住机遇和新中国联邦及早合作，因为在未来几年新中国联邦将会涌现无数专业人才，**拥有喜联储的资金实力和高端人才的新中国联邦才是日本企业的未来之路。**
 
-宁可让俄罗斯回来也不让你中共在这，多少油呢
-They would rather let Russia come back than let the CCP dominant here, how much oil?
+参考资料
 
-南海能采出的油，可以是现在供应整个亚洲，大概使用1200年
-The oil that can be produced in the South China Sea can be supplied to all of Asia now, it will probably be used for 1,200 years
+1.[https://ja.m.wikipedia.org/wiki/ENEOS](https://ja.m.wikipedia.org/wiki/ENEOS)
 
-虽然现在电瓶化，太阳能，这是对共产党的噩梦
-Although it’s batteryization and solar energy now, this is a nightmare for the Communist Party
+2.[ENEOS、新興再エネ買収を発表　2000億円で](https://www.nikkei.com/article/DGXZQOUC113QP0R11C21A0000000/)
 
-你想想习这些年花了一万亿，就是买俄罗斯这个帮手
-Think about that Xi has spent a trillion dollars in these years, just to buy Russia as a helper
+3.[https://www.jre.co.jp/](https://www.jre.co.jp/)
 
-结果最后1分钟放弃了，大家记住，乌克兰不会发生事
-As result it gave up in the last minute, remember, nothing will happen in Ukraine
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
 
-美国已经基本默许，你别动乌克兰
-The United States has basically acquiesced that you don’t touch Ukraine
-
-然后呢，德国的天然气管道我也不让你废掉，你可以继续供气
-Then, the German natural gas pipeline won’t be abolished and Russia can continue to supply gas there
-
-南海你别太过分，中国南海、缅甸、柬埔寨军事基地你可以签
-Don’t overdo it in the South China Sea, Russia can sign for military bases in the South China Sea, Myanmar, and Cambodia
-
-我今天跟你报这个料，世界上美国人都是极少人知道的
-I’ll spill the beans to you today, very few people in the world and even Americans know about it
-
-这就说明了美国的战略调整，又是美、苏(俄)灭共新的时代开始
-This shows that the strategic adjustment of the United States, also this is the beginning of a new era in which the United States and Russia have annihilated the Communist Party
-
-共产党当年是联俄制美，它活下来的
-The Communist Party was survived back then when they used Russia to contain the U. S.
-
-现在是联苏(俄)抗共， 共产党必死无疑
-Now it’s the United States uniting Russia to resist the Communist Party, and the Communist Party will be undoubtedly gone
-
-这就是日本咋呼的原因，它当不了这个亚洲老大
-This is why Japan is bluffing, but it can’t be the boss of Asia
-
-俄罗斯来，你别当了，还是我当吧
-Russia is coming back, Japan sits down, let me be the boss
-
-采气、采油军事基地一恢复，俄罗斯在亚洲无人敢挡
-Once the gas and oil production military bases are restored, no one dares to stop Russia in Asia
-
-* * *
-
-Date:12/09/2021
-原视频标题: 美国联俄抗共 共产党必死无疑
-The U.S. unites with Russia to resist the Communist China, and the Communist Party will be undoubtedly gone
-原视频日期：2021/12/08
-原视频链接**[https://gettr.com/post/pj80ixace0](https://gettr.com/post/pj80ixace0)**
-任务编号：KC322（3163）
-视频时间段 : 0:00-2:17
-中听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

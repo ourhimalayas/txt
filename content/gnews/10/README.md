@@ -2,122 +2,133 @@
 ---
 
 
-## 最高级别送葬共产党
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1746461/)
+## 打疫苗真人真事之一
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1746570/)
 
-[https://gtv.org/video/id=61b4d1cc87fa7e74c92ea2ea](https://gtv.org/video/id=61b4d1cc87fa7e74c92ea2ea)
+撰稿：东京樱花团/『花落几人怜』
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3-27.jpg)
+图片来自盖特
 
-大家看到这个了
-Todos vieron esto
+我说一个我亲身的一个故事。
 
-咱们这个是个草率的
-Lo nuestro es un poco riguroso
+我的 玩老物件的师父 也是我的挚友。
 
-谢谢Qmay, 墨镜先生, 小白, Rain
-Gracias a Qmay, Señor Mojing, Xiaobai y Rain
+我早早的告诉他 不能打毒针。
 
-这个你们做的非常非常非常棒
-Lo hicieron muy bien
+他当然听我的 还打电话给他的儿子
 
-我们要做的事情一定要是
-Lo que vamos a hacer debe ser
+也别打。
 
-咱做这事儿
-Nosotros hacemos esto
+一直过了几个月都没打。
 
-咱把它这个他们的丧事儿, 给它变成共产党有史来最高级的
-Hagamos que sea su funeral y que sea el más alto nivel en la historia del Partido Comunista 
-所有制造的棺材都是要特殊材料
-Todos los ataúdes fabricados estarán hechos de materiales especiales
+有一天 我去看他 旁边一个人就说
 
-花圈都是特殊材料
-Las coronas son todos de materiales especiales
+你师父也打了针了。
 
-甚至用这个碳纤维carbon fiber都行
-Incluso se puede usar esta fibra de carbono o fibra
+我当即就确认 师父说的确打了。
 
-要做的精美细化
-Debe hacerlo exquisitamente refinado
+我问为什么 师父说：
 
-要用的音乐喇叭在(中共的)各国大使馆响起来的时候
-Cuando suene la música a través del parlante en las embajadas (PCCh) de varios países
+也没啥 他们生产队里说了 几次了。
 
-要达到了这个世界专家音乐水平的
-Debe alcanzar el nivel experto mundial en música
+我就知道 那帮孙子 肯定是威胁他了。
 
-比七哥唱H-coin to the moon还要厉害
-Y más poderoso que la canción que canté de H-coin to the moon
+师父淡淡的说：
 
-叫他们的家人, 他们的妈听到以后都直接想进天堂
-Para que su familia y sus madres luego que la escuchen quieran entrar de una vez al paraíso
+打就打吧 没什么的 死就死吧。
 
-非死不可的那种的
-Del tipo que debe morir sí o sí
+我当时一瞬间就马上感觉到
 
-这音乐听得他非死不可
-Debe morir sí o sí escuchando esta música
+我直接头皮发麻 腿脚都软了。
 
-让习近平, 彭丽媛他们可以听不见
-Xi Jinping y Peng Liyuan pueden no escucharla
+我恨 我能怎么恨
 
-只要他们听见, 他们就想死
-Y si la escuchan, querrán morir
+我难过 难过又能怎样。
 
-让王岐山, 姚明珊叫他们听见, 他们就想死
-También a Wang Qishan y Yaomingshan
+我感到一种幻灭。
 
-他有他母亲齐心
-Tiene a su madre Qi Xin
+我们那 哪有什么 青蒿素。
 
-他有习仲勋
-Tiene a Xi Zhongxun
+我冲去药店 给他买了 维生素群组。
 
-我让他母亲齐心知道
-Voy a hacer saber a su madre Qi Xin
+告诉他 一天吃两颗 增强抵抗力。
 
-你儿子对待别人的父母的感觉是什么样子
-Cómo trata su hijo hacia los padres de otros
+哎 国内
 
-你们一定要做到绝
-Ustedes deben hacerlo de manera absoluta
+在外面好好一点
 
-要不就别做
-O sino no lo hagan
+在国内 我救 我也救不过来
 
-要做就做到绝
-Y si lo hacen debe ser despiadadamente
+我劝 我也劝不动。
 
-我让所有驻海外的中共的大使馆的官员
-Voy a dejar que todos los funcionarios de la embajada del PCCh en el extranjero
+一年时间 我才劝了十个人。
 
-我让他们知道
-Voy a hacerlos saber
+每一个都是惊心动魄
 
-你们的父母一定不会老死
-Sus padres no morirán de manera natural
+医院根本不给开证明 没有证明 就必须要打。
 
-一定会被装在这个新中国联邦给准备的棺材里边去
-Se empaquetará en un ataúd preparado por el Nuevo Estado Federal de China
+要不然就 大吵大闹 医院。
 
-* * *
+想尽各种办法躲 避 逃。
 
-日期：12/11/2021
-原视频标题：最高级别送葬共产党
-El funeral del Partido Comunista al más alto nivel
-原视频日期：12/09/2021
-原视频网址：**[https://gettr.com/post/pj7lri2975](https://gettr.com/post/pj7lri2975)**
-任务编号：KC330(3162)
-视频时间段：0:00-1:43
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 ：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+90岁 的人 一个亲戚 老奶奶
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+睡在床上 动弹不得。
+
+他们直接冲去 家里 逼着打。
+
+（他能去哪 他能感染谁 ）
+
+（为什么连她老人家都不能放过）
+
+老人也觉得 活得也差不多了 也没理论什么。
+
+也就被打了。
+
+（悲哀）
+
+共产党 他们直接是在杀人。
+
+连终南山都说了：以后全国人民体质都要下降。
+
+癌症大幅度增加。
+
+我那时候 经常在亲朋好友微信群里发
+
+石墨烯成分 疫苗不成熟 更改基因 打疫苗的危害 疫苗不安全的知识 普及。
+
+其实真心话 没多少卵用。
+
+他们也知道不靠谱 就是他们愿意随大流。
+
+他们羊群效应。
+
+他们害怕共产党。
+
+他们想当 所谓的 ：顺民。
+
+会大脑分裂的
+
+我坚信我看到的真相。
+
+身边的人们 体质慢慢下降 村民慢慢死去
+
+有些人宁愿死 而且死了以后 都不会去质疑怀疑是共产党毒针害了他们性命。
+
+这个国家还有救吗
+
+有 灭了共产党 国家就有救。
+
+唯真不破 天灭中共。
+
+这个故事只是亿万同胞苦难的缩影。
+
+——来自墙内受压迫的同胞战友
+
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
+
 
  
 
