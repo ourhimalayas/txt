@@ -2,13 +2,11 @@
 ---
 
 
-## 岸田文雄在民主峰会上谴责中共侵犯人权
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1744937/)
+## 12/10/2021 文贵直播：中共国金融房地产的大部分钱来自国外金融机构，这本身就触碰了所谓的外商禁入产业和外汇管制政策和法律
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1744954/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12._12-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+秘密翻译组-北美组
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
