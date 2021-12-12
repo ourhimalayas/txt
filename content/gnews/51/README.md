@@ -2,47 +2,35 @@
 ---
 
 
-## 哥伦比亚最大的银行提供比特币交易
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1745606/)
+## 美国陆续出台制裁中共国芯片产业链的措施
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1745296/)
 
-**编者按：**
+作者：纽约香草山农场 -文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月10日，美国媒体报道，一份最新报告显示美国官员正在考虑禁止向中芯国际出口。
 
-在全球经济即将崩塌之际，加密数字货币已成为世界金融的聚焦热点与发展方向。而作为比特币并没有黄金锚锭，如来时有影，将去而无声，它始终带有原罪，没有中心负责的交易何以保持稳定地兑现法币?比特币虽然成为一些南美洲小国大银行的交易许可，然而作为这些地区的毒品交易，它不过成为一个洗钱的工具而已，它 将如一个匆匆过客，当经济大萧条崩盘时，比特币必将坠落而消失。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide6-3.jpeg)
 
-据《**Zerohedge**》记者：**TYLER DURDEN，2021**年**12**月**7**日报道：
+自2020年，中芯国际因与中共军方的连带关系，被美国列入黑名单，因此被拒绝获得美国供应商的先进制造设备。但跟据近期外媒报道，中芯国际一直在利用美国的监管漏洞购买美国技术，美国国防部已经就此提出了一项阻止出口的建议。
 
-比特币杂志投稿
-加密货币交易所**Gemini**周一在一份声明中表示，该公司将很快在哥伦比亚为该国最大银行**Bancolombia**的客户提供无阻力的比特币交易。然而，目前尚不清楚用户是否能够提取资金** —— **这是比特币实现金融主权的重要特征。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-122-e1639288136280.jpg)图片源自原文
-该合作伙伴关系是政府资助的试点计划的一部分。它将于12月14日推出，为Bancolombia的首批客户提供无缝的进出通道，以通过交易所交易比特币。
+近期，美国政府连续出台了多项政令，以针对中共的芯片产业链。上个月，美国通过了阻止英特尔在中共国的扩张计划。最近，美国政府要求三星和台积电交出与中共国相关的供应链“敏感信息”。
 
-Gemini战略和企业发展负责人Cynthia del Pozo García 在声明中表示：“此次合作也是Gemini在拉丁美洲战略扩张的重要一步。”
+参考链接：[U.S. Officials Consider Banning Exports To Chinese Chipmaker SMIC](https://www.zerohedge.com/markets/us-officials-consider-banning-exports-chinese-chipmaker-smic)
 
-“我们期待与哥伦比亚加密生态系统密切合作，并支持加密产品，使哥伦比亚人能够控制他们的财务生活。”
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
 
-**哥伦比亚政府通过该国的金融监管机构Superintendencia Financiera de Colombia (SFC) 启动了一项为期一年的试点计划，以更直接的方式为公民提供比特币和加密货币服务。**
+总编：Jack Li文阳
+编辑：Jack Li文阳
+校正/发稿：谐趣园
 
-“加密本质上是无国界的，我们致力于扩大对全球个人的加密访问，” del Pozo García 补充道。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-Bancolombia银行是Bancolombia集团的一部分，该集团还拥有巴拿马和中美洲最大的银行Banistmo；BAM，来自危地马拉；以及为萨尔瓦多客户提供服务的 Banco Agricola。根据其数据报告，截至2020年12月31日，该集团拥有1780万客户。
-
-今年1月，证监会宣布已从14家申请人中选择了9家加密货币交易所参与试点。除了Gemini之外，该名单还包括币安 (Binance) 和墨西哥公司Bitso。币安 (Binance)将与哥伦比亚第三大银行Davivienda和数字支付应用程序Powwi合作，而Bitso将与 Banco de Bogotá合作。
-
-文章来源：[https://www.zerohedge.com/crypto/colombias-biggest-bank-offer-bitcoin-trading](https://www.zerohedge.com/crypto/colombias-biggest-bank-offer-bitcoin-trading)
-
-翻译：洛杉矶盘古农场 – Raul
-
-校对：洛杉矶盘古农场 – Mike Li
-
-评论：洛杉矶盘古农场 – 滴水穿石
-
-编辑：洛杉矶盘古农场– 滴水穿石
-
-
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

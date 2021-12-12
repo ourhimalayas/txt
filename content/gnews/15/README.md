@@ -2,37 +2,32 @@
 ---
 
 
-## 有声|中共研发面部识别系统的公司被美国列入黑名单
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1746948/)
+## 美澳丹挪倡议对侵犯人权的网络技术实行监管和出口限制
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1746975/)
 
-配音：香草山美食部 – 玫瑰园
+**撰稿：日本东京方舟农场 北极**
 
+为期两天的全球民主峰会于星期五（12月10日）在美国落幕。在此次峰会期间，美国、澳大利亚、丹麦和挪威联合发起了一个名为“出口控制与人权”的倡议，对被滥用于侵犯人权的网络技术实行监管和限制。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-12月9日消息，美国财政部将于12月10日在中共投资黑名单中的“中共军工综合企业”名单上增加一家企业，即专门从事面部识别软件开发的中共国人工智能公司商汤科技。
+“出口控制与人权倡议”（The Export Controls and Human Rights Initiative）旨在应对威权政府滥用网络技术监视和侵入政治对手、新闻业者、活动人士和少数群体的通讯这一问题。
 
-据悉，12月10日是这家公司在香港股市首次公开募股的第一天，也是拜登总统与100个国家召开民主峰会的最后一天，同时，这一天也是世界人权日。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-149.png)美国总统拜登与国务卿布林肯出席线上“民主峰会”（图片来自《美国之音》）
 
-据知情人士爆料，华盛顿针对商汤科技的行动是美国为纪念世界人权日，对多个国家实施的一系列制裁措施的一部分，中共利用商汤科技的面部识别系统对新疆维吾尔族穆斯林实施了系统性人权侵犯。
+白宫一位高级官员在简报会上对记者表示，这项倡议的目标是让更多的政府参与进来，共同协作，有效管控那些可能被用来侵犯人权的技术，确保这些技术被用于良善，而不是邪恶的用途。
 
-文字版原文：[中共研发面部识别系统的公司被美国列入黑名单](https://gnews.org/zh-hans/1741944/)
+美国最近对以色列的NSO公司采取了行动，将其纳入受管制公司名单。这家公司制造的“飞马”（Pegasus）间谍软件被用来侵入记者和官员的智能手机，将这些手机变成间谍设备，使间谍软件用户可以阅读被监视目标的讯息和文件，追踪他们的位置，甚至在他们不知情时打开他们的摄像头。
 
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
-**更多资讯，更多关注**
+*参考链接：*
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[民主峰会闭幕之际 美澳丹挪宣布出口管控项目 限制输出用于压迫的网络工具](https://www.voachinese.com/a/as-democracy-summit-wraps-us-restricts-exports-of-cyber-tools-used-for-repression-20211210/6349515.html)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+* * *
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+*素材采编：北极*
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+*编辑：青衣青青*
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+*发布：Ranting*
 
  
 

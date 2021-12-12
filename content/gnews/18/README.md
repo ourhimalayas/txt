@@ -2,123 +2,41 @@
 ---
 
 
-## MV版Hcoin To the Moon上线第3天位列28国iTunes热门MV榜首！
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1746904/)
+## 有声|杨洁篪发动针对爆料革命的海外行动
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1746926/)
 
-12/12/2021 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线第3天位列28国iTunes热门MV榜榜首！
-
-* * *
-
-[【PDF 下载】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record.pdf)
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_2.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_3.jpg)
+配音：香草山美食部 – 玫瑰园
 
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_4.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_5.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_6.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_7.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_8.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_9.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_10.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_11.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_12.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_13.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_14.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_15.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_16.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_17.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_18.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_19.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_20.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_21.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_22.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_23.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_24.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_25.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_26.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_27.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_29.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_30.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_31.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_32.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_33.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_34.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_35.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_36.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+在12月10日的直播中，郭文贵先生着重提醒多个国家的战友务必注意人身安全。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_37.jpg)
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_38.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_39.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_40.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_41.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_42.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_43.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_44.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_45.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_46.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_47.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_48.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_49.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_50.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_51.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_52.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_53.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_55.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_56.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_57.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_58.jpg)
+据郭先生近日获得的情报表明，中共外交部杨洁篪正在发动多个国家的中共海外潜伏势力。目前，新一轮针对爆料革命的海外行动已经全面开始。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_59.jpg)
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_60-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_61-2.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_62-2.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_65-2.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_66-2.jpg)
+郭先生提到，持有塞浦路斯护照的上千名战友是这次行动的目标之一，如今已有十几位战友被捕。另外，迪拜和中共之间签署了遣返协议，因此，身处迪拜的战友绝对不安全。郭先生表示，希望这些地区的战友，尽快拿到免签护照，暂时离开这些国家。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_71.jpg)
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_72.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_73.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_74.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_75.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_76.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_77.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_78.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_79.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_80.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_81.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_82.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_84.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_85.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_86.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_88.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_89.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_90.jpg)
+郭先生还提及，加拿大有中共深度潜伏的特务，这些共产党情报人员正在收集战友们的个人信息，其目的就是为了挖出那些可以投资五亿到二十亿的有实力的战友。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_91.jpg)
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_92-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_93.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_94.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_95.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_96.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_97.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_99.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_100.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_101.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_104.jpg)
+郭先生强调，新中国联邦的战友们，无论是在中共国内、还是国外的，请务必注意自己的人身安全和个人信息安全，一定要保护好自己。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_105.jpg)
-[【PDF 下载】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record.pdf)
+文字版原文：[杨洁篪发动针对爆料革命的海外行动](https://gnews.org/zh-hans/1741824/)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+音频处理：喜山必胜Maverick
+发稿：Tom Li
+[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

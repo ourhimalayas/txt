@@ -2,149 +2,35 @@
 ---
 
 
-## 【樱花深度报道】中共可能将核导弹走私到委内瑞拉以突袭美国（上）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1746259/)
+## 美财政部设立基金奖励对外国领导人贪污腐败举报者
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1746069/)
 
-编译：东京樱花团/Hopkins
+作者：纽约香草山文艺部 宁文静
 
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-```
-编者按：英国太阳在线网站12月10日最新报道，专家警告说，中共可能会通过集装箱将核导弹走私到南美港口，以对美国发动突然袭击。军事分析人士对据信是北京悄悄发展的集装箱导弹能力敲响了警钟。
-```
+12月9日，在历时两天的全球民主峰会上，美国务卿布林肯和财长耶伦宣布联手打击贪污腐败，尤其针对外国领导人藏匿在美国的非法资产，将设立专项基金，重奖有效举报者。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-12-at-8.36.58-PM.png)
+为此，美国务院将设立全球反腐败协调员的角色，负责美国外交及对外援助方面的反腐能力的整合，实施白宫的首个反腐败战略；美财政部将成立专项“腐败资产追回奖励基金”，以鼓励提供外国领导人藏匿在美国境内所有非法资产线索的举报行动。耶伦说，财政部正在努力打击来自海外的洗钱和非法金融活动，包括用现金一次性支付巨额房产的交易行为。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-126.jpg)
+有时评人士称，美国政府反腐举措的推出，与爆料革命即将开展的对盗国贼家族的声讨举报，堪称珠联璧合。由此产生的蝴蝶效应，会在不久的将来全球上演。
 
+参考链接：[Treasury’s Yellen vows big push against corruption, new ‘kleptocracy fund’](https://www.reuters.com/business/finance/treasurys-yellen-vows-big-push-against-corruption-new-kleptocracy-fund-2021-12-09/%20https://gettr.com/post/pj7o1le4fc%20https://gettr.com/post/pjd0r087bb)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
 
-```
-（图片说明）有消息称，中共正在研制一种更大版本的武器，作为其太空计划的国家法令“军民两用”协议的一部分。
-```
+总编：正义的小新
+编辑：Lakeman文仁
+校正/发稿：我不在这里
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-
-```
-用于发射卫星的大型火箭可以很容易地重新用作紧凑型集装箱大小的具有核能力的导弹。
-```
-
-
-
-```
-国际评估与战略中心亚洲军事事务高级研究员里克·费舍尔告诉太阳在线，中共有可能将这些武器走私到南美，以便对美国进行偷袭。
-```
-
-
-
-```
-与此同时，美国太平洋舰队前情报主管詹姆斯·法内尔上尉表示，太空火箭集装箱发射器显然是用于军事用途的。
-```
-
-
-
-```
-亨利杰克逊协会的中国问题专家山姆阿姆斯特朗表示，这些集装箱导弹可能是中共在世界各地走私武器的关键——包括向委内瑞拉等流氓国家走私武器。
-```
-
-
-
-```
-中共已暗示其大型集装箱导弹武器。
-```
-
-
-
-```
-私人公司 OneSpace 公布了其 OS-M2 运载火箭的宣传视频 - 一种用于射入太空的 31 吨火箭。
-```
-
-
-
-```
-它显示了火箭被装入集装箱并隐藏起来 - 在从卡车、火车、飞机和轮船发射之前。
-```
-
-
-
-```
-这段视频似乎更像是一种军事技术——例如俄罗斯和朝鲜部署的火车发射器——而不是太空技术。
-```
-
-
-
-```
-如果将这些武器部署到对中国友好的南美国家，例如巴拿马或委内瑞拉，可能会引发现代古巴导弹危机。
-```
-
-
-
-```
-1962 年 10 月冷战时期发生了苏联试图在古巴放置导弹——将世界推向第三次世界大战的边缘。
-```
-
-
-
-```
-费舍尔先生告诉太阳在线：“未来潜在的基于 OS-M2 的‘洲际弹道导弹’可能隐藏在中国控制的巴拿马港口或与中国结盟的委内瑞拉港口，以瞄准所有美国。
-```
-
-
-
-```
-“或者正如 OneSpace 视频所表明的那样，他们的集装箱 SLV 可以部署在大型货船上，也可以由波音 747 货运班机部署到无数有利的发射地点。”
-```
-
-
-
-```
-众所周知，中共正在扩大其在南美洲的影响力——促进与该地区国家的贸易和投资。
-```
-
-
-
-```
-火箭科学家并未意识到这只是中共应对非对称战争的另一种方式
-```
-
-
-
-```
-詹姆斯·范内尔上尉说。
-```
-
-
-
-```
-委内瑞拉也被视为美国在南美最大的敌人之一，并且正在悄悄地讨好中共——从北京获得至少 450 亿英镑的贷款。
-```
-
-
-
-```
-与此同时，随着其全球影响力的提升，共产党也在寻求向非洲扩张。
-```
-
-
-
-```
-即使目标不是冲突，中共也可以使用隐藏武器作为导弹外交的一种形式——比如将武器转移到委内瑞拉时。
-```
-
-
-
-```
-而且它们还可以用来偷偷违反武器禁运——而不是作为攻击计划的一部分。
-```
-
-
-作者：Henry Holloway，TARIQ TAHIR  Foreign News Reporter in London
-
-信息来源：
-
-[China could smuggle nuclear missiles hidden in shipping containers to Venezuela for surprise attack on US, experts warn](https://www.thesun.co.uk/news/16963561/china-smuggle-nuclear-missiles-venezuela/)
-
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
-
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 
