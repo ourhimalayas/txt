@@ -2,33 +2,30 @@
 ---
 
 
-## 有声|美参议院投票否决拜登政府的疫苗强制授权
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1745158/)
+## 樱花灭共诗——赠别孟凡海
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1745244/)
 
-配音：香草山香港部 – 文凯琳
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-12月8日，美国参议院以52比48，否决了拜登政府针对大企业的疫苗强制令。
+撰稿：东京樱花团/小小杜
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-584.png)
+未离询去处，
 
-按照职业安全和健康管理局（OSAH）发布的规定，对人数不少于100人的企业，雇主需要在2022年1月4日前，要求其员工接种疫苗，或定期接受检测。
+君已白头翁。
 
-印第安纳州参议员迈克·布劳恩称，这是政府的强硬手段，是过度干预。很多共和党人也认为，拜登政府的疫苗强制令，严重侵犯了美国公民的自由。
+大路余残叶，
 
-据11月底公布的民意调查显示，高达86%的美国就业人员反对，业主解雇拒绝接种疫苗的员工。
+天边只北风。
 
-文字版原文：[美参议院投票否决拜登政府的疫苗强制授权](https://gnews.org/zh-hans/1737854/)
+世传朝国裕，
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
+谁问子民穷。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+不惜将衰老，
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+奔波道路中。
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

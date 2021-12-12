@@ -2,36 +2,23 @@
 ---
 
 
-## 德国学校搞仪式侮辱未接种疫苗儿童
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1745202/)
+## 新冠疫情爆发前秘密签署了mRNA新冠疫苗转让协议
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1745295/)
 
-翻译：美哥
-编辑：守望黎明
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-143.png)图片来源：Everyday Health
-德国的学校正在开始对未打中共疫苗的幼童举行羞辱仪式，让他们被迫在全班面前，解释自己不打疫苗的原因，而且每天如此。记者亚历克斯-斯托里（Alex Story）说：“老师对打过疫苗的小朋友就拍手赞赏，对没打疫苗的小朋友则天天进行这种公示质询。”
+翻译：喜国公民
+视频来自网络
+格林贝克节目主持人贝克先生接受[塔克卡尔森采访时披露](https://www.foxnews.com/shows/tucker-carlson-tonight)，在2019年12月，即新冠大流行爆发的几星期前，有一项秘密转让mRNA冠状病毒疫苗技术的协议。
 
-是的，这是真的！
+[该转让协议在推特上也有报道](https://twitter.com/pbhushan1/status/1406998785348182017)。这份日期为2019年12月12日的协议是由福奇管辖的美国国家过敏和传染病研究所 、莫得纳公司和巴里克博士签署的，将”美国国家过敏和传染病研究所和莫得纳共同拥有的mRNA冠状病毒候选疫苗”转让给巴里克（武汉病毒研究所制造致命冠状病毒的合作伙伴）!
 
-斯托里讲述了这一令人震惊的事件，德国媒体对此进行了报道。
+奇怪的是，签署秘密协议的几周后就爆发了全球范围的新冠病毒大流行。之后，巴里克等人在1月底开会，开始诋毁任何提出实验室泄漏理论的人。他们极力掩盖实验室泄漏。甚至提出不要去武汉那里检查。
 
-斯托里对英国媒体GB 新闻说道：”这本质上是对儿童进行羞辱的仪式性，让他们每天走到班级前面，讲述自己的疫苗接种情况。”
+在2021年5月参议员兰德·保罗在参议院卫生委员会听证会上与福奇辩论时，提到巴里克博士一直与武汉病毒研究所的石正丽合作，分享他关于如何创造超级病毒的研究成果。
 
-此外，德国政府只让打过疫苗、佩戴有手环的民众有资格进入商场，从而禁止不打疫苗的人购物。简直就如同上世纪30年代纳粹对待犹太人的方式。
+贝克先生已经把这个信息交给了国会和参议院的几个人，兰德·保罗议员正在处理这个问题。相信福奇博士对此要给出答案。
 
-柏林的有一个咖啡店因为给未打疫苗的人发放免费咖啡以表示支持，就招来媒体疯狂的抵制。
-
-看来现任德国领导人完全淡忘了历史，希特勒第三帝国昔日的歧视政策在最不应该出现的的地方回光返照了。
-
-原文链接：[German Schoolchildren Subjected to ‘Ritual Humiliation’ Over Their Vaccine Status](https://summit.news/2021/12/10/german-schoolchildren-subjected-to-ritual-humiliation-over-their-vaccine-status/)
-
-发布：去中心化Math
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

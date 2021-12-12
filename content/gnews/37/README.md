@@ -2,86 +2,44 @@
 ---
 
 
-## 千万不要放松对病毒的警惕性
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1744904/)
+## 澳大利亚免疫技术专家咨询小组（ATAGI）透露其从未建议实施有争议的中共疫苗强制令，令人震惊
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1744949/)
 
-[https://gtv.org/video/id=61b4bef287fa7e74c92e9baa](https://gtv.org/video/id=61b4bef287fa7e74c92e9baa)
+**编译：心语心声**
 
-**郭文贵**
-**Miles Guo**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-583.png)图片来源：纽约时报
 
-千万别以为这个病毒（Omicron）
-Don’t ever think the new virus’ (Omicron)
+澳大利亚免疫技术咨询小组（ATAGI）在本周举行议会委员会听证会表示他们从未推荐过中共疫苗强制令，以此与各州现在所执行的中共疫苗强制令的决定保持距离，
 
-你认为它致死率低，你就放松警惕
-You think the fatality rate is low, so you can let your guard down
+该专家组并坚称，在任何时候都没有向各州提出过关于中共疫苗强制令的建议，由此而造成的全国范围内广泛的民众抗议。
 
-我可以告诉大家，你要染上病毒和没染上病毒的人，一定是天地之差
-I can tell you all that there must be a huge difference between those who are infected and those who are not
+该专家组在本周三的议会委员会听证会接受了质询，被问及如果90%的人口都进行了双针注射，那么有争议的强制令是否还有必要实行下去。专家组主席则回答如何推广中共疫苗接种由各州的公共卫生令决定。他声称，我们相信疫苗接种的好处和安全性，如何实施和推广绝对是由各州的公共卫生令决定。
 
-什么毒你也不要染上
-You should not catch any virus
+这一消息是在治疗用品管理局批准Moderna疫苗作为18岁以上人群的加强针后披露的。
 
-还有一个，它现在没有得到验证不死人
-One more, the virus is not proven to be lethal
+预计澳大利亚人 “很快 “就能在Pfzier和Moderna加强针之间做出决定。
 
-但不等于以后不死人
-but that doesn’t mean it won’t kill you in the future
+联邦卫生部长格雷格-亨特宣称加强剂计划对于预防中共疫苗变种像目前的欧米茄从根本上说是很重要的。
 
-而且你不知道共产党会不会放新病毒
-And you don’t know if the Communists will release a new virus
+大多数澳大利亚人计划进行第三次加强针注射，但很多民众犹豫不决的情况仍然存在。
 
-兄弟姐妹们千万呆在家里
-Brothers and sisters, stay at home
+澳大利亚国立大学的一项新调查发现，71.9%的接种过疫苗的成年人虽然有考虑打第三针加强针，但对潜在的副作用仍有顾虑。目前约有88.5%的16岁以上的澳大利亚人是双重接种，93%的人已经接种过一次疫苗。
 
-千万准备好药
-Be prepared with medicines
+新南威尔士州、维多利亚州和澳大利亚首领地是超过90%的16岁以上人口已经完全接种疫苗的州。
 
-更重要的是灾难疫苗不会因为这个会停止
-More importantly, the vaccine disaster will not stop because of this
+超过58万名澳大利亚人已经接受了第一剂加强针注射，被建议至少6个月后再进行第二剂加强针注射。
 
-我不相信这个世界一半打了疫苗的人都知道吃青蒿素
-I don’t believe that half the people in the world who have been vaccinated know to take artemisinin
+新闻来源：[澳大利亚免疫技术专家咨询小组（ATAGI）透露其从未建议实施有争议的中共疫苗强制令，令人震惊](https://www.dailymail.co.uk/news/article-10289849/Therapeutic-Goods-Administration-expert-panel-didnt-recommend-Covid-vaccine-mandates.html)** （**英国每日时报）
 
-我不相信
-I don’t believe it
+*发布：盘古相聚*
 
-疫苗灾难我觉得会减缓，不会受到任何影响
-I think the vaccine disaster will slow down and not be affected in any way
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-我们的真正的噩梦的时间还没有来呢
-Our real nightmare has not come yet
 
-人类要经历一次巨大的考验，才能分出这个世界的阴阳两极
-Humanity have to go through a great test to be able to separate the yin (dark) and yang (light) of this world
-
-最后才能分出了好人、坏人，最后剩下是谁
-Eventually, good people and bad people can be distinguished
-, and (we will know) who will survive at the end
-
-千万不要有任何侥幸的心理，不要有幻想，好吧？
-Never take any chances, never have any illusions, okay？
-
-**原视频链接:** [https://gettr.com/post/pihaudccc6](https://gettr.com/post/pihaudccc6)
-
-Date:12/03/2021
-原视频标题: 千万不要放松对病毒的警惕性
-Never let down your guard against viruses
-原视频日期：2021/12/01
-原视频链接https://gettr.com/post/pihaudccc6
-任务编号：KC326(3090)
-视频时间段 : 0:00-01:03
-
-中听校 : 洛杉矶盘古农场 – Layka
-翻译 : 洛杉矶盘古农场 – Layka & Mike Li
-翻译终校：洛杉矶盘古农场 – Freeearth
-字幕+视频制作：洛杉矶盘古农场 – 汪汪
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
