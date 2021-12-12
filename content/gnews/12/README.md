@@ -2,20 +2,34 @@
 ---
 
 
-## 日本和韩国外长首次会晤，谈话涉及慰安妇
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1745589/)
+## 习近平家族布局全球社交媒体
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1745623/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-608.png)[图片来源](https://news.yahoo.co.jp/articles/629c02a4c6fae184eb652b3381c9dfe0925d0b32)
-时事通信社12月12日消息：日本时间12日在利物浦举行的七国集团外长晚宴上，日本外长林芳正与韩国外长郑义溶进行了简短的交谈。
+作者：纽约香草山农场-文真
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-6.png)
+在12月10日的大直播中，郭文贵先生爆料，中共在全球投资了近三万家社交媒体。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-604.png)
+2016至2017年期间，郭先生曾在许多重大场合揭露社交媒体是中共的核武器，当时遭到众多非议。直到2020年中共病毒大流行和美国大选，主流社交媒体联合一致对自由言论进行打压，西方国家才清醒地认识到社交媒体对西方民主的危害。
 
-林芳正要求对前劳工和慰安妇问题作出适当的应对，但郑义溶重申了韩国的立场，触碰到了这一话题的平行点。这是林芳正上任以来日本和韩国外长之间的首次接触。林芳正说，是韩国方面主动跟他搭话。
+文贵先生爆料，习近平家人早在2006年以前，就开始在海外投资社交媒体了。习近平家族控制华为公司、中兴公司和稀土资源的目的，就是相信社交硬件、社交媒体是社交必需品，控制社交媒体就控制了人类的未来。
 
-信息来源：[元徴用工、慰安婦で平行線　日韓外相が初対面（時事通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/629c02a4c6fae184eb652b3381c9dfe0925d0b32)
+共产党善于利用社交媒体给人洗脑，划分派别，散布仇恨。过去二十年，社交媒体蓬勃发展，使用社交媒体的人群集中在15至45岁，同时他们也是受社交媒体毒害最深的人群。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
+新闻链接：[2021年12月10日 文贵大直播](https://gtv.org/video/id=61b350ad56f4921401b40cca)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-4.png)
+
+总编/编辑：飞虹
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-6.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

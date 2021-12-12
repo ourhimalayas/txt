@@ -2,24 +2,47 @@
 ---
 
 
-## 日本将不会派内阁高官参加中共冬奥会
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1745565/)
+## 哥伦比亚最大的银行提供比特币交易
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1745606/)
 
-#### 翻译/撰稿：黃金精神
+**编者按：**
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-19.jpg)图片来源：德国之声
-12月11日据零对冲（ZeroHedge）报道，截至目前，英国、加拿大、澳大利亚、新西兰和立陶宛已经表示不会派政府官员参加在中共举办的2022年冬奥会，其中新西兰以中共病毒为主要理由，此前美国公布了自己的外交抵制。在过去的一周，美国的上述盟友加入了美国的抵制行动，同时引用了对中共人权记录的长期批评。
+在全球经济即将崩塌之际，加密数字货币已成为世界金融的聚焦热点与发展方向。而作为比特币并没有黄金锚锭，如来时有影，将去而无声，它始终带有原罪，没有中心负责的交易何以保持稳定地兑现法币?比特币虽然成为一些南美洲小国大银行的交易许可，然而作为这些地区的毒品交易，它不过成为一个洗钱的工具而已，它 将如一个匆匆过客，当经济大萧条崩盘时，比特币必将坠落而消失。
 
-现在日本也加入了这一不断增加的名单，《读卖新闻》（Yomiuri newspaper）周六援引多名知情人士消息称，日本政府高官可能不参加2月中共举办的冬奥会，而加入美国的外交抵制。日本国家广播公司NHK也证实了这一报道，称东京“倾向于不派内阁部长参加即将举行的北京冬奥会”。另外NHK称，目前预计出席的唯一官员是与奥运会有关的人员，包括东京奥组委前负责人桥本清子（Seiko Hashimoto）。
+据《**Zerohedge**》记者：**TYLER DURDEN，2021**年**12**月**7**日报道：
 
-中共谴责外交抵制是“政治姿态”，同时再次“代表中国人”表示中国人不在乎美国是否出席，并称美国反正没有被邀请。但美国有能力让其他国家跟随他的行列，这将是中共难以忽视的，此前中共官员曾警告说（如果其他国家加入美国外交抵制）将有未可知的报复性措施。
+比特币杂志投稿
+加密货币交易所**Gemini**周一在一份声明中表示，该公司将很快在哥伦比亚为该国最大银行**Bancolombia**的客户提供无阻力的比特币交易。然而，目前尚不清楚用户是否能够提取资金** —— **这是比特币实现金融主权的重要特征。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-122-e1639288136280.jpg)图片源自原文
+该合作伙伴关系是政府资助的试点计划的一部分。它将于12月14日推出，为Bancolombia的首批客户提供无缝的进出通道，以通过交易所交易比特币。
 
-上个月末，当有报道开始显示日本正在酝酿外交抵制时，中共官员警告不要将体育和政治混为一谈。中共提醒日本领导人，中共已经“完全支持”日本的夏季奥运会。
+Gemini战略和企业发展负责人Cynthia del Pozo García 在声明中表示：“此次合作也是Gemini在拉丁美洲战略扩张的重要一步。”
 
-日本政府尚未确认全面的外交抵制，这意味着日本可能派出较低级别的官员（参加冬奥会）。但在中共眼里这仍将是足够的侮辱。
+“我们期待与哥伦比亚加密生态系统密切合作，并支持加密产品，使哥伦比亚人能够控制他们的财务生活。”
 
-新闻来源：[Top Japan Officials To Join US Boycott Of Beijing Olympics As List Grows](https://www.zerohedge.com/political/top-japan-officials-join-us-boycott-beijing-olympics-list-grows)
+**哥伦比亚政府通过该国的金融监管机构Superintendencia Financiera de Colombia (SFC) 启动了一项为期一年的试点计划，以更直接的方式为公民提供比特币和加密货币服务。**
+
+“加密本质上是无国界的，我们致力于扩大对全球个人的加密访问，” del Pozo García 补充道。
+
+Bancolombia银行是Bancolombia集团的一部分，该集团还拥有巴拿马和中美洲最大的银行Banistmo；BAM，来自危地马拉；以及为萨尔瓦多客户提供服务的 Banco Agricola。根据其数据报告，截至2020年12月31日，该集团拥有1780万客户。
+
+今年1月，证监会宣布已从14家申请人中选择了9家加密货币交易所参与试点。除了Gemini之外，该名单还包括币安 (Binance) 和墨西哥公司Bitso。币安 (Binance)将与哥伦比亚第三大银行Davivienda和数字支付应用程序Powwi合作，而Bitso将与 Banco de Bogotá合作。
+
+文章来源：[https://www.zerohedge.com/crypto/colombias-biggest-bank-offer-bitcoin-trading](https://www.zerohedge.com/crypto/colombias-biggest-bank-offer-bitcoin-trading)
+
+翻译：洛杉矶盘古农场 – Raul
+
+校对：洛杉矶盘古农场 – Mike Li
+
+评论：洛杉矶盘古农场 – 滴水穿石
+
+编辑：洛杉矶盘古农场– 滴水穿石
+
+
+![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入: (或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

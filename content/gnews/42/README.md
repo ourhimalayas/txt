@@ -2,36 +2,39 @@
 ---
 
 
-## 德国学校搞仪式侮辱未接种疫苗儿童
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1745202/)
+## 岸田文雄支持台湾参与世界卫生组织
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1745217/)
 
-翻译：美哥
-编辑：守望黎明
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-143.png)图片来源：Everyday Health
-德国的学校正在开始对未打中共疫苗的幼童举行羞辱仪式，让他们被迫在全班面前，解释自己不打疫苗的原因，而且每天如此。记者亚历克斯-斯托里（Alex Story）说：“老师对打过疫苗的小朋友就拍手赞赏，对没打疫苗的小朋友则天天进行这种公示质询。”
+作者：纽约香草山教育部 – Irene木木
 
-是的，这是真的！
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-440.png)
 
-斯托里讲述了这一令人震惊的事件，德国媒体对此进行了报道。
+当地时间12月9日，日本首相岸田文雄在声明中表示，日本将支持台湾以观察员的身份出席世界卫生组织决策机构的年度会议。
 
-斯托里对英国媒体GB 新闻说道：”这本质上是对儿童进行羞辱的仪式性，让他们每天走到班级前面，讲述自己的疫苗接种情况。”
+![](https://assets.gnews.org/wp-content/uploads/2021/12/6-22.jpg)
 
-此外，德国政府只让打过疫苗、佩戴有手环的民众有资格进入商场，从而禁止不打疫苗的人购物。简直就如同上世纪30年代纳粹对待犹太人的方式。
+岸田文雄提到，世界卫生组织一直坚持认为，在处理国际卫生问题时不应存在地理空白，台湾理应作为观察员出席会议。他还提出，广泛分享各国和各地区的信息与知识是很重要的，尤其在全球疫情问题上，台湾采取了很好的防控措施。
 
-柏林的有一个咖啡店因为给未打疫苗的人发放免费咖啡以表示支持，就招来媒体疯狂的抵制。
+此前，由于中共国的反对，台湾被排除在大多数国际组织之外。在今年5月，包括日本在内的七大工业国就曾呼吁邀请台湾出席上一轮的世界卫生大会，但台湾未能成行。为此，日本参议院在6月通过了一项决议，要求政府敦促其他国家尽快实现台湾在世卫组织的出席。
 
-看来现任德国领导人完全淡忘了历史，希特勒第三帝国昔日的歧视政策在最不应该出现的的地方回光返照了。
+参考链接：
 
-原文链接：[German Schoolchildren Subjected to ‘Ritual Humiliation’ Over Their Vaccine Status](https://summit.news/2021/12/10/german-schoolchildren-subjected-to-ritual-humiliation-over-their-vaccine-status/)
+- [Japan PM Kishida backs Taiwan’s WHO attendance](https://english.kyodonews.net/news/2021/12/300db10483c2-japan-pm-kishida-backs-taiwans-who-attendance.html)
 
-发布：去中心化Math
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
 
+总编辑：Ivy001
+编辑：Jack Li文阳
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-28.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

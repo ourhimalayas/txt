@@ -2,20 +2,42 @@
 ---
 
 
-## 秘翻在线：又一个！曼联球员林德洛夫比赛中突然胸痛和心脏不适
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1745935/)
+## 美国向乌克兰提供导弹和火箭发射器
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1746009/)
 
-#### 翻译/撰稿：zzballack
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-#### 校对：白夜
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-609.png)   图片来源：每日邮报
-据《网关专家》（Gateway Pundit）12月11日报道，在英国时间12月11日晚间进行的诺维奇对阵曼联的英超比赛中，曼联后卫维克托·林德洛夫 (Victor Lindelöf)在比赛进行到第70分钟时，在一次对抗后突然感觉胸口疼痛，而且心率过快、呼吸困难，在经队医检查后不得不提前提前离场。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/1560429199-6740-1.jpg)
 
-曼联队的门将大卫·德赫亚（David de Gea）表示：“当我看到林德洛夫突然呼吸困难时，不禁想起了克里斯蒂安·埃里克森（Christian Eriksen）和塞尔希奥·阿圭罗（Sergio Agüero），这种情况真的很让人担心，生命安全第一，我希望他没事。”丹麦球员埃里克森在今夏的欧洲杯比赛中，因心脏骤停晕倒在球场上，之后被送往医院抢救。而巴塞罗那前锋阿圭罗在11月8日的比赛中，也是在一次对抗后突然胸口不适，被迫提前下场。阿圭罗在随后的体检中被查出心律失常，这类心脏病非常危险，可能导致他提前退役。
 
-林德洛夫的情况不是少数个例，自新冠疫苗开始推广以来，越来越多运动员突然晕倒或心脏骤停，有些人甚至死亡。已有许多人开始关注这一反常现象，怀疑其是否与疫苗有关。无奈审查与疫苗有关言论的网络太过森严，这些声音立即就被拦截或删除，鼓吹疫苗接种的声音仍占据主流。正如文贵先生所说，当明年5月疫苗灾难开始爆发时，随着人们逐渐看清疫苗真相，全球才会觉醒，共同应对人类这一史无前例的危机。
+ 
+图片来源: NSDC
 
-新闻来源：[Another One… Manchester United Player Stops Play, Leaves Game Early with Reported Chest Pains](https://www.thegatewaypundit.com/2021/12/another-one-manchester-united-player-stops-play-leaves-game-early-reported-chest-pains/?utm_source=add2any&amp;utm_medium=PostBottomSharingButtons&amp;utm_campaign=websitesharingbuttons)
+
+#### 整理报道 ：小红帽
+
+**根据RT新闻12月11日报道，美国五角大楼披露了向基辅运送反坦克导弹系统和射弹的细节，原因是莫斯科越来越担心乌克兰顿巴斯地区爆发全面冲突。**
+
+在俄罗斯新闻媒体塔斯社周四收到的一份声明中，五角大楼发言人安东·塞梅尔罗斯（Anton Semelroth）中校表示：“价值6000万美元的货物……包括30个标枪指挥和控制发射器，以及180枚导弹”。据悉，火箭发射器于10月23日交付给乌克兰。
+
+“2021年，美国向乌克兰拨出超过4.5亿美元的援助用于安全任务，作为我们继续致力于支持乌克兰捍卫其主权和领土完整的能力的一部分，”塞梅尔罗斯补充说。
+
+乌克兰军事情报局局长基里尔·布达诺夫（Kirill Budanov）透露，乌克兰军队已经测试了由美国制造的先进标枪系统，并被顿巴斯的士兵使用。
+
+俄罗斯驻华盛顿大使阿纳托利·安东诺夫（Anatoly Antonov）在11月初警告白宫，向乌克兰提供致命武器装备可能会削弱该地区和平的希望。莫斯科认为“另一个鼓励基辅停止战争的机会已经错过”。
+
+乌克兰东部的冲突始于2014年独立广场事件，该事件最终导致顿涅茨克和卢甘斯克的“人民共和国”宣布独立。然而，莫斯科和基辅都没有正式承认他们。克里姆林宫坚持认为，乌克兰有责任与分离地区的领导人达成和平协议。
+
+新闻来源：[US delivers rockets to Ukraine — RT Russia & Former Soviet Union](https://www.rt.com/russia/542840-ukraine-delivery-american-rockets/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
