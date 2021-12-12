@@ -2,23 +2,86 @@
 ---
 
 
-## 【粤语配音】2021年12月10日：欧洲四国坚决抵制北京冬奥会
-` MOS香港部` [轉載自GNews](https://gnews.org/zh-hans/1744710/)
+## 千万不要放松对病毒的警惕性
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1744904/)
 
-紐約香草山-香港部
+[https://gtv.org/video/id=61b4bef287fa7e74c92e9baa](https://gtv.org/video/id=61b4bef287fa7e74c92e9baa)
 
-大概在20分钟以前，欧洲的大概四个国家，明确地给中国说，我们要抵制奥运会说，不但抵制奥运会，最重要的做出一个决定，我们正在考虑与你中共经济脱钩，我们要在WTO对你发起一系列的抗议。
+**郭文贵**
+**Miles Guo**
 
-他说今天我们发出去以后，三分钟内给回复：“稍慢，我们逐级上报，我们今天争取给你们回复”共产党啊..你们永远要记住，兄弟姐妹们，七哥告诉你们这个历史的事件。
+千万别以为这个病毒（Omicron）
+Don’t ever think the new virus’ (Omicron)
 
-人家说，我不说什么立陶宛，我不谈任何事情，我也不谈WTO了，我也不谈跟你的汇率问题
-我现在就明确地告诉你，我们肯定抵制奥运 ，这四国基本代表整个欧盟了，就连日本现在里面各种说法都有，但是日本今天，就是几个小时以前，大变。
+你认为它致死率低，你就放松警惕
+You think the fatality rate is low, so you can let your guard down
 
-我告诉大家来源是什么？什么原因导致的？就是中共的内部做出了强硬的决定，给各国所谓的跟“五眼联盟”说，你要敢对中共抵制奥运，后果很严重，就是威胁，那不仅仅是不让你美国人说，我不让你干这，我不让你干那的问题，说我要对美国的企业，甚至到苹果要大开杀戒，跟日本明确地说，如果你敢再在那猖狂地说，抵制奥运，对日本在华的企业，全面关闭，我都查你的税。
+我可以告诉大家，你要染上病毒和没染上病毒的人，一定是天地之差
+I can tell you all that there must be a huge difference between those who are infected and those who are not
 
-原因还有一个就是俄罗斯，在俄罗斯这次上太明确的，俄罗斯就告诉了美国和欧洲，你们绝对不允许，两件事不能把我们放在一起，我可以告诉大家，今天文贵说的是，天下第一个人说出来的，你说俄罗斯说什么，“绝对不允许把我们和乌克兰和台湾和共产党的行动放在一起，绝对没有这事，你们千万别这么想，那将是战略上的重大失误，咱们之间就会出大误会了，第二件事情，你们千万别把共产党的病毒和疫苗，还有这个整个疫苗政策和共产党的经济，跟我俄罗斯绑在一起，我们绝对跟他不一样，最后南海问题，我们跟中共绝对不同步，它给我们钱，我们就去转悠，我们在哪儿都是转悠”
+什么毒你也不要染上
+You should not catch any virus
 
-记住这是今天七哥跟你们说的，历史性的时刻，还会过一、两年向你们证明
+还有一个，它现在没有得到验证不死人
+One more, the virus is not proven to be lethal
+
+但不等于以后不死人
+but that doesn’t mean it won’t kill you in the future
+
+而且你不知道共产党会不会放新病毒
+And you don’t know if the Communists will release a new virus
+
+兄弟姐妹们千万呆在家里
+Brothers and sisters, stay at home
+
+千万准备好药
+Be prepared with medicines
+
+更重要的是灾难疫苗不会因为这个会停止
+More importantly, the vaccine disaster will not stop because of this
+
+我不相信这个世界一半打了疫苗的人都知道吃青蒿素
+I don’t believe that half the people in the world who have been vaccinated know to take artemisinin
+
+我不相信
+I don’t believe it
+
+疫苗灾难我觉得会减缓，不会受到任何影响
+I think the vaccine disaster will slow down and not be affected in any way
+
+我们的真正的噩梦的时间还没有来呢
+Our real nightmare has not come yet
+
+人类要经历一次巨大的考验，才能分出这个世界的阴阳两极
+Humanity have to go through a great test to be able to separate the yin (dark) and yang (light) of this world
+
+最后才能分出了好人、坏人，最后剩下是谁
+Eventually, good people and bad people can be distinguished
+, and (we will know) who will survive at the end
+
+千万不要有任何侥幸的心理，不要有幻想，好吧？
+Never take any chances, never have any illusions, okay？
+
+**原视频链接:** [https://gettr.com/post/pihaudccc6](https://gettr.com/post/pihaudccc6)
+
+Date:12/03/2021
+原视频标题: 千万不要放松对病毒的警惕性
+Never let down your guard against viruses
+原视频日期：2021/12/01
+原视频链接https://gettr.com/post/pihaudccc6
+任务编号：KC326(3090)
+视频时间段 : 0:00-01:03
+
+中听校 : 洛杉矶盘古农场 – Layka
+翻译 : 洛杉矶盘古农场 – Layka & Mike Li
+翻译终校：洛杉矶盘古农场 – Freeearth
+字幕+视频制作：洛杉矶盘古农场 – 汪汪
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

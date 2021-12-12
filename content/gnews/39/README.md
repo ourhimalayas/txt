@@ -2,10 +2,10 @@
 ---
 
 
-## 自从中共国加入世贸，美国经济开始被一点点掏空
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1743204/)
+## 杰森.米勒：盖特推出抽奖活动以帮助真正有需要的人
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1743206/)
 
-12/09/2021 参议员汤姆·科顿指出中共国20年前加入世贸组织完全是美国工业基础被蚕食，经济被掏空和工薪阶层被消灭的开始。
+12/09/2021 杰森.米勒：盖特将推出一系列抽奖活动以帮助那些真正有需要的人。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

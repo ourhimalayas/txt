@@ -2,26 +2,32 @@
 ---
 
 
-## 澳大利亚、丹麦、挪威将与美国共同限制向中共出口技术
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1742558/)
+## 澳大利亚的疫苗护照，是出于政治需要还是医疗原因？
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1742917/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-539.png)[图片来源](https://www.or123.net/?p=255943)
-白宫周五(12月10日）宣布，澳大利亚、丹麦和挪威将与美国一道行动，限制向利用科技产品进行压制的政府（中共国等）出口技术。
+作者：悯先生
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片-1-22.jpg)
+近日，Australian Technical Advisory Group on Immunisation (ATAGI)的免疫学专家参加澳大利亚议会所举行的听证会。
 
-白宫上周表示，它成立这个组织的目的是解决“滥用某些两用技术，可能导致侵犯人权”的问题，并确保“关键和新兴科技为民主社会服务，而不是反对民主社会”。
+被问到关于由各州制定的疫苗护照是否有必要的的时候，ATAGI的主席Christopher Blyth说，ATAGI从未推荐强制疫苗。
 
-周五，它公布了承诺与它合作的国家的名单，并补充说，加拿大、法国、荷兰和英国支持这一举措。
+他继续解释，如何具体推广疫苗和管理，是各州自己决定。
 
-“在未来一年的行动中，我们承诺致力于建立一套自愿的、不具约束力的书面行为准则，志同道合的国家可以在政治上承诺，利用出口控制工具，防止被用于严重侵犯人权的软件和其他技术的扩散，”成员国在一份声明中表示。
+同时，另一位专家Allen Cheng对澳洲已形成新冠病毒群体免疫的观点有自己的看法。他提出，疫苗并非100%有效，有效性会随时间推移减弱，而且病毒有变异情况。
 
-上述宣布是在12月9—10日美国总统拜登召开的民主峰会上做出的。峰会的目标是帮助阻止民主倒退以及世界范围内权利和自由受到侵蚀。此次峰会的邀请名单中不包括中共国和俄罗斯。
+卫生部长Greg Hunt说澳洲居民很快就可以选择辉瑞或是莫德纳作为加强针。
 
-消息来源：[美国称澳大利亚丹麦挪威将与其一道限制向侵犯人权国家出口技术](https://cn.reuters.com/article/us-au-tech-export-1211-idCNKBS2IQ02P?il=0)
+他强调面临新变种的威胁，加强针是必要的。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+官方专家对强制疫苗的表态，让笔者联想到很多西方国家的强制疫苗的政令层出不穷，这到底是出于科学健康，还是这些政府的政治需要？
+
+同时，最近政府媒体大量扩散新变种的消息，恰好正是推行加强针的时间点，这是不是太巧合了？
+
+新闻链接：[https://www.heraldsun.com.au/coronavirus/australias-expert-immunisation-says-they-never-recommended-covid-vaccine-mandates/news-story/6adbdda47821393af156772501490691](https://www.heraldsun.com.au/coronavirus/australias-expert-immunisation-says-they-never-recommended-covid-vaccine-mandates/news-story/6adbdda47821393af156772501490691)
+
+审核校对：Barry Jack
+上传排版：F
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

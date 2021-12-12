@@ -2,48 +2,33 @@
 ---
 
 
-## 宾夕法尼亚州最高法院驳回口罩强制令
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1744468/)
+## 七哥谈好人与坏人（2021－12－10摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1744589/)
 
-作者：纽约香草山农场 – 四季
+文编：Hima
+听写：叮叮
+视频：七哥
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+来源：郭先生2021-12-10直播09：36：01 摘录
 
+大家要记住，坏人和黑社会和白社会和好人之间大家永远记住这个比例，就是永远善良的人，善良的人和被人家剥削的人，和不参与争和斗的人，就像个橄榄一样的中间的99（图案）橄榄形，橄榄的另外一边是极端的独裁者，另外一边是坏人，就黑道白道两头中间就咱们老百姓。它永远是这个概念的。当你发现人类走到今天的时候，你永远发现为什么在斯大林，希特勒，日本天王，墨索里尼，中国毛泽东，萨达姆，卡扎菲，你看看这个整个乌干达的阿明，包括印尼苏哈多，这个世界上坏人从来没少过。而且你看看啊，从1912年中国人从结束了封建统治建立了当时的这个所谓的中华民国，一直到今天，100多年。你再看看世界历史从一九一几年，一次大战二次大战，然后到了整个一九七几年的乌干达阿明吃人肉了，所以印尼排华几十万人的大屠杀，然后萨达姆是九几年给干掉的，卡达菲也是九几年干掉的。就人类上这种独裁荒唐的事情从来没少过，坏人永远站一边，独裁者所谓的已经统和八种的永远在一边，然后这边又成了坏人，他就像中间那个橄榄一样永远九十几的人被愚弄被挤压的。大家必需要问一个问题，人类从来没有停止过独裁，杀掠，人吃人，人类从来没有像今天这样绝大多数人竟然被共产主义。
 
+校对：HimaFaFA
+发布：HimaBoy
 
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
 
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-据[网关专家](https://www.thegatewaypundit.com/2021/12/pennsylvania-state-supreme-court-strikes-school-mask-mandate/)12月10报道，宾夕法尼亚州最高法院周五驳回了一项全州范围内的口罩强制令，裁定宾夕法尼亚州代理卫生部长艾莉森·贝姆无权要求学生在学校佩戴口罩。
+**关注我们**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1667.jpg)图片来源：网关专家
+Discord 账号
 
-最初的诉讼是由一个由家长、学区和共和党政治家组成的联盟提起的。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-宾夕法尼亚州最高法院已经确认了联邦法院的决定，并撤销了代理卫生部长发布的要求在K-12学校和幼儿园实施的口罩强制令。
+Gettr 账号
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月.png)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
