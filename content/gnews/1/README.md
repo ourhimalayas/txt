@@ -2,33 +2,38 @@
 ---
 
 
-## 中共将成为世界黑暗势力的替罪羊
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1745611/)
+## 中共核心目的幻想用冬奥会成功证明病毒不是它的生化武器
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1745883/)
 
-撰稿：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-6.png)
-在12月10日的大直播中，郭文贵先生指出，病毒、疫苗与经济相互关联，当全球经济崩塌，病毒溯源、疫苗追责开始后，受害者会将怒火指向中共。最后中共将成为黑暗势力的替罪羊，并因此被消灭。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-603.png)
-郭先生感慨道，人类历史向来如此：当一个大灾难到来时，人们总会找出一两个替罪羊，掩盖所有人的罪过，历史上的独裁者诸如萨达姆、卡扎菲、齐奥塞斯库等人的下场皆如此，而这一次，当经济崩溃，民怨沸腾的时候，习近平将成为首个替罪羊。
+**郭文贵先生：**你不要忘了联合国最早而且联合国一定会表态我去参加，为什么？因为它想拿钱，WHO一定去，我证明这个病毒不是中共的，最后一条大家记住，只要冬奥会开成功，基本上可以证明，中国共产党在全世界宣布病毒不是来自我这儿，病毒不是我的生化武器，这是它最后的一个核心目的。兄弟姐妹们，这是它的最狼子野心。
 
-对于是否会有纽伦堡大审判，郭先生透露，现实未必尽如人意。美国中期选举结束后，十大灭共举措将连环出台。中共将背负所有的罪恶，被全世界追责直至灭亡。但黑暗势力仍会继续操纵政治，CDC、大药企也会照旧经营。
+我在家里边儿，是不是，天机、安红、Rica上我们家来了，家人都让我宰杀完了，现在我把地洗干净了，我家里开晚餐，你家你都来参加晚餐，穿着流丽的衣裳，你还能说我是你的杀手吗？杀你家的人吗？绝对不是。外界村子里一看安红、天机、Rica都参加七哥晚餐了，肯定他家人不是七哥干的，这是共产党最后一个狼子野心——万邦来朝将整个病毒的发源地彻底模糊化甚至去中化、去共化。
 
-新闻链接：[2021年12月10日 文贵大直播](https://gtv.org/video/id=61b350ad56f4921401b40cca)
+同时让共产党的房地产经济，所有的张家口这块，大家看完以后，开完冬奥会打台湾，把所有的经济再次灾难扔给西方，然而扔给西方的同时自己啪~人民币数字化。这叫做货币去美化、人民币国际化的一场绝对的战略成功，这个狼子野心你没看透的时候，你就不知道共产党它有多黑，它有多傲慢，它有多无知。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-4.png)
+编辑整理：喜马拉雅的肉夹馍；
 
-总编/编辑：文真
+视频制作：Cindy；
 
-校正/发稿：浪迹天涯
+视频上传：Cindy；
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-6.png)
+G-News发布：黎明之前；
 
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

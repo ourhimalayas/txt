@@ -2,25 +2,20 @@
 ---
 
 
-## 澳洲国防部长警告澳洲人要面对中共国的威胁
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1745437/)
+## 中共国11月汽车销量同比下降9.1%
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1745564/)
 
-翻译：Shirley
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Australia-Peter.png)图片来自网络
-[国防部长彼得](https://www.skynews.com.au/australia-news/politics/peter-dutton-labels-chinas-reaction-to-aukus-trilateral-deal-irrational/news-story/7895da219eafa2940fc6f74df501f120)[·](https://www.skynews.com.au/australia-news/politics/peter-dutton-labels-chinas-reaction-to-aukus-trilateral-deal-irrational/news-story/7895da219eafa2940fc6f74df501f120)达顿先生周日告诉澳大利亚天空新闻，称中国对澳大利亚、美国和英国之间的AUKUS安全联盟的反应是 “非理性的”，他警告澳大利亚人要对中国日益增长的存在持现实态度。
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-605.png)[图片来源](https://www.google.com.hk/imgres?imgurl=http%3A%2F%2Ffile.cnautonews.com%3A8881%2F20211210%2Fae0ea8fd012445a0b4e78a804f600134.png&amp;imgrefurl=http%3A%2F%2Fwww.cnautonews.com%2F&amp;tbnid=JUyHZJxVTN1zoM&amp;vet=12ahUKEwjAjrq7s930AhUTg5QKHRNvAdIQMygsegUIARCUAg..i&amp;docid=8YSAWlxyhliq9M&amp;w=1543&amp;h=868&amp;itg=1&amp;q=%E6%B1%BD%E8%BD%A6&amp;hl=zh-CN&amp;ved=2ahUKEwjAjrq7s930AhUTg5QKHRNvAdIQMygsegUIARCUAg)
+12月12日重庆晨报报道，工信部发布11月汽车工业经济运行情况。据工信部介绍，2021年11月，受车用芯片供应短缺等不利因素影响，中共国汽车产销同比呈下降趋势。1-11月，新能源汽车年累计产量突破300万辆，市场渗透率达到12.7%。11月汽车销量同比下降9.1%，乘用车销量同比下降4.7%，商用车销量同比下降30.3%。
 
-澳大利亚今年9月宣布将获得8艘核动力潜艇，这一AUKUS三边协议引起了中国政府的愤怒，中共宣布这是一个 “地缘政治游戏工具”，并暗示澳洲处于军备竞赛中。然而中共正在以每18个月的吨位速度生产的海军舰艇比澳大利亚皇家海军的整个舰队还多。
+2020年中共国家庭的偿债负担为137.9％，变成纯负债大国，每个国人负债7万元额度，疫情病毒和毒疫苗肆虐，高消费，高房价，零福利，高支出，房子和汽车成为国人头顶的两座大山，只求能够平安健康，以无从过多消费支出。
 
-达顿部长说，虽然 “没有人想要冲突”，但”这是一个不确定的时期，我们需要确保我们将志同道合的国家、朋友以及那些与我们有共同价值观和共同利益的国家联系在一起。
+消息来源：[重磅数据｜工信部：11月汽车销量同比下降9.1%](https://ml.mbd.baidu.com/r/xRN4lPdrwI?f=cp&amp;rs=829276569&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=f01a0f4869b5e763)
 
-达顿先生坚称澳大利亚不会放弃其主权，尽管寻求与中国保持“良好的工作关系”。
-
-“中国大使提出了一份包含14个问题的文件，希望在两国关系正常化之前解决这些问题。然而，如果澳洲答应了中共国的14个问题，就等于交出我们的言论自由和民主价值以及我们的主权，这是澳大利亚绝不会考虑的。”
-
-他还补充说：”我们的问题是与中国政府有关，而不是与中国人民有关，我们希望确保我们能尽一切努力看到我们地区的和平继续下去，因为这也符合我们和我们朋友的最佳利益。”
-
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1.jpg)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,86 +2,30 @@
 ---
 
 
-## 千万不要放松对病毒的警惕性
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1744904/)
+## 俄罗斯尽显双头鹰本色，与美国私下表态形成联美抗共统一战线
+` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/1744378/)
 
-[https://gtv.org/video/id=61b4bef287fa7e74c92e9baa](https://gtv.org/video/id=61b4bef287fa7e74c92e9baa)
+新西兰伊甸农场Gnews组 财经G乐部 – 亚伦
 
-**郭文贵**
-**Miles Guo**
+12月10日郭文贵先生Gettr、GTV大直播中透露了一个极少人参与但极为重要的会议内容，是关于俄罗斯向美国袒露自己的战略决定和保证，这对中共来说绝对是致命打击的历史性时刻。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/52d7de4b39f549089731f59cca714f58.jpg)图片来源puataiwan
 
-千万别以为这个病毒（Omicron）
-Don’t ever think the new virus’ (Omicron)
 
-你认为它致死率低，你就放松警惕
-You think the fatality rate is low, so you can let your guard down
+俄罗斯这次明确的告诉美国和欧洲，绝对不允许把俄罗斯部署在靠近乌克兰边境的军事存在，与中共对待台湾的行动放在一起，如果有人这么想就是战略重大误会。
 
-我可以告诉大家，你要染上病毒和没染上病毒的人，一定是天地之差
-I can tell you all that there must be a huge difference between those who are infected and those who are not
+第二，坚决不能把中共新冠病毒和整个疫苗政策，跟俄罗斯的经济绑在一起。关于南海问题，俄罗斯收到中共的“保护费”就去象征性的站台，只是象征性的。
 
-什么毒你也不要染上
-You should not catch any virus
+俄罗斯的表态使美国总统拜登一下子卸下了两线作战的担心，接下来，拜登政府会有一系列意想不到的对中共政策。如果只是面对中共对台湾的侵略战争，美国百分之百有信心打赢中共与美国联军的局部战争，而且保证不会演化成不可控的第三次世界大战。美国政府最担心就是跟俄罗斯和中共同时开战，毕竟多方都具有核武器。只要俄罗斯不动，蠢蠢欲动的北朝鲜、伊朗也就不敢动。
 
-还有一个，它现在没有得到验证不死人
-One more, the virus is not proven to be lethal
+由于俄罗斯的重大改变，俄罗斯和美国会发生很多的交易，包括对美国逐步正常化，经济正常化。然后俄罗斯会和伊朗、印度、巴基斯坦形成合盟，实施印太战略、马六甲海峡战略、中东石油战略。俄罗斯作为中共唯一的能狗仗人势的帮手，已经转战整个东亚，最近和越南、缅甸、柬埔寨已经签署了军事基地合约想要重返东亚，并得到美国默许。把亚洲代理权让渡给俄罗斯，俄罗斯还可去南中国海开采石油。美国战略调整，达成联俄抗共战线。
 
-但不等于以后不死人
-but that doesn’t mean it won’t kill you in the future
+![](https://assets.gnews.org/wp-content/uploads/2021/12/a60bbc0881bd465cf434d18f5a597fdd.jpg)图片来源Gettr
 
-而且你不知道共产党会不会放新病毒
-And you don’t know if the Communists will release a new virus
 
-兄弟姐妹们千万呆在家里
-Brothers and sisters, stay at home
 
-千万准备好药
-Be prepared with medicines
+中共习近平主席还在幻想着用一个新的50%首付的4000亿美元能源大合同绑住俄罗斯的心，通过冬奥会万国来朝建立党内权威，侵略台湾奠定历史地位成为习始皇，相信俄罗斯国徽上的“双头鹰”会给中共领导人上最后一课。
 
-更重要的是灾难疫苗不会因为这个会停止
-More importantly, the vaccine disaster will not stop because of this
-
-我不相信这个世界一半打了疫苗的人都知道吃青蒿素
-I don’t believe that half the people in the world who have been vaccinated know to take artemisinin
-
-我不相信
-I don’t believe it
-
-疫苗灾难我觉得会减缓，不会受到任何影响
-I think the vaccine disaster will slow down and not be affected in any way
-
-我们的真正的噩梦的时间还没有来呢
-Our real nightmare has not come yet
-
-人类要经历一次巨大的考验，才能分出这个世界的阴阳两极
-Humanity have to go through a great test to be able to separate the yin (dark) and yang (light) of this world
-
-最后才能分出了好人、坏人，最后剩下是谁
-Eventually, good people and bad people can be distinguished
-, and (we will know) who will survive at the end
-
-千万不要有任何侥幸的心理，不要有幻想，好吧？
-Never take any chances, never have any illusions, okay？
-
-**原视频链接:** [https://gettr.com/post/pihaudccc6](https://gettr.com/post/pihaudccc6)
-
-Date:12/03/2021
-原视频标题: 千万不要放松对病毒的警惕性
-Never let down your guard against viruses
-原视频日期：2021/12/01
-原视频链接https://gettr.com/post/pihaudccc6
-任务编号：KC326(3090)
-视频时间段 : 0:00-01:03
-
-中听校 : 洛杉矶盘古农场 – Layka
-翻译 : 洛杉矶盘古农场 – Layka & Mike Li
-翻译终校：洛杉矶盘古农场 – Freeearth
-字幕+视频制作：洛杉矶盘古农场 – 汪汪
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+不仅如此，已经被中共逼迫到墙角的欧洲国家也一反常态，表示只能和中共战斗到底。欧洲的战略合作伙伴斩钉截铁地决定和新中国联邦生死站在一起，只为一个结果，灭共！
 
  
 
