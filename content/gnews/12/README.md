@@ -2,13 +2,21 @@
 ---
 
 
-## 岸田文雄在民主峰会上谴责中共侵犯人权
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1744937/)
+## 为什么COVID疫苗不能也不应该强制
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1744987/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12._12-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+**作者：日本东京方舟农场 JIHO**
+
+欧洲议会议员Ivan Vilibor Sinčić 回复欧洲委员会主席Ursula Von Der Leyen，因为COVID疫苗的质量存疑，这些COVID疫苗报告的副作用、不良反应比几十年来所有其他疫苗的总和还要多，所以不能强制，Ivan 也强调，我们的宪法权利和人权都被绑架了。
+
+* * *
+
+*素材采编：JIHO*
+
+*发布：Ranting*
+
+*封面制作：Kotek*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

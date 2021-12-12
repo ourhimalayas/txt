@@ -2,10 +2,10 @@
 ---
 
 
-## 杰森.米勒：盖特推出抽奖活动以帮助真正有需要的人
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1743206/)
+## 抵制冬奥会传达了明确信息，美国不会容忍中共侵犯人权
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1743210/)
 
-12/09/2021 杰森.米勒：盖特将推出一系列抽奖活动以帮助那些真正有需要的人。
+12/08/2021 国会女议员阿什利.辛森：美国对北京奥运会的外交抵制传达了一个非常明确的信息，美国不会容忍中共侵犯人权。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

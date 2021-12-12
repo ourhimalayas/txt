@@ -2,33 +2,86 @@
 ---
 
 
-## 七哥谈普金和习近平的关系（2021－12－10摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1744627/)
+## 千万不要放松对病毒的警惕性
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1744904/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+[https://gtv.org/video/id=61b4bef287fa7e74c92e9baa](https://gtv.org/video/id=61b4bef287fa7e74c92e9baa)
 
-来源：郭先生2021-12-10直播09：47：07 摘录
+**郭文贵**
+**Miles Guo**
 
-这是现在习近平决对没想到的，你知道习近平和普京是什么关系吗，我告诉大家，普京的女朋友每一周最起码一个月两次，从俄罗斯飞机飞到索契，就是夏都，从索契再换一架飞机，完全是密飞啊，国与国之间密飞直接就是军人飞机过来，没有什么代码纬码，直接就飞过来。从北京直接飞西苑机场，原来都飞北京首都机场，由于我报海航事以后，改为西郊机场，军事机场。下来以后，这个姐妹穿的都是这么高的高跟鞋，她当军人出生。然后呢，小胸挺着，咔咔咔，拧着文件包，这一手拧着自己吃的东西，从来不吃北京的任何一个东西，都是带自己的火腿自己吃的。接她的人都是习远平安排接待。连丁薛祥都轮不着。这哥们直接去，都跟习当面谈，把普京的话传完，然后该签的签，该说的说完，扭头回去。习这边谁去呢，偶尔，习远平去一去。曾经派杨洁篪传过话，后来不让杨洁篪参与。这是两个人关系到这个程度。所以你看到他去俄罗斯，俄罗斯的普京来这边，都是这两个个人之间沟通的。这好到这样的程度，拿了10000亿美元的现金给俄罗斯，就是要抗美，就是所谓的10年大战略。习近平修宪，我修宪，你修宪，我接着干，你接着干，你弄乌克兰，我弄台湾，咱俩一起干美国。然后欧洲我取钱你取地，阻止北欧中扩。非洲是我的，中东是你的，然后中东咱俩一起分油。你看这就是俩哥们商量好的。所以在这冬奥会上俄罗斯也傻眼了。
+千万别以为这个病毒（Omicron）
+Don’t ever think the new virus’ (Omicron)
 
-校对：HimaFaFA
-发布：HimaBoy
+你认为它致死率低，你就放松警惕
+You think the fatality rate is low, so you can let your guard down
 
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+我可以告诉大家，你要染上病毒和没染上病毒的人，一定是天地之差
+I can tell you all that there must be a huge difference between those who are infected and those who are not
 
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+什么毒你也不要染上
+You should not catch any virus
 
-**关注我们**
+还有一个，它现在没有得到验证不死人
+One more, the virus is not proven to be lethal
 
-Discord 账号
+但不等于以后不死人
+but that doesn’t mean it won’t kill you in the future
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+而且你不知道共产党会不会放新病毒
+And you don’t know if the Communists will release a new virus
 
-Gettr 账号
+兄弟姐妹们千万呆在家里
+Brothers and sisters, stay at home
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+千万准备好药
+Be prepared with medicines
+
+更重要的是灾难疫苗不会因为这个会停止
+More importantly, the vaccine disaster will not stop because of this
+
+我不相信这个世界一半打了疫苗的人都知道吃青蒿素
+I don’t believe that half the people in the world who have been vaccinated know to take artemisinin
+
+我不相信
+I don’t believe it
+
+疫苗灾难我觉得会减缓，不会受到任何影响
+I think the vaccine disaster will slow down and not be affected in any way
+
+我们的真正的噩梦的时间还没有来呢
+Our real nightmare has not come yet
+
+人类要经历一次巨大的考验，才能分出这个世界的阴阳两极
+Humanity have to go through a great test to be able to separate the yin (dark) and yang (light) of this world
+
+最后才能分出了好人、坏人，最后剩下是谁
+Eventually, good people and bad people can be distinguished
+, and (we will know) who will survive at the end
+
+千万不要有任何侥幸的心理，不要有幻想，好吧？
+Never take any chances, never have any illusions, okay？
+
+**原视频链接:** [https://gettr.com/post/pihaudccc6](https://gettr.com/post/pihaudccc6)
+
+Date:12/03/2021
+原视频标题: 千万不要放松对病毒的警惕性
+Never let down your guard against viruses
+原视频日期：2021/12/01
+原视频链接https://gettr.com/post/pihaudccc6
+任务编号：KC326(3090)
+视频时间段 : 0:00-01:03
+
+中听校 : 洛杉矶盘古农场 – Layka
+翻译 : 洛杉矶盘古农场 – Layka & Mike Li
+翻译终校：洛杉矶盘古农场 – Freeearth
+字幕+视频制作：洛杉矶盘古农场 – 汪汪
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

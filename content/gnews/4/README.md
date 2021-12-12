@@ -2,42 +2,50 @@
 ---
 
 
-## 就是否需要Omicron特定疫苗的问题，福奇态度含糊
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1745024/)
+## 美国对中国、缅甸、朝鲜实施全面的人权制裁
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1745087/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+![美国白宫公布科学重点项目，气候变化不其中](https://www.editage.cn/insights/sites/default/files/styles/detail_page_image/public/White%20House%20makes%20its%20science%20priorities%20known%3B%20climate%20change%20isn%27t%20listed.jpg?itok=O0KsIDF1)*资料照*
+《Newsmax》12月10日报道，美国周五对与中国、缅甸、朝鲜和孟加拉国有关的几十个人和实体实施了广泛的人权相关制裁，并将中共国人工智能公司商汤科技列入投资黑名单。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/AP21335693474816.jpg)
+加拿大和英国与美国一起对缅甸的侵犯人权行为实施制裁，同时华盛顿还实行了拜登政府首次针对朝鲜和缅甸军事实体等实施新的制裁，作为标志人权日的行动。
+
+财政部副部长瓦利·阿德耶莫在一份声明中表示：“我们今天的行动，特别是与英国和加拿大合作的行动，发出了一个信息，即全世界的民主国家将对那些滥用国家权力施加痛苦和压迫的那些人采取行动。”
+
+朝鲜驻联合国代表团以及中共国、缅甸和孟加拉国的华盛顿大使馆没有立即回应评论请求。
+
+这些措施是一系列制裁中的最新措施，时间上与拜登为期两天的虚拟民主峰会相吻合，他在峰会上宣布了支持世界各地民主的倡议，并支持美国的民主立法。
+
+拜登周五表示，参加峰会的100多位世界领导人中的一些人作出的承诺将对世界各地不断上升的专制制度进行反击，打击腐败并促进人权。
+
+他在峰会闭幕时的讲话中说：“这将有助于为民主在世界各地开花结果播下沃土。”
+
+财政部周五将中共国人工智能公司商汤科技列入“中国军工综合体公司”名单，谴责其开发的面部识别程序可以判断目标的种族，尤其是重点识别维吾尔族人。
+
+因此，该公司将落入美国投资者的投资禁令范围。商汤科技在首次公开募股（IPO）中出售接近15亿股。两位直接了解此事的人士表示，在本周早些时候传出财政部限制的消息后，该公司开始与香港证券交易所讨论计划的7.67亿美元发行的命运。
+
+联合国专家和人权团体估计，近年来有超过一百万人，主要是维吾尔人和其他穆斯林少数民族成员，被拘留在中国最西边的新疆地区的一个庞大的集中营系统中。
+
+中共国否认在新疆的虐待行为，但美国政府和许多人权团体指出北京正在那里进行种族灭绝。
+
+简评：在美国政府的带动下世界各国开始发起联合行动以抵制中共为首的专治政权，而一些中共暗中控制类似商汤科技的公司作为人权迫害的帮凶将受到严重打击。虽然制裁措施的有效性还有待时间的进一步验证，但对让世界更清晰的认识中共国种族灭绝的恶行无疑有着巨大的作用。
+
+新闻链接：[https://www.newsmax.com/newsfront/sanctions/2021/12/10/id/1048213/](https://www.newsmax.com/newsfront/sanctions/2021/12/10/id/1048213/)
+
+翻译/简评：Dlrow
+
+PR：clau
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
- 
-图片来源:  Susan Walsh, Associated Press
+编辑：【英国伦敦喜庄园编辑部】
 
-
-#### 整理报道 ：小红帽
-
-根据RT新闻12月11日报道，白宫首席医疗顾问安东尼·福奇（Anthony Fauci）博士表示，可能不需要专门针对新冠病毒（Covid-19）的Omicron变种的加强针。然而，制药公司仍将开发这些疫苗。
-
-“我不太确定我们是否必须获得一种针对该变种的加强疫苗，以获得Omicron的充分保护，”福奇周五告诉健康新闻网站STAT。
-
-虽然一些专家表示担心新冠病毒的Omicron变种能够更好地逃避当前的疫苗，但福奇仍然对这些新冠疫苗充满信心。辉瑞首席执行官阿尔伯特·布尔拉（Albert Bourla）也是如此，尽管布尔拉声称可能需要第四针来对抗这种新菌株。
-
-“对于Omicron，我们需要拭目以待，因为我们的信息非常少。我们可能更快地需要[第四针]，”布尔拉本周告诉CNBC。
-
-虽然福奇表示可能不需要针对Omicron的加强针，但他又说，像辉瑞这样的制药公司将生产针对这种变种的加强针。
-
-值得庆幸的是，医生和官员将Omicron变体的症状描述为轻度。截至周五，世界卫生组织尚未记录任何因该菌株而导致死亡的病例。
-
-新闻来源： [Fauci says whether Omicron-specific booster needed — RT USA News](https://www.rt.com/usa/542932-fauci-omicron-variant-booster/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
