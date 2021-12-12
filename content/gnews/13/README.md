@@ -2,48 +2,86 @@
 ---
 
 
-## 师生们纷纷逃离香港的“爱国”教育
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1744800/)
+## 千万不要放松对病毒的警惕性
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1744904/)
 
-据《香港自由报》作者肯特·尤因（KENT EWING）2021年12月11日报道
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image002.gif)文件照片：国家安全教育日圣詹姆斯小学 |香港政府一站通
-肯特·尤因写道：“学生和他们的家人知道他们的健康在香港是安全的，但他们的身心却受到威胁”
+[https://gtv.org/video/id=61b4bef287fa7e74c92e9baa](https://gtv.org/video/id=61b4bef287fa7e74c92e9baa)
 
-香港的学校系统正在接近的危机已日渐显著。教育局数据显示，在今天的7月至10月，中小学的空缺数量达到近5200个。
+**郭文贵**
+**Miles Guo**
 
-香港中学校长协会对 140 所中学进行的一项调查显示，这个问题在中学尤其严重，学生们纷纷逃离系统，前往海外、如大陆和澳门的学校。调查显示，在已过去的学年中，有近 4,500 名学生放弃了该教育系统，是 2019-20 年间，放弃该系统的人数的两倍，更不用提987 名教师了。
+千万别以为这个病毒（Omicron）
+Don’t ever think the new virus’ (Omicron)
 
-这意味着每所学校平均流失了32 名学生和 7 名教师，完全符合该协会所提到的的“人才流失”情况。
+你认为它致死率低，你就放松警惕
+You think the fatality rate is low, so you can let your guard down
 
-调查还显示，其中有60% 的学生完全离开了这座城市，而教师移民的速度是前一年的七倍。英国是离校学生的首选目的地。 在今年1 月至 9 月，英国向 4 至 17 岁的香港人签发了 2,679 份学生签证，这是自2010 年以来英国政府所记载的最高记录。
+我可以告诉大家，你要染上病毒和没染上病毒的人，一定是天地之差
+I can tell you all that there must be a huge difference between those who are infected and those who are not
 
-阿斯顿教育的招生经理叶婉婷最近告诉南华早报记者，事实上，因为他们收到了太多来自香港学生的申请，英国一些顶尖的私立学校已经停止接收香港人。这些学校希望保持来自各个地方国际学生人数的比例。
+什么毒你也不要染上
+You should not catch any virus
 
-回到这个城市的殖民时代，许多富有的香港精英学生长期以来，一直喜欢有口碑的英式教育，而且坦率地说，通过靠死记硬背的教育方式，在香港学校中的口碑很差。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image004-1.gif)档案照片：2021 年 7 月 1 日在培侨中学举行升旗仪式的参加者。 照片：Candice Chau/HKFP
-随着北京在 2020 年夏季开始实施国家安全法以来，以及随后在学校、在香港生活几乎所有的方面，都加强了爱国主义意识后，家长和学生们有更多的理由考虑离开。
+还有一个，它现在没有得到验证不死人
+One more, the virus is not proven to be lethal
 
-学生们现在坐在教室里，老师们害怕提出敏感话题，例如 1989 年 6 月 4 日在天安门广场对和平民主示威者的军事袭击，以及这场袭击造成的数百人甚至数千人死亡。当然，香港在 2019 年和 2020 年长达数月的民主抗议活动也是敏感话题。
+但不等于以后不死人
+but that doesn’t mean it won’t kill you in the future
 
-通识教育于 2009 年作为提高社会意识和批判性思维，技能的核心科目，被引入了中学课程。但在亲北京的政治家指责该课程，对于在2019及2020年所发生的震撼城市的动乱具有煽动性后，在过去一年中，已基本被剔除并更名为公民与社会发展。
+而且你不知道共产党会不会放新病毒
+And you don’t know if the Communists will release a new virus
 
-修改后的课程将强调爱国主义、中共国的国家发展和严格遵守法律，特别是国家安全法。
+兄弟姐妹们千万呆在家里
+Brothers and sisters, stay at home
 
-听起来是不是很有趣？对于这门课程更糟糕的事情就是如何被教授，且难怪有这么多香港教师认输。
+千万准备好药
+Be prepared with medicines
 
-即使在香港的小学，学生也会被灌输爱国主义和国家安全法课程。 “爱中国，爱香港”是新的教育口号。
+更重要的是灾难疫苗不会因为这个会停止
+More importantly, the vaccine disaster will not stop because of this
 
-家长、学生、老师、校长——每个人都看到了正在发生的事情：香港学校的自由思考空间正在迅速缩小，而那些有经济能力的人正在跳槽。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image006.gif)资料图：戴口罩的香港学生。香港政府一站通
-官员们喜欢将中共病毒作为人员外流的一个重要原因，但这并不能说明问题。 中共病毒正在以比香港人员流失更快的速度，肆虐世界其他大部分地区。学生和他们的家人知道他们的健康在香港更安全，但是他们的身心却受到威胁。
+我不相信这个世界一半打了疫苗的人都知道吃青蒿素
+I don’t believe that half the people in the world who have been vaccinated know to take artemisinin
 
-可悲的是，高档的英国私立学校（包括受欢迎的寄宿学校）的年费从 350,000 港元到 530,000 港元（44,800 美元到 68,000 美元）不等，大多数香港学生无处可去。
+我不相信
+I don’t believe it
 
-有钱人可以逃离，没有的必须留下来打爱国鼓。
+疫苗灾难我觉得会减缓，不会受到任何影响
+I think the vaccine disaster will slow down and not be affected in any way
 
-原文链接：    https://hongkongfp.com/2021/12/11/students-and-teachers-are-running-away-from-hong-kongs-patriotic-education/
+我们的真正的噩梦的时间还没有来呢
+Our real nightmare has not come yet
 
-翻译：Stephanie  |校对：  烟波浩淼| 审核&发布：断播
+人类要经历一次巨大的考验，才能分出这个世界的阴阳两极
+Humanity have to go through a great test to be able to separate the yin (dark) and yang (light) of this world
+
+最后才能分出了好人、坏人，最后剩下是谁
+Eventually, good people and bad people can be distinguished
+, and (we will know) who will survive at the end
+
+千万不要有任何侥幸的心理，不要有幻想，好吧？
+Never take any chances, never have any illusions, okay？
+
+**原视频链接:** [https://gettr.com/post/pihaudccc6](https://gettr.com/post/pihaudccc6)
+
+Date:12/03/2021
+原视频标题: 千万不要放松对病毒的警惕性
+Never let down your guard against viruses
+原视频日期：2021/12/01
+原视频链接https://gettr.com/post/pihaudccc6
+任务编号：KC326(3090)
+视频时间段 : 0:00-01:03
+
+中听校 : 洛杉矶盘古农场 – Layka
+翻译 : 洛杉矶盘古农场 – Layka & Mike Li
+翻译终校：洛杉矶盘古农场 – Freeearth
+字幕+视频制作：洛杉矶盘古农场 – 汪汪
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

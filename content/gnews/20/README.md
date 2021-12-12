@@ -2,8 +2,8 @@
 ---
 
 
-## 笔录新生——战友日常(四）
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1744604/)
+## 笔录新生——战友日常(七）
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1744607/)
 
 作者：纽约香草山设计部 – 蜂鸟
 
@@ -18,7 +18,7 @@
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/10-image0-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/11-image0-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/12-image0-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/19-38da244de89b341d-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/20-3ad24923c63f6a76-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/21-7-scaled.jpg)
 * * *
 
 
