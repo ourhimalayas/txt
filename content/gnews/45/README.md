@@ -2,149 +2,42 @@
 ---
 
 
-## 【樱花深度报道】中共可能将核导弹走私到委内瑞拉以突袭美国（上）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1746259/)
+## 美财长民主峰会发言剑指跨国政商犯罪
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1746068/)
 
-编译：东京樱花团/Hopkins
+作者：纽约香草山医疗部 Zion文恩
 
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-```
-编者按：英国太阳在线网站12月10日最新报道，专家警告说，中共可能会通过集装箱将核导弹走私到南美港口，以对美国发动突然袭击。军事分析人士对据信是北京悄悄发展的集装箱导弹能力敲响了警钟。
-```
+当地时间12月9日，在由美国发起、110余国参与的全球民主峰会上，美国财政部珍妮特-耶伦表示，美国财政部将在惩治跨国政商腐败方面发挥更激进的作用，并将主导成立一个全新的“盗国贼基金”，以奖励向美国政府提供相关信息的爆料人，揭露外国腐败政客在美国所藏匿非法资产。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-12-at-8.43.59-PM.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-126.jpg)
 
+在8日的《文贵大直播》中，郭文贵先生也提前透露，美欧等西方国家对中共的海外渗透和跨国犯罪行为已展开全面的立法和行政反击，抵制北京冬奥会只是开始。此外，郭先生着重揭露了中共安插在美国金融界的资深特务——太盟集团的董事长单伟健、其一系列非法收买美国金融精英、骗取美国投资者的巨额资金的犯罪行为。
 
+在10日的《文贵大直播中》，郭先生进一步指出，随着美俄两国在灭共事宜上日趋求同，中共习近平政权的对外行为日益疯狂。西方政商界逐渐意识到中共以票据、虚假信贷为支撑的金融核弹随时会被疯狂的习近平当局引爆。郭先生表示，民主峰会上各国政要的表态，虽为形式上的政治做秀，然而其本质是，全球各国已达成共识，以中共当局作为替罪羊，来平息当下环球金融、政治、公共卫生等各项危机。
 
-```
-（图片说明）有消息称，中共正在研制一种更大版本的武器，作为其太空计划的国家法令“军民两用”协议的一部分。
-```
+参考链接：
 
+1. [Treasury’s Yellen vows big push against corruption, new ‘kleptocracy fund’](https://www.reuters.com/business/finance/treasurys-yellen-vows-big-push-against-corruption-new-kleptocracy-fund-2021-12-09/%20https://gettr.com/post/pj7o1le4fc%20https://gettr.com/post/pjd0r087bb)
+2. [抵制冬奥会是所有美国人的决定](https://gettr.com/post/pj7o1le4fc)
+3. [欧洲四国表示将抵制冬奥会并考虑与中共经济脱钩是历史性的事件！](https://gettr.com/post/pjd0r087bb)
 
 
-```
-用于发射卫星的大型火箭可以很容易地重新用作紧凑型集装箱大小的具有核能力的导弹。
-```
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
 
+总编：正义的小新
+编辑：Lakeman文仁
+校正/发稿：我不在这里
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-```
-国际评估与战略中心亚洲军事事务高级研究员里克·费舍尔告诉太阳在线，中共有可能将这些武器走私到南美，以便对美国进行偷袭。
-```
-
-
-
-```
-与此同时，美国太平洋舰队前情报主管詹姆斯·法内尔上尉表示，太空火箭集装箱发射器显然是用于军事用途的。
-```
-
-
-
-```
-亨利杰克逊协会的中国问题专家山姆阿姆斯特朗表示，这些集装箱导弹可能是中共在世界各地走私武器的关键——包括向委内瑞拉等流氓国家走私武器。
-```
-
-
-
-```
-中共已暗示其大型集装箱导弹武器。
-```
-
-
-
-```
-私人公司 OneSpace 公布了其 OS-M2 运载火箭的宣传视频 - 一种用于射入太空的 31 吨火箭。
-```
-
-
-
-```
-它显示了火箭被装入集装箱并隐藏起来 - 在从卡车、火车、飞机和轮船发射之前。
-```
-
-
-
-```
-这段视频似乎更像是一种军事技术——例如俄罗斯和朝鲜部署的火车发射器——而不是太空技术。
-```
-
-
-
-```
-如果将这些武器部署到对中国友好的南美国家，例如巴拿马或委内瑞拉，可能会引发现代古巴导弹危机。
-```
-
-
-
-```
-1962 年 10 月冷战时期发生了苏联试图在古巴放置导弹——将世界推向第三次世界大战的边缘。
-```
-
-
-
-```
-费舍尔先生告诉太阳在线：“未来潜在的基于 OS-M2 的‘洲际弹道导弹’可能隐藏在中国控制的巴拿马港口或与中国结盟的委内瑞拉港口，以瞄准所有美国。
-```
-
-
-
-```
-“或者正如 OneSpace 视频所表明的那样，他们的集装箱 SLV 可以部署在大型货船上，也可以由波音 747 货运班机部署到无数有利的发射地点。”
-```
-
-
-
-```
-众所周知，中共正在扩大其在南美洲的影响力——促进与该地区国家的贸易和投资。
-```
-
-
-
-```
-火箭科学家并未意识到这只是中共应对非对称战争的另一种方式
-```
-
-
-
-```
-詹姆斯·范内尔上尉说。
-```
-
-
-
-```
-委内瑞拉也被视为美国在南美最大的敌人之一，并且正在悄悄地讨好中共——从北京获得至少 450 亿英镑的贷款。
-```
-
-
-
-```
-与此同时，随着其全球影响力的提升，共产党也在寻求向非洲扩张。
-```
-
-
-
-```
-即使目标不是冲突，中共也可以使用隐藏武器作为导弹外交的一种形式——比如将武器转移到委内瑞拉时。
-```
-
-
-
-```
-而且它们还可以用来偷偷违反武器禁运——而不是作为攻击计划的一部分。
-```
-
-
-作者：Henry Holloway，TARIQ TAHIR  Foreign News Reporter in London
-
-信息来源：
-
-[China could smuggle nuclear missiles hidden in shipping containers to Venezuela for surprise attack on US, experts warn](https://www.thesun.co.uk/news/16963561/china-smuggle-nuclear-missiles-venezuela/)
-
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
-
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 

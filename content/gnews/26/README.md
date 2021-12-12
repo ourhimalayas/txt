@@ -2,22 +2,18 @@
 ---
 
 
-## 郭文贵先生爆料中共国当下真实状况
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1746805/)
+## GETTR假日抽大奖活动注册将于本周日截止
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1746807/)
 
-作者：香草山农场-晓仙女
+作者：纽约香草山 – Delilah小胖
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2021年12月10日，文贵先生在大直播中爆料，当下，共产党极其狂妄，极力捕杀基督教徒、佛教徒、天主教徒、道教徒以及新疆人，树立习一神为太阳神。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-12-下午9.12.56.png)
-中共国房地产崩塌，银行危机，一亿多人失业，大量商铺关闭，85%的私人企业被收归国有。所有独裁者都是一样，将企业国有化，个人神圣化。只有独裁者才会消灭宗教，控制媒体，最后发动战争。
-
-面对中共的垂死挣扎，新中国联邦将采取一系列方案抗争到底，直至中共灭亡。
-
-参考链接：[https://gettr.com/post/pjdf6x663a](https://gettr.com/post/pjdf6x663a)
+据盖特官方12月9日公布，本期假日抽大奖活动注册时间，即将于美东时间12月12日，本周日23点59分59秒截止。还没有填表的意向参与者，可以抓紧时间填写活动参与表格。填表链接及活动规则，可以登陆gettr.com首页获取。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-12-下午9.13.19.png)
+参考链接：[https://gettr.com/post/pj88is55f0](https://gettr.com/post/pj88is55f0)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-总编：Jack Li文阳
+总编：文特
 编辑：Kathy文艺
 校正/发稿：呼吸的雾霾（文小呼吸）
 

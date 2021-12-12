@@ -2,118 +2,36 @@
 ---
 
 
-## 【樱花深度报道】中共可能将核导弹走私到委内瑞拉以突袭美国（中）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1746260/)
+## 美财政部设立基金奖励对外国领导人贪污腐败举报者
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1746069/)
 
-编译：东京樱花团/Hopkins
+作者：纽约香草山文艺部 宁文静
 
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-```
-编者按：英国太阳在线网站12月10日最新报道，专家警告说，中共可能会通过集装箱将核导弹走私到南美港口，以对美国发动突然袭击。军事分析人士对据信是北京悄悄发展的集装箱导弹能力敲响了警钟。
-```
+12月9日，在历时两天的全球民主峰会上，美国务卿布林肯和财长耶伦宣布联手打击贪污腐败，尤其针对外国领导人藏匿在美国的非法资产，将设立专项基金，重奖有效举报者。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-12-at-8.36.58-PM.png)
+为此，美国务院将设立全球反腐败协调员的角色，负责美国外交及对外援助方面的反腐能力的整合，实施白宫的首个反腐败战略；美财政部将成立专项“腐败资产追回奖励基金”，以鼓励提供外国领导人藏匿在美国境内所有非法资产线索的举报行动。耶伦说，财政部正在努力打击来自海外的洗钱和非法金融活动，包括用现金一次性支付巨额房产的交易行为。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-38.png)（图片说明）分析人士认为，中国航天公司发布的一段视频剧照展示了军事风格的技术
+有时评人士称，美国政府反腐举措的推出，与爆料革命即将开展的对盗国贼家族的声讨举报，堪称珠联璧合。由此产生的蝴蝶效应，会在不久的将来全球上演。
 
+参考链接：[Treasury’s Yellen vows big push against corruption, new ‘kleptocracy fund’](https://www.reuters.com/business/finance/treasurys-yellen-vows-big-push-against-corruption-new-kleptocracy-fund-2021-12-09/%20https://gettr.com/post/pj7o1le4fc%20https://gettr.com/post/pjd0r087bb)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
 
-```
-虽然美国和中共国之间的紧张局势仍然很严重——但没有迹象表明两国正面临一场迫在眉睫的战争，而且双方都在考虑先发制人。
-```
+总编：正义的小新
+编辑：Lakeman文仁
+校正/发稿：我不在这里
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-```
-费舍尔先生解释说，中共法律要求企业将他们的技术“军民两用”——因此解放军很可能已经在研究集装箱化 OS-M2 的军用版本。
-```
-
-
-
-```
-“即使是配备核弹头而不是卫星的版本，”专家补充说。
-```
-
-
-
-```
-他将 OneSpace 的视频描述为“奇怪”，并表示它只显示了中共太空计划如何专注于军事技术。
-```
-
-
-
-```
-这位专家补充说，这些集装箱导弹还可以用作反太空武器，从低轨道上打击天空中的卫星。
-```
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/3-13.png)（图片说明）火箭被装载到货船上的集装箱中
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/4-11.png)（图片说明）然后可以从船上发射导弹……
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/5-12.png)（图片说明）….或从陆地上的集装箱装在卡车上或装在火车上
-
-
-
-```
-范内尔上尉告诉《太阳报》在线：“当你看到火箭被装在集装箱里，可以装在火车、轮船和卡车上，你可以称之为‘军民两用’，但我不知道它的民用是什么。
-```
-
-
-
-```
-“每个人都知道卡纳维拉尔角在哪里——这是一个平民区。”
-```
-
-
-
-```
-他补充说：“火箭科学家并不没有意识到这只是中共应对非对称战争的另一种方式。
-```
-
-
-
-```
-“这不仅仅是‘军民两用’——它显然是一种不对称的军事威胁。”
-```
-
-
-
-```
-这位前情报官员将中共的集装箱导弹描述为一种“进攻性”武器，而不是“防御性”武器。
-```
-
-
-
-```
-他警告说，他们可能会携带装在屏蔽容器中的核武器以避免被发现。
-```
-
-
-
-```
-北京可以使用集装箱式武器来制造混乱——可能使用电磁脉冲弹头来摧毁电网。
-```
-
-
-
-```
-众所周知，中共正在积极发展其军事力量，并与美国抗衡——扩大其在世界各地的影响力，例如在非洲。
-```
-
-
-
-```
-导弹的模型首次出现在 2016 年的军火展上，此后一直有人猜测它们现在可能在中国武装部队服役。
-```
-
-
-作者：Henry Holloway，TARIQ TAHIR  Foreign News Reporter in London
-
-信息来源：
-
-[China could smuggle nuclear missiles hidden in shipping containers to Venezuela for surprise attack on US, experts warn](https://www.thesun.co.uk/news/16963561/china-smuggle-nuclear-missiles-venezuela/)
-
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
