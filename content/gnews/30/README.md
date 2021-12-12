@@ -2,65 +2,126 @@
 ---
 
 
-## 2021年12月12日文贵先生直播摘要及音频——银河系农场
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1747937/)
+## 共产党张牙舞爪的日子到头了 欧盟开始抵制中共
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1747963/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/9b27209a37cef7fe30c62af72c70640f.jpg)
-视频连接：[2021年12月12日 文贵大直播：疫苗 冬奥会 数字货币； 除夕 大游行 回答问题](https://gettr.com/streaming/pjgjwbc1bf)
+[https://gtv.org/video/id=61b6009087fa7e74c92f0f87](https://gtv.org/video/id=61b6009087fa7e74c92f0f87)
 
-1、上天给我们人类与动物完全不同的区别是我们可以说话和歌唱，这是我们最本能的权利，是有性繁殖世界对上天万物表达的最本质方式，所以统治者都要控制人表达音乐的能力，而我们打破了；
+**郭文贵**
+**Miles Guo**
 
-2、洗脑有三招：动静（音乐）、答案（话语权）、社交媒体；
+欧洲的大概4个国家，给中国明确地说我们要抵制奥运会
+About 4 countries in Europe clearly stated to China that they want to boycott the 2022 Winter Olympics game
 
-3、希拉里2024竞选美国总统；
+说不但抵制奥运会，更重要的是作出一个决定
+It is not only to boycott the Olympics game, but more importantly to make a de-cision
 
-4、美国朋友跟七哥说：他们掌握情报党内很多人想要杀掉习近平，习若被暗杀会被塑造成独裁的英雄，这会让中共被灭延后很多年，要消灭这个体制才是根本；
+我们正在考虑与你中共经济脱钩，我们要在WTO对你发起一系列的抗议
+that they are considering decoupling with your CCP’s economy, going to launch a series of protests against you in the WTO
 
-5、双十二西安事变，中国人最有机会走向民主，被毛泽东、张学良一帮骗子，毁掉了一切；
+就是欧盟向中共发出的这个(抗议)，在他今天晚上睡觉前发出去
+before he went to bed tonight that EU sent this protest to the CCP
 
-6、习近平女儿护照名字-李木子；
+他说今天我们发出去以后3分钟内给回复，稍慢，我们逐级上报, 我们今天争取给你们回复
+He said that we got reply within 3 minutes after we send it out today, and it said to hold on the decision that we will report it level by level, and we try to reply to you today
 
-7、习近平和彭丽媛的日常都是习公主说了算，军队都是习远平说了算。中国过去10年根本没有常委，只有国家安全委员会：习远平、彭丽媛、习明泽、彭蕾、习乔乔、习安安，情报主要是习安安和英国老公拉菲，习近平的家人实际控制着中国；
+七哥告诉你这个历史性的事件
+I am telling you about this historic event
 
-8、俄罗斯派特使到中共通报了俄美沟通的结果：
+大家说，我不说什么立陶宛，我不谈任何事情了，我也不谈WTO了
+they said, I won’t talk about Lithuania, I won’t talk about anything, and I won’t talk about WTO anymore
 
-1）、俄罗斯告诉中共打台湾不参与；
+我也不谈跟你的这个汇率问题，我现在就是明确地告诉你
+I won’t talk about the exchange rate issue with you either, I’m telling you clear-ly now
 
-2）、所有中俄之间的油气协议必须兑现，不兑现就和美国一起打中共；
+我们肯定抵制奥运，这几国是不想抵制的，
+We definitely boycott the Olympics game, these countries do not want to boy-cott the Olympics game from the beginning
 
-3）、俄罗斯、印度、北朝鲜、巴基斯坦形成新的战略同盟，没有中共；
+你像英国、法国甚至意大利, 都是有条件的跟中共谈谈这个抵制奥运，这几乎这四国基本带上整个欧盟了
+like Britain, France and even Italy, they all have conditions to negotiate with the CCP about the boycott the Olympics game, and these four countries basically represent the entire EU
 
-4）、俄罗斯反对中共在阿富汗的事情；
+就连日本现在里边各种说法都有，但是日本今天也就几个小时以前大变
+Even Japan now has all kinds of various thoughts internally, but today a few hours ago that Japan has changed drastically
 
-9、古巴、伊朗、北朝鲜、巴基斯坦、坦桑尼亚、乌干达、尼日利亚、泰国、马来西亚、塞舌尔、尼泊尔、缅甸都会派政府代表团冬奥会；
+我告诉大家来源是什么？什么原因导致的, 就是中共的内部做出了强硬的决定
+Let me tell you why? What caused this result? because the CCP made a tough decision internally
 
-10、中共的经济非常糟糕，涨价最严重的是粮食，俄罗斯的合同没有钱支付，冬奥运后，中共国失业断供潮涌现，2022年是中共国回到1958年；
+给各国所谓的五眼联盟，说你要敢抵制这个中共的奥运, 后果很严重，就是威胁
+that put threat to the Five Eyes Alliance countries, saying if you will dare to boycott the CCP’s Olympics game, the consequences are serious, it is a threat
 
-11、世界邪恶组织继续推动疫苗：美国大选后，福奇和扎克伯格 一定会进监狱；
+不仅仅是不让你美国人说, 我不让你干这，不让你干那的问题了，说我(中共)要对美国的企业甚至对苹果都要大开杀戒
+It’s not only let American speak, not only I order you not to do this and that, the Chinese Communist Party want to punish American companies even Apple
 
-**注：音频正在转码和上传中，稍后音频将附加到下边，敬请期待——**
+给日本明确地说了，如果你要是敢要来这块儿张狂地说抵制奥运
+CCP make it clear to Japan, if you dare to come here to boycott the Olympics game
 
-（大直播音频）
+对日本在华的企业全面抵制、全面关闭，我都查你的税
+they will totally boycott and fully closed Japanese companies in China, and check the company’s tax issues
 
-编辑整理：文俊；
+欧盟本来还有点想跟美国，就是想较量较量，想在中共那再弄一块肉出来
+The European Union originally wanted to compete with the United States, just compete a little bit, and wanted to get another piece of “meat” out of the CCP
 
-发布：黎明之前；
+偷块肉出来，这些不要脸的政治家的都这样想
+like stealing a piece of “meat”, this is all the these shameless politicians thoughts
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
+但是在这20分钟前发出这个东西，绝对对中共最后又是致命一击
+But sending this thing 20 minutes ago was definitely another fatal attack to the CCP
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+原因还有一个就是俄罗斯，俄罗斯这次明确地，俄罗斯告诉了美国和欧洲
+Another reason is Russia, this time Russia clearly told the United States and Eu-rope
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+你们绝对不允许把两件事儿跟我们放在一起，你们要放在一起
+you are absolutely not allowed to put these two things with us, if you put them together and plan…
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+我可以告诉大家，今天文贵是天下第一个人说出来的
+I can tell everyone that Miles was the first person in the world to talk about this today
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+没有任何人知道的，参加会的人就是极少人，你知道俄罗斯说什么
+No one knows, there are very few people attending the meeting, do you know what Russia said？
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+绝对不允许把我们和乌克兰和台湾和共产党的行动放在一起
+It is absolutely not allowed to put the attack actions of Ukraine and Taiwan and the Communist Party with us
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+绝对没有这事儿，你们千万别这么想，那将是战略上重大失误, 咱们之间就会出大误会了
+There is absolutely no such thing, don’t think about it this way, it will be a ma-jor strategic mistake, and we will have a big misunderstanding
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+第二件事情，你们千万别把共产党的病毒和疫苗
+The second thing, you can not put the communist virus and vaccine
+
+还有这个疫苗政策，和共产党的经济跟我俄罗斯绑在一起
+and this vaccine policy and the Communist Party’s economy bomb tie to Russia
+
+我们绝对跟它不一样，最后还有哥南海问题
+We are definitely different with the CCP, and finally there is the problem of South China Sea
+
+南海问题我们跟中共绝对不同步，它给我们钱我们就去转悠, 我们在哪都是转悠
+We are absolutely out of sync with the CCP on the South China Sea issue, we will go around when the CCP give us money and wherever we can go
+
+记住，这是七哥，今天跟你们说得历史性的时刻
+remember, this is the historic moment I told you today
+
+**原视频链接**[:](https://gettr.com/post/pje1i71ce9)[https://gettr.com/post/pje1i71ce9](https://gettr.com/post/pje1i71ce9)
+
+Date:12/11/2021
+**原视频标题**: 共产党张牙舞爪的日子到头了 欧盟开始抵制中共
+When European Union begins to boycott the CCP that the Communist Party’s arrogant days are the end
+原视频日期：2021/12/10
+**原视频链接**https://gettr.com/post/pje1i71ce9
+任务编号：KC332（3186）
+视频时间段 : 0:00-2:19
+
+中听校 : 洛杉矶盘古农场 – Layka
+翻译 : 洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场- 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+
 
  
 

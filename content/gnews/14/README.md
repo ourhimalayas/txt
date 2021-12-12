@@ -2,46 +2,62 @@
 ---
 
 
-## 日本专家警告称，疫苗对年轻人的死亡风险是COVID-19的7倍
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1748212/)
+## 南非——一个被Omicron污名化的国家
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1748223/)
 
-作者：雷蒙德·沃尔夫（Raymond Wolfe）
-发布日期：2021年12月11日
-新闻来源：LifeSiteNews 
-翻译：文虓Bobby
+作者：香草山农场健身部 – 正道新闻
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/121301.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/06/WhatsApp_Image_2020-10-24_at_04.33.05-4.jpeg)
 
-日本药品公告,医学检查说，“即使儿童、青少年和20多岁的人被感染，它也是自然温和或无症状的。”“考虑给学龄儿童接种疫苗是荒谬的。”
 
-日本大阪(LifeSiteNews)——一份日本医学公报警告称，对于20多岁的人来说，新冠疫苗可能造成的死亡风险至少是病毒本身的7倍。
 
-回顾最近一期医疗检查, 作为国际药物通报学会成员(ISDB)，日本研究所发表的双月刊药物警示公告, 发现对年轻人来说注射疫苗的死亡风险甚至可能高达40倍。
+2019年年底开始肆虐的中共病毒时至今日依然还在毒害全人类。病毒本身、错误的治疗方案以及疫苗的滥用是这次病毒久拖不决的重要原因。就在欧洲、美洲、亚洲大量人口被强迫打疫苗，感染、死亡之时，南非豪登省较低的疫苗接种率与被逐渐控制的疫情，清楚的向世人展示出，这次病毒是不折不扣了的人祸而非天灾。
 
-医疗检查（Med Check）引用了三份20至29岁人群在接种疫苗几天或几周内死亡的报告，估计该年龄组的死亡率为百万分之3.2。一名27岁的职业棒球运动员在接种疫苗后8天昏倒，在医院与之斗争一个月后死亡。
+南非豪登省，面积仅占全国面积的1.5%，但人口高达1517万人，是南非人口最多的省份，最大的城市约翰内斯堡也坐落在这里。可以说这个省集中了南非最好的医疗资源与人才储备（包括了约翰内斯堡大学IFK学院）。
 
-该公告指出，死亡人数可能更高，部分原因是日本政府只要求在注射后28天内报告疑似疫苗受伤的情况。截至10月15日，日本厚生劳动省共收到1308例因接种新冠疫苗而死亡的报告。
+在Delta病毒流行开始期间，南非豪登医院确认了15400中共病毒案例（图一）。从数据中我们可以清晰的看到，在没有强制推广疫苗、在购买羟氯喹、伊维菌素自由的国度，控制疫情，减少死亡率并非难事。
 
-即使只有三例病例，对疫苗产生致命反应的风险也远远超过了病毒对年轻人的危险。根据医疗检查（Med Check）的数据，在日本，年轻人死于这种疾病的几率为百万分之0.6-0.8。截止到2021年6月，在1180万名20多岁的日本人中，死亡人数仅为7人，8月中旬死亡人数为10人。
+图一：南非国家传染研究所对中共病毒死亡人数的监控
 
-医疗检查（Med Check）确定，与冠状病毒带来的风险相比，疫苗接种造成的死亡风险在6月份高出7倍以上，到8月11日高出近5倍。几年之后，20多岁人群接种疫苗的死亡风险可能高达COVID-19的40倍。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-654.png)
 
-医疗检查（Med Check）还指出，截至2021年9月，日本没有20岁以下的COVID-19死亡病例。公告警告说:“如果这个年龄段的儿童接种疫苗，可能会导致死亡。”
+11月上旬，Omicron登陆南非之后，12月11日，该种类病毒致病人数就出现了拐点，患病人数开始下降（图二）。死亡人數預計要比Delta病毒低 25 倍。 图二：豪登省，Delta与Omicron病毒新增情况表
 
-“即使儿童、青少年和20多岁的人被感染，它自然是温和的或无症状的，因为他们比成年人尤其是老年人的SARS-CoV-2受体ACE2少。考虑给小学生接种疫苗是荒谬的。”
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-655.png)
 
-最近的一项研究发现，在美国18岁以下的COVID病例中，有0.00至0.03%的病例导致死亡，在德国大流行的前15个月里，5岁至18岁的健康儿童没有死于该病毒。
+具体而言根据约翰内斯堡IFK学院**Pieter Streicher**博士**统计发现：**
 
-据估计，60岁以下所有年龄组的COVID-19生存率不低于99.7%。
+第一、二波中共病毒侵袭时，在豪登省各医院死亡的案例约占住院总病患的16%（私立医院）、22%（公立医院）。此时南非全国感染率由20%上升到45%，死亡率维持在4%左右。
 
-医疗检查（Med Check）的分析与其他专家的类似评估相一致，例如病毒免疫学家杰西卡·罗斯（Jessica Rose）博士在9月份告诉FDA小组，注射疫苗的危险“大于任何潜在的好处”，并引用了由于注射疫苗而导致的疫苗损伤报告的“高度异常”上升。
+第三波Delta病毒流行之后，南非感染率达到了70%，在豪登省各医院死亡率达到了22%（私立医院）和31%（公立医院）。
 
-健康研究员、前川普官员保罗·埃利亚斯·亚历山大博士（Dr. Paul Elias Alexander）在为LifeSiteNews撰写的一篇文章中同样警告说:“这些未经测试的安全疫苗可能会导致数千名儿童死亡。”“没有适当的安全数据，无论是中期还是长期的，父母必须现在站出来，（对疫苗）说不!”
+但是从第四波开始，虽然整个南非因Omicron病毒株具有强力的传播能力，使得致病率上升到了80%，但是死亡率降低了到了0.42%，在豪登省各医院的死亡率也降到了9%（初步估计）。
 
-[援引原文](https://www.lifesitenews.com/news/vaccines-pose-7-times-higher-death-risk-than-covid-for-young-people-japanese-experts-warn/?utm_source=top_news&amp;utm_campaign=usa)
+图三：医院中共病毒死亡统计数据
 
-审核校对：玫瑰天空
-上传排版：糖果儿
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-656.png)
+
+在此基础上，**Pieter Streicher考虑到在豪登省各医院的患病数据（图四），认为，南非较高的天然免疫水平**(70%+) 和低疫苗接種率（25% 的人口和 60%的 50+ 人已完全接種疫苗），加之Omicron 非常溫和，使得我们不必对于第四波疫情有太多的担心和忧虑。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-659.png)
+近日，據荷蘭衛生機構稱，早在南非向WHO通报新变种病毒Omicon的前一周，在本国就发现该变异毒株。这次对于南非病毒的污名化，使得全世界各国几乎第一时间停止了与南非的航空运输。作为一个将高端旅游行业作为经济支柱产业的国家，欧美富裕阶层渡过圣诞的节的首选之地，南非受到的直接经济损失高达100亿美元
+
+编辑/校对/发稿：菩提树
+
+[https://twitter.com/hashtag/Omicron?src=hashtag\_click https://www.nicd.ac.za/diseases-a-z-index/disease-index-covid-19/surveillance-reports/daily-hospital-surveillance-datcov-report/ https://worldview.stratfor.com/article/omicron-deals-another-blow-south-africa-s-struggling-economy https://www.npr.org/2021/11/30/1060025081/omicron-variant-netherlands-europe-south-africa](https://twitter.com/hashtag/Omicron?src=hashtag_click%20https://www.nicd.ac.za/diseases-a-z-index/disease-index-covid-19/surveillance-reports/daily-hospital-surveillance-datcov-report/%20https://worldview.stratfor.com/article/omicron-deals-another-blow-south-africa-s-struggling-economy%20https://www.npr.org/2021/11/30/1060025081/omicron-variant-netherlands-europe-south-africa)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
 
  
 
