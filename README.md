@@ -15,104 +15,104 @@
 
 ---
 
-### [香草山翻译部周刊|2021年12月12日第26期](/content/gnews/1/README.md)
- ` 纽约香草山MOS01`
-
-### [俄罗斯喀秋莎农场12月11日直播 聊聊奥运会](/content/gnews/2/README.md)
- ` HimalayaRussia`
-
-### [美国疾病控制与预防中心（CDC）承认：大多数Omicron感染者是完全接种疫苗者](/content/gnews/3/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [金融大师：我们被引诱给自己建起监狱(4/4)](/content/gnews/4/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [中国粮食问题研究](/content/gnews/5/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [金融大师：我们被引诱给自己建起监狱(3/4)](/content/gnews/6/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [2021/12/12 墙内世界](/content/gnews/7/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [金融大师：我们被引诱给自己建起监狱(2/4)](/content/gnews/8/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [南非医疗保健主管表示Omicron“可能标志着 COVID-19 的终结”](/content/gnews/9/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [美财政部在国际人权日宣布制裁严重侵犯人权的犯罪者](/content/gnews/10/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [12月12日文贵大直播快讯——习神的狂妄将导致中共的毁灭](/content/gnews/11/README.md)
- ` 澳喜特战旅Gnews`
-
-### [元曲今作：南吕·Hcoin To the Moon 颠覆之歌](/content/gnews/12/README.md)
- ` HimalayaRussia`
-
-### [英国间谍头子对中共数字人民币的表示担忧](/content/gnews/13/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [文贵爆料 12.12：联俄抗美——一场相思一场梦](/content/gnews/14/README.md)
- ` 秘密翻译组-原创组`
-
-### [共产党张牙舞爪的日子到头了 欧盟开始抵制中共](/content/gnews/15/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [2021年12月12日文贵先生直播摘要及音频——银河系农场](/content/gnews/16/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [2021年12月12日郭先生大直播文字同步精要](/content/gnews/17/README.md)
- ` 焦點20分`
-
-### [12月12日文贵大直播快讯——俄方明确声明不支持攻台战略](/content/gnews/18/README.md)
- ` 澳喜特战旅Gnews`
-
-### [从此没有郭七条 加速灭共让它消失](/content/gnews/19/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [美 日 澳 印之间复杂的战略合作关系](/content/gnews/20/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [加州学校为男孩接种COVID-19疫苗，并告诉他不要说出去](/content/gnews/21/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [共产党对新中国联邦、顷一国之力的全面行动](/content/gnews/22/README.md)
- ` GTV News Talk`
-
-### [2021年12月08日郭文贵先生直播中文简报](/content/gnews/23/README.md)
- ` Mr. Miles Guo's News Briefing`
-
-### [文·贵天成——文贵先生谈“疫苗”（四十四）](/content/gnews/24/README.md)
- ` 墨尔本雅典娜农场`
-
-### [2021年12月12日文贵先生直播小飞象大雨围城速记](/content/gnews/25/README.md)
- ` Mr. Miles Guo's News Briefing`
-
-### [为什么新冠病毒的起源调查难以推进？](/content/gnews/26/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [GTV新闻访谈简报|2021年12月12日早](/content/gnews/27/README.md)
- ` 纽约香草山MOS01`
-
-### [新中国联邦与共产党已展开正面交锋](/content/gnews/28/README.md)
- ` GTV News Talk`
-
-### [接种疫苗者占病毒感染案例77%——英权威研究数据证实疫苗无效甚至低至负数](/content/gnews/29/README.md)
+### [日本专家警告称，疫苗对年轻人的死亡风险是COVID-19的7倍](/content/gnews/1/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [2022日本经济复苏仍不容乐观](/content/gnews/30/README.md)
+### [香草山翻译部周刊|2021年12月12日第26期](/content/gnews/2/README.md)
+ ` 纽约香草山MOS01`
+
+### [俄罗斯喀秋莎农场12月11日直播 聊聊奥运会](/content/gnews/3/README.md)
+ ` HimalayaRussia`
+
+### [美国疾病控制与预防中心（CDC）承认：大多数Omicron感染者是完全接种疫苗者](/content/gnews/4/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [金融大师：我们被引诱给自己建起监狱(4/4)](/content/gnews/5/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [中国粮食问题研究](/content/gnews/6/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [金融大师：我们被引诱给自己建起监狱(3/4)](/content/gnews/7/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [2021/12/12 墙内世界](/content/gnews/8/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [金融大师：我们被引诱给自己建起监狱(2/4)](/content/gnews/9/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [南非医疗保健主管表示Omicron“可能标志着 COVID-19 的终结”](/content/gnews/10/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [美财政部在国际人权日宣布制裁严重侵犯人权的犯罪者](/content/gnews/11/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [12月12日文贵大直播快讯——习神的狂妄将导致中共的毁灭](/content/gnews/12/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [元曲今作：南吕·Hcoin To the Moon 颠覆之歌](/content/gnews/13/README.md)
+ ` HimalayaRussia`
+
+### [英国间谍头子对中共数字人民币的表示担忧](/content/gnews/14/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [文贵爆料 12.12：联俄抗美——一场相思一场梦](/content/gnews/15/README.md)
+ ` 秘密翻译组-原创组`
+
+### [共产党张牙舞爪的日子到头了 欧盟开始抵制中共](/content/gnews/16/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [2021年12月12日文贵先生直播摘要及音频——银河系农场](/content/gnews/17/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [2021年12月12日郭先生大直播文字同步精要](/content/gnews/18/README.md)
+ ` 焦點20分`
+
+### [12月12日文贵大直播快讯——俄方明确声明不支持攻台战略](/content/gnews/19/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [从此没有郭七条 加速灭共让它消失](/content/gnews/20/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [美 日 澳 印之间复杂的战略合作关系](/content/gnews/21/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [加州学校为男孩接种COVID-19疫苗，并告诉他不要说出去](/content/gnews/22/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [共产党对新中国联邦、顷一国之力的全面行动](/content/gnews/23/README.md)
+ ` GTV News Talk`
+
+### [2021年12月08日郭文贵先生直播中文简报](/content/gnews/24/README.md)
+ ` Mr. Miles Guo's News Briefing`
+
+### [文·贵天成——文贵先生谈“疫苗”（四十四）](/content/gnews/25/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [2021年12月12日文贵先生直播小飞象大雨围城速记](/content/gnews/26/README.md)
+ ` Mr. Miles Guo's News Briefing`
+
+### [为什么新冠病毒的起源调查难以推进？](/content/gnews/27/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [GTV新闻访谈简报|2021年12月12日早](/content/gnews/28/README.md)
+ ` 纽约香草山MOS01`
+
+### [新中国联邦与共产党已展开正面交锋](/content/gnews/29/README.md)
+ ` GTV News Talk`
+
+### [接种疫苗者占病毒感染案例77%——英权威研究数据证实疫苗无效甚至低至负数](/content/gnews/30/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [2022日本经济复苏仍不容乐观](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [12/12/21 香港快讯 圆玄小学按教育局建议 向学生播南京大屠杀片段 小一学生受惊](/content/gnews/31/README.md)
+### [12/12/21 香港快讯 圆玄小学按教育局建议 向学生播南京大屠杀片段 小一学生受惊](/content/gnews/32/README.md)
  ` 英喜-粵語組`
 
-### [美国再次制裁中共官员和军企科技帮凶](/content/gnews/32/README.md)
+### [美国再次制裁中共官员和军企科技帮凶](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [奧運會東道主中國連續第三年被評為世界上最糟糕的關押記者的國家](/content/gnews/33/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [拜登明确告知普京：若入侵乌克兰将付出惨重代价](/content/gnews/34/README.md)
  ` 日本东京方舟农场`

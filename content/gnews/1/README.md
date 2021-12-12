@@ -2,26 +2,46 @@
 ---
 
 
-## 香草山翻译部周刊|2021年12月12日第26期
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1748115/)
+## 日本专家警告称，疫苗对年轻人的死亡风险是COVID-19的7倍
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1748212/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-3.jpg)
+作者：雷蒙德·沃尔夫（Raymond Wolfe）
+发布日期：2021年12月11日
+新闻来源：LifeSiteNews 
+翻译：文虓Bobby
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/12/26CN.png)
-文章仅代表作者本人观点，与Gnews无关
+![](https://assets.gnews.org/wp-content/uploads/2021/12/121301.jpg)
 
-总编： GBWater
-编辑： Lakers
-发稿： Lakers
+日本药品公告,医学检查说，“即使儿童、青少年和20多岁的人被感染，它也是自然温和或无症状的。”“考虑给学龄儿童接种疫苗是荒谬的。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/calendar.jpeg)
+日本大阪(LifeSiteNews)——一份日本医学公报警告称，对于20多岁的人来说，新冠疫苗可能造成的死亡风险至少是病毒本身的7倍。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+回顾最近一期医疗检查, 作为国际药物通报学会成员(ISDB)，日本研究所发表的双月刊药物警示公告, 发现对年轻人来说注射疫苗的死亡风险甚至可能高达40倍。
+
+医疗检查（Med Check）引用了三份20至29岁人群在接种疫苗几天或几周内死亡的报告，估计该年龄组的死亡率为百万分之3.2。一名27岁的职业棒球运动员在接种疫苗后8天昏倒，在医院与之斗争一个月后死亡。
+
+该公告指出，死亡人数可能更高，部分原因是日本政府只要求在注射后28天内报告疑似疫苗受伤的情况。截至10月15日，日本厚生劳动省共收到1308例因接种新冠疫苗而死亡的报告。
+
+即使只有三例病例，对疫苗产生致命反应的风险也远远超过了病毒对年轻人的危险。根据医疗检查（Med Check）的数据，在日本，年轻人死于这种疾病的几率为百万分之0.6-0.8。截止到2021年6月，在1180万名20多岁的日本人中，死亡人数仅为7人，8月中旬死亡人数为10人。
+
+医疗检查（Med Check）确定，与冠状病毒带来的风险相比，疫苗接种造成的死亡风险在6月份高出7倍以上，到8月11日高出近5倍。几年之后，20多岁人群接种疫苗的死亡风险可能高达COVID-19的40倍。
+
+医疗检查（Med Check）还指出，截至2021年9月，日本没有20岁以下的COVID-19死亡病例。公告警告说:“如果这个年龄段的儿童接种疫苗，可能会导致死亡。”
+
+“即使儿童、青少年和20多岁的人被感染，它自然是温和的或无症状的，因为他们比成年人尤其是老年人的SARS-CoV-2受体ACE2少。考虑给小学生接种疫苗是荒谬的。”
+
+最近的一项研究发现，在美国18岁以下的COVID病例中，有0.00至0.03%的病例导致死亡，在德国大流行的前15个月里，5岁至18岁的健康儿童没有死于该病毒。
+
+据估计，60岁以下所有年龄组的COVID-19生存率不低于99.7%。
+
+医疗检查（Med Check）的分析与其他专家的类似评估相一致，例如病毒免疫学家杰西卡·罗斯（Jessica Rose）博士在9月份告诉FDA小组，注射疫苗的危险“大于任何潜在的好处”，并引用了由于注射疫苗而导致的疫苗损伤报告的“高度异常”上升。
+
+健康研究员、前川普官员保罗·埃利亚斯·亚历山大博士（Dr. Paul Elias Alexander）在为LifeSiteNews撰写的一篇文章中同样警告说:“这些未经测试的安全疫苗可能会导致数千名儿童死亡。”“没有适当的安全数据，无论是中期还是长期的，父母必须现在站出来，（对疫苗）说不!”
+
+[援引原文](https://www.lifesitenews.com/news/vaccines-pose-7-times-higher-death-risk-than-covid-for-young-people-japanese-experts-warn/?utm_source=top_news&amp;utm_campaign=usa)
+
+审核校对：玫瑰天空
+上传排版：糖果儿
 
  
 
