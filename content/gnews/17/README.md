@@ -2,105 +2,27 @@
 ---
 
 
-## 中共一定会被踢出WTO SWIFT
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1746234/)
+## 二十年未兑现承诺！ 中共将被踢出世贸组织
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1746310/)
 
-[https://gtv.org/video/id=61b4cf6987fa7e74c92ea222](https://gtv.org/video/id=61b4cf6987fa7e74c92ea222)
+撰稿：东京樱花团/天路天道
+![](https://assets.gnews.org/wp-content/uploads/2021/12/5-13.png)[图片来源](https://gnews.org/zh-hant/342028/)
+自由亚洲电台近日报道，12月11日是中共国加入世贸组织（WTO）二十周年日。但二十年来，中共受惠于加入世贸组织，实现了飞速发展，但却一直未能完全兑现入世时许下的承诺。
 
-**郭文贵
-Miles Guo**
+报道例数了中共在多个领域的失信。在经济政策方面，中共许下的第一个承诺就是将对中国企业、在华外国企业和个人给予相同的待遇。在国企方面，中共承诺将不直接或间接地影响国有企业或国家投资企业的商业决定。在出口补贴方面，中共承诺遵守世贸组织《补贴与反补贴措施协定》，逐步取消与规则不符的补贴措施，而对国企提供的补贴也将受到同样的约束。
 
-连中石化的现在都是减半发工资了
-Even the wages of the China Petroleum and Chemical Corporation (Sinopec) are halved now
+报道还指出，中共不仅历来如此，就是当前也仍在“耍赖”。就在两个月前，美国贸易代表戴琪宣布，中共未能履行在美中第一阶段贸易协议中许下的承诺，同时还强调，美方正就此追究中共当局的责任。
 
-中石化现在里面退休工资都减半发了
-Sinopec has halved retirement wages
+当前，中共在全世界的信用已经彻底破产。中共被踢出世贸组织日子已经不远矣。
 
-（更）甭说是现在工作的了
-There is no need to mention the people that are working now
+信息来源：
 
-他们没钱了
-They (The CCP) have no more money
+[入世二十年 中国履行承诺了吗？](https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/hc-12092021134731.html)
 
-马上经济危机就将到来
-The economic crisis will come very soon
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
 
-你们看到这几天世界上有谁还说（不相信）
-You have already seen that who else in the world still does not believe it these days
-
-七哥几年前说的经济危机
-The economic crisis that Miles Guo said a few years ago
-
-就像我们2019
-Just like in 2019
-
-我说我一定会把（北京）冬奥会给它灭掉一样
-I said I would definitely call off the (Beijing) Winter Olympics
-
-东弟当时你相信吗
-Brother Dong, did you believe it at that time?
-
-颖妹妹 是吧
-Right? Sister Ying
-
-记住七哥说的
-Remember what I said
-
-我一定把它（中共）踢出WTO去
-I must kick it (the CCP) out of the World Trade Organization (WTO)
-
-我一定会让它（被）踢出SWIFT美元支付系统
-I will definitely let it (being) kicked out of the SWIFT dollar payment system
-
-然后世界经济危机一定会在今年年底到明年五月份以前来
-Then the world economic crisis will definitely come from the end of this year to May next year
-
-七哥说的连天数都不差
-There’ll be not even days difference from what I said
-
-就这过去的24小时
-Just the past 24 hours
-
-全世界70多个有影响力的经济专家说
-more than 70 influential economic experts around the world said that
-
-世界发生有史以来1929年以来最大
-there would be the largest occurrence in the world’s history since 1929
-
-2008年以来最大的经济危机，全球
-There would be the biggest economic crisis since 2008 globally
-
-而且是5年到10年甚至更长时间的
-And it would be last 5 to 10 years and even longer
-
-由于通胀、通缩、供应和需求之间的巨大矛盾
-Due to the huge contradiction between inflation, deflation, supply and demand
-
-大家记住
-everyone remember that
-
-可能真的钱就不是钱了
-it’s possible that the real money may not be the money anymore
-
-* * *
-
-Date: 12/09/2021
-原视频标题: 中共一定会被踢出WTO SWIFT
-The CCP Will Certainly be Kicked Out of WTO And SWIFT
-原视频日期：2021/12/08
-原视频链接: [https://gettr.com/post/pj7ur694a5](https://gettr.com/post/pj7ur694a5)
-任务编号：KC327(3165)
-视频时间段 : 0:00-1:18
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译：洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

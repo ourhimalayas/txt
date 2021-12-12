@@ -2,20 +2,45 @@
 ---
 
 
-## 秘翻在线：又一个！曼联球员林德洛夫比赛中突然胸痛和心脏不适
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1745935/)
+## 恒大倒闭，澳大利亚又一个“失去的十年”
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1746021/)
 
-#### 翻译/撰稿：zzballack
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-123.jpg)图片来源：墨尔本雅典娜农场设计组（姐夫说说）
+整理报道：文泓
 
-#### 校对：白夜
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-609.png)   图片来源：每日邮报
-据《网关专家》（Gateway Pundit）12月11日报道，在英国时间12月11日晚间进行的诺维奇对阵曼联的英超比赛中，曼联后卫维克托·林德洛夫 (Victor Lindelöf)在比赛进行到第70分钟时，在一次对抗后突然感觉胸口疼痛，而且心率过快、呼吸困难，在经队医检查后不得不提前提前离场。
+12月12日，澳洲媒体报道，中共国地产巨头恒大的倒闭可能为澳大利亚开启另一个“失去的十年”，表现特点是**工资增长停滞、澳元贬值、预算赤字和税收增加。**
 
-曼联队的门将大卫·德赫亚（David de Gea）表示：“当我看到林德洛夫突然呼吸困难时，不禁想起了克里斯蒂安·埃里克森（Christian Eriksen）和塞尔希奥·阿圭罗（Sergio Agüero），这种情况真的很让人担心，生命安全第一，我希望他没事。”丹麦球员埃里克森在今夏的欧洲杯比赛中，因心脏骤停晕倒在球场上，之后被送往医院抢救。而巴塞罗那前锋阿圭罗在11月8日的比赛中，也是在一次对抗后突然胸口不适，被迫提前下场。阿圭罗在随后的体检中被查出心律失常，这类心脏病非常危险，可能导致他提前退役。
+有专家表示，恒大的违约不同于雷曼兄弟式的金融危机，而是标志着中共国经济的重大结构性调整。这可能会导致重组，**外国投资者将遭受重创，但国内贷方、客户和供应商在一定程度上受到保护**。
 
-林德洛夫的情况不是少数个例，自新冠疫苗开始推广以来，越来越多运动员突然晕倒或心脏骤停，有些人甚至死亡。已有许多人开始关注这一反常现象，怀疑其是否与疫苗有关。无奈审查与疫苗有关言论的网络太过森严，这些声音立即就被拦截或删除，鼓吹疫苗接种的声音仍占据主流。正如文贵先生所说，当明年5月疫苗灾难开始爆发时，随着人们逐渐看清疫苗真相，全球才会觉醒，共同应对人类这一史无前例的危机。
+澳洲影响最大的是铁矿石出口，它在上一财政年度带来了1490亿澳元的收入。
 
-新闻来源：[Another One… Manchester United Player Stops Play, Leaves Game Early with Reported Chest Pains](https://www.thegatewaypundit.com/2021/12/another-one-manchester-united-player-stops-play-leaves-game-early-reported-chest-pains/?utm_source=add2any&amp;utm_medium=PostBottomSharingButtons&amp;utm_campaign=websitesharingbuttons)
+“好消息是你不会遇到快速的危机，但长期预期不佳，因为重要的所有大宗商品需求都会长期下降，”MB基金首席策略师大卫·卢埃林·史密斯说。
+
+恒大是全球负债最多的房地产开发商，负债超过3,000亿美元（4,200亿澳元），在本周错过重要的海外债券利息支付后，评级机构惠誉隔夜正式宣布其违约。
+
+自夏季以来，至少有10家仍具规模的中共国房企拖欠了债券（利息）支付。与此同时，北京对中国失控的房地产市场进行了更广泛的挤压。习近平去年出台了一套新规则，称为“三条红线”，规定了严格的借贷限额，以控制该行业不断膨胀的债务。
+
+虽然中共当局正在采取措施减轻国内的压力——中国人民银行试图通过提高银行外汇持有率的要求来抑制人民币汇率，但拒绝提高利率——三条红线政策已经很大程度上推动了去杠杆，保持不变。
+
+“所以换句话说，他们是故意这样做的，”卢埃林·史密斯先生说。他将其描述为试图“管控（破产）过程”，而不是引起市场恐慌。
+
+卢埃林·史密斯先生说：“让恒大在这个有‘管控’的过程中破产，是他们决心在对澳大利亚最重要的领域永久放缓经济增长的一个例子。”
+
+“看起来基本情况是我们将避免雷曼式危机，但在全球金融危机之后，中共国将变得像欧洲的希腊一样，它将被永久（债务）重组。因此，这是对澳大利亚经济的结构性挑战。”
+
+（未来）数十亿澳元的大宗商品收入损失将抹去澳大利亚当前的贸易顺差和经常账户顺差。
+
+“这将对澳大利亚名义增长造成巨大打击”，卢埃林·史密斯先生说：“这将对澳洲收入造成很大压力，很难提高工资，政府预算会受到打击，你可能面临加税以试图替代下降的企业收入。虽然这不一定是一场灾难，但它意味着又一个失去的十年。最有可能的是，生活水平将再下降十年，这就是我们在上次大宗商品崩盘后面临的情况。”
+
+新闻链接：[Iron ore: What China Evergrande’s collapse means for Australia | news.com.au — Australia’s leading news site](https://www.news.com.au/finance/economy/australian-economy/another-lost-decade-what-evergrandes-collapse-means-for-australia/news-story/0d886615c9e0ae84828f5cc9d1ae2c33)
+
+发布：去中心化Math
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

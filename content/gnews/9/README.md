@@ -2,27 +2,54 @@
 ---
 
 
-## 二十年未兑现承诺！ 中共将被踢出世贸组织
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1746310/)
+## 震惊！澳免疫专家组披露其从未建议实施有争议的疫苗强制措施
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1746392/)
 
-撰稿：东京樱花团/天路天道
-![](https://assets.gnews.org/wp-content/uploads/2021/12/5-13.png)[图片来源](https://gnews.org/zh-hant/342028/)
-自由亚洲电台近日报道，12月11日是中共国加入世贸组织（WTO）二十周年日。但二十年来，中共受惠于加入世贸组织，实现了飞速发展，但却一直未能完全兑现入世时许下的承诺。
+**翻译：不要代表我Kari**
+**编辑：MSGZ**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/11-2.png)图片来源dailymail.co.uk
+澳大利亚的免疫专家小组表示没有建议强制接种疫苗。澳大利亚免疫技术咨询小组本周举行听证会。专家小组被问及，如果民众接种了疫苗，是否还有必要强制疫苗接种？主席说，推出疫苗接种取决于各州的公共卫生命令。
 
-报道例数了中共在多个领域的失信。在经济政策方面，中共许下的第一个承诺就是将对中国企业、在华外国企业和个人给予相同的待遇。在国企方面，中共承诺将不直接或间接地影响国有企业或国家投资企业的商业决定。在出口补贴方面，中共承诺遵守世贸组织《补贴与反补贴措施协定》，逐步取消与规则不符的补贴措施，而对国企提供的补贴也将受到同样的约束。
+澳大利亚的免疫专家小组已与国家强制执行的 新冠疫苗规定保持距离，并表示从未推荐强制疫苗规定。
 
-报道还指出，中共不仅历来如此，就是当前也仍在“耍赖”。就在两个月前，美国贸易代表戴琪宣布，中共未能履行在美中第一阶段贸易协议中许下的承诺，同时还强调，美方正就此追究中共当局的责任。
+澳大利亚免疫技术咨询小组 (ATAGI) 坚持认为，任何时候都没有就强制接种疫苗规定向各州提出建议，这在全国引发了广泛的抗议
 
-当前，中共在全世界的信用已经彻底破产。中共被踢出世贸组织日子已经不远矣。
+该咨询机构在周三的议会委员会听证会上受到了质询，被问及如果90%的人都接种了二剂疫苗，那么有争议的强制授权是否还有必要。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/22-4.png)图片来源hindustantimes.com
+大约88.5%的16岁以上的澳大利亚人都接种了二剂疫苗。图为游泳运动员凯特-坎贝尔Cate Campbell在东京奥运会前接受疫苗接种。
 
-信息来源：
+联合主席克里斯托弗·布莱斯博士回答说：“澳大利亚免疫技术咨询小组ATAGI 在任何时候都没有提供强制疫苗授权建议。” “我们相信疫苗的有效性和安全性，至于如何实施和推广则完全取决于各州的公共卫生命令。”
 
-[入世二十年 中国履行承诺了吗？](https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/hc-12092021134731.html)
+这一消息是在澳大利亚药物管理局TGA批准莫德纳Moderna疫苗作为18岁以上人群的疫苗加强剂以后披露的。
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+最终决定将取决于澳大利亚免疫技术咨询小组ATAGI，预计将在下周公布。
 
+预计澳大利亚人“很快 ”就能在辉瑞Pfzier和莫德纳Moderna疫苗加强针之间做出决定。
+
+联邦卫生部长格雷格-亨特 Greg Hunt说：”当我们看到类似omicron这样的变种病毒时，疫苗加强针计划从根本上来说是至关重要的。
+
+大多数澳大利亚人有计划接种第三针强化疫苗，但犹豫不决的情况仍然存在。
+
+澳大利亚国立大学的最新调查发现，71.9% 的已接种疫苗的成年人打算接受第三剂加强针，但担心潜在的副作用。
+
+在 16 岁以上的澳大利亚人中，大约 88.5% 的人接种过二剂疫苗，93% 的人接种过一剂疫苗。
+
+在澳洲，超过90%的16岁以上儿童已完全接种疫苗的地区是新南威尔士州、维多利亚州和澳大利亚首都领地。
+
+超过58万名澳大利亚人已经接种了强化疫苗，建议在第二剂疫苗注射至少6个月后再接种第三剂强化疫苗。
+
+澳大利亚免疫技术咨询小组ATAGI 也有望在本周就关于 5-11 岁儿童的疫苗接种做出最终决定。
+
+原文链接：[https://www.dailymail.co.uk/news/article-10289849/Therapeutic-Goods-Administration-expert-panel-didnt-recommend-Covid-vaccine-mandates.html](https://www.dailymail.co.uk/news/article-10289849/Therapeutic-Goods-Administration-expert-panel-didnt-recommend-Covid-vaccine-mandates.html)
+
+*发布：*去中心化Math
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

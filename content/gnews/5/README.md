@@ -2,33 +2,123 @@
 ---
 
 
-## 中共公开以病毒威胁日本和印度放弃抵制北京冬奥会
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1746334/)
+## 最高级别送葬共产党
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1746461/)
 
-撰稿：Angelsky
+[https://gtv.org/video/id=61b4d1cc87fa7e74c92ea2ea](https://gtv.org/video/id=61b4d1cc87fa7e74c92ea2ea)
 
-撰稿：Angelsky
+大家看到这个了
+Todos vieron esto
 
-病毒真相最新消息：中共对世界各国抵制北京冬奥会恐惧之极，竟然公开威胁日本、印度：若敢加入美国抵制北京冬奥会的行列，则两国将很难预防民众病毒的感染状况。
+咱们这个是个草率的
+Lo nuestro es un poco riguroso
 
-该消息是郭文贵先生在2021年12月10日在新中国联邦文贵大直播中爆料。郭先生说，中共一厢情愿的策略是与俄罗斯结成联盟，中共取台湾，俄罗斯取乌克兰，然后让日本跪下。而目前北京奥运会是其制造万邦来朝大国气势的关键，鉴于奥运会近日遭各国抵制，中共就将枪口瞄准了他的邻居日本和印度。
+谢谢Qmay, 墨镜先生, 小白, Rain
+Gracias a Qmay, Señor Mojing, Xiaobai y Rain
 
-中共竟然私下对印度说，如果你敢在抵制冬奥会上高调发声，我会让你们在喜马拉雅山周围感受到无法想象的冬天的到来甚至更多病毒的传染，说的直截了当。印度人不明白什么意思，中共更加露骨的解释，我们如果不帮你们防毒，你们的病毒就会越来越多。几乎是在肆无忌惮的告诉印度，我中共就是放毒者，把印度吓到腿软。对日本更是几乎明说，中共问日本，你们现在病毒防治的还不错是吧，知道明年会有什么病毒吗？如果你敢公开抵制北京冬奥会，日本的病毒可能就控制不了啦！我们可是友邦啊，受害的可能是你日本！一副赤裸裸的魔鬼嘴脸！
+这个你们做的非常非常非常棒
+Lo hicieron muy bien
 
-郭先生说，中共对于自己的放毒、疫苗、召开冬奥会一系列决定，包括中共国对世界房地产经济的万亿违约，他们很清楚会导致世界经济崩溃。他们至今贼心不死，竟然相信自己冬奥会可以顺利召开。最荒唐的是，中共外交部公开宣称，不欢迎外国来宾参观其冬奥会，只允许各国运动员参加，但绝对不允许运动员之外的人进来。即记者、媒体等一概拒绝进入中共国。之所以如此荒唐，是因为其非常恐惧病毒的真相被随着冬奥会进来的良心媒体人公诸于世。
+我们要做的事情一定要是
+Lo que vamos a hacer debe ser
 
-郭先生说，这是何等的嚣张狂妄，比当年的希特勒、前苏联狂妄多了！而中共之所以一次次的如此疯狂，就在于各国无良政客与中共的勾兑。郭先生举例说，美国众议院各派政党高度共识、一天之内公布了三个关于制裁中共对新疆维吾尔族实施种族灭绝的人权保护、产品法案等三个法案，但白宫却试图阻止其尽可能不成为美国的法律，唯有不成为正式法律，白宫的无良政客们才可以再与中共勾兑，这是很大的事儿！
+咱做这事儿
+Nosotros hacemos esto
 
-再有，联合国最早、也一定会表态参加北京冬奥会，因为联合国想从中共那里拿钱；而早已被中共买通的世界卫生组织也一定会去，他们要证明病毒不来自于中共。大家一定要记住，只要北京冬奥会开成功，中共必然宣布病毒不来自于中共，病毒不是中共的生化武器。这是中共最最核心的目的，这是最狼子野心的。
+咱把它这个他们的丧事儿, 给它变成共产党有史来最高级的
+Hagamos que sea su funeral y que sea el más alto nivel en la historia del Partido Comunista 
+所有制造的棺材都是要特殊材料
+Todos los ataúdes fabricados estarán hechos de materiales especiales
 
-那么中共最终会怎么样？郭先生的也给出了答案。他说，中共梦想一箭三雕，一是北京冬奥会成功为中共创造万邦来朝之后，将整个病毒来源地模糊化、去中共化；二是开完冬奥会之后打台湾，将经济灾难再次扔给西方各国；第三，中共将人民币数字化，完成后就是中共把货币去美化、人民币国际化的一场绝对的战略成功。如果国际上对中共这个狼子野心没有看透，那就绝对不知道中共有多黑、多傲慢、多无知！
+花圈都是特殊材料
+Las coronas son todos de materiales especiales
 
-郭先生说到这里，话锋一转，接着说，但是，我们都要看到一个事实，中共的这种无知、狂妄，已经到了让我们新中国联邦跳舞庆祝的阶段了，他们不走上这一阶段，我们没有机会灭共！
+甚至用这个碳纤维carbon fiber都行
+Incluso se puede usar esta fibra de carbono o fibra
 
-小编想起一句名言：上帝欲让其灭亡，必先让其疯狂。目前我们处于黎明前的黑暗，冬天来了，春天还会远吗？历史的规律任何人和组织都无法规避，中共的灭亡已经近在咫尺了！
+要做的精美细化
+Debe hacerlo exquisitamente refinado
 
-加油，世界的正义力量们！加油，新中国联邦人!
-![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
+要用的音乐喇叭在(中共的)各国大使馆响起来的时候
+Cuando suene la música a través del parlante en las embajadas (PCCh) de varios países
+
+要达到了这个世界专家音乐水平的
+Debe alcanzar el nivel experto mundial en música
+
+比七哥唱H-coin to the moon还要厉害
+Y más poderoso que la canción que canté de H-coin to the moon
+
+叫他们的家人, 他们的妈听到以后都直接想进天堂
+Para que su familia y sus madres luego que la escuchen quieran entrar de una vez al paraíso
+
+非死不可的那种的
+Del tipo que debe morir sí o sí
+
+这音乐听得他非死不可
+Debe morir sí o sí escuchando esta música
+
+让习近平, 彭丽媛他们可以听不见
+Xi Jinping y Peng Liyuan pueden no escucharla
+
+只要他们听见, 他们就想死
+Y si la escuchan, querrán morir
+
+让王岐山, 姚明珊叫他们听见, 他们就想死
+También a Wang Qishan y Yaomingshan
+
+他有他母亲齐心
+Tiene a su madre Qi Xin
+
+他有习仲勋
+Tiene a Xi Zhongxun
+
+我让他母亲齐心知道
+Voy a hacer saber a su madre Qi Xin
+
+你儿子对待别人的父母的感觉是什么样子
+Cómo trata su hijo hacia los padres de otros
+
+你们一定要做到绝
+Ustedes deben hacerlo de manera absoluta
+
+要不就别做
+O sino no lo hagan
+
+要做就做到绝
+Y si lo hacen debe ser despiadadamente
+
+我让所有驻海外的中共的大使馆的官员
+Voy a dejar que todos los funcionarios de la embajada del PCCh en el extranjero
+
+我让他们知道
+Voy a hacerlos saber
+
+你们的父母一定不会老死
+Sus padres no morirán de manera natural
+
+一定会被装在这个新中国联邦给准备的棺材里边去
+Se empaquetará en un ataúd preparado por el Nuevo Estado Federal de China
+
+* * *
+
+日期：12/11/2021
+原视频标题：最高级别送葬共产党
+El funeral del Partido Comunista al más alto nivel
+原视频日期：12/09/2021
+原视频网址：**[https://gettr.com/post/pj7lri2975](https://gettr.com/post/pj7lri2975)**
+任务编号：KC330(3162)
+视频时间段：0:00-1:43
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

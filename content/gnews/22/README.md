@@ -2,43 +2,118 @@
 ---
 
 
-## 干掉中共冬奥会是给世界带来未来及和平的里程碑式胜利
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1746170/)
+## 【樱花深度报道】中共可能将核导弹走私到委内瑞拉以突袭美国（中）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1746260/)
 
-**郭文贵先生：**这个世界上记住，干死萨达姆、卡扎菲的，萨达姆当到英国去杀他的部长，卡扎菲支持恐怖主义、炸掉美国飞机，萨达姆也愿尝试炸飞机是吧？南斯拉夫当时挑战美国也要炸飞机，挑战美国的核心利益，伊朗几次被搞，就是因为要和恐怖分子搞在一起，跟共产党站在一起。
+编译：东京樱花团/Hopkins
 
-你再想想当年的苏联，美国现在已经完全感受到了共产党的彻彻底底的威胁。用美国帮助我们建国防的一个哥们说的一句话，他说Miles你一定要相信我，过去20年我只干了一件事儿，我今天到这个位置上就是因为我20年啥也没干，我不知，我甚至不记得谁当总统，但我只记得我有一个使命——消灭中国共产党，消灭伊朗政府，消灭沙特政府——独裁政府。
 
-这一刻不是说这么简单的，现在能对新中国联邦说，Miles你们就是来自我们想要的中国那部分人，我们最担心的就是没有你们这样的中国人。现在我们看到了你们，我们每天都在看你们的行动，你就是我们想要的那些中国人。
+```
+编者按：英国太阳在线网站12月10日最新报道，专家警告说，中共可能会通过集装箱将核导弹走私到南美港口，以对美国发动突然袭击。军事分析人士对据信是北京悄悄发展的集装箱导弹能力敲响了警钟。
+```
 
-天时、地利、人和，从冬奥会、从病毒、从疫苗、从数字化人民币、从习太阳、习宗教、习大神还有他们共产党戏称地叫习爸爸、习大大、彭麻麻，以及所有的房地产的倒闭、香港的整个的沦陷、新疆的大屠杀、对台湾的威胁和俄罗斯的这种所有的勾结，无一条不是驶向一个方向——人类必须消灭共产党。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2-38.png)（图片说明）分析人士认为，中国航天公司发布的一段视频剧照展示了军事风格的技术
 
-所以抵制冬奥是一个里程碑的胜利，是一次我们是谁承受天意，是谁祸国殃民，是谁在危害世界，是谁意图霸占世界，是谁在给世界带来未来和和平，我们在前面用事实说了话，所以新中国联邦人在这件事上你们完全可以骄傲地说，是我们干倒了它，这一招我们赢得非常精彩，一个左勾拳就把它KO了，而且是2019年开始的。
 
-编辑整理：喜马拉雅的肉夹馍；
 
-视频制作：Cindy；
+```
+虽然美国和中共国之间的紧张局势仍然很严重——但没有迹象表明两国正面临一场迫在眉睫的战争，而且双方都在考虑先发制人。
+```
 
-视频上传：Cindy；
 
-G-News发布：黎明之前；
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+```
+费舍尔先生解释说，中共法律要求企业将他们的技术“军民两用”——因此解放军很可能已经在研究集装箱化 OS-M2 的军用版本。
+```
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+```
+“即使是配备核弹头而不是卫星的版本，”专家补充说。
+```
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+```
+他将 OneSpace 的视频描述为“奇怪”，并表示它只显示了中共太空计划如何专注于军事技术。
+```
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
+
+```
+这位专家补充说，这些集装箱导弹还可以用作反太空武器，从低轨道上打击天空中的卫星。
+```
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3-13.png)（图片说明）火箭被装载到货船上的集装箱中
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/4-11.png)（图片说明）然后可以从船上发射导弹……
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/5-12.png)（图片说明）….或从陆地上的集装箱装在卡车上或装在火车上
+
+
+
+```
+范内尔上尉告诉《太阳报》在线：“当你看到火箭被装在集装箱里，可以装在火车、轮船和卡车上，你可以称之为‘军民两用’，但我不知道它的民用是什么。
+```
+
+
+
+```
+“每个人都知道卡纳维拉尔角在哪里——这是一个平民区。”
+```
+
+
+
+```
+他补充说：“火箭科学家并不没有意识到这只是中共应对非对称战争的另一种方式。
+```
+
+
+
+```
+“这不仅仅是‘军民两用’——它显然是一种不对称的军事威胁。”
+```
+
+
+
+```
+这位前情报官员将中共的集装箱导弹描述为一种“进攻性”武器，而不是“防御性”武器。
+```
+
+
+
+```
+他警告说，他们可能会携带装在屏蔽容器中的核武器以避免被发现。
+```
+
+
+
+```
+北京可以使用集装箱式武器来制造混乱——可能使用电磁脉冲弹头来摧毁电网。
+```
+
+
+
+```
+众所周知，中共正在积极发展其军事力量，并与美国抗衡——扩大其在世界各地的影响力，例如在非洲。
+```
+
+
+
+```
+导弹的模型首次出现在 2016 年的军火展上，此后一直有人猜测它们现在可能在中国武装部队服役。
+```
+
+
+作者：Henry Holloway，TARIQ TAHIR  Foreign News Reporter in London
+
+信息来源：
+
+[China could smuggle nuclear missiles hidden in shipping containers to Venezuela for surprise attack on US, experts warn](https://www.thesun.co.uk/news/16963561/china-smuggle-nuclear-missiles-venezuela/)
+
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

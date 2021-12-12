@@ -2,30 +2,115 @@
 ---
 
 
-## “战狼”丛培武威胁加拿大：禁止华为后果严重
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1746252/)
+## 一个喜币 一百个躺平币 一百美元
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1746322/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-125.jpg)[图片来源](https://cfcnews.com/326759/%E4%B8%9B%E5%9F%B9%E6%AD%A6%E5%96%8A%E8%AF%9D%E8%81%94%E9%82%A6%E6%94%BF%E5%BA%9C%EF%BC%9A%E5%8D%8E%E4%B8%BA%E9%97%AE%E9%A2%98%E4%B8%8D%E8%A6%81%E8%A2%AB%E7%BE%8E%E5%9B%BD%E5%B8%A6%E5%81%8F/)
-中共国驻加拿大大使丛培武再次向渥太华发出威胁，如果加拿大政府在即将宣布的5G网络建设准入决定中排除华为，加拿大将为此付出代价。丛培武还声称，以间谍罪嫌被中共国拘押将近3年并于9月获释的加拿大前外交官康明凯（Michael Kovrig）和商人斯帕弗（Michael Spavor）获释前都已承认了各自犯下的罪行。
+[https://gtv.org/video/id=61b4cff687fa7e74c92ea253](https://gtv.org/video/id=61b4cff687fa7e74c92ea253)
 
-丛培武是星期五（12月10日）在一场仅限受邀记者参加的视频记者会上作上述表示的。
+**郭文贵
+Miles Guo**
 
-加拿大政府对是否允许华为参与加拿大5G网络建设进行了多年的研究，但是至今仍未做出最后的决定。加拿大也是在有美国、英国、澳大利亚和新西兰参加的情报分享“五眼联盟中”唯一尚未就华为问题作出决定的国家。五眼联盟的其他四个国家都已经做出了禁止或限制华为参与5G网络建设的决定。日本和瑞典等美国盟友也做出了类似的决定。
+你怎么对待我们的父母
+How you had treated our parents
 
-不过根据加拿大媒体的报道，加拿大联邦政府很快就是否禁采用华为技术的问题作出最终决定。
+我们就百倍万倍给你还过去
+We will return it back to you a hundred times ten thousand times
 
-丛培武在星期五举行的视频记者会上重申，如果加拿大跟随五眼联盟中的其他盟友，禁止华为参与加拿大5G网络建设，中共国将对加拿大持非常负面的看法。
+咱们现在各农场开始行动
+Let’s start actions on each farm
 
-“我们希望（加方的决定）将是对两国关系的积极推动，而不是有损两国关系的负面事情。当然，他们将为其错误的行为和行动付出代价，”丛培武威胁说。
+行动的前提是准备好当地的法律律师
+The premise of the actions is to get prepared with local legal team
 
-消息来源:
+肯定他们蓝金黄力量都会出手，骚扰、什么告状
+I’m sure that they (the CCP) will take actions by using their BGY powers i.e. harassment or complaints
 
-[中共国驻加大使威胁渥太华，禁止华为参与5G网络项目后果严重](https://www.voachinese.com/a/china-envoy-threats-canada-banning-huawei-from-5g-network-of-grave-consequence-20211211/6350260.html)
+我们律师要出手
+Our lawyers need to take actions
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+第二 钱没问题
+Secondly, money is not a problem
+
+除法治基金、法治社会捐的钱
+Other than the money donated by the rule of law foundation and the rule of law society
+
+就花多少钱
+no matter how much it cost
+
+七哥来帮你筹
+I’ll help for the fundraising
+
+咱先拿10亿美元的预算出来
+Let’s take out a budget of $1 billion first
+
+然后咱们拿一亿个币出来
+and then take out 100 million coins
+
+再一个记住呀
+Remember
+
+每个人到现场的
+Everyone who comes to the scene
+
+只要到现场的
+as long as they come to the scene
+
+当然得是登记好的
+of course, they have to register
+
+每天一百个躺平币
+one hundred Lay Flat and Earn Coins a day for them
+
+我不说躺平币未来会值多少钱
+I don’t say how much the Lay Flat and Earn Coins will be worth in the future
+
+但每天一人一个喜币100个躺平币
+But every day, one HCoin and 100 Lay Flat and Earn coins for every individual
+
+记住，这是今天七哥给你承诺的
+Keep it in mind that this is what I promised you today
+
+然后每天不低于100美金的现金补助
+Then a cash subsidy of no less than $100 per day
+
+这是第三个
+This is the third
+
+不低于100美金（补助）
+Not less than $100 dollars subsidy
+
+100个躺平币一个喜币
+100 Lay Flat and Earn Coins and one HCoin
+
+然后所有的涉及到住宿、交通、纸张（等）所有成本
+Then all the costs related to accommodation, transportation, cost of banners (etc.)
+
+所有的吃饭全部实报实销
+and all meals are reimbursable and will be paid for
+
+不相信共产党还能花得起这个钱（应对我们）
+I don’t believe that the Communist Party can afford this money (to against us)
+
+* * *
+
+Date: 12/09/2021
+原视频标题: 一个喜币 一百个躺平币 一百美元
+1 Hcoin, 100 Flat coins, and 100 Dollars
+原视频日期：2021/12/08
+原视频链接: [https://gettr.com/post/pj7gl1cac8](https://gettr.com/post/pj7gl1cac8)
+任务编号：KC328(3166)
+视频时间段 : 0:00-1:18
+英听校：洛杉矶盘古农场 – 郭班之樱
+翻译：洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
