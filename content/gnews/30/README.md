@@ -2,27 +2,41 @@
 ---
 
 
-## 美大学开始调查教授删除中共病毒研究数据
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1746730/)
+## 有声|两名婴儿在注射辉瑞公司的新冠疫苗后被送医
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1746865/)
 
-撰稿：东京樱花团/风翼
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-39.png)
-[图片来源](https://www.google.com.hk/search?q=%E4%BD%9B%E7%BD%97%E9%87%8C%E8%BE%BE%E5%A4%A7%E5%AD%A6&amp;tbm=isch&amp;ved=2ahUKEwiw3fWSkt70AhXBg3IEHWxsAXkQ2-cCegQIABAA#imgrc=qROAdejEMfPxUM)
+配音：香草山美食部 – 玫瑰园
 
-据CNN报道：美国佛罗里达大学已经对该校教授在与中共病毒有关的研究数据上受到来自校外的政治压力的指控展开了全面调查。
 
-诺顿副校长11月10日在给教职员工的一封电子邮件中说，大学正在调查据说在新科罗纳上的研究数据被删除一事中可能违反了有关研究公平的规则。副校长表示，他将公布调查的结果，具体到时候提出，没有明确表示。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+据美国媒体12月8日报道，巴西两名婴儿在被错误地注射了辉瑞公司的新冠疫苗后被送往医院。由于护士的疏忽，两名婴儿被注射了mRNA 新冠疫苗，而不是五价疫苗。
 
-4月6日，该大学教务委员会发布的报告称，该大学在研究中共病毒与州政府的合作关系中出现了问题。他说，因删除数据的要求和对获取数据、分析和发表研究成果的干扰，使教师们在中共病毒大流行期间无法提供相关科学资料。
+这两名婴儿，一个是两个月大的女孩，一个四个月大的男孩。于12月1日前往巴西圣保罗州索罗卡巴市的一家医疗机构接种五价疫苗。
 
-信息来源：
+但是当他们回家后不久就出现了高烧和呕吐，并且拒绝喝牛奶。父母给他们吃药也没用。直到索罗卡巴市卫生部长与两个婴儿所在家庭取得联系后，真相才浮出水面。两个婴儿都被误打了新冠疫苗。
 
-[米フロリダ大学、教授陣への政治的圧力を調査　コロナ関連データの消去要請か](https://www.cnn.co.jp/usa/35180747.html)
+女婴的母亲表示这种错误不可接受，此事已经完全改变了她的生活。
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
+医护人员在第二天检查疫苗库存时才发现这个错误。犯错的护士混淆了看起来很相似的两种疫苗小瓶。她已被停职，等待行政调查。
 
+文字版原文；[两名婴儿在注射辉瑞公司的新冠疫苗后被送医](https://gnews.org/1742580/)
+
+音频处理：喜山必胜Maverick
+发稿：Tom Li
+[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

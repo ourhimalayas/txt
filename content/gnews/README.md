@@ -15,137 +15,137 @@
 
 ---
 
-### [共产党对新中国联邦、顷一国之力的全面行动](/content/gnews/1/README.md)
- ` GTV News Talk`
-
-### [为什么新冠病毒的起源调查难以推进？](/content/gnews/2/README.md)
+### [加州学校为男孩接种COVID-19疫苗，并告诉他不要说出去](/content/gnews/1/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [GTV新闻访谈简报|2021年12月12日早](/content/gnews/3/README.md)
- ` 纽约香草山MOS01`
+### [共产党对新中国联邦、顷一国之力的全面行动](/content/gnews/2/README.md)
+ ` GTV News Talk`
 
-### [2021年12月12日文贵先生直播大雨围城速记](/content/gnews/4/README.md)
- ` Mr. Miles Guo's News Briefing`
-
-### [中共国《落实三孩政策，党员干部应见行动》一文引热议](/content/gnews/5/README.md)
+### [文·贵天成——文贵先生谈“疫苗”（四十四）](/content/gnews/3/README.md)
  ` 墨尔本雅典娜农场`
 
-### [新中国联邦与共产党已展开正面交锋](/content/gnews/6/README.md)
- ` GTV News Talk`
-
-### [【Michael.Tonny专栏】中共国三个人四实体被美国财政部OPAC加入制裁清单](/content/gnews/7/README.md)
- ` 温哥华扬帆农场`
-
-### [文贵大直播 12/12 双12：中国不能再出张学良](/content/gnews/8/README.md)
- ` 秘密翻译组-原创组`
-
-### [接种疫苗者占病毒感染案例77%——英权威研究数据证实疫苗无效甚至低至负数](/content/gnews/9/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [奥地利民众游行抗议政府推出的疫苗强制措施](/content/gnews/10/README.md)
- ` 日本东京方舟农场`
-
-### [2022日本经济复苏仍不容乐观](/content/gnews/11/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [12/12/21 香港快讯 圆玄小学按教育局建议 向学生播南京大屠杀片段 小一学生受惊](/content/gnews/12/README.md)
- ` 英喜-粵語組`
-
-### [美国再次制裁中共官员和军企科技帮凶](/content/gnews/13/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [耶鲁大学流行病学家：CCP病毒 是当局“制造”的恐惧大流行](/content/gnews/14/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [关于北京冬奥会日本特色的立场表明](/content/gnews/15/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [奧運會東道主中國連續第三年被評為世界上最糟糕的關押記者的國家](/content/gnews/16/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [拜登明确告知普京：若入侵乌克兰将付出惨重代价](/content/gnews/17/README.md)
- ` 日本东京方舟农场`
-
-### [DC每日热点1212](/content/gnews/18/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [中共恐吓性经济政策令G7担忧](/content/gnews/19/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美澳丹挪倡议对侵犯人权的网络技术实行监管和出口限制](/content/gnews/20/README.md)
- ` 日本东京方舟农场`
-
-### [套路多！中共国婚恋平台骗局被踢爆](/content/gnews/21/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [有声|中共研发面部识别系统的公司被美国列入黑名单](/content/gnews/22/README.md)
- ` MOSREC`
-
-### [有声|杨洁篪发动针对爆料革命的海外行动](/content/gnews/23/README.md)
- ` MOSREC`
-
-### [有声|新中国联邦已对中共造成实质性威胁](/content/gnews/24/README.md)
- ` MOSREC`
-
-### [MV版Hcoin To the Moon上线第3天位列28国iTunes热门MV榜首！](/content/gnews/25/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [继“维吾尔族法庭”判决中共种族灭绝罪，联合国将发布新疆局势评估报告](/content/gnews/26/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [【灿烂笑容】](/content/gnews/27/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [有声|躺平币是“行为”的价值衡量和回报](/content/gnews/28/README.md)
- ` MOSREC`
-
-### [有声|两名婴儿在注射辉瑞公司的新冠疫苗后被送医](/content/gnews/29/README.md)
- ` MOSREC`
-
-### [美大学开始调查教授删除中共病毒研究数据](/content/gnews/30/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [军备超限战？ 中共不计成本用NASA“废弃设计”开发高超音速核导弹](/content/gnews/31/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [去中心化的数字货币可能一夜之间消失](/content/gnews/32/README.md)
+### [为什么新冠病毒的起源调查难以推进？](/content/gnews/4/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [银河快讯:日本发现第13例Omicron感染者；日本内阁阁员将出席冬奥会](/content/gnews/33/README.md)
- ` 日本银河系农场-阿尔法星球`
+### [GTV新闻访谈简报|2021年12月12日早](/content/gnews/5/README.md)
+ ` 纽约香草山MOS01`
 
-### [秘翻在线 :社交媒体Facebook比核武器更血腥?](/content/gnews/34/README.md)
- ` 秘密翻譯組G-Translators`
+### [2021年12月12日文贵先生直播大雨围城速记](/content/gnews/6/README.md)
+ ` Mr. Miles Guo's News Briefing`
 
-### [盖特CEO：拯救言论自由的斗争正在进行](/content/gnews/35/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [中共国《落实三孩政策，党员干部应见行动》一文引热议](/content/gnews/7/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [金融大师：我们被引诱给自己建起监狱 (1/4)](/content/gnews/36/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [新中国联邦与共产党已展开正面交锋](/content/gnews/8/README.md)
+ ` GTV News Talk`
 
-### [西班牙政府将决定是否与欧洲伙伴一起对中共国冬奥会进行外交抵制](/content/gnews/37/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [【Michael.Tonny专栏】中共国三个人四实体被美国财政部OPAC加入制裁清单](/content/gnews/9/README.md)
+ ` 温哥华扬帆农场`
 
-### [英权威研究数据证实：接种疫苗者占病毒感染案例大多数 《每日揭露》详述疫苗护照不起作用四个理由](/content/gnews/38/README.md)
+### [文贵大直播 12/12 双12：中国不能再出张学良](/content/gnews/10/README.md)
+ ` 秘密翻译组-原创组`
+
+### [接种疫苗者占病毒感染案例77%——英权威研究数据证实疫苗无效甚至低至负数](/content/gnews/11/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [中共公开以病毒威胁日本和印度放弃抵制北京冬奥会](/content/gnews/39/README.md)
+### [奥地利民众游行抗议政府推出的疫苗强制措施](/content/gnews/12/README.md)
+ ` 日本东京方舟农场`
+
+### [2022日本经济复苏仍不容乐观](/content/gnews/13/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [12/12/21 香港快讯 圆玄小学按教育局建议 向学生播南京大屠杀片段 小一学生受惊](/content/gnews/14/README.md)
+ ` 英喜-粵語組`
+
+### [美国再次制裁中共官员和军企科技帮凶](/content/gnews/15/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [耶鲁大学流行病学家：CCP病毒 是当局“制造”的恐惧大流行](/content/gnews/16/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [关于北京冬奥会日本特色的立场表明](/content/gnews/17/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [奧運會東道主中國連續第三年被評為世界上最糟糕的關押記者的國家](/content/gnews/18/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [拜登明确告知普京：若入侵乌克兰将付出惨重代价](/content/gnews/19/README.md)
+ ` 日本东京方舟农场`
+
+### [DC每日热点1212](/content/gnews/20/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [中共恐吓性经济政策令G7担忧](/content/gnews/21/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美澳丹挪倡议对侵犯人权的网络技术实行监管和出口限制](/content/gnews/22/README.md)
+ ` 日本东京方舟农场`
+
+### [有声|中共研发面部识别系统的公司被美国列入黑名单](/content/gnews/23/README.md)
+ ` MOSREC`
+
+### [有声|杨洁篪发动针对爆料革命的海外行动](/content/gnews/24/README.md)
+ ` MOSREC`
+
+### [有声|新中国联邦已对中共造成实质性威胁](/content/gnews/25/README.md)
+ ` MOSREC`
+
+### [MV版Hcoin To the Moon上线第3天位列28国iTunes热门MV榜首！](/content/gnews/26/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [继“维吾尔族法庭”判决中共种族灭绝罪，联合国将发布新疆局势评估报告](/content/gnews/27/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [【灿烂笑容】](/content/gnews/28/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [有声|躺平币是“行为”的价值衡量和回报](/content/gnews/29/README.md)
+ ` MOSREC`
+
+### [有声|两名婴儿在注射辉瑞公司的新冠疫苗后被送医](/content/gnews/30/README.md)
+ ` MOSREC`
+
+### [美大学开始调查教授删除中共病毒研究数据](/content/gnews/31/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [军备超限战？ 中共不计成本用NASA“废弃设计”开发高超音速核导弹](/content/gnews/32/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [去中心化的数字货币可能一夜之间消失](/content/gnews/33/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [银河快讯:日本发现第13例Omicron感染者；日本内阁阁员将出席冬奥会](/content/gnews/34/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [秘翻在线 :社交媒体Facebook比核武器更血腥?](/content/gnews/35/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [盖特CEO：拯救言论自由的斗争正在进行](/content/gnews/36/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [金融大师：我们被引诱给自己建起监狱 (1/4)](/content/gnews/37/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [西班牙政府将决定是否与欧洲伙伴一起对中共国冬奥会进行外交抵制](/content/gnews/38/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [英权威研究数据证实：接种疫苗者占病毒感染案例大多数 《每日揭露》详述疫苗护照不起作用四个理由](/content/gnews/39/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [中共公开以病毒威胁日本和印度放弃抵制北京冬奥会](/content/gnews/40/README.md)
  ` 澳喜特战旅Gnews`
 
-### [二十年未兑现承诺！ 中共将被踢出世贸组织](/content/gnews/40/README.md)
+### [二十年未兑现承诺！ 中共将被踢出世贸组织](/content/gnews/41/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【樱花深度报道】中共可能将核导弹走私到委内瑞拉以突袭美国（下）](/content/gnews/41/README.md)
+### [【樱花深度报道】中共可能将核导弹走私到委内瑞拉以突袭美国（下）](/content/gnews/42/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【樱花深度报道】中共可能将核导弹走私到委内瑞拉以突袭美国（中）](/content/gnews/42/README.md)
+### [【樱花深度报道】中共可能将核导弹走私到委内瑞拉以突袭美国（中）](/content/gnews/43/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【樱花深度报道】中共可能将核导弹走私到委内瑞拉以突袭美国（上）](/content/gnews/43/README.md)
+### [【樱花深度报道】中共可能将核导弹走私到委内瑞拉以突袭美国（上）](/content/gnews/44/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美财长民主峰会发言剑指跨国政商犯罪](/content/gnews/44/README.md)
- ` GTV新闻访谈`
 
 ### [纽约新赌场计划包括&#8221;世界上最大的加密货币交易大厅&#8221;](/content/gnews/45/README.md)
  ` GTV新闻访谈`
