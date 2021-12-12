@@ -2,39 +2,33 @@
 ---
 
 
-## CNN制片人被指控犯有令人不安的未成年性犯罪
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1745094/)
+## 有声|纳瓦罗称，中共病毒是珍珠港式的袭击
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1745160/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+配音：香草山香港部 – 文凯琳
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+12月7日，纳瓦罗先生在班农战斗室珍珠港纪念日的特别节目中表示，中共释放病毒，是中共向世界发动的珍珠港式的袭击。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/FGU2mfiWUAo2voT.png)图片来源：推特
+纳瓦罗先生说，在武汉已经爆发病毒的情况下，中共隐瞒疫情，于2020年1月15日来到美国，和美国签署了所谓的“中美第一阶段贸易协议”。这与二战时期，日本派遣使者到美国，和时任国务卿赫尔谈和平协定，并在次日发动珍珠港袭击的行径 如出一辙。
+
+纳瓦罗先生表示，在珍珠港纪念日，美国人民必须清醒地意识到，中共病毒在美国本土所造成的死亡人数，已经超过美国历史上所有参与战争死亡的人数。这次中共病毒的袭击，是美国人经历的又一次珍珠港袭击。
 
 
-#### 整理报道 ：小红帽
 
-根据RT新闻12月11日报道， 一名曾与前主持人克里斯·科莫（Chris Cuomo）一起工作的CNN制片人被捕，并被指控引诱未成年人到他家进行性活动。这名被指控的恋童癖者希望“训练”他的受害者成为“性顺从者”。
+文字版原文：[纳瓦罗称，中共病毒是珍珠港式的袭击](https://gnews.org/zh-hans/1737852/)
 
-现年44岁的约翰·格里芬（John Griffin）在工作之外，具有黑暗和令人不安的兴趣。格里芬于周五被捕，并被指控犯有三项企图引诱未成年人从事非法性活动的罪性。
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-根据司法部的一份声明，格里芬去年使用即时通讯应用程序联系未成年女儿的父母，并说服该父母“允许格里芬训练他们的女儿成为性方面的顺从者”。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-据称，在6月，格里芬告诉一位母亲，她的9岁和13岁的女儿应该接受“适当的培训”，并支付了3000美元，让两名女孩从内华达州飞往波士顿。从那里，格里芬被指控开车将两名女孩带到他在佛蒙特州勒德洛的家中，在那里女孩被指示并且确实进行了非法性活动。
-
-被指控的恋童癖者还针对另外两名未成年人实施了非法性行为。在去年4月的一个例子中，格里芬被指控举行“虚拟培训课程”，他指示一名母亲脱掉衣服并猥亵她14岁的女儿。据称，在6月，格里芬提议另一位母亲带她16岁的女儿到他家进行“小母女旅行”，在那里女孩会受到虐待。
-
-CNN已经为格里芬洗白。在周五给《每日邮报》的一份声明中表示，CNN“非常认真地对待对格里芬的指控”。
-
-新闻来源：[CNN producer charged with shocking underage sex crimes — RT USA News](https://www.rt.com/usa/542903-cnn-producer-sex-abuse/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

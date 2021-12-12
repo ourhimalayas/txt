@@ -2,24 +2,33 @@
 ---
 
 
-## 杰森 • 米勒：从左翼游说团体手中拯救言论自由的斗争正在进行中
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1745088/)
+## 有声|美参议院投票否决拜登政府的疫苗强制授权
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1745158/)
 
-撰稿：GoergeC（乔治）
-上传：追着曙光跑
+配音：香草山香港部 – 文凯琳
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+12月8日，美国参议院以52比48，否决了拜登政府针对大企业的疫苗强制令。
 
-据EXPRESS新闻12月12日的报道，言论自由和政治表达权正在美国受到攻击。不幸的是，左翼走向审查制度的步伐在英国正在加快，甚至英国第一修正案对言论自由的保护也无法阻挡他们。英国政府即将为大型科技公司开绿灯，践踏言论自由。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Image-2021-12-12-at-11.40.24.jpeg)图片来源：原新闻
-英国议会目前正在起草一项”在线安全法案”（Online Safety Bill），这是一项庞大的立法，将授权社交媒体平台监管”有害”内容，但并没有明确区分什么内容能被认定为”有害”。尽管这项法案可能是善意的，但那些经常暂停、禁止或审查用户言论的社交媒体巨头，将得到英国政府的法律支持。如果发表被左翼暴徒认为具有”冒犯性”的政治观点，用户将被踢出这些社交媒体平台。
+按照职业安全和健康管理局（OSAH）发布的规定，对人数不少于100人的企业，雇主需要在2022年1月4日前，要求其员工接种疫苗，或定期接受检测。
 
-作为盖特（Gettr）的CEO和美国第45届总统唐纳德•川普的高级顾问，杰森 • 米勒针对英国国会起草的这份文件发表了及时的观点，那就是言论自由的权利不仅在美国，在其他自由世界国家包括英国都是神圣不可侵犯的。
+印第安纳州参议员迈克·布劳恩称，这是政府的强硬手段，是过度干预。很多共和党人也认为，拜登政府的疫苗强制令，严重侵犯了美国公民的自由。
 
-由这项法案的推动，可以看出左翼媒体和政治勾结之深，并不仅仅在美国发生，而且是一个世界性问题。面对疫苗灾难即将在明年爆发，左翼媒体唯恐普通人真正觉醒发现毒疫苗消灭人口的计划，所以现在着急提前布局以求彻底控制言论。
+据11月底公布的民意调查显示，高达86%的美国就业人员反对，业主解雇拒绝接种疫苗的员工。
 
-但是，盖特和新中国联邦的G-TV，G-News等真正秉承言论自由精神的新兴媒体平台，必将打破左翼媒体和深层政府的言论封锁，必将为消灭CCP和摧毁少数黑暗世界的邪恶计划发挥巨大作用。
+文字版原文：[美参议院投票否决拜登政府的疫苗强制授权](https://gnews.org/zh-hans/1737854/)
 
-信息来源：[The fight is on to save free speech from Woke lobby, says JASON MILLER](https://www.express.co.uk/comment/expresscomment/1534871/free-speech-political-expression-woke-online-safety-bill-gettr-comment)
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
