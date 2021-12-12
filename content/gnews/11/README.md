@@ -2,28 +2,58 @@
 ---
 
 
-## 俄警告美国：领空入侵危险
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1748328/)
+## 美29州现Omicron病例 大部分已接种疫苗
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1748365/)
 
-据《Rebel News》报道，俄罗斯克里姆林宫发出了一封措辞严厉的信，警告美国驻莫斯科大使馆：俄军在俄罗斯 – 乌克兰边境集结，拜登政府和北约国家的强烈反对，美国将面临”危险后果”。
+翻译：Lulumi
 
-这封信引用了美国在俄罗斯边境附近持续的军事飞行和海军活动。俄罗斯外交部发言人玛丽亚·扎哈罗娃（Maria Zakharova）将美国的行动描述为”俄罗斯边境附近的挑衅”。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-5-5.jpg)图片来源：bbc.com
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/download-10.jpg)
+俄亥俄州和罗德岛州周六成为第28和29个报告Omicron病毒变体病例的州。
 
-俄罗斯发言人引用了一起事件，12月3日上午，美国空军CL-600侦察机在俄罗斯空中交通管制管理的地区进行了一次飞行，并从11，000米的高度急剧下降到9，200米的高度，从而越过了为民用飞机保留的路线。发言人称，美国空军并没有回答空中交通管制员的反复呼叫，可能造成危险的碰撞。俄罗斯发言人还列举了另外两起几乎导致空中碰撞的事件。
+俄亥俄州官员说，发现了两起病例，这两起病例都是6个多月前完全接种过疫苗的人。
 
-俄方表示，“保留对美国和北约成员国构成的相应挑战，作出反应的权利。呼吁就安全保障问题进行实质性对话，并讨论减少军事和政治紧张局势，以及防止空中和海上危险事件的途径。否则，俄方掌握的所有手段都将用于预防和消除新出现的威胁”。
+罗得岛州官员证实了一个病例，该患者已完全接种疫苗，最近从纽约返回。
 
-自1991年起苏联解体后，波罗的海周围的国家纷纷加入北约和欧盟。从[地缘政治](https://www.zhihu.com/search?q=%E5%9C%B0%E7%BC%98%E6%94%BF%E6%B2%BB&amp;search_source=Entity&amp;hybrid_search_source=Entity&amp;hybrid_search_extra=%7B%22sourceType%22%3A%22answer%22%2C%22sourceId%22%3A28158330%7D)角度看，乌克兰是俄罗斯战略收缩的底线和进入欧洲的第一站。[布热津斯基](https://www.zhihu.com/search?q=%E5%B8%83%E7%83%AD%E6%B4%A5%E6%96%AF%E5%9F%BA&amp;search_source=Entity&amp;hybrid_search_source=Entity&amp;hybrid_search_extra=%7B%22sourceType%22%3A%22answer%22%2C%22sourceId%22%3A28158330%7D)在其《大棋局》中指出，只有拥有乌克兰，俄罗斯才可能成为其梦想中的“[欧亚帝国](https://www.zhihu.com/search?q=%E6%AC%A7%E4%BA%9A%E5%B8%9D%E5%9B%BD&amp;search_source=Entity&amp;hybrid_search_source=Entity&amp;hybrid_search_extra=%7B%22sourceType%22%3A%22answer%22%2C%22sourceId%22%3A28158330%7D)”，而失去了乌克兰的俄罗斯，则最多成为一个[亚洲帝国](https://www.zhihu.com/search?q=%E4%BA%9A%E6%B4%B2%E5%B8%9D%E5%9B%BD&amp;search_source=Entity&amp;hybrid_search_source=Entity&amp;hybrid_search_extra=%7B%22sourceType%22%3A%22answer%22%2C%22sourceId%22%3A28158330%7D)。有了乌克兰之后，俄罗斯才能更多地介入黑海、波兰以及[巴尔干半岛](https://www.zhihu.com/search?q=%E5%B7%B4%E5%B0%94%E5%B9%B2%E5%8D%8A%E5%B2%9B&amp;search_source=Entity&amp;hybrid_search_source=Entity&amp;hybrid_search_extra=%7B%22sourceType%22%3A%22answer%22%2C%22sourceId%22%3A28158330%7D)的事务，从而真正进入欧洲。
+全美一半以上的州都有了Omicron的确诊病例，截至星期六，整个29个州已经报告了110个病例。
 
-爆料革命指出：俄罗斯一定会出卖中共，与美国合作，寻求在欧洲的主导地位以及能够卖给欧洲各国天然气以及能源；所以新闻中的这些报道基本都是表演给外界看的。真实的情况是俄罗斯明确告诉中共：如果中共攻打台湾，俄罗斯不会同时攻占乌克兰；另外俄罗斯已经开始在越南、菲律宾等地启用军事基地，并且将与北韩、巴基斯坦、伊朗、印度等结盟，排除了中共；爆料革命的情报显示俄罗斯在南海开采石油已成事实。习近平联俄抗美，称霸世界的战略彻底失败，危及习近平在党内的地位，宣告习近平战略的彻底失败。
+官员们披露了66名受感染者的疫苗接种情况。在这些人中，绝大多数人，即52人，已经完全接种疫苗。一些人甚至得到了加强注射。
 
-翻译简评：明亚、理工男文峰
+美国疾病控制和预防中心（CDC）在周五的更新中说，美国的大多数Omicron病例都是接种过疫苗的人。大多数患者出现了轻微的症状，一些人最近从非洲旅行归来，或与其他人接触过。
 
-校对： 理工男文峰
+自从南非科学家上个月发现Omicron变种以来，世界上任何地方都没有关于Omicron的死亡报告。
 
-上传：米线
+早期数据表明，与早期菌株相比，该变种更容易传播，可以更好地逃避疫苗的保护，并且可能能够更好地逃避自然免疫或先前感染的保护。
+
+但是由Omicron引起的中共病毒COVID-19病例症状平均来说不太严重。
+
+根据各州卫生当局和CDC的报告，到目前为止，很少有美国病人需要住院治疗。
+
+亚利桑那州、加利福尼亚州、科罗拉多州、康涅狄格州、佛罗里达州、佐治亚州、夏威夷州、路易斯安那州、爱达荷州、伊利诺伊州、爱荷华州、马里兰州、马萨诸塞州、明尼苏达州、密苏里州、内布拉斯加州、新泽西州、纽约州、北卡罗来纳州、俄亥俄州、宾夕法尼亚州、罗德岛州、德克萨斯州、犹他州、弗吉尼亚州、华盛顿州和威斯康星州已证实有病例。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-4-5.jpg)2021年12月9日，南非约翰内斯堡一名医护人员正在准备一剂辉瑞公司COVID-19疫苗。(Sumaya Hisham/Reuters)
+
+根据联邦数据，截至周六，约有61%的美国人口已完全接种疫苗。大约四分之一的人口已经接种了加强针，包括最脆弱人群中的一半以上，即65岁以上的成年人。
+
+在南非，卫生当局周六报告说，即使测试的数量增加，阳性的数量也随着入院人数的减少而下降。
+
+这与美国的趋势相反，美国的病例、住院人数和死亡人数在这一周内都有所上升。
+
+疾病预防控制中心主任罗谢尔·瓦伦斯基博士在一次虚拟发布会上告诉记者，Omicron迅速成为南非的主导毒株，但在美国，超过99%的病例仍然来自Delta变体。
+
+一些卫生官员仍在敦促人们接种疫苗，重点是加强针。
+
+辉瑞公司和生物科技公司的一项临时分析发现，他们的疫苗对Omicron的效果急剧下降。
+
+**参考资料：**[theepochtimes][29 US States Have Confirmed Omicron Variant Cases, Most Among Vaccinated](https://www.theepochtimes.com/29-us-states-have-confirmed-omicron-variant-cases-most-among-vaccinated_4152127.html)
+
+* * *
+
+*审核：文乐
+校对：信心满满*
+*发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-2.jpeg)
 
  
 
