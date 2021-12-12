@@ -2,140 +2,37 @@
 ---
 
 
-## 关于新中国联邦为战友们提供药品的解释
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1746662/)
+## 银河快讯:日本发现第13例Omicron感染者；日本内阁阁员将出席冬奥会
+` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1746690/)
 
-[https://gtv.org/video/id=61b5792787fa7e74c92ede04](https://gtv.org/video/id=61b5792787fa7e74c92ede04)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-61.png)[图片来源](https://www.rfi.fr/cn)
+**1.****日本发现第13例Omicron感染者**
 
-**郭文贵
-Miles Guo**
+[据NHK 12月11日报道，一名来自岐阜县的男子，之前曾在逗留斯里兰卡，在本月4日进入日本后被证实感染了中共病毒新变种Omicron。 这使得日本被证实感染Omicron的人数达到13人。他在成田机场的检测结果呈阴性，但在返回岐阜后证实了感染。岐阜县知事于11日下午6:30召开新闻发布会，并透露一名来自岐阜县的40多岁男子被证实感染了Omicron。](https://www3.nhk.or.jp/news/html/20211211/k10013384881000.html)
 
-我觉得这个事情非常非常简单
-I think this is very, very simple
+**2.****日本内阁阁员将不出席冬奥会　**
 
-我觉得现在没有病的人吃青蒿素，就一定要补铁这个问题
-I think healthy people who takes artemisinin, must take iron supplements
+[据时事通讯社12月11日报道，日本政府已决定从明年2月起不派内阁阁员出席北京冬奥会和残奥会的开幕式和其他活动，并正在考虑派遣日本奥林匹克委员会（JOC）主席山下泰裕出席奥运会，同时也在考虑是否派遣体育局局长等人。考虑到中日明年将迎来外交关系正常化50周年，鉴于中共国的人权状况，日本政府将向已经宣布了 “外交抵制”的美国看齐。 预计在考虑到德国和其他尚未表态的国家的情况后，将在今年年底前做出最终决定。](https://www.jiji.com/sp/article?k=2021121100314&amp;g=pol&amp;utm_source=yahoo&amp;utm_medium=referral&amp;utm_campaign=link_back_auto)
 
-还有一个不要吃过量
-Do not take too much
+**3.****七国集团外长在英国举行会议**
 
-不要吃过量
-Don’t take it over dose
+[据NHK 12月11日报道，七国集团外长会议在英国开幕。除了与中共国的安全和人权问题外，还计划就应对中共病毒的措施等问题进行讨论会议计划持续到12日晚，东南亚国家联盟（东盟）国家将首次通过在线等方式参与部分会议。 外务大臣希望通过展示日本对这些问题的积极贡献来提高日本的形象。早些时候，外务大臣会见了担任会议主席的英国外长，他们同意深化合作，促进印度-太平洋地区的和平与繁荣，鉴于Omicron毒株的扩散，他们将共同致力于在全世界推广疫苗接种。](https://www3.nhk.or.jp/news/html/20211211/k10013384891000.html?utm_int=news-politics_contents_list-items_001)
 
-吃补品就行可
-health products just fine
+**4.****日本是七国集团中唯一的通胀率为0****%****的国家**
 
-你有病了，那就按病（情）说了
-If you’re sick
+[据时共同社 12月11日报道，随着中共病毒爆发后经济活动的恢复，美国和欧洲的通货膨胀正在加速。 许多国家的价格上涨了4%以上，包括美国39年多来的最高增长率。 相比之下，日本10月份的消费者价格与去年同月相比上升了0.1%，是七国集团中唯一一个价格保持在0%水平的国家。随着投资的增加和工资的提高，价格的逐步上升对长期经济增长至关重要。 日本物价的缓慢上涨可以看作是低工资和非正常就业的结果。](https://nordot.app/842302807307567104?c=39546741839462401)
 
-没有一样的病是吃一种药管用的
-Not one medicine can cure all diseases
+**5.****美日外长加强对中共国的威慑**
 
-怎么吃法？我觉得大家要征询医生
-How to take? I think you need to consult a doctor
+[据共同社 12月11日报道，日本外相在英国利物浦与美国国务卿布林肯会面。 鉴于中共国和朝鲜的军事活动，他们确认加强了日美联盟的威慑和反应能力。 他们同意与东南亚国家联盟（东盟）、印度和其他国家合作，在法治基础上维护海洋秩序。 他们还就首相岸田文雄早日访问美国和协调日美安全协议委员会（2+2）达成一致，该委员会是预计明年1月初在美国举行的外交部长和国防部长会议。](https://nordot.app/842389981652893696?c=39546741839462401)
 
-第三个，这个药绝对不适合跟很多药放在一起吃
-Thirdly, this medicine is definitely not suitable to be taken together with many other medicines
+**6.****日本减免税收以加速食品出口**
 
-这是肯定的
-It is for sure
+[据时事通讯社12月11日报道，2022年税制改革纲要包括加快农、林、渔和食品出口的特别措施。 税制改革方案包括为满足出口国标准和要求所需的机器和设施的投资提供为期五年的30-35%的公司税特别折旧。 这些措施只在2011年底前可用。日本政府已经设定了一个目标，即在30年前将农业、林业、渔业和食品的出口价值提高到5万亿日元。](https://www.jiji.com/jc/article?k=2021121000994&amp;g=eco)
 
-大家这个都要听医生的
-We should all listen to the doctor
-
-另外一个就是现在，接下来咱们战友家里有病的人
-If you’re sick
-
-请跟飞飞，还有咱们Eglise联系的时候
-Please contact Fei Fei and Eglise
-
-大家要记住
-Remember
-
-帮你一时，不能帮你一切
-We can help for a while, but not for a lifetime
-
-特别是药
-Especially for the medicine
-
-你不能说一直吃下去，全都帮那是不可能的，临时解决
-It is impossible for us to provide you with medicine all the time. It’s a temporary solution only
-
-但是最终的结果一定是你，需要者负责任
-But you are the person need to take the responsibility
-
-我们没有处方权
-We do not have the right to prescribe
-
-只能建议权，只能给你提供一些药的帮助
-only the right to advise,
-
-只能给你提供一些药的帮助
-Can only provide you with some help for the medicine
-
-但是这个东西千万记住，副作用就是沉闷乏力
-But you must remember, the side effect is dull and weak
-
-和铁之间有冲突，你必须要补铁
-There is a conflict with iron. You have to take iron supplements
-
-还有一个就是跟其他症状有没有副作用，但现在还没有发现
-Is there any other side effect? We haven’t found it yet
-
-这个大家要负起自己应负的责任
-Everyone need to take their own responsibilities
-
-我们不能100%保证，这是基本常识，请Eglise你说
-We can not guarantee 100%. This is basic common sense. Eglise, please
-
-Eglise
-
-对，因为讲到这个针剂，已经有战友开始问了
-Yes, talking about this injection, some comrades already have some questions
-
-我就想告诉大家，青蒿素它是有副作用的
-I just want to tell everyone that artemisinin has side effects
-
-因为青蒿素它是100%经过肝脏代谢
-Because artemisinin is 100% metabolized by the liver
-
-对肝脏有绝对的毒性
-It is absolutely toxic to the liver
-
-所以，前面讲的针剂青蒿琥酯针剂，不是什么人都能用的
-Therefore, the injection artesunate injection mentioned earlier is not suitable for everyone
-
-一定要在监护下使用，而且不是什么人都能用
-It must be used under supervision, and not for everyone
-
-我一定要再这么说，因为它的副作用
-I must say that again because of its side effects
-
-可能你的疾病不一定要你的命，但是它副作用能要了你的命
-It may not necessarily kill you with your disease, but it can kill you with its side effects
-
-就是提醒大家这一点
-Here is a reminder to everyone
-
-* * *
-
-Date:12/04/2021
-原视频标题: 关于新中国联邦为战友们提供药品的解释
-Explanation of the drugs provided for the comrades in arms
-原视频日期：2021/12/01
-原视频链接**[https://gettr.com/post/pinbbgd63d](https://gettr.com/post/pinbbgd63d)**
-任务编号：KC323（3099）
-视频时间段 : 0:00-01:49
-中听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka & Mike L
-翻译终校：洛杉矶盘古农场 – Freeearth
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 ：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+【日本银河系农场-阿尔法星球】
+作者：Totoro
+校对：Windfish
 
  
 
