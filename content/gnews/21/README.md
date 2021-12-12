@@ -2,123 +2,45 @@
 ---
 
 
-## MV版Hcoin To the Moon上线第3天位列28国iTunes热门MV榜首！
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1746904/)
+## 套路多！中共国婚恋平台骗局被踢爆
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1746959/)
 
-12/12/2021 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线第3天位列28国iTunes热门MV榜榜首！
+撰稿：东京樱花/Ob
+![](https://assets.gnews.org/wp-content/uploads/2021/12/4-13.png)
+近日，一篇题为《“红娘”的秘密｜卧底世纪佳缘》的系列稿件，在网络引起热议。
 
-* * *
+踢爆婚恋平台记者遭威胁
 
-[【PDF 下载】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record.pdf)
+根据澎湃新闻报导，11月初记者以应聘的形式卧底进入婚恋平台“世纪佳缘”一家线下直营门店。培训上岗后，该门店即为记者开通了CRM系统登录权限，调查发现，只要从门店或所在城市的资源库捞取会员资源进入自己的库，就能在会员的个人页面自动“解锁”该会员发出的所有私密聊天记录，并能察看该会员在线上看过的至少20位异性信息，包括对方的个人照片、身高、学历、购房购车等情况。
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_2.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_3.jpg)
+通过“偷窥”这些暴露用户敏感隐私的内容，销售红娘们可以轻松掌握用户喜好，通过话术诱导，向抱有婚恋期望的会员精准勾勒出心仪人选画像，诱导其到线下门店，支付办理万元起步的“相亲”服务套餐。有销售人员向记者直言，即使后台看到“杀猪盘”套路诈骗，试管婴儿男宝宝，也要无视，避免用户举报公司侵犯个人隐私。
 
+报导指出，世纪佳缘已如“道歉声明”所言，去除了用户发出的所有聊天纪录及浏览的线上异性会员信息功能。但不少门店仍在正常运转，并未闭店开展相应培训。
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_4.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_5.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_6.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_7.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_8.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_9.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_10.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_11.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_12.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_13.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_14.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_15.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_16.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_17.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_18.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_19.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_20.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_21.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_22.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_23.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_24.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_25.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_26.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_27.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_29.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_30.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_31.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_32.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_33.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_34.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_35.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_36.jpg)
+到9日晚间，调查次事件的记者则收到此前卧底所在门店一位销售红娘的威胁言论，称“多行不义必自毙，你会操（遭）报应的”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_37.jpg)
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_38.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_39.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_40.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_41.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_42.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_43.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_44.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_45.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_46.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_47.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_48.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_49.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_50.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_51.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_52.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_53.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_55.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_56.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_57.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_58.jpg)
+世纪佳缘屡现丑闻
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_59.jpg)
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_60-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_61-2.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_62-2.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_65-2.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_66-2.jpg)
+但世纪佳缘之前也深陷多起欺诈事件。据《武汉晚报》2015年3月报导，一位在武汉担任主管职位的33岁男子小杰，2年内共缴纳45万元参加世纪佳缘高价上流专案征婚，其中多笔款项不开发票。之后2年先后与21名女孩见面，但诡异的是，这些女孩每次与小杰见面时，都要他购买高昂礼物，但之后又以失败收场，更让人气愤的是，小杰后来发现这些与她见面的女子中，竟有当过妓女的失足女子。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_71.jpg)
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_72.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_73.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_74.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_75.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_76.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_77.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_78.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_79.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_80.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_81.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_82.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_84.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_85.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_86.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_88.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_89.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_90.jpg)
+到2017年9月，又发生一起男骗女事件。一名涉嫌假冒警察以及公务员身份的男子对多名女子骗财骗色，当中甚至还有90后的网络女主播。经调查发现，这些女子是通过世纪佳缘认识与男嫌疑人相识、交往，但嫌疑人“刘炜”的姓名及个人信息全是假，为了掩饰自己的身份，刘炜办理手机卡、外出住宿登记，使用的都是一些被骗女子处偷来或骗来的身份证。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_91.jpg)
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_92-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_93.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_94.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_95.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_96.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_97.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_99.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_100.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_101.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_104.jpg)
+此外，2019年初浙江电视台也揭露一起世纪佳缘相亲纠纷案。事主吴男在网站上注册后被介绍一名对象朱女，对方资料是北大毕业当老师同时父亲是大企业上市公司董事长，但该女见面后却开始不断索要高价礼物，3天花近3万人民币。查证发现，该女不但不是北大毕业，还离婚带着两个小孩。由于她四处欠债，债主还以逃债向警方报案追逃朱女。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/【MViTunesBillboard】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_105.jpg)
-[【PDF 下载】Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Sunday-12-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record.pdf)
+相关事件曝光后，众多世纪佳缘前任加盟店的店长也陆续爆料，称该公司经营混乱，收取高额加盟金后放任店家自生自灭与当初的入盟说明差距极大，且总公司从未提供优质的会员数据库供店家运转，反而是一些劣质资料，甚至前任青岛加盟商说一百笔资料中可信的不到两三笔，多数会员的家庭资料、学历、收入都是随意造假且未经核实就被挂上百分百真实的口号。
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+深圳与湖州前任加盟商甚至披露，总公司还曾明示他们找演员假相亲后再说失败，以应付缴钱会员合约的介绍人数的承诺。
+
+城市套路多，我要回农村。这是在中国神州这块大地上，改革开放这么多年来，看似经济快速发展后留下来的唯一的精神文化遗产。一切都是骗，一切都是套路，诚实守信荡然无存。在一个缺乏合理经济运行模式支持的经济模式中唯一能够支撑长久运营发展的只有是“套路”和“欺骗”。在一个近乎相互残害的经济竞争体制下，正常运营几乎没有赢利的可能。不走寻常路就成为中国经济突飞迅猛发展的唯一出路。几十年的经济发展为这块神州大地种下的是无数的精神荒漠和毒瘤。
+
+信息来源：
+
+[卧底踢爆大陆婚恋平台骗局 记者遭红娘威胁](https://m.secretchina.com/news/gb/2021/12/12/992127.html)
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
+
 
  
 

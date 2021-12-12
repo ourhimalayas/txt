@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/12/2021 4:43 PM (UTC)`
+
+Dec 12, 2021 The significance behind Mr. Miles Guo's impressive series of music charting success:<br/>1, a non-professional singer has created a wider impact than a professional singer, scaring the Chinese Communist government;<br/>2, The charting and distribution method breaks the traditional rules and are unacceptable to all professionals;<br/>3. Don’t profit from this, and are completely free from the rule of being controlled by money;<br/>4. The bigwigs behind the award platforms are deeply unhappy with us.<br/><br/>MV "Hcoin To the Moon" Hits #1 🥇on 31 Countries ' iTunes Top Music Video Charts on 3rd Day of Launch with a new record! 🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters all around the world!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1746905/
+
+---
+
 `@miles 12/12/2021 4:36 PM (UTC)`
 
 12月12日， 郭文贵先生一系列歌曲打榜的骄人成绩背后的意义：<br/>1，一个非专业歌手创造出了比专业歌手更广泛的影响，令中共政府恐惧；<br/>2，上榜、打榜以及传播方式都突破传统规则，令所有专业人士无法接受；<br/>3，不以此牟利，彻底摆脱了被金钱所控制的统治；<br/>4，各奖项平台背后的大佬对此深表不悦，认为这对他们带来危险。<br/><br/>MV版Hcoin To the Moon上线第3天位列31国iTunes热门MV榜首🥇，再创打榜新记录！🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港，美国，阿联酋，台湾，日本，俄罗斯，德国，法国，澳大利亚，加拿大，新加坡，澳门，新西兰, 匈牙利，泰国，柬埔寨，老挝，荷兰， 瑞典，菲律宾， 马来西亚，意大利， 芬兰，丹麦，瑞士，马耳他，西班牙，葡萄牙，斐济，拉脱维亚，英国的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/1746904/
@@ -142,13 +148,6 @@ Dec 11，2021 Mr. Miles Guo's “HCoin To The Moon ” has once again created a 
 `@miles 12/10/2021 6:40 AM (UTC)`
 
 Hcoin To The Moon 官方MV12月10号已在以下平台全球上线，感谢大家继续打榜，订阅！🎉🎉🎉🎉🎉🎉🎉<br/><br/>VEVO: https://youtu.be/foVjKjgyN4Q <br/><br/>Apple: https://music.apple.com/us/music-video/hcoin-to-the-moon/1596409781?ls=1<br/><br/>TIDAL: http://tidal.com/video/205740632 <br/><br/>Vimeo: https://vimeo.com/646980855/38939d49f1
-
----
-
-`@miles 12/9/2021 10:15 PM (UTC)`
-
-9/12/2021 “Hcoin To the Moon"  Hits #1 🥇on Billboard's World Digital Song Sales Chart and Hits #1 🥇on 9 Countries' iTunes Rock Charts on the 7th Day of Launch ! 🎉🎉🎉🎉🎉🎉🎉<br/>Thank you very much to all our brothers and sisters in HongKong, Taiwan, Singapore, USA, New Zealand, Hungary, Australia, Laos, and Finland, Macau, Cambodia, Kenya!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1737218/<br/><br/>12月9号， Hcoin To the Moon上线第7天登上Billboard全球数字歌曲销量榜首🥇！同时位列9国iTunes摇滚音乐榜首🥇！🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港，台湾，新加坡，美国，新西兰, 匈牙利，澳大利亚，老挝，芬兰，澳门，柬埔寨，肯尼亚的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏
-![img](https://media.gettr.com/group43/getter/2021/12/09/22/55308976-f319-dce6-82c8-88e1b0a335c4/451aa03e07245157d30829b06e1860e4.jpg)
 
 ---
 
