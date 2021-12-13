@@ -2,39 +2,33 @@
 ---
 
 
-## 币安被新加坡踢走，转而与印尼最抠门银行合作
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1750502/)
+## 澳大利亚政府决定从周三起有限开放边境
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1750524/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-51.jpg)
-[图片来源](https://zhuanlan.zhihu.com/p/268420793)：
+整理报道：七彩光
+![](https://assets.gnews.org/wp-content/uploads/2021/12/australia_reopening_for_foreign_visa_holders_1637556103894_1637556104102.jpg)图片来源：印度斯坦时报
+12月13日，澳大利亚《天空新闻台》发布消息，报道澳大利亚的国际边境将于周三向留学生、合格签证持有人和来自日本和韩国的游客重新开放。
 
-在2021年上半年，加密货币交易所币安(Binance)连续被各国严格监管追杀后，日前宣布正与印度尼西亚最大民营银行，也就是印尼中亚银行(BCA)与印尼电信公司(Telkom Indonesia)洽谈合作。印尼中亚银行(BCA)，此前曾被爆出内幕，高层连员工喝水都会限制。
+周一，总理斯科特·莫里森（Scott Morrison）在与韩国总统文在寅的新闻发布会上确认了这一“令人鼓舞”的消息。
 
-印尼中亚银行最大股东为印尼最富有的黄氏家族(Hartono)兄弟Budi与Michael Hartonos所持有。据报道所称，印尼中亚银行因严格控制成本并提升效率闻名，高层因发现下班后员工桌上仍有未喝完的水，隔天立刻下达限制饮水量的政策。
+他说：“随着我们结束几周前宣布的暂停，边界将重新对韩国和日本开放，并对技术移民和学生开放。这之所以成为可能，是因为韩国和澳大利亚都有（应对）COVID-19（中共病毒）的经验。这是令人鼓舞的，但我知道超过123,000名有韩国血统的澳大利亚人期待着看到他们的朋友、他们的家人和他们能够团聚在一起”。
 
-如果确定合作，这将是币安在印尼的第二家合作的加密企业。回顾此前，第一个是与加密交易平台Tokocrypto合作。
+根据之前的报道，澳大利亚卫生部长格雷格·亨特（Greg Hunt）早些时候告诉记者，澳大利亚正在“按部就班”地欢迎技术移民和国际学生在本周返回。
 
-尽管印尼伊斯兰宗教理事会(MUI)认为加密货币具有不确定性、赌博性和危害性等特点，有违伊斯兰戒律，主张禁止穆斯林使用加密资产作。但是，印尼政府将加密市场视为一种投资类别，并允许其与商品期货一起交易。
+周一早晨，亨特说：“这（个信息）在周末得到了再次确认。我们在11月29日说，我们打算在12月15日重新开放，这已经走完了政府内阁的程序。维多利亚州昨天已经采取了（开放）措施，所以这个重新开放的时间已经安排好了”。
 
-在2021年上半年，币安连续被各国严格监管追杀后，现正寻求扩大发展。先前，币安新加坡分公司收购了当地证券交易所Hg Exchange 18%的股份，此外，币安在美国Binance.US正在完成数百万美元融资的最后阶段。
+**新闻来源**
 
-但值得关注的是，币安近期在全球市场的布局出现新变革。币安已撤回其在新加坡运营加密货币交易所的许可证申请，至此币安结束在新加坡金融管理局监督下营运受监管的加密货币交易所的努力。公司重点声明称，业务核心转向区块链技术。作为市面上排名全球前三大的加密货币交易所，这项声明使市场高度聚焦。
+[International border will reopen to international students, visa holders and travellers from South Korea and Japan from Wednesday](https://www.skynews.com.au/australia-news/coronavirus/international-border-will-reopen-to-international-students-visa-holders-and-travellers-from-south-korea-and-japan-from-wednesday/news-story/eb25c427f869165b099010606927cc16)
 
-12月13日消息，币安表示，该公司已撤回其在新加坡营运加密货币交易所的许可证申请。至此，币安结束了在新加坡金融管理局监督下营运受监管的加密货币交易所的努力。
+发布：七彩光
 
-这家全球最大加密交易所的子公司在一份电子邮件声明中表示，该交易平台将在明年2月13日结束营运并关闭。去年，包括币安亚洲在内的170家公司向新加坡金管局申请了许可证，币安将把业务重心转向区块链技术。
-
-投资者需要注意的是，币安受到的监管困境正在全球不断增加。在过去一年中，Binance受到世界各地金融监管机构的严格审查。马来西亚、英国、美国、意大利、印度和泰国等国家此前已经发出警告，Binance.com在没有许可证的情况下提供金融服务，被指控非法经营和违反证券市场准则。
-
-消息来源:
-
-##### [华人首富交易遭质疑！币安与“曾是全球最贵银行”合作爆料内幕：高层连员工喝水都会限制](https://hk.investing.com/news/stock-market-news/article-204162)
-
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
-
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

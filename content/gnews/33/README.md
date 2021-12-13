@@ -2,34 +2,29 @@
 ---
 
 
-## 中共可能将集装箱武器偷运到南美
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1749760/)
+## 英国首相约翰逊启动接种中共病毒疫苗加强针国家任务
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1749818/)
 
-作者：纽约香草山农场 – 蓝天大海
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-据国外媒体12月11日报道，军事分析人士对中共悄悄发展的集装箱武器能力敲响了警钟。
+#### 撰稿：彩虹
 
-北京零壹科技空间公司的宣传视频显示，他们将火箭用集装箱伪装起来，通过货船或波音747货运航班，部署到世界各地。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture5-2.jpg)
-美国太平洋舰队前情报局长詹姆斯·法内尔上尉表示，集装箱式火箭发射器显然是用于军事用途的。中共可能会通过伪装的集装箱将核导弹、运载火箭、甚至太空武器偷运到南美港口。国际评估与战略中心亚洲军事事务高级研究员里克·费舍尔透露，未来潜在的洲际弹道导弹可能隐藏在中共控制的巴拿马港口或与中共结盟的委内瑞拉港口，在那里可以威胁到美国全境。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-21.jpg)图片来源：欧洲新闻
+12月12日，《国会山报》报道，周日，英国首相鲍里斯·约翰逊(Boris Johnson)加强了英国接种中共病毒疫苗加强针的举措，向所有成年人开放加强针注射，并部署军事单位建立额外的中共病毒疫苗接种点。
 
-中共利用“一带一路”项目在全世界收购和租赁港口扩大其影响力，而且善于利用“军民融合”项目伪装其扩张军事霸权的野心。
+当天早些时候，英国卫生官员将中共病毒（COVID-19）警戒级别提高到了4级，因为有证据表明中共病毒变体奥米炕（Omicron）病例在英国每两到三天就翻一番。警戒级别被提高数小时后，约翰逊的预录讲话被公布发表。
 
-参考链接：[中共可能将集装箱武器偷运到南美](https://www.thesun.co.uk/news/16963561/china-smuggle-nuclear-missiles-venezuela/)
+约翰逊说“任何人都不应该有任何疑问，有一股奥米炕（病毒）浪潮正在到来，恐怕现在很清楚，两剂疫苗根本不足以提供我们所有人需要的保护水平。但好消息是，我们的科学家有信心，通过第三剂，即加强剂，我们都可以把我们的保护水平重新提高。”
 
-![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+约翰逊宣布启动奥米炕紧急注射加强针国家任务。他说，所有有资格打加强针的成年人将能够在星期一得到注射。个人必须年满18岁，并且至少在三个月前接受过第二针疫苗。
 
-总编：文真
-编辑：DM
-校对/发稿：Hetangyuese
+报道指，新的时间安排比以前的计划有所加快。原来英国卫生官员的目标是在1月底前向所有成年人开放注射中共病毒疫苗加强针。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+约翰逊还无视基本的事实，继续忽悠未打中共病毒疫苗的英国居民，他鼓励未接种疫苗的英国居民出去打第一针，并说这将使他们“至少得到一些保护”。
+
+**新闻来源**
+
+[UK’s Johnson pushes booster shots ahead of ‘tidal wave of omicron’](https://thehill.com/policy/international/585484-uks-johnson-pushes-booster-shots-ahead-of-tidal-wave-of-omicron)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

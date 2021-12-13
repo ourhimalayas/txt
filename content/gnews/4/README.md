@@ -2,29 +2,36 @@
 ---
 
 
-## 民主党人预计拜登总统的“重建美好”方案将被推迟到2022年
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1750484/)
+## 美CDC：大多数的美国omicron病例是完全接种疫苗的人
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1750505/)
 
-翻译：zzballack
-上传：无明逆流
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-157.png)图片来源：The Quint
+翻译：小鱼儿
+编辑：Mttfly
 
-据美国新闻网站Axios 12月13日报道，一些参议院民主党人正为拜登总统的“重建美好（Build Back Better）“方案被推迟到2022年做准备，尽管民主党领导人坚持认为这项大规模的社会福利和气候变化支出法案将在今年年底前获得通过。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/376.jpg)图片来源：原新闻
-为什么这很重要？除了被推迟到中期选举年以外，这项价值1.75万亿美元的法案的延迟还给民主党人制造了一些技术和财政障碍，比如儿童税和清洁能源信贷等重要条款将会失效。对该法案进行技术性修正将使民主党人感到恼火，但对立法来说却不是致命的。更大的担忧是，任何拖延都会导致方案规模变小。
+12月10日（路透社）根据周五发表的一份美国报告，迄今为止在美国发现的由Omicron变体引起的43例COVID-19病例中，大多数人都已完全接种疫苗，其中三分之一的人已经接受了加强剂量。
 
-参议院金融服务委员会主席罗恩·怀登（Ron Wyden）告诉Axios：“当然，将法案从今年推迟到明年会出现经济上的问题。该法案必须在12月28日之前通过，以便将1月份的联邦救济支票邮寄给美国人。”该委员会成员本·卡丁 (Ben Cardin)参议员说：“如果推迟到明年，就会遇到挑战。”
+美国疾病控制和预防中心（CDC）说，在Omicron变体的43个病例中，34人已经完全接种了疫苗。其中14人还接受了强化疫苗，尽管其中5个病例发生在全面保护生效之前的额外注射后不到14天。
 
-拜登总统12月10日表示，他计划在本周早些时候与该法案的重要反对者、民主党参议员乔·曼钦 (Joe Manchin) 进行会谈。
+虽然这些数字非常小，但它们增加了人们对当前COVID-19疫苗可能对高度传播的新变体提供较少保护的担忧。
 
-12月10日的一份报告显示，美国的通胀率已经高达6.8%。共和党参议员林赛·格雷厄姆 (Lindsey Graham)告诉记者，共和党人在对“重建美好”方案评分后估计，如果该法案的项目永不过期，那么该法案将在十年内耗费3万亿美元。格雷厄姆在接受福克斯采访时说：“曼钦认为这个法案充满了噱头：项目不会消失，而且支出会翻倍。”
+报告说，他们中的大多数人只有轻微的症状，如咳嗽、鼻塞和疲劳，有一个人住院两天。其他报告较少的症状包括恶心或呕吐，气短或呼吸困难，腹泻和味觉或嗅觉丧失。
 
-参议院的一些高级助理人员告诉Axios，连参议院的多数党领袖查克·舒默 (Chuck Schumer)在私下里也承认，在明年1月前通过该法案是一个非常雄心勃勃的目标。
+第一例已知的美国Omicron病例是在12月1日发现的，是一个曾到南非旅行的完全接种过疫苗的人。疾病预防控制中心说，有国际旅行史的人最早的症状发作日期是11月15日。
 
-这个法案一直都有很大的可能不得不被推迟。因为国会本月面临一系列必须在截止日期前通过的法案，这些法案比“重建美好”方案更为优先，包括为政府提供资金、通过年度国防立法和提高债务上限。另外由于一些议员的健康问题，时间安排也会受到影响。
+Delta变体仍然占所有美国病例的99%以上。但来自南非的报告显示，Omicron变体的传播性非常强。
 
-另外，参议院民主党人也仍在就该法案中的一些关键条款争论不休，包括州和地方税收扣除（SALT）、参议员怀登的“亿万富翁税（Billionaires Tax）”和扩大医疗保险的提议。
+**原文链接：**[Most reported U.S. Omicron cases have hit the fully vaccinated -CDC](https://www.reuters.com/world/us/most-reported-us-omicron-cases-have-hit-fully-vaccinated-cdc-2021-12-10/)
 
-新闻来源：[Democrats brace for Build Back Better delay into 2022](https://www.axios.com/democrats-brace-for-build-back-better-delay-into-2022-b105d083-f716-418f-9e18-c83ec2b6f68f.html)
+**发布：**去中心化Math
+**
+更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
