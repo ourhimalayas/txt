@@ -2,52 +2,31 @@
 ---
 
 
-## 灭共者：废除郭七条
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1751666/)
+## 七哥谈新中国联邦给准备的棺材（2021-12-08摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1751751/)
 
-**出品：纽约香草山设计部**
+文编：Hima
+听写：叮叮
+视频：七哥
 
+来源：郭先生2021-12-08直播10：17：18 摘录
 
+我们要做的事情一定要是，咱做这事，咱把他们的丧事给他变成共产党有史以来最高级的。所有制造的棺材都是要特殊材料，花圈都要特殊材料，甚至用碳纤维Carbon Fiber都行。要做得精美细化，要用的音乐，喇叭在各国大使馆响起的时候，要达到了这个世界专辑音乐水平的，比七哥唱Hcoin to the moon还要厉害。叫他们的家人，他们的妈听到以后都直接想进天堂，非死不可那种的，这音乐听着他非死不可。让习近平，彭丽媛，他可以听不见，只要他听见他就想死。让王岐山，姚明珊叫他听见他就想死。他有他母亲齐心，他有习仲勋，我让他母亲齐心知道，你对待别人的父母的感觉是什么样的。你们一定要做到绝，要不就别做，要做就做到绝！我让所有驻海外的中共的大使馆的官员，我让他知道你们的父母一定不会老死，一定会被装在这个新中国联邦给准备的棺材里边去。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
+**关注我们**
 
+Discord 账号
 
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
+Gettr 账号
 
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-en-scaled.jpg)The people of the NFSC are ready – the most painful, difficult, and challenging moment has arrived! Starting today we will alter the path of humanity completely, we will change the world, and we will fulfill the God-given mission: to take down the CCP! 
-— Mr. Miles Guo, GTV livecast on Dec. 8, 2021![](https://assets.gnews.org/wp-content/uploads/2021/12/2-6bd56a53d86ba93e-scaled.jpg)新中国联邦人已经做好了一切准备，最痛苦、最艰难、最考验人的时刻到了！从今天开始我们将彻底改变人类，改变全地球，我们会完成上天给我们的使命：消灭邪恶的共产党！
-— 2021年12月8日郭文贵先生GTV直播![](https://assets.gnews.org/wp-content/uploads/2021/12/3-copy.jpg)From today onwards there will be no more “Guo-7” (7 cardinal rules by Miles Guo). We’ll have to do whatever it takes in order to take down the CCP and to protect our fellow fighters. 
-— Mr. Miles Guo, GTV livecast on Dec. 8, 2021![](https://assets.gnews.org/wp-content/uploads/2021/12/4-cn.jpg)从今天起没有郭七条，只要能灭共的一切都得干，只要能保护好战友的一切都得干！ 
-— 2021年12月8日郭文贵先生GTV直播![](https://assets.gnews.org/wp-content/uploads/2021/12/5-1-2.jpg)Our fear, our kowtow, and our compromises – none would help keeping our loved ones safe or alive for a few more years. We have but ONE choice – either they die, or we win! 
-— Mr. Miles Guo, GTV livecast on Dec. 8, 2021![](https://assets.gnews.org/wp-content/uploads/2021/12/6-1-1.jpg)我们的恐惧、磕头、妥协并不能让我们的家人多活几年，我们只有一个选择——要么他死，要么我们赢！ 
-— 2021年12月8日郭文贵先生GTV直播
-
-
-**编辑/发稿：小鹿**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-2.png)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
-
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

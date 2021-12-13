@@ -2,31 +2,30 @@
 ---
 
 
-## 七哥谈“踩红线”（2021-12-08摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1751767/)
+## 大跃进后中共国净增人口创新低
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1751825/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+**撰稿：日本东京方舟农场 书生**
 
-来源：郭先生2021-12-08直播10：18：40 摘录
+据中共近期公布的《中国统计年鉴2021》数据，2020年相比2019年，中共国人口净增204万人，这是自大跃进以来人口增量最少的一年。
 
-大家一定要记住，尊重各驻地国的法律，还有一个冠状病毒现在正在全球蔓延，聚会的问题，法规的问题。永远记住，咱不要踩红线。我们就要让驻外大使馆让他踩红线，让他买通地方关系BGY，像当年梁冠军一样，是吧？到我楼下抗议，现在全家都得被调查，所有资产都得被没收。我们就让这些驻外大使馆要给习近平，王岐山献忠心，给杨洁篪。杨洁篪这王八蛋得搁上去啊，这两天杨洁篪要出面了啊。从双规状态，这个病恢复状态，吃的是伊维菌素，吃的青蒿素，现在要恢复，就这两天要出场了啊，要出场了，我们得到确切情报。杨洁篪一定放上去。要让他们外交部，情报部他们要有什么冲动。向习王表忠心，杀害我们，派杀手。蓝金黄当地政府陷害我们，像对海东家，颖妹家去摔瓶子砸酒的吓唬你们，派杀手出来，还有想办法遣返我们什么战友，给我们战友制造假刑事案子文件，我们都要做好最坏的准备。就让他踩红线，就让他在海外暴露。
+根据相关资料，在中共血腥的政治运动下，1960年，1961年大量人口非正常死亡，人口增长为负数。之后数年人口增长才恢复正常，自2000年以后人口增长逐渐下跌，从最高峰的1000万人口净增长下跌至2020年的204万，下降速度之快，令人瞠目结舌。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+![](https://assets.gnews.org/wp-content/uploads/2021/12/微信图片_20211213214431.png)今年2月中国表示正在考虑采取新措施 鼓励生育更多的孩子。 © Mark Schiefelbein, AP
 
-**关注我们**
+这一剧烈下降也预示着中共人口政策的失败。中共在2015年结束了独生子女政策，但是为时已晚。由于中共的高压统治，加上经济放缓、房价上涨，生活支出日益增加，导致不想生孩子的中国人越来越多。
 
-Discord 账号
+*参考链接：*
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+[50年来首次下降？中国正面临的人口危机](https://www.rfi.fr/cn/%E4%B8%93%E6%A0%8F%E6%A3%80%E7%B4%A2/%E4%B8%AD%E5%8D%8E%E4%B8%96%E7%95%8C/20210508-50%E5%B9%B4%E6%9D%A5%E9%A6%96%E6%AC%A1%E4%B8%8B%E9%99%8D-%E4%B8%AD%E5%9B%BD%E6%AD%A3%E9%9D%A2%E4%B8%B4%E7%9A%84%E4%BA%BA%E5%8F%A3%E5%8D%B1%E6%9C%BA)
 
-Gettr 账号
+* * *
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+*素材采编：书生*
+
+*编辑：文顺*
+
+*发布：Ranting*
 
  
 
