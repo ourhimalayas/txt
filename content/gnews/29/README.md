@@ -2,25 +2,34 @@
 ---
 
 
-## 民主党人准备将 “重建更好未来 ”方案推迟到2022年
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1750688/)
+## 布林肯访问东南亚 加强合作对抗中共
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1750826/)
 
-**翻译：文斗**
+作者：MOS 柳是多水土透
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月12日华盛顿消息，美国国务卿布林肯将在下周出访东南亚地区。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-13-下午9.49.01.png)圖片來源：2021年12月12日，美國國務卿安東尼‧布林肯（Antony Blinken）在英國利物浦市（Liverpool）準備登機回美。（Oliver Douliey/POOL/AFP via Getty Images）
+布林肯将在12月13日到达印尼首都雅加达，进行外事访问。随后，他将继续出访马来西亚和泰国。这是拜登政府任期内首次东南亚外交之行。
 
-**校对：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/AFP_1VX4PF.focal-760x428-1.jpg)图片来源：Jewish News
-美国短新闻网站Axios 12月12日报道，尽管民主党领导人坚称这项大规模的社会和气候支出法案将在今年年底前通过，但一些参议院民主党人正准备将拜登总统的“重建更好未来”（Build Back Better ）一揽子方案推迟到2022年。
+目前，东南亚已经成为美国与中共较量的战略战场。中共对南海大部分地区声称拥有主权，而这些地区是重要的公共海上贸易路线。中共还一直对台湾施加军事胁迫和政治压力。
 
-法案推迟对民主党的影响除了将重大支出立法推到中期选举年之外，1.75万亿美元的法案延迟还给民主党人制造了一些技术和财政障碍。它们包括儿童税收抵免 (Child tax credit)和清洁能源税收抵免（Clean energy credits）等关键条款的失效，也就是说拖延都会导致方案缩水。
+布林肯希望通过这次访问，与东盟国家提升关系，他将聚焦于安全基础设施合作，建立印太经济框架，加强美国在印太地区的影响力，以对抗中共的扩张和威胁。
 
-参议院金融服务委员会主席罗恩·怀登（Ron Wyden 民主党）告诉Axios：“从一个年度（推迟）到另一个年度的角度看，当然会有经济问题。”他认为该法案必须在12月28日之前通过，以便联邦支持支票1月份能够邮寄给美国人。委员会成员本·卡丁（Ben Cardin 民主党）也同意如果拖到明年，法案就会面临挑战。
+参考链接：[Blinken heads to Southeast Asia to deepen cooperation on China pushback](https://www.reuters.com/world/blinken-heads-southeast-asia-deepen-cooperation-china-pushback-2021-12-12/)
 
-拜登总统周五表示，他计划在本周初与参议员乔·曼钦 (Joe Manchin民主党)进行会谈，曼钦是该立法的一个关键反对者，在上周五的报告显示通货膨胀率为6.8%之后，这个会谈似乎也没有马上在议程上。共和党参议员林赛·格雷厄姆（Lindsey Graham）告诉记者，在消费物价指数报告以及共和党人对“重建更好未来”方案的评分公布后，他于周五与曼钦进行了交谈——如果该法案不失效的话，估计该法案将在十年内花费3万亿美元，这实在太烧钱了。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-参议院高级助手告诉Axios，即使是参议院多数党领袖查克·舒默（ Chuck Schumer）私下也承认，在1月到来前通过该法案是一个比较难以达成的目标。言外之意就是这项法案很有可能被推迟。
+总编：Ivy001
+编辑：Ivy001
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-**新闻链接**：https://www.axios.com/democrats-brace-for-build-back-better-delay-into-2022-b105d083-f716-418f-9e18-c83ec2b6f68f.html
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
