@@ -2,36 +2,24 @@
 ---
 
 
-## 菲律宾央行正在调查BDO银行遭黑客而丢失资金事件
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1749376/)
+## 美国官员考虑禁止向中芯国际出口产品
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1749404/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片4-4.png)
+图片来源：网络截图
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/shutterstock-bdo-card-ls.jpg)图片来源：rappler
+据零对冲12月10日报道，美国防部在全球半导体混乱和与中共国的地缘政治关系紧张的时候出台了一份新的报告，即美国官员正在考虑禁止向中共国芯片制造商中芯国际集成电路制造有限公司（SMIC）出口产品。
 
+路透社周五上午报道说，中芯国际一直在利用监管漏洞购买美国技术，但国防部已经提出了一项阻止出口的建议。与此同时，一些商务部官员正试图阻止国防部的提案。
 
-#### 编译 ：小红帽
+报告说，中芯国际去年被列入美国的黑名单，它应该被拒绝获得美国供应商的先进制造设备。将其列入黑名单是因为中芯国际与中共国军方之间存在潜在联系。
 
-**据彭博社12月12日报道，菲律宾央行正在调查有关该国资产最大的银行BDO Unibank Inc.的一些客户的投诉。该公司的一些客户因在线欺诈而蒙受损失。该欺诈犯罪分子将资金汇入到菲律宾联合银行（UnionBank）的账户。**
+上个月中共国指责美国通过扩大了国家安全的概念阻止了英特尔在中共国的扩张计划。中共国外交部发言人赵立坚说，美国把国家安全作为 “建立贸易壁垒”的手段。
 
-“我们正在与BDO银行以及UBP银行就这一事件进行密切协调，以确保采取补救措施，包括偿还受影响的消费者，”央行行长本杰明·迪奥克诺 (Benjamin Diokno)周日在一份声明中表示。自本周初以来，监管机构一直在关注通过社交媒体发布的激增投诉。
+他还指责拜登政府强迫三星和台湾半导体交出与其供应链有关的“敏感信息”，声称中共政府总是置身于其大型科技集团的计划之外，但是事实应该是正好相反。
 
-BDO银行在一份声明中表示，BDO意识到一种“复杂的欺诈技术”已经影响了其部分客户。“我们已经实施了额外的安全控制措施，以阻止进一步的尝试并继续保护银行凭据，”银行行长内斯托尔·谭（Nestor Tan）告诉菲律宾每日问询者，这一事件“影响了一个有10年历史的网络服务。该服务将被逐步淘汰”，应该在明年初会推出替代品。
-
-联合银行冻结了几个从BDO账户接收资金的账户，总裁埃德温·包蒂斯塔（Edwin Bautista）说，“我们将毫不犹豫地对使用其帐户进行犯罪活动的个人采取法律行动”。
-
-马尼拉公报引用了一个不明身份的消息来源称，其中一个联合银行账户在12月11日使用500万比索（99，280美元）的被盗资金购买了比特币。
-
-新闻来源：[Philippine Central Bank Probes Hacking Complaints at Banks – Bloomberg](https://www.bloomberg.com/news/articles/2021-12-12/philippines-union-bank-freezes-some-accounts-on-hacking-report)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻来源：[U.S. Officials Consider Banning Exports To Chinese Chipmaker SMIC](https://www.zerohedge.com/markets/us-officials-consider-banning-exports-chinese-chipmaker-smic)
 
  
 

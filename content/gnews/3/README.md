@@ -2,31 +2,27 @@
 ---
 
 
-## COVID-19 最新情报｜美国omicron感染 逾七成接种过疫苗
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1749905/)
+## 英国再次上调疫情警报至4级
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1749971/)
 
-**疫情關注組 / 發佈時間｜13/12/2021**
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2021/12/135.jpg)图片来自网络
+由于当前严峻的Omicron变异病毒感染形势，英国宣布将疫情警报从原先的3级提升至4级水平。英国疫情警报系统一共分为5个等级，上一次该国处于4级状态还是年中大概5月份左右的时候。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+当地时间12月12日，英国共发现新增1239例Omicron变异病毒感染，总数已经超过3100例。英国专家小组和卫生部门此前已经提出预警，他们认为新的变种病毒将成为本地主要毒株。
 
+英国首相约翰逊坦言，对抗新的变异病毒将是一场严酷的战役，即便该变种目前引发的病情症状程度较轻。同时他也提出两剂疫苗的保护能力已经失效，需要通过第三针加强疫苗才能有效保障健康。
 
-外媒指出，omicron在美国的感染情形还没达到巅峰前，新冠确诊者、住院人数便飙升，疫情再次升温的情形包含疫苗接种率高的地区。美国新冠新病例从11月22日的95000例/单日，飙升至每日近11万9千例，住院治疗人数比11月增加了25%。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/coronavirus-data-explorer.png)美国每7日确诊的滚动平均值。来源：Our World in Data
-美国病例增长几乎来自于delta变种，最新发现的omicron尚未成为威胁美国的主要变种（指12/09撰文时）。据[CDC数据](https://www.cdc.gov/coronavirus/2019-ncov/variants/omicron-variant.html)，美国新病例增长时omicron已在至少21个州被发现，基于omicron高传染的特性，omicron将形成美国另一威胁。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截圖-2021-12-13-下午3.58.44.png)來源：CDC
-## 新英格兰地区高接种率 仍发生感染数激增
+从周一开始，任何18岁以上公民只要接种第二剂疫苗达到三个月，就可以进行加强针的注射，相较过去流行的六个月等待时间缩短了一半。于此同时，每日疫苗的计划接种人数也将从大约50万人上调至100万人。政府甚至会调派军事规划小队到各地区协助计划顺利进行——加强级目标计划在12月底之前完成，这比先前预定的方案还要再早一个月。
 
-拜登政府持续推广加强针，于12月的第一周便接种了近700万剂。VOA援引美联社统计数据，美国完全接种人口比例最高的五个州都在新英格兰地区，分别是：佛蒙特州、康涅狄格州、缅因州、罗德岛州和马萨诸塞州，新罕布什州接种率排名第十。
+笔者认为，英国政府这一举动欠缺考虑并且十分危险。即便撇开疫苗加强针自身毒性不谈，大规模的疫苗注射所导致的人群聚集本身就会增加病毒传播的可能。同时即便真的全民施打加强针，要是接下来又出现新的变异毒株，那么又应该怎么应对？到时候是要继续注射第四针吗？还是又会把注射等待周期提前，从三个月变成一个月？
 
-新英格兰地区的六个州，疫苗完全接种率从69.4%-61.5%不等。而全美国平均完全接种率为55.5%。尽管新英格兰地区的接种率高于全国平均，但本次仍成为“新病例快速增长最严重的地区之一”。
+这样的应对措施疯狂而且不负责任，很难让人不怀疑背后有某种力量在推动，并且越发已经失去耐心。我们必须反对疫苗强制规定，否则就会变成任人宰割的鱼肉。又到年关，如果人类拒绝反思2021年究竟发生了什么，2022年注定有更大的灾难在等着我们。
 
-## CDC: 美国75% omicron病例曾接种新冠疫苗
+新闻参考链接：[立场新闻](https://www.thestandnews.com/international/%E8%8B%B1%E5%9C%8B%E6%8F%90%E5%8D%87%E7%96%AB%E6%83%85%E8%AD%A6%E5%A0%B1%E7%B4%9A%E5%88%A5%E8%87%B3-4-%E7%B4%9A-%E7%B4%84%E7%BF%B0%E9%81%9C%E8%A6%81%E6%B1%82%E6%9C%88%E5%BA%95%E5%89%8D%E7%82%BA%E5%90%88%E8%B3%87%E6%A0%BC%E6%88%90%E5%B9%B4%E4%BA%BA%E6%89%93%E5%8A%A0%E5%BC%B7%E5%8A%87)
 
-美联社采访CDC 主任罗谢尔·瓦伦斯基 (Rochelle Walensky) 博士称，美国自12 月 1 日首次确认 omicron 变种以来，已知感染omicron的人中四分之三接种了疫苗，三分之一接种过加强针。同时期，旧金山东湾也爆发了omicron 感染，12病例中11例接种了疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-3.png)
-来源｜[VOA](https://www-voanews-com.translate.goog/a/virus-surge-hits-new-england-despite-high-vaccination-rates/6255569.html?_x_tr_sl=en&amp;_x_tr_tl=zh-TW&amp;_x_tr_hl=zh-TW&amp;_x_tr_pto=sc)、[SF](https://www.sfchronicle.com/health/article/Omicron-outbreak-from-out-of-state-wedding-tied-16685845.php?utm_campaign=premiumsfgate_breakingnews_20211208&amp;utm_source=newsletter&amp;utm_medium=email)
-
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

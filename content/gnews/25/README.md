@@ -2,23 +2,23 @@
 ---
 
 
-## “HCoin To The Moon”打榜再创历史奇迹
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1749755/)
+## 前美国参议员呼吁美国企业从北京冬奥会撤资
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1749758/)
 
-作者：纽约香草山教育部 – 文特
+作者：纽约香草山 – 飞虹
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-12月11日， 郭文贵先生的新歌“HCoin To The Moon”打榜再次创造了一系列前所未有的历史奇迹：不仅登上了音乐界享有盛名的Billboard排行榜，更是一举取得了全球销量榜首的骄人成绩。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture2-8.jpg)
-该歌曲的音乐视频一上线就横扫全球，MV版歌曲上线第2天就位列美国，台湾，日本，俄罗斯，德国，法国，澳大利亚，加拿大，新加坡，澳门，新西兰, 匈牙利，泰国，柬埔寨，老挝，瑞典，菲律宾， 马来西亚，阿联酋， 意大利，芬兰，马耳他，斐济，拉脱维亚等26国的iTunes热门MV榜首。不仅从未有任何一个中国人做到如此，即便是世界顶级的知名音乐家也望尘莫及。
+12月10日，美国前参议员、堪萨斯州州长、国际宗教自由大使萨姆·布朗贝克在接受媒体采访时，详细描述中共对维吾尔穆斯林人口的人权侵犯，并呼吁可口可乐、爱彼迎等美国企业撤回在北京冬奥会上的广告投入，进一步抵制北京冬奥会。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture4-6.jpg)
+萨姆认为，中共将维吾尔穆斯林关进集中营进行迫害，试图灭绝他们的信仰；还反对基督教徒，摧毁教会。中共正在与所有的信仰进行战争，并希望其侵犯宗教自由的行为被全世界其他独裁政权仿效。
 
-这次打榜的成功，再一次显示了新中国联邦全球战友们团结的实力以及灭共的决心！
+萨姆最后表示，鉴于中共的这些问题，美国应抵制即将在北京举办的冬季奥运会，但仅有拜登总统的外交抵制是不够的，应该呼吁那些持有西方公司广告资金的广告商，包括可口可乐、爱彼迎等知名公司撤回他们在北京冬奥会上投入的广告费。同时运动员也可以带着被中共关押的人的照片走进奥运场馆，表达自己的立场。
 
-参考链接：[“HCoin To The Moon”打榜再创历史奇迹](https://www.gettr.com/post/pjexqk732a)
+参考链接：[前美国参议员呼吁美国企业从北京冬奥会撤资](https://www.breitbart.com/politics/2021/12/11/exclusive-sam-brownback-calls-on-woke-corporations-to-pull-advertising-dollars-out-of-beijing-winter-olympics/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-总编：飞虹
-编辑：DM
+总编：文特
+编辑：文特
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
