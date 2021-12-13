@@ -2,20 +2,12 @@
 ---
 
 
-## 南非总统感染中共病毒
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1749691/)
+## 苏立文与中共外交官会晤中重申将捍卫其利益和台海稳定
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1749731/)
 
-#### 撰稿：彩虹
+12/10/2021 苏立文：作为美国，我们有责任与盟友和伙伴合作，明确我们的立场，为我们的朋友挺身而出，为我们的利益挺身而出。美国将采取与《台湾关系法》下的义务相一致的措施支持台湾，我们将继续与盟国和合作伙伴密切协商。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-20.jpg)图片来源：天空新闻台
-12月12日，《国会山报》报道，虽然之前完全接种了中共病毒疫苗，南非政府在周日的一份声明中宣布，南非总统西里尔·拉马福萨（Cyril Ramaphosa）于当日中共病毒检测结果为阳性。
-
-根据声明，周日早些时候，拉马福萨在开普敦的一次活动后开始“感到不适”，在当天检测出阳性后“正在接受轻度COVID-19（中共病毒）的治疗。总统（之前）已经完全接种了（中共病毒）疫苗，正在开普敦进行自我隔离，并已将下周的所有职责委托给了副总统大卫·马布扎（David Mabuza）”。
-
-**新闻来源**
-
-[South Africa’s president tests positive for COVID-19](https://thehill.com/policy/international/585485-south-africas-president-tests-positive-for-covid-19)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
