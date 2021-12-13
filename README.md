@@ -15,125 +15,125 @@
 
 ---
 
-### [【樱花深度报道】美国担心中共在非洲的军事野心（上）](/content/gnews/1/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [【樱花深度报道】美国担心中共在非洲的军事野心（下）](/content/gnews/2/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [斯洛文尼亚宪法法院裁定强制公职人员接种新冠疫苗违宪](/content/gnews/3/README.md)
- ` xiaobaige`
-
-### [七哥谈四个突破（2021-12-12摘录）](/content/gnews/4/README.md)
- ` MG FARM`
-
-### [七哥谈洗脑利器（2021-12-12摘录）](/content/gnews/5/README.md)
- ` MG FARM`
-
-### [「小雨专栏」 在路上050——衣服篇](/content/gnews/6/README.md)
- ` 温哥华扬帆农场`
-
-### [七哥谈武器——音乐（2021-12-12摘录）](/content/gnews/7/README.md)
- ` MG FARM`
-
-### [12/12/2021 文贵直播：过去十年的中共国基本被习彭通过所谓的国家安全委员会架空了常委会和行政机构，习的海外情报网由习的姐姐家族掌控](/content/gnews/8/README.md)
- ` 秘密翻译组-北美组`
-
-### [七哥谈萨达姆（2021-12-12摘录）](/content/gnews/9/README.md)
- ` MG FARM`
-
-### [秘翻在线: 中国证监会核发中国移动IPO 拟募资560亿](/content/gnews/10/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [七哥谈流氓斯大林（直播摘录）](/content/gnews/11/README.md)
- ` MG FARM`
-
-### [军事接管：美缅因州国民警卫队取代未接种疫苗被解雇的护士](/content/gnews/12/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [12/12/2021 文贵直播：现在如果习近平被暗杀会怎么样？那将是中国的悲剧](/content/gnews/13/README.md)
- ` 秘密翻译组-北美组`
-
-### [七哥谈希特勒和共产党（直播摘录）](/content/gnews/14/README.md)
- ` MG FARM`
-
-### [币安宣布将于明年2月退出新加坡加密货币市场](/content/gnews/15/README.md)
- ` 日本东京方舟农场`
-
-### [七哥谈爱自己（2021-12-10摘录）](/content/gnews/16/README.md)
- ` MG FARM`
-
-### [“遵循科学”是政客们的有力说辞（1/3）](/content/gnews/17/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [恒大确定违约，接下来会发生什么](/content/gnews/18/README.md)
+### [独家报道：中国抢购大量法国和乌克兰饲料谷物](/content/gnews/1/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [七哥谈共产党的墓地（2021-12-08摘录）](/content/gnews/19/README.md)
+### [建立民族仇恨 巩固中共霸权地位](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [日本将加强对卫星定位系统（GPS）的使用监管](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [被认为是世界上第一个因感染Omicron死去的患者在英国出现](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [【樱花深度报道】美国担心中共在非洲的军事野心（上）](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [【樱花深度报道】美国担心中共在非洲的军事野心（下）](/content/gnews/6/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [斯洛文尼亚宪法法院裁定强制公职人员接种新冠疫苗违宪](/content/gnews/7/README.md)
+ ` xiaobaige`
+
+### [日本首相岸田文雄支持台湾参加世卫组织](/content/gnews/8/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [七哥谈四个突破（2021-12-12摘录）](/content/gnews/9/README.md)
  ` MG FARM`
 
-### [七哥谈“我们要加速共产党灭亡”（2021-12-08摘录）](/content/gnews/20/README.md)
+### [七哥谈洗脑利器（2021-12-12摘录）](/content/gnews/10/README.md)
  ` MG FARM`
 
-### [辉瑞公司文件揭示了各种疫苗副作用](/content/gnews/21/README.md)
+### [「小雨专栏」 在路上050——衣服篇](/content/gnews/11/README.md)
+ ` 温哥华扬帆农场`
+
+### [七哥谈武器——音乐（2021-12-12摘录）](/content/gnews/12/README.md)
+ ` MG FARM`
+
+### [12/12/2021 文贵直播：过去十年的中共国基本被习彭通过所谓的国家安全委员会架空了常委会和行政机构，习的海外情报网由习的姐姐家族掌控](/content/gnews/13/README.md)
+ ` 秘密翻译组-北美组`
+
+### [七哥谈萨达姆（2021-12-12摘录）](/content/gnews/14/README.md)
+ ` MG FARM`
+
+### [秘翻在线: 中国证监会核发中国移动IPO 拟募资560亿](/content/gnews/15/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [七哥谈流氓斯大林（直播摘录）](/content/gnews/16/README.md)
+ ` MG FARM`
+
+### [军事接管：美缅因州国民警卫队取代未接种疫苗被解雇的护士](/content/gnews/17/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [12/12/2021 文贵直播：现在如果习近平被暗杀会怎么样？那将是中国的悲剧](/content/gnews/18/README.md)
+ ` 秘密翻译组-北美组`
+
+### [七哥谈希特勒和共产党（直播摘录）](/content/gnews/19/README.md)
+ ` MG FARM`
+
+### [币安宣布将于明年2月退出新加坡加密货币市场](/content/gnews/20/README.md)
+ ` 日本东京方舟农场`
+
+### [七哥谈爱自己（2021-12-10摘录）](/content/gnews/21/README.md)
+ ` MG FARM`
+
+### [恒大确定违约，接下来会发生什么](/content/gnews/22/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [七哥谈共产党的墓地（2021-12-08摘录）](/content/gnews/23/README.md)
+ ` MG FARM`
+
+### [辉瑞公司文件揭示了各种疫苗副作用](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [马德里、瓦伦西亚、巴塞罗那举行反对疫苗护照示威游行](/content/gnews/22/README.md)
+### [马德里、瓦伦西亚、巴塞罗那举行反对疫苗护照示威游行](/content/gnews/25/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [郭先生：omicron 变种传染性很强，但危险性不大](/content/gnews/23/README.md)
- ` MG 澳喜农场多语组`
-
-### [七哥谈家人（2021-12-08摘录）](/content/gnews/24/README.md)
- ` MG FARM`
-
-### [美最大医院系统取消疫苗强制令应对人手不足](/content/gnews/25/README.md)
+### [美最大医院系统取消疫苗强制令应对人手不足](/content/gnews/26/README.md)
  ` HimalayaRussia`
 
-### [中共国发现首例新冠奥密克戎变异毒株](/content/gnews/26/README.md)
+### [中共国发现首例新冠奥密克戎变异毒株](/content/gnews/27/README.md)
  ` 日本东京方舟农场`
 
-### [日本警告疫苗引发的死亡风险是病毒的七倍](/content/gnews/27/README.md)
+### [日本警告疫苗引发的死亡风险是病毒的七倍](/content/gnews/28/README.md)
  ` HimalayaRussia`
 
-### [“俄爹”正式翻脸，习近平的信心支柱倒塌并向着自杀更近一步](/content/gnews/28/README.md)
+### [“俄爹”正式翻脸，习近平的信心支柱倒塌并向着自杀更近一步](/content/gnews/29/README.md)
  ` YALUN 亚伦`
 
-### [币安新加坡子公司将撤回牌照申请，关闭本地平台运营](/content/gnews/29/README.md)
+### [币安新加坡子公司将撤回牌照申请，关闭本地平台运营](/content/gnews/30/README.md)
  ` 纽约香草山MOS02`
 
-### [12.12文贵爆料 H-Coin To The Moon是灭共灭邪恶的力量](/content/gnews/30/README.md)
+### [12.12文贵爆料 H-Coin To The Moon是灭共灭邪恶的力量](/content/gnews/31/README.md)
  ` 秘密翻译组-原创组`
 
-### [音乐灭共：一曲Hcoin to the Moon 震惊海内外](/content/gnews/31/README.md)
+### [音乐灭共：一曲Hcoin to the Moon 震惊海内外](/content/gnews/32/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [欧盟对抵制北京冬奥会还在犹豫不决](/content/gnews/32/README.md)
+### [欧盟对抵制北京冬奥会还在犹豫不决](/content/gnews/33/README.md)
  ` HimalayaRussia`
 
-### [美国西肯塔基州居民遭遇最致命龙卷风袭击](/content/gnews/33/README.md)
+### [美国西肯塔基州居民遭遇最致命龙卷风袭击](/content/gnews/34/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [中国内地出现首个奥密克戎 （Omicron）感染病例](/content/gnews/34/README.md)
+### [中国内地出现首个奥密克戎 （Omicron）感染病例](/content/gnews/35/README.md)
  ` 首尔天池农场`
 
-### [日本民间团体举办为台湾正名签名活动](/content/gnews/35/README.md)
+### [日本民间团体举办为台湾正名签名活动](/content/gnews/36/README.md)
  ` 日本东京方舟农场`
 
-### [四个州召集国民警卫队应对医疗人员配备危机](/content/gnews/36/README.md)
+### [四个州召集国民警卫队应对医疗人员配备危机](/content/gnews/37/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021/12/13 大卫作战室直播精要](/content/gnews/37/README.md)
+### [2021/12/13 大卫作战室直播精要](/content/gnews/38/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [音乐，独裁者的武器和噩梦](/content/gnews/38/README.md)
+### [音乐，独裁者的武器和噩梦](/content/gnews/39/README.md)
  ` 墨尔本雅典娜农场`
 
-### [12/13 每日播报｜揭秘“躺平币”背后埋单资金，远瞻灭共赚钱新思路](/content/gnews/39/README.md)
+### [12/13 每日播报｜揭秘“躺平币”背后埋单资金，远瞻灭共赚钱新思路](/content/gnews/40/README.md)
  ` 秘密翻译组-即时新闻播报组`
-
-### [12/13/21 香港快讯 中大民调：33%受访市民表明不投票 较答「会投票」多](/content/gnews/40/README.md)
- ` 英喜-粵語組`
 
 ### [银河快讯: 日美澳将资助海底电缆对抗中共；中共研究员可能泄露日本技术](/content/gnews/41/README.md)
  ` 日本银河系农场-阿尔法星球`
