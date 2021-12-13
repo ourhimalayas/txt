@@ -2,30 +2,44 @@
 ---
 
 
-## 南非总统感染新冠病毒 权力临时移交副总统
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1748584/)
+## 昆州封锁边境229天后对已接种疫苗旅客开放
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1748720/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Unknown-16.jpg)南非总统感染新冠病毒 权力临时移交副总统 网络图片
-据俄罗斯卫星通讯社12月13日报道，南非总统西里尔·拉马福萨12日新冠病毒检测结果呈阳性。拉马福萨已经完成疫苗接种，正处于自我隔离中，下周所有权力临时移交给副总统戴维·马布扎。
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-拉马福萨刚刚结束对西非国家的巡访，随总统出访的代表团成员检测结果也呈阴性。
-
-中共所到之处，病毒如影随形，疫苗接踵而至。全球大部分地区已经覆盖了病毒和疫苗，非洲也不会幸免。杨洁篪、王毅到了非洲，总统和总统团队就感染了，非洲人民还躲得了吗？这就是欢迎共产党到访的结果。不想死的就清醒吧！
-
-新闻参考链接：[https://sputniknews.cn/society/202112131034957928/](https://sputniknews.cn/society/202112131034957928/)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/000_9l9966.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+ 
+图片来源:  AFP/Patrick Hamilton
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
+#### 整理报道 ：小红帽
 
+自2021年初以来，接种新冠疫苗（COVID-19）的旅客首次被允许进入昆士兰。
+
+自边境封锁以来已经过去229天，昆士兰重新向已接种疫苗的澳洲人开放边境。
+
+同时，昆州取消了对已经完全接种新冠疫苗疫苗、且PCR检测呈阴性的人的入境限制。
+
+上周，昆州达到了80%的两剂量新冠疫苗接种率的里程碑。预计数万人将在节日期间向北旅行，促进旅游业的发展。
+
+尽管上周昆州当局对新冠病毒在社区内的传播感到担忧，但警方相信他们的行动和边境巡逻足以应对大量涌入的旅客。
+
+昆士兰警方将在新州边境的五个检查站保持同步行动，在道路较不繁忙的时期进行100%的合规和边境通行检查。
+
+威尔曼补充说，持有“XV”通行证的边境居民预计会被警方拦下接受检查，但是没有该通行证的人要准备好为检查警官提供要求的所有文件。
+
+新闻来源：[硬核封锁229天，昆士兰向接种疫苗澳人重开边境 (sbs.com.au)](https://www.sbs.com.au/chinese/mandarin/zh-hans/queensland-reopens-to-vaccinated-australians-after-229-days-with-a-hard-border)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

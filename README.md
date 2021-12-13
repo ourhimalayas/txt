@@ -15,107 +15,107 @@
 
 ---
 
-### [李木子吃人肉喝人心都正常，孙瑶、贯君、刘呈杰差太远](/content/gnews/1/README.md)
+### [议员兰斯·古登： 中共国 是个专制的共产主义国家，并残酷对待自己的国民](/content/gnews/1/README.md)
+ ` 美国政要直译推`
+
+### [疫情蔓延使行业“老大“关闭300家门店](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [墨尔本12月12日反封锁、反强制疫苗游行简报](/content/gnews/3/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [李木子吃人肉喝人心都正常，孙瑶、贯君、刘呈杰差太远](/content/gnews/4/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [串珠480:中共控制了海外所有大型严肃主流媒体](/content/gnews/2/README.md)
+### [串珠480:中共控制了海外所有大型严肃主流媒体](/content/gnews/5/README.md)
  ` 郭爆料串珠`
 
-### [串珠479:中共高层几十年前就开始做“人口消减“计划](/content/gnews/3/README.md)
+### [串珠479:中共高层几十年前就开始做“人口消减“计划](/content/gnews/6/README.md)
  ` 郭爆料串珠`
 
-### [串珠478:中共高官为何无人感染？](/content/gnews/4/README.md)
+### [串珠478:中共高官为何无人感染？](/content/gnews/7/README.md)
  ` 郭爆料串珠`
 
-### [极左恶棍司马南：中共豢养的太监、家奴、大五毛](/content/gnews/5/README.md)
+### [极左恶棍司马南：中共豢养的太监、家奴、大五毛](/content/gnews/8/README.md)
  ` 纽约香草山MOS03`
 
-### [12/12/2021 文贵直播：俄罗斯、华尔街、好莱坞和香港四大不要脸促成了习的狂妄，敢在全球放毒](/content/gnews/6/README.md)
+### [12/12/2021 文贵直播：俄罗斯、华尔街、好莱坞和香港四大不要脸促成了习的狂妄，敢在全球放毒](/content/gnews/9/README.md)
  ` 秘密翻译组-北美组`
 
-### [DC大中华时事：中共宣传“稳”成2022年中国经济关键词](/content/gnews/7/README.md)
+### [DC大中华时事：中共宣传“稳”成2022年中国经济关键词](/content/gnews/10/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [串珠477:习发动的第三次世界大战，是前两次千百倍](/content/gnews/8/README.md)
+### [串珠477:习发动的第三次世界大战，是前两次千百倍](/content/gnews/11/README.md)
  ` 郭爆料串珠`
 
-### [全球感染中共病毒人数超过2.7亿，死亡人数超过530万](/content/gnews/9/README.md)
+### [全球感染中共病毒人数超过2.7亿，死亡人数超过530万](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本外长出席G7会议，谴责中共人权侵犯罪行](/content/gnews/10/README.md)
+### [日本外长出席G7会议，谴责中共人权侵犯罪行](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [FDA 要求谷歌从 YouTube 上删除 Covid 视频，因为该机构不喜欢他们的信息](/content/gnews/11/README.md)
+### [FDA 要求谷歌从 YouTube 上删除 Covid 视频，因为该机构不喜欢他们的信息](/content/gnews/14/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [7家公司因信息披露违规被立案，*ST实达重整受挫](/content/gnews/12/README.md)
+### [7家公司因信息披露违规被立案，*ST实达重整受挫](/content/gnews/15/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [昆州封锁边境229天后对已接种疫苗旅客开放](/content/gnews/13/README.md)
+### [昆州封锁边境229天后对已接种疫苗旅客开放](/content/gnews/16/README.md)
  ` 走进澳洲`
 
-### [佳兆业旗下投资管理企业被冻结股权 涉资16亿](/content/gnews/14/README.md)
+### [佳兆业旗下投资管理企业被冻结股权 涉资16亿](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中国农村养猪业现状（二）](/content/gnews/15/README.md)
+### [中国农村养猪业现状（二）](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
 
-### [南非总统感染新冠病毒 权力临时移交副总统](/content/gnews/16/README.md)
+### [南非总统感染新冠病毒 权力临时移交副总统](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [习近平女儿名字叫李木子？](/content/gnews/17/README.md)
+### [习近平女儿名字叫李木子？](/content/gnews/20/README.md)
  ` 首尔天池农场`
 
-### [12/12/2021 文贵直播：在过去48小时，俄罗斯明确告诉中共，你不行了，老子不和你玩儿了，不参与中共打台湾](/content/gnews/18/README.md)
+### [12/12/2021 文贵直播：在过去48小时，俄罗斯明确告诉中共，你不行了，老子不和你玩儿了，不参与中共打台湾](/content/gnews/21/README.md)
  ` 秘密翻译组-北美组`
 
-### [文·贵天成——文贵先生谈“疫苗”（四十五）](/content/gnews/19/README.md)
+### [文·贵天成——文贵先生谈“疫苗”（四十五）](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国各界呼吁全面抵制北京冬奥会](/content/gnews/20/README.md)
+### [美国各界呼吁全面抵制北京冬奥会](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [G7关注中共国的“强制性”经济政策](/content/gnews/21/README.md)
+### [G7关注中共国的“强制性”经济政策](/content/gnews/24/README.md)
  ` HimalayaRussia`
 
-### [接受红杉资本中国公司投资的一家蒙特利尔公司Ssense创始人购房创下魁北克房地产史上最大的销售成交价纪录](/content/gnews/22/README.md)
+### [接受红杉资本中国公司投资的一家蒙特利尔公司Ssense创始人购房创下魁北克房地产史上最大的销售成交价纪录](/content/gnews/25/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [蓬佩奥谴责国际奥委会和全球商业巨头支持北京冬奥会](/content/gnews/23/README.md)
+### [蓬佩奥谴责国际奥委会和全球商业巨头支持北京冬奥会](/content/gnews/26/README.md)
  ` 首尔天池农场`
 
-### [南非总统完全接种疫苗中共病毒检测呈阳性](/content/gnews/24/README.md)
+### [南非总统完全接种疫苗中共病毒检测呈阳性](/content/gnews/27/README.md)
  ` HimalayaRussia`
 
-### [蓬佩奥谴责奥委会及商业巨头支持中共冬奥](/content/gnews/25/README.md)
+### [蓬佩奥谴责奥委会及商业巨头支持中共冬奥](/content/gnews/28/README.md)
  ` HimalayaRussia`
 
-### [日本要求疫苗提示心肌炎警告 注射需知情同意](/content/gnews/26/README.md)
+### [日本要求疫苗提示心肌炎警告 注射需知情同意](/content/gnews/29/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [“疯狂宇宙”与恶党本质](/content/gnews/27/README.md)
+### [“疯狂宇宙”与恶党本质](/content/gnews/30/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [意大利疫苗受害者在意大利卫生部大楼前示威](/content/gnews/28/README.md)
+### [意大利疫苗受害者在意大利卫生部大楼前示威](/content/gnews/31/README.md)
  ` xiaobaige`
 
-### [日本反北京冬奥委会游行：决不忘苦于中共独裁的中国人](/content/gnews/29/README.md)
+### [日本反北京冬奥委会游行：决不忘苦于中共独裁的中国人](/content/gnews/32/README.md)
  ` 日本东京方舟农场`
 
-### [秘翻在线: 布林肯将访问东南亚三国，加强反共联盟](/content/gnews/30/README.md)
+### [秘翻在线: 布林肯将访问东南亚三国，加强反共联盟](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国对中共国、缅甸和朝鲜实施广泛人权制裁](/content/gnews/31/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [文贵爆料12.12：躺平币为公有链 100% 独立 可与任何币互换](/content/gnews/32/README.md)
+### [文贵爆料12.12：躺平币为公有链 100% 独立 可与任何币互换](/content/gnews/34/README.md)
  ` 秘密翻译组-原创组`
-
-### [爆炸新闻-英格兰儿童 &#8220;突然死亡&#8221;是因为不良批次的辉瑞疫苗造成的吗？](/content/gnews/33/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [随喜币上月球的文化逻辑](/content/gnews/34/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm Toronto(CA)`
 
 ### [香草山翻译部周刊|2021年12月12日第26期](/content/gnews/35/README.md)
  ` 纽约香草山MOS01`
