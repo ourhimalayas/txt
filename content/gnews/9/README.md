@@ -2,17 +2,28 @@
 ---
 
 
-## 美国情报部门透露 ，国内很多人想刺杀习近平
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1751020/)
+## GTV新闻访谈简报|2021年12月13日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1751152/)
 
-栏目作者：焦点20分
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-3.jpg)
 
-据 #美国 最高 #情报部门 透露 ，国内很多人想 #刺杀习近平 ！ 但目前 #习近平 如有任何闪失 ，将对 #灭共 非常不利。一直以来， #中共邪恶体制 才是问题的根本。杀了习，#中国共产党 依然存在。 习的野心和自大，搞文革2.0，打台湾，挑战美国等等，将促使西方世界集体 #加速灭共 。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-1-5.png)
+文章仅代表作者本人观点，与Gnews无关
 
-**视频来源: 2021年12月12日郭先生大直播视频**
-**视频制作: 文星光**
-**文案: 梦田、文星光**
-**上传: 零点**
+视频参看：[2021.12.13早GTV新闻访谈](https://gtv.org/video/id=61b74a4d56f4921401b6eb8b)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/calendar.jpeg)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
