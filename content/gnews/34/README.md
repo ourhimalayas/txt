@@ -2,29 +2,33 @@
 ---
 
 
-## 中共延长生育假超300天，就能解除人口危机？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1749278/)
+## 中共推崇的“民族英雄”张学良实为民族败类
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1749280/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-48.jpg)[图片来源](https://www.google.com/imgres?imgurl=http%3A%2F%2Fqqpublic.qpic.cn%2Fqq_public%2F0%2F0-2169489926-C4D8AD54775FA019F255F0459685A976%2F0%3Ffmt%3Djpg%26size%3D70%26h%3D600%26w%3D900%26ppv%3D1&amp;imgrefurl=https%3A%2F%2Fkuaibao.qq.com%2Fs%2F20190920A0K1Y500%3Frefer%3Dspider&amp;tbnid=8nR9a6g_ViZwBM&amp;vet=12ahUKEwjd8PTn9d_0AhWlwJcIHYPvCt8QMygIegUIARCfAQ..i&amp;docid=o1ahYHD1NwBEwM&amp;w=1500&amp;h=1000&amp;itg=1&amp;q=4%2B2%2B1%E5%AE%B6%E5%BA%AD%E7%BB%93%E6%9E%84&amp;ved=2ahUKEwjd8PTn9d_0AhWlwJcIHYPvCt8QMygIegUIARCfAQ)
-12月13日中国新闻周刊报道，北京、重庆、上海、浙江、河南等多省市陆续启动人口与计划生育条例修订，调整了与生育相关的假期。
+作者：香草山金融部 – 闲聊钱币
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
+1936年12月12日，发生了震惊中外的西安事变。主角之一张学良被广大洗脑了的普通百姓认为是民族英雄。然而郭文贵先生在12月12日他的大直播里了深刻的揭露和分析了西安事变及张学良背后鲜为人知的故事。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture1-20.jpg)
+郭先生说张学良本就是个纨绔子弟，根本没有抗过日。他和他爹张作霖既不相信共产党，也不相信国民党，只想占据东北，自立为王。张学良企图通过绑架蒋介石趁国民党最弱之时当老大。西安事变完全是张学良以个人一己之私至广大百姓于战火而不顾。
 
-其中，不少地区将原本30天的生育假延长至60天，这意味着连同法定98天产假一起，孕产期女性将可享受158天的假期。这一假期更长者，如重庆和青海，则分别可以达到178、188天，在陕西，女性生育三孩后可以享受总计350天的假期。
+郭先生还说西安事变让本来已经奄奄一息的共产党死灰复燃，进而统治中华大地七十多年。
 
-另外，此前没有育儿假的多个地区亦相继提出拟增设育儿假；江西还将男性的护理假从15天增加至30天。
+郭先生最后强调千万要注意爆料革命内部外部的打着民族幌子的人面兽心的张学良们。
 
-《中国统计年鉴2021》数据显示，2020年全国人口出生率为8.52‰，首次跌破10‰，创下了1978年来的新低；2020年结婚登记人数共计814.33万对，连续七年下降后，这一数字创下了自2003年以来的新低。
+参考来源：[中共推崇的“民族英雄”张学良实为民族败类](https://gtv.org/video/id=61b5f49556f4921401b604a9)
 
-有统计，中共国养育成本，包括房价和教育成本，已是世界上最高，延长生育假只是措施之一，治标不治本，中共独裁者已把人口红利用尽，把人口当作一门生意，不断奴役榨取新老用户的主意，只能说明们已经不到新的用户，生育率低下，绝对不是观念的问题，而是经济，环境，教育，生活等压力太大导致大量适龄人不再生育。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88-1.png)
 
-信息来源：
+编辑/校对/发稿：Hetangyuese
 
-[生育假延长超过300天，人口危机就能解除？](http://m.xilu.com/v/1000010001193304.html)
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
-
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
  
 

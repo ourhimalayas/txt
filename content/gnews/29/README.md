@@ -2,42 +2,24 @@
 ---
 
 
-## 因大不敬彭丽媛收拾掉房峰辉,李木子定马化腾和马云生死
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1749323/)
+## 中共国开发 “人源化猪”，是用于研究病毒还是制造宿主
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1749363/)
 
-**郭文贵先生：**我们的李木子小姐出国是什么？跟着爸妈出国没有一个人敢偷拍她照片的，你偷拍的结局像金正恩一样，我狗绝了你！用犬吃了你！习近平瞪一下人不一定把人吓死，如果李木子、彭丽媛要看着哪个将军说我瞪着眼看几分钟、咬咬牙，绝对是他绝对吓死。
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-17.png)
+图片来源：网络截图
 
-房峰辉第一个最惹上的人是谁？就是彭丽媛儿是吧，跟阎维文他老拿阎维文不当回事儿是吧？最后房峰辉被抓了吧？抓得很彻底吧，是吧？
+据零对冲12月12日报道，在中共病毒爆发之前的几年里，中共最愿意证明和炫耀其科学家的基因编辑能力。几年前，一位中共国科学家公布了世界上第一个基因编辑的人类婴儿，震惊了世界，因为让中共看起来很邪恶而遭到监禁。这对双胞胎女孩的遗传物质在子宫内被改变，以使她们对其父亲的艾滋病毒感染具有免疫力。
 
-人家习的女儿李木子出来，没有人很多没见过她本人，她有各种身份出席，很多傻瓜包括马化腾这么聪明一个人，一开始他并不知道这是习的女儿，人家跟他接触了几次以后，——这个人可以留着用，但是绝对要注意他跟西方的亲近。你还见马化腾出过国吗？没见他出国了吧？不再出国了吧！
+关于中共的流氓科学努力的讨论并没有出现更多，但是自从两年前中共病毒首次从武汉爆发以来，这种讨论变得更加普遍。没有人知道那些基因编辑的女孩现在在哪里，但北京显然为其最好的基因科学家找到了一个新项目。据报道，该国最大的研究机构利用世界上最重要的基因编辑技术，开发了易受人类冠状病毒株感染的变异“具有人类特点的猪”。一旦开发成功，这些猪将被用作测试对象，科学家们将测试正在开发的对抗中共病毒的新疗法，中共的喉舌报纸，《环球时报》并没有详细说明。
 
-就跟马云就是说马云这个人是有野心的，搞政治野心的，他必须被干掉啊！是吧？那很多故事我现在不好意思讲，都是我的朋友，都不知道跟李木子吃完饭了还吹牛呢，我心里话你的末日到了，我知道她是谁。
+8月发表的一份研究报告显示，中共国科学院微生物研究所的研究人员解释了科学家如何使用CRISPR（一种基因编辑工具）来移除允许猪减少人类病毒的基因保护。该项目显然得到了中共的全力支持：中科院的研究机构是世界上最大的同类组织，也是中国政府的一个正式机构。
 
-编辑整理：喜马拉雅的肉夹馍；
+《环球时报》解释了为什么要开发“人源化猪”的原因，是因为用于模拟中共病毒感染的豚鼠和一些灵长类动物的现有细胞系和动物模型无法捕捉人类生理学的关键特征，因此限制了对疫苗和药物疗效测试的准确性。
 
-视频制作：小满；
+中共研究的这种猪，既可以用于研究，也是非常好的宿主，用于解释下一波病毒的来源，这是一石二鸟。
 
-视频上传：Cindy；
-
-G-News发布：黎明之前；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]apanGalaxyII推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+新闻来源：[China Creates “Humanized Pigs” To Be Used In COVID Research](https://www.zerohedge.com/geopolitical/china-creates-humanized-pigs-be-used-covid-research)
 
  
 
