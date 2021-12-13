@@ -2,21 +2,32 @@
 ---
 
 
-## 南非总统感染中共病毒
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1749691/)
+## “HCoin To The Moon”打榜再创历史奇迹
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1749755/)
 
-#### 撰稿：彩虹
+作者：纽约香草山教育部 – 文特
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+12月11日， 郭文贵先生的新歌“HCoin To The Moon”打榜再次创造了一系列前所未有的历史奇迹：不仅登上了音乐界享有盛名的Billboard排行榜，更是一举取得了全球销量榜首的骄人成绩。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture2-8.jpg)
+该歌曲的音乐视频一上线就横扫全球，MV版歌曲上线第2天就位列美国，台湾，日本，俄罗斯，德国，法国，澳大利亚，加拿大，新加坡，澳门，新西兰, 匈牙利，泰国，柬埔寨，老挝，瑞典，菲律宾， 马来西亚，阿联酋， 意大利，芬兰，马耳他，斐济，拉脱维亚等26国的iTunes热门MV榜首。不仅从未有任何一个中国人做到如此，即便是世界顶级的知名音乐家也望尘莫及。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-20.jpg)图片来源：天空新闻台
-12月12日，《国会山报》报道，虽然之前完全接种了中共病毒疫苗，南非政府在周日的一份声明中宣布，南非总统西里尔·拉马福萨（Cyril Ramaphosa）于当日中共病毒检测结果为阳性。
+这次打榜的成功，再一次显示了新中国联邦全球战友们团结的实力以及灭共的决心！
 
-根据声明，周日早些时候，拉马福萨在开普敦的一次活动后开始“感到不适”，在当天检测出阳性后“正在接受轻度COVID-19（中共病毒）的治疗。总统（之前）已经完全接种了（中共病毒）疫苗，正在开普敦进行自我隔离，并已将下周的所有职责委托给了副总统大卫·马布扎（David Mabuza）”。
+参考链接：[“HCoin To The Moon”打榜再创历史奇迹](https://www.gettr.com/post/pjexqk732a)
 
-**新闻来源**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-[South Africa’s president tests positive for COVID-19](https://thehill.com/policy/international/585485-south-africas-president-tests-positive-for-covid-19)
+总编：飞虹
+编辑：DM
+校对/发稿：Hetangyuese
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
