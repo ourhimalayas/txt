@@ -2,10 +2,10 @@
 ---
 
 
-## 中共在面临冬奥抵制时的经典伪善
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1749733/)
+## 澳洲墨尔本爆发大规模抗议活动，成千上万人涌入街头
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1749781/)
 
-12/10/2021 天空新闻：“世界宣传专家的经典伪善奖”颁给北京：一方面，北京表示不在乎抵制冬奥会； 另一方面，它又说他们将付出代价。
+12/12/2021 澳大利亚墨尔本爆发大规模抗议活动，成千上万人涌入街头。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

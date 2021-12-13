@@ -2,46 +2,31 @@
 ---
 
 
-## 羟氯喹完全是一个安全的药品
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1749864/)
+## COVID-19 最新情报｜美国omicron感染 逾七成接种过疫苗
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1749905/)
 
-**简评：**
+**疫情關注組 / 發佈時間｜13/12/2021**
 
-拥有65年历史、用来治疗疟疾的羟氯喹在CDC的网站上有数百亿剂安全用于数亿人的纪录，婴幼儿、孕妇、体弱多病的老人和有病的人都可以安全使用。但是医药公司的顾问收了黑钱，提供了符合制药公司利益的意见。他们误导大众，在报纸和医学杂志撰文，声称羟氯喹会引起心脏病，甚至死亡。他们极力推荐的各种疫苗，风险极高，而羟氯喹完全是一种安全的药品。
-
-YouTube视频链接：
-
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
 
-[GTV视频链接](https://gtv.org/video/id=61b6a17ea68b4f4b28e72a63)
+外媒指出，omicron在美国的感染情形还没达到巅峰前，新冠确诊者、住院人数便飙升，疫情再次升温的情形包含疫苗接种率高的地区。美国新冠新病例从11月22日的95000例/单日，飙升至每日近11万9千例，住院治疗人数比11月增加了25%。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/coronavirus-data-explorer.png)美国每7日确诊的滚动平均值。来源：Our World in Data
+美国病例增长几乎来自于delta变种，最新发现的omicron尚未成为威胁美国的主要变种（指12/09撰文时）。据[CDC数据](https://www.cdc.gov/coronavirus/2019-ncov/variants/omicron-variant.html)，美国新病例增长时omicron已在至少21个州被发现，基于omicron高传染的特性，omicron将形成美国另一威胁。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截圖-2021-12-13-下午3.58.44.png)來源：CDC
+## 新英格兰地区高接种率 仍发生感染数激增
 
-**视频字幕：**
+拜登政府持续推广加强针，于12月的第一周便接种了近700万剂。VOA援引美联社统计数据，美国完全接种人口比例最高的五个州都在新英格兰地区，分别是：佛蒙特州、康涅狄格州、缅因州、罗德岛州和马萨诸塞州，新罕布什州接种率排名第十。
 
-**Dr. Harvey****：**羟氯喹已经有65年的历史，有数百亿剂安全用于数亿人的纪录，在CDC自己的网站上有，是治疗疟疾的。上面说，婴儿、哺乳期儿童、孕妇、年老体弱者和有疾病的人都可以服用。
+新英格兰地区的六个州，疫苗完全接种率从69.4%-61.5%不等。而全美国平均完全接种率为55.5%。尽管新英格兰地区的接种率高于全国平均，但本次仍成为“新病例快速增长最严重的地区之一”。
 
-**朱利安尼先生：**那么这个危险的说法是如何开始的呢？
+## CDC: 美国75% omicron病例曾接种新冠疫苗
 
-我记得在《华盛顿邮报》的头版看了一篇文章，读了感觉羟氯喹可以杀人。因为此文给我的印象是—如果你服用羟氯喹，会立刻得心脏病。
+美联社采访CDC 主任罗谢尔·瓦伦斯基 (Rochelle Walensky) 博士称，美国自12 月 1 日首次确认 omicron 变种以来，已知感染omicron的人中四分之三接种了疫苗，三分之一接种过加强针。同时期，旧金山东湾也爆发了omicron 感染，12病例中11例接种了疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-3.png)
+来源｜[VOA](https://www-voanews-com.translate.goog/a/virus-surge-hits-new-england-despite-high-vaccination-rates/6255569.html?_x_tr_sl=en&amp;_x_tr_tl=zh-TW&amp;_x_tr_hl=zh-TW&amp;_x_tr_pto=sc)、[SF](https://www.sfchronicle.com/health/article/Omicron-outbreak-from-out-of-state-wedding-tied-16685845.php?utm_campaign=premiumsfgate_breakingnews_20211208&amp;utm_source=newsletter&amp;utm_medium=email)
 
-**Dr. Harvey****：**这是那些作为医药公司顾问的医生收了钱，没有给出客观意见的结果。他们提供了符合制药公司利益的意见。心脏病学会发表了一份科学观点上完全错误的文章，说了你刚才说的话。
-
-问题是，如果你采用一个百万分之一可能发生的事件，比方说百万分之一，有一种药物可以将这种风险提高10倍。系数10对风险来说是个很大的变化，对吗？
-
-你会认为这个很危险，这是相对风险增加10倍。但是看绝对数字，现在的风险是十万分之一。那么, 十万分之一的风险大到吓人吗？答案是否定的。问题就在这儿。
-
-**朱利安尼先生：**请你来做个比较。这是当下同时存在的问题。 我们现有的这些疫苗的风险—是小于、还是等于，或是大于羟氯喹的风险？
-
-**Dr. Harvey：**奧，疫苗的风险高太多了！羟氯喹完全是一个安全的药品。
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

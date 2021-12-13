@@ -2,43 +2,30 @@
 ---
 
 
-## 逃避毒疫苗滋生新行业，替人代打一天十针
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1749688/)
+## 盖特总裁杰森·米勒反击社交媒体Parler对郭先生的不实攻击
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1749756/)
 
-雄起
+作者：银河勇气星 – 骄子
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+12月12日，社交媒体parler 总裁的妻子在欢迎川普夫人入驻Parler时发文称：川普家族没有任何可能再去盖特，是因为盖特接受了某位“中国富豪”投资的8千万美元。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture3-7.jpg)
+对此不实信息，盖特总裁杰森先生立即回应：社交媒体平台Parler是一个到处兜售用户隐私信息的平台，一些用户因此受到了无休止的骚扰，而盖特永远不会这样做。此外，盖特是由多个国际基金投资的，没有一分钱来自中国大陆。有远见的中国商人郭文贵先生在政治庇护下生活在美国，是一位自由捍卫者，他毕生致力于推翻共产党独裁统治。郭文贵先生在盖特公司没有任何财务和股份。Parler平台对郭文贵先生的这些不实恶意攻击，足以证明Parler的堕落。
 
-随着各国疫苗强制政策的持续推行，人们抵抗疫苗强制的对策也越来越多样。
+参考链接：[盖特总裁杰森·米勒反击社交媒体Parler对郭先生的不实攻击](https://gettr.com/post/pjfkxk8fd2)
 
-在新西兰，一名男子在一天内代表其他人接种疫苗多达10次。被评价为 “难以置信的自私”，并引发了一场调查。
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-据了解，这名男子曾到过几个疫苗接种中心，他的疫苗接种是有偿的。这意味着有十个人因抵制毒疫苗而选择付费让别人代打，仅仅在一天之内。
+总编：文特
+编辑：飞虹
+校对/发稿：Hetangyuese
 
-新西兰中共病毒疫苗和免疫计划的运营集团经理阿斯特里（Astrid Koornneef）说，卫生部已经意识到了这个问题，并非常认真地对待此事。
-
-而疫苗专家和副教授海伦（Helen Petousis-Harris）称这种行为是 “令人难以置信的自私”，是在利用需要钱的人。她说，没有接种疫苗的人说他们接种了，这可能会造成严重的伤害，并传播病毒。
-
-她说：”我们知道在海外也发生过接种疫苗失误的情况，比如错误地在一个小瓶中注射了整整5倍的剂量，我们知道其他疫苗也发生过错误，但没有出现长期问题。但当人们被注射更多剂量时，他们会遭受更多的发烧、疼痛和头疼。“
-
-阿斯特里说，接种疫苗剂量超过建议剂量的人应尽快寻求临床建议。
-
-“冒用他人身份并接受医疗是危险的。不准确的疫苗接种状态不仅使你处于危险之中，它同样使你的朋友、家庭和社区处于危险之中，也使现在治疗你的医疗团队在未来处于危险之中。
-
-更重要的是如果一个人以假定的身份接受疫苗接种，他们自己的个人健康记录就不会反映出他们已经接种了疫苗。这可能会影响他们今后的健康管理。
-
-笔者认为，在假定疫苗有效的前提下，这些专家的说法都是非常正确的。但关键是，这些疫苗的有效性已经被现实中的数据证伪。而且全世界范围内的疫苗都是紧急授权，并没有任何长期临床数据，又怎么能断定不会“出现长期问题”？
-
-无数科学研究已经证明，疫苗不但可以造成接种者短期内的严重不良反应甚至死亡，还有潜在的长期影响。诺贝尔奖得主, 法国病毒学家吕克.蒙塔尼耶曾表明： 我们这一代打过新冠疫苗的人会在5到10年间产生副作用， 我们的后代亦有可能受到新冠疫苗副作用的影响。
-
-这是名副其实的杀人疫苗。
-
-人们为了逃避强制疫苗，做出找人代打的选择，同样会令别人受到伤害。只要毒疫苗强制不停，伤害就不止。
-
-[新闻链接](https://www.nzherald.co.nz/nz/covid-19-delta-outbreak-man-who-took-10-vaccine-shots-in-a-day-called-unbelievably-selfish-by-vaccinologist/2ZDJLPLPM2NFG5KW5N4LEGRKWY/)
-
-审核校对：sherryok
-
-上传排版：水云间
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

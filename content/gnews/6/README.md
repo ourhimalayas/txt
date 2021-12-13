@@ -2,28 +2,33 @@
 ---
 
 
-## 英国首相约翰逊启动接种中共病毒疫苗加强针国家任务
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1749818/)
+## 中日财经爆：李书福卸任吉利新能源董事长
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1749860/)
 
-#### 撰稿：彩虹
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-132.jpg)
+[图片来源](https://www.google.com/imgres?imgurl=http%3A%2F%2Fwww.zjuce.com%2Fimages%2Fa4f95b8642f049c4af62f1d95d11ece7.jpeg&amp;imgrefurl=http%3A%2F%2Fwww.zjuce.com%2Fgeelykaocha.html&amp;tbnid=d3Dk3UFPJd32PM&amp;vet=12ahUKEwilzviRqeD0AhWiJH0KHb2IA_IQMygJegUIARCvAQ..i&amp;docid=Lkk0AKvqFsemZM&amp;w=640&amp;h=426&amp;itg=1&amp;q=%E5%90%89%E5%88%A9%E9%9B%86%E5%9B%A2&amp;ved=2ahUKEwilzviRqeD0AhWiJH0KHb2IA_IQMygJegUIARCvAQ)
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-21.jpg)图片来源：欧洲新闻
-12月12日，《国会山报》报道，周日，英国首相鲍里斯·约翰逊(Boris Johnson)加强了英国接种中共病毒疫苗加强针的举措，向所有成年人开放加强针注射，并部署军事单位建立额外的中共病毒疫苗接种点。
+12月13日据天眼查显示，近日，浙江吉利新能源商用车集团有限公司发生工商变更，李书福退出董事长职位，总经理周建群兼任董事长。根据爆料李书福是彭丽媛的妹夫。
 
-当天早些时候，英国卫生官员将中共病毒（COVID-19）警戒级别提高到了4级，因为有证据表明中共病毒变体奥米炕（Omicron）病例在英国每两到三天就翻一番。警戒级别被提高数小时后，约翰逊的预录讲话被公布发表。
+浙江吉利新能源商用车集团有限公司成立于2016年2月，注册资本5亿人民币，由浙江吉利控股集团有限公司全资持股。吉利汽车11月总销量为135869部，同比减少约10%，环比增长约22%。其中新能源汽车销量为16161部，较去年同期增长约137%并达纪录新高。
 
-约翰逊说“任何人都不应该有任何疑问，有一股奥米炕（病毒）浪潮正在到来，恐怕现在很清楚，两剂疫苗根本不足以提供我们所有人需要的保护水平。但好消息是，我们的科学家有信心，通过第三剂，即加强剂，我们都可以把我们的保护水平重新提高。”
+公告显示，公司2021年11月份出口量同比增长约11%至13065部，达到自2013年10月以来的最高月出口量水平。此外，公司中国市场总销量为122804部，较去年同期减少约11%。
 
-约翰逊宣布启动奥米炕紧急注射加强针国家任务。他说，所有有资格打加强针的成年人将能够在星期一得到注射。个人必须年满18岁，并且至少在三个月前接受过第二针疫苗。
+财报显示，今年上半年，吉利汽车实现营业收入450.3亿元人民币，同比增长22.3%；净利润24.1亿元人民币，同比增长3.84%。上半年吉利汽车总销量为63.02万辆，同比增长19%。截至2021年6月30日，吉利员工总数约为34000人，上年末为38000人。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-677.png)
+根据DT挖掘机团队发布的盖特“习近平家族： 彭丽媛”系列，李书福是彭丽媛的妹妹彭丽娟的丈夫。
 
-报道指，新的时间安排比以前的计划有所加快。原来英国卫生官员的目标是在1月底前向所有成年人开放注射中共病毒疫苗加强针。
+消息来源:
 
-约翰逊还无视基本的事实，继续忽悠未打中共病毒疫苗的英国居民，他鼓励未接种疫苗的英国居民出去打第一针，并说这将使他们“至少得到一些保护”。
+[李书福不再担任吉利新能源董事长 周建群接任](http://finance.ce.cn/stock/gsgdbd/202112/13/t20211213_37166771.shtml)
 
-**新闻来源**
+[习近平家族： 彭丽媛](https://gettr.com/post/pjghxj5ded)
 
-[UK’s Johnson pushes booster shots ahead of ‘tidal wave of omicron’](https://thehill.com/policy/international/585484-uks-johnson-pushes-booster-shots-ahead-of-tidal-wave-of-omicron)
+##### 校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
+
 
  
 
