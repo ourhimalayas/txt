@@ -15,94 +15,94 @@
 
 ---
 
-### [Hcoin To The Moon 世界各国高居榜首 新中国联邦全球灭共 诠释真、善、狠](/content/gnews/1/README.md)
+### [公务员降薪才刚刚开始](/content/gnews/1/README.md)
+ ` 银河勇气之星`
+
+### [Hcoin To The Moon 世界各国高居榜首 新中国联邦全球灭共 诠释真、善、狠](/content/gnews/2/README.md)
  ` 焦點20分`
 
-### [Hcoin To The Moon 世界各國高居榜首 新中國聯邦全球滅共 詮釋真、善、狠](/content/gnews/2/README.md)
+### [Hcoin To The Moon 世界各國高居榜首 新中國聯邦全球滅共 詮釋真、善、狠](/content/gnews/3/README.md)
  ` 焦點20分`
 
-### [秘翻在线：韩国13日起不遵守防疫通行证规定将被罚款，私营业主：太过分](/content/gnews/3/README.md)
+### [秘翻在线：韩国13日起不遵守防疫通行证规定将被罚款，私营业主：太过分](/content/gnews/4/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共内忧外患无法满足妓女心态的俄罗斯被俄抛弃是必然](/content/gnews/4/README.md)
+### [中共内忧外患无法满足妓女心态的俄罗斯被俄抛弃是必然](/content/gnews/5/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [巴西超大样本研究：伊维菌素使住院和死亡率减半](/content/gnews/5/README.md)
+### [巴西超大样本研究：伊维菌素使住院和死亡率减半](/content/gnews/6/README.md)
  ` 墨尔本雅典娜农场`
 
-### [1212文贵大直播（一）：千古罪人张学良，末路狂奔习近平](/content/gnews/6/README.md)
+### [1212文贵大直播（一）：千古罪人张学良，末路狂奔习近平](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [南京大屠杀公祭日习近平不敢露面](/content/gnews/7/README.md)
+### [南京大屠杀公祭日习近平不敢露面](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共辟谣未接种疫苗的精子涨价400%？](/content/gnews/8/README.md)
+### [中共辟谣未接种疫苗的精子涨价400%？](/content/gnews/9/README.md)
  ` 儒为`
 
-### [12/13 每日播报｜新闻简讯:福奇疫苗谎言 南非总统仍确诊中共病毒; 韩战正式结束](/content/gnews/9/README.md)
+### [12/13 每日播报｜新闻简讯:福奇疫苗谎言 南非总统仍确诊中共病毒; 韩战正式结束](/content/gnews/10/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [美国运动员应该抵制北京冬奥会吗？](/content/gnews/10/README.md)
+### [美国运动员应该抵制北京冬奥会吗？](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [英国再次上调疫情警报至4级](/content/gnews/11/README.md)
+### [英国再次上调疫情警报至4级](/content/gnews/12/README.md)
  ` 澳喜特战旅Gnews`
 
-### [由中共资助的COVID调查员曝光后被从世卫组织团队中除名](/content/gnews/12/README.md)
+### [由中共资助的COVID调查员曝光后被从世卫组织团队中除名](/content/gnews/13/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [以色列：新冠加强针要一直打](/content/gnews/13/README.md)
+### [以色列：新冠加强针要一直打](/content/gnews/14/README.md)
  ` 墨尔本雅典娜农场`
 
-### [COVID-19 最新情报｜美国omicron感染 逾七成接种过疫苗](/content/gnews/14/README.md)
+### [COVID-19 最新情报｜美国omicron感染 逾七成接种过疫苗](/content/gnews/15/README.md)
  ` 關注組`
 
-### [西媒头条 — 第129期](/content/gnews/15/README.md)
+### [西媒头条 — 第129期](/content/gnews/16/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [无论如何，不能放弃自我思考和自由意志](/content/gnews/16/README.md)
+### [无论如何，不能放弃自我思考和自由意志](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [NIH被揭露在疫情开始前与Moderna签署协议](/content/gnews/17/README.md)
+### [NIH被揭露在疫情开始前与Moderna签署协议](/content/gnews/18/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [羟氯喹完全是一个安全的药品](/content/gnews/18/README.md)
+### [羟氯喹完全是一个安全的药品](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中日财经爆：李书福卸任吉利新能源董事长](/content/gnews/19/README.md)
+### [中日财经爆：李书福卸任吉利新能源董事长](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [华盛顿特区公布第一批中共病毒变体奥米炕病例](/content/gnews/20/README.md)
+### [华盛顿特区公布第一批中共病毒变体奥米炕病例](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [爆料革命日记（五）强 子（下）](/content/gnews/21/README.md)
+### [爆料革命日记（五）强 子（下）](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [Omicron 是中共病毒的最新变体](/content/gnews/22/README.md)
+### [Omicron 是中共病毒的最新变体](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [班农专访6: 2022中期选举之后，福奇会被追责](/content/gnews/23/README.md)
+### [班农专访6: 2022中期选举之后，福奇会被追责](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [英国首相约翰逊启动接种中共病毒疫苗加强针国家任务](/content/gnews/24/README.md)
+### [英国首相约翰逊启动接种中共病毒疫苗加强针国家任务](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [新京报揭露星巴克食品安全问题为哪般？](/content/gnews/25/README.md)
+### [新京报揭露星巴克食品安全问题为哪般？](/content/gnews/26/README.md)
  ` 澳喜农场`
 
-### [新西兰正在调查声称一天打了十针疫苗的男子](/content/gnews/26/README.md)
+### [新西兰正在调查声称一天打了十针疫苗的男子](/content/gnews/27/README.md)
  ` 澳喜农场`
 
-### [巴黎市民走上街头抗议疫苗护照](/content/gnews/27/README.md)
+### [巴黎市民走上街头抗议疫苗护照](/content/gnews/28/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [澳洲墨尔本爆发大规模抗议活动，成千上万人涌入街头](/content/gnews/28/README.md)
+### [澳洲墨尔本爆发大规模抗议活动，成千上万人涌入街头](/content/gnews/29/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美国因中共在新疆的暴行决定对其实施与人权相关的制裁](/content/gnews/29/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [恒大和佳兆业的离岸债权人可能会血本无归](/content/gnews/30/README.md)
+### [美国因中共在新疆的暴行决定对其实施与人权相关的制裁](/content/gnews/30/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [中共可能将集装箱武器偷运到南美](/content/gnews/31/README.md)
