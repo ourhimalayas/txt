@@ -2,68 +2,41 @@
 ---
 
 
-## 弥天大谎 当权者提高了中共病毒死亡数据却压低了疫苗死亡数据
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1749344/)
+## 郭文贵直播摘要和音频 2021.12.12
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1749375/)
 
-据《门户专家网》作者乔·霍夫特（By Joe Hoft）2021 年 12 月 12 日报道
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image002-11.jpg)图片来自网络
-2020 年，“当权者”认为政府在报告中共病毒死亡人数方面是准确的。然后我们报告说，所有中共病毒死亡中只有 6% 没有并发症，而中共病毒是让“当权者”惊慌失措的唯一原因。
+摘要撰稿人：文俊
 
-**2020****年****8****月的报道：****CDC ****悄悄更新了中共病毒数字****——****只有**** 9,210 ****名美国人直接死于中共病毒****——****其他人有其他不同的严重疾病**
+音频提供者：左媛
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-668.png)
+### **视频链接：**
 
+[https://gtv.org/video/id=61b5f49556f4921401b604a9](https://gtv.org/video/id=61b5f49556f4921401b604a9)
 
+### 音频链接：
 
-> [SHOCK REPORT: This Week CDC Quietly Updated COVID-19 Numbers – Only 9,210 Americans Died From COVID-19 Alone – Rest Had Different Other Serious Illnesses](https://www.thegatewaypundit.com/2020/08/shock-report-week-cdc-quietly-updated-covid-19-numbers-9210-americans-died-covid-19-alone-rest-serious-illnesses/)
+### 摘要:
 
-
-
-“当权者”发现一个人分享说，美国疾病控制与预防中心（CDC）列出的所有中共病毒死亡事件，都是由中共病毒“引起”的。他们认为结案了。
-
-**2020****年9****月的报道：****我们发布了一份关于总统在推特上发布的中共病毒数据报告****——****现在民主党人、他们的媒体和事实核查人员正在抹黑我们****——****这是我们的回应**
-
-
-
-> [Last Weekend We Posted a Viral Report on COVID-19 Numbers that Was Tweeted by the President – Now Democrats, Their Media and Fact Checkers Are Smearing Us – Here’s Our Response](https://www.thegatewaypundit.com/2020/09/last-weekend-posted-report-covid-19-numbers-went-completely-viral-now-democrats-media-fact-checkers-smearing-us-response/)
-
-
-
-鼓励医院将死亡列为因中共病毒死亡，因为这样做是有动机的。
-
-**2020****年****4****月报道：****明尼苏达州参议员和医生：如果将患者列为中共病毒患者医院将获得更多报酬而如果患者使用了呼吸机将医院将获得三倍报酬**
+- 上天给我们人类与动物完全不同的区别是我们可以说话和歌唱，这是我们最本能的权利，是有性繁殖世界对上天万物表达的最本质方式，所以统治者都要控制人表达音乐的能力，而我们打破了
+- 洗脑有三招：动静（音乐）、答案（话语权）、社交媒体
+- 希拉里2024竞选美国总统
+- 美国朋友跟七哥说：他们掌握情报党内很多人想要杀掉习近平，习若被暗杀会被塑造成独裁的英雄，这会让中共被灭延后很多年，要消灭这个体制才是根本
+- 双十二西安事变，中国人最有机会走向民主，被毛泽东、张学良一帮骗子，毁掉了一切
+- 习近平女儿护照名字-李木子
+- 习近平和彭丽媛的日常都是习公主说了算，军队都是习远平说了算。中国过去10年根本没有常委，只有国家安全委员会：习远平、彭丽媛、习明泽、彭蕾、习乔乔、习安安，情报主要是习安安和英国老公拉菲，习近平的家人实际控制着中国
+- 俄罗斯派特使到中共通报了俄美沟通的结果：1、俄罗斯告诉中共 打台湾不参与2、所有中俄之间的油气协议必须兑现，不兑现就和美国一起打中共3、俄罗斯 印度 北朝鲜 巴基斯坦形成新的战略同盟 没有中共4、俄罗斯反对中共在阿富汗的事情
+- 古巴 伊朗 北朝鲜 巴基斯坦 坦桑尼亚 乌干达 尼日利亚 泰国 马来西亚 塞舌尔 尼泊尔 缅甸 都会派政府代表团冬奥会
+- 中共的经济 非常糟糕，涨价最严重的是粮食，俄罗斯的合同没有钱支付，冬奥运后，中共国失业 断供潮涌现，2022年是中共国回到1958年
+- 世界邪恶组织继续推动疫苗：美国大选后，福奇和扎克伯格 一定会进监狱
 
 
 
-> [HUGE! MN Senator and Doctor: Hospitals Get Paid More to List Patients as COVID-19 and Three Times as Much if the Patient Goes on Ventilator (VIDEO)](https://www.thegatewaypundit.com/2020/04/huge-mn-senator-doctor-hospitals-get-paid-list-patients-covid-19-three-times-much-patient-goes-ventilator-video/)
 
 
 
-现在，与疫苗相关的死亡正在发生相反的情况。西蒙·戈尔德（Simone Gold）博士在 9 月对此进行了报道。
-
-**“****如果患者在接种疫苗后**** 14 ****天内死亡，****CDC ****现在将因接种中共病毒疫苗的死亡列为未接种疫苗的死亡，****” – ****西蒙****·****戈尔德博士**
 
 
-
-> [“The CDC is Now Listing Vaccinated COVID-19 Deaths as Unvaccinated Deaths if They Die Within 14 Days of the Vaccine” – Dr. Simone Gold](https://www.thegatewaypundit.com/2021/09/cdc-now-listing-vaccinated-covid-19-deaths-unvaccinated-deaths-die-within-14-days-vaccine-dr-simone-gold/)
-
-
-
-甚至有人发现 CDC 改变了“疫苗”的定义，以帮助掩盖因疫苗死亡数量。（有数十亿美元的收入与疫苗有关。）
-
-**电子邮件显示**** CDC ****更改了****“****疫苗****”****和****“****接种疫苗****”****的定义，因为他们的实验性中共病毒疫苗没有像广告宣传的那样有效**
-
-
-
-> [Emails Reveal CDC Changed Definition of “Vaccine” and “Vaccination” Because Their Experimental COVID Shots Didn’t Work as Advertised](https://www.thegatewaypundit.com/2021/11/emails-reveal-cdc-changed-definition-vaccine-vaccination-experimental-covid-shots-didnt-work/)
-
-
-
-当权者想要以中共病毒恐吓美国时，他们将所有相关的死亡都计为中共病毒死亡，无论中共病毒是否是原因。现在有了疫苗，当权者希望美国人对接种疫苗感到安全，所以他们不计算与疫苗相关的死亡，除非患者是在接种疫苗两周或更长时间后死亡。
-
-**很明显，****“****当权者****”****正在操纵数据以提高中共病毒死亡人数****，****并压低疫苗死亡人数。**
-
-原文链接：[https://www.thegatewaypundit.com/2021/12/big-lie-powers-overcount-covid-deaths-undercount-vaccine-deaths-money-power/](https://www.thegatewaypundit.com/2021/12/big-lie-powers-overcount-covid-deaths-undercount-vaccine-deaths-money-power/)
-
-翻译：Nick｜校对：JS709｜编辑&发布：断播
+编辑发布：闪电训练
 
  
 
