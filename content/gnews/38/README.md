@@ -2,37 +2,84 @@
 ---
 
 
-## 印度总理莫迪个人推特账号被盗
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1749008/)
+## 视频| 社交媒体是共产党的核武器
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1749147/)
 
-作者：纽约香草山农场 – Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-1.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/2021-12-11T232314Z_2_LYNXMPEHBA0AV_RTROPTP_0_CLIMATE-UN_1.jpg)
-2021年12月11日，据路透社报道，印度总理办公室（PMO）在推特上表示，印度总理莫迪的个人Twitter账号”非常短暂地受到了损害”。
+## 摘自2021.12.10郭先生大直播
 
-印度总理办公室的推文称：此事已上报给推特，总理的个人推特账号@narendramodi立即得到了保护，并补充说，在该账号被泄露的短暂时期内分享的任何推文都属于无效信息。
+制作：香草山视频部
 
-目前，还暂未得知拥有7300多万关注量的莫迪个人推特账号被泄露了多长时间。
 
-推特发言人在给路透社的一份电子邮件中声明：推特在发现这一活动后立即采取了必要的措施来保护被攻击的账户。并补充称，目前调查发现为止没有任何其他账户有受到影响的迹象。
 
-2020年9月，莫迪的个人网站的推特账号@narendramodi\_in也曾发生过类似事件，当时账号发布了一系列推文要求粉丝通过加密货币向一个救济基金捐款。
+社交媒体，为啥七哥是人类上第一个说
+共产党的社交媒体是他的核武器
+没有一个人支持我的，而且成为我的副作用
+竟然有欧洲的几个国家领导人，在餐桌上说
+Miles，给你个建议啊，
+以后这话再别提，这让你很丢分
+我说咱用事实来说明
+共产党在全世界投资3万家社交媒体
+最早参与投资
+习近平家人进入科技网络，习近平还没进入北京呢
+2006年之前，习家的姐夫、家人和海外亲戚
+都在投资社交媒体
+他那时候根本不知道自己能当中国的总书记
+这是他为什么控制华为、ZTE还有中国的稀土技术
+他非常清楚
+社交媒体、社交硬件、社交必用品是人类的未来
+一：共产主义在世界上想做的第一件事就是
+世界上用最多社交媒体的人相信他
+二：散布仇恨和恐惧，是独裁最爱干的事
+左派恨右派，右派恨左派
+但你们有一样，从来不恨共产主义
+不管你恨谁，他恨你
+最后你发现左恨右，右恨左
+没人想到脑袋上有一个共产主义
+实际上最大受益者是共产主义
+你们的仇恨就是共产主义的战利品
+三：你们的工作、收入和未来，所有的希望
+要进高盛、摩根什么科学机构，都想进大机构
+你没想到，所有的科学机构被共产党一并拿下
+你逃过社交媒体，逃过第二个大学洗脑
+你再进机构，又被共产党拿下
+三道闸门，共产党全拿下
+第四道闸门，共产党还给准备着呢
+你有宗教，宗教矛盾你过，还有一关在等着你
+国家民族主义还会给你拦下来
+种族主义，所有的宗教主义又给你拦下来了
+科学宗教主义把你给灭了
+再不行，洗脑的，社交媒体洗脑的
+所有的进展和人类的文明
+是在优胜劣汰的大趋势当中
+在优胜劣汰当中，是永远伴生着邪恶统治着正义
+当人们失去宗教和信仰时
+上天会让你用上一个非常黑暗的愚蠢的迷信主义
+让你失去自己，人类今天是末法时代
+人类今天是跟科学大量进展
+和宇宙、大自然进行最大的冲突
+到底是科学代替了自然、代替了上帝
+还是自然和上帝
+还是伟大的科学只是一小部分时间内的解释
+到了大崩裂的时代
 
-参考链接：[https://www.oann.com/india-modis-personal-twitter-handle-briefly-compromised-prime-ministers-office/?utm\_source=ground.news&utm\_medium=referral](https://www.oann.com/india-modis-personal-twitter-handle-briefly-compromised-prime-ministers-office/?utm_source=ground.news&amp;utm_medium=referral)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/unknown-2.jpg)
-编辑/校对/发稿：文留
+
+
+发稿：雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/M12.jpg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-1.png)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,29 +2,38 @@
 ---
 
 
-## 中共延长生育假超300天，就能解除人口危机？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1749278/)
+## 澳大利亚首次：特斯拉将支持昆士兰州中部的电池项目
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1749309/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-48.jpg)[图片来源](https://www.google.com/imgres?imgurl=http%3A%2F%2Fqqpublic.qpic.cn%2Fqq_public%2F0%2F0-2169489926-C4D8AD54775FA019F255F0459685A976%2F0%3Ffmt%3Djpg%26size%3D70%26h%3D600%26w%3D900%26ppv%3D1&amp;imgrefurl=https%3A%2F%2Fkuaibao.qq.com%2Fs%2F20190920A0K1Y500%3Frefer%3Dspider&amp;tbnid=8nR9a6g_ViZwBM&amp;vet=12ahUKEwjd8PTn9d_0AhWlwJcIHYPvCt8QMygIegUIARCfAQ..i&amp;docid=o1ahYHD1NwBEwM&amp;w=1500&amp;h=1000&amp;itg=1&amp;q=4%2B2%2B1%E5%AE%B6%E5%BA%AD%E7%BB%93%E6%9E%84&amp;ved=2ahUKEwjd8PTn9d_0AhWlwJcIHYPvCt8QMygIegUIARCfAQ)
-12月13日中国新闻周刊报道，北京、重庆、上海、浙江、河南等多省市陆续启动人口与计划生育条例修订，调整了与生育相关的假期。
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-其中，不少地区将原本30天的生育假延长至60天，这意味着连同法定98天产假一起，孕产期女性将可享受158天的假期。这一假期更长者，如重庆和青海，则分别可以达到178、188天，在陕西，女性生育三孩后可以享受总计350天的假期。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Untitled-16.png)图片来源：TESLA
 
-另外，此前没有育儿假的多个地区亦相继提出拟增设育儿假；江西还将男性的护理假从15天增加至30天。
 
-《中国统计年鉴2021》数据显示，2020年全国人口出生率为8.52‰，首次跌破10‰，创下了1978年来的新低；2020年结婚登记人数共计814.33万对，连续七年下降后，这一数字创下了自2003年以来的新低。
+#### 编译 ：小红帽
 
-有统计，中共国养育成本，包括房价和教育成本，已是世界上最高，延长生育假只是措施之一，治标不治本，中共独裁者已把人口红利用尽，把人口当作一门生意，不断奴役榨取新老用户的主意，只能说明们已经不到新的用户，生育率低下，绝对不是观念的问题，而是经济，环境，教育，生活等压力太大导致大量适龄人不再生育。
+**据****ABS****新闻****12****月****13****日报道，美国公司特斯拉（****Tesla****）将目光投向昆士兰州中部的一个能源项目，并将为澳大利亚提供长期的财务支持。这在澳大利亚还是第一次。**
 
-信息来源：
+博尔德科姆（Bouldercombe）电池项目背后的公司Genex表示，Genex还与埃隆·马斯克（Elon Musk）的特斯拉签订了合同，为其提供50兆瓦的大型电池，并将使用其算法驱动的招标系统来出售电力。
 
-[生育假延长超过300天，人口危机就能解除？](http://m.xilu.com/v/1000010001193304.html)
+博尔德科姆电池项目位于罗克汉普顿以南23公里处。该项目的土地已经落实，并正在进行电网连接。
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+Genex公司表示，该项目将为4，167个家庭供电，每年可抵消22，655吨的碳排放量。该项目可能是昆士兰州首批独立的大型电池储能系统之一。
 
+Genex首席执行官詹姆斯`哈丁（James Harding）表示，特斯拉电池将位于其博尔德科姆站点的边界围栏内，有40个大型容器，看起来类似于集装箱。该电池将有两个小时的电力存储容量。
+
+特斯拉兆瓦级锂离子电池系统将从其位于美国内华达州的工厂进行全面组装，测试和发货。Genex公司预计电池将在2023年全面投入使用。
+
+新闻来源：[Elon Musk’s Tesla to back central Queensland battery project in Australian-first collaboration – ABC News](https://www.abc.net.au/news/2021-12-13/tesla-australian-first-partnership-for-central-queensland/100690526)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

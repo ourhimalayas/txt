@@ -2,36 +2,84 @@
 ---
 
 
-## 菲律宾央行正在调查BDO银行遭黑客而丢失资金事件
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1749376/)
+## 视频| 新中国联邦会记住每一位对战友“枪口抬高一寸”的人
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1749436/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+## 摘自2021.12.12郭先生大直播
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/shutterstock-bdo-card-ls.jpg)图片来源：rappler
+制作：香草山视频部
 
 
-#### 编译 ：小红帽
 
-**据彭博社12月12日报道，菲律宾央行正在调查有关该国资产最大的银行BDO Unibank Inc.的一些客户的投诉。该公司的一些客户因在线欺诈而蒙受损失。该欺诈犯罪分子将资金汇入到菲律宾联合银行（UnionBank）的账户。**
+凡是在国内枪口抬高1寸的
+记住 我们未来的躺平币
+是以百倍的给他们留着
+喜币是十倍给他留着
+一定会的
+只要战友作证当初某警察 某检察官
+某人给我枪口抬高1寸我获得自由
+一定会一个都不少
+而是十倍和百倍的给予
+我们在设计这个币的时候专门有战友
+比如说QMAY这个同学被抓了 被喝茶了
+结果没被虐待啊 没被“掏裤裆”啊 没被打
+然后呢问完以后叫他回去了 没动家人
+她知道这个警官的名字 知道什么情况
+她作证了
+QMAY说 你看我这是我的同学
+我们就马上给这个
+这个不管这个警察他接不接受
+我们都会在他名下记下这个币
+即使暂时不要最终他一定会要的
+比如说我们国内某个医院的人
+救我们战友的家人
+我们的战友就说了
+我没啥给你的 给啥你也不要
+说这个我给你点儿喜币
+这个医生啊真不知道啥叫喜币
+说 啥叫喜币？给他说了半天
+这医生是说 我也不敢要我也不敢动
+我现在也不需要钱
+他说我有一样事儿 你可以给我孩子
+他给他孩子发信息
+孩子说我知道这喜币 现在多火多火
+孩子在日本留学
+结果这个战友给我说
+七哥 我能不能把这个给我给这个医生的孩子?
+我说马上支持 马上给
+我们已经给完了啊 已经给完了
+这个给了这位医生是4000个币
+我又送他1000个币 5000个币给他
+结果这个医生就把这个咱们战友的家人
+照顾好的不得了
+安全地回了家 我不能再具体地说了
+说这些事情每天都在发生
+只是你们不知道
+你们能听到七哥说的和七哥做的
+就像干掉奥运会一样
+那是那个非常表面的一点点
+每时每刻都在发生
+一定告诉所有国内的战友们
+被“枪口抬高1寸”的人的名字
+一定要记住我们一个恩人也不能忘了 谢谢
 
-“我们正在与BDO银行以及UBP银行就这一事件进行密切协调，以确保采取补救措施，包括偿还受影响的消费者，”央行行长本杰明·迪奥克诺 (Benjamin Diokno)周日在一份声明中表示。自本周初以来，监管机构一直在关注通过社交媒体发布的激增投诉。
 
-BDO银行在一份声明中表示，BDO意识到一种“复杂的欺诈技术”已经影响了其部分客户。“我们已经实施了额外的安全控制措施，以阻止进一步的尝试并继续保护银行凭据，”银行行长内斯托尔·谭（Nestor Tan）告诉菲律宾每日问询者，这一事件“影响了一个有10年历史的网络服务。该服务将被逐步淘汰”，应该在明年初会推出替代品。
 
-联合银行冻结了几个从BDO账户接收资金的账户，总裁埃德温·包蒂斯塔（Edwin Bautista）说，“我们将毫不犹豫地对使用其帐户进行犯罪活动的个人采取法律行动”。
+发稿：雪梨
 
-马尼拉公报引用了一个不明身份的消息来源称，其中一个联合银行账户在12月11日使用500万比索（99，280美元）的被盗资金购买了比特币。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/M12.jpg)
 
-新闻来源：[Philippine Central Bank Probes Hacking Complaints at Banks – Bloomberg](https://www.bloomberg.com/news/articles/2021-12-12/philippines-union-bank-freezes-some-accounts-on-hacking-report)
+**更多资讯，更多关注**
 
-***发布：小红帽***
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

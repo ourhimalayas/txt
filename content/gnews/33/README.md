@@ -2,71 +2,38 @@
 ---
 
 
-## 视频| 共产党金融房地产灾难是对全世界的合法洗劫（下）
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1749129/)
+## 中国所有音乐界还要导演要么跪舔彭丽媛活着要么被消灭
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1749197/)
 
-## 摘自2021.12.10郭先生大直播
+**郭文贵先生：**所以说你说的太对了，包括音乐，彭丽媛允许任何音乐，你见过彭丽媛上来以后还有名演员吗？还有音乐界吗？还有歌唱界吗？一切都没了。当年的那个埃及电影——妖后那电影，妖后喜欢的只有她有，妖后不喜欢的天下没有，记得吗？旁边那巫师告诉他，你不喜欢的都不会存在，你喜欢的只有你有，这就是这叫规则。
 
-制作：香草山视频部
+你还有什么歌？还有什么音乐平台？2011年的时候，我告诉所有的音乐界还有导演，我说你记住要不然你跪倒在彭丽媛门下，舔她的脚趾头，你能活下去，要么你记住你就被消灭，现在能在中国活着的全部都是舔她的脚趾头，一定是这结局，大家看的都是表面现象。
 
+编辑整理：喜马拉雅的肉夹馍；
 
+视频制作：Cindy；
 
-第二 从国内还钱肯定不合法
-你不可能结汇
-一定是所谓的叫做结构性的搭建
-一定是假的 这就形成什么？
-官商勾结 官金勾结
-严格讲没有一笔交易合法
-所以说太平洋这帮孙子
-单伟建还有这个美国基金 他都是骗子
-中国的外汇结汇制度和进来外商投资制度
-都不可能让你进来 如实申报制度又不可以
-房地产是从2007年都被设为
-不允许外商投资的范围
-你怎么进来的呢？大家想过这个问题吗？
-那许家印还给这外国的钱
-是用什么名义还的呢？
-共产党不给你较真 较真这都是杀头的罪
-这全都是骗局 美国也知道
-共产党一把抓一分不用还你 你还有罪
-想还你 还给你 这叫支持外商开放国门
-所以说今天你看到这个金融的时候
-你看到数据的时候 你要知道
-了解共产党的真相
-和所谓投到中国的房地产经济
-你看到这些全都是假象
-核心 金融领域的所有的
-不可告知的 不可查的隐匿的数据
-那才是那些隐匿的东西最大 对西方的威胁
-还有西方金融机构 别光说中国金融机构
-西方的金融机构 它不能合法地投到中国去呀
-它有西方的金融管理机构呀
-西方的金融机构
-所谓的金融产品 买了对冲基金
-西方的养老保险 西方的退伍保险 保险基金
-大量的投入到这些基金 过桥借
-单伟建 所有的美国的几个华人 退休基金
-这都是合法的小偷
-所以说告诉你 共产党的地产和经济灾难
-是对全世界一场的合法洗劫
+视频上传：Cindy；
 
+G-News发布：黎明之前；
 
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
 
-发稿：雪梨
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/M12.jpg)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-**更多资讯，更多关注**
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
