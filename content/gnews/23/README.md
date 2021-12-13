@@ -2,29 +2,20 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月13日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1751152/)
+## 七哥说—第35期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1751210/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-3.jpg)
+**制作：Inzaghi**
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-1-5.png)
-文章仅代表作者本人观点，与Gnews无关
+天怒人怨即将使中共灭亡！唤醒会凝聚更多的力量。
+不抛弃，不放弃的正是你心中那一份对信念的坚定。
 
-视频参看：[2021.12.13早GTV新闻访谈](https://gtv.org/video/id=61b74a4d56f4921401b6eb8b)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2021-12-13_9.06.33.png)
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2021-12-13_8.24.28.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/calendar.jpeg)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+*发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-2.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

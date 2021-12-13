@@ -2,43 +2,22 @@
 ---
 
 
-## 喜马拉雅币一周分析与总结（12月6日-12月12日）
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1751045/)
+## 美国德克萨斯州查获大量毒品和枪支
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1751112/)
 
-作者：纽约香草山金融部  – ILOVE战神
+编译撰稿：文明(添草灭共)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/04-image02-1.jpg)
+据【福克斯新闻】12月9日报道，美国德克萨斯州[公共安全部]当天宣布，在其最近执行的名为“孤星行动”任务中，查获了大量非法由境外输入的芬太尼毒品。 
 
+据悉，在该项于今年3月开始执行的，以打击该州人口贩卖及毒品交易等犯罪行为的任务中，警方不仅查获了886磅，足以致2亿人丧命的芬太尼以及大量非法枪支，还同时逮捕并遣返了约17万非法移民。 
 
+此前，[美国疾病控制中心]公布数据显示，该国在4月份之前的12个月内出现了超过10万例摄毒死亡案件，较上年同比增加了29%，而突破历史新高。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+校对编辑：硫酸羟氯喹64
 
+发稿：苦尽甜来 (文來）
 
-
-过去一周，喜马拉雅币价格趋于稳定，在44美元上下小幅浮动，平均日交易量约6万喜币。相对于其他数字货币市场暴涨暴跌的行情，喜币上市以来的涨势与稳定创造了数字货币的奇迹。喜币上市以来总交易量突破2150万枚 ，占今年总发行量的仅约2.15%。目前大型机构投资者尚未进场，市场交易量较低，价格仍被严重低估。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/6-6.png)
-据郭文贵先生本周在直播中透露，喜支付将最晚于2022年1月启用，喜币将在未来1-3年进入期货市场与大宗商品的流通市场，喜联储在未来将发行世界上最先进的大额加密金币。另外，躺平币将于2022年6月4日上线，配合喜币成为新中国联邦灭共成功的量化体现。相对于其他加密货币侧重于中心化与去中心化的技术讨论，喜马拉雅币和躺平币的核心在于实现正义良心、安全健康、信仰自由的正道主义金融系统。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.3-3.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+[原文链接](https://www.foxnews.com/us/texas-seized-enough-fentanyl-kill-200-million-people-year)
 
  
 

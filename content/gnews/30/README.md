@@ -2,17 +2,14 @@
 ---
 
 
-## 美国情报部门透露 ，国内很多人想刺杀习近平
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1751020/)
+## 2021年12月12日文贵大直播简报
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1751097/)
 
-栏目作者：焦点20分
+![](https://assets.gnews.org/wp-content/uploads/2021/12/文贵大直播12.12.1-1.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/文贵大直播12.12.2.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/文贵大直播12.12.3.png)
+【参考链接】[https://gtv.org/broadcast/watch/61b0b18fbbd75f62e532ced9](https://gtv.org/video/id=61b5f49556f4921401b604a9)
 
-据 #美国 最高 #情报部门 透露 ，国内很多人想 #刺杀习近平 ！ 但目前 #习近平 如有任何闪失 ，将对 #灭共 非常不利。一直以来， #中共邪恶体制 才是问题的根本。杀了习，#中国共产党 依然存在。 习的野心和自大，搞文革2.0，打台湾，挑战美国等等，将促使西方世界集体 #加速灭共 。
-
-**视频来源: 2021年12月12日郭先生大直播视频**
-**视频制作: 文星光**
-**文案: 梦田、文星光**
-**上传: 零点**
+撰稿：回响 / Ermat / 卡拉马佐夫姐姐 / Naughty（文行） / 柯亭
+制作：艾伦
 
  
 
