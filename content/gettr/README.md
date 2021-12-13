@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/13/2021 10:29 PM (UTC)`
+
+12/12/2021 Miles Guo: Princess Xi is really something - many Chinese businesspersons have dined with her by bragging too much without knowing her real identity; the CCP regime in the past decade has been ruled by Xi Jinping and Peng Liyuan family via the so-called National Security Committee which has bypassed the CCP’s Party Standing Committee and the State administration; Xi’s foreign intelligence matters are in the hands of Xi’s sister family<br/><br/>12/12/2021 文贵直播：习公主可不是一般人，很多企业家和她吃过饭吹过牛，但竟不知她就是习公主；过去十年的中共国基本被习彭通过所谓的国家安全委员会架空了常委会和行政机构，习的海外情报网由习的姐姐家族掌控<br/>
+![img](https://media.gettr.com/group31/getter/2021/12/13/22/5e74d3e0-920e-22ab-6f4f-ce6dcc341ea4/out.jpg)
+
+---
+
 `@miles 12/13/2021 10:23 PM (UTC)`
 
 12/12/2021 Miles Guo: What will happen if Xi Jinping is assassinated? That will be so tragic for China. Assasination of Xi (Jinping) will not help to take down the CCP, also at least 50% of the Chinese people being heavily brainwashed may “respect” him as a national hero. We wish Xi could survive till the day the Chinese Communist Party is taken down<br/><br/>12/12/2021 文贵直播：现在如果习近平被暗杀会怎么样？那将是中国的悲剧，习被暗杀非但不能灭了邪恶的共产党，至少中国会有一半儿被洗脑的人尊他为民族英雄，我们希望习活下去，直到中共被消灭<br/>
@@ -142,13 +149,6 @@ Dec 11，2021 Mr. Miles Guo's “HCoin To The Moon ” has once again created a 
 `@miles 12/11/2021 4:51 PM (UTC)`
 
 12月11日， 郭文贵先生的新歌“HCoin To The Moon”打榜再次创造了一系列前所未有的历史奇迹：不仅登上了音乐界享有盛名的Billboard排行榜，更是一举取得了全球销量榜首的骄人成绩。而该歌曲的音乐视频一上线就横扫全球，雄霸将近三十个国家的iTunes MV榜首。不仅从未有任何一个中国人做到如此，即便是世界顶级的知名音乐家也是望尘莫及。这次打榜的成功再一次显示了新中国联邦全球战友们团结的实力以及灭共的决心！🎉🎉🎉🎉🎉🎉🙏🙏🙏🙏🙏🙏🙏<br/><br/>MV版Hcoin To the Moon上线第2天位列25国iTunes热门MV榜首🥇！🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港，美国，台湾，日本，俄罗斯，德国，法国，澳大利亚，加拿大，新加坡，澳门，新西兰, 匈牙利，泰国，柬埔寨，老挝，瑞典，菲律宾， 马来西亚，阿联酋， 意大利，芬兰，马耳他，斐济，拉脱维亚的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/1743729/
-
----
-
-`@miles 12/11/2021 4:38 PM (UTC)`
-
-12/10/2021 Miles Guo: Social media is more lethal than nukes! Dictators control people by brainwashing them and spreading hatred via social media, buying off universities, scientists, and major institutions, provoking religious conflicts, nationalistic and ethnic conflicts, and using the science cult to make people get the poisonous COVID jabs; we are witnessing the Degenerate Age of Dharma, and it’s the stupid ones who will die<br/><br/>12/10/2021 文贵直播：社交媒体胜过核武器！独裁者通过社交媒体洗脑、散播仇恨，收买大学、科学家和大机构，制造宗教矛盾、国家和民族冲突，用科学宗教主义让人打毒疫苗；现在是末法时代，死的是愚蠢的人<br/>
-![img](https://media.gettr.com/group16/getter/2021/12/11/16/c368733f-5d59-5eae-c0d5-559b0a12ed53/out.jpg)
 
 ---
 

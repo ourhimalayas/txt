@@ -2,46 +2,36 @@
 ---
 
 
-## 巴西一法官不顾总统反对 规定到访游客必须提供疫苗接种证明
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1750999/)
+## 美国务卿布林肯即将访问东南亚三国 加强反共联盟
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1751050/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+#### **撰稿：**日本东京方舟农场 子辰
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/B252AF61-5150-4FFA-84E0-22737C357B79.jpeg)（图片来自《大纪元》）
 
+据《大纪元》12月13日报道，美国国务卿布林肯将首次出访东南亚的泰国、印尼和马来西亚三国，寻求和加强与东南亚地区的经济与安全合作，以进一步在印太地区建立更为广泛的反共统一联盟。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+据悉，布林肯将于周一（12月13日）抵达印度尼西亚首都雅加达，周二前往马来西亚访问，周三前往泰国，并于16日结束访问行程。
 
+这是自拜登政府上任以来首次高级外交官的东南亚之行。而布林肯也是继商务部长雷蒙多（Gina Raimondo）、国务院东亚暨太平洋事务助理国务卿康达（Daniel Kritenbrink）之后，第三位走访东南亚的美国高级官员。
 
+另据《路透社》报道，美国于亚洲地区的最高外交官丹尼尔‧克里滕布林克（Daniel Kritenbrink）在之前的简报会上表示，布林肯将把拜登政府与东南亚国家联盟（ASEAN）的关系，提升到“前所未有”的水平。
 
-12月11日，巴西最高法院法官路易斯·罗伯托·巴罗佐裁定，所有抵达巴西的旅客必须出示新冠疫苗接种证明。法官表示，只有当旅行者来自没有疫苗的国家或个人因健康原因无法接种疫苗时，才能免除疫苗接种证明的要求。 巴罗佐的裁决必须在下周经过最高法院所有11名法官审查后才能生效。
+克里滕布林克称，双方合作的重点是，面临中共的“欺凌”，如何加强地区安全基础设施。同时，双方还将讨论拜登总统的“印太经济框架”愿景。
 
-巴西联邦政府曾在12月7日宣布，抵达巴西的旅客不必出示疫苗护照，但他们需要接受为期五天的隔离。 巴西总统博索纳罗认为，那些支持使用疫苗护照的人想要限制民众的自由。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.2-4.jpg)
-参考链接：
-[Brazil justice rules vaccine passport mandatory for visitors](https://m.washingtontimes.com/news/2021/dec/11/brazil-justice-rules-vaccine-passport-mandatory-fo/?utm_source=ground.news&amp;utm_medium=referral)
+《大纪元》的报道指出，拜登政府认为，美国参与东南亚的金融建设，可以在该地区推动反共力量。此外，在美企将制造业从中共国搬迁出来之后，急需在东南亚寻找新的落脚点。为了保护脆弱的商品供应链以及改善融资，布林肯可能会在这些方面寻找合作机会。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+该报道还分析认为，由于东南亚地区的战略重要性，加上美国在该地区推动“自由开放的印太地区”，使得这一地区已成为美中之间的战略战场。
 
-总编/编辑：飞虹
-校对/发稿：为真不破20
+*参考链接： [布林肯将访问东南亚三国 加强反共联盟](https://www.epochtimes.com/gb/21/12/12/n13432697.htm)*
 
-**更多资讯，更多关注**
+* * *
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+*素材采编：子辰*
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+*编辑：青衣青青*
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+*发布：miumiu*
 
  
 

@@ -2,46 +2,31 @@
 ---
 
 
-## 灭共者：自挂东南枝
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1751665/)
+## 七哥谈“踩红线”（2021-12-08摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1751767/)
 
-**出品：纽约香草山设计部**
+文编：Hima
+听写：叮叮
+视频：七哥
 
+来源：郭先生2021-12-08直播10：18：40 摘录
 
+大家一定要记住，尊重各驻地国的法律，还有一个冠状病毒现在正在全球蔓延，聚会的问题，法规的问题。永远记住，咱不要踩红线。我们就要让驻外大使馆让他踩红线，让他买通地方关系BGY，像当年梁冠军一样，是吧？到我楼下抗议，现在全家都得被调查，所有资产都得被没收。我们就让这些驻外大使馆要给习近平，王岐山献忠心，给杨洁篪。杨洁篪这王八蛋得搁上去啊，这两天杨洁篪要出面了啊。从双规状态，这个病恢复状态，吃的是伊维菌素，吃的青蒿素，现在要恢复，就这两天要出场了啊，要出场了，我们得到确切情报。杨洁篪一定放上去。要让他们外交部，情报部他们要有什么冲动。向习王表忠心，杀害我们，派杀手。蓝金黄当地政府陷害我们，像对海东家，颖妹家去摔瓶子砸酒的吓唬你们，派杀手出来，还有想办法遣返我们什么战友，给我们战友制造假刑事案子文件，我们都要做好最坏的准备。就让他踩红线，就让他在海外暴露。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
+**关注我们**
 
+Discord 账号
 
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
+Gettr 账号
 
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-21-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/2-1213.jpg)
-
-
-**编辑/发稿：小鹿**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-2.png)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
-
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
