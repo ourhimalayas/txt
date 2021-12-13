@@ -15,119 +15,119 @@
 
 ---
 
-### [澳大利亚寻找 AdBlue 供应](/content/gnews/1/README.md)
- ` 澳喜农场`
-
-### [澳韩两国签署近7亿美元防务协议](/content/gnews/2/README.md)
- ` 澳喜特战旅Gnews`
-
-### [当俄罗斯开始讲人权](/content/gnews/3/README.md)
- ` 骄子`
-
-### [【玫瑰看新闻】 每日快讯 2021年12月12日](/content/gnews/4/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [一些音乐故事（二）](/content/gnews/5/README.md)
- ` 骄子`
-
-### [1212文贵先生大直播（二）：俄罗斯改弦易辙，共和党卷土重来](/content/gnews/6/README.md)
+### [美CDC：大多数的美国omicron病例是完全接种疫苗的人](/content/gnews/1/README.md)
  ` 墨尔本雅典娜农场`
 
-### [币圈新闻动态：喜币（HCN）价格目前在44.516 HDO](/content/gnews/7/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [币安被新加坡踢走，转而与印尼最抠门银行合作](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [公务员降薪才刚刚开始](/content/gnews/8/README.md)
- ` 银河勇气之星`
+### [【粤语配音】2021年12月10日：俄中两国彻底“分手”](/content/gnews/3/README.md)
+ ` MOS香港部`
 
-### [7·24系列——钻石大王戴比尔斯De Beers](/content/gnews/9/README.md)
- ` 墨尔本雅典娜农场`
+### [民主党人预计拜登总统的“重建美好”方案将被推迟到2022年](/content/gnews/4/README.md)
+ ` 首尔天池农场`
 
-### [Hcoin To The Moon 世界各国高居榜首 新中国联邦全球灭共 诠释真、善、狠](/content/gnews/10/README.md)
- ` 焦點20分`
-
-### [Hcoin To The Moon 世界各國高居榜首 新中國聯邦全球滅共 詮釋真、善、狠](/content/gnews/11/README.md)
- ` 焦點20分`
-
-### [秘翻在线：韩国13日起不遵守防疫通行证规定将被罚款，私营业主：太过分](/content/gnews/12/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [中共内忧外患无法满足妓女心态的俄罗斯被俄抛弃是必然](/content/gnews/13/README.md)
+### [用病毒和疫苗打垮和挑战世界的习太阳被俄罗斯致命重击](/content/gnews/5/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [巴西超大样本研究：伊维菌素使住院和死亡率减半](/content/gnews/14/README.md)
- ` 墨尔本雅典娜农场`
-
-### [1212文贵大直播（一）：千古罪人张学良，末路狂奔习近平](/content/gnews/15/README.md)
- ` 墨尔本雅典娜农场`
-
-### [南京大屠杀公祭日习近平不敢露面](/content/gnews/16/README.md)
+### [作秀还是感到危机了？ 习近平罕问“那么粮食怎么办？”](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共辟谣未接种疫苗的精子涨价400%？](/content/gnews/17/README.md)
- ` 儒为`
+### [以色列说covid疫苗加强针现在将是无休止的](/content/gnews/7/README.md)
+ ` 温哥华圆成农场🇨🇦`
 
-### [12/13 每日播报｜新闻简讯:福奇疫苗谎言 南非总统仍确诊中共病毒; 韩战正式结束](/content/gnews/18/README.md)
+### [澳大利亚寻找 AdBlue 供应](/content/gnews/8/README.md)
+ ` 澳喜农场`
+
+### [澳韩两国签署近7亿美元防务协议](/content/gnews/9/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [当俄罗斯开始讲人权](/content/gnews/10/README.md)
+ ` 骄子`
+
+### [【玫瑰看新闻】 每日快讯 2021年12月12日](/content/gnews/11/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [一些音乐故事（二）](/content/gnews/12/README.md)
+ ` 骄子`
+
+### [1212文贵先生大直播（二）：俄罗斯改弦易辙，共和党卷土重来](/content/gnews/13/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [币圈新闻动态：喜币（HCN）价格目前在44.516 HDO](/content/gnews/14/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [公务员降薪才刚刚开始](/content/gnews/15/README.md)
+ ` 银河勇气之星`
+
+### [7·24系列——钻石大王戴比尔斯De Beers](/content/gnews/16/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [Hcoin To The Moon 世界各国高居榜首 新中国联邦全球灭共 诠释真、善、狠](/content/gnews/17/README.md)
+ ` 焦點20分`
+
+### [Hcoin To The Moon 世界各國高居榜首 新中國聯邦全球滅共 詮釋真、善、狠](/content/gnews/18/README.md)
+ ` 焦點20分`
+
+### [秘翻在线：韩国13日起不遵守防疫通行证规定将被罚款，私营业主：太过分](/content/gnews/19/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [中共内忧外患无法满足妓女心态的俄罗斯被俄抛弃是必然](/content/gnews/20/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [12/13 每日播报｜新闻简讯:福奇疫苗谎言 南非总统仍确诊中共病毒; 韩战正式结束](/content/gnews/21/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [美国运动员应该抵制北京冬奥会吗？](/content/gnews/19/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [COVID-19 最新情报｜美国omicron感染 逾七成接种过疫苗](/content/gnews/20/README.md)
+### [COVID-19 最新情报｜美国omicron感染 逾七成接种过疫苗](/content/gnews/22/README.md)
  ` 關注組`
 
-### [西媒头条 — 第129期](/content/gnews/21/README.md)
+### [西媒头条 — 第129期](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [无论如何，不能放弃自我思考和自由意志](/content/gnews/22/README.md)
+### [无论如何，不能放弃自我思考和自由意志](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [NIH被揭露在疫情开始前与Moderna签署协议](/content/gnews/23/README.md)
+### [NIH被揭露在疫情开始前与Moderna签署协议](/content/gnews/25/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [羟氯喹完全是一个安全的药品](/content/gnews/24/README.md)
+### [羟氯喹完全是一个安全的药品](/content/gnews/26/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中日财经爆：李书福卸任吉利新能源董事长](/content/gnews/25/README.md)
+### [中日财经爆：李书福卸任吉利新能源董事长](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [华盛顿特区公布第一批中共病毒变体奥米炕病例](/content/gnews/26/README.md)
+### [华盛顿特区公布第一批中共病毒变体奥米炕病例](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [Omicron 是中共病毒的最新变体](/content/gnews/27/README.md)
+### [Omicron 是中共病毒的最新变体](/content/gnews/29/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [班农专访6: 2022中期选举之后，福奇会被追责](/content/gnews/28/README.md)
+### [班农专访6: 2022中期选举之后，福奇会被追责](/content/gnews/30/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [英国首相约翰逊启动接种中共病毒疫苗加强针国家任务](/content/gnews/29/README.md)
+### [英国首相约翰逊启动接种中共病毒疫苗加强针国家任务](/content/gnews/31/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [巴黎市民走上街头抗议疫苗护照](/content/gnews/30/README.md)
+### [巴黎市民走上街头抗议疫苗护照](/content/gnews/32/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [澳洲墨尔本爆发大规模抗议活动，成千上万人涌入街头](/content/gnews/31/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中共可能将集装箱武器偷运到南美](/content/gnews/32/README.md)
+### [中共可能将集装箱武器偷运到南美](/content/gnews/33/README.md)
  ` GTV新闻访谈`
 
-### [G7外长峰会再次聚焦中共，呼吁各国采取共同行动](/content/gnews/33/README.md)
+### [G7外长峰会再次聚焦中共，呼吁各国采取共同行动](/content/gnews/34/README.md)
  ` GTV新闻访谈`
 
-### [前美国参议员呼吁美国企业从北京冬奥会撤资](/content/gnews/34/README.md)
+### [前美国参议员呼吁美国企业从北京冬奥会撤资](/content/gnews/35/README.md)
  ` GTV新闻访谈`
 
-### [盖特总裁杰森·米勒反击社交媒体Parler对郭先生的不实攻击](/content/gnews/35/README.md)
+### [盖特总裁杰森·米勒反击社交媒体Parler对郭先生的不实攻击](/content/gnews/36/README.md)
  ` GTV新闻访谈`
 
-### [“HCoin To The Moon”打榜再创历史奇迹](/content/gnews/36/README.md)
+### [“HCoin To The Moon”打榜再创历史奇迹](/content/gnews/37/README.md)
  ` GTV新闻访谈`
 
-### [疫苗灾情｜48小时内又多两名足球运动员接种疫苗后发生呼吸困难](/content/gnews/37/README.md)
+### [疫苗灾情｜48小时内又多两名足球运动员接种疫苗后发生呼吸困难](/content/gnews/38/README.md)
  ` G&#124;News TAIWAN`
-
-### [南非总统感染中共病毒](/content/gnews/38/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [秘翻在线：贪官用一死了之来保护财产在中共体制内行不通了！](/content/gnews/39/README.md)
  ` 秘密翻譯組G-Translators`

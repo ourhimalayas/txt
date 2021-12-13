@@ -2,27 +2,25 @@
 ---
 
 
-## G7外长峰会再次聚焦中共，呼吁各国采取共同行动
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1749759/)
+## 中共可能将集装箱武器偷运到南美
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1749760/)
 
-作者：日本方舟农场 – Andy5
+作者：纽约香草山农场 – 蓝天大海
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-12月11日，G7外长峰会在英国利物浦召开，中共已成为各国口中的战略难题。
+据国外媒体12月11日报道，军事分析人士对中共悄悄发展的集装箱武器能力敲响了警钟。
 
-作为轮值主席国代表的英国外长表示，西方会与盟国团结一致，对抗威权主义，尤其是要关注俄罗斯与中共。而在本次讨论过程中，俄罗斯在短暂被作为焦点后，其余时间，各国外长非常激烈地讨论了与中共相关的议题。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture5-1.jpg)
-外长们还讨论了香港局势、新疆问题、台湾和平的重要性，以及支持立陶宛的必要性。其中日本新任外相林芳正强调了中共正在试图私自改变东海、南中国海的现状，并要求中共为其在香港新疆人权问题上承担责任。
+北京零壹科技空间公司的宣传视频显示，他们将火箭用集装箱伪装起来，通过货船或波音747货运航班，部署到世界各地。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture5-2.jpg)
+美国太平洋舰队前情报局长詹姆斯·法内尔上尉表示，集装箱式火箭发射器显然是用于军事用途的。中共可能会通过伪装的集装箱将核导弹、运载火箭、甚至太空武器偷运到南美港口。国际评估与战略中心亚洲军事事务高级研究员里克·费舍尔透露，未来潜在的洲际弹道导弹可能隐藏在中共控制的巴拿马港口或与中共结盟的委内瑞拉港口，在那里可以威胁到美国全境。
 
-同时有官员称，虽然不想被视为反中共俱乐部，但希望各国能在对中共问题上采取共同行动。
+中共利用“一带一路”项目在全世界收购和租赁港口扩大其影响力，而且善于利用“军民融合”项目伪装其扩张军事霸权的野心。
 
-参考链接：
-1. [G7外长峰会再次聚焦中共，呼吁各国采取共同行动](https://www.cna.com.tw/news/firstnews/202112110228.aspx)
-2. [G7外长峰会再次聚焦中共，呼吁各国采取共同行动](https://www.reuters.com/world/china/chinas-xi-russias-putin-dominate-g7-2021-12-12/%203.%20https://www.fnn.jp/articles/-/283947%204.%20https://www3.nhk.or.jp/news/html/20211212/k10013385031000.html)
+参考链接：[中共可能将集装箱武器偷运到南美](https://www.thesun.co.uk/news/16963561/china-smuggle-nuclear-missiles-venezuela/)
 
 ![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-总编：文特
-编辑：文特
+总编：文真
+编辑：DM
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
