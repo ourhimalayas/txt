@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/13/2021 10:07 PM (UTC)`
+
+12/12/2021 Miles Guo: After the CCP was “dumped” by Russia, it asked the Russians how to restore the relationship; Xi Jinping believes that human rights are not suitable for China, while Russia is going to talk to the CCP by raising human rights issues; the fake Twitter account posing as Xi Jinping’s daughter has been showing off the wealth and opposing corruption at the same time; the end of the alliance of the CCP and Russia is absolutely beneficial to the Whistleblowers’ Movement<br/><br/>12/12/2021 文贵直播：中共被俄罗斯甩了还问要如何挽回；习认为人权不适合中国，但俄却要跟中共讲人权；假的习近平女儿推特号一边炫富一边反对腐败；中俄玩完对爆料革命绝对有利<br/>
+![img](https://media.gettr.com/group30/getter/2021/12/13/22/7bb7d496-345e-f38f-4d4e-311fbd8a369b/out.jpg)
+
+---
+
 `@miles 12/13/2021 2:23 PM (UTC)`
 
 12月13号：尊敬的战友们好，你们健身了吗？传播C C P病毒疫苗解药的真相了吗？一切都已经开始了！
@@ -142,13 +149,6 @@ Dec 11，2021 Mr. Miles Guo's “HCoin To The Moon ” has once again created a 
 
 12/10/2021 Miles Guo: Xi Jinping originally wanted to take the opportunity of the Winter Olympics during which leaders of various nations will pay him a visit to worship him such that he can become the world leader, and he planned to use the DCEP to take down the SWIFT, the U.S. dollar, and invade Taiwan after the Winter Olympics is over, and later it would carve up the world. But the Whistleblowers’ Movement said in 2019 the CCP would not be able to hold the Winter Olympics, why were we able to do so?<br/><br/>12/10/2021文贵直播：习近平本想借冬奥会万邦来朝的机会当世界老大，用数字人民币干掉SWIFT和美元，开完冬奥会就打台湾、然后对世界进行瓜分，但爆料革命在2019年就说出了中共开不成冬奥会，为什么？<br/>
 ![img](https://media.gettr.com/group16/getter/2021/12/11/13/f17ff701-f281-4acd-ded6-02417e83bad3/out.jpg)
-
----
-
-`@miles 12/11/2021 5:44 AM (UTC)`
-
-12/10/2021 Miles Guo: The Whistleblowers’ Movement has dedicated to pushing the boycotts of the 2022 Beijing Winter Olympics since 2019 and has completely smashed the CCP’s dreams - to obfuscate the origin of COVID and shift the blame to others by holding the Winter Olympics, after which they would invade Taiwan and pass the economic disasters caused by the collapse of the real estate market to the West to launch the DCEP and get rid of the US dollar<br/><br/>12/10/2021 文贵直播：爆料革命自2019年开始运作抵制北京冬奥会，已彻底击碎了中共的美梦 - 借举办冬奥会将病毒来源模糊化、去共化，冬奥会后打台湾，将中共房地产经济爆雷引向西方，实现人民币数字化、货币去美国化<br/>
-![img](https://media.gettr.com/group22/getter/2021/12/11/05/db2fc550-ae05-ff0e-8383-16674c7ff0b1/out.jpg)
 
 ---
 
