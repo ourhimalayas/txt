@@ -2,24 +2,39 @@
 ---
 
 
-## 疫情蔓延使行业“老大“关闭300家门店
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1749009/)
+## 中国所有音乐界还要导演要么跪舔彭丽媛活着要么被消灭
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1749197/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-665.png)[图片来源](https://gnews.org/wp-admin/post-new.php?lang=zh-hans#imgrc=Yl4-HV4HhgmFTM)
-12月12日封面新闻报道，海底捞北京、上海多家门店暂停营业，宣布年底闭店300家，今年11月份，海底捞曾发布公告称，决定将于今年12月31日前逐步关停300家左右经营未达预期门店，四川海底捞餐饮股份有限公司发布公告称，将于2021年12月31日前逐步关停300家左右经营未达预期门店。
+**郭文贵先生：**所以说你说的太对了，包括音乐，彭丽媛允许任何音乐，你见过彭丽媛上来以后还有名演员吗？还有音乐界吗？还有歌唱界吗？一切都没了。当年的那个埃及电影——妖后那电影，妖后喜欢的只有她有，妖后不喜欢的天下没有，记得吗？旁边那巫师告诉他，你不喜欢的都不会存在，你喜欢的只有你有，这就是这叫规则。
 
-海底捞成立于1994年，是一家以经营川味火锅为主的连锁品牌，2018年5月17日，海底捞在港交所递交上市申请，2021年，《财富》中国500强排行榜，排名360位。
+你还有什么歌？还有什么音乐平台？2011年的时候，我告诉所有的音乐界还有导演，我说你记住要不然你跪倒在彭丽媛门下，舔她的脚趾头，你能活下去，要么你记住你就被消灭，现在能在中国活着的全部都是舔她的脚趾头，一定是这结局，大家看的都是表面现象。
 
-作为中共国行业界老大的海底捞，此前还曾被曝出武汉、长沙、重庆、昆明等地多家门店也处于暂停营业状态。2021年中期报告显示，海底捞新开门店310家，总店数现达1597家。在减掉即将关停的约300家之后，海底捞门店总数仍有1300家左右。关闭300家门店约等于减少了20%的门店数量。
+编辑整理：喜马拉雅的肉夹馍；
 
-各地的海底捞门关闭营业，或与疫情蔓延防控有关系，更与中共内斗相关。
+视频制作：Cindy；
 
-消息来源：[北京、上海多家门店暂停营业，宣布年底闭店300家](https://my.mbd.baidu.com/r/xSTkw8AaB2?f=cp&amp;rs=1705362890&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=26a1d69422ced4c3)
+视频上传：Cindy；
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
+G-News发布：黎明之前；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

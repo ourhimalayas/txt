@@ -2,38 +2,78 @@
 ---
 
 
-## DC大中华时事：中共宣传“稳”成2022年中国经济关键词
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1748912/)
+## 议员兰斯·古登： 中共国 是个专制的共产主义国家，并残酷对待自己的国民
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1749031/)
 
-*编辑：西北风 / 作图：*信正
+议员兰斯·古登： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 是个专制的共产主义国家，并残酷对待自己的国民。 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 是自由人民的繁荣兴旺的民主国家。 美国必须始终支持台湾人民！Flag of United StatesFlag of Taiwan
 
-![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/ScreenShot-2021-08-01-at-17.25.09@2x.png)
 
-#   墙国妄语每日驳
 
-### 12.12.2021
+> China is an authoritarian communist nation that brutalizes its own people.
+> 
+> Taiwan is a thriving democracy with free people.
+> 
+> America must ALWAYS stand with the people of Taiwan! 🇺🇸🇹🇼
+> — Lance Gooden (@Lancegooden) [December 12, 2021](https://twitter.com/Lancegooden/status/1469838950915362817?ref_src=twsrc%5Etfw)
 
-[美媒：加密货币又曝巨额窃案 黑客盗取近2亿美元\_参考消息网 (cankaoxiaoxi.com)](http://m.cankaoxiaoxi.com/finance/20211207/2462175.shtml)
 
-***简评：***货币进化到现在是信用货币时代，现在信用货币时代货币超发速度越来越快，自然通货膨胀越来越快，经济金融危机也越来越频繁，各国政府应对经济金融危机的措施唯一的手段只是超发货币，这又更加加重加快更大经济金融危机的爆发，如此己是恶性循环。现有货币体系显然己到发展临界点不得不去做改革。数字区块链货币也是在这一背景下应用而生。如果我们参照历史上的规律，比如国家开始由一点（氏族）、一片（部落）、一面（部落联盟）、一线（国家）终归于一统，一个核心。世界各国宗教最终由多神教发展到一神教，这是历史大方向。这就是学习点历史的好处。现在世界各国货币林立，借助数字化时代，数字区块链货币将也最终是统一林立的货币最佳选择，世界货币也将是终归一统，这己是再明显不过的历史大趋势。我们只有站在这个历史高度去看和理解我们新中国联邦的喜币才能更好的理解喜币未来的价值，比特币，以太币等加密货币我们可以做为参考，那也只是未来数字货币时代的偶露一下峥嵘罢了，它远远不能代表现在的喜币和未来喜币的价值。
 
-### 12.12.2021
+参议员泰德·克鲁兹： [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 不再需要审查我们的朋友台湾。 为什么？ 因为拜登政府替他们把事干了。【转推称：这太疯狂了。白宫在民主国家峰会期间切断了台湾数字部长的视频。因为Audrey Tang的幻灯片显示台湾的颜色与中共国不同。】
 
-[外媒述评：“稳”成2022年中国经济关键词\_参考消息网 (cankaoxiaoxi.com)](http://m.cankaoxiaoxi.com/china/20211212/2462748.shtml)
 
-***简评：***要理解中共国新闻媒体透露出来的背后真实信息，一要靠直觉，二要靠逻辑，三要靠历史史实，否则你只能被中共洗脑，洗到最后就像死读书一样成了僵化的死脑。中共说稳成2002年经济关键词，靠直觉告诉我们你要反着听那就是不稳，那中共经济不稳到什么程度，靠逻辑，新中囯联邦持续几年分析实事验证和报道我们明白为什么中共经济不稳，靠事实，我们每一个海外华人都有亲朋好友或是呆在国内百姓现在己是切肤之痛感受到到中共经济下滑的速度和程度。结合三点求证，中共经济真是不行了。
 
-### 12.12.2021
+> The Chinese Communist Party no longer needs to censor our friend Taiwan. 
+> 
+> Why?
+> 
+> The Biden admin does it for them. 🤡🤡🤡 [https://t.co/z3473OOJAa](https://t.co/z3473OOJAa)
+> — Ted Cruz (@tedcruz) [December 13, 2021](https://twitter.com/tedcruz/status/1470215155304837122?ref_src=twsrc%5Etfw)
 
-[英报社论：引渡阿桑奇暴露美“伪民主”本质\_参考消息网 (cankaoxiaoxi.com)](http://m.cankaoxiaoxi.com/column/20211212/2462736.shtml)
 
-***简评：***阿桑奇过去曾经藏匿到香港希望能够得到中共的保护，但实事中共不敢得罪美国收留阿桑奇，阿桑奇不得不转道到了欧洲，阿桑奇实事是美国人的英雄，他通过维基解密揭露美国黑暗面，但美国终归是民主法制为基础的社会，即使美国暗势力渗透到政府通过行政力要引渡回国，但这么多年在民主法制社会这些暗势力想要得逞还是遥遥无期，反看中共即使你是获得诺贝尔奖的如刘晓波不符合中共的政治正确，会让他活着继续开口讲话吗？中共的宣传除了歪曲和欺骗己没有任何法律道德底线，这个样的政权不灭真没了天理。
 
-#   港台资讯
-![](https://media.discordapp.net/attachments/858887785507323904/919418176620593163/DC_12.11-2.jpg?width=1040&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/919418177505611806/DC_12.11-1.jpg?width=1040&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/919418220249751592/DC_12.11-3.jpg?width=1040&amp;height=586)
-*编辑：*西北风
-*作图：信正
-发布：文顾*
+前国务卿迈克·蓬佩奥： 这些奥运会将在 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 举行的事实，是对国际奥委会和全球企业不愿直面 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 提出的挑战的毁灭性陈述。 【附蓬佩奥接受福克斯新闻玛丽亚的采访视频】
+
+
+
+> The fact that these Olympics are going to take place in China is a devastating statement about the International Olympic Committee and global businesses’ unwillingness to confront the challenges the CCP presents. [https://t.co/ubPx8B3tI9](https://t.co/ubPx8B3tI9)
+> — Mike Pompeo (@mikepompeo) [December 12, 2021](https://twitter.com/mikepompeo/status/1470119717939691526?ref_src=twsrc%5Etfw)
+
+
+
+参议员瑞克·斯科特: [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 在过去的 20 年里，每一天都在撒谎和破坏规则。 世贸组织[@WTO](https://twitter.com/wto) 已经变成了它的傀儡，仍然将其归类为“发展中国家”。 如果拜登想要保护美国的利益，他将会要求进行真正的变革，追究这个种族灭绝政权的责任。 【转WTO 推文：今天是中共国加入世贸组织20周年。】
+
+
+
+> Communist China has spent every day of the last 20 years lying & breaking rules. The [@WTO](https://twitter.com/wto?ref_src=twsrc%5Etfw) has turned into its puppet & still classifies it as a “developing country.”
+> 
+> If Biden wants to protect U.S. interests, he’ll demand real change that holds this genocidal regime accountable. [https://t.co/i7lTrha6TQ](https://t.co/i7lTrha6TQ)
+> — Rick Scott (@SenRickScott) [December 11, 2021](https://twitter.com/SenRickScott/status/1469746219819876353?ref_src=twsrc%5Etfw)
+
+
+
+参议员泰德·克鲁兹： 民主党拒绝反抗 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)。 可耻的是，全体民主党人，除了其中一个，都投票反对了我的修正案，旨在禁止资助从 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 使用奴工的地方进口电动车。 民主党更加关注他们的绿色议程。
+
+
+
+> Democrats refuse to stand up to China.
+>  
+> Shamefully, all but one Democrat voted against my amendment to ban funding for the import of EVs from where the CCP uses slave labor.
+>  
+> Democrats care more about their Green agenda. [pic.twitter.com/yCmhUYtKhN](https://t.co/yCmhUYtKhN)
+> — Senator Ted Cruz (@SenTedCruz) [December 11, 2021](https://twitter.com/SenTedCruz/status/1469498863815999491?ref_src=twsrc%5Etfw)
+
+
+
+美国国会及行政当局中国委员会： 随着 2022 年冬奥会的临近，中共国政府加大了对人权律师和维权人士的拘留并使之噤声的力度。 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 操纵法律以为政府和自己的利益服务。 [#奥运囚徒](https://twitter.com/hashtag/%E5%A5%A5%E8%BF%90%E5%9B%9A%E5%BE%92?src=hashtag_click) [#OlympicPrisoner](https://twitter.com/hashtag/OlympicPrisoner?src=hashtag_click)
+
+
+
+> As the 2022 Winter Olympics approaches, the Chinese government has stepped up its ongoing campaign to detain and silence human rights lawyers and rights defenders. The Chinese Communist Party manipulates the law to serve the interests of the gov’t and itself. [#OlympicPrisoner](https://twitter.com/hashtag/OlympicPrisoner?src=hash&amp;ref_src=twsrc%5Etfw)
+> — China Commission (@CECCgov) [December 10, 2021](https://twitter.com/CECCgov/status/1469382665648365569?ref_src=twsrc%5Etfw)
+
+
+
+
 
  
 

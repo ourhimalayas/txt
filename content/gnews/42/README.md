@@ -2,20 +2,30 @@
 ---
 
 
-## 秘翻在线: 布林肯将访问东南亚三国，加强反共联盟
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1748422/)
+## 7家公司因信息披露违规被立案，*ST实达重整受挫
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1748721/)
 
-撰稿：西枫westca
+![](https://assets.gnews.org/wp-content/uploads/2021/12/28fbe49fd92626d07cbd0db694b0e0dc.jpg.jpg)7家公司因信息披露违规被立案，\*ST实达重整受挫 网络图片
+据第一财经资讯12月12日报道，正处于重整关键期的\*ST实达10日公告称，因涉嫌信息披露违法违规，公司收到中共国证监会的《立案告知书》。
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/12/unnamed-21.jpg)图片来源：路透社
-据路透社12月12日报道，美国国务卿布林肯于周一启程开启他的首次东南亚之旅。他将访问印度尼西亚、马来西亚和泰国，寻求与东南亚地区的经济和安全合作，并在印太地区建立更广泛的反对中共的统一联盟。
+截至12月11日，总共有74家A股上市公司被证监会立案调查，其中47家涉嫌信息披露违法违规。12月以来，已有7家上市公司因涉嫌信披被立案调查。需要指出的是，这不是\*ST澄星首次被查。
 
-东南亚在地理上是美国推动其“自由开放的印太地区”的核心，已成为美国和中共国之间的战略战场。 中共声称拥有南中国海的大部分地区，而这是连接该地区的重要贸易路线。同时对自治的台湾施加军事和政治压力日益加重。 路透社报导，布林肯将把拜登政府与东盟的关系，提升到“前所未有”的水平。拜登政府认为美国参与东南亚的金融建设，可以在该地区推动反共力量。 双方合作的重点是，面临中共的“欺凌”，如何加强地区安全基础设施，并会讨论对印太经济框架的愿景。
+信息披露？中共国的信息有不披露的吗？全部都在政府的监管之下，中共国从来就没有企业和个人隐私。
 
-随着中共对外扩张野心的增加，鼓吹武力统台。东南亚的站位将有很重要的作用。希望此次美国高官对该地区的访问能起到积极地、巩固统一反共联盟的作用。
+新闻参考链接：[https://c.m.163.com/news/a/GR22B4IV0519DDQ2.html?spss=newsapp](https://c.m.163.com/news/a/GR22B4IV0519DDQ2.html?spss=newsapp)
 
-**新闻来源：**[Blinken heads to Southeast Asia to deepen cooperation on China pushback (msn.com)](https://www.msn.com/en-gb/news/world/blinken-heads-to-southeast-asia-to-deepen-cooperation-on-china-pushback/ar-AARJeLI?ocid=BingNewsSearch)
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 
