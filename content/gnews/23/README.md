@@ -2,42 +2,36 @@
 ---
 
 
-## 因大不敬彭丽媛收拾掉房峰辉,李木子定马化腾和马云生死
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1749323/)
+## 菲律宾央行正在调查BDO银行遭黑客而丢失资金事件
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1749376/)
 
-**郭文贵先生：**我们的李木子小姐出国是什么？跟着爸妈出国没有一个人敢偷拍她照片的，你偷拍的结局像金正恩一样，我狗绝了你！用犬吃了你！习近平瞪一下人不一定把人吓死，如果李木子、彭丽媛要看着哪个将军说我瞪着眼看几分钟、咬咬牙，绝对是他绝对吓死。
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-房峰辉第一个最惹上的人是谁？就是彭丽媛儿是吧，跟阎维文他老拿阎维文不当回事儿是吧？最后房峰辉被抓了吧？抓得很彻底吧，是吧？
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/shutterstock-bdo-card-ls.jpg)图片来源：rappler
 
-人家习的女儿李木子出来，没有人很多没见过她本人，她有各种身份出席，很多傻瓜包括马化腾这么聪明一个人，一开始他并不知道这是习的女儿，人家跟他接触了几次以后，——这个人可以留着用，但是绝对要注意他跟西方的亲近。你还见马化腾出过国吗？没见他出国了吧？不再出国了吧！
 
-就跟马云就是说马云这个人是有野心的，搞政治野心的，他必须被干掉啊！是吧？那很多故事我现在不好意思讲，都是我的朋友，都不知道跟李木子吃完饭了还吹牛呢，我心里话你的末日到了，我知道她是谁。
+#### 编译 ：小红帽
 
-编辑整理：喜马拉雅的肉夹馍；
+**据彭博社12月12日报道，菲律宾央行正在调查有关该国资产最大的银行BDO Unibank Inc.的一些客户的投诉。该公司的一些客户因在线欺诈而蒙受损失。该欺诈犯罪分子将资金汇入到菲律宾联合银行（UnionBank）的账户。**
 
-视频制作：小满；
+“我们正在与BDO银行以及UBP银行就这一事件进行密切协调，以确保采取补救措施，包括偿还受影响的消费者，”央行行长本杰明·迪奥克诺 (Benjamin Diokno)周日在一份声明中表示。自本周初以来，监管机构一直在关注通过社交媒体发布的激增投诉。
 
-视频上传：Cindy；
+BDO银行在一份声明中表示，BDO意识到一种“复杂的欺诈技术”已经影响了其部分客户。“我们已经实施了额外的安全控制措施，以阻止进一步的尝试并继续保护银行凭据，”银行行长内斯托尔·谭（Nestor Tan）告诉菲律宾每日问询者，这一事件“影响了一个有10年历史的网络服务。该服务将被逐步淘汰”，应该在明年初会推出替代品。
 
-G-News发布：黎明之前；
+联合银行冻结了几个从BDO账户接收资金的账户，总裁埃德温·包蒂斯塔（Edwin Bautista）说，“我们将毫不犹豫地对使用其帐户进行犯罪活动的个人采取法律行动”。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
+马尼拉公报引用了一个不明身份的消息来源称，其中一个联合银行账户在12月11日使用500万比索（99，280美元）的被盗资金购买了比特币。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+新闻来源：[Philippine Central Bank Probes Hacking Complaints at Banks – Bloomberg](https://www.bloomberg.com/news/articles/2021-12-12/philippines-union-bank-freezes-some-accounts-on-hacking-report)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+***发布：小红帽***
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]apanGalaxyII推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

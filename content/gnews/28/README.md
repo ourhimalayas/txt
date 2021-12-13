@@ -2,24 +2,68 @@
 ---
 
 
-## 中共的亚洲计划
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1749281/)
+## 弥天大谎 当权者提高了中共病毒死亡数据却压低了疫苗死亡数据
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1749344/)
 
-现在共产党现在干什么? 叫非洲化、中东化、亚州化，不去美洲市场，找到芯片合作商。联合日本所谓的科技亚州化。
+据《门户专家网》作者乔·霍夫特（By Joe Hoft）2021 年 12 月 12 日报道
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image002-11.jpg)图片来自网络
+2020 年，“当权者”认为政府在报告中共病毒死亡人数方面是准确的。然后我们报告说，所有中共病毒死亡中只有 6% 没有并发症，而中共病毒是让“当权者”惊慌失措的唯一原因。
 
-**【郭先生直播摘要】**** 2021.12.10 ****中共****的亚洲计划**
+**2020****年****8****月的报道：****CDC ****悄悄更新了中共病毒数字****——****只有**** 9,210 ****名美国人直接死于中共病毒****——****其他人有其他不同的严重疾病**
 
-**郭先生：**
 
-现在我告诉你, 现在共产党现在干什么? 想把这个华为手机ZTE 叫非洲化，中东化亚州化。 我不去美洲市场。它要干两件事，找到芯片合作商叫革新，阿布扎比最大的芯片生产商，要给它提供芯片。第二要跟日本，联合日本所谓的科技亚州化。说咱们要玩一套标准，包括数字人民币数字日元。咱们一起玩，这是第二。
 
-第三玩了一个什么，叫亚洲零贸易交易化，就是易货贸易，现代的用数字人民币来提现。由印度的手工产品，巴基斯坦，包括越南这些国家，甚至邀请俄罗斯一起玩。七哥要干的一件事情一定会让共产党从所有的亚洲所有贸易数字化，和共产党想在世界上想搞得共产党的这一套所有的东西，我彻底给它打灭。
+> [SHOCK REPORT: This Week CDC Quietly Updated COVID-19 Numbers – Only 9,210 Americans Died From COVID-19 Alone – Rest Had Different Other Serious Illnesses](https://www.thegatewaypundit.com/2020/08/shock-report-week-cdc-quietly-updated-covid-19-numbers-9210-americans-died-covid-19-alone-rest-serious-illnesses/)
 
-我一定把共产党把它按在马桶上，让它喝自己的屎，喝死它。你们走着看，等着有一天黑客有啥文件公布的时候，你们就会明白新中国联邦干了什么事情。这个世界上记住，干死萨达姆卡扎菲的，萨达姆到英国去杀他的部长。卡扎菲支持恐怖主义，炸掉美国飞机。萨达姆也尝试炸飞机，南斯拉夫当时挑战美国也要炸飞机，挑战美国的核心利益。
 
-伊朗几次被搞，就是因为要和恐怖分子搞在一起，跟共产党站在一起。你再想想当年的苏联，美国现在已经完全感受到了的威胁，用美国帮助我们建国防的哥们说的话，他说Miles你一定要相信我，过去二十年我只干了一件事，我今天到这个位置上就是因为我二十年啥也没干。我甚至不记得谁当总统，但是我只记得我有一个使命，消灭中国共产党，消灭伊朗政府，消灭沙特政府。这一刻不是说这么简单的，现在能对新中国联邦说 Miles，你们就是来自我们想要的中国人的部分，我们最担心的就是没有你们这样的中国人，现在我们看到了你们，我们每天都在看你们的行动。你就是我们想要的中国人，天时地利人和。
 
-视频剪辑：北方信使 | 听写：雨山溪桥客 |翻译：Arthur |校对：烟波浩淼 |视频制作+字幕：刀锋舞者|编辑&发表：断播
+“当权者”发现一个人分享说，美国疾病控制与预防中心（CDC）列出的所有中共病毒死亡事件，都是由中共病毒“引起”的。他们认为结案了。
+
+**2020****年9****月的报道：****我们发布了一份关于总统在推特上发布的中共病毒数据报告****——****现在民主党人、他们的媒体和事实核查人员正在抹黑我们****——****这是我们的回应**
+
+
+
+> [Last Weekend We Posted a Viral Report on COVID-19 Numbers that Was Tweeted by the President – Now Democrats, Their Media and Fact Checkers Are Smearing Us – Here’s Our Response](https://www.thegatewaypundit.com/2020/09/last-weekend-posted-report-covid-19-numbers-went-completely-viral-now-democrats-media-fact-checkers-smearing-us-response/)
+
+
+
+鼓励医院将死亡列为因中共病毒死亡，因为这样做是有动机的。
+
+**2020****年****4****月报道：****明尼苏达州参议员和医生：如果将患者列为中共病毒患者医院将获得更多报酬而如果患者使用了呼吸机将医院将获得三倍报酬**
+
+
+
+> [HUGE! MN Senator and Doctor: Hospitals Get Paid More to List Patients as COVID-19 and Three Times as Much if the Patient Goes on Ventilator (VIDEO)](https://www.thegatewaypundit.com/2020/04/huge-mn-senator-doctor-hospitals-get-paid-list-patients-covid-19-three-times-much-patient-goes-ventilator-video/)
+
+
+
+现在，与疫苗相关的死亡正在发生相反的情况。西蒙·戈尔德（Simone Gold）博士在 9 月对此进行了报道。
+
+**“****如果患者在接种疫苗后**** 14 ****天内死亡，****CDC ****现在将因接种中共病毒疫苗的死亡列为未接种疫苗的死亡，****” – ****西蒙****·****戈尔德博士**
+
+
+
+> [“The CDC is Now Listing Vaccinated COVID-19 Deaths as Unvaccinated Deaths if They Die Within 14 Days of the Vaccine” – Dr. Simone Gold](https://www.thegatewaypundit.com/2021/09/cdc-now-listing-vaccinated-covid-19-deaths-unvaccinated-deaths-die-within-14-days-vaccine-dr-simone-gold/)
+
+
+
+甚至有人发现 CDC 改变了“疫苗”的定义，以帮助掩盖因疫苗死亡数量。（有数十亿美元的收入与疫苗有关。）
+
+**电子邮件显示**** CDC ****更改了****“****疫苗****”****和****“****接种疫苗****”****的定义，因为他们的实验性中共病毒疫苗没有像广告宣传的那样有效**
+
+
+
+> [Emails Reveal CDC Changed Definition of “Vaccine” and “Vaccination” Because Their Experimental COVID Shots Didn’t Work as Advertised](https://www.thegatewaypundit.com/2021/11/emails-reveal-cdc-changed-definition-vaccine-vaccination-experimental-covid-shots-didnt-work/)
+
+
+
+当权者想要以中共病毒恐吓美国时，他们将所有相关的死亡都计为中共病毒死亡，无论中共病毒是否是原因。现在有了疫苗，当权者希望美国人对接种疫苗感到安全，所以他们不计算与疫苗相关的死亡，除非患者是在接种疫苗两周或更长时间后死亡。
+
+**很明显，****“****当权者****”****正在操纵数据以提高中共病毒死亡人数****，****并压低疫苗死亡人数。**
+
+原文链接：[https://www.thegatewaypundit.com/2021/12/big-lie-powers-overcount-covid-deaths-undercount-vaccine-deaths-money-power/](https://www.thegatewaypundit.com/2021/12/big-lie-powers-overcount-covid-deaths-undercount-vaccine-deaths-money-power/)
+
+翻译：Nick｜校对：JS709｜编辑&发布：断播
 
  
 
