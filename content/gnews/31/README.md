@@ -2,24 +2,36 @@
 ---
 
 
-## 2021.12.12文贵爆料：坚决反对党内各方杀掉习近平 灭共后习自然灭亡
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1749305/)
+## 菲律宾央行正在调查BDO银行遭黑客而丢失资金事件
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1749376/)
 
-撰稿：Naughty（文行）
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-653.png)图片来源：GTV & GETTR
-郭文贵先生在2021年12月12日的大直播中提到，美国情报界人士征求他对中共国内有多方势力想杀死习近平的看法，郭先生明确表示，坚决反对杀掉习。郭先生深入分析了以下原因。
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-在独裁统治的体系里，作为首脑被干掉的事情会不时地发生。像萨达姆，乌干达的阿明，卡扎菲，斯大林，赫鲁晓夫，毛泽东、刘少奇无不如此。尤其在共产党体系内，这是你死我活的关系，是没有选择必须要做的事情，是这个体系必然的规律。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/shutterstock-bdo-card-ls.jpg)图片来源：rappler
 
-郭先生说如果现在干掉习，会使这场人类灾难延续更多年。因为只要习被任何人杀掉，习就成为了共产党的英雄，甚至会成为一半愚蠢的被洗脑中国人的英雄，这是一点都不用怀疑的。而且这一半人会誓死保护习近平今天的习太阳思想，这是一个社会关系学历史学的一个必然结果。如果把习变成了这种人物，那就真的成了中国的悲剧，成了我们灭共事业的重大挫折。我们应该把这个体制消灭，习自然而然就灭掉了。
 
-郭先生强调，让习活下去还有一个重要原因，现在只有习能帮助爆料革命完成关键的想法：打台湾，在内部杀土豪，党内清党，垄断思想，灭掉宗教，共享财富。最关键的是他要挑战美国，这让美国更坚定的和爆料革命站在一起。
+#### 编译 ：小红帽
 
-因此郭先生表示坚决反对杀掉习近平，要让他继续活下去，直到把共产党消灭为止。
+**据彭博社12月12日报道，菲律宾央行正在调查有关该国资产最大的银行BDO Unibank Inc.的一些客户的投诉。该公司的一些客户因在线欺诈而蒙受损失。该欺诈犯罪分子将资金汇入到菲律宾联合银行（UnionBank）的账户。**
 
-参考链接：[https://gtv.org/video/id=61b5f49556f4921401b604a9](https://gtv.org/video/id=61b5f49556f4921401b604a9)
+“我们正在与BDO银行以及UBP银行就这一事件进行密切协调，以确保采取补救措施，包括偿还受影响的消费者，”央行行长本杰明·迪奥克诺 (Benjamin Diokno)周日在一份声明中表示。自本周初以来，监管机构一直在关注通过社交媒体发布的激增投诉。
 
-校对发布：Shifter
+BDO银行在一份声明中表示，BDO意识到一种“复杂的欺诈技术”已经影响了其部分客户。“我们已经实施了额外的安全控制措施，以阻止进一步的尝试并继续保护银行凭据，”银行行长内斯托尔·谭（Nestor Tan）告诉菲律宾每日问询者，这一事件“影响了一个有10年历史的网络服务。该服务将被逐步淘汰”，应该在明年初会推出替代品。
+
+联合银行冻结了几个从BDO账户接收资金的账户，总裁埃德温·包蒂斯塔（Edwin Bautista）说，“我们将毫不犹豫地对使用其帐户进行犯罪活动的个人采取法律行动”。
+
+马尼拉公报引用了一个不明身份的消息来源称，其中一个联合银行账户在12月11日使用500万比索（99，280美元）的被盗资金购买了比特币。
+
+新闻来源：[Philippine Central Bank Probes Hacking Complaints at Banks – Bloomberg](https://www.bloomberg.com/news/articles/2021-12-12/philippines-union-bank-freezes-some-accounts-on-hacking-report)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

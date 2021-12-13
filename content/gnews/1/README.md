@@ -2,60 +2,33 @@
 ---
 
 
-## 国际货币基金组织提出对加密货币行业进行全球监管
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1749667/)
+## 疫苗灾情｜48小时内又多两名足球运动员接种疫苗后发生呼吸困难
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1749708/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+**撰文/ 疫情关注组｜发布日期/ 13/12/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup）](https://gettr.com/user/mightygroup%EF%BC%89)**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/shutterstock-bdo-card-ls-1.jpg)
+在过去的 48小时内，本周末（12月11～12日）又有两名足球运动员在比赛过程中因突发严重胸痛和呼吸困难而中途离场治疗。
+
+周六，曼联客场对阵诺维奇，比赛进行到1:0 时，曼联队员，后卫维克多·林德洛夫（Victor Lindelof）突然按住自己的胸膛并跪下，有队友察觉，并跑向林德洛夫询问情况，林德洛夫指着自己的胸口表示“呼吸困难”，随后医务人员跑到球场上，将他带离赛场救治。
+
+曼联主帅拉尔夫·朗尼克（Ralf Rangnick）赛后证实：“林德洛夫突发呼吸困难，持续了大约 10 分钟，他的心率显示高于正常水平，这让人十分震惊，他本人亦不知所措。”
+
+林德洛夫的情况令队友，守门员大卫·德赫亚（David De Gea）联起了自己国家队队员阿奎罗（Sergio Aguero）的遭遇，他忧伤的表示“已经不止一个球员发生这种情况了，我很担心，很想知道这是怎么一回事”
+
+对此，曾在英超直播中，因质疑是疫苗导致球员倒下而被断播的前英超球员特雷夫·辛克莱（Trevor Sinclair）在推特发贴抱怨“无法再目睹这样的事情发生”，并特别标注林德洛夫的名字，表示自己的愤怒。
 
 
- 
-图片来源:   Bitcoin.com
+
+> Nothing to see here 😡 [#Lindelof](https://twitter.com/hashtag/Lindelof?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Trevor Sinclair (@trevor8sinclair) [December 11, 2021](https://twitter.com/trevor8sinclair/status/1469766122169942016?ref_src=twsrc%5Etfw)
 
 
-#### 编译 ：小红帽
 
-国际货币基金组织（IMF）表示，加密资产正在扰乱现有的金融体系，因此应该以全面和一致的方式在全球范围内对其进行监管。
-
-国际货币基金组织最近发布了一些关于如何有效监管全球加密货币行业的建议。
-
-在最近的一篇博客文章中，国际货币基金组织承认加密资产正在迅速改变整个全球金融体系。然而，决策者仍在努力监控与市场相关的风险。
-
-#### 监管机构必须迅速采取行动
-
-该金融机构指出，加密空间的快速增长使其与受监管的经济体系相互联系，同时仍然不受监管。
-
-国际货币基金组织指出，如果全球金融监管机构不迅速采取行动减轻威胁并利用加密货币的革命性力量，这些相互联系可能会带来严重风险。
-
-“决策者努力监控这个不断发展的行业的风险，其中许多活动不受监管。事实上，我们认为这些金融稳定风险可能很快就会在一些国家成为系统性风险，”报告指出。
-
-国际货币基金组织呼吁采取“全面、一致和协调”的方法来监管加密货币空间，并强调不协调的监管措施可能“促进潜在的不稳定资本流动”，因为大多数加密货币公司都是跨境运营的。
-
-#### **国际货币基金组织的建议**
-
-为了在全球范围内有效监管加密货币，国际货币基金组织列出了监管机构必须包括的三个核心要求。
-
-首先，提供多种关键功能（包括数字资产的传输、存储、结算和托管）的加密货币服务提供商应获得许可或授权。还应明确说明许可证发放的标准，并指定有关机构。
-
-其次，要求适合这些加密货币资产的主要用例。例如，投资产品应具有与证券经纪人类似的要求，并应受到证券监管机构的监控。支付产品应具有与银行类似的要求，并应由中央银行监管。
-
-第三，不同国家的政府应该授权受监管的金融机构提供其加密风险敞口和参与的清晰而全面的细节。
-
-国际货币基金组织还警告说，大多数发展中国家越来越多地使用加密货币。
-
-一些新兴市场和发展中经济体面临着通过加密资产进行货币替代的更直接和更严重的风险。面对加密货币化，资本流动管理措施需要进行微调。
-
-新闻来源：[Crypto Regulations Should Be Comprehensive, Consistent, and Coordinated, Says IMF (cryptopotato.com)](https://cryptopotato.com/crypto-regulations-should-be-comprehensive-consistent-and-coordinated-says-imf/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+另外，周日，意甲联赛，那不勒斯对阵恩波利，开场仅19分钟，那不勒斯中场球员，波兰国脚彼得·齐林斯基（Piotr Zielinski）突然停下，他捂着脖子，努力咳嗽着，并对跑向他的医务人员指指胸口，表示自己呼吸困难，几分钟后，他被医护带下场治疗。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/疫苗-1.jpg)
+来源｜[marca](https://www.marca.com/en/football/manchester-united/2021/12/12/61b5f7b5e2704ed74e8b45bc.html) / [Football-Italia](https://football-italia.net/napoli-midfielder-zielinski-goes-off-with-respiratory-problems/)
 
  
 
