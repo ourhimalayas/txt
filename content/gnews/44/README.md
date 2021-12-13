@@ -2,30 +2,36 @@
 ---
 
 
-## 美日澳宣布联手为太平洋3岛国建设海底电缆 抵抗中共
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1749289/)
+## 菲律宾央行正在调查BDO银行遭黑客而丢失资金事件
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1749376/)
 
-#### 撰稿：日本东京方舟农场  幽蘭自得
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/380DDE05-F9F8-47CD-8B6A-B38797619C5C.jpeg)（图片来自网络）
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/shutterstock-bdo-card-ls.jpg)图片来源：rappler
 
-据《自由时报》12月12日报道，美国、日本和澳大利亚12日宣布，将联合出资兴建海底电缆，提升瑙鲁（Nauru）、基里巴斯（Kiribati）和密克罗尼西亚联邦（Federated States of Micronesia）3个太平洋岛国的网络水平。美、日、澳三国表示，将通过援助当地基础建设等方式，来对抗欲在该区域扩大影响力的中共国。
 
-《自由时报》援引《路透社》的消息报道称，美、日、澳三国在联合声明中表示，联合出资兴建海底电缆计划可提升瑙鲁、基里巴斯和密克罗尼西亚联邦的网络速度，并有助于当地的经济成长、增加发展机会、协助改善生活水平，以走出（中共病毒）疫情的阴霾。
+#### 编译 ：小红帽
 
-据悉，目前美、日、澳三国并未透露此次资助的金额。而澳大利亚早在2017年就曾斥资约1.37亿澳元（约0.988亿美元），为邻国所罗门群岛及巴布亚新几内亚改善网络设施。
+**据彭博社12月12日报道，菲律宾央行正在调查有关该国资产最大的银行BDO Unibank Inc.的一些客户的投诉。该公司的一些客户因在线欺诈而蒙受损失。该欺诈犯罪分子将资金汇入到菲律宾联合银行（UnionBank）的账户。**
 
-日本《读卖新闻》在今年4月时曾报道指出，美日澳加强海底电缆领域合作的原因，主要在于中共国势力的急速崛起。为对抗中共，美日澳政府及相关企业等人士召开会议，会上同意加强海底电缆的合作，并讨论如何加强共享有关中共国动向的信息。同时，还提出共同出资在战略重要地区兴建海底电缆的合作方案，并计划由3国具有官方背景的金融机构出资支持海底电缆新建设计划。
+“我们正在与BDO银行以及UBP银行就这一事件进行密切协调，以确保采取补救措施，包括偿还受影响的消费者，”央行行长本杰明·迪奥克诺 (Benjamin Diokno)周日在一份声明中表示。自本周初以来，监管机构一直在关注通过社交媒体发布的激增投诉。
 
-*参考链接：[https://news.ltn.com.tw/news/world/breakingnews/3766153](https://news.ltn.com.tw/news/world/breakingnews/3766153)*
+BDO银行在一份声明中表示，BDO意识到一种“复杂的欺诈技术”已经影响了其部分客户。“我们已经实施了额外的安全控制措施，以阻止进一步的尝试并继续保护银行凭据，”银行行长内斯托尔·谭（Nestor Tan）告诉菲律宾每日问询者，这一事件“影响了一个有10年历史的网络服务。该服务将被逐步淘汰”，应该在明年初会推出替代品。
 
-* * *
+联合银行冻结了几个从BDO账户接收资金的账户，总裁埃德温·包蒂斯塔（Edwin Bautista）说，“我们将毫不犹豫地对使用其帐户进行犯罪活动的个人采取法律行动”。
 
-*素材采编：幽蘭自得*
+马尼拉公报引用了一个不明身份的消息来源称，其中一个联合银行账户在12月11日使用500万比索（99，280美元）的被盗资金购买了比特币。
 
-*编辑：青衣青青*
+新闻来源：[Philippine Central Bank Probes Hacking Complaints at Banks – Bloomberg](https://www.bloomberg.com/news/articles/2021-12-12/philippines-union-bank-freezes-some-accounts-on-hacking-report)
 
-*发布：miumiu*
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

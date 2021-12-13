@@ -2,10 +2,10 @@
 ---
 
 
-## 澳洲墨尔本爆发大规模抗议活动，成千上万人涌入街头
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1749781/)
+## 巴黎市民走上街头抗议疫苗护照
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1749783/)
 
-12/12/2021 澳大利亚墨尔本爆发大规模抗议活动，成千上万人涌入街头。
+12/11/2021 巴黎市民走上街头抗议疫苗护照。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
