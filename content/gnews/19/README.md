@@ -2,38 +2,33 @@
 ---
 
 
-## 中国所有音乐界还要导演要么跪舔彭丽媛活着要么被消灭
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1749197/)
+## 日本公共安全调查厅指出，警惕中共国研究人员泄漏先进武器技术
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1749236/)
 
-**郭文贵先生：**所以说你说的太对了，包括音乐，彭丽媛允许任何音乐，你见过彭丽媛上来以后还有名演员吗？还有音乐界吗？还有歌唱界吗？一切都没了。当年的那个埃及电影——妖后那电影，妖后喜欢的只有她有，妖后不喜欢的天下没有，记得吗？旁边那巫师告诉他，你不喜欢的都不会存在，你喜欢的只有你有，这就是这叫规则。
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2-40.png)图片来源于本文网站
+据《朝日新闻》网站12日的报道，日本、欧洲和美国的政府正在加紧采取措施，防止可能用于军事目的的敏感技术外流。我想到的一个国家是中共国，它一直在其“军民融合”政策下促进先进技术用于军事目的。各国也开始加强对大学和研究机构的监管，面临着平衡保护和发展技术的艰巨任务。
 
-你还有什么歌？还有什么音乐平台？2011年的时候，我告诉所有的音乐界还有导演，我说你记住要不然你跪倒在彭丽媛门下，舔她的脚趾头，你能活下去，要么你记住你就被消灭，现在能在中国活着的全部都是舔她的脚趾头，一定是这结局，大家看的都是表面现象。
+据公共安全情报局的一位官员说，该机构今年春天向有关部委提交了一份题为“在日本学习过的高超音速领域的中共国研究人员”的文件。
 
-编辑整理：喜马拉雅的肉夹馍；
+根据朝日新闻获得的文件，这9名中国研究人员隶属于日本国立大学和国家研究机构，头衔为助理教授和研究员，研究喷气发动机、机体设计、耐热材料和实验设备。据说这些领域是开发高超音速武器的关键技术，美国、中国和俄罗斯正在争相开发这种武器。
 
-视频制作：Cindy；
+其中，流体动力学实验领域的研究员在1990年代5年时间在日本国立大学学习。回国后，他在一家隶属于军火相关公司的研究机构工作，该机构在2017年开发了一个能够再现高超音速环境的风洞测试装置。另外9名2010年代在日本国立大学的研究人员回国后，加入了研究机构，包括一所以研究国防相关技术著称的大学。
 
-视频上传：Cindy；
+该文件指出，根据调查，“如果学术交流的主题领域能够转化为军事用途，就有可能通过技术外流支持中共国武器装备性能的提高。”
 
-G-News发布：黎明之前；
+然而，流体力学实验领域的9名研究人员之一对《朝日新闻》回应说：“风洞的原理和核心技术完全不同于（日本的），技术转移是不可能的。”
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
+一位负责经济安全的日本政府官员说：“这种情况不能说是违反外贸法，”但他指出，“虽然不是明显的违法行为，但有许多案件，不限于此，涉嫌技术泄漏。”
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+信息源：
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+[中国人研究者から技術流出、先端兵器に？　公安調査庁が指摘](https://news.yahoo.co.jp/articles/bf3bc482c5660c0744cc85b7f2fa57b91a887808#:~:text=%E4%)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

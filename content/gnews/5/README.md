@@ -2,30 +2,42 @@
 ---
 
 
-## 美日澳宣布联手为太平洋3岛国建设海底电缆 抵抗中共
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1749289/)
+## 因大不敬彭丽媛收拾掉房峰辉,李木子定马化腾和马云生死
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1749323/)
 
-#### 撰稿：日本东京方舟农场  幽蘭自得
+**郭文贵先生：**我们的李木子小姐出国是什么？跟着爸妈出国没有一个人敢偷拍她照片的，你偷拍的结局像金正恩一样，我狗绝了你！用犬吃了你！习近平瞪一下人不一定把人吓死，如果李木子、彭丽媛要看着哪个将军说我瞪着眼看几分钟、咬咬牙，绝对是他绝对吓死。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/380DDE05-F9F8-47CD-8B6A-B38797619C5C.jpeg)（图片来自网络）
+房峰辉第一个最惹上的人是谁？就是彭丽媛儿是吧，跟阎维文他老拿阎维文不当回事儿是吧？最后房峰辉被抓了吧？抓得很彻底吧，是吧？
 
-据《自由时报》12月12日报道，美国、日本和澳大利亚12日宣布，将联合出资兴建海底电缆，提升瑙鲁（Nauru）、基里巴斯（Kiribati）和密克罗尼西亚联邦（Federated States of Micronesia）3个太平洋岛国的网络水平。美、日、澳三国表示，将通过援助当地基础建设等方式，来对抗欲在该区域扩大影响力的中共国。
+人家习的女儿李木子出来，没有人很多没见过她本人，她有各种身份出席，很多傻瓜包括马化腾这么聪明一个人，一开始他并不知道这是习的女儿，人家跟他接触了几次以后，——这个人可以留着用，但是绝对要注意他跟西方的亲近。你还见马化腾出过国吗？没见他出国了吧？不再出国了吧！
 
-《自由时报》援引《路透社》的消息报道称，美、日、澳三国在联合声明中表示，联合出资兴建海底电缆计划可提升瑙鲁、基里巴斯和密克罗尼西亚联邦的网络速度，并有助于当地的经济成长、增加发展机会、协助改善生活水平，以走出（中共病毒）疫情的阴霾。
+就跟马云就是说马云这个人是有野心的，搞政治野心的，他必须被干掉啊！是吧？那很多故事我现在不好意思讲，都是我的朋友，都不知道跟李木子吃完饭了还吹牛呢，我心里话你的末日到了，我知道她是谁。
 
-据悉，目前美、日、澳三国并未透露此次资助的金额。而澳大利亚早在2017年就曾斥资约1.37亿澳元（约0.988亿美元），为邻国所罗门群岛及巴布亚新几内亚改善网络设施。
+编辑整理：喜马拉雅的肉夹馍；
 
-日本《读卖新闻》在今年4月时曾报道指出，美日澳加强海底电缆领域合作的原因，主要在于中共国势力的急速崛起。为对抗中共，美日澳政府及相关企业等人士召开会议，会上同意加强海底电缆的合作，并讨论如何加强共享有关中共国动向的信息。同时，还提出共同出资在战略重要地区兴建海底电缆的合作方案，并计划由3国具有官方背景的金融机构出资支持海底电缆新建设计划。
+视频制作：小满；
 
-*参考链接：[https://news.ltn.com.tw/news/world/breakingnews/3766153](https://news.ltn.com.tw/news/world/breakingnews/3766153)*
+视频上传：Cindy；
 
-* * *
+G-News发布：黎明之前；
 
-*素材采编：幽蘭自得*
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
 
-*编辑：青衣青青*
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-*发布：miumiu*
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]apanGalaxyII推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
