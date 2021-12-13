@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/13/2021 4:51 AM (UTC)`
+
+12/12/2021 Miles Guo: Xi's insanity will bring about his own demise - he will surely invade Taiwan, eliminate the Chinese private entrepreneurs, and arrest more CCP members; Xi’s kicking my father and the Pangu employees to the cold winter streets is as brutal as what Saddam had done to his son-in-law!<br/><br/>12/12/2021 文贵直播：习的疯狂将让他自取灭亡 - 他一定会打台湾，消灭国内私人企业家，抓更多党员；习将文贵的父亲和盘古员工扔到大街上跟萨达姆对待其女婿的残暴行径如出一辙！<br/>
+![img](https://media.gettr.com/group49/getter/2021/12/13/04/8d3db73a-26d3-3bf3-d79b-d9235ae647b8/out.jpg)
+
+---
+
+`@miles 12/13/2021 4:44 AM (UTC)`
+
+12/12/2021 Miles Guo: Russia, Wall Street, Hollywood, and the four shameless big families in Hong Kong have contributed to Xi's arrogance and insanity - daring to release the CCP virus, promoting the poisonous COVID vaccines, and making everyone afraid to say "no". However, Russia has recently slapped Xi in the face; without Xi’s arrogance and insanity, we wouldn’t be able to take down the CCP<br/><br/>12/12/2021 文贵直播：俄罗斯、华尔街、好莱坞和香港四大不要脸促成了习的狂妄 - 敢在全球放毒、把脉(推广毒疫苗)，并让所有人不敢说“不”，不料这次习被俄国彻底打脸；没有习的狂妄，灭不了共<br/>
+![img](https://media.gettr.com/group22/getter/2021/12/13/04/b4e9111b-aa61-7097-90ec-870ab555a461/out.jpg)
+
+---
+
 `@miles 12/13/2021 12:54 AM (UTC)`
 
 12/12/2021 Miles Guo: In the past 48 hours, the Russians have explicitly told the CCP that Russia is done with the CCP because it is doomed. Russia also said it wouldn’t take part in the CCP’s attack on Taiwan, while still demanding the CCP to pay for the oil and gas as per the contracts signed with Russia, and Russia is going to ally with India, Pakistan, North Korea, and Iran<br/><br/>12/12/2021 文贵直播：在过去48小时，俄罗斯明确告诉中共，你不行了，老子不和你玩儿了，不参与中共打台湾，但要求中共继续为油、气付钱，而且俄要和印、巴、朝鲜和伊朗结盟<br/>
@@ -135,20 +149,6 @@ Dec 11，2021 Mr. Miles Guo's “HCoin To The Moon ” has once again created a 
 `@miles 12/11/2021 12:59 AM (UTC)`
 
 10/12/2021 MV "Hcoin To the Moon" Hits #1 🥇on 29 Countries' iTunes Top Music Video Charts on 1st Day of Launch! 🎉🎉🎉🎉🎉🎉🎉<br/>Thank you very much to all our brothers and sisters in HongKong, USA, Taiwan, Japan, Russia, Germany, France, Australia, Canada, Singapore, Macau, New Zealand, Hungary, Thailand, Cambodia, Laos, Netherlands, Sweden, Philippines, Malaysia, UAE, Portugal, Italy, UK, Vietnam, Finland, Greece, Denmark, Switzerland!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1740913/<br/><br/>12月10号，MV版Hcoin To the Moon上线第1天位列29国iTunes热门MV榜首🥇！🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港，美国，台湾，日本，俄罗斯，德国，法国，澳大利亚，加拿大，新加坡，澳门，新西兰, 匈牙利，泰国，柬埔寨，老挝，荷兰， 瑞典，菲律宾， 马来西亚，阿联酋， 葡萄牙， 意大利， 英国，越南， 芬兰，希腊， 丹麦，瑞士的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏
-
----
-
-`@miles 12/10/2021 7:47 PM (UTC)`
-
-🔥世界的盘古-为灭共而生<br/>”谁也拿不走盘古，记住我说的话！<br/>他们越这么干，盘古越坚定，越坚固，越坚不可摧！”<br/>既然已经开始，我们决不妥协！💪💪💪<br/>既然已经开始，我们一定会赢！👊👊👊<br/><br/>🔥The Meaning of Pangu of the World – To Take Down the CCP<br/>"No one can take Pangu away. Mark my words. The more they wanted to take it away, the steadier Pangu is, the stronger and the more indestructible Pangu is!"<br/>Since we have started, we will never compromise!<br/>Since we have started, we must win!
-![img](https://media.gettr.com/group33/origin/2021/12/10/19/0dfe671c-2c7a-601e-e822-9db4170d4d46/out.jpg)
-
----
-
-`@miles 12/10/2021 1:06 PM (UTC)`
-
-2021年12月10日 文贵大直播：全球各国抵制冬奥会；数字货币市场变化大；七哥新歌打榜冲一名；稳步安排春节大行动
-![img](https://media.gettr.com/group21/origin/2021/12/10/13/b6e432de-f7e9-f118-5f93-1260ed8e3a15/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
