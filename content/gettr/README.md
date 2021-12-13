@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/13/2021 12:54 AM (UTC)`
+
+12/12/2021 Miles Guo: In the past 48 hours, the Russians have explicitly told the CCP that Russia is done with the CCP because it is doomed. Russia also said it wouldn’t take part in the CCP’s attack on Taiwan, while still demanding the CCP to pay for the oil and gas as per the contracts signed with Russia, and Russia is going to ally with India, Pakistan, North Korea, and Iran<br/><br/>12/12/2021 文贵直播：在过去48小时，俄罗斯明确告诉中共，你不行了，老子不和你玩儿了，不参与中共打台湾，但要求中共继续为油、气付钱，而且俄要和印、巴、朝鲜和伊朗结盟<br/>
+![img](https://media.gettr.com/group38/getter/2021/12/13/00/6b588521-93a8-57a4-7dd5-8c5359bfb90d/out.jpg)
+
+---
+
 `@miles 12/12/2021 4:43 PM (UTC)`
 
 Dec 12, 2021 The significance behind Mr. Miles Guo's impressive series of music charting success:<br/>1, a non-professional singer has created a wider impact than a professional singer, scaring the Chinese Communist government;<br/>2, The charting and distribution method breaks the traditional rules and are unacceptable to all professionals;<br/>3. Don’t profit from this, and are completely free from the rule of being controlled by money;<br/>4. The bigwigs behind the award platforms are deeply unhappy with us.<br/><br/>MV "Hcoin To the Moon" Hits #1 🥇on 31 Countries ' iTunes Top Music Video Charts on 3rd Day of Launch with a new record! 🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters all around the world!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1746905/
@@ -142,12 +149,6 @@ Dec 11，2021 Mr. Miles Guo's “HCoin To The Moon ” has once again created a 
 
 2021年12月10日 文贵大直播：全球各国抵制冬奥会；数字货币市场变化大；七哥新歌打榜冲一名；稳步安排春节大行动
 ![img](https://media.gettr.com/group21/origin/2021/12/10/13/b6e432de-f7e9-f118-5f93-1260ed8e3a15/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 12/10/2021 6:40 AM (UTC)`
-
-Hcoin To The Moon 官方MV12月10号已在以下平台全球上线，感谢大家继续打榜，订阅！🎉🎉🎉🎉🎉🎉🎉<br/><br/>VEVO: https://youtu.be/foVjKjgyN4Q <br/><br/>Apple: https://music.apple.com/us/music-video/hcoin-to-the-moon/1596409781?ls=1<br/><br/>TIDAL: http://tidal.com/video/205740632 <br/><br/>Vimeo: https://vimeo.com/646980855/38939d49f1
 
 ---
 
