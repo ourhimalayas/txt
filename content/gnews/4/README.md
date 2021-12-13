@@ -2,46 +2,48 @@
 ---
 
 
-## 灭共者：自挂东南枝
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1751665/)
+## 日本警告疫苗引发的死亡风险是病毒的七倍
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1751729/)
 
-**出品：纽约香草山设计部**
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/12/V-2.jpg)swachhindia.com
+《塔克·卡尔森团队》12月13日发表文章，题目是“日本专家警告说，疫苗对年轻人的死亡风险是中共病毒的7倍”。
 
+全文如下：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+一份日本医学公报警告说，对于20多岁的人来说，中共（新冠）病毒疫苗可能造成的死亡风险至少是病毒本身的七倍。
 
+最近一期的《医学检查》（Med Check）是由日本药物警戒研究所（NOPJIP）作为国际药物通报协会（ISDB）成员出版的双月刊，该杂志的一篇文章评论道，年轻人接种疫苗的死亡风险甚至可能高达40倍。
 
+《医学检查》引用了三份关于年龄在20到29岁之间的人，在接种疫苗后几天或几周内死亡的报告，估计该年龄组的死亡率为每100万人中有3.2人死亡，其中一个明显的疫苗造成的死亡病例是一名27岁的职业棒球运动员，他在接种了疫苗针剂8天后晕倒，在一家医院抗争了一个月后死亡。
 
+公报指出，死亡人数可能更高，部分原因是日本政府只要求报告在接种疫苗28天后的疑似疫苗损害，截至10月15日，日本“劳工安全健康省”（Ministry of Health, Labor and Welfare）共收到了1,308份中共病毒疫苗接种后死亡的报告。
 
+即使只有三例病例，对疫苗产生致命反应的风险也大大超过了病毒对年轻人的危害，根据《医学检查》，在日本，年轻人死于该病毒感染的几率为每100万人中0.6-0.8人，1,180万的日本人中，只有7人在2021年6月前死于中共病毒，到8月中旬时有10人死亡。
 
+《医学检查》确定，与中共病毒相比，接种疫苗导致的死亡风险在6月份显示高出了7倍多，在8月11日高出近5倍。这两年，接种疫苗的二十几岁年轻人的死亡风险是中共病毒本身的40倍。
 
+《医学检查》还指出，日本在2021年9月以前，20岁以下的没有因染疫而死亡的。公报警告说：“如果这个年龄组的孩子接种疫苗却可能引发死亡。”
 
+“即使儿童和20多岁的年轻人感染，表现的也是自然温和或无症状的，因为他们体内的中共病毒受体ACE2比成人尤其是老年人要少。考虑为学龄儿童接种疫苗是一种荒谬的做法。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-21-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/2-1213.jpg)
+最近的一项研究发现，美国18岁以下的中共病毒感染病例中有0.00%至0.03%的死亡率，在德国疫情的前15个月内，没有5至18岁的健康儿童死于中共病毒感染。
 
+中共病毒感染的生存率在60岁以下的年龄组中均不低于99.7%。
 
-**编辑/发稿：小鹿**
+《医学检查》的分析呼应了其他专家的类似评估，例如病毒免疫学家杰西卡·罗斯博士（Jessica Rose），她在9月份告诉FDA的一个小组，这个疫苗的危险性“超过了任何潜在的好处”，她引用了由于接种疫苗而导致的 “高度异常 “的疫苗伤害报告。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-2.png)
+健康研究员、前川普政府官员保罗·埃利亚斯·亚历山大博士（Paul Elias Alexander）在《生活新闻》（LifeSiteNews）的一篇文章中也警告说：“我们可能会用这些安全性未经测试的疫苗杀死数千名儿童，无论是中期还是长期都没有合适的安全数据，家长们现在必须站起来说不！”
 
-**更多资讯，更多关注**
+（全文完）
 
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+活生生的研究结果，明明白白地告诉我们，疫苗根本不是救人的而是害死人的武器，主流媒体为何不报？为何打压质疑？这样简单的逻辑，怎么就唤不醒那些怕死的“疫苗助推”者呢？你们是被阴谋集团利用的工具吗？助纣为虐者们！中共及罪恶集团没几天蹦跶了。
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+原文链接：
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
-
+[https://teamtuckercarlson.com/news/vaccines-pose-7-times-higher-death-risk-than-covid-for-young-people-japanese-experts-warn/](https://teamtuckercarlson.com/news/vaccines-pose-7-times-higher-death-risk-than-covid-for-young-people-japanese-experts-warn/)
 
  
 
