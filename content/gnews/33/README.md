@@ -2,53 +2,22 @@
 ---
 
 
-## 俄罗斯照会中共必须买油气不参与台湾撇开中共与美勾兑
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1749553/)
+## 美国制裁效果显现，商汤科技IPO“泡汤”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1749626/)
 
-**郭文贵先生：**在过去也就是说我们上次直播现在大概48小时，我们今天说过去24小时，我觉得对共产党最大的，我觉得一个对它的刺激是受不了的，就是来自刚才我们谈到的俄罗斯，俄罗斯派去的特使非常明确地所谓的在官方通报了俄美交往、交流、会谈之后。
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-673.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimages.wsj.net%2Fim-449875%3Fwidth%3D860%26height%3D573&amp;imgrefurl=https%3A%2F%2Fcn.wsj.com%2Farticles%2F%25E5%2595%2586%25E6%25B1%25A4%25E7%25A7%2591%25E6%258A%2580%25E6%258E%25A8%25E8%25BF%259F%25E9%25A6%2599%25E6%25B8%25AFipo-%25E7%25BE%258E%25E5%259B%25BD%25E5%25B0%2586%25E5%2585%25B6%25E5%2588%2597%25E5%2585%25A5%25E6%258A%2595%25E8%25B5%2584%25E9%25BB%2591%25E5%2590%258D%25E5%258D%2595-11639182949&amp;tbnid=LPfK0N3UYhJY4M&amp;vet=12ahUKEwiFsZ_lluD0AhX_HTQIHYs9Ci8QMygEegUIARDBAQ..i&amp;docid=hzi7RLcCCBSCaM&amp;w=860&amp;h=573&amp;itg=1&amp;q=%E5%95%86%E6%B1%A4%E7%A7%91%E6%8A%80&amp;ved=2ahUKEwiFsZ_lluD0AhX_HTQIHYs9Ci8QMygEegUIARDBAQ)
+路透社12月13日报道，中共国人工智能初创公司商汤科技周一将撤回其7.67亿美元的香港首次公开发行(IPO)，并更新其招股说明书，此前该公司被列入美国投资黑名单。
 
-这次说私下里交谈告诉了中方，在任何情况下——这对台湾是个好事，任何情况下你打台湾，我不会跟你一起，原来说你弄我吆喝，甚至给你技术上的支持，这个对它是一个致命的，说我不会的，这是肯定的。俄罗斯这性格不会说给你商量啊，对不起啊，没这一说，这就是我的决定。这共产党就会去对不起呀，什么绕弯儿什么的，历史啊、5000年啊，扯淡的事，很清楚——打台湾我不参与。
+这两位直接知情的消息人士表示，商汤科技将很快向港交所递交正式公告。该公司周五被拜登政府列入美国投资黑名单。三名消息人士证实了商汤科技撤回目前形式IPO的决定，其中两人补充表示，该公司将更新招股说明书中的多项风险因素，以期重新启动IPO程序。
 
-第二句话很可怕，所有中苏之间签署的油、汽的协议，你们必须执行，言外之意啥意思？你该给我的钱，给我买我的油、买我的气，一点也不能少，你少了就反过来我不是不支持你，我就打你了，我就跟美国人站一起去了。
+根据其监管文件，商汤原本计划出售15亿股股票，价格在3.85-3.99港元区间，以筹集至多7.67亿美元，这一数字已在今年稍早从20亿美元的目标调降。不过该公司没有按照计划在周五确定其发行价，而是与香港证交所及其律师团队就这项交易的未来进行紧急磋商。
 
-这对习来讲是简直是巨大的羞辱，它是连俄抗美、连俄收台这个战略关系是整个过去十几年世界局势变化的一切根本的原因，这已经完了；
+消息来源：[中国商汤科技将撤回7.67亿美元的香港IPO申请–消息人士（更新版）](https://cn.reuters.com/article/sensetime-ipo-us-blacklist-1213-idCNKBS2IS06J?il=0)
 
-第三条是更让它接受不了的，俄国和印度、北朝鲜、巴基斯坦、伊朗将形成一个新的联盟关系，你看看就没有共产党，而且明确地就没邀请你进去。什么概念？这几个人要联合起来跟美国讲数，——咱们不打，咱交易。
-
-说特别是俄罗斯反对中国在阿富汗干的事情，很明确。我告诉你为啥这么干？这就是俄国的外交，俄国外交是世界上，俄国历史1000年来它最成功的就是他的外交，——不要脸，完全不要脸，完全是拿来主义，完全是胡扯，是吧？就是现实主义。
-
-告诉你，说你的阿富汗这事儿干得不行，阿富汗现在死太多人了，对我俄罗斯也不利，阿富汗乱，车臣的回民就跟他搞在一起，所谓车臣恐怖分子就会再次崛起，这是很夸张的。
-
-还有一个就是，现在你跟美国和西方这种挑战什么都可以，他认为中国内部，俄罗斯就说了你的人权和你的整个企业经济情况让我们很失望。言外之意，你再给我钱也给不起了。
-
-这就是谈恋爱的一个过程，很现实，你现在肾也不行啦，是吧？长得越来越丑，老娘凭啥跟你所谓地过下去啊？当然跟你离婚了，是吧！离婚才是正当的，不离婚你是个缺心眼子。
-
-编辑整理：喜马拉雅的肉夹馍；
-
-视频制作：Cindy；
-
-视频上传：Cindy；
-
-G-News发布：黎明之前；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
