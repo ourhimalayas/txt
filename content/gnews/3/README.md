@@ -2,31 +2,32 @@
 ---
 
 
-## 七哥谈“我们要加速共产党灭亡”（2021-12-08摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1751875/)
+## 币安宣布将于明年2月退出新加坡加密货币市场
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1752023/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+**撰稿：日本东京方舟农场  海星**
 
-来源：郭先生2021-12-08直播10：43：34 摘录
+12月13日，全球最大的加密货币交易所之一币安（Binance）发布声明称，其交易平台将于明年2月停止在新加坡的运营。
 
-我们承担一切后果。如果大家有信心，我们要加速共产党的灭亡，一定在2025以前把它消灭，离开这个世界。否则就会让我们的父亲母亲所有的亲人离开这个世界，郭文贵就没有什么失去了，就剩一个老爹了，92岁了，我做好了一切的准备，他要把我爹给宰了给炖了，让全世界看看，所有人的爹你都有可能像郭文贵的爹一样，我爹这一辈子不白活了。
+据《自由时报》报道，币安在12月13日发布的声明中表示，已经撤回在新加坡经营交易所的执照申请，法币、加密货币交易平台Binance.sg将停止在该国运营，并于明年2月13日正式关闭。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+新加坡区块链协会联合会长谢福来（Chia Hock Lai）对此表示，币安的決定表明新加坡对加密货币的执照申请制度非常严格。
 
-**关注我们**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-149.jpg)图片来源：路透社
 
-Discord 账号
+《自由时报》的报道称，不仅新加坡严格审查币安，香港、英国、德国和日本等多地金融机构也已对币安提出消费者保护、反洗钱等调查。部分国家目前已禁止币安平台进行特定活动，而其他一些国家则警告投资人币安尚未获得经营许可。 在币安退出新加坡的消息传出后，加密货币持续下跌。截至当日下午2点50分，比特币在过去24小时内下跌0.18％，暂报49074美元；以太币则下跌了1.56％，暂报3994美元。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+*参考链接：*
 
-Gettr 账号
+[退出新加坡加密貨幣市場 幣安：已撤回執照申請](https://ec.ltn.com.tw/article/breakingnews/3767000)
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+* * *
+
+*素材采编：海星*
+
+*编辑：青衣青青*
+
+*发布：Ranting*
 
  
 

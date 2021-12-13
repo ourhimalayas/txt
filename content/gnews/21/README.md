@@ -2,31 +2,36 @@
 ---
 
 
-## 七哥说“一定会把共产党按在马桶让他喝他自己的屎”（2021-12-10摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1751645/)
+## 美国监管力度升级 商汤科技上市前被“拉黑”
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1751704/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+**撰稿：日本东京方舟农场 老孙**
 
-来源：郭先生2021-12-10直播10-04-01 摘录
+12月10日，美国白宫和财政部外国资产控制办公室（OFAC）将商汤科技列入NS-CMIC清单（涉军企业清单），禁止美国企业参与相关投资，商汤科技本月将在香港挂牌上市。
 
-七哥要干一件事情，一定会让共产党从这个所有的，亚洲的所有的贸易数字化，和共产党想在这个世界上想搞的共产党这套所有东西，我彻底的消灭，我一定会把共产党按在马桶让他喝他自己的屎，喝死他，你们走着看。等到有一天黑客有啥文件公布的时候，你们就会明白新中国联邦干了什么事情。
+据IPO招股书显示，香港汇丰银行担任该交易的联席保荐人，美国公司银湖和高通参与了本次投资。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+商汤科技被列入该清单，原因是该公司的人脸识别技术在帮助中共政府镇压新疆穆斯林及维吾尔族的行动中发挥了重要作用。在此之前，该清单共有59家中国企业，华为、海康威视等公司在列。
 
-**关注我们**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/download-12.jpg)图片来自于网络
 
-Discord 账号
+2019年10月，美国商务部就曾将商汤科技其加入“禁售实体清单”。当时与商汤科技一起被加入该清单的还有大华科技、海康威视、科大讯飞、旷视科技等，在没有美国商务部许可的情况下，美国特定包含关键性技术的商品、服务不得提供给这些涉及军工的企业。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+另外，本月上交美国国防部的一项提议中显示，美国正在封堵中芯国际购买美国关键技术的一个监管漏洞。尽管中芯国际已被列入美国商务部的禁售实体清单，但中芯国际一直能够绕过监管，购买美国设备来制造芯片。
 
-Gettr 账号
+据报道，在国会两党的共同呼吁下，美国政府还将在未来几个月将更多中国科技公司列入商务部的实体清单和财政部的禁止美资投资名单。
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+*参考链接：*
+
+[美国拟禁止投资商汤科技，考虑阻止对中芯国际的关键产品出口](https://cn.wsj.com/articles/%E7%BE%8E%E5%9B%BD%E6%8B%9F%E7%A6%81%E6%AD%A2%E6%8A%95%E8%B5%84%E5%95%86%E6%B1%A4%E7%A7%91%E6%8A%80-%E8%80%83%E8%99%91%E9%98%BB%E6%AD%A2%E5%AF%B9%E4%B8%AD%E8%8A%AF%E5%9B%BD%E9%99%85%E7%9A%84%E5%85%B3%E9%94%AE%E4%BA%A7%E5%93%81%E5%87%BA%E5%8F%A3-11639097442)
+
+* * *
+
+*素材采编：老孙*
+
+*编辑：文顺*
+
+*发布：Ranting*
 
  
 

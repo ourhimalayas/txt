@@ -2,46 +2,31 @@
 ---
 
 
-## 灭共者：自挂东南枝
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1751665/)
+## 七哥谈准备行动（2021-12-08摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1751717/)
 
-**出品：纽约香草山设计部**
+文编：Hima
+听写：叮叮
+视频：七哥
 
+来源：郭先生2021-12-08直播10：21：23 摘录
 
+咱们现在各农场开始行动啊，行动的前提是准备好当地的法律律师，肯定他们蓝金黄力量像单伟建要出手，骚扰啊，什么告状啊，我们律师要出手。第二，钱没有问题，除法治基金、法治社会捐的钱，花多少钱，七哥来帮你筹措。咱先拿10亿美元的预算出来，然后咱们拿1亿个币出来。再一个记住啊，每个人到现场的，只要到现场的，咱登记好的，每天100个躺平币。我不说躺平币这未来会值多少钱，但每天一人一个喜币，100个躺平币，记住啊，这是今天七哥给你承诺的。然后每天不低于100美金的现金补助。这是三个，不低于100美金，100个躺平币，1个喜币。然后所有的有涉及到住宿，交通， 纸张，所有成本，所有的吃饭，全部实报实销。我不相信共产党还能花得起这个钱。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
+**关注我们**
 
+Discord 账号
 
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
+Gettr 账号
 
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-21-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/2-1213.jpg)
-
-
-**编辑/发稿：小鹿**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-2.png)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
-
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
