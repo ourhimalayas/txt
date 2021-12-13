@@ -2,10 +2,31 @@
 ---
 
 
-## 病毒与疫苗灾难：主要杀掉老年人和残疾人
-` MG 澳喜农场多语组` [轉載自GNews](https://gnews.org/zh-hans/1751563/)
+## 七哥谈法治基金（2021-12-10摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1751622/)
 
-郭先生：世界上邪恶力量的核心是中共，它联合了宗教的黑暗力量和华尔街，它们制造了这场病毒与疫苗大灾难，主要杀掉老年人和残疾人，然后再重新分配财富，它们和它们的孩子活着。但是最终它们一定会被消灭掉的，因为有新中国联邦，上天让新中国联邦诞生就是要消灭它们的。
+文编：Hima
+听写：叮叮
+视频：七哥
+
+来源：郭先生2021-12-10直播10：02：16 摘录
+
+记住我说过法治基金，我们在法治基金捐款到现在我们家族是第一大，我们光给战友药品买药，口罩，包括政治支持，包括政治游说，超过三亿美元。记住我的话，我要负法律责任的。但是我们没有捐到法制基金，追求的目标是一样的。这些钱，有很大一部分用在了三件事上，让世界认可病毒是中共的生化武器，第二，就是停止冬奥会，第三，把他踢出WTO和SWIFT。你们走着看。
+
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

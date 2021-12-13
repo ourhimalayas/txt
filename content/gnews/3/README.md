@@ -2,31 +2,46 @@
 ---
 
 
-## 七哥谈“一切按数字说的算”（2021-12-10摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1751593/)
+## 灭共者：自挂东南枝
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1751665/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+**出品：纽约香草山设计部**
 
-来源：郭先生2021-12-10直播09：54：47 摘录
 
-参加这次冬奥会有三件事他解决不了，你别以为美国是人权的问题，也别认为是共产党的事，不是！西方是资本主义，一切按数字说了算。美国政府要去了，美国运动员上千人要去，染了病毒谁负责？“对不起啊，老子不负责。” 那谁负责呀？国会议员你先说呗，“我不负责”，都不负责。第二，最核心，钱谁出，是吧。肯定 “这我不出，这预算不在我这。” 为什么，出完这钱的结果是什么，出钱就要付出钱的责任，而不是花钱的问题了。第三个问题，出现严重后果一旦要是打台湾了。这些运动员不让回来了，或者运动员当时发生什么种族事件了，或者是病毒当场死亡的时候，有什么应急方案没有？没有一个人有。说我们要去，五眼联盟都跟着去，联盟国家几十个国家，50多个国家都去。要不要对这些联盟负责，加拿大说，你要去啊？你要去我就跟你去啊。咱这伙新中国联邦，七哥去我跟你去啊，Rica我跟你去，那谁负责？七哥你负责，是吧。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-**关注我们**
 
-Discord 账号
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-Gettr 账号
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-21-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/2-1213.jpg)
+
+
+**编辑/发稿：小鹿**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-2.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
 
  
 
