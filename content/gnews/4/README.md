@@ -2,78 +2,42 @@
 ---
 
 
-## 议员兰斯·古登： 中共国 是个专制的共产主义国家，并残酷对待自己的国民
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1749031/)
+## 七国集团警告俄罗斯：如进攻乌克兰将面临沉重代价
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1749174/)
 
-议员兰斯·古登： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 是个专制的共产主义国家，并残酷对待自己的国民。 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 是自由人民的繁荣兴旺的民主国家。 美国必须始终支持台湾人民！Flag of United StatesFlag of Taiwan
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-
-
-> China is an authoritarian communist nation that brutalizes its own people.
-> 
-> Taiwan is a thriving democracy with free people.
-> 
-> America must ALWAYS stand with the people of Taiwan! 🇺🇸🇹🇼
-> — Lance Gooden (@Lancegooden) [December 12, 2021](https://twitter.com/Lancegooden/status/1469838950915362817?ref_src=twsrc%5Etfw)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/eb8fccba46684a32a79051243ebda9d3_18.jpeg)图片来源： www.aljazeera.com
 
 
+#### 编辑整理 ：小红帽
 
-参议员泰德·克鲁兹： [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 不再需要审查我们的朋友台湾。 为什么？ 因为拜登政府替他们把事干了。【转推称：这太疯狂了。白宫在民主国家峰会期间切断了台湾数字部长的视频。因为Audrey Tang的幻灯片显示台湾的颜色与中共国不同。】
+**路透社****12****月****12****日报道，七国集团****(G7)****周日在一份声明中警告俄罗斯总统普京，若俄罗斯进攻乌克兰，将面临巨大的后果和沉重的代价。**
 
+美国情报部门评估称，俄罗斯可能计划最早在明年对乌克兰发动多线进攻，动用多达17.5万名士兵。
 
+克里姆林宫否认其计划入侵。莫斯科表示，北约的扩张威胁到了俄罗斯，并违背了1991年苏联解体时所作的保证。
 
-> The Chinese Communist Party no longer needs to censor our friend Taiwan. 
-> 
-> Why?
-> 
-> The Biden admin does it for them. 🤡🤡🤡 [https://t.co/z3473OOJAa](https://t.co/z3473OOJAa)
-> — Ted Cruz (@tedcruz) [December 13, 2021](https://twitter.com/tedcruz/status/1470215155304837122?ref_src=twsrc%5Etfw)
+在英国利物浦举行的会议上，七国集团代表一致谴责俄罗斯在乌克兰边境的军事集结，并呼吁莫斯科缓和局势。
 
+周六晚间，在七国集团联合文件被报导之前，俄罗斯驻英国大使馆发表的一份声明称，英国在利物浦会议期间频繁使用 “俄罗斯侵略”这一措辞是一种误导，旨在为七国集团创造一个可以团结起来的理由。
 
+俄罗斯总统普京要求获得具有法律约束力的安全保证，即北约不会进一步向东扩张或在俄罗斯领土附近部署军事力量。华盛顿一再表示，没有国家可以否决乌克兰加入北约的希望。
 
-前国务卿迈克·蓬佩奥： 这些奥运会将在 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 举行的事实，是对国际奥委会和全球企业不愿直面 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 提出的挑战的毁灭性陈述。 【附蓬佩奥接受福克斯新闻玛丽亚的采访视频】
+克里姆林宫周日表示，普京告诉美国总统拜登，俄罗斯军队不构成威胁，莫斯科在自己的领土上调动军队是被妖魔化了。莫斯科说，普京和拜登已同意举行更多会谈。
 
+克里姆林宫发言人佩斯科夫(Dmitry Peskov)说，在莫斯科的“红线”问题上，俄罗斯和美国之间存在非常严重的概念分歧。
 
+新闻来源： [焦点：G7警告俄罗斯 若进攻乌克兰将面临 “巨大的后果” | Reuters](https://cn.reuters.com/article/g7-russia-ukraine-warning-1213-idCNKBS2IS02Q)
 
-> The fact that these Olympics are going to take place in China is a devastating statement about the International Olympic Committee and global businesses’ unwillingness to confront the challenges the CCP presents. [https://t.co/ubPx8B3tI9](https://t.co/ubPx8B3tI9)
-> — Mike Pompeo (@mikepompeo) [December 12, 2021](https://twitter.com/mikepompeo/status/1470119717939691526?ref_src=twsrc%5Etfw)
+***发布：小红帽***
 
-
-
-参议员瑞克·斯科特: [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 在过去的 20 年里，每一天都在撒谎和破坏规则。 世贸组织[@WTO](https://twitter.com/wto) 已经变成了它的傀儡，仍然将其归类为“发展中国家”。 如果拜登想要保护美国的利益，他将会要求进行真正的变革，追究这个种族灭绝政权的责任。 【转WTO 推文：今天是中共国加入世贸组织20周年。】
-
-
-
-> Communist China has spent every day of the last 20 years lying & breaking rules. The [@WTO](https://twitter.com/wto?ref_src=twsrc%5Etfw) has turned into its puppet & still classifies it as a “developing country.”
-> 
-> If Biden wants to protect U.S. interests, he’ll demand real change that holds this genocidal regime accountable. [https://t.co/i7lTrha6TQ](https://t.co/i7lTrha6TQ)
-> — Rick Scott (@SenRickScott) [December 11, 2021](https://twitter.com/SenRickScott/status/1469746219819876353?ref_src=twsrc%5Etfw)
-
-
-
-参议员泰德·克鲁兹： 民主党拒绝反抗 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)。 可耻的是，全体民主党人，除了其中一个，都投票反对了我的修正案，旨在禁止资助从 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 使用奴工的地方进口电动车。 民主党更加关注他们的绿色议程。
-
-
-
-> Democrats refuse to stand up to China.
->  
-> Shamefully, all but one Democrat voted against my amendment to ban funding for the import of EVs from where the CCP uses slave labor.
->  
-> Democrats care more about their Green agenda. [pic.twitter.com/yCmhUYtKhN](https://t.co/yCmhUYtKhN)
-> — Senator Ted Cruz (@SenTedCruz) [December 11, 2021](https://twitter.com/SenTedCruz/status/1469498863815999491?ref_src=twsrc%5Etfw)
-
-
-
-美国国会及行政当局中国委员会： 随着 2022 年冬奥会的临近，中共国政府加大了对人权律师和维权人士的拘留并使之噤声的力度。 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 操纵法律以为政府和自己的利益服务。 [#奥运囚徒](https://twitter.com/hashtag/%E5%A5%A5%E8%BF%90%E5%9B%9A%E5%BE%92?src=hashtag_click) [#OlympicPrisoner](https://twitter.com/hashtag/OlympicPrisoner?src=hashtag_click)
-
-
-
-> As the 2022 Winter Olympics approaches, the Chinese government has stepped up its ongoing campaign to detain and silence human rights lawyers and rights defenders. The Chinese Communist Party manipulates the law to serve the interests of the gov’t and itself. [#OlympicPrisoner](https://twitter.com/hashtag/OlympicPrisoner?src=hash&amp;ref_src=twsrc%5Etfw)
-> — China Commission (@CECCgov) [December 10, 2021](https://twitter.com/CECCgov/status/1469382665648365569?ref_src=twsrc%5Etfw)
-
-
-
-
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

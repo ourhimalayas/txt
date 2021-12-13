@@ -2,11 +2,13 @@
 ---
 
 
-## 12/12/2021 文贵直播：在过去48小时，俄罗斯明确告诉中共，你不行了，老子不和你玩儿了，不参与中共打台湾
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1748574/)
+## 全球感染中共病毒人数超过2.7亿，死亡人数超过530万
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1748848/)
 
-秘密翻译组-北美组
-
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1213-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
