@@ -2,38 +2,31 @@
 ---
 
 
-## 无论如何，不能放弃自我思考和自由意志
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1749892/)
+## COVID-19 最新情报｜美国omicron感染 逾七成接种过疫苗
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1749905/)
 
-**简评：**
+**疫情關注組 / 發佈時間｜13/12/2021**
 
-人们已经不再自我思考，转而听从他人的意见，包括有影响力的人、名人、媒体、甚至官方。人们不再质疑任何事情，把自己的自由意志拱手相让。为什么打疫苗？为了不得新冠、为了能旅游、为了不想戴口罩、为了怕失业。有谁听到过、考虑过疫苗的利弊？对疫苗不利的东西在网上都被审查、屏蔽和删除了。你只听到一面之辞，就做出决定。如果听听另一方的意见，你可能会改变主意。无论如何，不能放弃自己的自由意志。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screenshot-2021-12-13-093830-4.jpg)
-[GTV视频链接](https://gtv.org/video/id=61b16d3e87fa7e74c92d7594)
-
-**视频字幕：**
-
-除了嘲笑、抨击，说我们是疯狂的阴谋论者。为什么不退后一步，看看你周围正在发生的事情？我们已经不再自我思考了。我们不再质疑任何违反常规的事情，不撞南墙不回头。这不仅仅关乎我，关乎Nikki，而是关乎每一个人。
-
-这样的事实令我害怕，因为我知道他们想实施邪恶和黑暗的计划，会一直持续下去，直到你醒来，或者直到你自己走进屠宰场。 看哪个先发生。你只会听你最喜欢的有影响力的人、名人，甚至官方说什么，没有意识到你不再听自己的声音。
-
-你不再为自己发声，你不再质疑任何事情。奥～他们都是为我好，为我着想，真的吗？他们为什么不告诉你去改善饮食？为什么不告诉你应该服用伊维菌素或者硫酸羟氯奎？为什们不允许你说“自然免疫”这个词？因为这无关你的健康和安全，这只与控制有关。
-
-他们知道有一样东西永远不会从你那里得到，那就是你的自由意志，除非你愿意拱手相让。你们中的许多人已经有意或无意这么做了。你们中间有多少人打疫苗？是因为你们想保护自己免于新冠伤害，是因为你们不想再戴口罩了，因为你们想去旅游，因为你们想保住工作。
-
-那些打了疫苗的，因为他们想保护自己不得新冠。你们中间有多少人切实听过疫苗的利与弊？奥～我听过。怎么听？根本不可能。因为那些对疫苗不利的东西都被审查、屏蔽和删除了。所以在只听到一面之辞的情况下，你怎么能够为自己做出合理的决定呢？你有没有想过，你听了另一方的意见，也许会改变主意。
-
-我不是告诉你应该怎么做，那不是我的決定，是你的決定。我所关心的是你做出你自己的决定。因为你停止自我思考的时候，停止质疑事物的时候，就是你把自己的自由意志拱手相让的時候。
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
 
-编辑：【英国伦敦喜庄园编辑部】
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+外媒指出，omicron在美国的感染情形还没达到巅峰前，新冠确诊者、住院人数便飙升，疫情再次升温的情形包含疫苗接种率高的地区。美国新冠新病例从11月22日的95000例/单日，飙升至每日近11万9千例，住院治疗人数比11月增加了25%。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/coronavirus-data-explorer.png)美国每7日确诊的滚动平均值。来源：Our World in Data
+美国病例增长几乎来自于delta变种，最新发现的omicron尚未成为威胁美国的主要变种（指12/09撰文时）。据[CDC数据](https://www.cdc.gov/coronavirus/2019-ncov/variants/omicron-variant.html)，美国新病例增长时omicron已在至少21个州被发现，基于omicron高传染的特性，omicron将形成美国另一威胁。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截圖-2021-12-13-下午3.58.44.png)來源：CDC
+## 新英格兰地区高接种率 仍发生感染数激增
+
+拜登政府持续推广加强针，于12月的第一周便接种了近700万剂。VOA援引美联社统计数据，美国完全接种人口比例最高的五个州都在新英格兰地区，分别是：佛蒙特州、康涅狄格州、缅因州、罗德岛州和马萨诸塞州，新罕布什州接种率排名第十。
+
+新英格兰地区的六个州，疫苗完全接种率从69.4%-61.5%不等。而全美国平均完全接种率为55.5%。尽管新英格兰地区的接种率高于全国平均，但本次仍成为“新病例快速增长最严重的地区之一”。
+
+## CDC: 美国75% omicron病例曾接种新冠疫苗
+
+美联社采访CDC 主任罗谢尔·瓦伦斯基 (Rochelle Walensky) 博士称，美国自12 月 1 日首次确认 omicron 变种以来，已知感染omicron的人中四分之三接种了疫苗，三分之一接种过加强针。同时期，旧金山东湾也爆发了omicron 感染，12病例中11例接种了疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-3.png)
+来源｜[VOA](https://www-voanews-com.translate.goog/a/virus-surge-hits-new-england-despite-high-vaccination-rates/6255569.html?_x_tr_sl=en&amp;_x_tr_tl=zh-TW&amp;_x_tr_hl=zh-TW&amp;_x_tr_pto=sc)、[SF](https://www.sfchronicle.com/health/article/Omicron-outbreak-from-out-of-state-wedding-tied-16685845.php?utm_campaign=premiumsfgate_breakingnews_20211208&amp;utm_source=newsletter&amp;utm_medium=email)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
