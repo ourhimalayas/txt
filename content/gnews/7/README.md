@@ -2,24 +2,44 @@
 ---
 
 
-## 美国官员考虑禁止向中芯国际出口产品
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1749404/)
+## 抗议者在澳大利亚各城市集会，反对强制接种疫苗
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1749435/)
 
-编译：花岗岩
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片4-4.png)
-图片来源：网络截图
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-153.png)图片来源：NCA NewsWire
+翻译：文扬
+编辑：Mttfly
 
-据零对冲12月10日报道，美国防部在全球半导体混乱和与中共国的地缘政治关系紧张的时候出台了一份新的报告，即美国官员正在考虑禁止向中共国芯片制造商中芯国际集成电路制造有限公司（SMIC）出口产品。
+数以千计的抗议者聚集在悉尼和墨尔本的中央商务区，示威反对疫苗强制接种，包括维多利亚州政府出台的新的大流行病法案。
 
-路透社周五上午报道说，中芯国际一直在利用监管漏洞购买美国技术，但国防部已经提出了一项阻止出口的建议。与此同时，一些商务部官员正试图阻止国防部的提案。
+下午12点左右，抗议者聚集在墨尔本春天街的议会大厦，然后在伯克街集会，高呼“自由的维多利亚”。
 
-报告说，中芯国际去年被列入美国的黑名单，它应该被拒绝获得美国供应商的先进制造设备。将其列入黑名单是因为中芯国际与中共国军方之间存在潜在联系。
+人群举着旗帜和横幅，其中一些写着“收回路线”和“团结起来我们可以阻止疫苗护照”。
 
-上个月中共国指责美国通过扩大了国家安全的概念阻止了英特尔在中共国的扩张计划。中共国外交部发言人赵立坚说，美国把国家安全作为 “建立贸易壁垒”的手段。
+抗议者在皇家展览馆停了下来，在卡尔顿花园唱歌和演奏音乐。
 
-他还指责拜登政府强迫三星和台湾半导体交出与其供应链有关的“敏感信息”，声称中共政府总是置身于其大型科技集团的计划之外，但是事实应该是正好相反。
+抗议者高呼：“我们想要什么？自由。我们什么时候想要它？现在。”
 
-新闻来源：[U.S. Officials Consider Banning Exports To Chinese Chipmaker SMIC](https://www.zerohedge.com/markets/us-officials-consider-banning-exports-chinese-chipmaker-smic)
+一位抗议者说，抗议活动并不是为了“成为一个反疫苗者”。“这是主动选择”，他们说。
+
+“禁止疫苗护照。”
+
+此前，维州州长丹尼尔·安德鲁斯（Daniel Andrews）于周五根据新法律发布了该州的第一个大流行病声明。当国家紧急状态期满时，州长丹尼尔确认大流行声明将于12月15日晚11点59分生效。
+
+在悉尼，抗议者挤满了海德公园，抗议对娱乐、创意艺术和医疗保健等一系列行业的疫苗强制接种要求。
+
+抗议活动是今天全国行动日的一部分，还计划在昆士兰、珀斯、堪培拉、阿德莱德和霍巴特举行示威活动。
+
+**原文链接：**[Protesters rally in Australian cities opposing vaccine mandates](https://www.9news.com.au/national/freedom-protests-thousands-converge-in-sydney-melbourne-to-demonstrate-against-vaccine-mandates/436601ea-129f-4e74-b285-994f57f28a29)
+
+**发布：去中心化Math**
+**
+更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

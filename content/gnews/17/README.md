@@ -2,24 +2,68 @@
 ---
 
 
-## 2021.12.12文贵爆料：坚决反对党内各方杀掉习近平 灭共后习自然灭亡
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1749305/)
+## 弥天大谎 当权者提高了中共病毒死亡数据却压低了疫苗死亡数据
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1749344/)
 
-撰稿：Naughty（文行）
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-653.png)图片来源：GTV & GETTR
-郭文贵先生在2021年12月12日的大直播中提到，美国情报界人士征求他对中共国内有多方势力想杀死习近平的看法，郭先生明确表示，坚决反对杀掉习。郭先生深入分析了以下原因。
+据《门户专家网》作者乔·霍夫特（By Joe Hoft）2021 年 12 月 12 日报道
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image002-11.jpg)图片来自网络
+2020 年，“当权者”认为政府在报告中共病毒死亡人数方面是准确的。然后我们报告说，所有中共病毒死亡中只有 6% 没有并发症，而中共病毒是让“当权者”惊慌失措的唯一原因。
 
-在独裁统治的体系里，作为首脑被干掉的事情会不时地发生。像萨达姆，乌干达的阿明，卡扎菲，斯大林，赫鲁晓夫，毛泽东、刘少奇无不如此。尤其在共产党体系内，这是你死我活的关系，是没有选择必须要做的事情，是这个体系必然的规律。
+**2020****年****8****月的报道：****CDC ****悄悄更新了中共病毒数字****——****只有**** 9,210 ****名美国人直接死于中共病毒****——****其他人有其他不同的严重疾病**
 
-郭先生说如果现在干掉习，会使这场人类灾难延续更多年。因为只要习被任何人杀掉，习就成为了共产党的英雄，甚至会成为一半愚蠢的被洗脑中国人的英雄，这是一点都不用怀疑的。而且这一半人会誓死保护习近平今天的习太阳思想，这是一个社会关系学历史学的一个必然结果。如果把习变成了这种人物，那就真的成了中国的悲剧，成了我们灭共事业的重大挫折。我们应该把这个体制消灭，习自然而然就灭掉了。
 
-郭先生强调，让习活下去还有一个重要原因，现在只有习能帮助爆料革命完成关键的想法：打台湾，在内部杀土豪，党内清党，垄断思想，灭掉宗教，共享财富。最关键的是他要挑战美国，这让美国更坚定的和爆料革命站在一起。
 
-因此郭先生表示坚决反对杀掉习近平，要让他继续活下去，直到把共产党消灭为止。
+> [SHOCK REPORT: This Week CDC Quietly Updated COVID-19 Numbers – Only 9,210 Americans Died From COVID-19 Alone – Rest Had Different Other Serious Illnesses](https://www.thegatewaypundit.com/2020/08/shock-report-week-cdc-quietly-updated-covid-19-numbers-9210-americans-died-covid-19-alone-rest-serious-illnesses/)
 
-参考链接：[https://gtv.org/video/id=61b5f49556f4921401b604a9](https://gtv.org/video/id=61b5f49556f4921401b604a9)
 
-校对发布：Shifter
+
+“当权者”发现一个人分享说，美国疾病控制与预防中心（CDC）列出的所有中共病毒死亡事件，都是由中共病毒“引起”的。他们认为结案了。
+
+**2020****年9****月的报道：****我们发布了一份关于总统在推特上发布的中共病毒数据报告****——****现在民主党人、他们的媒体和事实核查人员正在抹黑我们****——****这是我们的回应**
+
+
+
+> [Last Weekend We Posted a Viral Report on COVID-19 Numbers that Was Tweeted by the President – Now Democrats, Their Media and Fact Checkers Are Smearing Us – Here’s Our Response](https://www.thegatewaypundit.com/2020/09/last-weekend-posted-report-covid-19-numbers-went-completely-viral-now-democrats-media-fact-checkers-smearing-us-response/)
+
+
+
+鼓励医院将死亡列为因中共病毒死亡，因为这样做是有动机的。
+
+**2020****年****4****月报道：****明尼苏达州参议员和医生：如果将患者列为中共病毒患者医院将获得更多报酬而如果患者使用了呼吸机将医院将获得三倍报酬**
+
+
+
+> [HUGE! MN Senator and Doctor: Hospitals Get Paid More to List Patients as COVID-19 and Three Times as Much if the Patient Goes on Ventilator (VIDEO)](https://www.thegatewaypundit.com/2020/04/huge-mn-senator-doctor-hospitals-get-paid-list-patients-covid-19-three-times-much-patient-goes-ventilator-video/)
+
+
+
+现在，与疫苗相关的死亡正在发生相反的情况。西蒙·戈尔德（Simone Gold）博士在 9 月对此进行了报道。
+
+**“****如果患者在接种疫苗后**** 14 ****天内死亡，****CDC ****现在将因接种中共病毒疫苗的死亡列为未接种疫苗的死亡，****” – ****西蒙****·****戈尔德博士**
+
+
+
+> [“The CDC is Now Listing Vaccinated COVID-19 Deaths as Unvaccinated Deaths if They Die Within 14 Days of the Vaccine” – Dr. Simone Gold](https://www.thegatewaypundit.com/2021/09/cdc-now-listing-vaccinated-covid-19-deaths-unvaccinated-deaths-die-within-14-days-vaccine-dr-simone-gold/)
+
+
+
+甚至有人发现 CDC 改变了“疫苗”的定义，以帮助掩盖因疫苗死亡数量。（有数十亿美元的收入与疫苗有关。）
+
+**电子邮件显示**** CDC ****更改了****“****疫苗****”****和****“****接种疫苗****”****的定义，因为他们的实验性中共病毒疫苗没有像广告宣传的那样有效**
+
+
+
+> [Emails Reveal CDC Changed Definition of “Vaccine” and “Vaccination” Because Their Experimental COVID Shots Didn’t Work as Advertised](https://www.thegatewaypundit.com/2021/11/emails-reveal-cdc-changed-definition-vaccine-vaccination-experimental-covid-shots-didnt-work/)
+
+
+
+当权者想要以中共病毒恐吓美国时，他们将所有相关的死亡都计为中共病毒死亡，无论中共病毒是否是原因。现在有了疫苗，当权者希望美国人对接种疫苗感到安全，所以他们不计算与疫苗相关的死亡，除非患者是在接种疫苗两周或更长时间后死亡。
+
+**很明显，****“****当权者****”****正在操纵数据以提高中共病毒死亡人数****，****并压低疫苗死亡人数。**
+
+原文链接：[https://www.thegatewaypundit.com/2021/12/big-lie-powers-overcount-covid-deaths-undercount-vaccine-deaths-money-power/](https://www.thegatewaypundit.com/2021/12/big-lie-powers-overcount-covid-deaths-undercount-vaccine-deaths-money-power/)
+
+翻译：Nick｜校对：JS709｜编辑&发布：断播
 
  
 

@@ -2,38 +2,30 @@
 ---
 
 
-## 澳大利亚首次：特斯拉将支持昆士兰州中部的电池项目
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1749309/)
+## 七国集团警告俄罗斯如果入侵乌克兰后果很严重
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1749351/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-63.png)
+图片来源：www.epochtimes.com
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Untitled-16.png)图片来源：TESLA
+美联社12月12日报道，七大经济强国集团周日告诉俄罗斯必须降低在乌克兰边境区域的军事积聚，警告俄罗斯如果入侵乌克兰将会招来严重后果，并对俄罗斯的经济造成严重创伤。
 
+美国，英国，和七国集团的其他成员的外交部长们与欧盟外交事务主席共同发布了一项声明，称他们团结一致共同谴责俄罗斯在乌克兰附近军事集结和对乌克兰的攻击性言辞。
 
-#### 编译 ：小红帽
+七国集团要求俄罗斯必须“降低紧张态势，寻求外交途径，坚持国际上的军事行动透明化的承诺。” 同时表扬了乌克兰的“克制”。
 
-**据****ABS****新闻****12****月****13****日报道，美国公司特斯拉（****Tesla****）将目光投向昆士兰州中部的一个能源项目，并将为澳大利亚提供长期的财务支持。这在澳大利亚还是第一次。**
+该声明说：“ 任何运用武力来改变边境现状都会在国际法之下受到禁止，俄罗斯在乌克兰边境地区的任何进一步军事行动毫无疑问会受到严厉的惩罚和付出沉重的代价。”
 
-博尔德科姆（Bouldercombe）电池项目背后的公司Genex表示，Genex还与埃隆·马斯克（Elon Musk）的特斯拉签订了合同，为其提供50兆瓦的大型电池，并将使用其算法驱动的招标系统来出售电力。
+在英国利物浦市举行的七大富有的民主国家外交部长会议中，俄罗斯在乌克兰边境地区的武器和军事人员的集结是周日的主要议题。
 
-博尔德科姆电池项目位于罗克汉普顿以南23公里处。该项目的土地已经落实，并正在进行电网连接。
+美国和其同盟国担心俄罗斯的军事集结是入侵的前兆，并发誓一旦发生必定会给予俄罗斯经济上的严厉的制裁。
 
-Genex公司表示，该项目将为4，167个家庭供电，每年可抵消22，655吨的碳排放量。该项目可能是昆士兰州首批独立的大型电池储能系统之一。
+而俄罗斯否认有任何攻击乌克兰的计划，并指责基辅的过份的设计。
 
-Genex首席执行官詹姆斯`哈丁（James Harding）表示，特斯拉电池将位于其博尔德科姆站点的边界围栏内，有40个大型容器，看起来类似于集装箱。该电池将有两个小时的电力存储容量。
+##### **新闻来源： **[G7 warns Russia of ‘massive’ consequences if Ukraine invaded](https://apnews.com/article/g7-russia-ukraine-5137e7b6277f2fdbaf711807d9cfc423)
 
-特斯拉兆瓦级锂离子电池系统将从其位于美国内华达州的工厂进行全面组装，测试和发货。Genex公司预计电池将在2023年全面投入使用。
-
-新闻来源：[Elon Musk’s Tesla to back central Queensland battery project in Australian-first collaboration – ABC News](https://www.abc.net.au/news/2021-12-13/tesla-australian-first-partnership-for-central-queensland/100690526)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+# ** **
 
  
 

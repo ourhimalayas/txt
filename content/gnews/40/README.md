@@ -2,78 +2,54 @@
 ---
 
 
-## 议员兰斯·古登： 中共国 是个专制的共产主义国家，并残酷对待自己的国民
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1749031/)
+## 中纪委谴责美国海外反腐 中共胆怯了
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1749072/)
 
-议员兰斯·古登： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 是个专制的共产主义国家，并残酷对待自己的国民。 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 是自由人民的繁荣兴旺的民主国家。 美国必须始终支持台湾人民！Flag of United StatesFlag of Taiwan
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/12/u.jpg)harrisbricken.com
+来看看中共中纪委官网的文章，内容包括：“12月9日，在美国一手策划的线上‘民主峰会’上**，**国务卿布林肯宣布将在美国国务院设立新的专门职位‘全球反腐败问题协调员’；美国财长耶伦宣布将成立所谓‘反贪污基金’。12月11日，美国驻华使领馆写道：‘反腐败协调员将带领美国国务院实施美国反腐败战略’。
 
+——负责美国外事的美国国务院进行‘反腐’，是想把长臂伸得更长吗？……
 
-> China is an authoritarian communist nation that brutalizes its own people.
-> 
-> Taiwan is a thriving democracy with free people.
-> 
-> America must ALWAYS stand with the people of Taiwan! 🇺🇸🇹🇼
-> — Lance Gooden (@Lancegooden) [December 12, 2021](https://twitter.com/Lancegooden/status/1469838950915362817?ref_src=twsrc%5Etfw)
+——美国国务院‘反腐’，是以反腐之名行霸权之实。
 
+美国自身民主现状堪忧，却要在全球各地搞‘民主输出’‘街头革命’；自己国内腐败丛生，却要对他国进行‘反腐’。本质上，都是披着合法外衣干预他国，在全球借‘民主’‘反腐’之名行霸权之实。”【1】
 
+这明显是胆战心惊、色厉内荏的举动，中共为何如此胆怯？且看美国国务院的决定。
 
-参议员泰德·克鲁兹： [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 不再需要审查我们的朋友台湾。 为什么？ 因为拜登政府替他们把事干了。【转推称：这太疯狂了。白宫在民主国家峰会期间切断了台湾数字部长的视频。因为Audrey Tang的幻灯片显示台湾的颜色与中共国不同。】
+布林肯宣布的决定如下：【2】
 
+提升反腐败领导能力，促进对腐败行为者的问责
 
+在2021国际反腐败日，美国重申将反腐倡廉作为国家安全的核心重点和民主首脑会议的重要支柱。
 
-> The Chinese Communist Party no longer needs to censor our friend Taiwan. 
-> 
-> Why?
-> 
-> The Biden admin does it for them. 🤡🤡🤡 [https://t.co/z3473OOJAa](https://t.co/z3473OOJAa)
-> — Ted Cruz (@tedcruz) [December 13, 2021](https://twitter.com/tedcruz/status/1470215155304837122?ref_src=twsrc%5Etfw)
+我今天很高兴地宣布，国务院正在设立一个全球反腐败协调员，他将把反腐败斗争纳入并提升到美国外交和对外援助的各个方面。这位协调员将与跨机构和国际合作伙伴密切合作，领导国务院实施白宫本周宣布的美国反腐败战略，我们将全力应对拜登总统所称的“我们时代的挑战”。
 
+美国今天还采取了更多大胆行动，通过全球马格尼茨基（the Global Magnitsky）制裁计划和国务院第7031（c）节签证限制政策，进行制裁和签证限制，以打击腐败，促进问责。
 
+这些相辅相成的行动，共同促进了对全球腐败行为者的问责，以打击和限制那些企图逍遥法外、无视国际标准、破坏民主和法治的人。
 
-前国务卿迈克·蓬佩奥： 这些奥运会将在 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 举行的事实，是对国际奥委会和全球企业不愿直面 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 提出的挑战的毁灭性陈述。 【附蓬佩奥接受福克斯新闻玛丽亚的采访视频】
+这是根据“国务院”、“对外行动管理局”（Foreign Operations）的第7031（c）条，以及“相关计划拨款法”（Related Programs Appropriations Act, 2021）进行的设定。根据该授权，部长应拒绝参与重大腐败的外国政府官员及其直系亲属进入美国。
 
+国务院指定下列个人参与了重大腐败：
 
+（列表中没有发现中共国的人员，此部分略译）
 
-> The fact that these Olympics are going to take place in China is a devastating statement about the International Olympic Committee and global businesses’ unwillingness to confront the challenges the CCP presents. [https://t.co/ubPx8B3tI9](https://t.co/ubPx8B3tI9)
-> — Mike Pompeo (@mikepompeo) [December 12, 2021](https://twitter.com/mikepompeo/status/1470119717939691526?ref_src=twsrc%5Etfw)
+哥伦比的前检察官，危地马拉的某官员，尼加拉瓜的前国家安全顾问，萨尔瓦多的现任内阁首长，萨尔瓦多司法部副部长兼监狱局局长，利比里亚现任参议员，安哥拉总统的前通讯主管，安哥拉一家国有企业的前任董事长，乌克兰宪法法院前主席。
 
+原文附上了财政部行动（Department of the Treasury’s actions）的完整列表 。美国致力于与国际伙伴、盟友和民间社会合作，打击腐败并促进问责制和善治。美国赞扬澳大利亚和英国今年通过反腐败问责立法和制裁制度，并呼吁其他志同道合的伙伴也这样做。
 
+（布林肯的讲话稿完）
 
-参议员瑞克·斯科特: [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 在过去的 20 年里，每一天都在撒谎和破坏规则。 世贸组织[@WTO](https://twitter.com/wto) 已经变成了它的傀儡，仍然将其归类为“发展中国家”。 如果拜登想要保护美国的利益，他将会要求进行真正的变革，追究这个种族灭绝政权的责任。 【转WTO 推文：今天是中共国加入世贸组织20周年。】
+中共能不害怕吗？“美国将把反腐败斗争纳入并提升到美国外交和对外援助的各个方面，对全球腐败行为者问责，打击和限制那些企图逍遥法外、无视国际标准、破坏民主和法治的人。”这个决定是为中共量身制定，这一批名单暂时没有中共的人员，下批呢？再下批呢？一切都在文贵先生的掌控和推动之下。中共你完了！
 
+有关链接：
 
+【1】[http://v.ccdi.gov.cn/2021/12/12/VIDEe9Gf5kbOVRUdRT3uHEBt211212.shtml](http://v.ccdi.gov.cn/2021/12/12/VIDEe9Gf5kbOVRUdRT3uHEBt211212.shtml)
 
-> Communist China has spent every day of the last 20 years lying & breaking rules. The [@WTO](https://twitter.com/wto?ref_src=twsrc%5Etfw) has turned into its puppet & still classifies it as a “developing country.”
-> 
-> If Biden wants to protect U.S. interests, he’ll demand real change that holds this genocidal regime accountable. [https://t.co/i7lTrha6TQ](https://t.co/i7lTrha6TQ)
-> — Rick Scott (@SenRickScott) [December 11, 2021](https://twitter.com/SenRickScott/status/1469746219819876353?ref_src=twsrc%5Etfw)
-
-
-
-参议员泰德·克鲁兹： 民主党拒绝反抗 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)。 可耻的是，全体民主党人，除了其中一个，都投票反对了我的修正案，旨在禁止资助从 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 使用奴工的地方进口电动车。 民主党更加关注他们的绿色议程。
-
-
-
-> Democrats refuse to stand up to China.
->  
-> Shamefully, all but one Democrat voted against my amendment to ban funding for the import of EVs from where the CCP uses slave labor.
->  
-> Democrats care more about their Green agenda. [pic.twitter.com/yCmhUYtKhN](https://t.co/yCmhUYtKhN)
-> — Senator Ted Cruz (@SenTedCruz) [December 11, 2021](https://twitter.com/SenTedCruz/status/1469498863815999491?ref_src=twsrc%5Etfw)
-
-
-
-美国国会及行政当局中国委员会： 随着 2022 年冬奥会的临近，中共国政府加大了对人权律师和维权人士的拘留并使之噤声的力度。 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 操纵法律以为政府和自己的利益服务。 [#奥运囚徒](https://twitter.com/hashtag/%E5%A5%A5%E8%BF%90%E5%9B%9A%E5%BE%92?src=hashtag_click) [#OlympicPrisoner](https://twitter.com/hashtag/OlympicPrisoner?src=hashtag_click)
-
-
-
-> As the 2022 Winter Olympics approaches, the Chinese government has stepped up its ongoing campaign to detain and silence human rights lawyers and rights defenders. The Chinese Communist Party manipulates the law to serve the interests of the gov’t and itself. [#OlympicPrisoner](https://twitter.com/hashtag/OlympicPrisoner?src=hash&amp;ref_src=twsrc%5Etfw)
-> — China Commission (@CECCgov) [December 10, 2021](https://twitter.com/CECCgov/status/1469382665648365569?ref_src=twsrc%5Etfw)
-
-
-
-
+【2】[https://www.state.gov/elevating-anti-corruption-leadership-and-promoting-accountability-for-corrupt-actors/](https://www.state.gov/elevating-anti-corruption-leadership-and-promoting-accountability-for-corrupt-actors/)
 
  
 

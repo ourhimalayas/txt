@@ -2,30 +2,38 @@
 ---
 
 
-## 美日澳宣布联手为太平洋3岛国建设海底电缆 抵抗中共
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1749289/)
+## 澳大利亚首次：特斯拉将支持昆士兰州中部的电池项目
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1749309/)
 
-#### 撰稿：日本东京方舟农场  幽蘭自得
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/380DDE05-F9F8-47CD-8B6A-B38797619C5C.jpeg)（图片来自网络）
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Untitled-16.png)图片来源：TESLA
 
-据《自由时报》12月12日报道，美国、日本和澳大利亚12日宣布，将联合出资兴建海底电缆，提升瑙鲁（Nauru）、基里巴斯（Kiribati）和密克罗尼西亚联邦（Federated States of Micronesia）3个太平洋岛国的网络水平。美、日、澳三国表示，将通过援助当地基础建设等方式，来对抗欲在该区域扩大影响力的中共国。
 
-《自由时报》援引《路透社》的消息报道称，美、日、澳三国在联合声明中表示，联合出资兴建海底电缆计划可提升瑙鲁、基里巴斯和密克罗尼西亚联邦的网络速度，并有助于当地的经济成长、增加发展机会、协助改善生活水平，以走出（中共病毒）疫情的阴霾。
+#### 编译 ：小红帽
 
-据悉，目前美、日、澳三国并未透露此次资助的金额。而澳大利亚早在2017年就曾斥资约1.37亿澳元（约0.988亿美元），为邻国所罗门群岛及巴布亚新几内亚改善网络设施。
+**据****ABS****新闻****12****月****13****日报道，美国公司特斯拉（****Tesla****）将目光投向昆士兰州中部的一个能源项目，并将为澳大利亚提供长期的财务支持。这在澳大利亚还是第一次。**
 
-日本《读卖新闻》在今年4月时曾报道指出，美日澳加强海底电缆领域合作的原因，主要在于中共国势力的急速崛起。为对抗中共，美日澳政府及相关企业等人士召开会议，会上同意加强海底电缆的合作，并讨论如何加强共享有关中共国动向的信息。同时，还提出共同出资在战略重要地区兴建海底电缆的合作方案，并计划由3国具有官方背景的金融机构出资支持海底电缆新建设计划。
+博尔德科姆（Bouldercombe）电池项目背后的公司Genex表示，Genex还与埃隆·马斯克（Elon Musk）的特斯拉签订了合同，为其提供50兆瓦的大型电池，并将使用其算法驱动的招标系统来出售电力。
 
-*参考链接：[https://news.ltn.com.tw/news/world/breakingnews/3766153](https://news.ltn.com.tw/news/world/breakingnews/3766153)*
+博尔德科姆电池项目位于罗克汉普顿以南23公里处。该项目的土地已经落实，并正在进行电网连接。
 
-* * *
+Genex公司表示，该项目将为4，167个家庭供电，每年可抵消22，655吨的碳排放量。该项目可能是昆士兰州首批独立的大型电池储能系统之一。
 
-*素材采编：幽蘭自得*
+Genex首席执行官詹姆斯`哈丁（James Harding）表示，特斯拉电池将位于其博尔德科姆站点的边界围栏内，有40个大型容器，看起来类似于集装箱。该电池将有两个小时的电力存储容量。
 
-*编辑：青衣青青*
+特斯拉兆瓦级锂离子电池系统将从其位于美国内华达州的工厂进行全面组装，测试和发货。Genex公司预计电池将在2023年全面投入使用。
 
-*发布：miumiu*
+新闻来源：[Elon Musk’s Tesla to back central Queensland battery project in Australian-first collaboration – ABC News](https://www.abc.net.au/news/2021-12-13/tesla-australian-first-partnership-for-central-queensland/100690526)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

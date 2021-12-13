@@ -2,22 +2,34 @@
 ---
 
 
-## 中共的邪恶统治导致失业大潮！
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1749265/)
+## 中共推崇的“民族英雄”张学良实为民族败类
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1749280/)
 
-撰稿：东京樱花团/ThreeColors
-![](https://assets.gnews.org/wp-content/uploads/2021/12/8-5.png)[图片来源](https://news.stcn.com/sd/202004/t20200426_1721493.html)
-上一次是三十年前的朱镕基时代，如今中共国的失业大潮再次涌现。
+作者：香草山金融部 – 闲聊钱币
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
+1936年12月12日，发生了震惊中外的西安事变。主角之一张学良被广大洗脑了的普通百姓认为是民族英雄。然而郭文贵先生在12月12日他的大直播里了深刻的揭露和分析了西安事变及张学良背后鲜为人知的故事。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture1-20.jpg)
+郭先生说张学良本就是个纨绔子弟，根本没有抗过日。他和他爹张作霖既不相信共产党，也不相信国民党，只想占据东北，自立为王。张学良企图通过绑架蒋介石趁国民党最弱之时当老大。西安事变完全是张学良以个人一己之私至广大百姓于战火而不顾。
 
-近期的爱奇艺裁员求生。在中共整顿娱乐业的大背景下，因为影视作品的题材必须跟党走，越来越受限制，所以导致作品大减。这次裁员幅度为20%到40%左右，主要是在爱奇艺的中高层职员中进行。另外还有至少十九家互联网大厂陷入裁员疑云。
+郭先生还说西安事变让本来已经奄奄一息的共产党死灰复燃，进而统治中华大地七十多年。
 
-第二个源头是陷于困境的房地产，大量裁员并面临倒闭的边缘。第三个源头是外商企业离开大陆，把工厂移到其他国家。第四个源头是中共对中小民营企业的打压。第五个是突如其来的教育双减政策，教培企业被团灭。第六个是中共整顿跨国电商。第七个源头就是中共此次制造和释放的生化武器。疫情也导致餐饮业倒闭，其中包括海底捞宣布年底之前逐渐关停300家店。
+郭先生最后强调千万要注意爆料革命内部外部的打着民族幌子的人面兽心的张学良们。
 
-在邪恶中共统治下，这几个源头导致的失业人数不计其数，可谓是民不聊生！另外，最近几年中共高校一直在扩招，估计明年毕业生将达到一千万人，空前的毕业压力也可想而知。
+参考来源：[中共推崇的“民族英雄”张学良实为民族败类](https://gtv.org/video/id=61b5f49556f4921401b604a9)
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88-1.png)
+
+编辑/校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

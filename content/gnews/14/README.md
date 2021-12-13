@@ -2,68 +2,24 @@
 ---
 
 
-## 弥天大谎 当权者提高了中共病毒死亡数据却压低了疫苗死亡数据
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1749344/)
+## 中共国开发 “人源化猪”，是用于研究病毒还是制造宿主
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1749363/)
 
-据《门户专家网》作者乔·霍夫特（By Joe Hoft）2021 年 12 月 12 日报道
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image002-11.jpg)图片来自网络
-2020 年，“当权者”认为政府在报告中共病毒死亡人数方面是准确的。然后我们报告说，所有中共病毒死亡中只有 6% 没有并发症，而中共病毒是让“当权者”惊慌失措的唯一原因。
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-17.png)
+图片来源：网络截图
 
-**2020****年****8****月的报道：****CDC ****悄悄更新了中共病毒数字****——****只有**** 9,210 ****名美国人直接死于中共病毒****——****其他人有其他不同的严重疾病**
+据零对冲12月12日报道，在中共病毒爆发之前的几年里，中共最愿意证明和炫耀其科学家的基因编辑能力。几年前，一位中共国科学家公布了世界上第一个基因编辑的人类婴儿，震惊了世界，因为让中共看起来很邪恶而遭到监禁。这对双胞胎女孩的遗传物质在子宫内被改变，以使她们对其父亲的艾滋病毒感染具有免疫力。
 
+关于中共的流氓科学努力的讨论并没有出现更多，但是自从两年前中共病毒首次从武汉爆发以来，这种讨论变得更加普遍。没有人知道那些基因编辑的女孩现在在哪里，但北京显然为其最好的基因科学家找到了一个新项目。据报道，该国最大的研究机构利用世界上最重要的基因编辑技术，开发了易受人类冠状病毒株感染的变异“具有人类特点的猪”。一旦开发成功，这些猪将被用作测试对象，科学家们将测试正在开发的对抗中共病毒的新疗法，中共的喉舌报纸，《环球时报》并没有详细说明。
 
+8月发表的一份研究报告显示，中共国科学院微生物研究所的研究人员解释了科学家如何使用CRISPR（一种基因编辑工具）来移除允许猪减少人类病毒的基因保护。该项目显然得到了中共的全力支持：中科院的研究机构是世界上最大的同类组织，也是中国政府的一个正式机构。
 
-> [SHOCK REPORT: This Week CDC Quietly Updated COVID-19 Numbers – Only 9,210 Americans Died From COVID-19 Alone – Rest Had Different Other Serious Illnesses](https://www.thegatewaypundit.com/2020/08/shock-report-week-cdc-quietly-updated-covid-19-numbers-9210-americans-died-covid-19-alone-rest-serious-illnesses/)
+《环球时报》解释了为什么要开发“人源化猪”的原因，是因为用于模拟中共病毒感染的豚鼠和一些灵长类动物的现有细胞系和动物模型无法捕捉人类生理学的关键特征，因此限制了对疫苗和药物疗效测试的准确性。
 
+中共研究的这种猪，既可以用于研究，也是非常好的宿主，用于解释下一波病毒的来源，这是一石二鸟。
 
-
-“当权者”发现一个人分享说，美国疾病控制与预防中心（CDC）列出的所有中共病毒死亡事件，都是由中共病毒“引起”的。他们认为结案了。
-
-**2020****年9****月的报道：****我们发布了一份关于总统在推特上发布的中共病毒数据报告****——****现在民主党人、他们的媒体和事实核查人员正在抹黑我们****——****这是我们的回应**
-
-
-
-> [Last Weekend We Posted a Viral Report on COVID-19 Numbers that Was Tweeted by the President – Now Democrats, Their Media and Fact Checkers Are Smearing Us – Here’s Our Response](https://www.thegatewaypundit.com/2020/09/last-weekend-posted-report-covid-19-numbers-went-completely-viral-now-democrats-media-fact-checkers-smearing-us-response/)
-
-
-
-鼓励医院将死亡列为因中共病毒死亡，因为这样做是有动机的。
-
-**2020****年****4****月报道：****明尼苏达州参议员和医生：如果将患者列为中共病毒患者医院将获得更多报酬而如果患者使用了呼吸机将医院将获得三倍报酬**
-
-
-
-> [HUGE! MN Senator and Doctor: Hospitals Get Paid More to List Patients as COVID-19 and Three Times as Much if the Patient Goes on Ventilator (VIDEO)](https://www.thegatewaypundit.com/2020/04/huge-mn-senator-doctor-hospitals-get-paid-list-patients-covid-19-three-times-much-patient-goes-ventilator-video/)
-
-
-
-现在，与疫苗相关的死亡正在发生相反的情况。西蒙·戈尔德（Simone Gold）博士在 9 月对此进行了报道。
-
-**“****如果患者在接种疫苗后**** 14 ****天内死亡，****CDC ****现在将因接种中共病毒疫苗的死亡列为未接种疫苗的死亡，****” – ****西蒙****·****戈尔德博士**
-
-
-
-> [“The CDC is Now Listing Vaccinated COVID-19 Deaths as Unvaccinated Deaths if They Die Within 14 Days of the Vaccine” – Dr. Simone Gold](https://www.thegatewaypundit.com/2021/09/cdc-now-listing-vaccinated-covid-19-deaths-unvaccinated-deaths-die-within-14-days-vaccine-dr-simone-gold/)
-
-
-
-甚至有人发现 CDC 改变了“疫苗”的定义，以帮助掩盖因疫苗死亡数量。（有数十亿美元的收入与疫苗有关。）
-
-**电子邮件显示**** CDC ****更改了****“****疫苗****”****和****“****接种疫苗****”****的定义，因为他们的实验性中共病毒疫苗没有像广告宣传的那样有效**
-
-
-
-> [Emails Reveal CDC Changed Definition of “Vaccine” and “Vaccination” Because Their Experimental COVID Shots Didn’t Work as Advertised](https://www.thegatewaypundit.com/2021/11/emails-reveal-cdc-changed-definition-vaccine-vaccination-experimental-covid-shots-didnt-work/)
-
-
-
-当权者想要以中共病毒恐吓美国时，他们将所有相关的死亡都计为中共病毒死亡，无论中共病毒是否是原因。现在有了疫苗，当权者希望美国人对接种疫苗感到安全，所以他们不计算与疫苗相关的死亡，除非患者是在接种疫苗两周或更长时间后死亡。
-
-**很明显，****“****当权者****”****正在操纵数据以提高中共病毒死亡人数****，****并压低疫苗死亡人数。**
-
-原文链接：[https://www.thegatewaypundit.com/2021/12/big-lie-powers-overcount-covid-deaths-undercount-vaccine-deaths-money-power/](https://www.thegatewaypundit.com/2021/12/big-lie-powers-overcount-covid-deaths-undercount-vaccine-deaths-money-power/)
-
-翻译：Nick｜校对：JS709｜编辑&发布：断播
+新闻来源：[China Creates “Humanized Pigs” To Be Used In COVID Research](https://www.zerohedge.com/geopolitical/china-creates-humanized-pigs-be-used-covid-research)
 
  
 
