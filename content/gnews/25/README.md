@@ -2,36 +2,33 @@
 ---
 
 
-## 美CDC：大多数的美国omicron病例是完全接种疫苗的人
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1750505/)
+## 黎智英被港共政府判处13个月监禁
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1750837/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-157.png)图片来源：The Quint
-翻译：小鱼儿
-编辑：Mttfly
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3-32.jpg)
+[图片来源：](https://zhuanlan.zhihu.com/p/381280285)
 
-12月10日（路透社）根据周五发表的一份美国报告，迄今为止在美国发现的由Omicron变体引起的43例COVID-19病例中，大多数人都已完全接种疫苗，其中三分之一的人已经接受了加强剂量。
+12月13日下午,香港壹传媒创办人黎智英、前支联会主席李卓人、副主席邹幸彤、前记者何桂蓝等8人，涉及去年“六四”集会，被香港区域法院分别判监4个半月至14个月。
 
-美国疾病控制和预防中心（CDC）说，在Omicron变体的43个病例中，34人已经完全接种了疫苗。其中14人还接受了强化疫苗，尽管其中5个病例发生在全面保护生效之前的额外注射后不到14天。
+港媒12月13日报导，有关判监的时间：黎智英被判13个月，邹幸彤被判1年，何桂蓝被判6个月，李卓人判监14个月，蔡耀昌被判1年，梁耀忠被判9个月，梁锦威被判9个月，前立法会议员胡志伟被判4个半月。
 
-虽然这些数字非常小，但它们增加了人们对当前COVID-19疫苗可能对高度传播的新变体提供较少保护的担忧。
+香港去年的6月4日六四集会未获警方批准举行，但多名民主派人士仍坚持出席，他们其后被捕并被控“煽惑他人参与未经批准集结”或“明知而参与一个未经批准集结”等罪。
 
-报告说，他们中的大多数人只有轻微的症状，如咳嗽、鼻塞和疲劳，有一个人住院两天。其他报告较少的症状包括恶心或呕吐，气短或呼吸困难，腹泻和味觉或嗅觉丧失。
+其中，黎智英、前支联会副主席邹幸彤以及前媒体记者何桂蓝3人因不认罪而一起受审。
 
-第一例已知的美国Omicron病例是在12月1日发现的，是一个曾到南非旅行的完全接种过疫苗的人。疾病预防控制中心说，有国际旅行史的人最早的症状发作日期是11月15日。
+前支联会主席李卓人、秘书蔡耀昌、前立法会议员梁耀忠和前支联会常委梁锦威承认“煽惑他人明知而参与未经批准集结”，这4人及前立法会议员胡志伟承认“明知而参与未经批准集结”；李卓人承认“举行未经批准集会”。这次他们5人与黎智英等3人同日被法院判处不同刑期。
 
-Delta变体仍然占所有美国病例的99%以上。但来自南非的报告显示，Omicron变体的传播性非常强。
+该案共有26人被控方检控。此前已有16人认罪，已被判刑4个月至10个月不等。另有2人——罗冠聪及张昆阳已离港。
 
-**原文链接：**[Most reported U.S. Omicron cases have hit the fully vaccinated -CDC](https://www.reuters.com/world/us/most-reported-us-omicron-cases-have-hit-fully-vaccinated-cdc-2021-12-10/)
+消息来源:
 
-**发布：**去中心化Math
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+#### [黎智英等8人分别被判4个半月至14个月](https://www.epochtimes.com/gb/21/12/13/n13434320.htm)
+
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
+
 
  
 

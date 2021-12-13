@@ -2,30 +2,34 @@
 ---
 
 
-## 中共延长生育假超300天，就能解除人口危机？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1749278/)
+## 俄罗斯彻底抛弃中共 对习近平打击巨大
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1749369/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-48.jpg)[图片来源](https://www.google.com/imgres?imgurl=http%3A%2F%2Fqqpublic.qpic.cn%2Fqq_public%2F0%2F0-2169489926-C4D8AD54775FA019F255F0459685A976%2F0%3Ffmt%3Djpg%26size%3D70%26h%3D600%26w%3D900%26ppv%3D1&amp;imgrefurl=https%3A%2F%2Fkuaibao.qq.com%2Fs%2F20190920A0K1Y500%3Frefer%3Dspider&amp;tbnid=8nR9a6g_ViZwBM&amp;vet=12ahUKEwjd8PTn9d_0AhWlwJcIHYPvCt8QMygIegUIARCfAQ..i&amp;docid=o1ahYHD1NwBEwM&amp;w=1500&amp;h=1000&amp;itg=1&amp;q=4%2B2%2B1%E5%AE%B6%E5%BA%AD%E7%BB%93%E6%9E%84&amp;ved=2ahUKEwjd8PTn9d_0AhWlwJcIHYPvCt8QMygIegUIARCfAQ)
-12月13日中国新闻周刊报道，北京、重庆、上海、浙江、河南等多省市陆续启动人口与计划生育条例修订，调整了与生育相关的假期。
+作者：纽约香草山农场 – 四季
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月12日，郭文贵先生在大直播中透露，俄罗斯将彻底排除中共，在亚欧施展其利益最大化的外交手腕。
 
-其中，不少地区将原本30天的生育假延长至60天，这意味着连同法定98天产假一起，孕产期女性将可享受158天的假期。这一假期更长者，如重庆和青海，则分别可以达到178、188天，在陕西，女性生育三孩后可以享受总计350天的假期。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide1-14.jpeg)
 
-另外，此前没有育儿假的多个地区亦相继提出拟增设育儿假；江西还将男性的护理假从15天增加至30天。
+郭先生得到可靠信息，俄罗斯目前对中共国内部的人权及经济状况非常失望，认为中共失去了为其输送经济利益的能力。在与美国会谈后，俄罗斯特使强硬告知中共俄罗斯的决定：第一，俄罗斯不会参与中共攻打台湾；第二，中俄签订的油气协议必须执行，否则就联合美国对中共实施打击。俄罗斯将在越南，柬埔寨及菲律宾设立军事基地，并与印度，巴基斯坦，北朝鲜及伊朗形成新的战略同盟关系。与此同时，俄罗斯将与欧洲共同举办欧洲人权会议，在亚洲和欧洲之间寻求平衡。
 
-《中国统计年鉴2021》数据显示，2020年全国人口出生率为8.52‰，首次跌破10‰，创下了1978年来的新低；2020年结婚登记人数共计814.33万对，连续七年下降后，这一数字创下了自2003年以来的新低。
+郭先生说，习近平非常崇拜沙俄文化、崇拜斯大林，是彻底的”崇俄派”。习近平所谓的“自信”，离不开与俄罗斯的勾兑。但是，俄罗斯与中国的文化存在巨大差异，历史已经多次证明俄罗斯不可能与中共结盟。俄罗斯这次彻底抛弃中共，不但对习近平个人打击巨大，而且是对中共几十年实行的联俄抗美，收复台湾的战略野心的巨大羞辱。
 
-有统计，中共国养育成本，包括房价和教育成本，已是世界上最高，延长生育假只是措施之一，治标不治本，中共独裁者已把人口红利用尽，把人口当作一门生意，不断奴役榨取新老用户的主意，只能说明们已经不到新的用户，生育率低下，绝对不是观念的问题，而是经济，环境，教育，生活等压力太大导致大量适龄人不再生育。
+参考链接：[2021年12月12日 文贵大直播](https://www.gettr.com/streaming/pjgjwbc1bf)
 
-信息来源：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
 
-[生育假延长超过300天，人口危机就能解除？](http://m.xilu.com/v/1000010001193304.html)
+总编：文真
+编辑：文真
+校正/发稿：谐趣园
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

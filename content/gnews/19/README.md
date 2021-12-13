@@ -2,34 +2,31 @@
 ---
 
 
-## 布林肯访问东南亚 加强合作对抗中共
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1750826/)
+## 阿富汗正在发生巨大的人道主义危机
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1750897/)
 
-作者：MOS 柳是多水土透
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月12日华盛顿消息，美国国务卿布林肯将在下周出访东南亚地区。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-13-下午9.49.01.png)圖片來源：2021年12月12日，美國國務卿安東尼‧布林肯（Antony Blinken）在英國利物浦市（Liverpool）準備登機回美。（Oliver Douliey/POOL/AFP via Getty Images）
-布林肯将在12月13日到达印尼首都雅加达，进行外事访问。随后，他将继续出访马来西亚和泰国。这是拜登政府任期内首次东南亚外交之行。
+**By:秘翻新闻**
 
-目前，东南亚已经成为美国与中共较量的战略战场。中共对南海大部分地区声称拥有主权，而这些地区是重要的公共海上贸易路线。中共还一直对台湾施加军事胁迫和政治压力。
+**2021-12-13**
 
-布林肯希望通过这次访问，与东盟国家提升关系，他将聚焦于安全基础设施合作，建立印太经济框架，加强美国在印太地区的影响力，以对抗中共的扩张和威胁。
+《卫报》12月12日报道，在长达20年的阿富汗战争中，根据美国沃森研究所的战争成本项目数据显示，大约有17万6千人丧生，其中4万6千人是平民。世界卫生组织预测，今年冬天将有 100 万阿富汗 5 岁以下儿童死于饥饿。另有 220 万人将遭受严重营养不良。
 
-参考链接：[Blinken heads to Southeast Asia to deepen cooperation on China pushback](https://www.reuters.com/world/blinken-heads-southeast-asia-deepen-cooperation-china-pushback-2021-12-12/)
+数月来，国际救援组织一直在警告即将发生在阿富汗的人道主义灾难。现在，灾难已经到来。联合国难民署在12月3日表示：“该国的饥饿人数确实达到了前所未有的水平。”“近 2300 万人—即总人口的 55%—面临极端饥饿。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+如果国际社会，尤其是在8月份离开阿富汗的美国和英国，要防止甚至减轻这场即将到来的人道主义灾难，就必须立即采取行动。战争及其后果导致350万人流离失所。占所有公共支出 75% 的外国援助已经停止。教师、卫生专业人员和公务员也有好几个月没有领到工资了，干旱导致农作物没有收成。
 
-总编：Ivy001
-编辑：Ivy001
-校正/发稿：呼吸的雾霾（文小呼吸）
+虽然塔利班高层只将很少的资源用于为他们的士兵提供食物和报酬，但经济已经完全停滞，银行系统正在崩溃，物价正在上涨。预计明年人均年收入将从 509美元降至 350美元。与此同时，美国财政部和国际货币基金组织冻结了 95 亿美元的阿富汗资产。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+根据战争成本项目数据显示，美国自 2001 年以来已在阿富汗花费了 2.3 万亿美元。然而，直接和间接的收益，例如医疗保健、女童教育和妇女作为劳动力，都被浪费掉了，这主要是由于塔利班的宗教保守态度。分析人士认为，明年春天欧洲可能会面临一场新的巨大难民危机。
+
+（秘翻新闻主编 清风先生编译报道）
+
+*发布:星星*
+
+* * *
+
+**By 【秘密翻译组-即时新闻播报组】**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/IMAGE-2021-12-13-113746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,40 +2,32 @@
 ---
 
 
-## 币安被新加坡踢走，转而与印尼最抠门银行合作
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1750502/)
+## 斯伯丁呼吁美国与中共脱钩
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1750827/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-51.jpg)
-[图片来源](https://zhuanlan.zhihu.com/p/268420793)：
+作者：东京樱花团—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+近日，美国退役准将罗伯特.斯伯丁接受媒体采访时表示，美国政府如果对中共进行更强有力的反击，就必须将矛头指向数据。美国的数字和数据边界，正在遭到中共的大规模入侵。因此，他建议美国政府应当与中共全面脱钩。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-13-下午9.33.17.png)圖片來源：美国空军退役准将、中共国问题专家罗伯特·斯伯丁（Robert Spalding）。Samira Bouaou/The Epoch Times
+斯伯丁将军表示，中共企图成为数据资源的霸主。因为中共相信，可以通过与美国商业和数据的联系，从内部改变美国。中共正在利用金融、贸易、经济、学术领域、互联网等，每一个与美国的联系，来慢慢拆散美国的社会结构以制造分裂，并最终达到他们的邪恶目的。 他警告说，经过研究发现，中共可以利用数据影响美国的政治进程，其方式已经超越了五角大楼在武器方面的发展。
 
-在2021年上半年，加密货币交易所币安(Binance)连续被各国严格监管追杀后，日前宣布正与印度尼西亚最大民营银行，也就是印尼中亚银行(BCA)与印尼电信公司(Telkom Indonesia)洽谈合作。印尼中亚银行(BCA)，此前曾被爆出内幕，高层连员工喝水都会限制。
+参考链接：
+1）[https://gettr.com/post/pj72910e76](https://gettr.com/post/pj72910e76)
+2）[https://gettr.com/post/pj6hrh6fcc](https://gettr.com/post/pj6hrh6fcc)
 
-印尼中亚银行最大股东为印尼最富有的黄氏家族(Hartono)兄弟Budi与Michael Hartonos所持有。据报道所称，印尼中亚银行因严格控制成本并提升效率闻名，高层因发现下班后员工桌上仍有未喝完的水，隔天立刻下达限制饮水量的政策。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-如果确定合作，这将是币安在印尼的第二家合作的加密企业。回顾此前，第一个是与加密交易平台Tokocrypto合作。
+总编：文真
+编辑：文真
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-尽管印尼伊斯兰宗教理事会(MUI)认为加密货币具有不确定性、赌博性和危害性等特点，有违伊斯兰戒律，主张禁止穆斯林使用加密资产作。但是，印尼政府将加密市场视为一种投资类别，并允许其与商品期货一起交易。
-
-在2021年上半年，币安连续被各国严格监管追杀后，现正寻求扩大发展。先前，币安新加坡分公司收购了当地证券交易所Hg Exchange 18%的股份，此外，币安在美国Binance.US正在完成数百万美元融资的最后阶段。
-
-但值得关注的是，币安近期在全球市场的布局出现新变革。币安已撤回其在新加坡运营加密货币交易所的许可证申请，至此币安结束在新加坡金融管理局监督下营运受监管的加密货币交易所的努力。公司重点声明称，业务核心转向区块链技术。作为市面上排名全球前三大的加密货币交易所，这项声明使市场高度聚焦。
-
-12月13日消息，币安表示，该公司已撤回其在新加坡营运加密货币交易所的许可证申请。至此，币安结束了在新加坡金融管理局监督下营运受监管的加密货币交易所的努力。
-
-这家全球最大加密交易所的子公司在一份电子邮件声明中表示，该交易平台将在明年2月13日结束营运并关闭。去年，包括币安亚洲在内的170家公司向新加坡金管局申请了许可证，币安将把业务重心转向区块链技术。
-
-投资者需要注意的是，币安受到的监管困境正在全球不断增加。在过去一年中，Binance受到世界各地金融监管机构的严格审查。马来西亚、英国、美国、意大利、印度和泰国等国家此前已经发出警告，Binance.com在没有许可证的情况下提供金融服务，被指控非法经营和违反证券市场准则。
-
-消息来源:
-
-##### [华人首富交易遭质疑！币安与“曾是全球最贵银行”合作爆料内幕：高层连员工喝水都会限制](https://hk.investing.com/news/stock-market-news/article-204162)
-
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

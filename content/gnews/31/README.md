@@ -2,57 +2,34 @@
 ---
 
 
-## 以色列说covid疫苗加强针现在将是无休止的
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1750447/)
+## 澳大利亚政府决定从周三起有限开放边境
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1750524/)
 
-2021 年 12 月 12 日，星期日
+整理报道：七彩光
+![](https://assets.gnews.org/wp-content/uploads/2021/12/australia_reopening_for_foreign_visa_holders_1637556103894_1637556104102.jpg)图片来源：印度斯坦时报
+12月13日，澳大利亚《天空新闻台》发布消息，报道澳大利亚的国际边境将于周三向留学生、合格签证持有人和来自日本和韩国的游客重新开放。
 
-作者：Ethan Huff
+周一，总理斯科特·莫里森（Scott Morrison）在与韩国总统文在寅的新闻发布会上确认了这一“令人鼓舞”的消息。
 
-翻译：沉默老歌
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Coronavirus-Covid-19-Booster-Vaccine-Vials.jpg)图片来源：网络
-自然新闻：以色列卫生部 (IHM) 已发出警告，以色列人现在需要为无休止的中共武汉冠状病毒 (Covid-19)疫苗和相关助推器注射做好准备。
+他说：“随着我们结束几周前宣布的暂停，边界将重新对韩国和日本开放，并对技术移民和学生开放。这之所以成为可能，是因为韩国和澳大利亚都有（应对）COVID-19（中共病毒）的经验。这是令人鼓舞的，但我知道超过123,000名有韩国血统的澳大利亚人期待着看到他们的朋友、他们的家人和他们能够团聚在一起”。
 
-该国已经即将批准其第四次强制注射，即加强注射，但 IHM 疫苗接种咨询委员会成员兼以色列最大医院副主任 Arnon Afek 教授说，第五、第六和第七针。。。。。。随后是无休止的注射 ，之后的金额是议程的下一个。
+根据之前的报道，澳大利亚卫生部长格雷格·亨特（Greg Hunt）早些时候告诉记者，澳大利亚正在“按部就班”地欢迎技术移民和国际学生在本周返回。
 
-“那些认为我们不需要使用更多加强针的人是错误的”，Afek 宣称，“我们将需要进行第 4 次注射、第 5 次注射、第 6 次注射、第 7 次注射”。
+周一早晨，亨特说：“这（个信息）在周末得到了再次确认。我们在11月29日说，我们打算在12月15日重新开放，这已经走完了政府内阁的程序。维多利亚州昨天已经采取了（开放）措施，所以这个重新开放的时间已经安排好了”。
 
-Afek 补充说：“只要像非洲这样只有少数人接种疫苗的地方继续大流行，就会出现 COVID-19 的新变种，并且需要用疫苗来预防它们”。
+**新闻来源**
 
-既然“Omicron”（Moronic）变种已经到来，以色列正在恐慌中加强暴政，试图超越简单的感冒病毒，这种病毒只影响完全接种疫苗的人。
+[International border will reopen to international students, visa holders and travellers from South Korea and Japan from Wednesday](https://www.skynews.com.au/australia-news/coronavirus/international-border-will-reopen-to-international-students-visa-holders-and-travellers-from-south-korea-and-japan-from-wednesday/news-story/eb25c427f869165b099010606927cc16)
 
-对此公告感到兴奋的是辉瑞首席执行官阿尔伯特·布尔拉 (Albert Bourla)，他似乎与以色列政府勾结，迫使其公司向以色列人注射。
+发布：七彩光
 
-到目前为止，Bourla 已经从非法买卖中赚了数十亿美元，并希望再赚数十亿美元。 因此，他宣布任何反对该计划的人都是需要被关押和惩罚的“罪犯”。
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-根据 Bourla 的说法，人们“需要”“每年重新接种疫苗”，未说明的原因是他需要将人为夸大的股票利润存入他的银行账户。
-
-邪恶的政府使用“得寸进尺的方法”让世界升温到无休止的新冠病毒注射。
-
-尽管辉瑞的注射剂通过传播 Moronic 和其他变体导致人们生病，但 Bourla 和他的以色列政府同谋要求人们按照命令进行注射。
-
-BioNTech 还推出了专门针对 Moronic 的三剂“加强针”注射系列，该系列将在未来几个月内上市。
-
-新西兰总理杰辛达·阿德恩 (Jacinda Ardern) 在最近的一次采访中表示，“该疫苗接种计划不会有终点”。
-
-它会永远持续下去，就像我们警告过它只会被告知这是一个毫无根据的疯狂阴谋论。 现在，一切都在按计划实现。
-
-这种“得寸进尺的方法”是一种合规技术，邪恶的力量通过这种技术首先让他们的臣民同意一个更温和的请求，从而让他们同意某件事。
-
-在这种情况下，它开始是一两针，后来演变成第三个加强针。 现在，政府官员正在为任何想要参与“新常态”的人打开终生注射的闸门。
-
-“这项技术的工作原理是在提出请求的人和被询问的人之间建立联系，”克里斯·梅纳汉 (Chris Menahan) 写道， “如果较小的请求获得批准，那么同意的人就会觉得他们有义务继续同意较大的请求，以与最初的同意决定保持一致”。
-
-“这种技术有多种用途，是一种经过充分研究的策略，可以让人们遵守要求。 这句话是对上门推销员的提法，他用脚不让门关上，让顾客别无选择，只能听销售宣传”。
-
-当被问及支持新的加强针计划的科学依据时，联邦监管机构回应说，他们比其他任何事情都更缺乏“直觉”。
-
-来源链接：[https://www.afinalwarning.com/577981.html](https://www.afinalwarning.com/577981.html)
-
-编辑/发布：LILY
-
-20211213
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

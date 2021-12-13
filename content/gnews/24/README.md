@@ -2,119 +2,96 @@
 ---
 
 
-## MV版Hcoin To the Moon上线第4天位列26国iTunes热门MV榜首！
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1750516/)
+## 文·贵天成——文贵先生谈“疫苗”（四十六）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1750847/)
 
-12/13/2021 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线第4天位列26国iTunes热门MV榜榜首！
+整理：**BENJ1**
+编辑：李易通
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1.jpg-5.png)图片来源：墨尔本雅典娜农场设计组
+郭文贵先生2021年8月26日直播
 
-* * *
+郭文贵先生:说到这里的时候，我再给你们说说。当这些军人接种完疫苗死亡的时候，是开战还是不开战，答案都不是。他们既不会被收买，也不会开战，你们都想象的太直接。
 
-[【PDF 下载】Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record.pdf)
+当这些军人开始死亡的时候，记住，像美国和日本一定有办法拿到解药。你别老想又是新中国联邦拿到解药，像小孩儿玩游戏似的，比如下棋，有个坑我就搁一个，那是瞎蒙好不好。如果新中国联邦有那么厉害，我就不在这直播了，我现在就直接搬白宫去了，大家赶快到白宫门口搬过去，我们没那么厉害。
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_3.jpg)
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_4.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_5.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_6.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_7.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_8.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_9.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_10.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_11.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_12.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_13.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_14.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_15.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_16.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_17.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_18.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_19.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_20.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_21.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_22.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_23.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_24.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_25.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_28.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_30.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_31.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_32.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_33.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_34.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_35.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_36.jpg)
+有这个机会吗？有，如果咱有解药了，那肯定咱是赢家。现在咱没这个把握，但咱们有这个希望。我可以告诉大家的，当这些军队真要是开始死人，西方国家会迅速找到解药。一定会促进人类把疫苗灾难和冠状病毒彻底解决，对你们来讲不是坏事儿。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_37.jpg)
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_38.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_39.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_40.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_41.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_42.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_43.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_44.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_45.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_46.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_47.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_48.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_49.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_50.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_51.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_52.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_53.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_54.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_55.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_57.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_58.jpg)
+听完了今天的疫苗军事，你觉得人类要大灭亡了是吗？不会的。但凡你有点儿信仰就不会这么觉得。疫苗灾难会促进人类找到解药，而且会大大地促进。就像当年找到核武器结束二战一样，会突然间的出现，因为没有比人类最后的生死威胁能迸发出的创造力和研究力以及团结的力量再大的。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_59.jpg)
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_60.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_61.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_62.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_63.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_64.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_72.jpg)
+如果我们能帮助美国、日本、韩国的军人脱离疫苗死亡，新中国联邦不就成了吗？是吧。对我们来讲，我们不想要这个机会，很可能上天得让我们要，你们老祈祷万佛万神，老念叨，他们都闻见了，把这药方给咱们是有可能的。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_73-1.jpg)
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_74.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_75.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_76.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_77.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_78.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_79.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_80.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_81.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_82.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_83.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_84.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_85.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_86.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_87.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_88.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_91.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_92.jpg)
+肯定不会给九指妖、路大脑袋、蛇妖闫，是不是？你路大脑袋吸痰有功，解药给你，那是不可能的。也不能给找爹博、洋塞林去，到目前看它只能给我们。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_94.jpg)
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_95.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_96.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_97.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_98.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_99.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_100.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_102.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_103.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_104.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_107.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_108.jpg)
+如果说中国内部有人想把解药拿出来，共产党一定不会拿出来的，因为它拿出来就全完了。它能给的人只能给我们，如果给那些国家、那些国家会消灭它。还有一个别忘了，明年的美国中期选举。如果美国中期选举之前，军队真的打了这个疫苗了，而且真的出现负作用了，结果你就可想而知了。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_109-2.jpg)
-[【PDF 下载】Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record.pdf)
+那可不是灭中共那么简单了，川普带领的共和党上来，他根本不会有半点儿犹豫。那个时候灭共不积极的川普在这些所有政治家里边，一定是最极端灭共的。而且他灭共的合作对象，没有任何选择，那就是我们。
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+祈祷上天让人类在明年10月份以前都平平安安的。所以说战友们，看疫苗后的军事，是人类找到疫苗、冠状病毒元凶的一个最好的引子和力量。谁也推动不了西方灭共，只有个人的生死和国家的存亡会让他们团结在一起，找到解药。很大几率在找解药的过程中就会干掉共产党。
+
+我相信，如果共产党最终不通过我们拿出解药，而是西方国家自己找出来，中共会死的更快。所以打了疫苗的人不要那么恐惧，不要被吓死了。现在打了疫苗的人一定要听话，吃羟氯喹加锌，并且是合理的吃伊维菌素，如果有严重后果的，赶快吃土霉素，服用药物务必在医生的嘱咐下，药方以大胡子先生说的为准。郭文贵今天说的和战友们说的都不算数，以他说的为准。
+
+我这几天几乎每天最多的时间就用在这上边儿，跟不同的国家的专家和军事要人了解这个解药以及打疫苗后怎么解决的问题。硫酸羟氯喹加锌管用，是最好的防护药物。打了疫苗一定会有人死亡，就像现在每天都有人死亡一样，这会成为常态。你看看日本、台湾的情况，台湾很短时间内五、六个人死了，原来的死亡人数是零。
+
+日本的感染数据从过去的0到现在的每天几万人，澳大利亚从过去0感染到现在每天上百人感染。疫苗后的军事一定会有军人死亡，有军人死亡就一定会有痛苦，谁也不知道会摊到谁，但一定会让世界上的这些愚蠢的政客和被欺骗的人付出惨重代价。但愿被欺骗的这些无知的人和对共产党的邪恶评估不够的，死亡能让他们完全清醒过来，如果继续不清醒，还会有更多的死亡。
+
+那么战友们，你们今天能听到我说话的，如果相信七哥，还是七叔也好，还是七大爷也好，你们不要以任何理由把你们的孩子和家人送去打疫苗。就比如天天跟我大直播的小福利、小Seven，即使被剥夺抚养权也不能让孩子去打疫苗。因为孩子一旦打了疫苗，即使活着，它的精子、卵子也不会是健康的。
+
+石墨乙烯在身体里百分之百是不会消失的，它只是能不能堵住你的血管，让不让你眼梗、心梗、脑梗，让你能不能活下去，它绝对是不健康的。而且它是在你的细胞里的，千万别忘了，你的精子、卵子是你细胞的结果，这些东西是在你基因里边儿的。
+
+发布：去中心化Math
+
+**往期回顾：**
+[文·贵天成——文贵先生谈“疫苗”（一）](https://gnews.org/zh-hans/1645800/)
+[文·贵天成——文贵先生谈“疫苗”（二）](https://gnews.org/zh-hans/1645804/)
+[文·贵天成——文贵先生谈“疫苗”（三）](https://gnews.org/zh-hans/1668258/)
+[文·贵天成——文贵先生谈“疫苗”（四）](https://gnews.org/zh-hans/1668474/)
+[文·贵天成——文贵先生谈“疫苗”（五）](https://gnews.org/zh-hans/1668591/)
+[文·贵天成——文贵先生谈“疫苗”（六）](https://gnews.org/zh-hans/1670496/)
+[文·贵天成——文贵先生谈“疫苗”（七）](https://gnews.org/zh-hans/1670125/)
+[文·贵天成——文贵先生谈“疫苗”（八）](https://gnews.org/zh-hans/1684720/)
+[文·贵天成——文贵先生谈“疫苗”（九）](https://gnews.org/zh-hans/1684707/)
+[文·贵天成——文贵先生谈“疫苗”（十）](https://gnews.org/zh-hans/1704875/)
+[文·贵天成——文贵先生谈“疫苗”（十一）](https://gnews.org/zh-hans/1689446/)
+[文·贵天成——文贵先生谈“疫苗”（十二）](https://gnews.org/zh-hans/1689743/)
+[文·贵天成——文贵先生谈“疫苗”（十三）](https://gnews.org/zh-hans/1694796/)
+[文·贵天成——文贵先生谈“疫苗”（十四）](https://gnews.org/zh-hans/1695670/)
+[文·贵天成——文贵先生谈“疫苗”（十五）](https://gnews.org/zh-hans/1695638/)
+[文·贵天成——文贵先生谈“疫苗”（十六）](https://gnews.org/zh-hans/1695695/)
+[文·贵天成——文贵先生谈“疫苗”（十七）](https://gnews.org/zh-hans/1739501/)
+[文·贵天成——文贵先生谈“疫苗”（十八）](https://gnews.org/zh-hans/1739501/)
+[文·贵天成——文贵先生谈“疫苗”（十九）](https://gnews.org/zh-hans/1739501/)
+[文·贵天成——文贵先生谈“疫苗”（二十）](https://gnews.org/zh-hans/1703796/)
+[文·贵天成——文贵先生谈“疫苗”（二十一）](https://gnews.org/wp-admin/post.php?post=1703749&amp;action=edit&amp;lang=zh-hans)
+[文·贵天成——文贵先生谈“疫苗”（二十二）](https://gnews.org/wp-admin/post.php?post=1703970&amp;action=edit&amp;lang=zh-hans)
+[文·贵天成——文贵先生谈“疫苗”（二十三）](https://gnews.org/wp-admin/post.php?post=1703992&amp;action=edit&amp;lang=zh-hans)
+[文·贵天成——文贵先生谈“疫苗”（二十四）](https://gnews.org/zh-hans/1704142/)
+[文·贵天成——文贵先生谈“疫苗”（二十五）](https://gnews.org/zh-hans/1710182/)
+[文·贵天成——文贵先生谈“疫苗”（二十六）](https://gnews.org/zh-hans/1710207/)
+[文·贵天成——文贵先生谈“疫苗”（二十七）](https://gnews.org/zh-hans/1710218/)
+[文·贵天成——文贵先生谈“疫苗”（二十八）](https://gnews.org/zh-hans/1719792/)
+[文·贵天成——文贵先生谈“疫苗”（二十九）](https://gnews.org/zh-hans/1719861/)
+[文·贵天成——文贵先生谈“疫苗”（三十）](https://gnews.org/zh-hans/1728380/)
+[文·贵天成——文贵先生谈“疫苗”（三十一）](https://gnews.org/zh-hans/1728390/)
+[文·贵天成——文贵先生谈“疫苗”（三十二）](https://gnews.org/zh-hans/1728442/)
+[文·贵天成——文贵先生谈“疫苗”（三十三）](https://gnews.org/zh-hans/1728442/)
+[文·贵天成——文贵先生谈“疫苗”（三十四）](https://gnews.org/zh-hans/1728442/https:/gnews.org/zh-hans/1731671/)
+[文·贵天成——文贵先生谈“疫苗”（三十五）](https://gnews.org/zh-hans/1731651/)
+[文·贵天成——文贵先生谈“疫苗”（三十六）](https://gnews.org/zh-hans/1732165/)
+[文·贵天成——文贵先生谈“疫苗”（三十七）](https://gnews.org/zh-hans/1735148/)
+[文·贵天成——文贵先生谈“疫苗”（三十八）](https://gnews.org/zh-hans/1735212/)
+[文·贵天成——文贵先生谈“疫苗”（三十九）](https://gnews.org/zh-hans/1735235/)
+[文·贵天成——文贵先生谈“疫苗”（四十）](https://gnews.org/zh-hans/1739501/)
+[文·贵天成——文贵先生谈“疫苗”（四十一）](https://gnews.org/zh-hans/1740057/)
+[文·贵天成——文贵先生谈“疫苗”（四十二）](https://gnews.org/zh-hans/1740093/)
+[文·贵天成——文贵先生谈“疫苗”（四十三）](https://gnews.org/zh-hans/1735235/)
+[文·贵天成——文贵先生谈“疫苗”（四十四）](https://gnews.org/zh-hans/1739501/)
+[文·贵天成——文贵先生谈“疫苗”（四十五）](https://gnews.org/zh-hans/1748559/)
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
