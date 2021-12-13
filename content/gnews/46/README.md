@@ -2,49 +2,30 @@
 ---
 
 
-## 班农专访6: 2022中期选举之后，福奇会被追责
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1749825/)
+## COVID-19 最新情报｜美国omicron感染 逾七成接种过疫苗
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1749905/)
 
-**简评：**
+**疫情關注組 / 發佈時間｜13/12/2021**
 
-最新出版的两本书都揭露了精英、医药公司、福奇、NIH，柯林斯博士和比尔盖茨的罪恶，尤其是彼得纳瓦罗博士的《川普时代》中关于白宫和福奇的所作所为，是非常严重的控诉。福奇开始不受欢迎，他一定会被追责。现今体系中福奇这样的人可以获得几乎是独裁一样的权利。2022年中期选举之后，福奇一定会被追责。
-
-YouTube视频链接：
-
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
 
-[GTV视频链接](https://gtv.org/video/id=61b4151087fa7e74c92e56f6)
+外媒指出，omicron在美国的感染情形还没达到巅峰前，新冠确诊者、住院人数便飙升，疫情再次升温的情形包含疫苗接种率高的地区。美国新冠新病例从11月22日的95000例/单日，飙升至每日近11万9千例，住院治疗人数比11月增加了25%。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/coronavirus-data-explorer.png)美国每7日确诊的滚动平均值。来源：Our World in Data
+美国病例增长几乎来自于delta变种，最新发现的omicron尚未成为威胁美国的主要变种（指12/09撰文时）。据[CDC数据](https://www.cdc.gov/coronavirus/2019-ncov/variants/omicron-variant.html)，美国新病例增长时omicron已在至少21个州被发现，基于omicron高传染的特性，omicron将形成美国另一威胁。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截圖-2021-12-13-下午3.58.44.png)來源：CDC
+## 新英格兰地区高接种率 仍发生感染数激增
 
-**视频字幕：**
+拜登政府持续推广加强针，于12月的第一周便接种了近700万剂。VOA援引美联社统计数据，美国完全接种人口比例最高的五个州都在新英格兰地区，分别是：佛蒙特州、康涅狄格州、缅因州、罗德岛州和马萨诸塞州，新罕布什州接种率排名第十。
 
-**主持人****Nina****：**最近出版的一本书，作者罗伯特·肯尼迪，《真正的安东尼·福奇、比尔·盖茨、大制药公司，以及全球民主和公共卫生战争》，还有纳瓦罗博士的《川普时代》。两本书都揭露了精英、医药公司、福奇、NIH，柯林斯博士和比尔盖茨的罪恶。这些书未来会帮助将这些人绳之以法吗？
+新英格兰地区的六个州，疫苗完全接种率从69.4%-61.5%不等。而全美国平均完全接种率为55.5%。尽管新英格兰地区的接种率高于全国平均，但本次仍成为“新病例快速增长最严重的地区之一”。
 
-**班农先生：**如果这些书能够使足够的人参与投票，使我们在2022年的众议院选举中大获全胜，会的。
+## CDC: 美国75% omicron病例曾接种新冠疫苗
 
-我认为追究福奇的责任，仍然是我们的任务，但是我认为美国人民开始找他算帐了。他开始不受欢迎，因为他的政策经不起推敲，我的意思是那不是科学，完全是感情用事和科学主义。
-
-还没有看这本书的人…… 我想还没有汉语版。但是，彼得·纳瓦罗关于川普白宫和福奇所作所为的书，（汉语翻译版本）快出来了，这本书是非常严重的控诉。如果这本书翻译成了汉语，每个人都应该买一本，这是非常严重的控诉。它也向我们展示了什么是民主。
-
-记住，有一天我们打倒了中共北京犯罪组织，对中国人民来说，每一天仍然是斗争，是自由时代的斗争，要争取更多的自由、更多的繁荣、更多的幸福和更多的和平。但是仍然有斗争，而且是有作用的
-
-你看到这本书中，体系中会有像福奇这样的人，就像在旧儒家制度中，在帝王时代的那些官僚。中国共产党在今天就是这么做的。福奇就是个官僚，一旦他进入体系，可以获得几乎是独裁一样的权力。
-
-我们需要每天警惕这样的事情，必须每天小心这样的事情，所以对（福奇）的追责一定会发生。
-
-虽然我认为在2020年选举后，一些联邦律师和地方律师应该开始起诉，但主要的还是在2022年中期选举之后。
-
-字幕：雨中漫步 | 听写：云岭  |  翻译：Roberts |  PR：Wade | 简评/文字整理/编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+美联社采访CDC 主任罗谢尔·瓦伦斯基 (Rochelle Walensky) 博士称，美国自12 月 1 日首次确认 omicron 变种以来，已知感染omicron的人中四分之三接种了疫苗，三分之一接种过加强针。同时期，旧金山东湾也爆发了omicron 感染，12病例中11例接种了疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-3.png)
+来源｜[VOA](https://www-voanews-com.translate.goog/a/virus-surge-hits-new-england-despite-high-vaccination-rates/6255569.html?_x_tr_sl=en&amp;_x_tr_tl=zh-TW&amp;_x_tr_hl=zh-TW&amp;_x_tr_pto=sc)、[SF](https://www.sfchronicle.com/health/article/Omicron-outbreak-from-out-of-state-wedding-tied-16685845.php?utm_campaign=premiumsfgate_breakingnews_20211208&amp;utm_source=newsletter&amp;utm_medium=email)
 
  
 

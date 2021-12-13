@@ -2,122 +2,32 @@
 ---
 
 
-## 专业医学战友文章备份
-` 疫苗病毒专栏` [轉載自GNews](https://gnews.org/zh-hans/1750332/)
-
-## 专业作者
-
-* * *
-
-
-
-### 最新
-
-🔥[儿童新冠防治方案详解](https://gnews.org/zh-hans/1732211/)
-[《医学视角》第23期，毒疫苗与朊蛋白疾病](https://gtv.org/video/id=61b6321856f4921401b65f2f)
-[肠道生物群落与冠状病毒、疫苗和抗体依赖性增强的关系](https://gnews.org/zh-hans/1665877/)
-[COVID-19的新变异病毒与免疫逃避](https://gnews.org/zh-hans/1722246/)
-[乙酰半胱氨酸及褪黑色素在新冠防治中的应用](https://gnews.org/zh-hans/1682572/)
-[为什么我们之前没有被告知非药物疗法？](https://gnews.org/zh-hans/1676762/)
-
-
-
-### 专栏
-
-[【圣母院钟声】新冠药物、疫苗和解评](https://gnews.org/zh-hans/1395455/)
-[【Runaway】疫苗与病毒情报翻译](https://gnews.org/zh-hans/1523028/)
-[【医学视角】专业医生聊病毒和疫苗](https://gnews.org/zh-hans/1543308/)
-[【Myway】病毒、疫苗与超限战](https://gnews.org/zh-hans/1331620/)
-[【枳实】聚焦中共病毒和疫苗](https://gnews.org/zh-hans/1406764/)
-[【莲心不染】病毒与疫苗情报分析](https://gnews.org/zh-hans/1351346/)
-[【文医】病毒防护、治疗与疫苗节目](https://gnews.org/zh-hans/1328249/)
-
-
-
-
-## 疾病防控
-
-
-* * *
-
-
-
-### 治疗
-
-🔥[新冠病毒预防和治疗方案合辑](https://gnews.org/zh-hans/1543474/)
-[防治新冠药物的作用机理汇总](https://gnews.org/zh-hans/1624095/)
-[合法获取抗击病毒药物的合辑](https://gnews.org/zh-hans/1543592/)
-[羟氯喹儿科用药剂量，安全性和用药注意事项](https://gnews.org/zh-hans/1508886/)
-[松树茶：可能是刺突蛋白传播的解毒剂](https://gnews.org/zh-hans/1715505/)
-[Eglise医生讲解伊维菌素等用药时机](https://gnews.org/zh-hans/1706233/)
-
-
-
-### 防控
-
-[家庭日常防护方法汇总](https://gnews.org/zh-hans/1465757/)
-
-
-
-
-## 学术文章
-
-* * *
-
-
-
-### 原创
-
-
-
-
-
-### 翻译
-
-[美国众议院：中共病毒溯源报告的翻译合辑](https://gnews.org/zh-hans/1447050/)
-[汉堡大学：冠状病毒起源研究报告](https://gnews.org/zh-hans/1351995/)
-[通过重建历史病因学方法对新冠病毒刺突蛋白进行分析，证明病毒非自然进化](https://gnews.org/zh-hans/1323163/)
-[奎伊博士：SARS-CoV-2起源的贝叶斯分析 中文全文](https://gnews.org/zh-hans/1057464/)
-[德国汉堡大学：中共病毒来自武汉病毒研究所实验室](https://gnews.org/zh-hans/917482/)
-
-
-
-## 政界商圈
-
-* * *
-
-
-
-### 要闻
-
-[早期病毒大流行时间线](https://gnews.org/zh-hans/1747399/)
-
-
-
-### 黑幕
-
-[【6Zero4】中共病毒及其疫苗全球超限战专辑](https://gnews.org/zh-hans/1651640/)
-
-
-
-## 编辑视角
-
-* * *
-
-
-
-### 调查
-
-📣[请您参与：青蒿素药效调查](https://gettr.com/post/pigok298b9)
-
-
-
-### 期刊
-
-
-
-
-
+## 日本正式承认中共病毒疫苗具有潜在致命毒副作用
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1750669/)
+
+作者：东京樱花团 – 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月10日，外媒报道，目前日本在中共病毒疫苗的标签上，已经注明其存在危险和潜在的毒副作用。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/7-20.jpg)
+日本政府强调知情同意和身体自主权，建议准备注射疫苗的公民，应当仔细考虑疫苗有效性和毒副作用。而且，日本政府重申了对疫苗不良反应报告的承诺，即必须在注射后28天内报告副作用，以确保将所有可能的副作用记录在案。
+
+同时，日本政府强调企业不会强迫员工接受实验性基因治疗，也不应该歧视拒绝接种疫苗的人，并且，为疫苗歧视设置了投诉渠道。报道称，目前世界各地的医生都回应了日本卫生部门，关于疫苗毒副作用的警告。
+
+参考链接：[終於有國家正式承認疫苗有危險和潛在的致命副作用](https://gettr.com/post/pjfz11fd9f)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+
+总编：Jack Li文阳
+编辑：文真
+校正/发稿：Fei797
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
  
