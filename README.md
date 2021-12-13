@@ -15,26 +15,26 @@
 
 ---
 
-### [“疯狂宇宙”与恶党本质](/content/gnews/1/README.md)
+### [蓬佩奥谴责奥委会及商业巨头支持中共冬奥](/content/gnews/1/README.md)
+ ` HimalayaRussia`
+
+### [日本要求疫苗提示心肌炎警告 注射需知情同意](/content/gnews/2/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [“疯狂宇宙”与恶党本质](/content/gnews/3/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [意大利疫苗受害者在意大利卫生部大楼前示威](/content/gnews/2/README.md)
+### [意大利疫苗受害者在意大利卫生部大楼前示威](/content/gnews/4/README.md)
  ` xiaobaige`
 
-### [日本反北京冬奥委会游行：决不忘苦于中共独裁的中国人](/content/gnews/3/README.md)
+### [日本反北京冬奥委会游行：决不忘苦于中共独裁的中国人](/content/gnews/5/README.md)
  ` 日本东京方舟农场`
 
-### [改编《满江红 · 怒发冲冠》](/content/gnews/4/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm Toronto(CA)`
-
-### [秘翻在线: 布林肯将访问东南亚三国，加强反共联盟](/content/gnews/5/README.md)
+### [秘翻在线: 布林肯将访问东南亚三国，加强反共联盟](/content/gnews/6/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国对中共国、缅甸和朝鲜实施广泛人权制裁](/content/gnews/6/README.md)
+### [美国对中共国、缅甸和朝鲜实施广泛人权制裁](/content/gnews/7/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [秘翻在线: 布林肯将访问东南亚三国，加强反共联盟](/content/gnews/7/README.md)
- ` 秘密翻译组-原创组`
 
 ### [文贵爆料12.12：躺平币为公有链 100% 独立 可与任何币互换](/content/gnews/8/README.md)
  ` 秘密翻译组-原创组`
@@ -129,53 +129,53 @@
 ### [12/12/21 香港快讯 圆玄小学按教育局建议 向学生播南京大屠杀片段 小一学生受惊](/content/gnews/38/README.md)
  ` 英喜-粵語組`
 
-### [美国再次制裁中共官员和军企科技帮凶](/content/gnews/39/README.md)
+### [有声|中共研发面部识别系统的公司被美国列入黑名单](/content/gnews/39/README.md)
+ ` MOSREC`
+
+### [有声|杨洁篪发动针对爆料革命的海外行动](/content/gnews/40/README.md)
+ ` MOSREC`
+
+### [有声|新中国联邦已对中共造成实质性威胁](/content/gnews/41/README.md)
+ ` MOSREC`
+
+### [继“维吾尔族法庭”判决中共种族灭绝罪，联合国将发布新疆局势评估报告](/content/gnews/42/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|中共研发面部识别系统的公司被美国列入黑名单](/content/gnews/40/README.md)
- ` MOSREC`
-
-### [有声|杨洁篪发动针对爆料革命的海外行动](/content/gnews/41/README.md)
- ` MOSREC`
-
-### [有声|新中国联邦已对中共造成实质性威胁](/content/gnews/42/README.md)
- ` MOSREC`
-
-### [继“维吾尔族法庭”判决中共种族灭绝罪，联合国将发布新疆局势评估报告](/content/gnews/43/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [盖特CEO：拯救言论自由的斗争正在进行](/content/gnews/44/README.md)
+### [盖特CEO：拯救言论自由的斗争正在进行](/content/gnews/43/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [西班牙政府将决定是否与欧洲伙伴一起对中共国冬奥会进行外交抵制](/content/gnews/45/README.md)
+### [西班牙政府将决定是否与欧洲伙伴一起对中共国冬奥会进行外交抵制](/content/gnews/44/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [英权威研究数据证实：接种疫苗者占病毒感染案例大多数 《每日揭露》详述疫苗护照不起作用四个理由](/content/gnews/46/README.md)
+### [英权威研究数据证实：接种疫苗者占病毒感染案例大多数 《每日揭露》详述疫苗护照不起作用四个理由](/content/gnews/45/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [二十年未兑现承诺！ 中共将被踢出世贸组织](/content/gnews/47/README.md)
+### [二十年未兑现承诺！ 中共将被踢出世贸组织](/content/gnews/46/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【樱花深度报道】中共可能将核导弹走私到委内瑞拉以突袭美国（下）](/content/gnews/48/README.md)
+### [【樱花深度报道】中共可能将核导弹走私到委内瑞拉以突袭美国（下）](/content/gnews/47/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【樱花深度报道】中共可能将核导弹走私到委内瑞拉以突袭美国（中）](/content/gnews/49/README.md)
+### [【樱花深度报道】中共可能将核导弹走私到委内瑞拉以突袭美国（中）](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【樱花深度报道】中共可能将核导弹走私到委内瑞拉以突袭美国（上）](/content/gnews/50/README.md)
+### [【樱花深度报道】中共可能将核导弹走私到委内瑞拉以突袭美国（上）](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [国际奥委会委员警告参加北京冬奥会的运动员不要乱说话](/content/gnews/51/README.md)
+### [国际奥委会委员警告参加北京冬奥会的运动员不要乱说话](/content/gnews/50/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [恒大倒闭，澳大利亚又一个“失去的十年”](/content/gnews/52/README.md)
+### [恒大倒闭，澳大利亚又一个“失去的十年”](/content/gnews/51/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国向乌克兰提供导弹和火箭发射器](/content/gnews/53/README.md)
+### [美国向乌克兰提供导弹和火箭发射器](/content/gnews/52/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2021年12月10日郭文贵先生直播全文字版（二）](/content/gnews/54/README.md)
+### [2021年12月10日郭文贵先生直播全文字版（二）](/content/gnews/53/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
+
+### [美国陆续出台制裁中共国芯片产业链的措施](/content/gnews/54/README.md)
+ ` GTV新闻访谈`
 
 ### [七国集团外长 呼吁“关注”中共国和俄罗斯问题](/content/gnews/55/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

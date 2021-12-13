@@ -2,29 +2,37 @@
 ---
 
 
-## 美国再次制裁中共官员和军企科技帮凶
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1747377/)
+## 有声|中共研发面部识别系统的公司被美国列入黑名单
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1746948/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screenshot_1-2.png)
-[图片来源](https://ipvm.com/reports/treasury-sanctions)
+配音：香草山美食部 – 玫瑰园
 
-证劵时报12月12日报道，当地时间12月10日，美国财政部将中国、俄罗斯、朝鲜、缅甸、孟加拉国五个国家的共15名个人及10个实体列入美国财政部海外资产控制办公室的制裁名单，其中有包括3名中国公民及多家中企。此外美国财政部还将中国商汤科技有限公司列入涉军企业名单，实施投资限制。
 
-商汤科技成立于2014年，是计算机视觉和深度学习领域的算法提供商。2014年商汤团队发表DeepID系列人脸识别算法击败Facebook，在全球首次超过人眼识别率。被美国一同被加入实体清单的还有大华科技、海康威视、科大讯飞、旷视科技等AI企业。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+12月9日消息，美国财政部将于12月10日在中共投资黑名单中的“中共军工综合企业”名单上增加一家企业，即专门从事面部识别软件开发的中共国人工智能公司商汤科技。
 
-这是继2019年商汤等多家公司被美方列入实体清单后，美国政府第二次实施对商汤科技的打压措施。今年8月27日，商汤科技向港交所递交招股书；11月22日，商汤科技通过港交所聆讯，并发布聆讯后资料集。12月7日，商汤科技的上市主体商汤集团股份有限公司发布招股章程，公司将正式开展全球首次公开募股。
+据悉，12月10日是这家公司在香港股市首次公开募股的第一天，也是拜登总统与100个国家召开民主峰会的最后一天，同时，这一天也是世界人权日。
 
-中共当局利用拘押和数据控制监控，在商汤科技IPO正进入最后阶段被美国加入制裁黑名单，对其是致命打击。
+据知情人士爆料，华盛顿针对商汤科技的行动是美国为纪念世界人权日，对多个国家实施的一系列制裁措施的一部分，中共利用商汤科技的面部识别系统对新疆维吾尔族穆斯林实施了系统性人权侵犯。
 
-信息来源：
+文字版原文：[中共研发面部识别系统的公司被美国列入黑名单](https://gnews.org/zh-hans/1741944/)
 
-[【突发！IPO关键阶段，商汤科技再遭美制裁，被列入投资黑名单，公司紧急回应……】](https://mi.mbd.baidu.com/r/xSW7A2YQjm?f=cp&amp;rs=2253027488&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=0a7a359440c0b975)
+音频处理：喜山必胜Maverick
+发稿：Tom Li
+[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
+**更多资讯，更多关注**
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
