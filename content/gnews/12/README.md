@@ -2,31 +2,30 @@
 ---
 
 
-## 七哥谈新中国联邦给准备的棺材（2021-12-08摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1751751/)
+## 中共国发现首例新冠奥密克戎变异毒株
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1751791/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+**撰稿：日本东京方舟农场 老孙**
 
-来源：郭先生2021-12-08直播10：17：18 摘录
+12月13日，中共喉舌新华网报道中共国发现的首例中共病毒奥密克戎变异毒株，并称境外输入。
 
-我们要做的事情一定要是，咱做这事，咱把他们的丧事给他变成共产党有史以来最高级的。所有制造的棺材都是要特殊材料，花圈都要特殊材料，甚至用碳纤维Carbon Fiber都行。要做得精美细化，要用的音乐，喇叭在各国大使馆响起的时候，要达到了这个世界专辑音乐水平的，比七哥唱Hcoin to the moon还要厉害。叫他们的家人，他们的妈听到以后都直接想进天堂，非死不可那种的，这音乐听着他非死不可。让习近平，彭丽媛，他可以听不见，只要他听见他就想死。让王岐山，姚明珊叫他听见他就想死。他有他母亲齐心，他有习仲勋，我让他母亲齐心知道，你对待别人的父母的感觉是什么样的。你们一定要做到绝，要不就别做，要做就做到绝！我让所有驻海外的中共的大使馆的官员，我让他知道你们的父母一定不会老死，一定会被装在这个新中国联邦给准备的棺材里边去。
+据新华网报道，天津市疾病预防控制中心对12月9日天津市境外输入新冠病毒无症状感染者呼吸道标本进行新冠病毒全基因组测序和序列分析，经中国疾病预防控制中心复核，均确认检出新冠病毒奥密克戎变异株（B.1.1.529进化分支）。这是中国内地发现的首例新冠病毒奥密克戎变异株。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+![](https://assets.gnews.org/wp-content/uploads/2021/12/download-1-2.jpg)图片来自于网络
 
-**关注我们**
+奥密克戎变异株最早于2021年11月9日在南非首次检测到，距离天津发现变异毒株正好一个月，而距离春节也仅剩一月有余。中共此时公布发现奥密克戎变异株，势必为返乡人员回家过年增添阻力，借着病毒再收割一波韭菜，同时也为中共网格化控制人民、推动第三针毒苗提供助力。
 
-Discord 账号
+*参考链接：*
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+[天津从入境人员中检出新冠病毒奥密克戎变异株](http://www.news.cn/local/2021-12/13/c_1128159935.htm)
 
-Gettr 账号
+* * *
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+*素材采编：老孙*
+
+*编辑：文顺*
+
+*发布：Ranting*
 
  
 

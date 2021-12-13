@@ -2,52 +2,36 @@
 ---
 
 
-## 灭共者：废除郭七条
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1751666/)
+## 美国监管力度升级 商汤科技上市前被“拉黑”
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1751704/)
 
-**出品：纽约香草山设计部**
+**撰稿：日本东京方舟农场 老孙**
 
+12月10日，美国白宫和财政部外国资产控制办公室（OFAC）将商汤科技列入NS-CMIC清单（涉军企业清单），禁止美国企业参与相关投资，商汤科技本月将在香港挂牌上市。
 
+据IPO招股书显示，香港汇丰银行担任该交易的联席保荐人，美国公司银湖和高通参与了本次投资。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+商汤科技被列入该清单，原因是该公司的人脸识别技术在帮助中共政府镇压新疆穆斯林及维吾尔族的行动中发挥了重要作用。在此之前，该清单共有59家中国企业，华为、海康威视等公司在列。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/download-12.jpg)图片来自于网络
 
+2019年10月，美国商务部就曾将商汤科技其加入“禁售实体清单”。当时与商汤科技一起被加入该清单的还有大华科技、海康威视、科大讯飞、旷视科技等，在没有美国商务部许可的情况下，美国特定包含关键性技术的商品、服务不得提供给这些涉及军工的企业。
 
+另外，本月上交美国国防部的一项提议中显示，美国正在封堵中芯国际购买美国关键技术的一个监管漏洞。尽管中芯国际已被列入美国商务部的禁售实体清单，但中芯国际一直能够绕过监管，购买美国设备来制造芯片。
 
+据报道，在国会两党的共同呼吁下，美国政府还将在未来几个月将更多中国科技公司列入商务部的实体清单和财政部的禁止美资投资名单。
 
+*参考链接：*
 
+[美国拟禁止投资商汤科技，考虑阻止对中芯国际的关键产品出口](https://cn.wsj.com/articles/%E7%BE%8E%E5%9B%BD%E6%8B%9F%E7%A6%81%E6%AD%A2%E6%8A%95%E8%B5%84%E5%95%86%E6%B1%A4%E7%A7%91%E6%8A%80-%E8%80%83%E8%99%91%E9%98%BB%E6%AD%A2%E5%AF%B9%E4%B8%AD%E8%8A%AF%E5%9B%BD%E9%99%85%E7%9A%84%E5%85%B3%E9%94%AE%E4%BA%A7%E5%93%81%E5%87%BA%E5%8F%A3-11639097442)
 
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-en-scaled.jpg)The people of the NFSC are ready – the most painful, difficult, and challenging moment has arrived! Starting today we will alter the path of humanity completely, we will change the world, and we will fulfill the God-given mission: to take down the CCP! 
-— Mr. Miles Guo, GTV livecast on Dec. 8, 2021![](https://assets.gnews.org/wp-content/uploads/2021/12/2-6bd56a53d86ba93e-scaled.jpg)新中国联邦人已经做好了一切准备，最痛苦、最艰难、最考验人的时刻到了！从今天开始我们将彻底改变人类，改变全地球，我们会完成上天给我们的使命：消灭邪恶的共产党！
-— 2021年12月8日郭文贵先生GTV直播![](https://assets.gnews.org/wp-content/uploads/2021/12/3-copy.jpg)From today onwards there will be no more “Guo-7” (7 cardinal rules by Miles Guo). We’ll have to do whatever it takes in order to take down the CCP and to protect our fellow fighters. 
-— Mr. Miles Guo, GTV livecast on Dec. 8, 2021![](https://assets.gnews.org/wp-content/uploads/2021/12/4-cn.jpg)从今天起没有郭七条，只要能灭共的一切都得干，只要能保护好战友的一切都得干！ 
-— 2021年12月8日郭文贵先生GTV直播![](https://assets.gnews.org/wp-content/uploads/2021/12/5-1-2.jpg)Our fear, our kowtow, and our compromises – none would help keeping our loved ones safe or alive for a few more years. We have but ONE choice – either they die, or we win! 
-— Mr. Miles Guo, GTV livecast on Dec. 8, 2021![](https://assets.gnews.org/wp-content/uploads/2021/12/6-1-1.jpg)我们的恐惧、磕头、妥协并不能让我们的家人多活几年，我们只有一个选择——要么他死，要么我们赢！ 
-— 2021年12月8日郭文贵先生GTV直播
+*素材采编：老孙*
 
+*编辑：文顺*
 
-**编辑/发稿：小鹿**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-2.png)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
-
+*发布：Ranting*
 
  
 
