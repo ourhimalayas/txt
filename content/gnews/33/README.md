@@ -2,23 +2,21 @@
 ---
 
 
-## 前美国参议员呼吁美国企业从北京冬奥会撤资
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1749758/)
+## 盖特总裁杰森·米勒反击社交媒体Parler对郭先生的不实攻击
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1749756/)
 
-作者：纽约香草山 – 飞虹
+作者：银河勇气星 – 骄子
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-12月10日，美国前参议员、堪萨斯州州长、国际宗教自由大使萨姆·布朗贝克在接受媒体采访时，详细描述中共对维吾尔穆斯林人口的人权侵犯，并呼吁可口可乐、爱彼迎等美国企业撤回在北京冬奥会上的广告投入，进一步抵制北京冬奥会。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture4-6.jpg)
-萨姆认为，中共将维吾尔穆斯林关进集中营进行迫害，试图灭绝他们的信仰；还反对基督教徒，摧毁教会。中共正在与所有的信仰进行战争，并希望其侵犯宗教自由的行为被全世界其他独裁政权仿效。
+12月12日，社交媒体parler 总裁的妻子在欢迎川普夫人入驻Parler时发文称：川普家族没有任何可能再去盖特，是因为盖特接受了某位“中国富豪”投资的8千万美元。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture3-7.jpg)
+对此不实信息，盖特总裁杰森先生立即回应：社交媒体平台Parler是一个到处兜售用户隐私信息的平台，一些用户因此受到了无休止的骚扰，而盖特永远不会这样做。此外，盖特是由多个国际基金投资的，没有一分钱来自中国大陆。有远见的中国商人郭文贵先生在政治庇护下生活在美国，是一位自由捍卫者，他毕生致力于推翻共产党独裁统治。郭文贵先生在盖特公司没有任何财务和股份。Parler平台对郭文贵先生的这些不实恶意攻击，足以证明Parler的堕落。
 
-萨姆最后表示，鉴于中共的这些问题，美国应抵制即将在北京举办的冬季奥运会，但仅有拜登总统的外交抵制是不够的，应该呼吁那些持有西方公司广告资金的广告商，包括可口可乐、爱彼迎等知名公司撤回他们在北京冬奥会上投入的广告费。同时运动员也可以带着被中共关押的人的照片走进奥运场馆，表达自己的立场。
-
-参考链接：[前美国参议员呼吁美国企业从北京冬奥会撤资](https://www.breitbart.com/politics/2021/12/11/exclusive-sam-brownback-calls-on-woke-corporations-to-pull-advertising-dollars-out-of-beijing-winter-olympics/)
+参考链接：[盖特总裁杰森·米勒反击社交媒体Parler对郭先生的不实攻击](https://gettr.com/post/pjfkxk8fd2)
 
 ![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
 总编：文特
-编辑：文特
+编辑：飞虹
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**

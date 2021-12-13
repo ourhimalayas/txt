@@ -2,21 +2,23 @@
 ---
 
 
-## 盖特总裁杰森·米勒反击社交媒体Parler对郭先生的不实攻击
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1749756/)
+## “HCoin To The Moon”打榜再创历史奇迹
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1749755/)
 
-作者：银河勇气星 – 骄子
+作者：纽约香草山教育部 – 文特
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-12月12日，社交媒体parler 总裁的妻子在欢迎川普夫人入驻Parler时发文称：川普家族没有任何可能再去盖特，是因为盖特接受了某位“中国富豪”投资的8千万美元。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture3-7.jpg)
-对此不实信息，盖特总裁杰森先生立即回应：社交媒体平台Parler是一个到处兜售用户隐私信息的平台，一些用户因此受到了无休止的骚扰，而盖特永远不会这样做。此外，盖特是由多个国际基金投资的，没有一分钱来自中国大陆。有远见的中国商人郭文贵先生在政治庇护下生活在美国，是一位自由捍卫者，他毕生致力于推翻共产党独裁统治。郭文贵先生在盖特公司没有任何财务和股份。Parler平台对郭文贵先生的这些不实恶意攻击，足以证明Parler的堕落。
+12月11日， 郭文贵先生的新歌“HCoin To The Moon”打榜再次创造了一系列前所未有的历史奇迹：不仅登上了音乐界享有盛名的Billboard排行榜，更是一举取得了全球销量榜首的骄人成绩。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture2-8.jpg)
+该歌曲的音乐视频一上线就横扫全球，MV版歌曲上线第2天就位列美国，台湾，日本，俄罗斯，德国，法国，澳大利亚，加拿大，新加坡，澳门，新西兰, 匈牙利，泰国，柬埔寨，老挝，瑞典，菲律宾， 马来西亚，阿联酋， 意大利，芬兰，马耳他，斐济，拉脱维亚等26国的iTunes热门MV榜首。不仅从未有任何一个中国人做到如此，即便是世界顶级的知名音乐家也望尘莫及。
 
-参考链接：[盖特总裁杰森·米勒反击社交媒体Parler对郭先生的不实攻击](https://gettr.com/post/pjfkxk8fd2)
+这次打榜的成功，再一次显示了新中国联邦全球战友们团结的实力以及灭共的决心！
 
-![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+参考链接：[“HCoin To The Moon”打榜再创历史奇迹](https://www.gettr.com/post/pjexqk732a)
 
-总编：文特
-编辑：飞虹
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+
+总编：飞虹
+编辑：DM
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
