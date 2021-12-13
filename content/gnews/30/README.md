@@ -2,14 +2,10 @@
 ---
 
 
-## 2021年12月12日文贵大直播简报
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1751097/)
+## 12/12/2021 文贵直播：美国两党的总统候选人都会去灭共！中美经济一定脱钩，中共高官在西方的资产必被查处
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1751140/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/文贵大直播12.12.1-1.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/文贵大直播12.12.2.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/文贵大直播12.12.3.png)
-【参考链接】[https://gtv.org/broadcast/watch/61b0b18fbbd75f62e532ced9](https://gtv.org/video/id=61b5f49556f4921401b604a9)
-
-撰稿：回响 / Ermat / 卡拉马佐夫姐姐 / Naughty（文行） / 柯亭
-制作：艾伦
+秘密翻译组-北美组
 
  
 
