@@ -21,56 +21,56 @@
 ### [澳韩两国签署近7亿美元防务协议](/content/gnews/2/README.md)
  ` 澳喜特战旅Gnews`
 
-### [【玫瑰看新闻】 每日快讯 2021年12月12日](/content/gnews/3/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [一些音乐故事（二）](/content/gnews/4/README.md)
+### [当俄罗斯开始讲人权](/content/gnews/3/README.md)
  ` 骄子`
 
-### [1212文贵先生大直播（二）：俄罗斯改弦易辙，共和党卷土重来](/content/gnews/5/README.md)
+### [【玫瑰看新闻】 每日快讯 2021年12月12日](/content/gnews/4/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [一些音乐故事（二）](/content/gnews/5/README.md)
+ ` 骄子`
+
+### [1212文贵先生大直播（二）：俄罗斯改弦易辙，共和党卷土重来](/content/gnews/6/README.md)
  ` 墨尔本雅典娜农场`
 
-### [币圈新闻动态：喜币（HCN）价格目前在44.516 HDO](/content/gnews/6/README.md)
+### [币圈新闻动态：喜币（HCN）价格目前在44.516 HDO](/content/gnews/7/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [公务员降薪才刚刚开始](/content/gnews/7/README.md)
+### [公务员降薪才刚刚开始](/content/gnews/8/README.md)
  ` 银河勇气之星`
 
-### [7·24系列——钻石大王戴比尔斯De Beers](/content/gnews/8/README.md)
+### [7·24系列——钻石大王戴比尔斯De Beers](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [Hcoin To The Moon 世界各国高居榜首 新中国联邦全球灭共 诠释真、善、狠](/content/gnews/9/README.md)
+### [Hcoin To The Moon 世界各国高居榜首 新中国联邦全球灭共 诠释真、善、狠](/content/gnews/10/README.md)
  ` 焦點20分`
 
-### [Hcoin To The Moon 世界各國高居榜首 新中國聯邦全球滅共 詮釋真、善、狠](/content/gnews/10/README.md)
+### [Hcoin To The Moon 世界各國高居榜首 新中國聯邦全球滅共 詮釋真、善、狠](/content/gnews/11/README.md)
  ` 焦點20分`
 
-### [秘翻在线：韩国13日起不遵守防疫通行证规定将被罚款，私营业主：太过分](/content/gnews/11/README.md)
+### [秘翻在线：韩国13日起不遵守防疫通行证规定将被罚款，私营业主：太过分](/content/gnews/12/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共内忧外患无法满足妓女心态的俄罗斯被俄抛弃是必然](/content/gnews/12/README.md)
+### [中共内忧外患无法满足妓女心态的俄罗斯被俄抛弃是必然](/content/gnews/13/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [巴西超大样本研究：伊维菌素使住院和死亡率减半](/content/gnews/13/README.md)
+### [巴西超大样本研究：伊维菌素使住院和死亡率减半](/content/gnews/14/README.md)
  ` 墨尔本雅典娜农场`
 
-### [1212文贵大直播（一）：千古罪人张学良，末路狂奔习近平](/content/gnews/14/README.md)
+### [1212文贵大直播（一）：千古罪人张学良，末路狂奔习近平](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [南京大屠杀公祭日习近平不敢露面](/content/gnews/15/README.md)
+### [南京大屠杀公祭日习近平不敢露面](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共辟谣未接种疫苗的精子涨价400%？](/content/gnews/16/README.md)
+### [中共辟谣未接种疫苗的精子涨价400%？](/content/gnews/17/README.md)
  ` 儒为`
 
-### [12/13 每日播报｜新闻简讯:福奇疫苗谎言 南非总统仍确诊中共病毒; 韩战正式结束](/content/gnews/17/README.md)
+### [12/13 每日播报｜新闻简讯:福奇疫苗谎言 南非总统仍确诊中共病毒; 韩战正式结束](/content/gnews/18/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [美国运动员应该抵制北京冬奥会吗？](/content/gnews/18/README.md)
+### [美国运动员应该抵制北京冬奥会吗？](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [英国再次上调疫情警报至4级](/content/gnews/19/README.md)
- ` 澳喜特战旅Gnews`
 
 ### [COVID-19 最新情报｜美国omicron感染 逾七成接种过疫苗](/content/gnews/20/README.md)
  ` 關注組`
