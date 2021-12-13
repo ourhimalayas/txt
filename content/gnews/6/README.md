@@ -2,37 +2,24 @@
 ---
 
 
-## 印度总理莫迪个人推特账号被盗
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1749008/)
+## 疫情蔓延使行业“老大“关闭300家门店
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1749009/)
 
-作者：纽约香草山农场 – Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-1.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/2021-12-11T232314Z_2_LYNXMPEHBA0AV_RTROPTP_0_CLIMATE-UN_1.jpg)
-2021年12月11日，据路透社报道，印度总理办公室（PMO）在推特上表示，印度总理莫迪的个人Twitter账号”非常短暂地受到了损害”。
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-665.png)[图片来源](https://gnews.org/wp-admin/post-new.php?lang=zh-hans#imgrc=Yl4-HV4HhgmFTM)
+12月12日封面新闻报道，海底捞北京、上海多家门店暂停营业，宣布年底闭店300家，今年11月份，海底捞曾发布公告称，决定将于今年12月31日前逐步关停300家左右经营未达预期门店，四川海底捞餐饮股份有限公司发布公告称，将于2021年12月31日前逐步关停300家左右经营未达预期门店。
 
-印度总理办公室的推文称：此事已上报给推特，总理的个人推特账号@narendramodi立即得到了保护，并补充说，在该账号被泄露的短暂时期内分享的任何推文都属于无效信息。
+海底捞成立于1994年，是一家以经营川味火锅为主的连锁品牌，2018年5月17日，海底捞在港交所递交上市申请，2021年，《财富》中国500强排行榜，排名360位。
 
-目前，还暂未得知拥有7300多万关注量的莫迪个人推特账号被泄露了多长时间。
+作为中共国行业界老大的海底捞，此前还曾被曝出武汉、长沙、重庆、昆明等地多家门店也处于暂停营业状态。2021年中期报告显示，海底捞新开门店310家，总店数现达1597家。在减掉即将关停的约300家之后，海底捞门店总数仍有1300家左右。关闭300家门店约等于减少了20%的门店数量。
 
-推特发言人在给路透社的一份电子邮件中声明：推特在发现这一活动后立即采取了必要的措施来保护被攻击的账户。并补充称，目前调查发现为止没有任何其他账户有受到影响的迹象。
+各地的海底捞门关闭营业，或与疫情蔓延防控有关系，更与中共内斗相关。
 
-2020年9月，莫迪的个人网站的推特账号@narendramodi\_in也曾发生过类似事件，当时账号发布了一系列推文要求粉丝通过加密货币向一个救济基金捐款。
+消息来源：[北京、上海多家门店暂停营业，宣布年底闭店300家](https://my.mbd.baidu.com/r/xSTkw8AaB2?f=cp&amp;rs=1705362890&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=26a1d69422ced4c3)
 
-参考链接：[https://www.oann.com/india-modis-personal-twitter-handle-briefly-compromised-prime-ministers-office/?utm\_source=ground.news&utm\_medium=referral](https://www.oann.com/india-modis-personal-twitter-handle-briefly-compromised-prime-ministers-office/?utm_source=ground.news&amp;utm_medium=referral)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/unknown-2.jpg)
-编辑/校对/发稿：文留
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-1.png)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

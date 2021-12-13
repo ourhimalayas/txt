@@ -2,10 +2,10 @@
 ---
 
 
-## 日本外长出席G7会议，谴责中共人权侵犯罪行
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1748840/)
+## 全球感染中共病毒人数超过2.7亿，死亡人数超过530万
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1748848/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12._13-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1213-scaled.jpg)
 *编辑：东京樱花团/简报小组
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)

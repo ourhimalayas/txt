@@ -2,78 +2,42 @@
 ---
 
 
-## 议员兰斯·古登： 中共国 是个专制的共产主义国家，并残酷对待自己的国民
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1749031/)
+## 李木子习远平彭丽媛彭磊习桥桥齐安安把持中国过去十年
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1749046/)
 
-议员兰斯·古登： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 是个专制的共产主义国家，并残酷对待自己的国民。 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 是自由人民的繁荣兴旺的民主国家。 美国必须始终支持台湾人民！Flag of United StatesFlag of Taiwan
+**郭文贵先生：**习跟彭丽媛的衣服、买什么料子、穿什么牌、戴什么包、用什么手机、照相、出行百分之百听它女儿的，——百分之百！军队用谁、用不用谁，几乎是他弟弟远平说了算，就是中国的，我再说一遍，只有七哥2012年说过中国没有常委会，常委会就成了跟班的了，只有国家安全委员会，然后成立各个组，把各个组就架空了所有中国的政府职能机构，李克强那就是完全是个托儿，叫做一双新皮鞋下面粘了一个人家吐的一个口香糖，——就叫李克强，就粘上了，我这一会儿也不适合给你拿下去，你就粘着吧，就踩了一个这个东西，是完全没有任何政府。
 
+国家安全委员会已完全代表国家，国家安全委员会是谁啊？——习远平、彭丽媛，都有彭办在里边，他女儿直接领导着这个一切，中办主任丁薛祥什么事都得，他能给习发（信息）天天问吗？他只能问它女儿去，这个大家一定，中国的在过去的十年历史，记住今天爆料革命说的话，就是李木子、习远平、彭丽媛再加上彭磊，然后再加上习桥桥，然后加上齐安安，几乎它这家一人家11个人。
 
+对外的情报信息几乎上是靠她的安安的家人，还有安安的孩子嫁给了英国人的，像吴拉菲，吴拉菲——就叫拉菲，叫吴拉菲，完全是英国护照，是吧？这所有的包括她英国的老公、拉菲是它安安的孙女儿，是安安的闺女的孩子。
 
-> China is an authoritarian communist nation that brutalizes its own people.
-> 
-> Taiwan is a thriving democracy with free people.
-> 
-> America must ALWAYS stand with the people of Taiwan! 🇺🇸🇹🇼
-> — Lance Gooden (@Lancegooden) [December 12, 2021](https://twitter.com/Lancegooden/status/1469838950915362817?ref_src=twsrc%5Etfw)
+所以说，这习家在海外的像杨洁篪像这些人见他们，那就是狗一样，他认的这是主子。
 
+编辑整理：喜马拉雅的肉夹馍；
 
+视频制作：Cindy；
 
-参议员泰德·克鲁兹： [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 不再需要审查我们的朋友台湾。 为什么？ 因为拜登政府替他们把事干了。【转推称：这太疯狂了。白宫在民主国家峰会期间切断了台湾数字部长的视频。因为Audrey Tang的幻灯片显示台湾的颜色与中共国不同。】
+视频上传：Cindy；
 
+G-News发布：黎明之前；
 
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
 
-> The Chinese Communist Party no longer needs to censor our friend Taiwan. 
-> 
-> Why?
-> 
-> The Biden admin does it for them. 🤡🤡🤡 [https://t.co/z3473OOJAa](https://t.co/z3473OOJAa)
-> — Ted Cruz (@tedcruz) [December 13, 2021](https://twitter.com/tedcruz/status/1470215155304837122?ref_src=twsrc%5Etfw)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-前国务卿迈克·蓬佩奥： 这些奥运会将在 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 举行的事实，是对国际奥委会和全球企业不愿直面 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 提出的挑战的毁灭性陈述。 【附蓬佩奥接受福克斯新闻玛丽亚的采访视频】
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-> The fact that these Olympics are going to take place in China is a devastating statement about the International Olympic Committee and global businesses’ unwillingness to confront the challenges the CCP presents. [https://t.co/ubPx8B3tI9](https://t.co/ubPx8B3tI9)
-> — Mike Pompeo (@mikepompeo) [December 12, 2021](https://twitter.com/mikepompeo/status/1470119717939691526?ref_src=twsrc%5Etfw)
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-
-
-参议员瑞克·斯科特: [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 在过去的 20 年里，每一天都在撒谎和破坏规则。 世贸组织[@WTO](https://twitter.com/wto) 已经变成了它的傀儡，仍然将其归类为“发展中国家”。 如果拜登想要保护美国的利益，他将会要求进行真正的变革，追究这个种族灭绝政权的责任。 【转WTO 推文：今天是中共国加入世贸组织20周年。】
-
-
-
-> Communist China has spent every day of the last 20 years lying & breaking rules. The [@WTO](https://twitter.com/wto?ref_src=twsrc%5Etfw) has turned into its puppet & still classifies it as a “developing country.”
-> 
-> If Biden wants to protect U.S. interests, he’ll demand real change that holds this genocidal regime accountable. [https://t.co/i7lTrha6TQ](https://t.co/i7lTrha6TQ)
-> — Rick Scott (@SenRickScott) [December 11, 2021](https://twitter.com/SenRickScott/status/1469746219819876353?ref_src=twsrc%5Etfw)
-
-
-
-参议员泰德·克鲁兹： 民主党拒绝反抗 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)。 可耻的是，全体民主党人，除了其中一个，都投票反对了我的修正案，旨在禁止资助从 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 使用奴工的地方进口电动车。 民主党更加关注他们的绿色议程。
-
-
-
-> Democrats refuse to stand up to China.
->  
-> Shamefully, all but one Democrat voted against my amendment to ban funding for the import of EVs from where the CCP uses slave labor.
->  
-> Democrats care more about their Green agenda. [pic.twitter.com/yCmhUYtKhN](https://t.co/yCmhUYtKhN)
-> — Senator Ted Cruz (@SenTedCruz) [December 11, 2021](https://twitter.com/SenTedCruz/status/1469498863815999491?ref_src=twsrc%5Etfw)
-
-
-
-美国国会及行政当局中国委员会： 随着 2022 年冬奥会的临近，中共国政府加大了对人权律师和维权人士的拘留并使之噤声的力度。 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 操纵法律以为政府和自己的利益服务。 [#奥运囚徒](https://twitter.com/hashtag/%E5%A5%A5%E8%BF%90%E5%9B%9A%E5%BE%92?src=hashtag_click) [#OlympicPrisoner](https://twitter.com/hashtag/OlympicPrisoner?src=hashtag_click)
-
-
-
-> As the 2022 Winter Olympics approaches, the Chinese government has stepped up its ongoing campaign to detain and silence human rights lawyers and rights defenders. The Chinese Communist Party manipulates the law to serve the interests of the gov’t and itself. [#OlympicPrisoner](https://twitter.com/hashtag/OlympicPrisoner?src=hash&amp;ref_src=twsrc%5Etfw)
-> — China Commission (@CECCgov) [December 10, 2021](https://twitter.com/CECCgov/status/1469382665648365569?ref_src=twsrc%5Etfw)
-
-
-
-
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
