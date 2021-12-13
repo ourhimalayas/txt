@@ -15,83 +15,83 @@
 
 ---
 
-### [七哥谈人类必须消灭共产党（2021-12-10摘录）](/content/gnews/1/README.md)
+### [美国监管力度升级 商汤科技上市前被“拉黑”](/content/gnews/1/README.md)
+ ` 日本东京方舟农场`
+
+### [七哥谈人类必须消灭共产党（2021-12-10摘录）](/content/gnews/2/README.md)
  ` MG FARM`
 
-### [灭共者：废除郭七条](/content/gnews/2/README.md)
+### [灭共者：废除郭七条](/content/gnews/3/README.md)
  ` MOS Designer香草山设计部`
 
-### [灭共者：自挂东南枝](/content/gnews/3/README.md)
+### [灭共者：自挂东南枝](/content/gnews/4/README.md)
  ` MOS Designer香草山设计部`
 
-### [七哥说“一定会把共产党按在马桶让他喝他自己的屎”（2021-12-10摘录）](/content/gnews/4/README.md)
+### [七哥说“一定会把共产党按在马桶让他喝他自己的屎”（2021-12-10摘录）](/content/gnews/5/README.md)
  ` MG FARM`
 
-### [蒙特利尔一家医院宣布最新COVID-19 新冠变种病毒爆发-所有感染者都接种了双重疫苗](/content/gnews/5/README.md)
+### [蒙特利尔一家医院宣布最新COVID-19 新冠变种病毒爆发-所有感染者都接种了双重疫苗](/content/gnews/6/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [七哥谈法治基金（2021-12-10摘录）](/content/gnews/6/README.md)
+### [七哥谈法治基金（2021-12-10摘录）](/content/gnews/7/README.md)
  ` MG FARM`
 
-### [“俄爹”正式翻脸，习近平的信心支柱倒塌并向着自杀更近一步](/content/gnews/7/README.md)
+### [“俄爹”正式翻脸，习近平的信心支柱倒塌并向着自杀更近一步](/content/gnews/8/README.md)
  ` YALUN 亚伦`
 
-### [币安新加坡子公司将撤回牌照申请，关闭本地平台运营](/content/gnews/8/README.md)
+### [币安新加坡子公司将撤回牌照申请，关闭本地平台运营](/content/gnews/9/README.md)
  ` 纽约香草山MOS02`
 
-### [七哥谈“一切按数字说的算”（2021-12-10摘录）](/content/gnews/9/README.md)
+### [七哥谈“一切按数字说的算”（2021-12-10摘录）](/content/gnews/10/README.md)
  ` MG FARM`
 
-### [12.12文贵爆料 H-Coin To The Moon是灭共灭邪恶的力量](/content/gnews/10/README.md)
+### [12.12文贵爆料 H-Coin To The Moon是灭共灭邪恶的力量](/content/gnews/11/README.md)
  ` 秘密翻译组-原创组`
 
-### [七哥说“咱永远是赢的”（2021-12-10摘录）](/content/gnews/11/README.md)
+### [七哥说“咱永远是赢的”（2021-12-10摘录）](/content/gnews/12/README.md)
  ` MG FARM`
 
-### [病毒与疫苗灾难：主要杀掉老年人和残疾人](/content/gnews/12/README.md)
+### [病毒与疫苗灾难：主要杀掉老年人和残疾人](/content/gnews/13/README.md)
  ` MG 澳喜农场多语组`
 
-### [Omicron变种标志着全球生化攻击进入下一个阶段（一）](/content/gnews/13/README.md)
+### [Omicron变种标志着全球生化攻击进入下一个阶段（一）](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [音乐灭共：一曲Hcoin to the Moon 震惊海内外](/content/gnews/14/README.md)
+### [音乐灭共：一曲Hcoin to the Moon 震惊海内外](/content/gnews/15/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [欧盟对抵制北京冬奥会还在犹豫不决](/content/gnews/15/README.md)
+### [欧盟对抵制北京冬奥会还在犹豫不决](/content/gnews/16/README.md)
  ` HimalayaRussia`
 
-### [再次证实，自然免疫比辉瑞疫苗更能防止感染中共病毒](/content/gnews/16/README.md)
+### [再次证实，自然免疫比辉瑞疫苗更能防止感染中共病毒](/content/gnews/17/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [美国西肯塔基州居民遭遇最致命龙卷风袭击](/content/gnews/17/README.md)
+### [美国西肯塔基州居民遭遇最致命龙卷风袭击](/content/gnews/18/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [爆料革命对全世界反对新冠疫苗影响深远！](/content/gnews/18/README.md)
+### [爆料革命对全世界反对新冠疫苗影响深远！](/content/gnews/19/README.md)
  ` 焦點20分`
 
-### [中国内地出现首个奥密克戎 （Omicron）感染病例](/content/gnews/19/README.md)
+### [中国内地出现首个奥密克戎 （Omicron）感染病例](/content/gnews/20/README.md)
  ` 首尔天池农场`
 
-### [俄罗斯特使明确表示，中俄很可能要“离婚”！](/content/gnews/20/README.md)
+### [俄罗斯特使明确表示，中俄很可能要“离婚”！](/content/gnews/21/README.md)
  ` 焦點20分`
 
-### [巴西总统向强制疫苗宣战](/content/gnews/21/README.md)
+### [巴西总统向强制疫苗宣战](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
 
-### [日本民间团体举办为台湾正名签名活动](/content/gnews/22/README.md)
+### [日本民间团体举办为台湾正名签名活动](/content/gnews/23/README.md)
  ` 日本东京方舟农场`
 
-### [取消北京冬奥会中共基本宣判了死刑，比取消世贸还严重](/content/gnews/23/README.md)
+### [取消北京冬奥会中共基本宣判了死刑，比取消世贸还严重](/content/gnews/24/README.md)
  ` MG 澳喜农场多语组`
 
-### [四个州召集国民警卫队应对医疗人员配备危机](/content/gnews/24/README.md)
+### [四个州召集国民警卫队应对医疗人员配备危机](/content/gnews/25/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [习近平的女儿叫李木子。习的家人几乎控制着中国。](/content/gnews/25/README.md)
+### [习近平的女儿叫李木子。习的家人几乎控制着中国。](/content/gnews/26/README.md)
  ` 焦點20分`
-
-### [文在寅称韩国将推动实现正式宣告朝鲜战争结束这一目标](/content/gnews/26/README.md)
- ` 日本东京方舟农场`
 
 ### [2021/12/13 大卫作战室直播精要](/content/gnews/27/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
