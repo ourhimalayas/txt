@@ -2,49 +2,33 @@
 ---
 
 
-## 币安新加坡子公司将撤回牌照申请，关闭本地平台运营
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1751594/)
+## 蒙特利尔一家医院宣布最新COVID-19 新冠变种病毒爆发-所有感染者都接种了双重疫苗
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1751639/)
 
-作者：纽约香草山农场 – 四季
+编译：16626
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片157.png)据地区卫生当局称，当检测到阳性病例时，迅速采取了感染控制措施，到目前为止，工作在此医院的其他受影响的患者和工作人员的检测结果为阴性。（让-克劳德·塔利安娜/CBC）
+CBC 2021 年 12 月 12 日（让-克劳德•塔利安娜）报道，蒙特利尔一家医院宣布最新COVID-19 新冠变种病毒爆发，所有感染者都接种了双重疫苗。该篇题为《蒙特利尔湖岸总医院（Montreal’s Lakeshore Hospital）宣布 COVID-19 在此医院的的患者和工作人员中爆发》的报道编译如下：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+根据蒙特利尔西岛（Montreal’s West Island）地区卫生当局的一份声明，湖岸总医院已宣布COVID-19 新冠病毒在此医院的的患者和工作人员中爆发。
 
+声明中写道：“我们正在确认湖岸总医院爆发了新冠病毒 COVID-19，其中只有不到五名患者和员工的检测呈阳性”。
 
+蒙特利尔西岛健康和社会服务中心 (CIUSSS de l’Ouest-de-l’Île-de-Montréal) 说所有受感染的人都接种了双重疫苗。
 
+出于保密原因，卫生当局表示无法确认疫情发生在医院的哪个地方。
 
+蒙特利尔西岛健康和社会服务中心发言人海伦·伯杰龙-伽玛什（Hélène Bergeron-Gamache） 说，正在进行流行病学调查以确定爆发的原因，并指出“没有观察到与佩戴个人防护设备有关的程序违规行为”。
 
-据[ONA网站](https://www.oann.com/binance-affiliate-says-will-withdraw-singapore-licence-application/)12月13日援引路透社报道，世界上最大的加密货币交易所之一——币安，其（Binance）新加坡子公司周一表示，它将撤回其当地的牌照申请，并在这个对加密货币广泛友好的城市国家关闭其数字支付代币业务。币安新加坡子公司是100多家申请在新加坡运营许可证的加密货币公司之一。
+海伦·伯杰龙-伽玛什说，当检测到阳性病例时，我们迅速采取了感染控制措施，到目前为止，受影响单位的其他患者和工作人员的检测结果都为阴性。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1682-1.jpg)在2021年7月13日拍摄的这幅插图中，Biance应用程序出现在智能手机上。(REUTERS/Dado Ruvic/插图)
+此篇报道最后强调：“这种情况提醒我们，病毒仍在传播，我们必须格外小心”。
 
-币安表示，新加坡将继续作为其区块链创新中心，但其用于交易法定货币和加密货币的新加坡平台将在明年2月中旬关闭。而早在9月，该公司已经表示，由于当地的监管，新加坡的用户将无法在其全球平台上进行交易。
+参考资料：[CBC News] [https://www.cbc.ca/news/canada/montreal/lakeshore-hospital-outbreak-1.6282705](https://www.cbc.ca/news/canada/montreal/lakeshore-hospital-outbreak-1.6282705)
 
-近期，香港、英国、德国和日本等国的金融监管机构已经把目标对准了币安，提出了消费者保护和反洗钱检查等问题。一些国家已经禁止该平台从事某些业务，而另一些国家则警告消费者它没有获得运营许可。
+编辑/发布：LILY
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月.png)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
-
+20211213
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

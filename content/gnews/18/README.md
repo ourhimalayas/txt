@@ -2,33 +2,48 @@
 ---
 
 
-## 七哥说“咱永远是赢的”（2021-12-10摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1751564/)
+## 币安新加坡子公司将撤回牌照申请，关闭本地平台运营
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1751594/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+作者：纽约香草山农场 – 四季
 
-来源：郭先生2021-12-10直播09：52：12 摘录
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-这个狂妄啊，你听这多伟大的事，但你能想到吗，咱2019年说他办不成， 谁敢说咱事天下第一，咱又为啥说他办不成呢，咱吹牛呢，咱每次都吹对是吗？预测对吗？不是但。我告诉大家，掌握共产党的历史和脉搏，和内部的情报，和对共产党这些老杂毛的个人性格上的判断，只要你准确了，咱永远是赢的。咱知道共产党的内部是怎么想的，当习近平这个事，下面都鼓掌了，好啊，好啊，太伟大了，你就是秦始皇啊，这个党没你就完了。所以说你要继续干呐。我告诉你，所有的独裁包括卡达菲，萨达姆，都是被家人和身边的人忽悠出来的。而且所有的独裁者真的从过去编故事说自己是神，看了神，你到最后真相信自己是神，最后是灭掉神，自己代替神，然后最后是自己真心相信自己是神，所有人都是这个死亡的步骤。
 
-校对：HimaFaFA
-发布：HimaBoy
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
 
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-**关注我们**
+据[ONA网站](https://www.oann.com/binance-affiliate-says-will-withdraw-singapore-licence-application/)12月13日援引路透社报道，世界上最大的加密货币交易所之一——币安，其（Binance）新加坡子公司周一表示，它将撤回其当地的牌照申请，并在这个对加密货币广泛友好的城市国家关闭其数字支付代币业务。币安新加坡子公司是100多家申请在新加坡运营许可证的加密货币公司之一。
 
-Discord 账号
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1682-1.jpg)在2021年7月13日拍摄的这幅插图中，Biance应用程序出现在智能手机上。(REUTERS/Dado Ruvic/插图)
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+币安表示，新加坡将继续作为其区块链创新中心，但其用于交易法定货币和加密货币的新加坡平台将在明年2月中旬关闭。而早在9月，该公司已经表示，由于当地的监管，新加坡的用户将无法在其全球平台上进行交易。
 
-Gettr 账号
+近期，香港、英国、德国和日本等国的金融监管机构已经把目标对准了币安，提出了消费者保护和反洗钱检查等问题。一些国家已经禁止该平台从事某些业务，而另一些国家则警告消费者它没有获得运营许可。
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月.png)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 
