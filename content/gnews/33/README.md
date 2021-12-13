@@ -2,30 +2,36 @@
 ---
 
 
-## 七国集团警告俄罗斯如果入侵乌克兰后果很严重
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1749351/)
+## 菲律宾央行正在调查BDO银行遭黑客而丢失资金事件
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1749376/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-63.png)
-图片来源：www.epochtimes.com
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-美联社12月12日报道，七大经济强国集团周日告诉俄罗斯必须降低在乌克兰边境区域的军事积聚，警告俄罗斯如果入侵乌克兰将会招来严重后果，并对俄罗斯的经济造成严重创伤。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/shutterstock-bdo-card-ls.jpg)图片来源：rappler
 
-美国，英国，和七国集团的其他成员的外交部长们与欧盟外交事务主席共同发布了一项声明，称他们团结一致共同谴责俄罗斯在乌克兰附近军事集结和对乌克兰的攻击性言辞。
 
-七国集团要求俄罗斯必须“降低紧张态势，寻求外交途径，坚持国际上的军事行动透明化的承诺。” 同时表扬了乌克兰的“克制”。
+#### 编译 ：小红帽
 
-该声明说：“ 任何运用武力来改变边境现状都会在国际法之下受到禁止，俄罗斯在乌克兰边境地区的任何进一步军事行动毫无疑问会受到严厉的惩罚和付出沉重的代价。”
+**据彭博社12月12日报道，菲律宾央行正在调查有关该国资产最大的银行BDO Unibank Inc.的一些客户的投诉。该公司的一些客户因在线欺诈而蒙受损失。该欺诈犯罪分子将资金汇入到菲律宾联合银行（UnionBank）的账户。**
 
-在英国利物浦市举行的七大富有的民主国家外交部长会议中，俄罗斯在乌克兰边境地区的武器和军事人员的集结是周日的主要议题。
+“我们正在与BDO银行以及UBP银行就这一事件进行密切协调，以确保采取补救措施，包括偿还受影响的消费者，”央行行长本杰明·迪奥克诺 (Benjamin Diokno)周日在一份声明中表示。自本周初以来，监管机构一直在关注通过社交媒体发布的激增投诉。
 
-美国和其同盟国担心俄罗斯的军事集结是入侵的前兆，并发誓一旦发生必定会给予俄罗斯经济上的严厉的制裁。
+BDO银行在一份声明中表示，BDO意识到一种“复杂的欺诈技术”已经影响了其部分客户。“我们已经实施了额外的安全控制措施，以阻止进一步的尝试并继续保护银行凭据，”银行行长内斯托尔·谭（Nestor Tan）告诉菲律宾每日问询者，这一事件“影响了一个有10年历史的网络服务。该服务将被逐步淘汰”，应该在明年初会推出替代品。
 
-而俄罗斯否认有任何攻击乌克兰的计划，并指责基辅的过份的设计。
+联合银行冻结了几个从BDO账户接收资金的账户，总裁埃德温·包蒂斯塔（Edwin Bautista）说，“我们将毫不犹豫地对使用其帐户进行犯罪活动的个人采取法律行动”。
 
-##### **新闻来源： **[G7 warns Russia of ‘massive’ consequences if Ukraine invaded](https://apnews.com/article/g7-russia-ukraine-5137e7b6277f2fdbaf711807d9cfc423)
+马尼拉公报引用了一个不明身份的消息来源称，其中一个联合银行账户在12月11日使用500万比索（99，280美元）的被盗资金购买了比特币。
 
-# ** **
+新闻来源：[Philippine Central Bank Probes Hacking Complaints at Banks – Bloomberg](https://www.bloomberg.com/news/articles/2021-12-12/philippines-union-bank-freezes-some-accounts-on-hacking-report)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

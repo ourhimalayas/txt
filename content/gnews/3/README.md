@@ -2,21 +2,12 @@
 ---
 
 
-## 雅典娜时报-第141期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1749689/)
+## 苏立文与中共外交官会晤中重申将捍卫其利益和台海稳定
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1749731/)
 
-**《雅典娜时报》汇聚全球新闻时事**
+12/10/2021 苏立文：作为美国，我们有责任与盟友和伙伴合作，明确我们的立场，为我们的朋友挺身而出，为我们的利益挺身而出。美国将采取与《台湾关系法》下的义务相一致的措施支持台湾，我们将继续与盟国和合作伙伴密切协商。
 
-#### 编辑：精靈藍
-排版：小蚂蚁614
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-131.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/2-50.jpg)
-发布：kk
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
