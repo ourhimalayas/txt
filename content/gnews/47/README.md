@@ -2,44 +2,31 @@
 ---
 
 
-## NIH被揭露在疫情开始前与Moderna签署协议
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1749877/)
+## COVID-19 最新情报｜美国omicron感染 逾七成接种过疫苗
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1749905/)
 
-**简评：**
+**疫情關注組 / 發佈時間｜13/12/2021**
 
-在新冠疫情爆发前两周，美国国立卫生院(NIH)与Moderna签订了一份共同所有并研发新冠病毒疫苗的保密协议，签署人是武汉病毒研究所石正丽的合作伙伴。这很奇怪。而且同样也是这群人，在疫情爆发后的2020年1月份举行会议，掩盖和攻击所有怀疑病毒来自实验室的人。兰德保罗参议员正在关注此事，福奇需要给出解释。
-
-YouTube视频链接：
-
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
 
-[GTV视频链接](https://gtv.org/video/id=61b6a0fea68b4f4b28e72a2d)
+外媒指出，omicron在美国的感染情形还没达到巅峰前，新冠确诊者、住院人数便飙升，疫情再次升温的情形包含疫苗接种率高的地区。美国新冠新病例从11月22日的95000例/单日，飙升至每日近11万9千例，住院治疗人数比11月增加了25%。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/coronavirus-data-explorer.png)美国每7日确诊的滚动平均值。来源：Our World in Data
+美国病例增长几乎来自于delta变种，最新发现的omicron尚未成为威胁美国的主要变种（指12/09撰文时）。据[CDC数据](https://www.cdc.gov/coronavirus/2019-ncov/variants/omicron-variant.html)，美国新病例增长时omicron已在至少21个州被发现，基于omicron高传染的特性，omicron将形成美国另一威胁。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截圖-2021-12-13-下午3.58.44.png)來源：CDC
+## 新英格兰地区高接种率 仍发生感染数激增
 
-**视频字幕：**
+拜登政府持续推广加强针，于12月的第一周便接种了近700万剂。VOA援引美联社统计数据，美国完全接种人口比例最高的五个州都在新英格兰地区，分别是：佛蒙特州、康涅狄格州、缅因州、罗德岛州和马萨诸塞州，新罕布什州接种率排名第十。
 
-**Glenn****：**我们当时还不知道疫情，(2019年)12月，我们开始得到一些消息。中共声称他们那里在12月31号有一些疫情。但是巴里克博士在那之前与Moderna签了一份协议。
+新英格兰地区的六个州，疫苗完全接种率从69.4%-61.5%不等。而全美国平均完全接种率为55.5%。尽管新英格兰地区的接种率高于全国平均，但本次仍成为“新病例快速增长最严重的地区之一”。
 
-我想读一下。这是一份保密协议，大概有158页。直接跳到104页，他们签了一份特别的保密协定。
+## CDC: 美国75% omicron病例曾接种新冠疫苗
 
-看上去美国国立卫生院向巴里克输送了技术。协议中写道：“mRNA冠状病毒疫苗由国家过敏及传染病研究所，与Moderna共同所有并研发”。
+美联社采访CDC 主任罗谢尔·瓦伦斯基 (Rochelle Walensky) 博士称，美国自12 月 1 日首次确认 omicron 变种以来，已知感染omicron的人中四分之三接种了疫苗，三分之一接种过加强针。同时期，旧金山东湾也爆发了omicron 感染，12病例中11例接种了疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-3.png)
+来源｜[VOA](https://www-voanews-com.translate.goog/a/virus-surge-hits-new-england-despite-high-vaccination-rates/6255569.html?_x_tr_sl=en&amp;_x_tr_tl=zh-TW&amp;_x_tr_hl=zh-TW&amp;_x_tr_pto=sc)、[SF](https://www.sfchronicle.com/health/article/Omicron-outbreak-from-out-of-state-wedding-tied-16685845.php?utm_campaign=premiumsfgate_breakingnews_20211208&amp;utm_source=newsletter&amp;utm_medium=email)
 
-这很奇怪，因为我们知道疫情在两周后爆发了。他们在疫情爆发前的两周签订了合同，而且签署人正是石正丽的合作伙伴。
-
-更可怕的是，正是同样这群人，在（2020年）1月底举行会议，掩盖和攻击所有怀疑病毒来自实验室的人。
-
-他们说病毒不可能来自实验室，甚至不要往这个方向看。这看上去是共谋。
-
-我们把这个协议交给了一些众议员和参议员。现在兰德保罗议员正关注此事，福奇博士需要对此给个说法。
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
