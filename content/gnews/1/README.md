@@ -2,24 +2,42 @@
 ---
 
 
-## 2021.12.12文贵爆料：坚决反对党内各方杀掉习近平 灭共后习自然灭亡
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1749305/)
+## 因大不敬彭丽媛收拾掉房峰辉,李木子定马化腾和马云生死
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1749323/)
 
-撰稿：Naughty（文行）
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-653.png)图片来源：GTV & GETTR
-郭文贵先生在2021年12月12日的大直播中提到，美国情报界人士征求他对中共国内有多方势力想杀死习近平的看法，郭先生明确表示，坚决反对杀掉习。郭先生深入分析了以下原因。
+**郭文贵先生：**我们的李木子小姐出国是什么？跟着爸妈出国没有一个人敢偷拍她照片的，你偷拍的结局像金正恩一样，我狗绝了你！用犬吃了你！习近平瞪一下人不一定把人吓死，如果李木子、彭丽媛要看着哪个将军说我瞪着眼看几分钟、咬咬牙，绝对是他绝对吓死。
 
-在独裁统治的体系里，作为首脑被干掉的事情会不时地发生。像萨达姆，乌干达的阿明，卡扎菲，斯大林，赫鲁晓夫，毛泽东、刘少奇无不如此。尤其在共产党体系内，这是你死我活的关系，是没有选择必须要做的事情，是这个体系必然的规律。
+房峰辉第一个最惹上的人是谁？就是彭丽媛儿是吧，跟阎维文他老拿阎维文不当回事儿是吧？最后房峰辉被抓了吧？抓得很彻底吧，是吧？
 
-郭先生说如果现在干掉习，会使这场人类灾难延续更多年。因为只要习被任何人杀掉，习就成为了共产党的英雄，甚至会成为一半愚蠢的被洗脑中国人的英雄，这是一点都不用怀疑的。而且这一半人会誓死保护习近平今天的习太阳思想，这是一个社会关系学历史学的一个必然结果。如果把习变成了这种人物，那就真的成了中国的悲剧，成了我们灭共事业的重大挫折。我们应该把这个体制消灭，习自然而然就灭掉了。
+人家习的女儿李木子出来，没有人很多没见过她本人，她有各种身份出席，很多傻瓜包括马化腾这么聪明一个人，一开始他并不知道这是习的女儿，人家跟他接触了几次以后，——这个人可以留着用，但是绝对要注意他跟西方的亲近。你还见马化腾出过国吗？没见他出国了吧？不再出国了吧！
 
-郭先生强调，让习活下去还有一个重要原因，现在只有习能帮助爆料革命完成关键的想法：打台湾，在内部杀土豪，党内清党，垄断思想，灭掉宗教，共享财富。最关键的是他要挑战美国，这让美国更坚定的和爆料革命站在一起。
+就跟马云就是说马云这个人是有野心的，搞政治野心的，他必须被干掉啊！是吧？那很多故事我现在不好意思讲，都是我的朋友，都不知道跟李木子吃完饭了还吹牛呢，我心里话你的末日到了，我知道她是谁。
 
-因此郭先生表示坚决反对杀掉习近平，要让他继续活下去，直到把共产党消灭为止。
+编辑整理：喜马拉雅的肉夹馍；
 
-参考链接：[https://gtv.org/video/id=61b5f49556f4921401b604a9](https://gtv.org/video/id=61b5f49556f4921401b604a9)
+视频制作：小满；
 
-校对发布：Shifter
+视频上传：Cindy；
+
+G-News发布：黎明之前；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]apanGalaxyII推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

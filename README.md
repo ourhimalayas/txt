@@ -15,113 +15,113 @@
 
 ---
 
-### [2021.12.12文贵爆料：坚决反对党内各方杀掉习近平 灭共后习自然灭亡](/content/gnews/1/README.md)
+### [因大不敬彭丽媛收拾掉房峰辉,李木子定马化腾和马云生死](/content/gnews/1/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [澳大利亚首次：特斯拉将支持昆士兰州中部的电池项目](/content/gnews/2/README.md)
+ ` 走进澳洲`
+
+### [2021.12.12文贵爆料：坚决反对党内各方杀掉习近平 灭共后习自然灭亡](/content/gnews/3/README.md)
  ` 秘密翻译组-原创组`
 
-### [欧盟呼吁中共释放人权捍卫者](/content/gnews/2/README.md)
+### [欧盟呼吁中共释放人权捍卫者](/content/gnews/4/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美日澳宣布联手为太平洋3岛国建设海底电缆 抵抗中共](/content/gnews/3/README.md)
+### [美日澳宣布联手为太平洋3岛国建设海底电缆 抵抗中共](/content/gnews/5/README.md)
  ` 日本东京方舟农场`
 
-### [中共的亚洲计划](/content/gnews/4/README.md)
+### [中共的亚洲计划](/content/gnews/6/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中共延长生育假超300天，就能解除人口危机？](/content/gnews/5/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共的邪恶统治导致失业大潮！](/content/gnews/6/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [青蒿素无价宝](/content/gnews/7/README.md)
- ` 墨尔本雅典娜农场`
-
-### [在太空之后，前泽将实现他的下一个梦想](/content/gnews/8/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [日本先进技术涉嫌外流至中共国被用于强化军事](/content/gnews/9/README.md)
- ` 日本东京方舟农场`
-
-### [樱花灭共诗——雪夜抒怀](/content/gnews/10/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [日本公共安全调查厅指出，警惕中共国研究人员泄漏先进武器技术](/content/gnews/11/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [已接种疫苗的南非总统被确诊感染中共病毒](/content/gnews/12/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [【文炬拾字】移民园艺师高工](/content/gnews/13/README.md)
- ` 温哥华扬帆农场`
-
-### [12/12/2021 文贵直播：习的疯狂将让他自取灭亡 &#8211; 他一定会打台湾，消灭国内私人企业家，抓更多党员](/content/gnews/14/README.md)
- ` 秘密翻译组-北美组`
-
-### [中国所有音乐界还要导演要么跪舔彭丽媛活着要么被消灭](/content/gnews/15/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [七国集团警告俄罗斯：如进攻乌克兰将面临沉重代价](/content/gnews/16/README.md)
- ` 墨尔本雅典娜农场`
-
-### [【#G时新闻】意大利民众焚烧“绿色通行证” 声援未接种人士！](/content/gnews/17/README.md)
- ` G-时新闻`
-
-### [2021年12月12日文贵大直播要点海报](/content/gnews/18/README.md)
- ` 秘密翻译组-原创组`
-
-### [加密货币交易平台Binance.sg于明年2月13日前关闭](/content/gnews/19/README.md)
- ` 首尔天池农场`
-
-### [视频| 社交媒体是共产党的核武器](/content/gnews/20/README.md)
- ` MOSREC`
-
-### [视频| 共产党金融房地产灾难是对全世界的合法洗劫（下）](/content/gnews/21/README.md)
- ` MOSREC`
-
-### [习近平女儿李木子的纽约豪宅、粉钻、私人飞机都是毛毛雨](/content/gnews/22/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [视频| 共产党金融房地产灾难是对全世界的合法洗劫（上）](/content/gnews/23/README.md)
- ` MOSREC`
-
-### [中纪委谴责美国海外反腐 中共胆怯了](/content/gnews/24/README.md)
- ` HimalayaRussia`
-
-### [李木子习远平彭丽媛彭磊习桥桥齐安安把持中国过去十年](/content/gnews/25/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [议员兰斯·古登： 中共国 是个专制的共产主义国家，并残酷对待自己的国民](/content/gnews/26/README.md)
- ` 美国政要直译推`
-
-### [文贵爆料12.10 H-Coin To The Moon完美诠释音乐真义](/content/gnews/27/README.md)
- ` 秘密翻译组-原创组`
-
-### [疫情蔓延使行业“老大“关闭300家门店](/content/gnews/28/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [印度总理莫迪个人推特账号被盗](/content/gnews/29/README.md)
- ` GTV News Talk`
-
-### [墨尔本12月12日反封锁、反强制疫苗游行简报](/content/gnews/30/README.md)
- ` 澳喜特战旅Gnews`
-
-### [李木子吃人肉喝人心都正常，孙瑶、贯君、刘呈杰差太远](/content/gnews/31/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [串珠480:中共控制了海外所有大型严肃主流媒体](/content/gnews/32/README.md)
- ` 郭爆料串珠`
-
-### [GTV新闻访谈简报|2021年12月12日晚](/content/gnews/33/README.md)
+### [中共推崇的“民族英雄”张学良实为民族败类](/content/gnews/7/README.md)
  ` 纽约香草山MOS01`
 
-### [韩国总统文在寅表示不考虑抵制北京冬奥会](/content/gnews/34/README.md)
+### [中共延长生育假超300天，就能解除人口危机？](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [7·24系列——“西安事变”真相](/content/gnews/9/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [中共的邪恶统治导致失业大潮！](/content/gnews/10/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [青蒿素无价宝](/content/gnews/11/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [在太空之后，前泽将实现他的下一个梦想](/content/gnews/12/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [日本先进技术涉嫌外流至中共国被用于强化军事](/content/gnews/13/README.md)
+ ` 日本东京方舟农场`
+
+### [樱花灭共诗——雪夜抒怀](/content/gnews/14/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [日本公共安全调查厅指出，警惕中共国研究人员泄漏先进武器技术](/content/gnews/15/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [已接种疫苗的南非总统被确诊感染中共病毒](/content/gnews/16/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [【文炬拾字】移民园艺师高工](/content/gnews/17/README.md)
+ ` 温哥华扬帆农场`
+
+### [12/12/2021 文贵直播：习的疯狂将让他自取灭亡 &#8211; 他一定会打台湾，消灭国内私人企业家，抓更多党员](/content/gnews/18/README.md)
+ ` 秘密翻译组-北美组`
+
+### [中国所有音乐界还要导演要么跪舔彭丽媛活着要么被消灭](/content/gnews/19/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [七国集团警告俄罗斯：如进攻乌克兰将面临沉重代价](/content/gnews/20/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [【#G时新闻】意大利民众焚烧“绿色通行证” 声援未接种人士！](/content/gnews/21/README.md)
+ ` G-时新闻`
+
+### [2021年12月12日文贵大直播要点海报](/content/gnews/22/README.md)
+ ` 秘密翻译组-原创组`
+
+### [加密货币交易平台Binance.sg于明年2月13日前关闭](/content/gnews/23/README.md)
  ` 首尔天池农场`
 
-### [串珠479:中共高层几十年前就开始做“人口消减“计划](/content/gnews/35/README.md)
- ` 郭爆料串珠`
+### [视频| 社交媒体是共产党的核武器](/content/gnews/24/README.md)
+ ` MOSREC`
 
-### [串珠478:中共高官为何无人感染？](/content/gnews/36/README.md)
- ` 郭爆料串珠`
+### [视频| 共产党金融房地产灾难是对全世界的合法洗劫（下）](/content/gnews/25/README.md)
+ ` MOSREC`
+
+### [习近平女儿李木子的纽约豪宅、粉钻、私人飞机都是毛毛雨](/content/gnews/26/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [视频| 共产党金融房地产灾难是对全世界的合法洗劫（上）](/content/gnews/27/README.md)
+ ` MOSREC`
+
+### [中纪委谴责美国海外反腐 中共胆怯了](/content/gnews/28/README.md)
+ ` HimalayaRussia`
+
+### [李木子习远平彭丽媛彭磊习桥桥齐安安把持中国过去十年](/content/gnews/29/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [议员兰斯·古登： 中共国 是个专制的共产主义国家，并残酷对待自己的国民](/content/gnews/30/README.md)
+ ` 美国政要直译推`
+
+### [文贵爆料12.10 H-Coin To The Moon完美诠释音乐真义](/content/gnews/31/README.md)
+ ` 秘密翻译组-原创组`
+
+### [疫情蔓延使行业“老大“关闭300家门店](/content/gnews/32/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [印度总理莫迪个人推特账号被盗](/content/gnews/33/README.md)
+ ` GTV News Talk`
+
+### [墨尔本12月12日反封锁、反强制疫苗游行简报](/content/gnews/34/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [GTV新闻访谈简报|2021年12月12日晚](/content/gnews/35/README.md)
+ ` 纽约香草山MOS01`
+
+### [韩国总统文在寅表示不考虑抵制北京冬奥会](/content/gnews/36/README.md)
+ ` 首尔天池农场`
 
 ### [12/12/2021 文贵直播：俄罗斯、华尔街、好莱坞和香港四大不要脸促成了习的狂妄，敢在全球放毒](/content/gnews/37/README.md)
  ` 秘密翻译组-北美组`
