@@ -2,22 +2,61 @@
 ---
 
 
-## 美国制裁效果显现，商汤科技IPO“泡汤”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1749626/)
+## 国际货币基金组织提出对加密货币行业进行全球监管
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1749667/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-673.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimages.wsj.net%2Fim-449875%3Fwidth%3D860%26height%3D573&amp;imgrefurl=https%3A%2F%2Fcn.wsj.com%2Farticles%2F%25E5%2595%2586%25E6%25B1%25A4%25E7%25A7%2591%25E6%258A%2580%25E6%258E%25A8%25E8%25BF%259F%25E9%25A6%2599%25E6%25B8%25AFipo-%25E7%25BE%258E%25E5%259B%25BD%25E5%25B0%2586%25E5%2585%25B6%25E5%2588%2597%25E5%2585%25A5%25E6%258A%2595%25E8%25B5%2584%25E9%25BB%2591%25E5%2590%258D%25E5%258D%2595-11639182949&amp;tbnid=LPfK0N3UYhJY4M&amp;vet=12ahUKEwiFsZ_lluD0AhX_HTQIHYs9Ci8QMygEegUIARDBAQ..i&amp;docid=hzi7RLcCCBSCaM&amp;w=860&amp;h=573&amp;itg=1&amp;q=%E5%95%86%E6%B1%A4%E7%A7%91%E6%8A%80&amp;ved=2ahUKEwiFsZ_lluD0AhX_HTQIHYs9Ci8QMygEegUIARDBAQ)
-路透社12月13日报道，中共国人工智能初创公司商汤科技周一将撤回其7.67亿美元的香港首次公开发行(IPO)，并更新其招股说明书，此前该公司被列入美国投资黑名单。
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-这两位直接知情的消息人士表示，商汤科技将很快向港交所递交正式公告。该公司周五被拜登政府列入美国投资黑名单。三名消息人士证实了商汤科技撤回目前形式IPO的决定，其中两人补充表示，该公司将更新招股说明书中的多项风险因素，以期重新启动IPO程序。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/shutterstock-bdo-card-ls-1.jpg)
 
-根据其监管文件，商汤原本计划出售15亿股股票，价格在3.85-3.99港元区间，以筹集至多7.67亿美元，这一数字已在今年稍早从20亿美元的目标调降。不过该公司没有按照计划在周五确定其发行价，而是与香港证交所及其律师团队就这项交易的未来进行紧急磋商。
 
-消息来源：[中国商汤科技将撤回7.67亿美元的香港IPO申请–消息人士（更新版）](https://cn.reuters.com/article/sensetime-ipo-us-blacklist-1213-idCNKBS2IS06J?il=0)
+ 
+图片来源:   Bitcoin.com
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
+
+#### 编译 ：小红帽
+
+国际货币基金组织（IMF）表示，加密资产正在扰乱现有的金融体系，因此应该以全面和一致的方式在全球范围内对其进行监管。
+
+国际货币基金组织最近发布了一些关于如何有效监管全球加密货币行业的建议。
+
+在最近的一篇博客文章中，国际货币基金组织承认加密资产正在迅速改变整个全球金融体系。然而，决策者仍在努力监控与市场相关的风险。
+
+#### 监管机构必须迅速采取行动
+
+该金融机构指出，加密空间的快速增长使其与受监管的经济体系相互联系，同时仍然不受监管。
+
+国际货币基金组织指出，如果全球金融监管机构不迅速采取行动减轻威胁并利用加密货币的革命性力量，这些相互联系可能会带来严重风险。
+
+“决策者努力监控这个不断发展的行业的风险，其中许多活动不受监管。事实上，我们认为这些金融稳定风险可能很快就会在一些国家成为系统性风险，”报告指出。
+
+国际货币基金组织呼吁采取“全面、一致和协调”的方法来监管加密货币空间，并强调不协调的监管措施可能“促进潜在的不稳定资本流动”，因为大多数加密货币公司都是跨境运营的。
+
+#### **国际货币基金组织的建议**
+
+为了在全球范围内有效监管加密货币，国际货币基金组织列出了监管机构必须包括的三个核心要求。
+
+首先，提供多种关键功能（包括数字资产的传输、存储、结算和托管）的加密货币服务提供商应获得许可或授权。还应明确说明许可证发放的标准，并指定有关机构。
+
+其次，要求适合这些加密货币资产的主要用例。例如，投资产品应具有与证券经纪人类似的要求，并应受到证券监管机构的监控。支付产品应具有与银行类似的要求，并应由中央银行监管。
+
+第三，不同国家的政府应该授权受监管的金融机构提供其加密风险敞口和参与的清晰而全面的细节。
+
+国际货币基金组织还警告说，大多数发展中国家越来越多地使用加密货币。
+
+一些新兴市场和发展中经济体面临着通过加密资产进行货币替代的更直接和更严重的风险。面对加密货币化，资本流动管理措施需要进行微调。
+
+新闻来源：[Crypto Regulations Should Be Comprehensive, Consistent, and Coordinated, Says IMF (cryptopotato.com)](https://cryptopotato.com/crypto-regulations-should-be-comprehensive-consistent-and-coordinated-says-imf/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
