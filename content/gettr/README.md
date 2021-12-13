@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/13/2021 6:07 AM (UTC)`
+
+12/12/2021 Miles Guo: There will be more Western countries boycotting the 2022 Winter Olympics, with only NBC paying the CCP 2 billion USD for the broadcast rights. This is an extremely huge humiliation for Xi Jinping. The term “boycott” is banned in the CCP’s propaganda in Communist China, and the CCP is looking for the “VIPs” of the Winter Olympics who want to be paid a high price. Will the West’s boycotts of the Winter Olympics be Xi Jinping’s waterloo?<br/><br/>12/12/2021 文贵直播：西方将有更多国家抵制冬奥会，目前只有NBC支付了二十亿转播费，这对习是极大的羞辱，现在对内宣传禁止提“抵制”二字，对外倾一国之力找一群要饭的当贵宾，西方抵制冬奥会真的会是习近平的滑铁卢吗？<br/>
+![img](https://media.gettr.com/group27/getter/2021/12/13/06/c6dd207e-e6b1-8266-4a51-2c577a92997c/out.jpg)
+
+---
+
 `@miles 12/13/2021 4:51 AM (UTC)`
 
 12/12/2021 Miles Guo: Xi's insanity will bring about his own demise - he will surely invade Taiwan, eliminate the Chinese private entrepreneurs, and arrest more CCP members; Xi’s kicking my father and the Pangu employees to the cold winter streets is as brutal as what Saddam had done to his son-in-law!<br/><br/>12/12/2021 文贵直播：习的疯狂将让他自取灭亡 - 他一定会打台湾，消灭国内私人企业家，抓更多党员；习将文贵的父亲和盘古员工扔到大街上跟萨达姆对待其女婿的残暴行径如出一辙！<br/>
@@ -143,12 +150,6 @@ Dec 11，2021 Mr. Miles Guo's “HCoin To The Moon ” has once again created a 
 
 12/10/2021 Miles Guo: Four European countries say they will boycott the Winter Olympics and consider decoupling from the CCP economy - This is a historic event! The reason is a) the CCP threatened the US, Japanese, and European companies in Communist China regarding these countries’ boycotts of the Winter Olympics and b) the Russians demanded that the US and Europe separate them from the CCP<br/><br/>12/10/2021 文贵直播：欧洲四国表示将抵制冬奥会并考虑与中共经济脱钩是历史性的事件！原因是中共就抵制冬奥会威胁美日欧的在华企业以及俄罗斯要求美欧将其与中共分开<br/>
 ![img](https://media.gettr.com/group26/getter/2021/12/11/01/d8fe228d-5d69-d73e-b885-54cfc8b63d07/out.jpg)
-
----
-
-`@miles 12/11/2021 12:59 AM (UTC)`
-
-10/12/2021 MV "Hcoin To the Moon" Hits #1 🥇on 29 Countries' iTunes Top Music Video Charts on 1st Day of Launch! 🎉🎉🎉🎉🎉🎉🎉<br/>Thank you very much to all our brothers and sisters in HongKong, USA, Taiwan, Japan, Russia, Germany, France, Australia, Canada, Singapore, Macau, New Zealand, Hungary, Thailand, Cambodia, Laos, Netherlands, Sweden, Philippines, Malaysia, UAE, Portugal, Italy, UK, Vietnam, Finland, Greece, Denmark, Switzerland!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1740913/<br/><br/>12月10号，MV版Hcoin To the Moon上线第1天位列29国iTunes热门MV榜首🥇！🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港，美国，台湾，日本，俄罗斯，德国，法国，澳大利亚，加拿大，新加坡，澳门，新西兰, 匈牙利，泰国，柬埔寨，老挝，荷兰， 瑞典，菲律宾， 马来西亚，阿联酋， 葡萄牙， 意大利， 英国，越南， 芬兰，希腊， 丹麦，瑞士的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏
 
 ---
 
