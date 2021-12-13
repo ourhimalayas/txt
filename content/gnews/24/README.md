@@ -2,33 +2,38 @@
 ---
 
 
-## 中共推崇的“民族英雄”张学良实为民族败类
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1749280/)
+## 澳大利亚首次：特斯拉将支持昆士兰州中部的电池项目
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1749309/)
 
-作者：香草山金融部 – 闲聊钱币
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
-1936年12月12日，发生了震惊中外的西安事变。主角之一张学良被广大洗脑了的普通百姓认为是民族英雄。然而郭文贵先生在12月12日他的大直播里了深刻的揭露和分析了西安事变及张学良背后鲜为人知的故事。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture1-20.jpg)
-郭先生说张学良本就是个纨绔子弟，根本没有抗过日。他和他爹张作霖既不相信共产党，也不相信国民党，只想占据东北，自立为王。张学良企图通过绑架蒋介石趁国民党最弱之时当老大。西安事变完全是张学良以个人一己之私至广大百姓于战火而不顾。
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-郭先生还说西安事变让本来已经奄奄一息的共产党死灰复燃，进而统治中华大地七十多年。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Untitled-16.png)图片来源：TESLA
 
-郭先生最后强调千万要注意爆料革命内部外部的打着民族幌子的人面兽心的张学良们。
 
-参考来源：[中共推崇的“民族英雄”张学良实为民族败类](https://gtv.org/video/id=61b5f49556f4921401b604a9)
+#### 编译 ：小红帽
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88-1.png)
+**据****ABS****新闻****12****月****13****日报道，美国公司特斯拉（****Tesla****）将目光投向昆士兰州中部的一个能源项目，并将为澳大利亚提供长期的财务支持。这在澳大利亚还是第一次。**
 
-编辑/校对/发稿：Hetangyuese
+博尔德科姆（Bouldercombe）电池项目背后的公司Genex表示，Genex还与埃隆·马斯克（Elon Musk）的特斯拉签订了合同，为其提供50兆瓦的大型电池，并将使用其算法驱动的招标系统来出售电力。
 
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+博尔德科姆电池项目位于罗克汉普顿以南23公里处。该项目的土地已经落实，并正在进行电网连接。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+Genex公司表示，该项目将为4，167个家庭供电，每年可抵消22，655吨的碳排放量。该项目可能是昆士兰州首批独立的大型电池储能系统之一。
+
+Genex首席执行官詹姆斯`哈丁（James Harding）表示，特斯拉电池将位于其博尔德科姆站点的边界围栏内，有40个大型容器，看起来类似于集装箱。该电池将有两个小时的电力存储容量。
+
+特斯拉兆瓦级锂离子电池系统将从其位于美国内华达州的工厂进行全面组装，测试和发货。Genex公司预计电池将在2023年全面投入使用。
+
+新闻来源：[Elon Musk’s Tesla to back central Queensland battery project in Australian-first collaboration – ABC News](https://www.abc.net.au/news/2021-12-13/tesla-australian-first-partnership-for-central-queensland/100690526)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

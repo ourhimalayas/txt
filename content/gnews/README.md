@@ -15,119 +15,119 @@
 
 ---
 
-### [英超又一球员疑是心梗倒下](/content/gnews/1/README.md)
- ` 澳喜农场`
-
-### [浙江疫情导致13家上市公司停产](/content/gnews/2/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [前橄榄球明星与美国第一宇航员的女儿一起飞向太空](/content/gnews/3/README.md)
- ` 墨尔本雅典娜农场`
-
-### [罗伊斯·怀特：抵制冬奥会是对中共使眼色而没有真正行动](/content/gnews/4/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [视频| 新中国联邦一系列数字货币的设计](/content/gnews/5/README.md)
- ` MOSREC`
-
-### [视频| 新中国联邦会记住每一位对战友“枪口抬高一寸”的人](/content/gnews/6/README.md)
- ` MOSREC`
-
-### [抗议者在澳大利亚各城市集会，反对强制接种疫苗](/content/gnews/7/README.md)
- ` 墨尔本雅典娜农场`
-
-### [视频| 俄中两国彻底“分手”](/content/gnews/8/README.md)
- ` MOSREC`
-
-### [世界全民在觉醒，共产邪教人人得而诛之](/content/gnews/9/README.md)
- ` 澳喜特战旅Gnews`
-
-### [美国官员考虑禁止向中芯国际出口产品](/content/gnews/10/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [香港代表罗冠聪民主峰会发言 寄语港人坚持才有希望](/content/gnews/11/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [菲律宾央行正在调查BDO银行遭黑客而丢失资金事件](/content/gnews/12/README.md)
- ` 墨尔本雅典娜农场`
-
-### [郭文贵直播摘要和音频 2021.12.12](/content/gnews/13/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [中共国开发 “人源化猪”，是用于研究病毒还是制造宿主](/content/gnews/14/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [【咱们工人有力量】又将响彻中共墙内](/content/gnews/15/README.md)
- ` 澳喜农场`
-
-### [七国集团警告俄罗斯如果入侵乌克兰后果很严重](/content/gnews/16/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [弥天大谎 当权者提高了中共病毒死亡数据却压低了疫苗死亡数据](/content/gnews/17/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [因大不敬彭丽媛收拾掉房峰辉,李木子定马化腾和马云生死](/content/gnews/18/README.md)
+### [俄罗斯照会中共必须买油气不参与台湾撇开中共与美勾兑](/content/gnews/1/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [澳大利亚首次：特斯拉将支持昆士兰州中部的电池项目](/content/gnews/19/README.md)
- ` 走进澳洲`
-
-### [2021.12.12文贵爆料：坚决反对党内各方杀掉习近平 灭共后习自然灭亡](/content/gnews/20/README.md)
- ` 秘密翻译组-原创组`
-
-### [欧盟呼吁中共释放人权捍卫者](/content/gnews/21/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [美日澳宣布联手为太平洋3岛国建设海底电缆 抵抗中共](/content/gnews/22/README.md)
- ` 日本东京方舟农场`
-
-### [中共的亚洲计划](/content/gnews/23/README.md)
+### [习的外交政策和性格的原因](/content/gnews/2/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中共推崇的“民族英雄”张学良实为民族败类](/content/gnews/24/README.md)
- ` 纽约香草山MOS01`
+### [英超又一球员疑是心梗倒下](/content/gnews/3/README.md)
+ ` 澳喜农场`
 
-### [中共延长生育假超300天，就能解除人口危机？](/content/gnews/25/README.md)
+### [浙江疫情导致13家上市公司停产](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [7·24系列——“西安事变”真相](/content/gnews/26/README.md)
+### [前橄榄球明星与美国第一宇航员的女儿一起飞向太空](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共的邪恶统治导致失业大潮！](/content/gnews/27/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [继续推动疫苗就是反人类罪](/content/gnews/6/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [青蒿素无价宝](/content/gnews/28/README.md)
+### [北京冬奥会就像1936年的希特勒奥运会](/content/gnews/7/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [中共通过华尔街和美国企业将美国捆绑到自己经济泡沫中](/content/gnews/8/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [罗伊斯·怀特：抵制冬奥会是对中共使眼色而没有真正行动](/content/gnews/9/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [视频| 新中国联邦一系列数字货币的设计](/content/gnews/10/README.md)
+ ` MOSREC`
+
+### [视频| 新中国联邦会记住每一位对战友“枪口抬高一寸”的人](/content/gnews/11/README.md)
+ ` MOSREC`
+
+### [抗议者在澳大利亚各城市集会，反对强制接种疫苗](/content/gnews/12/README.md)
  ` 墨尔本雅典娜农场`
 
-### [在太空之后，前泽将实现他的下一个梦想](/content/gnews/29/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [视频| 俄中两国彻底“分手”](/content/gnews/13/README.md)
+ ` MOSREC`
 
-### [日本先进技术涉嫌外流至中共国被用于强化军事](/content/gnews/30/README.md)
+### [世界全民在觉醒，共产邪教人人得而诛之](/content/gnews/14/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [美国官员考虑禁止向中芯国际出口产品](/content/gnews/15/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [香港代表罗冠聪民主峰会发言 寄语港人坚持才有希望](/content/gnews/16/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [菲律宾央行正在调查BDO银行遭黑客而丢失资金事件](/content/gnews/17/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [郭文贵直播摘要和音频 2021.12.12](/content/gnews/18/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [中共国开发 “人源化猪”，是用于研究病毒还是制造宿主](/content/gnews/19/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [【咱们工人有力量】又将响彻中共墙内](/content/gnews/20/README.md)
+ ` 澳喜农场`
+
+### [七国集团警告俄罗斯如果入侵乌克兰后果很严重](/content/gnews/21/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [弥天大谎 当权者提高了中共病毒死亡数据却压低了疫苗死亡数据](/content/gnews/22/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [因大不敬彭丽媛收拾掉房峰辉,李木子定马化腾和马云生死](/content/gnews/23/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [澳大利亚首次：特斯拉将支持昆士兰州中部的电池项目](/content/gnews/24/README.md)
+ ` 走进澳洲`
+
+### [2021.12.12文贵爆料：坚决反对党内各方杀掉习近平 灭共后习自然灭亡](/content/gnews/25/README.md)
+ ` 秘密翻译组-原创组`
+
+### [欧盟呼吁中共释放人权捍卫者](/content/gnews/26/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [美日澳宣布联手为太平洋3岛国建设海底电缆 抵抗中共](/content/gnews/27/README.md)
  ` 日本东京方舟农场`
 
-### [樱花灭共诗——雪夜抒怀](/content/gnews/31/README.md)
+### [中共的亚洲计划](/content/gnews/28/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [中共推崇的“民族英雄”张学良实为民族败类](/content/gnews/29/README.md)
+ ` 纽约香草山MOS01`
+
+### [中共延长生育假超300天，就能解除人口危机？](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本公共安全调查厅指出，警惕中共国研究人员泄漏先进武器技术](/content/gnews/32/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [已接种疫苗的南非总统被确诊感染中共病毒](/content/gnews/33/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [【文炬拾字】移民园艺师高工](/content/gnews/34/README.md)
- ` 温哥华扬帆农场`
-
-### [12/12/2021 文贵直播：习的疯狂将让他自取灭亡 &#8211; 他一定会打台湾，消灭国内私人企业家，抓更多党员](/content/gnews/35/README.md)
- ` 秘密翻译组-北美组`
-
-### [七国集团警告俄罗斯：如进攻乌克兰将面临沉重代价](/content/gnews/36/README.md)
+### [7·24系列——“西安事变”真相](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【#G时新闻】意大利民众焚烧“绿色通行证” 声援未接种人士！](/content/gnews/37/README.md)
- ` G-时新闻`
+### [中共的邪恶统治导致失业大潮！](/content/gnews/32/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2021年12月12日文贵大直播要点海报](/content/gnews/38/README.md)
- ` 秘密翻译组-原创组`
+### [青蒿素无价宝](/content/gnews/33/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [在太空之后，前泽将实现他的下一个梦想](/content/gnews/34/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [日本先进技术涉嫌外流至中共国被用于强化军事](/content/gnews/35/README.md)
+ ` 日本东京方舟农场`
+
+### [日本公共安全调查厅指出，警惕中共国研究人员泄漏先进武器技术](/content/gnews/36/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [已接种疫苗的南非总统被确诊感染中共病毒](/content/gnews/37/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [七国集团警告俄罗斯：如进攻乌克兰将面临沉重代价](/content/gnews/38/README.md)
+ ` 墨尔本雅典娜农场`
 
 ### [加密货币交易平台Binance.sg于明年2月13日前关闭](/content/gnews/39/README.md)
  ` 首尔天池农场`

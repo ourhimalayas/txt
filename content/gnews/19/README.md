@@ -2,38 +2,24 @@
 ---
 
 
-## 澳大利亚首次：特斯拉将支持昆士兰州中部的电池项目
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1749309/)
+## 中共国开发 “人源化猪”，是用于研究病毒还是制造宿主
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1749363/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-17.png)
+图片来源：网络截图
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Untitled-16.png)图片来源：TESLA
+据零对冲12月12日报道，在中共病毒爆发之前的几年里，中共最愿意证明和炫耀其科学家的基因编辑能力。几年前，一位中共国科学家公布了世界上第一个基因编辑的人类婴儿，震惊了世界，因为让中共看起来很邪恶而遭到监禁。这对双胞胎女孩的遗传物质在子宫内被改变，以使她们对其父亲的艾滋病毒感染具有免疫力。
 
+关于中共的流氓科学努力的讨论并没有出现更多，但是自从两年前中共病毒首次从武汉爆发以来，这种讨论变得更加普遍。没有人知道那些基因编辑的女孩现在在哪里，但北京显然为其最好的基因科学家找到了一个新项目。据报道，该国最大的研究机构利用世界上最重要的基因编辑技术，开发了易受人类冠状病毒株感染的变异“具有人类特点的猪”。一旦开发成功，这些猪将被用作测试对象，科学家们将测试正在开发的对抗中共病毒的新疗法，中共的喉舌报纸，《环球时报》并没有详细说明。
 
-#### 编译 ：小红帽
+8月发表的一份研究报告显示，中共国科学院微生物研究所的研究人员解释了科学家如何使用CRISPR（一种基因编辑工具）来移除允许猪减少人类病毒的基因保护。该项目显然得到了中共的全力支持：中科院的研究机构是世界上最大的同类组织，也是中国政府的一个正式机构。
 
-**据****ABS****新闻****12****月****13****日报道，美国公司特斯拉（****Tesla****）将目光投向昆士兰州中部的一个能源项目，并将为澳大利亚提供长期的财务支持。这在澳大利亚还是第一次。**
+《环球时报》解释了为什么要开发“人源化猪”的原因，是因为用于模拟中共病毒感染的豚鼠和一些灵长类动物的现有细胞系和动物模型无法捕捉人类生理学的关键特征，因此限制了对疫苗和药物疗效测试的准确性。
 
-博尔德科姆（Bouldercombe）电池项目背后的公司Genex表示，Genex还与埃隆·马斯克（Elon Musk）的特斯拉签订了合同，为其提供50兆瓦的大型电池，并将使用其算法驱动的招标系统来出售电力。
+中共研究的这种猪，既可以用于研究，也是非常好的宿主，用于解释下一波病毒的来源，这是一石二鸟。
 
-博尔德科姆电池项目位于罗克汉普顿以南23公里处。该项目的土地已经落实，并正在进行电网连接。
-
-Genex公司表示，该项目将为4，167个家庭供电，每年可抵消22，655吨的碳排放量。该项目可能是昆士兰州首批独立的大型电池储能系统之一。
-
-Genex首席执行官詹姆斯`哈丁（James Harding）表示，特斯拉电池将位于其博尔德科姆站点的边界围栏内，有40个大型容器，看起来类似于集装箱。该电池将有两个小时的电力存储容量。
-
-特斯拉兆瓦级锂离子电池系统将从其位于美国内华达州的工厂进行全面组装，测试和发货。Genex公司预计电池将在2023年全面投入使用。
-
-新闻来源：[Elon Musk’s Tesla to back central Queensland battery project in Australian-first collaboration – ABC News](https://www.abc.net.au/news/2021-12-13/tesla-australian-first-partnership-for-central-queensland/100690526)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻来源：[China Creates “Humanized Pigs” To Be Used In COVID Research](https://www.zerohedge.com/geopolitical/china-creates-humanized-pigs-be-used-covid-research)
 
  
 
