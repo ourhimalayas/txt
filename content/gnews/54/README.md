@@ -2,35 +2,22 @@
 ---
 
 
-## 美国陆续出台制裁中共国芯片产业链的措施
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1745296/)
+## 国际奥委会委员警告参加北京冬奥会的运动员不要乱说话
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1746070/)
 
-作者：纽约香草山农场 -文真
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月10日，美国媒体报道，一份最新报告显示美国官员正在考虑禁止向中芯国际出口。
+#### 撰稿：彩虹
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide6-3.jpeg)
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-3-5.jpg)图片来源：以色列时报
+12月11日，根据《新闻极限》的报道内容，国际奥委会成员理查德·庞德（Richard Pound）告诉《时代周刊》，只要他们遵守中共国的法律，参加2022年北京冬奥会的运动员是可以自由表达自己意见的。
 
-自2020年，中芯国际因与中共军方的连带关系，被美国列入黑名单，因此被拒绝获得美国供应商的先进制造设备。但跟据近期外媒报道，中芯国际一直在利用美国的监管漏洞购买美国技术，美国国防部已经就此提出了一项阻止出口的建议。
+这位奥委会委员的言论如此的荒唐和前后矛盾，以至于他自己都不得不进一步解释。他说：“这种情况下并不意味着你可以完全的为所欲为。所以，你知道，要小心你做的事情，因为你可能会被关注。”庞德继而表达了对运动员威胁的话语，他说，在过去，东道国“基本上”保护了运动员的自由。
 
-近期，美国政府连续出台了多项政令，以针对中共的芯片产业链。上个月，美国通过了阻止英特尔在中共国的扩张计划。最近，美国政府要求三星和台积电交出与中共国相关的供应链“敏感信息”。
+这位奥委会的资深会员，完全无视中共国是一个专制独裁的国家，罔顾中共“反人类罪”事实，将中共国的法律视为运动员应该遵守的红线，是何等的无知、无耻和用心险恶。
 
-参考链接：[U.S. Officials Consider Banning Exports To Chinese Chipmaker SMIC](https://www.zerohedge.com/markets/us-officials-consider-banning-exports-chinese-chipmaker-smic)
+**新闻来源**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
-
-总编：Jack Li文阳
-编辑：Jack Li文阳
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+[Olympic Athletes Free to Express Opinions in Beijing, IOC Says](https://www.newsmax.com/newsfront/olympics-2022-winter-china/2021/12/11/id/1048264/)
 
  
 
