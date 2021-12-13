@@ -2,8 +2,8 @@
 ---
 
 
-## 澳大利亚仍在加速推广中共病毒疫苗加强针
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1750985/)
+## 巴西一法官不顾总统反对 规定到访游客必须提供疫苗接种证明
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1750999/)
 
 作者：纽约香草山教育部 – Naughty(文行)
 
@@ -13,12 +13,12 @@
 
 
 
-澳大利亚政府12月12日表示，随着奥米克隆变种病例的增加，它将把人们接种新冠疫苗加强针的等待时间从六个月缩短到五个月。此前，澳大利亚政府曾表示，它将为每个18岁以上并在六个月前接种了第二剂疫苗的人提供新冠疫苗加强针。
+12月11日，巴西最高法院法官路易斯·罗伯托·巴罗佐裁定，所有抵达巴西的旅客必须出示新冠疫苗接种证明。法官表示，只有当旅行者来自没有疫苗的国家或个人因健康原因无法接种疫苗时，才能免除疫苗接种证明的要求。 巴罗佐的裁决必须在下周经过最高法院所有11名法官审查后才能生效。
 
-澳大利亚是世界上接种疫苗最多的国家之一，在16岁以上的人口中大约90%已经接种了疫苗。但如此高的接种率并未能有效阻止病毒的传播。12月11日的数据显示，澳大利亚在过去24小时内，发现了1,753例新冠病例，比上周增长约3%，创下了10月29日以来的最高病例数纪录。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-139.jpg)
+巴西联邦政府曾在12月7日宣布，抵达巴西的旅客不必出示疫苗护照，但他们需要接受为期五天的隔离。 巴西总统博索纳罗认为，那些支持使用疫苗护照的人想要限制民众的自由。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.2-4.jpg)
 参考链接：
-[Australia Shortens Wait Time For COVID-19 Booster Doses As Omicron Cases Rise](https://www.oann.com/australia-shortens-wait-time-for-covid-19-booster-doses-as-omicron-cases-rise/?utm_source=ground.news&amp;utm_medium=referral)
+[Brazil justice rules vaccine passport mandatory for visitors](https://m.washingtontimes.com/news/2021/dec/11/brazil-justice-rules-vaccine-passport-mandatory-fo/?utm_source=ground.news&amp;utm_medium=referral)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 

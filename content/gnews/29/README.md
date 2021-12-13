@@ -2,10 +2,10 @@
 ---
 
 
-## 维也纳爆发大规模游行，抗议奥地利疫苗限制措施
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1750975/)
+## 各国陆续加入抵制北京冬奥会行列
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1750976/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+作者：纽约香草山教育部 – 文特
 
 
 
@@ -13,17 +13,16 @@
 
 
 
-12月11日，据当地媒体报道，数万人聚集在维也纳，抗议奥地利政府采取的限制措施，包括强制接种疫苗和对未接种疫苗的人施行家庭监禁令。 大约有44000人参加了这次抗议活动，抗议者举着“反对强制接种”和“放开我们的孩子”的横幅，高呼“我们是人民”和“抵抗”。政府安排了约1400名警察值班监督，抗议活动中有三人遭到逮捕。
+12月12日最新消息，继美、澳、新、加、英五国后，苏格兰、立陶宛、科索沃等国家也已经宣布抵制中共的2022冬奥会，坚决抵制冬奥会的声音越来越强烈。
 
-上周，在首都维也纳也发生了类似的示威活动。就在同一天，在克拉根福和林茨也有民众进行了抗议限制措施的游行。 奥地利上个月成为西欧第一个重新实施封锁的国家，并表示将从2月起强制接种新冠病毒疫苗。相关人士发表讲话抨击政府的这一措施，并表示抗议活动仍将持续进行。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1.2-5.jpg)
+在12月10日的国际人权日，欧盟驻华代表团还发表声明，抨击中共系统性侵犯公民和政治权利，以及针对香港公民的《国家安全法》破坏了中共一国两制、五十年不变的承诺。 以压倒性多数通过了一项不具约束力的决议，呼吁外交官员抵制冬奥会。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1.1-5.jpg)
 参考链接：
-[Mass Protest In Vienna Against Austria’s Controversial COVID Restrictions](https://www.oann.com/mass-protest-in-vienna-against-austrias-controversial-covid-restrictions/?utm_source=ground.news&amp;utm_medium=referral)
+[新中国联邦在八月初就呼吁国际奥委会取消中共冬奥会，并表示坚决抵制中共冬奥会。](https://www.gettr.com/post/pjfh31896e)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-总编：文特
-编辑：DM
+总编/编辑：飞虹
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**

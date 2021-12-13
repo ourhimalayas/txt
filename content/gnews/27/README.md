@@ -2,47 +2,46 @@
 ---
 
 
-## 日美誓言加强联盟能力以对抗中（共）国
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1750984/)
+## 澳大利亚仍在加速推广中共病毒疫苗加强针
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1750985/)
 
-**【简评：】***最近各国政府关于抵制CCP的行动似乎有加速之势，例如美国宣布外交抵制2022年北京冬奥会后，四方会谈及五眼联盟国家随后都跟进。日本首相岸田文雄作为候选人时就曾表示，上任后首要任务是对付中共国。其上任后的一系列行动，也让我们看到了其反共和灭共的决心。此外，俄罗斯也明确的对美国和欧洲表态，其在乌克兰边境的军事部署与中共的台湾行动无关、其在南海站台行动知识象征性的。此表态使美国总统拜登一下子卸下了两线作战的担心。此外，拜登政府还会有一系列意想不到的对中共政策，接下来灭共的形势必是一片大好。*
-
-据《日本共同通信社》，2021年12月12日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-690.png)2021 年 12 月 11 日，日本外相林芳正与美国国务卿安东尼·布林肯在英国利物浦合影。
-图片来源：日本外务省
-**周六，日本外相林芳正11月初就任后，与美国国务卿安东尼·布林肯举行了首次面对面双边会谈，双方一致同意加强两国同盟的威慑和应对能力，以应对中（共）国在印度太平洋地区日益强硬的态度和北韩的核导弹威胁。**
-
-日本外务省称，此次会谈正值在英国利物浦举行的为期两天的七国集团外长会议之际，林芳正和美国国务卿布林肯强调了与东南亚国家联盟以及与澳大利亚、印度等“志同道合国家”深化合作的必要性。
-
-日本外务省表示，两国外相一致认为，“在日益严峻的安全环境中，加强联盟的威慑和反应能力是必不可少的” 。
-
-一位外交部官员说，在此次会谈中，他们没有讨论明年对北京冬季奥运会的外交抵制相关事宜。
-
-上周，拜登政府以中（共）国的人权记录为由宣布了美国对2022北京冬奥会的外交抵制，澳大利亚、英国和加拿大也表示将效仿。日本尚未表明立场，但政府和执政联盟消息人士称，该国正在考虑不派内阁大臣参加此次冬奥会。
-
-林芳正和布林肯还证实，两国政府将安排首相岸田文雄早日访问美国，这将是他在10月初就任日本首相后与美国总统拜登的首次会晤。
-
-与此同时，林芳正和布林肯一致同意，尽早举行下一轮涉及两国最高外交和国防官员的所谓“2+2”安全会谈。
-
-**在最近的政策演讲中，首相岸田誓言要考虑“所有选项”以加强防御，包括获得打击敌方基地的能力。**
-
-**据一名日本官员称，林芳正和布林肯重申强烈反对中国以武力改变东海和南海现状的企图，并肯定了台湾海峡“和平与稳定”的重要性。**
-
-原文连接[：https://english.kyodonews.net/news/2021/12/fdea9aed03eb-japan-us-to-hold-foreign-ministerial-talks-with-china-in-mind.html](https://english.kyodonews.net/news/2021/12/fdea9aed03eb-japan-us-to-hold-foreign-ministerial-talks-with-china-in-mind.html)
-
-翻译：洛杉矶盘古农场 –比格渣餐厅老板の娘
-
-校对：洛杉矶盘古农场–Mike Li
-
-评论：洛杉矶盘古农场 – 比格渣餐厅老板の娘
-
-编辑：洛杉矶盘古农场 – 柯镇恶
+作者：纽约香草山教育部 – Naughty(文行)
 
 
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+澳大利亚政府12月12日表示，随着奥米克隆变种病例的增加，它将把人们接种新冠疫苗加强针的等待时间从六个月缩短到五个月。此前，澳大利亚政府曾表示，它将为每个18岁以上并在六个月前接种了第二剂疫苗的人提供新冠疫苗加强针。
+
+澳大利亚是世界上接种疫苗最多的国家之一，在16岁以上的人口中大约90%已经接种了疫苗。但如此高的接种率并未能有效阻止病毒的传播。12月11日的数据显示，澳大利亚在过去24小时内，发现了1,753例新冠病例，比上周增长约3%，创下了10月29日以来的最高病例数纪录。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-139.jpg)
+参考链接：
+[Australia Shortens Wait Time For COVID-19 Booster Doses As Omicron Cases Rise](https://www.oann.com/australia-shortens-wait-time-for-covid-19-booster-doses-as-omicron-cases-rise/?utm_source=ground.news&amp;utm_medium=referral)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+
+总编/编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

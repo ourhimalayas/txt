@@ -2,123 +2,97 @@
 ---
 
 
-## 12/13 每日播报|社媒消息:蓬佩奥 迈克尔森格,杰森米勒
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1750530/)
+## 文·贵天成——文贵先生谈“疫苗”（四十六）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1750847/)
+
+整理：**BENJ1**
+编辑：李易通
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1.jpg-5.png)图片来源：墨尔本雅典娜农场设计组
+郭文贵先生2021年8月26日直播
+
+郭文贵先生:说到这里的时候，我再给你们说说。当这些军人接种完疫苗死亡的时候，是开战还是不开战，答案都不是。他们既不会被收买，也不会开战，你们都想象的太直接。
+
+当这些军人开始死亡的时候，记住，像美国和日本一定有办法拿到解药。你别老想又是新中国联邦拿到解药，像小孩儿玩游戏似的，比如下棋，有个坑我就搁一个，那是瞎蒙好不好。如果新中国联邦有那么厉害，我就不在这直播了，我现在就直接搬白宫去了，大家赶快到白宫门口搬过去，我们没那么厉害。
+
+有这个机会吗？有，如果咱有解药了，那肯定咱是赢家。现在咱没这个把握，但咱们有这个希望。我可以告诉大家的，当这些军队真要是开始死人，西方国家会迅速找到解药。一定会促进人类把疫苗灾难和冠状病毒彻底解决，对你们来讲不是坏事儿。
+
+听完了今天的疫苗军事，你觉得人类要大灭亡了是吗？不会的。但凡你有点儿信仰就不会这么觉得。疫苗灾难会促进人类找到解药，而且会大大地促进。就像当年找到核武器结束二战一样，会突然间的出现，因为没有比人类最后的生死威胁能迸发出的创造力和研究力以及团结的力量再大的。
+
+如果我们能帮助美国、日本、韩国的军人脱离疫苗死亡，新中国联邦不就成了吗？是吧。对我们来讲，我们不想要这个机会，很可能上天得让我们要，你们老祈祷万佛万神，老念叨，他们都闻见了，把这药方给咱们是有可能的。
+
+肯定不会给九指妖、路大脑袋、蛇妖闫，是不是？你路大脑袋吸痰有功，解药给你，那是不可能的。也不能给找爹博、洋塞林去，到目前看它只能给我们。
+
+如果说中国内部有人想把解药拿出来，共产党一定不会拿出来的，因为它拿出来就全完了。它能给的人只能给我们，如果给那些国家、那些国家会消灭它。还有一个别忘了，明年的美国中期选举。如果美国中期选举之前，军队真的打了这个疫苗了，而且真的出现负作用了，结果你就可想而知了。
+
+那可不是灭中共那么简单了，川普带领的共和党上来，他根本不会有半点儿犹豫。那个时候灭共不积极的川普在这些所有政治家里边，一定是最极端灭共的。而且他灭共的合作对象，没有任何选择，那就是我们。
+
+祈祷上天让人类在明年10月份以前都平平安安的。所以说战友们，看疫苗后的军事，是人类找到疫苗、冠状病毒元凶的一个最好的引子和力量。谁也推动不了西方灭共，只有个人的生死和国家的存亡会让他们团结在一起，找到解药。很大几率在找解药的过程中就会干掉共产党。
+
+我相信，如果共产党最终不通过我们拿出解药，而是西方国家自己找出来，中共会死的更快。所以打了疫苗的人不要那么恐惧，不要被吓死了。现在打了疫苗的人一定要听话，吃羟氯喹加锌，并且是合理的吃伊维菌素，如果有严重后果的，赶快吃土霉素，服用药物务必在医生的嘱咐下，药方以大胡子先生说的为准。郭文贵今天说的和战友们说的都不算数，以他说的为准。
+
+我这几天几乎每天最多的时间就用在这上边儿，跟不同的国家的专家和军事要人了解这个解药以及打疫苗后怎么解决的问题。硫酸羟氯喹加锌管用，是最好的防护药物。打了疫苗一定会有人死亡，就像现在每天都有人死亡一样，这会成为常态。你看看日本、台湾的情况，台湾很短时间内五、六个人死了，原来的死亡人数是零。
+
+日本的感染数据从过去的0到现在的每天几万人，澳大利亚从过去0感染到现在每天上百人感染。疫苗后的军事一定会有军人死亡，有军人死亡就一定会有痛苦，谁也不知道会摊到谁，但一定会让世界上的这些愚蠢的政客和被欺骗的人付出惨重代价。但愿被欺骗的这些无知的人和对共产党的邪恶评估不够的，死亡能让他们完全清醒过来，如果继续不清醒，还会有更多的死亡。
+
+那么战友们，你们今天能听到我说话的，如果相信七哥，还是七叔也好，还是七大爷也好，你们不要以任何理由把你们的孩子和家人送去打疫苗。就比如天天跟我大直播的小福利、小Seven，即使被剥夺抚养权也不能让孩子去打疫苗。因为孩子一旦打了疫苗，即使活着，它的精子、卵子也不会是健康的。
+
+石墨乙烯在身体里百分之百是不会消失的，它只是能不能堵住你的血管，让不让你眼梗、心梗、脑梗，让你能不能活下去，它绝对是不健康的。而且它是在你的细胞里的，千万别忘了，你的精子、卵子是你细胞的结果，这些东西是在你基因里边儿的。
+
+发布：去中心化Math
+
+**往期回顾：**
+[文·贵天成——文贵先生谈“疫苗”（一）](https://gnews.org/zh-hans/1645800/)
+[文·贵天成——文贵先生谈“疫苗”（二）](https://gnews.org/zh-hans/1645804/)
+[文·贵天成——文贵先生谈“疫苗”（三）](https://gnews.org/zh-hans/1668258/)
+[文·贵天成——文贵先生谈“疫苗”（四）](https://gnews.org/zh-hans/1668474/)
+[文·贵天成——文贵先生谈“疫苗”（五）](https://gnews.org/zh-hans/1668591/)
+[文·贵天成——文贵先生谈“疫苗”（六）](https://gnews.org/zh-hans/1670496/)
+[文·贵天成——文贵先生谈“疫苗”（七）](https://gnews.org/zh-hans/1670125/)
+[文·贵天成——文贵先生谈“疫苗”（八）](https://gnews.org/zh-hans/1684720/)
+[文·贵天成——文贵先生谈“疫苗”（九）](https://gnews.org/zh-hans/1684707/)
+[文·贵天成——文贵先生谈“疫苗”（十）](https://gnews.org/zh-hans/1704875/)
+[文·贵天成——文贵先生谈“疫苗”（十一）](https://gnews.org/zh-hans/1689446/)
+[文·贵天成——文贵先生谈“疫苗”（十二）](https://gnews.org/zh-hans/1689743/)
+[文·贵天成——文贵先生谈“疫苗”（十三）](https://gnews.org/zh-hans/1694796/)
+[文·贵天成——文贵先生谈“疫苗”（十四）](https://gnews.org/zh-hans/1695670/)
+[文·贵天成——文贵先生谈“疫苗”（十五）](https://gnews.org/zh-hans/1695638/)
+[文·贵天成——文贵先生谈“疫苗”（十六）](https://gnews.org/zh-hans/1695695/)
+[文·贵天成——文贵先生谈“疫苗”（十七）](https://gnews.org/zh-hans/1739501/)
+[文·贵天成——文贵先生谈“疫苗”（十八）](https://gnews.org/zh-hans/1739501/)
+[文·贵天成——文贵先生谈“疫苗”（十九）](https://gnews.org/zh-hans/1739501/)
+[文·贵天成——文贵先生谈“疫苗”（二十）](https://gnews.org/zh-hans/1703796/)
+[文·贵天成——文贵先生谈“疫苗”（二十一）](https://gnews.org/wp-admin/post.php?post=1703749&amp;action=edit&amp;lang=zh-hans)
+[文·贵天成——文贵先生谈“疫苗”（二十二）](https://gnews.org/wp-admin/post.php?post=1703970&amp;action=edit&amp;lang=zh-hans)
+[文·贵天成——文贵先生谈“疫苗”（二十三）](https://gnews.org/wp-admin/post.php?post=1703992&amp;action=edit&amp;lang=zh-hans)
+[文·贵天成——文贵先生谈“疫苗”（二十四）](https://gnews.org/zh-hans/1704142/)
+[文·贵天成——文贵先生谈“疫苗”（二十五）](https://gnews.org/zh-hans/1710182/)
+[文·贵天成——文贵先生谈“疫苗”（二十六）](https://gnews.org/zh-hans/1710207/)
+[文·贵天成——文贵先生谈“疫苗”（二十七）](https://gnews.org/zh-hans/1710218/)
+[文·贵天成——文贵先生谈“疫苗”（二十八）](https://gnews.org/zh-hans/1719792/)
+[文·贵天成——文贵先生谈“疫苗”（二十九）](https://gnews.org/zh-hans/1719861/)
+[文·贵天成——文贵先生谈“疫苗”（三十）](https://gnews.org/zh-hans/1728380/)
+[文·贵天成——文贵先生谈“疫苗”（三十一）](https://gnews.org/zh-hans/1728390/)
+[文·贵天成——文贵先生谈“疫苗”（三十二）](https://gnews.org/zh-hans/1728442/)
+[文·贵天成——文贵先生谈“疫苗”（三十三）](https://gnews.org/zh-hans/1728442/)
+[文·贵天成——文贵先生谈“疫苗”（三十四）](https://gnews.org/zh-hans/1728442/https:/gnews.org/zh-hans/1731671/)
+[文·贵天成——文贵先生谈“疫苗”（三十五）](https://gnews.org/zh-hans/1731651/)
+[文·贵天成——文贵先生谈“疫苗”（三十六）](https://gnews.org/zh-hans/1732165/)
+[文·贵天成——文贵先生谈“疫苗”（三十七）](https://gnews.org/zh-hans/1735148/)
+[文·贵天成——文贵先生谈“疫苗”（三十八）](https://gnews.org/zh-hans/1735212/)
+[文·贵天成——文贵先生谈“疫苗”（三十九）](https://gnews.org/zh-hans/1735235/)
+[文·贵天成——文贵先生谈“疫苗”（四十）](https://gnews.org/zh-hans/1739501/)
+[文·贵天成——文贵先生谈“疫苗”（四十一）](https://gnews.org/zh-hans/1740057/)
+[文·贵天成——文贵先生谈“疫苗”（四十二）](https://gnews.org/zh-hans/1740093/)
+[文·贵天成——文贵先生谈“疫苗”（四十三）](https://gnews.org/zh-hans/1735235/)
+[文·贵天成——文贵先生谈“疫苗”（四十四）](https://gnews.org/zh-hans/1739501/)
+[文·贵天成——文贵先生谈“疫苗”（四十五）](https://gnews.org/zh-hans/1748559/)
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-**By:秘翻新闻**
-
-***2021-12-13***
-
-1.**蓬佩奥12月12日发推说：** 奥运会不应该在中共国举办。抵制北京冬奥会不能只靠某个党派的努力，美国人必须团结起来，向中共的人权侵犯行为说不。
-
-
-
-> The Olympics should not be held in Communist China. This cannot be a partisan effort — Americans must come together and reject the CCP’s human rights violations. [#BoycottBeijingOlympics](https://twitter.com/hashtag/BoycottBeijingOlympics?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Mike Pompeo (@mikepompeo) [December 11, 2021](https://twitter.com/mikepompeo/status/1469729072053956612?ref_src=twsrc%5Etfw)
-
-
-
-**2.迈克尔森格12月12日发推说：** 记者亚历克斯·史都瑞 (Alex Story) 近日在接受英国媒体《GB News》采访时透露，在德国，孩子们每天在课堂上被迫“走到班级前面陈述他们的疫苗接种情况，接种疫苗的人获得掌声，而未接种疫苗的孩子必须解释为什么没有接种。”
-
-
-
-> In Germany, children are being forced “to go to the front of the class and state their vaccination status daily. Those who are vaccinated are applauded, those who are not have to explain why they are not.”[pic.twitter.com/k9nmI4Smx4](https://t.co/k9nmI4Smx4)
-> — Michael P Senger (@MichaelPSenger) [December 11, 2021](https://twitter.com/MichaelPSenger/status/1469731322830544897?ref_src=twsrc%5Etfw)
-
-
-
-**3.真正美国之声12月13日发推说：** 美国参议院军事委员会的重要成员、共和党参议员玛莎·布莱克本抨击总统拜登对对手的反应不温不火，要求拜登政府让所有美国运动员退出北京冬奥会。 【推文转报道，布莱克本说：“看在上帝的份上，不要派我们的运动员参加冬奥会，只有官方外交抵制，相对于北京对台湾的侵略和对维吾尔人的人权侵犯，这种回应太弱了。我很惊讶，拜登没有做出一些更强硬的事情。”布莱克本还敦促拜登政府考虑对中共的电信和电动汽车电池公司进行制裁，并将它们撤出美国企业的供应链，作为回击北京日益威胁台湾的一种方式。】
-
-
-
-> Sen. [@MarshaBlackburn](https://twitter.com/MarshaBlackburn?ref_src=twsrc%5Etfw) on the Senate Armed Services Committee is blasting President [@JoeBiden](https://twitter.com/JoeBiden?ref_src=twsrc%5Etfw)'s tepid responses to adversaries, demanding the administration impose new sanctions on Russia and withdraw all U.S. athletes from the Beijing Winter Olympics.[https://t.co/DwoCUs77YU](https://t.co/DwoCUs77YU)
-> — Real America's Voice (RAV) (@RealAmVoice) [December 12, 2021](https://twitter.com/RealAmVoice/status/1470155249218433034?ref_src=twsrc%5Etfw)
-
-
-
-**4.印太新闻 – 关注中共威胁12月13日发推说：** 七国工业集团G7部长会议12月11日在英国利物浦举行。英国外交大臣伊丽莎白·特拉斯 (Liz Truss) 在主持开幕会议时表示：“我们必须团结一致，强力对抗那些想要阻碍民主自由的侵略者。” 特拉斯在一场记者会中表示：“G7对中共胁迫的经济政策感到担忧，尤其是它们对发展中国家设下的‘债务陷阱’，而我们想要做的，是与观念相同且爱好自由的民主国家，建立投资和经济贸易联系。”会议还指控北京在新疆和香港的人权侵犯行为，以及确保台湾海峡和平与稳定的重要性。
-
-
-
-> 1/ [#G7](https://twitter.com/hashtag/G7?src=hash&amp;ref_src=twsrc%5Etfw) ministers voice concern over [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)'s 'coercive' economic policies
-> 
-> The Group of Seven foreign ministers expressed concern Sunday about China’s “coercive” economic policies in what critics call “debt-trap” diplomacy toward developing countries.[https://t.co/xX0Wb4PeY8](https://t.co/xX0Wb4PeY8)
-> — Indo-Pacific News – Watching the CCP-China Threat (@IndoPac\_Info) [December 12, 2021](https://twitter.com/IndoPac_Info/status/1470177109687496705?ref_src=twsrc%5Etfw)
-
-
-
-**5.大纪元12月11日发推说：** 美国众议员斯科特‧佩里（Scott Perry）在国际人权日当天表示，他即将发起一项新的法案，以制裁中共参与活摘器官者。“中共将活摘器官产业化，这个恶行必须被制止。这是对人类基本道德标准的肆意无视，我们必须挑战中共的邪恶意图。”这些器官的主要来源是被关押的法轮功修炼者，而且并没有证据显示中共已停止罪行。比利时联邦议员安妮克‧邦蒂尔（Annick Ponthier）说：“法轮功学员人数众多，是中共活摘器官的最大受害者。中共有成为全球超级大国的野心，而且继续把魔抓伸向全世界，推进它们的共产主义议程，全世界的人权支持者应站出来反对中共。”
-
-
-
-> “These are living people having their organs taken from them,” said [@RepScottPerry](https://twitter.com/RepScottPerry?ref_src=twsrc%5Etfw). 
-> 
-> The [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) industrialized the murder of prisoners of conscience for their organs, and it must be stopped, a lawmakers said on [#InternationalHumanRightsDay](https://twitter.com/hashtag/InternationalHumanRightsDay?src=hash&amp;ref_src=twsrc%5Etfw). [https://t.co/JBT4j5Q5UM](https://t.co/JBT4j5Q5UM)
-> — The Epoch Times (@EpochTimes) [December 11, 2021](https://twitter.com/EpochTimes/status/1469493391847264260?ref_src=twsrc%5Etfw)
-
-
-
-**6.新唐人12月11日在盖特发文：** 宾夕法尼亚州最高法院在12月10日确认了联邦法院的一项裁决，该裁决称代理卫生部长艾莉森·比姆（Alison Beam）无权要求学校和儿童保育中心的所有人在室内必须戴口罩。该裁决将立即生效，意味着学校不能再强制要求人们戴口罩。 这项诉讼的共同发起人、宾州参议院的临时议长杰克·科曼 (Jake Corman)表示：“根据今天的裁决，家长和地方领导人在学校做出健康和安全决定的权力得到了恢复。” [https://gettr.com/post/pjcy2x923c](https://gettr.com/post/pjcy2x923c)
-
-**7.《零对冲》12月11日发推说：** 奥地利的一项行政法修正案说，未接种新冠疫苗的人可能会被监禁一年。 【推文转报道，投票反对该项修正案的奥地利自由党成员苏珊娜·福斯特（Susanne Fürst）警告说，该法案可能会被用来对未接种者进行更严厉的惩罚。该修正案将罚款从 726 欧元提高到 2000 欧元，并将拒绝付款的人的监禁时间从四个星期增加到一年。该修正案还命令被监禁的人支付自己的监禁费用。尽管遭到了很多反对，该修正案还是被批准通过。】
-
-
-
-> Unvaxxed In Austria Could Be Imprisoned For A Year [https://t.co/BLbNckIvxs](https://t.co/BLbNckIvxs)
-> — zerohedge (@zerohedge) [December 11, 2021](https://twitter.com/zerohedge/status/1469638179812790281?ref_src=twsrc%5Etfw)
-
-
-
-**8.迈克尔博宁12月12日发推说：** 12月11日，两名西藏学生站在位于瑞士洛桑的国际奥委会总部大楼外，将自己与奥运五环的标志链接在一起，以行动呼吁国际社会抵制2022北京冬奥会。 【推文转《路透社》报道，在国际奥委会的官员们聚集瑞士洛桑总部大楼开会之际，欧洲西藏青年协会和自由西藏学生组织成员前往这座大楼静坐。有2名活动人士在大楼入口处拉开了一条横幅，上面写着“拒绝2022北京冬奥（No Beijing 2022）”，有5名学生进入大楼静坐抗议。参与了抗议活动的欧洲西藏青年协会宣传负责人丹增多卡（Tenzing Dhokhar，音译）说：“尽管国际上对国际奥委会和中共的批评愈来愈多，但中共在西藏、新疆和香港的人权侵犯行为却有增无减。国际奥委会与中共合作，让他们沦为中共罪行的帮凶，这些罪行将透过北京冬奥会洗白。”经过3个小时的抗议后，警方开始驱离活动人士。活动筹办者和一名目击者说抗议活动和平进行。】
-
-
-
-> Tibetan students lock themselves to Olympic rings to protest genocide games [https://t.co/FBdly4EK1E](https://t.co/FBdly4EK1E)
-> — Michael Ron Bowling (@mrbcyber) [December 12, 2021](https://twitter.com/mrbcyber/status/1469883250231369730?ref_src=twsrc%5Etfw)
-
-
-
-**9.杰森米勒12月12日发推说：** 杰森米勒在接受采访时说：“在美国，言论自由和表达政治观点的权利正受到攻击。不幸的是，在英国，左派的审查制度正在取得更大进展。英国议会目前正在起草一项‘在线安全法案（Online Safety Bill）’，这项立法将授权社交媒体平台监管所谓‘有害’内容，但并没有明确区分什么内容能被认定为‘有害’。尽管这项法案可能是善意的，但那些经常暂停、禁止或审查用户言论的社交媒体巨头，将得到英国政府的法律支持。如果发表被左翼暴徒认为具有‘冒犯性’的政治观点，用户将被驱逐出这些社交媒体平台。我们正在进行抗争，从左翼游说团体手中夺回言论自由。”
-
-
-
-> “FREE speech and the right to political expression are under assault in the United States. Unfortunately, the Left's march towards censorship is progressing even further in the United Kingdom…” [#GETTR](https://twitter.com/hashtag/GETTR?src=hash&amp;ref_src=twsrc%5Etfw)[https://t.co/OQ3Du8Gxy8](https://t.co/OQ3Du8Gxy8) [https://t.co/V6rhs5lRrw](https://t.co/V6rhs5lRrw)
-> — Jason Miller (@JasonMillerinDC) [December 12, 2021](https://twitter.com/JasonMillerinDC/status/1469845599063199745?ref_src=twsrc%5Etfw)
-
-
-
-**10.埃内斯坎特12月11日发推说：** 发生在维吾尔人身上的事情是当今世界上最严重的人权侵犯行为之一，我们不能保持沉默。衷心感谢我的兄弟、NBA传奇巨星多米尼克·威尔金斯 (Dominique Wilkins) 强力声援所有那些被关押在集中营的无辜维吾尔人。立刻停止种族灭绝！
-
-
-
-> “What is happening to the Uyghurs is one of the worst human rights abuses in the world today.”
-> 
-> We can NOT stay silent
-> 
-> Huge thanks to my brother [@NBA](https://twitter.com/NBA?ref_src=twsrc%5Etfw) legend [@DWilkins21](https://twitter.com/DWilkins21?ref_src=twsrc%5Etfw) for being the strong voice of all those innocent Uyghur people in Concentration Camps
-> 
-> Stop the Genocide, now! [pic.twitter.com/7qFKfknJEQ](https://t.co/7qFKfknJEQ)
-> — Enes Kanter FREEDOM (@EnesFreedom) [December 11, 2021](https://twitter.com/EnesFreedom/status/1469690026405466113?ref_src=twsrc%5Etfw)
-
-
-
-**11.Disclose.tv 12月13日发推说：** 意甲球队那不勒斯的27岁中场球员彼得·泽林斯基 (Piotr Zieliński) 在最新一轮的意甲比赛进行到第19分钟时，因为突然呼吸困难而被迫离场。上周末，英超曼联队的瑞典球员林德洛夫在第70分钟时，也突然出现胸痛和心脏不适，不得不提前下场。
-
-
-
-> NEW – Napoli midfielder Piotr Zielinski (27) was taken off after 19 minutes in Serie A match after struggling to breathe.[pic.twitter.com/03uQQDthMz](https://t.co/03uQQDthMz)
-> — Disclose.tv (@disclosetv) [December 13, 2021](https://twitter.com/disclosetv/status/1470201343247798274?ref_src=twsrc%5Etfw)
-
-
-
-**12.喜马拉雅战鹰团12月13日在盖特发文：** 美国知名电视主持人格林·贝克 (Glenn Beck) 12月11日在接受塔克·卡尔森采访时说：“美国国立卫生研究院在新冠疫情爆发前几周进行了一笔新冠疫苗交易，他们签了一份特别的保密协议，协议中写道，mRNA新冠疫苗由美国国家过敏及传染病研究所与莫德纳公司共同研发和拥有，两周后，疫情就爆发了！“ [https://gettr.com/post/pjikhw92d3](https://gettr.com/post/pjikhw92d3)
-
-*发布:星星*
-
-* * *
-
-**By 【秘密翻译组-即时新闻播报组】**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/IMAGE-2021-12-13-113746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

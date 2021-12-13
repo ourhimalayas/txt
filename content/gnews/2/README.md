@@ -2,24 +2,22 @@
 ---
 
 
-## 美国警方对洛杉矶治安恶化束手无策
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1751266/)
+## 日本政府对新冠病毒疫苗伤害提出警告
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1751279/)
 
-编译撰稿：文文-自由法兰西
-![](https://assets.gnews.org/wp-content/uploads/2021/12/06-image-4.jpg)
-[图片来源](https://www.foxla.com/news/lapd-detective-calls-california-the-purge-due-to-rise-in-crime)
+采编：文莱         编译撰稿：苦尽甜来 (文來）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/07-image.jpeg)
+据美国媒体[RAIR] 12月10日报道，日本政府现已对“新冠病毒”疫苗接种提出警告，称其将可能导致如心肌炎等致命疾病的副作用。并重申当局对该疫苗“不良事件报告要求”的承诺，以确保记录所有出现的疫苗伤害案例。
 
-据加拿大自媒体《后千禧年》12月10日报道，美国洛杉矶警方日前表示，当地治安状况目前已接近失控边缘，面对无休止的暴力犯罪案件，警方称将无力再继续正常保护公众安全。
+报道称，日本卫生当局以上的这些措施与部分其他国家政府，目前所采取的各种欺骗性接种政策，包括：强制注射疫苗，淡化和掩盖疫苗副作用，并阻止对接种后不良事件的报告等，形成鲜明对比。
 
-报道指出，由于加州近年来实施的《安全社区和学校法案》带来了宽松的量刑准则和零保释政策，而导致目前各社区的罪犯率飚升。警方因此建议公众，尽量不要在节假日期间来洛杉矶，以免成为暴力犯罪的牺牲品。
-
-由于治安情况恶化，尽管洛杉矶市政仅在今年3月就增加了3600万美元的警务费用，但该市仍然面临着继续失控的犯罪浪潮。
+此外，日本政府还尤其关注[辉瑞]及[莫德纳]的RNA苗所引发年轻男性患心肌炎的巨大风险。并因此正在执行严格的“副作用报告”规定，即必须在接种该疫苗后的28天内报告所有出现的伤害病例。
 
 校对编辑：硫酸羟氯喹64
 
 发稿：苦尽甜来 (文來）
 
-[原文链接](https://thepostmillennial.com/lapd-detective-the-purge-los-angeles)
+[原文链接](https://rairfoundation.com/alert-japan-places-myocarditis-warning-on-vaccines-requires-informed-consent/)
 
  
 
