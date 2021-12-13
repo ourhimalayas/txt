@@ -2,10 +2,10 @@
 ---
 
 
-## 各国陆续加入抵制北京冬奥会行列
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1750976/)
+## 巴西一法官不顾总统反对 规定到访游客必须提供疫苗接种证明
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1750999/)
 
-作者：纽约香草山教育部 – 文特
+作者：纽约香草山教育部 – Naughty(文行)
 
 
 
@@ -13,12 +13,12 @@
 
 
 
-12月12日最新消息，继美、澳、新、加、英五国后，苏格兰、立陶宛、科索沃等国家也已经宣布抵制中共的2022冬奥会，坚决抵制冬奥会的声音越来越强烈。
+12月11日，巴西最高法院法官路易斯·罗伯托·巴罗佐裁定，所有抵达巴西的旅客必须出示新冠疫苗接种证明。法官表示，只有当旅行者来自没有疫苗的国家或个人因健康原因无法接种疫苗时，才能免除疫苗接种证明的要求。 巴罗佐的裁决必须在下周经过最高法院所有11名法官审查后才能生效。
 
-在12月10日的国际人权日，欧盟驻华代表团还发表声明，抨击中共系统性侵犯公民和政治权利，以及针对香港公民的《国家安全法》破坏了中共一国两制、五十年不变的承诺。 以压倒性多数通过了一项不具约束力的决议，呼吁外交官员抵制冬奥会。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1.1-5.jpg)
+巴西联邦政府曾在12月7日宣布，抵达巴西的旅客不必出示疫苗护照，但他们需要接受为期五天的隔离。 巴西总统博索纳罗认为，那些支持使用疫苗护照的人想要限制民众的自由。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.2-4.jpg)
 参考链接：
-[新中国联邦在八月初就呼吁国际奥委会取消中共冬奥会，并表示坚决抵制中共冬奥会。](https://www.gettr.com/post/pjfh31896e)
+[Brazil justice rules vaccine passport mandatory for visitors](https://m.washingtontimes.com/news/2021/dec/11/brazil-justice-rules-vaccine-passport-mandatory-fo/?utm_source=ground.news&amp;utm_medium=referral)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 

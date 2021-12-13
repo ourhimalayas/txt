@@ -2,46 +2,17 @@
 ---
 
 
-## 巴西一法官不顾总统反对 规定到访游客必须提供疫苗接种证明
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1750999/)
+## 美国情报部门透露 ，国内很多人想刺杀习近平
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1751020/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+栏目作者：焦点20分
 
+据 #美国 最高 #情报部门 透露 ，国内很多人想 #刺杀习近平 ！ 但目前 #习近平 如有任何闪失 ，将对 #灭共 非常不利。一直以来， #中共邪恶体制 才是问题的根本。杀了习，#中国共产党 依然存在。 习的野心和自大，搞文革2.0，打台湾，挑战美国等等，将促使西方世界集体 #加速灭共 。
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-12月11日，巴西最高法院法官路易斯·罗伯托·巴罗佐裁定，所有抵达巴西的旅客必须出示新冠疫苗接种证明。法官表示，只有当旅行者来自没有疫苗的国家或个人因健康原因无法接种疫苗时，才能免除疫苗接种证明的要求。 巴罗佐的裁决必须在下周经过最高法院所有11名法官审查后才能生效。
-
-巴西联邦政府曾在12月7日宣布，抵达巴西的旅客不必出示疫苗护照，但他们需要接受为期五天的隔离。 巴西总统博索纳罗认为，那些支持使用疫苗护照的人想要限制民众的自由。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.2-4.jpg)
-参考链接：
-[Brazil justice rules vaccine passport mandatory for visitors](https://m.washingtontimes.com/news/2021/dec/11/brazil-justice-rules-vaccine-passport-mandatory-fo/?utm_source=ground.news&amp;utm_medium=referral)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+**视频来源: 2021年12月12日郭先生大直播视频**
+**视频制作: 文星光**
+**文案: 梦田、文星光**
+**上传: 零点**
 
  
 
