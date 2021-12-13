@@ -132,46 +132,46 @@
 ### [12月12日文贵大直播快讯——俄方明确声明不支持攻台战略](/content/gnews/39/README.md)
  ` 澳喜特战旅Gnews`
 
-### [GTV新闻访谈简报|2021年12月12日早](/content/gnews/40/README.md)
+### [2021年12月12日文贵先生直播小飞象大雨围城速记](/content/gnews/40/README.md)
+ ` Mr. Miles Guo's News Briefing`
+
+### [GTV新闻访谈简报|2021年12月12日早](/content/gnews/41/README.md)
  ` 纽约香草山MOS01`
 
-### [有声|中共研发面部识别系统的公司被美国列入黑名单](/content/gnews/41/README.md)
+### [有声|中共研发面部识别系统的公司被美国列入黑名单](/content/gnews/42/README.md)
  ` MOSREC`
 
-### [有声|杨洁篪发动针对爆料革命的海外行动](/content/gnews/42/README.md)
+### [有声|杨洁篪发动针对爆料革命的海外行动](/content/gnews/43/README.md)
  ` MOSREC`
 
-### [继“维吾尔族法庭”判决中共种族灭绝罪，联合国将发布新疆局势评估报告](/content/gnews/43/README.md)
+### [继“维吾尔族法庭”判决中共种族灭绝罪，联合国将发布新疆局势评估报告](/content/gnews/44/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [盖特CEO：拯救言论自由的斗争正在进行](/content/gnews/44/README.md)
+### [盖特CEO：拯救言论自由的斗争正在进行](/content/gnews/45/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [西班牙政府将决定是否与欧洲伙伴一起对中共国冬奥会进行外交抵制](/content/gnews/45/README.md)
+### [西班牙政府将决定是否与欧洲伙伴一起对中共国冬奥会进行外交抵制](/content/gnews/46/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [英权威研究数据证实：接种疫苗者占病毒感染案例大多数 《每日揭露》详述疫苗护照不起作用四个理由](/content/gnews/46/README.md)
+### [英权威研究数据证实：接种疫苗者占病毒感染案例大多数 《每日揭露》详述疫苗护照不起作用四个理由](/content/gnews/47/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [二十年未兑现承诺！ 中共将被踢出世贸组织](/content/gnews/47/README.md)
+### [二十年未兑现承诺！ 中共将被踢出世贸组织](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【樱花深度报道】中共可能将核导弹走私到委内瑞拉以突袭美国（下）](/content/gnews/48/README.md)
+### [【樱花深度报道】中共可能将核导弹走私到委内瑞拉以突袭美国（下）](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【樱花深度报道】中共可能将核导弹走私到委内瑞拉以突袭美国（中）](/content/gnews/49/README.md)
+### [【樱花深度报道】中共可能将核导弹走私到委内瑞拉以突袭美国（中）](/content/gnews/50/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【樱花深度报道】中共可能将核导弹走私到委内瑞拉以突袭美国（上）](/content/gnews/50/README.md)
+### [【樱花深度报道】中共可能将核导弹走私到委内瑞拉以突袭美国（上）](/content/gnews/51/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [国际奥委会委员警告参加北京冬奥会的运动员不要乱说话](/content/gnews/51/README.md)
+### [国际奥委会委员警告参加北京冬奥会的运动员不要乱说话](/content/gnews/52/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [恒大倒闭，澳大利亚又一个“失去的十年”](/content/gnews/52/README.md)
- ` 墨尔本雅典娜农场`
-
-### [美国向乌克兰提供导弹和火箭发射器](/content/gnews/53/README.md)
+### [恒大倒闭，澳大利亚又一个“失去的十年”](/content/gnews/53/README.md)
  ` 墨尔本雅典娜农场`
 
 ### [美国陆续出台制裁中共国芯片产业链的措施](/content/gnews/54/README.md)
