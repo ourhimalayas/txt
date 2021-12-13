@@ -2,10 +2,10 @@
 ---
 
 
-## 各国陆续加入抵制北京冬奥会行列
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1750976/)
+## 澳大利亚仍在加速推广中共病毒疫苗加强针
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1750985/)
 
-作者：纽约香草山教育部 – 文特
+作者：纽约香草山教育部 – Naughty(文行)
 
 
 
@@ -13,12 +13,12 @@
 
 
 
-12月12日最新消息，继美、澳、新、加、英五国后，苏格兰、立陶宛、科索沃等国家也已经宣布抵制中共的2022冬奥会，坚决抵制冬奥会的声音越来越强烈。
+澳大利亚政府12月12日表示，随着奥米克隆变种病例的增加，它将把人们接种新冠疫苗加强针的等待时间从六个月缩短到五个月。此前，澳大利亚政府曾表示，它将为每个18岁以上并在六个月前接种了第二剂疫苗的人提供新冠疫苗加强针。
 
-在12月10日的国际人权日，欧盟驻华代表团还发表声明，抨击中共系统性侵犯公民和政治权利，以及针对香港公民的《国家安全法》破坏了中共一国两制、五十年不变的承诺。 以压倒性多数通过了一项不具约束力的决议，呼吁外交官员抵制冬奥会。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1.1-5.jpg)
+澳大利亚是世界上接种疫苗最多的国家之一，在16岁以上的人口中大约90%已经接种了疫苗。但如此高的接种率并未能有效阻止病毒的传播。12月11日的数据显示，澳大利亚在过去24小时内，发现了1,753例新冠病例，比上周增长约3%，创下了10月29日以来的最高病例数纪录。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-139.jpg)
 参考链接：
-[新中国联邦在八月初就呼吁国际奥委会取消中共冬奥会，并表示坚决抵制中共冬奥会。](https://www.gettr.com/post/pjfh31896e)
+[Australia Shortens Wait Time For COVID-19 Booster Doses As Omicron Cases Rise](https://www.oann.com/australia-shortens-wait-time-for-covid-19-booster-doses-as-omicron-cases-rise/?utm_source=ground.news&amp;utm_medium=referral)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
