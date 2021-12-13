@@ -2,10 +2,10 @@
 ---
 
 
-## 美国因中共在新疆的暴行决定对其实施与人权相关的制裁
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1749779/)
+## 巴黎市民走上街头抗议疫苗护照
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1749783/)
 
-12/11/2021 美国因中共在新疆的暴行决定对其实施与人权相关的制裁，被制裁企业包括商汤科技、魔星卡通、宁思卡通工作室和上海洪漫卡通。
+12/11/2021 巴黎市民走上街头抗议疫苗护照。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

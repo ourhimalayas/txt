@@ -2,23 +2,25 @@
 ---
 
 
-## 前美国参议员呼吁美国企业从北京冬奥会撤资
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1749758/)
+## 中共可能将集装箱武器偷运到南美
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1749760/)
 
-作者：纽约香草山 – 飞虹
+作者：纽约香草山农场 – 蓝天大海
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-12月10日，美国前参议员、堪萨斯州州长、国际宗教自由大使萨姆·布朗贝克在接受媒体采访时，详细描述中共对维吾尔穆斯林人口的人权侵犯，并呼吁可口可乐、爱彼迎等美国企业撤回在北京冬奥会上的广告投入，进一步抵制北京冬奥会。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture4-6.jpg)
-萨姆认为，中共将维吾尔穆斯林关进集中营进行迫害，试图灭绝他们的信仰；还反对基督教徒，摧毁教会。中共正在与所有的信仰进行战争，并希望其侵犯宗教自由的行为被全世界其他独裁政权仿效。
+据国外媒体12月11日报道，军事分析人士对中共悄悄发展的集装箱武器能力敲响了警钟。
 
-萨姆最后表示，鉴于中共的这些问题，美国应抵制即将在北京举办的冬季奥运会，但仅有拜登总统的外交抵制是不够的，应该呼吁那些持有西方公司广告资金的广告商，包括可口可乐、爱彼迎等知名公司撤回他们在北京冬奥会上投入的广告费。同时运动员也可以带着被中共关押的人的照片走进奥运场馆，表达自己的立场。
+北京零壹科技空间公司的宣传视频显示，他们将火箭用集装箱伪装起来，通过货船或波音747货运航班，部署到世界各地。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture5-2.jpg)
+美国太平洋舰队前情报局长詹姆斯·法内尔上尉表示，集装箱式火箭发射器显然是用于军事用途的。中共可能会通过伪装的集装箱将核导弹、运载火箭、甚至太空武器偷运到南美港口。国际评估与战略中心亚洲军事事务高级研究员里克·费舍尔透露，未来潜在的洲际弹道导弹可能隐藏在中共控制的巴拿马港口或与中共结盟的委内瑞拉港口，在那里可以威胁到美国全境。
 
-参考链接：[前美国参议员呼吁美国企业从北京冬奥会撤资](https://www.breitbart.com/politics/2021/12/11/exclusive-sam-brownback-calls-on-woke-corporations-to-pull-advertising-dollars-out-of-beijing-winter-olympics/)
+中共利用“一带一路”项目在全世界收购和租赁港口扩大其影响力，而且善于利用“军民融合”项目伪装其扩张军事霸权的野心。
+
+参考链接：[中共可能将集装箱武器偷运到南美](https://www.thesun.co.uk/news/16963561/china-smuggle-nuclear-missiles-venezuela/)
 
 ![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-总编：文特
-编辑：文特
+总编：文真
+编辑：DM
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
