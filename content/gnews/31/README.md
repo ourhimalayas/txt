@@ -2,46 +2,39 @@
 ---
 
 
-## 巴西一法官不顾总统反对 规定到访游客必须提供疫苗接种证明
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1750999/)
+## DC每日热点1213
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1751010/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+编辑：楚门门
+![](https://assets.gnews.org/wp-content/uploads/2021/12/C83A5C2A-B087-4922-B31F-A88EEEF38091-scaled.jpeg)
+道琼斯指数 35970.99 ▲0.61%
+纳斯达克指数 15630.60 ▲0.73%
+WTI纽约原油CFD 71.444 ▼0.34%
+布伦特原油CFD 74.847 ▼0.40%
+标普50指数 3,179.42 ▼34.78%
+美元兑人民币 1USD=6.365 RMB
+美元兑港币 1USD=7.799 HKD
+国际黄金 1783.92 美元/盎司
+全球CCP病毒感染人数 270,568,501例
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-12月11日，巴西最高法院法官路易斯·罗伯托·巴罗佐裁定，所有抵达巴西的旅客必须出示新冠疫苗接种证明。法官表示，只有当旅行者来自没有疫苗的国家或个人因健康原因无法接种疫苗时，才能免除疫苗接种证明的要求。 巴罗佐的裁决必须在下周经过最高法院所有11名法官审查后才能生效。
-
-巴西联邦政府曾在12月7日宣布，抵达巴西的旅客不必出示疫苗护照，但他们需要接受为期五天的隔离。 巴西总统博索纳罗认为，那些支持使用疫苗护照的人想要限制民众的自由。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.2-4.jpg)
-参考链接：
-[Brazil justice rules vaccine passport mandatory for visitors](https://m.washingtontimes.com/news/2021/dec/11/brazil-justice-rules-vaccine-passport-mandatory-fo/?utm_source=ground.news&amp;utm_medium=referral)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+1、韩国总统文在寅称理解和尊重澳大利亚签约添置核潜艇
+2、台国防部最新评估：共军全面攻台不会轻易得逞
+3、文在寅：美中朝原则同意正式宣告朝鲜战争结束
+4、因展示台湾与大陆颜色不同的地图 台湾部长民主峰会视频被白宫切断
+5、中共国为主要投资方的越南第一条轻轨建成后乘客稀少
+6、七国集团警告俄罗斯在乌克兰边境进行军事集结
+7、布林肯将访问东南亚三国 加强经济和安全合作
+8、阿里巴巴性侵事件后4个月解雇提出指控女员工
+9、文在寅表态韩方不考虑抵制北京冬奥会 日本还在观望
+10、澳门增设国安事务及技术顾问 中联办主任行监督之责 防外国干预
+11、默克尔卸任前与美国达成一致：若乌克兰安全恶化，北溪二号将不被允许运营
+12、德国新外长就北京冬奥发声：奥运会不应该被用于政治目的
+13、以色列总理访问阿联酋，历史首次
+14、法国出现数千个假新冠健康码，政府开启400项调查
+15、美日澳宣布合作帮助太平洋三国建海底光缆
+16、日本政府决定：不参与美国政府10日宣布的“出口管制和人权倡议”
+17、澳韩签10亿元国防协议 提升战略伙伴关系
+18、悼念六四亡灵“有罪” 香港法庭判多人入狱 李卓人、黎智英被判最重合作而被指控
 
  
 
