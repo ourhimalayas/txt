@@ -72,61 +72,61 @@
 ### [七哥谈希特勒和共产党（直播摘录）](/content/gnews/19/README.md)
  ` MG FARM`
 
-### [币安宣布将于明年2月退出新加坡加密货币市场](/content/gnews/20/README.md)
+### [郭文贵精品视频-抵制北京冬奥会是一个里程碑式的胜利](/content/gnews/20/README.md)
+ ` 澳喜农场`
+
+### [币安宣布将于明年2月退出新加坡加密货币市场](/content/gnews/21/README.md)
  ` 日本东京方舟农场`
 
-### [七哥谈爱自己（2021-12-10摘录）](/content/gnews/21/README.md)
+### [七哥谈爱自己（2021-12-10摘录）](/content/gnews/22/README.md)
  ` MG FARM`
 
-### [恒大确定违约，接下来会发生什么](/content/gnews/22/README.md)
+### [恒大确定违约，接下来会发生什么](/content/gnews/23/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [七哥谈共产党的墓地（2021-12-08摘录）](/content/gnews/23/README.md)
+### [七哥谈共产党的墓地（2021-12-08摘录）](/content/gnews/24/README.md)
  ` MG FARM`
 
-### [辉瑞公司文件揭示了各种疫苗副作用](/content/gnews/24/README.md)
+### [辉瑞公司文件揭示了各种疫苗副作用](/content/gnews/25/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [马德里、瓦伦西亚、巴塞罗那举行反对疫苗护照示威游行](/content/gnews/25/README.md)
+### [马德里、瓦伦西亚、巴塞罗那举行反对疫苗护照示威游行](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美最大医院系统取消疫苗强制令应对人手不足](/content/gnews/26/README.md)
+### [美最大医院系统取消疫苗强制令应对人手不足](/content/gnews/27/README.md)
  ` HimalayaRussia`
 
-### [中共国发现首例新冠奥密克戎变异毒株](/content/gnews/27/README.md)
+### [中共国发现首例新冠奥密克戎变异毒株](/content/gnews/28/README.md)
  ` 日本东京方舟农场`
 
-### [日本警告疫苗引发的死亡风险是病毒的七倍](/content/gnews/28/README.md)
+### [日本警告疫苗引发的死亡风险是病毒的七倍](/content/gnews/29/README.md)
  ` HimalayaRussia`
 
-### [“俄爹”正式翻脸，习近平的信心支柱倒塌并向着自杀更近一步](/content/gnews/29/README.md)
+### [“俄爹”正式翻脸，习近平的信心支柱倒塌并向着自杀更近一步](/content/gnews/30/README.md)
  ` YALUN 亚伦`
 
-### [币安新加坡子公司将撤回牌照申请，关闭本地平台运营](/content/gnews/30/README.md)
+### [币安新加坡子公司将撤回牌照申请，关闭本地平台运营](/content/gnews/31/README.md)
  ` 纽约香草山MOS02`
 
-### [12.12文贵爆料 H-Coin To The Moon是灭共灭邪恶的力量](/content/gnews/31/README.md)
+### [12.12文贵爆料 H-Coin To The Moon是灭共灭邪恶的力量](/content/gnews/32/README.md)
  ` 秘密翻译组-原创组`
 
-### [音乐灭共：一曲Hcoin to the Moon 震惊海内外](/content/gnews/32/README.md)
+### [音乐灭共：一曲Hcoin to the Moon 震惊海内外](/content/gnews/33/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [欧盟对抵制北京冬奥会还在犹豫不决](/content/gnews/33/README.md)
+### [欧盟对抵制北京冬奥会还在犹豫不决](/content/gnews/34/README.md)
  ` HimalayaRussia`
 
-### [美国西肯塔基州居民遭遇最致命龙卷风袭击](/content/gnews/34/README.md)
+### [美国西肯塔基州居民遭遇最致命龙卷风袭击](/content/gnews/35/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [中国内地出现首个奥密克戎 （Omicron）感染病例](/content/gnews/35/README.md)
+### [中国内地出现首个奥密克戎 （Omicron）感染病例](/content/gnews/36/README.md)
  ` 首尔天池农场`
 
-### [日本民间团体举办为台湾正名签名活动](/content/gnews/36/README.md)
+### [日本民间团体举办为台湾正名签名活动](/content/gnews/37/README.md)
  ` 日本东京方舟农场`
 
-### [四个州召集国民警卫队应对医疗人员配备危机](/content/gnews/37/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [2021/12/13 大卫作战室直播精要](/content/gnews/38/README.md)
+### [四个州召集国民警卫队应对医疗人员配备危机](/content/gnews/38/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [音乐，独裁者的武器和噩梦](/content/gnews/39/README.md)
