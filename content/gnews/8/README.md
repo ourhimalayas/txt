@@ -2,46 +2,36 @@
 ---
 
 
-## 用病毒和疫苗打垮和挑战世界的习太阳被俄罗斯致命重击
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1750481/)
+## 美CDC：大多数的美国omicron病例是完全接种疫苗的人
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1750505/)
 
-**郭文贵先生：**你们大家要意识到，这对习在共产党的这种位置一下子就是致命的打击。它最成功的它认为2012十八大以来，它认为我在全世界我中国人站起来了，这个狮子醒来了。醒来的标志是什么呢？我敢跟美国人说不，我跟欧洲说不，我让它，我给你们开药方儿，我给他把脉，他还没人敢说不，而且俄罗斯百分之百支持，——普京，我后面有人帮我拿着枪给我顶着呢。
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-157.png)图片来源：The Quint
+翻译：小鱼儿
+编辑：Mttfly
 
-更重要的事情，中国人民把我当成太阳，把我当成神，把我当成爹，然后中国的老百姓完全是得人心、得民心，是吧？然后我让非洲人把我列为一个未来和救星和希望，哎呦，我的天呐，然后中国人你看卫星持续上天，武力持续发达。至于那些私人企业家嘛，那都必然牺牲的。
+12月10日（路透社）根据周五发表的一份美国报告，迄今为止在美国发现的由Omicron变体引起的43例COVID-19病例中，大多数人都已完全接种疫苗，其中三分之一的人已经接受了加强剂量。
 
-看斯大林，斯大林死了几百万人、几千万人，杀了几百万个党员，最终斯大林把卫星而且苏联还上了月球，是吧，我们就要跟他一样就要死人，死人才能上月球嘛，是吧，才能挑战美国嘛，所以习这所有的感觉当中离不开俄罗斯。
+美国疾病控制和预防中心（CDC）说，在Omicron变体的43个病例中，34人已经完全接种了疫苗。其中14人还接受了强化疫苗，尽管其中5个病例发生在全面保护生效之前的额外注射后不到14天。
 
-内部人你看看，我现在跟苏联前所未有历史上最好的关系，连美国人都不敢跟我在这块儿给我谈，我放病毒、我弄疫苗，我让全世界停摆，我让全世界在家呆着，没人敢问我疫苗哪来的，没有人敢问我病毒哪来的，牛不牛？是不是？外交部从来没那么大声过，过去叫卖国部，现在已经叫强国部，叫战狼部。
+虽然这些数字非常小，但它们增加了人们对当前COVID-19疫苗可能对高度传播的新变体提供较少保护的担忧。
 
-一切起源于俄罗斯，美国的软弱、华尔街的背叛，好莱坞还有香港四大家族的不要脸，整个这些促成了习的狂妄。
+报告说，他们中的大多数人只有轻微的症状，如咳嗽、鼻塞和疲劳，有一个人住院两天。其他报告较少的症状包括恶心或呕吐，气短或呼吸困难，腹泻和味觉或嗅觉丧失。
 
-当然对中国人不是好事，对我们爆料革命这都是天大的好事，没它咱达不到这个境地，灭不了共。你要胡锦涛这号人，江泽民下来，邓小平，咱咋灭得了共？你灭不了共的，中国人有钱有饭吃，灭啥共啊？把咱给灭了是吧。
+第一例已知的美国Omicron病例是在12月1日发现的，是一个曾到南非旅行的完全接种过疫苗的人。疾病预防控制中心说，有国际旅行史的人最早的症状发作日期是11月15日。
 
-编辑整理：喜马拉雅的肉夹馍；
+Delta变体仍然占所有美国病例的99%以上。但来自南非的报告显示，Omicron变体的传播性非常强。
 
-视频制作：小满；
+**原文链接：**[Most reported U.S. Omicron cases have hit the fully vaccinated -CDC](https://www.reuters.com/world/us/most-reported-us-omicron-cases-have-hit-fully-vaccinated-cdc-2021-12-10/)
 
-视频上传：Cindy；
-
-G-News发布：黎明之前；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**发布：**去中心化Math
+**
+更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

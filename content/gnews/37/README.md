@@ -2,18 +2,22 @@
 ---
 
 
-## 前美国参议员呼吁美国企业从北京冬奥会撤资
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1749758/)
+## G7外长峰会再次聚焦中共，呼吁各国采取共同行动
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1749759/)
 
-作者：纽约香草山 – 飞虹
+作者：日本方舟农场 – Andy5
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-12月10日，美国前参议员、堪萨斯州州长、国际宗教自由大使萨姆·布朗贝克在接受媒体采访时，详细描述中共对维吾尔穆斯林人口的人权侵犯，并呼吁可口可乐、爱彼迎等美国企业撤回在北京冬奥会上的广告投入，进一步抵制北京冬奥会。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture4-6.jpg)
-萨姆认为，中共将维吾尔穆斯林关进集中营进行迫害，试图灭绝他们的信仰；还反对基督教徒，摧毁教会。中共正在与所有的信仰进行战争，并希望其侵犯宗教自由的行为被全世界其他独裁政权仿效。
+12月11日，G7外长峰会在英国利物浦召开，中共已成为各国口中的战略难题。
 
-萨姆最后表示，鉴于中共的这些问题，美国应抵制即将在北京举办的冬季奥运会，但仅有拜登总统的外交抵制是不够的，应该呼吁那些持有西方公司广告资金的广告商，包括可口可乐、爱彼迎等知名公司撤回他们在北京冬奥会上投入的广告费。同时运动员也可以带着被中共关押的人的照片走进奥运场馆，表达自己的立场。
+作为轮值主席国代表的英国外长表示，西方会与盟国团结一致，对抗威权主义，尤其是要关注俄罗斯与中共。而在本次讨论过程中，俄罗斯在短暂被作为焦点后，其余时间，各国外长非常激烈地讨论了与中共相关的议题。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture5-1.jpg)
+外长们还讨论了香港局势、新疆问题、台湾和平的重要性，以及支持立陶宛的必要性。其中日本新任外相林芳正强调了中共正在试图私自改变东海、南中国海的现状，并要求中共为其在香港新疆人权问题上承担责任。
 
-参考链接：[前美国参议员呼吁美国企业从北京冬奥会撤资](https://www.breitbart.com/politics/2021/12/11/exclusive-sam-brownback-calls-on-woke-corporations-to-pull-advertising-dollars-out-of-beijing-winter-olympics/)
+同时有官员称，虽然不想被视为反中共俱乐部，但希望各国能在对中共问题上采取共同行动。
+
+参考链接：
+1. [G7外长峰会再次聚焦中共，呼吁各国采取共同行动](https://www.cna.com.tw/news/firstnews/202112110228.aspx)
+2. [G7外长峰会再次聚焦中共，呼吁各国采取共同行动](https://www.reuters.com/world/china/chinas-xi-russias-putin-dominate-g7-2021-12-12/%203.%20https://www.fnn.jp/articles/-/283947%204.%20https://www3.nhk.or.jp/news/html/20211212/k10013385031000.html)
 
 ![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 

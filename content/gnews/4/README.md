@@ -2,37 +2,34 @@
 ---
 
 
-## 美CDC：大多数的美国omicron病例是完全接种疫苗的人
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1750505/)
+## 布林肯访问东南亚 加强合作对抗中共
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1750826/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-157.png)图片来源：The Quint
-翻译：小鱼儿
-编辑：Mttfly
+作者：MOS 柳是多水土透
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月12日华盛顿消息，美国国务卿布林肯将在下周出访东南亚地区。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-13-下午9.49.01.png)圖片來源：2021年12月12日，美國國務卿安東尼‧布林肯（Antony Blinken）在英國利物浦市（Liverpool）準備登機回美。（Oliver Douliey/POOL/AFP via Getty Images）
+布林肯将在12月13日到达印尼首都雅加达，进行外事访问。随后，他将继续出访马来西亚和泰国。这是拜登政府任期内首次东南亚外交之行。
 
-12月10日（路透社）根据周五发表的一份美国报告，迄今为止在美国发现的由Omicron变体引起的43例COVID-19病例中，大多数人都已完全接种疫苗，其中三分之一的人已经接受了加强剂量。
+目前，东南亚已经成为美国与中共较量的战略战场。中共对南海大部分地区声称拥有主权，而这些地区是重要的公共海上贸易路线。中共还一直对台湾施加军事胁迫和政治压力。
 
-美国疾病控制和预防中心（CDC）说，在Omicron变体的43个病例中，34人已经完全接种了疫苗。其中14人还接受了强化疫苗，尽管其中5个病例发生在全面保护生效之前的额外注射后不到14天。
+布林肯希望通过这次访问，与东盟国家提升关系，他将聚焦于安全基础设施合作，建立印太经济框架，加强美国在印太地区的影响力，以对抗中共的扩张和威胁。
 
-虽然这些数字非常小，但它们增加了人们对当前COVID-19疫苗可能对高度传播的新变体提供较少保护的担忧。
+参考链接：[Blinken heads to Southeast Asia to deepen cooperation on China pushback](https://www.reuters.com/world/blinken-heads-southeast-asia-deepen-cooperation-china-pushback-2021-12-12/)
 
-报告说，他们中的大多数人只有轻微的症状，如咳嗽、鼻塞和疲劳，有一个人住院两天。其他报告较少的症状包括恶心或呕吐，气短或呼吸困难，腹泻和味觉或嗅觉丧失。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-第一例已知的美国Omicron病例是在12月1日发现的，是一个曾到南非旅行的完全接种过疫苗的人。疾病预防控制中心说，有国际旅行史的人最早的症状发作日期是11月15日。
+总编：Ivy001
+编辑：Ivy001
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-Delta变体仍然占所有美国病例的99%以上。但来自南非的报告显示，Omicron变体的传播性非常强。
-
-**原文链接：**[Most reported U.S. Omicron cases have hit the fully vaccinated -CDC](https://www.reuters.com/world/us/most-reported-us-omicron-cases-have-hit-fully-vaccinated-cdc-2021-12-10/)
-
-**发布：**去中心化Math
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
