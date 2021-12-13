@@ -2,22 +2,34 @@
 ---
 
 
-## 中共的邪恶统治导致失业大潮！
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1749265/)
+## 俄罗斯彻底抛弃中共 对习近平打击巨大
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1749369/)
 
-撰稿：东京樱花团/ThreeColors
-![](https://assets.gnews.org/wp-content/uploads/2021/12/8-5.png)[图片来源](https://news.stcn.com/sd/202004/t20200426_1721493.html)
-上一次是三十年前的朱镕基时代，如今中共国的失业大潮再次涌现。
+作者：纽约香草山农场 – 四季
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月12日，郭文贵先生在大直播中透露，俄罗斯将彻底排除中共，在亚欧施展其利益最大化的外交手腕。
 
-近期的爱奇艺裁员求生。在中共整顿娱乐业的大背景下，因为影视作品的题材必须跟党走，越来越受限制，所以导致作品大减。这次裁员幅度为20%到40%左右，主要是在爱奇艺的中高层职员中进行。另外还有至少十九家互联网大厂陷入裁员疑云。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide1-14.jpeg)
 
-第二个源头是陷于困境的房地产，大量裁员并面临倒闭的边缘。第三个源头是外商企业离开大陆，把工厂移到其他国家。第四个源头是中共对中小民营企业的打压。第五个是突如其来的教育双减政策，教培企业被团灭。第六个是中共整顿跨国电商。第七个源头就是中共此次制造和释放的生化武器。疫情也导致餐饮业倒闭，其中包括海底捞宣布年底之前逐渐关停300家店。
+郭先生得到可靠信息，俄罗斯目前对中共国内部的人权及经济状况非常失望，认为中共失去了为其输送经济利益的能力。在与美国会谈后，俄罗斯特使强硬告知中共俄罗斯的决定：第一，俄罗斯不会参与中共攻打台湾；第二，中俄签订的油气协议必须执行，否则就联合美国对中共实施打击。俄罗斯将在越南，柬埔寨及菲律宾设立军事基地，并与印度，巴基斯坦，北朝鲜及伊朗形成新的战略同盟关系。与此同时，俄罗斯将与欧洲共同举办欧洲人权会议，在亚洲和欧洲之间寻求平衡。
 
-在邪恶中共统治下，这几个源头导致的失业人数不计其数，可谓是民不聊生！另外，最近几年中共高校一直在扩招，估计明年毕业生将达到一千万人，空前的毕业压力也可想而知。
+郭先生说，习近平非常崇拜沙俄文化、崇拜斯大林，是彻底的”崇俄派”。习近平所谓的“自信”，离不开与俄罗斯的勾兑。但是，俄罗斯与中国的文化存在巨大差异，历史已经多次证明俄罗斯不可能与中共结盟。俄罗斯这次彻底抛弃中共，不但对习近平个人打击巨大，而且是对中共几十年实行的联俄抗美，收复台湾的战略野心的巨大羞辱。
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+参考链接：[2021年12月12日 文贵大直播](https://www.gettr.com/streaming/pjgjwbc1bf)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
+
+总编：文真
+编辑：文真
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
