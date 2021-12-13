@@ -2,20 +2,26 @@
 ---
 
 
-## 秘翻在线: 布林肯将访问东南亚三国，加强反共联盟
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1748422/)
+## 南非总统完全接种疫苗中共病毒检测呈阳性
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1748522/)
 
-撰稿：西枫westca
+俄罗斯莫斯科喀秋莎农场   银河
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/12/unnamed-21.jpg)图片来源：路透社
-据路透社12月12日报道，美国国务卿布林肯于周一启程开启他的首次东南亚之旅。他将访问印度尼西亚、马来西亚和泰国，寻求与东南亚地区的经济和安全合作，并在印太地区建立更广泛的反对中共的统一联盟。
+编辑上传   水星
+![](https://assets.gnews.org/wp-content/uploads/2021/12/S.png)sabcnews.com
+南非总统办公室表示，南非总统西里尔·拉马福萨(Cyril Ramaphosa)12月12日的中共病毒检测呈阳性，目前正在接受治疗。
 
-东南亚在地理上是美国推动其“自由开放的印太地区”的核心，已成为美国和中共国之间的战略战场。 中共声称拥有南中国海的大部分地区，而这是连接该地区的重要贸易路线。同时对自治的台湾施加军事和政治压力日益加重。 路透社报导，布林肯将把拜登政府与东盟的关系，提升到“前所未有”的水平。拜登政府认为美国参与东南亚的金融建设，可以在该地区推动反共力量。 双方合作的重点是，面临中共的“欺凌”，如何加强地区安全基础设施，并会讨论对印太经济框架的愿景。
+声明称，南非总统目前在开普敦自我隔离，并接受南非军队卫生服务局的监测。他已将下周的所有职责委托给副总统戴维·马布扎。
 
-随着中共对外扩张野心的增加，鼓吹武力统台。东南亚的站位将有很重要的作用。希望此次美国高官对该地区的访问能起到积极地、巩固统一反共联盟的作用。
+现年69岁的拉马福萨已经完全接种了疫苗。声明没有说他是否感染了奥米克戎病毒变种。
 
-**新闻来源：**[Blinken heads to Southeast Asia to deepen cooperation on China pushback (msn.com)](https://www.msn.com/en-gb/news/world/blinken-heads-to-southeast-asia-to-deepen-cooperation-on-china-pushback/ar-AARJeLI?ocid=BingNewsSearch)
+上周，拉马福萨访问了四个西非国家。在访问期间，他和他的代表团的所有成员都在每个国家接受了中共病毒检测。代表团中一些人在尼日利亚检测呈阳性，并直接返回南非。在余下的行程中，拉马福萨及其代表团的检测结果为阴性。拉马福萨于12月8日从塞内加尔返回。
+
+报道称南非与拉马福萨有过接触的人被建议观察症状，或自己进行检测。
+
+参考链接：
+
+[https://globalnews.ca/news/8445020/south-africa-president-covid-19/](https://globalnews.ca/news/8445020/south-africa-president-covid-19/)
 
  
 
