@@ -2,44 +2,119 @@
 ---
 
 
-## 7·24系列——钻石大王戴比尔斯De Beers
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1750183/)
+## MV版Hcoin To the Moon上线第4天位列26国iTunes热门MV榜首！
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1750516/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/gettyimages-713874959.jpg)图片来源：TechCrunch
-**整理/编辑：**翼族
+12/13/2021 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线第4天位列26国iTunes热门MV榜榜首！
 
-2021年12月12日文贵大直播，郭文贵先生提到习近平女儿和家人（概要）：
+* * *
 
-##### 我可以告诉大家，习的女儿叫李木子，在我直播前我都知道她在哪儿。她住在党校旁边，跟李长春是隔壁邻居，大概有60个人的特警服务，但是她经常来美国，她在这也有房子。生活中你看到那个粉钻、劳斯莱斯、私人飞机，你们觉得那很夸张是吗？事实比这夸张不知道多少倍！我一说——你们就像五年前说的，几千亿、几万亿——夸张！怎么动不动就几万亿、几千亿！现在都知道，你们也都一说一张嘴是万亿千亿了。
+[【PDF 下载】Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record.pdf)
 
-##### 习对家人的爱和照顾，对母亲、对自己的弟妹、他自己家族的维护超出你常人的想象，他这个女儿的生活奢侈远比你亮出的粉钻厉害得多得多，那粉钻算个毛啊！她真的放个屁都能放出那些东西出来，她给香港的任何一个大佬说，给我拿100个亿去消遣一下去，100个亿能买啥？你看的这些东西能买一万遍。我想我不要买钻石，我把钻石矿都买了，下一分钟就办成。
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_3.jpg)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_4.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_6.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_7.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_8.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_9.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_10.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_11.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_12.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_13.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_14.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_15.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_16.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_17.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_18.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_19.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_20.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_21.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_22.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_23.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_24.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_25.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_28.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_30.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_31.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_32.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_33.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_34.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_35.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_36.jpg)
 
-##### 戴比尔斯的老板见了习的家人以后，当时买完了，离开的时候说这是谁呀？这是习的家人。哇塞，这老板从楼上冲下来把所有人给骂一顿，你为什么不叫我？为什么不跟我说？暴怒！钻石大王，黑白两道，这么大的人物竟然失态到极点。大家全傻了，说是跟这哥们工作二三十年，没见他发过脾气骂过人。习的家人那么厉害吗？他说我告诉你，只要习的家人爱上我们，我们就马上翻身百倍！这是哪年？我告诉大家，2007年。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_37.jpg)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_38.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_39.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_40.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_41.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_42.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_43.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_44.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_45.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_46.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_47.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_48.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_49.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_50.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_51.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_52.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_53.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_54.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_55.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_57.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_58.jpg)
 
-##### 你还看那个粉钻，这就看出战友认知性有多差！你以为她亮个粉钻，你很受不了是吗？她可以拿出那个拌饭吃都行，真的！对她来讲，你不知道共产党当官，当了政治局委员，到了常委，又当了习近平这个啥概念？他要啥有啥，天下都是他的。你怎么还觉得有什么贵贱，还多少钱？对他来讲已经完全不算事儿了！
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_59.jpg)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_60.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_61.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_62.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_63.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_64.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_72.jpg)
 
-戴比尔斯，英文名称De Beers，是世界钻石业的垄断性跨国公司。如果说读者不了解的话，那么只要说到钻石行业流传最广的一句广告语“钻石恒久远一颗永留传”，想必每个人都很熟悉，而它就是戴比尔斯最早于1947年推出的。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_73-1.jpg)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_74.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_75.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_76.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_77.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_78.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_79.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_80.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_81.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_82.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_83.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_84.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_85.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_86.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_87.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_88.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_91.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_92.jpg)
 
-戴比尔斯的创始人是塞西尔·罗德斯，现公司总部在卢森堡，今天的戴比尔斯一条龙主宰了全球四成的钻石开采和贸易。罗德斯在1871年钻石热时开始创业，在南非Colesburg Kopje（后更名为金伯利）发现一颗钻石，重83.5克拉。他将利润投入到购买小型矿的行动中，迅速扩张，并在1888年合并了戴比尔斯联合矿业公司。到1902年罗德斯去世时，戴比尔斯已经掌控了全世界90%的钻石产业。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_94.jpg)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_95.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_96.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_97.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_98.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_99.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_100.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_102.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_103.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_104.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_107.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_108.jpg)
 
-1927年，欧内斯特·奥本海默坐上戴比尔斯公司的主席位置。戴比尔斯公司自20世纪以来一直在国际钻石市场上实行垄断，采用各种方法不断加强其对市场的控制方式。虽然受到各种挑战，但直到今天依然占据40%的市场份额，而且其利润率比占据80%市场份额时还要高。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_109-2.jpg)
+[【PDF 下载】Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Monday-13-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record.pdf)
 
-2011年11月5日，南非奥本海默家族提出将其持有的戴比尔斯40%股份以51亿美元出售给英美资源，但持有15%股权的博茨瓦纳政府凭优先权以12.75亿美元收购了奥本海默股权的四分之一（10%），因此持股量增至25%，而英美资源的持股量则增至75%。
-
-戴比尔斯的所有子公司和关联公司，在全世界五大洲拥有大约两万名员工，在非洲有大约一万七千名员工。约有7000人在博茨瓦纳工作，超过7100人在南非工作，3800人在纳米比亚，700人在加拿大，800人在勘探部门。目前戴比尔斯公司的粗加工钻石贸易都通过DTC（The Diamond Trading Company）公司进行。
-
-2001年，戴比尔斯与法国奢侈品公司酩悦·轩尼诗-路易·威登集团成立合资公司（De Beers Diamond Jewellers Ltd），经营戴比尔斯钻石珠宝。第一家专营店于2002年在伦敦Old Bond大街作为品牌旗舰店开张。一年后，该品牌在日本开设了第一家专卖店。2005年，戴比尔斯在美国的纽约第五大道和比弗利山的Rodeo Drive各开了一家零售店。2007年，戴比尔斯在美国的零售店遍布拉斯维加斯、休斯顿和佛吉尼亚州各地。2017年3月23日，戴比尔斯向酩悦·轩尼诗-路易·威登集团收购回50%的股权，自此戴比尔斯100%控股该品牌的零售业务。
-
-中国的网民们经常喜欢自我调侃——贫穷限制了我的想象，而这一幕其实就真实地发生在我们的身上。钻石是富贵的象征，但对于习的女儿来说，却连屁都不是。黑白两道都不敢惹的钻石大王，在权力面前也只有卑躬屈膝的份。在中共国这样一个极权国家，权力拥有者往往拥有无尽的财富，正所谓“一人得道鸡犬升天”，只是习家人的穷奢极侈，正在让习家加速走向灭亡，这也再一次应验了“总加速师”的头衔。
-
-*发布：翼族*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

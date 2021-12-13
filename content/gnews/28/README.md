@@ -2,30 +2,29 @@
 ---
 
 
-## COVID-19 最新情报｜美国omicron感染 逾七成接种过疫苗
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1749905/)
+## 民主党人预计拜登总统的“重建美好”方案将被推迟到2022年
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1750484/)
 
-**疫情關注組 / 發佈時間｜13/12/2021**
+翻译：zzballack
+上传：无明逆流
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+据美国新闻网站Axios 12月13日报道，一些参议院民主党人正为拜登总统的“重建美好（Build Back Better）“方案被推迟到2022年做准备，尽管民主党领导人坚持认为这项大规模的社会福利和气候变化支出法案将在今年年底前获得通过。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/376.jpg)图片来源：原新闻
+为什么这很重要？除了被推迟到中期选举年以外，这项价值1.75万亿美元的法案的延迟还给民主党人制造了一些技术和财政障碍，比如儿童税和清洁能源信贷等重要条款将会失效。对该法案进行技术性修正将使民主党人感到恼火，但对立法来说却不是致命的。更大的担忧是，任何拖延都会导致方案规模变小。
 
+参议院金融服务委员会主席罗恩·怀登（Ron Wyden）告诉Axios：“当然，将法案从今年推迟到明年会出现经济上的问题。该法案必须在12月28日之前通过，以便将1月份的联邦救济支票邮寄给美国人。”该委员会成员本·卡丁 (Ben Cardin)参议员说：“如果推迟到明年，就会遇到挑战。”
 
-外媒指出，omicron在美国的感染情形还没达到巅峰前，新冠确诊者、住院人数便飙升，疫情再次升温的情形包含疫苗接种率高的地区。美国新冠新病例从11月22日的95000例/单日，飙升至每日近11万9千例，住院治疗人数比11月增加了25%。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/coronavirus-data-explorer.png)美国每7日确诊的滚动平均值。来源：Our World in Data
-美国病例增长几乎来自于delta变种，最新发现的omicron尚未成为威胁美国的主要变种（指12/09撰文时）。据[CDC数据](https://www.cdc.gov/coronavirus/2019-ncov/variants/omicron-variant.html)，美国新病例增长时omicron已在至少21个州被发现，基于omicron高传染的特性，omicron将形成美国另一威胁。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截圖-2021-12-13-下午3.58.44.png)來源：CDC
-## 新英格兰地区高接种率 仍发生感染数激增
+拜登总统12月10日表示，他计划在本周早些时候与该法案的重要反对者、民主党参议员乔·曼钦 (Joe Manchin) 进行会谈。
 
-拜登政府持续推广加强针，于12月的第一周便接种了近700万剂。VOA援引美联社统计数据，美国完全接种人口比例最高的五个州都在新英格兰地区，分别是：佛蒙特州、康涅狄格州、缅因州、罗德岛州和马萨诸塞州，新罕布什州接种率排名第十。
+12月10日的一份报告显示，美国的通胀率已经高达6.8%。共和党参议员林赛·格雷厄姆 (Lindsey Graham)告诉记者，共和党人在对“重建美好”方案评分后估计，如果该法案的项目永不过期，那么该法案将在十年内耗费3万亿美元。格雷厄姆在接受福克斯采访时说：“曼钦认为这个法案充满了噱头：项目不会消失，而且支出会翻倍。”
 
-新英格兰地区的六个州，疫苗完全接种率从69.4%-61.5%不等。而全美国平均完全接种率为55.5%。尽管新英格兰地区的接种率高于全国平均，但本次仍成为“新病例快速增长最严重的地区之一”。
+参议院的一些高级助理人员告诉Axios，连参议院的多数党领袖查克·舒默 (Chuck Schumer)在私下里也承认，在明年1月前通过该法案是一个非常雄心勃勃的目标。
 
-## CDC: 美国75% omicron病例曾接种新冠疫苗
+这个法案一直都有很大的可能不得不被推迟。因为国会本月面临一系列必须在截止日期前通过的法案，这些法案比“重建美好”方案更为优先，包括为政府提供资金、通过年度国防立法和提高债务上限。另外由于一些议员的健康问题，时间安排也会受到影响。
 
-美联社采访CDC 主任罗谢尔·瓦伦斯基 (Rochelle Walensky) 博士称，美国自12 月 1 日首次确认 omicron 变种以来，已知感染omicron的人中四分之三接种了疫苗，三分之一接种过加强针。同时期，旧金山东湾也爆发了omicron 感染，12病例中11例接种了疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-3.png)
-来源｜[VOA](https://www-voanews-com.translate.goog/a/virus-surge-hits-new-england-despite-high-vaccination-rates/6255569.html?_x_tr_sl=en&amp;_x_tr_tl=zh-TW&amp;_x_tr_hl=zh-TW&amp;_x_tr_pto=sc)、[SF](https://www.sfchronicle.com/health/article/Omicron-outbreak-from-out-of-state-wedding-tied-16685845.php?utm_campaign=premiumsfgate_breakingnews_20211208&amp;utm_source=newsletter&amp;utm_medium=email)
+另外，参议院民主党人也仍在就该法案中的一些关键条款争论不休，包括州和地方税收扣除（SALT）、参议员怀登的“亿万富翁税（Billionaires Tax）”和扩大医疗保险的提议。
+
+新闻来源：[Democrats brace for Build Back Better delay into 2022](https://www.axios.com/democrats-brace-for-build-back-better-delay-into-2022-b105d083-f716-418f-9e18-c83ec2b6f68f.html)
 
  
 

@@ -2,36 +2,48 @@
 ---
 
 
-## 美CDC：大多数的美国omicron病例是完全接种疫苗的人
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1750505/)
+## 美物价高涨已激起民众高度不满
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1750949/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-157.png)图片来源：The Quint
-翻译：小鱼儿
-编辑：Mttfly
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-5-768x103-13.jpg)
 
-12月10日（路透社）根据周五发表的一份美国报告，迄今为止在美国发现的由Omicron变体引起的43例COVID-19病例中，大多数人都已完全接种疫苗，其中三分之一的人已经接受了加强剂量。
+作者：纽约香草山 医疗部 云豹
 
-美国疾病控制和预防中心（CDC）说，在Omicron变体的43个病例中，34人已经完全接种了疫苗。其中14人还接受了强化疫苗，尽管其中5个病例发生在全面保护生效之前的额外注射后不到14天。
 
-虽然这些数字非常小，但它们增加了人们对当前COVID-19疫苗可能对高度传播的新变体提供较少保护的担忧。
 
-报告说，他们中的大多数人只有轻微的症状，如咳嗽、鼻塞和疲劳，有一个人住院两天。其他报告较少的症状包括恶心或呕吐，气短或呼吸困难，腹泻和味觉或嗅觉丧失。
+美国劳工部于当地时间12月10日，公布11月份消费者物价指数（CPI）年增6.8％，刷新1982年6月以来最大年增幅，创下近40年新高纪录，显示美国通膨压力维持在高档。在当地时间12月12日，有最新民调显示，有69%的受访者不满意政府处理通货膨胀的方式，只有28%民众表示满意。共和党支持者不满意比例高达94%，独立选民的不满意度为71%。在满意度上，民主党支持者只有54%表示满意。
 
-第一例已知的美国Omicron病例是在12月1日发现的，是一个曾到南非旅行的完全接种过疫苗的人。疾病预防控制中心说，有国际旅行史的人最早的症状发作日期是11月15日。
+美国的汽油价格已经连续两个月上涨6.1％，在当地时间12月6日达到每加仑3.7美元，接近4美元的民众忍耐极限。在与民众日常生活相关的食品上，与去年同时间比较，鸡蛋上涨29.3%、牛肉上涨28.7%、培根上涨27.9%、牛奶上涨8.4%、咖啡上涨6.1%。汽油及食品价格的大幅上涨，已经让美国一般民众的生活压力大增，依据民调数据可显示出，民众对政府的不满情绪已经接近爆发临界点。
 
-Delta变体仍然占所有美国病例的99%以上。但来自南非的报告显示，Omicron变体的传播性非常强。
+(本文为作者观点，不代表G NEWS立场)
 
-**原文链接：**[Most reported U.S. Omicron cases have hit the fully vaccinated -CDC](https://www.reuters.com/world/us/most-reported-us-omicron-cases-have-hit-fully-vaccinated-cdc-2021-12-10/)
+[新闻连接]：
 
-**发布：**去中心化Math
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+&lt;[https://www.cna.com.tw/news/aopl/202112130011.aspx](https://www.cna.com.tw/news/aopl/202112130011.aspx)&gt;
+
+&lt;[https://ctee.com.tw/news/global/563177.html](https://ctee.com.tw/news/global/563177.html)&gt;
+
+&lt;[https://zh.globalpetrolprices.com/USA/gasoline\_prices/](https://zh.globalpetrolprices.com/USA/gasoline_prices/)&gt;
+
+&lt;[https://wallstreetcn.com/articles/3644855](https://wallstreetcn.com/articles/3644855)&gt;
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec.png)
+
+
+
+校对/编辑/发稿：云豹
+
+**更多信息，更多关注**
+
+[**纽约香草山农场**** GTV****–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
  
 

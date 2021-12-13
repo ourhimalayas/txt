@@ -2,61 +2,32 @@
 ---
 
 
-## 【玫瑰看新闻】 每日快讯 2021年12月12日
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1750372/)
+## 斯伯丁呼吁美国与中共脱钩
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1750827/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_0988-1.jpg)
-**1. **美企迁回生产线
+作者：东京樱花团—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+近日，美国退役准将罗伯特.斯伯丁接受媒体采访时表示，美国政府如果对中共进行更强有力的反击，就必须将矛头指向数据。美国的数字和数据边界，正在遭到中共的大规模入侵。因此，他建议美国政府应当与中共全面脱钩。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-13-下午9.33.17.png)圖片來源：美国空军退役准将、中共国问题专家罗伯特·斯伯丁（Robert Spalding）。Samira Bouaou/The Epoch Times
+斯伯丁将军表示，中共企图成为数据资源的霸主。因为中共相信，可以通过与美国商业和数据的联系，从内部改变美国。中共正在利用金融、贸易、经济、学术领域、互联网等，每一个与美国的联系，来慢慢拆散美国的社会结构以制造分裂，并最终达到他们的邪恶目的。 他警告说，经过研究发现，中共可以利用数据影响美国的政治进程，其方式已经超越了五角大楼在武器方面的发展。
 
-**2. **非法移民涌入** **亚利桑那边境城市进入紧急状态
+参考链接：
+1）[https://gettr.com/post/pj72910e76](https://gettr.com/post/pj72910e76)
+2）[https://gettr.com/post/pj6hrh6fcc](https://gettr.com/post/pj6hrh6fcc)
 
-**3. **应对中共侵台威胁** **美议员：绥靖永不奏效
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-**4.Omicron**变异株来袭** **英国通报新增**1239**例确诊
+总编：文真
+编辑：文真
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-1. [美企迁回生产线](https://www.dw.com/zh/%E7%89%B9%E6%9C%97%E6%99%AE%E8%BF%9F%E5%88%B0%E7%9A%84%E6%88%90%E5%8A%9F%E7%BE%8E%E4%BC%81%E8%BF%81%E5%9B%9E%E7%94%9F%E4%BA%A7%E7%BA%BF/a-60059166)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片-1-25.jpg)英特尔在亚利桑那州新建的芯片厂
-德国之声12月12日消息:在全球出现供应瓶颈、产能不足背景下，越来越多的美国企业将生产线迁回国内。
-数十年里，美国企业不断将生产线迁至海外寻求廉价材料和廉价劳动力。
-
-新冠大流行瘟疫则让人们看到了既有供应链的结构性弱点。美国经济的快速复苏却可能拖累大量企业，因为，如今到处都缺乏原材料和供应商、搞不到初级产品、芯片匮乏。新冠危机使高管们优化经营模式的界限暴露无遗。 
-中小企业尤受影响 ，尤其对无定价权和购买权的中小企业，供应链断裂正愈来愈成为一种商业风险。因为，哪里商品稀缺，哪里价格就涨。 
-因此，2019年美中贸易争端全面爆发后，越来越多企业将生产板块迁回国内。专家们称之为”回流”。
-
-2.[非法移民涌入 亚利桑那边境城市进入紧急状态](https://www.epochtimes.com/gb/21/12/11/n13431751.htm)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片-2-5.jpg)2021年12月10日，亚利桑那州尤马，来自海地的移民家庭从墨西哥穿过
-美墨边境墙的缺口进入美国。
-大纪元2021年12月12日报道，美国亚利桑那州边境城市尤马（Yuma）的市长，在本周宣布该市进入紧急状态，原因是偷越美国和墨西哥边境来到该市的非法移民数量激增。
-
-自今年1月美国总统乔‧拜登（Joe Biden）就职以来，美国海关和边境保护局（Customs and Border Protection）尤马分部对非法移民问题的担忧急剧增加。
-
-截至2020年9月，该部门的边防人员逮捕了约8,800人。而在2021年，他们已经逮捕了11.4万多人，仅10月份就逮捕了21,623人。
-
-亚利桑那州长、共和党人道格‧杜西（Doug Ducey）本周来到尤马。他宣布，将向该地区增派亚利桑那州国民警卫队的人员和设备，以帮助应对移民潮。
-
-杜西在与当地政府官员一起参观该地区后对记者表示：“拜登的边境危机已经失去控制，而且一天比一天严重。”
-
-3.[应对中共侵台威胁 美议员：绥靖永不奏效](https://www.epochtimes.com/gb/21/12/11/n13431543.htm)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片-3-5.jpg)图为2020年5月19日，蒂凡尼在国会大厦宣誓就职。
-据大纪元2021年12月12日报导，美国联邦议员汤姆‧蒂凡尼（Tom Tiffany）日前表示，美国需要向中共发出明确信号：如果侵台，将承担后果。他强调了对中共加强威慑的重要性，并说历史证明对侵略者绥靖，永远不会奏效。
-
-蒂凡尼谴责耐克等跨国公司仍然没有站出来对抗中共，称“他们把自己的利润放在人权之上”。
-
-他还说，实际上中共也非常依赖外国公司。他呼吁这些公司对中共说不。蒂凡尼表示：全球需要一个声音 ，要求中共尊重人权。
-
-4.[Omicron变异株来袭 英国通报新增1239例确诊](https://www.swissinfo.ch/chi/afp/omicron%E5%8F%98%E5%BC%82%E6%A0%AA%E6%9D%A5%E8%A2%AD-%E8%8B%B1%E5%9B%BD%E9%80%9A%E6%8A%A5%E6%96%B0%E5%A2%9E1239%E4%BE%8B%E7%A1%AE%E8%AF%8A/47186734)
-
-12日，据法新社报导，英国通报新增1239起COVID-19Omicron变异株确诊病例，累计3137例，比昨天累计的1898例增加65%。
-
-英国首相Boris Johnson形容Omicron变异株蔓延是“紧急状态”，英国Omicron确诊病例每2、3天就翻倍。他还表示，Omicron变异株疫情恐会导致住院人数增加，让国民保健署（NHS）难以负荷，并且可能不幸导致许多人病故。
-
-
-
-审核校对：Barry Jack
-上传排版：F
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

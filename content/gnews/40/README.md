@@ -2,34 +2,44 @@
 ---
 
 
-## 疫苗灾情｜48小时内又多两名足球运动员接种疫苗后发生呼吸困难
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1749708/)
+## NIH被揭露在疫情开始前与Moderna签署协议
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1749877/)
 
-**撰文/ 疫情关注组｜发布日期/ 13/12/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup）](https://gettr.com/user/mightygroup%EF%BC%89)**
+**简评：**
 
-在过去的 48小时内，本周末（12月11～12日）又有两名足球运动员在比赛过程中因突发严重胸痛和呼吸困难而中途离场治疗。
+在新冠疫情爆发前两周，美国国立卫生院(NIH)与Moderna签订了一份共同所有并研发新冠病毒疫苗的保密协议，签署人是武汉病毒研究所石正丽的合作伙伴。这很奇怪。而且同样也是这群人，在疫情爆发后的2020年1月份举行会议，掩盖和攻击所有怀疑病毒来自实验室的人。兰德保罗参议员正在关注此事，福奇需要给出解释。
 
-周六，曼联客场对阵诺维奇，比赛进行到1:0 时，曼联队员，后卫维克多·林德洛夫（Victor Lindelof）突然按住自己的胸膛并跪下，有队友察觉，并跑向林德洛夫询问情况，林德洛夫指着自己的胸口表示“呼吸困难”，随后医务人员跑到球场上，将他带离赛场救治。
-
-曼联主帅拉尔夫·朗尼克（Ralf Rangnick）赛后证实：“林德洛夫突发呼吸困难，持续了大约 10 分钟，他的心率显示高于正常水平，这让人十分震惊，他本人亦不知所措。”
-
-林德洛夫的情况令队友，守门员大卫·德赫亚（David De Gea）联起了自己国家队队员阿奎罗（Sergio Aguero）的遭遇，他忧伤的表示“已经不止一个球员发生这种情况了，我很担心，很想知道这是怎么一回事”
-
-对此，曾在英超直播中，因质疑是疫苗导致球员倒下而被断播的前英超球员特雷夫·辛克莱（Trevor Sinclair）在推特发贴抱怨“无法再目睹这样的事情发生”，并特别标注林德洛夫的名字，表示自己的愤怒。
+YouTube视频链接：
 
 
 
-> Nothing to see here 😡 [#Lindelof](https://twitter.com/hashtag/Lindelof?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Trevor Sinclair (@trevor8sinclair) [December 11, 2021](https://twitter.com/trevor8sinclair/status/1469766122169942016?ref_src=twsrc%5Etfw)
+[GTV视频链接](https://gtv.org/video/id=61b6a0fea68b4f4b28e72a2d)
+
+**视频字幕：**
+
+**Glenn****：**我们当时还不知道疫情，(2019年)12月，我们开始得到一些消息。中共声称他们那里在12月31号有一些疫情。但是巴里克博士在那之前与Moderna签了一份协议。
+
+我想读一下。这是一份保密协议，大概有158页。直接跳到104页，他们签了一份特别的保密协定。
+
+看上去美国国立卫生院向巴里克输送了技术。协议中写道：“mRNA冠状病毒疫苗由国家过敏及传染病研究所，与Moderna共同所有并研发”。
+
+这很奇怪，因为我们知道疫情在两周后爆发了。他们在疫情爆发前的两周签订了合同，而且签署人正是石正丽的合作伙伴。
+
+更可怕的是，正是同样这群人，在（2020年）1月底举行会议，掩盖和攻击所有怀疑病毒来自实验室的人。
+
+他们说病毒不可能来自实验室，甚至不要往这个方向看。这看上去是共谋。
+
+我们把这个协议交给了一些众议员和参议员。现在兰德保罗议员正关注此事，福奇博士需要对此给个说法。
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-
-另外，周日，意甲联赛，那不勒斯对阵恩波利，开场仅19分钟，那不勒斯中场球员，波兰国脚彼得·齐林斯基（Piotr Zielinski）突然停下，他捂着脖子，努力咳嗽着，并对跑向他的医务人员指指胸口，表示自己呼吸困难，几分钟后，他被医护带下场治疗。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/疫苗-1.jpg)
-来源｜[marca](https://www.marca.com/en/football/manchester-united/2021/12/12/61b5f7b5e2704ed74e8b45bc.html) / [Football-Italia](https://football-italia.net/napoli-midfielder-zielinski-goes-off-with-respiratory-problems/)
-
+编辑：【英国伦敦喜庄园编辑部】
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
