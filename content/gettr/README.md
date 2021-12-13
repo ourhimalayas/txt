@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/13/2021 11:54 AM (UTC)`
+
+伊维菌素于 1973 年首次发现，2015 年获得诺贝尔奖。是什么让这种药物如此非凡？看完这段关于伊维菌素历史的精彩视频后，问问自己为什么FDA和CDC不遗余力地抛弃这种获得诺贝尔奖的神奇药物？为什么要阻止医生使用它来挽救生命？<br/><br/>First discovered in 1973, Ivermectin won the Nobel Prize in 2015. What makes this drug so extraordinary? After watching this excellent video on the history of Ivermectin , ask yourself why the FDA and CDC went out of their way to trash this Nobel Prize-winning miraculous drug? Why prevent doctors from using it to potentially save lives?
+![img](https://media.gettr.com/group37/origin/2021/12/13/11/1751b15e-4a1c-9c46-9881-8835b17e21e6/out.jpg)
+
+---
+
 `@miles 12/13/2021 6:07 AM (UTC)`
 
 12/12/2021 Miles Guo: There will be more Western countries boycotting the 2022 Winter Olympics, with only NBC paying the CCP 2 billion USD for the broadcast rights. This is an extremely huge humiliation for Xi Jinping. The term “boycott” is banned in the CCP’s propaganda in Communist China, and the CCP is looking for the “VIPs” of the Winter Olympics who want to be paid a high price. Will the West’s boycotts of the Winter Olympics be Xi Jinping’s waterloo?<br/><br/>12/12/2021 文贵直播：西方将有更多国家抵制冬奥会，目前只有NBC支付了二十亿转播费，这对习是极大的羞辱，现在对内宣传禁止提“抵制”二字，对外倾一国之力找一群要饭的当贵宾，西方抵制冬奥会真的会是习近平的滑铁卢吗？<br/>
@@ -143,13 +150,6 @@ Dec 11，2021 Mr. Miles Guo's “HCoin To The Moon ” has once again created a 
 
 12/10/2021 Miles Guo: Yang Jiechi has arrested over a dozen fellow fighters who are Cypriot passport holders; the Himalaya Alliance Committee will rescue them at all cost; fellow fighters must leave Cyprus immediately if possible, and Dubai is not safe either; fellow fighters in Canada must watch out for the CCP spies lurking in our Whistleblowers’ Movement!<br/><br/>12/10/2021 文贵直播：杨洁篪抓了拿塞浦路斯护照的十几位战友，联盟委员会将全力营救他们；请能离开塞浦路斯的战友马上走，迪拜也不安全；请加拿大的战友务必小心中共潜伏的特务！<br/>
 ![img](https://media.gettr.com/group31/getter/2021/12/11/02/53983b06-28da-c60c-9b9f-83c9a3c2c24a/out.jpg)
-
----
-
-`@miles 12/11/2021 1:08 AM (UTC)`
-
-12/10/2021 Miles Guo: Four European countries say they will boycott the Winter Olympics and consider decoupling from the CCP economy - This is a historic event! The reason is a) the CCP threatened the US, Japanese, and European companies in Communist China regarding these countries’ boycotts of the Winter Olympics and b) the Russians demanded that the US and Europe separate them from the CCP<br/><br/>12/10/2021 文贵直播：欧洲四国表示将抵制冬奥会并考虑与中共经济脱钩是历史性的事件！原因是中共就抵制冬奥会威胁美日欧的在华企业以及俄罗斯要求美欧将其与中共分开<br/>
-![img](https://media.gettr.com/group26/getter/2021/12/11/01/d8fe228d-5d69-d73e-b885-54cfc8b63d07/out.jpg)
 
 ---
 
