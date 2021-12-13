@@ -2,35 +2,38 @@
 ---
 
 
-## 巴西超大样本研究：伊维菌素使住院和死亡率减半
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1750106/)
+## 中共内忧外患无法满足妓女心态的俄罗斯被俄抛弃是必然
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1750124/)
 
-编译：枳实
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-133.jpg)图片来源：The Guardian
-在大流行的早期，在疫苗可用之前，巴西南部城市伊塔贾伊（Itajai）提供伊维菌素作为预防z中共病毒的药物。
+**郭文贵先生：**所以现在讲俄罗斯，俄罗斯就是这性格，俄罗斯出妓女啊！俄罗斯有句话，如果男人不能满足女人的时候，就让女人去让自己去满足去，现在跟共产党的关系就很简单，当你不能满足我的时候，老子要去满足了。哈哈，这对共产党这是个多么大的羞辱，习呀，你以为我跟你谈恋爱呢？你都满足不了我，当然我得寻欢取乐了，第一；
 
-在 2020 年 7 月至 12 月期间，大约 220,000 人接受了 0.2 毫克/公斤/天的剂量，每两周服用2天。其中60%的高风险人群服用了7个月。对照组则有8万七千余人，总样本数量超过30万人。
+第二个，你看你那小样儿越来越老了，是吧？身体也不行是吧？经济也很差，我当然我得找去了，是吧？什么？你还想打台湾？你打台湾？意思你还想在外面折腾点事儿，你能折腾得起吗？谁给你买单？老娘走人了，它就是这结局！
 
-在对数据进行分析后，来自巴西多个研究所、多伦多大学和哥伦比亚 EAFIT 的一组研究人员在 12 月的预印本研究中得出结论，伊维菌素组的住院率和死亡率在 7 个月内减少了一半。
+编辑整理：喜马拉雅的肉夹馍；
 
-因为这项研究并非随机对照研究，所以作者调整了相关混杂变量，包括年龄、性别、病史、既往疾病和其他条件。
+视频制作：小满；
 
-值得注意的细节是：伊维菌素治疗组的年龄实际上比对照组更加年长，治疗组中有30%的人大于50岁，而对照组中只有20%，如果按照年龄组计算死亡率则有效率更显着：31-49岁年龄组中伊维菌素治疗组的死亡率下降了85%，大于50岁年龄组则下降了59%。
+视频上传：Cindy；
 
-讽刺的是，Business Insider 曾在10 月份发表文章，根据巴西一位 ICU 医生的不可靠证据声称巴西这项大规模伊维菌素预防中共病毒的54试验将证明伊维菌素的失败，“巴西民众将为此付出代价”。
+G-News发布：黎明之前；
 
-事实证明，去年伊维菌素在巴西的大规模试验已经被证明是大获成功，实际上试验中所用的伊维菌素剂量仅仅是目前FLCCC和香草山农场医疗组推荐的预防剂量的一半，只用这样低的剂量就已经获得如此显著的疗效。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
 
-新闻链接：[Hospitalizations, Mortality Cut In Half After Brazilian City Offered Ivermectin To Everyone Pre-Vaccine](https://www.zerohedge.com/covid-19/hospitalizations-mortality-cut-half-after-brazilian-city-offered-ivermectin-everyone-pre)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-发布：去中心化Math
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

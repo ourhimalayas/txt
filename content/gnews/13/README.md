@@ -2,30 +2,58 @@
 ---
 
 
-## COVID-19 最新情报｜美国omicron感染 逾七成接种过疫苗
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1749905/)
+## 以色列：新冠加强针要一直打
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1749942/)
 
-**疫情關注組 / 發佈時間｜13/12/2021**
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-154.png)图片来源：Planet Today
+翻译：皮特
+编辑：Mttfly
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+以色列卫生部（IHM）已经发出警告，以色列人现在需要准备好接受新冠疫苗和持续的加强针。
 
+以色列现在几乎要批准其第四次加强针的强制注射。但国际卫生大会疫苗接种咨询委员会成员、以色列最大医院的副院长阿农·阿费克教授说，第五次、第六次和第七次注射之后会继续不停的打加强针，这将被列入议程。
 
-外媒指出，omicron在美国的感染情形还没达到巅峰前，新冠确诊者、住院人数便飙升，疫情再次升温的情形包含疫苗接种率高的地区。美国新冠新病例从11月22日的95000例/单日，飙升至每日近11万9千例，住院治疗人数比11月增加了25%。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/coronavirus-data-explorer.png)美国每7日确诊的滚动平均值。来源：Our World in Data
-美国病例增长几乎来自于delta变种，最新发现的omicron尚未成为威胁美国的主要变种（指12/09撰文时）。据[CDC数据](https://www.cdc.gov/coronavirus/2019-ncov/variants/omicron-variant.html)，美国新病例增长时omicron已在至少21个州被发现，基于omicron高传染的特性，omicron将形成美国另一威胁。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截圖-2021-12-13-下午3.58.44.png)來源：CDC
-## 新英格兰地区高接种率 仍发生感染数激增
+“那些认为我们不需要更多加强针的人是错的，”阿费克宣布。“我们将需要打第4针、第5针、第6针、第7针。只要像非洲这样只有少数人接种疫苗的地方继续流行，COVID-19的新变体就会产生，我们就需要新的加强针。”
 
-拜登政府持续推广加强针，于12月的第一周便接种了近700万剂。VOA援引美联社统计数据，美国完全接种人口比例最高的五个州都在新英格兰地区，分别是：佛蒙特州、康涅狄格州、缅因州、罗德岛州和马萨诸塞州，新罕布什州接种率排名第十。
+现在，“Omicron”变体已经到来，以色列在慌乱中强化暴政，试图控制这种病毒，而这种病毒只影响到完全接种疫苗的人。
 
-新英格兰地区的六个州，疫苗完全接种率从69.4%-61.5%不等。而全美国平均完全接种率为55.5%。尽管新英格兰地区的接种率高于全国平均，但本次仍成为“新病例快速增长最严重的地区之一”。
+对这一宣布感到兴奋的是辉瑞公司首席执行官阿尔伯特·布拉，他似乎与以色列政府勾结，强迫以色列人使用他公司的疫苗。
 
-## CDC: 美国75% omicron病例曾接种新冠疫苗
+到目前为止，布拉已经赚取了数十亿美元，并希望再赚取数十亿美元。因此，他宣布任何反对该计划的人都是“罪犯”，需要被关起来并受到惩罚。
 
-美联社采访CDC 主任罗谢尔·瓦伦斯基 (Rochelle Walensky) 博士称，美国自12 月 1 日首次确认 omicron 变种以来，已知感染omicron的人中四分之三接种了疫苗，三分之一接种过加强针。同时期，旧金山东湾也爆发了omicron 感染，12病例中11例接种了疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-3.png)
-来源｜[VOA](https://www-voanews-com.translate.goog/a/virus-surge-hits-new-england-despite-high-vaccination-rates/6255569.html?_x_tr_sl=en&amp;_x_tr_tl=zh-TW&amp;_x_tr_hl=zh-TW&amp;_x_tr_pto=sc)、[SF](https://www.sfchronicle.com/health/article/Omicron-outbreak-from-out-of-state-wedding-tied-16685845.php?utm_campaign=premiumsfgate_breakingnews_20211208&amp;utm_source=newsletter&amp;utm_medium=email)
+根据Bourla的说法，人们每年都需要接种，未明说的原因是他从股票中得到超额利润。
+
+**邪恶的政府使用“入门式技巧”，让世界对无休止的注射进行预热**
+
+尽管辉瑞疫苗通过传播蠢货病毒（奥密克戎）和其他变种病毒导致人们生病，但布拉和以色列政府要求人们按照命令打更多针。
+
+BioNTech推出了专门针对Omicron的三剂加强针，将在未来几个月内上市。
+
+新西兰总理杰辛达·阿登（Jacinda Ardern）完全支持这一计划，她在最近的一次采访中表示，“这一疫苗接种计划不会有终点”。
+
+它将永远持续下去，就像我们警告的那样，这是一个邪恶的疯狂的阴谋。现在，这一切都按计划在实施。
+
+这种“入门式技巧”是一种循序的技巧，恶意的权力机构通过先让人们同意一个更温和的要求开始实行这些计划的。
+
+在这种情况下，一开始是打一针或两针，后来才演变成第三针加强针。现在，政府为任何想参与“新常态”的人打开终身注射的闸门。
+
+“这种技巧通过在提出请求的人和被请求的人之间建立联系而发挥作用，”克里斯·梅纳汉写道。“如果一个较小的请求被批准，那么同意的人就会觉得他们有义务继续同意更大的请求，以保持与最初同意的决定一致。”
+
+“这种技巧用在很多方面，是一种经过充分研究的让人们服从要求的策略。”这句话是指一个挨家挨户的推销员，他用脚不让门关上，让顾客别无选择，只能听从推销的安排。
+
+当被问及支持新的强化疫苗的科学根据时，联邦监管机构回应说，他们更多的是根据“直觉”来决定。据此做出需要加强针的决定。
+
+**原文链接：**[Israel says covid booster shots will now be ENDLESS](https://www.naturalnews.com/2021-12-12-israel-says-covid-booster-shots-endless.html)
+
+**发布：**去中心化Math
+**
+更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
