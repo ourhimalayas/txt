@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/13/2021 2:23 PM (UTC)`
+
+12月13号：尊敬的战友们好，你们健身了吗？传播C C P病毒疫苗解药的真相了吗？一切都已经开始了！
+![img](https://media.gettr.com/group31/getter/2021/12/13/14/02ab6dd7-c08b-eaa8-c948-5fed91489108/out.jpg)
+
+---
+
 `@miles 12/13/2021 1:57 PM (UTC)`
 
 13/12/2021 MV "Hcoin To the Moon" Hits #1 🥇on 26 Countries' iTunes Top Music Video Charts on 4th Day of Launch! Miracle continues…….🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, USA, Taiwan, Japan, Russia, France, UK, Australia, Canada, Singapore, Macau, New Zealand, Thailand, Cambodia, Laos, Netherlands, Italy, Sweden, Philippines, Malaysia, Finland, Greece, Malta, Portugal, Fiji, Latvia!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1750517/<br/><br/>12月13号，MV版Hcoin To the Moon上线第4天位列26国iTunes热门MV榜首🥇！继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港，美国，台湾，日本，俄罗斯，法国，英国，澳大利亚，加拿大，新加坡，澳门，新西兰, 泰国，柬埔寨，老挝，荷兰， 意大利，瑞典，菲律宾， 马来西亚，芬兰，希腊，马耳他，葡萄牙， 斐济，拉脱维亚的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏
@@ -142,13 +149,6 @@ Dec 11，2021 Mr. Miles Guo's “HCoin To The Moon ” has once again created a 
 
 12/10/2021 Miles Guo: The Whistleblowers’ Movement has dedicated to pushing the boycotts of the 2022 Beijing Winter Olympics since 2019 and has completely smashed the CCP’s dreams - to obfuscate the origin of COVID and shift the blame to others by holding the Winter Olympics, after which they would invade Taiwan and pass the economic disasters caused by the collapse of the real estate market to the West to launch the DCEP and get rid of the US dollar<br/><br/>12/10/2021 文贵直播：爆料革命自2019年开始运作抵制北京冬奥会，已彻底击碎了中共的美梦 - 借举办冬奥会将病毒来源模糊化、去共化，冬奥会后打台湾，将中共房地产经济爆雷引向西方，实现人民币数字化、货币去美国化<br/>
 ![img](https://media.gettr.com/group22/getter/2021/12/11/05/db2fc550-ae05-ff0e-8383-16674c7ff0b1/out.jpg)
-
----
-
-`@miles 12/11/2021 5:38 AM (UTC)`
-
-12/10/2021 Miles Guo: The arrogance and insanity of the CCP shows exactly what all the dictators would do – Nationalization of enterprises, deification of dictators, complete destruction of religions and total control of media, and eventually starting a war; 20 more bills will come out following the global boycotts of the 2022 Beijing Winter Olympics. Let’s wait and see!<br/><br/>12/10/2021 文贵直播：今天中共的狂妄就是所有独裁者都干的事 - 企业国有化、个人神圣化、彻底消灭宗教和控制媒体，最后一定是发动战争；全球抵制北京冬奥会后，还有20多个法案会出台，走着看！<br/>
-![img](https://media.gettr.com/group30/getter/2021/12/11/05/662971ec-d7db-5e85-f378-0dbfc2ddc38c/out.jpg)
 
 ---
 
