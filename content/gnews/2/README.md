@@ -2,31 +2,30 @@
 ---
 
 
-## 七哥谈“踩红线”（2021-12-08摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1751767/)
+## 中共国发现首例新冠奥密克戎变异毒株
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1751791/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+**撰稿：日本东京方舟农场 老孙**
 
-来源：郭先生2021-12-08直播10：18：40 摘录
+12月13日，中共喉舌新华网报道中共国发现的首例中共病毒奥密克戎变异毒株，并称境外输入。
 
-大家一定要记住，尊重各驻地国的法律，还有一个冠状病毒现在正在全球蔓延，聚会的问题，法规的问题。永远记住，咱不要踩红线。我们就要让驻外大使馆让他踩红线，让他买通地方关系BGY，像当年梁冠军一样，是吧？到我楼下抗议，现在全家都得被调查，所有资产都得被没收。我们就让这些驻外大使馆要给习近平，王岐山献忠心，给杨洁篪。杨洁篪这王八蛋得搁上去啊，这两天杨洁篪要出面了啊。从双规状态，这个病恢复状态，吃的是伊维菌素，吃的青蒿素，现在要恢复，就这两天要出场了啊，要出场了，我们得到确切情报。杨洁篪一定放上去。要让他们外交部，情报部他们要有什么冲动。向习王表忠心，杀害我们，派杀手。蓝金黄当地政府陷害我们，像对海东家，颖妹家去摔瓶子砸酒的吓唬你们，派杀手出来，还有想办法遣返我们什么战友，给我们战友制造假刑事案子文件，我们都要做好最坏的准备。就让他踩红线，就让他在海外暴露。
+据新华网报道，天津市疾病预防控制中心对12月9日天津市境外输入新冠病毒无症状感染者呼吸道标本进行新冠病毒全基因组测序和序列分析，经中国疾病预防控制中心复核，均确认检出新冠病毒奥密克戎变异株（B.1.1.529进化分支）。这是中国内地发现的首例新冠病毒奥密克戎变异株。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+![](https://assets.gnews.org/wp-content/uploads/2021/12/download-1-2.jpg)图片来自于网络
 
-**关注我们**
+奥密克戎变异株最早于2021年11月9日在南非首次检测到，距离天津发现变异毒株正好一个月，而距离春节也仅剩一月有余。中共此时公布发现奥密克戎变异株，势必为返乡人员回家过年增添阻力，借着病毒再收割一波韭菜，同时也为中共网格化控制人民、推动第三针毒苗提供助力。
 
-Discord 账号
+*参考链接：*
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+[天津从入境人员中检出新冠病毒奥密克戎变异株](http://www.news.cn/local/2021-12/13/c_1128159935.htm)
 
-Gettr 账号
+* * *
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+*素材采编：老孙*
+
+*编辑：文顺*
+
+*发布：Ranting*
 
  
 

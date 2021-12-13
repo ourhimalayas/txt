@@ -2,31 +2,48 @@
 ---
 
 
-## 七哥谈“一切按数字说的算”（2021-12-10摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1751593/)
+## 币安新加坡子公司将撤回牌照申请，关闭本地平台运营
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1751594/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+作者：纽约香草山农场 – 四季
 
-来源：郭先生2021-12-10直播09：54：47 摘录
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-参加这次冬奥会有三件事他解决不了，你别以为美国是人权的问题，也别认为是共产党的事，不是！西方是资本主义，一切按数字说了算。美国政府要去了，美国运动员上千人要去，染了病毒谁负责？“对不起啊，老子不负责。” 那谁负责呀？国会议员你先说呗，“我不负责”，都不负责。第二，最核心，钱谁出，是吧。肯定 “这我不出，这预算不在我这。” 为什么，出完这钱的结果是什么，出钱就要付出钱的责任，而不是花钱的问题了。第三个问题，出现严重后果一旦要是打台湾了。这些运动员不让回来了，或者运动员当时发生什么种族事件了，或者是病毒当场死亡的时候，有什么应急方案没有？没有一个人有。说我们要去，五眼联盟都跟着去，联盟国家几十个国家，50多个国家都去。要不要对这些联盟负责，加拿大说，你要去啊？你要去我就跟你去啊。咱这伙新中国联邦，七哥去我跟你去啊，Rica我跟你去，那谁负责？七哥你负责，是吧。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-**关注我们**
 
-Discord 账号
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+据[ONA网站](https://www.oann.com/binance-affiliate-says-will-withdraw-singapore-licence-application/)12月13日援引路透社报道，世界上最大的加密货币交易所之一——币安，其（Binance）新加坡子公司周一表示，它将撤回其当地的牌照申请，并在这个对加密货币广泛友好的城市国家关闭其数字支付代币业务。币安新加坡子公司是100多家申请在新加坡运营许可证的加密货币公司之一。
 
-Gettr 账号
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1682-1.jpg)在2021年7月13日拍摄的这幅插图中，Biance应用程序出现在智能手机上。(REUTERS/Dado Ruvic/插图)
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+币安表示，新加坡将继续作为其区块链创新中心，但其用于交易法定货币和加密货币的新加坡平台将在明年2月中旬关闭。而早在9月，该公司已经表示，由于当地的监管，新加坡的用户将无法在其全球平台上进行交易。
+
+近期，香港、英国、德国和日本等国的金融监管机构已经把目标对准了币安，提出了消费者保护和反洗钱检查等问题。一些国家已经禁止该平台从事某些业务，而另一些国家则警告消费者它没有获得运营许可。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月.png)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 
