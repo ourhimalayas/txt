@@ -2,34 +2,41 @@
 ---
 
 
-## 男子网球全满贯冠军拒打疫苗 退出明年澳网公开赛
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1750928/)
+## 美日澳联合资建太平洋海底电缆，遏制中共影响力
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1750959/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据外媒消息，刚刚完成男子网球双打全满贯冠军的法国运动员组合赫伯特和马胡特，因赫伯特拒绝接种中共病毒疫苗，恐将无缘明年1月17日举行的2022澳洲网球公开赛。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/8-18.jpg)
-赫伯特在媒体采访中回应，不打疫苗是个人的选择，因多个国家设置强制疫苗的规定，而不得不开始权衡自己的网球职业生涯。至于前景如何，目前只是观望，但不知道能坚持多久。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/16x9-1.jpg)
+据澳大利亚特别广播服务公司2021年12月12日报道，澳大利亚、日本和美国将资助一条海底电缆，以推动更快的互联网，并增加与三个太平洋国家的互联网连接。
+西方盟友将与密克罗尼西亚联邦(Federated States of Micronesia)、基里巴斯(Kiribati)和瑙鲁(Nauru)合作，提供更好的互联网能力。
 
-赫伯特和马胡特于2019年在墨尔本获得男双冠军，今年6月又问鼎法网男双冠军。迄今，他们已经赢得了五个双打大满贯冠军。据悉，赫伯特是第一位因未接种中共疫苗，而宣布退出澳网公开赛的运动员。
+周日发表的六国联合声明包括澳大利亚外长玛丽斯·佩恩(Marise Payne)、日本外相林芳正(Yoshimasa Hayashi)和美国国务卿安东尼·布林肯(Antony Blinken)。声明称，六国伙伴关系将为大约10万人带来更高质量、更可靠和安全的通信。
+“此举将支持经济增长，推动发展机会，并在该地区从中共病毒疫情的严重影响中复苏之际帮助改善生活水平。”
 
-参考链接：
-1) . [Unvaccinated former Aus Open doubles champ Pierre-Hugues Herbert to miss 2022 tournament](https://www.foxsports.com.au/tennis/australian-open/australian-open-2022-unvaccinated-former-doubles-champion-pierrehugues-herbert-withdraws-from-event-due-to-vax-mandate/news-story/4124b86b3e8efb044835ada96cc08415)
-2) . [法国组合赫伯特/马胡第二次问鼎法网男双冠军](https://m.sohu.com/a/471881414_162758/?pvid=000115_3w_a)
+该声明称，联合基础设施投资正值“我们地区面临前所未有的经济和战略挑战之际”。由于中共大陆和台湾之间的紧张局势，人们对印太地区的担忧有所增加。
+据说，更好地获取数字技术和改善连通性可以提高经济和社会效益，并促进可持续发展。“并为企业和家庭提供更好的服务、信息和贸易以及就业机会。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+该电缆将通过波纳佩(Pohnpei)现有的电缆连接科斯雷(Kosrae)、瑙鲁(Nauru)和塔拉瓦(Tarawa)，首次通过海底电缆提供在线连接。
 
-总编：文真
-编辑：Kathy文艺
-校正/发稿：Fei797
+简评：
+为了消除中共对太平洋地区经济活动的威胁，确保像海底电缆这样的关键基础设施得到充分的保护，并为信息技术设备设立新的安全与可靠性标准。美日澳加强了在太平洋地区海底电缆领域的合作。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+此举不仅可以消除盟国对中共铺设的电缆可能有损地区安全的疑虑，更可以遏制中共在该地区的影响力，同时加强盟国对于有关中共动向的信息共享。
+
+新闻链接：
+
+[https://www.sbs.com.au/news/australia-japan-and-the-us-to-help-fund-pacific-sea-internet-cable/b0362cec-0f2d-4683-99a7-9462f5950b04](https://www.sbs.com.au/news/australia-japan-and-the-us-to-help-fund-pacific-sea-internet-cable/b0362cec-0f2d-4683-99a7-9462f5950b04)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

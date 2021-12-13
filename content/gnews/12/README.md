@@ -2,8 +2,8 @@
 ---
 
 
-## 维也纳爆发大规模游行，抗议奥地利疫苗限制措施
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1750975/)
+## 巴西一法官不顾总统反对 规定到访游客必须提供疫苗接种证明
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1750999/)
 
 作者：纽约香草山教育部 – Naughty(文行)
 
@@ -13,17 +13,16 @@
 
 
 
-12月11日，据当地媒体报道，数万人聚集在维也纳，抗议奥地利政府采取的限制措施，包括强制接种疫苗和对未接种疫苗的人施行家庭监禁令。 大约有44000人参加了这次抗议活动，抗议者举着“反对强制接种”和“放开我们的孩子”的横幅，高呼“我们是人民”和“抵抗”。政府安排了约1400名警察值班监督，抗议活动中有三人遭到逮捕。
+12月11日，巴西最高法院法官路易斯·罗伯托·巴罗佐裁定，所有抵达巴西的旅客必须出示新冠疫苗接种证明。法官表示，只有当旅行者来自没有疫苗的国家或个人因健康原因无法接种疫苗时，才能免除疫苗接种证明的要求。 巴罗佐的裁决必须在下周经过最高法院所有11名法官审查后才能生效。
 
-上周，在首都维也纳也发生了类似的示威活动。就在同一天，在克拉根福和林茨也有民众进行了抗议限制措施的游行。 奥地利上个月成为西欧第一个重新实施封锁的国家，并表示将从2月起强制接种新冠病毒疫苗。相关人士发表讲话抨击政府的这一措施，并表示抗议活动仍将持续进行。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1.2-5.jpg)
+巴西联邦政府曾在12月7日宣布，抵达巴西的旅客不必出示疫苗护照，但他们需要接受为期五天的隔离。 巴西总统博索纳罗认为，那些支持使用疫苗护照的人想要限制民众的自由。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.2-4.jpg)
 参考链接：
-[Mass Protest In Vienna Against Austria’s Controversial COVID Restrictions](https://www.oann.com/mass-protest-in-vienna-against-austrias-controversial-covid-restrictions/?utm_source=ground.news&amp;utm_medium=referral)
+[Brazil justice rules vaccine passport mandatory for visitors](https://m.washingtontimes.com/news/2021/dec/11/brazil-justice-rules-vaccine-passport-mandatory-fo/?utm_source=ground.news&amp;utm_medium=referral)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-总编：文特
-编辑：DM
+总编/编辑：飞虹
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**

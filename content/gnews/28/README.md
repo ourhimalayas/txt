@@ -2,32 +2,27 @@
 ---
 
 
-## 斯伯丁呼吁美国与中共脱钩
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1750827/)
+## 中共倡导就地过年，让集中营式的管控更加严厉
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1750858/)
 
-作者：东京樱花团—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-近日，美国退役准将罗伯特.斯伯丁接受媒体采访时表示，美国政府如果对中共进行更强有力的反击，就必须将矛头指向数据。美国的数字和数据边界，正在遭到中共的大规模入侵。因此，他建议美国政府应当与中共全面脱钩。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-13-下午9.33.17.png)圖片來源：美国空军退役准将、中共国问题专家罗伯特·斯伯丁（Robert Spalding）。Samira Bouaou/The Epoch Times
-斯伯丁将军表示，中共企图成为数据资源的霸主。因为中共相信，可以通过与美国商业和数据的联系，从内部改变美国。中共正在利用金融、贸易、经济、学术领域、互联网等，每一个与美国的联系，来慢慢拆散美国的社会结构以制造分裂，并最终达到他们的邪恶目的。 他警告说，经过研究发现，中共可以利用数据影响美国的政治进程，其方式已经超越了五角大楼在武器方面的发展。
+撰稿人：自由战士
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image1-23-1.png)（图片来自网络）
+中共墙内政府官方11日发布加强口岸城市COVID-19疫情防控工作的通知，从严管控人员流动。官员强调，全球疫情仍在高位流行，病毒不断变异，外防输入，重中之重是口岸。
 
-参考链接：
-1）[https://gettr.com/post/pj72910e76](https://gettr.com/post/pj72910e76)
-2）[https://gettr.com/post/pj6hrh6fcc](https://gettr.com/post/pj6hrh6fcc)
+中国本土COVID-19疫情持续多点散发，近日多地陆续倡导“就地过年”，要求非必要不离开当地。中央社的报道说，许多网友担忧，恐将连续3年回不了老家。广东，河北，浙江，广西等多省当地媒体和官方新闻都相继发出声明和呼吁，让百姓就地过年，避免大范围流动。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+首先，我们可以看出一年一度的新年对于漂泊在外的务工者是必须要回家的。家在中国人心中的位置是非常的重要的，但是中共自从释放病毒后，就让大家异地分开两个年头了。无法回家团聚。无形中把每个人都困在了原地，画地为牢，让你不能出行。
 
-总编：文真
-编辑：文真
-校正/发稿：呼吸的雾霾（文小呼吸）
+其次，经过我们新中国联邦的过去一年对疫苗，病毒，灭绝种族等罪行的揭露，让ccp目前已经裸奔于世界，当然墙内能翻墙的战友和清醒的人们不计其数，大家考虑到自身安全，在网上的传播相对较少，但是如果过年的大批量的人员流动，会在聚会中面对面讨论爆料革命，分享疫苗，病毒真相，传播解药等等信息。这样ccp在中国百姓心里的那块遮羞布会彻底扒下。恰恰也是反应了中共的恐惧和害怕。你能限制住大家的出行，能够限制住真相的传播吗？能阻止你们走向地狱的脚步吗？答案都是不能的。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+最后，中共的集中营管理在新疆已经实施已久，这次在病毒和疫苗后，完全是把整个14亿奴隶想全部进行网格化管理，我们在文贵先生直播中可以了解到，军队最近几年的武器研发和试验，大多数都是怎么控制百姓，怎么镇压百姓。能够更好的奴役百姓，也就增加了中共跟西方邪恶势力的勾兑砝码。但是我们相信这次中共病毒和疫苗灾难来临之时，这些所谓的无反馈的控制必将走向结束。每个人都被生命威胁后，带来的就是变革和重生。
+
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+
+[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+![此图像的alt属性为空；文件名为澳喜图标2-1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
