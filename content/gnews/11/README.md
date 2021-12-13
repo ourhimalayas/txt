@@ -2,32 +2,33 @@
 ---
 
 
-## 币安宣布将于明年2月退出新加坡加密货币市场
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1752023/)
+## 七哥谈流氓斯大林（直播摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1752082/)
 
-**撰稿：日本东京方舟农场  海星**
+文编：Hima
+听写：叮叮
+视频：七哥
 
-12月13日，全球最大的加密货币交易所之一币安（Binance）发布声明称，其交易平台将于明年2月停止在新加坡的运营。
+来源：郭先生2021直播10：59 摘录
 
-据《自由时报》报道，币安在12月13日发布的声明中表示，已经撤回在新加坡经营交易所的执照申请，法币、加密货币交易平台Binance.sg将停止在该国运营，并于明年2月13日正式关闭。
+斯大林是个流氓出身，斯大林只要是吭吭吭一敲桌子，这就要严肃了生气了，要闹出点动静来了要死人了。斯大林当时就说要把俄罗斯的歌舞剧和音乐统一化。连那个农田里边的这个种庄稼，他当时就说了，把整个当时苏联是最早的，把家庭给分开的，男女不能同住啊。女的住一边男住一边搞人民公社，就是咱们中国就完全学他的，百分之百是学人家的，连样都没改，共同吃饭，男女分开住。然后到农田里边可以听音乐，如果你回去听收音机，如果你回家你听，那你是犯罪的，要枪毙的。这为啥斯大林干掉列宁以后改照片，改形象，人家列宁临死千万不能让这王八蛋接班，这是个危险分子，他非常的暴躁，这是个危险分子。结果是他把他弄死了，他当然他就接班了。
 
-新加坡区块链协会联合会长谢福来（Chia Hock Lai）对此表示，币安的決定表明新加坡对加密货币的执照申请制度非常严格。
+校对：HimaFaFA
+发布：HimaBoy
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-149.jpg)图片来源：路透社
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
 
-《自由时报》的报道称，不仅新加坡严格审查币安，香港、英国、德国和日本等多地金融机构也已对币安提出消费者保护、反洗钱等调查。部分国家目前已禁止币安平台进行特定活动，而其他一些国家则警告投资人币安尚未获得经营许可。 在币安退出新加坡的消息传出后，加密货币持续下跌。截至当日下午2点50分，比特币在过去24小时内下跌0.18％，暂报49074美元；以太币则下跌了1.56％，暂报3994美元。
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-*参考链接：*
+**关注我们**
 
-[退出新加坡加密貨幣市場 幣安：已撤回執照申請](https://ec.ltn.com.tw/article/breakingnews/3767000)
+Discord 账号
 
-* * *
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-*素材采编：海星*
+Gettr 账号
 
-*编辑：青衣青青*
-
-*发布：Ranting*
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

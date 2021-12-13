@@ -2,31 +2,24 @@
 ---
 
 
-## 七哥谈武器——音乐（2021-12-12摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1752127/)
+## 斯洛文尼亚宪法法院裁定强制公职人员接种新冠疫苗违宪
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/1752221/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+#### 翻译                          意大利达芬奇农场                               小白鸽          
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Schermata-2021-12-13-alle-19.16.03.png)图片来源： eventiavversinews.it
+12月6日星期一，斯洛文尼亚宪法法院裁定，如果公职人员不能证明自己已染过疫就必须接种疫苗的法律属于违宪。虽然斯洛文尼亚政府本想从10月1日开始准备采取这一措施，但是宪法法院在等待最终裁决时已停止执行相关措施。根据斯洛文尼亚新闻社STA的消息，法庭星期一确定“类似措施等于实施疫苗强制，特别要求对有关传染疾病的法律进行修改。”
 
-来源：郭先生2021-12-12直播08：52：50摘录
+斯洛文尼亚政府对此判决尚无评论
 
-毛泽东你就更不用提了是吧，把西安的炕上的这个性交的民歌是吧，改成了东方红太阳升啊旧金山上所有的这音乐，把改完音乐的人就是你在家里啥也别干天天给我写歌，周恩来一搞又一搞的批啊。郭沫若，梁书平这些大佬们一个一个的审呐，你看那歌改过很多次乐律啊。全部你记住共产党学来了什么？俄国希特勒和斯大林的所有的人力独裁以来用少女少男来唱这个歌，你见过有一个这些国家歌用老人家唱的吗，用残疾人唱的吗？没有的，全是少女少男，而且要唱出那种所谓的天籁的声音也好，青春的声音也好。你看那个什么这个娘子军的歌，咱从小时候我们都记得，墙上到处那种小红鞋是吧，咔咔的唱什么大有作为。音乐，是主导任何动物和地球人类的，最便宜的，最有力的，最广泛的，最深远的武器。
+根据世界卫生组织的数据，到12月6日为止，有超过一百万的斯洛文尼亚人已完全接种疫苗， 也就是约占总人口的55%。斯洛文尼亚政府正寻求增加接种率， 至今仍低于欧盟平均水平。来自世界卫生组织的数据，斯洛文尼亚每天平均新增染疫人数为1116人。至12月6日，斯洛文尼亚共有430.064人染疫，5676人死亡。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+与此同时， 欧洲反对疫苗强制令抗议活动正在增加。
 
-**关注我们**
+在试图增加疫苗接种率时，一些欧洲国家采取了加强限制的措施。在奥地利， 连续几个周末，人们走上街头抗议政府的限制措施， 成为关注的焦点。
 
-Discord 账号
+原文链接：[https://www.eventiavversinews.it/slovenia-dichiarato-incostituzionale-lobbligo-del-vaccino-covid-per-i-dipendenti-pubblici/](https://www.eventiavversinews.it/slovenia-dichiarato-incostituzionale-lobbligo-del-vaccino-covid-per-i-dipendenti-pubblici/)
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+编辑、发布：  Xiao   baige
 
  
 
