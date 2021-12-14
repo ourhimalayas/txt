@@ -2,28 +2,28 @@
 ---
 
 
-## 科兴生物称已成功分离出奥密克戎变异株
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1754944/)
+## GTV新闻访谈简报|2021年12月14日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1754965/)
 
-中国科兴控股生物技术有限公司称，已成功分离出奥密克戎变异株，并获得测序结果。据《第一财经》报道，科兴发布信息称，公司于12月5日获得奥密克戎变异株感染者鼻咽拭子标本，并与中国医学科学院医学实验动物研究所秦川教授团队合作，开展了病毒分离和全基因测序工作，目前已成功分离出奥密克戎变异株，并获得测序结果。同时，科兴引进香港大学分离的奥密克戎变异株样本，转入中国医学科学院医学实验动物研究所P3实验室开展研究。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-3.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/download-1-3.jpg)
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-14.png)
+文章仅代表作者本人观点，与Gnews无关
 
-一位科兴工作人员说：“需要先研究是否有更换灭活疫苗毒株的必要性，然后再决定是否更换。”中共国国家卫健委新闻发言人米锋在国务院联防联控机制新闻发布会上介绍，当前，疫情全球大流行处于发展阶段，死亡率出现上升，奥密克戎变异株进一步增加了疫情不确定性，“外防输入”压力持续增大。
+视频参看：[2021.12.14早GTV新闻访谈](https://gtv.org/video/id=61b89bf756f4921401b79dbe)
 
-简评：
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-科兴生物是中共CCP家族控制的企业，背后的鼎晖投资以及乌托邦投资都是中共控制的投资公司，其中鼎晖代表了江泽民家族和温家宝家族的利益。中共盗国贼家族全球放毒，并用疫苗实现疫苗经济。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/calendar.jpeg)
 
-从这次科兴生物的公告来看，中共有备而来。中共不仅有毒株，还有解药，中共会用解药要挟全世界，逼迫全世界就范。爆料革命一直传播CCP病毒以及毒疫苗的真相，就是为了唤醒人们，不要成为CCP以及世界独裁集权下待宰的羔羊。灭共是正义的需要，灭共是生存的需要。
-
-参考链接：[https://www.zaobao.com.sg/realtime/china/story20211211-1222217](https://www.zaobao.com.sg/realtime/china/story20211211-1222217)
-
-文案：Ange7
-
-校对：理工男文峰
-
-上传：米線
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
