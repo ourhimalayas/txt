@@ -2,24 +2,165 @@
 ---
 
 
-## 英国卫生大臣承认加强针设为优先事项 一些手术将被推迟
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1753475/)
+## 中国企业家带上五角帽 也永远不是赵家人
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1753590/)
 
-#### 翻译/撰稿：zzballack
+[https://gtv.org/video/id=61b8270aa68b4f4b28e83336](https://gtv.org/video/id=61b8270aa68b4f4b28e83336)
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-2-9.jpg)图片来源：雅虎新闻
-据《布雷特巴特新闻网》（Breitbart News）12月13日报道，由于新冠奥米炕变种的蔓延，英首相鲍里斯·约翰逊（Boris Johnson）12月12日声称，英国人需要接种第三针新冠疫苗。英国卫生大臣赛义德·贾维德（Sajid Javid）随后声称，英国国民医疗服务体系（NHS）会将推广和接种加强针作为医疗保健的优先事项，这意味着一些病人将无法获得与全科医生的常规预约，一些非紧急手术也可能会被推迟到2022年。
+郭文贵
+Miles Guo
 
-贾维德12月13日在接受BBC广播四台采访时说：“在接下来的两三周内，预计会有很多人排队接种加强针，届时NHS可能无法为每个人提供与疫苗无关的医疗服务，因为全科医生将只专注于紧急需求和疫苗接种，以便优先对所有成年人接种第三针疫苗，这也意味着非紧急预约和选择性手术可能不得不被推迟到新年。”
+吃三年草和中国人不打就不行
+The Chinese people can eat grass for 3 years straight and they can’t live without being beaten
 
-据贾维德透露，首相约翰逊将加强针接种日期较原来提前四周，并让包括全科医生和药剂师在内的医务人员每天进行一百万次加强针接种，设置移动疫苗接种站点，其中一些中心除了圣诞节之外，每天至少开放12小时。并在每个地区部署42个军事规划小组（military planning teams），以协助这一行动。
+中国人有饭吃就不行
+The Chinese people have food to eat would not work
 
-英国国家审计署本月初的一份报告警告说，从大流行开始到2021年9月，有2万4千至74万个疑似癌症病例的紧急转诊被错过，因为数百万人在大流行期间无法获得基本医疗服务。一些分析预测，由于社会医疗服务资源集中在应对大流行病上，有数万疑似癌症患者未被确诊，以及数千潜在的癌症患者死亡，而这些是本可避免的。
+这都是如出一辙
+All these seem to come from the same rut
 
-疫苗的次生灾难开始显现，本可以用羟氯喹和伊维菌素等药物就可缓解甚至解决的大流行病，在政府推广疫苗接种后却变得越来越复杂和致命，本就稀缺的医疗资源更加不堪重负，越来越多的基础疾病患者因得不到及时治疗而白白丧命。这也许就是以中共为首的黑暗势力预先设计好的“大重启”议程路径，除了用病毒和疫苗杀人，其衍生的次生灾难也可用于灭绝人口，重塑世界秩序。人类到了生死关头，除了反抗暴政，别无它路。
+像万达王健林、像马云、像马化腾
+Just like Wang Jianlin (founder and chairman of Wanda Group), Ma Yun, and Ma Huateng
 
-新闻来源：[Health Sec Admits Some Surgeries and Medical Appointments Will Be Postponed for BoJo Booster Drive](https://www.breitbart.com/europe/2021/12/13/health-sec-admits-medical-appointments-postponed-boriss-boosters/)
+所有的老板都忘了自己出自于草根
+All these bosses have forgotten that they came from the grassroots (the lowest class people)
+
+他以为戴个五角星的帽
+They believe that they are wearing the hat with a 5 stars
+
+像梁安琪一样
+like Leong On-kei (Member of the Legislative Council of Macau)
+
+像洗米华一样 是不是？
+and Alvin Chao (Founder of Suncity Group)
+
+就觉得我是共产党的亲儿子了
+they would be the CCP’s biological children
+
+你没想到你永远不是
+They never thought they would never be
+
+那么西方投到的风投和风控这些人
+So the venture capital and risk control people invested by the West
+
+进去以后
+After they entered
+
+带到的美国所有的西方投资家
+all the Western investors in the U.S. brought to
+
+一个最核心的两个问题
+the two core problems
+
+你是不知道的
+you don’t know
+
+第一 真实的投资数据
+First, the real investment data
+
+有战友说，这个恒大9万亿搞错了
+Some comrades in arms have said that they made this Evergrande’s 9 trillion dollars, that’s wrong
+
+是全美国投到中国9万亿
+It should be the U.S. invested a total of 9 trillion dollars in China
+
+千万大家记住，唯真不破
+Everyone, don’t forget the power of truth
+
+千万要唯真不破
+We must keep the truth
+
+所以说这9万亿它是在哪里
+So saying where are the 9 trillion dollars
+
+是美国政府投到中国9万亿
+It’s the 9 trillion dollars that the U.S. government has invested in China
+
+它是投房地产
+It is investment in real estate
+
+可不一定要投到这个恒大房地产
+But it doesn’t have to invest in this Evergrande real estate
+
+恒大有上千种方式
+Evergrande has thousands of methods
+
+完全跟恒大没有关系
+It has nothing to do with Evergrande
+
+在西方拿对冲基金的钱
+that taking money from hedge funds in the West
+
+担保再担保
+guarantee and re-guarantee
+
+无相关关系 第三方
+It’s the third party which no related relationship
+
+是吧？太多招了
+You see, they have too many tricks
+
+你根本不可能在那个数字里边的
+Those money can’t be in that number at all
+
+这叫对冲和风险基金的本质
+This is called the nature of hedge and risk funds
+
+不用公开信息，隐蔽性强
+There is no need to disclose information and strong concealment
+
+风险极大 回报极高
+High risk but high return
+
+玩弄着这两个风险的
+The maniac playing with these two risks
+
+投资者的疯子和那个冒险家
+are the investor maniac and the adventurer,
+
+就是那个恒大 共产党这边
+which is that Evergrande on the CCP side
+
+风和险中间叫什么
+What is it called between the risk and danger?
+
+叫基金经理
+It called the fund manager
+
+挣了 我拿20%
+They’ll take the 20% if you earn money
+
+赔了 我拿2%的管理费、5%管理费
+and take the 2% – 5% management fee if you lose money
+
+挣赔我都拿
+They’ll take your fund management fee no matter you gain or lose money
+
+这叫风险中间 叫基金经理人
+This is called risk middle, the fund manager
+
+就叫金钱妓女和金钱妈咪
+Called money prostitutes and money mommy
+
+* * *
+
+Date: 12/11/2021
+原视频标题: 中国企业家带上五角帽 也永远不是赵家人
+The Chinese Entrepreneurs Will Never Belong to The Zhao Family Even Though They Wearing The CCP Hats
+原视频日期：2021/12/10
+原视频链接: [**https://gettr.com/post/pjejnxf913**](https://gettr.com/post/pjejnxf913)
+任务编号：KC334(3187)
+视频时间段 : 0:00-2:05
+英听校：洛杉矶盘古农场 – 郭班之樱
+翻译：洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

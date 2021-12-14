@@ -2,166 +2,28 @@
 ---
 
 
-## 中国企业家带上五角帽 也永远不是赵家人
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1753590/)
+## 法治和信仰
+` 骄子` [轉載自GNews](https://gnews.org/zh-hans/1753689/)
 
-[https://gtv.org/video/id=61b8270aa68b4f4b28e83336](https://gtv.org/video/id=61b8270aa68b4f4b28e83336)
+文：银河勇气星｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12-4.jpg)
+中共国金融房地产的钱大部分来自国外金融机构，国外的钱想要进来中国投资是不可能的因为共产党严格的外汇管制和海外投资者登记制度，能够投进来的钱一定是官方互相勾结的结果，外汇管制那是管制你老百姓的，共产党不认那个管制，但是投钱进来又得做账，明面上还是违法的，所以各种各样的壳基金公司（SPAC）就成为了这些钱进来的主要渠道。中共国的法律不允许外资进来，拿西方的金融机构也是不允许去投资的，他们合法搞诈骗，成立对冲基金，双方都是在知法而犯法。钱进来中共国以后还要出去，出去也是违法的，结汇就能把人卡死，许家印去给美国还钱是犯法的。本来吴征当时收购川普的社交媒体，还在想吴征这王八蛋怎么能操作得如此顺滑，原来共产党这些个壳基金公司已经运营手段成熟，可能对吴征来说不过就是很随便的一个项目。像吴征这样的持有美国国籍的外国代理人，在已经被FBI调查的情况下他的那个壳公司还能正常运作欺骗股民老百姓，这中间到底又有多少层官官相护，官商勾结，已经不是什么秘密了。况且有登记可查的投资并没有比那些隐匿不可查资本多，这中间包含了美国的养老金，退休金，这些都是老百姓的辛苦税钱，就这样被那些美国邪恶资本家给合法偷走了。
 
-郭文贵
-Miles Guo
+七哥说共产党不给美国还钱从共产党的法律上来说是行得通的，如果共产党较真儿的话不仅一分钱不用还，而且美国还成了有罪的一方了。但是钱当时进来的时候你怎么就不说了呢？好处都让共产党和那些西方贪婪资本家给占了，他们双方彼此都太贪婪，胆子大的撑死，果然就真给撑死了。这样巨大的金融资金已经把全世界的经济都带到了一个无法挽回的坑里，颇有点要死大家都得死的意味，所以共产党的房地产倒塌后，与之相关的一切西方金融也将坠入死窟，到时候那些养老金退伍金各种保险还怎么赔偿得起呢，找谁去兑付呢，这些人手里都有枪的啊。美国的资本家从共产党这里得到了无数的好处，但实际上都是骗子，投到中共国的钱不仅血本无归，而且在急速贬值，因为共产党的房地产从银行贷款的时候，拿的都是些骗子字画，随便一幅就能骗个上亿，那么投进来的美金能变成真美金吗？如果说美元超发是一种自我贬值的方式，那么投资到中共国的骗子房地产企业给美元带来的贬值可能和印钱是不相上下的，因为中共国印的钱不见得比美国少。
 
-吃三年草和中国人不打就不行
-The Chinese people can eat grass for 3 years straight and they can’t live without being beaten
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-14-19.43.44.png)图源：网路
 
-中国人有饭吃就不行
-The Chinese people have food to eat would not work
+法律从某种意义上来说，根本无法杜绝想犯罪的人，道高一尺魔高一丈啊。美国的很多州的法律都是不同的，打比方说，印第安保留地的人不遵守任何州和联邦的法律，遵守的是保留地的自治法，所以保留地就成为了一些非保留地居民犯罪者的天堂。很多和保留地接壤的州的犯罪分子简直不要太方便了。除了在陆地上有这样的“合法犯罪场所”，世界上也有一些公海，没有任何国家法律管辖的地方，坐船过去犯罪，没人查的，不会查的。但话又说回来，假使在公海赌博使用了美元，那没跑了，美元有长臂管辖权，就是在外太空使用了美元，都是可以被管得到的。所以单伟建和吴征，这些是共产党的海外代理人们，他们使用美元进行诈骗，后面共产党一定会有法律上的蓝金黄政策来收买司法机关，避免诉讼，就算合理诉讼也会被压下来。法律这种东西在共产党那里是一张空纸，共产党自己不相信，老百姓也不相信。当看到替共产党说话的各种各样的法官，那个不让文贵先生说一句话的法官，太正常了，但是太糟心了。这对于一个共产党挑刺儿找茬都查不到任何不合法记录的文贵先生来说，对法律的亵渎，美国司法的堕落，这话都说得太轻了，这事儿天理难容的。
 
-这都是如出一辙
-All these seem to come from the same rut
-
-像万达王健林、像马云、像马化腾
-Just like Wang Jianlin (founder and chairman of Wanda Group), Ma Yun, and Ma Huateng
-
-所有的老板都忘了自己出自于草根
-All these bosses have forgotten that they came from the grassroots (the lowest class people)
-
-他以为戴个五角星的帽
-They believe that they are wearing the hat with a 5 stars
-
-像梁安琪一样
-like Leong On-kei (Member of the Legislative Council of Macau)
-
-像洗米华一样 是不是？
-and Alvin Chao (Founder of Suncity Group)
-
-就觉得我是共产党的亲儿子了
-they would be the CCP’s biological children
-
-你没想到你永远不是
-They never thought they would never be
-
-那么西方投到的风投和风控这些人
-So the venture capital and risk control people invested by the West
-
-进去以后
-After they entered
-
-带到的美国所有的西方投资家
-all the Western investors in the U.S. brought to
-
-一个最核心的两个问题
-the two core problems
-
-你是不知道的
-you don’t know
-
-第一 真实的投资数据
-First, the real investment data
-
-有战友说，这个恒大9万亿搞错了
-Some comrades in arms have said that they made this Evergrande’s 9 trillion dollars, that’s wrong
-
-是全美国投到中国9万亿
-It should be the U.S. invested a total of 9 trillion dollars in China
-
-千万大家记住，唯真不破
-Everyone, don’t forget the power of truth
-
-千万要唯真不破
-We must keep the truth
-
-所以说这9万亿它是在哪里
-So saying where are the 9 trillion dollars
-
-是美国政府投到中国9万亿
-It’s the 9 trillion dollars that the U.S. government has invested in China
-
-它是投房地产
-It is investment in real estate
-
-可不一定要投到这个恒大房地产
-But it doesn’t have to invest in this Evergrande real estate
-
-恒大有上千种方式
-Evergrande has thousands of methods
-
-完全跟恒大没有关系
-It has nothing to do with Evergrande
-
-在西方拿对冲基金的钱
-that taking money from hedge funds in the West
-
-担保再担保
-guarantee and re-guarantee
-
-无相关关系 第三方
-It’s the third party which no related relationship
-
-是吧？太多招了
-You see, they have too many tricks
-
-你根本不可能在那个数字里边的
-Those money can’t be in that number at all
-
-这叫对冲和风险基金的本质
-This is called the nature of hedge and risk funds
-
-不用公开信息，隐蔽性强
-There is no need to disclose information and strong concealment
-
-风险极大 回报极高
-High risk but high return
-
-玩弄着这两个风险的
-The maniac playing with these two risks
-
-投资者的疯子和那个冒险家
-are the investor maniac and the adventurer,
-
-就是那个恒大 共产党这边
-which is that Evergrande on the CCP side
-
-风和险中间叫什么
-What is it called between the risk and danger?
-
-叫基金经理
-It called the fund manager
-
-挣了 我拿20%
-They’ll take the 20% if you earn money
-
-赔了 我拿2%的管理费、5%管理费
-and take the 2% – 5% management fee if you lose money
-
-挣赔我都拿
-They’ll take your fund management fee no matter you gain or lose money
-
-这叫风险中间 叫基金经理人
-This is called risk middle, the fund manager
-
-就叫金钱妓女和金钱妈咪
-Called money prostitutes and money mommy
+宗教信仰里有句话叫做，我们爱，因为神先爱我们。当我们自己拿出爱的时候，才能感受到神的爱。因为爱是同一种东西，没有区别。如果感受不到，那么可能拿出的不是爱。只有真心去爱，才会得到更多的爱。人们常常说的天赋人权，人人平等，这些的前提都是自己先要去做到平等，做到人权，才能得到他人对于自我的平等和尊重。尼采有句话叫做，hell is the other，翻译成中文，变了，定义词换到最前面来了，叫做“他人即是地狱”。虽然在句义上来说并没有任何改变，但是这是两种文化的体现，看得到西方对于信仰的认同，他们认为地狱比任何一个人都可怕。中国人被共产党洗脑，没有了信仰，不害怕鬼，但是害怕人，因为确实有的人混蛋起来比地狱都可怕。在有信仰的国家讲法律，法律是成文的，有用的，每个人都做好自己，就是给他人提供良好的生存环境，自己将会受益于此。在没有信仰的国家，法律就是一纸空文，好人全部都被驱散殆尽。文贵先生当时在中国都是用正当的法律手段维护自己的合法权益，更何况到了以法治著称的美国呢，美国司法的堕落只能说明信仰的一度缺失。这种缺失就是不爱了，不爱了当然不会感受到神的爱，没有了神，信仰自然而然消失了。所以和共产党和邪恶组织这帮没有信仰的恶魔打交道，只能比他们更狠，给他们办葬礼那真是便宜他们了。只要不违反法律条文的行为，让共产党去踩红线，这是最智慧的做法。
 
 * * *
 
-Date: 12/11/2021
-原视频标题: 中国企业家带上五角帽 也永远不是赵家人
-The Chinese Entrepreneurs Will Never Belong to The Zhao Family Even Though They Wearing The CCP Hats
-原视频日期：2021/12/10
-原视频链接: [**https://gettr.com/post/pjejnxf913**](https://gettr.com/post/pjejnxf913)
-任务编号：KC334(3187)
-视频时间段 : 0:00-2:05
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译：洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 ：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+作者：骄子
+发布：骄子
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，欢迎加入银河系农场，欢迎各农场兄弟姐妹们坐客串门，欢迎订阅我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/345-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
