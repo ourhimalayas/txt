@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/14/2021 2:51 AM (UTC)`
+
+最近，我们初步的完成了关于青蒿素保健品和药品效用的问卷调查。调查结果显示，青蒿素会改善和缓解疫苗副作用及其他基础疾病。所有细节均包含在如下的报告里。青蒿素是中共病毒和中共病毒疫苗的解药，我们将继续推进真相。请遵医嘱。
+![img](https://media.gettr.com/group29/origin/2021/12/14/02/b40c46cb-4cf8-0b4a-25e0-6521d2c52766/2f819549854a45495c31ac76700944de.png)
+
+---
+
+`@miles 12/14/2021 2:47 AM (UTC)`
+
+We conducted a preliminary survey about the effects of artemisinin supplements and derivatives lately. The results show ameliorative effects of artemisinin against the vaccine-induced symptoms and other pre-exsiting conditions. All the details are included in the following report. We will keep promoting the truth about artemisinin as the antidote to the CCP virus and the CCP virus vaccine. Please follow the doctor's advice.
+![img](https://media.gettr.com/group36/origin/2021/12/14/02/bce39036-5142-966f-f0b6-c283620ad664/8cf272714fd04105dfd54a767a289b26.png)
+
+---
+
 `@miles 12/13/2021 10:29 PM (UTC)`
 
 12/12/2021 Miles Guo: Princess Xi is really something - many Chinese businesspersons have dined with her by bragging too much without knowing her real identity; the CCP regime in the past decade has been ruled by Xi Jinping and Peng Liyuan family via the so-called National Security Committee which has bypassed the CCP’s Party Standing Committee and the State administration; Xi’s foreign intelligence matters are in the hands of Xi’s sister family<br/><br/>12/12/2021 文贵直播：习公主可不是一般人，很多企业家和她吃过饭吹过牛，但竟不知她就是习公主；过去十年的中共国基本被习彭通过所谓的国家安全委员会架空了常委会和行政机构，习的海外情报网由习的姐姐家族掌控<br/>
@@ -137,18 +151,6 @@ Dec 12, 2021 The significance behind Mr. Miles Guo's impressive series of music 
 
 12/10/2021 Miles Guo: Weijian Shan and his gangs have been promoting the notion that Communist China is the Western adventurers’ La-la Land; 9 trillion dollars have been injected into the CCP’s real estate sector through the U.S. PE funds and hedge funds; the fund managers in the Wall Street are the middlemen between the Adventurers' La-la Land (i.e., Communist China) and the fund investors; those fund managers are always making money regardless of whether the funds make money or not<br/><br/>12/10/2021 文贵直播：单伟建之流标榜独裁的中共国是西方冒险家的乐园，美国风投、对冲基金等有9万亿美元投进了中共国房地产，华尔街基金经理是连接冒险家乐园（中共国）和风投的中间人，无论基金赔钱还是赚钱，基金经理稳赚不赔<br/>
 ![img](https://media.gettr.com/group37/getter/2021/12/12/00/5374f48f-7daf-03d0-6a65-9478fbbc7da9/out.jpg)
-
----
-
-`@miles 12/11/2021 4:56 PM (UTC)`
-
-Dec 11，2021 Mr. Miles Guo's “HCoin To The Moon ” has once again created a series of unprecedented historical miracles: not only did it reach the prestigious Billboard charts, but it also reached the top of the global sales charts. The music video for the song swept the world, topping the iTunes MV charts in nearly 30 countries. Not only has no Chinese ever achieved this, but even the world's top renowned musicians also have never been able to do so. This charting success once again proves the united strength of the global fellow fighters of the New Federal State of China and their determination to take down the CCP!🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters around the world!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1743730/
-
----
-
-`@miles 12/11/2021 4:51 PM (UTC)`
-
-12月11日， 郭文贵先生的新歌“HCoin To The Moon”打榜再次创造了一系列前所未有的历史奇迹：不仅登上了音乐界享有盛名的Billboard排行榜，更是一举取得了全球销量榜首的骄人成绩。而该歌曲的音乐视频一上线就横扫全球，雄霸将近三十个国家的iTunes MV榜首。不仅从未有任何一个中国人做到如此，即便是世界顶级的知名音乐家也是望尘莫及。这次打榜的成功再一次显示了新中国联邦全球战友们团结的实力以及灭共的决心！🎉🎉🎉🎉🎉🎉🙏🙏🙏🙏🙏🙏🙏<br/><br/>MV版Hcoin To the Moon上线第2天位列25国iTunes热门MV榜首🥇！🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港，美国，台湾，日本，俄罗斯，德国，法国，澳大利亚，加拿大，新加坡，澳门，新西兰, 匈牙利，泰国，柬埔寨，老挝，瑞典，菲律宾， 马来西亚，阿联酋， 意大利，芬兰，马耳他，斐济，拉脱维亚的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/1743729/
 
 ---
 
