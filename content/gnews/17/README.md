@@ -2,25 +2,20 @@
 ---
 
 
-## 斯洛文尼亚宪法法院裁定强制公职人员接种新冠疫苗违宪
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/1752221/)
+## 被认为是世界上第一个因感染Omicron死去的患者在英国出现
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1752251/)
 
-#### 翻译                          意大利达芬奇农场                               小白鸽          
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Schermata-2021-12-13-alle-19.16.03.png)图片来源： eventiavversinews.it
-12月6日星期一，斯洛文尼亚宪法法院裁定，如果公职人员不能证明自己已染过疫就必须接种疫苗的法律属于违宪。虽然斯洛文尼亚政府本想从10月1日开始准备采取这一措施，但是宪法法院在等待最终裁决时已停止执行相关措施。根据斯洛文尼亚新闻社STA的消息，法庭星期一确定“类似措施等于实施疫苗强制，特别要求对有关传染疾病的法律进行修改。”
+撰稿：东京樱花团｜百花李香
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3-18.png)[*图片来源*](https://news.yahoo.co.jp/articles/48f0681975def4278d97f04b898e21d77cb5542e/images/000)
+据《共同通信》网站13日晚间报道，英国首相约翰逊宣布，至少有一名感染Omicron的病人已经死亡。英国媒体报道了这一消息。这是英国第一个被证实死于Omicron的案例，据信也是世界上第一个。
 
-斯洛文尼亚政府对此判决尚无评论
+英国政府称,截至12月12日，感染Omicron的人数已经上升到3137人，比12月5日的246人在一周内增加了10倍以上。周四，该疾病的警报级别从3级提高到了4级，这表明存在医疗紧急情况的风险。
 
-根据世界卫生组织的数据，到12月6日为止，有超过一百万的斯洛文尼亚人已完全接种疫苗， 也就是约占总人口的55%。斯洛文尼亚政府正寻求增加接种率， 至今仍低于欧盟平均水平。来自世界卫生组织的数据，斯洛文尼亚每天平均新增染疫人数为1116人。至12月6日，斯洛文尼亚共有430.064人染疫，5676人死亡。
+信息源：[英、オミクロン株で死者　世界で初確認か](https://news.yahoo.co.jp/articles/48f0681975def4278d97f04b898e21d77cb5542e#:~:text=%E3%)
 
-与此同时， 欧洲反对疫苗强制令抗议活动正在增加。
-
-在试图增加疫苗接种率时，一些欧洲国家采取了加强限制的措施。在奥地利， 连续几个周末，人们走上街头抗议政府的限制措施， 成为关注的焦点。
-
-原文链接：[https://www.eventiavversinews.it/slovenia-dichiarato-incostituzionale-lobbligo-del-vaccino-covid-per-i-dipendenti-pubblici/](https://www.eventiavversinews.it/slovenia-dichiarato-incostituzionale-lobbligo-del-vaccino-covid-per-i-dipendenti-pubblici/)
-
-编辑、发布：  Xiao   baige
-
+*校对：东京樱花团/東洋武士*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

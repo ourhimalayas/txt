@@ -2,42 +2,26 @@
 ---
 
 
-## 埃隆·马斯克荣登《时代》杂志2021年年度人物
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1752321/)
+## 中共指责G7外长“冷战思维”干涉内政
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1752342/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+俄罗斯莫斯科喀秋莎农场  银河
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/812-6.jpg)图片来源：The Times
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/12/G-1.jpg)cryptopaysme.com
+日本共同社12月13日报道称，中共批评七国集团(G7)外长干涉中共国内政，同时敦促他们放弃“冷战思维”，纠正以意识形态划清界限的做法。
 
+根据七国集团发表的一份声明，部长们讨论了“香港和新疆的局势”，北京在那里被指控侵犯人权，以及“台湾海峡两岸和平与稳定的重要性”。在另一份声明中，七国集团(G-7)和东南亚国家联盟(Association of Southeast Asian Nations，简称东盟)也重申了“维持自由开放的印度洋-太平洋地区的共同利益”，这是对中共国试图改变该地区现状的含蓄反击。
 
-**整理报道：文泓**
+中共外交部发言人汪文斌在G7英国利物浦的会议结束后表示，七国集团的外长们“抹黑了中共国的形象，损害了中共的利益。”
 
-世界上最富有的人和特斯拉的首席执行官埃隆·马斯克被《时代》杂志评为2021年的年度人物。
+此次会议中七国集团(G7)外长和央行行长承诺，在奥米克戎变异引发的担忧日益加剧之际，他们将继续防范中共病毒变异，并在全球供应链问题上合作。供应链中断导致全球通胀加速，可能会扼杀经济从疫情影响中的复苏，七国集团就如何提高供应链的弹性和如何更准确地描述未来可能发生的供应链中断交换了意见。
 
-美国时间的周一，《时代》杂志宣布了2021年年度风云人物——世界首富、特斯拉和SpaceX的首席执行官埃隆·马斯克。
+参考链接：
 
-“年度人物是其影响力的标志，很少有人能比马斯克对地球上的生命，以及地球以外的生命产生更大的影响。2021年，马斯克不仅成为世界上最富有的人，而且可能是我们社会发生巨大转变中最富有的例子，”《时代》杂志主编兼首席执行官爱德华·费尔森塔尔在一份声明中说。
+[https://english.kyodonews.net/news/2021/12/9684c924f898-china-raps-g-7-interference-in-internal-affairs-cold-war-mentality.html](https://english.kyodonews.net/news/2021/12/9684c924f898-china-raps-g-7-interference-in-internal-affairs-cold-war-mentality.html)
 
-据《纽约邮报》报道，马斯克——他的身价约为2660亿美元（3730亿澳元），在2021年里取得了突破性进展，他的财富增加了1000多亿美元（1400亿澳元），并从竞争对手杰夫·贝佐斯手中抢走了世界首富的称号。
-当他的净资产超过贝索斯时，马斯克笑称，他会给这位亚马逊创始人送上一枚银质奖章。
-
-除了马斯克的财富激增之外，《时代》杂志称，它之所以给马斯克颁奖，是因为2021年看到这位超级亿万富翁在其雄心勃勃的航天事业方面取得了历史性的进展，并看到他的影响力超出了硅谷，扩展到了流行文化世界。
-今年4月，SpaceX赢得了美国国家航空航天局(NASA)的独家合同，自1972年以来首次将美国宇航员送回月球，此后他的公司抵御了来自贝索斯的蓝色起源公司对该合同的法律挑战。
-
-今年5月，该公司的大型星际飞船火箭发射并首次成功着陆，这是SpaceX的一项重大成就，马斯克打算有一天用它来向火星运送人员和货物，该公司希望使其火箭可以重复使用，以降低太空探索的成本。
-虽然蓝色起源公司和同为亿万富翁的理查德·布兰森的维珍银河公司因将其亿万富翁业主短暂送入太空而成为头条新闻，但SpaceX将一位亿万富翁和他的客人送入太空轨道深处数日，从而超越了其他竞争对手。
-
-在SpaceX达到里程碑的同时，马斯克通过吹捧比特币和其他加密货币（如狗币），在新生的加密数字货币领域引发市场震动。
-
-新闻链接：[Elon Musk named Time Magazine’s 2021 Person of the Year | news.com.au — Australia’s leading news site](https://www.news.com.au/entertainment/books-magazines/magazines/elon-musk-named-time-magazines-2021-person-of-the-year/news-story/e2a6a886fa1a41471aafebd694428cef)
-
-发布：文泓
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[https://english.kyodonews.net/news/2021/12/7b1670b07986-g-7-finance-chiefs-vow-vigilance-over-covid-variants-supply-issues.html](https://english.kyodonews.net/news/2021/12/7b1670b07986-g-7-finance-chiefs-vow-vigilance-over-covid-variants-supply-issues.html)
 
  
 
