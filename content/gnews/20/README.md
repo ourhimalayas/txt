@@ -2,42 +2,43 @@
 ---
 
 
-## 韩国：用人脸识别追踪新冠惹争议
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1755011/)
+## 专家称对激烈爆发的Omicron毒株乐观是幻想
+` 丁过` [轉載自GNews](https://gnews.org/zh-hans/1755016/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/0539e3c89eb80b7e.png)图片来源：GitHub
-翻译：lovemiles
-编辑：守望黎明
+#### 温哥华农场 丁过
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-232.jpeg)来源：RFI
+综合多家媒体报道，新的中共病毒Omicron在英国、丹麦、挪威、加拿大等国家以2～3天翻一番的速度大规模爆发，Omicron在这些国家已经取代或正在取代德尔塔病毒成为主要传播病毒。
 
-韩国当局打算使用人脸识别摄像头，实时跟踪新冠感染者并确保他们戴口罩。这一计划被有些人称为“新极权主义”。
+挪威公共卫生署(FHI)透露，未来三周挪威的每日新增感染人数可能达到9万至30万人，其中每天有200人住院，而挪威人口仅540万人。
 
-这套系统将首先于1月份在首尔郊区的富川市进行测试，然后再扩展到其他地区。它要把全市 10,820 个安全摄像头，相连到人工智能和面部识别软件，用于“跟踪活跃病例及其密切接触者的动向，并确定他们是否戴口罩。”
+英国卫生安全局(UKHSA)14日表示，英国每天新增Omicron感染病例已高达20万例，远高于官方确诊病例数。英国首相约翰逊则宣布，英国的中共病毒感染人数正在以每3天翻一番的速度增长。
 
-一位官员表示，需要使用这套系统来减少负责追踪新冠病例的工作量，其中要借助手机卡购买记录和手机位置数据等信息。
+加拿大安省中共病毒顾问组负责人Jüni13日表示，那些认为Omicron毒株是温柔的、只会引起轻症的想法是一种幻想（wishful thinking）或不切实际的神话（myth），因为我们对它的认识还处于初期阶段。
 
-富川市市长张德川（Jang Deog-cheon）说：“使用面部识别技术将能够进行即时分析，可以减轻人工分析监控资料的负担。”
+Jüni强调，“基于Omicron极强的传染性，它终将感染到每一个人。从统计学上来说，只会有相当少的人不会被传播到”。有一种较为普遍的说法是Omicron的传染力是德尔塔的3倍。
 
-据路透社报道，该系统还能消除有人感染了新冠却“隐瞒行踪”的问题。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/5BC94C47-FCCD-4248-B959-A0CE7705E04C.jpeg)
 
-反对党国民力量党议员朴大哲（Park Dae-chul）称该计划为“新极权主义”的产物。
+来源：立场新闻
+加拿大首席卫生官谭咏诗在同一天表示，加拿大几乎无一幸免的情况也将在世界各国出现。
 
-他说：“未经公众同意，用纳税人的钱通过闭路电视监视和控制公众的行为，是绝对错误的。”
+随着Omicron的爆发及英国出现首例Omicron感染死亡病例，陷入焦虑的人们都在等待专家的进一步解释，同时期盼政府给出有效的防疫抗疫指导。
 
-中国、印度、日本、波兰、俄罗斯和美国的多个州也在探索类似的方法来对新冠感染人群进行追踪。
+由于日本专家的务实和正直，日本政府得以向公众警示疫苗有导致心肌炎等致命副作用，并要求医务人员在为他人接种疫苗前必须尽到告知风险的义务。
 
-人脸识别这样的技术当然很容易被滥用，它消除了个人隐私的一切死角。恐怕连写出《1984》一书的乔治奥威尔，都会认为它是匪夷所思的。
+而绝大多数发达国家的政府，在强制疫苗方面的暴政越来越极端，被民众寄予厚望并掌握绝对话语权的所谓主流专家，比如Jüni、谭咏诗和牛津大学病毒研究机构等几乎全部和不良政客和媒体同流合污，极力宣传接种疫苗的好处。
 
-然而，我们现在却正处在这种境况之下。
+显然，每一次疫情爆发，每一种新的中共变种病毒出现，都是这些丧尽天良的疫苗利益相关者狂欢的盛宴！
 
-原文链接：[South Korea to Use Facial Recognition Cameras to Track COVID Cases, Ensure Mask Compliance](https://summit.news/2021/12/13/south-korea-to-use-facial-recognition-cameras-to-track-covid-cases-ensure-mask-compliance/)
+参考：
 
-发布：Peter Xin
+[Omicron傳染炸彈…挪威每日恐30萬人染疫 丹麥危機重重](https://udn.com/news/story/121707/5960358)
 
-**更多****资讯****，****请关****注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[Community transmission of Omicron now present, could ‘rapidly escalate’ soon: Tam](https://www.ctvnews.ca/health/coronavirus/community-transmission-of-omicron-now-present-could-rapidly-escalate-soon-tam-1.5704784)
+
+[‘There is a myth out there that it’s mild,’ head of Ontario’s science table says of Omicron](https://www.cp24.com/news/there-is-a-myth-out-there-that-it-s-mild-head-of-ontario-s-science-table-says-of-omicron-1.5704993)
+
+[卫生机构：英国每天有20万例新增Omicron病例](http://www.ftchinese.com/interactive/56284?full=y)
 
  
 
