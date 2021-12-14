@@ -2,32 +2,24 @@
 ---
 
 
-## 中共继续大量增加粮食及饲料进口
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1753226/)
+## 2021年年度汉字评选确定，“金“再次被选中
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1753256/)
 
-作者：纽约香草山教育部 – 文特
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-12月10日，国外有媒体援引国际贸易灵通人士的信息称，中共买家上周购买了大量的法国小麦和大麦，以及乌克兰的玉米和大麦。尽管还不清楚购买总量会有多少，但他们已经确定从这两个国家进口的谷物至少达数十万吨。另外，中共买家还大量购买了澳大利亚的饲料用小麦，至少也有数十万吨。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture3-13.jpg)
-仅就法国小麦而言，中共已预定6-10艘船，可能多达60万吨，主要在2022年1-3月装运。4艘法国大麦船和10船乌克兰大麦主要在明年7-8月装运。乌克兰玉米的运量大约也有10船或更多。
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-717.png)[图片来源](https://news.yahoo.co.jp/articles/e2b4e3f7c8f4b04ec46a26a8406a433e1a33d1ec#:~:text=%E4)
+据《京都新闻》网站13日报道，日本汉字能力鉴定协会（JANTI）12月13日在京都市东山区清水寺宣布，“金”被选为“年度汉字”这是继2000年、2012年和2016年之后，“金“字第四次被选中。该协会概述了选择“金”的原因：日本运动员在东京奥运会上赢得了许多“金”牌，大谷翔平赢得了美国职业棒球大联盟的MVP奖，藤井聪太成为赢得四个“金”牌冠军的最年轻者。此外，还有给国民发放了紧急补助等这些都和“金”有关系。
 
-报道认为，这些信息表明，尽管中共一再声称国内的粮食收成很好，获得了丰收，生猪产业似乎也不太景气，但他们仍然需要大量进口粮食。
+1995年启动的年度汉字竞赛，至今已是第27年，它已成为日本国民熟悉的12月的一个年度活动项目。
 
-参考链接：[中共继续大量增加粮食及饲料进口](https://www.reuters.com/markets/commodities/exclusive-china-snaps-up-large-volumes-french-ukrainian-feed-grain-2021-12-10/)
+清水寺的森清范管主说：“这是第四个金，我相信，东京奥运会上的精彩表现已经给大家留下了深刻的印象，希望明年能够做到不输给“金”的辉煌继续努力。“
 
-![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+去年，中共病毒在全世界蔓延时，被选中的汉字是“密“。很多人参加了比赛，目的是为了响应政府为防止感染而提出的避免三密（密闭、密集和封闭）的口号。
 
-总编：飞虹
-编辑：飞虹
-校对/发稿：Hetangyuese
+信息源：[今年の漢字は「金」　京都・清水寺で発表、五輪の金メダルや各界の金字塔反映](https://news.yahoo.co.jp/articles/e2b4e3f7c8f4b04ec46a26a8406a433e1a33d1ec#:~:text=%E4)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

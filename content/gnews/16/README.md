@@ -2,32 +2,42 @@
 ---
 
 
-## 2021/12/13 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1753301/)
+## 针对Covid-19限制的大规模抗议活动在德国东部蔓延
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1753338/)
 
-1. 12月10日，河南南阳。孩子不配合打疫苗，妈妈把小孩按倒在地。
-2. 12月9日，四川成都华西医院。医院人流密集如车站，医疗被中共做成了一门赚钱的生意。
-3. 12月10日，西安唐都医院。妻子得了绝症，男子无钱医治，瞬间崩溃。
-4. 12月10日，贵州贵阳。民房顶层起火，老人避火逃生，坠楼身亡。
-5. 老人截肢后没钱安装假肢，自己绑了一条马腿用来行走。
-6. 12月9日，河南商丘。老人捡拾掉落在地上被弄脏的粉条，准备再次食用，小伙见状暖心赠送。
-7. 12月8日，江苏昆山。九旬老奶奶半夜在街头捡瓶子，每天独自捡到凌晨两点回家，好心人将换到的所
-8. 90岁老人将自家种的菜拿在集市上卖，小伙心疼无人问津，买下了老奶奶所有的菜。
-9. 12月11日，湖南长沙。大货车和小轿车相撞发生惨烈车祸起火，小车司机来不及逃生，当场被烧死。
+##### 【雅典娜快讯】，紧贴时事脉搏
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/maxresdefault-14.jpg)图片来源：YOUTUBE
 
 
-* * *
+#### 编译 ：小红帽
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+**根据RT新闻12月14日报道，由于对Omicron变种传播期间引入的新冠病毒限制和强制疫苗令感到沮丧，成千上万的德国人走上多个东部城市的街头，**
 
+周一，大约3，500名示威者参加了德国萨克森 – 安哈特州首府马格德堡的抗议活动。抗议者在市中心游行，高呼“抵抗！”和其他口号，反对由于新的新冠毒株在欧洲迅速蔓延而实施的全面封锁措施。
 
-编辑：【英国伦敦喜庄园编辑部】
+仅在周一，萨克森 – 安哈特州就举行了大约30次单独的示威活动，其中大多数是反对政府的新冠病毒政策。大约1，500人走上哈尔伯施塔特的街头，该小镇只有40，000多人。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+在拥有46，000人维滕贝格，约有1，300人参加了抗议活动。
 
+在瑙姆堡，奎尔福特，舍内贝克，阿舍尔斯莱本和德绍等地举行了小型的示威活动。
 
+“参加抗议活动的人数明显多于上周，”当地媒体报道。抗议情绪在德国东部一直上升。
+
+作为对抗议活动，反建制的德国选择党（AfD）的一名当地代表表示“全力声援”那些反对严格的新冠病毒措施的示威者，称他们是要求“公民自由”的“完全正常的和平人士”。
+
+抗议活动没有发生任何事件，也没有关于示威者之间逮捕或混战的报道。
+
+新闻来源：[Mass protests against Covid-19 restrictions hit eastern Germany — RT World News](https://www.rt.com/news/543102-protests-covid-restrictions-mandate/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
