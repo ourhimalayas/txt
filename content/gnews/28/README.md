@@ -2,18 +2,12 @@
 ---
 
 
-## 西媒头条 — 第130期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1754245/)
+## 许多美国公司和投资者实际上是在资助美国的敌人：中共
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1754282/)
 
-制作: 蚂蚁兄弟
+12/10/2021 阿特拉斯组织创始人兼《中国的胜利愿景》一书的作者乔纳森·沃德谴责了包括苹果和雷·达里奥在内的许多美国公司和投资者。这些唯利是图公司和投资者正在事实上资助美国的主要对手中共，以维持其独裁统治、发展其先进技术、建设其崛起的军队。所有这些都在严重挑战美国，而这最终会伤害所有人。
 
-**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/xm1214.001.jpeg)
-
-发稿：信心的选择
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-2.jpeg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

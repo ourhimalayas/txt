@@ -2,32 +2,27 @@
 ---
 
 
-## 中共国对进口食品和饮料设置最严格贸易壁垒
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1754244/)
+## 秘翻在线：胡舒立力挺联想挑战司马南，唱的哪一出？
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1754270/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据外媒12月13日消息，中共国对进口食品和饮料的新管理规定将于2022年1月1日实施。一些食品制造商担心其产品或将无法进入中共国市场。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-14-下午9.13.55.png)
-根据新规，所有进口食品的境外生产企业均需将其生产，加工，和存储设施等信息在年底前注册，才能进入中国市场。但有关新规定的解释直到11月才发布，允许企业自行注册的网站也是刚刚上线。海关总署没有解释为什么所有食品，甚至包括葡萄酒、面粉和橄榄油等被认为是低风险的食品，都被纳入新规。
+**撰稿：Ping**
 
-据悉，对仓促施行的新规可能造成影响，中共国当局回复称“不会有宽限期”。一位欧盟官员担心1月1日之后欧洲食品出口恐会引发混乱，部分产品将失去进入中共国市场的机会。美国农贸协会执行董事安德森则说，从未见过中共国采取如此严厉的措施。他将该规定描述为“非关税贸易壁垒”。
+**责编：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screenshot-2021-12-14-213700.jpg)
+司马南用满嘴荒唐言诋毁联想柳传志先生的大战，在网络上闹得沸沸扬扬。社会各界名嘴站在不同的立场将这场大战一次又一次推向高潮。近日《财新》主编胡舒立通过财新社论发表文章高调支持联想及其创始人柳传志先生！一时间又引起一片哗然，更是有许多跟风者不知道要站在哪一派了？
 
-参考链接：[New China import rules bring headaches for food and beverage makers](https://business.inquirer.net/336629/new-china-import-rules-bring-headaches-for-food-and-beverage-makers?utm_medium=Social&amp;utm_source=Twitter#Echobox=1639407249-1)
+一直关注爆料革命关注郭文贵先生的网友都应该记得，郭先生爆料称胡舒立是王岐山的情人，她对王岐山本人的崇拜可谓是“情有独钟”。在王岐山的支持下，胡舒立在新闻界可谓是举足轻重的人物。在几个月前在推特上公开戏称“猪头做的好，还是可以吃的”，以此讽刺习近平！如今她公开支持柳传志先生，并为联想站台，意味不同寻常。这难道是习王大战的公开化又一个信号吗？
 
-![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+习近平提倡的共同富裕，也是变相的杀富济贫。逐步将私营企业家赶尽杀绝，变私有财产为国家所有。但是国家都是习的，也就是说将所有中共国老百姓和他们的财产都变成习家的私有财产。而司马南作为中共国培养出来的杂碎，靠着无耻的嘴脸诋毁谩骂那些为中共国真正做出贡献的企业家来抬高自己的屁股，这样的无耻之徒竟然可以代表文化界发声，只能再次证明共产党是真的完蛋了。
 
-总编：Zion文恩
-编辑：Lakeman文仁
-校正/发稿：呼吸的雾霾（文小呼吸）
+当然胡舒立站台联想挑战司马南，并不能说明胡舒立就是一只好鸟。这恰恰证明了习王的斗争还在角逐当中，王岐山虽然已被习控制，但是势力仍然很大。事实上，郭文贵先生早也说过胡舒立在王岐山失势之下，也已经处于被监控状态。 但是高僧所预言的“习亡岐山”到底意味怎样的结局，还没有最后的定论。这两派系斗争似乎还要绞杀几个回合。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+无论是胡舒立与司马南的撕逼，还是习王的明争暗斗，我们都希望那些曾为中华民族真正立下汗马功劳的民营企业家们学会智慧地与中共周旋，在推翻共产党的流氓体制下前存活下来。当然，这需要每一个企业家拿出勇气、发挥智慧，参与到这场推翻共产党的爆料革命中来，千万不要成为共产党内斗的牺牲品。
+
+**[新闻来源](https://www.sohu.com/a/508010194_100120495)**
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
