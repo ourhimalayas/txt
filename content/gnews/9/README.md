@@ -2,31 +2,35 @@
 ---
 
 
-## 为防中共窃取数据 日本将修改电信商业法
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1753508/)
+## 新西兰男子接种疫苗10次
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1753597/)
 
-撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-163.jpg)[图片源](https://news.yahoo.co.jp/articles/7ace725e7f34927413b033a32fac194ced4be256/images/000)
-14日，日本总务省召开通信IT企业个人信息处理的专家座谈会，对于超过1000万用户的通信类APP和SNS（会员交流网站）运营商企业，规定其有义务披露其存储个人信息的服务器所在国名称。如果发生违规行为，政府将能够发出行政处罚，如业务改进令。电信商业法将于2022年修订，同一年执行该法律。
+翻译：悯先生
+![](https://assets.gnews.org/wp-content/uploads/2021/12/105857963_gettyimages-926989260.jpeg)
+新西兰一名男子，在同一天内冒充其他人，接种新冠疫苗10次，正在被当局调查。
 
-根据总务省提出的建议，拥有超过1000万用户的通信应用程序和SNS等主要运营商需向总务省报告其安全措施和内部信息管理系统。必须公布存储个人信息的服务器所在地和外包公司的国家名称。
+疫苗专家Helen Petousis-Harris表示此类行为利用需要钱的人，非常自私。同时，这也会对未接种疫苗的人产生危害，并且造成病毒的扩散。
 
-除了NTT DoCoMo、KDDI和软银之外，免费通信应用“Line ”等也包括在内。预计还将包括海外公司，如运营Facebook和Instagram的Meta公司、Twitter公司和收集网站浏览历史的谷歌公司。
+接种10次对于身体的影响上，Helen认为不大可能会对人体产生严重的伤害，不过会在隔天感到不适。
 
-今年3月，LINE发现可以被中共国的关联公司查看用户信息。政府担心数据可能会被提供给中共国。
+新西兰疫苗项目负责人Astrid Koornneef 建议超过接种超过2剂的人尽快去见医生。她指出，出于对公众的信任，医疗从业人员需要人们在获得治疗的时候，提供正确的信息。
 
-现行法律主要针对具有通信设备的主要手机运营商，IT服务仅适用于对通信秘密的保护。 总务省将把范围扩大到经营SNS的大型企业。明年生效的修订后的《个人信息保护法》将加强对个人信息的保护，要求向境外转移个人信息时，应明确向用户告知目的地国家并征得本人同意。
+笔者认为，疫苗专家的几个观点恰恰不符合事实：
 
-中共的假骗偷已让日本提高警惕。失信于世，又如何能立国？！
+第一，大概率的可能性是，这个接种10次疫苗的人，是收了别人的钱去代人接种（那些人可获得疫苗护照），并非是给别人钱。
 
-信息源：
+第二，往往是这些接种疫苗的人导致的病毒扩散以及造成的死亡远远大于病毒传播本身造成的伤害。
 
-[個人情報の保管先を公表義務付け　通信アプリやＳＮＳ大手対象](https://news.yahoo.co.jp/articles/3ccc943d921b90832cccfc42bfc8ebebd85b8a55)
+第三，接种10次当然对身体产生巨大影响。说这个人为钱卖命一点都不为过。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+不知道这个新闻会不会给新西兰不想接种的人提供一个办法，或是当局开始要求接种的时候出示身份证明，但是只要疫苗接种不停止，未来产生的次生灾害所涉及的面就无法估量，令人惶恐不安！
 
+參考链接：
+
+[https://www.heraldsun.com.au/lifestyle/health/unbelievably-selfish-man-takes-10-covid-vaccine-shots-in-single-day/news-story/f2a4553dc41c9efe7949418dfe43deda](https://www.heraldsun.com.au/lifestyle/health/unbelievably-selfish-man-takes-10-covid-vaccine-shots-in-single-day/news-story/f2a4553dc41c9efe7949418dfe43deda)
+
+审核校对：Barry Jack
+上传排版：F
 
  
 
