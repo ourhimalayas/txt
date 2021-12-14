@@ -2,42 +2,35 @@
 ---
 
 
-## 埃隆·马斯克荣登《时代》杂志2021年年度人物
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1752321/)
+## Omicron来袭，英国年轻人开打疫苗加强针
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1752325/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/812-6.jpg)图片来源：The Times
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/5472-2.jpg)图片来源：Hindustan Times
 
 
-**整理报道：文泓**
+#### 整理报道：Ronnie O’Sullivan
+编辑：守望黎明
 
-世界上最富有的人和特斯拉的首席执行官埃隆·马斯克被《时代》杂志评为2021年的年度人物。
+当地时间12月12日，英国卫生部门在一份声明中说，英国的疫苗预订将在12月13日开始对30至39岁的国民开放，以使他们在接种第二剂疫苗的三个月后，能够再补打疫苗加强针。在英国30至39岁的750万人中，约有350万人在此范围。
 
-美国时间的周一，《时代》杂志宣布了2021年年度风云人物——世界首富、特斯拉和SpaceX的首席执行官埃隆·马斯克。
+疫苗政策的变化，是根据疫苗接种和免疫联合委员会的最新建议而制定的。据英国卫生部长萨吉德·贾维德 (Sajid Javid) 说，英国有超过2200万人已经打过这种加强针。
 
-“年度人物是其影响力的标志，很少有人能比马斯克对地球上的生命，以及地球以外的生命产生更大的影响。2021年，马斯克不仅成为世界上最富有的人，而且可能是我们社会发生巨大转变中最富有的例子，”《时代》杂志主编兼首席执行官爱德华·费尔森塔尔在一份声明中说。
+英国卫生部门认为，疫苗加强剂可明显减少新变种病毒引起的病症。因此，英国国家卫生部对疫苗计划进行了扩展。
 
-据《纽约邮报》报道，马斯克——他的身价约为2660亿美元（3730亿澳元），在2021年里取得了突破性进展，他的财富增加了1000多亿美元（1400亿澳元），并从竞争对手杰夫·贝佐斯手中抢走了世界首富的称号。
-当他的净资产超过贝索斯时，马斯克笑称，他会给这位亚马逊创始人送上一枚银质奖章。
+Omicron变体病毒的出现，迫使研究人员争先恐后地寻找更多的数据，以确定这种令人担忧的新变体的传播性以及由它引起的病症的严重程度。
 
-除了马斯克的财富激增之外，《时代》杂志称，它之所以给马斯克颁奖，是因为2021年看到这位超级亿万富翁在其雄心勃勃的航天事业方面取得了历史性的进展，并看到他的影响力超出了硅谷，扩展到了流行文化世界。
-今年4月，SpaceX赢得了美国国家航空航天局(NASA)的独家合同，自1972年以来首次将美国宇航员送回月球，此后他的公司抵御了来自贝索斯的蓝色起源公司对该合同的法律挑战。
+英国卫生署免疫负责人玛丽·拉姆齐 (Mary Ramsay) 博士，对有关Omicron防护的初步调查结果持审慎态度。她说，人们早期曾预测，对于几个月前接种了两剂疫苗的人来说，感染Omicron毒株的风险比Delta毒株更高。
 
-今年5月，该公司的大型星际飞船火箭发射并首次成功着陆，这是SpaceX的一项重大成就，马斯克打算有一天用它来向火星运送人员和货物，该公司希望使其火箭可以重复使用，以降低太空探索的成本。
-虽然蓝色起源公司和同为亿万富翁的理查德·布兰森的维珍银河公司因将其亿万富翁业主短暂送入太空而成为头条新闻，但SpaceX将一位亿万富翁和他的客人送入太空轨道深处数日，从而超越了其他竞争对手。
+拉姆齐补充说：“现在的数据表明，打了疫苗加强针之后，Omicron传染风险会显著降低，因此每个符合条件的人都应该去打上这一针。”
 
-在SpaceX达到里程碑的同时，马斯克通过吹捧比特币和其他加密货币（如狗币），在新生的加密数字货币领域引发市场震动。
-
-新闻链接：[Elon Musk named Time Magazine’s 2021 Person of the Year | news.com.au — Australia’s leading news site](https://www.news.com.au/entertainment/books-magazines/magazines/elon-musk-named-time-magazines-2021-person-of-the-year/news-story/e2a6a886fa1a41471aafebd694428cef)
+原文链接：[Booking for Covid boosters to open for all over 30s in UK amid Omicron threat](https://www.hindustantimes.com/world-news/booking-for-covid-boosters-to-open-for-all-over-30s-in-uk-amid-omicron-threat-101639307999517.html)
 
 发布：文泓
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)Hindustan Times
 
  
 

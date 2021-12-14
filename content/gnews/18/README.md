@@ -2,33 +2,20 @@
 ---
 
 
-## 七哥谈流氓斯大林（直播摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1752082/)
+## 秘翻在线: 中国证监会核发中国移动IPO 拟募资560亿
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1752086/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+撰稿：西枫westca
 
-来源：郭先生2021直播10：59 摘录
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/12/unnamed-1.png)图片来源：东方财富网
+据新浪12月13日晚报道，中共国证监会核发中国移动IPO批文，中国移动即将回归A股，登陆沪市主板，与其他两大电信运营商电信、联通再次齐聚。
 
-斯大林是个流氓出身，斯大林只要是吭吭吭一敲桌子，这就要严肃了生气了，要闹出点动静来了要死人了。斯大林当时就说要把俄罗斯的歌舞剧和音乐统一化。连那个农田里边的这个种庄稼，他当时就说了，把整个当时苏联是最早的，把家庭给分开的，男女不能同住啊。女的住一边男住一边搞人民公社，就是咱们中国就完全学他的，百分之百是学人家的，连样都没改，共同吃饭，男女分开住。然后到农田里边可以听音乐，如果你回去听收音机，如果你回家你听，那你是犯罪的，要枪毙的。这为啥斯大林干掉列宁以后改照片，改形象，人家列宁临死千万不能让这王八蛋接班，这是个危险分子，他非常的暴躁，这是个危险分子。结果是他把他弄死了，他当然他就接班了。
+中国移动在8月递交了A股上市申请材料，欲募资560亿。为近10年来A股最高IPO募资额。中国移动的客户总数达9.56亿，是全球用户最多的电信运营商。募集资金将用于5G精品网络建设、云资源新型基础设施建设、千兆智家建设、新一代信息技术研发及数智生态建设等五个大项目。中国移动董事长杨杰表示，移动的客户市场基本在国内，回归A股，资本市场和客户市场就完全重合了，将有力推进公司的转型发展。
 
-校对：HimaFaFA
-发布：HimaBoy
+今年5月，纽约证监会维持了监管部门对中国移动、中国电信和联通三大中国电信公司的退市决定。其起因是这些公司与中共军方有密切联系。随着中概股在纽交所的不断退市，这些公司转身再入A股市场，在赚够海外投资者的资产后，魔爪又伸向国内同胞。 希望国人能看清这个把戏，不要再被割韭菜了。
 
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+**新闻来源：**[证监会核发中国移动IPO批文，三大运营商齐聚A股加速|中国移动|A股|IPO\_新浪科技\_新浪网 (sina.com.cn)](https://finance.sina.com.cn/tech/2021-12-13/doc-ikyamrmy8768223.shtml)
 
  
 
