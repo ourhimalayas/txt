@@ -2,49 +2,37 @@
 ---
 
 
-## 2亿8000万阿富汗食品医疗援助得到批准
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1754691/)
+## 奥兹博士：是时候让福奇走人了
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1754798/)
 
-作者：MOS—柳是多水土透
+编译：Jenny Ball
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-734.png)图片来源 **：**childrenshealthdefense.org
 
+宾夕法尼亚州竞选美国参议院的医疗企业家和电视主持人穆罕默德·奥兹博士，在周六接受《纽约邮报》采访时呼吁“罢免”安东尼·福奇博士，并“追究其责任”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-16.jpg)
+“安东尼·福奇博士已经失去了美国人民的信心和信任，”奥兹告诉纽约邮报。 “是时候让一张新面孔， 一个更值得信赖的面孔与美国人民交谈了。”
 
+奥兹博士引用了美国NIH9 月份发布的文件，这些文件与福奇向美国国会声称的 NIH 没有资助中国武汉病毒实验室冠状病毒功能获得型实验（旨在使病毒更致命、更易传播）的声明相矛盾。
 
+奥兹说：“我认为福奇应该为误导美国公众和美国国会负责，无论是有意还是无意。”
 
-多家捐赠机构共同批准了一项对阿营养和健康援助的计划，将2亿8000万之前被冻结的基金转移至联合国儿童基金会UNICEF及世界粮食计划World Food Program (WFP），用以帮助这个经济崩溃面临饥荒的国家。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2WEETYATUJPLPCGMMDHXMOM5AM.jpg)图源路透社
-由世界银行管理的阿富汗重建基金，将给与1亿8000万至WFP，用来保证食品安全和营养工作，其余1亿交由UNICEF以提供关键卫生服务。
+参议员兰德·保罗（Rand Paul）、众议员吉姆·乔丹（Jim Jordan）、参议员乔什·霍利（Josh Hawley）和动物权利组织“善待动物组织”，同样呼吁福奇博士辞职。
 
-在美国撤军塔利班接管后，阿深陷经济和人道危机。联合国警告有55%的人口，约2300万人面临极度饥饿，其中900万人在冬季有饥荒风险。在过去20年间阿富汗高度对外依赖，但美国和其他援助机构已经切断了经济支援，90亿阿海外美金资产遭遭冻结。使用重建基金，并透过联合国渠道，似乎可以在实施人道救援的同时不违反美国队塔利班的制裁
+在小罗伯特·肯尼迪 (Robert F. Kennedy, Jr.) 的畅销书《真正的安东尼·福奇：比尔·盖茨、大型制药公司以及全球民主和公共卫生战争》中，肯尼迪记录了福奇如何“与五角大楼合作批准纳税人的钱，在中共武汉和其他地方监管不力的实验室中，资助了功能获得型实验。培育像**SARS-CoV-2 **这样的大流行性超级细菌武器化微生物，就自然无法避免其从实验室的逃逸。**”**
 
-参考来源：
+儿童健康防御组织要求拜登总统和国会调查福奇和任何参与功能获得型研究，并向国会作虚假陈述的人。
 
-[Donors back $280 mln transfer for Afghan food, health](https://www.reuters.com/world/asia-pacific/exclusive-donors-expected-back-280-mln-transfer-afghanistan-2021-12-10/)
+**评论：如果不调查福奇美国纳税人的钱，资助在中共武汉和其他地方监管不力的实验室中培育像SARS-CoV-2 这样的大流行性超级细菌，人们就会继续死亡致伤致残遭受疫苗灾难！**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-6.png)
+新闻来源 **：**[childrenshealthdefense.org] [Dr. Oz: It’s Time to ‘Remove’ Fauci](https://childrenshealthdefense.org/defender/dr-oz-remove-anthony-fauci/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=f59576c9-646b-4f9b-9ea9-88a58c26ea19)
 
-编辑/校正/发稿：兰兰
+* * *
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-17.jpg)
-
-
-
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-2.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
