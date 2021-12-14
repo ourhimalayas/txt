@@ -2,31 +2,36 @@
 ---
 
 
-## 加拿大多组织在国际人权日抗议中共暴政
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1753205/)
+## 墙内涌现公务员降薪潮，降幅高达25%
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1753215/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Unknown-21.jpg)加拿大多组织在国际人权日抗议中共暴政 网络图片
-据自由亚洲电台12月13日报道，来自香港、维吾尔及中共国大陆民运等不同族裔和背景的7个团体约2百多人，12日在多伦多举行国际人权日抗议中共暴政、抵制北京奥运的活动。温哥华于12月10日也有来自中共国、菲律宾、巴西等不同族裔的团体共同举行集会活动，抗议威权国家迫害人权。有来自中共国大陆的人士举着声援张展和香港民主人士的标语图像，关注中共国人权情况。
+作者：纽约香草山教育部 –  Noemi
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+12月12日，墙内某辅导教师爆料，中共国内近期有多个省份都下发了公务员降薪的通知，部分地区降幅高达25%。
 
-集会活动发起组织之一的加拿大港加联会长冯玉兰表示，“12月10日是国际人权日，呼吁所有运动员在北京冬奥会比赛期间用各种方式来表达抗议的声音。我们也关注中共在加拿大的渗透、操纵和干预，呼吁加拿大政府禁止华为参与5G建设，并且会继续游说国会建立《外国人影响力透明法案》，以保障加拿大不受外来势力干扰”。
+据了解，此次公务员降薪潮或可波及全国，目前已有江苏、浙江、广东、福建、上海等多个经济发达省市直接受到降薪冲击。据浙江一公务员爆料，自己的年薪足足被下调了25%，年收入缩水超五万元。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture3-12.jpg)
+此外，还有一位基层公务员直接向四川省财政厅官网进行投诉，称其自2020年以来，就一直被单位无限期拖欠绩效奖金，目前一家人均已靠借贷度日，生活难以为继。
 
-加拿大两个迈克尔在华为孟晚舟事件之后，被中共国释放了，但仍有一百多名加拿大人被关押在中共国，有很多涉及政治迫害。在中共的残暴面前，世界在逐步清醒。因为人权问题，加拿大是率先宣布外交抵制北京奥运的国家之一。中共国的人权危机会成为压死中共的一根稻草。
+据业内人士分析，此次中共国推行公务员的大幅度、普遍性降薪，实质上是国内各地方政府债台高筑的直接写照。事实上，楼市、疫情、失业、人口老龄化等问题已彻底拖垮中共经济。
 
-新闻参考链接：[https://www.rfa.org/mandarin/yataibaodao/renquanfazhi/lf-12132021134719.html](https://www.rfa.org/mandarin/yataibaodao/renquanfazhi/lf-12132021134719.html)
+参考链接：
+1. [墙内涌现公务员降薪潮，降幅高达25%](http://news.hexun.com/2021-12-11/204916659.html)
+2. [墙内涌现公务员降薪潮，降幅高达25%](http://news.hexun.com/2021-12-11/204916659.html)
 
-* * *
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+总编：飞虹
+编辑：DM
+校对/发稿：Hetangyuese
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

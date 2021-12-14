@@ -15,110 +15,110 @@
 
 ---
 
-### [中共政权正在犯下至少3起种族灭绝](/content/gnews/1/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [英国卫生大臣承认加强针设为优先事项 一些手术将被推迟](/content/gnews/2/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [医生因用伊维菌素治疗新冠患者而被解雇](/content/gnews/3/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [财富是努力得来 绝不是从天上掉下来的](/content/gnews/4/README.md)
+### [立陶宛选择了正确的道路](/content/gnews/1/README.md)
  ` 澳喜农场`
 
-### [巴西用伊维菌素预防治疗新冠肺炎，住院率和死亡率减半](/content/gnews/5/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [【樱花深度报道】英国间谍头目警告来自中国数字人民币的威胁（下）](/content/gnews/6/README.md)
+### [为防中共窃取数据 日本将修改电信商业法](/content/gnews/2/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【樱花深度报道】英国间谍头目警告来自中国数字人民币的威胁（上）](/content/gnews/7/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [5G被曝是导致新冠肺炎病例和死亡人数增加的重要因素](/content/gnews/3/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [针对Covid-19限制的大规模抗议活动在德国东部蔓延](/content/gnews/8/README.md)
- ` 墨尔本雅典娜农场`
+### [平民角度理解中共“越维护越死得惨”](/content/gnews/4/README.md)
+ ` 澳喜农场`
 
-### [2021/12/12 文贵先生直播精要](/content/gnews/9/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [中共政权正在犯下至少3起种族灭绝](/content/gnews/5/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [27名空军现役人员因拒绝接种疫苗被美国空军解雇](/content/gnews/10/README.md)
+### [英国卫生大臣承认加强针设为优先事项 一些手术将被推迟](/content/gnews/6/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [杨洁篪习近平彻底被俄罗斯重击后哀求俄方如何挽回局面](/content/gnews/11/README.md)
- ` 喜马拉雅日本银河系农场`
+### [医生因用伊维菌素治疗新冠患者而被解雇](/content/gnews/7/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [2021/12/13 墙内世界](/content/gnews/12/README.md)
+### [财富是努力得来 绝不是从天上掉下来的](/content/gnews/8/README.md)
+ ` 澳喜农场`
+
+### [巴西用伊维菌素预防治疗新冠肺炎，住院率和死亡率减半](/content/gnews/9/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [如何看待习明泽们的奢侈？](/content/gnews/13/README.md)
+### [【樱花深度报道】英国间谍头目警告来自中国数字人民币的威胁（下）](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [一些国会议员谴责迪尼斯向中共磕头屈服](/content/gnews/14/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [2021年年度汉字评选确定，“金“再次被选中](/content/gnews/15/README.md)
+### [【樱花深度报道】英国间谍头目警告来自中国数字人民币的威胁（上）](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新州完全接种疫苗娱乐场所，80多人新冠检测呈阳性](/content/gnews/16/README.md)
+### [针对Covid-19限制的大规模抗议活动在德国东部蔓延](/content/gnews/12/README.md)
  ` 墨尔本雅典娜农场`
 
-### [疯狂的习近平一定会打台湾,一定新疆大屠杀,一定会自杀](/content/gnews/17/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [中日财经爆：中共不顾断供加剧，加快房地产大放水](/content/gnews/18/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共继续大量增加粮食及饲料进口](/content/gnews/19/README.md)
- ` GTV新闻访谈`
-
-### [墙内涌现公务员降薪潮，降幅高达25%](/content/gnews/20/README.md)
- ` GTV新闻访谈`
-
-### [中共为冬奥会令周边企业停产 民众苦不堪言](/content/gnews/21/README.md)
- ` GTV新闻访谈`
-
-### [Hcoin to the moon的打榜方式对现有规则的改写](/content/gnews/22/README.md)
- ` GTV新闻访谈`
-
-### [灭共尖峰时刻，音雄再度归来](/content/gnews/23/README.md)
- ` GTV新闻访谈`
-
-### [加拿大多组织在国际人权日抗议中共暴政](/content/gnews/24/README.md)
+### [2021/12/12 文贵先生直播精要](/content/gnews/13/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [应对中共霸权扩张，布林肯任內首访东南亚](/content/gnews/25/README.md)
+### [27名空军现役人员因拒绝接种疫苗被美国空军解雇](/content/gnews/14/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [杨洁篪习近平彻底被俄罗斯重击后哀求俄方如何挽回局面](/content/gnews/15/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [2021/12/13 墙内世界](/content/gnews/16/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [如何看待习明泽们的奢侈？](/content/gnews/17/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [一些国会议员谴责迪尼斯向中共磕头屈服](/content/gnews/18/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [2021年年度汉字评选确定，“金“再次被选中](/content/gnews/19/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [新州完全接种疫苗娱乐场所，80多人新冠检测呈阳性](/content/gnews/20/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [疯狂的习近平一定会打台湾,一定新疆大屠杀,一定会自杀](/content/gnews/21/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [中日财经爆：中共不顾断供加剧，加快房地产大放水](/content/gnews/22/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共继续大量增加粮食及饲料进口](/content/gnews/23/README.md)
+ ` GTV新闻访谈`
+
+### [墙内涌现公务员降薪潮，降幅高达25%](/content/gnews/24/README.md)
+ ` GTV新闻访谈`
+
+### [中共为冬奥会令周边企业停产 民众苦不堪言](/content/gnews/25/README.md)
+ ` GTV新闻访谈`
+
+### [Hcoin to the moon的打榜方式对现有规则的改写](/content/gnews/26/README.md)
+ ` GTV新闻访谈`
+
+### [灭共尖峰时刻，音雄再度归来](/content/gnews/27/README.md)
+ ` GTV新闻访谈`
+
+### [加拿大多组织在国际人权日抗议中共暴政](/content/gnews/28/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [应对中共霸权扩张，布林肯任內首访东南亚](/content/gnews/29/README.md)
  ` 首尔天池农场`
 
-### [丹·安德鲁斯因“隐瞒背叛和欺诈 ”被告上法庭](/content/gnews/26/README.md)
+### [丹·安德鲁斯因“隐瞒背叛和欺诈 ”被告上法庭](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共党媒长篇大论赞“改革开放” 却只字未提习近平](/content/gnews/27/README.md)
+### [中共党媒长篇大论赞“改革开放” 却只字未提习近平](/content/gnews/31/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [前总统川普积极为自己的社交平台做预推广](/content/gnews/28/README.md)
+### [前总统川普积极为自己的社交平台做预推广](/content/gnews/32/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [每日快报：欧洲各地的抗议活动因强制接种计划而愈演愈烈](/content/gnews/29/README.md)
+### [每日快报：欧洲各地的抗议活动因强制接种计划而愈演愈烈](/content/gnews/33/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [德国国会请愿委员会投票支持德国政府加深对台关系](/content/gnews/30/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [新浪微博屡遭网信办约谈，罚款近2千万元](/content/gnews/31/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [拜登经济学的高昂代价](/content/gnews/32/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [重大轉機：日本在 &#8220;疫苗 &#8220;上標註心肌炎警告&#8211;要求知情同意](/content/gnews/33/README.md)
+### [重大轉機：日本在 &#8220;疫苗 &#8220;上標註心肌炎警告&#8211;要求知情同意](/content/gnews/34/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [美芯片制造商Magnachip和中共国智路资本的并购交易被迫终止](/content/gnews/34/README.md)
+### [美芯片制造商Magnachip和中共国智路资本的并购交易被迫终止](/content/gnews/35/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [安倍呼吁：台湾应“崛起”，将民主传播到全世界](/content/gnews/35/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [当家长和孩子对疫苗持相反态度——疫苗政策正在撕裂国家、社会、家庭](/content/gnews/36/README.md)
  ` 加拿大温哥华扬帆农场视频组`

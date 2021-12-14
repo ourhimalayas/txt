@@ -2,45 +2,57 @@
 ---
 
 
-## 医生因用伊维菌素治疗新冠患者而被解雇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1753455/)
+## 5G被曝是导致新冠肺炎病例和死亡人数增加的重要因素
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1753494/)
 
 翻译： Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-720.png)图片来源 ：theepochtimes.com
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-724.png)
 
-密西西比州的一名医生说，他因试图用伊维菌素治疗 COVID-19 患者而被解雇，伊维菌素已获FDA批准用于治疗寄生虫，但相关医院表示他不是雇员，而是独立的承包商。
+自然新闻([NaturalNews.com](https://naturalnews.com/2020-06-22-trump-wants-billions-more-in-taxpayer-funding-for-5g-rollout.html)) – 国家生物技术信息中心 (NCBI) 发布了一项关于 5G 技术危险的新研究警告，包括它如何直接导致了与武汉病毒 Covid-19相关的症状。
 
-亚祖市浸信会纪念医院急诊室医生约翰·威彻（John Witcher）医生说，他不再使用经 FDA 批准用于治疗该病毒的瑞德西韦（Remdesivir）治疗他的几名 COVID-19 患者，而让他们使用伊维菌素， 之后他“被告知不要回来工作了”。
+在这项研究中，贝弗利·鲁比克 (Beverly Rubik) 和罗伯特·布朗 (Robert R. Brown) 引用了 2020 年 5 月发表的一篇较早的论文，该论文表明，“辐射强度与全球 31 个国家/地区的 SARS-CoV-2 死亡率之间存在统计学上的显着相关性”。
 
-“我很惊讶，我基本上被告知当天结束时不要回来，” 威彻在Stew Peters的播客中说道。 “这些患者在我的直接治疗之下，所以，我觉得当时让他们停用瑞德西韦并服用伊维菌素是正确的做法。”
+他们还强调了一项基于美国的研究，该研究表明，该国已经拥有并运行 5G 基础设施的地区，因新冠病毒而导致的严重疾病和死亡率显着升高，这与人口密度、空气质量和纬度无关。
 
-浸信会纪念馆医院告诉新闻媒体，威彻“不再作为独立医生行医”，并补充说，他是一名独立承包商，而不是该医院的员工。
+只有 5G 与研究中使用的三种不同的因果分析相匹配。与此同时，人口密度、空气质量和纬度各只匹配一两个分析，这意味着， 5G 是经证实的负面 Covid 结果的罪魁祸首。
 
-医院系统表示，它遵循“科学界和我们的医疗团队在预防和治疗 COVID-19 方面推荐的护理标准”，例如疫苗和单克隆抗体治疗。
+鲁比克和布朗使用这些发现，对包括 5G 在内的 WCR（无线通信辐射）的生物效应，与通常归因于新冠病毒的症状进行了比较，然后，他们将其用于创建重叠的物理效应列表。
 
-但威彻说，当三名新的 COVID-19 患者于 12 月 10 日抵达时，他正在浸信会纪念馆医院急诊室工作。他们给患者开了瑞德西韦，但威彻说，他对这种药物感到担忧。
+“来自 WCR 和 COVID-19 的症状包括血液变化，例如短期劳累（血液‘结块’）和长期血红蛋白减少（在严重的 COVID-19 病例中）；组织和器官的氧化应激和损伤；免疫系统破坏，包括抑制 T 淋巴细胞和升高的炎症生物标志物；增加细胞内钙，促进病毒进入和复制；和心律失常（心跳不规律），”生活新闻（LifeSiteNews）报道。
 
-“我在医院的急诊室里连续待了三天，所以我觉得这是一个很好的机会，可以在这些我一直密切关注的住院患者身上试用伊维菌素，看看它的效果如何，”威彻评论道。
+**无线辐射暴露，降低了“主抗氧化剂”谷胱甘肽的水平**
 
-他说，医院不能开伊维菌素，并补充说，他不得不打电话给当地的药房，药房随后将药物送到了医院，并将他们的处方从瑞德西韦换成了伊维菌素。
+鲁比克和布朗的研究中，一个特别令人不安的发现是，在暴露于 5G 和真正的所有无线辐射后，谷胱甘肽（人体的“主要抗氧化剂”）会明显减少。
 
-然而，根据威彻的说法，浸信会医院在患者服用伊维菌素之前就与他断绝了关系。
+至少另外两项研究发现，WCR 暴露与谷胱甘肽水平大大降低有关，其症状恰好与福奇流感的症状相匹配。
 
-“一切都有第一次，但我不会说这是实验性的，”他说。 “有大量证据表明，密西西比州的患者服用了伊维菌素，而且效果很好。”
+鲁比克和布朗在他们的论文中，特别指出了中共国病毒患者，“发现低谷胱甘肽水平”是如何“进一步支持将氧化应激作为新冠病毒感染的一个组成部分”。
 
-有报道称，在服用伊维菌素后，严重的 COVID-19 患者从疾病中康复，伊维菌素是一种与瑞德西韦相比相对便宜的药物。本月早些时候，一位 71 岁男子吴孙（ Son Ng ）家人的律师告诉《大纪元时报》，服用伊维菌素“绝对”挽救了吴孙的生命，“因为他的病情在服药后立即发生了变化。”
+WCR 已经被广泛认为是一种“生理压力源”，它会导致有害的健康影响，从癌症风险增加和 DNA 损伤，到学习和记忆问题。
 
-新闻来源 : [theepochtimes.com] [Doctor Says He Was Fired for Trying to Treat COVID-19 Patients With Ivermectin](https://www.theepochtimes.com/mkt_morningbrief/doctor-says-he-was-fired-for-trying-to-treat-covid-19-patients-with-ivermectin_4153096.html?utm_source=Morningbrief&amp;utm_medium=email&amp;utm_campaign=mb-2021-12-13&amp;mktids=eaf9818e3ea49c2add9f814ef5b738fa&amp;est=w5dk34Ddt9Y7IaKcReOPk1CnjTviLF2%2BM3%2Fp9VR%2BziDbtw8NbzRMfGBk3DY1ioi8%2BgIZCA%3D%3D)
+当然，相关性并不总是意味着因果关系，但在这种情况下，WCR——尤其是大流行中心武汉的 5G 早期激活——很可能直接导致了武汉病毒的传播和严重性。
+
+“关于 COVID 与 5G 以及其他形式的无线通信辐射 (WCR) 之间联系的证据，包括两个主要发现：COVID-19 症状/死亡率与特定区域 WCR 强度之间的统计相关性，包括5G；以及 WCR 对身体的影响与 COVID-19 症状之间的重叠，”生活新闻进一步报道。
+
+一位读者评论说，**5G ****辐射显然会“刺激”疫苗注射液中发现的氢氧化石墨烯，导致出血和凝血。**
+
+“**氢氧化石墨烯是一种金属，会受到 ****5G ****的影响，”该人士补充道。“氢氧化石墨烯永远不会离开您的身体系统，并且会随着每次注射或加强剂而积累。”**
+
+另一位写道，虽然服用 NAC（N-乙酰 L-半胱氨酸）很有效，但正如文章中提到的，**维生素 ****D** 在预防冠状病毒和其他呼吸系统疾病方面，发挥着更大的作用。
+
+这位人士补充说：“如果您的维生素 D 含量已经很低，那么一旦您的身体受到病毒的攻击，这些储备就会进一步耗尽，从而使您处于非常危险的境地。”
+
+有关 5G 破坏性健康影响的更多新闻，请访问 5Galert.com
+
+新闻来源 ：[naturalnews.com][tudy: 5G exposure a “significant factor” in higher covid cases, deaths](https://www.naturalnews.com/2021-12-12-5g-significant-factor-higher-covid-cases-deaths.html) / [LifeSiteNews.com](https://www.lifesitenews.com/news/study-finds-possible-connection-between-covid-symptoms-and-5g/) / [NaturalNews.com](https://naturalnews.com/2020-06-22-trump-wants-billions-more-in-taxpayer-funding-for-5g-rollout.html)
 
 * * *
 
-*审核：文乐 
-校对：信心满满
+*审核：文乐
+校对：阿伯塔
 发稿：Nuevo唐人*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-2.jpeg)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
