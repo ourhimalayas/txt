@@ -2,36 +2,32 @@
 ---
 
 
-## 新州完全接种疫苗娱乐场所，80多人新冠检测呈阳性
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1753245/)
+## 2021/12/13 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1753301/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-159.jpg)图片来源：Newscon
-整理报道：小鱼儿
-编辑：文泓
+1. 12月10日，河南南阳。孩子不配合打疫苗，妈妈把小孩按倒在地。
+2. 12月9日，四川成都华西医院。医院人流密集如车站，医疗被中共做成了一门赚钱的生意。
+3. 12月10日，西安唐都医院。妻子得了绝症，男子无钱医治，瞬间崩溃。
+4. 12月10日，贵州贵阳。民房顶层起火，老人避火逃生，坠楼身亡。
+5. 老人截肢后没钱安装假肢，自己绑了一条马腿用来行走。
+6. 12月9日，河南商丘。老人捡拾掉落在地上被弄脏的粉条，准备再次食用，小伙见状暖心赠送。
+7. 12月8日，江苏昆山。九旬老奶奶半夜在街头捡瓶子，每天独自捡到凌晨两点回家，好心人将换到的所
+8. 90岁老人将自家种的菜拿在集市上卖，小伙心疼无人问津，买下了老奶奶所有的菜。
+9. 12月11日，湖南长沙。大货车和小轿车相撞发生惨烈车祸起火，小车司机来不及逃生，当场被烧死。
 
-12月13日，新南威尔士州卫生部已经确认，12月8日参加纽卡斯尔阿盖尔夜总会的84人的新冠病毒检测结果呈阳性。
 
-当局表示，这些病例中“很可能”有一些是新的Omicron变种病毒，这是几天后来自附近的芬尼根酒店的病例，基因组测试的结果仍有待公布。
+* * *
 
-为此，新州要求所有在12月8日（周三）晚上9点至12月9日（周四）凌晨3点期间，在会场使用二维码登记的680人隔离7天并接受检测。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-参加活动人的家庭联系人也应立即接受检测并隔离，直到他们和密切接触者的检测结果为阴性。由于这一群体，纽卡斯尔的检测诊所已经排起了巨大的长龙。
 
-在周日，纽卡斯尔记录了第一例Omicron病例，这是一名从英国回来的女性旅行者。她正在家里进行隔离。新州的一名居民成为澳大利亚第一个因Omicron变种病毒而被送往医院的人。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-54.jpg)图片来源：凯利议员推特号
-澳大利亚联合党党魁凯利议员对此事发表评论，“你必须是完全接种疫苗才能进入夜总会。所以，夜总会是一个完全接种疫苗的场所。所以，未接种疫苗的人不应受到责备”。
+编辑：【英国伦敦喜庄园编辑部】
 
-新闻链接：[More than 80 people test positive for COVID-19 after night at Newcastle club](https://www.9news.com.au/national/coronavirus-nsw-updates-newcastle-night-club-outbreak-omicron/19fbf777-40f9-4d08-a312-96661b8fbfd5)
-([9news.com.au](http://9news.com.au))
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-发布：去中心化Math
 
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

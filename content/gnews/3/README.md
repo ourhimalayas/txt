@@ -2,28 +2,36 @@
 ---
 
 
-## 莫德纳或从 2024 年起在澳洲维多利亚地区生产上亿支疫苗
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1753534/)
+## 新西兰男子接种疫苗10次
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1753597/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide1-20.jpg)
-网络图片
-在联邦政府以及州政府的合作之下，莫德纳可能会在二十年代中期在维多利亚州生产数百万剂疫苗——这意味着将 mRNA 制造带到澳大利亚。
+翻译：悯先生
+![](https://assets.gnews.org/wp-content/uploads/2021/12/105857963_gettyimages-926989260.jpeg)
+新西兰一名男子，在同一天内冒充其他人，接种新冠疫苗10次，正在被当局调查。
 
-依据双方目前的协议版本，澳大利亚的本地疫苗制造工厂或将有能力每年生产至少 1 亿剂的mRNA 疫苗。同时本地工厂还将使用新兴且被认为具有高度适应性的疫苗技术制造出未来疫苗。
+疫苗专家Helen Petousis-Harris表示此类行为利用需要钱的人，非常自私。同时，这也会对未接种疫苗的人产生危害，并且造成病毒的扩散。
 
-在时间方面，协议希望到 2024 年便可以开始生产。目前尚未确定时具体生产地点，不过联邦政府和维多利亚州政府已经考察了许多可能作为制造工厂基地的地方。总理斯科特莫里森表示，mRNA疫苗已被证明是大流行期间“最大的科学探索”。
+接种10次对于身体的影响上，Helen认为不大可能会对人体产生严重的伤害，不过会在隔天感到不适。
 
-然而笔者想要提醒的是，mRNA疫苗的科学探索是完全反人类且不道德的，因为这些疫苗是在还没有确定长期风险的情况下草草上马并注射进人体的。许多人都是在没有充分知情的情况下，为了保住工作或能正常进行社交活动而不得已接受疫苗，结果副作用摧毁了许多人原本的生活。
+新西兰疫苗项目负责人Astrid Koornneef 建议超过接种超过2剂的人尽快去见医生。她指出，出于对公众的信任，医疗从业人员需要人们在获得治疗的时候，提供正确的信息。
 
-据悉，这座位于维多利亚的新 mRNA 制造工厂还将为未来潜在的流行病传播和季节性健康问题（例如普通流感）生产相关疫苗。要知道2024年距离现在尚且还有一年的时间，该疫苗厂的建造计划是否意味着未来数年内不仅现有病毒还会存在延续，同时甚至还可能出现更多令人无法想象的新病毒？到底是何种势力做出了这样的预计与评估？还是说这并非预测，而就是计划当中的一个环节呢？
+笔者认为，疫苗专家的几个观点恰恰不符合事实：
 
-新闻参考链接：
+第一，大概率的可能性是，这个接种10次疫苗的人，是收了别人的钱去代人接种（那些人可获得疫苗护照），并非是给别人钱。
 
-[9 news](https://www.9news.com.au/national/coronavirus-australia-update--covid-vaccines-new-deal-for-moderna-to-make-mrna-vaccines-in-victoria-from-2024/d323d3a9-0c33-4161-baa6-b8cf156cc1ff)
+第二，往往是这些接种疫苗的人导致的病毒扩散以及造成的死亡远远大于病毒传播本身造成的伤害。
 
-编辑：云彩
-![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
+第三，接种10次当然对身体产生巨大影响。说这个人为钱卖命一点都不为过。
+
+不知道这个新闻会不会给新西兰不想接种的人提供一个办法，或是当局开始要求接种的时候出示身份证明，但是只要疫苗接种不停止，未来产生的次生灾害所涉及的面就无法估量，令人惶恐不安！
+
+參考链接：
+
+[https://www.heraldsun.com.au/lifestyle/health/unbelievably-selfish-man-takes-10-covid-vaccine-shots-in-single-day/news-story/f2a4553dc41c9efe7949418dfe43deda](https://www.heraldsun.com.au/lifestyle/health/unbelievably-selfish-man-takes-10-covid-vaccine-shots-in-single-day/news-story/f2a4553dc41c9efe7949418dfe43deda)
+
+审核校对：Barry Jack
+上传排版：F
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
