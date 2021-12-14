@@ -2,24 +2,27 @@
 ---
 
 
-## 日本将加强对卫星定位系统（GPS）的使用监管
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1752255/)
+## 中共指责G7外长“冷战思维”干涉内政
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1752342/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/12/6-8.png)（图片源自本文链接）
-东京都警视厅（MPD）在其网站上公布了东京都政府反滋扰条例的拟议修正案纲要，禁止滥用卫星定位系统（GPS）, 未经对方同意不得安装此类设备。该条例草案将提交至2022年6月举行的东京都议会的例会，一经通过，预计将于当年10月生效。
+俄罗斯莫斯科喀秋莎农场  银河
 
-该修正案禁止在未经同意的情况下恶意在他人的汽车或财物上安装GPS设备，或使用智能手机获取他人位置信息。现状是，不得在个人的住所或工作场所使用这些设备进行监视活动，另外，也禁止在临时住所做同样的监视。
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/12/G-1.jpg)cryptopaysme.com
+日本共同社12月13日报道称，中共批评七国集团(G7)外长干涉中共国内政，同时敦促他们放弃“冷战思维”，纠正以意识形态划清界限的做法。
 
-今后，违反这些规定将被处以最高一年的监禁或最高一百万日元的罚款。
+根据七国集团发表的一份声明，部长们讨论了“香港和新疆的局势”，北京在那里被指控侵犯人权，以及“台湾海峡两岸和平与稳定的重要性”。在另一份声明中，七国集团(G-7)和东南亚国家联盟(Association of Southeast Asian Nations，简称东盟)也重申了“维持自由开放的印度洋-太平洋地区的共同利益”，这是对中共国试图改变该地区现状的含蓄反击。
 
-信息来源：
+中共外交部发言人汪文斌在G7英国利物浦的会议结束后表示，七国集团的外长们“抹黑了中共国的形象，损害了中共的利益。”
 
-[GPS悪用、条例で禁止へ　警視庁、HPで概要公表（共同通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/6446eba0e0b2f56ace96be6d758ea3116b113dfe)
+此次会议中七国集团(G7)外长和央行行长承诺，在奥米克戎变异引发的担忧日益加剧之际，他们将继续防范中共病毒变异，并在全球供应链问题上合作。供应链中断导致全球通胀加速，可能会扼杀经济从疫情影响中的复苏，七国集团就如何提高供应链的弹性和如何更准确地描述未来可能发生的供应链中断交换了意见。
 
-*校对：东京樱花团/東洋武士*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+参考链接：
+
+[https://english.kyodonews.net/news/2021/12/9684c924f898-china-raps-g-7-interference-in-internal-affairs-cold-war-mentality.html](https://english.kyodonews.net/news/2021/12/9684c924f898-china-raps-g-7-interference-in-internal-affairs-cold-war-mentality.html)
+
+[https://english.kyodonews.net/news/2021/12/7b1670b07986-g-7-finance-chiefs-vow-vigilance-over-covid-variants-supply-issues.html](https://english.kyodonews.net/news/2021/12/7b1670b07986-g-7-finance-chiefs-vow-vigilance-over-covid-variants-supply-issues.html)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
