@@ -2,38 +2,18 @@
 ---
 
 
-## 日本高官将加入抵制北京冬奥会的行列
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1752842/)
+## 安略宣布需要出示强化疫苗证书才能进入某些场合
+` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1753005/)
 
-作者: 纽约香草山农场-文真
+想要获得医疗豁免的人，需要得到当事人医生的确认。情况就是这样的。因此，从下周起，开始启动这个程序。一直到明年一月初，获得医疗豁免的人将被要求出示(医生提供的证据)，并且他们将得到一个二维码。接下来的情况是，想要获得医疗豁免的人去找他们的家庭医生或专科医生。然后，这些医生会提供医疗豁免申请人交给公共卫生部门的证据。公共卫生部门在确认信息有效之后，将该信息输入COVAX系统。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-11.jpg)
+2022年1月4日，个人将被要求在需要出示疫苗接种证明的场合使用强化疫苗证书和安大略省验证应用程序。我们正在进一步加强对医疗或临床试验豁免的验证工作，并提供带有二维码的COVID-19疫苗证书。
 
+素材提供：文倩
+翻译： 雅典娜2020
+字幕： 文所未闻
 
-
-
-
-12月11日，外媒报道称，日本政府尚未明确全面外交抵制北京冬奥会，但是，将仅派出较低级别的官员出席。
-![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/chinaolympics.jpg?itok=j33Extn7)
-最近，日本媒体援引多个知情人士的话报道，日本政府很可能加入美国的外交抵制行动，高级官员将不会出席2022年二月在北京举行的冬奥会。日本国家广播公司也证实了这一消息，称日本政府倾向于不派内阁部长出席北京冬奥会。该报称，现在预计参加的官员仅是与奥运会有关的人员。
-截至目前，继美国公布了外交抵制行动后，英国、加拿大、澳大利亚、新西兰和立陶宛已明确表示不会派政府官员参加北京2022冬奥会。
-
-编辑: Jack Li文阳
-
-新闻链接:[Top Japan Officials To Join US Boycott Of Beijing Olympics As List Grows](https://www.zerohedge.com/political/top-japan-officials-join-us-boycott-beijing-olympics-list-grows)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-192.jpeg)
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-11.jpg)
+发布：风云小哥
 
 
 

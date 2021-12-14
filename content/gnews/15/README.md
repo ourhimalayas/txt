@@ -2,24 +2,50 @@
 ---
 
 
-## 疫苗后14天没有死亡很幸运，但由于体内有刺突蛋白，你需要10年的时间来观察自己的健康
-` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1752934/)
+## 朱利安尼先生再谈羟氯喹安全性
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1753098/)
 
-所以，你那些打了疫苗的朋友，在最初的14天内没有死亡，没有碰巧属于伤害机制中的第一类，包括急性过敏性休克、心脏病发作、中风或死亡，对吗？
+作者：东京樱花团—在远方
 
-他们需要至少10年的时间来审视自己，然后才能说什么都没发生，因为他们（体内）已经有了我们之前讨论的刺突蛋白问题，我们之前说过刺突蛋白的抗体，可能会导致多器官系统衰竭的发生，以及很多其他的问题，40种不同的伤害机制。
 
-因此，如果有人轻描淡写地说，看看，什么都没发生，你对他们的回应应该是，很幸运你不属于第一类伤害，你没有在最初的14天内死亡，但你有10年的时间来观察你的健康。
 
-如果10年后，你仍然处于和现在一样的相对健康状态，再算上10年的衰老，那么你可以说疫苗对我没有什么影响。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-素材：kent
 
-翻译：kent
 
-字幕：文所未闻
+据盖特12月13日发布的视频，近日，朱利安尼先生连线哈维·里施博士，谈论了羟氯喹在预防和治疗中共病毒方面的药效和安全性问题。
 
-发布：风云小哥
+里施博士称，羟氯喹已经有65年的历史，有数百亿剂安全用于数亿人的记录。美国疾病控制与预防中心的网站表明，婴儿、哺乳期儿童和孕妇，老人和身患疾病的人都可以服用。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1.1-6.jpg)
+对于朱利安尼先生提到的最初《华盛顿邮报》刊登的，让人们误以为羟氯喹甚至会导致人死亡的报道，里施博士表示，那是作为医药公司顾问的无良医生收了钱之后，所发表的误导民众的结果。
+
+里施博士强调，羟氯喹与现有的所有疫苗相比，带给人们的风险几乎可以是忽略不计的，疫苗风险太高，而羟氯喹完全是一种安全的药物。
+
+参考链接：
+ [Dr Harvey Risch: #hydroxychloroquine is a completely safe medication. 羟氯喹完全是一个安全的药品](https://gettr.com/post/pjiq4c7b8e)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+
+总编/编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

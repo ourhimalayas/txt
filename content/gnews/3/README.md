@@ -2,50 +2,22 @@
 ---
 
 
-## 蓬佩奥表示 向中共追责是全世界需要解决的课题
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1753108/)
+## 德国国会请愿委员会投票支持德国政府加深对台关系
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1753174/)
 
-作者：日本方舟农场 – Andy5
+#### 翻译/撰稿：zzballack
 
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-22.jpg)图片来源：Bundestag.de
+据《台湾英文新闻网》12月13日报道，德国新一届国会请愿委员会（Petitions Committee）12月9日通过一项议案，敦促德国新一届联邦政府重新评估其对台政策并深化与台湾的交流。该委员会同时还决定将2019年的一项要求与台湾建立正式外交关系的请愿案转交给德国外交部和国会的各个团组。
 
+2019年5月，有一位名叫迈克∙克罗伊茨贝格（Michael Kreuzberg）的德国公民在网上向德国国会发起第95643号请愿案，呼吁国会要求德国政府与民主的台湾建立外交关系。该请愿案的联署人数在五个月内就达到了5万人。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+德国新国会请愿委员会通过的议案指出，德国联邦共和国自从1972年与中共建立外交关系以来，德国就一直遵循所谓的“一个中国”政策，该政策也排除了与台湾建立外交关系的可能性。但是议案表示，德国政府支持加强与台湾的政治、经济和社会交流，只要这些交流“低于外交关系的门槛”。进一步扩大和加强与台湾的合作，也符合德国和欧洲的利益。
 
+议案说，根据迅速变化的国际形势，德国政府应该重新评估其对台政策，包括承认台湾为主权国家的潜在可能性，同时考虑深化与台湾的交流与合作。
 
-
-12月12日，美国前国务卿蓬佩奥先生接受采访，再次谈到病毒追责问题，并说不仅美国，全世界都需要向中共追责。
-
-主持人在节目中提到，拜登总统今年4次与习近平通电话，都没有提及病毒溯源，而这个病毒已经杀死了70万美国人，屠杀了几百万全世界人民。针对中共随意让马云、彭帅消失的事件，一些美国企业非但不提追责，反而帮中共洗地，称让马云、彭帅消失说明中共扮演了“严格的父母”的角色。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.2-5.jpg)
-蓬佩奥先生反驳说，中共根本不是什么“严格的父母”，而是表现了共产主义独裁领导者一贯的嘴脸。为了保护美国，美国政府首先该做的就是在病毒上向中国共产党追责。而不是在中共散播了病毒、继续向美国输出芬太尼、威胁台湾民主的同时，眼睁睁地看着中共举办冬奥会。
-
-蓬佩奥先生还强调，向中共追责是全世界需要解决的课题，但目前拜登团队做得非常糟糕。
-
-参考链接：
-[20211212蓬佩奧國務卿接受Maria採訪](https://www.gettr.com/post/pjjtwa5820)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+新闻来源：[German Bundestag votes to deepen ties with Taiwan](https://www.taiwannews.com.tw/en/news/4374067)
 
  
 
