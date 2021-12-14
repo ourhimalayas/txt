@@ -2,36 +2,34 @@
 ---
 
 
-## 纽约时报承认 FDA 批准的默克 COVID 新药实际上会改变健康的人类基因并影响男性生育能力
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1755103/)
+## 战争状态，愤怒&#8211;渥太华下议院使用中国制造的口罩引起了愤怒
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1755181/)
 
-编译： 真北007
-![](https://assets.gnews.org/wp-content/uploads/2021/12/merck-drug-dna-edited.jpg)图片来源：网络
-来自GATEWAY PUNDIT星期二12月14日的新闻报道：
+编译：16626
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片167.png)**渥太华下议院使用中国制造的恒豪口罩**
+渥太华下议院使用中国制造的恒豪口罩引起了路易斯维尔市 (Louiseville，是魁北克省一个市，位于圣皮埃尔湖北岸的“Rivière-du-Loup”) 的愤怒。 蒙特利尔日报2021 年 12 月 14 日（路易斯·克劳捷 2021 年 12 月 13 日星期一晚上 7:06）披露了此消息。该篇题为《议院里的“中国制造”的口罩》的编译如下：
 
-在正常情况下，在正常世界中，此消息可能会成为头条新闻。但是在 2020 年大型制药公司大发横财的大流行期间，它被塞在了《纽约时报》文章的底部。
+渥太华下议院使用中国制造的恒豪口罩引起了路易斯维尔市 (Louiseville，是魁北克省一个市，位于圣皮埃尔湖北岸的“Rivière-du-Loup”) 的愤怒。
 
-两周前，美国食品和药物管理局FDA批准了默克公司的新药莫奈拉韦molnupiravir。 “专家”委员会以微弱优势投票建议批准该药物。
+医用口罩制造商 Entreprise Prémont 抗议在具有高度战略意义的医用口罩行业中还有这样的来自外国的竞争。该公司感到沮丧，因为它与其他加拿大参与公司一样，在大流行开始时迅速举手响应政府的求助号召，并参与到了这场抗疫战争中。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1347.png)中国制造的恒豪口罩
+“我们需要调查我们过去与中国制造供应商签订的合同，这是可追溯的。令人难以置信，这显然是荒谬的”，Humask 品牌的口罩制造商 Entreprise Prémont 的首席执行官 Luc Girard 感叹道。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1673.png)路易斯维尔市市长伊冯·德赛斯（Yvon Deshaies）表示不理解
+**为什么？**
 
-但是隐藏在文章底部，您了解到molnupiravir实际上可能会意外地使健康的基因 DNA发生变异。
+路易斯维尔市市长伊冯·德赛斯（Yvon Deshaies）表示不理解，尤其是因为他的印象是目前加拿大和中国之间已经处于冷战状态。“今天当我们看到这一点时，很难过。令人难过的是，我们与中国几乎已经处于战争状态了”，这位民选官员说。
 
-这是一个多么严重的问题？
+渥太华的保守党反对派要求追究责任。“看到在我们这里销售的产品被美国 FDA 错误的批准，这是不可理解的”，Charlesbourg-Haute-Saint-Charles 地区 的保守派代表 Pierre Paul-Hus 说道。“我们将追查为什么加拿大公司没有提供口罩的优先权”，他补充道。
 
-北卡罗来纳大学的一组研究人员在 32 天的时间里研究了 molnupiravir 在分离的仓鼠细胞中的使用，发现该药物确实会诱导 DNA 突变。
+特鲁多政府辩称，在下订单时，加拿大仍然生产很少的口罩。加拿大遗产部长巴勃罗·罗德里格斯 (Pablo Rodriguez) 解释到“大流行创造了特殊的环境，我们不得不大量订购，而政府的首要任务仍然是加拿大人的安全”。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片137.png)Humask品牌的口罩制造商Entreprise Prémont现库存有数百万个额外的新型带窗户的口罩
+**数以百万计的多余口罩**
 
-该研究的作者写道，这些突变可能“导致癌症的发展，或导致发育中的胎儿或通过掺入精子前体细胞导致出生缺陷”。
+Humask 品牌的口罩制造商 Entreprise Prémont现库存有数百万个额外的新型带窗户的口罩，不得不放慢口罩生产速度并裁员一半。至今为止魁北克省从未为本省的日托育儿园购买过口罩。年底的节日过后，该口罩制造商将准备把这数百万个口罩捐赠给本省的日托育儿园。
 
-该药物仅针对分裂细胞，这些细胞在成人中相对稀疏。与其他诱变剂（如辐射）相比，这带来的风险较小，辐射会破坏所有类型细胞中的 DNA。
+**评：**该篇报道文章反应了魁北克公民已经清醒地认识到他们与中国几乎处于战争状态，对于渥太华的亲共行为越来越不满，向渥太华追究责任的呼声越来越大。
 
-尽管如此，帮助领导仓鼠细胞研究的北卡罗来纳大学教堂山分校的艾滋病毒 HIV 研究人员 Ronald Swanstrom 说，成年人有足够的分裂细胞——例如骨骼和肠道内壁——导致人们的担心。他还指出，男性会不断地制造出可能携带潜在突变的精子。
-
-哦，它可能会影响到想要成为父亲的男人。
-
-FDA 的顾问还指出，风险可能会扩展到其他患者，包括想要成为父亲的男性，尽管对这些风险仍然知之甚少，默克表示，其自己的研究没有发现该药物会导致 DNA 突变的证据。
-
-点评: 这证实了郭文贵先生早前的重磅爆料，大药厂的中共病毒的药物和疫苗一样有害，甚至危害更大。
-
-原文链接：[https://www.thegatewaypundit.com/2021/12/wow-ny-times-casually-admits-new-fda-approved-merck-covid-drug-might-actually-mutate-healthy-human-dna-accident-impact-male-fertility/](https://www.thegatewaypundit.com/2021/12/wow-ny-times-casually-admits-new-fda-approved-merck-covid-drug-might-actually-mutate-healthy-human-dna-accident-impact-male-fertility/)
+参考资料：[Journal De Montreal] [https://www.journaldemontreal.com/2021/12/13/des-masques-made-in-china-aux-communes-1](https://www.journaldemontreal.com/2021/12/13/des-masques-made-in-china-aux-communes-1)
 
 编辑/发布：LILY
 
