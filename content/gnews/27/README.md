@@ -2,34 +2,26 @@
 ---
 
 
-## 重大转机：日本在 &#8220;疫苗 &#8220;上标注心肌炎警告&#8211;要求知情同意
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1753120/)
+## 美芯片制造商Magnachip和中共国智路资本的并购交易被迫终止
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1753154/)
 
-作者：雄起
+![](https://assets.gnews.org/wp-content/uploads/2021/12/16324445831-e1639465470877.png)*资料照*
+据路透12月13日报道，中共国私募股权公司智路资本和美国芯片制造商Magnachip Semiconductor Corp [MX.N](https://cn.reuters.com/companies/MX.N)13日在一份联合声明中说，双方已经终止了3月份达成的14亿美元的合并协议，原因是该交易最终未能获得外国投资委员会(CFIUS)的批准。此前美国财政部曾表示，该交易对“国家安全构成风险”，CFIUS也在6月下令搁置该交易。
 
-近日，日本宣布，公共和私营部门不得歧视那些拒绝接受实验性mRNA疫苗的人。
+参考链接：[https://cn.reuters.com/article/us-magnachip-wise-road-acquisition-1214-idCNKBS2IT058](https://cn.reuters.com/article/us-magnachip-wise-road-acquisition-1214-idCNKBS2IT058)
 
-日本现在为Covid -19″疫苗 “贴上标签，以警告危险和潜在的致命副作用，如心肌炎。此外，该国正在重申其对不良事件报告要求的承诺，以确保所有可能的副作用被记录下来。尤其对注射辉瑞公司或莫德纳Moderna公司疫苗后，年轻男子的心肌炎风险表示关注。该国正在执行一项严格的法律要求，即必须在疫苗注射后28天内报告副作用。
+编辑：MQ
 
-日本目前提供三种Covid-19疫苗。它们包括辉瑞/BioNTech（Comirnaty），Moderna疫苗和只推荐给40岁及以上的人使用的牛津-阿斯利康疫苗。疫苗产品说明指出，”本产品含有一种以前从未在疫苗中使用过的添加剂”。制药公司敦促你，如果你打算注射这种含添加剂的疫苗，请咨询你的医生。
+* * *
 
-此外，日本正在强调知情同意和身体自主权。日本卫生部的健康网站鼓励公民接受 “疫苗”；然而，他们强调这并不是强制性的。只有在提供信息后，在被接种者同意的情况下才会进行疫苗接种。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-此外，日本政府还强调，企业不要强迫员工接受实验性的mRNA疫苗。员工也不应该歧视那些拒绝注射的人。
 
-全世界的医生都响应了日本卫生当局关于mRNA疫苗副作用的警告。在冠状病毒大流行之前，”知情同意 “的概念在西方国家的医疗保健专业人士看来是神圣的。然而，这种适当的知情同意已经使西方国家的许多医生失去了行医执照。政府指责这些医生散布 “疫苗犹豫症”。
+编辑：【英国伦敦喜庄园编辑部】
 
-日本卫生部门的这些努力与其他国家采取的欺骗性措施形成了鲜明的对比，这些措施胁迫公民接受注射，淡化副作用，并阻止适当的不良事件报告。例如，在2022年2月，奥地利将强制进行注射。拒绝的公民将面临巨额罚款和最多一年的监禁。
-
-虽然很多西方国家仍然在变本加厉的推行疫苗强制政策，但像日本政府一样，有些国家的政府当局对疫苗的态度已经开始有了重大转变，例如，美国乔治亚州奥古斯塔（Augusta）的联邦地方法院法官斯坦·贝克（Stan Baker）12月7日发布了全美国范围内的禁令，禁止执行拜登政府针对联邦机构承包商的强制疫苗令。
-
-希望这些重大的转变可以进一步引领世界各国的疫苗强制的转向，减少人类的疫苗灾难。
-
-新闻链接：[https://rairfoundation.com/alert-japan-places-myocarditis-warning-on-vaccines-requires-informed-consent/](https://rairfoundation.com/alert-japan-places-myocarditis-warning-on-vaccines-requires-informed-consent/)
-
-审核校对：sherryok
-
-上传排版：水云间
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

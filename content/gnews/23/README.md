@@ -2,15 +2,17 @@
 ---
 
 
-## 美芯片制造商Magnachip和中共国智路资本的并购交易被迫终止
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1753154/)
+## 新浪微博屡遭网信办约谈，罚款近2千万元
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1753173/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/16324445831-e1639465470877.png)*资料照*
-据路透12月13日报道，中共国私募股权公司智路资本和美国芯片制造商Magnachip Semiconductor Corp [MX.N](https://cn.reuters.com/companies/MX.N)13日在一份联合声明中说，双方已经终止了3月份达成的14亿美元的合并协议，原因是该交易最终未能获得外国投资委员会(CFIUS)的批准。此前美国财政部曾表示，该交易对“国家安全构成风险”，CFIUS也在6月下令搁置该交易。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Unknown-20.jpg)新浪微博屡遭网信办约谈，罚款近2千万元 网络图片
+据路透北京12月14日报道，中共国国家网信办14日再次约谈新浪微博并罚款300万元。据网信办微信公众号公告，针对近期新浪微博及其账号屡次出现法律、法规禁止发布或者传输的信息，情节严重，责令其立即整改，严肃处理相关责任人。
 
-参考链接：[https://cn.reuters.com/article/us-magnachip-wise-road-acquisition-1214-idCNKBS2IT058](https://cn.reuters.com/article/us-magnachip-wise-road-acquisition-1214-idCNKBS2IT058)
+公告还称，今年1月至11月，国家网信办指导北京市网信办，对新浪微博实施44次处置处罚，多次予以顶格50万元罚款，共累计罚款1,430万元。
 
-编辑：MQ
+新浪微博港股早盘一度重挫8.7%，创其上市以来新低，相比招股价已下跌近两成。
+
+参考链接：[https://cn.reuters.com/article/weibo-penalty-1214-tues-idCNKBS2IT094](https://cn.reuters.com/article/weibo-penalty-1214-tues-idCNKBS2IT094)
 
 * * *
 
@@ -22,6 +24,8 @@
 编辑：【英国伦敦喜庄园编辑部】
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 
