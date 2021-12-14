@@ -15,104 +15,104 @@
 
 ---
 
-### [爆料革命日记（六） 灵魂伴侣](/content/gnews/1/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [七哥谈为了爆料革命和新中国联邦（2021-12-12摘录）](/content/gnews/2/README.md)
+### [七哥谈冬奥会55天后（2021-12-12摘录）](/content/gnews/1/README.md)
  ` MG FARM`
 
-### [专家称对激烈爆发的Omicron毒株乐观是幻想](/content/gnews/3/README.md)
+### [纽约时报承认 FDA 批准的默克 COVID 新药实际上会改变健康的人类基因并影响男性生育能力](/content/gnews/2/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [七哥谈共产主义邪教（2021-12-12摘录）](/content/gnews/3/README.md)
+ ` MG FARM`
+
+### [为什么欧洲与大流行的斗争即将变得更加危险](/content/gnews/4/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [七哥谈相对性（2021-12-12摘录）](/content/gnews/5/README.md)
+ ` MG FARM`
+
+### [爆料革命日记（六） 灵魂伴侣](/content/gnews/6/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [七哥谈为了爆料革命和新中国联邦（2021-12-12摘录）](/content/gnews/7/README.md)
+ ` MG FARM`
+
+### [专家称对激烈爆发的Omicron毒株乐观是幻想](/content/gnews/8/README.md)
  ` 丁过`
 
-### [韩国：用人脸识别追踪新冠惹争议](/content/gnews/4/README.md)
+### [韩国：用人脸识别追踪新冠惹争议](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [西喜时事新闻简报 — 美国时事篇](/content/gnews/5/README.md)
+### [西喜时事新闻简报 — 美国时事篇](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [公务员开始降薪，体制内的苦日子真的来了？](/content/gnews/6/README.md)
+### [公务员开始降薪，体制内的苦日子真的来了？](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [七哥谈歌手签约（2021-12-12摘录）](/content/gnews/7/README.md)
+### [七哥谈歌手签约（2021-12-12摘录）](/content/gnews/12/README.md)
  ` MG FARM`
 
-### [GTV新闻访谈简报|2021年12月14日早](/content/gnews/8/README.md)
+### [GTV新闻访谈简报|2021年12月14日早](/content/gnews/13/README.md)
  ` 纽约香草山MOS01`
 
-### [布林肯批评中共在印太地区的“侵略行动”](/content/gnews/9/README.md)
+### [布林肯批评中共在印太地区的“侵略行动”](/content/gnews/14/README.md)
  ` HimalayaRussia`
 
-### [科兴生物称已成功分离出奥密克戎变异株](/content/gnews/10/README.md)
+### [科兴生物称已成功分离出奥密克戎变异株](/content/gnews/15/README.md)
  ` 焦點20分`
 
-### [北京正在将你的DNA武器化吗？](/content/gnews/11/README.md)
+### [北京正在将你的DNA武器化吗？](/content/gnews/16/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【Michael.Tonny专栏】运动员被中共病毒疫苗导致心脏问题](/content/gnews/12/README.md)
+### [【Michael.Tonny专栏】运动员被中共病毒疫苗导致心脏问题](/content/gnews/17/README.md)
  ` 温哥华扬帆农场`
 
-### [修行的时间 做正义的事](/content/gnews/13/README.md)
+### [修行的时间 做正义的事](/content/gnews/18/README.md)
  ` 焦點20分`
 
-### [专家说2022年中共将通过贸易战削弱澳大利亚](/content/gnews/14/README.md)
+### [专家说2022年中共将通过贸易战削弱澳大利亚](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [三亚市民：三亚市现在的生意特别惨淡哪！](/content/gnews/15/README.md)
+### [三亚市民：三亚市现在的生意特别惨淡哪！](/content/gnews/20/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [疫苗真相：mRNA创始人罗伯特·马龙谈孩子为什么不能打新冠病毒疫苗](/content/gnews/16/README.md)
+### [疫苗真相：mRNA创始人罗伯特·马龙谈孩子为什么不能打新冠病毒疫苗](/content/gnews/21/README.md)
  ` 秘密翻译组-原创组`
 
-### [黄标满天飞，油管为啥如此癫狂？](/content/gnews/17/README.md)
+### [黄标满天飞，油管为啥如此癫狂？](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共国经济深陷泥足](/content/gnews/18/README.md)
+### [中共国经济深陷泥足](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [奥兹博士：是时候让福奇走人了](/content/gnews/19/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [Hcoin To the Moon连续2周登上Billboard全球数字歌曲销量榜首 ！](/content/gnews/20/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [2亿8000万阿富汗食品医疗援助得到批准](/content/gnews/21/README.md)
- ` GTV News Talk`
-
-### [耐人玩味：伊维菌素为什么被阻止治疗新冠病毒](/content/gnews/22/README.md)
+### [耐人玩味：伊维菌素为什么被阻止治疗新冠病毒](/content/gnews/24/README.md)
  ` GTV新闻访谈`
 
-### [中共国地产巨头之一世茂集团股票债券齐齐暴跌](/content/gnews/23/README.md)
- ` 日本东京方舟农场`
-
-### [商汤科技因受制裁延迟港交所上市](/content/gnews/24/README.md)
+### [商汤科技因受制裁延迟港交所上市](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [G7与东盟强化合作对抗中共](/content/gnews/25/README.md)
+### [G7与东盟强化合作对抗中共](/content/gnews/26/README.md)
  ` GTV News Talk`
 
-### [日本供水系统经营权将私有化？](/content/gnews/26/README.md)
+### [日本供水系统经营权将私有化？](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [辉瑞疫苗推广早期已记录16万例不良反应](/content/gnews/27/README.md)
+### [辉瑞疫苗推广早期已记录16万例不良反应](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [北京采集美国人的基因究竟意欲何为？](/content/gnews/28/README.md)
+### [北京采集美国人的基因究竟意欲何为？](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [DC每日热点1214](/content/gnews/29/README.md)
+### [DC每日热点1214](/content/gnews/30/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [12/14/21 香港快讯 民研：市民对「香港人」身份认同感 创新低](/content/gnews/30/README.md)
+### [12/14/21 香港快讯 民研：市民对「香港人」身份认同感 创新低](/content/gnews/31/README.md)
  ` 英喜-粵語組`
 
-### [秘翻在线:失败的全球主义&#8217;菁英&#8217;想拉更多人陪葬](/content/gnews/31/README.md)
+### [秘翻在线:失败的全球主义&#8217;菁英&#8217;想拉更多人陪葬](/content/gnews/32/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中国移动拟在A股圈钱560亿元](/content/gnews/32/README.md)
+### [中国移动拟在A股圈钱560亿元](/content/gnews/33/README.md)
  ` GTV新闻访谈`
-
-### [Omicron传染暴增：挪威每日恐30万人染疫丹麦疫情严峻](/content/gnews/33/README.md)
- ` RoseNews`
 
 ### [德国护士揭露病房都是打了疫苗的病人](/content/gnews/34/README.md)
  ` 西班牙巴塞罗那喜悦农场`

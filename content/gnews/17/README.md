@@ -2,36 +2,60 @@
 ---
 
 
-## 黄标满天飞，油管为啥如此癫狂？
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1754824/)
+## 【Michael.Tonny专栏】运动员被中共病毒疫苗导致心脏问题
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1754877/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/youtube_censorship.jpeg)图片来源：Rebel News
-整理：顺其自然
-编辑：守望黎明
+作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+世界各国政客都在不遗余力的推广中共病毒疫苗，然而疫苗副作用带给世人的伤害，却一刻也没有停止。
 
-近来，Youtube对自媒体的时事财经评论进行疯狂的打压，超常规地放黄标，这背后会有什么猫腻呢？
+2021年12月13日，《[Horas decisivas para el “Kun” Agüero: aseguran que anunciará su retiro este miércoles](https://www.eltribuno.com/salta/nota/2021-12-13-9-28-0-horas-decisivas-para-el-kun-aguero-aseguran-que-anunciara-su-retiro-este-miercoles)》报道，阿根廷前锋阿奎罗（Sergio Leonel Agüero del Castillo，或Kun Agüero）将在本周三将宣布退役！令人惋惜！
 
-我的视频从七月份之后就开始大量的被设黄标，就连谈论李子柒、俞敏洪的视频都未能幸免。到了这两个月更是夸张，几乎是每三个视频里边儿就能放两个黄标。无奈之下我只能申请人工审查，等三四天之后才把黄标改成绿标。按youtube的标准，最后能够把我的视频改成绿标，就说明视频本身根本没有违反他们的任何规定。也就是说在一开始他们根本不审查内容，视频一上去就给你放黄标。我原来以为是因为郭先生在六月份提到了我这个视频，共产党在背后做了手脚所以才变成这个样子的。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Sergio-Leonel-Aguero-del-Castillo1.jpg)
 
-我们这些做自媒体的，没有内部的情报和消息，只是根据媒体上发布的消息数据去做做分析，什么youtube要打压呢？youtube和其他社交媒体被中共控制多年，这已经是大家所熟知的共识。以前youtube很宽松，基本一年也就放几十个黄标，现在一个月差不多就二十来个。现在对时事财经评论类自媒体视频进行这种疯狂的打压，是为什么呢？
+阿圭罗曾经在曼城度过了辉煌的10年职业生涯，共为曼城出场390次，打入260球73次助攻，是曼城队史射手王。这样一位优秀的足球运动员，职业生涯却被中共病毒和中共病毒疫苗摧毁。
 
-我分析可能有三点：一是因为海外自媒体大多是寻找负面信息，用中共的话说，就是唱衰的。之前中共的政治经济不错，中共认为你唱衰就唱衰吧！反正也不会对中共的经济造成什么影响，过后还可以反过来对你们这些唱衰的媒体进行嘲笑——看你们唱衰这么多年，我中共的经济还是蒸蒸日上，越来越好的，你们打脸不？所以他是愿意放任这些自媒体去上去唱衰中共的政治和经济的，他认为无关痛痒。而现在中共的经济实在是非常非常的差了，若经过这些自媒体的各种分析和传播，那墙内老百姓就更容易知道真相了。中共他还要继续搞愚民欺骗老百姓，所以这时候他可不想让真相被老百姓知道。所以的话呢，他就唆使youtube用大量放黄标的这种形式让你收入减少，逼着这些自媒体少做这方面儿的视频，来达到减少真实信息传播的目的。由此可见，现在中共内部的经济有多糟糕了，说都不让说了。就像网民编排的段子说得那样：我这人心太善，最见不得穷人，所以得把方圆十里的穷人都赶走！现在就是要把所有糟糕的真实经济信息给你屏蔽掉，没有负面消息，就可以继续吹经济形势大好了。实质上就是掩耳盗铃，但习近平就吃这一套。
+10月30日，在巴塞罗那主场对阵阿拉维斯的西甲第12轮联赛中，原本首发出场的阿奎罗，在第42分钟突然呼吸困难，他弯下身时指着自己的胸部，被巴西人菲利普·库蒂尼奥 (Philippe Coutinho) 换下，他几乎流着泪离开了比赛，乘坐救护车离开了诺坎普。
 
-第二，是从8月27日起，中共网信办启动了商业网站平台和自媒体违规采编发布财经类信息的专项整治。特别是从10月26日之后，网信办重点打击八类违规问题，咱们把它详细列一下：一是胡评妄议、歪曲解读我财经方针政策、宏观经济数据，恶意唱空我金融市场、唱衰中国经济等；二是毫无立场、不加判断地转载搬运境外歪曲解读我财经领域热点的报道评论等；三是散布“小道消息”，以所谓“揭秘”“重磅”“独家爆料”“知情人士称”为名进行渲染炒作，甚至造谣传谣；四是转载合规稿源财经新闻信息时，恶意篡改、断章取义、片面曲解等“标题党”行为；五是充当金融“黑嘴”，恶意唱空或哄抬个股价格，炒作区域楼市波动，扰乱正常市场秩序；六是炒作负面信息对相关利益主体进行威胁恐吓、敲诈勒索，谋取非法利益；七是炒作社会恶性事件、负面极端事件，煽动悲情、焦虑、恐慌等情绪，借以推销所谓“财商课”、各类保险产品等；八是未严格履行身份认证程序，冒用滥用财经主管部门工作人员或专家学者等名义开办财经专栏、账号等。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Sergio-Leonel-Aguero-del-Castillo.png)
 
-按照网信办的这些规定，海外的时政财经类自媒体基本都是属于违规的。信办管不到在海外网这块，但我们知道所有主流社交媒体包括youtube，facebook和twitter早已被中共控制。中共用广告投入控制，或者投资入股，这些大的社交媒体巨头早已经为了钱而成为了中共的走狗。所以这一波十月份开启的对财经类信息专项整治也延伸到了海外，这就是财经时政类自媒体被大量放黄标的第二个原因。习近平不仅要把国内的嘴给你堵住，国外的嘴他也要捂住。让所有的媒体齐声歌颂习大大，一片正能量。
+随后，巴萨宣布阿圭罗心律失常，将休战三个月。然而，阿圭罗的心脏问题比最初预计的更严重，迫使他不得不终止他的职业生涯。
 
-还有最后一点， 我们知道，现代人获取信息的基本途径就是媒体。但现在无论是中共国还是海外的的主流媒体都不太可信，假消息太多。而做自媒体的人很多有着去伪存真的本事，能在各种的媒体消息中辨别真假，凭借自己多年观察积累而成的理性和常识，找出真实的信息。还有就是观察中国人的日常生活，从中得到真相，而不是听从官方散布的信息。这个探寻真相的过程就是一个反洗脑的过程，让人们逐渐开窍，逐步了解真相。比如做自媒体的都知道从反面理解墙内消息，比如说中共媒体报道说政府救助了很多下岗工人，自媒体就能推算出下岗失业问题有多么严重。对于很多人来说，就不具备这个常识。对于中共来说，它可不希望老百姓懂得太多，知道的太多，最好大家都傻乎乎地听官媒的才好呢。所以他们就要堵住人们的耳朵，捂住自媒体的嘴，不让自媒体教会人们开智。
+阿奎罗是一名中共病毒和中共病毒疫苗的受害者。今年1月22日，阿奎罗被确诊感染中共病毒。在对阵阿拉维斯比赛前几周前，阿奎罗还在向12岁的孩子推广新冠病毒（CCP病毒）疫苗……
 
-其实这不仅仅是中共和习近平的问题，现在这个是全球媒体和教育的问题，现在不仅全球主流媒体向左，国内和西方的教育基本也是洗脑，十几年的教育把你变成了相信所谓科学、相信政府、相信政治正确的盲从的傻瓜。之后，媒体在对你整天狂轰乱炸，使你看不到真实的信息，最后全部被他们轻易的欺骗。所以这次youtube大量的给财经时政类自媒体放黄标，不仅是来自中共的指示，也是youtube自己想消除开智的声音，让人们听到的都是暗黑势力想让你听到的声音。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/FDAPSvnVEAI8qZW.png)
 
-发布：Peter Xin
+阿奎罗注射疫苗后能够幸运的活了下来，但有大量运动员已经倒下和早逝……
 
-**更多****资讯****，****请关****注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+德国报纸《柏林日报》（Berliner Zeitung）在一篇题为“足球中令人困惑的心脏病”（ [“UNUSUALLY LARGE” NUMBER OF SOCCER PLAYERS WHO HAVE COLLAPSED RECENTLY](https://www.blacklistednews.com/article/81156/german-newspaper-highlights-unusually-large-number-of-soccer-players-who-have-collapsed.html)）的报道中注意到了这种令人不安的心脏骤停模式。该报告试图了解为什么最近出现了异常大量的职业和业余足球运动员突然倒下，很多年轻运动员在接种中共病毒疫苗后正在遭受痛苦和死亡。
+
+杰克·卡兹马雷克 (Jake Kazmarek) 是一名 28 岁的健美运动员，在接种中共病毒疫苗四天后意外死亡。另一位最近接种疫苗的运动员在比赛中途昏倒，冰球运动员鲍里斯·萨德基 (Boris Sadecky)（24 岁）突然倒在冰上后死亡。一位名叫迪伦·里奇 (Dylan Rich) 的17岁英格兰足球运动员在比赛中途死于心脏病。一位名叫卢卡斯·苏雷克 (Lucas Surek) 的24岁运动员被查出心律不正常（muscle disorder）后被BFC Chemie Leipzig俱乐部除名。拜仁慕尼黑25岁的金斯利科曼（Kingsley Coman）在接种疫苗后患有心律失常，不得不接受心脏手术。比利时年仅18岁的Rune Coghe在一场比赛中心脏病突然发作。伊斯坦布尔31岁的 Fabrice N’ Sakala 突然倒在球场上，不得不被送往医院。比特菲尔德（Bitterfeld）队队长迪特玛·格拉多（Dietmar Gladow）在赛前也心脏病发作。Gifhorn业余爱好者Marvin Schumann在比赛中心脏骤停，被急救。JSG Hoher Hagen不得不在Hannoversch Munden 的一场足球比赛中去急救一名 17 岁的球员。
+
+根据日本卫生部（Japan’s Health Ministry）公布的数据，截至2021年11月14日记录的官方数据，每100万名接种 Moderna 疫苗的男性青少年，就有80例心肌炎！对于20多岁的男性来说，每100万剂就有48例心肌炎。辉瑞疫苗也表现出类似的问题，每100万青少年男性中有15例心肌炎，20多岁的男性每100万剂中有13例心肌炎。
+
+mRNA疫苗是市场上最危险的疫苗！
+
+在以色列最大的医疗保健组织Clalit Health Services 的数据库中，大型医疗机构接种中共病毒疫苗后的反馈数据显示，在16至29岁年龄组中，每100万人中约有100例心肌炎。
+
+中共病毒疫苗正在祸害全世界，突发心脏病猛增，儿童被查出患有心脏病，足球运动员在球场上突然摔倒……
+
+停止毒疫苗！
+
+参考数据：
+
+[Japan Health Ministry issues HEART WARNING for Pfizer and Moderna covid vaccines](https://www.naturalnews.com/2021-12-10-japan-health-ministry-issues-heart-warning-covid-vaccines.html)
+
+[The world is starting to notice how many young athletes are DYING after taking covid vaccines](https://naturalnews.com/2021-11-10-world-starting-to-notice-how-many-young-athletes-are-dying-after-covid-vaccination.html)
+
+[Myocarditis after Covid-19 Vaccination in a Large Health Care Organization](https://www.nejm.org/doi/full/10.1056/NEJMoa2110737)
+
+[GERMAN NEWSPAPER HIGHLIGHTS “UNUSUALLY LARGE” NUMBER OF SOCCER PLAYERS WHO HAVE COLLAPSED RECENTLY](https://www.blacklistednews.com/article/81156/german-newspaper-highlights-unusually-large-number-of-soccer-players-who-have-collapsed.html)
+
+[Horas decisivas para el “Kun” Agüero: aseguran que anunciará su retiro este miércoles](https://www.eltribuno.com/salta/nota/2021-12-13-9-28-0-horas-decisivas-para-el-kun-aguero-aseguran-que-anunciara-su-retiro-este-miercoles)
+
+[Health ministry warns of vaccine’s side effects](https://www3.nhk.or.jp/nhkworld/en/news/20211204_12/)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/) 上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

@@ -2,60 +2,31 @@
 ---
 
 
-## 【Michael.Tonny专栏】运动员被中共病毒疫苗导致心脏问题
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1754877/)
+## 七哥谈歌手签约（2021-12-12摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1754977/)
 
-作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
-世界各国政客都在不遗余力的推广中共病毒疫苗，然而疫苗副作用带给世人的伤害，却一刻也没有停止。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-2021年12月13日，《[Horas decisivas para el “Kun” Agüero: aseguran que anunciará su retiro este miércoles](https://www.eltribuno.com/salta/nota/2021-12-13-9-28-0-horas-decisivas-para-el-kun-aguero-aseguran-que-anunciara-su-retiro-este-miercoles)》报道，阿根廷前锋阿奎罗（Sergio Leonel Agüero del Castillo，或Kun Agüero）将在本周三将宣布退役！令人惋惜！
+来源：郭先生2021-12-12直播08：59：43 摘录
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Sergio-Leonel-Aguero-del-Castillo1.jpg)
+这些奖的设置者是背后的大佬。最近我听说他们都很不高兴，说这个Miles Guo的事情很危险，我们得采取办法。知道咱惹了谁？共产党我们这敌人，还有独裁政府，绝不愿意看到 Miles Gou 和爆料革命这样的事发生。所有音乐界歌手都不愿看到我们发生，靠这个赚钱的，这个行业背后的大佬，绝不愿意看到我们这事发生。最后靠这个这些平台 iTunes MV 更不愿意看到你这样发生的，他都很难面对。前天下午，一个好莱坞的哥们给我发信息，Miles 你应该要给我们签约，你再不签约很危险。哎？用的话就是英文要说成不好是 No good 的可以，但是说 Very Dangerous，这话就有威胁性了。哎，我说这个dangerous是什么意思啊，我说我又不要你钱，又不要你们颁奖的，你dangerous什么意思啊。他说你这是很不好，你用了我们这些平台，你不给我们签约你到底算不算歌手？我说我不想当歌手啊。他说那你应该给我们个签约，按规矩来这是美国不是中国。我说美国是不是规定，是我让人一定要给你签约，签约是不是得要你钱，他说签约可以给你钱，哪怕要一块钱也行。但是你得出专辑，你得跟我们合作，这是直接对着我来的，这是好莱坞的前三号大佬之一啊。是班农同志的好朋友，是非常非常牛的牛的人。我告诉他，永远我不可能跟任何人签合同，我永远不会有任何一分钱来自音乐，永远不可能跟你这帮孙子合作。我就用着非常脏的词把他骂一顿。昨天班农先生跟我说，哎，听说发生事了是吧，怎么讲。这就是今天，你们没有看到这个榜的背后所诞生的力量，也是为什么共产党花几亿美元他要打压咱这个歌。他真的不是简单的 HCoin to The Moon，HCoin to The Moon。这已经不这么简单了，他现在是一个呐喊的声音，他不是兔子梦了。这是我们一个对几大势力，一个自然性的反应，造成了自然的力量。这就像斯大林，萨达姆，希特勒和毛泽东倾一党一国之力要干的事情，我们大家就是自然而然干成了。你去想想，木兰一个人挑战了好莱坞的游戏规则，傻乎乎的他就自己给玩了，唐平，威廉王，QMay这帮人就直接咱就把人给颠覆了。规则给颠覆了。
 
-阿圭罗曾经在曼城度过了辉煌的10年职业生涯，共为曼城出场390次，打入260球73次助攻，是曼城队史射手王。这样一位优秀的足球运动员，职业生涯却被中共病毒和中共病毒疫苗摧毁。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-10月30日，在巴塞罗那主场对阵阿拉维斯的西甲第12轮联赛中，原本首发出场的阿奎罗，在第42分钟突然呼吸困难，他弯下身时指着自己的胸部，被巴西人菲利普·库蒂尼奥 (Philippe Coutinho) 换下，他几乎流着泪离开了比赛，乘坐救护车离开了诺坎普。
+**关注我们**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Sergio-Leonel-Aguero-del-Castillo.png)
+Discord 账号
 
-随后，巴萨宣布阿圭罗心律失常，将休战三个月。然而，阿圭罗的心脏问题比最初预计的更严重，迫使他不得不终止他的职业生涯。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-阿奎罗是一名中共病毒和中共病毒疫苗的受害者。今年1月22日，阿奎罗被确诊感染中共病毒。在对阵阿拉维斯比赛前几周前，阿奎罗还在向12岁的孩子推广新冠病毒（CCP病毒）疫苗……
+Gettr 账号
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/FDAPSvnVEAI8qZW.png)
-
-阿奎罗注射疫苗后能够幸运的活了下来，但有大量运动员已经倒下和早逝……
-
-德国报纸《柏林日报》（Berliner Zeitung）在一篇题为“足球中令人困惑的心脏病”（ [“UNUSUALLY LARGE” NUMBER OF SOCCER PLAYERS WHO HAVE COLLAPSED RECENTLY](https://www.blacklistednews.com/article/81156/german-newspaper-highlights-unusually-large-number-of-soccer-players-who-have-collapsed.html)）的报道中注意到了这种令人不安的心脏骤停模式。该报告试图了解为什么最近出现了异常大量的职业和业余足球运动员突然倒下，很多年轻运动员在接种中共病毒疫苗后正在遭受痛苦和死亡。
-
-杰克·卡兹马雷克 (Jake Kazmarek) 是一名 28 岁的健美运动员，在接种中共病毒疫苗四天后意外死亡。另一位最近接种疫苗的运动员在比赛中途昏倒，冰球运动员鲍里斯·萨德基 (Boris Sadecky)（24 岁）突然倒在冰上后死亡。一位名叫迪伦·里奇 (Dylan Rich) 的17岁英格兰足球运动员在比赛中途死于心脏病。一位名叫卢卡斯·苏雷克 (Lucas Surek) 的24岁运动员被查出心律不正常（muscle disorder）后被BFC Chemie Leipzig俱乐部除名。拜仁慕尼黑25岁的金斯利科曼（Kingsley Coman）在接种疫苗后患有心律失常，不得不接受心脏手术。比利时年仅18岁的Rune Coghe在一场比赛中心脏病突然发作。伊斯坦布尔31岁的 Fabrice N’ Sakala 突然倒在球场上，不得不被送往医院。比特菲尔德（Bitterfeld）队队长迪特玛·格拉多（Dietmar Gladow）在赛前也心脏病发作。Gifhorn业余爱好者Marvin Schumann在比赛中心脏骤停，被急救。JSG Hoher Hagen不得不在Hannoversch Munden 的一场足球比赛中去急救一名 17 岁的球员。
-
-根据日本卫生部（Japan’s Health Ministry）公布的数据，截至2021年11月14日记录的官方数据，每100万名接种 Moderna 疫苗的男性青少年，就有80例心肌炎！对于20多岁的男性来说，每100万剂就有48例心肌炎。辉瑞疫苗也表现出类似的问题，每100万青少年男性中有15例心肌炎，20多岁的男性每100万剂中有13例心肌炎。
-
-mRNA疫苗是市场上最危险的疫苗！
-
-在以色列最大的医疗保健组织Clalit Health Services 的数据库中，大型医疗机构接种中共病毒疫苗后的反馈数据显示，在16至29岁年龄组中，每100万人中约有100例心肌炎。
-
-中共病毒疫苗正在祸害全世界，突发心脏病猛增，儿童被查出患有心脏病，足球运动员在球场上突然摔倒……
-
-停止毒疫苗！
-
-参考数据：
-
-[Japan Health Ministry issues HEART WARNING for Pfizer and Moderna covid vaccines](https://www.naturalnews.com/2021-12-10-japan-health-ministry-issues-heart-warning-covid-vaccines.html)
-
-[The world is starting to notice how many young athletes are DYING after taking covid vaccines](https://naturalnews.com/2021-11-10-world-starting-to-notice-how-many-young-athletes-are-dying-after-covid-vaccination.html)
-
-[Myocarditis after Covid-19 Vaccination in a Large Health Care Organization](https://www.nejm.org/doi/full/10.1056/NEJMoa2110737)
-
-[GERMAN NEWSPAPER HIGHLIGHTS “UNUSUALLY LARGE” NUMBER OF SOCCER PLAYERS WHO HAVE COLLAPSED RECENTLY](https://www.blacklistednews.com/article/81156/german-newspaper-highlights-unusually-large-number-of-soccer-players-who-have-collapsed.html)
-
-[Horas decisivas para el “Kun” Agüero: aseguran que anunciará su retiro este miércoles](https://www.eltribuno.com/salta/nota/2021-12-13-9-28-0-horas-decisivas-para-el-kun-aguero-aseguran-que-anunciara-su-retiro-este-miercoles)
-
-[Health ministry warns of vaccine’s side effects](https://www3.nhk.or.jp/nhkworld/en/news/20211204_12/)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/) 上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

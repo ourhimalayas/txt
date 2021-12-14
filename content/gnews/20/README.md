@@ -2,35 +2,10 @@
 ---
 
 
-## Hcoin To the Moon连续2周登上Billboard全球数字歌曲销量榜首 ！
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1754720/)
+## 三亚市民：三亚市现在的生意特别惨淡哪！
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1754830/)
 
-12/14/2021 郭文贵先生的歌曲Hcoin To the Moon上线第12天，连续两周再次登上Billboard公告牌全球数字歌曲销量榜榜首！(WEEK OF DECEMBER 18, 2021)！
-
-[https://www.billboard.com/charts/world-digital-song-sales/2021-12-18/](https://www.billboard.com/charts/world-digital-song-sales/2021-12-18/)
-
-* * *
-
-[【PDF 下载】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-Billboard-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/【Billboard】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-Billboard-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/【Billboard】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-Billboard-Charts-Ranking-Record.pdf)
-
-* * *
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【Billboard】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【Billboard】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_2.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【Billboard】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_3.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【Billboard】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_4.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【Billboard】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【Billboard】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【Billboard】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【Billboard】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【Billboard】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_11.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【Billboard】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_12.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【Billboard】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_13.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【Billboard】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_14.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【Billboard】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_15.jpg)
-
-
-[【PDF 下载】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-Billboard-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/【Billboard】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-Billboard-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/【Billboard】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-Billboard-Charts-Ranking-Record.pdf)
+12/12/2021 制作视频的男子在海南省三亚市最火的商店街一路拍摄视频。家家店铺在出租或转让。最后男子无奈地说：现在的生意特别惨淡哪！以后都没法儿做了！
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
