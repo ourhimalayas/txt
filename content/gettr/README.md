@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/14/2021 4:22 PM (UTC)`
+
+12月14号爆炸新闻：郭文贵先生最新单曲HCoin to The Moon已连续两周蝉联公告牌世界数字歌曲销量排行榜的榜首🥇, 这不仅创造了郭先生所有单曲的个人最好成绩，也创造了非专业歌手在世界最权威音乐排行榜的最好成绩，更是又一次创造了中国人在世界乐坛前所未有的历史奇迹！再次感谢新中国联邦的全球战友们，我们用自己的行动向全世界证明我们团结灭共的力量和决心！🎉🎉🎉🎉🎉🎉🎉🙏🙏🙏🙏🙏🙏🙏<br/><br/>Hcoin To the Moon连续2周登上Billboard全球数字歌曲销量榜首！<br/>https://gnews.org/zh-hans/1754720/
+
+---
+
 `@miles 12/14/2021 2:21 PM (UTC)`
 
 <br/>12月14号：尊敬的战友们好，你们健身了吗？你们传播C C P病毒疫苗解药的真相了吗？一切都已经开始！
@@ -145,12 +151,6 @@ We conducted a preliminary survey about the effects of artemisinin supplements a
 
 12/12/2021 Miles Guo: In the past 48 hours, the Russians have explicitly told the CCP that Russia is done with the CCP because it is doomed. Russia also said it wouldn’t take part in the CCP’s attack on Taiwan, while still demanding the CCP to pay for the oil and gas as per the contracts signed with Russia, and Russia is going to ally with India, Pakistan, North Korea, and Iran<br/><br/>12/12/2021 文贵直播：在过去48小时，俄罗斯明确告诉中共，你不行了，老子不和你玩儿了，不参与中共打台湾，但要求中共继续为油、气付钱，而且俄要和印、巴、朝鲜和伊朗结盟<br/>
 ![img](https://media.gettr.com/group38/getter/2021/12/13/00/6b588521-93a8-57a4-7dd5-8c5359bfb90d/out.jpg)
-
----
-
-`@miles 12/12/2021 4:43 PM (UTC)`
-
-Dec 12, 2021 The significance behind Mr. Miles Guo's impressive series of music charting success:<br/>1, a non-professional singer has created a wider impact than a professional singer, scaring the Chinese Communist government;<br/>2, The charting and distribution method breaks the traditional rules and are unacceptable to all professionals;<br/>3. Don’t profit from this, and are completely free from the rule of being controlled by money;<br/>4. The bigwigs behind the award platforms are deeply unhappy with us.<br/><br/>MV "Hcoin To the Moon" Hits #1 🥇on 31 Countries ' iTunes Top Music Video Charts on 3rd Day of Launch with a new record! 🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters all around the world!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1746905/
 
 ---
 

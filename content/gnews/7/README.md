@@ -2,35 +2,47 @@
 ---
 
 
-## 辉瑞疫苗推广早期已记录16万例不良反应
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1754629/)
+## G7与东盟强化合作对抗中共
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1754636/)
 
-作者：英国伦敦喜庄园编辑部
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据12月12日外媒消息，美国食品和药物管理局FDA发布的文件显示，制药商辉瑞(Pfizer)在其新冠病毒疫苗推出的最初几个月记录了近16万次不良反应。
-这些文件是由一群医生、研究学者和记者所获得的。他们自称是追求“公共卫生和医疗透明度的专业人员”，曾向FDA以《信息自由法案》为由，要求公布这些文件。
+作者：东京樱花团—在远方
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide4-9.jpeg)
 
-第一批文件显示，截至2021年2月，当辉瑞的试验性疫苗以“紧急使用授权”分发时，该制药商已经汇编了超过42,000份病例报告，详细记录了近16万例疫苗接种的不良反应，症状从轻微到严重不等，年龄分布从31岁至50岁。其中有1,223人因接种疫苗死亡；超过两万五千例神经系统疾病；一万七千例骨骼肌和结缔组织疾病；一万四千例胃肠道疾病；另有不同程度的自身免疫性疾病，以及数千例特殊疾病，包括270例“自然流产”、疱疹感染、癫痫、心力衰竭和中风等。
 
-值得注意的是，面对上述庞大的不良反应记录，FDA和美国疾病控制中心CDC等监管机构仍然批准并推广了辉瑞的试验性疫苗，并坚持声称该疫苗安全有效，甚至计划在2022年向婴幼儿推广接种。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-13.jpg)
 
-然而，该试验性疫苗对德尔塔变种病毒和新发的“奥米炕”变种病毒毫无抵抗能力；民众对FDA等监管机构的质疑愈发强烈。面对日益增加的舆情压力，美国食品和药物管理局表示，可能需要到2096年才能发布用于批准辉瑞疫苗的全部45.1万页资料。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
 
-总编：Zion文恩
-编辑：Zion文恩
-校正/发稿：谐趣园
+日媒报道，当地时间12月12日，正在英国利物浦举行的七国集团外长会议，邀请东盟外长举行了首次扩大会议。此举表明东盟集团是七国集团对中共竞争关键，因此七国集团正在谋求与东盟强化合作，以全面对抗中共。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/photo_l.jpg)图源：共同社
+据日本外相林芳正表示，会议中对中共在东海和南海试图凭借其实力单方面改变现状的威胁、中共国恶劣的人权问题、台湾海峡和平与稳定的重要性问题，以及中共对台湾军事和外交施压问题，各国外长都表达了关切。 据悉，会议还涉及了朝鲜大规模杀伤性武器、俄罗斯在乌克兰边境集结军队、以及阿富汗人道主义危机问题。
+
+参考来源：
+
+[G7外长会议首次邀请东盟参加扩大会议](https://china.kyodonews.net/news/2021/12/6f7550f501f0-g7.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-5.png)
+
+编辑/校正/发稿：兰兰
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-14.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

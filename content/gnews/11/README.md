@@ -2,39 +2,34 @@
 ---
 
 
-## DC每日热点1214
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1754548/)
+## 奥地利解除部分封锁措施
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1754618/)
 
-编辑：楚门门
-![](https://assets.gnews.org/wp-content/uploads/2021/12/B09D3DC4-9770-41D2-9E10-E87DADA8552A-scaled.jpeg)
-道琼斯指数 35650.95 ▲0.61%
-纳斯达克指数 15413.28 ▲0.73%
-WTI纽约原油CFD 71.444 ▼1.73%
-布伦特原油CFD 73.199 ▼1.63%
-标普50指数 3,077.49 ▼35.93%
-美元兑人民币 1USD=6.368 RMB
-美元兑港币 1USD=7.802 HKD
-国际黄金 1768.51美元/盎司
-全球CCP病毒感染人数 271,259,243例
+作者：纽约香草山农场 – 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+自11月底，奥地利对未接种疫苗的人进行限制和全国封锁后，反对强制疫苗和封锁措施的周末抗议活动，在首都维也纳持续进行。据12月13日外媒消息，奥地利已于12日解除了部分封锁措施。
 
-1、安倍在台湾一个研讨会上发表讲话：民主力量正在集结 中共国军事冒险会自取灭亡
-2、美国务卿发表印太策略重大演说：共同推进开放、繁荣与和平
-3、中共解放军海军075型首艘两栖攻击舰“海南舰”近日在南中国海跟071型综合登陆舰“昆仑山舰”一同进行年终大考，演练海陆空多维登陆等项目
-4、俄罗斯否决联合国气候影响全球安全的决议案
-5、美驻华高级外交官：中共需要更宏大的减排目标
-6、美议员致信迪士尼CEO，要求解释为何《辛普森一家》涉“六四”一集在香港被删除
-7、清零政策未清零 中共国首现Omicron 香港累计七宗 港府决下月初让港人接种第三针疫苗作防备
-8、德国会请愿委员会通过议案 要求加深与台湾关系
-9、被美国纳入“军工复合体”黑名单后，商汤科技延迟香港上市
-10、澳大利亚和韩国签署价值达10亿澳元(约合7.2亿美元)的武器采购合同，由韩国的韩华集团向澳大利亚出售30座自走炮和15辆装甲弹药运送车
-11、巴黎2024奥运开幕式将在塞纳河上举行
-12、法国与中共国签署猪出口协议
-13、中共国外交部美大司换将 杨涛接替陆慷
-14、美国空军解雇27名拒绝接种疫苗军人
-15、欧盟外长：对俄制裁 欧盟各国将步调一致
-16、普京和习近平周三举行视讯会谈，将总结今年中俄关系和各领域合作成果，并就共同关心的重大国际地区问题交换意见
-17、美高院拒绝阻止纽约州疫苗强制令
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide6-4.jpeg)
 
+重新开放的部分地区文化场所，根据室内或室外情况，将对集会设人数上限。对于已经接种疫苗或最近康复人群的活动，将完全解除限制。而未接种疫苗人群，仅被允许离开家去工作或其他必要的目的地。餐馆设有夜间宵禁。乘坐公共交通工具与在室内等场所，均需要佩戴口罩。
+
+此前，奥地利宣布自2022年2月起，所有14岁以上的居民都必须接种疫苗，除非因健康原因而豁免。目前，政府虽然改口称，没有强制接种疫苗，但是那些拒绝接种的人仍将被罚款。
+
+参考链接：[Austria Ends COVID Lockdown Measures For The Vaxx’d As Tens Of Thousands Protest Mandatory Jabs](https://www.zerohedge.com/markets/austria-ends-covid-lockdown-measures-tens-thousands-protest-mandatory-jabs)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
+
+总编：Irene木木
+编辑：Kathy文艺
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,31 +2,23 @@
 ---
 
 
-## 世茂集团股债再次双双大跌
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1754243/)
+## 中共国对进口食品和饮料设置最严格贸易壁垒
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1754244/)
 
-作者：日本方舟农场 Andy5
+作者：纽约香草山文艺部 – 宁文静
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-继恒大地产爆雷以后，12月13日，中共另一家房地产巨头世茂集团传出，再次股债暴跌10%以上，近期虽有各类变卖抵押，但仍让人担忧其无法偿还债务。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-14-下午9.13.45.png)
-11月曾被爆出跟陆家嘴信托商谈延期兑付债务后大跌12%的世茂集团，在13日，因为有消息称公司流动性出现困难，再次股价大跌13%。与此同时，仍为AAA评级的债券也暴跌54%。
+据外媒12月13日消息，中共国对进口食品和饮料的新管理规定将于2022年1月1日实施。一些食品制造商担心其产品或将无法进入中共国市场。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-14-下午9.13.55.png)
+根据新规，所有进口食品的境外生产企业均需将其生产，加工，和存储设施等信息在年底前注册，才能进入中国市场。但有关新规定的解释直到11月才发布，允许企业自行注册的网站也是刚刚上线。海关总署没有解释为什么所有食品，甚至包括葡萄酒、面粉和橄榄油等被认为是低风险的食品，都被纳入新规。
 
-据悉，近期，世茂集团已经以抵押总部大楼，变卖公司部门，及出售物业管理相关公司等方式，筹措资金用于还债；但依旧爆出，在上海将早已抵押的房屋，在对方不知情的情况下出售，让本该成为小区业主的人士沦为维权人士。
+据悉，对仓促施行的新规可能造成影响，中共国当局回复称“不会有宽限期”。一位欧盟官员担心1月1日之后欧洲食品出口恐会引发混乱，部分产品将失去进入中共国市场的机会。美国农贸协会执行董事安德森则说，从未见过中共国采取如此严厉的措施。他将该规定描述为“非关税贸易壁垒”。
 
-世茂集团目前总负债已超101亿美元，何时出现像恒大一样的债务违约，引发各界的关注。其实，对于中共房地产的这一幕，郭文贵先生早就在直播中描绘过，中共房地产即将如冰山崩塌，恒大与世茂，仅是开端。
-
-参考链接：
-1）[200亿地产巨头暴跌13%，债券狂泻50%后直接临停！世茂紧急回应，发生了什么？](https://www.sohu.com/a/507764600_639898)
-2）[世茂集团抵押总部上海世茂大厦融资](https://www.sohu.com/a/505168540_120199291)
-3）[世茂集团股债大跌 投资者对中资房企担忧再起](https://www.zaobao.com.sg/realtime/china/story20211213-1222659)
-4）[世茂股份：擬將所屬的物業管理業務相關公司、資產、負債和業務全部出售給關聯方…](https://news.sina.com.tw/article/20211213/40800256.html)
-5）[93套老公房“一夜卖光”却堵在网签，“幸运儿”到世茂集团总部“维权”](https://finance.sina.com.cn/chanjing/gsnews/2021-12-13/doc-ikyamrmy8605651.shtml)
-6）[世茂集团大跌12% 公司回应称：世茂集团与陆家嘴信托合作正常](http://finance.sina.com.cn/stock/hkstock/marketalerts/2021-11-05/doc-iktzscyy3809338.shtml)
+参考链接：[New China import rules bring headaches for food and beverage makers](https://business.inquirer.net/336629/new-china-import-rules-bring-headaches-for-food-and-beverage-makers?utm_medium=Social&amp;utm_source=Twitter#Echobox=1639407249-1)
 
 ![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-总编：Irene木木
-编辑：Kathy文艺
+总编：Zion文恩
+编辑：Lakeman文仁
 校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
