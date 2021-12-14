@@ -18,62 +18,62 @@
 ### [掌握共产党的历史和脉搏](/content/gnews/1/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [战争状态，愤怒&#8211;渥太华下议院使用中国制造的口罩引起了愤怒](/content/gnews/2/README.md)
+### [七哥谈人类扁平化发展（2021-12-12摘录）](/content/gnews/2/README.md)
+ ` MG FARM`
+
+### [战争状态，愤怒&#8211;渥太华下议院使用中国制造的口罩引起了愤怒](/content/gnews/3/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [七哥谈邪恶势力（2021-12-12摘录）](/content/gnews/3/README.md)
+### [七哥谈邪恶势力（2021-12-12摘录）](/content/gnews/4/README.md)
  ` MG FARM`
 
-### [七哥谈冬奥会55天后（2021-12-12摘录）](/content/gnews/4/README.md)
+### [七哥谈冬奥会55天后（2021-12-12摘录）](/content/gnews/5/README.md)
  ` MG FARM`
 
-### [纽约时报承认 FDA 批准的默克 COVID 新药实际上会改变健康的人类基因并影响男性生育能力](/content/gnews/5/README.md)
+### [纽约时报承认 FDA 批准的默克 COVID 新药实际上会改变健康的人类基因并影响男性生育能力](/content/gnews/6/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [七哥谈共产主义邪教（2021-12-12摘录）](/content/gnews/6/README.md)
+### [七哥谈共产主义邪教（2021-12-12摘录）](/content/gnews/7/README.md)
  ` MG FARM`
 
-### [为什么欧洲与大流行的斗争即将变得更加危险](/content/gnews/7/README.md)
+### [为什么欧洲与大流行的斗争即将变得更加危险](/content/gnews/8/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥谈相对性（2021-12-12摘录）](/content/gnews/8/README.md)
+### [七哥谈相对性（2021-12-12摘录）](/content/gnews/9/README.md)
  ` MG FARM`
 
-### [爆料革命日记（六） 灵魂伴侣](/content/gnews/9/README.md)
+### [爆料革命日记（六） 灵魂伴侣](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥谈为了爆料革命和新中国联邦（2021-12-12摘录）](/content/gnews/10/README.md)
+### [七哥谈为了爆料革命和新中国联邦（2021-12-12摘录）](/content/gnews/11/README.md)
  ` MG FARM`
 
-### [专家称对激烈爆发的Omicron毒株乐观是幻想](/content/gnews/11/README.md)
+### [专家称对激烈爆发的Omicron毒株乐观是幻想](/content/gnews/12/README.md)
  ` 丁过`
 
-### [韩国：用人脸识别追踪新冠惹争议](/content/gnews/12/README.md)
+### [韩国：用人脸识别追踪新冠惹争议](/content/gnews/13/README.md)
  ` 墨尔本雅典娜农场`
 
-### [西喜时事新闻简报 — 美国时事篇](/content/gnews/13/README.md)
+### [西喜时事新闻简报 — 美国时事篇](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [公务员开始降薪，体制内的苦日子真的来了？](/content/gnews/14/README.md)
+### [公务员开始降薪，体制内的苦日子真的来了？](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [七哥谈歌手签约（2021-12-12摘录）](/content/gnews/15/README.md)
+### [七哥谈歌手签约（2021-12-12摘录）](/content/gnews/16/README.md)
  ` MG FARM`
 
-### [GTV新闻访谈简报|2021年12月14日早](/content/gnews/16/README.md)
+### [GTV新闻访谈简报|2021年12月14日早](/content/gnews/17/README.md)
  ` 纽约香草山MOS01`
 
-### [布林肯批评中共在印太地区的“侵略行动”](/content/gnews/17/README.md)
+### [布林肯批评中共在印太地区的“侵略行动”](/content/gnews/18/README.md)
  ` HimalayaRussia`
 
-### [科兴生物称已成功分离出奥密克戎变异株](/content/gnews/18/README.md)
+### [科兴生物称已成功分离出奥密克戎变异株](/content/gnews/19/README.md)
  ` 焦點20分`
 
-### [北京正在将你的DNA武器化吗？](/content/gnews/19/README.md)
+### [北京正在将你的DNA武器化吗？](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [【Michael.Tonny专栏】运动员被中共病毒疫苗导致心脏问题](/content/gnews/20/README.md)
- ` 温哥华扬帆农场`
 
 ### [专家说2022年中共将通过贸易战削弱澳大利亚](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
