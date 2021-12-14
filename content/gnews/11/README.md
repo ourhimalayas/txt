@@ -2,34 +2,47 @@
 ---
 
 
-## 耐人玩味：伊维菌素为什么被阻止治疗新冠病毒
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1754680/)
+## 2亿8000万阿富汗食品医疗援助得到批准
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1754691/)
 
-作者：香草山农场 – 晓仙女
+作者：MOS—柳是多水土透
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-2021年12月12日，文贵先生发布一则盖文与视频透露，被发现近50年的伊维菌素，曾于2015年获得诺贝尔奖。它是被发现于自然界并衍生出来的，具备多功能性及安全性。几十年来被广泛应用，其安全性已得到全世界认可。对世界卫生健康领域发挥了有益影响，被称为神奇的药物，世卫组织已将其列入必备药物清单。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/6-25.jpg)
-视频中讲述了伊维菌素的发展历史，特别是2019年新冠病毒肆虐全球，促使医生和研究人员调查现有已开发药物，注意力落在伊维菌素抗病毒的潜在用途上，发现它可以在病毒和变异中发挥巨大作用。
 
-此盖文立刻引发热议。一方面，伊维菌素如早被列入新冠病毒可用疗法，FDA紧急使用授权的疫苗就不会被通过，因为紧急授权仅适用于没有可用的疗法时。另一方面，如果伊维菌素没被压制，中共释放病毒进而引入疫苗降低人口，达到其全球独裁统治的邪恶计划将不会得逞。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-16.jpg)
 
-参考链接：[伊维菌素于 1973 年首次发现，2015 年获得诺贝尔奖。是什么让这种药物如此非凡？看完这段关于伊维菌素历史的精彩视频后，问问自己为什么FDA和CDC不遗余力地抛弃这种获得诺贝尔奖的神奇药物？为什么要阻止医生使用它来挽救生命？](https://gettr.com/post/pjjiw827a5)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-总编：文特
-编辑：Kathy文艺
-校正/发稿：Fei797
+多家捐赠机构共同批准了一项对阿营养和健康援助的计划，将2亿8000万之前被冻结的基金转移至联合国儿童基金会UNICEF及世界粮食计划World Food Program (WFP），用以帮助这个经济崩溃面临饥荒的国家。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2WEETYATUJPLPCGMMDHXMOM5AM.jpg)图源路透社
+由世界银行管理的阿富汗重建基金，将给与1亿8000万至WFP，用来保证食品安全和营养工作，其余1亿交由UNICEF以提供关键卫生服务。
+
+在美国撤军塔利班接管后，阿深陷经济和人道危机。联合国警告有55%的人口，约2300万人面临极度饥饿，其中900万人在冬季有饥荒风险。在过去20年间阿富汗高度对外依赖，但美国和其他援助机构已经切断了经济支援，90亿阿海外美金资产遭遭冻结。使用重建基金，并透过联合国渠道，似乎可以在实施人道救援的同时不违反美国队塔利班的制裁
+
+参考来源：
+
+[Donors back $280 mln transfer for Afghan food, health](https://www.reuters.com/world/asia-pacific/exclusive-donors-expected-back-280-mln-transfer-afghanistan-2021-12-10/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-6.png)
+
+编辑/校正/发稿：兰兰
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-17.jpg)
+
 
 
  
