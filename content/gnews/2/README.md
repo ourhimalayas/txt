@@ -2,36 +2,30 @@
 ---
 
 
-## 新州完全接种疫苗娱乐场所，80多人新冠检测呈阳性
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1753245/)
+## 一些国会议员谴责迪尼斯向中共磕头屈服
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1753278/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-159.jpg)图片来源：Newscon
-整理报道：小鱼儿
-编辑：文泓
+### 撰稿：彩虹
 
-12月13日，新南威尔士州卫生部已经确认，12月8日参加纽卡斯尔阿盖尔夜总会的84人的新冠病毒检测结果呈阳性。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-23.jpg)图片来源：RFI
+根据《华尔街日报》上月末的报道，迪士尼于11月早些时候在香港推出流媒体服务Disney+，提供该娱乐巨头拥有的一系列节目，包括32集的喜剧动画片《辛普森一家》(The Simpsons)。
 
-当局表示，这些病例中“很可能”有一些是新的Omicron变种病毒，这是几天后来自附近的芬尼根酒店的病例，基因组测试的结果仍有待公布。
+不过，该剧在香港少了一集，缺的是第16季中的《咕咕鸡饭》(Goo Goo Gai Pan)，这一集讲述的是辛普森一家的中共国之行。途中，他们在北京天安门广场见到一块牌子，上面写着：“在这个地方，1989年，什么都没有发生。”该事件引发了人们对香港内容审查不断加强的担忧。
 
-为此，新州要求所有在12月8日（周三）晚上9点至12月9日（周四）凌晨3点期间，在会场使用二维码登记的680人隔离7天并接受检测。
+对此，一些美国国会议员共同签署了一封由南卡罗来纳州众议员杰夫·邓肯（Jeff Duncan）撰写的信，信中，邓肯要求迪士尼首席执行官解释为什么将《辛普森一家》中关于1989年天安门广场大屠杀的一集在香港从Disney+流媒体服务中撤下。12月13日，《新闻极限》对此做了报道。
 
-参加活动人的家庭联系人也应立即接受检测并隔离，直到他们和密切接触者的检测结果为阴性。由于这一群体，纽卡斯尔的检测诊所已经排起了巨大的长龙。
+邓肯在给迪士尼首席执行官鲍勃·查普克（Bob Chapek）的信中写道：“即使是在《辛普森一家》这样的讽刺性环境中，我们对迪斯尼代表中共暴君清除历史的明显决定深表担忧。这种可悲的行为引起了严重的问题，说明又一家美国公司在中共的明显要求下破坏了美国的原则”。
 
-在周日，纽卡斯尔记录了第一例Omicron病例，这是一名从英国回来的女性旅行者。她正在家里进行隔离。新州的一名居民成为澳大利亚第一个因Omicron变种病毒而被送往医院的人。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-54.jpg)图片来源：凯利议员推特号
-澳大利亚联合党党魁凯利议员对此事发表评论，“你必须是完全接种疫苗才能进入夜总会。所以，夜总会是一个完全接种疫苗的场所。所以，未接种疫苗的人不应受到责备”。
+邓肯信中直接发问，中共国官员是否在播放前审查了节目的录像？“如果是，请说明你何时让中国共产党具有审查你们内容的能力或做出审查的决定。如果没有，迪士尼是否对这一集进行了自我审查？以及为什么？”
 
-新闻链接：[More than 80 people test positive for COVID-19 after night at Newcastle club](https://www.9news.com.au/national/coronavirus-nsw-updates-newcastle-night-club-outbreak-omicron/19fbf777-40f9-4d08-a312-96661b8fbfd5)
-([9news.com.au](http://9news.com.au))
+对于可能的中共威胁，信中询问，如果不撤下这一集，中共政府是否威胁要“关闭或减缓上海迪士尼乐园的运营”，以及台湾人是否能够看到这一集？
 
-发布：去中心化Math
+对于后续的可能，邓肯继续追问，“你是否公开承认天安门广场大屠杀确实发生过，并且中共政府造成了重大的生命丧失？当涉及到中共政府掩盖暴行时，你愿意做出什么承诺来对抗中（共）国的审查制度？”
 
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**新闻来源**
+
+[GOP Reps: Disney Kowtows to China as ‘Simpsons’ Episode Is Pulled](https://www.newsmax.com/politics/tinananmen-simpsons-china-censorship/2021/12/13/id/1048520/)
 
  
 

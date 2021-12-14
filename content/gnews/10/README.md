@@ -2,23 +2,32 @@
 ---
 
 
-## 德国国会请愿委员会投票支持德国政府加深对台关系
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1753174/)
+## Hcoin to the moon的打榜方式对现有规则的改写
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1753213/)
 
-#### 翻译/撰稿：zzballack
+作者：银河勇气星 – 骄子
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+截至12月13日，郭文贵先生的打榜歌曲Hcoin to the moon及其MV版在全球最著名音乐排行榜上继续风靡。在12月12日的大直播中，郭先生谈到，打榜过程经历了中共的严厉封锁，但冲破了重重阻碍，几乎改写了歌曲打榜的全部规则。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture3-10.jpg)
+首先，歌曲的创作者和参与者并非全都是专业音乐人士，这让以音乐专业技巧为盈利手段的人群感到不悦；其次，歌曲的上榜渠道并非官方规定的渠道，这让各大音乐媒体背后的大资本感到不悦；再次，歌曲打榜的运作方式与传统方式不同，不以牟利为目的，彻底摆脱了资本的控制；最后，各奖项平台背后的大佬也深表不悦，认为这给他们带来了危险。日前，郭先生断然拒绝了好莱坞位居前三的某大佬的签约威胁，也预示着旧时代的垄断和规则已全部被颠覆。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-22.jpg)图片来源：Bundestag.de
-据《台湾英文新闻网》12月13日报道，德国新一届国会请愿委员会（Petitions Committee）12月9日通过一项议案，敦促德国新一届联邦政府重新评估其对台政策并深化与台湾的交流。该委员会同时还决定将2019年的一项要求与台湾建立正式外交关系的请愿案转交给德国外交部和国会的各个团组。
+另外，郭先生的歌曲本身传达的是灭共的内容，全球收听和参与打榜的人以爆料革命战友为主，让政治家们忧虑在全球已经形成了一股无法阻挡的平民主义正道运动热潮。
 
-2019年5月，有一位名叫迈克∙克罗伊茨贝格（Michael Kreuzberg）的德国公民在网上向德国国会发起第95643号请愿案，呼吁国会要求德国政府与民主的台湾建立外交关系。该请愿案的联署人数在五个月内就达到了5万人。
+参考链接：[Hcoin to the moon的打榜方式对现有规则的改写](https://gtv.org/video/id=61b5f49556f4921401b604a9)
 
-德国新国会请愿委员会通过的议案指出，德国联邦共和国自从1972年与中共建立外交关系以来，德国就一直遵循所谓的“一个中国”政策，该政策也排除了与台湾建立外交关系的可能性。但是议案表示，德国政府支持加强与台湾的政治、经济和社会交流，只要这些交流“低于外交关系的门槛”。进一步扩大和加强与台湾的合作，也符合德国和欧洲的利益。
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-议案说，根据迅速变化的国际形势，德国政府应该重新评估其对台政策，包括承认台湾为主权国家的潜在可能性，同时考虑深化与台湾的交流与合作。
+总编：飞虹
+编辑：飞虹
+校对/发稿：Hetangyuese
 
-新闻来源：[German Bundestag votes to deepen ties with Taiwan](https://www.taiwannews.com.tw/en/news/4374067)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

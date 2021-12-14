@@ -2,29 +2,30 @@
 ---
 
 
-## 新浪微博屡遭网信办约谈，罚款近2千万元
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1753173/)
+## 灭共尖峰时刻，音雄再度归来
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1753212/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Unknown-20.jpg)新浪微博屡遭网信办约谈，罚款近2千万元 网络图片
-据路透北京12月14日报道，中共国国家网信办14日再次约谈新浪微博并罚款300万元。据网信办微信公众号公告，针对近期新浪微博及其账号屡次出现法律、法规禁止发布或者传输的信息，情节严重，责令其立即整改，严肃处理相关责任人。
+作者：《我是音雄》文宣组  – A Cat
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+由喜马拉雅农场联盟和G-Music倾心打造的2021年度新中国联邦“音乐灭共”节目《我是音雄》第二季，收到了来自全球战友的踊跃报名。自8月28日开始在GTV正式开播以来，迄今已经举办了九场初赛、四场复赛和前三场半决赛，本周六即将进入紧张激烈的最后一轮半决赛。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture3-9.jpg)
+明耀的舞台光芒背后，是参赛战友在导演团队协作下的非凡努力。每一位参赛者从报名，到参赛、磨练技艺和设备调试，都在用亲身经历讲述着自己的成长和灭共故事，更验证了爆料革命历程中彼此的相遇与扶持，演绎着人间的美好奇迹。
 
-公告还称，今年1月至11月，国家网信办指导北京市网信办，对新浪微博实施44次处置处罚，多次予以顶格50万元罚款，共累计罚款1,430万元。
+复赛晋级后的18位选手经过四轮半决赛后，胜出者将荣登年度“十大音雄”宝座，并参与2022年新年跨年夜总决赛。更多详情和赛事回顾，请关注Gnews“我是音雄”栏目。
 
-新浪微博港股早盘一度重挫8.7%，创其上市以来新低，相比招股价已下跌近两成。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-参考链接：[https://cn.reuters.com/article/weibo-penalty-1214-tues-idCNKBS2IT094](https://cn.reuters.com/article/weibo-penalty-1214-tues-idCNKBS2IT094)
+总编：飞虹
+编辑：飞虹
+校对/发稿：Hetangyuese
 
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
 
  
