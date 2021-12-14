@@ -2,60 +2,98 @@
 ---
 
 
-## 【Michael.Tonny专栏】运动员被中共病毒疫苗导致心脏问题
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1754877/)
+## 北京正在将你的DNA武器化吗？
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1754903/)
 
-作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
-世界各国政客都在不遗余力的推广中共病毒疫苗，然而疫苗副作用带给世人的伤害，却一刻也没有停止。
+编译：Jenny Ball
 
-2021年12月13日，《[Horas decisivas para el “Kun” Agüero: aseguran que anunciará su retiro este miércoles](https://www.eltribuno.com/salta/nota/2021-12-13-9-28-0-horas-decisivas-para-el-kun-aguero-aseguran-que-anunciara-su-retiro-este-miercoles)》报道，阿根廷前锋阿奎罗（Sergio Leonel Agüero del Castillo，或Kun Agüero）将在本周三将宣布退役！令人惋惜！
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-3-6.jpg)图片来源：theepochtimes.com (Mario Tama/Getty Images)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Sergio-Leonel-Aguero-del-Castillo1.jpg)
+为什么一家美国 DNA 加工公司要与中共国分享美国人的 DNA？ 答案令人震惊……
 
-阿圭罗曾经在曼城度过了辉煌的10年职业生涯，共为曼城出场390次，打入260球73次助攻，是曼城队史射手王。这样一位优秀的足球运动员，职业生涯却被中共病毒和中共病毒疫苗摧毁。
+如果您进行过 COVID-19 测试，那么中国共产党 (CCP) 和中国人民解放军 (PLA) 很有可能拥有您的 DNA。
 
-10月30日，在巴塞罗那主场对阵阿拉维斯的西甲第12轮联赛中，原本首发出场的阿奎罗，在第42分钟突然呼吸困难，他弯下身时指着自己的胸部，被巴西人菲利普·库蒂尼奥 (Philippe Coutinho) 换下，他几乎流着泪离开了比赛，乘坐救护车离开了诺坎普。
+如果是这样，他们可能比您自己更了解您的健康和[DNA 漏洞](https://www.defenseone.com/ideas/2019/08/chinas-military-pursuing-biotech/159167/)，可以说，其影响令人不安。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Sergio-Leonel-Aguero-del-Castillo.png)
+与进行 COVID-19 测试签约的公司是Fulgent Genetics（交易代码：FLGT），这是一家全国性的 DNA 测序和疾病测试公司。根据该公司的[网站](https://fulgentgenetics.com/)，其既定使命是“开发灵活且负担得起的基因检测，以改善我们周围人的日常生活。”
 
-随后，巴萨宣布阿圭罗心律失常，将休战三个月。然而，阿圭罗的心脏问题比最初预计的更严重，迫使他不得不终止他的职业生涯。
+显然，我们已经知道 Fulgent Genetics 可以改善我们所有人的生活。
 
-阿奎罗是一名中共病毒和中共病毒疫苗的受害者。今年1月22日，阿奎罗被确诊感染中共病毒。在对阵阿拉维斯比赛前几周前，阿奎罗还在向12岁的孩子推广新冠病毒（CCP病毒）疫苗……
+**Fulgent Genetics与中国的深厚渊源**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/FDAPSvnVEAI8qZW.png)
+11月29日，洛杉矶县警长办公室致函洛杉矶县监事会，该信件表示，洛杉矶县警长部门不会参与 Fulgent Genetics 的 COVID-19 测试。
 
-阿奎罗注射疫苗后能够幸运的活了下来，但有大量运动员已经倒下和早逝……
+这封信解释说，FBI 大规模杀伤性武器局已警告警长亚历克斯·维拉纽瓦 (Alex Villanueva) 的办公室存在风险，即** ****Fulgent Genetics **提供的** ****COVID-19 **测试中的** DNA **样本**“**可能会与中共国分享**”**。
 
-德国报纸《柏林日报》（Berliner Zeitung）在一篇题为“足球中令人困惑的心脏病”（ [“UNUSUALLY LARGE” NUMBER OF SOCCER PLAYERS WHO HAVE COLLAPSED RECENTLY](https://www.blacklistednews.com/article/81156/german-newspaper-highlights-unusually-large-number-of-soccer-players-who-have-collapsed.html)）的报道中注意到了这种令人不安的心脏骤停模式。该报告试图了解为什么最近出现了异常大量的职业和业余足球运动员突然倒下，很多年轻运动员在接种中共病毒疫苗后正在遭受痛苦和死亡。
+维拉纽瓦还在[新闻发布会](https://www.dailynews.com/2021/11/30/la-county-sheriffs-department-shuns-covid-19-testing-provider-over-china-ties/)上表示，“Fulgent Genetics与华大基因、WuXP 和华为技术有着密切的联系，所有这些都与中共医学科学院、中共国务院有关，并受中共控制 。**”**
 
-杰克·卡兹马雷克 (Jake Kazmarek) 是一名 28 岁的健美运动员，在接种中共病毒疫苗四天后意外死亡。另一位最近接种疫苗的运动员在比赛中途昏倒，冰球运动员鲍里斯·萨德基 (Boris Sadecky)（24 岁）突然倒在冰上后死亡。一位名叫迪伦·里奇 (Dylan Rich) 的17岁英格兰足球运动员在比赛中途死于心脏病。一位名叫卢卡斯·苏雷克 (Lucas Surek) 的24岁运动员被查出心律不正常（muscle disorder）后被BFC Chemie Leipzig俱乐部除名。拜仁慕尼黑25岁的金斯利科曼（Kingsley Coman）在接种疫苗后患有心律失常，不得不接受心脏手术。比利时年仅18岁的Rune Coghe在一场比赛中心脏病突然发作。伊斯坦布尔31岁的 Fabrice N’ Sakala 突然倒在球场上，不得不被送往医院。比特菲尔德（Bitterfeld）队队长迪特玛·格拉多（Dietmar Gladow）在赛前也心脏病发作。Gifhorn业余爱好者Marvin Schumann在比赛中心脏骤停，被急救。JSG Hoher Hagen不得不在Hannoversch Munden 的一场足球比赛中去急救一名 17 岁的球员。
+**问题比比皆是**
 
-根据日本卫生部（Japan’s Health Ministry）公布的数据，截至2021年11月14日记录的官方数据，每100万名接种 Moderna 疫苗的男性青少年，就有80例心肌炎！对于20多岁的男性来说，每100万剂就有48例心肌炎。辉瑞疫苗也表现出类似的问题，每100万青少年男性中有15例心肌炎，20多岁的男性每100万剂中有13例心肌炎。
+首先想到了几个问题：
 
-mRNA疫苗是市场上最危险的疫苗！
+Fulgent Genetics 公司是谁？
 
-在以色列最大的医疗保健组织Clalit Health Services 的数据库中，大型医疗机构接种中共病毒疫苗后的反馈数据显示，在16至29岁年龄组中，每100万人中约有100例心肌炎。
+为什么美国公司愿意提供美国DNA样本？
 
-中共病毒疫苗正在祸害全世界，突发心脏病猛增，儿童被查出患有心脏病，足球运动员在球场上突然摔倒……
+为什么中共国甚至想要美国人的 DNA 样本？
 
-停止毒疫苗！
+出于什么目的？
 
-参考数据：
+他们已经有多少美国人的 DNA 样本？
 
-[Japan Health Ministry issues HEART WARNING for Pfizer and Moderna covid vaccines](https://www.naturalnews.com/2021-12-10-japan-health-ministry-issues-heart-warning-covid-vaccines.html)
+最重要的是，我们的 DNA 与 FBI 担心的来自中共国的大规模杀伤性武器 (WMD) 有什么关系？
 
-[The world is starting to notice how many young athletes are DYING after taking covid vaccines](https://naturalnews.com/2021-11-10-world-starting-to-notice-how-many-young-athletes-are-dying-after-covid-vaccination.html)
+下面将讨论这些问题和其他问题的答案的最坏情况如何。但先来看一些关于**Fulgent Genetics**公司的背景。
 
-[Myocarditis after Covid-19 Vaccination in a Large Health Care Organization](https://www.nejm.org/doi/full/10.1056/NEJMoa2110737)
+**Fulgent Genetics**到底是谁？
 
-[GERMAN NEWSPAPER HIGHLIGHTS “UNUSUALLY LARGE” NUMBER OF SOCCER PLAYERS WHO HAVE COLLAPSED RECENTLY](https://www.blacklistednews.com/article/81156/german-newspaper-highlights-unusually-large-number-of-soccer-players-who-have-collapsed.html)
+该公司于2011年由董事长、总裁兼首席执行官谢明（Ming Hsieh）和首席运营官詹姆斯·谢（James Xie）创立。谢明自 2011 年起担任中国复旦大学的董事会成员。1987年，另一位谢先生在中国重庆大学获得了工程学学士学位。也许并不奇怪，两人都与中共国有着[深厚的联系](https://fulgentgenetics.gcs-web.com/leadership/management) 。
 
-[Horas decisivas para el “Kun” Agüero: aseguran que anunciará su retiro este miércoles](https://www.eltribuno.com/salta/nota/2021-12-13-9-28-0-horas-decisivas-para-el-kun-aguero-aseguran-que-anunciara-su-retiro-este-miercoles)
+显然，Fulgent公司一直在与中共国分享美国人的 DNA。正如维拉纽瓦的声明中所指出的，它并不是唯一一家从事收集美国人遗传材料的[解放军代理公司](https://www.reuters.com/investigates/special-report/health-china-bgi-dna/)，还有其他的，来自美国和世界许多其他地方的数以百万计的人的DNA被送到了中共国。
 
-[Health ministry warns of vaccine’s side effects](https://www3.nhk.or.jp/nhkworld/en/news/20211204_12/)
+这就是大规模杀伤性武器部门变得非常黑暗的地方。中共国想要制造一种以你的 DNA 为目标的生物战大规模杀伤性武器。
 
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/) 上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+**生物战的新黑暗时代已经到来**
+
+生物战并不是什么新鲜事，它在历史上一直被使用。在公元前 4 世纪，斯基泰的弓箭手将箭浸入腐烂的尸体中，从而使之感染。14 世纪，鞑靼人在围攻卡法时将感染瘟疫的尸体弹射到敌人的阵线中。在第二次世界大战中，日本帝国军队用充满瘟疫的跳蚤轰炸了中国城市。
+
+但是，与利用人工智能和基于DNA的基因组学的最新生物武器技术相比，这些“老派”的生物战只是小儿科，我们正在进入一个非常危险的新黑暗时代。
+
+**生物战和 DNA 操作**
+
+正如AI和DNA基因组操作能够帮助人体对抗各种疾病一样，同样的技术也可用于创造仅影响特定人群的独特病原体。DNA 特异性武器，可以针对具有特定** DNA **结构的种族、性别，甚至家庭或个人。
+
+这已经不是一种可能性——而是完全可能了，这已经成了现实。更重要的是，至少在理论上，特定于 DNA 的生物武器不会受到反击，因为它们只会伤害具有特定 DNA 特征的人。中共国获取美国人的** DNA **无疑是一个[国家安全问题](https://thediplomat.com/2017/08/the-great-us-china-biotechnology-and-artificial-intelligence-race/)。
+
+**“2035”美国与中共的死亡竞赛**
+
+有人估计，生物武器军备竞赛的获胜者将在 2035 年确定。很可能还会更早。在制造高效、可瞄准和致命的生物武器的竞赛中，美国和中共国并驾齐驱。两国都在AI和基因组学上投入了大量资金。每个人都想带头创造这些基于 DNA 的超级生物武器。
+
+**基于 DNA 的生物武器**
+
+像所有军备竞赛一样，无论哪个国家，发展出发动生物攻击的能力而不用担心反击，都将处于强国地位。这不是幸福远景，这已经是现实。
+
+但仅仅能够发动致命的、高度针对性的，甚至有大规模杀伤性的生物攻击是不够的。一个国家的生存还取决于其防御能力。就像核报复战略（二次打击能力）旨在阻止首次打击一样，一个国家的生物战反击能力，可能是阻止此类袭击的关键因素。
+
+不幸的是，AI和基因组学使创造潜在的数以千计的转基因致死病原体变得容易。另一方面，对整个人群，甚至少数人进行免疫接种，以对抗数以千计的新病原体，是不可能的；至少在此时此刻不能。
+
+**生物战技术病毒式传播**
+
+可以预见，信息的快速传播本身就是一个问题。互联网使大多数秘密都无法掩盖。如果一项技术存在，以合适的价格，它将提供给坏人。所以，在中共解放军和中共科学界，它将被开发并全面部署——当前人们经历的中共病毒就是其开发和部署的标志。
+
+这种现实，对于限制中共国或美国，或任何其他对手获取和使用新的危险生物武器来说，都不是好兆头。如果Fulgent公司和其他人正在帮助中共国开发针对美国人的 DNA 靶向病原体，那么，对这种威胁没有简单的答案，也没有任何好的答案。但没收所有材料、数据和资产，并起诉这些公司将是一个开始。
+
+**评论：如果你认为2017年文贵先生警告世界关于中共的3F（搞乱、搞弱、搞垮美国）和“灭白”计划是阴谋论，那么四年后的今天，你已经在经历“AI和DNA基因组操作”，这“可以针对具有特定 DNA 结构的种族、性别，甚至家庭或个人。” 这就是CCP如此自信的“灭白”阴谋手段！**
+
+**新闻来源**：[zububrothers.com][Is Beijing Weaponizing Your DNA?](https://zububrothers.com/2021/12/14/is-beijing-weaponizing-your-dna/)
+
+* * *
+
+*审核：文乐*
+*校对: 阿伯塔*
+*发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-2.jpeg)
 
  
 

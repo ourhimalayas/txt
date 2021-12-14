@@ -2,36 +2,36 @@
 ---
 
 
-## Omicron传染暴增：挪威每日恐30万人染疫丹麦疫情严峻
-` RoseNews` [轉載自GNews](https://gnews.org/zh-hans/1754370/)
+## 中国移动拟在A股圈钱560亿元
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1754389/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/0E15F17B-9474-475C-886E-CF5D129B7196.jpeg)
-新冠[**Omicron**](https://udn.com/search/tagging/2/Omicron)变种病毒在北欧散播快速，截至13日，[**丹麦**](https://udn.com/search/tagging/2/%E4%B8%B9%E9%BA%A5)已确认2741例Omicron确诊，其中74.6%已完全接种疫苗，居世界第二；[**挪威**](https://udn.com/search/tagging/2/%E6%8C%AA%E5%A8%81)目前则已确认958例，其官方示警：最严重恐每日新增30万例确诊，相当于全国5.6%人口。
+作者：西枫westca
 
-据每日邮报报导，580万人口的丹麦的疫苗接种率相当高。丹麦五岁以上儿童完成接种的比率高达80.6%，但是，Omicron病毒确诊数仅次于英国；在确诊者中，1843人已完成接种，相当于74.6%。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-丹麦奥尔堡大学教授艾伯逊(Mads Albertsen)表示，Omicron病毒很快会成为丹麦新冠疫情的主要病毒株。
+据报道，12月13日，中共证监会核发中国移动IPO批文，中国移动即将与中国联通、中国电信一同回归A股上市，登陆沪市主板。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/4-19.jpg)
+今年8月中国移动递交了A股上市申请材料，欲募资560亿元。在中共的国家垄断下，中国移动的客户总数达9.56亿，然而用户仅限于在中国大陆生活的群体。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/4-1-1.jpg)
+自2020年以来，美国对中共的垄断通信企业不断重拳出击：今年5月，美国证监会维持了川普政府的证监会对中国移动、中国电信和中国联通三大中共垄断公司的退市决定，因为这些公司涉嫌中共的军民融合项目；10月下旬，美国联邦通信委员会撤销了中国电信在美的业务授权，中国电信被强令在美停业。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/4-2-1.jpg)
+有分析指出：面对美国日益加重的制裁，中共的垄断通信财阀已无法在美国圈钱；进入A股市场坑害大陆散户投资者已是他们不得已而为之的手段
 
-丹麦卫生部声称迫于疫情严峻于13日决定，开放40岁以上民众接种补强针。
+参考链接: [秘翻在线: 中国证监会核发中国移动IPO 拟募资560亿](https://gnews.org/zh-hans/1752086/)
 
-挪威，因Omicron病毒病例激增；挪威公共卫生署(FHI)表示，未来三周的每日新增确诊数恐达到9万至30万人，每天200人住院。因为挪威全国人口仅540万人，这个预测数字相当惊人！
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-FHI还指出，Omicron病毒将在几天内成为挪威疫情的主要病毒株，众多的确诊及住院患者，将成为医疗体系及社会经济的沉重负担，呼吁政府应尽速实施新的防疫措施，以遏制疫情继续扩大。
+总编/编辑：Zion文恩
+校对：Ermat
+发稿：Fei797
 
-在这样的呼吁下，挪威总理斯托尔(Jonas Gahr Stoere)宣布新的防疫措施，包括缩短餐饮业提供酒类的时间，以及限制访客人数等。
-
-欧洲其他国家的Omicron病毒案例数均远少于丹麦、挪威及英国等三国。据悉，英国有一人感染Omicron病毒导致死亡。此外，所有已确认的Omicron病毒案列皆为轻症。
-
-编译/米拉娅
-
-审阅/丘杰斯
-
-上传/天赐良闻
-
-[援引链接](https://udn.com/news/story/121707/5960358)：
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
