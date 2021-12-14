@@ -19,6 +19,15 @@
 
 **:arrows_clockwise: miles 已轉發**
 
+`@miles 12/14/2021 2:51 AM (UTC)`
+
+最近，我们初步的完成了关于青蒿素保健品和药品效用的问卷调查。调查结果显示，青蒿素会改善和缓解疫苗副作用及其他基础疾病。所有细节均包含在如下的报告里。青蒿素是中共病毒和中共病毒疫苗的解药，我们将继续推进真相。请遵医嘱。
+![img](https://media.gettr.com/group29/origin/2021/12/14/02/b40c46cb-4cf8-0b4a-25e0-6521d2c52766/2f819549854a45495c31ac76700944de.png)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
 `@livrenoirmedia 12/14/2021 3:48 PM (UTC)`
 
 Jason #Miller (@JasonMillerinDC) conseiller et porte-parole de Donald #Trump, aujourd’hui président du réseau social #GETTR, était ce matin sur le fauteuil de Livre Noir. Entretien passionnant à venir prochainement.
@@ -145,13 +154,6 @@ We conducted a preliminary survey about the effects of artemisinin supplements a
 
 12/12/2021 Miles Guo: There will be more Western countries boycotting the 2022 Winter Olympics, with only NBC paying the CCP 2 billion USD for the broadcast rights. This is an extremely huge humiliation for Xi Jinping. The term “boycott” is banned in the CCP’s propaganda in Communist China, and the CCP is looking for the “VIPs” of the Winter Olympics who want to be paid a high price. Will the West’s boycotts of the Winter Olympics be Xi Jinping’s waterloo?<br/><br/>12/12/2021 文贵直播：西方将有更多国家抵制冬奥会，目前只有NBC支付了二十亿转播费，这对习是极大的羞辱，现在对内宣传禁止提“抵制”二字，对外倾一国之力找一群要饭的当贵宾，西方抵制冬奥会真的会是习近平的滑铁卢吗？<br/>
 ![img](https://media.gettr.com/group27/getter/2021/12/13/06/c6dd207e-e6b1-8266-4a51-2c577a92997c/out.jpg)
-
----
-
-`@miles 12/13/2021 4:51 AM (UTC)`
-
-12/12/2021 Miles Guo: Xi's insanity will bring about his own demise - he will surely invade Taiwan, eliminate the Chinese private entrepreneurs, and arrest more CCP members; Xi’s kicking my father and the Pangu employees to the cold winter streets is as brutal as what Saddam had done to his son-in-law!<br/><br/>12/12/2021 文贵直播：习的疯狂将让他自取灭亡 - 他一定会打台湾，消灭国内私人企业家，抓更多党员；习将文贵的父亲和盘古员工扔到大街上跟萨达姆对待其女婿的残暴行径如出一辙！<br/>
-![img](https://media.gettr.com/group49/getter/2021/12/13/04/8d3db73a-26d3-3bf3-d79b-d9235ae647b8/out.jpg)
 
 ---
 
