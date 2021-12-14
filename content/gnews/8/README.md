@@ -2,26 +2,28 @@
 ---
 
 
-## G7与东盟强化合作对抗中共
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1754636/)
+## 2亿8000万阿富汗食品医疗援助得到批准
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1754691/)
 
-作者：东京樱花团—在远方
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-13.jpg)
+作者：MOS—柳是多水土透
 
 
 
-日媒报道，当地时间12月12日，正在英国利物浦举行的七国集团外长会议，邀请东盟外长举行了首次扩大会议。此举表明东盟集团是七国集团对中共竞争关键，因此七国集团正在谋求与东盟强化合作，以全面对抗中共。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/photo_l.jpg)图源：共同社
-据日本外相林芳正表示，会议中对中共在东海和南海试图凭借其实力单方面改变现状的威胁、中共国恶劣的人权问题、台湾海峡和平与稳定的重要性问题，以及中共对台湾军事和外交施压问题，各国外长都表达了关切。 据悉，会议还涉及了朝鲜大规模杀伤性武器、俄罗斯在乌克兰边境集结军队、以及阿富汗人道主义危机问题。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-16.jpg)
+
+
+
+多家捐赠机构共同批准了一项对阿营养和健康援助的计划，将2亿8000万之前被冻结的基金转移至联合国儿童基金会UNICEF及世界粮食计划World Food Program (WFP），用以帮助这个经济崩溃面临饥荒的国家。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2WEETYATUJPLPCGMMDHXMOM5AM.jpg)图源路透社
+由世界银行管理的阿富汗重建基金，将给与1亿8000万至WFP，用来保证食品安全和营养工作，其余1亿交由UNICEF以提供关键卫生服务。
+
+在美国撤军塔利班接管后，阿深陷经济和人道危机。联合国警告有55%的人口，约2300万人面临极度饥饿，其中900万人在冬季有饥荒风险。在过去20年间阿富汗高度对外依赖，但美国和其他援助机构已经切断了经济支援，90亿阿海外美金资产遭遭冻结。使用重建基金，并透过联合国渠道，似乎可以在实施人道救援的同时不违反美国队塔利班的制裁
 
 参考来源：
 
-[G7外长会议首次邀请东盟参加扩大会议](https://china.kyodonews.net/news/2021/12/6f7550f501f0-g7.html)
+[Donors back $280 mln transfer for Afghan food, health](https://www.reuters.com/world/asia-pacific/exclusive-donors-expected-back-280-mln-transfer-afghanistan-2021-12-10/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-5.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-6.png)
 
 编辑/校正/发稿：兰兰
 
@@ -39,7 +41,7 @@
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-14.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-17.jpg)
 
 
 

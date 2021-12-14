@@ -2,63 +2,36 @@
 ---
 
 
-## 近独裁远民主，平生终将得报应
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1754324/)
+## 中国移动拟在A股圈钱560亿元
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1754389/)
 
-作者：波士顿五月花  跟随战神
-![](https://assets.gnews.org/wp-content/uploads/2021/12/20211214.jpg)
-习猪近平生北京，祖籍老家是富平。
+作者：西枫westca
 
-文革之中被抄家，其父仲勋监狱行。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-姐姐被逼头悬梁，自此仇恨心中横。
+据报道，12月13日，中共证监会核发中国移动IPO批文，中国移动即将与中国联通、中国电信一同回归A股上市，登陆沪市主板。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/4-19.jpg)
+今年8月中国移动递交了A股上市申请材料，欲募资560亿元。在中共的国家垄断下，中国移动的客户总数达9.56亿，然而用户仅限于在中国大陆生活的群体。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/4-1-1.jpg)
+自2020年以来，美国对中共的垄断通信企业不断重拳出击：今年5月，美国证监会维持了川普政府的证监会对中国移动、中国电信和中国联通三大中共垄断公司的退市决定，因为这些公司涉嫌中共的军民融合项目；10月下旬，美国联邦通信委员会撤销了中国电信在美的业务授权，中国电信被强令在美停业。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/4-2-1.jpg)
+有分析指出：面对美国日益加重的制裁，中共的垄断通信财阀已无法在美国圈钱；进入A股市场坑害大陆散户投资者已是他们不得已而为之的手段
 
-上山下乡梁家河，肩扛二百成笑柄。
+参考链接: [秘翻在线: 中国证监会核发中国移动IPO 拟募资560亿](https://gnews.org/zh-hans/1752086/)
 
-拖拉机下去碰瓷，腿瘸脖歪落下病。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-落实政策进首都，清华大学混文凭。
+总编/编辑：Zion文恩
+校对：Ermat
+发稿：Fei797
 
-仲勋升官赴广东，耿飙秘书三年整。
-
-正定书记来任职，第一夫人柯铃铃。
-
-好景不长妻子跑，仇恨西方恶胆生。
-
-平步青云到福建，彭氏丽媛把婚定。
-
-福建书记大权揽，美女主持暗偷情。
-
-浙江上海封疆吏，蛤蟆面前来装熊。
-
-十八大上终成首，小白杨来立大功。
-
-逐渐露出真面目，首先做起中国梦。
-
-一带一路蓝金黄，雄安特区把人蒙。
-
-十九大上修宪法，军人会场露凶容。
-
-集权独裁终身制，以警治国法治停。
-
-清党清军除异己，杀富致贫百姓穷。
-
-新疆种族大屠杀，血洗香港我圣城。
-
-凶狠残忍放病毒，世界人民不安宁。
-
-倒行逆施要称神，丧心病狂必丢命。
-
-正义力量已集结，爆料革命一定赢。
-
-* * *
-
-*编辑：文合*
-
-*封面：霹雳鼠年*
-
-*发布：吐纳*
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
