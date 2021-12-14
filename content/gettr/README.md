@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/14/2021 4:25 PM (UTC)`
+
+Dec 14, 2021 Breaking news: Mr. Miles Guo's latest single “HCoin to The Moon”has topped the Billboard World Digital Songs Sales Chart for two consecutive weeks, creating not only the best personal result for all of Mr. Guo's singles, but also the best result for non-professional singers in the world's most authoritative music charts, and yet another historical miracle for Chinese people in the world music scene that has never been seen before! Thanks again to all the fellow fighters of the New Federal State of China around the world, we proved to the world with our own actions the power and determination of our unity to take down the CCP!🎉🎉🎉🎉🎉🎉🎉🙏🙏🙏🙏🙏🙏🙏<br/><br/><br/>https://gnews.org/1754721/
+
+---
+
 `@miles 12/14/2021 4:22 PM (UTC)`
 
 12月14号爆炸新闻：郭文贵先生最新单曲HCoin to The Moon已连续两周蝉联公告牌世界数字歌曲销量排行榜的榜首🥇, 这不仅创造了郭先生所有单曲的个人最好成绩，也创造了非专业歌手在世界最权威音乐排行榜的最好成绩，更是又一次创造了中国人在世界乐坛前所未有的历史奇迹！再次感谢新中国联邦的全球战友们，我们用自己的行动向全世界证明我们团结灭共的力量和决心！🎉🎉🎉🎉🎉🎉🎉🙏🙏🙏🙏🙏🙏🙏<br/><br/>Hcoin To the Moon连续2周登上Billboard全球数字歌曲销量榜首！<br/>https://gnews.org/zh-hans/1754720/
@@ -144,13 +150,6 @@ We conducted a preliminary survey about the effects of artemisinin supplements a
 
 12/12/2021 Miles Guo: Russia, Wall Street, Hollywood, and the four shameless big families in Hong Kong have contributed to Xi's arrogance and insanity - daring to release the CCP virus, promoting the poisonous COVID vaccines, and making everyone afraid to say "no". However, Russia has recently slapped Xi in the face; without Xi’s arrogance and insanity, we wouldn’t be able to take down the CCP<br/><br/>12/12/2021 文贵直播：俄罗斯、华尔街、好莱坞和香港四大不要脸促成了习的狂妄 - 敢在全球放毒、把脉(推广毒疫苗)，并让所有人不敢说“不”，不料这次习被俄国彻底打脸；没有习的狂妄，灭不了共<br/>
 ![img](https://media.gettr.com/group22/getter/2021/12/13/04/b4e9111b-aa61-7097-90ec-870ab555a461/out.jpg)
-
----
-
-`@miles 12/13/2021 12:54 AM (UTC)`
-
-12/12/2021 Miles Guo: In the past 48 hours, the Russians have explicitly told the CCP that Russia is done with the CCP because it is doomed. Russia also said it wouldn’t take part in the CCP’s attack on Taiwan, while still demanding the CCP to pay for the oil and gas as per the contracts signed with Russia, and Russia is going to ally with India, Pakistan, North Korea, and Iran<br/><br/>12/12/2021 文贵直播：在过去48小时，俄罗斯明确告诉中共，你不行了，老子不和你玩儿了，不参与中共打台湾，但要求中共继续为油、气付钱，而且俄要和印、巴、朝鲜和伊朗结盟<br/>
-![img](https://media.gettr.com/group38/getter/2021/12/13/00/6b588521-93a8-57a4-7dd5-8c5359bfb90d/out.jpg)
 
 ---
 
