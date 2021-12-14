@@ -2,21 +2,21 @@
 ---
 
 
-## 灭共尖峰时刻，音雄再度归来
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1753212/)
+## 中共为冬奥会令周边企业停产 民众苦不堪言
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1753214/)
 
-作者：《我是音雄》文宣组  – A Cat
+作者：纽约香草山 – 飞虹
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-由喜马拉雅农场联盟和G-Music倾心打造的2021年度新中国联邦“音乐灭共”节目《我是音雄》第二季，收到了来自全球战友的踊跃报名。自8月28日开始在GTV正式开播以来，迄今已经举办了九场初赛、四场复赛和前三场半决赛，本周六即将进入紧张激烈的最后一轮半决赛。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture3-9.jpg)
-明耀的舞台光芒背后，是参赛战友在导演团队协作下的非凡努力。每一位参赛者从报名，到参赛、磨练技艺和设备调试，都在用亲身经历讲述着自己的成长和灭共故事，更验证了爆料革命历程中彼此的相遇与扶持，演绎着人间的美好奇迹。
+12月12日，有盖特网友发布了一则微信聊天截图，显示中共为了顺利举办冬奥会，要从12月15日开始关停北京周边省份60%的生产企业，直到2022年3月8日。这将导致大量民众短期甚至永久性失业，在经济下滑、通胀持续的情况下收入大幅减少，生活会更加艰难。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture3-11.jpg)
+据悉，近些年来，中共国内空气污染越发严重。每到中共高层举办大型活动，尤其是国际性活动时，为了营造空气治理效果良好的假象，周边多个省份的相关企业都会被限产、停产，以减少污染排放。但为减少影响，他们只会私下通知企业，而不会公开发布命令。这已经成为一个惯例，本次冬奥会自然也不会例外。
 
-复赛晋级后的18位选手经过四轮半决赛后，胜出者将荣登年度“十大音雄”宝座，并参与2022年新年跨年夜总决赛。更多详情和赛事回顾，请关注Gnews“我是音雄”栏目。
+参考链接：[中共为冬奥会令周边企业停产 民众苦不堪言](https://gettr.com/post/pjgt0g6c5c)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-总编：飞虹
-编辑：飞虹
+总编：DM
+编辑：DM
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
@@ -26,8 +26,6 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
