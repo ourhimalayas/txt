@@ -2,166 +2,32 @@
 ---
 
 
-## 中国企业家带上五角帽 也永远不是赵家人
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1753590/)
+## 战友们，将棺材花革命进行到底
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1753635/)
 
-[https://gtv.org/video/id=61b8270aa68b4f4b28e83336](https://gtv.org/video/id=61b8270aa68b4f4b28e83336)
+撰稿人：Microkevin
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide1-22.jpg)
+图片来自战友
+前些天ccp把七哥家人及盘古的一千多名员工甚至连盘古公寓的业主也赶到了大马路上，当时天气零下4摄氏度，许多人只穿着睡衣，连手机和钱包都不让拿走，包括七哥92岁的中风的老爹居然也被他们毫无人性的赶到了大马路上。
 
-郭文贵
-Miles Guo
+不仅仅是手机和钱包等随身物品不让拿，不仅仅是本人的通信手段和银行卡被远程封锁，就连这些相关人的通信和银行卡都被封锁。这么冷的天气不让穿单衣，甚至睡衣，又封死通信和钱财不就是想让七哥的这些员工和家人像长津湖的那些国民党官兵一样冻死饿死么？故计重施，何其卑劣！
 
-吃三年草和中国人不打就不行
-The Chinese people can eat grass for 3 years straight and they can’t live without being beaten
+正因为七哥过去的广结善缘，加之爆料革命和新中国联邦，ccp的卑劣行径不但径没有得逞，反而暴露在了光天化日之下，整个世界尽人皆知。如果没有七哥，没有爆料革命新中国联邦，看看那些被整跨，整死的白手套们及其家人们有多惨就清楚了。
 
-中国人有饭吃就不行
-The Chinese people have food to eat would not work
+当七哥决定在国外用为ccp父母及亲人提前办葬礼的方式反击时，ccp真的是怕了，马上找人来说情。这怎么可能？你打别人一巴掌，再给揉一揉这事就过去了么？深更半夜，大冷天的把这衣衫单薄的一千多人加上一个九十二岁的中风老人放到大街上，并封了通信和经济渠道，你不就是想整死这帮人么？
 
-这都是如出一辙
-All these seem to come from the same rut
+当咱新中国联邦人都是傻子么？我们的家人已经在大街上溜了一宿了。现在我们要反击的时候，你们说现在咱要各退一步？有这好事么？我们中国老百姓跟你ccp提点意见的时候你从来没有说各退一步，都是睚眦必报，而且立马就报对吧？
 
-像万达王健林、像马云、像马化腾
-Just like Wang Jianlin (founder and chairman of Wanda Group), Ma Yun, and Ma Huateng
+战友们这说明什么？说明我们打到了ccp的七寸上，他们的父母，家人和私生子女才是他们最在乎的。七哥说的对，我们就是要用合法的手段，用给他们家人提前送葬的方式让他们犯错，甚至犯罪可以大大加快灭ccp的进程。不要觉得这个方式不人性或者不地道，ccp这100多年的行径从来都是有过之而无不及。
 
-所有的老板都忘了自己出自于草根
-All these bosses have forgotten that they came from the grassroots (the lowest class people)
+咱中国人不能在总是一味的原谅坏人，幻想着坏人总会有良心发现的一天。不能总是一味的道德绑架好人，认为好人就该像圣人似的啥都不能干。而我们也不要把自己装进那种被统治者“精心设计的道德”概念的笼套里。那个狗屁德教社就是前车之鉴。不要再被那个“精心设计的道德”给骗了。
 
-他以为戴个五角星的帽
-They believe that they are wearing the hat with a 5 stars
+真正的道德是在正义和法律的框架下，是要求自己的，而且彼此双方都严格遵守的，才能称之为道德。当一方无视道德，却用所谓的道德来要求别人的时候，那不是道德，那是控制你的枷锁。战友们只要对灭ccp有利，只要在各国合法合规，我们给ccp的父母家人提前送葬就是对他们最讲道德的，最行之有效的加速灭ccp的方式。
 
-像梁安琪一样
-like Leong On-kei (Member of the Legislative Council of Macau)
+战友们!七哥教咱新中国联邦人的原则是什么？对方走一步，咱走十步。莘县阳谷县搭县。在各国法律的框架下，咱给它们来点狠的！
 
-像洗米华一样 是不是？
-and Alvin Chao (Founder of Suncity Group)
-
-就觉得我是共产党的亲儿子了
-they would be the CCP’s biological children
-
-你没想到你永远不是
-They never thought they would never be
-
-那么西方投到的风投和风控这些人
-So the venture capital and risk control people invested by the West
-
-进去以后
-After they entered
-
-带到的美国所有的西方投资家
-all the Western investors in the U.S. brought to
-
-一个最核心的两个问题
-the two core problems
-
-你是不知道的
-you don’t know
-
-第一 真实的投资数据
-First, the real investment data
-
-有战友说，这个恒大9万亿搞错了
-Some comrades in arms have said that they made this Evergrande’s 9 trillion dollars, that’s wrong
-
-是全美国投到中国9万亿
-It should be the U.S. invested a total of 9 trillion dollars in China
-
-千万大家记住，唯真不破
-Everyone, don’t forget the power of truth
-
-千万要唯真不破
-We must keep the truth
-
-所以说这9万亿它是在哪里
-So saying where are the 9 trillion dollars
-
-是美国政府投到中国9万亿
-It’s the 9 trillion dollars that the U.S. government has invested in China
-
-它是投房地产
-It is investment in real estate
-
-可不一定要投到这个恒大房地产
-But it doesn’t have to invest in this Evergrande real estate
-
-恒大有上千种方式
-Evergrande has thousands of methods
-
-完全跟恒大没有关系
-It has nothing to do with Evergrande
-
-在西方拿对冲基金的钱
-that taking money from hedge funds in the West
-
-担保再担保
-guarantee and re-guarantee
-
-无相关关系 第三方
-It’s the third party which no related relationship
-
-是吧？太多招了
-You see, they have too many tricks
-
-你根本不可能在那个数字里边的
-Those money can’t be in that number at all
-
-这叫对冲和风险基金的本质
-This is called the nature of hedge and risk funds
-
-不用公开信息，隐蔽性强
-There is no need to disclose information and strong concealment
-
-风险极大 回报极高
-High risk but high return
-
-玩弄着这两个风险的
-The maniac playing with these two risks
-
-投资者的疯子和那个冒险家
-are the investor maniac and the adventurer,
-
-就是那个恒大 共产党这边
-which is that Evergrande on the CCP side
-
-风和险中间叫什么
-What is it called between the risk and danger?
-
-叫基金经理
-It called the fund manager
-
-挣了 我拿20%
-They’ll take the 20% if you earn money
-
-赔了 我拿2%的管理费、5%管理费
-and take the 2% – 5% management fee if you lose money
-
-挣赔我都拿
-They’ll take your fund management fee no matter you gain or lose money
-
-这叫风险中间 叫基金经理人
-This is called risk middle, the fund manager
-
-就叫金钱妓女和金钱妈咪
-Called money prostitutes and money mommy
-
-* * *
-
-Date: 12/11/2021
-原视频标题: 中国企业家带上五角帽 也永远不是赵家人
-The Chinese Entrepreneurs Will Never Belong to The Zhao Family Even Though They Wearing The CCP Hats
-原视频日期：2021/12/10
-原视频链接: [**https://gettr.com/post/pjejnxf913**](https://gettr.com/post/pjejnxf913)
-任务编号：KC334(3187)
-视频时间段 : 0:00-2:05
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译：洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 ：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+编辑：云彩
+![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

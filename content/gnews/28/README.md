@@ -2,105 +2,166 @@
 ---
 
 
-## 12/14每日播报｜新闻简讯:莫迪推特被盗,普习会谈,农村基地征税
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1753486/)
+## 中国企业家带上五角帽 也永远不是赵家人
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1753590/)
 
-**By:[秘翻新闻](https://gtv.org/broadcast/watch/61b85c7e56f4921401b77b8b)**
+[https://gtv.org/video/id=61b8270aa68b4f4b28e83336](https://gtv.org/video/id=61b8270aa68b4f4b28e83336)
 
-**2021-12-14**
+郭文贵
+Miles Guo
 
-**1.美国空军开除27名拒绝接种疫苗的飞行员**
+吃三年草和中国人不打就不行
+The Chinese people can eat grass for 3 years straight and they can’t live without being beaten
 
-[《网关专家》12月13日消息，美联社周一报道，27名美国飞行员因拒绝接种中共病毒疫苗被美国空军开除。空军发言人安·斯蒂芬克表示，这是第一批因拒绝接种中共病毒疫苗而被开除的军人，被开除的飞行员中，没有人寻求豁免。](https://www.thegatewaypundit.com/2021/12/just-air-force-discharges-27-people-refusing-covid-vaccine/)
+中国人有饭吃就不行
+The Chinese people have food to eat would not work
 
-[上周五，温斯顿·丘吉尔号、海军二号指挥官卢西恩·金斯，也因为拒绝接种中共病毒疫苗而被免职。](https://www.thegatewaypundit.com/2021/12/just-air-force-discharges-27-people-refusing-covid-vaccine/)
+这都是如出一辙
+All these seem to come from the same rut
 
-[与此同时，疯狂的五角大楼正在积极考虑，强制所有现役军人接种中共病毒疫苗。](https://www.thegatewaypundit.com/2021/12/just-air-force-discharges-27-people-refusing-covid-vaccine/)
+像万达王健林、像马云、像马化腾
+Just like Wang Jianlin (founder and chairman of Wanda Group), Ma Yun, and Ma Huateng
 
-秘翻新闻冰糖葫芦喵编译报道
+所有的老板都忘了自己出自于草根
+All these bosses have forgotten that they came from the grassroots (the lowest class people)
 
-**2. 普京和习近平周三举行视讯会谈**
+他以为戴个五角星的帽
+They believe that they are wearing the hat with a 5 stars
 
-[俄罗斯总统普京与中国国家主席习近平将于12月15日举行视讯会谈。](https://www.epochtimes.com/gb/21/12/13/n13435313.htm)
+像梁安琪一样
+like Leong On-kei (Member of the Legislative Council of Macau)
 
-[中共外交部发言人汪文斌13日在例行记者会上证实了这一消息。他说，习近平和普京将总结今年中俄关系和各领域合作成果，并就共同关心的重大国际地区问题交换意见。但汪文斌并没有透露两位元首具体将会涉及哪些议题。](https://www.epochtimes.com/gb/21/12/13/n13435313.htm)
+像洗米华一样 是不是？
+and Alvin Chao (Founder of Suncity Group)
 
-**3.印度总理莫迪推特帐户遭盗　网民猜测中共发动网络战争**
+就觉得我是共产党的亲儿子了
+they would be the CCP’s biological children
 
-[据《香港01》12月13日消息，印度总理办公室12月12日表示，总理莫迪的个人推特帐户遭人盗用，并分享了一个比特币相关链接。](https://www.hk01.com/%E5%8D%B3%E6%99%82%E4%B8%AD%E5%9C%8B/711533/%E5%8D%B0%E5%BA%A6%E7%B8%BD%E7%90%86%E8%8E%AB%E8%BF%AAtwitter%E5%B8%B3%E6%88%B6%E9%81%AD%E7%9B%9C%E7%94%A8-%E7%B6%B2%E6%B0%91%E8%81%B2%E7%A8%B1%E4%B8%AD%E5%9C%8B%E7%99%BC%E5%8B%95%E7%B6%B2%E7%B5%A1%E6%88%B0%E7%88%AD)
+你没想到你永远不是
+They never thought they would never be
 
-[莫迪帐号被盗用期间发布的帖文写道：「印度已正式采用比特币作为法定货币。政府已经购买了500个比特币，并将发给全国居民。今天，未来已经来临。」](https://www.hk01.com/%E5%8D%B3%E6%99%82%E4%B8%AD%E5%9C%8B/711533/%E5%8D%B0%E5%BA%A6%E7%B8%BD%E7%90%86%E8%8E%AB%E8%BF%AAtwitter%E5%B8%B3%E6%88%B6%E9%81%AD%E7%9B%9C%E7%94%A8-%E7%B6%B2%E6%B0%91%E8%81%B2%E7%A8%B1%E4%B8%AD%E5%9C%8B%E7%99%BC%E5%8B%95%E7%B6%B2%E7%B5%A1%E6%88%B0%E7%88%AD)
+那么西方投到的风投和风控这些人
+So the venture capital and risk control people invested by the West
 
-[推特表示，知悉莫迪帐户被盗后，已经即时采取必要措施保护帐户安全，据悉，该账户在2020年9月也曾遭黑客入侵，发文要求支持者通过加密货币捐款给一个救济基金。](https://www.hk01.com/%E5%8D%B3%E6%99%82%E4%B8%AD%E5%9C%8B/711533/%E5%8D%B0%E5%BA%A6%E7%B8%BD%E7%90%86%E8%8E%AB%E8%BF%AAtwitter%E5%B8%B3%E6%88%B6%E9%81%AD%E7%9B%9C%E7%94%A8-%E7%B6%B2%E6%B0%91%E8%81%B2%E7%A8%B1%E4%B8%AD%E5%9C%8B%E7%99%BC%E5%8B%95%E7%B6%B2%E7%B5%A1%E6%88%B0%E7%88%AD)
+进去以后
+After they entered
 
-[印度网友在议论该事件时，将此事与印度国防参谋长坠机一事关联到一起，表示中共似乎已经对我们发起了网络战争。我们已经失去了我们的国防参谋长，现在总理的推特帐户又被入侵。这不是一个好信号。还有印度网友表示：发生了什么？载有国防参谋长的直升机坠毁，然后总理推特帐户被入侵？下一步是什么？中共要在我们的议会里播放国歌了吗？](https://www.hk01.com/%E5%8D%B3%E6%99%82%E4%B8%AD%E5%9C%8B/711533/%E5%8D%B0%E5%BA%A6%E7%B8%BD%E7%90%86%E8%8E%AB%E8%BF%AAtwitter%E5%B8%B3%E6%88%B6%E9%81%AD%E7%9B%9C%E7%94%A8-%E7%B6%B2%E6%B0%91%E8%81%B2%E7%A8%B1%E4%B8%AD%E5%9C%8B%E7%99%BC%E5%8B%95%E7%B6%B2%E7%B5%A1%E6%88%B0%E7%88%AD)
+带到的美国所有的西方投资家
+all the Western investors in the U.S. brought to
 
-秘翻新闻明澈编辑报道
+一个最核心的两个问题
+the two core problems
 
-**4.爱沙尼亚及拉脱维亚总统表态：不会出席北京冬奥会**
+你是不知道的
+you don’t know
 
-[据《镜新闻》12月14日消息，目前已有多国表态抵制北京冬奥会，12日爱沙尼亚总统卡里斯和拉脱维亚总统李维兹均表态不会出席。爱沙尼亚总统更坦言：不参加主因是政治因素。](https://tw.news.yahoo.com/%E8%80%83%E9%87%8F%E6%94%BF%E6%B2%BB%E5%9B%A0%E7%B4%A0-%E6%84%9B%E6%B2%99%E5%B0%BC%E4%BA%9E%E7%B8%BD%E7%B5%B1%E4%B8%8D%E5%87%BA%E5%B8%AD%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A7-%E6%8B%89%E8%84%AB%E7%B6%AD%E4%BA%9E%E4%B9%9F%E8%A1%A8%E6%85%8B-233224024.html)
+第一 真实的投资数据
+First, the real investment data
 
-[拉脱维亚方面，总统李维兹和其他高阶官员都表态不会出席。当地媒体报导，仅拉脱维亚驻中共国大使马尼卡代表出席。](https://tw.news.yahoo.com/%E8%80%83%E9%87%8F%E6%94%BF%E6%B2%BB%E5%9B%A0%E7%B4%A0-%E6%84%9B%E6%B2%99%E5%B0%BC%E4%BA%9E%E7%B8%BD%E7%B5%B1%E4%B8%8D%E5%87%BA%E5%B8%AD%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A7-%E6%8B%89%E8%84%AB%E7%B6%AD%E4%BA%9E%E4%B9%9F%E8%A1%A8%E6%85%8B-233224024.html)
+有战友说，这个恒大9万亿搞错了
+Some comrades in arms have said that they made this Evergrande’s 9 trillion dollars, that’s wrong
 
-秘翻新闻明澈编辑报道
+是全美国投到中国9万亿
+It should be the U.S. invested a total of 9 trillion dollars in China
 
-**5. 国内频繁核酸检测 民众质疑官商勾结敛财**
+千万大家记住，唯真不破
+Everyone, don’t forget the power of truth
 
-[新唐人12月13日消息。近日，有大陆网友曝光，在没有封城的低风险区，人们也被要求做全民核酸检测，民众质疑频繁的核酸检测是官商勾结进行敛财。](https://www.ntdtv.com/gb/2021/12/13/a103292523.html)
+千万要唯真不破
+We must keep the truth
 
-[民众林先生在网上曝光说，“郑州没有封城，搞全民核酸检测打劫医保。欺骗官民，有些是官商勾结。”并称最近他去到江苏省徐州市的邳州，县级的城市在省道拦路检查48小时内的核酸证明，低风险地区全民核酸，一个人是75块钱一次，PCR是120块钱一次。他表示这太赚钱了。](https://www.ntdtv.com/gb/2021/12/13/a103292523.html)
+所以说这9万亿它是在哪里
+So saying where are the 9 trillion dollars
 
-[商人蔡先生表示，到异地要自费做48小时内的核酸证明，各地价格不同。年中他到新疆三个多月，当地没报告疫情，却做了20多次核酸检测。](https://www.ntdtv.com/gb/2021/12/13/a103292523.html)
+是美国政府投到中国9万亿
+It’s the 9 trillion dollars that the U.S. government has invested in China
 
-[国内媒体披露，疫苗企业和核酸检测企业是疫情期间的暴利行业，疫苗龙头企业康泰生物和核酸检测龙头企业圣湘生物，今年前三季度利润分别暴涨一倍多和150倍。](https://www.ntdtv.com/gb/2021/12/13/a103292523.html)
+它是投房地产
+It is investment in real estate
 
-**7.老人去世一年多 行程码显示红色**
+可不一定要投到这个恒大房地产
+But it doesn’t have to invest in this Evergrande real estate
 
-据网友12月12日微博显示，自己半夜收到短信，说自己母亲的行程码是红色。但母亲已经去世一年多，行程码居然变红色，真是令人匪夷所思！
+恒大有上千种方式
+Evergrande has thousands of methods
 
-随后，自己所在社区的工作人员也打来电话表示，接到该红码，且是名单中的时空伴随者。我说那个阳性病例是去阴曹地府游荡了一圈吗？
+完全跟恒大没有关系
+It has nothing to do with Evergrande
 
-社区工作人员和这位网友都想不明白，这个诡异红码是怎么来的。
+在西方拿对冲基金的钱
+that taking money from hedge funds in the West
 
-事情虽然荒诞好笑，但不禁令人深思，中共国所谓的红码黄码，还有用以通行的绿码，凭据究竟是什么?是否背后都可以进行人为操作、控制和修改？然后借此实施控制人民的举措，以此达到不为人知的目的？
+担保再担保
+guarantee and re-guarantee
 
-秘翻新闻菜园子编辑报道
+无相关关系 第三方
+It’s the third party which no related relationship
 
-**8.小米董事长雷军接连辞去多项职务 引发关注**
+是吧？太多招了
+You see, they have too many tricks
 
-[据《新唐人》12月13日消息，近日雷军接连卸任多家关联公司领导职务，引发市场关注。](https://m.ntdtv.com/gb/2021/12/13/a103292303.html)
+你根本不可能在那个数字里边的
+Those money can’t be in that number at all
 
-[据查询平台“天眼查”App显示，雷军已退出小米科技武汉有限公司法定代表人、执行董事兼总经理职务，该公司也由小米通讯技术有限公司全资持股。此后，他又接连退出多家关联公司法定代表人、执行董事或董事长职务。包括广东小米科技有限责任公司、广州小米通讯技术有限公司、广州小米讯息服务有限公司、珠海小米通讯技术有限公司等。](https://m.ntdtv.com/gb/2021/12/13/a103292303.html)
+这叫对冲和风险基金的本质
+This is called the nature of hedge and risk funds
 
-[其中，广州小米信息服务由北京小米移动软件有限公司全资持股，其余三家公司均由小米通讯技术有限公司全资持股。目前小米并未针对此事作出回应。](https://m.ntdtv.com/gb/2021/12/13/a103292303.html)
+不用公开信息，隐蔽性强
+There is no need to disclose information and strong concealment
 
-秘翻新闻二丫、明澈编辑报道
+风险极大 回报极高
+High risk but high return
 
-**9. 年关将近 国内十余城市推出鼓励购房政策**
+玩弄着这两个风险的
+The maniac playing with these two risks
 
-[据“第一财经”12月13日报导，近一个月以来，已至少有10座城市推出鼓励购房政策，包括呼和浩特、 荆门、衡阳、开封、南宁、保定、南通海安、重庆璧山和万州、黔南布依族苗族自治州龙里、六安金寨等。](https://www.epochtimes.com/gb/21/12/13/n13434116.htm)
+投资者的疯子和那个冒险家
+are the investor maniac and the adventurer,
 
-[截至目前，出台楼市松绑或购房补贴政策的基本都是三四线城市。据上海易居房地产研究院数据，被监测的全国百城库存数据已经连续36个月同比正增长，创下5年来的新高，三四线城市的去库存压力最大，且短期难化解](https://www.epochtimes.com/gb/21/12/13/n13434116.htm)
+就是那个恒大 共产党这边
+which is that Evergrande on the CCP side
 
-[鼓励政策包括：地方当局直接提供购房补贴，对农民进城购房给予优惠，以人才或二孩三孩名义给予购房优惠，对商品房契税进行减免，购地下车位也可获得补助等。河北保定市还率先放松特定房屋类型的限购、限价政策。](https://www.epochtimes.com/gb/21/12/13/n13434116.htm)
+风和险中间叫什么
+What is it called between the risk and danger?
 
-**10.中共国农村宅基地正式收税**
+叫基金经理
+It called the fund manager
 
-12月12日网友爆料，自己收到耕地占用税征收通知，农村宅基地开始收税了。收税单位是河南省驻马店市上蔡县党店镇人民政府，收税对象建房占用耕地64平方米，总计收税1408元。
+挣了 我拿20%
+They’ll take the 20% if you earn money
 
-时隔15年，农业税又要交了？不少农民开始犯愁，到底是怎么回事？
+赔了 我拿2%的管理费、5%管理费
+and take the 2% – 5% management fee if you lose money
 
-近日房地产暴雷不断，外资出走，经济下滑，农村宅基地开始收税令人联想纷纷，是否中共地方财政已经枯竭？有网友表示，东税西税搞起来，更反串留言：强烈建议搞呼吸税、睡觉税。
+挣赔我都拿
+They’ll take your fund management fee no matter you gain or lose money
 
-秘翻新闻菜园子编辑报道
+这叫风险中间 叫基金经理人
+This is called risk middle, the fund manager
 
-发布:星星
+就叫金钱妓女和金钱妈咪
+Called money prostitutes and money mommy
 
 * * *
 
-**By 【秘密翻译组-即时新闻播报组】**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/IMAGE-2021-12-13-113746.jpg)
+Date: 12/11/2021
+原视频标题: 中国企业家带上五角帽 也永远不是赵家人
+The Chinese Entrepreneurs Will Never Belong to The Zhao Family Even Though They Wearing The CCP Hats
+原视频日期：2021/12/10
+原视频链接: [**https://gettr.com/post/pjejnxf913**](https://gettr.com/post/pjejnxf913)
+任务编号：KC334(3187)
+视频时间段 : 0:00-2:05
+英听校：洛杉矶盘古农场 – 郭班之樱
+翻译：洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

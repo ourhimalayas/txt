@@ -2,39 +2,26 @@
 ---
 
 
-## 杰森·米勒：盖特即将推出类似抖音一样的短视频功能
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1753762/)
+## 小鹏汽车擅自采集43万张客户人脸
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1753805/)
 
-**【雅典娜快讯】，紧贴时代脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/11-5.jpg)图片来源：Gnews
-整理报道：文泓
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-167.jpg)
+[图片来源](https://m.bjnews.com.cn/detail/159685606115357.html)：
 
-近日，有点像推特的社交应用GETTR（盖特），不久将效仿Instagram Reels和TikTok（抖音）推出该平台新的短视频功能，称为G-Vision，明年2月上线。
+12月14日红星新闻报道，上海小鹏汽车销售服务有限公司向第三方公司购买22台人脸识别摄像设备，于2021年1月至2021年6月期间非法采集上传人脸照片431623张，被上海市徐汇区市场监管局处以罚款10万元。经调查发现，当事人在旗下7家门店安装人脸识别摄像设备，采集消费者面部识别数据，并未经得消费者同意，也无明示、告知消费者收集、使用目的。
 
-谈到社交媒体，其实并没有很多新的理念。这也是为什么前川普总统顾问杰森·米勒先生的倡导新“自由言论”社交应用盖特将目光投向了Instagram Reels和TikTok，作为其下一个功能的灵感来源。
+小鹏汽车成立于2014年，总部位于广州，是广州橙行智动汽车科技有限公司旗下的互联网电动汽车品牌，2020年8月8日凌晨2点，小鹏汽车正式向美国证监会提交IPO文件，拟于纽交所上市，股票代码为“XPEV”，承销商包括美银证券、瑞信、摩根大通等。
 
-这个在今年7月推出的新社交平台，下一步将推出自己的短视频版本，取名为G-Vision。本月早些时候，米勒先生接受了记者采访，谈到了盖特的计划——即将推出的新功能之一是G-Vision。
+中共国手机每安装一款新的APP，都要勾选同意一整页的隐私政策，个人信息不可避免地被收集、使用。每一次交易、浏览、通信，都会留下痕迹。在此过程中，个人信息的超范围收集及由此带来的泄漏和滥用等问题越来越常态化。APP强制、频繁、过度索取权限，欺骗误导用户提供个人信息等问题受到社会广泛关注，特别是近期APP过度索取“麦克风”、“相册”、“通讯录”等权限，除了中共政府收集个人信息，不良商家也在收集分析个人信息。
 
-“大约在（明年）2月1日，我们将推出G-Vision，这将是我们与Instagram Reels和Facebook Stories竞争的短视频”，米勒说：“现在，我们是推特和脸书的市场竞争者……在2022年第一季度末，我会说我们是这些公司再加上TikTok和Instagram的市场竞争者。”
+信息来源：
 
-毫无疑问，在过去几年里，这种短视频已经变得非常流行。看看TikTok和Instagram Reels的飞速崛起就知道了。米勒提到了马克·扎克伯格最近关于Instagram Reels是该平台上主要参与驱动力的评论，目前短视频已作为社交媒体日益流行的一部分。
+[采集超43万张人脸照被罚10万元](https://ml.mbd.baidu.com/r/xZu3p1Dk9a?f=cp&amp;rs=2160184980&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=85103650cfa28436)
 
-米勒说：“这原本只是Instagram的一个次要功能，而它推动了一半以上（流量）……我认为这很有说服力。”
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
 
-短视频G-Vision的加入显然是盖特在吸引年轻受众的一次尝试。一些社交平台，如脸书，正面临年轻用户群的流失，另一方面，TikTok和Instagram Reels却是吸引年轻一代的主要因素。
-
-米勒希望能够利用这种吸引力：“（明年）2月1日是我们的平台发生重大变化的时候，我们将添加G-Vision……这将真正有助于扩大用户和功能。”
-
-新闻链接：[GETTR, the app that copies Twitter, will soon rip off TikTok and Reels (knowtechie.com)](https://knowtechie.com/gettr-the-social-app-that-looks-like-twitter-will-soon-copy-instagram-reels-and-tiktok/)
-
-发布：去中心化Math
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
