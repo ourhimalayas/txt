@@ -2,40 +2,42 @@
 ---
 
 
-## 西喜时事新闻简报 — 美国时事篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1755000/)
+## 韩国：用人脸识别追踪新冠惹争议
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1755011/)
 
-作者：土饭团
+![](https://assets.gnews.org/wp-content/uploads/2021/12/0539e3c89eb80b7e.png)图片来源：GitHub
+翻译：lovemiles
+编辑：守望黎明
 
-[1.Tom Cotton抨击Biden允许中共国“通过武力而非谈判”来威胁台湾](https://www.foxnews.com/media/tom-cotton-slams-biden-allowing-china-threaten-taiwan-by-force)
+韩国当局打算使用人脸识别摄像头，实时跟踪新冠感染者并确保他们戴口罩。这一计划被有些人称为“新极权主义”。
 
-福克斯新闻12月13日电，阿肯色州共和党参议员Tom Cotton周一参加了“特别报道”，在有报道称白宫在民主峰会期间切断了一位台湾部长的视频后，他指责Biden总统“可悲的软弱”。我们需要做的是与台湾站在一起，帮助确保其自治权，并维持海峡两岸的现状。这就是美国现在40年来的政策。
+这套系统将首先于1月份在首尔郊区的富川市进行测试，然后再扩展到其他地区。它要把全市 10,820 个安全摄像头，相连到人工智能和面部识别软件，用于“跟踪活跃病例及其密切接触者的动向，并确定他们是否戴口罩。”
 
-2[.美国太空部队举行战争模拟以测试卫星网络是否受到攻击](https://www.reuters.com/business/aerospace-defense/us-space-force-holds-war-game-test-satellite-network-under-attack-2021-12-14/)
+一位官员表示，需要使用这套系统来减少负责追踪新冠病例的工作量，其中要借助手机卡购买记录和手机位置数据等信息。
 
-路透社12月13日电，就在俄罗斯击落一颗老化的通信卫星后仅数周，美国就在地球表面数英里的地方测试卫星，以应对来自中共国和俄罗斯的威胁的适应性。五角大楼领导人本周正在巡视美国基地，而Biden政府的2023年预算草案正在成形。国防部希望将预算资金的朝向能够威慑到中共国和俄罗斯的军队。
+富川市市长张德川（Jang Deog-cheon）说：“使用面部识别技术将能够进行即时分析，可以减轻人工分析监控资料的负担。”
 
-3[.美国对中共国、缅甸和朝鲜实施全面的人权制裁](https://www.reuters.com/world/asia-pacific/us-issues-human-rights-related-sanctions-adds-sensetime-blacklist-2021-12-10/)
+据路透社报道，该系统还能消除有人感染了新冠却“隐瞒行踪”的问题。
 
-路透社12月13日电，美国周五对与中共国、缅甸、朝鲜和孟加拉国相关的数十人和实体实施广泛的人权制裁，并将中共国人工智能公司商汤科技列入投资黑名单。“我们今天的行动，特别是与英国和加拿大合作的行动，发出了一个信息，即全世界的民主国家将对那些滥用国家权力施加痛苦和压迫的人采取行动”，美国财政部副部长Wally Adeyemo在一份声明中说。
+反对党国民力量党议员朴大哲（Park Dae-chul）称该计划为“新极权主义”的产物。
 
-4.[Blinken前往东南亚深化合作以应对中共国的反击行动](https://www.usnews.com/news/world/articles/2021-12-12/blinken-heads-to-southeast-asia-to-deepen-cooperation-on-china-pushback)
+他说：“未经公众同意，用纳税人的钱通过闭路电视监视和控制公众的行为，是绝对错误的。”
 
-U.S.News & World Report 12月12日电，拜登政府将寻求通过其高级外交官下周访问该地区来加强与东南亚的经济和安全合作，因为它正致力于在印太地区建立一个反对中共国的统一战线。Blinken将追求Biden的目标，把与东南亚国家联盟(ASEAN) 的接触提升到“前所未有”的水平，重点是在中共国的“欺凌”面前加强地区安全基础设施，美国亚洲事务最高外交官Daniel Kritenbrink在出访前告诉记者。
+中国、印度、日本、波兰、俄罗斯和美国的多个州也在探索类似的方法来对新冠感染人群进行追踪。
 
-5[.专家称中共国在战争期间可能对台湾进行“失灵网络攻击”](https://www.aninews.in/news/world/us/disabling-cyberattack-on-taiwan-by-china-possible-during-war-say-experts20211211150142/)
+人脸识别这样的技术当然很容易被滥用，它消除了个人隐私的一切死角。恐怕连写出《1984》一书的乔治奥威尔，都会认为它是匪夷所思的。
 
-ANI 12月11日电，随着中共国继续在台湾海峡施加压力，网络专家警告说，中共国可能会对该岛进行“失灵网络攻击”。台湾的所有“关键基础设施”都由互联网连接，这种联系可能造成“巨大的困难”以及人们普遍的恐慌。中共直接的军事入侵将付出生命代价，并动员美国军队保卫台湾。美国近几个月也在中共国可能攻击台湾的问题上增加了言辞。
+然而，我们现在却正处在这种境况之下。
 
-* * *
+原文链接：[South Korea to Use Facial Recognition Cameras to Track COVID Cases, Ensure Mask Compliance](https://summit.news/2021/12/13/south-korea-to-use-facial-recognition-cameras-to-track-covid-cases-ensure-mask-compliance/)
 
-*审核：Aries的星
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-2.jpeg)
+发布：Peter Xin
 
-
-
+**更多****资讯****，****请关****注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

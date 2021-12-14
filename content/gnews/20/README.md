@@ -2,42 +2,60 @@
 ---
 
 
-## 修行的时间 做正义的事
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1754845/)
+## 【Michael.Tonny专栏】运动员被中共病毒疫苗导致心脏问题
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1754877/)
 
-Time！引发的思考，在岁月的长河中，我们认为时间就是举手抬足看的到的那一分一秒伴随着滴答滴答的声音的时钟。我们埋头只顾着生活，盲目且无知的以为时间对于我们还很长。有人得过且过，有人以偷取他人的时间过活，有人珍惜自己仅有的时间，三者之间有着本质的区别，我们是否可以安静的思考，时间是什么？我们如何认真、清楚的看待时间？
+作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+世界各国政客都在不遗余力的推广中共病毒疫苗，然而疫苗副作用带给世人的伤害，却一刻也没有停止。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/download-13.jpg)
+2021年12月13日，《[Horas decisivas para el “Kun” Agüero: aseguran que anunciará su retiro este miércoles](https://www.eltribuno.com/salta/nota/2021-12-13-9-28-0-horas-decisivas-para-el-kun-aguero-aseguran-que-anunciara-su-retiro-este-miercoles)》报道，阿根廷前锋阿奎罗（Sergio Leonel Agüero del Castillo，或Kun Agüero）将在本周三将宣布退役！令人惋惜！
 
-我们谁都不知道我们每一个人的时间是多少？但万佛万神知道我们每一个人的时间有多少，就好像在我们看不到的地方储存着自己的时间，当你投胎时，就开启了这一世的时间计时器，上天给你或为人或为动物或为植物或是任何生命的一切有形，时间当可以看见并量化，它就像一个记号被记录下来，在我们的认知里，是有形的、看得见的，会一分一秒的在减少。我说时间是记号，是因为在我们的时间里，每分每秒都在呼吸、大脑在不停的运转并支配着我们的行为，它都在记录我们的所思、所做、所为，只要你是这个时间维度的无一例外。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Sergio-Leonel-Aguero-del-Castillo1.jpg)
 
-我们来假设，如果你的头上挂着一个时间计时器，上面写着你还有多少时间的寿命，且它不停的滴答滴答的走着，但你自己却看不到自己头上的时间计时器，上天给你一种选择或是看到对方的计时器或是看到自己的计时器，你会选择前者还是后者。
+阿圭罗曾经在曼城度过了辉煌的10年职业生涯，共为曼城出场390次，打入260球73次助攻，是曼城队史射手王。这样一位优秀的足球运动员，职业生涯却被中共病毒和中共病毒疫苗摧毁。
 
-如果选择前者，我们来看看会发生什么？你看到每一个和你有缘的人的时间计时器，你看到后告诉她（他）的时间还剩下多少，当然这个假设有一个条件，你门并不知道彼此可以看到对方的时间计时器，这会发生两种情况，一种：当你告诉对方时，（她）他并不相信你说的自己所剩的时间还有多少？另外一种：她（他）相信你说的。从而引发截然不同的结果。不信的继续按照自己的思维生活，回到上面三种生活方式的任意一种继续下去，而相信你说的人，他（她）开始思考在自己有限的时间里做哪些值得且有意义的事。这种前者选择的情况似乎不是那么显而易见。
+10月30日，在巴塞罗那主场对阵阿拉维斯的西甲第12轮联赛中，原本首发出场的阿奎罗，在第42分钟突然呼吸困难，他弯下身时指着自己的胸部，被巴西人菲利普·库蒂尼奥 (Philippe Coutinho) 换下，他几乎流着泪离开了比赛，乘坐救护车离开了诺坎普。
 
-那么我们来看后者的选择，每个人可以看到自己的时间计时器，你会在剩下的时间里做什么？Whatever！这回你清楚的看到了自己的时间，可能会恐惧并引发更深层次的思考，Maybe无所谓，Maybe我每一分每一秒都要过得更有意义，因为没有时间可以浪费。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Sergio-Leonel-Aguero-del-Castillo.png)
 
-以上假设只是给大家一个时间概念，并没有量化每个人的时间，当时间被清楚的量化给你，你又会做出什么选择？如果你的寿命是90岁那么你可以活32850天，如果50岁可以活18250天，这两个天数里包括了你白天和黑夜，而白天有一部分时间是用来上厕所、吃饭、发呆、工作……夜晚都在呼呼大睡。活到90岁剔除夜晚的时间大概16425天，你还有16425天的时间醒着做事。在看看50岁类推9125天睡觉，9125天醒着做事。你看到假设活着且清醒的时间是掐指可算后，被量化的时间有多么的少，而当你知道你死后会受这一世所做的善恶让你的灵魂或堕落如魔鬼坠向地狱受无尽的酷刑或净化如天使快乐的升入天堂，你是否会珍惜仅有的时间，并用它来做善事？如果现在的你只剩下一天的生命，而你之前都在做善事你是不是会放心、安详的离开，如果前面的时间都在做恶事，最后的一天里是不是都在悔恨、恐惧、害怕里，最终痛苦的死去。
+随后，巴萨宣布阿圭罗心律失常，将休战三个月。然而，阿圭罗的心脏问题比最初预计的更严重，迫使他不得不终止他的职业生涯。
 
-其实所有的事物只有真与假、善与恶的划分，关键点在于我们的选择。善有大善有小善，恶有大恶有小恶，小恶包括你的嫉妒引发的给对方穿小鞋、耍心机、陷害、排挤、打压、仇恨，更有甚者引发到大恶攻击、伤害、犯罪。小善有为他人祈祷、祝福、站在他人的立场考虑问题、善待和帮助他人，大善是为天下的众生谋福祉为己任。在善里还存在真善和伪善，真善是一颗真心，伪善是心口不一，是真善是伪善我们自己最清楚，你骗得了自己骗不了时间，时间会验证真与假，时间也会记录下来，上天都在看着。至此在时间计时器里做以上事情的结果大相径庭。
+阿奎罗是一名中共病毒和中共病毒疫苗的受害者。今年1月22日，阿奎罗被确诊感染中共病毒。在对阵阿拉维斯比赛前几周前，阿奎罗还在向12岁的孩子推广新冠病毒（CCP病毒）疫苗……
 
-其实我们一直在犯错，因为在自己狭隘的思维模式里认为我没得到，他（她）凭什么得到赞赏、喜爱，这不公平，“公平”二字公和平是在一个共同公正的前提下才会有平，他人有得自然是他付出才会有所得，否则不会天上掉馅饼。所以我们要摆脱狭隘的思维模式，让自己的心胸打开，谚语有云“宰相肚里能撑船、天高任鸟飞、心有多大视野就会有多大、你站的高度决定你的维度”。我们的意识维度只停留在这个有时间概念的维度，我想在万佛万神的国度早已没有时间的概念，或许有人会问为什么没有时间？那么我想请大家思考为什么我们会有时间？时间从哪里来？时间是用来做什么的？为什么我们每一个人在这一世的时间各有不同？我想你这一世的时间是由你的前世所积累，时间在记录着你的一切，衡量着你的一切，它也是引导你去哪里的工具，时间有时候像一个枷锁，套在每个有形的生命体上循环往复，大自然有四季更替，花有花开花落，空气、水、植物、阳光都是我们赖以生存的，没有水不会有最初的单核细胞再到多核细胞，更不会浇灌大地滋养大地，没有空气和植物我们无法呼吸，因为植物是吸收我们的二氧化碳释放出我们需要的氧气，植物间种子的传播又靠风来推动，和煦的阳光温暖、哺育着一切生命，这一切在我们意识中都是用时间来计算的，而我们又在时间的机器里兜兜转转，有与无是相对的，你有时间就会被锁在在时间的枷锁里，而万佛万神早已冲破时间的束缚，看着我们这些无知、迷茫的孩子，并期盼、等待着我们可以早一天回到真正的家。上天给予我们时间其实在给我们一个修行的机会，给了你做善事的时间，请用有限的时间做善事，那就是让灵魂提升的最好方式，俗语“积功累德、造福一方”，就会如天使一般升入神的殿堂。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/FDAPSvnVEAI8qZW.png)
 
-任何宗教都是教人向善，爱是善的体现，而爱的表现形式又有千万种，尊重是爱、感恩是爱、孝敬是爱、帮助是爱、理解是爱、拥抱是爱、亲吻是爱、赞美是爱、抚摸是爱、正义是爱、聆听是爱、开心是爱、接纳是爱、给予是爱、守护是爱、祈祷是爱、祝福是爱…… 爱可以小到一个小小的拥抱，大到可以付出生命去守护真善。当你爱万物、善待万物、感恩万物的时候你就是一尊活着的、行走着的神佛、就是爱的天使，就是在做善事，会感染着你身边有形无形的生命，即而会和万物融为一体，就会冲破时间的束缚，去往万佛万神的国度，回到我们灵魂真正的家！
+阿奎罗注射疫苗后能够幸运的活了下来，但有大量运动员已经倒下和早逝……
 
-郭先生用自己毕生经历感悟到的大智慧，一直在谆谆教诲我们，让我们看清事物的本质、善待他人，多站在对方的立场考虑问题，进而灵魂得以提升。所有列出爱的表现形式都是善，反观我们自己并贯穿到我们的工作、生活中，温暖、善待他人，这就是大善、就是爱、就是善与爱的时间。通过这样修行，我相信总有一天我们会摆脱时间的束缚，升入更高的维度。时间在每一分每一秒的流逝，请守护、善待、尊重、感恩、爱和珍惜我们修行的时间和身边的一切！做正义的事！铲除世界的一切邪恶！
+德国报纸《柏林日报》（Berliner Zeitung）在一篇题为“足球中令人困惑的心脏病”（ [“UNUSUALLY LARGE” NUMBER OF SOCCER PLAYERS WHO HAVE COLLAPSED RECENTLY](https://www.blacklistednews.com/article/81156/german-newspaper-highlights-unusually-large-number-of-soccer-players-who-have-collapsed.html)）的报道中注意到了这种令人不安的心脏骤停模式。该报告试图了解为什么最近出现了异常大量的职业和业余足球运动员突然倒下，很多年轻运动员在接种中共病毒疫苗后正在遭受痛苦和死亡。
 
-Take down the CCP together!
+杰克·卡兹马雷克 (Jake Kazmarek) 是一名 28 岁的健美运动员，在接种中共病毒疫苗四天后意外死亡。另一位最近接种疫苗的运动员在比赛中途昏倒，冰球运动员鲍里斯·萨德基 (Boris Sadecky)（24 岁）突然倒在冰上后死亡。一位名叫迪伦·里奇 (Dylan Rich) 的17岁英格兰足球运动员在比赛中途死于心脏病。一位名叫卢卡斯·苏雷克 (Lucas Surek) 的24岁运动员被查出心律不正常（muscle disorder）后被BFC Chemie Leipzig俱乐部除名。拜仁慕尼黑25岁的金斯利科曼（Kingsley Coman）在接种疫苗后患有心律失常，不得不接受心脏手术。比利时年仅18岁的Rune Coghe在一场比赛中心脏病突然发作。伊斯坦布尔31岁的 Fabrice N’ Sakala 突然倒在球场上，不得不被送往医院。比特菲尔德（Bitterfeld）队队长迪特玛·格拉多（Dietmar Gladow）在赛前也心脏病发作。Gifhorn业余爱好者Marvin Schumann在比赛中心脏骤停，被急救。JSG Hoher Hagen不得不在Hannoversch Munden 的一场足球比赛中去急救一名 17 岁的球员。
 
-原创作者：Ange7
+根据日本卫生部（Japan’s Health Ministry）公布的数据，截至2021年11月14日记录的官方数据，每100万名接种 Moderna 疫苗的男性青少年，就有80例心肌炎！对于20多岁的男性来说，每100万剂就有48例心肌炎。辉瑞疫苗也表现出类似的问题，每100万青少年男性中有15例心肌炎，20多岁的男性每100万剂中有13例心肌炎。
 
-上传：米線
+mRNA疫苗是市场上最危险的疫苗！
 
+在以色列最大的医疗保健组织Clalit Health Services 的数据库中，大型医疗机构接种中共病毒疫苗后的反馈数据显示，在16至29岁年龄组中，每100万人中约有100例心肌炎。
 
+中共病毒疫苗正在祸害全世界，突发心脏病猛增，儿童被查出患有心脏病，足球运动员在球场上突然摔倒……
 
+停止毒疫苗！
 
+参考数据：
 
+[Japan Health Ministry issues HEART WARNING for Pfizer and Moderna covid vaccines](https://www.naturalnews.com/2021-12-10-japan-health-ministry-issues-heart-warning-covid-vaccines.html)
 
+[The world is starting to notice how many young athletes are DYING after taking covid vaccines](https://naturalnews.com/2021-11-10-world-starting-to-notice-how-many-young-athletes-are-dying-after-covid-vaccination.html)
+
+[Myocarditis after Covid-19 Vaccination in a Large Health Care Organization](https://www.nejm.org/doi/full/10.1056/NEJMoa2110737)
+
+[GERMAN NEWSPAPER HIGHLIGHTS “UNUSUALLY LARGE” NUMBER OF SOCCER PLAYERS WHO HAVE COLLAPSED RECENTLY](https://www.blacklistednews.com/article/81156/german-newspaper-highlights-unusually-large-number-of-soccer-players-who-have-collapsed.html)
+
+[Horas decisivas para el “Kun” Agüero: aseguran que anunciará su retiro este miércoles](https://www.eltribuno.com/salta/nota/2021-12-13-9-28-0-horas-decisivas-para-el-kun-aguero-aseguran-que-anunciara-su-retiro-este-miercoles)
+
+[Health ministry warns of vaccine’s side effects](https://www3.nhk.or.jp/nhkworld/en/news/20211204_12/)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/) 上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 
