@@ -15,104 +15,104 @@
 
 ---
 
-### [随着恒大佳兆业的正式违约，众多港股大跌](/content/gnews/1/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [中共网信办持续打压社交媒体 新浪微博屡遭重罚](/content/gnews/2/README.md)
- ` 日本东京方舟农场`
-
-### [吉尔.拜登被问到乔.拜登精神健康问题时面露不悦](/content/gnews/3/README.md)
- ` MG FARM`
-
-### [美议员致函迪斯尼要求其解释为何删除涉“六四”内容剧集](/content/gnews/4/README.md)
- ` 日本东京方舟农场`
-
-### [曝光：CDC、NIH 官员与 EcoHealth 合作，在武汉对蝙蝠冠状病毒进行非法功能获得研究](/content/gnews/5/README.md)
+### [自 8 月以来，90% 的“covid”死亡发生在完全接种疫苗的情况下](/content/gnews/1/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [英国议员Steve Baker 谈为什么要反对B计划限制](/content/gnews/6/README.md)
- ` 日本东京方舟农场`
+### [韩国家长抗议学生疫苗接种证明](/content/gnews/2/README.md)
+ ` 喜马拉雅农场新西兰站`
 
-### [七哥七问出版书（2021-12-12摘录）](/content/gnews/7/README.md)
- ` MG FARM`
-
-### [共和党代表抨击迪斯尼《辛普森一家》与中共国相关剧情被删减](/content/gnews/8/README.md)
+### [又一研究证实自然免疫比辉瑞疫苗更能保护人们免受感染](/content/gnews/3/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [掌握共产党的历史和脉搏](/content/gnews/9/README.md)
+### [随着恒大佳兆业的正式违约，众多港股大跌](/content/gnews/4/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [中共网信办持续打压社交媒体 新浪微博屡遭重罚](/content/gnews/5/README.md)
+ ` 日本东京方舟农场`
+
+### [吉尔.拜登被问到乔.拜登精神健康问题时面露不悦](/content/gnews/6/README.md)
+ ` MG FARM`
+
+### [美议员致函迪斯尼要求其解释为何删除涉“六四”内容剧集](/content/gnews/7/README.md)
+ ` 日本东京方舟农场`
+
+### [曝光：CDC、NIH 官员与 EcoHealth 合作，在武汉对蝙蝠冠状病毒进行非法功能获得研究](/content/gnews/8/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [英国议员Steve Baker 谈为什么要反对B计划限制](/content/gnews/9/README.md)
+ ` 日本东京方舟农场`
+
+### [七哥七问出版书（2021-12-12摘录）](/content/gnews/10/README.md)
+ ` MG FARM`
+
+### [共和党代表抨击迪斯尼《辛普森一家》与中共国相关剧情被删减](/content/gnews/11/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [掌握共产党的历史和脉搏](/content/gnews/12/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [七哥谈人类扁平化发展（2021-12-12摘录）](/content/gnews/10/README.md)
+### [七哥谈人类扁平化发展（2021-12-12摘录）](/content/gnews/13/README.md)
  ` MG FARM`
 
-### [战争状态，愤怒&#8211;渥太华下议院使用中国制造的口罩引起了愤怒](/content/gnews/11/README.md)
+### [战争状态，愤怒&#8211;渥太华下议院使用中国制造的口罩引起了愤怒](/content/gnews/14/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [七哥谈邪恶势力（2021-12-12摘录）](/content/gnews/12/README.md)
+### [七哥谈邪恶势力（2021-12-12摘录）](/content/gnews/15/README.md)
  ` MG FARM`
 
-### [七哥谈冬奥会55天后（2021-12-12摘录）](/content/gnews/13/README.md)
+### [七哥谈冬奥会55天后（2021-12-12摘录）](/content/gnews/16/README.md)
  ` MG FARM`
 
-### [纽约时报承认 FDA 批准的默克 COVID 新药实际上会改变健康的人类基因并影响男性生育能力](/content/gnews/14/README.md)
+### [纽约时报承认 FDA 批准的默克 COVID 新药实际上会改变健康的人类基因并影响男性生育能力](/content/gnews/17/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [七哥谈共产主义邪教（2021-12-12摘录）](/content/gnews/15/README.md)
+### [七哥谈共产主义邪教（2021-12-12摘录）](/content/gnews/18/README.md)
  ` MG FARM`
 
-### [为什么欧洲与大流行的斗争即将变得更加危险](/content/gnews/16/README.md)
+### [为什么欧洲与大流行的斗争即将变得更加危险](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥谈相对性（2021-12-12摘录）](/content/gnews/17/README.md)
+### [七哥谈相对性（2021-12-12摘录）](/content/gnews/20/README.md)
  ` MG FARM`
 
-### [爆料革命日记（六） 灵魂伴侣](/content/gnews/18/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [七哥谈为了爆料革命和新中国联邦（2021-12-12摘录）](/content/gnews/19/README.md)
- ` MG FARM`
-
-### [专家称对激烈爆发的Omicron毒株乐观是幻想](/content/gnews/20/README.md)
+### [专家称对激烈爆发的Omicron毒株乐观是幻想](/content/gnews/21/README.md)
  ` 丁过`
 
-### [韩国：用人脸识别追踪新冠惹争议](/content/gnews/21/README.md)
+### [韩国：用人脸识别追踪新冠惹争议](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
 
-### [西喜时事新闻简报 — 美国时事篇](/content/gnews/22/README.md)
+### [西喜时事新闻简报 — 美国时事篇](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [GTV新闻访谈简报|2021年12月14日早](/content/gnews/23/README.md)
+### [GTV新闻访谈简报|2021年12月14日早](/content/gnews/24/README.md)
  ` 纽约香草山MOS01`
 
-### [布林肯批评中共在印太地区的“侵略行动”](/content/gnews/24/README.md)
+### [布林肯批评中共在印太地区的“侵略行动”](/content/gnews/25/README.md)
  ` HimalayaRussia`
 
-### [专家说2022年中共将通过贸易战削弱澳大利亚](/content/gnews/25/README.md)
+### [专家说2022年中共将通过贸易战削弱澳大利亚](/content/gnews/26/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [三亚市民：三亚市现在的生意特别惨淡哪！](/content/gnews/26/README.md)
+### [三亚市民：三亚市现在的生意特别惨淡哪！](/content/gnews/27/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [疫苗真相：mRNA创始人罗伯特·马龙谈孩子为什么不能打新冠病毒疫苗](/content/gnews/27/README.md)
+### [疫苗真相：mRNA创始人罗伯特·马龙谈孩子为什么不能打新冠病毒疫苗](/content/gnews/28/README.md)
  ` 秘密翻译组-原创组`
 
-### [耐人玩味：伊维菌素为什么被阻止治疗新冠病毒](/content/gnews/28/README.md)
+### [耐人玩味：伊维菌素为什么被阻止治疗新冠病毒](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [商汤科技因受制裁延迟港交所上市](/content/gnews/29/README.md)
+### [商汤科技因受制裁延迟港交所上市](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [G7与东盟强化合作对抗中共](/content/gnews/30/README.md)
+### [G7与东盟强化合作对抗中共](/content/gnews/31/README.md)
  ` GTV News Talk`
 
-### [日本供水系统经营权将私有化？](/content/gnews/31/README.md)
+### [日本供水系统经营权将私有化？](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [辉瑞疫苗推广早期已记录16万例不良反应](/content/gnews/32/README.md)
+### [辉瑞疫苗推广早期已记录16万例不良反应](/content/gnews/33/README.md)
  ` GTV新闻访谈`
-
-### [12/14/21 香港快讯 民研：市民对「香港人」身份认同感 创新低](/content/gnews/33/README.md)
- ` 英喜-粵語組`
 
 ### [中国移动拟在A股圈钱560亿元](/content/gnews/34/README.md)
  ` GTV新闻访谈`
