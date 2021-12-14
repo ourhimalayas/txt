@@ -2,21 +2,12 @@
 ---
 
 
-## 樱花灭共诗——登阅江楼
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1752473/)
+## 美国感染中共病毒人数突破5000万
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1752475/)
 
-#### 作者：东京樱花团/小小杜
-![](https://assets.gnews.org/wp-content/uploads/2021/07/%E5%9B%BE%E7%89%871-7-scaled.jpg)
-满目春花里，东风独寂寥。
-
-白云天地阔，青草夕阳消。
-
-故国悲长史，江楼俯大潮。
-
-古来何所似，繁盛易疏凋。
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1214-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/平安卿卿*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
