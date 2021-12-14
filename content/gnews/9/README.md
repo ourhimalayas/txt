@@ -2,10 +2,10 @@
 ---
 
 
-## 安全专家警告运动员可能在北京冬奥会期间遭受中共监视
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1754195/)
+## 娜塔丽：当权派认为真的可以通过疫苗控制美国和人民
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1754213/)
 
-12/10/2021 安全专家警告澳大利亚运动员可能在北京冬奥会期间遭受中共的监视
+12/10/2021 班农战斗室：当权派认为真的可以控制美国和人民，只需通过一种叫做疫苗的小东西
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
