@@ -2,31 +2,40 @@
 ---
 
 
-## 七哥谈歌手签约（2021-12-12摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1754977/)
+## 西喜时事新闻简报 — 美国时事篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1755000/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+作者：土饭团
 
-来源：郭先生2021-12-12直播08：59：43 摘录
+[1.Tom Cotton抨击Biden允许中共国“通过武力而非谈判”来威胁台湾](https://www.foxnews.com/media/tom-cotton-slams-biden-allowing-china-threaten-taiwan-by-force)
 
-这些奖的设置者是背后的大佬。最近我听说他们都很不高兴，说这个Miles Guo的事情很危险，我们得采取办法。知道咱惹了谁？共产党我们这敌人，还有独裁政府，绝不愿意看到 Miles Gou 和爆料革命这样的事发生。所有音乐界歌手都不愿看到我们发生，靠这个赚钱的，这个行业背后的大佬，绝不愿意看到我们这事发生。最后靠这个这些平台 iTunes MV 更不愿意看到你这样发生的，他都很难面对。前天下午，一个好莱坞的哥们给我发信息，Miles 你应该要给我们签约，你再不签约很危险。哎？用的话就是英文要说成不好是 No good 的可以，但是说 Very Dangerous，这话就有威胁性了。哎，我说这个dangerous是什么意思啊，我说我又不要你钱，又不要你们颁奖的，你dangerous什么意思啊。他说你这是很不好，你用了我们这些平台，你不给我们签约你到底算不算歌手？我说我不想当歌手啊。他说那你应该给我们个签约，按规矩来这是美国不是中国。我说美国是不是规定，是我让人一定要给你签约，签约是不是得要你钱，他说签约可以给你钱，哪怕要一块钱也行。但是你得出专辑，你得跟我们合作，这是直接对着我来的，这是好莱坞的前三号大佬之一啊。是班农同志的好朋友，是非常非常牛的牛的人。我告诉他，永远我不可能跟任何人签合同，我永远不会有任何一分钱来自音乐，永远不可能跟你这帮孙子合作。我就用着非常脏的词把他骂一顿。昨天班农先生跟我说，哎，听说发生事了是吧，怎么讲。这就是今天，你们没有看到这个榜的背后所诞生的力量，也是为什么共产党花几亿美元他要打压咱这个歌。他真的不是简单的 HCoin to The Moon，HCoin to The Moon。这已经不这么简单了，他现在是一个呐喊的声音，他不是兔子梦了。这是我们一个对几大势力，一个自然性的反应，造成了自然的力量。这就像斯大林，萨达姆，希特勒和毛泽东倾一党一国之力要干的事情，我们大家就是自然而然干成了。你去想想，木兰一个人挑战了好莱坞的游戏规则，傻乎乎的他就自己给玩了，唐平，威廉王，QMay这帮人就直接咱就把人给颠覆了。规则给颠覆了。
+福克斯新闻12月13日电，阿肯色州共和党参议员Tom Cotton周一参加了“特别报道”，在有报道称白宫在民主峰会期间切断了一位台湾部长的视频后，他指责Biden总统“可悲的软弱”。我们需要做的是与台湾站在一起，帮助确保其自治权，并维持海峡两岸的现状。这就是美国现在40年来的政策。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+2[.美国太空部队举行战争模拟以测试卫星网络是否受到攻击](https://www.reuters.com/business/aerospace-defense/us-space-force-holds-war-game-test-satellite-network-under-attack-2021-12-14/)
 
-**关注我们**
+路透社12月13日电，就在俄罗斯击落一颗老化的通信卫星后仅数周，美国就在地球表面数英里的地方测试卫星，以应对来自中共国和俄罗斯的威胁的适应性。五角大楼领导人本周正在巡视美国基地，而Biden政府的2023年预算草案正在成形。国防部希望将预算资金的朝向能够威慑到中共国和俄罗斯的军队。
 
-Discord 账号
+3[.美国对中共国、缅甸和朝鲜实施全面的人权制裁](https://www.reuters.com/world/asia-pacific/us-issues-human-rights-related-sanctions-adds-sensetime-blacklist-2021-12-10/)
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+路透社12月13日电，美国周五对与中共国、缅甸、朝鲜和孟加拉国相关的数十人和实体实施广泛的人权制裁，并将中共国人工智能公司商汤科技列入投资黑名单。“我们今天的行动，特别是与英国和加拿大合作的行动，发出了一个信息，即全世界的民主国家将对那些滥用国家权力施加痛苦和压迫的人采取行动”，美国财政部副部长Wally Adeyemo在一份声明中说。
 
-Gettr 账号
+4.[Blinken前往东南亚深化合作以应对中共国的反击行动](https://www.usnews.com/news/world/articles/2021-12-12/blinken-heads-to-southeast-asia-to-deepen-cooperation-on-china-pushback)
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+U.S.News & World Report 12月12日电，拜登政府将寻求通过其高级外交官下周访问该地区来加强与东南亚的经济和安全合作，因为它正致力于在印太地区建立一个反对中共国的统一战线。Blinken将追求Biden的目标，把与东南亚国家联盟(ASEAN) 的接触提升到“前所未有”的水平，重点是在中共国的“欺凌”面前加强地区安全基础设施，美国亚洲事务最高外交官Daniel Kritenbrink在出访前告诉记者。
+
+5[.专家称中共国在战争期间可能对台湾进行“失灵网络攻击”](https://www.aninews.in/news/world/us/disabling-cyberattack-on-taiwan-by-china-possible-during-war-say-experts20211211150142/)
+
+ANI 12月11日电，随着中共国继续在台湾海峡施加压力，网络专家警告说，中共国可能会对该岛进行“失灵网络攻击”。台湾的所有“关键基础设施”都由互联网连接，这种联系可能造成“巨大的困难”以及人们普遍的恐慌。中共直接的军事入侵将付出生命代价，并动员美国军队保卫台湾。美国近几个月也在中共国可能攻击台湾的问题上增加了言辞。
+
+* * *
+
+*审核：Aries的星
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-2.jpeg)
+
+
+
 
  
 
