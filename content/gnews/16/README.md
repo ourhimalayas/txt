@@ -2,61 +2,99 @@
 ---
 
 
-## 参议员汤姆·科顿： 我们必须继续与台湾站在一起，帮助确保其自治
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1752697/)
+## 视频| 音乐是主导人类的“武器”以及这次打榜背后的真相（下）
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1752718/)
 
-参议员汤姆·科顿： 我们必须继续与台湾站在一起，帮助确保其自治，并维持现状。 拜登总统不能跪下向 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 北京磕头。
+## 摘自2021.12.12郭先生大直播
 
-
-
-> We must continue to stand alongside Taiwan, help secure its autonomy, and maintain the status quo.
-> 
-> President Biden cannot kowtow to Beijing. [pic.twitter.com/kBQEcYm48y](https://t.co/kBQEcYm48y)
-> — Tom Cotton (@SenTomCotton) [December 14, 2021](https://twitter.com/SenTomCotton/status/1470553827082440705?ref_src=twsrc%5Etfw)
+制作：香草山视频部
 
 
 
-众议员布莱恩·马斯特： 山中无老虎，猴子称大王。 乔·拜登的无能意味着俄罗斯和 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 可以——而且将会——接管(世界)。 【视频中马斯特说，[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 已经吞掉了香港，接下来要拿下台湾，丝毫不顾及美国，因为他们嗅到了拜登政府的软弱】
+更重要的事情我们突破了四个最核心的
+所有政权不愿意看到的
+一个不是歌手搞出的动静比歌手还大
+你见过有一个不是专业歌手
+不把它当成为生的把生活工具的
+搞成这么大动静的有吗没有的
+这是这个榜上所没有体现的力量
+第2个我们这是让所有人都接受不了
+你本人既不是专业歌手
+你连你的上榜方式打榜方式被听的方式
+都不在规则之内，非专业团队
+但人家好莱坞的专业团队谁受得了啊
+给我们工作的好莱坞团队都看我们都不爽了
+是所有的专业人士
+靠这吃饭的，也看不惯
+政治家觉得我失去了控制
+在我控制范围之外
+这么一个货突然闯进来了啊
+我们看到一群的猪
+结果突然猪群这边来了一只豹子
+来了一只狮子
+直接来了以后完全跟他不一样的规矩
+第3个，是很可怕，金融方式
+这东西是靠钱来统治你的
+说这个小子不但不要钱
+他还往外拿钱，捐钱
+那以后谁都这么干，我们怎么控制呢
+第四，你唯一的发行渠道就是iTunesMV
+没有中国的 只有billboard榜
+你就在我这个范围之内啊
+我在打压的情况下
+你也是在我的范围
+别的不认可呀
+什么中国华谊 中国这奖那奖
+谁理你呀
+这些奖的设置者是背后的大佬
+最近我听说他们都很不高兴
+说这个Miles Guo的事情很危险
+我们得采取办法了
+所以说咱惹了谁
+共产党我们的敌人，还有独裁政府
+绝不愿意看到Miles Guo现象
+和爆料革命现象发生
+所有音乐界歌手都不愿意看到我们发生
+靠这个赚钱的这个行业背后的大佬
+绝不愿意看到这个发生
+最后靠这个这些平台iTunesMV
+更不愿意看到你们发生了
+他这个很难面对
+他说那你应该给我们签约
+按规矩来，这是美国不是中国
+我说美国是不是规定
+是我一定要跟你签约
+签约是不是要给你钱
+他们说是可以给你钱
+哪怕要1块钱也行
+但是你得出专辑啊
+你也得跟我们合作
+这是直接对着我来的
+这是好莱坞的前3号大佬之一
+是非常非常牛的牛的人
+我告诉他，永远我不可能跟任何人签合同
+我永远不会有任何1分钱来自音乐
+永远不可能跟你这帮孙子合作
+这就是今天你们没有看到
+这个榜的背后所诞生的力量
 
 
 
-> While the cat’s away, the mice will play. 
-> 
-> Joe Biden’s incompetence means Russia and China can – and will – take over. [pic.twitter.com/hfGd7WtzXG](https://t.co/hfGd7WtzXG)
-> — Rep. Brian Mast (@RepBrianMast) [December 14, 2021](https://twitter.com/RepBrianMast/status/1470567786250391558?ref_src=twsrc%5Etfw)
+发稿：雪梨
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/M12.jpg)
 
+**更多资讯，更多关注**
 
-众议员克里斯·斯图尔德： 我们在莫斯科、德黑兰和北京的对手将考验拜登总统以扩大他们的权力和影响范围。 不幸的是，目前尚不清楚拜登是否或如何回应。 【附斯图尔德众议员在福克斯的视频采访】
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-> Our adversaries in Moscow, Tehran and Beijing are going to test President Biden to expand their power and spheres of influence.
-> 
-> Unfortunately, it isn’t at all clear if or how Biden will respond. [pic.twitter.com/CFxOAwRaLO](https://t.co/CFxOAwRaLO)
-> — Rep. Chris Stewart (@RepChrisStewart) [December 13, 2021](https://twitter.com/RepChrisStewart/status/1470495723703652369?ref_src=twsrc%5Etfw)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-
-
-参议员汤姆·科顿： 比尔·克林顿曾表示，“如此多的美国人担心一个强大的 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 对世界的影响，这很滑稽”。 他错了，他所嘲笑的美国人是对的。 20年前，[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 加入了世贸组织，标志着对我国的工业基础、经济和工人阶级造成巨大空洞的开始。 这是我国历史上最大的外交政策错误之一。我们与 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的贸易关系根本不正常，我们无法承担让这种关系永久存在下去。 我们必须结束与中共国的“永久正常贸易关系”。
-
-
-
-> Bill Clinton once said that it was “ironic that so many Americans are concerned about the impact on the world of a strong China.” He was wrong, and the Americans he derided were right.[https://t.co/u4WZQdVy3A](https://t.co/u4WZQdVy3A)
-> — Tom Cotton (@SenTomCotton) [December 13, 2021](https://twitter.com/SenTomCotton/status/1470481887286153216?ref_src=twsrc%5Etfw)
-
-
-
-前国务卿迈克·蓬佩奥： 我们教导我们的年轻人，这些才华横溢的运动员们畅所欲言。 他们将要去 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)，如果其中一个人说“西藏自由”，或“对香港人民有好处”，或“我支持台湾”，他们就可能得不到出境签证。很自豪通过了两党的2022财年国防授权法案 [#FY22NDAA](https://twitter.com/hashtag/FY22NDAA?src=hashtag_click)，该法案旨在帮助支持我们的军队及其家人，并解决我们国家今天面临的许多日益严重的国家安全威胁，包括来自 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CC](https://twitter.com/hashtag/CC?src=hashtag_click)​​P、俄罗斯、伊朗等国的威胁。 阅读更多所包含的有关我的优先事项：
-
-
-
-> Proud to pass the bipartisan [#FY22NDAA](https://twitter.com/hashtag/FY22NDAA?src=hash&amp;ref_src=twsrc%5Etfw) to help support our military and their families, & address the many growing national security threats our nation faces today, including the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw), Russia, Iran & more.
-> 
-> Read more about my priorities that were included: [https://t.co/aS6Y3AksF3](https://t.co/aS6Y3AksF3)
-> — Rep. Mike Waltz (@michaelgwaltz) [December 13, 2021](https://twitter.com/michaelgwaltz/status/1470462404542746629?ref_src=twsrc%5Etfw)
-
-
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

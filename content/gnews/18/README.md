@@ -2,114 +2,61 @@
 ---
 
 
-## 视频| 郭先生谈习公主的那些事
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1752690/)
+## 参议员汤姆·科顿： 我们必须继续与台湾站在一起，帮助确保其自治
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1752697/)
 
-## 摘自2021.12.12郭先生大直播
-
-制作：香草山视频部
+参议员汤姆·科顿： 我们必须继续与台湾站在一起，帮助确保其自治，并维持现状。 拜登总统不能跪下向 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 北京磕头。
 
 
 
-习的女儿真的名字叫木子
-护照上叫李木子
-就在我直播前，我都知道她在哪儿
-她住在党校旁边
-跟李长春是隔壁邻居
-她大概有60个人的服务特警
-但是她经常来美国
-她也在这儿有房子
-生活你看到她那个粉钻
-劳斯莱斯、私人飞机
-奢华的比这夸张不知到有多少倍了
-习对家人的爱和照顾
-对母亲，对自己的弟妹
-他对自己家族的维护
-超出你常人的想象
-他这个女儿生活奢侈
-远比你亮出的粉钻还要厉害得多得多
-她给香港任何一个大佬说
-哎..给我拿100个亿，我去消遣一下
-100个亿能买啥？
-你看到那些能买一万遍
-我不要买钻石，我把钻石矿都买了
-下1分钟就办成
-De Beers的老板见了习的家人以后
-当时买完了离开以后说
-这是谁呀？说这是习的家人
-哇..这个老板从楼上冲下来
-把所有的人都骂一顿，你为什么不叫我？
-为什么不跟我说？暴怒
-钻石大王，是吧？
-黑白两道，这么大动静
-竟然是失态到极点，大家全都傻了
-说这哥们儿，跟他工作二、三十年
-没见他发过脾气，骂过人
-习的家人这么厉害吗？
-他说我告诉你
-只要习的家人爱上我们
-我们马上就翻身百倍
-这是哪年？我告诉大家
-2007年
-我们的李木子小姐，出国是什么？
-跟着爸妈出国
-没有一个人敢偷拍她的照片的
-你偷拍的结局就像金正恩一样
-用狗决了你，用犬吃了你
-习近平瞪一下人
-不一定把人吓死
-如果李木子和彭丽媛要看到哪个将军说
-我瞪眼看将军的时候
-咬咬牙…他绝对吓死
-房峰辉第一个惹上的人是谁呀？
-就是彭丽媛
-他老拿阎维文不当回事儿
-最后房峰辉被抓了吧，抓得很彻底吧
-人家习的女儿李木子出来
-很多人都没见过她本人
-她有各种身份出席，很多傻瓜
-包括马化腾这么聪明的人
-一开始他并不知道是习的女儿
-人家给他接触了几次以后
-这个人可以留着用
-但是绝对要注意他跟西方的亲近
-你还见马化腾出过国吗？
-就跟马云一样
-说马云这个人他是有野心的搞政治野心的
-他必须被干掉
-哪天我给你放出来公主的照片
-公主的视频、公主的生活
-兄弟姐妹们记住
-七哥在今天爆料承诺
-我会把李木子的生活照片
-过去放给你们
-看看我2017年爆料的时候
-我在哈佛大学，在李木子的宿舍外面
-我录的那一段视频
-没有一个人到现在发现的
-在哈佛大学时候
-奥巴马政府就已经给她
-一个专业的特勤局团队保护的
-那个时候的公主就那么牛了
-你想今天呢？
+> We must continue to stand alongside Taiwan, help secure its autonomy, and maintain the status quo.
+> 
+> President Biden cannot kowtow to Beijing. [pic.twitter.com/kBQEcYm48y](https://t.co/kBQEcYm48y)
+> — Tom Cotton (@SenTomCotton) [December 14, 2021](https://twitter.com/SenTomCotton/status/1470553827082440705?ref_src=twsrc%5Etfw)
 
 
 
-发稿：雪梨
+众议员布莱恩·马斯特： 山中无老虎，猴子称大王。 乔·拜登的无能意味着俄罗斯和 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 可以——而且将会——接管(世界)。 【视频中马斯特说，[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 已经吞掉了香港，接下来要拿下台湾，丝毫不顾及美国，因为他们嗅到了拜登政府的软弱】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/M12.jpg)
 
-**更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+> While the cat’s away, the mice will play. 
+> 
+> Joe Biden’s incompetence means Russia and China can – and will – take over. [pic.twitter.com/hfGd7WtzXG](https://t.co/hfGd7WtzXG)
+> — Rep. Brian Mast (@RepBrianMast) [December 14, 2021](https://twitter.com/RepBrianMast/status/1470567786250391558?ref_src=twsrc%5Etfw)
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+众议员克里斯·斯图尔德： 我们在莫斯科、德黑兰和北京的对手将考验拜登总统以扩大他们的权力和影响范围。 不幸的是，目前尚不清楚拜登是否或如何回应。 【附斯图尔德众议员在福克斯的视频采访】
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+> Our adversaries in Moscow, Tehran and Beijing are going to test President Biden to expand their power and spheres of influence.
+> 
+> Unfortunately, it isn’t at all clear if or how Biden will respond. [pic.twitter.com/CFxOAwRaLO](https://t.co/CFxOAwRaLO)
+> — Rep. Chris Stewart (@RepChrisStewart) [December 13, 2021](https://twitter.com/RepChrisStewart/status/1470495723703652369?ref_src=twsrc%5Etfw)
+
+
+
+参议员汤姆·科顿： 比尔·克林顿曾表示，“如此多的美国人担心一个强大的 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 对世界的影响，这很滑稽”。 他错了，他所嘲笑的美国人是对的。 20年前，[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 加入了世贸组织，标志着对我国的工业基础、经济和工人阶级造成巨大空洞的开始。 这是我国历史上最大的外交政策错误之一。我们与 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的贸易关系根本不正常，我们无法承担让这种关系永久存在下去。 我们必须结束与中共国的“永久正常贸易关系”。
+
+
+
+> Bill Clinton once said that it was “ironic that so many Americans are concerned about the impact on the world of a strong China.” He was wrong, and the Americans he derided were right.[https://t.co/u4WZQdVy3A](https://t.co/u4WZQdVy3A)
+> — Tom Cotton (@SenTomCotton) [December 13, 2021](https://twitter.com/SenTomCotton/status/1470481887286153216?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿迈克·蓬佩奥： 我们教导我们的年轻人，这些才华横溢的运动员们畅所欲言。 他们将要去 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)，如果其中一个人说“西藏自由”，或“对香港人民有好处”，或“我支持台湾”，他们就可能得不到出境签证。很自豪通过了两党的2022财年国防授权法案 [#FY22NDAA](https://twitter.com/hashtag/FY22NDAA?src=hashtag_click)，该法案旨在帮助支持我们的军队及其家人，并解决我们国家今天面临的许多日益严重的国家安全威胁，包括来自 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CC](https://twitter.com/hashtag/CC?src=hashtag_click)​​P、俄罗斯、伊朗等国的威胁。 阅读更多所包含的有关我的优先事项：
+
+
+
+> Proud to pass the bipartisan [#FY22NDAA](https://twitter.com/hashtag/FY22NDAA?src=hash&amp;ref_src=twsrc%5Etfw) to help support our military and their families, & address the many growing national security threats our nation faces today, including the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw), Russia, Iran & more.
+> 
+> Read more about my priorities that were included: [https://t.co/aS6Y3AksF3](https://t.co/aS6Y3AksF3)
+> — Rep. Mike Waltz (@michaelgwaltz) [December 13, 2021](https://twitter.com/michaelgwaltz/status/1470462404542746629?ref_src=twsrc%5Etfw)
+
+
 
  
 
