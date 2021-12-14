@@ -2,18 +2,10 @@
 ---
 
 
-## 西媒头条 — 第130期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1754245/)
+## 12/12/2021 文贵直播：非专业歌手郭文贵Hcoin To the Moon打榜惹恼了谁？
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1754314/)
 
-制作: 蚂蚁兄弟
-
-**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/xm1214.001.jpeg)
-
-发稿：信心的选择
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-2.jpeg)
+秘密翻译组-北美组
 
  
 

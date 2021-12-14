@@ -2,12 +2,18 @@
 ---
 
 
-## 娜塔丽：当权派认为真的可以通过疫苗控制美国和人民
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1754213/)
+## 西媒头条 — 第130期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1754245/)
 
-12/10/2021 班农战斗室：当权派认为真的可以控制美国和人民，只需通过一种叫做疫苗的小东西
+制作: 蚂蚁兄弟
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/xm1214.001.jpeg)
+
+发稿：信心的选择
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-2.jpeg)
 
  
 

@@ -2,40 +2,33 @@
 ---
 
 
-## 杰森·米勒：盖特即将推出类似抖音一样的短视频功能
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1753762/)
+## 12/14每日播报｜香港小学播放南京大屠杀片段 学生惊恐哭嚎
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1753840/)
 
-**【雅典娜快讯】，紧贴时代脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/11-5.jpg)图片来源：Gnews
-整理报道：文泓
+**By:[秘翻新闻](https://gtv.org/broadcast/watch/61b85c7e56f4921401b77b8b)**
 
-近日，有点像推特的社交应用GETTR（盖特），不久将效仿Instagram Reels和TikTok（抖音）推出该平台新的短视频功能，称为G-Vision，明年2月上线。
+**2021-12-14**
 
-谈到社交媒体，其实并没有很多新的理念。这也是为什么前川普总统顾问杰森·米勒先生的倡导新“自由言论”社交应用盖特将目光投向了Instagram Reels和TikTok，作为其下一个功能的灵感来源。
+新唐人12月13日消息。中共全面“接管”香港后，这个曾经的自由繁荣之地越来越大陆化。日前香港一所小学给一年级学生播放南京大屠杀真实镜头，学生吓到大声哭喊，引发家长愤怒。
 
-这个在今年7月推出的新社交平台，下一步将推出自己的短视频版本，取名为G-Vision。本月早些时候，米勒先生接受了记者采访，谈到了盖特的计划——即将推出的新功能之一是G-Vision。
+脸书网页“猪心记者”12月11日发文说，有学生家长透露，位于新界屯门的保良局香港道教联合会圆玄小学，上周四在一年级德育课中向学生播放南京大屠杀短片，全长约5分钟，其中涉及大屠杀真实片段，包括日军强抢妇女的幼儿，将平民推入坑中活埋，婴幼儿尸横遍野等镜头。当时就有部分学生恐慌哭嚎。
 
-“大约在（明年）2月1日，我们将推出G-Vision，这将是我们与Instagram Reels和Facebook Stories竞争的短视频”，米勒说：“现在，我们是推特和脸书的市场竞争者……在2022年第一季度末，我会说我们是这些公司再加上TikTok和Instagram的市场竞争者。”
+根据学生描述，老师当时看到学生情绪波动后，并未停止播放短片，只是叫他们“不要害怕”，然后继续解说，称战争“杀了很多中国人”等。有家长表示，谅解校方推行所谓“国民教育”乃大势所逼，但质疑是否需要对一年纪学生播放残忍的画面。也有家长指责此举可能旨在“挑起民族仇恨”。
 
-毫无疑问，在过去几年里，这种短视频已经变得非常流行。看看TikTok和Instagram Reels的飞速崛起就知道了。米勒提到了马克·扎克伯格最近关于Instagram Reels是该平台上主要参与驱动力的评论，目前短视频已作为社交媒体日益流行的一部分。
+当天涉事小学回应称，因为今年是南京大屠杀84周年，学校因此采用了教育局提供的教材，对学生进行历史教育。
 
-米勒说：“这原本只是Instagram的一个次要功能，而它推动了一半以上（流量）……我认为这很有说服力。”
+12日，香港教育局也回应称，向全港学生提供教材时，并无硬性规定所有学校给所有班级播放有关内容。 教育局并要市民“不要被片面的言论误导”。校方称，得悉小孩子上课后感到不安，今后会倍加留意，提供情绪辅导等。
 
-短视频G-Vision的加入显然是盖特在吸引年轻受众的一次尝试。一些社交平台，如脸书，正面临年轻用户群的流失，另一方面，TikTok和Instagram Reels却是吸引年轻一代的主要因素。
+港媒报导，涉事短片出自香港电台《世纪长征》第28集“共赴国难：南京大屠杀”，长约5分钟。
 
-米勒希望能够利用这种吸引力：“（明年）2月1日是我们的平台发生重大变化的时候，我们将添加G-Vision……这将真正有助于扩大用户和功能。”
+秘翻新闻主编 一只蚂蚁编辑报道
 
-新闻链接：[GETTR, the app that copies Twitter, will soon rip off TikTok and Reels (knowtechie.com)](https://knowtechie.com/gettr-the-social-app-that-looks-like-twitter-will-soon-copy-instagram-reels-and-tiktok/)
+发布:星星
 
-发布：去中心化Math
+* * *
 
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**By 【秘密翻译组-即时新闻播报组】**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/IMAGE-2021-12-13-113746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
