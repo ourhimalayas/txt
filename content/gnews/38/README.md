@@ -2,10 +2,10 @@
 ---
 
 
-## 日本政府将在年底前对未成年人一次性支付10万福利
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1752464/)
+## 美国感染中共病毒人数突破5000万
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1752475/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12._14-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1214-scaled.jpg)
 *编辑：东京樱花团/简报小组
 发布：东京樱花团/平安卿卿*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)

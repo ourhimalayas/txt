@@ -2,40 +2,18 @@
 ---
 
 
-## 日本高官将加入抵制北京冬奥会的行列
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1752842/)
+## 2021年12月13日郭先生盖特 — 视频盖特「2分22秒」
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1752905/)
 
-作者: 纽约香草山农场-文真
+听写：洛杉矶盘古农场 — 盘古小蚂蚁
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-11.jpg)
+Video link: [https://gettr.com/post/pjk6387267](https://gettr.com/post/pjk6387267)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/28CB0947-870F-44BD-9842-2717BBA6F21E.png)
+兄弟姐妹们，听着咱们的战歌做着运动太幸福了。谢谢兄弟姐妹们，全球打榜三十几个国家排第一。今天又新增了国家排第一！
 
+昨天直播很兴奋；直播完以后一天开会也很兴奋。啥都不说了，爱你们！唯一的我是昨天第四天吃青蒿素，吃青蒿素这个有毛病，天天晚上所有身体的能量聚在了“党中央” — 把被子都顶起来了。这咋成了伟哥了呢？！大家吃这个药得小心啊，这容易犯男女错误，出现作风问题，真的。咱们到时候后天直播聊聊这个问题。千万小心！这两天得病的人太多了，染上病毒的人太多了，大家务必小心。
 
-
-
-
-12月11日，外媒报道称，日本政府尚未明确全面外交抵制北京冬奥会，但是，将仅派出较低级别的官员出席。
-![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/chinaolympics.jpg?itok=j33Extn7)
-最近，日本媒体援引多个知情人士的话报道，日本政府很可能加入美国的外交抵制行动，高级官员将不会出席2022年二月在北京举行的冬奥会。日本国家广播公司也证实了这一消息，称日本政府倾向于不派内阁部长出席北京冬奥会。该报称，现在预计参加的官员仅是与奥运会有关的人员。
-截至目前，继美国公布了外交抵制行动后，英国、加拿大、澳大利亚、新西兰和立陶宛已明确表示不会派政府官员参加北京2022冬奥会。
-
-编辑: Jack Li文阳
-
-新闻链接:[Top Japan Officials To Join US Boycott Of Beijing Olympics As List Grows](https://www.zerohedge.com/political/top-japan-officials-join-us-boycott-beijing-olympics-list-grows)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-192.jpeg)
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-11.jpg)
-
-
+啥都不说了，别忘了健身。
 
  
 

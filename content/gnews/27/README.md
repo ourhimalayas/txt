@@ -2,61 +2,32 @@
 ---
 
 
-## 参议员汤姆·科顿： 我们必须继续与台湾站在一起，帮助确保其自治
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1752697/)
+## 天津出现首宗中共病毒新变异株Omicron病例
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1752733/)
 
-参议员汤姆·科顿： 我们必须继续与台湾站在一起，帮助确保其自治，并维持现状。 拜登总统不能跪下向 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 北京磕头。
+**作者:****  **青衣
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-18.png)
+（图片来自网络）
 
+据《星岛网》12月13日消息，中共国近日出现了首宗中共病毒新变种Omicron确诊病例。
 
+天津市疫情防控指挥中心称，该名带有Omicron变种病毒的患者是在12月9日从海外入境天津，目前正在医院接受隔离治疗。而中共喉舌《环球时报》的报道称，该名患者是波兰国民，从华沙抵达天津，没有出现病征。
 
-> We must continue to stand alongside Taiwan, help secure its autonomy, and maintain the status quo.
-> 
-> President Biden cannot kowtow to Beijing. [pic.twitter.com/kBQEcYm48y](https://t.co/kBQEcYm48y)
-> — Tom Cotton (@SenTomCotton) [December 14, 2021](https://twitter.com/SenTomCotton/status/1470553827082440705?ref_src=twsrc%5Etfw)
+自世界卫生组织两周前将在南非发现的中共病毒最新变种B.1.1.529命名为Omicron，并界定为值得关注后，该病毒迅速在全世界各地蔓延。世卫组织最新发出的警告称，Omicron全球传播风险“非常高”。
 
+不少科学家研究认为，Omicron 的传播速度远高于 Delta 变种。而且，它不仅传播速度快，且可能逃避抗体，导致出现再度感染。
 
+更加令人担忧的是，以目前全球Omicron病毒确诊病例的统计数据来看，有八成、甚至九成的患者是完全接种疫苗者，而全世界有至少一半以上的人已接种了疫苗。
 
-众议员布莱恩·马斯特： 山中无老虎，猴子称大王。 乔·拜登的无能意味着俄罗斯和 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 可以——而且将会——接管(世界)。 【视频中马斯特说，[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 已经吞掉了香港，接下来要拿下台湾，丝毫不顾及美国，因为他们嗅到了拜登政府的软弱】
+中共国目前的疫苗接种率位居世界前列，大约已有82%以上的民众接种了疫苗，并且当局已开始大力推进为民众注射第三针疫苗加强剂。可以预见，中共国接下来的防疫将面临严重挑战。
 
+中共一直采取所谓的严格“清零”抗疫措施。然而，跟随中共同样采取“清零”策略的香港，目前已经有 7 宗 Omicron 海外输入个案。
 
+在中共病毒全球大爆发近两年之际，Omicron变种又回到了中共病毒发源地中共国。而释放这一荼毒全球的生物武器的刽子手——邪恶中共，至今仍然未被追责。
 
-> While the cat’s away, the mice will play. 
-> 
-> Joe Biden’s incompetence means Russia and China can – and will – take over. [pic.twitter.com/hfGd7WtzXG](https://t.co/hfGd7WtzXG)
-> — Rep. Brian Mast (@RepBrianMast) [December 14, 2021](https://twitter.com/RepBrianMast/status/1470567786250391558?ref_src=twsrc%5Etfw)
+新闻链接：
 
-
-
-众议员克里斯·斯图尔德： 我们在莫斯科、德黑兰和北京的对手将考验拜登总统以扩大他们的权力和影响范围。 不幸的是，目前尚不清楚拜登是否或如何回应。 【附斯图尔德众议员在福克斯的视频采访】
-
-
-
-> Our adversaries in Moscow, Tehran and Beijing are going to test President Biden to expand their power and spheres of influence.
-> 
-> Unfortunately, it isn’t at all clear if or how Biden will respond. [pic.twitter.com/CFxOAwRaLO](https://t.co/CFxOAwRaLO)
-> — Rep. Chris Stewart (@RepChrisStewart) [December 13, 2021](https://twitter.com/RepChrisStewart/status/1470495723703652369?ref_src=twsrc%5Etfw)
-
-
-
-参议员汤姆·科顿： 比尔·克林顿曾表示，“如此多的美国人担心一个强大的 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 对世界的影响，这很滑稽”。 他错了，他所嘲笑的美国人是对的。 20年前，[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 加入了世贸组织，标志着对我国的工业基础、经济和工人阶级造成巨大空洞的开始。 这是我国历史上最大的外交政策错误之一。我们与 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的贸易关系根本不正常，我们无法承担让这种关系永久存在下去。 我们必须结束与中共国的“永久正常贸易关系”。
-
-
-
-> Bill Clinton once said that it was “ironic that so many Americans are concerned about the impact on the world of a strong China.” He was wrong, and the Americans he derided were right.[https://t.co/u4WZQdVy3A](https://t.co/u4WZQdVy3A)
-> — Tom Cotton (@SenTomCotton) [December 13, 2021](https://twitter.com/SenTomCotton/status/1470481887286153216?ref_src=twsrc%5Etfw)
-
-
-
-前国务卿迈克·蓬佩奥： 我们教导我们的年轻人，这些才华横溢的运动员们畅所欲言。 他们将要去 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)，如果其中一个人说“西藏自由”，或“对香港人民有好处”，或“我支持台湾”，他们就可能得不到出境签证。很自豪通过了两党的2022财年国防授权法案 [#FY22NDAA](https://twitter.com/hashtag/FY22NDAA?src=hashtag_click)，该法案旨在帮助支持我们的军队及其家人，并解决我们国家今天面临的许多日益严重的国家安全威胁，包括来自 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CC](https://twitter.com/hashtag/CC?src=hashtag_click)​​P、俄罗斯、伊朗等国的威胁。 阅读更多所包含的有关我的优先事项：
-
-
-
-> Proud to pass the bipartisan [#FY22NDAA](https://twitter.com/hashtag/FY22NDAA?src=hash&amp;ref_src=twsrc%5Etfw) to help support our military and their families, & address the many growing national security threats our nation faces today, including the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw), Russia, Iran & more.
-> 
-> Read more about my priorities that were included: [https://t.co/aS6Y3AksF3](https://t.co/aS6Y3AksF3)
-> — Rep. Mike Waltz (@michaelgwaltz) [December 13, 2021](https://twitter.com/michaelgwaltz/status/1470462404542746629?ref_src=twsrc%5Etfw)
-
-
+[https://std.stheadline.com/realtime/article/1787314/%E5%8D%B3%E6%99%82-%E4%B8%AD%E5%9C%8B-%E5%A4%A9%E6%B4%A5%E7%99%BC%E7%8F%BE%E5%85%A7%E5%9C%B0%E9%A6%96%E5%AE%97Omicron%E8%AE%8A%E7%A8%AE%E7%97%85%E6%AF%92%E8%BC%B8%E5%85%A5%E7%97%85%E4%BE%8B](https://std.stheadline.com/realtime/article/1787314/%E5%8D%B3%E6%99%82-%E4%B8%AD%E5%9C%8B-%E5%A4%A9%E6%B4%A5%E7%99%BC%E7%8F%BE%E5%85%A7%E5%9C%B0%E9%A6%96%E5%AE%97Omicron%E8%AE%8A%E7%A8%AE%E7%97%85%E6%AF%92%E8%BC%B8%E5%85%A5%E7%97%85%E4%BE%8B)
 
  
 

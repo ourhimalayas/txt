@@ -2,44 +2,32 @@
 ---
 
 
-## 日本和澳大利亚同意加强安全关系
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1752837/)
+## 台湾驻港代表拒签“一个中国宣誓书”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1752879/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-162.png)图片来源：日本外务省
-翻译：文扬
+作者：东京樱花团｜捆绑CCP一千年
+![](https://lh6.googleusercontent.com/lRt8gAa4nIIY6VyZCd__JCsQKDCMQesyeQ9LaC9DNMdyaK_zt1nOjhmYevbWcksIoDnW_2izCfGJAEru2Tes1VPhy7pdytW1ohH1jme_ZLFjVAtf7P7XhWN4Gv23YlWffpKRudMo)[*图片来源*](https://imgcdn.cna.com.tw/Eng/WebEngPhotos/1024/2021/20211213/1024x691_548548829388.jpg)
+台湾驻港办在拒绝签署“一个中国”宣誓书后将于 12 月 20 日迁址湾仔中环广场新办公室，但只保留雇员值班。台陆委会表示，“尽管没有台湾人在香港派驻，但台湾继续为港人办理居留申请，为在港中国人办理台湾入境许可。
 
-编辑：Mttfly
+据中共[中新社台北](https://focustaiwan.tw/cross-strait/202112130018)消息，因北京要求台湾驻香港代表在签证续签合同上签署“一个中国宣誓书”而被迫将其驻香港代表处搬迁。
 
-在澳大利亚外长玛丽斯·佩恩(Marise Payne)与日本外相林芳正(はやし よしまさ)在英国举行的七国集团会议上会晤后，澳大利亚和日本承诺进一步加强安全合作。
+消息称，目前，台北驻港经济文化办事处将于 12 月 20 日起在湾仔中环广场新的办公室开业，但现驻地人员都是雇佣员工，台湾籍官员全数返台。在拒绝签署“一个中国”宣誓书后，他们别无选择，只能离开香港。最后一位台湾官员已于7月底返回台湾。自2020年以来，因此原因被迫回国的台湾官员总数达到11人。
 
-林芳正调强了包括印度和美国在内的四方安全对话成员之间合作应对印太战略挑战的重要性。
+- ***延展阅读：***[***消息人士称，香港要求台湾官员在更新入港签证时签署“一个中国”文件续签***](https://www.reuters.com/article/us-hongkong-security-taiwan-idUSKCN24I0UM)
 
-他说，他希望与佩恩女士合作，将日澳特殊战略关系提升到一个更高的水平。
 
-日本外交部表示，日本和澳大利亚已经与美国以及密克罗尼西亚、瑙鲁和基里巴斯合作，建造一条新的海底电缆，以改善这三个太平洋岛国的互联网连接。此举旨在对抗中共国在该地区不断上升的影响力。
+- ***延展阅读：***[***台湾因“一中”冲突召回香港贸易官员***](https://abcmundial.com/en/2021/06/21/asia/politics/taiwan-recalls-trade-officials-from-hong-kong-over-one-china-clash)
 
-“他们（日澳外长）确认，日本和澳大利亚将继续协助在印太地区建设高质量基础设施的努力，包括利用日本、澳大利亚和美国的框架”，外交部说。
 
-这是自上月初日本全国大选后，林芳正上任以来两位外长的首次当面会晤。执政的自民党重新上台，岸田文雄(きしだ ふみお)担任首相。
+“[一个中国](https://www.voanews.com/a/usa_us-encourages-closer-ties-taiwan-without-changing-one-china-policy/6204487.html)”宣誓书要求台湾官员同意台湾是中国的一部分，这是台湾唯一不能妥协的原则，更反应了北京对台湾在外交领域的全面的打压。
 
-岸田政府已表示希望与澳大利亚建立更紧密的关系。人们希望岸田先生在明年初访问澳大利亚。
+台陆委会表示，“尽管没有台湾人在香港派驻，但台湾在香港新的办公室将继续提供领事事务。继续为港人办理居留申请，为在港中国人办理台湾入境许可。
 
-林芳正先生还在七国集团外长会议上与来自德国、法国、意大利和加拿大的同行进行了单独会谈，澳大利亚和东盟国家也被邀请参加这次会议。
+2021年12月14日
 
-在该地区对中共国领土野心的担忧日益加剧之下，四方协议恢复。日本前首相安倍晋三上个月呼吁，加强与澳大利亚的防务合作，并表示东京应该与澳大利亚、英国和美国之间近期建立的澳英美联盟（AUKUS）合作。
-
-**原文链接：**[Japan and Australia agree to strengthen security ties](https://www.afr.com/world/asia/japan-and-australia-agree-to-strengthen-security-ties-20211213-p59h16)
-
-**发布：**去中心化Math
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团 / 東洋武士
+发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
