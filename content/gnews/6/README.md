@@ -2,36 +2,31 @@
 ---
 
 
-## 商汤科技因受制裁延迟港交所上市
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1754637/)
+## 中共国地产巨头之一世茂集团股票债券齐齐暴跌
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1754667/)
 
-作者：纽约香草山文艺部 – 宁文静
+#### **撰稿：**日本东京方舟农场 子辰
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/E74F3B4A-8170-420C-8F47-981B5247303D.jpeg)（图片来自《大纪元》）
 
-12月13日，中共国人工智能公司商汤科技，被美国财政部实施投资禁令后，决定延迟在香港上市。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/5-20.jpg)
-当日港交所公告称，商汤全球发售及上市将会延迟，申请股款将不计利息悉数退还给所有申请人。该公司原计划在本月通过香港IPO筹资7.67亿美元，其产品被用于智能城市、警方监控和自动驾驶领域。
+据《大纪元》12月14日报道，中共国排名第13位的房地产巨头之一、同时也是债券发行规模最大的房企之一的世茂集团控股有限公司，其股票和债券价格在12月13日齐齐暴跌，并波及到其它地产企业。
 
-12月10日，美国财政部将25个实体和个人列入一份企业黑名单，商汤科技名列其中。理由是商汤为中共军方镇压维吾尔族人提供了人脸识别技术，因此禁止美国人投资这家公司。
+据报道， 世茂集团旗下的世茂股份的多只债券价格，在13日均出现不同程度的下跌；同时，世茂股份也下跌了2.65%；此外，由同一实际控制人许荣茂控制的港股世茂集团和世茂服务也出现大幅下跌。其中，世茂集团的股价跌幅超过11%；而世茂服务的股价则下跌超过9%。
 
-分析人士称，商汤科技因受制裁处于风口浪尖，此刻上市恐怕会导致破发而影响商誉，也说明香港金融中心的地位正在动摇。
+世茂集团近期多次传出与流动性相关的负面消息。而最近几年，世茂集团的总负债节节攀升。2020年上半年，世茂集团总负债高达4143亿元；2021年上半年，其总负债上升到了4636.33亿元。此外，截至2021年6月30日，该集团的借贷总额已达到人民币1645亿元。
 
-参考链接：[商汤科技宣布将延迟上市，所有申请股款将悉数退还](https://3g.163.com/dy/article/GR3R5E130519D3BI.html?spss=adap_pc)
+目前，穆迪对世茂集团的长期评级已经降为垃圾级（Ba1），并将其列在负面观察名单中；而标普也同样将该公司的评级下调到了垃圾级。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+*参考链接：[世茂集团股债暴跌 中国又一家地产巨头现危机](https://www.epochtimes.com/gb/21/12/13/n13435125.htm)*
 
-总编：Irene木木
-编辑：Kathy文艺
-校正/发稿：Fei797
+* * *
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*素材采编：子辰*
+
+*编辑：青衣青青*
+
+*发布：miumiu*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

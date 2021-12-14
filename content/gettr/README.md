@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@livrenoirmedia 12/14/2021 3:48 PM (UTC)`
+
+Jason #Miller (@JasonMillerinDC) conseiller et porte-parole de Donald #Trump, aujourd’hui président du réseau social #GETTR, était ce matin sur le fauteuil de Livre Noir. Entretien passionnant à venir prochainement.
+![img](https://media.gettr.com/group45/getter/2021/12/14/15/4dfb5844-4f33-e1f7-c67e-fd1c67bd8d6f/out.jpg)
+
+---
+
 `@miles 12/14/2021 4:25 PM (UTC)`
 
 Dec 14, 2021 Breaking news: Mr. Miles Guo's latest single “HCoin to The Moon”has topped the Billboard World Digital Songs Sales Chart for two consecutive weeks, creating not only the best personal result for all of Mr. Guo's singles, but also the best result for non-professional singers in the world's most authoritative music charts, and yet another historical miracle for Chinese people in the world music scene that has never been seen before! Thanks again to all the fellow fighters of the New Federal State of China around the world, we proved to the world with our own actions the power and determination of our unity to take down the CCP!🎉🎉🎉🎉🎉🎉🎉🙏🙏🙏🙏🙏🙏🙏<br/><br/><br/>https://gnews.org/1754721/
@@ -143,13 +152,6 @@ We conducted a preliminary survey about the effects of artemisinin supplements a
 
 12/12/2021 Miles Guo: Xi's insanity will bring about his own demise - he will surely invade Taiwan, eliminate the Chinese private entrepreneurs, and arrest more CCP members; Xi’s kicking my father and the Pangu employees to the cold winter streets is as brutal as what Saddam had done to his son-in-law!<br/><br/>12/12/2021 文贵直播：习的疯狂将让他自取灭亡 - 他一定会打台湾，消灭国内私人企业家，抓更多党员；习将文贵的父亲和盘古员工扔到大街上跟萨达姆对待其女婿的残暴行径如出一辙！<br/>
 ![img](https://media.gettr.com/group49/getter/2021/12/13/04/8d3db73a-26d3-3bf3-d79b-d9235ae647b8/out.jpg)
-
----
-
-`@miles 12/13/2021 4:44 AM (UTC)`
-
-12/12/2021 Miles Guo: Russia, Wall Street, Hollywood, and the four shameless big families in Hong Kong have contributed to Xi's arrogance and insanity - daring to release the CCP virus, promoting the poisonous COVID vaccines, and making everyone afraid to say "no". However, Russia has recently slapped Xi in the face; without Xi’s arrogance and insanity, we wouldn’t be able to take down the CCP<br/><br/>12/12/2021 文贵直播：俄罗斯、华尔街、好莱坞和香港四大不要脸促成了习的狂妄 - 敢在全球放毒、把脉(推广毒疫苗)，并让所有人不敢说“不”，不料这次习被俄国彻底打脸；没有习的狂妄，灭不了共<br/>
-![img](https://media.gettr.com/group22/getter/2021/12/13/04/b4e9111b-aa61-7097-90ec-870ab555a461/out.jpg)
 
 ---
 
