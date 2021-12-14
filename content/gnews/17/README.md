@@ -2,24 +2,28 @@
 ---
 
 
-## 中共国对进口食品和饮料设置最严格贸易壁垒
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1754244/)
+## 中国移动拟在A股圈钱560亿元
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1754389/)
 
-作者：纽约香草山文艺部 – 宁文静
+作者：西枫westca
+
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据外媒12月13日消息，中共国对进口食品和饮料的新管理规定将于2022年1月1日实施。一些食品制造商担心其产品或将无法进入中共国市场。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕快照-2021-12-14-下午9.13.55.png)
-根据新规，所有进口食品的境外生产企业均需将其生产，加工，和存储设施等信息在年底前注册，才能进入中国市场。但有关新规定的解释直到11月才发布，允许企业自行注册的网站也是刚刚上线。海关总署没有解释为什么所有食品，甚至包括葡萄酒、面粉和橄榄油等被认为是低风险的食品，都被纳入新规。
 
-据悉，对仓促施行的新规可能造成影响，中共国当局回复称“不会有宽限期”。一位欧盟官员担心1月1日之后欧洲食品出口恐会引发混乱，部分产品将失去进入中共国市场的机会。美国农贸协会执行董事安德森则说，从未见过中共国采取如此严厉的措施。他将该规定描述为“非关税贸易壁垒”。
+据报道，12月13日，中共证监会核发中国移动IPO批文，中国移动即将与中国联通、中国电信一同回归A股上市，登陆沪市主板。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/4-19.jpg)
+今年8月中国移动递交了A股上市申请材料，欲募资560亿元。在中共的国家垄断下，中国移动的客户总数达9.56亿，然而用户仅限于在中国大陆生活的群体。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/4-1-1.jpg)
+自2020年以来，美国对中共的垄断通信企业不断重拳出击：今年5月，美国证监会维持了川普政府的证监会对中国移动、中国电信和中国联通三大中共垄断公司的退市决定，因为这些公司涉嫌中共的军民融合项目；10月下旬，美国联邦通信委员会撤销了中国电信在美的业务授权，中国电信被强令在美停业。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/4-2-1.jpg)
+有分析指出：面对美国日益加重的制裁，中共的垄断通信财阀已无法在美国圈钱；进入A股市场坑害大陆散户投资者已是他们不得已而为之的手段
 
-参考链接：[New China import rules bring headaches for food and beverage makers](https://business.inquirer.net/336629/new-china-import-rules-bring-headaches-for-food-and-beverage-makers?utm_medium=Social&amp;utm_source=Twitter#Echobox=1639407249-1)
+参考链接: [秘翻在线: 中国证监会核发中国移动IPO 拟募资560亿](https://gnews.org/zh-hans/1752086/)
 
-![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-总编：Zion文恩
-编辑：Lakeman文仁
-校正/发稿：呼吸的雾霾（文小呼吸）
+总编/编辑：Zion文恩
+校对：Ermat
+发稿：Fei797
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

@@ -15,134 +15,134 @@
 
 ---
 
-### [串珠483:习近平在梁家河偷看女人被揭发被打](/content/gnews/1/README.md)
+### [日本供水系统经营权将私有化？](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [辉瑞疫苗推广早期已记录16万例不良反应](/content/gnews/2/README.md)
+ ` GTV新闻访谈`
+
+### [北京采集美国人的基因究竟意欲何为？](/content/gnews/3/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [奥地利解除部分封锁措施](/content/gnews/4/README.md)
+ ` GTV新闻访谈`
+
+### [串珠486:习和他妈都非常迷信，他爹的坟占几千亩地](/content/gnews/5/README.md)
  ` 郭爆料串珠`
 
-### [全球首例Omicron死亡案例的死因未明，而被一位教授所质问](/content/gnews/2/README.md)
+### [DC每日热点1214](/content/gnews/6/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [串珠485:习近平在梁家河的发小田玉玺被王岐山灭了](/content/gnews/7/README.md)
+ ` 郭爆料串珠`
+
+### [12/14/21 香港快讯 民研：市民对「香港人」身份认同感 创新低](/content/gnews/8/README.md)
+ ` 英喜-粵語組`
+
+### [为什么我写了《真正的安东尼·福奇》这本书](/content/gnews/9/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [串珠484:习在梁家河被人用拖拉机撞导致颈椎扭曲](/content/gnews/10/README.md)
+ ` 郭爆料串珠`
+
+### [法院命令，由于劳动力短缺，医院放弃了疫苗接种授权](/content/gnews/11/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [樱花灭共诗——红土文 （新韵）](/content/gnews/3/README.md)
+### [串珠483:习近平在梁家河偷看女人被揭发被打](/content/gnews/12/README.md)
+ ` 郭爆料串珠`
+
+### [全球首例Omicron死亡案例的死因未明，而被一位教授所质问](/content/gnews/13/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [樱花灭共诗——红土文 （新韵）](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线:失败的全球主义&#8217;菁英&#8217;想拉更多人陪葬](/content/gnews/4/README.md)
+### [秘翻在线:失败的全球主义&#8217;菁英&#8217;想拉更多人陪葬](/content/gnews/15/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [纯净雅利安人-传播真相的无苗族](/content/gnews/5/README.md)
+### [纯净雅利安人-传播真相的无苗族](/content/gnews/16/README.md)
  ` G-NEWS TAIWAN`
 
-### [Omicron传染暴增：挪威每日恐30万人染疫丹麦疫情严峻](/content/gnews/6/README.md)
+### [中国移动拟在A股圈钱560亿元](/content/gnews/17/README.md)
+ ` GTV新闻访谈`
+
+### [Omicron传染暴增：挪威每日恐30万人染疫丹麦疫情严峻](/content/gnews/18/README.md)
  ` RoseNews`
 
-### [德国护士揭露病房都是打了疫苗的病人](/content/gnews/7/README.md)
+### [德国护士揭露病房都是打了疫苗的病人](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [俄中分道扬镳，习共遭致命打击](/content/gnews/8/README.md)
+### [俄中分道扬镳，习共遭致命打击](/content/gnews/20/README.md)
  ` 波士顿五月花农场`
 
-### [近独裁远民主，平生终将得报应](/content/gnews/9/README.md)
+### [近独裁远民主，平生终将得报应](/content/gnews/21/README.md)
  ` 波士顿五月花农场`
 
-### [12/12/2021 文贵直播：非专业歌手郭文贵Hcoin To the Moon打榜惹恼了谁？](/content/gnews/10/README.md)
+### [12/12/2021 文贵直播：非专业歌手郭文贵Hcoin To the Moon打榜惹恼了谁？](/content/gnews/22/README.md)
  ` 秘密翻译组-北美组`
 
-### [英国报告首例Omicron变体死亡病例](/content/gnews/11/README.md)
+### [英国报告首例Omicron变体死亡病例](/content/gnews/23/README.md)
  ` RoseNews`
 
-### [许多美国公司和投资者实际上是在资助美国的敌人：中共](/content/gnews/12/README.md)
+### [许多美国公司和投资者实际上是在资助美国的敌人：中共](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [秘翻在线：胡舒立力挺联想挑战司马南，唱的哪一出？](/content/gnews/13/README.md)
+### [秘翻在线：胡舒立力挺联想挑战司马南，唱的哪一出？](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国空军解雇27名成员因拒绝接种COVID-19中共病毒疫苗](/content/gnews/14/README.md)
+### [美国空军解雇27名成员因拒绝接种COVID-19中共病毒疫苗](/content/gnews/26/README.md)
  ` RoseNews`
 
-### [秘翻在线：中共国经济寒冬——互联网大佬们纷纷裁员](/content/gnews/15/README.md)
+### [秘翻在线：中共国经济寒冬——互联网大佬们纷纷裁员](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [西媒头条 — 第130期](/content/gnews/16/README.md)
+### [西媒头条 — 第130期](/content/gnews/28/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共国对进口食品和饮料设置最严格贸易壁垒](/content/gnews/17/README.md)
+### [中共国对进口食品和饮料设置最严格贸易壁垒](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [世茂集团股债再次双双大跌](/content/gnews/18/README.md)
+### [世茂集团股债再次双双大跌](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [歌曲打榜行动意义重大](/content/gnews/19/README.md)
+### [歌曲打榜行动意义重大](/content/gnews/31/README.md)
  ` GTV新闻访谈`
 
-### [我们应全面抵制由施行种族灭绝的政权主办的北京冬奥会](/content/gnews/20/README.md)
+### [我们应全面抵制由施行种族灭绝的政权主办的北京冬奥会](/content/gnews/32/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共国明年1月1日起，新车强制安装“黑匣子”](/content/gnews/21/README.md)
+### [中共国明年1月1日起，新车强制安装“黑匣子”](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [娜塔丽：当权派认为真的可以通过疫苗控制美国和人民](/content/gnews/22/README.md)
+### [娜塔丽：当权派认为真的可以通过疫苗控制美国和人民](/content/gnews/34/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [12/14每日播报|社媒消息:彭佩奥 娜塔莉温特斯](/content/gnews/23/README.md)
+### [12/14每日播报|社媒消息:彭佩奥 娜塔莉温特斯](/content/gnews/35/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [安全专家警告运动员可能在北京冬奥会期间遭受中共监视](/content/gnews/24/README.md)
+### [安全专家警告运动员可能在北京冬奥会期间遭受中共监视](/content/gnews/36/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [妖后彭丽媛](/content/gnews/25/README.md)
+### [妖后彭丽媛](/content/gnews/37/README.md)
  ` 银河勇气之星`
 
-### [新西兰财经G乐部 2021年12月14日](/content/gnews/26/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [MV版Hcoin To the Moon上线第5天位列18国iTunes热门MV榜首！](/content/gnews/27/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中共国大使馆发出怪歌攻击美国民主](/content/gnews/28/README.md)
- ` RoseNews`
-
-### [一种关系的前尘往事](/content/gnews/29/README.md)
- ` 骄子`
-
-### [12/14每日播报｜疫情爆发 多家上市企业惨遭关停](/content/gnews/30/README.md)
+### [12/14每日播报｜疫情爆发 多家上市企业惨遭关停](/content/gnews/38/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [新西兰卫生部的官方回复，证明疫苗并不能减少病毒传播](/content/gnews/31/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [12/14每日播报｜香港小学播放南京大屠杀片段 学生惊恐哭嚎](/content/gnews/32/README.md)
+### [12/14每日播报｜香港小学播放南京大屠杀片段 学生惊恐哭嚎](/content/gnews/39/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [英国血液供应因中共病毒和流感而处于“危急”状态](/content/gnews/33/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [小鹏汽车擅自采集43万张客户人脸](/content/gnews/34/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [从西安事变看中共洗脑术](/content/gnews/35/README.md)
- ` 银河勇气之星`
-
-### [视频| 爆料革命在反疫苗运动中的影响力巨大](/content/gnews/36/README.md)
- ` MOSREC`
-
-### [视频| 纳瓦罗的《川普时代》在美畅销，反衬中共毫无人性的邪恶](/content/gnews/37/README.md)
- ` MOSREC`
-
-### [12/14/2021国际财经快讯：1.75万亿美元法案“一切皆有可能”；苹果逼近3万亿美元市值](/content/gnews/38/README.md)
+### [12/14/2021国际财经快讯：1.75万亿美元法案“一切皆有可能”；苹果逼近3万亿美元市值](/content/gnews/40/README.md)
  ` 秘密翻译组金融团队`
 
-### [12/14每日播报｜大屠杀研究者：纳粹和中共都想借奥运会提升形象](/content/gnews/39/README.md)
+### [12/14每日播报｜大屠杀研究者：纳粹和中共都想借奥运会提升形象](/content/gnews/41/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [英国卫生大臣承认加强针设为优先事项 一些手术将被推迟](/content/gnews/40/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [【樱花深度报道】英国间谍头目警告来自中国数字人民币的威胁（下）](/content/gnews/41/README.md)
+### [【樱花深度报道】英国间谍头目警告来自中国数字人民币的威胁（下）](/content/gnews/42/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【樱花深度报道】英国间谍头目警告来自中国数字人民币的威胁（上）](/content/gnews/42/README.md)
+### [【樱花深度报道】英国间谍头目警告来自中国数字人民币的威胁（上）](/content/gnews/43/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [27名空军现役人员因拒绝接种疫苗被美国空军解雇](/content/gnews/43/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [美芯片制造商Magnachip和中共国智路资本的并购交易被迫终止](/content/gnews/44/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`

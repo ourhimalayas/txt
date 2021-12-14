@@ -2,12 +2,10 @@
 ---
 
 
-## 娜塔丽：当权派认为真的可以通过疫苗控制美国和人民
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1754213/)
+## 12/12/2021 文贵直播：非专业歌手郭文贵Hcoin To the Moon打榜惹恼了谁？
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1754314/)
 
-12/10/2021 班农战斗室：当权派认为真的可以控制美国和人民，只需通过一种叫做疫苗的小东西
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+秘密翻译组-北美组
 
  
 

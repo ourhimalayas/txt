@@ -2,43 +2,35 @@
 ---
 
 
-## 全球首例Omicron死亡案例的死因未明，而被一位教授所质问
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1754438/)
+## 辉瑞疫苗推广早期已记录16万例不良反应
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1754629/)
 
-编译：Alan
-![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕截图-2021-12-14-092135-edited.png)图片来源：网络
-Daily Mail今日发表一篇文章。该文里提及一位教授质疑政府未能够发表英国的全球首例Omicron死亡案例的死因，认为强森（Boris Johnson）政府发表的不完整信息造成了“莫须有的恐慌”。
+作者：英国伦敦喜庄园编辑部
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据12月12日外媒消息，美国食品和药物管理局FDA发布的文件显示，制药商辉瑞(Pfizer)在其新冠病毒疫苗推出的最初几个月记录了近16万次不良反应。
+这些文件是由一群医生、研究学者和记者所获得的。他们自称是追求“公共卫生和医疗透明度的专业人员”，曾向FDA以《信息自由法案》为由，要求公布这些文件。
 
-医学教授兼临床肿瘤学者Karol Sikora提出了如下质疑：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide4-9.jpeg)
 
-“这位病人是因为CCP病毒而住院还是被公车撞出车祸而死”？
+第一批文件显示，截至2021年2月，当辉瑞的试验性疫苗以“紧急使用授权”分发时，该制药商已经汇编了超过42,000份病例报告，详细记录了近16万例疫苗接种的不良反应，症状从轻微到严重不等，年龄分布从31岁至50岁。其中有1,223人因接种疫苗死亡；超过两万五千例神经系统疾病；一万七千例骨骼肌和结缔组织疾病；一万四千例胃肠道疾病；另有不同程度的自身免疫性疾病，以及数千例特殊疾病，包括270例“自然流产”、疱疹感染、癫痫、心力衰竭和中风等。
 
-“他有打加强针吗？是老人吗”？
+值得注意的是，面对上述庞大的不良反应记录，FDA和美国疾病控制中心CDC等监管机构仍然批准并推广了辉瑞的试验性疫苗，并坚持声称该疫苗安全有效，甚至计划在2022年向婴幼儿推广接种。
 
-“这事有很多细节值得推敲，我们没有得到足够的信息”。
+然而，该试验性疫苗对德尔塔变种病毒和新发的“奥米炕”变种病毒毫无抵抗能力；民众对FDA等监管机构的质疑愈发强烈。面对日益增加的舆情压力，美国食品和药物管理局表示，可能需要到2096年才能发布用于批准辉瑞疫苗的全部45.1万页资料。
 
-“CCP病毒死者平均年龄为82.5岁，因此一年内任何时刻都有很多的82岁患者去世”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
 
-“我怀疑这个不幸的死亡是其他的原因造成的，而死者恰好是CCP病毒呈阳性，因此政府部门没有明说这人是否打了疫苗”。
+总编：Zion文恩
+编辑：Zion文恩
+校正/发稿：谐趣园
 
-据每日邮报报道，强森的说辞是这位Omircon的死者是去西伦敦派丁顿的一家疫苗诊所途中去世。“令人悲伤的是Omicron造成更多的住院病例，以及至少一位确认因感染该毒株而死亡的案例”。
-
-然而，年龄、基础病患等死者的基本信息没有公开，强森首相也没有提及Omicron是该病人的主要死因还是次要的。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕截图-2021-12-14-092209.png)
-在于死因不透明一事上，首相发言人说病人信息保密是无法公开更多细节的原因，但是UKHSA（英国健康安全局）的周末报告会揭露更详细的信息。
-
-同时，该发言人还说Omicron毒株造成的死亡是不可避免的，因为该毒株的传播力有所增强。
-
-UKHSA首席医疗顾问Susan Hopkins和影子公共卫生大臣Wes Streeting对加强针持几乎相同相同态度，认为加强针依然有效，因此需要更大规模的推广。
-
-[https://www.dailymail.co.uk/news/article-10305417/Fury-lack-transparency-UKs-Omicron-death-victim-fully-jabbed-vulnerable.html](https://www.dailymail.co.uk/news/article-10305417/Fury-lack-transparency-UKs-Omicron-death-victim-fully-jabbed-vulnerable.html)
-
-**点评：**政府不公布死者信息就是为了推动加强针，在这则新闻里是在清楚不过的了。当死因这样重要的信息都不公之于众的时候，必定会激起全体民众的大规模觉醒和强烈的反抗，这是政府的失职。
-
-编辑/发布：LILY
-
-20211214
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

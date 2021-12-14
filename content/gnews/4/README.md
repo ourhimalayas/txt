@@ -2,33 +2,34 @@
 ---
 
 
-## 秘翻在线:失败的全球主义&#8217;菁英&#8217;想拉更多人陪葬
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1754424/)
+## 奥地利解除部分封锁措施
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1754618/)
 
-撰稿:牛小妹
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Image-1-2.jpg)
-图片:网路
+作者：纽约香草山农场 – 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+自11月底，奥地利对未接种疫苗的人进行限制和全国封锁后，反对强制疫苗和封锁措施的周末抗议活动，在首都维也纳持续进行。据12月13日外媒消息，奥地利已于12日解除了部分封锁措施。
 
-**包藏祸心的’大重启’计划宣告失败**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide6-4.jpeg)
 
-全球主义精英们提出的’大重启’计划，背后的阴谋是与各国无良政府、大药厂、出卖灵魂的媒体合作，假借中共病毒疫情的幌子，剥夺人们的自由与宪法基本主权。根据《零对冲》的报导，这些全球主义’精英’已经输了!它们正竭尽所能掩盖此一事实，即使这意味着催毁整个人类的未来。
+重新开放的部分地区文化场所，根据室内或室外情况，将对集会设人数上限。对于已经接种疫苗或最近康复人群的活动，将完全解除限制。而未接种疫苗人群，仅被允许离开家去工作或其他必要的目的地。餐馆设有夜间宵禁。乘坐公共交通工具与在室内等场所，均需要佩戴口罩。
 
-**统治阶级实施没有科学依据的隔离政策**
+此前，奥地利宣布自2022年2月起，所有14岁以上的居民都必须接种疫苗，除非因健康原因而豁免。目前，政府虽然改口称，没有强制接种疫苗，但是那些拒绝接种的人仍将被罚款。
 
-从洛杉矶、悉尼、莫斯科、里约热内卢、纽约、巴黎、伦敦以及其间的任何地方，除了极少数例外，世界各地几乎每个级别的政府，都以阻止中共病毒为由，对人民造成了难以置信的伤害。
+参考链接：[Austria Ends COVID Lockdown Measures For The Vaxx’d As Tens Of Thousands Protest Mandatory Jabs](https://www.zerohedge.com/markets/austria-ends-covid-lockdown-measures-tens-thousands-protest-mandatory-jabs)
 
-他们对公民实施各种限制，关闭商业活动和学校，禁止现场参加宗教活动，强制使用中共病毒追踪App。纽约市和旧金山 5 岁儿童的’运动通行证’、奥地利和德国不遵从者入狱、澳大利亚和纽西兰公民的拘留中心。这些措施唯一的共通点，就是完全没有科学根据及合法性。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
 
-**拒绝承认失败的全球“精英”正企图毁灭地球**
+总编：Irene木木
+编辑：Kathy文艺
+校正/发稿：谐趣园
 
-口罩政策失败了，封锁措施失败了，大型制药公司的 mRNA 注射方案也失败了。即便知道大势已去，统治阶级不会投降也不会放弃，它们死不承认涉嫌致命的刑事罪，决定在限定时间内，继续要求人们施打第三针、第四针疫苗，将数十亿人拖入这个烂摊子，导致数亿人失去生命和生计。
-
-**无良卫生专家、富人、独裁者、媒体、共产党、大药厂及政府是人类共同的敌人**
-
-安东尼·福奇、比尔·盖茨、乔·拜登、习近平、鲍里斯·约翰逊、安格拉·默克尔、世界卫生组织、世界经济论坛、纽约时报、共产党、辉瑞、Moderna、Facebook、谷歌、推特、CDC ，FDA 和持续增加的名单(台湾、日本、韩国政府…)，他们都是历史的罪人，永远要被全人类讨伐及追责。
-
-消息来源:[Elites Double Down On COVID Quagmire Despite Obvious Signs Of Failure](http://Elites%20Double%20Down%20On%20COVID%20Quagmire%20Despite%20Obvious%20Signs%20Of%20Failure)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
