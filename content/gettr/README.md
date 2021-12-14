@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/14/2021 4:00 AM (UTC)`
+
+12/12/2021 Miles Guo: Who are offended by a non-professional singer Miles Guo’s “Hcoin To the Moon” topping the charts? 1) The CCP and other dictatorships; 2) the so-called professionals in the music industry; 3) traditional platforms for distributing music; and 4) the music moguls behind the scenes<br/><br/>12/12/2021 文贵直播：非专业歌手郭文贵Hcoin To the Moon 霸榜惹恼了谁？1) 中共、独裁政权，2) 所谓音乐界专业人士，3) 发行音乐的传统平台，4) 世界音乐界背后的大佬<br/>
+![img](https://media.gettr.com/group19/getter/2021/12/14/04/7e82f595-a5a1-b91c-e4bb-0fd204cc23dc/out.jpg)
+
+---
+
 `@miles 12/14/2021 2:51 AM (UTC)`
 
 最近，我们初步的完成了关于青蒿素保健品和药品效用的问卷调查。调查结果显示，青蒿素会改善和缓解疫苗副作用及其他基础疾病。所有细节均包含在如下的报告里。青蒿素是中共病毒和中共病毒疫苗的解药，我们将继续推进真相。请遵医嘱。
@@ -144,13 +151,6 @@ Dec 12, 2021 The significance behind Mr. Miles Guo's impressive series of music 
 
 12/10/2021 Miles Guo: Most of the investments in the CCP’s financial sector and real estate are made by foreign financial institutions, and this alone violates the CCP’s so-called policies and regulations regarding the prohibition of foreign investments in certain domains and the foreign currency exchange settlement. The Western funds represented by Weijian Shan and PAG are simply crooks and “lawful thieves” who swindle money, and the consequences of the collapse of these funds will be extremely serious!<br/><br/>12/10/2021文贵直播：中共国金融房地产的大部分钱来自国外金融机构，这本身就触碰了所谓的外商禁入产业和外汇管制政策和法律，以单伟建、太平联盟为代表的西方基金都是骗子、合法的小偷，爆雷的后果是要命的！<br/>
 ![img](https://media.gettr.com/group11/getter/2021/12/12/00/7579c049-0fa1-bf91-f6e7-347ff5eaffb9/out.jpg)
-
----
-
-`@miles 12/12/2021 12:20 AM (UTC)`
-
-12/10/2021 Miles Guo: Weijian Shan and his gangs have been promoting the notion that Communist China is the Western adventurers’ La-la Land; 9 trillion dollars have been injected into the CCP’s real estate sector through the U.S. PE funds and hedge funds; the fund managers in the Wall Street are the middlemen between the Adventurers' La-la Land (i.e., Communist China) and the fund investors; those fund managers are always making money regardless of whether the funds make money or not<br/><br/>12/10/2021 文贵直播：单伟建之流标榜独裁的中共国是西方冒险家的乐园，美国风投、对冲基金等有9万亿美元投进了中共国房地产，华尔街基金经理是连接冒险家乐园（中共国）和风投的中间人，无论基金赔钱还是赚钱，基金经理稳赚不赔<br/>
-![img](https://media.gettr.com/group37/getter/2021/12/12/00/5374f48f-7daf-03d0-6a65-9478fbbc7da9/out.jpg)
 
 ---
 
