@@ -2,61 +2,61 @@
 ---
 
 
-## 参议员汤姆·科顿： 我们必须继续与台湾站在一起，帮助确保其自治
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1752697/)
+## 澳美日达成协议将建立大规模水下互联网系统
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1752790/)
 
-参议员汤姆·科顿： 我们必须继续与台湾站在一起，帮助确保其自治，并维持现状。 拜登总统不能跪下向 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 北京磕头。
+**澳大利亚与其他超级大国公布了一项大规模的联合计划，以援助一个地区。批评人士认为，此举将削弱中国的影响力。**
 
-
-
-> We must continue to stand alongside Taiwan, help secure its autonomy, and maintain the status quo.
-> 
-> President Biden cannot kowtow to Beijing. [pic.twitter.com/kBQEcYm48y](https://t.co/kBQEcYm48y)
-> — Tom Cotton (@SenTomCotton) [December 14, 2021](https://twitter.com/SenTomCotton/status/1470553827082440705?ref_src=twsrc%5Etfw)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/电缆-1.png)图片来源：澳洲新闻网
 
 
+**翻译：文扬**
+**编辑：Candy**
 
-众议员布莱恩·马斯特： 山中无老虎，猴子称大王。 乔·拜登的无能意味着俄罗斯和 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 可以——而且将会——接管(世界)。 【视频中马斯特说，[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 已经吞掉了香港，接下来要拿下台湾，丝毫不顾及美国，因为他们嗅到了拜登政府的软弱】
+一项由澳大利亚加入美国和日本行列的大规模计划已经公布：建立水下互联网电缆系统，以提高太平洋地区互联网的速度，用以在大流行病带来严重经济影响后帮助该地区。
 
+三国政府的一份联合声明说：“拟议的海底电缆将为三个国家的大约10万人提供更快、更高质量、更可靠和安全的通信。”
 
+“随着该地区从 Covid-19 的严重影响中恢复过来，这将支持经济增长，推动发展机会并有助于提高生活水平。”
 
-> While the cat’s away, the mice will play. 
-> 
-> Joe Biden’s incompetence means Russia and China can – and will – take over. [pic.twitter.com/hfGd7WtzXG](https://t.co/hfGd7WtzXG)
-> — Rep. Brian Mast (@RepBrianMast) [December 14, 2021](https://twitter.com/RepBrianMast/status/1470567786250391558?ref_src=twsrc%5Etfw)
+澳大利亚外交部长玛丽斯·佩恩 (Marise Payne) 在与美国和日本的同行达成交易后宣布，该开发项目“不仅仅是一项基础设施投资”。
 
+部长们说：“在我们地区面临前所未有的经济和战略挑战时，它代表了一种持久的伙伴关系，可以提供切实可行的有意义的解决方案。”
 
+“这个项目是建立在澳大利亚、日本和美国在印度——太平洋地区三边合作的坚实的基础上。”
 
-众议员克里斯·斯图尔德： 我们在莫斯科、德黑兰和北京的对手将考验拜登总统以扩大他们的权力和影响范围。 不幸的是，目前尚不清楚拜登是否或如何回应。 【附斯图尔德众议员在福克斯的视频采访】
+该计划也被认为是对中国在该地区影响力的直接回应。据洛伊研究所太平洋岛屿项目主任乔纳森·普莱克(Jonathan Pryke)称，由于对所罗门群岛政府在2016年与中国电信巨头华为签署的协议的担忧增加，澳大利亚介入并向太平洋国家提供了一个 “更好的交易”。
 
+作为对华为交易的回应，澳大利亚为珊瑚海电缆的大部分工程垫付了大部分款项，该电缆将巴布亚新几内亚的莫尔兹比港，和所罗门群岛的霍尼亚拉连接到悉尼的枢纽。
 
+批评人士仍对中国的意图持怀疑态度，推测中国铺设的电缆可能危及该地区的安全，甚至可能被用于间谍活动。 中国官员否认了这一说法。
 
-> Our adversaries in Moscow, Tehran and Beijing are going to test President Biden to expand their power and spheres of influence.
-> 
-> Unfortunately, it isn’t at all clear if or how Biden will respond. [pic.twitter.com/CFxOAwRaLO](https://t.co/CFxOAwRaLO)
-> — Rep. Chris Stewart (@RepChrisStewart) [December 13, 2021](https://twitter.com/RepChrisStewart/status/1470495723703652369?ref_src=twsrc%5Etfw)
+普莱克先生通过 ABC 说：“这被视为澳大利亚不会越过的红线，因此我们达成了更好的交易，以赠款的形式提供电缆，并与澳大利亚选择的采购伙伴一起实施——不是中国的。”
 
+据澳大利亚广播公司报道：华为海洋合同 “将导致在霍尼亚拉和悉尼之间铺设电缆，这将意味着中国的硬件已经连接到澳大利亚国内互联网基础设施的骨干网。”据报道，这项交易已经使澳大利亚花费了1.37亿美元。
 
+澳大利亚国立大学的阿曼达·沃森（Amanda Watson）博士帮助绘制了整个亚太地区的电缆项目图，试图增加偏远岛屿国家的带宽。然而，并不能百分之百地保证这个新举措将为三个目标国家降低价格。
 
-参议员汤姆·科顿： 比尔·克林顿曾表示，“如此多的美国人担心一个强大的 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 对世界的影响，这很滑稽”。 他错了，他所嘲笑的美国人是对的。 20年前，[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 加入了世贸组织，标志着对我国的工业基础、经济和工人阶级造成巨大空洞的开始。 这是我国历史上最大的外交政策错误之一。我们与 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的贸易关系根本不正常，我们无法承担让这种关系永久存在下去。 我们必须结束与中共国的“永久正常贸易关系”。
+沃森博士告诉澳大利亚广播公司：“不能保证它会降低互联网价格或提高速度，因为还有其他因素在起作用，如市场竞争、在这些市场上运营的其他成本等等。”
 
+我们不能确定消费者在那些地方支付的价格会发生什么变化，甚至不能确定他们将体验到的速度是多少。
 
+“虽然我想说，地缘政治局势可能会影响澳大利亚、美国和日本的决策者的想法，当他们想出这个交易，建立一个三边合作关系来资助这个项目。”
 
-> Bill Clinton once said that it was “ironic that so many Americans are concerned about the impact on the world of a strong China.” He was wrong, and the Americans he derided were right.[https://t.co/u4WZQdVy3A](https://t.co/u4WZQdVy3A)
-> — Tom Cotton (@SenTomCotton) [December 13, 2021](https://twitter.com/SenTomCotton/status/1470481887286153216?ref_src=twsrc%5Etfw)
+早期的估计预测，新安装的电缆在太平洋国家之间传输数据大约需要 18 个月的时间。
 
+沃森（Watson）博士说：“至少一家电信公司需要做一些额外的工作才能连接到它。”
 
+原文链接： [Australia, US and Japan strike deal to build massive underwater internet system to aid the Pacific | news.com.au — Australia’s leading news site](https://www.news.com.au/technology/innovation/australia-us-and-japan-strike-deal-to-build-massive-underwater-internet-system-to-aid-the-pacific/news-story/26599ab0dc9f7fa4816fdf3903d88e63)
 
-前国务卿迈克·蓬佩奥： 我们教导我们的年轻人，这些才华横溢的运动员们畅所欲言。 他们将要去 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)，如果其中一个人说“西藏自由”，或“对香港人民有好处”，或“我支持台湾”，他们就可能得不到出境签证。很自豪通过了两党的2022财年国防授权法案 [#FY22NDAA](https://twitter.com/hashtag/FY22NDAA?src=hashtag_click)，该法案旨在帮助支持我们的军队及其家人，并解决我们国家今天面临的许多日益严重的国家安全威胁，包括来自 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CC](https://twitter.com/hashtag/CC?src=hashtag_click)​​P、俄罗斯、伊朗等国的威胁。 阅读更多所包含的有关我的优先事项：
+***发布：Candy***
 
-
-
-> Proud to pass the bipartisan [#FY22NDAA](https://twitter.com/hashtag/FY22NDAA?src=hash&amp;ref_src=twsrc%5Etfw) to help support our military and their families, & address the many growing national security threats our nation faces today, including the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw), Russia, Iran & more.
-> 
-> Read more about my priorities that were included: [https://t.co/aS6Y3AksF3](https://t.co/aS6Y3AksF3)
-> — Rep. Mike Waltz (@michaelgwaltz) [December 13, 2021](https://twitter.com/michaelgwaltz/status/1470462404542746629?ref_src=twsrc%5Etfw)
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,40 +2,24 @@
 ---
 
 
-## 日本高官将加入抵制北京冬奥会的行列
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1752842/)
+## 疫苗后14天没有死亡很幸运，但由于体内有刺突蛋白，你需要10年的时间来观察自己的健康
+` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1752934/)
 
-作者: 纽约香草山农场-文真
+所以，你那些打了疫苗的朋友，在最初的14天内没有死亡，没有碰巧属于伤害机制中的第一类，包括急性过敏性休克、心脏病发作、中风或死亡，对吗？
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-11.jpg)
+他们需要至少10年的时间来审视自己，然后才能说什么都没发生，因为他们（体内）已经有了我们之前讨论的刺突蛋白问题，我们之前说过刺突蛋白的抗体，可能会导致多器官系统衰竭的发生，以及很多其他的问题，40种不同的伤害机制。
 
+因此，如果有人轻描淡写地说，看看，什么都没发生，你对他们的回应应该是，很幸运你不属于第一类伤害，你没有在最初的14天内死亡，但你有10年的时间来观察你的健康。
 
+如果10年后，你仍然处于和现在一样的相对健康状态，再算上10年的衰老，那么你可以说疫苗对我没有什么影响。
 
+素材：kent
 
+翻译：kent
 
-12月11日，外媒报道称，日本政府尚未明确全面外交抵制北京冬奥会，但是，将仅派出较低级别的官员出席。
-![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/chinaolympics.jpg?itok=j33Extn7)
-最近，日本媒体援引多个知情人士的话报道，日本政府很可能加入美国的外交抵制行动，高级官员将不会出席2022年二月在北京举行的冬奥会。日本国家广播公司也证实了这一消息，称日本政府倾向于不派内阁部长出席北京冬奥会。该报称，现在预计参加的官员仅是与奥运会有关的人员。
-截至目前，继美国公布了外交抵制行动后，英国、加拿大、澳大利亚、新西兰和立陶宛已明确表示不会派政府官员参加北京2022冬奥会。
+字幕：文所未闻
 
-编辑: Jack Li文阳
-
-新闻链接:[Top Japan Officials To Join US Boycott Of Beijing Olympics As List Grows](https://www.zerohedge.com/political/top-japan-officials-join-us-boycott-beijing-olympics-list-grows)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-192.jpeg)
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-11.jpg)
-
-
+发布：风云小哥
 
  
 
