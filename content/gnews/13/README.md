@@ -2,27 +2,31 @@
 ---
 
 
-## 拜登的儿童疫苗接种计划在加州严重受挫
-` 向真` [轉載自GNews](https://gnews.org/zh-hans/1752425/)
+## 英国网球新星美网冠军艾玛·拉杜卡努 (Emma Raducanu) 感染中共病毒，已完全接种两剂疫苗
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1752462/)
 
-#### 加拿大温哥华农场 向真
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-230.jpeg)来源：Google news
-据红声传媒12月13日报道，在今年9月渡过罢免困难期后得以留任加州州长的加文·纽森，在推行疫苗接种方面的力度甚至超过了拜登政府制定的相关规定，似乎决意将加州变成拜登政府强推疫苗的模范州。
+编译： 真北007
+![](https://assets.gnews.org/wp-content/uploads/2021/12/120528209_tv070552709.jpg)图片来源：网络
+来自英国每日邮报DAILY MAIL 星期一12月13日的新闻报道：
 
-加文·纽森除了迫使公司职员、工厂工人和教师服用辉瑞生产的所谓神奇药丸，还规定在明年学校开学即2022年1月10日前，所有公、私立学校的学生必须注射疫苗。
+艾玛·拉杜卡努 (Emma Raducanu)对中共病毒检测呈阳性，并被迫退出本周晚些时候在阿布扎比举行的穆巴达拉经典展览赛事。
 
-自从美国食品药品管理局(FDA) 在40多天前，做出了授权针对5岁至11岁儿童注射疫苗的决定后，加州大量适龄儿童的父母拒绝为自己的孩子接种疫苗，仅洛杉矶联合学区（LAUSD）就有3万名学生拒绝接种疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-231.jpeg)来源：Gnews
-12月10日，洛杉矶联合学区不得不发布消息称，原定的明年1月10日强制接种疫苗截止日期将推迟到2022年9月。推迟的决定还要获得加州教育委员会的批准才能正式生效。
+已全面接种了疫苗的美国公开赛冠军，在预定于周四首次亮相中东之前已经前往中东。
 
-如此突然的变化是因为到新学期开学时，仅洛杉矶联合学区就有3万多名学生失去上学的机会，可见整个加州反疫苗的人数有多么庞大，这将对加州政府形成巨大的压力。
+“我非常期待在阿布扎比这里的球迷面前比赛，但不幸的是，在检测出 COVID-19 呈阳性后，我将不得不推迟到下一次机会”，这位来自肯特郡的 19 岁球员说道。据报道，艾玛·拉杜卡努只有轻微的症状。
 
-加州是民主党的铁票仓，拜登的儿童疫苗接种计划在加州遭受重挫，说明美国的大量民众已经觉醒，他们知道中共病毒及其疫苗是各种邪恶势力的反人类武器，因此反疫苗的态度很坚决，加文·纽森在如此强大的正义力量面前简直就是一个笑话。
+“我正在按照规则隔离，希望很快就能回到球场上”。
 
-参考：
+这位美国公开赛冠军将在圣诞节后飞往澳大利亚，为年度首个大满贯赛事开始做准备。
 
-[California School District Forced To Postpone COVID-19 Mandate As 30,000 Kids Didn’t Comply](https://www.redvoicemedia.com/2021/12/california-school-district-forced-to-postpone-covid-19-mandate-as-30000-kids-didnt-comply/)
+**点评:** 惋惜！真的希望疫苗管用，不害人，期待她和其他年青朝气蓬勃的选手明年取得好成绩!
 
+原文链接：[https://www.dailymail.co.uk/sport/sportsnews/article-10304655/Emma-Raducanu-tests-positive-Covid-19-despite-fully-vaccinated.html](https://www.dailymail.co.uk/sport/sportsnews/article-10304655/Emma-Raducanu-tests-positive-Covid-19-despite-fully-vaccinated.html)
+
+编辑/发布：LILY
+
+20211213
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,43 +2,30 @@
 ---
 
 
-## 澳大利亚将成为美国和欧洲以外最大的mRNA疫苗生产地
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1752538/)
+## 中日财经爆：被恒大拖欠2个亿，顶固集创股价大跌
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1752623/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-708.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.dinggu.net%2Fupfile%2F2021%2F06%2F20210602160324_806.jpg&amp;imgrefurl=https%3A%2F%2Fwww.dinggu.net%2F&amp;tbnid=1DMPifzIOiEcUM&amp;vet=12ahUKEwjnv5v0leL0AhUbGjQIHcgPDz8QMygDegUIARCcAQ..i&amp;docid=vIHr3agur3FRAM&amp;w=750&amp;h=446&amp;itg=1&amp;q=%E9%A1%B6%E5%9B%BA%E9%9B%86%E5%88%9B&amp;ved=2ahUKEwjnv5v0leL0AhUbGjQIHcgPDz8QMygDegUIARCcAQ)
+上周刚创年内股价新高的顶固集创（300749.SZ），在12月13日掉头向下，开盘下跌8个点，截至下午收盘，报收10.30元/股，下跌7.79%。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/AdobeStock_404330523_Editorial_Use_Only-1210x700-1.jpeg)
+上周五晚间，顶固集创发布公告，称存在对恒大集团及其成员企业累计应收账款金额为2.07亿元，主要有应收商业承兑汇票约1.8亿元，其中已经逾期尚未兑付2572.95万元，且至2021年12月31日前即将到期约1.11亿元。上述逾期商票在会计处理上已由应收票据转至应收账款，同时按照公司坏账计提标准计提了坏账准备。
 
+**月底还有1.1亿元将到期**
 
- 
-图片来源:  **www.mydr.com.au**
+截至12月11日，顶固集创应收恒大集团及其成员企业累计金额为20665.05万元，主要有应收商业承兑汇票金额为17991.16万元，其中已经逾期尚未兑付2572.95万元，在本月底将到期的金额是11080.56万元。
 
+根据公告解释，恒大集团及其成员企业向顶固集创采购门锁五金、定制衣柜及配套家具等产品，业务结算主要通过现金、商业承兑汇票等形式进行结算。
 
-#### 整理/编辑 ：小红帽
+“鉴于上述应收票据存在无法按期兑付的风险，公司目前将该逾期的应收票据转回应收账款，并按规定对该部分应收款项计提坏账准备。”顶固集创公告中说明。顶固集创还在公告中表示，因上述剩余应收账款问题解决存在重大不确定性，公司暂时无法判断此次事件对公司本期或期后利润的影响金额。
 
-**据澳大利亚人报12月14日报道，澳大利亚与全球制药巨头莫德纳（Moderna）达成的一项价值20多亿的协议。澳大利亚将成为美国和欧洲以外最大的mRNA疫苗生产地。**
+值得注意的是，顶固集创还披露称，目前仍继续与恒大集团及其成员企业保持正常的业务往来，其中，精品五金业务实行款到发货；定制衣柜及配套家具业务实行先预付30%现金，发货前支付50%现金（不含预付款），剩余20%货款在安装、验收完成后结算并支付现金。
 
-该生产基地将在墨尔本建立一个每年能够生产1亿支呼吸道疫苗的工厂，包括未来的新冠疫苗（Covid-19）加强针。
+消息来源：[应收恒大商票2573万元逾期，1.1亿元将到期，这家公司今日大跌8%](https://finance.sina.com.cn/jjxw/2021-12-13/doc-ikyamrmy8749934.shtml)
 
-预计在周二，联邦政府、维多利亚州政府和莫德纳之间的三方合作将宣布该消息。
-
-此后，澳大利亚将成为本地区主要的呼吸道疫苗生产商，以应对未来潜在的大流行病和季节性流感。
-
-这个为期10年的战略和商业联盟将创建一间主权制造中心，挑战中国在本地区的软实力，并保证一定比例的疫苗将捐赠给澳大利亚的亚洲和太平洋邻国。
-
-虽然该设施将用于生产仍在开发中的季节性mRNA流感疫苗，但它也将配备在需要时在本地生产新冠疫苗，因为医学专家声称，世界在未来十年内可能仍将与这种病毒打交道。
-
-新闻来源： [联邦维州和莫德纳达成协议 在墨尔本建厂年产1亿支mRNA疫苗 – 澳大利亚人报中文网 | 国内外时事新闻 | 金融财经 | 教育 | 房产投资 (theaustralian.com.au)](https://cn.theaustralian.com.au/2021/12/14/61894/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

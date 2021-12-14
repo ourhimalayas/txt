@@ -2,36 +2,28 @@
 ---
 
 
-## 美国务卿布林肯即将访问东南亚三国 加强反共联盟
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1751050/)
+## GTV新闻访谈简报|2021年12月13日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1751152/)
 
-#### **撰稿：**日本东京方舟农场 子辰
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-3.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/B252AF61-5150-4FFA-84E0-22737C357B79.jpeg)（图片来自《大纪元》）
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-1-5.png)
+文章仅代表作者本人观点，与Gnews无关
 
-据《大纪元》12月13日报道，美国国务卿布林肯将首次出访东南亚的泰国、印尼和马来西亚三国，寻求和加强与东南亚地区的经济与安全合作，以进一步在印太地区建立更为广泛的反共统一联盟。
+视频参看：[2021.12.13早GTV新闻访谈](https://gtv.org/video/id=61b74a4d56f4921401b6eb8b)
 
-据悉，布林肯将于周一（12月13日）抵达印度尼西亚首都雅加达，周二前往马来西亚访问，周三前往泰国，并于16日结束访问行程。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-这是自拜登政府上任以来首次高级外交官的东南亚之行。而布林肯也是继商务部长雷蒙多（Gina Raimondo）、国务院东亚暨太平洋事务助理国务卿康达（Daniel Kritenbrink）之后，第三位走访东南亚的美国高级官员。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/calendar.jpeg)
 
-另据《路透社》报道，美国于亚洲地区的最高外交官丹尼尔‧克里滕布林克（Daniel Kritenbrink）在之前的简报会上表示，布林肯将把拜登政府与东南亚国家联盟（ASEAN）的关系，提升到“前所未有”的水平。
-
-克里滕布林克称，双方合作的重点是，面临中共的“欺凌”，如何加强地区安全基础设施。同时，双方还将讨论拜登总统的“印太经济框架”愿景。
-
-《大纪元》的报道指出，拜登政府认为，美国参与东南亚的金融建设，可以在该地区推动反共力量。此外，在美企将制造业从中共国搬迁出来之后，急需在东南亚寻找新的落脚点。为了保护脆弱的商品供应链以及改善融资，布林肯可能会在这些方面寻找合作机会。
-
-该报道还分析认为，由于东南亚地区的战略重要性，加上美国在该地区推动“自由开放的印太地区”，使得这一地区已成为美中之间的战略战场。
-
-*参考链接： [布林肯将访问东南亚三国 加强反共联盟](https://www.epochtimes.com/gb/21/12/12/n13432697.htm)*
-
-* * *
-
-*素材采编：子辰*
-
-*编辑：青衣青青*
-
-*发布：miumiu*
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
