@@ -2,31 +2,32 @@
 ---
 
 
-## 加拿大多组织在国际人权日抗议中共暴政
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1753205/)
+## Hcoin to the moon的打榜方式对现有规则的改写
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1753213/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Unknown-21.jpg)加拿大多组织在国际人权日抗议中共暴政 网络图片
-据自由亚洲电台12月13日报道，来自香港、维吾尔及中共国大陆民运等不同族裔和背景的7个团体约2百多人，12日在多伦多举行国际人权日抗议中共暴政、抵制北京奥运的活动。温哥华于12月10日也有来自中共国、菲律宾、巴西等不同族裔的团体共同举行集会活动，抗议威权国家迫害人权。有来自中共国大陆的人士举着声援张展和香港民主人士的标语图像，关注中共国人权情况。
+作者：银河勇气星 – 骄子
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+截至12月13日，郭文贵先生的打榜歌曲Hcoin to the moon及其MV版在全球最著名音乐排行榜上继续风靡。在12月12日的大直播中，郭先生谈到，打榜过程经历了中共的严厉封锁，但冲破了重重阻碍，几乎改写了歌曲打榜的全部规则。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture3-10.jpg)
+首先，歌曲的创作者和参与者并非全都是专业音乐人士，这让以音乐专业技巧为盈利手段的人群感到不悦；其次，歌曲的上榜渠道并非官方规定的渠道，这让各大音乐媒体背后的大资本感到不悦；再次，歌曲打榜的运作方式与传统方式不同，不以牟利为目的，彻底摆脱了资本的控制；最后，各奖项平台背后的大佬也深表不悦，认为这给他们带来了危险。日前，郭先生断然拒绝了好莱坞位居前三的某大佬的签约威胁，也预示着旧时代的垄断和规则已全部被颠覆。
 
-集会活动发起组织之一的加拿大港加联会长冯玉兰表示，“12月10日是国际人权日，呼吁所有运动员在北京冬奥会比赛期间用各种方式来表达抗议的声音。我们也关注中共在加拿大的渗透、操纵和干预，呼吁加拿大政府禁止华为参与5G建设，并且会继续游说国会建立《外国人影响力透明法案》，以保障加拿大不受外来势力干扰”。
+另外，郭先生的歌曲本身传达的是灭共的内容，全球收听和参与打榜的人以爆料革命战友为主，让政治家们忧虑在全球已经形成了一股无法阻挡的平民主义正道运动热潮。
 
-加拿大两个迈克尔在华为孟晚舟事件之后，被中共国释放了，但仍有一百多名加拿大人被关押在中共国，有很多涉及政治迫害。在中共的残暴面前，世界在逐步清醒。因为人权问题，加拿大是率先宣布外交抵制北京奥运的国家之一。中共国的人权危机会成为压死中共的一根稻草。
+参考链接：[Hcoin to the moon的打榜方式对现有规则的改写](https://gtv.org/video/id=61b5f49556f4921401b604a9)
 
-新闻参考链接：[https://www.rfa.org/mandarin/yataibaodao/renquanfazhi/lf-12132021134719.html](https://www.rfa.org/mandarin/yataibaodao/renquanfazhi/lf-12132021134719.html)
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-* * *
+总编：飞虹
+编辑：飞虹
+校对/发稿：Hetangyuese
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
