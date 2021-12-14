@@ -2,165 +2,46 @@
 ---
 
 
-## 中国企业家带上五角帽 也永远不是赵家人
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1753590/)
+## 12/14/2021国际财经快讯：1.75万亿美元法案“一切皆有可能”；苹果逼近3万亿美元市值
+` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1753612/)
 
-[https://gtv.org/video/id=61b8270aa68b4f4b28e83336](https://gtv.org/video/id=61b8270aa68b4f4b28e83336)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-72.png)[图片来源](https://dzm0ugdauank9.cloudfront.net)
+**1.1.75万亿美元法案“一切皆有可能**”
 
-郭文贵
-Miles Guo
+[华盛顿（路透社）–民主党参议员乔-曼钦（Joe Manchin）周一在与美国总统拜登（Joe Biden）就一项1.75万亿美元的关键社会支出法案进行讨论后表示不置可否，但在被问及该法案是否能在圣诞节前通过时表示“一切皆有可能”。曼钦是一个温和派，在拜登的一些重大举措中扮演着绊脚石的角色，他告诉记者，关于该法案的“谈话是积极的”，这是白宫议程的一个关键部分。周一，拜登试图使“重建更美好”法案获得通过，该法案旨在加强社会安全网和应对气候变化。几个月来，民主党人之间的分歧阻碍了社会支出立法，导致国会大型进步民主党核心小组的主席周一对她所说的对该法案的故意歪曲表示愤慨。](https://www.oann.com/biden-and-manchin-may-speak-on-monday-as-democrats-push-2-trillion-spending-bill/)
 
-吃三年草和中国人不打就不行
-The Chinese people can eat grass for 3 years straight and they can’t live without being beaten
+**2.****华尔街收盘下跌，投资者关注欧米茄和美联储会议**
 
-中国人有饭吃就不行
-The Chinese people have food to eat would not work
+[12月13日（路透社）–华尔街周一收盘下跌，嘉年华公司和几家航空公司的股票下跌，因为投资者在本周晚些时候的美联储会议之前担心Omicron冠状病毒变体。旅游相关股票下跌，这种快速传播的变体在伦敦的中共病毒感染中占40%左右，在英国至少有一人死亡。挪威邮轮控股（NCLH.N）、嘉年华集团（CCL.N）和皇家加勒比邮轮（RCL.N）均出现下滑，而标准普尔1500航空指数（.SPCOMAIR）下挫超过2%。“这是交通，餐馆，所有的东西，如果它变得足够糟糕，我们开始对人们施加新的限制，这对他们是不利的，”亚特兰大Globalt投资公司的高级投资组合经理汤姆-马丁说。“在过去的几个月里，他们都被我们要恢复正常生活的想法所吸引。”](https://www.reuters.com/markets/europe/wall-street-ends-down-investors-eye-omicron-fed-meeting-2021-12-13/)
 
-这都是如出一辙
-All these seem to come from the same rut
+**3.****摩根士丹利CEO戈尔曼称美联储可能需要在利率上更快采取行动**
 
-像万达王健林、像马云、像马化腾
-Just like Wang Jianlin (founder and chairman of Wanda Group), Ma Yun, and Ma Huateng
+[纽约（路透社）–摩根士丹利首席执行官James Gorman周一在接受CNBC采访时表示，他认为美联储可能需要在加息方面更快采取行动。投资者预计，美国央行将在本周晚些时候表示，它计划比预期更早结束其债券购买。他们正在寻找关于明年可能升息时间的线索。“我们正在走向一个上升的利率环境，”戈尔曼说。“如果我是美联储，我会更快地开始行动，而不是更晚，储存一些弹药并接受现实。”63岁的戈尔曼自2010年以来一直担任摩根士丹利的首席执行官，并在2007-09年的金融危机后引导该企业恢复健康。今年早些时候，他说他预计将再掌舵三到五年。当被问及继任计划时，戈尔曼强调了银行内部有实力的潜在候选人来接替他。](https://www.oann.com/morgan-stanley-ceo-gorman-says-fed-may-need-to-move-quicker-on-rate-rises/)
 
-所有的老板都忘了自己出自于草根
-All these bosses have forgotten that they came from the grassroots (the lowest class people)
+**4.****亚行因欧米茄风险而调低发展中亚洲的增长预测**
 
-他以为戴个五角星的帽
-They believe that they are wearing the hat with a 5 stars
+[马尼拉（路透社）–亚洲开发银行周二下调了今明两年亚洲发展中国家的增长预测，以反映新的奥米克朗冠状病毒变体带来的风险和不确定性。这家总部位于马尼拉的贷款机构现在认为2021年亚洲发展中国家的国内生产总值（GDP）增长率为7.0%，低于7.1%，2022年的增长率为5.3%，低于9月份的5.4%。](https://www.oann.com/adb-trims-developing-asias-growth-forecasts-over-omicron-risks/)
 
-像梁安琪一样
-like Leong On-kei (Member of the Legislative Council of Macau)
+[亚行在其《亚洲发展展望》报告的一份补编中说：“发展中亚洲的COVID-19已经消退，但全球范围内感染率的上升和一个快速传播的变体的出现表明，这种大流行病将需要时间来演绎。”预计今年亚洲大多数发展中地区的增长速度将比之前想象的要慢，部分原因是中共国经济复苏乏力。中共国经济从去年的大流行性衰退中上演了令人印象深刻的反弹，但在最近几个月失去了动力，因为它正在努力应对价格飙升、制造业放缓、房地产市场的债务问题和持续的中共病毒疫情。](https://www.oann.com/adb-trims-developing-asias-growth-forecasts-over-omicron-risks/)
 
-像洗米华一样 是不是？
-and Alvin Chao (Founder of Suncity Group)
+**5.****澳大利亚11月商业状况进一步改善，就业率回升**
 
-就觉得我是共产党的亲儿子了
-they would be the CCP’s biological children
+[悉尼（路透社）–由于悉尼和墨尔本放松了冠状病毒的限制，澳大利亚11月份的商业状况进一步改善，就业率的明显回升预示着整个经济的快速复苏。周二澳大利亚国民银行（NAB）的调查显示，其11月份的商业状况指数上升了2点，达到+12，大大高于其长期平均值。增长的原因是就业率上升了5个百分点，达到历史上强劲的+11，而销售指数上升了1个百分点，达到+16，盈利能力保持在+8。该调查的信心指数下降了8个点，至+12，但这是继前一个月的11个点的激增之后，再次保持远高于长期平均值。](https://www.oann.com/australian-business-conditions-improve-further-in-nov-as-jobs-rebound/)
 
-你没想到你永远不是
-They never thought they would never be
+**6.****美国航空公司CEO认为****中共病毒****援助 “拯救 “了行业**
 
-那么西方投到的风投和风控这些人
-So the venture capital and risk control people invested by the West
+[华盛顿（路透社）–根据路透社看到的证词，美国航空公司首席执行官道格-帕克将告诉美国参议院委员会，540亿美元的中共病毒美国政府援助“拯救了航空业”。帕克将于周三与西南航空和联合航空的首席执行官一起作证。达美航空的运营主管也将出庭作证。帕克将告诉专家小组，如果国会将整个援助安排为政府贷款，大多数航空公司“将通过在2020年4月停止飞行，解雇我们几乎所有的团队，并等待需求恢复到足以证明恢复飞行的水平而生存下来。事实证明，那将是在2021年的某个时候”。立法者预计将询问高管们关于航空公司如何使用与大流行病有关的联邦援助、人员配置问题和其他事项。](https://www.oann.com/american-airlines-ceo-u-s-covid-19-aid-saved-industry/)
 
-进去以后
-After they entered
+**7.****苹果逼近3万亿美元市值**
 
-带到的美国所有的西方投资家
-all the Western investors in the U.S. brought to
+[12月13日（路透社）–苹果公司(AAPL.O)的市值周一在离3万亿美元大关不远处徘徊，过去十年的惊人表现使其成为全球最有价值的公司。该公司股价周一下跌略高于2%，收于175.74美元，扭转了此前接近3万亿美元市值所需的182.86美元的涨势。苹果公司的股价上周上涨了约11%，延续了年初至今超过30%的涨幅，因为投资者仍然相信齐头并进的消费者将继续为iPhone、MacBooks以及苹果电视和苹果音乐等服务支付最高价格。这家iPhone制造商花了16个月的时间，从2万亿美元的市值迈向接近3万亿美元的市值，因为它带领着谷歌母公司Alphabet Inc（GOOGL.O）和亚马逊公司（AMZN.O）等一批巨型科技公司，在大流行期间从人们和企业对技术的严重依赖中受益。](https://www.reuters.com/markets/europe/apple-set-amass-3-trillion-market-capitalization-2021-12-13/)
 
-一个最核心的两个问题
-the two core problems
+**8.****美国消费者预计短期通胀率将以两倍于工资增长的速度上升**
 
-你是不知道的
-you don’t know
+[12月13日（路透社）–根据纽约联邦储备委员会周一公布的一项调查，美国消费者的短期通胀预期在11月推高，对未来收入增长的预期下降，这表明他们预计价格上涨将在短期内以更快的速度超过工资增长。根据美国劳工部上周公布的数据，食品和其他商品的价格正在以1982年以来最快的速度上升，这给美国总统拜登的政府带来了政治挑战，并巩固了美联储明年将加息的预期。根据纽约联储的调查，部分由与大流行病相关的供应链中断和需求转变引起的较高的通货膨胀也在侵蚀工资的增长，一些消费者预计这种情况在短期内会恶化。在近期通胀预期上升的同时，11月提前一年的收益预期有所下降。](https://www.reuters.com/markets/us/us-consumers-see-near-term-inflation-rising-twice-pace-wage-gains-survey-shows-2021-12-13/)
 
-第一 真实的投资数据
-First, the real investment data
-
-有战友说，这个恒大9万亿搞错了
-Some comrades in arms have said that they made this Evergrande’s 9 trillion dollars, that’s wrong
-
-是全美国投到中国9万亿
-It should be the U.S. invested a total of 9 trillion dollars in China
-
-千万大家记住，唯真不破
-Everyone, don’t forget the power of truth
-
-千万要唯真不破
-We must keep the truth
-
-所以说这9万亿它是在哪里
-So saying where are the 9 trillion dollars
-
-是美国政府投到中国9万亿
-It’s the 9 trillion dollars that the U.S. government has invested in China
-
-它是投房地产
-It is investment in real estate
-
-可不一定要投到这个恒大房地产
-But it doesn’t have to invest in this Evergrande real estate
-
-恒大有上千种方式
-Evergrande has thousands of methods
-
-完全跟恒大没有关系
-It has nothing to do with Evergrande
-
-在西方拿对冲基金的钱
-that taking money from hedge funds in the West
-
-担保再担保
-guarantee and re-guarantee
-
-无相关关系 第三方
-It’s the third party which no related relationship
-
-是吧？太多招了
-You see, they have too many tricks
-
-你根本不可能在那个数字里边的
-Those money can’t be in that number at all
-
-这叫对冲和风险基金的本质
-This is called the nature of hedge and risk funds
-
-不用公开信息，隐蔽性强
-There is no need to disclose information and strong concealment
-
-风险极大 回报极高
-High risk but high return
-
-玩弄着这两个风险的
-The maniac playing with these two risks
-
-投资者的疯子和那个冒险家
-are the investor maniac and the adventurer,
-
-就是那个恒大 共产党这边
-which is that Evergrande on the CCP side
-
-风和险中间叫什么
-What is it called between the risk and danger?
-
-叫基金经理
-It called the fund manager
-
-挣了 我拿20%
-They’ll take the 20% if you earn money
-
-赔了 我拿2%的管理费、5%管理费
-and take the 2% – 5% management fee if you lose money
-
-挣赔我都拿
-They’ll take your fund management fee no matter you gain or lose money
-
-这叫风险中间 叫基金经理人
-This is called risk middle, the fund manager
-
-就叫金钱妓女和金钱妈咪
-Called money prostitutes and money mommy
-
-* * *
-
-Date: 12/11/2021
-原视频标题: 中国企业家带上五角帽 也永远不是赵家人
-The Chinese Entrepreneurs Will Never Belong to The Zhao Family Even Though They Wearing The CCP Hats
-原视频日期：2021/12/10
-原视频链接: [**https://gettr.com/post/pjejnxf913**](https://gettr.com/post/pjejnxf913)
-任务编号：KC334(3187)
-视频时间段 : 0:00-2:05
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译：洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 ：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+By 【秘密翻译组-金融组】
+作者：千年等一回
 
  
 

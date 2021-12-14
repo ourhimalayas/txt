@@ -2,32 +2,33 @@
 ---
 
 
-## 中共继续大量增加粮食及饲料进口
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1753226/)
+## 2021/12/13 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1753301/)
 
-作者：纽约香草山教育部 – 文特
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-12月10日，国外有媒体援引国际贸易灵通人士的信息称，中共买家上周购买了大量的法国小麦和大麦，以及乌克兰的玉米和大麦。尽管还不清楚购买总量会有多少，但他们已经确定从这两个国家进口的谷物至少达数十万吨。另外，中共买家还大量购买了澳大利亚的饲料用小麦，至少也有数十万吨。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture3-13.jpg)
-仅就法国小麦而言，中共已预定6-10艘船，可能多达60万吨，主要在2022年1-3月装运。4艘法国大麦船和10船乌克兰大麦主要在明年7-8月装运。乌克兰玉米的运量大约也有10船或更多。
+1. 12月10日，河南南阳。孩子不配合打疫苗，妈妈把小孩按倒在地。
+2. 12月9日，四川成都华西医院。医院人流密集如车站，医疗被中共做成了一门赚钱的生意。
+3. 12月10日，西安唐都医院。妻子得了绝症，男子无钱医治，瞬间崩溃。
+4. 12月10日，贵州贵阳。民房顶层起火，老人避火逃生，坠楼身亡。
+5. 老人截肢后没钱安装假肢，自己绑了一条马腿用来行走。
+6. 12月9日，河南商丘。老人捡拾掉落在地上被弄脏的粉条，准备再次食用，小伙见状暖心赠送。
+7. 12月8日，江苏昆山。九旬老奶奶半夜在街头捡瓶子，每天独自捡到凌晨两点回家，好心人将换到的所
+8. 90岁老人将自家种的菜拿在集市上卖，小伙心疼无人问津，买下了老奶奶所有的菜。
+9. 12月11日，湖南长沙。大货车和小轿车相撞发生惨烈车祸起火，小车司机来不及逃生，当场被烧死。
 
-报道认为，这些信息表明，尽管中共一再声称国内的粮食收成很好，获得了丰收，生猪产业似乎也不太景气，但他们仍然需要大量进口粮食。
 
-参考链接：[中共继续大量增加粮食及饲料进口](https://www.reuters.com/markets/commodities/exclusive-china-snaps-up-large-volumes-french-ukrainian-feed-grain-2021-12-10/)
+* * *
 
-![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-总编：飞虹
-编辑：飞虹
-校对/发稿：Hetangyuese
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
