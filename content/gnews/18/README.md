@@ -2,31 +2,42 @@
 ---
 
 
-## 七哥谈共产主义邪教（2021-12-12摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1755090/)
+## 纽约时报承认 FDA 批准的默克 COVID 新药实际上会改变健康的人类基因并影响男性生育能力
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1755103/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+编译： 真北007
+![](https://assets.gnews.org/wp-content/uploads/2021/12/merck-drug-dna-edited.jpg)图片来源：网络
+来自GATEWAY PUNDIT星期二12月14日的新闻报道：
 
-来源：郭先生2021-12-12直播10：55：42 摘录
+在正常情况下，在正常世界中，此消息可能会成为头条新闻。但是在 2020 年大型制药公司大发横财的大流行期间，它被塞在了《纽约时报》文章的底部。
 
-还有一个会发生，大家一定要看到共产主义会被列为人类上的邪教，跟恐怖主义相提并论，人人可合法杀之，这才是重中之重！所以说你能看到今天这个2022年的美国中期选举的到来之中风卷残云的感觉的时候，哇！我就兴奋呐！明年的这个时候那是多么伟大的日子，你们每天会看到这种世界的变局，欧洲几乎全变，亚洲几乎全变，美国大变天！我都很难想象中南坑的人他难道不懂吗，他的任何一个明天啊，都是他的灾难。那新中国联邦再不干，就是真的躺平都会过来迎来无限美好的明天呢，是吧，这是真的呀！
+两周前，美国食品和药物管理局FDA批准了默克公司的新药莫奈拉韦molnupiravir。 “专家”委员会以微弱优势投票建议批准该药物。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+但是隐藏在文章底部，您了解到molnupiravir实际上可能会意外地使健康的基因 DNA发生变异。
 
-**关注我们**
+这是一个多么严重的问题？
 
-Discord 账号
+北卡罗来纳大学的一组研究人员在 32 天的时间里研究了 molnupiravir 在分离的仓鼠细胞中的使用，发现该药物确实会诱导 DNA 突变。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+该研究的作者写道，这些突变可能“导致癌症的发展，或导致发育中的胎儿或通过掺入精子前体细胞导致出生缺陷”。
 
-Gettr 账号
+该药物仅针对分裂细胞，这些细胞在成人中相对稀疏。与其他诱变剂（如辐射）相比，这带来的风险较小，辐射会破坏所有类型细胞中的 DNA。
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+尽管如此，帮助领导仓鼠细胞研究的北卡罗来纳大学教堂山分校的艾滋病毒 HIV 研究人员 Ronald Swanstrom 说，成年人有足够的分裂细胞——例如骨骼和肠道内壁——导致人们的担心。他还指出，男性会不断地制造出可能携带潜在突变的精子。
+
+哦，它可能会影响到想要成为父亲的男人。
+
+FDA 的顾问还指出，风险可能会扩展到其他患者，包括想要成为父亲的男性，尽管对这些风险仍然知之甚少，默克表示，其自己的研究没有发现该药物会导致 DNA 突变的证据。
+
+点评: 这证实了郭文贵先生早前的重磅爆料，大药厂的中共病毒的药物和疫苗一样有害，甚至危害更大。
+
+原文链接：[https://www.thegatewaypundit.com/2021/12/wow-ny-times-casually-admits-new-fda-approved-merck-covid-drug-might-actually-mutate-healthy-human-dna-accident-impact-male-fertility/](https://www.thegatewaypundit.com/2021/12/wow-ny-times-casually-admits-new-fda-approved-merck-covid-drug-might-actually-mutate-healthy-human-dna-accident-impact-male-fertility/)
+
+编辑/发布：LILY
+
+20211214
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
+
 
  
 
