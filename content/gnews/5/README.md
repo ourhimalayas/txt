@@ -2,60 +2,40 @@
 ---
 
 
-## 【Michael.Tonny专栏】运动员被中共病毒疫苗导致心脏问题
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1754877/)
+## 西喜时事新闻简报 — 美国时事篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1755000/)
 
-作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
-世界各国政客都在不遗余力的推广中共病毒疫苗，然而疫苗副作用带给世人的伤害，却一刻也没有停止。
+作者：土饭团
 
-2021年12月13日，《[Horas decisivas para el “Kun” Agüero: aseguran que anunciará su retiro este miércoles](https://www.eltribuno.com/salta/nota/2021-12-13-9-28-0-horas-decisivas-para-el-kun-aguero-aseguran-que-anunciara-su-retiro-este-miercoles)》报道，阿根廷前锋阿奎罗（Sergio Leonel Agüero del Castillo，或Kun Agüero）将在本周三将宣布退役！令人惋惜！
+[1.Tom Cotton抨击Biden允许中共国“通过武力而非谈判”来威胁台湾](https://www.foxnews.com/media/tom-cotton-slams-biden-allowing-china-threaten-taiwan-by-force)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Sergio-Leonel-Aguero-del-Castillo1.jpg)
+福克斯新闻12月13日电，阿肯色州共和党参议员Tom Cotton周一参加了“特别报道”，在有报道称白宫在民主峰会期间切断了一位台湾部长的视频后，他指责Biden总统“可悲的软弱”。我们需要做的是与台湾站在一起，帮助确保其自治权，并维持海峡两岸的现状。这就是美国现在40年来的政策。
 
-阿圭罗曾经在曼城度过了辉煌的10年职业生涯，共为曼城出场390次，打入260球73次助攻，是曼城队史射手王。这样一位优秀的足球运动员，职业生涯却被中共病毒和中共病毒疫苗摧毁。
+2[.美国太空部队举行战争模拟以测试卫星网络是否受到攻击](https://www.reuters.com/business/aerospace-defense/us-space-force-holds-war-game-test-satellite-network-under-attack-2021-12-14/)
 
-10月30日，在巴塞罗那主场对阵阿拉维斯的西甲第12轮联赛中，原本首发出场的阿奎罗，在第42分钟突然呼吸困难，他弯下身时指着自己的胸部，被巴西人菲利普·库蒂尼奥 (Philippe Coutinho) 换下，他几乎流着泪离开了比赛，乘坐救护车离开了诺坎普。
+路透社12月13日电，就在俄罗斯击落一颗老化的通信卫星后仅数周，美国就在地球表面数英里的地方测试卫星，以应对来自中共国和俄罗斯的威胁的适应性。五角大楼领导人本周正在巡视美国基地，而Biden政府的2023年预算草案正在成形。国防部希望将预算资金的朝向能够威慑到中共国和俄罗斯的军队。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Sergio-Leonel-Aguero-del-Castillo.png)
+3[.美国对中共国、缅甸和朝鲜实施全面的人权制裁](https://www.reuters.com/world/asia-pacific/us-issues-human-rights-related-sanctions-adds-sensetime-blacklist-2021-12-10/)
 
-随后，巴萨宣布阿圭罗心律失常，将休战三个月。然而，阿圭罗的心脏问题比最初预计的更严重，迫使他不得不终止他的职业生涯。
+路透社12月13日电，美国周五对与中共国、缅甸、朝鲜和孟加拉国相关的数十人和实体实施广泛的人权制裁，并将中共国人工智能公司商汤科技列入投资黑名单。“我们今天的行动，特别是与英国和加拿大合作的行动，发出了一个信息，即全世界的民主国家将对那些滥用国家权力施加痛苦和压迫的人采取行动”，美国财政部副部长Wally Adeyemo在一份声明中说。
 
-阿奎罗是一名中共病毒和中共病毒疫苗的受害者。今年1月22日，阿奎罗被确诊感染中共病毒。在对阵阿拉维斯比赛前几周前，阿奎罗还在向12岁的孩子推广新冠病毒（CCP病毒）疫苗……
+4.[Blinken前往东南亚深化合作以应对中共国的反击行动](https://www.usnews.com/news/world/articles/2021-12-12/blinken-heads-to-southeast-asia-to-deepen-cooperation-on-china-pushback)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/FDAPSvnVEAI8qZW.png)
+U.S.News & World Report 12月12日电，拜登政府将寻求通过其高级外交官下周访问该地区来加强与东南亚的经济和安全合作，因为它正致力于在印太地区建立一个反对中共国的统一战线。Blinken将追求Biden的目标，把与东南亚国家联盟(ASEAN) 的接触提升到“前所未有”的水平，重点是在中共国的“欺凌”面前加强地区安全基础设施，美国亚洲事务最高外交官Daniel Kritenbrink在出访前告诉记者。
 
-阿奎罗注射疫苗后能够幸运的活了下来，但有大量运动员已经倒下和早逝……
+5[.专家称中共国在战争期间可能对台湾进行“失灵网络攻击”](https://www.aninews.in/news/world/us/disabling-cyberattack-on-taiwan-by-china-possible-during-war-say-experts20211211150142/)
 
-德国报纸《柏林日报》（Berliner Zeitung）在一篇题为“足球中令人困惑的心脏病”（ [“UNUSUALLY LARGE” NUMBER OF SOCCER PLAYERS WHO HAVE COLLAPSED RECENTLY](https://www.blacklistednews.com/article/81156/german-newspaper-highlights-unusually-large-number-of-soccer-players-who-have-collapsed.html)）的报道中注意到了这种令人不安的心脏骤停模式。该报告试图了解为什么最近出现了异常大量的职业和业余足球运动员突然倒下，很多年轻运动员在接种中共病毒疫苗后正在遭受痛苦和死亡。
+ANI 12月11日电，随着中共国继续在台湾海峡施加压力，网络专家警告说，中共国可能会对该岛进行“失灵网络攻击”。台湾的所有“关键基础设施”都由互联网连接，这种联系可能造成“巨大的困难”以及人们普遍的恐慌。中共直接的军事入侵将付出生命代价，并动员美国军队保卫台湾。美国近几个月也在中共国可能攻击台湾的问题上增加了言辞。
 
-杰克·卡兹马雷克 (Jake Kazmarek) 是一名 28 岁的健美运动员，在接种中共病毒疫苗四天后意外死亡。另一位最近接种疫苗的运动员在比赛中途昏倒，冰球运动员鲍里斯·萨德基 (Boris Sadecky)（24 岁）突然倒在冰上后死亡。一位名叫迪伦·里奇 (Dylan Rich) 的17岁英格兰足球运动员在比赛中途死于心脏病。一位名叫卢卡斯·苏雷克 (Lucas Surek) 的24岁运动员被查出心律不正常（muscle disorder）后被BFC Chemie Leipzig俱乐部除名。拜仁慕尼黑25岁的金斯利科曼（Kingsley Coman）在接种疫苗后患有心律失常，不得不接受心脏手术。比利时年仅18岁的Rune Coghe在一场比赛中心脏病突然发作。伊斯坦布尔31岁的 Fabrice N’ Sakala 突然倒在球场上，不得不被送往医院。比特菲尔德（Bitterfeld）队队长迪特玛·格拉多（Dietmar Gladow）在赛前也心脏病发作。Gifhorn业余爱好者Marvin Schumann在比赛中心脏骤停，被急救。JSG Hoher Hagen不得不在Hannoversch Munden 的一场足球比赛中去急救一名 17 岁的球员。
+* * *
 
-根据日本卫生部（Japan’s Health Ministry）公布的数据，截至2021年11月14日记录的官方数据，每100万名接种 Moderna 疫苗的男性青少年，就有80例心肌炎！对于20多岁的男性来说，每100万剂就有48例心肌炎。辉瑞疫苗也表现出类似的问题，每100万青少年男性中有15例心肌炎，20多岁的男性每100万剂中有13例心肌炎。
+*审核：Aries的星
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-2.jpeg)
 
-mRNA疫苗是市场上最危险的疫苗！
 
-在以色列最大的医疗保健组织Clalit Health Services 的数据库中，大型医疗机构接种中共病毒疫苗后的反馈数据显示，在16至29岁年龄组中，每100万人中约有100例心肌炎。
 
-中共病毒疫苗正在祸害全世界，突发心脏病猛增，儿童被查出患有心脏病，足球运动员在球场上突然摔倒……
-
-停止毒疫苗！
-
-参考数据：
-
-[Japan Health Ministry issues HEART WARNING for Pfizer and Moderna covid vaccines](https://www.naturalnews.com/2021-12-10-japan-health-ministry-issues-heart-warning-covid-vaccines.html)
-
-[The world is starting to notice how many young athletes are DYING after taking covid vaccines](https://naturalnews.com/2021-11-10-world-starting-to-notice-how-many-young-athletes-are-dying-after-covid-vaccination.html)
-
-[Myocarditis after Covid-19 Vaccination in a Large Health Care Organization](https://www.nejm.org/doi/full/10.1056/NEJMoa2110737)
-
-[GERMAN NEWSPAPER HIGHLIGHTS “UNUSUALLY LARGE” NUMBER OF SOCCER PLAYERS WHO HAVE COLLAPSED RECENTLY](https://www.blacklistednews.com/article/81156/german-newspaper-highlights-unusually-large-number-of-soccer-players-who-have-collapsed.html)
-
-[Horas decisivas para el “Kun” Agüero: aseguran que anunciará su retiro este miércoles](https://www.eltribuno.com/salta/nota/2021-12-13-9-28-0-horas-decisivas-para-el-kun-aguero-aseguran-que-anunciara-su-retiro-este-miercoles)
-
-[Health ministry warns of vaccine’s side effects](https://www3.nhk.or.jp/nhkworld/en/news/20211204_12/)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/) 上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

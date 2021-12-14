@@ -2,12 +2,28 @@
 ---
 
 
-## 三亚市民：三亚市现在的生意特别惨淡哪！
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1754830/)
+## GTV新闻访谈简报|2021年12月14日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1754965/)
 
-12/12/2021 制作视频的男子在海南省三亚市最火的商店街一路拍摄视频。家家店铺在出租或转让。最后男子无奈地说：现在的生意特别惨淡哪！以后都没法儿做了！
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-3.jpg)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-14.png)
+文章仅代表作者本人观点，与Gnews无关
+
+视频参看：[2021.12.14早GTV新闻访谈](https://gtv.org/video/id=61b89bf756f4921401b79dbe)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/calendar.jpeg)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

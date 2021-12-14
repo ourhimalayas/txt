@@ -2,48 +2,37 @@
 ---
 
 
-## 2亿8000万阿富汗食品医疗援助得到批准
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1754691/)
+## 专家说2022年中共将通过贸易战削弱澳大利亚
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1754839/)
 
-作者：MOS—柳是多水土透
+![](https://assets.gnews.org/wp-content/uploads/2021/12/51752531-10306473-image-a-1_1639442859635.jpg)图片来源：www.dailymail.co.uk
+来自《每日邮报》12月14日的报道，随着大宗商品价格在2022年将暴跌，中共国最终可能通过贸易战削弱澳大利亚。
+尽管铁矿石价格自7月以来已跌了一半，但随着中共国经历大面积停电，煤炭价格在10月升至历史新高。为报复澳大利亚呼吁调查中共病毒起源，中共政府对澳大利亚大麦、木材和海鲜征收惩罚性关税，即便如此，澳大利亚仍然受益于大宗商品价格上涨。但是澳大利亚西太平洋银行(Westpac bank)预计铁矿石和煤炭价格在2022年都会下跌。
+高级经济学家贾斯汀·斯米尔克(Justin Smirk)表示，今年高企的大宗商品价格只是鼓励了其他国家提高产量，而这反过来又会增加全球供应。他说，大宗商品市场有一句老话说，“高价格是治愈高价格的良药。”他说，“当前市场很有可能做出强有力的供应应对措施，同时需求对价格上涨变得更加敏感。”
+自7月底以来，由于澳大利亚最大的贸易伙伴中共国削减了钢铁产量，铁矿石价格已从每吨200多美元下跌了一半，到11月跌至每吨84.61美元。房地产建筑商恒大的违约也将在中共国房地产行业引发恐慌，并进一步减少对钢材的需求。
+12月的铁矿石价格已回升至102.50美元，但西太平洋银行预计铁矿石现货价格在2022年12月将跌至77美元，2023年9月会跌至64美元。
+巴西是仅次于澳大利亚的世界第二大铁矿石生产国，自2019年淡水河谷尾矿坝溃坝以来一直遭受重创。那场灾难已经过去近三年了，这个南美国家正在复苏，过去三个月增加的产量，增加了供应并压低了价格。
+“在短期内，这应该会对铁矿石价格构成压力。”斯米尔克先生说，“巴西铁矿石出口抵达中共国港口大约需要45天，这种供应应该会对铁矿石价格构成下行压力。”
+10月份煤炭现货价格创下269美元的历史新高，原因是中共国遭遇了大面积停电，澳大利亚运煤船被滞留在主要港口外。纽卡斯尔期货价格此后已回落至每吨163美元，西太平洋银行预计到2022年12月价格将再下跌三分之一至113美元，到2023年3月将下跌至103美元，虽然最近的洪水影响了供应。“天气对澳大利亚煤炭出口的冲击将是短暂的，煤炭价格将下跌在24%至33%之间。”斯米尔克先生说。
 
+原文网址：
+[https://www.dailymail.co.uk/news/article-10306473/How-China-finally-cripple-Australia-trade-war-2022-iron-ore-coal-prices-fall.html](https://www.dailymail.co.uk/news/article-10306473/How-China-finally-cripple-Australia-trade-war-2022-iron-ore-coal-prices-fall.html)
 
+简评：
+专家预计大宗商品价格，尤其是铁矿石和煤炭价格在2022年会下跌，所以他们认为2022年中共政府会利用贸易战削弱澳大利亚。这种臆想首先要假设一个前提，即中共政权在2022年还能正常活着。如果对经济形势进行预测，不考虑政治因素，这种预测将毫无意义。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-16.jpg)
+随着中共病毒真相和毒疫苗真相正在被世界各国所了解，中共利用新冠病毒生物武器攻击全世界的事实将很快被揭开，对中共政权的追责在2022年有可能全面来袭。中共政权在经济崩溃，政局不稳，国际压力空前的情况下，不可能有能力与他国继续贸易战，相反，它却极有可能在世界各国的追讨声中走向灭亡。
 
+* * *
 
-
-多家捐赠机构共同批准了一项对阿营养和健康援助的计划，将2亿8000万之前被冻结的基金转移至联合国儿童基金会UNICEF及世界粮食计划World Food Program (WFP），用以帮助这个经济崩溃面临饥荒的国家。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2WEETYATUJPLPCGMMDHXMOM5AM.jpg)图源路透社
-由世界银行管理的阿富汗重建基金，将给与1亿8000万至WFP，用来保证食品安全和营养工作，其余1亿交由UNICEF以提供关键卫生服务。
-
-在美国撤军塔利班接管后，阿深陷经济和人道危机。联合国警告有55%的人口，约2300万人面临极度饥饿，其中900万人在冬季有饥荒风险。在过去20年间阿富汗高度对外依赖，但美国和其他援助机构已经切断了经济支援，90亿阿海外美金资产遭遭冻结。使用重建基金，并透过联合国渠道，似乎可以在实施人道救援的同时不违反美国队塔利班的制裁
-
-参考来源：
-
-[Donors back $280 mln transfer for Afghan food, health](https://www.reuters.com/world/asia-pacific/exclusive-donors-expected-back-280-mln-transfer-afghanistan-2021-12-10/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-6.png)
-
-编辑/校正/发稿：兰兰
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-17.jpg)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
