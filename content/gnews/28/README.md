@@ -2,28 +2,30 @@
 ---
 
 
-## 新浪微博屡遭网信办约谈，罚款近2千万元
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1753173/)
+## 前总统川普积极为自己的社交平台做预推广
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1753196/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Unknown-20.jpg)新浪微博屡遭网信办约谈，罚款近2千万元 网络图片
-据路透北京12月14日报道，中共国国家网信办14日再次约谈新浪微博并罚款300万元。据网信办微信公众号公告，针对近期新浪微博及其账号屡次出现法律、法规禁止发布或者传输的信息，情节严重，责令其立即整改，严肃处理相关责任人。
+####  撰稿：彩虹 
 
-公告还称，今年1月至11月，国家网信办指导北京市网信办，对新浪微博实施44次处置处罚，多次予以顶格50万元罚款，共累计罚款1,430万元。
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-714.png)图片来源：BBC
+12月13日，《新闻极限》发表文章，引述新闻媒体网站《每日一题》（Daily Dot）的报道，川普的TMTG（川普媒体技术集团）已经与NRSC（全国共和党参议员委员会）进行合作，为2022年中期选举筹集资金。
 
-新浪微博港股早盘一度重挫8.7%，创其上市以来新低，相比招股价已下跌近两成。
+报道披露，据消息人士称，他们收到短信，允许他们在TMTG“即将推出”的社交媒体应用真相社交（Truth Social）上保留用户名，以换取对NRSC的捐款。
 
-参考链接：[https://cn.reuters.com/article/weibo-penalty-1214-tues-idCNKBS2IT094](https://cn.reuters.com/article/weibo-penalty-1214-tues-idCNKBS2IT094)
+其中一条短信写道：“川普提醒：川普正在用一个属于他自己的社交媒体平台卷土重来，我们希望你能加入！”报道称，这段文字链接到网站Winred.com，该网站声称是“官方的安全支付技术，旨在助力美国共和党候选人和委员会在全美获胜”。用户可以在网页上向NRSC捐款，或设置为每月自动捐款。
 
-* * *
+文章提醒，该网站没有与“真相社交”的直接链接，而只是提到了“唐纳德·川普的社交媒体”。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+据《华盛顿观察家》报道，网站Winred.com创建于2019年，在2020年的选举活动中筹集了超过10亿美元的捐款。
 
+10月份，川普宣布将建立和推出社交媒体软件真相社交。在TMTG的网站主页上，他说：“对我来说，这项工作的意义远远超过政治。这是为了拯救我们的国家，我可能是美国唯一拥有发生渠道、资源、经验和实现这一切愿望的人”。
 
-编辑：【英国伦敦喜庄园编辑部】
+文章特别指出，Truth Social的服务条款明确警告说，我们会删除“我们认为贬低、玷污或以其他方式损害我们和/或网站的帖子”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**新闻来源**
+
+[Trump Social Media Network Proves Useful for GOP Fundraising](https://www.newsmax.com/politics/truthsocial-bigtech-2022election-midterms/2021/12/13/id/1048505/)
 
 
 

@@ -2,31 +2,30 @@
 ---
 
 
-## 加拿大多组织在国际人权日抗议中共暴政
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1753205/)
+## 中共为冬奥会令周边企业停产 民众苦不堪言
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1753214/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Unknown-21.jpg)加拿大多组织在国际人权日抗议中共暴政 网络图片
-据自由亚洲电台12月13日报道，来自香港、维吾尔及中共国大陆民运等不同族裔和背景的7个团体约2百多人，12日在多伦多举行国际人权日抗议中共暴政、抵制北京奥运的活动。温哥华于12月10日也有来自中共国、菲律宾、巴西等不同族裔的团体共同举行集会活动，抗议威权国家迫害人权。有来自中共国大陆的人士举着声援张展和香港民主人士的标语图像，关注中共国人权情况。
+作者：纽约香草山 – 飞虹
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+12月12日，有盖特网友发布了一则微信聊天截图，显示中共为了顺利举办冬奥会，要从12月15日开始关停北京周边省份60%的生产企业，直到2022年3月8日。这将导致大量民众短期甚至永久性失业，在经济下滑、通胀持续的情况下收入大幅减少，生活会更加艰难。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture3-11.jpg)
+据悉，近些年来，中共国内空气污染越发严重。每到中共高层举办大型活动，尤其是国际性活动时，为了营造空气治理效果良好的假象，周边多个省份的相关企业都会被限产、停产，以减少污染排放。但为减少影响，他们只会私下通知企业，而不会公开发布命令。这已经成为一个惯例，本次冬奥会自然也不会例外。
 
-集会活动发起组织之一的加拿大港加联会长冯玉兰表示，“12月10日是国际人权日，呼吁所有运动员在北京冬奥会比赛期间用各种方式来表达抗议的声音。我们也关注中共在加拿大的渗透、操纵和干预，呼吁加拿大政府禁止华为参与5G建设，并且会继续游说国会建立《外国人影响力透明法案》，以保障加拿大不受外来势力干扰”。
+参考链接：[中共为冬奥会令周边企业停产 民众苦不堪言](https://gettr.com/post/pjgt0g6c5c)
 
-加拿大两个迈克尔在华为孟晚舟事件之后，被中共国释放了，但仍有一百多名加拿大人被关押在中共国，有很多涉及政治迫害。在中共的残暴面前，世界在逐步清醒。因为人权问题，加拿大是率先宣布外交抵制北京奥运的国家之一。中共国的人权危机会成为压死中共的一根稻草。
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-新闻参考链接：[https://www.rfa.org/mandarin/yataibaodao/renquanfazhi/lf-12132021134719.html](https://www.rfa.org/mandarin/yataibaodao/renquanfazhi/lf-12132021134719.html)
+总编：DM
+编辑：DM
+校对/发稿：Hetangyuese
 
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
