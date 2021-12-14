@@ -2,27 +2,32 @@
 ---
 
 
-## 27名空军现役人员因拒绝接种疫苗被美国空军解雇
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1753321/)
+## 中共继续大量增加粮食及饲料进口
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1753226/)
 
-#### 翻译/撰稿：zzballack
+作者：纽约香草山教育部 – 文特
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+12月10日，国外有媒体援引国际贸易灵通人士的信息称，中共买家上周购买了大量的法国小麦和大麦，以及乌克兰的玉米和大麦。尽管还不清楚购买总量会有多少，但他们已经确定从这两个国家进口的谷物至少达数十万吨。另外，中共买家还大量购买了澳大利亚的饲料用小麦，至少也有数十万吨。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture3-13.jpg)
+仅就法国小麦而言，中共已预定6-10艘船，可能多达60万吨，主要在2022年1-3月装运。4艘法国大麦船和10船乌克兰大麦主要在明年7-8月装运。乌克兰玉米的运量大约也有10船或更多。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-24.jpg)图片来源：Axios
-据《美联社》（Associated Press）12月14日报道，27名美国空军现役人员由于未能在11月2日之前接种新冠疫苗，违反了国防部的规定，因此被美国空军开除。
+报道认为，这些信息表明，尽管中共一再声称国内的粮食收成很好，获得了丰收，生猪产业似乎也不太景气，但他们仍然需要大量进口粮食。
 
-空军发言人安·斯特凡内克（Ann Stefanek）12月13日说：“这些飞行员是第一批因违反疫苗强制令而被行政解雇的空军人员。他们都是初次入伍，比较年轻、级别较低的人员，没有人寻求医疗、行政或宗教豁免。”
+参考链接：[中共继续大量增加粮食及饲料进口](https://www.reuters.com/markets/commodities/exclusive-china-snaps-up-large-volumes-french-ukrainian-feed-grain-2021-12-10/)
 
-美军成员因不服从命令而被开除的情况并不罕见。斯特凡内克说，在2021年的前三个季度，大约有1800名空军人员因不服从命令而遭开除。根据空军的最新数据，有超过1000名空军士兵拒绝接种疫苗，超过4700人正寻求宗教豁免。截至上周，97%以上的现役空军人员已经至少接种了一剂疫苗。
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-五角大楼今年早些时候已要求所有军队成员必须接种疫苗，包括现役人员、国民警卫队和预备役。每个军种都为这项命令设定了自己的最后接种期限。空军规定，部队成员必须在11月2日之前接种疫苗，不过有数千人拒绝接种或寻求豁免。海军和海军陆战队队员必须在11月28日之前接种，预备役成员在12月28日之前接种，陆军现役士兵在12月15日之前必须接种，陆军国民警卫队和后备队成员的接种截止日期是明年6月30日。
+总编：飞虹
+编辑：飞虹
+校对/发稿：Hetangyuese
 
-五角大楼表示，截至12月10日，96.4%的现役人员至少打了一针。然而，如果将国民警卫队和后备役包括在内，这一数字将降至约74%，这个数字大约与美国人的接种率一致。
-
-美军如此之高的接种率让人瞠目结舌，对此最幸灾乐祸的非中共以及推动疫苗的幕后黑暗势力莫属，不战而屈人之兵，为他们奴役全球逐步扫清障碍。郭文贵先生在直播中说过，通过病毒和疫苗干掉律师、会计师、明星、运动员、国家公职人员等聪明、专业、追求自由民主的人，也就是商鞅五术中的去强，只留下弱民，便于统治。想到这让人不寒而栗，希望人们能早日醒来认清疫苗真相。
-
-新闻来源：[Air Force discharges 27 for refusal to get COVID vaccine](https://apnews.com/article/coronavirus-pandemic-health-257b231698d17ab3c6aef71867520346)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

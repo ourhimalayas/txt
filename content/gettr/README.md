@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/14/2021 2:21 PM (UTC)`
+
+<br/>12月14号：尊敬的战友们好，你们健身了吗？你们传播C C P病毒疫苗解药的真相了吗？一切都已经开始！
+![img](https://media.gettr.com/group24/getter/2021/12/14/14/8eb0e5e8-a8f5-a1c6-5c08-cefeefe429f6/out.jpg)
+
+---
+
 `@miles 12/14/2021 1:27 PM (UTC)`
 
 14/12/2021  On 5th Day of Launch, MV "Hcoin To the Moon" Hits <br/> No. 1 🥇on 18 Countries Top MV Charts !<br/>No.1🥇 on 16 Countries Rock MV Charts!<br/>No.1🥇 on 11 Countries Rock song Charts!<br/>No.1🥇on 7 countries Hip-pop/Rap song Charts!<br/>Miracle continues…….🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, USA, Taiwan, Japan, France, Australia, Canada, Singapore, New Zealand, Thailand, Cambodia, Laos, Netherlands, Hungary， Philippines, Malaysia, Fiji, Latvia!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1753909/<br/><br/>12月14号，MV版Hcoin To the Moon上线第5天位列iTunes<br/>18国热门MV榜首🥇！<br/>16国摇滚MV榜首🥇！<br/>11国摇滚歌曲榜首🥇！<br/>7国嘻哈歌曲榜首🥇！<br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港，美国，台湾，日本，法国, 澳大利亚，加拿大，新加坡，新西兰, 泰国，柬埔寨，老挝，荷兰，匈牙利，菲律宾， 马来西亚，斐济，拉脱维亚的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏
@@ -144,12 +151,6 @@ We conducted a preliminary survey about the effects of artemisinin supplements a
 `@miles 12/12/2021 4:43 PM (UTC)`
 
 Dec 12, 2021 The significance behind Mr. Miles Guo's impressive series of music charting success:<br/>1, a non-professional singer has created a wider impact than a professional singer, scaring the Chinese Communist government;<br/>2, The charting and distribution method breaks the traditional rules and are unacceptable to all professionals;<br/>3. Don’t profit from this, and are completely free from the rule of being controlled by money;<br/>4. The bigwigs behind the award platforms are deeply unhappy with us.<br/><br/>MV "Hcoin To the Moon" Hits #1 🥇on 31 Countries ' iTunes Top Music Video Charts on 3rd Day of Launch with a new record! 🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters all around the world!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1746905/
-
----
-
-`@miles 12/12/2021 4:36 PM (UTC)`
-
-12月12日， 郭文贵先生一系列歌曲打榜的骄人成绩背后的意义：<br/>1，一个非专业歌手创造出了比专业歌手更广泛的影响，令中共政府恐惧；<br/>2，上榜、打榜以及传播方式都突破传统规则，令所有专业人士无法接受；<br/>3，不以此牟利，彻底摆脱了被金钱所控制的统治；<br/>4，各奖项平台背后的大佬对此深表不悦，认为这对他们带来危险。<br/><br/>MV版Hcoin To the Moon上线第3天位列31国iTunes热门MV榜首🥇，再创打榜新记录！🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港，美国，阿联酋，台湾，日本，俄罗斯，德国，法国，澳大利亚，加拿大，新加坡，澳门，新西兰, 匈牙利，泰国，柬埔寨，老挝，荷兰， 瑞典，菲律宾， 马来西亚，意大利， 芬兰，丹麦，瑞士，马耳他，西班牙，葡萄牙，斐济，拉脱维亚，英国的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/1746904/
 
 ---
 
