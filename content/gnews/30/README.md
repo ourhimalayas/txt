@@ -2,50 +2,26 @@
 ---
 
 
-## 日本在冠状病毒疫苗标签上增加了心脏炎症警告
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1753124/)
+## 美芯片制造商Magnachip和中共国智路资本的并购交易被迫终止
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1753154/)
 
-作者：Pierre Boralevi（Pierre Boralevi）
-发布日期：2021年12月13日
-新闻来源：LifeSiteNews
-翻译：文虓Bobby
+![](https://assets.gnews.org/wp-content/uploads/2021/12/16324445831-e1639465470877.png)*资料照*
+据路透12月13日报道，中共国私募股权公司智路资本和美国芯片制造商Magnachip Semiconductor Corp [MX.N](https://cn.reuters.com/companies/MX.N)13日在一份联合声明中说，双方已经终止了3月份达成的14亿美元的合并协议，原因是该交易最终未能获得外国投资委员会(CFIUS)的批准。此前美国财政部曾表示，该交易对“国家安全构成风险”，CFIUS也在6月下令搁置该交易。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/121401.jpg)
+参考链接：[https://cn.reuters.com/article/us-magnachip-wise-road-acquisition-1214-idCNKBS2IT058](https://cn.reuters.com/article/us-magnachip-wise-road-acquisition-1214-idCNKBS2IT058)
 
-日本东京(LifeSiteNews) - 日本当局批准了一项计划，在COVID-19疫苗标签上打印一份包括心肌炎在内的“严重副作用”清单。
+编辑：MQ
 
-本月早些时候，日本卫生部的一个专家小组做出了这一决定，将适用于辉瑞和Moderna COVID-19疫苗的标签。
+* * *
 
-日本卫生部还要求医院在接种疫苗后的28天内对任何不良事件进行详细和严格的报告。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-在日本，注射辉瑞和Moderna mRNA疫苗的年轻男性有患上心肌炎的危险，专家警告说，对20多岁的年轻人来说，疫苗的死亡风险比病毒本身高7倍。
 
-到目前为止，日本在所谓疫苗的内容方面也比其他国家更为透明。卫生部网站上公布了辉瑞、阿斯利康和Moderna产品的疫苗接种说明，其中警告称，这些产品“含有一种从未在疫苗中使用过的添加剂”。
+编辑：【英国伦敦喜庄园编辑部】
 
-虽然日本卫生部仍然鼓励公民接种疫苗，但与许多西方国家相比，日本在疫苗问题上采取了更为微妙的方法，强调知情同意的重要性。
-
-卫生部网站COVID-19疫苗页面上有一段题为“同意接种”的内容。
-
-“虽然我们鼓励所有公民接种COVID-19疫苗，但这不是必须做的或强制性的。该段指出:“只有在提供有关资料后，接受疫苗接种的人同意，我们才会进行疫苗接种。”
-
-在同一段中也提到了副作用。
-
-“请自己决定接种疫苗，了解预防传染病的有效性和副作用的风险。”
-
-最后，该段阻止企业对其雇员强制要求接种疫苗，并谴责任何基于疫苗接种状况的歧视。
-
-“未经同意，不会接种疫苗。请不要强迫你工作场所的任何人或你周围的人接种疫苗，也不要歧视那些没有接种疫苗的人。”
-
-在该段下方还可以找到一个以各种语言编写的人权咨询页面的链接。
-
-“日本”的疫苗政策与美国、加拿大、澳大利亚、法国、意大利、德国、奥地利等许多西方国家的疫苗政策形成了鲜明的对比。这些国家正在采取疫苗授权，在奥地利甚至强迫接种疫苗，并进行医疗审查和媒体宣传，他们几乎不考虑知情同意和医疗自由的概念，而知情同意和医疗自由曾是这些概念的先驱。
-
-与此同时，报告的不良事件在这些国家继续大幅增加，包括美国。
-
-[援引原文](https://www.lifesitenews.com/news/japan-approves-warning-labels-on-covid-vaccines/?utm_source=top_news&amp;utm_campaign=catholic)
-
-审核校对：玫瑰天空
-上传排版：糖果儿
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
