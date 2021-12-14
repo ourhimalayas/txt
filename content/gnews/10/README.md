@@ -2,61 +2,28 @@
 ---
 
 
-## 参议员汤姆·科顿： 我们必须继续与台湾站在一起，帮助确保其自治
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1752697/)
+## 爆料革命——历史的今天11月24日
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1752748/)
 
-参议员汤姆·科顿： 我们必须继续与台湾站在一起，帮助确保其自治，并维持现状。 拜登总统不能跪下向 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 北京磕头。
+**整理：Pride**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screenshot-2021-12-14-112050.png)
+**2019年11月24日—**中共在香港立法会选举前，搞送中法。就是不听我的，就把你抓起来。要彻底控制制香港，结果没想到香港人民誓死反抗。中共拿着枪逼着，也赢不了。现在何君尧在湾仔，已经输了。这个地方一赢，具有象征性作用。
 
+这二十年掺沙子，国内有100多万人拿到香港护照。中共一个一个的发动，到香港投票。在香港大街当场发红包，控制明星、黑社会，去投支持共产党的票。威胁四大不要脸、几个大家族，发动各种利益集团影响香港选举。不发动人去投票，国内资产被查封。这不是选举，是绑票。
 
+现在国内到处缺钱，几个商业银行又爆了。一个南京商行的票据，就一万亿。中国金融影子银行不重要，票据才重要。中国暴雷就从银行的金融票据，这是共产党金融体系里埋藏的核炸弹。
 
-> We must continue to stand alongside Taiwan, help secure its autonomy, and maintain the status quo.
-> 
-> President Biden cannot kowtow to Beijing. [pic.twitter.com/kBQEcYm48y](https://t.co/kBQEcYm48y)
-> — Tom Cotton (@SenTomCotton) [December 14, 2021](https://twitter.com/SenTomCotton/status/1470553827082440705?ref_src=twsrc%5Etfw)
+**2020年11月24日—**菩提本无树，明镜亦非台。本来无一物，何处惹尘埃。从这四句话以后，佛教可以说是末法时代。没见一点好，人间更坏。宗教欺诈，装神弄鬼。豪华寺庙，造假和尚。
 
+**2021年11月24日—**新GTV系统是战友进入喜联储的根本，才会享受终生铸币权—一千亿币的利润，还是盖特、G-club，G-fashion 的原始股东，优先H-pay代理商。
 
+从福利币看出，谁是灭共战友，谁来骗钱。现在机构还没进来，所有交易基本都是战友。福利币套走的钱，已经超过战友投资的6千万。现在谁拿走一分钱，都是战友的钱。为了维护绝大多数人的利益，喜币必须要有三年锁定期。用假KYC骗取的福利币，换到HDO也拿不走。偷走卖掉的币，要上全球黑名单。
 
-众议员布莱恩·马斯特： 山中无老虎，猴子称大王。 乔·拜登的无能意味着俄罗斯和 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 可以——而且将会——接管(世界)。 【视频中马斯特说，[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 已经吞掉了香港，接下来要拿下台湾，丝毫不顾及美国，因为他们嗅到了拜登政府的软弱】
+柳传志不该如此，但中共社会是坏人统治好人。司马南每讲一次极端的话，我们子孙都可能为此付出代价。就因为有民族败类，新中国联邦立法的时候，也得有死刑。法治基金、法治社会在美国对司马南、方舟子、胡锡进的家人，依法起诉。
 
+七哥过去三十年所有交易，背后积累的都是关系。七哥没一分股，但关系、所到之处，共产党查不了；农场主不安全，影响战友关系。不允许农场主，拥有个人不能承担的财富；币安的用户资料，都被赵一鹏提供给共产党。我们要全球发起集体诉讼，让赵长鹏绳归于法；中共股票市场是假的，就是赌局。唯一的庄主就是共产党，红色资本天天出老千，骗老百姓钱—九十几都是小客户。
 
-
-> While the cat’s away, the mice will play. 
-> 
-> Joe Biden’s incompetence means Russia and China can – and will – take over. [pic.twitter.com/hfGd7WtzXG](https://t.co/hfGd7WtzXG)
-> — Rep. Brian Mast (@RepBrianMast) [December 14, 2021](https://twitter.com/RepBrianMast/status/1470567786250391558?ref_src=twsrc%5Etfw)
-
-
-
-众议员克里斯·斯图尔德： 我们在莫斯科、德黑兰和北京的对手将考验拜登总统以扩大他们的权力和影响范围。 不幸的是，目前尚不清楚拜登是否或如何回应。 【附斯图尔德众议员在福克斯的视频采访】
-
-
-
-> Our adversaries in Moscow, Tehran and Beijing are going to test President Biden to expand their power and spheres of influence.
-> 
-> Unfortunately, it isn’t at all clear if or how Biden will respond. [pic.twitter.com/CFxOAwRaLO](https://t.co/CFxOAwRaLO)
-> — Rep. Chris Stewart (@RepChrisStewart) [December 13, 2021](https://twitter.com/RepChrisStewart/status/1470495723703652369?ref_src=twsrc%5Etfw)
-
-
-
-参议员汤姆·科顿： 比尔·克林顿曾表示，“如此多的美国人担心一个强大的 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 对世界的影响，这很滑稽”。 他错了，他所嘲笑的美国人是对的。 20年前，[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 加入了世贸组织，标志着对我国的工业基础、经济和工人阶级造成巨大空洞的开始。 这是我国历史上最大的外交政策错误之一。我们与 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的贸易关系根本不正常，我们无法承担让这种关系永久存在下去。 我们必须结束与中共国的“永久正常贸易关系”。
-
-
-
-> Bill Clinton once said that it was “ironic that so many Americans are concerned about the impact on the world of a strong China.” He was wrong, and the Americans he derided were right.[https://t.co/u4WZQdVy3A](https://t.co/u4WZQdVy3A)
-> — Tom Cotton (@SenTomCotton) [December 13, 2021](https://twitter.com/SenTomCotton/status/1470481887286153216?ref_src=twsrc%5Etfw)
-
-
-
-前国务卿迈克·蓬佩奥： 我们教导我们的年轻人，这些才华横溢的运动员们畅所欲言。 他们将要去 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)，如果其中一个人说“西藏自由”，或“对香港人民有好处”，或“我支持台湾”，他们就可能得不到出境签证。很自豪通过了两党的2022财年国防授权法案 [#FY22NDAA](https://twitter.com/hashtag/FY22NDAA?src=hashtag_click)，该法案旨在帮助支持我们的军队及其家人，并解决我们国家今天面临的许多日益严重的国家安全威胁，包括来自 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CC](https://twitter.com/hashtag/CC?src=hashtag_click)​​P、俄罗斯、伊朗等国的威胁。 阅读更多所包含的有关我的优先事项：
-
-
-
-> Proud to pass the bipartisan [#FY22NDAA](https://twitter.com/hashtag/FY22NDAA?src=hash&amp;ref_src=twsrc%5Etfw) to help support our military and their families, & address the many growing national security threats our nation faces today, including the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw), Russia, Iran & more.
-> 
-> Read more about my priorities that were included: [https://t.co/aS6Y3AksF3](https://t.co/aS6Y3AksF3)
-> — Rep. Mike Waltz (@michaelgwaltz) [December 13, 2021](https://twitter.com/michaelgwaltz/status/1470462404542746629?ref_src=twsrc%5Etfw)
-
-
+共产党的共享财富，是一场大掠夺的开始。通过市场行为，合法将财富依法抢劫，让共产党更富有；共产党对人类伤害之深，比中国的空气、土地水污染还要严重。疫苗灾难是共产党和西方贪婪的黑暗势力，共同作案的结果。世界这样干疫苗，供应链会断。
 
  
 
