@@ -15,137 +15,137 @@
 
 ---
 
-### [MV版Hcoin To the Moon上线第5天位列18国iTunes热门MV榜首！](/content/gnews/1/README.md)
+### [娜塔丽：当权派认为真的可以通过疫苗控制美国和人民](/content/gnews/1/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共国大使馆发出怪歌攻击美国民主](/content/gnews/2/README.md)
- ` RoseNews`
+### [安全专家警告运动员可能在北京冬奥会期间遭受中共监视](/content/gnews/2/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [一种关系的前尘往事](/content/gnews/3/README.md)
- ` 骄子`
-
-### [12/14每日播报｜疫情爆发 多家上市企业惨遭关停](/content/gnews/4/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [新西兰卫生部的官方回复，证明疫苗并不能减少病毒传播](/content/gnews/5/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [12/14每日播报｜香港小学播放南京大屠杀片段 学生惊恐哭嚎](/content/gnews/6/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [英国血液供应因中共病毒和流感而处于“危急”状态](/content/gnews/7/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [小鹏汽车擅自采集43万张客户人脸](/content/gnews/8/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [从西安事变看中共洗脑术](/content/gnews/9/README.md)
+### [妖后彭丽媛](/content/gnews/3/README.md)
  ` 银河勇气之星`
 
-### [视频| 爆料革命在反疫苗运动中的影响力巨大](/content/gnews/10/README.md)
- ` MOSREC`
+### [新西兰财经G乐部 2021年12月14日](/content/gnews/4/README.md)
+ ` 喜马拉雅农场新西兰站`
 
-### [12/14每日播报｜英国：中共病毒通行证门槛又高一针](/content/gnews/11/README.md)
- ` 秘密翻译组-即时新闻播报组`
+### [MV版Hcoin To the Moon上线第5天位列18国iTunes热门MV榜首！](/content/gnews/5/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [杰森·米勒：盖特即将推出类似抖音一样的短视频功能](/content/gnews/12/README.md)
- ` 墨尔本雅典娜农场`
+### [中共国大使馆发出怪歌攻击美国民主](/content/gnews/6/README.md)
+ ` RoseNews`
 
-### [12/14每日播报｜中共计划雇佣美国网红宣传北京冬奥会应对抵制浪潮](/content/gnews/13/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [视频| 纳瓦罗的《川普时代》在美畅销，反衬中共毫无人性的邪恶](/content/gnews/14/README.md)
- ` MOSREC`
-
-### [将人领入中共陷阱的带路者](/content/gnews/15/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [12/14每日播报｜中共国出台新规定 为进口食品和饮料设置障碍](/content/gnews/16/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [受理中共国籍人员的非法签证申请，行政书士等3人逮捕](/content/gnews/17/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共基因改造“人源化猪”用于新冠病毒研究](/content/gnews/18/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [法治和信仰](/content/gnews/19/README.md)
+### [一种关系的前尘往事](/content/gnews/7/README.md)
  ` 骄子`
 
-### [让中国加入世贸是一个错误的决定](/content/gnews/20/README.md)
- ` 澳喜农场`
+### [12/14每日播报｜疫情爆发 多家上市企业惨遭关停](/content/gnews/8/README.md)
+ ` 秘密翻译组-即时新闻播报组`
 
-### [在中共国只有骗子是真的](/content/gnews/21/README.md)
+### [新西兰卫生部的官方回复，证明疫苗并不能减少病毒传播](/content/gnews/9/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [12/14每日播报｜观察：因中共病毒产生的焦虑和抑郁情绪在全球范围内蔓延](/content/gnews/22/README.md)
+### [12/14每日播报｜香港小学播放南京大屠杀片段 学生惊恐哭嚎](/content/gnews/10/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [前MI6负责人：英国的科学部门受到了中共的恶意影响](/content/gnews/23/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [战友们，将棺材花革命进行到底](/content/gnews/24/README.md)
- ` 澳喜农场`
-
-### [九成以上心肌炎年轻患者曾在30天内注射mRNA疫苗](/content/gnews/25/README.md)
- ` 澳喜特战旅Gnews`
-
-### [12/14/2021国际财经快讯：1.75万亿美元法案“一切皆有可能”；苹果逼近3万亿美元市值](/content/gnews/26/README.md)
- ` 秘密翻译组金融团队`
-
-### [新西兰男子接种疫苗10次](/content/gnews/27/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [中国企业家带上五角帽 也永远不是赵家人](/content/gnews/28/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [12/14每日播报｜大屠杀研究者：纳粹和中共都想借奥运会提升形象](/content/gnews/29/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [为防中共窃取数据 日本将修改电信商业法](/content/gnews/30/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [12/14每日播报｜新闻简讯:莫迪推特被盗,普习会谈,农村基地征税](/content/gnews/31/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [英国卫生大臣承认加强针设为优先事项 一些手术将被推迟](/content/gnews/32/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [巴西用伊维菌素预防治疗新冠肺炎，住院率和死亡率减半](/content/gnews/33/README.md)
+### [英国血液供应因中共病毒和流感而处于“危急”状态](/content/gnews/11/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【樱花深度报道】英国间谍头目警告来自中国数字人民币的威胁（下）](/content/gnews/34/README.md)
+### [小鹏汽车擅自采集43万张客户人脸](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【樱花深度报道】英国间谍头目警告来自中国数字人民币的威胁（上）](/content/gnews/35/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [从西安事变看中共洗脑术](/content/gnews/13/README.md)
+ ` 银河勇气之星`
 
-### [针对Covid-19限制的大规模抗议活动在德国东部蔓延](/content/gnews/36/README.md)
+### [视频| 爆料革命在反疫苗运动中的影响力巨大](/content/gnews/14/README.md)
+ ` MOSREC`
+
+### [12/14每日播报｜英国：中共病毒通行证门槛又高一针](/content/gnews/15/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [杰森·米勒：盖特即将推出类似抖音一样的短视频功能](/content/gnews/16/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2021/12/12 文贵先生直播精要](/content/gnews/37/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [12/14每日播报｜中共计划雇佣美国网红宣传北京冬奥会应对抵制浪潮](/content/gnews/17/README.md)
+ ` 秘密翻译组-即时新闻播报组`
 
-### [27名空军现役人员因拒绝接种疫苗被美国空军解雇](/content/gnews/38/README.md)
+### [视频| 纳瓦罗的《川普时代》在美畅销，反衬中共毫无人性的邪恶](/content/gnews/18/README.md)
+ ` MOSREC`
+
+### [将人领入中共陷阱的带路者](/content/gnews/19/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [12/14每日播报｜中共国出台新规定 为进口食品和饮料设置障碍](/content/gnews/20/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [受理中共国籍人员的非法签证申请，行政书士等3人逮捕](/content/gnews/21/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共基因改造“人源化猪”用于新冠病毒研究](/content/gnews/22/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [法治和信仰](/content/gnews/23/README.md)
+ ` 骄子`
+
+### [让中国加入世贸是一个错误的决定](/content/gnews/24/README.md)
+ ` 澳喜农场`
+
+### [12/14每日播报｜观察：因中共病毒产生的焦虑和抑郁情绪在全球范围内蔓延](/content/gnews/25/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [九成以上心肌炎年轻患者曾在30天内注射mRNA疫苗](/content/gnews/26/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [12/14/2021国际财经快讯：1.75万亿美元法案“一切皆有可能”；苹果逼近3万亿美元市值](/content/gnews/27/README.md)
+ ` 秘密翻译组金融团队`
+
+### [新西兰男子接种疫苗10次](/content/gnews/28/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [中国企业家带上五角帽 也永远不是赵家人](/content/gnews/29/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [12/14每日播报｜大屠杀研究者：纳粹和中共都想借奥运会提升形象](/content/gnews/30/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [为防中共窃取数据 日本将修改电信商业法](/content/gnews/31/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [12/14每日播报｜新闻简讯:莫迪推特被盗,普习会谈,农村基地征税](/content/gnews/32/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [英国卫生大臣承认加强针设为优先事项 一些手术将被推迟](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [一些国会议员谴责迪尼斯向中共磕头屈服](/content/gnews/39/README.md)
+### [巴西用伊维菌素预防治疗新冠肺炎，住院率和死亡率减半](/content/gnews/34/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [【樱花深度报道】英国间谍头目警告来自中国数字人民币的威胁（下）](/content/gnews/35/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [【樱花深度报道】英国间谍头目警告来自中国数字人民币的威胁（上）](/content/gnews/36/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [针对Covid-19限制的大规模抗议活动在德国东部蔓延](/content/gnews/37/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [2021/12/12 文贵先生直播精要](/content/gnews/38/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [27名空军现役人员因拒绝接种疫苗被美国空军解雇](/content/gnews/39/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共继续大量增加粮食及饲料进口](/content/gnews/40/README.md)
+### [一些国会议员谴责迪尼斯向中共磕头屈服](/content/gnews/40/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [中共继续大量增加粮食及饲料进口](/content/gnews/41/README.md)
  ` GTV新闻访谈`
 
-### [墙内涌现公务员降薪潮，降幅高达25%](/content/gnews/41/README.md)
+### [墙内涌现公务员降薪潮，降幅高达25%](/content/gnews/42/README.md)
  ` GTV新闻访谈`
 
-### [中共为冬奥会令周边企业停产 民众苦不堪言](/content/gnews/42/README.md)
+### [中共为冬奥会令周边企业停产 民众苦不堪言](/content/gnews/43/README.md)
  ` GTV新闻访谈`
 
-### [Hcoin to the moon的打榜方式对现有规则的改写](/content/gnews/43/README.md)
+### [Hcoin to the moon的打榜方式对现有规则的改写](/content/gnews/44/README.md)
  ` GTV新闻访谈`
-
-### [加拿大多组织在国际人权日抗议中共暴政](/content/gnews/44/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [美芯片制造商Magnachip和中共国智路资本的并购交易被迫终止](/content/gnews/45/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`

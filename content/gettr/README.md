@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/14/2021 1:11 PM (UTC)`
+
+12月14号：在这个世界上能知道为什么活着？该如何的活着？如何与人类和地球空气，天空如何和谐的活着？没有多少人，每天每时每刻都能看到听到收到这些因为不变真假。不识善恶而导致的惨痛的后果的案例，悲哀呀，悲哀呀。【墙内为了活命都是相互伤害可悲可怜🥺】
+![img](https://media.gettr.com/group12/getter/2021/12/14/13/e7a4e349-8c57-5c84-871b-2f696f193fbf/2d90f57bb7ce7524a78665ec91c5fd50.jpg)
+
+---
+
 `@miles 12/14/2021 4:00 AM (UTC)`
 
 12/12/2021 Miles Guo: Who are offended by a non-professional singer Miles Guo’s “Hcoin To the Moon” topping the charts? 1) The CCP and other dictatorships; 2) the so-called professionals in the music industry; 3) traditional platforms for distributing music; and 4) the music moguls behind the scenes<br/><br/>12/12/2021 文贵直播：非专业歌手郭文贵Hcoin To the Moon 霸榜惹恼了谁？1) 中共、独裁政权，2) 所谓音乐界专业人士，3) 发行音乐的传统平台，4) 世界音乐界背后的大佬<br/>
@@ -144,13 +151,6 @@ Dec 12, 2021 The significance behind Mr. Miles Guo's impressive series of music 
 
 2021年12月12日 文贵大直播：疫苗 冬奥会 数字货币；  除夕 大游行 回答问题
 ![img](https://media.gettr.com/group22/origin/2021/12/12/12/a6ffe464-7d97-2aa3-9abb-c0f0e7606fc2/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 12/12/2021 12:28 AM (UTC)`
-
-12/10/2021 Miles Guo: Most of the investments in the CCP’s financial sector and real estate are made by foreign financial institutions, and this alone violates the CCP’s so-called policies and regulations regarding the prohibition of foreign investments in certain domains and the foreign currency exchange settlement. The Western funds represented by Weijian Shan and PAG are simply crooks and “lawful thieves” who swindle money, and the consequences of the collapse of these funds will be extremely serious!<br/><br/>12/10/2021文贵直播：中共国金融房地产的大部分钱来自国外金融机构，这本身就触碰了所谓的外商禁入产业和外汇管制政策和法律，以单伟建、太平联盟为代表的西方基金都是骗子、合法的小偷，爆雷的后果是要命的！<br/>
-![img](https://media.gettr.com/group11/getter/2021/12/12/00/7579c049-0fa1-bf91-f6e7-347ff5eaffb9/out.jpg)
 
 ---
 
