@@ -2,27 +2,44 @@
 ---
 
 
-## 美芯片制造商Magnachip和中共国智路资本的并购交易被迫终止
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1753154/)
+## 【樱花深度报道】英国间谍头目警告来自中国数字人民币的威胁（下）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1753360/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/16324445831-e1639465470877.png)*资料照*
-据路透12月13日报道，中共国私募股权公司智路资本和美国芯片制造商Magnachip Semiconductor Corp [MX.N](https://cn.reuters.com/companies/MX.N)13日在一份联合声明中说，双方已经终止了3月份达成的14亿美元的合并协议，原因是该交易最终未能获得外国投资委员会(CFIUS)的批准。此前美国财政部曾表示，该交易对“国家安全构成风险”，CFIUS也在6月下令搁置该交易。
+编译：东京樱花团/Hopkins
 
-参考链接：[https://cn.reuters.com/article/us-magnachip-wise-road-acquisition-1214-idCNKBS2IT058](https://cn.reuters.com/article/us-magnachip-wise-road-acquisition-1214-idCNKBS2IT058)
+【摘要】英国信息安全机构 GCHQ 的负责人警告说，中国的数字人民币在北京冬奥会之前被广泛吹捧，有可能成为监控用户和管理全球货币交易的工具。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2-55.jpg)(图片说明)位于切尔特南的 GCHQ 总部 © PA
+弗莱明的主要职责之一是发展英国的网络战能力。网络空间的间谍战是一项秘密业务，英国独特的“侵略性网络”功能的细节仍然高度机密。
 
-编辑：MQ
+去年，这位部长表示，国家网络部队、GCHQ 和国防部将通过拦截恐怖分子的电话信号、摧毁服务器和入侵敌方武器系统，共同领导和瞄准网上的敌人。位于兰开夏郡的弗莱明说：“这是我们网络力量的一个非常重要的组成部分……这就是国家竞争的方式。”
 
-* * *
+英国曾公开指责俄罗斯和中国等国开展黑客活动，但弗莱明拒绝评论英国在网络领域的战斗情况。 “我们必须在行动和谈话之间留出一些空间，”首席间谍说。 “这些功能已经过仔细检查和适当监控。”
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+英国发动攻击性网络活动的唯一已知例子是在集团试图在叙利亚和伊拉克建立哈里发体系的鼎盛时期对伊斯兰国进行的攻击。在这次行动中，集团的攻击效果被物理IT基础设施的破坏所限制，而在战场上的力量则被无人机禁用。
 
+随着网络技术的扩散，并非所有威胁都直接来自传统敌人。上个月，美国授权以色列间谍软件制造商 NSO Group 的软件被威权政府指控使用该软件来监控周围人权活动家和记者的电话，包括本报的编辑记者。
 
-编辑：【英国伦敦喜庄园编辑部】
+弗莱明将 NSO 黑客功能的这种部署描述为“突破了完全劣等的底线”，并补充说：[技术] 它以如此不受约束的方式造成损害，不应被容忍。 ”
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3-33.jpg)（图片说明）GCHQ 位于康沃尔郡布德的监听站 © Kieran Doherty / 路透社
+英国并未效仿美国制裁NSO，但弗莱明先生表示，他“有信心”政府“希望继续审查”这个问题。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+在短期内，GCHQ 将专注于解决 Covid-19 大流行带来的严重后果，从旨在窃取疫苗研究的间谍活动到因远程工作增加的漏洞而导致的勒索软件攻击激增。今年到目前为止，约有 40% 的英国公司遭受了网络入侵或攻击。
 
+这些日益严重的威胁赋予了他的机构更广泛的权力。 “GCHQ 的角色变化非常迅速，”弗莱明说，并承认进化的速度是“最快的”之一，在我们的历史中。 ” “最终，GCHQ 拥有数以千计的技术人员，他们可以将他们的专业知识应用于更广泛的领域，超越了传统的间谍活动”，他解释说。
+
+这种演变的一部分是认识到情报机构无法使用内部开发的技术完成所有工作。正如《金融时报》今年早些时候报道的那样，GCHQ 新合同将与亚马逊的云计算部门 AWS 合作，托管来自英国间谍机构的敏感数据。弗莱明没有对这笔交易发表评论，但他似乎对未来与科技公司的合作和伙伴关系持开放态度。
+
+弗莱明认为：“退出一些世界上最好和最具创新性的具有内置安全性的技术并不是英国情报部门的可持续模式。” “技术世界是一个全球化的世界，我们必须在那个领域发挥作用。”
+
+作者：Julesmenten
+
+信息来源：
+
+[UK spy chief raises fears over China’s digital renminbi](https://californianewstimes.com/uk-spy-chief-raises-fears-over-chinas-digital-renminbi/620126/)
+
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
