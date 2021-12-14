@@ -2,42 +2,36 @@
 ---
 
 
-## 日本供水系统经营权将私有化？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1754630/)
+## 商汤科技因受制裁延迟港交所上市
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1754637/)
 
-撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/4-20.jpg)
-[图片源:](https://note.com/mediage/n/nc036fef7eea6)
+作者：纽约香草山文艺部 – 宁文静
 
-14日，笔者从日本媒体得知，日本宫城县将把全县的供水、下水道和工业用水的经营权交予民营企业，并于2022年4月开始正式实施。这种美其名曰“宫城式管理经营模式”在日本尚属首例，据报道，有望在全国推广。接下来，请与笔者一起了解具体细节。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-什么是“宫城式管理和操作方法”。
+12月13日，中共国人工智能公司商汤科技，被美国财政部实施投资禁令后，决定延迟在香港上市。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/5-20.jpg)
+当日港交所公告称，商汤全球发售及上市将会延迟，申请股款将不计利息悉数退还给所有申请人。该公司原计划在本月通过香港IPO筹资7.67亿美元，其产品被用于智能城市、警方监控和自动驾驶领域。
 
-“宫城式”是指宫城县将供水、下水道和工业用水的经营权出售给私人公司，同时保留与这些供水系统相关设施的所有权。期限为20年。
+12月10日，美国财政部将25个实体和个人列入一份企业黑名单，商汤科技名列其中。理由是商汤为中共军方镇压维吾尔族人提供了人脸识别技术，因此禁止美国人投资这家公司。
 
-为什么需要“宫城式的管理和运营方法”？
+分析人士称，商汤科技因受制裁处于风口浪尖，此刻上市恐怕会导致破发而影响商誉，也说明香港金融中心的地位正在动摇。
 
-宫城县村井知事解释说，目的是在人口减少导致用水需求下降的同时遏制水费上涨。该县估计，如果私民营企业长期运营，就会产生独创性，通过降低设备更新成本和劳动力成本，预计20年内可以减少项目成本约247亿日元。
+参考链接：[商汤科技宣布将延迟上市，所有申请股款将悉数退还](https://3g.163.com/dy/article/GR3R5E130519D3BI.html?spss=adap_pc)
 
-那么，如果按照县政府的计划将经营权移交给民营企业，将会发生什么变化？
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-自来水从水坝等水源开始，进入净水厂进行处理，然后通过储水罐再送到每个家庭。以往都是县政府负责水源取水、净水厂运行和储水罐蓄水。下一级单位市町村再负责从储水罐到各个家庭的供水。 在这个计划中，以后县政府的工作业务将全部交由民营企业负责。该县已经将其水处理厂的运营和监测工作外包给私营部门近30年，还将把化学品的采购以及水处理厂的维修和更新工作移交给民营企业。一些公民团体表示反对将管理权出售给企业，因为担心水质能否得到保证。
+总编：Irene木木
+编辑：Kathy文艺
+校正/发稿：Fei797
 
-细思极恐，企业以逐利为目的，政府这样大撒手，普通民众生活中不可或缺的水资源，其质量又有多少能得到真正保证。不过，想想也不奇怪了，疫苗这样的毒针都能打给民众，政府的可信度确实值得怀疑了。（日本行政单位的“县”级别相当于中共国“省”的级别）
-
-信息源：
-
-**[【テーマ：宮城の水道】政治を気軽に語るオンラインカフェ「コーヒー・ハウス」2021年6月30日の話題まとめ](https://news.yahoo.co.jp/articles/7efd940063b5bc70dcfc0fb056eb299840f0fb77)**
-
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
-
-
-
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
