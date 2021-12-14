@@ -2,44 +2,166 @@
 ---
 
 
-## 【樱花深度报道】英国间谍头目警告来自中国数字人民币的威胁（下）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1753360/)
+## 中国企业家带上五角帽 也永远不是赵家人
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1753590/)
 
-编译：东京樱花团/Hopkins
+[https://gtv.org/video/id=61b8270aa68b4f4b28e83336](https://gtv.org/video/id=61b8270aa68b4f4b28e83336)
 
-【摘要】英国信息安全机构 GCHQ 的负责人警告说，中国的数字人民币在北京冬奥会之前被广泛吹捧，有可能成为监控用户和管理全球货币交易的工具。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-55.jpg)(图片说明)位于切尔特南的 GCHQ 总部 © PA
-弗莱明的主要职责之一是发展英国的网络战能力。网络空间的间谍战是一项秘密业务，英国独特的“侵略性网络”功能的细节仍然高度机密。
+郭文贵
+Miles Guo
 
-去年，这位部长表示，国家网络部队、GCHQ 和国防部将通过拦截恐怖分子的电话信号、摧毁服务器和入侵敌方武器系统，共同领导和瞄准网上的敌人。位于兰开夏郡的弗莱明说：“这是我们网络力量的一个非常重要的组成部分……这就是国家竞争的方式。”
+吃三年草和中国人不打就不行
+The Chinese people can eat grass for 3 years straight and they can’t live without being beaten
 
-英国曾公开指责俄罗斯和中国等国开展黑客活动，但弗莱明拒绝评论英国在网络领域的战斗情况。 “我们必须在行动和谈话之间留出一些空间，”首席间谍说。 “这些功能已经过仔细检查和适当监控。”
+中国人有饭吃就不行
+The Chinese people have food to eat would not work
 
-英国发动攻击性网络活动的唯一已知例子是在集团试图在叙利亚和伊拉克建立哈里发体系的鼎盛时期对伊斯兰国进行的攻击。在这次行动中，集团的攻击效果被物理IT基础设施的破坏所限制，而在战场上的力量则被无人机禁用。
+这都是如出一辙
+All these seem to come from the same rut
 
-随着网络技术的扩散，并非所有威胁都直接来自传统敌人。上个月，美国授权以色列间谍软件制造商 NSO Group 的软件被威权政府指控使用该软件来监控周围人权活动家和记者的电话，包括本报的编辑记者。
+像万达王健林、像马云、像马化腾
+Just like Wang Jianlin (founder and chairman of Wanda Group), Ma Yun, and Ma Huateng
 
-弗莱明将 NSO 黑客功能的这种部署描述为“突破了完全劣等的底线”，并补充说：[技术] 它以如此不受约束的方式造成损害，不应被容忍。 ”
-![](https://assets.gnews.org/wp-content/uploads/2021/12/3-33.jpg)（图片说明）GCHQ 位于康沃尔郡布德的监听站 © Kieran Doherty / 路透社
-英国并未效仿美国制裁NSO，但弗莱明先生表示，他“有信心”政府“希望继续审查”这个问题。
+所有的老板都忘了自己出自于草根
+All these bosses have forgotten that they came from the grassroots (the lowest class people)
 
-在短期内，GCHQ 将专注于解决 Covid-19 大流行带来的严重后果，从旨在窃取疫苗研究的间谍活动到因远程工作增加的漏洞而导致的勒索软件攻击激增。今年到目前为止，约有 40% 的英国公司遭受了网络入侵或攻击。
+他以为戴个五角星的帽
+They believe that they are wearing the hat with a 5 stars
 
-这些日益严重的威胁赋予了他的机构更广泛的权力。 “GCHQ 的角色变化非常迅速，”弗莱明说，并承认进化的速度是“最快的”之一，在我们的历史中。 ” “最终，GCHQ 拥有数以千计的技术人员，他们可以将他们的专业知识应用于更广泛的领域，超越了传统的间谍活动”，他解释说。
+像梁安琪一样
+like Leong On-kei (Member of the Legislative Council of Macau)
 
-这种演变的一部分是认识到情报机构无法使用内部开发的技术完成所有工作。正如《金融时报》今年早些时候报道的那样，GCHQ 新合同将与亚马逊的云计算部门 AWS 合作，托管来自英国间谍机构的敏感数据。弗莱明没有对这笔交易发表评论，但他似乎对未来与科技公司的合作和伙伴关系持开放态度。
+像洗米华一样 是不是？
+and Alvin Chao (Founder of Suncity Group)
 
-弗莱明认为：“退出一些世界上最好和最具创新性的具有内置安全性的技术并不是英国情报部门的可持续模式。” “技术世界是一个全球化的世界，我们必须在那个领域发挥作用。”
+就觉得我是共产党的亲儿子了
+they would be the CCP’s biological children
 
-作者：Julesmenten
+你没想到你永远不是
+They never thought they would never be
 
-信息来源：
+那么西方投到的风投和风控这些人
+So the venture capital and risk control people invested by the West
 
-[UK spy chief raises fears over China’s digital renminbi](https://californianewstimes.com/uk-spy-chief-raises-fears-over-chinas-digital-renminbi/620126/)
+进去以后
+After they entered
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+带到的美国所有的西方投资家
+all the Western investors in the U.S. brought to
+
+一个最核心的两个问题
+the two core problems
+
+你是不知道的
+you don’t know
+
+第一 真实的投资数据
+First, the real investment data
+
+有战友说，这个恒大9万亿搞错了
+Some comrades in arms have said that they made this Evergrande’s 9 trillion dollars, that’s wrong
+
+是全美国投到中国9万亿
+It should be the U.S. invested a total of 9 trillion dollars in China
+
+千万大家记住，唯真不破
+Everyone, don’t forget the power of truth
+
+千万要唯真不破
+We must keep the truth
+
+所以说这9万亿它是在哪里
+So saying where are the 9 trillion dollars
+
+是美国政府投到中国9万亿
+It’s the 9 trillion dollars that the U.S. government has invested in China
+
+它是投房地产
+It is investment in real estate
+
+可不一定要投到这个恒大房地产
+But it doesn’t have to invest in this Evergrande real estate
+
+恒大有上千种方式
+Evergrande has thousands of methods
+
+完全跟恒大没有关系
+It has nothing to do with Evergrande
+
+在西方拿对冲基金的钱
+that taking money from hedge funds in the West
+
+担保再担保
+guarantee and re-guarantee
+
+无相关关系 第三方
+It’s the third party which no related relationship
+
+是吧？太多招了
+You see, they have too many tricks
+
+你根本不可能在那个数字里边的
+Those money can’t be in that number at all
+
+这叫对冲和风险基金的本质
+This is called the nature of hedge and risk funds
+
+不用公开信息，隐蔽性强
+There is no need to disclose information and strong concealment
+
+风险极大 回报极高
+High risk but high return
+
+玩弄着这两个风险的
+The maniac playing with these two risks
+
+投资者的疯子和那个冒险家
+are the investor maniac and the adventurer,
+
+就是那个恒大 共产党这边
+which is that Evergrande on the CCP side
+
+风和险中间叫什么
+What is it called between the risk and danger?
+
+叫基金经理
+It called the fund manager
+
+挣了 我拿20%
+They’ll take the 20% if you earn money
+
+赔了 我拿2%的管理费、5%管理费
+and take the 2% – 5% management fee if you lose money
+
+挣赔我都拿
+They’ll take your fund management fee no matter you gain or lose money
+
+这叫风险中间 叫基金经理人
+This is called risk middle, the fund manager
+
+就叫金钱妓女和金钱妈咪
+Called money prostitutes and money mommy
+
+* * *
+
+Date: 12/11/2021
+原视频标题: 中国企业家带上五角帽 也永远不是赵家人
+The Chinese Entrepreneurs Will Never Belong to The Zhao Family Even Though They Wearing The CCP Hats
+原视频日期：2021/12/10
+原视频链接: [**https://gettr.com/post/pjejnxf913**](https://gettr.com/post/pjejnxf913)
+任务编号：KC334(3187)
+视频时间段 : 0:00-2:05
+英听校：洛杉矶盘古农场 – 郭班之樱
+翻译：洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,161 +2,59 @@
 ---
 
 
-## 中国企业家带上五角帽 也永远不是赵家人
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1753590/)
+## 前MI6负责人：英国的科学部门受到了中共的恶意影响
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1753668/)
 
-[https://gtv.org/video/id=61b8270aa68b4f4b28e83336](https://gtv.org/video/id=61b8270aa68b4f4b28e83336)
+据《www.dailymail.co.uk》作者：KATIE WESTON，2021年12月9报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3208.png)76岁的理查德-迪尔洛爵士（上图）是1999年至2004年的军情六处处长，他认为在过去20年里，英国的许多大学已经开始依赖中共国的资助。图片源自dailymail
+- 前MI6老板称英国大学已开始依赖中共国资金
 
-郭文贵
-Miles Guo
 
-吃三年草和中国人不打就不行
-The Chinese people can eat grass for 3 years straight and they can’t live without being beaten
+- 他对英国是否呼应中共国的“信息运动”表示关注
 
-中国人有饭吃就不行
-The Chinese people have food to eat would not work
 
-这都是如出一辙
-All these seem to come from the same rut
+- 武汉病毒研究所（WIV）是涉嫌掩盖真相的中心实验室
 
-像万达王健林、像马云、像马化腾
-Just like Wang Jianlin (founder and chairman of Wanda Group), Ma Yun, and Ma Huateng
 
-所有的老板都忘了自己出自于草根
-All these bosses have forgotten that they came from the grassroots (the lowest class people)
+- 中共一再坚持认为病毒是从蝙蝠自然扩散到人类的
 
-他以为戴个五角星的帽
-They believe that they are wearing the hat with a 5 stars
 
-像梁安琪一样
-like Leong On-kei (Member of the Legislative Council of Macau)
+据一位前MI6负责人称，英国的科学部门受到了“中共国共产党的恶意影响”，甚至鹦鹉学舌，称Covid不是从武汉病毒研究所泄露。
 
-像洗米华一样 是不是？
-and Alvin Chao (Founder of Suncity Group)
+1999年至2004年期间担任情报局局长的理查德-迪尔洛夫爵士认为，在过去20年里，英国的许多大学已经开始依赖中共的资金。
 
-就觉得我是共产党的亲儿子了
-they would be the CCP’s biological children
+在敦促各机构采取“更多措施保护知识产权”的同时，他对2019年12月冠状病毒爆发后英国呼应中共潜在“信息运动”的程度表示担忧。
 
-你没想到你永远不是
-They never thought they would never be
+自从中共向世界发出警告，称2019年12月有一种神秘的病毒在武汉流传以来，关于其真正来源的辩论一直在进行。
 
-那么西方投到的风投和风控这些人
-So the venture capital and risk control people invested by the West
+专门操纵危险冠状病毒的武汉病毒研究所(WIV)是被指掩盖真相的高安全度实验室。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-725.png)武汉病毒研究所（WIV）专门从事危险冠状病毒的操作，是被指掩盖真相的高度安全的实验室（图：2017年2月，一名病毒学家和她的同事在WIV的P4实验室。）图片源自dailymail
+76岁的理查德爵士在为《澳大利亚人报》制作的播客节目中说：“今后，我们必须采取非常谨慎的措施，在登记中共国研究学生的去向和他们的兴趣方面进行控制，并采取更大的措施来保护我们大学的知识产权，特别是在敏感研究领域。”
 
-进去以后
-After they entered
+理查德爵士在播客中说：“我非常确定，在武汉爆发事件后，中共非常善于这样做，他们坐下来制定了自己的信息运动，这几乎肯定是由国家安全部推动的，并由中共领导层运作，以确保有效地压制任何有悖于他们的说法的主张。”
 
-带到的美国所有的西方投资家
-all the Western investors in the U.S. brought to
+我担心的是，西方国家在多大程度上配合了这种做法。
 
-一个最核心的两个问题
-the two core problems
+这位前冷战时期的间谍以前曾谈到过他对该大流行病起源的探究。
 
-你是不知道的
-you don’t know
+他曾经说过，Covid有所有“采取自然病毒并对其进行操纵”的迹象。
 
-第一 真实的投资数据
-First, the real investment data
+对理查德爵士进行播客采访的澳大利亚记者Sharri Markson早些时候说，她对“实验室泄漏”假说进行了18个月的调查，使她对病毒从生物医学设施中溢出的说法“深信不疑”。
 
-有战友说，这个恒大9万亿搞错了
-Some comrades in arms have said that they made this Evergrande’s 9 trillion dollars, that’s wrong
+她敦促关闭所谓的“功能增强”研究，或对中共国的实验室进行更严格的审查，以避免未来的大流行病。
 
-是全美国投到中国9万亿
-It should be the U.S. invested a total of 9 trillion dollars in China
+这种有风险的实验涉及工程病毒，使其更具传染性或致命性，希望开发出治疗方法和疫苗，以便在疫情爆发前取得进展。
 
-千万大家记住，唯真不破
-Everyone, don’t forget the power of truth
+中共一再坚持认为这种病毒是从蝙蝠那里自然传染到人类身上的，一些科学家也支持Covid很可能有自然来源的观点。
 
-千万要唯真不破
-We must keep the truth
+但是，共产党政府阻碍了对该病毒如何在武汉首次从蝙蝠跳到人类身上进行独立调查的努力。
 
-所以说这9万亿它是在哪里
-So saying where are the 9 trillion dollars
+原文连接：**[https://www.dailymail.co.uk/news/article-10292827/Ex-MI6-chief-says-UKs-science-sector-compromised-malign-Chinese-Communist-influence.html](https://www.dailymail.co.uk/news/article-10292827/Ex-MI6-chief-says-UKs-science-sector-compromised-malign-Chinese-Communist-influence.html)**
 
-是美国政府投到中国9万亿
-It’s the 9 trillion dollars that the U.S. government has invested in China
-
-它是投房地产
-It is investment in real estate
-
-可不一定要投到这个恒大房地产
-But it doesn’t have to invest in this Evergrande real estate
-
-恒大有上千种方式
-Evergrande has thousands of methods
-
-完全跟恒大没有关系
-It has nothing to do with Evergrande
-
-在西方拿对冲基金的钱
-that taking money from hedge funds in the West
-
-担保再担保
-guarantee and re-guarantee
-
-无相关关系 第三方
-It’s the third party which no related relationship
-
-是吧？太多招了
-You see, they have too many tricks
-
-你根本不可能在那个数字里边的
-Those money can’t be in that number at all
-
-这叫对冲和风险基金的本质
-This is called the nature of hedge and risk funds
-
-不用公开信息，隐蔽性强
-There is no need to disclose information and strong concealment
-
-风险极大 回报极高
-High risk but high return
-
-玩弄着这两个风险的
-The maniac playing with these two risks
-
-投资者的疯子和那个冒险家
-are the investor maniac and the adventurer,
-
-就是那个恒大 共产党这边
-which is that Evergrande on the CCP side
-
-风和险中间叫什么
-What is it called between the risk and danger?
-
-叫基金经理
-It called the fund manager
-
-挣了 我拿20%
-They’ll take the 20% if you earn money
-
-赔了 我拿2%的管理费、5%管理费
-and take the 2% – 5% management fee if you lose money
-
-挣赔我都拿
-They’ll take your fund management fee no matter you gain or lose money
-
-这叫风险中间 叫基金经理人
-This is called risk middle, the fund manager
-
-就叫金钱妓女和金钱妈咪
-Called money prostitutes and money mommy
-
-* * *
-
-Date: 12/11/2021
-原视频标题: 中国企业家带上五角帽 也永远不是赵家人
-The Chinese Entrepreneurs Will Never Belong to The Zhao Family Even Though They Wearing The CCP Hats
-原视频日期：2021/12/10
-原视频链接: [**https://gettr.com/post/pjejnxf913**](https://gettr.com/post/pjejnxf913)
-任务编号：KC334(3187)
-视频时间段 : 0:00-2:05
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译：洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 ：洛杉矶盘古农场 – 恩典
+翻译：洛杉矶盘古农场- TrueSky
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – 柯镇恶
+发布：洛杉矶盘古农场 –恩典
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

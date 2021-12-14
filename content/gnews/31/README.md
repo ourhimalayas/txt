@@ -2,36 +2,43 @@
 ---
 
 
-## 墙内涌现公务员降薪潮，降幅高达25%
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1753215/)
+## 针对Covid-19限制的大规模抗议活动在德国东部蔓延
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1753338/)
 
-作者：纽约香草山教育部 –  Noemi
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-12月12日，墙内某辅导教师爆料，中共国内近期有多个省份都下发了公务员降薪的通知，部分地区降幅高达25%。
+##### 【雅典娜快讯】，紧贴时事脉搏
 
-据了解，此次公务员降薪潮或可波及全国，目前已有江苏、浙江、广东、福建、上海等多个经济发达省市直接受到降薪冲击。据浙江一公务员爆料，自己的年薪足足被下调了25%，年收入缩水超五万元。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture3-12.jpg)
-此外，还有一位基层公务员直接向四川省财政厅官网进行投诉，称其自2020年以来，就一直被单位无限期拖欠绩效奖金，目前一家人均已靠借贷度日，生活难以为继。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/maxresdefault-14.jpg)图片来源：YOUTUBE
 
-据业内人士分析，此次中共国推行公务员的大幅度、普遍性降薪，实质上是国内各地方政府债台高筑的直接写照。事实上，楼市、疫情、失业、人口老龄化等问题已彻底拖垮中共经济。
 
-参考链接：
-1. [墙内涌现公务员降薪潮，降幅高达25%](http://news.hexun.com/2021-12-11/204916659.html)
-2. [墙内涌现公务员降薪潮，降幅高达25%](http://news.hexun.com/2021-12-11/204916659.html)
+#### 编译 ：小红帽
 
-![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+**根据RT新闻12月14日报道，由于对Omicron变种传播期间引入的新冠病毒限制和强制疫苗令感到沮丧，成千上万的德国人走上多个东部城市的街头，**
 
-总编：飞虹
-编辑：DM
-校对/发稿：Hetangyuese
+周一，大约3，500名示威者参加了德国萨克森 – 安哈特州首府马格德堡的抗议活动。抗议者在市中心游行，高呼“抵抗！”和其他口号，反对由于新的新冠毒株在欧洲迅速蔓延而实施的全面封锁措施。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+仅在周一，萨克森 – 安哈特州就举行了大约30次单独的示威活动，其中大多数是反对政府的新冠病毒政策。大约1，500人走上哈尔伯施塔特的街头，该小镇只有40，000多人。
+
+在拥有46，000人维滕贝格，约有1，300人参加了抗议活动。
+
+在瑙姆堡，奎尔福特，舍内贝克，阿舍尔斯莱本和德绍等地举行了小型的示威活动。
+
+“参加抗议活动的人数明显多于上周，”当地媒体报道。抗议情绪在德国东部一直上升。
+
+作为对抗议活动，反建制的德国选择党（AfD）的一名当地代表表示“全力声援”那些反对严格的新冠病毒措施的示威者，称他们是要求“公民自由”的“完全正常的和平人士”。
+
+抗议活动没有发生任何事件，也没有关于示威者之间逮捕或混战的报道。
+
+新闻来源：[Mass protests against Covid-19 restrictions hit eastern Germany — RT World News](https://www.rt.com/news/543102-protests-covid-restrictions-mandate/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
