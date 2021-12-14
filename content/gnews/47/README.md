@@ -2,28 +2,30 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月13日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1751152/)
+## 日本民间团体举办为台湾正名签名活动
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1751341/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-3.jpg)
+#### 撰稿：日本东京方舟农场  幽蘭自得
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-1-5.png)
-文章仅代表作者本人观点，与Gnews无关
+![](https://assets.gnews.org/wp-content/uploads/2021/12/831B4D07-1A59-44B1-B504-3C9CD17DBBDC.jpeg)（图片来自自由时报）
 
-视频参看：[2021.12.13早GTV新闻访谈](https://gtv.org/video/id=61b74a4d56f4921401b6eb8b)
+据《自由时报》12月13日报道，日本《产经新闻》台北支局长矢板明夫13日发文称，日本民间团体“台湾研究论坛”近日举办了为台湾正名的署名活动，要求日本政府更正在中小学课本上对台湾的介绍，不再称“台湾是中（共）国的一部分”。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+矢板明夫表示，前东京都港区议会议员，同时也是他松下政经塾学长的山本闭留12日在上野车站前，参加了一场为台湾正名的署名活动。该活动是由日本“台湾研究论坛”主办，并得到了过路民众的积极支持。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/calendar.jpeg)
+据矢板明夫介绍，“台湾研究论坛”会长永山英树是著名的友台人士，经常在周末于各大车站前举办类似的署名活动。最近几年，支持台湾的日本民众越来越多，与这些日本人多年来的默默努力分不开。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+矢板明夫还表示，虽然今年7月日本内阁会议发布的2021年防卫白皮书，首度将台湾从中（共）国章节中抽离，改放到美中关系章节中独立探讨，但在今天的日本，中小学课本、地图、词典以及日本媒体的报道中，仍有很多对台湾的描述存在不公正或不正确的地方。他表示，他今后也会在日本的媒体上继续呼吁改进。
+
+*参考链接：[日本好多人支持！ 要求修正教科書 不再稱「台灣是中國的」](https://news.ltn.com.tw/news/politics/breakingnews/3767405)*
+
+* * *
+
+*素材采编：幽蘭自得*
+
+*编辑：青衣青青*
+
+*发布：miumiu*
 
  
 

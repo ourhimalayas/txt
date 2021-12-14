@@ -2,38 +2,59 @@
 ---
 
 
-## 纳粹和北京都想借奥运会提升公众形象
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1752561/)
+## 参议员汤姆·科顿： 我们必须继续与台湾站在一起，帮助确保其自治
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1752697/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Unknown-19.jpg)纳粹和北京都想借奥运会提升公众形象 网络图片
-据美国之音12月14日报道，纳粹大屠杀研究者说，北京2022冬奥会前夕，西方世界正处于85年前纳粹德国举办奥运会时的相似处境：专制独裁政府试图利用奥运会美化自我，民主国家采取中庸之道不作全面抵制，而最终，谴责极权政府侵害人权的道德负担落到参赛的运动员肩上。
-
-历史似乎正在重演，大卫·怀曼大屠杀研究所创始主任拉斐尔·梅多夫表示，1936 年的阿道夫·希特勒渴望被世界视为文明社会的一部分，今天的中共国领导人也希望被视为国际社会合法的可接受成员。梅多夫担心国际社会象征性的外交抵制将再次向中共国极权政权领导人传达一个信息，即世界并不真正关心对维吾尔人的种族灭绝、对香港言论自由的压制。由于美国政府采取中庸之道，现在道德负担转移到了运动员身上——就像 1936 年那样。
-
-在距离北京冬奥会不足两个月之际，仍未见美国运动员以个人不参赛抵制这次冬奥会，或公开表达将利用参赛机会抗议北京侵犯人权的恶劣行为的计划。美国运动员克莱尔·伊根表示， “保持沉默就是同谋”。
-
-NBA球星埃内斯·坎特是迄今为止对中共国人权侵犯和国际奥委会批评最严厉的美国运动员之一。他批评国际奥委会跟北京的暧昧关系，认为在独裁统治的中共国举办奥运会，是国际奥委会的耻辱。坎特认为，“世界上所有你能赢得的金牌都比不上你的道德、你的原则和你的价值观更重要”。坎特一直支持西藏独立，批评中共政府镇压维吾尔族人。在篮球场上，他穿着印有“自由西藏”字样的鞋子，并主张抵制2022年北京冬奥会。
-
-抵制奥运的方式可以多边化，例如美国以及世界各地的奥运参赛选手在每个国家队经过中共国领导人所在的主席台时拒绝致敬；外国记者加大对中共国侵犯人权行为的报道；企业退出赞助等。
-
-中共国政府对驻北京的各国记者采取了严格的限制措施。北京国际记者俱乐部质疑外国记者是否能报道奥运会。记者无国界组织发表声明提醒各国政府，“必须警惕北京政权的操纵企图，并保护记者免受监视和可能的压力。”中共国是世界上最大的记者监狱， 习近平上台以来，中共国恢复了与毛泽东时代相称的媒体文化，在这种文化中，自由获取信息不是权利，而是犯罪。
-
-人权组织《公民力量》创始人杨建利表示，中共国正在进行大规模的人权侵害，美国外交抵制而不限制运动员参赛，是正确的。对很多运动员来讲，这也许是一生中唯一的一次机会。在未来的日子里，随着运动员更多地了解中共国的侵犯人权行为，他们将开始重新考虑，或者拒绝参加这场粉饰种族灭绝政权的比赛，这非常重要。
-
-体育运动无国界，运动员释放天性、公平参加竞技比赛。不需要语言，不涉及政治和权利。但是很多外籍运动员因为担心安全或职业生涯受影响而不敢表达真实的想法。中共对世界的霸凌、对世人自由意志的剥夺扩展到了体育界。国际奥委会要看中共的脸色行事，奥运精神在哪里？自由、和平、公平、公正，还代表体育精神吗？
-
-新闻参考链接：[https://www.voachinese.com/a/boycott-beijing-winter-olympics-diplomatic-boycott-biden-administration/6352511.html](https://www.voachinese.com/a/boycott-beijing-winter-olympics-diplomatic-boycott-biden-administration/6352511.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+参议员汤姆·科顿： 我们必须继续与台湾站在一起，帮助确保其自治，并维持现状。 拜登总统不能跪下向 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 北京磕头。
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+> We must continue to stand alongside Taiwan, help secure its autonomy, and maintain the status quo.
+> 
+> President Biden cannot kowtow to Beijing. [pic.twitter.com/kBQEcYm48y](https://t.co/kBQEcYm48y)
+> — Tom Cotton (@SenTomCotton) [December 14, 2021](https://twitter.com/SenTomCotton/status/1470553827082440705?ref_src=twsrc%5Etfw)
+
+
+
+众议员布莱恩·马斯特： 山中无老虎，猴子称大王。 乔·拜登的无能意味着俄罗斯和 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 可以——而且将会——接管(世界)。 【视频中马斯特说，[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 已经吞掉了香港，接下来要拿下台湾，丝毫不顾及美国，因为他们嗅到了拜登政府的软弱】
+
+
+
+> While the cat’s away, the mice will play. 
+> 
+> Joe Biden’s incompetence means Russia and China can – and will – take over. [pic.twitter.com/hfGd7WtzXG](https://t.co/hfGd7WtzXG)
+> — Rep. Brian Mast (@RepBrianMast) [December 14, 2021](https://twitter.com/RepBrianMast/status/1470567786250391558?ref_src=twsrc%5Etfw)
+
+
+
+众议员克里斯·斯图尔德： 我们在莫斯科、德黑兰和北京的对手将考验拜登总统以扩大他们的权力和影响范围。 不幸的是，目前尚不清楚拜登是否或如何回应。 【附斯图尔德众议员在福克斯的视频采访】
+
+
+
+> Our adversaries in Moscow, Tehran and Beijing are going to test President Biden to expand their power and spheres of influence.
+> 
+> Unfortunately, it isn’t at all clear if or how Biden will respond. [pic.twitter.com/CFxOAwRaLO](https://t.co/CFxOAwRaLO)
+> — Rep. Chris Stewart (@RepChrisStewart) [December 13, 2021](https://twitter.com/RepChrisStewart/status/1470495723703652369?ref_src=twsrc%5Etfw)
+
+
+
+参议员汤姆·科顿： 比尔·克林顿曾表示，“如此多的美国人担心一个强大的 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 对世界的影响，这很滑稽”。 他错了，他所嘲笑的美国人是对的。 20年前，[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 加入了世贸组织，标志着对我国的工业基础、经济和工人阶级造成巨大空洞的开始。 这是我国历史上最大的外交政策错误之一。我们与 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的贸易关系根本不正常，我们无法承担让这种关系永久存在下去。 我们必须结束与中共国的“永久正常贸易关系”。
+
+
+
+> Bill Clinton once said that it was “ironic that so many Americans are concerned about the impact on the world of a strong China.” He was wrong, and the Americans he derided were right.[https://t.co/u4WZQdVy3A](https://t.co/u4WZQdVy3A)
+> — Tom Cotton (@SenTomCotton) [December 13, 2021](https://twitter.com/SenTomCotton/status/1470481887286153216?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿迈克·蓬佩奥： 我们教导我们的年轻人，这些才华横溢的运动员们畅所欲言。 他们将要去 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)，如果其中一个人说“西藏自由”，或“对香港人民有好处”，或“我支持台湾”，他们就可能得不到出境签证。很自豪通过了两党的2022财年国防授权法案 [#FY22NDAA](https://twitter.com/hashtag/FY22NDAA?src=hashtag_click)，该法案旨在帮助支持我们的军队及其家人，并解决我们国家今天面临的许多日益严重的国家安全威胁，包括来自 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CC](https://twitter.com/hashtag/CC?src=hashtag_click)​​P、俄罗斯、伊朗等国的威胁。 阅读更多所包含的有关我的优先事项：
+
+
+
+> Proud to pass the bipartisan [#FY22NDAA](https://twitter.com/hashtag/FY22NDAA?src=hash&amp;ref_src=twsrc%5Etfw) to help support our military and their families, & address the many growing national security threats our nation faces today, including the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw), Russia, Iran & more.
+> 
+> Read more about my priorities that were included: [https://t.co/aS6Y3AksF3](https://t.co/aS6Y3AksF3)
+> — Rep. Mike Waltz (@michaelgwaltz) [December 13, 2021](https://twitter.com/michaelgwaltz/status/1470462404542746629?ref_src=twsrc%5Etfw)
 
 
 
