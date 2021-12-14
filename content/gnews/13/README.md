@@ -2,40 +2,28 @@
 ---
 
 
-## 日本高官将加入抵制北京冬奥会的行列
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1752842/)
+## 斯科特医生：关于强制疫苗，我们被欺骗了太多次了
+` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1752875/)
 
-作者: 纽约香草山农场-文真
+嗨，我是Scott Jensen医生，我正在竞选明尼苏达州的下一任州长，他们对我们撒了谎，这就是我每天从选民和患者那里听到的，他们对我们撒谎。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-11.jpg)
+“我们不能要求某人接种疫苗, 那不是我们能做的。” 他们告诉我们不会有强制政策。 “当然不，你不想强制并试图强迫任何人接种疫苗，我们从来没有这样做过。”
 
+还记得这个吗？ “我们的利益来自联邦政府，很简单，就是美国人的隐私和权利应该得到保护。” 嗯，这个怎么样？ “不用多说，女性对自己身体做出决定的权利是没有商量余地的。”
 
+他们告诉我们，他们永远不会这样做。 “谁接种了，谁没有接种，这是一个隐私问题。” 这是我的最爱之一。 “我不希望从联邦政府向普通民众强制推行，这将无法执行且不合适。”
 
+而这个是那么的清晰。 “联邦政府应该介入并发布指令，如果没有，你是否将未接种疫苗者的需求置于接种疫苗者的需求之前？” “我认为这个问题不是联邦政府的角色。”
 
+然后是这个, 粉饰犯罪， “不，我不认为它应该是强制性的，我不会要求强制的。” 伙计们，我不在乎你站在左边还是右边还是中间，但我们都应该担心的是我们被骗了，我们一遍又一遍地被告知 “不会有任何强制措施，不会这样做，强制是不道德的。” 太多的反反复复，而我不会反复无常，我现在要告诉你的是，正如我过去所说的，将来我仍会这么说：强制接种疫苗是不道德的，绝对不道德。
 
-12月11日，外媒报道称，日本政府尚未明确全面外交抵制北京冬奥会，但是，将仅派出较低级别的官员出席。
-![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/chinaolympics.jpg?itok=j33Extn7)
-最近，日本媒体援引多个知情人士的话报道，日本政府很可能加入美国的外交抵制行动，高级官员将不会出席2022年二月在北京举行的冬奥会。日本国家广播公司也证实了这一消息，称日本政府倾向于不派内阁部长出席北京冬奥会。该报称，现在预计参加的官员仅是与奥运会有关的人员。
-截至目前，继美国公布了外交抵制行动后，英国、加拿大、澳大利亚、新西兰和立陶宛已明确表示不会派政府官员参加北京2022冬奥会。
+素材：文倩
 
-编辑: Jack Li文阳
+翻译：abbs
 
-新闻链接:[Top Japan Officials To Join US Boycott Of Beijing Olympics As List Grows](https://www.zerohedge.com/political/top-japan-officials-join-us-boycott-beijing-olympics-list-grows)
+字幕：杰尼龟
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-192.jpeg)
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-11.jpg)
-
-
+发布：风云小哥
 
  
 

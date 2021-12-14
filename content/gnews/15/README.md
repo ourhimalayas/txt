@@ -2,22 +2,41 @@
 ---
 
 
-## 中日财经爆： 新浪微博今年被罚44次，罚款1430万元
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1752823/)
+## 日本高官将加入抵制北京冬奥会的行列
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1752842/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-712.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fmedia.dwnews.net%2Fhk01%2F7NA6N_5Kie9LpUm4MDRpkrdxJYU%3D%2F320*0%2Fmedia%2Fimages%2Fdw%2F20211214%2F547376874217541632150248.png&amp;imgrefurl=https%3A%2F%2Fmad-hatsdnbhd.com%2F%25E7%25BB%258F%25E6%25B5%258E%2F60271900%2F%25E4%25B8%25AD%25E5%259B%25BD%25E7%25BD%2591%25E4%25BF%25A1%25E5%258A%259E%25E4%25BE%259D%25E6%25B3%2595%25E7%25BA%25A6%25E8%25B0%2588%25E5%25A4%2584%25E7%25BD%259A%25E6%2596%25B0%25E6%25B5%25AA%25E5%25BE%25AE%25E5%258D%259A%25E4%25BB%258A%25E5%25B9%25B4%25E4%25BB%25A5%25E6%259D%25A5%25E7%25B4%25AF%25E8%25AE%25A1%25E8%25A2%25AB%25E7%25BD%259A%25E6%25AC%25BE1430%25E4%25B8%2587%25E5%2585%2583&amp;tbnid=w22dMxVMiLPCoM&amp;vet=12ahUKEwiCv5X1sOL0AhUS5J4KHVymAksQMygDegUIARCgAQ..i&amp;docid=xjotpq2T_1u4VM&amp;w=1920&amp;h=1229&amp;itg=1&amp;q=%E6%96%B0%E6%B5%AA%E5%BE%AE%E5%8D%9A%E8%A2%AB%E7%BD%9A&amp;ved=2ahUKEwiCv5X1sOL0AhUS5J4KHVymAksQMygDegUIARCgAQ)
-近期新浪微博及其账号因屡次发布或者传输中共政府禁止的信息， 被处罚300万元，今年1月至11月，中共国北京市网信办，对新浪微博实施44次处置处罚，多次予以顶格50万元罚款，共累计罚款1430万元，显示中共对言论审查进一步收紧。
+作者: 纽约香草山农场-文真
 
-据“网信中国”微信公众号14日消息,中共国家互联网信息办公室负责人约谈新浪微博主要负责人、总编辑，针对近期新浪微博及其账号屡次出现法律、法规禁止发布或者传输的信息，情节严重，依据《中华人民共和国网络安全法》《中华人民共和国未成年人保护法》等法律法规，责令其立即整改，严肃处理相关责任人。北京市互联网信息办公室对新浪微博运营主体北京微梦创科网络技术有限公司依法予以共计300万元罚款的行政处罚。2021年1月至11月，国家互联网信息办公室指导北京市互联网信息办公室，对新浪微博实施44次处置处罚，多次予以顶格50万元罚款，共累计罚款1430万元。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-11.jpg)
 
-新浪微博作为中共国墙内的社交媒体平台，是中国老百姓可以有限发声的网络空间，中共只允许一种声音，容不得半点的批评的声音，在外界看来新浪微博已经积极配合中共大规模的言论审查，但是就这样还是一年被处罚44次，证明中共对老百姓的基本言论已经达到空前的压制。
 
-消息来源：[国家网信办依法约谈处罚新浪微博](https://www.163.com/money/article/GR617MPD00259DLP.html?clickfrom=w_money)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+
+
+12月11日，外媒报道称，日本政府尚未明确全面外交抵制北京冬奥会，但是，将仅派出较低级别的官员出席。
+![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/chinaolympics.jpg?itok=j33Extn7)
+最近，日本媒体援引多个知情人士的话报道，日本政府很可能加入美国的外交抵制行动，高级官员将不会出席2022年二月在北京举行的冬奥会。日本国家广播公司也证实了这一消息，称日本政府倾向于不派内阁部长出席北京冬奥会。该报称，现在预计参加的官员仅是与奥运会有关的人员。
+截至目前，继美国公布了外交抵制行动后，英国、加拿大、澳大利亚、新西兰和立陶宛已明确表示不会派政府官员参加北京2022冬奥会。
+
+编辑: Jack Li文阳
+
+新闻链接:[Top Japan Officials To Join US Boycott Of Beijing Olympics As List Grows](https://www.zerohedge.com/political/top-japan-officials-join-us-boycott-beijing-olympics-list-grows)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-192.jpeg)
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-11.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

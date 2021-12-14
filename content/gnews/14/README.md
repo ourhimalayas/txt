@@ -2,43 +2,31 @@
 ---
 
 
-## 日本和澳大利亚同意加强安全关系
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1752837/)
+## 郭先生爆料：坚决反对党内各方杀掉习近平，灭共后习自然灭亡
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1752870/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-162.png)图片来源：日本外务省
-翻译：文扬
+撰稿人：纽约香草山教育部 -Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-7.png)
+郭文贵先生在2021年12月12日的大直播中提到，美国情报界人士征求他对中共国内有多方势力想杀死习近平的看法，郭先生明确表示，坚决反对杀掉习。郭先生深入分析了以下原因。 在独裁统治的体系里，作为首脑被干掉的事情会不时地发生。像萨达姆，乌干达的阿明，卡扎菲，斯大林，赫鲁晓夫，毛泽东、刘少奇无不如此。尤其在共产党体系内，这是你死我活的关系，是没有选择必须要做的事情，是这个体系必然的规律。 郭先生说如果现在干掉习，会使这场人类灾难延续更多年。因为只要习被任何人杀掉，习就成为了共产党的英雄，甚至会成为一半愚蠢的被洗脑中国人的英雄，这是一点都不用怀疑的。而且这一半人会誓死保护习近平今天的习太阳思想，这是一个社会关系学历史学的一个必然结果。如果把习变成了这种人物，那就真的成了中国的悲剧，成了我们灭共事业的重大挫折。我们应该把这个体制消灭，习自然而然就灭掉了。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-653.png)
+郭先生强调，让习活下去还有一个重要原因，现在只有习能帮助爆料革命完成关键的想法：打台湾，在内部杀土豪，党内清党，垄断思想，灭掉宗教，共享财富。最关键的是他要挑战美国，这让美国更坚定的和爆料革命站在一起。 因此郭先生表示坚决反对杀掉习近平，要让他继续活下去，直到把共产党消灭为止。
 
-编辑：Mttfly
+链接：[2021.12.12文贵爆料：坚决反对党内各方杀掉习近平 灭共后习自然灭亡](https://gnews.org/zh-hans/1749305/)
 
-在澳大利亚外长玛丽斯·佩恩(Marise Payne)与日本外相林芳正(はやし よしまさ)在英国举行的七国集团会议上会晤后，澳大利亚和日本承诺进一步加强安全合作。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-195.jpeg)
 
-林芳正调强了包括印度和美国在内的四方安全对话成员之间合作应对印太战略挑战的重要性。
+总编：飞虹
 
-他说，他希望与佩恩女士合作，将日澳特殊战略关系提升到一个更高的水平。
+校正/发稿：浪迹天涯
 
-日本外交部表示，日本和澳大利亚已经与美国以及密克罗尼西亚、瑙鲁和基里巴斯合作，建造一条新的海底电缆，以改善这三个太平洋岛国的互联网连接。此举旨在对抗中共国在该地区不断上升的影响力。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-7.png)
 
-“他们（日澳外长）确认，日本和澳大利亚将继续协助在印太地区建设高质量基础设施的努力，包括利用日本、澳大利亚和美国的框架”，外交部说。
-
-这是自上月初日本全国大选后，林芳正上任以来两位外长的首次当面会晤。执政的自民党重新上台，岸田文雄(きしだ ふみお)担任首相。
-
-岸田政府已表示希望与澳大利亚建立更紧密的关系。人们希望岸田先生在明年初访问澳大利亚。
-
-林芳正先生还在七国集团外长会议上与来自德国、法国、意大利和加拿大的同行进行了单独会谈，澳大利亚和东盟国家也被邀请参加这次会议。
-
-在该地区对中共国领土野心的担忧日益加剧之下，四方协议恢复。日本前首相安倍晋三上个月呼吁，加强与澳大利亚的防务合作，并表示东京应该与澳大利亚、英国和美国之间近期建立的澳英美联盟（AUKUS）合作。
-
-**原文链接：**[Japan and Australia agree to strengthen security ties](https://www.afr.com/world/asia/japan-and-australia-agree-to-strengthen-security-ties-20211213-p59h16)
-
-**发布：**去中心化Math
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
