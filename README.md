@@ -15,70 +15,70 @@
 
 ---
 
-### [中共警告各国将为抵制北京奥运会“付出代价”，运动员应需要被训练如何保护自己](/content/gnews/1/README.md)
+### [文贵视角:連嫦娥都知道&#8217;H COIN TO THE MOON&#8217;是灭共利器](/content/gnews/1/README.md)
+ ` 秘密翻译组-原创组`
+
+### [中共警告各国将为抵制北京奥运会“付出代价”，运动员应需要被训练如何保护自己](/content/gnews/2/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [疫苗后14天没有死亡很幸运，但由于体内有刺突蛋白，你需要10年的时间来观察自己的健康](/content/gnews/2/README.md)
+### [疫苗后14天没有死亡很幸运，但由于体内有刺突蛋白，你需要10年的时间来观察自己的健康](/content/gnews/3/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [在接种疫苗之前，请花几分钟时间看看这些案例](/content/gnews/3/README.md)
+### [在接种疫苗之前，请花几分钟时间看看这些案例](/content/gnews/4/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [2021年12月13日郭先生盖特 — 视频盖特「2分22秒」](/content/gnews/4/README.md)
+### [2021年12月13日郭先生盖特 — 视频盖特「2分22秒」](/content/gnews/5/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [台湾驻港代表拒签“一个中国宣誓书”](/content/gnews/5/README.md)
+### [台湾驻港代表拒签“一个中国宣誓书”](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [斯科特医生：关于强制疫苗，我们被欺骗了太多次了](/content/gnews/6/README.md)
+### [斯科特医生：关于强制疫苗，我们被欺骗了太多次了](/content/gnews/7/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [郭先生爆料：坚决反对党内各方杀掉习近平，灭共后习自然灭亡](/content/gnews/7/README.md)
+### [郭先生爆料：坚决反对党内各方杀掉习近平，灭共后习自然灭亡](/content/gnews/8/README.md)
  ` GTV News Talk`
 
-### [日本高官将加入抵制北京冬奥会的行列](/content/gnews/8/README.md)
+### [日本高官将加入抵制北京冬奥会的行列](/content/gnews/9/README.md)
  ` GTV News Talk`
 
-### [日本和澳大利亚同意加强安全关系](/content/gnews/9/README.md)
+### [日本和澳大利亚同意加强安全关系](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中日财经爆： 新浪微博今年被罚44次，罚款1430万元](/content/gnews/10/README.md)
+### [中日财经爆： 新浪微博今年被罚44次，罚款1430万元](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文雍漫谈：见证](/content/gnews/11/README.md)
+### [文雍漫谈：见证](/content/gnews/12/README.md)
  ` 文雍`
 
-### [中共战狼狂吠七国集团外长会议发表的声明](/content/gnews/12/README.md)
+### [中共战狼狂吠七国集团外长会议发表的声明](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [疫情加重 丰田国内4工厂继续停产](/content/gnews/13/README.md)
+### [疫情加重 丰田国内4工厂继续停产](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [爆料革命——历史的今天11月28日](/content/gnews/14/README.md)
+### [爆料革命——历史的今天11月28日](/content/gnews/15/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [2021年11月27-28日 郭先生视频重点内容整理](/content/gnews/15/README.md)
+### [2021年11月27-28日 郭先生视频重点内容整理](/content/gnews/16/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [联盟工作汇报文字版2021.12.12](/content/gnews/16/README.md)
+### [联盟工作汇报文字版2021.12.12](/content/gnews/17/README.md)
  ` 纽约香草山MOS02`
 
-### [民调：多数加拿大人支持全面抵制北京冬奥会](/content/gnews/17/README.md)
+### [民调：多数加拿大人支持全面抵制北京冬奥会](/content/gnews/18/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [12/13每日播报｜蓬佩奥谴责国际奥委会和全球商业巨头支持北京冬奥会](/content/gnews/18/README.md)
+### [12/13每日播报｜蓬佩奥谴责国际奥委会和全球商业巨头支持北京冬奥会](/content/gnews/19/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [爆料革命——历史的今天11月26日](/content/gnews/19/README.md)
+### [爆料革命——历史的今天11月26日](/content/gnews/20/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [2021年11月25-26日 郭先生视频重点内容整理](/content/gnews/20/README.md)
+### [2021年11月25-26日 郭先生视频重点内容整理](/content/gnews/21/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [爆料革命——历史的今天11月24日](/content/gnews/21/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [2021年11月21-24日 郭先生视频重点内容整理](/content/gnews/22/README.md)
+### [爆料革命——历史的今天11月24日](/content/gnews/22/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
 ### [天津出现首宗中共病毒新变异株Omicron病例](/content/gnews/23/README.md)
