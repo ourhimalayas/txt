@@ -15,122 +15,122 @@
 
 ---
 
-### [2021/12/14 墙内世界](/content/gnews/1/README.md)
+### [哈佛教授被控隐瞒与中共关系将出庭受审](/content/gnews/1/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [紧急：3 种方法来帮助阻止拜登的疫苗授权](/content/gnews/2/README.md)
+### [新书揭示对全球大流行病毒起源的掩盖](/content/gnews/2/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美国心脏协会:97.8%的21岁以下青年人在注射mRNA疫苗后一个月内患上心肌炎](/content/gnews/3/README.md)
+### [更多中共军工企业将入美国投资和出口黑名单](/content/gnews/3/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [2021/12/14 墙内世界](/content/gnews/4/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [紧急：3 种方法来帮助阻止拜登的疫苗授权](/content/gnews/5/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [美国心脏协会:97.8%的21岁以下青年人在注射mRNA疫苗后一个月内患上心肌炎](/content/gnews/6/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [警惕：大流行下一阶段是数字疫苗护照和第三次世界大战](/content/gnews/4/README.md)
+### [警惕：大流行下一阶段是数字疫苗护照和第三次世界大战](/content/gnews/7/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [灭共者：地球是我们的一个支点](/content/gnews/5/README.md)
+### [灭共者：地球是我们的一个支点](/content/gnews/8/README.md)
  ` MOS Designer香草山设计部`
 
-### [呼格吉勒图案平反，中共依旧党在法上](/content/gnews/6/README.md)
+### [呼格吉勒图案平反，中共依旧党在法上](/content/gnews/9/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [为了增加人员配备一些医院取消了COVID-19疫苗强制规定](/content/gnews/7/README.md)
+### [为了增加人员配备一些医院取消了COVID-19疫苗强制规定](/content/gnews/10/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [福奇电邮：小扎愿提供“数据报告”以助锁定疫苗开发政策](/content/gnews/8/README.md)
+### [福奇电邮：小扎愿提供“数据报告”以助锁定疫苗开发政策](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [小肯尼迪新书以希望结尾：我们还有选择……（2/2）](/content/gnews/9/README.md)
+### [小肯尼迪新书以希望结尾：我们还有选择……（2/2）](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [小肯尼迪新书以希望结尾：我们还有选择……(1/2)](/content/gnews/10/README.md)
+### [小肯尼迪新书以希望结尾：我们还有选择……(1/2)](/content/gnews/13/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [加国卡车司机强制疫苗将导致严重供应链问题](/content/gnews/11/README.md)
+### [加国卡车司机强制疫苗将导致严重供应链问题](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [俄罗斯特使向中共通报的四项内容吓傻了共产党](/content/gnews/12/README.md)
+### [俄罗斯特使向中共通报的四项内容吓傻了共产党](/content/gnews/15/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [DC每日热点1215](/content/gnews/13/README.md)
+### [DC每日热点1215](/content/gnews/16/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [世界卫生组织：中共病毒疫苗对Omicron的效果较差](/content/gnews/14/README.md)
+### [11岁男童遭班主任辱骂后自杀 中共封锁新闻](/content/gnews/17/README.md)
+ ` GTV News Talk`
+
+### [世界卫生组织：中共病毒疫苗对Omicron的效果较差](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [2021年12月15日文贵先生直播摘要及音频—银河系农场](/content/gnews/15/README.md)
+### [2021年12月15日文贵先生直播摘要及音频—银河系农场](/content/gnews/19/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [多名美国会议员从投资疫情相关产业中牟利](/content/gnews/16/README.md)
+### [多名美国会议员从投资疫情相关产业中牟利](/content/gnews/20/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [DC大中华时事：中共称“共同富裕”将创造中国发展新前景](/content/gnews/17/README.md)
+### [DC大中华时事：中共称“共同富裕”将创造中国发展新前景](/content/gnews/21/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [非洲正在觉醒：南非国防部拒绝中共疫苗](/content/gnews/18/README.md)
+### [非洲正在觉醒：南非国防部拒绝中共疫苗](/content/gnews/22/README.md)
  ` 纽约香草山MOS02`
 
-### [文贵爆料 12.15：剑锋直指“七寸”——美两党议员支持西藏独立](/content/gnews/19/README.md)
+### [文贵爆料 12.15：剑锋直指“七寸”——美两党议员支持西藏独立](/content/gnews/23/README.md)
  ` 秘密翻译组-原创组`
 
-### [2021年12月15日郭先生大直播文字同步精要](/content/gnews/20/README.md)
- ` 焦點20分`
-
-### [中共国改变步伐 逆流而上](/content/gnews/21/README.md)
+### [中共国改变步伐 逆流而上](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【文贵先生大直播PPT】疫苗大灾难](/content/gnews/22/README.md)
+### [【文贵先生大直播PPT】疫苗大灾难](/content/gnews/25/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [【文贵先生大直播PPT】全球发达国家对中共外交 人权 经济进行全方位制裁](/content/gnews/23/README.md)
+### [【文贵先生大直播PPT】全球发达国家对中共外交 人权 经济进行全方位制裁](/content/gnews/26/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [巴西使用伊维菌素预防中共病毒效果显著](/content/gnews/24/README.md)
+### [巴西使用伊维菌素预防中共病毒效果显著](/content/gnews/27/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [【文贵先生大直播PPT】中共房地产危局](/content/gnews/25/README.md)
+### [【文贵先生大直播PPT】中共房地产危局](/content/gnews/28/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [美国绝不能在中共国和北京奥运会上助长邪恶势力](/content/gnews/26/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [【文贵先生大直播PPT】中共缺钱了！中小银行催债力度前所未有](/content/gnews/27/README.md)
+### [【文贵先生大直播PPT】中共缺钱了！中小银行催债力度前所未有](/content/gnews/29/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [2021年12月15日文贵先生直播小飞象大雨围城速记](/content/gnews/28/README.md)
+### [2021年12月15日文贵先生直播小飞象大雨围城速记](/content/gnews/30/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [土耳其因里拉内爆对“囤积”提出巨额罚款](/content/gnews/29/README.md)
+### [土耳其因里拉内爆对“囤积”提出巨额罚款](/content/gnews/31/README.md)
  ` Zero-Day【零时差】`
 
-### [中共的威胁将成就日本](/content/gnews/30/README.md)
+### [中共的威胁将成就日本](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [上周末欧洲三名足球运动员因胸痛提前离场](/content/gnews/31/README.md)
+### [上周末欧洲三名足球运动员因胸痛提前离场](/content/gnews/33/README.md)
  ` HimalayaRussia`
 
-### [中共和俄罗斯在三个方面频繁交往](/content/gnews/32/README.md)
+### [中共和俄罗斯在三个方面频繁交往](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [关于投资赌牌和数字银行的资格](/content/gnews/33/README.md)
+### [关于投资赌牌和数字银行的资格](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [咱那赌牌是数字赌牌的一个新的开始](/content/gnews/34/README.md)
+### [咱那赌牌是数字赌牌的一个新的开始](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [FENDI不是品牌](/content/gnews/35/README.md)
+### [FENDI不是品牌](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [HPAY的发展窗口期](/content/gnews/36/README.md)
+### [HPAY的发展窗口期](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [马航事件绝对是杀人灭口](/content/gnews/37/README.md)
+### [马航事件绝对是杀人灭口](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [GTV新闻访谈简报|2021年12月15日早](/content/gnews/38/README.md)
- ` 纽约香草山MOS01`
-
-### [如果疫苗这么好，为什么会有这么多人死亡？](/content/gnews/39/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [美加澳的高端豪宅市场，从现在起开始暴跌崩坍](/content/gnews/40/README.md)
  ` 墨尔本雅典娜农场`
