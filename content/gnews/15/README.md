@@ -2,20 +2,35 @@
 ---
 
 
-## 我们拿下了伦敦最老字牌的赌场
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1757674/)
+## 香港世贸突然起火，围困数百人，一人正在抢救之中
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1757703/)
 
-文编：东京樱花团/樱花传媒
+作者：香草山健身部- 正道新闻
 
-视频:东京樱花团/中文小视频组
+![](https://assets.gnews.org/wp-content/uploads/2021/06/WhatsApp_Image_2020-10-24_at_04.33.05-4.jpeg)
 
-12月5日，郭文贵先生在GTV大直播指出：
 
-郭先生告诉大家，新中国联邦成功地购买了英国伦敦一家著名全牌照的，只有世界富豪出入，有高品味服务的赌场。网上赌博属于最大规模，且具有最高金融周转的英国赌场，对新中国联邦未来的金融业有何良处，还请大家拭目以待。
 
-编辑：东京樱花团/墨然
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.jpg)
+香港世贸中心，1975年落成。位于铜锣湾位于香港铜锣湾告士打道280号，谢斐道的东端，面对香港海底隧道入口及铜锣湾避风塘。
+由于共产党的野蛮统治致使香港经济持续走低。2019年起，不少商户陆续退出香港世贸中心。2020年11月开始P1-5层陆续封闭装修。
+2021年12月15日，当地时间中午12点37分，装修位置突然起火。3小时后明火已经被扑灭。想要返回的住户被警察劝离。起火原因还在调查之中。目前无人员死亡，14人入院观察。[https://twitter.com/theinsiderpaper/status/1471020271679471616?s=21](https://twitter.com/theinsiderpaper/status/1471020271679471616?s=21)
+
+编辑/校对/发稿：菩提树
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+
+
 
 
  
