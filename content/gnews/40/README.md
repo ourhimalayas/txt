@@ -2,10 +2,14 @@
 ---
 
 
-## 12/12/2021 文贵直播：非专业歌手郭文贵Hcoin To the Moon打榜惹恼了谁？
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1754314/)
+## 德国护士揭露病房都是打了疫苗的病人
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1754353/)
 
-秘密翻译组-北美组
+制作：葛大饼
+
+发稿：信心的选择
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-2.jpeg)
 
  
 

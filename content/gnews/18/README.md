@@ -2,59 +2,32 @@
 ---
 
 
-## 数据显示，Covid“疫苗”正在引发数十万人的精神疾病
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1755541/)
+## 盖特短视频功能G-Vision即将上线
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1755591/)
 
-2021 年 12 月 14 日，星期二
+作者：银河勇气星 – 骄子
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+盖特总裁杰森·米勒先生曾在本月早些时候向媒体表示，盖特预计将于明年2月1月推出短视频功能G-Vision，此功能将使盖特与Instagram Reels和TikTok成为竞争对手。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture1-22.jpg)
+在过去几年的发展中， Instagram Reels和TikTok的迅速崛起，充分证明，短视频广受用户的欢迎，特别是年轻用户的青睐。Instagram旗下的Instagram Reels，已成为该平台的主要驱动力，吸引的用户占到了一半以上。
 
-作者：Ethan Huffq
+G-Vision的上线，不仅拓展盖特的功能，吸引年轻用户，也将使盖特成为社交媒体领域的标杆。
 
-翻译：沉默老歌
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Coronavirus-Covid-19-Booster-Vaccine-Vials.jpg)图片来源：网络
-自然新闻：世界卫生组织（WHO）的 VigiBase 目前显示，至少有 121,559 名接种了武汉冠状病毒（Covid-19）疫苗的人现在患有一种或多种精神疾病。
+参考链接：[盖特短视频功能G-Vision即将上线](https://knowtechie.com/gettr-the-social-app-that-looks-like-twitter-will-soon-copy-instagram-reels-and-tiktok/)
 
-最常见的问题是失眠，其次是焦虑、“混乱状态”、睡眠障碍、“紧张”、“定向障碍”、“急性应激障碍”、“烦躁”、幻觉、抑郁、“情绪低落”、“惊恐发作、  ” “睡眠质量差”、“谵妄”、“激动”、噩梦、“异常梦”、饮食失调、“精神病”或“急性精神病”或“精神病行为”和抽动障碍。
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-VigiBase 还显示了 213 份注射后濒死体验报告、57 起自杀事件和 25 起“爆炸头综合征”病例，LifeSiteNews 将这种情况描述为“听到 [ing] 爆炸声、枪声或钹声等非常响亮的声音，仿佛 就在他们旁边。”
+总编：飞虹
+编辑：飞虹/雪梨
+校对/发稿：Hetangyuese
 
-近 30,000 例注射后精神障碍病例也已报告给英国的不良事件报告系统英国黄卡。
-
-“已知导致 COVID-SARS-CoV-2 的病毒会引发强大的免疫反应，其中包括释放大量促炎细胞因子，”病例报告研究人员说。
-
-他们补充说：“有人假设 COVID-19 引发的细胞因子风暴可能会增加患精神病的风险，”并引用了 42 例与这种炎症有关的精神病病例报告。
-
-看到所谓的“疫苗”如何在接受者中引发炎症反应，人们认为这是精神疾病急剧上升的原因。
-
-Covid“疫苗”是否会导致人们被恶魔附身？
-
-结果表明，2018 年的一项研究发现，接种疫苗后血清白介素 6 (IL-6) 水平较高的大学生表现出一些最严重的抑郁症状。 当然，这是在 Fauci Flu 注射之前，但前提是相同的。
-
-2017 年的另一项针对儿童疫苗记录的试点研究发现，被诊断出患有神经性厌食症、强迫症 (OCD) 和抽动症等神经精神疾病的儿童比健康儿童最近接种疫苗的可能性更高。
-
-时间快进到现在，最近接受中国细菌注射的人正在医院充斥着各种被当局称为“covid”的奇怪的新疾病。
-
-例如，在圣地亚哥的夏普纪念医院，一名 20 多岁的健康年轻女性因排尿过多被紧急送往急诊室。 她的家人也对她睡不好，一直焦虑表示担忧。
-
-需要说明的是，这位年轻女性之前没有精神病史。 然而，她非常确信“新冠病毒”正在“关闭”她的肠道和肾功能，以至于她基本上失去了推理能力。
-
-事实证明，来自白宫和主流媒体的所有心理恐怖主义都让这个可怜的女孩相信她的身体是因为某种无形的病毒而衰竭的。
-
-第二天，同一个年轻女子回到医院，抱怨听到“指责的声音”。 血液检查显示，她前一天有两次肝酶升高和高血压。
-
-后来，这名年轻女子被发现赤身裸体在病房里，大便满地。 看来，“疫苗”使她被恶魔附身并完全精神错乱。
-
-医生试图给她服用精神药物，但问题只会变得更糟。 据报道，在最终遭受严重癫痫发作之前，她变得“越来越精神错乱”和紧张症。
-
-LifeSiteNews 报道说：“她的记忆完好无损，这位年轻女子回答了医生的问题，但只是简短的句子，用单调的扁平声音。”  “她昏昏欲睡，紧张症的症状挥之不去。 她可以走路，但很慢，而且必须被提示而移动。”
-
-来源链接：
-
-[https://www.afinalwarning.com/575572.html](https://www.afinalwarning.com/575572.html)
-
-编辑/发布：LILY
-
-20211214
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
