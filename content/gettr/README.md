@@ -17,6 +17,34 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@gfashion 11/30/2021 11:07 PM (UTC)`
+
+Made in Italy 🇮🇹<br/>@gfashion<br/>@DDNYC
+![img](https://media.gettr.com/group41/getter/2021/11/30/23/07/f90a3cd0-2a91-edb5-f7a6-eb294293a0d1/out.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@gfashion 12/15/2021 8:29 PM (UTC)`
+
+Coming soon…
+![img](https://media.gettr.com/group13/getter/2021/12/15/20/3860e86a-7850-7f6e-43c4-f32cce44b81a/out.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@miles 12/15/2021 8:35 PM (UTC)`
+
+🔥🔥🔥🔥♥️♥️♥️新产品系列很快就要上线了@DDNYC
+> `@gfashion 12/15/2021 8:29 PM (UTC)`<br/>Coming soon…
+![img](https://media.gettr.com/group13/getter/2021/12/15/20/3860e86a-7850-7f6e-43c4-f32cce44b81a/out.jpg)
+
+---
+
 `@miles 12/15/2021 8:35 PM (UTC)`
 
 🔥🔥🔥🔥♥️♥️♥️新产品系列很快就要上线了@DDNYC
@@ -134,27 +162,6 @@ We conducted a preliminary survey about the effects of artemisinin supplements a
 
 12/12/2021 Miles Guo: Xi Jinping's daughter's real name is Li Muzi, and Xi's protection of his family and his daughter's luxurious life are far beyond the ordinary people’s imagination; whoever offends Li Muzi or Peng Liyuan will be finished, such as Fang Fenghui<br/><br/>12/12/2021 文贵直播：习近平女儿的真名叫李木子，习对其家人的维护和她女儿的奢靡生活远超普通人的想象；谁惹了李木子或彭丽媛都得完蛋，比如房峰辉<br/>
 ![img](https://media.gettr.com/group42/getter/2021/12/13/22/da3b5303-7e8e-698f-e1b3-3c231757bba8/out.jpg)
-
----
-
-`@miles 12/13/2021 10:11 PM (UTC)`
-
-12/12/2021 Miles Guo: Both the Democratic and Republican presidential candidates will be committed to taking down the CCP! The Sino-US economy will definitely be decoupled, and the assets of the CCP senior cadres in the West will surely be seized; communism will be designated as a cult, and the world will undergo a dramatic change; hope Xi Jinping will be alive so that he can witness all these things happening!<br/><br/>12/12/2021 文贵直播: 美国两党的总统候选人都会去灭共！中美经济一定脱钩，中共高官在西方的资产必被查处；共产主义将被列为邪教，世界格局将大变，希望习能活着亲眼目睹这一切！<br/>
-![img](https://media.gettr.com/group13/getter/2021/12/13/22/61046577-c01d-2384-d235-fb86229967aa/out.jpg)
-
----
-
-`@miles 12/13/2021 10:07 PM (UTC)`
-
-12/12/2021 Miles Guo: After the CCP was “dumped” by Russia, it asked the Russians how to restore the relationship; Xi Jinping believes that human rights are not suitable for China, while Russia is going to talk to the CCP by raising human rights issues; the fake Twitter account posing as Xi Jinping’s daughter has been showing off the wealth and opposing corruption at the same time; the end of the alliance of the CCP and Russia is absolutely beneficial to the Whistleblowers’ Movement<br/><br/>12/12/2021 文贵直播：中共被俄罗斯甩了还问要如何挽回；习认为人权不适合中国，但俄却要跟中共讲人权；假的习近平女儿推特号一边炫富一边反对腐败；中俄玩完对爆料革命绝对有利<br/>
-![img](https://media.gettr.com/group30/getter/2021/12/13/22/7bb7d496-345e-f38f-4d4e-311fbd8a369b/out.jpg)
-
----
-
-`@miles 12/13/2021 2:23 PM (UTC)`
-
-12月13号：尊敬的战友们好，你们健身了吗？传播C C P病毒疫苗解药的真相了吗？一切都已经开始了！
-![img](https://media.gettr.com/group31/getter/2021/12/13/14/02ab6dd7-c08b-eaa8-c948-5fed91489108/out.jpg)
 
 ---
 
