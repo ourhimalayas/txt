@@ -2,52 +2,34 @@
 ---
 
 
-## 有声|共产党对新中国联邦、顷一国之力的全面行动
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1755925/)
+## 有声|墙内涌现公务员降薪潮，降幅高达25%
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1755951/)
 
-配音：香草山美食部 – 玫瑰园
+配音：香草山教育部 – Rita七号小青蛙
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+12月12日，墙内某辅导教师爆料，中共国内近期有多个省份都下发了公务员降薪的通知，部分地区降幅高达25%。
 
+据了解，此次公务员降薪潮或可波及全国，目前已有江苏、浙江、广东、福建、上海等多个经济发达省市直接受到降薪冲击。据浙江一公务员爆料，自己的年薪足足被下调了25%，年收入缩水超五万元。
 
+此外，还有一位基层公务员直接向四川省财政厅官网进行投诉，称其自2020年以来，就一直被单位无限期拖欠绩效奖金，目前一家人均已靠借贷度日，生活难以为继。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-12.jpg)
-
-
-
-郭先生在12月10日大直播中明确表明:
-
-共产党对新中国联邦、爆料革命的恐惧, 已顷一国之力, 并采取一系列的全面行动:
-
-一. 杨洁篪出来的第一个行动是在塞浦路斯抓了我们三个战友，关押12个战友，涉及战友上千人拿塞浦路斯护照。在非洲抓了10几个战友要遣返，中间说服西班牙，要遣返我们正在关押的大概6-7个战友. 对我们部分战友进行威胁，包括对国内战友进行诋毁, 绑架和打击.
-
-二. 零下四度，把郭先生老爹赶到马路上，把同事1000多个员工赶到马路上.
-
-三. 爆料革命当中有2-3个潜伏地很深的共产党的情报人, 要把加拿大，能投5亿，20亿，30亿的人都找出，所以大家在加拿大务必要小心.
-
-原文链接：[共产党对新中国联邦、顷一国之力的全面行动](https://gnews.org/zh-hans/1747842/)
+据业内人士分析，此次中共国推行公务员的大幅度、普遍性降薪，实质上是国内各地方政府债台高筑的直接写照。事实上，楼市、疫情、失业、人口老龄化等问题已彻底拖垮中共经济。
 
 
+
+文字版原文：[墙内涌现公务员降薪潮，降幅高达25%](https://gnews.org/zh-hans/1753215/)
 音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-192.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/C63FEDBD-BD98-417E-9087-749CFBBB3C01.jpeg)
-
-
-
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

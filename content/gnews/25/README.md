@@ -2,43 +2,39 @@
 ---
 
 
-## 助纣为虐，中共人工智能初创企业商汤被迫暂缓在香港首次公开募股
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1755832/)
+## 有声|Hcoin to the moon的打榜方式对现有规则的改写
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1755897/)
 
-作者：香草山金融部 – 闲聊钱币
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
-由美国主导的110国民主峰会9日10日刚刚结束，美国再出一拳将人工智能企业商汤列入黑名单，该企业在香港的首次公开募股因此搁浅。
+配音：香草山美食部 – 玫瑰园
 
-根据其监管文件，商汤曾计划出售15亿股，价格范围为3.85-3.99港元，目标筹集到7.67亿美元，只有最初计划筹集20亿美元的38%。
 
-该公司试图在明年1月9日之前补充必要文件已达到再次募资的目的。但分析师却预计投资者信心低落，会影响股票定价和后续发展。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture4-8.jpg)
-美国财政部将商汤列入 “中共军工综合体公司 “名单，指责该公司开发的面部识别程序可以确定目标人物的种族，尤其是重点识别维吾尔族人。
 
-尽管中共残害新疆人的暴行证据确凿，已经被很多政体列为种族大屠杀，但是商汤仍然和它的主子中共一样对此指控表示“毫无根据，强烈反对”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
 
-根据Refinitiv的数据，2021年迄今为止，在香港IPO和二次上市中共有411亿美元的融资，而去年同期为502.6亿美元。
 
-不久前滴滴打车自曝要在美国退市，在香港上市。随着美国对中共企业更加严格的监管，中企想直接在美国上市门槛太高，只能采取迂回路线从香港上市，继续割美国和全世界的韭菜。
 
-怎料美国不管公司在哪里上市都可以将其列入本国的黑名单，以警示自己的投资公司。毕竟美国是老大，全世界还是要看大哥怎么做。
+截至12月13日，郭文贵先生的打榜歌曲Hcoin to the moon及其MV版在全球最著名音乐排行榜上继续风靡。在12月12日的大直播中，郭先生谈到，打榜过程经历了中共的严厉封锁，但冲破了重重阻碍，几乎改写了歌曲打榜的全部规则。
 
-中共在全世界骗钱是越来越难了。
+首先，歌曲的创作者和参与者并非全都是专业音乐人士，这让以音乐专业技巧为盈利手段的人群感到不悦；其次，歌曲的上榜渠道并非官方规定的渠道，这让各大音乐媒体背后的大资本感到不悦；再次，歌曲打榜的运作方式与传统方式不同，不以牟利为目的，彻底摆脱了资本的控制；最后，各奖项平台背后的大佬也深表不悦，认为这给他们带来了危险。日前，郭先生断然拒绝了好莱坞位居前三的某大佬的签约威胁，也预示着旧时代的垄断和规则已全部被颠覆。
 
-参考来源：[助纣为虐，中共人工智能初创企业商汤被迫暂缓在香港首次公开募股](https://www.reuters.com/markets/us/chinas-sensetime-withdraw-767-mln-hong-kong-ipo-sources-2021-12-13/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=13-12-21&amp;utm_campaign=13-12-21)
+原文链接：[Hcoin to the moon的打榜方式对现有规则的改写](https://gnews.org/zh-hans/1753213/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88-1.png)
+音频处理：喜山必胜Maverick
 
-编辑/校对/发稿：Hetangyuese
+发稿：Daxia
+
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
 **更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+
+
 
  
 
