@@ -2,43 +2,40 @@
 ---
 
 
-## 专家称对激烈爆发的Omicron毒株乐观是幻想
-` 丁过` [轉載自GNews](https://gnews.org/zh-hans/1755016/)
+## 战争状态，愤怒&#8211;渥太华下议院使用中国制造的口罩引起了愤怒
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1755181/)
 
-#### 温哥华农场 丁过
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-232.jpeg)来源：RFI
-综合多家媒体报道，新的中共病毒Omicron在英国、丹麦、挪威、加拿大等国家以2～3天翻一番的速度大规模爆发，Omicron在这些国家已经取代或正在取代德尔塔病毒成为主要传播病毒。
+编译：16626
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片167.png)**渥太华下议院使用中国制造的恒豪口罩**
+渥太华下议院使用中国制造的恒豪口罩引起了路易斯维尔市 (Louiseville，是魁北克省一个市，位于圣皮埃尔湖北岸的“Rivière-du-Loup”) 的愤怒。 蒙特利尔日报2021 年 12 月 14 日（路易斯·克劳捷 2021 年 12 月 13 日星期一晚上 7:06）披露了此消息。该篇题为《议院里的“中国制造”的口罩》的编译如下：
 
-挪威公共卫生署(FHI)透露，未来三周挪威的每日新增感染人数可能达到9万至30万人，其中每天有200人住院，而挪威人口仅540万人。
+渥太华下议院使用中国制造的恒豪口罩引起了路易斯维尔市 (Louiseville，是魁北克省一个市，位于圣皮埃尔湖北岸的“Rivière-du-Loup”) 的愤怒。
 
-英国卫生安全局(UKHSA)14日表示，英国每天新增Omicron感染病例已高达20万例，远高于官方确诊病例数。英国首相约翰逊则宣布，英国的中共病毒感染人数正在以每3天翻一番的速度增长。
+医用口罩制造商 Entreprise Prémont 抗议在具有高度战略意义的医用口罩行业中还有这样的来自外国的竞争。该公司感到沮丧，因为它与其他加拿大参与公司一样，在大流行开始时迅速举手响应政府的求助号召，并参与到了这场抗疫战争中。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1347.png)中国制造的恒豪口罩
+“我们需要调查我们过去与中国制造供应商签订的合同，这是可追溯的。令人难以置信，这显然是荒谬的”，Humask 品牌的口罩制造商 Entreprise Prémont 的首席执行官 Luc Girard 感叹道。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1673.png)路易斯维尔市市长伊冯·德赛斯（Yvon Deshaies）表示不理解
+**为什么？**
 
-加拿大安省中共病毒顾问组负责人Jüni13日表示，那些认为Omicron毒株是温柔的、只会引起轻症的想法是一种幻想（wishful thinking）或不切实际的神话（myth），因为我们对它的认识还处于初期阶段。
+路易斯维尔市市长伊冯·德赛斯（Yvon Deshaies）表示不理解，尤其是因为他的印象是目前加拿大和中国之间已经处于冷战状态。“今天当我们看到这一点时，很难过。令人难过的是，我们与中国几乎已经处于战争状态了”，这位民选官员说。
 
-Jüni强调，“基于Omicron极强的传染性，它终将感染到每一个人。从统计学上来说，只会有相当少的人不会被传播到”。有一种较为普遍的说法是Omicron的传染力是德尔塔的3倍。
+渥太华的保守党反对派要求追究责任。“看到在我们这里销售的产品被美国 FDA 错误的批准，这是不可理解的”，Charlesbourg-Haute-Saint-Charles 地区 的保守派代表 Pierre Paul-Hus 说道。“我们将追查为什么加拿大公司没有提供口罩的优先权”，他补充道。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/5BC94C47-FCCD-4248-B959-A0CE7705E04C.jpeg)
+特鲁多政府辩称，在下订单时，加拿大仍然生产很少的口罩。加拿大遗产部长巴勃罗·罗德里格斯 (Pablo Rodriguez) 解释到“大流行创造了特殊的环境，我们不得不大量订购，而政府的首要任务仍然是加拿大人的安全”。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片137.png)Humask品牌的口罩制造商Entreprise Prémont现库存有数百万个额外的新型带窗户的口罩
+**数以百万计的多余口罩**
 
-来源：立场新闻
-加拿大首席卫生官谭咏诗在同一天表示，加拿大几乎无一幸免的情况也将在世界各国出现。
+Humask 品牌的口罩制造商 Entreprise Prémont现库存有数百万个额外的新型带窗户的口罩，不得不放慢口罩生产速度并裁员一半。至今为止魁北克省从未为本省的日托育儿园购买过口罩。年底的节日过后，该口罩制造商将准备把这数百万个口罩捐赠给本省的日托育儿园。
 
-随着Omicron的爆发及英国出现首例Omicron感染死亡病例，陷入焦虑的人们都在等待专家的进一步解释，同时期盼政府给出有效的防疫抗疫指导。
+**评：**该篇报道文章反应了魁北克公民已经清醒地认识到他们与中国几乎处于战争状态，对于渥太华的亲共行为越来越不满，向渥太华追究责任的呼声越来越大。
 
-由于日本专家的务实和正直，日本政府得以向公众警示疫苗有导致心肌炎等致命副作用，并要求医务人员在为他人接种疫苗前必须尽到告知风险的义务。
+参考资料：[Journal De Montreal] [https://www.journaldemontreal.com/2021/12/13/des-masques-made-in-china-aux-communes-1](https://www.journaldemontreal.com/2021/12/13/des-masques-made-in-china-aux-communes-1)
 
-而绝大多数发达国家的政府，在强制疫苗方面的暴政越来越极端，被民众寄予厚望并掌握绝对话语权的所谓主流专家，比如Jüni、谭咏诗和牛津大学病毒研究机构等几乎全部和不良政客和媒体同流合污，极力宣传接种疫苗的好处。
+编辑/发布：LILY
 
-显然，每一次疫情爆发，每一种新的中共变种病毒出现，都是这些丧尽天良的疫苗利益相关者狂欢的盛宴！
+20211214
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
 
-参考：
-
-[Omicron傳染炸彈…挪威每日恐30萬人染疫 丹麥危機重重](https://udn.com/news/story/121707/5960358)
-
-[Community transmission of Omicron now present, could ‘rapidly escalate’ soon: Tam](https://www.ctvnews.ca/health/coronavirus/community-transmission-of-omicron-now-present-could-rapidly-escalate-soon-tam-1.5704784)
-
-[‘There is a myth out there that it’s mild,’ head of Ontario’s science table says of Omicron](https://www.cp24.com/news/there-is-a-myth-out-there-that-it-s-mild-head-of-ontario-s-science-table-says-of-omicron-1.5704993)
-
-[卫生机构：英国每天有20万例新增Omicron病例](http://www.ftchinese.com/interactive/56284?full=y)
 
  
 
