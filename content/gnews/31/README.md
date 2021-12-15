@@ -2,28 +2,121 @@
 ---
 
 
-## 中共习近平对文艺工作者提出五点希望
-` 儒为` [轉載自GNews](https://gnews.org/zh-hans/1756952/)
+## 美国中期选举后，十招出手对付中共
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1756979/)
 
-作者：意大利达芬奇农场-儒为
-![](https://assets.gnews.org/wp-content/uploads/2021/12/文艺工作者讲话.jpeg)封面来源：网络图片
-2021年12月14日，中共国文学艺术界联合会第十一次全国代表大会、中共国作家协会第十次全国代表大会在北京人民大会堂开幕。中共中央总书记、国家主席、中央军委主席习近平出席大会并发表重要讲话和文艺工作者提出五点希望。这是中共习近平政府对“中共AV界”和“中共刀笔吏”提出新的工作要求和工作部署，要继续把洗脑愚民教育发扬光大。
+[https://gtv.org/video/id=61b8dcaea68b4f4b28e86cb8](https://gtv.org/video/id=61b8dcaea68b4f4b28e86cb8)
 
-习近平说，文化兴则国家兴，文化强则民族强。当代中国，江山壮丽，人民豪迈，前程远大。时代为我国文艺繁荣发展提供了前所未有的广阔舞台。中共要用“邪教文化”代替“宗教”来奴化和管理人类的思想；中共强调封疆帝制下的江山思想，江山稳固下的人民才能有前途；中共制造种族仇恨和挑拨民族主义情绪为“闭关锁国”做铺垫，这种“北朝鲜模式”就为文化洗脑提供了更广阔舞台。
+我说2022年WTO基本结束
+Digo que la OMC básicamente terminará en 2022
 
-习近平希望，广大文艺工作者心系民族复兴伟业，热忱描绘新时代新征程的恢弘气象。中共把太多美好的词语都用在做最无耻的事情上，吹牛不能说吹牛而说“热忱描绘”、神经不能说神经要说“精神”。中共AV工作者要时刻把“爱党就是爱国、爱国就是爱家”的愚民洗脑思想融入工作当中，要把建造的更加牢固更加封闭的牢房描绘成是新时代新征程的必然现象。
+2022年年底前
+Antes de finales del año 2022
 
-习近平希望，广大文艺工作者坚守人民立场，书写生生不息的人民史诗。“江山就是人民，人民就是江山”是广大AV工作者必须坚守的立场，“生活就是人民，人民就是生活”要被书写成生生不息的人民史诗。虽然只有捂住耳朵的、蒙住眼睛的、闭紧嘴巴的、跪的整齐的老百姓才能被中共定义成“人民”，那把“人民”一词包装的神圣不可侵犯，更不能被清醒者政治化和污名化。
+你们会听到这个消息
+Escucharán esta noticia
 
-习近平希望，广大文艺工作者坚持守正创新，用跟上时代的精品力作开拓文艺新境界。中共AV工作者不仅要坚持把“假恶丑”写成“真善美”，不仅要坚持把“渺小、黑暗、错误”写成“伟大、光明、正确”，还要把明明是“开倒车”怎么写成是“新时代”的这种创新思维？从而开拓出AV新境界，迈向更加无耻、变态的广阔新天地。
+2023年5月份以前
+Antes de mayo de 2023
 
-习近平希望，广大文艺工作者用情用力讲好中国故事，向世界展现可信、可爱、可敬的中国形象。可见，中共同世界打交道全都是靠“讲故事”让世界了解自己，而不是靠自己的“实力”，更不是靠自己的“诚信”。媒体是中共的武器，“蓝金黄”是中共的工具，AV工作者和刀笔吏是中共的演员，加在一起就是中共“假骗偷”全世界的罪状，反过来再用“出口转内销”的手段来欺骗墙内老百姓。
+SWIFT很有可能也可能是下几个月
+Swift probablemente o podría ser en los próximos meses
 
-习近平希望，广大文艺工作者坚持弘扬正道，在追求德艺双馨中成就人生价值。习帝的意思是，没有“正能量”就是编造“正能量”也要理直气壮的写，没有“政治正确”就是编造“政治正确”也要正大光明的歌颂；没有“丑恶事”就是编造“丑恶事”也要扣到那些需要被扣上的人和事上，要敢怒敢批、要大义凛然、要威武不屈，不就是在煽动“红卫兵”运动吗？团结人民群众斗地主、斗反革命、斗各种被炮制出来的所谓敌人。
+2023年5月份以前应该能停, 它跟美国的中期选举有绝对的关系
+Antes de mayo de 2023 posiblemente pueda paralizarse, absolutamente tiene relación con las elecciones de medio mandato de EE. UU
 
-新闻来源：🔗[@文艺工作者，习近平提出五点希望](https://www.chinanews.com.cn/gn/2021/12-15/9630141.shtml)
+我们保守的说, 就美国中期明年年底10月份选举完
+De manera conservadora, decimos que las elecciones se finalizarán en octubre a finales del próximo año
 
-*编辑/校对/发稿：意大利达芬奇农场-儒为*
+一定是上去十招, 这十招绝对会打出来
+Debe haber diez trucos para subir, estos trucos definitivamente saldrán
+
+那时候你会看到班农大师
+En ese momento verás al maestro Bannon
+
+我们这位战友, 还有我们背后的这些国防的力量的战友
+Nuestro compañero luchador, así como detrás de nosotros están los compañeros luchadores de la fuerza de defensa
+
+都会发挥绝对的力量
+Manifestarán la fuerza absoluta
+
+绝对振臂高呼, 没有任何人
+Ninguna persona, absolutamente levantarán los brazos y gritarán fuertemente
+它绝对是十招
+Seguramente son diez trucos
+
+现在这十招都在制定中
+Ahora estos trucos están en proceso de desarrollo
+
+第一个就是把它SWIFT停了
+El primero es paralizar al Swift
+
+然后把这个WTO停了
+También a la OMC
+
+世界卫生组织肯定给它踢出去
+La Organización Mundial de la Salud debe echarlo
+
+这是联合国马上就要宣布, 联合国不能是它一家代表
+Pronto será el anuncio de la ONU, y la ONU no puede ser solo él el representante
+
+或者是不让它代表中国
+O no puede ser representado por China
+
+希望那个时候习太阳还活着
+Espero que en aquel tiempo el sol, Xi sigue vivo
+
+它的太阳还真能发光
+Su sol pueda seguir brillando
+
+说老实话
+Hablando sinceramente
+
+我有50%以上
+Tengo más del 50%
+
+原来是50%以下
+Antes era menos del 50%
+
+我认为习是能撑过2023到2025
+Pensaba que Xi puede resistir de 2023 al 2025
+现在超过50%, 我认为它根本到不了2025
+Ahora supera el 50%, creo que él no podrá llegar al 2025
+
+共产党100%过不了2025
+El Partido Comunista 100% no pasará el 2025
+
+100%, 我没有说过这话
+100%, nunca había dicho esto
+
+这次我有100%信心它过不了2025
+Esta vez tengo el 100% de confianza que no pasará el 2025
+
+这十招所有的决策就包含这个
+Todas las decisiones de estos diez trucos incluyen este
+
+谢谢
+Gracias
+
+* * *
+
+日期：12/14/2021
+原视频标题：美国中期选举后，十招出手对付中共
+Después de las elecciones de medio mandato en los Estados Unidos, habrá diez trucos para lidiar con el PCCh
+原视频日期：12/11/2021
+原视频网址：[** https://gettr.com/post/pje2ska5b2**](https://gettr.com/post/pje2ska5b2)
+任务编号：KC339(3184)
+视频时间段：0:00-01:34
+西听校：洛杉矶盘古农场-霙霙（文霙）
+翻译：洛杉矶盘古农场-小文萱
+翻译终校：洛杉矶盘古农场-霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场- 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
