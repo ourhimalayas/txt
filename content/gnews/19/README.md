@@ -2,83 +2,163 @@
 ---
 
 
-## 【草根访谈】第295期新闻概要
-` WindTalker` [轉載自GNews](https://gnews.org/zh-hans/1756703/)
+## 沃顿学院几乎都是上海帮，单伟健比马明哲高好几个级别
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1756867/)
 
-**——日本东京方舟农场GTV直播组出品**
+[https://gtv.org/video/id=61b88932a68b4f4b28e84e66](https://gtv.org/video/id=61b88932a68b4f4b28e84e66)
 
-策划/撰文：宇宙之泾
+沃顿学院是啥呀
+Qué es la Universidad de Wharton
 
-校对：石桥李次郎
+沃顿学院里面几乎80%过去的学生全是江浙上海帮
+Casi el 80% de los estudiantes egresados de la Universidad de Wharton son todos de Wuyue, Camarilla Shanghai
 
-书法：柒公子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-15-上午1.15.54.png)
-GTV方舟农场直播间【草根访谈】第295期新闻概要：
+在北京长安街的唯一个叫做欧美学生会
+El único de la avenida Chang’an en Beijing se llama Unión de Estudiantes Europeos y Americanos
 
-今天的嘉宾方舟农场日语翻译组组长「健康文拓」做客方舟直播间，与战友们一起分享心得体会，日本官方为什么迟迟不表态抵制北京冬奥会？
+就在贵宾楼旁边, 欧美学生会
+Justo está al lado del edificio VIP, Unión de Estudiantes Europeos y Americanos
 
-时政新闻：伴随国际社会对中国人权纪录的担忧日益扩大，一个在伦敦的非官方法庭12月9日裁决，中国在新疆对维吾尔人进行了“种族灭绝”。
+那是共产党
+Ese es el Partido Comunista
 
-1，关于青蒿素保健品和药品效用的问卷调查。调查结果显示，青蒿素会改善和缓解疫苗副作用及其他基础疾病。爆料革命将继续推进真相。请遵医嘱。
+那是来了都是警车开道, 秘密警车开道, 到哪都是开绿车的
+Cuando llega, todos los carros de la policía secreta despejan el camino, y los carros verdes circulan por todas partes
 
-2，郭文贵先生最新单曲HCoin to The Moon已连续两周蝉联公告牌世界数字歌曲销量排行榜的榜首, 这不仅创造了郭先生所有单曲的个人最好成绩，也创造了非专业歌手在世界最权威音乐排行榜的最好成绩，更是又一次创造了中国人在世界乐坛前所未有的历史奇迹！请战友们继续打榜不要停！
+一来就是直接去中南海了
+Al llegar van directamente a Zhongnanhai
 
-3，据《美联社》（Associated Press）12月14日报道，27名美国空军现役人员由于未能在11月2日之前接种新冠疫苗，违反了国防部的规定，因此被美国空军开除。五角大楼表示，截至12月10日，96.4%的现役人员至少打了一针。然而，如果将国民警卫队和后备役包括在内，这一数字将降至约74%，这个数字大约与美国人的接种率一致。
+住在院里边
+Viven dentro de la torre
 
-4，每日20万人隐形染疫？英国Omicron扩散的「恐慌总动员」，这个微妙的变异病毒在微妙的时间出现，就是要造成民众心理上的极大恐慌，意志力不坚定的人将会溃堤而没有守住底线打了疫苗，悔恨终生的机会都不会有。
+全世界什么摩根这些沼泽地都到那个(地方)
+Que si los Morgan y estos pantanos del mundo van hasta allá (lugar)
 
-5，日媒12月11日披露，日本将加入美国以外交抵制2022北京冬季奥运行动，不派遣高层官员出席。专家认为日本将派出级别相等的官员，或级别更低的奖牌得主出席，回应欧美、国内与中国的期待。读卖新闻12月11日报道，日本政府将在本月底前做出最终决定。报道指出，目前唯一可能出席的代表是参议员桥本圣子，她是2020年东京奥运组委会主席。对于美国等国宣布外交抵制北京冬奥，中国外交部发言人汪文斌12月8日下午批评抵制国家是“作秀、搞政治操弄的舞台”。中国驻大阪总领事馆12月2日公开邀情日本人明年疫情结束后到新疆旅游。真是够讽刺的，邀请日本人去一个种族灭绝搞大屠杀的地方？
+真正的贵宾住在贵宾楼, 走向对面就叫做美欧学院
+Los verdaderos VIP viven en el edificio VIP, y al frente está el Colegio Americano Europeo
 
-6，**伴随国际社会对中国人权纪录的担忧日益扩大，一个在伦敦的非官方法庭12月9日裁决，中国在新疆对维吾尔人进行了“种族灭绝”。**厄尔巴基·欧塔贝（Erbakit Otarbay，音译）是被认为遭关押的一百万哈萨克、维吾尔及其他少数族裔人员中的一人，他在法庭上给出了证言。“维吾尔法庭”网站上他的声明指出，他于2017年7月17日在新疆阿勒泰可可托海（Koktokay）被带走，之后被带至塔城（Tarbagatay）的公安局，后被关押在不同的拘留中心、再教育营。他讲述了自己是如何遭遇强制劳动、思想灌输及暴力殴打的。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/7AC7E93A-368D-4C58-84F4-5CA1AC40220E.jpeg)
-主持人：@WindTalker 宇宙之泾
+欧美学生会
+La Unión de estudiantes Europeos y Americanos
 
-嘉宾战友：@WenTuo 健康文拓
+谁呀? 单伟建是欧美学生会的创始人, 大佬
+¿Quién? Shan Weijian es el fundador, el Boss de la Unión de estudiantes Europeos y Americanos
 
-美东时间晚上11:30 日本东京时间中午1:30 北京时间中午12:30
+人家是沃顿学院正儿八经的学生
+Él es estudiante de la Universidad de Wharton
 
-Every day we spreading the truth about CCPvirus (COVID-19)and CCP vaccines, every day is Shouting for the people of Hong Kong who killed from CCP, and every day is hard working for the Chinese people to destroy the evil Chinese Communist Party! Welcome to our New Federal State of the China. Welcome to our Himalaya Tokyo JHL.
+沃顿学院整个亚洲会, 你去看一看
+Echa un vistazo al club de Wharton de toda Asia
 
-【草根访谈】日本东京方舟农场欢迎你！
+我见得太多了
+He visto demasiado
 
-【草根访谈】【方舟有你】【方舟歌汇】
+我那照片, 我能给你整出来几千张
+Puedo organizar miles de fotos para ti
 
-【方舟品读时光】【有问必答】【果色添香】
+一到北京去, 必到我那儿吃饭
+Una vez llegan a Beijing, seguramente van a comer donde estoy
 
-[#nfsc](https://gettr.com/hashtag/%23nfsc) [#MilesGuo](https://gettr.com/hashtag/%23MilesGuo) [#ccpvirus](https://gettr.com/hashtag/%23ccpvirus) [#CCPvaccines](https://gettr.com/hashtag/%23CCPvaccines) [#ccpliepeoplesdie](https://gettr.com/hashtag/%23ccpliepeoplesdie) [#takedowntheccp](https://gettr.com/hashtag/%23takedowntheccp)
+单伟建神秘到啥人物
+Y qué tan misterioso es este personaje Shan Weijian
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/85A9DBF3-4860-4C4F-8B7B-962289F759D4_1_100_o-1-scaled.jpeg)
+一个电话转过去. 跟王岐山见面, 是吧
+Se transfiere una llamada y se reune con Wang Qishan, ¿verdad?
 
+然后当时
+Y en aquel momento
 
-```
-只有那些疯狂到认为自己可以改变世界的人，才能真正改变这个世界。
-```
+这黄菊见面
+Se reunió con Huang Ju
 
+(胡)锦涛见面
+(Hu) Jintao
 
+那这是必须的, 温家宝
+Esto es necesario, Wen Jiabao
 
+为啥? 这是国家动作
+¿Por qué? Esta es una acción nacional
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/73A43459-2029-4DBE-89E4-993EF95E97A9_1_201_a.jpeg)
+这不是你个人的问题了
+Esto no es tu problema personal
 
+就是蓝金黄的
+Es del plan ADA (BGY)
 
-```
-知人者智自知者明篆刻：柒公子
-```
+单伟建, 你看他在当时深圳招商行
+Shan Weijian, mira a él en China Merchants Bank en Shenzhen
 
+叫深圳商业行, 深商行
+Se llama China Merchants Bank
 
+竞争的时候
+Al momento de competir
 
+必须让出他去
+Debe dejarlo ir
 
+批完以后都几十天给你改了
+Te lo cambié decena de días después de la aprobación
 
+马明哲见了单伟建, 哆哩哆嗦
+Ma Mingzhe estaba temblando cuando vió a Shan Weijian
 
-2021年12月| 一 | 二 | 三 | 四 | 五 | 六 | 日 |
-| --- | --- | --- | --- | --- | --- | --- |
-|   | [1](https://gnews.org/zh-hans/date/2021/12/01/) | [2](https://gnews.org/zh-hans/date/2021/12/02/) | [3](https://gnews.org/zh-hans/date/2021/12/03/) | [4](https://gnews.org/zh-hans/date/2021/12/04/) | [5](https://gnews.org/zh-hans/date/2021/12/05/) |
-| [6](https://gnews.org/zh-hans/date/2021/12/06/) | [7](https://gnews.org/zh-hans/date/2021/12/07/) | [8](https://gnews.org/zh-hans/date/2021/12/08/) | [9](https://gnews.org/zh-hans/date/2021/12/09/) | [10](https://gnews.org/zh-hans/date/2021/12/10/) | [11](https://gnews.org/zh-hans/date/2021/12/11/) | [12](https://gnews.org/zh-hans/date/2021/12/12/) |
-| [13](https://gnews.org/zh-hans/date/2021/12/13/) | [14](https://gnews.org/zh-hans/date/2021/12/14/) | [15](https://gnews.org/zh-hans/date/2021/12/15/) | 16 | 17 | 18 | 19 |
-| 20 | 21 | 22 | 23 | 24 | 25 | 26 |
-| 27 | 28 | 29 | 30 | 31 |   |
+马明哲跟这个布什的弟弟见面之前
+Ma Mingzhe antes de verse con el hermano de Bush
 
-[« 11月](https://gnews.org/zh-hans/date/2021/11/)  
- 
+他弟弟就是跟他一起, 单伟建陪着他跟马明哲见面
+Su hermano estaba con él, Shan Weijian lo acompañó para verse con Ma Mingzhe
+
+马明哲见他毕恭毕敬的
+Ma Mingzhe lo vió respetuosamente
+
+小布什的弟弟, 当时是这个加利福尼亚州的州长（应该佛罗里达的州长，口误）
+El hermano de Bush Junior, en aquel momento era el gobernador del estado de Florida
+
+也就是今天你们看到那个罗比奥
+Y es lo que hoy ustedes ven al Marco Rubio
+
+当时还是他的办公室主任呢
+Él era el jefe de su oficina en ese momento
+
+问我Miles, 为什么马明哲见了这单伟建毕恭毕敬
+Me preguntó, Miles, ¿por qué Ma Mingzhe al ver a Shan Weijian es tan respetuoso?
+
+我说这是马明哲在排位地位上跟他差了好几个class
+Le dije que esto se debe a que Ma Mingzhe está detrás de él en términos de clasificación
+
+他说原来是这样, 外国人不懂啊
+Y respondió, con razón, los extranjeros no entienden
+
+他说单伟建可了不得呀
+Dijo que Shan Weijian es increíble
+
+我们都是很看重他的
+Nosotros lo apreciamos mucho
+
+单伟建是100%的
+Shan Weijian es 100%
+
+* * *
+
+日期：12/13/2021
+原视频标题：沃顿学院几乎都是上海帮，单伟健比马明哲高好几个级别
+Casi toda la universidad de Wharton es de la camarilla de Shanghai, y Shan Weijian tiene varios niveles más altos que Ma Mingzhe
+原视频日期：12/10/2021
+原视频网址：[**https://gettr.com/post/pjavo685c6**](https://gettr.com/post/pjavo685c6)
+任务编号：3172
+视频时间段：0:00-2:15
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,33 +2,116 @@
 ---
 
 
-## 日本前首相警告中共对台湾的军事袭击将是自杀
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1756826/)
+## 文贵先生关于HPAY的商业化描述
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1756897/)
 
-喜妈
+[https://gtv.org/video/id=61b8dbe0a68b4f4b28e86c88](https://gtv.org/video/id=61b8dbe0a68b4f4b28e86c88)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture2-4.jpg)
+**郭文贵：
+Miles Guo:**
 
-截图来自网络
+我再告诉大家，Hpay这是第一阶段是点到点，还不是全商业化
+Let me tell you again, the first stage of Hpay is point-to-point, and not fully commercialized
 
-澳洲主流媒体最新报道，日本前首相作为“日本议会中极具影响力的人物”和执政的自民党中“最大派系的领袖”表示：中共国对台湾的威胁是对东京的“严峻挑战”。文章指出，安倍认为“台湾及其民主受到威胁”会形成对所有人的“一个严峻的挑战”，“尤其是对日本来说”。安倍同时指出像中共国“这样一个庞大的经济体进行军事冒险，至少可以说是自杀”。
+只在G|Fashion、GClub商业化
+Commercialized only in G|Fashion and GClub
 
-报道引用前日本首相安倍的话认为，“日本需要与美国、台湾和其他伙伴更密切地协调，以阻止中共国领导人习近平采取军事行动”。安倍指出，“软弱会招来挑衅”；“我们必须要求他们（中共国）不要追求领土扩张，不要挑衅”。文章还引用其观点，中共国“通常是欺负他们的邻居，因为这会损害他们自己的利益”。因此，安倍认为：“我们必须有更多的合作伙伴来合作，让我们的声音更有力量被听到”。
+接下来，第二步全球商业化
+Next, the second step is global commercialization
 
-报道引用安倍的观点指出并强调，“台湾海峡两岸和平与稳定的重要性”。同时，安倍还表示，北京“对香港公民生活和政治反对派的镇压表明台湾面临的风险”。他同意美国所发出的民主呼声，认为“我们必须捍卫它；为之奋斗、加强并更新它”。
+就像大牛、巴黎、天机，他们在做的事情，还有政清
+Just like Daniu, Paris, Tianji, and Zhengqing what they are doing
 
-综上所述，笔者认为，这是一篇非常有力度的对台海局势的报道。尤其，本报道以安倍这样一个资深政界人士角度发声，引起我们的深思。这里可以非常清楚地说明，作为同在亚洲的日本国，已经对中共国的所作所为极为警惕和不满。安倍虽然已经在野，可是从他在日本政界的影响力来看，不可忽视，他的发言是日本政界的一个反映。
+就是大家都能完全商业化扫码使用的时候，和到第三步
+That’s when everyone can use it completely commercial scan code, and go to the third step
 
-更加具体地说，安倍的发言是日本当任政治团体和日本主流政界人士的侧面反馈与迂回战略，目的就是以安倍的高调反对立场，凸显对中共的敲打与反击。中共在亚太地区不得人心是可见一斑。同时，日本和台湾长期以来有着密切的联系，日本关注中共国对台形势也是非常自然。此外，安倍将台湾问题和香港问题联系在一起，也可以看得出来，日本及中共国的周边国家都形成对中共不讲信用和国际规范的反感与警觉。
+是各种什么Gmall、亚马逊都能接受，还有MasterCard卡，信用卡一样都接受的时候
+It’s for all kinds of business, like Gmall, Amazon can accept it and MasterCard, credit cards are all accepted it
 
-在这个报道中，安倍的用词非常强硬而且明确，是少有的政界人物讲话和表态方式；这个需要我们引起注意和跟进，说明日本正在对中共国的各种可能动态极为关注。与此同时，从安倍对美国及其西方盟国的相互支持态度，可以看出，中共的人心向背和末路前景。这是我们作为爆料革命一员希望看到并希望更加明确的方面。真相拯救世界，正义最终胜出。中共的邪恶必将终结，这就是世界共识。
+那个时候它真正的喜币才开始走向了正轨路，刚刚迈到第一步
+At that time HCoin will start to go on the right track, and it will just take its first step
 
-参考消息来源：
-[Chinese invasion of Taiwan would be ‘suicidal’, Shinzo Abe warns](https://www.theaustralian.com.au/world/chinese-invasion-of-taiwan-would-be-suicidal-shinzo-abe-warns/news-story/b68ad5856e16ab8c669cbb33284e7e83)
+然后是机构大量的进，国家主权认可，然后数字银行就是不是咱现在收购的银行
+then the massive of institutional investors come in and the recognition by sovereign country, and then the circulation in digital bank which they’re not the banks we acquiring now
 
-发稿：Hong
+还包含了国家认可的，没有任何其他国家可以约束的，国家中央银行这样的牌照获得的时候
+It also includes what is recognized by the country, and no other country can restrict it, and when obtaining a license such as the National Central Bank
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-1.jpg)
+那时候喜币才厉害，所以问这个结构投资者进不进来的人，只知其一不知其二
+At that time Hcoin will be very good, so asking if the structural investors get in or not, that’s you only know a little
+
+我再告诉你，就是你把钱币卖了，HDO都换到你手里了
+I’ll tell you again, you sold the Hcoins and changed to HDO in your hands
+
+你贴现是需要时间的，HDO哪来的?
+It takes time for you to cash it, where did HDO come from?
+
+就现在我们说共产党，共产党是啥?
+Now we are talking about the Communist Party, what is the Communist Party?
+
+海外的币，叫美元，国内的人民币叫本币，共产党能把人民币到国外花吗?
+Overseas currencies are called U.S. dollars, and domestic renminbi is called domestic currency, can the Communist Party spend renminbi abroad?
+
+花不了，它干了100年了
+It can’t be spent, it’s been doing for 100 years
+
+现在HDO你还不能到外面全面说
+and now you can’t go outside and fully talk about HDO
+
+你拿着我就贴现去，瞬间都贴现
+It takes that for cash, and it will be cashed instantly
+
+咱们在德国的战友卖了房子都不让你贴现，还让你付给银行利息
+Our comrades-in-arms in Germany sold the house and didn’t let him cash them, and even asked him to pay the bank interests
+
+1000欧元好像是这样，为什么？全世界有一个规则
+1,000 euros seems to be the case, why? there is a rule in the world
+
+现在所有四十几美金的价值
+now it’s all the value of more than 40 dollars
+
+咱战友卖完将近260亿美金，你账上没有260亿美金的HDO
+Our comrades-in-arms sold out nearly 26 billion U.S. dollars, you don’t have the 26 billion U.S. dollar’s HDO on your account
+
+这是为什么大家要懂得一个道理，你也得让HDO的能贴现的能力和你的数字货币的价值形成平等的时候
+This is why everyone should understand a truth, you also have to let HDO have the ability to be cashed and equalize the value of your digital currency
+
+也就是支付系统行了，银行行了
+that means the payment system is completed, and the bank is done
+
+大机构投资者进来了，更多人的投资者进来了，KYC过了
+Large institutional investors have come in, more investors have come in, they passed KYC
+
+你就达到超过260亿美元的时候，你随时可以贴现，这里边有一个支付系统，贴现系统，银行系统
+It’s time reach more than 26 billion US dollars, you can cash it at any time, there is a payment system, a cash system, and a banking system.
+
+你在这种情况下，你要贴现你完全是来，你就是来投资的
+In this case, if you want to cash it, you are here for the investment
+
+不像QMay，她当初还不知道有货币，穷其所囊，就差衣服没卖了
+Unlike QMay, she didn’t know that there was Hcoin at the beginning, so she invested all in
+
+领一儿子把所有的钱全给了爆料革命，因为她相信能灭共，她相信能成
+She invested all the money to the whistleblower movement, because she believed that communism could be wiped out, and she believed that it could be achieved
+
+* * *
+
+Date:12/12/2021
+原视频标题: 文贵先生关于HPAY的商业化描述
+Miles talks about Hpay commercialize description
+原视频链接[**https://gettr.com/post/pjgzbt83c6**](https://gettr.com/post/pjgzbt83c6)
+任务编号：KC337（3205）
+视频时间段 : 0:00-2:19
+中听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

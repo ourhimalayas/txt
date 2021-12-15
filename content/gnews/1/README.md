@@ -2,121 +2,54 @@
 ---
 
 
-## 美国中期选举后，十招出手对付中共
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1756979/)
+## 互联网告急：数以百万计的设备面临新软件漏洞的风险
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1757041/)
 
-[https://gtv.org/video/id=61b8dcaea68b4f4b28e86cb8](https://gtv.org/video/id=61b8dcaea68b4f4b28e86cb8)
+翻译： Jenny Ball
 
-我说2022年WTO基本结束
-Digo que la OMC básicamente terminará en 2022
+![](https://assets.gnews.org/wp-content/uploads/2021/12/computer-hacker-1200x800-1200x800-700x420-1.jpg)2013 年 3 月 16 日，一名工程专业的学生在巴黎附近参加黑客挑战。（法新社来自 Getty Images/Thomas Samson）
 
-2022年年底前
-Antes de finales del año 2022
+一个常见的开源软件中新发现的缺陷，促使研究人员和公司更新他们的系统，以防止黑客和勒索软件攻击。
 
-你们会听到这个消息
-Escucharán esta noticia
+一些专家表示，该漏洞被称为 CVE-2021-44228，于 12 月 9 日披露，允许远程访问服务器和代码执行。同时，Log4j 被大量使用在企业系统中，由于其容易被利用引发了人们的担忧。
 
-2023年5月份以前
-Antes de mayo de 2023
+由于这个被称为“Log4Shell”的漏洞很普遍，并且，很可能存在于高访问量的网站和应用程序中，用户也可能会看到他们最喜欢的网站和应用程序受到影响。
 
-SWIFT很有可能也可能是下几个月
-Swift probablemente o podría ser en los próximos meses
+网络安全公司曼迪安特（Mandiant ）和群众罢工（ Crowdstrike ）表示，黑客组织正试图破坏系统，Mandiant 向路透社描述，他们是“中共政府行为者”，指的是执政的中国共产党。
 
-2023年5月份以前应该能停, 它跟美国的中期选举有绝对的关系
-Antes de mayo de 2023 posiblemente pueda paralizarse, absolutamente tiene relación con las elecciones de medio mandato de EE. UU
+“鉴于几十年来 Log4j 一直是企业 Java 开发中无处不在的日志记录解决方案，Log4j 有可能成为一个漏洞，并将在未来几年内持续存在于工业控制系统 (ICS) 环境中，”根据网络安全研究人员德拉戈斯的博客文章。
 
-我们保守的说, 就美国中期明年年底10月份选举完
-De manera conservadora, decimos que las elecciones se finalizarán en octubre a finales del próximo año
+网络犯罪分子可以通过发送将由 Log4j 版本记录的恶意代码字符串来利用该漏洞，从而允许攻击者将任意 Java 代码加载到服务器。该漏洞可能允许他们控制服务器。
 
-一定是上去十招, 这十招绝对会打出来
-Debe haber diez trucos para subir, estos trucos definitivamente saldrán
+据报道，联邦网络安全官员最近几天也对该漏洞表示震惊。
 
-那时候你会看到班农大师
-En ese momento verás al maestro Bannon
+美国网络安全和基础设施安全局 (CISA) 负责人珍·伊斯特利（Jen Easterly）在电话中说：“**这个漏洞是我在整个职业生涯中见过的最严重的漏洞之一**，如果不是最严重的话。”《大纪元时报》已联系 CISA 征求意见。
 
-我们这位战友, 还有我们背后的这些国防的力量的战友
-Nuestro compañero luchador, así como detrás de nosotros están los compañeros luchadores de la fuerza de defensa
+伊斯特利警告说，CISA 可以“预计该漏洞会被老练的参与者广泛利用，我们有时间采取必要措施来减少破坏性事件的可能性。”
 
-都会发挥绝对的力量
-Manifestarán la fuerza absoluta
+众所周知，采矿中的金丝雀是：当研究人员注意到Minecraft的服务器可能会通过该漏洞受到损害，微软上周发布了有关玩家如何更新游戏 Java 版本的说明。
 
-绝对振臂高呼, 没有任何人
-Ninguna persona, absolutamente levantarán los brazos y gritarán fuertemente
-它绝对是十招
-Seguramente son diez trucos
+微软表示：“这个漏洞会影响许多服务——包括 Minecraft Java 版。” “此漏洞可能会导致您的计算机遭到入侵。”
 
-现在这十招都在制定中
-Ahora estos trucos están en proceso de desarrollo
+在另一个严厉的警告中，“云耀斑”（Cloudflare ）首席执行官马修·普林斯（Matthew Prince）周五写道，他的公司“已经确定 Log4J 非常糟糕，我们将尝试在默认情况下，为所有 Cloudflare 客户推出至少一些保护，即使是那些没有拥有我们的 [企业套件]的客户。现在正在研究如何安全地做到这一点。”
 
-第一个就是把它SWIFT停了
-El primero es paralizar al Swift
+“这是一个灾难性的设计失败，”开源数据安全平台“月神” （LunaSec）的首席执行官弗瑞·沃特利( Free Wortley)上周在其网站上写道。
 
-然后把这个WTO停了
-También a la OMC
+沃特利详细说明了可以通过该漏洞攻击哪些服务，**他说“****Steam****、****Apple iCloud ****等云服务和**** Minecraft ****等应用程序”已被发现存在漏洞**。 “任何使用 “阿帕奇支柱”(Apache Struts) 的人都可能受到攻击。我们之前在 2017 年 Equifax 数据泄露等漏洞中看到过类似的漏洞被利用，”他指的是泄露了数百万人信用数据的黑客攻击。
 
-世界卫生组织肯定给它踢出去
-La Organización Mundial de la Salud debe echarlo
+上周，CISA 和澳大利亚的网络安全机构就该漏洞发出了警报。Apache 软件基金会将该漏洞评为“严重”，并于周五公布了处理方法。
 
-这是联合国马上就要宣布, 联合国不能是它一家代表
-Pronto será el anuncio de la ONU, y la ONU no puede ser solo él el representante
+“互联网现在告急，”“ 群众罢工”Crowdstrike 的高级副总裁亚当·迈耶斯警告说。 “人们争先恐后地修补，”他告诉美联社，“而各种各样的人争先恐后地利用它。”
 
-或者是不让它代表中国
-O no puede ser representado por China
-
-希望那个时候习太阳还活着
-Espero que en aquel tiempo el sol, Xi sigue vivo
-
-它的太阳还真能发光
-Su sol pueda seguir brillando
-
-说老实话
-Hablando sinceramente
-
-我有50%以上
-Tengo más del 50%
-
-原来是50%以下
-Antes era menos del 50%
-
-我认为习是能撑过2023到2025
-Pensaba que Xi puede resistir de 2023 al 2025
-现在超过50%, 我认为它根本到不了2025
-Ahora supera el 50%, creo que él no podrá llegar al 2025
-
-共产党100%过不了2025
-El Partido Comunista 100% no pasará el 2025
-
-100%, 我没有说过这话
-100%, nunca había dicho esto
-
-这次我有100%信心它过不了2025
-Esta vez tengo el 100% de confianza que no pasará el 2025
-
-这十招所有的决策就包含这个
-Todas las decisiones de estos diez trucos incluyen este
-
-谢谢
-Gracias
+**新闻来源**：[theepochtimes][‘Internet’s on Fire Right Now’: Millions of Devices at Risk Over New Software Vulnerability](https://www.theepochtimes.com/mkt_breakingnews/internets-on-fire-right-now-millions-of-devices-at-risk-over-new-software-vulnerability_4156484.html?utm_source=News&amp;utm_medium=email&amp;utm_campaign=breaking-2021-12-14-3&amp;mktids=2b85674cc6ec84bf2cd50253c0db85da&amp;est=hl91PScVPDgQMZKlqQoAOcDvHGwxKxIKZrLLvS68EMwDC6bgRAJ5%2BXeW%2FLgGteMc)
 
 * * *
 
-日期：12/14/2021
-原视频标题：美国中期选举后，十招出手对付中共
-Después de las elecciones de medio mandato en los Estados Unidos, habrá diez trucos para lidiar con el PCCh
-原视频日期：12/11/2021
-原视频网址：[** https://gettr.com/post/pje2ska5b2**](https://gettr.com/post/pje2ska5b2)
-任务编号：KC339(3184)
-视频时间段：0:00-01:34
-西听校：洛杉矶盘古农场-霙霙（文霙）
-翻译：洛杉矶盘古农场-小文萱
-翻译终校：洛杉矶盘古农场-霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场- 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+*审核：文乐*
+*校对: 阿伯塔*
+*发布：信心的选择*
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-2.jpeg)
 
  
 

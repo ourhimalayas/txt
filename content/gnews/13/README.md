@@ -2,63 +2,135 @@
 ---
 
 
-## 大直播后记——中美文明的差距
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1756852/)
+## 干掉共产党以后中国必须三个独立
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1756921/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/d83d8377-b794-4ef2-9f67-76f3789a567b-AP_Virus_Outbreak_Trump.jpg)图片来源：The Desert Sun
+[https://gtv.org/video/id=61b8dc47a68b4f4b28e86ca3](https://gtv.org/video/id=61b8dc47a68b4f4b28e86ca3)
 
+这你要看到孙中山、李大钊、张国涛、共产党、袁世凯、蔡锷
+Tienes que ver a Sun Zhongshan, Li Dazhao, Zhang Guotao, el PCCh, Yuen Shikai, Cai E
 
-**整理：**北极熊
-**编辑：**翼族
+从1912年到1949年这个中间的变化
+Los cambios que tuvieron desde el año 1912 hasta 1949
 
-川普总统在任期间，彼得·纳瓦罗担任白宫贸易和制造业政策办公室主任（Director of the Office of Trade and Manufacturing Policy)。在他的新书《川普时代》里　，纳瓦罗向读者提供了川普白宫的内幕，包括美国对华政策、COVID-19大流行、2020年总统大选等，书中记录了中共对美国经济侵略的“七宗罪”，包括网络黑客窃取商业机密、知识产权盗窃、强迫技术转让、以低于成本价格将产品倾销到美国市场、使用大量补贴的国有企业采用掠夺性定价、操纵货币，以及造成美国社区芬太尼等鸦片类药物泛滥。
+我们要干掉了大清朝就共产党
+Debemos destruir el Imperio del Gran Qing, sólo el PCCh
 
-彼得·纳瓦罗也毫不掩饰对川普的赞美，但是，川普并没有对这本书做任何的介绍和推广，这使彼得·纳瓦罗很不悦，他和川普通了一个电话，引起文贵先生很多感慨。
+绝不允许再出现天真的孙中山
+No se permitirá que aparezca otro inocente Sun Zhongshan
 
-纳瓦罗给川普打电话问：“你为什么不推广《川普时代》这本书？”
+也不允许说炮制什么这样那样的, 蒋介石、国民党、辛亥革命等
+Tampoco se permite formular de ninguna manera, Jiang Jieshi, Kuomintang y la Revolución de Xinghai
 
-川普：“我不能推广，因为你书里记录了我女儿女婿跟共产党的事情，所以我不能推广。”
+这一切我跟你说根本不, 不允许
+Todo esto, yo te digo que no se permite
 
-这个故事就这么简单，就是彼得·纳瓦罗和川普电话交流的两句话，我们要从这件事情想象一下，如果这件事情发生在中国，会是什么结果？文贵先生从七个角度分析了这件事情如果发生在中国，会是什么结果。
+我们会秒杀一切上来想夺取政权
+Nosotros mataremos en un segundo todo el que quiera tomar el régimen
 
-第一，彼得·纳瓦罗在中共政府相当于常委三号，如果他在中国写了习近平的女儿女婿腐败的事情，敢不敢问习近平：“你为啥不帮我推广这本书？” 他敢吗？
-答案是：不敢！（找死啊？！）
+然后就诞生了共产党, 来个苏维埃
+Entonces nació el Partido Comunista, vino un República Soviética de China
 
-第二，这本书能出版吗？
-答案是：不可能！
+你很有可能美国各国各政党派去一个什么新的什么党
+Es muy probable que envíe un nuevo partido de varios partidos políticos en los Estados Unidos
 
-第三，如果是中国的彼得·纳瓦罗，他有机会、有可能把这些写到书上吗？
-答案是：根本不可能写出来，如果写这些命就没了！
+背后是他们的力量控制中国人民
+Detrás está su poder para controlar al pueblo chino
 
-第四，就算是写出来了，也出版了，他敢去找习近平问你怎么不推广这本书吗？
-答案是：不可能！（吓死你！）
+我们未来一定会让全世界你没有任何选择
+Definitivamente en el futuro no te dejaremos ninguna opción en el mundo
 
-第五，这本书成为美国最畅销书，川普竟然没否认！如果在中国作者会是什么待遇？
-答案是：要么被杀，要么被抓，书的内容还得被否定：“全都是胡扯，都是造谣，都是污蔑……”
+中国人一人一票
+Un voto por cada chino
+选出我们的政权
+Para escoger nuestro régimen
 
-第六，如果彼得·纳瓦罗在中国写这本书会被定为什么罪行？
-答案是：叛国罪！因为这本书全世界销售。
+共产党没了之后的中国
+El después de China será sin el PCCh
 
-第七，在美国，彼得·纳瓦罗本人因为此书获得巨大成功，获得了经济受益，而且他在书中是批判拜登政府的，拜登政府竟然邀请他参加美国政府重要工作，如果是在中国可能发生吗？
-答案是：根本不可能！
+一定不会成为军阀割据
+No se convertirá en un régimen separatista de los caudillos
 
-我们这些看中文方块字的读者，说汉语、听汉语的观众要扪心自问，如果我们是国家元首，我们能不能让这样一本有描述自己女儿女婿的不光彩事情的书发表？文贵先生感慨到：
+台湾、香港、新疆、西藏、包括广东
+Taiwán, Hongkong, Xinjiang, Tíbet, incluyendo Guangdong
 
-就算我们能忍受，让这本书出版了，也不可能忍受你居然敢问为什么不帮你推广；
+我们一定要叫
+Nosotros debemos
 
-就算是你写了而且也出版了也质问为什么不帮助推广了，我们的回答肯定不是川普那样简单，我们一定是大骂八辈祖宗，这已经是我们的最高修养了。
+大家知道一个新中国联邦制
+Hacer saber a todos un sistema del Nuevo Estado Federal de China
 
-还有更可怕更邪恶的，就算国家不找你麻烦，我也不找你麻烦，你出版了，你来问我我也不骂你，有一堆马屁精、一帮奴才也会帮助川普把彼得·纳瓦罗灭掉！
+这是一定的
+Esto es seguro
 
-震惊美国文明的同时，我们可以看到我们的文化中的暴劣、粗鲁、残忍、无知和愚昧！我们不除去这些糟粕，不除去共产党在一百年的时间给我们脑子里放的毒，我们民主文明的进程会很艰难!
+这个过程一定会发生的
+Este proceso seguro sucederá
 
-*发布：翼族*
+就是中间这个过程又会再来
+Sólo que durante este proceso volverá a pasar
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+但我们就是杜绝再有一个所谓的苏维埃共产党
+Pero nosotros le pondremos el fin para que no haya otro supuesto Partido Comunista Soviético
+
+骗取中国人民的政权
+Defraudando el poder del pueblo chino
+
+忽悠中国人民说给你们美国式的民主生活
+Vacilar al pueblo chino diciendo que te dará una vida democrática al estilo estadounidense
+
+所以说当等到下一步共产党被灭以后
+Por eso, el próximo paso luego de extinguir el PCCh
+
+我们要中国人必须三个独立
+Nosotros haremos que los chinos tengan 3 cosas independientes
+
+人格、宗教、信仰、法律
+Personalidad, religión, creencia y ley
+
+这一块儿要独立
+Todo esto hay que independizarlo
+
+这咱算一条
+Esto lo contamos como el primero
+
+第二条就中国人的思维
+El segundo, la forma de pensar de los chinos
+
+和说话的言语自由, 它必须独立
+Y la libertad de expresión, debe ser independiente
+
+第三个咱们中国人要记住
+El tercero, nosotros los chinos debemos recordar
+
+要跟国际上所有的关系
+Internacionalmente todas las relaciones
+
+中国人国家必须是独立
+El país de los chinos debe ser independiente
+
+不能受任何黑暗势力摆布包括这个华尔街什么好莱坞
+No puede ser manipulado por ninguna fuerza oscura, incluyendo el Wall Street o Hollywood
+
+* * *
+
+日期：12/13/2021
+原视频标题：干掉共产党以后中国必须三个独立
+Después de destruir el Partido Comunista, China debe tener tres cosas independientes
+
+原视频日期：12/11/2021
+原视频网址：[** https://gettr.com/post/pjed5p3e4c**](https://gettr.com/post/pjed5p3e4c)
+任务编号：KC338(3183)
+视频时间段：0:00-02:01
+西听校：洛杉矶盘古农场-小文萱
+翻译：洛杉矶盘古农场-霙霙（文霙）
+翻译终校：洛杉矶盘古农场-小文萱
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布 ：洛杉矶盘古农场-恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

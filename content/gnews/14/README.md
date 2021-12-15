@@ -2,95 +2,33 @@
 ---
 
 
-## 俄罗斯将与欧盟联合举办欧洲人权峰会，打脸了中共
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1756851/)
+## 阿联酋有意暂停购买美国230亿美元的F-35战机和死神无人机
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1756899/)
 
-[https://gtv.org/video/id=61b8849fa68b4f4b28e84ce1](https://gtv.org/video/id=61b8849fa68b4f4b28e84ce1)
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/F35-middle-east-UAE.jpg)图片来源：The Drive
+**翻译：**不要代表我
+**编辑：**翼族
 
-**郭文贵
-Miles Guo**
+在川普政府执政的最后阶段，阿联酋与美国达成的价值230亿美元的军购协议将为洛克希德·马丁公司（Lockheed Martin，制造F-35）和通用原子公司（General Atomics，制造MQ-9无人机）带来巨大的收益新来源。
 
-你知道这次人权会议完全是作秀的，胡扯的
-You know that this human rights summit is a show, it’s nonsense
+但根据《华尔街日报》报道，阿联酋现在有了新的想法，该国有意暂停向美国购买价值230亿美元的F-35战机和MQ-9B（死神）无人机。该国一位政府官员在宣布暂停（此项军火协议）时说，“基于技术要求、国家主权管理限制以及成本/效益分析，导致该项协议需要重新评估”。
 
-你知道俄罗斯要干啥事吗？俄罗斯要跟欧盟联合起来要搞一搞
-Do you know what Russia is going to do? Russia wants to unite with the EU
+造成协议暂停的原因可能是美国要求采取深入广泛的保障措施，以防止中共人民解放军的情报人员接触研究F-35战斗机。美国对中共可能利用阿联酋作为收集F-35情报渠道的担忧已不是新闻。近年来，阿联酋加强了与中共的关系，欣然无视后者对维吾尔族穆斯林的种族灭绝行为。
 
-所谓的欧洲的人权高峰会，俄罗斯永远认为就斗这三个事儿
-The so-called European Human Rights Summit, Russia always believes that they’re going to fight these three things
+在与中共可能发生的任何战争中，美国空军、海军和海军陆战队都将使用F-35战斗机作为其空中战斗力的核心。反过来，美国不能冒险让F-35的技术落入中共手中。如果没有足够的保障措施，中共情报人员将可能会利用他们随时进入阿联酋的特权，查验F-35的目标探测，并窃取其技术。
 
-世界谁是老大，现在当然美国是老大，它不是
-Who is the boss in the world, now of course the United States is the boss, Russia is not
+这将对美国空勤人员在战争中的生存能力，以及美国军队的作战和获胜能力构成不可容忍的威胁。因此对于美国来说，如果阿联酋不能提供足够的承诺，那么美国应该取消这笔交易，无论其采取何种暂停行动，因为这里涉及的利害关系，远不止是利润丰厚的贸易问题。
 
-第二个就是欧洲必须是我俄罗斯的，你英国也好，你法国也好，德国也好
-The second is that Europe must belong to Russia, whether you are UK, France, or Germany
+**原文链接：**[The UAE puts China first and gives Macron his AUKUS revenge](https://www.washingtonexaminer.com/opinion/the-uae-puts-china-first-and-gives-macron-his-aukus-revenge)
 
-你必须得靠我，就是谁的欧洲，不管是谁的欧洲，我俄罗斯当老大
-You have to rely on me, that means whose Europe, no matter whose Europe that Russia want to be the boss
+*发布：翼族*
 
-第三，俄罗斯一直在亚洲和欧洲之间寻求利益平衡
-Third, Russia has been seeking a balance of interests between Asia and Europe
-
-现在所谓的俄罗斯不可能入欧，入不入欧，欧洲我都要说了算
-The so-called Russia can’t join in Europe Union, it doesn’t matter, in Europe Russia have the final word
-
-我供你的气，我供你的能源，我的导弹，我的一切
-Russia provide the gas, the energy, Russia missiles and everything
-
-我的整个的军事力量，北约扯淡的事，跟它边儿都沾不着
-Russia entire military power, NATO is nonsense, NATO is no match for Russia in military terms
-
-现在俄罗斯说我要跟你搞人权了，俄罗斯这哥们儿真正的要脱掉战装换上西装了
-Now Russia says that I’m going to engage in human rights with you, Russian really wants to take off his battle suit and put on the business suit
-
-玩点绅士的了，这对中共是绝对打脸的，
-It want to be a gentleman, this is definitely a slap on the CCP’s face
-
-习是很明确地有人权的国家就不可能有好的政府，人权不适合中国
-Xi made it clear that the country with human rights cannot have a good government, and human rights are not suitable for China
-
-这就是全世界都在说的一句话，这非洲没有文字的国家都有选举
-This is what the whole world is saying, even there are elections in African countries where there is no written language
-
-中国人不可能有选举，而中国人深信不疑不能有选举
-The Chinese people cannot have elections, and the Chinese people are truly believe that it’s fine for them
-
-就像你看到那个假的习近平的女儿，在那个炫钻石，还批评党内不能腐败，还不能奢侈
-Just like when you saw that fake Xi Jinping’s daughter, she’s showing dazzling diamond, also criticized corruption or extravagant in the Party
-
-劳斯莱斯，私人飞机，这是多变态的这种想法，她是很重要的
-Rolls-Royce, private jets, this is such perverted thoughts, she is very important
-
-这个女的甚至比习近平女儿都重要，你们持续关注那个推特账号，会很有意思的
-This woman is even more important than Xi Jinping’s daughter, it will be very interesting if you keep following that Twitter account
-
-这就是变态，那么现在俄罗斯跟中共之间的这种变态出来恶果了
-This is pervert, so now this perverted relationship between Russia and the Chinese Communist Party has produced bad results
-
-这对我们爆料革命绝对有利的，据悉，美国人也知道这个情况
-This is absolutely beneficial to our whistleblower movement, it is reported that the Americans also know this situation
-
-为什么，(俄罗斯)提前告诉美国我们会向中共明确表态
-Why, Russia told the United States in advance that we will make a clear statement to the CCP
-
-* * *
-
-Date:12/13/2021
-原视频标题: 俄罗斯将与欧盟联合举办欧洲人权峰会，打脸了中共
-Russia will co-host the European Human Rights Summit with the European Union, slapping the CCP’s face
-原视频日期：2021/12/12
-原视频链接[**https://gettr.com/post/pjj5gr8e7c**](https://gettr.com/post/pjj5gr8e7c)
-任务编号：3222
-视频时间段 : 0:00-2:11
-中听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

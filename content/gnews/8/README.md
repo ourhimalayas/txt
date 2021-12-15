@@ -2,117 +2,71 @@
 ---
 
 
-## 文贵先生关于HPAY的商业化描述
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1756897/)
+## 马龙博士预测辉瑞隐瞒不利影响将面临重大国际丑闻
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1756956/)
 
-[https://gtv.org/video/id=61b8dbe0a68b4f4b28e86c88](https://gtv.org/video/id=61b8dbe0a68b4f4b28e86c88)
+翻译： Jenny Ball
 
-**郭文贵：
-Miles Guo:**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-776.png)图片来源 : lifesitenews.com
 
-我再告诉大家，Hpay这是第一阶段是点到点，还不是全商业化
-Let me tell you again, the first stage of Hpay is point-to-point, and not fully commercialized
+“我们不知道 FDA 和辉瑞还向公众隐瞒了什么，但我们知道，他们已经不遗余力地向美国公众隐瞒这些信息。”
 
-只在G|Fashion、GClub商业化
-Commercialized only in G|Fashion and GClub
+生活新闻（LifeSiteNews）——mRNA 疫苗技术的原始发明者，罗伯特·马龙（Robert Malone）博士，在读了一篇询问辉瑞是否已将其冠状病毒疫苗的安全风险正式告知新西兰政府的文章后，在生活新闻发表评论，指出他想知道这家公司是否将面临“重大国际丑闻”，**如果辉瑞公司在获得疫苗伤害责任保护的同时，对政府隐瞒副作用，这一丑闻就会发生。**
 
-接下来，第二步全球商业化
-Next, the second step is global commercialization
+马龙博士在 Twitter 上宣传了营养师盖伊·哈查德 (Guy Hatchard) 在最近成立的新西兰新闻和意见网站上发表的一篇文章后，发表了这些评论。哈查德报道称，美国法院已命令 FDA/辉瑞公司公布一份机密文件，该文件显示，截至今年 2 月，他们已经意识到该疫苗可能存在的大量副作用，其中许多是非常危险的。在世界多个国家/地区接种疫苗后，除了 158,893 起严重不良事件外，还报告了 1,200 多人死亡。
 
-就像大牛、巴黎、天机，他们在做的事情，还有政清
-Just like Daniu, Paris, Tianji, and Zhengqing what they are doing
+根据生活新闻对此文件的报道，“在报告的不良事件中，约有 ：
 
-就是大家都能完全商业化扫码使用的时候，和到第三步
-That’s when everyone can use it completely commercial scan code, and go to the third step
+**25,957 ****例神经系统疾病，**
 
-是各种什么Gmall、亚马逊都能接受，还有MasterCard卡，信用卡一样都接受的时候
-It’s for all kinds of business, like Gmall, Amazon can accept it and MasterCard, credit cards are all accepted it
+**17,283 ****例肌肉骨骼和结缔组织疾病，**
 
-那个时候它真正的喜币才开始走向了正轨路，刚刚迈到第一步
-At that time HCoin will start to go on the right track, and it will just take its first step
+**14,096 ****例胃肠道疾病，**
 
-然后是机构大量的进，国家主权认可，然后数字银行就是不是咱现在收购的银行
-then the massive of institutional investors come in and the recognition by sovereign country, and then the circulation in digital bank which they’re not the banks we acquiring now
+**8,848 ****例呼吸、胸和纵隔疾病，**
 
-还包含了国家认可的，没有任何其他国家可以约束的，国家中央银行这样的牌照获得的时候
-It also includes what is recognized by the country, and no other country can restrict it, and when obtaining a license such as the National Central Bank
+**8,476 ****例皮肤和皮下组织疾病，**
 
-那时候喜币才厉害，所以问这个结构投资者进不进来的人，只知其一不知其二
-At that time Hcoin will be very good, so asking if the structural investors get in or not, that’s you only know a little
+**61 ****感染和疾病**。”
 
-我再告诉你，就是你把钱币卖了，HDO都换到你手里了
-I’ll tell you again, you sold the Hcoins and changed to HDO in your hands
+正如哈查德为新西兰指出的，许多副作用列在这份保密文件中，但现在公布的辉瑞早期的报告，并未将疫苗可能的副作用列在官方清单上。他解释说，这份有缺陷的清单，**甚至有助于阻止许多副作用的发现，**因为有副作用的患者被医务人员拒之门外，**因为他们的副作用不在疫苗的官方副作用清单上**。
 
-你贴现是需要时间的，HDO哪来的?
-It takes time for you to cash it, where did HDO come from?
+因此，现在这份披露的文件引出了许多问题。哈查德指出，“所报告的副作用在新西兰推出疫苗之前。该报告由辉瑞公司于 2021 年 4 月 30 日定稿。”那么，要问的是，辉瑞是否“在早期，我们政府制定普遍疫苗接种计划之前，向我们的政府提供了这些信息？”
 
-就现在我们说共产党，共产党是啥?
-Now we are talking about the Communist Party, what is the Communist Party?
+哈查德继续说：
 
-海外的币，叫美元，国内的人民币叫本币，共产党能把人民币到国外花吗?
-Overseas currencies are called U.S. dollars, and domestic renminbi is called domestic currency, can the Communist Party spend renminbi abroad?
+如果是这样，结果应该与我们的医疗专业人员、政治家和公众分享。辉瑞现在在这份 38 页的文件中发布的 100 多种新列出的新不良事件类型中的许多，都对健康构成了长期风险。直到最近，该文件仍被辉瑞公司扣留，辉瑞坚称应该对其保密。这很有可能会导致更多新西兰人长期受伤。
 
-花不了，它干了100年了
-It can’t be spent, it’s been doing for 100 years
+马龙博士在对哈查德报告发表的评论中透露，他也对新发布的数据感到担忧。
 
-现在HDO你还不能到外面全面说
-and now you can’t go outside and fully talk about HDO
+“[辉瑞]披露的这一信息特别令人担忧的是，这些信息来自美国法院已下令每月发布的多批文件中的第一批，”马龙博士写道。
 
-你拿着我就贴现去，瞬间都贴现
-It takes that for cash, and it will be cashed instantly
+“我们不知道 FDA 和辉瑞还向公众隐瞒了什么，但我们知道，他们已经不遗余力地向美国公众隐瞒这些信息。”
 
-咱们在德国的战友卖了房子都不让你贴现，还让你付给银行利息
-Our comrades-in-arms in Germany sold the house and didn’t let him cash them, and even asked him to pay the bank interests
+马龙博士接着更具体地评论哈查德的报告说：“哈查德的这篇文章……提出了这样一种前景，即这些安全数据，不仅对美国公众隐瞒，而且，可能也对官方隐瞒了，包括新西兰在内的其他政府的监管机构。”
 
-1000欧元好像是这样，为什么？全世界有一个规则
-1,000 euros seems to be the case, why? there is a rule in the world
+“如果情况确实如此，那么我们就有一个重大的国际丑闻，辉瑞在向各国政府出售疫苗之前，**坚持要求提供赔偿保护**，但可能未能披露所有已知的公共卫生风险，**他们坚持要求其他政府放弃其受伤公民起诉辉瑞公司因疫苗引起的损害的权利**。”
 
-现在所有四十几美金的价值
-now it’s all the value of more than 40 dollars
+小罗伯特·肯尼迪 (Robert Kennedy, Jr.) 是当前冠状病毒疫苗和普及疫苗接种的强烈批评者，他最近在接受意大利组织“伊波克拉特组织”（ IppocrateOrg ）采访时，讨论了掩盖疫苗副作用的问题。
 
-咱战友卖完将近260亿美金，你账上没有260亿美金的HDO
-Our comrades-in-arms sold out nearly 26 billion U.S. dollars, you don’t have the 26 billion U.S. dollar’s HDO on your account
+“记住，”他接着说，“这些疫苗是零责任的。”无论这些公司多么“恣意妄为”，无论疫苗损害多么严重，“你都不能起诉他们”。
 
-这是为什么大家要懂得一个道理，你也得让HDO的能贴现的能力和你的数字货币的价值形成平等的时候
-This is why everyone should understand a truth, you also have to let HDO have the ability to be cashed and equalize the value of your digital currency
+“你可以起诉这些公司的唯一方法是，如果你能证明**他们知道他们的产品造成了你遭受的这种特殊伤害**，**并且，他们没有告诉人们这件事**，”他继续道。
 
-也就是支付系统行了，银行行了
-that means the payment system is completed, and the bank is done
+这条规则鼓励这些制药公司“尽可能少地了解”他们产品的副作用，以保护他们自己。肯尼迪看到有些产品“经过非常糟糕的测试，并且正在被强制执行”。为了“行使我们自己的权利”，例如：旅行和受教育，“我们被命令采取某种产品”。
 
-大机构投资者进来了，更多人的投资者进来了，KYC过了
-Large institutional investors have come in, more investors have come in, they passed KYC
+“这确实是暴政的本质，”约翰·肯尼迪总统的侄子总结道。
 
-你就达到超过260亿美元的时候，你随时可以贴现，这里边有一个支付系统，贴现系统，银行系统
-It’s time reach more than 26 billion US dollars, you can cash it at any time, there is a payment system, a cash system, and a banking system.
+他认为“**政府正在与公司合谋”掩盖这些强制疫苗的副作用**。
 
-你在这种情况下，你要贴现你完全是来，你就是来投资的
-In this case, if you want to cash it, you are here for the investment
-
-不像QMay，她当初还不知道有货币，穷其所囊，就差衣服没卖了
-Unlike QMay, she didn’t know that there was Hcoin at the beginning, so she invested all in
-
-领一儿子把所有的钱全给了爆料革命，因为她相信能灭共，她相信能成
-She invested all the money to the whistleblower movement, because she believed that communism could be wiped out, and she believed that it could be achieved
+新闻来源 : [lifesitenews.com][mRNA pioneer predicts ‘major international scandal’ for Pfizer if they hid adverse effects from public](https://www.lifesitenews.com/blogs/dr-robert-malone-predicts-international-scandal-if-pfizer/)
 
 * * *
 
-Date:12/12/2021
-原视频标题: 文贵先生关于HPAY的商业化描述
-Miles talks about Hpay commercialize description
-原视频链接[**https://gettr.com/post/pjgzbt83c6**](https://gettr.com/post/pjgzbt83c6)
-任务编号：KC337（3205）
-视频时间段 : 0:00-2:19
-中听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-2.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
