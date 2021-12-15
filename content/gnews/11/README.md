@@ -2,44 +2,121 @@
 ---
 
 
-## CNN挺班农 要求公布被司法部保护的文件
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1756945/)
+## 美国中期选举后，十招出手对付中共
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1756979/)
 
-**翻译：Lulumi**
+[https://gtv.org/video/id=61b8dcaea68b4f4b28e86cb8](https://gtv.org/video/id=61b8dcaea68b4f4b28e86cb8)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip08-3.png)
+我说2022年WTO基本结束
+Digo que la OMC básicamente terminará en 2022
 
-目前被司法部以藐视法庭罪关押的班农，在如何使用司法部在针对他的案件中获得的文件方面，受到了联邦法官的限制。
+2022年年底前
+Antes de finales del año 2022
 
-美国有线电视新闻网（CNN）已经发出请求，要求就他们在美国诉史蒂夫·班农一案中的干预动议举行听证会。他们试图公开司法部在此案中的文件，班农也希望公开这些文件，但被限制公开。
+你们会听到这个消息
+Escucharán esta noticia
 
-班农目前被拜登政府的司法部视为藐视法庭，他在如何使用司法部在起诉他的案件中获得的文件方面受到了联邦法官的限制。尼科尔斯法官听取了检方关于需要保护令的论证，并批准了该命令。
+2023年5月份以前
+Antes de mayo de 2023
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/捕获49.png)
+SWIFT很有可能也可能是下几个月
+Swift probablemente o podría ser en los próximos meses
 
-干预动议中写道，由CNN领导的“新闻联盟”“恳请法院安排听证会”，讨论该动议。他们说，尽管有保护令，但“新闻联盟的干预动议中提出的法律问题仍未解决”。
+2023年5月份以前应该能停, 它跟美国的中期选举有绝对的关系
+Antes de mayo de 2023 posiblemente pueda paralizarse, absolutamente tiene relación con las elecciones de medio mandato de EE. UU
 
-“具体地说，保护令没有发现，政府也没有证明，如果不限制被告对发现材料的再版，就会有‘合理的损害可能性’，或者没有‘限制性较小的替代方案’可以充分减轻任何感知到的损害。”
+我们保守的说, 就美国中期明年年底10月份选举完
+De manera conservadora, decimos que las elecciones se finalizarán en octubre a finales del próximo año
 
-CNN来自巴拉德·斯伯尔律师事务所的律师，和班农一样希望曝光这些文件，但司法部更倾向于把文件被保护令保护起来。律师在动议辩护中写道，披露这些文件对“透明度、公共利益和宪法问题”非常重要。
+一定是上去十招, 这十招绝对会打出来
+Debe haber diez trucos para subir, estos trucos definitivamente saldrán
 
-据彭博社报道，班农曾表示，他打算“利用这些文件把这个案子变成民主党人的‘地狱’”。因此，尼科尔斯禁止班农披露这些文件。但美国CNN想要这些文件，他们的“干预动议”是为了得到这些文件。
+那时候你会看到班农大师
+En ese momento verás al maestro Bannon
 
-这是一个奇怪的状态，班农和CNN都希望披露同样的文件。
+我们这位战友, 还有我们背后的这些国防的力量的战友
+Nuestro compañero luchador, así como detrás de nosotros están los compañeros luchadores de la fuerza de defensa
 
-尼科尔斯的命令指出，班农和他的律师“不得直接或间接向任何个人或实体披露这些材料或其内容，但受雇协助辩护的人除外”。他们还被禁止公开“与材料内容有关的任何笔记或任何形式的记录”。
+都会发挥绝对的力量
+Manifestarán la fuerza absoluta
 
-**新闻来源**：[**thepostmillennial**][BREAKING: CNN joins Bannon in demanding release of documents in his case protected by DOJ](https://thepostmillennial.com/cnn-bannon-documents-doj?utm_campaign=64474)
+绝对振臂高呼, 没有任何人
+Ninguna persona, absolutamente levantarán los brazos y gritarán fuertemente
+它绝对是十招
+Seguramente son diez trucos
+
+现在这十招都在制定中
+Ahora estos trucos están en proceso de desarrollo
+
+第一个就是把它SWIFT停了
+El primero es paralizar al Swift
+
+然后把这个WTO停了
+También a la OMC
+
+世界卫生组织肯定给它踢出去
+La Organización Mundial de la Salud debe echarlo
+
+这是联合国马上就要宣布, 联合国不能是它一家代表
+Pronto será el anuncio de la ONU, y la ONU no puede ser solo él el representante
+
+或者是不让它代表中国
+O no puede ser representado por China
+
+希望那个时候习太阳还活着
+Espero que en aquel tiempo el sol, Xi sigue vivo
+
+它的太阳还真能发光
+Su sol pueda seguir brillando
+
+说老实话
+Hablando sinceramente
+
+我有50%以上
+Tengo más del 50%
+
+原来是50%以下
+Antes era menos del 50%
+
+我认为习是能撑过2023到2025
+Pensaba que Xi puede resistir de 2023 al 2025
+现在超过50%, 我认为它根本到不了2025
+Ahora supera el 50%, creo que él no podrá llegar al 2025
+
+共产党100%过不了2025
+El Partido Comunista 100% no pasará el 2025
+
+100%, 我没有说过这话
+100%, nunca había dicho esto
+
+这次我有100%信心它过不了2025
+Esta vez tengo el 100% de confianza que no pasará el 2025
+
+这十招所有的决策就包含这个
+Todas las decisiones de estos diez trucos incluyen este
+
+谢谢
+Gracias
 
 * * *
 
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
+日期：12/14/2021
+原视频标题：美国中期选举后，十招出手对付中共
+Después de las elecciones de medio mandato en los Estados Unidos, habrá diez trucos para lidiar con el PCCh
+原视频日期：12/11/2021
+原视频网址：[** https://gettr.com/post/pje2ska5b2**](https://gettr.com/post/pje2ska5b2)
+任务编号：KC339(3184)
+视频时间段：0:00-01:34
+西听校：洛杉矶盘古农场-霙霙（文霙）
+翻译：洛杉矶盘古农场-小文萱
+翻译终校：洛杉矶盘古农场-霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场- 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-2.jpeg)
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

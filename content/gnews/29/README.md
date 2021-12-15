@@ -2,24 +2,29 @@
 ---
 
 
-## COVID-19 最新情报｜南苏丹现神秘恶疾速夺 89 命 WHO 急派人手赶赴调查
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1756470/)
+## 各国抵制北京冬奥会，中共只能请网红宣传助威
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1756607/)
 
-**撰文｜疫情关注组 / 发布时间｜15/12/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup）](https://gettr.com/user/mightygroup%EF%BC%89)**
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/5-21.jpg)
+[图片来源](https://www.voachinese.com/a/us-congress-bipartisan-members-letter-ioc-postpone-winter-olympics-20210723/5977577.html)：
 
-外媒报导，世界卫生组织向南苏丹部署了一个快速反应小组，以调查当地近期出现的一种神秘恶疾，目前该疾病已导致至少 89 人在短时间内死亡。
+美国、加拿大等国日前都表态将对北京冬奥进行「外交抵制」，虽然中共国官方对外表示「中共国原本就没有向相关的国家发出邀请」，但根据美国政府显示的文件，中共国聘请公关公司招揽网红，宣传明年2月要揭幕的北京冬奥，并趁机鼓吹美中在气候变迁等议题上合作。
 
-事件发生地，是位于苏丹南部琼莱州（Jonglei state）的一个名为法加克的小镇，该地区近期遭洪灾袭击，加上当地较为贫困，普遍民众的卫生及营养状况堪忧，因此预料会有疟疾等传染性疾病肆虐，但是，当地近期却爆发了一种不知名的疾病，不但传播迅速，而且致死率较高。
+美国、纽西兰、澳洲、英国、加拿大相继宣布抵制北京冬奥，原因是中共国侵犯新疆、香港等地民众的人权、拒绝配合调查中共病毒的起源，还有11月初中共国网球女将彭帅的性侵失踪案。可口可乐、Visa、英特尔（Intel）等美国企业也面临退出奥运赞助协议的压力。中共国为了修补形象，透过中共国官媒《中共国环球电视网》（CGTN）、和《新华社》斥资数百万美元为美国观众制作亲中共国的内容。
 
-南苏丹卫生部第一时间对病人血液样本进行识别，发现包括霍乱、疟疾等常见传染病皆呈阴性，故像上级报告，求助WHO 以协助辨识及治疗。
+美国政治新闻网站《华盛顿自由灯塔》（The Washington Free Beacon）13日报导，中共国驻纽约领事馆聘请「Vippi Media」公司负责影响力宣传活动。Vippi Media会以30万美元的价格，延揽IG、TikTok和Twitch的知名用户来宣传北京冬奥。不过创办人贾斯瓦（Vipp Jaswal）说，他尚未决定邀请哪些网红参加。
 
-世卫组织发言人希拉·巴亚 (Sheila Baya) 接受采访时指，由于当地洪水泛滥，小组成员可能只能通过直升机抵达法加克。
+中共国与Vippi的合约要求该公司聘请8名网红，制作至少24篇关于奥运、北京历史和美中关系的贴文，其中20％的内容应该集中在「合作与中美关系的任何好事」上，还有借机鼓吹美中两国在气候变迁等议题上合作。
 
-她表示：“我们已决定派一个快速反应小组前去进行风险评估和调查。到那时他们就能从病人身上收集样本——目前我们得到的临时数字是有 89 人死亡。”
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Univers66al-Space-Channel-Banner.jpg)
-来源｜[NYPost](https://nypost.com/2021/12/14/at-least-89-killed-by-mystery-disease-as-who-deploys-taskforce-amid-fears-of-outbreak/)
+消息来源:
+
+**[中共国「30万美元」收买美国网红力推北京冬奥](https://tw.news.yahoo.com/%E4%B8%AD%E5%9C%8B-30%E8%90%AC%E7%BE%8E%E5%85%83-%E6%94%B6%E8%B2%B7%E7%BE%8E%E5%9C%8B%E7%B6%B2%E7%B4%85-%E5%8A%9B%E6%8E%A8%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A7-042722042.html)**
+
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.jpg)
+
 
  
 

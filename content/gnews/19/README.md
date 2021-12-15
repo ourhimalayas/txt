@@ -2,158 +2,131 @@
 ---
 
 
-## 沃顿学院几乎都是上海帮，单伟健比马明哲高好几个级别
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1756867/)
+## 干掉共产党以后中国必须三个独立
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1756921/)
 
-[https://gtv.org/video/id=61b88932a68b4f4b28e84e66](https://gtv.org/video/id=61b88932a68b4f4b28e84e66)
+[https://gtv.org/video/id=61b8dc47a68b4f4b28e86ca3](https://gtv.org/video/id=61b8dc47a68b4f4b28e86ca3)
 
-沃顿学院是啥呀
-Qué es la Universidad de Wharton
+这你要看到孙中山、李大钊、张国涛、共产党、袁世凯、蔡锷
+Tienes que ver a Sun Zhongshan, Li Dazhao, Zhang Guotao, el PCCh, Yuen Shikai, Cai E
 
-沃顿学院里面几乎80%过去的学生全是江浙上海帮
-Casi el 80% de los estudiantes egresados de la Universidad de Wharton son todos de Wuyue, Camarilla Shanghai
+从1912年到1949年这个中间的变化
+Los cambios que tuvieron desde el año 1912 hasta 1949
 
-在北京长安街的唯一个叫做欧美学生会
-El único de la avenida Chang’an en Beijing se llama Unión de Estudiantes Europeos y Americanos
+我们要干掉了大清朝就共产党
+Debemos destruir el Imperio del Gran Qing, sólo el PCCh
 
-就在贵宾楼旁边, 欧美学生会
-Justo está al lado del edificio VIP, Unión de Estudiantes Europeos y Americanos
+绝不允许再出现天真的孙中山
+No se permitirá que aparezca otro inocente Sun Zhongshan
 
-那是共产党
-Ese es el Partido Comunista
+也不允许说炮制什么这样那样的, 蒋介石、国民党、辛亥革命等
+Tampoco se permite formular de ninguna manera, Jiang Jieshi, Kuomintang y la Revolución de Xinghai
 
-那是来了都是警车开道, 秘密警车开道, 到哪都是开绿车的
-Cuando llega, todos los carros de la policía secreta despejan el camino, y los carros verdes circulan por todas partes
+这一切我跟你说根本不, 不允许
+Todo esto, yo te digo que no se permite
 
-一来就是直接去中南海了
-Al llegar van directamente a Zhongnanhai
+我们会秒杀一切上来想夺取政权
+Nosotros mataremos en un segundo todo el que quiera tomar el régimen
 
-住在院里边
-Viven dentro de la torre
+然后就诞生了共产党, 来个苏维埃
+Entonces nació el Partido Comunista, vino un República Soviética de China
 
-全世界什么摩根这些沼泽地都到那个(地方)
-Que si los Morgan y estos pantanos del mundo van hasta allá (lugar)
+你很有可能美国各国各政党派去一个什么新的什么党
+Es muy probable que envíe un nuevo partido de varios partidos políticos en los Estados Unidos
 
-真正的贵宾住在贵宾楼, 走向对面就叫做美欧学院
-Los verdaderos VIP viven en el edificio VIP, y al frente está el Colegio Americano Europeo
+背后是他们的力量控制中国人民
+Detrás está su poder para controlar al pueblo chino
 
-欧美学生会
-La Unión de estudiantes Europeos y Americanos
+我们未来一定会让全世界你没有任何选择
+Definitivamente en el futuro no te dejaremos ninguna opción en el mundo
 
-谁呀? 单伟建是欧美学生会的创始人, 大佬
-¿Quién? Shan Weijian es el fundador, el Boss de la Unión de estudiantes Europeos y Americanos
+中国人一人一票
+Un voto por cada chino
+选出我们的政权
+Para escoger nuestro régimen
 
-人家是沃顿学院正儿八经的学生
-Él es estudiante de la Universidad de Wharton
+共产党没了之后的中国
+El después de China será sin el PCCh
 
-沃顿学院整个亚洲会, 你去看一看
-Echa un vistazo al club de Wharton de toda Asia
+一定不会成为军阀割据
+No se convertirá en un régimen separatista de los caudillos
 
-我见得太多了
-He visto demasiado
+台湾、香港、新疆、西藏、包括广东
+Taiwán, Hongkong, Xinjiang, Tíbet, incluyendo Guangdong
 
-我那照片, 我能给你整出来几千张
-Puedo organizar miles de fotos para ti
+我们一定要叫
+Nosotros debemos
 
-一到北京去, 必到我那儿吃饭
-Una vez llegan a Beijing, seguramente van a comer donde estoy
+大家知道一个新中国联邦制
+Hacer saber a todos un sistema del Nuevo Estado Federal de China
 
-单伟建神秘到啥人物
-Y qué tan misterioso es este personaje Shan Weijian
+这是一定的
+Esto es seguro
 
-一个电话转过去. 跟王岐山见面, 是吧
-Se transfiere una llamada y se reune con Wang Qishan, ¿verdad?
+这个过程一定会发生的
+Este proceso seguro sucederá
 
-然后当时
-Y en aquel momento
+就是中间这个过程又会再来
+Sólo que durante este proceso volverá a pasar
 
-这黄菊见面
-Se reunió con Huang Ju
+但我们就是杜绝再有一个所谓的苏维埃共产党
+Pero nosotros le pondremos el fin para que no haya otro supuesto Partido Comunista Soviético
 
-(胡)锦涛见面
-(Hu) Jintao
+骗取中国人民的政权
+Defraudando el poder del pueblo chino
 
-那这是必须的, 温家宝
-Esto es necesario, Wen Jiabao
+忽悠中国人民说给你们美国式的民主生活
+Vacilar al pueblo chino diciendo que te dará una vida democrática al estilo estadounidense
 
-为啥? 这是国家动作
-¿Por qué? Esta es una acción nacional
+所以说当等到下一步共产党被灭以后
+Por eso, el próximo paso luego de extinguir el PCCh
 
-这不是你个人的问题了
-Esto no es tu problema personal
+我们要中国人必须三个独立
+Nosotros haremos que los chinos tengan 3 cosas independientes
 
-就是蓝金黄的
-Es del plan ADA (BGY)
+人格、宗教、信仰、法律
+Personalidad, religión, creencia y ley
 
-单伟建, 你看他在当时深圳招商行
-Shan Weijian, mira a él en China Merchants Bank en Shenzhen
+这一块儿要独立
+Todo esto hay que independizarlo
 
-叫深圳商业行, 深商行
-Se llama China Merchants Bank
+这咱算一条
+Esto lo contamos como el primero
 
-竞争的时候
-Al momento de competir
+第二条就中国人的思维
+El segundo, la forma de pensar de los chinos
 
-必须让出他去
-Debe dejarlo ir
+和说话的言语自由, 它必须独立
+Y la libertad de expresión, debe ser independiente
 
-批完以后都几十天给你改了
-Te lo cambié decena de días después de la aprobación
+第三个咱们中国人要记住
+El tercero, nosotros los chinos debemos recordar
 
-马明哲见了单伟建, 哆哩哆嗦
-Ma Mingzhe estaba temblando cuando vió a Shan Weijian
+要跟国际上所有的关系
+Internacionalmente todas las relaciones
 
-马明哲跟这个布什的弟弟见面之前
-Ma Mingzhe antes de verse con el hermano de Bush
+中国人国家必须是独立
+El país de los chinos debe ser independiente
 
-他弟弟就是跟他一起, 单伟建陪着他跟马明哲见面
-Su hermano estaba con él, Shan Weijian lo acompañó para verse con Ma Mingzhe
-
-马明哲见他毕恭毕敬的
-Ma Mingzhe lo vió respetuosamente
-
-小布什的弟弟, 当时是这个加利福尼亚州的州长（应该佛罗里达的州长，口误）
-El hermano de Bush Junior, en aquel momento era el gobernador del estado de Florida
-
-也就是今天你们看到那个罗比奥
-Y es lo que hoy ustedes ven al Marco Rubio
-
-当时还是他的办公室主任呢
-Él era el jefe de su oficina en ese momento
-
-问我Miles, 为什么马明哲见了这单伟建毕恭毕敬
-Me preguntó, Miles, ¿por qué Ma Mingzhe al ver a Shan Weijian es tan respetuoso?
-
-我说这是马明哲在排位地位上跟他差了好几个class
-Le dije que esto se debe a que Ma Mingzhe está detrás de él en términos de clasificación
-
-他说原来是这样, 外国人不懂啊
-Y respondió, con razón, los extranjeros no entienden
-
-他说单伟建可了不得呀
-Dijo que Shan Weijian es increíble
-
-我们都是很看重他的
-Nosotros lo apreciamos mucho
-
-单伟建是100%的
-Shan Weijian es 100%
+不能受任何黑暗势力摆布包括这个华尔街什么好莱坞
+No puede ser manipulado por ninguna fuerza oscura, incluyendo el Wall Street o Hollywood
 
 * * *
 
 日期：12/13/2021
-原视频标题：沃顿学院几乎都是上海帮，单伟健比马明哲高好几个级别
-Casi toda la universidad de Wharton es de la camarilla de Shanghai, y Shan Weijian tiene varios niveles más altos que Ma Mingzhe
-原视频日期：12/10/2021
-原视频网址：[**https://gettr.com/post/pjavo685c6**](https://gettr.com/post/pjavo685c6)
-任务编号：3172
-视频时间段：0:00-2:15
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 ：洛杉矶盘古农场 – 恩典
+原视频标题：干掉共产党以后中国必须三个独立
+Después de destruir el Partido Comunista, China debe tener tres cosas independientes
+
+原视频日期：12/11/2021
+原视频网址：[** https://gettr.com/post/pjed5p3e4c**](https://gettr.com/post/pjed5p3e4c)
+任务编号：KC338(3183)
+视频时间段：0:00-02:01
+西听校：洛杉矶盘古农场-小文萱
+翻译：洛杉矶盘古农场-霙霙（文霙）
+翻译终校：洛杉矶盘古农场-小文萱
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布 ：洛杉矶盘古农场-恩典
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

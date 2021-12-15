@@ -2,135 +2,52 @@
 ---
 
 
-## 干掉共产党以后中国必须三个独立
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1756921/)
+## 文·贵天成——文贵先生谈“躺平币”（四）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1756972/)
 
-[https://gtv.org/video/id=61b8dc47a68b4f4b28e86ca3](https://gtv.org/video/id=61b8dc47a68b4f4b28e86ca3)
+**整理：**BENJ1
+**编辑：**翼族
 
-这你要看到孙中山、李大钊、张国涛、共产党、袁世凯、蔡锷
-Tienes que ver a Sun Zhongshan, Li Dazhao, Zhang Guotao, el PCCh, Yuen Shikai, Cai E
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/2021.12.8-10.png)图片来源：小蚂蚁614
 
-从1912年到1949年这个中间的变化
-Los cambios que tuvieron desde el año 1912 hasta 1949
 
-我们要干掉了大清朝就共产党
-Debemos destruir el Imperio del Gran Qing, sólo el PCCh
+**往期回顾：**
+[文·贵天成——文贵先生谈“躺平币”（一）](https://gnews.org/zh-hans/1733170/)
+[文·贵天成——文贵先生谈“躺平币”（二）](https://gnews.org/zh-hans/1733097/)
+[文·贵天成——文贵先生谈“躺平币”（三）](https://gnews.org/zh-hans/1733213/)
 
-绝不允许再出现天真的孙中山
-No se permitirá que aparezca otro inocente Sun Zhongshan
+**2021年12月5日郭文贵先生直播**：
 
-也不允许说炮制什么这样那样的, 蒋介石、国民党、辛亥革命等
-Tampoco se permite formular de ninguna manera, Jiang Jieshi, Kuomintang y la Revolución de Xinghai
+如水：我想到前两天七哥在说的那个躺平币，正好也问一下七哥，这个躺平币是不是基于这个区块链的公链？大家可以快速地把资金集中起来？因为咱们现在喜币做KYC是非常困难的，然后钱也是非常难汇进来。关于这个躺平币，就是它跟比特币有什么区别？像比特币是肯定要消失的，我们怎么来规避像比特币的那种问题？谢谢七哥。
 
-这一切我跟你说根本不, 不允许
-Todo esto, yo te digo que no se permite
+文贵先生：谢谢如水。这个躺平币肯定是公链，这事你说对了。然后会让很多人得到，就完全是不经过任何人工审核的，但是到最后你兑现的时候，它必须要经过兑现平台KYC——这是肯定的。但是你得到这个币，未来比如说，加入盖特，你认证成V了，那躺平币就可能你的，根据你的关注者，你就一下子看到：啊，我有这个（躺平）币了，（是）给你的。
 
-我们会秒杀一切上来想夺取政权
-Nosotros mataremos en un segundo todo el que quiera tomar el régimen
+比如说今天参加《大直播》节目的，我们都会有标准的。今天同框同心的，后面的Qmay——Qmay现在是总导演了，村长已经退休去搞别的大事去了，然后他偷懒去了——Qmay总导演这个职务今天可能就会得到多少币，她先生在旁边，副导演得多少币，墨镜作为总的电脑工程师得多少币，小白副总工程师得多少币，他儿子作为旁边的观众——闹腾币——得给他多少币，咱都有标准的，自然而然就到你账号去了。
 
-然后就诞生了共产党, 来个苏维埃
-Entonces nació el Partido Comunista, vino un República Soviética de China
+而且完全是不会什么经过联盟委员会，就是所有的东西都给你定下标准，比如说躺平，我怎么知道你躺平了？我怎么能证明你，你怎么能证明你躺平了？你是湖南的，我咋能证明你不是这个孙瑶啊？我咋知道你不是贯君、刘呈杰呢？那孙瑶、刘呈杰、贯君，人家也躺平你不给人家币吗？是吧？话又说回来了，这些都有标准的。
 
-你很有可能美国各国各政党派去一个什么新的什么党
-Es muy probable que envíe un nuevo partido de varios partidos políticos en los Estados Unidos
+你只要上去这个电脑，你只要用手机，你做了以下的行动就等同躺平。多长时间内你推一个信息，多长时间内你用了一次盖特，多长时间内你发了个信息，这就是你的时间分配——就像现在工程师，我们99%的工程师都是远程操作，都没见过面，这不很多事情都发生了么？因为现在电脑和区块链技术可以确定你的行为一切是真是假。
 
-背后是他们的力量控制中国人民
-Detrás está su poder para controlar al pueblo chino
+也有工程师不老实，就谎报几个小时的。现在有的人报几个小时都装作看不见，但是你再报几十个小时，财务上就定你为诈骗了。那躺平币如何确定躺平，和躺平的价值和标准？未来……这就是新中国联邦的一个雏形，不用任何腐败！还要把老婆孩子送去给人家双修弄个官？不用的！你的工作能力和结果和时间，就决定了你的层次和级别，和获得币的数量。根据获得币的数量，你未来在这个系统里面，就是你的定位、你的价值和层阶，这就是区块链技术的魅力所在，谁也骗不了谁，你不给我也不可能，这个系统在那儿。
 
-我们未来一定会让全世界你没有任何选择
-Definitivamente en el futuro no te dejaremos ninguna opción en el mundo
+你青藤在这厕所蹲着，他在这一直发消息，他发了一千条，你该给他比如说500个币，那你就该给他500个币。人家娜娜酱跟男朋友双修的时候，人家一边双修一边拿着手机，我双修了一千个小时，你也得给我500个币。我手机我做了工作了，你管我？只管我手，管我上半身，你管我下半身干什么呀？它一样的道理。
 
-中国人一人一票
-Un voto por cada chino
-选出我们的政权
-Para escoger nuestro régimen
+这种按照劳动结果、时间，区块链给你做出来的东西，这叫躺平币。关键我怎么兑现呢？第一天我就告诉你，躺平币，第一天你就可以买面包、买油，我告诉所有工程队的人，第一天你就要能买面包、买油。我能吃饭、我能有油加。当然能买GFashion了，当然能买GClub了。
 
-共产党没了之后的中国
-El después de China será sin el PCCh
+这个躺平币它不是空间币，它不是虚幻币，它是真正的，它是可兑换的，就是法币所有的功能（它）都有，马上可以用。它有级别的，比如说，文疯而动我账上有500个币，那你买面包、买油可能只让你使用50个币，每一次，你不能一下子都弄完，然后你再接着用，接着用，每次每次用。如水说我有500个币，如水我这块多了5万个币，那你就可以用500个币一次。这种规则让大家——我拿到币，就是我躺平的结果，下一分钟我就有面包吃，我就有油加。
 
-一定不会成为军阀割据
-No se convertirá en un régimen separatista de los caudillos
+例如这样的，我可以买GFashion，你还能干啥？你人活着不就是睡觉、吃饭、驱车加油、买点衣服穿。你还能干啥？双修费你可以跟对方商量是吧？你愿意给那是你的事，点对点地支付，这个叫躺平币。这躺平币的厉害，七哥现在可真不能告诉你们，告诉完你们，你们绝对睡不着，一星期睡不着。七哥每天在干的事情，我昨天晚上到现在睡了大概没有超过四个小时吧？我通多少次电话？静静地通电话，视频。
 
-台湾、香港、新疆、西藏、包括广东
-Taiwán, Hongkong, Xinjiang, Tíbet, incluyendo Guangdong
+我直播是最累的，直播是真用气、用神。我开会都是（比较轻松），我很会开会，中间各国需要翻译，然后我希望他翻译完，同时几个会，但是做直播是最用气用神的，全身心（投入），在我人生，除了在双修有这种感觉，没有这种感觉了，全身心投入的。那躺平币都是七哥创出来的，每时每刻都在感动，彻底改变。共产党，只要躺平币出来，共产党就知道自己的棺材板该钉上钉了，该钉钉了，盖棺而论了。谢谢!
 
-我们一定要叫
-Nosotros debemos
+*发布：翼族*
 
-大家知道一个新中国联邦制
-Hacer saber a todos un sistema del Nuevo Estado Federal de China
-
-这是一定的
-Esto es seguro
-
-这个过程一定会发生的
-Este proceso seguro sucederá
-
-就是中间这个过程又会再来
-Sólo que durante este proceso volverá a pasar
-
-但我们就是杜绝再有一个所谓的苏维埃共产党
-Pero nosotros le pondremos el fin para que no haya otro supuesto Partido Comunista Soviético
-
-骗取中国人民的政权
-Defraudando el poder del pueblo chino
-
-忽悠中国人民说给你们美国式的民主生活
-Vacilar al pueblo chino diciendo que te dará una vida democrática al estilo estadounidense
-
-所以说当等到下一步共产党被灭以后
-Por eso, el próximo paso luego de extinguir el PCCh
-
-我们要中国人必须三个独立
-Nosotros haremos que los chinos tengan 3 cosas independientes
-
-人格、宗教、信仰、法律
-Personalidad, religión, creencia y ley
-
-这一块儿要独立
-Todo esto hay que independizarlo
-
-这咱算一条
-Esto lo contamos como el primero
-
-第二条就中国人的思维
-El segundo, la forma de pensar de los chinos
-
-和说话的言语自由, 它必须独立
-Y la libertad de expresión, debe ser independiente
-
-第三个咱们中国人要记住
-El tercero, nosotros los chinos debemos recordar
-
-要跟国际上所有的关系
-Internacionalmente todas las relaciones
-
-中国人国家必须是独立
-El país de los chinos debe ser independiente
-
-不能受任何黑暗势力摆布包括这个华尔街什么好莱坞
-No puede ser manipulado por ninguna fuerza oscura, incluyendo el Wall Street o Hollywood
-
-* * *
-
-日期：12/13/2021
-原视频标题：干掉共产党以后中国必须三个独立
-Después de destruir el Partido Comunista, China debe tener tres cosas independientes
-
-原视频日期：12/11/2021
-原视频网址：[** https://gettr.com/post/pjed5p3e4c**](https://gettr.com/post/pjed5p3e4c)
-任务编号：KC338(3183)
-视频时间段：0:00-02:01
-西听校：洛杉矶盘古农场-小文萱
-翻译：洛杉矶盘古农场-霙霙（文霙）
-翻译终校：洛杉矶盘古农场-小文萱
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布 ：洛杉矶盘古农场-恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

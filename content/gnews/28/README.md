@@ -2,30 +2,41 @@
 ---
 
 
-## 壹传媒遭港共政府清算关闭
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1756548/)
+## 社交媒体影响者 与中共国领事馆签订官方合同
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1756634/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/4-23.jpg)
-[图片来源](https://www.epochtimes.com/gb/17/7/18/n9422269.htm)：
+作者: 纽约香草山农场翻译部—祈望明天会更好
 
-香港高等法院今天(12月15日)下令清算苹果日报的母公司壹传媒，对这家早已被迫关门的民主派报纸，是另一次重大打击。
 
-港共当局在今年初援引中共国家安全法，冻结了苹果日报的资产，迫使报社停止营运。苹果日报的老板黎智英和多名高层主管，都已遭拘押，被控发表直言不讳的批评文章和专栏。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-17.jpg)
 
-今年9月，香港政府罕见地申请解散苹果日报的母公司壹传媒(NextDigitalLimited)。香港高等法院法官今天在短暂的听证会后，核准香港政府清算苹果日报母公司的请求。壹传媒并未提出异议。
 
-74岁黎智英和多位苹果日报主管，被指控支撑对中共国的制裁，与外国势力勾结，如果被定罪，恐面临终身监禁。黎智英目前已因为多次参与民主示威活动的罪名，遭到监禁。13日，黎智英又因参与去年遭到当局禁止的六四集会案，再被判处13个月监禁。
+12月14日杰克·波索贝克(Jack Posobiec)在班农作战室节目中, 谈到我们从司法部所提交的一份外国代理人注册信息文件中得到了一条新消息:社交媒体影响者营销公司与中共国领事馆正式签订官方合同.
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-15-at-5.10.27-PM.png)图片来源GTV
+这家总部位于新泽西州的美国公司, 从中共国收取数十万美元, 来支付 Twitch, Instagram和抖音等媒体, 用以宣传北京奥运会, 并淡化在“彭帅事件”上的追查力度.
 
-台湾版苹果日报未来营运仍存在问题。根据彭博社报导，由于资金短缺，将在今年年底前关闭。但台湾苹果日报驳斥这项报导，「纯属亿测」，并拒绝进一步评论。
+诚如郭先生在12月12日大直播中所说, 一半抵制冬奥会的是因为彭帅事件, 这就是多米诺骨牌效应的开始.
 
-消息来源:
+杰克在班农作战室节目中又说, 中共国领事馆为了帮中共宣传这冬奥会, 无所不用其极地用大量资金注入媒体来宣传冬奥, 淡化彭帅事件, 并诋毁反对中共国的人们, 他们会被称为种族主义者, 所有能贬低人的名称都会用上. 例如, 史蒂夫·班农以种族灭绝抵制冬奥会的报导, 中共国就宣称班农是想要更多的白人婴儿. 中共国所做的一切都是为了达到宣传北京奥运会而使出的卑劣技俩.
 
-**[香港法院下令清算蘋果日報母公司](https://tw.news.yahoo.com/%E9%A6%99%E6%B8%AF%E6%B3%95%E9%99%A2%E4%B8%8B%E4%BB%A4%E6%B8%85%E7%AE%97%E8%98%8B%E6%9E%9C%E6%97%A5%E5%A0%B1%E6%AF%8D%E5%85%AC%E5%8F%B8-045002428.html)**
+**参考阅读**: [https://gtv.org/video/id=61b8b7fa56f4921401b7ba4a](https://gtv.org/video/id=61b8b7fa56f4921401b7ba4a)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-6.png)
+总编: 飞虹
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.jpg)
+编辑/校对/发稿: 卡夫卡的甲壳虫
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
 
 
  

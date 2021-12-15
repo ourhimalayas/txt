@@ -15,104 +15,104 @@
 
 ---
 
-### [互联网告急：数以百万计的设备面临新软件漏洞的风险](/content/gnews/1/README.md)
+### [科顿：民主峰会台湾画面被切，应该有人因此被解雇](/content/gnews/1/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [西班牙是唯一将台湾人引渡到中共国的西方国家](/content/gnews/2/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [蓬佩奥斥责国际奥委会和全球商业巨头支持中共冬奥会](/content/gnews/2/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [苹果向中共国支付“勒索”款项](/content/gnews/3/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [红码绿码随缘，中共疫情防控如儿戏](/content/gnews/4/README.md)
- ` 澳喜农场`
-
-### [美国中期选举后，十招出手对付中共](/content/gnews/5/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [新浪微博因放开评论，一年被惩罚44次](/content/gnews/6/README.md)
+### [中共国发出战前威胁：警惕惨烈的战场在台湾重演](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文·贵天成——文贵先生谈“躺平币”（四）](/content/gnews/7/README.md)
- ` 墨尔本雅典娜农场`
-
-### [马龙博士预测辉瑞隐瞒不利影响将面临重大国际丑闻](/content/gnews/8/README.md)
+### [因疫苗授权豁免被解雇的演员起诉电视网络](/content/gnews/4/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共习近平对文艺工作者提出五点希望](/content/gnews/9/README.md)
+### [拒绝接种：27人被空军开除](/content/gnews/5/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [互联网告急：数以百万计的设备面临新软件漏洞的风险](/content/gnews/6/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [蓬佩奥斥责国际奥委会和全球商业巨头支持中共冬奥会](/content/gnews/7/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [秘翻在线：《环球时报》换叼盘侠，空降范正伟取代胡锡进！](/content/gnews/8/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [苹果向中共国支付“勒索”款项](/content/gnews/9/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [红码绿码随缘，中共疫情防控如儿戏](/content/gnews/10/README.md)
+ ` 澳喜农场`
+
+### [美国中期选举后，十招出手对付中共](/content/gnews/11/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [新浪微博因放开评论，一年被惩罚44次](/content/gnews/12/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [文·贵天成——文贵先生谈“躺平币”（四）](/content/gnews/13/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [马龙博士预测辉瑞隐瞒不利影响将面临重大国际丑闻](/content/gnews/14/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [中共习近平对文艺工作者提出五点希望](/content/gnews/15/README.md)
  ` 儒为`
 
-### [CCP病毒使中共国民航运输下跌过半](/content/gnews/10/README.md)
+### [CCP病毒使中共国民航运输下跌过半](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [CNN挺班农 要求公布被司法部保护的文件](/content/gnews/11/README.md)
+### [CNN挺班农 要求公布被司法部保护的文件](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [秘翻在线：新型杀人武器问世—— 新冠特效药](/content/gnews/12/README.md)
+### [秘翻在线：新型杀人武器问世—— 新冠特效药](/content/gnews/18/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [干掉共产党以后中国必须三个独立](/content/gnews/13/README.md)
+### [干掉共产党以后中国必须三个独立](/content/gnews/19/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [阿联酋有意暂停购买美国230亿美元的F-35战机和死神无人机](/content/gnews/14/README.md)
+### [阿联酋有意暂停购买美国230亿美元的F-35战机和死神无人机](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国铁路暂停对员工进行疫苗强制接种](/content/gnews/15/README.md)
+### [美国铁路暂停对员工进行疫苗强制接种](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [文贵先生关于HPAY的商业化描述](/content/gnews/16/README.md)
+### [文贵先生关于HPAY的商业化描述](/content/gnews/22/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [阿联酋威胁撤销军购合同 美将推 F-35销售](/content/gnews/17/README.md)
+### [阿联酋威胁撤销军购合同 美将推 F-35销售](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [抵制北京冬奥会是一种对中共谴责的方式](/content/gnews/18/README.md)
+### [抵制北京冬奥会是一种对中共谴责的方式](/content/gnews/24/README.md)
  ` 澳喜农场`
 
-### [沃顿学院几乎都是上海帮，单伟健比马明哲高好几个级别](/content/gnews/19/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [即使非洲猪瘟传入法国 中共国也将接受来自法国的猪肉](/content/gnews/20/README.md)
+### [即使非洲猪瘟传入法国 中共国也将接受来自法国的猪肉](/content/gnews/25/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [大直播后记——中美文明的差距](/content/gnews/21/README.md)
- ` 墨尔本雅典娜农场`
-
-### [《柳叶刀》：斥责“未接种疫苗者（造成）大流行”的说法](/content/gnews/22/README.md)
- ` 墨尔本雅典娜农场`
-
-### [真实与虚假的中共国](/content/gnews/23/README.md)
+### [真实与虚假的中共国](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [那些口口相传的真话](/content/gnews/24/README.md)
+### [那些口口相传的真话](/content/gnews/27/README.md)
  ` 骄子`
 
-### [社交媒体影响者 与中共国领事馆签订官方合同](/content/gnews/25/README.md)
+### [社交媒体影响者 与中共国领事馆签订官方合同](/content/gnews/28/README.md)
  ` GTV News Talk`
 
-### [各国抵制北京冬奥会，中共只能请网红宣传助威](/content/gnews/26/README.md)
+### [各国抵制北京冬奥会，中共只能请网红宣传助威](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆：广州南洋肿瘤医院宣告破产](/content/gnews/27/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [壹传媒遭港共政府清算关闭](/content/gnews/28/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [COVID-19 最新情报｜南苏丹现神秘恶疾速夺 89 命 WHO 急派人手赶赴调查](/content/gnews/29/README.md)
+### [COVID-19 最新情报｜南苏丹现神秘恶疾速夺 89 命 WHO 急派人手赶赴调查](/content/gnews/30/README.md)
  ` 關注組`
 
-### [因隐瞒参与中共千人计划的哈佛教授将出庭受审](/content/gnews/30/README.md)
+### [因隐瞒参与中共千人计划的哈佛教授将出庭受审](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美商務部長老公就職的公司曾兩次獲得來自中共風投公司的註資](/content/gnews/31/README.md)
+### [美商務部長老公就職的公司曾兩次獲得來自中共風投公司的註資](/content/gnews/32/README.md)
  ` 澳喜农场`
 
-### [COVID-19 最新情报｜mRNA 疫苗技术发明人之一马龙博士就儿童疫苗发布紧急声明](/content/gnews/32/README.md)
+### [COVID-19 最新情报｜mRNA 疫苗技术发明人之一马龙博士就儿童疫苗发布紧急声明](/content/gnews/33/README.md)
  ` 關注組`
-
-### [秘翻在线:欧盟&#8217;强制疫苗政策&#8217;加速平民主义的扩张](/content/gnews/33/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [比利时和奥地利表态不派官员出席北京冬奥](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
