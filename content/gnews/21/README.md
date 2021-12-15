@@ -2,22 +2,50 @@
 ---
 
 
-## 多名美国会议员从投资疫情相关产业中牟利
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1758465/)
+## 世界卫生组织：中共病毒疫苗对Omicron的效果较差
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1758495/)
 
-采编：UCool 优酷  编译撰稿：文明(添草灭共)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/06-image-5.jpg)
-据美国媒体《商业内幕》12月13日报道，在对该国现任立法成员及其高级工作人员的近9000份财务报告进行分析后发现，多名议员参与了和“新冠病毒”疫情有关公司的投资及交易。
+作者：纽约香草山农场 – 四季
 
-据悉，至少有75名共和党与民主党的议员在疫情期间交易了包括疫苗、治疗药物和测试剂等医药产品制造企业的股票。同时，还授权联邦政府支出100多亿美元帮助以上药物公司研制和分销疫苗，并要求医疗保险公司承担注射费用。 
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-自疫情全球蔓延以来，各国相关制药公司股价均出现大幅增长，例如[莫德纳公司]的股价从去年1月不到20美元涨至今年9月的455美元，涨幅达23倍。 对此，本台记者报道，事实表明，蓄意投放病毒是中共盗国贼企图称霸全球的超限手段，而疫苗推广则是黑暗利益集团无耻苟同中共政权，残酷血洗民众以暗牟巨利的有效方式。
 
-校对编辑：硫酸羟氯喹64
 
-发稿：苦尽甜来 (文來）
 
-[原文链接](https://www.businessinsider.com/lawmakers-bought-sold-covid-19-related-stocks-during-pandemic-2021-12)
+
+据[OAN网站](https://www.oann.com/covid-19-vaccines-may-be-less-effective-against-omicron-who/)12月15日报道，世界卫生组织周三表示，初步证据表明，COVID-19疫苗可能对与Omicron中共病毒变体有关的感染和传播效果较差，同时，Omicron变体具有较高的再感染风险。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1726.jpg)在2021年12月11日拍摄的这幅插图中，人们在世界卫生组织（WHO）标志前摆出带针头的注射器。（REUTERS/Dado Ruvic）
+
+世卫组织在其每周流行病学更新中表示，需要更多的数据来更好地了解Omicron可能在多大程度上逃避来自疫苗或先前感染的免疫力的情况。
+
+世卫组织官员在星期二的一次在线简报上发表的评论显示，自4月份占主导地位的Delta病毒变体被列为关注变体以来，本周，在全球科学数据库 – 全球共享流感数据倡议组织（GISAID）中注册的Delta序列的百分比相较其他关注变体首次有所下降。
+
+数据显示，伴随着Omicron变体的出现，之前出现的变体如Alpha、Beta和Gamma等所占比例有下降的趋势。在总数中，Omicron约有3755个，占比约0.4%，其他三个值得关注的变体共401个，每个占比不到0.1%。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月.png)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 

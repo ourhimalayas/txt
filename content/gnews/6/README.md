@@ -2,58 +2,48 @@
 ---
 
 
-## 紧急：3 种方法来帮助阻止拜登的疫苗授权
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1758659/)
+## 高校考研人数历史新高戳破中共国GDP稳步增长神话
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1758698/)
 
-编译：Jenny Ball
+【**墙国谎言栏目**】
+![](https://assets.gnews.org/wp-content/uploads/2021/12/a0j9m-bx9al.jpg)**图片来源：阿波罗希望网**
+据华尔街日报（Barbara Kollmeyer）2021年8月9日报道，因德尔塔病毒肆虐，中共国全年GDP增长预期从8.6%下调至8.3%。与此同时，亚洲开发银行与2021年9月22发布的一份报告显示，中共国全年经济增速预计为8.1%。这些所谓权威机构的预测，与中国科学院著名运筹学家和经济学家陈锡康在《中国科学院院刊》提出的8.5%的经济增长速率何其接近。由此推断，中共国近二十年的GDP稳步增长神话将继续持续，中共国经济形势在共党的领导下将一片大好。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-14-1.jpg)图片来源：today.line.me（翻摄自路透社）
+那么，中国房地产、银行、保险、其他各个行业及上市公司的频频暴雷、评级下调还有大量辞退员工潮、倒闭潮、停电潮又将做如何解释呢？更有甚至，中共中央从年初就大力号召过“紧日子”又为哪般呢？
 
-儿童健康防御组织([Children’s Health Defense](https://childrenshealthdefense.org/))呼吁科学家、公民和医学专家，帮助阻止拜登总统对员工、联邦承包商和医疗保健工作者的 COVID 疫苗授权。
+《淮南子·说山训》：“以小明大，见一叶落而知岁之将暮，睹瓶中之冰而知天下之寒。”作为一颗小韭菜，GDP稳步增长神话也许我们理解不了，作为主要各种紧要行业的主要人力资源力量，普通高校本科毕业生的职业发展和分流总可以在某种程度上反映经济形势的变化。
 
-可以通过以下方式提供帮助： 在管理和预算办公室 ([OMB](https://www.regulations.gov/document/OMB-2021-0007-0001/comment))、医疗保险和医疗补助服务中心 ([CMS](https://www.regulations.gov/docket/CMS-2021-0168/comments))， 以及职业安全与健康管理局([OSHA](https://www.regulations.gov/document/OSHA-2021-0007-0001/comment))的每个联邦电子规则制定门户上发表评论，解释您反对这些指令的原因 。
+**高校毕业人与GDP**
 
-按照每个网站上的说明提交评论。 在发表评论之前，您还可以查看其他人在OMB，CMS 和 OSHA发表的评论：
+中国高校毕业人数变化大致分为三个阶段：1）1994年～2000年，从63.74万增加到94.98万；2）2001～2010，由于高等教育扩招从103.63万增至575.40万；3）2011～2021 年，从608.20万增长到909万，而到2022年将突破1000万。
 
-• OMB：截止日期 12 月 16 日
+相同时期，GDP增长也有类似趋势。某种程度上，1994～2021年间中共国GDP总量和普通高校毕业人数恰恰支持国内大肆宣扬的中共国高等教育大丰收，每年毕业生数量上升趋势和GDP增长趋势一致这一结论（图1）。“一叶知秋”的道理真的错了么？
+![](https://assets.gnews.org/wp-content/uploads/2021/12/z-unknown.png)**图1，1994-2021年间中共国GDP总量和普通高校毕业人数趋势（数据来源：中共国教育网和世界银行数据库）**
+然而，中共国教育部人社部2021年11月19日召开的就业工作会议，确定2022年考研人数为462万，较2021年人数（377万）增加85万，使得“考研热度”再度升级，突破历史记录。作为世界研究生教育大国，从1994年以来，硕士研究生报名人数屡创新高，今年报考人数更是突破400万，到达462万（也有其他来源说422万）。录取人数也从1994年4.2万猛增至2021年114.4万，这个录取总数翻了近27倍。这一人数也使得中共国进入到研究生教育世界大国。
 
-• CMS：截止日期为 2022 年 1 月 4 日
+**研究生录取率和报名率**
 
-• OSHA：截止日期 2022 年 1 月 19 日
+我们将录取比率和报名比率进行分析，发现二者呈现此消彼长的趋势（图2）。在1997～2006年间，报名比率远高于录取比率，这一区间刚好和中共国1990年代下岗和经济衰退、高校毕业生自主就业阶段重合，由于就业困难，更多的学生被迫考研。在2008～2018年间，报名率远低于录取比率，说明更多的毕业生选择就业而非继续攻读研究生。这也与中共国加入WTO，并成功举办奥运会，大量国外外资涌入中国，GDP一路快速增长有关。特别值得注意的是从19年开始，报名率又高于录取率，可以推断出和经济下行有关。
 
-**以下是您需要了解的有关每项疫苗强制规定的信息：**
+中国经济近3年严重衰退在郭先生的爆料中也屡次提及。这一趋势恰恰就戳破了中共国的GDP稳步增长的经济神话。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/x-unknown.png)**图2，1994～2021 中共国普通高校考研毕业生录取比率和报名比率趋势图（数据来源：中国知网和教育网）**
+**戳破GDP稳步增长神话**
 
-OMB：拜登总统于 9 月 9 日宣布了他的“走出大流行之路：COVID-19 行动计划”，并签署了一项[行政命令](https://na01.safelinks.protection.outlook.com/?url=https%3A%2F%2Fwww.whitehouse.gov%2Fbriefing-room%2Fpresidential-actions%2F2021%2F09%2F09%2Fexecutive-order-on-ensuring-adequate-covid-safety-protocols-for-federal-contractors%2F&amp;data=04%7C01%7C%7C16a4b2e0547b4fe7aaca08d9b5f306a5%7C84df9e7fe9f640afb435aaaaaaaaaaaa%7C1%7C0%7C637740877663535714%7CUnknown%7CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%3D%7C3000&amp;sdata=i3JTIJn%2FXvuTpF4ZF8jautSXUeevtNd8bYGxZkP2s5s%3D&amp;reserved=0)，强制要求联邦承包商接种 COVID-19 疫苗。
+“数字是不会骗人的”，这一说法在中共国尤为盛行，但是他们没有指出的是，有些证据隐藏在数字中，可以告诉我们更多的真相。普通高校考研人数再创历史新高恰恰就戳破了中共国GDP稳步增长的神话。
 
-提交完整疫苗接种证明的截止日期（除非该员工在法律上有权获得豁免）是 2022 年 1 月 18 日。[请在此处阅读完整的规定。](https://childrenshealthdefense.org/defender/action-omb-oppose-mandatory-vaccines-federal-contractors/)
+**文章观点进代表作者个人，与Gnews平台无关**
 
-CMS：11 月 4 日，CMS 规定医疗保险和医疗补助（Medicare and Medicaid）认证的提供者、供应商和员工，必须接种 COVID-19 疫苗。
+**参考资料链接：**
+1，[https://cn.wsj.com/articles/%E9%AB%98%E7%9B%9B%E4%B8%8B%E8%B0%832021%E5%B9%B4%E4%B8%AD%E5%9B%BD%E7%BB%8F%E6%B5%8E%E5%A2%9E%E9%95%BF%E9%A2%84%E6%9C%9F%EF%BC%8C%E5%9B%A0%E5%BE%B7%E5%B0%94%E5%A1%94%E5%8F%98%E7%A7%8D%E8%82%86%E8%99%90-11628497810](https://cn.wsj.com/articles/%E9%AB%98%E7%9B%9B%E4%B8%8B%E8%B0%832021%E5%B9%B4%E4%B8%AD%E5%9B%BD%E7%BB%8F%E6%B5%8E%E5%A2%9E%E9%95%BF%E9%A2%84%E6%9C%9F%EF%BC%8C%E5%9B%A0%E5%BE%B7%E5%B0%94%E5%A1%94%E5%8F%98%E7%A7%8D%E8%82%86%E8%99%90-11628497810)
+2，[https://www.adb.org/zh/news/adb-maintains-8-1-forecast-prc-economic-growth-2021#:~:text=%E8%8F%B2%E5%BE%8B%E5%AE%BE%E9%A9%AC%E5%B0%BC%E6%8B%89%EF%BC%882021%E5%B9%B49,2022%E5%B9%B4%E5%B0%86%E5%A2%9E%E9%95%BF5.5%25%E3%80%82](https://www.adb.org/zh/news/adb-maintains-8-1-forecast-prc-economic-growth-2021#:~:text=%E8%8F%B2%E5%BE%8B%E5%AE%BE%E9%A9%AC%E5%B0%BC%E6%8B%89%EF%BC%882021%E5%B9%B49,2022%E5%B9%B4%E5%B0%86%E5%A2%9E%E9%95%BF5.5%25%E3%80%82)
 
-然而，在 11 月 30 日，路易斯安那州联邦地方法院[发布了一项初步禁令](https://childrenshealthdefense.org/defender/biden-covid-vaccine-mandates-legal-setbacks/)，影响了全国的医护人员起来反对强制执行。
+作者：洛杉矶盘古农场 — Poplar
+编审：洛杉矶盘古农场 — 心照
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-法院表示：“在像这样的大流行期间，更重要的是保护我们宪法中规定的权力分立，以避免我们的自由受到侵蚀。” [在这里发表您对 CMS 的评论](https://www.federalregister.gov/documents/2021/11/16/2021-24949/determination-of-the-acting-omb-director-regarding-the-revised-safer-federal-workforce-task-force)。
-
-OSHA：要求拥有 100 名或更多员工的企业强制要求所有员工接种 COVID 疫苗的 OSHA 规定于 11 月 5 日生效。但是，在 11 月 16 日，OSHA 暂停了其关于工作场所强制性 COVID 疫苗接种和测试的紧急临时标准 (ETS) 的实施和执行。
-
-**在第五巡回上诉法院作出**[**长达****22****页**](https://na01.safelinks.protection.outlook.com/?url=https%3A%2F%2Fchildrenshealthdefense.org%2Fwp-content%2Fuploads%2F5th-Stay.pdf&amp;data=04%7C01%7C%7C78327c0d1280459a795408d9b5f78c37%7C84df9e7fe9f640afb435aaaaaaaaaaaa%7C1%7C0%7C637740897237681758%7CUnknown%7CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%3D%7C3000&amp;sdata=pZzBeeR%2BfcTWIMNf%2F7CuplWwoIfte%2FZZHAxgzg3%2BnWM%3D&amp;reserved=0)**的暂停裁决之后，该裁决称拜登政府的授权存在“致命缺陷”，并表示，职业安全与健康管理局应“在进一步的法院命令之前不采取任何措施来实施或执行该授权**。”
-
-CHD 呼吁 OSHA 延长公众意见征询的截止日期，并向公众提交关于该命令对安全、健康和经济影响的环境影响报告。
-
-美国参议院于 12 月 8 日[投票决定废除雇主授权](https://childrenshealthdefense.org/defender/senate-vote-repeal-biden-vaccine-mandates-employers/)，但该措施仍需提交给众议院。拜登暗示，如果该法案在参议院和众议院获得通过，他将否决该法案。
-
-在此处阅读有关 OSHA 实施拜登授权的计划的更多信息，然后[在此处发表您对 OSHA 的评论](https://www.regulations.gov/document/OSHA-2021-0007-0001)。
-
-**评论：这是关乎我们健康自由和未来的紧急行动，让我们拿起法律武器，用宪法保护我们的权利！行动起来，到这些相关网站发声！**
-
-**参考资料**：[childrenshealthdefense.org][Urgent: 3 Ways to Help Stop Biden’s Vaccine Mandates](https://childrenshealthdefense.org/defender/help-stop-biden-vaccine-mandates/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=73816dfa-7dfe-468a-b1c4-5ac2bc316bd4)
-
-* * *
-
-*审核：文乐*
-*校对 : 信心满满*
-*发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-3.jpeg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

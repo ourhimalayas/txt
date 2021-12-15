@@ -2,50 +2,55 @@
 ---
 
 
-## 为了增加人员配备一些医院取消了COVID-19疫苗强制规定
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1758564/)
+## 灭共者：地球是我们的一个支点
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1758596/)
 
-作者：查理·麦卡锡（Charlie McCarthy）
-发布日期：2021年12月14日
-新闻来源：NEWSMAX
-翻译：文虓Bobby
+**出品：纽约香草山设计部**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/121601.jpg)
 
-据《华尔街日报》报道，在一名联邦法官暂时叫停了美国总统乔·拜登(Joe Biden)对医护人员的疫苗强制授权后，美国一些最大的医院系统取消了对员工接种COVID-19疫苗的要求。
 
-11月30日，路易斯安那州的一名美国地区法院法官停止了对医护人员接种疫苗的强制要求。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-《华尔街日报》周一报道称，因此，HCA医疗保健公司(HCA Healthcare Inc.)和特尼特医疗保健公司(Tenet Healthcare Corp.)等医院运营商，以及冒险健康医疗（AdventHealth）和克利夫兰诊所(Cleveland Clinic)等非营利组织都放弃了这一要求。
 
-由于德尔塔变体导致COVID-19住院率上升，医院难以留住足够的护士、技术人员和清洁工。
 
-《华尔街日报》报道说，医院管理人员、公共卫生官员和护理团体说，疫苗强制接种是减少医护人员供应的一个原因。
 
-员工福利律师、美世咨询公司(Mercer)美国监管业务主管韦德•西蒙斯(Wade Symons)对《华尔街日报》表示:“这是一种大规模的离职潮，医疗行业的很多人都愿意货比三家（地找工作）。”
 
-“如果你有一些不需要疫苗的医疗机构，它们可能会吸引那些不想打疫苗的人。他们可能更容易吸引劳动力。”
 
-《华尔街日报》称，数千名护士离开了该行业或失去了工作，而不去接种疫苗。
 
-截至9月，美国疾病控制与预防中心(Centers for Disease Control and Prevention，简称CDC)对全美2,000多家医院进行的调查显示，其中30%的员工未接种疫苗。
 
-美国健康协会发言人哈洛·萨默福德（Harlow Sumerford）告诉《华尔街日报》:“我们继续强烈鼓励我们的同事接种疫苗，作为保护个人免受病毒感染的关键步骤。”
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-image0-2.jpg)Our prospect is not Earth bound, rather, it is beyond Earth. Our aim is to fly higher and farther, using Earth as the fulcrum. We will be the first community of people to be able to travel to outer space legally and safely, to enjoy and to explore the universe. 
+— Mr. Miles Guo, GTV livecast on Dec. 5, 2021![我们真正的视野不在地球上，是在地球之外，地球是我们的一个支点，我们想走得更高、更远！我们将是最早合法地、安全地飞向外星空去旅游、去享受、去探索宇宙的新族类。 
+— 2021年12月5日郭文贵先生GTV直播](https://assets.gnews.org/wp-content/uploads/2021/12/2-image1-1.jpg)我们真正的视野不在地球上，是在地球之外，地球是我们的一个支点，我们想走得更高、更远！我们将是最早合法地、安全地飞向外星空去旅游、去享受、去探索宇宙的新族类。 
+— 2021年12月5日郭文贵先生GTV直播![](https://assets.gnews.org/wp-content/uploads/2021/12/3-20211214-04.png)Among all G-Series products or resources, GTV is the king, and it will always be. 
+— Mr. Miles Guo, GTV livecast on Dec. 5, 2021![](https://assets.gnews.org/wp-content/uploads/2021/12/4-20211214__1.png)到现在所有的G系列资源里边，GTV是王，永远都是王。
+— 2021年12月5日郭文贵先生GTV直播![](https://assets.gnews.org/wp-content/uploads/2021/12/5-20211214-11.png)The NFSC deserves the greatest credit for the many countries’ boycott of the Beijing Winter Olympics. The CCP is utterly bankrupt internationally due to the boycott, in terms of individual political credibility and national credibility.
+— Mr. Miles Guo, GTV livecast on Dec. 8, 2021![](https://assets.gnews.org/wp-content/uploads/2021/12/6-20211214-09.png)冬奥会被灭，新中国联邦是独一无二的最大的功劳。中共冬奥会在国际上，个人政治和国家信用已经彻底破产。 
+— 2021年12月8日郭文贵先生GTV直播![](https://assets.gnews.org/wp-content/uploads/2021/12/7-20211214-12.png)We are here to tell all that the CCP has prepared the biggest “coffin” for the world, that is the coronavirus and the vaccine. The specter of communism is murdering all mankind. 
+— Mr. Miles Guo, GTV livecast on Dec. 8, 2021![](https://assets.gnews.org/wp-content/uploads/2021/12/8-20211214-07.png)我们就是要告诉全世界，共产党给世界准备了最大的棺材就是冠状病毒和疫苗，共产主义正在杀害全人类。 
+— 2021年12月8日郭文贵先生GTV直播
 
-即使在疫情之前，很多医院也因为工作倦怠而难以找到工作人员，而护士们则因为没有机会以短期合同的形式到国家热点地区寻找高薪工作而难以找到工作。
 
-美国地区法官特里·道蒂（Terry Doughty）裁定，医疗保险和医疗补助服务中心没有权力强制要求医护人员接种疫苗。这项法案影响了近1,000万工人，要求所有参加医疗保险和医疗补助计划的员工在1月4日前接种第二次疫苗。
+**编辑/发稿：小鹿**
 
-道蒂写道:“如果行政部门被允许篡夺立法部门制定法律的权力，我们的宪法赋予的三种权力中的两种将掌握在同一个人手中。”“如果说人性和历史教会我们什么的话，那就是当政府宣布无限期的紧急状态时，公民自由将面临严峻的风险。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-2.png)
 
-“在像这次这样的大流行期间，捍卫我们宪法中规定的三权分立，以避免我们的自由受到侵蚀，这就更加重要了。”
+**更多资讯，更多关注**
 
-据《华尔街日报》报道，美国医院协会估计，有2640家医院(占美国医院的42%)已要求接种COVID-19疫苗。
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[援引原文](https://www.newsmax.com/us/hospitals-covid-vaccine-mandate/2021/12/13/id/1048390/)
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-审核校对：玫瑰天空
-上传排版：糖果儿
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
 
  
 
