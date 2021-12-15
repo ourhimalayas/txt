@@ -2,71 +2,35 @@
 ---
 
 
-## 视频| 俄罗斯特使给中共的通报内容对习近平的打击
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1755825/)
+## 与中共勾结不会有好下场，哈佛大学教授面临审判
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1755857/)
 
-## 摘自2021.12.12郭先生大直播
+作者：香草山金融部 – 闲聊钱币
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
+哈佛大学一名研究纳米技术的教授，查尔斯-利伯（Charles Lieber），周二面临审判。他被指控参与了中共的“千人计划”，得到中共的资金扶持并向美国政府撒谎，隐瞒了上述事实。
 
-制作：香草山视频部
+检察官陈述利伯从2011年开始成为武汉理工大学的一名 “战略科学家”，并因此得到150多万美元的经费建立实验室，同时每月向他支付5万美元，外加15万美元的年度生活费。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture5-5.jpg)
+尽管62岁的利伯对六项指控均不认罪，案件最终结果也难以预测。但是他的命运可以从另一名“千人计划”的参与者55岁的张首晟离奇坠楼身亡，以及2008年同样坠楼身亡的任伟看出端倪。
 
+张首晟和任伟分别是物理和数学界的天才。他们的研究成果无论是在科技还是军事上都有着举足轻重的分量。然而他们都离奇的在马上要回国为中共效力的时候由于忧郁症跳楼自杀。
 
+跟着共产党，走进火葬场。这位研究纳米技术的教授恐怕知道太多了。
 
-俄罗斯派去的特使
-在官方通报了和俄美交流之后，告诉了中方
-在任何情况下，这对台湾是个好事啊，任何情况下
-你打台湾，我不会跟你一起
-这个对它(中共)是个致命的，很清楚，打台湾我不参与
-第二句话很可怕
-所有中俄之间签署的油、气的协议，你们必须执行
-这对习来讲，简直是巨大的羞辱啊
-他是联俄抗美，联俄收台
-这个战略关系是整个过去十几年
-世界局势变化的一切根本原因，这已经完了
-第三条是更让他接受不了的
-俄国和印度、北朝鲜、巴基斯坦、伊朗
-将形成一个新的联盟关系
-你看看，就没有共产党，而且明确的就没邀请你进去
-什么概念？
-这几个要联合起来跟美国讲数，咱们不打，咱交易
-说特别是俄罗斯反对中国在阿富汗干的事情
-俄罗斯历史一千年来，它最成功的就是它的外交
-说你在阿富汗这事儿干得不行
-阿富汗现在死太多人了，对我俄罗斯也不利啊
-阿富汗乱，车臣的回民就会跟它搞在一起
-所谓车臣恐怖分子就会再次崛起
-还有一个就是
-你跟美国和西方这种挑战，什么都可以…
-它认为中国内部，你的人权和你的整个企业经济情况
-让我们很失望
-言外之意你再给我钱也给不起了
-你们大家要意识到
-这对习在共产党的这种位置，一下子就是致命的打击
-他最成功的，他认为，2012(年)18大以来
-他认为我在全世界，中国人站起来了，这个狮子醒来了
-醒来的标志是什么呢？
-我敢跟美国人说不，我跟欧洲人说不
-我给他们开药方，我给他们把脉，他们还没人敢说不
-所以习这所有的感觉当中离不开俄罗斯
-一切起源于俄罗斯
-俄罗斯这次对他绝对是重锤的打击
+参考来源：[与中共勾结不会有好下场，哈佛大学教授面临审判](https://www.reuters.com/world/us/harvard-professor-charged-with-lying-about-china-ties-faces-trial-2021-12-14/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=14-12-21&amp;utm_campaign=14-12-21)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88-1.png)
 
-
-发稿：雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/M12.jpg)
+编辑/校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
  
 

@@ -2,37 +2,49 @@
 ---
 
 
-## 有声|Hcoin to the moon的打榜方式对现有规则的改写
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1755897/)
+## 有声|共产党对新中国联邦、顷一国之力的全面行动
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1755925/)
 
 配音：香草山美食部 – 玫瑰园
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-12.jpg)
 
 
 
-截至12月13日，郭文贵先生的打榜歌曲Hcoin to the moon及其MV版在全球最著名音乐排行榜上继续风靡。在12月12日的大直播中，郭先生谈到，打榜过程经历了中共的严厉封锁，但冲破了重重阻碍，几乎改写了歌曲打榜的全部规则。
+郭先生在12月10日大直播中明确表明:
 
-首先，歌曲的创作者和参与者并非全都是专业音乐人士，这让以音乐专业技巧为盈利手段的人群感到不悦；其次，歌曲的上榜渠道并非官方规定的渠道，这让各大音乐媒体背后的大资本感到不悦；再次，歌曲打榜的运作方式与传统方式不同，不以牟利为目的，彻底摆脱了资本的控制；最后，各奖项平台背后的大佬也深表不悦，认为这给他们带来了危险。日前，郭先生断然拒绝了好莱坞位居前三的某大佬的签约威胁，也预示着旧时代的垄断和规则已全部被颠覆。
+共产党对新中国联邦、爆料革命的恐惧, 已顷一国之力, 并采取一系列的全面行动:
 
-原文链接：[Hcoin to the moon的打榜方式对现有规则的改写](https://gnews.org/zh-hans/1753213/)
+一. 杨洁篪出来的第一个行动是在塞浦路斯抓了我们三个战友，关押12个战友，涉及战友上千人拿塞浦路斯护照。在非洲抓了10几个战友要遣返，中间说服西班牙，要遣返我们正在关押的大概6-7个战友. 对我们部分战友进行威胁，包括对国内战友进行诋毁, 绑架和打击.
+
+二. 零下四度，把郭先生老爹赶到马路上，把同事1000多个员工赶到马路上.
+
+三. 爆料革命当中有2-3个潜伏地很深的共产党的情报人, 要把加拿大，能投5亿，20亿，30亿的人都找出，所以大家在加拿大务必要小心.
+
+原文链接：[共产党对新中国联邦、顷一国之力的全面行动](https://gnews.org/zh-hans/1747842/)
+
 
 音频处理：喜山必胜Maverick
 
 发稿：Daxia
 
-![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-192.jpeg)
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/C63FEDBD-BD98-417E-9087-749CFBBB3C01.jpeg)
 
 
 

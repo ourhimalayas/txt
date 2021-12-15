@@ -2,59 +2,83 @@
 ---
 
 
-## 数据显示，Covid“疫苗”正在引发数十万人的精神疾病
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1755541/)
+## 所有独裁者最后干的唯一一件事 就是发动战争
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1755582/)
 
-2021 年 12 月 14 日，星期二
+[https://gtv.org/video/id=61b7febda68b4f4b28e82457](https://gtv.org/video/id=61b7febda68b4f4b28e82457)
 
-作者：Ethan Huffq
+**郭文贵**
+**Miles Guo**
 
-翻译：沉默老歌
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Coronavirus-Covid-19-Booster-Vaccine-Vials.jpg)图片来源：网络
-自然新闻：世界卫生组织（WHO）的 VigiBase 目前显示，至少有 121,559 名接种了武汉冠状病毒（Covid-19）疫苗的人现在患有一种或多种精神疾病。
+掌握共产党的历史和脉搏和内部的情报，和对共产党中心老杂毛的个人性格上的判断
+As long as you know the history, pulse and internal information of the Com-munist Party, and make right judgement according to the personal character of these top officials at the center of the Communist Party
 
-最常见的问题是失眠，其次是焦虑、“混乱状态”、睡眠障碍、“紧张”、“定向障碍”、“急性应激障碍”、“烦躁”、幻觉、抑郁、“情绪低落”、“惊恐发作、  ” “睡眠质量差”、“谵妄”、“激动”、噩梦、“异常梦”、饮食失调、“精神病”或“急性精神病”或“精神病行为”和抽动障碍。
+只要你准确了，咱永远是赢家，咱知道共产党内部怎么想的
+once you are accurate, we will always be the winner, we know what the Com-munist Party thinks internally
 
-VigiBase 还显示了 213 份注射后濒死体验报告、57 起自杀事件和 25 起“爆炸头综合征”病例，LifeSiteNews 将这种情况描述为“听到 [ing] 爆炸声、枪声或钹声等非常响亮的声音，仿佛 就在他们旁边。”
+当习近平这时候，下边都鼓掌了，好啊，太伟大了，你就是秦始皇
+When Xi Jinping was at there, everyone applauded for him, “okay, that’s goo great, you are Qin Shihuang(the first emperor in China)
 
-近 30,000 例注射后精神障碍病例也已报告给英国的不良事件报告系统英国黄卡。
+这个党没有你就完啦，所以说，你要继续干呢
+This party will be over without you, so you have to keep doing it”
 
-“已知导致 COVID-SARS-CoV-2 的病毒会引发强大的免疫反应，其中包括释放大量促炎细胞因子，”病例报告研究人员说。
+我告诉你，所有的独裁包括卡扎菲、萨达姆的都是被家人和身边最亲的人忽悠出来的
+Let me tell you, all the dictators including Gaddafi and Saddam were fooled by their family members and the closest people around them
 
-他们补充说：“有人假设 COVID-19 引发的细胞因子风暴可能会增加患精神病的风险，”并引用了 42 例与这种炎症有关的精神病病例报告。
+而且所有的独裁着，真的从过去编故事自己是神，看了神，到最后你真相信自己是神
+And all the dictatorships really made up stories from the past that they are God, and are blessed by God, really believe that they are God in the end
 
-看到所谓的“疫苗”如何在接受者中引发炎症反应，人们认为这是精神疾病急剧上升的原因。
+最后是灭掉神，自己代替神，然后最后是自己真心相信自己是神
+Finally, they get rid of God, replace God by themself, and finally they truly believe that they are God
 
-Covid“疫苗”是否会导致人们被恶魔附身？
+所有人都是这个死亡的步骤，今天你看到共产党的狂妄
+All of them follow this death procedure, today you look at the arrogance of the Communist Party
 
-结果表明，2018 年的一项研究发现，接种疫苗后血清白介素 6 (IL-6) 水平较高的大学生表现出一些最严重的抑郁症状。 当然，这是在 Fauci Flu 注射之前，但前提是相同的。
+第二条，杀基督教，杀新疆人，杀佛教、天主教、道教，全教拜一神，叫习太阳神
+The second, they kill Christianity, kill Uyghurs, kill Buddhism, Catholicism, and Taoism, and all religions worship to one god, it called Xi Sun God
 
-2017 年的另一项针对儿童疫苗记录的试点研究发现，被诊断出患有神经性厌食症、强迫症 (OCD) 和抽动症等神经精神疾病的儿童比健康儿童最近接种疫苗的可能性更高。
+而且大家要看到的经济问题，现在国内已经是房地产崩塌，银行崩塌
+Moreover everyone needs to see the economic problems, now domestic real estate has collapsed, and the banks have collapsed
 
-时间快进到现在，最近接受中国细菌注射的人正在医院充斥着各种被当局称为“covid”的奇怪的新疾病。
+这是一点都不用担心的，是吧，大量的一亿多人失业
+This is no doubt about that, right? there are more than 100 million people are unemployed
 
-例如，在圣地亚哥的夏普纪念医院，一名 20 多岁的健康年轻女性因排尿过多被紧急送往急诊室。 她的家人也对她睡不好，一直焦虑表示担忧。
+大量的商业关门，所有的85%的私人企业要归为国有
+A large number of businesses are closed, and 85% of all private companies are to be state-owned
 
-需要说明的是，这位年轻女性之前没有精神病史。 然而，她非常确信“新冠病毒”正在“关闭”她的肠道和肾功能，以至于她基本上失去了推理能力。
+这是所有的独裁者，阿明的乌干达，我再说的，卡扎菲、萨达姆、希特勒、斯大林
+This is all the dictators, like Amin of Uganda, I will repeat it again, Gaddafi, Sad-dam, Hitler, and Stalin
 
-事实证明，来自白宫和主流媒体的所有心理恐怖主义都让这个可怜的女孩相信她的身体是因为某种无形的病毒而衰竭的。
+所有人干的统一一件事儿，企业国有化，个人神圣化，宗教彻底被消灭，媒体彻底被控制
+One thing everyone does is the nationalization of enterprises, personal sanctifi-cation, religion is completely eliminated, and the media is completely controlled
 
-第二天，同一个年轻女子回到医院，抱怨听到“指责的声音”。 血液检查显示，她前一天有两次肝酶升高和高血压。
+然后唯一最后选项发动战争，而且不是它意志为转移的
+Then the only last option for them to start a war, and it’s doesn’t depend on its will
 
-后来，这名年轻女子被发现赤身裸体在病房里，大便满地。 看来，“疫苗”使她被恶魔附身并完全精神错乱。
+习现在想不发动战争都不可能
+Now it’s impossible for Xi not to start a war
 
-医生试图给她服用精神药物，但问题只会变得更糟。 据报道，在最终遭受严重癫痫发作之前，她变得“越来越精神错乱”和紧张症。
+**原视频链接**:[https://gettr.com/post/pjh1kbe8be](https://gettr.com/post/pjh1kbe8be)
 
-LifeSiteNews 报道说：“她的记忆完好无损，这位年轻女子回答了医生的问题，但只是简短的句子，用单调的扁平声音。”  “她昏昏欲睡，紧张症的症状挥之不去。 她可以走路，但很慢，而且必须被提示而移动。”
+Date:12/12/2021
+**原视频标题:** 所有独裁者最后干的唯一一件事 就是发动战争
+The only thing that all dictators did last was to start a war
+原视频日期：2021/12/10
+**原视频链接**https://gettr.com/post/pjh1kbe8be
+任务编号：3204
+视频时间段 : 0:00-2:06
 
-来源链接：
+中听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 -天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[https://www.afinalwarning.com/575572.html](https://www.afinalwarning.com/575572.html)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-编辑/发布：LILY
-
-20211214
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

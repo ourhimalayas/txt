@@ -2,32 +2,24 @@
 ---
 
 
-## 雷军，退出小米你还好么？
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1755544/)
+## 美国商务部部长的丈夫在一家获中共资助的科技公司担任高管
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1755587/)
 
-【**国内新闻短评**】
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-639.png)
+翻译：zzballack
+追着曙光跑
 
-**据新浪财经2021年12月4日报道，雷军退出多家小米关联公司。**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/ahkfd-mo0hw.jpg)**图片来源：快科技**![](https://assets.gnews.org/wp-content/uploads/2021/12/5-unknown.png)**图片来源：新浪财经网**![](https://assets.gnews.org/wp-content/uploads/2021/12/56unknown.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/54unknown.png)
-**短评：**
+据《华盛顿自由灯塔》（Washington Free Beacon）12月14日报道，将美国现任商务部长吉娜·雷蒙多 (Gina Raimondo)的丈夫安迪·莫菲特 (Andy Moffit)列为其首席人力资源官、位于美国马萨诸塞州的人工智能公司PathAI，其主要投资者之一是在中共财政支持下建立的风投公司丹华资本（Danhua Capital）。当美国商务部致力于在国际舞台上对抗中共时，这会构成潜在的利益冲突。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Image-2021-12-15-at-09.01.25.jpeg)图片来源：原新闻
+总部设在美国加州的丹华资本至少从2017年开始投资PathAI，当时它与其他五个出资人一起为这家人工智能初创公司提供了价值1100万美元的种子资金。目前还不清楚丹华资本在PathAI这家私人公司中投资了多少，但这家中共公司在其网站上将PathAI列为其特色的“生物技术和健康”投资之一。
 
-**圣经说“有人打你的右脸，连左脸也转过来由他打”，能做到这点的人都成了神。中共国民营企业家已经超越了神，他们确实是中共的“白手套”，但当多年积累的心血被夺走的时候，他们不仅笑脸相送，还继续为党国唱赞歌。更为神奇的是，这些被中共剥夺资产的民营企业家，被踢出公司和董事会的时候，都给出了相当充分的理由，为了理想或者情怀做其他的事情。真的是达到“被党国强奸还要自己喊高潮”境界了。**
+根据《路透社》在2018年的一篇报道，丹华资本是在中共政府的帮助下建立并获得资金的，是其“渗透到硅谷（penetration of Silicon Valley）”战略的一部分。智库新美国安全中心（CNAS）在2018年向国会作证说，丹华资本的任务是利用其资本来缩小中共和美国之间的技术差距。另一家智库信息技术与创新基金会（Information Technology and Innovation Foundation）的主席罗伯特·阿特金森 (Robert D. Atkinson)曾在参议院小企业委员会作证说，丹华资本是由北京市国企中关村发展集团（Zhongguancun Development Group）支持建立的，以推动“中关村资本走出去，引进海外先进技术和人才”的战略，并在海外进行影响力活动。
 
-**雷军有句名言“Are You Ok！？”，之前马云、马化腾、马明哲、周焯华被党国镰刀收割的时候，雷军保持沉默，这次轮到他做韭菜的时候，再也没有人问他是否“ok”了。雷军也是一样，他去做自动驾驶汽车了。有一个疑问萦绕在我心中：国内新能源汽车市场已经日趋饱和、人均收入下降，小米再生产这么多汽车，就算是新能源汽车，哪里有人要买，买了以后哪里有油可用？真的能开上路么？这个回答也许墙内民众相信，但是雷军自己信么？有点常识和生活经历的人信么？最后真心问一句：退出小米，雷军你还好么？真心希望你真的还好。**
+雷蒙多在拜登政府任职时签署了道德协议（ethics agreement），这将禁止她参与任何可能对“PathAI的财务利益产生直接和可预测影响”的事项。雷蒙多的财务披露表显示，她将从该公司的成功中大大受益。除了年薪之外，她丈夫莫菲特还获得了大量的公司所有权股份以及股票期权，这近20万股股票的价值目前无法估量。
 
-**中共掠夺他们的企业。**
+作为商务部长，雷蒙多的任务是管理美国与全球各国的商业关系，她现在是拜登政府中的亲中共代表之一。她在9月份接受《华尔街日报》采访时说，美国应该加强与中共的经济关系，与中共“强有力的”商业交往将“缓解与这个全球竞争对手的任何潜在紧张关系”。《华尔街日报》12月9日报道说，当拜登政府中的某些人试图阻止中共科技公司与美国公司合作时，却遭到了雷蒙多所在机构的回击。报道称，商务部官员在内部争论中说，政府对中共采取更强硬的态度会伤害美国公司。雷蒙多12月9日表示，尽管拜登总统因人权侵犯问题对北京冬奥会进行外交抵制，但她不会向美国公司施压，敦促它们撤回对冬奥会的赞助。除此之外，今年8月，商务部还批准了华为购买价值数亿美元汽车芯片的许可申请，以缓解其芯片危机。
 
-**文章观点仅代表作者个人，与Gnews平台无关**
-
-**链接：**[https://finance.sina.com.cn/chanjing/gsnews/2021-12-14/doc-ikyamrmy8779741.shtml](https://finance.sina.com.cn/chanjing/gsnews/2021-12-14/doc-ikyamrmy8779741.shtml)
-
-评论：洛杉矶盘古农场 — Poplar
-编审：洛杉矶盘古农场 — 心照
-发布：洛杉矶盘古农场 —彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+原新闻链接：[Commerce Secretary’s Husband Is Top Executive at Tech Firm Funded by Chinese Government](https://freebeacon.com/biden-administration/commerce-secretarys-husband-is-top-executive-at-tech-firm-funded-by-chinese-government/)
 
  
 
