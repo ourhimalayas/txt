@@ -2,50 +2,121 @@
 ---
 
 
-## 美国铁路暂停对员工进行疫苗强制接种
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1756898/)
+## 美国中期选举后，十招出手对付中共
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1756979/)
 
-**翻译：Lulumi**
+[https://gtv.org/video/id=61b8dcaea68b4f4b28e86cb8](https://gtv.org/video/id=61b8dcaea68b4f4b28e86cb8)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip07-4.png)2015年9月3日，马里兰州新卡罗尔顿的一列美铁列车上，一名列车员发出信号。(Alex Wong/Getty Images)
+我说2022年WTO基本结束
+Digo que la OMC básicamente terminará en 2022
 
-客运铁路运营商Amtrak（美国铁路）周二表示，它将暂停对员工的COVID-19疫苗接种强制任务，并预计1月份的服务将不再中断。
+2022年年底前
+Antes de finales del año 2022
 
-Amtrak首席执行官比尔·弗林在《大纪元时报》获得的一份备忘录中说，没有接种疫苗的员工可以选择接受测试。他说只有不到500名Amtrak员工没有接种疫苗。
+你们会听到这个消息
+Escucharán esta noticia
 
-弗林写道，影响Amtrak决定的是联邦法院最近的一项命令，即“停止对联邦承包商执行行政命令”，这导致该公司重新评估其对疫苗规定的政策。
+2023年5月份以前
+Antes de mayo de 2023
 
-弗林说，这意味着Amtrak将恢复它在8月宣布的原始疫苗任务，允许对未接种疫苗的员工进行定期测试。这将允许“进行测试作为接种疫苗的替代方案”，备忘录说。
+SWIFT很有可能也可能是下几个月
+Swift probablemente o podría ser en los próximos meses
 
-备忘录还说，Amtrak的员工“如果被要求提交测试而没有这样做的话，最初将会被安排无薪休假”。
+2023年5月份以前应该能停, 它跟美国的中期选举有绝对的关系
+Antes de mayo de 2023 posiblemente pueda paralizarse, absolutamente tiene relación con las elecciones de medio mandato de EE. UU
 
-Amtrak是一家接受一些联邦资金的准公共公司，定于下个月终止雇用约500名未接种疫苗的员工，并预计削减服务。Amtrak总裁斯蒂芬·加德纳上周在众议院的听证会上作证说，他预计会削减服务，因为铁路运营商没有足够的员工来运营所有的列车。
+我们保守的说, 就美国中期明年年底10月份选举完
+De manera conservadora, decimos que las elecciones se finalizarán en octubre a finales del próximo año
 
-但随着周二的决定，服务削减可以避免，弗林说。
+一定是上去十招, 这十招绝对会打出来
+Debe haber diez trucos para subir, estos trucos definitivamente saldrán
 
-弗林说：“在根据这些变化审查了我们的系统服务计划后，我们预计1月份不会有全系统的服务影响。”
+那时候你会看到班农大师
+En ese momento verás al maestro Bannon
 
-弗林补充说，他的公司“将继续根据需要更新其疫苗政策，并遵循最新的健康和安全指导。鉴于最近的法院判决和持续不断的大流行病，我们相信最近的这些变化是适当和谨慎的”。
+我们这位战友, 还有我们背后的这些国防的力量的战友
+Nuestro compañero luchador, así como detrás de nosotros están los compañeros luchadores de la fuerza de defensa
 
-当被要求对Amtrak周二的决定发表评论时，白宫新闻秘书詹·普萨基告诉记者，绝大多数工人都已经接种了疫苗。她说：“他们正在努力工作，以确保有足够的员工在工作。”
+都会发挥绝对的力量
+Manifestarán la fuerza absoluta
 
-同时，行业领导人对美国铁路公司决定撤销其疫苗强制令表示欢迎。
+绝对振臂高呼, 没有任何人
+Ninguna persona, absolutamente levantarán los brazos y gritarán fuertemente
+它绝对是十招
+Seguramente son diez trucos
 
-铁路乘客协会主席兼首席执行官吉姆·马修斯在给新闻机构的一份声明中说：“Amtrak公司正在做正确的事情。这在不影响安全的情况下解决了问题。如果每个人都接种疫苗，列车员和乘客每个人都是最安全的。但是，Amtrak公司的员工有巨大的疫苗接种数量，这是他们的功劳。”
+现在这十招都在制定中
+Ahora estos trucos están en proceso de desarrollo
 
-作为几周前通过的基础设施法案的一部分，国会批准为铁路提供660亿美元，Amtrak将获得220亿美元和360亿美元的竞争性拨款。但Amtrak在COVID-19中共病毒大流行期间看到需求下降，加德纳上周告诉众议院小组，目前的需求量约为大流行前的70%。
+第一个就是把它SWIFT停了
+El primero es paralizar al Swift
 
-**新闻来源**：[**theepochtimes.com**][Amtrak Suspends COVID-19 Vaccine Mandate for Employees: Chief Executive](https://www.theepochtimes.com/mkt_breakingnews/amtrak-suspends-covid-19-vaccine-mandate-for-employees-chief-executive_4157319.html?utm_source=newsnoe&amp;utm_medium=email&amp;utm_campaign=breaking-2021-12-14-4&amp;mktids=197d643a075676b55797332d55ce4040&amp;est=iMnpUcnc8B7n3lhybkp6ZAdBfg2pL9lS8Q5F7osQv73s%2F9Jd3IqVkFbeadHI0bVejcb5c7o%3D)
+然后把这个WTO停了
+También a la OMC
+
+世界卫生组织肯定给它踢出去
+La Organización Mundial de la Salud debe echarlo
+
+这是联合国马上就要宣布, 联合国不能是它一家代表
+Pronto será el anuncio de la ONU, y la ONU no puede ser solo él el representante
+
+或者是不让它代表中国
+O no puede ser representado por China
+
+希望那个时候习太阳还活着
+Espero que en aquel tiempo el sol, Xi sigue vivo
+
+它的太阳还真能发光
+Su sol pueda seguir brillando
+
+说老实话
+Hablando sinceramente
+
+我有50%以上
+Tengo más del 50%
+
+原来是50%以下
+Antes era menos del 50%
+
+我认为习是能撑过2023到2025
+Pensaba que Xi puede resistir de 2023 al 2025
+现在超过50%, 我认为它根本到不了2025
+Ahora supera el 50%, creo que él no podrá llegar al 2025
+
+共产党100%过不了2025
+El Partido Comunista 100% no pasará el 2025
+
+100%, 我没有说过这话
+100%, nunca había dicho esto
+
+这次我有100%信心它过不了2025
+Esta vez tengo el 100% de confianza que no pasará el 2025
+
+这十招所有的决策就包含这个
+Todas las decisiones de estos diez trucos incluyen este
+
+谢谢
+Gracias
 
 * * *
 
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
+日期：12/14/2021
+原视频标题：美国中期选举后，十招出手对付中共
+Después de las elecciones de medio mandato en los Estados Unidos, habrá diez trucos para lidiar con el PCCh
+原视频日期：12/11/2021
+原视频网址：[** https://gettr.com/post/pje2ska5b2**](https://gettr.com/post/pje2ska5b2)
+任务编号：KC339(3184)
+视频时间段：0:00-01:34
+西听校：洛杉矶盘古农场-霙霙（文霙）
+翻译：洛杉矶盘古农场-小文萱
+翻译终校：洛杉矶盘古农场-霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场- 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-2.jpeg)
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

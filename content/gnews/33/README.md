@@ -2,35 +2,34 @@
 ---
 
 
-## 美商務部長老公就職的公司曾兩次獲得來自中共風投公司的註資
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1756448/)
+## 阿联酋有意暂停购买美国230亿美元的F-35战机和死神无人机
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1756899/)
 
-撰稿：Jenny
-![](https://assets.gnews.org/wp-content/uploads/2021/12/IMG_2364.jpg)网络截图
-据《华盛顿自由灯塔》披露，美国商务部长吉娜-雷蒙多(Gina Raimondo)的丈夫[安德鲁·莫菲特](https://www.google.com/search?sxsrf=AOaemvI9uBINIR5XQ0zfTVpD9XUycb7lTA:1639546889743&amp;q=%E5%AE%89%E5%BE%B7%E9%B2%81%C2%B7%E8%8E%AB%E8%8F%B2%E7%89%B9&amp;stick=H4sIAAAAAAAAAOPgE-LSz9U3SDLLNbCsVOLVT9c3NEwqySopKrew0JLITrbSL0jNL8hJBVJFxfl5VsUF-aXFqYtYRZ6u63y6b_vLTY2Htr_oW_2if9Pzzp07WBkBa86vKVEAAAA&amp;sa=X&amp;ved=2ahUKEwij8NGPjOX0AhVcUGwGHaGDBYgQmxMoAXoECCEQAw)(Andrew Moffit)在一家名为PathAI的人工智能公司就任高管，这家公司的主要投资者“丹华资本”（ Danhua Capital）则是来自于中共政府支持的风险投资公司。
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/F35-middle-east-UAE.jpg)图片来源：The Drive
+**翻译：**不要代表我
+**编辑：**翼族
 
-丹华资本是在中国政府的帮助下资助和建立的，由北京的国有企业中关村发展集团成立，其战略目的是推动’中关村资本走出去，引进海外先进技术和人才’。是其 “渗透到硅谷 “计划的一部分。自由派智库新美国安全中心（CNAS）在2018年向国会作证时说，丹华资本的使命是利用其资本来缩小中国和美国的技术差距。
+在川普政府执政的最后阶段，阿联酋与美国达成的价值230亿美元的军购协议将为洛克希德·马丁公司（Lockheed Martin，制造F-35）和通用原子公司（General Atomics，制造MQ-9无人机）带来巨大的收益新来源。
 
-PathAI多次从丹华资本获得资金。2017年，丹华资本加入投资者行列，使PathAI的总融资额达到1500万美元。2019年，该公司至少筹集了6000万美元，丹华资本再次被列为投资者。
+但根据《华尔街日报》报道，阿联酋现在有了新的想法，该国有意暂停向美国购买价值230亿美元的F-35战机和MQ-9B（死神）无人机。该国一位政府官员在宣布暂停（此项军火协议）时说，“基于技术要求、国家主权管理限制以及成本/效益分析，导致该项协议需要重新评估”。
 
-**这位部长所领导的商务部正致力于在世界经济舞台上与中共国抗衡，这是否有潜在的利益冲突？引起民众普遍关注。**
+造成协议暂停的原因可能是美国要求采取深入广泛的保障措施，以防止中共人民解放军的情报人员接触研究F-35战斗机。美国对中共可能利用阿联酋作为收集F-35情报渠道的担忧已不是新闻。近年来，阿联酋加强了与中共的关系，欣然无视后者对维吾尔族穆斯林的种族灭绝行为。
 
-雷蒙多和PathAI都没有回应关于丹华资本投资的评论请求。作为商务部长，雷蒙多的任务是管理美国与全球各国的商业关系，而她已经成为政府中最亲中国的声音之一。
+在与中共可能发生的任何战争中，美国空军、海军和海军陆战队都将使用F-35战斗机作为其空中战斗力的核心。反过来，美国不能冒险让F-35的技术落入中共手中。如果没有足够的保障措施，中共情报人员将可能会利用他们随时进入阿联酋的特权，查验F-35的目标探测，并窃取其技术。
 
-雷蒙多在9月份接受《华尔街日报》采访时说，美国应该加强与中国的经济关系，认为与中国 “强有力的 “商业交往将 “缓解与这个全球竞争对手的任何潜在紧张关系”。
+这将对美国空勤人员在战争中的生存能力，以及美国军队的作战和获胜能力构成不可容忍的威胁。因此对于美国来说，如果阿联酋不能提供足够的承诺，那么美国应该取消这笔交易，无论其采取何种暂停行动，因为这里涉及的利害关系，远不止是利润丰厚的贸易问题。
 
-其实，今年三月份，新上任的吉娜·雷蒙多(Gina Raimondo)及其丈夫通过交易基金持有微信母公司腾讯控股的金融股份的新闻已经引发争议，拜登政府正在审议川普政府对中（共）国科技巨头腾讯的禁令，因此雷蒙多持股是否存在利益冲突受到关注。
+**原文链接：**[The UAE puts China first and gives Macron his AUKUS revenge](https://www.washingtonexaminer.com/opinion/the-uae-puts-china-first-and-gives-macron-his-aukus-revenge)
 
-雷蒙多的商务部还为华为提供了一条生命线，8月商务部批准了华为购买价值数亿美元的芯片的许可申请，以满足其对汽车行业日益增长的兴趣。
+*发布：翼族*
 
-这位部长并不是唯一家庭成员与中共的利益捆绑的拜登政府官员，这使得对中国即将举办的冬奥会进行外交抵制的计划变得更复杂。同时，美国政府与中共经济脱钩的战略部署由这么一位亲共派商务部长执行是否会打折扣？我们拭目以待。
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-[原文链接：](https://freebeacon.com/biden-administration/commerce-secretarys-husband-is-top-executive-at-tech-firm-funded-by-chinese-government/)
-
-[部分引用：](http://www.bayvoice.net/gb/news/us/2021/03/07/1016486.htm%E7%BE%8E%E5%95%86%E5%8A%A1%E9%83%A8%E9%95%BF%E6%8C%81%E8%85%BE%E8%AE%AF%E8%82%A1%E4%BB%BD-%E6%98%AF%E5%90%A6%E6%9C%89%E5%88%A9%E7%9B%8A%E5%86%B2%E7%AA%81%E5%BC%95%E5%85%B3%E6%B3%A8.html)
-
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

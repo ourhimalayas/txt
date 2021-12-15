@@ -2,135 +2,41 @@
 ---
 
 
-## 干掉共产党以后中国必须三个独立
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1756921/)
+## 红码绿码随缘，中共疫情防控如儿戏
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1757004/)
 
-[https://gtv.org/video/id=61b8dc47a68b4f4b28e86ca3](https://gtv.org/video/id=61b8dc47a68b4f4b28e86ca3)
+撰稿：二号电梯
 
-这你要看到孙中山、李大钊、张国涛、共产党、袁世凯、蔡锷
-Tienes que ver a Sun Zhongshan, Li Dazhao, Zhang Guotao, el PCCh, Yuen Shikai, Cai E
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture1-12.jpg)
 
-从1912年到1949年这个中间的变化
-Los cambios que tuvieron desde el año 1912 hasta 1949
+图片来自网络
 
-我们要干掉了大清朝就共产党
-Debemos destruir el Imperio del Gran Qing, sólo el PCCh
+这几天浙江这边这个中共疫情防控又开始严起来了，各个小区又开始封闭了，各个场所进出又要查健康码了。但是中共的所谓疫情防控有多扯淡，我先跟大家分享两个事情，请大家判断。
 
-绝不允许再出现天真的孙中山
-No se permitirá que aparezca otro inocente Sun Zhongshan
+第一个事情是我今天早上看到一位杭州宝妈发的一个贴子，这个帖子内容如下：
 
-也不允许说炮制什么这样那样的, 蒋介石、国民党、辛亥革命等
-Tampoco se permite formular de ninguna manera, Jiang Jieshi, Kuomintang y la Revolución de Xinghai
+“早上起来，就收到杭州健康码信息，赶紧打开健康码，完了！居然是红码。瞬间心情跌落谷底，全家人都不能出去了，孩子也请假在家待着。打电话给社区报备后，左思右想也不知道自己为啥变成红码，自己天天三点一线生活，周围的相处的同事邻居问了一圈，也都是绿码啊。在家整整待了一天，期间支付宝申诉了两次，给社区打过三次电话，因为是红码，社区人员回答没办法带出去做核酸检测。晚上九点多再打开支付宝，竟然奇迹般的又变回绿码了，瞬间高兴死了，终于能出去了，孩子也可以去上学了！这一天过得，好像杭州最近这样的事例还不少，大数据也有犯迷糊的时候。”
 
-这一切我跟你说根本不, 不允许
-Todo esto, yo te digo que no se permite
+这个帖子下面还有很多的评论，其中不少都谈到他们碰到了同样的事情，绿码莫名其妙的变成红码，又莫名其妙地变回绿码，飘忽不定。
 
-我们会秒杀一切上来想夺取政权
-Nosotros mataremos en un segundo todo el que quiera tomar el régimen
+第二个故事呢，是我一个朋友的亲身经历。我这个朋友的公司所在楼层发现了一个所谓确诊病例，所以他们整幢大楼被即时封闭了起来，所有的人不得离开大楼，我的朋友跟他的同事，几十个人，晚上都睡在办公室地板上。按照中共以往的做法，不管什么地方，居民楼也好，办公楼也好，只要发现确诊病例，整幢的人都会被拉去集中隔离！运气好的被拉去隔离酒店，运气差的就被拉去简陋的方仓！隔离14天，期间要做三次以上核酸，然后才会解除隔离。
 
-然后就诞生了共产党, 来个苏维埃
-Entonces nació el Partido Comunista, vino un República Soviética de China
+但是这一次我朋友，他们整幢楼的人都要求在办公室就地隔离，没有拉去集中隔离，而且他们这次只隔离了7天，不是14天，就通知他们全部离开办公室！但是问题就来了，当地政府要求他们回到家里以后继续隔离7天。但是他是红码，如果他在家隔离7天的话，他的家人也必须在家隔离7天，这七天都不能出家门半步的，中共会在他家门上贴一个封条，在门口装上摄像头，装上那个动态警报器，楼下会有人看着！我朋友考虑到小孩子要上学，不可能跟他在家隔离，所以他就跟他家人商量，让他妻子带着小孩子去住宾馆，他自己一个人在家里隔离。但是他妻子顾虑到手头拮据，不愿意去宾馆住一个礼拜。在杭州起码两三千人民币，还不包括吃饭，中共又不给你承担这个费用。这就让他们很为难。后来幸亏有一个熟悉的朋友，同情他们的艰难处境，愿意接他的孩子到他家里去住，不影响上学。我朋友夫妻两个人就在家里隔离七天。
 
-你很有可能美国各国各政党派去一个什么新的什么党
-Es muy probable que envíe un nuevo partido de varios partidos políticos en los Estados Unidos
+从这两个故事上，你可以看出中共的防疫措施有多扯淡。
 
-背后是他们的力量控制中国人民
-Detrás está su poder para controlar al pueblo chino
+第一个事件中可以看出，绿码变红码，红码变绿码，它完全是随缘的，毫无依据的，像儿戏一样。这个红码绿码对老百姓的出行，生活都是有重大关系的，中共去搞得像小孩子过家家一样。
 
-我们未来一定会让全世界你没有任何选择
-Definitivamente en el futuro no te dejaremos ninguna opción en el mundo
+第二个事情，一会儿隔离14天，一会儿隔离七天，一会儿就地隔离，一会儿去集中隔离，也都是随心所欲。按常识，这么严重的疫情之下，所有的应对措施应该是经过深思熟虑制定出来的，不管是哪个机构都必须严格按照这个应对措施来执行的，可中共各地的应对办法，就感觉是玩游戏一样，隔离几天，去哪隔离，完全看当局官员心情处置！
 
-中国人一人一票
-Un voto por cada chino
-选出我们的政权
-Para escoger nuestro régimen
+可见中共的所谓疫情防控，这完全就是一场作秀！只是苦了老百姓，被他们各种玩弄而不觉！
 
-共产党没了之后的中国
-El después de China será sin el PCCh
+参考消息：
+[杭州宝妈过山车的一天](https://m.toutiao.com/is/R3PEMXC/)
 
-一定不会成为军阀割据
-No se convertirá en un régimen separatista de los caudillos
+发稿： Hong
 
-台湾、香港、新疆、西藏、包括广东
-Taiwán, Hongkong, Xinjiang, Tíbet, incluyendo Guangdong
-
-我们一定要叫
-Nosotros debemos
-
-大家知道一个新中国联邦制
-Hacer saber a todos un sistema del Nuevo Estado Federal de China
-
-这是一定的
-Esto es seguro
-
-这个过程一定会发生的
-Este proceso seguro sucederá
-
-就是中间这个过程又会再来
-Sólo que durante este proceso volverá a pasar
-
-但我们就是杜绝再有一个所谓的苏维埃共产党
-Pero nosotros le pondremos el fin para que no haya otro supuesto Partido Comunista Soviético
-
-骗取中国人民的政权
-Defraudando el poder del pueblo chino
-
-忽悠中国人民说给你们美国式的民主生活
-Vacilar al pueblo chino diciendo que te dará una vida democrática al estilo estadounidense
-
-所以说当等到下一步共产党被灭以后
-Por eso, el próximo paso luego de extinguir el PCCh
-
-我们要中国人必须三个独立
-Nosotros haremos que los chinos tengan 3 cosas independientes
-
-人格、宗教、信仰、法律
-Personalidad, religión, creencia y ley
-
-这一块儿要独立
-Todo esto hay que independizarlo
-
-这咱算一条
-Esto lo contamos como el primero
-
-第二条就中国人的思维
-El segundo, la forma de pensar de los chinos
-
-和说话的言语自由, 它必须独立
-Y la libertad de expresión, debe ser independiente
-
-第三个咱们中国人要记住
-El tercero, nosotros los chinos debemos recordar
-
-要跟国际上所有的关系
-Internacionalmente todas las relaciones
-
-中国人国家必须是独立
-El país de los chinos debe ser independiente
-
-不能受任何黑暗势力摆布包括这个华尔街什么好莱坞
-No puede ser manipulado por ninguna fuerza oscura, incluyendo el Wall Street o Hollywood
-
-* * *
-
-日期：12/13/2021
-原视频标题：干掉共产党以后中国必须三个独立
-Después de destruir el Partido Comunista, China debe tener tres cosas independientes
-
-原视频日期：12/11/2021
-原视频网址：[** https://gettr.com/post/pjed5p3e4c**](https://gettr.com/post/pjed5p3e4c)
-任务编号：KC338(3183)
-视频时间段：0:00-02:01
-西听校：洛杉矶盘古农场-小文萱
-翻译：洛杉矶盘古农场-霙霙（文霙）
-翻译终校：洛杉矶盘古农场-小文萱
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布 ：洛杉矶盘古农场-恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-1.jpg)
 
  
 

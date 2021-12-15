@@ -2,35 +2,31 @@
 ---
 
 
-## 西班牙是唯一将台湾人引渡到中共国的西方国家
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1757086/)
+## 有声|2亿8000万阿富汗食品医疗援助得到批准
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1757212/)
 
-**翻译：七龙珠**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip12-2.png)图片来源：elcomercio.es
-非政府组织“保障卫士”（Safeguard Defenders）的一份报告中，强调了西班牙马德里是北京对“流氓省份”（台湾）的岛屿主权的战略作用中的帮凶。
+配音：香草山美食部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+多家捐赠机构共同批准了一项对阿营养和健康援助的计划，将2亿8000万之前被冻结的基金转移至联合国儿童基金会UNICEF及世界粮食计划World Food Program (WFP），用以帮助这个经济崩溃面临饥荒的国家。
 
-西班牙不承认台湾是一个主权国家，并经常将本国描述为“中共国在欧洲最好的朋友”。这种情况产生了一个意想不到的后果：西班牙已成为唯一一个将被指控“违法”的台湾人引渡到中共国的欧洲国家。具体而言，在2016年至2019年期间，它将219名前“福摩萨”的公民驱逐到中共国，其中大多数人被指控参与电话欺诈，这使西班牙成为世界上在电话欺诈方面与中共国司法合作最多的国家，超过了柬埔寨、菲律宾或亚美尼亚，也是欧洲集团内唯一这样做的国家。
+由世界银行管理的阿富汗重建基金，将给与1亿8000万至WFP，用来保证食品安全和营养工作，其余1亿交由UNICEF以提供关键卫生服务。
 
-这是非政府组织“保障卫士”在调查了600个案件后发表的报告《中共国在海外追杀台湾公民》的结论。该组织谴责这些驱逐行动违反了国际法，并危及被引渡者，由于台湾是一个事实上的独立国家，被引渡者无法获得领事咨询或家人和朋友的支持，他们的基本权利容易受到侵犯，并时常伴随着酷刑，这是中共国的自动拒绝请求法律的充分依据。“在某些情况下，在抵达中国后，他们甚至被拒绝与台湾官员或亲密家人伙伴接触。”报告指出，台湾的主权被越来越多的国家承认，面对世界第二大国的崛起，引渡成为北京破坏台湾主权战略的一部分。
+在美国撤军塔利班接管后，阿深陷经济和人道危机。联合国警告有55%的人口，约2300万人面临极度饥饿，其中900万人在冬季有饥荒风险。在过去20年间阿富汗高度对外依赖，但美国和其他援助机构已经切断了经济支援，90亿阿海外美金资产遭遭冻结。使用重建基金，并透过联合国渠道，似乎可以在实施人道救援的同时不违反美国队塔利班的制裁。
 
-该非政府组织对西班牙当局与中共国当局合作感到失望，西班牙当局尚未对该组织的信息请求作出回应。“我们对西班牙处理和批准引渡请求的速度感到惊讶，尽管连联合国都警告过其中的危险”，保障维权者组织主任彼得-达林解释说，他是一名瑞典人，在中共国曾是电视逼供的受害者，并广泛记录了中共政权的司法不公。
+文字版原文：[2亿8000万阿富汗食品医疗援助得到批准](https://gnews.org/zh-hans/1754691/)
 
-“而我们更惊讶的是，西班牙协助中共违反了一项具有约束力的条约，该条约规定台湾人必须被引渡到台湾”。达林补充说：“我们想知道政府和法院是否了解这个条约——《海峡两岸犯罪控制和司法互助联合协议》？”
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-中共国方面认为，在不承认台湾是一个主权国家的情况下，该岛的公民是属于中共国的，应该被引渡到中共国境内，根据中共国大陆的法律进行起诉，而中共国大陆的法律与台湾明显不同，台湾实行的是三权分立的民主制度，中共国是独裁，三权集中无民主制度。
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-**新闻来源**：[elcomercio.es][España es el único país occidental que extradita taiwaneses a China](https://www.elcomercio.es/internacional/espana-unico-pais-20211215161633-ntrc.html)
-
-* * *
-
-***审核：Aries的星
-校对：阿伯塔
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-2.jpeg)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
