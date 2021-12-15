@@ -2,28 +2,36 @@
 ---
 
 
-## 安倍再次警告中共对台动武就是自取灭亡
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1755979/)
+## 郭先生新歌再创佳绩
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1756090/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-172.png)[图片来源](https://thetaiwantimes.com/taiwan-through-japanese-eyes-pt-i-mangoes-3c/)
-日本前首相安倍晋三在 “台美日三边印太安全对话”研讨会上发表讲话时说，软弱会招致挑衅，但民主会带来持久的力量。当美国、日本和其他伙伴们与台湾一起汇集民主的强大力量时，中共国军事上的冒险行为只会自取灭亡。
+作者：纽约香草山教育部 – Irene木木
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-35.png)
+12月14日，郭文贵先生在盖特平台上再次向爆料革命的战友通报关于新歌打榜的好消息：最新单曲《HCoin to the moon》连续两周蝉联“公告牌”世界数字歌曲销售排行榜的榜首之位。
 
-安倍星期二（12月14日）通过视讯在台湾远景基金会主办的“台美日三边印太安全对话”上赞扬台湾追求和捍卫民主的精神。他说，对台湾和台湾民主的威胁也是对大家，尤其是对日本的严重挑战，好在台湾、美国和日本有着一个共同的、重要的事业，那就是坚守对自由、人权、民主和法治的信念。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide1-16.jpeg)
 
-安倍说，美国和日本的军事同盟关系比以往任何时候都更加紧密，美日台三方必须不断努力增强在所有作战领域的能力，包括水下、海面、空中、网络和太空能力，并且更加有效地分享有关知识和技术。除了美国和日本之外，印度、澳大利亚、法国和英国也在自由、人权、民主和法治的旗帜下集结，捍卫印太地区的安全。
+与此同时，自新歌《HCoin to the moon》 的MV上线以来，短短5天时间内，该曲MV随即在iTunes平台上位列18国热门MV榜首、16国摇滚MV榜首、11国摇滚歌曲榜首，以及7国嘻哈歌曲榜首。此前，郭先生包括马背英雄、酒灭中共、Fight for Hong Kong、Take Down the CCP在内的其他灭共歌曲也在“公告牌”各类榜单中取得了不俗的成绩。
 
-安倍在用英语发言中警告中共国不要轻举妄动对台湾、对其他周边国家采取军事行动。 “像中共国这样的经济大国在军事上冒险，最起码会自取灭亡。我们必须敦促他们不要谋求领土扩张、不要挑衅和欺凌他们的邻国，因为那会损害他们自身的利益 。”
+为此，郭先生在盖特上向每一位参与歌曲打榜的战友再度表达了感谢。郭先生强调，此次打榜创下了历次歌曲打榜中的最好个人成绩，并且也是非专业歌手在世界最权威音乐排行榜的最好成绩，更是中国人又一次在世界乐坛上展现出了前所未有的历史奇迹。郭先生感叹，这表明了爆料革命和新中国联邦正在用自己的行动向全世界证明我们团结灭共的力量和决心。
 
-安倍晋三本月初（12月1日）通过视讯出席台湾另一个智库研讨会时说，日本和美国不会对中共国武装攻击台湾袖手旁观，称中共国领导人必须明白这一点。他当时说，“台湾有事就是日本有事，也是日美同盟有事。在北京的人，尤其是习主席，绝对不应对此有误解。”
+参考链接：
+1）[Hcoin To the Moon连续2周登上Billboard全球数字歌曲销量榜首！](https://www.gettr.com/post/pjn8js5502)
+2）[2021年12月12日 文贵大直播](https://gtv.org/video/id=61b5f49556f4921401b604a9)
 
-消息来源:
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
 
-[安倍：民主力量正在集结 中共国军事冒险会自取灭亡](https://www.voachinese.com/a/abe-on-us-japan-and-taiwan-security-20211214/6353316.html)
+总编：Ivy001
+编辑：Jack Li文阳
+校正/发稿：谐趣园
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

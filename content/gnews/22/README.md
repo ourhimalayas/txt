@@ -2,33 +2,50 @@
 ---
 
 
-## EMA数据显示：已有67名儿童死于实验性疫苗
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1757328/)
+## 英国报告世界首例欧米克隆死亡病例
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1757409/)
 
-撰稿：文月
-![](https://assets.gnews.org/wp-content/uploads/2021/12/154.png)图片来自网络
-截止11月19日，欧洲药品管理局（EMA）已经报告了14128名接种疫苗后出现不良反应的儿童——由于同一被调查者可能出现多种副作用，当前记录的不良反应已达43270起。在5592个案例中，不良反应相当严重——其中的大部分，即4981例，是由辉瑞公司的疫苗引起的。平均而言，报告中的每个孩子都遭受了3.06次由疫苗造成的不良反应。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/155.jpg)图片来自网络
-根据上图EMA数据库我们发现，死亡病例中包括了50名以上的17岁以下的未成年人，其中甚至还有 4 名 2 个月至 2 岁的儿童和 16 名 1 个月以下的新生儿——他们的母亲曾经有过疫苗接种史。
+作者：纽约香草山教育部 – Naughty(文行)
 
-英国卫生局（UKHSA）的数据显示，10月底有如此多的儿童死亡，以至于数据中出现了异常的超额死亡率。在第43周当中，5-14岁年龄组的儿童死亡人数比平时多。
 
-德国疫苗接种委员会（STIKO) 12月9日更新其CCP病毒疫苗的接种建议，要求为5至11岁已有疾病的儿童接种CCP病毒疫苗。 如果没有特殊原因，没有疾病的儿童也可以接种。
 
-柏林已经决定从12月15日开始给12岁以下小学儿童接种疫苗，疫苗将在每个区选定的小学中进行大规模接种。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-根据研究，儿童感染冠状病毒多有密切接触史，危重型病例少见，无症状感染比例较高，很快就会恢复健康。
 
-而越来越多的报道则开始关注疫苗副作用，以及其对身体造成的不可逆转的伤害——疫苗根本没有作用，有作用就不会像现在传染率还这么高。那么为什么还要让所有儿童都去进行疫苗接种呢？
 
-参考文献：
+12月13日，英国首相约翰逊宣布，英国至少有一人在感染欧米克隆新冠变种后死亡，这是全球首例公开证实的新冠新变种死亡案例。目前，官方并未同时公布死者是否接种疫苗的详细信息。
 
-[Wochenblick.at](https://www.wochenblick.at/corona/kaum-covid-sterberisiko-schon-67-tote-kinder-durch-spritze/)
+英国首相曾在12日的电视公告中警告民众，欧米克隆的疫情即将到来，两剂疫苗根本不足以提供人体所需要的保护，并表示将争取比计划提前一个月，即到12月31日，让每个18岁以上的人接种第三剂疫苗。
 
-[Rki.de](https://www.rki.de/DE/Content/Kommissionen/STIKO/Empfehlungen/PM_2021-12-09.html)
+欧米克隆首例死亡病例的宣布，以及欧米克隆高传染性的特点，恐将成为英国政府强推疫苗加强针的借口。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1.1-7.jpg)
+参考链接：
+[Britain reports world’s first publicly confirmed death from Omicron COVID variant](https://www.abc.net.au/news/2021-12-14/britain-records-first-omicron-variant-covid-death/100697628?utm_source=ground.news&amp;utm_medium=referral)
 
-*发稿：mgjxs*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+
+总编：飞虹
+编辑：飞虹， 雪梨
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

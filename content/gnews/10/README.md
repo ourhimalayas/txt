@@ -2,51 +2,32 @@
 ---
 
 
-## 澳洲示警冬奥选手 恐遭中共数字铁幕全天候监控
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1757402/)
+## 11岁男孩因不堪班主任当众辱骂跳楼身亡
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1757539/)
 
-作者：东京樱花团 – 修文
+作者：纽约香草山教育部 – Noemi
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间12月14日，据中共媒体报道，近日，中共国某省一名11岁的小男孩因不堪班主任当众辱骂，在留下多封遗书后，从一栋居民楼的24楼径直跳下，当场身亡。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-15-下午10.20.20.png)
+据悉，在事发当日，该名男孩的班主任曾在课上多次对其进行言语辱骂，并且施以精神暴力，而这样的人身攻击还引发全班同学多次哄堂大笑。监控显示，男孩在课后就表现得精神恍惚，随后，又写下了多封按有红手印的遗书。男孩遗书中表示，自己的死亡只与班主任有关，只因她对自己使用了暴力手段。
 
+对此，有评论指出，中共国教育的本质即为洗脑，而中共学校的教育更是只为培养出更多拥护中共领导的奴隶。因此，教师在校园内对学生无所顾忌地施暴可以被看作是中共以黑治国、以暴治国的最直观体现。
 
+参考链接：[于凡诺说：11岁孩子跳楼的十大反思](https://www.163.com/dy/article/GR8G160O051182F7.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-
-
-12月14日，有媒体引述澳洲资深官员和安全专家对冬奥选手的警告称，中共政府对境内的监控宛如铜墙铁壁。一旦进入中共国，“数字铁幕”会全天候监控其通讯和行动，甚至搜集敏感数据。
-
-澳洲政府几天前宣布，基于人权理由，将“外交抵制”北京冬奥会，不派官员代表与会，但仍有100多位澳洲运动员和工作人员前往。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.2-6.jpg)
-届时，这些人将拿到奥委会分发的临时手机和电话卡。某澳洲官员表示，临时手机和电话卡势必受到中共政府的追踪监控，这如同走进中共的“数字铁幕”。
-
-同时，澳洲网络安全专家也提醒，中共采用网络、人脸辨识和车辆追踪等手段实行监控，搜集并拦截所有数据。这些监控手段也将应用在参赛选手身上。并建议冬奥选手不要携带私人手机进入中共国，且在中共国期间，要使用加密通讯软件，并尽可能通过VPN翻墙上网。
-
-参考链接：
-[中國數位鐵幕 冬奧選手將遭全天候監控](https://news.ltn.com.tw/news/world/paper/1490002)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
+总编：文真
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
