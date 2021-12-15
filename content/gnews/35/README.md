@@ -2,50 +2,24 @@
 ---
 
 
-## 97.8%的年轻疫苗注射者一个月内出现心肌炎
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1757396/)
+## 立陶宛代表团已离开北京
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1757543/)
 
-翻译：Lulumi
+![](https://assets.gnews.org/wp-content/uploads/2021/12/57603936_4031.jpg)图片来源：www.dw.com
+据德国之声中文网12月15日引述《路透社》报道，19名立陶宛驻华使馆人员及家属15日已离开北京飞往巴黎。上个月，台湾在立陶宛首都维尔纽斯设立了事实上的大使馆，随后中共对此进行“恐吓”，由此人们对立陶宛外交官的安全表示担忧。立陶宛外交部也发表声明，已召回目前驻中共国最高级别外交官回国述职，大使馆将暂时以远程方式运作。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-8-5.jpg)图片来源：cleverjourneys.com
+参考链接：[对华关系继续恶化 立陶宛召回临时代办](https://www.dw.com/zh/对华关系继续恶化-立陶宛召回临时代办/a-60127112?maca=chi-rss-chi-all-1127-rdf)
 
-美国心脏协会(AHA)的出版物《循环》(Circulation)发布了第二项研究，表明遭遇心肌炎的年轻患者是在注射了实验性mRNA COVID-19疫苗后一个月内密集地出现心脏问题的。
+* * *
 
-该研究调查了139名21岁以下的青少年或青年患者的数据，他们“在接种COVID-19疫苗后30天内疑似出现心肌炎”，这些患者来自美国的26个医疗中心。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-该研究指出：“了解COVID-19疫苗接种后疑似心肌炎的临床过程和短期结果，对决定为青少年接种疫苗具有重要的公共卫生意义”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/downloadfile-1-3974465797.jpg)
+编辑：【英国伦敦喜庄园编辑部】
 
-数据显示：
-
-🔹136人，或97.8%，接种了mRNA疫苗注射。
-
-🔹131人，即94.2%，接种了辉瑞公司的疫苗，其中128人，即92.1%，在第二次接种后出现症状。
-
-🔹年龄中位数为15.8岁，男性（126人，或90.6%）占最大比例。
-
-🔹症状一般在被注射后2天内开始，胸痛（99.3%）是最常见的症状。
-
-该研究观察了心脏磁共振成像（cMRI），并得出结论：“cMRI上的异常发现很常见。未来的研究应评估风险因素、机制和长期结果”。
-
-这是AHA最近发表的第二项研究，显示了关于注射疫苗令人震惊的信息。上个月，它发表了一项研究，发现“大多数病人”在注射mRNA疫苗后出现心脏相关医疗问题的风险更高。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/e17678589a70a86d1599428456.jpg)当一款产品伤害并杀死上千人时，它会被立刻下市。除非这个产品是疫苗，会被强制注射。
-
-该研究是由发明了婴儿心脏移植手术的心脏病专家史蒂文·甘德瑞博士进行的。甘德瑞发现“大多数病人都有戏剧性的变化”，他们更容易出现心脏病发作和其他急性冠状动脉综合症的风险。
-
-像推特这样的社交媒体巨头正在对美国心脏协会的研究发出“不安全链接”警告，该研究显示mRNA疫苗极大地增加了患心脏病的风险，从11%增加到25%。
-
-著名的伦敦塔希尔·侯赛因博士证实：“在我的实践中，我看到血栓相关的血管病症大增，与大流行之前相比，入院并需要手术和医疗干预的病人要年轻得多”。
-
-**新闻来源**：[cleverjourneys][American Heart Association: 97.8% of under age 21 patients who suffered myocarditis was within a month after their mRNA shot](https://cleverjourneys.com/2021/12/14/american-heart-association-97-8-of-under-age-21-patients-who-suffered-myocarditis-was-within-a-month-after-their-mrna-shot/)
-
-*审核：文乐*
-*校对：信心满满*
-*发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-2.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

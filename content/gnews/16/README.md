@@ -2,18 +2,28 @@
 ---
 
 
-## 文贵大直播 12/15 中共国房地产：崩塌在即 赶快走人
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1757722/)
+## GTV新闻访谈简报|2021年12月15日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1757784/)
 
-撰稿：回响 【秘翻Gnews原创组】
-![](https://assets.gnews.org/wp-content/uploads/2021/12/snapshot1.jpg)图片来源：GTV
-纽约12月15日，文贵大直播准时开始。爆料革命发起人郭文贵先生首先告诉公众的就是：中共房地产崩盘在即，平民百姓赶快走人。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-3.jpg)
 
-郭先生历数中共从1912年就许诺给中国人民以美式民主，一直煞有介事地集体学习、五年计划，装得像模像样。但今天面对1.2亿的失业人口；面对类似恒大这样注册资金60亿欠债2万亿的所谓房产企业，诸如上海荣茂、融创等，实质就是诈骗集团；面对注册资金1亿左右却资产上千亿、负债率5%的盘古被清算的环境，能撑得住吗？！
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-1-6.png)
+文章仅代表作者本人观点，与Gnews无关
 
-郭先生从香港商铺在过去七个月资金流入6000多亿的事实中，再次强调：老百姓永远是待宰的羔羊！冬奥会后的中共国房地产是雪塌时最核心的一部分雪花。把一家几代人血汗钱压在房子上的平民百姓，赶快走人。
+视频参看：[2021.12.15早GTV新闻访谈](https://gtv.org/video/id=61b9ed337882000d5100ce0b)
 
-【来源链接】https://gtv.org/broadcast/watch/61b9e8037882000d5100be69
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/calendar.jpeg)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
