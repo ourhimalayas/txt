@@ -2,47 +2,117 @@
 ---
 
 
-## 即使非洲猪瘟传入法国 中共国也将接受来自法国的猪肉
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1756863/)
+## 文贵先生关于HPAY的商业化描述
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1756897/)
 
-编译:七龙珠
+[https://gtv.org/video/id=61b8dbe0a68b4f4b28e86c88](https://gtv.org/video/id=61b8dbe0a68b4f4b28e86c88)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕截图-2021-12-15-120549.jpg)图片来源 : animalshealth.es
+**郭文贵：
+Miles Guo:**
 
-法国农业和食品部发布了一份公报，通报了与中共国签署的协议，该协议说，即使非洲猪瘟（ASF）抵达法国，也能向中共国出口猪肉。
+我再告诉大家，Hpay这是第一阶段是点到点，还不是全商业化
+Let me tell you again, the first stage of Hpay is point-to-point, and not fully commercialized
 
-法国总统埃-马克龙在2019年11月访问中共国期间，与习近平商定，如果在法国境内宣布发生非洲猪瘟事件，中共国需承认法国的“分区”工作原则，继续从法国无疫区进口猪产品。
+只在G|Fashion、GClub商业化
+Commercialized only in G|Fashion and GClub
 
-据该部称，法国当局和中共国海关和农业的两个部委已经接触了近两年，以起草了一份认同文件。
+接下来，第二步全球商业化
+Next, the second step is global commercialization
 
-“由于政府的持续参与，养猪业的集体努力，以及法国和中共国达成共识的共同意愿，现在已经达成了有利双方的结果”，法国外交部表示欢迎。
+就像大牛、巴黎、天机，他们在做的事情，还有政清
+Just like Daniu, Paris, Tianji, and Zhengqing what they are doing
 
-此外，在法国经济、财政和复苏部长布鲁诺-勒梅尔与中国副总理胡春华的高级别经济和金融对话上，农业和食品部长朱利安-德诺曼迪与中共当局签署了关于承认分区的协议，这对法国有利。
+就是大家都能完全商业化扫码使用的时候，和到第三步
+That’s when everyone can use it completely commercial scan code, and go to the third step
 
-随着12月13日协议的有效实施，如果法国宣布爆发非洲猪瘟，这一认可将允许法国的猪肉产品继续向中共国出口。
+是各种什么Gmall、亚马逊都能接受，还有MasterCard卡，信用卡一样都接受的时候
+It’s for all kinds of business, like Gmall, Amazon can accept it and MasterCard, credit cards are all accepted it
 
-“我们已经与共和国总统和农业部长进行了数月的谈判，以达成关于猪区划的协议。该协议确保了我国猪肉生产商的出口。因此，它是对价格和我们农民的繁荣的一个决定性保证”，布鲁诺-勒梅尔表示。
+那个时候它真正的喜币才开始走向了正轨路，刚刚迈到第一步
+At that time HCoin will start to go on the right track, and it will just take its first step
 
-**评论：**
+然后是机构大量的进，国家主权认可，然后数字银行就是不是咱现在收购的银行
+then the massive of institutional investors come in and the recognition by sovereign country, and then the circulation in digital bank which they’re not the banks we acquiring now
 
-**自从马克龙宣布不加入抵制北京冬奥会行列后，中共国给法国利益输送又更上一层楼，而且立竿见影，至于百姓的死活也就根本不重要了。这条新闻，在墙内应该不会让百姓知道，百姓的生命健康根本不在他的计划范围内，法国、乃至中共国内的猪肉你还敢吃吗？或许以后就算法国发生了非洲猪瘟，消息也可能被屏蔽，为的是让你继续消费他们进口的法国的瘟疫猪肉。**
+还包含了国家认可的，没有任何其他国家可以约束的，国家中央银行这样的牌照获得的时候
+It also includes what is recognized by the country, and no other country can restrict it, and when obtaining a license such as the National Central Bank
 
-**值得注意一点的是，新闻里说中共接受“分区”原则，接受“无疫区猪产品出口”，请问，怎么确保猪产品来自无疫区的？检测的标准是什么？如果真吃出了病，补救措施是什么？**
+那时候喜币才厉害，所以问这个结构投资者进不进来的人，只知其一不知其二
+At that time Hcoin will be very good, so asking if the structural investors get in or not, that’s you only know a little
 
-**由此还可以看出，中共国需要大量的进口外国猪肉，国内的猪肉产量根本不能满足中国百姓的基本生活需求。**
+我再告诉你，就是你把钱币卖了，HDO都换到你手里了
+I’ll tell you again, you sold the Hcoins and changed to HDO in your hands
 
-**而为何中共如此在意猪肉的价格？还不是因为猪肉价格对CPI的影响巨大。为了表面上的数据，中共是不会在乎百姓的健康或死活的。**
+你贴现是需要时间的，HDO哪来的?
+It takes time for you to cash it, where did HDO come from?
 
-**相比去年5月因为非洲猪瘟导致德国猪产品出口的一夜骤停，导致价格暴跌，法国马克龙这次抓住了中共的“蛋蛋”，狠狠的捏了一把，法国人欢喜，可怜的中国百姓们浑然被蒙在鼓里。**
+就现在我们说共产党，共产党是啥?
+Now we are talking about the Communist Party, what is the Communist Party?
 
-新闻来源：[animalshealth.es][China aceptará cerdo de Francia aunque la peste porcina africana llegue al país](https://www.animalshealth.es/porcino/china-aceptara-cerdo-francia-aunque-peste-porcina-africana-ppa-llegue-pais)
+海外的币，叫美元，国内的人民币叫本币，共产党能把人民币到国外花吗?
+Overseas currencies are called U.S. dollars, and domestic renminbi is called domestic currency, can the Communist Party spend renminbi abroad?
+
+花不了，它干了100年了
+It can’t be spent, it’s been doing for 100 years
+
+现在HDO你还不能到外面全面说
+and now you can’t go outside and fully talk about HDO
+
+你拿着我就贴现去，瞬间都贴现
+It takes that for cash, and it will be cashed instantly
+
+咱们在德国的战友卖了房子都不让你贴现，还让你付给银行利息
+Our comrades-in-arms in Germany sold the house and didn’t let him cash them, and even asked him to pay the bank interests
+
+1000欧元好像是这样，为什么？全世界有一个规则
+1,000 euros seems to be the case, why? there is a rule in the world
+
+现在所有四十几美金的价值
+now it’s all the value of more than 40 dollars
+
+咱战友卖完将近260亿美金，你账上没有260亿美金的HDO
+Our comrades-in-arms sold out nearly 26 billion U.S. dollars, you don’t have the 26 billion U.S. dollar’s HDO on your account
+
+这是为什么大家要懂得一个道理，你也得让HDO的能贴现的能力和你的数字货币的价值形成平等的时候
+This is why everyone should understand a truth, you also have to let HDO have the ability to be cashed and equalize the value of your digital currency
+
+也就是支付系统行了，银行行了
+that means the payment system is completed, and the bank is done
+
+大机构投资者进来了，更多人的投资者进来了，KYC过了
+Large institutional investors have come in, more investors have come in, they passed KYC
+
+你就达到超过260亿美元的时候，你随时可以贴现，这里边有一个支付系统，贴现系统，银行系统
+It’s time reach more than 26 billion US dollars, you can cash it at any time, there is a payment system, a cash system, and a banking system.
+
+你在这种情况下，你要贴现你完全是来，你就是来投资的
+In this case, if you want to cash it, you are here for the investment
+
+不像QMay，她当初还不知道有货币，穷其所囊，就差衣服没卖了
+Unlike QMay, she didn’t know that there was Hcoin at the beginning, so she invested all in
+
+领一儿子把所有的钱全给了爆料革命，因为她相信能灭共，她相信能成
+She invested all the money to the whistleblower movement, because she believed that communism could be wiped out, and she believed that it could be achieved
 
 * * *
 
-*审核：Aries的星
-校对：阿伯塔
-发布：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-2.jpeg)
+Date:12/12/2021
+原视频标题: 文贵先生关于HPAY的商业化描述
+Miles talks about Hpay commercialize description
+原视频链接[**https://gettr.com/post/pjgzbt83c6**](https://gettr.com/post/pjgzbt83c6)
+任务编号：KC337（3205）
+视频时间段 : 0:00-2:19
+中听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

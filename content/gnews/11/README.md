@@ -2,121 +2,42 @@
 ---
 
 
-## 美国中期选举后，十招出手对付中共
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1756979/)
+## 苹果向中共国支付“勒索”款项
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1757006/)
 
-[https://gtv.org/video/id=61b8dcaea68b4f4b28e86cb8](https://gtv.org/video/id=61b8dcaea68b4f4b28e86cb8)
+翻译： Jenny Ball
 
-我说2022年WTO基本结束
-Digo que la OMC básicamente terminará en 2022
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-5-6.jpg)图片来源：newsweek.com（FRAZER HARRISON/FILMMAGIC）
 
-2022年年底前
-Antes de finales del año 2022
+“苹果公司首席执行官蒂姆·库克（Tim Cook）同意向中共国支付 2750 亿美元的敲诈金，以确保苹果不再违反中共国的各种经济法规，”贸易专家艾伦·托内尔森 (Alan Tonelson) 上周表示。
 
-你们会听到这个消息
-Escucharán esta noticia
+托内尔森指的是最初在信息网站(The Information)上报道的消息，库克于 2016 年与中共国家发展和改革委员会签署了一份为期五年、1250 字的谅解备忘录。该交易要求这家总部位于库比蒂诺的公司帮助中共公司开发“最先进的制造技术”。
 
-2023年5月份以前
-Antes de mayo de 2023
+“过去它是为了市场准入而进行的技术转让，但这似乎在中共国是需要赠送的东西，才能够使公司如何基本上遵守共产党的路线，”《中共国的胜利愿景》一书的作者乔纳森·沃德说的哥伦比亚广播公司眼中的约翰·巴彻勒 (John Batchelor) “这不仅适用于苹果，许多其他标志性的美国公司也是如此。”
 
-SWIFT很有可能也可能是下几个月
-Swift probablemente o podría ser en los próximos meses
+**美国有一个问题：美国的公司正在支持一个一心要摧毁美国的敌对国家。中共政权于**** 2019 ****年**** 5 ****月向美国宣布“人民战争”，并且每天都发表针对华盛顿的恶毒言论。**
 
-2023年5月份以前应该能停, 它跟美国的中期选举有绝对的关系
-Antes de mayo de 2023 posiblemente pueda paralizarse, absolutamente tiene relación con las elecciones de medio mandato de EE. UU
+然而，美国公司假装没有注意到，经常表现得好像他们对北京比对华盛顿更忠诚。
 
-我们保守的说, 就美国中期明年年底10月份选举完
-De manera conservadora, decimos que las elecciones se finalizarán en octubre a finales del próximo año
+因此，中共政权现在感到可以如此胆大妄为，以至于要求不合理的东西。例如，在中共的坚持下，苹果公司在其地图上显示东海的小岛比实际大。尖阁诸岛已被日本宣称拥有主权，实际上已被日本控制，但中共仍要求东京交出它们。苹果的中国地图，是臭名昭著的“指鹿为马”的秦朝忠诚度测试的更新版。从北京的角度来看，苹果接受了中共的歪曲。
 
-一定是上去十招, 这十招绝对会打出来
-Debe haber diez trucos para subir, estos trucos definitivamente saldrán
+不仅仅是苹果。北京现在正在全面将美国公司武器化，要求它们支持中共的各种立场。去年 11 月，中共驻华盛顿大使馆致函美国企业，呼吁他们反对国会未决的立法。
 
-那时候你会看到班农大师
-En ese momento verás al maestro Bannon
+北京正在全力动员美国公司。11月30日，外交部副部长谢锋对美国企业说：“大树底下好乘凉。如果两国关系恶化，企业界也不能再‘闷声发大财’。”
 
-我们这位战友, 还有我们背后的这些国防的力量的战友
-Nuestro compañero luchador, así como detrás de nosotros están los compañeros luchadores de la fuerza de defensa
+库克没有沉默，他上个月表示：“我认为作为企业，我们有责任在尽可能多的地方开展业务，因为我认为企业是巨大的催化剂，” “我相信汤姆·沃森所说的：’通过世界贸易实现世界和平，’我一直相信这一点。”
 
-都会发挥绝对的力量
-Manifestarán la fuerza absoluta
+这位苹果 CEO 支持一种观点，即要求公司在 1930 年代，甚至 1940 年代初期与第三帝国开展业务，库克对沃森观点的宣传应受到谴责。毕竟，IBM 的沃森帮助希特勒政权统计了犹太人。
 
-绝对振臂高呼, 没有任何人
-Ninguna persona, absolutamente levantarán los brazos y gritarán fuertemente
-它绝对是十招
-Seguramente son diez trucos
-
-现在这十招都在制定中
-Ahora estos trucos están en proceso de desarrollo
-
-第一个就是把它SWIFT停了
-El primero es paralizar al Swift
-
-然后把这个WTO停了
-También a la OMC
-
-世界卫生组织肯定给它踢出去
-La Organización Mundial de la Salud debe echarlo
-
-这是联合国马上就要宣布, 联合国不能是它一家代表
-Pronto será el anuncio de la ONU, y la ONU no puede ser solo él el representante
-
-或者是不让它代表中国
-O no puede ser representado por China
-
-希望那个时候习太阳还活着
-Espero que en aquel tiempo el sol, Xi sigue vivo
-
-它的太阳还真能发光
-Su sol pueda seguir brillando
-
-说老实话
-Hablando sinceramente
-
-我有50%以上
-Tengo más del 50%
-
-原来是50%以下
-Antes era menos del 50%
-
-我认为习是能撑过2023到2025
-Pensaba que Xi puede resistir de 2023 al 2025
-现在超过50%, 我认为它根本到不了2025
-Ahora supera el 50%, creo que él no podrá llegar al 2025
-
-共产党100%过不了2025
-El Partido Comunista 100% no pasará el 2025
-
-100%, 我没有说过这话
-100%, nunca había dicho esto
-
-这次我有100%信心它过不了2025
-Esta vez tengo el 100% de confianza que no pasará el 2025
-
-这十招所有的决策就包含这个
-Todas las decisiones de estos diez trucos incluyen este
-
-谢谢
-Gracias
+**新闻来源**：[newsweek][Apple Makes ‘Essentially Extortion’ Payment to China | Opinion](https://www.newsweek.com/apple-makes-essentially-extortion-payment-china-opinion-1658607?utm_source=PushnamiMailing&amp;utm_medium=email&amp;utm_campaign=automatic&amp;UTM=1639486470544&amp;subscriberId=6180566715c6fcdd524c7c95)
 
 * * *
 
-日期：12/14/2021
-原视频标题：美国中期选举后，十招出手对付中共
-Después de las elecciones de medio mandato en los Estados Unidos, habrá diez trucos para lidiar con el PCCh
-原视频日期：12/11/2021
-原视频网址：[** https://gettr.com/post/pje2ska5b2**](https://gettr.com/post/pje2ska5b2)
-任务编号：KC339(3184)
-视频时间段：0:00-01:34
-西听校：洛杉矶盘古农场-霙霙（文霙）
-翻译：洛杉矶盘古农场-小文萱
-翻译终校：洛杉矶盘古农场-霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场- 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+*审核：文乐*
+*校对: 阿伯塔*
+*发布：信心的选择*
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-2.jpeg)
 
  
 

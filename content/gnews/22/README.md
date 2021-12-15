@@ -2,112 +2,131 @@
 ---
 
 
-## 文贵先生关于HPAY的商业化描述
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1756897/)
+## 干掉共产党以后中国必须三个独立
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1756921/)
 
-[https://gtv.org/video/id=61b8dbe0a68b4f4b28e86c88](https://gtv.org/video/id=61b8dbe0a68b4f4b28e86c88)
+[https://gtv.org/video/id=61b8dc47a68b4f4b28e86ca3](https://gtv.org/video/id=61b8dc47a68b4f4b28e86ca3)
 
-**郭文贵：
-Miles Guo:**
+这你要看到孙中山、李大钊、张国涛、共产党、袁世凯、蔡锷
+Tienes que ver a Sun Zhongshan, Li Dazhao, Zhang Guotao, el PCCh, Yuen Shikai, Cai E
 
-我再告诉大家，Hpay这是第一阶段是点到点，还不是全商业化
-Let me tell you again, the first stage of Hpay is point-to-point, and not fully commercialized
+从1912年到1949年这个中间的变化
+Los cambios que tuvieron desde el año 1912 hasta 1949
 
-只在G|Fashion、GClub商业化
-Commercialized only in G|Fashion and GClub
+我们要干掉了大清朝就共产党
+Debemos destruir el Imperio del Gran Qing, sólo el PCCh
 
-接下来，第二步全球商业化
-Next, the second step is global commercialization
+绝不允许再出现天真的孙中山
+No se permitirá que aparezca otro inocente Sun Zhongshan
 
-就像大牛、巴黎、天机，他们在做的事情，还有政清
-Just like Daniu, Paris, Tianji, and Zhengqing what they are doing
+也不允许说炮制什么这样那样的, 蒋介石、国民党、辛亥革命等
+Tampoco se permite formular de ninguna manera, Jiang Jieshi, Kuomintang y la Revolución de Xinghai
 
-就是大家都能完全商业化扫码使用的时候，和到第三步
-That’s when everyone can use it completely commercial scan code, and go to the third step
+这一切我跟你说根本不, 不允许
+Todo esto, yo te digo que no se permite
 
-是各种什么Gmall、亚马逊都能接受，还有MasterCard卡，信用卡一样都接受的时候
-It’s for all kinds of business, like Gmall, Amazon can accept it and MasterCard, credit cards are all accepted it
+我们会秒杀一切上来想夺取政权
+Nosotros mataremos en un segundo todo el que quiera tomar el régimen
 
-那个时候它真正的喜币才开始走向了正轨路，刚刚迈到第一步
-At that time HCoin will start to go on the right track, and it will just take its first step
+然后就诞生了共产党, 来个苏维埃
+Entonces nació el Partido Comunista, vino un República Soviética de China
 
-然后是机构大量的进，国家主权认可，然后数字银行就是不是咱现在收购的银行
-then the massive of institutional investors come in and the recognition by sovereign country, and then the circulation in digital bank which they’re not the banks we acquiring now
+你很有可能美国各国各政党派去一个什么新的什么党
+Es muy probable que envíe un nuevo partido de varios partidos políticos en los Estados Unidos
 
-还包含了国家认可的，没有任何其他国家可以约束的，国家中央银行这样的牌照获得的时候
-It also includes what is recognized by the country, and no other country can restrict it, and when obtaining a license such as the National Central Bank
+背后是他们的力量控制中国人民
+Detrás está su poder para controlar al pueblo chino
 
-那时候喜币才厉害，所以问这个结构投资者进不进来的人，只知其一不知其二
-At that time Hcoin will be very good, so asking if the structural investors get in or not, that’s you only know a little
+我们未来一定会让全世界你没有任何选择
+Definitivamente en el futuro no te dejaremos ninguna opción en el mundo
 
-我再告诉你，就是你把钱币卖了，HDO都换到你手里了
-I’ll tell you again, you sold the Hcoins and changed to HDO in your hands
+中国人一人一票
+Un voto por cada chino
+选出我们的政权
+Para escoger nuestro régimen
 
-你贴现是需要时间的，HDO哪来的?
-It takes time for you to cash it, where did HDO come from?
+共产党没了之后的中国
+El después de China será sin el PCCh
 
-就现在我们说共产党，共产党是啥?
-Now we are talking about the Communist Party, what is the Communist Party?
+一定不会成为军阀割据
+No se convertirá en un régimen separatista de los caudillos
 
-海外的币，叫美元，国内的人民币叫本币，共产党能把人民币到国外花吗?
-Overseas currencies are called U.S. dollars, and domestic renminbi is called domestic currency, can the Communist Party spend renminbi abroad?
+台湾、香港、新疆、西藏、包括广东
+Taiwán, Hongkong, Xinjiang, Tíbet, incluyendo Guangdong
 
-花不了，它干了100年了
-It can’t be spent, it’s been doing for 100 years
+我们一定要叫
+Nosotros debemos
 
-现在HDO你还不能到外面全面说
-and now you can’t go outside and fully talk about HDO
+大家知道一个新中国联邦制
+Hacer saber a todos un sistema del Nuevo Estado Federal de China
 
-你拿着我就贴现去，瞬间都贴现
-It takes that for cash, and it will be cashed instantly
+这是一定的
+Esto es seguro
 
-咱们在德国的战友卖了房子都不让你贴现，还让你付给银行利息
-Our comrades-in-arms in Germany sold the house and didn’t let him cash them, and even asked him to pay the bank interests
+这个过程一定会发生的
+Este proceso seguro sucederá
 
-1000欧元好像是这样，为什么？全世界有一个规则
-1,000 euros seems to be the case, why? there is a rule in the world
+就是中间这个过程又会再来
+Sólo que durante este proceso volverá a pasar
 
-现在所有四十几美金的价值
-now it’s all the value of more than 40 dollars
+但我们就是杜绝再有一个所谓的苏维埃共产党
+Pero nosotros le pondremos el fin para que no haya otro supuesto Partido Comunista Soviético
 
-咱战友卖完将近260亿美金，你账上没有260亿美金的HDO
-Our comrades-in-arms sold out nearly 26 billion U.S. dollars, you don’t have the 26 billion U.S. dollar’s HDO on your account
+骗取中国人民的政权
+Defraudando el poder del pueblo chino
 
-这是为什么大家要懂得一个道理，你也得让HDO的能贴现的能力和你的数字货币的价值形成平等的时候
-This is why everyone should understand a truth, you also have to let HDO have the ability to be cashed and equalize the value of your digital currency
+忽悠中国人民说给你们美国式的民主生活
+Vacilar al pueblo chino diciendo que te dará una vida democrática al estilo estadounidense
 
-也就是支付系统行了，银行行了
-that means the payment system is completed, and the bank is done
+所以说当等到下一步共产党被灭以后
+Por eso, el próximo paso luego de extinguir el PCCh
 
-大机构投资者进来了，更多人的投资者进来了，KYC过了
-Large institutional investors have come in, more investors have come in, they passed KYC
+我们要中国人必须三个独立
+Nosotros haremos que los chinos tengan 3 cosas independientes
 
-你就达到超过260亿美元的时候，你随时可以贴现，这里边有一个支付系统，贴现系统，银行系统
-It’s time reach more than 26 billion US dollars, you can cash it at any time, there is a payment system, a cash system, and a banking system.
+人格、宗教、信仰、法律
+Personalidad, religión, creencia y ley
 
-你在这种情况下，你要贴现你完全是来，你就是来投资的
-In this case, if you want to cash it, you are here for the investment
+这一块儿要独立
+Todo esto hay que independizarlo
 
-不像QMay，她当初还不知道有货币，穷其所囊，就差衣服没卖了
-Unlike QMay, she didn’t know that there was Hcoin at the beginning, so she invested all in
+这咱算一条
+Esto lo contamos como el primero
 
-领一儿子把所有的钱全给了爆料革命，因为她相信能灭共，她相信能成
-She invested all the money to the whistleblower movement, because she believed that communism could be wiped out, and she believed that it could be achieved
+第二条就中国人的思维
+El segundo, la forma de pensar de los chinos
+
+和说话的言语自由, 它必须独立
+Y la libertad de expresión, debe ser independiente
+
+第三个咱们中国人要记住
+El tercero, nosotros los chinos debemos recordar
+
+要跟国际上所有的关系
+Internacionalmente todas las relaciones
+
+中国人国家必须是独立
+El país de los chinos debe ser independiente
+
+不能受任何黑暗势力摆布包括这个华尔街什么好莱坞
+No puede ser manipulado por ninguna fuerza oscura, incluyendo el Wall Street o Hollywood
 
 * * *
 
-Date:12/12/2021
-原视频标题: 文贵先生关于HPAY的商业化描述
-Miles talks about Hpay commercialize description
-原视频链接[**https://gettr.com/post/pjgzbt83c6**](https://gettr.com/post/pjgzbt83c6)
-任务编号：KC337（3205）
-视频时间段 : 0:00-2:19
-中听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
+日期：12/13/2021
+原视频标题：干掉共产党以后中国必须三个独立
+Después de destruir el Partido Comunista, China debe tener tres cosas independientes
+
+原视频日期：12/11/2021
+原视频网址：[** https://gettr.com/post/pjed5p3e4c**](https://gettr.com/post/pjed5p3e4c)
+任务编号：KC338(3183)
+视频时间段：0:00-02:01
+西听校：洛杉矶盘古农场-小文萱
+翻译：洛杉矶盘古农场-霙霙（文霙）
+翻译终校：洛杉矶盘古农场-小文萱
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布 ：洛杉矶盘古农场-恩典
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
