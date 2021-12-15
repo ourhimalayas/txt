@@ -2,45 +2,193 @@
 ---
 
 
-## 12/15/2021 国际财经快讯：美国国会通过法案，禁止来自中共国新疆的产品；日本承认多年来虚报GDP构成数据
-` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1757178/)
+## 12/15每日播报|社媒消息:皮特纳瓦罗 娜塔莉温特斯,埃内斯坎特
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1757386/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2021215-2-1.jpg)[图片来源](https://www.reuters.com/world/china/us-house-vote-compromise-version-uyghur-bill-2021-12-14/)
-**1.美国国会通过法案，禁止对来自中国新疆的产品**
+**By:[秘翻新闻](https://gtv.org/broadcast/watch/61b9ae5256f4921401b8245d)**
 
-[华盛顿，12月14日（路透社）–美国众议院周二通过了禁止从中共国新疆地区进口产品的立法，因为人们担心强迫劳动，这是华盛顿继续反击北京对待其维吾尔族穆斯林少数民族的一部分。该措施以全票通过，此前，立法者就一项折衷方案达成一致，消除了众议院和参议院提出的法案之间的差异。众议院上周通过了其版本的法案，但该措施未能推进到参议院。但参议院预计最快将于周三通过妥协版本，并将其送交白宫，白宫总统乔-拜登表示他将签署该法案，使之成为法律。”白宫新闻秘书Jen Psaki在一份声明中说：”政府将与国会密切合作，实施这一法案，以确保全球供应链没有强迫劳动，同时致力于在岸和第三岸的关键供应链，包括半导体和清洁能源。](https://www.reuters.com/world/china/us-house-vote-compromise-version-uyghur-bill-2021-12-14/)
+**2021-12-15**
 
-**2.日本承认多年来虚报GDP构成数据**
+**1.在美国空军以未接种新冠疫苗为由，开除了27名现役人员后，皮特纳瓦罗12月15日发推回应说：**
 
-[东京（路透社）–日本首相岸田文雄周三表示，日本政府多年来夸大了从该行业获得的建筑订单数据，这种做法可能造成了夸大该国经济增长数据的效果。岸田在议会会议上发表了这一评论，此前《朝日新闻》报道称，自2013年以来，国土交通省一直在 “改写 “从约12,000家特定公司收到的数据，速度约为每年10,000条。目前还不清楚政府为什么开始改写数据的做法。也不清楚国内生产总值（GDP）数据可能受到了怎样的影响，尽管一位分析师预计相关公司的规模不大，因此任何整体影响都可能是最小的。”岸田说：”发生这样的事情是令人遗憾的。”政府将尽快研究可以采取哪些措施来避免此类事件的再次发生。”](https://www.oann.com/japan-ministry-overstated-construction-orders-data-for-years-asahi/)
+疫苗强制令不仅是极其糟糕的卫生政策，也对国家安全不利。看到此事，中共解放军在前往武汉病毒研究所的路上一定会狂笑不止。福奇又帮了中共一个忙！
 
-**3．新西兰预测将更快恢复盈余，降低净债务**
 
-[惠灵顿（路透社）–新西兰政府周三表示，由于经济比以前预测的更有弹性，新西兰将比预期更快恢复预算盈余，并将承担更少的债务。财政部预测，今年的赤字将扩大到208亿新西兰元（140.1亿美元），但账面上将在2023/24年恢复盈余，比之前的预测提前约2年。”自2021年年初以来，新西兰经济表现良好，尽管这种力量受到了Delta变种病毒到来的考验，”财政部长格兰特-罗伯逊在一次新闻发布会上说。由于Delta变种病毒爆发的经济影响，国内生产总值（GDP）预计将在9月季度下降约6%。但根据财政部的半年经济和财政更新（HYEFU），它将在12月和2022年3月的季度中逐步恢复，分别增长3.7%和3.8%。到2023/24年，国内生产总值将达到4.9%。](https://www.oann.com/new-zealand-forecasts-quicker-return-to-surplus-lower-net-debt/)
 
-**4.三分之二的英国人预计英国央行将在2022年6月前升息**
+> Bad health policy. Bad for national security. Peoples Liberation Army laughing all the way to the Wuhan Institute of virology. Fauci strikes again.
+> 
+>  [https://t.co/HWyAjM4HKR](https://t.co/HWyAjM4HKR)
+> — Peter Navarro (@RealPNavarro) [December 14, 2021](https://twitter.com/RealPNavarro/status/1470825671295447042?ref_src=twsrc%5Etfw)
 
-[伦敦（路透社）–周三的一项调查显示，创纪录的三分之二的英国家庭预计英国央行将在未来六个月内加息，但由于欧米茄变种的影响，预计在极短期内加息的比例有所下降。”IHS Markit的经济学家Lewis Cooper说：”尽管由于与中共病毒大流行有关的担忧而略有下降，但家庭的利率预期仍处于英国央行历史上曾加息的水平。市场研究机构Ipsos MORI在12月2日至12月6日期间对英国约1500名工作年龄的人进行了调查。约67%的人预计英国央行将在六个月内将其主要利率从目前的历史最低点提高到0.1%，高于11月调查中的66%，是该系列调查自2013年开始以来的最高比例。](https://www.oann.com/two-thirds-of-britons-expect-boe-rate-rise-by-june-2022-ihs-markit/)
 
-**5.澳大利亚消费者购物热情因Omicron爆发减弱**
 
-[悉尼（路透社）–由于Omicron变种的爆发给经济前景和圣诞节期间的消费蒙上了阴影，12月份澳大利亚消费者情绪的衡量标准出现了退步。周三公布的西太平洋-墨尔本研究所消费者情绪指数在12月下降了1.0%，抹去了11月0.6%的涨幅。该指数读数比去年12月下降了6.9%，尽管是104.3，这意味着乐观者仍然超过了悲观者。西太平洋银行首席经济学家Bill Evans指出，在中共病毒病例最多的新南威尔士州和维多利亚州出现了大幅下降。调查还发现，人们对通货膨胀率的上升更加担忧，这可能会损害支出计划。调查显示，现在是否是购买主要家庭用品的好时机，在12月下滑了5.3%，比一年前下降了13%以上。](https://www.oann.com/australian-consumer-cheer-chilled-by-omicron-outbreak/)
+**2.娜塔莉温特斯12月14日发推说：**
 
-**6.经济学家呼吁瑞士国家银行建立1万亿美元的主权财富基金**
+根据《国家脉动》独家获得的福奇和扎克伯格之间的最新私人邮件显示，脸书创始人扎克伯格提供用户的“数据报告”，以帮助他们制定封锁政策和疫苗研发。
 
-[苏黎世（路透社）–一群经济学家说，瑞士国家银行应该将其大量的外国股票和债券转换成像挪威那样的主权财富基金，以支持政府支出。在阻止瑞郎升值的过程中，瑞士国家银行已经进行了1万亿美元的外汇投资，包括亚马逊、谷歌所有者Alphabet和星巴克的股票。其资产负债表的爆炸性增长促使政治家们呼吁瑞士国家银行增加其支付额，以填补国家养老金计划的资金缺口。现在，一群之前说SNB应该增加对政府的年度支付的学者说，它应该将其资产转移到一个主权基金中，而SNB过去一直拒绝这个想法。”SNB观察站在周三发表的一篇论文中说：”这些资产的收益潜力相当大，可以用来减轻纳税人的负担。](https://www.oann.com/economists-call-for-swiss-national-bank-to-create-1-trillion-sovereign-wealth-fund/)
+【推文转《国家脉动》报道，这个鲜明例子说明，大科技公司和政府如何利用用户数据轻易地进行勾兑，限制公众的自由。扎克伯格在电邮中提到，他的个人基金会投入了数亿美元，以确保当时的总统候选人乔·拜登在2020年取得胜利。今年4月8日，扎克伯格给福奇发了一封电邮，他在邮件中说：“脸书可以制作汇总和匿名的数据报告，以促进封锁政策的制定。为了加快疫苗研发，我可以向你们提供所需要的资源和资金。”福奇回复说，他会认真考虑扎克伯格的提议。在这次交流中，两人还讨论了社交媒体平台的“中共病毒信息中心”以及如何控制有关大流行病的叙事。参议员玛莎·布莱克本曾在今年6月提出过此问题，但福奇矢口否认自己与扎克伯格有互动。】
 
-**7.原油供应增长将超过需求的押注导致油价回落**
 
-[路透社墨尔本12月15日电–油价周三连续第三天下跌，原因是对明年供应增长将超过需求增长的预期不断增强，尽管Omicron中共病毒变种被认为不会像早期的中共病毒变种那样大幅遏制流动性。美国西德克萨斯中质原油(WTI)期货下跌52美分，或0.7%，至0215GMT时的每桶70.21美元，上一交易日下跌56美分。布伦特原油期货下跌43美分，或0.6%，至每桶73.27美元，周二下跌69美分。国际能源署(IEA)周二表示，随着Omicron变种的出现，中共病毒病例激增，将抑制全球石油需求，与此同时，原油产量将增加，特别是在美国，至少到明年年底，供应将超过需求。](https://www.reuters.com/markets/europe/oil-prices-retreat-bets-that-crude-supply-growth-will-exceed-demand-2021-12-15/)
 
-**8.摩根大通疯狂招聘，瞄准泛欧消费银行**
+> 🚨🚨🚨
+> 
+> EXC: New Fauci-Zuckerberg Emails Reveal Offer of ‘Data Reports’ To Aid Lockdown Policies, Vaccine Development.[https://t.co/D7URA1StMy](https://t.co/D7URA1StMy)
+> — Natalie Winters (@nataliegwinters) [December 14, 2021](https://twitter.com/nataliegwinters/status/1470770111309135881?ref_src=twsrc%5Etfw)
 
-[伦敦，12月14日（路透社）–摩根大通（JPM.N）的英国零售银行老板告诉路透社，该企业计划明年再招聘数百名员工，使员工人数超过1,000人，以帮助其推出投资、储蓄和消费借贷产品。这家刚起步的银行–美国巨头摩根大通的第一家海外消费银行–已经处理了数亿英镑的采购，交易量超过100万笔，该银行说，在圣诞节前的消费大潮的推动下。这个项目是该银行的一个测试案例，因为首席执行官杰米-戴蒙(Jamie Dimon)正在考虑通过一个数字平台将其庞大的美国零售银行业务扩展到全球。摩根大通国际消费者业务负责人Sanoke Viswanathan说，自9月启动以来，该企业已经雇佣了200名员工，使其员工人数达到800人，并计划明年再雇佣数百人，因为它将扩大其产品范围。](https://www.reuters.com/markets/europe/jpmorgan-hiring-spree-it-targets-pan-european-consumer-bank-2021-12-14/)
 
-By 【秘密翻译组-金融法律组】
-作者：千年等一回
 
+**3.娜塔莉温特斯12月15日发推说：**
+
+美国共和党众议员利茲·切尼 (Liz Cheney)获得了由“前国会议员协会（Association of Former Members of Congress）”颁发的2021年政治家奖，中共的对外影响力机构–中美交流基金会是该奖项的赞助商之一。另外，《国家脉动》之前曝光过，利茲·切尼的丈夫在一家与中共有深度关联的律师事务所任职。
+
+
+
+> 🚨🚨🚨
+> 
+> REVEALED: Liz Cheney Accepted ‘Statesmanship’ Award From Chinese Communist Party Influence Group.[https://t.co/lSlDeNtB9x](https://t.co/lSlDeNtB9x)
+> — Natalie Winters (@nataliegwinters) [December 14, 2021](https://twitter.com/nataliegwinters/status/1470857954140164096?ref_src=twsrc%5Etfw)
+
+
+
+**4.真正美国之声12月15日发推说：**
+
+塔利班当局声称，他们比以前更支持妇女，并要求美国和其他国家对数百万正遭受饥荒的阿富汗人展示出“怜悯和同情”。
+
+【推文转报道，塔利班外交部长阿米尔·汗·穆塔基 (Amir Khan Muttaqi)告诉《美联社》说：“制裁阿富汗没有任何好处，美国应将阿富汗中央银行的约100亿美元储备金解冻。”在美国支持的政府倒台之前，4000万阿富汗人中，大约有72%的人生活在贫困线以下。根据联合国世界粮食计划署（World Food Programme）的数据，近2300万阿富汗人正经历着“严重的粮食不安全”。在塔利班统治下，许多七年级到十二年级的女孩被禁止上课。众多女公务员被迫呆在家里。塔利班官员以前曾表示，有必要为男性和女性建立单独的工作场所和学校。阿富汗妇女已经开始在家里抗议，而不是在街上抗议，因为她们会面临塔利班的暴力威胁。】
+
+
+
+> The [#Taliban](https://twitter.com/hashtag/Taliban?src=hash&amp;ref_src=twsrc%5Etfw) claim to be more supportive of women than when they previously ruled [#Afghanistan](https://twitter.com/hashtag/Afghanistan?src=hash&amp;ref_src=twsrc%5Etfw), and are now asking the U.S. and other nations to show "​​mercy and compassion"[https://t.co/MW96UqsTvE](https://t.co/MW96UqsTvE)
+> — Real America's Voice (RAV) (@RealAmVoice) [December 15, 2021](https://twitter.com/RealAmVoice/status/1470920290624577537?ref_src=twsrc%5Etfw)
+
+
+
+**5.推特用户 查克·雷夫塞尼克 12月14日发推说：**
+
+彼得·麦卡洛 (Peter A. McCullough)在做客乔·罗根 (Joe Rogan)的播客节目时说：“如果得到早期治疗，85%的新冠死者可以免于不幸。但早期治疗却被打压，目的是推广疫苗。”
+
+
+
+> Dr. Peter McCullough said on Joe Rogan's podcast, 85% of deaths attributed to Covid-19 could have been prevented with early treatments. [https://t.co/UzRopRbJfm](https://t.co/UzRopRbJfm) [pic.twitter.com/N4wEXv3yqC](https://t.co/N4wEXv3yqC)
+> — Chuck Refusenick (@VikeKang\_) [December 13, 2021](https://twitter.com/VikeKang_/status/1470524212892745729?ref_src=twsrc%5Etfw)
+
+
+
+**6.PureLotusHeart莲心不染 12月15日发推说：**
+
+顶级科学家们在强迫人们接种中共病毒疫苗时，却忽略了以下重要的科学信息：
+
+1.政府和科技巨头一直在无情地攻击言论自由和科学；2.全民疫苗接种是基于错误的前提；3.疫苗风险是真实信息；4.可能存在漏报疫苗导致的不良事件和死亡人数；5.疫苗安全评估存在严重缺陷。
+
+
+
+> 顶级科学家们：强迫人们接种 COVID 疫苗忽略了重要的科学信息
+> ⚠️政府和科技巨头无情地攻击言论自由和科学
+> ⚠️全民疫苗接种是基于错误的前提
+> ⚠️讨论风险不是虚假信息
+> ⚠️可能漏报不良事件和死亡
+> ⚠️疫苗安全评估存在严重缺陷 [https://t.co/i1mv8J7atQ](https://t.co/i1mv8J7atQ)
+> — PureLotusHeart莲心不染 (@PureLotusHeart1) [December 14, 2021](https://twitter.com/PureLotusHeart1/status/1470876682324221958?ref_src=twsrc%5Etfw)
+
+
+
+**7.前医院CEO 约翰·张伯伦12月13日发推说：**
+
+罗伯特马龙博士的公开信，呼吁不要给孩子接种新冠疫苗。请立即阅读和分享。
+
+公开信说：家长在让孩子们接种疫苗前，需要了解三个问题：
+
+1.    这是在将病毒基因注入你孩子的细胞中，该基因迫使你孩子的身体制造有毒的刺突蛋白，这些蛋白质通常会对儿童的重要器官造成永久性损伤，包括：他们的大脑和神经系统、心脏和血管、生殖系统，并导致他们的免疫系统发生根本性变化；最令人担心的是，这些损害一旦发生，就无法修复弥补。你无法修复大脑中的病变、心脏组织的疤痕以及被基因重置的免疫系统，而且对生殖系统造成的损害可能会影响家庭后代
+
+2.    mRNA疫苗这项新技术尚未经过充分测试，至少需要5年的测试和研究才能真正了解其风险，新药的危害和风险往往在多年后才会暴露出来，你希望自己的孩子参加这场人类历史上最冒险的医学实验吗？
+
+3.    你所听到的让孩子接种疫苗的理由都是谎言。孩子在感染新冠后获得的免疫力，对于拯救家人免于这场疾病至关重要。
+
+总而言之，考虑到疫苗的已知风险，给孩子接种疫苗没有任何好处。
+
+
+
+> This is directly from Dr. Robert Malone. [@RWMaloneMD](https://twitter.com/RWMaloneMD?ref_src=twsrc%5Etfw). It is imperative that you read and share. Especially if you have children and grandchildren. [pic.twitter.com/YtpFDOH7AJ](https://t.co/YtpFDOH7AJ)
+> — John Chamberlain, MHA, LFACHE (@misterchambo) [December 13, 2021](https://twitter.com/misterchambo/status/1470251142861017090?ref_src=twsrc%5Etfw)
+
+
+
+**8.印太新闻 – 关注中共威胁 12月15日发推说：**
+
+美国参议员汤姆科顿抨击拜登政府允许中共通过武力而非谈判的方式威胁台湾，在民主峰会上切断了台湾数字部长唐凤的视频，声称这是拜登政府向中共屈服示好的最新例子。
+
+【推文转《福克斯》报道，科顿说：“仅仅因为唐风展示的地图上的台湾和中共国的颜色不同，白宫就将其视频切断，这展现了拜登政府可悲的弱点。我一点也不相信这只是一个技术问题。我相信，这是总统和政府向北京屈服的又一例子。我们需要做的是与台湾站在一起，帮助巩固其自治权，并维持海峡两岸的现状。但是北京威胁台湾要通过武力而不是谈判来改变这种现状。】
+
+
+
+> Tom Cotton slams Biden for allowing [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) to threaten [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw) 'by force, not by negotiation'
+> 
+> The Arkansas senator said, 'This is an example of the president and the administration kowtowing to Beijing,'[https://t.co/FstVuKsTSs](https://t.co/FstVuKsTSs)
+> — Indo-Pacific News – Watching the CCP-China Threat (@IndoPac\_Info) [December 14, 2021](https://twitter.com/IndoPac_Info/status/1470823592967294978?ref_src=twsrc%5Etfw)
+
+
+
+**9．印太新闻 – 关注中共威胁 12月15日发推说：**
+
+澳大利亚的人权活动家、反共人士德鲁·帕夫洛 (Drew Pavlou)想刊登抗议北京冬奥会的广告，但却被当地的广告牌公司拒绝，因为他们怕惹恼中共。
+
+【推文转《台湾英文新闻》报道，帕夫洛与中共政权的异议人士巴丢草合作设计了一系列的抗议北京冬奥会的广告海报，并准备张贴在澳州布里斯班当地的广告牌上。他们联系了一家广告牌制造商量此事，但该厂商的代表说：“昆士兰州一家大型广告牌制造商的总经理在与所有广告牌公司的总经理举行会议后，得出结论说，该行业不值得为了帕夫洛的3000澳元广告费，而面临可能激怒中共政府的风险。因为该行业制作广告牌的大部分用品，包括钢材，都来自中共国。他们担心，如果刊登此类广告的信息传到中共国，将对他们的广告牌部件供应产生严重影响，而且他们的计算机系统也可能会遭到中共黑客的报复攻击。】
+
+
+
+> Audio reveals why activist [@DrewPavlou](https://twitter.com/DrewPavlou?ref_src=twsrc%5Etfw) is banned from posting anti-CCP billboards in Australia
+> 
+> Australian billboard companies refuse to post ads protesting Beijing 2022 Olympics for fear of angering China [https://t.co/fLmGMwQF7V](https://t.co/fLmGMwQF7V) [pic.twitter.com/zrgo6bhvfU](https://t.co/zrgo6bhvfU)
+> — Indo-Pacific News – Watching the CCP-China Threat (@IndoPac\_Info) [December 14, 2021](https://twitter.com/IndoPac_Info/status/1470785662647365632?ref_src=twsrc%5Etfw)
+
+
+
+**10.埃内斯坎特12月15日发推说：**
+
+非常感谢NBA的传奇人物卡里姆·阿卜杜勒-贾巴尔 (Kareem Abdul-Jabbar)的支持，让更多人了解中共的人权侵犯行为。希望这能鼓励其他运动员站出来发出正义之声！贾巴尔是个真正的领袖！
+
+
+
+> Huge thanks to [@NBA](https://twitter.com/NBA?ref_src=twsrc%5Etfw) legend [@kaj33](https://twitter.com/kaj33?ref_src=twsrc%5Etfw) for your support and bringing more awareness to all the human rights abuses in [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) 
+> 
+> Hoping this encourages other athletes to stand up for what is right.
+> 
+> You are a true leader [@kaj33](https://twitter.com/kaj33?ref_src=twsrc%5Etfw) [#FreeUyghurs](https://twitter.com/hashtag/FreeUyghurs?src=hash&amp;ref_src=twsrc%5Etfw) [#NoBeijing2022](https://twitter.com/hashtag/NoBeijing2022?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/jdjm0ZXCR1](https://t.co/jdjm0ZXCR1)
+> — Enes Kanter FREEDOM (@EnesFreedom) [December 14, 2021](https://twitter.com/EnesFreedom/status/1470788023185022991?ref_src=twsrc%5Etfw)
+
+
+
+**11.Disclose.tv 12月14日发推说：**
+
+美国11月的生产者价格指数（PPI）同比增长9.6%，远高于预期，是有记录以来的最大增幅。
+
+
+
+> JUST IN – U.S. producer price inflation jumps 9.6% year over year in November, much higher than expected and highest increase on record.
+> — Disclose.tv (@disclosetv) [December 14, 2021](https://twitter.com/disclosetv/status/1470749483835310085?ref_src=twsrc%5Etfw)
+
+
+
+**12.盖特官方12月14日在盖特发文：**
+
+盖特将推出自己的短视频版本，与Instagram Reels和TikTok竞争。
+
+【盖文转KnowTechie报道，盖特的新短视频功能，称为G-Vision，将于明年2月推出。盖特CEO杰森米勒说：“现在盖特是推特和脸书的市场竞争者，随着我们推出G-Vision，我们将是Instagram Reels和Facebook Stories的短视频竞争者。”】
+
+[https://gettr.com/post/pjlfs5173d](https://gettr.com/post/pjlfs5173d)
+
+**13.郭文贵先生12月14日在盖特发文：**
+
+郭文贵先生的最新单曲HCoin to The Moon已连续两周蝉联公告牌世界数字歌曲销量排行榜的榜首, 这不仅创造了郭先生所有单曲的个人最好成绩，也创造了非专业歌手在世界最权威音乐排行榜的最好成绩，更是又一次创造了中国人在世界乐坛前所未有的历史奇迹！再次感谢新中国联邦的全球战友们，我们用自己的行动向全世界证明我们团结灭共的力量和决心！[https://gettr.com/post/pjn8js5502](https://gettr.com/post/pjn8js5502)
+
+*以上社交媒体新闻由 巴拉克和二丫 联合编译报导*
+
+发布:星星
+
+* * *
+
+**By 【秘密翻译组-即时新闻播报组】**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/IMAGE-2021-12-13-113746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
