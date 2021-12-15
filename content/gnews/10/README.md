@@ -2,40 +2,58 @@
 ---
 
 
-## 【Michael.Tonny专栏】Real Science统计显示 越来越多运动员接种疫苗后突然死亡
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1757853/)
+## 上周末欧洲三名足球运动员因胸痛提前离场
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1757878/)
 
-作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/12/F.jpg)thekycker.com
+疫苗的后遗症已经显现，先从那些类似瞬间剧烈、有一定持续时间的足球运动开始，即使你是年轻的、身体素质很强的运动员。恐惧的时刻就要到来，欧洲足联、国际足联先叫停比赛吧，或者只允许那些没有打过疫苗的运动员上场比赛。
 
-世界各国政客在不断重复“中共病毒疫苗是一种普通疫苗，它是安全有效的”，不遗余力的推广中共病毒疫苗，甚至强迫民众注射中共病毒疫苗。然而疫苗副作用带给世人的伤害，却一刻也没有停止。
+《门道专家》12月14日发表文章，题目是“法国职业足球运动员因胸痛提前离场，这是上周末第三位因胸痛严重而离开球场的顶级球员”。
 
-[Real Science](https://goodsciencing.com/)对年轻运动员接种中共病毒疫苗后的严重副作用统计结果，可以证明接种疫苗究竟有多可怕。
+全文如下：
 
-许多运动队现在有多名球员缺阵，有的队甚至更多，这些因病缺席的球员的免疫系统很可能已经被“某些东西”损害了，运动队和大媒体都隐藏了这一点，认为没有人会注意到。
+法国职业足球运动员马丁·特雷尔（Martin Terrier）是法甲雷恩（Rennes）俱乐部的第二前锋，他在周日（12月12日）与尼斯（Nice）队的比赛中因胸痛离开了球场。
 
-这里只分析12月12日[Real Science](https://goodsciencing.com/)更新的比赛途中运动员突然倒地或死亡。
+24岁的马丁·特雷尔在比赛第30分钟因胸痛和呼吸困难被护送出场。
 
-下图为[Real Science](https://goodsciencing.com/)更新至2021年12月12日，运动员比赛途中突然倒地或突然死亡的统计结果。包括：心脏骤停（Cardiac Arrest）、血栓（Blood Clots or Thrombosis）、中风（Stroke）、心律不齐（Irregular Heartbeat）、心律失常（Arrythmia）、神经系统疾病（Neuropathy）、死亡（Death）
+他的团队尚未发布任何官方声明。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/athlete-collapses-deaths-chart-20211210.jpg)
+（以下是）未删节新闻报道（翻译成英文）：
 
-通过上图可以看到，随着中共病毒疫苗接种比例的提高，越来越多的运多员倒在了赛场上。
+*法国职业足球运动员马丁·特雷尔在周日与尼斯的比赛中因胸痛被替换下场，他效力于法甲雷恩俱乐部。*
 
-除了以上明确打了中共病毒疫苗后，在赛场上突然倒地或死亡外，[Real Science](https://goodsciencing.com/)还公布了27名运动员在比赛中、比赛后、或日常生活中突然倒地或死亡。
+*这已经是几天之内第三个类似事件，欧洲顶级足球运动员在比赛中间紧紧捂住胸膛，不能继续比赛。*
 
-年轻运动员在比赛时心脏骤停或死亡绝对不正常，但今年正在发生，所有这些心脏问题和死亡都是在他们接种中共病毒疫苗后不久发生的。虽然这可能发生在没有接种中共病毒疫苗的人身上，但绝对数字清楚地指出了唯一明显的原因，就是因为注射了中共病毒疫苗。
+*这些频发的病例提出了一个问题，即运动员因心脏和呼吸问题离开了赛场的病例，是否是由于中共（新冠）病毒疫苗的不良反应所致。*
 
-截止至12月12日，已经有310名运动员在接种中共病毒疫苗后，比赛途中心脏骤停等严重问题，177 人死亡。
+*在与“奥林匹克体操俱乐部尼斯队”（OGC，Olympique Gymnaste Club Nice）的比赛中，比赛进行了30分钟后，特雷尔弯下腰来，似乎在急速呼吸，当这位24岁的男子指着他明显需要帮助的胸部时，医护人员赶到了现场，不久之后，他被带离球场。*
 
-珍爱生命，不要打疫苗！
+*事件发生前一周，在对阵圣埃蒂尼（Saint-Éttiene）队的比赛中，这位年轻前锋在职业生涯中第一次上演了帽子戏法（一场比赛进3球）。24小时内发生了三起针对最年轻（运动员）的胸痛案件，可怕的足球界。*
 
-参考数据：
+特雷尔是最新一位因胸痛退出比赛的知名运动员，这是上周末发生的第三起欧洲顶级运动员因胸痛提前离开比赛的事件。
 
-[311 Athlete Cardiac Arrests, Serious Issues, 177 Dead, After COVID Shot](https://goodsciencing.com/covid/71-athletes-suffer-cardiac-arrest-26-die-after-covid-shot/)
+《门道专家》此前曾报道了曼联（Manchester United）球员维克多·林德洛夫（Victor Lindelof）在周六（12月11日）1-0战胜诺维奇（Norwich）的比赛中因呼吸困难提前离开球场。
 
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/) 上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+那不勒斯（Napoli）中场球员皮奥特·齐林斯基（Piotr Zielinski），27岁，在意甲惨败给恩波利（Empoli）的比赛中挣扎着喘不过气来。就在曼联后卫维克多·林德洛夫事件发生24小时后。
+
+（全文完）
+
+笔者再补充两个，阿根廷著名前锋、前曼城球员阿圭罗，10月30日在本赛季加盟巴塞罗那的第三次出场中，因胸痛提前退场，次日，巴萨宣布阿圭罗因心律不齐至少缺阵三个月，12月15日阿圭罗将就是否退役的传言进行澄清。
+
+6月份的欧洲杯，丹麦的埃里克森是人们开始关注中共病毒疫苗副作用以来，第一个倒在比赛场上的足球运动员。但是他所在的意大利国际米兰俱乐部的CEO、左媒先声夺人、高调喧嚷埃里克森没有打疫苗，让人有种此地无银三百两的感觉，埃里克森不会自己说话吗？想想也是，6月份正是各国政府启动强制疫苗接种的关键时刻，阴谋集团定会进行应急公关，掩盖真相。
+
+现在还有人说上述运动员没有打过疫苗吗？打过疫苗的运动员，你们还敢继续在赛场上全力拼搏吗？
+
+阴谋集团，你们捂真相，运动员就要在场上捂胸膛！
+
+大觉醒，就要到来！
+
+原文链接：
+
+[https://www.thegatewaypundit.com/2021/12/french-professional-soccer-player-leaves-game-early-reported-chest-pain-third-top-player-experience-severe-chest-pain-weekend/](https://www.thegatewaypundit.com/2021/12/french-professional-soccer-player-leaves-game-early-reported-chest-pain-third-top-player-experience-severe-chest-pain-weekend/)
 
  
 

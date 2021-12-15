@@ -2,21 +2,28 @@
 ---
 
 
-## 马航事件是江锦恒 孟建柱对器官移植医生的灭口行动
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1757736/)
+## GTV新闻访谈简报|2021年12月15日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1757784/)
 
-文编：东京樱花团/樱花传媒
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-3.jpg)
 
-视频:东京樱花团/中文小视频组
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-1-6.png)
+文章仅代表作者本人观点，与Gnews无关
 
-12月3日，郭文贵先生在GTV大直播指出：
+视频参看：[2021.12.15早GTV新闻访谈](https://gtv.org/video/id=61b9ed337882000d5100ce0b)
 
-当黎磊石的家人知道江锦恒要连续两天约他见面的时候，就知道大事不好。结果被干掉，用所谓的跳楼死，包括李保春专家。孟建柱他的妈妈换过多次心脏和肾脏，为此杀了很多新疆人，这些事情怎么可能让习知道。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-编辑：东京樱花团/墨然
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/calendar.jpeg)
 
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
