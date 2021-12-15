@@ -2,73 +2,35 @@
 ---
 
 
-## 【草根访谈】第290期新闻概要
-` WindTalker` [轉載自GNews](https://gnews.org/zh-hans/1756419/)
+## 美商務部長老公就職的公司曾兩次獲得來自中共風投公司的註資
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1756448/)
 
-**——日本东京方舟农场GTV直播组出品**
+撰稿：Jenny
+![](https://assets.gnews.org/wp-content/uploads/2021/12/IMG_2364.jpg)网络截图
+据《华盛顿自由灯塔》披露，美国商务部长吉娜-雷蒙多(Gina Raimondo)的丈夫[安德鲁·莫菲特](https://www.google.com/search?sxsrf=AOaemvI9uBINIR5XQ0zfTVpD9XUycb7lTA:1639546889743&amp;q=%E5%AE%89%E5%BE%B7%E9%B2%81%C2%B7%E8%8E%AB%E8%8F%B2%E7%89%B9&amp;stick=H4sIAAAAAAAAAOPgE-LSz9U3SDLLNbCsVOLVT9c3NEwqySopKrew0JLITrbSL0jNL8hJBVJFxfl5VsUF-aXFqYtYRZ6u63y6b_vLTY2Htr_oW_2if9Pzzp07WBkBa86vKVEAAAA&amp;sa=X&amp;ved=2ahUKEwij8NGPjOX0AhVcUGwGHaGDBYgQmxMoAXoECCEQAw)(Andrew Moffit)在一家名为PathAI的人工智能公司就任高管，这家公司的主要投资者“丹华资本”（ Danhua Capital）则是来自于中共政府支持的风险投资公司。
 
-策划/撰文：宇宙之泾
+丹华资本是在中国政府的帮助下资助和建立的，由北京的国有企业中关村发展集团成立，其战略目的是推动’中关村资本走出去，引进海外先进技术和人才’。是其 “渗透到硅谷 “计划的一部分。自由派智库新美国安全中心（CNAS）在2018年向国会作证时说，丹华资本的使命是利用其资本来缩小中国和美国的技术差距。
 
-校对：石桥李次郎
+PathAI多次从丹华资本获得资金。2017年，丹华资本加入投资者行列，使PathAI的总融资额达到1500万美元。2019年，该公司至少筹集了6000万美元，丹华资本再次被列为投资者。
 
-书法：方舟柒公子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-09-上午2.30.19.png)
-日本东京方舟农场GTV直播组【草根访谈】第290期新闻概要：
+**这位部长所领导的商务部正致力于在世界经济舞台上与中共国抗衡，这是否有潜在的利益冲突？引起民众普遍关注。**
 
-GTV方舟农场直播间【草根访谈】今天的嘉宾是日本东京方舟农场的美女「雨嘉战友」坐客方舟直播间，分享一下12月8日观看七哥大直播的感想。
+雷蒙多和PathAI都没有回应关于丹华资本投资的评论请求。作为商务部长，雷蒙多的任务是管理美国与全球各国的商业关系，而她已经成为政府中最亲中国的声音之一。
 
-时政观点：没郭七条！直接开干！ 七哥说： 所有的送葬图文都应该跟制作病毒、释放病毒、打毒疫苗、香港大屠杀，新疆种族大灭绝等事件挂钩。跟这些事情联系在一起发声发咒，这样有根源利于传播爆料革命，传播共匪的恶，望有创意的战友们能看到！
-![](https://assets.gnews.org/wp-content/uploads/2021/12/E0152A97-5633-4004-84AC-2FE668A23BD8-scaled.jpeg)
-**12月8日七哥大直播内容**：文贵先生家人、父亲、员工被300特警，300法警，全部赶到大街上。手机失效、信用卡被停 、新中国联邦未来1-3年重大行动「海外中共大使馆领事馆外，大年三十开始为中南坑的老杂毛们及家属送葬 、每天100美金、100个躺平币、1个喜币、食宿交通实报实销。战友们只要去参加给习近平送葬行动的，都将获得补助 、今天开始，没有郭七条，只要能灭共 、墙内战友尽量不要做 保障安全的情况下传播信息。」
+雷蒙多在9月份接受《华尔街日报》采访时说，美国应该加强与中国的经济关系，认为与中国 “强有力的 “商业交往将 “缓解与这个全球竞争对手的任何潜在紧张关系”。
 
-主持人：@WindTalker 宇宙之泾
+其实，今年三月份，新上任的吉娜·雷蒙多(Gina Raimondo)及其丈夫通过交易基金持有微信母公司腾讯控股的金融股份的新闻已经引发争议，拜登政府正在审议川普政府对中（共）国科技巨头腾讯的禁令，因此雷蒙多持股是否存在利益冲突受到关注。
 
-嘉宾战友：@yujia 雨嘉战友
+雷蒙多的商务部还为华为提供了一条生命线，8月商务部批准了华为购买价值数亿美元的芯片的许可申请，以满足其对汽车行业日益增长的兴趣。
 
-美东时间晚上11:30 日本东京时间中午1:30 北京时间中午12:30
-![插图](https://assets.gnews.org/wp-content/uploads/2021/12/CF6756C4-59FE-475E-A4DC-435933C107C9.jpeg)
-Every day we spreading the truth about CCPvirus (COVID-19)and CCP vaccines, every day is Shouting for the people of Hong Kong who killed from CCP, and every day is hard working for the Chinese people to destroy the evil Chinese Communist Party! Welcome to our New Federal State of the China. Welcome to our Himalaya Tokyo JHL. **👏**
+这位部长并不是唯一家庭成员与中共的利益捆绑的拜登政府官员，这使得对中国即将举办的冬奥会进行外交抵制的计划变得更复杂。同时，美国政府与中共经济脱钩的战略部署由这么一位亲共派商务部长执行是否会打折扣？我们拭目以待。
 
-【草根访谈】日本东京方舟农场欢迎你！
+[原文链接：](https://freebeacon.com/biden-administration/commerce-secretarys-husband-is-top-executive-at-tech-firm-funded-by-chinese-government/)
 
-【草根访谈】【方舟有你】【方舟歌汇】
+[部分引用：](http://www.bayvoice.net/gb/news/us/2021/03/07/1016486.htm%E7%BE%8E%E5%95%86%E5%8A%A1%E9%83%A8%E9%95%BF%E6%8C%81%E8%85%BE%E8%AE%AF%E8%82%A1%E4%BB%BD-%E6%98%AF%E5%90%A6%E6%9C%89%E5%88%A9%E7%9B%8A%E5%86%B2%E7%AA%81%E5%BC%95%E5%85%B3%E6%B3%A8.html)
 
-【方舟品读时光】【有问必答】【果色添香】
-
-[#nfsc](https://gettr.com/hashtag/%23nfsc) [#MilesGuo](https://gettr.com/hashtag/%23MilesGuo) [#ccpvirus](https://gettr.com/hashtag/%23ccpvirus) [#CCPvaccines](https://gettr.com/hashtag/%23CCPvaccines) [#ccpliepeoplesdie](https://gettr.com/hashtag/%23ccpliepeoplesdie) [#takedowntheccp](https://gettr.com/hashtag/%23takedowntheccp)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/85A9DBF3-4860-4C4F-8B7B-962289F759D4_1_100_o-1-scaled.jpeg)
-
-
-```
-只有那些疯狂到认为自己可以改变世界的人，才能真正改变这个世界。
-```
-
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/73A43459-2029-4DBE-89E4-993EF95E97A9_1_201_a.jpeg)
-
-
-```
-知人者智自知者明篆刻：柒公子
-```
-
-
-
-
-
-
-2021年12月| 一 | 二 | 三 | 四 | 五 | 六 | 日 |
-| --- | --- | --- | --- | --- | --- | --- |
-|   | [1](https://gnews.org/zh-hans/date/2021/12/01/) | [2](https://gnews.org/zh-hans/date/2021/12/02/) | [3](https://gnews.org/zh-hans/date/2021/12/03/) | [4](https://gnews.org/zh-hans/date/2021/12/04/) | [5](https://gnews.org/zh-hans/date/2021/12/05/) |
-| [6](https://gnews.org/zh-hans/date/2021/12/06/) | [7](https://gnews.org/zh-hans/date/2021/12/07/) | [8](https://gnews.org/zh-hans/date/2021/12/08/) | [9](https://gnews.org/zh-hans/date/2021/12/09/) | [10](https://gnews.org/zh-hans/date/2021/12/10/) | [11](https://gnews.org/zh-hans/date/2021/12/11/) | [12](https://gnews.org/zh-hans/date/2021/12/12/) |
-| [13](https://gnews.org/zh-hans/date/2021/12/13/) | [14](https://gnews.org/zh-hans/date/2021/12/14/) | [15](https://gnews.org/zh-hans/date/2021/12/15/) | 16 | 17 | 18 | 19 |
-| 20 | 21 | 22 | 23 | 24 | 25 | 26 |
-| 27 | 28 | 29 | 30 | 31 |   |
-
-[« 11月](https://gnews.org/zh-hans/date/2021/11/)  
- 
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

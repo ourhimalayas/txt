@@ -2,35 +2,83 @@
 ---
 
 
-## 美商務部長老公就職的公司曾兩次獲得來自中共風投公司的註資
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1756448/)
+## 【草根访谈】第292期新闻概要
+` WindTalker` [轉載自GNews](https://gnews.org/zh-hans/1756467/)
 
-撰稿：Jenny
-![](https://assets.gnews.org/wp-content/uploads/2021/12/IMG_2364.jpg)网络截图
-据《华盛顿自由灯塔》披露，美国商务部长吉娜-雷蒙多(Gina Raimondo)的丈夫[安德鲁·莫菲特](https://www.google.com/search?sxsrf=AOaemvI9uBINIR5XQ0zfTVpD9XUycb7lTA:1639546889743&amp;q=%E5%AE%89%E5%BE%B7%E9%B2%81%C2%B7%E8%8E%AB%E8%8F%B2%E7%89%B9&amp;stick=H4sIAAAAAAAAAOPgE-LSz9U3SDLLNbCsVOLVT9c3NEwqySopKrew0JLITrbSL0jNL8hJBVJFxfl5VsUF-aXFqYtYRZ6u63y6b_vLTY2Htr_oW_2if9Pzzp07WBkBa86vKVEAAAA&amp;sa=X&amp;ved=2ahUKEwij8NGPjOX0AhVcUGwGHaGDBYgQmxMoAXoECCEQAw)(Andrew Moffit)在一家名为PathAI的人工智能公司就任高管，这家公司的主要投资者“丹华资本”（ Danhua Capital）则是来自于中共政府支持的风险投资公司。
+**——日本东京方舟农场GTV直播组出品**
 
-丹华资本是在中国政府的帮助下资助和建立的，由北京的国有企业中关村发展集团成立，其战略目的是推动’中关村资本走出去，引进海外先进技术和人才’。是其 “渗透到硅谷 “计划的一部分。自由派智库新美国安全中心（CNAS）在2018年向国会作证时说，丹华资本的使命是利用其资本来缩小中国和美国的技术差距。
+策划/撰文：宇宙之泾
 
-PathAI多次从丹华资本获得资金。2017年，丹华资本加入投资者行列，使PathAI的总融资额达到1500万美元。2019年，该公司至少筹集了6000万美元，丹华资本再次被列为投资者。
+校对：石桥李次郎
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-12-上午3.18.17.png)
+GTV日本东京方舟农场直播间 【草根访谈】第292期新闻概要：
 
-**这位部长所领导的商务部正致力于在世界经济舞台上与中共国抗衡，这是否有潜在的利益冲突？引起民众普遍关注。**
+今天的嘉宾是日本东京方舟农场的大才子「风雨之中」先生坐客方舟直播间，分享一下七哥12/10大直播的内容和观点。
 
-雷蒙多和PathAI都没有回应关于丹华资本投资的评论请求。作为商务部长，雷蒙多的任务是管理美国与全球各国的商业关系，而她已经成为政府中最亲中国的声音之一。
+时政观点：全球国家政府面临破产将会找一个替罪羊就是中共，验证文贵先生的爆料。风雨之中先生具体给战友们介绍当天早上与日本保守党派参加东京反共抵制北京冬奥会的游行示威活动情况，用行动告诉日本本土的人们，中共不等于中国人，中共不等于中国。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/21EAC9BD-C05F-4E33-B16F-B5FB8D1163A6_1_201_a.jpeg)
+文贵大直播内容选取如下：
 
-雷蒙多在9月份接受《华尔街日报》采访时说，美国应该加强与中国的经济关系，认为与中国 “强有力的 “商业交往将 “缓解与这个全球竞争对手的任何潜在紧张关系”。
+1，杨洁篪在塞浦路斯和非洲抓了新中国联邦几十个战友 、加拿大战友要小心，中共工作小组正在收集很多加拿大战友信息
 
-其实，今年三月份，新上任的吉娜·雷蒙多(Gina Raimondo)及其丈夫通过交易基金持有微信母公司腾讯控股的金融股份的新闻已经引发争议，拜登政府正在审议川普政府对中（共）国科技巨头腾讯的禁令，因此雷蒙多持股是否存在利益冲突受到关注。
+2，中共想要成功办好冬奥会的最大目的是：洗脱病毒来自中共、数学人民币国际化、冬奥会经济、万国来朝、然后在打台湾 、年轻人出奇一致地接受疫苗说明： 社交媒体、宗教、学习、工作，对大学生的洗脑程度最高的，四重围剿。
 
-雷蒙多的商务部还为华为提供了一条生命线，8月商务部批准了华为购买价值数亿美元的芯片的许可申请，以满足其对汽车行业日益增长的兴趣。
+3，俄罗斯明确跟美国说他们不会跟中共站在一起。七哥判断：2022年年底以前中共将被踢出WTO，2023年5月份以前中共应该会被踢出SWIFT系统。
 
-这位部长并不是唯一家庭成员与中共的利益捆绑的拜登政府官员，这使得对中国即将举办的冬奥会进行外交抵制的计划变得更复杂。同时，美国政府与中共经济脱钩的战略部署由这么一位亲共派商务部长执行是否会打折扣？我们拭目以待。
+4，Google每次点击，Google已经收钱了，这就是个人数据消费，躺平币的来源 就是被大数据公司拿走出卖的价值 ；躺平币是根据你行动的结果 一切的行为结果都能计算成结果。
 
-[原文链接：](https://freebeacon.com/biden-administration/commerce-secretarys-husband-is-top-executive-at-tech-firm-funded-by-chinese-government/)
+5，国内公检法等对战友们枪口抬高一寸的，都会得到百倍的躺币，十倍的喜币，每一个都会得到 、躺平币的计划是新中国联邦64两周年推出。
 
-[部分引用：](http://www.bayvoice.net/gb/news/us/2021/03/07/1016486.htm%E7%BE%8E%E5%95%86%E5%8A%A1%E9%83%A8%E9%95%BF%E6%8C%81%E8%85%BE%E8%AE%AF%E8%82%A1%E4%BB%BD-%E6%98%AF%E5%90%A6%E6%9C%89%E5%88%A9%E7%9B%8A%E5%86%B2%E7%AA%81%E5%BC%95%E5%85%B3%E6%B3%A8.html)
+6，伊维菌素的临床运用缓解中共病毒和疫苗的灾难，但是各国政府与媒体联合起来唬弄老百姓打疫苗，有计划有步骤的消灭人口达到大重置的目的。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-12-上午3.17.46.png)
+主持人：@WindTalker 宇宙之泾
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-2.jpg)
+嘉宾战友：@lsylsy007 风雨之中
+
+美东时间晚上11:30 日本东京时间中午1:30 北京时间中午12:30
+
+Every day we spreading the truth about CCPvirus (COVID-19)and CCP vaccines, every day is Shouting for the people of Hong Kong who killed from CCP, and every day is hard working for the Chinese people to destroy the evil Chinese Communist Party! Welcome to our New Federal State of the China. Welcome to our Himalaya Tokyo JHL.
+
+【草根访谈】日本东京方舟农场欢迎你！
+
+【草根访谈】【方舟有你】【方舟歌汇】
+
+【方舟品读时光】【有问必答】【果色添香】 [#nfsc](https://gettr.com/hashtag/%23nfsc) [#MilesGuo](https://gettr.com/hashtag/%23MilesGuo) [#ccpvirus](https://gettr.com/hashtag/%23ccpvirus) [#CCPvaccines](https://gettr.com/hashtag/%23CCPvaccines)[#ccpliepeoplesdie](https://gettr.com/hashtag/%23ccpliepeoplesdie) [#takedowntheccp](https://gettr.com/hashtag/%23takedowntheccp)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/85A9DBF3-4860-4C4F-8B7B-962289F759D4_1_100_o-1-scaled.jpeg)
+
+
+```
+只有那些疯狂到认为自己可以改变世界的人，才能真正改变这个世界。
+```
+
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/73A43459-2029-4DBE-89E4-993EF95E97A9_1_201_a.jpeg)
+
+
+```
+知人者智自知者明篆刻：柒公子
+```
+
+
+
+
+
+
+
+
+2021年12月| 一 | 二 | 三 | 四 | 五 | 六 | 日 |
+| --- | --- | --- | --- | --- | --- | --- |
+|   | [1](https://gnews.org/zh-hans/date/2021/12/01/) | [2](https://gnews.org/zh-hans/date/2021/12/02/) | [3](https://gnews.org/zh-hans/date/2021/12/03/) | [4](https://gnews.org/zh-hans/date/2021/12/04/) | [5](https://gnews.org/zh-hans/date/2021/12/05/) |
+| [6](https://gnews.org/zh-hans/date/2021/12/06/) | [7](https://gnews.org/zh-hans/date/2021/12/07/) | [8](https://gnews.org/zh-hans/date/2021/12/08/) | [9](https://gnews.org/zh-hans/date/2021/12/09/) | [10](https://gnews.org/zh-hans/date/2021/12/10/) | [11](https://gnews.org/zh-hans/date/2021/12/11/) | [12](https://gnews.org/zh-hans/date/2021/12/12/) |
+| [13](https://gnews.org/zh-hans/date/2021/12/13/) | [14](https://gnews.org/zh-hans/date/2021/12/14/) | [15](https://gnews.org/zh-hans/date/2021/12/15/) | 16 | 17 | 18 | 19 |
+| 20 | 21 | 22 | 23 | 24 | 25 | 26 |
+| 27 | 28 | 29 | 30 | 31 |   |
+
+[« 11月](https://gnews.org/zh-hans/date/2021/11/)  
+ 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
