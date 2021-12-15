@@ -2,137 +2,50 @@
 ---
 
 
-## 俄罗斯特使向中共通报的四项内容吓傻了共产党
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1758521/)
+## 为了增加人员配备一些医院取消了COVID-19疫苗强制规定
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1758564/)
 
-[https://gtv.org/video/id=61b9d7cea68b4f4b28e8b3b3](https://gtv.org/video/id=61b9d7cea68b4f4b28e8b3b3)
+作者：查理·麦卡锡（Charlie McCarthy）
+发布日期：2021年12月14日
+新闻来源：NEWSMAX
+翻译：文虓Bobby
 
-**郭文贵**
-**Miles Guo**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/121601.jpg)
 
-俄罗斯派去的特使
-The special envoy sent by Russia
+据《华尔街日报》报道，在一名联邦法官暂时叫停了美国总统乔·拜登(Joe Biden)对医护人员的疫苗强制授权后，美国一些最大的医院系统取消了对员工接种COVID-19疫苗的要求。
 
-非常明确地所谓的在官方通报了
-made it very clear that
+11月30日，路易斯安那州的一名美国地区法院法官停止了对医护人员接种疫苗的强制要求。
 
-和俄美交流之后
-after the official notification of the exchange between Russia and the United States,
+《华尔街日报》周一报道称，因此，HCA医疗保健公司(HCA Healthcare Inc.)和特尼特医疗保健公司(Tenet Healthcare Corp.)等医院运营商，以及冒险健康医疗（AdventHealth）和克利夫兰诊所(Cleveland Clinic)等非营利组织都放弃了这一要求。
 
-会谈之后, 这次私下里交谈告诉了中方
-they told the Chinese officials in a private conversation after the meeting with US.
+由于德尔塔变体导致COVID-19住院率上升，医院难以留住足够的护士、技术人员和清洁工。
 
-任何情况下你打台湾我不会跟你一起的
-that “under any circumstances, if you fight against Taiwan, I will not be with you”
+《华尔街日报》报道说，医院管理人员、公共卫生官员和护理团体说，疫苗强制接种是减少医护人员供应的一个原因。
 
-原来说你弄我吆喝啊，甚至给你技术上支持
-They originally were to let China do what they want and Russia just roaring in the back, and even provide them with technological support
+员工福利律师、美世咨询公司(Mercer)美国监管业务主管韦德•西蒙斯(Wade Symons)对《华尔街日报》表示:“这是一种大规模的离职潮，医疗行业的很多人都愿意货比三家（地找工作）。”
 
-这个对它是一个致命的（打击）
-This is a fatal strike to the CCP,
+“如果你有一些不需要疫苗的医疗机构，它们可能会吸引那些不想打疫苗的人。他们可能更容易吸引劳动力。”
 
-说我不会的，打台湾我不参与
-saying that I won’t participate if you war on Taiwan
+《华尔街日报》称，数千名护士离开了该行业或失去了工作，而不去接种疫苗。
 
-第二句话很可怕
-The second sentence is fearful,
+截至9月，美国疾病控制与预防中心(Centers for Disease Control and Prevention，简称CDC)对全美2,000多家医院进行的调查显示，其中30%的员工未接种疫苗。
 
-所有中苏之间签署的油、气的协议，你们必须执行
-saying that you must implement all the oil and gas agreements signed between Chi-na and the Soviet Union
+美国健康协会发言人哈洛·萨默福德（Harlow Sumerford）告诉《华尔街日报》:“我们继续强烈鼓励我们的同事接种疫苗，作为保护个人免受病毒感染的关键步骤。”
 
-言外之意啥意思呀
-What does it implicate?
+即使在疫情之前，很多医院也因为工作倦怠而难以找到工作人员，而护士们则因为没有机会以短期合同的形式到国家热点地区寻找高薪工作而难以找到工作。
 
-你该给我的钱、买我的油、买我的气，一点儿也不能少
-The money that you are supposed to give me and the oil and gas you are supposed to buy from us cannot be a bit less
+美国地区法官特里·道蒂（Terry Doughty）裁定，医疗保险和医疗补助服务中心没有权力强制要求医护人员接种疫苗。这项法案影响了近1,000万工人，要求所有参加医疗保险和医疗补助计划的员工在1月4日前接种第二次疫苗。
 
-你少了，反过来我不是不支持你，我就是打你了
-If you are missing a bit, on the other hand, it’s not that I don’t support you, but to fight against you
+道蒂写道:“如果行政部门被允许篡夺立法部门制定法律的权力，我们的宪法赋予的三种权力中的两种将掌握在同一个人手中。”“如果说人性和历史教会我们什么的话，那就是当政府宣布无限期的紧急状态时，公民自由将面临严峻的风险。
 
-我就跟美国人站在一起去了
-and I would stand by the American side
+“在像这次这样的大流行期间，捍卫我们宪法中规定的三权分立，以避免我们的自由受到侵蚀，这就更加重要了。”
 
-这对习来讲是简直是巨大的羞辱
-This is a huge shame to Xi
+据《华尔街日报》报道，美国医院协会估计，有2640家医院(占美国医院的42%)已要求接种COVID-19疫苗。
 
-（中共之前的战略）它是联俄抗美，联俄收台
-It (the CCP’s previous strategy) was to unite Russia and to be against the United States and to reclaim Taiwan
+[援引原文](https://www.newsmax.com/us/hospitals-covid-vaccine-mandate/2021/12/13/id/1048390/)
 
-这个战略观是整个过去十几年世界局势变化的一切根本的原因
-This strategic view is the fundamental reason for all changes in the world situation over the past ten years
-
-这已经完了
-All these are over
-
-第三条是更让他接受不了的
-The third is even more unacceptable to Xi
-
-俄国和印度、北朝鲜、巴基斯坦、伊朗将形成一个新的联盟关系
-Russia and India, North Korea, Pakistan, and Iran will form a new alliance relation-ship
-
-你看看就没有共产党，而且明确了就没邀请你进去
-You see, there is no Communist Party, and clearly, it has not been invited to join them
-
-什么概念？
-What dose it mean?
-
-这几个人要联合起来跟美国讲数（谈判）, 咱们不打，咱交易
-These individuals want to be united and to negotiate with the United States that they don’t want to fight but a deal
-
-特别是俄罗斯反对中国在阿富汗干的事情
-Especially Russia opposes what China is doing in Afghanistan
-
-很明确，说你在阿富汗这事干得不行
-It’s clear that the CCP didn’t do it well in Afghanistan
-
-阿富汗现在死太多人了
-Too many people have died in Afghanistan now
-
-对我俄罗斯也不利呀
-It’s unfavorable to Russia
-
-阿富汗乱，车臣的回民就给它搞在一起
-The chaos in Afghanistan, the Muslim people in Chechnya would bring it together
-
-所谓车臣恐怖分子就会再次崛起
-The so-called Chechen terrorists will rise again
-
-这是很夸张的
-This is very overstressed
-
-还有一个就是现在你跟美国和西方这种挑战什么都可以
-Another thing is that now you can challenge anything with the United States and the West
-
-但是中国内部
-But insider China
-
-俄罗斯就说了你的人权和你的整个企业经济情况让我们很失望
-The Russia said that the Chinese human rights and their entire business economic situation have disappointed them
-
-言外之意就是你再给我钱，你给不起了
-The implication is that the CCP needs to give Russia money again, but the CCP may not have enough money anymore
-
-**原视频链接:** [https://gettr.com/post/pjjifl68f6](https://gettr.com/post/pjjifl68f6)
-
-Date: 12/13/2021
-原视频标题: 俄罗斯特使向中共通报的四项内容吓傻了共产党
-The Communist Party Has Been Shocked by The Four Contents That The Russian Special Envoy Noticed to The CCP
-
-原视频日期：2021/12/12
-原视频链接: https://gettr.com/post/pjjifl68f6
-任务编号：3220
-视频时间段 : 0:00-2:17
-
-英听校 : 洛杉矶盘古农场 – 郭班之樱
-翻译 : 洛杉矶盘古农场 – 郭班之樱
-翻译终校 : 洛杉矶盘古农场 – Mike Li
-字幕+视频制作 : 洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场- 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+审核校对：玫瑰天空
+上传排版：糖果儿
 
  
 

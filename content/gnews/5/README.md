@@ -2,46 +2,53 @@
 ---
 
 
-## 小肯尼迪新书以希望结尾：我们还有选择……(1/2)
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1758539/)
+## 灭共者：地球是我们的一个支点
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1758596/)
 
-**翻译： Jenny Ball**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip14-3.png)图片来源：childrenshealthdefense
-小肯尼迪在他的新书《真正的安东尼·福奇：比尔·盖茨、大型制药公司以及全球民主和公共卫生战争》中说，即使没有政府参与，我们普通人也可以将我们自己从暴政中解救出来。
+**出品：纽约香草山设计部**
 
-编者注：以下是《真正的安东尼·福奇》的后记，该畅销书由小罗伯特·肯尼迪 (Robert F. Kennedy, Jr.) 儿童健康防御董事长兼首席法律顾问撰写。
 
-我在前面几章中描述的内容似乎令人难以相信和令人沮丧。福奇博士及其助手的强制接种疫苗运动和其他残酷行为似乎“大而推不倒”。但这取决于我们国家的公民。
 
-我们可以俯首听命并遵守这些规定——接受疫苗、戴上口罩、按需出示我们的数字护照、接受测试，并向生物监视我们的监护人行礼。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-**我们还可以说不**。我们还有选择，现在还为时不晚。
 
-COVID-19 不是问题； 这是一个可以通过安全、有效且廉价的早期治疗，在很大程度上解决的问题。
 
-**问题是医疗工业综合体中普遍存在的腐败现象**，目前各方面都得到大众媒体公司的支持。这个集团的政变，已经从纳税人身上抽走了数十亿美元，已经从全球中产阶级中吸走了数万亿美元，并为全球范围内的大规模宣传、审查和控制创造了借口。这个集团连同其俘虏的监管者一起，引发了全球对自由和民主的战争。剧作家和散文家 C. J. 霍普金斯 (C. J. Hopkins) 很好地描述了这一时刻：
 
-“这个过程没有任何微妙之处。淘汰一个“现实”，并用另一个“现实”取而代之是一项残酷的工作。**社会逐渐习惯于他们的“现实**”。由于我们不会心甘情愿或轻易放弃它们， 所以通常让我们这样做需要的是危机、战争、紧急状态，或者……你知道，致命的全球大流行病。
 
-“在旧‘现实’向新‘现实’转变的过程中，社会被撕裂了。旧的现实正在被拆解，而新的现实尚未取而代之。这感觉就像疯了一样，在某种程度上，确实如此。有一段时间，社会一分为二，因为两种‘现实’在争夺主导地位。现实就是它本来的样子（即整体），这是一场生死搏斗。最终，只有一种‘现实’可以占上风。
 
-“这是极权主义运动的关键时期。它需要否定旧的现实才能实现新的现实，它不能用理性和事实来做到这一点，所以，它必须用恐惧和蛮横来达到目的。它需要恐吓社会的大多数人进入一种盲目的集体歇斯底里的状态，这种状态又可以用来反对那些抵制新现实的人。
 
-“这不是说服或说服人们接受新的现实。这更像是你如何驱赶一群牛。”你吓到他们，让他们动起来，然后引导他们去任何你想让他们去的地方。牛不知道也不明白它们要去哪里。他们只是对物理刺激做出反应。事实和理由都与牛群的去向无关。”
 
-那么希望在哪里？让我们在文章后半部分解答！
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-image0-2.jpg)Our prospect is not Earth bound, rather, it is beyond Earth. Our aim is to fly higher and farther, using Earth as the fulcrum. We will be the first community of people to be able to travel to outer space legally and safely, to enjoy and to explore the universe. 
+— Mr. Miles Guo, GTV livecast on Dec. 5, 2021![我们真正的视野不在地球上，是在地球之外，地球是我们的一个支点，我们想走得更高、更远！我们将是最早合法地、安全地飞向外星空去旅游、去享受、去探索宇宙的新族类。 
+— 2021年12月5日郭文贵先生GTV直播](https://assets.gnews.org/wp-content/uploads/2021/12/2-image1-1.jpg)我们真正的视野不在地球上，是在地球之外，地球是我们的一个支点，我们想走得更高、更远！我们将是最早合法地、安全地飞向外星空去旅游、去享受、去探索宇宙的新族类。 
+— 2021年12月5日郭文贵先生GTV直播![](https://assets.gnews.org/wp-content/uploads/2021/12/3-20211214-04.png)Among all G-Series products or resources, GTV is the king, and it will always be. 
+— Mr. Miles Guo, GTV livecast on Dec. 5, 2021![](https://assets.gnews.org/wp-content/uploads/2021/12/4-20211214__1.png)到现在所有的G系列资源里边，GTV是王，永远都是王。
+— 2021年12月5日郭文贵先生GTV直播![](https://assets.gnews.org/wp-content/uploads/2021/12/5-20211214-11.png)The NFSC deserves the greatest credit for the many countries’ boycott of the Beijing Winter Olympics. The CCP is utterly bankrupt internationally due to the boycott, in terms of individual political credibility and national credibility.
+— Mr. Miles Guo, GTV livecast on Dec. 8, 2021![](https://assets.gnews.org/wp-content/uploads/2021/12/6-20211214-09.png)冬奥会被灭，新中国联邦是独一无二的最大的功劳。中共冬奥会在国际上，个人政治和国家信用已经彻底破产。 
+— 2021年12月8日郭文贵先生GTV直播![](https://assets.gnews.org/wp-content/uploads/2021/12/7-20211214-12.png)We are here to tell all that the CCP has prepared the biggest “coffin” for the world, that is the coronavirus and the vaccine. The specter of communism is murdering all mankind. 
+— Mr. Miles Guo, GTV livecast on Dec. 8, 2021![](https://assets.gnews.org/wp-content/uploads/2021/12/8-20211214-07.png)我们就是要告诉全世界，共产党给世界准备了最大的棺材就是冠状病毒和疫苗，共产主义正在杀害全人类。 
+— 2021年12月8日郭文贵先生GTV直播
 
-**新闻来源**：[childrenshealthdefense][RFK, Jr.’s New Book Ends on Note of Hope: ‘We Have a Choice. And It Is Not Too Late.’](https://childrenshealthdefense.org/defender/rfk-jr-the-real-anthony-fauci-we-have-choice/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=73816dfa-7dfe-468a-b1c4-5ac2bc316bd4)
 
-请阅读相关文章：[小肯尼迪新书以希望结尾：我们还有选择……(2/2)](https://gnews.org/zh-hans/1758553/)
+**编辑/发稿：小鹿**
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-2.png)
 
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
+**更多资讯，更多关注**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-3.jpeg)
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
 
 
 

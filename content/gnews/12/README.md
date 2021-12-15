@@ -2,42 +2,137 @@
 ---
 
 
-## DC大中华时事：中共称“共同富裕”将创造中国发展新前景
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1758453/)
+## 俄罗斯特使向中共通报的四项内容吓傻了共产党
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1758521/)
 
-*编辑： 西北风/ 作图：*虎子哥
+[https://gtv.org/video/id=61b9d7cea68b4f4b28e8b3b3](https://gtv.org/video/id=61b9d7cea68b4f4b28e8b3b3)
 
-![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/ScreenShot-2021-08-01-at-17.25.09@2x.png)
+**郭文贵**
+**Miles Guo**
 
-#   墙国妄语每日驳
+俄罗斯派去的特使
+The special envoy sent by Russia
 
-### 12.15.2021
+非常明确地所谓的在官方通报了
+made it very clear that
 
-[新媒文章：“共同富裕”将创造中国发展新前景\_参考消息网 (cankaoxiaoxi.com)](http://m.cankaoxiaoxi.com/china/20211214/2462856.shtml)
+和俄美交流之后
+after the official notification of the exchange between Russia and the United States,
 
-***简评：***孔子论语讲：不患寡而患不均 不患贫而患不安。我们现在在中共马列共产思想洗脑，想当然认为是平均主义，其实孔子讲道理根本不是谈平均主义，孔子讲的均是指西周时的礼乐秩序等级制度，君君臣臣，父父子子，君和臣，父和子怎么可能一样，君得大份，臣得小份，父得大份，子得小份，这才是孔子的均，孔子的合理是指的这个合理。通过孔子这句话那现在中共所进行的共同富裕我们就很清楚理解它的本质，中共的共同富裕就是要维护中共以国有经济为主导，中共一党专政为主的专制极权体制这一套秩序。这才是中共推行共同富裕的根本动力，至于中共宣传洗脑老百姓理解是平均主义那只能是你的无知。
+会谈之后, 这次私下里交谈告诉了中方
+they told the Chinese officials in a private conversation after the meeting with US.
 
-### 12.15.2021
+任何情况下你打台湾我不会跟你一起的
+that “under any circumstances, if you fight against Taiwan, I will not be with you”
 
-[除了外交抵制北京冬奥会，赞助商也不该沉默 – 纽约时报中文网 (nytimes.com)](https://cn.nytimes.com/sports/20211213/diplomatic-boycott-2022-winter-olympics/)
+原来说你弄我吆喝啊，甚至给你技术上支持
+They originally were to let China do what they want and Russia just roaring in the back, and even provide them with technological support
 
-***简评：***北京冬奥会遭到全世界民主国家集体抵制，全世界不再沉默开始用实际行动表示对中共说不。这让人又想起中共对北京盘古洒店龙头变包头的改造，先且不说中共自己宣称的无神伦者自己是多么的迷信，就中共对龙头的改造也是冥冥之中自有天意。大家都知道龙是中国国家的图腾，在龙的国家图腾演变是一个漫长历史过程，国家图腾在图腾文化演变历程中已经是很晚国家这种政治形态形成之后的事，在世界各民民族发展初期图腾文化是相同和类似的，在文明初期是生殖祟拜，比如母系氏族再到父系氏族，比如母系社会有蛙和和鱼到父系社会蛇、鸟、太阳等其实隐喻代表的都是生殖崇拜。中共现在直接龙头改包头，一下把图腾文化退回到人类文明起步初期生殖崇拜。盘古开天辟地，中华文明要重新开始起步演化，冥冥中真是自有天意。中共真是又坏又蠢，蠢的让人无话可说。
+这个对它是一个致命的（打击）
+This is a fatal strike to the CCP,
 
-### 12.15.2021
+说我不会的，打台湾我不参与
+saying that I won’t participate if you war on Taiwan
 
-[美媒报道：中国对太空梦的追求从月壤开始\_参考消息网 (cankaoxiaoxi.com)](http://m.cankaoxiaoxi.com/china/20211215/2462995.shtml)
+第二句话很可怕
+The second sentence is fearful,
 
-***简评：***一党独裁的社会，思想专制的国家，一个对民主、自由、信仰不知何物的囯家和民众，你奢望他去探索太空，去追录我是谁，我从那里来，我要到那里去这些哲学思想探索和追求，大家不觉得太荒诞离奇吗？中共利用开放的国际体系，大肆蓝金黄，剽悍，偷窃国际高科技武装起来自己给老百姓吹嘘的太空梦，在国际社会越来越认识到中共的邪恶而开始防笵甚至敌对的时候，中共的太空梦毫无意外会变成一场梦。
+所有中苏之间签署的油、气的协议，你们必须执行
+saying that you must implement all the oil and gas agreements signed between Chi-na and the Soviet Union
 
-#   港台资讯
-![](https://media.discordapp.net/attachments/858887785507323904/920514577161158676/01.png?width=1043&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/920514680865292318/02.png?width=1043&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/920514761421111356/03.png?width=1043&amp;height=586)
+言外之意啥意思呀
+What does it implicate?
 
+你该给我的钱、买我的油、买我的气，一点儿也不能少
+The money that you are supposed to give me and the oil and gas you are supposed to buy from us cannot be a bit less
 
+你少了，反过来我不是不支持你，我就是打你了
+If you are missing a bit, on the other hand, it’s not that I don’t support you, but to fight against you
 
+我就跟美国人站在一起去了
+and I would stand by the American side
 
-*编辑：*西北风
-*作图：虎子哥
-发布：文顾*
+这对习来讲是简直是巨大的羞辱
+This is a huge shame to Xi
+
+（中共之前的战略）它是联俄抗美，联俄收台
+It (the CCP’s previous strategy) was to unite Russia and to be against the United States and to reclaim Taiwan
+
+这个战略观是整个过去十几年世界局势变化的一切根本的原因
+This strategic view is the fundamental reason for all changes in the world situation over the past ten years
+
+这已经完了
+All these are over
+
+第三条是更让他接受不了的
+The third is even more unacceptable to Xi
+
+俄国和印度、北朝鲜、巴基斯坦、伊朗将形成一个新的联盟关系
+Russia and India, North Korea, Pakistan, and Iran will form a new alliance relation-ship
+
+你看看就没有共产党，而且明确了就没邀请你进去
+You see, there is no Communist Party, and clearly, it has not been invited to join them
+
+什么概念？
+What dose it mean?
+
+这几个人要联合起来跟美国讲数（谈判）, 咱们不打，咱交易
+These individuals want to be united and to negotiate with the United States that they don’t want to fight but a deal
+
+特别是俄罗斯反对中国在阿富汗干的事情
+Especially Russia opposes what China is doing in Afghanistan
+
+很明确，说你在阿富汗这事干得不行
+It’s clear that the CCP didn’t do it well in Afghanistan
+
+阿富汗现在死太多人了
+Too many people have died in Afghanistan now
+
+对我俄罗斯也不利呀
+It’s unfavorable to Russia
+
+阿富汗乱，车臣的回民就给它搞在一起
+The chaos in Afghanistan, the Muslim people in Chechnya would bring it together
+
+所谓车臣恐怖分子就会再次崛起
+The so-called Chechen terrorists will rise again
+
+这是很夸张的
+This is very overstressed
+
+还有一个就是现在你跟美国和西方这种挑战什么都可以
+Another thing is that now you can challenge anything with the United States and the West
+
+但是中国内部
+But insider China
+
+俄罗斯就说了你的人权和你的整个企业经济情况让我们很失望
+The Russia said that the Chinese human rights and their entire business economic situation have disappointed them
+
+言外之意就是你再给我钱，你给不起了
+The implication is that the CCP needs to give Russia money again, but the CCP may not have enough money anymore
+
+**原视频链接:** [https://gettr.com/post/pjjifl68f6](https://gettr.com/post/pjjifl68f6)
+
+Date: 12/13/2021
+原视频标题: 俄罗斯特使向中共通报的四项内容吓傻了共产党
+The Communist Party Has Been Shocked by The Four Contents That The Russian Special Envoy Noticed to The CCP
+
+原视频日期：2021/12/12
+原视频链接: https://gettr.com/post/pjjifl68f6
+任务编号：3220
+视频时间段 : 0:00-2:17
+
+英听校 : 洛杉矶盘古农场 – 郭班之樱
+翻译 : 洛杉矶盘古农场 – 郭班之樱
+翻译终校 : 洛杉矶盘古农场 – Mike Li
+字幕+视频制作 : 洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场- 银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
