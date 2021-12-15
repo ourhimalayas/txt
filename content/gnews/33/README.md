@@ -2,59 +2,34 @@
 ---
 
 
-## 蝴蝶君-时佩璞间谍案对爆料革命战友之借鉴
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1757590/)
+## 埃隆-马斯克反对强制疫苗接种政策
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1757653/)
 
-作者：香草山写作组-文斗
+作者：纽约香草山健身部 – Ivy001
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月13日，埃隆-马斯克在采访时明确表示，他反对强迫民众接种新冠疫苗的做法。他还强调，这种强迫事件尤其不应该发生在美国。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/8-19.jpg)
+马斯克提到，对于新冠疫苗的接种工作，政府可以采取鼓励和说服的方法，但绝不应该用疫苗强制令来迫使人们接种新冠疫苗。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-5-768x103-11.jpg)
+有报道显示，美国目前在军队和医院中实行了严格的新冠疫苗强制令。此外，学校、政府雇员，以及政府承包商也将接种新冠疫苗作为入学或入职的硬性指标。
 
+对此，马斯克声明，强迫民众接种新冠疫苗，或是将疫苗接种与职位或学籍挂钩，这样的事情不应该发生在美国。马斯克也呼吁道，美国政府应该放宽对新冠病毒的限制并重新开放美国，同时，政府更应该把自由还给老百姓。
 
+参考链接:[Elon Musk: “I Am Against Forcing People To Be Vaccinated; Not Something We Should Do In America”](https://www.zerohedge.com/covid-19/elon-musk-i-am-against-forcing-people-be-vaccinated-not-something-we-should-do-america)
 
-时佩璞（1938年12月21日－2009年6月30日），维基百科是这样介绍的：京剧演员，男扮女装与法国驻华大使馆职员维持了20年的伴侣关系，为中华人民共和国政府窃取法国政府情报。 1986年两人在法国以间谍罪被判刑6年。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-21.png)
-
-虽然中共政权矢口否认，但时佩璞因其男扮女装维持20年的伴侣关系、还能“生儿子”的离奇情节，成为世界五大知名间谍。1988年时佩璞间谍案被改编为百老汇戏剧《蝴蝶君》，1993年被改编为同名电影，由著名影星尊龙主演。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片3-9.png)
-
-中国著名作家刘心武还为其专门写过一篇回忆文章。1983年初冬，他跟时佩璞同一个代表团出访法国，在出国前，也就是时佩璞即将借出访法国逃脱前，北京市文联负责人特意在夜间找到刘心武谈话，要求刘在法国人问询时佩璞身份时要回答他是专业作家。这段回忆基本就证明了时佩璞有特殊性，所以领导特意交代，帮助时佩璞塑造身份。刘心武的回忆文章里还提到，1999年，有人发现了一份《北京市卫生局统战处先进事迹》，其中谈到，“旅法华侨时佩璞教授回京，他患有心脏病、糖尿病，我们安排同仁医院给予细心的治疗，他非常满意。”……这篇回忆文章写得很有意思，作者不直说时佩璞是间谍，但字里行间就是让你自己得出这个结论。
-
-时佩璞间谍案，对其本人来说，不过是为中共卖命卖身，终究是牺牲品，逃不出悲剧结局。对我们普通人，则难得窥见了中共这个邪恶组织的无底线、无下限。人性之弱点、人性之恶，被中共利用到了极致。
-
-你喜欢男的，中共有PG潘；
-
-你喜欢女的，中共有钥匙澜；
-
-你男女通吃，中共有时佩璞；
-
-你喜欢钱，中共有马云；
-
-……
-
-郭文贵先生说过，蓝金黄会让你很舒服，多少卖台贼都抢着要被蓝金黄。
-
-现在，喜币上市，很多战友们有钱了。各个农场持续发展壮大，人马众多。各个部门、项目组必定潜伏着一些中共特务，搜集战友们的信息，找机会干掉目标。战友们除了注意个人信息保护，应该时刻警惕中共的蓝金黄。当好事来得太突然时，千万要多提醒自己，我配得上这个好事吗？是不是糖衣炮弹？……
-
-各位战友，别以为中共很Low，其实中共最会利用人性弱点，蓝金黄还会投你所好，让你很舒服，要不要试试？
-
-校对/发稿：飞虹
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/unknown-4.jpg)
+总编：Irene木木
+编辑：Kathy文艺
+校正/发稿：Fei797
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
