@@ -2,73 +2,34 @@
 ---
 
 
-## 【草根访谈】第290期新闻概要
-` WindTalker` [轉載自GNews](https://gnews.org/zh-hans/1756419/)
+## 因隐瞒参与中共千人计划的哈佛教授将出庭受审
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1756466/)
 
-**——日本东京方舟农场GTV直播组出品**
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2-47.png)
+[图片来源](http://www.uschinapress.com/static/content/SH/2020-07-15/732901407044411392.html)：
 
-策划/撰文：宇宙之泾
+被控隐瞒与中共国关系的著名哈佛大学化学教授查尔斯∙利伯（Charles Lieber）即将在波士顿联邦法院出庭受审，而为这一庭审准备的陪审团成员的挑选工作星期二（12月14日）已经开始。
 
-校对：石桥李次郎
+利伯原为哈佛大学化学和生化系主任，也是研究纳米材料的顶级专家。美国联邦政府去年1月根据司法部一项打击中共国窃取美国技术和人才的计划“中国倡议”逮捕了利伯，并指控他在隐瞒与中共国武汉大学的关系和接受中共国政府报酬问题上向美国政府说谎。利伯去年7月被正式起诉。
 
-书法：方舟柒公子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-09-上午2.30.19.png)
-日本东京方舟农场GTV直播组【草根访谈】第290期新闻概要：
+利伯被控在2018年和2019年参加中共国的千人计划，并在中共国的武汉理工大学设立一个研究实验室，但他却在这些问题上向美国联邦当局撒谎。
 
-GTV方舟农场直播间【草根访谈】今天的嘉宾是日本东京方舟农场的美女「雨嘉战友」坐客方舟直播间，分享一下12月8日观看七哥大直播的感想。
+美国政府一直指责中共国政府利用“千人计划”，以丰厚报酬和高额研究资金引诱外国科学家和研究人员与中共国分享他们的科研成果，从而达到窃取外国产业和学术机密的目的。
 
-时政观点：没郭七条！直接开干！ 七哥说： 所有的送葬图文都应该跟制作病毒、释放病毒、打毒疫苗、香港大屠杀，新疆种族大灭绝等事件挂钩。跟这些事情联系在一起发声发咒，这样有根源利于传播爆料革命，传播共匪的恶，望有创意的战友们能看到！
-![](https://assets.gnews.org/wp-content/uploads/2021/12/E0152A97-5633-4004-84AC-2FE668A23BD8-scaled.jpeg)
-**12月8日七哥大直播内容**：文贵先生家人、父亲、员工被300特警，300法警，全部赶到大街上。手机失效、信用卡被停 、新中国联邦未来1-3年重大行动「海外中共大使馆领事馆外，大年三十开始为中南坑的老杂毛们及家属送葬 、每天100美金、100个躺平币、1个喜币、食宿交通实报实销。战友们只要去参加给习近平送葬行动的，都将获得补助 、今天开始，没有郭七条，只要能灭共 、墙内战友尽量不要做 保障安全的情况下传播信息。」
+美国司法部当时在一份新闻稿中指出，“根据利伯的3年合约，武汉理工大学据称每月向利伯支付最多5万美元的薪水，报销最多为100万元人民币（约合15.8万美元）的生活开支，并奖励他150多万美元，让他在武汉理工大学成立一个研究实验室。”
 
-主持人：@WindTalker 宇宙之泾
+“中国倡议”是川普总统任内，美国司法部为了打击中共国政府非常猖獗的窃取美国产业和学术机密的企图，而在2018年11月提出的一项严打行动计划。拜登总统主政以来，并未表示要放弃或修改这一严打计划。
 
-嘉宾战友：@yujia 雨嘉战友
+消息来源:
 
-美东时间晚上11:30 日本东京时间中午1:30 北京时间中午12:30
-![插图](https://assets.gnews.org/wp-content/uploads/2021/12/CF6756C4-59FE-475E-A4DC-435933C107C9.jpeg)
-Every day we spreading the truth about CCPvirus (COVID-19)and CCP vaccines, every day is Shouting for the people of Hong Kong who killed from CCP, and every day is hard working for the Chinese people to destroy the evil Chinese Communist Party! Welcome to our New Federal State of the China. Welcome to our Himalaya Tokyo JHL. **👏**
+[因隐瞒与中国关系遭指控的哈佛教授即将出庭受审，陪审员挑选已开始](https://www.voachinese.com/a/Harvard-professor-charged-with-lying-about-China-ties-faces-trial-20211214/6354640.html)
 
-【草根访谈】日本东京方舟农场欢迎你！
-
-【草根访谈】【方舟有你】【方舟歌汇】
-
-【方舟品读时光】【有问必答】【果色添香】
-
-[#nfsc](https://gettr.com/hashtag/%23nfsc) [#MilesGuo](https://gettr.com/hashtag/%23MilesGuo) [#ccpvirus](https://gettr.com/hashtag/%23ccpvirus) [#CCPvaccines](https://gettr.com/hashtag/%23CCPvaccines) [#ccpliepeoplesdie](https://gettr.com/hashtag/%23ccpliepeoplesdie) [#takedowntheccp](https://gettr.com/hashtag/%23takedowntheccp)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/85A9DBF3-4860-4C4F-8B7B-962289F759D4_1_100_o-1-scaled.jpeg)
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
 
 
-```
-只有那些疯狂到认为自己可以改变世界的人，才能真正改变这个世界。
-```
-
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/73A43459-2029-4DBE-89E4-993EF95E97A9_1_201_a.jpeg)
-
-
-```
-知人者智自知者明篆刻：柒公子
-```
-
-
-
-
-
-
-2021年12月| 一 | 二 | 三 | 四 | 五 | 六 | 日 |
-| --- | --- | --- | --- | --- | --- | --- |
-|   | [1](https://gnews.org/zh-hans/date/2021/12/01/) | [2](https://gnews.org/zh-hans/date/2021/12/02/) | [3](https://gnews.org/zh-hans/date/2021/12/03/) | [4](https://gnews.org/zh-hans/date/2021/12/04/) | [5](https://gnews.org/zh-hans/date/2021/12/05/) |
-| [6](https://gnews.org/zh-hans/date/2021/12/06/) | [7](https://gnews.org/zh-hans/date/2021/12/07/) | [8](https://gnews.org/zh-hans/date/2021/12/08/) | [9](https://gnews.org/zh-hans/date/2021/12/09/) | [10](https://gnews.org/zh-hans/date/2021/12/10/) | [11](https://gnews.org/zh-hans/date/2021/12/11/) | [12](https://gnews.org/zh-hans/date/2021/12/12/) |
-| [13](https://gnews.org/zh-hans/date/2021/12/13/) | [14](https://gnews.org/zh-hans/date/2021/12/14/) | [15](https://gnews.org/zh-hans/date/2021/12/15/) | 16 | 17 | 18 | 19 |
-| 20 | 21 | 22 | 23 | 24 | 25 | 26 |
-| 27 | 28 | 29 | 30 | 31 |   |
-
-[« 11月](https://gnews.org/zh-hans/date/2021/11/)  
- 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
