@@ -2,54 +2,55 @@
 ---
 
 
-## 呼格吉勒图案平反，中共依旧党在法上
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1758585/)
+## 灭共者：地球是我们的一个支点
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1758596/)
 
-【**墙国谎言栏目**】
-![](https://assets.gnews.org/wp-content/uploads/2021/12/arkaw-10hwa.jpg)**图片来源：新京报**
-**冤案致死的19岁生命**
+**出品：纽约香草山设计部**
 
-1996年4月9日，一年轻女性在位于呼和浩特市赛罕区的呼市第一毛纺厂家属区公共厕所内遭到强奸并杀害。当晚，呼格吉勒图（下称呼格）最先发现该遇害女性，发现案情后，他主动找到辖区民警报案。呼格因遭到呼市新城分局的刑讯逼供和法院的审判不公被认定为杀人犯，且在“严打”期间根据“从重从快”的政策在事发后62天即被判处死刑并立即执行。
 
-那一年，呼格永远定格在19岁，他还没有谈过恋爱。在殡仪馆美容，他右眼一直闭不上。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1unknown.png)**图片来源：维基百科**
-呼格死后第9年，即2005年真正罪犯落网后，法院不给他平反，家里人又继续奔走呼号9年，也就是呼格冤死18年后，2014年12月15日，内蒙古自治区高级人民法院判决呼格吉勒图无罪。 《人民法院报》将呼格再审案列为2014年度人民法院十大刑事案件。
 
-呼格在冰冷的地下等了18年，坟茔上青草几尺，才等来了一个结论：无辜的呼格不是强奸犯，他没有犯罪。世界上还有比这更荒谬的么？一个无辜的人花18年证明自己无罪，如果只有呼格自己，压根就证明不了他自己是清白的。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-**“强奸”与否由共党和伪政府决定**
 
-“强奸罪”这一罪名可以任意灵活地放在无辜的中国人头上，呼格吉勒图如此、聂树斌如此，那个青峰看守所十八岁的处男“强奸犯”爱国青年也如此，你说这两个是普通百姓，难免草菅人命。那么2017年，郭文贵先生也被中共栽赃陷害，指控 “强奸罪”，到今天也未见受害人出庭。为何这些无辜的人都犯了“强奸罪”，而海航陈锋和幼女“双修”不是强奸， 那些红黄蓝幼儿园被军队高官性侵不是“强奸”，中共官员中共副总理张高丽和十几岁的彭帅发生性关系也不是“强奸”，与否是党和中共伪政府说了算，天道昭昭，法律何在？认真思考后， 得出这样一个结论：原来“强奸”与否由共党和伪政府决定，党在法上。
 
-**道歉和赔偿无法掩盖罪恶**
 
-2014年内蒙古高院副院长当面像呼格父母道歉，并交给其父母三万元慰问金。道歉能解决生死问题，要法律、警察和法院干什么？三万元收买19岁无辜的呼格的生命，作为国家执法机关，是人命如草芥啊！
 
-同年，给呼格父母二百零五万的国家赔偿。这个钱给深受打击的家庭到底带来啥，我们不得而知。可以肯定的是，呼格父母会永远闭嘴，甚至觉得讨回公道，国内有法治。但是这种正义的沉冤得雪是哪个家庭希望得到的啊？道歉和赔偿那掩盖它们草菅人命的罪恶？
 
-**以党治国、以警治国、以黑治国的恶魔**
 
-2016年中共伪政府启动追责程序，对于呼格案有责任的27人被追责，职位最高的是呼和浩特市公安厅党委委员，最低的是各种办事员。处分包括党内（严重）警告处分和行政记大过处分。枉顾人命，党内警告处分。多么荒唐，全世界绝无仅有的处分。再次说明党在法上，党是一个保护网，保护中共官员各种违法活动。法律又是处罚谁的？一目了然。难道没有一个人对这件事付法律责任么？这不是典型的渎职罪么，不是应该严惩么？法律何在，司法何在。
 
-2019年1月，曾经主办呼格案的刑警队长刘旭自缢身亡。天道轮回，报应不爽，确实让人觉得振奋，但是再仔细想想，难道每个人都要等18年的轮回么？又有多少没有被没发现的呼格吉勒图？没有司法体制和法治保障，每一个人都是呼格吉勒图，每一个警察都可能和刘旭一样。殊途同归而已。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-image0-2.jpg)Our prospect is not Earth bound, rather, it is beyond Earth. Our aim is to fly higher and farther, using Earth as the fulcrum. We will be the first community of people to be able to travel to outer space legally and safely, to enjoy and to explore the universe. 
+— Mr. Miles Guo, GTV livecast on Dec. 5, 2021![我们真正的视野不在地球上，是在地球之外，地球是我们的一个支点，我们想走得更高、更远！我们将是最早合法地、安全地飞向外星空去旅游、去享受、去探索宇宙的新族类。 
+— 2021年12月5日郭文贵先生GTV直播](https://assets.gnews.org/wp-content/uploads/2021/12/2-image1-1.jpg)我们真正的视野不在地球上，是在地球之外，地球是我们的一个支点，我们想走得更高、更远！我们将是最早合法地、安全地飞向外星空去旅游、去享受、去探索宇宙的新族类。 
+— 2021年12月5日郭文贵先生GTV直播![](https://assets.gnews.org/wp-content/uploads/2021/12/3-20211214-04.png)Among all G-Series products or resources, GTV is the king, and it will always be. 
+— Mr. Miles Guo, GTV livecast on Dec. 5, 2021![](https://assets.gnews.org/wp-content/uploads/2021/12/4-20211214__1.png)到现在所有的G系列资源里边，GTV是王，永远都是王。
+— 2021年12月5日郭文贵先生GTV直播![](https://assets.gnews.org/wp-content/uploads/2021/12/5-20211214-11.png)The NFSC deserves the greatest credit for the many countries’ boycott of the Beijing Winter Olympics. The CCP is utterly bankrupt internationally due to the boycott, in terms of individual political credibility and national credibility.
+— Mr. Miles Guo, GTV livecast on Dec. 8, 2021![](https://assets.gnews.org/wp-content/uploads/2021/12/6-20211214-09.png)冬奥会被灭，新中国联邦是独一无二的最大的功劳。中共冬奥会在国际上，个人政治和国家信用已经彻底破产。 
+— 2021年12月8日郭文贵先生GTV直播![](https://assets.gnews.org/wp-content/uploads/2021/12/7-20211214-12.png)We are here to tell all that the CCP has prepared the biggest “coffin” for the world, that is the coronavirus and the vaccine. The specter of communism is murdering all mankind. 
+— Mr. Miles Guo, GTV livecast on Dec. 8, 2021![](https://assets.gnews.org/wp-content/uploads/2021/12/8-20211214-07.png)我们就是要告诉全世界，共产党给世界准备了最大的棺材就是冠状病毒和疫苗，共产主义正在杀害全人类。 
+— 2021年12月8日郭文贵先生GTV直播
 
-2021年的今天，还有多少人记得呼格，法院依法判案实现了么？每个人都有答案。郭文贵先生90多岁的患病老父被特警赶到大街上，法制呢？不彻底消灭中共邪党，不共同争取法制，那么以党治国、以警治国、以黑治国依旧如恶魔一样盘旋在每个人头上。
 
-呼格吉勒图，蒙语是繁荣旺盛的意思，愿你在天上，保持笑颜，保佑和庇护新中国联邦消灭中共恶魔，那时，中华大地必将繁荣昌盛。
+**编辑/发稿：小鹿**
 
-**参考资料链接：**
-1，[https://zh.wikipedia.org/wiki/%E5%91%BC%E6%A0%BC%E5%90%89%E5%8B%92%E5%9B%BE%E6%A1%88](https://zh.wikipedia.org/wiki/%E5%91%BC%E6%A0%BC%E5%90%89%E5%8B%92%E5%9B%BE%E6%A1%88)
-2， [https://zh.wikipedia.org/wiki/%E8%81%82%E6%A0%91%E6%96%8C%E6%A1%88](https://zh.wikipedia.org/wiki/%E8%81%82%E6%A0%91%E6%96%8C%E6%A1%88)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-2.png)
 
-**文章观点仅代表作者，与Gnews平台无关**
+**更多资讯，更多关注**
 
-作者：洛杉矶盘古农场 — Poplar
-编辑：洛杉矶盘古农场 — 心照
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
 
  
 

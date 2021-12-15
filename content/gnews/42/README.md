@@ -2,193 +2,40 @@
 ---
 
 
-## 12/15每日播报|社媒消息:皮特纳瓦罗 娜塔莉温特斯,埃内斯坎特
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1757386/)
+## 美加澳的高端豪宅市场，从现在起开始暴跌崩坍
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1757655/)
 
-**By:[秘翻新闻](https://gtv.org/broadcast/watch/61b9ae5256f4921401b8245d)**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/11-7.png)图片来源：Money Inc
+作者：顺其自然
+编辑：Mttfly
 
-**2021-12-15**
+疫情这两年来，美国、加拿大、澳大利亚的房价疯涨，尤其是house。目前中低端市场还会挺一段时间，但高端豪宅市场要开始暴跌崩塌了，为什么这么说呢？原因有四。
 
-**1.在美国空军以未接种新冠疫苗为由，开除了27名现役人员后，皮特纳瓦罗12月15日发推回应说：**
+其一，习近平现在正“打土豪”，他让所有的富豪高官都要把海外的资产拿回到中共国去。对于那些富豪来说，海外的资产很大一部分是在房产里的。这些人是以江志成、许家印、马云为代表的。中国百亿以上的富豪高官及他们的家人、子女、亲朋怎么也有个几百万人吧，哪家没有个几百套房产。现在习近平逼着这些人处理海外的资产，把钱拿回去。我们看到许家印的儿子都已经在卖豪宅了，难道他是自愿的吗？他愿意把这些个房子卖掉，然后把钱拿回去吗？当然是后边的枪在顶着。
 
-疫苗强制令不仅是极其糟糕的卫生政策，也对国家安全不利。看到此事，中共解放军在前往武汉病毒研究所的路上一定会狂笑不止。福奇又帮了中共一个忙！
+美国洛杉矶日落大道上的一栋千万豪宅大减价出售一事引发媒体关注。因为抛售者正是深陷债务危机的许家印的二公子许腾鹤。综合媒体12月8日报道，这栋现代风格的豪宅位于Sierra Alta路1300号段，2018年首次出售，以1,750万美元的价格卖给了许家印的小儿子许腾鹤。据挂牌记录，2021年初该房就以1,850万美元上市，但似乎无人接手。6月时价格迅速跌至1,700万美元。而好莱坞报道网站引述最近记录显示，该屋以1,250万美元的低价在私下成交。该价格已经比2018年的买入价跌掉了500万美元了，若是扣除房地产经纪人费用、产业税、其他交易费用和三年维护费用，实属损失惨重的一笔交易。
 
+看到没？许家印儿子这套房产降价500万出售，因为习近平没有时间留给他们慢慢卖，习近平的意思就是现在能拿回多少是多少，总比一点都拿不回去强。由于时间短，很难找到合适的买家，所以只能亏本大甩卖。
 
+其二，美国要成立反腐败机构，要把独裁国家官员放在美国的资产冻结，美国财政部甚至出台了奖励举报人的办法，奖励那些提供贪官信息的人。所以会有知道贪官信息的人，向当地政府举报，为了这个拥金。这可不是一笔小数目。美国出了这么一招，加拿大，澳大利亚，新西兰也会跟上的，这些人现在傻眼了，也得赶紧卖房。网上爆出来一个年轻的32岁的亿万富豪，在悉尼的一个区里就买了六套房，价值3千7百万之多。一直空着，没人居住。近期，其中一套以218万的价格卖掉，另一套也在挂牌出售中，估计这几套都会尽快处理掉。有战友说是习的私生子张博，但没有确实的证据。在一个区里有六套豪宅，肯定是个大贪官或者富豪的公子。这些贪官有基金、公司、还有钱存在比特币。但对于这些人来说，大部分还是存在房产里边，所以他们的房产也会赶紧降价卖。若不卖，就被美加澳新等国政府冻结了，他一分钱都拿不到，所以哪怕他们降价很多，也是尽快出手的好。即使不把钱拿回中国去，拿到伊朗、塞舌尔、阿联酋那种国家也行啊，他们可不敢再放到美加澳这些国家了。
 
-> Bad health policy. Bad for national security. Peoples Liberation Army laughing all the way to the Wuhan Institute of virology. Fauci strikes again.
-> 
->  [https://t.co/HWyAjM4HKR](https://t.co/HWyAjM4HKR)
-> — Peter Navarro (@RealPNavarro) [December 14, 2021](https://twitter.com/RealPNavarro/status/1470825671295447042?ref_src=twsrc%5Etfw)
+其三，习近平把郭先生的老父亲及他1000多个员工，扔到大街上之后，郭先生就已经开始了反击，其中的一个反击的举措，就是让爆料革命的战友跟当地政府合作，把所有这些贪官的信息提供给当地政府。我们知道郭先生那至少有4000个以上贪官的信息，他肯定有详细的房产的信息。这个我们从郭先生2017年爆料王岐山、孟建柱这些房产信息的时候就已经知道了。原本这些个贪官还抱有侥幸心理，认为美国也就是咋呼咋呼，出台这个反腐败机构也只是为了从中共那敲诈更多的钱。但是现在郭先生把这些信息全部提供给当地国政府，而且郭先生肯定还会放到GETTR、GTV、GNEWS上向全世界公布。
 
+其四，现在美国、加拿大、澳大利亚的通货膨胀非常厉害。虽然联储没有加息，但是各商业银行已经把房地产的利息加了好几次了，明年会加息更多，美联储明年至少也会加息三次。在连续加息以及加息预期之下，房产的价格一定会被打下来，这是规律。
 
+有人说，中共国的贪官和富豪对美加澳的房产有那么大的影响吗？在中低端市场影响应该是不大的，但是在高端豪宅市场影响是非常大的。我们看一下中共国省部级以上的高官有多少就知道了。
 
-**2.娜塔莉温特斯12月14日发推说：**
+中共国大概有300个正部级岗位，约近2700个副部级岗位。然后还有政治局，常委，再加上退休的，总的翻倍吧。这就6000多了。哪个省部级以上干部没有个小三小四，私生子女，兄弟姐妹的？每个按10个来算，就是6万，他们一人只有一套房吗？怎么可能，在每个国家至少也是10套起步吧。所以中共省部级以上高官在美加澳拥有的房子至少是60万套。中国还有十亿万，百亿，千亿富豪呢，虽说是白手套，但也不能白做白手套啊，总是有很多资产的，这些个富豪也有个两三百万吧。这些国家高端市场的房子总共才多少，这些房子都会因情势变化从现在开始要处理掉，那它就会对整个高端豪宅市场造成重大的打击，影响当地房地产市场，导致暴跌崩盘。
 
-根据《国家脉动》独家获得的福奇和扎克伯格之间的最新私人邮件显示，脸书创始人扎克伯格提供用户的“数据报告”，以帮助他们制定封锁政策和疫苗研发。
+**发布：**去中心化Math
+**
+更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-【推文转《国家脉动》报道，这个鲜明例子说明，大科技公司和政府如何利用用户数据轻易地进行勾兑，限制公众的自由。扎克伯格在电邮中提到，他的个人基金会投入了数亿美元，以确保当时的总统候选人乔·拜登在2020年取得胜利。今年4月8日，扎克伯格给福奇发了一封电邮，他在邮件中说：“脸书可以制作汇总和匿名的数据报告，以促进封锁政策的制定。为了加快疫苗研发，我可以向你们提供所需要的资源和资金。”福奇回复说，他会认真考虑扎克伯格的提议。在这次交流中，两人还讨论了社交媒体平台的“中共病毒信息中心”以及如何控制有关大流行病的叙事。参议员玛莎·布莱克本曾在今年6月提出过此问题，但福奇矢口否认自己与扎克伯格有互动。】
-
-
-
-> 🚨🚨🚨
-> 
-> EXC: New Fauci-Zuckerberg Emails Reveal Offer of ‘Data Reports’ To Aid Lockdown Policies, Vaccine Development.[https://t.co/D7URA1StMy](https://t.co/D7URA1StMy)
-> — Natalie Winters (@nataliegwinters) [December 14, 2021](https://twitter.com/nataliegwinters/status/1470770111309135881?ref_src=twsrc%5Etfw)
-
-
-
-**3.娜塔莉温特斯12月15日发推说：**
-
-美国共和党众议员利茲·切尼 (Liz Cheney)获得了由“前国会议员协会（Association of Former Members of Congress）”颁发的2021年政治家奖，中共的对外影响力机构–中美交流基金会是该奖项的赞助商之一。另外，《国家脉动》之前曝光过，利茲·切尼的丈夫在一家与中共有深度关联的律师事务所任职。
-
-
-
-> 🚨🚨🚨
-> 
-> REVEALED: Liz Cheney Accepted ‘Statesmanship’ Award From Chinese Communist Party Influence Group.[https://t.co/lSlDeNtB9x](https://t.co/lSlDeNtB9x)
-> — Natalie Winters (@nataliegwinters) [December 14, 2021](https://twitter.com/nataliegwinters/status/1470857954140164096?ref_src=twsrc%5Etfw)
-
-
-
-**4.真正美国之声12月15日发推说：**
-
-塔利班当局声称，他们比以前更支持妇女，并要求美国和其他国家对数百万正遭受饥荒的阿富汗人展示出“怜悯和同情”。
-
-【推文转报道，塔利班外交部长阿米尔·汗·穆塔基 (Amir Khan Muttaqi)告诉《美联社》说：“制裁阿富汗没有任何好处，美国应将阿富汗中央银行的约100亿美元储备金解冻。”在美国支持的政府倒台之前，4000万阿富汗人中，大约有72%的人生活在贫困线以下。根据联合国世界粮食计划署（World Food Programme）的数据，近2300万阿富汗人正经历着“严重的粮食不安全”。在塔利班统治下，许多七年级到十二年级的女孩被禁止上课。众多女公务员被迫呆在家里。塔利班官员以前曾表示，有必要为男性和女性建立单独的工作场所和学校。阿富汗妇女已经开始在家里抗议，而不是在街上抗议，因为她们会面临塔利班的暴力威胁。】
-
-
-
-> The [#Taliban](https://twitter.com/hashtag/Taliban?src=hash&amp;ref_src=twsrc%5Etfw) claim to be more supportive of women than when they previously ruled [#Afghanistan](https://twitter.com/hashtag/Afghanistan?src=hash&amp;ref_src=twsrc%5Etfw), and are now asking the U.S. and other nations to show "​​mercy and compassion"[https://t.co/MW96UqsTvE](https://t.co/MW96UqsTvE)
-> — Real America's Voice (RAV) (@RealAmVoice) [December 15, 2021](https://twitter.com/RealAmVoice/status/1470920290624577537?ref_src=twsrc%5Etfw)
-
-
-
-**5.推特用户 查克·雷夫塞尼克 12月14日发推说：**
-
-彼得·麦卡洛 (Peter A. McCullough)在做客乔·罗根 (Joe Rogan)的播客节目时说：“如果得到早期治疗，85%的新冠死者可以免于不幸。但早期治疗却被打压，目的是推广疫苗。”
-
-
-
-> Dr. Peter McCullough said on Joe Rogan's podcast, 85% of deaths attributed to Covid-19 could have been prevented with early treatments. [https://t.co/UzRopRbJfm](https://t.co/UzRopRbJfm) [pic.twitter.com/N4wEXv3yqC](https://t.co/N4wEXv3yqC)
-> — Chuck Refusenick (@VikeKang\_) [December 13, 2021](https://twitter.com/VikeKang_/status/1470524212892745729?ref_src=twsrc%5Etfw)
-
-
-
-**6.PureLotusHeart莲心不染 12月15日发推说：**
-
-顶级科学家们在强迫人们接种中共病毒疫苗时，却忽略了以下重要的科学信息：
-
-1.政府和科技巨头一直在无情地攻击言论自由和科学；2.全民疫苗接种是基于错误的前提；3.疫苗风险是真实信息；4.可能存在漏报疫苗导致的不良事件和死亡人数；5.疫苗安全评估存在严重缺陷。
-
-
-
-> 顶级科学家们：强迫人们接种 COVID 疫苗忽略了重要的科学信息
-> ⚠️政府和科技巨头无情地攻击言论自由和科学
-> ⚠️全民疫苗接种是基于错误的前提
-> ⚠️讨论风险不是虚假信息
-> ⚠️可能漏报不良事件和死亡
-> ⚠️疫苗安全评估存在严重缺陷 [https://t.co/i1mv8J7atQ](https://t.co/i1mv8J7atQ)
-> — PureLotusHeart莲心不染 (@PureLotusHeart1) [December 14, 2021](https://twitter.com/PureLotusHeart1/status/1470876682324221958?ref_src=twsrc%5Etfw)
-
-
-
-**7.前医院CEO 约翰·张伯伦12月13日发推说：**
-
-罗伯特马龙博士的公开信，呼吁不要给孩子接种新冠疫苗。请立即阅读和分享。
-
-公开信说：家长在让孩子们接种疫苗前，需要了解三个问题：
-
-1.    这是在将病毒基因注入你孩子的细胞中，该基因迫使你孩子的身体制造有毒的刺突蛋白，这些蛋白质通常会对儿童的重要器官造成永久性损伤，包括：他们的大脑和神经系统、心脏和血管、生殖系统，并导致他们的免疫系统发生根本性变化；最令人担心的是，这些损害一旦发生，就无法修复弥补。你无法修复大脑中的病变、心脏组织的疤痕以及被基因重置的免疫系统，而且对生殖系统造成的损害可能会影响家庭后代
-
-2.    mRNA疫苗这项新技术尚未经过充分测试，至少需要5年的测试和研究才能真正了解其风险，新药的危害和风险往往在多年后才会暴露出来，你希望自己的孩子参加这场人类历史上最冒险的医学实验吗？
-
-3.    你所听到的让孩子接种疫苗的理由都是谎言。孩子在感染新冠后获得的免疫力，对于拯救家人免于这场疾病至关重要。
-
-总而言之，考虑到疫苗的已知风险，给孩子接种疫苗没有任何好处。
-
-
-
-> This is directly from Dr. Robert Malone. [@RWMaloneMD](https://twitter.com/RWMaloneMD?ref_src=twsrc%5Etfw). It is imperative that you read and share. Especially if you have children and grandchildren. [pic.twitter.com/YtpFDOH7AJ](https://t.co/YtpFDOH7AJ)
-> — John Chamberlain, MHA, LFACHE (@misterchambo) [December 13, 2021](https://twitter.com/misterchambo/status/1470251142861017090?ref_src=twsrc%5Etfw)
-
-
-
-**8.印太新闻 – 关注中共威胁 12月15日发推说：**
-
-美国参议员汤姆科顿抨击拜登政府允许中共通过武力而非谈判的方式威胁台湾，在民主峰会上切断了台湾数字部长唐凤的视频，声称这是拜登政府向中共屈服示好的最新例子。
-
-【推文转《福克斯》报道，科顿说：“仅仅因为唐风展示的地图上的台湾和中共国的颜色不同，白宫就将其视频切断，这展现了拜登政府可悲的弱点。我一点也不相信这只是一个技术问题。我相信，这是总统和政府向北京屈服的又一例子。我们需要做的是与台湾站在一起，帮助巩固其自治权，并维持海峡两岸的现状。但是北京威胁台湾要通过武力而不是谈判来改变这种现状。】
-
-
-
-> Tom Cotton slams Biden for allowing [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) to threaten [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw) 'by force, not by negotiation'
-> 
-> The Arkansas senator said, 'This is an example of the president and the administration kowtowing to Beijing,'[https://t.co/FstVuKsTSs](https://t.co/FstVuKsTSs)
-> — Indo-Pacific News – Watching the CCP-China Threat (@IndoPac\_Info) [December 14, 2021](https://twitter.com/IndoPac_Info/status/1470823592967294978?ref_src=twsrc%5Etfw)
-
-
-
-**9．印太新闻 – 关注中共威胁 12月15日发推说：**
-
-澳大利亚的人权活动家、反共人士德鲁·帕夫洛 (Drew Pavlou)想刊登抗议北京冬奥会的广告，但却被当地的广告牌公司拒绝，因为他们怕惹恼中共。
-
-【推文转《台湾英文新闻》报道，帕夫洛与中共政权的异议人士巴丢草合作设计了一系列的抗议北京冬奥会的广告海报，并准备张贴在澳州布里斯班当地的广告牌上。他们联系了一家广告牌制造商量此事，但该厂商的代表说：“昆士兰州一家大型广告牌制造商的总经理在与所有广告牌公司的总经理举行会议后，得出结论说，该行业不值得为了帕夫洛的3000澳元广告费，而面临可能激怒中共政府的风险。因为该行业制作广告牌的大部分用品，包括钢材，都来自中共国。他们担心，如果刊登此类广告的信息传到中共国，将对他们的广告牌部件供应产生严重影响，而且他们的计算机系统也可能会遭到中共黑客的报复攻击。】
-
-
-
-> Audio reveals why activist [@DrewPavlou](https://twitter.com/DrewPavlou?ref_src=twsrc%5Etfw) is banned from posting anti-CCP billboards in Australia
-> 
-> Australian billboard companies refuse to post ads protesting Beijing 2022 Olympics for fear of angering China [https://t.co/fLmGMwQF7V](https://t.co/fLmGMwQF7V) [pic.twitter.com/zrgo6bhvfU](https://t.co/zrgo6bhvfU)
-> — Indo-Pacific News – Watching the CCP-China Threat (@IndoPac\_Info) [December 14, 2021](https://twitter.com/IndoPac_Info/status/1470785662647365632?ref_src=twsrc%5Etfw)
-
-
-
-**10.埃内斯坎特12月15日发推说：**
-
-非常感谢NBA的传奇人物卡里姆·阿卜杜勒-贾巴尔 (Kareem Abdul-Jabbar)的支持，让更多人了解中共的人权侵犯行为。希望这能鼓励其他运动员站出来发出正义之声！贾巴尔是个真正的领袖！
-
-
-
-> Huge thanks to [@NBA](https://twitter.com/NBA?ref_src=twsrc%5Etfw) legend [@kaj33](https://twitter.com/kaj33?ref_src=twsrc%5Etfw) for your support and bringing more awareness to all the human rights abuses in [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) 
-> 
-> Hoping this encourages other athletes to stand up for what is right.
-> 
-> You are a true leader [@kaj33](https://twitter.com/kaj33?ref_src=twsrc%5Etfw) [#FreeUyghurs](https://twitter.com/hashtag/FreeUyghurs?src=hash&amp;ref_src=twsrc%5Etfw) [#NoBeijing2022](https://twitter.com/hashtag/NoBeijing2022?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/jdjm0ZXCR1](https://t.co/jdjm0ZXCR1)
-> — Enes Kanter FREEDOM (@EnesFreedom) [December 14, 2021](https://twitter.com/EnesFreedom/status/1470788023185022991?ref_src=twsrc%5Etfw)
-
-
-
-**11.Disclose.tv 12月14日发推说：**
-
-美国11月的生产者价格指数（PPI）同比增长9.6%，远高于预期，是有记录以来的最大增幅。
-
-
-
-> JUST IN – U.S. producer price inflation jumps 9.6% year over year in November, much higher than expected and highest increase on record.
-> — Disclose.tv (@disclosetv) [December 14, 2021](https://twitter.com/disclosetv/status/1470749483835310085?ref_src=twsrc%5Etfw)
-
-
-
-**12.盖特官方12月14日在盖特发文：**
-
-盖特将推出自己的短视频版本，与Instagram Reels和TikTok竞争。
-
-【盖文转KnowTechie报道，盖特的新短视频功能，称为G-Vision，将于明年2月推出。盖特CEO杰森米勒说：“现在盖特是推特和脸书的市场竞争者，随着我们推出G-Vision，我们将是Instagram Reels和Facebook Stories的短视频竞争者。”】
-
-[https://gettr.com/post/pjlfs5173d](https://gettr.com/post/pjlfs5173d)
-
-**13.郭文贵先生12月14日在盖特发文：**
-
-郭文贵先生的最新单曲HCoin to The Moon已连续两周蝉联公告牌世界数字歌曲销量排行榜的榜首, 这不仅创造了郭先生所有单曲的个人最好成绩，也创造了非专业歌手在世界最权威音乐排行榜的最好成绩，更是又一次创造了中国人在世界乐坛前所未有的历史奇迹！再次感谢新中国联邦的全球战友们，我们用自己的行动向全世界证明我们团结灭共的力量和决心！[https://gettr.com/post/pjn8js5502](https://gettr.com/post/pjn8js5502)
-
-*以上社交媒体新闻由 巴拉克和二丫 联合编译报导*
-
-发布:星星
-
-* * *
-
-**By 【秘密翻译组-即时新闻播报组】**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/IMAGE-2021-12-13-113746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

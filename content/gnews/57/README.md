@@ -2,24 +2,37 @@
 ---
 
 
-## 秘翻在线：中共国经济寒冬——互联网大佬们纷纷裁员
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1754255/)
+## Hcoin To the Moon连续2周登上Billboard全球数字歌曲销量榜首 ！
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1754720/)
 
-**撰稿：葛大饼**
+12/14/2021 郭文贵先生的歌曲Hcoin To the Moon上线第12天，连续两周再次登上Billboard公告牌全球数字歌曲销量榜榜首！(WEEK OF DECEMBER 18, 2021)！
 
-**责编：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screenshot-2021-12-14-212024.jpg)图片来源：解放日报
-根据2021年12月14日新浪报道，中共国互联网巨头们纷纷告别高增长**，** 腾讯发布的三季度财报显示腾讯10年来首次净利润下降；阿里巴巴发布2022财年第二财季业绩报告，阿里“中国零售商业”板块下的“客户管理”收入，同比增3%，而上一季度的增速为14%。百度第三季度业绩经营利润23.08亿元，同比减少63%；京东第三季度净利润亏损28.07亿元，由盈转亏；字节跳动商业化产品部披露其国内广告收入过去半年停止增长，是2013年开启商业化以来首次出现这种情况。
+[https://www.billboard.com/charts/world-digital-song-sales/2021-12-18/](https://www.billboard.com/charts/world-digital-song-sales/2021-12-18/)
 
-新闻称阿里巴巴 、京东、小米、美团近一个月也都在进行部门间业务拆分和整合，所谓的“内部结构优化”中。
+* * *
 
-中南财经政法大学数字经济研究院执行院长盘和林表示：内部结构优化已经成为定局， 但是业务上优化裁员和被动裁员的状况存在天壤之别，不用过度担忧。
+[【PDF 下载】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-Billboard-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/【Billboard】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-Billboard-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/【Billboard】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-Billboard-Charts-Ranking-Record.pdf)
 
-一遇到问题，中共官媒就开始玩文字游戏，经济很差导致公司裁员非要说是内部结构优化，裁员就是裁员还要分优化裁员和被动裁员，强奸犯无论长什么样它都是强奸犯啊！
+* * *
 
-**[新闻来源](https://news.sina.com.cn/c/2021-12-14/doc-ikyakumx3991178.shtml)**
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【Billboard】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【Billboard】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_2.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【Billboard】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_3.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【Billboard】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_4.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【Billboard】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【Billboard】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【Billboard】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【Billboard】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【Billboard】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_11.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【Billboard】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_12.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【Billboard】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_13.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【Billboard】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_14.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【Billboard】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_15.jpg)
 
 
+[【PDF 下载】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-Billboard-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/【Billboard】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-Billboard-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/【Billboard】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-Billboard-Charts-Ranking-Record.pdf)
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
