@@ -2,43 +2,70 @@
 ---
 
 
-## 德国奥拉夫·舒尔茨 (Olaf Scholz) 支持疫苗强制令但称自己为“未接种疫苗的总理”
-` Zero-Day【零时差】` [轉載自GNews](https://gnews.org/zh-hans/1757669/)
+## 如果疫苗这么好，为什么会有这么多人死亡？
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1757780/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/AD29C2F9-609D-4326-8E83-619E16A36138.jpeg)盖蒂图片社
-据布赖特巴特新闻网[彼得·卡德尔](https://www.breitbart.com/author/peter-caddle/)2021 年 12 月 15 日发文报道，德国新的左翼政治领袖奥拉夫·舒尔茨 (Olaf Scholz) 表示，尽管他支持强制接种疫苗，但他仍然是“未接种疫苗的总理”。
+**【评论：】***有钱能使鬼推磨，这句话真是放之全球而皆准。感觉人类进入了末法时代，修行而证圣道的人已经越来越少了，正法被世间的邪说和物欲所淹没。所谓的末法是我们众生的共业造成，你我他每个人都是参与者，想一想什么才是我们应该做的？*
 
-奥拉夫·舒尔茨 (Olaf Scholz) 声称，旨在应对中共病毒的新限制并未分裂国家，而且他也是“未接种疫苗的总理”，就像他代表已接种疫苗的德国人一样。
+据《Townhall》记者：Wayne Allyn Root，2021年12月12日报道：
 
-尽管 舒尔茨 主张[强制](https://www.breitbart.com/europe/2021/12/02/merkel-announces-restrictions-on-unvaccinated-vote-on-making-jabs-compulsory/)要求全体人口接种 COVID 疫苗，并且，仅对未接种疫苗者实施封锁，但一位奥地利政治家将这一措施称为“新冠种族隔离制度”。
+专栏作家表达的观点是他们自己的，不一定代表Townhall.com的观点。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-781-e1639582015895.png)图片来源：美联社照片/Marta Lavandier
+COVID-19 疫苗似乎正在造成全球健康灾难。来自世界各地的警告太多了。我将在本专栏中仅列出一些。但美国媒体保持沉默。它们像教堂的老鼠一样安静。为什么？
 
-在[接受](https://www.bild.de/bild-plus/politik/inland/politik-inland/olaf-scholz-ich-bin-auch-kanzler-der-ungeimpften-78514138.bild.html?jsRedirect)*Bild[采访](https://www.bild.de/bild-plus/politik/inland/politik-inland/olaf-scholz-ich-bin-auch-kanzler-der-ungeimpften-78514138.bild.html?jsRedirect)*时 ，舒尔茨敏锐地强调，尽管存在很多争议，但他并不认为德国因限制而出现分歧。
+日本卫生部刚刚宣布，“Moderna 和辉瑞Covid疫苗可能会对年轻男性造成与心脏相关的副作用。” 日本的健康专家目睹了年轻男性和青少年心肌炎和心包炎的发病率飙升。他们已经在中年人和老年人身上看到了同样不间断的心脏问题。
 
-舒尔茨告诉该报：“德国没有分裂！大多数市民自己接种了疫苗。还有更多人希望尽快这样做，因为他们已经克服了担忧。”他还声称：“在那些没有接种疫苗的人中，很少有人认为他们必须通过抗议游行来证明他们对接种疫苗的反抗。”
+**在美国乃至全世界，心脏骤停、心脏炎症和心脏病死亡人数呈爆炸式增长。年轻的运动员正在场上倒下；欧洲的明星足球运动员在比赛中途倒地死亡；裁判、教练甚至看台上的球迷都出现了心脏紧急情况。这是以前没有人见过的东西。这是一种流行病。**
 
-尽管过去两周[有数千人](https://www.welt.de/politik/deutschland/article235644794/Corona-Demos-in-Deutschland-Nicht-alle-verliefen-friedlich.html)参加了反对新措施的抗议活动，但总理还是发表了上述评论。
+**所有这些受害者有什么共同点？他们都打过疫苗。**
 
-其中[包括](https://www.dw.com/en/germany-torchlit-rally-against-covid-measures-in-saxony-prompts-outcry/a-60020777)在萨克森州卫生部长住所外举行的一场极具争议的抗议集会。
+在美国，媒体上充斥着医院急诊室和重症监护室挤满重病患者的报道。从东海岸到西海岸，排队的病人太多了，以至于床位或护士都不够用。病人躺在走廊的轮床上。医生和医学专家称其为“谜”，为什么这么多美国人生病。他们无法理解发生了什么。
 
-舒尔茨说：“我想把这个国家团结在一起。因此，我也是未接种疫苗者的校长。”“我想说服他们接种疫苗的要点。但是：有不同意见并不意味着分裂。我们也可以争论。我相信绝大多数没有接种疫苗的人都和我一样觉得这些抗议集会令人作呕。”
+但我可以解开谜团。我相信这些是与COVID-19疫苗相关的伤害，使急诊室和重症监护室不堪重负。在这种神秘的突发卫生事件中最普遍的疾病—心脏病发作死亡、心脏骤停、中风、血栓、多器官衰竭—都与疫苗不良事件报告系统中列出的COVID-19疫苗副作用相同（VAERS）。
 
-然而，当被问及是否会对全体人口实施强制疫苗接种时，肖尔茨表示，虽然最终要由议会决定，但他支持实施该措施。
+多么巧合。
 
-舒尔茨说：“作为议员，我将投票支持强制接种疫苗，因为它在法律上是允许的，而且在道德上是正确的，”“我们是一个绝大多数人都遵守法律的国家。我们在红灯处停下。我们尊重交通规则。不是因为警察到处检查我们。但是因为我们遵守这些规则是我们本性的一部分。”
+但这不仅仅是发生在美国，它到处都在发生。在英国，《标准晚报》报道了多达300,000名英国公民面临突发的心脏相关疾病和心脏骤停。
 
-德国的邻国奥地利已经确认将实施该措施，那些在 2 月后仍未接种疫苗的人将[面临](https://www.breitbart.com/europe/2021/12/10/fears-new-austrian-law-could-be-used-to-imprison-unvaccinated-for-up-to-a-year/)巨额罚款和可能的监禁。
+英国医学专家将此归咎于PPSD—“大流行后应激障碍”。三十万英国人并没有因疫苗而死亡和残废。当然不是，他们都疯了，这一切都在他们的脑海中。
 
-编译/米拉娅
+这些被洗脑的Kool-Aid饮酒者看不到他们面前的东西。或者，也许医生、科学家和研究人员太害怕失去他们的医疗执照，或者失去数百万美元的政府拨款，而不敢站出来说话。
 
-审阅/丘杰斯
+**就媒体而言，一切都与贪婪有关。大型制药公司购买了美国每个电视新闻网络上的大部分广告。用疫苗死伤的新闻冒犯大型制药公司，媒体可能会损失数十亿美元的收入。一半的新闻编辑室可能会被解雇。**
 
-上传/天赐良闻
+更不用说这些媒体公司的股价会崩溃。Lester Holt、Don Lemon、Sean Hannity 和 Rachel Maddow 的退休账户。所以，真相来之不易。
 
-英文原文作者：[彼得·卡德尔](https://www.breitbart.com/author/peter-caddle/)
+真相是什么？所有有一点可信度、道德和体面的人都必须关注一些关键因素。
 
-[伦敦](https://www.breitbart.com/europe/)[卫生](https://www.breitbart.com/health/)[/欧洲](https://www.breitbart.com/europe/)[政治](https://www.breitbart.com/politics/)[种族隔离](https://www.breitbart.com/tag/apartheid/)[冠状病毒](https://www.breitbart.com/tag/coronavirus/)[COVID-19](https://www.breitbart.com/tag/covid-19/)[欧盟](https://www.breitbart.com/tag/european-union/)[德国](https://www.breitbart.com/tag/germany/)[封锁](https://www.breitbart.com/tag/lockdown/)[强制疫苗接种](https://www.breitbart.com/tag/mandatory-vaccination/)[Olaf Scholz](https://www.breitbart.com/tag/olaf-scholz/)[SPD](https://www.breitbart.com/tag/spd/)[疫苗要求](https://www.breitbart.com/tag/vaccine-mandates/)
+**首先，据报道，美国食品和药物管理局要求在75年才能全面公布辉瑞COVID-19疫苗数据。如果我告诉你“相信我，我正在销售世界上最好的保健品，但我75年来不能透露任何测试结果或成分，直到所有问的人都死了”，你会相信我吗？你会买我卖的东西吗？你会把它注射到你的身体里吗？**
 
-[Scholz ‘Chancellor of the Unvaccinated’ Despite Mandatory Vax Support](https://www.breitbart.com/europe/2021/12/15/germanys-scholz-calls-himself-chancellor-of-the-unvaccinated-despite-mandatory-vax-support/)
+其次，联邦法官要求辉瑞公司立即发布其中一些数据。辉瑞在前几页详细介绍了疫苗最初几周的结果，在他们自己的数据中承认，他们的疫苗与1,223名美国人的致命结果有关，并产生了42,086份不良反应报告。其中最突出的不良反应是心脏病发作和心脏问题。
+
+第三，VAERS系统报告了一些可能与疫苗有关的不良反应—包括数万人住院、严重受伤和永久性残疾。那只是在美国。欧盟的数字甚至更高。
+
+现在让我告诉你一个可怕的秘密。我的内部医疗保健消息来源报告说，有太多受害者向VAERS提交报告，以至于该系统不堪重负和需要备份。可能还有20,000或40,000或60,000多例死亡等待处理进入VAERS系统。他们告诉我这些数字是惊人的。
+
+现在您知道为什么医院急诊室和重症监护室挤满了重病患者。
+
+**所以，我的问题是，难道不应该有人调查这场不断升级的健康灾难吗？媒体上不应该有人报道这个难以想象的悲剧吗？政客应该保护我们吗？**
+
+我知道的一件事是：正在发生一些非常糟糕和非常邪恶的事情。
+
+文章来源：[https://townhall.com/columnists/wayneallynroot/2021/12/12/if-the-vaccine-is-so-great-why-are-so-many-people-dropping-dead-heart-attacks-skyrocket-young-children-suffer-heart-problems-soccer-players-drop-on-fields-icus-overwhelmed-from-coast-to-coast-n2600456?1223](https://townhall.com/columnists/wayneallynroot/2021/12/12/if-the-vaccine-is-so-great-why-are-so-many-people-dropping-dead-heart-attacks-skyrocket-young-children-suffer-heart-problems-soccer-players-drop-on-fields-icus-overwhelmed-from-coast-to-coast-n2600456?1223)
+
+翻译：洛杉矶盘古农场 – Raul
+
+校对：洛杉矶盘古农场 – Mike Li
+
+评论：洛杉矶盘古农场 – Wendy
+
+编辑：洛杉矶盘古农场 – Wendy
+
+
+![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入: (或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
