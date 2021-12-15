@@ -2,50 +2,46 @@
 ---
 
 
-## “班农先生不睬案”审理日期已确定
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1737586/)
+## 法官限制了班农先生公开证据的要求
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1740813/)
 
 俄罗斯莫斯科喀秋莎农场   仰望七星
 
 编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/12/B-4.jpg)hurriyetdailynews.com
-“班农先生不睬案”的定义详见Gnews文章。【1】
-
-司法部企图回避班农先生团队要求公布更多的文件，希望速战速决，快速了解此案，提出明年4月份审理的要求，而班农先生需要追究这起诉讼案更深的背景，提出明年10月份进行法庭审理，法官则进行了折中，确定在2022年7月18日进行。【2】
-
-《门道专家》对司法部的行径进行了指责，“对班农先生的案子希望隐藏证据、光速结案——而对1.6抗议者无审判日期，要他们牢底坐穿”。【3】
+![](https://assets.gnews.org/wp-content/uploads/2021/12/B-5.jpg)vanityfair.com
+CNN的文章，题目是“作为回应班农的意见，法官对公开披露其案件的证据设置了限制”。
 
 全文如下：
 
-有关史蒂夫·班农藐视国会案的有关信息今天公布。
+（CNN）周五（12月10日）报道，一名联邦法官驳回了史蒂夫·班农对司法部要求公开披露政府在其案件中移交给他的证据的限制的质疑。
 
-美国《伟大》（American Greatness）杂志撰稿人朱莉·凯利（Julie Kelly）在推特上发布了大量描述班农在其案件中的战略信息。
+一些媒体组织也对司法部提出的限制提出了质疑。
 
-班农的团队计划向美国检察官办公室、司法部、白宫和美国众议院索取信息。
+美国地区法官卡尔·尼科尔斯（Carl Nichols）主持司法部对前总统唐纳德·川普的前顾问提起的藐视法庭刑事诉讼，他发布了一项保护令，主要采纳了政府的建议，即限制案件中可公开分享的证据类型。
 
-司法部很害怕，试图阻止班农向媒体发布信息，班农的团队提醒法官，媒体希望看到这些信息。
+班农对该部提出的藐视国会指控不认罪，庭审将于7月18日开始。
 
-文章附上了凯利的推文。
+班农的团队和政府在是否应该对探寻过程中出现的材料制定保护令问题上存在分歧，班农的团队认为，公众有权知道案件的细节。政府表示，记录应保密，声称班农的目的是“在媒体而不是法庭上审理此案”，并辩称在审判前公开文件可能会影响证人的证词。
 
-法官似乎站在腐败犯罪的司法部一边。
+尼科尔斯星期五（12月10日）下令，在探寻过程中展示的记录仍处于保护令之下，该命令不适用于公开提供的文件或班农团队独立于发现过程获得的记录。
 
-班农正在追捕腐败和非法的1.6委员会。
+美国有线电视新闻网（CNN）是参与挑战拟议保护令的几个媒体组织之一。
 
-共和党人迷路了，他们在树林里寻找出路，他们根本帮不上忙。
+起诉源于班农决定不配合众议院1月6日的调查，司法部在众议院转介后提起了诉讼。
 
-1.6（抗议者的）案件被推迟，但班农的案子必须以光速行动？
+在周二（12月7日）的法庭听证会上，班农的法律团队表示，除其他外，他们希望与公众分享关于众议院1.6委员会向川普盟友发出传票的国会内部通信文件。
 
-掌管我们司法部和美国政府的是一个多么腐败的集团啊。这一切都始于奥巴马。
+班农的律师大卫·肖恩（David Schoen）在听证会上说：“我们确实相信委员会对班农先生传票的讨论……是公众的事。”司法部在法庭文件中曾表示，班农试图“滥用刑事证据，在媒体而不是法庭上审理此案。”
 
-（原文完）
+尼科尔斯可能还需要解决其他有关发现的审前争议，班农的团队还预演了从国会获得额外内部文件的努力——除了已经移交给他的文件之外——以及与司法部指控他的决定有关的记录。检察官表示，他们认为班农无权获得这些额外的文件。
 
-有关链接：
+（全文完）
 
-【1】[https://gnews.org/zh-hans/1706104/](https://gnews.org/zh-hans/1706104/)
+笔者发稿时，还没有看到班农先生对法官此判决的回应，但相信CNN的文章往往会压缩保守人士喜欢的内容，虽然在质疑拜登政府司法部“捂文件、捂证据”行为与班农团队有共识。只要是有允许公开的文件，相信班农先生会让这些心怀鬼胎、阴谋策划者败露与光天化日之下，因为正义的力量是无穷的！
 
-【2】[https://thehill.com/regulation/court-battles/584703-judge-sets-july-trial-date-in-bannon-case](https://thehill.com/regulation/court-battles/584703-judge-sets-july-trial-date-in-bannon-case)
+原文链接：
 
-【3】[https://www.thegatewaypundit.com/2021/12/doj-steve-bannons-court-case-wants-withhold-evidence-move-light-speed-j6-protesters-held-jail-still-dont-court-dates/](https://www.thegatewaypundit.com/2021/12/doj-steve-bannons-court-case-wants-withhold-evidence-move-light-speed-j6-protesters-held-jail-still-dont-court-dates/)
+[https://www.cnn.com/2021/12/10/politics/bannon-judge-protective-order/index.html](https://www.cnn.com/2021/12/10/politics/bannon-judge-protective-order/index.html)
 
  
 
