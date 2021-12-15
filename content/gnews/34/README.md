@@ -2,82 +2,47 @@
 ---
 
 
-## 所有独裁者最后干的唯一一件事 就是发动战争
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1755582/)
+## 2021年度人物埃隆·马斯克公开反对疫苗强制接种
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1755715/)
 
-[https://gtv.org/video/id=61b7febda68b4f4b28e82457](https://gtv.org/video/id=61b7febda68b4f4b28e82457)
+**【雅典娜快讯】，紧贴时代脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-169.png)**图片来源：The Nationals Victoria**
+**整理报道：文泓**
 
-**郭文贵**
-**Miles Guo**
+近日,在接受媒体采访时，世界首富埃隆·马斯克公开表示反对疫苗强制接种。
 
-掌握共产党的历史和脉搏和内部的情报，和对共产党中心老杂毛的个人性格上的判断
-As long as you know the history, pulse and internal information of the Com-munist Party, and make right judgement according to the personal character of these top officials at the center of the Communist Party
+这位特斯拉和SpaceX的创始人此前曾批评过美国实施的新冠疫情封锁，他在接受《时代》杂志采访时发表了上述言论，周一该杂志将这位世界首富评为2021年年度人物。
 
-只要你准确了，咱永远是赢家，咱知道共产党内部怎么想的
-once you are accurate, we will always be the winner, we know what the Com-munist Party thinks internally
+当被记者问及他是否接种过疫苗时，马斯克确认他接种过。
 
-当习近平这时候，下边都鼓掌了，好啊，太伟大了，你就是秦始皇
-When Xi Jinping was at there, everyone applauded for him, “okay, that’s goo great, you are Qin Shihuang(the first emperor in China)
+“是的，我支持接种疫苗”，他说：“但同样地，我反对强迫人们接种疫苗。你知道，我认为这不是我们在美国应该做的事情。我认为我们应该鼓励人们接种疫苗，但不能强迫他们接种疫苗，例如让他们选择接种疫苗或被解雇。”
 
-这个党没有你就完啦，所以说，你要继续干呢
-This party will be over without you, so you have to keep doing it”
+根据美国疾病控制和预防中心的数据，美国仅有72%以上的成年人接受了全面的疫苗接种，即占总人口的61%以下。
 
-我告诉你，所有的独裁包括卡扎菲、萨达姆的都是被家人和身边最亲的人忽悠出来的
-Let me tell you, all the dictators including Gaddafi and Saddam were fooled by their family members and the closest people around them
+各州的疫苗接种率差异很大。佛蒙特州是接种疫苗最多的州，75.4%的总人口接种了两剂疫苗，而爱达荷州的接种率最低，只有45.8%。
 
-而且所有的独裁着，真的从过去编故事自己是神，看了神，到最后你真相信自己是神
-And all the dictatorships really made up stories from the past that they are God, and are blessed by God, really believe that they are God in the end
+事实证明，在州和联邦层面上的强制接种疫苗政策都是存有争议的。
 
-最后是灭掉神，自己代替神，然后最后是自己真心相信自己是神
-Finally, they get rid of God, replace God by themself, and finally they truly believe that they are God
+据美联社报道，周二，美国空军说它已经开除了27名拒绝接种疫苗的人，使他们成为第一批因不服从政府规定而被开除的军人。
 
-所有人都是这个死亡的步骤，今天你看到共产党的狂妄
-All of them follow this death procedure, today you look at the arrogance of the Communist Party
+自从今年早些时候五角大楼宣布对所有军人进行全面的疫苗接种要求以来，数以千计的军人要么拒绝接种，要么寻求豁免。不同部门为其成员接种疫苗设定了各自的最后期限。
 
-第二条，杀基督教，杀新疆人，杀佛教、天主教、道教，全教拜一神，叫习太阳神
-The second, they kill Christianity, kill Uyghurs, kill Buddhism, Catholicism, and Taoism, and all religions worship to one god, it called Xi Sun God
+马斯克的评论是在最高法院周一拒绝停止对纽约医护人员的疫苗要求时发表的。同时，美国参议院上周投票阻止了总统乔·拜登对大型私人雇主的疫苗或测试强制要求，这被认为是保守派的一次初步的胜利。
 
-而且大家要看到的经济问题，现在国内已经是房地产崩塌，银行崩塌
-Moreover everyone needs to see the economic problems, now domestic real estate has collapsed, and the banks have collapsed
+在参议院所有50名共和党人和两名中间派民主党人的支持下，该措施以52比48获得通过，但预计在众议院的表现不会太好，因为它可能只得到右派的支持。
 
-这是一点都不用担心的，是吧，大量的一亿多人失业
-This is no doubt about that, right? there are more than 100 million people are unemployed
+根据拜登先生的计划，从1月4日起，所有拥有100名以上员工的公司都必须要求其员工接受免疫接种或每周接受一次测试。
 
-大量的商业关门，所有的85%的私人企业要归为国有
-A large number of businesses are closed, and 85% of all private companies are to be state-owned
+新闻链接：[Elon Musk says he opposes vaccine mandates | news.com.au — Australia’s leading news site](https://www.news.com.au/finance/work/leaders/not-something-we-should-do-in-america-elon-musk-says-he-opposes-vaccine-mandates/news-story/a68bc7834e06a79820e4242f526f7efe)
 
-这是所有的独裁者，阿明的乌干达，我再说的，卡扎菲、萨达姆、希特勒、斯大林
-This is all the dictators, like Amin of Uganda, I will repeat it again, Gaddafi, Sad-dam, Hitler, and Stalin
+发布：去中心化Math
 
-所有人干的统一一件事儿，企业国有化，个人神圣化，宗教彻底被消灭，媒体彻底被控制
-One thing everyone does is the nationalization of enterprises, personal sanctifi-cation, religion is completely eliminated, and the media is completely controlled
-
-然后唯一最后选项发动战争，而且不是它意志为转移的
-Then the only last option for them to start a war, and it’s doesn’t depend on its will
-
-习现在想不发动战争都不可能
-Now it’s impossible for Xi not to start a war
-
-**原视频链接**:[https://gettr.com/post/pjh1kbe8be](https://gettr.com/post/pjh1kbe8be)
-
-Date:12/12/2021
-**原视频标题:** 所有独裁者最后干的唯一一件事 就是发动战争
-The only thing that all dictators did last was to start a war
-原视频日期：2021/12/10
-**原视频链接**https://gettr.com/post/pjh1kbe8be
-任务编号：3204
-视频时间段 : 0:00-2:06
-
-中听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 -天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

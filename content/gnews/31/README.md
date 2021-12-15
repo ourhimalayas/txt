@@ -2,32 +2,29 @@
 ---
 
 
-## 巴西城市使用伊维菌素，住院率和死亡率减少一半
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1755592/)
+## 美国立陶宛加强防务关系以抗中俄压力
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1755798/)
 
-作者：纽约香草山农场   – 文真
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-据12月13日零对冲报道，因疫情早期将伊维菌素作为预防药物，巴西南部城市伊塔贾伊对抗中共病毒效果显著，其住院率和死亡率减少了一半。
+俄罗斯莫斯科喀秋莎农场 银河
 
-在2020年7月至12月期间，由巴西几个研究所、多伦多大学和哥伦比亚大学组成的研究小组，对伊塔贾伊的约22万居民进行了对照医疗实验，其中约60%的人服用伊维菌素。分析结果显示，在七个月的时间里，服用伊维菌素人群的住院率和死亡率减少了一半。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture1-23.jpg)
-此外，印度医科大学的多项研究表明，伊维菌素使医护人员的感染率降低了73%，接受伊维菌素患者的康复率和出院率明显更高。秘鲁的各州密切配合伊维菌素治疗后，病例死亡人数急剧下降。西班牙巴塞罗那大学进行的双盲临床实验也证实，使用伊维菌素的患者能更快康复。在孟加拉国进行的对照研究发现，使用伊维菌素联合治疗，可以缩短病程，早期使用配合治疗，能更好地清除病毒。
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/12/L-1.jpg)balticword.com
+日本共同社消息，美国和立陶宛12月13日同意通过促进武器采购，加强两国的防务关系。在应对来自中共国和俄罗斯威权政府的巨大压力面前，立陶宛国防部长阿尔维达斯·阿努绍斯卡斯（Arvydas Anusauskas）指出俄罗斯总统普京和中共国国家主席习近平是“独裁者”，立陶宛“不会回避以实力应对这些威胁”。
 
-参考链接：[巴西城市使用伊维菌素，住院率和死亡率减少一半](https://www.zerohedge.com/covid-19/hospitalizations-mortality-cut-half-after-brazilian-city-offered-ivermectin-everyone-pre)
+立陶宛今年5月宣布退出17+1中共国-中东欧合作机制，之后又宣布允许台湾当局以“台湾”名义在该国设立“代表处”。11月18日驻立陶宛台湾代表处正式挂牌后，中共国决定降级与立陶宛外交关系，“严正抗议”台湾代表处在立陶宛的设立。更有消息指出，中共国已对跨国公司施压要求他们与立陶宛断绝关系。
 
-![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+立陶宛一直受到俄罗斯的威胁。俄罗斯在乌克兰边境附近的军事集结，引发了对乌克兰进一步侵略的担忧。
 
-总编：飞虹
-编辑：DM/雪梨
-校对/发稿：Hetangyuese
+据五角大楼报道，美国防部长奥斯汀对立陶宛国防部长说：“我赞扬贵国政府对中共国的坚定政策，我们知道贵国的决定已经遭到了报复。” 奥斯汀向立陶宛保证立陶宛不会单独面临俄罗斯和中共国的挑战，并承诺“继续共同努力加强立陶宛的武装力量”。双方宣布签署一项互惠国防采购协议，以改善国防项目的采购条件，并提高两国军队之间的互动性。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+阿努绍斯卡斯认为美国在乌克兰领土上的军事存在对于任何可能的侵略者都是“至关重要的”，尤其是看到俄罗斯在乌克兰边境集结军队的情况下。
+
+拜登政府一直在加强与这个波罗的海国家的关系，称其为“民主的灯塔”，这是把盟国和伙伴团结在一起，应对其所说的独裁政权对开放的国际秩序构成挑战的努力的一部分。
+
+参考链接：
+
+[https://english.kyodonews.net/news/2021/12/7b6af2e6cbdd-us-lithuania-to-beef-up-defense-ties-amid-russia-china-pressure.html](https://english.kyodonews.net/news/2021/12/7b6af2e6cbdd-us-lithuania-to-beef-up-defense-ties-amid-russia-china-pressure.html)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

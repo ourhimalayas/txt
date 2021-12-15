@@ -2,47 +2,35 @@
 ---
 
 
-## 2021年度人物埃隆·马斯克公开反对疫苗强制接种
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1755715/)
+## 与中共勾结不会有好下场，哈佛大学教授面临审判
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1755857/)
 
-**【雅典娜快讯】，紧贴时代脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-169.png)**图片来源：The Nationals Victoria**
-**整理报道：文泓**
+作者：香草山金融部 – 闲聊钱币
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
+哈佛大学一名研究纳米技术的教授，查尔斯-利伯（Charles Lieber），周二面临审判。他被指控参与了中共的“千人计划”，得到中共的资金扶持并向美国政府撒谎，隐瞒了上述事实。
 
-近日,在接受媒体采访时，世界首富埃隆·马斯克公开表示反对疫苗强制接种。
+检察官陈述利伯从2011年开始成为武汉理工大学的一名 “战略科学家”，并因此得到150多万美元的经费建立实验室，同时每月向他支付5万美元，外加15万美元的年度生活费。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture5-5.jpg)
+尽管62岁的利伯对六项指控均不认罪，案件最终结果也难以预测。但是他的命运可以从另一名“千人计划”的参与者55岁的张首晟离奇坠楼身亡，以及2008年同样坠楼身亡的任伟看出端倪。
 
-这位特斯拉和SpaceX的创始人此前曾批评过美国实施的新冠疫情封锁，他在接受《时代》杂志采访时发表了上述言论，周一该杂志将这位世界首富评为2021年年度人物。
+张首晟和任伟分别是物理和数学界的天才。他们的研究成果无论是在科技还是军事上都有着举足轻重的分量。然而他们都离奇的在马上要回国为中共效力的时候由于忧郁症跳楼自杀。
 
-当被记者问及他是否接种过疫苗时，马斯克确认他接种过。
+跟着共产党，走进火葬场。这位研究纳米技术的教授恐怕知道太多了。
 
-“是的，我支持接种疫苗”，他说：“但同样地，我反对强迫人们接种疫苗。你知道，我认为这不是我们在美国应该做的事情。我认为我们应该鼓励人们接种疫苗，但不能强迫他们接种疫苗，例如让他们选择接种疫苗或被解雇。”
+参考来源：[与中共勾结不会有好下场，哈佛大学教授面临审判](https://www.reuters.com/world/us/harvard-professor-charged-with-lying-about-china-ties-faces-trial-2021-12-14/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=14-12-21&amp;utm_campaign=14-12-21)
 
-根据美国疾病控制和预防中心的数据，美国仅有72%以上的成年人接受了全面的疫苗接种，即占总人口的61%以下。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88-1.png)
 
-各州的疫苗接种率差异很大。佛蒙特州是接种疫苗最多的州，75.4%的总人口接种了两剂疫苗，而爱达荷州的接种率最低，只有45.8%。
+编辑/校对/发稿：Hetangyuese
 
-事实证明，在州和联邦层面上的强制接种疫苗政策都是存有争议的。
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-据美联社报道，周二，美国空军说它已经开除了27名拒绝接种疫苗的人，使他们成为第一批因不服从政府规定而被开除的军人。
-
-自从今年早些时候五角大楼宣布对所有军人进行全面的疫苗接种要求以来，数以千计的军人要么拒绝接种，要么寻求豁免。不同部门为其成员接种疫苗设定了各自的最后期限。
-
-马斯克的评论是在最高法院周一拒绝停止对纽约医护人员的疫苗要求时发表的。同时，美国参议院上周投票阻止了总统乔·拜登对大型私人雇主的疫苗或测试强制要求，这被认为是保守派的一次初步的胜利。
-
-在参议院所有50名共和党人和两名中间派民主党人的支持下，该措施以52比48获得通过，但预计在众议院的表现不会太好，因为它可能只得到右派的支持。
-
-根据拜登先生的计划，从1月4日起，所有拥有100名以上员工的公司都必须要求其员工接受免疫接种或每周接受一次测试。
-
-新闻链接：[Elon Musk says he opposes vaccine mandates | news.com.au — Australia’s leading news site](https://www.news.com.au/finance/work/leaders/not-something-we-should-do-in-america-elon-musk-says-he-opposes-vaccine-mandates/news-story/a68bc7834e06a79820e4242f526f7efe)
-
-发布：去中心化Math
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
  
 
