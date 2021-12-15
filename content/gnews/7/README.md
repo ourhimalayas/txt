@@ -2,28 +2,24 @@
 ---
 
 
-## 中日财经爆：广州南洋肿瘤医院宣告破产
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1756562/)
+## 各国抵制北京冬奥会，中共只能请网红宣传助威
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1756607/)
 
 整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/6-26.jpg)
-[图片来源](https://www.google.com/search?q=%E5%B9%BF%E5%B7%9E%E5%8D%97%E6%B4%8B%E8%82%BF%E7%98%A4%E5%8C%BB%E9%99%A2&amp;tbm=isch&amp;ved=2ahUKEwjRy-DwtuX0AhXkJDQIHTnGD1cQ2-cCegQIABAA&amp;oq=%E5%B9%BF%E5%B7%9E%E5%8D%97%E6%B4%8B%E8%82%BF%E7%98%A4%E5%8C%BB%E9%99%A2&amp;gs_lcp=CgNpbWcQAzoHCCMQ7wMQJzoFCAAQgARQ4wJY4wJglAloAHAAeACAAYECiAH4A5IBAzItMpgBAKABAaoBC2d3cy13aXotaW1nwAEB&amp;sclient=img&amp;ei=36y5YZHgKeTJ0PEPuYy_uAU&amp;bih=625&amp;biw=1366&amp;rlz=1C1YKST_enUS900US901&amp;hl=zh-CN#imgrc=4aX7o_5niNttuM)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/5-21.jpg)
+[图片来源](https://www.voachinese.com/a/us-congress-bipartisan-members-letter-ioc-postpone-winter-olympics-20210723/5977577.html)：
 
-中共国医疗院所出现破产案例。广州中级人民法院12月14日宣布，曾跻身中共国「十佳肿瘤专科医院」的广州南洋肿瘤医院，已于4月间成为院方宣告破产的第一家民营医疗机构。
+美国、加拿大等国日前都表态将对北京冬奥进行「外交抵制」，虽然中共国官方对外表示「中共国原本就没有向相关的国家发出邀请」，但根据美国政府显示的文件，中共国聘请公关公司招揽网红，宣传明年2月要揭幕的北京冬奥，并趁机鼓吹美中在气候变迁等议题上合作。
 
-羊城晚报报导，南洋肿瘤医院已于2018年8月停止营业。2020年4月，债权人以医院「严重资不抵债为由」，向广州中院申请南洋肿瘤医院进行破产清算，并由院方裁定受理。
+美国、纽西兰、澳洲、英国、加拿大相继宣布抵制北京冬奥，原因是中共国侵犯新疆、香港等地民众的人权、拒绝配合调查中共病毒的起源，还有11月初中共国网球女将彭帅的性侵失踪案。可口可乐、Visa、英特尔（Intel）等美国企业也面临退出奥运赞助协议的压力。中共国为了修补形象，透过中共国官媒《中共国环球电视网》（CGTN）、和《新华社》斥资数百万美元为美国观众制作亲中共国的内容。
 
-广州中院表示，经审计并清理债权债务，南洋肿瘤医院不能清偿到期债务，且资产不足以清偿全部债务，符合宣告破产的法定条件，院方遂于今年4月27日宣告南洋肿瘤医院破产。
+美国政治新闻网站《华盛顿自由灯塔》（The Washington Free Beacon）13日报导，中共国驻纽约领事馆聘请「Vippi Media」公司负责影响力宣传活动。Vippi Media会以30万美元的价格，延揽IG、TikTok和Twitch的知名用户来宣传北京冬奥。不过创办人贾斯瓦（Vipp Jaswal）说，他尚未决定邀请哪些网红参加。
 
-院方指出，南洋肿瘤医院被裁定破产后，院内的289箱病历档案资料，即被移交相关卫生行政部门或中医药管理部门等保管，以确保病患的病历资料在破产清算过程中不被泄露。
-
-广州中院认定，依药品保质期限和管理人清点结果，南洋肿瘤医院绝大部分库存药品依法应定为「假药、劣药」，不得变价处置。医院现有库存药品、医用耗材由于已过有效期、储存环境恶劣等情况，应属药物性废物、损伤性废物等医疗废弃物，这些废弃物已被全数销毁。
-
-根据报导，广州南洋肿瘤医院成立于2009年，曾跻身「全国十佳肿瘤专科医院前列」，且标榜是亚洲最著名的肿瘤专科医院之一。诊疗科目包括肿瘤科、急诊医学科、医学检验科；医学影像科；临床体液、血液专业；核医学专业；超声诊断专业；肿瘤内科、临床检验专科等。
+中共国与Vippi的合约要求该公司聘请8名网红，制作至少24篇关于奥运、北京历史和美中关系的贴文，其中20％的内容应该集中在「合作与中美关系的任何好事」上，还有借机鼓吹美中两国在气候变迁等议题上合作。
 
 消息来源:
 
-**[中共国医疗业惊现案例广州南洋肿瘤医院宣告破产](https://tw.news.yahoo.com/%E4%B8%AD%E5%9C%8B%E9%86%AB%E7%99%82%E6%A5%AD%E9%A9%9A%E7%8F%BE%E6%A1%88%E4%BE%8B-%E5%BB%A3%E5%B7%9E%E5%8D%97%E6%B4%8B%E8%85%AB%E7%98%A4%E9%86%AB%E9%99%A2%E5%AE%A3%E5%91%8A%E7%A0%B4%E7%94%A2-075908799.html)**
+**[中共国「30万美元」收买美国网红力推北京冬奥](https://tw.news.yahoo.com/%E4%B8%AD%E5%9C%8B-30%E8%90%AC%E7%BE%8E%E5%85%83-%E6%94%B6%E8%B2%B7%E7%BE%8E%E5%9C%8B%E7%B6%B2%E7%B4%85-%E5%8A%9B%E6%8E%A8%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A7-042722042.html)**
 
 校对：东京樱花团/知了知了
 发布：东京樱花团/yuxingcao01

@@ -2,34 +2,75 @@
 ---
 
 
-## 因隐瞒参与中共千人计划的哈佛教授将出庭受审
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1756466/)
+## 【草根访谈】第293期新闻概要
+` WindTalker` [轉載自GNews](https://gnews.org/zh-hans/1756513/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-47.png)
-[图片来源](http://www.uschinapress.com/static/content/SH/2020-07-15/732901407044411392.html)：
+**——日本东京方舟农场GTV直播组出品**
 
-被控隐瞒与中共国关系的著名哈佛大学化学教授查尔斯∙利伯（Charles Lieber）即将在波士顿联邦法院出庭受审，而为这一庭审准备的陪审团成员的挑选工作星期二（12月14日）已经开始。
+策划/撰文：宇宙之泾
 
-利伯原为哈佛大学化学和生化系主任，也是研究纳米材料的顶级专家。美国联邦政府去年1月根据司法部一项打击中共国窃取美国技术和人才的计划“中国倡议”逮捕了利伯，并指控他在隐瞒与中共国武汉大学的关系和接受中共国政府报酬问题上向美国政府说谎。利伯去年7月被正式起诉。
+校对：石桥李次郎
 
-利伯被控在2018年和2019年参加中共国的千人计划，并在中共国的武汉理工大学设立一个研究实验室，但他却在这些问题上向美国联邦当局撒谎。
+书法：Livre
 
-美国政府一直指责中共国政府利用“千人计划”，以丰厚报酬和高额研究资金引诱外国科学家和研究人员与中共国分享他们的科研成果，从而达到窃取外国产业和学术机密的目的。
+挽联：武汉老温 横批：风雨之中
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-13-上午2.20.35.png)
+GTV方舟农场直播间【草根访谈】第293期新闻概要：
 
-美国司法部当时在一份新闻稿中指出，“根据利伯的3年合约，武汉理工大学据称每月向利伯支付最多5万美元的薪水，报销最多为100万元人民币（约合15.8万美元）的生活开支，并奖励他150多万美元，让他在武汉理工大学成立一个研究实验室。”
+今天的嘉宾方舟咨询组组长「TONY」做客方舟直播间，分享一下战友们在咨询中比较关心的问题的，畅聊七哥12月12日大直播内容。
 
-“中国倡议”是川普总统任内，美国司法部为了打击中共国政府非常猖獗的窃取美国产业和学术机密的企图，而在2018年11月提出的一项严打行动计划。拜登总统主政以来，并未表示要放弃或修改这一严打计划。
+时政新闻：七哥告诉大家对待战友宽容待人，不能凭个人喜好去处理事情。近期日本东京方舟农场将推出【七哥说】盖特栏目，战友们集思广益，共同进步，每日一盖文，戳死老杂毛。
 
-消息来源:
+【七哥说】 “今天我们回头看1212西安事变，张学良是真的欺民贼，盗国贼，伪君子，假英雄，他害死了多少人？没有他就没有毛泽东和中南坑！任何情况下，都会比共产党今天统治中国好。没有共产党、没有国民党的中国会怎样？如果没搞三反五反，破四旧，大跃进，十年文革，六四屠杀等，给中国二十年中国一定会走向民主，一定会比今天强。那时候刚建国，中国人单纯的像从原始社会来的一样，给啥就信啥。 今天1212西安事变的话题：1936年改变中国历史就出了这么一个二货张学良，东北真的就叫2B。张学良在中国人历史上，千刀杀、万刀刮，把这个人埋到狗屎坑都不足为过，中国有很多愚蠢的人被共产党洗脑竟然把张学良当英雄！张学良是什么人？今天百分百就是土匪流氓蠢驴，他爹也不是什么好东西，就像在东北叫东北王张作霖，从来没想抗日也没有抗过日本。”
+![](https://assets.gnews.org/wp-content/uploads/2021/12/6052EA9A-60B6-445E-92C2-67876D127DB1.png)
+七哥说：【我告诉你，一个月我保证你是爆料革命最感到刺激的就是这个。你会看到无数当官的亲人、私生子女、他们所有海外的亲属关系会震惊你。就像头几年王建死了看到照片一样，比那个还血腥，现实版的权力与游戏，你无法想象中共国多少钱给了他们私生子女，在海外有多少私生子女过什么样的生活，你连想都不敢想，你也不会想他们有多么糜烂。你不敢想象他们多么傲慢、多么LOW、多么低级，这扇门一旦打开，你会看到无数个所有你过去认为仰视的当官儿女们，他的妻子父母是多么烂，你会感到你被统治是多大的羞辱，也会让世界震撼。我们要1000天让世界看到他们流氓的真实嘴脸。七哥给你准备了无数个，不是5000个，当官的人的家、豪宅、小视频、联姻关系，最后你自己都明白共产党是什么嘴脸。】
+![插图](https://assets.gnews.org/wp-content/uploads/2021/12/CF6756C4-59FE-475E-A4DC-435933C107C9.jpeg)
+主持人：@WindTalker 宇宙之泾
 
-[因隐瞒与中国关系遭指控的哈佛教授即将出庭受审，陪审员挑选已开始](https://www.voachinese.com/a/Harvard-professor-charged-with-lying-about-China-ties-faces-trial-20211214/6354640.html)
+嘉宾战友：@Tonyxu 托尼大哥
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
+美东时间晚上11:30 日本东京时间中午1:30 北京时间中午12:30
+
+Every day we spreading the truth about CCPvirus (COVID-19)and CCP vaccines, every day is Shouting for the people of Hong Kong who killed from CCP, and every day is hard working for the Chinese people to destroy the evil Chinese Communist Party! Welcome to our New Federal State of the China. Welcome to our Himalaya Tokyo JHL.
+
+【草根访谈】日本东京方舟农场欢迎你！
+
+【草根访谈】【方舟有你】【方舟歌汇】
+
+【方舟品读时光】【有问必答】【果色添香】 [#nfsc](https://gettr.com/hashtag/%23nfsc)[#MilesGuo](https://gettr.com/hashtag/%23MilesGuo)[#ccpvirus](https://gettr.com/hashtag/%23ccpvirus)[#CCPvaccines](https://gettr.com/hashtag/%23CCPvaccines)[#ccpliepeoplesdie](https://gettr.com/hashtag/%23ccpliepeoplesdie)[#takedowntheccp](https://gettr.com/hashtag/%23takedowntheccp)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/85A9DBF3-4860-4C4F-8B7B-962289F759D4_1_100_o-1-scaled.jpeg)
 
 
+```
+只有那些疯狂到认为自己可以改变世界的人，才能真正改变这个世界。
+```
+
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/73A43459-2029-4DBE-89E4-993EF95E97A9_1_201_a.jpeg)
+
+
+```
+知人者智自知者明篆刻：柒公子
+```
+
+
+
+
+
+
+2021年12月| 一 | 二 | 三 | 四 | 五 | 六 | 日 |
+| --- | --- | --- | --- | --- | --- | --- |
+|   | [1](https://gnews.org/zh-hans/date/2021/12/01/) | [2](https://gnews.org/zh-hans/date/2021/12/02/) | [3](https://gnews.org/zh-hans/date/2021/12/03/) | [4](https://gnews.org/zh-hans/date/2021/12/04/) | [5](https://gnews.org/zh-hans/date/2021/12/05/) |
+| [6](https://gnews.org/zh-hans/date/2021/12/06/) | [7](https://gnews.org/zh-hans/date/2021/12/07/) | [8](https://gnews.org/zh-hans/date/2021/12/08/) | [9](https://gnews.org/zh-hans/date/2021/12/09/) | [10](https://gnews.org/zh-hans/date/2021/12/10/) | [11](https://gnews.org/zh-hans/date/2021/12/11/) | [12](https://gnews.org/zh-hans/date/2021/12/12/) |
+| [13](https://gnews.org/zh-hans/date/2021/12/13/) | [14](https://gnews.org/zh-hans/date/2021/12/14/) | [15](https://gnews.org/zh-hans/date/2021/12/15/) | 16 | 17 | 18 | 19 |
+| 20 | 21 | 22 | 23 | 24 | 25 | 26 |
+| 27 | 28 | 29 | 30 | 31 |   |
+
+[« 11月](https://gnews.org/zh-hans/date/2021/11/)  
+ 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
