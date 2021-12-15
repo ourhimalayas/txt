@@ -2,21 +2,44 @@
 ---
 
 
-## 疫苗本身就是毒
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1757204/)
+## 伊朗发布标有多个打击目标的以色列地图
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1757229/)
 
-文编：东京樱花团/樱花传媒
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-视频:东京樱花团/中文小视频组
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/61b9d718203027118d7c2887.jpg)
 
-12月5日，郭文贵先生在GTV大直播指出：
 
-既然中共病毒无法溯源，却又在如此短时间就能研发出相对的疫苗，这件事本身就很荒唐。疫苗的成份本身是有害的，它在人类基因上的尝试是危险的， 并且这种优胜劣汰的标准是可怕的，近乎于种族屠杀。所以说疫苗灾难大于病毒灾难。病毒并不可怕，而疫苗以及它所带来的次生危害，将会造成对人类最大的杀戮。
+ 
+图片来源: Reuters / Iranian Army;
 
-编辑：东京樱花团/墨然
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.jpg)
 
+#### 整理/编辑 ：小红帽
+
+**根据RT新闻12月15日报道，伊朗决定用视觉材料来加强其对宿敌以色列的传统威胁，并公布了一张犹太国家的地图。地图上标有德黑兰为回应其敌人的侵略而可能打击的众多目标。**
+
+周二，官方英文报纸《德黑兰时报》刊登了一篇文章，标题为 “只要有一个错误的举动！”。
+
+该文章的作者说：“以色列加强对伊朗的军事威胁似乎表明，犹太复国主义政权已经忘记了，伊朗完全有能力从任何地方打击他们”。
+
+该警告的旁边是一张以色列地图，上面覆盖着红色图钉，象征着伊朗导弹可能打击的目标。
+
+文章还引用了伊朗武装部队总参谋长穆罕默德·巴盖里（Mohammad Bagheri）少将的话，他坚称 “我们的部队从未低估过敌人的威胁，并为战略领域中最小的威胁做好了准备。”
+
+巴盖里坚持认为，伊朗在2020年1月对伊拉克西部的一个美国基地进行弹道导弹袭击，以及2019年6月在霍尔木兹海峡上空击落一架美国“全球鹰”无人机，已经证明了德黑兰的能力。
+
+《德黑兰时报》指出，随着德黑兰与世界大国之间恢复具有里程碑意义的2015年伊朗核协议谈判–该谈判在维也纳中断后重新开始，以色列加强了其活动。
+
+新闻来源：[Iran releases Israel map with multiple targets marked — RT World News](https://www.rt.com/news/543262-iran-map-targets-israel/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

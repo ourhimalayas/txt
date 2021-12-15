@@ -2,22 +2,29 @@
 ---
 
 
-## Hpay一共有七个级别
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1757187/)
+## 有声|G7与东盟强化合作对抗中共
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1757213/)
 
-文编：东京樱花团/樱花传媒
+配音：香草山美食部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+日媒报道，当地时间12月12日，正在英国利物浦举行的七国集团外长会议，邀请东盟外长举行了首次扩大会议。此举表明东盟集团是七国集团对中共竞争关键，因此七国集团正在谋求与东盟强化合作，以全面对抗中共。
 
-视频:东京樱花团/中文小视频组
+据日本外相林芳正表示，会议中对中共在东海和南海试图凭借其实力单方面改变现状的威胁、中共国恶劣的人权问题、台湾海峡和平与稳定的重要性问题，以及中共对台湾军事和外交施压问题，各国外长都表达了关切。 据悉，会议还涉及了朝鲜大规模杀伤性武器、俄罗斯在乌克兰边境集结军队、以及阿富汗人道主义危机问题。
 
-12月5日，郭文贵先生在GTV大直播指出：
+文字版原文：[G7与东盟强化合作对抗中共](https://gnews.org/zh-hans/1754636/)
 
-在美加日的战友们要充分利用你们的中国人的身份，聪明地有智慧地利用自己的身份，尽早尽快做好kyc，只有抓住机会才能使自己更有价值。Hpay不存在地域限制，第一级不是商业Hpay，是点对点的支付，只要过了kyc，有了帐号，互相之间就可以交易了，后续还有纯商业运作的七个级别正在开发。
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-编辑：东京樱花团/墨然
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.jpg)
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,47 +2,23 @@
 ---
 
 
-## 英国报告世界首例欧米克隆死亡病例
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1757409/)
+## 习的自信和疯狂来自普京和北朝鲜
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1757485/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+文编：东京樱花团/樱花传媒
 
+视频:东京樱花团/中文小视频组
 
+12月5日，郭文贵先生在GTV大直播指出：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+普京和金小胖深深地影响了习近平，他们都从骨子里对西方世界充满了仇恨。在数字货币时代的到来以及能源时代趋于结束这个大背景之下，卑微的习近平仰仗着与普京的默契，变得越来越自信和疯狂。凭着对量子技术、大型计算机等高端技术的掌握，加之俄朝伊巴在背后的支持，习近平更加刚愎自用、有恃无恐。
 
-
-
-12月13日，英国首相约翰逊宣布，英国至少有一人在感染欧米克隆新冠变种后死亡，这是全球首例公开证实的新冠新变种死亡案例。目前，官方并未同时公布死者是否接种疫苗的详细信息。
-
-英国首相曾在12日的电视公告中警告民众，欧米克隆的疫情即将到来，两剂疫苗根本不足以提供人体所需要的保护，并表示将争取比计划提前一个月，即到12月31日，让每个18岁以上的人接种第三剂疫苗。
-
-欧米克隆首例死亡病例的宣布，以及欧米克隆高传染性的特点，恐将成为英国政府强推疫苗加强针的借口。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1.1-7.jpg)
-参考链接：
-[Britain reports world’s first publicly confirmed death from Omicron COVID variant](https://www.abc.net.au/news/2021-12-14/britain-records-first-omicron-variant-covid-death/100697628?utm_source=ground.news&amp;utm_medium=referral)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
-
-总编：飞虹
-编辑：飞虹， 雪梨
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+编辑：东京樱花团/墨然
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.jpg)
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
 
 
