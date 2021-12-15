@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/15/2021 1:05 PM (UTC)`
+
+2015年12月15日 文贵大直播：欧美制裁 奥运人权经济；疫苗灾难 危害验证抗议 ；国内经济 地产负债脱钩；终共行动 中共是否报复
+![img](https://media.gettr.com/group14/origin/2021/12/15/12/00246737-29cd-10c7-558f-f0111967565f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 12/15/2021 12:45 AM (UTC)`
 
 12月14号：青蒿素．伊微菌素．绝对是人类的奇迹，上天赐给人类的神秘力量之一……大家一定要分享给身边的亲人和你爱的人。【青蒿素保健品反馈:<br/>1. (印度购青蒿素保健品)我先生是糖尿病患者，由于打胰岛素20多年，他的双脚底已经12年没有知觉了，喉轮吞咽也有些困难。上周开始吃青蒿素保健品，第二天他告诉我脚底开始有感觉了大约50%，我不信就用手去饶他的脚底，他本能的把脚往回收。青蒿素带来的效果之快太不可思议了，昨天他告诉我吞咽也顺利多了。他还说青蒿素好象对他全身在改变😄😄😄😄😄😄😄这几我看到先生已经走出了糖尿病后遗症的恐惧！感恩七哥告诉世界人民青蒿素的秘密🙏感恩伟大的屠呦呦女士🙏🙏🙏因为你们让我们再一次看到人类的希望🙏🙏🙏  <br/>2. 😣😣😣我有支气管炎，吃的是Bestvite 200mg一粒的青蒿素保健品，说明书建议一天一到两粒，头一周一天一粒加25mg锌,第二三四五周一天2粒，偶尔加锌，期间大便畅通了，例假正常了，呼吸道疾病感觉变好了，第六周一天一粒后出现心悸，心慌，胸闷后停服，期间没有做任何缓解措施，停服第九天后得到缓解！看来保健品也不能按说明书的最大服用量长期服用呢。<br/>3. 我吃青蒿素保健品約半個月，血糖控制效果良好，之前三餐前都要打胰島素，吃了後我就沒再打。我相信如果有青蒿素針劑或藥粉效果應該會更好甚至治癒。】https://c.m.163.com/news/a/GCFFEJSA0511BKGA.html?spss=newsapp
@@ -146,13 +153,6 @@ We conducted a preliminary survey about the effects of artemisinin supplements a
 `@miles 12/13/2021 1:57 PM (UTC)`
 
 13/12/2021 MV "Hcoin To the Moon" Hits #1 🥇on 26 Countries' iTunes Top Music Video Charts on 4th Day of Launch! Miracle continues…….🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, USA, Taiwan, Japan, Russia, France, UK, Australia, Canada, Singapore, Macau, New Zealand, Thailand, Cambodia, Laos, Netherlands, Italy, Sweden, Philippines, Malaysia, Finland, Greece, Malta, Portugal, Fiji, Latvia!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1750517/<br/><br/>12月13号，MV版Hcoin To the Moon上线第4天位列26国iTunes热门MV榜首🥇！继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港，美国，台湾，日本，俄罗斯，法国，英国，澳大利亚，加拿大，新加坡，澳门，新西兰, 泰国，柬埔寨，老挝，荷兰， 意大利，瑞典，菲律宾， 马来西亚，芬兰，希腊，马耳他，葡萄牙， 斐济，拉脱维亚的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏
-
----
-
-`@miles 12/13/2021 11:54 AM (UTC)`
-
-伊维菌素于 1973 年首次发现，2015 年获得诺贝尔奖。是什么让这种药物如此非凡？看完这段关于伊维菌素历史的精彩视频后，问问自己为什么FDA和CDC不遗余力地抛弃这种获得诺贝尔奖的神奇药物？为什么要阻止医生使用它来挽救生命？<br/><br/>First discovered in 1973, Ivermectin won the Nobel Prize in 2015. What makes this drug so extraordinary? After watching this excellent video on the history of Ivermectin , ask yourself why the FDA and CDC went out of their way to trash this Nobel Prize-winning miraculous drug? Why prevent doctors from using it to potentially save lives?
-![img](https://media.gettr.com/group37/origin/2021/12/13/11/1751b15e-4a1c-9c46-9881-8835b17e21e6/out.jpg)
 
 ---
 
