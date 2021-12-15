@@ -2,31 +2,45 @@
 ---
 
 
-## 有声|耐人玩味：伊维菌素为什么被阻止治疗新冠病毒
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1757214/)
+## 伊朗发布标有多个打击目标的以色列地图
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1757229/)
 
-配音：香草山美食部 – 玫瑰园
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-2021年12月12日，文贵先生发布一则盖文与视频透露，被发现近50年的伊维菌素，曾于2015年获得诺贝尔奖。它是被发现于自然界并衍生出来的，具备多功能性及安全性。几十年来被广泛应用，其安全性已得到全世界认可。对世界卫生健康领域发挥了有益影响，被称为神奇的药物，世卫组织已将其列入必备药物清单。
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-视频中讲述了伊维菌素的发展历史，特别是2019年新冠病毒肆虐全球，促使医生和研究人员调查现有已开发药物，注意力落在伊维菌素抗病毒的潜在用途上，发现它可以在病毒和变异中发挥巨大作用。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/61b9d718203027118d7c2887.jpg)
 
-此盖文立刻引发热议。一方面，伊维菌素如早被列入新冠病毒可用疗法，FDA紧急使用授权的疫苗就不会被通过，因为紧急授权仅适用于没有可用的疗法时。另一方面，如果伊维菌素没被压制，中共释放病毒进而引入疫苗降低人口，达到其全球独裁统治的邪恶计划将不会得逞。
 
-文字版原文：[耐人玩味：伊维菌素为什么被阻止治疗新冠病毒](https://gnews.org/zh-hans/1754680/)
+ 
+图片来源: Reuters / Iranian Army;
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
 
-![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+#### 整理/编辑 ：小红帽
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+**根据RT新闻12月15日报道，伊朗决定用视觉材料来加强其对宿敌以色列的传统威胁，并公布了一张犹太国家的地图。地图上标有德黑兰为回应其敌人的侵略而可能打击的众多目标。**
+
+周二，官方英文报纸《德黑兰时报》刊登了一篇文章，标题为 “只要有一个错误的举动！”。
+
+该文章的作者说：“以色列加强对伊朗的军事威胁似乎表明，犹太复国主义政权已经忘记了，伊朗完全有能力从任何地方打击他们”。
+
+该警告的旁边是一张以色列地图，上面覆盖着红色图钉，象征着伊朗导弹可能打击的目标。
+
+文章还引用了伊朗武装部队总参谋长穆罕默德·巴盖里（Mohammad Bagheri）少将的话，他坚称 “我们的部队从未低估过敌人的威胁，并为战略领域中最小的威胁做好了准备。”
+
+巴盖里坚持认为，伊朗在2020年1月对伊拉克西部的一个美国基地进行弹道导弹袭击，以及2019年6月在霍尔木兹海峡上空击落一架美国“全球鹰”无人机，已经证明了德黑兰的能力。
+
+《德黑兰时报》指出，随着德黑兰与世界大国之间恢复具有里程碑意义的2015年伊朗核协议谈判–该谈判在维也纳中断后重新开始，以色列加强了其活动。
+
+新闻来源：[Iran releases Israel map with multiple targets marked — RT World News](https://www.rt.com/news/543262-iran-map-targets-israel/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

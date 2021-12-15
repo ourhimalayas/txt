@@ -2,41 +2,136 @@
 ---
 
 
-## 真实与虚假的中共国
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1756731/)
+## 干掉共产党以后中国必须三个独立
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1756921/)
 
-翻译：七龙珠
+[https://gtv.org/video/id=61b8dc47a68b4f4b28e86ca3](https://gtv.org/video/id=61b8dc47a68b4f4b28e86ca3)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕截图-2021-12-15-115230.jpg)图片来源 Google.com
+这你要看到孙中山、李大钊、张国涛、共产党、袁世凯、蔡锷
+Tienes que ver a Sun Zhongshan, Li Dazhao, Zhang Guotao, el PCCh, Yuen Shikai, Cai E
 
-来自ABC报纸Guy-Sorman的评论：“中共国的共产党领导人正在利用我们对真实中共国的不了解，玩弄异国情调。习近平试图说服我们，中国人不知道上帝是谁，也不知道自由是什么，而且有许多西方人相信这种无稽之谈。”
+从1912年到1949年这个中间的变化
+Los cambios que tuvieron desde el año 1912 hasta 1949
 
-共产党领导人为西方人设置了一个陷阱，而西方人已经落入陷阱。这个陷阱可以追溯到1949年毛泽东和他的部队在苏联的帮助下以武力夺取政权的开始。自那次政变以来，中国人民从未被要求对共产党的合法性发表意见，因为中共国唯一的选举是在党内进行的，事先被操纵，而不是在民众中进行。
+我们要干掉了大清朝就共产党
+Debemos destruir el Imperio del Gran Qing, sólo el PCCh
 
-从那时起，党的领导人就一直代表中国人民，党代表中共国。这种相同的洗脑方式，每天不仅在中共国内部宣传，也不停的在西方国家宣传中重复。问题就在这儿：西方人尽然相信这个观点。
+绝不允许再出现天真的孙中山
+No se permitirá que aparezca otro inocente Sun Zhongshan
 
-中国人更加畏惧，表现的方式有：私人领域越来越小，不参与政治，麻木充实自己。因此，中国人，包括共产党员，知道党不是中国，但他们接受它，因为当局政权保证他们暂时的公民安全和提高生活水平的希望。
+也不允许说炮制什么这样那样的, 蒋介石、国民党、辛亥革命等
+Tampoco se permite formular de ninguna manera, Jiang Jieshi, Kuomintang y la Revolución de Xinghai
 
-这是中共和中国人之间的隐性契约。这种契约的受害者是自由精神、持不同政见者、少数民族，如藏族和维吾尔族，以及异见者；自1949年以来，中共国文明显然是个人主义的，因为每个艺术家都是被共产党遏制的个人主义者。从那时起，它就被类似于苏联模式的社会主义现实主义的宣传所取代，永远与中共宣传中的美妙抽象性相反。更糟糕的是，在1966年至1976年的所谓“文化大革命”期间，正宗的中国历史遗产基本被摧毁。时日至今，这种破坏仍在继续，正如在北京城可以看到的那样，不合格的建筑和城市公路毁掉了皇宫周围仅存的老区。共产党的特点是蔑视古代世界的文化遗产、艺术人才、扭曲审美。所有这些，中国人都知道，也都经历过，在受教育程度较高的人中敢怒不敢言。
+这一切我跟你说根本不, 不允许
+Todo esto, yo te digo que no se permite
 
-一个在中共国的中国人别无选择，只能尊重共产党的仪式规则，这是可以理解的。西方人不受同样的约束，但他们心甘情愿地服从这些约束，这是很可笑的，而现在是时候走出这个陷阱了，大声说出来，因为我们有自由可以这样做，中国不是中共的，中共也不代表中国人。我对中国的绘画、文学、音乐、舞蹈、歌曲和建筑以及组成中国的不同民族都非常钦佩。这批作品在西方鲜为人知，在博物馆中也鲜有代表（除了在台湾，那里保存着真正的永恒的中国），与西方艺术不相上下。诗歌和文学的情况也是如此。西方人可以而且应该更多地了解中国文明和它众多的宗教，这些宗教自1949年以来一直都在被慢慢灭绝当中。
+我们会秒杀一切上来想夺取政权
+Nosotros mataremos en un segundo todo el que quiera tomar el régimen
 
-自1949年以来，共产党政权给这个文明社会带来了什么？什么都没有。它从这个文明中带走了什么？一切都有可能。中国人民及社会文明与执政党之间的这种区别，将产生实际的后果。西方领导人和商人将继续他们与中共领导人的关系，因为这是他们之间的物质利益，但他们应该永远记住，并提醒他们的官方对话者，人民是永恒的，政治制度是暂时的。
+然后就诞生了共产党, 来个苏维埃
+Entonces nació el Partido Comunista, vino un República Soviética de China
 
-美国政府在即将举行的北京冬奥会上，刚刚给出了一个很好的例子，说明了共产党政权和人民之间的这种区别。美国将不派任何官方外交代表，但美国运动员将参加这些运动会，与中国人民分享。这种区别似乎很微妙，但是共产党领导人他们很愤怒，可能被煽动的还有中国人民，希望中国人能看懂这种区别，欧洲联盟也将采取同样的策略。
+你很有可能美国各国各政党派去一个什么新的什么党
+Es muy probable que envíe un nuevo partido de varios partidos políticos en los Estados Unidos
 
-简而言之，我的座右铭是：爱中国，无视中共。这不正是西方对苏联的态度吗？我们非常清楚，斯大林既不代表俄罗斯人民，也不代表俄罗斯文明，但安德烈-萨哈罗夫和亚历山大-索尔仁尼琴却代表了他们的人民。今天，我们知道，普京也不代表俄罗斯文明和俄罗斯人民，我们也相应地采取行动。
+背后是他们的力量控制中国人民
+Detrás está su poder para controlar al pueblo chino
 
-但中共国不是这样，中共国的共产党领导人利用我们对真实中国的无知，打出“异国情调”的牌。习近平试图说服我们，中国人不知道上帝是谁，也不知道自由是什么。而有许多西方人彻底相信了这样的胡言乱语。习近平应该向我们解释，为什么数以百万计的中国佛教徒、基督徒和道教徒他们秘密聚会祈祷，为什么2010年诺贝尔和平奖得主刘晓波会死在监狱里，因为他写道，中国人非常清楚什么是民主，并希望有民主。
+我们未来一定会让全世界你没有任何选择
+Definitivamente en el futuro no te dejaremos ninguna opción en el mundo
 
-新闻来源：[abc.es] *[La verdadera China y la falsa](https://www.abc.es/opinion/abci-sorman-verdadera-china-y-falsa-202112130026_noticia.html)*
+中国人一人一票
+Un voto por cada chino
+选出我们的政权
+Para escoger nuestro régimen
+
+共产党没了之后的中国
+El después de China será sin el PCCh
+
+一定不会成为军阀割据
+No se convertirá en un régimen separatista de los caudillos
+
+台湾、香港、新疆、西藏、包括广东
+Taiwán, Hongkong, Xinjiang, Tíbet, incluyendo Guangdong
+
+我们一定要叫
+Nosotros debemos
+
+大家知道一个新中国联邦制
+Hacer saber a todos un sistema del Nuevo Estado Federal de China
+
+这是一定的
+Esto es seguro
+
+这个过程一定会发生的
+Este proceso seguro sucederá
+
+就是中间这个过程又会再来
+Sólo que durante este proceso volverá a pasar
+
+但我们就是杜绝再有一个所谓的苏维埃共产党
+Pero nosotros le pondremos el fin para que no haya otro supuesto Partido Comunista Soviético
+
+骗取中国人民的政权
+Defraudando el poder del pueblo chino
+
+忽悠中国人民说给你们美国式的民主生活
+Vacilar al pueblo chino diciendo que te dará una vida democrática al estilo estadounidense
+
+所以说当等到下一步共产党被灭以后
+Por eso, el próximo paso luego de extinguir el PCCh
+
+我们要中国人必须三个独立
+Nosotros haremos que los chinos tengan 3 cosas independientes
+
+人格、宗教、信仰、法律
+Personalidad, religión, creencia y ley
+
+这一块儿要独立
+Todo esto hay que independizarlo
+
+这咱算一条
+Esto lo contamos como el primero
+
+第二条就中国人的思维
+El segundo, la forma de pensar de los chinos
+
+和说话的言语自由, 它必须独立
+Y la libertad de expresión, debe ser independiente
+
+第三个咱们中国人要记住
+El tercero, nosotros los chinos debemos recordar
+
+要跟国际上所有的关系
+Internacionalmente todas las relaciones
+
+中国人国家必须是独立
+El país de los chinos debe ser independiente
+
+不能受任何黑暗势力摆布包括这个华尔街什么好莱坞
+No puede ser manipulado por ninguna fuerza oscura, incluyendo el Wall Street o Hollywood
 
 * * *
 
-*审核：Aries的星
-校对：阿伯塔
-发布：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-2.jpeg)
+日期：12/13/2021
+原视频标题：干掉共产党以后中国必须三个独立
+Después de destruir el Partido Comunista, China debe tener tres cosas independientes
+
+原视频日期：12/11/2021
+原视频网址：[** https://gettr.com/post/pjed5p3e4c**](https://gettr.com/post/pjed5p3e4c)
+任务编号：KC338(3183)
+视频时间段：0:00-02:01
+西听校：洛杉矶盘古农场-小文萱
+翻译：洛杉矶盘古农场-霙霙（文霙）
+翻译终校：洛杉矶盘古农场-小文萱
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布 ：洛杉矶盘古农场-恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

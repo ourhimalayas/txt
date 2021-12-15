@@ -2,71 +2,122 @@
 ---
 
 
-## 马龙博士预测辉瑞隐瞒不利影响将面临重大国际丑闻
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1756956/)
+## 美国中期选举后，十招出手对付中共
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1756979/)
 
-翻译： Jenny Ball
+[https://gtv.org/video/id=61b8dcaea68b4f4b28e86cb8](https://gtv.org/video/id=61b8dcaea68b4f4b28e86cb8)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-776.png)图片来源 : lifesitenews.com
+我说2022年WTO基本结束
+Digo que la OMC básicamente terminará en 2022
 
-“我们不知道 FDA 和辉瑞还向公众隐瞒了什么，但我们知道，他们已经不遗余力地向美国公众隐瞒这些信息。”
+2022年年底前
+Antes de finales del año 2022
 
-生活新闻（LifeSiteNews）——mRNA 疫苗技术的原始发明者，罗伯特·马龙（Robert Malone）博士，在读了一篇询问辉瑞是否已将其冠状病毒疫苗的安全风险正式告知新西兰政府的文章后，在生活新闻发表评论，指出他想知道这家公司是否将面临“重大国际丑闻”，**如果辉瑞公司在获得疫苗伤害责任保护的同时，对政府隐瞒副作用，这一丑闻就会发生。**
+你们会听到这个消息
+Escucharán esta noticia
 
-马龙博士在 Twitter 上宣传了营养师盖伊·哈查德 (Guy Hatchard) 在最近成立的新西兰新闻和意见网站上发表的一篇文章后，发表了这些评论。哈查德报道称，美国法院已命令 FDA/辉瑞公司公布一份机密文件，该文件显示，截至今年 2 月，他们已经意识到该疫苗可能存在的大量副作用，其中许多是非常危险的。在世界多个国家/地区接种疫苗后，除了 158,893 起严重不良事件外，还报告了 1,200 多人死亡。
+2023年5月份以前
+Antes de mayo de 2023
 
-根据生活新闻对此文件的报道，“在报告的不良事件中，约有 ：
+SWIFT很有可能也可能是下几个月
+Swift probablemente o podría ser en los próximos meses
 
-**25,957 ****例神经系统疾病，**
+2023年5月份以前应该能停, 它跟美国的中期选举有绝对的关系
+Antes de mayo de 2023 posiblemente pueda paralizarse, absolutamente tiene relación con las elecciones de medio mandato de EE. UU
 
-**17,283 ****例肌肉骨骼和结缔组织疾病，**
+我们保守的说, 就美国中期明年年底10月份选举完
+De manera conservadora, decimos que las elecciones se finalizarán en octubre a finales del próximo año
 
-**14,096 ****例胃肠道疾病，**
+一定是上去十招, 这十招绝对会打出来
+Debe haber diez trucos para subir, estos trucos definitivamente saldrán
 
-**8,848 ****例呼吸、胸和纵隔疾病，**
+那时候你会看到班农大师
+En ese momento verás al maestro Bannon
 
-**8,476 ****例皮肤和皮下组织疾病，**
+我们这位战友, 还有我们背后的这些国防的力量的战友
+Nuestro compañero luchador, así como detrás de nosotros están los compañeros luchadores de la fuerza de defensa
 
-**61 ****感染和疾病**。”
+都会发挥绝对的力量
+Manifestarán la fuerza absoluta
 
-正如哈查德为新西兰指出的，许多副作用列在这份保密文件中，但现在公布的辉瑞早期的报告，并未将疫苗可能的副作用列在官方清单上。他解释说，这份有缺陷的清单，**甚至有助于阻止许多副作用的发现，**因为有副作用的患者被医务人员拒之门外，**因为他们的副作用不在疫苗的官方副作用清单上**。
+绝对振臂高呼, 没有任何人
+Ninguna persona, absolutamente levantarán los brazos y gritarán fuertemente
+它绝对是十招
+Seguramente son diez trucos
 
-因此，现在这份披露的文件引出了许多问题。哈查德指出，“所报告的副作用在新西兰推出疫苗之前。该报告由辉瑞公司于 2021 年 4 月 30 日定稿。”那么，要问的是，辉瑞是否“在早期，我们政府制定普遍疫苗接种计划之前，向我们的政府提供了这些信息？”
+现在这十招都在制定中
+Ahora estos trucos están en proceso de desarrollo
 
-哈查德继续说：
+第一个就是把它SWIFT停了
+El primero es paralizar al Swift
 
-如果是这样，结果应该与我们的医疗专业人员、政治家和公众分享。辉瑞现在在这份 38 页的文件中发布的 100 多种新列出的新不良事件类型中的许多，都对健康构成了长期风险。直到最近，该文件仍被辉瑞公司扣留，辉瑞坚称应该对其保密。这很有可能会导致更多新西兰人长期受伤。
+然后把这个WTO停了
+También a la OMC
 
-马龙博士在对哈查德报告发表的评论中透露，他也对新发布的数据感到担忧。
+世界卫生组织肯定给它踢出去
+La Organización Mundial de la Salud debe echarlo
 
-“[辉瑞]披露的这一信息特别令人担忧的是，这些信息来自美国法院已下令每月发布的多批文件中的第一批，”马龙博士写道。
+这是联合国马上就要宣布, 联合国不能是它一家代表
+Pronto será el anuncio de la ONU, y la ONU no puede ser solo él el representante
 
-“我们不知道 FDA 和辉瑞还向公众隐瞒了什么，但我们知道，他们已经不遗余力地向美国公众隐瞒这些信息。”
+或者是不让它代表中国
+O no puede ser representado por China
 
-马龙博士接着更具体地评论哈查德的报告说：“哈查德的这篇文章……提出了这样一种前景，即这些安全数据，不仅对美国公众隐瞒，而且，可能也对官方隐瞒了，包括新西兰在内的其他政府的监管机构。”
+希望那个时候习太阳还活着
+Espero que en aquel tiempo el sol, Xi sigue vivo
 
-“如果情况确实如此，那么我们就有一个重大的国际丑闻，辉瑞在向各国政府出售疫苗之前，**坚持要求提供赔偿保护**，但可能未能披露所有已知的公共卫生风险，**他们坚持要求其他政府放弃其受伤公民起诉辉瑞公司因疫苗引起的损害的权利**。”
+它的太阳还真能发光
+Su sol pueda seguir brillando
 
-小罗伯特·肯尼迪 (Robert Kennedy, Jr.) 是当前冠状病毒疫苗和普及疫苗接种的强烈批评者，他最近在接受意大利组织“伊波克拉特组织”（ IppocrateOrg ）采访时，讨论了掩盖疫苗副作用的问题。
+说老实话
+Hablando sinceramente
 
-“记住，”他接着说，“这些疫苗是零责任的。”无论这些公司多么“恣意妄为”，无论疫苗损害多么严重，“你都不能起诉他们”。
+我有50%以上
+Tengo más del 50%
 
-“你可以起诉这些公司的唯一方法是，如果你能证明**他们知道他们的产品造成了你遭受的这种特殊伤害**，**并且，他们没有告诉人们这件事**，”他继续道。
+原来是50%以下
+Antes era menos del 50%
 
-这条规则鼓励这些制药公司“尽可能少地了解”他们产品的副作用，以保护他们自己。肯尼迪看到有些产品“经过非常糟糕的测试，并且正在被强制执行”。为了“行使我们自己的权利”，例如：旅行和受教育，“我们被命令采取某种产品”。
+我认为习是能撑过2023到2025
+Pensaba que Xi puede resistir de 2023 al 2025
+现在超过50%, 我认为它根本到不了2025
+Ahora supera el 50%, creo que él no podrá llegar al 2025
 
-“这确实是暴政的本质，”约翰·肯尼迪总统的侄子总结道。
+共产党100%过不了2025
+El Partido Comunista 100% no pasará el 2025
 
-他认为“**政府正在与公司合谋”掩盖这些强制疫苗的副作用**。
+100%, 我没有说过这话
+100%, nunca había dicho esto
 
-新闻来源 : [lifesitenews.com][mRNA pioneer predicts ‘major international scandal’ for Pfizer if they hid adverse effects from public](https://www.lifesitenews.com/blogs/dr-robert-malone-predicts-international-scandal-if-pfizer/)
+这次我有100%信心它过不了2025
+Esta vez tengo el 100% de confianza que no pasará el 2025
+
+这十招所有的决策就包含这个
+Todas las decisiones de estos diez trucos incluyen este
+
+谢谢
+Gracias
 
 * * *
 
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-2.jpeg)
+日期：12/14/2021
+原视频标题：美国中期选举后，十招出手对付中共
+Después de las elecciones de medio mandato en los Estados Unidos, habrá diez trucos para lidiar con el PCCh
+原视频日期：12/11/2021
+原视频网址：[** https://gettr.com/post/pje2ska5b2**](https://gettr.com/post/pje2ska5b2)
+任务编号：KC339(3184)
+视频时间段：0:00-01:34
+西听校：洛杉矶盘古农场-霙霙（文霙）
+翻译：洛杉矶盘古农场-小文萱
+翻译终校：洛杉矶盘古农场-霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场- 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
