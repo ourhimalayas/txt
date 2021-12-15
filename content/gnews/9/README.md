@@ -2,34 +2,30 @@
 ---
 
 
-## 埃隆-马斯克反对强制疫苗接种政策
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1757653/)
+## 外交抵制2022北京冬奥会究竟有多重要
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1757706/)
 
-作者：纽约香草山健身部 – Ivy001
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月13日，埃隆-马斯克在采访时明确表示，他反对强迫民众接种新冠疫苗的做法。他还强调，这种强迫事件尤其不应该发生在美国。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/8-19.jpg)
-马斯克提到，对于新冠疫苗的接种工作，政府可以采取鼓励和说服的方法，但绝不应该用疫苗强制令来迫使人们接种新冠疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-639.png)
+翻译：GoergeC（乔治）
+校对：zzballack
+上传：追着曙光跑
 
-有报道显示，美国目前在军队和医院中实行了严格的新冠疫苗强制令。此外，学校、政府雇员，以及政府承包商也将接种新冠疫苗作为入学或入职的硬性指标。
+据《BBC》 12月14日报道，近年来，虽然国际体育界一直在持续关注人权问题，但很少有大型赛事的主办方像北京那样引起如此多的争议。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Image-2021-12-16-at-00.13.20.jpeg)图片来源：原新闻
+首先，由于中共被指控对维吾尔少数民族实施暴行，2022冬奥会已经受到美国、澳大利亚和英国等国的官方外交抵制。人权组织和西方政府指责中共在新疆地区实施种族灭绝。然而，中共对此予以否认，声称那里的拘留营是为了对维吾尔人和其他穆斯林进行“再教育”。
 
-对此，马斯克声明，强迫民众接种新冠疫苗，或是将疫苗接种与职位或学籍挂钩，这样的事情不应该发生在美国。马斯克也呼吁道，美国政府应该放宽对新冠病毒的限制并重新开放美国，同时，政府更应该把自由还给老百姓。
+其次，打压香港政治自由和亲民主的抗议者，以及女子网球运动员彭帅的性侵事件，也加剧了中共和世界的紧张关系。最近，彭帅在指控中共前政治局常委张高丽曾对她性侵后从公众视野中消失了。尽管中共当局批评外界对彭帅案件 “恶意猜测”，但西方仍然非常担忧她的人身安全。
 
-参考链接:[Elon Musk: “I Am Against Forcing People To Be Vaccinated; Not Something We Should Do In America”](https://www.zerohedge.com/covid-19/elon-musk-i-am-against-forcing-people-be-vaccinated-not-something-we-should-do-america)
+对于不会派官方代表参加2022北京奥运会的西方政府来说，这一举措是一种相对容易的谴责方式，同时避免了因为全面抵制阻止运动员参赛，引发更大争议。三年前有过类似事件，当时在前俄罗斯间谍毒杀案（Salisbury Novichok ）发生后，包括英国在内的一些欧洲国家宣布对2018年的俄罗斯足球世界杯进行外交抵制。派遣官员到北京参加奥运会的风险在于，这将不可避免地被视为支持习近平政权，认为是中共的共犯。而对习近平来说，外界抵制北京冬奥会将有损其威望。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+中共当局一如既往否认体育明星对其的谴责。波士顿凯尔特人队的篮球明星埃内斯·坎特（Enes Kanter ）一直在直言不讳地批评中共。今年10月，他批评习近平，并表示支持西藏独立运动。此举遭到了中共的强烈反对，中共的社交媒体平台微博将其名字屏蔽。同时，凯尔特人队的比赛也被中共媒体取消。类似情况也发生在前阿森纳中场梅苏特·厄齐尔（Mesut Ozil）身上，他在为维吾尔人积极发声后，其所在球队阿森纳的比赛于2019年被中共电视台撤下。
 
-总编：Irene木木
-编辑：Kathy文艺
-校正/发稿：Fei797
+许多人权团体恳请国际奥委会更换2022冬奥会的举办地。但是由于距离比赛的开幕时间已经所剩无几，更换举办地已不太可能。此前，尽管其主席托马斯·巴赫（Thomas Bach）与曾参加过三届奥运会的彭帅进行了视频通话，以缓解各方的担忧。但是人权观察组织最近指控国际奥委会与中共有“勾兑”，国际奥委会否认了这一说法，并为其使用“静默外交（quiet diplomacy）”进行了辩护。尽管中共的人权侵犯证据越来越多，但是当被问及中共的人权记录如何与奥运会价值观相容时，其任职时间最长的董事会成员迪克·庞德（Dick Pound）表示，他不后悔选择北京作为东道主，而且 “不知道”有所谓的暴行。他说：“国际奥委会没有实现政治变革的责任。当我们将奥运会授予一个国家时，并不表明我们支持该国的政治目标。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+虽然选择北京主办奥运会不是运动员们的选择，但可以肯定的是，随着地缘政治紧张局势的加剧，他们将面临去北京参赛是否正确的新问题，而且要决定到达北京后该做什么。因此，许多即将参赛的运动员们感到他们被置于两难境地，很难做出抉择。
+
+新闻来源：[How much does the diplomatic boycott of Beijing 2022 matter?](https://www.bbc.com/news/world-59646231)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

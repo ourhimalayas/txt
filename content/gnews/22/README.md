@@ -2,37 +2,30 @@
 ---
 
 
-## 脸书辩称其言论审查仅为第三方意见陈述
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1757538/)
+## 在中共舞台上卖力表演的红白脸们
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1757605/)
 
-作者：纽约香草山信息部- 诺雅
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月13日，据媒体消息显示，更名为Meta的脸书社交媒体平台在应对一场诽谤诉讼的法律文件中承认，对于该平台将非企业媒体内容列入至黑名单的“事实审查”行为，这仅仅是脸书基于各类意见所给出的标签，平台并没有对其中的内容进行任何真正的事实核查。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-15-下午10.20.11.png)
-据了解，记者约翰-斯托瑟此前在脸书上发表了一条关于气候变化的信息，随后该信息却被脸书标记为“虚假和误导”。因此，斯托瑟以诽谤罪起诉了脸书公司。相关资料表示，在美国的法律体系中，倘若只是提出“意见”，当事人则不受诽谤索赔的限制。为此，脸书在应诉文件中辩称，相关信息下的这些标签只是一些平台提供的“受保护的意见”。
+#### 作者：东京樱花团丨阿恩
 
-另外，脸书公司还承认，该平台一直与来自多国的、所谓受认证的“事实核查员”合作——脸书依靠这些第三方团体来审查和评价在脸书、Instagram和WhatsApp上发布的信息的准确性。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/卖力.jpg)[*图片来源*](https://www.thestandnews.com/politics/%E7%B4%AB%E8%8D%8A%E9%BB%A8%E5%A4%9A%E7%B6%AD%E6%96%B0%E8%81%9E%E6%92%B0%E6%96%87-%E6%89%B9%E8%A9%95%E6%B8%AF%E5%BA%9C%E7%88%AD%E5%8F%96%E9%80%9A%E9%97%9C%E6%9C%AA%E7%85%A7%E9%A1%A7%E5%9F%BA%E5%B1%A4%E9%9C%80%E8%A6%81-%E5%90%91%E6%94%BF%E5%95%86%E7%95%8C%E5%88%A9%E7%9B%8A%E5%82%BE%E6%96%9C)
 
-对此，评论提及，脸书的声明使人们进一步质疑社交媒体平台中的所谓“事实核查”的过程，加之脸书此前一直打击并封锁有关新冠病毒的真实信息，第三方宣传团体被允许在“事实核查”中发表意见且无需引用任何事实的做法也显得疑点重重。
+中共迫切管制香港而操纵港府强推逃犯条例，引发旷日持久的反逃犯条例运动。运动在警暴和国安暗捕的残酷镇压下愈演愈烈，中共试图在香港散播病毒平息民主运动，事与愿违后中共彻底露出狰狞，代表14亿中国人制定港区国安恶法，并篡改香港的选举制度，在全球媒体的镜头下肆无忌惮地“依法治港”，大量异见人士和民主斗士被抓捕被囚禁，为民发声的组织、机构和社团被取缔，律政司更以言入罪，声称言论不尊重中共领导地位、憎恨警方和港府的即可能犯法。如今香港的街头抗争运动已消失，民选的区域议员不愿违背竞选誓言向中共效忠，港府就带风向恐吓，对不效忠的区议员追讨薪资和资助，在今届立法会竞选的前期，众多民选区议员被迫辞职，替港人发声的渠道彻底被切断。
 
-参考链接：
-1）[https://gettr.com/post/pjlo34254e](https://gettr.com/post/pjlo34254e)
-2）[Facebook Just Admitted in Court That its ‘Fact-Checks’ Are Just Third Party ‘Opinions’.](https://thenationalpulse.com/news/facebook-just-admitted-in-court-that-its-fact-checks-are-just-third-party-opinions/)
-3）[BOMBSHELL: In court filing, Facebook admits ‘fact checks’ are nothing more than opinion](https://wattsupwiththat.com/2021/12/09/bombshell-in-court-filing-facebook-admits-fact-checks-are-nothing-more-than-opinion/)
+如今香港政界可谓清一色的爱党者，立法会自称法案和预案的通过率火速提高，港府也欣慰施政畅通无阻，成就感倍增。不过中共总喜欢万邦来朝，对内当然是各界和各党派都要归顺效忠于它，而不是如香港的泛民派系般不齿与中共同台。这个曾经是香港最大的党派影响了过半数的香港市民，泛民派的不效忠可以等同于大部分香港人对中共的不妥协。港府为鼓吹此次中共主导的立法会选举，不惜出动高官拍宣传片，不惜花费公币印刷精美的催票宣传品邮寄到千家万户，行政长官不断在公开场合慈眉善目地提醒市民尽义务积极投票，保安局长则斩钉截铁地恐吓市民勿煽动投白票。正当建制派庆贺悉数入围的时候，多次撰文连哄带吓地要求泛民党派应参选的全国侨联副主席卢文称，如建制派全胜取 90 席有违中央要求，将陷新选制于不义，低投票率极可能被定性為否定新选制。
 
-![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+商界方面也被中共蹂躏得意志消沉。港府以中共病毒为由闭港封关日久，为中共输送利益的能力日渐减弱，中共独裁香港不久，商界财团的土地和资产已被中共凶狠地收割了一把，为安抚战战兢兢中的商界，港府推出北区都会规划，采取资源共享的方式与商界联手发展，哄得财团领头羊纷纷在媒体发布感言憧憬美好未来。
 
-总编：文真
-编辑：文特
-校正/发稿：呼吸的雾霾（文小呼吸）
+正在一切都在既定计划进行的时候，由爱党爱国新香港人组成的“紫荆党”突然杀出，打着为基层某利益的旗号向港府发起攻势，称争取通关向政商界利益倾斜，未照顾基层需要。据悉，港府力推的通关计划，在初期优先因公务和商务而有迫切需要前往内地的人士，这些人士过往也属豁免强制检疫组别。这场内讧打破了香港社会短暂的政治宁静，营造了港人在中共集权管制下仍有民生反馈渠道的假象。紫荆党在文章中列出中共独裁者的愚民承诺，言下之意是港府的施政与中共独裁者背道而驰，这么严重的指控与危害国家安全可谓不相伯仲。港府和亲中党派都是中共的走狗，它们在中共独裁的舞台上相互撕咬，香港人只不过是台下看戏的吃瓜群众罢了。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+中共的伎俩愚弄了防火墙内的中国同胞七十余年，在网络科技发达的当下，其丑恶已早已无所遁形，无论再卖力的红白脸表演，也无法掩饰中共邪恶的用意。
+
+爆料革命新中国联邦的成员不断将中共的假恶丑向世界传递，无论是国内还是隐藏在国际的中共势力，均会被一一昭示于众，期盼更多的人加入新中国联邦的各农场，一起见证这场史无前例的灭共大战。
+
+资料来源：[**紫荆党《多维新闻》撰文批评港府争取通关未照顾基层需要  向政商界利益倾斜》**](https://www.thestandnews.com/politics/%E7%B4%AB%E8%8D%8A%E9%BB%A8%E5%A4%9A%E7%B6%AD%E6%96%B0%E8%81%9E%E6%92%B0%E6%96%87-%E6%89%B9%E8%A9%95%E6%B8%AF%E5%BA%9C%E7%88%AD%E5%8F%96%E9%80%9A%E9%97%9C%E6%9C%AA%E7%85%A7%E9%A1%A7%E5%9F%BA%E5%B1%A4%E9%9C%80%E8%A6%81-%E5%90%91%E6%94%BF%E5%95%86%E7%95%8C%E5%88%A9%E7%9B%8A%E5%82%BE%E6%96%9C)
+
+*校对：东京樱花团 / 文小白
+发布：东京樱花团 / 野猫*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

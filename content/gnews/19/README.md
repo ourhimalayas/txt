@@ -2,18 +2,20 @@
 ---
 
 
-## 八成奥米克戎病例来自完全接种者
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1757544/)
+## 埃隆-马斯克反对强制疫苗接种政策
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1757653/)
 
-作者：MOS 翻译部 – 祈望明天会更好
+作者：纽约香草山健身部 – Ivy001
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月14日，据媒体消息显示，根据12月第一周发布的一份监测报告，美国疾病控制与预防中心CDC宣布，80% 的奥米克戎变种病毒感染病例来自已经完全接种过新冠疫苗的群体中，而仅有19%的病例发生在未接种疫苗的人群中。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/7-22.jpg)
-另据英国公共卫生部分析发现，新冠疫苗阻止新冠病毒传播的效力可能非常小。同时，英国政府科学顾问小组的会议记录中也发出警告表明，疫苗对阻止病毒继续传播的作用有限。
+12月13日，埃隆-马斯克在采访时明确表示，他反对强迫民众接种新冠疫苗的做法。他还强调，这种强迫事件尤其不应该发生在美国。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/8-19.jpg)
+马斯克提到，对于新冠疫苗的接种工作，政府可以采取鼓励和说服的方法，但绝不应该用疫苗强制令来迫使人们接种新冠疫苗。
 
-为此，英国公共管理和宪法事务委员会的主席威廉·拉格在一份声明中表示，整个大流行期间，政府反复声称会遵循科学依据，但当政府有机会站在科学立场上提供疫苗护照效用的证据时，政府却没有这样做。该委员会强调，此种情形下，政府在全国范围内推动疫苗护照的工作缺乏科学严谨性和实施证据。
+有报道显示，美国目前在军队和医院中实行了严格的新冠疫苗强制令。此外，学校、政府雇员，以及政府承包商也将接种新冠疫苗作为入学或入职的硬性指标。
 
-参考链接:[A Pandemic of the Vaccinated](https://thenationalpulse.com/news/a-pandemic-of-the-vaccinated/?utm_source=ground.news&amp;utm_medium=referral)
+对此，马斯克声明，强迫民众接种新冠疫苗，或是将疫苗接种与职位或学籍挂钩，这样的事情不应该发生在美国。马斯克也呼吁道，美国政府应该放宽对新冠病毒的限制并重新开放美国，同时，政府更应该把自由还给老百姓。
+
+参考链接:[Elon Musk: “I Am Against Forcing People To Be Vaccinated; Not Something We Should Do In America”](https://www.zerohedge.com/covid-19/elon-musk-i-am-against-forcing-people-be-vaccinated-not-something-we-should-do-america)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 

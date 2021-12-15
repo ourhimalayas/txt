@@ -2,48 +2,43 @@
 ---
 
 
-## 美国政府在新冠病毒首次爆发时已拥有“疫苗”的保密协议
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1757585/)
+## 德国奥拉夫·舒尔茨 (Olaf Scholz) 支持疫苗强制令但称自己为“未接种疫苗的总理”
+` Zero-Day【零时差】` [轉載自GNews](https://gnews.org/zh-hans/1757669/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Tom-Cotton-CPAC-640x3353-1.jpg)图片来源：beckernews.com
-就在中共政府开始为即将到来的新冠病毒大流行做准备时，美国政府与主要的“信使核糖核酸”(mRNA)疫苗制造商之一莫德纳(Moderna)达成了一项秘密协议。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/AD29C2F9-609D-4326-8E83-619E16A36138.jpeg)盖蒂图片社
+据布赖特巴特新闻网[彼得·卡德尔](https://www.breitbart.com/author/peter-caddle/)2021 年 12 月 15 日发文报道，德国新的左翼政治领袖奥拉夫·舒尔茨 (Olaf Scholz) 表示，尽管他支持强制接种疫苗，但他仍然是“未接种疫苗的总理”。
 
-美国国立卫生研究院(NIH)和莫德纳的保密协议是在2019年10月底和12月新冠病毒大流行席卷全球前几个月达成的。而2019年5月是新冠病毒在中共国产生的关键时期，本报告接下来将突出强调这一点。
+奥拉夫·舒尔茨 (Olaf Scholz) 声称，旨在应对中共病毒的新限制并未分裂国家，而且他也是“未接种疫苗的总理”，就像他代表已接种疫苗的德国人一样。
 
-“2019年5月，美国国立卫生研究院和莫德纳达成了一项‘研究合作协议’，以开发针对中东呼吸综合症冠状病毒(MERS-CoV）和尼帕病毒(Nipah virus)的候选疫苗。”公共市民组织(Public Citizen)的一项调查指出,“该项目主要是评估动物模型中的候选疫苗。美国国立卫生研究院在2020年1月13日——该机构和莫德纳敲定了他们的新型冠状病毒疫苗的设计的这一天——签署了一份该文件的修正案。该修正案被大幅删节，没有提到这个新的冠状病毒。然而，这种密切的关系表明，合同条款可能已被扩大，以适用于这个新项目。至少，这些条款可能对莫德纳新冠病毒疫苗(mRNA-1273)项目有指导意义。”
+尽管 舒尔茨 主张[强制](https://www.breitbart.com/europe/2021/12/02/merkel-announces-restrictions-on-unvaccinated-vote-on-making-jabs-compulsory/)要求全体人口接种 COVID 疫苗，并且，仅对未接种疫苗者实施封锁，但一位奥地利政治家将这一措施称为“新冠种族隔离制度”。
 
-美国国立卫生研究院和莫德纳的秘密协议与另一起事件非常接近：中共政府在2019年5月为即将到来的新冠病毒大流行进行的初步动员。
+在[接受](https://www.bild.de/bild-plus/politik/inland/politik-inland/olaf-scholz-ich-bin-auch-kanzler-der-ungeimpften-78514138.bild.html?jsRedirect)*Bild[采访](https://www.bild.de/bild-plus/politik/inland/politik-inland/olaf-scholz-ich-bin-auch-kanzler-der-ungeimpften-78514138.bild.html?jsRedirect)*时 ，舒尔茨敏锐地强调，尽管存在很多争议，但他并不认为德国因限制而出现分歧。
 
-“根据澳大利亚网络安全公司互联网2.0(Internet 2.0)的一份报告，在中国湖北省首次正式报告新型冠状病毒病例之前几个月，该省的聚合酶连锁反应（PCR）测试购买量激增。”《日经亚洲》(Nikkei Asia)报道，“根据该报告，2019年期间，湖北用于PCR测试的费用约为6740万元（按当前汇率计算为1050万美元），几乎是2018年总额的两倍，上升趋势始于5月。”
+舒尔茨告诉该报：“德国没有分裂！大多数市民自己接种了疫苗。还有更多人希望尽快这样做，因为他们已经克服了担忧。”他还声称：“在那些没有接种疫苗的人中，很少有人认为他们必须通过抗议游行来证明他们对接种疫苗的反抗。”
 
-然而，美国国立卫生研究院和莫德纳在冠状病毒的信使核糖核酸(mRNA）药物上合作了至少四年。只是在2019年5月才签订了保密协议。
+尽管过去两周[有数千人](https://www.welt.de/politik/deutschland/article235644794/Corona-Demos-in-Deutschland-Nicht-alle-verliefen-friedlich.html)参加了反对新措施的抗议活动，但总理还是发表了上述评论。
 
-“根据Axios(一家总部位于美国的新闻网站)获得的文件和公共市民组织(Public Citizen)的分析，美国国立卫生研究院可能拥有支撑莫德纳公司正在开
+其中[包括](https://www.dw.com/en/germany-torchlit-rally-against-covid-measures-in-saxony-prompts-outcry/a-60020777)在萨克森州卫生部长住所外举行的一场极具争议的抗议集会。
 
-发的一种领先的冠状病毒疫苗的知识产权。”2020年6月的Axios报告称。
+舒尔茨说：“我想把这个国家团结在一起。因此，我也是未接种疫苗者的校长。”“我想说服他们接种疫苗的要点。但是：有不同意见并不意味着分裂。我们也可以争论。我相信绝大多数没有接种疫苗的人都和我一样觉得这些抗议集会令人作呕。”
 
-为什么这点如此重要：因为联邦政府在这种疫苗中拥有实际的利益。如果该产品被证明是安全和有效的，它可以尝试使该疫苗成为一种免费或低成本的公共产品，并广泛分发。”报告补充道，“或者，联邦政府可以将所谓的信使核糖核酸(mRNA)“疫苗”作为一种政治工具来推进其议程，同时为大药厂提供一个法律不应有的“责任保护”。
+然而，当被问及是否会对全体人口实施强制疫苗接种时，肖尔茨表示，虽然最终要由议会决定，但他支持实施该措施。
 
-“美国政府可能共同拥有一种潜在的新冠病毒疫苗。”报告指出，“基于美国政府拥有所有权，如果专利被授予，至少有两项对疫苗至关重要的专利申请会将联邦科学家列为发明人。合作协议也支持政府对莫德纳新冠病毒疫苗(mRNA-1273)的所有权。”
+舒尔茨说：“作为议员，我将投票支持强制接种疫苗，因为它在法律上是允许的，而且在道德上是正确的，”“我们是一个绝大多数人都遵守法律的国家。我们在红灯处停下。我们尊重交通规则。不是因为警察到处检查我们。但是因为我们遵守这些规则是我们本性的一部分。”
 
-美国政府在发布联邦疫苗强制令时有记录在案的、可核实的利益冲突。它滥用法律来侵犯美国公民的权利，并有确保美国公民接种“疫苗”的非法律上的利益。这就可以解释联邦政府为什么欺骗美国人民，声称“疫苗”是“100%安全和有效的”，即使科学界每天都在揭穿它的错误主张。
+德国的邻国奥地利已经确认将实施该措施，那些在 2 月后仍未接种疫苗的人将[面临](https://www.breitbart.com/europe/2021/12/10/fears-new-austrian-law-could-be-used-to-imprison-unvaccinated-for-up-to-a-year/)巨额罚款和可能的监禁。
 
-简评：新冠疫情已经肆虐全球将近两年时间，人类的生活方式遭到了前所未有的改变。新冠病毒的起源已经被锁定在了中共武汉实验室，以福奇为首的美国医疗机构官员资助了武汉病毒研究所的功能增强实验，使新冠病毒更容易感染人已经成为不争的事实。本文揭秘的美国国立卫生研究院和莫德纳公司于2019年5月签订的合同，把这场灾难的焦点转向了疫苗的制造时间，即新冠病毒释放前，美国政府已经拥有了莫德纳疫苗的所有权和其相关知识产权。该疫苗是莫德纳公司与美国政府生物医学研究机构之间为期四年的合作成果。这又一次佐证了新中国联邦爆料革命情报的真实性和准确性——病毒是引子，疫苗才是真正的毒。否则，病毒还未“成功”释放的情况下，为什么美国国立卫生研究院和莫德纳公司要提前研究疫苗？如果病毒没有大规模扩散，造成社会恐慌，如何能够洗脑民众并利用疫苗强制接种来赚取巨额利润？
+编译/米拉娅
 
-这让我们进一步确认，给出接种疫苗意见的“权威机构”及“科学专家”，在这其中存在重大利益冲突，他们利用西方法律和民众的信任，欺骗大众以谋取暴利。随着中共病毒真相和毒疫苗真相不断被揭露，世界各国将加快推翻强制疫苗接种政策的脚步，黑暗势力与公权力的勾结将很快被揭穿，以新中国联邦为首的地球上的正义力量最终将拯救全人类。
+审阅/丘杰斯
 
-原文链接：[Secret Agreement Formed by US Government to Own ‘Vaccine’ During COVID-19’s First Origins](https://beckernews.com/secret-agreement-formed-by-us-government-to-own-vaccine-during-covid-19s-first-origins-43435/)
+上传/天赐良闻
 
-* * *
+英文原文作者：[彼得·卡德尔](https://www.breitbart.com/author/peter-caddle/)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+[伦敦](https://www.breitbart.com/europe/)[卫生](https://www.breitbart.com/health/)[/欧洲](https://www.breitbart.com/europe/)[政治](https://www.breitbart.com/politics/)[种族隔离](https://www.breitbart.com/tag/apartheid/)[冠状病毒](https://www.breitbart.com/tag/coronavirus/)[COVID-19](https://www.breitbart.com/tag/covid-19/)[欧盟](https://www.breitbart.com/tag/european-union/)[德国](https://www.breitbart.com/tag/germany/)[封锁](https://www.breitbart.com/tag/lockdown/)[强制疫苗接种](https://www.breitbart.com/tag/mandatory-vaccination/)[Olaf Scholz](https://www.breitbart.com/tag/olaf-scholz/)[SPD](https://www.breitbart.com/tag/spd/)[疫苗要求](https://www.breitbart.com/tag/vaccine-mandates/)
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+[Scholz ‘Chancellor of the Unvaccinated’ Despite Mandatory Vax Support](https://www.breitbart.com/europe/2021/12/15/germanys-scholz-calls-himself-chancellor-of-the-unvaccinated-despite-mandatory-vax-support/)
 
  
 
