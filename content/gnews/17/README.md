@@ -2,30 +2,28 @@
 ---
 
 
-## 有声|中共为冬奥会令周边企业停产 民众苦不堪言
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1755953/)
+## 中共国的侵略性行为引起越来越多的关注
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1756001/)
 
-配音：香草山教育部 – Rita七号小青蛙
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-12月12日，有盖特网友发布了一则微信聊天截图，显示中共为了顺利举办冬奥会，要从12月15日开始关停北京周边省份60%的生产企业，直到2022年3月8日。这将导致大量民众短期甚至永久性失业，在经济下滑、通胀持续的情况下收入大幅减少，生活会更加艰难。
+**撰稿：东京樱花团****/****百花李香**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/5-18.png)图片来源于本文链接
+《日本新闻》网站15日报道，正在东南亚访问的美国国务卿詹姆斯-布林肯对印太地区的主题发表了讲话，称“对中共国的侵略行为非常担忧。”
 
-据悉，近些年来，中共国内空气污染越发严重。每到中共高层举办大型活动，尤其是国际性活动时，为了营造空气治理效果良好的假象，周边多个省份的相关企业都会被限产、停产，以减少污染排放。但为减少影响，他们只会私下通知企业，而不会公开发布命令。这已经成为一个惯例，本次冬奥会自然也不会例外。
+布林肯说：“从东北亚到东南亚，从湄公河流域到太平洋国家，人们对中共国的侵略行为非常关注，中共国的侵略性行动威胁着每年价值3万亿美元的贸易，相当于超过340万亿日元”，特别是在中共国正在获得控制权的南海。
 
+同时，他说，这不是一场以美国为中心或以中共国为中心的冲突，由于印度——太平洋地区处于美中对抗的最前沿，他也对其他国家的反应表示关注。
 
+布林肯还透露，拜登总统计划在未来几个月内邀请东盟领导人到美国参加一次面对面的美国——东盟峰会。
 
-文字版原文：[中共为冬奥会令周边企业停产 民众苦不堪言](https://gnews.org/zh-hans/1753214/)
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
+这是自美国总统乔·拜登1月上任以来，布林肯先生首次访问东南亚。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+信息源：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+[「中国の攻撃的な行動に懸念広がっている」](https://news.yahoo.co.jp/articles/fc50da5e37d055f8593acf3153f6d20a0bf56b68#:~:text=%E3%)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

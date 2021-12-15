@@ -2,52 +2,30 @@
 ---
 
 
-## 有声|共产党对新中国联邦、顷一国之力的全面行动
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1755925/)
+## 有声|中共为冬奥会令周边企业停产 民众苦不堪言
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1755953/)
 
-配音：香草山美食部 – 玫瑰园
+配音：香草山教育部 – Rita七号小青蛙
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+12月12日，有盖特网友发布了一则微信聊天截图，显示中共为了顺利举办冬奥会，要从12月15日开始关停北京周边省份60%的生产企业，直到2022年3月8日。这将导致大量民众短期甚至永久性失业，在经济下滑、通胀持续的情况下收入大幅减少，生活会更加艰难。
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-12.jpg)
-
-
-
-郭先生在12月10日大直播中明确表明:
-
-共产党对新中国联邦、爆料革命的恐惧, 已顷一国之力, 并采取一系列的全面行动:
-
-一. 杨洁篪出来的第一个行动是在塞浦路斯抓了我们三个战友，关押12个战友，涉及战友上千人拿塞浦路斯护照。在非洲抓了10几个战友要遣返，中间说服西班牙，要遣返我们正在关押的大概6-7个战友. 对我们部分战友进行威胁，包括对国内战友进行诋毁, 绑架和打击.
-
-二. 零下四度，把郭先生老爹赶到马路上，把同事1000多个员工赶到马路上.
-
-三. 爆料革命当中有2-3个潜伏地很深的共产党的情报人, 要把加拿大，能投5亿，20亿，30亿的人都找出，所以大家在加拿大务必要小心.
-
-原文链接：[共产党对新中国联邦、顷一国之力的全面行动](https://gnews.org/zh-hans/1747842/)
+据悉，近些年来，中共国内空气污染越发严重。每到中共高层举办大型活动，尤其是国际性活动时，为了营造空气治理效果良好的假象，周边多个省份的相关企业都会被限产、停产，以减少污染排放。但为减少影响，他们只会私下通知企业，而不会公开发布命令。这已经成为一个惯例，本次冬奥会自然也不会例外。
 
 
+
+文字版原文：[中共为冬奥会令周边企业停产 民众苦不堪言](https://gnews.org/zh-hans/1753214/)
 音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-192.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/C63FEDBD-BD98-417E-9087-749CFBBB3C01.jpeg)
-
-
-
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
