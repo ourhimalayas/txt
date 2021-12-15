@@ -2,18 +2,18 @@
 ---
 
 
-## 盖特短视频功能G-Vision即将上线
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1755591/)
+## 接种疫苗的母亲诞下病婴或死婴或成新常态
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1755594/)
 
-作者：银河勇气星 – 骄子
+作者：纽约香草山翻译部  – defiance
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-盖特总裁杰森·米勒先生曾在本月早些时候向媒体表示，盖特预计将于明年2月1月推出短视频功能G-Vision，此功能将使盖特与Instagram Reels和TikTok成为竞争对手。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture1-22.jpg)
-在过去几年的发展中， Instagram Reels和TikTok的迅速崛起，充分证明，短视频广受用户的欢迎，特别是年轻用户的青睐。Instagram旗下的Instagram Reels，已成为该平台的主要驱动力，吸引的用户占到了一半以上。
+The Stew Peters Show 于日前采访了一位有15年工作经验的匿名护士。她目前在医院的产后病房工作，负责照顾新生婴儿。这位护士向大众揭露，接种疫苗的母亲诞下的新生儿死亡率显著升高。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture2-10.jpg)
+在美国大面积推广疫苗之前，她已经在这所医院工作五年，五年间，她仅经历过一两起新生儿死亡病例。而在大规模推广疫苗之后的一年时间内，她就亲眼看到了五六例新生儿死亡病例。
 
-G-Vision的上线，不仅拓展盖特的功能，吸引年轻用户，也将使盖特成为社交媒体领域的标杆。
+此外，在最近的几个月里，孕妇在分娩时出血的概率明显高于往常，早产儿比率急剧增高，婴儿身患心脏杂音、皮肤异常的红、黄疸，以及男婴的生殖器萎缩等疾病的比例显著增高。
 
-参考链接：[盖特短视频功能G-Vision即将上线](https://knowtechie.com/gettr-the-social-app-that-looks-like-twitter-will-soon-copy-instagram-reels-and-tiktok/)
+参考链接：[接种疫苗的母亲诞下病婴或死婴或成新常态](https://www.redvoicemedia.com/2021/12/new-normal-dead-babies-vaxxed-moms-delivering-injured-dead-babies/)
 
 ![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 

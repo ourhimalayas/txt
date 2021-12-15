@@ -2,32 +2,30 @@
 ---
 
 
-## 接种疫苗的母亲诞下病婴或死婴或成新常态
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1755594/)
+## 韩国新增确诊病例7850例、重症病例964例，均创下历史新高
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1755738/)
 
-作者：纽约香草山翻译部  – defiance
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-The Stew Peters Show 于日前采访了一位有15年工作经验的匿名护士。她目前在医院的产后病房工作，负责照顾新生婴儿。这位护士向大众揭露，接种疫苗的母亲诞下的新生儿死亡率显著升高。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture2-10.jpg)
-在美国大面积推广疫苗之前，她已经在这所医院工作五年，五年间，她仅经历过一两起新生儿死亡病例。而在大规模推广疫苗之后的一年时间内，她就亲眼看到了五六例新生儿死亡病例。
+撰稿：追着曙光跑
 
-此外，在最近的几个月里，孕妇在分娩时出血的概率明显高于往常，早产儿比率急剧增高，婴儿身患心脏杂音、皮肤异常的红、黄疸，以及男婴的生殖器萎缩等疾病的比例显著增高。
+韩国KBS新闻12月15日的报道，根据韩国中央防疫对策本部15日的通报，截至今天（15日）零时，韩国较前一天零时新增中共病毒确诊病例7,850例，重症患者964例，均创下历史新高。
 
-参考链接：[接种疫苗的母亲诞下病婴或死婴或成新常态](https://www.redvoicemedia.com/2021/12/new-normal-dead-babies-vaxxed-moms-delivering-injured-dead-babies/)
+死亡人数增加70人，总死亡人数达到4456人，病死率为0.83%。
 
-![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+此外，Omicron 突变感染总数增加了9例，Omicron确诊病例总数达到128例。
 
-总编：飞虹
-编辑：飞虹/雪梨
-校对/发稿：Hetangyuese
+首次接种中共病毒疫苗人数增加了 54,184 人，累计总数为 43,104,019 人，占人口的 83.9%。第二针剂接种人数增加了43,060人，累计41,807,882人，占总人口的81.4%。第三针剂接种人数增加了787,801 人，累计达到 7,937,480 人，占人口的 15.5%。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Image-2021-12-15-at-11.39.19.jpeg)图片来源：KBS新闻
+众所周知，注射疫苗的目的是为了阻断病毒的传播，但是中共病毒疫苗不仅不能够阻止病毒的传播，反而成了病毒的传染源，即使注射了疫苗，也一样会感染。那么疫苗的功效就会引起民众的怀疑。这也是新中国联邦一直在告诉世界病毒不可怕，可怕的是疫苗，疫苗引起的次生灾难比病毒更可怕，呼吁世界人民不要打疫苗。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+令人欣慰的是，韩国民众开始觉醒，去辉瑞韩国总部游行示威，在首尔大学免疫学教授带领游行抗议疫苗护照，用法律手段维护亲人因注射疫苗致死致残的利益。虽然还没有取得非常好的成绩，但是他们在觉醒，相信在不久的将来可以停止注射疫苗。
+
+参考新闻：[首尔大学免疫学教授带领游行抗议疫苗护照！](https://gnews.org/zh-hans/1753071/)
+ **[신규 확진 7,850명·위중증 964명 모두 역대 최다…사망 70명](https://news.kbs.co.kr/mobile/news/view.do?ncd=5348763)**
+ **[청소년 방역패스 반발 커지는데 정부 “백신 맞아달라” 또 권고](https://n.news.naver.com/article/008/0004680174)**
+ [백신패스 반대시위,국내 최초 한국화이자 본사앞에서 가져](http://www.ourtoday.co.kr/mobile/article.html?no=24829)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

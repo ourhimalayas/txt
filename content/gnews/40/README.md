@@ -2,32 +2,75 @@
 ---
 
 
-## 巴西城市使用伊维菌素，住院率和死亡率减少一半
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1755592/)
+## Covid-19疫苗正在延长“大流行”
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1755646/)
 
-作者：纽约香草山农场   – 文真
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-据12月13日零对冲报道，因疫情早期将伊维菌素作为预防药物，巴西南部城市伊塔贾伊对抗中共病毒效果显著，其住院率和死亡率减少了一半。
+撰稿：Runaway
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3b4f8e32-23eb-4ce7-bdb1-795d410d82cc_tcm990-412177.jpg)网络图片
+**流感大流行群体免疫的历史**：
 
-在2020年7月至12月期间，由巴西几个研究所、多伦多大学和哥伦比亚大学组成的研究小组，对伊塔贾伊的约22万居民进行了对照医疗实验，其中约60%的人服用伊维菌素。分析结果显示，在七个月的时间里，服用伊维菌素人群的住院率和死亡率减少了一半。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture1-23.jpg)
-此外，印度医科大学的多项研究表明，伊维菌素使医护人员的感染率降低了73%，接受伊维菌素患者的康复率和出院率明显更高。秘鲁的各州密切配合伊维菌素治疗后，病例死亡人数急剧下降。西班牙巴塞罗那大学进行的双盲临床实验也证实，使用伊维菌素的患者能更快康复。在孟加拉国进行的对照研究发现，使用伊维菌素联合治疗，可以缩短病程，早期使用配合治疗，能更好地清除病毒。
+1. 西班牙甲型H1N1流感从1918年春季到1920年秋季共造成5000万人死亡，共经历了2个冬天。由于第一次世界大战造成的士兵和平民的健康状况不佳，灾情尤其严重。
+2. 1957年的H2N2亚洲流感大流行导致110万人死亡。1957年3月爆发后，于1958年4月历时13个月达到群体免疫。1957年10月，英国的最高死亡率为每周600 例。没有大规模的疫苗接种计划（默克的Maurice Hilleman生产了少量疫苗）
+3. 1968年H3N2香港流感大流行造成100-400万人死亡，从1968年7月持续到1969-1970年冬季，经过了18个月达到了群体免疫。它涵盖了西方的两个冬季流感季节，没有大规模的疫苗接种计划（默克的 Maurice Hilleman 生产了少量疫苗）
 
-参考链接：[巴西城市使用伊维菌素，住院率和死亡率减少一半](https://www.zerohedge.com/covid-19/hospitalizations-mortality-cut-half-after-brazilian-city-offered-ivermectin-everyone-pre)
 
-![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+从来没有一次流感大流行持续超过2个冬天，而我们现在正在经历Covid19大流行的第二个冬天，还没有群体免疫的迹象，也没有专家预测大流行会在下一个春天结束。因此，这一次的疫情异乎寻常，某些异常阻止了群体免疫的实现。那就是基因疫苗接种，它不是加快我们实现群体免疫，而是推迟了这段旅程。
 
-总编：飞虹
-编辑：DM/雪梨
-校对/发稿：Hetangyuese
+事实上，唯一达到群体免疫的群体是不接种疫苗的阿米什人，以及最初没有接种疫苗而是选择伊维菌素疗法的印度等国家。拒绝疫苗（他们也拒绝计算机）的宾夕法尼亚州阿米什人于2020年3月首次感染了Covid19武汉阿尔法病毒，他们似乎在2021年3月，既[12个月后达到了群体免疫](https://sharylattkisson.com/2021/10/amish-covid-no-hospitalization-isolation-or-vaccines-herd-immunity/)。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+我们可以看一下疫苗接种对患病率的影响：英国（接种最多）、美国（接种较少）和印度（接种最少），接种率越高，患病率越高。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-162-1.png)疫苗接种率![](https://assets.gnews.org/wp-content/uploads/2021/12/image-161-1.png)患病率
+事实上，基因疫苗使自然免疫力下降，从而阻止我们达到群体免疫的方式。不仅如此，还会使疫苗接种者患上艾滋病，我们称之为 VAIDS：疫苗获得性免疫缺陷综合症。
+
+基因疫苗通过降低您免疫系统的功效，使您更有可能感染和传播covid19。在一个充满未接种疫苗人的餐厅里，比在接种了疫苗的人那里吃饭更安全。疫苗护照就是一种骗局，它们的携带者免疫系统受损，因此比免疫系统正常但未接种疫苗者更有可能感染您。
+
+只针对一种病毒变体的疫苗，不但破坏了自然免疫系统，而且对变异后的病毒变体有效性也大幅减弱。
+
+辉瑞疫苗对武汉Alpha病毒的有效率为95%，但辉瑞7月份在以色列对抗Delta的有效率仅为39，最近南非的一项研究发现辉瑞对Omicron的有效率为23% ，尽管这些数字毫无意义，因为疫苗的有效性从注射大约6周后，以每周5%的速度降低直到负100%（总免疫失败）。
+
+**群体免疫方程**
+
+(100-个人免疫力%) x R0 &lt; 100 代表大流行结束和达到群体免疫。
+
+Alpha的R0在3-4左右，因此我们需要67%-75%的个体免疫力来结束大流行。
+Delta的R0现在据说约为 5，因此我们需要80%的个人免疫力结束大流行。
+Omicron的R0将约为10- 20，需要90-95%的个体免疫力来结束Omicron 大流行。
+Omicron比Delta更具传染性，Delta比Alpha和Beta更具传染性。
+
+事实上，疫苗接种后大约 5 个月的效力会降至零。因此，它们绝对没有机会阻止需要90-95%有效性才能终结的Omicron大流行病！
+
+我们唯一的机会是自然免疫力。毫无疑问，我们应该专注于治疗而不是疫苗。对 Omicron采取武汉Alpha加强针是完全没有意义的，PHS数据显示，接种双重疫苗的Delta病例的死亡率是未接种疫苗的Delta病例的[5倍](https://dailyexpose.uk/2021/12/11/report-shows-4-in-5-covid-deaths-fully-vaccinated/) 。
+
+**Omicron 显然是人造的**
+
+亚洲流感H2N2用了11年才变异成香港流感H3N2。为什么我们会突然看到一个带有32个突变的新变体（从Delta到Omicron）？辉瑞和Moderna的商业模式有多方便，这一切都非常像PC病毒和防病毒商业模式，在那种情况下，所有的病毒都是人造的。我们的免疫系统多久需要进行安全更新，就像PC需要对Windows进行安全更新一样频繁？
+
+“没有比mRNA疫苗瓶更金黄的药瓶了，这是有史以来最赚钱的药物”。
+
+比尔盖茨2010年不是和托尼福奇一起制定了全球疫苗行动计划吗？2010年世界卫生组织 (WHO)、联合国儿童基金会、美国国家过敏症和传染病研究所 (NIAID) 和比尔和梅琳达·盖茨基金会宣布合作，以加强国际疫苗界的协调并制定全球疫苗行动计划。
+
+领导委员会成员包括：
+
+- 世卫组织总干事陈冯富珍博士；
+- 美国国立卫生研究院下属的 NIAID 主任 Anthony S. Fauci 博士；
+- 联合国儿童基金会执行主任安东尼·莱克先生；
+- Joy Phumaphi 女士，国际咨询委员会主席兼非洲领导人疟疾联盟执行秘书
+- Tachi Yamada 博士，比尔和梅琳达·盖茨基金会全球卫生总裁
+
+
+**如何结束Covid19大流行**
+
+- 立即终止所有基因疫苗接种
+- 立即终止所有功能研究并锁定任何参与其中的人——过去、现在和未来。
+- 等待12个月..大流行才会结束。
+
+
+发稿：Runaway
+
+[参考链接](https://dailyexpose.uk/2021/12/13/covid-19-vaccines-are-prolonging-this-pandemic/)
+![此图像的alt属性为空；文件名为澳喜图标2-1-2.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1-2.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
