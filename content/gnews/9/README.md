@@ -2,30 +2,51 @@
 ---
 
 
-## 华为文件显示其参与官方监控项目，深度超出预期
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1755826/)
+## 有声|共产党对新中国联邦、顷一国之力的全面行动
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1755925/)
 
-![资料照：在北京一家商场外的华为标志旁安装了一个监控摄像头。（2019年1月29日）](https://gdb.voanews.com/97EEDAF0-F98B-42E2-8E41-714A2FF45B87_w1023_r1_s.jpg)*资料照：在北京一家商场外的华为标志旁安装了一个监控摄像头。（2019年1月29日）*
-据美国之音12月15日报道，西方国家一直担心中共国电信巨头华为参与中共国政府的监控项目。《华盛顿邮报》14日对华为公司100多份“机密”演示文稿（PPT）进行了研究，显示华为的技术帮助中共国政府通过声音识别个人、监控政治人物、管理再教育集中营，并帮助零售商使用面部识别追踪购物者。华为还介绍了一个系统，可“对涉恐、涉稳等，从电子、车牌、人像等多个维度进行全方位智能化监测。片中还详细介绍了华为设备在新疆地区的使用。
-
-出于信息安全，美国等一些西方国家已经禁止在其5G电信网络中使用华为设备。华为曾表示愿意跟英国等相关国家签署“无间谍协议”，让华为的设备达到无间谍、无后门标准。今年10月，华为等20余家APP运营企业还签署了《深圳市APP个人信息保护自律承诺书》，向社会公开作出“不超范围采集信息，不强制索要用户授权，不利用大数据杀熟、不滥用人脸识别数据，不监听个人隐私”等承诺。
-
-中共的承诺什么时候算数过呢？如果既无后门、也不搜集信息，华为在中共国就没有存在的必要了。中共国一向是按需产生、按需发展，再按需消灭。华为就是配合监控本国百姓和偷盗国外科技才产生的，华为的百般否认恰恰从反面证明了西方国家的担心是对的。华为应该被踢出全球5G系统。
-
-新闻参考链接：[https://www.voachinese.com/a/documents-link-Huawei-to-China-s-surveillance-programs-20211214/6354643.html](https://www.voachinese.com/a/documents-link-Huawei-to-China-s-surveillance-programs-20211214/6354643.html)
-
-编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+配音：香草山美食部 – 玫瑰园
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-12.jpg)
+
+
+
+郭先生在12月10日大直播中明确表明:
+
+共产党对新中国联邦、爆料革命的恐惧, 已顷一国之力, 并采取一系列的全面行动:
+
+一. 杨洁篪出来的第一个行动是在塞浦路斯抓了我们三个战友，关押12个战友，涉及战友上千人拿塞浦路斯护照。在非洲抓了10几个战友要遣返，中间说服西班牙，要遣返我们正在关押的大概6-7个战友. 对我们部分战友进行威胁，包括对国内战友进行诋毁, 绑架和打击.
+
+二. 零下四度，把郭先生老爹赶到马路上，把同事1000多个员工赶到马路上.
+
+三. 爆料革命当中有2-3个潜伏地很深的共产党的情报人, 要把加拿大，能投5亿，20亿，30亿的人都找出，所以大家在加拿大务必要小心.
+
+原文链接：[共产党对新中国联邦、顷一国之力的全面行动](https://gnews.org/zh-hans/1747842/)
+
+
+音频处理：喜山必胜Maverick
+
+发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-192.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/C63FEDBD-BD98-417E-9087-749CFBBB3C01.jpeg)
+
+
 
  
 

@@ -2,32 +2,43 @@
 ---
 
 
-## 接种疫苗的母亲诞下病婴或死婴或成新常态
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1755594/)
+## 美国接种大量疫苗的东北部各州因住院人数激增而苦苦挣扎
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1755743/)
 
-作者：纽约香草山翻译部  – defiance
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-The Stew Peters Show 于日前采访了一位有15年工作经验的匿名护士。她目前在医院的产后病房工作，负责照顾新生婴儿。这位护士向大众揭露，接种疫苗的母亲诞下的新生儿死亡率显著升高。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture2-10.jpg)
-在美国大面积推广疫苗之前，她已经在这所医院工作五年，五年间，她仅经历过一两起新生儿死亡病例。而在大规模推广疫苗之后的一年时间内，她就亲眼看到了五六例新生儿死亡病例。
+作者：泰勒·杜登
 
-此外，在最近的几个月里，孕妇在分娩时出血的概率明显高于往常，早产儿比率急剧增高，婴儿身患心脏杂音、皮肤异常的红、黄疸，以及男婴的生殖器萎缩等疾病的比例显著增高。
+翻译：沉默老歌
 
-参考链接：[接种疫苗的母亲诞下病婴或死婴或成新常态](https://www.redvoicemedia.com/2021/12/new-normal-dead-babies-vaxxed-moms-delivering-injured-dead-babies/)
+2021 年 12 月 14 日，星期二 – 晚上 7:20
+![](https://assets.gnews.org/wp-content/uploads/2021/12/HOSPITAL3-edited.jpg)图片来源：网络
+幸运的是，辉瑞公司即将推出其新的 COVID 药丸，因为美国东北部的病例数正在迅速上升，该地区以前因高疫苗接种率和相对较低的 COVID 数量而被忽视。 但是现在，该地区的急诊室（包括帝国州的大部分地区以及组成新英格兰的六个州）人满为患，而感染率也在飙升。
 
-![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+CDC 数据清楚地显示住院人数激增
 
-总编：飞虹
-编辑：飞虹/雪梨
-校对/发稿：Hetangyuese
+根据美国卫生与公共服务部的数据，在截至 12 月 9 日的一周内，美国新冠肺炎患者的入院人数增加了 14.4%。 在新英格兰，这一比例是两倍多——33.5%。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+最近的激增发生在美国接种疫苗最多的地区，根据州长查理芒格的说法，在马萨诸塞州，88% 的人口至少接种了一剂疫苗，该州计划向最贫困的社区发送超过 2MM 的快速抗原测试。
+
+就在几天前，纽约州州长凯西·霍赫尔 (Kathy Hochul) 下令该州所有企业都必须戴口罩，这主要是因为纽约州北部和西部的病例和住院人数一直在攀升。
+
+自感恩节以来，纽约州的 7 天平均病例率增加了 43%，住院人数增加了 29%。 同期，接种疫苗的美国人比例增加了约 2 个百分点，显然还不够快，无法遏制病毒的传播。
+
+与此同时，纽约市从 12 月 27 日开始对私营部门工人强制接种疫苗，这比大多数城市和市政当局更进一步。
+
+就住院治疗而言，缅因州、新罕布什尔州和纽约州都启动了国民警卫队，以帮助医院治疗 COVID 患者。 新罕布什尔州是美国所有州中 7 天病例率最高的，它也向居民提供免费的在家快速 COVID 检测。在 11 月 29 日向任何居民发送测试的提议的一天内，所有 800K 测试都进行了，另一轮已承诺，但没有交付。
+
+向南移动到大西洋中部地区，我们有花园州，住院人数也有类似的上升趋势。 在新泽西州，住院率是自 4 月底以来最高的，大多数新病例都是未接种疫苗的人，但该州在接种了两剂疫苗且免疫力下降的人中感染更多。 州长 Phil Murphy，他敦促居民获得加强针。
+
+在新泽西州和其他州，医院正在减少选择性手术和其他不太紧急的医疗保健程序，以分配更多资源来抗击 COVID。
+
+而这一切都发生在 omicron 变体、甚至出现之前，据说它更擅长规避疫苗提供的保护。
+
+来源链接：[https://t.co/Vg7UaGQ2Ti](https://t.co/Vg7UaGQ2Ti)
+
+编辑/发布：LILY
+
+20211214
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

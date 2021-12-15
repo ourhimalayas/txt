@@ -15,131 +15,131 @@
 
 ---
 
-### [参议院投票将债务上限提高2.5万亿](/content/gnews/1/README.md)
+### [【樱花深度报道】福奇与扎克伯格邮件再曝！FACEBOOK协助管控民众和疫苗开发](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [樱花灭共诗——见路边纳鞋垫失声老妇](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [哈佛教授参与 “千人计划”且隐瞒与中国的关系遭起诉](/content/gnews/3/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|共产党对新中国联邦、顷一国之力的全面行动](/content/gnews/2/README.md)
+### [有声|中共为冬奥会令周边企业停产 民众苦不堪言](/content/gnews/4/README.md)
  ` MOSREC`
 
-### [秘翻在线：自民党、高市等人请求岸田总理抵制北京冬奥运会](/content/gnews/3/README.md)
+### [有声|中共继续大量增加粮食及饲料进口](/content/gnews/5/README.md)
+ ` MOSREC`
+
+### [有声|墙内涌现公务员降薪潮，降幅高达25%](/content/gnews/6/README.md)
+ ` MOSREC`
+
+### [有声|蓬佩奥表示 向中共追责是全世界需要解决的课题](/content/gnews/7/README.md)
+ ` MOSREC`
+
+### [参议院投票将债务上限提高2.5万亿](/content/gnews/8/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [有声|共产党对新中国联邦、顷一国之力的全面行动](/content/gnews/9/README.md)
+ ` MOSREC`
+
+### [秘翻在线：自民党、高市等人请求岸田总理抵制北京冬奥运会](/content/gnews/10/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声|Hcoin to the moon的打榜方式对现有规则的改写](/content/gnews/4/README.md)
+### [有声|Hcoin to the moon的打榜方式对现有规则的改写](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [G时评：黑暗势力如何摧毁民主自由？](/content/gnews/5/README.md)
+### [G时评：黑暗势力如何摧毁民主自由？](/content/gnews/12/README.md)
  ` GISELLE`
 
-### [GTV新闻访谈简报|2021年12月14日晚](/content/gnews/6/README.md)
+### [GTV新闻访谈简报|2021年12月14日晚](/content/gnews/13/README.md)
  ` 纽约香草山MOS01`
 
-### [与中共勾结不会有好下场，哈佛大学教授面临审判](/content/gnews/7/README.md)
+### [与中共勾结不会有好下场，哈佛大学教授面临审判](/content/gnews/14/README.md)
  ` 纽约香草山MOS01`
 
-### [助纣为虐，中共人工智能初创企业商汤被迫暂缓在香港首次公开募股](/content/gnews/8/README.md)
+### [助纣为虐，中共人工智能初创企业商汤被迫暂缓在香港首次公开募股](/content/gnews/15/README.md)
  ` 纽约香草山MOS01`
 
-### [华为文件显示其参与官方监控项目，深度超出预期](/content/gnews/9/README.md)
+### [华为文件显示其参与官方监控项目，深度超出预期](/content/gnews/16/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [视频| 俄罗斯特使给中共的通报内容对习近平的打击](/content/gnews/10/README.md)
+### [视频| 俄罗斯特使给中共的通报内容对习近平的打击](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [以色列研究再次证实：自然免疫比辉瑞疫苗更能保护人们免受感染](/content/gnews/11/README.md)
+### [以色列研究再次证实：自然免疫比辉瑞疫苗更能保护人们免受感染](/content/gnews/18/README.md)
  ` RoseNews`
 
-### [美国60多名参众议员致函国务院支持西藏自治](/content/gnews/12/README.md)
+### [美国60多名参众议员致函国务院支持西藏自治](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共正在把你的DNA武器化吗？](/content/gnews/13/README.md)
+### [中共正在把你的DNA武器化吗？](/content/gnews/20/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [美国立陶宛加强防务关系以抗中俄压力](/content/gnews/14/README.md)
+### [美国立陶宛加强防务关系以抗中俄压力](/content/gnews/21/README.md)
  ` HimalayaRussia`
 
-### [美国接种大量疫苗的东北部各州因住院人数激增而苦苦挣扎](/content/gnews/15/README.md)
+### [美国接种大量疫苗的东北部各州因住院人数激增而苦苦挣扎](/content/gnews/22/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [韩国新增确诊病例7850例、重症病例964例，均创下历史新高](/content/gnews/16/README.md)
+### [韩国新增确诊病例7850例、重症病例964例，均创下历史新高](/content/gnews/23/README.md)
  ` 首尔天池农场`
 
-### [2021年度人物埃隆·马斯克公开反对疫苗强制接种](/content/gnews/17/README.md)
+### [2021年度人物埃隆·马斯克公开反对疫苗强制接种](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [英国单日新增感染中共病毒人数创今年新高](/content/gnews/18/README.md)
+### [英国单日新增感染中共病毒人数创今年新高](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [岸田文雄拒绝声明是否外交抵制北京冬奥会](/content/gnews/19/README.md)
+### [岸田文雄拒绝声明是否外交抵制北京冬奥会](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [音乐的力量](/content/gnews/20/README.md)
+### [音乐的力量](/content/gnews/27/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [共产党给世界准备了最大的棺材就是冠状病毒和疫苗](/content/gnews/21/README.md)
+### [共产党给世界准备了最大的棺材就是冠状病毒和疫苗](/content/gnews/28/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [接种疫苗的母亲诞下病婴或死婴或成新常态](/content/gnews/22/README.md)
+### [接种疫苗的母亲诞下病婴或死婴或成新常态](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [日本多方证据显示，新冠病毒疫苗副作用异常严重](/content/gnews/23/README.md)
+### [日本多方证据显示，新冠病毒疫苗副作用异常严重](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [巴西城市使用伊维菌素，住院率和死亡率减少一半](/content/gnews/24/README.md)
+### [巴西城市使用伊维菌素，住院率和死亡率减少一半](/content/gnews/31/README.md)
  ` GTV新闻访谈`
 
-### [盖特短视频功能G-Vision即将上线](/content/gnews/25/README.md)
+### [盖特短视频功能G-Vision即将上线](/content/gnews/32/README.md)
  ` GTV新闻访谈`
 
-### [美国商务部部长的丈夫在一家获中共资助的科技公司担任高管](/content/gnews/26/README.md)
+### [美国商务部部长的丈夫在一家获中共资助的科技公司担任高管](/content/gnews/33/README.md)
  ` 首尔天池农场`
 
-### [所有独裁者最后干的唯一一件事 就是发动战争](/content/gnews/27/README.md)
+### [所有独裁者最后干的唯一一件事 就是发动战争](/content/gnews/34/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【粤语配音】2021年12月12日：习近平的狂妄，必将成为历史的罪人](/content/gnews/28/README.md)
+### [【粤语配音】2021年12月12日：习近平的狂妄，必将成为历史的罪人](/content/gnews/35/README.md)
  ` MOS香港部`
 
-### [雷军，退出小米你还好么？](/content/gnews/29/README.md)
+### [雷军，退出小米你还好么？](/content/gnews/36/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [数据显示，Covid“疫苗”正在引发数十万人的精神疾病](/content/gnews/30/README.md)
+### [数据显示，Covid“疫苗”正在引发数十万人的精神疾病](/content/gnews/37/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [G时评213期（12.13）直播摘要](/content/gnews/31/README.md)
+### [G时评213期（12.13）直播摘要](/content/gnews/38/README.md)
  ` GISELLE`
 
-### [将弹道导弹藏在货船的集装箱中，符合中共“超限战”理念](/content/gnews/32/README.md)
+### [将弹道导弹藏在货船的集装箱中，符合中共“超限战”理念](/content/gnews/39/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [疫苗护照没有也不可能发挥作用的四个理由](/content/gnews/33/README.md)
+### [疫苗护照没有也不可能发挥作用的四个理由](/content/gnews/40/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [英最新报告证实90%中共病毒死亡者都已接种过疫苗](/content/gnews/34/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [自 8 月以来，90% 的“covid”死亡发生在完全接种疫苗的情况下](/content/gnews/35/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [韩国家长抗议学生疫苗接种证明](/content/gnews/36/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [又一研究证实自然免疫比辉瑞疫苗更能保护人们免受感染](/content/gnews/37/README.md)
+### [又一研究证实自然免疫比辉瑞疫苗更能保护人们免受感染](/content/gnews/41/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [随着恒大佳兆业的正式违约，众多港股大跌](/content/gnews/38/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [英国议员Steve Baker 谈为什么要反对B计划限制](/content/gnews/39/README.md)
- ` 日本东京方舟农场`
-
-### [共和党代表抨击迪斯尼《辛普森一家》与中共国相关剧情被删减](/content/gnews/40/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [布林肯批评中共在印太地区的“侵略行动”](/content/gnews/41/README.md)
+### [布林肯批评中共在印太地区的“侵略行动”](/content/gnews/42/README.md)
  ` HimalayaRussia`
-
-### [三亚市民：三亚市现在的生意特别惨淡哪！](/content/gnews/42/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [Hcoin To the Moon连续2周登上Billboard全球数字歌曲销量榜首 ！](/content/gnews/43/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`

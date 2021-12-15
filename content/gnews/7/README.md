@@ -2,35 +2,46 @@
 ---
 
 
-## 与中共勾结不会有好下场，哈佛大学教授面临审判
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1755857/)
+## 有声|蓬佩奥表示 向中共追责是全世界需要解决的课题
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1755934/)
 
-作者：香草山金融部 – 闲聊钱币
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
-哈佛大学一名研究纳米技术的教授，查尔斯-利伯（Charles Lieber），周二面临审判。他被指控参与了中共的“千人计划”，得到中共的资金扶持并向美国政府撒谎，隐瞒了上述事实。
+配音：香草山美食部 – 玫瑰园
 
-检察官陈述利伯从2011年开始成为武汉理工大学的一名 “战略科学家”，并因此得到150多万美元的经费建立实验室，同时每月向他支付5万美元，外加15万美元的年度生活费。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture5-5.jpg)
-尽管62岁的利伯对六项指控均不认罪，案件最终结果也难以预测。但是他的命运可以从另一名“千人计划”的参与者55岁的张首晟离奇坠楼身亡，以及2008年同样坠楼身亡的任伟看出端倪。
 
-张首晟和任伟分别是物理和数学界的天才。他们的研究成果无论是在科技还是军事上都有着举足轻重的分量。然而他们都离奇的在马上要回国为中共效力的时候由于忧郁症跳楼自杀。
 
-跟着共产党，走进火葬场。这位研究纳米技术的教授恐怕知道太多了。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-参考来源：[与中共勾结不会有好下场，哈佛大学教授面临审判](https://www.reuters.com/world/us/harvard-professor-charged-with-lying-about-china-ties-faces-trial-2021-12-14/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=14-12-21&amp;utm_campaign=14-12-21)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88-1.png)
 
-编辑/校对/发稿：Hetangyuese
+12月12日，美国前国务卿蓬佩奥先生接受采访，再次谈到病毒追责问题，并说不仅美国，全世界都需要向中共追责。
+
+主持人在节目中提到，拜登总统今年4次与习近平通电话，都没有提及病毒溯源，而这个病毒已经杀死了70万美国人，屠杀了几百万全世界人民。针对中共随意让马云、彭帅消失的事件，一些美国企业非但不提追责，反而帮中共洗地，称让马云、彭帅消失说明中共扮演了“严格的父母”的角色。
+
+原文链接：[蓬佩奥表示 向中共追责是全世界需要解决的课题](https://gnews.org/zh-hans/1753108/)
+
+音频处理：喜山必胜Maverick
+
+发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+
+
 
 **更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

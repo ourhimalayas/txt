@@ -2,82 +2,24 @@
 ---
 
 
-## 所有独裁者最后干的唯一一件事 就是发动战争
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1755582/)
+## 音乐的力量
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1755667/)
 
-[https://gtv.org/video/id=61b7febda68b4f4b28e82457](https://gtv.org/video/id=61b7febda68b4f4b28e82457)
+音乐是情感和自然之间唯一的没被解码的一种沟通的最好的方式。音乐是男女之间最美好桥梁，和天地和神之间的沟通，和不能和你有共同语言的动物，和植物石头山川河流之间沟通的唯一的方式。
 
-**郭文贵**
-**Miles Guo**
+**【郭先生直播摘要】**** 2021.12.10 ****音乐的力量**
 
-掌握共产党的历史和脉搏和内部的情报，和对共产党中心老杂毛的个人性格上的判断
-As long as you know the history, pulse and internal information of the Com-munist Party, and make right judgement according to the personal character of these top officials at the center of the Communist Party
+**郭先生：**
 
-只要你准确了，咱永远是赢家，咱知道共产党内部怎么想的
-once you are accurate, we will always be the winner, we know what the Com-munist Party thinks internally
+音乐是什么？音乐是自由， 音乐是浪漫。 音乐是情感和自然之间唯一的没被解码的一种沟通的最好的方式。 音乐是男女之间最美好桥梁， 音乐是达到让你精神上的最高自由的境界， 可以让你精神上达到了高潮， 和天地和神之间的沟通 和不能和你有共同语言的动物，和植物石头山川河流之间沟通的唯一的方式.
 
-当习近平这时候，下边都鼓掌了，好啊，太伟大了，你就是秦始皇
-When Xi Jinping was at there, everyone applauded for him, “okay, that’s goo great, you are Qin Shihuang(the first emperor in China)
+这是为什么当时的希腊故事里面, 宙斯缪斯以及九个音乐之神，所诞生的各种神的母亲神的父亲。当时所有这种希腊的故事，音乐之神为什么是宙斯？为什么是缪斯？为什么是提携的所有的生出的儿女。 他们和山川和河流和狮子和动物之间沟通的唯一方式就是音乐。甚至他们对天上唯一祈祷的方式， 允许的共同方式就是音乐。 因为音乐的力量是唯一一个， 是没有性别没有语言没有黑白。 没有任何物理区域隔离的和能拦得住的沟通方式， 而且从人类到现在为止所有的祈祷上天和向上天祈福包括去诅咒某些人， 用的唯一方式不是献命不是献血是音乐。
 
-这个党没有你就完啦，所以说，你要继续干呢
-This party will be over without you, so you have to keep doing it”
+就像你们大年春节给共产党送葬， 给习近平给习近平的娘齐心送葬， 我们一定要带上最好的音乐。我们那个唢呐中国的唢呐， 送你生送你死都是唢呐， 那我们的唢呐一定像我们山东老家， 哎呀我的妈呀浑身都哆嗦， 咱要让他们听到一嗓子终身难忘。 当年的缪斯就是一个诅咒， 愿所有的狮子都能像上天太阳之神护佑我整个家族安全。
 
-我告诉你，所有的独裁包括卡扎菲、萨达姆的都是被家人和身边最亲的人忽悠出来的
-Let me tell you, all the dictators including Gaddafi and Saddam were fooled by their family members and the closest people around them
+狮子要记住我和你唱的歌， 就是唱出蝴蝶之歌，希腊的。 所以说狮子所在的地方看到蝴蝶的时候， 认为这是上天传达旨意的天使。 狮子永远不碰的东西是什么？ 狮子都是吃狮子， 狮子不碰的是什么？ 狮子所有动物都怕尖的东西。 在非洲有人黑人就拿着一个尖棍， 能挑战狮子能挑战豹子， 去扎蛇。 没人敢动它， 因为它怕尖的东西。 如果带一根金属的棍子， 很多动物不敢碰你的， 因为它怕金属的。 但是有一样东西能让狮子跪下来的， 狮子只为两种跪， 一个是性交的时候， 它跪下来。 第二个就是音乐。
 
-而且所有的独裁着，真的从过去编故事自己是神，看了神，到最后你真相信自己是神
-And all the dictatorships really made up stories from the past that they are God, and are blessed by God, really believe that they are God in the end
-
-最后是灭掉神，自己代替神，然后最后是自己真心相信自己是神
-Finally, they get rid of God, replace God by themself, and finally they truly believe that they are God
-
-所有人都是这个死亡的步骤，今天你看到共产党的狂妄
-All of them follow this death procedure, today you look at the arrogance of the Communist Party
-
-第二条，杀基督教，杀新疆人，杀佛教、天主教、道教，全教拜一神，叫习太阳神
-The second, they kill Christianity, kill Uyghurs, kill Buddhism, Catholicism, and Taoism, and all religions worship to one god, it called Xi Sun God
-
-而且大家要看到的经济问题，现在国内已经是房地产崩塌，银行崩塌
-Moreover everyone needs to see the economic problems, now domestic real estate has collapsed, and the banks have collapsed
-
-这是一点都不用担心的，是吧，大量的一亿多人失业
-This is no doubt about that, right? there are more than 100 million people are unemployed
-
-大量的商业关门，所有的85%的私人企业要归为国有
-A large number of businesses are closed, and 85% of all private companies are to be state-owned
-
-这是所有的独裁者，阿明的乌干达，我再说的，卡扎菲、萨达姆、希特勒、斯大林
-This is all the dictators, like Amin of Uganda, I will repeat it again, Gaddafi, Sad-dam, Hitler, and Stalin
-
-所有人干的统一一件事儿，企业国有化，个人神圣化，宗教彻底被消灭，媒体彻底被控制
-One thing everyone does is the nationalization of enterprises, personal sanctifi-cation, religion is completely eliminated, and the media is completely controlled
-
-然后唯一最后选项发动战争，而且不是它意志为转移的
-Then the only last option for them to start a war, and it’s doesn’t depend on its will
-
-习现在想不发动战争都不可能
-Now it’s impossible for Xi not to start a war
-
-**原视频链接**:[https://gettr.com/post/pjh1kbe8be](https://gettr.com/post/pjh1kbe8be)
-
-Date:12/12/2021
-**原视频标题:** 所有独裁者最后干的唯一一件事 就是发动战争
-The only thing that all dictators did last was to start a war
-原视频日期：2021/12/10
-**原视频链接**https://gettr.com/post/pjh1kbe8be
-任务编号：3204
-视频时间段 : 0:00-2:06
-
-中听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 -天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+视频剪辑：北方信使 | 听写：雨山溪桥客 | 翻译：Stephanie |校对：Polaris | 视频制作+字幕：芥末 | 编辑&发布：断播
 
  
 

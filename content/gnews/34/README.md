@@ -2,39 +2,82 @@
 ---
 
 
-## 英最新报告证实90%中共病毒死亡者都已接种过疫苗
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1755480/)
+## 所有独裁者最后干的唯一一件事 就是发动战争
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1755582/)
 
-本文作者：Rebecca (一切心皆不可得！)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image001-7.png)
-英国政府再次试图用逐周限制的措施将英国重新封锁起来，以应对一种尚未杀死任何人的所谓新变种奥米克戎（Omicron）。
+[https://gtv.org/video/id=61b7febda68b4f4b28e82457](https://gtv.org/video/id=61b7febda68b4f4b28e82457)
 
-同时，政府还不遗余力地转移人们的注意力。因为苏格兰公共卫生局（PHS），于12月8日发布的报告证实，90%因中共病毒（Covid-19）死亡的全都已接种过病毒疫苗。
+**郭文贵**
+**Miles Guo**
 
-苏格兰公共卫生局每周都会发布一份报告，其中包含按疫苗接种情况统计的Covid-19病例、住院和死亡情况。
+掌握共产党的历史和脉搏和内部的情报，和对共产党中心老杂毛的个人性格上的判断
+As long as you know the history, pulse and internal information of the Com-munist Party, and make right judgement according to the personal character of these top officials at the center of the Communist Party
 
-最新的报告于12月8日星期三发布，包含2021年11月6日至12月3日期间的病例和住院数据，以及2021年10月30日至11月26日期间的死亡数据。
+只要你准确了，咱永远是赢家，咱知道共产党内部怎么想的
+once you are accurate, we will always be the winner, we know what the Com-munist Party thinks internally
 
-最新的报告证实，在最近四周里：
+当习近平这时候，下边都鼓掌了，好啊，太伟大了，你就是秦始皇
+When Xi Jinping was at there, everyone applauded for him, “okay, that’s goo great, you are Qin Shihuang(the first emperor in China)
 
-- 有76,677例中共病毒患者，其中已接种病毒疫苗的患病人数47,835例，占总患病率的62%，见报告第44页；
-- 有1,735例中共病毒住院患者，其中已接种病毒疫苗的住院人数1,226例，占病毒总住院率的71%，见报告第50页；
-- 有435例中共病毒死亡案例，其中已接种病毒疫苗的死亡人数371例，占因中共病毒总死亡率的85%，见报告第56页；
+这个党没有你就完啦，所以说，你要继续干呢
+This party will be over without you, so you have to keep doing it”
 
+我告诉你，所有的独裁包括卡扎菲、萨达姆的都是被家人和身边最亲的人忽悠出来的
+Let me tell you, all the dictators including Gaddafi and Saddam were fooled by their family members and the closest people around them
 
-数据表明，接种病毒疫苗的患者实际上会恶化病情。
+而且所有的独裁着，真的从过去编故事自己是神，看了神，到最后你真相信自己是神
+And all the dictatorships really made up stories from the past that they are God, and are blessed by God, really believe that they are God in the end
 
-过去的四个月里，未接种病毒疫苗的患者死亡率相当于0.15%（247人死亡/156,282例×100）。
+最后是灭掉神，自己代替神，然后最后是自己真心相信自己是神
+Finally, they get rid of God, replace God by themself, and finally they truly believe that they are God
 
-但已完全接种疫苗的患者死亡率相当于0.76%（1382例死亡/181580例x100）。
+所有人都是这个死亡的步骤，今天你看到共产党的狂妄
+All of them follow this death procedure, today you look at the arrogance of the Communist Party
 
-这意味着已完全接种疫苗的人群，一旦感染上中共病毒，其死亡机率远比未接种疫苗的人群高出407%，而不是政府和各大媒体宣传的那样。
+第二条，杀基督教，杀新疆人，杀佛教、天主教、道教，全教拜一神，叫习太阳神
+The second, they kill Christianity, kill Uyghurs, kill Buddhism, Catholicism, and Taoism, and all religions worship to one god, it called Xi Sun God
 
-[新闻来源链接](https://dailyexpose.uk/2021/12/09/distracted-by-christmas-party-data-shows-9-in-10-covid-deaths-vaccinated/)
+而且大家要看到的经济问题，现在国内已经是房地产崩塌，银行崩塌
+Moreover everyone needs to see the economic problems, now domestic real estate has collapsed, and the banks have collapsed
 
-审核校对：sherryok (水云间)
+这是一点都不用担心的，是吧，大量的一亿多人失业
+This is no doubt about that, right? there are more than 100 million people are unemployed
 
-上传排版：漂流瓶
+大量的商业关门，所有的85%的私人企业要归为国有
+A large number of businesses are closed, and 85% of all private companies are to be state-owned
+
+这是所有的独裁者，阿明的乌干达，我再说的，卡扎菲、萨达姆、希特勒、斯大林
+This is all the dictators, like Amin of Uganda, I will repeat it again, Gaddafi, Sad-dam, Hitler, and Stalin
+
+所有人干的统一一件事儿，企业国有化，个人神圣化，宗教彻底被消灭，媒体彻底被控制
+One thing everyone does is the nationalization of enterprises, personal sanctifi-cation, religion is completely eliminated, and the media is completely controlled
+
+然后唯一最后选项发动战争，而且不是它意志为转移的
+Then the only last option for them to start a war, and it’s doesn’t depend on its will
+
+习现在想不发动战争都不可能
+Now it’s impossible for Xi not to start a war
+
+**原视频链接**:[https://gettr.com/post/pjh1kbe8be](https://gettr.com/post/pjh1kbe8be)
+
+Date:12/12/2021
+**原视频标题:** 所有独裁者最后干的唯一一件事 就是发动战争
+The only thing that all dictators did last was to start a war
+原视频日期：2021/12/10
+**原视频链接**https://gettr.com/post/pjh1kbe8be
+任务编号：3204
+视频时间段 : 0:00-2:06
+
+中听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 -天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
