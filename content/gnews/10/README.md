@@ -2,26 +2,73 @@
 ---
 
 
-## 日本将为43岁以下不孕妇女提供治疗医疗保险
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1756373/)
+## 【草根访谈】第290期新闻概要
+` WindTalker` [轉載自GNews](https://gnews.org/zh-hans/1756419/)
 
-**撰稿：东京樱花团/百花李香**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-761.png)[图片来源](https://news.yahoo.co.jp/articles/02ea963739a63623670b1c1ad10f29413dfef51a#:~:text=%E3)
-据《朝日新闻》网站14日报道，政府已经制定了接受不孕治疗以及如何通过保险进行治疗的总体纲要，目标是在明年春天开始。体外受精（IVF）和其它生育治疗将被覆盖，条件是妇女在治疗开始时年龄在43岁以下，事实婚姻也包括在内。卫生、劳动和福利部计划12月15日提交一份草案供中央社会保险医疗委员会审议。
+**——日本东京方舟农场GTV直播组出品**
 
-根据拟议的内容，保险范围将涵盖体外受精，即在体外提取卵子并与精子受精，然后再送回子宫，以及「显微授精」即在显微镜下将精子注入卵子，这两种方法都是日本生殖医学协会指南中推荐度高的。还有人工授精，即把精子注射到子宫内，也包括在内。预计新的一年里将讨论保险的价格。
+策划/撰文：宇宙之泾
 
-如果妇女在40岁以下，每个孩子的体外受精最多可以得到6次保险，如果在40至43岁之间，可以得到3次。范围不仅是合法婚姻，事实婚姻也包括在内。
+校对：石桥李次郎
 
-目前，公共医疗保险可用于治疗不孕症状，如子宫或输精管出现异常，而人工授精和体外受精则不在保险范围内，由患者自己支付。根据卫生劳动省的一项调查，人工授精的平均费用约为30,000日元/次，体外受精的平均费用为500,000日元/次。如果有保险，病人的负担原则上是30%。
+书法：方舟柒公子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-09-上午2.30.19.png)
+日本东京方舟农场GTV直播组【草根访谈】第290期新闻概要：
 
-目前还有一个补贴制度，以帮助降低手术费用，体外受精和「显微授精」公费补贴最高为每次300,000日元。新的保险范围是根据这一补贴制度所涵盖的年龄范围和最大程序数量来考虑的。
+GTV方舟农场直播间【草根访谈】今天的嘉宾是日本东京方舟农场的美女「雨嘉战友」坐客方舟直播间，分享一下12月8日观看七哥大直播的感想。
 
-信息源：[不妊治療の保険適用、女性は43歳未満　厚労省、事実婚も対象へ](https://news.yahoo.co.jp/articles/02ea963739a63623670b1c1ad10f29413dfef51a#:~:text=%E3)
+时政观点：没郭七条！直接开干！ 七哥说： 所有的送葬图文都应该跟制作病毒、释放病毒、打毒疫苗、香港大屠杀，新疆种族大灭绝等事件挂钩。跟这些事情联系在一起发声发咒，这样有根源利于传播爆料革命，传播共匪的恶，望有创意的战友们能看到！
+![](https://assets.gnews.org/wp-content/uploads/2021/12/E0152A97-5633-4004-84AC-2FE668A23BD8-scaled.jpeg)
+**12月8日七哥大直播内容**：文贵先生家人、父亲、员工被300特警，300法警，全部赶到大街上。手机失效、信用卡被停 、新中国联邦未来1-3年重大行动「海外中共大使馆领事馆外，大年三十开始为中南坑的老杂毛们及家属送葬 、每天100美金、100个躺平币、1个喜币、食宿交通实报实销。战友们只要去参加给习近平送葬行动的，都将获得补助 、今天开始，没有郭七条，只要能灭共 、墙内战友尽量不要做 保障安全的情况下传播信息。」
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
+主持人：@WindTalker 宇宙之泾
+
+嘉宾战友：@yujia 雨嘉战友
+
+美东时间晚上11:30 日本东京时间中午1:30 北京时间中午12:30
+![插图](https://assets.gnews.org/wp-content/uploads/2021/12/CF6756C4-59FE-475E-A4DC-435933C107C9.jpeg)
+Every day we spreading the truth about CCPvirus (COVID-19)and CCP vaccines, every day is Shouting for the people of Hong Kong who killed from CCP, and every day is hard working for the Chinese people to destroy the evil Chinese Communist Party! Welcome to our New Federal State of the China. Welcome to our Himalaya Tokyo JHL. **👏**
+
+【草根访谈】日本东京方舟农场欢迎你！
+
+【草根访谈】【方舟有你】【方舟歌汇】
+
+【方舟品读时光】【有问必答】【果色添香】
+
+[#nfsc](https://gettr.com/hashtag/%23nfsc) [#MilesGuo](https://gettr.com/hashtag/%23MilesGuo) [#ccpvirus](https://gettr.com/hashtag/%23ccpvirus) [#CCPvaccines](https://gettr.com/hashtag/%23CCPvaccines) [#ccpliepeoplesdie](https://gettr.com/hashtag/%23ccpliepeoplesdie) [#takedowntheccp](https://gettr.com/hashtag/%23takedowntheccp)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/85A9DBF3-4860-4C4F-8B7B-962289F759D4_1_100_o-1-scaled.jpeg)
+
+
+```
+只有那些疯狂到认为自己可以改变世界的人，才能真正改变这个世界。
+```
+
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/73A43459-2029-4DBE-89E4-993EF95E97A9_1_201_a.jpeg)
+
+
+```
+知人者智自知者明篆刻：柒公子
+```
+
+
+
+
+
+
+2021年12月| 一 | 二 | 三 | 四 | 五 | 六 | 日 |
+| --- | --- | --- | --- | --- | --- | --- |
+|   | [1](https://gnews.org/zh-hans/date/2021/12/01/) | [2](https://gnews.org/zh-hans/date/2021/12/02/) | [3](https://gnews.org/zh-hans/date/2021/12/03/) | [4](https://gnews.org/zh-hans/date/2021/12/04/) | [5](https://gnews.org/zh-hans/date/2021/12/05/) |
+| [6](https://gnews.org/zh-hans/date/2021/12/06/) | [7](https://gnews.org/zh-hans/date/2021/12/07/) | [8](https://gnews.org/zh-hans/date/2021/12/08/) | [9](https://gnews.org/zh-hans/date/2021/12/09/) | [10](https://gnews.org/zh-hans/date/2021/12/10/) | [11](https://gnews.org/zh-hans/date/2021/12/11/) | [12](https://gnews.org/zh-hans/date/2021/12/12/) |
+| [13](https://gnews.org/zh-hans/date/2021/12/13/) | [14](https://gnews.org/zh-hans/date/2021/12/14/) | [15](https://gnews.org/zh-hans/date/2021/12/15/) | 16 | 17 | 18 | 19 |
+| 20 | 21 | 22 | 23 | 24 | 25 | 26 |
+| 27 | 28 | 29 | 30 | 31 |   |
+
+[« 11月](https://gnews.org/zh-hans/date/2021/11/)  
+ 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

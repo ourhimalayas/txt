@@ -2,38 +2,38 @@
 ---
 
 
-## 【草根访谈】第291期新闻概要
-` WindTalker` [轉載自GNews](https://gnews.org/zh-hans/1756436/)
+## 【草根访谈】第292期新闻概要
+` WindTalker` [轉載自GNews](https://gnews.org/zh-hans/1756467/)
 
 **——日本东京方舟农场GTV直播组出品**
 
 策划/撰文：宇宙之泾
 
 校对：石桥李次郎
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-12-上午3.18.17.png)
+GTV日本东京方舟农场直播间 【草根访谈】第292期新闻概要：
 
-书法：柒公子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/05757EC9-663B-4371-8915-2A1839861F25.png)
-GTV日本东京方舟农场直播间 【草根访谈】第291期新闻概要：
+今天的嘉宾是日本东京方舟农场的大才子「风雨之中」先生坐客方舟直播间，分享一下七哥12/10大直播的内容和观点。
 
-今天的嘉宾是日本东京方舟农场的形象大使「文花战友」坐客方舟直播间，分享一下这几天七哥「直接开干」三年死磕中共的感想。 战友「文郎」也客串了一下，表示非常愿意加入将会进行的1000天剿共灭共的「棺材花」运动。
+时政观点：全球国家政府面临破产将会找一个替罪羊就是中共，验证文贵先生的爆料。风雨之中先生具体给战友们介绍当天早上与日本保守党派参加东京反共抵制北京冬奥会的游行示威活动情况，用行动告诉日本本土的人们，中共不等于中国人，中共不等于中国。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/21EAC9BD-C05F-4E33-B16F-B5FB8D1163A6_1_201_a.jpeg)
+文贵大直播内容选取如下：
 
-时政观点：全球主流国家官方抵制北京冬奥会，验证文贵先生的爆料。 中共处心积虑布局几十年制作病毒、释放病毒、打毒疫苗、香港大屠杀，新疆种族大屠杀，73年对我中华大地的屠戮哀鸿遍野，罄竹难书。对我中华文化的摧残和摧毁，即便如此对旅居海外的华人也是不依不饶的追捕打压，此仇不报何以为人？
-![](https://assets.gnews.org/wp-content/uploads/2021/12/979AA8C3-979A-4E97-B02C-D5AB0314313B-scaled.jpeg)
-1，中国外交部发言人汪文斌周四（12月9日）严辞谴责美国、澳大利亚、英国和加拿大四国外交抵制北京冬奥会，声言他们“必将对其错误行径付出代价”**。**
+1，杨洁篪在塞浦路斯和非洲抓了新中国联邦几十个战友 、加拿大战友要小心，中共工作小组正在收集很多加拿大战友信息
 
-2，太空保险集团分析师伟德（David Wade ）表示，未来会有越来越多的商业性质太空旅游公司，但他对太空旅游对环境的影响感到乐观。“我认为1960年代阿波罗登月所拍摄的地球在太空中的照片，让人们看到了地球之美，也带动了全面的环境保护运动。”
+2，中共想要成功办好冬奥会的最大目的是：洗脱病毒来自中共、数学人民币国际化、冬奥会经济、万国来朝、然后在打台湾 、年轻人出奇一致地接受疫苗说明： 社交媒体、宗教、学习、工作，对大学生的洗脑程度最高的，四重围剿。
 
-3，立陶宛一名政府官员和一家行业机构对路透社表示，中国已要求跨国公司切断与立陶宛的联系，否则将会被中国市场拒之门外。此举将使企业卷入立陶宛与北京之间的争端。
+3，俄罗斯明确跟美国说他们不会跟中共站在一起。七哥判断：2022年年底以前中共将被踢出WTO，2023年5月份以前中共应该会被踢出SWIFT系统。
 
-4，美国科技媒体《信息》（The Information）12月7日独家披露，苹果首席执行官库克（Tim Cook）在2016年与中国政府签署一份为期5年、2750亿美元的秘密投资协议，以平息针对苹果的监管行动，避免在中国销售产品与服务遇到阻碍，并指此举也为苹果在中国取得无与伦比的成功铺平了道路。
+4，Google每次点击，Google已经收钱了，这就是个人数据消费，躺平币的来源 就是被大数据公司拿走出卖的价值 ；躺平币是根据你行动的结果 一切的行为结果都能计算成结果。
 
-5，香港新冠疫情： 深陷“永久隔离”的国泰机组人员
+5，国内公检法等对战友们枪口抬高一寸的，都会得到百倍的躺币，十倍的喜币，每一个都会得到 、躺平币的计划是新中国联邦64两周年推出。
 
-6，脸书和微软等大型科技公司都争相开发元宇宙，一个平行时空的数字世界，但建造元宇宙究竟需要什么？
-![插图](https://assets.gnews.org/wp-content/uploads/2021/12/CF6756C4-59FE-475E-A4DC-435933C107C9.jpeg)
+6，伊维菌素的临床运用缓解中共病毒和疫苗的灾难，但是各国政府与媒体联合起来唬弄老百姓打疫苗，有计划有步骤的消灭人口达到大重置的目的。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-12-上午3.17.46.png)
 主持人：@WindTalker 宇宙之泾
 
-嘉宾战友：@ayaka6889 文花战友
+嘉宾战友：@lsylsy007 风雨之中
 
 美东时间晚上11:30 日本东京时间中午1:30 北京时间中午12:30
 
@@ -43,7 +43,7 @@ Every day we spreading the truth about CCPvirus (COVID-19)and CCP vaccines, ever
 
 【草根访谈】【方舟有你】【方舟歌汇】
 
-【方舟品读时光】【有问必答】【果色添香】 [#nfsc](https://gettr.com/hashtag/%23nfsc) [#MilesGuo](https://gettr.com/hashtag/%23MilesGuo) [#ccpvirus](https://gettr.com/hashtag/%23ccpvirus) [#CCPvaccines](https://gettr.com/hashtag/%23CCPvaccines) [#ccpliepeoplesdie](https://gettr.com/hashtag/%23ccpliepeoplesdie) [#takedowntheccp](https://gettr.com/hashtag/%23takedowntheccp)
+【方舟品读时光】【有问必答】【果色添香】 [#nfsc](https://gettr.com/hashtag/%23nfsc) [#MilesGuo](https://gettr.com/hashtag/%23MilesGuo) [#ccpvirus](https://gettr.com/hashtag/%23ccpvirus) [#CCPvaccines](https://gettr.com/hashtag/%23CCPvaccines)[#ccpliepeoplesdie](https://gettr.com/hashtag/%23ccpliepeoplesdie) [#takedowntheccp](https://gettr.com/hashtag/%23takedowntheccp)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/85A9DBF3-4860-4C4F-8B7B-962289F759D4_1_100_o-1-scaled.jpeg)
 
@@ -61,6 +61,8 @@ Every day we spreading the truth about CCPvirus (COVID-19)and CCP vaccines, ever
 ```
 知人者智自知者明篆刻：柒公子
 ```
+
+
 
 
 
