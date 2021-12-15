@@ -2,83 +2,31 @@
 ---
 
 
-## 【草根访谈】第292期新闻概要
-` WindTalker` [轉載自GNews](https://gnews.org/zh-hans/1756467/)
+## 在社会主义铁拳下断翼
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1756593/)
 
-**——日本东京方舟农场GTV直播组出品**
+撰稿：每天拆掉秦国城墙的一块砖
 
-策划/撰文：宇宙之泾
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture1-11.jpg)
 
-校对：石桥李次郎
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-12-上午3.18.17.png)
-GTV日本东京方舟农场直播间 【草根访谈】第292期新闻概要：
+图片来自网络
 
-今天的嘉宾是日本东京方舟农场的大才子「风雨之中」先生坐客方舟直播间，分享一下七哥12/10大直播的内容和观点。
+2021年12月13日，新浪微博上有人爆料，1991年出生的天才IT工程师毛星云，已跳楼自杀。
 
-时政观点：全球国家政府面临破产将会找一个替罪羊就是中共，验证文贵先生的爆料。风雨之中先生具体给战友们介绍当天早上与日本保守党派参加东京反共抵制北京冬奥会的游行示威活动情况，用行动告诉日本本土的人们，中共不等于中国人，中共不等于中国。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/21EAC9BD-C05F-4E33-B16F-B5FB8D1163A6_1_201_a.jpeg)
-文贵大直播内容选取如下：
+毛星云这个名字，对于中共国内的90、00后IT学子来讲，一点都不陌生。他是业界公认的“大神”，不但专业技术过硬，还乐于为他人答疑解惑。心怀梦想，渴望为中国的游戏产业尽自己的一份努力。前不久，他曾宣部成立游戏工作室，立志要做出属于中国人的3A开放世界游戏。突然之间，传来了他离世的消息，很多人对此表示难以置信。虽然从笔者开始落笔写这篇文章时，中共国内媒体开始宣称，他曾在死前患有抑郁症。但是，在最早的消息中，仍能寻找到一些与此相悖的蛛丝马迹。
 
-1，杨洁篪在塞浦路斯和非洲抓了新中国联邦几十个战友 、加拿大战友要小心，中共工作小组正在收集很多加拿大战友信息
+毛星云在2009年考入南京航空航天大学，曾经在大四期间写出《逐梦旅程：Windows游戏编程之从零开始》，后有在2014年写作《OpenCV3编程入门》。这两本书均在编程教程领域获得大量读者喜爱。同年，他还获得了“微软最有价值专家”荣誉，俗称微软MVP。他与腾讯合作成立天美F1工作室，渴望在世界游戏业为中国文化做贡献力量。好的产品还未结成果实，却因为团队探索过程中绩效过低达不到公司预期要求，团队成员年终奖大减。与上层领导交涉不成，在长期毫无人权的工作环境中看不到梦想实现的希望，他最终走向了悲剧结局。
 
-2，中共想要成功办好冬奥会的最大目的是：洗脱病毒来自中共、数学人民币国际化、冬奥会经济、万国来朝、然后在打台湾 、年轻人出奇一致地接受疫苗说明： 社交媒体、宗教、学习、工作，对大学生的洗脑程度最高的，四重围剿。
+在中共的体制下，即使是天才和专业技能超强的大神，也只会被当作社会主义的一块砖。所有职场上的评价标准，都是数字说话。996、90%的强制淘汰率，无薪加班，只要卷入其中不管是何方神圣，都只会置入绞肉机的陷阱中。要么榨干所有精力心血，几年后用赚来的钱为一身病痛埋单，要么在奋斗的路上被碾压致死，成为一将功成底下的那堆白骨。社会主义铁拳乱挥乱打，从不曾为一腔热血的理想真正保驾护航，需要潜心努力、花费时间钻研的领域，在中共的体制之下，永远是被轻视的存在。在梦想和现实之中，因为选择梦想，而社会主义铁拳所杀死的绝对不止毛星云一个人。没有理想，就只能做苟且生活的韭菜；而拥有理想，就会被中共的体制所杀死。
 
-3，俄罗斯明确跟美国说他们不会跟中共站在一起。七哥判断：2022年年底以前中共将被踢出WTO，2023年5月份以前中共应该会被踢出SWIFT系统。
+前有“蝼蚁”98年的b站up主墨茶，死后被媒体渲染黑料，今有天才91年的IT大神，死后被爆生前抑郁。当我们陷入无助、焦虑的时候，主流媒体会站出来，指责我们过于脆弱胆小。“自杀就是因为生前得过抑郁症”，“想不开是因为心灵太脆弱”。而这个体制，这个社会，从来没有任何过错。还会有更多渺小的个体，在共产主义的大厦丛林中坠落。不灭中共，个体的悲剧永远无休止。
 
-4，Google每次点击，Google已经收钱了，这就是个人数据消费，躺平币的来源 就是被大数据公司拿走出卖的价值 ；躺平币是根据你行动的结果 一切的行为结果都能计算成结果。
+参考消息来源：[毛星云百度百科](https://baike.baidu.com/item/%E6%AF%9B%E6%98%9F%E4%BA%91/14187860)
 
-5，国内公检法等对战友们枪口抬高一寸的，都会得到百倍的躺币，十倍的喜币，每一个都会得到 、躺平币的计划是新中国联邦64两周年推出。
+发稿：Hong
 
-6，伊维菌素的临床运用缓解中共病毒和疫苗的灾难，但是各国政府与媒体联合起来唬弄老百姓打疫苗，有计划有步骤的消灭人口达到大重置的目的。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-12-上午3.17.46.png)
-主持人：@WindTalker 宇宙之泾
+![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-1.jpg)
 
-嘉宾战友：@lsylsy007 风雨之中
-
-美东时间晚上11:30 日本东京时间中午1:30 北京时间中午12:30
-
-Every day we spreading the truth about CCPvirus (COVID-19)and CCP vaccines, every day is Shouting for the people of Hong Kong who killed from CCP, and every day is hard working for the Chinese people to destroy the evil Chinese Communist Party! Welcome to our New Federal State of the China. Welcome to our Himalaya Tokyo JHL.
-
-【草根访谈】日本东京方舟农场欢迎你！
-
-【草根访谈】【方舟有你】【方舟歌汇】
-
-【方舟品读时光】【有问必答】【果色添香】 [#nfsc](https://gettr.com/hashtag/%23nfsc) [#MilesGuo](https://gettr.com/hashtag/%23MilesGuo) [#ccpvirus](https://gettr.com/hashtag/%23ccpvirus) [#CCPvaccines](https://gettr.com/hashtag/%23CCPvaccines)[#ccpliepeoplesdie](https://gettr.com/hashtag/%23ccpliepeoplesdie) [#takedowntheccp](https://gettr.com/hashtag/%23takedowntheccp)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/85A9DBF3-4860-4C4F-8B7B-962289F759D4_1_100_o-1-scaled.jpeg)
-
-
-```
-只有那些疯狂到认为自己可以改变世界的人，才能真正改变这个世界。
-```
-
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/73A43459-2029-4DBE-89E4-993EF95E97A9_1_201_a.jpeg)
-
-
-```
-知人者智自知者明篆刻：柒公子
-```
-
-
-
-
-
-
-
-
-2021年12月| 一 | 二 | 三 | 四 | 五 | 六 | 日 |
-| --- | --- | --- | --- | --- | --- | --- |
-|   | [1](https://gnews.org/zh-hans/date/2021/12/01/) | [2](https://gnews.org/zh-hans/date/2021/12/02/) | [3](https://gnews.org/zh-hans/date/2021/12/03/) | [4](https://gnews.org/zh-hans/date/2021/12/04/) | [5](https://gnews.org/zh-hans/date/2021/12/05/) |
-| [6](https://gnews.org/zh-hans/date/2021/12/06/) | [7](https://gnews.org/zh-hans/date/2021/12/07/) | [8](https://gnews.org/zh-hans/date/2021/12/08/) | [9](https://gnews.org/zh-hans/date/2021/12/09/) | [10](https://gnews.org/zh-hans/date/2021/12/10/) | [11](https://gnews.org/zh-hans/date/2021/12/11/) | [12](https://gnews.org/zh-hans/date/2021/12/12/) |
-| [13](https://gnews.org/zh-hans/date/2021/12/13/) | [14](https://gnews.org/zh-hans/date/2021/12/14/) | [15](https://gnews.org/zh-hans/date/2021/12/15/) | 16 | 17 | 18 | 19 |
-| 20 | 21 | 22 | 23 | 24 | 25 | 26 |
-| 27 | 28 | 29 | 30 | 31 |   |
-
-[« 11月](https://gnews.org/zh-hans/date/2021/11/)  
- 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

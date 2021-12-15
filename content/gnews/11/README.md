@@ -2,110 +2,47 @@
 ---
 
 
-## COVID-19 最新情报｜mRNA 疫苗技术发明人之一马龙博士就儿童疫苗发布紧急声明
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1756400/)
+## 山外青山“楼外楼” 青山不算山楼外更有“高楼”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1756540/)
 
-**撰文｜疫情关注组 / 发布时间｜15/12/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup）](https://gettr.com/user/mightygroup%EF%BC%89)**
+撰稿/配图：东京樱花团/ Ob
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3-21.png)
+大纪元2021年12月14日讯，上海“小红楼”淫窝案，近期在中国内地的网络上再度成为热议话题。相关话题遭微博封锁，高达6亿的浏览量被删，上海媒体也集体噤声。但据熟悉上海官场的知情人披露，上海实际上还有很多“大红楼”和“巨大的红楼”，专门接待中共高级别的官员，赵富强的“小红楼”，只不过是上海贪腐深池中的“小鱼小虾”。
 
-继早前全球 15,000 名医生和医学科学家发表联署声明，公开宣布不应为健康儿童接种 COVID-19 疫苗之后，mRNA疫苗技术发明人之一，多年致力于疫苗开发研究的罗伯特·马龙（Robert Malone）博士向家长们发布了一份紧急声明，慎重详述了拒绝为儿童接种疫苗背后的科学事实。
+现年48岁的赵富强是上海誉升投资管理有限公司的实际控制人。他来自江苏泰兴农村，早年做裁缝，上世纪90年代到上海面积最大、人口最多、工业比较集中的中心城区杨浦区谋发展。
 
-声明精华版
+此后十余年间，赵富强先是从裁缝转为经营两间提供卖淫服务的美发店，钱多了，又转向商铺租赁生意。
 
-声明足本版 请点击【GTV官方帐号】 观看
+他收买大批打手，控制了杨浦区一千多家门面房。2014年，赵富强买下黄浦江北侧许昌路632号这栋位于区政府附近的7层小楼办私人会所，再通过暴力、欺骗、收买等多种方式组织安排多名女性，为自己提供性服务，并长期为官员和国企工作人员提供嫖宿、性贿赂。632号楼被贴上红色墙砖，改名“创富大厦”，坊间称为“小红楼”。
 
-**声明文字版全文：**
+赵富强的第一单生意竟是把妻子推给其它男人完成皮肉交易，赚了第一笔钱。他诱骗、蛊惑一批农村姑娘，甚至应聘的女海归，通过殴打、强暴、拍裸照视频威胁等方式控制她们，逼迫她们“下海卖身”。
 
-My name is Robert Malone, and I am speaking to you as a parent, grandparent, physician and scientist. 
-我的名字是罗伯特·马龙，我以同为父母、祖父母、医生和科学家的身份作以下发言。
+有网民问，上海白马会所都凉了，赵富强的1000家门店是怎么做到“平安无事”的？得出的结论是：“违法生意要想做大做强，就一定要寻求保护伞。”
 
-I don’t usually read from a prepared speech, but this is so important that I wanted to make sure that I get every single word and scientific fact correct. 我通常不会阅读讲稿，但这非常重要，我想确保我说每一个字和科学事实都是正确的。
+上海至少有十多个“大红楼” 一名熟悉上海官场的知情人士向大纪元记者透露，赵富强这种“小红楼”在上海很多，其中不少“不是‘小红楼’，是‘大红楼’，我认识很多人，他们自己搞的‘大红楼’。赵富强接待的这些都是杨浦区的基层官员，在上海根本排不上号。”
 
-I stand by this statement with a career dedicated to vaccine research and development. 
-我以从事疫苗研究与开发的专业认证此份声明。
+“所以赵富强这种级别的人在上海很普遍的，赵富强这个小红楼在上海的官面中属于小虾米这样的级别。”知情人说，“我去过的一个会所，那个会所以前陈良宇经常去，它接待的全部都是上海市级干部，里面不光是中国的妓女，俄罗斯妓女也一大堆，像赵富强跟他比怎么能比啊？比不了的。上海还有‘大红楼’，还有巨大的‘红楼’，专门接待央企干部，接待部长，接待那些副国级、国级干部。”
 
-I’m vaccinated for COVID and I’m generally pro-vaccination. 
-我接种了新冠疫苗，我不是反疫苗人士
+“有的‘大红楼’都是在高尔夫球场里面的会所，在上海的松江、青浦，整个别墅区几十亩、几百亩土地圈起来，里面搞个‘大红楼’，在上海太多了。”
 
-I have devoted my entire career to developing safe and effective ways to prevent and treat infectious diseases.
-我的整个职业生涯都致力于开发安全有效的方法来预防和治疗传染病。
+《北京之春》主编陈维健也有类似的看法。他对大纪元记者表示：“像红楼这样的事情我觉得全国各地都有，而且永远不可能根绝。因为有需要嘛。”
 
-After this, I will be posting the text of this statement so you can share it with your friends and family.
-在此之后，我将发布此声明的文本，以便您可以与您的朋友和家人分享。
+他说，“现在的贪官觉得今天不知道明天的事情，那么就醉生梦死。而且这些人的精神境界很低，也有大批的官员追求这方面的享受，所以说像小红楼这样的夜总会是不会灭绝的，（中共）它打击也只是打表面上的东西，实际上都是处在公安、政府的包庇之下。”
 
-Before you inject your child – **a decision that is irreversible** – I wanted to let you know the scientific facts about this genetic vaccine, which is based on the mRNA vaccine technology I created.
-在您决定给孩子注射疫苗之前——这是一个无法挽回的决定——我想让你知道关于这种疫苗的科学事实， 它建基于我参与发明的 mRNA 疫苗技术。
+谈到上海“大红楼”的奢侈，知情人披露：“上海以前有一个地方叫‘地中海’，我经常被人请去的，……我曾经去陈良宇、以前上海市级官员经常去的地方。”
 
-There are three issues parents need to understand before you take this irreversible decision .
-作为家长，在您做出这不可挽回之决定之前，您需要知道三个重点：
+“有大领导来，整个区域全部都封闭，一个楼，可能有几千、一万平方全部就接待他一个人。我去过的市级的，就是专门搞腐败的，他们对外不营业，全部都是对内的，他根本不要营业的，里面有私人桑拿、私人泳池。……他们搜罗全上海、全中国最漂亮的美女，再去找一些老外，就是大长腿的俄罗斯人，当时大概找了有六七个俄罗斯女的。我去过很多这些地方，在上海我去过的这些地方不下10个。”
 
-The first is that a viral gene will be injected into your children’s cells.
-第一，接种疫苗就是将一种病毒基因注射进您孩子的细胞中。
+一部《红楼梦》写遍大江南北，众生皆爱楼，官员更爱红楼。一部官宦荣衰史，道尽多少人的心酸与勾当。贾雨村言，葫芦僧判葫芦案，一群官场弄潮儿，耍尽多少手腕，用尽多少伎俩；小红楼只不过是他们杂耍勾兑的“游乐场”，却是普通民众，良家民女的梦魇。山外青山“楼外楼”，一楼更比一楼高，平步想“青云”，这山看着那山高，登山犹如官场行，谁都希望最高峰。
 
-This gene forces your child’s body to make toxic spike proteins.
-这种基因会诱导您孩子的身体产生有毒的刺突蛋白。
+消息来源：
 
-**These proteins often cause permanent damage in children’s critical organs, including:
-这些蛋白通常会对儿童的重要器官造成永久性损伤，包括：**
+[内部人析小红楼性奴案 沪至少10个“大红楼”](https://www.epochtimes.com/gb/21/12/14/n13436019.htm)
 
-**– Their brain and nervous system
-– Their heart and blood vessels, including blood clots
-– Their reproductive system
-– And this vaccine can trigger fundamental changes to their immune system
-– 儿童的大脑和神经系统 **
-**– 儿童的心脏和血管，包括血栓 **
-**– 儿童的生殖系统 **
-**– 这种疫苗可以诱发免疫系统的根本性变化**
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-63.jpg)
 
-The most alarming point about this is that,
-最值得忧虑的是，
-
-**once these damages have occurred, they are irreparable.
-这些损害一旦发生， 就无可挽回。**
-
-**– You can’t fix the lesions within their brains
-– You can’t repair heart tissue scarring
-– You can’t repair a genetically reset immune system
-– This vaccine can cause reproductive damage that could affect future generations of your family
-– 你无法修复他们大脑的病变**
-**– 你无法修复心脏组织疤痕 **
-**– 你无法修复遗传重置免疫系统**
-**– 这种疫苗对生殖系统造成的损害，会影响您家族的后代繁衍**
-
-The second thing you need to know about is the fact that this novel technology has not been adequately tested.
-第二个您需要了解的重点是，（ mRNA 疫苗）技术尚未经过充分测试。
-
-– We need at least 5 years of testing/research before we can really understand the risks
-– Harms and risks from new medicines often become revealed many years later
-– 我们需要至少 5 年的测试/研究才能真正了解它的风险
-– 新药的危害和风险往往在多年后才会显露出来
-
-Ask yourself if you want your own child to be part of the most radical medical experiment in human history
-问问自己，你真的否希望自己的孩子参与这个人类历史上最激进的医学实验吗
-
-One final point: the reason they’re giving you to vaccinate your child is a lie.
-最后一点：他们所谓的，让你孩子接种疫苗的理由是谎言。
-
-Your children represent no danger to their parents or grandparents.
-您的孩子对他们的父母或祖父母没有危险
-
-It’s actually the opposite.
-实际上，恰恰相反。
-
-Their immunity, after getting COVID, is critical to save your family if not the world from this disease
-感染新冠病毒后，儿童的免疫力对于拯救家人免于疾病危害是至关重要的。
-
-In summary: there is no benefit for your children or your family to be vaccinating your children against the small risks of the virus, given the known health risks of the vaccine that as a parent, you and your children may have to live with for the rest of their lives.
-总而言之，鉴于已知疫苗会引发的健康风险，因为病毒的小风险，而去接种疫苗，这对您的孩子或您的家人没有任何好处，您和您孩子的余生都将与之共存。
-
-The risk/benefit analysis isn’t even close with this vaccine for children.
-儿童接种疫苗的风险/收益分析完全是悖离事实的。
-
-As a parent and grandparent, my recommendation to you is to resist and fight to protect your children.
-作为父母和祖父母，我建议您坚定抵制（疫苗）以保护您的孩子。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-9.jpg)
-来源｜推特（目前已被删除）
 
  
 

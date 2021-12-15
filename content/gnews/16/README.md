@@ -2,35 +2,83 @@
 ---
 
 
-## 币安（Biance）新加坡分公司撤销执照申请，关闭交易平台
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1756344/)
+## 【草根访谈】第292期新闻概要
+` WindTalker` [轉載自GNews](https://gnews.org/zh-hans/1756467/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/5VUZIYGEZVKCDICHODGO4EC64Q.jpg)图片来源: www.reuters.com 路透社
-香港，12月13日（路透社）——世界上最大的加密货币交易所之一，币安的新加坡分公司周一表示，将撤回当地的牌照申请，并关闭数字代币支付业务。该公司在全球范围内受到越来越多的审查，声明中并没有给出此决定的具体原因。只说 从战略、商业和发展角度考虑，把本地业务重新聚焦为区块链创新中心。
+**——日本东京方舟农场GTV直播组出品**
 
-今年以来，世界各国政府和金融监管机构加强了对加密货币行业的审查，对那些在不受监管的环境中发展起来的交易所构成了挑战。由于监管和运营环境相对开放，新加坡吸引了众多加密货币公司，并且是全球制定正式许可框架的先行者之一。包括币安在内100多家加密货币公司申请在新加坡的运营许可，在许可证审批期间允许其开展业务。
+策划/撰文：宇宙之泾
 
-新加坡今年发放了第一批许可证，其中包括东南亚最大银行星展银行（DBSM.SI）的经纪子公司，但其他几十家公司撤回申请或被拒绝。币安（Binance）表示，其在新加坡的法币和加密货币交易平台将在2月中旬关闭。9月，该公司表示，由于当地的监管，新加坡的用户将无法在其全球平台上进行交易。新加坡金融管理局的一位发言人说，Binance Asia Services已经向他们提供了有序停止其受监管的支付服务的计划，这“将使客户有足够的时间寻求替代交易平台，或者如果他们愿意，清算他们所持有的资产”。
+校对：石桥李次郎
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-12-上午3.18.17.png)
+GTV日本东京方舟农场直播间 【草根访谈】第292期新闻概要：
 
-“我认为（币安Binance撤回其申请）这再次标志着新加坡的许可证制度是相当严格的，”新加坡区块链行业协会主席谢福来（Chia Hock Lai）说。“尽管如此，币安（Binance）也表示，新加坡将继续作为他们的区块链创新中心，可见新加坡是一个非常重要的区块链中心。”
+今天的嘉宾是日本东京方舟农场的大才子「风雨之中」先生坐客方舟直播间，分享一下七哥12/10大直播的内容和观点。
 
-香港、英国、德国和日本等国的金融监管机构已经把监管目标对准了币安（Binance），提出了消费者保护和反洗钱等问题。一些国家已经禁止该平台从事某些活动，而另一些国家则警告消费者，它是无证经营。
+时政观点：全球国家政府面临破产将会找一个替罪羊就是中共，验证文贵先生的爆料。风雨之中先生具体给战友们介绍当天早上与日本保守党派参加东京反共抵制北京冬奥会的游行示威活动情况，用行动告诉日本本土的人们，中共不等于中国人，中共不等于中国。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/21EAC9BD-C05F-4E33-B16F-B5FB8D1163A6_1_201_a.jpeg)
+文贵大直播内容选取如下：
 
-原文链接：[https://www.reuters.com/markets/currencies/binance-affiliate-says-will-withdraw-singapore-licence-application-2021-12-13/](https://www.reuters.com/markets/currencies/binance-affiliate-says-will-withdraw-singapore-licence-application-2021-12-13/)
+1，杨洁篪在塞浦路斯和非洲抓了新中国联邦几十个战友 、加拿大战友要小心，中共工作小组正在收集很多加拿大战友信息
 
-**简评：**新加坡对加密货币有严格但明确的监管，且主要集中在洗钱和恐怖主义融资风险上。这次币安主动撤销申请并关闭交易平台，让人不禁产生联想是否跟此有关。正值世界各国对加密货币加强监管之时而诞生的喜联储作为新型加密货币交易平台，对注册用户有严格的KYC审核，相信一定会有无限的发展空间。
+2，中共想要成功办好冬奥会的最大目的是：洗脱病毒来自中共、数学人民币国际化、冬奥会经济、万国来朝、然后在打台湾 、年轻人出奇一致地接受疫苗说明： 社交媒体、宗教、学习、工作，对大学生的洗脑程度最高的，四重围剿。
 
-* * *
+3，俄罗斯明确跟美国说他们不会跟中共站在一起。七哥判断：2022年年底以前中共将被踢出WTO，2023年5月份以前中共应该会被踢出SWIFT系统。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+4，Google每次点击，Google已经收钱了，这就是个人数据消费，躺平币的来源 就是被大数据公司拿走出卖的价值 ；躺平币是根据你行动的结果 一切的行为结果都能计算成结果。
+
+5，国内公检法等对战友们枪口抬高一寸的，都会得到百倍的躺币，十倍的喜币，每一个都会得到 、躺平币的计划是新中国联邦64两周年推出。
+
+6，伊维菌素的临床运用缓解中共病毒和疫苗的灾难，但是各国政府与媒体联合起来唬弄老百姓打疫苗，有计划有步骤的消灭人口达到大重置的目的。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-12-上午3.17.46.png)
+主持人：@WindTalker 宇宙之泾
+
+嘉宾战友：@lsylsy007 风雨之中
+
+美东时间晚上11:30 日本东京时间中午1:30 北京时间中午12:30
+
+Every day we spreading the truth about CCPvirus (COVID-19)and CCP vaccines, every day is Shouting for the people of Hong Kong who killed from CCP, and every day is hard working for the Chinese people to destroy the evil Chinese Communist Party! Welcome to our New Federal State of the China. Welcome to our Himalaya Tokyo JHL.
+
+【草根访谈】日本东京方舟农场欢迎你！
+
+【草根访谈】【方舟有你】【方舟歌汇】
+
+【方舟品读时光】【有问必答】【果色添香】 [#nfsc](https://gettr.com/hashtag/%23nfsc) [#MilesGuo](https://gettr.com/hashtag/%23MilesGuo) [#ccpvirus](https://gettr.com/hashtag/%23ccpvirus) [#CCPvaccines](https://gettr.com/hashtag/%23CCPvaccines)[#ccpliepeoplesdie](https://gettr.com/hashtag/%23ccpliepeoplesdie) [#takedowntheccp](https://gettr.com/hashtag/%23takedowntheccp)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/85A9DBF3-4860-4C4F-8B7B-962289F759D4_1_100_o-1-scaled.jpeg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+```
+只有那些疯狂到认为自己可以改变世界的人，才能真正改变这个世界。
+```
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/73A43459-2029-4DBE-89E4-993EF95E97A9_1_201_a.jpeg)
+
+
+```
+知人者智自知者明篆刻：柒公子
+```
+
+
+
+
+
+
+
+
+2021年12月| 一 | 二 | 三 | 四 | 五 | 六 | 日 |
+| --- | --- | --- | --- | --- | --- | --- |
+|   | [1](https://gnews.org/zh-hans/date/2021/12/01/) | [2](https://gnews.org/zh-hans/date/2021/12/02/) | [3](https://gnews.org/zh-hans/date/2021/12/03/) | [4](https://gnews.org/zh-hans/date/2021/12/04/) | [5](https://gnews.org/zh-hans/date/2021/12/05/) |
+| [6](https://gnews.org/zh-hans/date/2021/12/06/) | [7](https://gnews.org/zh-hans/date/2021/12/07/) | [8](https://gnews.org/zh-hans/date/2021/12/08/) | [9](https://gnews.org/zh-hans/date/2021/12/09/) | [10](https://gnews.org/zh-hans/date/2021/12/10/) | [11](https://gnews.org/zh-hans/date/2021/12/11/) | [12](https://gnews.org/zh-hans/date/2021/12/12/) |
+| [13](https://gnews.org/zh-hans/date/2021/12/13/) | [14](https://gnews.org/zh-hans/date/2021/12/14/) | [15](https://gnews.org/zh-hans/date/2021/12/15/) | 16 | 17 | 18 | 19 |
+| 20 | 21 | 22 | 23 | 24 | 25 | 26 |
+| 27 | 28 | 29 | 30 | 31 |   |
+
+[« 11月](https://gnews.org/zh-hans/date/2021/11/)  
+ 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

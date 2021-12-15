@@ -2,24 +2,31 @@
 ---
 
 
-## COVID-19 最新情报｜南苏丹现神秘恶疾速夺 89 命 WHO 急派人手赶赴调查
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1756470/)
+## 中共国以发布非法信息为由对微博罚款5300万日元
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1756598/)
 
-**撰文｜疫情关注组 / 发布时间｜15/12/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup）](https://gettr.com/user/mightygroup%EF%BC%89)**
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2021/12/5-19.png)
+图片来自本文网站
 
-外媒报导，世界卫生组织向南苏丹部署了一个快速反应小组，以调查当地近期出现的一种神秘恶疾，目前该疾病已导致至少 89 人在短时间内死亡。
+《电视朝日》网站15日报道，中共国的互联网管理部门今天宣布，以发布非法信息为由，对中国版Twitter的运营商微博罚款5300万日元，以此手段来加强对IT巨头的管控。
 
-事件发生地，是位于苏丹南部琼莱州（Jonglei state）的一个名为法加克的小镇，该地区近期遭洪灾袭击，加上当地较为贫困，普遍民众的卫生及营养状况堪忧，因此预料会有疟疾等传染性疾病肆虐，但是，当地近期却爆发了一种不知名的疾病，不但传播迅速，而且致死率较高。
+他们说被发现发布的信息违反了《互联网空间安全法》和《未成年人保护法》。但是并没有具体说明哪些具体内容存在问题。
 
-南苏丹卫生部第一时间对病人血液样本进行识别，发现包括霍乱、疟疾等常见传染病皆呈阴性，故像上级报告，求助WHO 以协助辨识及治疗。
+微博在一份声明中说，它会“认真对待这些批评”。
 
-世卫组织发言人希拉·巴亚 (Sheila Baya) 接受采访时指，由于当地洪水泛滥，小组成员可能只能通过直升机抵达法加克。
+上个月，女子职业网球运动员彭帅在微博上发布了一份忏悔书，其中她说到受到一位前副总理的压力而发生了性关系。
 
-她表示：“我们已决定派一个快速反应小组前去进行风险评估和调查。到那时他们就能从病人身上收集样本——目前我们得到的临时数字是有 89 人死亡。”
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Univers66al-Space-Channel-Banner.jpg)
-来源｜[NYPost](https://nypost.com/2021/12/14/at-least-89-killed-by-mystery-disease-as-who-deploys-taskforce-amid-fears-of-outbreak/)
+虽然该帖发出后很快就被删除了，但它通过微博传播，引起了国际关注。
+
+信息源：
+
+[中国　ウェイボーに罰金5300万円　違法な情報掲載で](https://news.yahoo.co.jp/articles/b62bdde18cbce1f4aab6a084c6f7f925948f4fd2#:~:text=%E3%)
+
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.jpg)
+
 
  
 
