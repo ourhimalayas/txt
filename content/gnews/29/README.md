@@ -2,24 +2,26 @@
 ---
 
 
-## 美国政府即将宣布将新一批中共国公司列入黑名单
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1757384/)
+## 中共病毒疫苗引发人体免疫系统自我攻击
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1757460/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Tom-Cotton-CPAC-640x3354-1.jpg)图片来源：www.voachinese.com
-据美国之音12月15日引述《金融时报》报道，拜登政府因新疆维吾尔自治区存在违反人权行为，惩罚协助中共政府在新疆侵犯人权的公司。美国财政部将在周四宣布8家中共国公司归入禁止投资的黑名单，其中包括世界上最大的无人机制造商大疆创新科技。商务部也会在同一天将20多家中共国公司列入出口管制清单，禁止美国公司向这些中共国公司提供技术和设备。
+编译撰稿：文文-自由法兰西
+![](https://assets.gnews.org/wp-content/uploads/2021/12/01-image.jpeg)
+[图片来源](https://kurier.at/kultur/medien/antisemitismusvorwuerfe-servus-tv-beendet-zusammenarbeit-mit-dem-epidemiologen-sucharit-bhakdi/401446195)
 
-参考链接：[报道：美国政府即将宣布将新一批中国公司列入黑名单](https://www.voachinese.com/a/us-blacklist-more-chinese-companies-20211215/6355538.html)
+据英国自媒体《每日内幕》12月12日报道，由医学专家组成的[疫情伦理医生]组织于日前在英国举行了第二次研讨会。
 
-* * *
+在本次会议中，[德国美因茨大学]医学微生物学和免疫学教授巴克迪表示，目前还没有任何证据表明“新冠病毒”疫苗在防止该病毒感染和因此死亡方面具有功效。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+此外，[美国疾病防控中心]最新公布的数据表明，在已接种和未接种该疫苗的感染人群当中，有着同等的Delta病毒数量，而且接种者也依然具有该病毒的传播性。
 
+据悉，“新冠病毒”疫苗接种的最大风险在于，疫苗中的“刺突蛋白”会进入血液和淋巴组织，并在人体内不断复制，继而引起免疫系统对制造这些刺突蛋白的细胞进行大规模的自我攻击，而最终导致接种者出现各种致命疾病。
 
-编辑：【英国伦敦喜庄园编辑部】
+校对编辑：硫酸羟氯喹64
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+发稿：苦尽甜来 (文來）
+
+[原文链接](https://dailyexpose.uk/2021/12/12/prof-sucharit-bhakdi-the-vaccines-do-not-work-and-the-fear-is-they-will-cause-a-massive-self-to-self-attack/)
 
  
 

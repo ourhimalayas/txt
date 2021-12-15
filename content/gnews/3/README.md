@@ -2,31 +2,21 @@
 ---
 
 
-## 数以亿计的设备面临软件漏洞是风险
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1757594/)
+## 为什么中共鼓励生第三胎 还要给孩子们打疫苗
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1757697/)
 
-撰稿：新西兰GIM网络安全组
-![](https://assets.gnews.org/wp-content/uploads/2021/12/210621154549-hackers-keyboard-super-tease.jpeg)
-美国警告说，数以亿计的设备面临新披露的软件漏洞的风险。而且，最近几次大规模以及高风险的黑客事件，比如#Microsoft，#Solarwind 被黑客，业界普遍认为事件的背后都有CCP黑客的影子。
+文编：东京樱花团/樱花传媒
 
-据 #GIM网络安全组 透露，这次发现的漏洞按业界标准评级达到了 #CVSS10 critical。这个标准是最严重最具危险的程度。
+视频:东京樱花团/中文小视频组
 
-之所以列为最危险，一个很重要原因是此漏洞涉及面特别广，事实上不仅仅是新闻稿中列举到的 #AWS 以及#IBM 的产品中有这个bug， 任何公司提供的任何产品中如果有 #log4j 这个模块，都有被利用进而被黑客的风险。
+12月5日，郭文贵先生在GTV大直播指出：
 
-最近一周来各个公司的安全从业人员都在忙着做两件事：
+对中共来说，跟经济效益相比，疫苗危害不如用疫苗赚钱重要，而且中共也不太认为打疫苗会出事。另外，中共鼓励生第三胎，完全是党的共同利益的需求。因为中共有病态、独裁、无视人民的魔鬼体制，才导致了既让你生孩子，却不想保护你孩子的安全之结果。新中国联邦人只要用逆向思维看中共，就会一目瞭然。
 
-1. 弄明白自己的生产开发环境中是否有存在有漏洞的log4j模块
+编辑：东京樱花团/墨然
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.jpg)
 
-2. 给log4j模块升级打补丁。
-
-这是一个非常好的例子，应证了目前IT项目组中设置漏洞安全扫描项目的专业性，因为漏洞扫描能力可以迅速，高效，全面的帮助项目组，评估自己的生产开发环境中是否有特定的或者最新安全漏洞。
-
-援引：[https://www.cnn.com/2021/12/13/politics/us-warning-software-vulnerability/index.html](https://www.cnn.com/2021/12/13/politics/us-warning-software-vulnerability/index.html)
-
-
-
-审核校对：Barry Jack
-上传排版：F
 
  
 

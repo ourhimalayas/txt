@@ -2,33 +2,25 @@
 ---
 
 
-## EMA数据显示：已有67名儿童死于实验性疫苗
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1757328/)
+## 美国政府即将宣布将新一批中共国公司列入黑名单
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1757384/)
 
-撰稿：文月
-![](https://assets.gnews.org/wp-content/uploads/2021/12/154.png)图片来自网络
-截止11月19日，欧洲药品管理局（EMA）已经报告了14128名接种疫苗后出现不良反应的儿童——由于同一被调查者可能出现多种副作用，当前记录的不良反应已达43270起。在5592个案例中，不良反应相当严重——其中的大部分，即4981例，是由辉瑞公司的疫苗引起的。平均而言，报告中的每个孩子都遭受了3.06次由疫苗造成的不良反应。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/155.jpg)图片来自网络
-根据上图EMA数据库我们发现，死亡病例中包括了50名以上的17岁以下的未成年人，其中甚至还有 4 名 2 个月至 2 岁的儿童和 16 名 1 个月以下的新生儿——他们的母亲曾经有过疫苗接种史。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Tom-Cotton-CPAC-640x3354-1.jpg)图片来源：www.voachinese.com
+据美国之音12月15日引述《金融时报》报道，拜登政府因新疆维吾尔自治区存在违反人权行为，惩罚协助中共政府在新疆侵犯人权的公司。美国财政部将在周四宣布8家中共国公司归入禁止投资的黑名单，其中包括世界上最大的无人机制造商大疆创新科技。商务部也会在同一天将20多家中共国公司列入出口管制清单，禁止美国公司向这些中共国公司提供技术和设备。
 
-英国卫生局（UKHSA）的数据显示，10月底有如此多的儿童死亡，以至于数据中出现了异常的超额死亡率。在第43周当中，5-14岁年龄组的儿童死亡人数比平时多。
+参考链接：[报道：美国政府即将宣布将新一批中国公司列入黑名单](https://www.voachinese.com/a/us-blacklist-more-chinese-companies-20211215/6355538.html)
 
-德国疫苗接种委员会（STIKO) 12月9日更新其CCP病毒疫苗的接种建议，要求为5至11岁已有疾病的儿童接种CCP病毒疫苗。 如果没有特殊原因，没有疾病的儿童也可以接种。
+* * *
 
-柏林已经决定从12月15日开始给12岁以下小学儿童接种疫苗，疫苗将在每个区选定的小学中进行大规模接种。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-根据研究，儿童感染冠状病毒多有密切接触史，危重型病例少见，无症状感染比例较高，很快就会恢复健康。
 
-而越来越多的报道则开始关注疫苗副作用，以及其对身体造成的不可逆转的伤害——疫苗根本没有作用，有作用就不会像现在传染率还这么高。那么为什么还要让所有儿童都去进行疫苗接种呢？
+编辑：【英国伦敦喜庄园编辑部】
 
-参考文献：
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-[Wochenblick.at](https://www.wochenblick.at/corona/kaum-covid-sterberisiko-schon-67-tote-kinder-durch-spritze/)
-
-[Rki.de](https://www.rki.de/DE/Content/Kommissionen/STIKO/Empfehlungen/PM_2021-12-09.html)
-
-*发稿：mgjxs*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

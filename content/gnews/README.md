@@ -15,154 +15,154 @@
 
 ---
 
-### [世界真正的较量就是中、美、俄](/content/gnews/1/README.md)
+### [外交抵制2022北京冬奥会究竟有多重要](/content/gnews/1/README.md)
+ ` 首尔天池农场`
+
+### [开冬奥会只会加速中共灭亡](/content/gnews/2/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文贵先生关于英国赌场重点描述](/content/gnews/2/README.md)
+### [为什么中共鼓励生第三胎 还要给孩子们打疫苗](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [数以亿计的设备面临软件漏洞是风险](/content/gnews/3/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [七哥讲恒大集团](/content/gnews/4/README.md)
+### [数字银行和博彩执照在新中国联邦是超级经济区块链](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国政府在新冠病毒首次爆发时已拥有“疫苗”的保密协议](/content/gnews/5/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [真正让中共灭顶的只有美国 俄罗斯](/content/gnews/6/README.md)
+### [G-Club会员能去的地方绝对是想象不到的地方](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新中国联邦人去到哪儿都受人尊重](/content/gnews/7/README.md)
+### [我们拿下了伦敦最老字牌的赌场](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [八成奥米克戎病例来自完全接种者](/content/gnews/8/README.md)
- ` GTV新闻访谈`
+### [德国奥拉夫·舒尔茨 (Olaf Scholz) 支持疫苗强制令但称自己为“未接种疫苗的总理”](/content/gnews/7/README.md)
+ ` Zero-Day【零时差】`
 
-### [立陶宛代表团已离开北京](/content/gnews/9/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [11岁男孩因不堪班主任当众辱骂跳楼身亡](/content/gnews/10/README.md)
- ` GTV新闻访谈`
-
-### [脸书辩称其言论审查仅为第三方意见陈述](/content/gnews/11/README.md)
- ` GTV新闻访谈`
-
-### [中共称霸南海有点悬，周边国家闷声开发正火热](/content/gnews/12/README.md)
- ` 澳喜农场`
-
-### [谎言和信任](/content/gnews/13/README.md)
- ` 纽约香草山MOS03`
-
-### [12/15每日播报｜新闻简讯:疫情阴霾 中共诱惑独裁国](/content/gnews/14/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [躺平已经成为中共国年轻人的无奈选择](/content/gnews/15/README.md)
- ` 澳喜特战旅Gnews`
-
-### [习的自信和疯狂来自普京和北朝鲜](/content/gnews/16/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [土耳其人权报告指控中共侵害新疆人权](/content/gnews/17/README.md)
- ` GTV新闻访谈`
-
-### [中共病毒疫苗引发人体免疫系统自我攻击](/content/gnews/18/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [新中国联邦护照指日可待](/content/gnews/19/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美 日 澳 印 之间复杂的战略合作关系](/content/gnews/20/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [共产党杀富治贫](/content/gnews/21/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [英国报告世界首例欧米克隆死亡病例](/content/gnews/22/README.md)
- ` GTV新闻访谈`
-
-### [澳洲示警冬奥选手 恐遭中共数字铁幕全天候监控](/content/gnews/23/README.md)
- ` GTV新闻访谈`
-
-### [因拒绝疫苗强制令，美国军人陆续被免职](/content/gnews/24/README.md)
- ` GTV新闻访谈`
-
-### [币安将撤出新加坡交易市场](/content/gnews/25/README.md)
- ` GTV新闻访谈`
-
-### [97.8%的年轻疫苗注射者一个月内出现心肌炎](/content/gnews/26/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [日本最大赌王想要博彩的股权被文贵先生谢绝了](/content/gnews/27/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [12/15每日播报|社媒消息:皮特纳瓦罗 娜塔莉温特斯,埃内斯坎特](/content/gnews/28/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [美国政府即将宣布将新一批中共国公司列入黑名单](/content/gnews/29/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [谷歌员工如果不遵守疫苗接种规定，将被减薪或被解雇](/content/gnews/30/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [12/15/21 香港快讯 廉署再拘3男1女涉煽动投白票 消息指前中大学生会会长苏浚锋被捕](/content/gnews/31/README.md)
- ` 英喜-粵語組`
-
-### [EMA数据显示：已有67名儿童死于实验性疫苗](/content/gnews/32/README.md)
- ` 澳喜特战旅Gnews`
-
-### [伊朗发布标有多个打击目标的以色列地图](/content/gnews/33/README.md)
+### [美加澳的高端豪宅市场，从现在起开始暴跌崩坍](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [12/15/2021 国际财经快讯：美国国会通过法案，禁止来自中共国新疆的产品；日本承认多年来虚报GDP构成数据](/content/gnews/34/README.md)
- ` 秘密翻译组金融团队`
+### [埃隆-马斯克反对强制疫苗接种政策](/content/gnews/9/README.md)
+ ` GTV新闻访谈`
 
-### [突发：多名美国记者遭国土安全部追查](/content/gnews/35/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [世界真正的较量就是中、美、俄](/content/gnews/10/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [科顿：民主峰会台湾画面被切，应该有人因此被解雇](/content/gnews/36/README.md)
+### [文贵先生关于英国赌场重点描述](/content/gnews/11/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [在中共舞台上卖力表演的红白脸们](/content/gnews/12/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [数以亿计的设备面临软件漏洞是风险](/content/gnews/13/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [蝴蝶君-时佩璞间谍案对爆料革命战友之借鉴](/content/gnews/14/README.md)
+ ` 纽约香草山MOS03`
+
+### [七哥讲恒大集团](/content/gnews/15/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美国政府在新冠病毒首次爆发时已拥有“疫苗”的保密协议](/content/gnews/16/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共国发出战前威胁：警惕惨烈的战场在台湾重演](/content/gnews/37/README.md)
+### [真正让中共灭顶的只有美国 俄罗斯](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [CCP病毒使中共国民航运输下跌过半](/content/gnews/38/README.md)
+### [新中国联邦人去到哪儿都受人尊重](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [CNN挺班农 要求公布被司法部保护的文件](/content/gnews/39/README.md)
+### [八成奥米克戎病例来自完全接种者](/content/gnews/19/README.md)
+ ` GTV新闻访谈`
+
+### [立陶宛代表团已离开北京](/content/gnews/20/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [11岁男孩因不堪班主任当众辱骂跳楼身亡](/content/gnews/21/README.md)
+ ` GTV新闻访谈`
+
+### [脸书辩称其言论审查仅为第三方意见陈述](/content/gnews/22/README.md)
+ ` GTV新闻访谈`
+
+### [中共称霸南海有点悬，周边国家闷声开发正火热](/content/gnews/23/README.md)
+ ` 澳喜农场`
+
+### [谎言和信任](/content/gnews/24/README.md)
+ ` 纽约香草山MOS03`
+
+### [12/15每日播报｜新闻简讯:疫情阴霾 中共诱惑独裁国](/content/gnews/25/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [躺平已经成为中共国年轻人的无奈选择](/content/gnews/26/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [习的自信和疯狂来自普京和北朝鲜](/content/gnews/27/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [土耳其人权报告指控中共侵害新疆人权](/content/gnews/28/README.md)
+ ` GTV新闻访谈`
+
+### [中共病毒疫苗引发人体免疫系统自我攻击](/content/gnews/29/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [97.8%的年轻疫苗注射者一个月内出现心肌炎](/content/gnews/30/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [真实与虚假的中共国](/content/gnews/40/README.md)
+### [12/15每日播报|社媒消息:皮特纳瓦罗 娜塔莉温特斯,埃内斯坎特](/content/gnews/31/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [美国政府即将宣布将新一批中共国公司列入黑名单](/content/gnews/32/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [谷歌员工如果不遵守疫苗接种规定，将被减薪或被解雇](/content/gnews/33/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [社交媒体影响者 与中共国领事馆签订官方合同](/content/gnews/41/README.md)
+### [12/15/21 香港快讯 廉署再拘3男1女涉煽动投白票 消息指前中大学生会会长苏浚锋被捕](/content/gnews/34/README.md)
+ ` 英喜-粵語組`
+
+### [EMA数据显示：已有67名儿童死于实验性疫苗](/content/gnews/35/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [伊朗发布标有多个打击目标的以色列地图](/content/gnews/36/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [12/15/2021 国际财经快讯：美国国会通过法案，禁止来自中共国新疆的产品；日本承认多年来虚报GDP构成数据](/content/gnews/37/README.md)
+ ` 秘密翻译组金融团队`
+
+### [突发：多名美国记者遭国土安全部追查](/content/gnews/38/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [CCP病毒使中共国民航运输下跌过半](/content/gnews/39/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [CNN挺班农 要求公布被司法部保护的文件](/content/gnews/40/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [真实与虚假的中共国](/content/gnews/41/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [社交媒体影响者 与中共国领事馆签订官方合同](/content/gnews/42/README.md)
  ` GTV News Talk`
 
-### [COVID-19 最新情报｜南苏丹现神秘恶疾速夺 89 命 WHO 急派人手赶赴调查](/content/gnews/42/README.md)
+### [COVID-19 最新情报｜南苏丹现神秘恶疾速夺 89 命 WHO 急派人手赶赴调查](/content/gnews/43/README.md)
  ` 關注組`
 
-### [因隐瞒参与中共千人计划的哈佛教授将出庭受审](/content/gnews/43/README.md)
+### [因隐瞒参与中共千人计划的哈佛教授将出庭受审](/content/gnews/44/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [COVID-19 最新情报｜mRNA 疫苗技术发明人之一马龙博士就儿童疫苗发布紧急声明](/content/gnews/44/README.md)
+### [COVID-19 最新情报｜mRNA 疫苗技术发明人之一马龙博士就儿童疫苗发布紧急声明](/content/gnews/45/README.md)
  ` 關注組`
 
-### [比利时和奥地利表态不派官员出席北京冬奥](/content/gnews/45/README.md)
+### [比利时和奥地利表态不派官员出席北京冬奥](/content/gnews/46/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [港共政府强制英美入境者进入官方隔离营](/content/gnews/46/README.md)
+### [港共政府强制英美入境者进入官方隔离营](/content/gnews/47/README.md)
  ` GTV新闻访谈`
 
-### [认清共产主义的洗脑方式](/content/gnews/47/README.md)
+### [认清共产主义的洗脑方式](/content/gnews/48/README.md)
  ` GTV新闻访谈`
 
-### [郭先生新歌再创佳绩](/content/gnews/48/README.md)
+### [郭先生新歌再创佳绩](/content/gnews/49/README.md)
  ` GTV新闻访谈`
 
-### [安倍再次警告中共对台动武就是自取灭亡](/content/gnews/49/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [机密文件显示华为深度参与中共监控项目](/content/gnews/50/README.md)
+### [安倍再次警告中共对台动武就是自取灭亡](/content/gnews/50/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [英国单日新增感染中共病毒人数创今年新高](/content/gnews/51/README.md)

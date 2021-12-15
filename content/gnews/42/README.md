@@ -2,24 +2,42 @@
 ---
 
 
-## COVID-19 最新情报｜南苏丹现神秘恶疾速夺 89 命 WHO 急派人手赶赴调查
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1756470/)
+## 社交媒体影响者 与中共国领事馆签订官方合同
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1756634/)
 
-**撰文｜疫情关注组 / 发布时间｜15/12/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup）](https://gettr.com/user/mightygroup%EF%BC%89)**
+作者: 纽约香草山农场翻译部—祈望明天会更好
 
-外媒报导，世界卫生组织向南苏丹部署了一个快速反应小组，以调查当地近期出现的一种神秘恶疾，目前该疾病已导致至少 89 人在短时间内死亡。
 
-事件发生地，是位于苏丹南部琼莱州（Jonglei state）的一个名为法加克的小镇，该地区近期遭洪灾袭击，加上当地较为贫困，普遍民众的卫生及营养状况堪忧，因此预料会有疟疾等传染性疾病肆虐，但是，当地近期却爆发了一种不知名的疾病，不但传播迅速，而且致死率较高。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-17.jpg)
 
-南苏丹卫生部第一时间对病人血液样本进行识别，发现包括霍乱、疟疾等常见传染病皆呈阴性，故像上级报告，求助WHO 以协助辨识及治疗。
 
-世卫组织发言人希拉·巴亚 (Sheila Baya) 接受采访时指，由于当地洪水泛滥，小组成员可能只能通过直升机抵达法加克。
+12月14日杰克·波索贝克(Jack Posobiec)在班农作战室节目中, 谈到我们从司法部所提交的一份外国代理人注册信息文件中得到了一条新消息:社交媒体影响者营销公司与中共国领事馆正式签订官方合同.
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-15-at-5.10.27-PM.png)图片来源GTV
+这家总部位于新泽西州的美国公司, 从中共国收取数十万美元, 来支付 Twitch, Instagram和抖音等媒体, 用以宣传北京奥运会, 并淡化在“彭帅事件”上的追查力度.
 
-她表示：“我们已决定派一个快速反应小组前去进行风险评估和调查。到那时他们就能从病人身上收集样本——目前我们得到的临时数字是有 89 人死亡。”
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Univers66al-Space-Channel-Banner.jpg)
-来源｜[NYPost](https://nypost.com/2021/12/14/at-least-89-killed-by-mystery-disease-as-who-deploys-taskforce-amid-fears-of-outbreak/)
+诚如郭先生在12月12日大直播中所说, 一半抵制冬奥会的是因为彭帅事件, 这就是多米诺骨牌效应的开始.
+
+杰克在班农作战室节目中又说, 中共国领事馆为了帮中共宣传这冬奥会, 无所不用其极地用大量资金注入媒体来宣传冬奥, 淡化彭帅事件, 并诋毁反对中共国的人们, 他们会被称为种族主义者, 所有能贬低人的名称都会用上. 例如, 史蒂夫·班农以种族灭绝抵制冬奥会的报导, 中共国就宣称班农是想要更多的白人婴儿. 中共国所做的一切都是为了达到宣传北京奥运会而使出的卑劣技俩.
+
+**参考阅读**: [https://gtv.org/video/id=61b8b7fa56f4921401b7ba4a](https://gtv.org/video/id=61b8b7fa56f4921401b7ba4a)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-6.png)
+总编: 飞虹
+
+编辑/校对/发稿: 卡夫卡的甲壳虫
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
 
  
 
