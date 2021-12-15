@@ -2,41 +2,30 @@
 ---
 
 
-## 参议院投票将债务上限提高2.5万亿
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1755927/)
+## 有声|中共为冬奥会令周边企业停产 民众苦不堪言
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1755953/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/11-5.png)图片来源：Carolyn Kaster/AP
-翻译：皮特
-编辑：Mttfly
+配音：香草山教育部 – Rita七号小青蛙
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+12月12日，有盖特网友发布了一则微信聊天截图，显示中共为了顺利举办冬奥会，要从12月15日开始关停北京周边省份60%的生产企业，直到2022年3月8日。这将导致大量民众短期甚至永久性失业，在经济下滑、通胀持续的情况下收入大幅减少，生活会更加艰难。
 
-参议院民主党人周二就一项决议进行投票，该决议将把债务上限提高2.5万亿美元。
+据悉，近些年来，中共国内空气污染越发严重。每到中共高层举办大型活动，尤其是国际性活动时，为了营造空气治理效果良好的假象，周边多个省份的相关企业都会被限产、停产，以减少污染排放。但为减少影响，他们只会私下通知企业，而不会公开发布命令。这已经成为一个惯例，本次冬奥会自然也不会例外。
 
-这次投票是在财政部长珍妮特·耶伦（Janet Yellen）预测美国可能陷入违约的前一天进行的。
 
-参议院多数党领袖查克·舒默（Chuck Schumer）周二在会上说，这次提高将使美国能够借到足够的钱，为其支出提供资金到2023年，即中期选举之后。
 
-最后的结果是50名民主党人对49名共和党人，其中一名共和党参议员弃权，因此副总统卡玛拉·哈里斯（Kamala Harris）不必打破平局。
+文字版原文：[中共为冬奥会令周边企业停产 民众苦不堪言](https://gnews.org/zh-hans/1753214/)
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-该决议现在被提交众议院，预计将在星期二晚上的投票中获得通过。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-上周，舒默和参议院少数党领袖米奇·麦康奈尔（Mitch McConnell）达成协议，他们在另一项法案中附加了一项规则变更，允许民主党人修改规则，单方面提高上限。这使得债务上限决议以简单多数票向前推进，而不是通常情况下需要60票才能通过临时程序。
-
-这让民主党人避免了共和党人的阻挠的威胁，麦康奈尔称这是一场胜利，因为他只想让民主党人投票支持增加债务上限，使得共和党能够在2022年中期选举前就债务问题对民主党人发难。
-
-前总统特朗普和其他共和党人抱怨说，麦康奈尔允许民主党人利用快速通道，而不是使用更正常的和解程序来通过该法案。
-
-**原文链接：**[BREAKING NEWS: Senate votes 50-49 to RAISE the debt ceiling by $2.5TRILLION and stave off default until 2023: All Republicans oppose measure that heads to the House](https://www.dailymail.co.uk/news/article-10308961/Democrats-raise-debt-ceiling-2-5-TRILLION.html)
-
-**发布：**去中心化Math
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
