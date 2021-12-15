@@ -2,95 +2,50 @@
 ---
 
 
-## 俄罗斯将与欧盟联合举办欧洲人权峰会，打脸了中共
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1756851/)
+## 美国铁路暂停对员工进行疫苗强制接种
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1756898/)
 
-[https://gtv.org/video/id=61b8849fa68b4f4b28e84ce1](https://gtv.org/video/id=61b8849fa68b4f4b28e84ce1)
+**翻译：Lulumi**
 
-**郭文贵
-Miles Guo**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip07-4.png)2015年9月3日，马里兰州新卡罗尔顿的一列美铁列车上，一名列车员发出信号。(Alex Wong/Getty Images)
 
-你知道这次人权会议完全是作秀的，胡扯的
-You know that this human rights summit is a show, it’s nonsense
+客运铁路运营商Amtrak（美国铁路）周二表示，它将暂停对员工的COVID-19疫苗接种强制任务，并预计1月份的服务将不再中断。
 
-你知道俄罗斯要干啥事吗？俄罗斯要跟欧盟联合起来要搞一搞
-Do you know what Russia is going to do? Russia wants to unite with the EU
+Amtrak首席执行官比尔·弗林在《大纪元时报》获得的一份备忘录中说，没有接种疫苗的员工可以选择接受测试。他说只有不到500名Amtrak员工没有接种疫苗。
 
-所谓的欧洲的人权高峰会，俄罗斯永远认为就斗这三个事儿
-The so-called European Human Rights Summit, Russia always believes that they’re going to fight these three things
+弗林写道，影响Amtrak决定的是联邦法院最近的一项命令，即“停止对联邦承包商执行行政命令”，这导致该公司重新评估其对疫苗规定的政策。
 
-世界谁是老大，现在当然美国是老大，它不是
-Who is the boss in the world, now of course the United States is the boss, Russia is not
+弗林说，这意味着Amtrak将恢复它在8月宣布的原始疫苗任务，允许对未接种疫苗的员工进行定期测试。这将允许“进行测试作为接种疫苗的替代方案”，备忘录说。
 
-第二个就是欧洲必须是我俄罗斯的，你英国也好，你法国也好，德国也好
-The second is that Europe must belong to Russia, whether you are UK, France, or Germany
+备忘录还说，Amtrak的员工“如果被要求提交测试而没有这样做的话，最初将会被安排无薪休假”。
 
-你必须得靠我，就是谁的欧洲，不管是谁的欧洲，我俄罗斯当老大
-You have to rely on me, that means whose Europe, no matter whose Europe that Russia want to be the boss
+Amtrak是一家接受一些联邦资金的准公共公司，定于下个月终止雇用约500名未接种疫苗的员工，并预计削减服务。Amtrak总裁斯蒂芬·加德纳上周在众议院的听证会上作证说，他预计会削减服务，因为铁路运营商没有足够的员工来运营所有的列车。
 
-第三，俄罗斯一直在亚洲和欧洲之间寻求利益平衡
-Third, Russia has been seeking a balance of interests between Asia and Europe
+但随着周二的决定，服务削减可以避免，弗林说。
 
-现在所谓的俄罗斯不可能入欧，入不入欧，欧洲我都要说了算
-The so-called Russia can’t join in Europe Union, it doesn’t matter, in Europe Russia have the final word
+弗林说：“在根据这些变化审查了我们的系统服务计划后，我们预计1月份不会有全系统的服务影响。”
 
-我供你的气，我供你的能源，我的导弹，我的一切
-Russia provide the gas, the energy, Russia missiles and everything
+弗林补充说，他的公司“将继续根据需要更新其疫苗政策，并遵循最新的健康和安全指导。鉴于最近的法院判决和持续不断的大流行病，我们相信最近的这些变化是适当和谨慎的”。
 
-我的整个的军事力量，北约扯淡的事，跟它边儿都沾不着
-Russia entire military power, NATO is nonsense, NATO is no match for Russia in military terms
+当被要求对Amtrak周二的决定发表评论时，白宫新闻秘书詹·普萨基告诉记者，绝大多数工人都已经接种了疫苗。她说：“他们正在努力工作，以确保有足够的员工在工作。”
 
-现在俄罗斯说我要跟你搞人权了，俄罗斯这哥们儿真正的要脱掉战装换上西装了
-Now Russia says that I’m going to engage in human rights with you, Russian really wants to take off his battle suit and put on the business suit
+同时，行业领导人对美国铁路公司决定撤销其疫苗强制令表示欢迎。
 
-玩点绅士的了，这对中共是绝对打脸的，
-It want to be a gentleman, this is definitely a slap on the CCP’s face
+铁路乘客协会主席兼首席执行官吉姆·马修斯在给新闻机构的一份声明中说：“Amtrak公司正在做正确的事情。这在不影响安全的情况下解决了问题。如果每个人都接种疫苗，列车员和乘客每个人都是最安全的。但是，Amtrak公司的员工有巨大的疫苗接种数量，这是他们的功劳。”
 
-习是很明确地有人权的国家就不可能有好的政府，人权不适合中国
-Xi made it clear that the country with human rights cannot have a good government, and human rights are not suitable for China
+作为几周前通过的基础设施法案的一部分，国会批准为铁路提供660亿美元，Amtrak将获得220亿美元和360亿美元的竞争性拨款。但Amtrak在COVID-19中共病毒大流行期间看到需求下降，加德纳上周告诉众议院小组，目前的需求量约为大流行前的70%。
 
-这就是全世界都在说的一句话，这非洲没有文字的国家都有选举
-This is what the whole world is saying, even there are elections in African countries where there is no written language
-
-中国人不可能有选举，而中国人深信不疑不能有选举
-The Chinese people cannot have elections, and the Chinese people are truly believe that it’s fine for them
-
-就像你看到那个假的习近平的女儿，在那个炫钻石，还批评党内不能腐败，还不能奢侈
-Just like when you saw that fake Xi Jinping’s daughter, she’s showing dazzling diamond, also criticized corruption or extravagant in the Party
-
-劳斯莱斯，私人飞机，这是多变态的这种想法，她是很重要的
-Rolls-Royce, private jets, this is such perverted thoughts, she is very important
-
-这个女的甚至比习近平女儿都重要，你们持续关注那个推特账号，会很有意思的
-This woman is even more important than Xi Jinping’s daughter, it will be very interesting if you keep following that Twitter account
-
-这就是变态，那么现在俄罗斯跟中共之间的这种变态出来恶果了
-This is pervert, so now this perverted relationship between Russia and the Chinese Communist Party has produced bad results
-
-这对我们爆料革命绝对有利的，据悉，美国人也知道这个情况
-This is absolutely beneficial to our whistleblower movement, it is reported that the Americans also know this situation
-
-为什么，(俄罗斯)提前告诉美国我们会向中共明确表态
-Why, Russia told the United States in advance that we will make a clear statement to the CCP
+**新闻来源**：[**theepochtimes.com**][Amtrak Suspends COVID-19 Vaccine Mandate for Employees: Chief Executive](https://www.theepochtimes.com/mkt_breakingnews/amtrak-suspends-covid-19-vaccine-mandate-for-employees-chief-executive_4157319.html?utm_source=newsnoe&amp;utm_medium=email&amp;utm_campaign=breaking-2021-12-14-4&amp;mktids=197d643a075676b55797332d55ce4040&amp;est=iMnpUcnc8B7n3lhybkp6ZAdBfg2pL9lS8Q5F7osQv73s%2F9Jd3IqVkFbeadHI0bVejcb5c7o%3D)
 
 * * *
 
-Date:12/13/2021
-原视频标题: 俄罗斯将与欧盟联合举办欧洲人权峰会，打脸了中共
-Russia will co-host the European Human Rights Summit with the European Union, slapping the CCP’s face
-原视频日期：2021/12/12
-原视频链接[**https://gettr.com/post/pjj5gr8e7c**](https://gettr.com/post/pjj5gr8e7c)
-任务编号：3222
-视频时间段 : 0:00-2:11
-中听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-2.jpeg)
+
+
 
  
 

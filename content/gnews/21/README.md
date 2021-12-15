@@ -2,32 +2,41 @@
 ---
 
 
-## 中日财经爆：广州南洋肿瘤医院宣告破产
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1756562/)
+## 社交媒体影响者 与中共国领事馆签订官方合同
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1756634/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/6-26.jpg)
-[图片来源](https://www.google.com/search?q=%E5%B9%BF%E5%B7%9E%E5%8D%97%E6%B4%8B%E8%82%BF%E7%98%A4%E5%8C%BB%E9%99%A2&amp;tbm=isch&amp;ved=2ahUKEwjRy-DwtuX0AhXkJDQIHTnGD1cQ2-cCegQIABAA&amp;oq=%E5%B9%BF%E5%B7%9E%E5%8D%97%E6%B4%8B%E8%82%BF%E7%98%A4%E5%8C%BB%E9%99%A2&amp;gs_lcp=CgNpbWcQAzoHCCMQ7wMQJzoFCAAQgARQ4wJY4wJglAloAHAAeACAAYECiAH4A5IBAzItMpgBAKABAaoBC2d3cy13aXotaW1nwAEB&amp;sclient=img&amp;ei=36y5YZHgKeTJ0PEPuYy_uAU&amp;bih=625&amp;biw=1366&amp;rlz=1C1YKST_enUS900US901&amp;hl=zh-CN#imgrc=4aX7o_5niNttuM)
+作者: 纽约香草山农场翻译部—祈望明天会更好
 
-中共国医疗院所出现破产案例。广州中级人民法院12月14日宣布，曾跻身中共国「十佳肿瘤专科医院」的广州南洋肿瘤医院，已于4月间成为院方宣告破产的第一家民营医疗机构。
 
-羊城晚报报导，南洋肿瘤医院已于2018年8月停止营业。2020年4月，债权人以医院「严重资不抵债为由」，向广州中院申请南洋肿瘤医院进行破产清算，并由院方裁定受理。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-17.jpg)
 
-广州中院表示，经审计并清理债权债务，南洋肿瘤医院不能清偿到期债务，且资产不足以清偿全部债务，符合宣告破产的法定条件，院方遂于今年4月27日宣告南洋肿瘤医院破产。
 
-院方指出，南洋肿瘤医院被裁定破产后，院内的289箱病历档案资料，即被移交相关卫生行政部门或中医药管理部门等保管，以确保病患的病历资料在破产清算过程中不被泄露。
+12月14日杰克·波索贝克(Jack Posobiec)在班农作战室节目中, 谈到我们从司法部所提交的一份外国代理人注册信息文件中得到了一条新消息:社交媒体影响者营销公司与中共国领事馆正式签订官方合同.
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-15-at-5.10.27-PM.png)图片来源GTV
+这家总部位于新泽西州的美国公司, 从中共国收取数十万美元, 来支付 Twitch, Instagram和抖音等媒体, 用以宣传北京奥运会, 并淡化在“彭帅事件”上的追查力度.
 
-广州中院认定，依药品保质期限和管理人清点结果，南洋肿瘤医院绝大部分库存药品依法应定为「假药、劣药」，不得变价处置。医院现有库存药品、医用耗材由于已过有效期、储存环境恶劣等情况，应属药物性废物、损伤性废物等医疗废弃物，这些废弃物已被全数销毁。
+诚如郭先生在12月12日大直播中所说, 一半抵制冬奥会的是因为彭帅事件, 这就是多米诺骨牌效应的开始.
 
-根据报导，广州南洋肿瘤医院成立于2009年，曾跻身「全国十佳肿瘤专科医院前列」，且标榜是亚洲最著名的肿瘤专科医院之一。诊疗科目包括肿瘤科、急诊医学科、医学检验科；医学影像科；临床体液、血液专业；核医学专业；超声诊断专业；肿瘤内科、临床检验专科等。
+杰克在班农作战室节目中又说, 中共国领事馆为了帮中共宣传这冬奥会, 无所不用其极地用大量资金注入媒体来宣传冬奥, 淡化彭帅事件, 并诋毁反对中共国的人们, 他们会被称为种族主义者, 所有能贬低人的名称都会用上. 例如, 史蒂夫·班农以种族灭绝抵制冬奥会的报导, 中共国就宣称班农是想要更多的白人婴儿. 中共国所做的一切都是为了达到宣传北京奥运会而使出的卑劣技俩.
 
-消息来源:
+**参考阅读**: [https://gtv.org/video/id=61b8b7fa56f4921401b7ba4a](https://gtv.org/video/id=61b8b7fa56f4921401b7ba4a)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-6.png)
+总编: 飞虹
 
-**[中共国医疗业惊现案例广州南洋肿瘤医院宣告破产](https://tw.news.yahoo.com/%E4%B8%AD%E5%9C%8B%E9%86%AB%E7%99%82%E6%A5%AD%E9%A9%9A%E7%8F%BE%E6%A1%88%E4%BE%8B-%E5%BB%A3%E5%B7%9E%E5%8D%97%E6%B4%8B%E8%85%AB%E7%98%A4%E9%86%AB%E9%99%A2%E5%AE%A3%E5%91%8A%E7%A0%B4%E7%94%A2-075908799.html)**
+编辑/校对/发稿: 卡夫卡的甲壳虫
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
 
 
  

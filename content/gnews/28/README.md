@@ -2,48 +2,110 @@
 ---
 
 
-## 中共国声称其Z世代孩子是最热爱共产主义的
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1756352/)
+## COVID-19 最新情报｜mRNA 疫苗技术发明人之一马龙博士就儿童疫苗发布紧急声明
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1756400/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/5VUZIYGEZVKCDICHODGO4EC64Q2.jpg)图片来源：www.breitbart.com
-中共政权宣传机构《环球时报》周日公布了一项据称是针对中国“Z代”青年的民意调查，发现当中国共产党向他们提问时，该群体在很大程度上支持中共政权的威权主义，而不是美国的自由政府。
+**撰文｜疫情关注组 / 发布时间｜15/12/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup）](https://gettr.com/user/mightygroup%EF%BC%89)**
 
-《环球时报》最近进行的一项问卷调查发现，大多数中国年轻人，尤其是1990年代和2000年代出生的Z世代，现在认为中共国比美国和西方的政治制度更民主，该报称，西方不再被视为民主的‘榜样’。
+继早前全球 15,000 名医生和医学科学家发表联署声明，公开宣布不应为健康儿童接种 COVID-19 疫苗之后，mRNA疫苗技术发明人之一，多年致力于疫苗开发研究的罗伯特·马龙（Robert Malone）博士向家长们发布了一份紧急声明，慎重详述了拒绝为儿童接种疫苗背后的科学事实。
 
-《环球时报》发现，这项针对中共国青年的所谓民意调查的结果是对乔·拜登总统的“民主峰会”的谴责，这是自由国家领导人的一系列虚拟演讲，激怒了中国共产党，因为它以非民主国家为由理所当然地将其排除在外，并通过邀请台湾政府成员。事实证明，在南非总统抵制拜登政府之后，这次峰会对拜登政府来说并不是无足轻重的问题，这是对拜登对南部非洲国家实施旅行禁令的回应，据称白宫官员在一张显示台湾的地图出现后切断了台湾的直播。
+声明精华版
 
-在强调“Z世代”及其所谓的对共产主义的忠诚（《环球时报》坚持将其称为中国式的“民主”）之前，多年来一直试图激励其之前的一代（即“千禧一代”）支持该政权，但均告失败。
+声明足本版 请点击【GTV官方帐号】 观看
 
-皮尤研究中心将Z世代定义为出生于1997年至2012年之间的人，它将千禧一代归类为出生于1981年至1996年之间的人。千禧一代目前大部分都在30多岁，这个年龄通常与买房和组建家庭有关。然而，在中共国，共产党政权使建立家庭和维持财富变得极其困难，并且多年来政府禁止人们生育一个以上的孩子。此后，北京将这一限制扩大到“三孩”政策，但结婚率和出生率继续直线下降。
+**声明文字版全文：**
 
-千禧一代通过拒绝参与社会来反对共产主义。中共国千禧一代的主要文化趋势包括“丧文化”，即接受失败主义和悲观心态，以及“躺平”，这是一种千禧一代不以任何方式追求事业、个人或财务成就的哲学。
+My name is Robert Malone, and I am speaking to you as a parent, grandparent, physician and scientist. 
+我的名字是罗伯特·马龙，我以同为父母、祖父母、医生和科学家的身份作以下发言。
 
-《环球时报》称其调查发现，当被专制的中共政权问及时，大多数“Z世代”成员认为中共国的政治制度优于美国。
+I don’t usually read from a prepared speech, but this is so important that I wanted to make sure that I get every single word and scientific fact correct. 我通常不会阅读讲稿，但这非常重要，我想确保我说每一个字和科学事实都是正确的。
 
-中美在比较“哪个国家的政治制度更好”时，从1到10打分，受访者平均给中国7.5分，美国给5分。调查发现，97.2%的中国年轻人认为，美国的“民主峰会 ”无法将 “美国或西方民主”从当前的危机中拯救出来。
+I stand by this statement with a career dedicated to vaccine research and development. 
+我以从事疫苗研究与开发的专业认证此份声明。
 
-“调查发现，过去相信西方民主（包括多党制、一人一票和三方结构）是‘世界民主唯一正确答案’的大多数参与者，已经不再持这种观点，”宣传报纸断言。《环球时报》还匿名引用了据称参与调查的人士，他们热情地支持了《环球时报》的谈话要点。
+I’m vaccinated for COVID and I’m generally pro-vaccination. 
+我接种了新冠疫苗，我不是反疫苗人士
 
-更令人震惊的是，《环球时报》援引了一名据称来自东突厥斯坦的“Z世代”成员的话说，该地区被中共国称为新疆，攻击了美国。中共国目前正在对东突厥斯坦的维吾尔人进行种族灭绝，以集中营和大规模绝育为动力，美国两届政府已经证实这种做法正在进行中。《环球时报》没有说明来自东突厥斯坦的受访者是汉族、华东地区的多数族裔还是维吾尔族。
+I have devoted my entire career to developing safe and effective ways to prevent and treat infectious diseases.
+我的整个职业生涯都致力于开发安全有效的方法来预防和治疗传染病。
 
-该宣传报纸将明尼苏达州男子乔治·弗洛伊德之死、中共国冠状病毒大流行以及1月6日国会大厦事件列为中共国“Z世代”成员对美国民主不信任的原因。
+After this, I will be posting the text of this statement so you can share it with your friends and family.
+在此之后，我将发布此声明的文本，以便您可以与您的朋友和家人分享。
 
-新闻链接：[https://www.breitbart.com/asia/2021/12/13/having-lost-millennials-china-claims-gen-z-kids-the-most-communist/](https://www.reuters.com/lifestyle/sports/senior-japanese-officials-skip-beijing-olympics-report-2021-12-11/)
+Before you inject your child – **a decision that is irreversible** – I wanted to let you know the scientific facts about this genetic vaccine, which is based on the mRNA vaccine technology I created.
+在您决定给孩子注射疫苗之前——这是一个无法挽回的决定——我想让你知道关于这种疫苗的科学事实， 它建基于我参与发明的 mRNA 疫苗技术。
 
-简评：世界上只有中共有思想政治课，实际上就是“洗脑课”，而且还敢光明正大的放在阳光下，中共高校政治课坚持不懈用习近平新时代中共国特色社会主义思想铸魂育人，广大青年学生对党的创新理论高度认同，“四个自信”显著增强，因为这是中共谎言能统治中共国的最有力武器。
+There are three issues parents need to understand before you take this irreversible decision .
+作为家长，在您做出这不可挽回之决定之前，您需要知道三个重点：
 
-通过高房价、高成本的教育、医疗、养老等负担不断的让老百姓处于疲惫不堪中；通过不断的对老百姓进行愚民洗脑教育，控制着他们的思想；通过制造各种社会矛盾，让底层老百姓相互争斗，而坐收渔翁之利！《环球时报》的调查结果能信吗？
+The first is that a viral gene will be injected into your children’s cells.
+第一，接种疫苗就是将一种病毒基因注射进您孩子的细胞中。
 
-* * *
+This gene forces your child’s body to make toxic spike proteins.
+这种基因会诱导您孩子的身体产生有毒的刺突蛋白。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+**These proteins often cause permanent damage in children’s critical organs, including:
+这些蛋白通常会对儿童的重要器官造成永久性损伤，包括：**
 
+**– Their brain and nervous system
+– Their heart and blood vessels, including blood clots
+– Their reproductive system
+– And this vaccine can trigger fundamental changes to their immune system
+– 儿童的大脑和神经系统 **
+**– 儿童的心脏和血管，包括血栓 **
+**– 儿童的生殖系统 **
+**– 这种疫苗可以诱发免疫系统的根本性变化**
 
-编辑：【英国伦敦喜庄园编辑部】
+The most alarming point about this is that,
+最值得忧虑的是，
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**once these damages have occurred, they are irreparable.
+这些损害一旦发生， 就无可挽回。**
+
+**– You can’t fix the lesions within their brains
+– You can’t repair heart tissue scarring
+– You can’t repair a genetically reset immune system
+– This vaccine can cause reproductive damage that could affect future generations of your family
+– 你无法修复他们大脑的病变**
+**– 你无法修复心脏组织疤痕 **
+**– 你无法修复遗传重置免疫系统**
+**– 这种疫苗对生殖系统造成的损害，会影响您家族的后代繁衍**
+
+The second thing you need to know about is the fact that this novel technology has not been adequately tested.
+第二个您需要了解的重点是，（ mRNA 疫苗）技术尚未经过充分测试。
+
+– We need at least 5 years of testing/research before we can really understand the risks
+– Harms and risks from new medicines often become revealed many years later
+– 我们需要至少 5 年的测试/研究才能真正了解它的风险
+– 新药的危害和风险往往在多年后才会显露出来
+
+Ask yourself if you want your own child to be part of the most radical medical experiment in human history
+问问自己，你真的否希望自己的孩子参与这个人类历史上最激进的医学实验吗
+
+One final point: the reason they’re giving you to vaccinate your child is a lie.
+最后一点：他们所谓的，让你孩子接种疫苗的理由是谎言。
+
+Your children represent no danger to their parents or grandparents.
+您的孩子对他们的父母或祖父母没有危险
+
+It’s actually the opposite.
+实际上，恰恰相反。
+
+Their immunity, after getting COVID, is critical to save your family if not the world from this disease
+感染新冠病毒后，儿童的免疫力对于拯救家人免于疾病危害是至关重要的。
+
+In summary: there is no benefit for your children or your family to be vaccinating your children against the small risks of the virus, given the known health risks of the vaccine that as a parent, you and your children may have to live with for the rest of their lives.
+总而言之，鉴于已知疫苗会引发的健康风险，因为病毒的小风险，而去接种疫苗，这对您的孩子或您的家人没有任何好处，您和您孩子的余生都将与之共存。
+
+The risk/benefit analysis isn’t even close with this vaccine for children.
+儿童接种疫苗的风险/收益分析完全是悖离事实的。
+
+As a parent and grandparent, my recommendation to you is to resist and fight to protect your children.
+作为父母和祖父母，我建议您坚定抵制（疫苗）以保护您的孩子。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-9.jpg)
+来源｜推特（目前已被删除）
 
  
 

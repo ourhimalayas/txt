@@ -2,83 +2,47 @@
 ---
 
 
-## 【草根访谈】第295期新闻概要
-` WindTalker` [轉載自GNews](https://gnews.org/zh-hans/1756703/)
+## 即使非洲猪瘟传入法国 中共国也将接受来自法国的猪肉
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1756863/)
 
-**——日本东京方舟农场GTV直播组出品**
+编译:七龙珠
 
-策划/撰文：宇宙之泾
+![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕截图-2021-12-15-120549.jpg)图片来源 : animalshealth.es
 
-校对：石桥李次郎
+法国农业和食品部发布了一份公报，通报了与中共国签署的协议，该协议说，即使非洲猪瘟（ASF）抵达法国，也能向中共国出口猪肉。
 
-书法：柒公子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-15-上午1.15.54.png)
-GTV方舟农场直播间【草根访谈】第295期新闻概要：
+法国总统埃-马克龙在2019年11月访问中共国期间，与习近平商定，如果在法国境内宣布发生非洲猪瘟事件，中共国需承认法国的“分区”工作原则，继续从法国无疫区进口猪产品。
 
-今天的嘉宾方舟农场日语翻译组组长「健康文拓」做客方舟直播间，与战友们一起分享心得体会，日本官方为什么迟迟不表态抵制北京冬奥会？
+据该部称，法国当局和中共国海关和农业的两个部委已经接触了近两年，以起草了一份认同文件。
 
-时政新闻：伴随国际社会对中国人权纪录的担忧日益扩大，一个在伦敦的非官方法庭12月9日裁决，中国在新疆对维吾尔人进行了“种族灭绝”。
+“由于政府的持续参与，养猪业的集体努力，以及法国和中共国达成共识的共同意愿，现在已经达成了有利双方的结果”，法国外交部表示欢迎。
 
-1，关于青蒿素保健品和药品效用的问卷调查。调查结果显示，青蒿素会改善和缓解疫苗副作用及其他基础疾病。爆料革命将继续推进真相。请遵医嘱。
+此外，在法国经济、财政和复苏部长布鲁诺-勒梅尔与中国副总理胡春华的高级别经济和金融对话上，农业和食品部长朱利安-德诺曼迪与中共当局签署了关于承认分区的协议，这对法国有利。
 
-2，郭文贵先生最新单曲HCoin to The Moon已连续两周蝉联公告牌世界数字歌曲销量排行榜的榜首, 这不仅创造了郭先生所有单曲的个人最好成绩，也创造了非专业歌手在世界最权威音乐排行榜的最好成绩，更是又一次创造了中国人在世界乐坛前所未有的历史奇迹！请战友们继续打榜不要停！
+随着12月13日协议的有效实施，如果法国宣布爆发非洲猪瘟，这一认可将允许法国的猪肉产品继续向中共国出口。
 
-3，据《美联社》（Associated Press）12月14日报道，27名美国空军现役人员由于未能在11月2日之前接种新冠疫苗，违反了国防部的规定，因此被美国空军开除。五角大楼表示，截至12月10日，96.4%的现役人员至少打了一针。然而，如果将国民警卫队和后备役包括在内，这一数字将降至约74%，这个数字大约与美国人的接种率一致。
+“我们已经与共和国总统和农业部长进行了数月的谈判，以达成关于猪区划的协议。该协议确保了我国猪肉生产商的出口。因此，它是对价格和我们农民的繁荣的一个决定性保证”，布鲁诺-勒梅尔表示。
 
-4，每日20万人隐形染疫？英国Omicron扩散的「恐慌总动员」，这个微妙的变异病毒在微妙的时间出现，就是要造成民众心理上的极大恐慌，意志力不坚定的人将会溃堤而没有守住底线打了疫苗，悔恨终生的机会都不会有。
+**评论：**
 
-5，日媒12月11日披露，日本将加入美国以外交抵制2022北京冬季奥运行动，不派遣高层官员出席。专家认为日本将派出级别相等的官员，或级别更低的奖牌得主出席，回应欧美、国内与中国的期待。读卖新闻12月11日报道，日本政府将在本月底前做出最终决定。报道指出，目前唯一可能出席的代表是参议员桥本圣子，她是2020年东京奥运组委会主席。对于美国等国宣布外交抵制北京冬奥，中国外交部发言人汪文斌12月8日下午批评抵制国家是“作秀、搞政治操弄的舞台”。中国驻大阪总领事馆12月2日公开邀情日本人明年疫情结束后到新疆旅游。真是够讽刺的，邀请日本人去一个种族灭绝搞大屠杀的地方？
+**自从马克龙宣布不加入抵制北京冬奥会行列后，中共国给法国利益输送又更上一层楼，而且立竿见影，至于百姓的死活也就根本不重要了。这条新闻，在墙内应该不会让百姓知道，百姓的生命健康根本不在他的计划范围内，法国、乃至中共国内的猪肉你还敢吃吗？或许以后就算法国发生了非洲猪瘟，消息也可能被屏蔽，为的是让你继续消费他们进口的法国的瘟疫猪肉。**
 
-6，**伴随国际社会对中国人权纪录的担忧日益扩大，一个在伦敦的非官方法庭12月9日裁决，中国在新疆对维吾尔人进行了“种族灭绝”。**厄尔巴基·欧塔贝（Erbakit Otarbay，音译）是被认为遭关押的一百万哈萨克、维吾尔及其他少数族裔人员中的一人，他在法庭上给出了证言。“维吾尔法庭”网站上他的声明指出，他于2017年7月17日在新疆阿勒泰可可托海（Koktokay）被带走，之后被带至塔城（Tarbagatay）的公安局，后被关押在不同的拘留中心、再教育营。他讲述了自己是如何遭遇强制劳动、思想灌输及暴力殴打的。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/7AC7E93A-368D-4C58-84F4-5CA1AC40220E.jpeg)
-主持人：@WindTalker 宇宙之泾
+**值得注意一点的是，新闻里说中共接受“分区”原则，接受“无疫区猪产品出口”，请问，怎么确保猪产品来自无疫区的？检测的标准是什么？如果真吃出了病，补救措施是什么？**
 
-嘉宾战友：@WenTuo 健康文拓
+**由此还可以看出，中共国需要大量的进口外国猪肉，国内的猪肉产量根本不能满足中国百姓的基本生活需求。**
 
-美东时间晚上11:30 日本东京时间中午1:30 北京时间中午12:30
+**而为何中共如此在意猪肉的价格？还不是因为猪肉价格对CPI的影响巨大。为了表面上的数据，中共是不会在乎百姓的健康或死活的。**
 
-Every day we spreading the truth about CCPvirus (COVID-19)and CCP vaccines, every day is Shouting for the people of Hong Kong who killed from CCP, and every day is hard working for the Chinese people to destroy the evil Chinese Communist Party! Welcome to our New Federal State of the China. Welcome to our Himalaya Tokyo JHL.
+**相比去年5月因为非洲猪瘟导致德国猪产品出口的一夜骤停，导致价格暴跌，法国马克龙这次抓住了中共的“蛋蛋”，狠狠的捏了一把，法国人欢喜，可怜的中国百姓们浑然被蒙在鼓里。**
 
-【草根访谈】日本东京方舟农场欢迎你！
+新闻来源：[animalshealth.es][China aceptará cerdo de Francia aunque la peste porcina africana llegue al país](https://www.animalshealth.es/porcino/china-aceptara-cerdo-francia-aunque-peste-porcina-africana-ppa-llegue-pais)
 
-【草根访谈】【方舟有你】【方舟歌汇】
+* * *
 
-【方舟品读时光】【有问必答】【果色添香】
-
-[#nfsc](https://gettr.com/hashtag/%23nfsc) [#MilesGuo](https://gettr.com/hashtag/%23MilesGuo) [#ccpvirus](https://gettr.com/hashtag/%23ccpvirus) [#CCPvaccines](https://gettr.com/hashtag/%23CCPvaccines) [#ccpliepeoplesdie](https://gettr.com/hashtag/%23ccpliepeoplesdie) [#takedowntheccp](https://gettr.com/hashtag/%23takedowntheccp)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/85A9DBF3-4860-4C4F-8B7B-962289F759D4_1_100_o-1-scaled.jpeg)
-
-
-```
-只有那些疯狂到认为自己可以改变世界的人，才能真正改变这个世界。
-```
-
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/73A43459-2029-4DBE-89E4-993EF95E97A9_1_201_a.jpeg)
-
-
-```
-知人者智自知者明篆刻：柒公子
-```
-
-
-
-
-
-
-2021年12月| 一 | 二 | 三 | 四 | 五 | 六 | 日 |
-| --- | --- | --- | --- | --- | --- | --- |
-|   | [1](https://gnews.org/zh-hans/date/2021/12/01/) | [2](https://gnews.org/zh-hans/date/2021/12/02/) | [3](https://gnews.org/zh-hans/date/2021/12/03/) | [4](https://gnews.org/zh-hans/date/2021/12/04/) | [5](https://gnews.org/zh-hans/date/2021/12/05/) |
-| [6](https://gnews.org/zh-hans/date/2021/12/06/) | [7](https://gnews.org/zh-hans/date/2021/12/07/) | [8](https://gnews.org/zh-hans/date/2021/12/08/) | [9](https://gnews.org/zh-hans/date/2021/12/09/) | [10](https://gnews.org/zh-hans/date/2021/12/10/) | [11](https://gnews.org/zh-hans/date/2021/12/11/) | [12](https://gnews.org/zh-hans/date/2021/12/12/) |
-| [13](https://gnews.org/zh-hans/date/2021/12/13/) | [14](https://gnews.org/zh-hans/date/2021/12/14/) | [15](https://gnews.org/zh-hans/date/2021/12/15/) | 16 | 17 | 18 | 19 |
-| 20 | 21 | 22 | 23 | 24 | 25 | 26 |
-| 27 | 28 | 29 | 30 | 31 |   |
-
-[« 11月](https://gnews.org/zh-hans/date/2021/11/)  
- 
+*审核：Aries的星
+校对：阿伯塔
+发布：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-2.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

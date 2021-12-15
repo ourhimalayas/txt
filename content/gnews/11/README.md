@@ -2,27 +2,163 @@
 ---
 
 
-## 酒吧失守，Omicron变异毒株在澳洲维多利亚地区恐失控
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1756723/)
+## 沃顿学院几乎都是上海帮，单伟健比马明哲高好几个级别
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1756867/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2021/12/152.jpg)图片来源：Pexels免费照片资料库
-据澳大利亚媒体的最新消息，维多利亚州的 Omicron 感染人数预计将出现飙升，因为在墨尔本的两家酒吧出现阳性病例后，有数百人目前被迫隔离。
+[https://gtv.org/video/id=61b88932a68b4f4b28e84e66](https://gtv.org/video/id=61b88932a68b4f4b28e84e66)
 
-周五晚上，一名Omicron阳性病例于晚上九点至午夜光顾了墨尔本菲茨罗伊当地的一家酒吧，随后又去到位于科林伍德的皮尔酒店，在那里一直待到了凌晨三点。
+沃顿学院是啥呀
+Qué es la Universidad de Wharton
 
-卫生部表示，在该时间段内，大约有 320 人在科林伍德的皮尔酒店，有超过 410 人在菲茨罗伊的那家酒吧。任何在上述时间段到场的客人均被视为密切接触者。完全接种疫苗的人可以在 7 天的隔离期结束后外出，而未接种疫苗的人将面临 14 天的隔离。
+沃顿学院里面几乎80%过去的学生全是江浙上海帮
+Casi el 80% de los estudiantes egresados de la Universidad de Wharton son todos de Wuyue, Camarilla Shanghai
 
-皮尔酒吧的老板表示，隔离规则的回归令人十分沮丧，因为在一年中最繁忙的时期，酒吧可能会关闭一周。
+在北京长安街的唯一个叫做欧美学生会
+El único de la avenida Chang’an en Beijing se llama Unión de Estudiantes Europeos y Americanos
 
-“你的员工都被隔离起来了，你不可能开店……这简直就像噩梦一样……”皮尔酒吧的老板表示，“两周前我们 好不容易重新开张——开始重新燃起了希望，结果现在却发生了这种事……政府的运行政策并不适合我们这些小型企业。”
+就在贵宾楼旁边, 欧美学生会
+Justo está al lado del edificio VIP, Unión de Estudiantes Europeos y Americanos
 
-由于墨尔本的多次封锁，这家酒吧在过去两年的大部分时间里已经关闭，而当前的关闭又对该业务造成了严重打击。
+那是共产党
+Ese es el Partido Comunista
 
-新闻参考链接：[9 news](https://www.9news.com.au/national/coronavirus-update-victoria-omicron-case-attends-popular-melbourne-bars-in-fitzroy-collingwood/447fd2fc-2b3f-4d35-a7fd-ef0870e53071)
+那是来了都是警车开道, 秘密警车开道, 到哪都是开绿车的
+Cuando llega, todos los carros de la policía secreta despejan el camino, y los carros verdes circulan por todas partes
 
-*发稿：mgjxs*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
+一来就是直接去中南海了
+Al llegar van directamente a Zhongnanhai
+
+住在院里边
+Viven dentro de la torre
+
+全世界什么摩根这些沼泽地都到那个(地方)
+Que si los Morgan y estos pantanos del mundo van hasta allá (lugar)
+
+真正的贵宾住在贵宾楼, 走向对面就叫做美欧学院
+Los verdaderos VIP viven en el edificio VIP, y al frente está el Colegio Americano Europeo
+
+欧美学生会
+La Unión de estudiantes Europeos y Americanos
+
+谁呀? 单伟建是欧美学生会的创始人, 大佬
+¿Quién? Shan Weijian es el fundador, el Boss de la Unión de estudiantes Europeos y Americanos
+
+人家是沃顿学院正儿八经的学生
+Él es estudiante de la Universidad de Wharton
+
+沃顿学院整个亚洲会, 你去看一看
+Echa un vistazo al club de Wharton de toda Asia
+
+我见得太多了
+He visto demasiado
+
+我那照片, 我能给你整出来几千张
+Puedo organizar miles de fotos para ti
+
+一到北京去, 必到我那儿吃饭
+Una vez llegan a Beijing, seguramente van a comer donde estoy
+
+单伟建神秘到啥人物
+Y qué tan misterioso es este personaje Shan Weijian
+
+一个电话转过去. 跟王岐山见面, 是吧
+Se transfiere una llamada y se reune con Wang Qishan, ¿verdad?
+
+然后当时
+Y en aquel momento
+
+这黄菊见面
+Se reunió con Huang Ju
+
+(胡)锦涛见面
+(Hu) Jintao
+
+那这是必须的, 温家宝
+Esto es necesario, Wen Jiabao
+
+为啥? 这是国家动作
+¿Por qué? Esta es una acción nacional
+
+这不是你个人的问题了
+Esto no es tu problema personal
+
+就是蓝金黄的
+Es del plan ADA (BGY)
+
+单伟建, 你看他在当时深圳招商行
+Shan Weijian, mira a él en China Merchants Bank en Shenzhen
+
+叫深圳商业行, 深商行
+Se llama China Merchants Bank
+
+竞争的时候
+Al momento de competir
+
+必须让出他去
+Debe dejarlo ir
+
+批完以后都几十天给你改了
+Te lo cambié decena de días después de la aprobación
+
+马明哲见了单伟建, 哆哩哆嗦
+Ma Mingzhe estaba temblando cuando vió a Shan Weijian
+
+马明哲跟这个布什的弟弟见面之前
+Ma Mingzhe antes de verse con el hermano de Bush
+
+他弟弟就是跟他一起, 单伟建陪着他跟马明哲见面
+Su hermano estaba con él, Shan Weijian lo acompañó para verse con Ma Mingzhe
+
+马明哲见他毕恭毕敬的
+Ma Mingzhe lo vió respetuosamente
+
+小布什的弟弟, 当时是这个加利福尼亚州的州长（应该佛罗里达的州长，口误）
+El hermano de Bush Junior, en aquel momento era el gobernador del estado de Florida
+
+也就是今天你们看到那个罗比奥
+Y es lo que hoy ustedes ven al Marco Rubio
+
+当时还是他的办公室主任呢
+Él era el jefe de su oficina en ese momento
+
+问我Miles, 为什么马明哲见了这单伟建毕恭毕敬
+Me preguntó, Miles, ¿por qué Ma Mingzhe al ver a Shan Weijian es tan respetuoso?
+
+我说这是马明哲在排位地位上跟他差了好几个class
+Le dije que esto se debe a que Ma Mingzhe está detrás de él en términos de clasificación
+
+他说原来是这样, 外国人不懂啊
+Y respondió, con razón, los extranjeros no entienden
+
+他说单伟建可了不得呀
+Dijo que Shan Weijian es increíble
+
+我们都是很看重他的
+Nosotros lo apreciamos mucho
+
+单伟建是100%的
+Shan Weijian es 100%
+
+* * *
+
+日期：12/13/2021
+原视频标题：沃顿学院几乎都是上海帮，单伟健比马明哲高好几个级别
+Casi toda la universidad de Wharton es de la camarilla de Shanghai, y Shan Weijian tiene varios niveles más altos que Ma Mingzhe
+原视频日期：12/10/2021
+原视频网址：[**https://gettr.com/post/pjavo685c6**](https://gettr.com/post/pjavo685c6)
+任务编号：3172
+视频时间段：0:00-2:15
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

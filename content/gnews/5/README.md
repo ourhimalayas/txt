@@ -2,47 +2,136 @@
 ---
 
 
-## 即使非洲猪瘟传入法国 中共国也将接受来自法国的猪肉
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1756863/)
+## 干掉共产党以后中国必须三个独立
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1756921/)
 
-编译:七龙珠
+[https://gtv.org/video/id=61b8dc47a68b4f4b28e86ca3](https://gtv.org/video/id=61b8dc47a68b4f4b28e86ca3)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕截图-2021-12-15-120549.jpg)图片来源 : animalshealth.es
+这你要看到孙中山、李大钊、张国涛、共产党、袁世凯、蔡锷
+Tienes que ver a Sun Zhongshan, Li Dazhao, Zhang Guotao, el PCCh, Yuen Shikai, Cai E
 
-法国农业和食品部发布了一份公报，通报了与中共国签署的协议，该协议说，即使非洲猪瘟（ASF）抵达法国，也能向中共国出口猪肉。
+从1912年到1949年这个中间的变化
+Los cambios que tuvieron desde el año 1912 hasta 1949
 
-法国总统埃-马克龙在2019年11月访问中共国期间，与习近平商定，如果在法国境内宣布发生非洲猪瘟事件，中共国需承认法国的“分区”工作原则，继续从法国无疫区进口猪产品。
+我们要干掉了大清朝就共产党
+Debemos destruir el Imperio del Gran Qing, sólo el PCCh
 
-据该部称，法国当局和中共国海关和农业的两个部委已经接触了近两年，以起草了一份认同文件。
+绝不允许再出现天真的孙中山
+No se permitirá que aparezca otro inocente Sun Zhongshan
 
-“由于政府的持续参与，养猪业的集体努力，以及法国和中共国达成共识的共同意愿，现在已经达成了有利双方的结果”，法国外交部表示欢迎。
+也不允许说炮制什么这样那样的, 蒋介石、国民党、辛亥革命等
+Tampoco se permite formular de ninguna manera, Jiang Jieshi, Kuomintang y la Revolución de Xinghai
 
-此外，在法国经济、财政和复苏部长布鲁诺-勒梅尔与中国副总理胡春华的高级别经济和金融对话上，农业和食品部长朱利安-德诺曼迪与中共当局签署了关于承认分区的协议，这对法国有利。
+这一切我跟你说根本不, 不允许
+Todo esto, yo te digo que no se permite
 
-随着12月13日协议的有效实施，如果法国宣布爆发非洲猪瘟，这一认可将允许法国的猪肉产品继续向中共国出口。
+我们会秒杀一切上来想夺取政权
+Nosotros mataremos en un segundo todo el que quiera tomar el régimen
 
-“我们已经与共和国总统和农业部长进行了数月的谈判，以达成关于猪区划的协议。该协议确保了我国猪肉生产商的出口。因此，它是对价格和我们农民的繁荣的一个决定性保证”，布鲁诺-勒梅尔表示。
+然后就诞生了共产党, 来个苏维埃
+Entonces nació el Partido Comunista, vino un República Soviética de China
 
-**评论：**
+你很有可能美国各国各政党派去一个什么新的什么党
+Es muy probable que envíe un nuevo partido de varios partidos políticos en los Estados Unidos
 
-**自从马克龙宣布不加入抵制北京冬奥会行列后，中共国给法国利益输送又更上一层楼，而且立竿见影，至于百姓的死活也就根本不重要了。这条新闻，在墙内应该不会让百姓知道，百姓的生命健康根本不在他的计划范围内，法国、乃至中共国内的猪肉你还敢吃吗？或许以后就算法国发生了非洲猪瘟，消息也可能被屏蔽，为的是让你继续消费他们进口的法国的瘟疫猪肉。**
+背后是他们的力量控制中国人民
+Detrás está su poder para controlar al pueblo chino
 
-**值得注意一点的是，新闻里说中共接受“分区”原则，接受“无疫区猪产品出口”，请问，怎么确保猪产品来自无疫区的？检测的标准是什么？如果真吃出了病，补救措施是什么？**
+我们未来一定会让全世界你没有任何选择
+Definitivamente en el futuro no te dejaremos ninguna opción en el mundo
 
-**由此还可以看出，中共国需要大量的进口外国猪肉，国内的猪肉产量根本不能满足中国百姓的基本生活需求。**
+中国人一人一票
+Un voto por cada chino
+选出我们的政权
+Para escoger nuestro régimen
 
-**而为何中共如此在意猪肉的价格？还不是因为猪肉价格对CPI的影响巨大。为了表面上的数据，中共是不会在乎百姓的健康或死活的。**
+共产党没了之后的中国
+El después de China será sin el PCCh
 
-**相比去年5月因为非洲猪瘟导致德国猪产品出口的一夜骤停，导致价格暴跌，法国马克龙这次抓住了中共的“蛋蛋”，狠狠的捏了一把，法国人欢喜，可怜的中国百姓们浑然被蒙在鼓里。**
+一定不会成为军阀割据
+No se convertirá en un régimen separatista de los caudillos
 
-新闻来源：[animalshealth.es][China aceptará cerdo de Francia aunque la peste porcina africana llegue al país](https://www.animalshealth.es/porcino/china-aceptara-cerdo-francia-aunque-peste-porcina-africana-ppa-llegue-pais)
+台湾、香港、新疆、西藏、包括广东
+Taiwán, Hongkong, Xinjiang, Tíbet, incluyendo Guangdong
+
+我们一定要叫
+Nosotros debemos
+
+大家知道一个新中国联邦制
+Hacer saber a todos un sistema del Nuevo Estado Federal de China
+
+这是一定的
+Esto es seguro
+
+这个过程一定会发生的
+Este proceso seguro sucederá
+
+就是中间这个过程又会再来
+Sólo que durante este proceso volverá a pasar
+
+但我们就是杜绝再有一个所谓的苏维埃共产党
+Pero nosotros le pondremos el fin para que no haya otro supuesto Partido Comunista Soviético
+
+骗取中国人民的政权
+Defraudando el poder del pueblo chino
+
+忽悠中国人民说给你们美国式的民主生活
+Vacilar al pueblo chino diciendo que te dará una vida democrática al estilo estadounidense
+
+所以说当等到下一步共产党被灭以后
+Por eso, el próximo paso luego de extinguir el PCCh
+
+我们要中国人必须三个独立
+Nosotros haremos que los chinos tengan 3 cosas independientes
+
+人格、宗教、信仰、法律
+Personalidad, religión, creencia y ley
+
+这一块儿要独立
+Todo esto hay que independizarlo
+
+这咱算一条
+Esto lo contamos como el primero
+
+第二条就中国人的思维
+El segundo, la forma de pensar de los chinos
+
+和说话的言语自由, 它必须独立
+Y la libertad de expresión, debe ser independiente
+
+第三个咱们中国人要记住
+El tercero, nosotros los chinos debemos recordar
+
+要跟国际上所有的关系
+Internacionalmente todas las relaciones
+
+中国人国家必须是独立
+El país de los chinos debe ser independiente
+
+不能受任何黑暗势力摆布包括这个华尔街什么好莱坞
+No puede ser manipulado por ninguna fuerza oscura, incluyendo el Wall Street o Hollywood
 
 * * *
 
-*审核：Aries的星
-校对：阿伯塔
-发布：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-2.jpeg)
+日期：12/13/2021
+原视频标题：干掉共产党以后中国必须三个独立
+Después de destruir el Partido Comunista, China debe tener tres cosas independientes
+
+原视频日期：12/11/2021
+原视频网址：[** https://gettr.com/post/pjed5p3e4c**](https://gettr.com/post/pjed5p3e4c)
+任务编号：KC338(3183)
+视频时间段：0:00-02:01
+西听校：洛杉矶盘古农场-小文萱
+翻译：洛杉矶盘古农场-霙霙（文霙）
+翻译终校：洛杉矶盘古农场-小文萱
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布 ：洛杉矶盘古农场-恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
