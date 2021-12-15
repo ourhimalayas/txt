@@ -2,23 +2,25 @@
 ---
 
 
-## 盖特短视频功能G-Vision即将上线
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1755591/)
+## 日本多方证据显示，新冠病毒疫苗副作用异常严重
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1755593/)
 
-作者：银河勇气星 – 骄子
+作者：日本方舟农场 – Andy5
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-盖特总裁杰森·米勒先生曾在本月早些时候向媒体表示，盖特预计将于明年2月1月推出短视频功能G-Vision，此功能将使盖特与Instagram Reels和TikTok成为竞争对手。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture1-22.jpg)
-在过去几年的发展中， Instagram Reels和TikTok的迅速崛起，充分证明，短视频广受用户的欢迎，特别是年轻用户的青睐。Instagram旗下的Instagram Reels，已成为该平台的主要驱动力，吸引的用户占到了一半以上。
+日本媒体12月10日报道，一位50岁的女士在8月接种第一剂疫苗之后，持续呼吸困难、心跳紊乱，肺部出现积水，连续三个月只能卧床静养。这位女士在接种前非常喜欢四处走动，接种后却连普通家务都无法完成。在接受各类详细检查，排除掉所有可能性后，医生推断，无论从肺部积水还是从时间上来看，只可能是疫苗副作用造成的结果。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture4-7.jpg)
+根据日本厚生劳动省公布的数据，因无法否认出现的症状与接种疫苗相关，而由日本政府赔偿医疗费用的人数，已经从8月的单月29人暴增至11月的单月126人。值得注意的是，这种暴增同日本8月底开放给18岁以上人口接种疫苗的时间几乎同步。
 
-G-Vision的上线，不仅拓展盖特的功能，吸引年轻用户，也将使盖特成为社交媒体领域的标杆。
+日本福岛县知事也承认，疫苗接种后有一定数量的人员出现持续的副作用是客观事实。
 
-参考链接：[盖特短视频功能G-Vision即将上线](https://knowtechie.com/gettr-the-social-app-that-looks-like-twitter-will-soon-copy-instagram-reels-and-tiktok/)
+由此，日本媒体发出警告，目前尚不清楚疫苗副作用的持续时间，同时承认这些疫苗副作用的案例都是真实存在的，不是所谓的“心理作用”。
+
+参考链接：[日本多方证据显示，新冠病毒疫苗副作用异常严重](https://www.gettr.com/post/pjmewp9edb)
 
 ![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
 总编：飞虹
-编辑：飞虹/雪梨
+编辑：飞虹
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
