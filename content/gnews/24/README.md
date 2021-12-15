@@ -2,121 +2,82 @@
 ---
 
 
-## G时评213期（12.13）直播摘要
-` GISELLE` [轉載自GNews](https://gnews.org/zh-hans/1755525/)
+## 所有独裁者最后干的唯一一件事 就是发动战争
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1755582/)
 
-**书记：文勇  校对：面包树**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2420582b-ab31-42e0-adc0-c4a7ba389507.jpg)
-【话题】
+[https://gtv.org/video/id=61b7febda68b4f4b28e82457](https://gtv.org/video/id=61b7febda68b4f4b28e82457)
 
-- 以色列总理访问阿联酋
-- 六大建议加速美中定向金融脱钩
-- 中共是朝鲜最大的敌人
+**郭文贵**
+**Miles Guo**
 
+掌握共产党的历史和脉搏和内部的情报，和对共产党中心老杂毛的个人性格上的判断
+As long as you know the history, pulse and internal information of the Com-munist Party, and make right judgement according to the personal character of these top officials at the center of the Communist Party
 
-【[新闻1](https://www.epochtimes.com/gb/21/12/12/n13432397.htm)】
+只要你准确了，咱永远是赢家，咱知道共产党内部怎么想的
+once you are accurate, we will always be the winner, we know what the Com-munist Party thinks internally
 
-2021年12月11日，奥地利首都维也纳，数万民众抗议奥地利政府强制接种COVID-19疫苗令。本月中旬，奥地利政府对于未接种疫苗群体实施了严苛的封锁令，并且要求到2022年2月，所有人将强制接种疫苗。
+当习近平这时候，下边都鼓掌了，好啊，太伟大了，你就是秦始皇
+When Xi Jinping was at there, everyone applauded for him, “okay, that’s goo great, you are Qin Shihuang(the first emperor in China)
 
-【解读】
+这个党没有你就完啦，所以说，你要继续干呢
+This party will be over without you, so you have to keep doing it”
 
-奥地利政府最终目的是让民众打疫苗，所以一定会有不同的花招出来。
+我告诉你，所有的独裁包括卡扎菲、萨达姆的都是被家人和身边最亲的人忽悠出来的
+Let me tell you, all the dictators including Gaddafi and Saddam were fooled by their family members and the closest people around them
 
-【[新闻2](https://www.epochtimes.com/gb/21/12/12/n13432397.htm)】
+而且所有的独裁着，真的从过去编故事自己是神，看了神，到最后你真相信自己是神
+And all the dictatorships really made up stories from the past that they are God, and are blessed by God, really believe that they are God in the end
 
-完全接种疫苗的南非总统仍被染疫。据南非总统办公室说，总统拉马福萨（Cyril Ramaphosa）周日（12日）被验出对Covid-19呈阳性反应，但症状较轻，目前正在接受治疗。
+最后是灭掉神，自己代替神，然后最后是自己真心相信自己是神
+Finally, they get rid of God, replace God by themself, and finally they truly believe that they are God
 
-【解读】
+所有人都是这个死亡的步骤，今天你看到共产党的狂妄
+All of them follow this death procedure, today you look at the arrogance of the Communist Party
 
-可见疫苗既不能保护他，也不能给他带来任何的安全，这证明疫苗是没有用的，是杀人的。
+第二条，杀基督教，杀新疆人，杀佛教、天主教、道教，全教拜一神，叫习太阳神
+The second, they kill Christianity, kill Uyghurs, kill Buddhism, Catholicism, and Taoism, and all religions worship to one god, it called Xi Sun God
 
-拉马福萨不想要西方的“杀人疫苗”（辉瑞/强生/Modena/阿斯利康），他想要俄罗斯生产的“不杀人疫苗”，但是被南非的医疗部门以“俄罗斯疫苗会引起艾滋病”为由给否定了，这真是颠倒黑白。
+而且大家要看到的经济问题，现在国内已经是房地产崩塌，银行崩塌
+Moreover everyone needs to see the economic problems, now domestic real estate has collapsed, and the banks have collapsed
 
-【[新闻3](https://www.epochtimes.com/gb/2)】
+这是一点都不用担心的，是吧，大量的一亿多人失业
+This is no doubt about that, right? there are more than 100 million people are unemployed
 
-佛州州长拨800万美元，欲送非法移民到特拉华州。
+大量的商业关门，所有的85%的私人企业要归为国有
+A large number of businesses are closed, and 85% of all private companies are to be state-owned
 
-【解读】
+这是所有的独裁者，阿明的乌干达，我再说的，卡扎菲、萨达姆、希特勒、斯大林
+This is all the dictators, like Amin of Uganda, I will repeat it again, Gaddafi, Sad-dam, Hitler, and Stalin
 
-特拉华州是乔·拜登的家乡，而玛莎葡萄园岛（Martha’s Vineyard）是前总统巴拉克·奥巴马拥有一座豪宅的地方。拜登一上任就停止了美墨边境墙的修筑，放任非法移民进入美国，所以州长德桑蒂斯以其人之道还治其人之身。
+所有人干的统一一件事儿，企业国有化，个人神圣化，宗教彻底被消灭，媒体彻底被控制
+One thing everyone does is the nationalization of enterprises, personal sanctifi-cation, religion is completely eliminated, and the media is completely controlled
 
-此前，佛州电视台报导称，拜登政府的特工们用大约70架飞机，将在美墨边境被截获的非法移民，暗地里送往佛罗里达州的杰克逊维尔（Jacksonville），而并未通知佛州州政府。拜登在这件事上已经先下手为强了，这些移民就应该被送往拜登和奥巴马的家门口。
+然后唯一最后选项发动战争，而且不是它意志为转移的
+Then the only last option for them to start a war, and it’s doesn’t depend on its will
 
-拜登和奥巴马为什么喜欢非法移民？难道他们很善良、很体谅这些人的难处吗？完全不是，他们只是把这些非法移民，当成一张可利用的牌，并以武器化的方式来攻击他们的对手，比如把这些非法移民送到共和党的州，目的是给共和党的州掺沙子进去，制造混乱，增加负担；同时把这些非法移民培养成自己的票仓，培养成可以被他们利用的工具。
+习现在想不发动战争都不可能
+Now it’s impossible for Xi not to start a war
 
-【[新闻4](https://www.epochtimes.com/gb/21/12/12/n13432694.htm)】
+**原视频链接**:[https://gettr.com/post/pjh1kbe8be](https://gettr.com/post/pjh1kbe8be)
 
-以色列总理纳夫塔利·贝内特（Naftali Bennett）周日（12日）开始访问阿拉伯联合酋长国，成为首位出访该国的以色列总理。以色列认为伊朗是其最大的敌人，并强烈反对2015年的伊朗协议。该国表示，它希望有一个改进的协议，对伊朗的核计划施加更严格的限制，并解决伊朗的远程导弹计划。
+Date:12/12/2021
+**原视频标题:** 所有独裁者最后干的唯一一件事 就是发动战争
+The only thing that all dictators did last was to start a war
+原视频日期：2021/12/10
+**原视频链接**https://gettr.com/post/pjh1kbe8be
+任务编号：3204
+视频时间段 : 0:00-2:06
 
-【解读】
+中听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 -天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-以色列复国后，跟周边国家开启了好几场战争，关系一直不是很好。
-
-郭先生直播表示，中东局势面临重新洗牌现状。俄罗斯与伊朗结盟，主要是为了牵制塔利班。但是这个结盟的动作，引起了以色列的戒心。以色列一系列外交闪电战的目的，是通过对周边可以拉拢的势力进行游说，联合对付伊朗，形成新的制衡关系。
-
-政治是金钱利益、互相制衡的游戏，贝内特在国内疯狂推疫苗，不是什么好东西。阿联酋也是到处勾兑。
-
-【[新闻5](https://www.epochtimes.com/gb/21/12/12/n13432904.htm)】
-
-澳洲科学家拟建留给未来人类的地球黑匣子，假如人类文明遇到毁灭，黑匣子能够记下人类文明最后时刻的信息，留给未来的人类。
-
-【解读】
-
-如果人类文明不从人性上得到改变的话，会彻底毁灭。科技发展越迅猛，人类文明毁灭越快速。这就是为什么我们爆料革命要不遗余力的传播信仰，唤醒人性。
-
-不利于统治者的东西方思想，都被神权和王权扼杀了，疾病、战争、饥荒无处不在，我们需要回到道德哲学、伦理哲学、自然哲学上来。
-
-思想和哲学虽然不是实体，但是思想家和哲学家就像是哨兵，他会往前飞几百年，再往后飞几千年，（通过思想和哲学的手段）为人类文明发展指出方向和提供预警。
-
-【[新闻6](https://www)】
-
-今年8月，正值中共高调整治私人企业、导致国内股市大跌之际，全球最大的资产管理公司贝莱德，建议投资者将其对中国资产的配置增至三倍。与此同时，尽管海康威视被美国列入贸易限制清单，因其高回报率，仍然是美国人热投的对象。
-
-关于中国的金融问题，去年的美中经济与安全审查委员会（USCC）报告，主要谈及中国金融市场因债务的快速积累、国有企业资本的低效配置，而存在的系统性风险。在今年的USCC报告，则指出美国投资中国市场，给美国带来的国家安全方面的风险。
-
-报告全面回顾了外资进入中国金融市场上的过程，并逐一分析了股票、风险投资、私募股权、指数、公共债务等投资工具所暗藏的风险，列举了美国传统的贸易、投资限制工具的局限。最后，提出六大建议，加速美国资本与中共军工企业、人权迫害等等的定向金融脱钩。
-
-【解读】
-
-美国投资人太贪婪，完全没有风险意识。
-
-投资公司太贪婪，完全不顾及投资者的利益，导致美国“韭菜”被中共割得很爽。
-
-一切恶行皆源于这些人的无知，无知、贪婪、愚昧进一步导致了这些恶行。
-
-定向金融脱钩，回应的是中共的定向金融爆破，双方有来有往。
-
-其实美国有很多招数对付中共，但是美国的卖国贼太多了。愚昧、自私、贪婪的华尔街资本和无底线的卖国贼，把整个美国都剁碎了卖给中共。华尔街为了赚管理费，至于投资者的风险有多大，那不是他考虑的事情，这是资本最邪恶的地方。
-
-对付中共最好的办法是，把盗国贼的基因地图、藏宝地图连根拔起，这是对它一个毁灭性的打击。相信这一天不会太远。
-
-【[新闻7](https://www.epochtimes.com/gb/21/12/12/n13432412.htm)】
-
-《金融时报》12月12日报导，分析人士普遍认为，平壤对北京的依赖令朝鲜当局深感不安，他们长期以来一直将中共——而不是美国——视为该政权长期生存的主要威胁。《金融时报》分析，两个国家反目为仇，始于所谓的“抗美援朝”，以及随后中共对朝鲜的渗透引发金氏王朝的恐惧。
-
-【解读】
-
-朝鲜一直被中共当枪使，其实私底下是暗流涌动。
-
-金正恩与前美国总统川普会晤，引起了中共的担忧。从那之后金正恩跟中共一直不冷不热，两国的重要领导人没有互动。
-
-中共一直充当中介角色，它主导的六方朝核会谈一直没什么结果，其实就是把朝核会谈当作一副牌打来打去，目的是为了恐吓。美国如果不答应中共的诉求，中共就让朝鲜发展核武器，朝鲜是被利用的。
-
-【新闻8】
-
-中共外交部说，美式民主是大规模杀伤性武器。
-
-【解读】
-
-不只是民主，一切的真、善、美，对中共而言都是毒药；一切的自由、民主、法治，一切的普世价值观，包括阳光，都是中共的敌人；因为它们见不得光，它们窃国建政的过程，就是通过流氓、犯罪、杀戮建立的，中共害怕阳光下的审判。
-
-“愿意放弃自由来换取保障的人，他最终既得不到自由，也得不到保障。”这是哈耶克的名言。习近平要求15日和俄罗斯普京视频，求继续勾兑，普京会如何选择？是选择金钱，还是民主？中共要用你的时候叫你亲爹，不需要的时候会毫不犹豫地干倒你。它是绞肉机的体制，对所有人都会是这样。
-
-欢迎大家和我们一起战斗，我们一起TAKE DOWN THE CCP。谢谢大家！
-
-（文章内容仅代表G时评个人观点）
-
-本期链接：[https://gtv.org/video/id=61b7253e56f4921401b6d37c](https://gtv.org/video/id=61b7253e56f4921401b6d37c)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

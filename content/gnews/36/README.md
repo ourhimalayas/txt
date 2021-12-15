@@ -2,28 +2,20 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月14日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1754965/)
+## 英国议员Steve Baker 谈为什么要反对B计划限制
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1755344/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-3.jpg)
+**作者：日本东京方舟农场 JIHO**
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-14.png)
-文章仅代表作者本人观点，与Gnews无关
+英国议员Steve Baker 反对新的限制，反对强制口罩，反对疫苗护照，反对强制疫苗，并说官方发表的数据模型是基于错误和悲观的假设，人民为此付出了真实的代价。
 
-视频参看：[2021.12.14早GTV新闻访谈](https://gtv.org/video/id=61b89bf756f4921401b79dbe)
+* * *
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+*素材采编：JIHO*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/calendar.jpeg)
+*发布：Ranting*
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+*封面制作：Kotek*
 
  
 

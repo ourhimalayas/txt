@@ -2,14 +2,12 @@
 ---
 
 
-## 德国护士揭露病房都是打了疫苗的病人
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1754353/)
+## 三亚市民：三亚市现在的生意特别惨淡哪！
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1754830/)
 
-制作：葛大饼
+12/12/2021 制作视频的男子在海南省三亚市最火的商店街一路拍摄视频。家家店铺在出租或转让。最后男子无奈地说：现在的生意特别惨淡哪！以后都没法儿做了！
 
-发稿：信心的选择
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-2.jpeg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

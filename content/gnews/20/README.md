@@ -2,83 +2,34 @@
 ---
 
 
-## 所有独裁者最后干的唯一一件事 就是发动战争
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1755582/)
+## 日本多方证据显示，新冠病毒疫苗副作用异常严重
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1755593/)
 
-[https://gtv.org/video/id=61b7febda68b4f4b28e82457](https://gtv.org/video/id=61b7febda68b4f4b28e82457)
+作者：日本方舟农场 – Andy5
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+日本媒体12月10日报道，一位50岁的女士在8月接种第一剂疫苗之后，持续呼吸困难、心跳紊乱，肺部出现积水，连续三个月只能卧床静养。这位女士在接种前非常喜欢四处走动，接种后却连普通家务都无法完成。在接受各类详细检查，排除掉所有可能性后，医生推断，无论从肺部积水还是从时间上来看，只可能是疫苗副作用造成的结果。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture4-7.jpg)
+根据日本厚生劳动省公布的数据，因无法否认出现的症状与接种疫苗相关，而由日本政府赔偿医疗费用的人数，已经从8月的单月29人暴增至11月的单月126人。值得注意的是，这种暴增同日本8月底开放给18岁以上人口接种疫苗的时间几乎同步。
 
-**郭文贵**
-**Miles Guo**
+日本福岛县知事也承认，疫苗接种后有一定数量的人员出现持续的副作用是客观事实。
 
-掌握共产党的历史和脉搏和内部的情报，和对共产党中心老杂毛的个人性格上的判断
-As long as you know the history, pulse and internal information of the Com-munist Party, and make right judgement according to the personal character of these top officials at the center of the Communist Party
+由此，日本媒体发出警告，目前尚不清楚疫苗副作用的持续时间，同时承认这些疫苗副作用的案例都是真实存在的，不是所谓的“心理作用”。
 
-只要你准确了，咱永远是赢家，咱知道共产党内部怎么想的
-once you are accurate, we will always be the winner, we know what the Com-munist Party thinks internally
+参考链接：[日本多方证据显示，新冠病毒疫苗副作用异常严重](https://www.gettr.com/post/pjmewp9edb)
 
-当习近平这时候，下边都鼓掌了，好啊，太伟大了，你就是秦始皇
-When Xi Jinping was at there, everyone applauded for him, “okay, that’s goo great, you are Qin Shihuang(the first emperor in China)
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-这个党没有你就完啦，所以说，你要继续干呢
-This party will be over without you, so you have to keep doing it”
+总编：飞虹
+编辑：飞虹
+校对/发稿：Hetangyuese
 
-我告诉你，所有的独裁包括卡扎菲、萨达姆的都是被家人和身边最亲的人忽悠出来的
-Let me tell you, all the dictators including Gaddafi and Saddam were fooled by their family members and the closest people around them
-
-而且所有的独裁着，真的从过去编故事自己是神，看了神，到最后你真相信自己是神
-And all the dictatorships really made up stories from the past that they are God, and are blessed by God, really believe that they are God in the end
-
-最后是灭掉神，自己代替神，然后最后是自己真心相信自己是神
-Finally, they get rid of God, replace God by themself, and finally they truly believe that they are God
-
-所有人都是这个死亡的步骤，今天你看到共产党的狂妄
-All of them follow this death procedure, today you look at the arrogance of the Communist Party
-
-第二条，杀基督教，杀新疆人，杀佛教、天主教、道教，全教拜一神，叫习太阳神
-The second, they kill Christianity, kill Uyghurs, kill Buddhism, Catholicism, and Taoism, and all religions worship to one god, it called Xi Sun God
-
-而且大家要看到的经济问题，现在国内已经是房地产崩塌，银行崩塌
-Moreover everyone needs to see the economic problems, now domestic real estate has collapsed, and the banks have collapsed
-
-这是一点都不用担心的，是吧，大量的一亿多人失业
-This is no doubt about that, right? there are more than 100 million people are unemployed
-
-大量的商业关门，所有的85%的私人企业要归为国有
-A large number of businesses are closed, and 85% of all private companies are to be state-owned
-
-这是所有的独裁者，阿明的乌干达，我再说的，卡扎菲、萨达姆、希特勒、斯大林
-This is all the dictators, like Amin of Uganda, I will repeat it again, Gaddafi, Sad-dam, Hitler, and Stalin
-
-所有人干的统一一件事儿，企业国有化，个人神圣化，宗教彻底被消灭，媒体彻底被控制
-One thing everyone does is the nationalization of enterprises, personal sanctifi-cation, religion is completely eliminated, and the media is completely controlled
-
-然后唯一最后选项发动战争，而且不是它意志为转移的
-Then the only last option for them to start a war, and it’s doesn’t depend on its will
-
-习现在想不发动战争都不可能
-Now it’s impossible for Xi not to start a war
-
-**原视频链接**:[https://gettr.com/post/pjh1kbe8be](https://gettr.com/post/pjh1kbe8be)
-
-Date:12/12/2021
-**原视频标题:** 所有独裁者最后干的唯一一件事 就是发动战争
-The only thing that all dictators did last was to start a war
-原视频日期：2021/12/10
-**原视频链接**https://gettr.com/post/pjh1kbe8be
-任务编号：3204
-视频时间段 : 0:00-2:06
-
-中听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 -天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
