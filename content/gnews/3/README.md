@@ -2,10 +2,10 @@
 ---
 
 
-## 岸田文雄拒绝声明是否外交抵制北京冬奥会
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1755699/)
+## 英国单日新增感染中共病毒人数创今年新高
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1755707/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12._15-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1215-scaled.jpg)
 *编辑：东京樱花团/简报小组
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
