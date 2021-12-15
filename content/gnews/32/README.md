@@ -2,24 +2,36 @@
 ---
 
 
-## 仅部分加拿大人尊重并支持未接种者的个人选择
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1757665/)
+## 香港世贸突然起火，围困数百人，一人正在抢救之中
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1757703/)
 
-采編：采编：UCool(优酷)        编译撰稿：苦尽甜来 (文来)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/02-image-02.jpg)
-[图片来源](https://www.cp24.com/news/poll-suggests-40-per-cent-of-canadians-know-unvaccinated-people-don-t-discuss-issue-1.5704798?cache=lxaherxk%3Fot%3DAjaxLayout)
+作者：香草山健身部- 正道新闻
 
-据加拿大【CTV新闻】12月13日报道，最新民意调查显示，约40%的加拿大人认识未接种“新冠病毒”疫苗的家人或朋友，而且并未向这些未注射疫苗的人提出质疑。
+![](https://assets.gnews.org/wp-content/uploads/2021/06/WhatsApp_Image_2020-10-24_at_04.33.05-4.jpeg)
 
-报道继续指出，其中约70%的接种者没有与未接种者讨论与该疫苗相关的事宜，表示已放弃说服不愿注射疫苗，且和睦相处的亲朋好友去尝试接种。
 
-此外，有约12%的受访者称，他们曾与未接种者争论过有关疫苗的话题，并表示不再与这些拒绝疫苗的人来往。而其中仅有6%的人表示他们尊重并支持未接种者的个人选择。
 
-校对编辑：硫酸羟氯喹64
+香港世贸中心，1975年落成。位于铜锣湾位于香港铜锣湾告士打道280号，谢斐道的东端，面对香港海底隧道入口及铜锣湾避风塘。
+由于共产党的野蛮统治致使香港经济持续走低。2019年起，不少商户陆续退出香港世贸中心。2020年11月开始P1-5层陆续封闭装修。
+2021年12月15日，当地时间中午12点37分，装修位置突然起火。3小时后明火已经被扑灭。想要返回的住户被警察劝离。起火原因还在调查之中。目前无人员死亡，14人入院观察。[https://twitter.com/theinsiderpaper/status/1471020271679471616?s=21](https://twitter.com/theinsiderpaper/status/1471020271679471616?s=21)
 
-发稿：苦尽甜来 (文來）
+编辑/校对/发稿：菩提树
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpeg)
+**更多资讯，更多关注**
 
-[原文链接](https://www.ctvnews.ca/health/coronavirus/poll-suggests-40-per-cent-of-canadians-know-unvaccinated-people-don-t-discuss-issue-1.5704986?cid=sm%3Atrueanthem%3A%7B%7Bcampaignname%7D%7D%3Atwitterpost%E2%80%8B&amp;taid=61b75c774bd3090001f09972&amp;utm_campaign=trueAnthem%3A+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+
+
+
 
  
 

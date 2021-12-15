@@ -2,36 +2,28 @@
 ---
 
 
-## 香港世贸突然起火，围困数百人，一人正在抢救之中
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1757703/)
+## GTV新闻访谈简报|2021年12月15日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1757784/)
 
-作者：香草山健身部- 正道新闻
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-3.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/06/WhatsApp_Image_2020-10-24_at_04.33.05-4.jpeg)
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-1-6.png)
+文章仅代表作者本人观点，与Gnews无关
 
+视频参看：[2021.12.15早GTV新闻访谈](https://gtv.org/video/id=61b9ed337882000d5100ce0b)
 
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-香港世贸中心，1975年落成。位于铜锣湾位于香港铜锣湾告士打道280号，谢斐道的东端，面对香港海底隧道入口及铜锣湾避风塘。
-由于共产党的野蛮统治致使香港经济持续走低。2019年起，不少商户陆续退出香港世贸中心。2020年11月开始P1-5层陆续封闭装修。
-2021年12月15日，当地时间中午12点37分，装修位置突然起火。3小时后明火已经被扑灭。想要返回的住户被警察劝离。起火原因还在调查之中。目前无人员死亡，14人入院观察。[https://twitter.com/theinsiderpaper/status/1471020271679471616?s=21](https://twitter.com/theinsiderpaper/status/1471020271679471616?s=21)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/calendar.jpeg)
 
-编辑/校对/发稿：菩提树
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpeg)
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-
-
-
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

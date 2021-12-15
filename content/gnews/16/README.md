@@ -2,40 +2,43 @@
 ---
 
 
-## 【Michael.Tonny专栏】Real Science统计显示 越来越多运动员接种疫苗后突然死亡
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1757853/)
+## 中共的威胁将成就日本
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1757887/)
 
-作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+撰稿：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/13-3.jpg)
+[图片来源](https://tfiglobalnews.com/2021/09/11/a-terrified-ccp-shuts-down-little-kyoto-in-china-as-chinese-peoples-love-for-japan-makes-jinping-nervous/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+10月，岸田文雄的内阁诞生了。一百多年后的今天，日本迎来“第二次幕府末期”。在德川幕府末期，来自美国、英国、法国、俄罗斯等其他地方的帝国主义白人如海啸般涌向日本海岸，国家在“尊皇攘夷”还是“开放港口”的问题上出现了分歧。
 
-世界各国政客在不断重复“中共病毒疫苗是一种普通疫苗，它是安全有效的”，不遗余力的推广中共病毒疫苗，甚至强迫民众注射中共病毒疫苗。然而疫苗副作用带给世人的伤害，却一刻也没有停止。
+今天，一条名为“中国”的巨龙，正威胁着要吞噬日本。今天的护宪派相当于历史上的“攘夷派”，而日本的前辈们在江户时代末期正视现实，选择了向外界开放港口。
 
-[Real Science](https://goodsciencing.com/)对年轻运动员接种中共病毒疫苗后的严重副作用统计结果，可以证明接种疫苗究竟有多可怕。
+10月，华盛顿某智库著名高级研究员、约翰霍普金斯大学国际政治系教授哈尔布兰兹在美国发表了一篇题为《日本，世界沉睡的巨人，正在觉醒》的论文。引起了很多关注。
 
-许多运动队现在有多名球员缺阵，有的队甚至更多，这些因病缺席的球员的免疫系统很可能已经被“某些东西”损害了，运动队和大媒体都隐藏了这一点，认为没有人会注意到。
+他说：“日本曾经改变过世界历史的进程，但它现在正从战后的沉睡中苏醒过来。”他补充说，如果认为安倍晋三及继任者菅义伟和岸田文雄的内阁将与以前一样，那将是一个错误。他说：“日本即将脱皮蜕变。”
 
-这里只分析12月12日[Real Science](https://goodsciencing.com/)更新的比赛途中运动员突然倒地或死亡。
+其主要原因是中共的威胁不断升级，以及不能再过分依赖美国，并赞扬前首相安倍晋三倡导 “自由和开放的印度-太平洋”战略。
 
-下图为[Real Science](https://goodsciencing.com/)更新至2021年12月12日，运动员比赛途中突然倒地或突然死亡的统计结果。包括：心脏骤停（Cardiac Arrest）、血栓（Blood Clots or Thrombosis）、中风（Stroke）、心律不齐（Irregular Heartbeat）、心律失常（Arrythmia）、神经系统疾病（Neuropathy）、死亡（Death）
+日本将有望恢复作为一个“正常国家”，与美国共享地理条件，加之在经济、军事、技术和民主价值观方面相通，极可能与英国并列成为美国重要盟友。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/athlete-collapses-deaths-chart-20211210.jpg)
+日本自二战战败受美国保护后，一直享受着类似于江户时代260年的宁静。虽被称为“爱好和平”，其实是依赖于甚至是过多听凭于美国。
 
-通过上图可以看到，随着中共病毒疫苗接种比例的提高，越来越多的运多员倒在了赛场上。
+1972年2月，理查德-尼克松总统对北京进行了突然访问，震惊了世界。田中角荣内阁也惊慌失措，急于实现了日中两国的外交关系正常化（1972年9月）。
 
-除了以上明确打了中共病毒疫苗后，在赛场上突然倒地或死亡外，[Real Science](https://goodsciencing.com/)还公布了27名运动员在比赛中、比赛后、或日常生活中突然倒地或死亡。
+当邓小平出现时，全世界都对巨大的中国市场垂涎三尺，竞相投资中国。
 
-年轻运动员在比赛时心脏骤停或死亡绝对不正常，但今年正在发生，所有这些心脏问题和死亡都是在他们接种中共病毒疫苗后不久发生的。虽然这可能发生在没有接种中共病毒疫苗的人身上，但绝对数字清楚地指出了唯一明显的原因，就是因为注射了中共病毒疫苗。
+现在，日本和美国养大的这条“巨龙”—中共，正试图接管亚太。这个怪物是日美养大的，在某种意义上讲，遭遇威胁，也是自作自受。
 
-截止至12月12日，已经有310名运动员在接种中共病毒疫苗后，比赛途中心脏骤停等严重问题，177 人死亡。
+是危机也是转机，借此机会，日本能与美国顺利谈判，从而修改宪法第九条，恢复成一个“正常国家”也是有希望的。
 
-珍爱生命，不要打疫苗！
+信息来源：
 
-参考数据：
+[〝第二の幕末〟迎えつつある日本　米教授論文「日本が目覚める」　深刻化する中国の脅威、米国へのいたずらな依存困難に](https://news.yahoo.co.jp/articles/528f1e54079d7887b8fd3d212673255b1309fafd)
 
-[311 Athlete Cardiac Arrests, Serious Issues, 177 Dead, After COVID Shot](https://goodsciencing.com/covid/71-athletes-suffer-cardiac-arrest-26-die-after-covid-shot/)
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/uxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.jpg)
 
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/) 上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 
