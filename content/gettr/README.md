@@ -17,9 +17,17 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/15/2021 8:35 PM (UTC)`
+
+🔥🔥🔥🔥♥️♥️♥️新产品系列很快就要上线了@DDNYC
+> `@gfashion 12/15/2021 8:29 PM (UTC)`<br/>Coming soon…
+![img](https://media.gettr.com/group13/getter/2021/12/15/20/3860e86a-7850-7f6e-43c4-f32cce44b81a/out.jpg)
+
+---
+
 `@miles 12/15/2021 1:05 PM (UTC)`
 
-2015年12月15日 文贵大直播：欧美制裁 奥运人权经济；疫苗灾难 危害验证抗议 ；国内经济 地产负债脱钩；终共行动 中共是否报复
+2021年12月15日 文贵大直播：欧美制裁 奥运人权经济；疫苗灾难 危害验证抗议 ；国内经济 地产负债脱钩；终共行动 中共是否报复
 ![img](https://media.gettr.com/group14/origin/2021/12/15/12/00246737-29cd-10c7-558f-f0111967565f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
@@ -147,12 +155,6 @@ We conducted a preliminary survey about the effects of artemisinin supplements a
 
 12月13号：尊敬的战友们好，你们健身了吗？传播C C P病毒疫苗解药的真相了吗？一切都已经开始了！
 ![img](https://media.gettr.com/group31/getter/2021/12/13/14/02ab6dd7-c08b-eaa8-c948-5fed91489108/out.jpg)
-
----
-
-`@miles 12/13/2021 1:57 PM (UTC)`
-
-13/12/2021 MV "Hcoin To the Moon" Hits #1 🥇on 26 Countries' iTunes Top Music Video Charts on 4th Day of Launch! Miracle continues…….🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, USA, Taiwan, Japan, Russia, France, UK, Australia, Canada, Singapore, Macau, New Zealand, Thailand, Cambodia, Laos, Netherlands, Italy, Sweden, Philippines, Malaysia, Finland, Greece, Malta, Portugal, Fiji, Latvia!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1750517/<br/><br/>12月13号，MV版Hcoin To the Moon上线第4天位列26国iTunes热门MV榜首🥇！继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港，美国，台湾，日本，俄罗斯，法国，英国，澳大利亚，加拿大，新加坡，澳门，新西兰, 泰国，柬埔寨，老挝，荷兰， 意大利，瑞典，菲律宾， 马来西亚，芬兰，希腊，马耳他，葡萄牙， 斐济，拉脱维亚的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏
 
 ---
 

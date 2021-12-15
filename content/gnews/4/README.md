@@ -2,137 +2,104 @@
 ---
 
 
-## 俄罗斯特使向中共通报的四项内容吓傻了共产党
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1758521/)
+## 小肯尼迪新书以希望结尾：我们还有选择……（2/2）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1758553/)
 
-[https://gtv.org/video/id=61b9d7cea68b4f4b28e8b3b3](https://gtv.org/video/id=61b9d7cea68b4f4b28e8b3b3)
+**翻译： Jenny Ball**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip14-3.png)图片来源：childrenshealthdefense
+当我们考虑过去两年对宪法的空前打击时，值得停下来回顾革命期间使华盛顿军队停滞不前的天花流行病，以及消灭弗吉尼亚军队的疟疾传染病。
 
-**郭文贵**
-**Miles Guo**
+尽管两者都提醒制定者注意传染病流行的致命性和破坏性潜力，但是，宪法制定者还是选择在美国宪法中不包括对大流行病。
 
-俄罗斯派去的特使
-The special envoy sent by Russia
+所以今天，大流行正被用来为我们的宪法创造一系列新的例外， 正在发生的一切只用一个理由来解释：COVID。
 
-非常明确地所谓的在官方通报了
-made it very clear that
+现在让我们把目光从事情发生的表面原因上移开片刻，而将注意力集中在正在发生的事情上。
 
-和俄美交流之后
-after the official notification of the exchange between Russia and the United States,
+**那些控制权力杠杆的人诋毁持不同政见者，并惩罚每一次质疑、怀疑和辩论的尝试。 像历史上的所有暴君一样，他们禁止书籍，让艺术家沉默，谴责质疑新正统观念的作家、诗人和知识分子。**
 
-会谈之后, 这次私下里交谈告诉了中方
-they told the Chinese officials in a private conversation after the meeting with US.
+他们禁止集会，并强迫公民戴口罩，以灌输恐惧和分裂社区，并通过阻止上帝和进化赋予人类四十二块面部肌肉最微妙和最有力的非语言交流，来消除任何团结感。
 
-任何情况下你打台湾我不会跟你一起的
-that “under any circumstances, if you fight against Taiwan, I will not be with you”
+可以预见的是，这场大流行成了在全球范围内扩大暴政的借口——做出与病毒无关的改变。匈牙利压制言论自由，并禁止公开描述同性恋。中共国关闭了香港最后一家亲民主报纸，并监禁了其高管、编辑和记者。
 
-原来说你弄我吆喝啊，甚至给你技术上支持
-They originally were to let China do what they want and Russia just roaring in the back, and even provide them with technological support
+在白俄罗斯，卢卡申科总统通过大规模逮捕平息抗议活动，甚至劫持一架客机逮捕一名持不同政见的记者。柬埔寨废除了正当程序并逮捕了政治反对派。波兰政府废除了女性和同性恋者的权利，并有效地禁止了堕胎。
 
-这个对它是一个致命的（打击）
-This is a fatal strike to the CCP,
+印度总理逮捕了记者，并命令 Twitter 删除重要帖子。
 
-说我不会的，打台湾我不参与
-saying that I won’t participate if you war on Taiwan
+俄罗斯总统弗拉基米尔·普京（Vladimir Putin）利用大流行病作为（另一个）借口，监禁强大的反对者和禁止群众集会。
 
-第二句话很可怕
-The second sentence is fearful,
+民主国家也没有太大不同：
 
-所有中苏之间签署的油、气的协议，你们必须执行
-saying that you must implement all the oil and gas agreements signed between Chi-na and the Soviet Union
+法国要求其公民在离家 1 公里以上旅行时出示签署的声明。
 
-言外之意啥意思呀
-What does it implicate?
+澳大利亚比较自由，允许公民在离家最多 5 公里的地方冒险——但话说回来，澳大利亚已建造了新的拘留中心。
 
-你该给我的钱、买我的油、买我的气，一点儿也不能少
-The money that you are supposed to give me and the oil and gas you are supposed to buy from us cannot be a bit less
+英国禁止其公民出国旅行。
 
-你少了，反过来我不是不支持你，我就是打你了
-If you are missing a bit, on the other hand, it’s not that I don’t support you, but to fight against you
+许多类似的事情发生在美国，包括纽约参议院通过了一项法律，允许对被认为对“公共健康”构成威胁的居民进行强制和无限期拘留。**但对美国来说，言论自由一直是新兴暴政的最大受害者**。
 
-我就跟美国人站在一起去了
-and I would stand by the American side
+现在流行的术语“错误信息”已经意味着任何背离官方正统观念的表达方式。社交媒体和新闻媒体公司正在充当政府宣布的任何立场的速记员和捍卫者。
 
-这对习来讲是简直是巨大的羞辱
-This is a huge shame to Xi
+新闻调查、好奇心和调查的故意失败，未能探查、未能向当权者提出尖锐的问题（或任何问题）——让 2020 年和 2021 年变得疯狂和悲伤。
 
-（中共之前的战略）它是联俄抗美，联俄收台
-It (the CCP’s previous strategy) was to unite Russia and to be against the United States and to reclaim Taiwan
+有很多动机在起作用，但我会举一个简单的例子：大型制药公司是新闻和电视媒体上最大的广告商。他们每年 96 亿美元的广告预算购买的不仅仅是广告——它购买了拜拜。（2014 年，网络总裁罗杰·埃莱斯Roger Ailes 告诉我，他会解雇任何允许我在媒体谈论疫苗安全性的新闻节目主持人。我们的新闻部门，他解释说，**在非选举年，高达 70% 的广告收入来自制药公司。**）
 
-这个战略观是整个过去十几年世界局势变化的一切根本的原因
-This strategic view is the fundamental reason for all changes in the world situation over the past ten years
+我知道新闻媒体的作用对你来说不是新闻，所以我只举一个例子：
 
-这已经完了
-All these are over
+疫苗指令表面上基于：疫苗将阻止 COVID-19 传播的想法。如果他们不阻止传播，如果接种疫苗和未接种疫苗都可以传播病毒，那么这两组之间没有相关区别——**除了一组是不遵守政府命令的**。
 
-第三条是更让他接受不了的
-The third is even more unacceptable to Xi
+美国政府和任何政府强迫整个人口接受冒险的医疗干预，是有史以来采取的最具侵入性和侮辱性的行动。
 
-俄国和印度、北朝鲜、巴基斯坦、伊朗将形成一个新的联盟关系
-Russia and India, North Korea, Pakistan, and Iran will form a new alliance relation-ship
+**它却是基于一个谎言**。
 
-你看看就没有共产党，而且明确了就没邀请你进去
-You see, there is no Communist Party, and clearly, it has not been invited to join them
+美国CDC中心主任福奇博士和WHA都不得不勉强承认：**疫苗无法阻止传播。**
 
-什么概念？
-What dose it mean?
+当以色列公共卫生总监向美国FDA咨询小组发表讲话时，**她毫不怀疑疫苗无法阻止病毒传播、阻止疾病或阻止死亡。**在描述以色列截至 9 月 17 日的情况时，她说：
 
-这几个人要联合起来跟美国讲数（谈判）, 咱们不打，咱交易
-These individuals want to be united and to negotiate with the United States that they don’t want to fight but a deal
+“60%的重症和危重症患者，都接种了疫苗，双重接种，全面接种。在第四波死亡的人中有 45% 接种了双重疫苗。”
 
-特别是俄罗斯反对中国在阿富汗干的事情
-Especially Russia opposes what China is doing in Afghanistan
+尽管如此，三周后的 10 月 7 日——就在本书付印前几天——**美国总统宣布，他正在确保医护人员接种疫苗**，“因为如果你在医疗机构寻求护理，你应该有确保提供这种护理的人受到保护，不会感染 COVID ，并且不会传染给您。”
 
-很明确，说你在阿富汗这事干得不行
-It’s clear that the CCP didn’t do it well in Afghanistan
+总统刚刚告诉美国人民，**接种疫苗提供了“确定性”，即接种疫苗的人“可以免受 COVID 感染，并且不会传染给你”。**
 
-阿富汗现在死太多人了
-Too many people have died in Afghanistan now
+没有人向总统提出这种令人震惊的无逻辑，明显的不实的问题——而那次演讲，为我们提供了一个鲜明的例子，说明了正在发生的事情。
 
-对我俄罗斯也不利呀
-It’s unfavorable to Russia
+电视转播的画面，**一位不受挑战的领导人发表不实言论，以误导和控制民众**——这就是乔治·奥威尔 (George Orwell) 悲惨的预言小说《1984》中的世界。
 
-阿富汗乱，车臣的回民就给它搞在一起
-The chaos in Afghanistan, the Muslim people in Chechnya would bring it together
+这是一个充满希望的迹象，**到 2021 年，奥威尔 70 岁的书突然成为美国畅销书的前 20 名。**
 
-所谓车臣恐怖分子就会再次崛起
-The so-called Chechen terrorists will rise again
+这种意识和基本常识提醒我们，民主国家可以重新确立对流氓独裁者的立法控制权——无论你是市长、州长、总统还是总理。
 
-这是很夸张的
-This is very overstressed
+－ 他们可以发起调查诽谤罪，并恢复自由。
 
-还有一个就是现在你跟美国和西方这种挑战什么都可以
-Another thing is that now you can challenge anything with the United States and the West
+－ 即使没有政府的干预，我们普通人也能让我们自己从暴政中解救出来。
 
-但是中国内部
-But insider China
+－ 我们可以拒绝遵守强制禁令，拒绝通过强制测试和口罩的方式送孩子上学，
 
-俄罗斯就说了你的人权和你的整个企业经济情况让我们很失望
-The Russia said that the Chinese human rights and their entire business economic situation have disappointed them
+－拒绝审查的社交媒体平台，
 
-言外之意就是你再给我钱，你给不起了
-The implication is that the CCP needs to give Russia money again, but the CCP may not have enough money anymore
+－拒绝从让我们破产，并试图控制我们的公司购买产品。
 
-**原视频链接:** [https://gettr.com/post/pjjifl68f6](https://gettr.com/post/pjjifl68f6)
+这些行动并不容易，**但容忍和不作为的后果会困难得多**。通过呼吁我们的道德勇气，我们可以阻止我们的国家向全球警察国家迈进。
 
-Date: 12/13/2021
-原视频标题: 俄罗斯特使向中共通报的四项内容吓傻了共产党
-The Communist Party Has Been Shocked by The Four Contents That The Russian Special Envoy Noticed to The CCP
+在我写这本书的时候，我重读了小马丁·路德·金 1963 年在林肯纪念堂发表的雄伟的“我有一个梦想”的演讲。这些年来，马丁牧师一直在向我们伸出援手：
 
-原视频日期：2021/12/12
-原视频链接: https://gettr.com/post/pjjifl68f6
-任务编号：3220
-视频时间段 : 0:00-2:17
+“但我们拒绝相信，正义银行已经破产。我们拒绝相信，这个国家巨大的机会宝库中没有足够的资金。因此，我们来兑现这张支票，这张支票将给我们带来自由的财富和正义的保障。我们也来到这个神圣的地方，提醒美国现在的紧迫性。现在不是轻松地静下来或服用渐进主义镇定剂的时候。现在是兑现民主承诺的时候了。”
 
-英听校 : 洛杉矶盘古农场 – 郭班之樱
-翻译 : 洛杉矶盘古农场 – 郭班之樱
-翻译终校 : 洛杉矶盘古农场 – Mike Li
-字幕+视频制作 : 洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场- 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+**与我们一起夺回我们的民主和自由。我会在前沿阵地与你相会**。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**新闻来源**：[childrenshealthdefense][RFK, Jr.’s New Book Ends on Note of Hope: ‘We Have a Choice. And It Is Not Too Late.’](https://childrenshealthdefense.org/defender/rfk-jr-the-real-anthony-fauci-we-have-choice/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=73816dfa-7dfe-468a-b1c4-5ac2bc316bd4)
+
+相关文章阅读：[小肯尼迪新书以希望结尾：我们还有选择……（1/2）](https://gnews.org/zh-hans/1758539/)
+
+* * *
+
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-3.jpeg)
+
+
 
  
 
