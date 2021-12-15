@@ -2,43 +2,93 @@
 ---
 
 
-## 中共的威胁将成就日本
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1757887/)
+## MV版Hcoin To the Moon上线第6天位列18国iTunes热门MV榜首！
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1757963/)
 
-撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/13-3.jpg)
-[图片来源](https://tfiglobalnews.com/2021/09/11/a-terrified-ccp-shuts-down-little-kyoto-in-china-as-chinese-peoples-love-for-japan-makes-jinping-nervous/)
+12/15/2021 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线第6天位列18国iTunes热门MV榜榜首！
 
-10月，岸田文雄的内阁诞生了。一百多年后的今天，日本迎来“第二次幕府末期”。在德川幕府末期，来自美国、英国、法国、俄罗斯等其他地方的帝国主义白人如海啸般涌向日本海岸，国家在“尊皇攘夷”还是“开放港口”的问题上出现了分歧。
+* * *
 
-今天，一条名为“中国”的巨龙，正威胁着要吞噬日本。今天的护宪派相当于历史上的“攘夷派”，而日本的前辈们在江户时代末期正视现实，选择了向外界开放港口。
+[【PDF 下载】Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record.pdf)
 
-10月，华盛顿某智库著名高级研究员、约翰霍普金斯大学国际政治系教授哈尔布兰兹在美国发表了一篇题为《日本，世界沉睡的巨人，正在觉醒》的论文。引起了很多关注。
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_2.jpg)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_5-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_6-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_7-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_11-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_12-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_13-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_14-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_15-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_16-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_17-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_19-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_22-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_23-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_24-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_25-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_27-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_28-1.jpg)
 
-他说：“日本曾经改变过世界历史的进程，但它现在正从战后的沉睡中苏醒过来。”他补充说，如果认为安倍晋三及继任者菅义伟和岸田文雄的内阁将与以前一样，那将是一个错误。他说：“日本即将脱皮蜕变。”
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_38-1.jpg)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_39.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_40.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_42.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_45.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_46.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_47.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_48.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_49.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_50.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_52.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_53.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_54.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_56.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_57.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_58.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_59.jpg)
 
-其主要原因是中共的威胁不断升级，以及不能再过分依赖美国，并赞扬前首相安倍晋三倡导 “自由和开放的印度-太平洋”战略。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_60.jpg)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_61.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_62.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_63.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_64.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_66.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_67.jpg)
 
-日本将有望恢复作为一个“正常国家”，与美国共享地理条件，加之在经济、军事、技术和民主价值观方面相通，极可能与英国并列成为美国重要盟友。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_74.jpg)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_75.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_76.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_77.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_78.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_79.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_82.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_83.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_84.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_85.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_86.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_91.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_93.jpg)
 
-日本自二战战败受美国保护后，一直享受着类似于江户时代260年的宁静。虽被称为“爱好和平”，其实是依赖于甚至是过多听凭于美国。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_95.jpg)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_96.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_97-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_98-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_99-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_100-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_104-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_105-2.jpg)
 
-1972年2月，理查德-尼克松总统对北京进行了突然访问，震惊了世界。田中角荣内阁也惊慌失措，急于实现了日中两国的外交关系正常化（1972年9月）。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_111-1.jpg)
+[【PDF 下载】Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Wednesday-15-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record.pdf)
 
-当邓小平出现时，全世界都对巨大的中国市场垂涎三尺，竞相投资中国。
-
-现在，日本和美国养大的这条“巨龙”—中共，正试图接管亚太。这个怪物是日美养大的，在某种意义上讲，遭遇威胁，也是自作自受。
-
-是危机也是转机，借此机会，日本能与美国顺利谈判，从而修改宪法第九条，恢复成一个“正常国家”也是有希望的。
-
-信息来源：
-
-[〝第二の幕末〟迎えつつある日本　米教授論文「日本が目覚める」　深刻化する中国の脅威、米国へのいたずらな依存困難に](https://news.yahoo.co.jp/articles/528f1e54079d7887b8fd3d212673255b1309fafd)
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/uxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.jpg)
-
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
