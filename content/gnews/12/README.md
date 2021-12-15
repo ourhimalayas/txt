@@ -2,28 +2,41 @@
 ---
 
 
-## 各国抵制北京冬奥会，中共只能请网红宣传助威
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1756607/)
+## 社交媒体影响者 与中共国领事馆签订官方合同
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1756634/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/5-21.jpg)
-[图片来源](https://www.voachinese.com/a/us-congress-bipartisan-members-letter-ioc-postpone-winter-olympics-20210723/5977577.html)：
+作者: 纽约香草山农场翻译部—祈望明天会更好
 
-美国、加拿大等国日前都表态将对北京冬奥进行「外交抵制」，虽然中共国官方对外表示「中共国原本就没有向相关的国家发出邀请」，但根据美国政府显示的文件，中共国聘请公关公司招揽网红，宣传明年2月要揭幕的北京冬奥，并趁机鼓吹美中在气候变迁等议题上合作。
 
-美国、纽西兰、澳洲、英国、加拿大相继宣布抵制北京冬奥，原因是中共国侵犯新疆、香港等地民众的人权、拒绝配合调查中共病毒的起源，还有11月初中共国网球女将彭帅的性侵失踪案。可口可乐、Visa、英特尔（Intel）等美国企业也面临退出奥运赞助协议的压力。中共国为了修补形象，透过中共国官媒《中共国环球电视网》（CGTN）、和《新华社》斥资数百万美元为美国观众制作亲中共国的内容。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-17.jpg)
 
-美国政治新闻网站《华盛顿自由灯塔》（The Washington Free Beacon）13日报导，中共国驻纽约领事馆聘请「Vippi Media」公司负责影响力宣传活动。Vippi Media会以30万美元的价格，延揽IG、TikTok和Twitch的知名用户来宣传北京冬奥。不过创办人贾斯瓦（Vipp Jaswal）说，他尚未决定邀请哪些网红参加。
 
-中共国与Vippi的合约要求该公司聘请8名网红，制作至少24篇关于奥运、北京历史和美中关系的贴文，其中20％的内容应该集中在「合作与中美关系的任何好事」上，还有借机鼓吹美中两国在气候变迁等议题上合作。
+12月14日杰克·波索贝克(Jack Posobiec)在班农作战室节目中, 谈到我们从司法部所提交的一份外国代理人注册信息文件中得到了一条新消息:社交媒体影响者营销公司与中共国领事馆正式签订官方合同.
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-15-at-5.10.27-PM.png)图片来源GTV
+这家总部位于新泽西州的美国公司, 从中共国收取数十万美元, 来支付 Twitch, Instagram和抖音等媒体, 用以宣传北京奥运会, 并淡化在“彭帅事件”上的追查力度.
 
-消息来源:
+诚如郭先生在12月12日大直播中所说, 一半抵制冬奥会的是因为彭帅事件, 这就是多米诺骨牌效应的开始.
 
-**[中共国「30万美元」收买美国网红力推北京冬奥](https://tw.news.yahoo.com/%E4%B8%AD%E5%9C%8B-30%E8%90%AC%E7%BE%8E%E5%85%83-%E6%94%B6%E8%B2%B7%E7%BE%8E%E5%9C%8B%E7%B6%B2%E7%B4%85-%E5%8A%9B%E6%8E%A8%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A7-042722042.html)**
+杰克在班农作战室节目中又说, 中共国领事馆为了帮中共宣传这冬奥会, 无所不用其极地用大量资金注入媒体来宣传冬奥, 淡化彭帅事件, 并诋毁反对中共国的人们, 他们会被称为种族主义者, 所有能贬低人的名称都会用上. 例如, 史蒂夫·班农以种族灭绝抵制冬奥会的报导, 中共国就宣称班农是想要更多的白人婴儿. 中共国所做的一切都是为了达到宣传北京奥运会而使出的卑劣技俩.
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.jpg)
+**参考阅读**: [https://gtv.org/video/id=61b8b7fa56f4921401b7ba4a](https://gtv.org/video/id=61b8b7fa56f4921401b7ba4a)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-6.png)
+总编: 飞虹
+
+编辑/校对/发稿: 卡夫卡的甲壳虫
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
 
 
  

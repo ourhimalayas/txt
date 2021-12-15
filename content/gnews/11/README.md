@@ -2,37 +2,32 @@
 ---
 
 
-## 中日财经爆：中共国互联网现裁员潮，字节跳动再次裁员
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1756633/)
+## 疫苗灾情｜阿根廷国脚阿奎罗接种疫苗后致严重心脏病 今宣布退役
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1756635/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/7-21.jpg)
-[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fi.epochtimes.com%2Fassets%2Fuploads%2F2021%2F10%2Fid13322716-523431-600x400.jpg&amp;imgrefurl=https%3A%2F%2Fwww.epochtimes.com%2Fgb%2F21%2F10%2F22%2Fn13322714.htm&amp;tbnid=6l9SRwu8ZUHX5M&amp;vet=12ahUKEwjZnObLu-X0AhWmFjQIHYlQD5AQMygEegUIARCyAQ..i&amp;docid=jhcSXOGc_kyCmM&amp;w=600&amp;h=400&amp;itg=1&amp;q=%E5%AD%97%E8%8A%82%E8%B7%B3%E5%8A%A8&amp;ved=2ahUKEwjZnObLu-X0AhWmFjQIHYlQD5AQMygEegUIARCyAQ#imgrc=6l9SRwu8ZUHX5M&amp;imgdii=zrsPcThn-1AD_M)
+**撰文/ 疫情关注组｜发布日期/ 15/12/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup）](https://gettr.com/user/mightygroup%EF%BC%89)**
 
-中共国互联网大厂裁员潮不止，日前已经精简部分人事的字节跳动再次传出裁员，近日解散了部分人力资源部门，有的员工转换职务，也有人卷铺盖走路。实际裁撤人数并未公布。
+英国《卫报》报导指，10月尾比赛后出现胸口痛和呼吸困难的阿根廷国脚，33 岁的前锋阿奎罗（Sergio Aguero ）将于12月15日正式宣布因心脏疾病而退役。
 
-今年以来，随着针对网络巨头的监管政策持续收紧，不少大厂的业务紧缩，在不得不瘦身的情形下，裁员潮接二连三袭来。
+有阿根廷传奇射手之称的阿奎罗今季才刚转会至巴塞罗那，结果仅为新球队上阵 5 场射入一球，就要结束他 19 年的球员生涯。
 
-据报导，网络巨头字节跳动近日再度传出裁员，这次大刀挥向人事部门，专职员工培训的人才发展中心团队已经解散，现有成员优先内部转职，无合适职务者则裁撤并给予补偿。
+阿奎罗曾多次公开支持接种 COVID-19 疫苗，并表示自己也是完全接种者，更呼吁和推动所有12 岁以上的儿童尽快接种疫苗。
 
-报导引述一封字节跳动的内部邮件指出，做出调整的原因是现有团队的定位与公司的需要脱节；其次，团队积累的技能和经验，不太符合公司未来一段时间的需求。
+不料，一个月后，在对阵阿拉维斯队的比赛期间，他突然按着胸口，示意呼吸困难，随即就被送往医院进行心脏检查，确诊患有心律失常，医生认为他的情况比较严重，建议退役。
 
-信件中更毫不留情的批评，「有一些部门和团队的工作，变成过家家（扮家家酒）的游戏，员工很忙，部门空转，但没有实际创造很大价值，不仅浪费公司资源，也制造很多噪音，浪费其他员工时间。」
 
-报导引述业内人士分析，在大企业的人资部门中，培训业务是反映整体环境景气的指标之一。「业绩好，所有部门都会要求增加培训，而业绩不好，培训这个不能直接创造收益的部门就会被裁掉，就像字节跳动此次的行为。」
 
-今年年底，字节跳动已陆续在商业化、游戏、教育业务等领域裁员，其中教育事业至少已裁员2000人。
+不过，当时阿奎罗希望经过详细心律监查和测试后再做决定，最后，磁力共振及压力测试的数据显示，他的心脏问题甚至远比想像的还要严重。
 
-报导指出，字节跳动这次将大刀挥向「人才发展中心」，或许能视为今年底中共国网络大厂裁员潮的延续。日前影音串流平台爱奇艺传出裁员，裁员比例约在20%至40%，补偿尚未完全敲定；短影音平台快手也传出将要裁员30%，对象包含除绩效不彰的员工，以及年薪百万的中阶主管。
+根据国际转会网站[Transfermarkt.com 早前所写](https://www.transfermarkt.com/sergio-aguero/profil/spieler/26399)，阿奎罗本打算于明年 2 月初复出，可惜，他最终无法恢复到以往最健康及安全的状态，难以继续职业足球生涯。
 
-消息来源:
+#### **辉煌战绩成为历史**
 
-**[字节跳动再传裁员大刀挥向人资部门](https://tw.news.yahoo.com/%E5%AD%97%E7%AF%80%E8%B7%B3%E5%8B%95%E5%86%8D%E5%82%B3%E8%A3%81%E5%93%A1-%E5%A4%A7%E5%88%80%E6%8F%AE%E5%90%91%E4%BA%BA%E8%B3%87%E9%83%A8%E9%96%80-042348905.html)**
-
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.jpg)
-
+一直为曼城效力的阿奎罗被誉为曼城史上最佳射手，他为曼城夺得 5 次英超冠军，贡献了多个关键性进球。而在国家队的表现方面，他在 20/21 球季为国家队夺得美洲杯， 2014 年为阿根廷夺得世界杯亚军，职业生涯总计为阿根廷上阵 101 场，射入 41 球。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/疫苗-2.jpg)
+来源｜[卫报](https://www.theguardian.com/football/2021/dec/13/barcelona-sergio-aguero-to-announce-retirement-with-heart-condition)
 
  
 
