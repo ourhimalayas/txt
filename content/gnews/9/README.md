@@ -2,42 +2,32 @@
 ---
 
 
-## 社交媒体影响者 与中共国领事馆签订官方合同
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1756634/)
+## 疫苗灾情｜阿根廷国脚阿奎罗接种疫苗后致严重心脏病 今宣布退役
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1756635/)
 
-作者: 纽约香草山农场翻译部—祈望明天会更好
+**撰文/ 疫情关注组｜发布日期/ 15/12/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup）](https://gettr.com/user/mightygroup%EF%BC%89)**
 
+英国《卫报》报导指，10月尾比赛后出现胸口痛和呼吸困难的阿根廷国脚，33 岁的前锋阿奎罗（Sergio Aguero ）将于12月15日正式宣布因心脏疾病而退役。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-17.jpg)
+有阿根廷传奇射手之称的阿奎罗今季才刚转会至巴塞罗那，结果仅为新球队上阵 5 场射入一球，就要结束他 19 年的球员生涯。
 
+阿奎罗曾多次公开支持接种 COVID-19 疫苗，并表示自己也是完全接种者，更呼吁和推动所有12 岁以上的儿童尽快接种疫苗。
 
-12月14日杰克·波索贝克(Jack Posobiec)在班农作战室节目中, 谈到我们从司法部所提交的一份外国代理人注册信息文件中得到了一条新消息:社交媒体影响者营销公司与中共国领事馆正式签订官方合同.
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-15-at-5.10.27-PM.png)图片来源GTV
-这家总部位于新泽西州的美国公司, 从中共国收取数十万美元, 来支付 Twitch, Instagram和抖音等媒体, 用以宣传北京奥运会, 并淡化在“彭帅事件”上的追查力度.
-
-诚如郭先生在12月12日大直播中所说, 一半抵制冬奥会的是因为彭帅事件, 这就是多米诺骨牌效应的开始.
-
-杰克在班农作战室节目中又说, 中共国领事馆为了帮中共宣传这冬奥会, 无所不用其极地用大量资金注入媒体来宣传冬奥, 淡化彭帅事件, 并诋毁反对中共国的人们, 他们会被称为种族主义者, 所有能贬低人的名称都会用上. 例如, 史蒂夫·班农以种族灭绝抵制冬奥会的报导, 中共国就宣称班农是想要更多的白人婴儿. 中共国所做的一切都是为了达到宣传北京奥运会而使出的卑劣技俩.
-
-**参考阅读**: [https://gtv.org/video/id=61b8b7fa56f4921401b7ba4a](https://gtv.org/video/id=61b8b7fa56f4921401b7ba4a)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-6.png)
-总编: 飞虹
-
-编辑/校对/发稿: 卡夫卡的甲壳虫
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+不料，一个月后，在对阵阿拉维斯队的比赛期间，他突然按着胸口，示意呼吸困难，随即就被送往医院进行心脏检查，确诊患有心律失常，医生认为他的情况比较严重，建议退役。
 
 
+
+不过，当时阿奎罗希望经过详细心律监查和测试后再做决定，最后，磁力共振及压力测试的数据显示，他的心脏问题甚至远比想像的还要严重。
+
+根据国际转会网站[Transfermarkt.com 早前所写](https://www.transfermarkt.com/sergio-aguero/profil/spieler/26399)，阿奎罗本打算于明年 2 月初复出，可惜，他最终无法恢复到以往最健康及安全的状态，难以继续职业足球生涯。
+
+#### **辉煌战绩成为历史**
+
+一直为曼城效力的阿奎罗被誉为曼城史上最佳射手，他为曼城夺得 5 次英超冠军，贡献了多个关键性进球。而在国家队的表现方面，他在 20/21 球季为国家队夺得美洲杯， 2014 年为阿根廷夺得世界杯亚军，职业生涯总计为阿根廷上阵 101 场，射入 41 球。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/疫苗-2.jpg)
+来源｜[卫报](https://www.theguardian.com/football/2021/dec/13/barcelona-sergio-aguero-to-announce-retirement-with-heart-condition)
 
  
 
