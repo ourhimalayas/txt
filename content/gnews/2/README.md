@@ -2,111 +2,73 @@
 ---
 
 
-## COVID-19 最新情报｜mRNA 疫苗技术发明人之一马龙博士就儿童疫苗发布紧急声明
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1756400/)
+## 【草根访谈】第290期新闻概要
+` WindTalker` [轉載自GNews](https://gnews.org/zh-hans/1756419/)
 
-**撰文｜疫情关注组 / 发布时间｜15/12/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup）](https://gettr.com/user/mightygroup%EF%BC%89)**
+**——日本东京方舟农场GTV直播组出品**
 
-继早前全球 15,000 名医生和医学科学家发表联署声明，公开宣布不应为健康儿童接种 COVID-19 疫苗之后，mRNA疫苗技术发明人之一，多年致力于疫苗开发研究的罗伯特·马龙（Robert Malone）博士向家长们发布了一份紧急声明，慎重详述了拒绝为儿童接种疫苗背后的科学事实。
+策划/撰文：宇宙之泾
 
-声明精华版
+校对：石桥李次郎
 
-声明足本版 请点击【GTV官方帐号】 观看
+书法：方舟柒公子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-09-上午2.30.19.png)
+日本东京方舟农场GTV直播组【草根访谈】第290期新闻概要：
 
-**声明文字版全文：**
+GTV方舟农场直播间【草根访谈】今天的嘉宾是日本东京方舟农场的美女「雨嘉战友」坐客方舟直播间，分享一下12月8日观看七哥大直播的感想。
 
-My name is Robert Malone, and I am speaking to you as a parent, grandparent, physician and scientist. 
-我的名字是罗伯特·马龙，我以同为父母、祖父母、医生和科学家的身份作以下发言。
+时政观点：没郭七条！直接开干！ 七哥说： 所有的送葬图文都应该跟制作病毒、释放病毒、打毒疫苗、香港大屠杀，新疆种族大灭绝等事件挂钩。跟这些事情联系在一起发声发咒，这样有根源利于传播爆料革命，传播共匪的恶，望有创意的战友们能看到！
+![](https://assets.gnews.org/wp-content/uploads/2021/12/E0152A97-5633-4004-84AC-2FE668A23BD8-scaled.jpeg)
+**12月8日七哥大直播内容**：文贵先生家人、父亲、员工被300特警，300法警，全部赶到大街上。手机失效、信用卡被停 、新中国联邦未来1-3年重大行动「海外中共大使馆领事馆外，大年三十开始为中南坑的老杂毛们及家属送葬 、每天100美金、100个躺平币、1个喜币、食宿交通实报实销。战友们只要去参加给习近平送葬行动的，都将获得补助 、今天开始，没有郭七条，只要能灭共 、墙内战友尽量不要做 保障安全的情况下传播信息。」
 
-I don’t usually read from a prepared speech, but this is so important that I wanted to make sure that I get every single word and scientific fact correct. 我通常不会阅读讲稿，但这非常重要，我想确保我说每一个字和科学事实都是正确的。
+主持人：@WindTalker 宇宙之泾
 
-I stand by this statement with a career dedicated to vaccine research and development. 
-我以从事疫苗研究与开发的专业认证此份声明。
+嘉宾战友：@yujia 雨嘉战友
 
-I’m vaccinated for COVID and I’m generally pro-vaccination. 
-我接种了新冠疫苗，我不是反疫苗人士
+美东时间晚上11:30 日本东京时间中午1:30 北京时间中午12:30
+![插图](https://assets.gnews.org/wp-content/uploads/2021/12/CF6756C4-59FE-475E-A4DC-435933C107C9.jpeg)
+Every day we spreading the truth about CCPvirus (COVID-19)and CCP vaccines, every day is Shouting for the people of Hong Kong who killed from CCP, and every day is hard working for the Chinese people to destroy the evil Chinese Communist Party! Welcome to our New Federal State of the China. Welcome to our Himalaya Tokyo JHL. **👏**
 
-I have devoted my entire career to developing safe and effective ways to prevent and treat infectious diseases.
-我的整个职业生涯都致力于开发安全有效的方法来预防和治疗传染病。
+【草根访谈】日本东京方舟农场欢迎你！
 
-After this, I will be posting the text of this statement so you can share it with your friends and family.
-在此之后，我将发布此声明的文本，以便您可以与您的朋友和家人分享。
+【草根访谈】【方舟有你】【方舟歌汇】
 
-Before you inject your child – **a decision that is irreversible** – I wanted to let you know the scientific facts about this genetic vaccine, which is based on the mRNA vaccine technology I created.
-在您决定给孩子注射疫苗之前——这是一个无法挽回的决定——我想让你知道关于这种疫苗的科学事实， 它建基于我参与发明的 mRNA 疫苗技术。
+【方舟品读时光】【有问必答】【果色添香】
 
-There are three issues parents need to understand before you take this irreversible decision .
-作为家长，在您做出这不可挽回之决定之前，您需要知道三个重点：
+[#nfsc](https://gettr.com/hashtag/%23nfsc) [#MilesGuo](https://gettr.com/hashtag/%23MilesGuo) [#ccpvirus](https://gettr.com/hashtag/%23ccpvirus) [#CCPvaccines](https://gettr.com/hashtag/%23CCPvaccines) [#ccpliepeoplesdie](https://gettr.com/hashtag/%23ccpliepeoplesdie) [#takedowntheccp](https://gettr.com/hashtag/%23takedowntheccp)
 
-The first is that a viral gene will be injected into your children’s cells.
-第一，接种疫苗就是将一种病毒基因注射进您孩子的细胞中。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/85A9DBF3-4860-4C4F-8B7B-962289F759D4_1_100_o-1-scaled.jpeg)
 
-This gene forces your child’s body to make toxic spike proteins.
-这种基因会诱导您孩子的身体产生有毒的刺突蛋白。
 
-**These proteins often cause permanent damage in children’s critical organs, including:
-这些蛋白通常会对儿童的重要器官造成永久性损伤，包括：**
+```
+只有那些疯狂到认为自己可以改变世界的人，才能真正改变这个世界。
+```
 
-**– Their brain and nervous system
-– Their heart and blood vessels, including blood clots
-– Their reproductive system
-– And this vaccine can trigger fundamental changes to their immune system
-– 儿童的大脑和神经系统 **
-**– 儿童的心脏和血管，包括血栓 **
-**– 儿童的生殖系统 **
-**– 这种疫苗可以诱发免疫系统的根本性变化**
 
-The most alarming point about this is that,
-最值得忧虑的是，
 
-**once these damages have occurred, they are irreparable.
-这些损害一旦发生， 就无可挽回。**
 
-**– You can’t fix the lesions within their brains
-– You can’t repair heart tissue scarring
-– You can’t repair a genetically reset immune system
-– This vaccine can cause reproductive damage that could affect future generations of your family
-– 你无法修复他们大脑的病变**
-**– 你无法修复心脏组织疤痕 **
-**– 你无法修复遗传重置免疫系统**
-**– 这种疫苗对生殖系统造成的损害，会影响您家族的后代繁衍**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/73A43459-2029-4DBE-89E4-993EF95E97A9_1_201_a.jpeg)
 
-The second thing you need to know about is the fact that this novel technology has not been adequately tested.
-第二个您需要了解的重点是，（ mRNA 疫苗）技术尚未经过充分测试。
 
-– We need at least 5 years of testing/research before we can really understand the risks
-– Harms and risks from new medicines often become revealed many years later
-– 我们需要至少 5 年的测试/研究才能真正了解它的风险
-– 新药的危害和风险往往在多年后才会显露出来
+```
+知人者智自知者明篆刻：柒公子
+```
 
-Ask yourself if you want your own child to be part of the most radical medical experiment in human history
-问问自己，你真的否希望自己的孩子参与这个人类历史上最激进的医学实验吗
 
-One final point: the reason they’re giving you to vaccinate your child is a lie.
-最后一点：他们所谓的，让你孩子接种疫苗的理由是谎言。
 
-Your children represent no danger to their parents or grandparents.
-您的孩子对他们的父母或祖父母没有危险
 
-It’s actually the opposite.
-实际上，恰恰相反。
 
-Their immunity, after getting COVID, is critical to save your family if not the world from this disease
-感染新冠病毒后，儿童的免疫力对于拯救家人免于疾病危害是至关重要的。
 
-In summary: there is no benefit for your children or your family to be vaccinating your children against the small risks of the virus, given the known health risks of the vaccine that as a parent, you and your children may have to live with for the rest of their lives.
-总而言之，鉴于已知疫苗会引发的健康风险，因为病毒的小风险，而去接种疫苗，这对您的孩子或您的家人没有任何好处，您和您孩子的余生都将与之共存。
+2021年12月| 一 | 二 | 三 | 四 | 五 | 六 | 日 |
+| --- | --- | --- | --- | --- | --- | --- |
+|   | [1](https://gnews.org/zh-hans/date/2021/12/01/) | [2](https://gnews.org/zh-hans/date/2021/12/02/) | [3](https://gnews.org/zh-hans/date/2021/12/03/) | [4](https://gnews.org/zh-hans/date/2021/12/04/) | [5](https://gnews.org/zh-hans/date/2021/12/05/) |
+| [6](https://gnews.org/zh-hans/date/2021/12/06/) | [7](https://gnews.org/zh-hans/date/2021/12/07/) | [8](https://gnews.org/zh-hans/date/2021/12/08/) | [9](https://gnews.org/zh-hans/date/2021/12/09/) | [10](https://gnews.org/zh-hans/date/2021/12/10/) | [11](https://gnews.org/zh-hans/date/2021/12/11/) | [12](https://gnews.org/zh-hans/date/2021/12/12/) |
+| [13](https://gnews.org/zh-hans/date/2021/12/13/) | [14](https://gnews.org/zh-hans/date/2021/12/14/) | [15](https://gnews.org/zh-hans/date/2021/12/15/) | 16 | 17 | 18 | 19 |
+| 20 | 21 | 22 | 23 | 24 | 25 | 26 |
+| 27 | 28 | 29 | 30 | 31 |   |
 
-The risk/benefit analysis isn’t even close with this vaccine for children.
-儿童接种疫苗的风险/收益分析完全是悖离事实的。
-
-As a parent and grandparent, my recommendation to you is to resist and fight to protect your children.
-作为父母和祖父母，我建议您坚定抵制（疫苗）以保护您的孩子。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-9.jpg)
-来源｜推特（目前已被删除）
-
+[« 11月](https://gnews.org/zh-hans/date/2021/11/)  
+ 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
