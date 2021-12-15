@@ -2,82 +2,28 @@
 ---
 
 
-## 所有独裁者最后干的唯一一件事 就是发动战争
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1755582/)
+## 共产党给世界准备了最大的棺材就是冠状病毒和疫苗
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1755637/)
 
-[https://gtv.org/video/id=61b7febda68b4f4b28e82457](https://gtv.org/video/id=61b7febda68b4f4b28e82457)
+我们就是要告诉世界， 共产党给世界准备了最大的棺材， 就是冠状病毒和疫苗。 共产主义正在杀害全人类的人。
 
-**郭文贵**
-**Miles Guo**
+**【郭先生直播摘要】**** 2021.12.8共产党给世界准备了最大的棺材就是冠状病毒和疫苗**
 
-掌握共产党的历史和脉搏和内部的情报，和对共产党中心老杂毛的个人性格上的判断
-As long as you know the history, pulse and internal information of the Com-munist Party, and make right judgement according to the personal character of these top officials at the center of the Communist Party
+**郭先生：**
 
-只要你准确了，咱永远是赢家，咱知道共产党内部怎么想的
-once you are accurate, we will always be the winner, we know what the Com-munist Party thinks internally
+我让所有驻海外的中共的大使馆的官员， 我让他(们)知道， 你们的父母， 一定不会老死，一定会被装在这个，新中国联邦给准备的棺材里面去。 大家一定要记住，尊重各驻地国的法律。 还有一个冠状病毒， 现在正在全球蔓延。 聚会的问题， 法规的问题， 永远记住咱不要踩红线。
 
-当习近平这时候，下边都鼓掌了，好啊，太伟大了，你就是秦始皇
-When Xi Jinping was at there, everyone applauded for him, “okay, that’s goo great, you are Qin Shihuang(the first emperor in China)
+我们就要让驻外大使馆，让它踩红线， 让它买通地方关系  BGY， 像当年梁冠军一样到我楼下抗议， 现在全家都得被调查， 所有资产都都得会被没收。 我们就让这些驻外大使馆， 要给习近平、王岐山献忠心，给杨洁篪， 给他们献(忠心)。
 
-这个党没有你就完啦，所以说，你要继续干呢
-This party will be over without you, so you have to keep doing it”
+杨洁篪个王八蛋得搁上去。 这两天杨洁篪要出面了， 从双规状态， 这个病恢复状态， 吃的是伊维菌素，吃的青蒿素。现在要恢复，就这两天要出场了，要出场了，我们得到确切情报， 杨洁篪一定放上去，要让他们外交部、情报部， 他们要有什么冲动？向习、王表忠心， 杀害我们，派杀手蓝金黄当地政府， 陷害我们。 像对海东家， 颖妹家去摔瓶子、打酒的， 吓唬你们。 派杀手出来， 还有想办法遣返我们什么战友， 给我们战友制造假刑事案子文件。
 
-我告诉你，所有的独裁包括卡扎菲、萨达姆的都是被家人和身边最亲的人忽悠出来的
-Let me tell you, all the dictators including Gaddafi and Saddam were fooled by their family members and the closest people around them
+我们都要做好最坏的准备， 就让他踩红线！ 就让他在海外暴露！七哥有一个  给你(们)一个大概4000个人的名单。所有老常委和新常委的，海外的家人、亲属信息我都有。电话、手机都有，家庭地址，我都会发给你们的。大家就让他们所有人回家，就是看到棺材和花圈。让他们所有共产党在的地方，聚会的地方 ，能看见的地方都是花圈给共产党送葬。
 
-而且所有的独裁着，真的从过去编故事自己是神，看了神，到最后你真相信自己是神
-And all the dictatorships really made up stories from the past that they are God, and are blessed by God, really believe that they are God in the end
+就是要告诉世界， 共产党给世界准备了最大的棺材， 就是冠状病毒和疫苗。 共产主义正在杀害全人类的人， 然后共产党他们的家人， 他的父亲是这个样子， 母亲是这个样子，他本人是这个样子， 他应该被世界的正义，法律所送葬。他们最相信迷信， 他不相信迷信，他不把盘古龙头变成鸟头，变成了包头了。
 
-最后是灭掉神，自己代替神，然后最后是自己真心相信自己是神
-Finally, they get rid of God, replace God by themself, and finally they truly believe that they are God
+咱们从大年开始就开始送葬，送三年。他要能活下去， 我把“郭”字倒写 ， 你们就把我装棺材里边去， 我太了解这帮孙子什么德行了。 他们的老婆的 ，天天照片儿出在了送葬的名单上， 他们的活着的妈在送葬名单上， 我不相信他能坐得住。 你怎么对待我们的父母 ，我们就百倍万倍地给你还过去。
 
-所有人都是这个死亡的步骤，今天你看到共产党的狂妄
-All of them follow this death procedure, today you look at the arrogance of the Communist Party
-
-第二条，杀基督教，杀新疆人，杀佛教、天主教、道教，全教拜一神，叫习太阳神
-The second, they kill Christianity, kill Uyghurs, kill Buddhism, Catholicism, and Taoism, and all religions worship to one god, it called Xi Sun God
-
-而且大家要看到的经济问题，现在国内已经是房地产崩塌，银行崩塌
-Moreover everyone needs to see the economic problems, now domestic real estate has collapsed, and the banks have collapsed
-
-这是一点都不用担心的，是吧，大量的一亿多人失业
-This is no doubt about that, right? there are more than 100 million people are unemployed
-
-大量的商业关门，所有的85%的私人企业要归为国有
-A large number of businesses are closed, and 85% of all private companies are to be state-owned
-
-这是所有的独裁者，阿明的乌干达，我再说的，卡扎菲、萨达姆、希特勒、斯大林
-This is all the dictators, like Amin of Uganda, I will repeat it again, Gaddafi, Sad-dam, Hitler, and Stalin
-
-所有人干的统一一件事儿，企业国有化，个人神圣化，宗教彻底被消灭，媒体彻底被控制
-One thing everyone does is the nationalization of enterprises, personal sanctifi-cation, religion is completely eliminated, and the media is completely controlled
-
-然后唯一最后选项发动战争，而且不是它意志为转移的
-Then the only last option for them to start a war, and it’s doesn’t depend on its will
-
-习现在想不发动战争都不可能
-Now it’s impossible for Xi not to start a war
-
-**原视频链接**:[https://gettr.com/post/pjh1kbe8be](https://gettr.com/post/pjh1kbe8be)
-
-Date:12/12/2021
-**原视频标题:** 所有独裁者最后干的唯一一件事 就是发动战争
-The only thing that all dictators did last was to start a war
-原视频日期：2021/12/10
-**原视频链接**https://gettr.com/post/pjh1kbe8be
-任务编号：3204
-视频时间段 : 0:00-2:06
-
-中听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 -天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+视频剪辑：小蜜蜂 | 听写：小蜜蜂 |翻译：Stephanie | 校对：烟波浩淼| 视频制作+字幕 ：CG.  | 编辑&发布：断播
 
  
 
