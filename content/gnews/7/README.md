@@ -2,83 +2,96 @@
 ---
 
 
-## 【草根访谈】第295期新闻概要
-` WindTalker` [轉載自GNews](https://gnews.org/zh-hans/1756703/)
+## 俄罗斯将与欧盟联合举办欧洲人权峰会，打脸了中共
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1756851/)
 
-**——日本东京方舟农场GTV直播组出品**
+[https://gtv.org/video/id=61b8849fa68b4f4b28e84ce1](https://gtv.org/video/id=61b8849fa68b4f4b28e84ce1)
 
-策划/撰文：宇宙之泾
+**郭文贵
+Miles Guo**
 
-校对：石桥李次郎
+你知道这次人权会议完全是作秀的，胡扯的
+You know that this human rights summit is a show, it’s nonsense
 
-书法：柒公子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-15-上午1.15.54.png)
-GTV方舟农场直播间【草根访谈】第295期新闻概要：
+你知道俄罗斯要干啥事吗？俄罗斯要跟欧盟联合起来要搞一搞
+Do you know what Russia is going to do? Russia wants to unite with the EU
 
-今天的嘉宾方舟农场日语翻译组组长「健康文拓」做客方舟直播间，与战友们一起分享心得体会，日本官方为什么迟迟不表态抵制北京冬奥会？
+所谓的欧洲的人权高峰会，俄罗斯永远认为就斗这三个事儿
+The so-called European Human Rights Summit, Russia always believes that they’re going to fight these three things
 
-时政新闻：伴随国际社会对中国人权纪录的担忧日益扩大，一个在伦敦的非官方法庭12月9日裁决，中国在新疆对维吾尔人进行了“种族灭绝”。
+世界谁是老大，现在当然美国是老大，它不是
+Who is the boss in the world, now of course the United States is the boss, Russia is not
 
-1，关于青蒿素保健品和药品效用的问卷调查。调查结果显示，青蒿素会改善和缓解疫苗副作用及其他基础疾病。爆料革命将继续推进真相。请遵医嘱。
+第二个就是欧洲必须是我俄罗斯的，你英国也好，你法国也好，德国也好
+The second is that Europe must belong to Russia, whether you are UK, France, or Germany
 
-2，郭文贵先生最新单曲HCoin to The Moon已连续两周蝉联公告牌世界数字歌曲销量排行榜的榜首, 这不仅创造了郭先生所有单曲的个人最好成绩，也创造了非专业歌手在世界最权威音乐排行榜的最好成绩，更是又一次创造了中国人在世界乐坛前所未有的历史奇迹！请战友们继续打榜不要停！
+你必须得靠我，就是谁的欧洲，不管是谁的欧洲，我俄罗斯当老大
+You have to rely on me, that means whose Europe, no matter whose Europe that Russia want to be the boss
 
-3，据《美联社》（Associated Press）12月14日报道，27名美国空军现役人员由于未能在11月2日之前接种新冠疫苗，违反了国防部的规定，因此被美国空军开除。五角大楼表示，截至12月10日，96.4%的现役人员至少打了一针。然而，如果将国民警卫队和后备役包括在内，这一数字将降至约74%，这个数字大约与美国人的接种率一致。
+第三，俄罗斯一直在亚洲和欧洲之间寻求利益平衡
+Third, Russia has been seeking a balance of interests between Asia and Europe
 
-4，每日20万人隐形染疫？英国Omicron扩散的「恐慌总动员」，这个微妙的变异病毒在微妙的时间出现，就是要造成民众心理上的极大恐慌，意志力不坚定的人将会溃堤而没有守住底线打了疫苗，悔恨终生的机会都不会有。
+现在所谓的俄罗斯不可能入欧，入不入欧，欧洲我都要说了算
+The so-called Russia can’t join in Europe Union, it doesn’t matter, in Europe Russia have the final word
 
-5，日媒12月11日披露，日本将加入美国以外交抵制2022北京冬季奥运行动，不派遣高层官员出席。专家认为日本将派出级别相等的官员，或级别更低的奖牌得主出席，回应欧美、国内与中国的期待。读卖新闻12月11日报道，日本政府将在本月底前做出最终决定。报道指出，目前唯一可能出席的代表是参议员桥本圣子，她是2020年东京奥运组委会主席。对于美国等国宣布外交抵制北京冬奥，中国外交部发言人汪文斌12月8日下午批评抵制国家是“作秀、搞政治操弄的舞台”。中国驻大阪总领事馆12月2日公开邀情日本人明年疫情结束后到新疆旅游。真是够讽刺的，邀请日本人去一个种族灭绝搞大屠杀的地方？
+我供你的气，我供你的能源，我的导弹，我的一切
+Russia provide the gas, the energy, Russia missiles and everything
 
-6，**伴随国际社会对中国人权纪录的担忧日益扩大，一个在伦敦的非官方法庭12月9日裁决，中国在新疆对维吾尔人进行了“种族灭绝”。**厄尔巴基·欧塔贝（Erbakit Otarbay，音译）是被认为遭关押的一百万哈萨克、维吾尔及其他少数族裔人员中的一人，他在法庭上给出了证言。“维吾尔法庭”网站上他的声明指出，他于2017年7月17日在新疆阿勒泰可可托海（Koktokay）被带走，之后被带至塔城（Tarbagatay）的公安局，后被关押在不同的拘留中心、再教育营。他讲述了自己是如何遭遇强制劳动、思想灌输及暴力殴打的。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/7AC7E93A-368D-4C58-84F4-5CA1AC40220E.jpeg)
-主持人：@WindTalker 宇宙之泾
+我的整个的军事力量，北约扯淡的事，跟它边儿都沾不着
+Russia entire military power, NATO is nonsense, NATO is no match for Russia in military terms
 
-嘉宾战友：@WenTuo 健康文拓
+现在俄罗斯说我要跟你搞人权了，俄罗斯这哥们儿真正的要脱掉战装换上西装了
+Now Russia says that I’m going to engage in human rights with you, Russian really wants to take off his battle suit and put on the business suit
 
-美东时间晚上11:30 日本东京时间中午1:30 北京时间中午12:30
+玩点绅士的了，这对中共是绝对打脸的，
+It want to be a gentleman, this is definitely a slap on the CCP’s face
 
-Every day we spreading the truth about CCPvirus (COVID-19)and CCP vaccines, every day is Shouting for the people of Hong Kong who killed from CCP, and every day is hard working for the Chinese people to destroy the evil Chinese Communist Party! Welcome to our New Federal State of the China. Welcome to our Himalaya Tokyo JHL.
+习是很明确地有人权的国家就不可能有好的政府，人权不适合中国
+Xi made it clear that the country with human rights cannot have a good government, and human rights are not suitable for China
 
-【草根访谈】日本东京方舟农场欢迎你！
+这就是全世界都在说的一句话，这非洲没有文字的国家都有选举
+This is what the whole world is saying, even there are elections in African countries where there is no written language
 
-【草根访谈】【方舟有你】【方舟歌汇】
+中国人不可能有选举，而中国人深信不疑不能有选举
+The Chinese people cannot have elections, and the Chinese people are truly believe that it’s fine for them
 
-【方舟品读时光】【有问必答】【果色添香】
+就像你看到那个假的习近平的女儿，在那个炫钻石，还批评党内不能腐败，还不能奢侈
+Just like when you saw that fake Xi Jinping’s daughter, she’s showing dazzling diamond, also criticized corruption or extravagant in the Party
 
-[#nfsc](https://gettr.com/hashtag/%23nfsc) [#MilesGuo](https://gettr.com/hashtag/%23MilesGuo) [#ccpvirus](https://gettr.com/hashtag/%23ccpvirus) [#CCPvaccines](https://gettr.com/hashtag/%23CCPvaccines) [#ccpliepeoplesdie](https://gettr.com/hashtag/%23ccpliepeoplesdie) [#takedowntheccp](https://gettr.com/hashtag/%23takedowntheccp)
+劳斯莱斯，私人飞机，这是多变态的这种想法，她是很重要的
+Rolls-Royce, private jets, this is such perverted thoughts, she is very important
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/85A9DBF3-4860-4C4F-8B7B-962289F759D4_1_100_o-1-scaled.jpeg)
+这个女的甚至比习近平女儿都重要，你们持续关注那个推特账号，会很有意思的
+This woman is even more important than Xi Jinping’s daughter, it will be very interesting if you keep following that Twitter account
 
+这就是变态，那么现在俄罗斯跟中共之间的这种变态出来恶果了
+This is pervert, so now this perverted relationship between Russia and the Chinese Communist Party has produced bad results
 
-```
-只有那些疯狂到认为自己可以改变世界的人，才能真正改变这个世界。
-```
+这对我们爆料革命绝对有利的，据悉，美国人也知道这个情况
+This is absolutely beneficial to our whistleblower movement, it is reported that the Americans also know this situation
 
+为什么，(俄罗斯)提前告诉美国我们会向中共明确表态
+Why, Russia told the United States in advance that we will make a clear statement to the CCP
 
+* * *
 
+Date:12/13/2021
+原视频标题: 俄罗斯将与欧盟联合举办欧洲人权峰会，打脸了中共
+Russia will co-host the European Human Rights Summit with the European Union, slapping the CCP’s face
+原视频日期：2021/12/12
+原视频链接[**https://gettr.com/post/pjj5gr8e7c**](https://gettr.com/post/pjj5gr8e7c)
+任务编号：3222
+视频时间段 : 0:00-2:11
+中听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/73A43459-2029-4DBE-89E4-993EF95E97A9_1_201_a.jpeg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-
-```
-知人者智自知者明篆刻：柒公子
-```
-
-
-
-
-
-
-2021年12月| 一 | 二 | 三 | 四 | 五 | 六 | 日 |
-| --- | --- | --- | --- | --- | --- | --- |
-|   | [1](https://gnews.org/zh-hans/date/2021/12/01/) | [2](https://gnews.org/zh-hans/date/2021/12/02/) | [3](https://gnews.org/zh-hans/date/2021/12/03/) | [4](https://gnews.org/zh-hans/date/2021/12/04/) | [5](https://gnews.org/zh-hans/date/2021/12/05/) |
-| [6](https://gnews.org/zh-hans/date/2021/12/06/) | [7](https://gnews.org/zh-hans/date/2021/12/07/) | [8](https://gnews.org/zh-hans/date/2021/12/08/) | [9](https://gnews.org/zh-hans/date/2021/12/09/) | [10](https://gnews.org/zh-hans/date/2021/12/10/) | [11](https://gnews.org/zh-hans/date/2021/12/11/) | [12](https://gnews.org/zh-hans/date/2021/12/12/) |
-| [13](https://gnews.org/zh-hans/date/2021/12/13/) | [14](https://gnews.org/zh-hans/date/2021/12/14/) | [15](https://gnews.org/zh-hans/date/2021/12/15/) | 16 | 17 | 18 | 19 |
-| 20 | 21 | 22 | 23 | 24 | 25 | 26 |
-| 27 | 28 | 29 | 30 | 31 |   |
-
-[« 11月](https://gnews.org/zh-hans/date/2021/11/)  
- 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

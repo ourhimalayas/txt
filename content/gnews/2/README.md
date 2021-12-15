@@ -2,95 +2,49 @@
 ---
 
 
-## 俄罗斯将与欧盟联合举办欧洲人权峰会，打脸了中共
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1756851/)
+## 阿联酋威胁撤销军购合同 美将推 F-35销售
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1756869/)
 
-[https://gtv.org/video/id=61b8849fa68b4f4b28e84ce1](https://gtv.org/video/id=61b8849fa68b4f4b28e84ce1)
+**翻译:里奇**
 
-**郭文贵
-Miles Guo**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip06-3.png)
+2018 年 4 月 25 日，在德國柏林的 ILA 航展上看到了一架洛克希德·馬丁公司的 F-35 飛機。REUTERS/Axel Schmidt/文件照片
 
-你知道这次人权会议完全是作秀的，胡扯的
-You know that this human rights summit is a show, it’s nonsense
+路透迪拜 12 月 15 日 – 在阿布扎比告诉华盛顿将暂停 230 亿美元交易的谈判后，美国周三表示已准备好向阿拉伯联合酋长国出售 F-35 战斗机和无人机，其中也包括弹药。
 
-你知道俄罗斯要干啥事吗？俄罗斯要跟欧盟联合起来要搞一搞
-Do you know what Russia is going to do? Russia wants to unite with the EU
+该交易是在阿联酋去年与以色列建立关系后在时任总统唐纳德·川普的领导下签署的，但由于华盛顿的担忧，包括海湾阿拉伯国家与主要贸易伙伴中国的关系，交易进展放缓。
 
-所谓的欧洲的人权高峰会，俄罗斯永远认为就斗这三个事儿
-The so-called European Human Rights Summit, Russia always believes that they’re going to fight these three things
+“阿联酋已通知美国，它将暂停购买 F-35 的讨论” 一名阿联酋官员周二告诉路透社，并列举了“技术要求、主权运营限制和成本/收益分析” 用作重新评估标准。
 
-世界谁是老大，现在当然美国是老大，它不是
-Who is the boss in the world, now of course the United States is the boss, Russia is not
+这位官员表示，未来可能会重新开始谈判，并且正在讨论“解决收购的共同防御安全条件”。
 
-第二个就是欧洲必须是我俄罗斯的，你英国也好，你法国也好，德国也好
-The second is that Europe must belong to Russia, whether you are UK, France, or Germany
+周三在吉隆坡，美国国务卿安东尼·布林肯表示，华盛顿必须进行一些审查，但准备推进这笔交易。
 
-你必须得靠我，就是谁的欧洲，不管是谁的欧洲，我俄罗斯当老大
-You have to rely on me, that means whose Europe, no matter whose Europe that Russia want to be the boss
+“例如，我们想确保我们对以色列军事优势的承诺得到保证，因此我们想确保我们可以对出售或转让给该地区其他合作伙伴的任何技术进行彻底审查，包括阿联酋” 布林肯说。
 
-第三，俄罗斯一直在亚洲和欧洲之间寻求利益平衡
-Third, Russia has been seeking a balance of interests between Asia and Europe
+消息人士在 1 月份告诉路透社，阿联酋已签署协议，购买洛克希德-马丁公司 (LMT.N) 制造的 50 架 F-35 隐形喷气式飞机、最多至 18 架 MQ-9B 无人机以及先进弹药。
 
-现在所谓的俄罗斯不可能入欧，入不入欧，欧洲我都要说了算
-The so-called Russia can’t join in Europe Union, it doesn’t matter, in Europe Russia have the final word
+一位了解谈判情况的人士表示，美国和阿联酋之间的症结在于如何部署喷气式飞机，以及阿联酋将被允许利用多少先进的 F-35 技术。
 
-我供你的气，我供你的能源，我的导弹，我的一切
-Russia provide the gas, the energy, Russia missiles and everything
+阿联酋官员表示，海湾阿拉伯国家严重依赖其安全保护伞的美国“仍然是阿联酋首选的先进防御需求提供者”。
 
-我的整个的军事力量，北约扯淡的事，跟它边儿都沾不着
-Russia entire military power, NATO is nonsense, NATO is no match for Russia in military terms
+五角大楼发言人约翰·柯比早些时候表示，美国与阿联酋的伙伴关系比武器销售更具战略性和复杂性，华盛顿致力于与阿布扎比合作解决其问题。
 
-现在俄罗斯说我要跟你搞人权了，俄罗斯这哥们儿真正的要脱掉战装换上西装了
-Now Russia says that I’m going to engage in human rights with you, Russian really wants to take off his battle suit and put on the business suit
+“根据法定要求和政策，我们将始终坚持各种最终用途要求” 柯比说。
 
-玩点绅士的了，这对中共是绝对打脸的，
-It want to be a gentleman, this is definitely a slap on the CCP’s face
+他预计本周晚些时候在五角大楼举行的美国和阿联酋官员会议上会讨论武器销售问题。
 
-习是很明确地有人权的国家就不可能有好的政府，人权不适合中国
-Xi made it clear that the country with human rights cannot have a good government, and human rights are not suitable for China
-
-这就是全世界都在说的一句话，这非洲没有文字的国家都有选举
-This is what the whole world is saying, even there are elections in African countries where there is no written language
-
-中国人不可能有选举，而中国人深信不疑不能有选举
-The Chinese people cannot have elections, and the Chinese people are truly believe that it’s fine for them
-
-就像你看到那个假的习近平的女儿，在那个炫钻石，还批评党内不能腐败，还不能奢侈
-Just like when you saw that fake Xi Jinping’s daughter, she’s showing dazzling diamond, also criticized corruption or extravagant in the Party
-
-劳斯莱斯，私人飞机，这是多变态的这种想法，她是很重要的
-Rolls-Royce, private jets, this is such perverted thoughts, she is very important
-
-这个女的甚至比习近平女儿都重要，你们持续关注那个推特账号，会很有意思的
-This woman is even more important than Xi Jinping’s daughter, it will be very interesting if you keep following that Twitter account
-
-这就是变态，那么现在俄罗斯跟中共之间的这种变态出来恶果了
-This is pervert, so now this perverted relationship between Russia and the Chinese Communist Party has produced bad results
-
-这对我们爆料革命绝对有利的，据悉，美国人也知道这个情况
-This is absolutely beneficial to our whistleblower movement, it is reported that the Americans also know this situation
-
-为什么，(俄罗斯)提前告诉美国我们会向中共明确表态
-Why, Russia told the United States in advance that we will make a clear statement to the CCP
+**新闻来源**:[路透社][U.S. set to move forward with F-35 sale after UAE threatens withdrawal](https://www.reuters.com/business/aerospace-defense/us-set-move-forward-with-f-35-sale-after-uae-threatens-withdrawal-2021-12-15/)
 
 * * *
 
-Date:12/13/2021
-原视频标题: 俄罗斯将与欧盟联合举办欧洲人权峰会，打脸了中共
-Russia will co-host the European Human Rights Summit with the European Union, slapping the CCP’s face
-原视频日期：2021/12/12
-原视频链接[**https://gettr.com/post/pjj5gr8e7c**](https://gettr.com/post/pjj5gr8e7c)
-任务编号：3222
-视频时间段 : 0:00-2:11
-中听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-2.jpeg)
+
+
 
  
 

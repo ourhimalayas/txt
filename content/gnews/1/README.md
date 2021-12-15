@@ -2,63 +2,116 @@
 ---
 
 
-## 大直播后记——中美文明的差距
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1756852/)
+## 文贵先生关于HPAY的商业化描述
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1756897/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/d83d8377-b794-4ef2-9f67-76f3789a567b-AP_Virus_Outbreak_Trump.jpg)图片来源：The Desert Sun
+[https://gtv.org/video/id=61b8dbe0a68b4f4b28e86c88](https://gtv.org/video/id=61b8dbe0a68b4f4b28e86c88)
 
+**郭文贵：
+Miles Guo:**
 
-**整理：**北极熊
-**编辑：**翼族
+我再告诉大家，Hpay这是第一阶段是点到点，还不是全商业化
+Let me tell you again, the first stage of Hpay is point-to-point, and not fully commercialized
 
-川普总统在任期间，彼得·纳瓦罗担任白宫贸易和制造业政策办公室主任（Director of the Office of Trade and Manufacturing Policy)。在他的新书《川普时代》里　，纳瓦罗向读者提供了川普白宫的内幕，包括美国对华政策、COVID-19大流行、2020年总统大选等，书中记录了中共对美国经济侵略的“七宗罪”，包括网络黑客窃取商业机密、知识产权盗窃、强迫技术转让、以低于成本价格将产品倾销到美国市场、使用大量补贴的国有企业采用掠夺性定价、操纵货币，以及造成美国社区芬太尼等鸦片类药物泛滥。
+只在G|Fashion、GClub商业化
+Commercialized only in G|Fashion and GClub
 
-彼得·纳瓦罗也毫不掩饰对川普的赞美，但是，川普并没有对这本书做任何的介绍和推广，这使彼得·纳瓦罗很不悦，他和川普通了一个电话，引起文贵先生很多感慨。
+接下来，第二步全球商业化
+Next, the second step is global commercialization
 
-纳瓦罗给川普打电话问：“你为什么不推广《川普时代》这本书？”
+就像大牛、巴黎、天机，他们在做的事情，还有政清
+Just like Daniu, Paris, Tianji, and Zhengqing what they are doing
 
-川普：“我不能推广，因为你书里记录了我女儿女婿跟共产党的事情，所以我不能推广。”
+就是大家都能完全商业化扫码使用的时候，和到第三步
+That’s when everyone can use it completely commercial scan code, and go to the third step
 
-这个故事就这么简单，就是彼得·纳瓦罗和川普电话交流的两句话，我们要从这件事情想象一下，如果这件事情发生在中国，会是什么结果？文贵先生从七个角度分析了这件事情如果发生在中国，会是什么结果。
+是各种什么Gmall、亚马逊都能接受，还有MasterCard卡，信用卡一样都接受的时候
+It’s for all kinds of business, like Gmall, Amazon can accept it and MasterCard, credit cards are all accepted it
 
-第一，彼得·纳瓦罗在中共政府相当于常委三号，如果他在中国写了习近平的女儿女婿腐败的事情，敢不敢问习近平：“你为啥不帮我推广这本书？” 他敢吗？
-答案是：不敢！（找死啊？！）
+那个时候它真正的喜币才开始走向了正轨路，刚刚迈到第一步
+At that time HCoin will start to go on the right track, and it will just take its first step
 
-第二，这本书能出版吗？
-答案是：不可能！
+然后是机构大量的进，国家主权认可，然后数字银行就是不是咱现在收购的银行
+then the massive of institutional investors come in and the recognition by sovereign country, and then the circulation in digital bank which they’re not the banks we acquiring now
 
-第三，如果是中国的彼得·纳瓦罗，他有机会、有可能把这些写到书上吗？
-答案是：根本不可能写出来，如果写这些命就没了！
+还包含了国家认可的，没有任何其他国家可以约束的，国家中央银行这样的牌照获得的时候
+It also includes what is recognized by the country, and no other country can restrict it, and when obtaining a license such as the National Central Bank
 
-第四，就算是写出来了，也出版了，他敢去找习近平问你怎么不推广这本书吗？
-答案是：不可能！（吓死你！）
+那时候喜币才厉害，所以问这个结构投资者进不进来的人，只知其一不知其二
+At that time Hcoin will be very good, so asking if the structural investors get in or not, that’s you only know a little
 
-第五，这本书成为美国最畅销书，川普竟然没否认！如果在中国作者会是什么待遇？
-答案是：要么被杀，要么被抓，书的内容还得被否定：“全都是胡扯，都是造谣，都是污蔑……”
+我再告诉你，就是你把钱币卖了，HDO都换到你手里了
+I’ll tell you again, you sold the Hcoins and changed to HDO in your hands
 
-第六，如果彼得·纳瓦罗在中国写这本书会被定为什么罪行？
-答案是：叛国罪！因为这本书全世界销售。
+你贴现是需要时间的，HDO哪来的?
+It takes time for you to cash it, where did HDO come from?
 
-第七，在美国，彼得·纳瓦罗本人因为此书获得巨大成功，获得了经济受益，而且他在书中是批判拜登政府的，拜登政府竟然邀请他参加美国政府重要工作，如果是在中国可能发生吗？
-答案是：根本不可能！
+就现在我们说共产党，共产党是啥?
+Now we are talking about the Communist Party, what is the Communist Party?
 
-我们这些看中文方块字的读者，说汉语、听汉语的观众要扪心自问，如果我们是国家元首，我们能不能让这样一本有描述自己女儿女婿的不光彩事情的书发表？文贵先生感慨到：
+海外的币，叫美元，国内的人民币叫本币，共产党能把人民币到国外花吗?
+Overseas currencies are called U.S. dollars, and domestic renminbi is called domestic currency, can the Communist Party spend renminbi abroad?
 
-就算我们能忍受，让这本书出版了，也不可能忍受你居然敢问为什么不帮你推广；
+花不了，它干了100年了
+It can’t be spent, it’s been doing for 100 years
 
-就算是你写了而且也出版了也质问为什么不帮助推广了，我们的回答肯定不是川普那样简单，我们一定是大骂八辈祖宗，这已经是我们的最高修养了。
+现在HDO你还不能到外面全面说
+and now you can’t go outside and fully talk about HDO
 
-还有更可怕更邪恶的，就算国家不找你麻烦，我也不找你麻烦，你出版了，你来问我我也不骂你，有一堆马屁精、一帮奴才也会帮助川普把彼得·纳瓦罗灭掉！
+你拿着我就贴现去，瞬间都贴现
+It takes that for cash, and it will be cashed instantly
 
-震惊美国文明的同时，我们可以看到我们的文化中的暴劣、粗鲁、残忍、无知和愚昧！我们不除去这些糟粕，不除去共产党在一百年的时间给我们脑子里放的毒，我们民主文明的进程会很艰难!
+咱们在德国的战友卖了房子都不让你贴现，还让你付给银行利息
+Our comrades-in-arms in Germany sold the house and didn’t let him cash them, and even asked him to pay the bank interests
 
-*发布：翼族*
+1000欧元好像是这样，为什么？全世界有一个规则
+1,000 euros seems to be the case, why? there is a rule in the world
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+现在所有四十几美金的价值
+now it’s all the value of more than 40 dollars
+
+咱战友卖完将近260亿美金，你账上没有260亿美金的HDO
+Our comrades-in-arms sold out nearly 26 billion U.S. dollars, you don’t have the 26 billion U.S. dollar’s HDO on your account
+
+这是为什么大家要懂得一个道理，你也得让HDO的能贴现的能力和你的数字货币的价值形成平等的时候
+This is why everyone should understand a truth, you also have to let HDO have the ability to be cashed and equalize the value of your digital currency
+
+也就是支付系统行了，银行行了
+that means the payment system is completed, and the bank is done
+
+大机构投资者进来了，更多人的投资者进来了，KYC过了
+Large institutional investors have come in, more investors have come in, they passed KYC
+
+你就达到超过260亿美元的时候，你随时可以贴现，这里边有一个支付系统，贴现系统，银行系统
+It’s time reach more than 26 billion US dollars, you can cash it at any time, there is a payment system, a cash system, and a banking system.
+
+你在这种情况下，你要贴现你完全是来，你就是来投资的
+In this case, if you want to cash it, you are here for the investment
+
+不像QMay，她当初还不知道有货币，穷其所囊，就差衣服没卖了
+Unlike QMay, she didn’t know that there was Hcoin at the beginning, so she invested all in
+
+领一儿子把所有的钱全给了爆料革命，因为她相信能灭共，她相信能成
+She invested all the money to the whistleblower movement, because she believed that communism could be wiped out, and she believed that it could be achieved
+
+* * *
+
+Date:12/12/2021
+原视频标题: 文贵先生关于HPAY的商业化描述
+Miles talks about Hpay commercialize description
+原视频链接[**https://gettr.com/post/pjgzbt83c6**](https://gettr.com/post/pjgzbt83c6)
+任务编号：KC337（3205）
+视频时间段 : 0:00-2:19
+中听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
