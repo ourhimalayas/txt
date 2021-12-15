@@ -2,46 +2,37 @@
 ---
 
 
-## G7与东盟强化合作对抗中共
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1754636/)
+## Hcoin To the Moon连续2周登上Billboard全球数字歌曲销量榜首 ！
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1754720/)
 
-作者：东京樱花团—在远方
+12/14/2021 郭文贵先生的歌曲Hcoin To the Moon上线第12天，连续两周再次登上Billboard公告牌全球数字歌曲销量榜榜首！(WEEK OF DECEMBER 18, 2021)！
 
+[https://www.billboard.com/charts/world-digital-song-sales/2021-12-18/](https://www.billboard.com/charts/world-digital-song-sales/2021-12-18/)
 
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-13.jpg)
+[【PDF 下载】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-Billboard-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/【Billboard】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-Billboard-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/【Billboard】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-Billboard-Charts-Ranking-Record.pdf)
 
+* * *
 
-
-日媒报道，当地时间12月12日，正在英国利物浦举行的七国集团外长会议，邀请东盟外长举行了首次扩大会议。此举表明东盟集团是七国集团对中共竞争关键，因此七国集团正在谋求与东盟强化合作，以全面对抗中共。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/photo_l.jpg)图源：共同社
-据日本外相林芳正表示，会议中对中共在东海和南海试图凭借其实力单方面改变现状的威胁、中共国恶劣的人权问题、台湾海峡和平与稳定的重要性问题，以及中共对台湾军事和外交施压问题，各国外长都表达了关切。 据悉，会议还涉及了朝鲜大规模杀伤性武器、俄罗斯在乌克兰边境集结军队、以及阿富汗人道主义危机问题。
-
-参考来源：
-
-[G7外长会议首次邀请东盟参加扩大会议](https://china.kyodonews.net/news/2021/12/6f7550f501f0-g7.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-5.png)
-
-编辑/校正/发稿：兰兰
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【Billboard】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【Billboard】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_2.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【Billboard】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_3.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【Billboard】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_4.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【Billboard】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【Billboard】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【Billboard】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【Billboard】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【Billboard】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_11.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【Billboard】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_12.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【Billboard】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_13.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【Billboard】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_14.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/【Billboard】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_15.jpg)
 
 
+[【PDF 下载】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-Billboard-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/【Billboard】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-Billboard-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/【Billboard】Tuesday-14-Dec-2021-Songs-by-Miles-Guo-Billboard-Charts-Ranking-Record.pdf)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-14.jpg)
-
-
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
