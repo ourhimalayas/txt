@@ -15,128 +15,128 @@
 
 ---
 
-### [中共可能和俄罗斯同时行动](/content/gnews/1/README.md)
+### [美众议院投票支持立法 禁止从中国新疆进口产品](/content/gnews/1/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [大快人心——澳洲左棍州长被民众告上法庭](/content/gnews/2/README.md)
- ` 墨尔本雅典娜农场`
-
-### [去中心化的数字货币可能一夜之间会消失](/content/gnews/3/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [再传喜讯！新中国联邦获取全世界前五的数字银行牌照](/content/gnews/4/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美国警告数亿台设备可能会暴露于新发现的软件漏洞中](/content/gnews/5/README.md)
+### [纽约市的疫苗强制令扩大到5-11岁的儿童](/content/gnews/2/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [近乎全员接种的康奈尔大学疫情爆发关闭校园](/content/gnews/6/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [英国将在网络空间反击中国和俄罗斯](/content/gnews/7/README.md)
- ` 墨尔本雅典娜农场`
-
-### [中共病毒感染致死病例数到年底达80万人](/content/gnews/8/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [因隐瞒与中共国关系遭指控的哈佛教授即将出庭受审](/content/gnews/9/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [Omicron病毒的特定和疫情的关系](/content/gnews/10/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [招聘有能力有定性的现场管理者](/content/gnews/11/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [银行与资管公司预计中国和香港的业务环境会恶化](/content/gnews/12/README.md)
- ` 墨尔本雅典娜农场`
-
-### [躺平币发行的两个前提条件 有利的政治时机和美国金融监管政策出台](/content/gnews/13/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [在英国的赌牌能干很多事儿](/content/gnews/14/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共病毒及其疫苗全球超限战中的典型案例（四十二）](/content/gnews/15/README.md)
- ` 纽约香草山MOS01`
-
-### [疫苗政策已经无关科学很久了，它只是在不断的限制人们的自由](/content/gnews/16/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [饱受疫苗副作用折磨的人们](/content/gnews/17/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [德国：学校正在羞辱和分化孩子们，那些打了疫苗的孩子，会得到掌声，没打疫苗的孩子必须解释为什么](/content/gnews/18/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [疫苗护照不是目的 杀人和医疗垄断才是目的](/content/gnews/19/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [卡车司机： 1月份的强制疫苗政策将导致大量卡车停运，你无法想象这会如何影响到你的工作和生活](/content/gnews/20/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [澳大利亚拟推出央行数字货币计划正酝酿着一场革命](/content/gnews/21/README.md)
- ` 墨尔本雅典娜农场`
-
-### [文贵先生建议国内父母宁肯退学也不要给孩子打疫苗](/content/gnews/22/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共病毒及其疫苗全球超限战中的典型案例（四十一）](/content/gnews/23/README.md)
- ` 纽约香草山MOS01`
-
-### [2021年12月14日郭先生盖特 — 视频盖特「1分37秒」](/content/gnews/24/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [Covid动画&#8211;人们会被关起来多久？](/content/gnews/25/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [怎么定义爆料革命成了共产党的难题 国内疫苗死亡人数是台湾的千倍 万倍](/content/gnews/26/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [喜联储KYC信息绝对安全的三个原因](/content/gnews/27/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [币圈新闻动态：喜币（HCN）价格目前在44.451](/content/gnews/28/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [中共国的侵略性行为引起越来越多的关注](/content/gnews/29/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [安倍再次警告中共对台动武就是自取灭亡](/content/gnews/30/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [港共向小学生灌输仇恨教育](/content/gnews/31/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [哈佛教授参与 “千人计划”且隐瞒与中国的关系遭起诉](/content/gnews/32/README.md)
- ` 墨尔本雅典娜农场`
-
-### [参议院投票将债务上限提高2.5万亿](/content/gnews/33/README.md)
- ` 墨尔本雅典娜农场`
-
-### [秘翻在线：自民党、高市等人请求岸田总理抵制北京冬奥运会](/content/gnews/34/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [GTV新闻访谈简报|2021年12月14日晚](/content/gnews/35/README.md)
- ` 纽约香草山MOS01`
-
-### [助纣为虐，中共人工智能初创企业商汤被迫暂缓在香港首次公开募股](/content/gnews/36/README.md)
- ` 纽约香草山MOS01`
-
-### [以色列研究再次证实：自然免疫比辉瑞疫苗更能保护人们免受感染](/content/gnews/37/README.md)
- ` RoseNews`
-
-### [韩国新增确诊病例7850例、重症病例964例，均创下历史新高](/content/gnews/38/README.md)
+### [胡锡进变“胡锡退” 胡锡进将不再担任环球时报总编？](/content/gnews/3/README.md)
  ` 首尔天池农场`
 
-### [英国单日新增感染中共病毒人数创今年新高](/content/gnews/39/README.md)
+### [埃隆马斯克：反对强迫人们接种疫苗](/content/gnews/4/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [美众院通过《防止强迫维吾尔人劳动法》 下一步待参院表决](/content/gnews/5/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [中共可能和俄罗斯同时行动](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [Covid-19疫苗正在延长“大流行”](/content/gnews/40/README.md)
- ` 澳喜农场`
+### [大快人心——澳洲左棍州长被民众告上法庭](/content/gnews/7/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [接种疫苗的母亲诞下病婴或死婴或成新常态](/content/gnews/41/README.md)
- ` GTV新闻访谈`
+### [去中心化的数字货币可能一夜之间会消失](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [再传喜讯！新中国联邦获取全世界前五的数字银行牌照](/content/gnews/9/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美国警告数亿台设备可能会暴露于新发现的软件漏洞中](/content/gnews/10/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [近乎全员接种的康奈尔大学疫情爆发关闭校园](/content/gnews/11/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [英国将在网络空间反击中国和俄罗斯](/content/gnews/12/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [中共病毒感染致死病例数到年底达80万人](/content/gnews/13/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [因隐瞒与中共国关系遭指控的哈佛教授即将出庭受审](/content/gnews/14/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [Omicron病毒的特定和疫情的关系](/content/gnews/15/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [招聘有能力有定性的现场管理者](/content/gnews/16/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [银行与资管公司预计中国和香港的业务环境会恶化](/content/gnews/17/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [躺平币发行的两个前提条件 有利的政治时机和美国金融监管政策出台](/content/gnews/18/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [在英国的赌牌能干很多事儿](/content/gnews/19/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共病毒及其疫苗全球超限战中的典型案例（四十二）](/content/gnews/20/README.md)
+ ` 纽约香草山MOS01`
+
+### [疫苗政策已经无关科学很久了，它只是在不断的限制人们的自由](/content/gnews/21/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [饱受疫苗副作用折磨的人们](/content/gnews/22/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [德国：学校正在羞辱和分化孩子们，那些打了疫苗的孩子，会得到掌声，没打疫苗的孩子必须解释为什么](/content/gnews/23/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [疫苗护照不是目的 杀人和医疗垄断才是目的](/content/gnews/24/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [卡车司机： 1月份的强制疫苗政策将导致大量卡车停运，你无法想象这会如何影响到你的工作和生活](/content/gnews/25/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [澳大利亚拟推出央行数字货币计划正酝酿着一场革命](/content/gnews/26/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [文贵先生建议国内父母宁肯退学也不要给孩子打疫苗](/content/gnews/27/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共病毒及其疫苗全球超限战中的典型案例（四十一）](/content/gnews/28/README.md)
+ ` 纽约香草山MOS01`
+
+### [2021年12月14日郭先生盖特 — 视频盖特「1分37秒」](/content/gnews/29/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [Covid动画&#8211;人们会被关起来多久？](/content/gnews/30/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [喜联储KYC信息绝对安全的三个原因](/content/gnews/31/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [币圈新闻动态：喜币（HCN）价格目前在44.451](/content/gnews/32/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [中共国的侵略性行为引起越来越多的关注](/content/gnews/33/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [安倍再次警告中共对台动武就是自取灭亡](/content/gnews/34/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [哈佛教授参与 “千人计划”且隐瞒与中国的关系遭起诉](/content/gnews/35/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [参议院投票将债务上限提高2.5万亿](/content/gnews/36/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [GTV新闻访谈简报|2021年12月14日晚](/content/gnews/37/README.md)
+ ` 纽约香草山MOS01`
+
+### [助纣为虐，中共人工智能初创企业商汤被迫暂缓在香港首次公开募股](/content/gnews/38/README.md)
+ ` 纽约香草山MOS01`
+
+### [韩国新增确诊病例7850例、重症病例964例，均创下历史新高](/content/gnews/39/README.md)
+ ` 首尔天池农场`
+
+### [英国单日新增感染中共病毒人数创今年新高](/content/gnews/40/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [Covid-19疫苗正在延长“大流行”](/content/gnews/41/README.md)
+ ` 澳喜农场`
 
 ### [美国商务部部长的丈夫在一家获中共资助的科技公司担任高管](/content/gnews/42/README.md)
  ` 首尔天池农场`
