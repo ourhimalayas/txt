@@ -2,33 +2,95 @@
 ---
 
 
-## 日本前首相警告中共对台湾的军事袭击将是自杀
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1756826/)
+## 俄罗斯将与欧盟联合举办欧洲人权峰会，打脸了中共
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1756851/)
 
-喜妈
+[https://gtv.org/video/id=61b8849fa68b4f4b28e84ce1](https://gtv.org/video/id=61b8849fa68b4f4b28e84ce1)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture2-4.jpg)
+**郭文贵
+Miles Guo**
 
-截图来自网络
+你知道这次人权会议完全是作秀的，胡扯的
+You know that this human rights summit is a show, it’s nonsense
 
-澳洲主流媒体最新报道，日本前首相作为“日本议会中极具影响力的人物”和执政的自民党中“最大派系的领袖”表示：中共国对台湾的威胁是对东京的“严峻挑战”。文章指出，安倍认为“台湾及其民主受到威胁”会形成对所有人的“一个严峻的挑战”，“尤其是对日本来说”。安倍同时指出像中共国“这样一个庞大的经济体进行军事冒险，至少可以说是自杀”。
+你知道俄罗斯要干啥事吗？俄罗斯要跟欧盟联合起来要搞一搞
+Do you know what Russia is going to do? Russia wants to unite with the EU
 
-报道引用前日本首相安倍的话认为，“日本需要与美国、台湾和其他伙伴更密切地协调，以阻止中共国领导人习近平采取军事行动”。安倍指出，“软弱会招来挑衅”；“我们必须要求他们（中共国）不要追求领土扩张，不要挑衅”。文章还引用其观点，中共国“通常是欺负他们的邻居，因为这会损害他们自己的利益”。因此，安倍认为：“我们必须有更多的合作伙伴来合作，让我们的声音更有力量被听到”。
+所谓的欧洲的人权高峰会，俄罗斯永远认为就斗这三个事儿
+The so-called European Human Rights Summit, Russia always believes that they’re going to fight these three things
 
-报道引用安倍的观点指出并强调，“台湾海峡两岸和平与稳定的重要性”。同时，安倍还表示，北京“对香港公民生活和政治反对派的镇压表明台湾面临的风险”。他同意美国所发出的民主呼声，认为“我们必须捍卫它；为之奋斗、加强并更新它”。
+世界谁是老大，现在当然美国是老大，它不是
+Who is the boss in the world, now of course the United States is the boss, Russia is not
 
-综上所述，笔者认为，这是一篇非常有力度的对台海局势的报道。尤其，本报道以安倍这样一个资深政界人士角度发声，引起我们的深思。这里可以非常清楚地说明，作为同在亚洲的日本国，已经对中共国的所作所为极为警惕和不满。安倍虽然已经在野，可是从他在日本政界的影响力来看，不可忽视，他的发言是日本政界的一个反映。
+第二个就是欧洲必须是我俄罗斯的，你英国也好，你法国也好，德国也好
+The second is that Europe must belong to Russia, whether you are UK, France, or Germany
 
-更加具体地说，安倍的发言是日本当任政治团体和日本主流政界人士的侧面反馈与迂回战略，目的就是以安倍的高调反对立场，凸显对中共的敲打与反击。中共在亚太地区不得人心是可见一斑。同时，日本和台湾长期以来有着密切的联系，日本关注中共国对台形势也是非常自然。此外，安倍将台湾问题和香港问题联系在一起，也可以看得出来，日本及中共国的周边国家都形成对中共不讲信用和国际规范的反感与警觉。
+你必须得靠我，就是谁的欧洲，不管是谁的欧洲，我俄罗斯当老大
+You have to rely on me, that means whose Europe, no matter whose Europe that Russia want to be the boss
 
-在这个报道中，安倍的用词非常强硬而且明确，是少有的政界人物讲话和表态方式；这个需要我们引起注意和跟进，说明日本正在对中共国的各种可能动态极为关注。与此同时，从安倍对美国及其西方盟国的相互支持态度，可以看出，中共的人心向背和末路前景。这是我们作为爆料革命一员希望看到并希望更加明确的方面。真相拯救世界，正义最终胜出。中共的邪恶必将终结，这就是世界共识。
+第三，俄罗斯一直在亚洲和欧洲之间寻求利益平衡
+Third, Russia has been seeking a balance of interests between Asia and Europe
 
-参考消息来源：
-[Chinese invasion of Taiwan would be ‘suicidal’, Shinzo Abe warns](https://www.theaustralian.com.au/world/chinese-invasion-of-taiwan-would-be-suicidal-shinzo-abe-warns/news-story/b68ad5856e16ab8c669cbb33284e7e83)
+现在所谓的俄罗斯不可能入欧，入不入欧，欧洲我都要说了算
+The so-called Russia can’t join in Europe Union, it doesn’t matter, in Europe Russia have the final word
 
-发稿：Hong
+我供你的气，我供你的能源，我的导弹，我的一切
+Russia provide the gas, the energy, Russia missiles and everything
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-1.jpg)
+我的整个的军事力量，北约扯淡的事，跟它边儿都沾不着
+Russia entire military power, NATO is nonsense, NATO is no match for Russia in military terms
+
+现在俄罗斯说我要跟你搞人权了，俄罗斯这哥们儿真正的要脱掉战装换上西装了
+Now Russia says that I’m going to engage in human rights with you, Russian really wants to take off his battle suit and put on the business suit
+
+玩点绅士的了，这对中共是绝对打脸的，
+It want to be a gentleman, this is definitely a slap on the CCP’s face
+
+习是很明确地有人权的国家就不可能有好的政府，人权不适合中国
+Xi made it clear that the country with human rights cannot have a good government, and human rights are not suitable for China
+
+这就是全世界都在说的一句话，这非洲没有文字的国家都有选举
+This is what the whole world is saying, even there are elections in African countries where there is no written language
+
+中国人不可能有选举，而中国人深信不疑不能有选举
+The Chinese people cannot have elections, and the Chinese people are truly believe that it’s fine for them
+
+就像你看到那个假的习近平的女儿，在那个炫钻石，还批评党内不能腐败，还不能奢侈
+Just like when you saw that fake Xi Jinping’s daughter, she’s showing dazzling diamond, also criticized corruption or extravagant in the Party
+
+劳斯莱斯，私人飞机，这是多变态的这种想法，她是很重要的
+Rolls-Royce, private jets, this is such perverted thoughts, she is very important
+
+这个女的甚至比习近平女儿都重要，你们持续关注那个推特账号，会很有意思的
+This woman is even more important than Xi Jinping’s daughter, it will be very interesting if you keep following that Twitter account
+
+这就是变态，那么现在俄罗斯跟中共之间的这种变态出来恶果了
+This is pervert, so now this perverted relationship between Russia and the Chinese Communist Party has produced bad results
+
+这对我们爆料革命绝对有利的，据悉，美国人也知道这个情况
+This is absolutely beneficial to our whistleblower movement, it is reported that the Americans also know this situation
+
+为什么，(俄罗斯)提前告诉美国我们会向中共明确表态
+Why, Russia told the United States in advance that we will make a clear statement to the CCP
+
+* * *
+
+Date:12/13/2021
+原视频标题: 俄罗斯将与欧盟联合举办欧洲人权峰会，打脸了中共
+Russia will co-host the European Human Rights Summit with the European Union, slapping the CCP’s face
+原视频日期：2021/12/12
+原视频链接[**https://gettr.com/post/pjj5gr8e7c**](https://gettr.com/post/pjj5gr8e7c)
+任务编号：3222
+视频时间段 : 0:00-2:11
+中听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

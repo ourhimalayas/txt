@@ -2,24 +2,31 @@
 ---
 
 
-## COVID-19 最新情报｜南苏丹现神秘恶疾速夺 89 命 WHO 急派人手赶赴调查
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1756470/)
+## 壹传媒遭港共政府清算关闭
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1756548/)
 
-**撰文｜疫情关注组 / 发布时间｜15/12/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup）](https://gettr.com/user/mightygroup%EF%BC%89)**
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/4-23.jpg)
+[图片来源](https://www.epochtimes.com/gb/17/7/18/n9422269.htm)：
 
-外媒报导，世界卫生组织向南苏丹部署了一个快速反应小组，以调查当地近期出现的一种神秘恶疾，目前该疾病已导致至少 89 人在短时间内死亡。
+香港高等法院今天(12月15日)下令清算苹果日报的母公司壹传媒，对这家早已被迫关门的民主派报纸，是另一次重大打击。
 
-事件发生地，是位于苏丹南部琼莱州（Jonglei state）的一个名为法加克的小镇，该地区近期遭洪灾袭击，加上当地较为贫困，普遍民众的卫生及营养状况堪忧，因此预料会有疟疾等传染性疾病肆虐，但是，当地近期却爆发了一种不知名的疾病，不但传播迅速，而且致死率较高。
+港共当局在今年初援引中共国家安全法，冻结了苹果日报的资产，迫使报社停止营运。苹果日报的老板黎智英和多名高层主管，都已遭拘押，被控发表直言不讳的批评文章和专栏。
 
-南苏丹卫生部第一时间对病人血液样本进行识别，发现包括霍乱、疟疾等常见传染病皆呈阴性，故像上级报告，求助WHO 以协助辨识及治疗。
+今年9月，香港政府罕见地申请解散苹果日报的母公司壹传媒(NextDigitalLimited)。香港高等法院法官今天在短暂的听证会后，核准香港政府清算苹果日报母公司的请求。壹传媒并未提出异议。
 
-世卫组织发言人希拉·巴亚 (Sheila Baya) 接受采访时指，由于当地洪水泛滥，小组成员可能只能通过直升机抵达法加克。
+74岁黎智英和多位苹果日报主管，被指控支撑对中共国的制裁，与外国势力勾结，如果被定罪，恐面临终身监禁。黎智英目前已因为多次参与民主示威活动的罪名，遭到监禁。13日，黎智英又因参与去年遭到当局禁止的六四集会案，再被判处13个月监禁。
 
-她表示：“我们已决定派一个快速反应小组前去进行风险评估和调查。到那时他们就能从病人身上收集样本——目前我们得到的临时数字是有 89 人死亡。”
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Univers66al-Space-Channel-Banner.jpg)
-来源｜[NYPost](https://nypost.com/2021/12/14/at-least-89-killed-by-mystery-disease-as-who-deploys-taskforce-amid-fears-of-outbreak/)
+台湾版苹果日报未来营运仍存在问题。根据彭博社报导，由于资金短缺，将在今年年底前关闭。但台湾苹果日报驳斥这项报导，「纯属亿测」，并拒绝进一步评论。
+
+消息来源:
+
+**[香港法院下令清算蘋果日報母公司](https://tw.news.yahoo.com/%E9%A6%99%E6%B8%AF%E6%B3%95%E9%99%A2%E4%B8%8B%E4%BB%A4%E6%B8%85%E7%AE%97%E8%98%8B%E6%9E%9C%E6%97%A5%E5%A0%B1%E6%AF%8D%E5%85%AC%E5%8F%B8-045002428.html)**
+
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.jpg)
+
 
  
 

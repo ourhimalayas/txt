@@ -2,87 +2,83 @@
 ---
 
 
-## 美立法者购买和出售了疫苗、治疗或测试公司的股票（一）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1756558/)
+## 【草根访谈】第294期新闻概要
+` WindTalker` [轉載自GNews](https://gnews.org/zh-hans/1756572/)
 
-翻译：七叶之芒
+**——日本东京方舟农场GTV直播组出品**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-765.png)图片来源 ：businessinsider.com
+策划/撰文：宇宙之泾
 
-根据《内幕》杂志对联邦财务记录的分析，国会山的数十名共和党和民主党立法者投资于与国家应对COVID-19大流行病有直接关系的公司。
+校对：石桥李次郎
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-14-上午3.21.38.png)
+GTV方舟农场直播间【草根访谈】第294期新闻概要：
 
-2020年，至少有13名参议员和35名美国代表持有强生公司的股份，这家医疗巨头生产了单次注射的COVID-19疫苗，超过1500万美国人已经接种了这种疫苗。
+今天的嘉宾方舟直播小能手「石桥先生」做客方舟直播间，与战友们一起分享最近的所见所闻，这个荒诞滑稽而邪恶的世界因中共而苦难，心中涌起无数个草泥马。
 
-2020年，至少有11名参议员和34名众议员还持有另一家COVID-19疫苗制造商辉瑞公司的股票。两位代表或他们的配偶在同年持有Moderna公司的股票，这一年全世界都在为应对大流行病而进行封锁。
+时政新闻：中共病毒和疫苗的生化武器导致欧美市场“圣诞老人”绝种
 
-当国会处于大流行病救济工作的中心时，立法者在有COVID-19意识的公司中持有这些投资。在2020年和2021年，国会议员对六项救济法案进行投票，总价值近6万亿美元。国会还授权100多亿美元帮助药物公司开发和分发疫苗，并迫使医疗保险公司承担打针的费用。
+1，12月12日， 郭文贵先生一系列歌曲打榜的骄人成绩：MV版Hcoin To the Moon上线第3天位列31国iTunes热门MV榜首，再创打榜新记录！战友们行动起来，这不仅仅是歌曲，音乐，而是灭共的文化核武器！
 
-政策制定者尤其认为辉瑞公司、强生公司和Moderna公司开发的冠状病毒疫苗–它们各自在2020年花费了大量资金游说联邦政府–对于帮助地球上的国家克服大流行病的影响至关重要。
+2，张学良是中华民族的千古罪人，为邪恶中共续了七十年的命。
 
-对投资的统计是详尽的“冲突我21·的国会”项目的一部分，在该项目中，《内幕》杂志审查了每个现任立法者及其高级职员的近9000份财务披露报告。
+3，什么是疫苗的ADE效应（Antibody-Dependent Enhancement, 抗体依赖增强效应）？灭活疫苗，腺病毒载体DNA重组疫苗和MRNA疫苗的差别。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-767.png)玛丽-纽曼议员的配偶管理着家庭的财务
+4，佩洛西认为：授予中共WTO成員資格是世界把交易置於理想之上。石桥先生评价佩洛西是马后炮，是说一套做一套的伪君子，是党同伐异的执行人。
 
-美国众议院**立法者投资于大流行时期的股票**
+5，史丹佛等大学沦为中共发展核武器的工具，石桥先生认为：中共与美国50年的苟合，已经渗透到美国社会的方方面面，美国想彻底剔除中共必须有壮士断臂的决心！
 
-疫苗的投资者包括伊利诺伊州民主党大一众议员玛丽-纽曼，她的丈夫吉姆-纽曼同时交易了强生公司和Moderna公司的股票。这位女议员在2020年的年度个人财务披露中也列出了这对夫妇一起持有Moderna的股份。
+6，灭共后财富大洗牌，躺平币是诺亚方舟。躺平币的设计是亘古未有的，吸引力巨大，不仅隔空取钱，而且隔空取人、隔空取心。
 
-玛丽-纽曼的办公室此前告诉《内幕》，吉姆-纽曼控制着这些财务，这些账户是用于退休、为他们的孩子进行大学储蓄，以及为家庭医疗费用提供援助。玛丽-纽曼在2021年进入国会，当时国会已经通过了除一项联邦救济法案之外的所有法案。她的丈夫在她宣誓就职后继续交易。
+7，**「我们在这里是为了在你心中建立圣诞老人的精神。」**但是在圣诞节这个阖家欢乐的节日来临的时候，世界各地稀缺扮演圣诞老人的专业人员，因为他们被中共病毒和疫苗夺去了健康和生命。中共不但夺走我们的健康，亲人，生命，还想夺走你的思想，快乐和灵魂，简直是古今第一大邪教反人类组织！
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-14-上午3.22.01.png)
+主持人：@WindTalker 宇宙之泾
 
-新泽西州民主党众议员乔什-戈特海默(Josh Gottheimer)是唯一一位持有Moderna股票的立法者。2020年5月，他出售了价值高达15,000美元的股票。
+嘉宾战友：@shiqiao 石桥先生
 
-在2020年1月初，Moderna的一股股票交易价格低于20美元。随着大流行病的发生，股票的价值成倍增长。Moderna在2021年9月达到顶峰，每股超过455美元。在整个秋季稳步下降后，它在11月下旬开始再次上升。到12月初，Moderna的一股交易价格超过280美元。
+美东时间晚上11:30 日本东京时间中午1:30 北京时间中午12:30
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-769.png)众议员莫-布鲁克斯此前曾发表声明，反对COVID-19疫苗的强制接种。美联社
+Every day we spreading the truth about CCPvirus (COVID-19)and CCP vaccines, every day is Shouting for the people of Hong Kong who killed from CCP, and every day is hard working for the Chinese people to destroy the evil Chinese Communist Party! Welcome to our New Federal State of the China. Welcome to our Himalaya Tokyo JHL.
 
-甚至一些大声反对COVID-19疫苗授权的共和党立法者也投资于疫苗制造商。
+【草根访谈】日本东京方舟农场欢迎你！
 
-乔治亚州共和党人奥斯汀-斯科特议员的妻子薇薇安-斯科特今年两次交易了价值高达5万美元的强生公司股票。奥斯汀-斯科特曾抨击总统乔-拜登的工作场所疫苗授权，但强调他支持疫苗，特别是考虑到他在2020年得了COVID-19，在医院里吸了几天氧。
+【草根访谈】【方舟有你】【方舟歌汇】
 
-斯科特的发言人雷切尔-莱德贝特（Rachel Ledbetter）告诉内幕人士：“斯科特议员和他的妻子像数百万美国家庭一样拥有股票，他们遵守所有关于交易的法律。”
+【方舟品读时光】【有问必答】【果色添香】
 
-阿拉巴马州共和党议员莫-布鲁克斯在2021年8月卖出了价值高达5万美元的辉瑞公司股票，然后晚了近一个月才提交披露。布鲁克斯是一位不折不扣的亲特朗普的立法者，正在竞选美国参议院席位，他之前指责这家制药巨头在公布疫苗功效数据的时间上玩弄政治。
+[#nfsc](https://gettr.com/hashtag/%23nfsc) [#MilesGuo](https://gettr.com/hashtag/%23MilesGuo) [#ccpvirus](https://gettr.com/hashtag/%23ccpvirus) [#CCPvaccines](https://gettr.com/hashtag/%23CCPvaccines) [#ccpliepeoplesdie](https://gettr.com/hashtag/%23ccpliepeoplesdie) [#takedowntheccp](https://gettr.com/hashtag/%23takedowntheccp)
 
-国会议员的妻子玛莎-布鲁克斯(Martha Brooks)告诉《内幕》，她负责处理家庭的所有股票投资，并使用投资经纪人进行这些交易。她承认，她很晚才披露股票交易。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/85A9DBF3-4860-4C4F-8B7B-962289F759D4_1_100_o-1-scaled.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-771.png)众议员约翰-亚穆特是出售3M公司股票的立法者之一
 
-美国众议院**投资于3M公司、Quest公司、Regeneron公司**
-
-民主党立法者还投资于对COVID-19敏感的公司，包括通过出售和购买疫苗制造商和其他深入参与大流行病救济工作的公司的股票。
-
-担任众议院预算委员会主席的肯塔基州民主党众议员约翰-亚穆特（John Yarmuth）在2020年3月底出售了价值高达15000美元的3M公司股票，该公司制造和销售N95口罩等个人防护设备。
-
-当被问及亚穆特的股票投资时，亚穆特的发言人说：“有一个投资经理负责处理这些交易，主席在这次股票交易中没有任何作用。”
-
-但是，像大多数国会议员一样，亚穆特没有将他的资产放在所谓的“合格的盲目信托”中–这是一种需要国会批准的正式安排，在这种安排中，立法者将其资产的管理权移交给一个独立的受托人。
-
-合格的盲目信托的建立可能是昂贵和耗时的，但国会的指导意见表明，它们提供了“最全面的方法”来避免“潜在的利益冲突或这种冲突的出现”。
-
-明尼苏达州民主党参议员蒂娜-史密斯的丈夫阿奇-史密斯根据她的年度披露，持有价值高达25万美元的3M公司股票。她的办公室没有对评论请求作出回应。
-
-俄勒冈州民主党众议员厄尔-布卢门瑙尔（Earl Blumenauer）报告说，他的妻子玛格丽特-柯克帕特里克（Margaret Kirkpatrick）在2020年3月购买了价值高达15,000美元的Quest Diagnostics公司的股票，这是一家领先的COVID-19测试供应商。布卢门瑙尔没有回应反复提出的对其财务申报发表评论的请求。
-
-弗吉尼亚州的民主党众议员唐-拜尔（Don Beyer）报告说，他在2020年5月通过一个共同持有的账户购买了价值高达15,000美元的Regeneron制药公司股票。他在2020年7月至8月期间通过一个共同持有的账户卖出了价值高达3万美元的该股票。
-
-Regeneron公司生产一种治疗COVID-19的单克隆抗体，去年医生用它来治疗当时的美国总统唐纳德-川普。
-
-“国会议员并不亲自管理或指导他的股票投资组合的任何购买或销售。他们由银行经纪公司管理”，拜尔的发言人亚伦-弗里奇纳谈到他老板的财务规划时说，“他们从他那里得到的唯一指示是避免在几个领域的投资，如化石燃料、私人监狱等。”
-
-新闻来源：[businessinsider.com] [As the pandemic raged, at least 75 lawmakers bought and sold stock in companies that make COVID-19 vaccines, treatments, and tests](https://www.businessinsider.com/lawmakers-bought-sold-covid-19-related-stocks-during-pandemic-2021-12?utmSource=twitter&amp;utmContent=referral&amp;utmTerm=topbar&amp;referrer=twitter&amp;r=US&amp;IR=T)
-
-接下篇：【美立法者购买和出售了疫苗、治疗或测试公司的股票（二）】
-
-* * *
-
-*审核：蚂蚁兄弟
-校对：阿伯塔
-发布：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-2.jpeg)
+```
+只有那些疯狂到认为自己可以改变世界的人，才能真正改变这个世界。
+```
 
 
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/73A43459-2029-4DBE-89E4-993EF95E97A9_1_201_a.jpeg)
+
+
+```
+知人者智自知者明篆刻：柒公子
+```
+
+
+
+
+
+
+2021年12月| 一 | 二 | 三 | 四 | 五 | 六 | 日 |
+| --- | --- | --- | --- | --- | --- | --- |
+|   | [1](https://gnews.org/zh-hans/date/2021/12/01/) | [2](https://gnews.org/zh-hans/date/2021/12/02/) | [3](https://gnews.org/zh-hans/date/2021/12/03/) | [4](https://gnews.org/zh-hans/date/2021/12/04/) | [5](https://gnews.org/zh-hans/date/2021/12/05/) |
+| [6](https://gnews.org/zh-hans/date/2021/12/06/) | [7](https://gnews.org/zh-hans/date/2021/12/07/) | [8](https://gnews.org/zh-hans/date/2021/12/08/) | [9](https://gnews.org/zh-hans/date/2021/12/09/) | [10](https://gnews.org/zh-hans/date/2021/12/10/) | [11](https://gnews.org/zh-hans/date/2021/12/11/) | [12](https://gnews.org/zh-hans/date/2021/12/12/) |
+| [13](https://gnews.org/zh-hans/date/2021/12/13/) | [14](https://gnews.org/zh-hans/date/2021/12/14/) | [15](https://gnews.org/zh-hans/date/2021/12/15/) | 16 | 17 | 18 | 19 |
+| 20 | 21 | 22 | 23 | 24 | 25 | 26 |
+| 27 | 28 | 29 | 30 | 31 |   |
+
+[« 11月](https://gnews.org/zh-hans/date/2021/11/)  
+ 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
