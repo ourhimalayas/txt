@@ -2,43 +2,26 @@
 ---
 
 
-## 社交媒体影响者 与中共国领事馆签订官方合同
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1756634/)
+## CCP病毒使中共国民航运输下跌过半
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1756949/)
 
-作者: 纽约香草山农场翻译部—祈望明天会更好
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-182.jpg)[图片来源](http://duchuang.sznews.com/content/mb/2021-01/12/content_23883566.html)
+12月15日澎湃新闻报道，中国民用航空局召开月度新闻发布会。民航局航空安全办公室副主任吴世杰介绍，在安全运行方面，11月份，全行业完成运输航空飞行55.2万小时，环比下降31.9%，民航生产运输规模再次出现大幅下降，全行业完成运输总周转量、旅客运输量、货邮运输量分别为52.2亿吨公里、2152.6万人次和60.6万吨，环比分别下降28.8%。
 
+运输总周转量相当于2019年同期的48.7%；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-17.jpg)
+旅客运输量相当于2019年同期的40.6%；
 
+货邮运输量相当于2019年同期的86.7%
 
-12月14日杰克·波索贝克(Jack Posobiec)在班农作战室节目中, 谈到我们从司法部所提交的一份外国代理人注册信息文件中得到了一条新消息:社交媒体影响者营销公司与中共国领事馆正式签订官方合同.
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-15-at-5.10.27-PM.png)图片来源GTV
-这家总部位于新泽西州的美国公司, 从中共国收取数十万美元, 来支付 Twitch, Instagram和抖音等媒体, 用以宣传北京奥运会, 并淡化在“彭帅事件”上的追查力度.
+随着病毒疫情疫苗灾难的蔓延，中共国经济危机进一步扩大，相关的民生危机也随之加剧。
 
-诚如郭先生在12月12日大直播中所说, 一半抵制冬奥会的是因为彭帅事件, 这就是多米诺骨牌效应的开始.
+[【民航局：11月旅客运输量2152.6万人次，同比降51.5%】](https://mo.mbd.baidu.com/r/y2EM4QETYs?f=cp&amp;rs=2356851101&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=b4b9d591ca83d0ab)
 
-杰克在班农作战室节目中又说, 中共国领事馆为了帮中共宣传这冬奥会, 无所不用其极地用大量资金注入媒体来宣传冬奥, 淡化彭帅事件, 并诋毁反对中共国的人们, 他们会被称为种族主义者, 所有能贬低人的名称都会用上. 例如, 史蒂夫·班农以种族灭绝抵制冬奥会的报导, 中共国就宣称班农是想要更多的白人婴儿. 中共国所做的一切都是为了达到宣传北京奥运会而使出的卑劣技俩.
-
-**参考阅读**: [https://gtv.org/video/id=61b8b7fa56f4921401b7ba4a](https://gtv.org/video/id=61b8b7fa56f4921401b7ba4a)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-6.png)
-总编: 飞虹
-
-编辑/校对/发稿: 卡夫卡的甲壳虫
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

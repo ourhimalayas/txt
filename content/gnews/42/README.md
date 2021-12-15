@@ -2,35 +2,43 @@
 ---
 
 
-## 美商務部長老公就職的公司曾兩次獲得來自中共風投公司的註資
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1756448/)
+## 社交媒体影响者 与中共国领事馆签订官方合同
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1756634/)
 
-撰稿：Jenny
-![](https://assets.gnews.org/wp-content/uploads/2021/12/IMG_2364.jpg)网络截图
-据《华盛顿自由灯塔》披露，美国商务部长吉娜-雷蒙多(Gina Raimondo)的丈夫[安德鲁·莫菲特](https://www.google.com/search?sxsrf=AOaemvI9uBINIR5XQ0zfTVpD9XUycb7lTA:1639546889743&amp;q=%E5%AE%89%E5%BE%B7%E9%B2%81%C2%B7%E8%8E%AB%E8%8F%B2%E7%89%B9&amp;stick=H4sIAAAAAAAAAOPgE-LSz9U3SDLLNbCsVOLVT9c3NEwqySopKrew0JLITrbSL0jNL8hJBVJFxfl5VsUF-aXFqYtYRZ6u63y6b_vLTY2Htr_oW_2if9Pzzp07WBkBa86vKVEAAAA&amp;sa=X&amp;ved=2ahUKEwij8NGPjOX0AhVcUGwGHaGDBYgQmxMoAXoECCEQAw)(Andrew Moffit)在一家名为PathAI的人工智能公司就任高管，这家公司的主要投资者“丹华资本”（ Danhua Capital）则是来自于中共政府支持的风险投资公司。
+作者: 纽约香草山农场翻译部—祈望明天会更好
 
-丹华资本是在中国政府的帮助下资助和建立的，由北京的国有企业中关村发展集团成立，其战略目的是推动’中关村资本走出去，引进海外先进技术和人才’。是其 “渗透到硅谷 “计划的一部分。自由派智库新美国安全中心（CNAS）在2018年向国会作证时说，丹华资本的使命是利用其资本来缩小中国和美国的技术差距。
 
-PathAI多次从丹华资本获得资金。2017年，丹华资本加入投资者行列，使PathAI的总融资额达到1500万美元。2019年，该公司至少筹集了6000万美元，丹华资本再次被列为投资者。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-17.jpg)
 
-**这位部长所领导的商务部正致力于在世界经济舞台上与中共国抗衡，这是否有潜在的利益冲突？引起民众普遍关注。**
 
-雷蒙多和PathAI都没有回应关于丹华资本投资的评论请求。作为商务部长，雷蒙多的任务是管理美国与全球各国的商业关系，而她已经成为政府中最亲中国的声音之一。
+12月14日杰克·波索贝克(Jack Posobiec)在班农作战室节目中, 谈到我们从司法部所提交的一份外国代理人注册信息文件中得到了一条新消息:社交媒体影响者营销公司与中共国领事馆正式签订官方合同.
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-15-at-5.10.27-PM.png)图片来源GTV
+这家总部位于新泽西州的美国公司, 从中共国收取数十万美元, 来支付 Twitch, Instagram和抖音等媒体, 用以宣传北京奥运会, 并淡化在“彭帅事件”上的追查力度.
 
-雷蒙多在9月份接受《华尔街日报》采访时说，美国应该加强与中国的经济关系，认为与中国 “强有力的 “商业交往将 “缓解与这个全球竞争对手的任何潜在紧张关系”。
+诚如郭先生在12月12日大直播中所说, 一半抵制冬奥会的是因为彭帅事件, 这就是多米诺骨牌效应的开始.
 
-其实，今年三月份，新上任的吉娜·雷蒙多(Gina Raimondo)及其丈夫通过交易基金持有微信母公司腾讯控股的金融股份的新闻已经引发争议，拜登政府正在审议川普政府对中（共）国科技巨头腾讯的禁令，因此雷蒙多持股是否存在利益冲突受到关注。
+杰克在班农作战室节目中又说, 中共国领事馆为了帮中共宣传这冬奥会, 无所不用其极地用大量资金注入媒体来宣传冬奥, 淡化彭帅事件, 并诋毁反对中共国的人们, 他们会被称为种族主义者, 所有能贬低人的名称都会用上. 例如, 史蒂夫·班农以种族灭绝抵制冬奥会的报导, 中共国就宣称班农是想要更多的白人婴儿. 中共国所做的一切都是为了达到宣传北京奥运会而使出的卑劣技俩.
 
-雷蒙多的商务部还为华为提供了一条生命线，8月商务部批准了华为购买价值数亿美元的芯片的许可申请，以满足其对汽车行业日益增长的兴趣。
+**参考阅读**: [https://gtv.org/video/id=61b8b7fa56f4921401b7ba4a](https://gtv.org/video/id=61b8b7fa56f4921401b7ba4a)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-6.png)
+总编: 飞虹
 
-这位部长并不是唯一家庭成员与中共的利益捆绑的拜登政府官员，这使得对中国即将举办的冬奥会进行外交抵制的计划变得更复杂。同时，美国政府与中共经济脱钩的战略部署由这么一位亲共派商务部长执行是否会打折扣？我们拭目以待。
+编辑/校对/发稿: 卡夫卡的甲壳虫
 
-[原文链接：](https://freebeacon.com/biden-administration/commerce-secretarys-husband-is-top-executive-at-tech-firm-funded-by-chinese-government/)
+**更多资讯，更多关注**
 
-[部分引用：](http://www.bayvoice.net/gb/news/us/2021/03/07/1016486.htm%E7%BE%8E%E5%95%86%E5%8A%A1%E9%83%A8%E9%95%BF%E6%8C%81%E8%85%BE%E8%AE%AF%E8%82%A1%E4%BB%BD-%E6%98%AF%E5%90%A6%E6%9C%89%E5%88%A9%E7%9B%8A%E5%86%B2%E7%AA%81%E5%BC%95%E5%85%B3%E6%B3%A8.html)
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-2.jpg)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

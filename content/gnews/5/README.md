@@ -2,44 +2,50 @@
 ---
 
 
-## 伊朗发布标有多个打击目标的以色列地图
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1757229/)
+## 澳洲示警冬奥选手 恐遭中共数字铁幕全天候监控
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1757402/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/61b9d718203027118d7c2887.jpg)
+作者：东京樱花团 – 修文
 
 
- 
-图片来源: Reuters / Iranian Army;
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
 
-#### 整理/编辑 ：小红帽
 
-**根据RT新闻12月15日报道，伊朗决定用视觉材料来加强其对宿敌以色列的传统威胁，并公布了一张犹太国家的地图。地图上标有德黑兰为回应其敌人的侵略而可能打击的众多目标。**
+12月14日，有媒体引述澳洲资深官员和安全专家对冬奥选手的警告称，中共政府对境内的监控宛如铜墙铁壁。一旦进入中共国，“数字铁幕”会全天候监控其通讯和行动，甚至搜集敏感数据。
 
-周二，官方英文报纸《德黑兰时报》刊登了一篇文章，标题为 “只要有一个错误的举动！”。
+澳洲政府几天前宣布，基于人权理由，将“外交抵制”北京冬奥会，不派官员代表与会，但仍有100多位澳洲运动员和工作人员前往。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.2-6.jpg)
+届时，这些人将拿到奥委会分发的临时手机和电话卡。某澳洲官员表示，临时手机和电话卡势必受到中共政府的追踪监控，这如同走进中共的“数字铁幕”。
 
-该文章的作者说：“以色列加强对伊朗的军事威胁似乎表明，犹太复国主义政权已经忘记了，伊朗完全有能力从任何地方打击他们”。
+同时，澳洲网络安全专家也提醒，中共采用网络、人脸辨识和车辆追踪等手段实行监控，搜集并拦截所有数据。这些监控手段也将应用在参赛选手身上。并建议冬奥选手不要携带私人手机进入中共国，且在中共国期间，要使用加密通讯软件，并尽可能通过VPN翻墙上网。
 
-该警告的旁边是一张以色列地图，上面覆盖着红色图钉，象征着伊朗导弹可能打击的目标。
+参考链接：
+[中國數位鐵幕 冬奧選手將遭全天候監控](https://news.ltn.com.tw/news/world/paper/1490002)
 
-文章还引用了伊朗武装部队总参谋长穆罕默德·巴盖里（Mohammad Bagheri）少将的话，他坚称 “我们的部队从未低估过敌人的威胁，并为战略领域中最小的威胁做好了准备。”
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-巴盖里坚持认为，伊朗在2020年1月对伊拉克西部的一个美国基地进行弹道导弹袭击，以及2019年6月在霍尔木兹海峡上空击落一架美国“全球鹰”无人机，已经证明了德黑兰的能力。
+总编/编辑：飞虹
+校对/发稿：为真不破20
 
-《德黑兰时报》指出，随着德黑兰与世界大国之间恢复具有里程碑意义的2015年伊朗核协议谈判–该谈判在维也纳中断后重新开始，以色列加强了其活动。
+**更多资讯，更多关注**
 
-新闻来源：[Iran releases Israel map with multiple targets marked — RT World News](https://www.rt.com/news/543262-iran-map-targets-israel/)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-***发布：小红帽***
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

@@ -2,121 +2,50 @@
 ---
 
 
-## 美国中期选举后，十招出手对付中共
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1756979/)
+## 突发：多名美国记者遭国土安全部追查
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1757104/)
 
-[https://gtv.org/video/id=61b8dcaea68b4f4b28e86cb8](https://gtv.org/video/id=61b8dcaea68b4f4b28e86cb8)
+编译：Jenny Ball
 
-我说2022年WTO基本结束
-Digo que la OMC básicamente terminará en 2022
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-7-6.jpg)图片来源：rmh.pdnews.cn
 
-2022年年底前
-Antes de finales del año 2022
+美联社正在向拜登政府询问：为什么国土安全部使用旨在追踪国际恐怖分子的政府数据库，来调查多达 20 名美国记者，其中包括一名获得普利策奖的美联社记者。
 
-你们会听到这个消息
-Escucharán esta noticia
+美联社要求国土安全部就政府对记者的调查作出答复。
 
-2023年5月份以前
-Antes de mayo de 2023
+美联社执行编辑朱莉·佩斯（Julie Pace）周一致信国土安全部部长亚历杭德罗·马约卡斯（Alejandro Mayorkas），要求该机构解释，为什么调查记者玛莎·门多萨（Martha Mendoza）的名字会出现在数据库中，她在川普政府期间被确定为潜在的机密线人。
 
-SWIFT很有可能也可能是下几个月
-Swift probablemente o podría ser en los próximos meses
+佩斯写道：“这是联邦机构利用其权力检查记者联系方式的一个明目张胆的例子。” “虽然监察长报告中详述的行动发生在前任政府的领导下，但这些做法被描述为例行公事。”
 
-2023年5月份以前应该能停, 它跟美国的中期选举有绝对的关系
-Antes de mayo de 2023 posiblemente pueda paralizarse, absolutamente tiene relación con las elecciones de medio mandato de EE. UU
+美国国土安全部调查美国记者的消息，来自国土安全监察长的报告，该报告是在雅虎新闻提出的记录请求中发现的，雅虎和美联社周六报道了该报告。 IG 报告显示，作为涉及另一名记者阿里·沃特金斯（Ali Watkins）的泄密调查的一部分，杰弗里·兰博 (Jeffrey Rambo) 于 2017 年在华盛顿特区的海关和边境保护部门临时执勤，他访问了政府旅行记录 ，当时为《政治客》（Politico）工作，现在在《纽约时报》工作。
 
-我们保守的说, 就美国中期明年年底10月份选举完
-De manera conservadora, decimos que las elecciones se finalizarán en octubre a finales del próximo año
+在新闻报道披露兰博利用政府资源调查沃特金斯之后，监察长开始调查兰博，这是川普政府打击向记者泄密的努力的一部分。
 
-一定是上去十招, 这十招绝对会打出来
-Debe haber diez trucos para subir, estos trucos definitivamente saldrán
+详细说明监察长调查的文件显示，兰博在与 CBP 部门（称为反网络部门）合作时，经常通过政府数据库处理记者、国会工作人员和其他人的姓名，以对其进行审查。兰博告诉调查人员，作为其部门打击强迫劳动任务的一部分，他有权审查与他接触过的任何人。他说，没有如何审查某人的“具体指导”。
 
-那时候你会看到班农大师
-En ese momento verás al maestro Bannon
+“当一个名字出现在你的办公桌上时，你会在你可以访问的每个运行系统中寻找它，这只是现状，这就是每个人的行为，”兰博告诉调查人员。
 
-我们这位战友, 还有我们背后的这些国防的力量的战友
-Nuestro compañero luchador, así como detrás de nosotros están los compañeros luchadores de la fuerza de defensa
+兰博说，他曾在政府数据库中搜索过门多萨，然后再联系她，询问她在撰写有关强迫劳动方面的专业知识，这对 CBP 来说是一个问题，因为该机构强制执行进口限制。 2016 年，作为报道东南亚渔业奴隶劳动的团队的一员，门多萨获得了她的第二个普利策奖。
 
-都会发挥绝对的力量
-Manifestarán la fuerza absoluta
+美联社将此事件描述为“在 9/11 袭击之后创建的机构，利用其强大的能力，瞄准美国公民的最新的明显例子。”
 
-绝对振臂高呼, 没有任何人
-Ninguna persona, absolutamente levantarán los brazos y gritarán fuertemente
-它绝对是十招
-Seguramente son diez trucos
+“**我们对这种明显的滥用权力深表关切**，”美联社在信中的另一份声明中表示。 “这似乎是记者仅仅因为工作而成为攻击目标的一个例子，**这违反了第一修正案**。”
 
-现在这十招都在制定中
-Ahora estos trucos están en proceso de desarrollo
+据美联社报道，监察长办公室将其调查结果提交给联邦检察官，指控其可能涉嫌滥用政府数据库，并向调查人员撒谎，但司法部拒绝起诉兰博和另外两名国土安全部雇员。
 
-第一个就是把它SWIFT停了
-El primero es paralizar al Swift
+CBP 在一份声明中表示，其审查和调查行为受到“严格管理”，并且该机构不会在没有合法和法律依据的情况下调查人员。
 
-然后把这个WTO停了
-También a la OMC
+国土安全部发言人周一表示：“我们不宽恕针对行使第一修正案权利而对记者进行的调查。” “CBP 和该部门的每个组成机构和办公室将确保他们的做法符合我们的价值观和我们的最高标准。” 点评：民主灯塔国家对记者的管控快赶上中共的手段了，无所不为！不同的是，民主国家，政府违宪是要受到起诉和弹劾的！
 
-世界卫生组织肯定给它踢出去
-La Organización Mundial de la Salud debe echarlo
-
-这是联合国马上就要宣布, 联合国不能是它一家代表
-Pronto será el anuncio de la ONU, y la ONU no puede ser solo él el representante
-
-或者是不让它代表中国
-O no puede ser representado por China
-
-希望那个时候习太阳还活着
-Espero que en aquel tiempo el sol, Xi sigue vivo
-
-它的太阳还真能发光
-Su sol pueda seguir brillando
-
-说老实话
-Hablando sinceramente
-
-我有50%以上
-Tengo más del 50%
-
-原来是50%以下
-Antes era menos del 50%
-
-我认为习是能撑过2023到2025
-Pensaba que Xi puede resistir de 2023 al 2025
-现在超过50%, 我认为它根本到不了2025
-Ahora supera el 50%, creo que él no podrá llegar al 2025
-
-共产党100%过不了2025
-El Partido Comunista 100% no pasará el 2025
-
-100%, 我没有说过这话
-100%, nunca había dicho esto
-
-这次我有100%信心它过不了2025
-Esta vez tengo el 100% de confianza que no pasará el 2025
-
-这十招所有的决策就包含这个
-Todas las decisiones de estos diez trucos incluyen este
-
-谢谢
-Gracias
+**新闻来源**：[investmentwatchblog][BREAKING: MAJOR SCANDAL EXPLODES… IMPEACHMENT TIME!](https://www.investmentwatchblog.com/breaking-major-scandal-explodes-impeachment-time/)
 
 * * *
 
-日期：12/14/2021
-原视频标题：美国中期选举后，十招出手对付中共
-Después de las elecciones de medio mandato en los Estados Unidos, habrá diez trucos para lidiar con el PCCh
-原视频日期：12/11/2021
-原视频网址：[** https://gettr.com/post/pje2ska5b2**](https://gettr.com/post/pje2ska5b2)
-任务编号：KC339(3184)
-视频时间段：0:00-01:34
-西听校：洛杉矶盘古农场-霙霙（文霙）
-翻译：洛杉矶盘古农场-小文萱
-翻译终校：洛杉矶盘古农场-霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场- 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+*审核：文乐*
+*校对: 阿伯塔*
+*发布：信心的选择*
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-2.jpeg)
 
  
 
