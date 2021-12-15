@@ -2,46 +2,71 @@
 ---
 
 
-## 非洲正在觉醒：南非国防部拒绝中共疫苗
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1758451/)
+## 2021年12月15日文贵先生直播摘要及音频—银河系农场
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1758483/)
 
-作者：香草山健身部- 正道新闻
+![](https://assets.gnews.org/wp-content/uploads/2021/12/931791cd060cc41aa89565c41e613073.jpg)
+视频连接：[2021年12月15日 文贵大直播：欧美制裁 奥运人权经济；疫苗灾难 危害验证抗议 ；国内经济 地产负债脱钩；终共行动 中共是否报复](https://gettr.com/streaming/pjqagc144c)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/06/WhatsApp_Image_2020-10-24_at_04.33.05-4.jpeg)
+1、时尚就是表达自我、表达时代和这个时代的物质文明，有人敢谈青蒿素吗？敢谈疫苗吗？
 
+2、七哥不是反疫苗，是反这次假疫苗；
 
+3、中共房地产：降价卖不让卖、银行要求配合做假账（借新还旧）、曾经有过3套房子的人，房加锁（3-5年不能卖）、预交三年物业管理费；
 
-中共党卫军作为扩大CCP制造疫苗为全球公共产品更广泛努力的一部分，于 2021 年 2 月开始向 28 个国家的外国军队捐赠了疫苗。其中，计划向南非国防军（SANDF）免费提供30万剂由科兴生产的 CoronaVac 疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/118317745_61fe1f71-d5b6-43ba-bd03-77ab6af0c3f4.jpg)
-3月，南非医学协会表示，他们已经知道南非军事卫生服务部正在与中国国药集团开始谈判，在疫苗作为第二选项引入该国，并向监管部门提出申请。南非军事卫生服务部(SAMHS)的职能，类似于中国国防部后勤部卫生部负责军队医疗卫生安全，但直属于南非国防部，最高军官为中将军衔。
+4、1.2亿人失业 最起码意味着3千万套房子(断供) 中共56万亿房地产经济能解决得了吗？
 
-7月，南非卫生部下属单位，南非卫生产品管理局，给予了科兴疫苗紧急授权。但由于科兴疫苗一直未能及时提交临床研究和定期安全信息报告，使得该疫苗没有纳入南非疫苗推广计划。
+5、冬奥会之后会看到房地产崩塌，国内朋友们一定是能拿一分拿一分，赶快跑；
 
-科兴疫苗试图通过卫生部的管道进入南非军队的计划失败之后，他们加速与南非军事卫生服务部(SAMHS) 指挥委员会的接触。
+6、6千多亿流入香港商业地产，99%是共产党的家人处理了国内的物业到香港避险；
 
-根据非洲[amaBhungane](https://amabhungane.org/)的报道：2021年11月，南非军事卫生服务部指挥委员会开始针对南非军队需要多少疫苗、计量开始统计。整个项目，由彼得·马帕哈中将负责。
+7、西藏独立法案：90%亚洲的水来自喜马拉雅，喜马拉雅上万个山脉保护了中国西部，西藏独立，中国的水没了，很多木头没有了。西藏战略位置不亚于台湾，西藏独立，中国彻底完了。新疆也一定要求独立，香港一定要求独立，台湾绝对拿不走，之后广东也会呼应（独立）；
 
-12月该部门已经和科兴疫苗在南非的分销商Numolux Group达成协议，只要南非国防部同意捐赠，就立即开展疫苗进口工作。
+8、盘古员工：都会给他们喜币，未来5年拿到的钱比工作还要多，而且共产党找不到；
 
-可以说，邪恶的力量希望通过病毒、疫苗控制非洲的野性一分钟都没有停止过。但是正义良知的非洲人，很快的意识到这其中黑暗势力的也行。并作出了必要的反击和对抗。 南非国防部在回答记者关于疫苗提问时明确表示，南非国防部不仅不会接受中共军队免费提供的疫苗，而且也不会使用科兴疫苗
+9、伊维菌素简直救了非洲疟疾、河盲症等；
 
-12月14日南非新闻网站News，发文表示，口罩和疫苗外交是北京通过利用现有双边关系和建立新的双边关系来增强其全球影响力的战略机遇。它还具有将人们的注意力从中国是 Covid-19 源头的说法转移到被指责对最初的爆发处理不当的效果上。[https://www.news24.com/news24/southafrica/news/beijings-soft-power-china-offers-300-000-vaccine-jabs-to-sandf-soldiers-20211214](https://www.news24.com/news24/southafrica/news/beijings-soft-power-china-offers-300-000-vaccine-jabs-to-sandf-soldiers-20211214)
+10、青蒿素：比伊维菌素牛千倍，青蒿素绝对治疗癌症、延长人类的寿命；
 
-[https://en.wikipedia.org/wiki/South\_African\_Military\_Health\_Service](https://en.wikipedia.org/wiki/South_African_Military_Health_Service)
+11、最聪明的犹太人，疫苗接种率是最高的。最落后的非洲，疫苗接种率反而最低。不要放大阴谋论，很多人是长期惯性思维相信科学；
 
-编辑/校对/发稿：菩提树
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpeg)
-**更多资讯，更多关注**
+12、打了疫苗一定要吃伊维菌素或青蒿素；
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+13、疫苗相信2个月全球一定会停，不会超过5个月；
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+14、明年年底一定要完成一个战友们很大的贴现的目标；
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+15、新中国联邦创造的是 AI+生物科技+量子科技+数字货币的时代；
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+16、GTV、GETTR、GNEWS会成为世界信息交易市场、社交媒体的时间交易市场、社交媒体的货币交易市场；
 
+17、美国中期大选以后Facebook、twitter因为疫苗问题都会消失；
 
+**注：本期大直播音频正在制作和上传中，敬请期待——**
+
+**（大直播音频附件位置）**
+
+编辑整理：文俊；
+
+发布：黎明之前；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

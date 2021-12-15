@@ -2,35 +2,47 @@
 ---
 
 
-## 中共国改变步伐 逆流而上
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1758412/)
+## 非洲正在觉醒：南非国防部拒绝中共疫苗
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1758451/)
 
-翻译：文羽
+作者：香草山健身部- 正道新闻
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕截图-2021-12-15-190031.jpg)图片来源 : eleconomista.es
+![](https://assets.gnews.org/wp-content/uploads/2021/06/WhatsApp_Image_2020-10-24_at_04.33.05-4.jpeg)
 
-中共国从未停止过惊喜。由于增长放缓，北京改变了西方经济的步伐，并为经济注入了刺激措施，所有这一切都发生在其他发达国家争论的焦点在不损害经济的情况下尽快撤回援助。
 
-美国联邦储备委员会 (Fed) 主席杰罗姆·鲍威尔 (Jerome Powell) 警告通胀风险 – 昨天飙升至 1982年以来的最高水平，一些经济学家认为，经济增长的不确定性，例如出口波动的影响以及中共病毒OMICRON的新变种，也可能是降准的原因。他们表示，当局此前一直不愿放松货币政策，因为通胀正在上升，而且经济放缓的严重程度不足以破坏今年的 GDP 增长目标。
 
-阻止人民币升值
+中共党卫军作为扩大CCP制造疫苗为全球公共产品更广泛努力的一部分，于 2021 年 2 月开始向 28 个国家的外国军队捐赠了疫苗。其中，计划向南非国防军（SANDF）免费提供30万剂由科兴生产的 CoronaVac 疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/118317745_61fe1f71-d5b6-43ba-bd03-77ab6af0c3f4.jpg)
+3月，南非医学协会表示，他们已经知道南非军事卫生服务部正在与中国国药集团开始谈判，在疫苗作为第二选项引入该国，并向监管部门提出申请。南非军事卫生服务部(SAMHS)的职能，类似于中国国防部后勤部卫生部负责军队医疗卫生安全，但直属于南非国防部，最高军官为中将军衔。
 
-人民币贬值标志着全球主要经济体和股市演变的时代还有多远。自 2015 年那个决定性的夏天以来，五年多过去了，在那个夏天，东方货币标志着市场的步伐以及地球主要经济引擎的政治和货币决策。现在五年多过去了，情况与当时的情况完全相反。事实上，人民币兑全球交易量最大的货币（包括美元）数月来一直在升值，由于减少货币刺激措施的加速对其价格的影响，美元成为所有人关注的焦点。
+7月，南非卫生部下属单位，南非卫生产品管理局，给予了科兴疫苗紧急授权。但由于科兴疫苗一直未能及时提交临床研究和定期安全信息报告，使得该疫苗没有纳入南非疫苗推广计划。
 
-在中共批准新一轮降低银行业资本准备金要求后，其兑世界其他货币的价格在本周得到了最新提振。具体而言，大型银行将这一最低要求降低了 0.5 个百分点，从而向其经济注入了总计 1880 亿美元。尽管采取这一措施引发了对中共国内部经济复苏步伐的怀疑，但人民币在本周初继续升值，至每单位 0.139 欧元，再次触及此后2016 年 3 月的高位，在人民币两次贬值之后。随着这一上涨，今年迄今为止，它对欧洲货币的价值已经累计升值超过 10%。
+科兴疫苗试图通过卫生部的管道进入南非军队的计划失败之后，他们加速与南非军事卫生服务部(SAMHS) 指挥委员会的接触。
 
-就这一切而言，中共国人民银行在本周四宣布了一项新措施来遏制其货币，将银行外汇储备的要求从 7% 提高到 9%。这是继 6 月份将这一比率从 5% 提高到 7% 之后，它在 2021 年第二次这样做，从而迫使金融机构出售人民币并购买其他货币。这个举动虽然不是新的，但自2007 年以来就没有使用过。
+根据非洲[amaBhungane](https://amabhungane.org/)的报道：2021年11月，南非军事卫生服务部指挥委员会开始针对南非军队需要多少疫苗、计量开始统计。整个项目，由彼得·马帕哈中将负责。
 
-大多数分析师预计中共国央行将开始放松货币政策以应对增长放缓。这种情况与美国正在发生的事情发生冲突，美联储已经宣布开始撤回美国的刺激措施。随着美国利率上升，美元将成为对投资者更具吸引力的货币，可能导致中共国资本外流。
+12月该部门已经和科兴疫苗在南非的分销商Numolux Group达成协议，只要南非国防部同意捐赠，就立即开展疫苗进口工作。
 
-新闻来源 : [eleconomista.es] [China-a-contracorriente-de-Occidente-cambia-el-paso-e-inyecta-mas-liquidez-contra-la-desaceleracion](https://www.eleconomista.es/economia/noticias/11517162/12/21/China-a-contracorriente-de-Occidente-cambia-el-paso-e-inyecta-mas-liquidez-contra-la-desaceleracion.html)
+可以说，邪恶的力量希望通过病毒、疫苗控制非洲的野性一分钟都没有停止过。但是正义良知的非洲人，很快的意识到这其中黑暗势力的也行。并作出了必要的反击和对抗。 南非国防部在回答记者关于疫苗提问时明确表示，南非国防部不仅不会接受中共军队免费提供的疫苗，而且也不会使用科兴疫苗
 
-* * *
+12月14日南非新闻网站News，发文表示，口罩和疫苗外交是北京通过利用现有双边关系和建立新的双边关系来增强其全球影响力的战略机遇。它还具有将人们的注意力从中国是 Covid-19 源头的说法转移到被指责对最初的爆发处理不当的效果上。[https://www.news24.com/news24/southafrica/news/beijings-soft-power-china-offers-300-000-vaccine-jabs-to-sandf-soldiers-20211214](https://www.news24.com/news24/southafrica/news/beijings-soft-power-china-offers-300-000-vaccine-jabs-to-sandf-soldiers-20211214)
 
-*审核：蚂蚁兄弟
-校对: 阿伯塔
-发稿: Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-2.jpeg)
+[https://en.wikipedia.org/wiki/South\_African\_Military\_Health\_Service](https://en.wikipedia.org/wiki/South_African_Military_Health_Service)
+
+编辑/校对/发稿：菩提树
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

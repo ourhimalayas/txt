@@ -2,39 +2,43 @@
 ---
 
 
-## 美加澳的高端豪宅市场，从现在起开始暴跌崩坍
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1757655/)
+## 德国奥拉夫·舒尔茨 (Olaf Scholz) 支持疫苗强制令但称自己为“未接种疫苗的总理”
+` Zero-Day【零时差】` [轉載自GNews](https://gnews.org/zh-hans/1757669/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/11-7.png)图片来源：Money Inc
-作者：顺其自然
-编辑：Mttfly
+![](https://assets.gnews.org/wp-content/uploads/2021/12/AD29C2F9-609D-4326-8E83-619E16A36138.jpeg)盖蒂图片社
+据布赖特巴特新闻网[彼得·卡德尔](https://www.breitbart.com/author/peter-caddle/)2021 年 12 月 15 日发文报道，德国新的左翼政治领袖奥拉夫·舒尔茨 (Olaf Scholz) 表示，尽管他支持强制接种疫苗，但他仍然是“未接种疫苗的总理”。
 
-疫情这两年来，美国、加拿大、澳大利亚的房价疯涨，尤其是house。目前中低端市场还会挺一段时间，但高端豪宅市场要开始暴跌崩塌了，为什么这么说呢？原因有四。
+奥拉夫·舒尔茨 (Olaf Scholz) 声称，旨在应对中共病毒的新限制并未分裂国家，而且他也是“未接种疫苗的总理”，就像他代表已接种疫苗的德国人一样。
 
-其一，习近平现在正“打土豪”，他让所有的富豪高官都要把海外的资产拿回到中共国去。对于那些富豪来说，海外的资产很大一部分是在房产里的。这些人是以江志成、许家印、马云为代表的。中国百亿以上的富豪高官及他们的家人、子女、亲朋怎么也有个几百万人吧，哪家没有个几百套房产。现在习近平逼着这些人处理海外的资产，把钱拿回去。我们看到许家印的儿子都已经在卖豪宅了，难道他是自愿的吗？他愿意把这些个房子卖掉，然后把钱拿回去吗？当然是后边的枪在顶着。
+尽管 舒尔茨 主张[强制](https://www.breitbart.com/europe/2021/12/02/merkel-announces-restrictions-on-unvaccinated-vote-on-making-jabs-compulsory/)要求全体人口接种 COVID 疫苗，并且，仅对未接种疫苗者实施封锁，但一位奥地利政治家将这一措施称为“新冠种族隔离制度”。
 
-美国洛杉矶日落大道上的一栋千万豪宅大减价出售一事引发媒体关注。因为抛售者正是深陷债务危机的许家印的二公子许腾鹤。综合媒体12月8日报道，这栋现代风格的豪宅位于Sierra Alta路1300号段，2018年首次出售，以1,750万美元的价格卖给了许家印的小儿子许腾鹤。据挂牌记录，2021年初该房就以1,850万美元上市，但似乎无人接手。6月时价格迅速跌至1,700万美元。而好莱坞报道网站引述最近记录显示，该屋以1,250万美元的低价在私下成交。该价格已经比2018年的买入价跌掉了500万美元了，若是扣除房地产经纪人费用、产业税、其他交易费用和三年维护费用，实属损失惨重的一笔交易。
+在[接受](https://www.bild.de/bild-plus/politik/inland/politik-inland/olaf-scholz-ich-bin-auch-kanzler-der-ungeimpften-78514138.bild.html?jsRedirect)*Bild[采访](https://www.bild.de/bild-plus/politik/inland/politik-inland/olaf-scholz-ich-bin-auch-kanzler-der-ungeimpften-78514138.bild.html?jsRedirect)*时 ，舒尔茨敏锐地强调，尽管存在很多争议，但他并不认为德国因限制而出现分歧。
 
-看到没？许家印儿子这套房产降价500万出售，因为习近平没有时间留给他们慢慢卖，习近平的意思就是现在能拿回多少是多少，总比一点都拿不回去强。由于时间短，很难找到合适的买家，所以只能亏本大甩卖。
+舒尔茨告诉该报：“德国没有分裂！大多数市民自己接种了疫苗。还有更多人希望尽快这样做，因为他们已经克服了担忧。”他还声称：“在那些没有接种疫苗的人中，很少有人认为他们必须通过抗议游行来证明他们对接种疫苗的反抗。”
 
-其二，美国要成立反腐败机构，要把独裁国家官员放在美国的资产冻结，美国财政部甚至出台了奖励举报人的办法，奖励那些提供贪官信息的人。所以会有知道贪官信息的人，向当地政府举报，为了这个拥金。这可不是一笔小数目。美国出了这么一招，加拿大，澳大利亚，新西兰也会跟上的，这些人现在傻眼了，也得赶紧卖房。网上爆出来一个年轻的32岁的亿万富豪，在悉尼的一个区里就买了六套房，价值3千7百万之多。一直空着，没人居住。近期，其中一套以218万的价格卖掉，另一套也在挂牌出售中，估计这几套都会尽快处理掉。有战友说是习的私生子张博，但没有确实的证据。在一个区里有六套豪宅，肯定是个大贪官或者富豪的公子。这些贪官有基金、公司、还有钱存在比特币。但对于这些人来说，大部分还是存在房产里边，所以他们的房产也会赶紧降价卖。若不卖，就被美加澳新等国政府冻结了，他一分钱都拿不到，所以哪怕他们降价很多，也是尽快出手的好。即使不把钱拿回中国去，拿到伊朗、塞舌尔、阿联酋那种国家也行啊，他们可不敢再放到美加澳这些国家了。
+尽管过去两周[有数千人](https://www.welt.de/politik/deutschland/article235644794/Corona-Demos-in-Deutschland-Nicht-alle-verliefen-friedlich.html)参加了反对新措施的抗议活动，但总理还是发表了上述评论。
 
-其三，习近平把郭先生的老父亲及他1000多个员工，扔到大街上之后，郭先生就已经开始了反击，其中的一个反击的举措，就是让爆料革命的战友跟当地政府合作，把所有这些贪官的信息提供给当地政府。我们知道郭先生那至少有4000个以上贪官的信息，他肯定有详细的房产的信息。这个我们从郭先生2017年爆料王岐山、孟建柱这些房产信息的时候就已经知道了。原本这些个贪官还抱有侥幸心理，认为美国也就是咋呼咋呼，出台这个反腐败机构也只是为了从中共那敲诈更多的钱。但是现在郭先生把这些信息全部提供给当地国政府，而且郭先生肯定还会放到GETTR、GTV、GNEWS上向全世界公布。
+其中[包括](https://www.dw.com/en/germany-torchlit-rally-against-covid-measures-in-saxony-prompts-outcry/a-60020777)在萨克森州卫生部长住所外举行的一场极具争议的抗议集会。
 
-其四，现在美国、加拿大、澳大利亚的通货膨胀非常厉害。虽然联储没有加息，但是各商业银行已经把房地产的利息加了好几次了，明年会加息更多，美联储明年至少也会加息三次。在连续加息以及加息预期之下，房产的价格一定会被打下来，这是规律。
+舒尔茨说：“我想把这个国家团结在一起。因此，我也是未接种疫苗者的校长。”“我想说服他们接种疫苗的要点。但是：有不同意见并不意味着分裂。我们也可以争论。我相信绝大多数没有接种疫苗的人都和我一样觉得这些抗议集会令人作呕。”
 
-有人说，中共国的贪官和富豪对美加澳的房产有那么大的影响吗？在中低端市场影响应该是不大的，但是在高端豪宅市场影响是非常大的。我们看一下中共国省部级以上的高官有多少就知道了。
+然而，当被问及是否会对全体人口实施强制疫苗接种时，肖尔茨表示，虽然最终要由议会决定，但他支持实施该措施。
 
-中共国大概有300个正部级岗位，约近2700个副部级岗位。然后还有政治局，常委，再加上退休的，总的翻倍吧。这就6000多了。哪个省部级以上干部没有个小三小四，私生子女，兄弟姐妹的？每个按10个来算，就是6万，他们一人只有一套房吗？怎么可能，在每个国家至少也是10套起步吧。所以中共省部级以上高官在美加澳拥有的房子至少是60万套。中国还有十亿万，百亿，千亿富豪呢，虽说是白手套，但也不能白做白手套啊，总是有很多资产的，这些个富豪也有个两三百万吧。这些国家高端市场的房子总共才多少，这些房子都会因情势变化从现在开始要处理掉，那它就会对整个高端豪宅市场造成重大的打击，影响当地房地产市场，导致暴跌崩盘。
+舒尔茨说：“作为议员，我将投票支持强制接种疫苗，因为它在法律上是允许的，而且在道德上是正确的，”“我们是一个绝大多数人都遵守法律的国家。我们在红灯处停下。我们尊重交通规则。不是因为警察到处检查我们。但是因为我们遵守这些规则是我们本性的一部分。”
 
-**发布：**去中心化Math
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+德国的邻国奥地利已经确认将实施该措施，那些在 2 月后仍未接种疫苗的人将[面临](https://www.breitbart.com/europe/2021/12/10/fears-new-austrian-law-could-be-used-to-imprison-unvaccinated-for-up-to-a-year/)巨额罚款和可能的监禁。
+
+编译/米拉娅
+
+审阅/丘杰斯
+
+上传/天赐良闻
+
+英文原文作者：[彼得·卡德尔](https://www.breitbart.com/author/peter-caddle/)
+
+[伦敦](https://www.breitbart.com/europe/)[卫生](https://www.breitbart.com/health/)[/欧洲](https://www.breitbart.com/europe/)[政治](https://www.breitbart.com/politics/)[种族隔离](https://www.breitbart.com/tag/apartheid/)[冠状病毒](https://www.breitbart.com/tag/coronavirus/)[COVID-19](https://www.breitbart.com/tag/covid-19/)[欧盟](https://www.breitbart.com/tag/european-union/)[德国](https://www.breitbart.com/tag/germany/)[封锁](https://www.breitbart.com/tag/lockdown/)[强制疫苗接种](https://www.breitbart.com/tag/mandatory-vaccination/)[Olaf Scholz](https://www.breitbart.com/tag/olaf-scholz/)[SPD](https://www.breitbart.com/tag/spd/)[疫苗要求](https://www.breitbart.com/tag/vaccine-mandates/)
+
+[Scholz ‘Chancellor of the Unvaccinated’ Despite Mandatory Vax Support](https://www.breitbart.com/europe/2021/12/15/germanys-scholz-calls-himself-chancellor-of-the-unvaccinated-despite-mandatory-vax-support/)
 
  
 
