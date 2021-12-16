@@ -2,35 +2,47 @@
 ---
 
 
-## 您的宠物会感染COVID-19吗？
-` Zero-Day【零时差】` [轉載自GNews](https://gnews.org/zh-hans/1761216/)
+## 97.8%的21岁以下心肌炎患者是在注射mRNA疫苗后一个月内发生的
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1761323/)
 
-![400.jpeg](https://assets.gnews.org/wp-content/uploads/2021/12/F6B530D4-2A0F-4464-B3D4-643E8B17C50F.jpeg)
-2021 年 12 月 16 日，艾玛 H.托宾纽约（美联社发文题为：您的宠物会感染 COVID-19 吗？
+**编译：七叶之芒**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip01-2.png)图片来源：cleverjourneys.com
+美国心脏协会（AHA）的出版物《循环》（Circulation）发布了第二项研究，表明经历心肌炎的年轻患者在其心脏问题状况开始的一个月内密集地注射了一种实验性mRNA COVID-19疫苗。
 
-是的，宠物和其他动物可能会感染导致 COVID-19 的冠状病毒，但卫生官员表示，它们将其传播给人类的风险很低。
+该研究调查了来自美国26个医疗中心的139名21岁以下的青少年或青年患者的数据，他们“在接种COVID-19疫苗后30天内被怀疑有心肌炎”。
 
-狗、猫、雪貂、兔子、水獭、鬣狗和白尾鹿都是检测呈阳性的动物，大多数情况下是从感染者那里感染的。
+该研究指出：“了解COVID-19疫苗接种后疑似心肌炎的临床过程和短期结果，对决定为青少年接种疫苗具有重要的公共卫生意义。”
+![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip02-3.png)图片来源：cleverjourneys.com
+数据显示：
 
-虽然您不必太担心从宠物那里感染 COVID-19，但他们应该担心从您那里感染。根据[美国疾病控制与预防中心的](https://www.cdc.gov/coronavirus/2019-ncov/daily-life-coping/animals.html)说法，确诊或疑似 COVID-19 的人应避免与宠物、农场动物和野生动物以及其他人接触。
-
-安大略兽医学院的斯科特·威斯博士说：“如果你因为生病或可能接触到其他动物而不愿靠近另一个人，请不要靠近另一只动物。”
-
-这种特殊的冠状病毒[最有可能首先从动物](https://apnews.com/article/coronavirus-pandemic-science-health-covid-19-083bd75a801f9824e0b9ad7316062a5c)传染[给人类](https://apnews.com/article/coronavirus-pandemic-science-health-covid-19-083bd75a801f9824e0b9ad7316062a5c)，从而引发大流行，因为这种病毒很容易在人与人之间传播。但它不容易从动物传播到人。威斯说，水貂是已知的唯一一种从人类身上感染病毒并将其传播回来的动物。
-
-**北欧的三个国家记录了该病毒从人传播到水貂养殖场的水貂的病例。病毒在动物之间传播，然后再传回农场工人。**
-
-Weese 说，动物获得和传播病毒的难易程度可能会因不同的变种而异，防止病毒在动物之间传播的最佳方法是在人与人之间控制它。
-
-编译/玛莉娜
-
-审阅/丘杰斯
-
-上传/天赐良闻
-
-[援引链接](http://https%20you://apnews.com/article/coronavirus-pandemic-science-health-lifestyle-animals-c4cd49b1aac1e7a3aaa7ffdef9ad9be8)
+- 136人，或97.8%，接受了mRNA注射。
+- 131人，即91.4%，接受了辉瑞公司的注射，其中128人，即91.4%，是在第二次注射后进行的。
+- 年龄中位数为15.8岁，男性（126人，或90.6%）占最大比例。
 
 
+症状一般在被接种后的2天内开始，胸痛（99.3%）是最常见的症状。
+
+该研究查看了心脏磁共振成像（cMRI），并得出结论：“cMRI上的异常发现很频繁。未来的研究应评估风险因素、机制和长期结果。”
+
+这是AHA最近发表的第二项研究，显示了关于接种疫苗的令人震惊的信息。上个月，它发表了一项研究，发现“大多数病人”在注射mRNA疫苗后出现心脏相关医疗问题的风险会更高。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip03-2.png)图片来源：cleverjourneys.com
+
+这项研究是由发明了婴儿心脏移植手术的心脏病专家史蒂文-甘德瑞（Steven-Gundry）博士进行的。甘德瑞博士发现，“大多数病人发生了戏剧性的变化”，他们更容易出现心脏病发作和其他急性冠状动脉综合症的风险。
+
+像推特这样的社交媒体巨头正在对美国心脏协会的研究发出“不安全链接”警告，该研究显示mRNA疫苗极大地增加了患心脏病的风险，从11%增加到25%。
+
+“在我的实践中，我看到血栓相关的血管病症大增”，伦敦著名的塔希尔-侯赛因（Tahir-Hussain）博士证实。“与大流行之前相比，入院并需要手术和医疗干预的病人要年轻得多”。
+
+**新闻来源**：[cleverjourneys.com][American Heart Association: 97.8% of under age 21 patients who suffered myocarditis was within a month after their mRNA shot](https://cleverjourneys.com/2021/12/14/american-heart-association-97-8-of-under-age-21-patients-who-suffered-myocarditis-was-within-a-month-after-their-mrna-shot/)
+
+* * *
+
+***审核：Aries的星
+校对：信心满满
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-3.jpeg)
 
  
 

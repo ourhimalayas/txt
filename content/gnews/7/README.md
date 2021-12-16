@@ -2,44 +2,48 @@
 ---
 
 
-## 家庭反洗脑序列 第40篇 学校荣誉
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1761393/)
+## 【Michael.Tonny专栏】中共病毒疫苗导致欧盟3万多人死 300多万人身体受伤害
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1761478/)
 
-**作者：随风61**
+作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip04-3.png)图片来源：edu.people.com.cn
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-“妈妈，今天我们组又没有拿到小红花。”坐在自行车后座的胖小子说。
+欧盟疑似药物反应报告数据库[EudraVigilance](https://www.adrreports.eu/en/index.html)报告，截止至2021年12月4日，在注射 COVID-19（中共病毒）疫苗后，欧盟27国共收1,228,780份疫苗副作用报告，其中32,649 人死亡，3,003,296人身体受到伤害，1,409,643人身体受到严重伤害。
 
-“怎么呢？”妈妈一边费力地推着自行车，一边回头看着儿子说。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/EudraVigilance.png)
 
-“全怨郝婷婷，老师一共听写了10个生词，她错了4个。就因为她一个人，我们都没有小红花……”
+EudraVigilance为European database of suspected adverse drug reaction reports的简称，网站包含在欧洲经济区（ European Economic Area，EEA）内授权使用的药品可疑副作用（也被称为可疑的药物不良反应，relates to suspected side effects）的报告信息。
 
-我真的不是存心偷听，在我下班回家的路上，有一段坡道，单车都很难骑上去，何况带着孩子。恰巧这位母亲在我身边下了车，他们的对话飘进了我的耳朵。
+该网站是由欧洲药品管理局（[The European Medicines Agency](https://www.ema.europa.eu/)）管理这些报告，以便包括公众在内的利益相关者可以了解欧洲监管机构（European regulatory authorities）用于审查药物或活性物质（medicine or active substance）安全性的信息。
 
-我被邀请参加一个小学六年级的主题班队会。我走进教室，有一名同学引导我坐到我的座位上，教室的桌椅摆成圈状，中间留着空地，很有点像圆桌会议庭的样子，不管在哪个角度，大家都可以看到对方。
+由于EudraVigilance 维护的这个数据库仅适用于欧盟 (European Union，EU) 27个欧洲国家，而欧洲国家的总数大约有50个，因此，EudraVigilance的报告并不能反映整个欧洲全貌。整个欧洲在注射中共病毒疫苗后死亡或身体受到伤害的实际人数将远高于EudraVigilance报告的数字。
 
-大黑板用彩色粉笔醒目地写着：主题队会——我的生日是妈妈的受难日。会议严格按照队会的流程有序地进行。“下面请学生代表发言。”主持人播报。一个细高身材，脸色有些苍白的女孩上台，她的臂章上有“两道杠”，很显然她是中队长。
+这次EudraVigilance关于中共病毒疫苗的报告包含Moderna 的mRNA疫苗CX-024414、Pfizer/Biontech的mRNA疫苗、Astrazeneca的CHADOX1 NCOV-19疫苗和Janssen的AD26.COV2.S疫苗。
 
-“……我的妈妈每天天不亮就起床给我做早餐，然后送我上学。晚上还要陪我写作业到深夜……妈妈变成了黄脸婆全都是因为我……”她一边说一边哽咽着，当说到“一切都是为了我，妈妈完全没有自己的生活。”时留下来眼泪。在这位眼泪姑娘的引导下，后面发言的孩子，几乎都哭了，原因大多是——由于自己的出现连累了妈妈，拖累了家庭，自己是妈妈苦难生活的根源……我惊诧：每一个发言都紧扣主题“我的生日是妈妈的受难日。
+这些因注射疫苗受到的身体伤害包括：血液和淋巴系统疾病（Blood and lymphatic system disorders），心脏疾病（Cardiac disorders），先天性、家族性和遗传性疾病（Congenital, familial and genetic disorders），耳朵和耳道疾病（Ear and labyrinth disorders），内分泌疾病（Endocrine disorders），眼部疾病（Eye disorders），胃肠道疾病（Gastrointestinal disorders），一般疾病和给药部位条件（General disorders and administration site conditions），肝胆疾病（ Hepatobiliary disorders），免疫系统疾病（Immune system disorders），感染和侵染（Infections and infestations），受伤、中毒和手术并发症（Injury, poisoning and procedural complications），待研究（Investigations），代谢和营养障碍（Metabolism and nutrition disorders），肌肉骨骼和结缔组织疾病（Musculoskeletal and connective tissue disorders），良性、恶性和未特指的肿瘤（包括囊肿和息肉）（Neoplasms benign, malignant and unspecified (incl cysts and polyps) ），神经系统疾病（Nervous system disorders），怀孕、产褥期和围产期疾病（ Pregnancy, puerperium and perinatal conditions），产品问题（Product issues），精神疾病（Psychiatric disorders），肾脏和泌尿系统疾病（Renal and urinary disorders），生殖系统和乳房疾病（Reproductive system and breast disorders），呼吸、胸和纵隔疾病（Respiratory, thoracic and mediastinal disorders），皮肤和皮下组织疾病（Skin and subcutaneous tissue disorders），社会环境（Social circumstances ），外科和医疗程序（Surgical and medical procedures ），血管疾病（Vascular disorders）。
 
-这个队会令我压抑，我认为最好的亲情关系应该是没有抱怨、没有自责、没有牵绊，只有爱，爱是我们唯有的选择，喜悦是最好的感恩方式。
+这里说的身体严重伤害，是指导致死亡、危及生命、需要住院治疗、导致另一种医学上的重要状况或现有住院时间延长、导致持续或严重残疾或丧失能力或者先天性异常/出生缺陷等医疗事故。
 
-我环顾教室四周，有一面展示墙，挂着两张宣传栏，一张叫“红花台”另一张叫“争当优秀小队”。“红花台”上是全班56名同学的名单，每个名单的后面都印有小红花，得到多的有几十朵，少的只有两朵，一目了然。“争当优秀小队”在每朵花的花瓣上写着同学的名字，六人一小队，花蕊上的星记载着小队团体的成绩。后黑板的角落里贴着一张期中考试学生成绩一览表——按分数排名。
+下表为四种疫苗导致的副作用汇总信息
 
-郝婷婷同学那晚睡得还安恬吗？有没有一个人躲在卧室里偷偷哭泣？
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Summary-Adrs-EU-04122021.jpg)
 
-在我儿子的抽屉里放着大大小小十几张奖状，这还不是全部。什么学习进步奖、热爱班集体奖、双优奖、团结同学奖、书法比赛奖……名目繁多。他们把一个由血肉身躯构成的“人”加上标签，放在一个方格子中、挂在宣传栏中，展示在所有人面前……
+参考数据：
 
-我实在不敢恭维“学校荣誉”，甚至认为他们在犯罪。他们把一个个所谓“难管教”、“不听话”的孩子框在其中，使他们动弹不得，呼吸不得，把所有的灵性扼杀在学校荣誉中。
+[The European Medicines Agency](https://www.ema.europa.eu/)
 
-* * *
+[COVID-19 MRNA VACCINE MODERNA (CX-024414)](https://dap.ema.europa.eu/analyticsSOAP/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+40983312)
 
-***审核：Aries的星
-校对：信心满满
-发布：信心满满***
+[COVID-19 MRNA VACCINE PFIZER-BIONTECH (TOZINAMERAN)](https://dap.ema.europa.eu/analyticsSOAP/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+42325700)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-3.jpeg)
+[COVID-19 VACCINE ASTRAZENECA (CHADOX1 NCOV-19)](https://dap.ema.europa.eu/analyticsSOAP/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+40995439)
+
+[COVID-19 VACCINE JANSSEN (AD26.COV2.S)](https://dap.ema.europa.eu/analyticsSOAP/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+42287887)
+
+[32,649 Deaths 3,003,296 Injuries Following COVID Shots in European Database of Adverse Reactions as Young, Previously Healthy People Continue to Suffer](https://healthimpactnews.com/2021/32649-deaths-3003296-injuries-following-covid-shots-in-european-database-of-adverse-reactions-as-young-previously-healthy-people-continue-to-die/)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/) 上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

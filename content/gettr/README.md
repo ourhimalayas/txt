@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/16/2021 3:53 PM (UTC)`
+
+12月15号：尊敬的战友们好，你们健身了吗？共产党内部的政治经济即将大崩溃……中国政治的家天下时代已经到来……对老百姓的掠夺会越来越猛烈……希望战友们一定要小心新病毒对人体的危害性，一切都已经开始！
+
+---
+
 `@miles 12/16/2021 7:43 AM (UTC)`
 
 12/15/2021 Miles Guo: The West will provide the Tibet independence forces with weapons, money, and food and will take care of their descendants; Hong Kong, Taiwan, Xinjiang, and Tibet should join forces to fight against the CCP. If the CCP dares to take action, the world shall decouple from the CCP economically; there are more bills to be introduced for Xinjiang, Tibet, Hong Kong, and Taiwan<br/><br/>12/15/2021 文贵直播：西方将为藏独提供武器、钱和粮食，救助藏独人士的后代；港台疆藏应联合抗共，若中共动手，世界就跟它经济脱钩；还有更多对新疆、西藏、香港、台湾的法案要出台<br/>
@@ -150,13 +156,6 @@ Dec 14, 2021 Breaking news: Mr. Miles Guo's latest single “HCoin to The Moon�
 
 12/12/2021 Miles Guo: Who are offended by a non-professional singer Miles Guo’s “Hcoin To the Moon” topping the charts? 1) The CCP and other dictatorships; 2) the so-called professionals in the music industry; 3) traditional platforms for distributing music; and 4) the music moguls behind the scenes<br/><br/>12/12/2021 文贵直播：非专业歌手郭文贵Hcoin To the Moon 霸榜惹恼了谁？1) 中共、独裁政权，2) 所谓音乐界专业人士，3) 发行音乐的传统平台，4) 世界音乐界背后的大佬<br/>
 ![img](https://media.gettr.com/group19/getter/2021/12/14/04/7e82f595-a5a1-b91c-e4bb-0fd204cc23dc/out.jpg)
-
----
-
-`@miles 12/14/2021 2:51 AM (UTC)`
-
-最近，我们初步的完成了关于青蒿素保健品和药品效用的问卷调查。调查结果显示，青蒿素会改善和缓解疫苗副作用及其他基础疾病。所有细节均包含在如下的报告里。青蒿素是中共病毒和中共病毒疫苗的解药，我们将继续推进真相。请遵医嘱。
-![img](https://media.gettr.com/group29/origin/2021/12/14/02/b40c46cb-4cf8-0b4a-25e0-6521d2c52766/2f819549854a45495c31ac76700944de.png)
 
 ---
 

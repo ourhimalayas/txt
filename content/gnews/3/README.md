@@ -2,49 +2,38 @@
 ---
 
 
-## 【Michael.Tonny专栏】中共病毒疫苗导致欧盟3万多人死 300多万人身体受伤害
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1761478/)
+## 美国加强印太战略 联合盟友对抗中共
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1761832/)
 
-作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+作者：日本方舟农场 Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月14日，相关媒体消息显示，美国国务卿布林肯在本周首次出访东南亚国家时，于印尼发表重要演说表示，美国将强化自身与印太地区的战略伙伴关系，同时要确保南中国海地区的航行自由与台湾海峡的和平稳定。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-16-下午11.08.46.png)
+布林肯强调，国际法庭五年前对中共在南中国海的判决，而今仍然具有法律约束力，而美国也会与该地区的其他国家一起，坚决对中共在南中国海的非法声索行为实施反制。 另外，在15日访问马来西亚时，布林肯还邀请东南亚的各国领导人参与总统拜登举办的峰会。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+在同一日召开的美、日、台三边印太安全对话中，美国民主人权和劳工事务局代理首席、副助理国务卿表示，台湾为世界树立了建立、维持并尊重民主社会的榜样。为此，美国应致力于解决印度-太平洋地区的一些主要问题，并应对该地区出现的种种挑战。副助卿强调，民主社会需要团结起来，组成同一阵线，共同行动。
 
-欧盟疑似药物反应报告数据库[EudraVigilance](https://www.adrreports.eu/en/index.html)报告，截止至2021年12月4日，在注射 COVID-19（中共病毒）疫苗后，欧盟27国共收1,228,780份疫苗副作用报告，其中32,649 人死亡，3,003,296人身体受到伤害，1,409,643人身体受到严重伤害。
+日本媒体也在当天报道称，日本和美国的第二次“2+2”外长、防长会晤暂定于2022年1月7日召开。本次会晤的主题依旧是关于印太地区频繁冒进的中共，以及台海的和平与安定。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/EudraVigilance.png)
+参考链接：
+1）[美国务卿发表印太策略重大演说：共同推进开放、繁荣与和平](https://www.voachinese.com/a/blinken-indo-pacific-vision-20211214/6353138.html)
+2）[日米「2プラス2」来月7日開催で調整](https://www3.nhk.or.jp/news/html/20211215/k10013388451000.html)
+3）[布林肯：美國考慮加大施壓緬甸 將與東協開高峰會](https://udn.com/news/story/6809/5964128)
+4）[美国务院副助卿：台湾民主模式向世界展示](https://www.epochtimes.com/gb/21/12/14/n13436598.htm)
 
-EudraVigilance为European database of suspected adverse drug reaction reports的简称，网站包含在欧洲经济区（ European Economic Area，EEA）内授权使用的药品可疑副作用（也被称为可疑的药物不良反应，relates to suspected side effects）的报告信息。
+![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-该网站是由欧洲药品管理局（[The European Medicines Agency](https://www.ema.europa.eu/)）管理这些报告，以便包括公众在内的利益相关者可以了解欧洲监管机构（European regulatory authorities）用于审查药物或活性物质（medicine or active substance）安全性的信息。
+总编：文真
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-由于EudraVigilance 维护的这个数据库仅适用于欧盟 (European Union，EU) 27个欧洲国家，而欧洲国家的总数大约有50个，因此，EudraVigilance的报告并不能反映整个欧洲全貌。整个欧洲在注射中共病毒疫苗后死亡或身体受到伤害的实际人数将远高于EudraVigilance报告的数字。
-
-这次EudraVigilance关于中共病毒疫苗的报告包含Moderna 的mRNA疫苗CX-024414、Pfizer/Biontech的mRNA疫苗、Astrazeneca的CHADOX1 NCOV-19疫苗和Janssen的AD26.COV2.S疫苗。
-
-这些因注射疫苗受到的身体伤害包括：血液和淋巴系统疾病（Blood and lymphatic system disorders），心脏疾病（Cardiac disorders），先天性、家族性和遗传性疾病（Congenital, familial and genetic disorders），耳朵和耳道疾病（Ear and labyrinth disorders），内分泌疾病（Endocrine disorders），眼部疾病（Eye disorders），胃肠道疾病（Gastrointestinal disorders），一般疾病和给药部位条件（General disorders and administration site conditions），肝胆疾病（ Hepatobiliary disorders），免疫系统疾病（Immune system disorders），感染和侵染（Infections and infestations），受伤、中毒和手术并发症（Injury, poisoning and procedural complications），待研究（Investigations），代谢和营养障碍（Metabolism and nutrition disorders），肌肉骨骼和结缔组织疾病（Musculoskeletal and connective tissue disorders），良性、恶性和未特指的肿瘤（包括囊肿和息肉）（Neoplasms benign, malignant and unspecified (incl cysts and polyps) ），神经系统疾病（Nervous system disorders），怀孕、产褥期和围产期疾病（ Pregnancy, puerperium and perinatal conditions），产品问题（Product issues），精神疾病（Psychiatric disorders），肾脏和泌尿系统疾病（Renal and urinary disorders），生殖系统和乳房疾病（Reproductive system and breast disorders），呼吸、胸和纵隔疾病（Respiratory, thoracic and mediastinal disorders），皮肤和皮下组织疾病（Skin and subcutaneous tissue disorders），社会环境（Social circumstances ），外科和医疗程序（Surgical and medical procedures ），血管疾病（Vascular disorders）。
-
-这里说的身体严重伤害，是指导致死亡、危及生命、需要住院治疗、导致另一种医学上的重要状况或现有住院时间延长、导致持续或严重残疾或丧失能力或者先天性异常/出生缺陷等医疗事故。
-
-下表为四种疫苗导致的副作用汇总信息
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Summary-Adrs-EU-04122021.jpg)
-
-参考数据：
-
-[The European Medicines Agency](https://www.ema.europa.eu/)
-
-[COVID-19 MRNA VACCINE MODERNA (CX-024414)](https://dap.ema.europa.eu/analyticsSOAP/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+40983312)
-
-[COVID-19 MRNA VACCINE PFIZER-BIONTECH (TOZINAMERAN)](https://dap.ema.europa.eu/analyticsSOAP/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+42325700)
-
-[COVID-19 VACCINE ASTRAZENECA (CHADOX1 NCOV-19)](https://dap.ema.europa.eu/analyticsSOAP/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+40995439)
-
-[COVID-19 VACCINE JANSSEN (AD26.COV2.S)](https://dap.ema.europa.eu/analyticsSOAP/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+42287887)
-
-[32,649 Deaths 3,003,296 Injuries Following COVID Shots in European Database of Adverse Reactions as Young, Previously Healthy People Continue to Suffer](https://healthimpactnews.com/2021/32649-deaths-3003296-injuries-following-covid-shots-in-european-database-of-adverse-reactions-as-young-previously-healthy-people-continue-to-die/)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/) 上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
