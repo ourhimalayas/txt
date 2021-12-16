@@ -15,89 +15,89 @@
 
 ---
 
-### [西藏独立法案使得中共只有开战，中国将走向长长的黑夜](/content/gnews/1/README.md)
+### [西藏法案对新中国联邦意义深远，是中国共产党的噩梦](/content/gnews/1/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [8月以来九成Covid死亡来自完全接种者](/content/gnews/2/README.md)
+### [喜币的核心是价格、提现、流通性以及示来的点到点HDO](/content/gnews/2/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [西藏独立法案使得中共只有开战，中国将走向长长的黑夜](/content/gnews/3/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [8月以来九成Covid死亡来自完全接种者](/content/gnews/4/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [西藏之于中国类似于站着撒尿的人居高临下对着整个尿盆](/content/gnews/3/README.md)
+### [西藏之于中国类似于站着撒尿的人居高临下对着整个尿盆](/content/gnews/5/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [胡锡进“丢狗” 能否继续叼盘](/content/gnews/4/README.md)
+### [胡锡进“丢狗” 能否继续叼盘](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [约九成水源来源的西藏和喜马拉雅若不存在亚洲一切结束](/content/gnews/5/README.md)
+### [中国政府将爱国主义和道德标准作为艺术和文化的指导](/content/gnews/7/README.md)
+ ` 澳喜农场`
+
+### [约九成水源来源的西藏和喜马拉雅若不存在亚洲一切结束](/content/gnews/8/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [英国批评中国对立陶宛外交官施加“不可接受的压力”](/content/gnews/6/README.md)
+### [英国批评中国对立陶宛外交官施加“不可接受的压力”](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [数以千计的新西兰人游行 抗议疫苗强制令和封锁](/content/gnews/7/README.md)
+### [数以千计的新西兰人游行 抗议疫苗强制令和封锁](/content/gnews/10/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [接下来将推出对新疆西藏香港台湾意想不到的立法和法案](/content/gnews/8/README.md)
+### [接下来将推出对新疆西藏香港台湾意想不到的立法和法案](/content/gnews/11/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [推特：CDC认为接种疫苗的人可以传播COVID是误导](/content/gnews/9/README.md)
+### [推特：CDC认为接种疫苗的人可以传播COVID是误导](/content/gnews/12/README.md)
  ` wenwu`
 
-### [广东爆疫情，东莞全市又折腾测核酸](/content/gnews/10/README.md)
+### [广东爆疫情，东莞全市又折腾测核酸](/content/gnews/13/README.md)
  ` 澳喜农场`
 
-### [每日快报：科兴疫苗对Omicron无效](/content/gnews/11/README.md)
+### [每日快报：科兴疫苗对Omicron无效](/content/gnews/14/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [没有新中国联邦和爆料革命不可能有新疆和西藏独立法案](/content/gnews/12/README.md)
+### [没有新中国联邦和爆料革命不可能有新疆和西藏独立法案](/content/gnews/15/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [2021年中共关押127名记者 居世界首位](/content/gnews/13/README.md)
+### [2021年中共关押127名记者 居世界首位](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆：华夏幸福声称20亿理财中间人失联，为赖账找借口？](/content/gnews/14/README.md)
+### [中日财经爆：华夏幸福声称20亿理财中间人失联，为赖账找借口？](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [币圈新闻动态：喜币（HCN）价格目前在44.310 HDO](/content/gnews/15/README.md)
+### [币圈新闻动态：喜币（HCN）价格目前在44.310 HDO](/content/gnews/18/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [这样“护犊子” 国际奥委会表演大跌眼镜](/content/gnews/16/README.md)
+### [这样“护犊子” 国际奥委会表演大跌眼镜](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆：富力地产骚操作 预告式爆雷](/content/gnews/17/README.md)
+### [中日财经爆：富力地产骚操作 预告式爆雷](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [蓬佩奥再次为中国人发声 呼吁完全抵制中共冬奥](/content/gnews/18/README.md)
+### [蓬佩奥再次为中国人发声 呼吁完全抵制中共冬奥](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆：世界银行有史以来的最大增幅](/content/gnews/19/README.md)
+### [中日财经爆：世界银行有史以来的最大增幅](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/20/README.md)
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/23/README.md)
  ` wenwu`
 
-### [沃顿学院几乎都是上海帮 单伟建比马明哲高好几个级别](/content/gnews/21/README.md)
+### [沃顿学院几乎都是上海帮 单伟建比马明哲高好几个级别](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共外交受辱，向星巴克泄愤](/content/gnews/22/README.md)
+### [中共外交受辱，向星巴克泄愤](/content/gnews/25/README.md)
  ` 澳喜农场`
 
-### [文贵先生家人的遭遇：中共比魔还魔](/content/gnews/23/README.md)
+### [文贵先生家人的遭遇：中共比魔还魔](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [大年三十送葬共产党！大干三年](/content/gnews/24/README.md)
+### [大年三十送葬共产党！大干三年](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国新法案规定因未接种疫苗而被开除的军人仍会获得荣誉退伍](/content/gnews/25/README.md)
+### [美国新法案规定因未接种疫苗而被开除的军人仍会获得荣誉退伍](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [告诉世界：中共应该被正义法律所葬送](/content/gnews/26/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [为报复美国，中共准备定向爆破房地产，释放金融核弹](/content/gnews/27/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [单伟建一家是典型的中共对外情报机构的特务](/content/gnews/28/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [欧洲疾管中心警示疫苗无法控制疫情](/content/gnews/29/README.md)
  ` 纽约香草山MOS03`
