@@ -2,60 +2,28 @@
 ---
 
 
-## 制造于佛罗伦萨：重生的时刻
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1762484/)
+## GTV新闻访谈简报|2021年12月16日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1762528/)
 
-作者：纽约香草山农场教育部 – Mr. Potato
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-3.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-16.png)
+文章仅代表作者本人观点，与Gnews无关
 
+视频参看：[2021.12.16早GTV新闻访谈](https://gtv.org/video/id=61bb3ef17882000d5102096e)
 
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-
-
-有这样一个传言，亚历山德罗·德·美第奇公爵是第一位治理佛罗伦萨的美第奇，在被谋杀的那天晚上，他在出去之前，犹豫着晚上要戴哪一副手套——是一副为搏斗而准备的，还是那副带有香味、美人喜欢的呢？他最终选择了第二副手套，当然之后发生的事情就不需要再做解释了。尽管确实不知道这个故事是否有事实的根据，但它的确提供了一个可以了解佛罗伦萨文艺复兴时期男士艳丽时尚的小窗口。
-
-郭先生和 G-Fashion近期在盖特上发布了一段新视频，视频的前半部分展示了一些棒球帽正在一间工作坊里进行制作和加工。视频中这款秋冬季的帽子带有扁平的帽舌和非常结构化的帽冠，作为信仰象征的七角星—喜马拉雅星—镶嵌在帽子的正面中央。就算是不认为自己适合戴帽子的人，这款棒球帽也能立即为您的日常舒适装扮增添几分韵味，或为夸张的服饰增添几分平易近人感，而暖羊毛的质地则更是为寒冷的冬季平添暖意。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-204.jpg)图源网络
-
-在视频的后半部分，相机捕捉到了意大利佛罗伦萨标志性的建筑——坐落于圣母百花大教堂上方的布鲁涅列斯圆顶和矗立于教堂南面的乔托钟楼。你们问题来了，难道帽子是从佛罗伦萨来的吗？
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-59.jpg)图源网络
-
-佛罗伦萨是世界上仅有的几个无须特殊介绍的城市，她象征着艺术文艺的复兴，与其有关的名作有桑德罗·波提切利的《春》和米开朗基罗的《大卫》等等。佛罗伦萨继续了古希腊人文主义概念并强调了知识的重要性， 而这一切文化艺术上的成就来源于当地的纺织业。纺织公会和商人从经济上资助了艺术的创造，成为了艺术的保护人。曾一度被称为“意大利罗盘的指针”的美第奇家族，来自弗洛伦萨北部的穆杰罗地区，在 14 世纪后期因纺织品贸易而声名鹊起。长期以来，佛罗伦萨和比萨市一直是服装的生产中心，其精湛的工艺和设计风格延续了过去的传统，许多生产商至今仍然在这个地区从事服装服饰的生产。
-
-那么在佛罗伦萨制作的帽子又有什么重要的意义呢？这体现了优雅剪裁和优质材料结合的理念，展现了佛罗伦萨这个城市本身具有的艺术和文化传统的魅力。我一想到 G-Fashion 和佛罗伦萨之间的这种联系，就会有一些兴奋地起鸡皮疙瘩的感觉——为G-Fashion，为我们这个可与文艺复兴时代相比拟的时代，为G-系列的所有创意作品就是我们文明的摇篮、新中国联邦的文化起源地，还为这样一个重生的时刻。
-
-当然了，我对视频的印象也可能是有误的。
-
-可是我不觉得。
-
-G-Fashion的秋冬新款帽子就是来自于亮丽的佛罗伦萨。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月.png)
-
-编辑/校对/发稿：小鹿
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/12/calendar.jpeg)
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

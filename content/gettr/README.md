@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/16/2021 10:59 PM (UTC)`
+
+12/16/2021 Miles Guo’s GETTR: Did Xi Jinping’s cough catch the attention of half of the world? In Communist China, the CCP is propagating a nuclear war against the US. Will the world be a bystander when the CCP invades Taiwan? The Omicron variant has strong transmission and a long incubation period. Everyone must be careful!<br/><br/>12/16/2021 文贵盖特：“习太阳”咳嗽了，半个世界被惊到了？中共对内大肆宣传要和美国打核战，世界会对中共打台湾袖手旁观吗？奥米炕病毒传播力强、潜伏期长，大家务必小心<br/>
+![img](https://media.gettr.com/group24/getter/2021/12/16/22/770efd91-a66d-b809-e2fe-ad8048c318a2/out.jpg)
+
+---
+
 `@miles 12/16/2021 10:18 PM (UTC)`
 
 12/16/2021 Miles Guo’s GETTR: “VP” Peng Liyuan joined the show yesterday, and why did I say that right again? It’s also said that Wang Jianlin (Wanda) had taken over Yuda Palace Hotel. Hope he can manage it well, and God bless him. Don’t turn Yuda, the Buddha’s Hands-shaped building, into “Buddha's Hands on Fire”<br/><br/>12/16/2021 文贵盖特：听说昨天彭“副主席”正式出场了，七哥咋又蒙对了呢？据说万达王健林把裕达国贸酒店拿走了？希望他好好管理，可千万别让裕达变成“火佛手”啊<br/>
@@ -150,12 +157,6 @@ Jason #Miller (@JasonMillerinDC) conseiller et porte-parole de Donald #Trump, au
 `@miles 12/14/2021 4:25 PM (UTC)`
 
 Dec 14, 2021 Breaking news: Mr. Miles Guo's latest single “HCoin to The Moon”has topped the Billboard World Digital Songs Sales Chart for two consecutive weeks, creating not only the best personal result for all of Mr. Guo's singles, but also the best result for non-professional singers in the world's most authoritative music charts, and yet another historical miracle for Chinese people in the world music scene that has never been seen before! Thanks again to all the fellow fighters of the New Federal State of China around the world, we proved to the world with our own actions the power and determination of our unity to take down the CCP!🎉🎉🎉🎉🎉🎉🎉🙏🙏🙏🙏🙏🙏🙏<br/><br/><br/>https://gnews.org/1754721/
-
----
-
-`@miles 12/14/2021 4:22 PM (UTC)`
-
-12月14号爆炸新闻：郭文贵先生最新单曲HCoin to The Moon已连续两周蝉联公告牌世界数字歌曲销量排行榜的榜首🥇, 这不仅创造了郭先生所有单曲的个人最好成绩，也创造了非专业歌手在世界最权威音乐排行榜的最好成绩，更是又一次创造了中国人在世界乐坛前所未有的历史奇迹！再次感谢新中国联邦的全球战友们，我们用自己的行动向全世界证明我们团结灭共的力量和决心！🎉🎉🎉🎉🎉🎉🎉🙏🙏🙏🙏🙏🙏🙏<br/><br/>Hcoin To the Moon连续2周登上Billboard全球数字歌曲销量榜首！<br/>https://gnews.org/zh-hans/1754720/
 
 ---
 
