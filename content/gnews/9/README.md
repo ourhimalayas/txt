@@ -2,32 +2,43 @@
 ---
 
 
-## 103名美海军陆战队员因拒绝疫苗强制令被解职
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1762887/)
+## 证据：中共病毒COVID疫苗导致朊病毒疾病
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1762951/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+本文作者：Rebecca (一切心皆不可得！)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image001-10.png)
+据《自然新闻网》报道，mRNA疫苗正在导致朊病毒疾病。人们在注射前没有这些疾病，而在注射后却突然患上了这些疾病。对此没有其他解释。
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/12/M-3.jpg)hopes.klikoxy.com
-《汉尼提》（Hannity）快讯，“103名海军陆战队队员因拒绝遵守五角大楼的疫苗强制令而被解职”。
+朊病毒疾病是不可治愈的，而且总是致命的。接种COVID疫苗后，最快6周就会死亡（见6周内和6个月内的例子）。
 
-全文如下：
+以下内容来自Steve Kirsch 转载自 [SteveKirsch.Substack.com](https://stevekirsch.substack.com/p/proof-covid-vaccines-cause-prion)
 
-最近几天，随着超过100名海军陆战队队员因为没有遵守五角大楼严格的中共病毒疫苗强制令而遭到解职，拉开了部队解雇军人的序幕，这一举动可能很快会扩展到超过30,000名未接种疫苗的军人。
+我写了一条推特，说疫苗会导致朊病毒病。推特给那条推文标签为“具误导性”。
 
-“海军陆战队周四（12月16日）表示，103名海军陆战队士兵因拒绝接种中共病毒疫苗而被解职，因为军队已经开始解聘可能多达30,000名仍拒绝接种疫苗的现役军人，即使有多次机会在疫苗接种截止日期后仍拒绝接种疫苗。” 美国广播公司新闻报道。
+这根本不是事实。我的陈述在科学文献和VAERS数据中也得到了验证。
 
-该网站补充道：“军方很快设定了自己的截止日期，并警告军人，除非接种疫苗，否则他们可能面临出局，这符合五角大楼的立场，即选择不接种疫苗就是违反了奥斯汀（Austin）的合法命令。”
+见[https://stevekirsch.substack.com/p/proof-covid-vaccines-cause-prion](https://stevekirsch.substack.com/p/proof-covid-vaccines-cause-prion)并阅读所有的评论，这表明我不是唯一对数据有这种评估的人。
 
-美国空军上周也采取了类似行动，证实27名飞行员因拒绝遵守卫生规定而被解职。
+早在2021年5月，当Byram Bridle教授披露关于辉瑞公司疫苗生物分布数据的FOIA请求时，提到穗状蛋白与路易体形成有关，而路易体与朊病毒疾病有关。他表示担心，疫苗可能导致朊病毒疾病，如痴呆症、阿尔茨海默氏症和克雅氏病（CJD）。
 
-（原文完）
+几小时后，Twitter暂停了我的账户。没有上诉的机会。过去12年里的所有内容都被删除。我的7.5万名追随者全部被清零。我的信息被删除。没有机会下载我的内容。
 
-这是在自毁长城啊！是阴谋集团通过极左的民主党实施破坏美国的疯狂举动，27名飞行员、103名海军陆战队员已经被解雇，接下来的30,000军人要被解雇，加上已经接种的95%的美国军人，这都是美国的灾难。国防部长奥斯汀自上台以来，主导了阿富汗狼狈逃窜的乱局，在军队内部煽动种族仇恨，如今又恶狠狠地进行疫苗强制，充当罪恶势力的推手，不得人心，迟早会遭到正义力量的清算！
+唯一留下的是：我的Twitter ID是@stkirsch。
 
-原文链接：
+如需了解更多内容，请阅读文章，链接如下：
 
-[https://hannity.com/media-room/breaking-103-marines-discharged-for-refusing-to-comply-with-pentagons-vaccine-mandate/](https://hannity.com/media-room/breaking-103-marines-discharged-for-refusing-to-comply-with-pentagons-vaccine-mandate/)
+- [杰西卡-罗斯关于COVID疫苗和朊病毒疾病的文章](http://Jessica%20Rose’s%20article%20on%20COVID%20vaccines%20and%20prion%20diseases)
+- [Stephanie Seneff关于朊病毒疾病和COVID疫苗的论文](http://Stephanie%20Seneff’s%20paper%20on%20prion%20disease%20and%20the%20COVID%20vaccines)
+- [Bart Classen的论文将疫苗和朊病毒疾病联系在一起](http://Bart%20Classen’s%20paper%20linking%20the%20vaccines%20and%20prion%20diseases)
+- [SARS-CoV-2导致猕猴的脑部炎症并诱发路易体的形成](http://SARS-CoV-2%20causes%20brain%20inflammation%20and%20induces%20Lewy%20body%20formation%20in%20macaques)
+- **[SARS-CoV-2 穗状蛋白中的朊病毒样域使其与ACE2的亲和力更高](http://SARS-CoV-2%20Prion-Like%20Domains%20in%20Spike%20Proteins%20Enable%20Higher%20Affinity%20to%20ACE2)**
+
+
+[新闻来源链接](https://www.naturalnews.com/2021-12-10-proof-covid-vaccines-cause-prion-diseases.html)
+
+审核校对：sherryok (水云间)
+
+上传排版：漂流瓶
 
  
 

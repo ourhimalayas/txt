@@ -15,130 +15,130 @@
 
 ---
 
-### [全球488名记者遭关押创历史之最 中共国监禁人数最多](/content/gnews/1/README.md)
+### [12/16/2021 文贵盖特：“习太阳”咳嗽了，半个世界被惊到了？](/content/gnews/1/README.md)
+ ` 秘密翻译组-北美组`
+
+### [四疫苗科学家 被时代杂志评选为2021年年度英雄](/content/gnews/2/README.md)
+ ` 焦點20分`
+
+### [七哥说地产都会成为垃圾，你拿啥赔？（2021-12-15摘录）](/content/gnews/3/README.md)
+ ` MG FARM`
+
+### [七哥谈买房（2021-12-15摘录）](/content/gnews/4/README.md)
+ ` MG FARM`
+
+### [拜登签署行政令制裁跨国贩毒 中共国多家公司被制裁](/content/gnews/5/README.md)
  ` 日本东京方舟农场`
 
-### [英国通胀率创10年新高](/content/gnews/2/README.md)
+### [全球488名记者遭关押创历史之最 中共国监禁人数最多](/content/gnews/6/README.md)
+ ` 日本东京方舟农场`
+
+### [英国通胀率创10年新高](/content/gnews/7/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [三年持久抗议灭共即将开始！要做好#三防两准备。](/content/gnews/3/README.md)
+### [三年持久抗议灭共即将开始！要做好#三防两准备。](/content/gnews/8/README.md)
  ` 焦點20分`
 
-### [证据：中共病毒COVID疫苗导致朊病毒疾病](/content/gnews/4/README.md)
+### [证据：中共病毒COVID疫苗导致朊病毒疾病](/content/gnews/9/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [加拿大生活美谈 2021-12-09第三十三期](/content/gnews/5/README.md)
+### [加拿大生活美谈 2021-12-09第三十三期](/content/gnews/10/README.md)
  ` canadalifetalk`
 
-### [中共很早就在策划使用生化武器灭白 。辉瑞是共产党控制的公司。](/content/gnews/6/README.md)
+### [中共很早就在策划使用生化武器灭白 。辉瑞是共产党控制的公司。](/content/gnews/11/README.md)
  ` 焦點20分`
 
-### [12/16/2021 文贵直播：听说昨天彭“副主席”正式出场了，七哥咋又蒙对了呢？](/content/gnews/7/README.md)
+### [12/16/2021 文贵直播：听说昨天彭“副主席”正式出场了，七哥咋又蒙对了呢？](/content/gnews/12/README.md)
  ` 秘密翻译组-北美组`
 
-### [班农先生荣获《国家脉动》第二届年度爱国者奖](/content/gnews/8/README.md)
+### [班农先生荣获《国家脉动》第二届年度爱国者奖](/content/gnews/13/README.md)
  ` 墨尔本雅典娜农场`
 
-### [103名美海军陆战队员因拒绝疫苗强制令被解职](/content/gnews/9/README.md)
+### [103名美海军陆战队员因拒绝疫苗强制令被解职](/content/gnews/14/README.md)
  ` HimalayaRussia`
 
-### [5位共和党州长为国民警卫队寻求疫苗接种豁免权](/content/gnews/10/README.md)
+### [5位共和党州长为国民警卫队寻求疫苗接种豁免权](/content/gnews/15/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [白宫对维吾尔族强迫劳动法案持保留态度](/content/gnews/11/README.md)
+### [白宫对维吾尔族强迫劳动法案持保留态度](/content/gnews/16/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [美国将立法支持西藏独立，对中共是巨大的噩耗！](/content/gnews/12/README.md)
+### [美国将立法支持西藏独立，对中共是巨大的噩耗！](/content/gnews/17/README.md)
  ` 焦點20分`
 
-### [美国一些大型医院放弃了疫苗强制](/content/gnews/13/README.md)
+### [美国一些大型医院放弃了疫苗强制](/content/gnews/18/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [香港商业地产流入6千多亿资金。中共官员到香港投资避险](/content/gnews/14/README.md)
+### [香港商业地产流入6千多亿资金。中共官员到香港投资避险](/content/gnews/19/README.md)
  ` 焦點20分`
 
-### [美国客运铁路Amtrak暂停为员工接种疫苗](/content/gnews/15/README.md)
+### [美国客运铁路Amtrak暂停为员工接种疫苗](/content/gnews/20/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共国房地产崩溃已捂不住，将毁掉2-3代中国人！](/content/gnews/16/README.md)
+### [中共国房地产崩溃已捂不住，将毁掉2-3代中国人！](/content/gnews/21/README.md)
  ` 焦點20分`
 
-### [疾病预防控制中心警告即将到来的欧米克戎大面积传播](/content/gnews/17/README.md)
+### [疾病预防控制中心警告即将到来的欧米克戎大面积传播](/content/gnews/22/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [反疫苗的英雄Miles郭和爆料革命排第一](/content/gnews/18/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [2021年12月15日郭文贵先生直播全文字版](/content/gnews/19/README.md)
+### [2021年12月15日郭文贵先生直播全文字版](/content/gnews/23/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [美国制裁与芬太尼相关的中共制药商](/content/gnews/20/README.md)
+### [美国制裁与芬太尼相关的中共制药商](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [越南发生第5起“学生在注射辉瑞疫苗后死亡”事件](/content/gnews/21/README.md)
+### [越南发生第5起“学生在注射辉瑞疫苗后死亡”事件](/content/gnews/25/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美军侦察飞机监视解放军攻台演习](/content/gnews/22/README.md)
+### [美军侦察飞机监视解放军攻台演习](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
 
-### [文贵直播12.15.2021：国内浙江疫情是病毒失控所致，中共以加强维稳来应对](/content/gnews/23/README.md)
+### [文贵直播12.15.2021：国内浙江疫情是病毒失控所致，中共以加强维稳来应对](/content/gnews/27/README.md)
  ` 秘密翻译组-原创组`
 
-### [GTV新闻访谈简报|2021年12月16日早](/content/gnews/24/README.md)
+### [GTV新闻访谈简报|2021年12月16日早](/content/gnews/28/README.md)
  ` 纽约香草山MOS01`
 
-### [制造于佛罗伦萨：重生的时刻](/content/gnews/25/README.md)
- ` 纽约香草山MOS03`
+### [瑞典和德國的研究表明: 沒有必要強制要求兒童接種疫苗](/content/gnews/29/README.md)
+ ` 纽约香草山MOS01`
 
-### [中共計劃向美國有影響力人士支付費用以推廣冬奧會](/content/gnews/26/README.md)
+### [中共计划向美国有影响力人士支付费用以推广冬奥会](/content/gnews/30/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共计划向美国有影响力人士支付费用以推广冬奥会](/content/gnews/27/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [文贵直播12.15.2021 未来3年灭共大游行的“三防”与“两准备”](/content/gnews/28/README.md)
+### [文贵直播12.15.2021 未来3年灭共大游行的“三防”与“两准备”](/content/gnews/31/README.md)
  ` 秘密翻译组-原创组`
 
-### [玛莎·布莱克本参议员：对于北京冬奥会的抵制应当是全面而彻底的](/content/gnews/29/README.md)
+### [玛莎·布莱克本参议员：对于北京冬奥会的抵制应当是全面而彻底的](/content/gnews/32/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [滴水穿石：西藏恢复独立之日， 中共红魔倒毙之时](/content/gnews/30/README.md)
- ` 滴水穿石`
-
-### [银河快讯:日本开始第三剂疫苗职场接种申请；电子疫苗接种证书将用于出入境手续](/content/gnews/31/README.md)
+### [银河快讯:日本开始第三剂疫苗职场接种申请；电子疫苗接种证书将用于出入境手续](/content/gnews/33/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [银河快讯：日本生存危机与台湾紧急状态相关；日本呼吁“外交抵制”北京冬奥会](/content/gnews/32/README.md)
+### [银河快讯：日本生存危机与台湾紧急状态相关；日本呼吁“外交抵制”北京冬奥会](/content/gnews/34/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [拜登政府对中共虐待维族人实施新制裁](/content/gnews/33/README.md)
+### [拜登政府对中共虐待维族人实施新制裁](/content/gnews/35/README.md)
  ` HimalayaRussia`
 
-### [中共正在利用美国的资金和技术称霸全球](/content/gnews/34/README.md)
+### [中共正在利用美国的资金和技术称霸全球](/content/gnews/36/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [伊维菌素、青蒿素撰写人类新篇章，平疫排苗延寿长](/content/gnews/35/README.md)
+### [伊维菌素、青蒿素撰写人类新篇章，平疫排苗延寿长](/content/gnews/37/README.md)
  ` YALUN 亚伦`
 
-### [12/16每日播报｜历史：西藏本是一个独立主权国家](/content/gnews/36/README.md)
+### [12/16每日播报｜历史：西藏本是一个独立主权国家](/content/gnews/38/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [著名的百老汇演出因奥密克戎病毒而取消](/content/gnews/37/README.md)
+### [著名的百老汇演出因奥密克戎病毒而取消](/content/gnews/39/README.md)
  ` 首尔天池农场`
 
-### [美国加强印太战略 联合盟友对抗中共](/content/gnews/38/README.md)
+### [美国加强印太战略 联合盟友对抗中共](/content/gnews/40/README.md)
  ` GTV新闻访谈`
 
-### [美国在人权问题上多点密集打击中共](/content/gnews/39/README.md)
- ` GTV新闻访谈`
-
-### [12/16每日播报｜与普京视频会晤 习近平镜头前连咳三声](/content/gnews/40/README.md)
+### [12/16每日播报｜与普京视频会晤 习近平镜头前连咳三声](/content/gnews/41/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [12/15/2021 文贵直播：西方将为藏独提供武器、钱和粮食，救助藏独人士的后代](/content/gnews/41/README.md)
- ` 秘密翻译组-北美组`
-
-### [12/15/2021 文贵直播：早在2017年，七哥就表示美国将出台一系列针对新疆、西藏的法案](/content/gnews/42/README.md)
+### [12/15/2021 文贵直播：西方将为藏独提供武器、钱和粮食，救助藏独人士的后代](/content/gnews/42/README.md)
  ` 秘密翻译组-北美组`
 
 ### [12/16每日播报｜美众议院通过《防止强迫维吾尔人劳动法》](/content/gnews/43/README.md)
