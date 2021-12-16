@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/16/2021 2:46 AM (UTC)`
+
+12/15/2021 Miles Guo: Three protective measures to take when participating in the protests to end the CCP: 1) prevent you from being infected by the virus; 2) prevent the CCP from messing things up and setting you up; and 3) prevent you from compromising to the CCP due to the threats posed by the CCP to your family in Communist China. Be prepared that 1) you won’t be able to go back to China before the downfall of the CCP, and 2) the CCP will not stop harassing you and your family<br/><br/>12/15/2021 文贵直播：参加终共街头抗议行动要注意“三防”（一防病毒、二防中共捣乱下套、三防因国内家人被威胁而心动）及“两个准备”（一、在灭共前不能回国了，二、中共会无休止地骚扰你和家人）<br/>
+![img](https://media.gettr.com/group11/getter/2021/12/16/02/b69b92a0-5d6d-6e8e-3af0-fc40123b6c89/out.jpg)
+
+---
+
+`@miles 12/16/2021 2:43 AM (UTC)`
+
+12/15/2021 Miles Guo: The Tibet Independence Act pushed by the U.S. is of profound significance - the CCP only has two options: 1) declare a war against the US, or 2) let Communist China enter an era of darkness; the only thing that the CCP can do is to struggle, and it will surely be finished!<br/><br/>12/15/2021 文贵直播：美国推动的《西藏独立法案》意义深远 - 共产党只有两个选择：1）和美国开战、2）中共国进入黑暗期；中共只剩下挣扎了，但结果一定是完蛋！<br/>
+![img](https://media.gettr.com/group17/getter/2021/12/16/02/812c7d0f-793a-30a8-c9ad-d9685738f235/out.jpg)
+
+---
+
 `@miles 12/16/2021 2:13 AM (UTC)`
 
 12/15/2021 Miles Guo: Ivermectin is a wonder drug discovered by a Japanese in nature, which has been molecularized and medicalized to treat Onchocerciasis in Africa for free; on the contrary, although Ms. Tu Youyou’s Artemisinin is a billion times more effective than Ivermectin, the CCP refused to share it with the world!<br/><br/>12/15/2021 文贵直播：伊维菌素是日本人发现于自然界的神药，经分子化、医药化后，免费提供非洲治疗河盲症；屠呦呦女士的青蒿素比伊维菌素神奇亿万倍，却被中共老杂毛雪藏、不与世人分享<br/>
@@ -51,24 +65,6 @@ Made in Italy 🇮🇹<br/>@gfashion<br/>@DDNYC
 `@gfashion 12/15/2021 8:29 PM (UTC)`
 
 Coming soon…
-![img](https://media.gettr.com/group13/getter/2021/12/15/20/3860e86a-7850-7f6e-43c4-f32cce44b81a/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@miles 12/15/2021 8:35 PM (UTC)`
-
-🔥🔥🔥🔥♥️♥️♥️新产品系列很快就要上线了@DDNYC
-> `@gfashion 12/15/2021 8:29 PM (UTC)`<br/>Coming soon…
-![img](https://media.gettr.com/group13/getter/2021/12/15/20/3860e86a-7850-7f6e-43c4-f32cce44b81a/out.jpg)
-
----
-
-`@miles 12/15/2021 8:35 PM (UTC)`
-
-🔥🔥🔥🔥♥️♥️♥️新产品系列很快就要上线了@DDNYC
-> `@gfashion 12/15/2021 8:29 PM (UTC)`<br/>Coming soon…
 ![img](https://media.gettr.com/group13/getter/2021/12/15/20/3860e86a-7850-7f6e-43c4-f32cce44b81a/out.jpg)
 
 ---
