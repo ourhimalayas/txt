@@ -2,47 +2,27 @@
 ---
 
 
-## 躺平币为灭共而生，上线第一天一定可兑现可支付可流通
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1759663/)
+## 8.8万港人申请定居英国
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1759716/)
 
-原视频连接：[MILES GUO 直播 2021-12-09健身乱聊直播。](https://gettr.com/streaming/pj858hb609)
+撰稿：子喜太一
+![](https://assets.gnews.org/wp-content/uploads/2021/12/162.png)图片来自网络
+12月14日，英国政府表示截至9月底已有8.8万香港人根据新的签证计划申请在英国定居，该计划给予他们获得公民身份的途径。与此同时，伦敦发布了一份报告，谴责CCP打压香港异议人士。
 
+英国政府今年1月针对香港人开通BNO签证通道，以应对CCP去年实施的国安法，英国称该法违反了北京关于维护香港和自治的承诺。在1997年香港回归前出生的香港人和他们的家属都可以获得BNO护照。
 
+英国此前预测，第一年将有大约15.4万名香港人抵达英国，五年内则有多大32.2万香港人移居英国。
 
-**郭文贵先生：**另外一个大家记住，国内我们未来的躺币就是只要是国内的灭共的，当然了这很容易，就像过去支付宝还有秒视频这些社交媒体、微博，只有你要推多少人文——灭共的文章，有多少动作在电脑上、手机上都有记忆。
+国安法强行出台前后，香港几百万人上街游行示威，警察暴力执法，流氓执法，香港年轻异议人士死伤无数，被鸡奸被强奸无数。无论CCP如何控制媒体，掩盖真相，事实就是事实，新中国联邦还是把真相传递给了全世界！经历如此磨难的香港人，早已看清CCP的魔鬼本质，冷血、残暴、杀人不眨眼，哪有什么一国两制，依法治国，全都是鬼话。
 
-只要你躺平，就有躺平币，而且躺平币未来都有规划会出乎你的想象，马上就可以兑现，马上就可以买面包、买油，为什么？大家问这钱哪来的呢？大家走着看。如果是七哥说到做不到，那就是骗你们了，七哥还没有说到做不到的，这就是我们要做到的。
+英国政府开通BNO签证通道是对香港人的救援，短短九个月的时间就有近九万香港人申请定居英国，足以看出香港人对CCP的失望，或者说是恐惧，他们无法通过和平抗议来赶走CCP，那就只好自己想办法逃离。
 
-躺平币跟咱们躺平币本身没关系，有国际上好多机构、金融机构跟我们合作，给躺平币给它一个贴现的还有支付的一个保证，这就是我们的系统牛，完全去中心化的币，完全独立的。但有第三方、第四方买这个币，那你就没办法，是吧？
+香港终于被CCP搞成臭港，早晚会变成空港，CCP终将要为自己的愚蠢、无知和自以为是付出代价，CCP必亡，全世界都在等着看它倒下！
 
-所以躺平币上线第一天一定会可兑现、可支付、可流通，所以说国内的战友们还有国外抗议的战友们，这非常的重要。
+新闻参考链接：[联合新闻网](https://udn.com/news/story/7331/5962749?from=udn-catebreaknews_ch2)
 
-编辑整理：喜马拉雅的肉夹馍；
-
-视频制作：Cindy；
-
-视频上传：Cindy；
-
-G-News发布：黎明之前；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
