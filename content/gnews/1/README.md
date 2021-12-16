@@ -2,31 +2,57 @@
 ---
 
 
-## 七哥谈GFashion (2021-12-15摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1762367/)
+## 不列颠哥伦比亚省小商业主因地产税突然增加而受困
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1762476/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+作者：Joanne Lee-Young
+翻译：大鹰
 
-来源：郭先生2021-12-15直播08：53：12 摘录
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-201.jpg)
 
-Miles你穿的衣服时尚啊。每个人都羡慕我穿的衣服，然后我说这是GFashion，GFashion不是给来卖的，GFashion是提升你的人生境界，是穿在你身上来改变你的。就像孩子啊牙齿带牙套一样，是修正你的长得不好的牙齿的，这是修正你歪掉的一个人生观世界观的。所以我们的时尚是今天唯一在世界上找到方向的。网络是唯一走在最前面的，我们的行为都是给拯救人类的。
+Murray Fraser在拉斯维加斯的一次滑雪展中买了他的第一支滑雪板，并且于1986年在Cypress Bowl滑雪场学习滑雪板滑雪。第二年，他在温哥华开了最早的一家滑雪专用品商店，后来迁到了第五街的一个拥有5000平方英尺面积的一个店铺。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+Murray Fraser的店铺The Boardroom销售各种滑雪、滑冰及冲浪设备，在过去的几十年中业务持续增长。虽然从前也需要应对地产税提高的问题，但从来没有出现像现在这样大的提高幅度。
+
+在维多利亚、温哥华和其他地方的一系列商业在毫无预先协商的前提下都出乎意料的失去了申报地产空间税减免的资格，即在一套住宅上方增加垂直空间的权利。
+
+这意味着Fraser的2022年的地产税将由2021年的45,745加元增加到61,634加元，增加了15,889加元，增幅为35%。Fraser说，“增加的15,000加元的税额虽不至于使我的商业破产，但是会使经营变得越发困难。”最低工资限额的提升和医疗服务计划的支出已经严重挤压了小商业主的收益。
+
+Fraser说，“人们可能会想，‘我们可以把增加的支出分摊中12个月中，但是如果你只有5%的盈利空间，你需要多卖出300,000加元的货物”以支付这增加的15,000加元地产税。你需要卖出大量的货物来支付头顶上增加的一点点空间。”
+
+不列颠哥伦比亚省政府为遭受冲击的地产提供仅一年的学校税临时豁免。但是，全球税务公司Ryan LLC的地产税主管Ryan Tung认为，对这些商业而言，学校税的豁免只是以失去未来的公正为代价而获得的一点安慰。
+
+大约自2017年起，温哥华一些希望降低地产税的商业地产拥有者(这部分地产税通常由租户承担)已经通过法院获得了所谓的‘拆分评估’。这是指对一个地产上方可能修建的公寓以相对低廉的住宅税率进行征税，而非对整个地产项目，包括上方尚未建造部分，以较高的商业税率征税。
+
+Tung说， “所有这些商业都是‘三净租赁’的形式，即除租金和维护费用外，地产税也由商业主承担。因此，能将住宅部分能占到全部的40%，并且这部分的费用下降三倍，是个很好的缓解措施，这将显著降低总体的费用。”
+
+Tung说，最近的变化来自于一年半前地产评估上诉委员会成立之前发生的两个案例。这两个案例都产生了与最高法院2016年里程碑式的决定相悖的判决，也为能够为商业主降低地产税的‘拆分评估’的通过铺平了道路。Tung说，“这是一个重要的改变。”
+
+“目前的主要问题在于，鉴于过去几十年在这方面发生的人力和诉讼的问题，这是一个显著变化，如果不列颠哥伦比亚省评估局能提早提供一定的咨询，情况会好一些。”不列颠哥伦比亚省评估局在11月26日针对此新规定发送了一封电子邮件。
+
+Tung是商业税务联盟的一名成员，此联盟是一个新的代表维多利亚、温哥华和萨里地区超过10,000名商业纳税者的法庭辩护组织。
+
+Tung说，“另一方面，如果以前有更多的咨询机会，我们本来可以提前对土地拥有者预警这些变化发生的可能性，人们就可以提早做计划，为税务安排预算。但是现在，你不得不在突如其来的变化中经营你的商业。”
+
+来源：https://vancouversun.com/business/small-business-owners-balk-at-unexpected-property-tax-change/wcm/ab71cafe-daa7-4501-a193-ac8a1552d916/amp/
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+
 欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
 **关注我们**
 
 Discord 账号
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
 Gettr 账号
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/16/2021 7:34 PM (UTC)`
+
+12月16号：<br/>我的天呢，共产党完球的了！
+![img](https://media.gettr.com/group35/getter/2021/12/16/19/864de7cf-fb66-d264-990b-464f1cfa3649/d28fcc7407b92a847ef8660d913430a3.jpg)
+
+---
+
 `@miles 12/16/2021 4:08 PM (UTC)`
 
 12月16号：非常非常的抱歉，亲爱的战友们……刚才视频没有发出去，我再发一遍！
@@ -149,13 +156,6 @@ Dec 14, 2021 Breaking news: Mr. Miles Guo's latest single “HCoin to The Moon�
 `@miles 12/14/2021 1:27 PM (UTC)`
 
 14/12/2021  On 5th Day of Launch, MV "Hcoin To the Moon" Hits <br/> No. 1 🥇on 18 Countries Top MV Charts !<br/>No.1🥇 on 16 Countries Rock MV Charts!<br/>No.1🥇 on 11 Countries Rock song Charts!<br/>No.1🥇on 7 countries Hip-pop/Rap song Charts!<br/>Miracle continues…….🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, USA, Taiwan, Japan, France, Australia, Canada, Singapore, New Zealand, Thailand, Cambodia, Laos, Netherlands, Hungary， Philippines, Malaysia, Fiji, Latvia!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1753909/<br/><br/>12月14号，MV版Hcoin To the Moon上线第5天位列iTunes<br/>18国热门MV榜首🥇！<br/>16国摇滚MV榜首🥇！<br/>11国摇滚歌曲榜首🥇！<br/>7国嘻哈歌曲榜首🥇！<br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港，美国，台湾，日本，法国, 澳大利亚，加拿大，新加坡，新西兰, 泰国，柬埔寨，老挝，荷兰，匈牙利，菲律宾， 马来西亚，斐济，拉脱维亚的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏
-
----
-
-`@miles 12/14/2021 1:11 PM (UTC)`
-
-12月14号：在这个世界上能知道为什么活着？该如何的活着？如何与人类和地球空气，天空如何和谐的活着？没有多少人，每天每时每刻都能看到听到收到这些因为不变真假。不识善恶而导致的惨痛的后果的案例，悲哀呀，悲哀呀。【墙内为了活命都是相互伤害可悲可怜🥺】
-![img](https://media.gettr.com/group12/getter/2021/12/14/13/e7a4e349-8c57-5c84-871b-2f696f193fbf/2d90f57bb7ce7524a78665ec91c5fd50.jpg)
 
 ---
 
