@@ -2,55 +2,67 @@
 ---
 
 
-## 灭共者：地球是我们的一个支点
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1758596/)
+## 福奇涉嫌病毒功能增强研究的证据曝光
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1758792/)
 
-**出品：纽约香草山设计部**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Fauci.jpeg)图片来源：FNA
+翻译/编辑：守望黎明
 
+《司法观察》又一次做到了，它获得了另一份新的证据，显示官方”医霸“托尼-福奇利用美国纳税人的钱来资助对蝙蝠冠状病毒和其他病原体进行改造。
 
+福奇的许多试验都在中国的武汉病毒研究所（WIV）进行——这就是为什么我们把新冠称之为武汉病毒。这些研究由美国国立卫生研究院（NIH）直接资助，该机构是由福奇监督的国家过敏和传染病研究所（NIAID）的上级机构。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+这批最新的证据完全验证了参议员兰德・保罗（Rand Paul）的说法，他在参议院的一系列听证会上谴责了福奇之后，遭到了民主党人和一些所谓记者的嘲笑。
 
+美国国立卫生研究院的一位发言人谎称福奇在与保罗的对话是 “绝对诚实的”，但我们现在知道，福奇向武汉和不为人知的其他地方大笔输送资金，以制造致命的生物武器，包括目前政府正在推动的 “疫苗 “和 “加强针”。
 
+事实证明，在他被保罗在国会质询之前的整整15个月，福奇就已经直接接触到了那个臭名昭著的”生态健康联盟”的资料，该联盟是武汉病毒所的合作伙伴。
 
+《司法观察》今天宣布，它收到了来自卫生与公众服务部（HHS）的221页记录，其中包括2018年提交的涉及冠状病毒研究的拨款申请。”拨款申请描述了’功能增强’研究，涉及从蝙蝠身上提取核糖核酸，对病毒进行实验，试图开发出一种嵌合病毒，并对全长蝙蝠SARSr-CoV 武汉1号毒株做基因操作以进行分子克隆。”
 
+《司法观察》获得的其他文件包括与武汉病毒所的各种沟通记录、合同和协议，这些文件揭露了福奇和”生物健康联盟”多年来合谋改造冠状病毒的行为。我们现在知道，”生物健康联盟”的彼得・达扎克（Peter Daszak）当然也参与其中，还有拉尔夫・巴里克（Ralph Baric）、伊恩・利普金（Ian Lipkin）和其他一些人。
 
+《司法观察》进一步报道说：”美国国家过敏和传染病研究所在过去5年里，一直通过拨款号R011R01A|110964，在资助彼得-达扎克团队在武汉进行名为’掌握蝙蝠冠状病毒出现时的风险’的病毒研究。”
 
+“现在这些研究已经重新开始，具体重点是确定中国高度接触蝙蝠的人群，并研究他们是否因CoVs病毒而患病……合作者包括武汉病毒研究所和拉尔夫・巴里克（Ralph Baric）。”
 
+北卡罗莱纳大学也得到了非法蝙蝠冠状病毒研究资金的支持。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-image0-2.jpg)Our prospect is not Earth bound, rather, it is beyond Earth. Our aim is to fly higher and farther, using Earth as the fulcrum. We will be the first community of people to be able to travel to outer space legally and safely, to enjoy and to explore the universe. 
-— Mr. Miles Guo, GTV livecast on Dec. 5, 2021![我们真正的视野不在地球上，是在地球之外，地球是我们的一个支点，我们想走得更高、更远！我们将是最早合法地、安全地飞向外星空去旅游、去享受、去探索宇宙的新族类。 
-— 2021年12月5日郭文贵先生GTV直播](https://assets.gnews.org/wp-content/uploads/2021/12/2-image1-1.jpg)我们真正的视野不在地球上，是在地球之外，地球是我们的一个支点，我们想走得更高、更远！我们将是最早合法地、安全地飞向外星空去旅游、去享受、去探索宇宙的新族类。 
-— 2021年12月5日郭文贵先生GTV直播![](https://assets.gnews.org/wp-content/uploads/2021/12/3-20211214-04.png)Among all G-Series products or resources, GTV is the king, and it will always be. 
-— Mr. Miles Guo, GTV livecast on Dec. 5, 2021![](https://assets.gnews.org/wp-content/uploads/2021/12/4-20211214__1.png)到现在所有的G系列资源里边，GTV是王，永远都是王。
-— 2021年12月5日郭文贵先生GTV直播![](https://assets.gnews.org/wp-content/uploads/2021/12/5-20211214-11.png)The NFSC deserves the greatest credit for the many countries’ boycott of the Beijing Winter Olympics. The CCP is utterly bankrupt internationally due to the boycott, in terms of individual political credibility and national credibility.
-— Mr. Miles Guo, GTV livecast on Dec. 8, 2021![](https://assets.gnews.org/wp-content/uploads/2021/12/6-20211214-09.png)冬奥会被灭，新中国联邦是独一无二的最大的功劳。中共冬奥会在国际上，个人政治和国家信用已经彻底破产。 
-— 2021年12月8日郭文贵先生GTV直播![](https://assets.gnews.org/wp-content/uploads/2021/12/7-20211214-12.png)We are here to tell all that the CCP has prepared the biggest “coffin” for the world, that is the coronavirus and the vaccine. The specter of communism is murdering all mankind. 
-— Mr. Miles Guo, GTV livecast on Dec. 8, 2021![](https://assets.gnews.org/wp-content/uploads/2021/12/8-20211214-07.png)我们就是要告诉全世界，共产党给世界准备了最大的棺材就是冠状病毒和疫苗，共产主义正在杀害全人类。 
-— 2021年12月8日郭文贵先生GTV直播
+福奇的一个项目涉及到发现与SARS有关的CoVs在实验室中被操纵时，实际上可以与人体细胞结合。然后这些被操纵的病原体可以在类人化的试验小鼠中引发类似SARS的疾病。他们称之为猪急性腹泻综合症病毒的一种疾病，或称SADS-CoV，被用来杀死了中国广东省的25000多头猪。
 
+达扎克的盟友还参与了一项涉及在蝙蝠中发现病毒的计划。据说新冠病毒最初就是在这个项目中被发现的。福奇、达扎克和其他盟友之间往来的电子邮件中讨论了这些项目。
 
-**编辑/发稿：小鹿**
+一份日期为2020年7月13日的 “授标通知 “还将美国国立卫生研究院（NIH）给达扎克公司的资金增加了多达369,819美元，所有这些资金都是从美国纳税人手里拿走的。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-2.png)
+这个资助项目期从2014年6月1日开始，并计划持续到2021年6月30日。它的名称是 “掌握蝙蝠冠状病毒出现时的风险”。
 
-**更多资讯，更多关注**
+《司法观察》透露：”根据该拨款计划，‘生物健康联盟’将在2019年至2024年每年获得637,980美元的资助。”。
 
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+据进一步披露，大笔的划款还指向北卡罗来纳大学教堂山分校（UNC），该分校与中国的华东师范大学和新加坡的杜克大学医学院共同进行研究。
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+监督授予UNC及其合作伙伴的资助的专家明确指出，项目”可能包括与外国组织的合作”。同时还强调了可能需要使用三级实验室或更高的生物隔离安全设施的 “高致病性制剂”。
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+在”生物健康联盟”拨款申请中列出的研究目的 包括了”对受体结合域（尖峰蛋白）进行排序，以确定具有最高溢出潜力的病毒，我们将把这些病毒纳入我们的实验调查。”
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+该申请进一步写道：”我们将使用S蛋白序列数据、感染性克隆技术、体外和体内感染实验以及与受体结合的分析，来测试S蛋白序列潜在的溢出的阈值。”。
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+在整个申请书和其他文件中，都做实了达扎克、巴里克和中共国及他们的外国伙伴之间的各种盟友关系。换句话说，这是一个大规模的国际合谋事件。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+为了回应这些重磅消息，美国国立卫生研究院发表了一封公开信和相应的分析，声称将 “澄清事实”。简而言之，美国国立卫生研究院（NIH）坚持认为它的蝙蝠冠状病毒研究不是现在疫情大流行的催化剂，因为它正在研究的病毒和目前流行的病毒有”相当大的遗传差异性”。
 
+《美国自由报》指出：”尽管像福奇这样的专业人员可以随心所欲地兜圈子，但这并不意味着日益高涨的质疑声会随之消失。”。
 
+该报的一位评论员问道：”需要多少证据才能解雇福奇？解散美国国家过敏和传染病研究所和美国国立卫生研究院？并追究中共国发动生物战的责任？”
 
+原文链接：[Documents obtained by Judicial Watch blow the lid on Fauci’s illicit bioweapons research schemes](https://www.naturalnews.com/2021-12-14-documents-judicial-watch-fauci-illicit-bioweapons-research.html)
 
+发布：Peter Xin
+
+**更多****资讯****，****请关****注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

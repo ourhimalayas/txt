@@ -2,41 +2,193 @@
 ---
 
 
-## 真实与虚假的中共国
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1756731/)
+## 12/15每日播报|社媒消息:皮特纳瓦罗 娜塔莉温特斯,埃内斯坎特
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1757386/)
 
-翻译：七龙珠
+**By:[秘翻新闻](https://gtv.org/broadcast/watch/61b9ae5256f4921401b8245d)**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕截图-2021-12-15-115230.jpg)图片来源 Google.com
+**2021-12-15**
 
-来自ABC报纸Guy-Sorman的评论：“中共国的共产党领导人正在利用我们对真实中共国的不了解，玩弄异国情调。习近平试图说服我们，中国人不知道上帝是谁，也不知道自由是什么，而且有许多西方人相信这种无稽之谈。”
+**1.在美国空军以未接种新冠疫苗为由，开除了27名现役人员后，皮特纳瓦罗12月15日发推回应说：**
 
-共产党领导人为西方人设置了一个陷阱，而西方人已经落入陷阱。这个陷阱可以追溯到1949年毛泽东和他的部队在苏联的帮助下以武力夺取政权的开始。自那次政变以来，中国人民从未被要求对共产党的合法性发表意见，因为中共国唯一的选举是在党内进行的，事先被操纵，而不是在民众中进行。
+疫苗强制令不仅是极其糟糕的卫生政策，也对国家安全不利。看到此事，中共解放军在前往武汉病毒研究所的路上一定会狂笑不止。福奇又帮了中共一个忙！
 
-从那时起，党的领导人就一直代表中国人民，党代表中共国。这种相同的洗脑方式，每天不仅在中共国内部宣传，也不停的在西方国家宣传中重复。问题就在这儿：西方人尽然相信这个观点。
 
-中国人更加畏惧，表现的方式有：私人领域越来越小，不参与政治，麻木充实自己。因此，中国人，包括共产党员，知道党不是中国，但他们接受它，因为当局政权保证他们暂时的公民安全和提高生活水平的希望。
 
-这是中共和中国人之间的隐性契约。这种契约的受害者是自由精神、持不同政见者、少数民族，如藏族和维吾尔族，以及异见者；自1949年以来，中共国文明显然是个人主义的，因为每个艺术家都是被共产党遏制的个人主义者。从那时起，它就被类似于苏联模式的社会主义现实主义的宣传所取代，永远与中共宣传中的美妙抽象性相反。更糟糕的是，在1966年至1976年的所谓“文化大革命”期间，正宗的中国历史遗产基本被摧毁。时日至今，这种破坏仍在继续，正如在北京城可以看到的那样，不合格的建筑和城市公路毁掉了皇宫周围仅存的老区。共产党的特点是蔑视古代世界的文化遗产、艺术人才、扭曲审美。所有这些，中国人都知道，也都经历过，在受教育程度较高的人中敢怒不敢言。
+> Bad health policy. Bad for national security. Peoples Liberation Army laughing all the way to the Wuhan Institute of virology. Fauci strikes again.
+> 
+>  [https://t.co/HWyAjM4HKR](https://t.co/HWyAjM4HKR)
+> — Peter Navarro (@RealPNavarro) [December 14, 2021](https://twitter.com/RealPNavarro/status/1470825671295447042?ref_src=twsrc%5Etfw)
 
-一个在中共国的中国人别无选择，只能尊重共产党的仪式规则，这是可以理解的。西方人不受同样的约束，但他们心甘情愿地服从这些约束，这是很可笑的，而现在是时候走出这个陷阱了，大声说出来，因为我们有自由可以这样做，中国不是中共的，中共也不代表中国人。我对中国的绘画、文学、音乐、舞蹈、歌曲和建筑以及组成中国的不同民族都非常钦佩。这批作品在西方鲜为人知，在博物馆中也鲜有代表（除了在台湾，那里保存着真正的永恒的中国），与西方艺术不相上下。诗歌和文学的情况也是如此。西方人可以而且应该更多地了解中国文明和它众多的宗教，这些宗教自1949年以来一直都在被慢慢灭绝当中。
 
-自1949年以来，共产党政权给这个文明社会带来了什么？什么都没有。它从这个文明中带走了什么？一切都有可能。中国人民及社会文明与执政党之间的这种区别，将产生实际的后果。西方领导人和商人将继续他们与中共领导人的关系，因为这是他们之间的物质利益，但他们应该永远记住，并提醒他们的官方对话者，人民是永恒的，政治制度是暂时的。
 
-美国政府在即将举行的北京冬奥会上，刚刚给出了一个很好的例子，说明了共产党政权和人民之间的这种区别。美国将不派任何官方外交代表，但美国运动员将参加这些运动会，与中国人民分享。这种区别似乎很微妙，但是共产党领导人他们很愤怒，可能被煽动的还有中国人民，希望中国人能看懂这种区别，欧洲联盟也将采取同样的策略。
+**2.娜塔莉温特斯12月14日发推说：**
 
-简而言之，我的座右铭是：爱中国，无视中共。这不正是西方对苏联的态度吗？我们非常清楚，斯大林既不代表俄罗斯人民，也不代表俄罗斯文明，但安德烈-萨哈罗夫和亚历山大-索尔仁尼琴却代表了他们的人民。今天，我们知道，普京也不代表俄罗斯文明和俄罗斯人民，我们也相应地采取行动。
+根据《国家脉动》独家获得的福奇和扎克伯格之间的最新私人邮件显示，脸书创始人扎克伯格提供用户的“数据报告”，以帮助他们制定封锁政策和疫苗研发。
 
-但中共国不是这样，中共国的共产党领导人利用我们对真实中国的无知，打出“异国情调”的牌。习近平试图说服我们，中国人不知道上帝是谁，也不知道自由是什么。而有许多西方人彻底相信了这样的胡言乱语。习近平应该向我们解释，为什么数以百万计的中国佛教徒、基督徒和道教徒他们秘密聚会祈祷，为什么2010年诺贝尔和平奖得主刘晓波会死在监狱里，因为他写道，中国人非常清楚什么是民主，并希望有民主。
+【推文转《国家脉动》报道，这个鲜明例子说明，大科技公司和政府如何利用用户数据轻易地进行勾兑，限制公众的自由。扎克伯格在电邮中提到，他的个人基金会投入了数亿美元，以确保当时的总统候选人乔·拜登在2020年取得胜利。今年4月8日，扎克伯格给福奇发了一封电邮，他在邮件中说：“脸书可以制作汇总和匿名的数据报告，以促进封锁政策的制定。为了加快疫苗研发，我可以向你们提供所需要的资源和资金。”福奇回复说，他会认真考虑扎克伯格的提议。在这次交流中，两人还讨论了社交媒体平台的“中共病毒信息中心”以及如何控制有关大流行病的叙事。参议员玛莎·布莱克本曾在今年6月提出过此问题，但福奇矢口否认自己与扎克伯格有互动。】
 
-新闻来源：[abc.es] *[La verdadera China y la falsa](https://www.abc.es/opinion/abci-sorman-verdadera-china-y-falsa-202112130026_noticia.html)*
+
+
+> 🚨🚨🚨
+> 
+> EXC: New Fauci-Zuckerberg Emails Reveal Offer of ‘Data Reports’ To Aid Lockdown Policies, Vaccine Development.[https://t.co/D7URA1StMy](https://t.co/D7URA1StMy)
+> — Natalie Winters (@nataliegwinters) [December 14, 2021](https://twitter.com/nataliegwinters/status/1470770111309135881?ref_src=twsrc%5Etfw)
+
+
+
+**3.娜塔莉温特斯12月15日发推说：**
+
+美国共和党众议员利茲·切尼 (Liz Cheney)获得了由“前国会议员协会（Association of Former Members of Congress）”颁发的2021年政治家奖，中共的对外影响力机构–中美交流基金会是该奖项的赞助商之一。另外，《国家脉动》之前曝光过，利茲·切尼的丈夫在一家与中共有深度关联的律师事务所任职。
+
+
+
+> 🚨🚨🚨
+> 
+> REVEALED: Liz Cheney Accepted ‘Statesmanship’ Award From Chinese Communist Party Influence Group.[https://t.co/lSlDeNtB9x](https://t.co/lSlDeNtB9x)
+> — Natalie Winters (@nataliegwinters) [December 14, 2021](https://twitter.com/nataliegwinters/status/1470857954140164096?ref_src=twsrc%5Etfw)
+
+
+
+**4.真正美国之声12月15日发推说：**
+
+塔利班当局声称，他们比以前更支持妇女，并要求美国和其他国家对数百万正遭受饥荒的阿富汗人展示出“怜悯和同情”。
+
+【推文转报道，塔利班外交部长阿米尔·汗·穆塔基 (Amir Khan Muttaqi)告诉《美联社》说：“制裁阿富汗没有任何好处，美国应将阿富汗中央银行的约100亿美元储备金解冻。”在美国支持的政府倒台之前，4000万阿富汗人中，大约有72%的人生活在贫困线以下。根据联合国世界粮食计划署（World Food Programme）的数据，近2300万阿富汗人正经历着“严重的粮食不安全”。在塔利班统治下，许多七年级到十二年级的女孩被禁止上课。众多女公务员被迫呆在家里。塔利班官员以前曾表示，有必要为男性和女性建立单独的工作场所和学校。阿富汗妇女已经开始在家里抗议，而不是在街上抗议，因为她们会面临塔利班的暴力威胁。】
+
+
+
+> The [#Taliban](https://twitter.com/hashtag/Taliban?src=hash&amp;ref_src=twsrc%5Etfw) claim to be more supportive of women than when they previously ruled [#Afghanistan](https://twitter.com/hashtag/Afghanistan?src=hash&amp;ref_src=twsrc%5Etfw), and are now asking the U.S. and other nations to show "​​mercy and compassion"[https://t.co/MW96UqsTvE](https://t.co/MW96UqsTvE)
+> — Real America's Voice (RAV) (@RealAmVoice) [December 15, 2021](https://twitter.com/RealAmVoice/status/1470920290624577537?ref_src=twsrc%5Etfw)
+
+
+
+**5.推特用户 查克·雷夫塞尼克 12月14日发推说：**
+
+彼得·麦卡洛 (Peter A. McCullough)在做客乔·罗根 (Joe Rogan)的播客节目时说：“如果得到早期治疗，85%的新冠死者可以免于不幸。但早期治疗却被打压，目的是推广疫苗。”
+
+
+
+> Dr. Peter McCullough said on Joe Rogan's podcast, 85% of deaths attributed to Covid-19 could have been prevented with early treatments. [https://t.co/UzRopRbJfm](https://t.co/UzRopRbJfm) [pic.twitter.com/N4wEXv3yqC](https://t.co/N4wEXv3yqC)
+> — Chuck Refusenick (@VikeKang\_) [December 13, 2021](https://twitter.com/VikeKang_/status/1470524212892745729?ref_src=twsrc%5Etfw)
+
+
+
+**6.PureLotusHeart莲心不染 12月15日发推说：**
+
+顶级科学家们在强迫人们接种中共病毒疫苗时，却忽略了以下重要的科学信息：
+
+1.政府和科技巨头一直在无情地攻击言论自由和科学；2.全民疫苗接种是基于错误的前提；3.疫苗风险是真实信息；4.可能存在漏报疫苗导致的不良事件和死亡人数；5.疫苗安全评估存在严重缺陷。
+
+
+
+> 顶级科学家们：强迫人们接种 COVID 疫苗忽略了重要的科学信息
+> ⚠️政府和科技巨头无情地攻击言论自由和科学
+> ⚠️全民疫苗接种是基于错误的前提
+> ⚠️讨论风险不是虚假信息
+> ⚠️可能漏报不良事件和死亡
+> ⚠️疫苗安全评估存在严重缺陷 [https://t.co/i1mv8J7atQ](https://t.co/i1mv8J7atQ)
+> — PureLotusHeart莲心不染 (@PureLotusHeart1) [December 14, 2021](https://twitter.com/PureLotusHeart1/status/1470876682324221958?ref_src=twsrc%5Etfw)
+
+
+
+**7.前医院CEO 约翰·张伯伦12月13日发推说：**
+
+罗伯特马龙博士的公开信，呼吁不要给孩子接种新冠疫苗。请立即阅读和分享。
+
+公开信说：家长在让孩子们接种疫苗前，需要了解三个问题：
+
+1.    这是在将病毒基因注入你孩子的细胞中，该基因迫使你孩子的身体制造有毒的刺突蛋白，这些蛋白质通常会对儿童的重要器官造成永久性损伤，包括：他们的大脑和神经系统、心脏和血管、生殖系统，并导致他们的免疫系统发生根本性变化；最令人担心的是，这些损害一旦发生，就无法修复弥补。你无法修复大脑中的病变、心脏组织的疤痕以及被基因重置的免疫系统，而且对生殖系统造成的损害可能会影响家庭后代
+
+2.    mRNA疫苗这项新技术尚未经过充分测试，至少需要5年的测试和研究才能真正了解其风险，新药的危害和风险往往在多年后才会暴露出来，你希望自己的孩子参加这场人类历史上最冒险的医学实验吗？
+
+3.    你所听到的让孩子接种疫苗的理由都是谎言。孩子在感染新冠后获得的免疫力，对于拯救家人免于这场疾病至关重要。
+
+总而言之，考虑到疫苗的已知风险，给孩子接种疫苗没有任何好处。
+
+
+
+> This is directly from Dr. Robert Malone. [@RWMaloneMD](https://twitter.com/RWMaloneMD?ref_src=twsrc%5Etfw). It is imperative that you read and share. Especially if you have children and grandchildren. [pic.twitter.com/YtpFDOH7AJ](https://t.co/YtpFDOH7AJ)
+> — John Chamberlain, MHA, LFACHE (@misterchambo) [December 13, 2021](https://twitter.com/misterchambo/status/1470251142861017090?ref_src=twsrc%5Etfw)
+
+
+
+**8.印太新闻 – 关注中共威胁 12月15日发推说：**
+
+美国参议员汤姆科顿抨击拜登政府允许中共通过武力而非谈判的方式威胁台湾，在民主峰会上切断了台湾数字部长唐凤的视频，声称这是拜登政府向中共屈服示好的最新例子。
+
+【推文转《福克斯》报道，科顿说：“仅仅因为唐风展示的地图上的台湾和中共国的颜色不同，白宫就将其视频切断，这展现了拜登政府可悲的弱点。我一点也不相信这只是一个技术问题。我相信，这是总统和政府向北京屈服的又一例子。我们需要做的是与台湾站在一起，帮助巩固其自治权，并维持海峡两岸的现状。但是北京威胁台湾要通过武力而不是谈判来改变这种现状。】
+
+
+
+> Tom Cotton slams Biden for allowing [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) to threaten [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw) 'by force, not by negotiation'
+> 
+> The Arkansas senator said, 'This is an example of the president and the administration kowtowing to Beijing,'[https://t.co/FstVuKsTSs](https://t.co/FstVuKsTSs)
+> — Indo-Pacific News – Watching the CCP-China Threat (@IndoPac\_Info) [December 14, 2021](https://twitter.com/IndoPac_Info/status/1470823592967294978?ref_src=twsrc%5Etfw)
+
+
+
+**9．印太新闻 – 关注中共威胁 12月15日发推说：**
+
+澳大利亚的人权活动家、反共人士德鲁·帕夫洛 (Drew Pavlou)想刊登抗议北京冬奥会的广告，但却被当地的广告牌公司拒绝，因为他们怕惹恼中共。
+
+【推文转《台湾英文新闻》报道，帕夫洛与中共政权的异议人士巴丢草合作设计了一系列的抗议北京冬奥会的广告海报，并准备张贴在澳州布里斯班当地的广告牌上。他们联系了一家广告牌制造商量此事，但该厂商的代表说：“昆士兰州一家大型广告牌制造商的总经理在与所有广告牌公司的总经理举行会议后，得出结论说，该行业不值得为了帕夫洛的3000澳元广告费，而面临可能激怒中共政府的风险。因为该行业制作广告牌的大部分用品，包括钢材，都来自中共国。他们担心，如果刊登此类广告的信息传到中共国，将对他们的广告牌部件供应产生严重影响，而且他们的计算机系统也可能会遭到中共黑客的报复攻击。】
+
+
+
+> Audio reveals why activist [@DrewPavlou](https://twitter.com/DrewPavlou?ref_src=twsrc%5Etfw) is banned from posting anti-CCP billboards in Australia
+> 
+> Australian billboard companies refuse to post ads protesting Beijing 2022 Olympics for fear of angering China [https://t.co/fLmGMwQF7V](https://t.co/fLmGMwQF7V) [pic.twitter.com/zrgo6bhvfU](https://t.co/zrgo6bhvfU)
+> — Indo-Pacific News – Watching the CCP-China Threat (@IndoPac\_Info) [December 14, 2021](https://twitter.com/IndoPac_Info/status/1470785662647365632?ref_src=twsrc%5Etfw)
+
+
+
+**10.埃内斯坎特12月15日发推说：**
+
+非常感谢NBA的传奇人物卡里姆·阿卜杜勒-贾巴尔 (Kareem Abdul-Jabbar)的支持，让更多人了解中共的人权侵犯行为。希望这能鼓励其他运动员站出来发出正义之声！贾巴尔是个真正的领袖！
+
+
+
+> Huge thanks to [@NBA](https://twitter.com/NBA?ref_src=twsrc%5Etfw) legend [@kaj33](https://twitter.com/kaj33?ref_src=twsrc%5Etfw) for your support and bringing more awareness to all the human rights abuses in [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) 
+> 
+> Hoping this encourages other athletes to stand up for what is right.
+> 
+> You are a true leader [@kaj33](https://twitter.com/kaj33?ref_src=twsrc%5Etfw) [#FreeUyghurs](https://twitter.com/hashtag/FreeUyghurs?src=hash&amp;ref_src=twsrc%5Etfw) [#NoBeijing2022](https://twitter.com/hashtag/NoBeijing2022?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/jdjm0ZXCR1](https://t.co/jdjm0ZXCR1)
+> — Enes Kanter FREEDOM (@EnesFreedom) [December 14, 2021](https://twitter.com/EnesFreedom/status/1470788023185022991?ref_src=twsrc%5Etfw)
+
+
+
+**11.Disclose.tv 12月14日发推说：**
+
+美国11月的生产者价格指数（PPI）同比增长9.6%，远高于预期，是有记录以来的最大增幅。
+
+
+
+> JUST IN – U.S. producer price inflation jumps 9.6% year over year in November, much higher than expected and highest increase on record.
+> — Disclose.tv (@disclosetv) [December 14, 2021](https://twitter.com/disclosetv/status/1470749483835310085?ref_src=twsrc%5Etfw)
+
+
+
+**12.盖特官方12月14日在盖特发文：**
+
+盖特将推出自己的短视频版本，与Instagram Reels和TikTok竞争。
+
+【盖文转KnowTechie报道，盖特的新短视频功能，称为G-Vision，将于明年2月推出。盖特CEO杰森米勒说：“现在盖特是推特和脸书的市场竞争者，随着我们推出G-Vision，我们将是Instagram Reels和Facebook Stories的短视频竞争者。”】
+
+[https://gettr.com/post/pjlfs5173d](https://gettr.com/post/pjlfs5173d)
+
+**13.郭文贵先生12月14日在盖特发文：**
+
+郭文贵先生的最新单曲HCoin to The Moon已连续两周蝉联公告牌世界数字歌曲销量排行榜的榜首, 这不仅创造了郭先生所有单曲的个人最好成绩，也创造了非专业歌手在世界最权威音乐排行榜的最好成绩，更是又一次创造了中国人在世界乐坛前所未有的历史奇迹！再次感谢新中国联邦的全球战友们，我们用自己的行动向全世界证明我们团结灭共的力量和决心！[https://gettr.com/post/pjn8js5502](https://gettr.com/post/pjn8js5502)
+
+*以上社交媒体新闻由 巴拉克和二丫 联合编译报导*
+
+发布:星星
 
 * * *
 
-*审核：Aries的星
-校对：阿伯塔
-发布：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-2.jpeg)
+**By 【秘密翻译组-即时新闻播报组】**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/IMAGE-2021-12-13-113746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,71 +2,66 @@
 ---
 
 
-## 2021年12月15日文贵先生直播摘要及音频—银河系农场
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1758483/)
+## 福奇电邮：小扎愿提供“数据报告”以助锁定疫苗开发政策
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1758563/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/931791cd060cc41aa89565c41e613073.jpg)
-视频连接：[2021年12月15日 文贵大直播：欧美制裁 奥运人权经济；疫苗灾难 危害验证抗议 ；国内经济 地产负债脱钩；终共行动 中共是否报复](https://gettr.com/streaming/pjqagc144c)
+翻译： Jenny Ball
 
-1、时尚就是表达自我、表达时代和这个时代的物质文明，有人敢谈青蒿素吗？敢谈疫苗吗？
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-12-2.jpg)图片来源：thenationalpulse.com
 
-2、七哥不是反疫苗，是反这次假疫苗；
+在扎克伯格（Mark Zuckerberg）和福奇（Anthony Fauci）之间的私人电子邮件（由国家脉动The National Pulse 独家获得）中，Facebook 创始人兼首席执行官提出向用户发送“数据报告”，以“促进”有关 COVID-19 封锁的决定。
 
-3、中共房地产：降价卖不让卖、银行要求配合做假账（借新还旧）、曾经有过3套房子的人，房加锁（3-5年不能卖）、预交三年物业管理费；
+这一启示，是大型科技公司和政府如何轻松勾结使用用户数据，来限制公众自由的一个鲜活例子。
 
-4、1.2亿人失业 最起码意味着3千万套房子(断供) 中共56万亿房地产经济能解决得了吗？
+在交流中，扎克伯格坚持说：“**我想确保你拥有加快疫苗开发所需的所有资源**。”
 
-5、冬奥会之后会看到房地产崩塌，国内朋友们一定是能拿一分拿一分，赶快跑；
+扎克伯格在电子邮件中提到的个人基金会，投入了数亿美元以确保当时的候选人乔·拜登在 2020 年获胜——仅在两人邮件之后一个月，他就向美国国家过敏和传染病研究所 (NIAID) 主任提供了帮助已通过美国政府进行编辑的电子邮件连接。
 
-6、6千多亿流入香港商业地产，99%是共产党的家人处理了国内的物业到香港避险；
+扎克伯格 4 月 8 日给福奇的电子邮件全文如下：
 
-7、西藏独立法案：90%亚洲的水来自喜马拉雅，喜马拉雅上万个山脉保护了中国西部，西藏独立，中国的水没了，很多木头没有了。西藏战略位置不亚于台湾，西藏独立，中国彻底完了。新疆也一定要求独立，香港一定要求独立，台湾绝对拿不走，之后广东也会呼应（独立）；
+托尼：
 
-8、盘古员工：都会给他们喜币，未来5年拿到的钱比工作还要多，而且共产党找不到；
+我写信再次感谢你所做的一切，并看看 Facebook、Chan Zuckerberg Initiative 或我个人是否可以做任何事情来帮助你努力抗击 Covid ，并让社会重新开放。
 
-9、伊维菌素简直救了非洲疟疾、河盲症等；
+如果我们正在考虑在全国范围内长期收紧和放松住房限制，那么如果 Facebook 可以生成汇总的匿名数据报告来促进这些决策，那么，我们很乐意这样做。并且，希望以确保我们优先考虑正确的工作。我们启动了一项症状调查，希望能够提供逐项领先的病例指标，为公共卫生决策提供信息。如果您认为还有其他聚合数据资源会有所帮助，请告诉我。
 
-10、青蒿素：比伊维菌素牛千倍，青蒿素绝对治疗癌症、延长人类的寿命；
+从长远来看，[已编辑] 我想确保您拥有加快疫苗开发所需的所有资源。**这似乎是一个获得大量投资的领域，**但如果目前有尚未研究的有前景的方法——或者如果有可以使用更多资源的领域——请告诉我，我们很乐意查看资助他们。
 
-11、最聪明的犹太人，疫苗接种率是最高的。最落后的非洲，疫苗接种率反而最低。不要放大阴谋论，很多人是长期惯性思维相信科学；
+再次感谢您在这方面的领导。而且我知道你很忙，所以如果没有任何需要我们帮助的事情，就没有必要回复这封电子邮件。我希望你做得很好。
 
-12、打了疫苗一定要吃伊维菌素或青蒿素；
+马克
 
-13、疫苗相信2个月全球一定会停，不会超过5个月；
+福奇回复扎克伯格的电子邮件：
 
-14、明年年底一定要完成一个战友们很大的贴现的目标；
+马克：
 
-15、新中国联邦创造的是 AI+生物科技+量子科技+数字货币的时代；
+感谢您的关注和您提供的帮助。我会认真考虑可以接受你的提议的方式。
 
-16、GTV、GETTR、GNEWS会成为世界信息交易市场、社交媒体的时间交易市场、社交媒体的货币交易市场；
+温暖的问候，
 
-17、美国中期大选以后Facebook、twitter因为疫苗问题都会消失；
+托尼
 
-**注：本期大直播音频正在制作和上传中，敬请期待——**
+此次交流，是在 Facebook 首席执行官和国际开发署主管之间分别通过电子邮件讨论社交媒体平台的“冠状病毒信息中心”，以及如何控制大流行病的叙述之际进行的。
 
-**（大直播音频附件位置）**
+今年早些时候，参议员玛莎·布莱克本 (Marsha Blackburn) 提出此事时，福奇否认与 Facebook 首席执行官的互动。
 
-编辑整理：文俊；
+![](https://assets.gnews.org/wp-content/uploads/2021/12/unknown-5-3.png)
 
-发布：黎明之前；
+在他们最初的公报末尾，有一封电子邮件的编辑部分，有人声称这是扎克伯格提出的审查某些主题的提议。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
+该消息发布之际，Facebook 的律师承认，他们的“事实核查”努力，只不过是该公司第三方合作伙伴的“意见”。该公司已根据这些“事实核查”，删除了数千个与 COVID-19 相关的帖子和帐户。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-10-at-11.22.11-PM-800x908-1.png)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+**新闻来源**：[thenationalpulse][EXC: New Fauci-Zuckerberg Emails Reveal Offer of ‘Data Reports’ To Aid Lockdown Policies, Vaccine Development.](https://thenationalpulse.com/exclusive/private-fauci-zuckerberg-emails-offering-data-reports/)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+* * *
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+*审核：文乐*
+*校对 : 信心满满*
+*发布：信心的选择*
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-3.jpeg)
 
  
 
