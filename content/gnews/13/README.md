@@ -2,33 +2,32 @@
 ---
 
 
-## 七哥谈房地产崩盘（2021-12-15摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1762409/)
+## 文贵直播12.15.2021 未来3年灭共大游行的“三防”与“两准备”
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1762449/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+撰稿：大浪小水花
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screenshot-2021-12-15-231530.png)图片来源：GTV & GETTR
+郭文贵先生在2021年12月15日大直播中，提醒准备参加未来3年“新中国联邦全球灭共大游行”的战友，在决定上街参加活动前，要做到“三防”与“两准备”。
 
-来源：郭先生2021-12-15直播09:30:04 摘录
+**三防是指：**
 
-不是开玩笑的，冬奥会之后房地产崩塌的时候你会看到无数的人魂飞魄散，为啥叫魂飞魄散你不是没家了不是像盘古撵到大街上冻你零下10度，还有人后面追杀要钱。就像这个四川的是我的老同事，人家原来挣的钱，人家买的房子人家不欠贷款，不欠贷款的你不能卖。在北京有贷款的你现在你要听我的，还要假贷款还利息，你想这是个什么概念，哪有这种不要脸的事情啊。人家的房子你不让人家卖，人家贷款都要假贷款还你利息，你现在天下哪有这种事情。我又要跟你上床啊，我还不想脱裤子。就这种是吧。这什么概念这是？所以说房地产，今天讲到这时候兄弟姐妹们，他一定是会成为中国共产党灭亡的最核心的，一定是导致雪崩的那个关键的雪花。所以今天我请兄弟姐妹们，但凡有家人的你不要要求结果一定告诉家人能拿一块拿一块，能拿一毛拿一毛赶快走人。
+第一防，目前正是欧米克隆（Omicron）新变种开始在全世界传播，战友上街参加活动一定要做好预防工作，防止染上病毒。
 
-校对：HimaFaFA
-发布：HimaBoy
+第二防，防止中共在海外的华人组织故意设置法律陷阱，设计陷害，引诱战友做出违法行为。
 
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+第三防，对于家人还在国内的战友，中共一定会追查并对家人进行威胁，这种情况一定会发生，战友们一定不要妥协，不能给中共可乘之机。
 
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+**两个准备是指**:
 
-**关注我们**
+第一，所有在现场参与活动的战友一定要做好准备，从这次活动正式启动直到中共被灭的这段时间内，你将再也无法回到国内。中共除了会威胁家人外，还会对战友进行各种骚扰。
 
-Discord 账号
+第二，所有参加活动的战友一定要随身携带预防和治疗病毒的药物，伊维菌素，青蒿素等，以防万一。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+郭先生忠告战友们一定要在物资上和心理上做好充分的准备，才能应对活动期间发生的各种复杂的情况，否则不要上街。
 
-Gettr 账号
+参考来源：[https://gettr.com/streaming/pjqagc144c](https://gettr.com/streaming/pjqagc144c)
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
 
  
 
