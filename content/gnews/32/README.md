@@ -2,26 +2,40 @@
 ---
 
 
-## 顶级心脏病专家说压制早期中共病毒治疗是“蓄意阴谋”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1759759/)
+## 高级红衣主教警告精英们借由新冠病毒开始对“国家全面监控”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1759798/)
 
-编译：花岗岩
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-23.png)
-图片来源网络截图
+![](https://cdn.summit.news/2021/12/Screenshot-2021-12-14-at-12.52.56.png)*截屏/ST BONIFACE INSTITUTE*
+一位德国高级红衣主教近日警告说，比尔·盖茨（**Bill Gates**）、乔治·索罗斯（**George Soros**）和达沃斯经济论坛负责人克劳斯·施瓦布（**Klaus Schwab**）等人正在利用冠状病毒的流行来迫使世界处于全球主义“超级富豪精英”的“完全控制”之下。
 
-据零对冲12月15日报道，在最近与乔·罗根的访谈中，彼得·麦卡洛博士解释说，从中共病毒大流行病开始，就有一种协同的力量在努力灌输恐惧，并隐瞒早期治疗该疾病的方案，以证明封锁和疫苗的合理性。
+格哈德·路德维希·穆勒（Gerhard Ludwig Mueller）红衣主教，同时也是梵蒂冈法院的高级法官，在接受奥地利圣博尼法斯研究所（Austria’s St. Boniface Institute）采访时发表了上述言论。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-801.png)
+穆勒敦促道，“坐在财富宝座上的人”正在抓住一个“机会来推动他们的计划”。
 
-贝勒大学医学中心前内科副主任、德克萨斯农工大学教授麦卡洛是在其领域内最广泛被引用的研究作者之一，并于2020年11月在美国参议院作证。自从站出来反对官方的大流行病应对措施以来，麦卡洛受到了左派的严格审查，说他传播了关于大流行病的 “医学错误信息”。
+红衣主教补充说，这种大流行病已经导致了“混乱”和“动荡”，部分原因是精英们想通过对全球“国家监控”从而“让人们服从”。
 
-他还在最近与加拿大病毒学家和流行病学家杰西卡·罗斯博士共同撰写的一篇论文中阐明了与疫苗有关的心脏问题事件，回顾了美国疫苗不良事件报告系统中的数据。
+穆勒还表示，全球主义分子正在努力将“一个新的人类”带入世界，一个“按照他们自己的形象和样式”创造出来的人类，并警告说：“这与民主制度无关。”
 
-在麦卡洛与乔·罗根的谈话中，他谈到全世界都在努力压制早期的中共病毒的治疗。
+来自奥地利圣博尼法斯研究所推特的摘要
 
-他说：“在我看来，在早期，有一种有意的、非常全面的、对早期治疗的压制，以促进恐惧、痛苦、隔离、住院和死亡。而且这完全是有组织的，是故意的，目的是让人们接受，然后促进大规模的疫苗接种。”
+尊敬的卡迪纳尔·穆勒（Kardinal Müller）阁下，前民盟省长称：“[他们]大声宣称，这是一个推动其计划的机会，可这是一个欺诈的计划，特别这种我们可以利用现代技术带来新的创造[…]的想法”。
 
-他说，在美国，只有大约500名医生真正了解发生了什么，而美国大约有一百万医生。
+新闻链接：[https://summit.news/2021/12/14/senior-cardinal-warns-elites-ushering-in-total-control-surveillance-state-through-covid/](https://summit.news/2021/12/14/senior-cardinal-warns-elites-ushering-in-total-control-surveillance-state-through-covid/)
 
-新闻链接：[Top Cardiologist Tells Joe Rogan Of “Intentional Plot” To Suppress Early COVID Treatments](https://www.zerohedge.com/covid-19/top-cardiologist-tells-joe-rogan-intentional-plot-suppress-early-covid-treatments)
+翻译/简评: JS
+
+PR：clau
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
