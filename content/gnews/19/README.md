@@ -2,48 +2,28 @@
 ---
 
 
-## 法国国民议会议员团抵台访问
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1759869/)
+## 丹麦超过300人接种3剂疫苗后仍感染Omicron
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1759939/)
 
-作者：纽约香草山医疗部 – 云豹
+#### 撰稿：日本东京方舟农场  幽蘭自得
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/57F720C4-0DF5-44F8-831F-49D8B1D9B080.jpeg)（图片来自altalex.com）
 
+据《自由时报》12月15日报道，丹麦卫生部门表示，该国已有超过300人接种了3剂疫苗，却仍感染Omicron。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+据悉，丹麦13日通报了7799起中共病毒病例，为疫情爆发以来新高，是上周同日的2倍之多。截至13日为止，丹麦累计3437人感染Omicron，其中9%打了3剂疫苗、75%打了2剂疫苗；另外，有37名感染Omicron者入院。
 
+也就是说，丹麦这次感染Omicron病毒的人中85%的人都完成了接种有的还接种了加强针，只有15%的人没有接种疫苗或者只接种一针。这样悬殊的比例很好地证明了疫苗不但没有预防作用，反而增加了感染病毒的可能性。
 
+*参考链接：[擋不住！丹麥逾300人打3劑疫苗 仍感染Omicron](https://news.ltn.com.tw/news/world/breakingnews/3769664)*
 
-12月15日，法国国民议会前议长、现任友台小组主席戴扈杰，率跨党派议员团共6人抵达台湾进行访问。
+* * *
 
-此次法国国民议会议员访问团在台期间，预计将与蔡英文总统会面。 并将与政府的一些重要部门进行会谈，交流台法之间以及台湾与欧洲之间经济和文化合作的议题。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.3-4.jpg)
-今年10月，法国参议院友台小组主席李察刚刚率领议员团访问台湾，此次法国国民议会又派出了跨党派议员团访台，创下了欧洲单一国家国会两院议员团短时间内先后访台的纪录。 显示台法交流正持续增温、深化。
+*素材采编：幽蘭自得*
 
-参考链接：
-[法前議長戴扈傑率團抵台 國會兩院3個月內先後來訪創紀錄\[影\]](https://www.cna.com.tw/news/firstnews/202112150037.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+*编辑：文顺*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
-
-总编/编辑：文特
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+*发布：miumiu*
 
  
 
