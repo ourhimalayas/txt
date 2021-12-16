@@ -2,47 +2,27 @@
 ---
 
 
-## 躺平币为灭共而生，上线第一天一定可兑现可支付可流通
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1759663/)
+## 三孩政策能否解决“韭菜”不够的问题
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1759675/)
 
-原视频连接：[MILES GUO 直播 2021-12-09健身乱聊直播。](https://gettr.com/streaming/pj858hb609)
+撰稿：文西Eric
+![](https://assets.gnews.org/wp-content/uploads/2021/12/161.jpg)图片来自网络
+据中共国国家统计局发布《中国统计年鉴2021》显示，去年大陆人口净增长仅为204万人，创下了净增人口数量自1962年以来近60年的新低。2016年全面二孩政策实施后，当年净增人口达到了906万人，随后几年，年净增人口不断减少，2017年至2020年分别为779万人、530万人、467万人、204万人。
+
+眼看着新鲜“韭菜”越来越少，中共官方坐不住了，中共中央政治局5月31日召开会议，实施一对夫妻可以生育三个子女政策。该政策一出，立马在网络上掀起了不是另外一派狂欢景象，网民们用段子来喷中共官方的三孩政策：
+
+- 我说我吃不起饭，他们说我能吃三碗饭。我硬的时候，政策比我还硬。我在政策软了，我比他们还软。
+- 国家允许二胎这么久了，很多男人都没兴趣，说压力大。如果国家允许娶二房，你试试看，各个都是实力派，砸锅卖铁也得娶，生孩子还用你国家操心，二房不比你努力？！
+- 三胎了房子怎么分，不是说限购只能买两套吗？
+- 上联：一个家庭，两个夫妻，生三个孩子，养四个老人；下联：八点上班，晚九下班，非十分力气，还百万房贷；横批：韭菜的一生。
 
 
+“跟着共产党，走进火葬场”，在中南坑老杂毛和那些盗国贼家族眼里，绝大多数中国人就是韭菜，只是分高低而已。韭菜不够了，就让你多生，蛋糕不够分了，就强制计生。灭掉中共，是海内外华人基本生存和人权的需要！
 
-**郭文贵先生：**另外一个大家记住，国内我们未来的躺币就是只要是国内的灭共的，当然了这很容易，就像过去支付宝还有秒视频这些社交媒体、微博，只有你要推多少人文——灭共的文章，有多少动作在电脑上、手机上都有记忆。
+参考链接：[联合新闻网](https://udn.com/news/story/7332/5962394?from=udn-catelistnews_ch2)
 
-只要你躺平，就有躺平币，而且躺平币未来都有规划会出乎你的想象，马上就可以兑现，马上就可以买面包、买油，为什么？大家问这钱哪来的呢？大家走着看。如果是七哥说到做不到，那就是骗你们了，七哥还没有说到做不到的，这就是我们要做到的。
-
-躺平币跟咱们躺平币本身没关系，有国际上好多机构、金融机构跟我们合作，给躺平币给它一个贴现的还有支付的一个保证，这就是我们的系统牛，完全去中心化的币，完全独立的。但有第三方、第四方买这个币，那你就没办法，是吧？
-
-所以躺平币上线第一天一定会可兑现、可支付、可流通，所以说国内的战友们还有国外抗议的战友们，这非常的重要。
-
-编辑整理：喜马拉雅的肉夹馍；
-
-视频制作：Cindy；
-
-视频上传：Cindy；
-
-G-News发布：黎明之前；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
