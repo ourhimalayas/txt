@@ -2,27 +2,49 @@
 ---
 
 
-## 8.8万港人申请定居英国
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1759716/)
+## 全球最大疫苗生产商计划削减疫苗产量
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1759811/)
 
-撰稿：子喜太一
-![](https://assets.gnews.org/wp-content/uploads/2021/12/162.png)图片来自网络
-12月14日，英国政府表示截至9月底已有8.8万香港人根据新的签证计划申请在英国定居，该计划给予他们获得公民身份的途径。与此同时，伦敦发布了一份报告，谴责CCP打压香港异议人士。
+作者：银河勇气星—骄子
 
-英国政府今年1月针对香港人开通BNO签证通道，以应对CCP去年实施的国安法，英国称该法违反了北京关于维护香港和自治的承诺。在1997年香港回归前出生的香港人和他们的家属都可以获得BNO护照。
 
-英国此前预测，第一年将有大约15.4万名香港人抵达英国，五年内则有多大32.2万香港人移居英国。
 
-国安法强行出台前后，香港几百万人上街游行示威，警察暴力执法，流氓执法，香港年轻异议人士死伤无数，被鸡奸被强奸无数。无论CCP如何控制媒体，掩盖真相，事实就是事实，新中国联邦还是把真相传递给了全世界！经历如此磨难的香港人，早已看清CCP的魔鬼本质，冷血、残暴、杀人不眨眼，哪有什么一国两制，依法治国，全都是鬼话。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-英国政府开通BNO签证通道是对香港人的救援，短短九个月的时间就有近九万香港人申请定居英国，足以看出香港人对CCP的失望，或者说是恐惧，他们无法通过和平抗议来赶走CCP，那就只好自己想办法逃离。
 
-香港终于被CCP搞成臭港，早晚会变成空港，CCP终将要为自己的愚蠢、无知和自以为是付出代价，CCP必亡，全世界都在等着看它倒下！
 
-新闻参考链接：[联合新闻网](https://udn.com/news/story/7331/5962749?from=udn-catebreaknews_ch2)
+12月8日，因没有足够的订单，全球最大疫苗生产商印度血清研究所的总裁表示，将从12月13日开始，将疫苗产量减半，之后每个月还将持续削减。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1.2-8.jpg)
+据悉，印度成人疫苗接种率为50%。即使在最近奥米克戎导致全球恐慌的情况下，印度政府也尚未宣布加强针接种计划。此外，该公司也没有接到更多的国外订单。另据媒体消息，另一家疫苗制造商，也于近期搁置了一项生产一亿剂新冠疫苗的计划。
 
-*发稿：mgjxs*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
+有关分析人士表示，尽管很多国家政府还在强力推广疫苗，但从市场的真实反应来看，疫苗降温甚至被摈弃的趋势已经开始显现。
+
+参考链接：
+[World’s largest vaccine maker says it is slashing production by half until it receives more orders](https://sg.news.yahoo.com/world-largest-vaccine-maker-says-133314588.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+
+总编/编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

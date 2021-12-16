@@ -2,30 +2,27 @@
 ---
 
 
-## 截至12月14日，美国新冠病毒死亡超过80万人
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1759703/)
+## 顶级心脏病专家说压制早期中共病毒治疗是“蓄意阴谋”
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1759759/)
 
-作者：纽约香草山农场   – 飞虹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-根据美国约翰·霍普金斯大学的数据，2021年12月14日是美国CCP病毒爆发以来的又一个严峻的里程碑，截至当日，已有80多万美国人死于该病毒或其并发症。同时，自CCP病毒爆发以来，美国已累计报告了5000多万例病例，远远超过世界上任何其他国家的病例数和死亡人数。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture6-1.jpg)
-当天下午，美国国会参众两院的多位议员，包括众议院议长佩洛西和参议院多数党领袖查克·舒默，一起站在国会大厦的台阶上，为逝去的生命默哀。
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-23.png)
+图片来源网络截图
 
-参考链接：[截至12月14日，美国新冠病毒死亡超过80万人](https://news.yahoo.com/us-marks-latest-grim-milestone-of-the-pandemic-800000-covid-19-deaths-201904997.html)
+据零对冲12月15日报道，在最近与乔·罗根的访谈中，彼得·麦卡洛博士解释说，从中共病毒大流行病开始，就有一种协同的力量在努力灌输恐惧，并隐瞒早期治疗该疾病的方案，以证明封锁和疫苗的合理性。
 
-![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+贝勒大学医学中心前内科副主任、德克萨斯农工大学教授麦卡洛是在其领域内最广泛被引用的研究作者之一，并于2020年11月在美国参议院作证。自从站出来反对官方的大流行病应对措施以来，麦卡洛受到了左派的严格审查，说他传播了关于大流行病的 “医学错误信息”。
 
-总编：文特
-编辑：文特
-校对/发稿：Hetangyuese
+他还在最近与加拿大病毒学家和流行病学家杰西卡·罗斯博士共同撰写的一篇论文中阐明了与疫苗有关的心脏问题事件，回顾了美国疫苗不良事件报告系统中的数据。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+在麦卡洛与乔·罗根的谈话中，他谈到全世界都在努力压制早期的中共病毒的治疗。
+
+他说：“在我看来，在早期，有一种有意的、非常全面的、对早期治疗的压制，以促进恐惧、痛苦、隔离、住院和死亡。而且这完全是有组织的，是故意的，目的是让人们接受，然后促进大规模的疫苗接种。”
+
+他说，在美国，只有大约500名医生真正了解发生了什么，而美国大约有一百万医生。
+
+新闻链接：[Top Cardiologist Tells Joe Rogan Of “Intentional Plot” To Suppress Early COVID Treatments](https://www.zerohedge.com/covid-19/top-cardiologist-tells-joe-rogan-intentional-plot-suppress-early-covid-treatments)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

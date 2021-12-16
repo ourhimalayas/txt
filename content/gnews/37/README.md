@@ -2,24 +2,23 @@
 ---
 
 
-## 家庭教育促进法来了！为党“生娃”，还得为党教育！
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1759511/)
+## 英国议员表示，“武汉病毒”可能是武毒所制造的“工程病毒”
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1759552/)
 
-撰稿：东京樱花团/天路天道
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-185.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=http%3A%2F%2Fimage.uc.cn%2Fs%2Fwemedia%2Fs%2Fupload%2F2021%2F6ff23830dc31dd35297ab4a239d9fc8d.jpg&amp;imgrefurl=http%3A%2F%2Fwww.ailaojia.com%2Fu7041%2Fa6bcc1ff6c4d4a1e9627babab30adf10.html&amp;tbnid=Ed0JYTQlYdBMSM&amp;vet=10CCI)
-近日，中共教育部、全国妇联、最高人民法院、最高人民检察院、民政部、司法部、国家卫生健康委等10部门联合召开贯彻落实家庭教育促进法工作部署会。
+**采集****/翻译：意翎     **
 
-会议强调，要落实家长主体责任，把习近平总书记关于注重家庭家教家风建设的重要论述精神，把党的十九届六中全会要求落到实处，为党育人，为国育才。
+**责编：白夜**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-797.png)
+尖峰新闻报道：专家告知英国议员雷德利（Viscount Ridley）子爵，CCP病毒极可能是一种基因改造“工程病毒”。
 
-家庭教育至关重要，关乎子女成长、家庭幸福、代际传承。但当下的中共国内经济濒临崩溃，老百姓普遍疲于奔命，自顾且不暇，何谈搞好家庭教育。对中共而言，老百姓不仅要为党生娃，保证中共有“韭菜”可收割，还得自己把搞好教育，让“韭菜”有品质！
+麻省理工学院和哈佛大学的基因治疗和细胞工程专家Alina Chan博士告诉科学技术特别委员会：“我们从许多顶级病毒学家那里听到，基因工程起源是合理的，包括对第一个非典病毒进行改造的病毒学家（也这么说）”，她认为实验室起源的可能性更大，“现在，知道大流行起源的人站出来是不安全的，但我们生活在一个巨量信息储存的年代，这些信息最终会被释放出来。”
 
-信息来源：
+与去年的情形不同，当时仅仅讨论新冠病毒的源头很可能是武毒所，就可能荒谬地被打上“阴谋论”的标签，并被社交媒体封禁。
 
-[10部门共同召开贯彻落实家庭教育促进法工作部署会](http://edu.people.com.cn/n1/2021/1215/c1006-32308091.html)
+主流媒体曾高调宣传，生态健康联盟（EcoHealth）主席彼得·达斯扎克（Peter Daszak）博士感谢安东尼·福奇（Anthony Fauci）博士在大流行早期否定了实验室泄漏理论，然而Ecohealth是一个与武汉实验室功能研究有广泛联系的组织。达斯扎克还被Facebook委托审查与泄露说相关的信息,。而谷歌通过Youtub来审查此类信息，并且资助达斯扎克的病毒研究。
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+[原文链接](https://summit.news/2021/12/15/mps-told-covid-likely-engineered-in-wuhan-lab/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
