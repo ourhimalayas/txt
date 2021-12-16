@@ -2,26 +2,26 @@
 ---
 
 
-## 安省新的强制令将严重破坏护理院工作
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1759110/)
+## 加拿大因武汉军运会质疑北京冬奥会
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1759312/)
 
-采编：青青     编译撰稿：文莱
-![](https://assets.gnews.org/wp-content/uploads/2021/12/01-image-1.jpg)
-[图片来源](https://toronto.ctvnews.ca/ontario-makes-it-mandatory-for-long-term-care-staff-volunteers-to-be-fully-vaccinated-against-covid-19-by-nov-15-1.5607655)
+采编/编译：薇文
+![](https://assets.gnews.org/wp-content/uploads/2021/12/05-image-2.jpg)
+[图片来源](https://www.milsport.one/news/world-summer-games/wuhan-2019-7th-cism-military-world-games-bids-adieu-in-style)
 
-据加拿大媒体【CTV新闻】12月14日报道，安大略省政府近期发布了更严格的疫情控制措施，规定所有未接种“新冠病毒”疫苗的人都不得进入该省的长期护理院，此举无疑将严重损害那些尚未接种的工作人员与来访者的权益。
+本台记者12月15日报道，加拿大著名媒体人[梅茨尔]近日采访了曾参加2019年武汉军运会的加拿大军人，并因此要求政府对当时该国运动员疑被感染“新冠病毒”事件进行调查。
 
-据悉，以上措施将于12月17日生效，根据新规定，除了未接种的访客和医护人员将被阻止进入护理院之外，已接种者仍必须配戴口罩并保持2米以上社交距离，才被允许进入院内。
+报道指出，由于中共当局在这次军运会上“故意将国际运动员的健康和生命置于危险之中”，因而引发了各界对参加北京冬奥会的重大质疑。同时，被采访的加拿大军人认为：他们在武汉军运会上可能感染的就是“新冠病毒”，尽管其健康已遭到严重损害，但由于特鲁多政府对此一直噤若寒蝉，而使这些受害者至今都未被当局允许接受必要的医疗检查，以确定其染病根源。
 
-此外，当局还将要求安省共626个护理院已完全接种的雇员、志愿者和医护人员每周至少接受两次病毒检测，而完全接种者之前是免于该检测要求的。
+更有甚者，世卫组织和各国政府都对武汉军运会的病毒感染事件缄口不言。但有消息称，这些从武汉回来的运动员与加拿大疫情的爆发存在极大关联。
 
-本台记者因此指出，安省政府以上以防控疫情为由出台的最新人身限制措施，再次证明了“中共病毒”疫苗对预防该病毒感染的根本欺骗性。当局这种师从中共流氓政权的自欺欺人之策，只能使其愚蠢地在自戕的道路上越走越远。
+有鉴于此，国际社会不能给中共暴政利用北京冬奥会再一次粉饰自己的机会，同时必须对“中共病毒”起源进行调查，并在彻底铲除该残暴独裁政权之前，以此作为与中共国外交的先决条件。
 
 校对编辑：硫酸羟氯喹64
 
 发稿：苦尽甜来 (文來）
 
-[原文链接](https://toronto.ctvnews.ca/unvaccinated-family-members-will-soon-be-banned-from-entering-ontario-long-term-care-homes-1.5706898)
+[资料来源](https://jamiemetzl.com/questions-about-the-october-2020-military-world-games-in-wuhan/)
 
  
 

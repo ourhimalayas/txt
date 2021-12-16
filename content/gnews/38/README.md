@@ -2,22 +2,40 @@
 ---
 
 
-## 美国将把8家涉嫌监控维吾尔人的中共公司列入投资黑名单
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1758902/)
+## 俄罗斯科学院院士认为Omicron是人工病毒
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1758969/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-639.png)
-翻译：zzballack
-上传：追着曙光跑
+作者：香草山健身部-正道新闻
 
-据《每日来电》（Daily Caller）12月15日报道，英国《金融时报》（The Financial Times）12月15日援引两位知情人士消息，美国财政部将于12月16日把无人机制造商大疆创新（DJI）等8家涉嫌参与了对维吾尔穆斯林监视活动的中共公司列入其“中共军工复合体企业”黑名单。根据美国总统乔·拜登6月发布的建立投资黑名单的行政命令，投资者被禁止参与购买或出售这些公司的公开交易证券或衍生品，该黑名单上目前已有60家中共公司。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Image-2021-12-16-at-09.06.11.jpeg)图片来源：原新闻
-报道称，这八家公司是无人机制造商大疆创新(DJI)、在新疆运营云计算服务的超级计算机制造商中科曙光(Dawning Information Industry Co.)、人工智能公司上海依图科技(YITU Technology)、网络安全公司厦门美亚柏科(Xiamen Meiya Pico)、云计算公司立昂技术(Leon Technology Co.)、云监控系统生产商东方网力(Netposa Technologies Ltd.)、以及面部识别软件公司旷视科技(Megvii)和云从科技(CloudWalk Technology)。这八家被列入黑名单的公司都已经在商务部的实体名单（Entity List）上，实体名单限制美国公司在没有获得政府许可的情况下从美国向所涵盖公司出口技术或产品。
+![](https://assets.gnews.org/wp-content/uploads/2021/06/WhatsApp_Image_2020-10-24_at_04.33.05-4.jpeg)
 
-据报道，大疆创新与中共新疆当局签署了合同。美国商务部指控该无人机制造商通过“高科技监控，促成了中共国境内的大规模人权侵犯行为”，在2020年12月将大疆创新列入其实体名单。
 
-在决定将这些公司列入黑名单之前，美国众议院在12月14日通过了禁止从中共国新疆地区进口产品的法案，华盛顿将继续严惩北京在新疆地区的暴行。
 
-信息来源：[US Will Put 8 Chinese Companies On Investment Blacklist For Alleged Uyghur Surveillance: REPORT](https://dailycaller.com/2021/12/15/china-uyghur-treasury-department-blacklist-xinjiang-dji/)
+2021年11月26日，南非卫生部向世界卫生组织（WHO）提交了新发现的中共冠状病毒B.1.1.529。在得到确认之后，世卫组织将其命名为为Omicron，并进一步说明，这种病毒具有大量的变异点，危险性很高。尽管从南非国家传染病研究所的数据来看，Omicron虽然没有很高的死亡率，但是高达80%的病毒传播率，提醒世人也必须高度警惕！
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1622100136_9a677d12ff1a914b6258195d6b2dcdae-1.jpeg)
+
+针对这一新的病毒变种，俄罗斯分子生物病毒和分子医学领域的专家——2019年被评为俄罗斯科学院通讯院士;现任俄罗斯科学院— 恩格尔哈特分子生物学研究所细胞增殖实验室主任:丘马科夫教授在近期&lt;&lt;俄罗斯广播电台&gt;&gt;的一期采访中一针见血的指出:这就是人工的制作的病毒。虽然有人说这是一个阴谋论，但是我认为的确如此。因为到了世界发生决定性变化的时候了，现在他们决定停止这次大流行。在接下来的三到四个月里，很多事情都会发生变化。停止大流行病是由那些让病毒开始的人所决定的。现在，出于某种政治原因，他们决定迅速结束大流行的时刻已经到来。
+
+我们相信，俄罗斯政府对于CCP研究病毒的情报了如指掌。俄罗斯的文化、科学、政治精英也在这次危机中再次嗅到了金钱的味道。随着俄罗斯科学界开始向公众揭开病毒真相工作的不断展开，不仅意味着俄罗斯政府已经开始准备让CCP完全背负起谋害俄罗斯人民、破坏世界经济的黑锅，达到转移国内矛盾的目的。也意味着CCP与俄罗斯之间的“新时代全面战略协作伙伴关係”已成昨日黄花。冬眠过后，当年的大棕熊已经虎视眈眈的对准CCP屁股，准备随时来上一口。[https://tass.ru/obschestvo/13206655](https://tass.ru/obschestvo/13206655)
+
+[https://ru.wikipedia.org/wiki/%D0%A7%D1%83%D0%BC%D0%B0%D0%BA%D0%BE%D0%B2,\_%D0%9F%D1%91%D1%82%D1%80\_%D0%9C%D0%B8%D1%85%D0%B0%D0%B9%D0%BB%D0%BE%D0%B2%D0%B8%D1%8](https://ru.wikipedia.org/wiki/%D0%A7%D1%83%D0%BC%D0%B0%D0%BA%D0%BE%D0%B2,_%D0%9F%D1%91%D1%82%D1%80_%D0%9C%D0%B8%D1%85%D0%B0%D0%B9%D0%BB%D0%BE%D0%B2%D0%B8%D1%8)
+
+编辑/校对/发稿：菩提树
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+
 
  
 

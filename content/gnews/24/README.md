@@ -2,46 +2,24 @@
 ---
 
 
-## 足球俱乐部减少体育场容量，避免球迷出示疫苗护照
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1759134/)
+## 美专家证实中共病毒疫苗引发青少年心肌炎
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1759334/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+采编：UCool优酷  翻译编辑：文所未闻
+![](https://assets.gnews.org/wp-content/uploads/2021/12/06-image-6.jpg)
+[图片来源](https://www1.racgp.org.au/newsgp/clinical/tga-updates-post-covid-vaccine-myocarditis-rates)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/download-15.jpg)
+自媒体《聪明旅行》12月14日报道，据[美国心脏学协会]出版物《循环》近期发布的研究表明，该国约98%的21岁以下心肌炎患者都是在接种mRNA疫苗后一个月内出现的。
 
+据悉，该研究由心脏病专家甘德瑞博士主导，在调查了来自美国26个医疗中心的139名21岁以下，接种过“新冠病毒”疫苗的心肌炎患者之医疗数据后得出的。而其中男性患者约占91%。此外，该协会上个月的报告也显示出由该疫苗所引发的各类心脏问题。
 
- 
-图片来源: www.grimsby-townfc.co.uk
+尽管大多数社交媒体都尽力掩盖和屏蔽以上相关信息，但越来越多的专家已经证实，近期与该疫苗接种相关的心血管病例数大幅增加，而且患者年龄明显趋于年轻化。
 
+校对编辑：硫酸羟氯喹64
 
-#### 编译：小红帽
+发稿：苦尽甜来 (文來）
 
-**根据Summit新闻12月15日报道， 英国卡莱尔联队足球俱乐部（Carlisle United Football Club）宣布将把体育场的容量减少到9999人，以避免强迫球迷在入场前出示新冠疫苗护照。**
-
-该俱乐部是在12月14日下议院对疫苗护照进行投票后做出这一决定的。尽管英国 “反对派 ”工党支持政府，保守党进行大规模的叛乱，但该决定还是通过了。
-
-任何超过10,000人参加的场所现在都被要求实施这个严厉的计划，尽管政府自己的内部调查得出结论，疫苗护照不起作用，甚至可能使病毒的传播变得更糟。
-
-然而，卡莱尔联队已经找到了一个巧妙的方法来规避规则，并保护他们的支持者不至于屈服于疫苗护照。
-
-“俱乐部可以确认，目前在布鲁顿公园不会有强制性的新冠疫苗认证，”俱乐部在一份声明中说，他们现在根据“修订”的较低容量下运作，以确保球迷不需要出示他们的医疗文件。
-
-“进入体育场和来参加比赛的人不要求出示那关新冠疫苗接种状态或最近的阴性测试，”声明称。
-
-该声明还明确表示，除了球场的少数区域外，不会强制要求佩戴口罩。
-
-向卡莱尔联队表示敬意，希望更多的球队也能效仿**。**
-
-新闻来源：[Football Club Reduces Stadium Capacity to 9,999 to Avoid COVID Passports – Summit News](https://summit.news/2021/12/15/football-club-reduces-stadium-capacity-to-9999-to-avoid-covid-passports/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[原文链接](https://cleverjourneys.com/2021/12/14/american-heart-association-97-8-of-under-age-21-patients-who-suffered-myocarditis-was-within-a-month-after-their-mrna-shot/)
 
  
 
