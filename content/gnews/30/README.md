@@ -2,58 +2,67 @@
 ---
 
 
-## 紧急：3 种方法来帮助阻止拜登的疫苗授权
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1758659/)
+## 福奇涉嫌病毒功能增强研究的证据曝光
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1758792/)
 
-编译：Jenny Ball
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Fauci.jpeg)图片来源：FNA
+翻译/编辑：守望黎明
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-14-1.jpg)图片来源：today.line.me（翻摄自路透社）
+《司法观察》又一次做到了，它获得了另一份新的证据，显示官方”医霸“托尼-福奇利用美国纳税人的钱来资助对蝙蝠冠状病毒和其他病原体进行改造。
 
-儿童健康防御组织([Children’s Health Defense](https://childrenshealthdefense.org/))呼吁科学家、公民和医学专家，帮助阻止拜登总统对员工、联邦承包商和医疗保健工作者的 COVID 疫苗授权。
+福奇的许多试验都在中国的武汉病毒研究所（WIV）进行——这就是为什么我们把新冠称之为武汉病毒。这些研究由美国国立卫生研究院（NIH）直接资助，该机构是由福奇监督的国家过敏和传染病研究所（NIAID）的上级机构。
 
-可以通过以下方式提供帮助： 在管理和预算办公室 ([OMB](https://www.regulations.gov/document/OMB-2021-0007-0001/comment))、医疗保险和医疗补助服务中心 ([CMS](https://www.regulations.gov/docket/CMS-2021-0168/comments))， 以及职业安全与健康管理局([OSHA](https://www.regulations.gov/document/OSHA-2021-0007-0001/comment))的每个联邦电子规则制定门户上发表评论，解释您反对这些指令的原因 。
+这批最新的证据完全验证了参议员兰德・保罗（Rand Paul）的说法，他在参议院的一系列听证会上谴责了福奇之后，遭到了民主党人和一些所谓记者的嘲笑。
 
-按照每个网站上的说明提交评论。 在发表评论之前，您还可以查看其他人在OMB，CMS 和 OSHA发表的评论：
+美国国立卫生研究院的一位发言人谎称福奇在与保罗的对话是 “绝对诚实的”，但我们现在知道，福奇向武汉和不为人知的其他地方大笔输送资金，以制造致命的生物武器，包括目前政府正在推动的 “疫苗 “和 “加强针”。
 
-• OMB：截止日期 12 月 16 日
+事实证明，在他被保罗在国会质询之前的整整15个月，福奇就已经直接接触到了那个臭名昭著的”生态健康联盟”的资料，该联盟是武汉病毒所的合作伙伴。
 
-• CMS：截止日期为 2022 年 1 月 4 日
+《司法观察》今天宣布，它收到了来自卫生与公众服务部（HHS）的221页记录，其中包括2018年提交的涉及冠状病毒研究的拨款申请。”拨款申请描述了’功能增强’研究，涉及从蝙蝠身上提取核糖核酸，对病毒进行实验，试图开发出一种嵌合病毒，并对全长蝙蝠SARSr-CoV 武汉1号毒株做基因操作以进行分子克隆。”
 
-• OSHA：截止日期 2022 年 1 月 19 日
+《司法观察》获得的其他文件包括与武汉病毒所的各种沟通记录、合同和协议，这些文件揭露了福奇和”生物健康联盟”多年来合谋改造冠状病毒的行为。我们现在知道，”生物健康联盟”的彼得・达扎克（Peter Daszak）当然也参与其中，还有拉尔夫・巴里克（Ralph Baric）、伊恩・利普金（Ian Lipkin）和其他一些人。
 
-**以下是您需要了解的有关每项疫苗强制规定的信息：**
+《司法观察》进一步报道说：”美国国家过敏和传染病研究所在过去5年里，一直通过拨款号R011R01A|110964，在资助彼得-达扎克团队在武汉进行名为’掌握蝙蝠冠状病毒出现时的风险’的病毒研究。”
 
-OMB：拜登总统于 9 月 9 日宣布了他的“走出大流行之路：COVID-19 行动计划”，并签署了一项[行政命令](https://na01.safelinks.protection.outlook.com/?url=https%3A%2F%2Fwww.whitehouse.gov%2Fbriefing-room%2Fpresidential-actions%2F2021%2F09%2F09%2Fexecutive-order-on-ensuring-adequate-covid-safety-protocols-for-federal-contractors%2F&amp;data=04%7C01%7C%7C16a4b2e0547b4fe7aaca08d9b5f306a5%7C84df9e7fe9f640afb435aaaaaaaaaaaa%7C1%7C0%7C637740877663535714%7CUnknown%7CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%3D%7C3000&amp;sdata=i3JTIJn%2FXvuTpF4ZF8jautSXUeevtNd8bYGxZkP2s5s%3D&amp;reserved=0)，强制要求联邦承包商接种 COVID-19 疫苗。
+“现在这些研究已经重新开始，具体重点是确定中国高度接触蝙蝠的人群，并研究他们是否因CoVs病毒而患病……合作者包括武汉病毒研究所和拉尔夫・巴里克（Ralph Baric）。”
 
-提交完整疫苗接种证明的截止日期（除非该员工在法律上有权获得豁免）是 2022 年 1 月 18 日。[请在此处阅读完整的规定。](https://childrenshealthdefense.org/defender/action-omb-oppose-mandatory-vaccines-federal-contractors/)
+北卡罗莱纳大学也得到了非法蝙蝠冠状病毒研究资金的支持。
 
-CMS：11 月 4 日，CMS 规定医疗保险和医疗补助（Medicare and Medicaid）认证的提供者、供应商和员工，必须接种 COVID-19 疫苗。
+福奇的一个项目涉及到发现与SARS有关的CoVs在实验室中被操纵时，实际上可以与人体细胞结合。然后这些被操纵的病原体可以在类人化的试验小鼠中引发类似SARS的疾病。他们称之为猪急性腹泻综合症病毒的一种疾病，或称SADS-CoV，被用来杀死了中国广东省的25000多头猪。
 
-然而，在 11 月 30 日，路易斯安那州联邦地方法院[发布了一项初步禁令](https://childrenshealthdefense.org/defender/biden-covid-vaccine-mandates-legal-setbacks/)，影响了全国的医护人员起来反对强制执行。
+达扎克的盟友还参与了一项涉及在蝙蝠中发现病毒的计划。据说新冠病毒最初就是在这个项目中被发现的。福奇、达扎克和其他盟友之间往来的电子邮件中讨论了这些项目。
 
-法院表示：“在像这样的大流行期间，更重要的是保护我们宪法中规定的权力分立，以避免我们的自由受到侵蚀。” [在这里发表您对 CMS 的评论](https://www.federalregister.gov/documents/2021/11/16/2021-24949/determination-of-the-acting-omb-director-regarding-the-revised-safer-federal-workforce-task-force)。
+一份日期为2020年7月13日的 “授标通知 “还将美国国立卫生研究院（NIH）给达扎克公司的资金增加了多达369,819美元，所有这些资金都是从美国纳税人手里拿走的。
 
-OSHA：要求拥有 100 名或更多员工的企业强制要求所有员工接种 COVID 疫苗的 OSHA 规定于 11 月 5 日生效。但是，在 11 月 16 日，OSHA 暂停了其关于工作场所强制性 COVID 疫苗接种和测试的紧急临时标准 (ETS) 的实施和执行。
+这个资助项目期从2014年6月1日开始，并计划持续到2021年6月30日。它的名称是 “掌握蝙蝠冠状病毒出现时的风险”。
 
-**在第五巡回上诉法院作出**[**长达****22****页**](https://na01.safelinks.protection.outlook.com/?url=https%3A%2F%2Fchildrenshealthdefense.org%2Fwp-content%2Fuploads%2F5th-Stay.pdf&amp;data=04%7C01%7C%7C78327c0d1280459a795408d9b5f78c37%7C84df9e7fe9f640afb435aaaaaaaaaaaa%7C1%7C0%7C637740897237681758%7CUnknown%7CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%3D%7C3000&amp;sdata=pZzBeeR%2BfcTWIMNf%2F7CuplWwoIfte%2FZZHAxgzg3%2BnWM%3D&amp;reserved=0)**的暂停裁决之后，该裁决称拜登政府的授权存在“致命缺陷”，并表示，职业安全与健康管理局应“在进一步的法院命令之前不采取任何措施来实施或执行该授权**。”
+《司法观察》透露：”根据该拨款计划，‘生物健康联盟’将在2019年至2024年每年获得637,980美元的资助。”。
 
-CHD 呼吁 OSHA 延长公众意见征询的截止日期，并向公众提交关于该命令对安全、健康和经济影响的环境影响报告。
+据进一步披露，大笔的划款还指向北卡罗来纳大学教堂山分校（UNC），该分校与中国的华东师范大学和新加坡的杜克大学医学院共同进行研究。
 
-美国参议院于 12 月 8 日[投票决定废除雇主授权](https://childrenshealthdefense.org/defender/senate-vote-repeal-biden-vaccine-mandates-employers/)，但该措施仍需提交给众议院。拜登暗示，如果该法案在参议院和众议院获得通过，他将否决该法案。
+监督授予UNC及其合作伙伴的资助的专家明确指出，项目”可能包括与外国组织的合作”。同时还强调了可能需要使用三级实验室或更高的生物隔离安全设施的 “高致病性制剂”。
 
-在此处阅读有关 OSHA 实施拜登授权的计划的更多信息，然后[在此处发表您对 OSHA 的评论](https://www.regulations.gov/document/OSHA-2021-0007-0001)。
+在”生物健康联盟”拨款申请中列出的研究目的 包括了”对受体结合域（尖峰蛋白）进行排序，以确定具有最高溢出潜力的病毒，我们将把这些病毒纳入我们的实验调查。”
 
-**评论：这是关乎我们健康自由和未来的紧急行动，让我们拿起法律武器，用宪法保护我们的权利！行动起来，到这些相关网站发声！**
+该申请进一步写道：”我们将使用S蛋白序列数据、感染性克隆技术、体外和体内感染实验以及与受体结合的分析，来测试S蛋白序列潜在的溢出的阈值。”。
 
-**参考资料**：[childrenshealthdefense.org][Urgent: 3 Ways to Help Stop Biden’s Vaccine Mandates](https://childrenshealthdefense.org/defender/help-stop-biden-vaccine-mandates/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=73816dfa-7dfe-468a-b1c4-5ac2bc316bd4)
+在整个申请书和其他文件中，都做实了达扎克、巴里克和中共国及他们的外国伙伴之间的各种盟友关系。换句话说，这是一个大规模的国际合谋事件。
 
-* * *
+为了回应这些重磅消息，美国国立卫生研究院发表了一封公开信和相应的分析，声称将 “澄清事实”。简而言之，美国国立卫生研究院（NIH）坚持认为它的蝙蝠冠状病毒研究不是现在疫情大流行的催化剂，因为它正在研究的病毒和目前流行的病毒有”相当大的遗传差异性”。
 
-*审核：文乐*
-*校对 : 信心满满*
-*发布：信心的选择*
+《美国自由报》指出：”尽管像福奇这样的专业人员可以随心所欲地兜圈子，但这并不意味着日益高涨的质疑声会随之消失。”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-3.jpeg)
+该报的一位评论员问道：”需要多少证据才能解雇福奇？解散美国国家过敏和传染病研究所和美国国立卫生研究院？并追究中共国发动生物战的责任？”
+
+原文链接：[Documents obtained by Judicial Watch blow the lid on Fauci’s illicit bioweapons research schemes](https://www.naturalnews.com/2021-12-14-documents-judicial-watch-fauci-illicit-bioweapons-research.html)
+
+发布：Peter Xin
+
+**更多****资讯****，****请关****注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

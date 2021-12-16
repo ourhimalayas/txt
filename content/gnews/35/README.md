@@ -2,49 +2,35 @@
 ---
 
 
-## 11岁男童遭班主任辱骂后自杀 中共封锁新闻
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1758500/)
+## 2021/12/14 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1758674/)
 
-作者：香草山信息部 – 呼吸的雾霾（文小呼吸）
-
-![](https://cdn.discordapp.com/attachments/918667117514063893/920753954617450526/s2.jpg)
-
-
-
-
-
-当地时间12月14日，据中共媒体报道，近日中共国某省一名11岁的小男孩因不堪班主任当众辱骂，在留下多封遗书后，从一栋居民楼的24楼径直跳下，当场身亡。
-
-![](http://5b0988e595225.cdn.sohucs.com/images/20190314/ff5827f3a4fc403ba4971bb62b5ef9dc.jpeg)图片来源：wantubizhi.com
-
-但是在15号之后国内所有的新闻报道全部消失无踪，新浪、网易、腾讯甚至所属的海外网站等新闻网站都已被删除。 中共国连一个因为班主任责任而导致年仅11岁的在校生跳楼这样的事件都选择掩盖，可以想象我们没有发现或者被全网删除的新闻还有多少。每时每刻都有这样类似的悲剧发生，中共却选择掩盖事实，可见中共对任何新闻的审核严苛过任何互联网后时代，中共恐惧老百姓得知真相，恐惧得知真相之后对中共政府的仇恨。 中共国的高压统治掩盖事实、草菅人命，蒙蔽了老百姓的双眼，越来越多的“404”也无法掩盖中共统治下的中国各种各样的畸形事件发生。
-
-新闻链接： 
-[https://www.sohu.com/a/508250771\_260616](https://www.sohu.com/a/508250771_260616) [https://news.sina.com.tw/article/20211214/40812362.html](https://news.sina.com.tw/article/20211214/40812362.html) [https://www.163.com/dy/article/GR8G160O051182F7.html](https://www.163.com/dy/article/GR8G160O051182F7.html)
-
-编辑/校对/发稿：云云
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-6.png)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://cdn.discordapp.com/attachments/918667117514063893/920753954617450526/s2.jpg)
+1. 12月12日，福建莆田。市民拍到一位妈妈带着孩子连续几个月都住在地下通道。
+2. 12月10日，湖南衡阳。男孩离家出走近一个月，捡菜叶住桥洞度日。
+3. 12月9日，广东深圳。男子购物后吐槽深圳物价太贵，一兜青菜要了90块！
+4. 12月10日，上海一公交车司机疑似对行驶的车辆失去控制，撞倒过马路的多名行人。
+5. 12月13日，外卖小哥在送餐途中突然倒地抽搐。
+6. 12月10日，女子在做指甲时，突发不适，抽搐倒地。
+7. 12月10日，黑龙江齐齐哈尔市。一名男子突发疾病倒在马路中间。
+8. 12月9日，贵州兴义。路边卖糖葫芦的摊主突发疾病，昏厥落水。
+9. 12月9日，贵州遵义。男子突发疾病倒在车流中，全身抽搐，口吐白沫。
+10. 12月8日，四川巴中。大妈给家人送饭途中，突然倒地身亡。
+11. 12月7日，陕西西安，一乘客上出租车后突发疾病昏厥。
+12. 12月7日，安徽六安。老人在公交车上突发疾病，口吐鲜血，昏迷不醒。
+13. 12月5日，湖北武汉。乘客突发疾病，全身抽搐，口吐鲜血。
+14. 12月5日，陕西西安。乘客突发疾病，昏厥倒地。
 
 
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

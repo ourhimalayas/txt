@@ -2,55 +2,82 @@
 ---
 
 
-## 灭共者：地球是我们的一个支点
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1758596/)
+## 新书揭示对全球大流行病毒起源的掩盖
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1758706/)
 
-**出品：纽约香草山设计部**
+翻译：Jenny Ball
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-15-1.jpg)2017 年 2 月 23 日，在中国湖北省省会武汉市的 P4 实验室内看到一名工人。（约翰内斯·埃塞尔/法新社通过盖蒂图片社）
 
+实验室泄漏？ 生化武器？ 海鲜市场？ 在中国武汉首次报道新型冠状病毒两年后，世界对该病毒的起源仍知之甚少，科学命名为 SARS-CoV-2，它来自哪里！它是如何首先感染人类的？这些问题仍未得到最终答复。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+哈珀·柯林斯 (Harper Collins) 的新书《病毒》(Viral) 探讨了这种流行病的开始，以及为什么还有这么多未知。麻省理工学院和哈佛大学博德研究所的科学家艾琳娜·陈（Alina Chan）和动物学家兼科普作家马特·里德利（Matt Ridley）探索了三种可能性，包括武汉病毒研究所的病毒意外释放。
 
+作者在最近与华盛顿智库哈德逊研究所所长约翰·沃尔特斯(John Walters)的虚拟讨论中, 进一步展示了他们的发现。
 
+书中描述的是：对全球卫生和科学机构的谴责，以及两年未能正确调查病毒起源的故事。
 
+**自然起源？**
 
+新闻媒体最早提出的理论之一是，这种病毒是从武汉地区的动物中自然产生的。据陈说，没有任何证据支持这个想法。“他们花了一年半的时间寻找这种病毒的动物来源，”陈说，“但他们一无所获。”
 
+据陈说，中共当局花了数月时间分析动物组织、人体血液样本并追踪感染情况。尽管如此，“当局尚未找到原始动物来源，”陈说。
 
+陈说，与其相信未经证实的自然起源假设，科学家们应该关注武汉实验室发生的事情。 她的研究发现了一些文件“显示武汉病毒研究所（武毒所）收集和操纵的冠状病毒相当广泛”。
 
+陈说，“以某种方式表明[在武毒所]收集了来自动物和人类的数万种高危病原体……收集进入武毒所，对这些病毒进行基因改造的实验——不知怎的，所有这些都没有导致 SARS-CoV-2 的出现。”
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-17-1.jpg)2020年 4月17日，中国湖北省武汉市武毒所的 P4 实验室鸟瞰图。——P4 流行病学实验室是与法国生物工业公司“梅里埃研究所”（Institut Merieux）和中共合作建立的 科学院。该设施是世界上少数几个获准处理第 4 类病原体 (P4) 的实验室之一——危险病毒会造成人际传播的高风险。（Hector RETAMAL/法新社摄）（HECTOR RETAMAL/法新社摄，Getty Images）
+**武汉数据缺失**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-image0-2.jpg)Our prospect is not Earth bound, rather, it is beyond Earth. Our aim is to fly higher and farther, using Earth as the fulcrum. We will be the first community of people to be able to travel to outer space legally and safely, to enjoy and to explore the universe. 
-— Mr. Miles Guo, GTV livecast on Dec. 5, 2021![我们真正的视野不在地球上，是在地球之外，地球是我们的一个支点，我们想走得更高、更远！我们将是最早合法地、安全地飞向外星空去旅游、去享受、去探索宇宙的新族类。 
-— 2021年12月5日郭文贵先生GTV直播](https://assets.gnews.org/wp-content/uploads/2021/12/2-image1-1.jpg)我们真正的视野不在地球上，是在地球之外，地球是我们的一个支点，我们想走得更高、更远！我们将是最早合法地、安全地飞向外星空去旅游、去享受、去探索宇宙的新族类。 
-— 2021年12月5日郭文贵先生GTV直播![](https://assets.gnews.org/wp-content/uploads/2021/12/3-20211214-04.png)Among all G-Series products or resources, GTV is the king, and it will always be. 
-— Mr. Miles Guo, GTV livecast on Dec. 5, 2021![](https://assets.gnews.org/wp-content/uploads/2021/12/4-20211214__1.png)到现在所有的G系列资源里边，GTV是王，永远都是王。
-— 2021年12月5日郭文贵先生GTV直播![](https://assets.gnews.org/wp-content/uploads/2021/12/5-20211214-11.png)The NFSC deserves the greatest credit for the many countries’ boycott of the Beijing Winter Olympics. The CCP is utterly bankrupt internationally due to the boycott, in terms of individual political credibility and national credibility.
-— Mr. Miles Guo, GTV livecast on Dec. 8, 2021![](https://assets.gnews.org/wp-content/uploads/2021/12/6-20211214-09.png)冬奥会被灭，新中国联邦是独一无二的最大的功劳。中共冬奥会在国际上，个人政治和国家信用已经彻底破产。 
-— 2021年12月8日郭文贵先生GTV直播![](https://assets.gnews.org/wp-content/uploads/2021/12/7-20211214-12.png)We are here to tell all that the CCP has prepared the biggest “coffin” for the world, that is the coronavirus and the vaccine. The specter of communism is murdering all mankind. 
-— Mr. Miles Guo, GTV livecast on Dec. 8, 2021![](https://assets.gnews.org/wp-content/uploads/2021/12/8-20211214-07.png)我们就是要告诉全世界，共产党给世界准备了最大的棺材就是冠状病毒和疫苗，共产主义正在杀害全人类。 
-— 2021年12月8日郭文贵先生GTV直播
+为了强调武汉实验室的活动与病毒爆发之间可能存在的联系，陈做了一个滑稽的比喻：“假设我们在 2018 年初的一份文件中发现，他们（武汉实验室）提议将牛角放在马头上 ， 然后在 2019 年底，不知何故，**那座城市突然出现了一只独角兽**。”
 
+尽管有这样的逻辑推论，《病毒》中的证据主要来自公开的研究论文、媒体报道和资助文件——但没有一个直接来自武汉病毒研究所。原因是：武汉实验室于 2019 年 9 月 12 日——即报告第一例感染的三个月前——下线了所有数据。
 
-**编辑/发稿：小鹿**
+2020年12月，武毒所新发传染病中心主任石正丽告诉BBC，武汉实验室数据库因多次黑客攻击而下线。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-2.png)
+合著者雷德利解释了这些隐藏数据的重要性：“**武汉有一个包含 22,000 个样本、标本和 [基因] 序列的数据库。该数据库在大流行开始之前就离线了。它从未重新上线**。 所以我们不知道里面有什么。那可以告诉我们很多关于他们在该机构研究的病毒的信息。”
 
-**更多资讯，更多关注**
+他说，在大流行开始前几个月故意压制科学数据，**这是表明武汉实验室参与了 SARS-CoV-2 释放的最有力证据之一。**
 
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+“这是非常了不起的，”雷德利说，“开发一个大型 [病毒] 数据库，作为预防流行病的努力的一部分，然后在大流行病来临时不发布数据。”
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+**中共病毒**
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+此次数据压制，并非中共第一次掩盖疫情信息。认清中共的行为，包括审查和逮捕警告危险的医生，《大纪元时报》将“中共病毒”作为SARS-CoV-2病毒的名称，编辑委员会在 2020 年初写道：“**这个名字让中共对其肆意无视人的生命，以及随后的大流行病承担责任，这种流行病使无数人……处于危险之中。**”由于官方对病毒来源的说法已被证伪，中共病毒是否从研究所泄露的问题受到质疑。”
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+《病毒》的作者详细探讨了这种可能性，得出结论，武汉实验室是最有可能的病毒来源。
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-18-1.jpg)这张拍摄于 2021 年 8 月 4 日的照片显示，在中国湖北省武汉市的 Covid-19 检测机构 “火眼”（Fire Eye）实验室，穿着个人防护装备 (PPE) 的实验室技术人员正在处理要检测 Covid-19 冠状病毒的样本（STR / AFP 通过盖蒂图片社）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+**科学界的失败**
 
+作者探索的另一个难题是：**世界科学界和医学界对病毒起源的关注惊人地缺乏**。
 
+**世界上的卫生和科学组织未能完成保护和告知公众的使命**。“可以公平地说，他们让公众失望了，”他说。“WTO进行了一项耗时很长的调查，但坦率地说，这是相当肤浅的，结果也相当糟糕。”
 
+雷德利说美国人没有做应该做的事： “美国政府没有提供它必须提供的已经拥有的信息——**因为它资助了这个领域的研究。****”**
 
+“**而且科学出版机构并没有像它们应该的那样透明**——而是出版现在似乎是一种政治偏好，过早地排除了一个假设[实验室起源]。”
+
+**即使是世界新闻界**也未能履行其调查和报道的职责。雷德利说，“主流媒体对病毒的起源几乎没有表现出好奇心”。 社交媒体平台“**甚至禁止谈论一个更明显的假设**。 Facebook 不让任何人讨论实验室泄漏问题。因此，**在各个层面上都令人惊讶地缺乏透明度和问责制。**”
+
+“**整个故事在很大程度上取决于一些非常勇敢和坚持不懈的人**，”雷德利说。“研究难以找到的信息来源，并拼凑出极具价值的信息的开源分析。这是一个非常有趣的公民科学案例。”
+
+哈德逊研究所高级研究员戴维·阿舍 (David Asher) 评论道：“**这本书读起来真的像对我的控诉****——****不仅是对中共政府的控诉，而且是对我们如何抹去证据的全球控诉，我们掩盖了惊人的数量公开披露的信息。这对我来说几乎是无法解释的。****”**
+
+阿舍尔说，这场大流行“实际上是自二战以来降临在我们国家和世界上的最大灾难。它约占 GDP 的 20% [由于大流行限制而损失]。这比我们在整个大萧条中损失的还多。”
+
+“所以问题是：**我们国家卫生当局的情况如何，他们为什么这样做**？”
+
+参考资料：[theepochtimes][New Book Points to Global Coverup of Pandemic Origins](//www.theepochtimes.com/mkt_morningbrief/new-book-points-to-global-coverup-of-pandemic-origins_4156594.html?utm_source=Morningbrief&amp;utm_medium=email&amp;utm_campaign=mb-2021-12-15&amp;mktids=9b6fa8e6ca2219d05592f2de0713cf4d&amp;est=AOO%2FxaeS7XRbOFRwb3RbaMJPWxmceZ9cPrwlYniPVfXeAKcscB6%2FXaO%2F%2F6qZdpI7FRX2kA%3D%3D)
+
+* * *
+
+*审核：文乐*
+*校对 : 信心满满*
+*发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-3.jpeg)
 
  
 

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/16/2021 2:13 AM (UTC)`
+
+12/15/2021 Miles Guo: Ivermectin is a wonder drug discovered by a Japanese in nature, which has been molecularized and medicalized to treat Onchocerciasis in Africa for free; on the contrary, although Ms. Tu Youyou’s Artemisinin is a billion times more effective than Ivermectin, the CCP refused to share it with the world!<br/><br/>12/15/2021 文贵直播：伊维菌素是日本人发现于自然界的神药，经分子化、医药化后，免费提供非洲治疗河盲症；屠呦呦女士的青蒿素比伊维菌素神奇亿万倍，却被中共老杂毛雪藏、不与世人分享<br/>
+![img](https://media.gettr.com/group11/getter/2021/12/16/02/a716717e-8dae-c600-b2aa-c4023c4711c0/out.jpg)
+
+---
+
 `@miles 12/16/2021 12:26 AM (UTC)`
 
 15/12/2021  On 6th Day of Launch, MV "Hcoin To the Moon" Hits iTunes <br/> No. 1 🥇on 18 Countries Top MV Charts !<br/>No.1🥇 on 16 Countries Rock MV Charts!<br/>No.1🥇 on 9 Countries Rock song Charts!<br/>No.1🥇on 6 countries Hip-pop/Rap song Charts!<br/>Miracle continues…….🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, USA, Taiwan, Australia, Canada, Singapore, New Zealand, Thailand, Cambodia, Laos, Hungary， Greece, Philippines, Malaysia, Fiji, Latvia, Macau, Finland!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1757964/<br/><br/>12月15号，MV版Hcoin To the Moon上线第6天位列iTunes<br/>18国热门MV榜首🥇！<br/>16国摇滚MV榜首🥇！<br/>9国摇滚歌曲榜首🥇！<br/>6国嘻哈歌曲榜首🥇！<br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港，美国，台湾，澳大利亚，加拿大，新加坡，新西兰, 泰国，柬埔寨，老挝，匈牙利，希腊，菲律宾， 马来西亚，斐济，拉脱维亚，澳门，芬兰的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏
@@ -154,13 +161,6 @@ We conducted a preliminary survey about the effects of artemisinin supplements a
 
 12/12/2021 Miles Guo: Princess Xi is really something - many Chinese businesspersons have dined with her by bragging too much without knowing her real identity; the CCP regime in the past decade has been ruled by Xi Jinping and Peng Liyuan family via the so-called National Security Committee which has bypassed the CCP’s Party Standing Committee and the State administration; Xi’s foreign intelligence matters are in the hands of Xi’s sister family<br/><br/>12/12/2021 文贵直播：习公主可不是一般人，很多企业家和她吃过饭吹过牛，但竟不知她就是习公主；过去十年的中共国基本被习彭通过所谓的国家安全委员会架空了常委会和行政机构，习的海外情报网由习的姐姐家族掌控<br/>
 ![img](https://media.gettr.com/group31/getter/2021/12/13/22/5e74d3e0-920e-22ab-6f4f-ce6dcc341ea4/out.jpg)
-
----
-
-`@miles 12/13/2021 10:23 PM (UTC)`
-
-12/12/2021 Miles Guo: What will happen if Xi Jinping is assassinated? That will be so tragic for China. Assasination of Xi (Jinping) will not help to take down the CCP, also at least 50% of the Chinese people being heavily brainwashed may “respect” him as a national hero. We wish Xi could survive till the day the Chinese Communist Party is taken down<br/><br/>12/12/2021 文贵直播：现在如果习近平被暗杀会怎么样？那将是中国的悲剧，习被暗杀非但不能灭了邪恶的共产党，至少中国会有一半儿被洗脑的人尊他为民族英雄，我们希望习活下去，直到中共被消灭<br/>
-![img](https://media.gettr.com/group49/getter/2021/12/13/22/69dffb65-6a03-af6d-0d6c-8f90ad2a8d8a/out.jpg)
 
 ---
 
