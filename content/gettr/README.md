@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/16/2021 7:43 AM (UTC)`
+
+12/15/2021 Miles Guo: The West will provide the Tibet independence forces with weapons, money, and food and will take care of their descendants; Hong Kong, Taiwan, Xinjiang, and Tibet should join forces to fight against the CCP. If the CCP dares to take action, the world shall decouple from the CCP economically; there are more bills to be introduced for Xinjiang, Tibet, Hong Kong, and Taiwan<br/><br/>12/15/2021 文贵直播：西方将为藏独提供武器、钱和粮食，救助藏独人士的后代；港台疆藏应联合抗共，若中共动手，世界就跟它经济脱钩；还有更多对新疆、西藏、香港、台湾的法案要出台<br/>
+![img](https://media.gettr.com/group21/getter/2021/12/16/07/e5c63733-85e6-7c93-0bc8-29dcf1722842/out.jpg)
+
+---
+
 `@miles 12/16/2021 7:29 AM (UTC)`
 
 12/15/2021 Miles Guo: I said in as early as 2017 that the US would introduce a series of bills targeting Xinjiang and Tibet; Xi Jinping ordered the CCP’s diplomats who are “wolf warriors” and “sheep warriors” to bluff around the world, resulting in the return of Taliban to Afghanistan, causing mass killings<br/><br/>12/15/2021 文贵直播：早在2017年，七哥就表示美国将出台一系列针对新疆、西藏的法案；习近平指挥其中共外交战狼和外交战羊全球鼓吹，导致塔利班重返阿富汗，制造出人类大屠杀<br/>
@@ -150,13 +157,6 @@ Dec 14, 2021 Breaking news: Mr. Miles Guo's latest single “HCoin to The Moon�
 
 最近，我们初步的完成了关于青蒿素保健品和药品效用的问卷调查。调查结果显示，青蒿素会改善和缓解疫苗副作用及其他基础疾病。所有细节均包含在如下的报告里。青蒿素是中共病毒和中共病毒疫苗的解药，我们将继续推进真相。请遵医嘱。
 ![img](https://media.gettr.com/group29/origin/2021/12/14/02/b40c46cb-4cf8-0b4a-25e0-6521d2c52766/2f819549854a45495c31ac76700944de.png)
-
----
-
-`@miles 12/14/2021 2:47 AM (UTC)`
-
-We conducted a preliminary survey about the effects of artemisinin supplements and derivatives lately. The results show ameliorative effects of artemisinin against the vaccine-induced symptoms and other pre-exsiting conditions. All the details are included in the following report. We will keep promoting the truth about artemisinin as the antidote to the CCP virus and the CCP virus vaccine. Please follow the doctor's advice.
-![img](https://media.gettr.com/group36/origin/2021/12/14/02/bce39036-5142-966f-f0b6-c283620ad664/8cf272714fd04105dfd54a767a289b26.png)
 
 ---
 
