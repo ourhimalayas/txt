@@ -2,46 +2,39 @@
 ---
 
 
-## 躺平币为灭共而生，上线第一天一定可兑现可支付可流通
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1759663/)
+## 专家告诉议员，新冠病毒是在武汉实验室“设计”的
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1759726/)
 
-原视频连接：[MILES GUO 直播 2021-12-09健身乱聊直播。](https://gettr.com/streaming/pj858hb609)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/8121.jpg)图片来源：NBC News
+翻译：皮特
+编辑：文泓
 
+12月16日，据《每日电讯报》报道，麻省理工学院和哈佛大学的基因治疗和细胞工程专家艾琳娜∙陈博士在科学和技术特别委员会上发言指出：
 
+“我认为实验室起源的可能性更大。现在知道大流行病起源的人而言，挺身而出是不安全的。但我们生活在这样一个许多信息被储存起来的时代，这些信息最终会被人们了解”，陈博士说：“我们从许多顶级病毒学家那里听说，基因工程的起源是合理的，其中包括对第一个萨斯病毒做出修改的病毒学家。我们知道这种病毒有一个非常特殊的特征，叫做弗林酶切位点，如果没有这个特征，就不可能造成这种大流行。”
 
-**郭文贵先生：**另外一个大家记住，国内我们未来的躺币就是只要是国内的灭共的，当然了这很容易，就像过去支付宝还有秒视频这些社交媒体、微博，只有你要推多少人文——灭共的文章，有多少动作在电脑上、手机上都有记忆。
+“**一项提案被泄漏，生态健康联盟和武汉病毒学研究所正在开发插入弗林酶切位点的系统**。因此，你发现这些科学家在2018年初说，‘我要给马装上牛角’，结果在2019年底，这只独角兽出现在武汉市。”
 
-只要你躺平，就有躺平币，而且躺平币未来都有规划会出乎你的想象，马上就可以兑现，马上就可以买面包、买油，为什么？大家问这钱哪来的呢？大家走着看。如果是七哥说到做不到，那就是骗你们了，七哥还没有说到做不到的，这就是我们要做到的。
+英国记者雷德利爵士与陈博士共同写了一本书《寻找新冠病毒起源》。他说，经过近两年的时间，“我们仍然没有找到一个可能是初始起源的受感染动物”，这“令人难以置信”。
 
-躺平币跟咱们躺平币本身没关系，有国际上好多机构、金融机构跟我们合作，给躺平币给它一个贴现的还有支付的一个保证，这就是我们的系统牛，完全去中心化的币，完全独立的。但有第三方、第四方买这个币，那你就没办法，是吧？
+雷德利爵士呼吁，揭露那些认为“释放大流行病是可以逃脱罪责的坏蛋们”。
 
-所以躺平币上线第一天一定会可兑现、可支付、可流通，所以说国内的战友们还有国外抗议的战友们，这非常的重要。
+现在新冠病毒起源很可能就是武汉实验室，这一事实与去年相比有了很大的改变。当时仅仅讨论这种可能性就被打成可笑的“阴谋论”，在社交媒体上禁止传播这种理论。
 
-编辑整理：喜马拉雅的肉夹馍；
+正如我们之前强调的那样，生态健康联盟（一个与武汉实验室功能增益研究有广泛联系的组织）主席彼得·达扎克感谢安东尼·福奇博士在大流行病早期就否定了实验室泄漏理论。
 
-视频制作：Cindy；
+达扎克还被脸书委以“事实核查”（审查）与新冠病毒起源相关信息的任务，而谷歌通过YouTube也审查有关该理论的信息，也资助了达扎克的病毒研究。
 
-视频上传：Cindy；
+新闻链接：[MPs Told COVID Likely “Engineered” in Wuhan Lab – Summit News](https://summit.news/2021/12/15/mps-told-covid-likely-engineered-in-wuhan-lab/)
 
-G-News发布：黎明之前；
+发布：去中心化Math
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

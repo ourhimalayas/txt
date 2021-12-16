@@ -2,31 +2,47 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月15日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1759349/)
+## 郭文贵直播摘要和音频 2021.12.15
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1759416/)
 
-作者：香草山翻译部
+摘要撰稿人：文俊
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-3.jpg)
+音频提供者：左媛
+![](https://assets.gnews.org/wp-content/uploads/2021/12/07fde7ee17c0dbd05f8e3a7176bbf940.jpg)
+### 视频链接：
+
+[https://gtv.org/video/id=61b9e8037882000d5100be68](https://gtv.org/video/id=61b9e8037882000d5100be68)
+
+### 音频链接：
+
+### 摘要：
+
+- 时尚就是表达自我 表达时代 和这个时代的物质 文明 有人敢谈青蒿素吗 敢谈疫苗吗
+- 7哥不是反疫苗，是反这次假疫苗
+- 中共房地产：降价卖不让卖、银行要求配合做假账（借新还旧）、曾经有过3套房子的人，房加锁（3-5年不能卖）、预交三年物业管理费
+- 1.2亿人失业 最起码意味着3千万套房子(断供) 中共56万亿房地产经济能解决得了吗
+- 冬奥会之后会看到房地产崩塌 国内朋友们 一定是能拿一分拿一分 赶快跑
+- 6千多亿流入香港商业地产，99%是共产党的家人处理了国内的物业 到香港避险
+- 西藏独立法案：90%亚洲的水来自喜马拉雅，喜马拉雅上万个山脉保护了中国西部，西藏独立，中国的水没了，很多木头没有了。西藏战略位置不亚于台湾，西藏独立 ，中国彻底完了。新疆 也一定要求独立，香港 一定要求独立，台湾 绝对拿不走， 之后广东也会呼应（独立）
+- 盘古员工：都会给他们喜币 未来5年拿到的钱，比工作还要多，而且共产党找不到
+- 伊维菌素简直救了非洲 疟疾 某致盲的病症等
+- 青蒿素：比伊维菌素 牛千倍 青蒿素 绝对治疗癌症 延长人类的寿命
+- 最聪明的犹太人，疫苗接种率是最高的。最落后的非洲，疫苗接种率反而最低。不要放大阴谋论，很多人是长期惯性思维相信 科学
+- 打了疫苗一定要吃伊维菌素或青蒿素
+- 疫苗相信2个月全球一定会停 不会超过5个月
+- 明年年底一定要完成一个 战友们很大的贴现的目标
+- 新中国联邦创造的是 AI+生物科技+量子科技+数字货币的时代
+- GTV、GETTR、GNEWS会成为世界信息交易市场 社交媒体的时间交易市场 社交媒体的货币交易市场
+- 美国中期大选以后Facebook、twitter因为疫苗问题都会消失
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1215text-SC.png)
-校对：Stay文苑
 
-编辑：Stay文苑
 
-发稿：Stay文苑
 
-视频参看：[12.15  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61ba96077882000d5101a660)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/calendar.jpeg)
 
-**更多资讯，更多关注**
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+
+编辑发布：闪电训练
 
  
 
