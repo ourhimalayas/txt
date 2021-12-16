@@ -2,31 +2,35 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月15日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1759349/)
+## 立陶宛驻中外交人员全面撤离
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1759398/)
 
-作者：香草山翻译部
+#### 撰稿：日本东京方舟农场  海星
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-3.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3D81848D-F960-446E-9409-230802BFF7FF.jpeg)（图片来源：美联社）
+
+12月15日，立陶宛外交部宣布，该国驻中共国外交人员已经全部撤离。
+
+据《中时新闻网》援引《路透社》报导，立陶宛在当日的官方声明稿中表示，该国已经召回其派驻于北京的最高级别的外交官，相关业务将透过远程处理。有消息人士透露，立陶宛驻北京外交代表团的所有19名成员及其家属，15日当天就已搭上前往法国巴黎的班机，离开北京。
+
+另有知情人士表示，中共要求立陶宛驻中人员将外交人员识别证交给其外交部，这让维尔纽斯方面担忧，相关人员可能会失去外交豁免权，若持续待在中共国，人身安全堪虑。
+
+此前，立陶宛因允许台湾在该国设立事实上的大使馆而遭到中共国施压，中共外交部单方面将两国关系降级为代办级别，导致两国关系日趋紧张。
+
+*参考链接：*
+
+1. [*外媒：立陶宛外交代表團全面撤離大陸 稱「有安全風險」*](https://www.chinatimes.com/realtimenews/20211215005065-260408?chdtv)
+2. [*立陶宛撤中领馆？ 外交部：台湾与立国站在一起*](https://www.epochtimes.com/gb/21/12/15/n13439059.htm)
+3. [*中共国因台湾问题下调与立陶宛的外交关系*](https://gnews.org/zh-hans/1683651/)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1215text-SC.png)
-校对：Stay文苑
+* * *
 
-编辑：Stay文苑
+*素材采编：海星*
 
-发稿：Stay文苑
+*编辑：文顺*
 
-视频参看：[12.15  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61ba96077882000d5101a660)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/calendar.jpeg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+*发布：miumiu*
 
  
 

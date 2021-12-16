@@ -2,36 +2,26 @@
 ---
 
 
-## 立陶宛驻中外交人员全面撤离
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1759398/)
+## 中日财经爆：中共国房地产不良贷款率下半年会翻倍
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1759417/)
 
-#### 撰稿：日本东京方舟农场  海星
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-788.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.lawzsw.com%2Ftupian%2F271613985244902.jpg&amp;imgrefurl=https%3A%2F%2Fwww.lawzsw.com%2Fwenda%2F8948.html&amp;tbnid=Og8TMB8FjrG5iM&amp;vet=12ahUKEwiQroHCref0AhVIUJQKHZ0GBgAQMygUegUIARDAAQ..i&amp;docid=nlLCDvAku2wWFM&amp;w=640&amp;h=400&amp;itg=1&amp;q=%E4%B8%8D%E8%89%AF%E8%B4%B7%E6%AC%BE&amp;ved=2ahUKEwiQroHCref0AhVIUJQKHZ0GBgAQMygUegUIARDAAQ)
+标普全球评级12月15日 表示，由于下半年中共国房地产行业的困境加剧，到2021年底，中共国银行业的房地产不良贷款率可能会比今年年中增长逾一倍。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/3D81848D-F960-446E-9409-230802BFF7FF.jpeg)（图片来源：美联社）
+标普周三发布的一份研究报告称，中共国银行业的房地产不良贷款率在2021年年中为2.5%，2020年底为2%，到2021年底可能升至5.5%。
 
-12月15日，立陶宛外交部宣布，该国驻中共国外交人员已经全部撤离。
+标普表示，房地产行业面临压力，估计有大约三分之一的开发商陷入财务困境，这也将使2021年的整体不良贷款率提高约20个基点，可能会削弱银行的盈利能力。具有积极风险偏好或高度地理集中的银行持有的抵押品缓冲可能较为薄弱，因此会承受更大压力。
 
-据《中时新闻网》援引《路透社》报导，立陶宛在当日的官方声明稿中表示，该国已经召回其派驻于北京的最高级别的外交官，相关业务将透过远程处理。有消息人士透露，立陶宛驻北京外交代表团的所有19名成员及其家属，15日当天就已搭上前往法国巴黎的班机，离开北京。
+中共国银保监会多次警告说，不良资产对银行的压力一直存在，9月末银行业不良贷款余额为3.6万亿元。
 
-另有知情人士表示，中共要求立陶宛驻中人员将外交人员识别证交给其外交部，这让维尔纽斯方面担忧，相关人员可能会失去外交豁免权，若持续待在中共国，人身安全堪虑。
+“关键的政策方向保持不变，”标普表示，并预计2022年房地产开发贷款零增长，2023年和2024年将有小幅增长。
 
-此前，立陶宛因允许台湾在该国设立事实上的大使馆而遭到中共国施压，中共外交部单方面将两国关系降级为代办级别，导致两国关系日趋紧张。
+消息来源：[标普警告中国银行业下半年房地产不良贷款率可能翻番](https://cn.reuters.com/article/sp-china-banking-rea-npl-1215-idCNKBS2IU105?il=0)
 
-*参考链接：*
-
-1. [*外媒：立陶宛外交代表團全面撤離大陸 稱「有安全風險」*](https://www.chinatimes.com/realtimenews/20211215005065-260408?chdtv)
-2. [*立陶宛撤中领馆？ 外交部：台湾与立国站在一起*](https://www.epochtimes.com/gb/21/12/15/n13439059.htm)
-3. [*中共国因台湾问题下调与立陶宛的外交关系*](https://gnews.org/zh-hans/1683651/)
-
-
-* * *
-
-*素材采编：海星*
-
-*编辑：文顺*
-
-*发布：miumiu*
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
