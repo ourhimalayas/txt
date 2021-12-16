@@ -2,26 +2,24 @@
 ---
 
 
-## 疫苗强制令下卡车司机流失引发供应链问题
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1761471/)
+## 新中国联邦在多领域领先世界
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1761830/)
 
-作者：银河勇气星—骄子
+作者：香草山农场-晓仙女
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月14日，据当地媒体报道称，加拿大卡车司机运输集团明确表示，由于美加政府将自2022年1月15日起强制要求跨境卡车司机出示新冠疫苗接种证明，此举将导致业已恶化的供应链问题变得更加严峻。据了解，目前约有数千名卡车司机准备步行抗议此项政策。
+12月15日，郭文贵先生在当天的直播中向战友们展示了G-fashion的新品。而在谈到G-fashion产品的品质和时尚时，郭先生表示，新中国联邦所展示的时尚将引领全球，我们的行为更会改变世界。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-16-下午11.08.25.png)
+另一方面，在当今世界谈论网络科技3.0时，郭先生解释道，G系列非但早已超越了3.0，爆料革命还在网络科技方面引领着世界。郭先生强调，G系列以传播者为核心，还能让他们进出自由，且不会无故被屏蔽。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide7-6.jpeg)
+郭先生还声明，新中国联邦人是真正的“无苗族”，更是世界上最健康的族群，因此，每一个新中国联邦人都不需要看别人脸色，反应当做到不卑不亢，同时自信地面对无限美好的未来。
 
-另据加拿大卡车联盟CTA预计，如果加拿大政府继续执行该跨境新冠疫苗接种政策，或将致使约两万名从事跨境运输的卡车司机离职。对此，加拿大私人卡车理事会PMTC也认为，大约将有超过三万名司机因为该疫苗政策而离职，其比例高达26%。PMTC还提到，加拿大非越境的国内司机中未接种新冠疫苗的人数比例更高，达到30%。因此，倘若政府将新冠疫苗计划同时运用于非跨境司机群体中，则只会让如今的供应链问题愈加恶化。
+参考链接：[2021年12月15日 文贵大直播：Billboard和iTunes全球打榜记录- Hcoin To The Moon；欧美制裁 奥运人权经济；疫苗灾难 危害验证抗议 ；国内经济 地产负债脱钩；终共行动 中共是否报复](https://gtv.org/video/id=61b9e8037882000d5100be68)
 
-资料显示，在过去的22个月中，因政府的强制新冠疫苗接种计划，越来越多的跨境司机选择停止跨境运输，或者彻底离开运输行业，他们倾向于选择不需要被疫苗护照限制的工作。
+![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-参考链接：[Vaccine mandate for Canadian truckers could lead to mass exodus, severe supply chain issues](https://www.lifesitenews.com/news/vaccine-mandate-for-canadian-truckers-could-lead-to-mass-exodus-severe-supply-chain-issues/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
-
-总编：Ivy001
-编辑：Kathy文艺
-校正/发稿：谐趣园
+总编：文特
+编辑：文特
+校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

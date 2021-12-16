@@ -15,110 +15,110 @@
 
 ---
 
-### [西班牙调查发现疫苗护照计划对病毒感染率并无影响且传递错误信号：接种疫苗者不会传播病毒](/content/gnews/1/README.md)
+### [七哥谈GFashion (2021-12-15摘录）](/content/gnews/1/README.md)
+ ` MG FARM`
+
+### [西喜时事新闻简报 — 美国时事篇](/content/gnews/2/README.md)
+ ` wenwu`
+
+### [七哥谈反假疫苗（2021-12-15摘录）](/content/gnews/3/README.md)
+ ` MG FARM`
+
+### [西班牙调查发现疫苗护照计划对病毒感染率并无影响且传递错误信号：接种疫苗者不会传播病毒](/content/gnews/4/README.md)
  ` 波士顿五月花农场`
 
-### [七哥谈生物科技（2021-12-15摘录）](/content/gnews/2/README.md)
+### [七哥谈生物科技（2021-12-15摘录）](/content/gnews/5/README.md)
  ` MG FARM`
 
-### [银河快讯:日本开始第三剂疫苗职场接种申请；电子疫苗接种证书将用于出入境手续](/content/gnews/3/README.md)
+### [银河快讯:日本开始第三剂疫苗职场接种申请；电子疫苗接种证书将用于出入境手续](/content/gnews/6/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [七哥谈无欲则刚（2021-12-15摘录）](/content/gnews/4/README.md)
+### [七哥谈无欲则刚（2021-12-15摘录）](/content/gnews/7/README.md)
  ` MG FARM`
 
-### [七哥谈选举与查封共产党（2021-12-15摘录）](/content/gnews/5/README.md)
+### [七哥谈选举与查封共产党（2021-12-15摘录）](/content/gnews/8/README.md)
  ` MG FARM`
 
-### [七哥谈独立和自治（2021-12-15摘录）](/content/gnews/6/README.md)
+### [七哥谈独立和自治（2021-12-15摘录）](/content/gnews/9/README.md)
  ` MG FARM`
 
-### [银河快讯：日本生存危机与台湾紧急状态相关；日本呼吁“外交抵制”北京冬奥会](/content/gnews/7/README.md)
+### [银河快讯：日本生存危机与台湾紧急状态相关；日本呼吁“外交抵制”北京冬奥会](/content/gnews/10/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [七哥浅谈规划（2021-12-15摘录）](/content/gnews/8/README.md)
+### [七哥浅谈规划（2021-12-15摘录）](/content/gnews/11/README.md)
  ` MG FARM`
 
-### [日本首相将不出席北京冬奥会开幕式](/content/gnews/9/README.md)
+### [日本首相将不出席北京冬奥会开幕式](/content/gnews/12/README.md)
  ` HimalayaRussia`
 
-### [七哥谈中共放毒（2021-12-15摘录）](/content/gnews/10/README.md)
+### [七哥谈中共放毒（2021-12-15摘录）](/content/gnews/13/README.md)
  ` MG FARM`
 
-### [七哥谈万一（2021-12-15摘录）](/content/gnews/11/README.md)
+### [七哥谈万一（2021-12-15摘录）](/content/gnews/14/README.md)
  ` MG FARM`
 
-### [拜登政府对中共虐待维族人实施新制裁](/content/gnews/12/README.md)
+### [拜登政府对中共虐待维族人实施新制裁](/content/gnews/15/README.md)
  ` HimalayaRussia`
 
-### [这片土地从来就不属于中共](/content/gnews/13/README.md)
+### [这片土地从来就不属于中共](/content/gnews/16/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [大疆创新等8家中企被美国政府列入投资黑名单](/content/gnews/14/README.md)
+### [大疆创新等8家中企被美国政府列入投资黑名单](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国开发新软件工具可预测有可能激怒中共的行动](/content/gnews/15/README.md)
+### [美国开发新软件工具可预测有可能激怒中共的行动](/content/gnews/18/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [英国首相遭受保守党内大面积反水，新冠病毒通行证获议会批准](/content/gnews/16/README.md)
+### [英国首相遭受保守党内大面积反水，新冠病毒通行证获议会批准](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共正在利用美国的资金和技术称霸全球](/content/gnews/17/README.md)
+### [中共正在利用美国的资金和技术称霸全球](/content/gnews/20/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [加拿大军人向法院提起诉讼挑战疫苗强制令](/content/gnews/18/README.md)
+### [加拿大军人向法院提起诉讼挑战疫苗强制令](/content/gnews/21/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [银河快讯:日本强制社交网站报备用户数据存储位置；通胀接近2%](/content/gnews/19/README.md)
+### [银河快讯:日本强制社交网站报备用户数据存储位置；通胀接近2%](/content/gnews/22/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [伊维菌素、青蒿素撰写人类新篇章，平疫排苗延寿长](/content/gnews/20/README.md)
+### [伊维菌素、青蒿素撰写人类新篇章，平疫排苗延寿长](/content/gnews/23/README.md)
  ` YALUN 亚伦`
 
-### [12/16每日播报｜历史：西藏本是一个独立主权国家](/content/gnews/21/README.md)
+### [12/16每日播报｜历史：西藏本是一个独立主权国家](/content/gnews/24/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [习近平再次视频会晤普京能否挽回颓势？](/content/gnews/22/README.md)
+### [习近平再次视频会晤普京能否挽回颓势？](/content/gnews/25/README.md)
  ` 波士顿五月花农场`
 
-### [《西藏独立法案》对灭共的重要意义](/content/gnews/23/README.md)
+### [《西藏独立法案》对灭共的重要意义](/content/gnews/26/README.md)
  ` 波士顿五月花农场`
 
-### [12/16/21 香港快讯 廉署起诉两人煽惑他人投白票 涉转载许智峰贴文](/content/gnews/24/README.md)
+### [12/16/21 香港快讯 廉署起诉两人煽惑他人投白票 涉转载许智峰贴文](/content/gnews/27/README.md)
  ` 英喜-粵語組`
 
-### [著名的百老汇演出因奥密克戎病毒而取消](/content/gnews/25/README.md)
+### [著名的百老汇演出因奥密克戎病毒而取消](/content/gnews/28/README.md)
  ` 首尔天池农场`
 
-### [美国加强印太战略 联合盟友对抗中共](/content/gnews/26/README.md)
+### [美国加强印太战略 联合盟友对抗中共](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [美国在人权问题上多点密集打击中共](/content/gnews/27/README.md)
+### [美国在人权问题上多点密集打击中共](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [新中国联邦在多领域领先世界](/content/gnews/28/README.md)
+### [新中国联邦在多领域领先世界](/content/gnews/31/README.md)
  ` GTV新闻访谈`
 
-### [康奈尔大学因新冠疫情关闭校园](/content/gnews/29/README.md)
+### [康奈尔大学因新冠疫情关闭校园](/content/gnews/32/README.md)
  ` GTV新闻访谈`
 
-### [【Michael.Tonny专栏】中共病毒疫苗导致欧盟3万多人死 300多万人身体受伤害](/content/gnews/30/README.md)
+### [【Michael.Tonny专栏】中共病毒疫苗导致欧盟3万多人死 300多万人身体受伤害](/content/gnews/33/README.md)
  ` 温哥华扬帆农场`
 
-### [疫苗强制令下卡车司机流失引发供应链问题](/content/gnews/31/README.md)
+### [疫苗强制令下卡车司机流失引发供应链问题](/content/gnews/34/README.md)
  ` GTV新闻访谈`
 
-### [MV版Hcoin To the Moon上线第7天位列16国iTunes热门MV榜首！](/content/gnews/32/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中共超限战灭港行动（87）文宣战线「和你飞」万人接机集会](/content/gnews/33/README.md)
- ` 英喜-粵語組`
-
-### [12/15/2021文贵视角：《西藏独立法案》意味着什么？](/content/gnews/34/README.md)
+### [12/15/2021文贵视角：《西藏独立法案》意味着什么？](/content/gnews/35/README.md)
  ` 秘密翻译组-原创组`
-
-### [【零时差】印尼出现首宗Omicron病例](/content/gnews/35/README.md)
- ` Zero-Day【零时差】`
 
 ### [12/16每日播报｜与普京视频会晤 习近平镜头前连咳三声](/content/gnews/36/README.md)
  ` 秘密翻译组-即时新闻播报组`
