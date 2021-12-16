@@ -2,30 +2,34 @@
 ---
 
 
-## 中共利用服务器软件漏洞进行全球范围黑客活动
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1760024/)
+## 澳洲Digicel Telstra 的交易再次失败
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1760150/)
 
-#### 撰稿：彩虹
+撰稿：云彩
+视频来自网络
+亿美元资助澳洲通讯Telstra 收购一家主要太平洋电信公司Digicel Pacific的交易——以阻止中国获得它——可能已经接近失败。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-79.png)图片来源：Juniper
-Apache是一个服务器软件，本周，安全研究人员发现，来自包括中共国和伊朗在内的国家支持的黑客组织，正在积极利用Apache日志包Log4j中的一个重大漏洞，针对世界各地的服务器进行攻击。12月15日，《国会山报》对此做了报道。
+Digicel Pacific 为巴布亚新几内亚、斐济、瑙鲁、萨摩亚、汤加和瓦努阿图等国家提供移动连接和互联网数据服务。它在太平洋地区占据主导地位，是所列国家中排名第一的供应商，但斐济在市场上排名第二。
 
-根据报道，该log4j漏洞是许多机构组织使用的（服务器）系统的基础，很难完全修补。
+有争议的因素之一是成本。在[10 月 25](https://cdn-api.markitdigital.com/apiman-gateway/ASX/asx-research/1.0/file/2924-02440201-3A579039?access_token=83ff96335c2d45a094df02a206a39ff4)日[向证券交易所发布的公告中](https://cdn-api.markitdigital.com/apiman-gateway/ASX/asx-research/1.0/file/2924-02440201-3A579039?access_token=83ff96335c2d45a094df02a206a39ff4)，Telstra 透露，它仅向 16 亿美元（22.4 亿美元）的总收购价贡献了 2.7 亿美元（近 3.8 亿美元），但将拥有该公司 100% 的普通股。
 
-周二，微软更新了关于log4j漏洞的博客文章，指微软威胁情报中心（MSTIC）警告说，已经看到来自中共国、伊朗、北朝鲜和土耳其的国家操纵的黑客组织利用该漏洞（进行攻击）的证据。
+联邦政府下的澳大利亚出口金融管理部门通过低成本的无追索权贷款和类似股票的证券将剩余的 13.3 亿美元付诸实施，使 Telstra 的商业风险降至最低。
 
-该博客文章说，利用log4j的伊朗组织被微软称为“Phosphorus”，该组织一直在利用该漏洞发起勒索软件攻击。与此同时，一个名为“Hafnium”的中共国组织，之前曾利用了微软邮件服务器软件（Exchange）的缺陷（进行黑客攻击），已被认为正在使用log4j漏洞在全球范围内对成千上万的团体（服务器）进行攻击。
+不过，该交易已经重新启动快速交易。
 
-报道指，微软并不是唯一一个发现国家操纵（黑客）行为的组织。网络安全组织Mandiant的发言人本周告诉《国会山报》，“中（共）国政府行为者”正在利用log4j漏洞。这证实了安全研究人员本周的广泛担忧，即这些国家组织寻求利用该漏洞来推进（实现）其（国家）目标。
+点评：这笔交易的战略意义远大于商业意义。只是笔者看到该交易动用了纳税人19亿美元，Telstra仅用2.7亿美元但拥有Digicel Pacific 公司100%的股份。即使是在法治民主国家，政府首先想到也是其政治集团的利益。将来，去中心化，小政府是大趋势。
 
-然而，CISA（网络安全和基础设施安全局）负责网络安全的执行助理主任埃里克·戈德斯坦（Eric Goldstein）周二晚上告诉记者，虽然该机构看到了利用漏洞的情况，但它没有正式将此归咎于任何特定国家。
+编辑：云彩
 
-报道说，在过去的一周，CISA采取了一系列行动来解决这个漏洞，包括将log4j加入到CISA的漏洞目录中，要求联邦机构立即解决这个漏洞。CISA的联合网络防御合作组织也成立了一个高级领导小组，以关注该漏洞，而且CISA最近几天一直在与重要的私营部门合作伙伴保持定期联系。
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-**新闻来源**
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
 
-[China, Iran among those exploiting Apache cyber vulnerability, researchers say](https://thehill.com/policy/cybersecurity/585904-china-iran-among-those-seen-exploiting-apache-cyber-vulnerability)
+[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+
+参考资料:
+
+[澳洲通讯公司拟收购Digicel Pacific](https://www.abc.net.au/news/2021-12-14/digicel-deal-off-again-on-again-foi-documents-reveal/100697440)
 
  
 

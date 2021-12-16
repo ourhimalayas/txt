@@ -2,32 +2,49 @@
 ---
 
 
-## 郭先生谈“解脱”之道
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1759702/)
+## 科兴疫苗对中共病毒新变种Omicron的作用为零！
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1759751/)
 
-作者：东京樱花团 – 在远方
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-12月12日，郭先生在大直播中，和战友们谈到了“解脱”之道。郭先生多次表示，他本人并没有超能力，而是和所有人一样，有喜怒哀乐和七情六欲。但是经过人生的历练，看透事物的本质之后，自己得到了解脱。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture6.jpg)
-郭先生推崇佛教的禅宗，认为禅宗境界高深，可以引导人参透事物的本质。任何事物都有自身的运行规律，万事万物都是在相对条件下存在的，任何事物发生改变，都有可能影响到其他事物的存在状态。每个人的人生不过三万六千天，一天都是24小时，所不同的，只是死亡的时间罢了。当我们看透这一点，就不会过分执着于人生中一些具体的得失。
+#### 撰稿:  日本东京方舟农场  青衣
 
-虽被多次誉为中国的华盛顿，但郭先生表示，他欣赏华盛顿，但不会参政。他说，华盛顿的伟大之处，就在于他不贪恋权力。反观那些独裁者，最终都被权力和金钱吞噬。只要看清这些，人就会彻底解放。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/383C1762-C728-4CA4-B43C-CB84D6B72F07.jpeg)（图片来自网络）
 
-参考链接：[郭先生谈“解脱”之道](https://gettr.com/post/pjogym31f32.)
+据香港大学研究团队实验室近日公布的初步研究报告显示，中共国生产的科兴疫苗对中共病毒新变种Omicron完全无效。病毒专家认为，Omicron变种将是中共国面临的最大威胁。
 
-![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+据报道，香港大学传染病学教授袁国勇带领的研究团队，将50个人分成二组，分别接种复必泰疫苗（辉瑞疫苗的中文名）和科兴疫苗，然后将他们的血清进行对比，看这两种疫苗是否可以对抗最新的中共病毒Omicron变种。
 
-总编：飞虹
-编辑：飞虹/雪梨
-校对/发稿：Hetangyuese
+结果显示，接种者的血清抗体对Omicron变种的抵抗能力大幅度下降。在接种复必泰的25人中，只有5人血清中的中和抗体达到对Omicron变种病毒有效的水平，疫苗效率大幅削弱至20%～24%；而25名科兴疫苗接种者的中和抗体竟然为零！
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+港大团队的这项研究报告已发表在医学期刊《临床传染病》上，并引起了极大关注。
+
+美国沃尔特‧里德陆军研究院病毒疾病系前实验室主任、病毒学专家、微生物学博士林晓旭对此表示，研究结果显示，mRNA疫苗所产生的中和抗体对Omicron变种基本无用。
+
+林晓旭指出，这是袁国勇团队研究的第一个重要发现，对全球疫苗界来说，是一个重磅打击。
+
+林晓旭认为袁国勇团队的另一个重要发现是，接种科兴灭活疫苗的血清样品中找不到对Omicron有中和能力的抗体，而这就是一个全面失效的例证。
+
+根据日本对Omicron变种的研究，Omicron的传播力非常强，至少是Delta变种的四倍。而在英国，Omicron目前也已成为主要的病毒株。
+
+据中共国媒体报道，天津市12月9日已从入境人员中检测出Omicron变异株。同日，香港新增两宗Omicron确诊病例，累计已有7人确诊Omicron病毒。
+
+林晓旭认为，Omicron变种进入了中共国，而国产疫苗又无效，该变种成为主导病毒只是时间问题，它将是中共国面临的最大威胁。
+
+就在港大袁国勇团队公布科兴疫苗对Omicron完全无效后，科兴公司居然在中共控制的媒体上发布消息称：初步研究显示，科兴加强针中和Omicron抗体阳性率达94%。这种极其恶劣、公然造假的无耻行为，不仅让人嗤之以鼻，更令人出离愤怒。
+
+*参考链接：*
+
+1. [*中国面临的最大威胁：科兴疫苗对Omicron无效*](https://www.aboluowang.com/2021/1216/1683963.html?utm_source=dlvr.it&amp;utm_medium=twitter)
+2. [*科兴初步研究：加强针中和奥密克戎抗体阳性率达94%*](http://www.takungpao.com/news/232108/2021/1216/666656.html)
+
+
+* * *
+
+*素材采编：青衣 2021年12月16日*
+
+*编辑：青衣2021年12月16日*
+
+*发布：miumiu*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

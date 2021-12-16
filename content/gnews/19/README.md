@@ -2,10 +2,10 @@
 ---
 
 
-## 全球最大疫苗生产商计划削减疫苗产量
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1759811/)
+## 法国国民议会议员团抵台访问
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1759869/)
 
-作者：银河勇气星—骄子
+作者：纽约香草山医疗部 – 云豹
 
 
 
@@ -13,18 +13,18 @@
 
 
 
-12月8日，因没有足够的订单，全球最大疫苗生产商印度血清研究所的总裁表示，将从12月13日开始，将疫苗产量减半，之后每个月还将持续削减。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1.2-8.jpg)
-据悉，印度成人疫苗接种率为50%。即使在最近奥米克戎导致全球恐慌的情况下，印度政府也尚未宣布加强针接种计划。此外，该公司也没有接到更多的国外订单。另据媒体消息，另一家疫苗制造商，也于近期搁置了一项生产一亿剂新冠疫苗的计划。
+12月15日，法国国民议会前议长、现任友台小组主席戴扈杰，率跨党派议员团共6人抵达台湾进行访问。
 
-有关分析人士表示，尽管很多国家政府还在强力推广疫苗，但从市场的真实反应来看，疫苗降温甚至被摈弃的趋势已经开始显现。
+此次法国国民议会议员访问团在台期间，预计将与蔡英文总统会面。 并将与政府的一些重要部门进行会谈，交流台法之间以及台湾与欧洲之间经济和文化合作的议题。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.3-4.jpg)
+今年10月，法国参议院友台小组主席李察刚刚率领议员团访问台湾，此次法国国民议会又派出了跨党派议员团访台，创下了欧洲单一国家国会两院议员团短时间内先后访台的纪录。 显示台法交流正持续增温、深化。
 
 参考链接：
-[World’s largest vaccine maker says it is slashing production by half until it receives more orders](https://sg.news.yahoo.com/world-largest-vaccine-maker-says-133314588.html)
+[法前議長戴扈傑率團抵台 國會兩院3個月內先後來訪創紀錄\[影\]](https://www.cna.com.tw/news/firstnews/202112150037.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-总编/编辑：飞虹
+总编/编辑：文特
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**
