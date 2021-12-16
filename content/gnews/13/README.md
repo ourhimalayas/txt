@@ -2,13 +2,11 @@
 ---
 
 
-## 研究显示美国授权的中共病毒疫苗对Omicron无效
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1759039/)
+## 12/15/2021 文贵直播：《西藏独立法案》意味着什么？
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1759077/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1216-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+秘密翻译组-北美组
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

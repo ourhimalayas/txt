@@ -2,62 +2,30 @@
 ---
 
 
-## 郭氏情报站 （三）12月12日/12月15日版
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1759084/)
+## 美参院通过新财年国防授权法 与中共战略竞争
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1759117/)
 
-**出品：纽约香草山设计部**
+![美国国会参议院通过《2022财年国防授权法》，为五角大楼提供资金维持美国军力。（参议院院会表决视频截图，2021年12月15日） ](https://gdb.voanews.com/3C57380D-8D1E-447F-88D2-848618773697_w1023_r1_s.png)*美国国会参议院通过《2022财年国防授权法》，为五角大楼提供资金维持美国军力。（参议院院会表决视频截图，2021年12月15日）*
+据美国之音12月16日报道，美国国会参议院15日以88票赞成、11票反对的压倒性结果通过《2022财年国防授权法》最终协调版。新财年的国防授权法开支总额高达7700亿美元。这部法案也以363票赞成、70票反对的结果通过众议院。
 
+法案将拨款71亿美元注入“太平洋威慑倡议”，为美国在印太地区与中共国的战略竞争提供资金。法案同时包括多项协助台湾提升自我防卫能力的具体措施，法案还要求国防部禁止购买任何新疆强迫劳动生产的产品。
 
+中共已经成为美国第一大威胁，两党没有异议地联手开始抵御中共的战略威胁。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+新闻参考链接：[https://www.voachinese.com/a/Senate-passes-ndaa-20211215/6356208.html](https://www.voachinese.com/a/Senate-passes-ndaa-20211215/6356208.html)
 
+编辑：胖丁
 
+* * *
 
-
-
-
-
-
-
-## ***12.12 郭氏情报站***
-
-✤美国不会斩首习，但是中共党内高层多股政治力量意图杀掉习近平。 
-✤俄向中共明确表态：①俄不参与中共对台湾的行动。②中共必须兑现所有中俄之间的油气协议，否则就联美对中。③俄罗斯排除中共意欲与印度，北朝鲜，巴基斯坦，伊朗形成新的战略同盟。 
-✤美国每15人就有1人受爆料革命影响而反对强制注射冠状病毒疫苗，其总人数多于2300万。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-151219.jpg)
-## ***12.15 郭氏情报站***
-
-❖在墙内1.2亿人(约10%)失业的状况下，过去7个月，有6千多亿资金流入香港商业地产，其中大部分来自共产党的家人处理的国内物业。 
-❖青蒿素：不仅仅是中共病毒和假疫苗的解药，而且对治疗癌症和延长人类寿命效果显著。 
-❖美国2022年中期大选以后，Facebook、Google、Twitter因为疫苗问题都会消失。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-184211.jpg)
-**上一期：**
-
-[**灭共者之郭氏情报站（二） – GNEWS**](https://gnews.org/zh-hans/1741507/)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-**编辑/发稿：小鹿**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-2.png)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
