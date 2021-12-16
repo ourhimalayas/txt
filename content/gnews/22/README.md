@@ -2,50 +2,31 @@
 ---
 
 
-## 日本首相将不出席北京冬奥会开幕式
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1762263/)
+## 七哥浅谈规划（2021-12-15摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1762264/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+文编：Hima
+听写：叮叮
+视频：七哥
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/12/J-4.jpg)qazet.az
-擅于玩文字游戏的日本，5天前已经表态，将不会派部长一级的官员参加北京冬奥会【1】，咋又冒出这样一则消息，“日本首相将不出席北京冬奥会开幕式”？
+来源：郭先生2021-12-15直播12:18:23 摘录
 
-英国《卫报》12月16日的文章摘要称，岸田文雄（Fumio Kishida）没有透露其他官员是否会出席，也不清楚他是否会加入美国领导的抵制人权运动。【2】
+这战友问这问题太广泛了，太广泛了啊。简单的说一定有规划，没规划能走到今天吗？“邦”就是把各省，各种群体利益个性化，安防啊，还有经济各方面的文化，都是保持尊重和独立的情况下形成的联合体啊。所以说没有什么其他的，战友问这问题说明对新中国联邦不了解，你再了解了解再问吧谢谢。
 
-全文如下：
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-日本首相岸田文雄表示，他不会出席北京冬奥会的开幕式，但不清楚日本是否会加入以美国为首的，以侵犯人权为由的对北京冬奥会的外交抵制。
+**关注我们**
 
-岸田文雄周四（12月16日）在议会发表讲话时表示：“我目前没有参加的计划”，但没有澄清日本是否会派任何官员参加此次活动，有报道称日本不太可能完全冷落东道主。
+Discord 账号
 
-岸田文雄只表示，他将根据日本的“国家利益”作决定，决定可能会在今年年底之前作出。媒体报道称，部长和政界人士可能不会出席奥运会，而日本则选择派遣与2020年东京奥运会有关的官员，以“保全面子”，包括组委会主席桥本精子（Seiko Hashimoto）。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-中共指责美国、英国、加拿大和澳大利亚“装腔作势”，并警告他们将为宣布不向北京派出官员和政治家代表团而“付出代价”，他们的运动员还将参加比赛。
+Gettr 账号
 
-参与抵制的国家表示，他们抗议中共侵犯人权的行为，包括对新疆维吾尔族穆斯林的待遇，镇压香港的民主和自由以及镇压西藏。
-
-在奥运会开幕前不到两个月的时间里，抵制让美国在亚太地区的重要盟友日本陷入了困境。
-
-日本与中共国——其最大的贸易伙伴——有着深厚的经济联系，在明年外交关系正常化50周年之际，日本不想表现出冷落北京的样子。
-
-此外，尽管公众因担心中共病毒而普遍反对，中共国官员还是对举办今年夏季的东京奥运会做出了支持的决定。
-
-韩国总统文在寅（Moon Jae-in）本周表示，韩国不会加入抵制行动，称2月4日至20日举行的奥运会对首尔与北京的关系“有利”。
-
-中共外交部发言人汪文斌对文在寅的宣布表示欢迎，而警告日本“将体育政治化违背了《奥林匹克宪章》的精神”。
-
-在与其他七国集团国家外长会议的休会期间，将主办2024年夏季奥运会的法国表示，它将向北京冬奥会派遣高级官员。
-
-（全文完）
-
-首鼠两端、只顾眼前利益的日本政府竟然很在意“日中关系正常化50周年”，你们欠了中国人多少血债？如果不是你们悍然侵华，蒋介石基本上能将共匪清除，正是由于你们，才给了这个邪魔中共以喘息机会，让魔鬼掌控了中华大地。你们再不悬崖勒马，新中国联邦也饶不了你们！
-
-有关链接：
-
-【1】[https://gnews.org/zh-hans/1745008/](https://gnews.org/zh-hans/1745008/)
-
-【2】[https://www.theguardian.com/sport/2021/dec/16/japan-pm-will-not-attend-beijing-winter-olympics-opening-ceremony](https://www.theguardian.com/sport/2021/dec/16/japan-pm-will-not-attend-beijing-winter-olympics-opening-ceremony)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
