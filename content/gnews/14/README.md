@@ -2,34 +2,27 @@
 ---
 
 
-## 因拒绝公开全部疫苗数据，FDA面临法律挑战
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1759708/)
+## 字节跳动裁员继续
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1759734/)
 
-作者：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-12月14日媒体消息，根据《信息自由法》，非营利组织公共卫生和透明医疗的专业人员，已将美国食品和药品管理局诉诸法院，并将于周二出席听证会，要求美国食品和药品管理局另外提交40多万页、有关新冠疫苗的审批文件。
+撰稿：子喜太一
+![](https://assets.gnews.org/wp-content/uploads/2021/12/163.jpg)图片来自网络
+先前在商业化、教育、游戏等多条业务线开启裁员的字节跳动，继续精简部门，已于近日整体撤销人力资源部门旗下的人才发展中心团队。
 
-据悉，美国食品和药品管理局此前提出，将在未来55年披露疫苗相关信息，还表示将在2022年 1 月底之前发布 12,000 页的疫苗相关信息，并且今后每月“至少”发布 500 页。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture6-3.jpg)
-原告称，按照美国食品和药品管理局的进度，公众看到完整的疫苗信息可能要到 2097 年。 原告还表示，希望当局能在 108 天内向公众报告全部信息。
+根据中共国墙内媒体澎湃新闻报导，字节跳动的人才发展中心主要负责新员工、供应商管理等培训工作。官方回应说人才发展中心不适应公司的整体发展。这显然是对媒体及大众的敷衍。
 
-好消息是，本月早期，来自南卡罗来纳州的众议员拉尔夫·诺曼已提出一项法案，该法案可能迫使FDA在未来100天内公布所有审批数据。
+受双减政策影响，字节教育旗下的瓜瓜龙、清北网校、雪浪、硬体、校园合作等多个业务部门都已开启裁员；游戏方面，旗下Ohayoo平台被曝光裁撤应届生。
 
-参考链接：[因拒绝公开全部疫苗数据，FDA面临法律挑战](https://www.foxnews.com/health/fda-may-not-release-full-details-on-covid-19-vaccine-data-until-2097-report-says)
+字节跳动旗下的抖音，是CCP对国内老百姓洗脑及向全世界传播假消息的重要短视频媒体平台，裁员其他部门也有保护抖音存续的意味，当然整个网络媒体行业效益下滑是字节裁员的主因。
 
-![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+CCP从给全世界把脉到给全世界放毒，直接导致全世界经济的不稳定，但更重要的是暴露自己称霸世界的野心，并且会为达目的不择手段，哪怕毁灭全人类也在所不惜。为了眼前利益和CCP同流合污的不在少数，但正义和良知也从不缺乏，很多国家都看到了CCP的邪恶本质，尤其是西方大多数发达国家，这次对北京冬奥会的集体抵制就是最好的证明。
 
-总编：飞虹
-编辑：雪梨
-校对/发稿：Hetangyuese
+字节跳动这样的公司裁员，可以说是整个网络媒体行业或是中共国经济不景气的一个风向标，CCP的日子不多了，很快就会被全球孤立而饿死！
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+参考链接：[联合新闻网](https://udn.com/news/story/7333/5962728?from=udn-catebreaknews_ch2)
+
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

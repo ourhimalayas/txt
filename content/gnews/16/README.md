@@ -2,30 +2,27 @@
 ---
 
 
-## 截至12月14日，美国新冠病毒死亡超过80万人
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1759703/)
+## 8.8万港人申请定居英国
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1759716/)
 
-作者：纽约香草山农场   – 飞虹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-根据美国约翰·霍普金斯大学的数据，2021年12月14日是美国CCP病毒爆发以来的又一个严峻的里程碑，截至当日，已有80多万美国人死于该病毒或其并发症。同时，自CCP病毒爆发以来，美国已累计报告了5000多万例病例，远远超过世界上任何其他国家的病例数和死亡人数。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture6-1.jpg)
-当天下午，美国国会参众两院的多位议员，包括众议院议长佩洛西和参议院多数党领袖查克·舒默，一起站在国会大厦的台阶上，为逝去的生命默哀。
+撰稿：子喜太一
+![](https://assets.gnews.org/wp-content/uploads/2021/12/162.png)图片来自网络
+12月14日，英国政府表示截至9月底已有8.8万香港人根据新的签证计划申请在英国定居，该计划给予他们获得公民身份的途径。与此同时，伦敦发布了一份报告，谴责CCP打压香港异议人士。
 
-参考链接：[截至12月14日，美国新冠病毒死亡超过80万人](https://news.yahoo.com/us-marks-latest-grim-milestone-of-the-pandemic-800000-covid-19-deaths-201904997.html)
+英国政府今年1月针对香港人开通BNO签证通道，以应对CCP去年实施的国安法，英国称该法违反了北京关于维护香港和自治的承诺。在1997年香港回归前出生的香港人和他们的家属都可以获得BNO护照。
 
-![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+英国此前预测，第一年将有大约15.4万名香港人抵达英国，五年内则有多大32.2万香港人移居英国。
 
-总编：文特
-编辑：文特
-校对/发稿：Hetangyuese
+国安法强行出台前后，香港几百万人上街游行示威，警察暴力执法，流氓执法，香港年轻异议人士死伤无数，被鸡奸被强奸无数。无论CCP如何控制媒体，掩盖真相，事实就是事实，新中国联邦还是把真相传递给了全世界！经历如此磨难的香港人，早已看清CCP的魔鬼本质，冷血、残暴、杀人不眨眼，哪有什么一国两制，依法治国，全都是鬼话。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+英国政府开通BNO签证通道是对香港人的救援，短短九个月的时间就有近九万香港人申请定居英国，足以看出香港人对CCP的失望，或者说是恐惧，他们无法通过和平抗议来赶走CCP，那就只好自己想办法逃离。
+
+香港终于被CCP搞成臭港，早晚会变成空港，CCP终将要为自己的愚蠢、无知和自以为是付出代价，CCP必亡，全世界都在等着看它倒下！
+
+新闻参考链接：[联合新闻网](https://udn.com/news/story/7331/5962749?from=udn-catebreaknews_ch2)
+
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

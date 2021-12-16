@@ -2,26 +2,48 @@
 ---
 
 
-## 顶级心脏病专家说压制早期中共病毒治疗是“蓄意阴谋”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1759759/)
+## 全球最大疫苗生产商计划削减疫苗产量
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1759811/)
 
-编译：花岗岩
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-23.png)
-图片来源网络截图
+作者：银河勇气星—骄子
 
-据零对冲12月15日报道，在最近与乔·罗根的访谈中，彼得·麦卡洛博士解释说，从中共病毒大流行病开始，就有一种协同的力量在努力灌输恐惧，并隐瞒早期治疗该疾病的方案，以证明封锁和疫苗的合理性。
 
-贝勒大学医学中心前内科副主任、德克萨斯农工大学教授麦卡洛是在其领域内最广泛被引用的研究作者之一，并于2020年11月在美国参议院作证。自从站出来反对官方的大流行病应对措施以来，麦卡洛受到了左派的严格审查，说他传播了关于大流行病的 “医学错误信息”。
 
-他还在最近与加拿大病毒学家和流行病学家杰西卡·罗斯博士共同撰写的一篇论文中阐明了与疫苗有关的心脏问题事件，回顾了美国疫苗不良事件报告系统中的数据。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-在麦卡洛与乔·罗根的谈话中，他谈到全世界都在努力压制早期的中共病毒的治疗。
 
-他说：“在我看来，在早期，有一种有意的、非常全面的、对早期治疗的压制，以促进恐惧、痛苦、隔离、住院和死亡。而且这完全是有组织的，是故意的，目的是让人们接受，然后促进大规模的疫苗接种。”
 
-他说，在美国，只有大约500名医生真正了解发生了什么，而美国大约有一百万医生。
+12月8日，因没有足够的订单，全球最大疫苗生产商印度血清研究所的总裁表示，将从12月13日开始，将疫苗产量减半，之后每个月还将持续削减。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1.2-8.jpg)
+据悉，印度成人疫苗接种率为50%。即使在最近奥米克戎导致全球恐慌的情况下，印度政府也尚未宣布加强针接种计划。此外，该公司也没有接到更多的国外订单。另据媒体消息，另一家疫苗制造商，也于近期搁置了一项生产一亿剂新冠疫苗的计划。
 
-新闻链接：[Top Cardiologist Tells Joe Rogan Of “Intentional Plot” To Suppress Early COVID Treatments](https://www.zerohedge.com/covid-19/top-cardiologist-tells-joe-rogan-intentional-plot-suppress-early-covid-treatments)
+有关分析人士表示，尽管很多国家政府还在强力推广疫苗，但从市场的真实反应来看，疫苗降温甚至被摈弃的趋势已经开始显现。
+
+参考链接：
+[World’s largest vaccine maker says it is slashing production by half until it receives more orders](https://sg.news.yahoo.com/world-largest-vaccine-maker-says-133314588.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+
+总编/编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

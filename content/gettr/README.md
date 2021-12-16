@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/16/2021 7:29 AM (UTC)`
+
+12/15/2021 Miles Guo: I said in as early as 2017 that the US would introduce a series of bills targeting Xinjiang and Tibet; Xi Jinping ordered the CCP’s diplomats who are “wolf warriors” and “sheep warriors” to bluff around the world, resulting in the return of Taliban to Afghanistan, causing mass killings<br/><br/>12/15/2021 文贵直播：早在2017年，七哥就表示美国将出台一系列针对新疆、西藏的法案；习近平指挥其中共外交战狼和外交战羊全球鼓吹，导致塔利班重返阿富汗，制造出人类大屠杀<br/>
+![img](https://media.gettr.com/group43/getter/2021/12/16/07/f6079f1c-4477-290f-a0a4-d8f30ff369cc/out.jpg)
+
+---
+
 `@miles 12/16/2021 2:46 AM (UTC)`
 
 12/15/2021 Miles Guo: Three protective measures to take when participating in the protests to end the CCP: 1) prevent you from being infected by the virus; 2) prevent the CCP from messing things up and setting you up; and 3) prevent you from compromising to the CCP due to the threats posed by the CCP to your family in Communist China. Be prepared that 1) you won’t be able to go back to China before the downfall of the CCP, and 2) the CCP will not stop harassing you and your family<br/><br/>12/15/2021 文贵直播：参加终共街头抗议行动要注意“三防”（一防病毒、二防中共捣乱下套、三防因国内家人被威胁而心动）及“两个准备”（一、在灭共前不能回国了，二、中共会无休止地骚扰你和家人）<br/>
@@ -150,13 +157,6 @@ Dec 14, 2021 Breaking news: Mr. Miles Guo's latest single “HCoin to The Moon�
 
 We conducted a preliminary survey about the effects of artemisinin supplements and derivatives lately. The results show ameliorative effects of artemisinin against the vaccine-induced symptoms and other pre-exsiting conditions. All the details are included in the following report. We will keep promoting the truth about artemisinin as the antidote to the CCP virus and the CCP virus vaccine. Please follow the doctor's advice.
 ![img](https://media.gettr.com/group36/origin/2021/12/14/02/bce39036-5142-966f-f0b6-c283620ad664/8cf272714fd04105dfd54a767a289b26.png)
-
----
-
-`@miles 12/13/2021 10:29 PM (UTC)`
-
-12/12/2021 Miles Guo: Princess Xi is really something - many Chinese businesspersons have dined with her by bragging too much without knowing her real identity; the CCP regime in the past decade has been ruled by Xi Jinping and Peng Liyuan family via the so-called National Security Committee which has bypassed the CCP’s Party Standing Committee and the State administration; Xi’s foreign intelligence matters are in the hands of Xi’s sister family<br/><br/>12/12/2021 文贵直播：习公主可不是一般人，很多企业家和她吃过饭吹过牛，但竟不知她就是习公主；过去十年的中共国基本被习彭通过所谓的国家安全委员会架空了常委会和行政机构，习的海外情报网由习的姐姐家族掌控<br/>
-![img](https://media.gettr.com/group31/getter/2021/12/13/22/5e74d3e0-920e-22ab-6f4f-ce6dcc341ea4/out.jpg)
 
 ---
 

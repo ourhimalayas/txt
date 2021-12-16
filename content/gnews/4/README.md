@@ -2,40 +2,49 @@
 ---
 
 
-## 高级红衣主教警告精英们借由新冠病毒开始对“国家全面监控”
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1759798/)
+## 控言论同时不忘抢钱 中共网信办约谈处罚新浪微博
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1759813/)
 
-![](https://cdn.summit.news/2021/12/Screenshot-2021-12-14-at-12.52.56.png)*截屏/ST BONIFACE INSTITUTE*
-一位德国高级红衣主教近日警告说，比尔·盖茨（**Bill Gates**）、乔治·索罗斯（**George Soros**）和达沃斯经济论坛负责人克劳斯·施瓦布（**Klaus Schwab**）等人正在利用冠状病毒的流行来迫使世界处于全球主义“超级富豪精英”的“完全控制”之下。
-
-格哈德·路德维希·穆勒（Gerhard Ludwig Mueller）红衣主教，同时也是梵蒂冈法院的高级法官，在接受奥地利圣博尼法斯研究所（Austria’s St. Boniface Institute）采访时发表了上述言论。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-801.png)
-穆勒敦促道，“坐在财富宝座上的人”正在抓住一个“机会来推动他们的计划”。
-
-红衣主教补充说，这种大流行病已经导致了“混乱”和“动荡”，部分原因是精英们想通过对全球“国家监控”从而“让人们服从”。
-
-穆勒还表示，全球主义分子正在努力将“一个新的人类”带入世界，一个“按照他们自己的形象和样式”创造出来的人类，并警告说：“这与民主制度无关。”
-
-来自奥地利圣博尼法斯研究所推特的摘要
-
-尊敬的卡迪纳尔·穆勒（Kardinal Müller）阁下，前民盟省长称：“[他们]大声宣称，这是一个推动其计划的机会，可这是一个欺诈的计划，特别这种我们可以利用现代技术带来新的创造[…]的想法”。
-
-新闻链接：[https://summit.news/2021/12/14/senior-cardinal-warns-elites-ushering-in-total-control-surveillance-state-through-covid/](https://summit.news/2021/12/14/senior-cardinal-warns-elites-ushering-in-total-control-surveillance-state-through-covid/)
-
-翻译/简评: JS
-
-PR：clau
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+信息采集：日本方舟农场 – Andy5
+作者：纽约香草山农场 – 飞虹
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+据12月14日墙内媒体消息，中共网信办负责人约谈了新浪微博的主要负责人、总编辑，称近期新浪微博及其账号屡次出现法律、法规禁止发布和传输的信息，情节严重，并将依据中共《网络安全法》《未成年人保护法》等法律法规，责令其立即整改，严肃处理相关责任人。
+
+同时，北京市网信办对新浪微博运营主体开出了共计300万元人民币的罚单。
+
+据悉，从2021年1月至11月，中共国家网信办已经指导北京市网信办，对新浪微博实施了44次处置处罚，累计罚款已达1430万元。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.2-7.jpg)
+参考链接：
+[国家网信办依法约谈处罚新浪微博](https://www.sohu.com/a/508017708_267106)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+
+总编/编辑：文特
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
