@@ -2,21 +2,17 @@
 ---
 
 
-## 中共和俄罗斯在三个方面频繁交往
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1757833/)
+## 【文贵先生大直播PPT】中共缺钱了！中小银行催债力度前所未有
+` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1757953/)
 
-文编：东京樱花团/樱花传媒
+撰稿：墙内某神秘战友
+美工：Bobby （文俊）
 
-视频:东京樱花团/中文小视频组
+【2021年12月15日文贵先生大直播PPT：中共缺钱了！中小银行催债力度前所未有】
+![](https://assets.gnews.org/wp-content/uploads/2021/12/42-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/43-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/44-7.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/45-6.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/46-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/111-2-5.jpg)
+* * *
 
-12月3日，郭文贵先生在GTV大直播指出：
-
-虽然中俄在利用美国不可能同时应对两场战争，而试图拿下台湾及乌克兰方面，其次在疫苗的问题，以及准备面对战争和世界经济崩溃的问题上频繁交往，但中共和俄罗斯的关系却仍然很微妙。
-
-编辑：东京樱花团/墨然
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.jpg)
-
+编辑/发稿：云起时
 
  
 

@@ -2,55 +2,58 @@
 ---
 
 
-## 灭共者：地球是我们的一个支点
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1758596/)
+## 紧急：3 种方法来帮助阻止拜登的疫苗授权
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1758659/)
 
-**出品：纽约香草山设计部**
+编译：Jenny Ball
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-14-1.jpg)图片来源：today.line.me（翻摄自路透社）
 
+儿童健康防御组织([Children’s Health Defense](https://childrenshealthdefense.org/))呼吁科学家、公民和医学专家，帮助阻止拜登总统对员工、联邦承包商和医疗保健工作者的 COVID 疫苗授权。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+可以通过以下方式提供帮助： 在管理和预算办公室 ([OMB](https://www.regulations.gov/document/OMB-2021-0007-0001/comment))、医疗保险和医疗补助服务中心 ([CMS](https://www.regulations.gov/docket/CMS-2021-0168/comments))， 以及职业安全与健康管理局([OSHA](https://www.regulations.gov/document/OSHA-2021-0007-0001/comment))的每个联邦电子规则制定门户上发表评论，解释您反对这些指令的原因 。
 
+按照每个网站上的说明提交评论。 在发表评论之前，您还可以查看其他人在OMB，CMS 和 OSHA发表的评论：
 
+• OMB：截止日期 12 月 16 日
 
+• CMS：截止日期为 2022 年 1 月 4 日
 
+• OSHA：截止日期 2022 年 1 月 19 日
 
+**以下是您需要了解的有关每项疫苗强制规定的信息：**
 
+OMB：拜登总统于 9 月 9 日宣布了他的“走出大流行之路：COVID-19 行动计划”，并签署了一项[行政命令](https://na01.safelinks.protection.outlook.com/?url=https%3A%2F%2Fwww.whitehouse.gov%2Fbriefing-room%2Fpresidential-actions%2F2021%2F09%2F09%2Fexecutive-order-on-ensuring-adequate-covid-safety-protocols-for-federal-contractors%2F&amp;data=04%7C01%7C%7C16a4b2e0547b4fe7aaca08d9b5f306a5%7C84df9e7fe9f640afb435aaaaaaaaaaaa%7C1%7C0%7C637740877663535714%7CUnknown%7CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%3D%7C3000&amp;sdata=i3JTIJn%2FXvuTpF4ZF8jautSXUeevtNd8bYGxZkP2s5s%3D&amp;reserved=0)，强制要求联邦承包商接种 COVID-19 疫苗。
 
+提交完整疫苗接种证明的截止日期（除非该员工在法律上有权获得豁免）是 2022 年 1 月 18 日。[请在此处阅读完整的规定。](https://childrenshealthdefense.org/defender/action-omb-oppose-mandatory-vaccines-federal-contractors/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-image0-2.jpg)Our prospect is not Earth bound, rather, it is beyond Earth. Our aim is to fly higher and farther, using Earth as the fulcrum. We will be the first community of people to be able to travel to outer space legally and safely, to enjoy and to explore the universe. 
-— Mr. Miles Guo, GTV livecast on Dec. 5, 2021![我们真正的视野不在地球上，是在地球之外，地球是我们的一个支点，我们想走得更高、更远！我们将是最早合法地、安全地飞向外星空去旅游、去享受、去探索宇宙的新族类。 
-— 2021年12月5日郭文贵先生GTV直播](https://assets.gnews.org/wp-content/uploads/2021/12/2-image1-1.jpg)我们真正的视野不在地球上，是在地球之外，地球是我们的一个支点，我们想走得更高、更远！我们将是最早合法地、安全地飞向外星空去旅游、去享受、去探索宇宙的新族类。 
-— 2021年12月5日郭文贵先生GTV直播![](https://assets.gnews.org/wp-content/uploads/2021/12/3-20211214-04.png)Among all G-Series products or resources, GTV is the king, and it will always be. 
-— Mr. Miles Guo, GTV livecast on Dec. 5, 2021![](https://assets.gnews.org/wp-content/uploads/2021/12/4-20211214__1.png)到现在所有的G系列资源里边，GTV是王，永远都是王。
-— 2021年12月5日郭文贵先生GTV直播![](https://assets.gnews.org/wp-content/uploads/2021/12/5-20211214-11.png)The NFSC deserves the greatest credit for the many countries’ boycott of the Beijing Winter Olympics. The CCP is utterly bankrupt internationally due to the boycott, in terms of individual political credibility and national credibility.
-— Mr. Miles Guo, GTV livecast on Dec. 8, 2021![](https://assets.gnews.org/wp-content/uploads/2021/12/6-20211214-09.png)冬奥会被灭，新中国联邦是独一无二的最大的功劳。中共冬奥会在国际上，个人政治和国家信用已经彻底破产。 
-— 2021年12月8日郭文贵先生GTV直播![](https://assets.gnews.org/wp-content/uploads/2021/12/7-20211214-12.png)We are here to tell all that the CCP has prepared the biggest “coffin” for the world, that is the coronavirus and the vaccine. The specter of communism is murdering all mankind. 
-— Mr. Miles Guo, GTV livecast on Dec. 8, 2021![](https://assets.gnews.org/wp-content/uploads/2021/12/8-20211214-07.png)我们就是要告诉全世界，共产党给世界准备了最大的棺材就是冠状病毒和疫苗，共产主义正在杀害全人类。 
-— 2021年12月8日郭文贵先生GTV直播
+CMS：11 月 4 日，CMS 规定医疗保险和医疗补助（Medicare and Medicaid）认证的提供者、供应商和员工，必须接种 COVID-19 疫苗。
 
+然而，在 11 月 30 日，路易斯安那州联邦地方法院[发布了一项初步禁令](https://childrenshealthdefense.org/defender/biden-covid-vaccine-mandates-legal-setbacks/)，影响了全国的医护人员起来反对强制执行。
 
-**编辑/发稿：小鹿**
+法院表示：“在像这样的大流行期间，更重要的是保护我们宪法中规定的权力分立，以避免我们的自由受到侵蚀。” [在这里发表您对 CMS 的评论](https://www.federalregister.gov/documents/2021/11/16/2021-24949/determination-of-the-acting-omb-director-regarding-the-revised-safer-federal-workforce-task-force)。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-2.png)
+OSHA：要求拥有 100 名或更多员工的企业强制要求所有员工接种 COVID 疫苗的 OSHA 规定于 11 月 5 日生效。但是，在 11 月 16 日，OSHA 暂停了其关于工作场所强制性 COVID 疫苗接种和测试的紧急临时标准 (ETS) 的实施和执行。
 
-**更多资讯，更多关注**
+**在第五巡回上诉法院作出**[**长达****22****页**](https://na01.safelinks.protection.outlook.com/?url=https%3A%2F%2Fchildrenshealthdefense.org%2Fwp-content%2Fuploads%2F5th-Stay.pdf&amp;data=04%7C01%7C%7C78327c0d1280459a795408d9b5f78c37%7C84df9e7fe9f640afb435aaaaaaaaaaaa%7C1%7C0%7C637740897237681758%7CUnknown%7CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%3D%7C3000&amp;sdata=pZzBeeR%2BfcTWIMNf%2F7CuplWwoIfte%2FZZHAxgzg3%2BnWM%3D&amp;reserved=0)**的暂停裁决之后，该裁决称拜登政府的授权存在“致命缺陷”，并表示，职业安全与健康管理局应“在进一步的法院命令之前不采取任何措施来实施或执行该授权**。”
 
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+CHD 呼吁 OSHA 延长公众意见征询的截止日期，并向公众提交关于该命令对安全、健康和经济影响的环境影响报告。
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+美国参议院于 12 月 8 日[投票决定废除雇主授权](https://childrenshealthdefense.org/defender/senate-vote-repeal-biden-vaccine-mandates-employers/)，但该措施仍需提交给众议院。拜登暗示，如果该法案在参议院和众议院获得通过，他将否决该法案。
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+在此处阅读有关 OSHA 实施拜登授权的计划的更多信息，然后[在此处发表您对 OSHA 的评论](https://www.regulations.gov/document/OSHA-2021-0007-0001)。
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**评论：这是关乎我们健康自由和未来的紧急行动，让我们拿起法律武器，用宪法保护我们的权利！行动起来，到这些相关网站发声！**
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+**参考资料**：[childrenshealthdefense.org][Urgent: 3 Ways to Help Stop Biden’s Vaccine Mandates](https://childrenshealthdefense.org/defender/help-stop-biden-vaccine-mandates/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=73816dfa-7dfe-468a-b1c4-5ac2bc316bd4)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+* * *
 
+*审核：文乐*
+*校对 : 信心满满*
+*发布：信心的选择*
 
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-3.jpeg)
 
  
 
