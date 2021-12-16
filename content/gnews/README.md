@@ -15,89 +15,89 @@
 
 ---
 
-### [加拿大生活美谈 2021-12-09第三十三期](/content/gnews/1/README.md)
+### [三年持久抗议灭共即将开始！要做好#三防两准备。](/content/gnews/1/README.md)
+ ` 焦點20分`
+
+### [证据：中共病毒COVID疫苗导致朊病毒疾病](/content/gnews/2/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [加拿大生活美谈 2021-12-09第三十三期](/content/gnews/3/README.md)
  ` canadalifetalk`
 
-### [中共很早就在策划使用生化武器灭白 。辉瑞是共产党控制的公司。](/content/gnews/2/README.md)
+### [中共很早就在策划使用生化武器灭白 。辉瑞是共产党控制的公司。](/content/gnews/4/README.md)
  ` 焦點20分`
 
-### [12/16/2021 文贵直播：听说昨天彭“副主席”正式出场了，七哥咋又蒙对了呢？](/content/gnews/3/README.md)
+### [12/16/2021 文贵直播：听说昨天彭“副主席”正式出场了，七哥咋又蒙对了呢？](/content/gnews/5/README.md)
  ` 秘密翻译组-北美组`
 
-### [班农先生荣获《国家脉动》第二届年度爱国者奖](/content/gnews/4/README.md)
+### [班农先生荣获《国家脉动》第二届年度爱国者奖](/content/gnews/6/README.md)
  ` 墨尔本雅典娜农场`
 
-### [103名美海军陆战队员因拒绝疫苗强制令被解职](/content/gnews/5/README.md)
+### [103名美海军陆战队员因拒绝疫苗强制令被解职](/content/gnews/7/README.md)
  ` HimalayaRussia`
 
-### [5位共和党州长为国民警卫队寻求疫苗接种豁免权](/content/gnews/6/README.md)
+### [5位共和党州长为国民警卫队寻求疫苗接种豁免权](/content/gnews/8/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [白宫对维吾尔族强迫劳动法案持保留态度](/content/gnews/7/README.md)
+### [白宫对维吾尔族强迫劳动法案持保留态度](/content/gnews/9/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [美国将立法支持西藏独立，对中共是巨大的噩耗！](/content/gnews/8/README.md)
+### [美国将立法支持西藏独立，对中共是巨大的噩耗！](/content/gnews/10/README.md)
  ` 焦點20分`
 
-### [美国一些大型医院放弃了疫苗强制](/content/gnews/9/README.md)
+### [美国一些大型医院放弃了疫苗强制](/content/gnews/11/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [香港商业地产流入6千多亿资金。中共官员到香港投资避险](/content/gnews/10/README.md)
+### [香港商业地产流入6千多亿资金。中共官员到香港投资避险](/content/gnews/12/README.md)
  ` 焦點20分`
 
-### [美国客运铁路Amtrak暂停为员工接种疫苗](/content/gnews/11/README.md)
+### [美国客运铁路Amtrak暂停为员工接种疫苗](/content/gnews/13/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共国房地产崩溃已捂不住，将毁掉2-3代中国人！](/content/gnews/12/README.md)
+### [中共国房地产崩溃已捂不住，将毁掉2-3代中国人！](/content/gnews/14/README.md)
  ` 焦點20分`
 
-### [疾病预防控制中心警告即将到来的欧米克戎大面积传播](/content/gnews/13/README.md)
+### [疾病预防控制中心警告即将到来的欧米克戎大面积传播](/content/gnews/15/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [反疫苗的英雄Miles郭和爆料革命排第一](/content/gnews/14/README.md)
+### [反疫苗的英雄Miles郭和爆料革命排第一](/content/gnews/16/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [2021年12月15日郭文贵先生直播全文字版](/content/gnews/15/README.md)
+### [2021年12月15日郭文贵先生直播全文字版](/content/gnews/17/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [美国制裁与芬太尼相关的中共制药商](/content/gnews/16/README.md)
+### [美国制裁与芬太尼相关的中共制药商](/content/gnews/18/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [越南发生第5起“学生在注射辉瑞疫苗后死亡”事件](/content/gnews/17/README.md)
+### [越南发生第5起“学生在注射辉瑞疫苗后死亡”事件](/content/gnews/19/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美军侦察飞机监视解放军攻台演习](/content/gnews/18/README.md)
+### [美军侦察飞机监视解放军攻台演习](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [文贵直播12.15.2021：国内浙江疫情是病毒失控所致，中共以加强维稳来应对](/content/gnews/19/README.md)
+### [文贵直播12.15.2021：国内浙江疫情是病毒失控所致，中共以加强维稳来应对](/content/gnews/21/README.md)
  ` 秘密翻译组-原创组`
 
-### [GTV新闻访谈简报|2021年12月16日早](/content/gnews/20/README.md)
+### [GTV新闻访谈简报|2021年12月16日早](/content/gnews/22/README.md)
  ` 纽约香草山MOS01`
 
-### [人类和天地之间沟通就是音乐](/content/gnews/21/README.md)
+### [人类和天地之间沟通就是音乐](/content/gnews/23/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [制造于佛罗伦萨：重生的时刻](/content/gnews/22/README.md)
+### [制造于佛罗伦萨：重生的时刻](/content/gnews/24/README.md)
  ` 纽约香草山MOS03`
 
-### [不列颠哥伦比亚省小商业主因地产税突然增加而受困](/content/gnews/23/README.md)
- ` MG FARM`
-
-### [中共計劃向美國有影響力人士支付費用以推廣冬奧會](/content/gnews/24/README.md)
+### [中共計劃向美國有影響力人士支付費用以推廣冬奧會](/content/gnews/25/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共计划向美国有影响力人士支付费用以推广冬奥会](/content/gnews/25/README.md)
+### [中共计划向美国有影响力人士支付费用以推广冬奥会](/content/gnews/26/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [文贵直播12.15.2021 未来3年灭共大游行的“三防”与“两准备”](/content/gnews/26/README.md)
+### [文贵直播12.15.2021 未来3年灭共大游行的“三防”与“两准备”](/content/gnews/27/README.md)
  ` 秘密翻译组-原创组`
 
-### [玛莎·布莱克本参议员：对于北京冬奥会的抵制应当是全面而彻底的](/content/gnews/27/README.md)
+### [玛莎·布莱克本参议员：对于北京冬奥会的抵制应当是全面而彻底的](/content/gnews/28/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [七哥谈房地产崩盘（2021-12-15摘录）](/content/gnews/28/README.md)
- ` MG FARM`
 
 ### [滴水穿石：西藏恢复独立之日， 中共红魔倒毙之时](/content/gnews/29/README.md)
  ` 滴水穿石`
