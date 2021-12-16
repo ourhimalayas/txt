@@ -2,40 +2,48 @@
 ---
 
 
-## 高级红衣主教警告精英们借由新冠病毒开始对“国家全面监控”
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1759798/)
+## 中共关押近两千名西藏政治犯遭曝光
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1759812/)
 
-![](https://cdn.summit.news/2021/12/Screenshot-2021-12-14-at-12.52.56.png)*截屏/ST BONIFACE INSTITUTE*
-一位德国高级红衣主教近日警告说，比尔·盖茨（**Bill Gates**）、乔治·索罗斯（**George Soros**）和达沃斯经济论坛负责人克劳斯·施瓦布（**Klaus Schwab**）等人正在利用冠状病毒的流行来迫使世界处于全球主义“超级富豪精英”的“完全控制”之下。
-
-格哈德·路德维希·穆勒（Gerhard Ludwig Mueller）红衣主教，同时也是梵蒂冈法院的高级法官，在接受奥地利圣博尼法斯研究所（Austria’s St. Boniface Institute）采访时发表了上述言论。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-801.png)
-穆勒敦促道，“坐在财富宝座上的人”正在抓住一个“机会来推动他们的计划”。
-
-红衣主教补充说，这种大流行病已经导致了“混乱”和“动荡”，部分原因是精英们想通过对全球“国家监控”从而“让人们服从”。
-
-穆勒还表示，全球主义分子正在努力将“一个新的人类”带入世界，一个“按照他们自己的形象和样式”创造出来的人类，并警告说：“这与民主制度无关。”
-
-来自奥地利圣博尼法斯研究所推特的摘要
-
-尊敬的卡迪纳尔·穆勒（Kardinal Müller）阁下，前民盟省长称：“[他们]大声宣称，这是一个推动其计划的机会，可这是一个欺诈的计划，特别这种我们可以利用现代技术带来新的创造[…]的想法”。
-
-新闻链接：[https://summit.news/2021/12/14/senior-cardinal-warns-elites-ushering-in-total-control-surveillance-state-through-covid/](https://summit.news/2021/12/14/senior-cardinal-warns-elites-ushering-in-total-control-surveillance-state-through-covid/)
-
-翻译/简评: JS
-
-PR：clau
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+作者：东京樱花团—在远方
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+据西方媒体12月15日的消息，位于印度境内的“西藏人权与民主中心”，首次公布了最近30年来收集到的5518名被中共非法关押的西藏政治犯的详细信息，为中共在西藏实施的人权侵害又增添了新的证据。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-186.jpg)
+这些数据是该组织与总部设在日内瓦的非政府组织“人权信息与资料系统”合作取得的成果。数据显示，这些曾被关押的政治犯中，目前已有3000多名被释放，仍有1809人被关押在狱中。而除去这些通过公开来源获得的资料外，还有超过300起中共非法拘押案无法继续追踪。
+
+事实上，关押政治犯只是中共在西藏实施人权侵害的手段之一，组织大批汉人进藏，对藏人实行文化和民族同化，压制民族信仰，强迫藏族儿童离开父母接受纯汉化教育，是中共企图彻底消灭这个民族的更加罪恶的手段。
+
+参考链接：
+[数据显示上千西藏政治犯被关押，海外藏人呼吁国际抵制北京冬奥](https://www.voachinese.com/a/tibet-political-prisoners-and-human-rights-20211214/6354951.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+
+总编/编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

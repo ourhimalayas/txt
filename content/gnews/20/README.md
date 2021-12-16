@@ -2,26 +2,49 @@
 ---
 
 
-## 顶级心脏病专家说压制早期中共病毒治疗是“蓄意阴谋”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1759759/)
+## 班农先生将当今疫苗政策比喻为纳粹行为
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1759807/)
 
-编译：花岗岩
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-23.png)
-图片来源网络截图
+作者：东京樱花团—在远方
 
-据零对冲12月15日报道，在最近与乔·罗根的访谈中，彼得·麦卡洛博士解释说，从中共病毒大流行病开始，就有一种协同的力量在努力灌输恐惧，并隐瞒早期治疗该疾病的方案，以证明封锁和疫苗的合理性。
 
-贝勒大学医学中心前内科副主任、德克萨斯农工大学教授麦卡洛是在其领域内最广泛被引用的研究作者之一，并于2020年11月在美国参议院作证。自从站出来反对官方的大流行病应对措施以来，麦卡洛受到了左派的严格审查，说他传播了关于大流行病的 “医学错误信息”。
 
-他还在最近与加拿大病毒学家和流行病学家杰西卡·罗斯博士共同撰写的一篇论文中阐明了与疫苗有关的心脏问题事件，回顾了美国疫苗不良事件报告系统中的数据。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-在麦卡洛与乔·罗根的谈话中，他谈到全世界都在努力压制早期的中共病毒的治疗。
 
-他说：“在我看来，在早期，有一种有意的、非常全面的、对早期治疗的压制，以促进恐惧、痛苦、隔离、住院和死亡。而且这完全是有组织的，是故意的，目的是让人们接受，然后促进大规模的疫苗接种。”
 
-他说，在美国，只有大约500名医生真正了解发生了什么，而美国大约有一百万医生。
+据盖特12月14日消息，近日班农先生在采访中，将目前各国政府推行的疫苗政策与纳粹时期纳粹的一些行为进行了类比。班农先生认为，当前的疫苗政策在主流媒体舆论造势的配合下，把主要的社会问题都归咎于未接种疫苗的人，这将把人类社会推向地狱。
 
-新闻链接：[Top Cardiologist Tells Joe Rogan Of “Intentional Plot” To Suppress Early COVID Treatments](https://www.zerohedge.com/covid-19/top-cardiologist-tells-joe-rogan-intentional-plot-suppress-early-covid-treatments)
+早在二战之前，纳粹就对犹太人、天主教神父、同性恋者等进行了可怕的实验，将这些人视为低等、肮脏、另类的人群，并把社会存在的很多问题都归咎于他们。二战期间，日本对中国公民也实施了同样残忍的手段。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1.1-8.jpg)
+当前，世界各国对待未接种疫苗者的方式如出一辙。很多国家的法律、强制规定，以及主流媒体的主流言论都在企图将当前的社会问题归咎于未接种疫苗的人群。这种趋势非常可怕，需要引起更多人的关注和警惕。
+
+参考链接：
+[GTV UK Mr. Bannon’s Weekly Interview 1208-Q5](https://gettr.com/post/pjlqi9a4d6)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+
+总编：飞虹
+编辑：飞虹，雪梨
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

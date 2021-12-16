@@ -2,21 +2,23 @@
 ---
 
 
-## 截至12月14日，美国新冠病毒死亡超过80万人
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1759703/)
+## 美国心脏病协会：97.8%的年轻心肌炎患者在疫苗注射后一个月内患病
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1759707/)
 
 作者：纽约香草山农场   – 飞虹
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-根据美国约翰·霍普金斯大学的数据，2021年12月14日是美国CCP病毒爆发以来的又一个严峻的里程碑，截至当日，已有80多万美国人死于该病毒或其并发症。同时，自CCP病毒爆发以来，美国已累计报告了5000多万例病例，远远超过世界上任何其他国家的病例数和死亡人数。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture6-1.jpg)
-当天下午，美国国会参众两院的多位议员，包括众议院议长佩洛西和参议院多数党领袖查克·舒默，一起站在国会大厦的台阶上，为逝去的生命默哀。
+继发表大多数人在接种疫苗后发生心脏疾病的风险更高的研究后，美国心脏病协会于近日发表了一项最新研究。该研究指出，近期发病的年轻心肌炎患者中，绝大多数在发病前一个月内注射了实验性新冠病毒疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture6-2.jpg)
+发明婴儿心脏移植手术的心脏病专家 Steven Gundry 博士，对来自美国26个保健中心的、139名21岁以下年轻心肌炎患者进行了调查研究。结果显示，97.8%的心肌炎患者此前接种了疫苗，其中，131人注射了一剂辉瑞疫苗，128人注射了两剂。据悉，这些患者通常在接种疫苗2天内出现病症，胸痛最为常见，比例高达99.3%。
 
-参考链接：[截至12月14日，美国新冠病毒死亡超过80万人](https://news.yahoo.com/us-marks-latest-grim-milestone-of-the-pandemic-800000-covid-19-deaths-201904997.html)
+此外，Gundry 博士还表示，这些患者注射疫苗后，罹患心脏病和其他急性冠状动脉综合症的风险更高。
+
+参考链接：[美国心脏病协会：97.8%的年轻心肌炎患者在疫苗注射后一个月内患病](https://gettr.com/post/pjpcu29ede)
 
 ![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-总编：文特
-编辑：文特
+总编：雪梨
+编辑：雪梨
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**

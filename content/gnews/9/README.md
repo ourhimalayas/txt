@@ -2,46 +2,28 @@
 ---
 
 
-## 美国60多名议员致函国务院支持西藏自治
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1759870/)
+## 丹麦超过300人接种3剂疫苗后仍感染Omicron
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1759939/)
 
-作者：纽约香草山农场 – 飞虹
+#### 撰稿：日本东京方舟农场  幽蘭自得
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/57F720C4-0DF5-44F8-831F-49D8B1D9B080.jpeg)（图片来自altalex.com）
 
+据《自由时报》12月15日报道，丹麦卫生部门表示，该国已有超过300人接种了3剂疫苗，却仍感染Omicron。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+据悉，丹麦13日通报了7799起中共病毒病例，为疫情爆发以来新高，是上周同日的2倍之多。截至13日为止，丹麦累计3437人感染Omicron，其中9%打了3剂疫苗、75%打了2剂疫苗；另外，有37名感染Omicron者入院。
 
+也就是说，丹麦这次感染Omicron病毒的人中85%的人都完成了接种有的还接种了加强针，只有15%的人没有接种疫苗或者只接种一针。这样悬殊的比例很好地证明了疫苗不但没有预防作用，反而增加了感染病毒的可能性。
 
+*参考链接：[擋不住！丹麥逾300人打3劑疫苗 仍感染Omicron](https://news.ltn.com.tw/news/world/breakingnews/3769664)*
 
-12月15日，美国媒体报道，美国共和党参议员鲁比奥和民主党参议员莱希率领36位两党参议员、同时民主党众议员麦戈文和共和党众议员史密斯率领27名两党众议员，一起致函即将被任命为西藏问题特别协调员的美国国务院副国务卿乌兹拉·泽雅，对西藏自治表示支持，呼吁推动保护藏人权利、自治与尊严的西藏政策，并要求进一步确认西藏与中共国不同的政治、族裔、文化和宗教认同。
+* * *
 
-据悉，在信中，议员们列出了拜登政府与国会能够依据2002年“西藏政策法案”和2020年“西藏政策及支持法案”等法律共同推动美国西藏政策的11个具体领域，包括与达赖喇嘛接触、深化与藏人行政中央的接触、支持宗教自由以及达赖喇嘛指导其转世的权利等。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.4-2.jpg)
-参考链接：
-[美国60多名国会两党参众议员致函国务院支持西藏自治](https://www.voachinese.com/a/lawmakers-urge-to-make-tibet-priority-20211214/6354909.html)
+*素材采编：幽蘭自得*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+*编辑：文顺*
 
-总编/编辑：文特
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+*发布：miumiu*
 
  
 

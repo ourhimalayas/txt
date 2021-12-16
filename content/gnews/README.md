@@ -15,112 +15,112 @@
 
 ---
 
-### [中共以审查不足为由对新浪微博等社交媒体进行处罚](/content/gnews/1/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [标普预测中共国银行业下半年房地产不良贷款率或翻番](/content/gnews/2/README.md)
- ` 日本东京方舟农场`
-
-### [秘翻在线：中共代言人胡锡进通过自媒体宣布退休](/content/gnews/3/README.md)
+### [中共利用服务器软件漏洞进行全球范围黑客活动](/content/gnews/1/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2021/12/15 墙内世界](/content/gnews/4/README.md)
+### [中共以审查不足为由对新浪微博等社交媒体进行处罚](/content/gnews/2/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国联俄抗共 共产党必死无疑](/content/gnews/5/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [丹麦超过300人接种3剂疫苗后仍感染Omicron](/content/gnews/6/README.md)
+### [标普预测中共国银行业下半年房地产不良贷款率或翻番](/content/gnews/3/README.md)
  ` 日本东京方舟农场`
 
-### [战友们做好一切最坏的准备](/content/gnews/7/README.md)
+### [2018年6月16日 郭文贵先生报平安直播 全文字版](/content/gnews/4/README.md)
+ ` 温哥华扬帆农场七哥直播全文听写组`
+
+### [秘翻在线：中共代言人胡锡进通过自媒体宣布退休](/content/gnews/5/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [沃顿学院、美联储和美财政部全盘被单伟健打通，是王岐山绝对强大的海外蓝金黄势力](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新中国联邦的视野不只在地球，是所有人的依靠](/content/gnews/8/README.md)
+### [2021/12/15 墙内世界](/content/gnews/7/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [美国联俄抗共 共产党必死无疑](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国60多名议员致函国务院支持西藏自治](/content/gnews/9/README.md)
+### [丹麦超过300人接种3剂疫苗后仍感染Omicron](/content/gnews/9/README.md)
+ ` 日本东京方舟农场`
+
+### [战友们做好一切最坏的准备](/content/gnews/10/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [新中国联邦的视野不只在地球，是所有人的依靠](/content/gnews/11/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美国60多名议员致函国务院支持西藏自治](/content/gnews/12/README.md)
  ` GTV新闻访谈`
 
-### [法国国民议会议员团抵台访问](/content/gnews/10/README.md)
+### [法国国民议会议员团抵台访问](/content/gnews/13/README.md)
  ` GTV新闻访谈`
 
-### [新中国联邦不会忘记墙内做出牺牲和贡献的战友](/content/gnews/11/README.md)
+### [新中国联邦不会忘记墙内做出牺牲和贡献的战友](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [让单伟建和PAG在西方世界受到最严厉的惩罚](/content/gnews/12/README.md)
+### [让单伟建和PAG在西方世界受到最严厉的惩罚](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [西藏独立的地缘影响](/content/gnews/13/README.md)
+### [西藏独立的地缘影响](/content/gnews/16/README.md)
  ` 墨尔本雅典娜农场`
 
-### [控言论同时不忘抢钱 中共网信办约谈处罚新浪微博](/content/gnews/14/README.md)
+### [控言论同时不忘抢钱 中共网信办约谈处罚新浪微博](/content/gnews/17/README.md)
  ` GTV新闻访谈`
 
-### [中共关押近两千名西藏政治犯遭曝光](/content/gnews/15/README.md)
+### [中共关押近两千名西藏政治犯遭曝光](/content/gnews/18/README.md)
  ` GTV新闻访谈`
 
-### [全球最大疫苗生产商计划削减疫苗产量](/content/gnews/16/README.md)
+### [全球最大疫苗生产商计划削减疫苗产量](/content/gnews/19/README.md)
  ` GTV新闻访谈`
 
-### [班农先生将当今疫苗政策比喻为纳粹行为](/content/gnews/17/README.md)
+### [班农先生将当今疫苗政策比喻为纳粹行为](/content/gnews/20/README.md)
  ` GTV新闻访谈`
 
-### [高级红衣主教警告精英们借由新冠病毒开始对“国家全面监控”](/content/gnews/18/README.md)
+### [高级红衣主教警告精英们借由新冠病毒开始对“国家全面监控”](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美参院通过新财年国防授权法 为应对中共威胁做准备](/content/gnews/19/README.md)
+### [美参院通过新财年国防授权法 为应对中共威胁做准备](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [顶级心脏病专家说压制早期中共病毒治疗是“蓄意阴谋”](/content/gnews/20/README.md)
+### [顶级心脏病专家说压制早期中共病毒治疗是“蓄意阴谋”](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [科兴疫苗对中共病毒新变种Omicron的作用为零！](/content/gnews/21/README.md)
+### [科兴疫苗对中共病毒新变种Omicron的作用为零！](/content/gnews/24/README.md)
  ` 日本东京方舟农场`
 
-### [中共制毒贩毒，美国宣布制裁4家中国药企和1名个人](/content/gnews/22/README.md)
+### [中共制毒贩毒，美国宣布制裁4家中国药企和1名个人](/content/gnews/25/README.md)
  ` 首尔天池农场`
 
-### [中共國「經濟奇跡」—債務推動形經濟](/content/gnews/23/README.md)
+### [最新曝光邮件坐实福奇和扎克伯格的勾兑](/content/gnews/26/README.md)
+ ` GTV新闻访谈`
+
+### [因拒绝公开全部疫苗数据，FDA面临法律挑战](/content/gnews/27/README.md)
+ ` GTV新闻访谈`
+
+### [美国心脏病协会：97.8%的年轻心肌炎患者在疫苗注射后一个月内患病](/content/gnews/28/README.md)
+ ` GTV新闻访谈`
+
+### [截至12月14日，美国新冠病毒死亡超过80万人](/content/gnews/29/README.md)
+ ` GTV新闻访谈`
+
+### [郭先生谈“解脱”之道](/content/gnews/30/README.md)
+ ` GTV新闻访谈`
+
+### [无以为继的中共国维稳财政](/content/gnews/31/README.md)
  ` 澳喜农场`
 
-### [字节跳动裁员继续](/content/gnews/24/README.md)
- ` 澳喜特战旅Gnews`
-
-### [最新曝光邮件坐实福奇和扎克伯格的勾兑](/content/gnews/25/README.md)
- ` GTV新闻访谈`
-
-### [因拒绝公开全部疫苗数据，FDA面临法律挑战](/content/gnews/26/README.md)
- ` GTV新闻访谈`
-
-### [美国心脏病协会：97.8%的年轻心肌炎患者在疫苗注射后一个月内患病](/content/gnews/27/README.md)
- ` GTV新闻访谈`
-
-### [截至12月14日，美国新冠病毒死亡超过80万人](/content/gnews/28/README.md)
- ` GTV新闻访谈`
-
-### [郭先生谈“解脱”之道](/content/gnews/29/README.md)
- ` GTV新闻访谈`
-
-### [无以为继的中共国维稳财政](/content/gnews/30/README.md)
- ` 澳喜农场`
-
-### [马云被共产党逼着搞直播 却引来一片咒骂](/content/gnews/31/README.md)
+### [马云被共产党逼着搞直播 却引来一片咒骂](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [一个喜币 一百个躺平币 一百美元](/content/gnews/32/README.md)
+### [一个喜币 一百个躺平币 一百美元](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [最高级别送葬共产党](/content/gnews/33/README.md)
+### [最高级别送葬共产党](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [不要幻想技术能改变你](/content/gnews/34/README.md)
+### [不要幻想技术能改变你](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [共产党一定会干扰天空WIFI的运行](/content/gnews/35/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [乾坤颠倒 美国怕中共不再使用美元](/content/gnews/36/README.md)
+### [共产党一定会干扰天空WIFI的运行](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [英国议员表示，“武汉病毒”可能是武毒所制造的“工程病毒”](/content/gnews/37/README.md)

@@ -2,48 +2,40 @@
 ---
 
 
-## 科兴疫苗对中共病毒新变种Omicron的作用为零！
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1759751/)
+## 高级红衣主教警告精英们借由新冠病毒开始对“国家全面监控”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1759798/)
 
-#### 撰稿:  日本东京方舟农场  青衣
+![](https://cdn.summit.news/2021/12/Screenshot-2021-12-14-at-12.52.56.png)*截屏/ST BONIFACE INSTITUTE*
+一位德国高级红衣主教近日警告说，比尔·盖茨（**Bill Gates**）、乔治·索罗斯（**George Soros**）和达沃斯经济论坛负责人克劳斯·施瓦布（**Klaus Schwab**）等人正在利用冠状病毒的流行来迫使世界处于全球主义“超级富豪精英”的“完全控制”之下。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/383C1762-C728-4CA4-B43C-CB84D6B72F07.jpeg)（图片来自网络）
+格哈德·路德维希·穆勒（Gerhard Ludwig Mueller）红衣主教，同时也是梵蒂冈法院的高级法官，在接受奥地利圣博尼法斯研究所（Austria’s St. Boniface Institute）采访时发表了上述言论。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-801.png)
+穆勒敦促道，“坐在财富宝座上的人”正在抓住一个“机会来推动他们的计划”。
 
-据香港大学研究团队实验室近日公布的初步研究报告显示，中共国生产的科兴疫苗对中共病毒新变种Omicron完全无效。病毒专家认为，Omicron变种将是中共国面临的最大威胁。
+红衣主教补充说，这种大流行病已经导致了“混乱”和“动荡”，部分原因是精英们想通过对全球“国家监控”从而“让人们服从”。
 
-据报道，香港大学传染病学教授袁国勇带领的研究团队，将50个人分成二组，分别接种复必泰疫苗（辉瑞疫苗的中文名）和科兴疫苗，然后将他们的血清进行对比，看这两种疫苗是否可以对抗最新的中共病毒Omicron变种。
+穆勒还表示，全球主义分子正在努力将“一个新的人类”带入世界，一个“按照他们自己的形象和样式”创造出来的人类，并警告说：“这与民主制度无关。”
 
-结果显示，接种者的血清抗体对Omicron变种的抵抗能力大幅度下降。在接种复必泰的25人中，只有5人血清中的中和抗体达到对Omicron变种病毒有效的水平，疫苗效率大幅削弱至20%～24%；而25名科兴疫苗接种者的中和抗体竟然为零！
+来自奥地利圣博尼法斯研究所推特的摘要
 
-港大团队的这项研究报告已发表在医学期刊《临床传染病》上，并引起了极大关注。
+尊敬的卡迪纳尔·穆勒（Kardinal Müller）阁下，前民盟省长称：“[他们]大声宣称，这是一个推动其计划的机会，可这是一个欺诈的计划，特别这种我们可以利用现代技术带来新的创造[…]的想法”。
 
-美国沃尔特‧里德陆军研究院病毒疾病系前实验室主任、病毒学专家、微生物学博士林晓旭对此表示，研究结果显示，mRNA疫苗所产生的中和抗体对Omicron变种基本无用。
+新闻链接：[https://summit.news/2021/12/14/senior-cardinal-warns-elites-ushering-in-total-control-surveillance-state-through-covid/](https://summit.news/2021/12/14/senior-cardinal-warns-elites-ushering-in-total-control-surveillance-state-through-covid/)
 
-林晓旭指出，这是袁国勇团队研究的第一个重要发现，对全球疫苗界来说，是一个重磅打击。
+翻译/简评: JS
 
-林晓旭认为袁国勇团队的另一个重要发现是，接种科兴灭活疫苗的血清样品中找不到对Omicron有中和能力的抗体，而这就是一个全面失效的例证。
-
-根据日本对Omicron变种的研究，Omicron的传播力非常强，至少是Delta变种的四倍。而在英国，Omicron目前也已成为主要的病毒株。
-
-据中共国媒体报道，天津市12月9日已从入境人员中检测出Omicron变异株。同日，香港新增两宗Omicron确诊病例，累计已有7人确诊Omicron病毒。
-
-林晓旭认为，Omicron变种进入了中共国，而国产疫苗又无效，该变种成为主导病毒只是时间问题，它将是中共国面临的最大威胁。
-
-就在港大袁国勇团队公布科兴疫苗对Omicron完全无效后，科兴公司居然在中共控制的媒体上发布消息称：初步研究显示，科兴加强针中和Omicron抗体阳性率达94%。这种极其恶劣、公然造假的无耻行为，不仅让人嗤之以鼻，更令人出离愤怒。
-
-*参考链接：*
-
-1. [*中国面临的最大威胁：科兴疫苗对Omicron无效*](https://www.aboluowang.com/2021/1216/1683963.html?utm_source=dlvr.it&amp;utm_medium=twitter)
-2. [*科兴初步研究：加强针中和奥密克戎抗体阳性率达94%*](http://www.takungpao.com/news/232108/2021/1216/666656.html)
-
+PR：clau
 
 * * *
 
-*素材采编：青衣 2021年12月16日*
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-*编辑：青衣2021年12月16日*
 
-*发布：miumiu*
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

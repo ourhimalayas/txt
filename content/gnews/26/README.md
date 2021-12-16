@@ -2,20 +2,18 @@
 ---
 
 
-## 因拒绝公开全部疫苗数据，FDA面临法律挑战
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1759708/)
+## 最新曝光邮件坐实福奇和扎克伯格的勾兑
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1759715/)
 
-作者：纽约香草山文艺部 – 宁文静
+作者：纽约香草山翻译部 – defiance
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-12月14日媒体消息，根据《信息自由法》，非营利组织公共卫生和透明医疗的专业人员，已将美国食品和药品管理局诉诸法院，并将于周二出席听证会，要求美国食品和药品管理局另外提交40多万页、有关新冠疫苗的审批文件。
+12月14日，《国家脉动》独家曝光了福奇和扎克伯格的私人邮件，该邮件显示，疫情期间，扎克伯格利用用户数据与福奇勾兑，企图限制公众自由，助力疫苗开发。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture6-4.jpg)
+2020年4月8日，在写给福奇的邮件中，扎克伯格表示，Facebook已经启动了一项症状调查，该调查能提供各县的病例指标，将为福奇做出公共卫生决策提供相关数据支持。他还寻求与福奇合作，参与疫苗的投资。福奇回复，将认真考虑这些提议。
 
-据悉，美国食品和药品管理局此前提出，将在未来55年披露疫苗相关信息，还表示将在2022年 1 月底之前发布 12,000 页的疫苗相关信息，并且今后每月“至少”发布 500 页。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture6-3.jpg)
-原告称，按照美国食品和药品管理局的进度，公众看到完整的疫苗信息可能要到 2097 年。 原告还表示，希望当局能在 108 天内向公众报告全部信息。
+此前，参议员玛莎·布莱克本曾就与扎克伯格互动一事质问福奇，福奇均矢口否认。而这份邮件的披露，证实了福奇和扎克伯格勾兑的事实。
 
-好消息是，本月早期，来自南卡罗来纳州的众议员拉尔夫·诺曼已提出一项法案，该法案可能迫使FDA在未来100天内公布所有审批数据。
-
-参考链接：[因拒绝公开全部疫苗数据，FDA面临法律挑战](https://www.foxnews.com/health/fda-may-not-release-full-details-on-covid-19-vaccine-data-until-2097-report-says)
+参考链接：[最新曝光邮件坐实福奇和扎克伯格的勾兑](https://thenationalpulse.com/exclusive/private-fauci-zuckerberg-emails-offering-data-reports/%20%20https://gettr.com/post/pjp9a2d80b)
 
 ![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 

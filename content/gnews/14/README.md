@@ -2,50 +2,19 @@
 ---
 
 
-## 控言论同时不忘抢钱 中共网信办约谈处罚新浪微博
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1759813/)
+## 新中国联邦不会忘记墙内做出牺牲和贡献的战友
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1759860/)
 
-信息采集：日本方舟农场 – Andy5
-作者：纽约香草山农场 – 飞虹
+文编：东京樱花团/樱花传媒
+视频:东京樱花团/中文小视频组
 
+12月1日，郭文贵先生在GTV大直播指出：
 
+大家要用智慧的方式在自己力所能及的情况下参加灭共事业，墙内的战友受到过伤害，也受到过枪口抬高一寸的照顾，新中国联邦不会忘记，将来会在人类法律范围内以最严格的方式算账。我们为体制内坚持灭共、提供情报及牺牲的战友预留了几千万币和投资福利，将来都会一一公布。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-据12月14日墙内媒体消息，中共网信办负责人约谈了新浪微博的主要负责人、总编辑，称近期新浪微博及其账号屡次出现法律、法规禁止发布和传输的信息，情节严重，并将依据中共《网络安全法》《未成年人保护法》等法律法规，责令其立即整改，严肃处理相关责任人。
-
-同时，北京市网信办对新浪微博运营主体开出了共计300万元人民币的罚单。
-
-据悉，从2021年1月至11月，中共国家网信办已经指导北京市网信办，对新浪微博实施了44次处置处罚，累计罚款已达1430万元。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.2-7.jpg)
-参考链接：
-[国家网信办依法约谈处罚新浪微博](https://www.sohu.com/a/508017708_267106)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
-
-总编/编辑：文特
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+*编辑：东京樱花团/墨然
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
