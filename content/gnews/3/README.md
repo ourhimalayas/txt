@@ -2,26 +2,32 @@
 ---
 
 
-## 无良作家立撑学校向幼童播放恐怖纪录片
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1760731/)
+## 中共通过广告行业影响和干预澳大利亚政治
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1760800/)
 
-作者：东京樱花团丨阿恩
-![](https://lh6.googleusercontent.com/qXqXMW9lFwIqtRkXXVPa4t4_oCo5-rD6T4QB0CjURvABxB0GHlNpr3NlGG63Xi9-4ZUBP99XJnhL5I5XHSLh4CVQ79SbTANaloemEdjyPLK5ZOfW9mj7g_Rn3cqk68seTodfJdG3)[*图片来源*](https://www.hk01.com/%E6%94%BF%E6%83%85/712882/%E5%B0%8F%E5%AD%B8%E6%92%AD%E5%8D%97%E4%BA%AC%E5%A4%A7%E5%B1%A0%E6%AE%BA%E7%89%87%E5%AD%B8%E7%94%9F%E5%8F%97%E9%A9%9A-%E5%B1%88%E7%A9%8E%E5%A6%8D%E6%8C%87%E9%A9%9A%E5%9A%87%E6%89%8D%E8%A8%98%E7%89%A2-%E5%B0%B1%E6%98%AF%E8%A6%81%E4%BD%A0%E9%A9%9A)
-屯门直资小学保良局香港道教联合会圆玄小学早前向小一学生播放「南京大屠杀」战争真实片段，包括日军处决百姓、婴幼儿尸横遍野的场面，不少学生观看完短片后恐慌嚎哭，引起家长不满。「梁粉」专栏作家屈颖妍撰文，指看完恐惧才是播放的目的，她称血腥的《鱿鱼游戏》吓不倒家长和孩子，南京大屠杀几个模糊的活埋画面就能吓得到你的孩子？
+整理报道：七彩光
+![](https://assets.gnews.org/wp-content/uploads/2021/12/drew.jpg)图片来源：视频截图
+参议院候选人德鲁·帕夫洛（Drew Pavlou）是澳大利亚人权活动家，以批评中共政府和中国共产党而闻名。近日，该参议院候选人传出了令人震惊的消息，指责昆士兰州拥有七百多块广告牌的毕晓普（Bishop）户外广告公司拒绝刊登批评中共国政府的材料，担心受到白痴中共的报复。
 
-亲中作家屈颖妍一直以怪异的观点为中共的邪恶进行粉饰，她在此使用混淆视听的写作方法，将虚构的电视剧和纪录片相提并论，驳斥港人能接受电视剧的血腥，却受不了记录片模糊的影像。
+根据发布的消息，毕晓普户外广告公司业务员在电话中告诉帕夫洛，没有广告牌公司会刊登他的广告，因为他们（行业）所有人基本上都通过行业自律串通一起，以避免冒犯中共。
 
-首先屈颖妍混淆了真像与虚构的概念。电视剧的场景都是杜撰的，所有的结果都是预设的，观众有心理准备观看虚假的人物和场景。而该记录片是现场拍摄的实况，是真实的流血场面，是用生命做见证的历史，成人的观众尚且不敢轻易主动观看这类血腥的纪录片，更别说强迫幼童观看了。
+对此，12月16日，来自澳大利亚知名智库中心公共事务研究所（The Institute of Public Affairs）的政策总监吉迪恩·罗兹纳（Gideon Rozner）参加了澳洲《天空新闻台》的访谈，指如果这个事情是真的，那么这将是“澳大利亚目前最大的问题”。
 
-第二，屈颖妍混淆了模糊与事实的概念。孩子们都拥有与生俱来分辨善恶的能力，影像即使再模糊也不能掩盖邪恶的真像，有感于镜头中那些与他们同龄的孩子被杀而见到的巨大恐惧，是人都会不寒而栗，对孩子们来说，惊恐和嚎哭是宣泄恐惧的唯一方法。
+罗兹纳告诉天空新闻主持人詹姆斯·莫罗（James Morrow）：“如果中国共产党控制了我们可以在广告牌上张贴的内容，那么，他们渗入的程度有多深多远？每个澳大利亚人都应该对（中共）这种程度的政治干预感到恐惧”。
 
-可悲的是，香港还存在这样无良的作家在支持散播恐怖，屈颖妍作为三女之母，她会不会强迫自己的孩子活着恐惧中，己所不欲 勿施于人，做邪恶中共政权的走狗只会将报应祸及子孙。
+**新闻来源**
 
-资料来源：[**小学播南京大屠杀片学生受惊  屈颖妍指惊吓才记牢：就是要你惊**](https://www.hk01.com/%E6%94%BF%E6%83%85/712882/%E5%B0%8F%E5%AD%B8%E6%92%AD%E5%8D%97%E4%BA%AC%E5%A4%A7%E5%B1%A0%E6%AE%BA%E7%89%87%E5%AD%B8%E7%94%9F%E5%8F%97%E9%A9%9A-%E5%B1%88%E7%A9%8E%E5%A6%8D%E6%8C%87%E9%A9%9A%E5%9A%87%E6%89%8D%E8%A8%98%E7%89%A2-%E5%B0%B1%E6%98%AF%E8%A6%81%E4%BD%A0%E9%A9%9A)
+[‘Terrifying’: Senate candidate’s billboards banned for fear of retaliation by CCP](https://www.skynews.com.au/opinion/terrifying-senate-candidates-billboards-banned-for-fear-of-retaliation-by-ccp/video/8083d44c90e31300a5c28582d5b42ba1)
 
-*校对：东京樱花团 / 文小白
-发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
+**发布：七彩光**
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

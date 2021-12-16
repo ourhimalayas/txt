@@ -2,24 +2,22 @@
 ---
 
 
-## 秘翻在线：拜登签署行政令制裁全球非法毒品贸易
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1760131/)
+## 美国新法案规定因未接种疫苗而被开除的军人仍会获得荣誉退伍
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1760264/)
 
 #### 翻译/撰稿：zzballack
 
-#### 校对：白夜
-![](https://assets.gnews.org/wp-content/uploads/2021/12/16396431821.png)          图片来源：路透社
-据《合众国际社》（UPI）12月15日报道，美国总统拜登12月15日签署了两项行政令，扩大对贩毒组织和毒贩个人的制裁打击。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-3-6.jpg)图片来源：美联社
+据英国《每日邮报》（Daily Mail）12月16日报道，美国参议院12月15日以压倒性的优势通过了《国防授权法案》 (National Defense Authorization Act)。该法案的其中一项条款规定，禁止五角大楼以非荣誉的方式开除那些选择不接种新冠疫苗的军人，这意味着这些军人也将有资格获得退伍军人的福利。
 
-其中一项命令是“对参与全球非法毒品贸易的外国人员实施制裁”（Imposing Sanctions on Foreign Persons Involved in the Global Illicit Drug Trade）。该命令将授权财政部长在与国务卿、司法部长和国土安全部部长协商后，对确定参与全球毒品贸易或与之相关交易的任何外国人士实施制裁。
+这项修正案的发起人、前美国陆军医生、参议员罗杰·马绍尔 (Roger Marshall)在法案通过后对此举表示赞赏。 马绍尔说：“该法案将确保军人不会因为选择不接种疫苗而被不光彩地开除。不光彩的退役会将我们的英雄视为重刑犯。但是，我们的美国英雄应该得到更好的待遇。我支持疫苗，但我也支持人们捍卫自身自由，以及仔细权衡是否接种新冠疫苗的决定。”
 
-有5位中国公民被财政部制裁，他们被指控参与贩运及生产毒品芬太尼，并在美国销售。
+五角大楼今年8月宣布，美军所有军种都需要接种新冠疫苗，每个部门都有自己的接种截止日期。截至上周，五角大楼发言人约翰·柯比（John Kirby）说，大约96.4%的现役人员至少接种了一剂疫苗。
 
-第二项命令是“建立美国打击跨国有组织犯罪委员会”（Establishing the U.S. Council on Transnational Organized Crime），将把6个打击跨国有组织犯罪的政府部门和机构整合在一起，以确保美国政府有效利用所有适当的工具来应对跨国犯罪组织的威胁。
+国会中的共和党人一直在推动五角大楼撤销其疫苗强制令，他们认为这可能会削弱军队实力。本周，27名空军现役人员因拒绝接种疫苗而被空军开除，官员们认为这是第一批因不接种疫苗而被开除的军人。
 
-白宫说：“跨国有组织犯罪通过毒品贸易、暴力、枪支和人口贩运威胁着全球稳定，他们还贩运合成阿片类药物，特别是芬太尼，导致美国各地的吸毒过量致死人数剧增，大约每5分钟就有一个美国人丧生。”
-
-新闻来源：[Biden signs executive orders targeting global drug trade](https://www.upi.com/Top_News/US/2021/12/15/biden-sanctions-transnational-organized-crime-drugs/3241639598020/)
+新闻来源：[Troops who refuse vaccine must be given an honorable discharge and will get access to veterans’ benefits according to new $768B defense bill](https://www.dailymail.co.uk/news/article-10314041/Senate-passes-bill-prevents-unvaccinated-troops-dishonorable-discharges.html)
 
  
 
