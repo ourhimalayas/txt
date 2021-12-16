@@ -15,103 +15,103 @@
 
 ---
 
-### [快舟一号甲飞行异常，火箭发射再次失败](/content/gnews/1/README.md)
- ` 墨尔本雅典娜农场`
-
-### [DC大中华时事：美众议院通过新财年国防法案促美台联合军演](/content/gnews/2/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [中共近期中央政治局会议传达什么经济信号](/content/gnews/3/README.md)
- ` 澳喜农场`
-
-### [Covid 疫苗可能会导致中枢神经系统终生瘫痪（2/2）](/content/gnews/4/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [美众议院通过《防止强迫维吾尔人劳动法》待参议院表决](/content/gnews/5/README.md)
- ` 日本东京方舟农场`
-
-### [中共通过广告行业影响和干预澳大利亚政治](/content/gnews/6/README.md)
- ` 墨尔本雅典娜农场`
-
-### [珍惜现在的苦日子吧，躺下赚躺平币](/content/gnews/7/README.md)
- ` 澳喜农场`
-
-### [【#G时新闻】马斯克反对强迫人们接种疫苗](/content/gnews/8/README.md)
- ` G-时新闻`
-
-### [日本疫苗专家警告年轻人：COVID 疫苗造成的死亡风险比 COVID 本身高 7 倍](/content/gnews/9/README.md)
- ` Zero-Day【零时差】`
-
-### [邓炳强恬不知耻称港人已接受港警](/content/gnews/10/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [封城的日子](/content/gnews/11/README.md)
- ` 澳喜农场`
-
-### [启德车站广场及公园成豆腐渣工程](/content/gnews/12/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [Covid 疫苗可能会导致中枢神经系统终生瘫痪（1/2）](/content/gnews/13/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [特斯拉手机即将来临将助推中共防火墙早日垮塌](/content/gnews/14/README.md)
- ` 澳喜农场`
-
-### [小议人性与制度之恶的遗害](/content/gnews/15/README.md)
- ` 澳喜特战旅Gnews`
-
-### [无良作家立撑学校向幼童播放恐怖纪录片](/content/gnews/16/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [12/16每日播报｜美国因中共病毒死亡人数已超过80万人](/content/gnews/17/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [维州零售商店不再强制要求疫苗证明但口罩令保留](/content/gnews/18/README.md)
- ` 澳喜农场`
-
-### [如何应对独裁灾难](/content/gnews/19/README.md)
- ` 骄子`
-
-### [盘古被逐员工和战友及新疆西藏台湾香港同胞HDO护身](/content/gnews/20/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [12/16每日播报｜新闻简讯: 中共病毒变种 民工被就地隔离](/content/gnews/21/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [促成塔利班在阿富汗灾难的杨洁篪王毅受到美国最严监控](/content/gnews/22/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [西藏法案对新中国联邦意义深远，是中国共产党的噩梦](/content/gnews/23/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [12/16每日播报|社媒消息:蓬佩奥 杰森米勒](/content/gnews/24/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [2021年12月15日新闻集](/content/gnews/25/README.md)
- ` 澳喜农场`
-
-### [数以千计的新西兰人游行 抗议疫苗强制令和封锁](/content/gnews/26/README.md)
+### [秘翻在线：“改编”影视作品也是触痛中共的利器](/content/gnews/1/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [推特：CDC认为接种疫苗的人可以传播COVID是误导](/content/gnews/27/README.md)
- ` wenwu`
+### [12/16每日播报｜与中共国关系继续恶化 立陶宛撤离在京外交官员](/content/gnews/2/README.md)
+ ` 秘密翻译组-即时新闻播报组`
 
-### [广东爆疫情，东莞全市又折腾测核酸](/content/gnews/28/README.md)
+### [12月15日文贵大直播概要](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [医疗戒严令：在数千名护士因具有天然免疫力和拒绝注射刺突蛋白疫苗而被解雇后，军方接管了四个州的医院](/content/gnews/4/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [北京冬奥对病毒溯源欲盖弥彰，奥密克戎反扑并蔓延](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共斥巨资在海外社交媒体上“洗脑”外国人](/content/gnews/6/README.md)
+ ` GTV News Talk`
+
+### [快舟一号甲飞行异常，火箭发射再次失败](/content/gnews/7/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [DC大中华时事：美众议院通过新财年国防法案促美台联合军演](/content/gnews/8/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [中共近期中央政治局会议传达什么经济信号](/content/gnews/9/README.md)
  ` 澳喜农场`
 
-### [每日快报：科兴疫苗对Omicron无效](/content/gnews/29/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [Covid 疫苗可能会导致中枢神经系统终生瘫痪（2/2）](/content/gnews/10/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [2021年中共关押127名记者 居世界首位](/content/gnews/30/README.md)
+### [美众议院通过《防止强迫维吾尔人劳动法》待参议院表决](/content/gnews/11/README.md)
+ ` 日本东京方舟农场`
+
+### [中共通过广告行业影响和干预澳大利亚政治](/content/gnews/12/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [珍惜现在的苦日子吧，躺下赚躺平币](/content/gnews/13/README.md)
+ ` 澳喜农场`
+
+### [【#G时新闻】马斯克反对强迫人们接种疫苗](/content/gnews/14/README.md)
+ ` G-时新闻`
+
+### [日本疫苗专家警告年轻人：COVID 疫苗造成的死亡风险比 COVID 本身高 7 倍](/content/gnews/15/README.md)
+ ` Zero-Day【零时差】`
+
+### [邓炳强恬不知耻称港人已接受港警](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆：华夏幸福声称20亿理财中间人失联，为赖账找借口？](/content/gnews/31/README.md)
+### [封城的日子](/content/gnews/17/README.md)
+ ` 澳喜农场`
+
+### [启德车站广场及公园成豆腐渣工程](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [币圈新闻动态：喜币（HCN）价格目前在44.310 HDO](/content/gnews/32/README.md)
+### [Covid 疫苗可能会导致中枢神经系统终生瘫痪（1/2）](/content/gnews/19/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [小议人性与制度之恶的遗害](/content/gnews/20/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [12/16每日播报｜美国因中共病毒死亡人数已超过80万人](/content/gnews/21/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [维州零售商店不再强制要求疫苗证明但口罩令保留](/content/gnews/22/README.md)
+ ` 澳喜农场`
+
+### [如何应对独裁灾难](/content/gnews/23/README.md)
+ ` 骄子`
+
+### [盘古被逐员工和战友及新疆西藏台湾香港同胞HDO护身](/content/gnews/24/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [12/16每日播报｜新闻简讯: 中共病毒变种 民工被就地隔离](/content/gnews/25/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [促成塔利班在阿富汗灾难的杨洁篪王毅受到美国最严监控](/content/gnews/26/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [12/16每日播报|社媒消息:蓬佩奥 杰森米勒](/content/gnews/27/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [2021年12月15日新闻集](/content/gnews/28/README.md)
+ ` 澳喜农场`
+
+### [数以千计的新西兰人游行 抗议疫苗强制令和封锁](/content/gnews/29/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [推特：CDC认为接种疫苗的人可以传播COVID是误导](/content/gnews/30/README.md)
+ ` wenwu`
+
+### [广东爆疫情，东莞全市又折腾测核酸](/content/gnews/31/README.md)
+ ` 澳喜农场`
+
+### [每日快报：科兴疫苗对Omicron无效](/content/gnews/32/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [这样“护犊子” 国际奥委会表演大跌眼镜](/content/gnews/33/README.md)
+### [中日财经爆：华夏幸福声称20亿理财中间人失联，为赖账找借口？](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [蓬佩奥再次为中国人发声 呼吁完全抵制中共冬奥](/content/gnews/34/README.md)

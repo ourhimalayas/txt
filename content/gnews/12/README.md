@@ -2,24 +2,32 @@
 ---
 
 
-## 启德车站广场及公园成豆腐渣工程
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1760751/)
+## 中共通过广告行业影响和干预澳大利亚政治
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1760800/)
 
-作者：东京樱花团丨阿恩
-![](https://lh4.googleusercontent.com/H72FITUtcB6_F1PoEoeuW-O8rDqsUgB03tmNp3vFuB7elsR9mcQ26DisO7N0otuTfEJjzldkpwVGVtXPL2xjO8SFkZw1NdfrzuQRR1QoG3BTYkswFX1acPEk4joJceHT5JXKib-t)[*图片来源*](https://www.hk01.com/18%E5%8D%80%E6%96%B0%E8%81%9E/712730/%E5%95%9F%E5%BE%B7%E8%BB%8A%E7%AB%99%E5%BB%A3%E5%A0%B4%E5%8F%8A%E5%85%AC%E5%9C%92%E9%96%8B%E6%94%BE%E4%B8%80%E5%91%A8-%E6%BA%B6%E6%BA%B6%E7%88%9B%E7%88%9B-%E7%B6%B2%E6%B0%91%E6%89%B9%E5%A6%82%E8%B1%86%E8%85%90%E6%B8%A3%E5%B7%A5%E7%A8%8B)
-耗资16亿港元的启德车站广场（一期）及启德大道公园开放一周，两个公园合共占地约6.7公顷，内有大草地和「放电」儿童游乐场，据悉广场和公园内多处灯光已损坏、草地秃头凹凸不平，多出被围上围栏，市民批评公园造工有如「豆腐渣」。
+整理报道：七彩光
+![](https://assets.gnews.org/wp-content/uploads/2021/12/drew.jpg)图片来源：视频截图
+参议院候选人德鲁·帕夫洛（Drew Pavlou）是澳大利亚人权活动家，以批评中共政府和中国共产党而闻名。近日，该参议院候选人传出了令人震惊的消息，指责昆士兰州拥有七百多块广告牌的毕晓普（Bishop）户外广告公司拒绝刊登批评中共国政府的材料，担心受到白痴中共的报复。
 
-港府力图兴建大白象面子工程为中共独裁统治香港粉饰太平，这些动辄上亿元的项目美其名曰为市民服务，实际上却是中共在香港吸金的手段之一。
+根据发布的消息，毕晓普户外广告公司业务员在电话中告诉帕夫洛，没有广告牌公司会刊登他的广告，因为他们（行业）所有人基本上都通过行业自律串通一起，以避免冒犯中共。
 
-随着中共资金渗透的承建商以低价、高效的口号侵入香港建筑业，本地和外资的承建商已难以为继。港府的各大公共建设项目均被中共的承建商包揽，中资承建商承揽了业务后，会将工程拆散向分包商压价竞标，而分包商不仅要垫付部分工程款，还面临被中资承建商克扣尾款的风险，因此分包商低价竞标的工程肯定会使用与成本相应的材料，施工绝不会精细，而且随时会因资金链断裂而延误工期。此时中资承建商有理由以人工和材料成本贵过预期，施工受到阻碍等由头，连同建制派立法会议员向立法会施压，逼迫港府追加拨款。多年来，港府兴建的诸多项目不仅耗费了巨资，工期一拖再拖，还被冠以了豆腐渣工程的称号，有被港府热卖的公屋被爆短桩丑闻；会展中心常年被雨水渗漏无法解决；香港高铁超支俞294亿元，渗水、沉降问题严重；耗资1200亿元的港珠澳大桥混凝土压力测试造假，机房水浸；人工岛漂移；耗资半亿的戏水区被肥皂泡沫损坏……
+对此，12月16日，来自澳大利亚知名智库中心公共事务研究所（The Institute of Public Affairs）的政策总监吉迪恩·罗兹纳（Gideon Rozner）参加了澳洲《天空新闻台》的访谈，指如果这个事情是真的，那么这将是“澳大利亚目前最大的问题”。
 
-中共的假恶丑在独裁香港后愈演愈烈，更多的豆腐渣工程也将司空见惯，唯一受害的是创造财富却不能享受安逸的香港人。
+罗兹纳告诉天空新闻主持人詹姆斯·莫罗（James Morrow）：“如果中国共产党控制了我们可以在广告牌上张贴的内容，那么，他们渗入的程度有多深多远？每个澳大利亚人都应该对（中共）这种程度的政治干预感到恐惧”。
 
-资料来源：[**启德车站广场及公园开放一周「溶溶烂烂」 网民批如豆腐渣工程**](https://www.hk01.com/18%E5%8D%80%E6%96%B0%E8%81%9E/712730/%E5%95%9F%E5%BE%B7%E8%BB%8A%E7%AB%99%E5%BB%A3%E5%A0%B4%E5%8F%8A%E5%85%AC%E5%9C%92%E9%96%8B%E6%94%BE%E4%B8%80%E5%91%A8-%E6%BA%B6%E6%BA%B6%E7%88%9B%E7%88%9B-%E7%B6%B2%E6%B0%91%E6%89%B9%E5%A6%82%E8%B1%86%E8%85%90%E6%B8%A3%E5%B7%A5%E7%A8%8B)
+**新闻来源**
 
-*校对：东京樱花团 / 東洋武士
-发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
+[‘Terrifying’: Senate candidate’s billboards banned for fear of retaliation by CCP](https://www.skynews.com.au/opinion/terrifying-senate-candidates-billboards-banned-for-fear-of-retaliation-by-ccp/video/8083d44c90e31300a5c28582d5b42ba1)
+
+**发布：七彩光**
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

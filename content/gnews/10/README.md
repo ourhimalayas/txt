@@ -2,22 +2,63 @@
 ---
 
 
-## 邓炳强恬不知耻称港人已接受港警
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1760781/)
+## Covid 疫苗可能会导致中枢神经系统终生瘫痪（2/2）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1760806/)
 
-作者：东京樱花团丨阿恩
-![](https://lh5.googleusercontent.com/e9yi7DgA60Lt6BF_yqcZTQP1YNkAoZDqmgZDYSiJmlYxXf8pXpGdmqIFOFptqBzixGjS3hpULgYSkJj_FwuS9sf4fgXbG8mAgIRXrZgfsVpwHaG8bpRvgcYVrNhDD7-utP6e0xU4)[*图片来源*](https://assets.thestandnews.com/media/resized/1650x0/photos/pk_wKRvDqU.png)
-保安局局长邓炳强在接受港台访问中称，如今警队更加团结，社会人士对港警平定民主运动予以肯定，对他们的工作有很正面的认同，他见到现时纪律部队士气非常好，还称现时很多学校接受他们，亦有市民多谢警察。
+编译：Jenny Ball
 
-港府高官是中共代言人之一，这些被港人供养的官员，没有一个顾念自己的衣食父母，全部向邪恶的中共政权屈膝。保安局局长邓炳强在港台面向全港市民说了这些鬼话，不过，他向港人传递了一个真实的信息，确实有不少卖港贼、软弱的人和不明事理的人为中共摇旗呐喊；邓炳强抬高警暴的社会认受性，言外之意就是要港人识时务选边站队。中共深知民意的力量，所以总是在重锤之后对人民施以小恩小惠安抚民心，所以香港人要万分警惕这些外貌与他人无异的邪恶引路者，仔细分辨他们的言行，防止堕入圈套中。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-33.jpg)图片来源：epochtimes.com
 
-如今香港各大媒体已成为中共的喉舌，这是人尽皆知的事，无论中共的代言人在媒体上如何红白脸对唱，他们背后隐藏的中共邪恶势力也无所遁形，香港人经历过反逃犯条例运动的洗礼，承受着失去民主自由的痛苦，非常清楚这一切都要归咎于中共政权的暴戾。这些人尽管在媒体上恬不知耻地帮中共掩饰罪恶，他们的丑态只会成为港人茶余饭后的笑柄而已。
+疫苗安全研究基金会向福奇博士提交感人的恳求信，要求他和拜登与受伤害者会面。
 
-资料来源：[**邓炳强接受港台《盘点政策》专访：好多学校接受我哋，好多人讲「多谢晒」**](https://www.thestandnews.com/society/a_-%E9%84%A7%E7%82%B3%E5%BC%B7%E6%8E%A5%E5%8F%97%E6%B8%AF%E5%8F%B0%E7%AF%80%E7%9B%AE%E5%B0%88%E8%A8%AA%E5%A5%BD%E5%A4%9A%E5%AD%B8%E6%A0%A1%E6%8E%A5%E5%8F%97%E6%88%91%E5%93%8B-%E7%B4%80%E5%BE%8B%E9%83%A8%E9%9A%8A%E5%A3%AB%E6%B0%A3%E9%9D%9E%E5%B8%B8%E5%A5%BD)
+以下是疫苗受伤者和代表他们的基金会写给福奇和拜登的信的摘录：
 
-*校对：东京樱花团 / 東洋武士
-发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
+*我们代表数以千计的美国人，他们和我们一样，因**COVID-19**疫苗而受到严重伤害。 我们是支持科学的。我们支持疫苗，我们大多数人都被**FDA**、**CDC**、**NIH**、疫苗制造商和媒体忽视了，就好像我们不存在一样。*
+
+*作为两位母亲，我们真诚地请求与你们两人会面，希望通过面对面的会面，能够承认我们的存在，并帮助粉碎关于疫苗受伤不是真实的虚假信息。事实上，有些受伤者是儿童，作为父母，我们希望您能够与我们联系。*
+
+*我们努力尽自己的一份力量，帮助结束我们国家和世界面临的可怕的流行病。我们是真实的人，我们遵循您的建议，并相信有关**COVID-19**疫苗安全性的科学，但我们的生活已被不断恶化的健康状况彻底摧毁。*
+
+**在接种**** Covid ****疫苗之前，健康状况零问题的年轻人，现在却不能自理****——****像这样的与疫苗相关的悲剧却没有得到媒体的关注。**
+
+Covid疫苗受害者正在法庭上，就他们的毁灭性伤害作证，其中许多将是永久性的伤害。这些暴行被公共卫生官员和大众媒体隐瞒。**证明你被**** Covid ****疫苗伤害并不意味着你反疫苗或反科学，**但媒体有意诡辩将揭示疫苗伤害称为反疫苗。现在，全美国的医生都在揭发他们的病人因注射中国流感疫苗而直接导致身体衰弱的伤害。
+
+如果您害怕感染中共病毒，**因为媒体认为**它是世界上见过的最严重的流行病（即使它只是另一种流感），那么看看被证明可以增强免疫力的强效超级食品、补品和草药， 并扼杀这些寄生虫，并避免那些有毒的基因治疗的伤害。
+
+想要在您的互联网上获得最好的真实新闻吗？ 收听[FoodSupply.news](http://www.foodsupply.news/2021-11-18-food-shortage-engineered-to-control-people.html)，了解如何通过储备有机营养食品和冬季应急物资，来避免这种人口减少计划。
+
+**评论：福奇要求人们相信科学，那么福奇应该以科学的方法，第一时间与这些疫苗严重伤害的人们交流，以科学地改善所谓的“疫苗”的安全性和效果，不是吗？**
+
+**作为总统在强制全面接种，难道不应该及时和这些疫苗受伤的人们见面，以决策是否应该继续让更多人遭受这样的伤害，不是吗？**
+
+**那他们为什么在受伤人如此声泪俱下的请求中置之不理呢？难怪人们不再相信“福奇科学”；难怪人们不再相信这样的政府！**
+
+请阅读上一篇：[Covid 疫苗可能会导致中枢神经系统终生瘫痪（1/2）](https://gnews.org/zh-hans/1760750/)
+
+文章内容来源：
+
+[Pandemic.news](https://www.pandemic.news/2021-03-04-who-insider-exposes-gavi-gates-perpetrating-plandemic.html)
+
+[TruthWiki.org](http://www.truthwiki.org/cdc-centers-for-disease-control-and-prevention/)
+
+[NaturalNews.com](https://www.naturalnews.com/2021-10-03-cdc-hospitals-fully-vaccinated-deaths-unvaccinated.html)
+
+[ZeroHedge.com](https://www.zerohedge.com/covid-19/joe-rogan-crushes-cnn-over-ivermectin-horse-paste-propaganda-gets-gupta-concede)
+
+[FoodSupply.news](http://www.foodsupply.news/2021-11-18-food-shortage-engineered-to-control-people.html)
+
+[ZeroHedge.com](https://www.zerohedge.com/covid-19/joe-rogan-crushes-cnn-over-ivermectin-horse-paste-propaganda-gets-gupta-concede)
+
+[naturalnews][Covid jabs can cause the central nervous system to go absolutely HAYWIRE, possibly for life](https://www.naturalnews.com/2021-12-14-covid-jabs-can-fry-central-nervous-system.html)
+
+* * *
+
+*审核：文乐*
+*校对 : 阿伯塔*
+*发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-3.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

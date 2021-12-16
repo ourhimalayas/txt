@@ -2,32 +2,29 @@
 ---
 
 
-## 2021年中共关押127名记者 居世界首位
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1760407/)
+## 推特：CDC认为接种疫苗的人可以传播COVID是误导
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1760445/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/22222-1.jpg)
-无国界记者组织(Reporters Without Borders)今天(12月16日)表示，今年全球有488名媒体工作者遭到关押，是无国界记者开始统计25年以来的最高纪录，中共国有127名记者遭关押位居榜首。
+编译：西班牙巴塞罗那喜悦农场-wenwu
 
-相较之下，今年遭杀害的媒体工作者为46人，是无国界记者发布年度统计数字以来的新低纪录，因为中东地区冲突相对稳定。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕截图-2021-12-16-104635.jpg)
 
-无国界记者组织在一份声明中表示：「与他们的工作相关而遭关押的记者人数，自从无国界记者1995年开始发表年度数据以来，从来没有这么高过。」
+美国疾病控制中心（CDC）在其网站上明确[表示：](https://www.cdc.gov/coronavirus/2019-ncov/vaccines/fully-vaccinated.html) “如果您已完全接种疫苗并感染了 Delta 变体，仍可以将病毒传播给其他人；免疫系统较弱的人，包括服用免疫抑制药物的人，即使完全接种疫苗也可能无法得到保护。”但对于 Twitter 而言，任何提及该事实的内容都是误导性信息，可能会使您暂停使用账户，甚至从该平台上被赶走。
 
-这个数字在过去一年提升了约20%，主要是因为缅甸、白俄罗斯及香港对媒体的打压。
+Twitter 对什么是可接受（允许在该平台宣传）的言论有其他想法，而（CDC，[如下图](https://twitter.com/account/access)）这些事实并不在其中。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-816.png)
+在 Twitter 的[规则和政策中](https://help.twitter.com/en/rules-and-policies/medical-misinformation-policy)所示的，其表示：“当推文包含有关 COVID-19 的误导性信息时，我们可能会在这些推文上贴上标签，其中包含有关该声明的纠正信息。如果我们确定存在与误导性相关的潜在伤害声明，我们将禁止他人转推、引用推文或以其他方式参与以防止误导性信息的传播。根据我们的封锁政策，这些推文将累积 1 次封锁……”
 
-无国界记者指出，他们也从未看过有这么多女性记者遭关押。今年共有60名女性记者遭关押，比2020年增加了约三分之一。
+那么什么才算是“误导性信息”呢？任何关于口罩是细菌滋生地的内容、可能不被批准的治疗建议，例如家庭疗法等，或者，最值得注意的是：
 
-中共国有127名记者遭关押位居榜首，主要是因为对香港实施国家安全法，破坏了香港长期拥有的民主自由。
+“有关接种疫苗的人可以将中共病毒（或症状或免疫力）传播或传播给未接种疫苗的人的虚假或误导性说法；歪曲与疾病的严重性、病毒的流行性或广泛接受的预防措施、治疗方法或疫苗的有效性有关的研究或统计结果的说法。”
 
-缅甸以关押53名记者居次，越南有43人，白俄罗斯威32人，沙乌地阿拉伯为31人。
+新闻来源 ：[thepostmillennial.com] [CDC says vaccinated people can spread COVID, Twitter calls that ‘misleading’](https://thepostmillennial.com/cdc-vaccinated-covid-twitter-misleading) | 发布时间：2021年12月15日
 
-消息来源:
+* * *
 
-[无国界记者：今年全球488名记者遭关押中共国居榜首](https://tw.news.yahoo.com/%E7%84%A1%E5%9C%8B%E7%95%8C%E8%A8%98%E8%80%85-%E4%BB%8A%E5%B9%B4%E5%85%A8%E7%90%83488%E5%90%8D%E8%A8%98%E8%80%85%E9%81%AD%E9%97%9C%E6%8A%BC-%E4%B8%AD%E5%9C%8B%E5%B1%85%E6%A6%9C%E9%A6%96-061713858.html)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+*发稿 : Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

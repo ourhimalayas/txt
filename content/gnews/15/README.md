@@ -2,35 +2,66 @@
 ---
 
 
-## 小议人性与制度之恶的遗害
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1760735/)
+## 日本疫苗专家警告年轻人：COVID 疫苗造成的死亡风险比 COVID 本身高 7 倍
+` Zero-Day【零时差】` [轉載自GNews](https://gnews.org/zh-hans/1760783/)
 
-撰稿：聖易經聯
+![Pharma-Syringe-Vaccine.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2C3F4F4A-3523-4658-90FA-452311D5412D.png)
+2021年12月15日，据【pandemicnews】发文报道：
 
-在中共国小时候念书，经常会学到语文课的某篇文章是鲁迅的杂文。后来注意到有人在社交媒体讨论胡适与鲁迅。比较认可这种评论：胡适的文章更注重制度之恶，而鲁迅则偏注重人性之恶。 总是通过引导人性之恶来统治民众，这种政权是邪恶的。而中共政权就是这类恶制度集大成的制定者，但它不愿意成为众矢之的而让人评判它的是非，所以引导大家都去关注人的阴暗面，于是课本里有鲁迅而没有胡适；引入鲁迅，还让学生们觉得共产党挺喜欢批判精神。原来这里面也有统治者深层的心机。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/16396533221.png)澳喜农场 森森
-据说传统盗墓往往是关系密切的二人搭档，需分工协作：坟墓上下各一个人，在墓下的人打开墓穴递出宝物，上面的人盯梢兼借助绳子把下面的人拉上来。一旦贵重物品递上地面，总会发生上面的人抱着宝物逃离现场而下面的人被遗弃的情况。于是后来发展到以父子关系盗墓搭档，父在上子在下的制度规则，几乎完全避免了上述情况的发生。
+日本疫苗专家警告全世界，中共冠状病毒 (COVID-19) 疫苗[在 20 多岁的人群中](https://www.lifesitenews.com/news/vaccines-pose-7-times-higher-death-risk-than-covid-for-young-people-japanese-experts-warn/)造成的死亡风险可能至少比冠状病毒本身致死风险高 7 倍。
 
-而父在下、子在上的时候，竟又有父被遗弃的情况。这时鲁迅们就会评判人性之丑陋，而胡适们就会评判是制度规则之恶。诚然，在背叛的砝码足够大的时候，人性是经不起考验的。人性确有丑陋的一面：贪婪、懒惰、损人利己、妒忌……等等。中国历史上为了争皇位，争美女，不惜父子兄弟相侵相害的事情屡见不鲜。
+由非营利组织日本药物警戒研究所出版的双月刊《医学检查》最近一期的评论还指出，COVID-19 疫苗将年轻人的死亡风险提高了 40 倍。
 
-秦朝商鞅的“连坐”制，5人一伍，一人有罪五人同罚，逼迫人们互相检举揭发。这就是利用人性之恶治国。所谓“经验”被各朝代研究、传承；ccp完全承袭了这些糟粕：中共的AB团、墙内土改，就是利用人性里的嫉妒心让流氓无产者带头去斗地主，利用色欲心鼓励斗地主者可以睡地主的老婆、女儿……文革时利用嫉妒心让红卫兵去批斗想打倒的官员和有钱人（当权派、走资派）。文革时期家庭成员之间都互相揭发，是连坐制的现代修订版。那时就连齐心都主动举报自己的儿子习近平跑回家拿吃的；薄熙来砸断他爸的肋骨……全是发扬人性之恶的制度之恶的事实。
+研究人员引用了三篇关于 20 岁至 29 岁的人在接种 COVID-19 疫苗数天或数周后死亡的报告。其中一名疫苗后死亡病例是一名 27 岁的职业棒球运动员，他在接种疫苗后不到两周就倒下了。他在医院住院一个月后死亡。（相关：[日本卫生部对辉瑞和 Moderna covid 疫苗发出心脏警告](https://naturalnews.com/2021-12-10-japan-health-ministry-issues-heart-warning-covid-vaccines.html)。）
 
-扶老携幼本是人性之美；但那年的南京法官一纸恶判之后，大家都担心搀扶老人会被讹钱而不敢再对跌倒的老人伸出援手。这个制度之恶的影响大家犹言在耳吧。
+截至 10 月 15 日，日本 厚生劳动省共收到 1,308 份 COVID-19 疫苗接种后死亡报告。
 
-在中共国内，往往深谙官商勾结、给回扣、送美女、拿黑材料（蓝金黄）手段的官员和企业家总是混的风生水起，而老实巴交做研究搞实业的人则往往贫困潦倒、混不下去。一方面是中共国内官场权力大无边，官员极易迅速致富（比如王岐山致富速度远超老实巴交的西方国家的大多数企业家）；另一方面人人自危，所以趁机捞钱转到海外、及时行乐荒淫无度，个个毫无信仰。
+该研究指出，该政策强烈表明日本[因 COVID-19 疫苗而死亡的人数](http://vaccinedeaths.com/)可能明显高于原始报告。死亡人数强烈表明，对 COVID-19 疫苗产生致命反应的风险明显大于冠状病毒本身对年轻人构成的危险。
 
-如今，蓝金黄作为中共利用人性之恶的最有效方式，早已输出到国际上：它的一带一路，它布局美国和西方国家、全世界，靠这种规则开展行动。但转眼间全世界都因而乌烟瘴气——利用人性之恶的制度规则之恶昭然若揭。
+根据数据，在日本，年轻人死于 COVID-19 的几率为百万分之 0.6 至 0.8。相比之下，同一群人死于COVID-19 疫苗的几率为百万分之 3.2。
 
-我想说，一个国家大都是善于官场攻心，巧于逢迎行贿的小人得志，风生水起，那社会风气无疑就会各种败坏，民众就会附和这类人性：向歪风邪气同流合污，不愿辨别是非，或是对罪恶熟视无睹……
+目前，日本是世界上接种疫苗最多的国家之一。截至发稿时，[78% 的人口](https://www.nytimes.com/interactive/2021/world/covid-vaccinations-tracker.html)已完全接种疫苗。研究表明，强迫其余 22% 的人口接种疫苗将导致比不接种疫苗更多的死亡。
 
-被以人性之恶虐达几千年的中国人，加上共产党其他邪恶因素的侵淫，终于导致中国人大概率与世界主流社会的格格不入。
+尽管数据证明不接种疫苗更安全，尤其是对年轻人而言。但是，日本政府仍在计划 [分发和](https://english.kyodonews.net/news/2021/12/d2502f4659e2-kishida-defends-govt-covid-response-at-parliament.html)强制[管理](https://english.kyodonews.net/news/2021/12/d2502f4659e2-kishida-defends-govt-covid-response-at-parliament.html)COVID-19 疫苗加强剂。
 
-制度之恶，造成人性偏恶，且遗害百年。
+日本首相岸田文雄告诉日本议会，他的政府目前的首要任务是检查有关现有 COVID-19 疫苗针对疫苗后omicron 变体的有效性的证据。
 
-后中共时代，作为中国人，要如何除却被邪恶制度加持多年而多余的那份人性之恶呢？这是新中国联邦人需要思考的，更是一人一票选出的新政权将要着手解决的问题。
+岸田说：“我们希望尽快确定现有疫苗对 omicron 菌株的影响，然后展示提高加强注射的范围和方法，”
 
-编辑：五饼二鱼
-![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
+其他日本科学家已经警告政府，COVID-19 疫苗对 omicron 变体的[效力](https://theworldnews.net/jp-news/japanese-scientists-warn-vaccines-may-be-less-effective-against-the-omicron-variant)将[大大降低](https://theworldnews.net/jp-news/japanese-scientists-warn-vaccines-may-be-less-effective-against-the-omicron-variant)。
+
+由[京都大学](https://www.kyoto-u.ac.jp/en) 教授和流行病学家 Hiroshi Nishiura领导的一组研究人员 告诉卫生部的顾问委员会，omicron 变体比疫苗后的 delta 变体逃避 COVID-19 疫苗建立的所谓保护的可能性要高几倍。
+
+Nishiura 承认，omicron 变种在日本等疫苗接种率高的国家更容易传播。“这很像 [omicron 变体] 可能会在日本这样的疫苗接种率高的国家传播。”
+
+作为日本大流行后经济复苏计划的一部分，中央政府正在通知地方政府区域准备接种加强疫苗。尽管日本政府尚未做出决定，承认针对 omicron 变体的疫苗的有效性，但这项工作仍在进行。
+
+编者按：
+
+显而易见，日本政府对疫苗造成死亡案例和严重危害的事实选择了视而不见。不仅如此，他们仍然坚持推行疫苗加强剂，这种做法听起来让人觉得如此疯狂，而且丧失了寻常逻辑！这也似乎完全背离了中共病毒疫苗支持者所宣称的科学！日本类似的状况也正在世界各地的民主国家、文明世界发生着！时至今日，我们看到的令人心痛的疫苗灾难已经越来越多地浮现出来，这世界已经足够疯狂，唯盼这灾难早日消亡！
+
+通过阅读[Vaccines.news 上](https://vaccines.news/)的最新文章，了解有关证明 COVID-19 疫苗无效且实际上比冠状病毒本身更致命的最新科学研究的更多信息。
+
+编译/米拉娅
+
+审阅/丘杰斯
+
+上传/天赐良闻
+
+英文原文作者：[Arsenio Toledo](https://www.pandemic.news/author/arseniotoledo)
+
+新闻[来源包括：](https://www.pandemic.news/2021-12-15-risk-of-death-higher-after-covid-vaccine.html)
+
+[LifeSiteNews.com](https://www.lifesitenews.com/news/vaccines-pose-7-times-higher-death-risk-than-covid-for-young-people-japanese-experts-warn/)
+
+[纽约时报](https://www.nytimes.com/interactive/2021/world/covid-vaccinations-tracker.html)
+
+[英语共同社](https://english.kyodonews.net/news/2021/12/d2502f4659e2-kishida-defends-govt-covid-response-at-parliament.html)
+
+[世界新闻网](https://theworldnews.net/jp-news/japanese-scientists-warn-vaccines-may-be-less-effective-against-the-omicron-variant)
+
+标记如下： [大型制药公司](https://www.pandemic.news/tag/big-pharma)，[生物武器](https://www.pandemic.news/tag/biological-weapon)，[冠状病毒](https://www.pandemic.news/tag/coronavirus)，[冠状病毒疫苗](https://www.pandemic.news/tag/coronavirus-vaccines)，[covid-19](https://www.pandemic.news/tag/covid-19)，[日本](https://www.pandemic.news/tag/japan)，[omicron](https://www.pandemic.news/tag/omicron)，[制药欺诈](https://www.pandemic.news/tag/pharmaceutical-fraud)，[研究](https://www.pandemic.news/tag/research)，[刺突蛋白](https://www.pandemic.news/tag/spike-protein)，[疫苗危险](https://www.pandemic.news/tag/vaccine-dangers)，[疫苗死亡](https://www.pandemic.news/tag/vaccine-deaths)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
