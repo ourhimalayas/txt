@@ -2,31 +2,31 @@
 ---
 
 
-## 七哥谈无欲则刚（2021-12-15摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1762305/)
+## 西班牙调查发现疫苗护照计划对病毒感染率并无影响且传递错误信号：接种疫苗者不会传播病毒
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1762341/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+翻译：波士顿五月花  冲天一怒
 
-来源：郭先生2021-12-15直播12:44:16 摘录
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture1-15.jpg)Spanish Investigation Finds Vaccine Passports Have No Impact on Infection Rates
+https://summit.news/
 
-我觉得这个我强烈的啊，我强烈的建议啊，战友们这种事一定要慎重参加，而且我们就是反疫苗，记住我们不反疫苗我们反的是假疫苗，反的是共产党的这个疫苗啊。还有一个战友们要去呢，行不成规模别去挺丢人的，一个人扛着心意很多人很勇敢觉得我一个人去了，真的没必要，然后你花很多口舌解释新中国联邦，我们不在乎谁看不看上我新中国联邦，我们不在乎他们认不认可，我一点都不在乎，一点都不在乎啊。就像我跟外国人谈的时候谈成谈不成我从来不在乎，我们不乞求任何所谓的成功，我又不要你钱又不要你权，又不要你名，是不是，又不要你任何东西，无欲则刚在新中国联邦这会体现最好。而且战友们没必要冒着这么大的病毒感染风险去，特别一家一家去，我强烈反对！我现在给大家建议的就是，你最好待在家里啊，当然你不能打疫苗，别打着疫苗吃伊维菌素，你吃这个青蒿素。还有一个尽量减少户外活动，就等着世界的大觉醒和共产党灭掉，然后呢我们在你力所能及的情况下没有风险要传播爆料革命的真相。然后我们这个过年上街的这种给共产党送葬的行动，那是经过组织安排绝对在解决以上安全不在乎任何人看我们的情况下，才去组织才进行，这是完全不同的。所以我建议大家少动少出行少聚会减少风险，等待着爆料革命真正的大行动啊，把共产党给灭掉和疫苗真相，这个疫苗灾难停止，疫苗真相出来的时候啊，这是我给大家建议。谢谢！
+西班牙专家的一项调查得出结论：疫苗护照计划对降低中共病毒感染率并无显著影响。该研究细节由西班牙跨区域冠状病毒委员会展开，由El Pais通过电讯报报道。通过查看该计划在其他欧洲国家的实施情况，专家们发现，强制人们出示疫苗接种证明才能进入酒吧、餐馆和电影院等场所“并没有降低传播水平”。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+报告指出：在使用疫苗护照系统的欧洲国家，尽管疫苗接种率确实比西班牙低得多，但病例却显著增加。尽管西班牙没有在国家层面推行疫苗护照，但 17 个地区中的 8 个都在使用类似系统。
 
-**关注我们**
+研究人员还得出结论：疫苗护照计划给人们传递了错误印象——即疫苗接种者不会被感染。报告指出：事实上大约 40% 的疫苗接种者容易感染并传播病毒。疫苗护照计划唯一的好处是警告人们大流行仍然存在危险，并鼓励沉默寡言的人们去接种疫苗。换句话说，尽管疫苗护照计划对其既定目标——减少中共病毒的传播并无明显影响，但它确实成功地让人们感到恐惧和顺从。也许，这才是疫苗护照计划的主要目标。
 
-Discord 账号
+西班牙的调查结果与英国政府发现的证据相似：疫苗护照计划可能会增加该国中共病毒的发病率。英国和威尔士政府也同样发现：尽管引入了疫苗护照计划，但政府却找不到任何证据证明该计划是有效的。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+许多欧洲国家用疫苗护照计划区分接种者和未接种者。在有些地方，提供阴性测试结果的选项已被移除，这意味着只有那些仍可传播病毒的疫苗完全接种疫苗者才能被允许进入特定场所。
 
-Gettr 账号
+新闻来源: [Spanish Investigation Finds Vaccine Passports Have No Impact on Infection Rates](https://summit.news/2021/12/03/spanish-investigation-finds-vaccine-passports-have-no-impact-on-infection-rates/)
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+* * *
+
+*素材来源：思澈*
+
+*编辑**& 发布：jamie(文胤)*
 
  
 
