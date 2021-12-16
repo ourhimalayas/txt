@@ -2,157 +2,104 @@
 ---
 
 
-## 12/16每日播报|社媒消息:蓬佩奥 杰森米勒
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1760571/)
+## 12/16每日播报｜新闻简讯: 中共病毒变种 民工被就地隔离
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1760624/)
 
 **By:[秘翻新闻](https://gtv.org/broadcast/watch/61baff8d7882000d5101f1b9)**
 
 **2021-12-16**
 
-**1.蓬佩奥12月16日发推说：**
+**1.美军研发新软件 预测中共过激反应**
 
-拜登政府仅外交抵制北京冬奥会远远不够。犯下种族灭绝罪和无视基本人权的中共政权不应获得举办奥运会的奖励。此外，为了运动员的健康和安全，全面抵制北京奥运会符合我们的最大利益。
+[据《路透社》12月16报道，部署于太平洋地区的美国军事指挥官建立新软件工具，来预测中共对美国在该地区进行军售丶支持军事活动，甚或是美国国会对台湾等热点地区进行访问时，中共将如何作出反应。](https://tw.news.yahoo.com/%E7%BE%8E%E8%BB%8D%E7%A0%94%E7%99%BC%E6%96%B0%E8%BB%9F%E4%BB%B6-%E9%A0%90%E6%B8%AC%E4%B8%AD%E5%9C%8B-%E9%81%8E%E6%BF%80%E5%8F%8D%E6%87%89-030600027.html)
 
+[报道指出，该软件工具将用于「战略摩擦」的计算，统整并研究了自2020年初以来的数据，对影响美中关系的重大活动进行评估。该评估系统将有助于五角大楼预测某些行动是否会激起中共的过激反应，为各种活动提供了可见性，如国会访问台湾丶向该地区的盟友出售武器，或者当几艘美国船只驶过台湾海峡时可能会激起中共过度或意外反应。](https://tw.news.yahoo.com/%E7%BE%8E%E8%BB%8D%E7%A0%94%E7%99%BC%E6%96%B0%E8%BB%9F%E4%BB%B6-%E9%A0%90%E6%B8%AC%E4%B8%AD%E5%9C%8B-%E9%81%8E%E6%BF%80%E5%8F%8D%E6%87%89-030600027.html)
 
+[随着台海局势升温，美中两国军方皆在台湾海峡一带展开行动。除了中共频繁派遣战机进入台湾的防空识别区，引起国际高度关注外，美方也增加其派遣军舰通过台湾海峡的行动。](https://tw.news.yahoo.com/%E7%BE%8E%E8%BB%8D%E7%A0%94%E7%99%BC%E6%96%B0%E8%BB%9F%E4%BB%B6-%E9%A0%90%E6%B8%AC%E4%B8%AD%E5%9C%8B-%E9%81%8E%E6%BF%80%E5%8F%8D%E6%87%89-030600027.html)
 
-> Biden’s diplomatic boycott of the [#Olympics](https://twitter.com/hashtag/Olympics?src=hash&amp;ref_src=twsrc%5Etfw) does not go far enough. The CCP should not be rewarded for committing genocide & ignoring basic human rights. Furthermore, it's in the best interests of the health & safety of our athletes to fully [#BoycottBeijingOlympics](https://twitter.com/hashtag/BoycottBeijingOlympics?src=hash&amp;ref_src=twsrc%5Etfw).
-> — Mike Pompeo (@mikepompeo) [December 15, 2021](https://twitter.com/mikepompeo/status/1471184732268511240?ref_src=twsrc%5Etfw)
+秘翻新闻明澈编辑报道
 
+**2. 加拿大新警告：避免非必要国际旅行**
 
+[面对日益严重的中共病毒变种Omicron疫情，加拿大联邦政府周三宣布新的旅行警告——避免非必要的国际旅行。](https://www.epochtimes.com/gb/21/12/14/n13437574.htm)
 
-**2.蓬佩奥12月16日发推说：**
+[加拿大卫生部长杜克洛（Jean-Yves Duclos）12月15日在一个新闻会上宣布了政府的这项新旅行建议。此时正是圣诞节前机场开始繁忙的时候。](https://www.epochtimes.com/gb/21/12/14/n13437574.htm)
 
-每个美国人都有权享受上帝赋予的权利。
+[新闻会后不久，政府官方网站贴出了更新的旅行建议——2021年12月15日开始，避免在加拿大境外进行不必要的旅行。](https://www.epochtimes.com/gb/21/12/14/n13437574.htm)
 
-在《权利法案》（Bill of Rights）日这天，我们必须重申我们对维护这些权利的承诺。
+**3. 欧疾控中心：单靠接种疫苗无法遏制奥米炕**
 
+[据《早报》12月15日报道，欧洲疾病预防控制中心12月15日主任阿蒙在一份声明中表示，按目前的情况，单靠接种中共病毒疫苗无法预防奥米炕变种毒株带来的冲击。现在迫切需要采取强有力的行动应对。阿蒙没有在声明中提到疫苗是否对奥米炕有效。](https://www.zaobao.com.sg/realtime/world/story20211215-1223481)
 
+[欧洲疾病预防控制中心呼吁，要加强和重新施行非药物干预措施，例如戴口罩、注意手部卫生、远程办公和防止公共场所拥挤。](https://www.zaobao.com.sg/realtime/world/story20211215-1223481)
 
-> Every American is entitled to their God-given rights.
-> 
-> Today, on Bill of Rights Day, we must affirm our commitment to preserving those rights. [pic.twitter.com/kG5xTfu6X4](https://t.co/kG5xTfu6X4)
-> — Mike Pompeo (@mikepompeo) [December 15, 2021](https://twitter.com/mikepompeo/status/1471222364847419393?ref_src=twsrc%5Etfw)
+秘翻新闻文洋编辑报道
 
+**4.与普京视讯会谈 习近平：中俄要更多联合行动 **
 
+[综合外媒12月16日消息，15日习近平与普京进行视讯会谈，习近平说，当前国际某些势力打着「民主」、「人权」的幌子横加干涉中俄两国内政，中俄双方要开展更多联合行动，更有效维护双方的安全利益；普京则表示，俄罗斯坚定反对任何势力借涉台问题损害中共利益。此外，会中会中习近平和普亭也相约在明年2月举办的北京冬奥相见，习近平说，对「冬奥之约」十分期待，普京也称，期待很快访华并出席北京冬奥会开幕式，俄方一贯反对将体育政治化的图谋。](https://udn.com/news/story/6809/5964762)
 
-**3.《国家脉动》12月15日在盖特发文：**
+[文章指出，俄国与中共达成交易有利可图，特别是在能源方面。](https://udn.com/news/story/6809/5964762)
 
-英国议员被告知，中共病毒 “最可能来自”武汉实验室泄露，并且经过了基因工程改造。
+秘翻新闻明澈编辑报道
 
-【推文转报道，这一消息是在为英国下议院的科学和技术特别委员会举行的简报会上发布的。麻省理工学院和哈佛大学的基因治疗和细胞工程专家阿丽娜·钱恩(Alina Chan)说：“我们从许多顶级病毒学家那里听说，病毒源于基因工程改造是合理的，中共病毒有一个独特的特征，叫做福林酶切位点，如果没有这个特征，就不可能造成这种大流行。一份泄露的提案显示，生态健康联盟和武毒所曾合作开发一条插入新型福林酶切位点的管道。”钱恩的合著者马特·里德利 (Matt Ridley)议员在会议期间强调，揭开中共病毒的来源是当务之急，向那些释放大流行病的人追责，并停止这些有风险的实验。】
+**5.校外培训政府限价 天价变白菜价**
 
-[https://gettr.com/post/pjq1bs293f](https://gettr.com/post/pjq1bs293f)
+[综合媒体12月16日消息，中共国教育部等部委在9月初公布《关于加强义务教育阶段学科类校外培训收费监管的通知》，要求义务教育阶段线上和线下学科类校外培训收费应由各地政府制定基准收费标准。浙江金华市及绍兴市、海南省、广西等地多地，正就具体收费标准发布征求意见稿。](https://www.hk01.com/%E5%8D%B3%E6%99%82%E4%B8%AD%E5%9C%8B/712734/%E6%95%99%E8%82%B2%E9%9B%99%E6%B8%9B-%E6%A0%A1%E5%A4%96%E5%9F%B9%E8%A8%93%E6%94%BF%E5%BA%9C%E9%99%90%E5%83%B9%E8%AE%8A-%E7%99%BD%E8%8F%9C%E5%83%B9-%E6%B5%B7%E5%8D%97%E6%9C%80%E4%BD%8E%E5%9F%BA%E6%BA%96%E5%83%85%E5%BE%975%E5%85%83)
 
-**4.国家脉动12月15日在盖特发文：**
+[报道指出，由于校外培训机构不得占用国家法定节假日、休息日以及寒暑假期组织学科类培训，只有在学生放学后开展培训，并且要在晚上8时半之前结束。由此，学科类教师每天只能最多上4个课时。按照5元价格计算，4个课时及40人，总收入仅得800元，扣除运营成本、公司利润，利润可说是少之有少。](https://www.hk01.com/%E5%8D%B3%E6%99%82%E4%B8%AD%E5%9C%8B/712734/%E6%95%99%E8%82%B2%E9%9B%99%E6%B8%9B-%E6%A0%A1%E5%A4%96%E5%9F%B9%E8%A8%93%E6%94%BF%E5%BA%9C%E9%99%90%E5%83%B9%E8%AE%8A-%E7%99%BD%E8%8F%9C%E5%83%B9-%E6%B5%B7%E5%8D%97%E6%9C%80%E4%BD%8E%E5%9F%BA%E6%BA%96%E5%83%85%E5%BE%975%E5%85%83)
 
-德国政府想打压即时通信软件Telegram，因为该软件被人们用于组织反封锁的抗议活动。
+[升学规划专家梁挺福受访时指出，虽说从国家层面上明确规定「依法实行政府指导价管理」，但由于各地经济发展、教育资源不均衡，以及老百姓家庭收入水平、消费意识、教育重视程度的差异等因素，将直接影响着指导价的制定标准。政府指导价需要控制在一定的合理范围内，才能让校外培训行业有序良性发展。基于此，各地均需要一个市场落地认可的探索期，否则政府指导价会从一个极端「天价」，走到另一个极端「白菜价」。](https://www.hk01.com/%E5%8D%B3%E6%99%82%E4%B8%AD%E5%9C%8B/712734/%E6%95%99%E8%82%B2%E9%9B%99%E6%B8%9B-%E6%A0%A1%E5%A4%96%E5%9F%B9%E8%A8%93%E6%94%BF%E5%BA%9C%E9%99%90%E5%83%B9%E8%AE%8A-%E7%99%BD%E8%8F%9C%E5%83%B9-%E6%B5%B7%E5%8D%97%E6%9C%80%E4%BD%8E%E5%9F%BA%E6%BA%96%E5%83%85%E5%BE%975%E5%85%83)
 
-【推文转报道，最近数周，德国民众通过Telegram和其它在线社区平台动员人们参加反封锁的抗议活动。与此同时，德国政客和一些媒体抨击Telegram是传播危险阴谋和疫苗错误信息的中心，是所谓“暴力”抗议活动背后的驱动力以及激进主义的温床。德国图林根州的内政部长乔治·迈尔（George Mair）说：“如果Telegram未能删除有害内容，将对其进行处罚。”他还建议进行地理封锁，根据IP协议禁止在某些地区使用该服务。官员们还建议对该平台上的用户进行去匿名化处理，德国联邦参议员罗兰·沃勒尔 (Roland Wöller)说，如果德国警方开展刑事调查，应将用户的真实姓名提供给当局。德国新政府内政部部长南锡·法泽尔 (Nancy Faeser)呼吁采取严格措施，旨在进一步调查Telegram。除了德国，在欧洲各地反对防疫限制令和疫苗暴政的抗议活动中，Telegram也发挥了重要作用，并在大流行期间被用作挑战官方叙事的公众平台。】
+秘翻新闻明澈编辑报道
 
-[https://gettr.com/post/pjrsyef9d2](https://gettr.com/post/pjrsyef9d2)
+**6.胡锡进将退休 《环时》总编**
 
-**5.大纪元12月15日在盖特发文：**
+[中共喉舌《环球时报》总编辑胡锡进，时常透过微博及社论发表个人看法，同时为中共进行大外宣。有消息人士透露，胡锡进目前已超过退休年龄60岁，《环时》将设立社长一职，强化政治导向，同时80后的范正伟将接掌胡锡进的总编辑大位。](https://cdn.discordapp.com/attachments/895315867368312852/920680946125119559/640_1.webp)
 
-白宫新闻秘书珍·普萨基在华盛顿举行的简报会上宣布：“我们已经明确同意国会的观点，必须采取行动追究中共侵犯人权的责任，并解决新疆的强迫劳动问题。”
+[41岁的范正伟自2006年后长期在人民日报评论部工作，同时也是「任仲平」社论的主要成员之一，而「任仲平」出自于「人民日报重要评论」的谐音。范正伟多次参与中央重大活动报导，撰写中共十八届三中、五中全会等多篇人民日报社论，多篇人民日报元旦、国庆社论，参与撰写10多篇「任仲平」文章。](https://cdn.discordapp.com/attachments/895315867368312852/920680946125119559/640_1.webp)
 
-【盖文转报道，白宫12月14日表示，拜登总统即将签署《防止强迫维吾尔劳动法》，禁止进口来自新疆地区的所有商品。参议员马可·鲁比奥（Marco Rubio）和众议员吉姆·麦克高文 (Jim McGovern) 已经就法案的最终文本达成协议，并需要对更新后的版本进行新的投票。】[https://gettr.com/post/pjp6oc242a](https://gettr.com/post/pjp6oc242a)
+[消息人士还指出，《人民日报》国际部副主任吴绮敏则将接任《环时》总编辑，他已经进驻《环时》数月，准备与胡锡进交接。](https://cdn.discordapp.com/attachments/895315867368312852/920680946125119559/640_1.webp)
 
-**6. Newsmax 12月15日发推说：**
+秘翻新闻菜园子编辑报道
 
-美国铁路客运公司美铁 (Amtrak) 12月14日表示，它将暂时停止强制员工接种新冠疫苗，以至不需要被迫在一月份削减其部分服务。
+**7. 快舟一号甲飞行异常 中共火箭发射再失败**
 
-【推文转报道，美铁引用了美国地方法院的一项裁决，该裁决中止了总统拜登对联邦承包商的疫苗强制令，该命令要求承包商雇员必须在明年1月前接种疫苗。上周，该铁路公司告诉国会，由于疫苗强制令，它预计“需要主动地暂时减少一些列车班次”。目前，美铁公司有不到 500 名在职员工没有接种疫苗。】
+[据大纪元消息，14日当晚9点，快舟一号甲运载火箭在酒泉卫星发射中心升空。数小时后，中共官媒证实了飞行异常、发射失败，并称将进一步分析和调查具体原因。](https://www.epochtimes.com/gb/21/12/15/n13439480.htm)
 
+[这是快舟一号甲的第14次发射，也是第二次遭遇失败。第一次发射于2017年1月进行。该火箭全长约20m，起飞质量约30t，最大直径1.4m。](https://www.epochtimes.com/gb/21/12/15/n13439480.htm)
 
+[快舟一号甲的这次飞行，携带着汽车制造商吉利的子公司Geespace的两颗卫星，目的是测试自动驾驶的导航性能。](https://www.epochtimes.com/gb/21/12/15/n13439480.htm)
 
-> Amtrak said it will temporarily suspend the vaccine mandate for employees. [https://t.co/lvgMjufo17](https://t.co/lvgMjufo17)
-> — Newsmax (@newsmax) [December 15, 2021](https://twitter.com/newsmax/status/1470974466951839744?ref_src=twsrc%5Etfw)
+[外界预计快舟一号甲将会被停飞，直到解决了这次失败的原因。](https://www.epochtimes.com/gb/21/12/15/n13439480.htm)
 
+**8.满洲里建方舱医院 大批援建民工被就地隔离**
 
+[据《新唐人》12月16日消息，满洲里市爆发本土疫情后，11月27日开始全面封城。 12月1日，该市已有6个社区被列为高风险地区，4个社区被列为中风险地区，47个社区被划定为封控社区，其余为管控区。封控社区被要求“足不出户”，管控区则“足不出小区”。](https://m.ntdtv.com/gb/2021/12/15/a103294908.html)
 
-**7.新唐人12月15日在盖特发文：**
+[曾在满洲里国宝小区建隔离房的农民工表示，近千名参与建方舱医院的工作人员，在出现确诊病例后，全部被就地隔离。隔离地点居住条件极差，卫生不好，地上一层灰，垃圾没人收，不仅如此，洗脸的水都是黄的，连干净能喝的水都没有。送餐很晚，而且每次吃过都腹泻不止，几天能瘦好几斤，全身无力。](https://m.ntdtv.com/gb/2021/12/15/a103294908.html)
 
-由于数千名学生仍未接种新冠疫苗，洛杉矶学校董事会12月14日同意，将接种的截至日期从明年1月10日推后至明年秋天。
+[说起隔离生活，农民工们情绪很大，表示9日开始前前后后16次核酸检测，不论有没有与阳性病人接触，都被隔离了，里面生活比蹲监狱都不如。给自治区打电话反映过，但是没有用。更有农名工表示，隔离到现在，自己还没和儿子见过面。整个市全面封控，警察在下面巡逻，商店都关门，自己不能出去也不能点外卖。](https://m.ntdtv.com/gb/2021/12/15/a103294908.html)
 
-【盖文转报道，洛杉矶学联合区现在继续每周对所有学生进行核酸测试，直至明年1月。此后，它将只对没有疫苗接种证明的学生进行测试。】
+秘翻新闻明澈编辑报道
 
-[https://gettr.com/post/pjqbh1cb91](https://gettr.com/post/pjqbh1cb91)
+**9.女子微博实名举报前婆婆吃空饷有8套房**
 
-**8. 盖特用户 HALIBOTE 12月15日在盖特发文：**
+[综合媒体12月15日消息，河南一名女子在微博实名举报，称其前婆婆为中国农业发展银行太康支行员工夏X华，其“常年不上班，月月领工资，吃空饷，占据国家财产，他们家在多地有8套房产，9间商铺，4辆汽车，吃穿用度等全部都是名牌，巨额财产和消费来源不明。”并称，其前公公是某单位领导，儿子女儿都在其单位上班。 2017年，夏某华为了买房子，哄骗当时怀孕8个月的她与其儿子“假离婚”，承诺以后房子都留给孩子，并且用她的名字在银行贷款。最后“假离婚”变成“真离婚”：“女方净身出户，而男方不支付抚养费”。该女子说，前婆婆家在当地有钱，有权有势，一手遮天，“把她和孩子逼得走投无路，她只求放过，净身出户，永不牵扯”。](http://www.nbd.com.cn/articles/2021-12-15/2041750.html**)
 
-日本专家警告说，新冠疫苗对年轻人的死亡风险是新冠病毒的7倍。
+[公开资料显示，视频中提到的中国农业发展银行太康支行的工作人员受访时表示，确有名为“夏X华”的员工，就其在岗情况，该工作人员回应称：话题敏感，最好询问本人。](http://www.nbd.com.cn/articles/2021-12-15/2041750.html**)
 
-日本药物公报Med Check表示：“儿童、青少年或20多岁的人在感染新冠后，症状轻微或无症状，考虑为学童接种疫苗是荒谬的。”
+[12月15日，此消息登上了大陆新浪微博和百度热搜榜，迅速引起网民热议。](http://www.nbd.com.cn/articles/2021-12-15/2041750.html**)
 
-[https://gettr.com/post/pjpu24ed33](https://gettr.com/post/pjpu24ed33)
+秘翻新闻明澈编辑报道
 
-**9.盖特官方12月16日发推说：**
+**10.习近平整顿文艺圈 短影片审核有新标准**
 
-盖特CEO杰森米勒接受了班农先生的采访，关于欧洲如何看待拜登政府，米勒说：“他们非常担心这对中共意味着什么，过去一直批评川普的人说，如果我们没有一个强大的美国，我们就不能靠自己对付中共。“关于英国最新的疫苗通行证政策，米勒说：“这就是乔拜登和激进的民主党人想要做的事情。他们要强制给人接种疫苗，并给每个美国人发放疫苗护照，这只是时间问题。”关于在法国斯特拉斯堡举行的欧盟会议上的发言以及欧洲的现状，米勒说：“我谈到如果我们不站出来反对大媒体、大科技公司和这些大政府，我们都将成为温水中的青蛙，各地人民都非常关注这些寡头钳制言论自由权利的方式。”
+[综合媒体12月15日消息，中共文联第十一次全国代表大会、作协第十次全国代表大会12月14日在北京开幕。习近平对文艺界发出一连串警告，表示如果品行不端，人民不会接受，文艺工作者要珍惜自己的社会影响，应当堂堂正正做人、清清白白做事，歌颂真善美、针砭假恶丑。专家认为，北京当局对文艺圈的整肃，最终目的是打造为中共服务的“红色艺术”。](https://www.hk01.com/%E5%8D%B3%E6%99%82%E4%B8%AD%E5%9C%8B/712879/%E5%85%A7%E5%9C%B0%E5%8D%94%E6%9C%83%E7%99%BC%E5%B8%83%E7%9F%AD%E5%BD%B1%E7%89%87%E5%AF%A9%E6%A0%B8%E6%A8%99%E6%BA%96-%E4%B8%8D%E5%BE%97%E6%9C%AA%E7%B6%93%E6%8E%88%E6%AC%8A%E5%89%AA%E6%8E%A5%E6%94%B9%E7%B7%A8%E5%BD%B1%E8%A6%96%E5%8A%87)
 
+[同日，中国网络视听节目服务协会发布2021年《网络短视频内容审核标准细则》。新版细则中提出，短影片内容不得出现「展现『饭圈』乱象和不良粉丝文化，鼓吹炒作流量至上、畸形审美、狂热追星、粉丝非理性发声和应援、明星绯闻丑闻的」，「未经授权自行剪切、改编电影、电视剧、网络影视剧等各类视听节目及片段的」以及「引诱教唆公众参与虚拟货币『挖矿』、交易、炒作的」等内容。](https://www.hk01.com/%E5%8D%B3%E6%99%82%E4%B8%AD%E5%9C%8B/712879/%E5%85%A7%E5%9C%B0%E5%8D%94%E6%9C%83%E7%99%BC%E5%B8%83%E7%9F%AD%E5%BD%B1%E7%89%87%E5%AF%A9%E6%A0%B8%E6%A8%99%E6%BA%96-%E4%B8%8D%E5%BE%97%E6%9C%AA%E7%B6%93%E6%8E%88%E6%AC%8A%E5%89%AA%E6%8E%A5%E6%94%B9%E7%B7%A8%E5%BD%B1%E8%A6%96%E5%8A%87)
 
-
-> Fmr Trump Advisor [@JasonMillerinDC](https://twitter.com/JasonMillerinDC?ref_src=twsrc%5Etfw) on how [#Europe](https://twitter.com/hashtag/Europe?src=hash&amp;ref_src=twsrc%5Etfw) views the new Biden government.
->  
-> “[T]hey’re very concerned about what this means with regards to China…People who have been [#Trump](https://twitter.com/hashtag/Trump?src=hash&amp;ref_src=twsrc%5Etfw) critics in the past say if we don’t have a strong America, we can’t take on [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) by ourself.” [pic.twitter.com/jhy6tQeBa5](https://t.co/jhy6tQeBa5)
-> — GETTR (@GETTRofficial) [December 15, 2021](https://twitter.com/GETTRofficial/status/1471238641326469127?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> “Hear me now…This is what Joe [#Biden](https://twitter.com/hashtag/Biden?src=hash&amp;ref_src=twsrc%5Etfw) and the radical democrats are going to do here. They’re going to force this [#VaccineMandate](https://twitter.com/hashtag/VaccineMandate?src=hash&amp;ref_src=twsrc%5Etfw)… [#VaccinePassport](https://twitter.com/hashtag/VaccinePassport?src=hash&amp;ref_src=twsrc%5Etfw) on everyone in the US. It’s a matter of when not if.”
->  
-> Fmr. Trump Advisor [@JasonMillerinDC](https://twitter.com/JasonMillerinDC?ref_src=twsrc%5Etfw) on the UK’s new vax pass policy. [pic.twitter.com/v3vPGPFm5b](https://t.co/v3vPGPFm5b)
-> — GETTR (@GETTRofficial) [December 15, 2021](https://twitter.com/GETTRofficial/status/1471208445013540869?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> [#GETTR](https://twitter.com/hashtag/GETTR?src=hash&amp;ref_src=twsrc%5Etfw) CEO [@JasonMillerinDC](https://twitter.com/JasonMillerinDC?ref_src=twsrc%5Etfw) on what he spoke about at the EU in Strasbourg.
-> 
-> “So, I talked about how if we don’t stand up to Big Media, Big Tech, these Big Governments, we are all going to be the frog in the boiling water.” [pic.twitter.com/AX5Rbfovoz](https://t.co/AX5Rbfovoz)
-> — GETTR (@GETTRofficial) [December 15, 2021](https://twitter.com/GETTRofficial/status/1471197128269746182?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> “Steve, the way they're clamping down on free speech rights, people everywhere are very concerned.”[#GETTR](https://twitter.com/hashtag/GETTR?src=hash&amp;ref_src=twsrc%5Etfw) CEO [@JasonMillerinDC](https://twitter.com/JasonMillerinDC?ref_src=twsrc%5Etfw) joins Steve Bannon on the War Room to speak about what he has been talking about at the EU and what he is seeing throughout Europe. [pic.twitter.com/ROzUgDRo8U](https://t.co/ROzUgDRo8U)
-> — GETTR (@GETTRofficial) [December 15, 2021](https://twitter.com/GETTRofficial/status/1471193432962048037?ref_src=twsrc%5Etfw)
-
-
-
-**10. Disclose.tv 12月16日发推说：**
-
-注意！推特更新了其中共病毒的“误导性信息”政策，新规说，接种了疫苗的人可以传播病毒给未接种者，是错误或者误导性的信息。
-
-
-
-> ALERT – Be aware of this new rule in Twitter's updated [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) "misleading information" policy. [pic.twitter.com/Q9hkIgEFxO](https://t.co/Q9hkIgEFxO)
-> — Disclose.tv (@disclosetv) [December 15, 2021](https://twitter.com/disclosetv/status/1471190739296178176?ref_src=twsrc%5Etfw)
-
-
-
-**11.Disclose.tv 12月16日发推说：**
-
-佛罗里达州州长罗恩·德桑蒂斯 (Ron DeSantis)说：“佛罗里达州不会容忍文化马克思主义。”
-
-
-
-> NOW – Gov. DeSantis: "Florida will not tolerate Cultural Marxism."[pic.twitter.com/1XV9hDusZA](https://t.co/1XV9hDusZA)
-> — Disclose.tv (@disclosetv) [December 15, 2021](https://twitter.com/disclosetv/status/1471134916276633603?ref_src=twsrc%5Etfw)
-
-
-
-**12.郭文贵先生在12月15日的大直播中说：**
-
-伊维菌素是日本人发现于自然界的神药，经分子化、医药化后，免费提供非洲治疗河盲症；屠呦呦女士的青蒿素比伊维菌素神奇亿万倍，却被中共老杂毛雪藏、不与世人分享。参加终共街头抗议行动要注意“三防”：一防病毒、二防中共捣乱下套、三防因国内家人被威胁而心动；以及“两个准备”：一、在灭共前不能回国了，二、中共会无休止地骚扰你和家人。
-
-[https://gettr.com/post/pjruuda86c](https://gettr.com/post/pjruuda86c)
-
-**以上社交媒体新闻由 巴拉克和Stephanie 联合编译报导**
+秘翻新闻明澈编辑报道
 
 发布:星星
 

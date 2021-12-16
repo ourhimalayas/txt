@@ -2,37 +2,47 @@
 ---
 
 
-## 中国政府将爱国主义和道德标准作为艺术和文化的指导
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1760482/)
+## 8月以来九成Covid死亡来自完全接种者
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1760491/)
 
-撰写：小湫
+翻译： Jenny Ball
 
-以下新闻翻译自FOXNEWS
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-818.png)图片来源 : naturalnews.com
 
-中国政府向艺术家、作家和音乐家下达一项新的指令，要求所有新作品都必须遵循道德和爱国主义的标准。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/习.png)网络截图
-在中国文学和艺术联合会议上，中国国家主席习近平指出，有必要在共产党的领导下，培养作家和艺术家的创作能力，将爱国主义与艺术创作紧密联系到一起。
+《自然新闻》([Natural News](https://www.naturalnews.com/))企业媒体再次对武汉冠状病毒（Covid-19）的最新“变种”（被称为Omicron）进行歇斯底里的散播。然而，他们没有告诉世界的是，唯一受其影响的人是“完全接种疫苗”的人。
 
-《南华早报》报道，习近平曾警告中国的艺术家和作家：不自重的人，不会被他人尊重。同时强调，艺术和文化要引领时代，但是不能无聊和荒诞，作家和艺术家不能成为市场和金钱的奴隶。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/中国.png)网络截图
-这一次指令的下达，标志着中国政府又一次积极行动，再次强调中国文化的民族主义。
+不仅如此，自 8 月以来，十分之九的“Covid”死亡是[完全接种疫苗者](https://dailyexpose.uk/2021/12/03/fully-vaccinated-account-for-9-in-every-10-covid-19-deaths-since-august-according-to-latest-official-data/)，这意味着，**几乎没有未接种疫苗者在检测为“阳性”后死亡。**
 
-近期，中国政府禁止播放女性化的男艺人的影视作品，并要求广播公司推广革命文化，以帮助中国实现民族复兴。中国的公司和公众媒体，越来越大的面临习近平个人意愿的压力，旨在打造他认为的更强大的中国和更健康的社会。
+在这个时间点，唯一存在的疫情是在接受疫苗的人中蔓延的。政府官方数据充分证明了这一点，该数据显示，未接种疫苗的人群的健康状况几乎无懈可击。
 
-中国政府今年早些时候还出台了一项措施，对历史人物批评或嘲笑的国人进行惩罚
-![](https://assets.gnews.org/wp-content/uploads/2021/12/彭.png)网络截图
-但中国政府最担心的是名人的丑闻。
+苏格兰公共卫生局 (PHS) 在其每周按疫苗接种状态分类的病例、住院和死亡的报告中说，绝大多数因“Covid”而造成的严重伤害和死亡**发生在注射疫苗的人群中**，未注射的人大多都很好。
 
-网球双打冠军彭帅，在社交媒体上发帖指控，三年前自己被一名中共前常委性侵，发布消息后，彭帅消失了两周。 随后中国政府迫于国际舆论压力，彭帅最终在某些特定的场合出现，用以击破她被消失的传言。但是一家非常质疑彭帅是否处于自由的状态。
+“通过分析报告中包含的数据，以及可追溯到 2021 年 8 月 14 日的先前报告中的数据，我们可以看到，苏格兰至少自 8 月以来一直在经历‘全面接种疫苗的大流行’，” 《每日曝光》报道。
 
-两个月前，中国著名钢琴家李云迪，因为被指控在北京嫖娼，被中国音乐家协会和中国表演艺术协会开除。
+“这证明，即将引入的新限制，与新的 Omicron 变体可能影响 Covid-19 疫苗的有效性无关，而是与控制有关，因为几个月来已经证明疫苗无效。 ”
 
-参考信息：
+**数据很清楚：接种疫苗会大大增加您的死亡风险**
 
-[China to introduce new ‘patriotism’, ‘morality’ guidelines for arts, culture: Report | Fox News](https://www.foxnews.com/world/china-patriotism-morality-guidelines-music-culture-report)
+来自小灵通的数据清楚地表明，自8月以来，未接种疫苗的病例数一直在逐步下降。 与此同时，完全接种疫苗的病例数量一直在激增。
 
-发稿：MG4
-![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-1.jpg)
+总体趋势表明，**未接种疫苗的人更健康，并能更好地抵御最新变种**，而完全接种疫苗的人越来越多地被注射到体内的东西所害。
+
+至于住院治疗，很少有未接种疫苗的人，甚至由于症状轻微不存在去医院的需求。完全接种疫苗的人则不然，他们正以越来越多的人急速涌入医院。
+
+“正如你从上面看到的，数据证明是：完全接种疫苗的人群给医疗系统带来了压力，而不是像当局和主流媒体让你相信的那样，是未接种疫苗的人群造成的，”《每日曝光》报道。
+
+最令人震惊的数据点是，接种疫苗和未接种疫苗之间的死亡人数。这种差异是如此巨大，以至于人们不再否认疫苗是杀死人的东西，而不是一些漂浮在空气中的“病毒”。
+
+新闻来源 : [naturalnews.com] [90% of all “covid” deaths since August occurred in fully vaccinated](https://www.naturalnews.com/2021-12-14-90-percent-covid-deaths-since-august-fully-vaccinated.html) / [DailyExpose.uk](https://dailyexpose.uk/2021/12/03/fully-vaccinated-account-for-9-in-every-10-covid-19-deaths-since-august-according-to-latest-official-data/) / [NaturalNews.com](https://naturalnews.com/2021-09-30-vaccine-death-report-millions-died-covid-vaccines.html)
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-3.jpeg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
