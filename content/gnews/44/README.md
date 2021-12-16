@@ -2,23 +2,18 @@
 ---
 
 
-## 家庭教育促进法来了！为党“生娃”，还得为党教育！
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1759511/)
+## 不要幻想技术能改变你
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1759619/)
 
-撰稿：东京樱花团/天路天道
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-185.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=http%3A%2F%2Fimage.uc.cn%2Fs%2Fwemedia%2Fs%2Fupload%2F2021%2F6ff23830dc31dd35297ab4a239d9fc8d.jpg&amp;imgrefurl=http%3A%2F%2Fwww.ailaojia.com%2Fu7041%2Fa6bcc1ff6c4d4a1e9627babab30adf10.html&amp;tbnid=Ed0JYTQlYdBMSM&amp;vet=10CCI)
-近日，中共教育部、全国妇联、最高人民法院、最高人民检察院、民政部、司法部、国家卫生健康委等10部门联合召开贯彻落实家庭教育促进法工作部署会。
+文编：东京樱花团/樱花传媒
+视频:东京樱花团/中文小视频组
 
-会议强调，要落实家长主体责任，把习近平总书记关于注重家庭家教家风建设的重要论述精神，把党的十九届六中全会要求落到实处，为党育人，为国育才。
+12月5日，郭文贵先生在GTV大直播指出：
 
-家庭教育至关重要，关乎子女成长、家庭幸福、代际传承。但当下的中共国内经济濒临崩溃，老百姓普遍疲于奔命，自顾且不暇，何谈搞好家庭教育。对中共而言，老百姓不仅要为党生娃，保证中共有“韭菜”可收割，还得自己把搞好教育，让“韭菜”有品质！
+天空WIFI的量子技术接下来主要是需解决基站、加密和成本问题，这需要2-3年。由于中共的干扰，国内不会翻墙，使用天空WIFI的机会几乎没有。墙内的战友们千万不要活在梦想中，任何收获都是有风险的，不经过努力和付出，不可能拥有。
 
-信息来源：
-
-[10部门共同召开贯彻落实家庭教育促进法工作部署会](http://edu.people.com.cn/n1/2021/1215/c1006-32308091.html)
-
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
+*编辑：东京樱花团/墨然
+发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 

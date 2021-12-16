@@ -2,28 +2,24 @@
 ---
 
 
-## 丹麦超过300人接种3剂疫苗后仍感染Omicron
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1759939/)
+## 秘翻在线：拜登签署行政令制裁全球非法毒品贸易
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1760131/)
 
-#### 撰稿：日本东京方舟农场  幽蘭自得
+#### 翻译/撰稿：zzballack
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/57F720C4-0DF5-44F8-831F-49D8B1D9B080.jpeg)（图片来自altalex.com）
+#### 校对：白夜
+![](https://assets.gnews.org/wp-content/uploads/2021/12/16396431821.png)          图片来源：路透社
+据《合众国际社》（UPI）12月15日报道，美国总统拜登12月15日签署了两项行政令，扩大对贩毒组织和毒贩个人的制裁打击。
 
-据《自由时报》12月15日报道，丹麦卫生部门表示，该国已有超过300人接种了3剂疫苗，却仍感染Omicron。
+其中一项命令是“对参与全球非法毒品贸易的外国人员实施制裁”（Imposing Sanctions on Foreign Persons Involved in the Global Illicit Drug Trade）。该命令将授权财政部长在与国务卿、司法部长和国土安全部部长协商后，对确定参与全球毒品贸易或与之相关交易的任何外国人士实施制裁。
 
-据悉，丹麦13日通报了7799起中共病毒病例，为疫情爆发以来新高，是上周同日的2倍之多。截至13日为止，丹麦累计3437人感染Omicron，其中9%打了3剂疫苗、75%打了2剂疫苗；另外，有37名感染Omicron者入院。
+有5位中国公民被财政部制裁，他们被指控参与贩运及生产毒品芬太尼，并在美国销售。
 
-也就是说，丹麦这次感染Omicron病毒的人中85%的人都完成了接种有的还接种了加强针，只有15%的人没有接种疫苗或者只接种一针。这样悬殊的比例很好地证明了疫苗不但没有预防作用，反而增加了感染病毒的可能性。
+第二项命令是“建立美国打击跨国有组织犯罪委员会”（Establishing the U.S. Council on Transnational Organized Crime），将把6个打击跨国有组织犯罪的政府部门和机构整合在一起，以确保美国政府有效利用所有适当的工具来应对跨国犯罪组织的威胁。
 
-*参考链接：[擋不住！丹麥逾300人打3劑疫苗 仍感染Omicron](https://news.ltn.com.tw/news/world/breakingnews/3769664)*
+白宫说：“跨国有组织犯罪通过毒品贸易、暴力、枪支和人口贩运威胁着全球稳定，他们还贩运合成阿片类药物，特别是芬太尼，导致美国各地的吸毒过量致死人数剧增，大约每5分钟就有一个美国人丧生。”
 
-* * *
-
-*素材采编：幽蘭自得*
-
-*编辑：文顺*
-
-*发布：miumiu*
+新闻来源：[Biden signs executive orders targeting global drug trade](https://www.upi.com/Top_News/US/2021/12/15/biden-sanctions-transnational-organized-crime-drugs/3241639598020/)
 
  
 
