@@ -2,33 +2,34 @@
 ---
 
 
-## 12/15/2021文贵视角：《西藏独立法案》意味着什么？
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1761392/)
+## 疫苗强制令下卡车司机流失引发供应链问题
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1761471/)
 
-撰稿：Skagen
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1685216a211868a757a9981656974205.png)
-图片：网络
+作者：银河勇气星—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月14日，据当地媒体报道称，加拿大卡车司机运输集团明确表示，由于美加政府将自2022年1月15日起强制要求跨境卡车司机出示新冠疫苗接种证明，此举将导致业已恶化的供应链问题变得更加严峻。据了解，目前约有数千名卡车司机准备步行抗议此项政策。
 
-2021年12月15号，郭文贵先生针对美国参众两院12月14号发布的支持《西藏独立法案》的议员签名公函，揭示了对灭共和中共国未来及其周边国家的地缘政治军事的深远意义。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide7-6.jpeg)
 
-**西藏对中共国水资源和国防的关系**。西藏人口大约420万左右,官方叫350万，安全部数据2014年是420万。全亚洲的86%到90%的水是来自于喜马拉雅。 喜马拉雅山脉的高度保护了中国的西部。中国所有的战争来自于北部，俄罗斯人，东南部的印度，但是他们跨不过喜马拉雅山脉，喜马拉雅是中国整个半个国家的大屏障。北边北朝鲜、俄罗斯，韩国、印度、日本，这些国家，哪个不想收拾你中共国。
+另据加拿大卡车联盟CTA预计，如果加拿大政府继续执行该跨境新冠疫苗接种政策，或将致使约两万名从事跨境运输的卡车司机离职。对此，加拿大私人卡车理事会PMTC也认为，大约将有超过三万名司机因为该疫苗政策而离职，其比例高达26%。PMTC还提到，加拿大非越境的国内司机中未接种新冠疫苗的人数比例更高，达到30%。因此，倘若政府将新冠疫苗计划同时运用于非跨境司机群体中，则只会让如今的供应链问题愈加恶化。
 
-**对台湾的影响。**所以共产党明白，一定要把台湾弄过来，这样东大门整个对着大西洋就去了，然后台湾的东半岛全部变成军事基地，西半岛全变成生产科技基地。
+资料显示，在过去的22个月中，因政府的强制新冠疫苗接种计划，越来越多的跨境司机选择停止跨境运输，或者彻底离开运输行业，他们倾向于选择不需要被疫苗护照限制的工作。
 
-**对周边国家的军事战略。**然后日本就灭了，所以日本紧张啊，台湾拿下来，日本就没有作战空间了。 整个西藏独立，共产党完了，新疆是西北，阿塞拜疆，包括外蒙，那些地方够不成中国的威胁?俄罗斯,你要想到这是多可怕呀? 西藏要独立了,整个中国的水没了,中国蕴藏着最多的木头的地方没了, 而且是居高临下,发导弹的时候不用发 自由弧线都给你打到北京去了,撂到上海去了,打上去就直接下来了,一旦西藏要是成了战略用地,彻底完了。
+参考链接：[Vaccine mandate for Canadian truckers could lead to mass exodus, severe supply chain issues](https://www.lifesitenews.com/news/vaccine-mandate-for-canadian-truckers-could-lead-to-mass-exodus-severe-supply-chain-issues/)
 
-**中共国3/4国土领域的威胁。**《西藏独立法》，西藏不是要自治，是支持它独立，西藏的战略位置绝不亚于台湾。西藏没了，整个中国任何人被困住了，就是一个尿盆和站着撒尿的感觉，这是很可怕的战略位置。 新疆和西藏一旦独立，印度、阿塞拜疆，俄罗斯、白俄罗斯，所有这些国家都是中国的威胁。连北朝鲜都不会再寂寞了，包括整个朝鲜半岛，特别韩国，这些国家一定跟你掰扯了，中国3/4的领域已经成为了危险之地，剩下的台湾，能让你拿走吗？你拿不走，这是绝对致命的。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
 
+总编：Ivy001
+编辑：Kathy文艺
+校正/发稿：谐趣园
 
-
-相关链接：
-
-[https://gnews.org/1757807/](https://gnews.org/1757807/)
-
-[https://gtv.org/video/id=61b9e8037882000d5100be68](https://gtv.org/video/id=61b9e8037882000d5100be68)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

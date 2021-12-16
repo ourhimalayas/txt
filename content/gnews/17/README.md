@@ -2,36 +2,31 @@
 ---
 
 
-## 康奈尔大学因新冠疫情关闭校园
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1761828/)
+## 著名的百老汇演出因奥密克戎病毒而取消
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1761935/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月14日，康奈尔大学在其官方网站上发出公告称，该校目前已经发现903名学生的新冠病毒检测结果呈阳性，其中，大部分阳性患者被确诊感染了奥密克戎变种病毒。
+撰稿：GoergeC（乔治）
+上传：追着曙光跑
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide8-2.jpeg)
+据NEWSMAX新闻12月17日的报道，出于担心新的中共病毒奥密克戎（omicron）变种的原因，纽约市取消了百老汇（Broadway）的一系列大型演出，包括”蒂娜”、”哈利波特与被诅咒的孩子”、和”不要太骄傲”。因为百老汇公司内部出现部分中共病毒阳性的确证病例，蒂娜·特纳音乐剧宣布将演出推迟到下周。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Image-2021-12-17-at-00.35.02.jpeg)图片来源：原新闻
+据美国国家广播公司（NBC）报道，美国疾病控制和预防中心（CDC）负责人周二表示，纽约和新泽西州正在以高出全国平均水平四倍的速度追踪奥密克戎变种的感染。百老汇在去年的大部分时间都没有开放，并于今年7月宣布所有到剧院现场的观众都必须接种疫苗才能观看百老汇的演出。
 
-为此，康奈尔大学决定关闭其位于纽约州的伊萨卡校区，并将该校区本学期的期末考试改为线上进行。同时，该校将取消即将举行的毕业典礼及其它各类活动。另外，康奈尔大学也关闭了校园图书馆，更禁止所有外来人员进入校园。
+自感恩节以来，纽约州每10万人中COVID-19病例的平均值增长了58%。据福克斯（Fox ）报道，纽约民主党州长霍赫尔（Kathy Hochul）称这种中共病毒确证病例急剧增加令人震惊，导致她发布了室内强制带口罩的行政命令。
 
-据悉，这所常春藤名校的师生总体新冠疫苗接种率到达97%。其中，该校专业教师的疫苗接种率为100%，其他员工的接种率为93%，而本科生的接种率已达99%。
+评论：早在12月3日，郭文贵先生在文贵大直播节目中就表示，奥密克戎变种病毒的传播能力极强，但是毒性不大。现在病毒的发展正如文贵先生所预测的一样，确证病例上升迅速，但是死亡病例并没有呈现相应的增加趋势。
 
-目前，康奈尔大学已经进入了“红色警戒级别”，这也是自新冠疫情爆发以来，该校首次进入高风险状态。而据该校副校长乔尔·马利纳在一份声明中提及，此次聚集性感染中，几乎所有的奥密克戎病例都是在完全接种新冠疫苗的学生中发现的，其中一部分人甚至还接种了加强针。
+值得一提的是，美国左派民主党大本营纽约州是推广强制疫苗政策最为积极的州，然而纽约州中共病毒的肆虐情况却是美国最严重的地区，远高于反对强制疫苗政策的保守派共和党州。
 
-参考链接： [Cornell University reports more than 900 Covid-19 cases this week. Many are Omicron variant cases in fully vaccinated students](https://www.cnn.com/2021/12/14/us/cornell-university-covid-cases/index.html)
+这一事实既验证了爆料革命和文贵先生对中共病毒的精准判断，同时也说明中共疫苗不仅不能阻挡中共病毒的传播而且反而能加剧病毒的扩散。相信在几个月后，全世界的疫苗灾难将在我们新中国联邦人的努力下得到彻底的逆转！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
+新闻来源：[Popular Broadway Shows Canceled Over COVID-19 Omicron Variant](https://www.newsmax.com/thewire/broadway-new-york-city-covid-19-lockdowns/2021/12/15/id/1048876/)
+[2021年12月03日 文贵大直播：各国疫苗政策近况；国内疫苗政治，疫苗经济及疫苗灾难的最新消息；Omicron变异病毒在亚洲地区的进展；iTunes打榜记录- Hcoin To The Moon；美国世界经济变化；喜数字银行牌照及赌场牌照的意义](https://gtv.org/video/id=61aa1cecd6388d55041591e6)
 
-总编：Ivy001
-编辑：Jack Li文阳
-校正/发稿：谐趣园
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
