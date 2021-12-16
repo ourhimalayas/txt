@@ -2,57 +2,39 @@
 ---
 
 
-## Covid 疫苗可能会导致中枢神经系统终生瘫痪（1/2）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1760750/)
+## DC大中华时事：美众议院通过新财年国防法案促美台联合军演
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1760837/)
 
-翻译：Jenny Ball
+*编辑：DC任盈盈 / 作图：*hans（文玄）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-824.png)图片来源 ：naturalnews.com
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/ScreenShot-2021-08-01-at-17.25.09@2x.png)
 
-在分析新闻时，请看一下两名因 Covid 疫苗接种而严重受伤的女性的两则新广告。 你永远不会在主流媒体上看到这一点，这些广告是由疫苗安全研究基金会发布的，他们倡导疫苗受伤者，特别是当他们的声音在所有社交媒体和新闻中被屏蔽时，因为人们迷失在主流新闻中，不知道这些伤害，并不意味着它现在不会发生。可以肯定的是，这两名疫苗受害者，绝不是唯一的中枢神经系统遭到破坏的人。而这可能会让她们的余生活在痛苦中。
+#   墙国妄语每日驳
 
-肖恩·斯凯尔顿和安吉莉亚·德塞尔（[Shawn Skelton and Angelia Desselle](https://sharylattkisson.com/2021/11/the-hidden-covid-19-vaccine-injured/)）的中枢神经系统都被 Covid 疫苗摧毁了
+### **12.16**.新华网.第一报道 | 中俄元首年内再度视频会晤 传递这些重要信息
 
-多年来，自然健康倡导者一直在呼吁医疗行业，从流感和所有其他疫苗中去除汞（列为硫柳汞，含 50% 的汞），但 CDC 和 FDA 并不关心。汞是导致自闭症和其他大脑和中枢神经系统疾病（如：疯帽匠综合症[Mad Hatter syndrome](http://www.truthwiki.org/mercury-in-vaccines/)）的罪魁祸首。这是科学事实。
+[http://www.news.cn/world/2021-12/16/c\_1211489318.htm](http://www.news.cn/world/2021-12/16/c_1211489318.htm)
 
-现在出现了 Covid 血栓注射，这些注射显然导致了心肌炎、中枢神经系统疾病和“突然死亡”的大流行。很明显，心脏、大脑和中枢神经系统承受着巨大的压力，因为那些注入他们细胞产生强烈反应的，产生有毒的朊病毒，这些朊病毒在整个血管系统中传播，到达大脑和清洁器官。
+***简评：***在郭先生12月12日直播爆料俄罗斯和西方已经做好沟通不会和中共站在一起，对中共出兵台湾并拉俄罗斯一起出兵乌克兰，俄罗斯对西方表示这绝不会发生。而今天新闻看到习近平15日马上与普京连线，也是今年的第二次视频会面，反对企图离间中俄关系，表现出极大的不安全感，就像恋爱中的一方害怕情变急需对方表白一样。普京双头鹰配合得很好，说了很多让习心安的话，例如期待很快访华并出席北京冬奥会开幕式，俄方一贯反对将体育政治化的图谋。这对此阶段的习来说是最需要的“支持”，郭先生说过普京是克格勃出身深谙心理学，一下子说到习心坎上了。后面普京说，俄方愿同中方继续加强经贸、油气、金融、航空航天等领域以及战略性大项目合作，郭先生曾指出俄罗斯不会放过任何一个榨取中共的机会，中共想要俄罗斯支持，后面在这几个领域上与俄罗斯签订贸易协议，支付大量的金钱是不可避免的，no money no talk。这次视频会面和中共党媒发出的最有利习的新闻通稿无一不在作证郭先生直播内容的真实性，我们还注意到中共在军事上也想得到俄罗斯的站台，提到俄罗斯参与中共解放军在南海的军演，而普京表示俄方愿同中方就维护各国真正民主权利问题加强沟通，并未在军事立场上接过习的传球。郭先生直播说过，西方和俄罗斯已经就亚太和欧洲的利益进行了勾兑，将中共赶出亚太，俄罗斯要增强在印太和欧洲的影响力，普京一方面把中共捧上神坛，做成一个用来与西方勾兑的最大筹码，中共和习最后关头一定会被俄罗斯抛弃。
 
-肖恩和安吉莉亚现在一直处于中枢神经系统痉挛状态。他们的生活几乎在一夜之间天翻地覆地被Covid疫苗改变了。听他们讲述他们的故事，这正在发生， [观看这些推荐视频以了解完整故事](https://sharylattkisson.com/2021/11/the-hidden-covid-19-vaccine-injured/)。
+### 12.16.新华网.习近平会见平安中国建设表彰大会代表 李克强王沪宁韩正参加会见
 
-您还可以在参议员罗恩·约翰逊（ Ron Johnson) 举办的论坛上[看到专家组的证词](https://rumble.com/voq2xb-ron-johnson-leads-expert-panel-on-covid-19-vaccine-mandates-and-injuries.html)，该论坛涉及 Covid（隐藏的）疫苗伤害和非法授权。另外，这里是前线 Covid 疫苗的一些[可怕的伤害和改变生活的故事](https://rumble.com/vn0e9i-why-would-anyone-trust-public-health-officials-stephanie-de-garays-daughter.html)：
+[http://www.news.cn/politics/leaders/2021-12/16/c\_1128169047.htm](http://www.news.cn/politics/leaders/2021-12/16/c_1128169047.htm)
 
-来自威斯康星州的整形外科医生乔尔·沃尔斯科格（Joel Wallskog）医生在莫德纳疫苗接种后，被诊断出患有横贯性脊髓炎；
+***简评：***据中共党媒的报道，15日对于习近平来说是忙碌的一天，他和普京视频会面又参加平安中国建设的表彰会，罕有的是三个中共在任常委一起陪同参加会见。郭先生12日的直播大量的信息中提到中国现在根本没有常委，军政大权完全被习的家族十几个人把控，习的弟弟、妻子、女儿都手握大权。而事过两天，第三天习马上带着三个常委亮相，不由让人想到是不是有点心虚，想要反驳郭先生说法，告诉世人“看，谁说没有常委，他们不也一起的吗？”，平安中国是中共在2020年4月成立的以应对中国社会主要矛盾议事协调机构，由政法委、最高法、武警、国安部等机构人马担任成员，其中几位是有福建、浙江工作经历，籍贯山东的主要领导。习在二十大前大肆表彰平安中国在全国的各级机构，如在军队提拔军官一样，在收买人心，施加政治压力，确保政治安全、社会不出大乱，为习在二十大顺利连任保驾护航。
 
-肖恩·巴卡维奇（Shaoun Barcavage）在接种 Covid-19 疫苗后，遭受了痛苦的神经损伤；
+### 12.16.凤凰网.浙江确诊人数两周内激增 “防疫优等生”怎么也会失手？
 
-凯莉·安·罗德里格斯（Kelly Ann Rodriguez），来自华盛顿州塔科马的年轻母亲，在接种疫苗后要依赖助行器；
+[https://i.ifeng.com/c/8C16M3YLXeP](https://i.ifeng.com/c/8C16M3YLXeP)
 
-麦迪·盖瑞（Maddie de Garay），来自俄亥俄州辛辛那提的 12 岁辉瑞临床试验参与者，现在坐轮椅和喂食管维生；
+***简评：***这篇长文读完以后有几个感受，第一，国内疫情压不住了，郭先生也指出国内疫情一直被压制，死了上千万人也没有任何报道，这次浙江和广东都“爆发”疫情，当地政府组织全民核酸检测，确诊案例越测越多。第二，中外各国事实表明疫苗无用，但是党媒和御用“砖家”会把疫情用于接种第三针的理由，抖音和微信上大量视频和文章说科兴疫苗接种后的48份血清中对Omicron病毒中和抗体率为94%，鼓吹科兴疫苗防新变种。第三，公布确诊人的生活隐私，引发全民讨论和交流，八卦和小道消息满天飞，对当事人诸多谩骂而没有同情，民间仇恨和不信任蔓延，中国人的良知在一次次的下降，无人反思，只要不发生在自己身上，哪管他人的遭遇。第四，强调境外输入的Omicron病例，让国内民众对境外回国人士产生抵触，制造仇恨和分裂，闭关锁国届时成为必须，民众亦不会抵触。第五，文章提到一次性全城核酸检测折腾太大，平时不应放松防控，意思是今后防疫控制常态化，民众自觉减少出外吃喝玩乐，自觉回归到简单物欲生活，对未来中共供销社配给制到来做心理准备，不要埋怨不要反抗。疫情真是一个统治阶级最好的独裁工具，中外皆如此。
 
-特蕾莎·朗（Theresa Long）医生，是美国陆军高级飞行外科医生吹哨人，她看到许多飞行员在接种 Covid-19 疫苗后生病，并警告说，他们可能会因疫苗副作用而死在空中。
+#   港台资讯
+![](https://himalayawashingtondc.org/wp-content/uploads/2021/12/DB233EF9-92C9-4072-A058-C482D2C86EAE-1024x576.png)![](https://himalayawashingtondc.org/wp-content/uploads/2021/12/717710A8-0053-49D2-B1AF-E1ECC2016128-1024x576.png)![](https://himalayawashingtondc.org/wp-content/uploads/2021/12/C4F290DD-C14F-49FC-BA20-5DCB16D46649-1024x576.png)![](https://himalayawashingtondc.org/wp-content/uploads/2021/12/3865642A-E1E5-4EF9-A976-DEF4F9BB4484-1024x576.png)
+*编辑：*DC任盈盈
+*作图：hans（文玄）
+发布：文顾*
 
-科迪·弗林特（Cody Flint），来自密西西比州克利夫兰的航空公司飞行员，累计飞行时间超过 10,000 小时，在辉瑞疫苗接种后，被诊断出患有左右外淋巴瘘、咽鼓管功能障碍和颅内压升高；
-
-欧内斯特·拉米雷斯 (Ernest Ramirez)，来自德克萨斯州奥斯汀市的父亲，他唯一的儿子在接种辉瑞疫苗后，在打篮球时晕倒并死于心肌炎；
-
-来自加利福尼亚州洛杉矶的阿美（Amy） 和阿比（Abby Alvo）一家的女儿，因第一剂辉瑞疫苗出现不良反应，两次被拒绝医疗豁免，但如果她不完全接种疫苗，就将被踢出大学啦啦队；
-
-来自爱达荷州的农场运营经理道格·卡梅伦（Doug Cameron），在接种疫苗后永久瘫痪；
-
-来自博伊西的专业山地自行车赛车手凯尔·维尔纳 (Kyle Werner)，在接种疫苗后被诊断出患有心包炎；
-
-苏珊娜·纽厄尔 (Suzanna Newell)，来自明尼苏达州圣保罗的铁人三项运动员，接种疫苗后被诊断患有自身免疫性疾病，依靠助行器或手杖行走；
-
-疫苗安全研究基金会向福奇博士提交感人的恳求信，要求他和拜登与受伤害者会面，他们接受请求吗？请看下文。
-
-新闻来源：[naturalnews.com] [Covid jabs can cause the central nervous system to go absolutely HAYWIRE, possibly for life](https://www.naturalnews.com/2021-12-14-covid-jabs-can-fry-central-nervous-system.html) / [Pandemic.news](https://www.pandemic.news/2021-03-04-who-insider-exposes-gavi-gates-perpetrating-plandemic.html) / [TruthWiki.org](http://www.truthwiki.org/cdc-centers-for-disease-control-and-prevention/) / [NaturalNews.com](https://www.naturalnews.com/2021-10-03-cdc-hospitals-fully-vaccinated-deaths-unvaccinated.html) / [ZeroHedge.com](https://www.zerohedge.com/covid-19/joe-rogan-crushes-cnn-over-ivermectin-horse-paste-propaganda-gets-gupta-concede) / [FoodSupply.news](http://www.foodsupply.news/2021-11-18-food-shortage-engineered-to-control-people.html) / [ZeroHedge.com](https://www.zerohedge.com/covid-19/joe-rogan-crushes-cnn-over-ivermectin-horse-paste-propaganda-gets-gupta-concede)
-
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-3.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

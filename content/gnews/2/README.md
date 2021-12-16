@@ -2,36 +2,39 @@
 ---
 
 
-## 您的宠物会感染COVID-19吗？
-` Zero-Day【零时差】` [轉載自GNews](https://gnews.org/zh-hans/1761216/)
+## 第二家蒙特利尔医院宣布最新COVID-19 新冠变种病毒爆发——现在该市有 95 例 Omicron 变种病例，其中90%已完全接种疫苗
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1761275/)
 
-![400.jpeg](https://assets.gnews.org/wp-content/uploads/2021/12/F6B530D4-2A0F-4464-B3D4-643E8B17C50F.jpeg)
-2021 年 12 月 16 日，艾玛 H.托宾纽约（美联社发文题为：您的宠物会感染 COVID-19 吗？
+编译：16626
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片16732.png)蒙特利尔的圣母医院Notre-Dame Hospital 位于舍布鲁克东街Sherbrooke Street East的拉封丹La Fontaine公园对面。 （伊万诺·德默斯Ivanoh Demers /加拿大广播电台）
+**医生说5 名外科工作人员的 COVID-19 检测呈阳性**
 
-是的，宠物和其他动物可能会感染导致 COVID-19 的冠状病毒，但卫生官员表示，它们将其传播给人类的风险很低。
+加拿大广播公司新闻2021 年 12 月 15 日（伊万诺·德默斯，Ivanoh Demers，发布时间：美国东部时间 2021 年 12 月 15 日晚上 7:51 | 最后更新：12 小时前，来自加拿大广播电台的文件）报道，蒙特利尔的圣母医院宣布最新COVID-19 新冠变种病毒爆发并导致该医院取消了非紧急手术。现在该市有 95 例奥米克戎Omicron 变种病例，其中 90% 涉及已完全接种疫苗的人。这是自2021 年 12 月 12 日以来第二家蒙特利尔医院宣布最新COVID-19 新冠变种病毒爆发。三天前加拿大广播公司新闻2021 年 12 月 12 日（让-克劳德•塔利安娜Jean-Claude Taliana）报道，最新COVID-19 新冠变种病毒在蒙特利尔湖岸总医院（Montreal’s Lakeshore Hospital）爆发-所有感染者都接种了双重疫苗。该篇题为《由于 COVID-19 的爆发，蒙特利尔圣母医院取消了非紧急手术》的报道编译如下：
 
-狗、猫、雪貂、兔子、水獭、鬣狗和白尾鹿都是检测呈阳性的动物，大多数情况下是从感染者那里感染的。
+涉及手术室工作人员的五名成员COVID-19 爆发导致，自周四起，蒙特利尔圣母医院将暂停非紧急手术。
 
-虽然您不必太担心从宠物那里感染 COVID-19，但他们应该担心从您那里感染。根据[美国疾病控制与预防中心的](https://www.cdc.gov/coronavirus/2019-ncov/daily-life-coping/animals.html)说法，确诊或疑似 COVID-19 的人应避免与宠物、农场动物和野生动物以及其他人接触。
+“我们现在的状况与2020年3月至4月经历的情况非常相似，”该医院的外科医生斯坦利沃兰特Dr. Stanley Vollant告诉加拿大广播电台。
 
-安大略兽医学院的斯科特·威斯博士说：“如果你因为生病或可能接触到其他动物而不愿靠近另一个人，请不要靠近另一只动物。”
+他证实了医院将暂时计划取消手术，并称手术室将在最低限度内运作，尽管这五名工作人员都生病不能工作。
 
-这种特殊的冠状病毒[最有可能首先从动物](https://apnews.com/article/coronavirus-pandemic-science-health-covid-19-083bd75a801f9824e0b9ad7316062a5c)传染[给人类](https://apnews.com/article/coronavirus-pandemic-science-health-covid-19-083bd75a801f9824e0b9ad7316062a5c)，从而引发大流行，因为这种病毒很容易在人与人之间传播。但它不容易从动物传播到人。威斯说，水貂是已知的唯一一种从人类身上感染病毒并将其传播回来的动物。
+紧急和肿瘤手术将继续进行。
 
-**北欧的三个国家记录了该病毒从人传播到水貂养殖场的水貂的病例。病毒在动物之间传播，然后再传回农场工人。**
+社区医院位于舍布鲁克东街Sherbrooke Street East的拉封丹La Fontaine公园对面。它已经存在了近一个世纪。
 
-Weese 说，动物获得和传播病毒的难易程度可能会因不同的变种而异，防止病毒在动物之间传播的最佳方法是在人与人之间控制它。
+蒙特利尔周三记录了 844 例新的 COVID-19 病例，该市公共卫生主任 Mylène Drouin 表示，她预计未来几周每天的病例数会增加。
 
-编译/玛莉娜
+**目前，大多数情况仍然是 Delta 变体。但现在该市有 95 例奥米克戎Omicron 变种病例，其中 90% 涉及已完全接种疫苗。 **
 
-审阅/丘杰斯
+魁北克省周三总共报告了 2,386 例新的 COVID-19 病例和 4 例新死亡病例。
 
-上传/天赐良闻
+正如该市公共卫生主任 Mylène Drouin 指出的，预计未来几周每天的病例数还会增加，该篇报道提醒魁北克人，病毒仍在传播，必须格外小心。
 
-[援引链接](http://https%20you://apnews.com/article/coronavirus-pandemic-science-health-lifestyle-animals-c4cd49b1aac1e7a3aaa7ffdef9ad9be8)
+参考资料：[https://www.cbc.ca/news/canada/montreal/hospital-notre-dame-montreal-covid-19-outbreak-1.6287623](https://www.cbc.ca/news/canada/montreal/hospital-notre-dame-montreal-covid-19-outbreak-1.6287623)
 
+编辑/发布：LILY
 
-
+20211216
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
