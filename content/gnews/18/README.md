@@ -2,45 +2,30 @@
 ---
 
 
-## 【零时差】Covid：英国创下自大流行开始以来的最高每日病例总数78,610例
-` Zero-Day【零时差】` [轉載自GNews](https://gnews.org/zh-hans/1761004/)
+## 秘翻在线: 洛杉矶校董事会撤回强制接种疫苗的最后期限
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1761125/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/5907A031-54DA-4476-B49E-3052809E0569.jpeg)
-2021年12月15日《独立报》报道，英国政府数据显示，英国周三又记录了 78,610例每日 [Covid-19](https://www.independent.co.uk/topic/covid-19)病例，这是自 2020 年 3 月大流行开始以来感染最严重的一天。这引发了人们对节日期间入院人数过多的担忧。
+撰稿:牛小妹
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Image-1-2-2.jpg)
+图片:大纪元
 
-这比之前创纪录的每日感染率高出 10,000 多例，这是在去年冬天的高峰期，当时 1 月 8 日报告了 68,053 例感染。
+**政府强制疫苗接种是剥夺人民的医疗自主权**
 
-在新感染病例中，英格兰各地报告了 4,237 例额外的 omicron 病例，使英格兰新变种的确诊病例总数达到 9,243。
+10 月 1 日，加州州长加文．纽森 (Gavin Newsom) 在新闻发布会宣布加州成为第一个强制要求在全州范围内为学童接种中共病毒疫苗的州政府。大纪元时报引述奥兰治县教育委员会主席玛丽·巴克Mari Barke说，”我坚信父母的权利，父母应该知道什么对他们的孩子是最好的选择。中共病毒疫苗只是在实验阶段，除非有严重的合并症，中共病毒对于儿童而言并没有杀伤力，我认为疫苗政策是政府过度干预。”
 
-在苏格兰，新增了 265 例 omicron 病例，总数达到 561 例，而在威尔士，这一数字几乎翻了一番，达到62 例，而在北爱尔兰，这一数字猛增了 139 例，达到 151 例。
+**加州强制疫苗政策受阻**
 
-英国卫生安全局表示，在整个四个国家中，又报告了 4,671 例 omicron 变体确诊病例，总数达到 10,017 例。
+根据《零对冲》的报导 ，12月14日，加州洛杉矶校董事会因担心学生们拒绝接种疫苗而转为自主学习，决定撤回在1月10日之前要求学生接种中共病毒疫苗的规定，同意延期至明年秋天。
 
-关于疫苗接种，数据显示已经接种了 34,082 剂第一剂、37,888 剂第二剂和 656,711 剂加强剂和第三剂。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/69117E5A-50A6-40DF-8408-0A443711C0CF.jpeg)
-英国首席医疗官发出警告说，英国人应该减少社交活动，以保持圣诞节家庭正常度过的希望。[Chris Whitty](https://www.independent.co.uk/topic/chris-whitty)说[omicron](https://www.independent.co.uk/topic/omicron)变体“正在以绝对惊人的速度发展”。
+学校董事会成员贾姬·戈德堡 (Jackie Goldberg) 说，”我们别无选择。”即将上任的警司阿尔贝托·卡瓦略 (Alberto Carvalho) 称此举是正确的决定，”在我看来，董事会今天面临的条件和政策调整是因为认识到什么是对学区的学生最有利。”
 
-NHS England 首席执行官阿曼达·普里查德 (Amanda Pritchard) 在评论激增的病例时表示，最新的每日总数“应该让我们所有人感到担忧”。
+据《洛杉矶时报》报导，约有 28,000 名学生仍未接种疫苗。该学区将继续要求所有学生在 1 月之前每周进行测试。之后则对没有疫苗接种证明的学生做检测。
 
-英国卫生安全局首席执行官珍妮·哈里斯博士告诉国会议员，omicron 变体“可能是自大流行开始以来我们面临的最重大威胁”，并警告说，“惊人”的病例数接下来的几天与之前相比。她还说“真正的潜在风险”是“病例是否会演变成严重疾病、住院和死亡”。
+**疫苗政策已是强弩之末**
 
-世界卫生组织 (WHO) Covid 特使戴维·纳巴罗 (David Nabarro) 表示，NHS 处于紧急情况，并补充说，他现在比大流行的任何其他阶段都更担心。
+“强制疫苗政策在几个月之内会停止。”郭文贵先生在大直播中说，所有参与强制疫苗政策的政府、大药厂、社交媒体、背后暗黑势力都将受到审判。”明年美国中期选举之后，脸书、谷歌等社交媒体将会消失!”文贵先生宣告，正义终将伸张，恶人会有恶报!
 
-编译/米拉娅
-
-审阅/丘杰斯
-
-上传/天赐良闻
-
-以下作者为本文做出了贡献
-
-[汤姆巴彻勒](https://www.independent.co.uk/author/tom-batchelor)Tom Batchelor；[罗里·沙利文](https://www.independent.co.uk/author/rory-sullivan)；[斯图蒂·米什拉](https://www.independent.co.uk/author/stuti-mishra)
-
-[新闻来源：](https://www.independent.co.uk/news/covid-omicron-symptoms-vaccines-latest-b1977062.html)
-
-[新闻来源2:](https://www.independent.co.uk/news/health/covid-uk-cases-record-today-b1976600.html)
-
-更多关于[冠状病毒病](https://www.independent.co.uk/topic/covid)[新冠病毒](https://www.independent.co.uk/topic/coronavirus)
+消息来源:[LA District Postpones Vaccine Mandate As Thousands Of Students Remain Unvaxx’d](http://LA%20District%20Postpones%20Vaccine%20Mandate%20As%20Thousands%20Of%20Students%20Remain%20Unvaxx'd)
 
  
 

@@ -15,143 +15,143 @@
 
 ---
 
-### [一夜夫妻白忙活， 兔子窝边草光光 ：女子被逼走投无路举报前婆婆“8套房产9间商铺](/content/gnews/1/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [【Michael.Tonny专栏】中共病毒疫苗导致欧盟3万多人死 300多万人身体受伤害](/content/gnews/1/README.md)
+ ` 温哥华扬帆农场`
 
-### [第二家蒙特利尔医院宣布最新COVID-19 新冠变种病毒爆发——现在该市有 95 例 Omicron 变种病例，其中90%已完全接种疫苗](/content/gnews/2/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [DC每日热点1216](/content/gnews/3/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [您的宠物会感染COVID-19吗？](/content/gnews/4/README.md)
- ` Zero-Day【零时差】`
-
-### [中共制造台湾青年歌颂冬奥会的假象](/content/gnews/5/README.md)
+### [疫苗强制令下卡车司机流失引发供应链问题](/content/gnews/2/README.md)
  ` GTV新闻访谈`
 
-### [疫苗接种者大流行](/content/gnews/6/README.md)
+### [MV版Hcoin To the Moon上线第7天位列16国iTunes热门MV榜首！](/content/gnews/3/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [中共超限战灭港行动（87）文宣战线「和你飞」万人接机集会](/content/gnews/4/README.md)
+ ` 英喜-粵語組`
+
+### [家庭反洗脑序列 第40篇 学校荣誉](/content/gnews/5/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [12/16每日播报｜与普京视频会晤 习近平镜头前连咳三声](/content/gnews/7/README.md)
- ` 秘密翻译组-即时新闻播报组`
+### [【零时差】印尼出现首宗Omicron病例](/content/gnews/6/README.md)
+ ` Zero-Day【零时差】`
 
-### [12/15/2021 文贵直播：西方将为藏独提供武器、钱和粮食，救助藏独人士的后代](/content/gnews/8/README.md)
- ` 秘密翻译组-北美组`
+### [【快讯】再次“封国”-加拿大官方警告国人不要跨国旅行](/content/gnews/7/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [墙内多地国家级粮食储备库高官被调查](/content/gnews/9/README.md)
+### [97.8%的21岁以下心肌炎患者是在注射mRNA疫苗后一个月内发生的](/content/gnews/8/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [一夜夫妻白忙活， 兔子窝边草光光 ：女子被逼走投无路举报前婆婆“8套房产9间商铺](/content/gnews/9/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [第二家蒙特利尔医院宣布最新COVID-19 新冠变种病毒爆发——现在该市有 95 例 Omicron 变种病例，其中90%已完全接种疫苗](/content/gnews/10/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [DC每日热点1216](/content/gnews/11/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [您的宠物会感染COVID-19吗？](/content/gnews/12/README.md)
+ ` Zero-Day【零时差】`
+
+### [中共制造台湾青年歌颂冬奥会的假象](/content/gnews/13/README.md)
  ` GTV新闻访谈`
 
-### [秘翻在线: 洛杉矶校董事会撤回强制接种疫苗的最后期限](/content/gnews/10/README.md)
- ` 秘密翻譯組G-Translators`
+### [疫苗接种者大流行](/content/gnews/14/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [12/15/2021 文贵直播：早在2017年，七哥就表示美国将出台一系列针对新疆、西藏的法案](/content/gnews/11/README.md)
+### [12/16每日播报｜与普京视频会晤 习近平镜头前连咳三声](/content/gnews/15/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [12/15/2021 文贵直播：西方将为藏独提供武器、钱和粮食，救助藏独人士的后代](/content/gnews/16/README.md)
  ` 秘密翻译组-北美组`
 
-### [【粤语配音】2021年12月15日：《西藏独立法》的通过，对共产党是致命的噩耗](/content/gnews/12/README.md)
+### [墙内多地国家级粮食储备库高官被调查](/content/gnews/17/README.md)
+ ` GTV新闻访谈`
+
+### [秘翻在线: 洛杉矶校董事会撤回强制接种疫苗的最后期限](/content/gnews/18/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [12/15/2021 文贵直播：早在2017年，七哥就表示美国将出台一系列针对新疆、西藏的法案](/content/gnews/19/README.md)
+ ` 秘密翻译组-北美组`
+
+### [【粤语配音】2021年12月15日：《西藏独立法》的通过，对共产党是致命的噩耗](/content/gnews/20/README.md)
  ` MOS香港部`
 
-### [秘翻在线：中共国10万亿养老市场“养”的是谁？](/content/gnews/13/README.md)
+### [秘翻在线：中共国10万亿养老市场“养”的是谁？](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [12/8郭文贵直播：单伟建是中共的正部级间谍（粤语配音）](/content/gnews/14/README.md)
+### [12/8郭文贵直播：单伟建是中共的正部级间谍（粤语配音）](/content/gnews/22/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [12/8郭文贵直播：干掉冬奥会意味着中共被判处死刑（粤语配音）](/content/gnews/15/README.md)
+### [12/8郭文贵直播：干掉冬奥会意味着中共被判处死刑（粤语配音）](/content/gnews/23/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [12/08郭文贵直播：中共法院以莫须有的“强迫交易罪”将盘古抢走（粤语配音）](/content/gnews/16/README.md)
+### [12/08郭文贵直播：中共法院以莫须有的“强迫交易罪”将盘古抢走（粤语配音）](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [12/08郭文贵直播：单伟建的直接领导是王岐山（粤语配音）](/content/gnews/17/README.md)
+### [12/08郭文贵直播：单伟建的直接领导是王岐山（粤语配音）](/content/gnews/25/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [【零时差】Covid：英国创下自大流行开始以来的最高每日病例总数78,610例](/content/gnews/18/README.md)
+### [【零时差】Covid：英国创下自大流行开始以来的最高每日病例总数78,610例](/content/gnews/26/README.md)
  ` Zero-Day【零时差】`
 
-### [12/16每日播报｜美众议院通过《防止强迫维吾尔人劳动法》](/content/gnews/19/README.md)
+### [12/16每日播报｜美众议院通过《防止强迫维吾尔人劳动法》](/content/gnews/27/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [英国议会听取中共病毒是武汉实验室泄露的简报](/content/gnews/20/README.md)
+### [英国议会听取中共病毒是武汉实验室泄露的简报](/content/gnews/28/README.md)
  ` 墨尔本雅典娜农场`
 
-### [日本“返老还童”实验在小鼠上成功！——更显中共高官邪恶智障！](/content/gnews/21/README.md)
+### [日本“返老还童”实验在小鼠上成功！——更显中共高官邪恶智障！](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花灭共诗——贺老妖（新韵）](/content/gnews/22/README.md)
+### [樱花灭共诗——贺老妖（新韵）](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [12/16/2021 国际财经快讯：美国SEC拟对内幕交易和股票回购提出更严格的规定; 新加坡提高住房买方印花税，力图给楼市降温](/content/gnews/23/README.md)
+### [12/16/2021 国际财经快讯：美国SEC拟对内幕交易和股票回购提出更严格的规定; 新加坡提高住房买方印花税，力图给楼市降温](/content/gnews/31/README.md)
  ` 秘密翻译组金融团队`
 
-### [庆丰不再 “包子”还挺多久？](/content/gnews/24/README.md)
+### [庆丰不再 “包子”还挺多久？](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国两党议员联手要求拜登总统力挺西藏](/content/gnews/25/README.md)
+### [美国两党议员联手要求拜登总统力挺西藏](/content/gnews/33/README.md)
  ` 首尔天池农场`
 
-### [12/16每日播报｜中共崩盘在即 房地产与金融即是先兆](/content/gnews/26/README.md)
+### [12/16每日播报｜中共崩盘在即 房地产与金融即是先兆](/content/gnews/34/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [文贵大直播正在改变世界](/content/gnews/27/README.md)
+### [文贵大直播正在改变世界](/content/gnews/35/README.md)
  ` GTV News Talk`
 
-### [秘翻在线：“改编”影视作品也是触痛中共的利器](/content/gnews/28/README.md)
+### [秘翻在线：“改编”影视作品也是触痛中共的利器](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [12/16每日播报｜与中共国关系继续恶化 立陶宛撤离在京外交官员](/content/gnews/29/README.md)
+### [12/16每日播报｜与中共国关系继续恶化 立陶宛撤离在京外交官员](/content/gnews/37/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [12月15日文贵大直播概要](/content/gnews/30/README.md)
+### [12月15日文贵大直播概要](/content/gnews/38/README.md)
  ` 墨尔本雅典娜农场`
 
-### [医疗戒严令：在数千名护士因具有天然免疫力和拒绝注射刺突蛋白疫苗而被解雇后，军方接管了四个州的医院](/content/gnews/31/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [北京冬奥对病毒溯源欲盖弥彰，奥密克戎反扑并蔓延](/content/gnews/32/README.md)
+### [北京冬奥对病毒溯源欲盖弥彰，奥密克戎反扑并蔓延](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共斥巨资在海外社交媒体上“洗脑”外国人](/content/gnews/33/README.md)
+### [中共斥巨资在海外社交媒体上“洗脑”外国人](/content/gnews/40/README.md)
  ` GTV News Talk`
 
-### [快舟一号甲飞行异常，火箭发射再次失败](/content/gnews/34/README.md)
+### [7·24系列——共产党的虎年都发生什么事](/content/gnews/41/README.md)
  ` 墨尔本雅典娜农场`
 
-### [DC大中华时事：美众议院通过新财年国防法案促美台联合军演](/content/gnews/35/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [Covid 疫苗可能会导致中枢神经系统终生瘫痪（2/2）](/content/gnews/36/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [12/16每日播报｜美国因中共病毒死亡人数已超过80万人](/content/gnews/37/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [7·24系列——共产党的虎年都发生什么事](/content/gnews/38/README.md)
- ` 墨尔本雅典娜农场`
-
-### [如何应对独裁灾难](/content/gnews/39/README.md)
+### [如何应对独裁灾难](/content/gnews/42/README.md)
  ` 骄子`
 
-### [盘古被逐员工和战友及新疆西藏台湾香港同胞HDO护身](/content/gnews/40/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [数以千计的新西兰人游行 抗议疫苗强制令和封锁](/content/gnews/41/README.md)
+### [数以千计的新西兰人游行 抗议疫苗强制令和封锁](/content/gnews/43/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中日财经爆：华夏幸福声称20亿理财中间人失联，为赖账找借口？](/content/gnews/42/README.md)
+### [中日财经爆：华夏幸福声称20亿理财中间人失联，为赖账找借口？](/content/gnews/44/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [蓬佩奥再次为中国人发声 呼吁完全抵制中共冬奥](/content/gnews/43/README.md)
+### [蓬佩奥再次为中国人发声 呼吁完全抵制中共冬奥](/content/gnews/45/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆：世界银行有史以来的最大增幅](/content/gnews/44/README.md)
+### [中日财经爆：世界银行有史以来的最大增幅](/content/gnews/46/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美国新法案规定因未接种疫苗而被开除的军人仍会获得荣誉退伍](/content/gnews/45/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [美国开发新软件工具以提前四个月预测中共相关行动](/content/gnews/46/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [2018年6月16日 郭文贵先生报平安直播 全文字版](/content/gnews/47/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`

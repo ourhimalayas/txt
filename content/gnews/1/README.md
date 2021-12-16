@@ -2,39 +2,48 @@
 ---
 
 
-## 一夜夫妻白忙活， 兔子窝边草光光 ：女子被逼走投无路举报前婆婆“8套房产9间商铺
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1761301/)
+## 【Michael.Tonny专栏】中共病毒疫苗导致欧盟3万多人死 300多万人身体受伤害
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1761478/)
 
-撰稿：东京樱花团/Ob
-![](https://assets.gnews.org/wp-content/uploads/2021/12/3-22.png)
-看中国12月16日讯：近日一则儿媳实名举报婆婆吃空饷、巨额财产来源不明的视频引发社会关注。
+作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
-12月15日，一位微博名叫“刘银月676878”的网友戴着口罩、拿着身分证在网上公开举报她的前婆婆一家。她指她的前婆婆为中国农业发展银行太康支行员工夏雪华，“常年不上班，月月领工资，吃空饷，占据国家财产，他们家在多地有8套房产，9间商铺，4辆汽车，吃穿用度等全部都是名牌，巨额财产和消费来源不明。”她并称，她的前公公是某单位领导，儿子女儿都在其单位上班。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-根据这名女子描述，2017年，夏雪华为了买房子，哄骗当时怀孕8个月的她，让她与自己儿子“假离婚”，并用她的名字在银行贷款。夏某华承诺以后房子都留给孩子。但没想到的是，最后“假离婚”变成“真离婚”：“女方净身出户，男方不支付抚养费”。
+欧盟疑似药物反应报告数据库[EudraVigilance](https://www.adrreports.eu/en/index.html)报告，截止至2021年12月4日，在注射 COVID-19（中共病毒）疫苗后，欧盟27国共收1,228,780份疫苗副作用报告，其中32,649 人死亡，3,003,296人身体受到伤害，1,409,643人身体受到严重伤害。
 
-该女还表示，前婆婆家在当地有钱有权又有势，一手遮天，如今她背负300万债务，孩子抚养权也恐夺走，她恳请最高法院关注此案。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/EudraVigilance.png)
 
-公开资料显示，视频中提到的中国农业发展银行太康支行位于河南省周口市太康县谢安大道新天地花园小区东北侧约130米。有大陆记者致电该支行询问，工作人员称确有名为“夏雪华”的员工，但对于其在岗情况，工作人员谨慎称“话题敏感，最好询问本人”。
+EudraVigilance为European database of suspected adverse drug reaction reports的简称，网站包含在欧洲经济区（ European Economic Area，EEA）内授权使用的药品可疑副作用（也被称为可疑的药物不良反应，relates to suspected side effects）的报告信息。
 
-对此，12月15日中国农业发展银行河南省分行进行了回应，指近日举报人刘银月实名举报中国农业发展银行太康县支行员工夏雪华，农发行河南省分行纪委责成周口市分行纪委对此进行了核查，认为举报的夏雪华问题不属实，但核查有发现夏雪华存在请假天数较多，以及旷工、迟到、早退等现象。周口市分行已于2021年6月对其给予党内严重警告处分，并扣发绩效工资，对太康县支行时任行长分别给予通报批评处理。并于6月29日下午向举报人刘银月反馈了核实查处情况。
+该网站是由欧洲药品管理局（[The European Medicines Agency](https://www.ema.europa.eu/)）管理这些报告，以便包括公众在内的利益相关者可以了解欧洲监管机构（European regulatory authorities）用于审查药物或活性物质（medicine or active substance）安全性的信息。
 
-不过，刘银月15日又在微博发出一段音频令人玩味。
+由于EudraVigilance 维护的这个数据库仅适用于欧盟 (European Union，EU) 27个欧洲国家，而欧洲国家的总数大约有50个，因此，EudraVigilance的报告并不能反映整个欧洲全貌。整个欧洲在注射中共病毒疫苗后死亡或身体受到伤害的实际人数将远高于EudraVigilance报告的数字。
 
-根据视频中的对话可知，刘银月母亲前往太康县支行讨说法，但门卫透露，行长开会还没回来，“夏雪华没来过”、“天天都没来过”。
+这次EudraVigilance关于中共病毒疫苗的报告包含Moderna 的mRNA疫苗CX-024414、Pfizer/Biontech的mRNA疫苗、Astrazeneca的CHADOX1 NCOV-19疫苗和Janssen的AD26.COV2.S疫苗。
 
-对此，许多网友纷纷留言质疑。
+这些因注射疫苗受到的身体伤害包括：血液和淋巴系统疾病（Blood and lymphatic system disorders），心脏疾病（Cardiac disorders），先天性、家族性和遗传性疾病（Congenital, familial and genetic disorders），耳朵和耳道疾病（Ear and labyrinth disorders），内分泌疾病（Endocrine disorders），眼部疾病（Eye disorders），胃肠道疾病（Gastrointestinal disorders），一般疾病和给药部位条件（General disorders and administration site conditions），肝胆疾病（ Hepatobiliary disorders），免疫系统疾病（Immune system disorders），感染和侵染（Infections and infestations），受伤、中毒和手术并发症（Injury, poisoning and procedural complications），待研究（Investigations），代谢和营养障碍（Metabolism and nutrition disorders），肌肉骨骼和结缔组织疾病（Musculoskeletal and connective tissue disorders），良性、恶性和未特指的肿瘤（包括囊肿和息肉）（Neoplasms benign, malignant and unspecified (incl cysts and polyps) ），神经系统疾病（Nervous system disorders），怀孕、产褥期和围产期疾病（ Pregnancy, puerperium and perinatal conditions），产品问题（Product issues），精神疾病（Psychiatric disorders），肾脏和泌尿系统疾病（Renal and urinary disorders），生殖系统和乳房疾病（Reproductive system and breast disorders），呼吸、胸和纵隔疾病（Respiratory, thoracic and mediastinal disorders），皮肤和皮下组织疾病（Skin and subcutaneous tissue disorders），社会环境（Social circumstances ），外科和医疗程序（Surgical and medical procedures ），血管疾病（Vascular disorders）。
 
-兔子还不吃窝边草，一夜夫妻还百日恩。一切合乎人性的道理在这片神州大地上都失灵。是什么仇恨让他们对曾是一家的家人赶尽杀绝。是这个体制，是这个毫无人性的共产体制塑造了一个个为利益较尽脑汁，生杀掳掠，谋财害命的魔鬼。中共建政以来，开展一次次的政治运动把人民折腾的筋疲力尽，大跃进、文化大革命，使得人民衣不蔽体，食不果腹，而后将饥肠辘辘的人民置入“社会主义市场经济”这口器皿中，让其互相争斗。犹如将人民养了个“蠱”，唯一的结果就是养出无数个毒性一个比一个强一个比一个烈的毒虫残害这个社会。时至如今“冠状病毒”这个大蠱，已被共产党放到全世界，其毒之大，其性之烈，让全世界人民饱受其害。不灭掉这个体制，还会继续飞出无数个蠱虫，残害的不只是中国人，而是全世界人民。
+这里说的身体严重伤害，是指导致死亡、危及生命、需要住院治疗、导致另一种医学上的重要状况或现有住院时间延长、导致持续或严重残疾或丧失能力或者先天性异常/出生缺陷等医疗事故。
 
-信息来源：
+下表为四种疫苗导致的副作用汇总信息
 
-[女子举报前婆婆“8套房产9间商铺” 农发行最新回应穿帮？](https://m.secretchina.com/news/gb/2021/12/16/992493.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Summary-Adrs-EU-04122021.jpg)
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.jpg)
+参考数据：
 
+[The European Medicines Agency](https://www.ema.europa.eu/)
+
+[COVID-19 MRNA VACCINE MODERNA (CX-024414)](https://dap.ema.europa.eu/analyticsSOAP/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+40983312)
+
+[COVID-19 MRNA VACCINE PFIZER-BIONTECH (TOZINAMERAN)](https://dap.ema.europa.eu/analyticsSOAP/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+42325700)
+
+[COVID-19 VACCINE ASTRAZENECA (CHADOX1 NCOV-19)](https://dap.ema.europa.eu/analyticsSOAP/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+40995439)
+
+[COVID-19 VACCINE JANSSEN (AD26.COV2.S)](https://dap.ema.europa.eu/analyticsSOAP/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+42287887)
+
+[32,649 Deaths 3,003,296 Injuries Following COVID Shots in European Database of Adverse Reactions as Young, Previously Healthy People Continue to Suffer](https://healthimpactnews.com/2021/32649-deaths-3003296-injuries-following-covid-shots-in-european-database-of-adverse-reactions-as-young-previously-healthy-people-continue-to-die/)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/) 上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

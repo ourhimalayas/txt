@@ -2,33 +2,12 @@
 ---
 
 
-## 樱花灭共诗——贺老妖（新韵）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1760960/)
+## 12/8郭文贵直播：单伟建是中共的正部级间谍（粤语配音）
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1761039/)
 
-撰稿：东京樱花团/曲非烟
-![](https://assets.gnews.org/wp-content/uploads/2021/12/3-35.jpg)
-闭门冬奥会，
+12/8/2021 郭文贵直播：单伟建是中共的正部级间谍，隶属具有最高保密级别的秘六局，他直接给中共政治局常委汇报工作；单伟建是北京欧美同学会的创始人。
 
-掩耳外尘嚣。
-
-百鬼同催债，
-
-万国不觐朝。
-
-独播非党愿，
-
-献礼尽红袍。
-
-冰雪埋山岭，
-
-晶棺贺老妖。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-195.jpg)
-插图：东京樱花团/闪闪
-
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.jpg)
-
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

@@ -2,39 +2,34 @@
 ---
 
 
-## 第二家蒙特利尔医院宣布最新COVID-19 新冠变种病毒爆发——现在该市有 95 例 Omicron 变种病例，其中90%已完全接种疫苗
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1761275/)
+## 疫苗强制令下卡车司机流失引发供应链问题
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1761471/)
 
-编译：16626
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片16732.png)蒙特利尔的圣母医院Notre-Dame Hospital 位于舍布鲁克东街Sherbrooke Street East的拉封丹La Fontaine公园对面。 （伊万诺·德默斯Ivanoh Demers /加拿大广播电台）
-**医生说5 名外科工作人员的 COVID-19 检测呈阳性**
+作者：银河勇气星—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月14日，据当地媒体报道称，加拿大卡车司机运输集团明确表示，由于美加政府将自2022年1月15日起强制要求跨境卡车司机出示新冠疫苗接种证明，此举将导致业已恶化的供应链问题变得更加严峻。据了解，目前约有数千名卡车司机准备步行抗议此项政策。
 
-加拿大广播公司新闻2021 年 12 月 15 日（伊万诺·德默斯，Ivanoh Demers，发布时间：美国东部时间 2021 年 12 月 15 日晚上 7:51 | 最后更新：12 小时前，来自加拿大广播电台的文件）报道，蒙特利尔的圣母医院宣布最新COVID-19 新冠变种病毒爆发并导致该医院取消了非紧急手术。现在该市有 95 例奥米克戎Omicron 变种病例，其中 90% 涉及已完全接种疫苗的人。这是自2021 年 12 月 12 日以来第二家蒙特利尔医院宣布最新COVID-19 新冠变种病毒爆发。三天前加拿大广播公司新闻2021 年 12 月 12 日（让-克劳德•塔利安娜Jean-Claude Taliana）报道，最新COVID-19 新冠变种病毒在蒙特利尔湖岸总医院（Montreal’s Lakeshore Hospital）爆发-所有感染者都接种了双重疫苗。该篇题为《由于 COVID-19 的爆发，蒙特利尔圣母医院取消了非紧急手术》的报道编译如下：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide7-6.jpeg)
 
-涉及手术室工作人员的五名成员COVID-19 爆发导致，自周四起，蒙特利尔圣母医院将暂停非紧急手术。
+另据加拿大卡车联盟CTA预计，如果加拿大政府继续执行该跨境新冠疫苗接种政策，或将致使约两万名从事跨境运输的卡车司机离职。对此，加拿大私人卡车理事会PMTC也认为，大约将有超过三万名司机因为该疫苗政策而离职，其比例高达26%。PMTC还提到，加拿大非越境的国内司机中未接种新冠疫苗的人数比例更高，达到30%。因此，倘若政府将新冠疫苗计划同时运用于非跨境司机群体中，则只会让如今的供应链问题愈加恶化。
 
-“我们现在的状况与2020年3月至4月经历的情况非常相似，”该医院的外科医生斯坦利沃兰特Dr. Stanley Vollant告诉加拿大广播电台。
+资料显示，在过去的22个月中，因政府的强制新冠疫苗接种计划，越来越多的跨境司机选择停止跨境运输，或者彻底离开运输行业，他们倾向于选择不需要被疫苗护照限制的工作。
 
-他证实了医院将暂时计划取消手术，并称手术室将在最低限度内运作，尽管这五名工作人员都生病不能工作。
+参考链接：[Vaccine mandate for Canadian truckers could lead to mass exodus, severe supply chain issues](https://www.lifesitenews.com/news/vaccine-mandate-for-canadian-truckers-could-lead-to-mass-exodus-severe-supply-chain-issues/)
 
-紧急和肿瘤手术将继续进行。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
 
-社区医院位于舍布鲁克东街Sherbrooke Street East的拉封丹La Fontaine公园对面。它已经存在了近一个世纪。
+总编：Ivy001
+编辑：Kathy文艺
+校正/发稿：谐趣园
 
-蒙特利尔周三记录了 844 例新的 COVID-19 病例，该市公共卫生主任 Mylène Drouin 表示，她预计未来几周每天的病例数会增加。
-
-**目前，大多数情况仍然是 Delta 变体。但现在该市有 95 例奥米克戎Omicron 变种病例，其中 90% 涉及已完全接种疫苗。 **
-
-魁北克省周三总共报告了 2,386 例新的 COVID-19 病例和 4 例新死亡病例。
-
-正如该市公共卫生主任 Mylène Drouin 指出的，预计未来几周每天的病例数还会增加，该篇报道提醒魁北克人，病毒仍在传播，必须格外小心。
-
-参考资料：[https://www.cbc.ca/news/canada/montreal/hospital-notre-dame-montreal-covid-19-outbreak-1.6287623](https://www.cbc.ca/news/canada/montreal/hospital-notre-dame-montreal-covid-19-outbreak-1.6287623)
-
-编辑/发布：LILY
-
-20211216
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,62 +2,26 @@
 ---
 
 
-## Covid 疫苗可能会导致中枢神经系统终生瘫痪（2/2）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1760806/)
+## 秘翻在线：“改编”影视作品也是触痛中共的利器
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1760897/)
 
-编译：Jenny Ball
+**撰稿：葛大饼**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-33.jpg)图片来源：epochtimes.com
+**责编：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screenshot-2021-12-16-203011.jpg)
+根据2021年12月14日新浪报道，中国网络视听节目服务协会12月15日发布《网络短视频内容审核标准细则》（2021） ，不得未经授权自行剪切改编电影。
 
-疫苗安全研究基金会向福奇博士提交感人的恳求信，要求他和拜登与受伤害者会面。
+该规定称未经授权自行剪切、改编电影、电视剧、网络影视剧等各类视听节目及片段的”“**引诱教唆公众参与虚拟货币‘挖矿’、交易、炒作**”等内容。
 
-以下是疫苗受伤者和代表他们的基金会写给福奇和拜登的信的摘录：
+这条新规让广大网友炸开了锅，影视剧剪辑门槛较低，容易上手，因而吸引了众多参与者，传播量也巨大。
 
-*我们代表数以千计的美国人，他们和我们一样，因**COVID-19**疫苗而受到严重伤害。 我们是支持科学的。我们支持疫苗，我们大多数人都被**FDA**、**CDC**、**NIH**、疫苗制造商和媒体忽视了，就好像我们不存在一样。*
+新闻称包括中国电视艺术交流协会、国家电影局、中国电视剧制作产业协会等行业协会，爱奇艺、优酷、腾讯视频等视频平台和影视公司在内的70余家单位发布联合声明：将对目前网络上出现的公众账号生产运营者针对影视作品内容未经授权进行剪辑、切条、搬运、传播等行为，发起集中、必要的法律维权行动。爱奇艺CEO龚宇称这种行为最终导致用户、创作者、影视从业者、平台等多方利益受损。
 
-*作为两位母亲，我们真诚地请求与你们两人会面，希望通过面对面的会面，能够承认我们的存在，并帮助粉碎关于疫苗受伤不是真实的虚假信息。事实上，有些受伤者是儿童，作为父母，我们希望您能够与我们联系。*
+广大老百姓为何要剪切改编影视剧？第一是觉得该影片很棒，通过精简的方式可以和更多人分享；第二觉得剧本太烂了，中共国每天都上演那些洗脑神剧，实在看不下去，大家帮着改改，让影片的传播量更大。这两点无论哪一点都是有好处的，怎么就损害各方利益了？影视剧剪辑改编的传播量越来越大说明老百姓很喜欢，中共相关部门应该支持和鼓励，让有热情和创作能力的人站出来而不是出台法规处罚。
 
-*我们努力尽自己的一份力量，帮助结束我们国家和世界面临的可怕的流行病。我们是真实的人，我们遵循您的建议，并相信有关**COVID-19**疫苗安全性的科学，但我们的生活已被不断恶化的健康状况彻底摧毁。*
+不过当看到新规里加粗字体写着“**不得未经授权自行剪切改编电影，引诱教唆公众参与虚拟货币‘挖矿’、交易、炒作”等内容**”，秘密翻译组梦工厂节目组最近写了许多关于喜币的剧本，不会中共就是害怕这个吧！他们越怕什么，就越说明我们的力量不容小觑，小编们，赶紧拿起笔多写G系列的剧本噢！
 
-**在接种**** Covid ****疫苗之前，健康状况零问题的年轻人，现在却不能自理****——****像这样的与疫苗相关的悲剧却没有得到媒体的关注。**
-
-Covid疫苗受害者正在法庭上，就他们的毁灭性伤害作证，其中许多将是永久性的伤害。这些暴行被公共卫生官员和大众媒体隐瞒。**证明你被**** Covid ****疫苗伤害并不意味着你反疫苗或反科学，**但媒体有意诡辩将揭示疫苗伤害称为反疫苗。现在，全美国的医生都在揭发他们的病人因注射中国流感疫苗而直接导致身体衰弱的伤害。
-
-如果您害怕感染中共病毒，**因为媒体认为**它是世界上见过的最严重的流行病（即使它只是另一种流感），那么看看被证明可以增强免疫力的强效超级食品、补品和草药， 并扼杀这些寄生虫，并避免那些有毒的基因治疗的伤害。
-
-想要在您的互联网上获得最好的真实新闻吗？ 收听[FoodSupply.news](http://www.foodsupply.news/2021-11-18-food-shortage-engineered-to-control-people.html)，了解如何通过储备有机营养食品和冬季应急物资，来避免这种人口减少计划。
-
-**评论：福奇要求人们相信科学，那么福奇应该以科学的方法，第一时间与这些疫苗严重伤害的人们交流，以科学地改善所谓的“疫苗”的安全性和效果，不是吗？**
-
-**作为总统在强制全面接种，难道不应该及时和这些疫苗受伤的人们见面，以决策是否应该继续让更多人遭受这样的伤害，不是吗？**
-
-**那他们为什么在受伤人如此声泪俱下的请求中置之不理呢？难怪人们不再相信“福奇科学”；难怪人们不再相信这样的政府！**
-
-请阅读上一篇：[Covid 疫苗可能会导致中枢神经系统终生瘫痪（1/2）](https://gnews.org/zh-hans/1760750/)
-
-文章内容来源：
-
-[Pandemic.news](https://www.pandemic.news/2021-03-04-who-insider-exposes-gavi-gates-perpetrating-plandemic.html)
-
-[TruthWiki.org](http://www.truthwiki.org/cdc-centers-for-disease-control-and-prevention/)
-
-[NaturalNews.com](https://www.naturalnews.com/2021-10-03-cdc-hospitals-fully-vaccinated-deaths-unvaccinated.html)
-
-[ZeroHedge.com](https://www.zerohedge.com/covid-19/joe-rogan-crushes-cnn-over-ivermectin-horse-paste-propaganda-gets-gupta-concede)
-
-[FoodSupply.news](http://www.foodsupply.news/2021-11-18-food-shortage-engineered-to-control-people.html)
-
-[ZeroHedge.com](https://www.zerohedge.com/covid-19/joe-rogan-crushes-cnn-over-ivermectin-horse-paste-propaganda-gets-gupta-concede)
-
-[naturalnews][Covid jabs can cause the central nervous system to go absolutely HAYWIRE, possibly for life](https://www.naturalnews.com/2021-12-14-covid-jabs-can-fry-central-nervous-system.html)
-
-* * *
-
-*审核：文乐*
-*校对 : 阿伯塔*
-*发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-3.jpeg)
+**[新闻来源](https://c.m.163.com/news/a/GRB2NQIL0530NLC9.html?spss=today-news-hotrank)**
 
  
 
