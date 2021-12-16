@@ -2,31 +2,40 @@
 ---
 
 
-## 中共通过广告行业影响和干预澳大利亚政治
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1760800/)
+## 中共斥巨资在海外社交媒体上“洗脑”外国人
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1760867/)
 
-整理报道：七彩光
-![](https://assets.gnews.org/wp-content/uploads/2021/12/drew.jpg)图片来源：视频截图
-参议院候选人德鲁·帕夫洛（Drew Pavlou）是澳大利亚人权活动家，以批评中共政府和中国共产党而闻名。近日，该参议院候选人传出了令人震惊的消息，指责昆士兰州拥有七百多块广告牌的毕晓普（Bishop）户外广告公司拒绝刊登批评中共国政府的材料，担心受到白痴中共的报复。
+作者：纽约香草山翻译部 defiance
 
-根据发布的消息，毕晓普户外广告公司业务员在电话中告诉帕夫洛，没有广告牌公司会刊登他的广告，因为他们（行业）所有人基本上都通过行业自律串通一起，以避免冒犯中共。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-768x103-15.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-15.jpg)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-12-16-at-19.58.25-3.png](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-16-at-19.58.25-3.png)
 
-对此，12月16日，来自澳大利亚知名智库中心公共事务研究所（The Institute of Public Affairs）的政策总监吉迪恩·罗兹纳（Gideon Rozner）参加了澳洲《天空新闻台》的访谈，指如果这个事情是真的，那么这将是“澳大利亚目前最大的问题”。
 
-罗兹纳告诉天空新闻主持人詹姆斯·莫罗（James Morrow）：“如果中国共产党控制了我们可以在广告牌上张贴的内容，那么，他们渗入的程度有多深多远？每个澳大利亚人都应该对（中共）这种程度的政治干预感到恐惧”。
+12月11日，一美国自媒体人说自己发现了一个有趣的现象，近期在英文抖音上突然冒出成百上千教外国人学中文的老师，绝大多数为年轻女性，他们的教学内容、教学流程，甚至连假装被网络攻击而装哭、借机吸粉的招数都惊人的一致。 这些老师们通常清一色地举起一块牌子介绍自己，希望看视频的人为其点赞；一开始的教学内容极其简单，就是一些中文单词或常用语，其中不乏中文脏话以吸引眼球。但是随着上传的视频越来越多，带风向的意识形态内容也越来越多，比如，他们会公开表示不承认新疆大屠杀，不承认中共国有流浪者，鼓吹台湾自古就是中共国的一部分等等。
 
-**新闻来源**
+显而易见，这些人就是中共安排的大外宣。中共为了粉饰太平、逃避责任，不惜花费重金雇佣大外宣人员冒充民间人士，在社交媒体上传播谎言、蒙蔽海外人士，无奈方法拙劣、贻笑大方，只能激起全世界人民更强烈的灭共浪潮。
 
-[‘Terrifying’: Senate candidate’s billboards banned for fear of retaliation by CCP](https://www.skynews.com.au/opinion/terrifying-senate-candidates-billboards-banned-for-fear-of-retaliation-by-ccp/video/8083d44c90e31300a5c28582d5b42ba1)
+参考链接：
 
-**发布：七彩光**
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+编辑/校对/发稿：有莫举名
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-6.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-16.jpg)
 
  
 

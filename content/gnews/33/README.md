@@ -2,31 +2,63 @@
 ---
 
 
-## 12/16每日播报｜美国因中共病毒死亡人数已超过80万人
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1760730/)
+## Covid 疫苗可能会导致中枢神经系统终生瘫痪（2/2）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1760806/)
 
-**By:[秘翻新闻](https://gtv.org/broadcast/watch/61baff8d7882000d5101f1b9)**
+编译：Jenny Ball
 
-**2021-12-16**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-33.jpg)图片来源：epochtimes.com
 
-美国广播公司新闻14日报道，根据约翰霍普金斯大学最新更新的数据，本周二确认，自疫情爆发以来，已有80万美国人死于中共病毒。自去年12月以来，全球范围内已有超过500万人因为中共病毒而丧生。
+疫苗安全研究基金会向福奇博士提交感人的恳求信，要求他和拜登与受伤害者会面。
 
-当第一剂中共病毒疫苗自去年十二月开始实施接种，许多美国人希望疫苗接种预示着生活能够回归常态。然而，自去年12月以来，又有50万美国人死于该病毒。
+以下是疫苗受伤者和代表他们的基金会写给福奇和拜登的信的摘录：
 
-“这些死亡中的绝大多数是可以避免的，”波士顿儿童医院的流行病学家、美国广播公司新闻撰稿人约翰布朗斯坦博士说。“但自去年12月以来，我们已经看到近 50 万人死亡。”
+*我们代表数以千计的美国人，他们和我们一样，因**COVID-19**疫苗而受到严重伤害。 我们是支持科学的。我们支持疫苗，我们大多数人都被**FDA**、**CDC**、**NIH**、疫苗制造商和媒体忽视了，就好像我们不存在一样。*
 
-每个州、城市和城镇的美国人都感受到了中共病毒对个人的影响和产生的连锁反应。据美国国家科学院院刊发表的一项追踪因中共病毒而失去亲人的广泛影响的分析估计，可能有超过720 万家庭成员因此而悲痛欲绝。
+*作为两位母亲，我们真诚地请求与你们两人会面，希望通过面对面的会面，能够承认我们的存在，并帮助粉碎关于疫苗受伤不是真实的虚假信息。事实上，有些受伤者是儿童，作为父母，我们希望您能够与我们联系。*
 
-现在，由于中共病毒造成的死亡人数超过了过去 40年死于艾滋病相关疾病的七十万名美国人。它高于自 1900 年以来在战斗中阵亡的美军总人数，与北达科他州的人口大致相同。美国记录的死亡人数和病例数也比世界上任何其他国家都多。尽管死亡率明显低于去年 1 月美国最高时的死亡率，但据报道，每天仍有超过 1,000 名美国人死于该病毒。
+*我们努力尽自己的一份力量，帮助结束我们国家和世界面临的可怕的流行病。我们是真实的人，我们遵循您的建议，并相信有关**COVID-19**疫苗安全性的科学，但我们的生活已被不断恶化的健康状况彻底摧毁。*
 
-（秘翻新闻主编 清风先生编译报道）
+**在接种**** Covid ****疫苗之前，健康状况零问题的年轻人，现在却不能自理****——****像这样的与疫苗相关的悲剧却没有得到媒体的关注。**
 
-发布:星星
+Covid疫苗受害者正在法庭上，就他们的毁灭性伤害作证，其中许多将是永久性的伤害。这些暴行被公共卫生官员和大众媒体隐瞒。**证明你被**** Covid ****疫苗伤害并不意味着你反疫苗或反科学，**但媒体有意诡辩将揭示疫苗伤害称为反疫苗。现在，全美国的医生都在揭发他们的病人因注射中国流感疫苗而直接导致身体衰弱的伤害。
+
+如果您害怕感染中共病毒，**因为媒体认为**它是世界上见过的最严重的流行病（即使它只是另一种流感），那么看看被证明可以增强免疫力的强效超级食品、补品和草药， 并扼杀这些寄生虫，并避免那些有毒的基因治疗的伤害。
+
+想要在您的互联网上获得最好的真实新闻吗？ 收听[FoodSupply.news](http://www.foodsupply.news/2021-11-18-food-shortage-engineered-to-control-people.html)，了解如何通过储备有机营养食品和冬季应急物资，来避免这种人口减少计划。
+
+**评论：福奇要求人们相信科学，那么福奇应该以科学的方法，第一时间与这些疫苗严重伤害的人们交流，以科学地改善所谓的“疫苗”的安全性和效果，不是吗？**
+
+**作为总统在强制全面接种，难道不应该及时和这些疫苗受伤的人们见面，以决策是否应该继续让更多人遭受这样的伤害，不是吗？**
+
+**那他们为什么在受伤人如此声泪俱下的请求中置之不理呢？难怪人们不再相信“福奇科学”；难怪人们不再相信这样的政府！**
+
+请阅读上一篇：[Covid 疫苗可能会导致中枢神经系统终生瘫痪（1/2）](https://gnews.org/zh-hans/1760750/)
+
+文章内容来源：
+
+[Pandemic.news](https://www.pandemic.news/2021-03-04-who-insider-exposes-gavi-gates-perpetrating-plandemic.html)
+
+[TruthWiki.org](http://www.truthwiki.org/cdc-centers-for-disease-control-and-prevention/)
+
+[NaturalNews.com](https://www.naturalnews.com/2021-10-03-cdc-hospitals-fully-vaccinated-deaths-unvaccinated.html)
+
+[ZeroHedge.com](https://www.zerohedge.com/covid-19/joe-rogan-crushes-cnn-over-ivermectin-horse-paste-propaganda-gets-gupta-concede)
+
+[FoodSupply.news](http://www.foodsupply.news/2021-11-18-food-shortage-engineered-to-control-people.html)
+
+[ZeroHedge.com](https://www.zerohedge.com/covid-19/joe-rogan-crushes-cnn-over-ivermectin-horse-paste-propaganda-gets-gupta-concede)
+
+[naturalnews][Covid jabs can cause the central nervous system to go absolutely HAYWIRE, possibly for life](https://www.naturalnews.com/2021-12-14-covid-jabs-can-fry-central-nervous-system.html)
 
 * * *
 
-**By 【秘密翻译组-即时新闻播报组】**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/IMAGE-2021-12-13-113746.jpg)
+*审核：文乐*
+*校对 : 阿伯塔*
+*发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-3.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

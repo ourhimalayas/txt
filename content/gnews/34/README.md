@@ -2,76 +2,65 @@
 ---
 
 
-## 7·24系列——共产党的虎年都发生什么事
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1760721/)
+## 日本疫苗专家警告年轻人：COVID 疫苗造成的死亡风险比 COVID 本身高 7 倍
+` Zero-Day【零时差】` [轉載自GNews](https://gnews.org/zh-hans/1760783/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/f1280x720-22419_154094_5936.jpg)
-**整理：**BENJ1、翼族
-**编辑：**翼族
+![Pharma-Syringe-Vaccine.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2C3F4F4A-3523-4658-90FA-452311D5412D.png)
+2021年12月15日，据【pandemicnews】发文报道：
 
-2021年12月15日文贵大直播，郭文贵先生提到中共虎年的运程（摘要）：
+日本疫苗专家警告全世界，中共冠状病毒 (COVID-19) 疫苗[在 20 多岁的人群中](https://www.lifesitenews.com/news/vaccines-pose-7-times-higher-death-risk-than-covid-for-young-people-japanese-experts-warn/)造成的死亡风险可能至少比冠状病毒本身致死风险高 7 倍。
 
-##### 明年一定大缺粮，一定大水灾。明年是虎年啊，共产党的虎年都发生了什么事？ 战友们看一看，发生过什么事看一看。而且共产党给自己都算过命，认为虎年是共产党很难逾越的年，这个大家一定要相信。共产党是最相信命的，这是为啥盘古变成龟头和鸟头，震惊了世界，就是（共产党）有多怕，还在盘古前面埋一个大印，还给我使用巫术，所以它是很迷信的，说明年虎对他极为不利，所以我觉得明年是爆料革命、新中国联邦的关键一年。
+由非营利组织日本药物警戒研究所出版的双月刊《医学检查》最近一期的评论还指出，COVID-19 疫苗将年轻人的死亡风险提高了 40 倍。
 
-中共于1921年建党，至今经历了八个农历的寅虎年，以下对每一年发生的重大事件进行简单的梳理：
+研究人员引用了三篇关于 20 岁至 29 岁的人在接种 COVID-19 疫苗数天或数周后死亡的报告。其中一名疫苗后死亡病例是一名 27 岁的职业棒球运动员，他在接种疫苗后不到两周就倒下了。他在医院住院一个月后死亡。（相关：[日本卫生部对辉瑞和 Moderna covid 疫苗发出心脏警告](https://naturalnews.com/2021-12-10-japan-health-ministry-issues-heart-warning-covid-vaccines.html)。）
 
-**1926年（丙寅）**
+截至 10 月 15 日，日本 厚生劳动省共收到 1,308 份 COVID-19 疫苗接种后死亡报告。
 
-1926年3月20日，中山舰事件，又称“三二〇事件”，蒋介石从前往汕头的半路返回广州，下令全城戒严。欧阳格、陈肇英奉蒋介石密令占领中山舰，并在家中逮捕中共党员李之龙，包围苏联顾问和共产党机关，扣留了周恩来等中共党员，严密监视邓演达。中山舰事件为第一次国共合作投下阴影，并且为一年后的“四一二事件”蒋介石的清党运动埋下伏笔。
+该研究指出，该政策强烈表明日本[因 COVID-19 疫苗而死亡的人数](http://vaccinedeaths.com/)可能明显高于原始报告。死亡人数强烈表明，对 COVID-19 疫苗产生致命反应的风险明显大于冠状病毒本身对年轻人构成的危险。
 
-**1938年（戊寅）**
+根据数据，在日本，年轻人死于 COVID-19 的几率为百万分之 0.6 至 0.8。相比之下，同一群人死于COVID-19 疫苗的几率为百万分之 3.2。
 
-中国国民党部队的抗日战争如火如荼，中华大地一片硝烟——徐州会战、台儿庄大捷、黄河花园口炸堤、武汉会战、迁都重庆、长沙大火……中国军人在浴血奋战，中共则窝在延安打着自己的如意算盘。
+目前，日本是世界上接种疫苗最多的国家之一。截至发稿时，[78% 的人口](https://www.nytimes.com/interactive/2021/world/covid-vaccinations-tracker.html)已完全接种疫苗。研究表明，强迫其余 22% 的人口接种疫苗将导致比不接种疫苗更多的死亡。
 
-**1950年（庚寅）**
+尽管数据证明不接种疫苗更安全，尤其是对年轻人而言。但是，日本政府仍在计划 [分发和](https://english.kyodonews.net/news/2021/12/d2502f4659e2-kishida-defends-govt-covid-response-at-parliament.html)强制[管理](https://english.kyodonews.net/news/2021/12/d2502f4659e2-kishida-defends-govt-covid-response-at-parliament.html)COVID-19 疫苗加强剂。
 
-1950年初，中共发起镇压反革命运动，简称镇反运动。据中共1954年的官方统计，镇反运动中共有260余万人被捕、130余万人被监禁、71.2万人被处决，其中包括诸多冤假错案。1996年的官方文件则显示镇压了157万多人，其中87.3万余人被判死刑。外界估计实际有100-200万人遭处决。
+日本首相岸田文雄告诉日本议会，他的政府目前的首要任务是检查有关现有 COVID-19 疫苗针对疫苗后omicron 变体的有效性的证据。
 
-6月，皖北地区连续7天大雨后，淮河大决口，农田受灾面积655.9万公顷，淮河上中游、豫东、皖北水灾，淮河流域农田313万公顷水灾。
+岸田说：“我们希望尽快确定现有疫苗对 omicron 菌株的影响，然后展示提高加强注射的范围和方法，”
 
-6月14日，中南海外东侧远处辅华合记矿药厂两次爆炸，42人死亡，重伤166人，轻伤200多人，倒塌房屋2339间；
+其他日本科学家已经警告政府，COVID-19 疫苗对 omicron 变体的[效力](https://theworldnews.net/jp-news/japanese-scientists-warn-vaccines-may-be-less-effective-against-the-omicron-variant)将[大大降低](https://theworldnews.net/jp-news/japanese-scientists-warn-vaccines-may-be-less-effective-against-the-omicron-variant)。
 
-6月25日，朝鲜战争爆发；
+由[京都大学](https://www.kyoto-u.ac.jp/en) 教授和流行病学家 Hiroshi Nishiura领导的一组研究人员 告诉卫生部的顾问委员会，omicron 变体比疫苗后的 delta 变体逃避 COVID-19 疫苗建立的所谓保护的可能性要高几倍。
 
-**1962年（壬寅）**
+Nishiura 承认，omicron 变种在日本等疫苗接种率高的国家更容易传播。“这很像 [omicron 变体] 可能会在日本这样的疫苗接种率高的国家传播。”
 
-2月14日，周恩来和苏联外长安德烈‧维辛斯基在莫斯科克里姆林宫签署所谓的《中苏友好同盟互助条约》，该条约包括中共政府承认外蒙古独立、承认海参崴是苏联固有领土、承认乌苏里江江北64屯为苏联领土、承认图门江出海口是苏联主权、承认新疆北郊是苏联领土等众多割让土地的内容，以此换取苏联对中共傀儡政权的支持。
+作为日本大流行后经济复苏计划的一部分，中央政府正在通知地方政府区域准备接种加强疫苗。尽管日本政府尚未做出决定，承认针对 omicron 变体的疫苗的有效性，但这项工作仍在进行。
 
-大跃进运动后的大饥荒一直持续到1962年，共造成中国大陆1500万至5500万人的非正常死亡，被视为人类历史上规模最大的饥荒，也被认为是人类历史上最严重的人为灾难之一。
+编者按：
 
-10月，中印边境战争爆发，印度重新占领绝大部分中印东线有争议的藏南地区。藏南地区相当于一个江苏省、一个浙江省。
+显而易见，日本政府对疫苗造成死亡案例和严重危害的事实选择了视而不见。不仅如此，他们仍然坚持推行疫苗加强剂，这种做法听起来让人觉得如此疯狂，而且丧失了寻常逻辑！这也似乎完全背离了中共病毒疫苗支持者所宣称的科学！日本类似的状况也正在世界各地的民主国家、文明世界发生着！时至今日，我们看到的令人心痛的疫苗灾难已经越来越多地浮现出来，这世界已经足够疯狂，唯盼这灾难早日消亡！
 
-**1974年（甲寅）**
+通过阅读[Vaccines.news 上](https://vaccines.news/)的最新文章，了解有关证明 COVID-19 疫苗无效且实际上比冠状病毒本身更致命的最新科学研究的更多信息。
 
-1月19日和20日，中共解放军与越南（南越）军队在西沙永乐群岛海域发生战斗。
+编译/米拉娅
 
-淮河流域沂、沭河，潍河及海河流域的徒骇、马颊河同时水灾，山东潍坊、临沂、德州和江苏徐州、淮阴水灾，133.3万平方公顷的农田受灾，倒房88万间，死亡262人。陇海铁路一度中断。汉江上游9月大水，石泉、安康等沿江县受灾较重。浙、沪沿海风暴潮灾，钱塘江100多公里海塘被毁。
+审阅/丘杰斯
 
-**1986年（丙寅）**
+上传/天赐良闻
 
-八六学潮，又称丙寅学运，是中国大陆各地高校学生自1986年12月上旬至1987年初接连发起的学生运动。起因是位于安徽省合肥市的中国科学技术大学学生因不满合肥市西市区人大代表选举问题，抗议中共不遵守“新选举法”、违法干涉基层民主选举，联合合肥工业大学、安徽大学、安徽医科大学等高校4000余名学生走上街头发起“要求进行民主选举”的游行，由此引发全国范围的第一次学潮。随后湖北、上海、江苏、浙江、黑龙江、北京等省市高校的数万名学生上街游行。学潮在上海达到高潮，十几所上海高校学生上街游行示威。人数最多的一个星期里，每日游行学生达数万人。同济大学、上海交通大学、上海财经大学等是上海学潮主力。最后经地方政府和学校当局的疏导和阻止，并以北京的“元旦风波”被平息标志着学潮的结束，前后共持续了27天。此次学潮被平息之后不久，“反对资产阶级自由化”运动正式开始，直到夏天才结束，时任中共中央总书记胡耀邦因受到党内保守派的施压而被迫在中共中央政治局扩大会议上主动请辞。此次学潮也为1989年的学生运动埋下了伏笔。
+英文原文作者：[Arsenio Toledo](https://www.pandemic.news/author/arseniotoledo)
 
-**1998年（戊寅）**
+新闻[来源包括：](https://www.pandemic.news/2021-12-15-risk-of-death-higher-after-covid-vaccine.html)
 
-洪水肆虐大半个中国，1998年一入夏，珠江、松花江、长江、嫩江……中国境内全流域发生大洪水，荆州告急、武汉告急、九江告急、大庆告急、哈尔滨告急，全国29个省市受灾。长江流域一共出现八次洪峰。据统计，1998年全国受灾面积3.18亿亩，受灾人口2.23亿人，死亡3004人，倒塌房屋685万间，直接经济缺失达1660亿元。
+[LifeSiteNews.com](https://www.lifesitenews.com/news/vaccines-pose-7-times-higher-death-risk-than-covid-for-young-people-japanese-experts-warn/)
 
-**2010年（庚寅）**
+[纽约时报](https://www.nytimes.com/interactive/2021/world/covid-vaccinations-tracker.html)
 
-4月14日，玉树地震，中国青海省玉树藏族自治州玉树县境内的一场地震，其规模达到Mₛ7.1级、深度为14千米。该地震导致2,698人死亡，270人失踪，12135人受伤。
+[英语共同社](https://english.kyodonews.net/news/2021/12/d2502f4659e2-kishida-defends-govt-covid-response-at-parliament.html)
 
-8月7日夜至8日凌晨，舟曲泥石流，持续40多分钟的暴雨使得土石冲进县城，并截断两条河流，形成堰塞湖。中国官方数据显示此次灾害共造成1557人死亡，208人失踪。此次灾害是中华人民共和国历史上最重大洪涝灾害之一。
+[世界新闻网](https://theworldnews.net/jp-news/japanese-scientists-warn-vaccines-may-be-less-effective-against-the-omicron-variant)
 
-**2022年（壬寅**）
-
-……
-
-*发布：翼族*
-
-**更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)**
+标记如下： [大型制药公司](https://www.pandemic.news/tag/big-pharma)，[生物武器](https://www.pandemic.news/tag/biological-weapon)，[冠状病毒](https://www.pandemic.news/tag/coronavirus)，[冠状病毒疫苗](https://www.pandemic.news/tag/coronavirus-vaccines)，[covid-19](https://www.pandemic.news/tag/covid-19)，[日本](https://www.pandemic.news/tag/japan)，[omicron](https://www.pandemic.news/tag/omicron)，[制药欺诈](https://www.pandemic.news/tag/pharmaceutical-fraud)，[研究](https://www.pandemic.news/tag/research)，[刺突蛋白](https://www.pandemic.news/tag/spike-protein)，[疫苗危险](https://www.pandemic.news/tag/vaccine-dangers)，[疫苗死亡](https://www.pandemic.news/tag/vaccine-deaths)
 
  
 

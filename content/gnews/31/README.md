@@ -2,65 +2,38 @@
 ---
 
 
-## 日本疫苗专家警告年轻人：COVID 疫苗造成的死亡风险比 COVID 本身高 7 倍
-` Zero-Day【零时差】` [轉載自GNews](https://gnews.org/zh-hans/1760783/)
+## DC大中华时事：美众议院通过新财年国防法案促美台联合军演
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1760837/)
 
-![Pharma-Syringe-Vaccine.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2C3F4F4A-3523-4658-90FA-452311D5412D.png)
-2021年12月15日，据【pandemicnews】发文报道：
+*编辑：DC任盈盈 / 作图：*hans（文玄）
 
-日本疫苗专家警告全世界，中共冠状病毒 (COVID-19) 疫苗[在 20 多岁的人群中](https://www.lifesitenews.com/news/vaccines-pose-7-times-higher-death-risk-than-covid-for-young-people-japanese-experts-warn/)造成的死亡风险可能至少比冠状病毒本身致死风险高 7 倍。
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/ScreenShot-2021-08-01-at-17.25.09@2x.png)
 
-由非营利组织日本药物警戒研究所出版的双月刊《医学检查》最近一期的评论还指出，COVID-19 疫苗将年轻人的死亡风险提高了 40 倍。
+#   墙国妄语每日驳
 
-研究人员引用了三篇关于 20 岁至 29 岁的人在接种 COVID-19 疫苗数天或数周后死亡的报告。其中一名疫苗后死亡病例是一名 27 岁的职业棒球运动员，他在接种疫苗后不到两周就倒下了。他在医院住院一个月后死亡。（相关：[日本卫生部对辉瑞和 Moderna covid 疫苗发出心脏警告](https://naturalnews.com/2021-12-10-japan-health-ministry-issues-heart-warning-covid-vaccines.html)。）
+### **12.16**.新华网.第一报道 | 中俄元首年内再度视频会晤 传递这些重要信息
 
-截至 10 月 15 日，日本 厚生劳动省共收到 1,308 份 COVID-19 疫苗接种后死亡报告。
+[http://www.news.cn/world/2021-12/16/c\_1211489318.htm](http://www.news.cn/world/2021-12/16/c_1211489318.htm)
 
-该研究指出，该政策强烈表明日本[因 COVID-19 疫苗而死亡的人数](http://vaccinedeaths.com/)可能明显高于原始报告。死亡人数强烈表明，对 COVID-19 疫苗产生致命反应的风险明显大于冠状病毒本身对年轻人构成的危险。
+***简评：***在郭先生12月12日直播爆料俄罗斯和西方已经做好沟通不会和中共站在一起，对中共出兵台湾并拉俄罗斯一起出兵乌克兰，俄罗斯对西方表示这绝不会发生。而今天新闻看到习近平15日马上与普京连线，也是今年的第二次视频会面，反对企图离间中俄关系，表现出极大的不安全感，就像恋爱中的一方害怕情变急需对方表白一样。普京双头鹰配合得很好，说了很多让习心安的话，例如期待很快访华并出席北京冬奥会开幕式，俄方一贯反对将体育政治化的图谋。这对此阶段的习来说是最需要的“支持”，郭先生说过普京是克格勃出身深谙心理学，一下子说到习心坎上了。后面普京说，俄方愿同中方继续加强经贸、油气、金融、航空航天等领域以及战略性大项目合作，郭先生曾指出俄罗斯不会放过任何一个榨取中共的机会，中共想要俄罗斯支持，后面在这几个领域上与俄罗斯签订贸易协议，支付大量的金钱是不可避免的，no money no talk。这次视频会面和中共党媒发出的最有利习的新闻通稿无一不在作证郭先生直播内容的真实性，我们还注意到中共在军事上也想得到俄罗斯的站台，提到俄罗斯参与中共解放军在南海的军演，而普京表示俄方愿同中方就维护各国真正民主权利问题加强沟通，并未在军事立场上接过习的传球。郭先生直播说过，西方和俄罗斯已经就亚太和欧洲的利益进行了勾兑，将中共赶出亚太，俄罗斯要增强在印太和欧洲的影响力，普京一方面把中共捧上神坛，做成一个用来与西方勾兑的最大筹码，中共和习最后关头一定会被俄罗斯抛弃。
 
-根据数据，在日本，年轻人死于 COVID-19 的几率为百万分之 0.6 至 0.8。相比之下，同一群人死于COVID-19 疫苗的几率为百万分之 3.2。
+### 12.16.新华网.习近平会见平安中国建设表彰大会代表 李克强王沪宁韩正参加会见
 
-目前，日本是世界上接种疫苗最多的国家之一。截至发稿时，[78% 的人口](https://www.nytimes.com/interactive/2021/world/covid-vaccinations-tracker.html)已完全接种疫苗。研究表明，强迫其余 22% 的人口接种疫苗将导致比不接种疫苗更多的死亡。
+[http://www.news.cn/politics/leaders/2021-12/16/c\_1128169047.htm](http://www.news.cn/politics/leaders/2021-12/16/c_1128169047.htm)
 
-尽管数据证明不接种疫苗更安全，尤其是对年轻人而言。但是，日本政府仍在计划 [分发和](https://english.kyodonews.net/news/2021/12/d2502f4659e2-kishida-defends-govt-covid-response-at-parliament.html)强制[管理](https://english.kyodonews.net/news/2021/12/d2502f4659e2-kishida-defends-govt-covid-response-at-parliament.html)COVID-19 疫苗加强剂。
+***简评：***据中共党媒的报道，15日对于习近平来说是忙碌的一天，他和普京视频会面又参加平安中国建设的表彰会，罕有的是三个中共在任常委一起陪同参加会见。郭先生12日的直播大量的信息中提到中国现在根本没有常委，军政大权完全被习的家族十几个人把控，习的弟弟、妻子、女儿都手握大权。而事过两天，第三天习马上带着三个常委亮相，不由让人想到是不是有点心虚，想要反驳郭先生说法，告诉世人“看，谁说没有常委，他们不也一起的吗？”，平安中国是中共在2020年4月成立的以应对中国社会主要矛盾议事协调机构，由政法委、最高法、武警、国安部等机构人马担任成员，其中几位是有福建、浙江工作经历，籍贯山东的主要领导。习在二十大前大肆表彰平安中国在全国的各级机构，如在军队提拔军官一样，在收买人心，施加政治压力，确保政治安全、社会不出大乱，为习在二十大顺利连任保驾护航。
 
-日本首相岸田文雄告诉日本议会，他的政府目前的首要任务是检查有关现有 COVID-19 疫苗针对疫苗后omicron 变体的有效性的证据。
+### 12.16.凤凰网.浙江确诊人数两周内激增 “防疫优等生”怎么也会失手？
 
-岸田说：“我们希望尽快确定现有疫苗对 omicron 菌株的影响，然后展示提高加强注射的范围和方法，”
+[https://i.ifeng.com/c/8C16M3YLXeP](https://i.ifeng.com/c/8C16M3YLXeP)
 
-其他日本科学家已经警告政府，COVID-19 疫苗对 omicron 变体的[效力](https://theworldnews.net/jp-news/japanese-scientists-warn-vaccines-may-be-less-effective-against-the-omicron-variant)将[大大降低](https://theworldnews.net/jp-news/japanese-scientists-warn-vaccines-may-be-less-effective-against-the-omicron-variant)。
+***简评：***这篇长文读完以后有几个感受，第一，国内疫情压不住了，郭先生也指出国内疫情一直被压制，死了上千万人也没有任何报道，这次浙江和广东都“爆发”疫情，当地政府组织全民核酸检测，确诊案例越测越多。第二，中外各国事实表明疫苗无用，但是党媒和御用“砖家”会把疫情用于接种第三针的理由，抖音和微信上大量视频和文章说科兴疫苗接种后的48份血清中对Omicron病毒中和抗体率为94%，鼓吹科兴疫苗防新变种。第三，公布确诊人的生活隐私，引发全民讨论和交流，八卦和小道消息满天飞，对当事人诸多谩骂而没有同情，民间仇恨和不信任蔓延，中国人的良知在一次次的下降，无人反思，只要不发生在自己身上，哪管他人的遭遇。第四，强调境外输入的Omicron病例，让国内民众对境外回国人士产生抵触，制造仇恨和分裂，闭关锁国届时成为必须，民众亦不会抵触。第五，文章提到一次性全城核酸检测折腾太大，平时不应放松防控，意思是今后防疫控制常态化，民众自觉减少出外吃喝玩乐，自觉回归到简单物欲生活，对未来中共供销社配给制到来做心理准备，不要埋怨不要反抗。疫情真是一个统治阶级最好的独裁工具，中外皆如此。
 
-由[京都大学](https://www.kyoto-u.ac.jp/en) 教授和流行病学家 Hiroshi Nishiura领导的一组研究人员 告诉卫生部的顾问委员会，omicron 变体比疫苗后的 delta 变体逃避 COVID-19 疫苗建立的所谓保护的可能性要高几倍。
-
-Nishiura 承认，omicron 变种在日本等疫苗接种率高的国家更容易传播。“这很像 [omicron 变体] 可能会在日本这样的疫苗接种率高的国家传播。”
-
-作为日本大流行后经济复苏计划的一部分，中央政府正在通知地方政府区域准备接种加强疫苗。尽管日本政府尚未做出决定，承认针对 omicron 变体的疫苗的有效性，但这项工作仍在进行。
-
-编者按：
-
-显而易见，日本政府对疫苗造成死亡案例和严重危害的事实选择了视而不见。不仅如此，他们仍然坚持推行疫苗加强剂，这种做法听起来让人觉得如此疯狂，而且丧失了寻常逻辑！这也似乎完全背离了中共病毒疫苗支持者所宣称的科学！日本类似的状况也正在世界各地的民主国家、文明世界发生着！时至今日，我们看到的令人心痛的疫苗灾难已经越来越多地浮现出来，这世界已经足够疯狂，唯盼这灾难早日消亡！
-
-通过阅读[Vaccines.news 上](https://vaccines.news/)的最新文章，了解有关证明 COVID-19 疫苗无效且实际上比冠状病毒本身更致命的最新科学研究的更多信息。
-
-编译/米拉娅
-
-审阅/丘杰斯
-
-上传/天赐良闻
-
-英文原文作者：[Arsenio Toledo](https://www.pandemic.news/author/arseniotoledo)
-
-新闻[来源包括：](https://www.pandemic.news/2021-12-15-risk-of-death-higher-after-covid-vaccine.html)
-
-[LifeSiteNews.com](https://www.lifesitenews.com/news/vaccines-pose-7-times-higher-death-risk-than-covid-for-young-people-japanese-experts-warn/)
-
-[纽约时报](https://www.nytimes.com/interactive/2021/world/covid-vaccinations-tracker.html)
-
-[英语共同社](https://english.kyodonews.net/news/2021/12/d2502f4659e2-kishida-defends-govt-covid-response-at-parliament.html)
-
-[世界新闻网](https://theworldnews.net/jp-news/japanese-scientists-warn-vaccines-may-be-less-effective-against-the-omicron-variant)
-
-标记如下： [大型制药公司](https://www.pandemic.news/tag/big-pharma)，[生物武器](https://www.pandemic.news/tag/biological-weapon)，[冠状病毒](https://www.pandemic.news/tag/coronavirus)，[冠状病毒疫苗](https://www.pandemic.news/tag/coronavirus-vaccines)，[covid-19](https://www.pandemic.news/tag/covid-19)，[日本](https://www.pandemic.news/tag/japan)，[omicron](https://www.pandemic.news/tag/omicron)，[制药欺诈](https://www.pandemic.news/tag/pharmaceutical-fraud)，[研究](https://www.pandemic.news/tag/research)，[刺突蛋白](https://www.pandemic.news/tag/spike-protein)，[疫苗危险](https://www.pandemic.news/tag/vaccine-dangers)，[疫苗死亡](https://www.pandemic.news/tag/vaccine-deaths)
+#   港台资讯
+![](https://himalayawashingtondc.org/wp-content/uploads/2021/12/DB233EF9-92C9-4072-A058-C482D2C86EAE-1024x576.png)![](https://himalayawashingtondc.org/wp-content/uploads/2021/12/717710A8-0053-49D2-B1AF-E1ECC2016128-1024x576.png)![](https://himalayawashingtondc.org/wp-content/uploads/2021/12/C4F290DD-C14F-49FC-BA20-5DCB16D46649-1024x576.png)![](https://himalayawashingtondc.org/wp-content/uploads/2021/12/3865642A-E1E5-4EF9-A976-DEF4F9BB4484-1024x576.png)
+*编辑：*DC任盈盈
+*作图：hans（文玄）
+发布：文顾*
 
  
 

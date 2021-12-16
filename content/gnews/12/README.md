@@ -2,33 +2,12 @@
 ---
 
 
-## 樱花灭共诗——贺老妖（新韵）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1760960/)
+## 12/08郭文贵直播：中共法院以莫须有的“强迫交易罪”将盘古抢走（粤语配音）
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1761037/)
 
-撰稿：东京樱花团/曲非烟
-![](https://assets.gnews.org/wp-content/uploads/2021/12/3-35.jpg)
-闭门冬奥会，
+12/08/2021 郭文贵直播：中共法院以莫须有的“强迫交易罪”将盘古抢走，涉案资产所有权已在2013年抵押给了阿布扎比；王岐山的家族企业以盘古酒店管理公司“不能履行业务”为由将其撵走，并用物管公司接管了盘古七星酒店。
 
-掩耳外尘嚣。
-
-百鬼同催债，
-
-万国不觐朝。
-
-独播非党愿，
-
-献礼尽红袍。
-
-冰雪埋山岭，
-
-晶棺贺老妖。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-195.jpg)
-插图：东京樱花团/闪闪
-
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.jpg)
-
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
