@@ -2,24 +2,50 @@
 ---
 
 
-## 数以千计的新西兰人游行 抗议疫苗强制令和封锁
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1760461/)
+## 2021年12月15日新闻集
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1760513/)
 
-#### 翻译/撰稿：zzballack
+撰稿人：文远Bruce
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Untitled41.png)
+1 法院判国会可以看川普税单
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Untitled42.png)
+2 美新冠死亡人数超80万
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Untitled43.png)
+3 谷歌说雇员要么打疫苗要么走人
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Untitled44.png)
+4 马斯克说将来可以用狗狗币买特斯拉，狗狗币大涨20%
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Untitled45.png)
+5 穷爸爸富爸爸的作者坚信大萧条正在到来，预测黄金白银比特币不动产均会崩溃
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Untitled420.png)
+6 美国11月PPI同比增9.6%
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Untitled46.png)
+7 印度11月批发价格通胀指数同比增14.2%
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Untitled48.png)
+8 截止11月，美国企业高管出售价值635亿美元的股票，比2020全年高50%。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Untitled421.png)
+9 土耳其里拉再暴跌7%，美元对里拉1:14
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Untitled411.png)
+10 丰田推出电动皮卡
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Untitled412.png)
+11 世界最大风机西门子14mw机组投运
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Untitled413.png)
+12 Quantumscape固态电池能量密度比特斯拉高一倍
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Untitled414.png)
+13 这篇文章认为：钠离子电池将会取代锂离子电池
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Untitled415.png)
+14 磷酸铁锂电池优势明显强于铅酸电池，取代之是趋势
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Untitled416.png)
+15马斯克当选2021年《时代杂志》封面人物
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Untitled417.png)
+16 特斯拉学G-fashion出品哨子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Untitled418.png)
+17 中共国特色——吃空饷
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Untitled419.png)
+（部分新闻转自Luke）
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-2-11.jpg)图片来源：proiqra.com
-据《路透社》（Reuters）12月16日报道，本周四，数以千计的新西兰人在首都惠灵顿游行，抗议政府的疫苗强制令和封锁措施。
+发稿：Runaway
+![此图像的alt属性为空；文件名为澳喜图标2-1-2.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1-2.jpg)
 
-尽管新西兰政府早些时候表示，已有90%符合条件的人口，即约380万人完全接种了新冠疫苗，但政府仍实施严格的封锁和强推疫苗接种，这引起了一些人的批评，他们呼吁更多的自由，并结束对疫苗的强制性要求。
-
-新西兰政府现在强制要求教师、卫生和残疾部门的工作人员、警察和其他公共服务部门接种疫苗，而且卫生监管机构药品及医疗器材安全管理局在12月16日临时批准为5至11岁的儿童接种辉瑞疫苗。
-
-抗议者大多没有戴口罩，他们游行穿过惠灵顿的中央商务区，聚集在被称为蜂窝大厦的议会大楼前。抗议者举着纸板进行和平示威，纸板上面写着“自由战胜恐惧”，“封锁摧毁生命”和“新西兰人不是小白鼠”等标语。其他人则举着写有美国前总统川普的口号“让美国再次伟大”的牌子。
-
-即使有这么高的疫苗接种率，新西兰民众仍无法恢复大流行前的自由。政府一再地忽悠民众说接种了疫苗就会恢复正常生活，但这两年所发生的事情证明政府只想借大流行来限制和剥夺人们的自由权利，最终奴役百姓。新西兰总理杰辛达·阿德恩最近在接受采访时承认，疫苗接种计划不会有终点，这是赤裸裸的疫苗暴政宣言。全球有良知、渴望自由的人士必须携起手来，终结人类的这一空前危机。
-
-新闻来源：[Thousands protest COVID-19 rules as New Zealand marks 90% vaccine rates](https://www.reuters.com/world/asia-pacific/thousands-protest-covid-19-rules-new-zealand-marks-90-vaccine-rates-2021-12-16/)
 
  
 

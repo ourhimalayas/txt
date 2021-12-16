@@ -2,24 +2,26 @@
 ---
 
 
-## 秘翻在线：拜登签署行政令制裁全球非法毒品贸易
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1760131/)
+## 美国开发新软件工具以提前四个月预测中共相关行动
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1760171/)
 
-#### 翻译/撰稿：zzballack
+#### 撰稿：彩虹
 
-#### 校对：白夜
-![](https://assets.gnews.org/wp-content/uploads/2021/12/16396431821.png)          图片来源：路透社
-据《合众国际社》（UPI）12月15日报道，美国总统拜登12月15日签署了两项行政令，扩大对贩毒组织和毒贩个人的制裁打击。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-2-10.jpg)
+12月15日，《新闻极限》报道太平洋地区的美国军事指挥官开发了一个软件工具，以预测美国在该地区的行动将导致中共国做何反应。
 
-其中一项命令是“对参与全球非法毒品贸易的外国人员实施制裁”（Imposing Sanctions on Foreign Persons Involved in the Global Illicit Drug Trade）。该命令将授权财政部长在与国务卿、司法部长和国土安全部部长协商后，对确定参与全球毒品贸易或与之相关交易的任何外国人士实施制裁。
+周二，国防部副部长凱瑟琳·希克斯 (Kathleen Hicks)在访问夏威夷的美国印太司令部时听取了关于这个软件新工具的介绍。
 
-有5位中国公民被财政部制裁，他们被指控参与贩运及生产毒品芬太尼，并在美国销售。
+根据一位国防官员的说法，该软件工具计算的是“战略摩擦”，它研究了自2020年初以来的数据，评估了影响美中关系的重大活动，从而帮助五角大楼预测某些行动是否会激起中共国的过激反应。
 
-第二项命令是“建立美国打击跨国有组织犯罪委员会”（Establishing the U.S. Council on Transnational Organized Crime），将把6个打击跨国有组织犯罪的政府部门和机构整合在一起，以确保美国政府有效利用所有适当的工具来应对跨国犯罪组织的威胁。
+这位官员说，10月份，中共国军方谴责美国和加拿大各派一艘军舰通过台湾海峡，威胁了该地区的和平与稳定。这一事件和其他类似事件导致对该软件工具的需求。
 
-白宫说：“跨国有组织犯罪通过毒品贸易、暴力、枪支和人口贩运威胁着全球稳定，他们还贩运合成阿片类药物，特别是芬太尼，导致美国各地的吸毒过量致死人数剧增，大约每5分钟就有一个美国人丧生。”
+按照这位官员的介绍，该工具为各种活动提供了可见性，如国会访问台湾、向该地区的盟友出售武器，或者当几艘美国船只驶过台湾海峡时可能会激起的中共国的过渡或意外反应。该官员认为这个新的软件将使美国官员能够提前四个月看到（中共相关）行动。
 
-新闻来源：[Biden signs executive orders targeting global drug trade](https://www.upi.com/Top_News/US/2021/12/15/biden-sanctions-transnational-organized-crime-drugs/3241639598020/)
+**新闻来源**
+
+[US Builds New Software Tool to Predict Actions That Could Draw China’s Ire](https://www.newsmax.com/newsfront/china-software/2021/12/15/id/1048862/)
 
  
 

@@ -2,52 +2,46 @@
 ---
 
 
-## 接下来将推出对新疆西藏香港台湾意想不到的立法和法案
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1760458/)
+## 8月以来九成Covid死亡来自完全接种者
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1760491/)
 
-原视频连接：[2021年12月15日 文贵大直播：Billboard和iTunes全球打榜记录- Hcoin To The Moon；欧美制裁 奥运人权经济；疫苗灾难 危害验证抗议 ；国内经济 地产负债脱钩；终共行动 中共是否报复](https://gtv.org/video/id=61b9e8037882000d5100be68)
+翻译： Jenny Ball
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-818.png)图片来源 : naturalnews.com
 
+《自然新闻》([Natural News](https://www.naturalnews.com/))企业媒体再次对武汉冠状病毒（Covid-19）的最新“变种”（被称为Omicron）进行歇斯底里的散播。然而，他们没有告诉世界的是，唯一受其影响的人是“完全接种疫苗”的人。
 
-**郭文贵先生：**我再告诉大家，对西藏不仅如此，对新疆不仅如此，对香港也不仅如此，对台湾也不仅如此，对这些地方最重要的接下来是什么？支持你独立怎么支持？从天上要不扔下个万八枝枪怎么支持？不扔点针刺导弹扔下去，怎么支持啊？没有武器它怎么独立呀？第二，得让他们有合法的武器；
+不仅如此，自 8 月以来，十分之九的“Covid”死亡是[完全接种疫苗者](https://dailyexpose.uk/2021/12/03/fully-vaccinated-account-for-9-in-every-10-covid-19-deaths-since-august-according-to-latest-official-data/)，这意味着，**几乎没有未接种疫苗者在检测为“阳性”后死亡。**
 
-第三，他们没钱，吃啥喝啥呀？要让他们合法的金融系统包括数字货币，要有钱、有粮食，打仗没有枪、没有粮食你打什么仗？没有钱什么的打什么仗？
+在这个时间点，唯一存在的疫情是在接受疫苗的人中蔓延的。政府官方数据充分证明了这一点，该数据显示，未接种疫苗的人群的健康状况几乎无懈可击。
 
-第四，最关键的这些人出来以后，他们的子孙后代要有人救，是吧？还得有后台，还得有人救；
+苏格兰公共卫生局 (PHS) 在其每周按疫苗接种状态分类的病例、住院和死亡的报告中说，绝大多数因“Covid”而造成的严重伤害和死亡**发生在注射疫苗的人群中**，未注射的人大多都很好。
 
-第五，最关键的事情，这样台湾、香港、新疆、西藏要形成联合体，联合作战。共产党我就不相信你派百万大军全给他杀了；
+“通过分析报告中包含的数据，以及可追溯到 2021 年 8 月 14 日的先前报告中的数据，我们可以看到，苏格兰至少自 8 月以来一直在经历‘全面接种疫苗的大流行’，” 《每日曝光》报道。
 
-最后，国际上法理上，联合国、美国、欧洲一定要全面支持，同时在国际上只要你敢动手，经济脱钩，货币脱钩是肯定的，贸易脱钩，什么SWIFT，什么WTO，通通滚蛋！是吧。
+“这证明，即将引入的新限制，与新的 Omicron 变体可能影响 Covid-19 疫苗的有效性无关，而是与控制有关，因为几个月来已经证明疫苗无效。 ”
 
-我就不相信共产党能撑三年打仗，绝不可能！习近平都没有这个耐心，甭说别人，他身体都撑不住，这才是战略。
+**数据很清楚：接种疫苗会大大增加您的死亡风险**
 
-所以你看着，再在告诉大家，对新疆、西藏、香港、台湾将有意想不到的立法和法案出来，这是2017年七哥说的，现在还会再告诉你们，今天这个只是一切刚刚开始。
+来自小灵通的数据清楚地表明，自8月以来，未接种疫苗的病例数一直在逐步下降。 与此同时，完全接种疫苗的病例数量一直在激增。
 
-编辑整理：海贼王M.D.LUFFY；
+总体趋势表明，**未接种疫苗的人更健康，并能更好地抵御最新变种**，而完全接种疫苗的人越来越多地被注射到体内的东西所害。
 
-视频制作：Cindy；
+至于住院治疗，很少有未接种疫苗的人，甚至由于症状轻微不存在去医院的需求。完全接种疫苗的人则不然，他们正以越来越多的人急速涌入医院。
 
-视频上传：Cindy；
+“正如你从上面看到的，数据证明是：完全接种疫苗的人群给医疗系统带来了压力，而不是像当局和主流媒体让你相信的那样，是未接种疫苗的人群造成的，”《每日曝光》报道。
 
-G-News发布：黎明之前；
+最令人震惊的数据点是，接种疫苗和未接种疫苗之间的死亡人数。这种差异是如此巨大，以至于人们不再否认疫苗是杀死人的东西，而不是一些漂浮在空气中的“病毒”。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
+新闻来源 : [naturalnews.com] [90% of all “covid” deaths since August occurred in fully vaccinated](https://www.naturalnews.com/2021-12-14-90-percent-covid-deaths-since-august-fully-vaccinated.html) / [DailyExpose.uk](https://dailyexpose.uk/2021/12/03/fully-vaccinated-account-for-9-in-every-10-covid-19-deaths-since-august-according-to-latest-official-data/) / [NaturalNews.com](https://naturalnews.com/2021-09-30-vaccine-death-report-millions-died-covid-vaccines.html)
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+* * *
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-3.jpeg)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
