@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/16/2021 12:05 AM (UTC)`
+
+12/15/2021 Miles Guo: What does the Tibet Independence Act mean? Tibet is the grant barrier of Western China, and it also has the richest water and forest resources; Tibet’s strategic significance is no less than that of Taiwan; once Tibet became independent, Communist China would be over<br/><br/>12/15/2021 文贵直播：《西藏独立法案》意味着什么？西藏是中国西部的大屏障、也拥有着中国最丰富的水资源和森林资源，其战略地位不亚于台湾；一旦西藏独立，中共国就彻底完了<br/>
+![img](https://media.gettr.com/group15/getter/2021/12/16/00/2fcd77fb-1c71-52f2-4b8b-be6c0e23e906/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@gfashion 11/30/2021 11:07 PM (UTC)`
@@ -155,13 +162,6 @@ We conducted a preliminary survey about the effects of artemisinin supplements a
 
 12/12/2021 Miles Guo: If it weren't for crooks like Zhang Xueliang, there would not be nearly a century of bloodshed and suffering of the Chinese people inflicted by the CCP, and the Chinese people would definitely enjoy a much better democracy than the current democracy in Taiwan. Everything the CCP boasts is bad, and everything the CCP hates is good. Only by eliminating falsehoods and preserving the truths can the society have a secured and healthy future.<br/><br/>12/12/2021 文贵直播：如果没有张学良这样的骗子，就没有中共对中国人近百年的杀戮与荼毒，中国人的民主一定会比现在的台湾好；中共夸的都是坏的，中共恨的都是好的；只有去伪存真才能让社会有安全、健康和未来<br/>
 ![img](https://media.gettr.com/group16/getter/2021/12/13/22/2d07bca8-1761-c4b2-2bd2-27d6707fea66/out.jpg)
-
----
-
-`@miles 12/13/2021 10:14 PM (UTC)`
-
-12/12/2021 Miles Guo: Xi Jinping's daughter's real name is Li Muzi, and Xi's protection of his family and his daughter's luxurious life are far beyond the ordinary people’s imagination; whoever offends Li Muzi or Peng Liyuan will be finished, such as Fang Fenghui<br/><br/>12/12/2021 文贵直播：习近平女儿的真名叫李木子，习对其家人的维护和她女儿的奢靡生活远超普通人的想象；谁惹了李木子或彭丽媛都得完蛋，比如房峰辉<br/>
-![img](https://media.gettr.com/group42/getter/2021/12/13/22/da3b5303-7e8e-698f-e1b3-3c231757bba8/out.jpg)
 
 ---
 

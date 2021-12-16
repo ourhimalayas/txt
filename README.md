@@ -15,80 +15,80 @@
 
 ---
 
-### [【#G时新闻】 日本在 “疫苗 ”上標註心肌炎警告——要求知情同意！](/content/gnews/1/README.md)
+### [智慧占据优势，愤怒开始了——大流行：我们已经走投无路了！](/content/gnews/1/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [白宫证实拜登总统已决定签署保护新疆人权法案](/content/gnews/2/README.md)
+ ` 日本东京方舟农场`
+
+### [【#G时新闻】 日本在 “疫苗 ”上標註心肌炎警告——要求知情同意！](/content/gnews/3/README.md)
  ` G-时新闻`
 
-### [私人信托公司概要](/content/gnews/2/README.md)
+### [私人信托公司概要](/content/gnews/4/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [福奇涉嫌病毒功能增强研究的证据曝光](/content/gnews/3/README.md)
+### [福奇涉嫌病毒功能增强研究的证据曝光](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [哈佛教授被控隐瞒与中共关系将出庭受审](/content/gnews/4/README.md)
+### [哈佛教授被控隐瞒与中共关系将出庭受审](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [新书揭示对全球大流行病毒起源的掩盖](/content/gnews/5/README.md)
+### [新书揭示对全球大流行病毒起源的掩盖](/content/gnews/7/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [更多中共军工企业将入美国投资和出口黑名单](/content/gnews/6/README.md)
+### [更多中共军工企业将入美国投资和出口黑名单](/content/gnews/8/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [高校考研人数历史新高戳破中共国GDP稳步增长神话](/content/gnews/7/README.md)
+### [高校考研人数历史新高戳破中共国GDP稳步增长神话](/content/gnews/9/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2021/12/14 墙内世界](/content/gnews/8/README.md)
+### [2021/12/14 墙内世界](/content/gnews/10/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [紧急：3 种方法来帮助阻止拜登的疫苗授权](/content/gnews/9/README.md)
+### [紧急：3 种方法来帮助阻止拜登的疫苗授权](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美国心脏协会:97.8%的21岁以下青年人在注射mRNA疫苗后一个月内患上心肌炎](/content/gnews/10/README.md)
+### [美国心脏协会:97.8%的21岁以下青年人在注射mRNA疫苗后一个月内患上心肌炎](/content/gnews/12/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [警惕：大流行下一阶段是数字疫苗护照和第三次世界大战](/content/gnews/11/README.md)
+### [警惕：大流行下一阶段是数字疫苗护照和第三次世界大战](/content/gnews/13/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [灭共者：地球是我们的一个支点](/content/gnews/12/README.md)
+### [灭共者：地球是我们的一个支点](/content/gnews/14/README.md)
  ` MOS Designer香草山设计部`
 
-### [呼格吉勒图案平反，中共依旧党在法上](/content/gnews/13/README.md)
+### [呼格吉勒图案平反，中共依旧党在法上](/content/gnews/15/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [为了增加人员配备一些医院取消了COVID-19疫苗强制规定](/content/gnews/14/README.md)
+### [为了增加人员配备一些医院取消了COVID-19疫苗强制规定](/content/gnews/16/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [福奇电邮：小扎愿提供“数据报告”以助锁定疫苗开发政策](/content/gnews/15/README.md)
+### [福奇电邮：小扎愿提供“数据报告”以助锁定疫苗开发政策](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [小肯尼迪新书以希望结尾：我们还有选择……（2/2）](/content/gnews/16/README.md)
+### [小肯尼迪新书以希望结尾：我们还有选择……（2/2）](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [小肯尼迪新书以希望结尾：我们还有选择……(1/2)](/content/gnews/17/README.md)
+### [小肯尼迪新书以希望结尾：我们还有选择……(1/2)](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [加国卡车司机强制疫苗将导致严重供应链问题](/content/gnews/18/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [俄罗斯特使向中共通报的四项内容吓傻了共产党](/content/gnews/19/README.md)
+### [俄罗斯特使向中共通报的四项内容吓傻了共产党](/content/gnews/20/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [DC每日热点1215](/content/gnews/20/README.md)
+### [DC每日热点1215](/content/gnews/21/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [11岁男童遭班主任辱骂后自杀 中共封锁新闻](/content/gnews/21/README.md)
+### [11岁男童遭班主任辱骂后自杀 中共封锁新闻](/content/gnews/22/README.md)
  ` GTV News Talk`
 
-### [世界卫生组织：中共病毒疫苗对Omicron的效果较差](/content/gnews/22/README.md)
+### [世界卫生组织：中共病毒疫苗对Omicron的效果较差](/content/gnews/23/README.md)
  ` 纽约香草山MOS02`
 
-### [2021年12月15日文贵先生直播摘要及音频—银河系农场](/content/gnews/23/README.md)
+### [2021年12月15日文贵先生直播摘要及音频—银河系农场](/content/gnews/24/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [DC大中华时事：中共称“共同富裕”将创造中国发展新前景](/content/gnews/24/README.md)
+### [DC大中华时事：中共称“共同富裕”将创造中国发展新前景](/content/gnews/25/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [非洲正在觉醒：南非国防部拒绝中共疫苗](/content/gnews/25/README.md)
- ` 纽约香草山MOS02`
 
 ### [文贵爆料 12.15：剑锋直指“七寸”——美两党议员支持西藏独立](/content/gnews/26/README.md)
  ` 秘密翻译组-原创组`

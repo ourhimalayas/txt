@@ -2,54 +2,50 @@
 ---
 
 
-## 警惕：大流行下一阶段是数字疫苗护照和第三次世界大战
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1758597/)
+## 紧急：3 种方法来帮助阻止拜登的疫苗授权
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1758659/)
 
-翻译： Jenny Ball
+编译：Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-13-1.jpg)图片来源：baike.juwai.com
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-14-1.jpg)图片来源：today.line.me（翻摄自路透社）
 
-《自然新闻》早在川普政府和媒体公布武汉冠状病毒（Covid-19）之前，亿万富翁优生学家比尔·盖茨就忙于制定一项计划，**向全世界注入数字跟踪微芯片**。
+儿童健康防御组织([Children’s Health Defense](https://childrenshealthdefense.org/))呼吁科学家、公民和医学专家，帮助阻止拜登总统对员工、联邦承包商和医疗保健工作者的 COVID 疫苗授权。
 
-在全球主义洛克菲勒基金会、联合国和各种公私合作伙伴（非政府组织NGO）的帮助下，比尔和梅琳达·盖茨基金会正在狂热地酝酿一项我们现在看到的，随着大流行的发展，推出的“**全数字化人口减少和优生学议程**” 。
+可以通过以下方式提供帮助： 在管理和预算办公室 ([OMB](https://www.regulations.gov/document/OMB-2021-0007-0001/comment))、医疗保险和医疗补助服务中心 ([CMS](https://www.regulations.gov/docket/CMS-2021-0168/comments))， 以及职业安全与健康管理局([OSHA](https://www.regulations.gov/document/OSHA-2021-0007-0001/comment))的每个联邦电子规则制定门户上发表评论，解释您反对这些指令的原因 。
 
-所需要的只是：在恰当的时间使用正确的催化剂（一种虚构的病毒）来启动这个电子识别程序，它似乎将被称为“疫苗护照”。（相关：盖茨注射器混合物中的一种成分，称为荧光素酶，其专利号包含数字 666）
+按照每个网站上的说明提交评论。 在发表评论之前，您还可以查看其他人在OMB，CMS 和 OSHA发表的评论：
 
-“这是一个全电子身份证明——将一切与每个人的一切（健康记录、犯罪记录、银行记录、个人和私人记录等）联系起来，由国家机构管理或在极端情况下，由私营部门管理”该技术的平台。
+• OMB：截止日期 12 月 16 日
 
-“想象一下，一家保险公司或银行处理您的私人记录，转换为电子并最终‘芯片’身份证。”
+• CMS：截止日期为 2022 年 1 月 4 日
 
-**你会参与“大重置”吗？**
+• OSHA：截止日期 2022 年 1 月 19 日
 
-在不久的过去有一段时间，将个人记录私有化，并将其放在可注射微芯片上的想法还被称为“阴谋论”。现在，它正在我们眼前实现。
+**以下是您需要了解的有关每项疫苗强制规定的信息：**
 
-也许您听说过 ID2020 一词？ 它已被议会悄悄通过或在德国、奥地利和法国等国颁布法令。这些国家的大多数人甚至都不知道它发生了。
+OMB：拜登总统于 9 月 9 日宣布了他的“走出大流行之路：COVID-19 行动计划”，并签署了一项[行政命令](https://na01.safelinks.protection.outlook.com/?url=https%3A%2F%2Fwww.whitehouse.gov%2Fbriefing-room%2Fpresidential-actions%2F2021%2F09%2F09%2Fexecutive-order-on-ensuring-adequate-covid-safety-protocols-for-federal-contractors%2F&amp;data=04%7C01%7C%7C16a4b2e0547b4fe7aaca08d9b5f306a5%7C84df9e7fe9f640afb435aaaaaaaaaaaa%7C1%7C0%7C637740877663535714%7CUnknown%7CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%3D%7C3000&amp;sdata=i3JTIJn%2FXvuTpF4ZF8jautSXUeevtNd8bYGxZkP2s5s%3D&amp;reserved=0)，强制要求联邦承包商接种 COVID-19 疫苗。
 
-瑞士政府也尝试过同样的事情，结果瑞士人民发现了，并在全民公投中以二比一投反对票。
+提交完整疫苗接种证明的截止日期（除非该员工在法律上有权获得豁免）是 2022 年 1 月 18 日。[请在此处阅读完整的规定。](https://childrenshealthdefense.org/defender/action-omb-oppose-mandatory-vaccines-federal-contractors/)
 
-然而，最终，这项技术将被强加于整个世界。世界经济论坛 (WEF) 创始人克劳斯·施瓦布 (Klaus Schwab) 承诺这是“**大重置”**的言论，由于大流行，这种言论正在以“扭曲的速度”实现。
+CMS：11 月 4 日，CMS 规定医疗保险和医疗补助（Medicare and Medicaid）认证的提供者、供应商和员工，必须接种 COVID-19 疫苗。
 
-为了达到目标，第三次世界大战也必须开始。宪法需要废除，国家边界和主权也需要废除。最终，一切都将合二为一，包括甚至宗教都由政府控制。
+然而，在 11 月 30 日，路易斯安那州联邦地方法院[发布了一项初步禁令](https://childrenshealthdefense.org/defender/biden-covid-vaccine-mandates-legal-setbacks/)，影响了全国的医护人员起来反对强制执行。
 
-“**它悄无声息地发生了**，”“燃烧的平台“The Burning Platform 警告说。“通过法令，或通过合议和/或胁迫的议会， 世界各地基本上都在实施一种健康戒严法，尤其是西方。”
+法院表示：“在像这样的大流行期间，更重要的是保护我们宪法中规定的权力分立，以避免我们的自由受到侵蚀。” [在这里发表您对 CMS 的评论](https://www.federalregister.gov/documents/2021/11/16/2021-24949/determination-of-the-acting-omb-director-regarding-the-revised-safer-federal-workforce-task-force)。
 
-**回到可植入微芯片**，盖茨和洛克菲勒基金会已经在“疫苗接种护照”的幌子下，**为其全球推广提供资金**。
+OSHA：要求拥有 100 名或更多员工的企业强制要求所有员工接种 COVID 疫苗的 OSHA 规定于 11 月 5 日生效。但是，在 11 月 16 日，OSHA 暂停了其关于工作场所强制性 COVID 疫苗接种和测试的紧急临时标准 (ETS) 的实施和执行。
 
-现在我们已经按计划推出了“Omicron”（Moronic）变体，该计划的全面实施就在眼前。为了恢复某种“新常态”，世界人民将被告知：他们必须遵守——当然是为了保证每个人的“安全”。
+**在第五巡回上诉法院作出**[**长达****22****页**](https://na01.safelinks.protection.outlook.com/?url=https%3A%2F%2Fchildrenshealthdefense.org%2Fwp-content%2Fuploads%2F5th-Stay.pdf&amp;data=04%7C01%7C%7C78327c0d1280459a795408d9b5f78c37%7C84df9e7fe9f640afb435aaaaaaaaaaaa%7C1%7C0%7C637740897237681758%7CUnknown%7CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%3D%7C3000&amp;sdata=pZzBeeR%2BfcTWIMNf%2F7CuplWwoIfte%2FZZHAxgzg3%2BnWM%3D&amp;reserved=0)**的暂停裁决之后，该裁决称拜登政府的授权存在“致命缺陷”，并表示，职业安全与健康管理局应“在进一步的法院命令之前不采取任何措施来实施或执行该授权**。”
 
-值得注意的是，这一切都不是由世卫组织成员国资助的。不，是盖茨、洛克菲勒和其他全球主义者正在投入无尽的现金，来见证他们的创作的“孩子”复活——他们几乎已经成功了。
+CHD 呼吁 OSHA 延长公众意见征询的截止日期，并向公众提交关于该命令对安全、健康和经济影响的环境影响报告。
 
-**当然，拜登政权也是同谋**。由于大概奥巴马通过拜登耳中的助听器，从他的地下室发令，尽管少数在法院遇到了一些暂时的挫折，但疫苗的要求仍在继续推行。
+美国参议院于 12 月 8 日[投票决定废除雇主授权](https://childrenshealthdefense.org/defender/senate-vote-repeal-biden-vaccine-mandates-employers/)，但该措施仍需提交给众议院。拜登暗示，如果该法案在参议院和众议院获得通过，他将否决该法案。
 
-每一块都在国内外被烙印在更大的拼图中，在你明白之前，全球控制的整个机制将是可见的和不可否认的。 到你明白时，做任何事情都为时已晚：你唯一的选择就是遵守或死亡。
+在此处阅读有关 OSHA 实施拜登授权的计划的更多信息，然后[在此处发表您对 OSHA 的评论](https://www.regulations.gov/document/OSHA-2021-0007-0001)。
 
-文章信息来源：
+**评论：这是关乎我们健康自由和未来的紧急行动，让我们拿起法律武器，用宪法保护我们的权利！行动起来，到这些相关网站发声！**
 
-[TheBurningPlatform.com](https://www.theburningplatform.com/2021/11/30/digital-tyranny-and-the-rockefeller-gates-who-vaxx-certificate-passport-towards-a-world-war-iii-scenario/)
-
-[NaturalNews.com](https://naturalnews.com/2020-05-15-enzyme-bill-gates-vaccine-microchip-implant-luciferase.html)
-
-[naturalnews][Be vigilant: The next phase of the plandemic is digital “vaccine” passports and World War III](https://www.naturalnews.com/2021-12-14-next-phase-plandemic-digital-vaccine-passports-world-war.html)
+**参考资料**：[childrenshealthdefense.org][Urgent: 3 Ways to Help Stop Biden’s Vaccine Mandates](https://childrenshealthdefense.org/defender/help-stop-biden-vaccine-mandates/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=73816dfa-7dfe-468a-b1c4-5ac2bc316bd4)
 
 * * *
 
@@ -58,8 +54,6 @@
 *发布：信心的选择*
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-3.jpeg)
-
-
 
  
 
