@@ -2,13 +2,13 @@
 ---
 
 
-## 我们应全面抵制由施行种族灭绝的政权主办的北京冬奥会
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1754230/)
+## 英国单日新增感染中共病毒人数创今年新高
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1755707/)
 
-12/10/2021 娜塔丽·温特斯指出中共的所作所为不仅是在和本国人民作对，更是在与全世界为敌。我们应当全面抵制由一个施行种族灭绝的政权主办的北京冬奥会
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
-
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1215-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
