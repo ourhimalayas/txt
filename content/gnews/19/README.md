@@ -2,24 +2,46 @@
 ---
 
 
-## 数以千计的新西兰人游行 抗议疫苗强制令和封锁
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1760461/)
+## 8月以来九成Covid死亡来自完全接种者
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1760491/)
 
-#### 翻译/撰稿：zzballack
+翻译： Jenny Ball
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-2-11.jpg)图片来源：proiqra.com
-据《路透社》（Reuters）12月16日报道，本周四，数以千计的新西兰人在首都惠灵顿游行，抗议政府的疫苗强制令和封锁措施。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-818.png)图片来源 : naturalnews.com
 
-尽管新西兰政府早些时候表示，已有90%符合条件的人口，即约380万人完全接种了新冠疫苗，但政府仍实施严格的封锁和强推疫苗接种，这引起了一些人的批评，他们呼吁更多的自由，并结束对疫苗的强制性要求。
+《自然新闻》([Natural News](https://www.naturalnews.com/))企业媒体再次对武汉冠状病毒（Covid-19）的最新“变种”（被称为Omicron）进行歇斯底里的散播。然而，他们没有告诉世界的是，唯一受其影响的人是“完全接种疫苗”的人。
 
-新西兰政府现在强制要求教师、卫生和残疾部门的工作人员、警察和其他公共服务部门接种疫苗，而且卫生监管机构药品及医疗器材安全管理局在12月16日临时批准为5至11岁的儿童接种辉瑞疫苗。
+不仅如此，自 8 月以来，十分之九的“Covid”死亡是[完全接种疫苗者](https://dailyexpose.uk/2021/12/03/fully-vaccinated-account-for-9-in-every-10-covid-19-deaths-since-august-according-to-latest-official-data/)，这意味着，**几乎没有未接种疫苗者在检测为“阳性”后死亡。**
 
-抗议者大多没有戴口罩，他们游行穿过惠灵顿的中央商务区，聚集在被称为蜂窝大厦的议会大楼前。抗议者举着纸板进行和平示威，纸板上面写着“自由战胜恐惧”，“封锁摧毁生命”和“新西兰人不是小白鼠”等标语。其他人则举着写有美国前总统川普的口号“让美国再次伟大”的牌子。
+在这个时间点，唯一存在的疫情是在接受疫苗的人中蔓延的。政府官方数据充分证明了这一点，该数据显示，未接种疫苗的人群的健康状况几乎无懈可击。
 
-即使有这么高的疫苗接种率，新西兰民众仍无法恢复大流行前的自由。政府一再地忽悠民众说接种了疫苗就会恢复正常生活，但这两年所发生的事情证明政府只想借大流行来限制和剥夺人们的自由权利，最终奴役百姓。新西兰总理杰辛达·阿德恩最近在接受采访时承认，疫苗接种计划不会有终点，这是赤裸裸的疫苗暴政宣言。全球有良知、渴望自由的人士必须携起手来，终结人类的这一空前危机。
+苏格兰公共卫生局 (PHS) 在其每周按疫苗接种状态分类的病例、住院和死亡的报告中说，绝大多数因“Covid”而造成的严重伤害和死亡**发生在注射疫苗的人群中**，未注射的人大多都很好。
 
-新闻来源：[Thousands protest COVID-19 rules as New Zealand marks 90% vaccine rates](https://www.reuters.com/world/asia-pacific/thousands-protest-covid-19-rules-new-zealand-marks-90-vaccine-rates-2021-12-16/)
+“通过分析报告中包含的数据，以及可追溯到 2021 年 8 月 14 日的先前报告中的数据，我们可以看到，苏格兰至少自 8 月以来一直在经历‘全面接种疫苗的大流行’，” 《每日曝光》报道。
+
+“这证明，即将引入的新限制，与新的 Omicron 变体可能影响 Covid-19 疫苗的有效性无关，而是与控制有关，因为几个月来已经证明疫苗无效。 ”
+
+**数据很清楚：接种疫苗会大大增加您的死亡风险**
+
+来自小灵通的数据清楚地表明，自8月以来，未接种疫苗的病例数一直在逐步下降。 与此同时，完全接种疫苗的病例数量一直在激增。
+
+总体趋势表明，**未接种疫苗的人更健康，并能更好地抵御最新变种**，而完全接种疫苗的人越来越多地被注射到体内的东西所害。
+
+至于住院治疗，很少有未接种疫苗的人，甚至由于症状轻微不存在去医院的需求。完全接种疫苗的人则不然，他们正以越来越多的人急速涌入医院。
+
+“正如你从上面看到的，数据证明是：完全接种疫苗的人群给医疗系统带来了压力，而不是像当局和主流媒体让你相信的那样，是未接种疫苗的人群造成的，”《每日曝光》报道。
+
+最令人震惊的数据点是，接种疫苗和未接种疫苗之间的死亡人数。这种差异是如此巨大，以至于人们不再否认疫苗是杀死人的东西，而不是一些漂浮在空气中的“病毒”。
+
+新闻来源 : [naturalnews.com] [90% of all “covid” deaths since August occurred in fully vaccinated](https://www.naturalnews.com/2021-12-14-90-percent-covid-deaths-since-august-fully-vaccinated.html) / [DailyExpose.uk](https://dailyexpose.uk/2021/12/03/fully-vaccinated-account-for-9-in-every-10-covid-19-deaths-since-august-according-to-latest-official-data/) / [NaturalNews.com](https://naturalnews.com/2021-09-30-vaccine-death-report-millions-died-covid-vaccines.html)
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-3.jpeg)
+
 
  
 

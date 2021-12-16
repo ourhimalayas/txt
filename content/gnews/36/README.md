@@ -2,30 +2,24 @@
 ---
 
 
-## 中共利用服务器软件漏洞进行全球范围黑客活动
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1760024/)
+## 秘翻在线：拜登签署行政令制裁全球非法毒品贸易
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1760131/)
 
-#### 撰稿：彩虹
+#### 翻译/撰稿：zzballack
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-79.png)图片来源：Juniper
-Apache是一个服务器软件，本周，安全研究人员发现，来自包括中共国和伊朗在内的国家支持的黑客组织，正在积极利用Apache日志包Log4j中的一个重大漏洞，针对世界各地的服务器进行攻击。12月15日，《国会山报》对此做了报道。
+#### 校对：白夜
+![](https://assets.gnews.org/wp-content/uploads/2021/12/16396431821.png)          图片来源：路透社
+据《合众国际社》（UPI）12月15日报道，美国总统拜登12月15日签署了两项行政令，扩大对贩毒组织和毒贩个人的制裁打击。
 
-根据报道，该log4j漏洞是许多机构组织使用的（服务器）系统的基础，很难完全修补。
+其中一项命令是“对参与全球非法毒品贸易的外国人员实施制裁”（Imposing Sanctions on Foreign Persons Involved in the Global Illicit Drug Trade）。该命令将授权财政部长在与国务卿、司法部长和国土安全部部长协商后，对确定参与全球毒品贸易或与之相关交易的任何外国人士实施制裁。
 
-周二，微软更新了关于log4j漏洞的博客文章，指微软威胁情报中心（MSTIC）警告说，已经看到来自中共国、伊朗、北朝鲜和土耳其的国家操纵的黑客组织利用该漏洞（进行攻击）的证据。
+有5位中国公民被财政部制裁，他们被指控参与贩运及生产毒品芬太尼，并在美国销售。
 
-该博客文章说，利用log4j的伊朗组织被微软称为“Phosphorus”，该组织一直在利用该漏洞发起勒索软件攻击。与此同时，一个名为“Hafnium”的中共国组织，之前曾利用了微软邮件服务器软件（Exchange）的缺陷（进行黑客攻击），已被认为正在使用log4j漏洞在全球范围内对成千上万的团体（服务器）进行攻击。
+第二项命令是“建立美国打击跨国有组织犯罪委员会”（Establishing the U.S. Council on Transnational Organized Crime），将把6个打击跨国有组织犯罪的政府部门和机构整合在一起，以确保美国政府有效利用所有适当的工具来应对跨国犯罪组织的威胁。
 
-报道指，微软并不是唯一一个发现国家操纵（黑客）行为的组织。网络安全组织Mandiant的发言人本周告诉《国会山报》，“中（共）国政府行为者”正在利用log4j漏洞。这证实了安全研究人员本周的广泛担忧，即这些国家组织寻求利用该漏洞来推进（实现）其（国家）目标。
+白宫说：“跨国有组织犯罪通过毒品贸易、暴力、枪支和人口贩运威胁着全球稳定，他们还贩运合成阿片类药物，特别是芬太尼，导致美国各地的吸毒过量致死人数剧增，大约每5分钟就有一个美国人丧生。”
 
-然而，CISA（网络安全和基础设施安全局）负责网络安全的执行助理主任埃里克·戈德斯坦（Eric Goldstein）周二晚上告诉记者，虽然该机构看到了利用漏洞的情况，但它没有正式将此归咎于任何特定国家。
-
-报道说，在过去的一周，CISA采取了一系列行动来解决这个漏洞，包括将log4j加入到CISA的漏洞目录中，要求联邦机构立即解决这个漏洞。CISA的联合网络防御合作组织也成立了一个高级领导小组，以关注该漏洞，而且CISA最近几天一直在与重要的私营部门合作伙伴保持定期联系。
-
-**新闻来源**
-
-[China, Iran among those exploiting Apache cyber vulnerability, researchers say](https://thehill.com/policy/cybersecurity/585904-china-iran-among-those-seen-exploiting-apache-cyber-vulnerability)
+新闻来源：[Biden signs executive orders targeting global drug trade](https://www.upi.com/Top_News/US/2021/12/15/biden-sanctions-transnational-organized-crime-drugs/3241639598020/)
 
  
 
