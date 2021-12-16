@@ -2,36 +2,137 @@
 ---
 
 
-## DC每日热点1215
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1758501/)
+## 俄罗斯特使向中共通报的四项内容吓傻了共产党
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1758521/)
 
-编辑：楚门门
-![](https://assets.gnews.org/wp-content/uploads/2021/12/40B222C2-20DB-49B8-B862-6FB9DA62603E-scaled.jpeg)
-道琼斯指数 35455.72 ▼0.25%
-纳斯达克指数 15141.92 ▼0.63%
-WTI纽约原油CFD 69.696 ▼1.46%
-布伦特原油CFD 72.680 ▼1.41%
-标普50指数 3,040.04 ▼36.10%
-美元兑人民币 1USD=6.367 RMB
-美元兑港币 1USD=7.801 HKD
-国际黄金 1768.9美元/盎司
-全球CCP病毒感染人数 271,944,764例
+[https://gtv.org/video/id=61b9d7cea68b4f4b28e8b3b3](https://gtv.org/video/id=61b9d7cea68b4f4b28e8b3b3)
 
-1、德国军舰近20年首次驶入南中国海
-2、不甩北京不满与警告，法国国民议会代表团抵达台湾访问
-3、报道：美国政府即将宣布将新一批中共国公司列入黑名单
-4、日本智库：中共解放军深化联合作战能力对日构成威胁
-5、布林肯继续东南亚之旅聚焦南中国海 马来西亚外长感谢美国帮助提升海上执法能力
-6、美众院通过《防止强迫维吾尔人劳动法》 下一步待参院表决
-7、普京要求立即与美国北约就向俄罗斯提供安全保证进行谈判
-8、位在印度达兰萨拉的“西藏人权与民主中心”最近公布数据显示，过去30年中共国当局关押了5518名西藏政治犯，目前仍有1800多人身陷牢狱中
-9、彭帅博文“惹祸”后 新浪微博被约谈罚款
-10、英政府指海外法官暂时留在香港法院 对支撑司法独立有正面作用
-11、华为文件显示其参与中共官方监控项目，深度超预期
-12、因隐瞒与中共国关系遭指控的哈佛教授即将出庭受审，陪审员挑选已开始
-13、安倍称美日台团结争民主：香港几乎没有民主空间，台湾更形重要
-14、英报告：港区国安法打压异见 英方续强烈反对 中方称已提交涉
-15、欧盟外长：对俄制裁 欧盟各国将步调一致
+**郭文贵**
+**Miles Guo**
+
+俄罗斯派去的特使
+The special envoy sent by Russia
+
+非常明确地所谓的在官方通报了
+made it very clear that
+
+和俄美交流之后
+after the official notification of the exchange between Russia and the United States,
+
+会谈之后, 这次私下里交谈告诉了中方
+they told the Chinese officials in a private conversation after the meeting with US.
+
+任何情况下你打台湾我不会跟你一起的
+that “under any circumstances, if you fight against Taiwan, I will not be with you”
+
+原来说你弄我吆喝啊，甚至给你技术上支持
+They originally were to let China do what they want and Russia just roaring in the back, and even provide them with technological support
+
+这个对它是一个致命的（打击）
+This is a fatal strike to the CCP,
+
+说我不会的，打台湾我不参与
+saying that I won’t participate if you war on Taiwan
+
+第二句话很可怕
+The second sentence is fearful,
+
+所有中苏之间签署的油、气的协议，你们必须执行
+saying that you must implement all the oil and gas agreements signed between Chi-na and the Soviet Union
+
+言外之意啥意思呀
+What does it implicate?
+
+你该给我的钱、买我的油、买我的气，一点儿也不能少
+The money that you are supposed to give me and the oil and gas you are supposed to buy from us cannot be a bit less
+
+你少了，反过来我不是不支持你，我就是打你了
+If you are missing a bit, on the other hand, it’s not that I don’t support you, but to fight against you
+
+我就跟美国人站在一起去了
+and I would stand by the American side
+
+这对习来讲是简直是巨大的羞辱
+This is a huge shame to Xi
+
+（中共之前的战略）它是联俄抗美，联俄收台
+It (the CCP’s previous strategy) was to unite Russia and to be against the United States and to reclaim Taiwan
+
+这个战略观是整个过去十几年世界局势变化的一切根本的原因
+This strategic view is the fundamental reason for all changes in the world situation over the past ten years
+
+这已经完了
+All these are over
+
+第三条是更让他接受不了的
+The third is even more unacceptable to Xi
+
+俄国和印度、北朝鲜、巴基斯坦、伊朗将形成一个新的联盟关系
+Russia and India, North Korea, Pakistan, and Iran will form a new alliance relation-ship
+
+你看看就没有共产党，而且明确了就没邀请你进去
+You see, there is no Communist Party, and clearly, it has not been invited to join them
+
+什么概念？
+What dose it mean?
+
+这几个人要联合起来跟美国讲数（谈判）, 咱们不打，咱交易
+These individuals want to be united and to negotiate with the United States that they don’t want to fight but a deal
+
+特别是俄罗斯反对中国在阿富汗干的事情
+Especially Russia opposes what China is doing in Afghanistan
+
+很明确，说你在阿富汗这事干得不行
+It’s clear that the CCP didn’t do it well in Afghanistan
+
+阿富汗现在死太多人了
+Too many people have died in Afghanistan now
+
+对我俄罗斯也不利呀
+It’s unfavorable to Russia
+
+阿富汗乱，车臣的回民就给它搞在一起
+The chaos in Afghanistan, the Muslim people in Chechnya would bring it together
+
+所谓车臣恐怖分子就会再次崛起
+The so-called Chechen terrorists will rise again
+
+这是很夸张的
+This is very overstressed
+
+还有一个就是现在你跟美国和西方这种挑战什么都可以
+Another thing is that now you can challenge anything with the United States and the West
+
+但是中国内部
+But insider China
+
+俄罗斯就说了你的人权和你的整个企业经济情况让我们很失望
+The Russia said that the Chinese human rights and their entire business economic situation have disappointed them
+
+言外之意就是你再给我钱，你给不起了
+The implication is that the CCP needs to give Russia money again, but the CCP may not have enough money anymore
+
+**原视频链接:** [https://gettr.com/post/pjjifl68f6](https://gettr.com/post/pjjifl68f6)
+
+Date: 12/13/2021
+原视频标题: 俄罗斯特使向中共通报的四项内容吓傻了共产党
+The Communist Party Has Been Shocked by The Four Contents That The Russian Special Envoy Noticed to The CCP
+
+原视频日期：2021/12/12
+原视频链接: https://gettr.com/post/pjjifl68f6
+任务编号：3220
+视频时间段 : 0:00-2:17
+
+英听校 : 洛杉矶盘古农场 – 郭班之樱
+翻译 : 洛杉矶盘古农场 – 郭班之樱
+翻译终校 : 洛杉矶盘古农场 – Mike Li
+字幕+视频制作 : 洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场- 银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

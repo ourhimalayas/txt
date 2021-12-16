@@ -17,10 +17,10 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
-`@miles 12/16/2021 12:05 AM (UTC)`
+`@miles 12/16/2021 12:13 AM (UTC)`
 
-12/15/2021 Miles Guo: What does the Tibet Independence Act mean? Tibet is the grant barrier of Western China, and it also has the richest water and forest resources; Tibet’s strategic significance is no less than that of Taiwan; once Tibet became independent, Communist China would be over<br/><br/>12/15/2021 文贵直播：《西藏独立法案》意味着什么？西藏是中国西部的大屏障、也拥有着中国最丰富的水资源和森林资源，其战略地位不亚于台湾；一旦西藏独立，中共国就彻底完了<br/>
-![img](https://media.gettr.com/group15/getter/2021/12/16/00/2fcd77fb-1c71-52f2-4b8b-be6c0e23e906/out.jpg)
+12/15/2021 Miles Guo: What does the Tibet Independence Act mean? Tibet is the grant barrier of Western China, and it also has the richest water and forest resources; Tibet’s strategic significance is no less than that of Taiwan; once Tibet became independent, Communist China would be over<br/><br/>12/15/2021 文贵直播：《西藏独立法案》意味着什么？西藏是中国西部的大屏障、也拥有着中国最丰富的水资源和森林资源，其战略地位不亚于台湾；一旦西藏独立，中共国就彻底完了
+![img](https://media.gettr.com/group17/getter/2021/12/16/00/fb139163-7c4d-dbd7-ae1e-34d935a1933d/out.jpg)
 
 ---
 
