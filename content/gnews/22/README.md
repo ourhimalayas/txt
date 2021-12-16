@@ -2,32 +2,39 @@
 ---
 
 
-## 中共制造台湾青年歌颂冬奥会的假象
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1761198/)
+## 第二家蒙特利尔医院宣布最新COVID-19 新冠变种病毒爆发——现在该市有 95 例 Omicron 变种病例，其中90%已完全接种疫苗
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1761275/)
 
-作者：台湾宝岛农场 – 鬥陣來拼
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间12月15日，据有关媒体消息显示，为了营造台湾同胞，尤其是台湾青年积极参与中共北京冬奥会志愿服务项目的假象，中共北京市政府台湾事务办公室组织了部分所谓的“在京台胞”参与录制2022年冬奥会的主题口号推广歌曲。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/6-31.jpg)
-对此，台湾民进党立委王美惠质疑道，中共刻意选择旅居中共国的台湾青年拍摄该宣传短片，试图透过歌曲影片混淆国际视听，尤其在西方民主国家接连主张抵制北京冬奥会的当下，中共此举实为利用台湾年轻人当宣传样板，妄图塑造“台湾是中共国的一部分”这一假象。
+编译：16626
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片16732.png)蒙特利尔的圣母医院Notre-Dame Hospital 位于舍布鲁克东街Sherbrooke Street East的拉封丹La Fontaine公园对面。 （伊万诺·德默斯Ivanoh Demers /加拿大广播电台）
+**医生说5 名外科工作人员的 COVID-19 检测呈阳性**
 
-王美惠还痛批中共政府处处打压台湾，更加在中共国境内严重迫害人权。为此，王美惠呼吁台湾政府应加入美国等民主国家的行列，共同抵制中共北京冬奥会。
+加拿大广播公司新闻2021 年 12 月 15 日（伊万诺·德默斯，Ivanoh Demers，发布时间：美国东部时间 2021 年 12 月 15 日晚上 7:51 | 最后更新：12 小时前，来自加拿大广播电台的文件）报道，蒙特利尔的圣母医院宣布最新COVID-19 新冠变种病毒爆发并导致该医院取消了非紧急手术。现在该市有 95 例奥米克戎Omicron 变种病例，其中 90% 涉及已完全接种疫苗的人。这是自2021 年 12 月 12 日以来第二家蒙特利尔医院宣布最新COVID-19 新冠变种病毒爆发。三天前加拿大广播公司新闻2021 年 12 月 12 日（让-克劳德•塔利安娜Jean-Claude Taliana）报道，最新COVID-19 新冠变种病毒在蒙特利尔湖岸总医院（Montreal’s Lakeshore Hospital）爆发-所有感染者都接种了双重疫苗。该篇题为《由于 COVID-19 的爆发，蒙特利尔圣母医院取消了非紧急手术》的报道编译如下：
 
-参考链接:[中共推台灣青年歌頌北京冬奧 立委王美惠：別利用台灣年輕人](https://news.ltn.com.tw/news/politics/breakingnews/3769631)
+涉及手术室工作人员的五名成员COVID-19 爆发导致，自周四起，蒙特利尔圣母医院将暂停非紧急手术。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+“我们现在的状况与2020年3月至4月经历的情况非常相似，”该医院的外科医生斯坦利沃兰特Dr. Stanley Vollant告诉加拿大广播电台。
 
-总编：文真
-编辑：Kathy文艺
-校正/发稿：Fei797
+他证实了医院将暂时计划取消手术，并称手术室将在最低限度内运作，尽管这五名工作人员都生病不能工作。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+紧急和肿瘤手术将继续进行。
+
+社区医院位于舍布鲁克东街Sherbrooke Street East的拉封丹La Fontaine公园对面。它已经存在了近一个世纪。
+
+蒙特利尔周三记录了 844 例新的 COVID-19 病例，该市公共卫生主任 Mylène Drouin 表示，她预计未来几周每天的病例数会增加。
+
+**目前，大多数情况仍然是 Delta 变体。但现在该市有 95 例奥米克戎Omicron 变种病例，其中 90% 涉及已完全接种疫苗。 **
+
+魁北克省周三总共报告了 2,386 例新的 COVID-19 病例和 4 例新死亡病例。
+
+正如该市公共卫生主任 Mylène Drouin 指出的，预计未来几周每天的病例数还会增加，该篇报道提醒魁北克人，病毒仍在传播，必须格外小心。
+
+参考资料：[https://www.cbc.ca/news/canada/montreal/hospital-notre-dame-montreal-covid-19-outbreak-1.6287623](https://www.cbc.ca/news/canada/montreal/hospital-notre-dame-montreal-covid-19-outbreak-1.6287623)
+
+编辑/发布：LILY
+
+20211216
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

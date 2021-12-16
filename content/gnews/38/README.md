@@ -2,31 +2,45 @@
 ---
 
 
-## 日本“返老还童”实验在小鼠上成功！——更显中共高官邪恶智障！
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1760971/)
+## 【零时差】Covid：英国创下自大流行开始以来的最高每日病例总数78,610例
+` Zero-Day【零时差】` [轉載自GNews](https://gnews.org/zh-hans/1761004/)
 
-撰稿：东京樱花团/风翼
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-58.jpg)
-[图片来源](https://www.kyoto-u.ac.jp/ja/news/2016-10-07)：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/5907A031-54DA-4476-B49E-3052809E0569.jpeg)
+2021年12月15日《独立报》报道，英国政府数据显示，英国周三又记录了 78,610例每日 [Covid-19](https://www.independent.co.uk/topic/covid-19)病例，这是自 2020 年 3 月大流行开始以来感染最严重的一天。这引发了人们对节日期间入院人数过多的担忧。
 
-据【朝日新闻】报道：京都大学病毒科学和再生医学研究所的一个小组已经成功地从基因上恢复了随着年龄增长而衰退的神经细胞的来源，以改善小鼠的认知功能。并在上发表了这项研究。
+这比之前创纪录的每日感染率高出 10,000 多例，这是在去年冬天的高峰期，当时 1 月 8 日报告了 68,053 例感染。
 
-据研究发现大脑中的“神经干细胞”。它们在胎儿期积极增殖以产生更多的神经细胞，但随着年龄增长，因失去了繁殖的能力认知功能也随之下降。研究小组
+在新感染病例中，英格兰各地报告了 4,237 例额外的 omicron 病例，使英格兰新变种的确诊病例总数达到 9,243。
 
-比较了胎鼠和老鼠大脑中的神经干细胞的工作基因，在80个在胎儿中运作良好的基因中，他们确定了那些对激活神经干细胞有强烈作用的基因，还发现抑制老龄小鼠神经干细胞中，良好的基因有助于激活它们。研究人员随后开发了一种方法，通过结合使用在胎儿中发现的基因和抑制在老年中发现的基因，最大限度地提高神经干细胞的活性。使用一种被称为iPaD的方法，对老龄小鼠的大脑进行基因工程进行操作后，原本几乎失去增殖能力的神经干细胞变得活跃起来，并在三个多月内持续增加。并证实了，转基因小鼠的认知能力有所提高，甚至在老年时也是如此，尽管它们的空间记忆和识别新物体的记忆受到了影响。
+在苏格兰，新增了 265 例 omicron 病例，总数达到 561 例，而在威尔士，这一数字几乎翻了一番，达到62 例，而在北爱尔兰，这一数字猛增了 139 例，达到 151 例。
 
-研究团队现在将使用狨猴来观察该方法是否对灵长类动物有效。对小鼠的基因操作涉及到使用病毒将基因插入大脑，而这种方法很难直接应用于人类。其中的客座教授影山龙一说“在人类中，这就像让一个60多岁的青少年的神经干细胞恢复活力，我们想找到一种在人脑中使用它们的方法”。
+英国卫生安全局表示，在整个四个国家中，又报告了 4,671 例 omicron 变体确诊病例，总数达到 10,017 例。
 
-在以全人类的自由和幸福、公正为原则而发展的系列技术等行为的民主国家相比，由极个别人和家族拥有的独裁体制中共，不但不受宪政和法律限制的政权，控制着利益分配，利用权力任意践踏人性尊严，甚者残害生命用来达到“延年益寿”目的的反人类罪行，更能说明中共以没有存在的必要了。
+关于疫苗接种，数据显示已经接种了 34,082 剂第一剂、37,888 剂第二剂和 656,711 剂加强剂和第三剂。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/69117E5A-50A6-40DF-8408-0A443711C0CF.jpeg)
+英国首席医疗官发出警告说，英国人应该减少社交活动，以保持圣诞节家庭正常度过的希望。[Chris Whitty](https://www.independent.co.uk/topic/chris-whitty)说[omicron](https://www.independent.co.uk/topic/omicron)变体“正在以绝对惊人的速度发展”。
 
-信息来源：
+NHS England 首席执行官阿曼达·普里查德 (Amanda Pritchard) 在评论激增的病例时表示，最新的每日总数“应该让我们所有人感到担忧”。
 
-[神経の元になる細胞「60代から10代に」　マウスで若返りに成功](https://www.asahi.com/sp/articles/ASPDH76RMPDHPLBJ001.html?ref=gunosy)
+英国卫生安全局首席执行官珍妮·哈里斯博士告诉国会议员，omicron 变体“可能是自大流行开始以来我们面临的最重大威胁”，并警告说，“惊人”的病例数接下来的几天与之前相比。她还说“真正的潜在风险”是“病例是否会演变成严重疾病、住院和死亡”。
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.jpg)
+世界卫生组织 (WHO) Covid 特使戴维·纳巴罗 (David Nabarro) 表示，NHS 处于紧急情况，并补充说，他现在比大流行的任何其他阶段都更担心。
 
+编译/米拉娅
+
+审阅/丘杰斯
+
+上传/天赐良闻
+
+以下作者为本文做出了贡献
+
+[汤姆巴彻勒](https://www.independent.co.uk/author/tom-batchelor)Tom Batchelor；[罗里·沙利文](https://www.independent.co.uk/author/rory-sullivan)；[斯图蒂·米什拉](https://www.independent.co.uk/author/stuti-mishra)
+
+[新闻来源：](https://www.independent.co.uk/news/covid-omicron-symptoms-vaccines-latest-b1977062.html)
+
+[新闻来源2:](https://www.independent.co.uk/news/health/covid-uk-cases-record-today-b1976600.html)
+
+更多关于[冠状病毒病](https://www.independent.co.uk/topic/covid)[新冠病毒](https://www.independent.co.uk/topic/coronavirus)
 
  
 

@@ -2,32 +2,94 @@
 ---
 
 
-## 12/15/2021文贵视角：《西藏独立法案》意味着什么？
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1761392/)
+## MV版Hcoin To the Moon上线第7天位列16国iTunes热门MV榜首！
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1761434/)
 
-撰稿：Skagen
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1685216a211868a757a9981656974205.png)
-图片：网络
+12/16/2021 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线第7天位列16国iTunes热门MV榜榜首！
 
-2021年12月15号，郭文贵先生针对美国参众两院12月14号发布的支持《西藏独立法案》的议员签名公函，揭示了对灭共和中共国未来及其周边国家的地缘政治军事的深远意义。
+* * *
 
-**西藏对中共国水资源和国防的关系**。西藏人口大约420万左右,官方叫350万，安全部数据2014年是420万。全亚洲的86%到90%的水是来自于喜马拉雅。 喜马拉雅山脉的高度保护了中国的西部。中国所有的战争来自于北部，俄罗斯人，东南部的印度，但是他们跨不过喜马拉雅山脉，喜马拉雅是中国整个半个国家的大屏障。北边北朝鲜、俄罗斯，韩国、印度、日本，这些国家，哪个不想收拾你中共国。
+[【PDF 下载】Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record.pdf)
 
-**对台湾的影响。**所以共产党明白，一定要把台湾弄过来，这样东大门整个对着大西洋就去了，然后台湾的东半岛全部变成军事基地，西半岛全变成生产科技基地。
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_2.jpg)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_3.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_4.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_9.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_10.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_12.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_14.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_15.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_17.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_18.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_19.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_20.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_21.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_22.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_24.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_25-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_26-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_27-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_28-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_29-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_34-1.jpg)
 
-**对周边国家的军事战略。**然后日本就灭了，所以日本紧张啊，台湾拿下来，日本就没有作战空间了。 整个西藏独立，共产党完了，新疆是西北，阿塞拜疆，包括外蒙，那些地方够不成中国的威胁?俄罗斯,你要想到这是多可怕呀? 西藏要独立了,整个中国的水没了,中国蕴藏着最多的木头的地方没了, 而且是居高临下,发导弹的时候不用发 自由弧线都给你打到北京去了,撂到上海去了,打上去就直接下来了,一旦西藏要是成了战略用地,彻底完了。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_36-1.jpg)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_37-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_43.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_44.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_45.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_46.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_47.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_49.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_50.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_51.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_53.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_54.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_55.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_56.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_57.jpg)
 
-**中共国3/4国土领域的威胁。**《西藏独立法》，西藏不是要自治，是支持它独立，西藏的战略位置绝不亚于台湾。西藏没了，整个中国任何人被困住了，就是一个尿盆和站着撒尿的感觉，这是很可怕的战略位置。 新疆和西藏一旦独立，印度、阿塞拜疆，俄罗斯、白俄罗斯，所有这些国家都是中国的威胁。连北朝鲜都不会再寂寞了，包括整个朝鲜半岛，特别韩国，这些国家一定跟你掰扯了，中国3/4的领域已经成为了危险之地，剩下的台湾，能让你拿走吗？你拿不走，这是绝对致命的。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_58.jpg)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_59.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_60.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_61.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_62.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_65.jpg)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_73.jpg)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_75.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_76-2.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_77-2.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_78-2.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_81-2.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_82-2.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_83-2.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_84-2.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_85-2.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_86-2.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_87-2.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_92-2.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_93-2.jpg)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_95.jpg)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_96.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_97-3.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_98-3.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_99-3.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_100-3.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_105-3.jpg)
 
-相关链接：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_111-1.jpg)
+[【PDF 下载】Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-16-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record.pdf)
 
-[https://gnews.org/1757807/](https://gnews.org/1757807/)
-
-[https://gtv.org/video/id=61b9e8037882000d5100be68](https://gtv.org/video/id=61b9e8037882000d5100be68)
-
-
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
