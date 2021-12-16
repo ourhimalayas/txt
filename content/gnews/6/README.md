@@ -2,28 +2,28 @@
 ---
 
 
-## 康奈尔大学因新冠疫情关闭校园
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1761828/)
+## 美国在人权问题上多点密集打击中共
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1761831/)
 
-作者：纽约香草山文艺部 – 宁文静
+作者：日本方舟农场 Andy5
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月14日，康奈尔大学在其官方网站上发出公告称，该校目前已经发现903名学生的新冠病毒检测结果呈阳性，其中，大部分阳性患者被确诊感染了奥密克戎变种病毒。
+12月14日，据当地多家媒体的消息显示，美国正针对发生在新疆和西藏地区的人权问题对中共实施密集的打击。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-16-下午11.08.34.png)
+美国白宫发言人普萨基表示，总统拜登和国会已达成一直观点，认为中共必须为在新疆实施的违反人权的行为负责。此外，美国参众两院的多位跨党派议员也联合致函国务院，呼吁美国推动保护西藏人权、自治和尊严的西藏政策。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide8-2.jpeg)
+此前，美国众议院压倒性地通过了《防止强迫维吾尔人劳动法》的提案。目前，众议院正计划针对参众两院协商后的修改版本再次进行投票，且一旦投票通过，该提案将获得总统拜登的签字，从而正式成为法案。据了解，该提案中规定，所有来自新疆的产品，除非有美国当局下发的无强迫劳动认证，否则将被自动视为涉嫌强制劳动而被禁止进口。
 
-为此，康奈尔大学决定关闭其位于纽约州的伊萨卡校区，并将该校区本学期的期末考试改为线上进行。同时，该校将取消即将举行的毕业典礼及其它各类活动。另外，康奈尔大学也关闭了校园图书馆，更禁止所有外来人员进入校园。
+另据其他媒体当天的报道，同样因为新疆人权问题，美国财政部将于12月16日起，正式将包括大疆在内的八家中共企业列入军工复合体企业清单。与此同时，因涉及到了生物技术，美国商务部也会把另外20多家中共企业列入实体清单。
 
-据悉，这所常春藤名校的师生总体新冠疫苗接种率到达97%。其中，该校专业教师的疫苗接种率为100%，其他员工的接种率为93%，而本科生的接种率已达99%。
+参考链接：
+1）[美国60多名国会两党参众议员致函国务院支持西藏自治](https://www.voachinese.com/a/lawmakers-urge-to-make-tibet-priority-20211214/6354909.html)
+2）[白宫：总统国会一致，中国需为在新疆违反人权负责](https://www.voachinese.com/a/white-house-connect-biden-congress-xinjiang-1214/6355383.html)
 
-目前，康奈尔大学已经进入了“红色警戒级别”，这也是自新冠疫情爆发以来，该校首次进入高风险状态。而据该校副校长乔尔·马利纳在一份声明中提及，此次聚集性感染中，几乎所有的奥密克戎病例都是在完全接种新冠疫苗的学生中发现的，其中一部分人甚至还接种了加强针。
+![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-参考链接： [Cornell University reports more than 900 Covid-19 cases this week. Many are Omicron variant cases in fully vaccinated students](https://www.cnn.com/2021/12/14/us/cornell-university-covid-cases/index.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
-
-总编：Ivy001
-编辑：Jack Li文阳
-校正/发稿：谐趣园
+总编：文真
+编辑：文特
+校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
