@@ -117,77 +117,77 @@
 ### [土耳其因里拉内爆对“囤积”提出巨额罚款](/content/gnews/34/README.md)
  ` Zero-Day【零时差】`
 
-### [中共和俄罗斯在三个方面频繁交往](/content/gnews/35/README.md)
+### [中共的威胁将成就日本](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [关于投资赌牌和数字银行的资格](/content/gnews/36/README.md)
+### [中共和俄罗斯在三个方面频繁交往](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [咱那赌牌是数字赌牌的一个新的开始](/content/gnews/37/README.md)
+### [关于投资赌牌和数字银行的资格](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [FENDI不是品牌](/content/gnews/38/README.md)
+### [咱那赌牌是数字赌牌的一个新的开始](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [HPAY的发展窗口期](/content/gnews/39/README.md)
+### [FENDI不是品牌](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [马航事件绝对是杀人灭口](/content/gnews/40/README.md)
+### [HPAY的发展窗口期](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [GTV新闻访谈简报|2021年12月15日早](/content/gnews/41/README.md)
+### [马航事件绝对是杀人灭口](/content/gnews/41/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [GTV新闻访谈简报|2021年12月15日早](/content/gnews/42/README.md)
  ` 纽约香草山MOS01`
 
-### [美加澳的高端豪宅市场，从现在起开始暴跌崩坍](/content/gnews/42/README.md)
+### [美加澳的高端豪宅市场，从现在起开始暴跌崩坍](/content/gnews/43/README.md)
  ` 墨尔本雅典娜农场`
 
-### [12/15每日播报｜新闻简讯:疫情阴霾 中共诱惑独裁国](/content/gnews/43/README.md)
+### [12/15每日播报｜新闻简讯:疫情阴霾 中共诱惑独裁国](/content/gnews/44/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [12/15每日播报|社媒消息:皮特纳瓦罗 娜塔莉温特斯,埃内斯坎特](/content/gnews/44/README.md)
+### [12/15每日播报|社媒消息:皮特纳瓦罗 娜塔莉温特斯,埃内斯坎特](/content/gnews/45/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [12/15/2021 国际财经快讯：美国国会通过法案，禁止来自中共国新疆的产品；日本承认多年来虚报GDP构成数据](/content/gnews/45/README.md)
+### [12/15/2021 国际财经快讯：美国国会通过法案，禁止来自中共国新疆的产品；日本承认多年来虚报GDP构成数据](/content/gnews/46/README.md)
  ` 秘密翻译组金融团队`
 
-### [CCP病毒使中共国民航运输下跌过半](/content/gnews/46/README.md)
+### [CCP病毒使中共国民航运输下跌过半](/content/gnews/47/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [CNN挺班农 要求公布被司法部保护的文件](/content/gnews/47/README.md)
+### [CNN挺班农 要求公布被司法部保护的文件](/content/gnews/48/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [真实与虚假的中共国](/content/gnews/48/README.md)
+### [真实与虚假的中共国](/content/gnews/49/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [社交媒体影响者 与中共国领事馆签订官方合同](/content/gnews/49/README.md)
+### [社交媒体影响者 与中共国领事馆签订官方合同](/content/gnews/50/README.md)
  ` GTV News Talk`
 
-### [COVID-19 最新情报｜南苏丹现神秘恶疾速夺 89 命 WHO 急派人手赶赴调查](/content/gnews/50/README.md)
+### [COVID-19 最新情报｜南苏丹现神秘恶疾速夺 89 命 WHO 急派人手赶赴调查](/content/gnews/51/README.md)
  ` 關注組`
 
-### [COVID-19 最新情报｜mRNA 疫苗技术发明人之一马龙博士就儿童疫苗发布紧急声明](/content/gnews/51/README.md)
+### [COVID-19 最新情报｜mRNA 疫苗技术发明人之一马龙博士就儿童疫苗发布紧急声明](/content/gnews/52/README.md)
  ` 關注組`
 
-### [比利时和奥地利表态不派官员出席北京冬奥](/content/gnews/52/README.md)
+### [比利时和奥地利表态不派官员出席北京冬奥](/content/gnews/53/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [近乎全员接种的康奈尔大学疫情爆发关闭校园](/content/gnews/53/README.md)
+### [近乎全员接种的康奈尔大学疫情爆发关闭校园](/content/gnews/54/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [安倍再次警告中共对台动武就是自取灭亡](/content/gnews/54/README.md)
+### [安倍再次警告中共对台动武就是自取灭亡](/content/gnews/55/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [英国单日新增感染中共病毒人数创今年新高](/content/gnews/55/README.md)
+### [英国单日新增感染中共病毒人数创今年新高](/content/gnews/56/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国商务部部长的丈夫在一家获中共资助的科技公司担任高管](/content/gnews/56/README.md)
+### [美国商务部部长的丈夫在一家获中共资助的科技公司担任高管](/content/gnews/57/README.md)
  ` 首尔天池农场`
 
-### [布林肯批评中共在印太地区的“侵略行动”](/content/gnews/57/README.md)
+### [布林肯批评中共在印太地区的“侵略行动”](/content/gnews/58/README.md)
  ` HimalayaRussia`
-
-### [Hcoin To the Moon连续2周登上Billboard全球数字歌曲销量榜首 ！](/content/gnews/58/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [我们应全面抵制由施行种族灭绝的政权主办的北京冬奥会](/content/gnews/59/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`

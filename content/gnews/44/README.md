@@ -2,186 +2,102 @@
 ---
 
 
-## 12/15每日播报|社媒消息:皮特纳瓦罗 娜塔莉温特斯,埃内斯坎特
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1757386/)
+## 12/15每日播报｜新闻简讯:疫情阴霾 中共诱惑独裁国
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1757517/)
 
 **By:[秘翻新闻](https://gtv.org/broadcast/watch/61b9ae5256f4921401b8245d)**
 
 **2021-12-15**
 
-**1.在美国空军以未接种新冠疫苗为由，开除了27名现役人员后，皮特纳瓦罗12月15日发推回应说：**
+**1.全球体坛垄罩疫情阴霾 NBA公牛队10人缺阵**
 
-疫苗强制令不仅是极其糟糕的卫生政策，也对国家安全不利。看到此事，中共解放军在前往武汉病毒研究所的路上一定会狂笑不止。福奇又帮了中共一个忙！
+[据《TVBS新闻》12月14日消息，美国NBA芝加哥公牛惊爆多人染疫，加上昨天确诊的前锋强森，还包含「灌篮王」拉文、前锋德罗森、格林、布朗、怀特、汤玛斯、琼斯、S.强森以及多桑姆，共10人触发健康安全协议而缺阵。这导致公牛队仅剩8名球员可出赛，NBA随后也宣布延后公牛队14日及周四的赛事，确保疫情不再扩大。](https://tw.news.yahoo.com/%E9%AB%94%E5%A3%87%E6%96%B0%E5%86%A0%E7%96%AB%E6%83%85%E7%87%92-nba%E5%85%AC%E7%89%9B10%E4%BA%BA%E7%BC%BA%E9%99%A3-%E5%B7%AE%E9%BB%9E%E6%B2%92%E4%BA%BA%E5%8F%AF%E5%87%BA%E8%B3%BD-022414728.html)
 
+[根据联盟规定，一旦球员触发健康安全协议，他们就必须隔离10天，或是24小时内连续2次PCR检测阴性方可回归。](https://tw.news.yahoo.com/%E9%AB%94%E5%A3%87%E6%96%B0%E5%86%A0%E7%96%AB%E6%83%85%E7%87%92-nba%E5%85%AC%E7%89%9B10%E4%BA%BA%E7%BC%BA%E9%99%A3-%E5%B7%AE%E9%BB%9E%E6%B2%92%E4%BA%BA%E5%8F%AF%E5%87%BA%E8%B3%BD-022414728.html)
 
+[全球体坛垄罩染疫阴霾，不只美国NBA，甫在美网夺冠有「英国杨丞琳」之称的19岁小将拉杜卡努也因确诊，取消原定16号出席的阿布达比表演赛。对此，她表示原本相当期待能在阿布达比与球迷相见，不过因为染疫只好期待下次机会，现在她正依规定进行隔离，希望能早日回到场上。](https://tw.news.yahoo.com/%E9%AB%94%E5%A3%87%E6%96%B0%E5%86%A0%E7%96%AB%E6%83%85%E7%87%92-nba%E5%85%AC%E7%89%9B10%E4%BA%BA%E7%BC%BA%E9%99%A3-%E5%B7%AE%E9%BB%9E%E6%B2%92%E4%BA%BA%E5%8F%AF%E5%87%BA%E8%B3%BD-022414728.html)
 
-> Bad health policy. Bad for national security. Peoples Liberation Army laughing all the way to the Wuhan Institute of virology. Fauci strikes again.
-> 
->  [https://t.co/HWyAjM4HKR](https://t.co/HWyAjM4HKR)
-> — Peter Navarro (@RealPNavarro) [December 14, 2021](https://twitter.com/RealPNavarro/status/1470825671295447042?ref_src=twsrc%5Etfw)
+秘翻新闻明澈编辑报道
 
+**2.比利时、奥地利表态 不派官员出席北京冬奥**
 
+[据《台视新闻》12月15日消息，比利时国会议员寇拉提当地时间14日在社群媒体发文指出，他询问总理德克鲁是否会外交抵制北京冬奥，德克鲁回应联「邦政府不会派出代表参加」。奥地利方面，新任总理内哈默在接受外国媒体专访表示，决定不派高阶官员出席冬奥。](https://tw.news.yahoo.com/%E6%AF%94%E5%88%A9%E6%99%82-%E5%A5%A7%E5%9C%B0%E5%88%A9%E8%A1%A8%E6%85%8B-%E4%B8%8D%E6%B4%BE%E5%AE%98%E5%93%A1%E5%87%BA%E5%B8%AD%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A7-003149213.html)
 
-**2.娜塔莉温特斯12月14日发推说：**
+[此外，由各国跨党派国会议员组成的「对中共政策跨国议会联盟」也发文表示，比利时加入澳洲、加拿大、爱沙尼亚、立陶宛、科索沃、纽西兰、英国与美国等国家，一起外交抵制北京冬奥。并强调强调，「没有人权就没有奥运」的力量愈来愈大。](https://tw.news.yahoo.com/%E6%AF%94%E5%88%A9%E6%99%82-%E5%A5%A7%E5%9C%B0%E5%88%A9%E8%A1%A8%E6%85%8B-%E4%B8%8D%E6%B4%BE%E5%AE%98%E5%93%A1%E5%87%BA%E5%B8%AD%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A7-003149213.html)
 
-根据《国家脉动》独家获得的福奇和扎克伯格之间的最新私人邮件显示，脸书创始人扎克伯格提供用户的“数据报告”，以帮助他们制定封锁政策和疫苗研发。
+秘翻新闻明澈编辑报道
 
-【推文转《国家脉动》报道，这个鲜明例子说明，大科技公司和政府如何利用用户数据轻易地进行勾兑，限制公众的自由。扎克伯格在电邮中提到，他的个人基金会投入了数亿美元，以确保当时的总统候选人乔·拜登在2020年取得胜利。今年4月8日，扎克伯格给福奇发了一封电邮，他在邮件中说：“脸书可以制作汇总和匿名的数据报告，以促进封锁政策的制定。为了加快疫苗研发，我可以向你们提供所需要的资源和资金。”福奇回复说，他会认真考虑扎克伯格的提议。在这次交流中，两人还讨论了社交媒体平台的“中共病毒信息中心”以及如何控制有关大流行病的叙事。参议员玛莎·布莱克本曾在今年6月提出过此问题，但福奇矢口否认自己与扎克伯格有互动。】
+**3.神秘疾病肆虐非洲酿近百死 WHO紧急小组出动採样调查**
 
+[据《时报周刊》12月15日消息，有报导指出，南苏丹位于非洲大陆东北部，当地近日爆发神祕的疾病，目前已经造成89人死亡，疾病爆发地点琼莱州北部城镇凡加克，该地是南苏丹的严重洪灾区域之一，一开始专家还推估可能是霍乱，但目前初步样本採测结果并非如此。目前世界卫生组织已经派出紧急小组，前往当地进行疾病样本的採样与调查，进行风险评估与调查，同时也取疾病样本。](https://www.ctwant.com/article/156461?utm_source=yahoo&amp;utm_medium=rss&amp;utm_campaign=156461)
 
+秘翻新闻明澈编辑报道
 
-> 🚨🚨🚨
-> 
-> EXC: New Fauci-Zuckerberg Emails Reveal Offer of ‘Data Reports’ To Aid Lockdown Policies, Vaccine Development.[https://t.co/D7URA1StMy](https://t.co/D7URA1StMy)
-> — Natalie Winters (@nataliegwinters) [December 14, 2021](https://twitter.com/nataliegwinters/status/1470770111309135881?ref_src=twsrc%5Etfw)
+**4.英人民反抗疫苗政策包围国会  疯狂预约致卫生部宕机**
 
+[据《每日邮报》12月13日消息，在世卫通报奥米炕低死亡率，及美国疾病控制与预防中心报告奥米炕确诊主要为双针、三针人士之际，英国首相约翰逊向人民宣传施打第三针，促使英国人民群起反抗，疯狂预约令卫生部网站宕机两天。今晨英国国民卫生署通报系统恢复正常。这是极具智慧的最低成本公民抗议。](https://www.dailymail.co.uk/news/article-10303621/NHS-website-CRASHES-thousands-try-book-Covid-booster-jabs.html)
 
+[12月14日，英国出现首个奥米炕死亡病例，但首相约翰逊并未松口加强剂，惹来英国人民更大反弹，群众包围英国国会，高呼「首相约翰逊下台」！](https://www.dailymail.co.uk/news/article-10303621/NHS-website-CRASHES-thousands-try-book-Covid-booster-jabs.html)
 
-**3.娜塔莉温特斯12月15日发推说：**
+秘翻新闻明澈编译报道
 
-美国共和党众议员利茲·切尼 (Liz Cheney)获得了由“前国会议员协会（Association of Former Members of Congress）”颁发的2021年政治家奖，中共的对外影响力机构–中美交流基金会是该奖项的赞助商之一。另外，《国家脉动》之前曝光过，利茲·切尼的丈夫在一家与中共有深度关联的律师事务所任职。
+**5. 中共以各种手段诱惑亚非拉独裁国家出席冬奥会**
 
+[近期，郭文贵先生在GTV大直播中爆料，爆料革命和新中国联邦成功地对抵制北京冬奥会进行了政治公关，女网明星彭帅被中共国前副总理张高丽性侵并被噤声失联一事对各国政府外交抵制起到了催化作用。](https://gtv.org/video/id=61b5f49556f4921401b604a9)
 
+[郭先生曾在直播中指出，中共高层好色与迷信的本性决定了彭帅事件不是偶然，是必然，这与西方民主国家提倡尊重与保护人权的价值观背道而驰，外交抵制冬奥会是顺理成章的事。但这成了中共的滑铁卢。中共内部文件明确指出，对外谈及他国外交抵制冬奥会时，统一表述为“官方不出席冬奥会”，避免出现“抵制”二字。](https://gtv.org/video/id=61b5f49556f4921401b604a9)
 
-> 🚨🚨🚨
-> 
-> REVEALED: Liz Cheney Accepted ‘Statesmanship’ Award From Chinese Communist Party Influence Group.[https://t.co/lSlDeNtB9x](https://t.co/lSlDeNtB9x)
-> — Natalie Winters (@nataliegwinters) [December 14, 2021](https://twitter.com/nataliegwinters/status/1470857954140164096?ref_src=twsrc%5Etfw)
+[目前，中共仍在倾一国之力将奥运会装扮成“皇帝的新衣”。中共私下许诺，给运动员的奖牌现金比例提高到1:10，即拿到一块奖牌可以拿到10倍的奖励。中共正在以各种手段和方式寻求和引诱亚非拉各个独裁国家官方出席冬奥会。而美国亲共的主流媒体NBC电视台，拿着美国人的20亿美元送给中共，从而拿到冬奥会的电视直播权。](https://gtv.org/video/id=61b5f49556f4921401b604a9)
 
+秘翻新闻滴水穿石编辑报道
 
+**6.东莞半封城 疫情拉警报**
 
-**4.真正美国之声12月15日发推说：**
+据网友视频消息，广东东莞大朗通报两例无症状感染者后拉响防疫警报，进入半封城状态。东莞市疫情防控指挥部14日通报，自2021年12月14日0时起，对进出大朗镇的所有道路，包括高速公路、省市镇公路、村、社区道路等出入口实施交通全面管控。实施严格的人员、出行管理，呼吁市民群众非必要不离莞、不出省，确需离莞出省的，须持有48小时内核酸检测阴性证明。此外，在大朗、松山湖、寮步、东坑、常平、黄江、大岭山7个镇区、园区开展全员核酸筛查。大朗暂停疫苗接种工作，重启时间另行通知。同时，12月14日开展全员免费核酸检测工作，按照村、社区工作人员指引到各临时检测点检测。
 
-塔利班当局声称，他们比以前更支持妇女，并要求美国和其他国家对数百万正遭受饥荒的阿富汗人展示出“怜悯和同情”。
+另据东莞市疫情防控指挥部办公室通告，12月15日将对全市部分地区常住人口、来莞人员开展全员核酸检测。截至14日12时，全市初步排查出密接者199人，初判次密接120人，均以隔离观察。
 
-【推文转报道，塔利班外交部长阿米尔·汗·穆塔基 (Amir Khan Muttaqi)告诉《美联社》说：“制裁阿富汗没有任何好处，美国应将阿富汗中央银行的约100亿美元储备金解冻。”在美国支持的政府倒台之前，4000万阿富汗人中，大约有72%的人生活在贫困线以下。根据联合国世界粮食计划署（World Food Programme）的数据，近2300万阿富汗人正经历着“严重的粮食不安全”。在塔利班统治下，许多七年级到十二年级的女孩被禁止上课。众多女公务员被迫呆在家里。塔利班官员以前曾表示，有必要为男性和女性建立单独的工作场所和学校。阿富汗妇女已经开始在家里抗议，而不是在街上抗议，因为她们会面临塔利班的暴力威胁。】
+秘翻新闻菜园子报道
 
+**7.收视率造假  收入1亿多 9000万元买收视率**
 
+[12月15日《人民日报》报导，一部剧卖了1个多亿，9000万元买收视率，更有媒体指出，中共国收视率造假形成黑色产业链，年收入40亿。](https://www.chinatimes.com/realtimenews/20211215001949-260409?chdtv)
 
-> The [#Taliban](https://twitter.com/hashtag/Taliban?src=hash&amp;ref_src=twsrc%5Etfw) claim to be more supportive of women than when they previously ruled [#Afghanistan](https://twitter.com/hashtag/Afghanistan?src=hash&amp;ref_src=twsrc%5Etfw), and are now asking the U.S. and other nations to show "​​mercy and compassion"[https://t.co/MW96UqsTvE](https://t.co/MW96UqsTvE)
-> — Real America's Voice (RAV) (@RealAmVoice) [December 15, 2021](https://twitter.com/RealAmVoice/status/1470920290624577537?ref_src=twsrc%5Etfw)
+[有业内人士披露，购买一集电视剧的收视率价格已飙升至30万至50万元，以此推算，制作假收视率数据的公司全年收入至少有40亿元。目前常见的造假方式仍然有两种：一是污染样本户，二是篡改资料。](https://www.chinatimes.com/realtimenews/20211215001949-260409?chdtv)
 
+[中国电视剧制作产业协会12日召开新闻发布会，直指收视率作假行为已经到了不得不治的时候。该协会呼吁司法部门介入调查，同时电视台在购买或播出剧时，不再以收视率为准则。将资料资产国有化，将互联网资料权利收到政府手中。同时，政府部门应当引导社会改变“唯收视率”的评价方式。](https://www.chinatimes.com/realtimenews/20211215001949-260409?chdtv)
 
+秘翻新闻明澈编辑报道
 
-**5.推特用户 查克·雷夫塞尼克 12月14日发推说：**
+**8.国家网信办依法约谈处罚新浪微博**
 
-彼得·麦卡洛 (Peter A. McCullough)在做客乔·罗根 (Joe Rogan)的播客节目时说：“如果得到早期治疗，85%的新冠死者可以免于不幸。但早期治疗却被打压，目的是推广疫苗。”
+[12月14日国家互联网信息办公室微信公众号消息，网信办负责人约谈新浪微博主要负责人、总编辑。表示，近期新浪微博及其账号屡次出现法律、法规禁止发布或者传输的信息，情节严重，依据法律法规，责令其立即整改，并严肃处理相关责任人。北京市互联网信息办公室对新浪微博运营主体北京微梦创科网络技术有限公司依法予以共计300万元罚款的行政处罚。据悉，2021年1月至11月，网信办指导北京市互联网信息办公室，对新浪微博实施44次处置处罚，多次予以顶格50万元罚款，共累计罚款1430万元。](https://www.epochtimes.com/gb/21/12/14/n13436457.htm)
 
+[消息一出，12月14日，微博股价一度重挫，最低报218港元，截至14日下午1点49分，微博股价暂报223港元，跌幅8.31%，创上市以来新低。](https://www.epochtimes.com/gb/21/12/14/n13436457.htm)
 
+秘翻新闻二丫、菜园子编辑报道
 
-> Dr. Peter McCullough said on Joe Rogan's podcast, 85% of deaths attributed to Covid-19 could have been prevented with early treatments. [https://t.co/UzRopRbJfm](https://t.co/UzRopRbJfm) [pic.twitter.com/N4wEXv3yqC](https://t.co/N4wEXv3yqC)
-> — Chuck Refusenick (@VikeKang\_) [December 13, 2021](https://twitter.com/VikeKang_/status/1470524212892745729?ref_src=twsrc%5Etfw)
+**9.中共国2020年净增人口204万　创59年新低**
 
+[家统计局近期发布的《中国统计年鉴2021》显示， 2020年相比2019年，中共国人口净增204万人。](https://www.hk01.com/%E5%8D%B3%E6%99%82%E4%B8%AD%E5%9C%8B/712171/%E4%B8%AD%E5%9C%8B2020%E5%B9%B4%E6%B7%A8%E5%A2%9E%E4%BA%BA%E5%8F%A3204%E8%90%AC-%E5%89%B559%E5%B9%B4%E6%96%B0%E4%BD%8E)
 
+[12月14日，《第一财经》根据国家统计局数据对1949年以来历年人口净增量梳理发现，2020年净增人口数量创下了1962年以来的新低。2016年中国全面二孩政策实施后，当年净增人口达到了906万人，随后几年，年净增人口不断减少，2017年至2020年分别为779万人、530万人、467万人、204万人。据第一财经统计，包括贵阳、河南等地公布的前三季出生人口数据、新生儿筛查或户政出生登记等数据，都出现了同比下降的情况，降幅均超过一成，延续下滑的态势。从发展趋势看，今年人口净增幅度可能继续走低。](https://www.hk01.com/%E5%8D%B3%E6%99%82%E4%B8%AD%E5%9C%8B/712171/%E4%B8%AD%E5%9C%8B2020%E5%B9%B4%E6%B7%A8%E5%A2%9E%E4%BA%BA%E5%8F%A3204%E8%90%AC-%E5%89%B559%E5%B9%B4%E6%96%B0%E4%BD%8E)
 
-**6.PureLotusHeart莲心不染 12月15日发推说：**
+[人口问题严峻下，中共官媒网站日前刊文要求中共党员响应生三胎，掀起热议，网友批判四起，该文后遭删除。](https://www.hk01.com/%E5%8D%B3%E6%99%82%E4%B8%AD%E5%9C%8B/712171/%E4%B8%AD%E5%9C%8B2020%E5%B9%B4%E6%B7%A8%E5%A2%9E%E4%BA%BA%E5%8F%A3204%E8%90%AC-%E5%89%B559%E5%B9%B4%E6%96%B0%E4%BD%8E)
 
-顶级科学家们在强迫人们接种中共病毒疫苗时，却忽略了以下重要的科学信息：
+秘翻新闻明澈编辑报道
 
-1.政府和科技巨头一直在无情地攻击言论自由和科学；2.全民疫苗接种是基于错误的前提；3.疫苗风险是真实信息；4.可能存在漏报疫苗导致的不良事件和死亡人数；5.疫苗安全评估存在严重缺陷。
+**10.江西一医疗器械厂突发大火 至少5死1伤**
 
+[综合媒体报道，12月14日，江西省南昌市经济技术开发区青岚大道费森尤斯卡比医疗器械有限公司发生火灾，已造成5死一伤。](https://www.163.com/dy/article/GR8BQH9M0552N372.html?f=post2020_dy_recommends)
 
+[网络上的视频显示，现场火势凶猛，黑色浓烟滚滚，直衝天际。据南昌市经济技术开发区通报，14日15时40分左右，该仓库发生火灾。截至14日晚9点22分，明火才被全部扑灭。](https://www.163.com/dy/article/GR8BQH9M0552N372.html?f=post2020_dy_recommends)
 
-> 顶级科学家们：强迫人们接种 COVID 疫苗忽略了重要的科学信息
-> ⚠️政府和科技巨头无情地攻击言论自由和科学
-> ⚠️全民疫苗接种是基于错误的前提
-> ⚠️讨论风险不是虚假信息
-> ⚠️可能漏报不良事件和死亡
-> ⚠️疫苗安全评估存在严重缺陷 [https://t.co/i1mv8J7atQ](https://t.co/i1mv8J7atQ)
-> — PureLotusHeart莲心不染 (@PureLotusHeart1) [December 14, 2021](https://twitter.com/PureLotusHeart1/status/1470876682324221958?ref_src=twsrc%5Etfw)
+[江西省应急厅12月15日的消息称，此次火灾已造成5死1伤。](https://www.163.com/dy/article/GR8BQH9M0552N372.html?f=post2020_dy_recommends)
 
+[据悉，发生火灾的费森尤斯卡比医疗器械有限公司属于外国法人独资的有限责任公司，注册资本为946.4万欧元，主要经营范围为生产、销售医疗器材等。事发工厂的员工大概有一两百人，规模在附近算比较大的。](https://www.163.com/dy/article/GR8BQH9M0552N372.html?f=post2020_dy_recommends)
 
-
-**7.前医院CEO 约翰·张伯伦12月13日发推说：**
-
-罗伯特马龙博士的公开信，呼吁不要给孩子接种新冠疫苗。请立即阅读和分享。
-
-公开信说：家长在让孩子们接种疫苗前，需要了解三个问题：
-
-1.    这是在将病毒基因注入你孩子的细胞中，该基因迫使你孩子的身体制造有毒的刺突蛋白，这些蛋白质通常会对儿童的重要器官造成永久性损伤，包括：他们的大脑和神经系统、心脏和血管、生殖系统，并导致他们的免疫系统发生根本性变化；最令人担心的是，这些损害一旦发生，就无法修复弥补。你无法修复大脑中的病变、心脏组织的疤痕以及被基因重置的免疫系统，而且对生殖系统造成的损害可能会影响家庭后代
-
-2.    mRNA疫苗这项新技术尚未经过充分测试，至少需要5年的测试和研究才能真正了解其风险，新药的危害和风险往往在多年后才会暴露出来，你希望自己的孩子参加这场人类历史上最冒险的医学实验吗？
-
-3.    你所听到的让孩子接种疫苗的理由都是谎言。孩子在感染新冠后获得的免疫力，对于拯救家人免于这场疾病至关重要。
-
-总而言之，考虑到疫苗的已知风险，给孩子接种疫苗没有任何好处。
-
-
-
-> This is directly from Dr. Robert Malone. [@RWMaloneMD](https://twitter.com/RWMaloneMD?ref_src=twsrc%5Etfw). It is imperative that you read and share. Especially if you have children and grandchildren. [pic.twitter.com/YtpFDOH7AJ](https://t.co/YtpFDOH7AJ)
-> — John Chamberlain, MHA, LFACHE (@misterchambo) [December 13, 2021](https://twitter.com/misterchambo/status/1470251142861017090?ref_src=twsrc%5Etfw)
-
-
-
-**8.印太新闻 – 关注中共威胁 12月15日发推说：**
-
-美国参议员汤姆科顿抨击拜登政府允许中共通过武力而非谈判的方式威胁台湾，在民主峰会上切断了台湾数字部长唐凤的视频，声称这是拜登政府向中共屈服示好的最新例子。
-
-【推文转《福克斯》报道，科顿说：“仅仅因为唐风展示的地图上的台湾和中共国的颜色不同，白宫就将其视频切断，这展现了拜登政府可悲的弱点。我一点也不相信这只是一个技术问题。我相信，这是总统和政府向北京屈服的又一例子。我们需要做的是与台湾站在一起，帮助巩固其自治权，并维持海峡两岸的现状。但是北京威胁台湾要通过武力而不是谈判来改变这种现状。】
-
-
-
-> Tom Cotton slams Biden for allowing [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) to threaten [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw) 'by force, not by negotiation'
-> 
-> The Arkansas senator said, 'This is an example of the president and the administration kowtowing to Beijing,'[https://t.co/FstVuKsTSs](https://t.co/FstVuKsTSs)
-> — Indo-Pacific News – Watching the CCP-China Threat (@IndoPac\_Info) [December 14, 2021](https://twitter.com/IndoPac_Info/status/1470823592967294978?ref_src=twsrc%5Etfw)
-
-
-
-**9．印太新闻 – 关注中共威胁 12月15日发推说：**
-
-澳大利亚的人权活动家、反共人士德鲁·帕夫洛 (Drew Pavlou)想刊登抗议北京冬奥会的广告，但却被当地的广告牌公司拒绝，因为他们怕惹恼中共。
-
-【推文转《台湾英文新闻》报道，帕夫洛与中共政权的异议人士巴丢草合作设计了一系列的抗议北京冬奥会的广告海报，并准备张贴在澳州布里斯班当地的广告牌上。他们联系了一家广告牌制造商量此事，但该厂商的代表说：“昆士兰州一家大型广告牌制造商的总经理在与所有广告牌公司的总经理举行会议后，得出结论说，该行业不值得为了帕夫洛的3000澳元广告费，而面临可能激怒中共政府的风险。因为该行业制作广告牌的大部分用品，包括钢材，都来自中共国。他们担心，如果刊登此类广告的信息传到中共国，将对他们的广告牌部件供应产生严重影响，而且他们的计算机系统也可能会遭到中共黑客的报复攻击。】
-
-
-
-> Audio reveals why activist [@DrewPavlou](https://twitter.com/DrewPavlou?ref_src=twsrc%5Etfw) is banned from posting anti-CCP billboards in Australia
-> 
-> Australian billboard companies refuse to post ads protesting Beijing 2022 Olympics for fear of angering China [https://t.co/fLmGMwQF7V](https://t.co/fLmGMwQF7V) [pic.twitter.com/zrgo6bhvfU](https://t.co/zrgo6bhvfU)
-> — Indo-Pacific News – Watching the CCP-China Threat (@IndoPac\_Info) [December 14, 2021](https://twitter.com/IndoPac_Info/status/1470785662647365632?ref_src=twsrc%5Etfw)
-
-
-
-**10.埃内斯坎特12月15日发推说：**
-
-非常感谢NBA的传奇人物卡里姆·阿卜杜勒-贾巴尔 (Kareem Abdul-Jabbar)的支持，让更多人了解中共的人权侵犯行为。希望这能鼓励其他运动员站出来发出正义之声！贾巴尔是个真正的领袖！
-
-
-
-> Huge thanks to [@NBA](https://twitter.com/NBA?ref_src=twsrc%5Etfw) legend [@kaj33](https://twitter.com/kaj33?ref_src=twsrc%5Etfw) for your support and bringing more awareness to all the human rights abuses in [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) 
-> 
-> Hoping this encourages other athletes to stand up for what is right.
-> 
-> You are a true leader [@kaj33](https://twitter.com/kaj33?ref_src=twsrc%5Etfw) [#FreeUyghurs](https://twitter.com/hashtag/FreeUyghurs?src=hash&amp;ref_src=twsrc%5Etfw) [#NoBeijing2022](https://twitter.com/hashtag/NoBeijing2022?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/jdjm0ZXCR1](https://t.co/jdjm0ZXCR1)
-> — Enes Kanter FREEDOM (@EnesFreedom) [December 14, 2021](https://twitter.com/EnesFreedom/status/1470788023185022991?ref_src=twsrc%5Etfw)
-
-
-
-**11.Disclose.tv 12月14日发推说：**
-
-美国11月的生产者价格指数（PPI）同比增长9.6%，远高于预期，是有记录以来的最大增幅。
-
-
-
-> JUST IN – U.S. producer price inflation jumps 9.6% year over year in November, much higher than expected and highest increase on record.
-> — Disclose.tv (@disclosetv) [December 14, 2021](https://twitter.com/disclosetv/status/1470749483835310085?ref_src=twsrc%5Etfw)
-
-
-
-**12.盖特官方12月14日在盖特发文：**
-
-盖特将推出自己的短视频版本，与Instagram Reels和TikTok竞争。
-
-【盖文转KnowTechie报道，盖特的新短视频功能，称为G-Vision，将于明年2月推出。盖特CEO杰森米勒说：“现在盖特是推特和脸书的市场竞争者，随着我们推出G-Vision，我们将是Instagram Reels和Facebook Stories的短视频竞争者。”】
-
-[https://gettr.com/post/pjlfs5173d](https://gettr.com/post/pjlfs5173d)
-
-**13.郭文贵先生12月14日在盖特发文：**
-
-郭文贵先生的最新单曲HCoin to The Moon已连续两周蝉联公告牌世界数字歌曲销量排行榜的榜首, 这不仅创造了郭先生所有单曲的个人最好成绩，也创造了非专业歌手在世界最权威音乐排行榜的最好成绩，更是又一次创造了中国人在世界乐坛前所未有的历史奇迹！再次感谢新中国联邦的全球战友们，我们用自己的行动向全世界证明我们团结灭共的力量和决心！[https://gettr.com/post/pjn8js5502](https://gettr.com/post/pjn8js5502)
-
-*以上社交媒体新闻由 巴拉克和二丫 联合编译报导*
+秘翻新闻明澈编辑报道
 
 发布:星星
 

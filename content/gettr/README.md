@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/16/2021 12:26 AM (UTC)`
+
+15/12/2021  On 6th Day of Launch, MV "Hcoin To the Moon" Hits iTunes <br/> No. 1 🥇on 18 Countries Top MV Charts !<br/>No.1🥇 on 16 Countries Rock MV Charts!<br/>No.1🥇 on 9 Countries Rock song Charts!<br/>No.1🥇on 6 countries Hip-pop/Rap song Charts!<br/>Miracle continues…….🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, USA, Taiwan, Australia, Canada, Singapore, New Zealand, Thailand, Cambodia, Laos, Hungary， Greece, Philippines, Malaysia, Fiji, Latvia, Macau, Finland!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1757964/<br/><br/>12月15号，MV版Hcoin To the Moon上线第6天位列iTunes<br/>18国热门MV榜首🥇！<br/>16国摇滚MV榜首🥇！<br/>9国摇滚歌曲榜首🥇！<br/>6国嘻哈歌曲榜首🥇！<br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港，美国，台湾，澳大利亚，加拿大，新加坡，新西兰, 泰国，柬埔寨，老挝，匈牙利，希腊，菲律宾， 马来西亚，斐济，拉脱维亚，澳门，芬兰的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏
+
+---
+
 `@miles 12/16/2021 12:13 AM (UTC)`
 
 12/15/2021 Miles Guo: What does the Tibet Independence Act mean? Tibet is the grant barrier of Western China, and it also has the richest water and forest resources; Tibet’s strategic significance is no less than that of Taiwan; once Tibet became independent, Communist China would be over<br/><br/>12/15/2021 文贵直播：《西藏独立法案》意味着什么？西藏是中国西部的大屏障、也拥有着中国最丰富的水资源和森林资源，其战略地位不亚于台湾；一旦西藏独立，中共国就彻底完了
@@ -155,13 +161,6 @@ We conducted a preliminary survey about the effects of artemisinin supplements a
 
 12/12/2021 Miles Guo: What will happen if Xi Jinping is assassinated? That will be so tragic for China. Assasination of Xi (Jinping) will not help to take down the CCP, also at least 50% of the Chinese people being heavily brainwashed may “respect” him as a national hero. We wish Xi could survive till the day the Chinese Communist Party is taken down<br/><br/>12/12/2021 文贵直播：现在如果习近平被暗杀会怎么样？那将是中国的悲剧，习被暗杀非但不能灭了邪恶的共产党，至少中国会有一半儿被洗脑的人尊他为民族英雄，我们希望习活下去，直到中共被消灭<br/>
 ![img](https://media.gettr.com/group49/getter/2021/12/13/22/69dffb65-6a03-af6d-0d6c-8f90ad2a8d8a/out.jpg)
-
----
-
-`@miles 12/13/2021 10:19 PM (UTC)`
-
-12/12/2021 Miles Guo: If it weren't for crooks like Zhang Xueliang, there would not be nearly a century of bloodshed and suffering of the Chinese people inflicted by the CCP, and the Chinese people would definitely enjoy a much better democracy than the current democracy in Taiwan. Everything the CCP boasts is bad, and everything the CCP hates is good. Only by eliminating falsehoods and preserving the truths can the society have a secured and healthy future.<br/><br/>12/12/2021 文贵直播：如果没有张学良这样的骗子，就没有中共对中国人近百年的杀戮与荼毒，中国人的民主一定会比现在的台湾好；中共夸的都是坏的，中共恨的都是好的；只有去伪存真才能让社会有安全、健康和未来<br/>
-![img](https://media.gettr.com/group16/getter/2021/12/13/22/2d07bca8-1761-c4b2-2bd2-27d6707fea66/out.jpg)
 
 ---
 
