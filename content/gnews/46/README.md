@@ -2,21 +2,17 @@
 ---
 
 
-## 关于投资赌牌和数字银行的资格
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1757827/)
+## 【文贵先生大直播PPT】中共缺钱了！中小银行催债力度前所未有
+` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1757953/)
 
-文编：东京樱花团/樱花传媒
+撰稿：墙内某神秘战友
+美工：Bobby （文俊）
 
-视频:东京樱花团/中文小视频组
+【2021年12月15日文贵先生大直播PPT：中共缺钱了！中小银行催债力度前所未有】
+![](https://assets.gnews.org/wp-content/uploads/2021/12/42-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/43-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/44-7.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/45-6.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/46-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/111-2-5.jpg)
+* * *
 
-12月3日，郭文贵先生在GTV大直播指出：
-
-投资赌牌和数字银行的战友无论以个人、基金的名义都可以，但需要符合无犯罪纪录，资金来源属实，并且是法治基金长期或大额捐款者、GTV的大额投资者的条件。郭先生强调了，不仅要让符合条件的战友拥有一定程度以上的投资，还要让被选择出的战友加入到董事会的重要性。
-
-编辑：东京樱花团/墨然
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.jpg)
-
+编辑/发稿：云起时
 
  
 

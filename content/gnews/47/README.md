@@ -2,28 +2,21 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月15日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1757784/)
+## 中共和俄罗斯在三个方面频繁交往
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1757833/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-3.jpg)
+文编：东京樱花团/樱花传媒
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-1-6.png)
-文章仅代表作者本人观点，与Gnews无关
+视频:东京樱花团/中文小视频组
 
-视频参看：[2021.12.15早GTV新闻访谈](https://gtv.org/video/id=61b9ed337882000d5100ce0b)
+12月3日，郭文贵先生在GTV大直播指出：
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+虽然中俄在利用美国不可能同时应对两场战争，而试图拿下台湾及乌克兰方面，其次在疫苗的问题，以及准备面对战争和世界经济崩溃的问题上频繁交往，但中共和俄罗斯的关系却仍然很微妙。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/calendar.jpeg)
+编辑：东京樱花团/墨然
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.jpg)
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
