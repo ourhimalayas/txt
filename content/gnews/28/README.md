@@ -2,43 +2,26 @@
 ---
 
 
-## 德国政党领导人没接种新冠疫苗但支持疫苗强制令
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1759384/)
+## 中日财经爆：中共国房地产不良贷款率下半年会翻倍
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1759417/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-788.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.lawzsw.com%2Ftupian%2F271613985244902.jpg&amp;imgrefurl=https%3A%2F%2Fwww.lawzsw.com%2Fwenda%2F8948.html&amp;tbnid=Og8TMB8FjrG5iM&amp;vet=12ahUKEwiQroHCref0AhVIUJQKHZ0GBgAQMygUegUIARDAAQ..i&amp;docid=nlLCDvAku2wWFM&amp;w=640&amp;h=400&amp;itg=1&amp;q=%E4%B8%8D%E8%89%AF%E8%B4%B7%E6%AC%BE&amp;ved=2ahUKEwiQroHCref0AhVIUJQKHZ0GBgAQMygUegUIARDAAQ)
+标普全球评级12月15日 表示，由于下半年中共国房地产行业的困境加剧，到2021年底，中共国银行业的房地产不良贷款率可能会比今年年中增长逾一倍。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Olaf-Scholz-I-am-also-the-chancellor-of-the-unvaccinated.jpg)
+标普周三发布的一份研究报告称，中共国银行业的房地产不良贷款率在2021年年中为2.5%，2020年底为2%，到2021年底可能升至5.5%。
 
+标普表示，房地产行业面临压力，估计有大约三分之一的开发商陷入财务困境，这也将使2021年的整体不良贷款率提高约20个基点，可能会削弱银行的盈利能力。具有积极风险偏好或高度地理集中的银行持有的抵押品缓冲可能较为薄弱，因此会承受更大压力。
 
- 
-图片来源:  happynewbaby.com
+中共国银保监会多次警告说，不良资产对银行的压力一直存在，9月末银行业不良贷款余额为3.6万亿元。
 
+“关键的政策方向保持不变，”标普表示，并预计2022年房地产开发贷款零增长，2023年和2024年将有小幅增长。
 
-#### 整理/编辑 ：小红帽
+消息来源：[标普警告中国银行业下半年房地产不良贷款率可能翻番](https://cn.reuters.com/article/sp-china-banking-rea-npl-1215-idCNKBS2IU105?il=0)
 
-**根据Summit新闻12月15日报道，德国新任左翼领导人奥拉夫·肖尔茨（Olaf Scholz）宣布自己是 “未接种新冠疫苗者的领导人”，尽管他主张强制接种新冠疫苗，并称反疫苗护照的抗议者 “令人厌恶”。**
-
-在接受《图片报》采访时，肖尔茨断言，德国在接种新冠疫苗和未接种新冠疫苗之间没有分裂，同时宣称自己也代表那些选择不接种新冠疫苗的人。
-
-“德国没有分裂！大多数公民已经接种了新冠疫苗。在那些没有接种新冠疫苗的人中，只有极少数人认为他们必须用火炬游行来表明他们对新冠疫苗接种的抵抗。”肖尔茨认为。
-
-“我想把这个国家团结起来。因此，我也是未接种新冠疫苗者的领导人，”肖尔茨表示。“我想让他们相信接种新冠疫苗的意义。但是，有不同的意见并不意味着分裂。我们也可以争论。我相信，绝大多数没有接种过新冠疫苗的人都和我一样觉得点燃火炬的集会很恶心”。
-
-**虽然宣称自己也代表未接种新冠疫苗的人，但肖尔茨却赞成让全体民众强制接种新冠疫苗，这意味着他的声明是一个调侃的矛盾体。**
-
-“作为一名议员，我将投票支持强制接种新冠疫苗，因为这在法律上是允许的，在道德上也是正确的，”肖尔茨此前表示。
-
-新闻来源：[German Leader Says He’s “Chancellor of the Unvaccinated” Despite Supporting Mandatory Vaccinations – Summit News](https://summit.news/2021/12/15/german-leader-says-hes-chancellor-of-the-unvaccinated-despite-supporting-mandatory-vaccinations/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

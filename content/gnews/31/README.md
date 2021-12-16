@@ -2,31 +2,20 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月15日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1759349/)
+## 疫苗是中共与黑暗势力的种族大屠杀
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1759406/)
 
-作者：香草山翻译部
+**我不觉得这个疫苗护照的事情(是他们的目的)，种族这种残杀是他(们)的目的。而且这种黑暗的力量和共产党绝对是勾结在一起的。**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-3.jpg)
+**【郭先生直播摘要】**** 2021.12.3 ****疫苗是****CCP****与黑暗势力的种族大屠杀**
 
+**郭先生：**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1215text-SC.png)
-校对：Stay文苑
+很多现在这个把疫苗护照这个事情说的很大。 我不觉得疫苗护照这个事情， 现在是大家有确实的证据就是疫苗护照是他们的目的。 我不觉得， 我觉得杀人是它的目的， 种族这种残杀是它的目的。 更重要的事情， 我认为整个是一个医疗垄断， 也就是一个人类上的所谓的他们认为的优胜劣汰。 变成了一个什么， 我喜欢与不喜欢有用没有用， 就变成了两极的社会， 这是一次人类绝对的大屠杀。
 
-编辑：Stay文苑
+而且这种黑暗的力量和共产党绝对是勾结在一起的， 所以说我不觉得什么数字货币数字银行数字护照， 然后疫苗护照跟他们有什么联系。 我觉得这个有点过度了， 首先我是没有这个情报没有这个证据， 所以我就很少谈这个话题。 我觉得大家现在没掌握绝对的情报证据之前也少谈， 因为这会把大家掉坑里去。
 
-发稿：Stay文苑
-
-视频参看：[12.15  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61ba96077882000d5101a660)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/calendar.jpeg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+视频剪辑：北方信使 |听写：雨山溪桥客 | 翻译：中年少女 | 校对：烟波浩淼 |视频制作+字幕：信正 | 编辑&发布：断播
 
  
 

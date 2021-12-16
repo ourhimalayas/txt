@@ -2,45 +2,31 @@
 ---
 
 
-## 蓬佩奥怒斥国际奥委会和商业巨头支持中共举办冬奥会
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1759269/)
+## GTV新闻访谈简报|2021年12月15日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1759349/)
 
-**【简评：】***蓬佩奥先生在任期的最后一天，敲定了关于中共犯下反人类罪和“对以穆斯林为主的维吾尔族进行种族灭绝”的认定。这一认定不可逆转地将共产党扔进了历史的垃圾箱。这次定罪意味着全世界都可以合法的对共产党进行惩罚、遏制、消灭。此后，蓬佩奥先生在多个场合悉数了中共的罪恶，并用希特勒作比喻CCP，呼吁全世界和运动员对2022年北京冬奥会（种族灭绝奥运会）进行全面抵制。还有几十天的时间，让我们拭目以待，看看此次种族灭绝奥运会能进行到什么程度。*
+作者：香草山翻译部
 
-据《新闻大全》记者Fran Beyer ，2021年12月12日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-784-e1639622448599.png)2021 年10月12日，美国前国务卿蓬佩奥在以色列耶路撒冷举行的《耶路撒冷邮报》年度会议上发表讲话。
-图片来源：Amir Levy/Getty Images
-**国际奥委会和一些全球商业巨头支持中共举办2022 年冬季奥运会，对这一行为，前国务卿迈克·蓬佩奥 (Mike Pompeo)表示了愤怒并斥责。**
-
-蓬佩奥在接受福克斯新闻(Fox News)《周日早间未来》(Sunday Morning Futures)采访时表示，这是因为他们（国际奥委会）“不愿挑战（中共）”而发出的一个“毁灭性声明”。
-
-他说:“你将会看到有美国的大公司赞助运动员和此次奥运会，支持一个在中国西部（新疆）拘留100万人的中共政权”。
-
-“我们教导我们的孩子、我们的年轻人、这些才华横溢的运动员畅所欲言、自由发声，现在他们要去中国。”他说，“但是，如果他们其中一个人说‘自由西藏’或‘我支持台湾’或类似‘对香港人民表示支持’的言语，他们可能不会获得入境签证。”
-
-蓬佩奥表示，“如果CCP认为他们的言论威胁到中共国的国家安全，他们可能会因此被困在中共国”。
-
-蓬佩奥还谴责了那些支持CCP举办此次冬奥会的美国公司。
-
-**他说:“这些美国公司需要明白，他们是在支持对手。他们正在向一个腐败的政权提供资源和资金，而这个政权的全部意图是改变每个美国人的生活方式。我们需要在各个方面挑战中国共产党”。**
-
-他补充道：“这是美利坚合众国面临的严峻挑战，我们都需要认真对待，而特朗普政府是认真的，其在外交、经济和军事等各个方面都与中共对抗。”
-
-原文连接：[https://www.newsmax.com/newsfront/pompeo-ioc-china/2021/12/12/id/1048338/](https://www.newsmax.com/newsfront/pompeo-ioc-china/2021/12/12/id/1048338/)
-
-翻译：洛杉矶盘古农场 – 河马甩尾(Yi)巴
-
-校对：洛杉矶盘古农场–Mike Li
-
-评论：洛杉矶盘古农场 – 河马甩尾(Yi)巴
-
-编辑：洛杉矶盘古农场 – 柯镇恶
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-3.jpg)
 
 
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1215text-SC.png)
+校对：Stay文苑
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+视频参看：[12.15  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61ba96077882000d5101a660)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/calendar.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
  
 
