@@ -2,34 +2,22 @@
 ---
 
 
-## 澳洲Digicel Telstra 的交易再次失败
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1760150/)
+## 美国新法案规定因未接种疫苗而被开除的军人仍会获得荣誉退伍
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1760264/)
 
-撰稿：云彩
-视频来自网络
-亿美元资助澳洲通讯Telstra 收购一家主要太平洋电信公司Digicel Pacific的交易——以阻止中国获得它——可能已经接近失败。
+#### 翻译/撰稿：zzballack
 
-Digicel Pacific 为巴布亚新几内亚、斐济、瑙鲁、萨摩亚、汤加和瓦努阿图等国家提供移动连接和互联网数据服务。它在太平洋地区占据主导地位，是所列国家中排名第一的供应商，但斐济在市场上排名第二。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-3-6.jpg)图片来源：美联社
+据英国《每日邮报》（Daily Mail）12月16日报道，美国参议院12月15日以压倒性的优势通过了《国防授权法案》 (National Defense Authorization Act)。该法案的其中一项条款规定，禁止五角大楼以非荣誉的方式开除那些选择不接种新冠疫苗的军人，这意味着这些军人也将有资格获得退伍军人的福利。
 
-有争议的因素之一是成本。在[10 月 25](https://cdn-api.markitdigital.com/apiman-gateway/ASX/asx-research/1.0/file/2924-02440201-3A579039?access_token=83ff96335c2d45a094df02a206a39ff4)日[向证券交易所发布的公告中](https://cdn-api.markitdigital.com/apiman-gateway/ASX/asx-research/1.0/file/2924-02440201-3A579039?access_token=83ff96335c2d45a094df02a206a39ff4)，Telstra 透露，它仅向 16 亿美元（22.4 亿美元）的总收购价贡献了 2.7 亿美元（近 3.8 亿美元），但将拥有该公司 100% 的普通股。
+这项修正案的发起人、前美国陆军医生、参议员罗杰·马绍尔 (Roger Marshall)在法案通过后对此举表示赞赏。 马绍尔说：“该法案将确保军人不会因为选择不接种疫苗而被不光彩地开除。不光彩的退役会将我们的英雄视为重刑犯。但是，我们的美国英雄应该得到更好的待遇。我支持疫苗，但我也支持人们捍卫自身自由，以及仔细权衡是否接种新冠疫苗的决定。”
 
-联邦政府下的澳大利亚出口金融管理部门通过低成本的无追索权贷款和类似股票的证券将剩余的 13.3 亿美元付诸实施，使 Telstra 的商业风险降至最低。
+五角大楼今年8月宣布，美军所有军种都需要接种新冠疫苗，每个部门都有自己的接种截止日期。截至上周，五角大楼发言人约翰·柯比（John Kirby）说，大约96.4%的现役人员至少接种了一剂疫苗。
 
-不过，该交易已经重新启动快速交易。
+国会中的共和党人一直在推动五角大楼撤销其疫苗强制令，他们认为这可能会削弱军队实力。本周，27名空军现役人员因拒绝接种疫苗而被空军开除，官员们认为这是第一批因不接种疫苗而被开除的军人。
 
-点评：这笔交易的战略意义远大于商业意义。只是笔者看到该交易动用了纳税人19亿美元，Telstra仅用2.7亿美元但拥有Digicel Pacific 公司100%的股份。即使是在法治民主国家，政府首先想到也是其政治集团的利益。将来，去中心化，小政府是大趋势。
-
-编辑：云彩
-
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
-
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-
-[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-
-参考资料:
-
-[澳洲通讯公司拟收购Digicel Pacific](https://www.abc.net.au/news/2021-12-14/digicel-deal-off-again-on-again-foi-documents-reveal/100697440)
+新闻来源：[Troops who refuse vaccine must be given an honorable discharge and will get access to veterans’ benefits according to new $768B defense bill](https://www.dailymail.co.uk/news/article-10314041/Senate-passes-bill-prevents-unvaccinated-troops-dishonorable-discharges.html)
 
  
 

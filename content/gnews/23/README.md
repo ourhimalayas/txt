@@ -2,49 +2,19 @@
 ---
 
 
-## 法国国民议会议员团抵台访问
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1759869/)
+## 沃顿学院、美联储和美财政部全盘被单伟健打通，是王岐山绝对强大的海外蓝金黄势力
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1759978/)
 
-作者：纽约香草山医疗部 – 云豹
+文编：东京樱花团/樱花传媒
+视频:东京樱花团/中文小视频组
 
+12月8日，郭文贵先生在GTV大直播指出：
 
+单伟建所有的经历全是中共布下的大局，直接领导就是王岐山，是他绝对忠实的马仔。单伟建的基金号称掌管450亿美元，曾经狂言：“中国在美国的投资选超美国在中国的投资，参与中国市场是美国别无选择，美国根本没资格挑战中国。”沃顿商学院、美联储、美财政部，全盘被蓝金黄，这些人力量太大，根本瞧不起习。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-12月15日，法国国民议会前议长、现任友台小组主席戴扈杰，率跨党派议员团共6人抵达台湾进行访问。
-
-此次法国国民议会议员访问团在台期间，预计将与蔡英文总统会面。 并将与政府的一些重要部门进行会谈，交流台法之间以及台湾与欧洲之间经济和文化合作的议题。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.3-4.jpg)
-今年10月，法国参议院友台小组主席李察刚刚率领议员团访问台湾，此次法国国民议会又派出了跨党派议员团访台，创下了欧洲单一国家国会两院议员团短时间内先后访台的纪录。 显示台法交流正持续增温、深化。
-
-参考链接：
-[法前議長戴扈傑率團抵台 國會兩院3個月內先後來訪創紀錄\[影\]](https://www.cna.com.tw/news/firstnews/202112150037.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
-
-总编/编辑：文特
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+*编辑：东京樱花团/墨然
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
