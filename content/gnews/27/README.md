@@ -2,40 +2,137 @@
 ---
 
 
-## 文贵爆料 12.15：剑锋直指“七寸”——美两党议员支持西藏独立
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1758425/)
+## 俄罗斯特使向中共通报的四项内容吓傻了共产党
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1758521/)
 
-撰稿：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-782.png)
-剑锋直指“七寸”——美两党议员支持西藏独立
+[https://gtv.org/video/id=61b9d7cea68b4f4b28e8b3b3](https://gtv.org/video/id=61b9d7cea68b4f4b28e8b3b3)
 
-中共的魔手染红了西藏这传说中的天堂圣地，染红了那银妆素裹的山脉和晶莹透澈的湖泊，然而，善恶之报，如影随形。郭文贵先生在12月15日的大直播中说，美国两党议员支持西藏独立，这是给予中共的封喉一剑，它会打开中共的西部大门，那将是它的噩梦。
+**郭文贵**
+**Miles Guo**
 
-西藏有三百五十万人，官方说是三百五十万，在联合国里边认可的是三百七十五万。我是看过安全部的数据的，2014年时是四百二十万。西藏是汉人人口最少的地方，就占了不到百分之五。新疆已经从过去的百分之零点五占到了百分之三十到四十。中共对新疆的渗透是很夸张的，就是用各种政策朝新疆移民。
+俄罗斯派去的特使
+The special envoy sent by Russia
 
-那么西藏的人口看出来大概百分之九十几都是佛教徒，他不是百分之百啊，它百分之九十几都是佛教啊。那么这西藏最重要的事情别忘了全亚洲的百分之八十六，甚至到百分之九十的水来自于喜马拉雅，来自于我们追求的喜马拉雅目标的水和阳光。
+非常明确地所谓的在官方通报了
+made it very clear that
 
-为什么亚洲的水百分之八十几来自喜马拉雅？后来我知道这个喜马拉雅原来不仅是水的源之地，喜马拉雅任何地壳的变动，地球都会出现周期性的，不是坐地日行八万里，也可能是八十万里，也可能是八里，直接就完蛋了。而且所有历史上人类的不要说万年的人类啊，几十万年、百万年、亿万年的地球就有喜马拉。它是有很重要的故事，这就是为什么美国什么影片2022最后一分钟是拯救人类，是在喜马拉雅山最后登上去了。喜马拉雅就是人类的诺亚方舟，是神秘的力量。
+和俄美交流之后
+after the official notification of the exchange between Russia and the United States,
 
-你不要忘了一个最可怕就是喜马拉雅上万个山脉，它解决了整个亚洲，亚洲占全世界的GDP将近百分之三十，美国占了世界百分之五十多几个。美国和亚洲已经占了百分之八十几的GDP了。那么你一旦亚洲要没有了这个喜马拉雅一下就完了。最重要的是整个中国所有的战争来自于北部，北部就是俄罗斯人，中国的西部对中国没有任何危害，它跨不过来。
+会谈之后, 这次私下里交谈告诉了中方
+they told the Chinese officials in a private conversation after the meeting with US.
 
-喜马拉雅南部是印度，而西部是中国整个半个国家的大屏障。中国北边的俄罗斯、北朝鲜、韩国、印度、日本这些国家哪个不想收拾你，是吧？所以共产党就搞明白了，我一定把台湾弄过来啊。所以说这种情况下，一旦西藏这个大门被拿下，共产党完了。西藏要独立了，整个中国的水没了，和中国的所蕴藏的最多的木头的地方没了，而且是居高临下，因为西藏是站着的，是吧？中国大陆是个盆地，都不用发导弹，自由弧线都给你打到北京去了，撂到上海去了，是吧？打上去直接就下来了。
+任何情况下你打台湾我不会跟你一起的
+that “under any circumstances, if you fight against Taiwan, I will not be with you”
 
-这是西藏独立法，不是要自治啊，别搞错了啊，人家要求是支持西藏独立啊，那叫独立法。中国共产党和美国之间勾兑的，就是上海公报，支持你一个中国啊，这已经根本就别提了，没有这一说了啊。最夸张的是直击要害，西藏的战略位置绝不亚于台湾。西藏没了，绝对中国就被困在一个尿盆里。这不是开半点玩笑的啊。这是很可怕的战略位置，新疆一定要求独立。俄罗斯、白俄罗斯所有这些国家都是中国的威胁。连北朝鲜都不会再寂寞了，包括这个整个朝鲜半岛，特别是韩国这些国家一定给你掰扯。在整个中国就是四分之三的领域已经成为了危险之地，剩下的台湾你拿走你拿不走啊，这是绝对致命的。
+原来说你弄我吆喝啊，甚至给你技术上支持
+They originally were to let China do what they want and Russia just roaring in the back, and even provide them with technological support
 
-美国这次立法之快、通过之快，两党之协调一直直击之要害。兄弟姐妹们，我可以告诉你，任何懂得国际、政治、国际。地缘政治和地缘军事的人你都知道，绝对这件事情对中国共产党是噩耗中的噩耗啊。你还在相信美国这个国家跟中共还是什么我们要两国共同竞争、共同发展吗？这是插刀子，这是直接在你身子、在你家门口架了一个导弹，这真的就像一个巨人，站的要撒尿一样，直接就尿死你了。这一点反应的机会都没有，因为你跟我差距太近了。致命啊！
+这个对它是一个致命的（打击）
+This is a fatal strike to the CCP,
 
-然后你看到西藏、新疆一定要独立，新疆独立后，就支持香港独立，台湾你绝对拿不走。然后俄罗斯在北边来了，不是黑瞎子岛的问题了啊。北朝鲜一定说把白头山、全给我，我爷爷在这儿生了啊，我爹是从这儿生，我也从这儿。
+说我不会的，打台湾我不参与
+saying that I won’t participate if you war on Taiwan
 
-我听到北京所有的高官在两个月前，听到报告说美国要支持藏独的时候，这些人说，如果美国要真要是提一提这个立法方案，中国只有俩选择，第一直接跟美国开战，第二个共产党就准备好了，整个中国就走上一个黑夜，长长的黑夜。
+第二句话很可怕
+The second sentence is fearful,
 
-这个支持的问题，三百五十万也好，四百二十万也好，特别是达赖喇嘛在印度的支持者，即使他现在是将近四十万人在那儿。这对西藏给了一个法理上的独立。连达赖喇嘛都不要求独立，是自制。现在是给了整个西藏的合法的独立。而且我相信在这件事儿上，西藏的人一定会和新疆、北朝鲜、和台湾形成巨大的互动，互动最后会影响到广东。
+所有中苏之间签署的油、气的协议，你们必须执行
+saying that you must implement all the oil and gas agreements signed between Chi-na and the Soviet Union
 
-郭先生说，我可以告诉你们，没有新中国人，没有爆料革命不可能有新疆和西藏独立团。七哥在2017年我就说过，将会有一系列的法案出来，包括香港，全世界只有咱敢说，对西藏不仅如此，对新疆不仅如此、对香港也不仅如此，对台湾也不仅如此，对这个地方最重要的接下来是什么？是支持，得让他们有合法的武器。他们没钱，他吃啥、喝啥呀，要让他们有合法的金融系统，包括数字货币。最关键的，这些人出来以后，他们的子孙后代要有人救。最关键的事情是台湾、香港、新疆、西藏要形成联合体，联合作战啊。
+言外之意啥意思呀
+What does it implicate?
 
-参考链接：
+你该给我的钱、买我的油、买我的气，一点儿也不能少
+The money that you are supposed to give me and the oil and gas you are supposed to buy from us cannot be a bit less
 
-[2021年12月15日 文贵大直播](https://gettr.com/streaming/pjqagc144c)
+你少了，反过来我不是不支持你，我就是打你了
+If you are missing a bit, on the other hand, it’s not that I don’t support you, but to fight against you
+
+我就跟美国人站在一起去了
+and I would stand by the American side
+
+这对习来讲是简直是巨大的羞辱
+This is a huge shame to Xi
+
+（中共之前的战略）它是联俄抗美，联俄收台
+It (the CCP’s previous strategy) was to unite Russia and to be against the United States and to reclaim Taiwan
+
+这个战略观是整个过去十几年世界局势变化的一切根本的原因
+This strategic view is the fundamental reason for all changes in the world situation over the past ten years
+
+这已经完了
+All these are over
+
+第三条是更让他接受不了的
+The third is even more unacceptable to Xi
+
+俄国和印度、北朝鲜、巴基斯坦、伊朗将形成一个新的联盟关系
+Russia and India, North Korea, Pakistan, and Iran will form a new alliance relation-ship
+
+你看看就没有共产党，而且明确了就没邀请你进去
+You see, there is no Communist Party, and clearly, it has not been invited to join them
+
+什么概念？
+What dose it mean?
+
+这几个人要联合起来跟美国讲数（谈判）, 咱们不打，咱交易
+These individuals want to be united and to negotiate with the United States that they don’t want to fight but a deal
+
+特别是俄罗斯反对中国在阿富汗干的事情
+Especially Russia opposes what China is doing in Afghanistan
+
+很明确，说你在阿富汗这事干得不行
+It’s clear that the CCP didn’t do it well in Afghanistan
+
+阿富汗现在死太多人了
+Too many people have died in Afghanistan now
+
+对我俄罗斯也不利呀
+It’s unfavorable to Russia
+
+阿富汗乱，车臣的回民就给它搞在一起
+The chaos in Afghanistan, the Muslim people in Chechnya would bring it together
+
+所谓车臣恐怖分子就会再次崛起
+The so-called Chechen terrorists will rise again
+
+这是很夸张的
+This is very overstressed
+
+还有一个就是现在你跟美国和西方这种挑战什么都可以
+Another thing is that now you can challenge anything with the United States and the West
+
+但是中国内部
+But insider China
+
+俄罗斯就说了你的人权和你的整个企业经济情况让我们很失望
+The Russia said that the Chinese human rights and their entire business economic situation have disappointed them
+
+言外之意就是你再给我钱，你给不起了
+The implication is that the CCP needs to give Russia money again, but the CCP may not have enough money anymore
+
+**原视频链接:** [https://gettr.com/post/pjjifl68f6](https://gettr.com/post/pjjifl68f6)
+
+Date: 12/13/2021
+原视频标题: 俄罗斯特使向中共通报的四项内容吓傻了共产党
+The Communist Party Has Been Shocked by The Four Contents That The Russian Special Envoy Noticed to The CCP
+
+原视频日期：2021/12/12
+原视频链接: https://gettr.com/post/pjjifl68f6
+任务编号：3220
+视频时间段 : 0:00-2:17
+
+英听校 : 洛杉矶盘古农场 – 郭班之樱
+翻译 : 洛杉矶盘古农场 – 郭班之樱
+翻译终校 : 洛杉矶盘古农场 – Mike Li
+字幕+视频制作 : 洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场- 银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

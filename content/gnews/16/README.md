@@ -2,55 +2,35 @@
 ---
 
 
-## 灭共者：地球是我们的一个支点
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1758596/)
+## 2021/12/14 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1758674/)
 
-**出品：纽约香草山设计部**
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
-
-
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-image0-2.jpg)Our prospect is not Earth bound, rather, it is beyond Earth. Our aim is to fly higher and farther, using Earth as the fulcrum. We will be the first community of people to be able to travel to outer space legally and safely, to enjoy and to explore the universe. 
-— Mr. Miles Guo, GTV livecast on Dec. 5, 2021![我们真正的视野不在地球上，是在地球之外，地球是我们的一个支点，我们想走得更高、更远！我们将是最早合法地、安全地飞向外星空去旅游、去享受、去探索宇宙的新族类。 
-— 2021年12月5日郭文贵先生GTV直播](https://assets.gnews.org/wp-content/uploads/2021/12/2-image1-1.jpg)我们真正的视野不在地球上，是在地球之外，地球是我们的一个支点，我们想走得更高、更远！我们将是最早合法地、安全地飞向外星空去旅游、去享受、去探索宇宙的新族类。 
-— 2021年12月5日郭文贵先生GTV直播![](https://assets.gnews.org/wp-content/uploads/2021/12/3-20211214-04.png)Among all G-Series products or resources, GTV is the king, and it will always be. 
-— Mr. Miles Guo, GTV livecast on Dec. 5, 2021![](https://assets.gnews.org/wp-content/uploads/2021/12/4-20211214__1.png)到现在所有的G系列资源里边，GTV是王，永远都是王。
-— 2021年12月5日郭文贵先生GTV直播![](https://assets.gnews.org/wp-content/uploads/2021/12/5-20211214-11.png)The NFSC deserves the greatest credit for the many countries’ boycott of the Beijing Winter Olympics. The CCP is utterly bankrupt internationally due to the boycott, in terms of individual political credibility and national credibility.
-— Mr. Miles Guo, GTV livecast on Dec. 8, 2021![](https://assets.gnews.org/wp-content/uploads/2021/12/6-20211214-09.png)冬奥会被灭，新中国联邦是独一无二的最大的功劳。中共冬奥会在国际上，个人政治和国家信用已经彻底破产。 
-— 2021年12月8日郭文贵先生GTV直播![](https://assets.gnews.org/wp-content/uploads/2021/12/7-20211214-12.png)We are here to tell all that the CCP has prepared the biggest “coffin” for the world, that is the coronavirus and the vaccine. The specter of communism is murdering all mankind. 
-— Mr. Miles Guo, GTV livecast on Dec. 8, 2021![](https://assets.gnews.org/wp-content/uploads/2021/12/8-20211214-07.png)我们就是要告诉全世界，共产党给世界准备了最大的棺材就是冠状病毒和疫苗，共产主义正在杀害全人类。 
-— 2021年12月8日郭文贵先生GTV直播
+1. 12月12日，福建莆田。市民拍到一位妈妈带着孩子连续几个月都住在地下通道。
+2. 12月10日，湖南衡阳。男孩离家出走近一个月，捡菜叶住桥洞度日。
+3. 12月9日，广东深圳。男子购物后吐槽深圳物价太贵，一兜青菜要了90块！
+4. 12月10日，上海一公交车司机疑似对行驶的车辆失去控制，撞倒过马路的多名行人。
+5. 12月13日，外卖小哥在送餐途中突然倒地抽搐。
+6. 12月10日，女子在做指甲时，突发不适，抽搐倒地。
+7. 12月10日，黑龙江齐齐哈尔市。一名男子突发疾病倒在马路中间。
+8. 12月9日，贵州兴义。路边卖糖葫芦的摊主突发疾病，昏厥落水。
+9. 12月9日，贵州遵义。男子突发疾病倒在车流中，全身抽搐，口吐白沫。
+10. 12月8日，四川巴中。大妈给家人送饭途中，突然倒地身亡。
+11. 12月7日，陕西西安，一乘客上出租车后突发疾病昏厥。
+12. 12月7日，安徽六安。老人在公交车上突发疾病，口吐鲜血，昏迷不醒。
+13. 12月5日，湖北武汉。乘客突发疾病，全身抽搐，口吐鲜血。
+14. 12月5日，陕西西安。乘客突发疾病，昏厥倒地。
 
 
-**编辑/发稿：小鹿**
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-2.png)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

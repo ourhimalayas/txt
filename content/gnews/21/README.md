@@ -2,132 +2,49 @@
 ---
 
 
-## 俄罗斯特使向中共通报的四项内容吓傻了共产党
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1758521/)
+## 呼格吉勒图案平反，中共依旧党在法上
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1758585/)
 
-[https://gtv.org/video/id=61b9d7cea68b4f4b28e8b3b3](https://gtv.org/video/id=61b9d7cea68b4f4b28e8b3b3)
+【**墙国谎言栏目**】
+![](https://assets.gnews.org/wp-content/uploads/2021/12/arkaw-10hwa.jpg)**图片来源：新京报**
+**冤案致死的19岁生命**
 
-**郭文贵**
-**Miles Guo**
+1996年4月9日，一年轻女性在位于呼和浩特市赛罕区的呼市第一毛纺厂家属区公共厕所内遭到强奸并杀害。当晚，呼格吉勒图（下称呼格）最先发现该遇害女性，发现案情后，他主动找到辖区民警报案。呼格因遭到呼市新城分局的刑讯逼供和法院的审判不公被认定为杀人犯，且在“严打”期间根据“从重从快”的政策在事发后62天即被判处死刑并立即执行。
 
-俄罗斯派去的特使
-The special envoy sent by Russia
+那一年，呼格永远定格在19岁，他还没有谈过恋爱。在殡仪馆美容，他右眼一直闭不上。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1unknown.png)**图片来源：维基百科**
+呼格死后第9年，即2005年真正罪犯落网后，法院不给他平反，家里人又继续奔走呼号9年，也就是呼格冤死18年后，2014年12月15日，内蒙古自治区高级人民法院判决呼格吉勒图无罪。 《人民法院报》将呼格再审案列为2014年度人民法院十大刑事案件。
 
-非常明确地所谓的在官方通报了
-made it very clear that
+呼格在冰冷的地下等了18年，坟茔上青草几尺，才等来了一个结论：无辜的呼格不是强奸犯，他没有犯罪。世界上还有比这更荒谬的么？一个无辜的人花18年证明自己无罪，如果只有呼格自己，压根就证明不了他自己是清白的。
 
-和俄美交流之后
-after the official notification of the exchange between Russia and the United States,
+**“强奸”与否由共党和伪政府决定**
 
-会谈之后, 这次私下里交谈告诉了中方
-they told the Chinese officials in a private conversation after the meeting with US.
+“强奸罪”这一罪名可以任意灵活地放在无辜的中国人头上，呼格吉勒图如此、聂树斌如此，那个青峰看守所十八岁的处男“强奸犯”爱国青年也如此，你说这两个是普通百姓，难免草菅人命。那么2017年，郭文贵先生也被中共栽赃陷害，指控 “强奸罪”，到今天也未见受害人出庭。为何这些无辜的人都犯了“强奸罪”，而海航陈锋和幼女“双修”不是强奸， 那些红黄蓝幼儿园被军队高官性侵不是“强奸”，中共官员中共副总理张高丽和十几岁的彭帅发生性关系也不是“强奸”，与否是党和中共伪政府说了算，天道昭昭，法律何在？认真思考后， 得出这样一个结论：原来“强奸”与否由共党和伪政府决定，党在法上。
 
-任何情况下你打台湾我不会跟你一起的
-that “under any circumstances, if you fight against Taiwan, I will not be with you”
+**道歉和赔偿无法掩盖罪恶**
 
-原来说你弄我吆喝啊，甚至给你技术上支持
-They originally were to let China do what they want and Russia just roaring in the back, and even provide them with technological support
+2014年内蒙古高院副院长当面像呼格父母道歉，并交给其父母三万元慰问金。道歉能解决生死问题，要法律、警察和法院干什么？三万元收买19岁无辜的呼格的生命，作为国家执法机关，是人命如草芥啊！
 
-这个对它是一个致命的（打击）
-This is a fatal strike to the CCP,
+同年，给呼格父母二百零五万的国家赔偿。这个钱给深受打击的家庭到底带来啥，我们不得而知。可以肯定的是，呼格父母会永远闭嘴，甚至觉得讨回公道，国内有法治。但是这种正义的沉冤得雪是哪个家庭希望得到的啊？道歉和赔偿那掩盖它们草菅人命的罪恶？
 
-说我不会的，打台湾我不参与
-saying that I won’t participate if you war on Taiwan
+**以党治国、以警治国、以黑治国的恶魔**
 
-第二句话很可怕
-The second sentence is fearful,
+2016年中共伪政府启动追责程序，对于呼格案有责任的27人被追责，职位最高的是呼和浩特市公安厅党委委员，最低的是各种办事员。处分包括党内（严重）警告处分和行政记大过处分。枉顾人命，党内警告处分。多么荒唐，全世界绝无仅有的处分。再次说明党在法上，党是一个保护网，保护中共官员各种违法活动。法律又是处罚谁的？一目了然。难道没有一个人对这件事付法律责任么？这不是典型的渎职罪么，不是应该严惩么？法律何在，司法何在。
 
-所有中苏之间签署的油、气的协议，你们必须执行
-saying that you must implement all the oil and gas agreements signed between Chi-na and the Soviet Union
+2019年1月，曾经主办呼格案的刑警队长刘旭自缢身亡。天道轮回，报应不爽，确实让人觉得振奋，但是再仔细想想，难道每个人都要等18年的轮回么？又有多少没有被没发现的呼格吉勒图？没有司法体制和法治保障，每一个人都是呼格吉勒图，每一个警察都可能和刘旭一样。殊途同归而已。
 
-言外之意啥意思呀
-What does it implicate?
+2021年的今天，还有多少人记得呼格，法院依法判案实现了么？每个人都有答案。郭文贵先生90多岁的患病老父被特警赶到大街上，法制呢？不彻底消灭中共邪党，不共同争取法制，那么以党治国、以警治国、以黑治国依旧如恶魔一样盘旋在每个人头上。
 
-你该给我的钱、买我的油、买我的气，一点儿也不能少
-The money that you are supposed to give me and the oil and gas you are supposed to buy from us cannot be a bit less
+呼格吉勒图，蒙语是繁荣旺盛的意思，愿你在天上，保持笑颜，保佑和庇护新中国联邦消灭中共恶魔，那时，中华大地必将繁荣昌盛。
 
-你少了，反过来我不是不支持你，我就是打你了
-If you are missing a bit, on the other hand, it’s not that I don’t support you, but to fight against you
+**参考资料链接：**
+1，[https://zh.wikipedia.org/wiki/%E5%91%BC%E6%A0%BC%E5%90%89%E5%8B%92%E5%9B%BE%E6%A1%88](https://zh.wikipedia.org/wiki/%E5%91%BC%E6%A0%BC%E5%90%89%E5%8B%92%E5%9B%BE%E6%A1%88)
+2， [https://zh.wikipedia.org/wiki/%E8%81%82%E6%A0%91%E6%96%8C%E6%A1%88](https://zh.wikipedia.org/wiki/%E8%81%82%E6%A0%91%E6%96%8C%E6%A1%88)
 
-我就跟美国人站在一起去了
-and I would stand by the American side
+**文章观点仅代表作者，与Gnews平台无关**
 
-这对习来讲是简直是巨大的羞辱
-This is a huge shame to Xi
-
-（中共之前的战略）它是联俄抗美，联俄收台
-It (the CCP’s previous strategy) was to unite Russia and to be against the United States and to reclaim Taiwan
-
-这个战略观是整个过去十几年世界局势变化的一切根本的原因
-This strategic view is the fundamental reason for all changes in the world situation over the past ten years
-
-这已经完了
-All these are over
-
-第三条是更让他接受不了的
-The third is even more unacceptable to Xi
-
-俄国和印度、北朝鲜、巴基斯坦、伊朗将形成一个新的联盟关系
-Russia and India, North Korea, Pakistan, and Iran will form a new alliance relation-ship
-
-你看看就没有共产党，而且明确了就没邀请你进去
-You see, there is no Communist Party, and clearly, it has not been invited to join them
-
-什么概念？
-What dose it mean?
-
-这几个人要联合起来跟美国讲数（谈判）, 咱们不打，咱交易
-These individuals want to be united and to negotiate with the United States that they don’t want to fight but a deal
-
-特别是俄罗斯反对中国在阿富汗干的事情
-Especially Russia opposes what China is doing in Afghanistan
-
-很明确，说你在阿富汗这事干得不行
-It’s clear that the CCP didn’t do it well in Afghanistan
-
-阿富汗现在死太多人了
-Too many people have died in Afghanistan now
-
-对我俄罗斯也不利呀
-It’s unfavorable to Russia
-
-阿富汗乱，车臣的回民就给它搞在一起
-The chaos in Afghanistan, the Muslim people in Chechnya would bring it together
-
-所谓车臣恐怖分子就会再次崛起
-The so-called Chechen terrorists will rise again
-
-这是很夸张的
-This is very overstressed
-
-还有一个就是现在你跟美国和西方这种挑战什么都可以
-Another thing is that now you can challenge anything with the United States and the West
-
-但是中国内部
-But insider China
-
-俄罗斯就说了你的人权和你的整个企业经济情况让我们很失望
-The Russia said that the Chinese human rights and their entire business economic situation have disappointed them
-
-言外之意就是你再给我钱，你给不起了
-The implication is that the CCP needs to give Russia money again, but the CCP may not have enough money anymore
-
-**原视频链接:** [https://gettr.com/post/pjjifl68f6](https://gettr.com/post/pjjifl68f6)
-
-Date: 12/13/2021
-原视频标题: 俄罗斯特使向中共通报的四项内容吓傻了共产党
-The Communist Party Has Been Shocked by The Four Contents That The Russian Special Envoy Noticed to The CCP
-
-原视频日期：2021/12/12
-原视频链接: https://gettr.com/post/pjjifl68f6
-任务编号：3220
-视频时间段 : 0:00-2:17
-
-英听校 : 洛杉矶盘古农场 – 郭班之樱
-翻译 : 洛杉矶盘古农场 – 郭班之樱
-翻译终校 : 洛杉矶盘古农场 – Mike Li
-字幕+视频制作 : 洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场- 银龙
+作者：洛杉矶盘古农场 — Poplar
+编辑：洛杉矶盘古农场 — 心照
 发布：洛杉矶盘古农场 – 彩虹 Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）

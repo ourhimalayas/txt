@@ -2,21 +2,17 @@
 ---
 
 
-## 咱那赌牌是数字赌牌的一个新的开始
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1757826/)
+## 【文贵先生大直播PPT】中共缺钱了！中小银行催债力度前所未有
+` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1757953/)
 
-文编：东京樱花团/樱花传媒
+撰稿：墙内某神秘战友
+美工：Bobby （文俊）
 
-视频:东京樱花团/中文小视频组
+【2021年12月15日文贵先生大直播PPT：中共缺钱了！中小银行催债力度前所未有】
+![](https://assets.gnews.org/wp-content/uploads/2021/12/42-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/43-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/44-7.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/45-6.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/46-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/111-2-5.jpg)
+* * *
 
-12月3日，郭文贵先生在GTV大直播指出：
-
-新中国联邦的赌牌如同在钻石塔的最顶端，这样的英国高质量的赌牌绝对是稀有资源，而且会成为数字赌牌的新开始。更主要的是赌牌的背后有体育界大佬的支持，赌牌的股东有体育界的最大玩家。
-
-编辑：东京樱花团/墨然
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.jpg)
-
+编辑/发稿：云起时
 
  
 

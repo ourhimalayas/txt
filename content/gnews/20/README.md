@@ -2,102 +2,53 @@
 ---
 
 
-## 小肯尼迪新书以希望结尾：我们还有选择……（2/2）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1758553/)
+## 灭共者：地球是我们的一个支点
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1758596/)
 
-**翻译： Jenny Ball**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip14-3.png)图片来源：childrenshealthdefense
-当我们考虑过去两年对宪法的空前打击时，值得停下来回顾革命期间使华盛顿军队停滞不前的天花流行病，以及消灭弗吉尼亚军队的疟疾传染病。
+**出品：纽约香草山设计部**
 
-尽管两者都提醒制定者注意传染病流行的致命性和破坏性潜力，但是，宪法制定者还是选择在美国宪法中不包括对大流行病。
 
-所以今天，大流行正被用来为我们的宪法创造一系列新的例外， 正在发生的一切只用一个理由来解释：COVID。
 
-现在让我们把目光从事情发生的表面原因上移开片刻，而将注意力集中在正在发生的事情上。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-**那些控制权力杠杆的人诋毁持不同政见者，并惩罚每一次质疑、怀疑和辩论的尝试。 像历史上的所有暴君一样，他们禁止书籍，让艺术家沉默，谴责质疑新正统观念的作家、诗人和知识分子。**
 
-他们禁止集会，并强迫公民戴口罩，以灌输恐惧和分裂社区，并通过阻止上帝和进化赋予人类四十二块面部肌肉最微妙和最有力的非语言交流，来消除任何团结感。
 
-可以预见的是，这场大流行成了在全球范围内扩大暴政的借口——做出与病毒无关的改变。匈牙利压制言论自由，并禁止公开描述同性恋。中共国关闭了香港最后一家亲民主报纸，并监禁了其高管、编辑和记者。
 
-在白俄罗斯，卢卡申科总统通过大规模逮捕平息抗议活动，甚至劫持一架客机逮捕一名持不同政见的记者。柬埔寨废除了正当程序并逮捕了政治反对派。波兰政府废除了女性和同性恋者的权利，并有效地禁止了堕胎。
 
-印度总理逮捕了记者，并命令 Twitter 删除重要帖子。
 
-俄罗斯总统弗拉基米尔·普京（Vladimir Putin）利用大流行病作为（另一个）借口，监禁强大的反对者和禁止群众集会。
 
-民主国家也没有太大不同：
 
-法国要求其公民在离家 1 公里以上旅行时出示签署的声明。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-image0-2.jpg)Our prospect is not Earth bound, rather, it is beyond Earth. Our aim is to fly higher and farther, using Earth as the fulcrum. We will be the first community of people to be able to travel to outer space legally and safely, to enjoy and to explore the universe. 
+— Mr. Miles Guo, GTV livecast on Dec. 5, 2021![我们真正的视野不在地球上，是在地球之外，地球是我们的一个支点，我们想走得更高、更远！我们将是最早合法地、安全地飞向外星空去旅游、去享受、去探索宇宙的新族类。 
+— 2021年12月5日郭文贵先生GTV直播](https://assets.gnews.org/wp-content/uploads/2021/12/2-image1-1.jpg)我们真正的视野不在地球上，是在地球之外，地球是我们的一个支点，我们想走得更高、更远！我们将是最早合法地、安全地飞向外星空去旅游、去享受、去探索宇宙的新族类。 
+— 2021年12月5日郭文贵先生GTV直播![](https://assets.gnews.org/wp-content/uploads/2021/12/3-20211214-04.png)Among all G-Series products or resources, GTV is the king, and it will always be. 
+— Mr. Miles Guo, GTV livecast on Dec. 5, 2021![](https://assets.gnews.org/wp-content/uploads/2021/12/4-20211214__1.png)到现在所有的G系列资源里边，GTV是王，永远都是王。
+— 2021年12月5日郭文贵先生GTV直播![](https://assets.gnews.org/wp-content/uploads/2021/12/5-20211214-11.png)The NFSC deserves the greatest credit for the many countries’ boycott of the Beijing Winter Olympics. The CCP is utterly bankrupt internationally due to the boycott, in terms of individual political credibility and national credibility.
+— Mr. Miles Guo, GTV livecast on Dec. 8, 2021![](https://assets.gnews.org/wp-content/uploads/2021/12/6-20211214-09.png)冬奥会被灭，新中国联邦是独一无二的最大的功劳。中共冬奥会在国际上，个人政治和国家信用已经彻底破产。 
+— 2021年12月8日郭文贵先生GTV直播![](https://assets.gnews.org/wp-content/uploads/2021/12/7-20211214-12.png)We are here to tell all that the CCP has prepared the biggest “coffin” for the world, that is the coronavirus and the vaccine. The specter of communism is murdering all mankind. 
+— Mr. Miles Guo, GTV livecast on Dec. 8, 2021![](https://assets.gnews.org/wp-content/uploads/2021/12/8-20211214-07.png)我们就是要告诉全世界，共产党给世界准备了最大的棺材就是冠状病毒和疫苗，共产主义正在杀害全人类。 
+— 2021年12月8日郭文贵先生GTV直播
 
-澳大利亚比较自由，允许公民在离家最多 5 公里的地方冒险——但话说回来，澳大利亚已建造了新的拘留中心。
 
-英国禁止其公民出国旅行。
+**编辑/发稿：小鹿**
 
-许多类似的事情发生在美国，包括纽约参议院通过了一项法律，允许对被认为对“公共健康”构成威胁的居民进行强制和无限期拘留。**但对美国来说，言论自由一直是新兴暴政的最大受害者**。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-2.png)
 
-现在流行的术语“错误信息”已经意味着任何背离官方正统观念的表达方式。社交媒体和新闻媒体公司正在充当政府宣布的任何立场的速记员和捍卫者。
+**更多资讯，更多关注**
 
-新闻调查、好奇心和调查的故意失败，未能探查、未能向当权者提出尖锐的问题（或任何问题）——让 2020 年和 2021 年变得疯狂和悲伤。
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-有很多动机在起作用，但我会举一个简单的例子：大型制药公司是新闻和电视媒体上最大的广告商。他们每年 96 亿美元的广告预算购买的不仅仅是广告——它购买了拜拜。（2014 年，网络总裁罗杰·埃莱斯Roger Ailes 告诉我，他会解雇任何允许我在媒体谈论疫苗安全性的新闻节目主持人。我们的新闻部门，他解释说，**在非选举年，高达 70% 的广告收入来自制药公司。**）
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-我知道新闻媒体的作用对你来说不是新闻，所以我只举一个例子：
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-疫苗指令表面上基于：疫苗将阻止 COVID-19 传播的想法。如果他们不阻止传播，如果接种疫苗和未接种疫苗都可以传播病毒，那么这两组之间没有相关区别——**除了一组是不遵守政府命令的**。
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-美国政府和任何政府强迫整个人口接受冒险的医疗干预，是有史以来采取的最具侵入性和侮辱性的行动。
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-**它却是基于一个谎言**。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-美国CDC中心主任福奇博士和WHA都不得不勉强承认：**疫苗无法阻止传播。**
 
-当以色列公共卫生总监向美国FDA咨询小组发表讲话时，**她毫不怀疑疫苗无法阻止病毒传播、阻止疾病或阻止死亡。**在描述以色列截至 9 月 17 日的情况时，她说：
-
-“60%的重症和危重症患者，都接种了疫苗，双重接种，全面接种。在第四波死亡的人中有 45% 接种了双重疫苗。”
-
-尽管如此，三周后的 10 月 7 日——就在本书付印前几天——**美国总统宣布，他正在确保医护人员接种疫苗**，“因为如果你在医疗机构寻求护理，你应该有确保提供这种护理的人受到保护，不会感染 COVID ，并且不会传染给您。”
-
-总统刚刚告诉美国人民，**接种疫苗提供了“确定性”，即接种疫苗的人“可以免受 COVID 感染，并且不会传染给你”。**
-
-没有人向总统提出这种令人震惊的无逻辑，明显的不实的问题——而那次演讲，为我们提供了一个鲜明的例子，说明了正在发生的事情。
-
-电视转播的画面，**一位不受挑战的领导人发表不实言论，以误导和控制民众**——这就是乔治·奥威尔 (George Orwell) 悲惨的预言小说《1984》中的世界。
-
-这是一个充满希望的迹象，**到 2021 年，奥威尔 70 岁的书突然成为美国畅销书的前 20 名。**
-
-这种意识和基本常识提醒我们，民主国家可以重新确立对流氓独裁者的立法控制权——无论你是市长、州长、总统还是总理。
-
-－ 他们可以发起调查诽谤罪，并恢复自由。
-
-－ 即使没有政府的干预，我们普通人也能让我们自己从暴政中解救出来。
-
-－ 我们可以拒绝遵守强制禁令，拒绝通过强制测试和口罩的方式送孩子上学，
-
-－拒绝审查的社交媒体平台，
-
-－拒绝从让我们破产，并试图控制我们的公司购买产品。
-
-这些行动并不容易，**但容忍和不作为的后果会困难得多**。通过呼吁我们的道德勇气，我们可以阻止我们的国家向全球警察国家迈进。
-
-在我写这本书的时候，我重读了小马丁·路德·金 1963 年在林肯纪念堂发表的雄伟的“我有一个梦想”的演讲。这些年来，马丁牧师一直在向我们伸出援手：
-
-“但我们拒绝相信，正义银行已经破产。我们拒绝相信，这个国家巨大的机会宝库中没有足够的资金。因此，我们来兑现这张支票，这张支票将给我们带来自由的财富和正义的保障。我们也来到这个神圣的地方，提醒美国现在的紧迫性。现在不是轻松地静下来或服用渐进主义镇定剂的时候。现在是兑现民主承诺的时候了。”
-
-**与我们一起夺回我们的民主和自由。我会在前沿阵地与你相会**。
-
-**新闻来源**：[childrenshealthdefense][RFK, Jr.’s New Book Ends on Note of Hope: ‘We Have a Choice. And It Is Not Too Late.’](https://childrenshealthdefense.org/defender/rfk-jr-the-real-anthony-fauci-we-have-choice/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=73816dfa-7dfe-468a-b1c4-5ac2bc316bd4)
-
-相关文章阅读：[小肯尼迪新书以希望结尾：我们还有选择……（1/2）](https://gnews.org/zh-hans/1758539/)
-
-* * *
-
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-3.jpeg)
 
 
 

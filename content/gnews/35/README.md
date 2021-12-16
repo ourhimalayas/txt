@@ -2,43 +2,17 @@
 ---
 
 
-## 中共的威胁将成就日本
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1757887/)
+## 【文贵先生大直播PPT】疫苗大灾难
+` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1758350/)
 
-撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/13-3.jpg)
-[图片来源](https://tfiglobalnews.com/2021/09/11/a-terrified-ccp-shuts-down-little-kyoto-in-china-as-chinese-peoples-love-for-japan-makes-jinping-nervous/)
+撰稿：莲心不染，Zion (文恩），kkoto (芬兰大灰狼）
+美工：嘿虎，雷蒙
 
-10月，岸田文雄的内阁诞生了。一百多年后的今天，日本迎来“第二次幕府末期”。在德川幕府末期，来自美国、英国、法国、俄罗斯等其他地方的帝国主义白人如海啸般涌向日本海岸，国家在“尊皇攘夷”还是“开放港口”的问题上出现了分歧。
+【2021年12月15日文贵先生大直播PPT：疫苗大灾难】
+![](https://assets.gnews.org/wp-content/uploads/2021/12/81-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/83.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/84.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/85.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/86.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/87.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/88.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/89-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/90.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/92.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/93.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/111-2-6.jpg)
+* * *
 
-今天，一条名为“中国”的巨龙，正威胁着要吞噬日本。今天的护宪派相当于历史上的“攘夷派”，而日本的前辈们在江户时代末期正视现实，选择了向外界开放港口。
-
-10月，华盛顿某智库著名高级研究员、约翰霍普金斯大学国际政治系教授哈尔布兰兹在美国发表了一篇题为《日本，世界沉睡的巨人，正在觉醒》的论文。引起了很多关注。
-
-他说：“日本曾经改变过世界历史的进程，但它现在正从战后的沉睡中苏醒过来。”他补充说，如果认为安倍晋三及继任者菅义伟和岸田文雄的内阁将与以前一样，那将是一个错误。他说：“日本即将脱皮蜕变。”
-
-其主要原因是中共的威胁不断升级，以及不能再过分依赖美国，并赞扬前首相安倍晋三倡导 “自由和开放的印度-太平洋”战略。
-
-日本将有望恢复作为一个“正常国家”，与美国共享地理条件，加之在经济、军事、技术和民主价值观方面相通，极可能与英国并列成为美国重要盟友。
-
-日本自二战战败受美国保护后，一直享受着类似于江户时代260年的宁静。虽被称为“爱好和平”，其实是依赖于甚至是过多听凭于美国。
-
-1972年2月，理查德-尼克松总统对北京进行了突然访问，震惊了世界。田中角荣内阁也惊慌失措，急于实现了日中两国的外交关系正常化（1972年9月）。
-
-当邓小平出现时，全世界都对巨大的中国市场垂涎三尺，竞相投资中国。
-
-现在，日本和美国养大的这条“巨龙”—中共，正试图接管亚太。这个怪物是日美养大的，在某种意义上讲，遭遇威胁，也是自作自受。
-
-是危机也是转机，借此机会，日本能与美国顺利谈判，从而修改宪法第九条，恢复成一个“正常国家”也是有希望的。
-
-信息来源：
-
-[〝第二の幕末〟迎えつつある日本　米教授論文「日本が目覚める」　深刻化する中国の脅威、米国へのいたずらな依存困難に](https://news.yahoo.co.jp/articles/528f1e54079d7887b8fd3d212673255b1309fafd)
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/uxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.jpg)
-
+编辑/发稿：云起时
 
  
 

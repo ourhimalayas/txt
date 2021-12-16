@@ -2,54 +2,58 @@
 ---
 
 
-## 呼格吉勒图案平反，中共依旧党在法上
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1758585/)
+## 紧急：3 种方法来帮助阻止拜登的疫苗授权
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1758659/)
 
-【**墙国谎言栏目**】
-![](https://assets.gnews.org/wp-content/uploads/2021/12/arkaw-10hwa.jpg)**图片来源：新京报**
-**冤案致死的19岁生命**
+编译：Jenny Ball
 
-1996年4月9日，一年轻女性在位于呼和浩特市赛罕区的呼市第一毛纺厂家属区公共厕所内遭到强奸并杀害。当晚，呼格吉勒图（下称呼格）最先发现该遇害女性，发现案情后，他主动找到辖区民警报案。呼格因遭到呼市新城分局的刑讯逼供和法院的审判不公被认定为杀人犯，且在“严打”期间根据“从重从快”的政策在事发后62天即被判处死刑并立即执行。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-14-1.jpg)图片来源：today.line.me（翻摄自路透社）
 
-那一年，呼格永远定格在19岁，他还没有谈过恋爱。在殡仪馆美容，他右眼一直闭不上。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1unknown.png)**图片来源：维基百科**
-呼格死后第9年，即2005年真正罪犯落网后，法院不给他平反，家里人又继续奔走呼号9年，也就是呼格冤死18年后，2014年12月15日，内蒙古自治区高级人民法院判决呼格吉勒图无罪。 《人民法院报》将呼格再审案列为2014年度人民法院十大刑事案件。
+儿童健康防御组织([Children’s Health Defense](https://childrenshealthdefense.org/))呼吁科学家、公民和医学专家，帮助阻止拜登总统对员工、联邦承包商和医疗保健工作者的 COVID 疫苗授权。
 
-呼格在冰冷的地下等了18年，坟茔上青草几尺，才等来了一个结论：无辜的呼格不是强奸犯，他没有犯罪。世界上还有比这更荒谬的么？一个无辜的人花18年证明自己无罪，如果只有呼格自己，压根就证明不了他自己是清白的。
+可以通过以下方式提供帮助： 在管理和预算办公室 ([OMB](https://www.regulations.gov/document/OMB-2021-0007-0001/comment))、医疗保险和医疗补助服务中心 ([CMS](https://www.regulations.gov/docket/CMS-2021-0168/comments))， 以及职业安全与健康管理局([OSHA](https://www.regulations.gov/document/OSHA-2021-0007-0001/comment))的每个联邦电子规则制定门户上发表评论，解释您反对这些指令的原因 。
 
-**“强奸”与否由共党和伪政府决定**
+按照每个网站上的说明提交评论。 在发表评论之前，您还可以查看其他人在OMB，CMS 和 OSHA发表的评论：
 
-“强奸罪”这一罪名可以任意灵活地放在无辜的中国人头上，呼格吉勒图如此、聂树斌如此，那个青峰看守所十八岁的处男“强奸犯”爱国青年也如此，你说这两个是普通百姓，难免草菅人命。那么2017年，郭文贵先生也被中共栽赃陷害，指控 “强奸罪”，到今天也未见受害人出庭。为何这些无辜的人都犯了“强奸罪”，而海航陈锋和幼女“双修”不是强奸， 那些红黄蓝幼儿园被军队高官性侵不是“强奸”，中共官员中共副总理张高丽和十几岁的彭帅发生性关系也不是“强奸”，与否是党和中共伪政府说了算，天道昭昭，法律何在？认真思考后， 得出这样一个结论：原来“强奸”与否由共党和伪政府决定，党在法上。
+• OMB：截止日期 12 月 16 日
 
-**道歉和赔偿无法掩盖罪恶**
+• CMS：截止日期为 2022 年 1 月 4 日
 
-2014年内蒙古高院副院长当面像呼格父母道歉，并交给其父母三万元慰问金。道歉能解决生死问题，要法律、警察和法院干什么？三万元收买19岁无辜的呼格的生命，作为国家执法机关，是人命如草芥啊！
+• OSHA：截止日期 2022 年 1 月 19 日
 
-同年，给呼格父母二百零五万的国家赔偿。这个钱给深受打击的家庭到底带来啥，我们不得而知。可以肯定的是，呼格父母会永远闭嘴，甚至觉得讨回公道，国内有法治。但是这种正义的沉冤得雪是哪个家庭希望得到的啊？道歉和赔偿那掩盖它们草菅人命的罪恶？
+**以下是您需要了解的有关每项疫苗强制规定的信息：**
 
-**以党治国、以警治国、以黑治国的恶魔**
+OMB：拜登总统于 9 月 9 日宣布了他的“走出大流行之路：COVID-19 行动计划”，并签署了一项[行政命令](https://na01.safelinks.protection.outlook.com/?url=https%3A%2F%2Fwww.whitehouse.gov%2Fbriefing-room%2Fpresidential-actions%2F2021%2F09%2F09%2Fexecutive-order-on-ensuring-adequate-covid-safety-protocols-for-federal-contractors%2F&amp;data=04%7C01%7C%7C16a4b2e0547b4fe7aaca08d9b5f306a5%7C84df9e7fe9f640afb435aaaaaaaaaaaa%7C1%7C0%7C637740877663535714%7CUnknown%7CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%3D%7C3000&amp;sdata=i3JTIJn%2FXvuTpF4ZF8jautSXUeevtNd8bYGxZkP2s5s%3D&amp;reserved=0)，强制要求联邦承包商接种 COVID-19 疫苗。
 
-2016年中共伪政府启动追责程序，对于呼格案有责任的27人被追责，职位最高的是呼和浩特市公安厅党委委员，最低的是各种办事员。处分包括党内（严重）警告处分和行政记大过处分。枉顾人命，党内警告处分。多么荒唐，全世界绝无仅有的处分。再次说明党在法上，党是一个保护网，保护中共官员各种违法活动。法律又是处罚谁的？一目了然。难道没有一个人对这件事付法律责任么？这不是典型的渎职罪么，不是应该严惩么？法律何在，司法何在。
+提交完整疫苗接种证明的截止日期（除非该员工在法律上有权获得豁免）是 2022 年 1 月 18 日。[请在此处阅读完整的规定。](https://childrenshealthdefense.org/defender/action-omb-oppose-mandatory-vaccines-federal-contractors/)
 
-2019年1月，曾经主办呼格案的刑警队长刘旭自缢身亡。天道轮回，报应不爽，确实让人觉得振奋，但是再仔细想想，难道每个人都要等18年的轮回么？又有多少没有被没发现的呼格吉勒图？没有司法体制和法治保障，每一个人都是呼格吉勒图，每一个警察都可能和刘旭一样。殊途同归而已。
+CMS：11 月 4 日，CMS 规定医疗保险和医疗补助（Medicare and Medicaid）认证的提供者、供应商和员工，必须接种 COVID-19 疫苗。
 
-2021年的今天，还有多少人记得呼格，法院依法判案实现了么？每个人都有答案。郭文贵先生90多岁的患病老父被特警赶到大街上，法制呢？不彻底消灭中共邪党，不共同争取法制，那么以党治国、以警治国、以黑治国依旧如恶魔一样盘旋在每个人头上。
+然而，在 11 月 30 日，路易斯安那州联邦地方法院[发布了一项初步禁令](https://childrenshealthdefense.org/defender/biden-covid-vaccine-mandates-legal-setbacks/)，影响了全国的医护人员起来反对强制执行。
 
-呼格吉勒图，蒙语是繁荣旺盛的意思，愿你在天上，保持笑颜，保佑和庇护新中国联邦消灭中共恶魔，那时，中华大地必将繁荣昌盛。
+法院表示：“在像这样的大流行期间，更重要的是保护我们宪法中规定的权力分立，以避免我们的自由受到侵蚀。” [在这里发表您对 CMS 的评论](https://www.federalregister.gov/documents/2021/11/16/2021-24949/determination-of-the-acting-omb-director-regarding-the-revised-safer-federal-workforce-task-force)。
 
-**参考资料链接：**
-1，[https://zh.wikipedia.org/wiki/%E5%91%BC%E6%A0%BC%E5%90%89%E5%8B%92%E5%9B%BE%E6%A1%88](https://zh.wikipedia.org/wiki/%E5%91%BC%E6%A0%BC%E5%90%89%E5%8B%92%E5%9B%BE%E6%A1%88)
-2， [https://zh.wikipedia.org/wiki/%E8%81%82%E6%A0%91%E6%96%8C%E6%A1%88](https://zh.wikipedia.org/wiki/%E8%81%82%E6%A0%91%E6%96%8C%E6%A1%88)
+OSHA：要求拥有 100 名或更多员工的企业强制要求所有员工接种 COVID 疫苗的 OSHA 规定于 11 月 5 日生效。但是，在 11 月 16 日，OSHA 暂停了其关于工作场所强制性 COVID 疫苗接种和测试的紧急临时标准 (ETS) 的实施和执行。
 
-**文章观点仅代表作者，与Gnews平台无关**
+**在第五巡回上诉法院作出**[**长达****22****页**](https://na01.safelinks.protection.outlook.com/?url=https%3A%2F%2Fchildrenshealthdefense.org%2Fwp-content%2Fuploads%2F5th-Stay.pdf&amp;data=04%7C01%7C%7C78327c0d1280459a795408d9b5f78c37%7C84df9e7fe9f640afb435aaaaaaaaaaaa%7C1%7C0%7C637740897237681758%7CUnknown%7CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%3D%7C3000&amp;sdata=pZzBeeR%2BfcTWIMNf%2F7CuplWwoIfte%2FZZHAxgzg3%2BnWM%3D&amp;reserved=0)**的暂停裁决之后，该裁决称拜登政府的授权存在“致命缺陷”，并表示，职业安全与健康管理局应“在进一步的法院命令之前不采取任何措施来实施或执行该授权**。”
 
-作者：洛杉矶盘古农场 — Poplar
-编辑：洛杉矶盘古农场 — 心照
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+CHD 呼吁 OSHA 延长公众意见征询的截止日期，并向公众提交关于该命令对安全、健康和经济影响的环境影响报告。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+美国参议院于 12 月 8 日[投票决定废除雇主授权](https://childrenshealthdefense.org/defender/senate-vote-repeal-biden-vaccine-mandates-employers/)，但该措施仍需提交给众议院。拜登暗示，如果该法案在参议院和众议院获得通过，他将否决该法案。
+
+在此处阅读有关 OSHA 实施拜登授权的计划的更多信息，然后[在此处发表您对 OSHA 的评论](https://www.regulations.gov/document/OSHA-2021-0007-0001)。
+
+**评论：这是关乎我们健康自由和未来的紧急行动，让我们拿起法律武器，用宪法保护我们的权利！行动起来，到这些相关网站发声！**
+
+**参考资料**：[childrenshealthdefense.org][Urgent: 3 Ways to Help Stop Biden’s Vaccine Mandates](https://childrenshealthdefense.org/defender/help-stop-biden-vaccine-mandates/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=73816dfa-7dfe-468a-b1c4-5ac2bc316bd4)
+
+* * *
+
+*审核：文乐*
+*校对 : 信心满满*
+*发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-3.jpeg)
 
  
 

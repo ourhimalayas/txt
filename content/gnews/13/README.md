@@ -2,50 +2,74 @@
 ---
 
 
-## 紧急：3 种方法来帮助阻止拜登的疫苗授权
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1758659/)
+## 新书揭示对全球大流行病毒起源的掩盖
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1758706/)
 
-编译：Jenny Ball
+翻译：Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-14-1.jpg)图片来源：today.line.me（翻摄自路透社）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-15-1.jpg)2017 年 2 月 23 日，在中国湖北省省会武汉市的 P4 实验室内看到一名工人。（约翰内斯·埃塞尔/法新社通过盖蒂图片社）
 
-儿童健康防御组织([Children’s Health Defense](https://childrenshealthdefense.org/))呼吁科学家、公民和医学专家，帮助阻止拜登总统对员工、联邦承包商和医疗保健工作者的 COVID 疫苗授权。
+实验室泄漏？ 生化武器？ 海鲜市场？ 在中国武汉首次报道新型冠状病毒两年后，世界对该病毒的起源仍知之甚少，科学命名为 SARS-CoV-2，它来自哪里！它是如何首先感染人类的？这些问题仍未得到最终答复。
 
-可以通过以下方式提供帮助： 在管理和预算办公室 ([OMB](https://www.regulations.gov/document/OMB-2021-0007-0001/comment))、医疗保险和医疗补助服务中心 ([CMS](https://www.regulations.gov/docket/CMS-2021-0168/comments))， 以及职业安全与健康管理局([OSHA](https://www.regulations.gov/document/OSHA-2021-0007-0001/comment))的每个联邦电子规则制定门户上发表评论，解释您反对这些指令的原因 。
+哈珀·柯林斯 (Harper Collins) 的新书《病毒》(Viral) 探讨了这种流行病的开始，以及为什么还有这么多未知。麻省理工学院和哈佛大学博德研究所的科学家艾琳娜·陈（Alina Chan）和动物学家兼科普作家马特·里德利（Matt Ridley）探索了三种可能性，包括武汉病毒研究所的病毒意外释放。
 
-按照每个网站上的说明提交评论。 在发表评论之前，您还可以查看其他人在OMB，CMS 和 OSHA发表的评论：
+作者在最近与华盛顿智库哈德逊研究所所长约翰·沃尔特斯(John Walters)的虚拟讨论中, 进一步展示了他们的发现。
 
-• OMB：截止日期 12 月 16 日
+书中描述的是：对全球卫生和科学机构的谴责，以及两年未能正确调查病毒起源的故事。
 
-• CMS：截止日期为 2022 年 1 月 4 日
+**自然起源？**
 
-• OSHA：截止日期 2022 年 1 月 19 日
+新闻媒体最早提出的理论之一是，这种病毒是从武汉地区的动物中自然产生的。据陈说，没有任何证据支持这个想法。“他们花了一年半的时间寻找这种病毒的动物来源，”陈说，“但他们一无所获。”
 
-**以下是您需要了解的有关每项疫苗强制规定的信息：**
+据陈说，中共当局花了数月时间分析动物组织、人体血液样本并追踪感染情况。尽管如此，“当局尚未找到原始动物来源，”陈说。
 
-OMB：拜登总统于 9 月 9 日宣布了他的“走出大流行之路：COVID-19 行动计划”，并签署了一项[行政命令](https://na01.safelinks.protection.outlook.com/?url=https%3A%2F%2Fwww.whitehouse.gov%2Fbriefing-room%2Fpresidential-actions%2F2021%2F09%2F09%2Fexecutive-order-on-ensuring-adequate-covid-safety-protocols-for-federal-contractors%2F&amp;data=04%7C01%7C%7C16a4b2e0547b4fe7aaca08d9b5f306a5%7C84df9e7fe9f640afb435aaaaaaaaaaaa%7C1%7C0%7C637740877663535714%7CUnknown%7CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%3D%7C3000&amp;sdata=i3JTIJn%2FXvuTpF4ZF8jautSXUeevtNd8bYGxZkP2s5s%3D&amp;reserved=0)，强制要求联邦承包商接种 COVID-19 疫苗。
+陈说，与其相信未经证实的自然起源假设，科学家们应该关注武汉实验室发生的事情。 她的研究发现了一些文件“显示武汉病毒研究所（武毒所）收集和操纵的冠状病毒相当广泛”。
 
-提交完整疫苗接种证明的截止日期（除非该员工在法律上有权获得豁免）是 2022 年 1 月 18 日。[请在此处阅读完整的规定。](https://childrenshealthdefense.org/defender/action-omb-oppose-mandatory-vaccines-federal-contractors/)
+陈说，“以某种方式表明[在武毒所]收集了来自动物和人类的数万种高危病原体……收集进入武毒所，对这些病毒进行基因改造的实验——不知怎的，所有这些都没有导致 SARS-CoV-2 的出现。”
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-17-1.jpg)2020年 4月17日，中国湖北省武汉市武毒所的 P4 实验室鸟瞰图。——P4 流行病学实验室是与法国生物工业公司“梅里埃研究所”（Institut Merieux）和中共合作建立的 科学院。该设施是世界上少数几个获准处理第 4 类病原体 (P4) 的实验室之一——危险病毒会造成人际传播的高风险。（Hector RETAMAL/法新社摄）（HECTOR RETAMAL/法新社摄，Getty Images）
+**武汉数据缺失**
 
-CMS：11 月 4 日，CMS 规定医疗保险和医疗补助（Medicare and Medicaid）认证的提供者、供应商和员工，必须接种 COVID-19 疫苗。
+为了强调武汉实验室的活动与病毒爆发之间可能存在的联系，陈做了一个滑稽的比喻：“假设我们在 2018 年初的一份文件中发现，他们（武汉实验室）提议将牛角放在马头上 ， 然后在 2019 年底，不知何故，**那座城市突然出现了一只独角兽**。”
 
-然而，在 11 月 30 日，路易斯安那州联邦地方法院[发布了一项初步禁令](https://childrenshealthdefense.org/defender/biden-covid-vaccine-mandates-legal-setbacks/)，影响了全国的医护人员起来反对强制执行。
+尽管有这样的逻辑推论，《病毒》中的证据主要来自公开的研究论文、媒体报道和资助文件——但没有一个直接来自武汉病毒研究所。原因是：武汉实验室于 2019 年 9 月 12 日——即报告第一例感染的三个月前——下线了所有数据。
 
-法院表示：“在像这样的大流行期间，更重要的是保护我们宪法中规定的权力分立，以避免我们的自由受到侵蚀。” [在这里发表您对 CMS 的评论](https://www.federalregister.gov/documents/2021/11/16/2021-24949/determination-of-the-acting-omb-director-regarding-the-revised-safer-federal-workforce-task-force)。
+2020年12月，武毒所新发传染病中心主任石正丽告诉BBC，武汉实验室数据库因多次黑客攻击而下线。
 
-OSHA：要求拥有 100 名或更多员工的企业强制要求所有员工接种 COVID 疫苗的 OSHA 规定于 11 月 5 日生效。但是，在 11 月 16 日，OSHA 暂停了其关于工作场所强制性 COVID 疫苗接种和测试的紧急临时标准 (ETS) 的实施和执行。
+合著者雷德利解释了这些隐藏数据的重要性：“**武汉有一个包含 22,000 个样本、标本和 [基因] 序列的数据库。该数据库在大流行开始之前就离线了。它从未重新上线**。 所以我们不知道里面有什么。那可以告诉我们很多关于他们在该机构研究的病毒的信息。”
 
-**在第五巡回上诉法院作出**[**长达****22****页**](https://na01.safelinks.protection.outlook.com/?url=https%3A%2F%2Fchildrenshealthdefense.org%2Fwp-content%2Fuploads%2F5th-Stay.pdf&amp;data=04%7C01%7C%7C78327c0d1280459a795408d9b5f78c37%7C84df9e7fe9f640afb435aaaaaaaaaaaa%7C1%7C0%7C637740897237681758%7CUnknown%7CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%3D%7C3000&amp;sdata=pZzBeeR%2BfcTWIMNf%2F7CuplWwoIfte%2FZZHAxgzg3%2BnWM%3D&amp;reserved=0)**的暂停裁决之后，该裁决称拜登政府的授权存在“致命缺陷”，并表示，职业安全与健康管理局应“在进一步的法院命令之前不采取任何措施来实施或执行该授权**。”
+他说，在大流行开始前几个月故意压制科学数据，**这是表明武汉实验室参与了 SARS-CoV-2 释放的最有力证据之一。**
 
-CHD 呼吁 OSHA 延长公众意见征询的截止日期，并向公众提交关于该命令对安全、健康和经济影响的环境影响报告。
+“这是非常了不起的，”雷德利说，“开发一个大型 [病毒] 数据库，作为预防流行病的努力的一部分，然后在大流行病来临时不发布数据。”
 
-美国参议院于 12 月 8 日[投票决定废除雇主授权](https://childrenshealthdefense.org/defender/senate-vote-repeal-biden-vaccine-mandates-employers/)，但该措施仍需提交给众议院。拜登暗示，如果该法案在参议院和众议院获得通过，他将否决该法案。
+**中共病毒**
 
-在此处阅读有关 OSHA 实施拜登授权的计划的更多信息，然后[在此处发表您对 OSHA 的评论](https://www.regulations.gov/document/OSHA-2021-0007-0001)。
+此次数据压制，并非中共第一次掩盖疫情信息。认清中共的行为，包括审查和逮捕警告危险的医生，《大纪元时报》将“中共病毒”作为SARS-CoV-2病毒的名称，编辑委员会在 2020 年初写道：“**这个名字让中共对其肆意无视人的生命，以及随后的大流行病承担责任，这种流行病使无数人……处于危险之中。**”由于官方对病毒来源的说法已被证伪，中共病毒是否从研究所泄露的问题受到质疑。”
 
-**评论：这是关乎我们健康自由和未来的紧急行动，让我们拿起法律武器，用宪法保护我们的权利！行动起来，到这些相关网站发声！**
+《病毒》的作者详细探讨了这种可能性，得出结论，武汉实验室是最有可能的病毒来源。
 
-**参考资料**：[childrenshealthdefense.org][Urgent: 3 Ways to Help Stop Biden’s Vaccine Mandates](https://childrenshealthdefense.org/defender/help-stop-biden-vaccine-mandates/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=73816dfa-7dfe-468a-b1c4-5ac2bc316bd4)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-18-1.jpg)这张拍摄于 2021 年 8 月 4 日的照片显示，在中国湖北省武汉市的 Covid-19 检测机构 “火眼”（Fire Eye）实验室，穿着个人防护装备 (PPE) 的实验室技术人员正在处理要检测 Covid-19 冠状病毒的样本（STR / AFP 通过盖蒂图片社）
+
+**科学界的失败**
+
+作者探索的另一个难题是：**世界科学界和医学界对病毒起源的关注惊人地缺乏**。
+
+**世界上的卫生和科学组织未能完成保护和告知公众的使命**。“可以公平地说，他们让公众失望了，”他说。“WTO进行了一项耗时很长的调查，但坦率地说，这是相当肤浅的，结果也相当糟糕。”
+
+雷德利说美国人没有做应该做的事： “美国政府没有提供它必须提供的已经拥有的信息——**因为它资助了这个领域的研究。****”**
+
+“**而且科学出版机构并没有像它们应该的那样透明**——而是出版现在似乎是一种政治偏好，过早地排除了一个假设[实验室起源]。”
+
+**即使是世界新闻界**也未能履行其调查和报道的职责。雷德利说，“主流媒体对病毒的起源几乎没有表现出好奇心”。 社交媒体平台“**甚至禁止谈论一个更明显的假设**。 Facebook 不让任何人讨论实验室泄漏问题。因此，**在各个层面上都令人惊讶地缺乏透明度和问责制。**”
+
+“**整个故事在很大程度上取决于一些非常勇敢和坚持不懈的人**，”雷德利说。“研究难以找到的信息来源，并拼凑出极具价值的信息的开源分析。这是一个非常有趣的公民科学案例。”
+
+哈德逊研究所高级研究员戴维·阿舍 (David Asher) 评论道：“**这本书读起来真的像对我的控诉****——****不仅是对中共政府的控诉，而且是对我们如何抹去证据的全球控诉，我们掩盖了惊人的数量公开披露的信息。这对我来说几乎是无法解释的。****”**
+
+阿舍尔说，这场大流行“实际上是自二战以来降临在我们国家和世界上的最大灾难。它约占 GDP 的 20% [由于大流行限制而损失]。这比我们在整个大萧条中损失的还多。”
+
+“所以问题是：**我们国家卫生当局的情况如何，他们为什么这样做**？”
+
+参考资料：[theepochtimes][New Book Points to Global Coverup of Pandemic Origins](//www.theepochtimes.com/mkt_morningbrief/new-book-points-to-global-coverup-of-pandemic-origins_4156594.html?utm_source=Morningbrief&amp;utm_medium=email&amp;utm_campaign=mb-2021-12-15&amp;mktids=9b6fa8e6ca2219d05592f2de0713cf4d&amp;est=AOO%2FxaeS7XRbOFRwb3RbaMJPWxmceZ9cPrwlYniPVfXeAKcscB6%2FXaO%2F%2F6qZdpI7FRX2kA%3D%3D)
 
 * * *
 
