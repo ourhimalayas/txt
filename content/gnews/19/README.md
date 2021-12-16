@@ -2,33 +2,22 @@
 ---
 
 
-## 七哥谈房地产崩盘（2021-12-15摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1762409/)
+## 文贵直播12.15.2021：国内浙江疫情是病毒失控所致，中共以加强维稳来应对
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1762529/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+撰稿：大浪小水花
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-16-at-2.56.29-PM.png)图片来源：GTV & GETTR
+郭先生在2021年12月15日大直播中重申，中共国不存在他们没有病别人有病的问题。中共制造这个病毒，原来是想在香港把学生干倒，然后让美国、欧洲逐渐感受到病毒，但它失控了，然后从区域性的放毒，目标性的放毒，到了失控的大面积放毒。
 
-来源：郭先生2021-12-15直播09:30:04 摘录
+郭先生指出，由于新冠疫情中共国实际上已经死了几千万人，否则中国的花圈、火葬场生意就不会那么好。**仅仅****2020年一年，中共国就新增产一万七千套火葬设备生产线**。对于国内疫情导致的死人，中共通过媒体管控秘而不宣，他们的底线是不死自家人，最好是死老人、残疾人、穷人。
 
-不是开玩笑的，冬奥会之后房地产崩塌的时候你会看到无数的人魂飞魄散，为啥叫魂飞魄散你不是没家了不是像盘古撵到大街上冻你零下10度，还有人后面追杀要钱。就像这个四川的是我的老同事，人家原来挣的钱，人家买的房子人家不欠贷款，不欠贷款的你不能卖。在北京有贷款的你现在你要听我的，还要假贷款还利息，你想这是个什么概念，哪有这种不要脸的事情啊。人家的房子你不让人家卖，人家贷款都要假贷款还你利息，你现在天下哪有这种事情。我又要跟你上床啊，我还不想脱裤子。就这种是吧。这什么概念这是？所以说房地产，今天讲到这时候兄弟姐妹们，他一定是会成为中国共产党灭亡的最核心的，一定是导致雪崩的那个关键的雪花。所以今天我请兄弟姐妹们，但凡有家人的你不要要求结果一定告诉家人能拿一块拿一块，能拿一毛拿一毛赶快走人。
+与此同时，**中共国进一步加强维稳，明确要求凡是闹事的刁民，严惩不贷，依法严惩，该抓的抓、该杀的杀**。对于企业，一切都国有化，切断供应链，各种隔离限制，想要把中共国变成北朝鲜，叫你进不来、出不去。墙内已经完全进入最黑暗的时代。
 
-校对：HimaFaFA
-发布：HimaBoy
+郭先生强调，整个中共国的病毒是失控的，江浙一带的疫情一定也是失控所致，不存在任何放毒，也不存在任何政治问题。
 
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+参考链接： [https://gettr.com/streaming/pjqagc144c](https://gettr.com/streaming/pjqagc144c)
 
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+校对发布 : Shifter
 
  
 

@@ -2,32 +2,31 @@
 ---
 
 
-## 新中国联邦在多领域领先世界
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1761830/)
+## 著名的百老汇演出因奥密克戎病毒而取消
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1761935/)
 
-作者：香草山农场-晓仙女
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月15日，郭文贵先生在当天的直播中向战友们展示了G-fashion的新品。而在谈到G-fashion产品的品质和时尚时，郭先生表示，新中国联邦所展示的时尚将引领全球，我们的行为更会改变世界。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-16-下午11.08.25.png)
-另一方面，在当今世界谈论网络科技3.0时，郭先生解释道，G系列非但早已超越了3.0，爆料革命还在网络科技方面引领着世界。郭先生强调，G系列以传播者为核心，还能让他们进出自由，且不会无故被屏蔽。
+撰稿：GoergeC（乔治）
+上传：追着曙光跑
 
-郭先生还声明，新中国联邦人是真正的“无苗族”，更是世界上最健康的族群，因此，每一个新中国联邦人都不需要看别人脸色，反应当做到不卑不亢，同时自信地面对无限美好的未来。
+据NEWSMAX新闻12月17日的报道，出于担心新的中共病毒奥密克戎（omicron）变种的原因，纽约市取消了百老汇（Broadway）的一系列大型演出，包括”蒂娜”、”哈利波特与被诅咒的孩子”、和”不要太骄傲”。因为百老汇公司内部出现部分中共病毒阳性的确证病例，蒂娜·特纳音乐剧宣布将演出推迟到下周。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Image-2021-12-17-at-00.35.02.jpeg)图片来源：原新闻
+据美国国家广播公司（NBC）报道，美国疾病控制和预防中心（CDC）负责人周二表示，纽约和新泽西州正在以高出全国平均水平四倍的速度追踪奥密克戎变种的感染。百老汇在去年的大部分时间都没有开放，并于今年7月宣布所有到剧院现场的观众都必须接种疫苗才能观看百老汇的演出。
 
-参考链接：[2021年12月15日 文贵大直播：Billboard和iTunes全球打榜记录- Hcoin To The Moon；欧美制裁 奥运人权经济；疫苗灾难 危害验证抗议 ；国内经济 地产负债脱钩；终共行动 中共是否报复](https://gtv.org/video/id=61b9e8037882000d5100be68)
+自感恩节以来，纽约州每10万人中COVID-19病例的平均值增长了58%。据福克斯（Fox ）报道，纽约民主党州长霍赫尔（Kathy Hochul）称这种中共病毒确证病例急剧增加令人震惊，导致她发布了室内强制带口罩的行政命令。
 
-![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+评论：早在12月3日，郭文贵先生在文贵大直播节目中就表示，奥密克戎变种病毒的传播能力极强，但是毒性不大。现在病毒的发展正如文贵先生所预测的一样，确证病例上升迅速，但是死亡病例并没有呈现相应的增加趋势。
 
-总编：文特
-编辑：文特
-校正/发稿：呼吸的雾霾（文小呼吸）
+值得一提的是，美国左派民主党大本营纽约州是推广强制疫苗政策最为积极的州，然而纽约州中共病毒的肆虐情况却是美国最严重的地区，远高于反对强制疫苗政策的保守派共和党州。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+这一事实既验证了爆料革命和文贵先生对中共病毒的精准判断，同时也说明中共疫苗不仅不能阻挡中共病毒的传播而且反而能加剧病毒的扩散。相信在几个月后，全世界的疫苗灾难将在我们新中国联邦人的努力下得到彻底的逆转！
+
+新闻来源：[Popular Broadway Shows Canceled Over COVID-19 Omicron Variant](https://www.newsmax.com/thewire/broadway-new-york-city-covid-19-lockdowns/2021/12/15/id/1048876/)
+[2021年12月03日 文贵大直播：各国疫苗政策近况；国内疫苗政治，疫苗经济及疫苗灾难的最新消息；Omicron变异病毒在亚洲地区的进展；iTunes打榜记录- Hcoin To The Moon；美国世界经济变化；喜数字银行牌照及赌场牌照的意义](https://gtv.org/video/id=61aa1cecd6388d55041591e6)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -17,6 +17,19 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/16/2021 10:18 PM (UTC)`
+
+12/16/2021 Miles Guo’s GETTR: “VP” Peng Liyuan joined the show yesterday, and why did I say that right again? It’s also said that Wang Jianlin (Wanda) had taken over Yuda Palace Hotel. Hope he can manage it well, and God bless him. Don’t turn Yuda, the Buddha’s Hands-shaped building, into “Buddha's Hands on Fire”<br/><br/>12/16/2021 文贵盖特：听说昨天彭“副主席”正式出场了，七哥咋又蒙对了呢？据说万达王健林把裕达国贸酒店拿走了？希望他好好管理，可千万别让裕达变成“火佛手”啊<br/>
+![img](https://media.gettr.com/group25/getter/2021/12/16/22/2c517dc4-55b5-91e1-0693-cbda8117466a/out.jpg)
+
+---
+
+`@miles 12/16/2021 10:12 PM (UTC)`
+
+16/12/2021  On 7th Day of Launch, MV "Hcoin To the Moon" Hits iTunes <br/> No. 1 🥇on 16 Countries Top MV Charts !<br/>No.1🥇 on 12 Countries Rock MV Charts!<br/>No.1🥇 on 8 Countries Rock song Charts!<br/>No.1🥇on 4 countries Hip-pop/Rap song Charts!<br/>Miracle continues…….🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, USA, Taiwan, Australia, Canada, Singapore, Cambodia, Laos, Hungary，Italy, Philippines, Malaysia, Fiji, Latvia, Macau, Finland!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1761435/<br/><br/>12月16号，MV版Hcoin To the Moon上线第7天位列iTunes<br/>16国热门MV榜首🥇！<br/>12国摇滚MV榜首🥇！<br/>8国摇滚歌曲榜首🥇！<br/>4国嘻哈歌曲榜首🥇！<br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港，美国，台湾，澳大利亚，加拿大，新加坡，柬埔寨，老挝，匈牙利, 意大利，菲律宾， 马来西亚，斐济，拉脱维亚，澳门，芬兰的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏
+
+---
+
 `@miles 12/16/2021 7:34 PM (UTC)`
 
 12月16号：<br/>我的天呢，共产党完球的了！
@@ -143,19 +156,6 @@ Dec 14, 2021 Breaking news: Mr. Miles Guo's latest single “HCoin to The Moon�
 `@miles 12/14/2021 4:22 PM (UTC)`
 
 12月14号爆炸新闻：郭文贵先生最新单曲HCoin to The Moon已连续两周蝉联公告牌世界数字歌曲销量排行榜的榜首🥇, 这不仅创造了郭先生所有单曲的个人最好成绩，也创造了非专业歌手在世界最权威音乐排行榜的最好成绩，更是又一次创造了中国人在世界乐坛前所未有的历史奇迹！再次感谢新中国联邦的全球战友们，我们用自己的行动向全世界证明我们团结灭共的力量和决心！🎉🎉🎉🎉🎉🎉🎉🙏🙏🙏🙏🙏🙏🙏<br/><br/>Hcoin To the Moon连续2周登上Billboard全球数字歌曲销量榜首！<br/>https://gnews.org/zh-hans/1754720/
-
----
-
-`@miles 12/14/2021 2:21 PM (UTC)`
-
-<br/>12月14号：尊敬的战友们好，你们健身了吗？你们传播C C P病毒疫苗解药的真相了吗？一切都已经开始！
-![img](https://media.gettr.com/group24/getter/2021/12/14/14/8eb0e5e8-a8f5-a1c6-5c08-cefeefe429f6/out.jpg)
-
----
-
-`@miles 12/14/2021 1:27 PM (UTC)`
-
-14/12/2021  On 5th Day of Launch, MV "Hcoin To the Moon" Hits <br/> No. 1 🥇on 18 Countries Top MV Charts !<br/>No.1🥇 on 16 Countries Rock MV Charts!<br/>No.1🥇 on 11 Countries Rock song Charts!<br/>No.1🥇on 7 countries Hip-pop/Rap song Charts!<br/>Miracle continues…….🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, USA, Taiwan, Japan, France, Australia, Canada, Singapore, New Zealand, Thailand, Cambodia, Laos, Netherlands, Hungary， Philippines, Malaysia, Fiji, Latvia!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1753909/<br/><br/>12月14号，MV版Hcoin To the Moon上线第5天位列iTunes<br/>18国热门MV榜首🥇！<br/>16国摇滚MV榜首🥇！<br/>11国摇滚歌曲榜首🥇！<br/>7国嘻哈歌曲榜首🥇！<br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港，美国，台湾，日本，法国, 澳大利亚，加拿大，新加坡，新西兰, 泰国，柬埔寨，老挝，荷兰，匈牙利，菲律宾， 马来西亚，斐济，拉脱维亚的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏
 
 ---
 
