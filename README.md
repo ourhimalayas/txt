@@ -15,91 +15,91 @@
 
 ---
 
-### [美国客运铁路Amtrak暂停为员工接种疫苗](/content/gnews/1/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [美国一些大型医院放弃了疫苗强制](/content/gnews/1/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [中共国房地产崩溃已捂不住，将毁掉2-3代中国人！](/content/gnews/2/README.md)
+### [香港商业地产流入6千多亿资金。中共官员到香港投资避险](/content/gnews/2/README.md)
  ` 焦點20分`
 
-### [疾病预防控制中心警告即将到来的欧米克戎大面积传播](/content/gnews/3/README.md)
+### [美国客运铁路Amtrak暂停为员工接种疫苗](/content/gnews/3/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [中共国房地产崩溃已捂不住，将毁掉2-3代中国人！](/content/gnews/4/README.md)
+ ` 焦點20分`
+
+### [疾病预防控制中心警告即将到来的欧米克戎大面积传播](/content/gnews/5/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [反疫苗的英雄Miles郭和爆料革命排第一](/content/gnews/4/README.md)
+### [反疫苗的英雄Miles郭和爆料革命排第一](/content/gnews/6/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [越南发生第5起“学生在注射辉瑞疫苗后死亡”事件](/content/gnews/5/README.md)
+### [越南发生第5起“学生在注射辉瑞疫苗后死亡”事件](/content/gnews/7/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美军侦察飞机监视解放军攻台演习](/content/gnews/6/README.md)
+### [美军侦察飞机监视解放军攻台演习](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [GTV新闻访谈简报|2021年12月16日早](/content/gnews/7/README.md)
+### [GTV新闻访谈简报|2021年12月16日早](/content/gnews/9/README.md)
  ` 纽约香草山MOS01`
 
-### [人类和天地之间沟通就是音乐](/content/gnews/8/README.md)
+### [人类和天地之间沟通就是音乐](/content/gnews/10/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [制造于佛罗伦萨：重生的时刻](/content/gnews/9/README.md)
+### [制造于佛罗伦萨：重生的时刻](/content/gnews/11/README.md)
  ` 纽约香草山MOS03`
 
-### [不列颠哥伦比亚省小商业主因地产税突然增加而受困](/content/gnews/10/README.md)
+### [不列颠哥伦比亚省小商业主因地产税突然增加而受困](/content/gnews/12/README.md)
  ` MG FARM`
 
-### [中共計劃向美國有影響力人士支付費用以推廣冬奧會](/content/gnews/11/README.md)
+### [中共計劃向美國有影響力人士支付費用以推廣冬奧會](/content/gnews/13/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共计划向美国有影响力人士支付费用以推广冬奥会](/content/gnews/12/README.md)
+### [中共计划向美国有影响力人士支付费用以推广冬奥会](/content/gnews/14/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [文贵直播12.15.2021 未来3年灭共大游行的“三防”与“两准备”](/content/gnews/13/README.md)
+### [文贵直播12.15.2021 未来3年灭共大游行的“三防”与“两准备”](/content/gnews/15/README.md)
  ` 秘密翻译组-原创组`
 
-### [玛莎·布莱克本参议员：对于北京冬奥会的抵制应当是全面而彻底的](/content/gnews/14/README.md)
+### [玛莎·布莱克本参议员：对于北京冬奥会的抵制应当是全面而彻底的](/content/gnews/16/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [七哥谈房地产崩盘（2021-12-15摘录）](/content/gnews/15/README.md)
+### [七哥谈房地产崩盘（2021-12-15摘录）](/content/gnews/17/README.md)
  ` MG FARM`
 
-### [滴水穿石：西藏恢复独立之日， 中共红魔倒毙之时](/content/gnews/16/README.md)
+### [滴水穿石：西藏恢复独立之日， 中共红魔倒毙之时](/content/gnews/18/README.md)
  ` 滴水穿石`
 
-### [七哥谈GFashion (2021-12-15摘录）](/content/gnews/17/README.md)
+### [七哥谈GFashion (2021-12-15摘录）](/content/gnews/19/README.md)
  ` MG FARM`
 
-### [西喜时事新闻简报 — 美国时事篇](/content/gnews/18/README.md)
+### [西喜时事新闻简报 — 美国时事篇](/content/gnews/20/README.md)
  ` wenwu`
 
-### [七哥谈反假疫苗（2021-12-15摘录）](/content/gnews/19/README.md)
+### [七哥谈反假疫苗（2021-12-15摘录）](/content/gnews/21/README.md)
  ` MG FARM`
 
-### [西班牙调查发现疫苗护照计划对病毒感染率并无影响且传递错误信号：接种疫苗者不会传播病毒](/content/gnews/20/README.md)
+### [西班牙调查发现疫苗护照计划对病毒感染率并无影响且传递错误信号：接种疫苗者不会传播病毒](/content/gnews/22/README.md)
  ` 波士顿五月花农场`
 
-### [七哥谈生物科技（2021-12-15摘录）](/content/gnews/21/README.md)
+### [七哥谈生物科技（2021-12-15摘录）](/content/gnews/23/README.md)
  ` MG FARM`
 
-### [银河快讯:日本开始第三剂疫苗职场接种申请；电子疫苗接种证书将用于出入境手续](/content/gnews/22/README.md)
+### [银河快讯:日本开始第三剂疫苗职场接种申请；电子疫苗接种证书将用于出入境手续](/content/gnews/24/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [七哥谈选举与查封共产党（2021-12-15摘录）](/content/gnews/23/README.md)
- ` MG FARM`
-
-### [银河快讯：日本生存危机与台湾紧急状态相关；日本呼吁“外交抵制”北京冬奥会](/content/gnews/24/README.md)
+### [银河快讯：日本生存危机与台湾紧急状态相关；日本呼吁“外交抵制”北京冬奥会](/content/gnews/25/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [日本首相将不出席北京冬奥会开幕式](/content/gnews/25/README.md)
+### [日本首相将不出席北京冬奥会开幕式](/content/gnews/26/README.md)
  ` HimalayaRussia`
 
-### [拜登政府对中共虐待维族人实施新制裁](/content/gnews/26/README.md)
+### [拜登政府对中共虐待维族人实施新制裁](/content/gnews/27/README.md)
  ` HimalayaRussia`
 
-### [大疆创新等8家中企被美国政府列入投资黑名单](/content/gnews/27/README.md)
+### [大疆创新等8家中企被美国政府列入投资黑名单](/content/gnews/28/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国开发新软件工具可预测有可能激怒中共的行动](/content/gnews/28/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [英国首相遭受保守党内大面积反水，新冠病毒通行证获议会批准](/content/gnews/29/README.md)
+### [美国开发新软件工具可预测有可能激怒中共的行动](/content/gnews/29/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [中共正在利用美国的资金和技术称霸全球](/content/gnews/30/README.md)
