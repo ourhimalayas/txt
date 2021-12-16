@@ -2,32 +2,36 @@
 ---
 
 
-## 中共制造台湾青年歌颂冬奥会的假象
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1761198/)
+## 您的宠物会感染COVID-19吗？
+` Zero-Day【零时差】` [轉載自GNews](https://gnews.org/zh-hans/1761216/)
 
-作者：台湾宝岛农场 – 鬥陣來拼
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间12月15日，据有关媒体消息显示，为了营造台湾同胞，尤其是台湾青年积极参与中共北京冬奥会志愿服务项目的假象，中共北京市政府台湾事务办公室组织了部分所谓的“在京台胞”参与录制2022年冬奥会的主题口号推广歌曲。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/6-31.jpg)
-对此，台湾民进党立委王美惠质疑道，中共刻意选择旅居中共国的台湾青年拍摄该宣传短片，试图透过歌曲影片混淆国际视听，尤其在西方民主国家接连主张抵制北京冬奥会的当下，中共此举实为利用台湾年轻人当宣传样板，妄图塑造“台湾是中共国的一部分”这一假象。
+![400.jpeg](https://assets.gnews.org/wp-content/uploads/2021/12/F6B530D4-2A0F-4464-B3D4-643E8B17C50F.jpeg)
+2021 年 12 月 16 日，艾玛 H.托宾纽约（美联社发文题为：您的宠物会感染 COVID-19 吗？
 
-王美惠还痛批中共政府处处打压台湾，更加在中共国境内严重迫害人权。为此，王美惠呼吁台湾政府应加入美国等民主国家的行列，共同抵制中共北京冬奥会。
+是的，宠物和其他动物可能会感染导致 COVID-19 的冠状病毒，但卫生官员表示，它们将其传播给人类的风险很低。
 
-参考链接:[中共推台灣青年歌頌北京冬奧 立委王美惠：別利用台灣年輕人](https://news.ltn.com.tw/news/politics/breakingnews/3769631)
+狗、猫、雪貂、兔子、水獭、鬣狗和白尾鹿都是检测呈阳性的动物，大多数情况下是从感染者那里感染的。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+虽然您不必太担心从宠物那里感染 COVID-19，但他们应该担心从您那里感染。根据[美国疾病控制与预防中心的](https://www.cdc.gov/coronavirus/2019-ncov/daily-life-coping/animals.html)说法，确诊或疑似 COVID-19 的人应避免与宠物、农场动物和野生动物以及其他人接触。
 
-总编：文真
-编辑：Kathy文艺
-校正/发稿：Fei797
+安大略兽医学院的斯科特·威斯博士说：“如果你因为生病或可能接触到其他动物而不愿靠近另一个人，请不要靠近另一只动物。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+这种特殊的冠状病毒[最有可能首先从动物](https://apnews.com/article/coronavirus-pandemic-science-health-covid-19-083bd75a801f9824e0b9ad7316062a5c)传染[给人类](https://apnews.com/article/coronavirus-pandemic-science-health-covid-19-083bd75a801f9824e0b9ad7316062a5c)，从而引发大流行，因为这种病毒很容易在人与人之间传播。但它不容易从动物传播到人。威斯说，水貂是已知的唯一一种从人类身上感染病毒并将其传播回来的动物。
+
+**北欧的三个国家记录了该病毒从人传播到水貂养殖场的水貂的病例。病毒在动物之间传播，然后再传回农场工人。**
+
+Weese 说，动物获得和传播病毒的难易程度可能会因不同的变种而异，防止病毒在动物之间传播的最佳方法是在人与人之间控制它。
+
+编译/玛莉娜
+
+审阅/丘杰斯
+
+上传/天赐良闻
+
+[援引链接](http://https%20you://apnews.com/article/coronavirus-pandemic-science-health-lifestyle-animals-c4cd49b1aac1e7a3aaa7ffdef9ad9be8)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

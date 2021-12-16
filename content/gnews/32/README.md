@@ -2,31 +2,35 @@
 ---
 
 
-## 秘翻在线: 洛杉矶校董事会撤回强制接种疫苗的最后期限
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1761125/)
+## 墙内多地国家级粮食储备库高官被调查
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1761140/)
 
-撰稿:牛小妹
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Image-1-2-2.jpg)
-图片:大纪元
+作者：日本方舟农场 – Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+近日，据中共媒体消息称，中共正在以所谓的“反腐”名义密集地查处墙内各地粮食系统的相关高级官员。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/5-23.jpg)
+最近一个月来，具媒体报道，中共国内山西、浙江和云南等地的粮食系统高官被当地纪委查办，其中以云南省被波及的官员数量为最。据悉，被查处的各级官员职位下至中共国家粮食储备库主任、党支部书记，上至粮食局局长和粮食储备库法定代表人。而从各类通报案例来看，目前所有的涉案人士全部与粮库中储备粮短缺有关。
 
-**政府强制疫苗接种是剥夺人民的医疗自主权**
+有报道提及，此次在全国范围内对储备粮问题开展专项巡视、巡察是应中共政府的要求，这也是中共国内第一次以省、市、县三级联动的方式，在一个集中领域开展专项巡视、巡察工作。而据巡查结果显示，中共国的粮食储备已经出现了严重的问题，各地上报的储粮数目与实际储粮数额间存在着巨大的缺口。 分析人士对此表示，中共国的粮食危机问题已经无法掩盖，其粮食储备现状令人堪忧。
 
-10 月 1 日，加州州长加文．纽森 (Gavin Newsom) 在新闻发布会宣布加州成为第一个强制要求在全州范围内为学童接种中共病毒疫苗的州政府。大纪元时报引述奥兰治县教育委员会主席玛丽·巴克Mari Barke说，”我坚信父母的权利，父母应该知道什么对他们的孩子是最好的选择。中共病毒疫苗只是在实验阶段，除非有严重的合并症，中共病毒对于儿童而言并没有杀伤力，我认为疫苗政策是政府过度干预。”
+参考链接:
+1) . [云南多名粮食系统官员涉嫌严重违纪违法被查](https://china.huanqiu.com/article/45sUo6L0MqV)
+2) . [云南昆明国家粮食储备中转库原党委书记、主任付兴被查](https://www.sohu.com/a/508267298_163278)
+3) . [一周内，云南省6地粮食系统13人被查！](https://news.sina.com.cn/c/2021-12-11/doc-ikyamrmy8362844.shtml)
+4) . [山西粮食系统反腐强力推进 至少7人落马](https://df.youth.cn/dfyw/202111/t20211122_13320021.htm)
 
-**加州强制疫苗政策受阻**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-根据《零对冲》的报导 ，12月14日，加州洛杉矶校董事会因担心学生们拒绝接种疫苗而转为自主学习，决定撤回在1月10日之前要求学生接种中共病毒疫苗的规定，同意延期至明年秋天。
+总编/编辑：Ivy001
+校正/发稿：Fei797
 
-学校董事会成员贾姬·戈德堡 (Jackie Goldberg) 说，”我们别无选择。”即将上任的警司阿尔贝托·卡瓦略 (Alberto Carvalho) 称此举是正确的决定，”在我看来，董事会今天面临的条件和政策调整是因为认识到什么是对学区的学生最有利。”
-
-据《洛杉矶时报》报导，约有 28,000 名学生仍未接种疫苗。该学区将继续要求所有学生在 1 月之前每周进行测试。之后则对没有疫苗接种证明的学生做检测。
-
-**疫苗政策已是强弩之末**
-
-“强制疫苗政策在几个月之内会停止。”郭文贵先生在大直播中说，所有参与强制疫苗政策的政府、大药厂、社交媒体、背后暗黑势力都将受到审判。”明年美国中期选举之后，脸书、谷歌等社交媒体将会消失!”文贵先生宣告，正义终将伸张，恶人会有恶报!
-
-消息来源:[LA District Postpones Vaccine Mandate As Thousands Of Students Remain Unvaxx’d](http://LA%20District%20Postpones%20Vaccine%20Mandate%20As%20Thousands%20Of%20Students%20Remain%20Unvaxx'd)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

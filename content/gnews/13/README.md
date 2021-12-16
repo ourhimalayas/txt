@@ -2,28 +2,24 @@
 ---
 
 
-## 康奈尔大学因新冠疫情关闭校园
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1761828/)
+## 新中国联邦在多领域领先世界
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1761830/)
 
-作者：纽约香草山文艺部 – 宁文静
+作者：香草山农场-晓仙女
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月14日，康奈尔大学在其官方网站上发出公告称，该校目前已经发现903名学生的新冠病毒检测结果呈阳性，其中，大部分阳性患者被确诊感染了奥密克戎变种病毒。
+12月15日，郭文贵先生在当天的直播中向战友们展示了G-fashion的新品。而在谈到G-fashion产品的品质和时尚时，郭先生表示，新中国联邦所展示的时尚将引领全球，我们的行为更会改变世界。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-16-下午11.08.25.png)
+另一方面，在当今世界谈论网络科技3.0时，郭先生解释道，G系列非但早已超越了3.0，爆料革命还在网络科技方面引领着世界。郭先生强调，G系列以传播者为核心，还能让他们进出自由，且不会无故被屏蔽。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide8-2.jpeg)
+郭先生还声明，新中国联邦人是真正的“无苗族”，更是世界上最健康的族群，因此，每一个新中国联邦人都不需要看别人脸色，反应当做到不卑不亢，同时自信地面对无限美好的未来。
 
-为此，康奈尔大学决定关闭其位于纽约州的伊萨卡校区，并将该校区本学期的期末考试改为线上进行。同时，该校将取消即将举行的毕业典礼及其它各类活动。另外，康奈尔大学也关闭了校园图书馆，更禁止所有外来人员进入校园。
+参考链接：[2021年12月15日 文贵大直播：Billboard和iTunes全球打榜记录- Hcoin To The Moon；欧美制裁 奥运人权经济；疫苗灾难 危害验证抗议 ；国内经济 地产负债脱钩；终共行动 中共是否报复](https://gtv.org/video/id=61b9e8037882000d5100be68)
 
-据悉，这所常春藤名校的师生总体新冠疫苗接种率到达97%。其中，该校专业教师的疫苗接种率为100%，其他员工的接种率为93%，而本科生的接种率已达99%。
+![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-目前，康奈尔大学已经进入了“红色警戒级别”，这也是自新冠疫情爆发以来，该校首次进入高风险状态。而据该校副校长乔尔·马利纳在一份声明中提及，此次聚集性感染中，几乎所有的奥密克戎病例都是在完全接种新冠疫苗的学生中发现的，其中一部分人甚至还接种了加强针。
-
-参考链接： [Cornell University reports more than 900 Covid-19 cases this week. Many are Omicron variant cases in fully vaccinated students](https://www.cnn.com/2021/12/14/us/cornell-university-covid-cases/index.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
-
-总编：Ivy001
-编辑：Jack Li文阳
-校正/发稿：谐趣园
+总编：文特
+编辑：文特
+校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
