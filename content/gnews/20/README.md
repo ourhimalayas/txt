@@ -2,31 +2,62 @@
 ---
 
 
-## 中共通过广告行业影响和干预澳大利亚政治
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1760800/)
+## Covid 疫苗可能会导致中枢神经系统终生瘫痪（2/2）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1760806/)
 
-整理报道：七彩光
-![](https://assets.gnews.org/wp-content/uploads/2021/12/drew.jpg)图片来源：视频截图
-参议院候选人德鲁·帕夫洛（Drew Pavlou）是澳大利亚人权活动家，以批评中共政府和中国共产党而闻名。近日，该参议院候选人传出了令人震惊的消息，指责昆士兰州拥有七百多块广告牌的毕晓普（Bishop）户外广告公司拒绝刊登批评中共国政府的材料，担心受到白痴中共的报复。
+编译：Jenny Ball
 
-根据发布的消息，毕晓普户外广告公司业务员在电话中告诉帕夫洛，没有广告牌公司会刊登他的广告，因为他们（行业）所有人基本上都通过行业自律串通一起，以避免冒犯中共。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-33.jpg)图片来源：epochtimes.com
 
-对此，12月16日，来自澳大利亚知名智库中心公共事务研究所（The Institute of Public Affairs）的政策总监吉迪恩·罗兹纳（Gideon Rozner）参加了澳洲《天空新闻台》的访谈，指如果这个事情是真的，那么这将是“澳大利亚目前最大的问题”。
+疫苗安全研究基金会向福奇博士提交感人的恳求信，要求他和拜登与受伤害者会面。
 
-罗兹纳告诉天空新闻主持人詹姆斯·莫罗（James Morrow）：“如果中国共产党控制了我们可以在广告牌上张贴的内容，那么，他们渗入的程度有多深多远？每个澳大利亚人都应该对（中共）这种程度的政治干预感到恐惧”。
+以下是疫苗受伤者和代表他们的基金会写给福奇和拜登的信的摘录：
 
-**新闻来源**
+*我们代表数以千计的美国人，他们和我们一样，因**COVID-19**疫苗而受到严重伤害。 我们是支持科学的。我们支持疫苗，我们大多数人都被**FDA**、**CDC**、**NIH**、疫苗制造商和媒体忽视了，就好像我们不存在一样。*
 
-[‘Terrifying’: Senate candidate’s billboards banned for fear of retaliation by CCP](https://www.skynews.com.au/opinion/terrifying-senate-candidates-billboards-banned-for-fear-of-retaliation-by-ccp/video/8083d44c90e31300a5c28582d5b42ba1)
+*作为两位母亲，我们真诚地请求与你们两人会面，希望通过面对面的会面，能够承认我们的存在，并帮助粉碎关于疫苗受伤不是真实的虚假信息。事实上，有些受伤者是儿童，作为父母，我们希望您能够与我们联系。*
 
-**发布：七彩光**
+*我们努力尽自己的一份力量，帮助结束我们国家和世界面临的可怕的流行病。我们是真实的人，我们遵循您的建议，并相信有关**COVID-19**疫苗安全性的科学，但我们的生活已被不断恶化的健康状况彻底摧毁。*
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**在接种**** Covid ****疫苗之前，健康状况零问题的年轻人，现在却不能自理****——****像这样的与疫苗相关的悲剧却没有得到媒体的关注。**
+
+Covid疫苗受害者正在法庭上，就他们的毁灭性伤害作证，其中许多将是永久性的伤害。这些暴行被公共卫生官员和大众媒体隐瞒。**证明你被**** Covid ****疫苗伤害并不意味着你反疫苗或反科学，**但媒体有意诡辩将揭示疫苗伤害称为反疫苗。现在，全美国的医生都在揭发他们的病人因注射中国流感疫苗而直接导致身体衰弱的伤害。
+
+如果您害怕感染中共病毒，**因为媒体认为**它是世界上见过的最严重的流行病（即使它只是另一种流感），那么看看被证明可以增强免疫力的强效超级食品、补品和草药， 并扼杀这些寄生虫，并避免那些有毒的基因治疗的伤害。
+
+想要在您的互联网上获得最好的真实新闻吗？ 收听[FoodSupply.news](http://www.foodsupply.news/2021-11-18-food-shortage-engineered-to-control-people.html)，了解如何通过储备有机营养食品和冬季应急物资，来避免这种人口减少计划。
+
+**评论：福奇要求人们相信科学，那么福奇应该以科学的方法，第一时间与这些疫苗严重伤害的人们交流，以科学地改善所谓的“疫苗”的安全性和效果，不是吗？**
+
+**作为总统在强制全面接种，难道不应该及时和这些疫苗受伤的人们见面，以决策是否应该继续让更多人遭受这样的伤害，不是吗？**
+
+**那他们为什么在受伤人如此声泪俱下的请求中置之不理呢？难怪人们不再相信“福奇科学”；难怪人们不再相信这样的政府！**
+
+请阅读上一篇：[Covid 疫苗可能会导致中枢神经系统终生瘫痪（1/2）](https://gnews.org/zh-hans/1760750/)
+
+文章内容来源：
+
+[Pandemic.news](https://www.pandemic.news/2021-03-04-who-insider-exposes-gavi-gates-perpetrating-plandemic.html)
+
+[TruthWiki.org](http://www.truthwiki.org/cdc-centers-for-disease-control-and-prevention/)
+
+[NaturalNews.com](https://www.naturalnews.com/2021-10-03-cdc-hospitals-fully-vaccinated-deaths-unvaccinated.html)
+
+[ZeroHedge.com](https://www.zerohedge.com/covid-19/joe-rogan-crushes-cnn-over-ivermectin-horse-paste-propaganda-gets-gupta-concede)
+
+[FoodSupply.news](http://www.foodsupply.news/2021-11-18-food-shortage-engineered-to-control-people.html)
+
+[ZeroHedge.com](https://www.zerohedge.com/covid-19/joe-rogan-crushes-cnn-over-ivermectin-horse-paste-propaganda-gets-gupta-concede)
+
+[naturalnews][Covid jabs can cause the central nervous system to go absolutely HAYWIRE, possibly for life](https://www.naturalnews.com/2021-12-14-covid-jabs-can-fry-central-nervous-system.html)
+
+* * *
+
+*审核：文乐*
+*校对 : 阿伯塔*
+*发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-3.jpeg)
 
  
 

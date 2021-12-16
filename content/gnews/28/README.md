@@ -2,52 +2,53 @@
 ---
 
 
-## 盘古被逐员工和战友及新疆西藏台湾香港同胞HDO护身
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1760636/)
+## 维州零售商店不再强制要求疫苗证明但口罩令保留
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1760686/)
 
-原视频连接：[2021年12月15日 文贵大直播：Billboard和iTunes全球打榜记录- Hcoin To The Moon；欧美制裁 奥运人权经济；疫苗灾难 危害验证抗议 ；国内经济 地产负债脱钩；终共行动 中共是否报复](https://gtv.org/video/id=61b9e8037882000d5100be68)
+拟稿：金生水
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Untitled5.png)图片来自网络
+澳媒《9 News》近日报道，澳大利亚维多利亚州州卫生部长宣布，现在将允许未接种疫苗的人前往维多利亚州的零售店，但仍然必须戴口罩。
 
+维多利亚州政府在圣诞节前对该州的中共病毒大流行限制进行了彻底改变，特别是围绕零售环境。
 
+卫生部长马丁·弗利表示，新的公共卫生命令对于“维持我们接种疫苗的经济支柱”至关重要。
 
-**郭文贵先生：**你看着我今天我跟你说的，我们所有的盘古这次被他给踢到大街上的员工，记住今天你七哥说的话，都会让他们拥有喜币，一个都不会少。而且我让他们未来的五年不在盘古工作拿到的工资，通过喜币一定比盘古工资多，记住我今天郭文贵说的这句话。
+人们将不再需要完全接种疫苗才能进入非必要的零售、房地产检查和拍卖、礼拜场所、婚礼和葬礼。
 
-而且我让共产党找都找不着，而且我让他们自动而然地他们就拿到了喜联储的整个KYC，然后拥有账号，然后点到点地他在家里边儿睡着觉的时候，这个H-Dollar就到他账上去了，而且在国内大陆，在共产党没灭之前，这在全国各地的我的员工、战友们都可以拿HDO去买很多吃的东西，直接告诉他，你去拿这个东西到叫猫本餐厅进去以后，对方就知道你来了，HDO，吃完饭以后你点一下你走就行了，就这么牛！
+但是，人们必须接种疫苗才能在维多利亚州获得美发和美容服务。
 
-然后你要是说去了文艺在国内的，去了国内到文艺的某个点，文艺就知道这是战友，是吧，进来以后你就会你点什么菜，他就点完吃完，文艺你这边点一个HDO你就走了，永远不可查，就是共产党拿着你给警察以后，手机他什么都看不见，不但看不见，文艺收了1万个HDO、1亿个HDO，文艺想转到外面，一定转走。
+维州在零售环境中的口罩要求，预计今天将被取消。
 
-文艺想变成这手机什么痕迹没有，就变成一个像硬盘似的，直接就是一个币可以给到世界任何人，这就是西藏人民、新疆人民、台湾同胞、香港同胞未来，这就叫喜联储的牛叉的地方，你很多人他读不懂！他读不懂！
+但是，餐馆、咖啡馆、酒吧和酒馆将继续禁止未接种疫苗的人进入。
 
-就像今天穿着这个鳄鱼皮衣裳，你不知道这个G-Fashion，就像草根小哥，他是拿最土的农民的老家的说法，是不是我生产一块钱我加两块钱我卖出去，现在经济都不好了，怎么卖衣服呢？
+18 岁以下的人将不再需要在餐饮场所出示疫苗接种证明，以前的安排是 12 岁及以上。
 
-咱从来没想卖衣服，我们想卖的是衣服的新规则，通过卖衣服我们是要找到真正的不是要买衣服的人，是能创造未来的人，就像耶稣、穆罕默德、基督一样，你找到是什么摩西好，东西也好，观世音菩萨也好，观天菩萨也好，来世菩萨也好，他要结因缘。
+“就这些安排而言，特别是对于圣诞节期间的家庭来说，最多可容纳 18 人是有道理的，”弗利先生说。
 
-我这叫因缘的平台，验证你的这叫做什么，验证你的验法平台、施法的平台、戒法的平台，这大了去了是吧，这可大了去了。
+此后维州不需要在宗教场合戴口罩，例如婚礼和葬礼，包括未接种疫苗的人。
 
-编辑整理：喜马拉雅的肉夹馍；
+“如果活动在礼拜场所举行，则不会有任何疫苗接种要求或参与限制，”弗利先生解释说。
 
-视频制作：Cindy；
+“（但是）如果同样的仪式在招待场所进行，那么疫苗接种要求将继续适用，因为它们将继续适用于所有招待服务。”
 
-视频上传：Cindy；
+此外，暴露于确诊的中共病毒病例的工作场所、健身房、旅行社、剧院和电影院将不再需要进行深度清洁。
 
-G-News发布：黎明之前；
+“通过接触表面被感染的可能性越来越被视为低风险，”弗利先生说。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
+择期手术将恢复到能力的75%的水平，乡村和城镇地区会增加择期手术服务。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+维多利亚州在一夜之间记录了另外四例奥米克戎变体病例，使该州的菌株总数达到 10 例之后，规则发生了变化。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+所谓疫苗对新变种病毒完全无效，黑暗势力和各国政府联手撒下的弥天大谎已经越来越站不住脚。再次恭喜维州反抗疫苗限制令取得巨大胜利！那么昆士兰州本月17号对未接种的新的禁令能否还能撑得住？
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+参考链接：
+[Unvaccinated people allowed into Victorian retail stores but mask mandate to remain](https://www.9news.com.au/national/unvaccinated-people-allowed-into-victorian-retail-stores-but-mask-mandate-to-remain/0d0d658f-c3da-4aaf-927c-626e77b4e394)
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+[Mandatory jabs scrapped for most Victorian retail settings, but masks to remain](https://www.theage.com.au/national/victoria/omicron-scare-at-melbourne-nightspots-as-australia-reopens-to-international-students-20211215-p59hm4.html)
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+发稿：Runaway
+![此图像的alt属性为空；文件名为澳喜图标2-1-2.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1-2.jpg)
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
