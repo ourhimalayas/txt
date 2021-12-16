@@ -2,34 +2,49 @@
 ---
 
 
-## 疫苗强制令下卡车司机流失引发供应链问题
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1761471/)
+## 【Michael.Tonny专栏】中共病毒疫苗导致欧盟3万多人死 300多万人身体受伤害
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1761478/)
 
-作者：银河勇气星—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月14日，据当地媒体报道称，加拿大卡车司机运输集团明确表示，由于美加政府将自2022年1月15日起强制要求跨境卡车司机出示新冠疫苗接种证明，此举将导致业已恶化的供应链问题变得更加严峻。据了解，目前约有数千名卡车司机准备步行抗议此项政策。
+作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide7-6.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-另据加拿大卡车联盟CTA预计，如果加拿大政府继续执行该跨境新冠疫苗接种政策，或将致使约两万名从事跨境运输的卡车司机离职。对此，加拿大私人卡车理事会PMTC也认为，大约将有超过三万名司机因为该疫苗政策而离职，其比例高达26%。PMTC还提到，加拿大非越境的国内司机中未接种新冠疫苗的人数比例更高，达到30%。因此，倘若政府将新冠疫苗计划同时运用于非跨境司机群体中，则只会让如今的供应链问题愈加恶化。
+欧盟疑似药物反应报告数据库[EudraVigilance](https://www.adrreports.eu/en/index.html)报告，截止至2021年12月4日，在注射 COVID-19（中共病毒）疫苗后，欧盟27国共收1,228,780份疫苗副作用报告，其中32,649 人死亡，3,003,296人身体受到伤害，1,409,643人身体受到严重伤害。
 
-资料显示，在过去的22个月中，因政府的强制新冠疫苗接种计划，越来越多的跨境司机选择停止跨境运输，或者彻底离开运输行业，他们倾向于选择不需要被疫苗护照限制的工作。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/EudraVigilance.png)
 
-参考链接：[Vaccine mandate for Canadian truckers could lead to mass exodus, severe supply chain issues](https://www.lifesitenews.com/news/vaccine-mandate-for-canadian-truckers-could-lead-to-mass-exodus-severe-supply-chain-issues/)
+EudraVigilance为European database of suspected adverse drug reaction reports的简称，网站包含在欧洲经济区（ European Economic Area，EEA）内授权使用的药品可疑副作用（也被称为可疑的药物不良反应，relates to suspected side effects）的报告信息。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
+该网站是由欧洲药品管理局（[The European Medicines Agency](https://www.ema.europa.eu/)）管理这些报告，以便包括公众在内的利益相关者可以了解欧洲监管机构（European regulatory authorities）用于审查药物或活性物质（medicine or active substance）安全性的信息。
 
-总编：Ivy001
-编辑：Kathy文艺
-校正/发稿：谐趣园
+由于EudraVigilance 维护的这个数据库仅适用于欧盟 (European Union，EU) 27个欧洲国家，而欧洲国家的总数大约有50个，因此，EudraVigilance的报告并不能反映整个欧洲全貌。整个欧洲在注射中共病毒疫苗后死亡或身体受到伤害的实际人数将远高于EudraVigilance报告的数字。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+这次EudraVigilance关于中共病毒疫苗的报告包含Moderna 的mRNA疫苗CX-024414、Pfizer/Biontech的mRNA疫苗、Astrazeneca的CHADOX1 NCOV-19疫苗和Janssen的AD26.COV2.S疫苗。
+
+这些因注射疫苗受到的身体伤害包括：血液和淋巴系统疾病（Blood and lymphatic system disorders），心脏疾病（Cardiac disorders），先天性、家族性和遗传性疾病（Congenital, familial and genetic disorders），耳朵和耳道疾病（Ear and labyrinth disorders），内分泌疾病（Endocrine disorders），眼部疾病（Eye disorders），胃肠道疾病（Gastrointestinal disorders），一般疾病和给药部位条件（General disorders and administration site conditions），肝胆疾病（ Hepatobiliary disorders），免疫系统疾病（Immune system disorders），感染和侵染（Infections and infestations），受伤、中毒和手术并发症（Injury, poisoning and procedural complications），待研究（Investigations），代谢和营养障碍（Metabolism and nutrition disorders），肌肉骨骼和结缔组织疾病（Musculoskeletal and connective tissue disorders），良性、恶性和未特指的肿瘤（包括囊肿和息肉）（Neoplasms benign, malignant and unspecified (incl cysts and polyps) ），神经系统疾病（Nervous system disorders），怀孕、产褥期和围产期疾病（ Pregnancy, puerperium and perinatal conditions），产品问题（Product issues），精神疾病（Psychiatric disorders），肾脏和泌尿系统疾病（Renal and urinary disorders），生殖系统和乳房疾病（Reproductive system and breast disorders），呼吸、胸和纵隔疾病（Respiratory, thoracic and mediastinal disorders），皮肤和皮下组织疾病（Skin and subcutaneous tissue disorders），社会环境（Social circumstances ），外科和医疗程序（Surgical and medical procedures ），血管疾病（Vascular disorders）。
+
+这里说的身体严重伤害，是指导致死亡、危及生命、需要住院治疗、导致另一种医学上的重要状况或现有住院时间延长、导致持续或严重残疾或丧失能力或者先天性异常/出生缺陷等医疗事故。
+
+下表为四种疫苗导致的副作用汇总信息
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Summary-Adrs-EU-04122021.jpg)
+
+参考数据：
+
+[The European Medicines Agency](https://www.ema.europa.eu/)
+
+[COVID-19 MRNA VACCINE MODERNA (CX-024414)](https://dap.ema.europa.eu/analyticsSOAP/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+40983312)
+
+[COVID-19 MRNA VACCINE PFIZER-BIONTECH (TOZINAMERAN)](https://dap.ema.europa.eu/analyticsSOAP/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+42325700)
+
+[COVID-19 VACCINE ASTRAZENECA (CHADOX1 NCOV-19)](https://dap.ema.europa.eu/analyticsSOAP/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+40995439)
+
+[COVID-19 VACCINE JANSSEN (AD26.COV2.S)](https://dap.ema.europa.eu/analyticsSOAP/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+42287887)
+
+[32,649 Deaths 3,003,296 Injuries Following COVID Shots in European Database of Adverse Reactions as Young, Previously Healthy People Continue to Suffer](https://healthimpactnews.com/2021/32649-deaths-3003296-injuries-following-covid-shots-in-european-database-of-adverse-reactions-as-young-previously-healthy-people-continue-to-die/)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/) 上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

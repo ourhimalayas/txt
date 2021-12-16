@@ -2,33 +2,46 @@
 ---
 
 
-## 12/16每日播报｜美众议院通过《防止强迫维吾尔人劳动法》
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1760985/)
+## 【零时差】Covid：英国创下自大流行开始以来的最高每日病例总数78,610例
+` Zero-Day【零时差】` [轉載自GNews](https://gnews.org/zh-hans/1761004/)
 
-**By:[秘翻新闻](https://gtv.org/broadcast/watch/61baff8d7882000d5101f1b9)**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/5907A031-54DA-4476-B49E-3052809E0569.jpeg)
+2021年12月15日《独立报》报道，英国政府数据显示，英国周三又记录了 78,610例每日 [Covid-19](https://www.independent.co.uk/topic/covid-19)病例，这是自 2020 年 3 月大流行开始以来感染最严重的一天。这引发了人们对节日期间入院人数过多的担忧。
 
-**2021-12-16**
+这比之前创纪录的每日感染率高出 10,000 多例，这是在去年冬天的高峰期，当时 1 月 8 日报告了 68,053 例感染。
 
-据美国之音12月15日报道，美国国会众议院星期二晚间一致通过了《防止强迫维吾尔人劳动法》（The Uyghur Forced Labor Prevention Act）最终协调版，标志着法案朝着完成立法方向往前迈进一大步。法案将禁止任何强迫劳动生产的产品进入美国市场。随后，法案将送交参议院等待表决，预计也将获得跨党派的大力支持。该法案有望在年底前正式生效成为法律。
+在新感染病例中，英格兰各地报告了 4,237 例额外的 omicron 病例，使英格兰新变种的确诊病例总数达到 9,243。
 
-对此，中共国称坚决反对美国国会借涉疆问题干涉中共国内政。
+在苏格兰，新增了 265 例 omicron 病例，总数达到 561 例，而在威尔士，这一数字几乎翻了一番，达到62 例，而在北爱尔兰，这一数字猛增了 139 例，达到 151 例。
 
-上周，《防止强迫维吾尔人劳动法》已获得众议院压倒性通过。但众议院版本内容与参议院的同名法案版本有所不同，因此法案在获得两院通过后仍需经过协商调整，内容一致后再送回各自院会进行表决。星期二表决的《防止强迫维吾尔人劳动法》为两院磋商后的最终协调版。
+英国卫生安全局表示，在整个四个国家中，又报告了 4,671 例 omicron 变体确诊病例，总数达到 10,017 例。
 
-众议院议长佩洛西表示：“中共国政府对维吾尔人和其他穆斯林少数民族持续进行中的种族灭绝是对全世界良知的挑战，这需要国际社会采取有力且紧迫的行动，”“国会将在两党两院的基础上继续谴责和对抗中国共产党在新疆的侵犯人权行为，并追究其责任。”
+关于疫苗接种，数据显示已经接种了 34,082 剂第一剂、37,888 剂第二剂和 656,711 剂加强剂和第三剂。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/69117E5A-50A6-40DF-8408-0A443711C0CF.jpeg)
+英国首席医疗官发出警告说，英国人应该减少社交活动，以保持圣诞节家庭正常度过的希望。[Chris Whitty](https://www.independent.co.uk/topic/chris-whitty)说[omicron](https://www.independent.co.uk/topic/omicron)变体“正在以绝对惊人的速度发展”。
 
-根据《防止强迫维吾尔人劳动法》内容，法案将要求国土安全部拟定一项清单，列举出与中共国政府合作压迫新疆维吾尔穆斯林少数民族的实体，并禁止所有通过强迫劳动生产的商品流入美国市场。
+NHS England 首席执行官阿曼达·普里查德 (Amanda Pritchard) 在评论激增的病例时表示，最新的每日总数“应该让我们所有人感到担忧”。
 
-白宫方面星期二表示，在新疆人权问题上与国会立场一致。
+英国卫生安全局首席执行官珍妮·哈里斯博士告诉国会议员，omicron 变体“可能是自大流行开始以来我们面临的最重大威胁”，并警告说，“惊人”的病例数接下来的几天与之前相比。她还说“真正的潜在风险”是“病例是否会演变成严重疾病、住院和死亡”。
 
-秘翻新闻主编宝宝编辑报道
+世界卫生组织 (WHO) Covid 特使戴维·纳巴罗 (David Nabarro) 表示，NHS 处于紧急情况，并补充说，他现在比大流行的任何其他阶段都更担心。
 
-发布:星星
+编译/米拉娅
 
-* * *
+审阅/丘杰斯
 
-**By 【秘密翻译组-即时新闻播报组】**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/IMAGE-2021-12-13-113746.jpg)
+上传/天赐良闻
+
+以下作者为本文做出了贡献
+
+[汤姆巴彻勒](https://www.independent.co.uk/author/tom-batchelor)Tom Batchelor；[罗里·沙利文](https://www.independent.co.uk/author/rory-sullivan)；[斯图蒂·米什拉](https://www.independent.co.uk/author/stuti-mishra)
+
+[新闻来源：](https://www.independent.co.uk/news/covid-omicron-symptoms-vaccines-latest-b1977062.html)
+
+[新闻来源2:](https://www.independent.co.uk/news/health/covid-uk-cases-record-today-b1976600.html)
+
+更多关于[冠状病毒病](https://www.independent.co.uk/topic/covid)[新冠病毒](https://www.independent.co.uk/topic/coronavirus)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
