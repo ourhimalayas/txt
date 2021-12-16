@@ -2,46 +2,40 @@
 ---
 
 
-## 快舟一号甲飞行异常，火箭发射再次失败
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1760862/)
+## 中共斥巨资在海外社交媒体上“洗脑”外国人
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1760867/)
 
-**【雅典娜快讯】，紧贴时代脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/812-8.jpg)图片来源：Pakiatan Defence
-整理报道：Sara9
-编辑：文泓
+作者：纽约香草山翻译部 defiance
 
-周二（12月14日），中共国商业公司——航天科工火箭技术有限公司(Expace)的快舟一号甲运载火箭发射失败，没有到达预定轨道，也失去了两颗商业卫星。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-768x103-15.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-15.jpg)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-12-16-at-19.58.25-3.png](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-16-at-19.58.25-3.png)
 
-据太空新闻报道，根据空域封锁通知，当晚9点（GMT02:00，或当地时间周三早上10点）快舟一号甲运载火箭在中国国家太空管理局属下的位于戈壁沙漠的酒泉卫星发射中心升空。快舟一号甲的这次飞行，携带着汽车制造商吉利（Geely）的子公司Geespace的两颗卫星，目的是测试自动驾驶的导航性能。
 
-数小时后，中共官媒报道证实了这次飞行异常暨发射失败，并称将进一步分析和调查具体原因。
+12月11日，一美国自媒体人说自己发现了一个有趣的现象，近期在英文抖音上突然冒出成百上千教外国人学中文的老师，绝大多数为年轻女性，他们的教学内容、教学流程，甚至连假装被网络攻击而装哭、借机吸粉的招数都惊人的一致。 这些老师们通常清一色地举起一块牌子介绍自己，希望看视频的人为其点赞；一开始的教学内容极其简单，就是一些中文单词或常用语，其中不乏中文脏话以吸引眼球。但是随着上传的视频越来越多，带风向的意识形态内容也越来越多，比如，他们会公开表示不承认新疆大屠杀，不承认中共国有流浪者，鼓吹台湾自古就是中共国的一部分等等。
 
-这次失败对商业发射服务提供商Expace来说是一个打击，Expace是大型国有导弹和国防承包商中国航天科技工业集团公司（CASIC）的子公司。CASIC是中国航天科技集团公司（CASC）下属的独立实体，中国航天科技集团公司是中国长征火箭的主要太空承包商和运营商。
+显而易见，这些人就是中共安排的大外宣。中共为了粉饰太平、逃避责任，不惜花费重金雇佣大外宣人员冒充民间人士，在社交媒体上传播谎言、蒙蔽海外人士，无奈方法拙劣、贻笑大方，只能激起全世界人民更强烈的灭共浪潮。
 
-外界预计快舟一号甲将会被停飞，直到解决了这次发射失败的问题。
+参考链接：
 
-在2020年7月航天科工火箭技术有限公司（Expace）第一次发射大型运载火箭快舟11号失败，而快舟一号甲运载火箭上次失败则是在2020年9月12日，当时它在执行第十次飞行任务，发射“吉林一号”高分02C卫星出现异常导致失利，随后停飞了一年。
 
-今年9月、10月、11月快舟一号甲成功发射了三次，这曾让Expace一度感到兴奋。今年11月底，Expace和CASIC（航天科工集团）在第七届商业航天高峰论坛（CCAF）上宣布，将在接下来的三个月内为客户进行七次发射。
 
-太空新闻补充说，Expace的失败可能为中国其他新兴航天公司提供机会，以填补空白并获得发射助推器的经验，而Expace则制定了恢复计划。
+编辑/校对/发稿：有莫举名
 
-这是快舟一号甲的第14次发射，也是第二次遭遇失败。第一次发射于2017年1月进行。该火箭全长约20m，起飞质量约30t，最大直径1.4m。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-6.png)
 
-据悉，CASIC及其子公司还在进行由80颗卫星组成的窄频星座“星云”计划，旨在构建规模化、永续发展的即时遥测星座，2022年目标是将至少12颗卫星发射入轨，不过，这个计划也要由快舟一号甲来负责发射。
+**更多资讯，更多关注**
 
-周二的发射是中国在2021年报告的第51次，也是当年的第三次发射失败。
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-原文链接：[Chinese Kuaizhou-1A rocket launch fails – SpaceNews](https://spacenews.com/chinese-kuaizhou-1a-rocket-launch-fails/)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-**发布：**去中心化Math
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-16.jpg)
 
  
 

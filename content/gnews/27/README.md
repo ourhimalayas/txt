@@ -2,44 +2,62 @@
 ---
 
 
-## 美众议院通过《防止强迫维吾尔人劳动法》待参议院表决
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1760805/)
+## Covid 疫苗可能会导致中枢神经系统终生瘫痪（2/2）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1760806/)
 
-**撰稿：日本东京方舟农场 老孙**
+编译：Jenny Ball
 
-12月14日晚间，美国国会众议院一致通过《防止强迫维吾尔人劳动法》（The Uyghur Forced Labor Prevention Act）的最终协调版，接下来将送交参议院等待表决。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-33.jpg)图片来源：epochtimes.com
 
-上个星期，《防止强迫维吾尔人劳动法》获得众议院压倒性通过。但因众议院版本内容与参议院的同名法案版本内容有所不同，因此法案在获得参众两院通过后仍需经过协商，达成一致后再送回各院上会进行表决。星期二表决的《防止强迫维吾尔人劳动法》为两院磋商后的最终协调版，目前该法案已获得110位两党议员联署支持。
+疫苗安全研究基金会向福奇博士提交感人的恳求信，要求他和拜登与受伤害者会面。
 
-据法案内容，将要求国土安全部拟定一项清单，列举出与中共合作压迫新疆维吾尔穆斯林少数民族的实体，并禁止所有透过强迫劳动生产的商品流入美国市场。
+以下是疫苗受伤者和代表他们的基金会写给福奇和拜登的信的摘录：
 
-同时，法案最终协调版就新疆商品禁令生效日期达成新共识。法案规定，对新疆生产商品的进口禁令将在法案生效后180天后开始执行。相较于参议院原先版本规定的300天大幅缩短，比众议院原先版本提出的120天更长。
+*我们代表数以千计的美国人，他们和我们一样，因**COVID-19**疫苗而受到严重伤害。 我们是支持科学的。我们支持疫苗，我们大多数人都被**FDA**、**CDC**、**NIH**、疫苗制造商和媒体忽视了，就好像我们不存在一样。*
 
-该法案还将设立一个“可反驳的推定”（rebuttable presumption）制度，除非得到美国当局的无强迫劳动的认证，否则一律推定凡在新疆制造的产品均使用了强迫劳动，因此会按照《1930年关税法》（1930 Tariff Act）禁止进口这些产品。
+*作为两位母亲，我们真诚地请求与你们两人会面，希望通过面对面的会面，能够承认我们的存在，并帮助粉碎关于疫苗受伤不是真实的虚假信息。事实上，有些受伤者是儿童，作为父母，我们希望您能够与我们联系。*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/微信图片_20211216125430.png)图片来自《美国之音》
+*我们努力尽自己的一份力量，帮助结束我们国家和世界面临的可怕的流行病。我们是真实的人，我们遵循您的建议，并相信有关**COVID-19**疫苗安全性的科学，但我们的生活已被不断恶化的健康状况彻底摧毁。*
 
-此外，法案最终协调版还删除了部分原本众议院文本中的条款。这些条款要求被列入清单的公司向美国证交所披露与新疆监视或拘留维吾尔人和其他少数民族穆斯林有关联的实体的任何交易。
+**在接种**** Covid ****疫苗之前，健康状况零问题的年轻人，现在却不能自理****——****像这样的与疫苗相关的悲剧却没有得到媒体的关注。**
 
-在众议院完成法案的审议程序后，接下来法案将提交至参议院，预计最快将在星期三获得参议院的表决。通过后由总统签署生效，完成立法程序。
+Covid疫苗受害者正在法庭上，就他们的毁灭性伤害作证，其中许多将是永久性的伤害。这些暴行被公共卫生官员和大众媒体隐瞒。**证明你被**** Covid ****疫苗伤害并不意味着你反疫苗或反科学，**但媒体有意诡辩将揭示疫苗伤害称为反疫苗。现在，全美国的医生都在揭发他们的病人因注射中国流感疫苗而直接导致身体衰弱的伤害。
 
-众议院议长佩洛西（House Speaker Nancy Pelosi, D-CA）表示：“中（共）国政府对维吾尔人和其他穆斯林少数民族持续进行中的种族灭绝是对全世界良知的挑战，这需要国际社会采取有力且紧迫的行动。”
+如果您害怕感染中共病毒，**因为媒体认为**它是世界上见过的最严重的流行病（即使它只是另一种流感），那么看看被证明可以增强免疫力的强效超级食品、补品和草药， 并扼杀这些寄生虫，并避免那些有毒的基因治疗的伤害。
 
-在参议院方面大力推动《防止强迫维吾尔人劳动法》的鲁比奥参议员（Sen. Marco Rubio, R-FL）星期二发表声明说，法案的要求是基本常识，“如果你在新疆制造产品，那就必须证明制造过程中没有奴隶劳动”。
+想要在您的互联网上获得最好的真实新闻吗？ 收听[FoodSupply.news](http://www.foodsupply.news/2021-11-18-food-shortage-engineered-to-control-people.html)，了解如何通过储备有机营养食品和冬季应急物资，来避免这种人口减少计划。
 
-卢比奥还表示，“美国如此依赖中（共）国，以至于我们对为我们制造衣服、太阳能面板和其它产品的奴隶劳动视而不见，但一切在今天发生改变。”他强调：“是时候结束我们对中（共）国的经济依赖了。”
+**评论：福奇要求人们相信科学，那么福奇应该以科学的方法，第一时间与这些疫苗严重伤害的人们交流，以科学地改善所谓的“疫苗”的安全性和效果，不是吗？**
 
-*参考链接：*
+**作为总统在强制全面接种，难道不应该及时和这些疫苗受伤的人们见面，以决策是否应该继续让更多人遭受这样的伤害，不是吗？**
 
-[美众院通过《防止强迫维吾尔人劳动法》 下一步待参院表决](https://www.voachinese.com/a/us-house-passes-uyghur-bill-20211214/6355406.html)
+**那他们为什么在受伤人如此声泪俱下的请求中置之不理呢？难怪人们不再相信“福奇科学”；难怪人们不再相信这样的政府！**
+
+请阅读上一篇：[Covid 疫苗可能会导致中枢神经系统终生瘫痪（1/2）](https://gnews.org/zh-hans/1760750/)
+
+文章内容来源：
+
+[Pandemic.news](https://www.pandemic.news/2021-03-04-who-insider-exposes-gavi-gates-perpetrating-plandemic.html)
+
+[TruthWiki.org](http://www.truthwiki.org/cdc-centers-for-disease-control-and-prevention/)
+
+[NaturalNews.com](https://www.naturalnews.com/2021-10-03-cdc-hospitals-fully-vaccinated-deaths-unvaccinated.html)
+
+[ZeroHedge.com](https://www.zerohedge.com/covid-19/joe-rogan-crushes-cnn-over-ivermectin-horse-paste-propaganda-gets-gupta-concede)
+
+[FoodSupply.news](http://www.foodsupply.news/2021-11-18-food-shortage-engineered-to-control-people.html)
+
+[ZeroHedge.com](https://www.zerohedge.com/covid-19/joe-rogan-crushes-cnn-over-ivermectin-horse-paste-propaganda-gets-gupta-concede)
+
+[naturalnews][Covid jabs can cause the central nervous system to go absolutely HAYWIRE, possibly for life](https://www.naturalnews.com/2021-12-14-covid-jabs-can-fry-central-nervous-system.html)
 
 * * *
 
-*素材采编：老孙*
+*审核：文乐*
+*校对 : 阿伯塔*
+*发布：信心的选择*
 
-*编辑：文顺*
-
-*发布：miumiu*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-3.jpeg)
 
  
 
