@@ -2,32 +2,33 @@
 ---
 
 
-## 中共制造台湾青年歌颂冬奥会的假象
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1761198/)
+## 【快讯】再次“封国”-加拿大官方警告国人不要跨国旅行
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/1761358/)
 
-作者：台湾宝岛农场 – 鬥陣來拼
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间12月15日，据有关媒体消息显示，为了营造台湾同胞，尤其是台湾青年积极参与中共北京冬奥会志愿服务项目的假象，中共北京市政府台湾事务办公室组织了部分所谓的“在京台胞”参与录制2022年冬奥会的主题口号推广歌曲。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/6-31.jpg)
-对此，台湾民进党立委王美惠质疑道，中共刻意选择旅居中共国的台湾青年拍摄该宣传短片，试图透过歌曲影片混淆国际视听，尤其在西方民主国家接连主张抵制北京冬奥会的当下，中共此举实为利用台湾年轻人当宣传样板，妄图塑造“台湾是中共国的一部分”这一假象。
+撰稿：路仁
+![](https://assets.gnews.org/wp-content/uploads/2021/12/unnamed-2.png)图片来源：网络图片
+根据[CP24新闻网](https://www.cp24.com/news/now-is-not-the-time-to-travel-duclos-says-as-canada-warns-against-trips-abroad-1.5708657)，渥太华12月15日（星期三），加拿大联邦卫生部长让-伊夫·杜克洛（ Jean – Yves Duclos ）在渥太华举行新闻发布会，警告所有加拿大人，不要进行所有非必要的国际旅行。 “对于那些计划旅行的人，我非常明确地说，现在不是旅行的时候。” 他说：“Omicron 变种在全球范围内的迅速传播让我们担心可能会考虑旅行的加拿大人会面临最坏的情况。”
 
-王美惠还痛批中共政府处处打压台湾，更加在中共国境内严重迫害人权。为此，王美惠呼吁台湾政府应加入美国等民主国家的行列，共同抵制中共北京冬奥会。
+实际上，加拿大联邦政府早在2021年3月就制定了类似的“封国”措施。但到了10月份，随着所谓的“疫苗接种率”的提高，联邦政府放宽了国际旅行的禁令。时隔两个月，似乎一切都又回到了起点。
 
-参考链接:[中共推台灣青年歌頌北京冬奧 立委王美惠：別利用台灣年輕人](https://news.ltn.com.tw/news/politics/breakingnews/3769631)
+目前，加拿大已禁止在过去14天内去过10个特定非洲国家的所有外国公民入境，以抵消进口Omicron案件的威胁。首席公共卫生官谭咏诗（Dr. Theresa Tam）周三表示，应重新审查该政策。 Duclos 暗示政府可能会很快“澄清”该政策。 “目前，我们所知道的是，即使你接种了两剂疫苗，你也有可能被感染并传播给其他人，” 谭咏诗说。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+目前，“奥米克戎” 变种病毒在加拿大几乎所有的省份都有发现，并且在安大略省出现大爆发。安省卫生部首席医疗官摩尔（Kieran Moore）博士表示：“它似乎比 Delta 更易传播，传播更快，几乎是两到三天，就增长两倍。我相信你们从许多科学分析家和科学家那里听到了这一点，这是一个威胁，我们需要紧急了解其严重性和对卫生系统的潜在影响，”摩尔这样评价新变种，“但如果在整个安大略省实施措施，我们确实希望采取一致的方法。”
 
-总编：文真
-编辑：Kathy文艺
-校正/发稿：Fei797
+安省科学顾问委员会称，每天 10000 个案例的估计“绝对现实”，并表示根据涉及 Omicron 变体的案例的三天估计翻倍时间，它“实际上可能高于这个数字”。安省过去一周的 7 天平均新病例增加了 50%，达到 1,514，但随着涉及 Omicron 变体的病例每三天翻一番，该省看到病例数显着增加可能只是时间问题超过了去年 4 月第三波大流行高峰期间的情况。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+摩尔并未提供感染人群的接种情况。但我们根据BC省 12月14日发布的“奥米克戎”变种感染数据，共计44人感染变种，其中37人为完全接种者。接种感染率84%。
+
+尽管所谓的完全接种疫苗在“奥米克戎”变种病毒面前显得苍白无力，但安省另一名卫生顾问却给出了令人迷幻的逻辑。他指出，鉴于研究表明接种第二剂六个月后的个体对感染的保护作用很小，因此需要加速。 “关键是我们需要争先恐后地（第三剂），我们需要将其与公共卫生措施结合起来，即使每个人都会讨厌它，”他说。 “公共卫生措施不会回到原点，这真的很重要。
+
+参考链接：
+
+[CP24新闻网](https://www.cp24.com/news/now-is-not-the-time-to-travel-duclos-says-as-canada-warns-against-trips-abroad-1.5708657)
+
+* * *
+
+编辑、校对 ctt
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

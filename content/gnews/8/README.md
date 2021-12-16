@@ -2,48 +2,31 @@
 ---
 
 
-## 美国开发新软件工具可预测有可能激怒中共的行动
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1762145/)
+## 七哥谈万一（2021-12-15摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1762233/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/121502.jpg)美国国防部华盛顿五角大楼，图片：来自美联社
-**摘要翻译：**
+文编：Hima
+听写：叮叮
+视频：七哥
 
-夏威夷檀香山，12月15日（路透社）报道–美国太平洋地区的军事指挥官们打造了一个软件工具，以预测中共政府对美国在该地区的行动反应，如军售、美国支持的军事活动，甚至是对台湾等热点地区的国会访问。
+来源：郭先生2021-12-15直播12:12:16 摘录
 
-本周星期二，国防部副部长凯瑟琳·希克斯（Kathleen Hicks）在访问夏威夷的美国印太司令部时听取了关于新型软件工具的介绍。
+很多事情想坏一点是有好处的，但是我告诉这位战友。我觉得我们这场跟共产党战争啊，很少能发生万一，我们到今天我们打成半死的了。我们没让共产党一个人流血，我们战友也没流血，这是他伟大的魅力之处。你们不知道我跟西方人打交道，西方人说你们简直太了不起了，就是你们现在做的这个形式，和现在得到的这种状态，和你们得到这种结果是不可思议的。这就是咱们真的新中国联邦的力量,我不相信有多少人被万一了，被消失，我觉得几乎不可能啊。要有的话万一真要有的话，大家就是不要有任何担忧，如果新中国联邦战友的财富，你登记了，你 KYC 了。新中国联邦一定会对你的家人负责，一定会通过法律，一定在战友的监督下，将所有的财富，归还给战友的家人和你指定的人，这一点都不用担心。而且接下来，在这个就是接下来就是2022年，我们有最重要的数据的鉴定，就刚才我说的生物识别，各种识别，他都是你加密的，你完全在你的意志下可以实现你的财富指定给任何人，你半点不用担心，但是你不能把万一发生你身上，这是最重要的，谢谢。
 
-一位国防官员说，该工具计算的是“战略摩擦”。基于从2020年初以来的数据，评估了影响美中关系的重大活动。这个基于计算机操作的系统将帮助五角大楼预测某些行动是否会激起中共的过度反应。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-目前美国和中共之间的关系已经处于低谷，该工具的使用为各种活动提供了可见性，如国会访问台湾，向地区盟友出售武器，或当几艘美国船只驶过台湾海峡时可能会激起中国的过度或意外的反应。
+**关注我们**
 
-中共声称民主体制的台湾是自己的领土，并在过去一年中多次派遣空军进入台湾的防空识别区，激起了台北的愤怒。
+Discord 账号
 
-该官员称，新软件将使美国官员们能够提前四个月预测计划中的行动。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-**简评：**
+Gettr 账号
 
-据爆料革命郭文贵先生爆料指出，中共一定会攻打台湾，中美必有一战。郭先生还多次向台湾民众发出预警，提醒提前做好准备。基于中共面对的国际和国内的压力，中共的最后一根稻草就是向台湾开战，以舒缓牢牢套牢在其“脖子”上的枷锁。
-
-美国开发新型软件计算“战略摩擦”，从而预测中共对美国的一系列军事行动的反应。实际上是在实际战争之前做军事演习，提前部署计划军事战略和评估风险。一但中共开战，美国会对其进行“快，准，狠”的打击，以尽量减少因战事可能对民众造成的伤害。
-
-新闻链接：[US builds new software tool to predict actions that could draw China’s ire](https://www.taiwannews.com.tw/en/news/4378077)
-
-*翻译/简评: JS*
-
-*校对：感恩*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

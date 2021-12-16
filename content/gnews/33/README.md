@@ -2,33 +2,29 @@
 ---
 
 
-## 您的宠物会感染COVID-19吗？
-` Zero-Day【零时差】` [轉載自GNews](https://gnews.org/zh-hans/1761216/)
+## 【零时差】印尼出现首宗Omicron病例
+` Zero-Day【零时差】` [轉載自GNews](https://gnews.org/zh-hans/1761365/)
 
-![400.jpeg](https://assets.gnews.org/wp-content/uploads/2021/12/F6B530D4-2A0F-4464-B3D4-643E8B17C50F.jpeg)
-2021 年 12 月 16 日，艾玛 H.托宾纽约（美联社发文题为：您的宠物会感染 COVID-19 吗？
+![](https://assets.gnews.org/wp-content/uploads/2021/12/CEACEACB-C8E1-45A4-81D7-F1D610341F9E.jpeg)图：法新社
+雅加达16日报道，中共病毒变异毒株Omicron迅速传播至世界各地，12月16日印尼也传出发现有冠病病患染上这变种病毒，这是该国被发现的第一宗病例。
 
-是的，宠物和其他动物可能会感染导致 COVID-19 的冠状病毒，但卫生官员表示，它们将其传播给人类的风险很低。
+印尼卫生部长布迪指出，国内出现首宗Omicron病例，3名在由亚运选手村改建的中共病毒专门医院隔离设施工作的清洁工，于定期检测中确诊感染冠病，其中一人被证实感染Omicron，而这名男子没有出国的记录。这意味著，他很可能是在设施内染疫。
 
-狗、猫、雪貂、兔子、水獭、鬣狗和白尾鹿都是检测呈阳性的动物，大多数情况下是从感染者那里感染的。
+目前，感染Omicron的清洁工并无出现病症。
 
-虽然您不必太担心从宠物那里感染 COVID-19，但他们应该担心从您那里感染。根据[美国疾病控制与预防中心的](https://www.cdc.gov/coronavirus/2019-ncov/daily-life-coping/animals.html)说法，确诊或疑似 COVID-19 的人应避免与宠物、农场动物和野生动物以及其他人接触。
+此外，当地还出现另外5宗Omicron疑似病例，当中包括2名从美国和英国回国的公民，他们也在设施内隔离。其余3人则来自中共国。这5人的检测报告预计会在三天内出炉。
 
-安大略兽医学院的斯科特·威斯博士说：“如果你因为生病或可能接触到其他动物而不愿靠近另一个人，请不要靠近另一只动物。”
+布迪也强调，目前没有迹象出现社区传播，呼吁民众毋须恐慌。
 
-这种特殊的冠状病毒[最有可能首先从动物](https://apnews.com/article/coronavirus-pandemic-science-health-covid-19-083bd75a801f9824e0b9ad7316062a5c)传染[给人类](https://apnews.com/article/coronavirus-pandemic-science-health-covid-19-083bd75a801f9824e0b9ad7316062a5c)，从而引发大流行，因为这种病毒很容易在人与人之间传播。但它不容易从动物传播到人。威斯说，水貂是已知的唯一一种从人类身上感染病毒并将其传播回来的动物。
-
-**北欧的三个国家记录了该病毒从人传播到水貂养殖场的水貂的病例。病毒在动物之间传播，然后再传回农场工人。**
-
-Weese 说，动物获得和传播病毒的难易程度可能会因不同的变种而异，防止病毒在动物之间传播的最佳方法是在人与人之间控制它。
-
-编译/玛莉娜
+编译/米拉娅
 
 审阅/丘杰斯
 
 上传/天赐良闻
 
-[援引链接](http://https%20you://apnews.com/article/coronavirus-pandemic-science-health-lifestyle-animals-c4cd49b1aac1e7a3aaa7ffdef9ad9be8)
+[援引链接](https://www.sinchew.com.my/20211216/%e5%8d%b0%e5%b0%bc%e5%87%ba%e7%8e%b0%e9%a6%96%e8%b5%b7%e5%a5%a5%e5%af%86%e5%85%8b%e6%88%8e%e7%a1%ae%e8%af%8a%e7%97%85%e4%be%8b/)
+
+
 
 
 

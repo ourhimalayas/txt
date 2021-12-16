@@ -2,26 +2,30 @@
 ---
 
 
-## 疫苗强制令下卡车司机流失引发供应链问题
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1761471/)
+## 美国加强印太战略 联合盟友对抗中共
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1761832/)
 
-作者：银河勇气星—骄子
+作者：日本方舟农场 Andy5
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月14日，据当地媒体报道称，加拿大卡车司机运输集团明确表示，由于美加政府将自2022年1月15日起强制要求跨境卡车司机出示新冠疫苗接种证明，此举将导致业已恶化的供应链问题变得更加严峻。据了解，目前约有数千名卡车司机准备步行抗议此项政策。
+12月14日，相关媒体消息显示，美国国务卿布林肯在本周首次出访东南亚国家时，于印尼发表重要演说表示，美国将强化自身与印太地区的战略伙伴关系，同时要确保南中国海地区的航行自由与台湾海峡的和平稳定。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-16-下午11.08.46.png)
+布林肯强调，国际法庭五年前对中共在南中国海的判决，而今仍然具有法律约束力，而美国也会与该地区的其他国家一起，坚决对中共在南中国海的非法声索行为实施反制。 另外，在15日访问马来西亚时，布林肯还邀请东南亚的各国领导人参与总统拜登举办的峰会。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide7-6.jpeg)
+在同一日召开的美、日、台三边印太安全对话中，美国民主人权和劳工事务局代理首席、副助理国务卿表示，台湾为世界树立了建立、维持并尊重民主社会的榜样。为此，美国应致力于解决印度-太平洋地区的一些主要问题，并应对该地区出现的种种挑战。副助卿强调，民主社会需要团结起来，组成同一阵线，共同行动。
 
-另据加拿大卡车联盟CTA预计，如果加拿大政府继续执行该跨境新冠疫苗接种政策，或将致使约两万名从事跨境运输的卡车司机离职。对此，加拿大私人卡车理事会PMTC也认为，大约将有超过三万名司机因为该疫苗政策而离职，其比例高达26%。PMTC还提到，加拿大非越境的国内司机中未接种新冠疫苗的人数比例更高，达到30%。因此，倘若政府将新冠疫苗计划同时运用于非跨境司机群体中，则只会让如今的供应链问题愈加恶化。
+日本媒体也在当天报道称，日本和美国的第二次“2+2”外长、防长会晤暂定于2022年1月7日召开。本次会晤的主题依旧是关于印太地区频繁冒进的中共，以及台海的和平与安定。
 
-资料显示，在过去的22个月中，因政府的强制新冠疫苗接种计划，越来越多的跨境司机选择停止跨境运输，或者彻底离开运输行业，他们倾向于选择不需要被疫苗护照限制的工作。
+参考链接：
+1）[美国务卿发表印太策略重大演说：共同推进开放、繁荣与和平](https://www.voachinese.com/a/blinken-indo-pacific-vision-20211214/6353138.html)
+2）[日米「2プラス2」来月7日開催で調整](https://www3.nhk.or.jp/news/html/20211215/k10013388451000.html)
+3）[布林肯：美國考慮加大施壓緬甸 將與東協開高峰會](https://udn.com/news/story/6809/5964128)
+4）[美国务院副助卿：台湾民主模式向世界展示](https://www.epochtimes.com/gb/21/12/14/n13436598.htm)
 
-参考链接：[Vaccine mandate for Canadian truckers could lead to mass exodus, severe supply chain issues](https://www.lifesitenews.com/news/vaccine-mandate-for-canadian-truckers-could-lead-to-mass-exodus-severe-supply-chain-issues/)
+![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
-
-总编：Ivy001
+总编：文真
 编辑：Kathy文艺
-校正/发稿：谐趣园
+校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

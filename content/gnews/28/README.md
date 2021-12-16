@@ -2,32 +2,34 @@
 ---
 
 
-## 【零时差】印尼出现首宗Omicron病例
-` Zero-Day【零时差】` [轉載自GNews](https://gnews.org/zh-hans/1761365/)
+## 疫苗强制令下卡车司机流失引发供应链问题
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1761471/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/CEACEACB-C8E1-45A4-81D7-F1D610341F9E.jpeg)图：法新社
-雅加达16日报道，中共病毒变异毒株Omicron迅速传播至世界各地，12月16日印尼也传出发现有冠病病患染上这变种病毒，这是该国被发现的第一宗病例。
+作者：银河勇气星—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月14日，据当地媒体报道称，加拿大卡车司机运输集团明确表示，由于美加政府将自2022年1月15日起强制要求跨境卡车司机出示新冠疫苗接种证明，此举将导致业已恶化的供应链问题变得更加严峻。据了解，目前约有数千名卡车司机准备步行抗议此项政策。
 
-印尼卫生部长布迪指出，国内出现首宗Omicron病例，3名在由亚运选手村改建的中共病毒专门医院隔离设施工作的清洁工，于定期检测中确诊感染冠病，其中一人被证实感染Omicron，而这名男子没有出国的记录。这意味著，他很可能是在设施内染疫。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide7-6.jpeg)
 
-目前，感染Omicron的清洁工并无出现病症。
+另据加拿大卡车联盟CTA预计，如果加拿大政府继续执行该跨境新冠疫苗接种政策，或将致使约两万名从事跨境运输的卡车司机离职。对此，加拿大私人卡车理事会PMTC也认为，大约将有超过三万名司机因为该疫苗政策而离职，其比例高达26%。PMTC还提到，加拿大非越境的国内司机中未接种新冠疫苗的人数比例更高，达到30%。因此，倘若政府将新冠疫苗计划同时运用于非跨境司机群体中，则只会让如今的供应链问题愈加恶化。
 
-此外，当地还出现另外5宗Omicron疑似病例，当中包括2名从美国和英国回国的公民，他们也在设施内隔离。其余3人则来自中共国。这5人的检测报告预计会在三天内出炉。
+资料显示，在过去的22个月中，因政府的强制新冠疫苗接种计划，越来越多的跨境司机选择停止跨境运输，或者彻底离开运输行业，他们倾向于选择不需要被疫苗护照限制的工作。
 
-布迪也强调，目前没有迹象出现社区传播，呼吁民众毋须恐慌。
+参考链接：[Vaccine mandate for Canadian truckers could lead to mass exodus, severe supply chain issues](https://www.lifesitenews.com/news/vaccine-mandate-for-canadian-truckers-could-lead-to-mass-exodus-severe-supply-chain-issues/)
 
-编译/米拉娅
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
 
-审阅/丘杰斯
+总编：Ivy001
+编辑：Kathy文艺
+校正/发稿：谐趣园
 
-上传/天赐良闻
-
-[援引链接](https://www.sinchew.com.my/20211216/%e5%8d%b0%e5%b0%bc%e5%87%ba%e7%8e%b0%e9%a6%96%e8%b5%b7%e5%a5%a5%e5%af%86%e5%85%8b%e6%88%8e%e7%a1%ae%e8%af%8a%e7%97%85%e4%be%8b/)
-
-
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

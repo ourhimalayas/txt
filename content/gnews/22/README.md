@@ -2,48 +2,30 @@
 ---
 
 
-## 【Michael.Tonny专栏】中共病毒疫苗导致欧盟3万多人死 300多万人身体受伤害
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1761478/)
+## 著名的百老汇演出因奥密克戎病毒而取消
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1761935/)
 
-作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+撰稿：GoergeC（乔治）
+上传：追着曙光跑
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+据NEWSMAX新闻12月17日的报道，出于担心新的中共病毒奥密克戎（omicron）变种的原因，纽约市取消了百老汇（Broadway）的一系列大型演出，包括”蒂娜”、”哈利波特与被诅咒的孩子”、和”不要太骄傲”。因为百老汇公司内部出现部分中共病毒阳性的确证病例，蒂娜·特纳音乐剧宣布将演出推迟到下周。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Image-2021-12-17-at-00.35.02.jpeg)图片来源：原新闻
+据美国国家广播公司（NBC）报道，美国疾病控制和预防中心（CDC）负责人周二表示，纽约和新泽西州正在以高出全国平均水平四倍的速度追踪奥密克戎变种的感染。百老汇在去年的大部分时间都没有开放，并于今年7月宣布所有到剧院现场的观众都必须接种疫苗才能观看百老汇的演出。
 
-欧盟疑似药物反应报告数据库[EudraVigilance](https://www.adrreports.eu/en/index.html)报告，截止至2021年12月4日，在注射 COVID-19（中共病毒）疫苗后，欧盟27国共收1,228,780份疫苗副作用报告，其中32,649 人死亡，3,003,296人身体受到伤害，1,409,643人身体受到严重伤害。
+自感恩节以来，纽约州每10万人中COVID-19病例的平均值增长了58%。据福克斯（Fox ）报道，纽约民主党州长霍赫尔（Kathy Hochul）称这种中共病毒确证病例急剧增加令人震惊，导致她发布了室内强制带口罩的行政命令。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/EudraVigilance.png)
+评论：早在12月3日，郭文贵先生在文贵大直播节目中就表示，奥密克戎变种病毒的传播能力极强，但是毒性不大。现在病毒的发展正如文贵先生所预测的一样，确证病例上升迅速，但是死亡病例并没有呈现相应的增加趋势。
 
-EudraVigilance为European database of suspected adverse drug reaction reports的简称，网站包含在欧洲经济区（ European Economic Area，EEA）内授权使用的药品可疑副作用（也被称为可疑的药物不良反应，relates to suspected side effects）的报告信息。
+值得一提的是，美国左派民主党大本营纽约州是推广强制疫苗政策最为积极的州，然而纽约州中共病毒的肆虐情况却是美国最严重的地区，远高于反对强制疫苗政策的保守派共和党州。
 
-该网站是由欧洲药品管理局（[The European Medicines Agency](https://www.ema.europa.eu/)）管理这些报告，以便包括公众在内的利益相关者可以了解欧洲监管机构（European regulatory authorities）用于审查药物或活性物质（medicine or active substance）安全性的信息。
+这一事实既验证了爆料革命和文贵先生对中共病毒的精准判断，同时也说明中共疫苗不仅不能阻挡中共病毒的传播而且反而能加剧病毒的扩散。相信在几个月后，全世界的疫苗灾难将在我们新中国联邦人的努力下得到彻底的逆转！
 
-由于EudraVigilance 维护的这个数据库仅适用于欧盟 (European Union，EU) 27个欧洲国家，而欧洲国家的总数大约有50个，因此，EudraVigilance的报告并不能反映整个欧洲全貌。整个欧洲在注射中共病毒疫苗后死亡或身体受到伤害的实际人数将远高于EudraVigilance报告的数字。
+新闻来源：[Popular Broadway Shows Canceled Over COVID-19 Omicron Variant](https://www.newsmax.com/thewire/broadway-new-york-city-covid-19-lockdowns/2021/12/15/id/1048876/)
+[2021年12月03日 文贵大直播：各国疫苗政策近况；国内疫苗政治，疫苗经济及疫苗灾难的最新消息；Omicron变异病毒在亚洲地区的进展；iTunes打榜记录- Hcoin To The Moon；美国世界经济变化；喜数字银行牌照及赌场牌照的意义](https://gtv.org/video/id=61aa1cecd6388d55041591e6)
 
-这次EudraVigilance关于中共病毒疫苗的报告包含Moderna 的mRNA疫苗CX-024414、Pfizer/Biontech的mRNA疫苗、Astrazeneca的CHADOX1 NCOV-19疫苗和Janssen的AD26.COV2.S疫苗。
 
-这些因注射疫苗受到的身体伤害包括：血液和淋巴系统疾病（Blood and lymphatic system disorders），心脏疾病（Cardiac disorders），先天性、家族性和遗传性疾病（Congenital, familial and genetic disorders），耳朵和耳道疾病（Ear and labyrinth disorders），内分泌疾病（Endocrine disorders），眼部疾病（Eye disorders），胃肠道疾病（Gastrointestinal disorders），一般疾病和给药部位条件（General disorders and administration site conditions），肝胆疾病（ Hepatobiliary disorders），免疫系统疾病（Immune system disorders），感染和侵染（Infections and infestations），受伤、中毒和手术并发症（Injury, poisoning and procedural complications），待研究（Investigations），代谢和营养障碍（Metabolism and nutrition disorders），肌肉骨骼和结缔组织疾病（Musculoskeletal and connective tissue disorders），良性、恶性和未特指的肿瘤（包括囊肿和息肉）（Neoplasms benign, malignant and unspecified (incl cysts and polyps) ），神经系统疾病（Nervous system disorders），怀孕、产褥期和围产期疾病（ Pregnancy, puerperium and perinatal conditions），产品问题（Product issues），精神疾病（Psychiatric disorders），肾脏和泌尿系统疾病（Renal and urinary disorders），生殖系统和乳房疾病（Reproductive system and breast disorders），呼吸、胸和纵隔疾病（Respiratory, thoracic and mediastinal disorders），皮肤和皮下组织疾病（Skin and subcutaneous tissue disorders），社会环境（Social circumstances ），外科和医疗程序（Surgical and medical procedures ），血管疾病（Vascular disorders）。
 
-这里说的身体严重伤害，是指导致死亡、危及生命、需要住院治疗、导致另一种医学上的重要状况或现有住院时间延长、导致持续或严重残疾或丧失能力或者先天性异常/出生缺陷等医疗事故。
 
-下表为四种疫苗导致的副作用汇总信息
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Summary-Adrs-EU-04122021.jpg)
-
-参考数据：
-
-[The European Medicines Agency](https://www.ema.europa.eu/)
-
-[COVID-19 MRNA VACCINE MODERNA (CX-024414)](https://dap.ema.europa.eu/analyticsSOAP/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+40983312)
-
-[COVID-19 MRNA VACCINE PFIZER-BIONTECH (TOZINAMERAN)](https://dap.ema.europa.eu/analyticsSOAP/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+42325700)
-
-[COVID-19 VACCINE ASTRAZENECA (CHADOX1 NCOV-19)](https://dap.ema.europa.eu/analyticsSOAP/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+40995439)
-
-[COVID-19 VACCINE JANSSEN (AD26.COV2.S)](https://dap.ema.europa.eu/analyticsSOAP/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+42287887)
-
-[32,649 Deaths 3,003,296 Injuries Following COVID Shots in European Database of Adverse Reactions as Young, Previously Healthy People Continue to Suffer](https://healthimpactnews.com/2021/32649-deaths-3003296-injuries-following-covid-shots-in-european-database-of-adverse-reactions-as-young-previously-healthy-people-continue-to-die/)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/) 上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 
