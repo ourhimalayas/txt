@@ -2,29 +2,45 @@
 ---
 
 
-## 推特：CDC认为接种疫苗的人可以传播COVID是误导
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1760445/)
+## 促成塔利班在阿富汗灾难的杨洁篪王毅受到美国最严监控
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1760615/)
 
-编译：西班牙巴塞罗那喜悦农场-wenwu
+原视频连接：[2021年12月15日 文贵大直播：Billboard和iTunes全球打榜记录- Hcoin To The Moon；欧美制裁 奥运人权经济；疫苗灾难 危害验证抗议 ；国内经济 地产负债脱钩；终共行动 中共是否报复](https://gtv.org/video/id=61b9e8037882000d5100be68)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕截图-2021-12-16-104635.jpg)
 
-美国疾病控制中心（CDC）在其网站上明确[表示：](https://www.cdc.gov/coronavirus/2019-ncov/vaccines/fully-vaccinated.html) “如果您已完全接种疫苗并感染了 Delta 变体，仍可以将病毒传播给其他人；免疫系统较弱的人，包括服用免疫抑制药物的人，即使完全接种疫苗也可能无法得到保护。”但对于 Twitter 而言，任何提及该事实的内容都是误导性信息，可能会使您暂停使用账户，甚至从该平台上被赶走。
 
-Twitter 对什么是可接受（允许在该平台宣传）的言论有其他想法，而（CDC，[如下图](https://twitter.com/account/access)）这些事实并不在其中。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-816.png)
-在 Twitter 的[规则和政策中](https://help.twitter.com/en/rules-and-policies/medical-misinformation-policy)所示的，其表示：“当推文包含有关 COVID-19 的误导性信息时，我们可能会在这些推文上贴上标签，其中包含有关该声明的纠正信息。如果我们确定存在与误导性相关的潜在伤害声明，我们将禁止他人转推、引用推文或以其他方式参与以防止误导性信息的传播。根据我们的封锁政策，这些推文将累积 1 次封锁……”
+**郭文贵先生：**你看看现在那个外交部发言人，美国称王称霸的什么民主的时代一去不返，你知道对美国现在影响多大？你见到战羊秦刚，他在美国装羊装狼的这个样子，在美国引起多大反响，你知道现在杨洁篪在世界上各处活动，杨洁篪和王毅已经被美国欧洲定义为最危险的人物，时刻都要关注的人物，他去任何一个地方，美国都要知道他见了谁，跟谁说了话，他的电话监听已成为最高级的了，和当年塔利班·本拉登，是一模一样的。
 
-那么什么才算是“误导性信息”呢？任何关于口罩是细菌滋生地的内容、可能不被批准的治疗建议，例如家庭疗法等，或者，最值得注意的是：
+就是因为王毅和杨洁篪跟塔利班的勾兑，把塔利班送回了阿富汗，阿富汗现在每时，就在我们直播的时候每天死几千上万人，这个冬天要死到几百万人。这不是种族大屠杀，这是人类大屠杀。
 
-“有关接种疫苗的人可以将中共病毒（或症状或免疫力）传播或传播给未接种疫苗的人的虚假或误导性说法；歪曲与疾病的严重性、病毒的流行性或广泛接受的预防措施、治疗方法或疫苗的有效性有关的研究或统计结果的说法。”
+我们就在讲的同时，我这几天我见的外国人，我说你知道阿富汗有多少人死吗，我见一个问一个，我说你知道究竟有多少人死，就在此时此刻一瓶水，在阿富汗一瓶水能换一个处女，过去的一个处女四袋面，现在是四个处女一袋面，这是谁干的？你美国人的懦弱和自私，和给共产党的机会，杨洁篪和王毅、习近平干的。
 
-新闻来源 ：[thepostmillennial.com] [CDC says vaccinated people can spread COVID, Twitter calls that ‘misleading’](https://thepostmillennial.com/cdc-vaccinated-covid-twitter-misleading) | 发布时间：2021年12月15日
+编辑整理：海贼王M.D.LUFFY；
 
-* * *
+视频制作：小满；
 
-*发稿 : Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-1.jpeg)
+视频上传：Cindy；
+
+G-News发布：黎明之前；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

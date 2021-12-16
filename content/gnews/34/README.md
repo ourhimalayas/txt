@@ -2,28 +2,29 @@
 ---
 
 
-## 蓬佩奥再次为中国人发声 呼吁完全抵制中共冬奥
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1760326/)
+## 推特：CDC认为接种疫苗的人可以传播COVID是误导
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1760445/)
 
-撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-57.jpg)[图片源](https://www.bloomberg.co.jp/news/articles/2020-07-23/QDWGDXT0AFB801)
-美国前国务卿迈克·蓬佩奥15日更新了他的推特。他建议应“完全抵制”北京冬奥会。美国决定不派外交使团参加北京冬奥会和残奥会，称中共政府正在对新疆的维吾尔族人实施种族灭绝。
+编译：西班牙巴塞罗那喜悦农场-wenwu
 
-拜登政府对冬奥会的外交抵制是不够的。中国共产党不应该从种族灭绝和无视基本人权的行为中获益。不仅如此，建议完全抵制北京奥运会是将运动员的健康和安全利益放在首位。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕截图-2021-12-16-104635.jpg)
 
-前国务卿还于11月在推特上写道：“中共让写过武汉病毒（中共病毒）的记者、说出中共实验室真相的医生、职业网球运动员、维吾尔族人、香港人和国际刑警组织领导人都失踪了。我们应该摒弃他们，在一个可以让世界感到自豪的地方举办奥运会。”据信“职业网球运动员”指的是女子网球运动员彭帅，她在社交媒体上指控中共前副总理张高丽强迫她与其发生性关系后便失踪了。
+美国疾病控制中心（CDC）在其网站上明确[表示：](https://www.cdc.gov/coronavirus/2019-ncov/vaccines/fully-vaccinated.html) “如果您已完全接种疫苗并感染了 Delta 变体，仍可以将病毒传播给其他人；免疫系统较弱的人，包括服用免疫抑制药物的人，即使完全接种疫苗也可能无法得到保护。”但对于 Twitter 而言，任何提及该事实的内容都是误导性信息，可能会使您暂停使用账户，甚至从该平台上被赶走。
 
-美国参议员罗姆尼本月也在社交媒体上批评奥运会，他说：“中共的种族灭绝行为应该受到谴责，一个如此公然侵犯本国人民人权的国家不应该再有幸主办奥运会。”决定在外交上抵制奥运会的加拿大前公民和移民部长亚历山大在推特上说：“运动员们现在要做一个决定。他们要么通过不参加奥运会来谴责种族灭绝，要么参加成为共犯。道德上只有一个正确的选择。”他敦促运动员应自愿抵制。
+Twitter 对什么是可接受（允许在该平台宣传）的言论有其他想法，而（CDC，[如下图](https://twitter.com/account/access)）这些事实并不在其中。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-816.png)
+在 Twitter 的[规则和政策中](https://help.twitter.com/en/rules-and-policies/medical-misinformation-policy)所示的，其表示：“当推文包含有关 COVID-19 的误导性信息时，我们可能会在这些推文上贴上标签，其中包含有关该声明的纠正信息。如果我们确定存在与误导性相关的潜在伤害声明，我们将禁止他人转推、引用推文或以其他方式参与以防止误导性信息的传播。根据我们的封锁政策，这些推文将累积 1 次封锁……”
 
-笔者相信谁也不愿与纳粹为伍，成为共犯吧。
+那么什么才算是“误导性信息”呢？任何关于口罩是细菌滋生地的内容、可能不被批准的治疗建议，例如家庭疗法等，或者，最值得注意的是：
 
-信息源：
+“有关接种疫苗的人可以将中共病毒（或症状或免疫力）传播或传播给未接种疫苗的人的虚假或误导性说法；歪曲与疾病的严重性、病毒的流行性或广泛接受的预防措施、治疗方法或疫苗的有效性有关的研究或统计结果的说法。”
 
-[マイク・ポンペオ前国務長官が北京五輪への“完全ボイコット”を提言「彼らから五輪を消し去り、世界が誇れる場所で開催しよう」](https://news.yahoo.co.jp/articles/3ef18d2cafbfd45892d7c6ed6a653ff867841e0e)
+新闻来源 ：[thepostmillennial.com] [CDC says vaccinated people can spread COVID, Twitter calls that ‘misleading’](https://thepostmillennial.com/cdc-vaccinated-covid-twitter-misleading) | 发布时间：2021年12月15日
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+* * *
+
+*发稿 : Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,24 +2,63 @@
 ---
 
 
-## 启德车站广场及公园成豆腐渣工程
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1760751/)
+## Covid 疫苗可能会导致中枢神经系统终生瘫痪（2/2）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1760806/)
 
-作者：东京樱花团丨阿恩
-![](https://lh4.googleusercontent.com/H72FITUtcB6_F1PoEoeuW-O8rDqsUgB03tmNp3vFuB7elsR9mcQ26DisO7N0otuTfEJjzldkpwVGVtXPL2xjO8SFkZw1NdfrzuQRR1QoG3BTYkswFX1acPEk4joJceHT5JXKib-t)[*图片来源*](https://www.hk01.com/18%E5%8D%80%E6%96%B0%E8%81%9E/712730/%E5%95%9F%E5%BE%B7%E8%BB%8A%E7%AB%99%E5%BB%A3%E5%A0%B4%E5%8F%8A%E5%85%AC%E5%9C%92%E9%96%8B%E6%94%BE%E4%B8%80%E5%91%A8-%E6%BA%B6%E6%BA%B6%E7%88%9B%E7%88%9B-%E7%B6%B2%E6%B0%91%E6%89%B9%E5%A6%82%E8%B1%86%E8%85%90%E6%B8%A3%E5%B7%A5%E7%A8%8B)
-耗资16亿港元的启德车站广场（一期）及启德大道公园开放一周，两个公园合共占地约6.7公顷，内有大草地和「放电」儿童游乐场，据悉广场和公园内多处灯光已损坏、草地秃头凹凸不平，多出被围上围栏，市民批评公园造工有如「豆腐渣」。
+编译：Jenny Ball
 
-港府力图兴建大白象面子工程为中共独裁统治香港粉饰太平，这些动辄上亿元的项目美其名曰为市民服务，实际上却是中共在香港吸金的手段之一。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-33.jpg)图片来源：epochtimes.com
 
-随着中共资金渗透的承建商以低价、高效的口号侵入香港建筑业，本地和外资的承建商已难以为继。港府的各大公共建设项目均被中共的承建商包揽，中资承建商承揽了业务后，会将工程拆散向分包商压价竞标，而分包商不仅要垫付部分工程款，还面临被中资承建商克扣尾款的风险，因此分包商低价竞标的工程肯定会使用与成本相应的材料，施工绝不会精细，而且随时会因资金链断裂而延误工期。此时中资承建商有理由以人工和材料成本贵过预期，施工受到阻碍等由头，连同建制派立法会议员向立法会施压，逼迫港府追加拨款。多年来，港府兴建的诸多项目不仅耗费了巨资，工期一拖再拖，还被冠以了豆腐渣工程的称号，有被港府热卖的公屋被爆短桩丑闻；会展中心常年被雨水渗漏无法解决；香港高铁超支俞294亿元，渗水、沉降问题严重；耗资1200亿元的港珠澳大桥混凝土压力测试造假，机房水浸；人工岛漂移；耗资半亿的戏水区被肥皂泡沫损坏……
+疫苗安全研究基金会向福奇博士提交感人的恳求信，要求他和拜登与受伤害者会面。
 
-中共的假恶丑在独裁香港后愈演愈烈，更多的豆腐渣工程也将司空见惯，唯一受害的是创造财富却不能享受安逸的香港人。
+以下是疫苗受伤者和代表他们的基金会写给福奇和拜登的信的摘录：
 
-资料来源：[**启德车站广场及公园开放一周「溶溶烂烂」 网民批如豆腐渣工程**](https://www.hk01.com/18%E5%8D%80%E6%96%B0%E8%81%9E/712730/%E5%95%9F%E5%BE%B7%E8%BB%8A%E7%AB%99%E5%BB%A3%E5%A0%B4%E5%8F%8A%E5%85%AC%E5%9C%92%E9%96%8B%E6%94%BE%E4%B8%80%E5%91%A8-%E6%BA%B6%E6%BA%B6%E7%88%9B%E7%88%9B-%E7%B6%B2%E6%B0%91%E6%89%B9%E5%A6%82%E8%B1%86%E8%85%90%E6%B8%A3%E5%B7%A5%E7%A8%8B)
+*我们代表数以千计的美国人，他们和我们一样，因**COVID-19**疫苗而受到严重伤害。 我们是支持科学的。我们支持疫苗，我们大多数人都被**FDA**、**CDC**、**NIH**、疫苗制造商和媒体忽视了，就好像我们不存在一样。*
 
-*校对：东京樱花团 / 東洋武士
-发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
+*作为两位母亲，我们真诚地请求与你们两人会面，希望通过面对面的会面，能够承认我们的存在，并帮助粉碎关于疫苗受伤不是真实的虚假信息。事实上，有些受伤者是儿童，作为父母，我们希望您能够与我们联系。*
+
+*我们努力尽自己的一份力量，帮助结束我们国家和世界面临的可怕的流行病。我们是真实的人，我们遵循您的建议，并相信有关**COVID-19**疫苗安全性的科学，但我们的生活已被不断恶化的健康状况彻底摧毁。*
+
+**在接种**** Covid ****疫苗之前，健康状况零问题的年轻人，现在却不能自理****——****像这样的与疫苗相关的悲剧却没有得到媒体的关注。**
+
+Covid疫苗受害者正在法庭上，就他们的毁灭性伤害作证，其中许多将是永久性的伤害。这些暴行被公共卫生官员和大众媒体隐瞒。**证明你被**** Covid ****疫苗伤害并不意味着你反疫苗或反科学，**但媒体有意诡辩将揭示疫苗伤害称为反疫苗。现在，全美国的医生都在揭发他们的病人因注射中国流感疫苗而直接导致身体衰弱的伤害。
+
+如果您害怕感染中共病毒，**因为媒体认为**它是世界上见过的最严重的流行病（即使它只是另一种流感），那么看看被证明可以增强免疫力的强效超级食品、补品和草药， 并扼杀这些寄生虫，并避免那些有毒的基因治疗的伤害。
+
+想要在您的互联网上获得最好的真实新闻吗？ 收听[FoodSupply.news](http://www.foodsupply.news/2021-11-18-food-shortage-engineered-to-control-people.html)，了解如何通过储备有机营养食品和冬季应急物资，来避免这种人口减少计划。
+
+**评论：福奇要求人们相信科学，那么福奇应该以科学的方法，第一时间与这些疫苗严重伤害的人们交流，以科学地改善所谓的“疫苗”的安全性和效果，不是吗？**
+
+**作为总统在强制全面接种，难道不应该及时和这些疫苗受伤的人们见面，以决策是否应该继续让更多人遭受这样的伤害，不是吗？**
+
+**那他们为什么在受伤人如此声泪俱下的请求中置之不理呢？难怪人们不再相信“福奇科学”；难怪人们不再相信这样的政府！**
+
+请阅读上一篇：[Covid 疫苗可能会导致中枢神经系统终生瘫痪（1/2）](https://gnews.org/zh-hans/1760750/)
+
+文章内容来源：
+
+[Pandemic.news](https://www.pandemic.news/2021-03-04-who-insider-exposes-gavi-gates-perpetrating-plandemic.html)
+
+[TruthWiki.org](http://www.truthwiki.org/cdc-centers-for-disease-control-and-prevention/)
+
+[NaturalNews.com](https://www.naturalnews.com/2021-10-03-cdc-hospitals-fully-vaccinated-deaths-unvaccinated.html)
+
+[ZeroHedge.com](https://www.zerohedge.com/covid-19/joe-rogan-crushes-cnn-over-ivermectin-horse-paste-propaganda-gets-gupta-concede)
+
+[FoodSupply.news](http://www.foodsupply.news/2021-11-18-food-shortage-engineered-to-control-people.html)
+
+[ZeroHedge.com](https://www.zerohedge.com/covid-19/joe-rogan-crushes-cnn-over-ivermectin-horse-paste-propaganda-gets-gupta-concede)
+
+[naturalnews][Covid jabs can cause the central nervous system to go absolutely HAYWIRE, possibly for life](https://www.naturalnews.com/2021-12-14-covid-jabs-can-fry-central-nervous-system.html)
+
+* * *
+
+*审核：文乐*
+*校对 : 阿伯塔*
+*发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-3.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

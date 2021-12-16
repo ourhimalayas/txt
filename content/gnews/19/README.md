@@ -2,57 +2,45 @@
 ---
 
 
-## Covid 疫苗可能会导致中枢神经系统终生瘫痪（1/2）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1760750/)
+## 美众议院通过《防止强迫维吾尔人劳动法》待参议院表决
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1760805/)
 
-翻译：Jenny Ball
+**撰稿：日本东京方舟农场 老孙**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-824.png)图片来源 ：naturalnews.com
+12月14日晚间，美国国会众议院一致通过《防止强迫维吾尔人劳动法》（The Uyghur Forced Labor Prevention Act）的最终协调版，接下来将送交参议院等待表决。
 
-在分析新闻时，请看一下两名因 Covid 疫苗接种而严重受伤的女性的两则新广告。 你永远不会在主流媒体上看到这一点，这些广告是由疫苗安全研究基金会发布的，他们倡导疫苗受伤者，特别是当他们的声音在所有社交媒体和新闻中被屏蔽时，因为人们迷失在主流新闻中，不知道这些伤害，并不意味着它现在不会发生。可以肯定的是，这两名疫苗受害者，绝不是唯一的中枢神经系统遭到破坏的人。而这可能会让她们的余生活在痛苦中。
+上个星期，《防止强迫维吾尔人劳动法》获得众议院压倒性通过。但因众议院版本内容与参议院的同名法案版本内容有所不同，因此法案在获得参众两院通过后仍需经过协商，达成一致后再送回各院上会进行表决。星期二表决的《防止强迫维吾尔人劳动法》为两院磋商后的最终协调版，目前该法案已获得110位两党议员联署支持。
 
-肖恩·斯凯尔顿和安吉莉亚·德塞尔（[Shawn Skelton and Angelia Desselle](https://sharylattkisson.com/2021/11/the-hidden-covid-19-vaccine-injured/)）的中枢神经系统都被 Covid 疫苗摧毁了
+据法案内容，将要求国土安全部拟定一项清单，列举出与中共合作压迫新疆维吾尔穆斯林少数民族的实体，并禁止所有透过强迫劳动生产的商品流入美国市场。
 
-多年来，自然健康倡导者一直在呼吁医疗行业，从流感和所有其他疫苗中去除汞（列为硫柳汞，含 50% 的汞），但 CDC 和 FDA 并不关心。汞是导致自闭症和其他大脑和中枢神经系统疾病（如：疯帽匠综合症[Mad Hatter syndrome](http://www.truthwiki.org/mercury-in-vaccines/)）的罪魁祸首。这是科学事实。
+同时，法案最终协调版就新疆商品禁令生效日期达成新共识。法案规定，对新疆生产商品的进口禁令将在法案生效后180天后开始执行。相较于参议院原先版本规定的300天大幅缩短，比众议院原先版本提出的120天更长。
 
-现在出现了 Covid 血栓注射，这些注射显然导致了心肌炎、中枢神经系统疾病和“突然死亡”的大流行。很明显，心脏、大脑和中枢神经系统承受着巨大的压力，因为那些注入他们细胞产生强烈反应的，产生有毒的朊病毒，这些朊病毒在整个血管系统中传播，到达大脑和清洁器官。
+该法案还将设立一个“可反驳的推定”（rebuttable presumption）制度，除非得到美国当局的无强迫劳动的认证，否则一律推定凡在新疆制造的产品均使用了强迫劳动，因此会按照《1930年关税法》（1930 Tariff Act）禁止进口这些产品。
 
-肖恩和安吉莉亚现在一直处于中枢神经系统痉挛状态。他们的生活几乎在一夜之间天翻地覆地被Covid疫苗改变了。听他们讲述他们的故事，这正在发生， [观看这些推荐视频以了解完整故事](https://sharylattkisson.com/2021/11/the-hidden-covid-19-vaccine-injured/)。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/微信图片_20211216125430.png)图片来自《美国之音》
 
-您还可以在参议员罗恩·约翰逊（ Ron Johnson) 举办的论坛上[看到专家组的证词](https://rumble.com/voq2xb-ron-johnson-leads-expert-panel-on-covid-19-vaccine-mandates-and-injuries.html)，该论坛涉及 Covid（隐藏的）疫苗伤害和非法授权。另外，这里是前线 Covid 疫苗的一些[可怕的伤害和改变生活的故事](https://rumble.com/vn0e9i-why-would-anyone-trust-public-health-officials-stephanie-de-garays-daughter.html)：
+此外，法案最终协调版还删除了部分原本众议院文本中的条款。这些条款要求被列入清单的公司向美国证交所披露与新疆监视或拘留维吾尔人和其他少数民族穆斯林有关联的实体的任何交易。
 
-来自威斯康星州的整形外科医生乔尔·沃尔斯科格（Joel Wallskog）医生在莫德纳疫苗接种后，被诊断出患有横贯性脊髓炎；
+在众议院完成法案的审议程序后，接下来法案将提交至参议院，预计最快将在星期三获得参议院的表决。通过后由总统签署生效，完成立法程序。
 
-肖恩·巴卡维奇（Shaoun Barcavage）在接种 Covid-19 疫苗后，遭受了痛苦的神经损伤；
+众议院议长佩洛西（House Speaker Nancy Pelosi, D-CA）表示：“中（共）国政府对维吾尔人和其他穆斯林少数民族持续进行中的种族灭绝是对全世界良知的挑战，这需要国际社会采取有力且紧迫的行动。”
 
-凯莉·安·罗德里格斯（Kelly Ann Rodriguez），来自华盛顿州塔科马的年轻母亲，在接种疫苗后要依赖助行器；
+在参议院方面大力推动《防止强迫维吾尔人劳动法》的鲁比奥参议员（Sen. Marco Rubio, R-FL）星期二发表声明说，法案的要求是基本常识，“如果你在新疆制造产品，那就必须证明制造过程中没有奴隶劳动”。
 
-麦迪·盖瑞（Maddie de Garay），来自俄亥俄州辛辛那提的 12 岁辉瑞临床试验参与者，现在坐轮椅和喂食管维生；
+卢比奥还表示，“美国如此依赖中（共）国，以至于我们对为我们制造衣服、太阳能面板和其它产品的奴隶劳动视而不见，但一切在今天发生改变。”他强调：“是时候结束我们对中（共）国的经济依赖了。”
 
-特蕾莎·朗（Theresa Long）医生，是美国陆军高级飞行外科医生吹哨人，她看到许多飞行员在接种 Covid-19 疫苗后生病，并警告说，他们可能会因疫苗副作用而死在空中。
+*参考链接：*
 
-科迪·弗林特（Cody Flint），来自密西西比州克利夫兰的航空公司飞行员，累计飞行时间超过 10,000 小时，在辉瑞疫苗接种后，被诊断出患有左右外淋巴瘘、咽鼓管功能障碍和颅内压升高；
-
-欧内斯特·拉米雷斯 (Ernest Ramirez)，来自德克萨斯州奥斯汀市的父亲，他唯一的儿子在接种辉瑞疫苗后，在打篮球时晕倒并死于心肌炎；
-
-来自加利福尼亚州洛杉矶的阿美（Amy） 和阿比（Abby Alvo）一家的女儿，因第一剂辉瑞疫苗出现不良反应，两次被拒绝医疗豁免，但如果她不完全接种疫苗，就将被踢出大学啦啦队；
-
-来自爱达荷州的农场运营经理道格·卡梅伦（Doug Cameron），在接种疫苗后永久瘫痪；
-
-来自博伊西的专业山地自行车赛车手凯尔·维尔纳 (Kyle Werner)，在接种疫苗后被诊断出患有心包炎；
-
-苏珊娜·纽厄尔 (Suzanna Newell)，来自明尼苏达州圣保罗的铁人三项运动员，接种疫苗后被诊断患有自身免疫性疾病，依靠助行器或手杖行走；
-
-疫苗安全研究基金会向福奇博士提交感人的恳求信，要求他和拜登与受伤害者会面，他们接受请求吗？请看下文。
-
-新闻来源：[naturalnews.com] [Covid jabs can cause the central nervous system to go absolutely HAYWIRE, possibly for life](https://www.naturalnews.com/2021-12-14-covid-jabs-can-fry-central-nervous-system.html) / [Pandemic.news](https://www.pandemic.news/2021-03-04-who-insider-exposes-gavi-gates-perpetrating-plandemic.html) / [TruthWiki.org](http://www.truthwiki.org/cdc-centers-for-disease-control-and-prevention/) / [NaturalNews.com](https://www.naturalnews.com/2021-10-03-cdc-hospitals-fully-vaccinated-deaths-unvaccinated.html) / [ZeroHedge.com](https://www.zerohedge.com/covid-19/joe-rogan-crushes-cnn-over-ivermectin-horse-paste-propaganda-gets-gupta-concede) / [FoodSupply.news](http://www.foodsupply.news/2021-11-18-food-shortage-engineered-to-control-people.html) / [ZeroHedge.com](https://www.zerohedge.com/covid-19/joe-rogan-crushes-cnn-over-ivermectin-horse-paste-propaganda-gets-gupta-concede)
+[美众院通过《防止强迫维吾尔人劳动法》 下一步待参院表决](https://www.voachinese.com/a/us-house-passes-uyghur-bill-20211214/6355406.html)
 
 * * *
 
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-3.jpeg)
+*素材采编：老孙*
+
+*编辑：文顺*
+
+*发布：miumiu*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
