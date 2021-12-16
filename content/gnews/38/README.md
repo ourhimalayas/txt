@@ -2,28 +2,45 @@
 ---
 
 
-## 蓬佩奥再次为中国人发声 呼吁完全抵制中共冬奥
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1760326/)
+## 促成塔利班在阿富汗灾难的杨洁篪王毅受到美国最严监控
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1760615/)
 
-撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-57.jpg)[图片源](https://www.bloomberg.co.jp/news/articles/2020-07-23/QDWGDXT0AFB801)
-美国前国务卿迈克·蓬佩奥15日更新了他的推特。他建议应“完全抵制”北京冬奥会。美国决定不派外交使团参加北京冬奥会和残奥会，称中共政府正在对新疆的维吾尔族人实施种族灭绝。
+原视频连接：[2021年12月15日 文贵大直播：Billboard和iTunes全球打榜记录- Hcoin To The Moon；欧美制裁 奥运人权经济；疫苗灾难 危害验证抗议 ；国内经济 地产负债脱钩；终共行动 中共是否报复](https://gtv.org/video/id=61b9e8037882000d5100be68)
 
-拜登政府对冬奥会的外交抵制是不够的。中国共产党不应该从种族灭绝和无视基本人权的行为中获益。不仅如此，建议完全抵制北京奥运会是将运动员的健康和安全利益放在首位。
 
-前国务卿还于11月在推特上写道：“中共让写过武汉病毒（中共病毒）的记者、说出中共实验室真相的医生、职业网球运动员、维吾尔族人、香港人和国际刑警组织领导人都失踪了。我们应该摒弃他们，在一个可以让世界感到自豪的地方举办奥运会。”据信“职业网球运动员”指的是女子网球运动员彭帅，她在社交媒体上指控中共前副总理张高丽强迫她与其发生性关系后便失踪了。
 
-美国参议员罗姆尼本月也在社交媒体上批评奥运会，他说：“中共的种族灭绝行为应该受到谴责，一个如此公然侵犯本国人民人权的国家不应该再有幸主办奥运会。”决定在外交上抵制奥运会的加拿大前公民和移民部长亚历山大在推特上说：“运动员们现在要做一个决定。他们要么通过不参加奥运会来谴责种族灭绝，要么参加成为共犯。道德上只有一个正确的选择。”他敦促运动员应自愿抵制。
+**郭文贵先生：**你看看现在那个外交部发言人，美国称王称霸的什么民主的时代一去不返，你知道对美国现在影响多大？你见到战羊秦刚，他在美国装羊装狼的这个样子，在美国引起多大反响，你知道现在杨洁篪在世界上各处活动，杨洁篪和王毅已经被美国欧洲定义为最危险的人物，时刻都要关注的人物，他去任何一个地方，美国都要知道他见了谁，跟谁说了话，他的电话监听已成为最高级的了，和当年塔利班·本拉登，是一模一样的。
 
-笔者相信谁也不愿与纳粹为伍，成为共犯吧。
+就是因为王毅和杨洁篪跟塔利班的勾兑，把塔利班送回了阿富汗，阿富汗现在每时，就在我们直播的时候每天死几千上万人，这个冬天要死到几百万人。这不是种族大屠杀，这是人类大屠杀。
 
-信息源：
+我们就在讲的同时，我这几天我见的外国人，我说你知道阿富汗有多少人死吗，我见一个问一个，我说你知道究竟有多少人死，就在此时此刻一瓶水，在阿富汗一瓶水能换一个处女，过去的一个处女四袋面，现在是四个处女一袋面，这是谁干的？你美国人的懦弱和自私，和给共产党的机会，杨洁篪和王毅、习近平干的。
 
-[マイク・ポンペオ前国務長官が北京五輪への“完全ボイコット”を提言「彼らから五輪を消し去り、世界が誇れる場所で開催しよう」](https://news.yahoo.co.jp/articles/3ef18d2cafbfd45892d7c6ed6a653ff867841e0e)
+编辑整理：海贼王M.D.LUFFY；
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+视频制作：小满；
+
+视频上传：Cindy；
+
+G-News发布：黎明之前；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

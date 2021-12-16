@@ -2,45 +2,57 @@
 ---
 
 
-## 促成塔利班在阿富汗灾难的杨洁篪王毅受到美国最严监控
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1760615/)
+## Covid 疫苗可能会导致中枢神经系统终生瘫痪（1/2）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1760750/)
 
-原视频连接：[2021年12月15日 文贵大直播：Billboard和iTunes全球打榜记录- Hcoin To The Moon；欧美制裁 奥运人权经济；疫苗灾难 危害验证抗议 ；国内经济 地产负债脱钩；终共行动 中共是否报复](https://gtv.org/video/id=61b9e8037882000d5100be68)
+翻译：Jenny Ball
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-824.png)图片来源 ：naturalnews.com
 
+在分析新闻时，请看一下两名因 Covid 疫苗接种而严重受伤的女性的两则新广告。 你永远不会在主流媒体上看到这一点，这些广告是由疫苗安全研究基金会发布的，他们倡导疫苗受伤者，特别是当他们的声音在所有社交媒体和新闻中被屏蔽时，因为人们迷失在主流新闻中，不知道这些伤害，并不意味着它现在不会发生。可以肯定的是，这两名疫苗受害者，绝不是唯一的中枢神经系统遭到破坏的人。而这可能会让她们的余生活在痛苦中。
 
-**郭文贵先生：**你看看现在那个外交部发言人，美国称王称霸的什么民主的时代一去不返，你知道对美国现在影响多大？你见到战羊秦刚，他在美国装羊装狼的这个样子，在美国引起多大反响，你知道现在杨洁篪在世界上各处活动，杨洁篪和王毅已经被美国欧洲定义为最危险的人物，时刻都要关注的人物，他去任何一个地方，美国都要知道他见了谁，跟谁说了话，他的电话监听已成为最高级的了，和当年塔利班·本拉登，是一模一样的。
+肖恩·斯凯尔顿和安吉莉亚·德塞尔（[Shawn Skelton and Angelia Desselle](https://sharylattkisson.com/2021/11/the-hidden-covid-19-vaccine-injured/)）的中枢神经系统都被 Covid 疫苗摧毁了
 
-就是因为王毅和杨洁篪跟塔利班的勾兑，把塔利班送回了阿富汗，阿富汗现在每时，就在我们直播的时候每天死几千上万人，这个冬天要死到几百万人。这不是种族大屠杀，这是人类大屠杀。
+多年来，自然健康倡导者一直在呼吁医疗行业，从流感和所有其他疫苗中去除汞（列为硫柳汞，含 50% 的汞），但 CDC 和 FDA 并不关心。汞是导致自闭症和其他大脑和中枢神经系统疾病（如：疯帽匠综合症[Mad Hatter syndrome](http://www.truthwiki.org/mercury-in-vaccines/)）的罪魁祸首。这是科学事实。
 
-我们就在讲的同时，我这几天我见的外国人，我说你知道阿富汗有多少人死吗，我见一个问一个，我说你知道究竟有多少人死，就在此时此刻一瓶水，在阿富汗一瓶水能换一个处女，过去的一个处女四袋面，现在是四个处女一袋面，这是谁干的？你美国人的懦弱和自私，和给共产党的机会，杨洁篪和王毅、习近平干的。
+现在出现了 Covid 血栓注射，这些注射显然导致了心肌炎、中枢神经系统疾病和“突然死亡”的大流行。很明显，心脏、大脑和中枢神经系统承受着巨大的压力，因为那些注入他们细胞产生强烈反应的，产生有毒的朊病毒，这些朊病毒在整个血管系统中传播，到达大脑和清洁器官。
 
-编辑整理：海贼王M.D.LUFFY；
+肖恩和安吉莉亚现在一直处于中枢神经系统痉挛状态。他们的生活几乎在一夜之间天翻地覆地被Covid疫苗改变了。听他们讲述他们的故事，这正在发生， [观看这些推荐视频以了解完整故事](https://sharylattkisson.com/2021/11/the-hidden-covid-19-vaccine-injured/)。
 
-视频制作：小满；
+您还可以在参议员罗恩·约翰逊（ Ron Johnson) 举办的论坛上[看到专家组的证词](https://rumble.com/voq2xb-ron-johnson-leads-expert-panel-on-covid-19-vaccine-mandates-and-injuries.html)，该论坛涉及 Covid（隐藏的）疫苗伤害和非法授权。另外，这里是前线 Covid 疫苗的一些[可怕的伤害和改变生活的故事](https://rumble.com/vn0e9i-why-would-anyone-trust-public-health-officials-stephanie-de-garays-daughter.html)：
 
-视频上传：Cindy；
+来自威斯康星州的整形外科医生乔尔·沃尔斯科格（Joel Wallskog）医生在莫德纳疫苗接种后，被诊断出患有横贯性脊髓炎；
 
-G-News发布：黎明之前；
+肖恩·巴卡维奇（Shaoun Barcavage）在接种 Covid-19 疫苗后，遭受了痛苦的神经损伤；
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
+凯莉·安·罗德里格斯（Kelly Ann Rodriguez），来自华盛顿州塔科马的年轻母亲，在接种疫苗后要依赖助行器；
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+麦迪·盖瑞（Maddie de Garay），来自俄亥俄州辛辛那提的 12 岁辉瑞临床试验参与者，现在坐轮椅和喂食管维生；
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+特蕾莎·朗（Theresa Long）医生，是美国陆军高级飞行外科医生吹哨人，她看到许多飞行员在接种 Covid-19 疫苗后生病，并警告说，他们可能会因疫苗副作用而死在空中。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+科迪·弗林特（Cody Flint），来自密西西比州克利夫兰的航空公司飞行员，累计飞行时间超过 10,000 小时，在辉瑞疫苗接种后，被诊断出患有左右外淋巴瘘、咽鼓管功能障碍和颅内压升高；
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+欧内斯特·拉米雷斯 (Ernest Ramirez)，来自德克萨斯州奥斯汀市的父亲，他唯一的儿子在接种辉瑞疫苗后，在打篮球时晕倒并死于心肌炎；
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+来自加利福尼亚州洛杉矶的阿美（Amy） 和阿比（Abby Alvo）一家的女儿，因第一剂辉瑞疫苗出现不良反应，两次被拒绝医疗豁免，但如果她不完全接种疫苗，就将被踢出大学啦啦队；
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+来自爱达荷州的农场运营经理道格·卡梅伦（Doug Cameron），在接种疫苗后永久瘫痪；
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+来自博伊西的专业山地自行车赛车手凯尔·维尔纳 (Kyle Werner)，在接种疫苗后被诊断出患有心包炎；
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+苏珊娜·纽厄尔 (Suzanna Newell)，来自明尼苏达州圣保罗的铁人三项运动员，接种疫苗后被诊断患有自身免疫性疾病，依靠助行器或手杖行走；
 
+疫苗安全研究基金会向福奇博士提交感人的恳求信，要求他和拜登与受伤害者会面，他们接受请求吗？请看下文。
+
+新闻来源：[naturalnews.com] [Covid jabs can cause the central nervous system to go absolutely HAYWIRE, possibly for life](https://www.naturalnews.com/2021-12-14-covid-jabs-can-fry-central-nervous-system.html) / [Pandemic.news](https://www.pandemic.news/2021-03-04-who-insider-exposes-gavi-gates-perpetrating-plandemic.html) / [TruthWiki.org](http://www.truthwiki.org/cdc-centers-for-disease-control-and-prevention/) / [NaturalNews.com](https://www.naturalnews.com/2021-10-03-cdc-hospitals-fully-vaccinated-deaths-unvaccinated.html) / [ZeroHedge.com](https://www.zerohedge.com/covid-19/joe-rogan-crushes-cnn-over-ivermectin-horse-paste-propaganda-gets-gupta-concede) / [FoodSupply.news](http://www.foodsupply.news/2021-11-18-food-shortage-engineered-to-control-people.html) / [ZeroHedge.com](https://www.zerohedge.com/covid-19/joe-rogan-crushes-cnn-over-ivermectin-horse-paste-propaganda-gets-gupta-concede)
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-3.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

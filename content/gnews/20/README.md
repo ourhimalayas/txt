@@ -2,63 +2,55 @@
 ---
 
 
-## Covid 疫苗可能会导致中枢神经系统终生瘫痪（2/2）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1760806/)
+## 医疗戒严令：在数千名护士因具有天然免疫力和拒绝注射刺突蛋白疫苗而被解雇后，军方接管了四个州的医院
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1760886/)
 
-编译：Jenny Ball
+2021 年 12 月 15 日，星期三
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-33.jpg)图片来源：epochtimes.com
+作者：Ethan Huff
 
-疫苗安全研究基金会向福奇博士提交感人的恳求信，要求他和拜登与受伤害者会面。
+翻译：沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Soldier-National-Army-Guard-Military-Defense-Troop-e1519314126339.jpg)图片来源：网络
+自然新闻：国民警卫队正被部署到美国的许多州，以取代因拒绝武汉冠状病毒 (COVID-19)疫苗而被医院解雇的未接种疫苗的医务人员。
 
-以下是疫苗受伤者和代表他们的基金会写给福奇和拜登的信的摘录：
+在印第安纳州，印第安纳州最大的医院系统印第安纳波利斯的印第安纳大学卫生局已要求国民警卫队接管除莱利儿童医院以外的所有设施的医务人员职位。 据报道，过去两周，印第安纳州的住院人数增加了 47%。
 
-*我们代表数以千计的美国人，他们和我们一样，因**COVID-19**疫苗而受到严重伤害。 我们是支持科学的。我们支持疫苗，我们大多数人都被**FDA**、**CDC**、**NIH**、疫苗制造商和媒体忽视了，就好像我们不存在一样。*
+IU Health 在给贝克尔医院的一份声明中说：“随着 COVID 病例继续增加，COVID 和非 COVID 患者的住院率达到历史最高水平，对 IU Health 团队成员、护士和提供者的需求和压力从未如此之大”。
 
-*作为两位母亲，我们真诚地请求与你们两人会面，希望通过面对面的会面，能够承认我们的存在，并帮助粉碎关于疫苗受伤不是真实的虚假信息。事实上，有些受伤者是儿童，作为父母，我们希望您能够与我们联系。*
+“为了最好地支持我们的团队成员和患者，IU Health 将利用所有可用资源并招募印第安纳州国民警卫队成员，与印第安纳州卫生部合作，在急需帮助的地区提供帮助”。
 
-*我们努力尽自己的一份力量，帮助结束我们国家和世界面临的可怕的流行病。我们是真实的人，我们遵循您的建议，并相信有关**COVID-19**疫苗安全性的科学，但我们的生活已被不断恶化的健康状况彻底摧毁。*
+由六名具有临床和非临床成员的国民警卫队组成的团队将以两周为增量部署到 IU Health 医院。
 
-**在接种**** Covid ****疫苗之前，健康状况零问题的年轻人，现在却不能自理****——****像这样的与疫苗相关的悲剧却没有得到媒体的关注。**
+在缅因州，州长 Janey Mills 正在提供大约 75 名国民警卫队士兵来填补非临床支持角色，包括在位于波特兰的缅因州医疗中心 (MMC)。
 
-Covid疫苗受害者正在法庭上，就他们的毁灭性伤害作证，其中许多将是永久性的伤害。这些暴行被公共卫生官员和大众媒体隐瞒。**证明你被**** Covid ****疫苗伤害并不意味着你反疫苗或反科学，**但媒体有意诡辩将揭示疫苗伤害称为反疫苗。现在，全美国的医生都在揭发他们的病人因注射中国流感疫苗而直接导致身体衰弱的伤害。
+MMC 首席营销官 Joel Botler 博士发表声明称，他的设施“没有可用的重症监护病床”，此前由于该系统的强制要求，除了其他六间手术室之外，还有六间手术室不得不关闭。
 
-如果您害怕感染中共病毒，**因为媒体认为**它是世界上见过的最严重的流行病（即使它只是另一种流感），那么看看被证明可以增强免疫力的强效超级食品、补品和草药， 并扼杀这些寄生虫，并避免那些有毒的基因治疗的伤害。
+美国医疗的军事化进展顺利
 
-想要在您的互联网上获得最好的真实新闻吗？ 收听[FoodSupply.news](http://www.foodsupply.news/2021-11-18-food-shortage-engineered-to-control-people.html)，了解如何通过储备有机营养食品和冬季应急物资，来避免这种人口减少计划。
+在接下来的几周内，新罕布什尔州州长 Chris Sununu 在新闻发布会上告诉记者，联邦紧急事务管理局 (FEMA) 正在部署一支 24 人的团队，以帮助全州各地的医院设施提供帮助。
 
-**评论：福奇要求人们相信科学，那么福奇应该以科学的方法，第一时间与这些疫苗严重伤害的人们交流，以科学地改善所谓的“疫苗”的安全性和效果，不是吗？**
+在纽约，新任州长 Kathy Hochul 宣布，120 名国民警卫队士兵将被部署到“负担过重”的疗养院，以及 32 家因注射法令而容量有限的医院。
 
-**作为总统在强制全面接种，难道不应该及时和这些疫苗受伤的人们见面，以决策是否应该继续让更多人遭受这样的伤害，不是吗？**
+“该州将有限容量定义为低于 10% 的人员床位容量，或者由卫生部门根据区域和医疗保健利用率因素确定” ，Zero Hedge 报告说。
 
-**那他们为什么在受伤人如此声泪俱下的请求中置之不理呢？难怪人们不再相信“福奇科学”；难怪人们不再相信这样的政府！**
+“根据《纽约时报》追踪的数据，过去两周该州每天新增的 COVID-19 住院人数增加了 33%”。
 
-请阅读上一篇：[Covid 疫苗可能会导致中枢神经系统终生瘫痪（1/2）](https://gnews.org/zh-hans/1760750/)
+印第安纳州、缅因州、新罕布什尔州和纽约州可能只是美国许多州中的前四个，它们可能会派出军队来应对那些接种了疫苗的病人的袭击，这些病人预计在他们的“疫苗”完全生效后会涌入急诊室。
 
-文章内容来源：
+“他们不仅仅是坏人； 他们是罪犯”，辉瑞首席执行官神王阿尔伯特·布尔拉 (God-King Albert Bourla) 对拒绝接种他公司的 COVID‘疫苗’的人发表了评论”，一位零对冲评论员写道，关于暴君布尔拉最近发表的反对健康自由的声明。
 
-[Pandemic.news](https://www.pandemic.news/2021-03-04-who-insider-exposes-gavi-gates-perpetrating-plandemic.html)
+“我告诉过你，在植入数字极权主义奴隶货币系统之前，他们将使用戒严令”，另一位回应道。
 
-[TruthWiki.org](http://www.truthwiki.org/cdc-centers-for-disease-control-and-prevention/)
+“创造一个问题——尝试解决问题——征税来解决问题——向问题宣战——让问题永远持续下去，这就是你的政府的运作方式”，另一位写道，这一切显然是为了最大化医疗戒严令和日益壮大的警察国家。
 
-[NaturalNews.com](https://www.naturalnews.com/2021-10-03-cdc-hospitals-fully-vaccinated-deaths-unvaccinated.html)
+“我在新罕布什尔州，令人惊讶的是，在他们解雇所有没有接受接种疫苗的人之前，我们没有人手短缺”， 另一个特别提到，“如果命令结束，这一切都可以消失”！
 
-[ZeroHedge.com](https://www.zerohedge.com/covid-19/joe-rogan-crushes-cnn-over-ivermectin-horse-paste-propaganda-gets-gupta-concede)
+来源链接：[https://www.afinalwarning.com/578670.html](https://www.afinalwarning.com/578670.html)
 
-[FoodSupply.news](http://www.foodsupply.news/2021-11-18-food-shortage-engineered-to-control-people.html)
+编辑/发布：LILY
 
-[ZeroHedge.com](https://www.zerohedge.com/covid-19/joe-rogan-crushes-cnn-over-ivermectin-horse-paste-propaganda-gets-gupta-concede)
-
-[naturalnews][Covid jabs can cause the central nervous system to go absolutely HAYWIRE, possibly for life](https://www.naturalnews.com/2021-12-14-covid-jabs-can-fry-central-nervous-system.html)
-
-* * *
-
-*审核：文乐*
-*校对 : 阿伯塔*
-*发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-3.jpeg)
-
+20211216
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

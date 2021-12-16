@@ -2,22 +2,30 @@
 ---
 
 
-## 中共斥巨资在海外社交媒体上“洗脑”外国人
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1760867/)
+## 文贵大直播正在改变世界
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1760914/)
 
-作者：纽约香草山翻译部 defiance
+作者：纽约香草山农场福音部-恩永存
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-768x103-15.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-15.jpg)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-12-16-at-19.58.25-3.png](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-16-at-19.58.25-3.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-17.jpg)
 
 
-12月11日，一美国自媒体人说自己发现了一个有趣的现象，近期在英文抖音上突然冒出成百上千教外国人学中文的老师，绝大多数为年轻女性，他们的教学内容、教学流程，甚至连假装被网络攻击而装哭、借机吸粉的招数都惊人的一致。 这些老师们通常清一色地举起一块牌子介绍自己，希望看视频的人为其点赞；一开始的教学内容极其简单，就是一些中文单词或常用语，其中不乏中文脏话以吸引眼球。但是随着上传的视频越来越多，带风向的意识形态内容也越来越多，比如，他们会公开表示不承认新疆大屠杀，不承认中共国有流浪者，鼓吹台湾自古就是中共国的一部分等等。
 
-显而易见，这些人就是中共安排的大外宣。中共为了粉饰太平、逃避责任，不惜花费重金雇佣大外宣人员冒充民间人士，在社交媒体上传播谎言、蒙蔽海外人士，无奈方法拙劣、贻笑大方，只能激起全世界人民更强烈的灭共浪潮。
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-16-at-20.36.09.png)
+
+12月15日，文贵大直播不断展现新中国联邦的伟大形象，不断揭露中共在全世界的邪恶伎俩，不断宣传病毒和疫苗背后的真相，所有这一切都在持续改变世界。
+
+从古至今，得道天助的铁律从未改变。新中国联邦人以正道建国，如今快速强大。新中国联邦的文化、经济、军事、宗教、政治的发展都在大直播中展现，吸引着越来越多的人。GTV直播同时在线人数单次最多就达一千多万，这足以说明新中国联邦人的真实魅力。 如今许多人已通过文贵大直播知道了中共的邪恶、贪婪、诡诈、凶残，认识到中共和世界邪恶势力正以病毒和疫苗祸害世界，还买通世界媒体欺骗世人。善良的人们开始醒悟，正义的力量正在集结，这场正邪之战已打响，正义终必战胜邪恶！
+
+新中国联邦人的正义之光，必将驱散中共笼罩在世界上的黑暗。
+
+
 
 参考链接：
 
-
+[https://gettr.com/post/pjqagc144c](https://gettr.com/post/pjqagc144c)
 
 编辑/校对/发稿：有莫举名
 
@@ -36,6 +44,8 @@
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-16.jpg)
+
+0
 
  
 
