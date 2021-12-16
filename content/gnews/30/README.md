@@ -2,49 +2,48 @@
 ---
 
 
-## 中共超限战灭港行动（87）文宣战线「和你飞」万人接机集会
-` 英喜-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1761410/)
+## 【Michael.Tonny专栏】中共病毒疫苗导致欧盟3万多人死 300多万人身体受伤害
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1761478/)
 
-#### 搜集/撰文：岁月如歌
+作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/87fenmian.jpg)
-721元朗恐怖袭击，官警黑勾结对市民的伤害令人发指。这不但不能吓退勇敢的香港人，反而激发更多的香港人站出来反对警方暴力以及港府漠视民意，包庇黑社会犯罪，反抗独裁者中共魔爪操控港府，破坏香港自由、法治，剥夺香港人法律赋予的权利。
+欧盟疑似药物反应报告数据库[EudraVigilance](https://www.adrreports.eu/en/index.html)报告，截止至2021年12月4日，在注射 COVID-19（中共病毒）疫苗后，欧盟27国共收1,228,780份疫苗副作用报告，其中32,649 人死亡，3,003,296人身体受到伤害，1,409,643人身体受到严重伤害。
 
-7月26日香港国际机场员工首先发起了集会抗议，要求政府立即回应市民的五大诉求，要求严惩元朗恐袭肇事者，争取国际关注。集会在香港国际机场1号客运大楼5楼的接机大厅举行，参与集会抗议的有飞行员、机组人员、空中服务员、地勤人员、机师以及民航处职员等约1000人左右在接机大厅从下午1点静坐一直持续到晚上。抗议者身穿黑色衣服，高举「接良知HK726」、「林郑下台」、「香港人加油」等横幅，部分示威者向外国旅客派发印有中英文的反送中传单。一些旅客在机场表达了他们的看法。最后示威者还签署一份请愿书，并发表公开声明「作为航空界的专业人士，我们明白我们肩负的社会责任，既使看到社会上发生的种种不公义，也一直默默坚守岗位；作为香港人，过去的每一颗催泪弹、每一枪布袋弹、每一棍黑暗势力的毒殴，都狠狠的打在我们的心上。人民的哀嚎，我们的家失去了秩序，我们还可以凭什么继续沉醉工作，埋没良心，默不作声、助纣为虐吗？」
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12162.jpg)图片来自明周网
-另外航空业界职工还在网上发出一份声明中谴责港府，警方在721恐袭事件不作为。行政主任、以及大约300名公务人员分别发表两封公开信处请港府正面回应市民五大事诉求，包括正式撤回修例及成立独立调查委员会。根据香港电台报导，公务员的公开信表示，他们到目前为止仍保持中立的立场，但现在决定打破沉默，政府应该对公众的要求做出适当的回应。元朗针对民主派市民恐袭，令人对警方执法能力存疑，有负民望，公务员质疑政府机构并非为民服务。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/EudraVigilance.png)
 
-反送中运动之花开到香港国际机场，她将香港的政治危机面对面地传递到世界各地。中共独裁者恐惧极了，喉舌环球时报，文汇报，大公报纷纷撰文为当局狡辩。机场管理局表示运作并不受影响，但是共产党的喉舌党媒「指鹿为马」，加油添醋抹黑集会。环时声称大多数旅客受到示威者的滋扰、假信息、强塞宣传品等行为影响。环时记者刻意安排采访一些大陆的过境旅客，以抹黑的角度，和「断章取义」的手法报导事件。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12163.jpg)图片来自香港01
-同时，伊利沙伯医院亦于当天下午5:50分，在护士学校旁的篮球场举行超过1500人的集会，大家身穿白袍和戴上头盔，挂上委任证，头盔表达对暴力事件的担忧。集会中有不少著名医生发言，香港医学会前会长蔡坚医生批评政府为「狗屎拉圾」，不回应诉求，他又呼吁医护人士要保持自己的专业精神，救护市民。杏林觉醒成员黄任匡则批评警方于元朗恐袭不作为。参与集会人士表示前线医护人员会继续坚守岗位，秉持赤子之心，捍卫病人隐私，与市民同行，敦促停止暴力，恳请警方克尽己任，严正公平执法保护市民免于恐惧。
+EudraVigilance为European database of suspected adverse drug reaction reports的简称，网站包含在欧洲经济区（ European Economic Area，EEA）内授权使用的药品可疑副作用（也被称为可疑的药物不良反应，relates to suspected side effects）的报告信息。
 
-由胡紫莹发起的香港中文大学也在百万大道举行静坐集会，与会人员包括前线医护人员及中大医科毕业升等。行为表达对政府及警方近日各种不公义行为不满。
+该网站是由欧洲药品管理局（[The European Medicines Agency](https://www.ema.europa.eu/)）管理这些报告，以便包括公众在内的利益相关者可以了解欧洲监管机构（European regulatory authorities）用于审查药物或活性物质（medicine or active substance）安全性的信息。
 
-（未完待续）
+由于EudraVigilance 维护的这个数据库仅适用于欧盟 (European Union，EU) 27个欧洲国家，而欧洲国家的总数大约有50个，因此，EudraVigilance的报告并不能反映整个欧洲全貌。整个欧洲在注射中共病毒疫苗后死亡或身体受到伤害的实际人数将远高于EudraVigilance报告的数字。
 
+这次EudraVigilance关于中共病毒疫苗的报告包含Moderna 的mRNA疫苗CX-024414、Pfizer/Biontech的mRNA疫苗、Astrazeneca的CHADOX1 NCOV-19疫苗和Janssen的AD26.COV2.S疫苗。
 
+这些因注射疫苗受到的身体伤害包括：血液和淋巴系统疾病（Blood and lymphatic system disorders），心脏疾病（Cardiac disorders），先天性、家族性和遗传性疾病（Congenital, familial and genetic disorders），耳朵和耳道疾病（Ear and labyrinth disorders），内分泌疾病（Endocrine disorders），眼部疾病（Eye disorders），胃肠道疾病（Gastrointestinal disorders），一般疾病和给药部位条件（General disorders and administration site conditions），肝胆疾病（ Hepatobiliary disorders），免疫系统疾病（Immune system disorders），感染和侵染（Infections and infestations），受伤、中毒和手术并发症（Injury, poisoning and procedural complications），待研究（Investigations），代谢和营养障碍（Metabolism and nutrition disorders），肌肉骨骼和结缔组织疾病（Musculoskeletal and connective tissue disorders），良性、恶性和未特指的肿瘤（包括囊肿和息肉）（Neoplasms benign, malignant and unspecified (incl cysts and polyps) ），神经系统疾病（Nervous system disorders），怀孕、产褥期和围产期疾病（ Pregnancy, puerperium and perinatal conditions），产品问题（Product issues），精神疾病（Psychiatric disorders），肾脏和泌尿系统疾病（Renal and urinary disorders），生殖系统和乳房疾病（Reproductive system and breast disorders），呼吸、胸和纵隔疾病（Respiratory, thoracic and mediastinal disorders），皮肤和皮下组织疾病（Skin and subcutaneous tissue disorders），社会环境（Social circumstances ），外科和医疗程序（Surgical and medical procedures ），血管疾病（Vascular disorders）。
 
-参考连接：
-[香港航空界在香港国际机场举行抗议集会](https://www.voachinese.com/a/hong-kong-airport-protest-20190726/5016399.html)
+这里说的身体严重伤害，是指导致死亡、危及生命、需要住院治疗、导致另一种医学上的重要状况或现有住院时间延长、导致持续或严重残疾或丧失能力或者先天性异常/出生缺陷等医疗事故。
 
-[香港政府员工发表公开信批评特首漠视民意](https://www.voachinese.com/a/HK-Civil-Servants-Threaten-Strike-Over-Ongoing-Crisis-20190725/5014876.html)
+下表为四种疫苗导致的副作用汇总信息
 
-导读：
-中共超限战灭港行动
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Summary-Adrs-EU-04122021.jpg)
 
-[中共超限战灭港行动（八十二）七二一·恐袭事件之谁在篡改历史](https://gnews.org/zh-hans/1620544/)
+参考数据：
 
-[中共超限战灭港行动（八十三）七二一](https://gnews.org/zh-hans/1634215/)[·恐袭事件之谁主真相](https://gnews.org/zh-hans/1634215/)
+[The European Medicines Agency](https://www.ema.europa.eu/)
 
-[中共超限战灭港行动（八十四）银发族游行与保护孩子组织的出现](https://gnews.org/zh-hans/1645865/)
+[COVID-19 MRNA VACCINE MODERNA (CX-024414)](https://dap.ema.europa.eu/analyticsSOAP/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+40983312)
 
-[中共超限战灭港行动（八十五）守护孩子行动](https://gnews.org/zh-hans/1669029/)
+[COVID-19 MRNA VACCINE PFIZER-BIONTECH (TOZINAMERAN)](https://dap.ema.europa.eu/analyticsSOAP/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+42325700)
 
-[中共超限战灭港行动（八十六）守护孩子行动之志愿者大军](https://gnews.org/zh-hans/1687655/)
+[COVID-19 VACCINE ASTRAZENECA (CHADOX1 NCOV-19)](https://dap.ema.europa.eu/analyticsSOAP/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+40995439)
 
+[COVID-19 VACCINE JANSSEN (AD26.COV2.S)](https://dap.ema.europa.eu/analyticsSOAP/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+42287887)
 
-*校对 / 封面合成：文粤 / 发布：天网灰灰*
+[32,649 Deaths 3,003,296 Injuries Following COVID Shots in European Database of Adverse Reactions as Young, Previously Healthy People Continue to Suffer](https://healthimpactnews.com/2021/32649-deaths-3003296-injuries-following-covid-shots-in-european-database-of-adverse-reactions-as-young-previously-healthy-people-continue-to-die/)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/) 上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 
