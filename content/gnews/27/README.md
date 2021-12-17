@@ -2,151 +2,55 @@
 ---
 
 
-## 中共惧怕西方抵制冬奥运 改成官方不参与冬奥会
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1763167/)
+## 印度升格与台湾的合作
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1763308/)
 
-[https://gtv.org/video/id=61bb6764a68b4f4b28e93765](https://gtv.org/video/id=61bb6764a68b4f4b28e93765)
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/48efadcccd6bd173.jpg)图片来源：HT FILE PHOTO
+**翻译/编辑：**守望黎明
 
-**郭文贵**
-**Miles Guo**
+印度和台湾已经开始就自由贸易协定和在该国创建一个半导体制造中心进行谈判，以满足从手机到汽车等各类产品对芯片的快速增长的需求。
 
-冬奥会这件事情对他们的打击 这是一个
-The event of the Winter Olympics was a blow to the CCP
+两位熟悉内情的人士说，双方在今年早些时候成立了四个工作小组，重点是创建一个半导体制造中心以培训半导体行业所需的高度专业化的人才，并确立双边投资协议和自由贸易协定。
 
-大家记住内部现在非常清楚了
-Keep in mind that the CCP internals are now very clear
+上述人士说，双方这些方面的接触在今年年中前后就上了轨道，半导体小组在8月和9月举行了两次网络会议，就拟议的贸易协定进行了一轮谈判。
 
-内部下的文件很清楚
-and the documents under the internals are also very clear
+双方都在关注台湾半导体巨头在印度设厂的可能性，包括台积电（TSMC）和联合微电子公司（UMC）。这些人说，印度方面已经为这个中心的建立提供了几个备选地点，但双方还没有做出最后决定。
 
-官方不出席奥运会
-The officials are not attending the Olympics,
+知情人说：“这是一个非常复杂的过程，因为像台积电这样的企业要用到数百家其他公司的零部件。在印度建立中心就意味着要说服这些公司也要跟进在印度设立机构，以确保供货。”
 
-不能说西方抵制奥运会
-you cannot say that the West is boycotting the Olympics
+如果设厂的议题确定下来，将是台湾芯片制造商在海外设立的第二个此类制造中心。台积电的市值超过5500亿美元，占全球半导体收入的54%，它在美国建立的价值120亿美元的制造厂，预计将在2024年投产。台积电也在关注在日本和欧洲设厂的可能。
 
-不能有“抵制”两字
-There cannot be the word “boycott”
+对台湾来说，来自中共国的压力日益加大，当对岸对其防空区的入侵不断增加，并发表威胁性言论把两岸局势的紧张程度推向新高的时候，这种类型的对外投资项目与其战略利益密切相关。人们认为，台湾决定在美国建立半导体制造中心，与美国向台北提供的军事支持不无关系。
 
-你可见它敏感到啥程度
-You can see how sensitive the CCP is
+台湾也希望这些举措能够对自己在其他领域的诉求的有所助益，例如在世界卫生组织（WHO）的地位。作为增加贸易和投资的整体努力的一部分，台湾也有在孟买开设代表处的愿望，因为印度的马哈拉施特拉邦和古吉拉特邦在投资和制造业方面都很有潜力。
 
-就像把盘古龙头变成鸟头，变成包头一样
-It’s just like they turning Pangu’s dragon head into a bird head or a bun
+1995年，印度和台湾在对方的首都设立了代表办事处。2012年在钦奈设立了第二个台北经济文化中心。
 
-就它认为这真的要我的命啊
-They believe that it really could take my life by doing that
+与大多数国家与台湾的接触一样，印度方面一直行事谨慎。主要是因为印度与中国在实际控制线（LAC）上的拉达克地区军事对峙，关系紧张。
 
-我必须把它变成鸟头变成包头去
-so they must do it that way
+然而，印度对半导体的需求迅速增长–预计到2025年将达到约1000亿美元，远高于目前的20亿美元的水平，这是政府在该领域大力推动的主要原因。12月15日，印度联邦内阁批准了一项与生产挂钩的激励计划，计划出资100亿美元用于发展半导体和显示器制造的工业体系。
 
-你不怕？你怎么可能这样呢
-if you are not afraid, how would it possible by doing this?
+政府还承诺提供300亿美元的支持，以使印度成为全球电子制造业的中心，其中半导体行业是其基础。
 
-那你想想, 抵制奥运
-Then think about it, boycott the Olympics
+台北国立政治大学国际关系研究所的台湾研究员萨纳・哈什米（Sana Hashmi）说，推进印度和台湾的经济关系属于非官方关系框架。她说：“德里的台北经济文化中心和台北的印度-台北协会的主要目标是努力加强商业联系。”
 
-它这两字儿都不敢说，你可见对它伤害有多深
-The CCP dares not to say this word “boycott”, you can see how deeply it hurts the CCP
+哈什米说，尽管中国反对别国与台湾的所有接触，但也有一定的谅解，即经济和文化事物以及科技方面的合作并不违反“一个中国”的政策。
 
-就像失恋一样
-Just like a breakup
+似乎，只要中共国能从台湾的在华投资中获得好处，它对其他国家的对台关系就没那么较真。现在随着两岸关系的日益紧张，台湾的重点是撤出对中国的投资，减少对中国的依赖。她说：“相对于台湾，印度在半导体行业的合作中拥有更大的利益之。”
 
-对方的肾不行
-Your CCP partner’s kidney can’t function
+她补充说：“印度和台湾之间已经签订了一些协议，在此基础上再新增一些经贸协议并不违反’一个中国’的政策。”
 
-你不能说咱俩离开吧，因为你每次都不能让我高潮
-You cannot say let’s break up because you can’t make me orgasm every time
+[原文链接：India, Taiwan in talks on semiconductor hub, free trade and investment pacts](https://www.hindustantimes.com/india-news/india-taiwan-in-talks-on-semiconductor-hub-free-trade-and-investment-pacts-101639656166764.html)
 
-你要说这话，对方就不会再跟你搞失恋，就搞死你了
-If you would said this, your CCP partners won’t breaking up with you anymore, and will kill you
+*发布：翼族*
 
-竟然说老子肾不行，那我不搞死你吗？
-You actually said their kidney function is not well? They will destroy you
-
-你可以说我不适合你
-You can say that I’m not fit for you
-
-这是骗人，这是懦弱，但你不能说你肾不行
-It’s a lie, it’s cowardice, but you can’t say their kidneys can’t function
-
-现在共产党就是咱不能说咱肾不行
-The Communist Party internally means that the West Countries can’t say their (the CCP’s) kidneys can’t function
-
-是西方的人不行
-(the officials are not attending the Olympics) is the Westerners can’t come
-
-这一点就对它有多大的致命的伤害
-At this point of view, how fatal it hurts the CCP
-
-第二，经济上在内部下了个通知
-Secondly, the CCP has issued an internal notice financially
-
-特别是中央银行郭树清这儿，还有这个周亮那儿
-especially for the Central Bank where Guo Shuqing and Zhou Liang are located
-
-说中国的经济只能向好、局部调整、对外一致口径
-when we (the CCP) talk about China’s economy, it can only be improved, par-tially adjusted, and externally consistent
-
-你看看啊，多可怕
-Look how terrible it is
-
-我钱没事呀，我有钱呀，是吧？
-(The CCP bluffing) I’m fine with money, I’m rich right?
-
-我这个钱，就经济向好、局部调整
-For my money, the economy will improve and some adjustments will be made
-
-说那地产有事，局部调整
-Saying that there is something wrong with the property, it would be some par-tially adjustment
-
-贸易不好，局部调整
-Saying that the trade is not good, it will be some adjustment
-
-一个局部调整都给你局部了
-This partial adjustment covers all the debt fraud
-
-但是一切都是向好
-but everything is improving
-
-你看这种骗人呀
-Take a look at this kind of deceit
-
-西方绝对是官方不去任何人去一点意义都没有
-In the West, if the government does not go, it is absolutely meaningless if any-one goes
-
-现在找各种非洲、南美那些独裁国家
-The CCP is currently looking for all kinds of dictatorship countries in Africa and South America
-
-现在已经明确了
-It’s clear now that
-
-只要你派官方来，我们就给你什么什么样赞助
-as long as you send an official, we will give you certain sponsorships,
-
-免贷款赞助
-the loan-free sponsorships
-
-**原视频链接:** [https://gettr.com/post/pjjifl68f6](https://gettr.com/post/pjjifl68f6)
-
-Date: 12/13/2021
-原视频标题: 中共惧怕西方抵制冬奥运 改成官方不参与冬奥会
-The West Boycotts the Winter Olympics Has Been Changed to The Officially Not Participate in The Winter Olympics by The CCP Due to The Fear
-原视频日期：2021/12/12
-原视频链接: https://gettr.com/post/pjjifl68f6
-任务编号：KC341（3219）
-视频时间段 : 0:00-2:09
-
-英听校: 洛杉矶盘古农场 – 郭班之樱
-翻译: 洛杉矶盘古农场 – 郭班之樱
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 –天涯行
-审片：洛杉矶盘古农场 –银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

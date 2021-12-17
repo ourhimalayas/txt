@@ -2,43 +2,45 @@
 ---
 
 
-## 证据：中共病毒COVID疫苗导致朊病毒疾病
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1762951/)
+## 邮件显示：扎克伯格帮助福奇促进COVID封锁政策和疫苗开发
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1763093/)
 
-本文作者：Rebecca (一切心皆不可得！)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image001-10.png)
-据《自然新闻网》报道，mRNA疫苗正在导致朊病毒疾病。人们在注射前没有这些疾病，而在注射后却突然患上了这些疾病。对此没有其他解释。
+**据《国家脉动》作者：Natalie WintersRaheem J. Kassam，2021年12月14报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12-a34z7-c0tz0-6.jpg)**图片来源：forbes.com**
+在马克-扎克伯格和安东尼-福奇之间的私人电子邮件——由《国家脉动》独家获得——中，Facebook创始人兼首席执行官提出发送关于用户的“数据报告”，以“促进决定”COVID-19的封锁。
+这一披露是一个鲜明的例子，说明大科技公司和政府可以很容易地利用用户数据进行勾结，限制普通民众的自由。
+在交流中，扎克伯格坚持说：“我想确保你拥有所有你需要的资源，以加快疫苗的开发。”
+扎克伯格——电子邮件中提到的他的个人基金会为确保当时的候选人乔-拜登在2020年取得胜利投入了数亿美元——向美国国家过敏和传染病研究所（NIAID）所长提供了援助，而就在一个月前，这对夫妇在（被美国政府删节的）电子邮件中进行了联系。
+扎克伯格4月8日给福奇的电子邮件全文如下。
+托尼，
+我写信再次感谢你所做的一切，并想看看“Facebook、陈-扎克伯格倡议”或我个人是否还能做些什么，以帮助你努力打击Covid并使社会重新开放。
+如果我们看到全国各地长期收紧和放松庇护所限制，那么如果有汇总的、匿名的数据报告，Facebook可以生成，以促进这些决策。例如，我们很乐意这样做，并希望确保我们优先考虑正确的工作。我们已经启动了一个症状调查，希望能提供一个逐县的病例领先指标，为公共卫生决策提供参考。如果有其他你认为有帮助的综合数据资源，让我知道。
+从长远来看，[REDACTED]和我想确保你们拥有所有需要的资源，以加快疫苗的开发。这似乎是一个得到大量投资的领域，但如果有一些有前途的方法目前还没有被研究——或者如果有一些领域可以使用更多的资源——让我知道，我们将很乐意考虑为它们提供资金。
+再次感谢您在这方面的领导。我知道你很忙，所以如果现在没有什么需要我们帮助的，就没有必要回复这封邮件。我希望你过得很好。
+马克
+福奇回应了扎克伯格的电子邮件：
+马克，
+谢谢你的说明和你的帮助提议。我将认真考虑我们如何接受你的提议。
+温馨的问候。
+托尼
+在这次交流中，Facebook首席执行官和NIAID主任分别通过电子邮件讨论了该社交媒体平台的“冠状病毒信息中心”以及如何控制围绕该大流行病的叙述。
+当参议员玛莎-布莱克本今年早些时候提出这个问题时，福奇否认知道与Facebook负责人的互动。
+“我不知道她刚才说了什么，我不知道她在说什么。我不知道她在说什么。。。。。。我不知道她在说什么。”
 
-朊病毒疾病是不可治愈的，而且总是致命的。接种COVID疫苗后，最快6周就会死亡（见6周内和6个月内的例子）。
+- 2021年6月9日，福奇在MSNBC上的讲话
+在他们最初公报的末尾，有一段编辑过的电子邮件部分，有人称这是扎克伯格提出的对某些话题进行审查。
+这一消息传来，Facebook的律师承认他们的“事实核查”努力不过是该公司的第三方合作伙伴的“意见”。该公司已经根据这些“事实核查”删除和冻结了数千个与COVID-19有关的帖子和账户。
 
-以下内容来自Steve Kirsch 转载自 [SteveKirsch.Substack.com](https://stevekirsch.substack.com/p/proof-covid-vaccines-cause-prion)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/126.png)
+**原文连接**：[https://thenationalpulse.com/exclusive/private-fauci-zuckerberg-emails-offering-data-reports/](https://thenationalpulse.com/exclusive/private-fauci-zuckerberg-emails-offering-data-reports/)
+翻译：洛杉矶盘古农场- TrueSky
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – 柯镇恶
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-我写了一条推特，说疫苗会导致朊病毒病。推特给那条推文标签为“具误导性”。
-
-这根本不是事实。我的陈述在科学文献和VAERS数据中也得到了验证。
-
-见[https://stevekirsch.substack.com/p/proof-covid-vaccines-cause-prion](https://stevekirsch.substack.com/p/proof-covid-vaccines-cause-prion)并阅读所有的评论，这表明我不是唯一对数据有这种评估的人。
-
-早在2021年5月，当Byram Bridle教授披露关于辉瑞公司疫苗生物分布数据的FOIA请求时，提到穗状蛋白与路易体形成有关，而路易体与朊病毒疾病有关。他表示担心，疫苗可能导致朊病毒疾病，如痴呆症、阿尔茨海默氏症和克雅氏病（CJD）。
-
-几小时后，Twitter暂停了我的账户。没有上诉的机会。过去12年里的所有内容都被删除。我的7.5万名追随者全部被清零。我的信息被删除。没有机会下载我的内容。
-
-唯一留下的是：我的Twitter ID是@stkirsch。
-
-如需了解更多内容，请阅读文章，链接如下：
-
-- [杰西卡-罗斯关于COVID疫苗和朊病毒疾病的文章](http://Jessica%20Rose’s%20article%20on%20COVID%20vaccines%20and%20prion%20diseases)
-- [Stephanie Seneff关于朊病毒疾病和COVID疫苗的论文](http://Stephanie%20Seneff’s%20paper%20on%20prion%20disease%20and%20the%20COVID%20vaccines)
-- [Bart Classen的论文将疫苗和朊病毒疾病联系在一起](http://Bart%20Classen’s%20paper%20linking%20the%20vaccines%20and%20prion%20diseases)
-- [SARS-CoV-2导致猕猴的脑部炎症并诱发路易体的形成](http://SARS-CoV-2%20causes%20brain%20inflammation%20and%20induces%20Lewy%20body%20formation%20in%20macaques)
-- **[SARS-CoV-2 穗状蛋白中的朊病毒样域使其与ACE2的亲和力更高](http://SARS-CoV-2%20Prion-Like%20Domains%20in%20Spike%20Proteins%20Enable%20Higher%20Affinity%20to%20ACE2)**
-
-
-[新闻来源链接](https://www.naturalnews.com/2021-12-10-proof-covid-vaccines-cause-prion-diseases.html)
-
-审核校对：sherryok (水云间)
-
-上传排版：漂流瓶
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

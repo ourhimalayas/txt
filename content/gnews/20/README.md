@@ -2,13 +2,13 @@
 ---
 
 
-## 韩国疫苗接种率超92%，新增中共病毒病例爆增5倍
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1763296/)
+## 12/08郭文贵直播：中共外交部是共产党对外情报机构（粤语配音）
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1763417/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1217-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+12/08/2021 郭文贵直播：中共外交部是共产党的对外情报机构，单伟建是外交部子弟，他利用太平联盟代表中共在美国、在BVI和在北京采取的一系列活动都是针对文贵的。
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

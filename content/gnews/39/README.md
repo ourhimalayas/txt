@@ -2,44 +2,88 @@
 ---
 
 
-## 班农先生荣获《国家脉动》第二届年度爱国者奖
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1762894/)
+## 美国制裁中共的几大重招
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1763036/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/8121-2.jpg)图片来源：Gnews
+[https://gtv.org/video/id=61bb64fba68b4f4b28e936a6](https://gtv.org/video/id=61bb64fba68b4f4b28e936a6)
 
+**郭文贵**
+**Miles Guo**
 
-#### 整理报道：文泓
+就是关于这8个问题，说实在的，我还真不能说
+about these eight questions, to be honest with you, I really can’t say it
 
-美国时间12月16日，《国家脉动》主编宣布，史蒂夫·班农先生荣获《国家脉动》第二届年度爱国者奖。
-现年68岁的班农在2016年引起了全国的关注，帮助带领川普竞选团队以惊人的优势击败希拉里克林顿和民主党机器。从那以后，班农一直担任白宫首席战略官，并与前川普通讯主管杰森米勒和国家脉搏总编辑拉希姆·卡萨姆一起创立了非常成功的《班农战争室》：大流行播客。
+就比如上次我说完以后，大家要看一看美国现在民主党出现了多少总统候选人
+For example, after I finished last time, everyone should take a look at how many presidential candidates have appeared in the Democratic Party in the United States
 
-班农出生于弗吉尼亚州诺福克，是多丽丝和马丁班农的儿子。他曾就读于弗吉尼亚理工大学，在加入美国海军之前成为学生会主席，同时获得国家安全研究硕士学位，然后在哈佛商学院获得MBA。
-班农曾在保罗·福斯特号航空母舰服役，然后在弗吉尼亚州五角大楼担任海军作战部长的特别助理。
+大家看一看，几乎是多过10个，这在两个月前是不可能的
+Everyone should take a look, there are almost more than 10 people which was impossible two months ago
 
-离开海军后，班农去了高盛工作，在那里他会花几年时间了解他现在每天两次的节目所反对的那些精英阶层的全球主义商业运作。
-几年后，他在好莱坞建立了自己的业务，其本人制作了多部电影，包括里根史诗《直面邪恶》和2012年的《揭露占领》。
+共和党几乎也超过10个，所以说2022年的中期选举
+There are almost more than 10 Republicans, so the midterm elections in 2022
 
-2009年金融危机后不久，班农与传奇性的保守派火爆人物安德鲁·布赖特巴特合作，他们搭档继续为布赖特巴特新闻网站制定发展计划。布雷特巴特于2012年去世，班农担任执行主席。他将该网站建成了一个民粹主义/民族主义保守主义的全球中心，这令建制派媒体和政治阶层感到震惊和恐惧。
+共和党(如果)没有出现巨大的天崩地裂的意外的话它一定会赢，它赢完以后
+if there is no huge accident in the Republican Party, Republicans will definitely win and after it wins
 
-2016年8月，班农应邀加入川普竞选团队，担任其首席执行官。当时，该竞选团队在几乎所有摇摆州都处于下风。正是班农的坚定性和纪律性帮助竞选团队重新调整并顺利度过了臭名昭著的“比利·布什周末”，在这个周末，一盘以候选人川普私下发表猥亵言论为主题的录音带被公布。
+川普的定位，班农的定位，还有这些要选共和党的未来总统的这些人的定位
+Trump’s position, Bannon’s position, and the position of these people who want to run the future president of the Republican Party
 
-自从离开白宫和布莱巴特新闻网后，班农以《战争室》播客的形式建立了一个右翼势力。该节目现在被视为全球所有政治和新闻媒体中最重要的节目之一，并且是第一个在世界卫生组织、安东尼·福奇等人之前就认识到即将到来的大流行的危险的节目。
-**事实证明，班农和他的团队对中国共产党（他心中的对手）和病毒起源的判断是正确的。**
-自1月6日美国国会大厦发生骚乱以来，班农一直是1月6日欺诈委员会的焦点，被控蔑视国会，并再次被企业左翼媒体视为仇恨人物。
+和民主党选总统的人定位，这个是大战，但是有一件事你可以看得出来
+and the position of the Democratic Party to run the president, this is a huge battle, but there is one thing you can tell
 
-《国家脉动》主编强调，政治迫害是我们今年要向班农致敬的原因之一：
+所有的你能想象到的这两党的总统候选人，100%都会去灭共
+you can imagine that all the presidential candidates of these two parties will take down the Communist Party 100%
 
-当我听说史蒂夫被国会蔑视时，我给他发了短信，让他知道，世界上没有任何机构比现在的国会更希望被藐视了。这是一个荣誉的徽章，应该如此佩戴。我们很高兴向史蒂夫颁发第二届年度爱国者奖，**这不仅是因为他敢于站出来反对腐败的政治精英、中国共产党和世界各地的激进伊斯兰主义者，还因为他对整个西方世界的保守主义运动的不懈的努力，以及他对这个共和国的建国原则的恒久承诺。我很自豪地称史蒂夫为导师、朋友和****2021年国家脉搏的年度爱国者。**
+其中的8招之核心的招我告诉你，最终核心的就是一定是经济脱钩
+let me tell you that the core of the eight measures, the ultimate core must be economic decoupling
 
-新闻链接：[National Pulse Patriot of The Year 2021: Stephen K. Bannon. (thenationalpulse.com)](https://thenationalpulse.com/news/national-pulse-patriot-of-the-year-2021-stephen-k-bannon/)
+一定要查处共产党高官在西方的资产，看到你七哥最近2017年说的
+They must investigate the assets of high-ranking Communist Party officials in the West, look at what I said in 2017
 
-**发布：文泓**
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+七哥和新中国联邦一定会让西方依法快速全球行动
+Miles and the New Federal State of China will surely ask the West to act quickly and globally in accordance with the law
+
+查处共产党的所有在海外的私生子女和资产，这是灭共最重要的
+Investigate all the illegitimate children and their assets of the Communist Party abroad, this is the most important thing for taking down the Communist Party
+
+这就是(为什么)我们希望习太阳活着，因为只有他活着(别人)才能看到他家人有多少钱
+This is why we want Xi Sun to live, because only he is alive and others can see how much money Xi’s family has
+
+看到他们的所有的同党，所谓无神论的人是多少人信神
+seeing all their accomplices, how many people are so-called atheists who be-lieve in God
+
+所谓的无产阶级的共产党是有多少产，这个一定会发生
+How much property does the so-called proletarian Communist Party have, this will definitely happen
+
+还有一个更(会)发生的，大家一定要看到
+There is one more thing will happen, everyone will definitely see
+
+共产主义会被列为人类上的邪教，跟恐怖主义相提并论
+Communism will be classified as a cult for humans, on par with terrorism
+
+人人可合法杀之，这才是重中之重
+Everyone can be killed it legally, this is the top priority
+
+**原视频链接:**[https://gettr.com/post/pjjfy36f2b](https://gettr.com/post/pjjfy36f2b)
+
+Date:12/15/2021
+原视频标题: 美国制裁中共的几大重招
+The U.S. has several major measures to sanction the CCP
+原视频日期：2021/12/12
+原视频链接https://gettr.com/post/pjjfy36f2b
+任务编号：KC342（3221）
+视频时间段 : 0:00-2:07
+
+中听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 –
+字幕+视频制作：洛杉矶盘古农场 –青梅煮酒
+审片：洛杉矶盘古农场 –银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
