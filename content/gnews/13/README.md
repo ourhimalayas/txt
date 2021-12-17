@@ -2,39 +2,23 @@
 ---
 
 
-## 美国因维族人权问题对中共再施制裁
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1764986/)
+## 【粤语配音】2021年12月15日文贵直播：喜币和躺平币的区别
+` MOS香港部` [轉載自GNews](https://gnews.org/zh-hans/1765066/)
 
-作者：莫斯科喀秋莎农场 仰望七星 / 日本方舟农场 Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月16日，拜登政府表示，将对34个中共国生物技术和监控公司，以及中共政府实体在新疆的行动实施新的制裁。这是美国针对中共在新疆地区侵犯当地维吾尔族穆斯林人权的最新制裁。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-17-下午9.12.37.png)
-有关报道称，美国商务部将目标锁定在包括中共解放军军事科学院军事医学研究院在内的11个研究所，以及其他20余家企业。商务部指出，这些研究所专注于利用生物技术支持中共军队。制裁实施后，美国政府将禁止美国公司在没有许可证的情况下向这些实体出售相关的零部件。
+紐約香草山-香港部
 
-有知情人士透露，美国情报部门已经确定，中共在新疆建立了一个高科技监控系统，而该系统通过使用生物特征面部识别技术，以及对新疆所有12至65岁的居民采集DNA样本，作为中共系统性镇压维吾尔人恶行的一部分。其中，中共科学院和研究所的生物技术和工艺为中共军队及政府提供了不可或缺的帮助。
+躺平币和喜币最大的问题，喜币和躺平币完全是独立的法人机构，独立的发行机构，完全不同的功能，但最终都是要灭共的，这是肯定的。
 
-对此，美国商务部长也在一份声明中强调，中共政府正在利用生物技术和医疗创新来控制中国人民，并镇压少数民族和宗教群体。因此，美国不能允许支持医学科学和生物技术创新的美国商品、技术和软件被转用于违反美国国家安全的用途。
+然后喜联储、喜币主要是致富战友，让战友富有，还有创造新中国联邦未来的金融系统。它是一个国家的未来，就像法币一样，主要是为战友服务的，长期的、一系列的、功能化的。
 
-参考链接：
-1）[拜登政府对中共虐待维族人实施新制裁](https://gnews.org/zh-hans/1762162/)
-2）[U.S. blacklists 34 Chinese entities, citing human rights abuses and ‘brain-control weaponry’](https://www.cnbc.com/2021/12/16/us-blacklists-34-chinese-entities-over-human-rights-abuses-brain-control-weapons.html)
-3）[美对逾40中国实体实施投资或出口限令](https://www.zaobao.com/realtime/china/story20211217-1223952)
-4）[中国の複数機関に米国が制裁、生体情報使いウイグル族弾圧と指摘](https://news.yahoo.co.jp/articles/2e59c6716d32a8d4e063c21494b44dcfc322af3c)
-5）[美國商務部將再把34中國企業及機構列入制裁名單　指控威脅國安](https://www.hk01.com/%E5%8D%B3%E6%99%82%E5%9C%8B%E9%9A%9B/713329/%E7%BE%8E%E5%9C%8B%E5%95%86%E5%8B%99%E9%83%A8%E5%B0%87%E5%86%8D%E6%8A%8A34%E4%B8%AD%E5%9C%8B%E4%BC%81%E6%A5%AD%E5%8F%8A%E6%A9%9F%E6%A7%8B%E5%88%97%E5%85%A5%E5%88%B6%E8%A3%81%E5%90%8D%E5%96%AE-%E6%8C%87%E6%8E%A7%E5%A8%81%E8%84%85%E5%9C%8B%E5%AE%89)
+而躺平币是全球的，谁用社交媒体，谁致富，这个是完全独立的系统，跟发行机构完全是独立的，然后第三方给兑现的，就是能让你买面包、买油的，这些功能是由第三方完全独立的来支撑，这个是很大的事儿，你不是去中心化了，只要是你有，像咱喜联储一样，你有支付系统，你就不可能去中心化，它是完全去中心化的，是第三方开始的。
 
-![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+另外一个服务的，像支付系统，都是第三方的，而且都是不同的国家的，那它要的事情就是未来社交媒体上，就是3.0版，谁用时间长，谁获得最大的利润，而不是平台，谁要是在这个躺平币谁得到得多，随时可以更换，随时可以贴现，随时可以支付，随时可以流通。
 
-总编：Irene木木
-编辑：Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
+这种情况下就是你的工作和时间和结果，你就是使用这个躺平币的时间和社交媒体来计算，当然未来会涉及很多功能，比如说抽奖、打赏、私密直播，等等一系列的功能，所以它完全是独立的，它跟咱们新中国联邦也是独立的，但最终它也是有利于灭共。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+比如说美国人，人家用，阿富汗人用，人家不灭共，待遇是一样的。它不同的本质在这里
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

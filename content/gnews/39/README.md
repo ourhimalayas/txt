@@ -2,32 +2,22 @@
 ---
 
 
-## 前FDA官员专家抨击拜登政府害了联邦卫生机构的声誉
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1764415/)
+## 美国多位众议员敦促美国奥委会禁止运动员使用数字人民币
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1764558/)
 
-#### 撰稿：彩虹       
+#### 翻译/撰稿：zzballack
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-863.png)图片来源：国会山报
-12月16日，《国会山报》报道两位前FDA（美国食品和药物管理局）官员批评拜登政府，指责其在决定强制为成年人和年龄较大青少年注射中共病毒（COVID-19）疫苗加强针之前不召集外部专家小组。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-28.jpg)图片来源：CoinQuora
+《布雷特巴特新闻网》（Breitbart News）12月16日独家报道说，美国共和党众议员兰斯·古登 (Lance Gooden)、丽莎·麦克莱恩 (Lisa McClain)、马奎恩·穆林 (Markwayne Mullin)和杰克·埃尔泽 (Jake Ellzey)联名写信给美国奥委会，敦促它们在北京冬奥会期间，禁止美国运动员使用数字人民币，否则面临被中共监控的风险。
 
-报道指，FDA前副局长菲利普·克劳斯（Philip Krause）和FDA前首席科学家卢西亚娜·博里奥（Luciana Borio）在《华盛顿邮报》发表了一篇文章，文章认为，在未与独立专家小组协商的情况下强制接种疫苗，损害了联邦卫生机构的信誉。
+议员古登在一份声明中说：“中共是美国的主要对手，在监视美国公民方面有着长期的记录。美国奥委会应该采取一切预防措施，保护美国运动员的隐私不受中共政府的侵犯。”
 
-文章总结，在过去的一个月里，FDA已经授权为所有16岁以上的人注射中共病毒疫苗加强针。CDC（美国疾病控制和预防中心）还对该指南做了修订，建议为每个18岁以上的人注射中共病毒疫苗加强针。
+该联名信中写道：“数字人民币完全由中国人民银行控制，可以被中央银行追踪。数字人民币自2014年以来一直在运作，但直到最近，中共政府才发布了有关该货币的关键功能，包括能够知道某人购买的东西和购买地点等详情。鉴于中共一直以来利用新兴技术镇压维吾尔人、香港人以及中国各地争取言论自由的人，所以这些担忧并非空穴来风。微信等数字支付平台已经被用来监视、威胁和逮捕中国公民。所以参加冬奥会的运动员应该意识到，数字人民币可能被用来对中国公民和访问中国的人进行前所未有的大规模监视。中共希望他们在智能手机上保留数字人民币钱包，并在回国后继续使用，这会带来许多隐私方面的问题。”
 
-然而此前，FDA的一个小组曾对与辉瑞生物技术公司的疫苗带来的有关心肌炎和心包炎的风险表示关切。但是，上周，当FDA宣布授权为16岁和17岁的青少年注射中共病毒疫苗加强针时，该机构表示，单剂量中共病毒疫苗加强针带来的好处超过造成大龄青少年心肌炎和心包炎的风险。
+之前，玛莎·布莱克本 (Marsha Blackburn) 等参议员也有过类似呼吁。他们给美国奥委会写信说：“最重要的是，美国奥委会应与国务院、财政部和商务部合作，保护美国运动员的隐私不受中共政府侵犯。”
 
-对此，克劳斯和博里奥认为，“在没有咨询外部专家的情况下做出这样的决定会失去很多东西，不管人们对有关政策的优点有什么看法。”
-
-在文章中，这两位前FDA官员假设说，如果这些政策决定提交给一个独立小组，（肯定会有）一些专家反对这些措施。
-
-值得注意的是，他们的举例颇具讽刺对比意味，他们指出，当时前总统川普的政府在没有委员会意见的情况下授权使用羟氯喹和疗养血浆治疗中共病毒（COVID-19）时，许多人对此表示愤慨，那么，该标准同样也应该适用于拜登政府。
-
-**新闻来源**
-
-[Former top FDA officials accuse Biden admin of ‘sidelining’ experts](https://thehill.com/homenews/administration/586192-former-top-fda-officials-accuse-biden-admin-of-sidelining-experts)
-
-
+新闻来源：[Exclusive – Rep. Lance Gooden, Republicans Urge U.S. Olympic Committee to Block Athletes from Using Digital Yuan](https://www.breitbart.com/politics/2021/12/16/exclusive-rep-lance-gooden-republicans-urge-u-s-olympic-committee-to-block-athletes-from-using-digital-yuan/)
 
  
 

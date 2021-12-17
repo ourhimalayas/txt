@@ -2,41 +2,39 @@
 ---
 
 
-## 英国皇家空军战机在叙利亚上空击落“恐怖无人机”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1764954/)
+## 美国因维族人权问题对中共再施制裁
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1764986/)
 
-**【雅典娜快讯】，紧贴时代脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-216.jpg)图片来源：The Drive
-整理报道：文扬
-编辑：文泓
+作者：莫斯科喀秋莎农场 仰望七星 / 日本方舟农场 Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月16日，拜登政府表示，将对34个中共国生物技术和监控公司，以及中共政府实体在新疆的行动实施新的制裁。这是美国针对中共在新疆地区侵犯当地维吾尔族穆斯林人权的最新制裁。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-17-下午9.12.37.png)
+有关报道称，美国商务部将目标锁定在包括中共解放军军事科学院军事医学研究院在内的11个研究所，以及其他20余家企业。商务部指出，这些研究所专注于利用生物技术支持中共军队。制裁实施后，美国政府将禁止美国公司在没有许可证的情况下向这些实体出售相关的零部件。
 
-近日，英国皇家空军在叙利亚南部击落了一架“恐怖无人机”。这次标志性的遭遇战是英国在叙利亚打击伊斯兰国的行动中第一次使用空对空导弹交战。
+有知情人士透露，美国情报部门已经确定，中共在新疆建立了一个高科技监控系统，而该系统通过使用生物特征面部识别技术，以及对新疆所有12至65岁的居民采集DNA样本，作为中共系统性镇压维吾尔人恶行的一部分。其中，中共科学院和研究所的生物技术和工艺为中共军队及政府提供了不可或缺的帮助。
 
-当地时间周二，一架英国皇家空军台风战斗机在叙利亚南部的阿尔坦夫联军空军基地附近击落了这架无人机。英国国防部的一份新闻稿称，这架无人机“很小”，并称台风飞行员用先进的短程空对空导弹(ASRAAM)将其击落。
+对此，美国商务部长也在一份声明中强调，中共政府正在利用生物技术和医疗创新来控制中国人民，并镇压少数民族和宗教群体。因此，美国不能允许支持医学科学和生物技术创新的美国商品、技术和软件被转用于违反美国国家安全的用途。
 
-此次交战被描述为“史无前例”，因为它是英国皇家空军台风战机的第一次空对空作战，也是英国皇家空军在“遮阳板行动”期间首次发射空对空导弹——这是英国对叙利亚伊斯兰国（IS，前ISIS）恐怖分子军事行动的代号。
+参考链接：
+1）[拜登政府对中共虐待维族人实施新制裁](https://gnews.org/zh-hans/1762162/)
+2）[U.S. blacklists 34 Chinese entities, citing human rights abuses and ‘brain-control weaponry’](https://www.cnbc.com/2021/12/16/us-blacklists-34-chinese-entities-over-human-rights-abuses-brain-control-weapons.html)
+3）[美对逾40中国实体实施投资或出口限令](https://www.zaobao.com/realtime/china/story20211217-1223952)
+4）[中国の複数機関に米国が制裁、生体情報使いウイグル族弾圧と指摘](https://news.yahoo.co.jp/articles/2e59c6716d32a8d4e063c21494b44dcfc322af3c)
+5）[美國商務部將再把34中國企業及機構列入制裁名單　指控威脅國安](https://www.hk01.com/%E5%8D%B3%E6%99%82%E5%9C%8B%E9%9A%9B/713329/%E7%BE%8E%E5%9C%8B%E5%95%86%E5%8B%99%E9%83%A8%E5%B0%87%E5%86%8D%E6%8A%8A34%E4%B8%AD%E5%9C%8B%E4%BC%81%E6%A5%AD%E5%8F%8A%E6%A9%9F%E6%A7%8B%E5%88%97%E5%85%A5%E5%88%B6%E8%A3%81%E5%90%8D%E5%96%AE-%E6%8C%87%E6%8E%A7%E5%A8%81%E8%84%85%E5%9C%8B%E5%AE%89)
 
-“遮阳板行动”主要是空袭，自2014年以来一直在进行，同时英国特种部队也被部署到叙利亚和邻国。
+![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-国防部没有说明是哪个恐怖组织负责发射这架无人机，只是说它是“敌对的”并具有“恐怖主义威胁”。
+总编：Irene木木
+编辑：Irene木木
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-五角大楼早些时候报道了这架无人机被击落的情况，中央司令部发言人比尔厄本上尉说发现了两架无人机，其中一架离开了该地区。
-
-这次交锋发生在联军阿尔坦夫基地被火箭弹和无人机连续袭击的两个月后，报告显示该基地遭受严重破坏。当时，美国军方将这场袭击归咎于伊朗支持的什叶派民兵。
-
-虽然伊斯兰国自2014年以来的所有军事成果都被叙利亚、俄罗斯和西方的干预措施所击退，但其部分战斗人员仍然活跃，并定期与反对他们的众多派别发生冲突。据报道，本周在叙利亚东部发生了一次这样的冲突，当时与西方结盟的库尔德部队声称在联军空中支援的帮助下消灭了五名伊斯兰国战士。
-
-原文链接： [RAF war plane in ‘unprecedented’ engagement over Syria — RT World News](https://www.rt.com/news/543431-raf-shoots-drone-syria/)
-
-发文：去中心化Math
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
