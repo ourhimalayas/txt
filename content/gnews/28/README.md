@@ -2,35 +2,26 @@
 ---
 
 
-## 阿里巴巴股价领跌 直面中概股退市
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1765941/)
+## 温哥华的Mel Brushet医生因揭露疫苗导致死胎率急剧上升被强行留在医院
+` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1765972/)
 
-作者：银河勇气星—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月15日，据媒体消息显示，阿里巴巴美股股价当天下挫6%，与此同时，美国上市的中概股公司股价出现集体下跌的情况。
+这是一位81岁的老祖父，被戴着手铐强行从家里带走，他从来不对任何人构成威胁，包括他自己或其他人。他被带到急诊科，我是也一名急诊医生，我整个职业生涯都在处理这些情况。什么标准下我可以剥夺某人的权利，并非自愿的将其送进医院？如果他们伤害自己、如果他们伤害他人、或如果他们不留在医院，健康状况会立即恶化并危及生命。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide5-10.jpeg)
+这位急诊医生因诊断为可能患有痴呆症而将Mel Brushet医生非自愿地送入医院，如果某人患有严重的痴呆症，他们会在屋外徘徊，并且非常困惑，以至于无法找到回家的路，而Mel Brushet医生肯定不是这种情况，他能开车去任何地方。
 
-报道提及，美国与中共之间存在着日益加剧的紧张局势，这导致大量的中概股退出美国股市的步伐加速。另一方面，中共政府可能也在持续施压，迫使这些中概股公司从美国股市退出，转至香港上市，这也是相关公司股价下跌的原因之一。
+我们打电话给希望中心的护理楼层，我说我需要和待命的精神科医生通话，昨晚三个不同的护士拒绝了我，值班的精神科医生被支付每天24小时接听电话并回答问题，（拒绝听电话）绝对是暴虐的行为，最终在全楼的保安都被叫来，三辆皇家骑警警车，六名警员出现后，这个护士才终于叫来了值班的精神科医生。我通过免提电话与他进行了半小时的交谈，这位精神科医生今天早上终于让Mel Brushet 医生在白天出来一天。
 
-分析人士指出，影响中共作出退市决定的因素可能在于，美国证券交易委员会SEC目前正在推进对中概股公司在美上市的严格监管。SEC明确，外国公司在美国上市前，其审计师倘若不遵守美国监管机构的信息要求，美国将禁止这些公司在美国股市中进行股票交易。然而，SEC的这一要对对于中概股公司来说，意味着其擅长的欺瞒游戏基本已经结束了。因此，中概股在美全面退市或将是一个迫不得已的选择。
+Mel Brushet可以回家一天，明天早上，一位合规的精神科医生会对他进行评估，我会和昨天这位精神科医生交谈，我会告诉那个精神科医生，让某人非自愿住院的标准是什么。我们作为人不能让心理健康系统被用作对付我们的武器，心理健康是关于健康的，这不是一个报警的借口，不是给人戴上手铐拖走的理由。心理健康、精神病系统已经被武器化，可以把人关起来，让他们保持沉默，这是以心理健康的名义进行的攻击。
 
-参考链接：[Alibaba leads Chinese stock losses as de-listing concerns heat up](https://seekingalpha.com/news/3780464-alibaba-leads-chinese-stock-losses-as-de-listing-concerns-heat-up)
+素材：abbs
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
+翻译：abbs
 
-总编：文真 
-编辑：Kathy文艺
-校正/发稿：谐趣园
+字幕：文雅
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+剪辑：Kent
 
+发文：Kent
 
  
 
