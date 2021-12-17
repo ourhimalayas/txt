@@ -2,21 +2,17 @@
 ---
 
 
-## 俄罗斯将与欧盟联合举办欧洲人权峰会打脸了中共
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1765651/)
+## 【文贵先生大直播PPT】疫苗大灾难
+` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1765669/)
 
-文编：东京樱花团/樱花传媒
+撰稿：李昂纳多【DC】坐看云起时【扬帆】MyWay【扬帆】莲心不染【扬帆】
+美工：Bobby（文俊）【英喜】
 
-视频:东京樱花团/中文小视频组
+【2021年12月17日文贵先生大直播PPT：疫苗大灾难】
+![](https://assets.gnews.org/wp-content/uploads/2021/12/33.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/22-10.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/23-7.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/24-7.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/25-6.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/26-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/27-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/28-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/29-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/30-2.jpg)
+* * *
 
-12月12日，郭文贵先生在GTV大直播指出：
-
-俄罗斯虽不能称霸世界，但虎视眈眈地想称霸欧洲，并一直在亚洲和欧洲之间寻求利益平衡，俄实际上正在以军事力量和能源控制着欧洲。现在又摇身一变准备放下身段与欧盟举办人权峰会，这一举动，无疑是狠狠地打脸了中共，因为中共国根本就没有人权也没有民主选举，连非洲各国都不如。
-
-编辑：东京樱花团/墨然
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.jpg)
-
+发稿：云起时
 
  
 

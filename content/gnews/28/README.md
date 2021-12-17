@@ -2,32 +2,39 @@
 ---
 
 
-## 加拿大军人向法院提起诉讼 挑战强制疫苗令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1765131/)
+## 日本首相岸田文雄表示个人暂无计划出席北京冬奥会
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1765397/)
 
-作者：加拿大扬帆农场 – Spirit
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间12月15日，据加拿大媒体报道，加拿大联邦法院于本周三听取了四名加拿大武装部队成员的庭辩论点。据了解，这四名军人因拒绝接种新冠疫苗而面临纪律处分，严重情况下可能被开除军籍。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/8-21.jpg)
-此前，加拿大国防参谋长韦恩·艾尔将军发布命令称，所有加拿大武装部队的成员必须在11月底前接种新冠疫苗，违者将面临处罚措施，包括可能被开除军籍。目前，这一期限被延长至12月18日。
+**撰稿：日本东京方舟农场 老孙**
 
-而拒绝该强制令的四名军人在宣誓书中表示，他们出于不同的原因反对接种新冠疫苗，包括宗教理由和对其长期安全性的担忧。尽管艾尔的命令允许军人以医疗、宗教和人权为由申请豁免，但这四名军人当天在法庭上的代表律师告诉加拿大媒体，他们的请求被加拿大政府全数拒绝。为此，这四名军人认为，他们被宪法赋予的权利受到了侵犯，他们强调，为了强制军人接种新冠疫苗以解雇作为威胁是政府极端的行为。
+12月16日，日本首相岸田文雄在回答在野党提问时表示，自己目前没有参加北京冬奥会的计划。
 
-参考链接: [Soldiers fighting military’s vaccine mandate bring challenge to Federal Court](https://www.cbc.ca/news/politics/military-vaccine-mandate-challenge-1.6287451)
+日本政府不打算派遣部长级以上官员参加，但正在考虑派遣日本奥委会（JOC）主席山下泰裕与2020东京奥组委主席桥本圣子等奥运会官员出席开幕式。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+岸田首相还表示：“重要的是要适时地考虑各种情况，从国家利益的立场做出独自的判断。”
 
-总编：文真
-编辑：小鹿妞妞
-校正/发稿：Fei797
+国际奥委会（IOC）主席巴赫14日对德国电视二台ZDF表示，美国、英国、澳大利亚等国因维护人权问题，决定对北京冬奥会进行外交抵制，不派政府官员参加。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/微信图片_20211217153832.png)奥运会 路透社图片
+
+身为美国的亲密盟友，日本担心它所受到来自中共政府与日俱增的威胁，需要有美国这样的超级大国为其撑腰。但日本在经济上也必须依赖中国这个贸易伙伴的角色。
+
+岸田文雄做出这样的决定，既可以与实施外交抵制的美国政府统一步调，显示日方重视人权，又可以避免得罪中共，似乎是最好的选择。
+
+但日本民意可能并不这样认为。12月12日，由于日本首相对抵制北京奥运会迟迟不表明态度，日本众民间团体发起反对北京冬奥会的游行活动，要求日本政府对北京冬奥委会提出公抵制。
+
+*参考链接：*
+
+[岸田文雄：没有参加北京冬奥会的计划](https://www.rfi.fr/cn/%E4%BA%9A%E6%B4%B2/20211216-%E5%B2%B8%E7%94%B0%E9%A6%96%E7%9B%B8%E8%AF%B4-%E6%B2%A1%E6%9C%89%E5%8F%82%E5%8A%A0%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E4%BC%9A%E7%9A%84%E8%AE%A1%E5%88%92)
+
+* * *
+
+*素材采编：老孙*
+
+*编辑：文顺*
+
+*发布：Ranting*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

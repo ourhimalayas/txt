@@ -15,143 +15,143 @@
 
 ---
 
-### [大宗货品交易量决定币的总值](/content/gnews/1/README.md)
+### [【文贵先生大直播PPT】中共国经济与房地产危局最新信息](/content/gnews/1/README.md)
+ ` Mr. Miles Guo's News Briefing`
+
+### [GTV新闻访谈简报|2021年12月17日早](/content/gnews/2/README.md)
+ ` 纽约香草山MOS01`
+
+### [大宗货品交易量决定币的总值](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新西兰：数千人抗议强制接种新冠病毒疫苗](/content/gnews/2/README.md)
+### [新西兰：数千人抗议强制接种新冠病毒疫苗](/content/gnews/4/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共惧怕西方抵制冬奥会 改成官方不参与冬奥会](/content/gnews/3/README.md)
+### [【文贵先生大直播PPT】疫苗大灾难](/content/gnews/5/README.md)
+ ` Mr. Miles Guo's News Briefing`
+
+### [中共惧怕西方抵制冬奥会 改成官方不参与冬奥会](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [12/17每日播报｜美国对中共国滥用生物技术的行为采取行动](/content/gnews/4/README.md)
+### [12/17每日播报｜美国对中共国滥用生物技术的行为采取行动](/content/gnews/7/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [俄罗斯将与欧盟联合举办欧洲人权峰会打脸了中共](/content/gnews/5/README.md)
+### [俄罗斯将与欧盟联合举办欧洲人权峰会打脸了中共](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文贵大直播 12/17 盘古龙头变方头 河南裕达成万达 无关法律关乎“法力”](/content/gnews/6/README.md)
+### [文贵大直播 12/17 盘古龙头变方头 河南裕达成万达 无关法律关乎“法力”](/content/gnews/9/README.md)
  ` 秘密翻译组-原创组`
 
-### [中共没有一首歌颂大自然的歌](/content/gnews/7/README.md)
+### [中共没有一首歌颂大自然的歌](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国当前房产危机 瑟瑟寒意](/content/gnews/8/README.md)
+### [中共国当前房产危机 瑟瑟寒意](/content/gnews/11/README.md)
  ` 焦點20分`
 
-### [共产党的无知 狂妄是我们灭共的关键](/content/gnews/9/README.md)
+### [共产党的无知 狂妄是我们灭共的关键](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [12/17/21 香港快讯 廖长江妻王沛诗 获委任为港大校委会主席 接替李国章](/content/gnews/10/README.md)
+### [12/17/21 香港快讯 廖长江妻王沛诗 获委任为港大校委会主席 接替李国章](/content/gnews/13/README.md)
  ` 英喜-粵語組`
 
-### [人类必须消灭共产党 抵制东奥是一个里程碑的胜利](/content/gnews/11/README.md)
+### [人类必须消灭共产党 抵制东奥是一个里程碑的胜利](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文贵先生HCN架构设计描述](/content/gnews/12/README.md)
+### [文贵先生HCN架构设计描述](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [Hcoin to the Moon是来自自然 反主旋律的音乐](/content/gnews/13/README.md)
+### [Hcoin to the Moon是来自自然 反主旋律的音乐](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国制裁无人机制造商大疆科技以及其它协助中共侵犯人权的公司](/content/gnews/14/README.md)
+### [美国制裁无人机制造商大疆科技以及其它协助中共侵犯人权的公司](/content/gnews/17/README.md)
  ` 首尔天池农场`
 
-### [感染破天际，日增8.8万！疫苗根本不起作用是武器](/content/gnews/15/README.md)
+### [感染破天际，日增8.8万！疫苗根本不起作用是武器](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【Michael.Tonny专栏】接种中共病毒疫苗患心脏病的风险比其它疫苗增加103倍（下）](/content/gnews/16/README.md)
+### [【Michael.Tonny专栏】接种中共病毒疫苗患心脏病的风险比其它疫苗增加103倍（下）](/content/gnews/19/README.md)
  ` 温哥华扬帆农场`
 
-### [冲绳美军汉森基地日本员工感染Omicron，陆战队员群体感染](/content/gnews/17/README.md)
+### [冲绳美军汉森基地日本员工感染Omicron，陆战队员群体感染](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【Michael.Tonny专栏】接种中共病毒疫苗患心脏病的风险比其它疫苗增加103倍（上）](/content/gnews/18/README.md)
+### [【Michael.Tonny专栏】接种中共病毒疫苗患心脏病的风险比其它疫苗增加103倍（上）](/content/gnews/21/README.md)
  ` 温哥华扬帆农场`
 
-### [日本谴责中共的决议的通过，好像只是时间问题](/content/gnews/19/README.md)
+### [日本谴责中共的决议的通过，好像只是时间问题](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文贵先生关于躺平币的描述（2）](/content/gnews/20/README.md)
+### [文贵先生关于躺平币的描述（2）](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共利用华为秘密入侵外国电信系统的证据被曝光](/content/gnews/21/README.md)
+### [中共利用华为秘密入侵外国电信系统的证据被曝光](/content/gnews/24/README.md)
  ` 日本东京方舟农场`
 
-### [文贵先生躺平币描述（1）](/content/gnews/22/README.md)
+### [文贵先生躺平币描述（1）](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [12月17日文贵大直播快讯——是什么造就了中共的奴役](/content/gnews/23/README.md)
+### [12月17日文贵大直播快讯——是什么造就了中共的奴役](/content/gnews/26/README.md)
  ` 澳喜特战旅Gnews`
 
-### [春节行动详细规划](/content/gnews/24/README.md)
+### [春节行动详细规划](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本首相岸田文雄表示个人暂无计划出席北京冬奥会](/content/gnews/25/README.md)
+### [日本首相岸田文雄表示个人暂无计划出席北京冬奥会](/content/gnews/28/README.md)
  ` 日本东京方舟农场`
 
-### [澳大利亚就是中共的一个进贡国 多国也是如此 可随意蹂躏](/content/gnews/26/README.md)
+### [澳大利亚就是中共的一个进贡国 多国也是如此 可随意蹂躏](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [DC每日热点1217](/content/gnews/27/README.md)
+### [DC每日热点1217](/content/gnews/30/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [加拿大军人向法院提起诉讼 挑战强制疫苗令](/content/gnews/28/README.md)
+### [加拿大军人向法院提起诉讼 挑战强制疫苗令](/content/gnews/31/README.md)
  ` GTV新闻访谈`
 
-### [大陆知名游戏主播注射毒疫苗后入院](/content/gnews/29/README.md)
+### [大陆知名游戏主播注射毒疫苗后入院](/content/gnews/32/README.md)
  ` 纽约香草山MOS03`
 
-### [中共严控出境 闭关锁国再度收紧](/content/gnews/30/README.md)
+### [中共严控出境 闭关锁国再度收紧](/content/gnews/33/README.md)
  ` GTV新闻访谈`
 
-### [12/17每日播报|社媒消息:蓬佩奥 班农](/content/gnews/31/README.md)
+### [12/17每日播报|社媒消息:蓬佩奥 班农](/content/gnews/34/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [12/17/2021国际财经快讯：美国通过对中共国维吾尔的进口禁令；英国澳大利亚签署自由贸易协定](/content/gnews/32/README.md)
+### [12/17/2021国际财经快讯：美国通过对中共国维吾尔的进口禁令；英国澳大利亚签署自由贸易协定](/content/gnews/35/README.md)
  ` 秘密翻译组金融团队`
 
-### [班农先生当选国家脉动2021年度爱国者](/content/gnews/33/README.md)
+### [班农先生当选国家脉动2021年度爱国者](/content/gnews/36/README.md)
  ` GTV新闻访谈`
 
-### [新中国联邦与西藏等地独立后的关系](/content/gnews/34/README.md)
- ` GTV新闻访谈`
-
-### [大疆公司遭美方抵制，拜登再出重拳？](/content/gnews/35/README.md)
+### [大疆公司遭美方抵制，拜登再出重拳？](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [12/17每日播报｜中共利用国防外交扩大其在拉丁美洲的影响力](/content/gnews/36/README.md)
+### [12/17每日播报｜中共利用国防外交扩大其在拉丁美洲的影响力](/content/gnews/38/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [12/17每日播报｜消费者研究警告：美国养老基金正被投向与中共关联密切的公司](/content/gnews/37/README.md)
+### [12/17每日播报｜消费者研究警告：美国养老基金正被投向与中共关联密切的公司](/content/gnews/39/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [冲绳首次发现奥密克戎毒株 驻冲美军集体感染令人担忧](/content/gnews/38/README.md)
+### [冲绳首次发现奥密克戎毒株 驻冲美军集体感染令人担忧](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线：距离台湾很近的宁德核电厂发生事故](/content/gnews/39/README.md)
+### [秘翻在线：距离台湾很近的宁德核电厂发生事故](/content/gnews/41/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共五十余家科企研究院被美国制裁](/content/gnews/40/README.md)
+### [中共五十余家科企研究院被美国制裁](/content/gnews/42/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [台湾开始限制科技公司出售在中共国的资产](/content/gnews/41/README.md)
+### [台湾开始限制科技公司出售在中共国的资产](/content/gnews/43/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [西藏独立的步步荆棘](/content/gnews/42/README.md)
+### [西藏独立的步步荆棘](/content/gnews/44/README.md)
  ` 骄子`
 
-### [最新发掘的邮件证明蝠奇多次对参议院及所有美国人撒谎](/content/gnews/43/README.md)
+### [最新发掘的邮件证明蝠奇多次对参议院及所有美国人撒谎](/content/gnews/45/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美国多位众议员敦促美国奥委会禁止运动员使用数字人民币](/content/gnews/44/README.md)
+### [美国多位众议员敦促美国奥委会禁止运动员使用数字人民币](/content/gnews/46/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [NFL在地图中把台湾列为中国的一部分 被人痛批](/content/gnews/45/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [传闻中国印钞总公司印两套真钞，是中共内斗给习挖坑吗?](/content/gnews/46/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [港闻前线｜医护移民潮 医管局急推低息置业贷款留人 业界批“人心尽失，覆水难收”](/content/gnews/47/README.md)
  ` 關注組`
