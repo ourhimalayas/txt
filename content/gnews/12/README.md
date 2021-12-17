@@ -2,30 +2,28 @@
 ---
 
 
-## 不要让邪恶势力把美国带入第三次世界大战的末日
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1764153/)
+## 本·卡森博士：需要停止接种疫苗并重新评估自然免疫力
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1764177/)
 
-翻译：fulin
-校对：精灵蓝
-剪辑/字幕：蛮吉
-编辑：Mttfly
-[![](https://assets.gnews.org/wp-content/uploads/2021/12/164.png)](https://assets.gnews.org/wp-content/uploads/2021/12/1-_-SC112100005.mp4)图片来源：gnews
-美国前国会女议员兼陆军预备役军官图尔西·加巴德：
+#### 撰稿：彩虹
 
-大家好，我刚刚结束了在北卡罗来纳州布拉格堡的预备役任务。正如你们所知，昨天，12月7日是日本袭击珍珠港的周年纪念日。因此，我花了一些时间来反思我的兄弟姐妹们在那一天被杀，以及那个可耻的日子如何将我们的国家推入一场导致数百万人死亡和痛苦的世界大战。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-2-3.png)
+本·卡森（Ben Carson）博士是一名退休神经外科医生，曾任美国第17届住房与城市发展部长，周四，他参加了《新闻极限》的“克里斯·萨尔塞多秀”（The Chris Salcedo Show）节目，称“是时候停止疫苗接种并重新评估自然免疫力了”。12月16日，《新闻极限》对此做了报道。
 
-我一直在想，如果我们允许主流媒体、军事工业综合体、为自己服务的政客，如果我们允许它们现在把我们带入第三次世界大战后的世界末日，那么死亡和痛苦将是多么巨大。因此，现在是关心自己所爱的人，关心我们的美国同胞，关心所有人类和野生动物的人的时候了。现在是时候提醒我们所有人所面临的严峻现实了，如果我们不阻止他们。
+关于疫苗的作用，卡森认为，CDC（美国疾病控制和预防中心）将辉瑞疫苗和莫德纳疫苗优先于强生公司的疫苗，那何时将这两种疫苗也废了呢？“很明显，这些疫苗没有他们声称的那样有效，已经接种疫苗的人仍然在感染疾病，仍然在将疾病传染给别人，所以，也许是时候停下来，重新评估整个情况了”。
 
-**视频链接：**[Don’t let evil forces to lead America into the apocalypse of world war three](https://gettr.com/post/pj75p024c7)
+对于自然免疫力，他对主持人克里斯·萨尔塞多（Chris Salcedo）说，在国家的公共卫生政策和辩论中，自然免疫力被忽视和拒绝（讨论）的时间太久了。
 
-**发布：**去中心化Math
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+他说：“事实上，自然免疫力似乎真的是最好的保护，为什么不看看（实际情况），比如，那些有天然免疫力的人？他们中很少有人似乎被再次感染，也很少有人将疾病传给其他人。与其嘴上说‘我们不收集那些（天然免疫）人的数据’，不如看看实际情况。为什么你不搜集他们的数据？因为你不想知道答案”。
+
+卡森批评如今将政治与科学混为一谈的行为，卡森说，我要考虑的是美国人民，而不是某种特定的（政治）观点。他提醒那些坚持认为他们“相信科学”的自由派活动家（liberal activists），科学是对未知事物的探索。
+
+关于对儿童接种中共病毒疫苗，卡森指出，“健康小孩死于（中共病毒）COVID-19的可能性几乎为零，但我们却不知道（中共病毒）疫苗对于孩子们的长期影响是什么。因此，在（认识到）短期风险为零的情况下，为何却要让孩子们承担长期（未知）风险？”
+
+**新闻来源**
+
+[Dr. Ben Carson to Newsmax: ‘Time to Stop, Reassess’ COVID Immunity](https://www.newsmax.com/newsmax-tv/ben-carson-surgeon-mrna-natural-immunity/2021/12/16/id/1049022/)
 
  
 

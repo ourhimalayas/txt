@@ -2,34 +2,43 @@
 ---
 
 
-## 灭共是使命天成，别无它故
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1764176/)
+## 中国突然变成了“民主国家”
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1764200/)
 
-**作者：**英喜庄园 安公子偷窥文明
-[![](https://express.adobe.com/page/qw2eA6TbvBf92/images/74CC7C5E-F044-4045-8BDF-64F342BDD946.jpg?asset_id=AF068DF7-F69D-4738-8627-CEA9FB84C4BB&amp;size=1024)](https://express.adobe.com/page/qw2eA6TbvBf92/images/74CC7C5E-F044-4045-8BDF-64F342BDD946.jpg?asset_id=AF068DF7-F69D-4738-8627-CEA9FB84C4BB&amp;size=1024)
-今日中华大地，长河落日，人道沦陷，是谁之过？朗朗乾坤，法德尽失，冤孽横生，是谁之过？天地人心为证，是中共残暴统治杀戮所致！故，天地轮回，新中国联邦、爆料革命横空出世。灭共是使命天成，别无它故。
-[![](https://express.adobe.com/page/qw2eA6TbvBf92/images/5302E252-6AD8-45D5-9962-A5ACB4BA804D.jpg?asset_id=C2EE37D3-53AC-46F9-B72C-BC396B9D06DB&amp;size=1024)](https://express.adobe.com/page/qw2eA6TbvBf92/images/5302E252-6AD8-45D5-9962-A5ACB4BA804D.jpg?asset_id=C2EE37D3-53AC-46F9-B72C-BC396B9D06DB&amp;size=1024)
-回望往昔，中华大地百年之风雨飘摇，文化断脉，文明继而断失。当杀戮气息扑鼻而弥漫人间，恐惧懦弱已深入同胞身心之时，众同胞早已毫无招架之力。更可悲的是，这百年所有面对杀戮的反抗，皆以失败告终。然，今日上苍开眼，无数同胞在混沌世界中醒来，使命赋予灭共志士，方有灭共联盟之形成，方有灭共胜利之定局。
-[![](https://express.adobe.com/page/qw2eA6TbvBf92/images/496C21FF-C5AE-4545-AE28-40CA945AA740.jpg?asset_id=97E7B423-7314-4F6F-84BB-AD8D7B354810&amp;size=1024)](https://express.adobe.com/page/qw2eA6TbvBf92/images/496C21FF-C5AE-4545-AE28-40CA945AA740.jpg?asset_id=97E7B423-7314-4F6F-84BB-AD8D7B354810&amp;size=1024)
-既入正道，何惧沧桑？人之出入世，在于精神永恒，在于风骨长存。当下时逢乱世之秋，显得尤为珍贵。然，盛世不会自己到来，而是反击邪恶获得的胜利得来。仰天敬地灭共去，我辈岂是蓬蒿人？在灭共中知行合一，在知行合一中图进取，在进取中图正道，在正道中图自由、民主、法治。一切皆遵以自然法则，得天地自然之神力，得人道之正力，邪恶何处可藏？革命焉能不成？
-[![](https://express.adobe.com/page/qw2eA6TbvBf92/images/D666C3BA-D257-47E8-974A-7CD01FCE1314.jpg?asset_id=BCED48CB-5F63-4333-A0A8-3C490B81AEDC&amp;size=1024)](https://express.adobe.com/page/qw2eA6TbvBf92/images/D666C3BA-D257-47E8-974A-7CD01FCE1314.jpg?asset_id=BCED48CB-5F63-4333-A0A8-3C490B81AEDC&amp;size=1024)
-忆昔日天地山河人心之痛，谨记使命天成中进取，方有明日重塑文明之胜利果实。反之，若忘记昨日历史之沉重教训，沉迷于今日之名利，不在由守转攻的大好局面中继续进取，恐成明日自身之悲哀结局。故，每遇灭共之挫折，总能遇难成祥，是因众志士之心力精诚团结作出的行动所致。众志之心，凝聚而成灭共之力，方能唤动自然之力。此力乃宇宙之力、天地自然之力、人类正道之力，终成灭共不可阻挡之力。
-[![](https://express.adobe.com/page/qw2eA6TbvBf92/images/8F3F2029-D445-4C3A-8BAB-4C87244DBF70.jpg?asset_id=381C189A-498A-44F1-8B0C-05E6D521FB97&amp;size=1024)](https://express.adobe.com/page/qw2eA6TbvBf92/images/8F3F2029-D445-4C3A-8BAB-4C87244DBF70.jpg?asset_id=381C189A-498A-44F1-8B0C-05E6D521FB97&amp;size=1024)
-浩瀚寰宇，皆有定数。人类社会，自有正道。中共百年以来，严重破坏人类自然生存法则，令无数生灵涂炭，早已天怒人怨。如今现实世界里，充满着中共病毒灾难、疫苗灾难、信息灾难、人道灾难等，且伴随着经济危机、政治危机、生化危机、战争危机等。这一切的恐怖气氛在全球蔓延，中共乃罪魁祸首。新中国联邦、爆料革命在如此混沌的世界里存在，是使命所致。这个使命就是传播真相，推动并引领人类自然灭共之局面。人类地球正义力量之使命天成，在百年混沌世界中生存并成长。如今正义之剑已出鞘，中共灭亡已是必然结局。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/red-army-school-china-700x420-1.jpg)
 
-在此世界群魔乱舞，黑暗无形之手无情杀戮之际，看似世界末日，实则乃人类重生、文明进化之良机。人性之贪婪与无知，是人类和地球有史以来之天性，只因正义天枰倾斜而引向人道灾难。当人类使命天成时，亦是天枰转向时，方现和平自由之荣光。
 
-笔者不才，抒以粗文，略表敬畏天地人类自然之心。愿与众志士共勉，不胜感激！
+ 
+图片来源： Fred Dufour/AFP via Getty Images
 
-***编辑：【英国伦敦喜庄园编辑部】***
 
-*校对：文明明 | 审核：仙女儿-文善 | PAGE：彼岸花*
+#### 整理/编辑 ：小红帽
 
-- [点击阅读英国伦敦喜庄园在G-News的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+数周以来，中国官媒和宣传机构不遗余力地通过所有渠道宣称：中国是一个“民主”国家，且优于西方。本月初，北京当局还拿出一项研究结果试图加以证明。
 
-[![](https://express.adobe.com/page/qw2eA6TbvBf92/images/A3120A68-78FC-4A63-8703-7DECBA8B05D5.jpg?asset_id=4E893AAF-61E8-44BA-86E9-2C1D7377B120&amp;size=1024)](https://express.adobe.com/page/qw2eA6TbvBf92/images/A3120A68-78FC-4A63-8703-7DECBA8B05D5.jpg?asset_id=4E893AAF-61E8-44BA-86E9-2C1D7377B120&amp;size=1024)
+**无民主选举，无新闻自由，无言论自由，共产党独大，享有决定权，让当局不舒服的公民不经透明司法程序便消失在监狱里**——在当局的政治宣传中，所有这些都无足轻重。
+
+数星期来，中国宣传机器连篇累牍使用“民主”一词，显然与上周在美国发生的事件直接相关：美国总统拜登邀请了约一百个国家的代表举行世界民主峰会，然而中国不能参加。
+
+德国弗里德里希·瑙曼基金会（Friedrich-Naumann-Stiftung）的专家马蒂 (Anna Marti) 指出，北京当局使用民主一词本身并不新鲜， “该国宪法定义中华人民共和国是中国特色的社会主义民主国家。**中国式民主和同我们所理解的民主，即西方自由民主是截然相反的东西。”  **
+
+生活在北京的政府批评者、前清华大学讲师吴强表示，**共产党意识形态面临最大危机和最大挑战，也是当局不惜一切重新定义民主一词的一个极重要原因，旨在用民主一词掩饰极权主义。重新诠释概念、赋予它们以全然不同于原义的含义是中国理论家们的老把戏。**** **
+
+来自弗里德里希·瑙曼基金会驻台北办事处的马蒂观察到，中国党政领导层现在对民主一词的使用与以往不同。**北京正玩弄一个聪明的伎俩：“体制竞争——中国制度和西方制度之间的竞争通常是在这种情况下出现的一个概念，而现在，中方刻意抹杀这一对立，而只将其置于竞赛层面**：‘我们也是民主，只是我们做得更好。’ ”
+
+本月初，中国广邀境外人士参加同美国民主峰会相抗衡的在线“高端对话”。**与会者中有来自叙利亚和古巴等独裁国家的代表**，也有所谓的专家，包括在中国大学任教的一些国际学者。毫不奇怪，**他们也得出中国民主优于西方民主的结论。**** **
+
+新闻来源：[中国：突然成了“民主国家”？ | 德国之声 来自德国 介绍德国 | DW | 15.12.2021](https://www.dw.com/zh/%E4%B8%AD%E5%9B%BD%E7%AA%81%E7%84%B6%E6%88%90%E4%BA%86%E6%B0%91%E4%B8%BB%E5%9B%BD%E5%AE%B6/a-60130940)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
