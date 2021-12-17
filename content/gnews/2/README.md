@@ -2,47 +2,20 @@
 ---
 
 
-## 中国共产党九几年就在研究用病毒用疫苗杀美国人杀白人
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1764621/)
+## 医管局举办国安法研讨会 高层否认政治化
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1764663/)
 
-**郭文贵先生：**另外一个我想跟你说的就是说现在政府是不是会放松，是不是给你缓口气，而且未来是什么样？咱们要这么想问题。肯定核心的核心是共产党是最后的黑手。
+作者：东京樱花团丨阿恩
+![](https://lh3.googleusercontent.com/YE4zpUTaG7EjW_NXqWMxymZZZQPZbacedOyM3n5fYf3K6r0gZWlajIVVs12uE3nH10HJPipVUbrufkO9745xaRdRuCmg4xCkVUttJJlRV-ce47Ackq8PyiY_q7KkFwb7XHD4TrxM)[*图片来源*](https://www.hkcnews.com/article/49189/%E9%86%AB%E7%AE%A1%E5%B1%80-%E9%86%AB%E8%AD%B7%E4%BA%BA%E5%93%A1-%E5%9C%8B%E5%AE%89%E6%B3%95-49197/%E9%86%AB%E7%AE%A1%E5%B1%80%E8%88%89%E8%BE%A6%E5%9C%8B%E5%AE%89%E6%B3%95%E7%A0%94%E8%A8%8E%E6%9C%83-%E8%8C%83%E9%B4%BB%E9%BD%A1%EF%BC%9A%E7%B5%95%E9%9D%9E%E5%B0%87%E6%94%BF%E6%B2%BB%E5%B8%B6%E5%85%A5%E9%86%AB%E7%AE%A1%E5%B1%80)
+医管局上周六举办《国安法》研讨会，由梁爱诗主讲，逾百员工参加。医管局主席范鸿龄及行政总裁高拔升解释医管局有责任令同事了解《国安法》内容，强调绝不是将政治带入医管局。范又呼吁员工踊跃投票，否则无法选出心目中为香港发声之人。移民潮下，医管局人手持续流失，截至今年11月，医生的离职率为6.2%，护士更高达7.7%，范鸿龄直言情况令人忧虑。
 
-我再重申一遍，我从九几年跟共产党的情报部门在一起，包括二部、三部、什么安全部，你们都看到了，也就我那个年龄，你也能知道就是一个草根的中国人能和他们平起平坐，被他们绝对是，就像当时的二部的部长对我都是一介绍——这是我老板啊！这是我老板啊！就介绍这个形式。
+中共在香港强推国安法，各界都被强迫学习，医院局也不能例外，不过该局高层却矢口否认此举是将政治带入医管局，医管局是政府部门，国安法又是中共政权统治香港的工具，如何与政治不相干。医管局研讨国安法岂不是洗脑员工遵循恶法效忠中共邪恶政权吗！既然做了为何又不敢认，可见这些向中共宣誓效忠过的高官们人在曹营心在汉，难怪医务人手流失剧增，连投票也要向内部员工再三呼吁。
 
-那个时候共产党就在想着怎么灭美国、怎么灭白人，这并不是什么秘密。而且最后研究就是觉得生化武器、化学武器是最好的方式，然后再研究怎么杀白人、杀美国人、干掉美国成本最低，然后怎么弄，就是生化武器，就是一定是把它疫苗化，这是你看这是多少年的事儿了。
+资料来源：[**医管局举办国安法研讨会范鸿龄：绝非将政治带入医管局**](https://www.hkcnews.com/article/49189/%E9%86%AB%E7%AE%A1%E5%B1%80-%E9%86%AB%E8%AD%B7%E4%BA%BA%E5%93%A1-%E5%9C%8B%E5%AE%89%E6%B3%95-49197/%E9%86%AB%E7%AE%A1%E5%B1%80%E8%88%89%E8%BE%A6%E5%9C%8B%E5%AE%89%E6%B3%95%E7%A0%94%E8%A8%8E%E6%9C%83-%E8%8C%83%E9%B4%BB%E9%BD%A1%EF%BC%9A%E7%B5%95%E9%9D%9E%E5%B0%87%E6%94%BF%E6%B2%BB%E5%B8%B6%E5%85%A5%E9%86%AB%E7%AE%A1%E5%B1%80)
 
-化学武器要把它大规模化，因为化学武器杀人是只能一点一点一点的，他们当时就研究纽约、洛杉矶，美国的水源，都研究，包括风向，就是美国人他们不会想到有中共国我对你那么好，我从你几千亿美元的GDP、1.3万亿美元GDP变成一个15万亿美元GDP，你要杀我。
-
-他是没有人想的，它的根本原因还是美国人贪婪、华尔街贪婪，那么多钱，根本原因还是美国人干的，而且这个病毒就是美国人研发的这冠状病毒，它还给了中国共产党。
-
-这一定要想到一个问题，没有病毒，没有疫苗，想杀世界的人一定是中共，中共在西方各国家无非是用威胁、蓝金黄绑架了这些人而已，大家一定要记住这几个观点。
-
-编辑整理：喜马拉雅的肉夹馍；
-
-视频制作：Cindy；
-
-视频上传：Cindy；
-
-G-News发布：黎明之前；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*校对：东京樱花团 / 東洋武士
+发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
