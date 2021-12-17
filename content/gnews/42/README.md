@@ -2,31 +2,28 @@
 ---
 
 
-## 多家公司实体被认定中共军工综合体，维吾尔劳动法通过
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1763537/)
+## 【中日财经爆】贝壳找房数据造假，被浑水做空股价大跌
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1763728/)
 
-![资料照片: 新疆达坂城一处被官方称为职业技能教育培训中心的围墙上的安全监控摄像头。(2018年9月4日)](https://gdb.voanews.com/DADC3917-68F5-4F9C-A806-7902563BA6D6_w1023_r1_s.jpg)*资料照片: 新疆达坂城一处被官方称为职业技能教育培训中心的围墙上的安全监控摄像头。(2018年9月4日)*
-据美国之音12月17日报道，依据美国总统的行政命令，美国财政部16日宣布八家科技公司为中共军工综合体，任何美国法人不得出售和购买这些公司公开上市的证券及其衍生证券。同天，美国商务部将中共国军事科学院军事医学研究院及其11家研究所等25个实体列入限制出口名单。未经政府出口许可，不得向这些被纳入名单的实体输出美国技术。
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/5-24.jpg)[图片来源](https://runwise.co/corporate-innovation/innovation-strategy/54293.html)
+美国沽空机构浑水(Muddy Waters)周四(12月16日)表示，正在做空中共国最大地产中介公司贝壳找房，贝壳通过伪造收入欺诈性地抬高了股价。该消息推动贝壳股价在盘前重挫达10.9%,贝壳当日收盘下跌近2%。
 
-美国国会参众两院通过《防止强迫维吾尔劳动法》，并将法案送交白宫签署。法案要求美国国土安全部列出与中共国政府合作压迫新疆维吾尔穆斯林少数民族的实体。除非得到美国当局无强迫劳动的认证，否则凡在新疆制造的产品均被认定使用了强迫劳动，禁止流入美国市场。
+浑水质疑该公司供给投资者的交易量、门店数量和代理数量以及公司财报收入造假。浑水在一份研究报告中写道，贝壳找房夸大了新房销售量及其佣金收入，其平台上将幽灵门店列为“活跃”门店，同时也夸大了一些收购资产的价值。
 
-美国加大了对中共国军工综合体企业的制裁，控制美国资金流入这些公司。对新疆维吾尔地区的强迫劳动也启动法案。中共侵犯人权的犯罪行为一天不停止，国际社会的制裁就不会停止。
+“与瑞幸咖啡类似，这是一个存在大量欺诈行为的真实企业，”浑水说，并将其与瑞幸相比较，后者通过伪造收入欺诈性地抬高了股价。
 
-新闻参考链接：[https://www.voachinese.com/a/us-treasury-identifies-eight-chinese-tech-companies-as-part-of-chinese-military-industrial-complex-20211216/6357894.html](https://www.voachinese.com/a/us-treasury-identifies-eight-chinese-tech-companies-as-part-of-chinese-military-industrial-complex-20211216/6357894.html)
+据浑水称，贝壳将其新房销售总交易额夸大了126%以上，将其佣金收入夸大了约77%-96%，而运营的门店数量远远少于其平台显示数量。
 
-编辑：胖丁
+总部位于北京的贝壳在腾讯控股和软银集团的支持下，去年在纽约IPO中筹资21亿美元，成为当时中共国公司在美国的第二大上市交易。贝壳为中共国的住房交易和服务提供了一个线上和线下的平台。它是掌握大量数据的“平台”公司之一，现在正受到中共国政府前所未有的监管打击。
 
-* * *
+消息来源:
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+[美国浑水做空中国贝壳 致其股价下挫](https://cn.reuters.com/article/muddywaters-ke-1216-thur-idCNKBS2IW02R?il=0)
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

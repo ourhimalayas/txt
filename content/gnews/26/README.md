@@ -2,29 +2,31 @@
 ---
 
 
-## COVID-19 最新情报｜英国每日 COVID 病例创新高 欧盟称可能再持续 2-3 年
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1763916/)
+## 英国新增CCP病毒感染数据连续两天打破记录
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1763963/)
 
-**疫情關注組 / 發佈時間｜17/12/2021**
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2021/12/172.jpg)图片来自网络
+当地时间周四，英国总共报告了88,376例CCP病毒新增感染，这一数字为病毒大流行以来的最大值。相比周三，这一数字直接上涨了接近10000，并且还有146起死亡案例被记录。在这两天之前，新增病例的最高纪录为今年1月8日的68,053例。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+英国首相鲍里斯·约翰逊警告称，病毒感染病例很可能在不到两天的时间内就会出现翻倍的状况。同时他表示，全国住院人数目前正在以每周10%的惊人速率增加， 而伦敦地区的增加状况则接近三分之一。
 
+英格兰首席医疗官克里斯·惠蒂教授说，Omicron变种感染的病例正在增加。他警告人们，在接下来的冬季，预计病例会激增，而且数字会创下新高。
 
-英国卫生部门周三报告78,610 例COVID新增确诊病例，相较于周二(一天前)的59610例多出了1.9万例。78,610 例新增确诊数，据Our World in Data统计图表（下图）显示，已突破COVID疫情以来英国的每日新增病例历史纪录。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/coronavirus-data-explorer-1-1.png)英國每日新增確診數。來源：Our World in Data
-英国自新冠疫情以来，防疫政策依赖新冠疫苗，但疫情仍未受到有效的控制。下图显示，第二个感染高峰值为“Delta病毒”，第三高峰(仍持续成长的部分)为“Omicron病毒”。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/coronavirus-data-explorer-3.png)每百万人中每日新增确诊的 COVID-19 病例(7 天滚动平均值)。来源：Our World in Data
-## 住院率、病死率、重症率
-![](https://assets.gnews.org/wp-content/uploads/2021/12/coronavirus-data-explorer-2-1.png)来源：Our World in Data
-左上部分为新增病例统计图表；右上为住院治疗病例；左下为重症治疗统计；右下为新增死亡病例。
+惠蒂表示：“恐怕我们必须现实一点，随着变种感染率的继续上升，未来几周记录的数据恐怕都将是破纪录的。”
 
-外媒撰文指出，英国的新增确诊人数暴增并突破历史新高，但住院治疗、重治治疗及死亡率并未显著提高。结合英国目前主要病毒威胁为Omicron病毒，可以得知Omicron病毒本身具高传染性、低致死、低重症率。此外，英国政府前段时间宣布将修改完整接种定义，应接种第三剂加强针方属于“完全接种”，足见[新冠疫苗对于防治Omicron病毒（及其他新冠病毒）效力未达原先预期](https://gnews.org/zh-hant/1749697/)。
+约翰逊首相表示，英国政府并没有采取措施限制聚会或关闭酒吧和餐馆，圣诞节活动也并未取消，但他敦促人们谨慎考虑他们的社交活动。
 
-欧洲疾病和控制中心预测疫情将会延烧2至3年时间。英国卫生安全局（UK Health Security Agency） 首席执行官珍妮·哈里斯 (Jenny Harries) 表示，预计每日英国Omicron 感染的人数近 20 万，Omicron将成为英国的主要威胁。另有[报导](https://gnews.org/zh-hant/1749697/)指出，Omicron病毒虽具备高传染性，但实际威胁（致死、重症率）并未如官方所警告。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-5.png)
-来源｜[ZeroHedge](https://www.zerohedge.com/markets/uk-suffers-record-jump-daily-covid-cases-eu-warns-pandemic-could-last-2-3-more-years)\Our World in Data\[Gnews](https://gnews.org/zh-hant/1749697/)
+本周早些时候，英国政界人士投票通过了一系列新的限制措施，以遏制 Omicron变种病毒的传播。新措施要求在英格兰的大多数室内环境中佩戴口罩，改变自我隔离的规则，并且——最有争议的是——进入夜总会和大型场所需要出示疫苗接种证明或冠状病毒阴性检测报告。
 
+新闻参考链接：
+
+[9 News](https://www.9news.com.au/world/uk-coronavirus-update-biggest-number-of-covid-19-cases-recorded/d80daf11-b26d-42e6-a72d-c908042e2dc3)（一）
+
+[9 News](https://www.9news.com.au/world/coronavirus-updates-uk-records-highest-case-numbers-since-pandemic-began/a9b7da61-fb41-4dc1-9fa0-904170c6526f)（二）
+
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
