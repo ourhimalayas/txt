@@ -2,14 +2,14 @@
 ---
 
 
-## 【文贵先生大直播PPT】中共国经济与房地产危局最新信息
-` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1765794/)
+## 【文贵先生大直播PPT】彭丽媛登上政治高峰 历史总是惊人的相似
+` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1765828/)
 
-撰稿：北评2025【英喜】
-美工：青山【英喜】
+撰稿：顽童2017【香草山】
+美工：足球队长【香草山】
 
-【2021年12月17日文贵先生大直播PPT：中共国经济与房地产危局最新信息】
-![](https://assets.gnews.org/wp-content/uploads/2021/12/31-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/32-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/33-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/34.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/35-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/36.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/37.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/38.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/39.jpg)
+【2021年12月17日文贵先生大直播PPT：彭丽媛登上政治高峰 历史总是惊人的相似】
+![](https://assets.gnews.org/wp-content/uploads/2021/12/41-7.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/42-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/43-6.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/44-8.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/45-7.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/46-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/47-3.jpg)
 * * *
 
 发稿：云起时
