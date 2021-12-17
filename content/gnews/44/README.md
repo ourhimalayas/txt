@@ -2,28 +2,30 @@
 ---
 
 
-## 完全接种疫苗的母亲产下口鼻出血的婴儿
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1764294/)
+## 前FDA官员专家抨击拜登政府害了联邦卫生机构的声誉
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1764415/)
 
-**编译：西班牙巴塞罗那喜悦农场-wenwu**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip12-3.png)图片来源：dailyexpose.uk
-根据[疫苗不良事件报告系统 (VAERS) 的](https://medalerts.org/vaersdb/findfield.php?IDNUMBER=1879991&amp;WAYBACKHISTORY=ON)报告，一名完全接种疫苗的母亲生下了一名口鼻出血的婴儿。可悲的是，婴儿出生仅一天后，婴儿就去世了。死后，婴儿的父亲表示，他认为中共病毒（Covid-19）疫苗是导致婴儿死亡的罪魁祸首。
+#### 撰稿：彩虹       
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/捕获13.png)
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-863.png)图片来源：国会山报
+12月16日，《国会山报》报道两位前FDA（美国食品和药物管理局）官员批评拜登政府，指责其在决定强制为成年人和年龄较大青少年注射中共病毒（COVID-19）疫苗加强针之前不召集外部专家小组。
 
-母亲在怀孕的最后三个月里接种了两剂Covid-19疫苗。在出生后，婴儿的嘴和鼻子开始出血，一天后死亡。该报告是由一个外国”监管机构”提交的（如下图）：该母亲在2021年7月19日和8月13日接受了两剂Moderna疫苗，婴儿在2021年10月6日出生；孩子在医院分娩时，标明胎儿心跳不稳定。
+报道指，FDA前副局长菲利普·克劳斯（Philip Krause）和FDA前首席科学家卢西亚娜·博里奥（Luciana Borio）在《华盛顿邮报》发表了一篇文章，文章认为，在未与独立专家小组协商的情况下强制接种疫苗，损害了联邦卫生机构的信誉。
 
-该报告指出：“医生说，病人出生后，出现了哭声；在剪断脐带进行新生儿护理时，护理人员发现病人有口鼻出血的症状，立即请儿科医生给他插管并给他吸氧，他被送进了NICU；在新生儿重症监护室，他的检查结果显示凝血功能异常，肺部出血，心功能不全。给他输血，并给他注射肾上腺素”。
+文章总结，在过去的一个月里，FDA已经授权为所有16岁以上的人注射中共病毒疫苗加强针。CDC（美国疾病控制和预防中心）还对该指南做了修订，建议为每个18岁以上的人注射中共病毒疫苗加强针。
 
-VAERS报告没有将死亡列为与Covid-19疫苗有任何关系，只是将死亡列为“新生儿死亡”。目前还不知道是否进行了尸检，以及是否记录了任何死因。无论怎样，据报道，婴儿的父亲申请了疫苗伤害赔偿，因为他认为Covid疫苗是导致突然死亡的原因。
+然而此前，FDA的一个小组曾对与辉瑞生物技术公司的疫苗带来的有关心肌炎和心包炎的风险表示关切。但是，上周，当FDA宣布授权为16岁和17岁的青少年注射中共病毒疫苗加强针时，该机构表示，单剂量中共病毒疫苗加强针带来的好处超过造成大龄青少年心肌炎和心包炎的风险。
 
-**新闻来源**：[dailyexpose.uk][Fully Vaccinated Mother Gives Birth To Baby Bleeding From Noseand Mouth, Infant Dies Day Later](https://dailyexpose.uk/2021/12/16/fully-vaccinated-mother-gives-birth-to-baby-bleeding-from-nose-and-mouth-infant-dies-day-later/)
+对此，克劳斯和博里奥认为，“在没有咨询外部专家的情况下做出这样的决定会失去很多东西，不管人们对有关政策的优点有什么看法。”
 
-* * *
+在文章中，这两位前FDA官员假设说，如果这些政策决定提交给一个独立小组，（肯定会有）一些专家反对这些措施。
 
-***发布：信心满满***
+值得注意的是，他们的举例颇具讽刺对比意味，他们指出，当时前总统川普的政府在没有委员会意见的情况下授权使用羟氯喹和疗养血浆治疗中共病毒（COVID-19）时，许多人对此表示愤慨，那么，该标准同样也应该适用于拜登政府。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-1.jpeg)
+**新闻来源**
+
+[Former top FDA officials accuse Biden admin of ‘sidelining’ experts](https://thehill.com/homenews/administration/586192-former-top-fda-officials-accuse-biden-admin-of-sidelining-experts)
 
 
 

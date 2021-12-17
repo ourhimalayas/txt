@@ -2,25 +2,28 @@
 ---
 
 
-## 有声|康奈尔大学因新冠疫情关闭校园
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1764932/)
+## 班农先生当选国家脉动2021年度爱国者
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1764985/)
 
-配音：香草山美食部 – 玫瑰园
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-12月14日，康奈尔大学在其官方网站上发出公告称，该校目前已经发现903名学生的新冠病毒检测结果呈阳性，其中，大部分阳性患者被确诊感染了奥密克戎变种病毒。
+作者：纽约香草山农场 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月16日，《国家脉动》宣布了其第二届年度爱国者奖的获得者——这一殊荣被授予了前白宫首席战略师、新中国联邦创始人之一的史蒂夫·班农先生。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-17-下午9.12.30.png)
+据悉，班农先生出生于美国弗吉尼亚州的一个平民家庭。他曾在美国海军服役，退伍后，又在政界、商界取得了非凡的成就。2016年，班农先生帮助美国前总统川普，以“平民主义”的理念赢得了当年的美国大选。
 
-为此，康奈尔大学决定关闭其位于纽约州的伊萨卡校区，并将该校区本学期的期末考试改为线上进行。同时，该校将取消即将举行的毕业典礼及其它各类活动。另外，康奈尔大学也关闭了校园图书馆，更禁止所有外来人员进入校园。
+在离开白宫之后，班农先生创办了“战斗室”节目，且该节目在美国内政、经济和外交等方面都产生了巨大的影响。自2020年起，该节目不断地揭露新冠病毒和疫苗的真相，对美国停止新冠疫苗强制接种令的决定起到了关键性作用。
 
-据悉，这所常春藤名校的师生总体新冠疫苗接种率到达97%。其中，该校专业教师的疫苗接种率为100%，其他员工的接种率为93%，而本科生的接种率已达99%。
+2021年11月，班农先生遭到美国国会起诉，但这件事彻底让普通美国人，特别是保守派看到了中共对美国共和党的威胁、对美国两党和司法的渗透，以及其操纵美国政治的行径。
 
-目前，康奈尔大学已经进入了“红色警戒级别”，这也是自新冠疫情爆发以来，该校首次进入高风险状态。而据该校副校长乔尔·马利纳在一份声明中提及，此次聚集性感染中，几乎所有的奥密克戎病例都是在完全接种新冠疫苗的学生中发现的，其中一部分人甚至还接种了加强针。
+郭文贵先生在直播中评价班农先生是美国当之无愧的英雄，而班农先生也明确将新中国联邦创始人、宣言人的身份视作他一生中最大的荣耀。于班农先生而言，其平民主义思想最直接的体现就是他对中国老百姓的爱。对此，班农先生一直强调，如果中国人得不到解放，那么世界就没有自由。
 
-文字版原文：[康奈尔大学因新冠疫情关闭校园](https://gnews.org/zh-hans/1761828/)
+参考链接：[https://gettr.com/post/pju2oza152](https://gettr.com/post/pju2oza152)
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
+![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+总编：Irene木木
+编辑：小鹿妞妞
+校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -28,7 +31,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
