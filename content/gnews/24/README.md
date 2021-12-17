@@ -2,38 +2,50 @@
 ---
 
 
-## 中共利用华为秘密入侵外国电信系统的证据被曝光
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1765426/)
+## 【Michael.Tonny专栏】接种中共病毒疫苗患心脏病的风险比其它疫苗增加103倍（上）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1765481/)
 
-#### **撰稿：**日本东京方舟农场 子辰
+作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/B22B5C75-BAD8-4000-BC68-E70864EF6424.jpeg)（图片来自《大纪元》）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-据《大纪元》12月17日报道，《彭博社》12月16日发表长篇调查报道，首次披露了中共国电讯巨头华为被中共利用，入侵外国电信的关键证据。
+根据美国CDC（Centers for Disease Control and Prevention）的报告，截至2021年12月8 日，VAERS（Vaccine Adverse Event Reporting System）已收到1,908份12-29 岁人群在接种COVID-19疫苗（中共病毒疫苗）后患心肌炎（Myocarditis）或心包炎（Pericarditis）的报告。大多数病例是在接种Pfizer-BioNTech 或 Moderna的mRNA 中共病毒疫苗后报告的，尤其是在男性青少年和年轻人中。通过包括病历审查在内的随访，CDC和FDA（U.S. Food&Drug Administration）已确认1,106份心肌炎或心包炎报告。
 
-据报道，早在2012年，澳大利亚情报官员就通知了美国同行，称自己的电信系统遭到了一起复杂入侵。该入侵始于华为的一个装载有恶意代码的软件更新。
+CDC在报告中称，接种中共病毒疫苗后的心肌炎和心包炎很少见（Myocarditis and pericarditis after COVID-19 vaccination are rare），断言这些心脏病的副作用“罕见”，是完全荒谬的。
 
-《彭博社》的报道进一步指出，上述软件更新貌似正常，但其中却包含恶意代码。其工作原理就像数字窃听器，对遭入侵的设备进行重新编程，以记录它所有的通信，然后将数据发送回中共国。而在随后几天，该代码却自行删除了。据判断，这应该是更新中嵌入了一个自毁机制。
+在CDC自己的 VAERS 中，当我们将查询条件设置为所有接种中共病毒疫苗后，患心肌炎、心包炎及其他心肌炎和心包炎的30 岁以下年轻人时，这个数字实际上是3,262 例。比CDC自己报告的数据多得多。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/carditis-VAERS-12.3-under-30.jpg)
+当我们将查询条件设置为所有接种中共病毒疫苗后，患心肌炎、心包炎及其他心肌炎和心包炎的所有年龄段的人时，这个数字是12,855例。
 
-澳大利亚情报机构由此确定，中共间谍机构是这次入侵漏洞的幕后黑手。他们渗透到帮助维护设备的华为技术人员中，并通过华为电信系统推送软件更新。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/carditis-all-ages-12.3.jpg)
 
-随即，在2012年3月26日，澳大利亚政府宣布禁止中共国华为公司澳大利亚子公司参与该国宽带网络竞标，理由是涉及国家安全。
+而当我们查询同期接种其它疫苗后，患心肌炎、心包炎及其他心肌炎和心包炎的所有人时，这个数字是125例。
 
-在澳大利亚这一线索的引导下，美国情报部门也证实了来自华为的攻击。于是，2012年10月，美国众议院发布报告，认为中共国两家通信设备生产商——华为及中兴，可能会对美国国家安全构成威胁，要求将这两家企业挡在美国市场的门外。美国众议院情报委员会耗时近一年，对这两家中共国企业的产品“涉嫌为中（共）国间谍活动提供便利”展开调查。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/carditis-all-vaccines-1-year.jpg)
 
-正是上述这一从未对外披露过的漏洞事件，成为了多年后美国川普政府“阻止华为5G供应”全球运动背后的一个关键证据。
+据此推算，接种中共病毒疫苗患心脏病的风险比接种其它病毒疫苗增加了12855÷125=102.84倍或103倍。
 
-据川普政府时期美国国务院前副部长基思·克拉赫（Keith Krach）证实，美国及其盟友多年来一直有证据证明，中共通过软件更新操纵华为的设备。“华为的软件更新可以把他们想要的任何代码推入这些机器，只要他们想要，并且不会有人知道。”克拉赫说。
+必须提醒的是，根据哥伦比亚大学（Columbia University）Spiro Pantazatos和Herve Seligmann对VAEARS系统的研究后发表的论文《[COVID vaccination and age-stratified all-cause mortality risk](https://www.researchgate.net/publication/355581860_COVID_vaccination_and_age-stratified_all-cause_mortality_risk)》结论，CDC和FDA 的VAERS报告系统至少漏报了 20倍。而Jessica Rose和Mathew Crawford对VAEARS系统的研究后发表的论文《[Estimating the number of COVID vaccine deaths in America](https://downloads.regulations.gov/CDC-2021-0089-0024/attachment_1.pdf)》结论是至少漏报了41倍或更多。
 
-*参考链接：[中共被曝利用华为秘密入侵外国电信系统](https://www.epochtimes.com/gb/21/12/17/n13442819.htm)*
+[接下篇：【Michael.Tonny专栏】接种中共病毒疫苗患心脏病的风险比其它疫苗增加103倍（下）](https://gnews.org/zh-hans/1765523/)
 
-* * *
+参考数据：
 
-*素材采编：子辰*
+[CDC Admits COVID-19 Shots Causing Heart Disease but Won’t Stop the Injections – Does Pfizer Now Control the CDC and FDA?](https://healthimpactnews.com/2021/cdc-admits-covid-19-shots-causing-heart-disease-but-wont-stop-the-injections-does-pfizer-now-control-the-cdc-and-fda/)
 
-*编辑：青衣青青*
+[Selected Adverse Events Reported after COVID-19 Vaccination](https://www.cdc.gov/coronavirus/2019-ncov/vaccines/safety/adverse-events.html)
 
-*发布：miumiu*
+[Heart Inflammation](https://www.nhlbi.nih.gov/health-topics/heart-inflammation)
+
+[Myocarditis](https://www.mayoclinic.org/diseases-conditions/myocarditis/symptoms-causes/syc-20352539)
+
+[Estimating the number of COVID vaccine deaths in America](https://healthimpactnews.com/2021/study-governments-own-data-reveals-that-at-least-150000-probably-dead-in-u-s-following-covid-19-vaccines/)
+
+[COVID vaccination and age-stratified all-cause mortality risk](https://www.researchgate.net/publication/355581860_COVID_vaccination_and_age-stratified_all-cause_mortality_risk)
+
+[OpenVAERS COVID Vaccine Data](https://openvaers.com/)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/) 上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 
