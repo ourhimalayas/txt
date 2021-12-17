@@ -2,291 +2,103 @@
 ---
 
 
-## 每日快报：美国将12家中共生物科技等公司列入出口黑名单
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1764034/)
-
-*作者：*映兰轩
-
-![](https://himalayawashingtondc.org/wp-content/uploads/2021/08/%E6%AF%8F%E6%97%A5%E5%BF%AB%E6%8A%A5.png)
-
-# ***今日摘要***
-
-1. [美国将中国生物技术集团列入DNA收集技术和大规模监控的黑名单](https://www.zerohedge.com/political/us-blacklists-chinese-biotech-groups-dna-collection-technology-mass-surveillance)
-2. [北京担心新通过的大规模《国防授权法》将导致台湾问题升级](https://www.zerohedge.com/geopolitical/beijing-fears-newly-passed-massive-ndaa-will-lead-escalation-over-taiwan)
-3. [格雷格-阿博特州长不会对德克萨斯州国民警卫队实施拜登疫苗任务](https://www.breitbart.com/politics/2021/12/16/gov-greg-abbott-wont-impose-biden-vaccine-mandate-on-texas-national-guard/)
-4. [2021年国家脉动年度爱国者:斯蒂芬-K-班农](https://thenationalpulse.com/news/national-pulse-patriot-of-the-year-2021-stephen-k-bannon/)
-5. [涉监控维吾尔人 美财政部认定大疆等八家科技公司为中共军工综合体](https://www.voachinese.com/a/us-treasury-identifies-eight-chinese-tech-companies-as-part-of-chinese-military-industrial-complex-20211216/6357894.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
-
-
-# 重要事件
-
-- [** 12.16.Zerohedge ：**美国将中共生物技术集团列入DNA收集技术和大规模监控的黑名单US Blacklists Chinese Biotech Groups For DNA Collection Technology & Mass Surveillance](https://www.zerohedge.com/political/us-blacklists-chinese-biotech-groups-dna-collection-technology-mass-surveillance)
-
-
-拜登政府周四宣布，它已将中共军事医学科学院与其他11家涉及生物技术的研究所列入出口黑名单，因为它们参与了协助中共政府对其穆斯林维吾尔族人口的压迫和监视。
-
-除其他外，这些公司的先进技术被用于收集DNA，作为新疆地区的一项重要社会控制措施，作为利用基因技术进一步进行大规模监控的努力的一部分。”拜登政府的一位高级官员告诉《华尔街日报》：这些行动是在政府努力解决滥用技术进行监视，以及在许多情况下……进行大规模镇压性社会控制的更大背景下进行的。
-
-此外，财政部被引述说，”这一行动突出了中国国防和监控技术部门的私营公司是如何积极配合政府迫害少数民族的努力的。”
-
-在美国公司不能再投资的实体黑名单中，包括商用无人机制造巨头大疆创新科技有限公司和与政府有关的面部识别技术开发公司。这是继几天前的制裁之后，最引人注目的是对大型面部识别公司SenseTime的制裁。
-
-此外，上榜的还有面部识别软件创业公司Megvii，以及在新疆提供基于超级计算机的云计算服务的曙光信息产业公司。商务部和财政部的被禁中国军工企业名单不断增加，到本周末将达到近70家。
-
-据报道，在一些值得注意的情况下，制裁立即生效。SenseTime本周表示，它将推迟在香港进行7.67亿美元的首次公开募股，此前有报道称这家中国人工智能公司被列入美国投资黑名单。
-
-几年前，《华尔街日报》和其他媒体开始调查北京试图建立世界上有史以来最大的DNA安全数据库，这可能会使 “无辜的和有罪的人都受到牵连”.
-
-“警方收集了更多的名字，他们可以添加到世界上最大的DNA数据库，这是中国高科技安全毯的一个重要组成部分，正在全国展开，因为北京试图更好地监测其14亿公民，”之前的一份报告说。”根据《华尔街日报》对中国各地警察部门文件的审查，在全国范围内，警方的目标是在2020年之前将中国目前的DNA库翻一番，达到1亿条记录。为了达到这个目标，他们每年需要收集的记录几乎与美国20多年来建立的整个国家数据库中的记录一样多。”
-
-- [** 12.16. Zerohedge：**北京担心新通过的大规模《国防授权法》将导致台湾问题升级Beijing Fears Newly-Passed Massive NDAA Will Lead To Escalation Over Taiwan](https://www.zerohedge.com/geopolitical/beijing-fears-newly-passed-massive-ndaa-will-lead-escalation-over-taiwan)
-
-
-周二，参议院以89票对10票通过了总额为7780亿美元的《国防授权法》（NDAA）后，中共的国家媒体正忙于宣传美国军费开支的增加，认为这预示着未来对台湾问题的升级。
-
-NDAA现在正走向拜登总统的办公桌，并将在他的签署下成为法律。该法案指定7403亿美元用于五角大楼，278亿美元用于能源部的核武器项目，99亿美元用于 “NDAA管辖范围以外的国防相关活动”。至关重要的是，国防部计划中还列出了71亿美元用于太平洋威慑倡议（PDI）。
-
-在强调2022年《国国防授权法》中预示着台湾海军将可能被邀请参加美国主导的2022年环太平洋演习（RIMPAC）时，GT援引一位中国军事分析家的话说，在围绕台湾问题的挑衅方面，北京必须 “做最坏的打算”。
-
-- [** 12.16. Breitbart：**格雷格-阿博特州长不会对德克萨斯州国民警卫队实施拜登疫苗任务Gov. Greg Abbott Won’t Impose Biden Vaccine Mandate on Texas National Guard](https://www.breitbart.com/politics/2021/12/16/gov-greg-abbott-wont-impose-biden-vaccine-mandate-on-texas-national-guard/)
-
-
-得克萨斯州州长格雷格-阿博特(Greg Abbott)周四表示，不会对得克萨斯州国民警卫队实施总统乔-拜登的冠状病毒疫苗任务。
-
-8月，阿博特发布了一项行政命令，禁止德克萨斯州的任何政府实体实施疫苗任务。此举是在州长指示命令德克萨斯州副州长特雷西-诺里斯(Tracy Norris)在10月份不要因拒绝注射疫苗而惩罚卫兵。
-
-阿伯特在给国防部长劳埃德-奥斯汀的一封尖锐的信中写道：”作为德克萨斯州州长，我是本州民兵的总司令。以这个身份，在2021年10月4日，我命令德克萨斯州副州长遵守我的行政命令GA-39。如果未接种疫苗的卫兵在德克萨斯州内遭受任何不良后果，他们只能怪罪于乔-拜登总统和他的政府。”
-
-“德克萨斯州不会对其卫兵强制执行这一最新的COVID-19疫苗任务。如果联邦政府继续威胁要削减德克萨斯州国民警卫队的经费，作为州长，我将动用一切可用的法律工具来捍卫这些美国英雄，”州长最后说。
-
-- [** 12.16.Thenationalpulse**.** ：**2021年国家脉动年度爱国者:斯蒂芬-K-班农National Pulse Patriot of The Year 2021: Stephen K. Bannon.](https://thenationalpulse.com/news/national-pulse-patriot-of-the-year-2021-stephen-k-bannon/)
-
-
-国家脉动今天宣布其第二届年度爱国者奖，将这一荣誉授予前白宫首席战略家和《作战室》的主持人、《大流行》播客的主持人斯蒂芬-K-班农。
-
-现年68岁的班农在2016年崛起，成为全国瞩目的人物，他帮助领导川普竞选团队取得了对希拉里-克林顿和民主党的惊人胜利。此后，班农在白宫担任首席战略师，并创办了大获成功的《作战室》。大流行播客，与前川普通讯主管杰森-米勒和《国家脉动》主编拉希姆-卡萨姆一起创办。
-
-班农出生在弗吉尼亚州的诺福克，是多丽丝和马丁-班农的儿子。他曾就读于弗吉尼亚理工大学，在加入美国海军之前成为学生会主席，同时获得了国家安全研究的硕士学位和哈佛商学院的MBA学位。
-
-班农在美国海军的保罗-F-福斯特号上服役，然后在弗吉尼亚州的五角大楼担任海军作战部长的特别助理。
-
-离开海军后，班农去了高盛公司工作，在那里他花了几年时间了解他现在在每天两次的节目中抨击的那种机构精英的全球主义商业运作。
-
-几年后，他在好莱坞建立了自己的业务，他在那里促成了一项交易，使他在热门情景喜剧《宋飞》中保留了财务股份，这是很有名的。1998年，法国兴业银行收购了他的公司–班农公司。
-
-班农本人也拍过一些电影，包括里根史诗《面对邪恶》和2012年的《占领者的面具》。
-
-2009年金融危机后不久，班农与传奇性的保守派火爆人物安德鲁-布莱特巴特（Andrew Breitbart）合作。这对夫妇将继续为布赖特巴特新闻网站制定计划，包括在世界各地设立外国分局。布雷特巴特于2012年因心脏病发作去世，留下班农担任执行主席。他将该网站建成了一个民粹主义/民族主义保守主义的全球中心，这令建制派媒体和政治阶层感到震惊和恐惧。
-
-2016年8月，在主持了多年的布莱特巴特新闻日报广播节目后，班农被邀请加入川普竞选团队，担任其首席执行官。当时，竞选团队在几乎所有的摇摆州都出现了下滑。正是班农的坚定性和纪律性帮助竞选团队重新调整并度过了臭名昭著的 “比利-布什周末”，在这个周末，一盘关于候选人川普私下发表淫秽言论的录音带被公布。
-
-上了Gettr。自从离开白宫和布赖特巴特新闻公司后，班农以《作战室》播客的形式建立了一个右翼力量。该节目现在被视为全世界所有政治和新闻媒体中最重要的节目之一，甚至比世界卫生组织、安东尼-福奇和其他人更早认识到即将到来的大流行病的危险。
-
-班农和他的团队对中共–一个与他心心相印的对手–和病毒的起源的看法将不断被证明是正确的。
-
-当我听说史蒂夫藐视国会时，我给他发短信让他知道，世界上没有任何机构比现在的国会更让我希望被藐视了。这是一个荣誉的徽章，应该这样佩戴。我们很高兴向史蒂夫颁发第二届年度爱国者奖，这不仅是因为他敢于站出来反对腐败的政治精英、中国共产党和世界各地的激进伊斯兰教徒，还因为他对整个西方世界的保守主义运动的不屈不挠的管理，以及他对这个共和国的创始原则的不懈承诺。我很自豪地称史蒂夫为导师、朋友和2021年国家脉动的年度爱国者。
-
-《国家脉动》是一个领先的保守派新闻和调查网站，成立于2015年，由作者兼编辑拉希姆-卡萨姆在2020年接管。该网站及其故事在2021年达到近6000万人。
-
-《国家脉动》现在吸引了比《美国观察家》、《美国保守派》、《美国观察家》和《华盛顿自由灯塔》更多的受众。
-
-- [** 12.16.Voachinese：**涉监控维吾尔人 美财政部认定大疆等八家科技公司为中共军工综合体](https://www.voachinese.com/a/us-treasury-identifies-eight-chinese-tech-companies-as-part-of-chinese-military-industrial-complex-20211216/6357894.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
-
-
-美国财政部星期四(12月16日)宣布把大疆等八家中国科技公司认定为中共军工综合体。华盛顿指控这八家实体“积极支持以生物识别技术监控和追踪中国的少数民族和宗教少数群体，特别是新疆以穆斯林为主的维吾尔人”。
-
-同天，美国商务部将中国军事科学院医学研究院及其旗下11家研究所等25个实体列入限制出口的名单，原因是协助中国政府监控新疆维吾尔人和其他少数民族并对美国国家安全构成威胁。美国参议院则在同天通过了《防止强迫维吾尔劳动法》，并将法案送交白宫签署。
-
-**被财政部认定的军工综合体**
-
-被财政部海外资产控制办公室(OFAC)认定的八家中国公司是：云从科技集团股份有限公司(Cloudwalk Technology Co., Ltd.)、曙光信息产业股份有限公司(Dawning Information Industry Co., Ltd.)、利昂技术股份有限公司(Leon Technology Company Limited)、旷世科技有限公司(Megvii Technology Limited)、东方网力科技股份有限公司(Netposa Technologies Limited; SZ DJI Technology Co., Ltd)、深圳大疆创新科技有限公司(SZ DJI Technology Co., Ltd)、厦门美亚柏科信息股份有限公司(Xiamen Meiya Pico Information Co., Ltd)和依图科技有限公司(Yitu Limited)。
-
-财政部负责反恐和金融情报事务的副部长布莱恩·E·纳尔逊在财政部的声明中说：“今天的行动凸显中共防务和监控科技领域的私营公司正在积极配合政府压迫少数民族和宗教少数群体成员。财政部继续致力于确保美国金融体系和美国投资者不支持这些活动。”
-
-美国财政部的声明说，从2016年开始，时任中共新疆维吾尔自治区党委书记陈全国加紧了针对新疆维吾尔人口的安全和监控措施。这类行动包括设置数以千计的街区警亭和无所不在的安全摄像头、收集生物识别信息并且以更具侵入式的手段监视人们对互联网的使用。财政部还说，根据一些估计，从2017年开始，新疆当局任意拘留100万到180万维吾尔人和哈萨克族等其他少数民族和宗教少数群体成员，把他们关入“再教育”中心。声明说：“对中华人民共和国境内的少数民族和宗教少数群体的监控和追踪今天仍在持续。”
-
-# 更多要闻链接
-
-1. [德州总检察长帕克斯顿将调查制药公司在儿童中推广青春期阻断剂的行为Texas AG Paxton to investigate pharma companies for promoting puberty blockers in children](https://www.rebelnews.com/texas_ag_paxton_to_investigate_pharma_companies_for_promoting_puberty_blockers_in_children)
-2. [德国军舰20年来首次进入南中国海German Warship Enters South China Sea For 1st Time In 20 Years](https://www.zerohedge.com/geopolitical/german-warship-enters-south-china-sea-1st-time-20-years)
-3. [中国的科兴公司声称，两剂疫苗没有任何保护作用，但在增剂后对奥米加的保护效果达到94%China’s Sinovac Claims Vaccine, Offering No Protection with Two Doses, Magically 94% Effective Against Omicron After Booster](https://www.breitbart.com/asia/2021/12/16/chinas-sinovac-claims-vaccine-offering-no-protection-with-two-doses-magically-94-effective-against-omicron-after-booster/)
-4. [独家报道–罗恩-约翰逊参议员炮轰国防部长奥斯汀因不服从拜登的疫苗任务而开除服役人员Exclusive — Sen. Ron Johnson Torches Defense Secretary Austin for Discharging Service Members for Disobeying Biden’s Vaccine Mandate](https://www.breitbart.com/politics/2021/12/16/exclusive-sen-ron-johnson-torches-defense-secretary-austin-for-discharging-service-members-for-disobeying-bidens-vaccine-mandate/)
-5. [民调：近70%的美国人认为Omicron变体不应该疫苗强制授权Poll: Nearly 70 Percent of Americans Say Omicron Variant Does Not Warrant Mandates](https://www.breitbart.com/politics/2021/12/16/poll-nearly-70-percent-of-americans-say-omicron-variant-does-not-warrant-mandates/)
-6. [774个，还是 11？另一位部长不记得英国医院里的奥米加病例的数量了774, or MAYBE 11? Another Minister Can’t Remember Number of Omicron Cases in UK Hospitals](https://www.breitbart.com/europe/2021/12/16/774-or-maybe-11-another-minister-cant-remember-number-of-omicron-cases-in-uk-hospitals/)
-7. [美众院共和党议员致函推特，要求制止中共用推特散布虚假信息](https://www.voachinese.com/a/ctf-warns-twitter-of-china-threat-20211216/6357899.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
-
-
-# 每日推特文摘
-
-
-
-VAERS 最新估计：388,000 名美国人死于新冠病毒疫苗
-
-
-
-
-
-> VAERS 最新估计：388,000 名美国人死于新冠病毒疫苗 [pic.twitter.com/0DHIYijON0](https://t.co/0DHIYijON0)
-> — 婦女之友-電流聲-7⚡️ (@feelsogoodnow) [December 16, 2021](https://twitter.com/feelsogoodnow/status/1471567505277603841?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-加拿大保守党议员开始反对疫苗强制令，之前保守党是支持疫苗的：“每个加拿大人都应该得到有尊严的对待，无论他们做出什么医疗决定。”
-
-
-
-
-
-> 加拿大保守党议员开始反对疫苗强制令，之前保守党是支持疫苗的：“每个加拿大人都应该得到有尊严的对待，无论他们做出什么医疗决定。” [https://t.co/Hm3WXlgd5Z](https://t.co/Hm3WXlgd5Z)
-> — PureLotusHeart莲心不染 (@PureLotusHeart1) [December 17, 2021](https://twitter.com/PureLotusHeart1/status/1471651916513959939?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-2000個護士離職！ 你信誰？ 政府聲稱僅有57個護士離開醫療體系 Government claims 57. Whom do you believe?
-
-
-
-
-
-> 2000個護士離職！
-> 你信誰？
-> 政府聲稱僅有57個護士離開醫療體系
-> Government claims 57. 
-> Whom do you believe? [pic.twitter.com/rPZl8HRG8E](https://t.co/rPZl8HRG8E)
-> — 安红(澳喜特战旅) (@maryann\_3040) [December 16, 2021](https://twitter.com/maryann_3040/status/1471509403111071746?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-Newshub — The sweeping COVID variant Omicron has hit NZ, as first case is recorded in MIQ facility on the day New Zealand achieved the target of 90% fully vaccinate Newshub新闻 — COVID变种Omicron已经袭击了新西兰，在新西兰实现90%完全接种目标的当天，MIQ隔离酒店记录了第一例该病例
-
-
-
-
-
-> Newshub — The sweeping COVID variant Omicron has hit NZ, as first case is recorded in MIQ facility on the day New Zealand achieved the target of 90% fully vaccinate
-> 
-> Newshub新闻 — COVID变种Omicron已经袭击了新西兰，在新西兰实现90%完全接种目标的当天，MIQ隔离酒店记录了第一例该病例 [pic.twitter.com/yQmMk8Pd7C](https://t.co/yQmMk8Pd7C)
-> — for （澳喜特战旅） (@for91459571) [December 17, 2021](https://twitter.com/for91459571/status/1471642145320693765?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-洛杉矶学区的家长欢庆胜利！在家长们的抗争下，洛杉矶学区被迫将学生强制疫苗的截止日期，延长到明年秋季。等于变相停止强制疫苗。
-
-只有团结抗争才会赢！邪恶势力只有1%！我们是99%！
-
-
-
-
-
-> 洛杉矶学区的家长欢庆胜利！在家长们的抗争下，洛杉矶学区被迫将学生强制疫苗的截止日期，延长到明年秋季。等于变相停止强制疫苗。
-> 💪只有团结抗争才会赢！邪恶势力只有1%！我们是99%！ [https://t.co/fkyCVL2j8i](https://t.co/fkyCVL2j8i)
-> — runrunblue (@runrunblue) [December 17, 2021](https://twitter.com/runrunblue/status/1471648684731351040?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-US members of Congress warn new Twitter CEO of China’s malign activity on platform
-
-
-
-
-
-> US members of Congress warn new Twitter CEO of China's malign activity on platform [https://t.co/QPfa00LUj1](https://t.co/QPfa00LUj1)
-> — Republic (@republic) [December 17, 2021](https://twitter.com/republic/status/1471648173093494790?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-【美国又制裁大疆等中国42家企业和团体】将禁止美国人进行证券投资，并处以事实上的禁运，于2022年2月生效……
-
-
-
-
-
-> 【美国又制裁大疆等中国42家企业和团体】将禁止美国人进行证券投资，并处以事实上的禁运，于2022年2月生效……[https://t.co/ZARh7ePYWE](https://t.co/ZARh7ePYWE)
-> — 日经中文网 (@rijingzhongwen) [December 17, 2021](https://twitter.com/rijingzhongwen/status/1471648085910556673?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-英国政府声称Omicron病例将每天翻一番。 从14日的的“200,000”增加到15日的“400,000”。 根据这些假设，元旦时仅英国将有 260亿个新病例，那天在英国的每个人都会感染新冠病毒 374 次，或者说每 4 分钟感染一次。 政府把你当傻子
-
-
-
-
-
-> 英国政府声称Omicron病例将每天翻一番。 从14日的的“200,000”增加到15日的“400,000”。
-> 根据这些假设，元旦时仅英国将有 260亿个新病例，那天在英国的每个人都会感染新冠病毒 374 次，或者说每 4 分钟感染一次。
-> 政府把你当傻子😂 [https://t.co/nSUbqNmZWg](https://t.co/nSUbqNmZWg)
-> — runrunblue (@runrunblue) [December 17, 2021](https://twitter.com/runrunblue/status/1471647162366717962?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-《疫苗死亡报告》节选翻译1【Carrie Madej 博士在放大 400 倍的显微镜下研究了 Moderna 和强生公司的疫苗瓶。 眼前的一幕让她震惊了……在两个小瓶中都有一个带有触手的活生物体。 这个生物四处移动并抬起自己……
-
-
-
-
-
-
-
-> 《疫苗死亡报告》节选翻译1【Carrie Madej 博士在放大 400 倍的显微镜下研究了 Moderna 和强生公司的疫苗瓶。 眼前的一幕让她震惊了……在两个小瓶中都有一个带有触手的活生物体。 这个生物四处移动并抬起自己……[https://t.co/6z3ELQuqw0](https://t.co/6z3ELQuqw0)
-> — 銀河系 🌟🌟🌟 夏吉SummerLucky (@helen43221024) [December 17, 2021](https://twitter.com/helen43221024/status/1471636166718128130?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-太气人了，美国邀请台湾参加2022军演，我们强大的共产党 应邀请 塔利班 北朝鲜 进行联合军演 作为强有力的回应
-
-
-
-
-
-> 太气人了，美国邀请台湾参加2022军演，我们强大的共产党 应邀请 塔利班 北朝鲜 进行联合军演 作为强有力的回应。 [pic.twitter.com/tNRK2gaZPd](https://t.co/tNRK2gaZPd)
-> — TAKE DOWN CCP (@ccpisgarbage) [December 17, 2021](https://twitter.com/ccpisgarbage/status/1471646511880712194?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-
-
-*编辑：映兰轩
-审核发布：文顾*
+## 视频| 凡是反对疫苗真相的社交媒体，都不会存在这个世界上
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1764060/)
+
+## 摘自2021.12.15郭先生大直播
+
+制作：香草山视频部
+
+
+
+人类到今天的灾难
+其中一个很重要的问题是因为怕死
+大家一定要记住
+不是什么伟大的政府强迫 黑暗力量
+很多人都是怕死
+抢着打 第一针大多数都是这个心理
+相信科学 然后相信
+第二个就是 第二针的时候觉得也是
+也是怕死 打了会绝对不死 别人死
+到第三针的时候那就是另外一回事了
+就绝对是无知了
+另外一个就是社交媒体对人类的整个信息垄断
+人类的得到的信息源
+不是越来越多 是越来越少了
+因为人类从来没像今天一样
+竟然有38亿人用谷歌 用Facebook
+现在很多国家百分之九十几
+相信Facebook和谷歌 被影响
+你说这个多恐怖啊这个
+所以这个媒体 大家记住
+这是前所未有的一个黑暗的力量
+它不让你知道真相
+你关键这两个地方你不能谈疫苗 你不能谈真相
+这社交媒体就成了邪恶的工具了
+所有的邪恶的背后力量 你看
+共产党 然后就是谷歌
+然后就是所有的控制媒体Facebook
+我可以跟你任何人打赌
+未来不可能有谷歌 有什么
+包括苹果商店 包括Facebook WhatsApp
+大家只要是反对疫苗的
+你都不会存在这个世界上
+一定不会的
+因为它已经成为邪恶的最核心的部分了
+有很多孩子是无知 她就被社交媒体给领导了
+躲了科学迷信关 你没躲了社交媒体关
+你躲了科学关 躲了媒体关 你没有信仰
+怕死 随大风
+就是实际上人类最可悲的就是跟着大部队走
+那你永远是工具
+就是任何国家政府不生产一分财富
+全是来自于老百姓
+所有政府的开支 它就是老百姓的吸血虫
+第二个 没有一个政府以老百姓利益优先的
+所有的政府是以官员 以按级别利益优先的
+任何国家 包括美国 任何国家
+第三个 任何政府要记住
+在关键时候一定是牺牲老百姓 不会牺牲政府的
+而且理由就是国家主义
+不论是国家主义被家庭化以后的独裁主义
+还是独裁主义或者国家主义
+和国家主义下的民主化的集体
+它叫集体独裁主义
+所以说人类不要有任何天真
+没有任何人是为你着想的
+你永远是被剥削 被压榨 被统治的对象
+而且最可怕的是
+在这个世界上出现了两个最可怕的倾向
+就是政府的绝对统治
+还有一个它现在所谓的民主政治独裁化
+也就是集体优先化
+它现在要变成个人优先化 个人崇拜主义
+然后让你完全听他的 相信他的
+所以说现在整个民主的
+成了一个现代化的集体优先主义
+和独裁化的家族个人优先主义
+这个独裁国家和今天部分国家的
+完全个人化的邪恶的
+家天下的这种联合在一起的人类
+你必将面临着重大的一场挑战
+
+
+
+发稿：雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/M12.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
