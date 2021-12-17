@@ -2,86 +2,45 @@
 ---
 
 
-## 专家：大流行封锁使游戏成瘾大量增加(2/3)
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1764414/)
+## 福奇命令美国人每年打加强针 很快将每月一次刺突蛋白注射
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1764473/)
 
-翻译：Jenny Ball
+编译：Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕截图-2021-12-17-101937.jpg)图片来源 :theepochtimes.com
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-868.png)图片来源**：**newstarget.com
 
-战利品箱让玩家可以为游戏中很难或不可能获得的物品付费。玩家可以通过玩几个小时的游戏来获得物品，也可以花钱购买。这些盒子存在于应用程序和传统视频游戏中。
+大骗子托尼·福奇 (Tony Fauci) 现在声称，美国人可能需要每年进行一次“加强”注射，以防止他的冠状病毒 (Covid-19) 处于危险之中。
 
-但战利品箱不只是出售物品，而是每个单独的战利品盒都有机会解锁玩家想要的一件物品。
+在最近暗示“完全接种”分类，可能很快需要三次注射，而不是两次之后，福奇再次提高了每年注射的赌注，我们预计最终会变成每月注射一次。
 
-实际上，战利品盒是一种可供儿童使用的老虎机，它提供了赢得理想虚拟物品，而不用现金支付的机会。
+“我们应该期待每年的加强剂吗？” 美国广播公司的“本周”主持人乔治·斯蒂芬诺普洛斯问福奇。
 
-动视暴雪的守望先锋团队射击游戏中的两个战利品盒，售价约 2 美元。但是玩家购买的越多，交易就越容易。由于无法保证玩家在打开战利品盒时，是否会得到他或她想要的物品，因此游戏鼓励玩家购买很多物品。
+“如果有必要再打一针加强剂，那么当发生这种情况时，我们需要这样做，”福奇回应道，暗示它即将到来。
 
-其他游戏依靠宝石、钻石或其他游戏内购买物品来赚钱。免费应用程序为玩家提供了玩游戏的机会。但是应用程序的某些部分很慢、很烦人或难以管理。例如，在腾讯的基地建设应用“部落冲突”中升级建筑物，通常需要几个小时，在此期间玩家无法进步。
+福奇补充说，目前“很难说”，但知道福奇的运作套路后，他会在几天内改变主意，并开始推荐每日加强剂，以对抗“Omicron”（Moronic）变种。
 
-但是，使用可购买的宝石，同一建筑物可以立即升级。这种游戏机制可能会导致玩家在未经父母许可的情况下，在游戏上花费数千美元。
+顺便说一下，辉瑞首席执行官阿尔伯特·布尔拉（Albert Bourla）喜欢所有加强剂的言论。福奇为无休止的注射剂铺平了道路，为布尔拉带来了巨大的帮助，每次注射都为 布尔拉的银行账户和股票增加了更多利润。
 
-在《今夜秀》中，喜剧演员杰克·布莱克告诉观众，他 8 岁的儿子在父亲不知情的情况下，花了 3,000 多美元购买游戏中的“钻石”。
+**福奇说新冠疫苗不能提供保护，但美国人仍应得到加强剂**
 
-“**我的孩子，他不知道。他就像，‘我要得到一大袋钻石，’”布莱克说。 “一次是 ****100 ****美元。****100****美元！这个游戏是专为儿童设计的。它面向儿童销售，然后在应用程序内有 ****100 ****美元的东西？**”
+福奇完全同意，前两针疫苗注射对于预防Omicron没有用，这自然是他推动美国人进行第三次和第四次注射的原因。
 
-这些问题不仅仅是玩笑了。
+福奇对斯蒂芬诺普洛斯说：“如果你想得到最佳保护，绝对要加强剂。”
 
-2014 年，Apple 向 37,000 名客户支付了 3250 万美元，用于在父母不知情的情况下进行儿童应用内购买。虽然父母可以通过联系 Apple 获得这些购买的退款，但这些问题有时可能不会在信用卡账单上被注意到。
+在最坏的情况下， Omicron会引起流鼻涕，或可能是肚子不舒服。尽管现在下结论还为时过早，但他坚持认为，这可能需要进一步干预。
 
-**游戏玩家与系统**
+“严重程度似乎可能比 Delta 小一点。但还有很多令人困惑的问题，”福奇说。
 
-不出所料，许多游戏玩家讨厌这些功能。
+**评论：难道不应该先把两年前授权用于紧急状况的mRNA药物的第二阶段动物实验和第三阶段人体实验完成后， 再考虑让大量人群使用吗？这不是最基本的常识吗？更别说科学常识， 福奇“博士”你在这里明确说了，“疫苗”没有保护作用，你自己说Omicron 仅流鼻涕肚子疼，这是紧急状况吗？**
 
-当游戏公司电子艺界EA透露，“星球大战：前线2”包含玩家必须购买的战利品盒，玩家必须购买这些战利品盒才能扮演像达斯维达这样的标志性角色，在线游戏玩家对此表示愤怒。
-
-当 EA 的开发者在Reddit 论坛上宣布这一变化时，游戏玩家们对这个帖子投了反对票。今天，它是 Reddit 上被低估的帖子，最多 640,000 点。
-
-对于许多游戏玩家来说，应用内购买更像是乞讨，而不是销售。对现金的恼人需求，只有在他们付清时才会停止。
-
-即便如此，根据“财富网” Fortunly.com 收集的研究，应用内购买免费游戏的收入，占游戏收入的 85%。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-867.png)(Getty Images)
-
-
-**科学**
-
-根据阿德莱德大学研究人员 2020 年的一项研究，大约 3% 的游戏玩家沉迷于电子游戏。
-
-专家们对电子游戏是否真的会上瘾存在分歧。极度身临其境的电子游戏还很新颖，人们仍然对这样玩游戏的原因存在争议， 双方都提出了令人信服的案例。
-
-一些专家表示，电子游戏以同样的方式让人上瘾，如同赌博让人上瘾一样。
-
-当人们获得胜利时，肾上腺素飙升、令人兴奋的奖励和进步的感觉时，即使他们有更重要的事情要做，他们也会继续玩游戏。
-
-游戏玩家和赌徒上瘾大约是相同的比例。
-
-其他心理学家表示，问题不在于令人上瘾的游戏，而是人们内心的潜在问题。
-
-心理学教授克里斯托弗·弗格森 (Christopher Ferguson) 表示，将成瘾行为归咎于游戏的人，正在引起道德恐慌。弗格森说，游戏不会让人上瘾，但有些人天生就会上瘾。 他补充说，一小部分人会对任何有趣的活动上瘾。
-
-弗格森认为，有食物成瘾者、性成瘾者、工作成瘾者，和游戏成瘾者，不是因为这些活动会上瘾，而是因为有些人有成瘾性。
-
-“如果有人连续一周吸食海洛因，那就不好了，”弗格森说。“但如果一个人玩了一个星期的文明有点痴迷，那真的不是一回事。”
-
-弗格森说，在封锁期间玩游戏是一件好事，它让人们在压力大的时候呆在室内进行社交和娱乐。
-
-“在 COVID-19 大流行期间，游戏挽救了生命，”他说。“无论是直接将人们关在室内，以免他们感染 COVID-19，还是间接，游戏为人们提供社交渠道，以免他们患上精神疾病或自杀倾向。”
-
-新闻来源:[ theepochtimes.com] [Pandemic Lockdowns Fueled Massive Rise in Gaming and Addiction, Experts Say](https://www.theepochtimes.com/mkt_morningbrief/pandemic-lockdowns-fueled-massive-rise-in-gaming-and-addiction-experts-say_4156008.html?utm_source=Morningbrief&amp;utm_medium=email&amp;utm_campaign=mb-2021-12-16&amp;mktids=8d26f9d2b2a6ab16ddb8b98410a0553a&amp;est=epQ0FhNlIUho2lpxvPZRsvhpkLOskzC%2FEYUfn5Vl9QzIFHP5cilamLLPv2pqXKc4CiaJ3w%3D%3D)
+新闻来源**：** [newstarget.com] [Fauci orders Americans to comply with YEARLY boosters… which will no doubt soon become MONTHLY spike protein injections](https://www.newstarget.com/2021-12-15-fauci-americans-yearly-boosters-eventually-monthly.html) / [TheGatewayPundit.com](https://www.thegatewaypundit.com/2021/12/dr-fauci-americans-will-just-deal-yearly-booster-shots-become-necessary-video/) / [NaturalNews.com](https://naturalnews.com/2021-12-10-fauci-fully-vaccinated-soon-mean-three-injections.html) / [MSN.com](https://www.msn.com/en-us/health/medical/fauci-says-omicron-can-evade-vaccine-protection-but-boosters-help/ar-AARJyVg?ocid=uxbndlbing)
 
 * * *
 
-*审核：文乐
-校对：阿伯塔
+*审核：文乐 
+校对：信心满满
 发稿：Nuevo唐人*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-3.jpeg)
-
-
-
-
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

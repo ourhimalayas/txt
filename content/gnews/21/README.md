@@ -2,42 +2,30 @@
 ---
 
 
-## 中国突然变成了“民主国家”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1764200/)
+## 完全接种疫苗的母亲产下口鼻出血的婴儿
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1764294/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/red-army-school-china-700x420-1.jpg)
+**编译：西班牙巴塞罗那喜悦农场-wenwu**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip12-3.png)图片来源：dailyexpose.uk
+根据[疫苗不良事件报告系统 (VAERS) 的](https://medalerts.org/vaersdb/findfield.php?IDNUMBER=1879991&amp;WAYBACKHISTORY=ON)报告，一名完全接种疫苗的母亲生下了一名口鼻出血的婴儿。可悲的是，婴儿出生仅一天后，婴儿就去世了。死后，婴儿的父亲表示，他认为中共病毒（Covid-19）疫苗是导致婴儿死亡的罪魁祸首。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/捕获13.png)
+
+母亲在怀孕的最后三个月里接种了两剂Covid-19疫苗。在出生后，婴儿的嘴和鼻子开始出血，一天后死亡。该报告是由一个外国”监管机构”提交的（如下图）：该母亲在2021年7月19日和8月13日接受了两剂Moderna疫苗，婴儿在2021年10月6日出生；孩子在医院分娩时，标明胎儿心跳不稳定。
+
+该报告指出：“医生说，病人出生后，出现了哭声；在剪断脐带进行新生儿护理时，护理人员发现病人有口鼻出血的症状，立即请儿科医生给他插管并给他吸氧，他被送进了NICU；在新生儿重症监护室，他的检查结果显示凝血功能异常，肺部出血，心功能不全。给他输血，并给他注射肾上腺素”。
+
+VAERS报告没有将死亡列为与Covid-19疫苗有任何关系，只是将死亡列为“新生儿死亡”。目前还不知道是否进行了尸检，以及是否记录了任何死因。无论怎样，据报道，婴儿的父亲申请了疫苗伤害赔偿，因为他认为Covid疫苗是导致突然死亡的原因。
+
+**新闻来源**：[dailyexpose.uk][Fully Vaccinated Mother Gives Birth To Baby Bleeding From Noseand Mouth, Infant Dies Day Later](https://dailyexpose.uk/2021/12/16/fully-vaccinated-mother-gives-birth-to-baby-bleeding-from-nose-and-mouth-infant-dies-day-later/)
+
+* * *
+
+***发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-1.jpeg)
 
 
- 
-图片来源： Fred Dufour/AFP via Getty Images
-
-
-#### 整理/编辑 ：小红帽
-
-数周以来，中国官媒和宣传机构不遗余力地通过所有渠道宣称：中国是一个“民主”国家，且优于西方。本月初，北京当局还拿出一项研究结果试图加以证明。
-
-**无民主选举，无新闻自由，无言论自由，共产党独大，享有决定权，让当局不舒服的公民不经透明司法程序便消失在监狱里**——在当局的政治宣传中，所有这些都无足轻重。
-
-数星期来，中国宣传机器连篇累牍使用“民主”一词，显然与上周在美国发生的事件直接相关：美国总统拜登邀请了约一百个国家的代表举行世界民主峰会，然而中国不能参加。
-
-德国弗里德里希·瑙曼基金会（Friedrich-Naumann-Stiftung）的专家马蒂 (Anna Marti) 指出，北京当局使用民主一词本身并不新鲜， “该国宪法定义中华人民共和国是中国特色的社会主义民主国家。**中国式民主和同我们所理解的民主，即西方自由民主是截然相反的东西。”  **
-
-生活在北京的政府批评者、前清华大学讲师吴强表示，**共产党意识形态面临最大危机和最大挑战，也是当局不惜一切重新定义民主一词的一个极重要原因，旨在用民主一词掩饰极权主义。重新诠释概念、赋予它们以全然不同于原义的含义是中国理论家们的老把戏。**** **
-
-来自弗里德里希·瑙曼基金会驻台北办事处的马蒂观察到，中国党政领导层现在对民主一词的使用与以往不同。**北京正玩弄一个聪明的伎俩：“体制竞争——中国制度和西方制度之间的竞争通常是在这种情况下出现的一个概念，而现在，中方刻意抹杀这一对立，而只将其置于竞赛层面**：‘我们也是民主，只是我们做得更好。’ ”
-
-本月初，中国广邀境外人士参加同美国民主峰会相抗衡的在线“高端对话”。**与会者中有来自叙利亚和古巴等独裁国家的代表**，也有所谓的专家，包括在中国大学任教的一些国际学者。毫不奇怪，**他们也得出中国民主优于西方民主的结论。**** **
-
-新闻来源：[中国：突然成了“民主国家”？ | 德国之声 来自德国 介绍德国 | DW | 15.12.2021](https://www.dw.com/zh/%E4%B8%AD%E5%9B%BD%E7%AA%81%E7%84%B6%E6%88%90%E4%BA%86%E6%B0%91%E4%B8%BB%E5%9B%BD%E5%AE%B6/a-60130940)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

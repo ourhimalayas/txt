@@ -2,19 +2,19 @@
 ---
 
 
-## 新闻秘书珍·普薩基关于《防止维吾尔族强迫劳动法》的声明
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1764301/)
+## 单伟健根红苗正是密六局的高级特务 直接汇报给现任政治局常委
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1764441/)
 
-#### 撰稿：彩虹
+文编：东京樱花团/樱花传媒
+视频:东京樱花团/中文小视频组
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-12.jpg)图片来源：加州大学聖塔芭芭拉分校
-总统欢迎国会两党就《防止维吾尔族强迫劳动法》（Uyghur Forced Labor Prevention Act）达成协议。我们同意国会的意见，即可以而且必须采取行动，让中共对种族灭绝和侵犯人权行为负责，并解决新疆的强迫劳动问题。这就是为什么政府已经采取了有关具体措施，包括实施签证限制、《全球马格尼茨基法案》（Global Magnitsky）和其他金融制裁、出口管制、进口限制，以及发布商业建议。总统还号召七国集团承诺确保所有全球供应链不使用强迫劳动，包括来自新疆的强迫劳动。在包含半导体行业和清洁能源行业中，政府将与国会密切合作，同时致力于在岸和离岸的关键供应链实施这一法案，确保全球供应链不存在强迫劳动。
+12月8日，郭文贵先生在GTV大直播指出：
 
-**新闻来源**
+单伟健在海外的级别相当于中国正部级。单伟建的背景不仅有红色血脉，而且他所属于中共国家安全部最高级别的海外国际秘密六局。单伟建直接给现任国家常委汇报工作，他是只有中共正部级以上及国家安全委员会成员，才能了解其身份的高级特务。
 
-[Statement by Press Secretary Jen Psaki on the Uyghur Forced Labor Prevention Act](https://www.whitehouse.gov/briefing-room/statements-releases/2021/12/14/statement-by-press-secretary-jen-psaki-on-the-uyghur-forced-labor-prevention-act/)
-
+*编辑：东京樱花团/墨然
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

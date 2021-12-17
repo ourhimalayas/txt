@@ -2,31 +2,28 @@
 ---
 
 
-## 完全接种疫苗的母亲产下口鼻出血的婴儿
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1764294/)
+## 【中日财经爆】日本央行缩减疫情刺激措施，但维持大规模宽松政策
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1764417/)
 
-**编译：西班牙巴塞罗那喜悦农场-wenwu**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip12-3.png)图片来源：dailyexpose.uk
-根据[疫苗不良事件报告系统 (VAERS) 的](https://medalerts.org/vaersdb/findfield.php?IDNUMBER=1879991&amp;WAYBACKHISTORY=ON)报告，一名完全接种疫苗的母亲生下了一名口鼻出血的婴儿。可悲的是，婴儿出生仅一天后，婴儿就去世了。死后，婴儿的父亲表示，他认为中共病毒（Covid-19）疫苗是导致婴儿死亡的罪魁祸首。
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-204.png)图片源自本文链接
+据《朝日新闻》网站17日报道，日本央行（BOJ）周四决定从明年4月起缩减对受中共病毒影响的公司的现金流支持措施。银行将在明年3月底结束购买更多大型公司发行的商业票据（CP）和公司债券的政策，以帮助它们改善现金流。另外，该行已决定将其对中小企业的支持措施延长6个月至明年9月底。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/捕获13.png)
+该决定是在同一天的货币政策会议上做出的。购买政府债券和交易所交易基金（ETF），维持大规模的宽松框架。
 
-母亲在怀孕的最后三个月里接种了两剂Covid-19疫苗。在出生后，婴儿的嘴和鼻子开始出血，一天后死亡。该报告是由一个外国”监管机构”提交的（如下图）：该母亲在2021年7月19日和8月13日接受了两剂Moderna疫苗，婴儿在2021年10月6日出生；孩子在医院分娩时，标明胎儿心跳不稳定。
+去年3月，日本银行扩大了购买CP和公司债券的配额，这些债券是为筹集资金以支持大公司抗击中共病毒而发行的。目前，上限设定为总额约20万亿日元，但从明年4月起，该限额将逐渐降低到中共病毒之前的总额约5万亿日元。
 
-该报告指出：“医生说，病人出生后，出现了哭声；在剪断脐带进行新生儿护理时，护理人员发现病人有口鼻出血的症状，立即请儿科医生给他插管并给他吸氧，他被送进了NICU；在新生儿重症监护室，他的检查结果显示凝血功能异常，肺部出血，心功能不全。给他输血，并给他注射肾上腺素”。
+同时，向中小企业贷款的金融机构将继续能够以优惠的条件从日本银行借钱，直到明年9月底。
 
-VAERS报告没有将死亡列为与Covid-19疫苗有任何关系，只是将死亡列为“新生儿死亡”。目前还不知道是否进行了尸检，以及是否记录了任何死因。无论怎样，据报道，婴儿的父亲申请了疫苗伤害赔偿，因为他认为Covid疫苗是导致突然死亡的原因。
+迄今为止，日本央行已经三次延长该支持，最后期限为明年3月底。与此同时，大公司的现金流也在改善，本月的“短观”（全国短期商业经济调查）的结果表明，中共病毒的影响挥之不去，特别是像餐馆和酒店等面对面的服务行业。
 
-**新闻来源**：[dailyexpose.uk][Fully Vaccinated Mother Gives Birth To Baby Bleeding From Noseand Mouth, Infant Dies Day Later](https://dailyexpose.uk/2021/12/16/fully-vaccinated-mother-gives-birth-to-baby-bleeding-from-nose-and-mouth-infant-dies-day-later/)
+信息源：
 
-* * *
+[日銀、コロナ対策の縮小決定　大規模緩和は維持](https://news.yahoo.co.jp/articles/8746c092921d33b11ae993935cbd0f23329d3162#:~:text=%E6)
 
-***发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-1.jpeg)
-
-
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

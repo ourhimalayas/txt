@@ -2,38 +2,28 @@
 ---
 
 
-## 研究脑控武器和监控新疆人，中共多家科研机构被制裁
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1764001/)
+## 疫苗灾情｜24 岁 BYU 篮球运动员被迫接种疫苗两周后倒在球场上 职业生涯面临终结
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1764032/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+**撰文/ 疫情关注组｜发布日期/ 17/12/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup）](https://gettr.com/user/mightygroup%EF%BC%89)**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/macau-photo-agency-vtHmsuXyEqM-unsplash.jpg)图片来源：quillette.com
+美国 BYU 篮球运动员，今年 24 岁理查德·哈沃德 (Richard Harward) 12月15日在IG 宣布，“鉴于我的心脏疾病又出现了进一步的并发症，为了健康及安全着想，我确定退出本赛季所有的比赛”，这距离他被球队高层胁迫接种辉瑞 COVID-19 疫苗还不足两周。
 
+事源一个月前，他对阵科罗拉多克里斯蒂安（Colorado Christian）的比赛中倒下，送院后被确诊患上严重心肌炎和血栓。
 
-#### 整理/编辑 ：小红帽
+哈沃德的母亲，爱丽丝（Alice）透露指，她的儿子根本不想接种疫苗，但迫于球队管理层的“压力、胁迫和羞辱”，并以禁赛作威胁，最终成功让哈沃德接受了COVID-19 疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/xHarward1.jpg.pagespeed.ic_.-gzvT8g18E.jpeg)哈沃德和父母
+母亲认为，“结果很明显，疫苗真的不安全，我的儿子为此付出了非常沉重的代价，他可能永远无法康复。”
 
-据德国之声中文网12月16日报道，**美国商务部于12月16日将多家中国生物技术公司列入实体名单，理由是这些企业监控新疆少数民族以及对美国安全构成威胁****。**
+她表示，哈沃德在接受疫苗后不久因严重胸闷和疼痛昏倒在赛场上，此前他的身体状况一向相当良好，现在他确诊患有严重的心肌炎和血栓。
 
-据法新社报导，**这轮被制裁的包括中国军事医学科学院以及11家科研机构，据称这些机构进行控制大脑的武器研究。**
+最令人不忿的是，所有求诊的医生都矢口否认哈沃德的不幸与疫苗有关，甚至表示这种突发的疾病“对于某些人来说就是生命来到某个阶段时不可避免的事。”
 
-美国商务部长雷蒙多（Gina Raimondo）在一份声明中称，生物科技和创新医学领域的科研能够拯救生命。**但中国却利用这些科技手段监控自己的人民以及压迫少数民族以及有宗教信仰的群体**。
-
-人权组织认为中国新疆地区出现严重侵犯人权现象，美国政府以及一些国家的议会指责那里发生了“种族灭绝”的惨剧，称至少一百万维族以及其他少数民族受到监禁。
-
-周四，除生物医学科技外，美国商务部的实体清单还加入了华海智汇技术有限公司、江苏亨通光纤科技、江苏亨通高压海缆等中国企业。该企业被指责收购或有意收购美国科技支持中国军队建设。
-
-上了黑名单的企业在日后获取美国技术的门槛将明显提高。美方供货商必须在得到商务部的特许后才能与其进行交易。
-
-新闻来源： [美国商务部更新实体清单：军事医学院榜上有名 | 德国之声 来自德国 介绍德国 | DW | 16.12.2021](https://www.dw.com/zh/%E7%BE%8E%E5%9B%BD%E5%95%86%E5%8A%A1%E9%83%A8%E6%9B%B4%E6%96%B0%E5%AE%9E%E4%BD%93%E6%B8%85%E5%8D%95%E5%86%9B%E4%BA%8B%E5%8C%BB%E5%AD%A6%E9%99%A2%E6%A6%9C%E4%B8%8A%E6%9C%89%E5%90%8D/a-60152739)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+不过，哈沃德的队友对他的受伤表示相当震惊，他们无法理解一个一向年轻、健康、优秀的运动员怎么会突然患上严重心脏病，虽然哈沃德已就自己的不幸向球队提出诉讼，但是按照过往经验，要想产生实质性影响，除非整个球队罢赛抗议。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/疫苗-4.jpg)
+来源｜[Deseret](https://www.deseret.com/2021/12/14/22834713/byu-cougars-basketball-big-man-richard-harward-says-hell-miss-the-rest-of-the-season)
 
  
 
