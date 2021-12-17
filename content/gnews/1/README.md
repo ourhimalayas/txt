@@ -2,30 +2,27 @@
 ---
 
 
-## 多家公司实体被认定中共军工综合体，维吾尔劳动法通过
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1763537/)
+## 美国参议院一致通过《防止强迫维吾尔族劳动法案》
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1763566/)
 
-![资料照片: 新疆达坂城一处被官方称为职业技能教育培训中心的围墙上的安全监控摄像头。(2018年9月4日)](https://gdb.voanews.com/DADC3917-68F5-4F9C-A806-7902563BA6D6_w1023_r1_s.jpg)*资料照片: 新疆达坂城一处被官方称为职业技能教育培训中心的围墙上的安全监控摄像头。(2018年9月4日)*
-据美国之音12月17日报道，依据美国总统的行政命令，美国财政部16日宣布八家科技公司为中共军工综合体，任何美国法人不得出售和购买这些公司公开上市的证券及其衍生证券。同天，美国商务部将中共国军事科学院军事医学研究院及其11家研究所等25个实体列入限制出口名单。未经政府出口许可，不得向这些被纳入名单的实体输出美国技术。
+撰稿：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-209.jpg)[图片源](https://www.newsweekjapan.jp/stories/world/2021/04/post-96140.php)
+16日，美国参议院一致通过了 《防止强迫维吾尔族劳动法案》，以防止中共国新疆维吾尔族人制造的商品进口到美国。这份法案将被送往白宫，预计拜登总统将签署。
 
-美国国会参众两院通过《防止强迫维吾尔劳动法》，并将法案送交白宫签署。法案要求美国国土安全部列出与中共国政府合作压迫新疆维吾尔穆斯林少数民族的实体。除非得到美国当局无强迫劳动的认证，否则凡在新疆制造的产品均被认定使用了强迫劳动，禁止流入美国市场。
+14日，这份法案在众议院获得一致通过。
 
-美国加大了对中共国军工综合体企业的制裁，控制美国资金流入这些公司。对新疆维吾尔地区的强迫劳动也启动法案。中共侵犯人权的犯罪行为一天不停止，国际社会的制裁就不会停止。
+美国贸易代表（USTR）的代表戴琪对该法案表示赞赏，“将中共对新疆维吾尔人等少数民族和宗教少数群体的剥削行为排除在全球供应链之外，在道德和经济上都是必要的。”
 
-新闻参考链接：[https://www.voachinese.com/a/us-treasury-identifies-eight-chinese-tech-companies-as-part-of-chinese-military-industrial-complex-20211216/6357894.html](https://www.voachinese.com/a/us-treasury-identifies-eight-chinese-tech-companies-as-part-of-chinese-military-industrial-complex-20211216/6357894.html)
+此外，美国政府16日宣布，将限制对几十家中共国公司的投资和出口，其中包括世界上最大的商业无人机制造商大疆，因为它们是中共压迫维吾尔族的同谋，并且支持中共军队。
 
-编辑：胖丁
+信息源：
 
-* * *
+[米上院、ウイグル強制労働防止法案を可決　バイデン大統領署名へ](https://news.yahoo.co.jp/articles/b985295cb9165b9c973a0ac5e259e4103316fcc0)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

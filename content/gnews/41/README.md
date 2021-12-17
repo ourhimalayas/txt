@@ -2,53 +2,40 @@
 ---
 
 
-## 美国客运铁路Amtrak暂停为员工接种疫苗
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1762661/)
+## 5位共和党州长为国民警卫队寻求疫苗接种豁免权
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1762817/)
 
-**【评论：】***美国客运铁路公司Amtrak暂时中止员工接种疫苗，是雇主及其雇员捍卫自由的重大胜利，但斗争还没有结束。美国的伟大之处就在于，政府违宪的越权行为一样会得到制止和纠正，这在独裁国家是不可想象的！*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/great-wall-12078714.jpg)图片来源：theglobalvillagenews.com
+五个州的州长联名给国防部长劳埃德·J·奥斯汀三世的信中，为他们州内的国民警卫队寻求联邦新冠病毒疫苗的豁免权。这使得疫苗接种冲突由原来的一个州扩展到了六个州。
 
-《路透社》记者：David Shepardson，2021年12月14日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-844-e1639688678571.png)文件照片：2017 年 7 月 7 日，美国最繁忙的火车枢纽——纽约宾州车站内，一辆 Amtrak 火车停在站台上，该车站将关闭轨道进行维修，对纽约市的通勤者造成大规模干扰。
-图片来源：路透社/Brendan McDermid
-华盛顿（路透社）—**美国客运铁路公司Amtrak周二表示，将暂时中止员工接种疫苗的任务，现在预计不会在1月份被迫削减部分服务。**
+阿拉斯加、怀俄明、爱荷华、密西西比和内布拉斯加的共和党州长给奥斯汀的信中指出：“惩罚拒绝接种冠状病毒疫苗者，并要求未接种疫苗者从各州国民警卫队离职，这超出了联邦宪法授权”，并要求给予他们州豁免权。截至本周二五角大楼尚未对此作出回应。
 
-在《路透社》看到的一份备忘录中，美铁首席执行官比尔弗林（Bill Flynn）表示，铁路将允许未接种疫苗的员工接受检测。
+上个月，国防部拒绝了俄克拉荷马州州长凯文·斯蒂特(Kevin Stitt)提出的该州国民警卫队拒绝强制疫苗令的请求。该州的警卫队成员如果拒绝的疫苗强制令将面临失去工作的风险。该部门本周发布了一项新的命令，指出所有不接种疫苗的卫队成员将收到一份总谴责令，这将从根本上结束其职业生涯。
 
-**Amtrak引用了美国地方法院的一项决定，该决定停止执行总统乔·拜登 （Joe Biden）要求在1月之前为联邦承包商提供疫苗的行政命令。**
+联邦官员表示，各州长无权允许警卫队成员拒绝接种疫苗强制令。然而，州政府官员和一些法律专家认为，除非国民警卫队成员被联邦部署，否则他们是在本州州长的管辖之下，因此不受联邦授权的约束。
 
-白宫发言人 Jen Psaki 表示，Amtrak“正在努力确保有足够的员工在工作。” 她说，“政府并不担心暂停，接种疫苗或检测是我们一直推荐的。”
+在美国130万现役军人中，大约有97%的人至少接种过一剂疫苗，但警卫队和后备队成员的数字要低很多。
 
-Amtrak补充表示，“被要求提交测试但未能提交的员工最初将被安排无薪休假。”
+每个政府部门注射截止日期不同，而警卫队的截至日期在几个月之后。随着与国防部有疫苗强制令纠纷的州的数量的增加，那些抵制疫苗强制令的各州州长认为政府部门（军队）的疫苗强制日益政治化，且不可以有争议。
 
-上周，Amtrak的一名官员在众议院委员会听证会上披露了计划中的服务削减。
+五角大楼官员本周表示，拥有超过325,000名现役军人的空军是最早到达疫苗截至日期的部门。有27名空军士兵（他们的服役时间都不到6年）是第一批因拒绝接种疫苗而被解雇的人。陆军和海军预计将很快公布他们的人数。
 
-共和党众议员萨姆·格雷夫斯 (Sam Graves) 曾批评削减开支，并在周二表示，拜登政府的疫苗强制令“将为支付账单的纳税人提供更少的服务”。
+除了已经离开军队的人或有医疗问题的人之外，国防部很少批准对强制疫苗令的豁免。到目前为止，也没有一个军人被宗教原因豁免接种。
 
-Amtrak目前正努力在2022年底前增加多达3,500名新员工。
+简评：共和党州因疫苗接种强制令违宪为由，为辖区内的国民警卫队申请疫苗接种豁免权。而且即俄克拉荷马州之后又有5个州联名申请。可见，对强制疫苗接种的抵制正在升温。以劳埃德·J·奥斯汀三世为首的国防部目前为止都还没有做出回应，未来几个月，越来越多的美国军人因为强制疫苗接种这一问题将被迫离开自己的职位。在台湾海峡，南中国海发生热战的可能性日渐增大之际，美国的国防稳定不仅事关美国自身的安全，也关系到全球热点区域的和平。
 
-作为大规模基础设施法案的一部分，国会批准了660亿美元用于铁路建设，Amtrak 获得了220亿美元。
+原文链接：[5 Republican Governors Seek Vaccine Exemptions for National Guard Troops](https://theglobalvillagenews.com/2021/12/15/5-republican-governors-seek-vaccine-exemptions-for-national-guard-troops/)
 
-在COVID-19大流行期间，Amtrak的需求大幅下降，现在约为大流行前运力的 70%。
+* * *
 
-（David Shepardson 报道；Chris Reese 和 Aurora Ellis 编辑）
-
-版权所有2021汤森路透。
-
-文章来源：[https://money.usnews.com/investing/news/articles/2021-12-14/u-s-passenger-railroad-amtrak-suspends-vaccine-mandate-for-employees](https://money.usnews.com/investing/news/articles/2021-12-14/u-s-passenger-railroad-amtrak-suspends-vaccine-mandate-for-employees)
-
-翻译：洛杉矶盘古农场 – Raul
-
-校对：洛杉矶盘古农场 – Mike Li
-
-评论：洛杉矶盘古农场 – Wendy
-
-编辑：洛杉矶盘古农场 – Wendy
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
+编辑：【英国伦敦喜庄园编辑部】
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

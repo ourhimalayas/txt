@@ -2,12 +2,31 @@
 ---
 
 
-## 12/1郭文贵直播：王岐山想干掉习当老大（粤语配音）
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1763413/)
+## GTV新闻访谈简报|2021年12月16日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1763460/)
 
-12/1/2021 郭文贵直播：王岐山想干掉习当老大，而孟建柱很有信心能等到中南坑灭亡；习近平给中国人和全世界带来的巨大灾难背后的关键人物就是王岐山和孟建柱。
+作者：香草山翻译部
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-3.jpg)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1216text-SC.png)
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+视频参看：[12.16  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61bbe77c7882000d51025360)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/calendar.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

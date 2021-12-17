@@ -2,35 +2,31 @@
 ---
 
 
-## 英国通胀率创10年新高
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1762984/)
+## 七哥说地产都会成为垃圾，你拿啥赔？（2021-12-15摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1763024/)
 
-**评论：新冠疫情的全球传播导致当今世界乱象横生，我们的生活被这场疫情搞得混乱不堪时，全世界人民应该行动起来，揪出乱源之码。问一问，新冠病毒从哪里来，又要到哪里去，最终乱了世界的邪恶团伙，最配的代价是尽早被世界毁灭！**
+文编：Hima
+听写：叮叮
+视频：七哥
 
-**据《Lotuseaters》记者：Rory Cranstoun，2021年12月15日报道**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12-a34z7-c0tz0-5.jpg)**£50注由Howard Lake是根据CC BY-SA 2.0许可。
-图片来源：Lotuseaters**
-在截至11月的12个月中，英国的生活成本达到2011年9月以来的最高水平，通胀率从前一个月的4.2%飙升至5.1%。
+来源：郭先生2021-12-15直播09:21:45 摘录
 
-根据国家统计局 (ONS) 的数据，价格上涨是由于运输和能源成本上涨，以及服装和二手车价格上涨。 ONS首席经济学家格兰特·菲茨纳 (Grant Fitzner) 在评论这些数字时说：
+这共产永远为一个目标，为一个目标的去做。你看着很好像很计划，还有自己的学习机制。大家千万记住，你往回看这件事情，冬奥会彻底失败。十八大习王成功了，十九大他成功了，但是冬奥会彻底失败。二十大能成功吗？二十大之前房地产的问题能解决吗？二十大之前，所有的，你的90万亿美元的和100万亿美元也好，你说56万亿美元好，官方56万亿。就说你56万亿美元的房地产，这个经济你能解决的了吗？1.2亿人失业呀！这是1.2亿人失业，最起码意味着几千万套房子。记住啊，咱就别说一套，也别说1乘以2，咱就谦虚点说啊。三千万套房子，按共产党的逻辑，一年开发1,000万套房子上市，1,000万套，10亿平方米。那你算一下这样，翌珊，你看你这都是绝顶聪明人，是不是都是有钱的人，你自己掰的手指头，别不用掰俩手，掰一个手给他算算账。说你怎么还你这五十，你这50万亿的贷款怎么还下去。你的这个一千万套的，这个打工的房子已经没了。他不是说买不起每年的1,000万套了，这3,000万套他就可能还不起了，他怎么买新呢。这一亿多人没工作了我怎么往下弄呢，然后冬奥会过后，整个张家口的房产，开发了多少房子。共产党官方说，开发了将近5,000万平方米房子。大家去看一看去，整个张家口房地产代替整个河北省。张家口还有什么啊，旁边的承德呀，周围这区，大家去看一看去啊。从拿下家奥运会到现在，几乎是无痕迹的开发。大家知道投多少钱吗？官方5,000亿，民间投资2.5万亿人民币的相关房地产，这些房地产都会成为垃圾。你拿啥赔？
 
-“广泛的价格上涨导致通货膨胀率再次急剧上升，目前处于十多年来的最高水平。燃料价格显着上涨，推动平均汽油价格高于我们之前所见。服装成本—在去年这个时候下降后有所增加—以及食品、二手车和烟草税的价格上涨，都推升了本月的通货膨胀。”
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-上个月汽油价格也跃升至每升145.8便士—有记录以来的最高水平—原材料成本上涨也导致通胀上升。
+**关注我们**
 
-“工厂生产的商品成本和原材料价格持续大幅上涨，达到至少12年来的最高水平。”菲茨纳补充道。
+Discord 账号
 
-**文章来源**：[https://www.lotuseaters.com/uk-inflation-hits-10-year-high-15-12-21](https://www.lotuseaters.com/uk-inflation-hits-10-year-high-15-12-21)
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-翻译：洛杉矶盘古农场 – Raul
-校对：洛杉矶盘古农场 – Mike Li
-评论：洛杉矶盘古农场 – Wendy
-编辑：洛杉矶盘古农场 – Wendy
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+Gettr 账号
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

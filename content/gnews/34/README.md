@@ -2,43 +2,32 @@
 ---
 
 
-## 证据：中共病毒COVID疫苗导致朊病毒疾病
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1762951/)
+## 拜登签署行政令制裁跨国贩毒 中共国多家公司被制裁
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1762998/)
 
-本文作者：Rebecca (一切心皆不可得！)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image001-10.png)
-据《自然新闻网》报道，mRNA疫苗正在导致朊病毒疾病。人们在注射前没有这些疾病，而在注射后却突然患上了这些疾病。对此没有其他解释。
+**撰稿：日本东京方舟农场 海星**
 
-朊病毒疾病是不可治愈的，而且总是致命的。接种COVID疫苗后，最快6周就会死亡（见6周内和6个月内的例子）。
+12月15日，美国总统拜登签署了两项制裁跨国犯罪组织和贩毒网络的行政命令。在美国财政部的制裁名单上，中共国有多家公司名列其中。
 
-以下内容来自Steve Kirsch 转载自 [SteveKirsch.Substack.com](https://stevekirsch.substack.com/p/proof-covid-vaccines-cause-prion)
+据《美国之音》报道，美国财政部根据拜登总统最新签署的行政命令所授予的权力，于12月15日认定10名个人和15个实体从事或企图从事涉及国际非法药物扩散或制造的活动或交易，并将他们列入制裁名单。制裁名单中包括中共国的1名个人和4家公司。
 
-我写了一条推特，说疫苗会导致朊病毒病。推特给那条推文标签为“具误导性”。
+据报道，被制裁的中共国个人名叫叶全发；四家公司分别为武汉远成共创科技有限公司（Wuhan Yuancheng Gongchuang Technology Co. Ltd）、上海迅精化学有限公司（Shanghai Fast-Fine Chemicals Co., LTD）、河北环浩生物科技有限公司（Hebei Huanhao Biotechnology Co., Ltd）以及河北艾豚商贸有限公司（Hebei Atun Trading Co., Ltd）。
 
-这根本不是事实。我的陈述在科学文献和VAERS数据中也得到了验证。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-206.jpg)图片来源：美国之音
 
-见[https://stevekirsch.substack.com/p/proof-covid-vaccines-cause-prion](https://stevekirsch.substack.com/p/proof-covid-vaccines-cause-prion)并阅读所有的评论，这表明我不是唯一对数据有这种评估的人。
+按照制裁规定，被列入名单中的个人及实体在美国持有的所有资产将被冻结。此外，除非得到财政部许可，否则美国法人或任何位于美国境内或过境美国的人，均不得与被认定者拥有的财产和利益进行交易。 美国政府表示，鉴于美国多年来经常发生涉及海洛因和非法芬太尼的[用药过量死亡事件](https://www.voachinese.com/a/overdose-deaths-top-100000-cdc-says-20211117/6317842.html)，因此，拜登总统签署的这两项行政命令不仅宣布国家进入紧急状态，同时还正式设立“美国打击跨国有组织犯罪委员会”（US CTOC），以应对跨国贩毒所带来的危机。
 
-早在2021年5月，当Byram Bridle教授披露关于辉瑞公司疫苗生物分布数据的FOIA请求时，提到穗状蛋白与路易体形成有关，而路易体与朊病毒疾病有关。他表示担心，疫苗可能导致朊病毒疾病，如痴呆症、阿尔茨海默氏症和克雅氏病（CJD）。
+*参考链接：*
 
-几小时后，Twitter暂停了我的账户。没有上诉的机会。过去12年里的所有内容都被删除。我的7.5万名追随者全部被清零。我的信息被删除。没有机会下载我的内容。
+[拜登总统签署行政命令加强打击国际贩毒 受制裁者包括中国公民及公司](https://www.voachinese.com/a/biden-executive-orders-on-global-illicit-drugs-20211215/6356846.html)
 
-唯一留下的是：我的Twitter ID是@stkirsch。
+* * *
 
-如需了解更多内容，请阅读文章，链接如下：
+*素材采编：海星*
 
-- [杰西卡-罗斯关于COVID疫苗和朊病毒疾病的文章](http://Jessica%20Rose’s%20article%20on%20COVID%20vaccines%20and%20prion%20diseases)
-- [Stephanie Seneff关于朊病毒疾病和COVID疫苗的论文](http://Stephanie%20Seneff’s%20paper%20on%20prion%20disease%20and%20the%20COVID%20vaccines)
-- [Bart Classen的论文将疫苗和朊病毒疾病联系在一起](http://Bart%20Classen’s%20paper%20linking%20the%20vaccines%20and%20prion%20diseases)
-- [SARS-CoV-2导致猕猴的脑部炎症并诱发路易体的形成](http://SARS-CoV-2%20causes%20brain%20inflammation%20and%20induces%20Lewy%20body%20formation%20in%20macaques)
-- **[SARS-CoV-2 穗状蛋白中的朊病毒样域使其与ACE2的亲和力更高](http://SARS-CoV-2%20Prion-Like%20Domains%20in%20Spike%20Proteins%20Enable%20Higher%20Affinity%20to%20ACE2)**
+*编辑：青衣青青*
 
-
-[新闻来源链接](https://www.naturalnews.com/2021-12-10-proof-covid-vaccines-cause-prion-diseases.html)
-
-审核校对：sherryok (水云间)
-
-上传排版：漂流瓶
+*发布：Ranting*
 
  
 
