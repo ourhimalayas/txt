@@ -2,31 +2,12 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月16日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1763460/)
+## 娜奥米·沃尔夫博士：疫苗不会阻止病毒传播
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1763465/)
 
-作者：香草山翻译部
+12/09/2021 娜奥米·沃尔夫博士：疫苗不会阻止病毒传播，但他们从不提供数据，他们从不提供研究报告。事实上，现在有很多研究表明医院里挤满了有重症的、突破性感染的已接种疫苗和未接种疫苗的人。政府正在创建一个极权主义社会。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-3.jpg)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1216text-SC.png)
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-视频参看：[12.16  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61bbe77c7882000d51025360)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/calendar.jpeg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

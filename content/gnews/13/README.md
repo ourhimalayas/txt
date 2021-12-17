@@ -2,36 +2,44 @@
 ---
 
 
-## 中共制毒贩毒 4家企业和1名个人遭制裁
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1763890/)
+## 短视频：抵制北京冬奥会国家越来越多
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1763922/)
 
-作者：日本方舟农场 – Andy5
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-08-30-at-7.37.59-PM-3.png)
-12月15日，美国总统拜登签署了两项行政命令，授权美国财政部制裁从事、或企图从事涉及国际非法药物扩散、制造活动的15家实体及10名个人。中共有4家实体和1名个人被列入其中。这4家实体分别是：武汉远成共创科技有限公司、上海迅精化学有限公司、河北环浩生物科技有限公司以及河北艾豚商贸有限公司。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/7-26.jpg)
-被制裁的个人–叶全发，是全世界最大的合成代谢类固醇的生产者之一。他不仅通过比特币等虚拟货币进行此类贩毒交易，还领导了一个在大陆和香港之间的贩毒组织，向美国走私芬太尼等合成药物。叶全发正被美国缉毒局通缉。
+#### 翻译：Lish
+校对：枳实
+剪辑/字幕：蛮吉
+编辑：文泓
 
-据悉，被制裁的上述中共实体，也或多或少参与了这个贩毒链条。
-
-参考链接：
-
-- [US sanctions Chinese drugmakers amid addiction epidemic](https://www.theguardian.com/us-news/2021/dec/15/china-painkillers-drugs-us-sanctions)
-- [拜登总统签署行政命令加强打击国际贩毒 受制裁者包括中国公民及公司](https://www.voachinese.com/a/biden-executive-orders-on-global-illicit-drugs-20211215/6356846.html)
-- [Statement from DEA Administrator Anne Milgram on Cheun Fat Yip](https://www.dea.gov/press-releases/2021/12/15/statement-dea-administrator-anne-milgram-cheun-fat-yip)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/unknown1.png)图片来源：视频截屏
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
+我们继续讨论冬奥会和外交抵制问题。加拿大已宣布对明年的北京奥运会进行外交抵制，且联合澳大利亚、英国、美国和新西兰在内的盟国，采取了类似的行动。
+中共国以警告的方式进行反击。外交部指责美国、澳大利亚、英国和加拿大将奥运会政治化，并说他们将为自己的错误行为付出代价。加拿大总理贾斯汀·特鲁多在宣布决定时提到了人权问题。
 
-总编：文真
-校正/发稿：海阔天空1
+在过去的许多个月里，我们一直在与世界各地的伙伴和盟友就北京奥运会和残奥会的问题进行对话。
+事实上，作为一个国家，和世界各地的许多伙伴一样，我们对中共政府一再侵犯人权的行为极为关注。
+这就是为什么我们今天宣布，我们将不派任何外交代表参加今年冬天的北京奥运会和残奥会。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+嗯，这是在英国首相鲍里斯·约翰逊发表类似声明之后。
+（我们将）对北京冬奥会进行有效的外交抵制，预计没有部长会出席，我相信也包括议员和其它官员。议长先生，不过我可以告诉议院的是，我不认为（全面的）体育抵制是明智的，这仍然是政府的政策。
+
+日本首相岸田文雄表示，他正在考虑如何做。
+【备注：12月16日，安天文雄表示，没有参加北京冬奥会的计划。】
+我知道美国已经宣布对北京奥运会和残奥会进行外交抵制。考虑到奥运会的意义和日本外交的重要性，日本的反应应该从国家利益的角度来（作出）判断。这也是我国的基本态度。
+
+在夏季奥运会推迟一年后没有观众的情况下，抵制即将举行的冬季奥运会的国家名单不断增加。
+越来越多的国家决定不派外交代表团（参加北京冬奥会），以及中国网球明星彭帅的性骚扰指控，意味着国际奥委会正面临着对中共国表明立场的压力。
+
+视频链接：[Canada joins US, UK & Australia in diplomatic boycott of Beijing Olympics| 2022 Winter Olympics News – YouTube](https://www.youtube.com/watch?v=_s4D8XvKINE)
+
+**发布：文泓**
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
