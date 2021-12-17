@@ -15,139 +15,139 @@
 
 ---
 
-### [文贵先生关于躺平币的描述（2）](/content/gnews/1/README.md)
+### [文贵先生HCN架构设计描述](/content/gnews/1/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共利用华为秘密入侵外国电信系统的证据被曝光](/content/gnews/2/README.md)
+### [Hcoin to the Moon是来自自然 反主旋律的音乐](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [感染破天际，日增8.8万！疫苗根本不起作用是武器](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [【Michael.Tonny专栏】接种中共病毒疫苗患心脏病的风险比其它疫苗增加103倍（下）](/content/gnews/4/README.md)
+ ` 温哥华扬帆农场`
+
+### [冲绳美军汉森基地日本员工感染Omicron，陆战队员群体感染](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [【Michael.Tonny专栏】接种中共病毒疫苗患心脏病的风险比其它疫苗增加103倍（上）](/content/gnews/6/README.md)
+ ` 温哥华扬帆农场`
+
+### [日本谴责中共的决议的通过，好像只是时间问题](/content/gnews/7/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [文贵先生关于躺平币的描述（2）](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共利用华为秘密入侵外国电信系统的证据被曝光](/content/gnews/9/README.md)
  ` 日本东京方舟农场`
 
-### [文贵先生躺平币描述（1）](/content/gnews/3/README.md)
+### [文贵先生躺平币描述（1）](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [12月17日文贵大直播快讯——是什么造就了中共的奴役](/content/gnews/4/README.md)
+### [12月17日文贵大直播快讯——是什么造就了中共的奴役](/content/gnews/11/README.md)
  ` 澳喜特战旅Gnews`
 
-### [春节行动详细规划](/content/gnews/5/README.md)
+### [春节行动详细规划](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本首相岸田文雄表示个人暂无计划出席北京冬奥会](/content/gnews/6/README.md)
+### [日本首相岸田文雄表示个人暂无计划出席北京冬奥会](/content/gnews/13/README.md)
  ` 日本东京方舟农场`
 
-### [澳大利亚就是中共的一个进贡国 多国也是如此 可随意蹂躏](/content/gnews/7/README.md)
+### [澳大利亚就是中共的一个进贡国 多国也是如此 可随意蹂躏](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共的经济地产灾是对全世界的合法洗劫](/content/gnews/8/README.md)
+### [中共的经济地产灾是对全世界的合法洗劫](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [DC每日热点1217](/content/gnews/9/README.md)
+### [DC每日热点1217](/content/gnews/16/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [取消冬奥会意味着习近平个人信用和中国共产党信用破产](/content/gnews/10/README.md)
+### [取消冬奥会意味着习近平个人信用和中国共产党信用破产](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [维生素D可降低被中共病毒感染的风险从而加速康复](/content/gnews/11/README.md)
+### [维生素D可降低被中共病毒感染的风险从而加速康复](/content/gnews/18/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [MV版Hcoin To the Moon上线第8天位列10国iTunes热门MV榜首！](/content/gnews/12/README.md)
+### [MV版Hcoin To the Moon上线第8天位列10国iTunes热门MV榜首！](/content/gnews/19/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [用外商投资中共房地产就是官官勾结 官商勾结 官金勾结](/content/gnews/13/README.md)
+### [用外商投资中共房地产就是官官勾结 官商勾结 官金勾结](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [加拿大军人向法院提起诉讼 挑战强制疫苗令](/content/gnews/14/README.md)
+### [加拿大军人向法院提起诉讼 挑战强制疫苗令](/content/gnews/21/README.md)
  ` GTV新闻访谈`
 
-### [12月17日文贵大直播快讯——新歌打榜令中共担惊受怕](/content/gnews/15/README.md)
+### [12月17日文贵大直播快讯——新歌打榜令中共担惊受怕](/content/gnews/22/README.md)
  ` 澳喜特战旅Gnews`
 
-### [中共的歌曲无法比拟郭先生的歌](/content/gnews/16/README.md)
+### [中共的歌曲无法比拟郭先生的歌](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [大陆知名游戏主播注射毒疫苗后入院](/content/gnews/17/README.md)
+### [大陆知名游戏主播注射毒疫苗后入院](/content/gnews/24/README.md)
  ` 纽约香草山MOS03`
 
-### [加拿大接种中共病毒疫苗较多的地区 死胎率增加了28倍](/content/gnews/18/README.md)
+### [加拿大接种中共病毒疫苗较多的地区 死胎率增加了28倍](/content/gnews/25/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [【粤语配音】2021年12月15日文贵直播：《西藏独立法》只是刚刚开始](/content/gnews/19/README.md)
+### [【粤语配音】2021年12月15日文贵直播：《西藏独立法》只是刚刚开始](/content/gnews/26/README.md)
  ` MOS香港部`
 
-### [中共严控出境 闭关锁国再度收紧](/content/gnews/20/README.md)
+### [中共严控出境 闭关锁国再度收紧](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [12/17每日播报|社媒消息:蓬佩奥 班农](/content/gnews/21/README.md)
+### [12/17每日播报|社媒消息:蓬佩奥 班农](/content/gnews/28/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [2021年12月8日文贵大直播爆料贵语](/content/gnews/22/README.md)
- ` 【爆料贵语】新西兰伊甸农场`
-
-### [【粤语配音】2021年12月15日文贵直播：喜币和躺平币的区别](/content/gnews/23/README.md)
- ` MOS香港部`
-
-### [中共与诈骗不得不说的事](/content/gnews/24/README.md)
- ` G-NEWS TAIWAN`
-
-### [2021年12月5日文贵大直播爆料贵语](/content/gnews/25/README.md)
- ` 【爆料贵语】新西兰伊甸农场`
-
-### [12/17/2021国际财经快讯：美国通过对中共国维吾尔的进口禁令；英国澳大利亚签署自由贸易协定](/content/gnews/26/README.md)
+### [12/17/2021国际财经快讯：美国通过对中共国维吾尔的进口禁令；英国澳大利亚签署自由贸易协定](/content/gnews/29/README.md)
  ` 秘密翻译组金融团队`
 
-### [美国因维族人权问题对中共再施制裁](/content/gnews/27/README.md)
+### [班农先生当选国家脉动2021年度爱国者](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [班农先生当选国家脉动2021年度爱国者](/content/gnews/28/README.md)
+### [新中国联邦与西藏等地独立后的关系](/content/gnews/31/README.md)
  ` GTV新闻访谈`
 
-### [新中国联邦与西藏等地独立后的关系](/content/gnews/29/README.md)
- ` GTV新闻访谈`
-
-### [大疆公司遭美方抵制，拜登再出重拳？](/content/gnews/30/README.md)
+### [大疆公司遭美方抵制，拜登再出重拳？](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [12/17每日播报｜中共利用国防外交扩大其在拉丁美洲的影响力](/content/gnews/31/README.md)
+### [12/17每日播报｜中共利用国防外交扩大其在拉丁美洲的影响力](/content/gnews/33/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [12/17每日播报｜消费者研究警告：美国养老基金正被投向与中共关联密切的公司](/content/gnews/32/README.md)
+### [12/17每日播报｜消费者研究警告：美国养老基金正被投向与中共关联密切的公司](/content/gnews/34/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [冲绳首次发现奥密克戎毒株 驻冲美军集体感染令人担忧](/content/gnews/33/README.md)
+### [冲绳首次发现奥密克戎毒株 驻冲美军集体感染令人担忧](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【#G时新闻】加拿大军人向法院提起诉讼，挑战疫苗强制令](/content/gnews/34/README.md)
- ` G-时新闻`
-
-### [12/17每日播报｜涉嫌侵犯人权 中共警方再遭论文撤稿](/content/gnews/35/README.md)
+### [12/17每日播报｜涉嫌侵犯人权 中共警方再遭论文撤稿](/content/gnews/36/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [秘翻在线：距离台湾很近的宁德核电厂发生事故](/content/gnews/36/README.md)
+### [秘翻在线：距离台湾很近的宁德核电厂发生事故](/content/gnews/37/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共五十余家科企研究院被美国制裁](/content/gnews/37/README.md)
+### [中共五十余家科企研究院被美国制裁](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [台湾开始限制科技公司出售在中共国的资产](/content/gnews/38/README.md)
+### [台湾开始限制科技公司出售在中共国的资产](/content/gnews/39/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [西藏独立的步步荆棘](/content/gnews/39/README.md)
+### [西藏独立的步步荆棘](/content/gnews/40/README.md)
  ` 骄子`
 
-### [最新发掘的邮件证明蝠奇多次对参议院及所有美国人撒谎](/content/gnews/40/README.md)
+### [最新发掘的邮件证明蝠奇多次对参议院及所有美国人撒谎](/content/gnews/41/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美国多位众议员敦促美国奥委会禁止运动员使用数字人民币](/content/gnews/41/README.md)
+### [美国多位众议员敦促美国奥委会禁止运动员使用数字人民币](/content/gnews/42/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [NFL在地图中把台湾列为中国的一部分 被人痛批](/content/gnews/42/README.md)
+### [NFL在地图中把台湾列为中国的一部分 被人痛批](/content/gnews/43/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [传闻中国印钞总公司印两套真钞，是中共内斗给习挖坑吗?](/content/gnews/43/README.md)
+### [传闻中国印钞总公司印两套真钞，是中共内斗给习挖坑吗?](/content/gnews/44/README.md)
  ` 墨尔本雅典娜农场`
 
-### [前FDA官员专家抨击拜登政府害了联邦卫生机构的声誉](/content/gnews/44/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [新闻秘书珍·普薩基关于《防止维吾尔族强迫劳动法》的声明](/content/gnews/45/README.md)
+### [前FDA官员专家抨击拜登政府害了联邦卫生机构的声誉](/content/gnews/45/README.md)
  ` 秘密翻譯組G-Translators`
 
 ### [完全接种疫苗的母亲产下口鼻出血的婴儿](/content/gnews/46/README.md)
