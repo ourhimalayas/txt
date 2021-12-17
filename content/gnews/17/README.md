@@ -2,36 +2,29 @@
 ---
 
 
-## 中共制毒贩毒 4家企业和1名个人遭制裁
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1763890/)
+## COVID-19 最新情报｜英国每日 COVID 病例创新高 欧盟称可能再持续 2-3 年
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1763916/)
 
-作者：日本方舟农场 – Andy5
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-08-30-at-7.37.59-PM-3.png)
-12月15日，美国总统拜登签署了两项行政命令，授权美国财政部制裁从事、或企图从事涉及国际非法药物扩散、制造活动的15家实体及10名个人。中共有4家实体和1名个人被列入其中。这4家实体分别是：武汉远成共创科技有限公司、上海迅精化学有限公司、河北环浩生物科技有限公司以及河北艾豚商贸有限公司。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/7-26.jpg)
-被制裁的个人–叶全发，是全世界最大的合成代谢类固醇的生产者之一。他不仅通过比特币等虚拟货币进行此类贩毒交易，还领导了一个在大陆和香港之间的贩毒组织，向美国走私芬太尼等合成药物。叶全发正被美国缉毒局通缉。
+**疫情關注組 / 發佈時間｜17/12/2021**
 
-据悉，被制裁的上述中共实体，也或多或少参与了这个贩毒链条。
-
-参考链接：
-
-- [US sanctions Chinese drugmakers amid addiction epidemic](https://www.theguardian.com/us-news/2021/dec/15/china-painkillers-drugs-us-sanctions)
-- [拜登总统签署行政命令加强打击国际贩毒 受制裁者包括中国公民及公司](https://www.voachinese.com/a/biden-executive-orders-on-global-illicit-drugs-20211215/6356846.html)
-- [Statement from DEA Administrator Anne Milgram on Cheun Fat Yip](https://www.dea.gov/press-releases/2021/12/15/statement-dea-administrator-anne-milgram-cheun-fat-yip)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
+英国卫生部门周三报告78,610 例COVID新增确诊病例，相较于周二(一天前)的59610例多出了1.9万例。78,610 例新增确诊数，据Our World in Data统计图表（下图）显示，已突破COVID疫情以来英国的每日新增病例历史纪录。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/coronavirus-data-explorer-1-1.png)英國每日新增確診數。來源：Our World in Data
+英国自新冠疫情以来，防疫政策依赖新冠疫苗，但疫情仍未受到有效的控制。下图显示，第二个感染高峰值为“Delta病毒”，第三高峰(仍持续成长的部分)为“Omicron病毒”。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/coronavirus-data-explorer-3.png)每百万人中每日新增确诊的 COVID-19 病例(7 天滚动平均值)。来源：Our World in Data
+## 住院率、病死率、重症率
+![](https://assets.gnews.org/wp-content/uploads/2021/12/coronavirus-data-explorer-2-1.png)来源：Our World in Data
+左上部分为新增病例统计图表；右上为住院治疗病例；左下为重症治疗统计；右下为新增死亡病例。
 
-总编：文真
-校正/发稿：海阔天空1
+外媒撰文指出，英国的新增确诊人数暴增并突破历史新高，但住院治疗、重治治疗及死亡率并未显著提高。结合英国目前主要病毒威胁为Omicron病毒，可以得知Omicron病毒本身具高传染性、低致死、低重症率。此外，英国政府前段时间宣布将修改完整接种定义，应接种第三剂加强针方属于“完全接种”，足见[新冠疫苗对于防治Omicron病毒（及其他新冠病毒）效力未达原先预期](https://gnews.org/zh-hant/1749697/)。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+欧洲疾病和控制中心预测疫情将会延烧2至3年时间。英国卫生安全局（UK Health Security Agency） 首席执行官珍妮·哈里斯 (Jenny Harries) 表示，预计每日英国Omicron 感染的人数近 20 万，Omicron将成为英国的主要威胁。另有[报导](https://gnews.org/zh-hant/1749697/)指出，Omicron病毒虽具备高传染性，但实际威胁（致死、重症率）并未如官方所警告。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-5.png)
+来源｜[ZeroHedge](https://www.zerohedge.com/markets/uk-suffers-record-jump-daily-covid-cases-eu-warns-pandemic-could-last-2-3-more-years)\Our World in Data\[Gnews](https://gnews.org/zh-hant/1749697/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
