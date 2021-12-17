@@ -2,44 +2,62 @@
 ---
 
 
-## 国会参众两院两党一致支持西藏独立，美国家灭共加速!
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1763257/)
+## 参议员瑞克·斯科特:中共 正在向我国走私非法芬太尼，杀死了成千上万的美国人
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1763458/)
 
-撰稿：奔跑吧黄小丫
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Pictur-e1.png)图片来源：Congress.gov 
-郭文贵先生在12.15大直播中提到西藏独立的重要性问题，并指出美国正对“港台疆藏”会有意想不到的更多法案出台。“今天的这个西藏独立法案（应为公函），只是刚刚开始”。
-
-缘起同一天，美国之音VOA等一些媒体纷纷报道了美国60多名国会两党参众议员致函国务院，督促拜登政府依据两党已基本达成共识的2002年“西藏政策法案”和2020年“西藏政策及支持法案”尽快推动美国西藏政策。
-
-我们先来简单了解一下2002年的“西藏政策法案”。该法案是建立在符合当时中美关系所处的政治大环境，正值中共国加入世界贸易组织WTO的同一年。法案中，美国承认西藏自治，为协助解决中共与达赖喇嘛及其代表的西藏之间所面临的问题，鼓励双方进行不设任何先决条件的实质性对话。那个时期，美国高级政府官员为表达对西藏宗教、文化及人权自由的尊重多次会见达赖喇嘛，达赖喇嘛明确否认有谋求西藏主权或独立的意图，称自己的目标只是为藏人寻求真正的自治。
-
-而2020年的“西藏政策及支持法案”由参议员卢比奥先生等人在2019年9月发起，次年1月得到了参众两院的一致通过。2020年法案**提议美国“在西藏拉萨设立领事馆”，**原主张美国鼓励中共与西藏展开“不设先决条件”的对话**，已变更为中共必须服从“无先决条件，与经民主选举产生的藏族领导人直接对话”。**
-
-**同时还增加提议根据《全球马格尼茨基人权问责法》追究中共官员侵犯藏传佛教徒的宗教自由和人权的责任，针对共谋、直接或间接参与侵权的中共官员实施制裁。**这一跨越了川普和拜登两届政府的“2020年西藏政策及支持法案”，终于打破沉寂浮出水面。
-
-编号为HR6256的《防止强迫维吾尔人劳动法》也于美东时间12月14日晚在众议员通过。法案要求国土安全部拟定一项清单，列出与中共政府合作压迫新疆维吾尔穆斯林少数民族的实体，并禁止所有透过强迫劳动生产的商品流入美国市场。
-
-不容忽视的是，众议院在今年6月30日还推出了编号为H.R.4281的西藏独立法案。法案中追溯到西藏的法定历史，“1951年，中共胁迫西藏代表签署《十七点协议》。该协议规定‘西藏人民有权在中共政府的统一领导下行使民族区域自治权’，此外‘中共不会改变西藏现有的政治制度’。”而“西藏的建立比1951年的《十七点协议》早了几百年。”“1992年和1993年的《对外关系授权法》宣布，美国国会将西藏视为”被占领国”，根据国际法，中共对西藏的控制是非法的”。西藏独立法案提出的政策大致如下：
-
-- 承认在1951年前，西藏是一个独立的国家;
-- 申明中共对西藏地区的领土主张是无效的;
-- 承认西藏民选政府；
-- 对于支持中共非法占领西藏的人冻结其在美国及美国控制范围内的的财产，并实施移民限制令；
+参议员瑞克·斯科特： [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 正在向我国走私非法芬太尼，杀死了成千上万的美国人。是时候让乔·拜登停止对习总书记的软弱和绥靖了，让 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 承担责任。
 
 
-历经70年，那块靠近喜马拉雅的神圣土地，那些苦苦追寻信仰的人民，终于迎来了希望的曙光。美国选择了正视中共对西藏的宗教、语言和文化和人权自由等方面的严重侵犯以及对青藏高原环境和水资源的严重破坏，不再纵容中共对中国与世界人民的肆意践踏和蹂躏。西藏独立法案的提出与民主共和两党灭共国家意志的形成，是中共政权遭美国国家抛弃并行将轰塌的风向标，更多针对新疆、香港及中共大陆等地的法案也必将接踵而至。
 
-参考链接：
+> Communist China is smuggling illicit fentanyl into our country, killing thousands of Americans. It’s time Joe Biden stops his weak appeasement of General Secretary Xi & holds Communist China accountable. [https://t.co/Uz1nWkyZaQ](https://t.co/Uz1nWkyZaQ)
+> — Rick Scott (@SenRickScott) [December 16, 2021](https://twitter.com/SenRickScott/status/1471621608708222977?ref_src=twsrc%5Etfw)
 
-[2002年西藏政策法](https://2001--2009-state-gov.translate.goog/p/eap/rls/rpt/20699.htm?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=sc)
 
-[H.R.4331 – 2019年西藏政策和支持法案](https://www.congress.gov/bill/116th-congress/house-bill/4331/text?r=19&amp;s=5)
 
-[H.R.4281 – 西藏独立法案](https://www.congress.gov/bill/117th-congress/house-bill/4281/text?q=%7B%22search%22%3A%5B%22Tibetan+Policy+and+Support+Act+2020%22%2C%22Tibetan%22%2C%22Policy%22%2C%22and%22%2C%22Support%22%2C%22Act%22%2C%222020%22%5D%7D&amp;r=7&amp;s=2)
+参议员马可·卢比奥： 今天我们通过了《维吾尔强迫劳动预防法》[#UyghurForcedLaborPreventionAct](https://twitter.com/hashtag/UyghurForcedLaborPreventionAct?src=hashtag_click)，这是朝着让 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 对种族灭绝负责的方向迈出的最大一步。
 
-[美国60多名国会两党参众议员致函国务院支持西藏自治](https://www.voachinese.com/a/lawmakers-urge-to-make-tibet-priority-20211214/6354909.html)
 
-校对发布：Shifter
+
+> Today we passed the [#UyghurForcedLaborPreventionAct](https://twitter.com/hashtag/UyghurForcedLaborPreventionAct?src=hash&amp;ref_src=twsrc%5Etfw), the biggest step yet towards holding [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) accountable for genocide [https://t.co/GT4WcrGIXR](https://t.co/GT4WcrGIXR)
+> — Marco Rubio (@marcorubio) [December 17, 2021](https://twitter.com/marcorubio/status/1471637299872120836?ref_src=twsrc%5Etfw)
+
+
+
+众议员保罗·戈萨尔： 我们的采矿需求不是凭空发生的，我们需要矿物。而更加电气化的未来将需要越来越多的矿物。[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 和刚果的稀土开采正在对人类和环境造成重大破坏。是时候在美国释放采矿业了 [@NatResources](https://twitter.com/NatResources) （自然资源委员会共和党）
+
+
+
+> Our mining needs aren’t happening in a vacuum, we need minerals, & a more electrified future will require more & more minerals. Chinese and Congolese rare earth mining is causing significant human & environmental destruction. It’s time to unleash mining in the U.S. [@NatResources](https://twitter.com/NatResources?ref_src=twsrc%5Etfw)
+> — Rep. Paul Gosar, DDS (@RepGosar) [December 16, 2021](https://twitter.com/RepGosar/status/1471612149923401731?ref_src=twsrc%5Etfw)
+
+
+
+众议员肯·巴克： 很自豪能与我的众议院共和党同仁们一起支持这封信，要求就苹果公司在 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的审查制度作出答复。 【转每日来电网：独家：众议院共和党人要求就苹果公司在中共国的审查政策给出答案】
+
+
+
+> Was proud to support this letter with my fellow House Republicans, demanding answers regarding Apple’s censorship in China. [https://t.co/Ltr0NL6aFy](https://t.co/Ltr0NL6aFy)
+> — Rep. Ken Buck (@RepKenBuck) [December 16, 2021](https://twitter.com/RepKenBuck/status/1471581420816633856?ref_src=twsrc%5Etfw)
+
+
+
+比尔·戈茨转拉希姆·卡萨姆推文： 2021年度国家脉动爱国者奖：斯蒂夫·K·班农。 【附国家脉动同名报道：国家脉动今天宣布其第二届年度爱国者奖，将这一荣誉授予前白宫首席战略师和战斗室主播：斯蒂夫·K·班农
+
+
+
+> National Pulse Patriot of The Year 2021: Stephen K. Bannon. [https://t.co/3MerdT0QFa](https://t.co/3MerdT0QFa)
+> — Raheem J. Kassam (@RaheemKassam) [December 16, 2021](https://twitter.com/RaheemKassam/status/1471527965100056581?ref_src=twsrc%5Etfw)
+
+
+
+美国国会及行政当局中国委员会： 委员会主席们要求NBC环球集团[@NBCUniversal](https://twitter.com/NBCUniversal) 在北京奥运会 [#Beijing2022](https://twitter.com/hashtag/Beijing2022?src=hashtag_click) 报道期间，客观报道人权和维吾尔 [#Uyghur](https://twitter.com/hashtag/Uyghur?src=hashtag_click) 种族灭绝，坚持媒体自由，并避免中共国宣传“幸福的少数民族”的形象。【附官网发布的信函链接，以及信函截图】
+
+
+
+> CECC Chairs ask [@NBCUniversal](https://twitter.com/NBCUniversal?ref_src=twsrc%5Etfw) to objectively cover human rights and [#Uyghur](https://twitter.com/hashtag/Uyghur?src=hash&amp;ref_src=twsrc%5Etfw) genocide during [#Beijing2022](https://twitter.com/hashtag/Beijing2022?src=hash&amp;ref_src=twsrc%5Etfw) Olympics coverage, affirm media freedom, and avoid Chinese propaganda images of "happy minorities." Press release at [https://t.co/910lM10mLE](https://t.co/910lM10mLE) [pic.twitter.com/5mzQhYISig](https://t.co/5mzQhYISig)
+> — China Commission (@CECCgov) [December 16, 2021](https://twitter.com/CECCgov/status/1471573059471613955?ref_src=twsrc%5Etfw)
+
+
 
  
 

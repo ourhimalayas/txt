@@ -2,143 +2,44 @@
 ---
 
 
-## 泽连科医生一周盖特汇总（2021年12月9日至16日）
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1763088/)
+## 国会参众两院两党一致支持西藏独立，美国家灭共加速!
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1763257/)
 
-纽约香草山翻译部  defiance
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%96%B0.png)
-泽连科医生是七哥背书的良心医生，是七哥口中国际社会公认的反对新冠毒疫苗的二号人物，特此将他最近一周总结自己感想的盖特（泽连科医生会在某些贴子上署名，此处去掉了）进行翻译并以中英对照形式分享给战友。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture2-13.jpg)
-医生2021年12月16日盖特：
+撰稿：奔跑吧黄小丫
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Pictur-e1.png)图片来源：Congress.gov 
+郭文贵先生在12.15大直播中提到西藏独立的重要性问题，并指出美国正对“港台疆藏”会有意想不到的更多法案出台。“今天的这个西藏独立法案（应为公函），只是刚刚开始”。
 
-Brazil’s “CNN”, El-Globo being sued for Slander.
+缘起同一天，美国之音VOA等一些媒体纷纷报道了美国60多名国会两党参众议员致函国务院，督促拜登政府依据两党已基本达成共识的2002年“西藏政策法案”和2020年“西藏政策及支持法案”尽快推动美国西藏政策。
 
-In a recent interview, El-Globo misrepresented and lied about Dr. Zelenko’s successful and clinically proven treatment of Covid-19.  In addition, Arthur and Abraham Weintraub were slandered for supporting Dr. Zelenko’s protocol that has reduced hospitalization and death by 84%.
+我们先来简单了解一下2002年的“西藏政策法案”。该法案是建立在符合当时中美关系所处的政治大环境，正值中共国加入世界贸易组织WTO的同一年。法案中，美国承认西藏自治，为协助解决中共与达赖喇嘛及其代表的西藏之间所面临的问题，鼓励双方进行不设任何先决条件的实质性对话。那个时期，美国高级政府官员为表达对西藏宗教、文化及人权自由的尊重多次会见达赖喇嘛，达赖喇嘛明确否认有谋求西藏主权或独立的意图，称自己的目标只是为藏人寻求真正的自治。
 
-巴西的 “CNN”，巴西最大电视台“环球台”被以诽谤罪起诉。
+而2020年的“西藏政策及支持法案”由参议员卢比奥先生等人在2019年9月发起，次年1月得到了参众两院的一致通过。2020年法案**提议美国“在西藏拉萨设立领事馆”，**原主张美国鼓励中共与西藏展开“不设先决条件”的对话**，已变更为中共必须服从“无先决条件，与经民主选举产生的藏族领导人直接对话”。**
 
-在最近的一次采访中，环球台对泽连科医生经临床验证成功的CCP病毒治疗方法进行了歪曲欺骗。 此外，亚瑟和亚伯拉罕·温特劳布因支持泽连科方案而遭诋毁。该方案使住院和死亡人数减少了84%。
+**同时还增加提议根据《全球马格尼茨基人权问责法》追究中共官员侵犯藏传佛教徒的宗教自由和人权的责任，针对共谋、直接或间接参与侵权的中共官员实施制裁。**这一跨越了川普和拜登两届政府的“2020年西藏政策及支持法案”，终于打破沉寂浮出水面。
 
-医生2021年12月15日盖特：
+编号为HR6256的《防止强迫维吾尔人劳动法》也于美东时间12月14日晚在众议员通过。法案要求国土安全部拟定一项清单，列出与中共政府合作压迫新疆维吾尔穆斯林少数民族的实体，并禁止所有透过强迫劳动生产的商品流入美国市场。
 
-CDC = Cruel Death Conspirators
+不容忽视的是，众议院在今年6月30日还推出了编号为H.R.4281的西藏独立法案。法案中追溯到西藏的法定历史，“1951年，中共胁迫西藏代表签署《十七点协议》。该协议规定‘西藏人民有权在中共政府的统一领导下行使民族区域自治权’，此外‘中共不会改变西藏现有的政治制度’。”而“西藏的建立比1951年的《十七点协议》早了几百年。”“1992年和1993年的《对外关系授权法》宣布，美国国会将西藏视为”被占领国”，根据国际法，中共对西藏的控制是非法的”。西藏独立法案提出的政策大致如下：
 
-FDA = Fear Death Advocacy
+- 承认在1951年前，西藏是一个独立的国家;
+- 申明中共对西藏地区的领土主张是无效的;
+- 承认西藏民选政府；
+- 对于支持中共非法占领西藏的人冻结其在美国及美国控制范围内的的财产，并实施移民限制令；
 
-NIH = Nihilism Idolatry Hypocrisy
 
-WHO = World Homicide Organization
+历经70年，那块靠近喜马拉雅的神圣土地，那些苦苦追寻信仰的人民，终于迎来了希望的曙光。美国选择了正视中共对西藏的宗教、语言和文化和人权自由等方面的严重侵犯以及对青藏高原环境和水资源的严重破坏，不再纵容中共对中国与世界人民的肆意践踏和蹂躏。西藏独立法案的提出与民主共和两党灭共国家意志的形成，是中共政权遭美国国家抛弃并行将轰塌的风向标，更多针对新疆、香港及中共大陆等地的法案也必将接踵而至。
 
-FAUCI = Fraudulent Arrogant Ugly Cruel Imbecile
+参考链接：
 
-GATES = Grotesque Arrogant Treacherous Evil Sociopath
+[2002年西藏政策法](https://2001--2009-state-gov.translate.goog/p/eap/rls/rpt/20699.htm?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=sc)
 
-CDC = 残杀阴谋家
+[H.R.4331 – 2019年西藏政策和支持法案](https://www.congress.gov/bill/116th-congress/house-bill/4331/text?r=19&amp;s=5)
 
-FDA = 恐惧和死亡的倡导者
+[H.R.4281 – 西藏独立法案](https://www.congress.gov/bill/117th-congress/house-bill/4281/text?q=%7B%22search%22%3A%5B%22Tibetan+Policy+and+Support+Act+2020%22%2C%22Tibetan%22%2C%22Policy%22%2C%22and%22%2C%22Support%22%2C%22Act%22%2C%222020%22%5D%7D&amp;r=7&amp;s=2)
 
-NIH = 虚无主义偶像崇拜的伪善人
+[美国60多名国会两党参众议员致函国务院支持西藏自治](https://www.voachinese.com/a/lawmakers-urge-to-make-tibet-priority-20211214/6354909.html)
 
-WHO = 世界杀人组织
-
-FAUCI（福奇） = 丑陋傲慢奸诈残忍的低能儿
-
-GATES（盖茨） = 傲慢奸诈邪恶怪咖社会主义者
-
-These reptiles spread lies of death.  Ignore Biden, Gates, Fauci, Walensky’s advice.  They are whores (my apology to whores) that are leading you to a horrific death.
-
-Boycott, Divest, and Sanction these merchants of death.
-
-这些爬行动物传播让人死亡的谎言。不要理会拜登、盖茨、福奇、瓦伦斯基的建议。 他们是妓女（我向妓女道歉）。他们正在把你们引向可怕的死亡。
-
-抵制、制裁这些让你死的商人，并从他们那里撤资。
-
-医生2021年12月14日盖特：
-
-Global predator parasites steal from and murder the middle class.
-
-Boycott, Divest, Sanction the parasites.
-
-Buy from and support small businesses.
-
-Transfer wealth and power back to God-consciousness
-
-B.D.S. the depraved parasitic and child sacrificing globalist vermin.
-
-全球弱肉抢食的寄生虫们偷窃并谋杀中产阶级。
-
-抵制、制裁这些寄生虫，并从他们那里撤回投资。
-
-从小企业购物以支持小企业。
-
-将财富和权力转移回神的觉悟。
-
-抵制、制裁堕落的寄生虫和施行儿童献祭的全球主义害人虫，并从他们那里撤回投资。
-
-医生2021年12月13日盖特：
-
-Mainstream and social media are self-serving propaganda platforms that are directly responsible for millions of deaths worldwide.
-
-We need to boycott, divest, and sanction these platforms of child abuse, global fear, and genocide.
-
-B.D.S. the media
-
-主流媒体和社交媒体是自利的宣传平台，对全世界数百万人的死亡负有直接责任。
-
-我们需要抵制、制裁这些虐待儿童、全球恐惧和种族灭绝的平台，并从这些平台撤资。
-
-抵制、制裁无良媒体，并从无良媒体撤资
-
-医生2021年12月11日盖特：
-
-Twitter = Treachery With Information Tainting Truth Education Reason
-
-推特 等于 用假信息玷污真相教育和理性思维的失信网站
-
-医生2021年12月10日盖特：
-
-GOOGLE = Greedy Organization Of Grotesque Lying Evil
-
-谷歌 等于 一个由邪恶的骗子和变态运营的贪婪组织
-
-The FDA, CDC, and NIH are whorehouses (my apologies to whorehouses) who are the enemies of the people.  Their leadership is guilty of genocide and crimes against humanity.
-
-They should be legally hunted and made to pay for prostituting themselves (again, my apologies to prostitutes) and betraying the American people.
-
-FDA、CDC和NIH是妓院（抱歉我侮辱了妓院），他们是人民公敌。 他们的高管是种族灭绝和反人类罪。
-
-他们应该被依法逮捕，让他们为自己的卖淫行为（抱歉我侮辱了妓女）和背叛美国人民付出代价。
-
-医生2021年12月9日盖特：
-
-Collective Divine consciousness is rising around the globe.
-
-Humanities rage and fury is at a boiling point with the child sacrificing and depraved pagan globalist vermin.
-
-Divine and earthly justice are coming.
-
-集体的神性意识正在全球范围内崛起。
-
-人性深处积攒的暴戾的愤怒，在儿童献祭和堕落异教全球主义者害虫出现后达到了临界点。
-
-神圣和世俗的正义正来临。
-
-参考来源：[泽连科医生一周盖特汇总（2021年12月9日至16日）](https://gettr.com/user/drzevzelenko)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88-1.png)
-
-编辑/校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
-
-
+校对发布：Shifter
 
  
 

@@ -2,62 +2,30 @@
 ---
 
 
-## 参议员瑞克·斯科特:中共 正在向我国走私非法芬太尼，杀死了成千上万的美国人
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1763458/)
+## 多家公司实体被认定中共军工综合体，维吾尔劳动法通过
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1763537/)
 
-参议员瑞克·斯科特： [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 正在向我国走私非法芬太尼，杀死了成千上万的美国人。是时候让乔·拜登停止对习总书记的软弱和绥靖了，让 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 承担责任。
+![资料照片: 新疆达坂城一处被官方称为职业技能教育培训中心的围墙上的安全监控摄像头。(2018年9月4日)](https://gdb.voanews.com/DADC3917-68F5-4F9C-A806-7902563BA6D6_w1023_r1_s.jpg)*资料照片: 新疆达坂城一处被官方称为职业技能教育培训中心的围墙上的安全监控摄像头。(2018年9月4日)*
+据美国之音12月17日报道，依据美国总统的行政命令，美国财政部16日宣布八家科技公司为中共军工综合体，任何美国法人不得出售和购买这些公司公开上市的证券及其衍生证券。同天，美国商务部将中共国军事科学院军事医学研究院及其11家研究所等25个实体列入限制出口名单。未经政府出口许可，不得向这些被纳入名单的实体输出美国技术。
 
+美国国会参众两院通过《防止强迫维吾尔劳动法》，并将法案送交白宫签署。法案要求美国国土安全部列出与中共国政府合作压迫新疆维吾尔穆斯林少数民族的实体。除非得到美国当局无强迫劳动的认证，否则凡在新疆制造的产品均被认定使用了强迫劳动，禁止流入美国市场。
 
+美国加大了对中共国军工综合体企业的制裁，控制美国资金流入这些公司。对新疆维吾尔地区的强迫劳动也启动法案。中共侵犯人权的犯罪行为一天不停止，国际社会的制裁就不会停止。
 
-> Communist China is smuggling illicit fentanyl into our country, killing thousands of Americans. It’s time Joe Biden stops his weak appeasement of General Secretary Xi & holds Communist China accountable. [https://t.co/Uz1nWkyZaQ](https://t.co/Uz1nWkyZaQ)
-> — Rick Scott (@SenRickScott) [December 16, 2021](https://twitter.com/SenRickScott/status/1471621608708222977?ref_src=twsrc%5Etfw)
+新闻参考链接：[https://www.voachinese.com/a/us-treasury-identifies-eight-chinese-tech-companies-as-part-of-chinese-military-industrial-complex-20211216/6357894.html](https://www.voachinese.com/a/us-treasury-identifies-eight-chinese-tech-companies-as-part-of-chinese-military-industrial-complex-20211216/6357894.html)
 
+编辑：胖丁
 
+* * *
 
-参议员马可·卢比奥： 今天我们通过了《维吾尔强迫劳动预防法》[#UyghurForcedLaborPreventionAct](https://twitter.com/hashtag/UyghurForcedLaborPreventionAct?src=hashtag_click)，这是朝着让 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 对种族灭绝负责的方向迈出的最大一步。
-
-
-
-> Today we passed the [#UyghurForcedLaborPreventionAct](https://twitter.com/hashtag/UyghurForcedLaborPreventionAct?src=hash&amp;ref_src=twsrc%5Etfw), the biggest step yet towards holding [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) accountable for genocide [https://t.co/GT4WcrGIXR](https://t.co/GT4WcrGIXR)
-> — Marco Rubio (@marcorubio) [December 17, 2021](https://twitter.com/marcorubio/status/1471637299872120836?ref_src=twsrc%5Etfw)
-
-
-
-众议员保罗·戈萨尔： 我们的采矿需求不是凭空发生的，我们需要矿物。而更加电气化的未来将需要越来越多的矿物。[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 和刚果的稀土开采正在对人类和环境造成重大破坏。是时候在美国释放采矿业了 [@NatResources](https://twitter.com/NatResources) （自然资源委员会共和党）
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-> Our mining needs aren’t happening in a vacuum, we need minerals, & a more electrified future will require more & more minerals. Chinese and Congolese rare earth mining is causing significant human & environmental destruction. It’s time to unleash mining in the U.S. [@NatResources](https://twitter.com/NatResources?ref_src=twsrc%5Etfw)
-> — Rep. Paul Gosar, DDS (@RepGosar) [December 16, 2021](https://twitter.com/RepGosar/status/1471612149923401731?ref_src=twsrc%5Etfw)
-
-
-
-众议员肯·巴克： 很自豪能与我的众议院共和党同仁们一起支持这封信，要求就苹果公司在 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的审查制度作出答复。 【转每日来电网：独家：众议院共和党人要求就苹果公司在中共国的审查政策给出答案】
-
-
-
-> Was proud to support this letter with my fellow House Republicans, demanding answers regarding Apple’s censorship in China. [https://t.co/Ltr0NL6aFy](https://t.co/Ltr0NL6aFy)
-> — Rep. Ken Buck (@RepKenBuck) [December 16, 2021](https://twitter.com/RepKenBuck/status/1471581420816633856?ref_src=twsrc%5Etfw)
-
-
-
-比尔·戈茨转拉希姆·卡萨姆推文： 2021年度国家脉动爱国者奖：斯蒂夫·K·班农。 【附国家脉动同名报道：国家脉动今天宣布其第二届年度爱国者奖，将这一荣誉授予前白宫首席战略师和战斗室主播：斯蒂夫·K·班农
-
-
-
-> National Pulse Patriot of The Year 2021: Stephen K. Bannon. [https://t.co/3MerdT0QFa](https://t.co/3MerdT0QFa)
-> — Raheem J. Kassam (@RaheemKassam) [December 16, 2021](https://twitter.com/RaheemKassam/status/1471527965100056581?ref_src=twsrc%5Etfw)
-
-
-
-美国国会及行政当局中国委员会： 委员会主席们要求NBC环球集团[@NBCUniversal](https://twitter.com/NBCUniversal) 在北京奥运会 [#Beijing2022](https://twitter.com/hashtag/Beijing2022?src=hashtag_click) 报道期间，客观报道人权和维吾尔 [#Uyghur](https://twitter.com/hashtag/Uyghur?src=hashtag_click) 种族灭绝，坚持媒体自由，并避免中共国宣传“幸福的少数民族”的形象。【附官网发布的信函链接，以及信函截图】
-
-
-
-> CECC Chairs ask [@NBCUniversal](https://twitter.com/NBCUniversal?ref_src=twsrc%5Etfw) to objectively cover human rights and [#Uyghur](https://twitter.com/hashtag/Uyghur?src=hash&amp;ref_src=twsrc%5Etfw) genocide during [#Beijing2022](https://twitter.com/hashtag/Beijing2022?src=hash&amp;ref_src=twsrc%5Etfw) Olympics coverage, affirm media freedom, and avoid Chinese propaganda images of "happy minorities." Press release at [https://t.co/910lM10mLE](https://t.co/910lM10mLE) [pic.twitter.com/5mzQhYISig](https://t.co/5mzQhYISig)
-> — China Commission (@CECCgov) [December 16, 2021](https://twitter.com/CECCgov/status/1471573059471613955?ref_src=twsrc%5Etfw)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

@@ -2,31 +2,106 @@
 ---
 
 
-## 多家公司实体被认定中共军工综合体，维吾尔劳动法通过
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1763537/)
+## 【樱花深度报道】英国议员透露，COVID-19是“基因工程”，“很有可能”从武汉实验室泄露
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1763585/)
 
-![资料照片: 新疆达坂城一处被官方称为职业技能教育培训中心的围墙上的安全监控摄像头。(2018年9月4日)](https://gdb.voanews.com/DADC3917-68F5-4F9C-A806-7902563BA6D6_w1023_r1_s.jpg)*资料照片: 新疆达坂城一处被官方称为职业技能教育培训中心的围墙上的安全监控摄像头。(2018年9月4日)*
-据美国之音12月17日报道，依据美国总统的行政命令，美国财政部16日宣布八家科技公司为中共军工综合体，任何美国法人不得出售和购买这些公司公开上市的证券及其衍生证券。同天，美国商务部将中共国军事科学院军事医学研究院及其11家研究所等25个实体列入限制出口名单。未经政府出口许可，不得向这些被纳入名单的实体输出美国技术。
-
-美国国会参众两院通过《防止强迫维吾尔劳动法》，并将法案送交白宫签署。法案要求美国国土安全部列出与中共国政府合作压迫新疆维吾尔穆斯林少数民族的实体。除非得到美国当局无强迫劳动的认证，否则凡在新疆制造的产品均被认定使用了强迫劳动，禁止流入美国市场。
-
-美国加大了对中共国军工综合体企业的制裁，控制美国资金流入这些公司。对新疆维吾尔地区的强迫劳动也启动法案。中共侵犯人权的犯罪行为一天不停止，国际社会的制裁就不会停止。
-
-新闻参考链接：[https://www.voachinese.com/a/us-treasury-identifies-eight-chinese-tech-companies-as-part-of-chinese-military-industrial-complex-20211216/6357894.html](https://www.voachinese.com/a/us-treasury-identifies-eight-chinese-tech-companies-as-part-of-chinese-military-industrial-complex-20211216/6357894.html)
-
-编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+编译：东京樱花团/Hopkins
 
 
-编辑：【英国伦敦喜庄园编辑部】
+```
+【摘要】英国议会议员被告知，COVID-19 的“最可能来源”是武汉实验室的泄漏，并且该病毒实际上可能是经过基因改造的。这一消息是在最新一期科学技术特别委员会的简报会上发布的。
+```
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-199.png)
 
+```
+英国议会议员被告知，COVID-19 的“最可能来源”是武汉实验室的泄漏，并且该病毒实际上可能是经过基因改造的。这一消息是在最新一期科学技术特别委员会的简报会上发布的。
+```
+
+
+
+```
+麻省理工学院和哈佛大学的基因治疗和细胞工程专家 Alina Chan 博士说：“我们从许多顶级病毒学家那里听说，基因工程起源说是合理的，其中包括对第一个非典病毒进行基因修改的病毒学家。”
+```
+
+
+
+```
+Chan 博士补充说：“我们知道这种病毒有一个独特的特征，称为弗林蛋白酶裂解位点，如果没有这个特征，就不可能导致这种大流行。”
+```
+
+
+
+```
+她提到了武汉病毒学研究所与美国非营利生态健康联盟（EcoHealth）之间的研究合作，该联盟从安东尼·福奇 (Anthony Fauci) 的美国国立卫生研究院 (National Institutes of Health) 机构获得了数百万美元的资助。
+```
+
+
+
+```
+“一份提案被泄露，表明 EcoHealth 和武汉病毒研究所正在开发一条用于插入新型弗林蛋白酶裂解位点的管道。所以，你会发现这些科学家在 2018 年初说‘我要给马放角’，而在 2019 年底，武汉市出现了独角兽，”陈博士概述道。
+```
+
+
+
+```
+Chan 博士的合著者雷德利子爵（Viscount Ridley）在会议期间强调，揭示 COVID-19 的真正起源对于“阻止这些正在旁观这一剧情并认为他们可以逃脱引发大流行责任的坏演员”至关重要。
+```
+
+
+
+```
+“我们现在知道，在生物安全 2 级（类似于牙医办公室）进行的实验导致病毒的传染性增加了 10,000 倍，其致死率增加了三到四倍。重要的是停止进行这些有风险的实验，”他补充道。
+```
+
+
+
+```
+官员们还听取了有关 COVID-19 起源的最强烈且广为流传的虚假信息之一：柳叶刀医学杂志上的 2020 年声明。这篇文章过早地得出结论，该病毒是自然发展的，并被科学家和主流媒体利用来压制关于 COVID-19 从实验室泄漏的可能性的讨论。
+```
+
+
+
+```
+同样有争议的是，这封由 EcoHealth 的 Daszak 带头的声明没有提到研究人员与武汉实验室和中国共产党的任何利益关系。
+```
+
+
+
+```
+议员亚伦贝尔（Aaron Bell）在最近的一份备忘录中猛烈抨击柳叶刀后续纠正这个错误声明“太少太晚”。
+```
+
+
+
+```
+作者：娜塔莉·温特斯
+```
+
+
+作者简介：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2-50.png)
+
+
+
+```
+娜塔莉·温特斯
+```
+
+
+
+```
+Natalie Winters 是 National Pulse 的调查记者，也是 The National Pulse 播客的撰稿人。
+```
+
+
+信息来源：
+
+[COVID ‘Most Likely’ Escaped Wuhan Lab, Possibly ‘Genetically Engineered, British MPs Told.](https://thenationalpulse.com/news/mps-briefed-on-covid-lab-leak-origins/)
+
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
