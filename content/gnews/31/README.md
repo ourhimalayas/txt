@@ -2,34 +2,27 @@
 ---
 
 
-## 反对中共海洋霸权 日本增设“台湾海洋规划官”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1764217/)
+## 卢比奥策略推进国会通过《防止维吾尔族强迫劳动法》
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1764241/)
 
-撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-860.png)[图片来源](https://www.chunichi.co.jp/article/385389)
-日本外交部已决定设立一个新的科长级职位，负责台湾事务。
+#### 撰稿：彩虹
 
-加之日前刚设立一个负责人权事务的新职位，日本对中共国的立场也变得更加明确。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-26.jpg)图片来源：雅虎
+周四，参议院一致同意，通过了一项旨在打击中共国对新疆维吾尔族穆斯林人口进行种族灭绝的法案，同时确认了拜登总统提名的驻北京大使和另外两名被提名人。12月16日，《国会山报》对此进行了报道。
 
-在17日的自民党外交委员会会议上，外交部宣布，计划最早在明年4月设立一个新的科长级职位，负责包括台湾和尖阁群岛在内的海洋问题。
+根据这项名为《防止维吾尔族强迫劳动法》（Uyghur Forced Labor Prevention Act）的法案，将禁止从中国新疆地区进口商品，除非个人或公司能够证明商品或材料是在没有奴役的情况下制造的。
 
-这个“台湾海洋规划官（暂定名）”将划归属于“中国•蒙古”第一科室。
+该法案的共同提案人包括参议员马尔科·卢比奥（Marco Rubio）和杰夫·默克利（Jeff Merkley）。
 
-由于与台湾的关系是“非政府层面工作关系”，故此次以台湾为名的职位非同寻常。
+根据报道，在提出该法案的同时，参议院以75票对18票确认了拜登提名的驻中共国大使人选尼古拉斯·伯恩斯（Nicholas Burns）。此外，以76票对13票确认了经济和商业事务助理部长（assistant secretary for Economic and Business Affairs）提名人拉明·托鲁伊（Ramin Toloui），以85票对5票确认了国际宗教自由无任所大使提名人拉沙德·侯赛因（Rashad Hussain）。
 
-此外，还计划设立新的“人权规划官”，负责处理新疆维吾尔自治区和香港的人权问题。
+报道披露，这些提名人的确认值得注意，因为部分共和党议员对拜登的几十个国务院和国防部提名人选实行了“搁置”策略，而卢比奥之所以同意解除他对伯恩斯的“搁置”，以及确认托鲁伊和侯赛因，目的是换取在与参议员克里斯·墨菲（Chris Murphy）的协议中推进通过维吾尔族法案。
 
-另一方面，还决定在南太平洋地区的基里巴斯设立新的大使馆。
+**新闻报道**
 
-基里巴斯于 2019 年与台湾决裂，并正在加强与中共国的关系。
+[Senate passes Uyghur bill, confirms China ambassador](https://thehill.com/homenews/senate/586239-senate-passes-uyghur-bill-confirms-china-ambassador)
 
-作为太平洋岛国的战略基地，日本此举有益于遏制正在加强海洋扩张的中共国。
-
-信息源：[外務省が台湾担当のポストを新設へ　対中姿勢鮮明に](https://news.yahoo.co.jp/articles/5ae893e58d7c273b1e71b9cb2de97232fc374049)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
