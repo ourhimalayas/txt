@@ -2,34 +2,30 @@
 ---
 
 
-## 我的Covid-19疫苗的批次号有多糟？
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1764276/)
+## 完全接种疫苗的母亲产下口鼻出血的婴儿
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1764294/)
 
-**编译：wenwu**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip11-2.png)图片来源：dailyexpose.uk
-对美国疫苗不良事件报告系统 (VAERS) 中发现的数据进行的一项调查显示，针对特定批号的中共病毒（Covid-19）疫苗多次报告了极高数量的不良反应和死亡，这意味着实验注射疫苗的致命批次已经确定。
+**编译：西班牙巴塞罗那喜悦农场-wenwu**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip12-3.png)图片来源：dailyexpose.uk
+根据[疫苗不良事件报告系统 (VAERS) 的](https://medalerts.org/vaersdb/findfield.php?IDNUMBER=1879991&amp;WAYBACKHISTORY=ON)报告，一名完全接种疫苗的母亲生下了一名口鼻出血的婴儿。可悲的是，婴儿出生仅一天后，婴儿就去世了。死后，婴儿的父亲表示，他认为中共病毒（Covid-19）疫苗是导致婴儿死亡的罪魁祸首。
 
-科学家们将流感疫苗批次号之间的变异性与 Covid 疫苗批次号之间的变异性进行了比较，并震惊地发现不同批次号的 Covid 疫苗之间存在过度且高度不寻常的变异程度。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/捕获13.png)
 
-当检查2.2万批流感疫苗时，几乎所有疫苗每批都产生 5 个或更少的严重不良反应。只有 2 个批次号超过此值（22 个 SAE 和 37 个 SAE）
+母亲在怀孕的最后三个月里接种了两剂Covid-19疫苗。在出生后，婴儿的嘴和鼻子开始出血，一天后死亡。该报告是由一个外国”监管机构”提交的（如下图）：该母亲在2021年7月19日和8月13日接受了两剂Moderna疫苗，婴儿在2021年10月6日出生；孩子在医院分娩时，标明胎儿心跳不稳定。
 
-当比较相同数量的 Covid 疫苗时，发现存在巨大差异——许多批次号产生 5 次或更少的严重不良反应，但许多其他批次产生 1000-5000 次严重不良反应。
+该报告指出：“医生说，病人出生后，出现了哭声；在剪断脐带进行新生儿护理时，护理人员发现病人有口鼻出血的症状，立即请儿科医生给他插管并给他吸氧，他被送进了NICU；在新生儿重症监护室，他的检查结果显示凝血功能异常，肺部出血，心功能不全。给他输血，并给他注射肾上腺素”。
 
-因此，与流感疫苗的变异系数（99%）相比，Covid 疫苗的变异系数为 1000%
+VAERS报告没有将死亡列为与Covid-19疫苗有任何关系，只是将死亡列为“新生儿死亡”。目前还不知道是否进行了尸检，以及是否记录了任何死因。无论怎样，据报道，婴儿的父亲申请了疫苗伤害赔偿，因为他认为Covid疫苗是导致突然死亡的原因。
 
-换句话说，Covid 疫苗的差异是流感疫苗的 10 倍。
-
-根据 FDA 的规定，不同批次之间和不同制造商之间如此高的差异意味着药物是掺假的，并会受到严重的法律处罚。
-
-这种变化也可能会否定 EUA 授权——仅根据产品的一致性授予（EUA）。
-
-**新闻来源**：[dailyexpose.uk][How bad is my Covid-19 Vaccine Batch? – Find out now](https://dailyexpose.uk/2021/12/16/how-bad-is-my-covid-19-vaccine-batch/) 发布时间：2021年12月16日｜
+**新闻来源**：[dailyexpose.uk][Fully Vaccinated Mother Gives Birth To Baby Bleeding From Noseand Mouth, Infant Dies Day Later](https://dailyexpose.uk/2021/12/16/fully-vaccinated-mother-gives-birth-to-baby-bleeding-from-nose-and-mouth-infant-dies-day-later/)
 
 * * *
 
-***发稿：信心满满***
+***发布：信心满满***
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-1.jpeg)
+
+
 
  
 
