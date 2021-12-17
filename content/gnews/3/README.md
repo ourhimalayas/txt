@@ -2,28 +2,40 @@
 ---
 
 
-## 疫苗灾情｜24 岁 BYU 篮球运动员被迫接种疫苗两周后倒在球场上 职业生涯面临终结
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1764032/)
+## 如果美国不站出来对付中共，其他国家也不会出手
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1764098/)
 
-**撰文/ 疫情关注组｜发布日期/ 17/12/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup）](https://gettr.com/user/mightygroup%EF%BC%89)**
+翻译：Lish
+校对：枳实
+剪辑/字幕：向上James
+编辑：Mttfly
+[![](https://assets.gnews.org/wp-content/uploads/2021/12/157.png)](https://assets.gnews.org/wp-content/uploads/2021/12/1-SC112100001.mp4)图片来源：foxnews
+他（拜登）应对习近平时卑躬屈膝，我们知道他已经把这些共产主义的思想带到了美国，例如这些疫苗强制政策和银行监控。
 
-美国 BYU 篮球运动员，今年 24 岁理查德·哈沃德 (Richard Harward) 12月15日在IG 宣布，“鉴于我的心脏疾病又出现了进一步的并发症，为了健康及安全着想，我确定退出本赛季所有的比赛”，这距离他被球队高层胁迫接种辉瑞 COVID-19 疫苗还不足两周。
+这些感觉就像从共产主义中共国出来似的，是不是因为有利益冲突？亨特·拜登被中共收买了？我不知道他是否还在接受中共国的付款？
 
-事源一个月前，他对阵科罗拉多克里斯蒂安（Colorado Christian）的比赛中倒下，送院后被确诊患上严重心肌炎和血栓。
+我的意思是，如果（拜登政府）面对中共这种无能的背后就是这个的话，那么他们的意图就很清楚了，他们想超越美国成为头号超级大国。
 
-哈沃德的母亲，爱丽丝（Alice）透露指，她的儿子根本不想接种疫苗，但迫于球队管理层的“压力、胁迫和羞辱”，并以禁赛作威胁，最终成功让哈沃德接受了COVID-19 疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/xHarward1.jpg.pagespeed.ic_.-gzvT8g18E.jpeg)哈沃德和父母
-母亲认为，“结果很明显，疫苗真的不安全，我的儿子为此付出了非常沉重的代价，他可能永远无法康复。”
+嗯，你说的很对。任何关注中共所做事情的人都知道，他们打算在本世纪中叶时统治全球，这就是他们的目标。
 
-她表示，哈沃德在接受疫苗后不久因严重胸闷和疼痛昏倒在赛场上，此前他的身体状况一向相当良好，现在他确诊患有严重的心肌炎和血栓。
+而如果美国不打算站出来对付中共，其他国家也不会站出来对付他们，人们都要靠美国来领导这条（灭共）路。
 
-最令人不忿的是，所有求诊的医生都矢口否认哈沃德的不幸与疫苗有关，甚至表示这种突发的疾病“对于某些人来说就是生命来到某个阶段时不可避免的事。”
+Maria，这就是为什么无论是经济政策，还是军事政策，如果我们不站出来反对他们，那么我们就会给他们政治权力。
 
-不过，哈沃德的队友对他的受伤表示相当震惊，他们无法理解一个一向年轻、健康、优秀的运动员怎么会突然患上严重心脏病，虽然哈沃德已就自己的不幸向球队提出诉讼，但是按照过往经验，要想产生实质性影响，除非整个球队罢赛抗议。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/疫苗-4.jpg)
-来源｜[Deseret](https://www.deseret.com/2021/12/14/22834713/byu-cougars-basketball-big-man-richard-harward-says-hell-miss-the-rest-of-the-season)
+而本届政府的弱点，他们犹豫不决，不敢追究责任。无论是对贸易还是新冠，还是经济政策，我们需要做的是说不，我们不会和你谈判，除非你做到某些事情。
+
+而新冠的起源是其中的一个重要部分，停止对维族的种族灭绝，停止对台湾的骚扰，发出我们将支持台湾这一条信息，这些都是重要的。
+
+**原文链接：**[US must not enable evil in China and at the Beijing Olympics](https://www.foxnews.com/opinion/us-evil-china-beijing-olympics-sen-marsha-blackburn)
+
+**发布：**去中心化Math
+**
+更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

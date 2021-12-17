@@ -2,36 +2,23 @@
 ---
 
 
-## 疫苗无效 英国单日确诊人数创新高
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1763901/)
+## 秘翻在线：美国财政部将中共国公司列入“脑控武器”的黑名单
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1763967/)
 
-作者：纽约香草山医疗部 – 云豹
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-08-30-at-7.37.59-PM-3.png)
-12月15日，英国单日新增78610例中共病毒确诊病例，创下了疫情爆发以来的单日新高，超过今年1月8日的68053例。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/10-6.jpg)
-截至12月13日，英国的完整疫苗接种率为69.6%，已完成第三剂疫苗的接种率为35.8%。政府原本预期，目前的疫苗接种率能够达到群体免疫。但事实却是创下了单日确诊新纪录。
+**翻译：罗马骑士**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2dac272dfb4b73168bd40bcf82f7d8f1_w.jpg)
+据今日俄罗斯新闻网2021年12月16日报道，美国财政部已将 34 家中共国公司和研究机构列入黑名单，并且指责其中一家开发“脑控武器”。
 
-英国卫生大臣贾维德表示，在伦敦区域的确诊病例中，约有60%是奥米克戎变种病毒感染。英国首相约翰逊也警告英国可能会出现新的感染高峰。
+本周三，这些中共国机构和公司被美国财政部添加到“实体清单”中，与其他 260 多家中共国企业（包括智能手机巨头华为）一起被列入黑名单。 被列入名单的这些公司，在未经华盛顿明确许可的情况下，禁止从美国购买技术。被列出的中共国实体名单，其中包括中国军事医学科学院等11 个研究所。
 
-参考链接：
+在周四公布的联邦公报中，拜登政府声称这些机构“采用生物技术来壮大中共国军队”，并开发了“所谓的大脑控制武器”。 商务部长吉娜·雷蒙多在一份声明中写道，中华人民共和国涉嫌侵犯人权，并对新疆维吾尔族穆斯林的超酷镇压。“对生物技术和医学创新的科学追求可以挽救生命。 不幸的是，中共国选择使用这些技术来实施对其人民的控制，以及对少数民族和宗教少数群体成员的镇压”。
 
-- [Omicron發威 英國單日確診創疫情爆發以來新高](https://www.cna.com.tw/news/firstnews/202112160004.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-- [新冠肺炎疫苗的統計資料](https://g.co/kgs/E6UztZ)
+其中四家公司被列入名单，是“因为他们支持中共的军事现代化”。另外五家公司，因涉嫌试图获得美国技术，用来帮助中共军队而被列入名单。
 
+当今的拜登政府，在很大程度上延续了前总统唐纳德·川普对中共国的敌对立场。 采用类似战争时期的措施，作为美对中共国在贸易政策上的指导方针。虽然拜登没有对中共国商品征收任何新的关税，但他也没有取消前川普政府征收的关税。 此外，拜登政府继续对中共国科技行业实施制裁，扩大川普时代禁止美国投资界与中共国军方合作公司的禁令，并权衡对中共国最大半导体制造商进行制裁。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
+**[新闻链接](https://www.rt.com/usa/543443-biden-china-trade-blacklist/)**
 
-总编：文特
-编辑：飞虹
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
