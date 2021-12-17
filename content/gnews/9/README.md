@@ -2,50 +2,52 @@
 ---
 
 
-## 日本加快推进辉瑞的药品供应
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1766142/)
+## 美国疾病控制与预防中心的数据显示，美国欧米克戎的大多数病例都是“完全接种了疫苗”的美国人
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1766169/)
 
-作者：纽约香草山农场 – 四季
+作者：阿特·摩尔（Art Moore）
+发布日期：2021年12月17日
+新闻来源：LifeSiteNews
+翻译：文虓Bobby
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/121801.jpg)一位老人家正在接受COVID-19疫苗注射
 
+本文最初由WND新闻中心发表
 
+(WND新闻中心)——根据疾病控制和预防中心的数据，在美国，近80%的欧米克戎变异病例是在完全接种疫苗的人身上发现的。
 
+美国疾病控制与预防中心反映了12月1日至8日的数据，显示43例已知病例中有34例(79%)“完全接种了疫苗”。在34例病例中，有三分之一的人接受了第三次“加强针”疫苗。
 
+只有一名使用欧米克戎的患者住院，无一死亡。
 
-据[OAN网站](https://www.oann.com/japan-pm-kishida-speeds-boosters-and-secures-pfizer-pills-amid-omicron-fears/)12月17日援引路透社报道，出于对OMICRON变种的担忧，日本首相岸田文雄周五与辉瑞公司负责人进行了电话交谈，以确保200万剂辉瑞公司抗病毒药在日本的供应，并表示将加速为老年人接种疫苗加强针的措施。
+在以色列，大多数人都接受了加强针，67例欧米克戎病例中有54例(80%)是接受了三次COVID-19疫苗注射的人。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1746-1.jpg)2021年2月17日，日本正在启动疫苗接种活动。在日本东京，一名医务人员在东京医疗中心拿着一小瓶辉瑞-生物技术公司的冠状病毒病（COVID-19）疫苗。（Behrouz Mehri/Pool via REUTERS）
+白宫冠状病毒顾问安东尼·福奇博士证实了早期数据，表明欧米克戎更具传染性，但危险性较小。周一，世界卫生组织(World Health Organization)表示，欧米克戎病毒的传播速度似乎比德尔塔（Delta变种）病毒的传播速度快，“使疫苗的效力降低，但导致的症状不那么严重。”
 
-岸田说，日本的目标是在首次接种后的六个月而非八个月内，为大约3100万名医护人员和高危老人提供疫苗加强针。他说，从2月起，其他老人将在7个月内得到加强针注射。
+然而，福奇周日表示，联邦官员正在评估是否敦促美国人进行加强针，以视为完全接种疫苗。
 
-日本已与辉瑞公司签约，为明年订购了1.2亿剂疫苗。截至本月，日本的疫苗库存约为1600万剂。周四，日本政府正式批准Moderna的中共病毒疫苗加强针计划，该计划迄今位置仅覆盖了0.1%的日本人口。
+“但我认为，如果你看一下数据，就会越来越清楚地发现，如果你想得到最佳保护，你真的应该打一剂加强针，”他在ABC的《本周》(This Week)节目上告诉乔治·斯特凡诺普洛斯(George Stephanopoulos)。
 
-尽管日本的疫苗接种相对较晚，但迄今为止，日本已为其近80%的人口进行了全面接种，是七国集团经济体中接种比例最高的国家。
+周一，约翰霍普金斯大学(Johns Hopkins University)的马蒂·马卡里(Marty Makary)博士指出，一项研究发现，长期的T-细胞免疫力对欧米克戎（Omicron）非常强大，而且有效。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月.png)
+他在推特上写道:“这是整个欧米克戎变种病毒中最重要(也最被忽视)的科学论文。”“抗体水平的固定转移了人们对包括细胞免疫在内的综合免疫的注意力。
 
-编辑/校对/发稿：小鹿
+在南非，研究人员最先向世卫组织报告了欧米克戎变异，研究人员彼得·施特雷彻（Pieter Streicher）说，在他的国家，对以前感染的免疫力很高，约占人口的70%。
 
+他在推特上说，随着欧米克戎（Omicron）逐渐占据主导地位，“(南非)的感觉是，大流行几乎结束了。”
 
+最近几周，南非因COVID而住院和死亡的人数显著减少。研究人员估计，在南非，欧米克戎导致的死亡人数将达到约640人，比德尔塔(15400人)（病毒致人死亡人数）低25倍。
 
-**更多资讯，更多关注**
+南非医学协会(South African Medical Association)的安吉里克·库切(Angelique Coetzee)博士在接受英国独立广播公司LBC采访时表示，在南非经历了四周的欧米克戎（变种病毒传播）后，“当我们提及它是一种温和的传播病毒时，你没有理由不相信我们。
 
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+在英国，首相鲍里斯·约翰逊(Boris Johnson)已经对欧米克戎实施了新的限制措施。英国副首相周二说，他“说错了”，之前他说英国医院里有250人因欧米克戎病毒住院。
 
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+英国副首相多米尼克·拉布(Dominic Raab)在接受《早安英国》(Good Morning Britain)采访时澄清道，实际数字是10人。
 
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[援引原文](https://www.lifesitenews.com/news/majority-of-omicron-cases-in-the-us-are-in-fully-vaccinated-americans-cdc-data/)
 
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+审核校对：玫瑰天空
+上传排版：糖果儿
 
  
 
