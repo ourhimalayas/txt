@@ -2,37 +2,25 @@
 ---
 
 
-## 德克萨斯州长拒绝五角大楼的疫苗强制
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1765945/)
+## 前华尔街银行家在中共国的调查中突然失踪
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1765964/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+翻译：七龙珠
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/12/T-4.jpg)patriotamerican.us
-《人文事件新闻》（Human Events News）12月16日发表文章，题目是“德克萨斯州州长格雷格·阿伯特（Greg Abbott）拒绝五角大楼对国民警卫队的疫苗强制”。【1】
+![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕截图-2021-12-17-183952.jpg)图片来源 ：elconfidencial.com
 
-全文如下：
+王彩荣(音译：Wang Cahoyong）已经失踪了两个多星期。在中共国的“失踪者”名单上又增加了一个名字。据中共喉舌“财新网”报道，自11月30日以来，中共当局一直在寻找这位56岁的老人。王彩荣是中国投资有限责任公司（简称“中投公司”）（China Equity Investment）的创始人，他曾在摩根大通和摩根斯坦利等工作，是华尔街“老一辈”的银行家。因为他的公司涉嫌欺诈，正在接受调查，而就在调查中的王就突然在公开场合消失了。今年早些时候，在该公司被卷入一系列指控，包括违约、非法转让利益、滥用投资者资产和其他违规行为后，中共国监管机构一直“关注”该公司，正如中共喉舌报道的那样。
 
-德克萨斯州长格雷格·阿伯特告诉五角大楼，他不会对德克萨斯州的国民警卫队强制接种中共病毒疫苗。
+该公司在一份证券交易所声明中告知，它将调查有关其首席执行官失踪，并从周四起暂停其股票在证券交易所的交易。中国股权投资公司是由王彩荣成立和经营的公司，是中共国第一批私募股权和风险投资公司之一。截至2020年底，它管理着36只基金，价值112亿元人民币（按当前汇率计算约18亿美元）。
 
-正如《人类事件新闻》先前报道的那样，国防部长劳埃德·奥斯汀（Lloyd Austin）要求为所有军事部门强制接种疫苗，每个军种都要服从不同的最后期限。
+新闻来源：[elconfidencial.com][Ex banquero de Wall Street, desaparecido en medio de una investigación china](https://www.elconfidencial.com/empresas/2021-12-16/ex-banquero-de-wall-street-desaparecido-en-medio-de-una-investigacion-china_3342729/)
 
-“作为德克萨斯州州长，我是州管部队的总司令。” 据《福克斯新闻》报道，阿伯特的信中写道，“作为州总司令，2021年10月4日我就下令德克萨斯的副官，遵守我的GA-39行政命令。”
+* * *
 
-“如果未接种疫苗的士兵在德克萨斯州内遭受任何不利后果，他们将只能怪罪拜登总统和他的政府。” 阿伯特继续说，“德克萨斯州不会对州警卫部队强制执行最新的中共（新冠）病毒疫苗，如果联邦政府继续以给国民警卫队提供资金为由威胁德克萨斯，我会动用所有的法律工具，充当美国英雄们的辩护人。”
-
-（原文完）
-
-这是对昨天（12月16日）五角大楼解雇103名海军陆战队员消息【2】的强有力的回应，在阴谋集团最后疯狂的时候，只有坚决说不，才能唤醒、才能拯救美国。
-
-德克萨斯，加油！美国真正的爱国人士，加油！全世界有识之士，加油！铲除邪恶！
-
-有关链接：
-
-【1】[https://humanevents.com/2021/12/16/texas-gov-greg-abbott-refuses-pentagons-national-guard-vaccine-mandate/](https://humanevents.com/2021/12/16/texas-gov-greg-abbott-refuses-pentagons-national-guard-vaccine-mandate/)
-
-【2】[https://gnews.org/zh-hans/1762887/](https://gnews.org/zh-hans/1762887/)
-
+*审核：Aries的星
+校对：阿伯塔
+发布：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-3.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
