@@ -2,43 +2,35 @@
 ---
 
 
-## 证据：中共病毒COVID疫苗导致朊病毒疾病
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1762951/)
+## 英国通胀率创10年新高
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1762984/)
 
-本文作者：Rebecca (一切心皆不可得！)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image001-10.png)
-据《自然新闻网》报道，mRNA疫苗正在导致朊病毒疾病。人们在注射前没有这些疾病，而在注射后却突然患上了这些疾病。对此没有其他解释。
+**评论：新冠疫情的全球传播导致当今世界乱象横生，我们的生活被这场疫情搞得混乱不堪时，全世界人民应该行动起来，揪出乱源之码。问一问，新冠病毒从哪里来，又要到哪里去，最终乱了世界的邪恶团伙，最配的代价是尽早被世界毁灭！**
 
-朊病毒疾病是不可治愈的，而且总是致命的。接种COVID疫苗后，最快6周就会死亡（见6周内和6个月内的例子）。
+**据《Lotuseaters》记者：Rory Cranstoun，2021年12月15日报道**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12-a34z7-c0tz0-5.jpg)**£50注由Howard Lake是根据CC BY-SA 2.0许可。
+图片来源：Lotuseaters**
+在截至11月的12个月中，英国的生活成本达到2011年9月以来的最高水平，通胀率从前一个月的4.2%飙升至5.1%。
 
-以下内容来自Steve Kirsch 转载自 [SteveKirsch.Substack.com](https://stevekirsch.substack.com/p/proof-covid-vaccines-cause-prion)
+根据国家统计局 (ONS) 的数据，价格上涨是由于运输和能源成本上涨，以及服装和二手车价格上涨。 ONS首席经济学家格兰特·菲茨纳 (Grant Fitzner) 在评论这些数字时说：
 
-我写了一条推特，说疫苗会导致朊病毒病。推特给那条推文标签为“具误导性”。
+“广泛的价格上涨导致通货膨胀率再次急剧上升，目前处于十多年来的最高水平。燃料价格显着上涨，推动平均汽油价格高于我们之前所见。服装成本—在去年这个时候下降后有所增加—以及食品、二手车和烟草税的价格上涨，都推升了本月的通货膨胀。”
 
-这根本不是事实。我的陈述在科学文献和VAERS数据中也得到了验证。
+上个月汽油价格也跃升至每升145.8便士—有记录以来的最高水平—原材料成本上涨也导致通胀上升。
 
-见[https://stevekirsch.substack.com/p/proof-covid-vaccines-cause-prion](https://stevekirsch.substack.com/p/proof-covid-vaccines-cause-prion)并阅读所有的评论，这表明我不是唯一对数据有这种评估的人。
+“工厂生产的商品成本和原材料价格持续大幅上涨，达到至少12年来的最高水平。”菲茨纳补充道。
 
-早在2021年5月，当Byram Bridle教授披露关于辉瑞公司疫苗生物分布数据的FOIA请求时，提到穗状蛋白与路易体形成有关，而路易体与朊病毒疾病有关。他表示担心，疫苗可能导致朊病毒疾病，如痴呆症、阿尔茨海默氏症和克雅氏病（CJD）。
+**文章来源**：[https://www.lotuseaters.com/uk-inflation-hits-10-year-high-15-12-21](https://www.lotuseaters.com/uk-inflation-hits-10-year-high-15-12-21)
 
-几小时后，Twitter暂停了我的账户。没有上诉的机会。过去12年里的所有内容都被删除。我的7.5万名追随者全部被清零。我的信息被删除。没有机会下载我的内容。
+翻译：洛杉矶盘古农场 – Raul
+校对：洛杉矶盘古农场 – Mike Li
+评论：洛杉矶盘古农场 – Wendy
+编辑：洛杉矶盘古农场 – Wendy
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-唯一留下的是：我的Twitter ID是@stkirsch。
-
-如需了解更多内容，请阅读文章，链接如下：
-
-- [杰西卡-罗斯关于COVID疫苗和朊病毒疾病的文章](http://Jessica%20Rose’s%20article%20on%20COVID%20vaccines%20and%20prion%20diseases)
-- [Stephanie Seneff关于朊病毒疾病和COVID疫苗的论文](http://Stephanie%20Seneff’s%20paper%20on%20prion%20disease%20and%20the%20COVID%20vaccines)
-- [Bart Classen的论文将疫苗和朊病毒疾病联系在一起](http://Bart%20Classen’s%20paper%20linking%20the%20vaccines%20and%20prion%20diseases)
-- [SARS-CoV-2导致猕猴的脑部炎症并诱发路易体的形成](http://SARS-CoV-2%20causes%20brain%20inflammation%20and%20induces%20Lewy%20body%20formation%20in%20macaques)
-- **[SARS-CoV-2 穗状蛋白中的朊病毒样域使其与ACE2的亲和力更高](http://SARS-CoV-2%20Prion-Like%20Domains%20in%20Spike%20Proteins%20Enable%20Higher%20Affinity%20to%20ACE2)**
-
-
-[新闻来源链接](https://www.naturalnews.com/2021-12-10-proof-covid-vaccines-cause-prion-diseases.html)
-
-审核校对：sherryok (水云间)
-
-上传排版：漂流瓶
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
