@@ -2,23 +2,20 @@
 ---
 
 
-## 美国多位众议员敦促美国奥委会禁止运动员使用数字人民币
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1764558/)
+## 医管局举办国安法研讨会 高层否认政治化
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1764663/)
 
-#### 翻译/撰稿：zzballack
+作者：东京樱花团丨阿恩
+![](https://lh3.googleusercontent.com/YE4zpUTaG7EjW_NXqWMxymZZZQPZbacedOyM3n5fYf3K6r0gZWlajIVVs12uE3nH10HJPipVUbrufkO9745xaRdRuCmg4xCkVUttJJlRV-ce47Ackq8PyiY_q7KkFwb7XHD4TrxM)[*图片来源*](https://www.hkcnews.com/article/49189/%E9%86%AB%E7%AE%A1%E5%B1%80-%E9%86%AB%E8%AD%B7%E4%BA%BA%E5%93%A1-%E5%9C%8B%E5%AE%89%E6%B3%95-49197/%E9%86%AB%E7%AE%A1%E5%B1%80%E8%88%89%E8%BE%A6%E5%9C%8B%E5%AE%89%E6%B3%95%E7%A0%94%E8%A8%8E%E6%9C%83-%E8%8C%83%E9%B4%BB%E9%BD%A1%EF%BC%9A%E7%B5%95%E9%9D%9E%E5%B0%87%E6%94%BF%E6%B2%BB%E5%B8%B6%E5%85%A5%E9%86%AB%E7%AE%A1%E5%B1%80)
+医管局上周六举办《国安法》研讨会，由梁爱诗主讲，逾百员工参加。医管局主席范鸿龄及行政总裁高拔升解释医管局有责任令同事了解《国安法》内容，强调绝不是将政治带入医管局。范又呼吁员工踊跃投票，否则无法选出心目中为香港发声之人。移民潮下，医管局人手持续流失，截至今年11月，医生的离职率为6.2%，护士更高达7.7%，范鸿龄直言情况令人忧虑。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-28.jpg)图片来源：CoinQuora
-《布雷特巴特新闻网》（Breitbart News）12月16日独家报道说，美国共和党众议员兰斯·古登 (Lance Gooden)、丽莎·麦克莱恩 (Lisa McClain)、马奎恩·穆林 (Markwayne Mullin)和杰克·埃尔泽 (Jake Ellzey)联名写信给美国奥委会，敦促它们在北京冬奥会期间，禁止美国运动员使用数字人民币，否则面临被中共监控的风险。
+中共在香港强推国安法，各界都被强迫学习，医院局也不能例外，不过该局高层却矢口否认此举是将政治带入医管局，医管局是政府部门，国安法又是中共政权统治香港的工具，如何与政治不相干。医管局研讨国安法岂不是洗脑员工遵循恶法效忠中共邪恶政权吗！既然做了为何又不敢认，可见这些向中共宣誓效忠过的高官们人在曹营心在汉，难怪医务人手流失剧增，连投票也要向内部员工再三呼吁。
 
-议员古登在一份声明中说：“中共是美国的主要对手，在监视美国公民方面有着长期的记录。美国奥委会应该采取一切预防措施，保护美国运动员的隐私不受中共政府的侵犯。”
+资料来源：[**医管局举办国安法研讨会范鸿龄：绝非将政治带入医管局**](https://www.hkcnews.com/article/49189/%E9%86%AB%E7%AE%A1%E5%B1%80-%E9%86%AB%E8%AD%B7%E4%BA%BA%E5%93%A1-%E5%9C%8B%E5%AE%89%E6%B3%95-49197/%E9%86%AB%E7%AE%A1%E5%B1%80%E8%88%89%E8%BE%A6%E5%9C%8B%E5%AE%89%E6%B3%95%E7%A0%94%E8%A8%8E%E6%9C%83-%E8%8C%83%E9%B4%BB%E9%BD%A1%EF%BC%9A%E7%B5%95%E9%9D%9E%E5%B0%87%E6%94%BF%E6%B2%BB%E5%B8%B6%E5%85%A5%E9%86%AB%E7%AE%A1%E5%B1%80)
 
-该联名信中写道：“数字人民币完全由中国人民银行控制，可以被中央银行追踪。数字人民币自2014年以来一直在运作，但直到最近，中共政府才发布了有关该货币的关键功能，包括能够知道某人购买的东西和购买地点等详情。鉴于中共一直以来利用新兴技术镇压维吾尔人、香港人以及中国各地争取言论自由的人，所以这些担忧并非空穴来风。微信等数字支付平台已经被用来监视、威胁和逮捕中国公民。所以参加冬奥会的运动员应该意识到，数字人民币可能被用来对中国公民和访问中国的人进行前所未有的大规模监视。中共希望他们在智能手机上保留数字人民币钱包，并在回国后继续使用，这会带来许多隐私方面的问题。”
-
-之前，玛莎·布莱克本 (Marsha Blackburn) 等参议员也有过类似呼吁。他们给美国奥委会写信说：“最重要的是，美国奥委会应与国务院、财政部和商务部合作，保护美国运动员的隐私不受中共政府侵犯。”
-
-新闻来源：[Exclusive – Rep. Lance Gooden, Republicans Urge U.S. Olympic Committee to Block Athletes from Using Digital Yuan](https://www.breitbart.com/politics/2021/12/16/exclusive-rep-lance-gooden-republicans-urge-u-s-olympic-committee-to-block-athletes-from-using-digital-yuan/)
-
+*校对：东京樱花团 / 東洋武士
+发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
