@@ -2,143 +2,45 @@
 ---
 
 
-## 泽连科医生一周盖特汇总（2021年12月9日至16日）
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1763088/)
-
-纽约香草山翻译部  defiance
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%96%B0.png)
-泽连科医生是七哥背书的良心医生，是七哥口中国际社会公认的反对新冠毒疫苗的二号人物，特此将他最近一周总结自己感想的盖特（泽连科医生会在某些贴子上署名，此处去掉了）进行翻译并以中英对照形式分享给战友。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture2-13.jpg)
-医生2021年12月16日盖特：
-
-Brazil’s “CNN”, El-Globo being sued for Slander.
-
-In a recent interview, El-Globo misrepresented and lied about Dr. Zelenko’s successful and clinically proven treatment of Covid-19.  In addition, Arthur and Abraham Weintraub were slandered for supporting Dr. Zelenko’s protocol that has reduced hospitalization and death by 84%.
-
-巴西的 “CNN”，巴西最大电视台“环球台”被以诽谤罪起诉。
-
-在最近的一次采访中，环球台对泽连科医生经临床验证成功的CCP病毒治疗方法进行了歪曲欺骗。 此外，亚瑟和亚伯拉罕·温特劳布因支持泽连科方案而遭诋毁。该方案使住院和死亡人数减少了84%。
-
-医生2021年12月15日盖特：
-
-CDC = Cruel Death Conspirators
-
-FDA = Fear Death Advocacy
-
-NIH = Nihilism Idolatry Hypocrisy
-
-WHO = World Homicide Organization
-
-FAUCI = Fraudulent Arrogant Ugly Cruel Imbecile
-
-GATES = Grotesque Arrogant Treacherous Evil Sociopath
-
-CDC = 残杀阴谋家
-
-FDA = 恐惧和死亡的倡导者
-
-NIH = 虚无主义偶像崇拜的伪善人
-
-WHO = 世界杀人组织
-
-FAUCI（福奇） = 丑陋傲慢奸诈残忍的低能儿
-
-GATES（盖茨） = 傲慢奸诈邪恶怪咖社会主义者
-
-These reptiles spread lies of death.  Ignore Biden, Gates, Fauci, Walensky’s advice.  They are whores (my apology to whores) that are leading you to a horrific death.
-
-Boycott, Divest, and Sanction these merchants of death.
-
-这些爬行动物传播让人死亡的谎言。不要理会拜登、盖茨、福奇、瓦伦斯基的建议。 他们是妓女（我向妓女道歉）。他们正在把你们引向可怕的死亡。
-
-抵制、制裁这些让你死的商人，并从他们那里撤资。
-
-医生2021年12月14日盖特：
-
-Global predator parasites steal from and murder the middle class.
-
-Boycott, Divest, Sanction the parasites.
-
-Buy from and support small businesses.
-
-Transfer wealth and power back to God-consciousness
-
-B.D.S. the depraved parasitic and child sacrificing globalist vermin.
-
-全球弱肉抢食的寄生虫们偷窃并谋杀中产阶级。
-
-抵制、制裁这些寄生虫，并从他们那里撤回投资。
-
-从小企业购物以支持小企业。
-
-将财富和权力转移回神的觉悟。
-
-抵制、制裁堕落的寄生虫和施行儿童献祭的全球主义害人虫，并从他们那里撤回投资。
-
-医生2021年12月13日盖特：
-
-Mainstream and social media are self-serving propaganda platforms that are directly responsible for millions of deaths worldwide.
-
-We need to boycott, divest, and sanction these platforms of child abuse, global fear, and genocide.
-
-B.D.S. the media
-
-主流媒体和社交媒体是自利的宣传平台，对全世界数百万人的死亡负有直接责任。
-
-我们需要抵制、制裁这些虐待儿童、全球恐惧和种族灭绝的平台，并从这些平台撤资。
-
-抵制、制裁无良媒体，并从无良媒体撤资
-
-医生2021年12月11日盖特：
-
-Twitter = Treachery With Information Tainting Truth Education Reason
-
-推特 等于 用假信息玷污真相教育和理性思维的失信网站
-
-医生2021年12月10日盖特：
-
-GOOGLE = Greedy Organization Of Grotesque Lying Evil
-
-谷歌 等于 一个由邪恶的骗子和变态运营的贪婪组织
-
-The FDA, CDC, and NIH are whorehouses (my apologies to whorehouses) who are the enemies of the people.  Their leadership is guilty of genocide and crimes against humanity.
-
-They should be legally hunted and made to pay for prostituting themselves (again, my apologies to prostitutes) and betraying the American people.
-
-FDA、CDC和NIH是妓院（抱歉我侮辱了妓院），他们是人民公敌。 他们的高管是种族灭绝和反人类罪。
-
-他们应该被依法逮捕，让他们为自己的卖淫行为（抱歉我侮辱了妓女）和背叛美国人民付出代价。
-
-医生2021年12月9日盖特：
-
-Collective Divine consciousness is rising around the globe.
-
-Humanities rage and fury is at a boiling point with the child sacrificing and depraved pagan globalist vermin.
-
-Divine and earthly justice are coming.
-
-集体的神性意识正在全球范围内崛起。
-
-人性深处积攒的暴戾的愤怒，在儿童献祭和堕落异教全球主义者害虫出现后达到了临界点。
-
-神圣和世俗的正义正来临。
-
-参考来源：[泽连科医生一周盖特汇总（2021年12月9日至16日）](https://gettr.com/user/drzevzelenko)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88-1.png)
-
-编辑/校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
-
-
+## 邮件显示：扎克伯格帮助福奇促进COVID封锁政策和疫苗开发
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1763093/)
+
+**据《国家脉动》作者：Natalie WintersRaheem J. Kassam，2021年12月14报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12-a34z7-c0tz0-6.jpg)**图片来源：forbes.com**
+在马克-扎克伯格和安东尼-福奇之间的私人电子邮件——由《国家脉动》独家获得——中，Facebook创始人兼首席执行官提出发送关于用户的“数据报告”，以“促进决定”COVID-19的封锁。
+这一披露是一个鲜明的例子，说明大科技公司和政府可以很容易地利用用户数据进行勾结，限制普通民众的自由。
+在交流中，扎克伯格坚持说：“我想确保你拥有所有你需要的资源，以加快疫苗的开发。”
+扎克伯格——电子邮件中提到的他的个人基金会为确保当时的候选人乔-拜登在2020年取得胜利投入了数亿美元——向美国国家过敏和传染病研究所（NIAID）所长提供了援助，而就在一个月前，这对夫妇在（被美国政府删节的）电子邮件中进行了联系。
+扎克伯格4月8日给福奇的电子邮件全文如下。
+托尼，
+我写信再次感谢你所做的一切，并想看看“Facebook、陈-扎克伯格倡议”或我个人是否还能做些什么，以帮助你努力打击Covid并使社会重新开放。
+如果我们看到全国各地长期收紧和放松庇护所限制，那么如果有汇总的、匿名的数据报告，Facebook可以生成，以促进这些决策。例如，我们很乐意这样做，并希望确保我们优先考虑正确的工作。我们已经启动了一个症状调查，希望能提供一个逐县的病例领先指标，为公共卫生决策提供参考。如果有其他你认为有帮助的综合数据资源，让我知道。
+从长远来看，[REDACTED]和我想确保你们拥有所有需要的资源，以加快疫苗的开发。这似乎是一个得到大量投资的领域，但如果有一些有前途的方法目前还没有被研究——或者如果有一些领域可以使用更多的资源——让我知道，我们将很乐意考虑为它们提供资金。
+再次感谢您在这方面的领导。我知道你很忙，所以如果现在没有什么需要我们帮助的，就没有必要回复这封邮件。我希望你过得很好。
+马克
+福奇回应了扎克伯格的电子邮件：
+马克，
+谢谢你的说明和你的帮助提议。我将认真考虑我们如何接受你的提议。
+温馨的问候。
+托尼
+在这次交流中，Facebook首席执行官和NIAID主任分别通过电子邮件讨论了该社交媒体平台的“冠状病毒信息中心”以及如何控制围绕该大流行病的叙述。
+当参议员玛莎-布莱克本今年早些时候提出这个问题时，福奇否认知道与Facebook负责人的互动。
+“我不知道她刚才说了什么，我不知道她在说什么。我不知道她在说什么。。。。。。我不知道她在说什么。”
+
+- 2021年6月9日，福奇在MSNBC上的讲话
+在他们最初公报的末尾，有一段编辑过的电子邮件部分，有人称这是扎克伯格提出的对某些话题进行审查。
+这一消息传来，Facebook的律师承认他们的“事实核查”努力不过是该公司的第三方合作伙伴的“意见”。该公司已经根据这些“事实核查”删除和冻结了数千个与COVID-19有关的帖子和账户。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/126.png)
+**原文连接**：[https://thenationalpulse.com/exclusive/private-fauci-zuckerberg-emails-offering-data-reports/](https://thenationalpulse.com/exclusive/private-fauci-zuckerberg-emails-offering-data-reports/)
+翻译：洛杉矶盘古农场- TrueSky
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – 柯镇恶
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -2,29 +2,36 @@
 ---
 
 
-## 面对失控的强权加拿大人应奋起说不
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1763824/)
+## 中共制毒贩毒 4家企业和1名个人遭制裁
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1763890/)
 
-采编/翻译编撰：薇文
-![](https://assets.gnews.org/wp-content/uploads/2021/12/06-image02.jpg)
-[图片来源](https://torontosun.com/opinion/columnists/malcolm-its-time-for-canada-to-start-living-again)
+作者：日本方舟农场 – Andy5
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-08-30-at-7.37.59-PM-3.png)
+12月15日，美国总统拜登签署了两项行政命令，授权美国财政部制裁从事、或企图从事涉及国际非法药物扩散、制造活动的15家实体及10名个人。中共有4家实体和1名个人被列入其中。这4家实体分别是：武汉远成共创科技有限公司、上海迅精化学有限公司、河北环浩生物科技有限公司以及河北艾豚商贸有限公司。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/7-26.jpg)
+被制裁的个人–叶全发，是全世界最大的合成代谢类固醇的生产者之一。他不仅通过比特币等虚拟货币进行此类贩毒交易，还领导了一个在大陆和香港之间的贩毒组织，向美国走私芬太尼等合成药物。叶全发正被美国缉毒局通缉。
 
-加拿大[多伦多太阳报]12月15日发表时评文章呼吁各界：对当前政府以防控疫情为由，而采取关闭企业、学校及公共设施等任何手段都不应予以配合！
+据悉，被制裁的上述中共实体，也或多或少参与了这个贩毒链条。
 
-社论称，持续的封城锁户已是一场真实的无休止噩梦，不仅危害经济和身心健康，还尤其摧残了公民的自由精神及社会的民主体系。
+参考链接：
 
-鉴于“奥密克戎”疫情未能构成严重医疗威胁，加拿大人必须学会生活在与病毒共存的常态中。但人们同时必须对当局实施的更严苛封锁，以及歇斯底里地采用侵犯人身自由的限制手段等保持警惕。
+- [US sanctions Chinese drugmakers amid addiction epidemic](https://www.theguardian.com/us-news/2021/dec/15/china-painkillers-drugs-us-sanctions)
+- [拜登总统签署行政命令加强打击国际贩毒 受制裁者包括中国公民及公司](https://www.voachinese.com/a/biden-executive-orders-on-global-illicit-drugs-20211215/6356846.html)
+- [Statement from DEA Administrator Anne Milgram on Cheun Fat Yip](https://www.dea.gov/press-releases/2021/12/15/statement-dea-administrator-anne-milgram-cheun-fat-yip)
 
-此外，经过两年疫情的洗礼，公众完全有能力评估自己将承受的风险。当务之急是应立即停止政府权力的恣意膨胀，并以安全的方式还政于民。但卫生官僚和政客们的反对，而使得整个社会将面临更多的伤害。
 
-评论最后指出，加拿大人必须发出反抗的声音，并对独断专权的政府说“不”，并以此避免渐已支离破碎的民生再次被当局任意蹂躏。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
 
-校对编辑：硫酸羟氯喹64
+总编：文真
+校正/发稿：海阔天空1
 
-发稿：苦尽甜来 (文來）
-
-[资料链接](https://torontosun.com/opinion/editorials/editorial-its-time-for-canadians-to-just-say-no)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
