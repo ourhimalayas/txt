@@ -2,26 +2,34 @@
 ---
 
 
-## 卢比奥策略推进国会通过《防止维吾尔族强迫劳动法》
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1764241/)
+## 我的Covid-19疫苗的批次号有多糟？
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1764276/)
 
-#### 撰稿：彩虹
+**编译：wenwu**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip11-2.png)图片来源：dailyexpose.uk
+对美国疫苗不良事件报告系统 (VAERS) 中发现的数据进行的一项调查显示，针对特定批号的中共病毒（Covid-19）疫苗多次报告了极高数量的不良反应和死亡，这意味着实验注射疫苗的致命批次已经确定。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-26.jpg)图片来源：雅虎
-周四，参议院一致同意，通过了一项旨在打击中共国对新疆维吾尔族穆斯林人口进行种族灭绝的法案，同时确认了拜登总统提名的驻北京大使和另外两名被提名人。12月16日，《国会山报》对此进行了报道。
+科学家们将流感疫苗批次号之间的变异性与 Covid 疫苗批次号之间的变异性进行了比较，并震惊地发现不同批次号的 Covid 疫苗之间存在过度且高度不寻常的变异程度。
 
-根据这项名为《防止维吾尔族强迫劳动法》（Uyghur Forced Labor Prevention Act）的法案，将禁止从中国新疆地区进口商品，除非个人或公司能够证明商品或材料是在没有奴役的情况下制造的。
+当检查2.2万批流感疫苗时，几乎所有疫苗每批都产生 5 个或更少的严重不良反应。只有 2 个批次号超过此值（22 个 SAE 和 37 个 SAE）
 
-该法案的共同提案人包括参议员马尔科·卢比奥（Marco Rubio）和杰夫·默克利（Jeff Merkley）。
+当比较相同数量的 Covid 疫苗时，发现存在巨大差异——许多批次号产生 5 次或更少的严重不良反应，但许多其他批次产生 1000-5000 次严重不良反应。
 
-根据报道，在提出该法案的同时，参议院以75票对18票确认了拜登提名的驻中共国大使人选尼古拉斯·伯恩斯（Nicholas Burns）。此外，以76票对13票确认了经济和商业事务助理部长（assistant secretary for Economic and Business Affairs）提名人拉明·托鲁伊（Ramin Toloui），以85票对5票确认了国际宗教自由无任所大使提名人拉沙德·侯赛因（Rashad Hussain）。
+因此，与流感疫苗的变异系数（99%）相比，Covid 疫苗的变异系数为 1000%
 
-报道披露，这些提名人的确认值得注意，因为部分共和党议员对拜登的几十个国务院和国防部提名人选实行了“搁置”策略，而卢比奥之所以同意解除他对伯恩斯的“搁置”，以及确认托鲁伊和侯赛因，目的是换取在与参议员克里斯·墨菲（Chris Murphy）的协议中推进通过维吾尔族法案。
+换句话说，Covid 疫苗的差异是流感疫苗的 10 倍。
 
-**新闻报道**
+根据 FDA 的规定，不同批次之间和不同制造商之间如此高的差异意味着药物是掺假的，并会受到严重的法律处罚。
 
-[Senate passes Uyghur bill, confirms China ambassador](https://thehill.com/homenews/senate/586239-senate-passes-uyghur-bill-confirms-china-ambassador)
+这种变化也可能会否定 EUA 授权——仅根据产品的一致性授予（EUA）。
+
+**新闻来源**：[dailyexpose.uk][How bad is my Covid-19 Vaccine Batch? – Find out now](https://dailyexpose.uk/2021/12/16/how-bad-is-my-covid-19-vaccine-batch/) 发布时间：2021年12月16日｜
+
+* * *
+
+***发稿：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-1.jpeg)
 
  
 
