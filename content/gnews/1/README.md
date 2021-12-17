@@ -2,23 +2,21 @@
 ---
 
 
-## 2021年12月8日文贵大直播爆料贵语
-` 【爆料贵语】新西兰伊甸农场` [轉載自GNews](https://gnews.org/zh-hans/1765070/)
+## 用外商投资中共房地产就是官官勾结 官商勾结 官金勾结
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1765145/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/直播12.8.jpeg)
-**盘古寒冬遭遇-文贵先生找亲爹**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/直播12..8.jpeg)
-**global farm unified action on funeral for ccp**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/直播12.10.jpeg)
-**billboard的每一次打榜都是射向ccp的一颗子弹**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/直播12.。10.jpeg)
-**包容他人是做人最基本的素质，共产党的教育恰恰反过来。**
+文编：东京樱花团/樱花传媒
 
+视频:东京樱花团/中文小视频组
 
+12月10日，郭文贵先生在GTV大直播指出：
 
-海报制作：大头小姐姐
+外国特别是美国对中投资都是通过金融机构，经几家空壳公司进行的。如果没有官方勾结、官商勾结和官金勾结，按照中国外国人投资者登记制度，外汇结算制度，外商投资制度，以及2007年就已规定的房地产不允许外商投资，严格地讲，许多外商对中的投资和返资都是违法的。美国和中共都很明白。
 
-上传：漂流瓶
+编辑：东京樱花团/墨然
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.jpg)
+
 
  
 
