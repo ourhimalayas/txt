@@ -2,10 +2,10 @@
 ---
 
 
-## 鲍里斯-约翰逊因其推出的中共病毒新政而受到其党内成员的反对
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1766080/)
+## 疫苗强制令毫无科学依据，而是在被以政治方式处理
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1766083/)
 
-12/14/2021 鲍里斯-约翰逊因其推出的中共病毒新政而受到其党内成员的反对
+12/14/2021 美国基石研究所创始人本·卡森博士认为疫苗强制令毫无科学依据，而是在被以政治方式处理
 
 By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 
