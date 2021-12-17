@@ -2,26 +2,43 @@
 ---
 
 
-## 美国制裁与芬太尼相关的中共制药商
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1762635/)
+## 美国一些大型医院放弃了疫苗强制
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/1762698/)
 
-撰稿：西枫westca
+加拿大扬帆农场 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2021/12/DLKZYTG4ZJB2RAKCZ7RLTQSC4I.jpg)图片来源：WFTV
+根据《WebMD》12月15 日报道，在联邦法官暂时停止拜登政府对医护人员的疫苗强制后，美国一些大型医院集团已经放弃了对员工的COVID-19疫苗强制。
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/12/unnamed-25.jpg)图片来源：网络照片
-据多家媒体12月16日报道，美国政府确认对迫害新疆人权的多家中共生物技术公司和监控公司实施制裁， 其中包括了四家中共化工公司和一名个人。
+AdventHealth、Cleveland Clinic、HCA Healthcare、Intermountain Healthcare和Tenet Healthcare表示暂时取消了疫苗强制以帮助解决劳动力短缺问题。医院一直在努力留住足够的护士、技术人员和清洁工，以处理大流行病期间最新的住院人数激增。
 
-美国财政部网站指明，制裁的理由是打击芬太尼等药物滥用成瘾问题，这些企业和个人参与了全球非法药物贸易。 在截至4月的一年中，超过10万美国人死于过量服用止疼药。虽然墨西哥毒贩是生产走私到美国的药品产地，但是原材料芬太尼的主要来源在中共国。国务卿布林肯称，这一制裁行动将有助于阻断使合成阿片类药物及其前体化学品能够进入美国的全球供应链和金融网络。
+《华尔街日报》报道说，职业倦怠、劳动力成本和疫苗强制的原因，最近几个月，数以千计的工人离开了这个行业或失去了工作，而不是去接种疫苗。
 
-在制裁名单中的个人为 Chuen Fat Yip, 他目前居住在武汉.他和他的公司，武汉源城共创科技有限公司在中国和香港以外地区运营，并在芬太尼、类固醇和药物化合物的国际运输中使用比特币等加密货币。 据称Chuen是“世界商最大的合成代谢类固醇生产商之一。” 制裁将阻止这些团体或Chuen在美国拥有任何资产，并将在美国的交易定为犯罪。
+员工福利律师、咨询公司美世的美国监管业务负责人韦德-西蒙斯告诉该报：”这是一次大规模的外流，医疗保健行业的很多人都愿意去出去找工作“。
 
-中共对世界的侵害无孔不入，向西方国家输入假药、毒品是他们弱化西方、瘫痪西方的计划之一。希望各国政府不要只在口头上抵制中共违反人权，压制民主，要把抗议变为实际行动。 Action！ Action！ Action！
+他说：”某些不需要疫苗强制的医疗机构可能会吸引那些不想接种疫苗的人，他们会更容易吸引劳动力”。
 
-**新闻来源：**
+拜登政府的授权要求所有参加医疗保险和医疗补助的设施的医护人员在1月4日前全面接种疫苗。11月，路易斯安那州的一名联邦法官裁定，医疗保险和医疗补助服务中心无权强制医护人员接种疫苗，据《纽约时报》报道。
 
-[https://www.ndtv.com/world-news/us-slaps-sanctions-on-3-chinese-firms-in-painkiller-crackdown-2653777](https://www.ndtv.com/world-news/us-slaps-sanctions-on-3-chinese-firms-in-painkiller-crackdown-2653777)
+据该报报道，联邦官员正在对这一决定提出上诉，该案件很可能会被提交给最高法院。周一，法院允许纽约对医护人员的疫苗强制求继续执行，而且大法官已经驳回了对其他疫苗强制的挑战。
 
-[拜登签令：制裁4国实体与个人！包括4家中国药企…… (toutiao.com)](https://www.toutiao.com/i7042098851552952846/?tt_from=copy_link&amp;utm_campaign=client_share&amp;timestamp=1639661669&amp;app=news_article&amp;utm_source=copy_link&amp;utm_medium=toutiao_ios&amp;use_new_style=1&amp;req_id=202112162134290101502192060D2B934E&amp;share_token=84371E52-EE87-48DC-84C6-1C2B746AC0F8&amp;group_id=7042098851552952846)
+据《华盛顿邮报》报道，这五家医院集团总共有300多家医院和50万名员工。但目前还不清楚有多少家医院会暂停疫苗接种任务，因为一些州，如加利福尼亚州和纽约州，对医护人员有自己的疫苗强制要求。
+
+HCA医疗集团是美国最大的医疗服务提供者之一，其27.5万名员工中的大多数人都接受了全面的疫苗接种。Intermountain医疗保健公司说，其98%的员工都接种了疫苗，克利夫兰诊所说其85%的员工都接种了疫苗。
+
+HCA发言人Harlow Sumerford告诉本报：”我们继续强烈鼓励我们的同事接种疫苗，这是保护个人免受病毒感染的关键步骤”。
+
+报道说，其他医院系统也保持了他们的疫苗接种强制。经营着39家医院、数百个医疗办公室并拥有21万名员工的凯撒医疗集团给员工们规定在12月1日前接种疫苗。到目前为止，98%的员工已接种疫苗。该医院系统在周三解雇了352名员工，还有1500名员工可能在1月初被解雇，除非他们完全接种疫苗或获得豁免。
+
+拥有7.7万名员工的纽约医疗机构Northwell Health也告诉本报，疫苗强制将继续执行。10月，该系统解雇了1400名未接种疫苗的员工。
+
+《邮报》报道说，那些放弃疫苗强制的医院通常会增加其他安全协议，如定期对员工进行测试。克利夫兰诊所正在增加更多的措施，例如测试那些为病人提供直接护理的人。
+
+原文链接：
+[https://www.webmd.com/vaccines/covid-19-vaccine/news/20211215/some-hospitals-drop-worker-vaccine-mandates](https://www.webmd.com/vaccines/covid-19-vaccine/news/20211215/some-hospitals-drop-worker-vaccine-mandates)
+
+* * *
+
+发稿 Spirit
 
  
 

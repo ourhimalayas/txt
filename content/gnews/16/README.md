@@ -2,151 +2,44 @@
 ---
 
 
-## 中共惧怕西方抵制冬奥运 改成官方不参与冬奥会
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1763167/)
+## 国会参众两院两党一致支持西藏独立，美国家灭共加速!
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1763257/)
 
-[https://gtv.org/video/id=61bb6764a68b4f4b28e93765](https://gtv.org/video/id=61bb6764a68b4f4b28e93765)
+撰稿：奔跑吧黄小丫
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Pictur-e1.png)图片来源：Congress.gov 
+郭文贵先生在12.15大直播中提到西藏独立的重要性问题，并指出美国正对“港台疆藏”会有意想不到的更多法案出台。“今天的这个西藏独立法案（应为公函），只是刚刚开始”。
 
-**郭文贵**
-**Miles Guo**
+缘起同一天，美国之音VOA等一些媒体纷纷报道了美国60多名国会两党参众议员致函国务院，督促拜登政府依据两党已基本达成共识的2002年“西藏政策法案”和2020年“西藏政策及支持法案”尽快推动美国西藏政策。
 
-冬奥会这件事情对他们的打击 这是一个
-The event of the Winter Olympics was a blow to the CCP
+我们先来简单了解一下2002年的“西藏政策法案”。该法案是建立在符合当时中美关系所处的政治大环境，正值中共国加入世界贸易组织WTO的同一年。法案中，美国承认西藏自治，为协助解决中共与达赖喇嘛及其代表的西藏之间所面临的问题，鼓励双方进行不设任何先决条件的实质性对话。那个时期，美国高级政府官员为表达对西藏宗教、文化及人权自由的尊重多次会见达赖喇嘛，达赖喇嘛明确否认有谋求西藏主权或独立的意图，称自己的目标只是为藏人寻求真正的自治。
 
-大家记住内部现在非常清楚了
-Keep in mind that the CCP internals are now very clear
+而2020年的“西藏政策及支持法案”由参议员卢比奥先生等人在2019年9月发起，次年1月得到了参众两院的一致通过。2020年法案**提议美国“在西藏拉萨设立领事馆”，**原主张美国鼓励中共与西藏展开“不设先决条件”的对话**，已变更为中共必须服从“无先决条件，与经民主选举产生的藏族领导人直接对话”。**
 
-内部下的文件很清楚
-and the documents under the internals are also very clear
+**同时还增加提议根据《全球马格尼茨基人权问责法》追究中共官员侵犯藏传佛教徒的宗教自由和人权的责任，针对共谋、直接或间接参与侵权的中共官员实施制裁。**这一跨越了川普和拜登两届政府的“2020年西藏政策及支持法案”，终于打破沉寂浮出水面。
 
-官方不出席奥运会
-The officials are not attending the Olympics,
+编号为HR6256的《防止强迫维吾尔人劳动法》也于美东时间12月14日晚在众议员通过。法案要求国土安全部拟定一项清单，列出与中共政府合作压迫新疆维吾尔穆斯林少数民族的实体，并禁止所有透过强迫劳动生产的商品流入美国市场。
 
-不能说西方抵制奥运会
-you cannot say that the West is boycotting the Olympics
+不容忽视的是，众议院在今年6月30日还推出了编号为H.R.4281的西藏独立法案。法案中追溯到西藏的法定历史，“1951年，中共胁迫西藏代表签署《十七点协议》。该协议规定‘西藏人民有权在中共政府的统一领导下行使民族区域自治权’，此外‘中共不会改变西藏现有的政治制度’。”而“西藏的建立比1951年的《十七点协议》早了几百年。”“1992年和1993年的《对外关系授权法》宣布，美国国会将西藏视为”被占领国”，根据国际法，中共对西藏的控制是非法的”。西藏独立法案提出的政策大致如下：
 
-不能有“抵制”两字
-There cannot be the word “boycott”
+- 承认在1951年前，西藏是一个独立的国家;
+- 申明中共对西藏地区的领土主张是无效的;
+- 承认西藏民选政府；
+- 对于支持中共非法占领西藏的人冻结其在美国及美国控制范围内的的财产，并实施移民限制令；
 
-你可见它敏感到啥程度
-You can see how sensitive the CCP is
 
-就像把盘古龙头变成鸟头，变成包头一样
-It’s just like they turning Pangu’s dragon head into a bird head or a bun
+历经70年，那块靠近喜马拉雅的神圣土地，那些苦苦追寻信仰的人民，终于迎来了希望的曙光。美国选择了正视中共对西藏的宗教、语言和文化和人权自由等方面的严重侵犯以及对青藏高原环境和水资源的严重破坏，不再纵容中共对中国与世界人民的肆意践踏和蹂躏。西藏独立法案的提出与民主共和两党灭共国家意志的形成，是中共政权遭美国国家抛弃并行将轰塌的风向标，更多针对新疆、香港及中共大陆等地的法案也必将接踵而至。
 
-就它认为这真的要我的命啊
-They believe that it really could take my life by doing that
+参考链接：
 
-我必须把它变成鸟头变成包头去
-so they must do it that way
+[2002年西藏政策法](https://2001--2009-state-gov.translate.goog/p/eap/rls/rpt/20699.htm?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=sc)
 
-你不怕？你怎么可能这样呢
-if you are not afraid, how would it possible by doing this?
+[H.R.4331 – 2019年西藏政策和支持法案](https://www.congress.gov/bill/116th-congress/house-bill/4331/text?r=19&amp;s=5)
 
-那你想想, 抵制奥运
-Then think about it, boycott the Olympics
+[H.R.4281 – 西藏独立法案](https://www.congress.gov/bill/117th-congress/house-bill/4281/text?q=%7B%22search%22%3A%5B%22Tibetan+Policy+and+Support+Act+2020%22%2C%22Tibetan%22%2C%22Policy%22%2C%22and%22%2C%22Support%22%2C%22Act%22%2C%222020%22%5D%7D&amp;r=7&amp;s=2)
 
-它这两字儿都不敢说，你可见对它伤害有多深
-The CCP dares not to say this word “boycott”, you can see how deeply it hurts the CCP
+[美国60多名国会两党参众议员致函国务院支持西藏自治](https://www.voachinese.com/a/lawmakers-urge-to-make-tibet-priority-20211214/6354909.html)
 
-就像失恋一样
-Just like a breakup
-
-对方的肾不行
-Your CCP partner’s kidney can’t function
-
-你不能说咱俩离开吧，因为你每次都不能让我高潮
-You cannot say let’s break up because you can’t make me orgasm every time
-
-你要说这话，对方就不会再跟你搞失恋，就搞死你了
-If you would said this, your CCP partners won’t breaking up with you anymore, and will kill you
-
-竟然说老子肾不行，那我不搞死你吗？
-You actually said their kidney function is not well? They will destroy you
-
-你可以说我不适合你
-You can say that I’m not fit for you
-
-这是骗人，这是懦弱，但你不能说你肾不行
-It’s a lie, it’s cowardice, but you can’t say their kidneys can’t function
-
-现在共产党就是咱不能说咱肾不行
-The Communist Party internally means that the West Countries can’t say their (the CCP’s) kidneys can’t function
-
-是西方的人不行
-(the officials are not attending the Olympics) is the Westerners can’t come
-
-这一点就对它有多大的致命的伤害
-At this point of view, how fatal it hurts the CCP
-
-第二，经济上在内部下了个通知
-Secondly, the CCP has issued an internal notice financially
-
-特别是中央银行郭树清这儿，还有这个周亮那儿
-especially for the Central Bank where Guo Shuqing and Zhou Liang are located
-
-说中国的经济只能向好、局部调整、对外一致口径
-when we (the CCP) talk about China’s economy, it can only be improved, par-tially adjusted, and externally consistent
-
-你看看啊，多可怕
-Look how terrible it is
-
-我钱没事呀，我有钱呀，是吧？
-(The CCP bluffing) I’m fine with money, I’m rich right?
-
-我这个钱，就经济向好、局部调整
-For my money, the economy will improve and some adjustments will be made
-
-说那地产有事，局部调整
-Saying that there is something wrong with the property, it would be some par-tially adjustment
-
-贸易不好，局部调整
-Saying that the trade is not good, it will be some adjustment
-
-一个局部调整都给你局部了
-This partial adjustment covers all the debt fraud
-
-但是一切都是向好
-but everything is improving
-
-你看这种骗人呀
-Take a look at this kind of deceit
-
-西方绝对是官方不去任何人去一点意义都没有
-In the West, if the government does not go, it is absolutely meaningless if any-one goes
-
-现在找各种非洲、南美那些独裁国家
-The CCP is currently looking for all kinds of dictatorship countries in Africa and South America
-
-现在已经明确了
-It’s clear now that
-
-只要你派官方来，我们就给你什么什么样赞助
-as long as you send an official, we will give you certain sponsorships,
-
-免贷款赞助
-the loan-free sponsorships
-
-**原视频链接:** [https://gettr.com/post/pjjifl68f6](https://gettr.com/post/pjjifl68f6)
-
-Date: 12/13/2021
-原视频标题: 中共惧怕西方抵制冬奥运 改成官方不参与冬奥会
-The West Boycotts the Winter Olympics Has Been Changed to The Officially Not Participate in The Winter Olympics by The CCP Due to The Fear
-原视频日期：2021/12/12
-原视频链接: https://gettr.com/post/pjjifl68f6
-任务编号：KC341（3219）
-视频时间段 : 0:00-2:09
-
-英听校: 洛杉矶盘古农场 – 郭班之樱
-翻译: 洛杉矶盘古农场 – 郭班之樱
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 –天涯行
-审片：洛杉矶盘古农场 –银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+校对发布：Shifter
 
  
 
