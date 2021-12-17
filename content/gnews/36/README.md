@@ -2,34 +2,50 @@
 ---
 
 
-## 大陆知名游戏主播注射毒疫苗后入院
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1765114/)
+## 【Michael.Tonny专栏】接种中共病毒疫苗患心脏病的风险比其它疫苗增加103倍（上）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1765481/)
 
-作者：香草山商业部–秋末的落叶
+作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-5-768x103-15.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
+根据美国CDC（Centers for Disease Control and Prevention）的报告，截至2021年12月8 日，VAERS（Vaccine Adverse Event Reporting System）已收到1,908份12-29 岁人群在接种COVID-19疫苗（中共病毒疫苗）后患心肌炎（Myocarditis）或心包炎（Pericarditis）的报告。大多数病例是在接种Pfizer-BioNTech 或 Moderna的mRNA 中共病毒疫苗后报告的，尤其是在男性青少年和年轻人中。通过包括病历审查在内的随访，CDC和FDA（U.S. Food&Drug Administration）已确认1,106份心肌炎或心包炎报告。
 
+CDC在报告中称，接种中共病毒疫苗后的心肌炎和心包炎很少见（Myocarditis and pericarditis after COVID-19 vaccination are rare），断言这些心脏病的副作用“罕见”，是完全荒谬的。
 
-大陆时间2021年12月11日，大陆游戏主播卡莎因抽搐和呼吸困难，被紧急送入医院抢救，卡莎在医院发布了一张手臂输液的照片，据悉他于2021年8月前后注射了中共病毒疫苗。
+在CDC自己的 VAERS 中，当我们将查询条件设置为所有接种中共病毒疫苗后，患心肌炎、心包炎及其他心肌炎和心包炎的30 岁以下年轻人时，这个数字实际上是3,262 例。比CDC自己报告的数据多得多。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/carditis-VAERS-12.3-under-30.jpg)
+当我们将查询条件设置为所有接种中共病毒疫苗后，患心肌炎、心包炎及其他心肌炎和心包炎的所有年龄段的人时，这个数字是12,855例。
 
-卡莎游戏直播间常年在线人数为40万人左右，十分有人气。本有大好前途的游戏选手在共产主义体制下落得如此狼狈，难逃冷血体制的洗礼。生活在大陆的人即使不想活在现实，只想活在虚幻的网络之中，共产党的度疫苗也会害死你，无论身处各地，只要中共不灭，就永远不会有安全的地方存在。万恶共匪为首，万毒红毒最毒。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/carditis-all-ages-12.3.jpg)
 
-背景：Apex英雄作为众多大逃杀类游戏之一，凭借着非凡的制作以及操作体验，已经取得了世界超一流大逃杀游戏的地位。卡莎就是大陆最强选手之一，20多岁的年纪凭借着异于常人的游戏理解和超凡的反应能力，多次带领队伍取得世界联赛前五的成绩。
+而当我们查询同期接种其它疫苗后，患心肌炎、心包炎及其他心肌炎和心包炎的所有人时，这个数字是125例。
 
-编辑/审核/发稿：Bronx Bombers
+![](https://assets.gnews.org/wp-content/uploads/2021/12/carditis-all-vaccines-1-year.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/unknown-4.jpg)
+据此推算，接种中共病毒疫苗患心脏病的风险比接种其它病毒疫苗增加了12855÷125=102.84倍或103倍。
 
-**更多资讯，更多关注**
+必须提醒的是，根据哥伦比亚大学（Columbia University）Spiro Pantazatos和Herve Seligmann对VAEARS系统的研究后发表的论文《[COVID vaccination and age-stratified all-cause mortality risk](https://www.researchgate.net/publication/355581860_COVID_vaccination_and_age-stratified_all-cause_mortality_risk)》结论，CDC和FDA 的VAERS报告系统至少漏报了 20倍。而Jessica Rose和Mathew Crawford对VAEARS系统的研究后发表的论文《[Estimating the number of COVID vaccine deaths in America](https://downloads.regulations.gov/CDC-2021-0089-0024/attachment_1.pdf)》结论是至少漏报了41倍或更多。
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[接下篇：【Michael.Tonny专栏】接种中共病毒疫苗患心脏病的风险比其它疫苗增加103倍（下）](https://gnews.org/zh-hans/1765523/)
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+参考数据：
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[CDC Admits COVID-19 Shots Causing Heart Disease but Won’t Stop the Injections – Does Pfizer Now Control the CDC and FDA?](https://healthimpactnews.com/2021/cdc-admits-covid-19-shots-causing-heart-disease-but-wont-stop-the-injections-does-pfizer-now-control-the-cdc-and-fda/)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[Selected Adverse Events Reported after COVID-19 Vaccination](https://www.cdc.gov/coronavirus/2019-ncov/vaccines/safety/adverse-events.html)
+
+[Heart Inflammation](https://www.nhlbi.nih.gov/health-topics/heart-inflammation)
+
+[Myocarditis](https://www.mayoclinic.org/diseases-conditions/myocarditis/symptoms-causes/syc-20352539)
+
+[Estimating the number of COVID vaccine deaths in America](https://healthimpactnews.com/2021/study-governments-own-data-reveals-that-at-least-150000-probably-dead-in-u-s-following-covid-19-vaccines/)
+
+[COVID vaccination and age-stratified all-cause mortality risk](https://www.researchgate.net/publication/355581860_COVID_vaccination_and_age-stratified_all-cause_mortality_risk)
+
+[OpenVAERS COVID Vaccine Data](https://openvaers.com/)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/) 上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

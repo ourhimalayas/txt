@@ -2,21 +2,17 @@
 ---
 
 
-## 中共没有一首歌颂大自然的歌
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1765639/)
+## 【文贵先生大直播PPT】疫苗大灾难
+` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1765669/)
 
-文编：东京樱花团/樱花传媒
+撰稿：李昂纳多【DC】坐看云起时【扬帆】MyWay【扬帆】莲心不染【扬帆】
+美工：Bobby（文俊）【英喜】
 
-视频:东京樱花团/中文小视频组
+【2021年12月17日文贵先生大直播PPT：疫苗大灾难】
+![](https://assets.gnews.org/wp-content/uploads/2021/12/33.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/22-10.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/23-7.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/24-7.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/25-6.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/26-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/27-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/28-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/29-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/30-2.jpg)
+* * *
 
-12月10日，郭文贵先生在GTV大直播指出：
-
-人类生于自然，活于自然，没有大自然就没有人类。音乐是人类和万物沟通的桥梁，动物听到音乐会安睡，花木听了音乐会绽开美丽的花朵。但想统治世界的第二强国的中共国，竟然没有一首发自内心的，歌颂大自然的歌曲。中共歌曲的出处都是来自生殖器或杀掠，歌词充满了谎言。
-
-编辑：东京樱花团/墨然
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.jpg)
-
+发稿：云起时
 
  
 
