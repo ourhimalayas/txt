@@ -2,26 +2,27 @@
 ---
 
 
-## 增设专员职位！日本要对中共真行动？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1764199/)
+## 卢比奥策略推进国会通过《防止维吾尔族强迫劳动法》
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1764241/)
 
-撰稿：东京樱花团/闻雨
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-859.png)[图片来源](https://www.chinatimes.com/realtimenews/20200410004795-260408?chdtv)
-12月17日 日本经济新闻报道：外交部将在2022财年设立一个新官员职位，以处理有关台湾的问题。12月17日 自民党在外交事务委员会的会议上就此政策做了说明。外交委员会主席佐藤正久先生告诉记者说，因考虑到台湾的紧张局势，该职位将得到加强。
+#### 撰稿：彩虹
 
-这个新职位将设在中国和蒙古第一科，还将负责东海局势，包括冲绳县的尖阁群岛。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-26.jpg)图片来源：雅虎
+周四，参议院一致同意，通过了一项旨在打击中共国对新疆维吾尔族穆斯林人口进行种族灭绝的法案，同时确认了拜登总统提名的驻北京大使和另外两名被提名人。12月16日，《国会山报》对此进行了报道。
 
-佐藤还告诉记者：”我们在安全、外交和经济安全方面对台湾的工作越来越多。这是一个很大的进步”。
+根据这项名为《防止维吾尔族强迫劳动法》（Uyghur Forced Labor Prevention Act）的法案，将禁止从中国新疆地区进口商品，除非个人或公司能够证明商品或材料是在没有奴役的情况下制造的。
 
-外交部已经宣布，它将在2022财政年度设立一名规划官员，负责处理海外人权问题，包括中共政府在新疆的侵犯人权行为。
+该法案的共同提案人包括参议员马尔科·卢比奥（Marco Rubio）和杰夫·默克利（Jeff Merkley）。
 
-日本政府终于有动静了，保护和日本有相同价值观的台湾就是保护日本自己。如果日本还想着和中共勾兑，赚点儿钱的话，日本将会为此付出巨大的代价。希望日本政府不是仅仅虚设一个官员职位。
+根据报道，在提出该法案的同时，参议院以75票对18票确认了拜登提名的驻中共国大使人选尼古拉斯·伯恩斯（Nicholas Burns）。此外，以76票对13票确认了经济和商业事务助理部长（assistant secretary for Economic and Business Affairs）提名人拉明·托鲁伊（Ramin Toloui），以85票对5票确认了国际宗教自由无任所大使提名人拉沙德·侯赛因（Rashad Hussain）。
 
-信息来源：[台湾担当の企画官、外務省が新設へ　22年度から](https://www.nikkei.com/article/DGXZQOUA1723Y0X11C21A2000000/)
+报道披露，这些提名人的确认值得注意，因为部分共和党议员对拜登的几十个国务院和国防部提名人选实行了“搁置”策略，而卢比奥之所以同意解除他对伯恩斯的“搁置”，以及确认托鲁伊和侯赛因，目的是换取在与参议员克里斯·墨菲（Chris Murphy）的协议中推进通过维吾尔族法案。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
+**新闻报道**
+
+[Senate passes Uyghur bill, confirms China ambassador](https://thehill.com/homenews/senate/586239-senate-passes-uyghur-bill-confirms-china-ambassador)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

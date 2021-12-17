@@ -2,26 +2,28 @@
 ---
 
 
-## 美国陆军称98%的部队接中了中共病毒疫苗
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1763817/)
+## COVID-19 最新情报｜英国每日 COVID 病例创新高 欧盟称可能再持续 2-3 年
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1763916/)
 
-编译：花岗岩
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-24.png)
-图片来源：网络截图
+**疫情關注組 / 發佈時間｜17/12/2021**
 
-据合众国际社12月16日报道，美国军方周四宣布，绝大多数陆军和海军陆战队员已经在本周的联邦最后期限前及时接种了中共病毒疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-陆军表示，超过468,000名士兵至少已经接受了第一剂疫苗。官员们说，96%，约46.1万人，已经完全接种。陆军还表示，约有3800名现役军人拒绝接受疫苗，现正在被驱逐过程中。
 
-陆军部长克里斯蒂娜·沃姆斯在一份声明中说，为士兵接种中共病毒疫苗，是关于军队准备就绪首要任务。“对于那些继续拒绝接种疫苗的人，我强烈鼓励你们去接种疫苗。如果还是不愿意，我们将开始非自愿离职程序”。陆军表示，它仍在处理豁免请求，这些请求属于医疗、宗教和行政性质。
+英国卫生部门周三报告78,610 例COVID新增确诊病例，相较于周二(一天前)的59610例多出了1.9万例。78,610 例新增确诊数，据Our World in Data统计图表（下图）显示，已突破COVID疫情以来英国的每日新增病例历史纪录。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/coronavirus-data-explorer-1-1.png)英國每日新增確診數。來源：Our World in Data
+英国自新冠疫情以来，防疫政策依赖新冠疫苗，但疫情仍未受到有效的控制。下图显示，第二个感染高峰值为“Delta病毒”，第三高峰(仍持续成长的部分)为“Omicron病毒”。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/coronavirus-data-explorer-3.png)每百万人中每日新增确诊的 COVID-19 病例(7 天滚动平均值)。来源：Our World in Data
+## 住院率、病死率、重症率
+![](https://assets.gnews.org/wp-content/uploads/2021/12/coronavirus-data-explorer-2-1.png)来源：Our World in Data
+左上部分为新增病例统计图表；右上为住院治疗病例；左下为重症治疗统计；右下为新增死亡病例。
 
-现役陆军部队接受至少一剂疫苗的联邦截止日期是星期三，这是美国所有军事部门的最新截止日期。
+外媒撰文指出，英国的新增确诊人数暴增并突破历史新高，但住院治疗、重治治疗及死亡率并未显著提高。结合英国目前主要病毒威胁为Omicron病毒，可以得知Omicron病毒本身具高传染性、低致死、低重症率。此外，英国政府前段时间宣布将修改完整接种定义，应接种第三剂加强针方属于“完全接种”，足见[新冠疫苗对于防治Omicron病毒（及其他新冠病毒）效力未达原先预期](https://gnews.org/zh-hant/1749697/)。
 
-海军陆战队星期四宣布，它开除了103名拒绝接受疫苗的军人，该军种95%的服役人员已经接种了疫苗。
-
-美国海军本周早些时候说，它开始驱逐约5700名拒绝接种疫苗的水兵。美国空军周一表示，它们已经清除了二十多名拒绝接种的空军人员。
-
-新闻来源：[U.S. Army says 98% of troops received COVID-19 vaccine; Marines expel 103 members](https://www.upi.com/Top_News/US/2021/12/16/army-soldiers-covid-vaccinated/7991639673272/)
+欧洲疾病和控制中心预测疫情将会延烧2至3年时间。英国卫生安全局（UK Health Security Agency） 首席执行官珍妮·哈里斯 (Jenny Harries) 表示，预计每日英国Omicron 感染的人数近 20 万，Omicron将成为英国的主要威胁。另有[报导](https://gnews.org/zh-hant/1749697/)指出，Omicron病毒虽具备高传染性，但实际威胁（致死、重症率）并未如官方所警告。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-5.png)
+来源｜[ZeroHedge](https://www.zerohedge.com/markets/uk-suffers-record-jump-daily-covid-cases-eu-warns-pandemic-could-last-2-3-more-years)\Our World in Data\[Gnews](https://gnews.org/zh-hant/1749697/)
 
  
 
