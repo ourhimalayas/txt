@@ -2,44 +2,43 @@
 ---
 
 
-## 越南发生第5起“学生在注射辉瑞疫苗后死亡”事件
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1762545/)
+## 美国一些大型医院放弃了疫苗强制
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/1762698/)
 
-**【简评：】***综合各种数据，因接种中共新冠病毒疫苗导致疾病、残疾甚至死亡的悲惨案例数不胜数。官方说是第5例，真实数字是多少谁知道呢。再者，同为社会主义国家的越南，疫苗致死事件好歹还能被报道，墙国内疫苗受害者的声音，又有谁能听到呢？*
+加拿大扬帆农场 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2021/12/DLKZYTG4ZJB2RAKCZ7RLTQSC4I.jpg)图片来源：WFTV
+根据《WebMD》12月15 日报道，在联邦法官暂时停止拜登政府对医护人员的疫苗强制后，美国一些大型医院集团已经放弃了对员工的COVID-19疫苗强制。
 
-据《[TienphongNews](https://tienphongnews.com/author/admin)》2021年12月14日报道：
+AdventHealth、Cleveland Clinic、HCA Healthcare、Intermountain Healthcare和Tenet Healthcare表示暂时取消了疫苗强制以帮助解决劳动力短缺问题。医院一直在努力留住足够的护士、技术人员和清洁工，以处理大流行病期间最新的住院人数激增。
 
-**越南广治省的一名高中生在接种了辉瑞公司的新型冠状病毒疫苗后死亡，成为越南第5名接种疫苗的儿童受害者。**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-843-e1639684841174.png)图片来源：vietnamnet.vn
-Trieu Phong 区医疗中心主任 Vo Thanh Tam 说，17 岁的 N.T.N.N于12月2日在该区的一个疫苗接种点接种了疫苗。
+《华尔街日报》报道说，职业倦怠、劳动力成本和疫苗强制的原因，最近几个月，数以千计的工人离开了这个行业或失去了工作，而不是去接种疫苗。
 
-在早期的筛查过程中，N.T.N.N说她对抗生素过敏，但她的家人鼓励她接种疫苗。
+员工福利律师、咨询公司美世的美国监管业务负责人韦德-西蒙斯告诉该报：”这是一次大规模的外流，医疗保健行业的很多人都愿意去出去找工作“。
 
-接种疫苗后25分钟，该女学生出现休克、过敏反应和低血压症状。
+他说：”某些不需要疫苗强制的医疗机构可能会吸引那些不想接种疫苗的人，他们会更容易吸引劳动力”。
 
-随后，N.T.N.N接受了抗过敏治疗，然后被转移到广治省总医院接受紧急治疗。在途中，她心脏骤停，呼吸困难。
+拜登政府的授权要求所有参加医疗保险和医疗补助的设施的医护人员在1月4日前全面接种疫苗。11月，路易斯安那州的一名联邦法官裁定，医疗保险和医疗补助服务中心无权强制医护人员接种疫苗，据《纽约时报》报道。
 
-在（广治省总医院）治疗期间，她经历了凝血障碍。医院呼吁医务人员和人们献血，但不幸的是，女孩在12月9日死亡。
+据该报报道，联邦官员正在对这一决定提出上诉，该案件很可能会被提交给最高法院。周一，法院允许纽约对医护人员的疫苗强制求继续执行，而且大法官已经驳回了对其他疫苗强制的挑战。
 
-这是越南第 5 名接种 COVID-19 疫苗的儿童受害者。另外4名遇难者分别在北江、河内、平福和山拉。
+据《华盛顿邮报》报道，这五家医院集团总共有300多家医院和50万名员工。但目前还不清楚有多少家医院会暂停疫苗接种任务，因为一些州，如加利福尼亚州和纽约州，对医护人员有自己的疫苗强制要求。
 
-**越南目前正在为12至17岁的儿童进行COVID-19疫苗接种。卫生部已经批准了辉瑞和Moderna的疫苗，但只有辉瑞的疫苗可以用于该年龄段。**
+HCA医疗集团是美国最大的医疗服务提供者之一，其27.5万名员工中的大多数人都接受了全面的疫苗接种。Intermountain医疗保健公司说，其98%的员工都接种了疫苗，克利夫兰诊所说其85%的员工都接种了疫苗。
 
-原文连接[：https://tienphongnews.com/fifth-student-dies-after-receiving-pfizer-vaccine-shot-in-vietnam-251315.html](https://tienphongnews.com/fifth-student-dies-after-receiving-pfizer-vaccine-shot-in-vietnam-251315.html)
+HCA发言人Harlow Sumerford告诉本报：”我们继续强烈鼓励我们的同事接种疫苗，这是保护个人免受病毒感染的关键步骤”。
 
-翻译：洛杉矶盘古农场 – 河马甩尾(Yi)巴
+报道说，其他医院系统也保持了他们的疫苗接种强制。经营着39家医院、数百个医疗办公室并拥有21万名员工的凯撒医疗集团给员工们规定在12月1日前接种疫苗。到目前为止，98%的员工已接种疫苗。该医院系统在周三解雇了352名员工，还有1500名员工可能在1月初被解雇，除非他们完全接种疫苗或获得豁免。
 
-校对：洛杉矶盘古农场–Mike Li
+拥有7.7万名员工的纽约医疗机构Northwell Health也告诉本报，疫苗强制将继续执行。10月，该系统解雇了1400名未接种疫苗的员工。
 
-评论：洛杉矶盘古农场 – 河马甩尾(Yi)巴
+《邮报》报道说，那些放弃疫苗强制的医院通常会增加其他安全协议，如定期对员工进行测试。克利夫兰诊所正在增加更多的措施，例如测试那些为病人提供直接护理的人。
 
-编辑：洛杉矶盘古农场 – 柯镇恶
+原文链接：
+[https://www.webmd.com/vaccines/covid-19-vaccine/news/20211215/some-hospitals-drop-worker-vaccine-mandates](https://www.webmd.com/vaccines/covid-19-vaccine/news/20211215/some-hospitals-drop-worker-vaccine-mandates)
 
+* * *
 
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+发稿 Spirit
 
  
 

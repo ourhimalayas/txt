@@ -2,44 +2,43 @@
 ---
 
 
-## 班农先生荣获《国家脉动》第二届年度爱国者奖
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1762894/)
+## 证据：中共病毒COVID疫苗导致朊病毒疾病
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1762951/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/8121-2.jpg)图片来源：Gnews
+本文作者：Rebecca (一切心皆不可得！)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image001-10.png)
+据《自然新闻网》报道，mRNA疫苗正在导致朊病毒疾病。人们在注射前没有这些疾病，而在注射后却突然患上了这些疾病。对此没有其他解释。
+
+朊病毒疾病是不可治愈的，而且总是致命的。接种COVID疫苗后，最快6周就会死亡（见6周内和6个月内的例子）。
+
+以下内容来自Steve Kirsch 转载自 [SteveKirsch.Substack.com](https://stevekirsch.substack.com/p/proof-covid-vaccines-cause-prion)
+
+我写了一条推特，说疫苗会导致朊病毒病。推特给那条推文标签为“具误导性”。
+
+这根本不是事实。我的陈述在科学文献和VAERS数据中也得到了验证。
+
+见[https://stevekirsch.substack.com/p/proof-covid-vaccines-cause-prion](https://stevekirsch.substack.com/p/proof-covid-vaccines-cause-prion)并阅读所有的评论，这表明我不是唯一对数据有这种评估的人。
+
+早在2021年5月，当Byram Bridle教授披露关于辉瑞公司疫苗生物分布数据的FOIA请求时，提到穗状蛋白与路易体形成有关，而路易体与朊病毒疾病有关。他表示担心，疫苗可能导致朊病毒疾病，如痴呆症、阿尔茨海默氏症和克雅氏病（CJD）。
+
+几小时后，Twitter暂停了我的账户。没有上诉的机会。过去12年里的所有内容都被删除。我的7.5万名追随者全部被清零。我的信息被删除。没有机会下载我的内容。
+
+唯一留下的是：我的Twitter ID是@stkirsch。
+
+如需了解更多内容，请阅读文章，链接如下：
+
+- [杰西卡-罗斯关于COVID疫苗和朊病毒疾病的文章](http://Jessica%20Rose’s%20article%20on%20COVID%20vaccines%20and%20prion%20diseases)
+- [Stephanie Seneff关于朊病毒疾病和COVID疫苗的论文](http://Stephanie%20Seneff’s%20paper%20on%20prion%20disease%20and%20the%20COVID%20vaccines)
+- [Bart Classen的论文将疫苗和朊病毒疾病联系在一起](http://Bart%20Classen’s%20paper%20linking%20the%20vaccines%20and%20prion%20diseases)
+- [SARS-CoV-2导致猕猴的脑部炎症并诱发路易体的形成](http://SARS-CoV-2%20causes%20brain%20inflammation%20and%20induces%20Lewy%20body%20formation%20in%20macaques)
+- **[SARS-CoV-2 穗状蛋白中的朊病毒样域使其与ACE2的亲和力更高](http://SARS-CoV-2%20Prion-Like%20Domains%20in%20Spike%20Proteins%20Enable%20Higher%20Affinity%20to%20ACE2)**
 
 
-#### 整理报道：文泓
+[新闻来源链接](https://www.naturalnews.com/2021-12-10-proof-covid-vaccines-cause-prion-diseases.html)
 
-美国时间12月16日，《国家脉动》主编宣布，史蒂夫·班农先生荣获《国家脉动》第二届年度爱国者奖。
-现年68岁的班农在2016年引起了全国的关注，帮助带领川普竞选团队以惊人的优势击败希拉里克林顿和民主党机器。从那以后，班农一直担任白宫首席战略官，并与前川普通讯主管杰森米勒和国家脉搏总编辑拉希姆·卡萨姆一起创立了非常成功的《班农战争室》：大流行播客。
+审核校对：sherryok (水云间)
 
-班农出生于弗吉尼亚州诺福克，是多丽丝和马丁班农的儿子。他曾就读于弗吉尼亚理工大学，在加入美国海军之前成为学生会主席，同时获得国家安全研究硕士学位，然后在哈佛商学院获得MBA。
-班农曾在保罗·福斯特号航空母舰服役，然后在弗吉尼亚州五角大楼担任海军作战部长的特别助理。
-
-离开海军后，班农去了高盛工作，在那里他会花几年时间了解他现在每天两次的节目所反对的那些精英阶层的全球主义商业运作。
-几年后，他在好莱坞建立了自己的业务，其本人制作了多部电影，包括里根史诗《直面邪恶》和2012年的《揭露占领》。
-
-2009年金融危机后不久，班农与传奇性的保守派火爆人物安德鲁·布赖特巴特合作，他们搭档继续为布赖特巴特新闻网站制定发展计划。布雷特巴特于2012年去世，班农担任执行主席。他将该网站建成了一个民粹主义/民族主义保守主义的全球中心，这令建制派媒体和政治阶层感到震惊和恐惧。
-
-2016年8月，班农应邀加入川普竞选团队，担任其首席执行官。当时，该竞选团队在几乎所有摇摆州都处于下风。正是班农的坚定性和纪律性帮助竞选团队重新调整并顺利度过了臭名昭著的“比利·布什周末”，在这个周末，一盘以候选人川普私下发表猥亵言论为主题的录音带被公布。
-
-自从离开白宫和布莱巴特新闻网后，班农以《战争室》播客的形式建立了一个右翼势力。该节目现在被视为全球所有政治和新闻媒体中最重要的节目之一，并且是第一个在世界卫生组织、安东尼·福奇等人之前就认识到即将到来的大流行的危险的节目。
-**事实证明，班农和他的团队对中国共产党（他心中的对手）和病毒起源的判断是正确的。**
-自1月6日美国国会大厦发生骚乱以来，班农一直是1月6日欺诈委员会的焦点，被控蔑视国会，并再次被企业左翼媒体视为仇恨人物。
-
-《国家脉动》主编强调，政治迫害是我们今年要向班农致敬的原因之一：
-
-当我听说史蒂夫被国会蔑视时，我给他发了短信，让他知道，世界上没有任何机构比现在的国会更希望被藐视了。这是一个荣誉的徽章，应该如此佩戴。我们很高兴向史蒂夫颁发第二届年度爱国者奖，**这不仅是因为他敢于站出来反对腐败的政治精英、中国共产党和世界各地的激进伊斯兰主义者，还因为他对整个西方世界的保守主义运动的不懈的努力，以及他对这个共和国的建国原则的恒久承诺。我很自豪地称史蒂夫为导师、朋友和****2021年国家脉搏的年度爱国者。**
-
-新闻链接：[National Pulse Patriot of The Year 2021: Stephen K. Bannon. (thenationalpulse.com)](https://thenationalpulse.com/news/national-pulse-patriot-of-the-year-2021-stephen-k-bannon/)
-
-**发布：文泓**
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+上传排版：漂流瓶
 
  
 

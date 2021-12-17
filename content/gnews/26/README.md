@@ -2,33 +2,88 @@
 ---
 
 
-## 七哥谈买房（2021-12-15摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1763005/)
+## 美国制裁中共的几大重招
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1763036/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+[https://gtv.org/video/id=61bb64fba68b4f4b28e936a6](https://gtv.org/video/id=61bb64fba68b4f4b28e936a6)
 
-来源：郭先生2021-12-15直播09:04:04 摘录
+**郭文贵**
+**Miles Guo**
 
-为什么我们要每天谈房地产，为什么？我给大家举个例子啊，盘古被开除掉的这一千多个员工，被撵到大街上去了，到现在我跟任何人没有联系。就在昨天下午的时候，其中有一个在四川的一个员工的家属，她母亲曾经也是我们的员工，后来她女儿又来了。她是2002年就开始跟我们工作，那时候盘古沒开始建的，就是她从最早的时候是1999买完地，2000年申请完奥运会，她妈在这工作，后来是她跟她妈在这工作，后来她在这工作。这样的一个员工家人，她妈给我发信息，她讲了一个最简单的故事，他说我孩子在北京和我，我们都买了房子啊。干了这个这一二十年啊，然后呢我们是盘古人，她说我的前三十年是在这个小城市活着的。我的后二十年，是在盘古跟你一起活着的。我的女儿生下来以后长大，十八岁以后就是跟盘古活着的。她说我们一家两代人都买了房子，她现在我们在北京现在想卖房子说，我们降价卖不让我们卖。而且一家人在过去，她说郭先生，我就听了你的，我们全家买了挣钱的房子，也就是付了300块人民币的定金，买了1平方米的房子。她说每套房子都赚了2,000多万，又听了你七哥的直播，我们把房子给卖了，我们钱也都拿回来了。现在是我们在外边买的房子，就是打折卖，没人买。啊，这是一个我们两代的房子，就没听你，没了！他说不但是我们这样，是整个北京，但是我问了一下我们四川的老乡，几乎是只要超过500万的房子，你挂牌以后跟那个市场的要价，根本不可能。他最可怕的是银行，他银行在春节前还让我们跟他做假账。什么，还贷款呢，你多给我点钱呢，我借给你点钱呢，你给我充什么贷款，他一堆复杂的东西。最后我们这位老战友的娘，第一代战友，第一代这个员工。他说：郭先生是你让我们变成了一切不一样，但是现在，是真的一切又像把我们打回的原形一样。孩子去公司给的是 N 加2补偿，公司啊据说我都不知道，因为没有认真的跟我联系。结果是法院说不允许，给 N 加1补偿。大家你们要看一看，全中国南北发行什么事情，很多公司这事情，就人家员工工那么长，人家就该得到这补偿。当然盘古和裕达是最特别的公司，给员工公司这种情况下，记住啊，已经被给全部没收情况下，还给 N 加2补偿，法院不同意， N 加1。公司要给所有员工遣散费之外的回家费，路费，搬家费啊。全部都是按三个月工资给，法院不同意。更重要的事情，我们这位战友的娘说了一句话。她说，你知道我在我们老家现在发生什么事，我老家的房子，现在政府登记完以后啊，马上的邀请你，答应像咱们锁币，币加锁一样，他们叫闭家房啊，3-5年内不能卖，因为你曾经有过三套房。这是已经到了，这不是已经共产，已经不是抢钱，已经不是山东养狗，养狗啊，警察告诉你养狗100块人民币。现在房子三年锁房，而且银行跟你造假，提前交三年物业管理费，银行贷给你的物业管理费。房地产现在是共产党捂不住的啊，在裤裆下那个大窟窿了已经。这是个天大的事情，这为什么今天我们还要继续谈房产，让所有的国内同胞们，你们一定要记住，我们告诉你今天的话。房地产可以毁掉你两代人，三代人，四代人，会让你成为房奴。
+就是关于这8个问题，说实在的，我还真不能说
+about these eight questions, to be honest with you, I really can’t say it
 
-校对：HimaFaFA
-发布：HimaBoy
+就比如上次我说完以后，大家要看一看美国现在民主党出现了多少总统候选人
+For example, after I finished last time, everyone should take a look at how many presidential candidates have appeared in the Democratic Party in the United States
 
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+大家看一看，几乎是多过10个，这在两个月前是不可能的
+Everyone should take a look, there are almost more than 10 people which was impossible two months ago
 
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+共和党几乎也超过10个，所以说2022年的中期选举
+There are almost more than 10 Republicans, so the midterm elections in 2022
 
-**关注我们**
+共和党(如果)没有出现巨大的天崩地裂的意外的话它一定会赢，它赢完以后
+if there is no huge accident in the Republican Party, Republicans will definitely win and after it wins
 
-Discord 账号
+川普的定位，班农的定位，还有这些要选共和党的未来总统的这些人的定位
+Trump’s position, Bannon’s position, and the position of these people who want to run the future president of the Republican Party
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+和民主党选总统的人定位，这个是大战，但是有一件事你可以看得出来
+and the position of the Democratic Party to run the president, this is a huge battle, but there is one thing you can tell
 
-Gettr 账号
+所有的你能想象到的这两党的总统候选人，100%都会去灭共
+you can imagine that all the presidential candidates of these two parties will take down the Communist Party 100%
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+其中的8招之核心的招我告诉你，最终核心的就是一定是经济脱钩
+let me tell you that the core of the eight measures, the ultimate core must be economic decoupling
+
+一定要查处共产党高官在西方的资产，看到你七哥最近2017年说的
+They must investigate the assets of high-ranking Communist Party officials in the West, look at what I said in 2017
+
+七哥和新中国联邦一定会让西方依法快速全球行动
+Miles and the New Federal State of China will surely ask the West to act quickly and globally in accordance with the law
+
+查处共产党的所有在海外的私生子女和资产，这是灭共最重要的
+Investigate all the illegitimate children and their assets of the Communist Party abroad, this is the most important thing for taking down the Communist Party
+
+这就是(为什么)我们希望习太阳活着，因为只有他活着(别人)才能看到他家人有多少钱
+This is why we want Xi Sun to live, because only he is alive and others can see how much money Xi’s family has
+
+看到他们的所有的同党，所谓无神论的人是多少人信神
+seeing all their accomplices, how many people are so-called atheists who be-lieve in God
+
+所谓的无产阶级的共产党是有多少产，这个一定会发生
+How much property does the so-called proletarian Communist Party have, this will definitely happen
+
+还有一个更(会)发生的，大家一定要看到
+There is one more thing will happen, everyone will definitely see
+
+共产主义会被列为人类上的邪教，跟恐怖主义相提并论
+Communism will be classified as a cult for humans, on par with terrorism
+
+人人可合法杀之，这才是重中之重
+Everyone can be killed it legally, this is the top priority
+
+**原视频链接:**[https://gettr.com/post/pjjfy36f2b](https://gettr.com/post/pjjfy36f2b)
+
+Date:12/15/2021
+原视频标题: 美国制裁中共的几大重招
+The U.S. has several major measures to sanction the CCP
+原视频日期：2021/12/12
+原视频链接https://gettr.com/post/pjjfy36f2b
+任务编号：KC342（3221）
+视频时间段 : 0:00-2:07
+
+中听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 –
+字幕+视频制作：洛杉矶盘古农场 –青梅煮酒
+审片：洛杉矶盘古农场 –银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
