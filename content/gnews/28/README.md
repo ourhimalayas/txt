@@ -2,26 +2,53 @@
 ---
 
 
-## 美国制裁与芬太尼相关的中共制药商
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1762635/)
+## 美国客运铁路Amtrak暂停为员工接种疫苗
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1762661/)
 
-撰稿：西枫westca
+**【评论：】***美国客运铁路公司Amtrak暂时中止员工接种疫苗，是雇主及其雇员捍卫自由的重大胜利，但斗争还没有结束。美国的伟大之处就在于，政府违宪的越权行为一样会得到制止和纠正，这在独裁国家是不可想象的！*
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/12/unnamed-25.jpg)图片来源：网络照片
-据多家媒体12月16日报道，美国政府确认对迫害新疆人权的多家中共生物技术公司和监控公司实施制裁， 其中包括了四家中共化工公司和一名个人。
+《路透社》记者：David Shepardson，2021年12月14日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-844-e1639688678571.png)文件照片：2017 年 7 月 7 日，美国最繁忙的火车枢纽——纽约宾州车站内，一辆 Amtrak 火车停在站台上，该车站将关闭轨道进行维修，对纽约市的通勤者造成大规模干扰。
+图片来源：路透社/Brendan McDermid
+华盛顿（路透社）—**美国客运铁路公司Amtrak周二表示，将暂时中止员工接种疫苗的任务，现在预计不会在1月份被迫削减部分服务。**
 
-美国财政部网站指明，制裁的理由是打击芬太尼等药物滥用成瘾问题，这些企业和个人参与了全球非法药物贸易。 在截至4月的一年中，超过10万美国人死于过量服用止疼药。虽然墨西哥毒贩是生产走私到美国的药品产地，但是原材料芬太尼的主要来源在中共国。国务卿布林肯称，这一制裁行动将有助于阻断使合成阿片类药物及其前体化学品能够进入美国的全球供应链和金融网络。
+在《路透社》看到的一份备忘录中，美铁首席执行官比尔弗林（Bill Flynn）表示，铁路将允许未接种疫苗的员工接受检测。
 
-在制裁名单中的个人为 Chuen Fat Yip, 他目前居住在武汉.他和他的公司，武汉源城共创科技有限公司在中国和香港以外地区运营，并在芬太尼、类固醇和药物化合物的国际运输中使用比特币等加密货币。 据称Chuen是“世界商最大的合成代谢类固醇生产商之一。” 制裁将阻止这些团体或Chuen在美国拥有任何资产，并将在美国的交易定为犯罪。
+**Amtrak引用了美国地方法院的一项决定，该决定停止执行总统乔·拜登 （Joe Biden）要求在1月之前为联邦承包商提供疫苗的行政命令。**
 
-中共对世界的侵害无孔不入，向西方国家输入假药、毒品是他们弱化西方、瘫痪西方的计划之一。希望各国政府不要只在口头上抵制中共违反人权，压制民主，要把抗议变为实际行动。 Action！ Action！ Action！
+白宫发言人 Jen Psaki 表示，Amtrak“正在努力确保有足够的员工在工作。” 她说，“政府并不担心暂停，接种疫苗或检测是我们一直推荐的。”
 
-**新闻来源：**
+Amtrak补充表示，“被要求提交测试但未能提交的员工最初将被安排无薪休假。”
 
-[https://www.ndtv.com/world-news/us-slaps-sanctions-on-3-chinese-firms-in-painkiller-crackdown-2653777](https://www.ndtv.com/world-news/us-slaps-sanctions-on-3-chinese-firms-in-painkiller-crackdown-2653777)
+上周，Amtrak的一名官员在众议院委员会听证会上披露了计划中的服务削减。
 
-[拜登签令：制裁4国实体与个人！包括4家中国药企…… (toutiao.com)](https://www.toutiao.com/i7042098851552952846/?tt_from=copy_link&amp;utm_campaign=client_share&amp;timestamp=1639661669&amp;app=news_article&amp;utm_source=copy_link&amp;utm_medium=toutiao_ios&amp;use_new_style=1&amp;req_id=202112162134290101502192060D2B934E&amp;share_token=84371E52-EE87-48DC-84C6-1C2B746AC0F8&amp;group_id=7042098851552952846)
+共和党众议员萨姆·格雷夫斯 (Sam Graves) 曾批评削减开支，并在周二表示，拜登政府的疫苗强制令“将为支付账单的纳税人提供更少的服务”。
+
+Amtrak目前正努力在2022年底前增加多达3,500名新员工。
+
+作为大规模基础设施法案的一部分，国会批准了660亿美元用于铁路建设，Amtrak 获得了220亿美元。
+
+在COVID-19大流行期间，Amtrak的需求大幅下降，现在约为大流行前运力的 70%。
+
+（David Shepardson 报道；Chris Reese 和 Aurora Ellis 编辑）
+
+版权所有2021汤森路透。
+
+文章来源：[https://money.usnews.com/investing/news/articles/2021-12-14/u-s-passenger-railroad-amtrak-suspends-vaccine-mandate-for-employees](https://money.usnews.com/investing/news/articles/2021-12-14/u-s-passenger-railroad-amtrak-suspends-vaccine-mandate-for-employees)
+
+翻译：洛杉矶盘古农场 – Raul
+
+校对：洛杉矶盘古农场 – Mike Li
+
+评论：洛杉矶盘古农场 – Wendy
+
+编辑：洛杉矶盘古农场 – Wendy
+
+
+![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入: (或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

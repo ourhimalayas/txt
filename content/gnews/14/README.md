@@ -2,43 +2,33 @@
 ---
 
 
-## 证据：中共病毒COVID疫苗导致朊病毒疾病
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1762951/)
+## 七哥谈买房（2021-12-15摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1763005/)
 
-本文作者：Rebecca (一切心皆不可得！)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image001-10.png)
-据《自然新闻网》报道，mRNA疫苗正在导致朊病毒疾病。人们在注射前没有这些疾病，而在注射后却突然患上了这些疾病。对此没有其他解释。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-朊病毒疾病是不可治愈的，而且总是致命的。接种COVID疫苗后，最快6周就会死亡（见6周内和6个月内的例子）。
+来源：郭先生2021-12-15直播09:04:04 摘录
 
-以下内容来自Steve Kirsch 转载自 [SteveKirsch.Substack.com](https://stevekirsch.substack.com/p/proof-covid-vaccines-cause-prion)
+为什么我们要每天谈房地产，为什么？我给大家举个例子啊，盘古被开除掉的这一千多个员工，被撵到大街上去了，到现在我跟任何人没有联系。就在昨天下午的时候，其中有一个在四川的一个员工的家属，她母亲曾经也是我们的员工，后来她女儿又来了。她是2002年就开始跟我们工作，那时候盘古沒开始建的，就是她从最早的时候是1999买完地，2000年申请完奥运会，她妈在这工作，后来是她跟她妈在这工作，后来她在这工作。这样的一个员工家人，她妈给我发信息，她讲了一个最简单的故事，他说我孩子在北京和我，我们都买了房子啊。干了这个这一二十年啊，然后呢我们是盘古人，她说我的前三十年是在这个小城市活着的。我的后二十年，是在盘古跟你一起活着的。我的女儿生下来以后长大，十八岁以后就是跟盘古活着的。她说我们一家两代人都买了房子，她现在我们在北京现在想卖房子说，我们降价卖不让我们卖。而且一家人在过去，她说郭先生，我就听了你的，我们全家买了挣钱的房子，也就是付了300块人民币的定金，买了1平方米的房子。她说每套房子都赚了2,000多万，又听了你七哥的直播，我们把房子给卖了，我们钱也都拿回来了。现在是我们在外边买的房子，就是打折卖，没人买。啊，这是一个我们两代的房子，就没听你，没了！他说不但是我们这样，是整个北京，但是我问了一下我们四川的老乡，几乎是只要超过500万的房子，你挂牌以后跟那个市场的要价，根本不可能。他最可怕的是银行，他银行在春节前还让我们跟他做假账。什么，还贷款呢，你多给我点钱呢，我借给你点钱呢，你给我充什么贷款，他一堆复杂的东西。最后我们这位老战友的娘，第一代战友，第一代这个员工。他说：郭先生是你让我们变成了一切不一样，但是现在，是真的一切又像把我们打回的原形一样。孩子去公司给的是 N 加2补偿，公司啊据说我都不知道，因为没有认真的跟我联系。结果是法院说不允许，给 N 加1补偿。大家你们要看一看，全中国南北发行什么事情，很多公司这事情，就人家员工工那么长，人家就该得到这补偿。当然盘古和裕达是最特别的公司，给员工公司这种情况下，记住啊，已经被给全部没收情况下，还给 N 加2补偿，法院不同意， N 加1。公司要给所有员工遣散费之外的回家费，路费，搬家费啊。全部都是按三个月工资给，法院不同意。更重要的事情，我们这位战友的娘说了一句话。她说，你知道我在我们老家现在发生什么事，我老家的房子，现在政府登记完以后啊，马上的邀请你，答应像咱们锁币，币加锁一样，他们叫闭家房啊，3-5年内不能卖，因为你曾经有过三套房。这是已经到了，这不是已经共产，已经不是抢钱，已经不是山东养狗，养狗啊，警察告诉你养狗100块人民币。现在房子三年锁房，而且银行跟你造假，提前交三年物业管理费，银行贷给你的物业管理费。房地产现在是共产党捂不住的啊，在裤裆下那个大窟窿了已经。这是个天大的事情，这为什么今天我们还要继续谈房产，让所有的国内同胞们，你们一定要记住，我们告诉你今天的话。房地产可以毁掉你两代人，三代人，四代人，会让你成为房奴。
 
-我写了一条推特，说疫苗会导致朊病毒病。推特给那条推文标签为“具误导性”。
+校对：HimaFaFA
+发布：HimaBoy
 
-这根本不是事实。我的陈述在科学文献和VAERS数据中也得到了验证。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
 
-见[https://stevekirsch.substack.com/p/proof-covid-vaccines-cause-prion](https://stevekirsch.substack.com/p/proof-covid-vaccines-cause-prion)并阅读所有的评论，这表明我不是唯一对数据有这种评估的人。
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-早在2021年5月，当Byram Bridle教授披露关于辉瑞公司疫苗生物分布数据的FOIA请求时，提到穗状蛋白与路易体形成有关，而路易体与朊病毒疾病有关。他表示担心，疫苗可能导致朊病毒疾病，如痴呆症、阿尔茨海默氏症和克雅氏病（CJD）。
+**关注我们**
 
-几小时后，Twitter暂停了我的账户。没有上诉的机会。过去12年里的所有内容都被删除。我的7.5万名追随者全部被清零。我的信息被删除。没有机会下载我的内容。
+Discord 账号
 
-唯一留下的是：我的Twitter ID是@stkirsch。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-如需了解更多内容，请阅读文章，链接如下：
+Gettr 账号
 
-- [杰西卡-罗斯关于COVID疫苗和朊病毒疾病的文章](http://Jessica%20Rose’s%20article%20on%20COVID%20vaccines%20and%20prion%20diseases)
-- [Stephanie Seneff关于朊病毒疾病和COVID疫苗的论文](http://Stephanie%20Seneff’s%20paper%20on%20prion%20disease%20and%20the%20COVID%20vaccines)
-- [Bart Classen的论文将疫苗和朊病毒疾病联系在一起](http://Bart%20Classen’s%20paper%20linking%20the%20vaccines%20and%20prion%20diseases)
-- [SARS-CoV-2导致猕猴的脑部炎症并诱发路易体的形成](http://SARS-CoV-2%20causes%20brain%20inflammation%20and%20induces%20Lewy%20body%20formation%20in%20macaques)
-- **[SARS-CoV-2 穗状蛋白中的朊病毒样域使其与ACE2的亲和力更高](http://SARS-CoV-2%20Prion-Like%20Domains%20in%20Spike%20Proteins%20Enable%20Higher%20Affinity%20to%20ACE2)**
-
-
-[新闻来源链接](https://www.naturalnews.com/2021-12-10-proof-covid-vaccines-cause-prion-diseases.html)
-
-审核校对：sherryok (水云间)
-
-上传排版：漂流瓶
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
