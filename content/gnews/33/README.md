@@ -2,39 +2,71 @@
 ---
 
 
-## 布林肯强调与东盟强化合作应对中共侵略
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1763578/)
+## 视频| 中共房地产一定是导致雪崩的关键雪花（下）
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1763669/)
 
-作者: 东京樱花团 – 在远方
+## 摘自2021.12.15郭先生大直播
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-08-30-at-7.37.59-PM-1.png)
-
-盖特12月16日消息，近日美国国务卿布林肯表示，美国对中共的侵略行为表示担忧，将强化与东盟之间更大的合作。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-201.png)
-
-布林肯称，确保印太地区的自由开放，是保护所有国家选择自己道路的权力，是为了维护给印太地区和全世界，带来和平繁荣的权力和条约。而当前印太地区广泛的国家，都受到中共侵略的威胁。中共在东海和南海的武力扩张，以及非法捕捞行为，威胁到每年超过3万亿美元的商业活动，因此美国要确保南中国海的自由航行。
-
-2016年国际法庭做出了具有法律约束力的仲裁，坚决驳回了中共非法、广泛的南海海洋主张，国际社会和南海声索国将继续抵制这一行为。美国将确保台湾海峡的和平与稳定，将强化各盟友尤其是与东盟的关系，坚决抵制中共的侵略行为。
-
-参考链接：
-
-- [布林肯对中共国的“侵略行为”表示担忧，我们将促进这些盟友之间更大的合作](https://gettr.com/post/pjs5gu9c13)
+制作：香草山视频部
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-2.png)
 
-编辑：Irene木木
-校正/发稿：海阔天空1
+万达 融创 绿地 上海荣茂
+上海荣茂的1000亿烂账意味着啥呀
+大家去算算账去
+荣茂是上海整个房地产界的
+绝对劳斯莱斯级的
+那背后是江家是整个朱镕基家族
+上海几大家族 包括吴邦国家族都要碰到
+叫上海帮的恒大
+他是不跟这所谓北京帮玩的
+荣茂都还不了钱了
+荣茂的房地产是在北京奥运村北边
+最核心唯一的村里边的房地产开发商
+在上海上十最好的底地
+整个外滩的地很多都给了他
+他都还不了钱了
+你知道他意味着什么吗兄弟姐妹们
+所以说你看我说嘛
+恒大绝对不是最重要的
+融创第一重要
+然后像荣茂 富力 万达 绿地 合生创展
+那么房地产商你要明白问题
+你一个60多亿的注册公司
+6亿多还是不知道恒大
+你贷了2万亿的钱呢
+这就是个骗局啊 这是个犯罪集团的啦
+那哪一家又不是呢 连荣茂都是
+冬奥会之后房地产崩塌的时候
+你会看到无数的人魂飞魄散
+为啥叫魂飞魄散 你不是没家了
+不是像盘古（被）撵到大街上冻你 零下10度
+还有人后面追杀要钱
+所以说房地产今天讲到这个时候兄弟姐妹们
+他一定是会成为中国共产党灭亡最核心的
+一定是导致雪崩的那个关键的雪花
+所以今天我请兄弟姐妹们
+但凡有家人的 你不要要求结果
+一定告诉家人 能拿一块拿一块
+能拿一毛拿一毛 赶快走人
+
+
+
+发稿：雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/M12.jpg)
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-08-30-at-7.37.59-PM-1.png)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

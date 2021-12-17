@@ -2,30 +2,39 @@
 ---
 
 
-## 多家公司实体被认定中共军工综合体，维吾尔劳动法通过
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1763537/)
+## 布林肯强调与东盟强化合作应对中共侵略
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1763578/)
 
-![资料照片: 新疆达坂城一处被官方称为职业技能教育培训中心的围墙上的安全监控摄像头。(2018年9月4日)](https://gdb.voanews.com/DADC3917-68F5-4F9C-A806-7902563BA6D6_w1023_r1_s.jpg)*资料照片: 新疆达坂城一处被官方称为职业技能教育培训中心的围墙上的安全监控摄像头。(2018年9月4日)*
-据美国之音12月17日报道，依据美国总统的行政命令，美国财政部16日宣布八家科技公司为中共军工综合体，任何美国法人不得出售和购买这些公司公开上市的证券及其衍生证券。同天，美国商务部将中共国军事科学院军事医学研究院及其11家研究所等25个实体列入限制出口名单。未经政府出口许可，不得向这些被纳入名单的实体输出美国技术。
+作者: 东京樱花团 – 在远方
 
-美国国会参众两院通过《防止强迫维吾尔劳动法》，并将法案送交白宫签署。法案要求美国国土安全部列出与中共国政府合作压迫新疆维吾尔穆斯林少数民族的实体。除非得到美国当局无强迫劳动的认证，否则凡在新疆制造的产品均被认定使用了强迫劳动，禁止流入美国市场。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-08-30-at-7.37.59-PM-1.png)
 
-美国加大了对中共国军工综合体企业的制裁，控制美国资金流入这些公司。对新疆维吾尔地区的强迫劳动也启动法案。中共侵犯人权的犯罪行为一天不停止，国际社会的制裁就不会停止。
+盖特12月16日消息，近日美国国务卿布林肯表示，美国对中共的侵略行为表示担忧，将强化与东盟之间更大的合作。
 
-新闻参考链接：[https://www.voachinese.com/a/us-treasury-identifies-eight-chinese-tech-companies-as-part-of-chinese-military-industrial-complex-20211216/6357894.html](https://www.voachinese.com/a/us-treasury-identifies-eight-chinese-tech-companies-as-part-of-chinese-military-industrial-complex-20211216/6357894.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-201.png)
 
-编辑：胖丁
+布林肯称，确保印太地区的自由开放，是保护所有国家选择自己道路的权力，是为了维护给印太地区和全世界，带来和平繁荣的权力和条约。而当前印太地区广泛的国家，都受到中共侵略的威胁。中共在东海和南海的武力扩张，以及非法捕捞行为，威胁到每年超过3万亿美元的商业活动，因此美国要确保南中国海的自由航行。
 
-* * *
+2016年国际法庭做出了具有法律约束力的仲裁，坚决驳回了中共非法、广泛的南海海洋主张，国际社会和南海声索国将继续抵制这一行为。美国将确保台湾海峡的和平与稳定，将强化各盟友尤其是与东盟的关系，坚决抵制中共的侵略行为。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+参考链接：
+
+- [布林肯对中共国的“侵略行为”表示担忧，我们将促进这些盟友之间更大的合作](https://gettr.com/post/pjs5gu9c13)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-2.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+编辑：Irene木木
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-08-30-at-7.37.59-PM-1.png)
 
  
 
