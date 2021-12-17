@@ -2,46 +2,26 @@
 ---
 
 
-## 任何同意或默许十八岁以下孩子打疫苗的父母都是在犯罪
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1763337/)
+## 路易斯安那州州长因强制儿童接种疫苗被州司法部长起诉
+` 向真` [轉載自GNews](https://gnews.org/zh-hans/1763338/)
 
-**郭文贵先生：**我觉得疫苗我相信在两个月到五个月内一定会全球停止，我觉得两个月我是很有信心的，我觉得会停止，因为我有很多话在这儿不能说，这是绝对是说了是影响这件事情进展的，我很有信心一两个月内会停止——全球性的，另外一个就是我觉得不会超过5个月会停止的，这是一个问题；
+#### 作者：加拿大温哥华农场 向真
+![](https://assets.gnews.org/wp-content/uploads/2021/12/20190530164455893.jpg)来源：observer
+据红声传媒12月16日报道，美国路易斯安那州民主党州长约翰·贝尔·爱德华兹，因发布政令强制5～11岁儿童在2022-23学年开学前即明年1月10日前接种中共病毒疫苗或者提供接种豁免证明，而遭到该州司法部长杰夫·兰德里和共和党议员雷蒙德·克鲁斯的起诉。
 
-第二个问题关于孩子打了疫苗的千万千万记住一定要吃青蒿素、吃伊维菌素，伊维菌素绝对解疫苗，青蒿素绝对解疫苗，都解。这是非常非常清楚的，但是那怎么吃请看咱的盖特发的信息。
+兰德里和克鲁斯在诉讼中称，路易斯安那州宪法赋予州长仅执法的权力，而不是立法的权力，立法权属于立法机构，作为行政长官的州长爱德华兹擅自颁布强制疫苗授权令显然已经违宪。
 
-第三个关于孩子现在说回家搞分裂，孩子回来之后说不能参加Party，这是说实在话，这话就不能说，也不能听。如果孩子你还让他上学，因为他不能上学你要他打疫苗，因为他不能开Party你让他打疫苗，这个家人是犯罪，不存在孩子反对的问题。
+但爱德华兹在诉讼立案前一天给州众议院健康和福利委员会的一封信中表示将进行反击，他说，州卫生部有将中共病毒疫苗添加到免疫计划中的法律权力。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-16-下午9.02.49-1.png)來源：baypeople
+州众议院健康和福利委员会主席拉里.巴格利则回应称，我自己也接种了疫苗，但我认为不应该采取强制手段，儿童是否接种疫苗应该由他们的父母决定。巴格利甚至表示爱德华兹令他失望，因为爱德华兹打算否决州众议院健康和福利委员会监督的权力。
 
-如果你一个家长在未成年孩子面前你都做不到这一点的话，你不配做家长，未来孩子要审判你这样的无知的父母的，你怎么自己不打呢？你自己能不打，你就不能让孩子打，不要说他再上学，你把他怎么弄在家里都不能让他打疫苗。
+美国食品药品管理局(FDA) 在11月初授权针对5岁至11岁儿童注射疫苗后，仅有加州民主党州长加文·纽森和路易斯安那州州长爱德华兹强制适龄儿童接种疫苗，但两个州的强制令都遭到了来自各个层面的强有力反制。
 
-你一定要耐心，不要给自己的没有耐心和懦弱和自私找任何借口，任何一个父母，特别新中国联邦的，我不会听任何人解释，像小福利像小Seven两口子想尽办法窜出德国走出去，孩子要不然上学必须打，或者孩子你不打的话，德国社会不愿意，这就要离开了，这就要想尽一切办法，就这你也不能给孩子打。
+来源：
 
-任何任何理由都不能让十八岁以下孩子因为父母的同意或默许让他打疫苗，这都是你的终生的犯罪。而且疫苗我相信两个月一定全球会停，不会超过五个月。另外打了疫苗的，一定要吃青蒿素、伊维菌素。
+[Democrat Governor Gets Bad News After Announcing Plans To Try To Force Kids Jabs On Kids](https://www.redvoicemedia.com/2021/12/democrat-governor-gets-bad-news-after-announcing-plans-to-try-to-force-kids-jabs-on-kids/)
 
-编辑整理：喜马拉雅的肉夹馍；
-
-视频制作：小满；
-
-视频上传：Cindy；
-
-G-News发布：黎明之前；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+编辑/发文：Kent
 
  
 

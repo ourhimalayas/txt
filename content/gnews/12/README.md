@@ -2,13 +2,15 @@
 ---
 
 
-## 韩国疫苗接种率超92%，新增中共病毒病例爆增5倍
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1763296/)
+## 中共海警船今年第33次入侵日本领海
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1763307/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1217-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12._17-scaled.jpg)
 *编辑：东京樱花团/简报小组
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
