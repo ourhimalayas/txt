@@ -2,47 +2,53 @@
 ---
 
 
-## 中国共产党九几年就在研究用病毒用疫苗杀美国人杀白人
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1764621/)
+## 数千护士拒绝接种而被解雇 军方接管四个州医院
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1764644/)
 
-**郭文贵先生：**另外一个我想跟你说的就是说现在政府是不是会放松，是不是给你缓口气，而且未来是什么样？咱们要这么想问题。肯定核心的核心是共产党是最后的黑手。
+编译： Jenny Ball
 
-我再重申一遍，我从九几年跟共产党的情报部门在一起，包括二部、三部、什么安全部，你们都看到了，也就我那个年龄，你也能知道就是一个草根的中国人能和他们平起平坐，被他们绝对是，就像当时的二部的部长对我都是一介绍——这是我老板啊！这是我老板啊！就介绍这个形式。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-872.png)图片来源 **：**newstarget.com
 
-那个时候共产党就在想着怎么灭美国、怎么灭白人，这并不是什么秘密。而且最后研究就是觉得生化武器、化学武器是最好的方式，然后再研究怎么杀白人、杀美国人、干掉美国成本最低，然后怎么弄，就是生化武器，就是一定是把它疫苗化，这是你看这是多少年的事儿了。
+国民警卫队正被部署到美国的许多州，以取代因拒绝武汉冠状病毒 “疫苗”而被医院解雇的未接种疫苗的医务人员。
 
-化学武器要把它大规模化，因为化学武器杀人是只能一点一点一点的，他们当时就研究纽约、洛杉矶，美国的水源，都研究，包括风向，就是美国人他们不会想到有中共国我对你那么好，我从你几千亿美元的GDP、1.3万亿美元GDP变成一个15万亿美元GDP，你要杀我。
+在印第安纳州最大的医院系统（IU Health），印第安纳波利斯的印第安纳大学卫生局，已要求国民警卫队接管所有设施的医务人员职位，除莱利儿童医院以外。据报道，过去两周，印第安纳州的住院人数增加了 47%。
 
-他是没有人想的，它的根本原因还是美国人贪婪、华尔街贪婪，那么多钱，根本原因还是美国人干的，而且这个病毒就是美国人研发的这冠状病毒，它还给了中国共产党。
+IU Health 在给贝克尔医院的一份声明中说：“随着 COVID 病例继续增加，COVID 和非 COVID 患者的住院率达到历史最高水平，对 IU Health 团队成员、护士和提供者的需求和压力从未如此之大。”
 
-这一定要想到一个问题，没有病毒，没有疫苗，想杀世界的人一定是中共，中共在西方各国家无非是用威胁、蓝金黄绑架了这些人而已，大家一定要记住这几个观点。
+“为了最好地支持我们的团队成员和患者，IU Health 将利用所有可用资源，并招募印第安纳州国民警卫队成员，与印第安纳州卫生部合作，在急需帮助的地区提供帮助。”
 
-编辑整理：喜马拉雅的肉夹馍；
+**(****点评：从未听说过部队的士兵比专职医护人员更能救病人。如果****IU****那么关心激增的病人安慰，你派一个部队也不如一个大夫啊！****)**
 
-视频制作：Cindy；
+在缅因州，州长珍妮·米尔斯（Janey Mills）正在提供大约 75 名国民警卫队士兵来填补非临床支持角色，包括在位于波特兰的缅因州医疗中心 (MMC)。
 
-视频上传：Cindy；
+MMC 首席营销官乔尔·博特勒 (Joel Botler) 医生发表声明称，他的医疗中心“没有可用的重症监护床位”，此前由于该系统的强制要求，除了其他 6 间手术室之外，还有 6 间以上的手术室不得不关闭。
 
-G-News发布：黎明之前；
+**美国医疗保健军事化正在发生**
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
+在接下来的几周里，新罕布什尔州州长在新闻发布会上告诉记者，联邦紧急事务管理局 (FEMA) 正在部署一支 24 人的团队，以帮助全州“自由活着或死亡”的医院设施提供帮助。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+在纽约，新任州长宣布，120 名国民警卫队士兵将被部署到“负担过重”的疗养院，以及 32 家因疫苗令而造成的容量有限的医院。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+“根据《纽约时报》追踪的数据，过去两周，该州每天新增的 COVID-19 住院人数增加了 33%。”
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+印第安纳州、缅因州、新罕布什尔州和纽约州，可能是美国许多州中的前四个州，它们可能会派出军队来应对接种疫苗的患者的冲击，这些患者预计在强制“疫苗”完全生效后会涌入急诊室。
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+“他们不仅仅是坏人；他们是罪犯”——辉瑞首席执行官神王阿尔伯特·布尔拉 (God-King Albert Bourla) 批评那些拒绝接受他公司的 COVID‘疫苗’的人。
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+（**点评：这什么世道，伤天害理卖毒药的人，可以公开指责不买他毒药的人是罪犯**！）
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+“**创造一个问题——尝试解决问题——用征税来解决问题——让问题永远持续下去：这就是你的政府的运作方式，”另一位写道，这一切显然是为了最大化医疗戒严化，和日益壮大的警察国家。**
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+“我在新罕布什尔州，令人惊讶的是，在他们解雇了所有未接受刺突蛋白的人之前，我们没有人手短缺！”注意到另一个。“如果命令结束，这一切都可以消失！”
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+新闻来源**：**[newstarget.com][Medical martial law: Military taking over hospitals in FOUR states after thousands of nurses were fired for having natural immunity and refusing spike protein injections](https://www.newstarget.com/2021-12-15-medical-martial-law-military-hospitals-nurses-fired.html) / [NaturalNews.com](https://naturalnews.com/2021-12-10-fired-unvaccinated-nurses-replaced-national-guard-troops.html)
 
+* * *
+
+*审核：文乐 
+校对: 信心满满
+发稿: Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-3.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
