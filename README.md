@@ -15,125 +15,125 @@
 
 ---
 
-### [COVID-19 最新情报｜英国每日 COVID 病例创新高 欧盟称可能再持续 2-3 年](/content/gnews/1/README.md)
+### [习近平和普京将于12月15日举行视频峰会](/content/gnews/1/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [珍爱自己，关爱孩子](/content/gnews/2/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [COVID-19 最新情报｜英国每日 COVID 病例创新高 欧盟称可能再持续 2-3 年](/content/gnews/3/README.md)
  ` 關注組`
 
-### [疫苗无效 英国单日确诊人数创新高](/content/gnews/2/README.md)
+### [疫苗无效 英国单日确诊人数创新高](/content/gnews/4/README.md)
  ` GTV新闻访谈`
 
-### [中共制毒贩毒 4家企业和1名个人遭制裁](/content/gnews/3/README.md)
+### [中共制毒贩毒 4家企业和1名个人遭制裁](/content/gnews/5/README.md)
  ` GTV新闻访谈`
 
-### [2021年12月16日郭先生盖特 — 视频盖特「7分23秒」](/content/gnews/4/README.md)
+### [2021年12月16日郭先生盖特 — 视频盖特「7分23秒」](/content/gnews/6/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [美国会两院通过国防授权法加力助台抗共](/content/gnews/5/README.md)
+### [美国会两院通过国防授权法加力助台抗共](/content/gnews/7/README.md)
  ` GTV新闻访谈`
 
-### [面对失控的强权加拿大人应奋起说不](/content/gnews/6/README.md)
+### [面对失控的强权加拿大人应奋起说不](/content/gnews/8/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [医生离职率3个月暴增25%！香港医管局急推低息置业贷](/content/gnews/7/README.md)
+### [医生离职率3个月暴增25%！香港医管局急推低息置业贷](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国陆军称98%的部队接中了中共病毒疫苗](/content/gnews/8/README.md)
+### [美国陆军称98%的部队接中了中共病毒疫苗](/content/gnews/10/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [COVID-19 最新情报｜冲绳县冠状动脉疫苗接种后有11人死亡 41人出现严重不良反应](/content/gnews/9/README.md)
+### [COVID-19 最新情报｜冲绳县冠状动脉疫苗接种后有11人死亡 41人出现严重不良反应](/content/gnews/11/README.md)
  ` 關注組`
 
-### [国会通过法案禁止从中共国进口来自强迫劳动的货物](/content/gnews/10/README.md)
+### [国会通过法案禁止从中共国进口来自强迫劳动的货物](/content/gnews/12/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [加拿大军人法律诉讼疫苗强制接种令](/content/gnews/11/README.md)
+### [加拿大军人法律诉讼疫苗强制接种令](/content/gnews/13/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [为防技术外流 日本政府修订研究经费指导方针](/content/gnews/12/README.md)
+### [为防技术外流 日本政府修订研究经费指导方针](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [假旗警告：世界经济论坛和以色列等 10 国对全球金融系统进行重大网络攻击的模拟](/content/gnews/13/README.md)
+### [假旗警告：世界经济论坛和以色列等 10 国对全球金融系统进行重大网络攻击的模拟](/content/gnews/15/README.md)
  ` 纽约香草山MOS01`
 
-### [【中日财经爆】欧盟对中共国风电塔最高征收19.2%反倾销关税](/content/gnews/14/README.md)
+### [【中日财经爆】欧盟对中共国风电塔最高征收19.2%反倾销关税](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2021年12月15日文贵大直播简报](/content/gnews/15/README.md)
+### [2021年12月15日文贵大直播简报](/content/gnews/17/README.md)
  ` 秘密翻译组-原创组`
 
-### [【中日财经爆】中共33家实体参与迫害新疆人权被美国制裁](/content/gnews/16/README.md)
+### [【中日财经爆】中共33家实体参与迫害新疆人权被美国制裁](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【中日财经爆】贝壳找房数据造假，被浑水做空股价大跌](/content/gnews/17/README.md)
+### [【中日财经爆】贝壳找房数据造假，被浑水做空股价大跌](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [喜马拉雅是地球人类的诺亚方舟](/content/gnews/18/README.md)
+### [喜马拉雅是地球人类的诺亚方舟](/content/gnews/20/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [【中日财经爆】紫光集团破产实锤，被质疑700亿元国有资产流失](/content/gnews/19/README.md)
+### [【中日财经爆】紫光集团破产实锤，被质疑700亿元国有资产流失](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [郭文贵先生2021年12月16日盖特视频（7分22秒）全文字版](/content/gnews/20/README.md)
+### [郭文贵先生2021年12月16日盖特视频（7分22秒）全文字版](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [弃选拒当橡皮图章！香港民主党主席被中共点名批评](/content/gnews/21/README.md)
+### [弃选拒当橡皮图章！香港民主党主席被中共点名批评](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本自民党内接种第三针疫苗的建议草案](/content/gnews/22/README.md)
+### [日本自民党内接种第三针疫苗的建议草案](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国多州反对国民警卫队的疫苗政策](/content/gnews/23/README.md)
+### [美国多州反对国民警卫队的疫苗政策](/content/gnews/25/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [视频| 中共房地产一定是导致雪崩的关键雪花（下）](/content/gnews/24/README.md)
+### [视频| 中共房地产一定是导致雪崩的关键雪花（下）](/content/gnews/26/README.md)
  ` MOSREC`
 
-### [视频| 中共房地产一定是导致雪崩的关键雪花（上）](/content/gnews/25/README.md)
+### [视频| 中共房地产一定是导致雪崩的关键雪花（上）](/content/gnews/27/README.md)
  ` MOSREC`
 
-### [加拿大保守党反对扩大疫苗护照使用范围](/content/gnews/26/README.md)
+### [加拿大保守党反对扩大疫苗护照使用范围](/content/gnews/28/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [视频| 喜币的价值和点对点HDO的使用](/content/gnews/27/README.md)
+### [视频| 喜币的价值和点对点HDO的使用](/content/gnews/29/README.md)
  ` MOSREC`
 
-### [视频| 文贵先生谈伊维菌素和青蒿素](/content/gnews/28/README.md)
+### [视频| 文贵先生谈伊维菌素和青蒿素](/content/gnews/30/README.md)
  ` MOSREC`
-
-### [视频| 未来，人类恐有超过三分之一的人会受到生命威胁](/content/gnews/29/README.md)
- ` MOSREC`
-
-### [加拿大多数企业受疫苗护照影响经营惨淡](/content/gnews/30/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
 
 ### [美国务院官员表示，美中核裁军对话将“很快”开始](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [视频| 爆料革命战友们每天每时每刻都在改变着人类](/content/gnews/32/README.md)
- ` MOSREC`
-
-### [为澳大利亚建造两座水力发电站的中共国公司试图掩盖其与共产党的关系](/content/gnews/33/README.md)
+### [为澳大利亚建造两座水力发电站的中共国公司试图掩盖其与共产党的关系](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [视频| 《西藏独立法》只是刚刚开始](/content/gnews/34/README.md)
- ` MOSREC`
-
-### [布林肯强调与东盟强化合作应对中共侵略](/content/gnews/35/README.md)
+### [布林肯强调与东盟强化合作应对中共侵略](/content/gnews/33/README.md)
  ` GTV News Talk`
 
-### [美国参议院一致通过《防止强迫维吾尔族劳动法案》](/content/gnews/36/README.md)
+### [美国参议院一致通过《防止强迫维吾尔族劳动法案》](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [全球记者被囚数量创新高 中共国蝉联最大记者监狱](/content/gnews/37/README.md)
+### [全球记者被囚数量创新高 中共国蝉联最大记者监狱](/content/gnews/35/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [多家公司实体被认定中共军工综合体，维吾尔劳动法通过](/content/gnews/38/README.md)
+### [多家公司实体被认定中共军工综合体，维吾尔劳动法通过](/content/gnews/36/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美澳协定分享电子资讯纪录，外界担忧侵犯隐私和自由](/content/gnews/39/README.md)
+### [美澳协定分享电子资讯纪录，外界担忧侵犯隐私和自由](/content/gnews/37/README.md)
  ` 走进澳洲`
 
-### [币圈新闻动态：喜币（HCN）价格目前在44.261 HDO](/content/gnews/40/README.md)
+### [币圈新闻动态：喜币（HCN）价格目前在44.261 HDO](/content/gnews/38/README.md)
  ` 喜马拉雅-华盛顿DC农场`
+
+### [澳洲公司因担心中共报复拒登反共户外广告](/content/gnews/39/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [刺突蛋白中的CGG会导致接种疫苗者出现艾滋症状](/content/gnews/40/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [娜奥米·沃尔夫博士：疫苗不会阻止病毒传播](/content/gnews/41/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
