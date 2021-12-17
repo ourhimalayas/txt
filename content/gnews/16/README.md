@@ -2,31 +2,24 @@
 ---
 
 
-## 不要让邪恶势力把美国带入第三次世界大战的末日
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1764153/)
+## 七国集团卫生部长会议还是比爆料革命晚一拍
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1764159/)
 
-翻译：fulin
-校对：精灵蓝
-剪辑/字幕：蛮吉
-编辑：Mttfly
-[![](https://assets.gnews.org/wp-content/uploads/2021/12/164.png)](https://assets.gnews.org/wp-content/uploads/2021/12/1-_-SC112100005.mp4)图片来源：gnews
-美国前国会女议员兼陆军预备役军官图尔西·加巴德：
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-858.png)[图片来源](https://news.yahoo.co.jp/articles/4ef70908f269f69da2b5df707c6314123435f5bd)
+12月17日TBS新闻发表的消息：七国集团卫生部长会议已就中共病毒的奥密克菌毒株是“对全球健康的最大威胁”达成一致。
 
-大家好，我刚刚结束了在北卡罗来纳州布拉格堡的预备役任务。正如你们所知，昨天，12月7日是日本袭击珍珠港的周年纪念日。因此，我花了一些时间来反思我的兄弟姐妹们在那一天被杀，以及那个可耻的日子如何将我们的国家推入一场导致数百万人死亡和痛苦的世界大战。
+英国政府称，七国集团卫生部长于11月16日举行电话会议，对奥密克戎菌株的传播表示深切关注。一致同意应视奥密克戎菌株为当下“对全球的最大威胁”，并决定将继续跟踪监测其蔓延情况且分享数据。
 
-我一直在想，如果我们允许主流媒体、军事工业综合体、为自己服务的政客，如果我们允许它们现在把我们带入第三次世界大战后的世界末日，那么死亡和痛苦将是多么巨大。因此，现在是关心自己所爱的人，关心我们的美国同胞，关心所有人类和野生动物的人的时候了。现在是时候提醒我们所有人所面临的严峻现实了，如果我们不阻止他们。
+会议还强调了公平获得疫苗和治疗的重要性，并一致认为促进疫苗加强针的接种和常规检测以及预防感染的监管越来越重要。七国集团卫生部长也在上个月29日举行了一次紧急会议。
 
-**视频链接：**[Don’t let evil forces to lead America into the apocalypse of world war three](https://gettr.com/post/pj75p024c7)
+加入了GETTR、GTV、GNEWS的人们不难看出，七国集团卫生部长们看清了中共病毒的危害性，但还是比爆料革命晚一拍。在爆料革命已经明确告知这个世界病毒只是中共推广疫苗的手段而已之后的现在，七国集团卫生部长仍在琢磨病毒问题，而不是最关键的疫苗灾难！甚至还在助力疫苗的推广！
 
-**发布：**去中心化Math
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+信息来源：[Ｇ７保健相会合 オミクロン株「目下、世界の保健分野で最大の脅威」（TBS系（JNN）） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/4ef70908f269f69da2b5df707c6314123435f5bd)
 
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
