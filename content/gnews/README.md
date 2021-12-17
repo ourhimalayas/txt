@@ -63,74 +63,74 @@
 ### [中共的歌曲无法比拟郭先生的歌](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [加拿大接种中共病毒疫苗较多的地区 死胎率增加了28倍](/content/gnews/17/README.md)
+### [大陆知名游戏主播注射毒疫苗后入院](/content/gnews/17/README.md)
+ ` 纽约香草山MOS03`
+
+### [加拿大接种中共病毒疫苗较多的地区 死胎率增加了28倍](/content/gnews/18/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [【粤语配音】2021年12月15日文贵直播：《西藏独立法》只是刚刚开始](/content/gnews/18/README.md)
+### [【粤语配音】2021年12月15日文贵直播：《西藏独立法》只是刚刚开始](/content/gnews/19/README.md)
  ` MOS香港部`
 
-### [中共严控出境 闭关锁国再度收紧](/content/gnews/19/README.md)
+### [中共严控出境 闭关锁国再度收紧](/content/gnews/20/README.md)
  ` GTV新闻访谈`
 
-### [2021年12月8日文贵大直播爆料贵语](/content/gnews/20/README.md)
+### [12/17每日播报|社媒消息:蓬佩奥 班农](/content/gnews/21/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [2021年12月8日文贵大直播爆料贵语](/content/gnews/22/README.md)
  ` 【爆料贵语】新西兰伊甸农场`
 
-### [【粤语配音】2021年12月15日文贵直播：喜币和躺平币的区别](/content/gnews/21/README.md)
+### [【粤语配音】2021年12月15日文贵直播：喜币和躺平币的区别](/content/gnews/23/README.md)
  ` MOS香港部`
 
-### [中共与诈骗不得不说的事](/content/gnews/22/README.md)
+### [中共与诈骗不得不说的事](/content/gnews/24/README.md)
  ` G-NEWS TAIWAN`
 
-### [2021年12月5日文贵大直播爆料贵语](/content/gnews/23/README.md)
+### [2021年12月5日文贵大直播爆料贵语](/content/gnews/25/README.md)
  ` 【爆料贵语】新西兰伊甸农场`
 
-### [12/17/2021国际财经快讯：美国通过对中共国维吾尔的进口禁令；英国澳大利亚签署自由贸易协定](/content/gnews/24/README.md)
+### [12/17/2021国际财经快讯：美国通过对中共国维吾尔的进口禁令；英国澳大利亚签署自由贸易协定](/content/gnews/26/README.md)
  ` 秘密翻译组金融团队`
 
-### [战友们全球的行动一定要科技化 合法化 智慧化 永恒化](/content/gnews/25/README.md)
+### [美国因维族人权问题对中共再施制裁](/content/gnews/27/README.md)
+ ` GTV新闻访谈`
+
+### [班农先生当选国家脉动2021年度爱国者](/content/gnews/28/README.md)
+ ` GTV新闻访谈`
+
+### [新中国联邦与西藏等地独立后的关系](/content/gnews/29/README.md)
+ ` GTV新闻访谈`
+
+### [大疆公司遭美方抵制，拜登再出重拳？](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国因维族人权问题对中共再施制裁](/content/gnews/26/README.md)
- ` GTV新闻访谈`
-
-### [班农先生当选国家脉动2021年度爱国者](/content/gnews/27/README.md)
- ` GTV新闻访谈`
-
-### [新中国联邦与西藏等地独立后的关系](/content/gnews/28/README.md)
- ` GTV新闻访谈`
-
-### [大疆公司遭美方抵制，拜登再出重拳？](/content/gnews/29/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [12/17每日播报｜中共利用国防外交扩大其在拉丁美洲的影响力](/content/gnews/30/README.md)
+### [12/17每日播报｜中共利用国防外交扩大其在拉丁美洲的影响力](/content/gnews/31/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [12/17每日播报｜消费者研究警告：美国养老基金正被投向与中共关联密切的公司](/content/gnews/31/README.md)
+### [12/17每日播报｜消费者研究警告：美国养老基金正被投向与中共关联密切的公司](/content/gnews/32/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [冲绳首次发现奥密克戎毒株 驻冲美军集体感染令人担忧](/content/gnews/32/README.md)
+### [冲绳首次发现奥密克戎毒株 驻冲美军集体感染令人担忧](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【#G时新闻】加拿大军人向法院提起诉讼，挑战疫苗强制令](/content/gnews/33/README.md)
+### [【#G时新闻】加拿大军人向法院提起诉讼，挑战疫苗强制令](/content/gnews/34/README.md)
  ` G-时新闻`
 
-### [12/17每日播报｜涉嫌侵犯人权 中共警方再遭论文撤稿](/content/gnews/34/README.md)
+### [12/17每日播报｜涉嫌侵犯人权 中共警方再遭论文撤稿](/content/gnews/35/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [秘翻在线：距离台湾很近的宁德核电厂发生事故](/content/gnews/35/README.md)
+### [秘翻在线：距离台湾很近的宁德核电厂发生事故](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共五十余家科企研究院被美国制裁](/content/gnews/36/README.md)
+### [中共五十余家科企研究院被美国制裁](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [台湾开始限制科技公司出售在中共国的资产](/content/gnews/37/README.md)
+### [台湾开始限制科技公司出售在中共国的资产](/content/gnews/38/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [西藏独立的步步荆棘](/content/gnews/38/README.md)
+### [西藏独立的步步荆棘](/content/gnews/39/README.md)
  ` 骄子`
-
-### [江苏无锡一批恒大受害业主上街游行](/content/gnews/39/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [最新发掘的邮件证明蝠奇多次对参议院及所有美国人撒谎](/content/gnews/40/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`

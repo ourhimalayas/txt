@@ -2,28 +2,34 @@
 ---
 
 
-## 大疆公司遭美方抵制，拜登再出重拳？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1764956/)
+## 新中国联邦与西藏等地独立后的关系
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1764984/)
 
-撰稿：东京樱花团/文勝
-![](https://assets.gnews.org/wp-content/uploads/2021/12/3-39.jpg)
-[图片来源](https://www.theverge.com/2021/12/16/22839970/dji-chinese-military-industrial-complex-investment-blacklist)
+作者：东京樱花团—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在12月15日的直播中，郭文贵先生谈到了新中国联邦与独立后的西藏、新疆等地区的关系。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-17-下午9.12.16.png)
+郭先生表示，人类历史上的所有联邦和自治国家，它们的形式都是各不相同的。比如位于瑞士和奥地利之间的列支敦士登，还有统一了货币和国防的欧盟——它们遵从的独立都不是非此即彼、你死我活的独立。
 
-据TBS新闻12月17日报道,美国政府已将世界上最大的无人机公司中国大疆创新科技 (DJI)指定为投资禁止对象，原因是大疆公司支持中共对新疆少数民族的监视。
+为此，郭先生解释，在灭共之后，新中国联邦不一定会接管国家政权，反而应该把中国的命运和前途交给“一人一票”的选举来决定。而西藏、新疆、台湾和香港，甚至还包括内蒙和广东在内的这些地区未来将采取什么样的独立和自治方式，需要在国际社会的监督下，更需要在国内所有民众，尤其是当地人的参与下完成。郭先生也郑重声明，他绝不会参政。
 
-美国政府近来对利用高新技术侵犯人权的行为频出重手，上周已经开始将对开发用于追踪少数民族的人工智能公司列为投资禁止对象，本周四16日美国财政部再次明确宣布对八家中国高科技公司实行制裁，将其列入美国证券投资禁令。其中包括世界上最大无人机公司大疆创新科技(DJI)，以及面部识别技术开发商旷世科技(MEGVII)。所有这些公司都因“协助监视和跟踪新疆少数民族”而遭到谴责。
+在谈及当前新中国联邦所做的事情时，郭先生强调，我们就是要保证中共盗国贼的资产会被查封。至于这些资产将来会被如何处理，则需要由各国法律、国际形势和中国未来的合法政府联合决定。
 
-郭文贵先生在12月10日直播中曾说说美国会有10招儿对付中共，拜登政府最近对中共科技类公司的一系列制裁是其中的一记实拳，还只是中美双方你来我往的互相讨价还价的假动作呢？我们拭目以待！
+参考链接：[2021年12月15日文贵先生直播小飞象大雨围城速记](https://gnews.org/zh-hans/1757935/)
 
-信息来源：
+![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-[「少数民族の監視を支援」米がドローン世界最大手を投資禁止に](https://news.yahoo.co.jp/articles/01edf14a83c7d6d76650e3a9a134a6a9c3d9a542)
+总编：飞虹
+编辑：飞虹
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.jpg)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

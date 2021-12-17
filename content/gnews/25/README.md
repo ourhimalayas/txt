@@ -2,21 +2,23 @@
 ---
 
 
-## 战友们全球的行动一定要科技化 合法化 智慧化 永恒化
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1765000/)
+## 2021年12月5日文贵大直播爆料贵语
+` 【爆料贵语】新西兰伊甸农场` [轉載自GNews](https://gnews.org/zh-hans/1765014/)
 
-文编：东京樱花团/樱花传媒
+![](https://assets.gnews.org/wp-content/uploads/2021/12/直播12.。。5.jpeg)
+**opening the winter Olympics will only hasten the demise of the ccp**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/直播12.。5.jpeg)
+**the real battle in the world will be among china,the usa and Russia**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/直播12.5.jpeg)
+**xi’s confidence and madness come from putin and north korea**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/直播12.9.jpeg)
+**世界一定会醒过来，俄罗斯一定会把中共出卖**
 
-视频:东京樱花团/中文小视频组
 
-12月9日，郭文贵先生在GTV大直播指出：
 
-对中共强行搜查盘古，员工等沦落街头事件，新中国联邦将开展给中共送葬的反击活动。战友们要在守法的前提下，科技化，合法化，智慧化和长期化地进行。联盟委员会和农场需各方沟通，统一行动。并要确保通信和救护，以防万一。只要被蓝金黄的当地警察有越线行动，新中国联邦就可到国际法庭起诉他们。
+海报制作：大头小姐姐
 
-编辑：东京樱花团/墨然
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.jpg)
-
+上传：漂流瓶
 
  
 
