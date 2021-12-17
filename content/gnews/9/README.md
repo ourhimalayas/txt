@@ -2,28 +2,43 @@
 ---
 
 
-## COVID-19 最新情报｜英国每日 COVID 病例创新高 欧盟称可能再持续 2-3 年
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1763916/)
+## 短视频：抵制北京冬奥会国家越来越多
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1763922/)
 
-**疫情關注組 / 發佈時間｜17/12/2021**
+#### 翻译：Lish
+校对：枳实
+剪辑/字幕：蛮吉
+编辑：文泓
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/unknown1.png)图片来源：视频截屏
 
 
-英国卫生部门周三报告78,610 例COVID新增确诊病例，相较于周二(一天前)的59610例多出了1.9万例。78,610 例新增确诊数，据Our World in Data统计图表（下图）显示，已突破COVID疫情以来英国的每日新增病例历史纪录。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/coronavirus-data-explorer-1-1.png)英國每日新增確診數。來源：Our World in Data
-英国自新冠疫情以来，防疫政策依赖新冠疫苗，但疫情仍未受到有效的控制。下图显示，第二个感染高峰值为“Delta病毒”，第三高峰(仍持续成长的部分)为“Omicron病毒”。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/coronavirus-data-explorer-3.png)每百万人中每日新增确诊的 COVID-19 病例(7 天滚动平均值)。来源：Our World in Data
-## 住院率、病死率、重症率
-![](https://assets.gnews.org/wp-content/uploads/2021/12/coronavirus-data-explorer-2-1.png)来源：Our World in Data
-左上部分为新增病例统计图表；右上为住院治疗病例；左下为重症治疗统计；右下为新增死亡病例。
+我们继续讨论冬奥会和外交抵制问题。加拿大已宣布对明年的北京奥运会进行外交抵制，且联合澳大利亚、英国、美国和新西兰在内的盟国，采取了类似的行动。
+中共国以警告的方式进行反击。外交部指责美国、澳大利亚、英国和加拿大将奥运会政治化，并说他们将为自己的错误行为付出代价。加拿大总理贾斯汀·特鲁多在宣布决定时提到了人权问题。
 
-外媒撰文指出，英国的新增确诊人数暴增并突破历史新高，但住院治疗、重治治疗及死亡率并未显著提高。结合英国目前主要病毒威胁为Omicron病毒，可以得知Omicron病毒本身具高传染性、低致死、低重症率。此外，英国政府前段时间宣布将修改完整接种定义，应接种第三剂加强针方属于“完全接种”，足见[新冠疫苗对于防治Omicron病毒（及其他新冠病毒）效力未达原先预期](https://gnews.org/zh-hant/1749697/)。
+在过去的许多个月里，我们一直在与世界各地的伙伴和盟友就北京奥运会和残奥会的问题进行对话。
+事实上，作为一个国家，和世界各地的许多伙伴一样，我们对中共政府一再侵犯人权的行为极为关注。
+这就是为什么我们今天宣布，我们将不派任何外交代表参加今年冬天的北京奥运会和残奥会。
 
-欧洲疾病和控制中心预测疫情将会延烧2至3年时间。英国卫生安全局（UK Health Security Agency） 首席执行官珍妮·哈里斯 (Jenny Harries) 表示，预计每日英国Omicron 感染的人数近 20 万，Omicron将成为英国的主要威胁。另有[报导](https://gnews.org/zh-hant/1749697/)指出，Omicron病毒虽具备高传染性，但实际威胁（致死、重症率）并未如官方所警告。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-5.png)
-来源｜[ZeroHedge](https://www.zerohedge.com/markets/uk-suffers-record-jump-daily-covid-cases-eu-warns-pandemic-could-last-2-3-more-years)\Our World in Data\[Gnews](https://gnews.org/zh-hant/1749697/)
+嗯，这是在英国首相鲍里斯·约翰逊发表类似声明之后。
+（我们将）对北京冬奥会进行有效的外交抵制，预计没有部长会出席，我相信也包括议员和其它官员。议长先生，不过我可以告诉议院的是，我不认为（全面的）体育抵制是明智的，这仍然是政府的政策。
+
+日本首相岸田文雄表示，他正在考虑如何做。
+【备注：12月16日，安天文雄表示，没有参加北京冬奥会的计划。】
+我知道美国已经宣布对北京奥运会和残奥会进行外交抵制。考虑到奥运会的意义和日本外交的重要性，日本的反应应该从国家利益的角度来（作出）判断。这也是我国的基本态度。
+
+在夏季奥运会推迟一年后没有观众的情况下，抵制即将举行的冬季奥运会的国家名单不断增加。
+越来越多的国家决定不派外交代表团（参加北京冬奥会），以及中国网球明星彭帅的性骚扰指控，意味着国际奥委会正面临着对中共国表明立场的压力。
+
+视频链接：[Canada joins US, UK & Australia in diplomatic boycott of Beijing Olympics| 2022 Winter Olympics News – YouTube](https://www.youtube.com/watch?v=_s4D8XvKINE)
+
+**发布：文泓**
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
