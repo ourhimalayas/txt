@@ -2,36 +2,25 @@
 ---
 
 
-## 阿里巴巴股价领跌 直面中概股退市
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1765941/)
+## 前华尔街银行家在中共国的调查中突然失踪
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1765964/)
 
-作者：银河勇气星—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月15日，据媒体消息显示，阿里巴巴美股股价当天下挫6%，与此同时，美国上市的中概股公司股价出现集体下跌的情况。
+翻译：七龙珠
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide5-10.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕截图-2021-12-17-183952.jpg)图片来源 ：elconfidencial.com
 
-报道提及，美国与中共之间存在着日益加剧的紧张局势，这导致大量的中概股退出美国股市的步伐加速。另一方面，中共政府可能也在持续施压，迫使这些中概股公司从美国股市退出，转至香港上市，这也是相关公司股价下跌的原因之一。
+王彩荣(音译：Wang Cahoyong）已经失踪了两个多星期。在中共国的“失踪者”名单上又增加了一个名字。据中共喉舌“财新网”报道，自11月30日以来，中共当局一直在寻找这位56岁的老人。王彩荣是中国投资有限责任公司（简称“中投公司”）（China Equity Investment）的创始人，他曾在摩根大通和摩根斯坦利等工作，是华尔街“老一辈”的银行家。因为他的公司涉嫌欺诈，正在接受调查，而就在调查中的王就突然在公开场合消失了。今年早些时候，在该公司被卷入一系列指控，包括违约、非法转让利益、滥用投资者资产和其他违规行为后，中共国监管机构一直“关注”该公司，正如中共喉舌报道的那样。
 
-分析人士指出，影响中共作出退市决定的因素可能在于，美国证券交易委员会SEC目前正在推进对中概股公司在美上市的严格监管。SEC明确，外国公司在美国上市前，其审计师倘若不遵守美国监管机构的信息要求，美国将禁止这些公司在美国股市中进行股票交易。然而，SEC的这一要对对于中概股公司来说，意味着其擅长的欺瞒游戏基本已经结束了。因此，中概股在美全面退市或将是一个迫不得已的选择。
+该公司在一份证券交易所声明中告知，它将调查有关其首席执行官失踪，并从周四起暂停其股票在证券交易所的交易。中国股权投资公司是由王彩荣成立和经营的公司，是中共国第一批私募股权和风险投资公司之一。截至2020年底，它管理着36只基金，价值112亿元人民币（按当前汇率计算约18亿美元）。
 
-参考链接：[Alibaba leads Chinese stock losses as de-listing concerns heat up](https://seekingalpha.com/news/3780464-alibaba-leads-chinese-stock-losses-as-de-listing-concerns-heat-up)
+新闻来源：[elconfidencial.com][Ex banquero de Wall Street, desaparecido en medio de una investigación china](https://www.elconfidencial.com/empresas/2021-12-16/ex-banquero-de-wall-street-desaparecido-en-medio-de-una-investigacion-china_3342729/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
+* * *
 
-总编：文真 
-编辑：Kathy文艺
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
+*审核：Aries的星
+校对：阿伯塔
+发布：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-3.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

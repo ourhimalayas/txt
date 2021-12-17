@@ -2,17 +2,19 @@
 ---
 
 
-## 【文贵先生大直播PPT】中共国经济与房地产危局最新信息
-` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1765794/)
+## 七哥说—第36期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1765834/)
 
-撰稿：北评2025【英喜】
-美工：青山【英喜】
+制作：Inzaghi
 
-【2021年12月17日文贵先生大直播PPT：中共国经济与房地产危局最新信息】
-![](https://assets.gnews.org/wp-content/uploads/2021/12/31-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/32-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/33-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/34.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/35-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/36.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/37.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/38.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/39.jpg)
-* * *
+天怒人怨即将使中共灭亡！唤醒会凝聚更多的力量。
+不抛弃，不放弃的正是你心中那一份对信念的坚定。
 
-发稿：云起时
+![](https://assets.gnews.org/wp-content/uploads/2021/12/七哥_七哥说_中共.jpg.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/七哥_七哥说_强制疫苗.jpg.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-3.jpeg)
 
  
 
