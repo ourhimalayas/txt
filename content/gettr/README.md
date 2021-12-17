@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/17/2021 1:10 PM (UTC)`
+
+2021年12月17日 文贵大直播：国内经济危机与冬奥会；方正证券郑州接管裕达；彭副主席上位意图何在；各数字货币下滑与喜币
+![img](https://media.gettr.com/group43/origin/2021/12/17/12/60a69cba-2ea3-e77e-c396-55c12a33d5c0/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 12/16/2021 10:59 PM (UTC)`
 
 12/16/2021 Miles Guo’s GETTR: Did Xi Jinping’s cough catch the attention of half of the world? In Communist China, the CCP is propagating a nuclear war against the US. Will the world be a bystander when the CCP invades Taiwan? The Omicron variant has strong transmission and a long incubation period. Everyone must be careful!<br/><br/>12/16/2021 文贵盖特：“习太阳”咳嗽了，半个世界被惊到了？中共对内大肆宣传要和美国打核战，世界会对中共打台湾袖手旁观吗？奥米炕病毒传播力强、潜伏期长，大家务必小心<br/>
@@ -151,12 +158,6 @@ Coming soon…
 
 Jason #Miller (@JasonMillerinDC) conseiller et porte-parole de Donald #Trump, aujourd’hui président du réseau social #GETTR, était ce matin sur le fauteuil de Livre Noir. Entretien passionnant à venir prochainement.
 ![img](https://media.gettr.com/group45/getter/2021/12/14/15/4dfb5844-4f33-e1f7-c67e-fd1c67bd8d6f/out.jpg)
-
----
-
-`@miles 12/14/2021 4:25 PM (UTC)`
-
-Dec 14, 2021 Breaking news: Mr. Miles Guo's latest single “HCoin to The Moon”has topped the Billboard World Digital Songs Sales Chart for two consecutive weeks, creating not only the best personal result for all of Mr. Guo's singles, but also the best result for non-professional singers in the world's most authoritative music charts, and yet another historical miracle for Chinese people in the world music scene that has never been seen before! Thanks again to all the fellow fighters of the New Federal State of China around the world, we proved to the world with our own actions the power and determination of our unity to take down the CCP!🎉🎉🎉🎉🎉🎉🎉🙏🙏🙏🙏🙏🙏🙏<br/><br/><br/>https://gnews.org/1754721/
 
 ---
 
