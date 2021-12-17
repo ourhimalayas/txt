@@ -2,36 +2,28 @@
 ---
 
 
-## 应对俄罗斯挑衅，美国F15战斗机群部署罗马尼亚
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1763987/)
+## 疫苗灾情｜24 岁 BYU 篮球运动员被迫接种疫苗两周后倒在球场上 职业生涯面临终结
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1764032/)
 
-#### 【雅典娜快讯】。紧贴时代脉搏
+**撰文/ 疫情关注组｜发布日期/ 17/12/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup）](https://gettr.com/user/mightygroup%EF%BC%89)**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/5472-3.jpg)图片来源：Interesting Engineering
+美国 BYU 篮球运动员，今年 24 岁理查德·哈沃德 (Richard Harward) 12月15日在IG 宣布，“鉴于我的心脏疾病又出现了进一步的并发症，为了健康及安全着想，我确定退出本赛季所有的比赛”，这距离他被球队高层胁迫接种辉瑞 COVID-19 疫苗还不足两周。
 
+事源一个月前，他对阵科罗拉多克里斯蒂安（Colorado Christian）的比赛中倒下，送院后被确诊患上严重心肌炎和血栓。
 
-#### 整理报道：美哥
-编辑：文泓
+哈沃德的母亲，爱丽丝（Alice）透露指，她的儿子根本不想接种疫苗，但迫于球队管理层的“压力、胁迫和羞辱”，并以禁赛作威胁，最终成功让哈沃德接受了COVID-19 疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/xHarward1.jpg.pagespeed.ic_.-gzvT8g18E.jpeg)哈沃德和父母
+母亲认为，“结果很明显，疫苗真的不安全，我的儿子为此付出了非常沉重的代价，他可能永远无法康复。”
 
-为震慑莫斯科在黑海地区和乌克兰可能的军事行动，华盛顿配合北约增派的战斗机群已部署罗马尼亚，意图加强对该区域毗邻俄罗斯边境领空的巡逻警戒。
+她表示，哈沃德在接受疫苗后不久因严重胸闷和疼痛昏倒在赛场上，此前他的身体状况一向相当良好，现在他确诊患有严重的心肌炎和血栓。
 
-当地时间周三，据北约宣称，美国第336空军中队F-15鹰式攻击战斗机群在罗马尼亚中部的肯皮亚图尔济机场降落，随后驻守靠近黑海的空军基地，将与罗马尼亚的军机和意大利的台风战斗机联合巡逻沿岸领空。
-美空军的驰援体现了西方军事阵营奉行的“地区性震慑阻遏”政策，北约盟军空军司令部副参谋长乔尔·卡瑞准将说：“北约快速部署盟军航空能力，是我们保持时刻待命和军事高度灵活的关键。”
+最令人不忿的是，所有求诊的医生都矢口否认哈沃德的不幸与疫苗有关，甚至表示这种突发的疾病“对于某些人来说就是生命来到某个阶段时不可避免的事。”
 
-早在2014年，北约就增加了俄罗斯西部边境的侦察和领空巡逻次数，作为“波罗的海防空戒备”执法的一部分。
-北约和俄罗斯频繁跟踪彼此的军事飞行，互相指责彼此危险的挑衅动作。俄罗斯民航机构指责，本月有一架俄罗斯民航客机在飞越黑海上空时候，突然被附近北约间谍机强行要求改变其飞行高度。
-
-最近几周，北约和俄罗斯之间紧张关系更是一触即发，西方官方和媒体谴责莫斯科集结军队，对乌克兰虎视眈眈。周四，北约秘书长延斯·斯托尔滕贝格与乌克兰总统沃洛德米尔·泽连斯基会晤中表示，“对乌克兰任何进一步的挑衅都会招致严重后果。”
-俄罗斯则反复否认自己有计划攻击近邻。相反，普京总统要求北约承诺不要将军事基地搬到俄罗斯的边境。
-新闻链接：[US deploys F-15 fighters closer to Russian borders — RT World News](https://www.rt.com/news/543392-us-jets-romania-patrol/)
-
-**发布：文泓**
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+不过，哈沃德的队友对他的受伤表示相当震惊，他们无法理解一个一向年轻、健康、优秀的运动员怎么会突然患上严重心脏病，虽然哈沃德已就自己的不幸向球队提出诉讼，但是按照过往经验，要想产生实质性影响，除非整个球队罢赛抗议。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/疫苗-4.jpg)
+来源｜[Deseret](https://www.deseret.com/2021/12/14/22834713/byu-cougars-basketball-big-man-richard-harward-says-hell-miss-the-rest-of-the-season)
 
  
 

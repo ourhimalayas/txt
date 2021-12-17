@@ -2,26 +2,18 @@
 ---
 
 
-## 卢比奥策略推进国会通过《防止维吾尔族强迫劳动法》
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1764241/)
+## 新闻秘书珍·普薩基关于《防止维吾尔族强迫劳动法》的声明
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1764301/)
 
 #### 撰稿：彩虹
 
 #### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-26.jpg)图片来源：雅虎
-周四，参议院一致同意，通过了一项旨在打击中共国对新疆维吾尔族穆斯林人口进行种族灭绝的法案，同时确认了拜登总统提名的驻北京大使和另外两名被提名人。12月16日，《国会山报》对此进行了报道。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-12.jpg)图片来源：加州大学聖塔芭芭拉分校
+总统欢迎国会两党就《防止维吾尔族强迫劳动法》（Uyghur Forced Labor Prevention Act）达成协议。我们同意国会的意见，即可以而且必须采取行动，让中共对种族灭绝和侵犯人权行为负责，并解决新疆的强迫劳动问题。这就是为什么政府已经采取了有关具体措施，包括实施签证限制、《全球马格尼茨基法案》（Global Magnitsky）和其他金融制裁、出口管制、进口限制，以及发布商业建议。总统还号召七国集团承诺确保所有全球供应链不使用强迫劳动，包括来自新疆的强迫劳动。在包含半导体行业和清洁能源行业中，政府将与国会密切合作，同时致力于在岸和离岸的关键供应链实施这一法案，确保全球供应链不存在强迫劳动。
 
-根据这项名为《防止维吾尔族强迫劳动法》（Uyghur Forced Labor Prevention Act）的法案，将禁止从中国新疆地区进口商品，除非个人或公司能够证明商品或材料是在没有奴役的情况下制造的。
+**新闻来源**
 
-该法案的共同提案人包括参议员马尔科·卢比奥（Marco Rubio）和杰夫·默克利（Jeff Merkley）。
-
-根据报道，在提出该法案的同时，参议院以75票对18票确认了拜登提名的驻中共国大使人选尼古拉斯·伯恩斯（Nicholas Burns）。此外，以76票对13票确认了经济和商业事务助理部长（assistant secretary for Economic and Business Affairs）提名人拉明·托鲁伊（Ramin Toloui），以85票对5票确认了国际宗教自由无任所大使提名人拉沙德·侯赛因（Rashad Hussain）。
-
-报道披露，这些提名人的确认值得注意，因为部分共和党议员对拜登的几十个国务院和国防部提名人选实行了“搁置”策略，而卢比奥之所以同意解除他对伯恩斯的“搁置”，以及确认托鲁伊和侯赛因，目的是换取在与参议员克里斯·墨菲（Chris Murphy）的协议中推进通过维吾尔族法案。
-
-**新闻报道**
-
-[Senate passes Uyghur bill, confirms China ambassador](https://thehill.com/homenews/senate/586239-senate-passes-uyghur-bill-confirms-china-ambassador)
+[Statement by Press Secretary Jen Psaki on the Uyghur Forced Labor Prevention Act](https://www.whitehouse.gov/briefing-room/statements-releases/2021/12/14/statement-by-press-secretary-jen-psaki-on-the-uyghur-forced-labor-prevention-act/)
 
  
 

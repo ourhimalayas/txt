@@ -2,24 +2,27 @@
 ---
 
 
-## 七国集团卫生部长会议还是比爆料革命晚一拍
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1764159/)
+## 卢比奥策略推进国会通过《防止维吾尔族强迫劳动法》
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1764241/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-858.png)[图片来源](https://news.yahoo.co.jp/articles/4ef70908f269f69da2b5df707c6314123435f5bd)
-12月17日TBS新闻发表的消息：七国集团卫生部长会议已就中共病毒的奥密克菌毒株是“对全球健康的最大威胁”达成一致。
+#### 撰稿：彩虹
 
-英国政府称，七国集团卫生部长于11月16日举行电话会议，对奥密克戎菌株的传播表示深切关注。一致同意应视奥密克戎菌株为当下“对全球的最大威胁”，并决定将继续跟踪监测其蔓延情况且分享数据。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-26.jpg)图片来源：雅虎
+周四，参议院一致同意，通过了一项旨在打击中共国对新疆维吾尔族穆斯林人口进行种族灭绝的法案，同时确认了拜登总统提名的驻北京大使和另外两名被提名人。12月16日，《国会山报》对此进行了报道。
 
-会议还强调了公平获得疫苗和治疗的重要性，并一致认为促进疫苗加强针的接种和常规检测以及预防感染的监管越来越重要。七国集团卫生部长也在上个月29日举行了一次紧急会议。
+根据这项名为《防止维吾尔族强迫劳动法》（Uyghur Forced Labor Prevention Act）的法案，将禁止从中国新疆地区进口商品，除非个人或公司能够证明商品或材料是在没有奴役的情况下制造的。
 
-加入了GETTR、GTV、GNEWS的人们不难看出，七国集团卫生部长们看清了中共病毒的危害性，但还是比爆料革命晚一拍。在爆料革命已经明确告知这个世界病毒只是中共推广疫苗的手段而已之后的现在，七国集团卫生部长仍在琢磨病毒问题，而不是最关键的疫苗灾难！甚至还在助力疫苗的推广！
+该法案的共同提案人包括参议员马尔科·卢比奥（Marco Rubio）和杰夫·默克利（Jeff Merkley）。
 
-信息来源：[Ｇ７保健相会合 オミクロン株「目下、世界の保健分野で最大の脅威」（TBS系（JNN）） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/4ef70908f269f69da2b5df707c6314123435f5bd)
+根据报道，在提出该法案的同时，参议院以75票对18票确认了拜登提名的驻中共国大使人选尼古拉斯·伯恩斯（Nicholas Burns）。此外，以76票对13票确认了经济和商业事务助理部长（assistant secretary for Economic and Business Affairs）提名人拉明·托鲁伊（Ramin Toloui），以85票对5票确认了国际宗教自由无任所大使提名人拉沙德·侯赛因（Rashad Hussain）。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
+报道披露，这些提名人的确认值得注意，因为部分共和党议员对拜登的几十个国务院和国防部提名人选实行了“搁置”策略，而卢比奥之所以同意解除他对伯恩斯的“搁置”，以及确认托鲁伊和侯赛因，目的是换取在与参议员克里斯·墨菲（Chris Murphy）的协议中推进通过维吾尔族法案。
+
+**新闻报道**
+
+[Senate passes Uyghur bill, confirms China ambassador](https://thehill.com/homenews/senate/586239-senate-passes-uyghur-bill-confirms-china-ambassador)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

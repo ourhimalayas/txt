@@ -2,34 +2,31 @@
 ---
 
 
-## 反对中共海洋霸权 日本增设“台湾海洋规划官”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1764217/)
+## 完全接种疫苗的母亲产下口鼻出血的婴儿
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1764294/)
 
-撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-860.png)[图片来源](https://www.chunichi.co.jp/article/385389)
-日本外交部已决定设立一个新的科长级职位，负责台湾事务。
+**编译：西班牙巴塞罗那喜悦农场-wenwu**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip12-3.png)图片来源：dailyexpose.uk
+根据[疫苗不良事件报告系统 (VAERS) 的](https://medalerts.org/vaersdb/findfield.php?IDNUMBER=1879991&amp;WAYBACKHISTORY=ON)报告，一名完全接种疫苗的母亲生下了一名口鼻出血的婴儿。可悲的是，婴儿出生仅一天后，婴儿就去世了。死后，婴儿的父亲表示，他认为中共病毒（Covid-19）疫苗是导致婴儿死亡的罪魁祸首。
 
-加之日前刚设立一个负责人权事务的新职位，日本对中共国的立场也变得更加明确。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/捕获13.png)
 
-在17日的自民党外交委员会会议上，外交部宣布，计划最早在明年4月设立一个新的科长级职位，负责包括台湾和尖阁群岛在内的海洋问题。
+母亲在怀孕的最后三个月里接种了两剂Covid-19疫苗。在出生后，婴儿的嘴和鼻子开始出血，一天后死亡。该报告是由一个外国”监管机构”提交的（如下图）：该母亲在2021年7月19日和8月13日接受了两剂Moderna疫苗，婴儿在2021年10月6日出生；孩子在医院分娩时，标明胎儿心跳不稳定。
 
-这个“台湾海洋规划官（暂定名）”将划归属于“中国•蒙古”第一科室。
+该报告指出：“医生说，病人出生后，出现了哭声；在剪断脐带进行新生儿护理时，护理人员发现病人有口鼻出血的症状，立即请儿科医生给他插管并给他吸氧，他被送进了NICU；在新生儿重症监护室，他的检查结果显示凝血功能异常，肺部出血，心功能不全。给他输血，并给他注射肾上腺素”。
 
-由于与台湾的关系是“非政府层面工作关系”，故此次以台湾为名的职位非同寻常。
+VAERS报告没有将死亡列为与Covid-19疫苗有任何关系，只是将死亡列为“新生儿死亡”。目前还不知道是否进行了尸检，以及是否记录了任何死因。无论怎样，据报道，婴儿的父亲申请了疫苗伤害赔偿，因为他认为Covid疫苗是导致突然死亡的原因。
 
-此外，还计划设立新的“人权规划官”，负责处理新疆维吾尔自治区和香港的人权问题。
+**新闻来源**：[dailyexpose.uk][Fully Vaccinated Mother Gives Birth To Baby Bleeding From Noseand Mouth, Infant Dies Day Later](https://dailyexpose.uk/2021/12/16/fully-vaccinated-mother-gives-birth-to-baby-bleeding-from-nose-and-mouth-infant-dies-day-later/)
 
-另一方面，还决定在南太平洋地区的基里巴斯设立新的大使馆。
+* * *
 
-基里巴斯于 2019 年与台湾决裂，并正在加强与中共国的关系。
+***发布：信心满满***
 
-作为太平洋岛国的战略基地，日本此举有益于遏制正在加强海洋扩张的中共国。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-1.jpeg)
 
-信息源：[外務省が台湾担当のポストを新設へ　対中姿勢鮮明に](https://news.yahoo.co.jp/articles/5ae893e58d7c273b1e71b9cb2de97232fc374049)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
