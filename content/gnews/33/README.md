@@ -2,32 +2,42 @@
 ---
 
 
-## 加拿大军人向法院提起诉讼 挑战强制疫苗令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1765131/)
+## DC每日热点1217
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1765376/)
 
-作者：加拿大扬帆农场 – Spirit
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间12月15日，据加拿大媒体报道，加拿大联邦法院于本周三听取了四名加拿大武装部队成员的庭辩论点。据了解，这四名军人因拒绝接种新冠疫苗而面临纪律处分，严重情况下可能被开除军籍。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/8-21.jpg)
-此前，加拿大国防参谋长韦恩·艾尔将军发布命令称，所有加拿大武装部队的成员必须在11月底前接种新冠疫苗，违者将面临处罚措施，包括可能被开除军籍。目前，这一期限被延长至12月18日。
+编辑：楚门门
+![](https://assets.gnews.org/wp-content/uploads/2021/12/ACDFDD48-2633-41B2-BF54-2F3213703ADA-scaled.jpeg)
+道琼斯指数 35897.64 ▲1.08%
+纳斯达克指数 15180.43 ▲2.15%
+WTI纽约原油CFD 70.974 ▼1.64%
+布伦特原油CFD 73.769 ▼1.67%
+标普50指数 2,903.62 ▼41.09%
+美元兑人民币 1USD=6.375 RMB
+美元兑港币 1USD=7.802 HKD
+国际黄金 1787.51美元/盎司
+全球CCP病毒感染人数 273,387,648例
 
-而拒绝该强制令的四名军人在宣誓书中表示，他们出于不同的原因反对接种新冠疫苗，包括宗教理由和对其长期安全性的担忧。尽管艾尔的命令允许军人以医疗、宗教和人权为由申请豁免，但这四名军人当天在法庭上的代表律师告诉加拿大媒体，他们的请求被加拿大政府全数拒绝。为此，这四名军人认为，他们被宪法赋予的权利受到了侵犯，他们强调，为了强制军人接种新冠疫苗以解雇作为威胁是政府极端的行为。
+1、CECC主席敦促美国NBC冬奥报道不要成为中共国外宣工具
+2、美国会参议院通过驻华大使人选伯恩斯的任命
+3、美国参议院16日通过《防止强迫维吾尔人劳动法》，将禁止所有强迫劳动生产的产品进入美国
+4、美国国务院：希望尽快与中共国开始军控谈判
+5、涉监控维吾尔人 美财政部认定大疆等八家科技公司为中共国军工综合体
+6、因担心新冠疫情 RISE科技峰会推迟至2023举行
+7、中共国在美上市公司“游戏结束” 两三年内或全部从华尔街退市
+8、简易版“领英”登陆中共国 社交/分享功能被删
+9、作家方方和张抗抗疑被中共国作协主席团除名
+10、中共国据报要求德国大陆集团停止使用立陶宛所造零部件
+11、进攻型记者胡锡进宣布退休
+12、美副国务卿访韩讨论构筑5G网路
+13、美国制裁5个中共国贩运鸦片制剂的人和实体
+14、强生疫苗有血栓风险 美CDC专家建议不选用
+15、中欧贸易人权争端恶化 年度峰会或延至明年
+16、中共国驻日大使以中共国曾支持东京夏奥会的理由请求日本支持北京东奥会
+17、法国不完全排除强制接种疫苗的可能性
+18、中共国百亿私募“信中利”创始人汪潮涌被拘
+19、英国疫情严峻 单日新增逾7.8万人
+20、 美国国务院 周三（12月15日）宣布悬赏缉拿 三位中共国毒枭 悬赏金每人最高500万美元
 
-参考链接: [Soldiers fighting military’s vaccine mandate bring challenge to Federal Court](https://www.cbc.ca/news/politics/military-vaccine-mandate-challenge-1.6287451)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
-
-总编：文真
-编辑：小鹿妞妞
-校正/发稿：Fei797
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
