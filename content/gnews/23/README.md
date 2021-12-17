@@ -2,63 +2,106 @@
 ---
 
 
-## 参议员瑞克·斯科特:中共 正在向我国走私非法芬太尼，杀死了成千上万的美国人
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1763458/)
+## 【樱花深度报道】英国议员透露，COVID-19是“基因工程”，“很有可能”从武汉实验室泄露
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1763585/)
 
-参议员瑞克·斯科特： [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 正在向我国走私非法芬太尼，杀死了成千上万的美国人。是时候让乔·拜登停止对习总书记的软弱和绥靖了，让 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 承担责任。
-
-
-
-> Communist China is smuggling illicit fentanyl into our country, killing thousands of Americans. It’s time Joe Biden stops his weak appeasement of General Secretary Xi & holds Communist China accountable. [https://t.co/Uz1nWkyZaQ](https://t.co/Uz1nWkyZaQ)
-> — Rick Scott (@SenRickScott) [December 16, 2021](https://twitter.com/SenRickScott/status/1471621608708222977?ref_src=twsrc%5Etfw)
+编译：东京樱花团/Hopkins
 
 
+```
+【摘要】英国议会议员被告知，COVID-19 的“最可能来源”是武汉实验室的泄漏，并且该病毒实际上可能是经过基因改造的。这一消息是在最新一期科学技术特别委员会的简报会上发布的。
+```
 
-参议员马可·卢比奥： 今天我们通过了《维吾尔强迫劳动预防法》[#UyghurForcedLaborPreventionAct](https://twitter.com/hashtag/UyghurForcedLaborPreventionAct?src=hashtag_click)，这是朝着让 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 对种族灭绝负责的方向迈出的最大一步。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-199.png)
 
-
-
-> Today we passed the [#UyghurForcedLaborPreventionAct](https://twitter.com/hashtag/UyghurForcedLaborPreventionAct?src=hash&amp;ref_src=twsrc%5Etfw), the biggest step yet towards holding [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) accountable for genocide [https://t.co/GT4WcrGIXR](https://t.co/GT4WcrGIXR)
-> — Marco Rubio (@marcorubio) [December 17, 2021](https://twitter.com/marcorubio/status/1471637299872120836?ref_src=twsrc%5Etfw)
+```
+英国议会议员被告知，COVID-19 的“最可能来源”是武汉实验室的泄漏，并且该病毒实际上可能是经过基因改造的。这一消息是在最新一期科学技术特别委员会的简报会上发布的。
+```
 
 
 
-众议员保罗·戈萨尔： 我们的采矿需求不是凭空发生的，我们需要矿物。而更加电气化的未来将需要越来越多的矿物。[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 和刚果的稀土开采正在对人类和环境造成重大破坏。是时候在美国释放采矿业了 [@NatResources](https://twitter.com/NatResources) （自然资源委员会共和党）
+```
+麻省理工学院和哈佛大学的基因治疗和细胞工程专家 Alina Chan 博士说：“我们从许多顶级病毒学家那里听说，基因工程起源说是合理的，其中包括对第一个非典病毒进行基因修改的病毒学家。”
+```
 
 
 
-> Our mining needs aren’t happening in a vacuum, we need minerals, & a more electrified future will require more & more minerals. Chinese and Congolese rare earth mining is causing significant human & environmental destruction. It’s time to unleash mining in the U.S. [@NatResources](https://twitter.com/NatResources?ref_src=twsrc%5Etfw)
-> — Rep. Paul Gosar, DDS (@RepGosar) [December 16, 2021](https://twitter.com/RepGosar/status/1471612149923401731?ref_src=twsrc%5Etfw)
+```
+Chan 博士补充说：“我们知道这种病毒有一个独特的特征，称为弗林蛋白酶裂解位点，如果没有这个特征，就不可能导致这种大流行。”
+```
 
 
 
-众议员肯·巴克： 很自豪能与我的众议院共和党同仁们一起支持这封信，要求就苹果公司在 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的审查制度作出答复。 【转每日来电网：独家：众议院共和党人要求就苹果公司在中共国的审查政策给出答案】
+```
+她提到了武汉病毒学研究所与美国非营利生态健康联盟（EcoHealth）之间的研究合作，该联盟从安东尼·福奇 (Anthony Fauci) 的美国国立卫生研究院 (National Institutes of Health) 机构获得了数百万美元的资助。
+```
 
 
 
-> Was proud to support this letter with my fellow House Republicans, demanding answers regarding Apple’s censorship in China. [https://t.co/Ltr0NL6aFy](https://t.co/Ltr0NL6aFy)
-> — Rep. Ken Buck (@RepKenBuck) [December 16, 2021](https://twitter.com/RepKenBuck/status/1471581420816633856?ref_src=twsrc%5Etfw)
+```
+“一份提案被泄露，表明 EcoHealth 和武汉病毒研究所正在开发一条用于插入新型弗林蛋白酶裂解位点的管道。所以，你会发现这些科学家在 2018 年初说‘我要给马放角’，而在 2019 年底，武汉市出现了独角兽，”陈博士概述道。
+```
 
 
 
-比尔·戈茨转拉希姆·卡萨姆推文： 2021年度国家脉动爱国者奖：斯蒂夫·K·班农。 【附国家脉动同名报道：国家脉动今天宣布其第二届年度爱国者奖，将这一荣誉授予前白宫首席战略师和战斗室主播：斯蒂夫·K·班农
+```
+Chan 博士的合著者雷德利子爵（Viscount Ridley）在会议期间强调，揭示 COVID-19 的真正起源对于“阻止这些正在旁观这一剧情并认为他们可以逃脱引发大流行责任的坏演员”至关重要。
+```
 
 
 
-> National Pulse Patriot of The Year 2021: Stephen K. Bannon. [https://t.co/3MerdT0QFa](https://t.co/3MerdT0QFa)
-> — Raheem J. Kassam (@RaheemKassam) [December 16, 2021](https://twitter.com/RaheemKassam/status/1471527965100056581?ref_src=twsrc%5Etfw)
+```
+“我们现在知道，在生物安全 2 级（类似于牙医办公室）进行的实验导致病毒的传染性增加了 10,000 倍，其致死率增加了三到四倍。重要的是停止进行这些有风险的实验，”他补充道。
+```
 
 
 
-美国国会及行政当局中国委员会： 委员会主席们要求NBC环球集团[@NBCUniversal](https://twitter.com/NBCUniversal) 在北京奥运会 [#Beijing2022](https://twitter.com/hashtag/Beijing2022?src=hashtag_click) 报道期间，客观报道人权和维吾尔 [#Uyghur](https://twitter.com/hashtag/Uyghur?src=hashtag_click) 种族灭绝，坚持媒体自由，并避免中共国宣传“幸福的少数民族”的形象。【附官网发布的信函链接，以及信函截图】
+```
+官员们还听取了有关 COVID-19 起源的最强烈且广为流传的虚假信息之一：柳叶刀医学杂志上的 2020 年声明。这篇文章过早地得出结论，该病毒是自然发展的，并被科学家和主流媒体利用来压制关于 COVID-19 从实验室泄漏的可能性的讨论。
+```
 
 
 
-> CECC Chairs ask [@NBCUniversal](https://twitter.com/NBCUniversal?ref_src=twsrc%5Etfw) to objectively cover human rights and [#Uyghur](https://twitter.com/hashtag/Uyghur?src=hash&amp;ref_src=twsrc%5Etfw) genocide during [#Beijing2022](https://twitter.com/hashtag/Beijing2022?src=hash&amp;ref_src=twsrc%5Etfw) Olympics coverage, affirm media freedom, and avoid Chinese propaganda images of "happy minorities." Press release at [https://t.co/910lM10mLE](https://t.co/910lM10mLE) [pic.twitter.com/5mzQhYISig](https://t.co/5mzQhYISig)
-> — China Commission (@CECCgov) [December 16, 2021](https://twitter.com/CECCgov/status/1471573059471613955?ref_src=twsrc%5Etfw)
+```
+同样有争议的是，这封由 EcoHealth 的 Daszak 带头的声明没有提到研究人员与武汉实验室和中国共产党的任何利益关系。
+```
 
 
 
+```
+议员亚伦贝尔（Aaron Bell）在最近的一份备忘录中猛烈抨击柳叶刀后续纠正这个错误声明“太少太晚”。
+```
+
+
+
+```
+作者：娜塔莉·温特斯
+```
+
+
+作者简介：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2-50.png)
+
+
+
+```
+娜塔莉·温特斯
+```
+
+
+
+```
+Natalie Winters 是 National Pulse 的调查记者，也是 The National Pulse 播客的撰稿人。
+```
+
+
+信息来源：
+
+[COVID ‘Most Likely’ Escaped Wuhan Lab, Possibly ‘Genetically Engineered, British MPs Told.](https://thenationalpulse.com/news/mps-briefed-on-covid-lab-leak-origins/)
+
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

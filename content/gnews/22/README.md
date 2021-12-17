@@ -2,32 +2,22 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月16日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1763460/)
+## 樱花灭共诗——寄陈一之诗
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1763596/)
 
-作者：香草山翻译部
+#### 作者：东京樱花团/小小杜
+![](https://assets.gnews.org/wp-content/uploads/2021/07/%E5%9B%BE%E7%89%871-7-scaled.jpg)
+赖理仲春景，关心向四方。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-3.jpg)
+暂时花烂漫，修远路迷茫。
 
+万世河山破，千年凤历长。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1216text-SC.png)
-校对：Stay文苑
+老夫悲不已，君且听怀殇。
 
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-视频参看：[12.16  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61bbe77c7882000d51025360)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/calendar.jpeg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

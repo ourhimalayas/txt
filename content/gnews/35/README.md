@@ -2,31 +2,62 @@
 ---
 
 
-## 七哥谈贷款骗局（2021-12-15摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1763274/)
+## 参议员瑞克·斯科特:中共 正在向我国走私非法芬太尼，杀死了成千上万的美国人
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1763458/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+参议员瑞克·斯科特： [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 正在向我国走私非法芬太尼，杀死了成千上万的美国人。是时候让乔·拜登停止对习总书记的软弱和绥靖了，让 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 承担责任。
 
-来源：郭先生2021-12-15直播09:26:19 摘录
 
-我们兄弟姐妹们，所以说你看我说嘛，恒大绝对不是最重要的，融创第一重要，然后像荣茂，富力，万达，绿地，合生创展，大家记住，就是我当年我到这个印尼啊，这是我讲这个独裁苏哈托这个王八蛋啊，我跟他家人见面的时候，晚上喝酒我就真的是喝不下去这个酒，我很少这个情绪化的啊。天塌下来我照吃照喝，就那天我就怎么都吃不了。我看到香港人，大陆人对苏哈托家属他的儿子他的女儿那种恭维，就这个民族真的的让人感到真的是被人家强奸了，轮奸了真的还整天擦屁股那种，真的是这太不要脸。我就告诉他儿子，我说你记住，中国人有一天一定给你算账。其中有一个就是荣茂房地产的副老总在场，我说你这个王八蛋你记住啊，你的爷爷是移民到香港的，当时在印尼被杀害的人当中是日本二战的时候。日本二战的时候杀掉了80%香港人，120万香港人剩了不到十几万香港人。大家知道吗？日本在香港的杀掠是一种灭港形式的，80%人被杀掉了。跑出香港的人到了印尼，就是最早的印尼华侨和福建华侨，二代和三代。结果在印尼，是300万华人被杀被撵，50万人当场干掉。其中荣茂的房地产的老总，还有当时的合生创产的里边财务总经理在场。我说，这就是中国进入房地产业的中国人，几乎没有什么有素质。有素质的中国人搞不了中国房地产，要会骗，要会骗贷款，要会忽悠小客户，还敢冒险。我非常同意外国在曼哈顿为啥川普总统被人看不起啊。美国有钱人，是把房地产上当成很 Low 的，你知道就这是川普总统的很挣扎的一件事。你们要知在美国搞房地产是很 Low 的在曼哈顿没人看得起你，他到现在也是这样看不起你啊。事实上中国房地产很多人看不起，我是很同意的，我没见过房地产就有几个真的有水平的。我为啥我觉得柳传志人家有水平啊，人家是搞技术的，还有技术含量的。房地产都一帮子混蛋，都一帮冒险家啊。今天你在恒大的事情看出来了，一帮子骗子，一帮子谎言，一帮子没有任何社会道德，社会良知的人。老百姓把一生三代都压给你了，你还在骗老百姓呢。这就是刚才看到这个，你见过有一个地产商，有一个有良知的行动吗？你见有一个地产商像盘古一样，走的时候给员工补偿，要求 N 加2，法院给 N 加1。盘古公司要给离开时候的搬家费，行李费，车费啊，还有什么别的，包括还有孩子的养奶费都要给了。因为盘古账上有钱啊，6亿现金是不是，发100次都发不完，是吧。因为它有钱，这是刘艳萍说的，这是比阿里巴巴，2017年说的，是中国最好的企业。当时说15%，我说没有，只有5%负债。在美国如果有一个50%负债的公司，那你的公司是美国最好。我们是5%的负债，是天下最好的。那么房地产商你要明白问题是，你一个60多亿的注册公司，6亿多还是，我不知道，恒大，你贷了2万亿，你贷了2万亿的钱呐，这就是个骗局啊，这是个犯罪集团呐，那哪一家又不是呢？连荣茂都是。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+> Communist China is smuggling illicit fentanyl into our country, killing thousands of Americans. It’s time Joe Biden stops his weak appeasement of General Secretary Xi & holds Communist China accountable. [https://t.co/Uz1nWkyZaQ](https://t.co/Uz1nWkyZaQ)
+> — Rick Scott (@SenRickScott) [December 16, 2021](https://twitter.com/SenRickScott/status/1471621608708222977?ref_src=twsrc%5Etfw)
 
-**关注我们**
 
-Discord 账号
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+参议员马可·卢比奥： 今天我们通过了《维吾尔强迫劳动预防法》[#UyghurForcedLaborPreventionAct](https://twitter.com/hashtag/UyghurForcedLaborPreventionAct?src=hashtag_click)，这是朝着让 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 对种族灭绝负责的方向迈出的最大一步。
 
-Gettr 账号
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
+> Today we passed the [#UyghurForcedLaborPreventionAct](https://twitter.com/hashtag/UyghurForcedLaborPreventionAct?src=hash&amp;ref_src=twsrc%5Etfw), the biggest step yet towards holding [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) accountable for genocide [https://t.co/GT4WcrGIXR](https://t.co/GT4WcrGIXR)
+> — Marco Rubio (@marcorubio) [December 17, 2021](https://twitter.com/marcorubio/status/1471637299872120836?ref_src=twsrc%5Etfw)
+
+
+
+众议员保罗·戈萨尔： 我们的采矿需求不是凭空发生的，我们需要矿物。而更加电气化的未来将需要越来越多的矿物。[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 和刚果的稀土开采正在对人类和环境造成重大破坏。是时候在美国释放采矿业了 [@NatResources](https://twitter.com/NatResources) （自然资源委员会共和党）
+
+
+
+> Our mining needs aren’t happening in a vacuum, we need minerals, & a more electrified future will require more & more minerals. Chinese and Congolese rare earth mining is causing significant human & environmental destruction. It’s time to unleash mining in the U.S. [@NatResources](https://twitter.com/NatResources?ref_src=twsrc%5Etfw)
+> — Rep. Paul Gosar, DDS (@RepGosar) [December 16, 2021](https://twitter.com/RepGosar/status/1471612149923401731?ref_src=twsrc%5Etfw)
+
+
+
+众议员肯·巴克： 很自豪能与我的众议院共和党同仁们一起支持这封信，要求就苹果公司在 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的审查制度作出答复。 【转每日来电网：独家：众议院共和党人要求就苹果公司在中共国的审查政策给出答案】
+
+
+
+> Was proud to support this letter with my fellow House Republicans, demanding answers regarding Apple’s censorship in China. [https://t.co/Ltr0NL6aFy](https://t.co/Ltr0NL6aFy)
+> — Rep. Ken Buck (@RepKenBuck) [December 16, 2021](https://twitter.com/RepKenBuck/status/1471581420816633856?ref_src=twsrc%5Etfw)
+
+
+
+比尔·戈茨转拉希姆·卡萨姆推文： 2021年度国家脉动爱国者奖：斯蒂夫·K·班农。 【附国家脉动同名报道：国家脉动今天宣布其第二届年度爱国者奖，将这一荣誉授予前白宫首席战略师和战斗室主播：斯蒂夫·K·班农
+
+
+
+> National Pulse Patriot of The Year 2021: Stephen K. Bannon. [https://t.co/3MerdT0QFa](https://t.co/3MerdT0QFa)
+> — Raheem J. Kassam (@RaheemKassam) [December 16, 2021](https://twitter.com/RaheemKassam/status/1471527965100056581?ref_src=twsrc%5Etfw)
+
+
+
+美国国会及行政当局中国委员会： 委员会主席们要求NBC环球集团[@NBCUniversal](https://twitter.com/NBCUniversal) 在北京奥运会 [#Beijing2022](https://twitter.com/hashtag/Beijing2022?src=hashtag_click) 报道期间，客观报道人权和维吾尔 [#Uyghur](https://twitter.com/hashtag/Uyghur?src=hashtag_click) 种族灭绝，坚持媒体自由，并避免中共国宣传“幸福的少数民族”的形象。【附官网发布的信函链接，以及信函截图】
+
+
+
+> CECC Chairs ask [@NBCUniversal](https://twitter.com/NBCUniversal?ref_src=twsrc%5Etfw) to objectively cover human rights and [#Uyghur](https://twitter.com/hashtag/Uyghur?src=hash&amp;ref_src=twsrc%5Etfw) genocide during [#Beijing2022](https://twitter.com/hashtag/Beijing2022?src=hash&amp;ref_src=twsrc%5Etfw) Olympics coverage, affirm media freedom, and avoid Chinese propaganda images of "happy minorities." Press release at [https://t.co/910lM10mLE](https://t.co/910lM10mLE) [pic.twitter.com/5mzQhYISig](https://t.co/5mzQhYISig)
+> — China Commission (@CECCgov) [December 16, 2021](https://twitter.com/CECCgov/status/1471573059471613955?ref_src=twsrc%5Etfw)
+
+
 
  
 

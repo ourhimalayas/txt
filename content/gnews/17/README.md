@@ -2,30 +2,20 @@
 ---
 
 
-## 多家公司实体被认定中共军工综合体，维吾尔劳动法通过
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1763537/)
+## 加拿大多数企业受疫苗护照影响经营惨淡
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1763619/)
 
-![资料照片: 新疆达坂城一处被官方称为职业技能教育培训中心的围墙上的安全监控摄像头。(2018年9月4日)](https://gdb.voanews.com/DADC3917-68F5-4F9C-A806-7902563BA6D6_w1023_r1_s.jpg)*资料照片: 新疆达坂城一处被官方称为职业技能教育培训中心的围墙上的安全监控摄像头。(2018年9月4日)*
-据美国之音12月17日报道，依据美国总统的行政命令，美国财政部16日宣布八家科技公司为中共军工综合体，任何美国法人不得出售和购买这些公司公开上市的证券及其衍生证券。同天，美国商务部将中共国军事科学院军事医学研究院及其11家研究所等25个实体列入限制出口名单。未经政府出口许可，不得向这些被纳入名单的实体输出美国技术。
+采编：文莱   编译撰稿：文明(添草灭共)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/02-image-5.jpg)
+据加拿大自媒体【真北方】12月15日报道，[加拿大独立商业联合会]最新调查数据显示：自“新冠病毒”疫苗护照生效以来，该国大部分企业的经营情况呈持续下滑之势。 报道称，该状况对酒店和娱乐服务行业的影响尤为明显。其中，销售额持续下降的企业约占70%，而出现增长的不到9%。此外，过半受疫苗护照影响的商户声称，由于检查顾客二维码所需的人工及设备支出导致其营业成本显著增加。
 
-美国国会参众两院通过《防止强迫维吾尔劳动法》，并将法案送交白宫签署。法案要求美国国土安全部列出与中共国政府合作压迫新疆维吾尔穆斯林少数民族的实体。除非得到美国当局无强迫劳动的认证，否则凡在新疆制造的产品均被认定使用了强迫劳动，禁止流入美国市场。
+尽管数据表明，多数加拿大企业持续承受了收益下降的压力，但联邦政府并未终止执行疫苗护照计划。而这些受害企业则要求当局提供更多资金援助，对因实行疫苗护照措施所造成的各项损失提供经济补偿。
 
-美国加大了对中共国军工综合体企业的制裁，控制美国资金流入这些公司。对新疆维吾尔地区的强迫劳动也启动法案。中共侵犯人权的犯罪行为一天不停止，国际社会的制裁就不会停止。
+校对编辑：硫酸羟氯喹64
 
-新闻参考链接：[https://www.voachinese.com/a/us-treasury-identifies-eight-chinese-tech-companies-as-part-of-chinese-military-industrial-complex-20211216/6357894.html](https://www.voachinese.com/a/us-treasury-identifies-eight-chinese-tech-companies-as-part-of-chinese-military-industrial-complex-20211216/6357894.html)
+发稿：苦尽甜来 (文來）
 
-编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+[原文链接](https://tnc.news/2021/12/15/majority-of-canadian-businesses-using-vaccine-passports-report-lower-sales/)
 
  
 
