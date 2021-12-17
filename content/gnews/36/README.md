@@ -2,21 +2,17 @@
 ---
 
 
-## 中共惧怕西方抵制冬奥会 改成官方不参与冬奥会
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1765667/)
+## 【文贵先生大直播PPT】疫苗大灾难
+` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1765669/)
 
-文编：东京樱花团/樱花传媒
+撰稿：李昂纳多【DC】坐看云起时【扬帆】MyWay【扬帆】莲心不染【扬帆】
+美工：Bobby（文俊）【英喜】
 
-视频:东京樱花团/中文小视频组
+【2021年12月17日文贵先生大直播PPT：疫苗大灾难】
+![](https://assets.gnews.org/wp-content/uploads/2021/12/33.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/22-10.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/23-7.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/24-7.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/25-6.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/26-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/27-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/28-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/29-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/30-2.jpg)
+* * *
 
-12月12日，郭文贵先生在GTV大直播指出：
-
-抵制北京冬奥会绝对是对中共致命的打击。中共甚至不敢正面报道，这就证实了他们的恐惧。中共竭尽全力想方设法，笼络非洲各国以官方名义出席，只是为了要制造万邦来朝的假象，声称中国的经济只能向好，局部调整，其实一切都是欺骗。
-
-编辑：东京樱花团/墨然
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.jpg)
-
+发稿：云起时
 
  
 
