@@ -2,17 +2,14 @@
 ---
 
 
-## 七哥说—第36期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1765834/)
+## 彼得·麦卡洛博士指出对早期治疗方法的压制，是为了让人们接受大规模疫苗接种
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1765935/)
 
-制作：Inzaghi
+制作：peacelv
 
-天怒人怨即将使中共灭亡！唤醒会凝聚更多的力量。
-不抛弃，不放弃的正是你心中那一份对信念的坚定。
+请观看上一个视频：[彼得·麦卡洛博士指出用于中共病毒的早期治疗方法被压制](https://gnews.org/zh-hans/1765910/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/七哥_七哥说_中共.jpg.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/七哥_七哥说_强制疫苗.jpg.png)
+发稿：信心的选择
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-3.jpeg)
 

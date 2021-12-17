@@ -2,21 +2,19 @@
 ---
 
 
-## 大宗货品交易量决定币的总值
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1765678/)
+## 七哥说—第36期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1765834/)
 
-文编：东京樱花团/樱花传媒
+制作：Inzaghi
 
-视频:东京樱花团/中文小视频组
+天怒人怨即将使中共灭亡！唤醒会凝聚更多的力量。
+不抛弃，不放弃的正是你心中那一份对信念的坚定。
 
-12月10日，郭文贵先生在GTV大直播指出：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/七哥_七哥说_中共.jpg.png)
 
-比特币号称数量只有2100万，实际根本就是假的，远远超过这个数。喜马拉雅币与比特币相比，不能单一的从价格上去衡量，要综合的评判。从实用性、通用性、存储性、方便性，以及最大的全流通性方面，综合来看，喜马拉雅币将会全方位超越比特币，比特币一定没有未来。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/七哥_七哥说_强制疫苗.jpg.png)
 
-编辑：东京樱花团/墨然
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.jpg)
-
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-3.jpeg)
 
  
 

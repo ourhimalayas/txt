@@ -2,17 +2,16 @@
 ---
 
 
-## 【文贵先生大直播PPT】中共国经济与房地产危局最新信息
-` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1765794/)
+## 彼得·麦卡洛博士指出用于中共病毒的早期治疗方法被压制
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1765910/)
 
-撰稿：北评2025【英喜】
-美工：青山【英喜】
+制作：peacelv
 
-【2021年12月17日文贵先生大直播PPT：中共国经济与房地产危局最新信息】
-![](https://assets.gnews.org/wp-content/uploads/2021/12/31-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/32-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/33-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/34.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/35-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/36.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/37.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/38.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/39.jpg)
-* * *
+请观看下一个视频：[彼得·麦卡洛博士指出对早期治疗方法的压制，是为了让人们接受大规模疫苗接种](https://gnews.org/zh-hans/1765935/)
 
-发稿：云起时
+发稿：信心的选择
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-3.jpeg)
 
  
 

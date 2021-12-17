@@ -2,21 +2,51 @@
 ---
 
 
-## 12月17日文贵大直播快讯——是什么造就了中共的奴役
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1765404/)
+## 【Michael.Tonny专栏】接种中共病毒疫苗患心脏病的风险比其它疫苗增加103倍（上）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1765481/)
 
-撰稿：Gradient Boost
+作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
-视频：扶苏
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-美东当地时间12月17日，文贵先生在大直播节目当中谈国内的经济危机与冬奥会。文贵先生表示，被中共国奴役的中国人民虽然是勤劳的，但却不会享受，也不谈浪漫或者品味。
+根据美国CDC（Centers for Disease Control and Prevention）的报告，截至2021年12月8 日，VAERS（Vaccine Adverse Event Reporting System）已收到1,908份12-29 岁人群在接种COVID-19疫苗（中共病毒疫苗）后患心肌炎（Myocarditis）或心包炎（Pericarditis）的报告。大多数病例是在接种Pfizer-BioNTech 或 Moderna的mRNA 中共病毒疫苗后报告的，尤其是在男性青少年和年轻人中。通过包括病历审查在内的随访，CDC和FDA（U.S. Food&Drug Administration）已确认1,106份心肌炎或心包炎报告。
 
-所谓品味，并不是留个长指甲掏掏耳朵，也不是打打麻将或者煲煲汤——也因此欧美西方的家具选择以及家居设计在中共国乃至海外华人这里也是难以看见的。在这样的情况下，即便国人有钱了，那也依旧摆脱不了劳苦的命运。
+CDC在报告中称，接种中共病毒疫苗后的心肌炎和心包炎很少见（Myocarditis and pericarditis after COVID-19 vaccination are rare），断言这些心脏病的副作用“罕见”，是完全荒谬的。
 
-在纽约，犹太人占着最好的地方，而海外华人却待在中国城以及法拉盛。在其他地方例如旧金山或者硅谷，我们也能够看见同样的情况——都是在中低档的便宜场所。哪怕在其他国家，例如加拿大的温哥华也是类似。
+在CDC自己的 VAERS 中，当我们将查询条件设置为所有接种中共病毒疫苗后，患心肌炎、心包炎及其他心肌炎和心包炎的30 岁以下年轻人时，这个数字实际上是3,262 例。比CDC自己报告的数据多得多。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/carditis-VAERS-12.3-under-30.jpg)
+当我们将查询条件设置为所有接种中共病毒疫苗后，患心肌炎、心包炎及其他心肌炎和心包炎的所有年龄段的人时，这个数字是12,855例。
 
-我们的人民讲解物廉价美，可以没有生活，但是一定不能没有工作——哪怕说明天可能就没命了今天也要依然继续工作。国人勤劳，却不知道享受生活、享受生命，更不知道度假休息这样的特质，正是中国共产党奴役中国人民这一现象的根本要素之一。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/carditis-all-ages-12.3.jpg)
+
+而当我们查询同期接种其它疫苗后，患心肌炎、心包炎及其他心肌炎和心包炎的所有人时，这个数字是125例。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/carditis-all-vaccines-1-year.jpg)
+
+据此推算，接种中共病毒疫苗患心脏病的风险比接种其它病毒疫苗增加了12855÷125=102.84倍或103倍。
+
+必须提醒的是，根据哥伦比亚大学（Columbia University）Spiro Pantazatos和Herve Seligmann对VAEARS系统的研究后发表的论文《[COVID vaccination and age-stratified all-cause mortality risk](https://www.researchgate.net/publication/355581860_COVID_vaccination_and_age-stratified_all-cause_mortality_risk)》结论，CDC和FDA 的VAERS报告系统至少漏报了 20倍。而Jessica Rose和Mathew Crawford对VAEARS系统的研究后发表的论文《[Estimating the number of COVID vaccine deaths in America](https://downloads.regulations.gov/CDC-2021-0089-0024/attachment_1.pdf)》结论是至少漏报了41倍或更多。
+
+[接下篇：【Michael.Tonny专栏】接种中共病毒疫苗患心脏病的风险比其它疫苗增加103倍（下）](https://gnews.org/zh-hans/1765523/)
+
+参考数据：
+
+[CDC Admits COVID-19 Shots Causing Heart Disease but Won’t Stop the Injections – Does Pfizer Now Control the CDC and FDA?](https://healthimpactnews.com/2021/cdc-admits-covid-19-shots-causing-heart-disease-but-wont-stop-the-injections-does-pfizer-now-control-the-cdc-and-fda/)
+
+[Selected Adverse Events Reported after COVID-19 Vaccination](https://www.cdc.gov/coronavirus/2019-ncov/vaccines/safety/adverse-events.html)
+
+[Heart Inflammation](https://www.nhlbi.nih.gov/health-topics/heart-inflammation)
+
+[Myocarditis](https://www.mayoclinic.org/diseases-conditions/myocarditis/symptoms-causes/syc-20352539)
+
+[Estimating the number of COVID vaccine deaths in America](https://healthimpactnews.com/2021/study-governments-own-data-reveals-that-at-least-150000-probably-dead-in-u-s-following-covid-19-vaccines/)
+
+[COVID vaccination and age-stratified all-cause mortality risk](https://www.researchgate.net/publication/355581860_COVID_vaccination_and_age-stratified_all-cause_mortality_risk)
+
+[OpenVAERS COVID Vaccine Data](https://openvaers.com/)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/) 上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
