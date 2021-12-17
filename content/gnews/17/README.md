@@ -2,28 +2,17 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月17日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1765790/)
+## 【文贵先生大直播PPT】彭丽媛登上政治高峰 历史总是惊人的相似
+` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1765828/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-3.jpg)
+撰稿：顽童2017【香草山】
+美工：足球队长【香草山】
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-17.png)
-文章仅代表作者本人观点，与Gnews无关
+【2021年12月17日文贵先生大直播PPT：彭丽媛登上政治高峰 历史总是惊人的相似】
+![](https://assets.gnews.org/wp-content/uploads/2021/12/41-7.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/42-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/43-6.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/44-8.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/45-7.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/46-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/47-3.jpg)
+* * *
 
-视频参看：[2021.12.17早GTV新闻访谈](https://gtv.org/video/id=61bc90447882000d5102cafd)
-
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/calendar.jpeg)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+发稿：云起时
 
  
 
