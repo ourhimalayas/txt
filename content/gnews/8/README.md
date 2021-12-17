@@ -2,41 +2,36 @@
 ---
 
 
-## 英国皇家空军战机在叙利亚上空击落“恐怖无人机”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1764954/)
+## 班农先生当选国家脉动2021年度爱国者
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1764985/)
 
-**【雅典娜快讯】，紧贴时代脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-216.jpg)图片来源：The Drive
-整理报道：文扬
-编辑：文泓
+作者：纽约香草山农场 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月16日，《国家脉动》宣布了其第二届年度爱国者奖的获得者——这一殊荣被授予了前白宫首席战略师、新中国联邦创始人之一的史蒂夫·班农先生。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-17-下午9.12.30.png)
+据悉，班农先生出生于美国弗吉尼亚州的一个平民家庭。他曾在美国海军服役，退伍后，又在政界、商界取得了非凡的成就。2016年，班农先生帮助美国前总统川普，以“平民主义”的理念赢得了当年的美国大选。
 
-近日，英国皇家空军在叙利亚南部击落了一架“恐怖无人机”。这次标志性的遭遇战是英国在叙利亚打击伊斯兰国的行动中第一次使用空对空导弹交战。
+在离开白宫之后，班农先生创办了“战斗室”节目，且该节目在美国内政、经济和外交等方面都产生了巨大的影响。自2020年起，该节目不断地揭露新冠病毒和疫苗的真相，对美国停止新冠疫苗强制接种令的决定起到了关键性作用。
 
-当地时间周二，一架英国皇家空军台风战斗机在叙利亚南部的阿尔坦夫联军空军基地附近击落了这架无人机。英国国防部的一份新闻稿称，这架无人机“很小”，并称台风飞行员用先进的短程空对空导弹(ASRAAM)将其击落。
+2021年11月，班农先生遭到美国国会起诉，但这件事彻底让普通美国人，特别是保守派看到了中共对美国共和党的威胁、对美国两党和司法的渗透，以及其操纵美国政治的行径。
 
-此次交战被描述为“史无前例”，因为它是英国皇家空军台风战机的第一次空对空作战，也是英国皇家空军在“遮阳板行动”期间首次发射空对空导弹——这是英国对叙利亚伊斯兰国（IS，前ISIS）恐怖分子军事行动的代号。
+郭文贵先生在直播中评价班农先生是美国当之无愧的英雄，而班农先生也明确将新中国联邦创始人、宣言人的身份视作他一生中最大的荣耀。于班农先生而言，其平民主义思想最直接的体现就是他对中国老百姓的爱。对此，班农先生一直强调，如果中国人得不到解放，那么世界就没有自由。
 
-“遮阳板行动”主要是空袭，自2014年以来一直在进行，同时英国特种部队也被部署到叙利亚和邻国。
+参考链接：[https://gettr.com/post/pju2oza152](https://gettr.com/post/pju2oza152)
 
-国防部没有说明是哪个恐怖组织负责发射这架无人机，只是说它是“敌对的”并具有“恐怖主义威胁”。
+![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-五角大楼早些时候报道了这架无人机被击落的情况，中央司令部发言人比尔厄本上尉说发现了两架无人机，其中一架离开了该地区。
+总编：Irene木木
+编辑：小鹿妞妞
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-这次交锋发生在联军阿尔坦夫基地被火箭弹和无人机连续袭击的两个月后，报告显示该基地遭受严重破坏。当时，美国军方将这场袭击归咎于伊朗支持的什叶派民兵。
-
-虽然伊斯兰国自2014年以来的所有军事成果都被叙利亚、俄罗斯和西方的干预措施所击退，但其部分战斗人员仍然活跃，并定期与反对他们的众多派别发生冲突。据报道，本周在叙利亚东部发生了一次这样的冲突，当时与西方结盟的库尔德部队声称在联军空中支援的帮助下消灭了五名伊斯兰国战士。
-
-原文链接： [RAF war plane in ‘unprecedented’ engagement over Syria — RT World News](https://www.rt.com/news/543431-raf-shoots-drone-syria/)
-
-发文：去中心化Math
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

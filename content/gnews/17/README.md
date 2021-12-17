@@ -2,25 +2,33 @@
 ---
 
 
-## 秘翻在线：距离台湾很近的宁德核电厂发生事故
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1764901/)
+## 有声|康奈尔大学因新冠疫情关闭校园
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1764932/)
 
-**撰稿：葛大饼**
+配音：香草山美食部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+12月14日，康奈尔大学在其官方网站上发出公告称，该校目前已经发现903名学生的新冠病毒检测结果呈阳性，其中，大部分阳性患者被确诊感染了奥密克戎变种病毒。
 
-**责编：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screenshot-2021-12-17-204032.jpg)图片来源：能源界
-根据2021年12月16日凤凰新闻报道， 国家核安全局网站当日公布，宁德核电厂1号机组废液排放系统流量监测仪表显示偏低导致正常排放意外中止。
+为此，康奈尔大学决定关闭其位于纽约州的伊萨卡校区，并将该校区本学期的期末考试改为线上进行。同时，该校将取消即将举行的毕业典礼及其它各类活动。另外，康奈尔大学也关闭了校园图书馆，更禁止所有外来人员进入校园。
 
-但经化学专业取样分析，根据《国际核与辐射事件分级手册》，该运行事件被界定为0级事件——对不具有安全意义的微小事件称为“偏差”。
+据悉，这所常春藤名校的师生总体新冠疫苗接种率到达97%。其中，该校专业教师的疫苗接种率为100%，其他员工的接种率为93%，而本科生的接种率已达99%。
 
-宁德核电站位于中国福建省宁德市， 东临东海，北临晴川湾，是中国第一座在海岛上建设的核电站，距离台湾仅200公里，中共这个时候放出此新闻，是在威胁台湾和全世界，老子可是有核武器的。郭先生直播透露过，要是共产党直接打台湾，美军是会参与的，而且会把所有共产党的军事基地三分钟内全部铲平，不留一个核导弹基地，日本需要五分钟。
+目前，康奈尔大学已经进入了“红色警戒级别”，这也是自新冠疫情爆发以来，该校首次进入高风险状态。而据该校副校长乔尔·马利纳在一份声明中提及，此次聚集性感染中，几乎所有的奥密克戎病例都是在完全接种新冠疫苗的学生中发现的，其中一部分人甚至还接种了加强针。
 
-共产党所有公开的话都只是给自己的不自信壮胆，然后忽悠墙内被洗脑的粉红们上前线为它牺牲。
+文字版原文：[康奈尔大学因新冠疫情关闭校园](https://gnews.org/zh-hans/1761828/)
 
-**[新闻来源](https://i.ifeng.com/c/8C2AqpGdaYf)**
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

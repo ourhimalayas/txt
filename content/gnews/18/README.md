@@ -2,30 +2,31 @@
 ---
 
 
-## 中共五十余家科企研究院被美国制裁
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1764900/)
+## 有声|美国陆续出台制裁中共国芯片产业链的措施
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1764931/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-215.jpg)
-[图片来源](https://www.cna.com.tw/news/firstnews/202107240010.aspx)：
+配音：香草山福音部 – Daxia
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+12月10日，美国媒体报道，一份最新报告显示美国官员正在考虑禁止向中芯国际出口。
 
-12月17日国防时报报道，近日美国政府似乎被调成了“疯狂模式”，两日内连出三道禁令，从半导体、医药、生物技术三大领域对中共国企业进行制裁。在当地时间12月15日，美国财政部率先发难，以“打击芬太尼类物质滥用成瘾”为由，对我国4家医药企业实施制裁。
+自2020年，中芯国际因与中共军方的连带关系，被美国列入黑名单，因此被拒绝获得美国供应商的先进制造设备。但跟据近期外媒报道，中芯国际一直在利用美国的监管漏洞购买美国技术，美国国防部已经就此提出了一项阻止出口的建议。
 
-次日，美国财政部再度出手，将包括大疆在内的8家中国军工复合体，将中国军事医学研究院等25家机构与企业列入实体清单。包括人工智能、军事武器、量子信息等领域都受到了美国商务部制裁。
+近期，美国政府连续出台了多项政令，以针对中共的芯片产业链。上个月，美国通过了阻止英特尔在中共国的扩张计划。最近，美国政府要求三星和台积电交出与中共国相关的供应链“敏感信息”。
 
-中共国“AI四小龙”均被列为在美国制裁黑名单，人工智能领域三家独角兽旷视科技、依图科技、云从科技，无人机研发生产商大疆创新，IT产品服务商中科曙光信息，城市数据平台产品及服务提供商东方网力，云计算服务商立昂技术，电子数据取证行业龙头企业美亚柏科，国产CPU厂商飞腾、多家国家超级计算中心等，国盾量子、新华三、国科微电子，军事医学科学院（AMMS）及其11个研究所等中共企业及个体列入实体清单，对其进行出口管控。
+文字版原文：[美国陆续出台制裁中共国芯片产业链的措施](https://gnews.org/zh-hans/1745296/)
 
-此次被美国制裁的中共科企及研究所是空前规模，随着CCP病毒及毒疫苗在世界各地曝光后，会有更多国家对中共制裁。
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-信息来源：
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-[【两日内五十余家中企被列入黑名单，美国“发疯”式制裁】](https://ml.mbd.baidu.com/r/y9eL8PnWRa?f=cp&amp;rs=120410531&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=aa64ff3d2e489bf7)
-
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花.jpg)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

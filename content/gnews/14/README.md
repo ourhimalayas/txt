@@ -2,31 +2,35 @@
 ---
 
 
-## 有声|美国陆续出台制裁中共国芯片产业链的措施
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1764931/)
+## 12/17每日播报｜消费者研究警告：美国养老基金正被投向与中共关联密切的公司
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1764937/)
 
-配音：香草山福音部 – Daxia
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-12月10日，美国媒体报道，一份最新报告显示美国官员正在考虑禁止向中芯国际出口。
+**By:[秘翻新闻](https://gtv.org/broadcast/watch/61b85c7e56f4921401b77b8b)**
 
-自2020年，中芯国际因与中共军方的连带关系，被美国列入黑名单，因此被拒绝获得美国供应商的先进制造设备。但跟据近期外媒报道，中芯国际一直在利用美国的监管漏洞购买美国技术，美国国防部已经就此提出了一项阻止出口的建议。
+**2021-12-1**7
 
-近期，美国政府连续出台了多项政令，以针对中共的芯片产业链。上个月，美国通过了阻止英特尔在中共国的扩张计划。最近，美国政府要求三星和台积电交出与中共国相关的供应链“敏感信息”。
+“Just The News” 12月16日报道，12月2日美国消费者研究公司(consumer Research)致信给10位州长，警告他们州的国家养老基金，正被投资于与中共政府关系密切的贝莱德投资管理公司(BlackRock)，又称黑岩公司。
 
-文字版原文：[美国陆续出台制裁中共国芯片产业链的措施](https://gnews.org/zh-hans/1745296/)
+信中透露，贝莱德首席执行官拉里·芬克已经成为中共领导层值得信赖的伙伴，因为他在“经济低迷时期”为中共提供咨询，参加了与美国的贸易谈判，最终选择把钱投资在中共国而不是美国。
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
+根据消费者研究的《消费者警告》指出，在2020年3月，拉里·芬克致信贝莱德股东，重申了这家投资管理公司对中共国的承诺，并表示仍然坚信中共国是贝莱德最大的机遇之一。
 
-![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+周四，消费者研究执行董事希尔德(Will Hild)在约翰·所罗门报告(John Solomon Reports)播客节目中表示，贝莱德对中国共产党的帮助已经够多的了。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+他还指出，贝莱德推动企业在美国推行左翼社会政策，同时也投资了海康威视和科大讯飞，这两家公司都因为“在新疆侵犯维吾尔族的人权”而被美国政府列入黑名单。
+
+《消费者警告》称，贝莱德还大举投资了与中共军方关系密切的公司，包括中国电信(China Telecom)和中国太空科技(China SpaceSat)。
+
+周三晚上，佛罗里达州共和党州长罗恩·德桑蒂斯的新闻秘书在给Just the News的一封电子邮件中确认州长收到了消费者研究公司的信，并说他的办公室正在审查信中提出的有关问题。现在的首要任务是保护弗罗里达退休系统（FRS）退休人员的养老金，并确保在所有投资方面遵循所有相关的法律和法规，将深入评估贝莱德投资公司的问题。
+
+秘翻新闻主编 冰糖葫芦喵编译
+
+发布：文小明
+
+* * *
+
+**By 【秘密翻译组-即时新闻播报组】**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/秘翻海报.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

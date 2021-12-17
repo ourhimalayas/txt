@@ -15,104 +15,104 @@
 
 ---
 
-### [12/17/2021国际财经快讯：美国通过对中共国维吾尔的进口禁令；英国澳大利亚签署自由贸易协定](/content/gnews/1/README.md)
+### [2021年12月8日文贵大直播爆料贵语](/content/gnews/1/README.md)
+ ` 【爆料贵语】新西兰伊甸农场`
+
+### [【粤语配音】2021年12月15日文贵直播：喜币和躺平币的区别](/content/gnews/2/README.md)
+ ` MOS香港部`
+
+### [中共与诈骗不得不说的事](/content/gnews/3/README.md)
+ ` G-NEWS TAIWAN`
+
+### [2021年12月5日文贵大直播爆料贵语](/content/gnews/4/README.md)
+ ` 【爆料贵语】新西兰伊甸农场`
+
+### [12/17/2021国际财经快讯：美国通过对中共国维吾尔的进口禁令；英国澳大利亚签署自由贸易协定](/content/gnews/5/README.md)
  ` 秘密翻译组金融团队`
 
-### [战友们全球的行动一定要科技化 合法化 智慧化 永恒化](/content/gnews/2/README.md)
+### [战友们全球的行动一定要科技化 合法化 智慧化 永恒化](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国因维族人权问题对中共再施制裁](/content/gnews/3/README.md)
+### [美国因维族人权问题对中共再施制裁](/content/gnews/7/README.md)
  ` GTV新闻访谈`
 
-### [班农先生当选国家脉动2021年度爱国者](/content/gnews/4/README.md)
+### [班农先生当选国家脉动2021年度爱国者](/content/gnews/8/README.md)
  ` GTV新闻访谈`
 
-### [新中国联邦与西藏等地独立后的关系](/content/gnews/5/README.md)
+### [新中国联邦与西藏等地独立后的关系](/content/gnews/9/README.md)
  ` GTV新闻访谈`
 
-### [习大神的健康隐患](/content/gnews/6/README.md)
+### [习大神的健康隐患](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [大疆公司遭美方抵制，拜登再出重拳？](/content/gnews/7/README.md)
+### [大疆公司遭美方抵制，拜登再出重拳？](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [英国皇家空军战机在叙利亚上空击落“恐怖无人机”](/content/gnews/8/README.md)
+### [英国皇家空军战机在叙利亚上空击落“恐怖无人机”](/content/gnews/12/README.md)
  ` 墨尔本雅典娜农场`
 
-### [12/17每日播报｜中共利用国防外交扩大其在拉丁美洲的影响力](/content/gnews/9/README.md)
+### [12/17每日播报｜中共利用国防外交扩大其在拉丁美洲的影响力](/content/gnews/13/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [12/17每日播报｜消费者研究警告：美国养老基金正被投向与中共关联密切的公司](/content/gnews/10/README.md)
+### [12/17每日播报｜消费者研究警告：美国养老基金正被投向与中共关联密切的公司](/content/gnews/14/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [冲绳首次发现奥密克戎毒株 驻冲美军集体感染令人担忧](/content/gnews/11/README.md)
+### [冲绳首次发现奥密克戎毒株 驻冲美军集体感染令人担忧](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|中共制造台湾青年歌颂冬奥会的假象](/content/gnews/12/README.md)
+### [有声|中共制造台湾青年歌颂冬奥会的假象](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [有声|康奈尔大学因新冠疫情关闭校园](/content/gnews/13/README.md)
+### [有声|康奈尔大学因新冠疫情关闭校园](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [有声|美国陆续出台制裁中共国芯片产业链的措施](/content/gnews/14/README.md)
+### [有声|美国陆续出台制裁中共国芯片产业链的措施](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [【#G时新闻】加拿大军人向法院提起诉讼，挑战疫苗强制令](/content/gnews/15/README.md)
+### [【#G时新闻】加拿大军人向法院提起诉讼，挑战疫苗强制令](/content/gnews/19/README.md)
  ` G-时新闻`
 
-### [12/17每日播报｜涉嫌侵犯人权 中共警方再遭论文撤稿](/content/gnews/16/README.md)
+### [12/17每日播报｜涉嫌侵犯人权 中共警方再遭论文撤稿](/content/gnews/20/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [秘翻在线：距离台湾很近的宁德核电厂发生事故](/content/gnews/17/README.md)
+### [秘翻在线：距离台湾很近的宁德核电厂发生事故](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共五十余家科企研究院被美国制裁](/content/gnews/18/README.md)
+### [中共五十余家科企研究院被美国制裁](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [免疫专家警告说，接受过疫苗接种的人是对公共卫生的真正威胁](/content/gnews/19/README.md)
+### [免疫专家警告说，接受过疫苗接种的人是对公共卫生的真正威胁](/content/gnews/23/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [台湾开始限制科技公司出售在中共国的资产](/content/gnews/20/README.md)
+### [台湾开始限制科技公司出售在中共国的资产](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [西藏独立的步步荆棘](/content/gnews/21/README.md)
+### [西藏独立的步步荆棘](/content/gnews/25/README.md)
  ` 骄子`
 
-### [这个世界没有什么永恒](/content/gnews/22/README.md)
+### [这个世界没有什么永恒](/content/gnews/26/README.md)
  ` 骄子`
 
-### [VAERS：33 岁男子在注射辉瑞加强剂两天内死亡](/content/gnews/23/README.md)
+### [VAERS：33 岁男子在注射辉瑞加强剂两天内死亡](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [共产党家族利益永远第一优先，老百姓永远是待宰的羔羊](/content/gnews/24/README.md)
+### [共产党家族利益永远第一优先，老百姓永远是待宰的羔羊](/content/gnews/28/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [星巴克在中共国翻车](/content/gnews/25/README.md)
+### [星巴克在中共国翻车](/content/gnews/29/README.md)
  ` 儒为`
 
-### [mRNA疫苗技术发明人指出不能给孩子打这个基因疫苗的三个主要原因](/content/gnews/26/README.md)
+### [mRNA疫苗技术发明人指出不能给孩子打这个基因疫苗的三个主要原因](/content/gnews/30/README.md)
  ` MG 澳喜农场多语组`
 
-### [今后世界上再也没有东亚病夫我们是没打疫苗的东亚超夫](/content/gnews/27/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [江苏无锡一批恒大受害业主上街游行](/content/gnews/28/README.md)
+### [江苏无锡一批恒大受害业主上街游行](/content/gnews/31/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [最新发掘的邮件证明蝠奇多次对参议院及所有美国人撒谎](/content/gnews/29/README.md)
+### [最新发掘的邮件证明蝠奇多次对参议院及所有美国人撒谎](/content/gnews/32/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [布林肯：美国将与盟友合作制止中共在印太的侵略行动](/content/gnews/30/README.md)
+### [布林肯：美国将与盟友合作制止中共在印太的侵略行动](/content/gnews/33/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [汤姆·科顿：避免战争最佳方式是为战争做好准备](/content/gnews/31/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [数千护士拒绝接种而被解雇 军方接管四个州医院](/content/gnews/32/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [中国共产党九几年就在研究用病毒用疫苗杀美国人杀白人](/content/gnews/33/README.md)
- ` 喜马拉雅日本银河系农场`
 
 ### [7·24系列——裕达国贸如何落入万达黑手？](/content/gnews/34/README.md)
  ` 墨尔本雅典娜农场`
