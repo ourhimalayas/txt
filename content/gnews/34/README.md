@@ -2,24 +2,39 @@
 ---
 
 
-## 多伦多警察局完全接种警员仍大面积染疫
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1763541/)
+## 布林肯强调与东盟强化合作应对中共侵略
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1763578/)
 
-采编/翻译：文莱
-![](https://assets.gnews.org/wp-content/uploads/2021/12/01-image-2.jpg)
-据加拿大自媒体【真北方】12月14日报道，尽管多伦多地区的[交通服务和警察局]此前已遣散了未接种“新冠病毒”疫苗的雇员，但近期在其11个部门内仍然相继爆发了疫情。
+作者: 东京樱花团 – 在远方
 
-报道称，警方对此次疫情的来袭不得不再次实行了与“疫苗接种授权”之前相同的防疫措施。据悉，已有超过200名警察局雇员因未出示接种证明而被无薪休假。当局同时规定：恢复工作的前提条件是必须完全接种疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-08-30-at-7.37.59-PM-1.png)
 
-另外，在已接种疫苗的雇员仍然被全面感染的情况下，这些未接种警员则要求当局能像温哥华与卡尔加里警察局一样，将快速病毒检测作为“强制疫苗接种”的替代方案。
+盖特12月16日消息，近日美国国务卿布林肯表示，美国对中共的侵略行为表示担忧，将强化与东盟之间更大的合作。
 
-对此，本台记者报道，在目前绝大部分“中共病毒”新增感染病例为接种者的情况下，不仅显示出加拿大各级政府曾使洪荒之力鼓吹的疫苗神话行将破灭，更能明察到无尽的疫苗灾难已如期而至。而当局却依旧罔顾民生，仍沉浸在集权统治所带来的邪恶快感中不能自拔。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-201.png)
 
-校对编辑：硫酸羟氯喹64
+布林肯称，确保印太地区的自由开放，是保护所有国家选择自己道路的权力，是为了维护给印太地区和全世界，带来和平繁荣的权力和条约。而当前印太地区广泛的国家，都受到中共侵略的威胁。中共在东海和南海的武力扩张，以及非法捕捞行为，威胁到每年超过3万亿美元的商业活动，因此美国要确保南中国海的自由航行。
 
-发稿：苦尽甜来 (文來）
+2016年国际法庭做出了具有法律约束力的仲裁，坚决驳回了中共非法、广泛的南海海洋主张，国际社会和南海声索国将继续抵制这一行为。美国将确保台湾海峡的和平与稳定，将强化各盟友尤其是与东盟的关系，坚决抵制中共的侵略行为。
 
-[原文链接](https://tnc.news/2021/12/14/toronto-police-still-catching-covid-after-suspending-unvaccinated-members/)
+参考链接：
+
+- [布林肯对中共国的“侵略行为”表示担忧，我们将促进这些盟友之间更大的合作](https://gettr.com/post/pjs5gu9c13)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-2.png)
+
+编辑：Irene木木
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-08-30-at-7.37.59-PM-1.png)
 
  
 

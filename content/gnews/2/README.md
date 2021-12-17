@@ -2,27 +2,35 @@
 ---
 
 
-## 美国陆军称98%的部队接中了中共病毒疫苗
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1763817/)
+## 美国会两院通过国防授权法加力助台抗共
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1763831/)
 
-编译：花岗岩
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-24.png)
-图片来源：网络截图
+作者：纽约香草山医疗部 – 云豹
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-08-30-at-7.37.59-PM-2.png)
+继上周美国众议院压倒性通过2022年财政年度国防授权法案后，12月15日，美国参议院以88票赞成、11票反对，顺利通过该项法案。此法案将送交拜登总统签署后生效。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/6-33.jpg)
+该法案涉及台湾的内容，包括：一、呼吁美方与台湾进行实地训练及军事演习，建议美国国防部邀请台湾参与2022年环太平洋军演。二、促进包括国防部官员在内的美台官员交流，强化国防规划合作，提高台湾与美国及其他盟国的军事联合操作能力。三、加强台湾后备力量。四、制定计划，协助台湾发展及强化不对称防卫能力。五、加强美国国民警卫队与台湾的合作。六、注意中共在中美及南美地区持续渗透及拉拢台湾邦交国的问题。
 
-据合众国际社12月16日报道，美国军方周四宣布，绝大多数陆军和海军陆战队员已经在本周的联邦最后期限前及时接种了中共病毒疫苗。
+美国国会表示，美国的政策是维持美军有能力阻止中共以武力犯台、造成既成事实。
 
-陆军表示，超过468,000名士兵至少已经接受了第一剂疫苗。官员们说，96%，约46.1万人，已经完全接种。陆军还表示，约有3800名现役军人拒绝接受疫苗，现正在被驱逐过程中。
+参考链接：
 
-陆军部长克里斯蒂娜·沃姆斯在一份声明中说，为士兵接种中共病毒疫苗，是关于军队准备就绪首要任务。“对于那些继续拒绝接种疫苗的人，我强烈鼓励你们去接种疫苗。如果还是不愿意，我们将开始非自愿离职程序”。陆军表示，它仍在处理豁免请求，这些请求属于医疗、宗教和行政性质。
+- [美國會通過國防授權法案 邀台參與環太軍演](https://www.cna.com.tw/news/firstnews/202112160005.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-现役陆军部队接受至少一剂疫苗的联邦截止日期是星期三，这是美国所有军事部门的最新截止日期。
 
-海军陆战队星期四宣布，它开除了103名拒绝接受疫苗的军人，该军种95%的服役人员已经接种了疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
 
-美国海军本周早些时候说，它开始驱逐约5700名拒绝接种疫苗的水兵。美国空军周一表示，它们已经清除了二十多名拒绝接种的空军人员。
+总编：文特
+编辑：飞虹
+校正/发稿：海阔天空1
 
-新闻来源：[U.S. Army says 98% of troops received COVID-19 vaccine; Marines expel 103 members](https://www.upi.com/Top_News/US/2021/12/16/army-soldiers-covid-vaccinated/7991639673272/)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
