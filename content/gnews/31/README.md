@@ -2,17 +2,19 @@
 ---
 
 
-## 【文贵先生大直播PPT】彭丽媛登上政治高峰 历史总是惊人的相似
-` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1765828/)
+## 七哥说—第36期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1765834/)
 
-撰稿：顽童2017【香草山】
-美工：足球队长【香草山】
+制作：Inzaghi
 
-【2021年12月17日文贵先生大直播PPT：彭丽媛登上政治高峰 历史总是惊人的相似】
-![](https://assets.gnews.org/wp-content/uploads/2021/12/41-7.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/42-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/43-6.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/44-8.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/45-7.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/46-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/47-3.jpg)
-* * *
+天怒人怨即将使中共灭亡！唤醒会凝聚更多的力量。
+不抛弃，不放弃的正是你心中那一份对信念的坚定。
 
-发稿：云起时
+![](https://assets.gnews.org/wp-content/uploads/2021/12/七哥_七哥说_中共.jpg.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/七哥_七哥说_强制疫苗.jpg.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-3.jpeg)
 
  
 
