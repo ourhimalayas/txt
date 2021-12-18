@@ -2,34 +2,37 @@
 ---
 
 
-## 汇丰银行因洗钱问题被罚近6400万英镑
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1768087/)
+## 有声|加拿大特鲁多隐瞒将疫苗强制延长三年的计划
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1768211/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screenshot-2021-12-18-1046359.jpg)2020年8月3日，在伦敦市中心，一名行人走过汇丰银行的一家分行。(Daniel Leal/AFP via Getty Images)
-英国金融监管机构对银行业巨头汇丰银行因其反洗钱监管程序不力而处以6390万英镑的罚款。英国金融行为监管局（FCA）在发现汇丰银行用于监测每月数以亿计的，识别有可能的犯罪交易活动的自动化系统存在 “严重缺陷 ”后作出了处罚。
-
-它强调指出了从2010年3月到2018年3月的8年中发现三个关键的失误。这包括未能考量其在2014年之前用来识别洗钱和恐怖主义融资的相关风险，以及对2016年之后新的可疑活动“糟糕”的风险评估。英国金融行为监管局还指出了汇丰银行未能对系统进行“适当地测试和升级标记新参数”的情况。
-
-**简评：**
-
-汇丰银行之前就有触犯反洗钱规则而被处罚的历史。其中在2017的罚款是有史以来汇丰银行支付的最大一笔罚款。因未能对曾因墨西哥贩毒集团的数亿美元的资金进入做管控而被美国当局处以19亿美元（14亿英镑）的创纪录的罚款。还有近期被英国金融行为监管局因其反洗钱监管程序不力而处以6390万英镑的罚款。
-
-英国金融行为监管局执法和市场监督执行董事马克·斯图尔德 (Mark Steward) 表示：“尽管这个问题在很多场合被强调过，但汇丰的交易监控系统在很长一段时间内都没有发挥作用。”
-
-是什么能让像汇丰银行等这样的跨国银行对当地的金融行为监管机构的规定熟视无睹呢？在2016年美国国会披露的一份报告中，美国官员解释对汇丰免于起诉的理由是，一些金融机构大到难以进行司法起诉，强行起诉可能导致一场“全球金融灾难”。再加上银行对监督机构的调查结果没有异议的“认罚”态度，造成这些跨国银行屡屡触犯洗钱规定，却大多未能得到应有的制裁。
-
-新闻链接：[HSBC Fined Almost £64M Over Money Laundering Failures](https://www.theepochtimes.com/hsbc-fined-almost-64m-over-money-laundering-failures_4163160.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+配音：香草山美食部 – 玫瑰园
 
 
-编辑：【英国伦敦喜庄园编辑部】
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+12月15日，加拿大保守党议员Michael Cooper发推，推文显示，特鲁多政府在国会立法中，把一项将疫苗强制授权延长至三年的条款，隐藏在财政和经济报告中，自由党计划将强制疫苗规定再维持3年。Cooper在推文最后补充，特鲁多正在企图把这些所谓的临时授权措施永久化。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+推文下的评论说，特鲁多的三年疫苗强制计划，只能证明疫苗是无效的.
+
+文贵先生一直反复强调，这个疫苗是中共设计出来的假疫苗，目的是为了让政府能更好的控制国民，进而控制全人类。现在，特鲁多暴露的疫苗强制三年计划，给文贵先生对世界的警告，提供了完美的证明。
+
+文字版原文：[加拿大特鲁多隐瞒将疫苗强制延长三年的计划](https://gnews.org/zh-hans/1766754/)
+
+音频处理：喜山必胜Maverick
+发稿：Tom Li
+[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

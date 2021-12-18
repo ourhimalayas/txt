@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/18/2021 4:05 PM (UTC)`
+
+<br/>12月18号：共产党的经济的全面的即将崩溃……和到处抢劫财富的导致的社会动乱……和大量的抓朴公检法．金融部门官员！现在又要求在半年内让中国的医院和医疗企业部门上交1．5万亿支持所谓的国家战略转型期意味着什么？
+![img](https://media.gettr.com/group18/getter/2021/12/18/16/b3d84aba-add9-e9e2-dd9f-69c17553d92a/out.jpg)
+
+---
+
 `@miles 12/18/2021 3:35 PM (UTC)`
 
 18/12/2021 “Hcoin To the Moon" Hits iTunes <br/> No. 1 🥇on 8 Countries Top MV Charts !<br/>No.1🥇 on 10 Countries Rock MV Charts!<br/>No.1🥇 on 6 Countries Rock song Charts!<br/>No.1🥇on 3 countries Hip-pop/Rap song Charts!<br/>Miracle continues…….🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in USA，Australia, Canada, Hungary, Sweden, Portugal, Greece, Malta, Latvia, Finland!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1768242<br/><br/>12月18号，Hcoin To the Moon位列iTunes<br/>8国热门MV榜首🥇！<br/>10国摇滚MV榜首🥇！<br/>6国摇滚歌曲榜首🥇！<br/>3国嘻哈歌曲榜首🥇！<br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢美国，澳大利亚，加拿大，匈牙利, 瑞典，葡萄牙，希腊，马耳他，拉脱维亚，芬兰的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏
@@ -150,13 +157,6 @@
 `@miles 12/16/2021 3:53 PM (UTC)`
 
 12月15号：尊敬的战友们好，你们健身了吗？共产党内部的政治经济即将大崩溃……中国政治的家天下时代已经到来……对老百姓的掠夺会越来越猛烈……希望战友们一定要小心新病毒对人体的危害性，一切都已经开始！
-
----
-
-`@miles 12/16/2021 7:43 AM (UTC)`
-
-12/15/2021 Miles Guo: The West will provide the Tibet independence forces with weapons, money, and food and will take care of their descendants; Hong Kong, Taiwan, Xinjiang, and Tibet should join forces to fight against the CCP. If the CCP dares to take action, the world shall decouple from the CCP economically; there are more bills to be introduced for Xinjiang, Tibet, Hong Kong, and Taiwan<br/><br/>12/15/2021 文贵直播：西方将为藏独提供武器、钱和粮食，救助藏独人士的后代；港台疆藏应联合抗共，若中共动手，世界就跟它经济脱钩；还有更多对新疆、西藏、香港、台湾的法案要出台<br/>
-![img](https://media.gettr.com/group21/getter/2021/12/16/07/e5c63733-85e6-7c93-0bc8-29dcf1722842/out.jpg)
 
 ---
 
