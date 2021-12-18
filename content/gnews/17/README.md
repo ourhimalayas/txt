@@ -2,44 +2,32 @@
 ---
 
 
-## 俄罗斯呼吁就乌克兰及北约东扩问题尽快与美方展开谈判
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1768573/)
+## 标普全球调降恒大至“选择性违约”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1768577/)
 
-#### 撰稿：日本东京方舟农场 北极
+作者：纽约香草山健身部— Ivy001
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间12月17日，据媒体消息称，由于恒大集团在本月早些时候未能如期完成一笔债务的偿付，恒大集团被信用评级机构——标普全球正式宣布违约，并将其评级调降至“选择性违约”状态。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-19-上午12.34.07.png)
+标普全球在声明中表示， 经评估，中共恒大集团及其境外融资机构——天基控股有限公司未能为其未偿还的美元优先票据支付票息，同时，恒大、天基或受托人也没有公布票据支付的相关信息，更没有向标普进行确认。为此，标普做出了下调恒大和天基控股评级的决定。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/924071DC-831B-4B33-A4AF-396D0874186A.jpeg)美国总统拜登和俄罗斯总统普京（资料图片来自网络）
+资料显示，“选择性违约”，又称SD，其中，D是标普全球短期信用评级的最低级。通常情况下，被标普评定D级的企业，都是标普认为其财务状况非常糟糕或没有债务偿还能力的公司。
 
-据《美国之音》中文网报道，俄罗斯副外长谢尔盖·里亚布科夫（Sergei Ryabkov） 本周五（12月17日）在莫斯科接受记者采访时表示，就乌克兰边境危机和北约东扩问题，俄方希望尽快与美方展开谈判。
+参考链接：[https://www.gettr.com/post/pjw4j1d403](https://www.gettr.com/post/pjw4j1d403)
 
-里亚布科夫向媒体公布了向美国及北约盟国提交的安全建议草案细节，并表示莫斯科已做好了谈判准备。
+![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-里亚布科夫对记者们说：“我们准备好立即、甚至明天——真的是明天、星期六12月18日就在第三国与美国会谈。”他还表示，俄罗斯已向美国官员建议在日内瓦进行会谈。
+总编：Jack Li文阳
+编辑：Irene木木
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-近期，俄乌关系迅速恶化，双方在两国边境地区部署了大量军事人员和装备。美国和乌克兰声称俄罗斯在俄乌边境集结重兵，可能准备“入侵”乌克兰，但俄方对此予以否认。
-
-本月7日，拜登与普京举行视频会晤，重点讨论了乌克兰局势及双边关系中所存在的问题。
-
-本月15日，在俄美双方代表于莫斯科外交部大楼举行的一次会议上，俄方向美国代表提交一份“安全建议草案”。草案内容主要包括，要求美国承诺排除北约进一步东扩的可能，并拒绝接纳苏联前加盟共和国加入北约。俄方还敦促美国和北约对上述内容制定长期的法律保障，并呼吁有关各方为缓解欧洲紧张局势做出进一步努力。
-
-据一位要求匿名的美国高级官员透露，对俄罗斯来说，乌克兰和格鲁吉亚等苏联前加盟国加入北约是一条红线。俄方知道有些内容是美国不可接受的，但美国也做好了谈判的准备。这名官员还补充说：“如果侵略乌克兰的事件再次发生，将产生巨大的后果，而且代价将非常昂贵”。
-
-白宫发言人普萨基也在周五声明，“所有国家都有权决定本国的未来，决定本国的外交政策，不受外部的影响”。
-
-*参考链接：*
-
-1. [*俄罗斯公布向西方提交的安全建议草案细节*](https://www.voachinese.com/a/russia-publishes-details-of-security-proposal-with-west-20211217/6359470.html)
-2. [*俄罗斯外交部公布与北约关于安全保障的条约草案*](https://news.sina.com.cn/w/2021-12-17/doc-ikyamrmy9633469.shtml)
-3. [*美国接受谈判俄罗斯提出的东欧中亚限制北约扩张的法律提案*](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20211217-%E7%BE%8E%E5%9B%BD%E6%8E%A5%E5%8F%97%E8%B0%88%E5%88%A4%E4%BF%84%E7%BD%97%E6%96%AF%E6%8F%90%E5%87%BA%E7%9A%84%E4%B8%9C%E6%AC%A7%E4%B8%AD%E4%BA%9A%E9%99%90%E5%88%B6%E5%8C%97%E7%BA%A6%E6%89%A9%E5%BC%A0%E7%9A%84%E6%B3%95%E5%BE%8B%E6%8F%90%E6%A1%88)
-
-
-* * *
-
-*素材采编：北极*
-
-*编辑：青衣青青*
-
-*发布：miumiu*
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

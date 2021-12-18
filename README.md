@@ -15,110 +15,110 @@
 
 ---
 
-### [12/17/2021 文贵直播：习近平决心走北朝鲜之路来统治中国](/content/gnews/1/README.md)
- ` 秘密翻译组-北美组`
-
-### [中共政权对美国进行超限战的演化](/content/gnews/2/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [【Michael.Tonny专栏】英格兰未成年人死于中共病毒感染概率和被雷劈差不多](/content/gnews/3/README.md)
- ` 温哥华扬帆农场`
-
-### [证据表明 Covid病毒疫苗阻止群体免疫 延长了病毒‘大流行’ -1](/content/gnews/4/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [疫苗接种率最高的纽约州病毒感染病例连创新高](/content/gnews/5/README.md)
- ` HimalayaRussia`
-
-### [儿童注射辉瑞疫苗后确认有心肌炎症状](/content/gnews/6/README.md)
+### [上诉法院允许拜登政府对大型雇主执行疫苗规则](/content/gnews/1/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美国在首次公开募股前将人工智能公司“商汤科技”列入黑名单](/content/gnews/7/README.md)
+### [英国对美国的Omicron发出警告](/content/gnews/2/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [12/17/2021 文贵直播：习近平决心走北朝鲜之路来统治中国](/content/gnews/3/README.md)
+ ` 秘密翻译组-北美组`
+
+### [中共政权对美国进行超限战的演化](/content/gnews/4/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [巴西总统要求卫生监督局公布批准儿童接种疫苗官员名单](/content/gnews/8/README.md)
- ` 日本东京方舟农场`
+### [【Michael.Tonny专栏】英格兰未成年人死于中共病毒感染概率和被雷劈差不多](/content/gnews/5/README.md)
+ ` 温哥华扬帆农场`
 
-### [2021年12月17日郭文贵先生直播全文字版](/content/gnews/9/README.md)
- ` 温哥华扬帆农场七哥直播全文听写组`
-
-### [中共嫖娼就是哲学概念 超越人类](/content/gnews/10/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中国企业家带上五角帽也永远不是赵家人](/content/gnews/11/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美国已报8例5至11岁儿童接种疫苗后患上心肌炎案例](/content/gnews/12/README.md)
- ` 日本东京方舟农场`
-
-### [银河快讯: 冲绳美军基地100人群聚感染；日央行削减对中共病毒的资金援助](/content/gnews/13/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [普京和美国的接触 完全是克格勃式的花样](/content/gnews/14/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [标普全球调降恒大至“选择性违约”](/content/gnews/15/README.md)
- ` GTV新闻访谈`
-
-### [103名海军陆战队队员因拒绝新冠疫苗被开除](/content/gnews/16/README.md)
- ` GTV新闻访谈`
-
-### [俄罗斯呼吁就乌克兰及北约东扩问题尽快与美方展开谈判](/content/gnews/17/README.md)
- ` 日本东京方舟农场`
-
-### [美国中期选举完后十招出手对付中共](/content/gnews/18/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [GTV新闻访谈简报|2021年12月18日早](/content/gnews/19/README.md)
- ` 纽约香草山MOS01`
-
-### [共产党张牙舞爪的日子到头了 欧盟开始抵制中共](/content/gnews/20/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [银河快讯：岸田无计划参加北京冬奥；日本农产品出口额首超1万亿日元](/content/gnews/21/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [全美废除或推迟强制疫苗令的企业、学校和机构日益增多](/content/gnews/22/README.md)
- ` 日本东京方舟农场`
-
-### [人类永远99%的人被愚弄欺压](/content/gnews/23/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [李木子公主](/content/gnews/24/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [经济崩溃还不说 还要联苏抗美 联苏打台 让日本跪下](/content/gnews/25/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [火星大峡谷内发现大量水 水域面积相当于荷兰的国土面积](/content/gnews/26/README.md)
- ` 日本东京方舟农场`
-
-### [共产党越维护会死的越惨](/content/gnews/27/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [七哥分享给战友们自己的养生之道](/content/gnews/28/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [打过疫苗的人96%会死或得癌症](/content/gnews/29/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [音乐榜背后所诞生的力量](/content/gnews/30/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [灭共摇滚巨星歌曲 在Bilboard、iTunes上的最新打榜成绩](/content/gnews/31/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [奥米克戎Omicron明显是人造的疫苗延长了病毒‘大流行’ -2](/content/gnews/32/README.md)
+### [证据表明 Covid病毒疫苗阻止群体免疫 延长了病毒‘大流行’ -1](/content/gnews/6/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [12/18/2021国际财经快讯：美联储3月会议上可能会加息;标普500消极一周后收跌](/content/gnews/33/README.md)
- ` 秘密翻译组金融团队`
+### [疫苗接种率最高的纽约州病毒感染病例连创新高](/content/gnews/7/README.md)
+ ` HimalayaRussia`
 
-### [美国制裁中共的几大重招](/content/gnews/34/README.md)
+### [儿童注射辉瑞疫苗后确认有心肌炎症状](/content/gnews/8/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [美国在首次公开募股前将人工智能公司“商汤科技”列入黑名单](/content/gnews/9/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [巴西总统要求卫生监督局公布批准儿童接种疫苗官员名单](/content/gnews/10/README.md)
+ ` 日本东京方舟农场`
+
+### [2021年12月17日郭文贵先生直播全文字版](/content/gnews/11/README.md)
+ ` 温哥华扬帆农场七哥直播全文听写组`
+
+### [中共嫖娼就是哲学概念 超越人类](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [12/18/21 香港快讯 廉署通缉张昆阳、罗冠聪等5人 涉嫌煽惑不投票及投废票](/content/gnews/35/README.md)
- ` 英喜-粵語組`
+### [中国企业家带上五角帽也永远不是赵家人](/content/gnews/13/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美国已报8例5至11岁儿童接种疫苗后患上心肌炎案例](/content/gnews/14/README.md)
+ ` 日本东京方舟农场`
+
+### [银河快讯: 冲绳美军基地100人群聚感染；日央行削减对中共病毒的资金援助](/content/gnews/15/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [普京和美国的接触 完全是克格勃式的花样](/content/gnews/16/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [标普全球调降恒大至“选择性违约”](/content/gnews/17/README.md)
+ ` GTV新闻访谈`
+
+### [103名海军陆战队队员因拒绝新冠疫苗被开除](/content/gnews/18/README.md)
+ ` GTV新闻访谈`
+
+### [俄罗斯呼吁就乌克兰及北约东扩问题尽快与美方展开谈判](/content/gnews/19/README.md)
+ ` 日本东京方舟农场`
+
+### [美国中期选举完后十招出手对付中共](/content/gnews/20/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [GTV新闻访谈简报|2021年12月18日早](/content/gnews/21/README.md)
+ ` 纽约香草山MOS01`
+
+### [共产党张牙舞爪的日子到头了 欧盟开始抵制中共](/content/gnews/22/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [银河快讯：岸田无计划参加北京冬奥；日本农产品出口额首超1万亿日元](/content/gnews/23/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [全美废除或推迟强制疫苗令的企业、学校和机构日益增多](/content/gnews/24/README.md)
+ ` 日本东京方舟农场`
+
+### [人类永远99%的人被愚弄欺压](/content/gnews/25/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [李木子公主](/content/gnews/26/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [经济崩溃还不说 还要联苏抗美 联苏打台 让日本跪下](/content/gnews/27/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [火星大峡谷内发现大量水 水域面积相当于荷兰的国土面积](/content/gnews/28/README.md)
+ ` 日本东京方舟农场`
+
+### [共产党越维护会死的越惨](/content/gnews/29/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [七哥分享给战友们自己的养生之道](/content/gnews/30/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [打过疫苗的人96%会死或得癌症](/content/gnews/31/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [音乐榜背后所诞生的力量](/content/gnews/32/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [奥米克戎Omicron明显是人造的疫苗延长了病毒‘大流行’ -2](/content/gnews/33/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [12/18/2021国际财经快讯：美联储3月会议上可能会加息;标普500消极一周后收跌](/content/gnews/34/README.md)
+ ` 秘密翻译组金融团队`
+
+### [美国制裁中共的几大重招](/content/gnews/35/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [众议院因强迫劳动问题投票禁止从新疆进口](/content/gnews/36/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
