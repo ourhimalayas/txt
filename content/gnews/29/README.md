@@ -2,17 +2,22 @@
 ---
 
 
-## 秘翻在线：日本首相与辉瑞签署协议，购买200万剂口服药
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1767179/)
+## 樱花灭共诗——霜降
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1767190/)
 
-翻译：文字燒
-![](https://assets.gnews.org/wp-content/uploads/2021/12/16398121201.png)图片来源：产经新闻
-日本首相岸田文雄17日宣布，他已于当天上午与辉瑞公司首席执行官（ＣＥＯ）布拉斯签署了一项基本协议，以确保购买该美国制药巨头正在开发的200万剂量口服药。
+#### 作者：东京樱花团/小小杜
+![](https://assets.gnews.org/wp-content/uploads/2021/07/%E5%9B%BE%E7%89%871-7-scaled.jpg)
+对暮悲无语，人间竟至今。
 
-信息来源：[https://www.sankei.com/article/20211217-5PZDODDY6FJ35LMO6V7L7KNHXE/](https://www.sankei.com/article/20211217-5PZDODDY6FJ35LMO6V7L7KNHXE/)
+晚秋盈老泪，余照奉丹心。
 
-责编：待命（文晓）
+进步终将达，荒蛮不可侵。
 
+望中休顾首，世事逼登临。
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

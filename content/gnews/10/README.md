@@ -2,32 +2,44 @@
 ---
 
 
-## 中共被曝在2012年利用华为入侵外国电信网络
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1767428/)
+## 习近平为彭丽媛将军&amp;副主席捧场捧的不是Title而是位置
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1767442/)
 
-#### 翻译/撰稿：zzballack
+**郭文贵先生：**你一定记住，这就是现在说明，习已经完全没有人啦，谁知道谁说过的？七哥在2017年爆料就说过，你们不知道彭丽媛的作用，习所有的出行，所有的时间表，都是彭丽媛说了算，习穿着你看到挪威丹麦去，第一次就是七哥最早给彭丽媛的建议，我说中国人几千年的古国都穿西装，荒唐！
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-2-13.jpg)
-据《澳洲新闻》（News.com.au）12月17日报道，澳大利亚官员在近十年前就发现了华为的安全漏洞，正是这起事件，成为多年后美国政府联合盟友禁止华为5G网络的一个关键证据。
+当时锦涛同志答应我，跟刘永清出国都穿中式的服装，结果你看刘文清穿过那个旗袍式的，但是胡并没有换太大的，习反而把他那套设计拿过来用立领，然后彭丽媛穿中式，这是当时在丹麦、挪威，这当时丹麦，这是七哥的功劳，我觉得中国人没有自己的衣服是很可悲的，当年七哥已经发明了G-Fashion了，只是你们不知道而已。
 
-事情发生在2012年，当时澳大利亚的情报官员发现该国的电信系统遭到了一起复杂的入侵。入侵始于华为的一次软件更新，该软件“装载了恶意代码”并安装在电信供应商澳都斯（Optus）的网络上。据报道，该代码的工作原理就像一个“数字窃听器”，对受感染的设备进行重新编程，以记录通过这些设备的所有数据，包括“私人通信和可能被用来针对特定人群的信息”，然后将数据发送回中共国。
+习第一个两口子试穿的，后来他就不再往下穿了，那时候就是七哥的G-Fashion，所有的设计师都是跟我工作的，连里边的里子，紫红里子都是我换的，紫气东来嘛！是吧！这就是当时我设计的，包括那个logo都是我设计的，然后他是由北京红都时装做的，是吧！你看一看当年彭丽媛对他影响有多大。
 
-更阴险的是，这个恶意代码会在几天后自行删除。国安官员说，这是因为软件更新中嵌入了一个“自毁机制”。最终，澳大利亚情报机构确定，中共间谍机构是这次入侵的幕后黑手。他们渗透到了帮助维护设备的华为技术人员中，并通过华为电信系统推送软件更新。
+这个文艺座谈会不是开玩笑的，你往前看咱就别说毛泽东，就说邓小平，邓小平把儿子弄哪儿去了？——残联！中国残疾会主席，为啥他儿子做残疾会主席，那么多残疾人不当主席呀？残联主席给的是位置，给的不是你Title，人家是政协副主席好不好？人家是党内，是党内党和国家领导人好不好？！
 
-2012年3月，澳州政府禁止华为参加国家宽带网络（National Broadband Network）的竞标，理由是为了国家安全。
+人家是彭将军好不好？需要北朝鲜一定要给金正恩的媳妇一个职务，什么职务？大家给我说说，金正恩的老婆是什么职务谁能说出来？朝鲜人民妇女联合会主席，朝鲜劳动党，这个儿童什么慈善！不是，朝鲜劳动党劳动部儿童什么会主席，人家有四五个职务，相当级别副国级，不是开玩笑的，是吧！
 
-同年，澳洲情报官员将这起事件告知了美国同行。在此线索引导下，美国情报机构当年也证实受到了来自中共的类似攻击，也是通过位于美国的华为设备犯案。2012年10月，美国众议院情报委员会发布报告，指出中共企业华为和中兴的设备，给中共从事间谍活动提供了大量机会。
+编辑整理：海贼王M.D.LUFFY；
 
-澳州网络安全中心（Cyber Security Centre）的发言人说：“关于政府禁止高风险供应商参与澳州5G网络的决定，是由澳州国防情报局（ASD）的技术专家、基于对国家级别的恶意黑客能力的了解以及情报的洞察而做出的决定。但是，面临来自网络空间中的国家级黑客威胁的并非只有澳州一国，澳州政府与其它各国都对中共国安部的恶意网络活动表示高度关注。”
+视频制作：Cindy；
 
-目前，澳大利亚电信公司（Telstra）的网络中没有任何来自华为的设备。
+视频上传：Cindy；
 
-近年来，有许多报道说华为或其员工参与了间谍和监视活动。《澳大利亚金融评论》（Australian Financial Review）的一篇报道说，华为给巴布亚新几内亚政府建造的一个数据存储设施存在明显的安全漏洞。
+G-News发布：黎明之前；
 
-截止目前，已有美国、澳洲、瑞典和英国，全面禁止华为参与该国的5G网络建设。另有60多个国家参加了美国国务院的“清洁网络（Clean Network）”计划，旨在将华为等中共公司的电信设备排除在本国的电信网络之外。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
 
-新闻来源：[Key details of Huawei security breach in Australia revealed](https://www.news.com.au/technology/online/security/key-details-of-huawei-security-breach-in-australia-revealed/news-story/ad329132e7b1d552ba1fb77fcc3f8714)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
