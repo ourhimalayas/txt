@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/18/2021 7:49 AM (UTC)`
+
+12/17/2021 Miles Guo: The operations of the mock funerals dedicated to the CCP will only target the following four CCP kleptocrat families: Xi Jinping’s family, Wang Qishan’s family, Meng Jianzhu’s family, and Jiang Zemin’s family. Since they are obsessed with using magic powers and sorcery to go against us, we are going to deal with them in the same way; what does it mean for Xi to let his wife Peng Liyuan make a formal appearance in the recent All-China Congress of Literary and Arts Workers this year?<br/><br/>12/17/2021 文贵直播：给共产党的送棺材活动只针对习、王、孟、江四大家族，他们沉迷于施法术、巫术，我们将以其人之道还治其人之身；习这次文代会让彭丽媛正式出场，意味着什么？<br/>
+![img](https://media.gettr.com/group49/getter/2021/12/18/07/d739e0e2-aad5-9c4f-ac6e-33412449fe93/out.jpg)
+
+---
+
+`@miles 12/18/2021 7:43 AM (UTC)`
+
+12/17/2021 Miles Guo: The CCP’s taking over Pangu (the dragon head-shaped building) and Yuda (“the Buddha's Hands in Zhongyuan”) indicates that Xi Jinping believes in the existence of God and Buddha and that the Whistleblowers’ Movement and the New Federal State of China are bound to take down the CCP. The year of Ren Yin, the year of the water tiger, is the year for the “match of magic powers” of Xi and Peng Liyuan vs. New Federal State of China <br/><br/>12/17/2021 文贵直播：中共现在搞盘古(龙)、搞裕达(中原佛手)，说明习彭相信神佛、相信爆料革命、新中国联邦必灭中共，农历壬水寅虎年是习彭和新中国联邦的“斗法”之年<br/><br/>
+![img](https://media.gettr.com/group38/getter/2021/12/18/07/3dcc718a-7fec-95f3-2419-dfed740c3931/out.jpg)
+
+---
+
 `@miles 12/18/2021 3:42 AM (UTC)`
 
 12/17/2021 Miles Guo: “Atheists Xi (Jinping) & Peng (Liyuan) performed a political witchcraft on Pangu Plaza, which is exactly the same with what Ceausescu couple, and each last emperor in China’s history, i.e., massively applied enchantment, delusion, witchcraft and wizardry in their last days<br/><br/>12/17/2021 文贵直播：标榜无神论者的习彭对盘古施了一场政治大巫术，和当年齐奥塞斯库两口子、中国历代末世君王大量实行蛊、惑、妖术、巫术如出一辙
@@ -144,19 +158,6 @@
 
 12/15/2021 Miles Guo: The Tibet Independence Act pushed by the U.S. is of profound significance - the CCP only has two options: 1) declare a war against the US, or 2) let Communist China enter an era of darkness; the only thing that the CCP can do is to struggle, and it will surely be finished!<br/><br/>12/15/2021 文贵直播：美国推动的《西藏独立法案》意义深远 - 共产党只有两个选择：1）和美国开战、2）中共国进入黑暗期；中共只剩下挣扎了，但结果一定是完蛋！<br/>
 ![img](https://media.gettr.com/group17/getter/2021/12/16/02/812c7d0f-793a-30a8-c9ad-d9685738f235/out.jpg)
-
----
-
-`@miles 12/16/2021 2:13 AM (UTC)`
-
-12/15/2021 Miles Guo: Ivermectin is a wonder drug discovered by a Japanese in nature, which has been molecularized and medicalized to treat Onchocerciasis in Africa for free; on the contrary, although Ms. Tu Youyou’s Artemisinin is a billion times more effective than Ivermectin, the CCP refused to share it with the world!<br/><br/>12/15/2021 文贵直播：伊维菌素是日本人发现于自然界的神药，经分子化、医药化后，免费提供非洲治疗河盲症；屠呦呦女士的青蒿素比伊维菌素神奇亿万倍，却被中共老杂毛雪藏、不与世人分享<br/>
-![img](https://media.gettr.com/group11/getter/2021/12/16/02/a716717e-8dae-c600-b2aa-c4023c4711c0/out.jpg)
-
----
-
-`@miles 12/16/2021 12:26 AM (UTC)`
-
-15/12/2021  On 6th Day of Launch, MV "Hcoin To the Moon" Hits iTunes <br/> No. 1 🥇on 18 Countries Top MV Charts !<br/>No.1🥇 on 16 Countries Rock MV Charts!<br/>No.1🥇 on 9 Countries Rock song Charts!<br/>No.1🥇on 6 countries Hip-pop/Rap song Charts!<br/>Miracle continues…….🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, USA, Taiwan, Australia, Canada, Singapore, New Zealand, Thailand, Cambodia, Laos, Hungary， Greece, Philippines, Malaysia, Fiji, Latvia, Macau, Finland!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1757964/<br/><br/>12月15号，MV版Hcoin To the Moon上线第6天位列iTunes<br/>18国热门MV榜首🥇！<br/>16国摇滚MV榜首🥇！<br/>9国摇滚歌曲榜首🥇！<br/>6国嘻哈歌曲榜首🥇！<br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港，美国，台湾，澳大利亚，加拿大，新加坡，新西兰, 泰国，柬埔寨，老挝，匈牙利，希腊，菲律宾， 马来西亚，斐济，拉脱维亚，澳门，芬兰的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏
 
 ---
 
