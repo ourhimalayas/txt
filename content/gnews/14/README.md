@@ -2,28 +2,21 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月18日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1768548/)
+## 普京和美国的接触 完全是克格勃式的花样
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1768593/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-3.jpg)
+文编：东京樱花团/樱花传媒
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-18.png)
-文章仅代表作者本人观点，与Gnews无关
+视频:东京樱花团/中文小视频组
 
-视频参看：[2021.12.18早GTV新闻访谈](https://gtv.org/video/id=61bde1e97882000d5103cbb6)
+12月10日，郭文贵先生在GTV大直播指出：
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+普京是最大的政治玩家，对待大国外交完全是克格勃的手法。美俄两国已从过去的绝对仇恨到现在的开始联手合作，普京善于政治秀，此人深谙合纵连横，声东击西之道。他是从小被培养出来的超级心理战专家，心理能力和判断能力极强。美俄两国的合作预示着新一轮的大国外交关系正在形成。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/calendar.jpeg)
+编辑：东京樱花团/墨然
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWSLOGO20211207.jpg)
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

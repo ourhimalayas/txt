@@ -2,38 +2,35 @@
 ---
 
 
-## 银河快讯：岸田无计划参加北京冬奥；日本农产品出口额首超1万亿日元
-` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1768520/)
+## 103名海军陆战队队员因拒绝新冠疫苗被开除
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1768576/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/OF3pa1aWCcRom2JxRnlEAQcqo72wRtiIPiHe20QCJDjsKTS4wX53QLJgDA-y2BImgw5yQ8z0QH-42b2GZYZ267yRrRr9poeun0M6mYFOf2hNacvKtacDRk4-8yUx_EFmkV60poxRdZREahtqxDtKKs5iYsDMhXFc1XOxUPtGpCo.jpg)[图片来源](https://news.yahoo.co.jp/)
-**1****.****岸田首相：我****无****计划参加北京****冬****奥**
+作者：纽约香草山教育部 – Irene木木
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月16日，据当地媒体报道，美国海军陆战队发布公告称，已有103名海军陆战队队员因拒绝接种新冠疫苗而被开除。除此之外，还有多达三万名的其他军种现役军人也将因同样的理由开始被分批遣散。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-19-上午12.34.17.png)
+早在今年8月，美国国防部长奥斯汀下令，要求全体军人必须接种新冠疫苗。此后，各军种迅速制定了相应的截止日期，同时警告所有的服役人员，如果他们不接种疫苗，他们可能会面临退伍的处罚。数据显示，美国现役军人中，未接种新冠疫苗的人员数量接近3万名，他们或者直接拒绝接种疫苗，或者正在等待行政处理医疗或宗教豁免的请求。目前，美国多个军种已经开始正式执行行政开除的处罚措施。
 
-[据TBS新闻报道称，日本首相岸田文雄表示，他本人没有计划出席明年的北京冬奥会和残奥会。这是他对参议院预算委员会会议上一位反对派立法者的回答。就北京冬奥和残奥而言，由于中国的人权问题，自民党内部和其他党派都呼吁不要派遣内阁成员出席奥运会，政府也一直在朝这个方向推进。](https://news.yahoo.co.jp/articles/33b8dfe4eade7c84af976436e881b60f6b3b6ea2)
+对此，世界卫生组织欧洲免疫咨询专家组前副主席克里斯蒂安·佩龙于当天警告称，服从政府强制令接种新冠疫苗的人才是对公共健康真正的威胁。佩龙解释道，研究表明，95% 的新冠重症患者都是接种过新冠疫苗的人，而未接种者几乎很少出现感染情况。佩龙强调，相较于未接种者，那些接种新冠疫苗的民众才是真正会传染病毒的人。
 
-**2****.****日本****新增****190例****中共病毒****病例**
+参考链接：
+1）[https://gettr.com/post/pju0uta2fa](https://gettr.com/post/pju0uta2fa)
+2）[103 Marines booted for refusing COVID vaccine as services begin discharges](https://abcnews.go.com/Politics/103-marines-booted-refusing-covid-vaccine-services-begin/story?id=81793800)
+3）[Immunization expert warns that covid VACCINATED people are the real threat to public health](https://newstarget.com/2021-12-16-immunization-expert-covid-vaccinated-threat-public-health.html)
 
-[时事通信社报道，16日，日本确认了190例中共病毒病例。死亡3人，重症27人，与前一天相同。东京新增30例，是35天以来首次单日新增病例数突破30，比上周四增加13例。根据市政府的数据，过去一周的平均新增感染人数为21.1人，比前一周增长126.3%。依据市政府的标准，重病患者的人数为3，与前一天相同。](https://sp.m.jiji.com/article/show/2676824)
+![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-**3****.****因疫****破产案：****日本****12月****超过****100多起**
+总编：Ivy001
+编辑：Ivy001
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-[据东京商工调查会社发文，截至12月16日16:00为止，又确认了7起与中共病毒疫情有关的企业倒闭案件（负债1000万日元或以上），这使全国的同类案件总数达到2483起（2360起破产案件和123起正在由律师准备中的案件）。自进入2021年2月份后，破产案月均超过100起，9月和10月连续两月更新最高记录。在解除紧急状态和撤销防止疾病传播的优先措施后，因疫破产案件的数量并没有减少的迹象，11月发生169起，连续三月保持高水准。2021年，这一数字现已达1640起，几乎是2020年843起的两倍。预计政策支持，如对企业的优惠以及金融机构的还贷暂缓措施将持续，但一些公司由于长期业绩不佳，已明显过度负债。](https://news.yahoo.co.jp/articles/c7cbc8f6b40c85fcbbf1711740b0fa0b32fd73ad)
-
-**4****.****日本将向世界银行扶贫基金提供创纪录的3760亿日元捐款**
-
-[据共同社报道，日本财政部周四表示，日本将向国际开发协会提供创纪录的3767亿日元（34亿美元）捐款，目的是帮助一些国家从中共病毒大流行中恢复。国际开发协会将利用其资金向74个低收入国家提供援助，如提供疫苗、创造在大流行病中失去的就业机会以及应对气候变化。通常每三年向国际开发协会提供一次资金补充，但在中共病毒大流行中，基金已被提前一年耗尽。2019年12月，捐助者同意提供总价值820亿美元的捐款。日本和其他捐助方这次将向国际开发协会提供总额为235亿美元的捐款。](https://english.kyodonews.net/news/2021/12/4adba35da5db-japan-to-contribute-record-376-bil-yen-to-world-bank-fund-for-poor.html)
-
-**5****.****牛肉、清酒和其他农产品的出口额首超1万亿日元**
-
-[据NHK报导，今年日本的农业、林业、渔业和食品的出口总值首次超过了政府长期以来设定的目标，每年1万亿日元。其主要原因是美国和中共国餐饮业的恢复。今年1月至10月，农业、林业、渔业和食品，包括珍珠和其他非食品项目的出口总额为9734亿日元，使1月至11月的出口总值达到10633亿日元。未来出口增长面临的挑战是，在东京电力公司福岛第一核电站事故之后，包括中国和台湾在内的14个国家和地区仍然对日本食品进口设有限制。](https://www3.nhk.or.jp/news/html/20211216/k10013390371000.html?utm_int=all_side_business-ranking_001)
-
-**6****.****东电****投入同时可供****六车****充电****的电动汽车快速充电器**
-
-[据日经新闻报道，东京电力控股的子公司、电动汽车（EV）充电设施供应商eMobility Power（东京港区）于16日在东京都高速的大黑停车场（横滨市）投入了一种新型EV快速充电器。一台供电设施同时可为六辆电动车充电。 这样即使在狭窄的区域内可使更多的电动车同时充电，这将减少停车区的充电等待时间。充电器系统由尼吉康设计，而总体框架，包括充电顺序，是由eMobility Power公司设定的。](https://www.nikkei.com/article/DGXZQOUC167FD0W1A211C2000000/)
-
-【日本银河系农场-阿尔法星球】
-作者：帆間知津
-校对：Tagomi
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
