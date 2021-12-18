@@ -2,39 +2,40 @@
 ---
 
 
-## 有声|日本加快推进辉瑞的药品供应
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1769203/)
+## 中共房地产金融骗局
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1769234/)
 
-配音：香草山美食部 – 玫瑰园
+作者: 纽约香草山教育部 annafu
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-据[OAN网站](https://www.oann.com/japan-pm-kishida-speeds-boosters-and-secures-pfizer-pills-amid-omicron-fears/)12月17日援引路透社报道，出于对OMICRON变种的担忧，日本首相岸田文雄周五与辉瑞公司负责人进行了电话交谈，以确保200万剂辉瑞公司抗病毒药在日本的供应，并表示将加速为老年人接种疫苗加强针的措施。
 
-岸田说，日本的目标是在首次接种后的六个月而非八个月内，为大约3100万名医护人员和高危老人提供疫苗加强针。他说，从2月起，其他老人将在7个月内得到加强针注射。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-5-768x103-14.jpg)
 
-日本已与辉瑞公司签约，为明年订购了1.2亿剂疫苗。截至本月，日本的疫苗库存约为1600万剂。周四，日本政府正式批准Moderna的中共病毒疫苗加强针计划，该计划迄今位置仅覆盖了0.1%的日本人口。
 
-尽管日本的疫苗接种相对较晚，但迄今为止，日本已为其近80%的人口进行了全面接种，是七国集团经济体中接种比例最高的国家。
 
-文字版原文：[日本加快推进辉瑞的药品供应](https://gnews.org/zh-hans/1766142/)
+中共自已制定的外商禁入产业和外汇管制政策对单伟健这一类的中共权贵阶层不适用。中共制定外汇管制给中共国内的普通企业和个人带来了各种限上划的同时，中共权贵阶层又打造了地下钱庄的渠道。边管制边赚钱两不耽误。文贵大直播中告诉我们单伟健段位很高所有经历是中共布置的大局,而且直接领导是王岐山,单伟健一家是典型的中共海外情报局特工。王岐山绝对的忠实马仔。对西方渗透之深，伤害爆料革命的背后爪牙。
 
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
+单伟健说中共有优越性，那我们就要让他和他的家人离开西方世界，懂英语的战友一定把单伟健的背景。PAG简介告诉政府，让他们知道这孙子就是中共在西方的特务。一定要让单伟健和PAG受到最严历的惩罚。中共不怕口头骂，我们要让他们有真的痛。一定要让单伟健付出代价，单伟健拿着美国护照是中共间谍，特务，单伟健在海外大量投资骗取的钱偷税，漏税一定送进监狱。
+
+事实上世界发展需要大家遵守规则但是所有手段到了中共那里全是变了味，就是只利已，不利人，中共国金融都在中共独裁政府手里。中共是最大刽子手。中共利用海外间谍机构把西方金融机构渗透骗进口共国套中。
+
+中共是用金融骗西方和中国人的钱放进了盗国贼的口袋里。中共已经海外渗透多年。蓝，金，黄了整个世界，许多国家己经在中共一带一路骗局下成为了中共金融，奴隶和政治阶附属国。在联合国，美国，西方被中共颠倒黑白打得一败涂地。又用病毒屠杀几百万人。世界人民都变成了中共统领世界的成绩单。中共奴隶世界的资金渠道从中国百姓掠夺。从国际资本市场骗钱，欺骗手段包括财务造假，中共侵略全世界方法:1，制毒，放毒。2，利用西方技术侵咯西方，破坏金融市场。3，收买西方媒体既干涉政治，也影响资本市场的政券价格，新中国联邦破中共所有的招数及骗局。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/dec.jpg)
+
+编辑/校对/发稿：滚滚长江都是水
+
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
  
 
