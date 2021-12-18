@@ -2,28 +2,40 @@
 ---
 
 
-## 拜登在南卡承诺要为选举权和警察改革而战
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1767280/)
+## 习近平彭丽媛施巫完全失败并重蹈齐奥塞斯库埃列娜之路
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1767330/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-90.png)
-图片来源： www.dwnews.com
+**郭文贵先生：**这是一场多大的巫术，而且这个施术者最后的承受人一定是习近平和彭丽媛啦。那他俩，你觉得习近平的脸色，在去年到现在更好吗？你觉得彭丽媛现在比原来更年轻吗？你觉得中国的经济越来越好吗？最主要的房地产，这房地产你觉得现在是涨了还是增了？金融机构你说是好还是坏啦？
 
-美联社12月17日报道，拜登总统周五在南卡罗莱纳州立大学毕业生讲话中承诺要为选举权和警察改革而战，残酷的现实是近几个月来与立法人士的对话一直不能使之成为法律。
+中国人，中国共产党习近平、彭丽媛在世界上受喜欢的环境是越来越多了吗？是吧！就说明这个术失败了吗，是吧！他的经济不好，房地产不好，民心不好，国际环境不好，对台湾对香港更不好，而且全世界把他们列为了犯罪组织，这多大的事啊！而且让他负责，多大的事啊！
 
-拜登在他的近2万亿社会与环境方案今年不太会法律通过而不得不让步的情况下，来到这里发表讲话，原因是民主党内意见继续不一致，而共和党全都反对这项化费。拜登指责共和党拒绝让该法案进行辩论。
+跟当年齐奥塞斯库，跟当年萨达姆、卡扎菲，完全是一个路，你可千万别忘了，连北朝鲜都没混上这么多头衔，全让习太阳今天全混上了。
 
-拜登说：“ 但是这场战斗还没有结束，我们将继续为此而战，直到成功。”
+编辑整理：海贼王M.D.LUFFY；
 
-拜登发誓为保护他所称的“神圣的选举权”，因为全美有色人种组织和相似的组织与白宫因为此问题的裹足不前而受挫，选举权是明年中期选举民主党的首要议题，而共和党控制的立法机构通过了一波新的选举法的限制。
+视频制作：小满；
 
-拜登还承诺为警察改革的宣传，在一系列黑人被警察杀死之后，尤其是在明尼阿波利斯州的乔治·弗罗伊德被警察用膝盖抵住他的颈部9分钟而致死案之后。参议院今年早些时候提出改革方案以应对弗罗伊德事件，但两党在数月的谈判后仍未达成一致。
+视频上传：Cindy；
 
-在南卡和一些其他州，黑人选民是重要的帮助拜登赢得选举的力量，拜登希望民主党集中精力通过选举法，该选举法草案在参议院中各占一半。
+G-News发布：黎明之前；
 
-##### **新闻来源： **[In SC, Biden pledges fight for voting rights, police reform](https://apnews.com/article/joe-biden-south-carolina-graduation-orangeburg-congress-0c36532f48e01a77ebf599f8bdae04d6)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
 
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

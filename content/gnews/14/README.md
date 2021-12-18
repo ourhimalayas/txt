@@ -2,41 +2,75 @@
 ---
 
 
-## 习近平彭丽媛施巫完全失败并重蹈齐奥塞斯库埃列娜之路
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1767330/)
+## 若抛弃政治大流行则立地解决
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1767465/)
 
-**郭文贵先生：**这是一场多大的巫术，而且这个施术者最后的承受人一定是习近平和彭丽媛啦。那他俩，你觉得习近平的脸色，在去年到现在更好吗？你觉得彭丽媛现在比原来更年轻吗？你觉得中国的经济越来越好吗？最主要的房地产，这房地产你觉得现在是涨了还是增了？金融机构你说是好还是坏啦？
+翻译：Jenny Ball
 
-中国人，中国共产党习近平、彭丽媛在世界上受喜欢的环境是越来越多了吗？是吧！就说明这个术失败了吗，是吧！他的经济不好，房地产不好，民心不好，国际环境不好，对台湾对香港更不好，而且全世界把他们列为了犯罪组织，这多大的事啊！而且让他负责，多大的事啊！
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-921.png)图片来源 : theepochtimes.com
 
-跟当年齐奥塞斯库，跟当年萨达姆、卡扎菲，完全是一个路，你可千万别忘了，连北朝鲜都没混上这么多头衔，全让习太阳今天全混上了。
+美国前住房和城市发展部部长本·卡森( Ben Carson) 博士 2021 年 12 月 7 日在弗吉尼亚州。（York Du/大纪元时报）
 
-编辑整理：海贼王M.D.LUFFY；
+本·卡森博士告诉 《大纪元》的“美国思想领袖”节目，“我们一直对 COVID-19 大流行抱有狭隘的看法”。
 
-视频制作：小满；
+“让我们抛开政治，就可以很快解决这个问题，”他在 12 月 18 日晚上 7 点首播的采访中说。
 
-视频上传：Cindy；
+“让我们把病毒向所有不同的机制开放，”著名神经外科医生卡森说，他于 2008 年因其工作而获得总统自由勋章——这是美国最高的平民奖，他于 2013 年退休，并于 2016 年竞选总统，之后在川普政府期间担任住房和城市发展部部长。
 
-G-News发布：黎明之前；
+“让我们看看世界各地行之有效的做法，
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
+- 让我们看看在非洲西海岸几乎没有新冠病毒的事实。
+- 让我们问问自己，这是为什么？然后你看到，这是因为他们服用抗疟药，特别是羟氯喹，那让我们研究一下看看那里发生了什么。
+- “让我们听听这些在伊维菌素方面取得巨大成功的医生团体的意见。
+- 让我们看看单克隆抗体的结果。
+- 让我们来看看所有这些事情。
+- 让我们把它们都放在我们的军备库中，这样我们就没有一个一刀切的系统。”
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+美国FDA曾一度授权羟氯喹治疗某些 COVID-19 患者，但在 2020 年 6 月迅速撤销了紧急使用授权 (EUA)，声称没有数据显示其有效性。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+出于同样的原因，**FDA **尚未批准或发布伊维菌素治疗**COVID-19 **的**EUA**。
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+使用羟氯喹或伊维菌素治疗 COVID-19 患者一直存在很大争议。一些研究表明，并且一些医生声称，羟氯喹或伊维菌素可以有效治疗 COVID-19 患者。美国CDC的一份疫苗信心洞察报告，将此类声明标记为错误信息或虚假信息。
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+“COVID是一种病毒，病毒会变异。这就是他们所做的，他们将继续变异，”卡森说。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+“我们可以承认并处理它，或者我们可以采取每一个微小的突变和每一个微小的变化，并试图将其变成一场危机，这样我们就可以吓唬人们，并更多地控制他们的生活，”卡森说。
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+最新的变种被命名为 Omicron。在 12 月 15 日的白宫 COVID-19 工作组简报中，CDC 主任表示，她预计 Omicron 病例将在未来几周内增加，敦促人们采取预防措施，例如接种疫苗和接种加强剂量。
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+卡森说，他对如何利用**COVID-19 **来**“**操纵和恐吓人们**”**有些担忧。
 
+“我认为很多人不必要地死去，因为我们有这种态度，”卡森补充道。他分享说，当他感染中共病毒并病重时，单克隆抗体挽救了他的生命。他说，单克隆抗体并没有像早期那样真正得到利用。
+
+FDA 于 2020 年 11 月发布了第一个用于治疗 COVID-19 患者的单克隆抗体 EUA。
+
+“有很多非常有效的事情我们没有探求，包括自然免疫，”卡森说。
+
+他建议，这就是人们对联邦卫生机构失去信心的原因之一。
+
+上个月，CDC表示，它没有自然免疫人传播中共病毒的记录。
+
+卡森还反对强迫儿童接种疫苗。
+
+“就我们现在的情况，政府提倡儿童接种疫苗，而 COVID 儿童的死亡风险为 0.025%，与季节性流感的死亡率基本相同。你不会看到我们每年都为季节性流感让所有孩子打疫苗，”卡森说。
+
+“健康儿童的Covid感染死亡风险接近于零，但我们却在不知道疫苗长期风险是什么的情况下这样做？**”**他说。** “**你为什么要把一个无辜的孩子置于一生未知的危险之中？这完全没有意义。
+
+“为什么不学习如何看待什么是合乎逻辑的，什么是有意义的？为什么不鼓励讨论这些事情，而不是每个人都在各自的角落里向对方投手榴弹。”
+
+他说，出路是真正的领导。
+
+“唯一的途径是强有力的领导。但我们没有。”
+
+新闻来源 :[ theepochtimes.com] [Pandemic Could Be Solved Quickly If Politics Thrown Out: Dr. Ben Carson](https://www.theepochtimes.com/mkt_morningbrief/pandemic-could-be-solved-quickly-if-politics-thrown-out-dr-ben-carson_4161315.html?utm_source=Morningbrief&amp;utm_medium=email&amp;utm_campaign=mb-2021-12-17&amp;mktids=e0b681a9ea46f28cd3563657c937b4de&amp;est=bS6660NaMP3tbcyvX3kaoNXRTjy6jL%2F57tYiprBbVkTf%2BqhY1hOdvT%2BmLw9d82q8btzmog%3D%3D)
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-3.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
