@@ -2,34 +2,23 @@
 ---
 
 
-## 加拿大公民因未接種疫苗而被禁止進入祖國
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1766930/)
+## 香港立法会选举近四成不愿投票
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1766966/)
 
-作者: 紐約香草山農場教育部 – 獨行者Maverick
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%96%B0.png)
-12月16日，一名加拿大女性製作了一段視頻，講述了她因未接種疫苗而被禁止入境的，哀嘆加拿大怎樣會墜落得如此之快。
+撰稿：子喜太一
+![](https://assets.gnews.org/wp-content/uploads/2021/12/182.jpg)图片来源：Pexels免费照片资料库；摄影：Jacob Zatorsky
+2021年12月7日香港民意研究所公布的民调指出，对于香港立法会选举，约51%的人表示会去投票，约36%的人表示不会去投票，投票意愿下降到民调举行30年来新低，近五成的人表示地区直选候选名单中没有他们想支持的人。2016年同类型民调，当时有83%市民说会去投票，而最终实际去投票的只有58%。
 
-當她提到她不能回去看望她的家人並與他們一起慶祝聖誕節，並且她已經有一年多沒有見到他們時，她開始流淚。 即使她最終被允許進入加拿大，她也不會再被允許去另一個國家。 她成了自己國家的囚徒。 她懇求加拿大總理賈斯汀·特魯多將自由和權利還給加拿大人民。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture6-6.jpg)
-最後，她開始唱起了加拿大國歌，但她無法唱完整首歌，因為她感到非常難過，這裡不再是她所認識的加拿大。
+在《香港国安法》施行以及选举机制大幅修改的影响下，民主派人士难以通过候选资格地审查，以致于民主党、公民党等香港民主派政党都没有派出候选人参选。对香港政府而言，新制选举可以防堵“反中乱港”人士参选。事实上，这表明香港的民主制度已死。
 
-世界各國政府，甚至是以民主自由為榮的西方國家，居然都墜落到了這個地步。 然而，他們越是打壓，人們的反抗就會越大。 正如我們現在所看到的，全世界熱愛自由的人們正在採取行動，走上街頭，告訴他們的政府他們實在已經受夠了，並要求將自由歸還給他們。 各國政府不可能這樣瘋狂下去，除非他們想把自己也毀滅掉。他們最終將不得不對人民讓步。
+香港人经过100多年法治、民主意识的熏染，非常明白如今的香港早已没有法治，更没有民主，CCP昏庸无能，非要把一个世界金融中心变成大陆的一个县、一个村，自以为掌控了香港，想用假民主、假投票继续愚弄香港人。这次彻底失败，香港人才不上当，你CCP玩假民主，假投票，我们以不投票来抵制揭穿这场闹剧。
 
-参考来源：[加拿大公民因未接種疫苗而被禁止進入祖國](http://Unvaccinated%20Canadian%20Citizen%20Blocked%20from%20Returning%20to%20Her%20Home%20Country)
+CCP号称自己是全世界最好的民主国家，这次对香港民主的公然蹂躏和践踏，港人用实际行动打了CCP的脸。CCP在大陆以警治国、以假治国、以黑治国的成功经验在香港碰了钉子。CCP的诡计已被戳穿，CCP的恶行将被世人瞩目，CCP一定会上绞刑架！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88-1.png)
+参考链接：[联合新闻网](https://udn.com/news/story/7331/5968549?from=udn-catebreaknews_ch2)
 
-编辑/校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
-
+​*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,31 +2,10 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月17日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1766713/)
+## 12/17/2021 文贵直播：习、彭等人极度迷信，认为裕达是中原佛手、是文贵先生的根器，必须在壬水寅虎年前干掉
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1766730/)
 
-作者：香草山翻译部
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-3.jpg)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1217text-SC.png)
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-视频参看：[12.17  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61bd39597882000d51035de6)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/calendar.jpeg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+秘密翻译组-北美组
 
  
 

@@ -2,26 +2,44 @@
 ---
 
 
-## 科学家爆料,新变种病毒对某些人群可能更加致命
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1767021/)
+## 美国新冠病毒死亡人数超过 80 万
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1767137/)
 
-撰稿人：大浪小水花
-![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Image-2021-12-17-at-10.56.56-AM.jpeg)
-郭文贵先生在2021年12月17日大直播中提到，在过去的四十八小时，我们的科学家跟郭先生联系的非常的频繁，科学家向他透露了欧米克隆病毒变种最近出现的新情况。
+作者：纽约香草山教育部 Naughty(文行)
 
-因为科学家对国内的数据掌握是非常及时的，特别是国内大面积污染的地方。科学家指出现在有一种倾向，认为欧米克隆致死率更低，甚至可能是解药，但现在出现了几个极端的问题，欧米克隆对不同的种族和不同的地区是完全不同的概念。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-7.png)
 
-首先，这个病毒对受污染局严重地区的人作用很夸张。在污染严重的地区，如果人的肺部被污染，肺部有很多堵塞的地方，欧米克隆会使人呼吸急促，因为在肺里边这个病毒的繁殖率很高，加速了这个整个肺部还有血管毛细血管的阻塞，导致人会迅速死亡。科学家说欧米克隆的致死率在过去四十八小时非常严重。
 
-科学家认为在过去的一周内中国死亡人数一定是超过几十万人的，一定是十万起步的，但是没有公布。
+据福克斯新闻报道，截止到12月14日，美国新冠病毒死亡病例数已超过80万。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-300.jpeg)图片来源：美联社
+根据约翰·霍普金斯大学冠状病毒资源中心的数据，自2020年3月以来，全球已知死亡人数已超过530万人，美国是所有国家中报告死亡人数最多的国家，美国新冠确诊病例也已达5200万。
 
-第二个，这个病毒变种对有肺病、血管病、心梗、脑梗相关病史的人，也是非常危险的。因为这个病毒变种的繁殖率极高，会导致人迅速死亡。这也是为什么最近几天全世界很多人说，发现所有被感染的都是打过两针三针的人。科学家认为一个最核心的元素是由于人打了Mrna疫苗 ，使人的身体会一直有抗体，疫苗本身就是毒，它本身就在人身体造成了堵塞，如果这时感染了欧米克隆，它就会加速了塞，并使你的身体更极力的对抗，人就活不了了。
+欧盟官员表示，到明年1 月中旬，欧米克隆将成为全球新冠病毒的主要变种。
 
-科学家指出，欧米克隆变种致死率比过去的变种低，但对某些人群可能是相反的结果。
+新闻来源：[https://www.foxnews.com/health/covid-19-pandemic-death-toll-800000-us?utm\_source=ground.news&utm\_medium=referral&gt;](https://www.foxnews.com/health/covid-19-pandemic-death-toll-800000-us?utm_source=ground.news&amp;utm_medium=referral%3E)
 
-参考链接：https://gtv.org/video/id=61bc8c137882000d5102bf12
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-302.jpeg)
 
-校对发布：大浪小水花
+编辑/校对/发稿：文敬
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-7.png)
+
+
+
 
  
 
