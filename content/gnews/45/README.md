@@ -2,20 +2,22 @@
 ---
 
 
-## 美国大型医院取消疫苗强制接种
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1767743/)
+## 记录武汉疫情的方方被解除中共官方职务
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1767780/)
 
-作者：纽约香草山医疗部 – 云豹
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-08-30-at-7.37.59-PM-3.png)
-据美国媒体12月15 日报道，在联邦法官暂时停止了拜登政府对医护人员的疫苗强制令后，美国一些大型医院集团，如Advent医学中心、克利夫兰诊所、HCA医疗、山间医疗以及泰尼特医疗等，表示取消对员工的新冠病毒疫苗强制接种计划，以帮助解决劳动力短缺问题。所列的五个集团共涉及300多家医院，50多万名员工。
+作者：东京樱花团 – 在远方
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-08-30-at-7.37.59-PM-2.png)
+台湾媒体12月16日报道，作家方方因在中共病毒开始爆发时于武汉撰写《方方日记》，12月14日被剔除出中共作家协会主席团名单。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/7-29.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/9-13.jpg)
 
-最近几个月，由于职业倦怠、劳动力成本和疫苗强制的原因，数以千计的工人选择了离开这个行业，或者失去工作，而不是去接种疫苗。一名员工福利律师称，这是一次大规模的外流，医疗保健行业的很多人都愿意出去找工作。这些医疗机构一直在努力留住足够的护士、技术人员和清洁工，以应付新冠病毒大流行期间住院人数激增的状况。
+据悉，方方在2020年1月25日至3月25日，连续记录了自己在武汉封城期间的见闻及思考。由于内容贴近真实，且与中共官媒报道有差距，一度成为外界了解武汉疫情的重要途径之一。
+
+面对中共官方势力和被洗脑粉红民众的围剿，方方表示自己受到中共当局和文学界的排斥，文学生涯已经彻底被改变。她不再有机会做评论或在媒体发表文章，也无法参加各种文学活动，这是她从事文学工作近40年首次遇到的情况。
 
 参考链接：
 
-- [Some Hospitals Drop Worker Vaccine Mandates](https://www.webmd.com/vaccines/covid-19-vaccine/news/20211215/some-hospitals-drop-worker-vaccine-mandates)
+- [方方記錄疫情觸怒北京 被剔除出中國作家協會主席團](https://cn.rti.org.tw/news/view/id/2119681)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)

@@ -2,34 +2,48 @@
 ---
 
 
-## 港共政府清算《苹果日报》发行公司
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1767011/)
+## 《国家脉动》“年度爱国者奖”获得者——史蒂夫·班农
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1767042/)
 
-作者：纽约香草山教育部 – Irene木木
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间12月16日，据相关媒体报道，香港法院下令对最近倒闭的民主派报纸《苹果日报》的母公司Next Digital进行清算。
+#### 撰稿：日本东京方舟农场  幽蘭自得
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide3-11.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/73E49FD2-F4EC-404C-BEC2-95F6A9EE2D92.jpeg)（图片来自网络）
 
-资料显示，中共政府于2020年在香港强制推行国安法后，港共政府随即将香港《苹果日报》及其母公司Next Digital作为镇压目标。今年6月，港共政府借由国安法定义的所谓“颠覆、分裂、恐怖主义和与外国势力勾结”等莫须有罪名，迫使Next Digital停止出版香港《苹果日报》并冻结了该公司的所有银行账户，同时暂停了该公司的股票交易。与此同时，《苹果日报》的创办人也因中共国安法定义的“非法集会”罪而被迫入狱。知情人士透露，由于香港《苹果日报》及相关人员的遭遇，Next Digital公司的资金随即被迅速耗尽。数据显示，目前，Next Digital净亏损超过2.4亿港元，其中还有拖欠当地员工工资的1.2亿港元，这也导致港共政府对该公司提出清算要求。
+12月16日，《国家脉动》宣布将其第二届“年度爱国者奖”授予前白宫首席战略顾问、知名政治类播客频道War Room （作战室）创建者兼主持人——史蒂夫·K·班农（Stephen K. Bannon）。
 
-另外，报道中也提及，Next Digital公司仍在运作的台湾分部的资产也会遭到波及。有关人士提到，作为清算资产的一部分，台湾版《苹果日报》也将被出售，同时，包含台湾员工个人信息的Next Digital数据库也将被暴露给港共政府。对此，台湾大陆事务委员会也表示，台湾方相当担忧这些数据可能会被“不当使用”。
+据《国家脉动》报道，现年 68 岁的班农在 2016 年引起全美国的关注。他领导川普竞选团队，以惊人的胜利击败了民主党阵营的代表克林顿·希拉里，帮助川普当选美国总统。之后，班农曾一度担任白宫首席战略顾问。
 
-参考链接：[Hong Kong Orders Liquidation of Anti-Communist Apple Daily Publisher](https://www.breitbart.com/asia/2021/12/16/hong-kong-orders-liquidation-of-anti-communist-apple-daily-publisher/)
+在离开白宫之后，班农与前川普的通讯主管杰森·米勒以及《国家脉动》总编辑拉希姆·卡萨姆一起，创立了政治类播客频道War Room ，并取得了巨大成功，不仅排名最高播客之一，并且获得了95%以上观众的喜爱。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
+班农的履历十分辉煌。他曾在保罗·福斯特号航空母舰服役多年，随后在弗吉尼亚州五角大楼担任海军作战部长特别助理；在从海军退役后，班农去了高盛工作；几年后，他又在好莱坞创下了自己的事业，并制作了多部电影；2009 年，班农与安德鲁·布莱巴特（Andrew Breitbart)）合作创建了“布莱巴特新闻网”（Breitbart News Daily）；2016 年 8 月，班农受邀加入川普竞选团队担任首席执行官。
 
-总编：Ivy001 
-编辑：Ivy001
-校正/发稿：谐趣园
+在离开白宫和布莱巴特新闻网后，班农又以播客的形式建立了一个右翼势力媒体平台——War Room （作战室）。War Room现在被视为全球所有政治和新闻媒体类节目中最重要的节目之一，并且，War Room还是第一个在世界卫生组织及安东尼·福奇等人之前，就认识到即将到来的中共病毒疫情的危险并发出预警的节目。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+自 1 月 6 日美国国会大厦发生骚乱以来，班农再次成为左翼媒体仇恨的人物，并且遭到陷害，被控蔑视国会罪。
+
+《国家脉动》在宣布上述奖项时承认，这种政治迫害是该组织今年要向班农致敬的原因之一。《国家脉动》的主编表示，很高兴将第二届“年度爱国者奖”授予史蒂夫·班农。这不仅是因为他勇敢地与腐败的政治精英、中国共产党和世界各地的激进伊斯兰主义者做斗争，还因为他对整个西方世界保守运动所做出的不懈努力，以及他对美国这个共和国建国原则的坚守不渝。
+
+除了是美国坚定的爱国者之外，班农先生还是新中国联邦的坚定支持者。他一直和新中国联邦站在同一条战线上。2018年，新中国联邦创始人郭文贵先生成立“法治基金”，班农先生担任了该基金的首任主席；2020年6月4日，班农先生见证了新中国联邦的成立，并宣读了《新中国联邦宣言》英文版；2021年11月20日，班农先生参加了“法治基金”成立三周年纪念活动并发表演讲……
+
+班农先生一直心系中共国受压迫的人民，他常常亲切地用中文称呼它们“老百姓”。并且他还立下誓言，要为解放这些生活在苦难中的老百姓而战斗。
+
+班农先生自始至终都和新中国联邦人站在一起，共同为消灭邪恶中共这一目标而在不懈地努力奋斗着。所有中国人都应该向班农先生致敬！他不仅是美国的爱国者，也是中国人民的“爱国者”。
+
+*参考链接：*
+
+1. [*The National Pulse is today announcing its second annual Patriot of the YearAward, handing the honor to former White House Chief Strategist and host of the War Room: Pandemic podcast, Stephen K. Bannon.*](https://thenationalpulse.com/news/national-pulse-patriot-of-the-year-2021-stephen-k-bannon/)
+2. [*2018年11月20日郭文贵先生、班农先生关于王健之死新闻发布会全文字版*](https://gnews.org/zh-hans/1707751/)
+3. [*新中国联邦宣言之开篇部分*](https://gnews.org/zh-hans/222448/)
+
+
+* * *
+
+*素材采编：幽蘭自得*
+
+*编辑：青衣青青*
+
+*发布：miumiu*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
