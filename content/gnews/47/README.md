@@ -2,13 +2,13 @@
 ---
 
 
-## 英国《每日电讯报》报道中共病毒是基因改造的产物
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1766395/)
+## 英国新增中共病毒人数连续三天创新高
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1766499/)
 
-12/15/2021 国家脉动主播拉希姆做客战斗室，表示英国《每日电讯报》报道了一篇爆炸性新闻，内容是来自麻省理工和哈佛的病毒专家艾琳娜·陈博士已经告知数名英国议会议员中共病毒是基因改造的产物这一推测是合情合理的。然而，没有人在议会辩论中提及中共病毒是生物武器。
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
-
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1218-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

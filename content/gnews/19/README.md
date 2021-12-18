@@ -2,47 +2,40 @@
 ---
 
 
-## 《国家脉动》“年度爱国者奖”获得者——史蒂夫·班农
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1767042/)
+## 习近平彭丽媛以一国之力施巫七哥却毫发未损并长足发展
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1767102/)
 
-#### 撰稿：日本东京方舟农场  幽蘭自得
+**郭文贵先生：**然后对你七哥，刚才你们就忘了那个大印了，是吧！那个印是对七哥来的呀！七哥是唯一的一个目标，没把你小李写上去，没把你JessicaG写上去，也没有把你荣光依旧写上去，也没把你政清，是吧！长岛哥，老班长都轮不上，是不是！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/73E49FD2-F4EC-404C-BEC2-95F6A9EE2D92.jpeg)（图片来自网络）
+就把我给写上去，就是我是核心嘛，我是被消灭的对象，他要不把我看成个人物，他能集一国之力，把盘古楼拿过来，在前面挖这么大一坑，埋这么大一印，那个玉还挺值钱我给你们说那玉啊！
 
-12月16日，《国家脉动》宣布将其第二届“年度爱国者奖”授予前白宫首席战略顾问、知名政治类播客频道War Room （作战室）创建者兼主持人——史蒂夫·K·班农（Stephen K. Bannon）。
+这个玉现在已经没了，都给碎（音脆）了，要不碎（音脆）了，留着以后得多值钱啊！证明这个，是吧！这真是这个成了已经是万神之物了。但是他埋了两三年了，你七哥是除了性能力比较弱之外，变成郭一秒了，没有任何病变，也长得越来越好看，是吧！而且长足发展，是吧！过去的一年里边，这一系列的系统，是吧！更好！
 
-据《国家脉动》报道，现年 68 岁的班农在 2016 年引起全美国的关注。他领导川普竞选团队，以惊人的胜利击败了民主党阵营的代表克林顿·希拉里，帮助川普当选美国总统。之后，班农曾一度担任白宫首席战略顾问。
+编辑整理：海贼王M.D.LUFFY；
 
-在离开白宫之后，班农与前川普的通讯主管杰森·米勒以及《国家脉动》总编辑拉希姆·卡萨姆一起，创立了政治类播客频道War Room ，并取得了巨大成功，不仅排名最高播客之一，并且获得了95%以上观众的喜爱。
+视频制作：Cindy；
 
-班农的履历十分辉煌。他曾在保罗·福斯特号航空母舰服役多年，随后在弗吉尼亚州五角大楼担任海军作战部长特别助理；在从海军退役后，班农去了高盛工作；几年后，他又在好莱坞创下了自己的事业，并制作了多部电影；2009 年，班农与安德鲁·布莱巴特（Andrew Breitbart)）合作创建了“布莱巴特新闻网”（Breitbart News Daily）；2016 年 8 月，班农受邀加入川普竞选团队担任首席执行官。
+视频上传：Cindy；
 
-在离开白宫和布莱巴特新闻网后，班农又以播客的形式建立了一个右翼势力媒体平台——War Room （作战室）。War Room现在被视为全球所有政治和新闻媒体类节目中最重要的节目之一，并且，War Room还是第一个在世界卫生组织及安东尼·福奇等人之前，就认识到即将到来的中共病毒疫情的危险并发出预警的节目。
+G-News发布：黎明之前；
 
-自 1 月 6 日美国国会大厦发生骚乱以来，班农再次成为左翼媒体仇恨的人物，并且遭到陷害，被控蔑视国会罪。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
 
-《国家脉动》在宣布上述奖项时承认，这种政治迫害是该组织今年要向班农致敬的原因之一。《国家脉动》的主编表示，很高兴将第二届“年度爱国者奖”授予史蒂夫·班农。这不仅是因为他勇敢地与腐败的政治精英、中国共产党和世界各地的激进伊斯兰主义者做斗争，还因为他对整个西方世界保守运动所做出的不懈努力，以及他对美国这个共和国建国原则的坚守不渝。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-除了是美国坚定的爱国者之外，班农先生还是新中国联邦的坚定支持者。他一直和新中国联邦站在同一条战线上。2018年，新中国联邦创始人郭文贵先生成立“法治基金”，班农先生担任了该基金的首任主席；2020年6月4日，班农先生见证了新中国联邦的成立，并宣读了《新中国联邦宣言》英文版；2021年11月20日，班农先生参加了“法治基金”成立三周年纪念活动并发表演讲……
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-班农先生一直心系中共国受压迫的人民，他常常亲切地用中文称呼它们“老百姓”。并且他还立下誓言，要为解放这些生活在苦难中的老百姓而战斗。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-班农先生自始至终都和新中国联邦人站在一起，共同为消灭邪恶中共这一目标而在不懈地努力奋斗着。所有中国人都应该向班农先生致敬！他不仅是美国的爱国者，也是中国人民的“爱国者”。
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-*参考链接：*
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-1. [*The National Pulse is today announcing its second annual Patriot of the YearAward, handing the honor to former White House Chief Strategist and host of the War Room: Pandemic podcast, Stephen K. Bannon.*](https://thenationalpulse.com/news/national-pulse-patriot-of-the-year-2021-stephen-k-bannon/)
-2. [*2018年11月20日郭文贵先生、班农先生关于王健之死新闻发布会全文字版*](https://gnews.org/zh-hans/1707751/)
-3. [*新中国联邦宣言之开篇部分*](https://gnews.org/zh-hans/222448/)
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-* * *
-
-*素材采编：幽蘭自得*
-
-*编辑：青衣青青*
-
-*发布：miumiu*
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
