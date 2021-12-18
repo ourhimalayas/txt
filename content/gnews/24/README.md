@@ -2,44 +2,40 @@
 ---
 
 
-## 墙内世界 2021.12.17
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1767479/)
+## 习近平及夫人“彭副主席”共同出席会议
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1767565/)
 
-一、　12月16日，广东深圳。一男子在加油站点燃正在给汽车加油的油枪，致保时捷爆燃。
+撰稿：东京樱花团—在远方
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-8.png)
+当地时间12月16日，郭文贵先生在盖特中提到“彭副主席”出场，再次印证了爆料革命的真实情报。除了爆料革命，没有人真正知道南普陀会议，更没有人了解习近平的内心想法。根据文贵先生早前透露，中共常委早已被架空，掌握中共政治、军事实权的乃是习近平家人。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-926.png)
+12月14日彭丽媛作为中共文联副主席，身着军装亲自出席习近平主持的中共文学艺术界联合会、以及中共作协全代会，习近平讲话旨在“肃清”文艺界。
 
-二、　12月3日，上海长宁。驾驶员行驶中失去知觉，导致轿车高速撞向中央隔离栏。
-
-三、　12月16日，广东深圳。老人倒地，小伙怕被讹，一直用手机录像才敢搀扶。中共恶法给社会带来的示范效应。
-
-四、　12月16日，杭州萧山“一网统管”，数字监控系统上线。戴没戴口罩，远程就能看到。被数字监控全员监视下中国人。
-
-五、　12月17日，中国农业银行近期又开启了一波销卡行动，很多人的银行卡被以犯罪监控的理由给冻结。
-
-六、　被中共宣传忽悠来黑龙江鹤岗市买房的外地人发现被骗开始撤离，房子好买工作难找。
-
-七、　工地工人用身体做支撑，让水泥顺利注入。共产主义社会人命如草芥。
-
-八、　12月10日，湖北荆州。60岁老人欲轻生，爬上20米高压电线塔。
-
-九、　雷锋，是共产主义宣传出来的一个洗脑“英雄”形象，以国家名义将人的生命奉献于党。
-
-十、　12月15日，重庆。男子被妈妈威胁式催婚，“不要搞得大家春节都不愉快”。这算是中国未婚年轻人的普遍被催婚状态。
-
-*搜集 / 翻译：Filon|校对：CharlesS*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+在郭先生凭借H Coin to the moon，创下Billboard数字排行榜第一华人冠军的纪录之后，习近平授意中共文联，在这个关键节点上召开会议，并由“彭副主席”亲自出场，可见爆料革命的以歌灭共，对懂音乐的习近平，以及歌手出身的彭丽媛来说，是致命的打击。
 
 
 
+新闻链接: [郭文贵先生盖特](https://www.gettr.com/user/miles)
+
+[习近平主持文代会　彭丽媛罕见着军装现身台下](https://www.dwnews.com/%E4%B8%AD%E5%9B%BD/60272060/%E4%B9%A0%E8%BF%91%E5%B9%B3%E4%B8%BB%E6%8C%81%E6%96%87%E4%BB%A3%E4%BC%9A%E5%BD%AD%E4%B8%BD%E5%AA%9B%E7%BD%95%E8%A7%81%E7%9D%80%E5%86%9B%E8%A3%85%E7%8E%B0%E8%BA%AB%E5%8F%B0%E4%B8%8B%E5%9B%BE)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
+
+
+
+总编:飞虹
+
+编辑：文特
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-8.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

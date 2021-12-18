@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/18/2021 12:49 PM (UTC)`
+
+12月18号：谢谢战友做得精美的视频！【我的肌肉哥靓照合集视频🥰🥰🥰   晚安亲爱的，周末愉快， 想想想想想想想想想想想想想想想想想想想想想想想你 ❤️❤️🌽🌽💋💋】
+![img](https://media.gettr.com/group24/getter/2021/12/18/12/a471b124-61df-5556-ba75-1b3812932bc9/out.jpg)
+
+---
+
 `@miles 12/18/2021 7:49 AM (UTC)`
 
 12/17/2021 Miles Guo: The operations of the mock funerals dedicated to the CCP will only target the following four CCP kleptocrat families: Xi Jinping’s family, Wang Qishan’s family, Meng Jianzhu’s family, and Jiang Zemin’s family. Since they are obsessed with using magic powers and sorcery to go against us, we are going to deal with them in the same way; what does it mean for Xi to let his wife Peng Liyuan make a formal appearance in the recent All-China Congress of Literary and Arts Workers this year?<br/><br/>12/17/2021 文贵直播：给共产党的送棺材活动只针对习、王、孟、江四大家族，他们沉迷于施法术、巫术，我们将以其人之道还治其人之身；习这次文代会让彭丽媛正式出场，意味着什么？<br/>
@@ -151,13 +158,6 @@
 
 12/15/2021 Miles Guo: Three protective measures to take when participating in the protests to end the CCP: 1) prevent you from being infected by the virus; 2) prevent the CCP from messing things up and setting you up; and 3) prevent you from compromising to the CCP due to the threats posed by the CCP to your family in Communist China. Be prepared that 1) you won’t be able to go back to China before the downfall of the CCP, and 2) the CCP will not stop harassing you and your family<br/><br/>12/15/2021 文贵直播：参加终共街头抗议行动要注意“三防”（一防病毒、二防中共捣乱下套、三防因国内家人被威胁而心动）及“两个准备”（一、在灭共前不能回国了，二、中共会无休止地骚扰你和家人）<br/>
 ![img](https://media.gettr.com/group11/getter/2021/12/16/02/b69b92a0-5d6d-6e8e-3af0-fc40123b6c89/out.jpg)
-
----
-
-`@miles 12/16/2021 2:43 AM (UTC)`
-
-12/15/2021 Miles Guo: The Tibet Independence Act pushed by the U.S. is of profound significance - the CCP only has two options: 1) declare a war against the US, or 2) let Communist China enter an era of darkness; the only thing that the CCP can do is to struggle, and it will surely be finished!<br/><br/>12/15/2021 文贵直播：美国推动的《西藏独立法案》意义深远 - 共产党只有两个选择：1）和美国开战、2）中共国进入黑暗期；中共只剩下挣扎了，但结果一定是完蛋！<br/>
-![img](https://media.gettr.com/group17/getter/2021/12/16/02/812c7d0f-793a-30a8-c9ad-d9685738f235/out.jpg)
 
 ---
 
