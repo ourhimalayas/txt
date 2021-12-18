@@ -2,41 +2,34 @@
 ---
 
 
-## 美国制裁中共34家生产“脑控武器”实体
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1766686/)
+## 中共放毒失控导致江浙疫情大爆发
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1766700/)
 
-作者：东京樱花团—在远方
+撰稿: 纽约香草山教育部 – Noemi
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-8.png)
+12月15日，郭文贵先生在最新的答战友问中指出，江浙一带近期疫情的大爆发，实质上是中共放毒失控的直接体现。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-907.png)
+郭先生指出，中共最初放毒旨在消灭香港参加“反送中”运动的学生，然后在欧美进行局域性传播，导致西方国家大面积感染。然而，作为生化超限战的主要武器，中共病毒不区分种族与国界，在世界大流行中彻底失控。中共国内更是死伤惨重。
 
+郭先生爆料，仅在2020年，中共国就增加了超过1700万套火葬设备。生产所需的原材料在中共国内极度稀缺，无奈之下，中共甚至要去日本、印尼收购废铁。
 
+郭先生总结道，目前，病毒疫情在江浙一带已全面失控。而国内的其他省份也在中共疫情与经济必须国有化的阴影中瑟瑟发抖。中共社会已面临最黑暗的时代。
 
-![This image has an empty alt attribute; its file name is image-40-1-9-1.png](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-1.png)
+信息链接：[2021年12月15日 文贵大直播](https://gtv.org/video/id=61b9e8037882000d5100be68)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/phppsMT9X.jpg)图片源自网络
-台媒消息，美国政府当地时间12月16日，指控中共34个学术机构和企业等实体，发展脑控武器、对美国国家安全造成威胁，并实施制裁。 
+总编/编辑：飞虹
 
-美国商务部长雷蒙多指出，虽然生物科技能够造福人类，但不幸的是，中共却使用这些技术控制人民，压制少数民族及其信仰。据悉，这34家中共实体包括解放军军事科学院、医学研究院等研究机构，还有数家企业被指控试图取得美国科技，以帮助中共军方现代化。 同日，美国财政部也宣布对8家中共科技实体实施制裁，指控其对少数民族进行生物性监控和追踪。
-
-参考链接：[https://ec.ltn.com.tw/article/breakingnews/3771350](https://ec.ltn.com.tw/article/breakingnews/3771350)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/unknown-2.jpg)
-
-总编：飞虹
-
-校对/发稿：Daxia
+校正/发稿：浪迹天涯
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-8.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

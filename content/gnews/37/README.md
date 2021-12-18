@@ -2,17 +2,13 @@
 ---
 
 
-## 西媒头条 — 第133期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1766322/)
+## 泽连科医生：脱离暴政体系，形成新社群
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1766391/)
 
-**制作: 喜妹**
+12/11/2021 泽连科医生：社会变态者乐于毁掉那些让他感觉自己不够好的人，我们需要脱离这个暴政体系，形成一个新的社群。
 
-**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2021.12.17.pptx.jpg)
-
-*发稿: Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-3.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

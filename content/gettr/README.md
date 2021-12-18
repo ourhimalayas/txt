@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/18/2021 3:42 AM (UTC)`
+
+12/17/2021 Miles Guo: “Atheists Xi (Jinping) & Peng (Liyuan) performed a political witchcraft on Pangu Plaza, which is exactly the same with what Ceausescu couple, and each last emperor in China’s history, i.e., massively applied enchantment, delusion, witchcraft and wizardry in their last days<br/><br/>12/17/2021 文贵直播：标榜无神论者的习彭对盘古施了一场政治大巫术，和当年齐奥塞斯库两口子、中国历代末世君王大量实行蛊、惑、妖术、巫术如出一辙
+![img](https://media.gettr.com/group43/getter/2021/12/18/03/8b43e466-dabc-0e3f-30a9-a44341b44e7b/out.jpg)
+
+---
+
 `@miles 12/18/2021 3:28 AM (UTC)`
 
 12/17/2021 Miles Guo: The CCP, which claims to be atheist, attacks me using sorcery by taking advantage of the power of the entire Communist China! However, I have been doing better and better, while the CCP has been labeled as a criminal organization by the world, facing all kinds of unfavorable situations in terms of finance, real estate, public opinion, and its reputation in the international community etc. The sorcery used by Xi Jinping and Peng Liyuan have failed completely!<br/><br/>12/17/2021 文贵直播：自称无神论的中共竟倾一国之力以巫术对付文贵！然而文贵发展越来越好，但中共却被世界列为犯罪组织，面临着金融，房地产，民心和国际环境等各方面不利的局面！习和彭使用的巫术已彻底失败！<br/>
@@ -150,13 +157,6 @@
 `@miles 12/16/2021 12:26 AM (UTC)`
 
 15/12/2021  On 6th Day of Launch, MV "Hcoin To the Moon" Hits iTunes <br/> No. 1 🥇on 18 Countries Top MV Charts !<br/>No.1🥇 on 16 Countries Rock MV Charts!<br/>No.1🥇 on 9 Countries Rock song Charts!<br/>No.1🥇on 6 countries Hip-pop/Rap song Charts!<br/>Miracle continues…….🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, USA, Taiwan, Australia, Canada, Singapore, New Zealand, Thailand, Cambodia, Laos, Hungary， Greece, Philippines, Malaysia, Fiji, Latvia, Macau, Finland!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1757964/<br/><br/>12月15号，MV版Hcoin To the Moon上线第6天位列iTunes<br/>18国热门MV榜首🥇！<br/>16国摇滚MV榜首🥇！<br/>9国摇滚歌曲榜首🥇！<br/>6国嘻哈歌曲榜首🥇！<br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港，美国，台湾，澳大利亚，加拿大，新加坡，新西兰, 泰国，柬埔寨，老挝，匈牙利，希腊，菲律宾， 马来西亚，斐济，拉脱维亚，澳门，芬兰的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏
-
----
-
-`@miles 12/16/2021 12:13 AM (UTC)`
-
-12/15/2021 Miles Guo: What does the Tibet Independence Act mean? Tibet is the grant barrier of Western China, and it also has the richest water and forest resources; Tibet’s strategic significance is no less than that of Taiwan; once Tibet became independent, Communist China would be over<br/><br/>12/15/2021 文贵直播：《西藏独立法案》意味着什么？西藏是中国西部的大屏障、也拥有着中国最丰富的水资源和森林资源，其战略地位不亚于台湾；一旦西藏独立，中共国就彻底完了
-![img](https://media.gettr.com/group17/getter/2021/12/16/00/fb139163-7c4d-dbd7-ae1e-34d935a1933d/out.jpg)
 
 ---
 
