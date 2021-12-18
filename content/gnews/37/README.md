@@ -2,19 +2,31 @@
 ---
 
 
-## 富力地产预爆雷，试问苍天饶过谁？
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1766696/)
+## GTV新闻访谈简报|2021年12月17日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1766713/)
 
-韩国首尔天池农场战友
-上传：追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Image-2021-12-18-at-11.58.48.jpeg)图片来源：网络
-据中共媒体网易新闻12月16日报道，“富力地产2022年1月有一笔规模为7.25亿美元的境外债到期。”并且“可能无法在2022年1月13日到期时全额赎回票据。换言之，富力如果无法完成折扣回购或展期，将构成实质性违约。”
+作者：香草山翻译部
 
-郭先生在之前的直播中，多次提到富力地产必将爆雷，再次验证了郭先生的前瞻性。郭先生点名的其它中共房地产企业，相信此时也在爆雷的路上狂奔，我们拭目以待。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-3.jpg)
 
-郭先生多次说过，这些与中共盗国贼勾结的房地产企业，不但是中国老百姓头上的吸血鬼，还把魔爪伸向全世界，中共房企全面爆雷之时，必将引发全球规模的经济危机。
 
-信息来源：[富力地产预爆雷 7.25亿美元债或无法在到期日全额赎回](https://c.m.163.com/news/a/GRBF6TIH0539DFBR.html?spss=newsapp_qrcode)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1217text-SC.png)
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+视频参看：[12.17  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61bd39597882000d51035de6)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/calendar.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
  
 
