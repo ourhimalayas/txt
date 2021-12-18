@@ -2,18 +2,32 @@
 ---
 
 
-## 双修教宗王岐山的权力梦、教主欲、血统经、永生梦多邪恶
-` mary202064` [轉載自GNews](https://gnews.org/zh-hans/1766480/)
+## 亚马逊为讨好北京而与中共国宣传机构合作
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1766597/)
 
-王岐山，共产中国国家副主席。在国际和中国备受推崇，国内媒体称他为“救火队长”、”解困高手”、”军令如山市长” 。国际上王岐山更是朋友遍天下，美国企业界大亨、纽约前市长布隆伯格，曾在公开场合盛赞王岐山是中国与世界上“最有影响力的政治人物”。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Unknown-26.jpg)亚马逊为讨好北京而与中共国宣传机构合作 网络图片
+据美国之音12月18日援引路透社17日发表的报道，美国电商巨头亚马逊(Amazon)为了赢得北京的垂青而与中共国官方宣传机构合作。
 
-究竟王岐山真面目如何？王岐山老奸巨猾、凶狠歹毒，是中国当代赵高式的人物。他是中国成长最快的公司海航的实际控制者，他牢牢掌握着中国的金融领域、纪检系统。 据郭文贵先生爆料，王岐山是名副其实的中国双修教教宗。
+2004年，亚马逊收购中共国的卓越网，开始进入中共国市场。为了发展电子书业务并推销Kindle，亚马逊推出了“中国书店”项目，出售很多非政治类书籍，也出售宣传中共政府立场和成就的书籍，包括《习近平治国理政》。但是按照北京的要求，该书关闭了读者打分和评论。
 
-王岐山门已经盗取了花不完、用不尽的万亿财富，在世界范围内布局了巨大的沉默力量群体，为什么他们还要折腾出“双修”这种令人不齿的邪恶招数？本视频就来解读双修教宗王岐山黑暗内心的权力梦、教主欲、血统经、永生梦，究竟有多邪恶？变态心理一：强烈的控制欲；变态心理二：生生世世的血脉传承；变态心理三：极度的恐惧心理。
+2018年，中共国国家互联网信息办公室要求亚马逊从该公司的电影信息和评论平台IMDb删除中共国新影片《厉害了，我的国》，因为这部影片遭到恶评。在满分10分的评分制中，这部影片总评只有2.3。
 
-文案作者：海阔天空&正道人
+雅虎撤离中共国，微软旗下的领英将取消一些服务，而亚马逊近年来却在中共国成为一股强大的经济力量。只要把灵魂卖给魔鬼，短期内就能看见利益，只是与魔鬼同行能走多远呢？拭目以待吧。
 
-查看作者更多文章，请点击——[中文简体](https://gnews.org/zh-hans/author/mary202064/)、[中文繁體](https://gnews.org/zh-hant/author/mary202064/)、[English Articles](https://gnews.org/author/mary202064/)
+新闻参考链接：[https://www.voachinese.com/a/reuters-special-report-amazon-works-with-chinese-propaganda-arms-20211217/6359603.html](https://www.voachinese.com/a/reuters-special-report-amazon-works-with-chinese-propaganda-arms-20211217/6359603.html)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

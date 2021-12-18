@@ -2,31 +2,26 @@
 ---
 
 
-## 突发：第六巡回法院支持拜登政权的强制疫苗规定
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1766682/)
+## 【中日财经爆】信用评级机构标普正式判定恒大违约
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1766768/)
 
-**撰稿：Grace**
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2-65.jpg)[图片来源](https://www.ifinnet.com/123.html)
+中共国房地产危机的典型代表中国恒大集团周五（12月17日）被信用评级机构标普全球正式宣布违约，此前这家庞大的公司在本月早些时候未能按期完成一笔债务偿付。
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-11-16-at-10.58.19-PM.jpeg)图片来源：ussanews
-据The Gateway Pundit 12月17日报道，拜登政府的职业安全与健康管理局(OSHA)的强制疫苗规定被分配到美国第六巡回上诉法院 （the 6th US Circuit Court of Appeals），这是在第五巡回法院停止了该规定后的一次乒乓式的抽签。
+“我们评估认为，中国恒大集团及其境外融资机构天基控股有限公司未能对其未偿还的美元优先票据支付票息，”标普在一份声明中说。
 
-拜登除了要求所有210万联邦雇员接受中共病毒疫苗注射或面临解雇之外，在 9月，拜登政权还要求所有拥有100名以上雇员的公司对工人每周进行中共病毒测试或证明他们已经接种了中共病毒疫苗。
+标普补充说，在评级被下调至“选择性违约”后，恒大已要求撤销评级。“选择性违约”是评级公司用来描述未能偿付一笔债务的情况，但不一定是所有债务。
 
-不遵守拜登政权的中共病毒疫苗规定的小企业将面临巨额罚款。
+“恒大、天基或受托人没有公布或向我们确认票据支付的情况，”标普称。
 
-在11月6日，美国第五巡回上诉法院对拜登政府的强制中共病毒疫苗规定发布了临时禁令。随后，在11月23日，拜登政府的司法部向美国第六巡回上诉法院提出诉讼，要求第六巡回法院解除第五巡回法院的暂停令。
+消息来源:
 
-可是，拜登政权的上诉被第六巡回上诉法院12月3日周五的时候给驳回了。
+[标普全球将中国恒大及天基控股评级调降至“选择性违约”](https://cn.reuters.com/article/sp-china-evergrande-aaa-1217-idCNKBS2IW10A?il=0)
 
-然而，在2-1的投票中，三位法官组成的小组允许拜登政权的职业安全与健康管理局对100人以上的私人雇主的强制疫苗规定生效。
-
-多数人投了赞成票。法官朱莉娅·吉本斯（Julia Gibbons）（乔治-W-布什推荐）、简·斯特兰奇 （Jane Stranch）（巴拉克-奥巴马推荐）投了赞成票。琼·拉森 （Joan Larsen）（川普总统推荐）投了反对票。
-
-报道称，第六巡回法院表示，职业安全与健康管理局有权保护工人免受病毒侵害。
-
-**新闻来源：**[Breaking: 6th Circuit Court Upholds Joe Biden’s OSHA Vaccine Mandate](https://www.thegatewaypundit.com/2021/12/breaking-6th-circuit-court-upholds-joe-bidens-osha-vaccine-mandate/)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
