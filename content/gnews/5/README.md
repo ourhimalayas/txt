@@ -2,37 +2,33 @@
 ---
 
 
-## 美新任驻中共国大使伯恩斯：谨防中共侵犯台湾
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1767691/)
+## 12/18每日播报｜CECC主席敦促NBC报道冬奥会时不要成为中共的外宣工具
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1767799/)
 
-作者：纽约香草山医疗部 – 云豹
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-08-30-at-7.37.59-PM-3.png)
-当地时间12月16日，美国联邦参议院通过伯恩斯出任驻中共国大使的任命提案。伯恩斯10月在提名听证会上表示，中共具侵略性且不可信任，美国必须做的优先事项是强化台湾的防卫力量，防止中共侵犯台湾。
+**By:[秘翻新闻](https://gtv.org/broadcast/watch/61b85c7e56f4921401b77b8b)**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/6-35.jpg)
+**2021-12-1**8
 
-伯恩斯曾担任国务次卿，亲眼见证香港主权移交。他说：「在台湾议题上，我们显然不能相信中共会履行他们的承诺」。
+据《美国之音》12月17日报道，12月16日，美国国会暨行政当局中国委员会CECC的两党领袖致函北京冬奥会美国独家转播商——全国广播公司NBC的主管，敦促NBC在转播这场在“种族灭绝”国家中举行的奥运会时，报道中共政府侵犯新疆维吾尔人人权、镇压香港民主等暴行。
 
-伯恩斯说，美国国会与行政部门完全有权深化美国与台湾之间的安全合作。美国必须要把台湾变得坚不可摧。透过台湾关系法、对台六项保证等法律，向台湾提供武器，协助台湾提升不对称防卫战力，并建议其他国家也能效法。
+致函人包括CECC主席、参议员杰夫·默克利 (Jeff Merkley)和共同主席、众议员吉姆·麦克高文 (Jim McGovern)。他们在写给NBC首席执行官杰夫·谢尔（Jeff Shell）的公开信中要求NBC承诺对中共的暴行进行背景报道，并敦促中共当局在奥运会报道期间公开申明媒体自由和宗教自由。
 
-参考链接：
+公开信特别强调，中共政府希望宣传中共国少数民族的“幸福”，以此掩饰其在新疆地区的“罪行”，NBC要避免播放维吾尔人和其他少数民族身着传统服饰的画面，也不应使用中共政府用来宣传新疆维吾尔自治区的官方画面，拒绝配合中共的大外宣工作。
 
-- [勃恩斯主張抗中挺台 獲美參議院同意任駐中大使](https://www.cna.com.tw/news/firstnews/202112170015.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+默克利和麦戈文在信中说：“NBC及其附属机构在北京冬奥会上投资了近10亿美元，这意味着该组织有责任应对中共侵犯人权行为的影响。运动员、后勤保障和媒体成员将来到一个正在发生种族灭绝的国家，在遵循《奥林匹克宪章》、促进‘对普遍基本伦理原则的尊重’的过程中，NBC必须考虑这对北京奥运会的参与者和中共国公民意味着什么。”
 
+公开信说：“CECC坚决支持美国队以及美国运动员参加即将到来的奥运会，但NBC不能将美国运动员的新闻事件与中共政府为掩盖它们的反人类罪行而进行的粉饰描述相提并论。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
+中共政府企图利用奥运会提升其执政合法性，再一次用体育来洗刷对新疆、香港、西藏和国外的少数民族、公民社会活动者和政治异议人士者的恶行。作为美国的奥运会转播商，我们敦促NBC不要替中共做宣传！”
 
-总编：Irene木木
-编辑：Jack Li文阳
-校正/发稿：海阔天空1
+秘翻新闻主编 巴拉克 编辑报道
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+发布：文小明
+
+* * *
+
+**By 【秘密翻译组-即时新闻播报组】**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/招募-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
