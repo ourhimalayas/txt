@@ -2,40 +2,25 @@
 ---
 
 
-## 习近平彭丽媛以一国之力施巫七哥却毫发未损并长足发展
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1767102/)
+## 大疆等中共实体被限 中共国外交部称将采取必要措施维护企业合法权益
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1767213/)
 
-**郭文贵先生：**然后对你七哥，刚才你们就忘了那个大印了，是吧！那个印是对七哥来的呀！七哥是唯一的一个目标，没把你小李写上去，没把你JessicaG写上去，也没有把你荣光依旧写上去，也没把你政清，是吧！长岛哥，老班长都轮不上，是不是！
+撰稿/配图：东京樱花团/ Ob
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-218.png)
+路透北京12月17日，美国对大疆等数十家中共国实体实施限制，中共国外交部新闻发言人汪文斌周五回应称，对此强烈不满、坚决反对，敦促美方纠正错误。 “中方将采取一切必要措施维护中共国机构和企业的合法权益，”他在外交部例行发布会上说。
 
-就把我给写上去，就是我是核心嘛，我是被消灭的对象，他要不把我看成个人物，他能集一国之力，把盘古楼拿过来，在前面挖这么大一坑，埋这么大一印，那个玉还挺值钱我给你们说那玉啊！
+美国政府周四宣布对数十家中共国实体实施投资和出口限制，其中包括全球最大商用无人机制造商大疆、旷视科技和云从科技等，并指控这些实体帮助压迫维吾尔族，或协助中共国军方，此举进一步加剧了全球最大两个经济体之间的紧张关系。随后中共国AI公司旷视科技和云从科技均表示强烈反对。
 
-这个玉现在已经没了，都给碎（音脆）了，要不碎（音脆）了，留着以后得多值钱啊！证明这个，是吧！这真是这个成了已经是万神之物了。但是他埋了两三年了，你七哥是除了性能力比较弱之外，变成郭一秒了，没有任何病变，也长得越来越好看，是吧！而且长足发展，是吧！过去的一年里边，这一系列的系统，是吧！更好！
+有没措施，措施凑效不凑效，管不管用，砸别人脚还是砸自己脚，都不重要，重要的是在话语权上不能失了分，大国形象得要维护。在中共这个不讲理的土匪窝，出了问题从来不考虑问题出在哪里，我哪里没做好，以后怎么改。出了问题从来都是你们做的不对，我们强烈不满，坚决反对。对待这样一个毫无诚意解决问题，一心霍乱世界的流氓国家只有更彻底更痛快淋漓地抛出更多让他痛，让他痒的实着直到让他彻底闭嘴。
 
-编辑整理：海贼王M.D.LUFFY；
+消息来源：
 
-视频制作：Cindy；
+[美国限制数十家中共国实体 中共国外交部称将采取必要措施维护企业合法权益](https://cn.reuters.com/article/china-mofa-us-entity-restrictions-1217-idCNKBS2IW0MB)
 
-视频上传：Cindy；
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
 
-G-News发布：黎明之前；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

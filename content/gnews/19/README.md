@@ -2,40 +2,22 @@
 ---
 
 
-## 习近平彭丽媛施巫完全失败并重蹈齐奥塞斯库埃列娜之路
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1767330/)
+## 美议员敦促NBC在转播冬奥会期间不要替中共粉饰其暴行
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1767513/)
 
-**郭文贵先生：**这是一场多大的巫术，而且这个施术者最后的承受人一定是习近平和彭丽媛啦。那他俩，你觉得习近平的脸色，在去年到现在更好吗？你觉得彭丽媛现在比原来更年轻吗？你觉得中国的经济越来越好吗？最主要的房地产，这房地产你觉得现在是涨了还是增了？金融机构你说是好还是坏啦？
+#### 翻译/撰稿：zzballack
 
-中国人，中国共产党习近平、彭丽媛在世界上受喜欢的环境是越来越多了吗？是吧！就说明这个术失败了吗，是吧！他的经济不好，房地产不好，民心不好，国际环境不好，对台湾对香港更不好，而且全世界把他们列为了犯罪组织，这多大的事啊！而且让他负责，多大的事啊！
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-30.jpg)图片来源：美联社
+据《华盛顿观察家报》（Washington Examiner）12月17日报道，两位民主党人士–参议员杰夫·默克利（Jeff Merkley）和众议员吉姆·麦克高文（Jim McGovern）12月16日致函北京冬奥会的美国独家转播商NBC环球（NBCUniversal），呼吁他们在转播冬奥会期间，不要引用任何中共政府“粉饰过的叙事”，以协助掩盖其侵犯人权暴行。
 
-跟当年齐奥塞斯库，跟当年萨达姆、卡扎菲，完全是一个路，你可千万别忘了，连北朝鲜都没混上这么多头衔，全让习太阳今天全混上了。
+这两位议员说，NBC环球作为奥运会的官方转播机构，应利用这个平台向观众提供有关中共国人权问题的背景信息，如中共政府对维吾尔人的种族灭绝和对新闻自由的镇压。
 
-编辑整理：海贼王M.D.LUFFY；
+他们在写给NBC环球首席执行官杰夫·谢尔（Jeff Shell）的信中说：“中共政府肯定企图利用这届奥运会提升其执政合法性，再一次用体育来洗刷其对新疆、香港、西藏和国外的少数民族、民间社会活动家和政治异议人士的恶行。NBC要避免播放维吾尔人和其他少数民族身着传统服饰的画面，因为这种镜头可能会加强中共的宣传，将维吾尔族等群体描绘成‘幸福的少数民族’。”
 
-视频制作：小满；
+他们鼓励NBC环球公司敦促中共当局在奥运会期间公开申明支持媒体自由和宗教自由。“NBC及其附属机构在北京冬奥会上投资了近10亿美元，这意味着该组织有责任应对中共侵犯人权行为的影响。运动员、后勤保障和媒体人员即将来到一个正在发生种族灭绝的国家，在遵循《奥林匹克宪章》、促进‘对普遍基本伦理原则的尊重’的过程中，NBC必须考虑这对北京奥运会的参与者和中共国公民意味着什么。作为美国的奥运会转播商，我们敦促NBC不要替中共做宣传！”
 
-视频上传：Cindy；
-
-G-News发布：黎明之前；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+新闻来源：[Democratic lawmakers urge NBC not to broadcast ‘whitewashed Chinese government accounts’ during Olympics coverage](https://www.washingtonexaminer.com/news/democratic-lawmakers-urge-nbc-not-to-broadcast-whitewashed-chinese-government-accounts-during-olympics-coverage)
 
  
 

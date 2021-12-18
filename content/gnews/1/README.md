@@ -2,24 +2,44 @@
 ---
 
 
-## 日本发现接种第三针毒疫苗依旧感染中共病毒
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1767626/)
+## 立陶宛因安全原因召回驻中共国大使
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1767661/)
 
-撰稿：东京樱花团/风翼
-![](https://assets.gnews.org/wp-content/uploads/2021/12/6-11.png)图片来源
-据【朝日新闻】报道：日本国内机场检疫区，又有13人被发现感染了中共奥密克戒病毒，其中一个人已经接受了三剂疫苗的注射。
+撰稿：日本方舟农场 Andy5
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-8.png)
+据外媒报道，立陶宛因安全原因，已经在12月15日召回了该国所有驻中共国大使，19名立陶宛使馆人员已经离开北京飞往巴黎。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-941.png)
+由于中共降级立陶宛为代办级，外交人员在法律地位上不明确，可能会使立陶宛外交人员失去外交豁免权。并且，中共可能禁止了中方雇员为这个代办处工作，所以不得不让他们回国。
 
-据日本卫生部称，这13名感染者年龄在10至50岁之间，有在美国和英国逗留的历史，被证实感染了中共病毒奥密克戒病毒，他们在10日和14日之间抵达羽田和成田机场。
+在立陶宛与中共关系不断恶化之时，台湾外交部表示，对立陶宛政府面对中共持续性外交与经济复合式胁迫，却能坚定不移地发展跟台湾的关系，表示崇高的敬意。同时呼吁台湾企业鼎力支持立陶宛跟台湾发展紧密合作。
 
-其中9人已经接种了中共病毒疫苗，其中一名30多岁的男子，他从美国入境，已经接种了第三剂辉瑞公司的中共病毒疫苗。
 
-信息来源：
 
-[空港で13人オミクロン株　3回接種済みの人も感染](https://news.yahoo.co.jp/articles/dbbba0dcee4f9b6148a8ee4dbb51bd52503f8e36)
+新闻链接：
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+[立陶宛召回驻华外交使团所有成员](https://www3.nhk.or.jp/nhkworld/zh/news/338466/)
+
+[立陶宛外交官已离开中国 我方回应:立方说法无中生有](https://mil.news.sina.com.cn/2021-12-16/doc-ikyamrmy9375478.shtml)
+
+[外媒称“19名立陶宛驻华外交人员及家属离开北京”，立方还耍了一个花招](https://world.huanqiu.com/article/460HqOpY51J)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
+
+编辑：DM
+
+总编：飞虹
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-8.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
