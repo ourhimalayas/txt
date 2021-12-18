@@ -2,37 +2,33 @@
 ---
 
 
-## 日本研究所探究为何日本病例较少 或为解决中共病毒提供新思路
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1767763/)
+## 12/18每日播报｜CECC主席敦促NBC报道冬奥会时不要成为中共的外宣工具
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1767799/)
 
-作者：日本方舟农场 – Andy5
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-08-30-at-7.37.59-PM-3.png)
-12月8日，日本大型研究机构理化学研究所发布报告，证实中共病毒与引发普通感冒的季节性冠状病毒存在相同的抗原表位，该种抗原表位能够激活人体产生特定的杀手T细胞，这种细胞可以杀灭病毒。在日本人体内，有一种特殊的HLA-A24型白血球抗原，这种抗原能够跟杀手T细胞结合，形成人体的免疫记忆。在日本人患普通感冒以及2003年的非典时期，这种抗原已经使日本人体内产生能应对中共病毒的杀手T细胞并形成了免疫记忆，因而整体来看，日本人感染病例总数低于全球其他国家。
+**By:[秘翻新闻](https://gtv.org/broadcast/watch/61b85c7e56f4921401b77b8b)**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/8-22-scaled.jpg)
+**2021-12-1**8
 
-分析人士指出，这份研究在免疫学层面为寻找中共病毒感染机制以及应对机制提供了一个新的方向。
+据《美国之音》12月17日报道，12月16日，美国国会暨行政当局中国委员会CECC的两党领袖致函北京冬奥会美国独家转播商——全国广播公司NBC的主管，敦促NBC在转播这场在“种族灭绝”国家中举行的奥运会时，报道中共政府侵犯新疆维吾尔人人权、镇压香港民主等暴行。
 
-参考链接：
+致函人包括CECC主席、参议员杰夫·默克利 (Jeff Merkley)和共同主席、众议员吉姆·麦克高文 (Jim McGovern)。他们在写给NBC首席执行官杰夫·谢尔（Jeff Shell）的公开信中要求NBC承诺对中共的暴行进行背景报道，并敦促中共当局在奥运会报道期间公开申明媒体自由和宗教自由。
 
-- [新型コロナウイルスに殺傷効果を持つ記憶免疫キラーT細胞](https://www.riken.jp/press/2021/20211208_1/)
-- [https://www.gettr.com/post/pjslracaa9](https://www.gettr.com/post/pjslracaa9)
-- [https://twitter.com/ZionaEmanuel/status/1471504538221760520?s=20](https://twitter.com/ZionaEmanuel/status/1471504538221760520?s=20)
+公开信特别强调，中共政府希望宣传中共国少数民族的“幸福”，以此掩饰其在新疆地区的“罪行”，NBC要避免播放维吾尔人和其他少数民族身着传统服饰的画面，也不应使用中共政府用来宣传新疆维吾尔自治区的官方画面，拒绝配合中共的大外宣工作。
 
+默克利和麦戈文在信中说：“NBC及其附属机构在北京冬奥会上投资了近10亿美元，这意味着该组织有责任应对中共侵犯人权行为的影响。运动员、后勤保障和媒体成员将来到一个正在发生种族灭绝的国家，在遵循《奥林匹克宪章》、促进‘对普遍基本伦理原则的尊重’的过程中，NBC必须考虑这对北京奥运会的参与者和中共国公民意味着什么。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
+公开信说：“CECC坚决支持美国队以及美国运动员参加即将到来的奥运会，但NBC不能将美国运动员的新闻事件与中共政府为掩盖它们的反人类罪行而进行的粉饰描述相提并论。
 
-总编：飞虹
-编辑：飞虹
-校正/发稿：海阔天空1
+中共政府企图利用奥运会提升其执政合法性，再一次用体育来洗刷对新疆、香港、西藏和国外的少数民族、公民社会活动者和政治异议人士者的恶行。作为美国的奥运会转播商，我们敦促NBC不要替中共做宣传！”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+秘翻新闻主编 巴拉克 编辑报道
+
+发布：文小明
+
+* * *
+
+**By 【秘密翻译组-即时新闻播报组】**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/招募-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

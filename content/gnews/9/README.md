@@ -2,29 +2,38 @@
 ---
 
 
-## 12/18每日播报｜美国在受限实体名单中新增数十家中共国企业和机构
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1767783/)
+## 又一中共房企世茂集团被曝陷入债务困境
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1767805/)
 
-**By:[秘翻新闻](https://gtv.org/broadcast/watch/61b85c7e56f4921401b77b8b)**
+作者：银河勇气星 – 骄子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-08-30-at-7.37.59-PM-2.png)
+据外国媒体报道，12月14日，中共最大房地产开发商之一世茂集团的股价下跌了创纪录的20%，原因是它正在出售资产来管理不断攀升的债务。据墙内媒体12月17日最新消息，其总负债额已达到4,636亿元，其中短期借款为444.43亿元，应付账款及票据为874.04亿元，而其账上的现金及现金等价物仅有747.69亿元。
 
-**2021-12-1**8
+![](https://assets.gnews.org/wp-content/uploads/2021/12/10-7.jpg)
 
-纽约时报12月17日报道，拜登政府于本周四表示，将限制美国与新增的一批中共国企业和机构的业务往来，称这些企业和机构涉及滥用生物技术来监视和压迫中国的穆斯林少数民族。
+郭先生曾反复提及，中共国的房地产债务数额巨大，且债务人从未想过偿还。一旦引爆，将不可避免地拖垮国内银行、保险等其他金融业，进而冲击中共整体经济。并因与世界主要国家千丝万缕的联系，使暴雷向世界各地蔓延，累及全球经济，引发金融海啸。
 
-拜登政府表示，中共国的行为包括在以穆斯林为主的新疆地区使用面部生物识别技术，并对12岁至65岁的居民进行大规模基因检测。 在一项协调行动中，美国财政部禁止美国人投资八家中共国企业，包括无人机制造商大疆。美国称这些企业参与了对维吾尔少数民族的监控和跟踪。作为最大的消费级无人机制造商，大疆是美国政府周四进行限制的对象中目前知名度最高的企业。
+几个月内，恒大、阳光100、花样年等中共知名房企接连被曝出债务违约，无法偿还，现在又加上世茂集团，中共正在不断逼近断崖崩溃的边缘。
 
-美国财政部表示，该公司为新疆的公安部门提供了无人机，后者用它们来监视维吾尔人。 周四，商务部将40家企业和机构列入受限实体名单，包括中共国军事科学院及其11家下属研究机构，这些机构都参与了将生物技术用于军事目的的工作。进入该名单则意味着外国企业获取美国技术或是与美国企业的合作都将受到限制。
+参考链接：
 
-去年，美国商务部增加了11家涉及向北京提供维吾尔族基因分析的公司。其中包括中共国公司华大基因集团的子公司，该集团与中共国军方合作开发了一种新生儿检测，使中共国军方能够获得世界各地数百万人的基因数据。
+- [China housing market slumps again as another developer runs into trouble](https://www.theguardian.com/world/2021/dec/15/china-housing-market-slumps-again-as-another-developer-runs-into-trouble)
+- [4636亿总负债压顶，世茂集团陷违约风波！许荣茂能否渡过难关？](https://baijiahao.baidu.com/s?id=1719378622215618170&amp;wfr=spider&amp;for=pc)
 
-拜登政府还将大型人工智能公司商汤科技列入实体名单，迫使这家中共国公司改变了首次公开发行的计划。美国政府官员说，商汤科技的技术正在被用于维吾尔人的面部识别。
 
-（秘翻新闻主编 清风先生编译报道）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
 
-* * *
+总编：Irene木木
+编辑：飞虹
+校正/发稿：海阔天空1
 
-**By 【秘密翻译组-即时新闻播报组】**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/招募-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

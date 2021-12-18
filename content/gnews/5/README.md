@@ -2,38 +2,46 @@
 ---
 
 
-## 又一中共房企世茂集团被曝陷入债务困境
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1767805/)
+## 郭文贵直播摘要和音频 2021.12.17
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1767843/)
 
-作者：银河勇气星 – 骄子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-08-30-at-7.37.59-PM-2.png)
-据外国媒体报道，12月14日，中共最大房地产开发商之一世茂集团的股价下跌了创纪录的20%，原因是它正在出售资产来管理不断攀升的债务。据墙内媒体12月17日最新消息，其总负债额已达到4,636亿元，其中短期借款为444.43亿元，应付账款及票据为874.04亿元，而其账上的现金及现金等价物仅有747.69亿元。
+摘要撰稿人：文俊
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/10-7.jpg)
+音频提供者：左媛
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-946.png)
+### 视频链接：
 
-郭先生曾反复提及，中共国的房地产债务数额巨大，且债务人从未想过偿还。一旦引爆，将不可避免地拖垮国内银行、保险等其他金融业，进而冲击中共整体经济。并因与世界主要国家千丝万缕的联系，使暴雷向世界各地蔓延，累及全球经济，引发金融海啸。
-
-几个月内，恒大、阳光100、花样年等中共知名房企接连被曝出债务违约，无法偿还，现在又加上世茂集团，中共正在不断逼近断崖崩溃的边缘。
-
-参考链接：
-
-- [China housing market slumps again as another developer runs into trouble](https://www.theguardian.com/world/2021/dec/15/china-housing-market-slumps-again-as-another-developer-runs-into-trouble)
-- [4636亿总负债压顶，世茂集团陷违约风波！许荣茂能否渡过难关？](https://baijiahao.baidu.com/s?id=1719378622215618170&amp;wfr=spider&amp;for=pc)
+[https://gtv.org/video/id=61b9e8037882000d5100be68](https://gtv.org/video/id=61b9e8037882000d5100be68)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
 
-总编：Irene木木
-编辑：飞虹
-校正/发稿：海阔天空1
+### 音频链接：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+### 摘要：
+
+- 中共房地产：在东北的梅河口、葫芦岛，房产交易依然活跃 但价格下来了，中国人在世界上最舍不得享受 即使中国人有钱 也是劳苦命 还在抢便宜的房子
+- 上海过去2-3个月新开餐厅2000家，不是因为生意很好，是因为很多店倒闭了
+- 习属蛇 彭属虎 明年是壬水寅年 阳水阳木 盘古是地上龙火龙 明年对习彭是大伤 他们相信了盘古这个龙对习彭不利 所以一定要在春节前搞完
+- 万达跟习桥桥有关系 还打着桥桥的关系所以还没死
+- 明年的送棺材活动 咱只对习王孟江 其他人不掺合 相信巫术的 咱们就给他们施巫术
+- 彭丽媛文联副主席：这说明习已经完全没人了 人在临死时 才会只相信自己的身边人
+- CCP最有权力的人：习 彭 习远平 彭雷 然后才轮到栗战书丁薛祥
+- 现在说习各种私生子 他没那性能力
+- 新病毒奥米抗 对不同地区的人的影响不同。对普通人没有那么高的致死率。但是对大面积污染的地区，死亡率极高
+- 新病毒奥米抗 中国致死率一定是10万以上的 但没有报道
+- 奥米抗对有肺部疾病、心脑血管疾病的致死率非常高
+- 相信爆料革命支持爆料革命 自己一定要备药 打了疫苗一定吃青蒿素 染病了一定要吃伊维菌素
+- 习的女儿很漂亮很聪明 英文非常好 而且看问题相当高 已经有两个孩子
+- 元宇宙的事:世界大咖禁足人们的工具 人类经历过病毒和疫苗 元宇宙一定不会存在 会有新的元宇宙出来
+- 星期天见
+
+
+
+
+
+
+编辑发布：闪电训练
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
