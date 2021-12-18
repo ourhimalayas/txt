@@ -2,13 +2,11 @@
 ---
 
 
-## 英国新增中共病毒人数连续三天创新高
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1766499/)
+## 12/17/2021 文贵直播：盘古龙头变鸟头、龟头的根本原因是习、王等迷信，相信盘古阳龙会对彭丽媛（属虎）造成绝对的威胁
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1766537/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1218-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+秘密翻译组-北美组
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
