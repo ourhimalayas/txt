@@ -2,31 +2,33 @@
 ---
 
 
-## 新变体病毒奥米克戎Omicron似乎只传染已完全接种疫苗的人
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1769320/)
+## 上诉法院恢复拜登对企业的疫苗授权，可能会在最高法院摊牌
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1769347/)
 
-本文作者：Rebecca (一切心皆不可得！)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/images-3.jpg)
-据《班戈每日新闻》报导，新变体病毒奥米克戎Omicron似乎只传染已完全接种疫苗的人。由于缅因州大部分地区都已完全接种了疫苗，因而病例正在飙升。
+2021 年 12 月 17 日下午 6:59 更新
 
-据悉，全州可用的病床数量现在是疫情期间最低的。这些新病例中的大多数似乎是接受了注射并且现在生病和/或死于这种疾病的人。
+作者：Ann E. Marimow（华盛顿邮报）
 
-同时，由于缅因州的医护人员需要在10月29日前全面接种疫苗，否则将被解雇。因此缅因州的几家疗养院由于护士未接种疫苗被解雇导致劳动力短缺，实际上已经不得不关闭。新英格兰地区的医院一样的状况。
+翻译：沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Joe-Biden-Mask.jpg)图片来源：网络
+周五，联邦上诉法院恢复了拜登政府对大型私营企业的冠状病毒疫苗接种政策，扭转了早先的法院裁决，该裁决已停止白宫为减少传播和减少案件数量所做的标志性努力之一。
 
-为了应对这种情况，美缅因州州长珍妮特-米尔斯（Janet Mills）签署了一项指令，允许在两家特定医院的 “非临床环境 “中使用多达75名警卫部队。据报导，警卫队还将被派往疗养院，任务包括日常杂务。
+总部位于俄亥俄州的美国第六巡回上诉法院的裁决可以上诉到美国最高法院，最高法院很可能对定于 1 月 4 日生效的规则拥有最终决定权。
 
-卫生和公共服务部专员Jeanne Lambrew暗示，也许许多医院的护理需要配给，以便有足够的工作人员来照顾 “重病患者”。
+司法部曾要求法院为旨在保护大型私营企业工人免受病毒侵害的政策扫清道路，该病毒已在美国造成超过 800,000 人死亡。 该机构发言人拒绝置评。
 
-最快在下周，警卫队将抵达缅因州的医院和老人护理设施。然而，他们将具体去哪里，以何种数量分配，还没有确定。
+根据劳工部的规定，拥有超过 100 名员工的雇主必须要求员工接种疫苗或每周接受检测并强制戴口罩，不在现场工作或与他人一起工作的员工也有例外。
 
-[新闻来源连结](https://www.naturalnews.com/2021-12-10-fired-unvaccinated-nurses-replaced-national-guard-troops.html)
+周五的 2-1 裁决支持拜登政府通过职业安全与健康管理局发布紧急工作场所指令的权力。
 
+“记录表明，COVID-19 继续传播、变异、杀死并阻止美国工人安全返回工作岗位。 为了保护工人，OSHA 能够而且必须能够应对不断演变的危险”，Jane B. Stranch 法官撰写的意见写道。
 
+来源链接：[https://www.seattletimes.com/nation-world/appeals-court-reinstates-bidens-vaccine-mandate-for-businesses-setting-up-a-likely-showdown-at-supreme-court/?amp=1](https://www.seattletimes.com/nation-world/appeals-court-reinstates-bidens-vaccine-mandate-for-businesses-setting-up-a-likely-showdown-at-supreme-court/?amp=1)
 
-审核校对：sherryok (水云间)
+编辑/发布：LILY
 
-上传排版：漂流瓶
-
+20211218
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
