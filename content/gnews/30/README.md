@@ -2,35 +2,38 @@
 ---
 
 
-## 103名海军陆战队队员因拒绝新冠疫苗被开除
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1768576/)
+## 银河快讯: 冲绳美军基地100人群聚感染；日央行削减对中共病毒的资金援助
+` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1768610/)
 
-作者：纽约香草山教育部 – Irene木木
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月16日，据当地媒体报道，美国海军陆战队发布公告称，已有103名海军陆战队队员因拒绝接种新冠疫苗而被开除。除此之外，还有多达三万名的其他军种现役军人也将因同样的理由开始被分批遣散。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-19-上午12.34.17.png)
-早在今年8月，美国国防部长奥斯汀下令，要求全体军人必须接种新冠疫苗。此后，各军种迅速制定了相应的截止日期，同时警告所有的服役人员，如果他们不接种疫苗，他们可能会面临退伍的处罚。数据显示，美国现役军人中，未接种新冠疫苗的人员数量接近3万名，他们或者直接拒绝接种疫苗，或者正在等待行政处理医疗或宗教豁免的请求。目前，美国多个军种已经开始正式执行行政开除的处罚措施。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-94.png)[图片来源](https://www.okinawatimes.co.jp/)
+**1.****瑞穗银行提交反洗钱措施报告**
 
-对此，世界卫生组织欧洲免疫咨询专家组前副主席克里斯蒂安·佩龙于当天警告称，服从政府强制令接种新冠疫苗的人才是对公共健康真正的威胁。佩龙解释道，研究表明，95% 的新冠重症患者都是接种过新冠疫苗的人，而未接种者几乎很少出现感染情况。佩龙强调，相较于未接种者，那些接种新冠疫苗的民众才是真正会传染病毒的人。
+[据NHK 12月17日报道，为了回应财政部对今年9月系统故障的反洗钱措施不足而下达的命令，瑞穗银行已经提交了一份报告。 上个月，财政部命令瑞穗银行根据《外汇法》采取纠正措施，称其外汇交易系统在去年9月发生故障时，没有充分检查汇款人是否与恐怖组织或洗钱有关。瑞穗将对所有员工进行培训，以提高对与外汇交易相关的法律和风险的认识，并将建立一个新的组织来加强管理层对反洗钱措施的参与。](https://www3.nhk.or.jp/news/html/20211217/k10013393261000.html)
 
-参考链接：
-1）[https://gettr.com/post/pju0uta2fa](https://gettr.com/post/pju0uta2fa)
-2）[103 Marines booted for refusing COVID vaccine as services begin discharges](https://abcnews.go.com/Politics/103-marines-booted-refusing-covid-vaccine-services-begin/story?id=81793800)
-3）[Immunization expert warns that covid VACCINATED people are the real threat to public health](https://newstarget.com/2021-12-16-immunization-expert-covid-vaccinated-threat-public-health.html)
+**2.****全丰田工会没要求的工资增长数额**
 
-![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+[据NHK 12月17日报道，全丰田工人联合会约有35.8万名会员，在线召开了代表会议并决定不制定统一的工资增长数额，由各工会自行决定。 他们将继续讨论使用数字技术的高效工作方式。工合会还希望深化关于审查生产系统的讨论，该系统依赖于长时间的工作和增加非正式工人的数量，并希望建立新的工作方式，如远程工作。](https://www3.nhk.or.jp/news/html/20211217/k10013393381000.html)
 
-总编：Ivy001
-编辑：Ivy001
-校正/发稿：呼吸的雾霾（文小呼吸）
+**3.****岸田与欧盟委员会主席就印太地区的合作达成共识**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[据NHK 12月17日报道，岸田首相与欧盟主席进行了电话交谈，他们同意进一步深化日本和欧盟在印太地区的合作。他们还确认将根据欧盟-日本经济伙伴关系协定和其他协议，在包括数字、绿色、网络和半导体等科学技术在内的各个领域进行合作。此外，岸田首相呼吁尽早取消欧盟目前对进口日本食品的限制。](https://www3.nhk.or.jp/news/html/20211217/k10013393361000.html)
+
+**4.****日本语言学校和技能实习生支援团体就暂停入境交换意见**
+
+[据时NHK 12月17日报道，这次活动是为了就外国学生和技术实习生的现状交换意见，他们在本国等待，因为政府已经暂停新的外国公民入境。东京新宿区一所日语学校的校长高秀荣三先生表示，鉴于外国学生长期以来无法进入日本，日语学校支持许多外国人的日语教育。 如果这种情况继续下去，日语学校可能会消失。此外，支持接受技术实习生的监督机构的全国人力资源支持联合会执行主任说：“由于不知道何时能去日本的焦虑，人们正在改变目标，选择其他国家，如韩国。”与会者还对日本国民的外国配偶不允许进入日本以及来自海外的高级人才数量大幅减少的现状发表了看法。](https://www3.nhk.or.jp/news/html/20211217/k10013391781000.html?utm_int=news-international_contents_list-items_020)
+
+**5.****日本央行削减对中共病毒的资金援助**
+
+[据共同社 12月17日报道，日本央行周五决定削减对大企业的中共病毒资金支持，因为它们的融资条件已经改善，但在不加速通胀的情况下，并不急于走向政策正常化，这与美国和欧洲同行形成鲜明对比。行长黑田说，“我们不可能像美国和欧洲央行那样做出政策正常化的举措”，日本央行2%的通胀目标仍然无法实现。从4月份开始，日本央行将逐步把商业票据和公司债券的购买量减少到疫情前的水平，分别为2万亿日元和3万亿日元左右。](https://english.kyodonews.net/news/2021/12/704a25e6b60f-update1-boj-trims-covid-19-funding-support-maintains-easing-policy.html)
+
+**6.****冲绳首次确认Omicron，美军基地出现100人群聚感染**
+
+[据冲绳时报12月17日报道，居住在冲绳岛北部和中部的数人已经感染了Omicron毒株。 感染者都是美国海军陆战队汉森基地的日本基地工人。 这是第一次在该县确认有Omicron毒株的感染。在汉森营地，有100人被证实集感染。 据官员称，美国军方没有对Omicron毒株进行测试。 据怀疑，该菌株正在基地上蔓延。同一天，在冲绳的美国海军陆战队宣布，在抵达汉森基地的几名人员身上发现了新的中共病毒群。](https://news.yahoo.co.jp/articles/437e2a1b9e8e989979455b13303d58e517391e57)
+
+【日本银河系农场-阿尔法星球】
+作者：Totoro  
+校对：Windfish
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

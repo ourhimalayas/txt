@@ -2,40 +2,42 @@
 ---
 
 
-## 儿童注射辉瑞疫苗后确认有心肌炎症状
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1768759/)
+## 【Michael.Tonny专栏】英格兰未成年人死于中共病毒感染概率和被雷劈差不多
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1768898/)
 
-翻译：**Lulumi**
+作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/61bc72ea203027690237a3fd.jpg)一个女孩在宾夕法尼亚州接受辉瑞-生物科技的Covid-19疫苗。2021年12月5日。（路透社 / Hannah Beier）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-美国疾病控制和预防中心（CDC）已经报告了8起心肌炎病例，这是一种可能致命的心脏炎症，发生在接种辉瑞-生物科技Covid-19疫苗的小学生身上。
+2021年11月11日，英国多家著名医疗机构联合发表在[Nature](https://www.nature.com/)的调查报告《[Deaths in children and young people in England after SARS-CoV-2 infection during the first pandemic year](https://www.nature.com/articles/s41591-021-01578-1)》显示，在2020年3月至2021年2月中共病毒流行期间，英格兰12,023,568名18岁以下的未成年人中，仅25人死于中共病毒感染。相当于在这期间，英格兰18岁以下的未成年人感染中共病毒死亡的机率为2/100万，比英格兰人被雷劈的机率（1/120万）高一点。
 
-截至12月10日，美国CDC说它已经收到14份关于5-11岁儿童接种后心肌炎的报告。其中，它说有8份报告——涉及4个男孩和4个女孩——符合该机构对这种炎症的“工作病例定义”。
+该报告由英国多家著名医疗机构的十多位专家联合完成，这些专家来自英国 NHS（National Health Service，英国国家医疗服务体系）、伦敦帝国理工学院（the Imperial College of London）、英国公共卫生（Public Health England）部门和布里斯托尔皇家儿童医院（the Bristol Royal Hospital for Children）。
 
-在报告的14个病例中，有5个病例仍在跟进中。在该机构接受的8个病例中，有6个是在接种辉瑞公司的第二针后出现的，这是唯一可用于该年龄组的疫苗。
+该报告显示，中共病毒在英格兰大流行的第一个年中，自2020年3月至2021年2月期间，英格兰12,023,568名18岁以下的未成年人（Children and Young People，CYP）中，共有3105人因各种原因死亡，其中仅61例死亡后，其CCP病毒检测结果呈阳性，其余3044人的死因与中共病毒没有关系。
 
-周四，在向CDC的疫苗不良事件报告系统（VAERS）报告的3233个其他疫苗接种后不良事件中，这些儿童不良反应报告被特别强调。
+图1：用于确定是感染中共病毒导致死亡还是巧合的方法流程图
+![](https://assets.gnews.org/wp-content/uploads/2021/12/approach-used-to-determine-if-SARS-CoV-2-contributed-to-death.jpg)
+而结合病历对这61例个案进行仔细调查后发现，仅25例死于中共病毒感染，其中22例死于急性感染，3例死于多系统炎症综合征（PIMS-TS），另外36例尽管死亡后中共病毒检测呈阳性，但死亡原因与中共病毒无关。
 
-虽然注意到这些病例有一个“温和的临床过程”，但CDC并没有确认它是否认为心肌炎事件与疫苗之间有直接联系。它也没有透露心肌炎在那些没有接种过疫苗的年龄组中发生的频率。
+图2：图表显示了研究期间（2020年3月至2021年2 月）因中共病毒检测呈阳性而死亡的所有未成年人的累计死亡数
 
-该机构说，截至12月9日，5-11岁年龄组的疫苗接种量已超过700万剂。它还报告了两例有“复杂病史”的儿童死亡，但指出报告的大多数不良事件是“非严重的”。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/the-cumulative-number-of-deaths-for-all-CYP-who-died-with-a-positive-SARS-CoV-2.png)
 
-上周，CDC主任罗谢尔·瓦伦斯基说，该机构还没有“看到任何关于接种疫苗后的心肌炎病例”，并说这种疫苗对幼儿是安全的。但最近的一项民意调查发现，近三分之二的小学生家长不愿意冒这个风险。
+而自2020年3月到2021年2月期间，英格兰总共有469,982名18岁以下的未成年人感染了中共病毒。
 
-美国食品和药物管理局（FDA）在10月批准辉瑞公司的mRNA疫苗用于该年龄段时，曾注意到对12-17岁男性的心肌炎和心包炎（一种心脏周围组织的炎症）的担忧。但是FDA的利益-风险评估模型预测，该疫苗对5-11岁儿童的好处“将超过风险”。
+据此换算，英格兰18岁以下的未成年人感染中共病毒后的死亡率为5/10万（25÷469,982），感染中共病毒死亡的机率为2/100万（25÷12,023,568）。
 
-**参考资料：**[rt][Heart inflammation cases confirmed in kids after Pfizer jabs](https://www.rt.com/usa/543487-cdc-heart-inflammation-pfizer-children-vaccine/)
+英格兰18岁以下的未成年人死于感染中共病毒的概率为2/100万，而所有其他原因的死亡率为25.5/10万。尽管死于中共病毒的未成年人中，亚裔和黑人比例更高，但他们死于 中共病毒感染的绝对风险仍然极低，为每6/100百万和 8/100万。同样，10-14岁和 15-17岁的未成年人死于中共病毒感染的比例高于同年龄组的未成年人死于所有其他原因的比例。然而，他们死于中共病毒感染的绝对风险仍然极低，分别为每3/100万和5/100万。
 
-* * *
+而据[The Week](https://www.theweek.co.uk/)的调查报告（[What are the chances of being hit by lightning?](https://www.theweek.co.uk/59687/what-are-the-chances-of-being-struck-by-lightning)），所有英格兰5820万人，被雷劈（室内和室外总和）的风险为120万分之一，被雷劈死的风险为 1900万分之一。
 
-*审核：文乐*
-*校对 : 阿伯塔*
-*发布：信心的选择*
+参考数据：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-3.jpeg)
+[Deaths in children and young people in England after SARS-CoV-2 infection during the first pandemic year](https://www.nature.com/articles/s41591-021-01578-1)
 
+[What are the chances of being hit by lightning?](https://www.theweek.co.uk/59687/what-are-the-chances-of-being-struck-by-lightning)
 
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/) 上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 
