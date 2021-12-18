@@ -117,11 +117,11 @@
 ### [DC每日热点1218](/content/gnews/34/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [【中日财经爆】日本房地产价格要下跌？](/content/gnews/35/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [众议院因强迫劳动问题投票禁止从新疆进口](/content/gnews/35/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [汇丰银行因洗钱问题被罚近6400万英镑](/content/gnews/36/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [【中日财经爆】日本房地产价格要下跌？](/content/gnews/36/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [12/18每日播报｜新闻简讯：主流媒体曝 科学研究证明疫苗无用](/content/gnews/37/README.md)
  ` 秘密翻译组-即时新闻播报组`
