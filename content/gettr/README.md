@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/18/2021 2:14 AM (UTC)`
+
+12/17/2021 Miles Guo: The fundamental reason that the Pangu Plaza’s dragon head-shaped building was turned into the bird head-shaped/glans-shaped design is Xi Jinping and Wang Qishan are superstitious, thinking that the dragon head-shaped design can pose absolute threat to Peng Liyuan, whose Chinese zodiac sign is tiger (because it’s believed that dragons can defeat tigers). So, the Pangu Plaza’s dragon head-shaped building must be altered before the year of the water tiger (2022)<br/><br/>12/17/2021 文贵直播：盘古龙头变鸟头、龟头的根本原因是习、王等迷信，相信盘古阳龙会对彭丽媛（属虎）造成绝对的威胁，所以必须在壬水寅虎年到来前搞掉盘古龙头<br/>
+![img](https://media.gettr.com/group16/getter/2021/12/18/02/c26ed343-5868-6c47-a933-89b7ebd51c44/out.jpg)
+
+---
+
 `@miles 12/17/2021 1:10 PM (UTC)`
 
 2021年12月17日 文贵大直播：国内经济危机与冬奥会；方正证券郑州接管裕达；彭副主席上位意图何在；各数字货币下滑与喜币
@@ -149,15 +156,6 @@ Coming soon…
 
 最近，我们初步的完成了关于青蒿素保健品和药品效用的问卷调查。调查结果显示，青蒿素会改善和缓解疫苗副作用及其他基础疾病。所有细节均包含在如下的报告里。青蒿素是中共病毒和中共病毒疫苗的解药，我们将继续推进真相。请遵医嘱。
 ![img](https://media.gettr.com/group29/origin/2021/12/14/02/b40c46cb-4cf8-0b4a-25e0-6521d2c52766/2f819549854a45495c31ac76700944de.png)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@livrenoirmedia 12/14/2021 3:48 PM (UTC)`
-
-Jason #Miller (@JasonMillerinDC) conseiller et porte-parole de Donald #Trump, aujourd’hui président du réseau social #GETTR, était ce matin sur le fauteuil de Livre Noir. Entretien passionnant à venir prochainement.
-![img](https://media.gettr.com/group45/getter/2021/12/14/15/4dfb5844-4f33-e1f7-c67e-fd1c67bd8d6f/out.jpg)
 
 ---
 

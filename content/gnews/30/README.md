@@ -2,50 +2,30 @@
 ---
 
 
-## 日本加快推进辉瑞的药品供应
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1766142/)
+## 焦点：波音公司不再要求美国员工接种疫苗
+` 丁过` [轉載自GNews](https://gnews.org/zh-hans/1766280/)
 
-作者：纽约香草山农场 – 四季
+#### 作者：加拿大温哥华农场 丁过
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-17-下午5.42.58.png)来源：gettyimage
+据路透社12月17日自西雅图刚刚发布的消息，总部位于西雅图的波音公司，今天（本周五）向路透社透露了一份内部文件，波音公司（BA.N）已暂停对美国员工的中共病毒疫苗接种要求。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+这份由路透社记者Eric M.约翰逊报道的讯息很简短，但却包含了极其重要的信号和丰富的内涵。
 
+波音公司是全球最大的航天航空器制造商，同时又是全世界第二大国防承包商，由于其产品的高附加价值和大量的军用民用技术的唯一性，不论是对美国的国防还是经济都有着举足轻重的地位。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-17-下午5.47.19.png)来源：BBC
+由于受中共病毒疫情的反复冲击，波音公司的经营陷入困境，订单快速萎缩，去年已经裁员7千名，如果因为强制疫苗继续减员，将对波音公司的正常生产和运营产生致命影响。
 
+又由于中共对台湾蠢蠢欲动，而台湾又涉及美国最核心的国家利益，可以说波音公司是否正常运转直接影响到美国的国防安全。
 
+实际上拜登政府的强制疫苗政策对美国和美国人的损害是全方位的，深远的，而且是违宪的。尤其是当前的美国外有中共强敌，内有社会撕裂，这种损害将更加致命。
 
+所幸的是美国的民主文明基础还在，人们手中还有枪，还能表达自己的正常诉求，还可以对疫苗暴政说不，因此强制疫苗政策的寿终正寝仅仅是时间问题。
 
-据[OAN网站](https://www.oann.com/japan-pm-kishida-speeds-boosters-and-secures-pfizer-pills-amid-omicron-fears/)12月17日援引路透社报道，出于对OMICRON变种的担忧，日本首相岸田文雄周五与辉瑞公司负责人进行了电话交谈，以确保200万剂辉瑞公司抗病毒药在日本的供应，并表示将加速为老年人接种疫苗加强针的措施。
+参考来源：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1746-1.jpg)2021年2月17日，日本正在启动疫苗接种活动。在日本东京，一名医务人员在东京医疗中心拿着一小瓶辉瑞-生物技术公司的冠状病毒病（COVID-19）疫苗。（Behrouz Mehri/Pool via REUTERS）
+[Boeing suspends vaccine mandate for U.S. employees](https://www.reuters.com/business/aerospace-defense/exclusive-boeing-suspends-vaccination-requirement-us-based-employees-internal-2021-12-17/)
 
-岸田说，日本的目标是在首次接种后的六个月而非八个月内，为大约3100万名医护人员和高危老人提供疫苗加强针。他说，从2月起，其他老人将在7个月内得到加强针注射。
-
-日本已与辉瑞公司签约，为明年订购了1.2亿剂疫苗。截至本月，日本的疫苗库存约为1600万剂。周四，日本政府正式批准Moderna的中共病毒疫苗加强针计划，该计划迄今位置仅覆盖了0.1%的日本人口。
-
-尽管日本的疫苗接种相对较晚，但迄今为止，日本已为其近80%的人口进行了全面接种，是七国集团经济体中接种比例最高的国家。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月.png)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+编辑/发文：Kent
 
  
 
