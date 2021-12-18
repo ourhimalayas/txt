@@ -2,36 +2,47 @@
 ---
 
 
-## “我们不反疫苗，我们反对的是假疫苗”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1766615/)
+## 美国任命主张对中共强硬的伯恩斯出任大使
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1766641/)
 
-撰稿：纽约香草山农场福音部-恩永存
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-8.png)
-12月15日，郭文贵先生在大直播中时强调，我们不是反对那些经过验证的、对人类有益的疫苗，我们反对的，是未经验证的新冠病毒假疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-904.png)
-郭先生一再强调，当前各国政府向民众推广的新冠疫苗，是中共等黑暗势力用来屠杀平民的武器。黑暗势力不仅释放病毒，还充分利用人性的弱点，推广更具杀伤性的疫苗。他们控制媒体，妄图掩盖病毒和疫苗真相。
-
-通过GNEWS、GTV、GETTR，爆料革命向全世界揭露，新冠病毒就是中共制造的生化武器，呼吁全世界认识疫苗的危害性，还无私地分享解药—青蒿素。郭先生强调，新中国联邦揭露真相，反对毒疫苗，旨在挽救更多无辜的生命。
+作者：东京樱花团—在远方
 
 
 
-新闻链接：[2021年12月15日 文贵大直播](https://gettr.com/post/pjqagc144c)
+![This image has an empty alt attribute; its file name is image-40-1-9-1.png](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-1.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
 
-总编：文特
 
-编辑：飞虹/雪梨
+![](https://assets.gnews.org/wp-content/uploads/2021/12/php8LYoLB.jpg)图片源自网络
 
-校正/发稿：浪迹天涯
+当地时间12月16日，美国参议院通过表决，任命主张对中共强硬的前副国务卿伯恩斯，为驻中共国大使。据悉，现年65岁的伯恩斯是哈弗大学教授，曾任美国驻北约大使，并在2005年至2008年担任副国务卿。 
+
+伯恩斯10月20日曾在听证会上表示，中共在喜马拉雅山脉对付印度，在南海针对越南、菲律宾等国，在东海对付日本，在新疆进行种族灭绝，在西藏侵害人权，扼杀香港自治与自由，并霸凌台湾，是赤裸裸的侵略者。在台湾问题上，美国绝对不能相信中共，美国有责任保护台湾免遭中共入侵。
+
+参考链接：[https://news.ltn.com.tw/news/world/breakingnews/3771337](https://news.ltn.com.tw/news/world/breakingnews/3771337)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/unknown-2.jpg)
+
+总编：飞虹
+
+校对/发稿：Daxia
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-8.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-1.png)
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

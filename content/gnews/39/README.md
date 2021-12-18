@@ -2,32 +2,44 @@
 ---
 
 
-## 亚马逊为讨好北京而与中共国宣传机构合作
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1766597/)
+## 躺平币严格讲叫社交币，是全球的完全独立于喜币的系统
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1766637/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Unknown-26.jpg)亚马逊为讨好北京而与中共国宣传机构合作 网络图片
-据美国之音12月18日援引路透社17日发表的报道，美国电商巨头亚马逊(Amazon)为了赢得北京的垂青而与中共国官方宣传机构合作。
+**郭文贵先生：**这个躺平币还有喜币它最大的问题，喜币和躺平币完全独立的法人机构，独立的整个发行机构，完全不同的功能，但最终都是要灭共的，这是肯定的。
 
-2004年，亚马逊收购中共国的卓越网，开始进入中共国市场。为了发展电子书业务并推销Kindle，亚马逊推出了“中国书店”项目，出售很多非政治类书籍，也出售宣传中共政府立场和成就的书籍，包括《习近平治国理政》。但是按照北京的要求，该书关闭了读者打分和评论。
+然后呢，喜联储喜币主要致富战友，让战友富裕，还有创建新中国联邦的未来金融系统。它是一个国家未来就像法币一样，主要是为战友服务的，长期的、一系列的功能化的；而躺平币是全球的，谁用社交媒体谁致富，也就是严格讲最早叫什么？叫社交币，我们改成了一个就是咱们战友叫躺平币，但是这个币名还不能告诉你们，已经完了，另外一个名字。
 
-2018年，中共国国家互联网信息办公室要求亚马逊从该公司的电影信息和评论平台IMDb删除中共国新影片《厉害了，我的国》，因为这部影片遭到恶评。在满分10分的评分制中，这部影片总评只有2.3。
+这个是完全独立的系统，它发币机构完全是独立的，然后第三方给兑现，就是让你能买面包买油的，能付嫖资的，是吧！这是功能，是由第三方完全独立的来支撑的，这个是很大的事儿！要不然你就不叫去中心链化了，你不是去中心化了，因为只要是你有，像咱喜联储一样，你有这个支付系统你就不可能去中心化，它是完全去中心化，是第三方开始。
 
-雅虎撤离中共国，微软旗下的领英将取消一些服务，而亚马逊近年来却在中共国成为一股强大的经济力量。只要把灵魂卖给魔鬼，短期内就能看见利益，只是与魔鬼同行能走多远呢？拭目以待吧。
+另外一个服务的，像支付系统什么的，都是第三方，而且都是不同的国家的。那它要的事情，就是未来社交媒体上也就是3.0版，谁用时间长谁获最大利润，而不是平台。谁要是在这个躺平币谁得到的多，随时可以更换，随时可以贴现，随时可以支付，随时可以流通。这种情况下就是你的工作和时间和结果，你就是使用这个躺平币的时间和社交媒体来计算。
 
-新闻参考链接：[https://www.voachinese.com/a/reuters-special-report-amazon-works-with-chinese-propaganda-arms-20211217/6359603.html](https://www.voachinese.com/a/reuters-special-report-amazon-works-with-chinese-propaganda-arms-20211217/6359603.html)
+当然未来会设计很多功能，比如抽奖，打赏，私密直播等等一系列的功能，所以它完全是独立的，它跟新中国联邦也是独立的，但是最终它也是有利于灭共，比如说美国人家用，阿富汗人用，人家不灭共一样，待遇是一样的，不同的本质在这里，谢谢。
 
-* * *
+字幕来源：[2021年12月15日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1762636/)；
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+视频制作：Cindy；
 
+视频上传：Cindy；
 
-编辑：【英国伦敦喜庄园编辑部】
+G-News发布：小满；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
 
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
