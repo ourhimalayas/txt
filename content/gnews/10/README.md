@@ -2,26 +2,24 @@
 ---
 
 
-## 【中日财经爆】中共将切断墙内投资境外股市交易渠道
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1766773/)
+## 【中日财经爆】港交所明年开始接受SPAC空壳公司上市申请
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1766811/)
 
 整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/3-24.png)[图片来源](https://daynews.co/news/681014/)
-路透社17日报道，中共国监管机构计划禁止富途控股和老虎证券等互联网券商向内地客户提供离岸交易服务。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12-5.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=http%3A%2F%2Fspac.us%2Fuploads%2Fallimg%2F210430%2F1-2104300939250-L.jpg&amp;imgrefurl=http%3A%2F%2Fwww.spac.us%2Fm%2Fview.php%3Faid%3D270&amp;tbnid=MdLSTO5GBowKVM&amp;vet=12ahUKEwjz_pLcuez0AhWHfnAKHY8ZCOgQMygEegUIARChAQ..i&amp;docid=wyUXuV-ChCEOPM&amp;w=1280&amp;h=640&amp;itg=1&amp;q=SPAC%E7%A9%BA%E5%A3%B3%E5%85%AC%E5%8F%B8&amp;ved=2ahUKEwjz_pLcuez0AhWHfnAKHY8ZCOgQMygEegUIARChAQ)
+香港交易所旗下香港联合交易所周五12月17日公布引入新规则，在香港设立全新SPAC空壳公司上市机制，并于2022年1月1日起生效。
 
-这两家在纳斯达克上市的中共国公司是这一领域中最大的两家公司，禁令将使中共国内地数以百万的散户投资者无法在美国和香港等市场方便交易。
+联交所今年9月就推行SPAC上市机制征询市场意见，共收到90份来自多个不同界别对新上市机制谘询的回应意见，大多数建议均获逾八成有表明意见的回应人士支持。
 
-消息人士表示，相关公司可能在“未来几个月”内接到禁令通知。富途和老虎证券分别于2011年和2014年开始经营相关业务，允许大陆客户使用身份证、银行卡和税务记录等个人信息开立离岸帐户。两者均在香港证监会注册，但该许可证不适用于大陆。目前中共国内地没有发给专门从事跨境交易的互联网券商牌照。
+“新规则将大致按照建议所述实施，并因应一些商业因素作出修订，确保兼顾上市公司质素与市场考虑。”港交所上市主管陈翊庭表示。
 
-富途市值55亿美元，公司表示一直在与中共国当局进行沟通，但尚未收到任何类似路透报导所提到的正式命令。富途称目前正常运营。
+港交所表示，将于1月起接受SPAC上市申请。
 
-今年4月，富途控股在一份增发招股说明书中指出，其业务可能会受到有关部门立场变化的影响。老虎证券表示，公司一直遵循全球监管机构的规则，并将遵守和实施任何新规则。
-
-10月，中共国官媒–证券时报援引接近监管部门的人士称，证监会等部门正完善规则，规范在美国上市的中共国在线券商富途控股、老虎证券等互联网券商的境内金融活动。这加剧了两家公司股价的下跌，股价自今年2月达到峰值以来已暴跌超过80%。
+SPAC是一种空壳公司，上市筹集资金的目的是为了上市后一段预设期限内收购目标公司（SPAC并购目标）的业务（SPAC并购交易）。
 
 消息来源:
 
-[独家：中共国将禁止互联网券商向内地客户提供海外交易服务–消息](https://cn.reuters.com/article/china-www-securities-overseas-trading-12-idCNKBS2IW0Y0?il=0)
+[香港交易所公布设立全新SPAC上市机制 明年1月起接受上市申请](https://cn.reuters.com/article/hkex-spac-rule-1217-idCNKBS2IW0S9?il=0)
 
 *校对：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*

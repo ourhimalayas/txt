@@ -2,19 +2,46 @@
 ---
 
 
-## 神秘公主&#8212;-习明泽
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1766576/)
+## 美国任命主张对中共强硬的伯恩斯出任大使
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1766641/)
 
-撰稿：爱战神
-上传：追着曙光跑
+作者：东京樱花团—在远方
 
-郭文贵先生在12月17日大直播中播报了中共主席习近平和夫人彭丽媛之女，一个全世界最神秘的公主。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Image-2021-12-18-at-11.12.03-1.jpeg)
-文贵先生说她已是两个孩子的母亲隐形这么久很不简单。她化名李木子，毕业哈佛大学，经常专机中美两国飞往。习近平一切生活工作都由她细心打理，甚至出国访问紧紧跟随，从没流出过任何照片。
 
-文贵先生对她的评价很高：说她能预见未来、控制局面。有金正恩的诡才，有金正恩之妹的狠劲，有彭丽媛的大度，也有习近平的亲善。美国人对她也十分佩服，已经玩到金正恩爹的份上了。文贵先生说，不久他会更多地揭开公主神秘面纱。
 
-信息来源：[2021年12月17日 文贵大直播：国内经济危机与冬奥会；方正证券接管郑州裕达；彭副主席上位意图何在；各数字货币下滑与喜币](https://gtv.org/video/id=61bc8c137882000d5102bf12)
+![This image has an empty alt attribute; its file name is image-40-1-9-1.png](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-1.png)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/php8LYoLB.jpg)图片源自网络
+
+当地时间12月16日，美国参议院通过表决，任命主张对中共强硬的前副国务卿伯恩斯，为驻中共国大使。据悉，现年65岁的伯恩斯是哈弗大学教授，曾任美国驻北约大使，并在2005年至2008年担任副国务卿。 
+
+伯恩斯10月20日曾在听证会上表示，中共在喜马拉雅山脉对付印度，在南海针对越南、菲律宾等国，在东海对付日本，在新疆进行种族灭绝，在西藏侵害人权，扼杀香港自治与自由，并霸凌台湾，是赤裸裸的侵略者。在台湾问题上，美国绝对不能相信中共，美国有责任保护台湾免遭中共入侵。
+
+参考链接：[https://news.ltn.com.tw/news/world/breakingnews/3771337](https://news.ltn.com.tw/news/world/breakingnews/3771337)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/unknown-2.jpg)
+
+总编：飞虹
+
+校对/发稿：Daxia
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-9-1.png)
+
+
+
 
  
 
