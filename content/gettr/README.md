@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/18/2021 3:28 AM (UTC)`
+
+12/17/2021 Miles Guo: The CCP, which claims to be atheist, attacks me using sorcery by taking advantage of the power of the entire Communist China! However, I have been doing better and better, while the CCP has been labeled as a criminal organization by the world, facing all kinds of unfavorable situations in terms of finance, real estate, public opinion, and its reputation in the international community etc. The sorcery used by Xi Jinping and Peng Liyuan have failed completely!<br/><br/>12/17/2021 文贵直播：自称无神论的中共竟倾一国之力以巫术对付文贵！然而文贵发展越来越好，但中共却被世界列为犯罪组织，面临着金融，房地产，民心和国际环境等各方面不利的局面！习和彭使用的巫术已彻底失败！<br/>
+![img](https://media.gettr.com/group43/getter/2021/12/18/03/7a77abca-8b0b-1e1d-c622-7b077e0156cc/out.jpg)
+
+---
+
 `@miles 12/18/2021 3:10 AM (UTC)`
 
 12/17/2021 Miles Guo: Why did the CCP take over the Pangu Plaza and Yuda Palace Hotel at this time? Xi Jinping and Peng Liyuan are extremely superstitious and believe that the Yuda Palace hotel is the “Buddha's Hands” in Zhongyuan and is like Mr. Miles Guo’s root/penis. So, they believe that they must take it over before the year of the water tiger<br/><br/>12/17/2021 文贵直播：共产党为何要在此时搞盘古、裕达？习彭等人极度迷信，认为裕达是中原佛手、是文贵先生的根器，必须在壬水寅虎年前干掉<br/>
@@ -150,15 +157,6 @@
 
 12/15/2021 Miles Guo: What does the Tibet Independence Act mean? Tibet is the grant barrier of Western China, and it also has the richest water and forest resources; Tibet’s strategic significance is no less than that of Taiwan; once Tibet became independent, Communist China would be over<br/><br/>12/15/2021 文贵直播：《西藏独立法案》意味着什么？西藏是中国西部的大屏障、也拥有着中国最丰富的水资源和森林资源，其战略地位不亚于台湾；一旦西藏独立，中共国就彻底完了
 ![img](https://media.gettr.com/group17/getter/2021/12/16/00/fb139163-7c4d-dbd7-ae1e-34d935a1933d/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@gfashion 11/30/2021 11:07 PM (UTC)`
-
-Made in Italy 🇮🇹<br/>@gfashion<br/>@DDNYC
-![img](https://media.gettr.com/group41/getter/2021/11/30/23/07/f90a3cd0-2a91-edb5-f7a6-eb294293a0d1/out.jpg)
 
 ---
 
