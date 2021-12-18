@@ -2,20 +2,36 @@
 ---
 
 
-## 神秘公主&#8212;-习明泽
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1766576/)
+## “我们不反疫苗，我们反对的是假疫苗”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1766615/)
 
-撰稿：爱战神
-上传：追着曙光跑
+撰稿：纽约香草山农场福音部-恩永存
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-8.png)
+12月15日，郭文贵先生在大直播中时强调，我们不是反对那些经过验证的、对人类有益的疫苗，我们反对的，是未经验证的新冠病毒假疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-904.png)
+郭先生一再强调，当前各国政府向民众推广的新冠疫苗，是中共等黑暗势力用来屠杀平民的武器。黑暗势力不仅释放病毒，还充分利用人性的弱点，推广更具杀伤性的疫苗。他们控制媒体，妄图掩盖病毒和疫苗真相。
 
-郭文贵先生在12月17日大直播中播报了中共主席习近平和夫人彭丽媛之女，一个全世界最神秘的公主。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Image-2021-12-18-at-11.12.03-1.jpeg)
-文贵先生说她已是两个孩子的母亲隐形这么久很不简单。她化名李木子，毕业哈佛大学，经常专机中美两国飞往。习近平一切生活工作都由她细心打理，甚至出国访问紧紧跟随，从没流出过任何照片。
+通过GNEWS、GTV、GETTR，爆料革命向全世界揭露，新冠病毒就是中共制造的生化武器，呼吁全世界认识疫苗的危害性，还无私地分享解药—青蒿素。郭先生强调，新中国联邦揭露真相，反对毒疫苗，旨在挽救更多无辜的生命。
 
-文贵先生对她的评价很高：说她能预见未来、控制局面。有金正恩的诡才，有金正恩之妹的狠劲，有彭丽媛的大度，也有习近平的亲善。美国人对她也十分佩服，已经玩到金正恩爹的份上了。文贵先生说，不久他会更多地揭开公主神秘面纱。
 
-信息来源：[2021年12月17日 文贵大直播：国内经济危机与冬奥会；方正证券接管郑州裕达；彭副主席上位意图何在；各数字货币下滑与喜币](https://gtv.org/video/id=61bc8c137882000d5102bf12)
 
+新闻链接：[2021年12月15日 文贵大直播](https://gettr.com/post/pjqagc144c)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
+
+总编：文特
+
+编辑：飞虹/雪梨
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-8.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
