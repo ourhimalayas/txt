@@ -2,35 +2,41 @@
 ---
 
 
-## 法国黑客大量制作假疫苗护照
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1766305/)
+## 爆发，五天内第三家魁北克医院爆发COVID-19 新冠变种病毒——80 名员工中有 27 名检测呈阳性
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1766315/)
 
-**翻译：Ronnie O’Sullivan
-编辑：守望黎明 **
+编译：16626
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1678-edited.png)图片来源：网络
+**报道称，截至 12 月 16 日星期四，80 名员工中有 27 名检测呈阳性**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/18日发布.jpg)图片来源：The Canadian Press
+蒙特利尔日报2021 年 12 月 16 日（记者黛安·特伦布莱 Diane Tremblay 2021 年 12 月 16 日星期四下午 3:21，更新 2021 年 12 月 16 日星期四下午 5:19）报道，医院Hôtel-Dieu de Lévis，爆发COVID-19 新冠变种病毒——80 名员工中有 27 名检测呈阳性。此前，蒙特利尔日报2021 年 12 月 15 日（伊万诺·德默斯，Ivanoh Demers）报道，蒙特利尔的圣母医院宣布最新COVID-19 新冠变种病毒爆发并导致该医院取消了非紧急手术。几天前加拿大广播公司新闻2021 年 12 月 12 日（让-克劳德•塔利安娜Jean-Claude Taliana）报道，最新COVID-19 新冠变种病毒在蒙特利尔湖岸总医院（Montreal’s Lakeshore Hospital）爆发-所有感染者都接种了双重疫苗。这是自2021 年 12 月 12 日以来第三家魁北克医院宣布最新COVID-19 新冠变种病毒爆发。五天内已有三家魁北克医院宣布最新COVID-19 新冠变种病毒爆发。该篇题为《医院Hôtel-Dieu de Lévis新冠变种病毒COVID-19爆发》的报道编译如下：
 
-据报道，黑客获得了法国南特市一名护士的个人信息，并用该数据假造出54,000张有效疫苗通行证。与此同时，法国政府表示，迄今为止已发现11万张此类假证明。
+医院Hôtel-Dieu de Lévis爆发了 COVID-19，感染者发生在几天前参加圣诞晚宴的放射科员工中。
 
-法国健康通行证系统与其他欧盟国家使用的系统类似。其工作原理是将包含有接种者手机二维码的公钥与其所接种疫苗的医院、药房等医疗机构提供的私钥配对。检查某人新冠病毒通行证有效性的时会扫描公钥代码，若与私钥匹配，则显示出绿色的勾；而若不匹配，则会出现一个红叉。
+“我们确认绍迪耶尔-阿巴拉契亚区Chaudière-Appalaches健康和社会服务中心CISSS de Chaudière-Appalaches 的 Hôtel-Dieu de Lévis 医院的放射科团队中爆发了疫情”，发言人米雷尔·高德罗Mireille Gaudreau 宣布。
 
-像南特市护士持有的这种私钥，可以生成不限数量的有效疫苗通行证。这些信息对黑客和诈骗者非常有价值，他们能随后制造并在线出售假通行证。
+截至 12 月 16 日星期四，80 名员工中有 27 名检测呈阳性。受感染的员工都已被调离工作岗位，并在家中接受隔离治疗。
 
-法国内政部长杰拉尔德·达马宁(Gerald Darmanin)周四表示，政府已发现了110,000张假疫苗证明。达马宁表示，使用假通行证的最高处罚可达到五年监禁，但当局将大赦任何“承认错误并接种疫苗”的人。
+“一切都在最近的一个圣诞节聚会之后发生的，尽管这个圣诞节聚会的人数符合按照当时政府的规定”，米雷尔·高德罗女士补充道。
 
-法国于夏季推出的“疫苗通行证”系统要求公民出示疫苗接种证明或冠状病毒检测呈阴性，才能进入酒吧、餐馆、购物中心或公共交通工具等场所。对这套系统的争议很大，自推出以来几乎每个周末都有上千名人涌入巴黎和其它主要城市的街道举行抗议。从明年 1 月起，法国的所有成年人都必须注射加强针才能保持健康通行证继续有效。
+“经过对相关的工作岗位的重新安排，我们能够继续对患者提供所有正常服务。只有某些被认为在医学上被诊断为不紧急的病例才被推迟”，她继续说道。
 
-原文链接：[French hackers create 54,000 fake vaccine passports – reports](https://www.rt.com/news/543446-france-fake-vaccine-pass-hack/)
+她说，患者可以安全地接受医院相关部门的医疗服务，因为医院已经贯彻落实了感染预防和控制小组的建议。
 
-*发布：盘古相聚*
+她最后说：“我们也已经在魁北克首都开设特殊服务走廊以备在需要时转移患者，然而目前情况并无此紧急需要”。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+随着此次疫情的爆发，整个绍迪耶尔-阿巴拉契亚区Chaudière-Appalaches 目前也正在爆发更多病例。根据每日疫情报告，周三报告了 284 例新病例，而前一天为 219 例，共有 26,553 人感染。有八人住院，其中两人在重症监护室。活跃病例数为 1400，没有新的死亡报告。
 
+**该篇报道揭示80 名员工中就有 27 名检测呈阳性，这是接近35%的比例的传播，这个比例大的惊人。**
+
+**文章编译人提醒读者，病毒仍在传播，疫情正在爆发，大家必须格外小心。**
+
+参考资料：[蒙特利尔日报] [https://www.journaldemontreal.com/2021/12/16/eclosion-majeure-chez-le-personnel-de-lhotel-dieu-de-levis-1](https://www.journaldemontreal.com/2021/12/16/eclosion-majeure-chez-le-personnel-de-lhotel-dieu-de-levis-1)
+
+编辑/发布：LILY
+
+20211217
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
