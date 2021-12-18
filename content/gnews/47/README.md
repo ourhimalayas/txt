@@ -2,28 +2,30 @@
 ---
 
 
-## 习近平的“家天下”昭示其政治孤立的境地
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1766973/)
+## 国安法后 赴英港人激增
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1767547/)
 
-作者：纽约香草山文艺部 – 宁文静
+作者： 纽约香草山教育部 Irene木木
+
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在12月17日的直播中，郭文贵先生明确表示，随着习氏夫妇在中共文联大会上一起亮相，这表明了习近平的“家天下”已经从幕后走到了台前。然而，习近平向外界展示其大权在握的同时，也昭示着习家被中共党内各政治派别孤立的处境。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide2-15.jpeg)
+当地时间12月15日，据英国外交部发布的报告显示，在新版赴英签证BNO推出后的9个月中，约有8.8万名香港人通过申请该签证前往英国。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-18-at-8.47.03-PM.png)
+报告中提及，中共在香港强制推行国安法的一年多时间里，与港共政府利用该法全面镇压香港的异议人士、自由媒体和公民社会。在此期间，港共政府大肆逮捕民主人士，强行关闭香港《苹果日报》。同时，中共还肆意插手香港选举，严重迫害香港的民主人权。
 
-郭先生指出，历史证明，独裁者安排家人当政的做法往往是因为其担忧恐惧，并且身边既无人可信，也无人可用，但这也恰恰说明了其统治已经到了衰亡的时候。
+为此，英国政府自2021年1月起实施了新版BNO移民签证计划，回应中共在香港地区利用国安法压制政治异议和民主呼声的暴行。
 
-郭先生透露，习如今的所有行程表都由彭决定，而习当年出访时的衣着则由李木子安排；另外，彭磊的权力已经到了“一人之下”的地步，他可以决定许其亮的生死；同时，中共国安委全权由习远平说了算；至于对外情报方面，习完全依靠安安。至此，习家的11人集团通过成立各个领导小组，全然架空了中共国的政府职能机构。
+有关人士提到，虽然中共政府仍然狡辩称，其国安法是为了所谓的“恢复香港的秩序和稳定”。但事实表明，中共国安法推行后，香港机场里前往英国的旅客大排长龙。
 
-对此，郭先生表示，一个公司的运营最忌讳单靠血缘关系建立起家族企业，因为这些纠缠混乱的关系会牵绊公司的发展，而在治理一个国家时，也同样如此。郭先生还解释道，当中国最有权力的人是习、彭及其家人，以及几个忠实的家丁时，这说明中共党内已经没有多少人愿意为习卖命了。因此，习的“家天下”也即将走到政治孤立的悬崖边上。
+英国政府也在报告中预测，未来五年中，估计有多达33万名香港人移居英国。
 
-参考链接：[2021年12月17日 文贵大直播：国内经济危机与冬奥会；方正证券接管郑州裕达；彭副主席上位意图何在；各数字货币下滑与喜币](https://gtv.org/video/id=61bc8c137882000d5102bf12)
+参考链接：[Beijing criticises UK for creating ‘second-class citizens’ with Hong Kong visa scheme](https://www.theguardian.com/world/2021/dec/16/beijing-criticises-uk-for-creating-second-class-citizens-with-hong-kong-visa-scheme)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
 
-总编：Irene木木
-编辑：Kathy文艺
-校正/发稿：谐趣园
+总编：Ivy001
+编辑：Jack Li文阳
+校正/发稿：我不在这里
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -31,7 +33,9 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,37 +2,29 @@
 ---
 
 
-## 记录武汉疫情的方方被解除中共官方职务
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1767780/)
+## 自然免疫力令南非Omicron感染者症状轻微
+` Runaway` [轉載自GNews](https://gnews.org/zh-hans/1767809/)
 
-作者：东京樱花团 – 在远方
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-08-30-at-7.37.59-PM-2.png)
-台湾媒体12月16日报道，作家方方因在中共病毒开始爆发时于武汉撰写《方方日记》，12月14日被剔除出中共作家协会主席团名单。
+撰稿：Runaway
+![](https://assets.gnews.org/wp-content/uploads/2021/12/i_Stock_170438259_c7fa46cb3b.jpg)图片来源：**AFLDS**
+南非目前疫苗一针接种率31.4%，两针接种率26.2%，可以说是接种率较低的国家。当COVID19病毒新变异出现时，并没有造成太大规模的重症。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/9-13.jpg)
+据《卫报》报道，曾在南非领导疫苗试验的威特沃特斯兰德大学疫苗专家Shabir Mahdi 表示，在南非感染Omicron的人大多出现轻微症状的原因是，他们已经感染过之前的变体病毒。
 
-据悉，方方在2020年1月25日至3月25日，连续记录了自己在武汉封城期间的见闻及思考。由于内容贴近真实，且与中共官媒报道有差距，一度成为外界了解武汉疫情的重要途径之一。
+马赫迪接受了全球健康危机协调中心的采访，他强调最近在南非完成的血清阳性调查结果显示，大约72%的人口已经在过去某个时候从COVID感染中康复。
 
-面对中共官方势力和被洗脑粉红民众的围剿，方方表示自己受到中共当局和文学界的排斥，文学生涯已经彻底被改变。她不再有机会做评论或在媒体发表文章，也无法参加各种文学活动，这是她从事文学工作近40年首次遇到的情况。
+他说，尽管Omicron似乎比Delta更具传染性，并且比以前的主要菌株更能逃避抗体保护，但考虑到他所看到的低住院率和死亡率，抗体保护之外的其他东西似乎也在起作用。
 
-参考链接：
+“在南非，目前存在的大部分免疫力主要是由于前三波的感染，”马赫迪说，“它告诉我们，当Omicron的高感染力没有在严重疾病和大量死亡方面成为现实时，有些事情在起作用。”
 
-- [方方記錄疫情觸怒北京 被剔除出中國作家協會主席團](https://cn.rti.org.tw/news/view/id/2119681)
+马赫迪认为“起作用的东西”是T细胞在预防更严重的疾病方面的活性，换句话说，自然免疫远优于“疫苗诱导的免疫”，许多[研究](https://gnews.org/zh-hans/1755646/)已经证明了这一点。
 
+但是对于尚未感染过COVID的病毒的人群，是否可以避免重症还有待于观察。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
+发布：Runaway
 
-总编：飞虹
-编辑：飞虹
-校正/发稿：海阔天空1
+参考：[Omicron: Who’s at risk?](Who's%20at%20risk?)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

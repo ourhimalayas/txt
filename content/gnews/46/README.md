@@ -2,26 +2,36 @@
 ---
 
 
-## 港共政府清算《苹果日报》发行公司
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1767011/)
+## 潘石屹名下SOHO项目被罚7.09亿元
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1767548/)
 
-作者：纽约香草山教育部 – Irene木木
+作者：纽约香草山文艺部 宁文静
+
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间12月16日，据相关媒体报道，香港法院下令对最近倒闭的民主派报纸《苹果日报》的母公司Next Digital进行清算。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide3-11.jpeg)
 
-资料显示，中共政府于2020年在香港强制推行国安法后，港共政府随即将香港《苹果日报》及其母公司Next Digital作为镇压目标。今年6月，港共政府借由国安法定义的所谓“颠覆、分裂、恐怖主义和与外国势力勾结”等莫须有罪名，迫使Next Digital停止出版香港《苹果日报》并冻结了该公司的所有银行账户，同时暂停了该公司的股票交易。与此同时，《苹果日报》的创办人也因中共国安法定义的“非法集会”罪而被迫入狱。知情人士透露，由于香港《苹果日报》及相关人员的遭遇，Next Digital公司的资金随即被迅速耗尽。数据显示，目前，Next Digital净亏损超过2.4亿港元，其中还有拖欠当地员工工资的1.2亿港元，这也导致港共政府对该公司提出清算要求。
 
-另外，报道中也提及，Next Digital公司仍在运作的台湾分部的资产也会遭到波及。有关人士提到，作为清算资产的一部分，台湾版《苹果日报》也将被出售，同时，包含台湾员工个人信息的Next Digital数据库也将被暴露给港共政府。对此，台湾大陆事务委员会也表示，台湾方相当担忧这些数据可能会被“不当使用”。
+当地时间12月17日，据中共媒体消息显示，中共北京市税务局官方网站发布公告称，潘石屹名下的北京建华置地有限公司在SOHO尚都项目中存在虚假申报的行为，少缴土地增值税和企业所得税共计1.98亿元人民币。为此，中共税务部门将向建华公司追缴税款并加收滞纳金，同时再处以2.5倍罚款，共计7.09亿元人民币。
 
-参考链接：[Hong Kong Orders Liquidation of Anti-Communist Apple Daily Publisher](https://www.breitbart.com/asia/2021/12/16/hong-kong-orders-liquidation-of-anti-communist-apple-daily-publisher/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-18-at-8.52.25-PM.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
+据悉，建华置地的法定代表人是潘石屹，其拥有SOHO中国和华远置业各60%和40%的股权。但有消息称，自今年起，潘石屹一直在进行“清仓”式的大甩卖，其所出售的资产涉及物业、办公、停车位等多个业态。今年9月，潘曾还曾试图出售SOHO中国的核心资产，但因当时中共所谓的“反垄断”调查风声趋紧，导致黑石集团最终放弃收购SOHO中国的计划。而10月22日，中共北京市税务局随即对建华置地以税务缘由立案调查。
 
-总编：Ivy001 
-编辑：Ivy001
-校正/发稿：谐趣园
+此前，郭文贵先生曾在直播中反复示警道，中共的房地产必将爆雷，且中共的经济也难逃崩溃之势。在此局面之下，中共的各大“白手套”必然难逃一劫。而郭先生也曾点名潘石屹，道出中共在房企方面的定向爆破计划。
+
+截止今日，SOHO中国在港交所的股价已跌至1.69，跌幅超过62.28% 。
+
+参考链接：
+
+1. [SOHO中国旗下公司涉嫌偷逃税被立案检查](https://m.sohu.com/a/509365659_100117963/?pvid=000115_3w_a)
+2. [潘石屹甩卖SOHO中国失败后，下属公司涉嫌偷税被调查](https://3g.163.com/dy/article/GN6IKK0F0539ARRF.html?spss=adap_pc)
+3. [涉嫌偷逃税被立案调查？是时候算算潘石屹和SOHO的账了](https://zhuanlan.zhihu.com/p/425509411)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
+
+编辑/总编：Irene木木
+校正/发稿：我不在这里
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
