@@ -2,13 +2,13 @@
 ---
 
 
-## 泽连科医生：脱离暴政体系，形成新社群
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1766391/)
+## 大阪发生疑似人为纵火案，已造成24人死亡
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1766495/)
 
-12/11/2021 泽连科医生：社会变态者乐于毁掉那些让他感觉自己不够好的人，我们需要脱离这个暴政体系，形成一个新的社群。
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
-
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12.18-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

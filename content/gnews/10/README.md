@@ -2,23 +2,37 @@
 ---
 
 
-## 以色列总理本周五決定限制未接种疫苗者进入商场 引发商场主愤怒
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1766593/)
+## 西藏独立对灭共意义重大
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1766653/)
 
-翻译编辑整理：GM
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-18-10.10.19.jpg)
-以色列总理贝內特昨天決定，從本周五开始，在购物商场強制执行绿色标志。根据指南，綠标规则將适合用超过1000平方米的封闭式商场，在商场入口处，將由安保人员扫描绿色标志，有绿色标志的人才被允許进入商場內自由购物，商场主对这一決定感到愤怒，并打算就政府关于商场强制绿色标志的決定向高等法院提出上訴。（已打三針疫苗者才能获得绿色标志） 那些希望进入商城而被迫只能进入基本服务场所，例如：超市和药店是被豁免出示绿色标志的场所。同时，仅接种了一次疫苗的儿童和成人將仅获得临时绿卡，该临时绿卡有效期仅为30天。
+撰稿：东京樱花团—在远方
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-8.png)
+郭文贵先生在12月15日的大直播中表示，西藏独立对灭共意义重大。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-905.png)
+郭先生谈到，西藏资源丰富，全亚洲90%的淡水均来自喜马拉雅山脉。就地理位置而言，西藏是中共与西部世界的一堵天然的屏障。一旦西藏独立，不仅中共的水和木头等资源将会枯竭，届时，在军事上，西藏居高临下，再加上印度、中亚国家、俄罗斯，甚至朝鲜，将会对中共国形成包围的态势，中共国四分之三的领域将成危险之地。而西藏的独立，也将引发连锁反应，新疆、台湾和香港也会纷纷独立。
 
-今天上午购物集团Azrieli(星期三）向总理纳夫塔利·贝内特( Naftali Bennett)和参与的部长们致辞，要求取消这种布局。大纲漏洞百出——违宪、歧视，不合理、不相称的行为。该集团还发出最后通牒：“24小时内回复，以便我们审查我们的步骤。“
+郭先生自豪地说，新中国联邦在推动西藏独立法案上发挥了关键性的作用。同时，他强调，美国和国际社会不仅会在法理层面上支持西藏独立，更会在资金、武器和粮食等方面给予巨大的援助。届时，西藏、新疆、香港、台湾将联合作战。一旦中共轻举妄动，将会受到国际社会的制裁，被踢出SWIFT和WTO，货币、贸易、经济脱钩。
 
-“商场内强制绿卡措施在很多方面都存在缺陷，从表面上看，构成违宪、歧视、不合理、不相称，没有任何实际能力来实现防止疾病在人群中传播的目的，或鼓励免疫，”Azrieli 小组写道。“此外，大纲的实施可能对遵守法律并配合以色列政府指令的企业主和商场业主造成致命伤害。此外，正如所述，正在制定的大纲既不适用也不实际。
 
-新闻链接：
 
-[https://mobile.mako.co.il/news-money/2021\_q4/Article-55311708a0dbd71026.htm?utm\_source=Twitter&utm\_medium=NewsChannelPost&partne=rNewsChannelTwitter&s=08](https://mobile.mako.co.il/news-money/2021_q4/Article-55311708a0dbd71026.htm?utm_source=Twitter&amp;utm_medium=NewsChannelPost&amp;partne=rNewsChannelTwitter&amp;s=08)
+新闻链接：[2021年12月15日文贵先生直播小飞象大雨围城速记](https://gnews.org/zh-hans/1757935/)
 
-审核校对：Barry Jack
-上传排版：F
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
+
+编辑：飞虹/雪梨
+
+总编：飞虹
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-8.png)
+
 
  
 

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/18/2021 3:10 AM (UTC)`
+
+12/17/2021 Miles Guo: Why did the CCP take over the Pangu Plaza and Yuda Palace Hotel at this time? Xi Jinping and Peng Liyuan are extremely superstitious and believe that the Yuda Palace hotel is the “Buddha's Hands” in Zhongyuan and is like Mr. Miles Guo’s root/penis. So, they believe that they must take it over before the year of the water tiger<br/><br/>12/17/2021 文贵直播：共产党为何要在此时搞盘古、裕达？习彭等人极度迷信，认为裕达是中原佛手、是文贵先生的根器，必须在壬水寅虎年前干掉<br/>
+![img](https://media.gettr.com/group18/getter/2021/12/18/03/6a6142ff-a8a7-1828-8cf7-f580acbc4638/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@mr3rights 12/18/2021 1:57 AM (UTC)`
@@ -152,15 +159,6 @@
 
 Made in Italy 🇮🇹<br/>@gfashion<br/>@DDNYC
 ![img](https://media.gettr.com/group41/getter/2021/11/30/23/07/f90a3cd0-2a91-edb5-f7a6-eb294293a0d1/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@gfashion 12/15/2021 8:29 PM (UTC)`
-
-Coming soon…
-![img](https://media.gettr.com/group13/getter/2021/12/15/20/3860e86a-7850-7f6e-43c4-f32cce44b81a/out.jpg)
 
 ---
 

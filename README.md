@@ -15,137 +15,137 @@
 
 ---
 
-### [新中国联邦用尊严、安全、教育和利益凝结五十六个民族](/content/gnews/1/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [西藏独立对灭共意义重大](/content/gnews/2/README.md)
- ` GTV新闻访谈`
-
-### [民主党人和共和党人一同呼吁拜登支持西藏自治](/content/gnews/3/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [美国任命主张对中共强硬的伯恩斯出任大使](/content/gnews/4/README.md)
- ` GTV News Talk`
-
-### [躺平币严格讲叫社交币，是全球的完全独立于喜币的系统](/content/gnews/5/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [英格兰银行警告称，比特币可能变得“一文不值”](/content/gnews/6/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [“我们不反疫苗，我们反对的是假疫苗”](/content/gnews/7/README.md)
- ` GTV新闻访谈`
-
-### [世界经济崩溃,美国灭共,国内绝望注定2023年冬天会很冷](/content/gnews/8/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [亚马逊为讨好北京而与中共国宣传机构合作](/content/gnews/9/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [以色列总理本周五決定限制未接种疫苗者进入商场 引发商场主愤怒](/content/gnews/10/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [神秘公主&#8212;-习明泽](/content/gnews/11/README.md)
- ` 首尔天池农场`
-
-### [福奇和所有强推疫苗者最终必被审判而且比一战二战都惨](/content/gnews/12/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [重拾血性](/content/gnews/13/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [二三十年后，中国处处是废墟式小城、小区](/content/gnews/14/README.md)
- ` 澳喜农场`
-
-### [中共当局拟切断国内客户进入美港股市交易渠道](/content/gnews/15/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [12/17/2021 文贵直播：盘古龙头变鸟头、龟头的根本原因是习、王等迷信，相信盘古阳龙会对彭丽媛（属虎）造成绝对的威胁](/content/gnews/16/README.md)
+### [12/17/2021 文贵直播：习、彭等人极度迷信，认为裕达是中原佛手、是文贵先生的根器，必须在壬水寅虎年前干掉](/content/gnews/1/README.md)
  ` 秘密翻译组-北美组`
 
-### [世界经济危机必然在虎年发生，中共解体在即](/content/gnews/17/README.md)
+### [中共放毒失控导致江浙疫情大爆发](/content/gnews/2/README.md)
+ ` GTV新闻访谈`
+
+### [富力地产预爆雷，试问苍天饶过谁？](/content/gnews/3/README.md)
+ ` 首尔天池农场`
+
+### [新西兰财经G乐部 2021年12月15日](/content/gnews/4/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [新中国联邦引领时尚新潮流](/content/gnews/18/README.md)
+### [“全球灭共大游行”，战友们要做好“三防两准备”](/content/gnews/5/README.md)
  ` GTV新闻访谈`
 
-### [三色的2021圣诞祝福](/content/gnews/19/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [美国制裁中共34家生产“脑控武器”实体](/content/gnews/6/README.md)
+ ` GTV News Talk`
 
-### [英国新增中共病毒人数连续三天创新高](/content/gnews/20/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [突发：第六巡回法院支持拜登政权的强制疫苗规定](/content/gnews/7/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [大阪发生疑似人为纵火案，已造成24人死亡](/content/gnews/21/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [新中国联邦用尊严、安全、教育和利益凝结五十六个民族](/content/gnews/8/README.md)
+ ` 喜马拉雅日本银河系农场`
 
-### [英法庭裁定中共犯有种族灭绝和反人类的罪行](/content/gnews/22/README.md)
- ` 澳喜农场`
-
-### [杰森·米勒：渴望自由的德国人民正在涌向盖特](/content/gnews/23/README.md)
- ` 墨尔本雅典娜农场`
-
-### [双修教宗王岐山的权力梦、教主欲、血统经、永生梦多邪恶](/content/gnews/24/README.md)
- ` mary202064`
-
-### [DWAC并购TGMG对川普造成的威胁和影响](/content/gnews/25/README.md)
- ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
-
-### [立陶宛将本国外交人员撤离中共国以抵制中共胁迫](/content/gnews/26/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [英国《每日电讯报》报道中共病毒是基因改造的产物](/content/gnews/27/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [疫苗投票将成政治路线左转的推手，政治建制派首当其冲](/content/gnews/28/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [泽连科医生：脱离暴政体系，形成新社群](/content/gnews/29/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [文·贵天成——文贵先生谈“彭丽媛”（三）](/content/gnews/30/README.md)
- ` 墨尔本雅典娜农场`
-
-### [文·贵天成——文贵先生谈“彭丽媛”（二）](/content/gnews/31/README.md)
- ` 墨尔本雅典娜农场`
-
-### [DC大中华时事：2021年新增专项债券已发行3.42万亿元](/content/gnews/32/README.md)
+### [如果拜登真想遏制通货膨胀本可迅速做到](/content/gnews/9/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [西媒头条 — 第133期](/content/gnews/33/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [西藏独立对灭共意义重大](/content/gnews/10/README.md)
+ ` GTV新闻访谈`
 
-### [爆发，五天内第三家魁北克医院爆发COVID-19 新冠变种病毒——80 名员工中有 27 名检测呈阳性](/content/gnews/34/README.md)
+### [民主党人和共和党人一同呼吁拜登支持西藏自治](/content/gnews/11/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [美国任命主张对中共强硬的伯恩斯出任大使](/content/gnews/12/README.md)
+ ` GTV News Talk`
+
+### [躺平币严格讲叫社交币，是全球的完全独立于喜币的系统](/content/gnews/13/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [英格兰银行警告称，比特币可能变得“一文不值”](/content/gnews/14/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [法国黑客大量制作假疫苗护照](/content/gnews/35/README.md)
- ` 墨尔本雅典娜农场`
+### [“我们不反疫苗，我们反对的是假疫苗”](/content/gnews/15/README.md)
+ ` GTV新闻访谈`
 
-### [焦点：波音公司不再要求美国员工接种疫苗](/content/gnews/36/README.md)
- ` 丁过`
+### [世界经济崩溃,美国灭共,国内绝望注定2023年冬天会很冷](/content/gnews/16/README.md)
+ ` 喜马拉雅日本银河系农场`
 
-### [彼得·麦卡洛博士谈羟氯喹作为治疗新冠的有效药物被打压的事实](/content/gnews/37/README.md)
+### [亚马逊为讨好北京而与中共国宣传机构合作](/content/gnews/17/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [以色列总理本周五決定限制未接种疫苗者进入商场 引发商场主愤怒](/content/gnews/18/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [神秘公主&#8212;-习明泽](/content/gnews/19/README.md)
+ ` 首尔天池农场`
+
+### [福奇和所有强推疫苗者最终必被审判而且比一战二战都惨](/content/gnews/20/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [重拾血性](/content/gnews/21/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [二三十年后，中国处处是废墟式小城、小区](/content/gnews/22/README.md)
  ` 澳喜农场`
 
-### [援共军的数十家生物技术公司被美列入黑名单](/content/gnews/38/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [中共当局拟切断国内客户进入美港股市交易渠道](/content/gnews/23/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [众议院调查美商务部长与中共的财务联系](/content/gnews/39/README.md)
- ` HimalayaRussia`
+### [12/17/2021 文贵直播：盘古龙头变鸟头、龟头的根本原因是习、王等迷信，相信盘古阳龙会对彭丽媛（属虎）造成绝对的威胁](/content/gnews/24/README.md)
+ ` 秘密翻译组-北美组`
 
-### [疫苗强制令毫无科学依据，而是在被以政治方式处理](/content/gnews/40/README.md)
+### [世界经济危机必然在虎年发生，中共解体在即](/content/gnews/25/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [新中国联邦引领时尚新潮流](/content/gnews/26/README.md)
+ ` GTV新闻访谈`
+
+### [三色的2021圣诞祝福](/content/gnews/27/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [英国新增中共病毒人数连续三天创新高](/content/gnews/28/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [大阪发生疑似人为纵火案，已造成24人死亡](/content/gnews/29/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [英法庭裁定中共犯有种族灭绝和反人类的罪行](/content/gnews/30/README.md)
+ ` 澳喜农场`
+
+### [双修教宗王岐山的权力梦、教主欲、血统经、永生梦多邪恶](/content/gnews/31/README.md)
+ ` mary202064`
+
+### [立陶宛将本国外交人员撤离中共国以抵制中共胁迫](/content/gnews/32/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [12/17每日播报｜《國家脈動》授予斯蒂芬·K·班農2021 年度愛國者獎](/content/gnews/41/README.md)
- ` 秘密翻译组-即时新闻播报组`
+### [英国《每日电讯报》报道中共病毒是基因改造的产物](/content/gnews/33/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [文贵爆料 12.17：家天下、巫术当道——红色王朝气数已尽](/content/gnews/42/README.md)
- ` 秘密翻译组-原创组`
+### [疫苗投票将成政治路线左转的推手，政治建制派首当其冲](/content/gnews/34/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [前华尔街银行家在中共国的调查中突然失踪](/content/gnews/43/README.md)
+### [泽连科医生：脱离暴政体系，形成新社群](/content/gnews/35/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [DC大中华时事：2021年新增专项债券已发行3.42万亿元](/content/gnews/36/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [西媒头条 — 第133期](/content/gnews/37/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [恒大被多家企业起诉 再次成为被执行人](/content/gnews/44/README.md)
- ` GTV新闻访谈`
+### [爆发，五天内第三家魁北克医院爆发COVID-19 新冠变种病毒——80 名员工中有 27 名检测呈阳性](/content/gnews/38/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [法国黑客大量制作假疫苗护照](/content/gnews/39/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [焦点：波音公司不再要求美国员工接种疫苗](/content/gnews/40/README.md)
+ ` 丁过`
+
+### [彼得·麦卡洛博士谈羟氯喹作为治疗新冠的有效药物被打压的事实](/content/gnews/41/README.md)
+ ` 澳喜农场`
+
+### [众议院调查美商务部长与中共的财务联系](/content/gnews/42/README.md)
+ ` HimalayaRussia`
+
+### [12/17每日播报｜《國家脈動》授予斯蒂芬·K·班農2021 年度愛國者獎](/content/gnews/43/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [前华尔街银行家在中共国的调查中突然失踪](/content/gnews/44/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
 ### [12/17每日播报｜新闻简讯:疫情灾难 私人监控 中共煽动民族仇恨](/content/gnews/45/README.md)
  ` 秘密翻译组-即时新闻播报组`
