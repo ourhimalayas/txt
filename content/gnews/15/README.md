@@ -2,61 +2,42 @@
 ---
 
 
-## 美国在首次公开募股前将人工智能公司“商汤科技”列入黑名单
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1768721/)
+## 【Michael.Tonny专栏】英格兰未成年人死于中共病毒感染概率和被雷劈差不多
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1768898/)
 
-**编者按：***中共通过各种军民融合的科技公司，用各种科技方法对全民实行监控，其中的人脸识别软件是最为直接的有效方式，这个软件的发明专家被控在新疆滥用职权,这正是美国把中共国的人工智能公司“商汤科技”列入投资黑名单中的主要原因之一。*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/11-8-e1639847704555.jpg)美国政府将于12月9日将专注于面部识别软件的中国人工智能公司商汤科技列入投资黑名单。
- © Reuters
-据《Nikkei Asia 》 2021年12月9日报道：
+作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
-华盛顿/达拉斯/北京（金融时报）——周五，美国将把专门从事面部识别软件的中国人工智能公司商汤科技列入投资黑名单，同一天为该公司在香港首次公开募股定价。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-据三名知情人士透露，针对商汤科技的行动将成为针对多个国家纪念人权日的一揽子制裁的一部分，华盛顿称商汤科技使新疆的穆斯林维吾尔人的人权受到侵犯。
+2021年11月11日，英国多家著名医疗机构联合发表在[Nature](https://www.nature.com/)的调查报告《[Deaths in children and young people in England after SARS-CoV-2 infection during the first pandemic year](https://www.nature.com/articles/s41591-021-01578-1)》显示，在2020年3月至2021年2月中共病毒流行期间，英格兰12,023,568名18岁以下的未成年人中，仅25人死于中共病毒感染。相当于在这期间，英格兰18岁以下的未成年人感染中共病毒死亡的机率为2/100万，比英格兰人被雷劈的机率（1/120万）高一点。
 
-美国财政部将商汤科技列入“中国军工企业”名单。6 月，在特朗普政府旨在应对国家安全威胁的政策之后，乔·拜登总统签署了一项行政命令，禁止美国人投资名单上的公司。
+该报告由英国多家著名医疗机构的十多位专家联合完成，这些专家来自英国 NHS（National Health Service，英国国家医疗服务体系）、伦敦帝国理工学院（the Imperial College of London）、英国公共卫生（Public Health England）部门和布里斯托尔皇家儿童医院（the Bristol Royal Hospital for Children）。
 
-将商汤列入黑名单的决定将恰逢拜登与100多个国家召开的民主峰会的最后一天。
+该报告显示，中共病毒在英格兰大流行的第一个年中，自2020年3月至2021年2月期间，英格兰12,023,568名18岁以下的未成年人（Children and Young People，CYP）中，共有3105人因各种原因死亡，其中仅61例死亡后，其CCP病毒检测结果呈阳性，其余3044人的死因与中共病毒没有关系。
 
-美国总统上个月与中国国家主席习近平举行了一次虚拟会议，他们在会上讨论了确保两国之间的紧张局势不会演变成冲突的方法。但拜登强调，他不会停止批评中国侵犯人权的行为。
+图1：用于确定是感染中共病毒导致死亡还是巧合的方法流程图
+![](https://assets.gnews.org/wp-content/uploads/2021/12/approach-used-to-determine-if-SARS-CoV-2-contributed-to-death.jpg)
+而结合病历对这61例个案进行仔细调查后发现，仅25例死于中共病毒感染，其中22例死于急性感染，3例死于多系统炎症综合征（PIMS-TS），另外36例尽管死亡后中共病毒检测呈阳性，但死亡原因与中共病毒无关。
 
-白宫拒绝就商汤科技或制裁发表评论。财政部没有回应置评请求。商汤科技没有立即回应置评请求。
+图2：图表显示了研究期间（2020年3月至2021年2 月）因中共病毒检测呈阳性而死亡的所有未成年人的累计死亡数
 
-黑名单可能会给商汤科技的美国股东带来问题。持有该公司3%股份的美国私募股权公司Silver Lake已同意在IPO后锁定部分股份六个月。富达和高通持有较小的股份。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/the-cumulative-number-of-deaths-for-all-CYP-who-died-with-a-positive-SARS-CoV-2.png)
 
-据美国银行业高管称，汇丰是唯一一家参与此次 IPO 的西方投资银行。
+而自2020年3月到2021年2月期间，英格兰总共有469,982名18岁以下的未成年人感染了中共病毒。
 
-在商汤科技于2019年被列入美国商务部黑名单（即实体名单）后，其他投资人避免了其IPO。
+据此换算，英格兰18岁以下的未成年人感染中共病毒后的死亡率为5/10万（25÷469,982），感染中共病毒死亡的机率为2/100万（25÷12,023,568）。
 
-**对商汤科技的制裁标志着中国对超过100万维吾尔人和其他少数民族在新疆西北部地区被拘留和强迫劳动进行镇压的最新举措。中国否认这些说法，并称这些地点是再教育营。**
+英格兰18岁以下的未成年人死于感染中共病毒的概率为2/100万，而所有其他原因的死亡率为25.5/10万。尽管死于中共病毒的未成年人中，亚裔和黑人比例更高，但他们死于 中共病毒感染的绝对风险仍然极低，为每6/100百万和 8/100万。同样，10-14岁和 15-17岁的未成年人死于中共病毒感染的比例高于同年龄组的未成年人死于所有其他原因的比例。然而，他们死于中共病毒感染的绝对风险仍然极低，分别为每3/100万和5/100万。
 
-白宫本周宣布外交抵制北京冬奥会。英国、澳大利亚和加拿大也纷纷效仿。
+而据[The Week](https://www.theweek.co.uk/)的调查报告（[What are the chances of being hit by lightning?](https://www.theweek.co.uk/59687/what-are-the-chances-of-being-struck-by-lightning)），所有英格兰5820万人，被雷劈（室内和室外总和）的风险为120万分之一，被雷劈死的风险为 1900万分之一。
 
-美国众议院周三以428票对1票通过了一项法案，禁止公司从新疆进口商品，除非他们证明在制造过程中没有使用强迫劳动。
+参考数据：
 
-**美国副国务卿温迪-谢尔曼在接受英国《金融时报》采访时表示，拜登将继续寻找与新疆有关的制裁目标。当被问及美国是否会试图起诉涉及该政策的中国官员时，她说：“我们应该考虑每一个合理的选择。”**
+[Deaths in children and young people in England after SARS-CoV-2 infection during the first pandemic year](https://www.nature.com/articles/s41591-021-01578-1)
 
-中国政府支持的投资者在商汤科技的首次公开募股中占有重要地位，预计这将成为数月来在香港最大的公募IPO。
+[What are the chances of being hit by lightning?](https://www.theweek.co.uk/59687/what-are-the-chances-of-being-struck-by-lightning)
 
-在计划的4.5亿美元基石投资中，2 亿美元将来自混合所有制改革基金，该基金于 2020年底由国有的中国诚通控股集团和其他投资者在北京国有资产监督管理委员会的支持下创建。
-
-商汤科技的很大一部分业务依赖于中国，去年向城市销售的面部识别、预测警务和其他人工智能工具占总销售额的40%。随着中国科技公司寻求开发自己的内部人工智能系统，政府销售对其未来的重要性日益增加。
-
-文章来源：[https://asia.nikkei.com/Politics/International-relations/US-China-tensions/U.S.-to-blacklist-Chinese-AI-company-SenseTime-ahead-of-IPO](https://asia.nikkei.com/Politics/International-relations/US-China-tensions/U.S.-to-blacklist-Chinese-AI-company-SenseTime-ahead-of-IPO)
-
-翻    译：洛杉矶盘古农场 – Raul
-
-校    对：洛杉矶盘古农场 – Mike Li
-
-编者按：洛杉矶盘古农场– 滴水穿石
-
-编    辑：洛杉矶盘古农场– 滴水穿石
-
-
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/) 上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

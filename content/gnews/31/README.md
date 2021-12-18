@@ -2,21 +2,28 @@
 ---
 
 
-## 人类永远99%的人被愚弄欺压
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1768515/)
+## GTV新闻访谈简报|2021年12月18日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1768548/)
 
-文编：东京樱花团/樱花传媒
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-3.jpg)
 
-视频:东京樱花团/中文小视频组
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-18.png)
+文章仅代表作者本人观点，与Gnews无关
 
-12月10日，郭文贵先生在GTV大直播指出：
+视频参看：[2021.12.18早GTV新闻访谈](https://gtv.org/video/id=61bde1e97882000d5103cbb6)
 
-从UN秘书长接到北京冬奥会邀请，IOC还在支持北京冬奥会的召开，欧洲很多国家还没有表态，非洲、伊朗等中东国家及北朝鲜等一定会参加可以再次看到，由于多数人的信息来源还只局限于谷歌和大外宣，所以少数独裁者和恶人总是利用欺骗手段操纵着世界，好人、与世无争的人一定是被愚弄和欺压的对象。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-编辑：东京樱花团/墨然
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWSLOGO20211207.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/calendar.jpeg)
 
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

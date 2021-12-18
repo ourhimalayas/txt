@@ -2,43 +2,57 @@
 ---
 
 
-## 【Michael.Tonny专栏】英格兰未成年人死于中共病毒感染概率和被雷劈差不多
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1768898/)
+## 上诉法院允许拜登政府对大型雇主执行疫苗规则
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1768963/)
 
-作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+翻译：七叶之芒
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕截图-2021-12-18-192327.jpg)图片来源 ：edition.cnn.com
 
-2021年11月11日，英国多家著名医疗机构联合发表在[Nature](https://www.nature.com/)的调查报告《[Deaths in children and young people in England after SARS-CoV-2 infection during the first pandemic year](https://www.nature.com/articles/s41591-021-01578-1)》显示，在2020年3月至2021年2月中共病毒流行期间，英格兰12,023,568名18岁以下的未成年人中，仅25人死于中共病毒感染。相当于在这期间，英格兰18岁以下的未成年人感染中共病毒死亡的机率为2/100万，比英格兰人被雷劈的机率（1/120万）高一点。
+(CNN)拜登政府周五在其执行各种联邦Covid-19疫苗任务的法庭斗争中取得了重大胜利，上诉法院裁定政府可以对雇员超过100人的公司执行其疫苗接种或测试规则。
 
-该报告由英国多家著名医疗机构的十多位专家联合完成，这些专家来自英国 NHS（National Health Service，英国国家医疗服务体系）、伦敦帝国理工学院（the Imperial College of London）、英国公共卫生（Public Health England）部门和布里斯托尔皇家儿童医院（the Bristol Royal Hospital for Children）。
+命令下来后不久，那些挑战该任务的人说，他们将求助于最高法院来搁置它。
 
-该报告显示，中共病毒在英格兰大流行的第一个年中，自2020年3月至2021年2月期间，英格兰12,023,568名18岁以下的未成年人（Children and Young People，CYP）中，共有3105人因各种原因死亡，其中仅61例死亡后，其CCP病毒检测结果呈阳性，其余3044人的死因与中共病毒没有关系。
+在美国第六巡回上诉法院作出支持雇主授权的决定之前，一个单独的上诉法院周五拒绝了司法部提出的恢复政府的联邦承包商授权的要求，该授权在本月早些时候被一名联邦法官在全国范围内阻止。
 
-图1：用于确定是感染中共病毒导致死亡还是巧合的方法流程图
-![](https://assets.gnews.org/wp-content/uploads/2021/12/approach-used-to-determine-if-SARS-CoV-2-contributed-to-death.jpg)
-而结合病历对这61例个案进行仔细调查后发现，仅25例死于中共病毒感染，其中22例死于急性感染，3例死于多系统炎症综合征（PIMS-TS），另外36例尽管死亡后中共病毒检测呈阳性，但死亡原因与中共病毒无关。
+第三项拜登授权–要求某些医疗工作者接种疫苗–正在接受最高法院的审查，此前下级法院在全国一半的州冻结了这项授权。
 
-图2：图表显示了研究期间（2020年3月至2021年2 月）因中共病毒检测呈阳性而死亡的所有未成年人的累计死亡数
+第六巡回法院的裁决允许职业安全与健康管理局对大型雇主实施政府的规则，这对总统乔-拜登来说是一场难得的胜利，因为他在倾向于保守的法院中一直对他的政府要求疫苗的做法持敌对态度。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/the-cumulative-number-of-deaths-for-all-CYP-who-died-with-a-positive-SARS-CoV-2.png)
+职业安全与健康管理局（OSHA）的规则最初在全国范围内被美国第五巡回上诉法院阻止。然后，针对OSHA政策的各种诉讼被合并到第六巡回法院。在2-1的投票中，第六巡回法院周五抹去了第五巡回法院关于停止OSHA任务的命令。
 
-而自2020年3月到2021年2月期间，英格兰总共有469,982名18岁以下的未成年人感染了中共病毒。
+OSHA在其网站上说，他们对上诉法院的决定感到“欣慰”，为了“考虑到任何不确定性”，由于法律的变化，在1月10日之前不会向雇主发出不遵守规定的通知。
 
-据此换算，英格兰18岁以下的未成年人感染中共病毒后的死亡率为5/10万（25÷469,982），感染中共病毒死亡的机率为2/100万（25÷12,023,568）。
+**一系列的上诉**
 
-英格兰18岁以下的未成年人死于感染中共病毒的概率为2/100万，而所有其他原因的死亡率为25.5/10万。尽管死于中共病毒的未成年人中，亚裔和黑人比例更高，但他们死于 中共病毒感染的绝对风险仍然极低，为每6/100百万和 8/100万。同样，10-14岁和 15-17岁的未成年人死于中共病毒感染的比例高于同年龄组的未成年人死于所有其他原因的比例。然而，他们死于中共病毒感染的绝对风险仍然极低，分别为每3/100万和5/100万。
+对法院裁决提出上诉的团体要求对作出该裁决的下级法院有管辖权的布雷特-卡瓦诺法官在上诉过程中暂缓执行裁决。
 
-而据[The Week](https://www.theweek.co.uk/)的调查报告（[What are the chances of being hit by lightning?](https://www.theweek.co.uk/59687/what-are-the-chances-of-being-struck-by-lightning)），所有英格兰5820万人，被雷劈（室内和室外总和）的风险为120万分之一，被雷劈死的风险为 1900万分之一。
+在一份简报中，代表宗教非营利组织和企业的捍卫自由联盟的律师说，OSHA在发布这一要求时超越了其权限。这些团体说，他们反对这项任务的“财政负担、对雇员雇用的限制以及对雇员选择的胁迫”。
 
-参考数据：
+另一份来自商业团体联盟的请愿书说，他们将因该要求而受到不可挽回的伤害，因为他们将“因失去工人而永久地失去客户和声誉，这些工人会立即辞职并加入更小的公司，而不是每周接受疫苗或测试”。
 
-[Deaths in children and young people in England after SARS-CoV-2 infection during the first pandemic year](https://www.nature.com/articles/s41591-021-01578-1)
+高等法院尚未正式收到这些上诉，截至星期六上午，还没有正式立案。一旦进入备审程序，法院可能会在采取行动之前要求政府做出回应。
 
-[What are the chances of being hit by lightning?](https://www.theweek.co.uk/59687/what-are-the-chances-of-being-struck-by-lightning)
+**一场走向最高法院的斗争**
 
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/) 上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+最高法院预计将对拜登政府的疫苗任务有最终决定权，这些案件对联邦政府要求接种疫苗的能力提出了质疑，并声称拜登政府在推出这些政策时违反了行政法。
 
+周四，司法部要求最高法院允许政府对参加医疗保险或医疗补助计划的医疗工作者全面实施疫苗要求。一个上诉法院支持这项要求，但另外两个上诉法院怀疑这项任务的合法性，使其在全国一半的州受到阻碍。
+
+大法官给那些挑战该任务的人一个12月30日的最后期限，以回应司法部恢复该任务的要求。
+
+在美国第11巡回上诉法院周五保留了法官的命令，阻止在全国范围内执行疫苗要求后，
+
+政府的联邦承包商任务仍在全国范围内冻结。联邦承包商任务可能很快也会被提交给最高法院。
+
+新闻来源：[edition.cnn.com] [Appeals court lets Biden administration enforce vaccine rules for large employers](https://edition.cnn.com/2021/12/17/politics/appeals-court-vaccine-mandate-osha-large-employers-federal-contractors/index.html)
+
+* * *
+
+*审核：Aries的星
+校对：阿伯塔
+发布：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-4.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
