@@ -2,30 +2,32 @@
 ---
 
 
-## 习近平及夫人“彭副主席”共同出席会议
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1767565/)
+## 立陶宛因安全原因召回驻中共国大使
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1767661/)
 
-撰稿：东京樱花团—在远方
+撰稿：日本方舟农场 Andy5
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-8.png)
-当地时间12月16日，郭文贵先生在盖特中提到“彭副主席”出场，再次印证了爆料革命的真实情报。除了爆料革命，没有人真正知道南普陀会议，更没有人了解习近平的内心想法。根据文贵先生早前透露，中共常委早已被架空，掌握中共政治、军事实权的乃是习近平家人。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-926.png)
-12月14日彭丽媛作为中共文联副主席，身着军装亲自出席习近平主持的中共文学艺术界联合会、以及中共作协全代会，习近平讲话旨在“肃清”文艺界。
+据外媒报道，立陶宛因安全原因，已经在12月15日召回了该国所有驻中共国大使，19名立陶宛使馆人员已经离开北京飞往巴黎。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-941.png)
+由于中共降级立陶宛为代办级，外交人员在法律地位上不明确，可能会使立陶宛外交人员失去外交豁免权。并且，中共可能禁止了中方雇员为这个代办处工作，所以不得不让他们回国。
 
-在郭先生凭借H Coin to the moon，创下Billboard数字排行榜第一华人冠军的纪录之后，习近平授意中共文联，在这个关键节点上召开会议，并由“彭副主席”亲自出场，可见爆料革命的以歌灭共，对懂音乐的习近平，以及歌手出身的彭丽媛来说，是致命的打击。
+在立陶宛与中共关系不断恶化之时，台湾外交部表示，对立陶宛政府面对中共持续性外交与经济复合式胁迫，却能坚定不移地发展跟台湾的关系，表示崇高的敬意。同时呼吁台湾企业鼎力支持立陶宛跟台湾发展紧密合作。
 
 
 
-新闻链接: [郭文贵先生盖特](https://www.gettr.com/user/miles)
+新闻链接：
 
-[习近平主持文代会　彭丽媛罕见着军装现身台下](https://www.dwnews.com/%E4%B8%AD%E5%9B%BD/60272060/%E4%B9%A0%E8%BF%91%E5%B9%B3%E4%B8%BB%E6%8C%81%E6%96%87%E4%BB%A3%E4%BC%9A%E5%BD%AD%E4%B8%BD%E5%AA%9B%E7%BD%95%E8%A7%81%E7%9D%80%E5%86%9B%E8%A3%85%E7%8E%B0%E8%BA%AB%E5%8F%B0%E4%B8%8B%E5%9B%BE)
+[立陶宛召回驻华外交使团所有成员](https://www3.nhk.or.jp/nhkworld/zh/news/338466/)
+
+[立陶宛外交官已离开中国 我方回应:立方说法无中生有](https://mil.news.sina.com.cn/2021-12-16/doc-ikyamrmy9375478.shtml)
+
+[外媒称“19名立陶宛驻华外交人员及家属离开北京”，立方还耍了一个花招](https://world.huanqiu.com/article/460HqOpY51J)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
 
+编辑：DM
 
-
-总编:飞虹
-
-编辑：文特
+总编：飞虹
 
 校正/发稿：浪迹天涯
 
@@ -36,6 +38,8 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-8.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

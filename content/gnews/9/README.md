@@ -2,38 +2,49 @@
 ---
 
 
-## 又一中共房企世茂集团被曝陷入债务困境
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1767805/)
+## 前职业球员呼吁调查足球运动员遭受的心脏问题
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1767942/)
 
-作者：银河勇气星 – 骄子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-08-30-at-7.37.59-PM-2.png)
-据外国媒体报道，12月14日，中共最大房地产开发商之一世茂集团的股价下跌了创纪录的20%，原因是它正在出售资产来管理不断攀升的债务。据墙内媒体12月17日最新消息，其总负债额已达到4,636亿元，其中短期借款为444.43亿元，应付账款及票据为874.04亿元，而其账上的现金及现金等价物仅有747.69亿元。
+翻译：**Lulumi**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-6-8.jpg)图片来源：twitter.com（GB News）视频截图
+“这可能与疫苗无关，但让我们进行调查。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/10-7.jpg)
+前英格兰足球运动员马修·勒蒂希尔呼吁对一连串运动员因突发心脏问题而倒下的事件进行调查，并声称他不是一个“反疫苗主义者”，只是希望得到更多信息。
 
-郭先生曾反复提及，中共国的房地产债务数额巨大，且债务人从未想过偿还。一旦引爆，将不可避免地拖垮国内银行、保险等其他金融业，进而冲击中共整体经济。并因与世界主要国家千丝万缕的联系，使暴雷向世界各地蔓延，累及全球经济，引发金融海啸。
+正如我们之前强调的那样，在一周内又有三名足球运动员出现胸痛或呼吸急促，不得不离开赛场。
 
-几个月内，恒大、阳光100、花样年等中共知名房企接连被曝出债务违约，无法偿还，现在又加上世茂集团，中共正在不断逼近断崖崩溃的边缘。
+曼联的维克多·林德洛夫、那不勒斯中场球员皮奥特·泽林斯基和法国俱乐部雷恩的马丁·特里尔都因心脏和呼吸障碍而在场边急救。
 
-参考链接：
+勒蒂希尔说：“看着我热爱的运动，这让我非常担忧，我踢了17年……在我踢球的所有时间里，我从未见过任何足球运动员因为心脏问题而离开球场”。
 
-- [China housing market slumps again as another developer runs into trouble](https://www.theguardian.com/world/2021/dec/15/china-housing-market-slumps-again-as-another-developer-runs-into-trouble)
-- [4636亿总负债压顶，世茂集团陷违约风波！许荣茂能否渡过难关？](https://baijiahao.baidu.com/s?id=1719378622215618170&amp;wfr=spider&amp;for=pc)
+他补充说：“现在我很抱歉，但如果有人能看看现在体育界发生的事情，并说所有这些人有心脏问题是正常的，在足球比赛、板球比赛、篮球比赛、任何你希望的运动中，这些正在遭受痛苦的人的数量正在突破过去任何时候。”
 
+勒蒂希尔呼吁进行调查，但要注意：“这可能与疫苗无关，可能不是，但让我们进行调查，找出问题所在。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
+勒蒂希尔说：“即使是这样说，也会被人认为你是某种反疫苗的人，这绝对是令人厌恶的，”他指的是敢于提出这个问题的人的待遇。
 
-总编：Irene木木
-编辑：飞虹
-校正/发稿：海阔天空1
+“我想要的只是一些信息，我希望人们看看在足球中发生了什么，进行适当的调查，并给我们一些答案，为什么这么多的体育人士正在遭受心脏问题的困扰——这并不难，”他总结道。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在与乔·罗根的一次关于病毒的播客中，彼得·麦卡洛博士警告说，足球运动员的倒下可能与疫苗引起的心肌炎有关，该播客随后被YouTube审查。
+
+麦卡洛警告说，心肌炎已经比美国公共卫生“专家”预测的至少多出50%。
+
+然而，其他健康专家坚持认为，高调的足球运动员在比赛中突然因心脏问题倒下，只是一个“巧合”。
+
+根据亚法·希尔·拉兹博士的报告，“2021年国际足联球员心脏猝死的情况增加了5倍。”
+
+正如我们之前强调的那样，当一位前职业球员敢于在电台直播中暗示与疫苗有关时，他立即会被实时审查。
+
+**参考资料：**[summit.news][Ex-Pro Calls For Investigation Into Footballers Suffering Heart Problems](https://summit.news/2021/12/17/ex-pro-calls-for-investigation-into-footballers-collapsing-with-heart-problems/)
+
+* * *
+
+*审核：文乐*
+*校对 : 阿伯塔*
+*发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-3.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

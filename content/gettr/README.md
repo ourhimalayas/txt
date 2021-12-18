@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/18/2021 2:01 PM (UTC)`
+
+12月18号：尊敬的战友们好，你们健身了吗？传播C C P病毒．疫苗解药的真相了吗？一切都已经开始！
+![img](https://media.gettr.com/group29/getter/2021/12/18/14/0fd306d4-8778-af1c-35d7-90d4f955a51c/out.jpg)
+
+---
+
 `@miles 12/18/2021 12:49 PM (UTC)`
 
 12月18号：谢谢战友做得精美的视频！【我的肌肉哥靓照合集视频🥰🥰🥰   晚安亲爱的，周末愉快， 想想想想想想想想想想想想想想想想想想想想想想想你 ❤️❤️🌽🌽💋💋】
@@ -151,13 +158,6 @@
 
 12/15/2021 Miles Guo: I said in as early as 2017 that the US would introduce a series of bills targeting Xinjiang and Tibet; Xi Jinping ordered the CCP’s diplomats who are “wolf warriors” and “sheep warriors” to bluff around the world, resulting in the return of Taliban to Afghanistan, causing mass killings<br/><br/>12/15/2021 文贵直播：早在2017年，七哥就表示美国将出台一系列针对新疆、西藏的法案；习近平指挥其中共外交战狼和外交战羊全球鼓吹，导致塔利班重返阿富汗，制造出人类大屠杀<br/>
 ![img](https://media.gettr.com/group43/getter/2021/12/16/07/f6079f1c-4477-290f-a0a4-d8f30ff369cc/out.jpg)
-
----
-
-`@miles 12/16/2021 2:46 AM (UTC)`
-
-12/15/2021 Miles Guo: Three protective measures to take when participating in the protests to end the CCP: 1) prevent you from being infected by the virus; 2) prevent the CCP from messing things up and setting you up; and 3) prevent you from compromising to the CCP due to the threats posed by the CCP to your family in Communist China. Be prepared that 1) you won’t be able to go back to China before the downfall of the CCP, and 2) the CCP will not stop harassing you and your family<br/><br/>12/15/2021 文贵直播：参加终共街头抗议行动要注意“三防”（一防病毒、二防中共捣乱下套、三防因国内家人被威胁而心动）及“两个准备”（一、在灭共前不能回国了，二、中共会无休止地骚扰你和家人）<br/>
-![img](https://media.gettr.com/group11/getter/2021/12/16/02/b69b92a0-5d6d-6e8e-3af0-fc40123b6c89/out.jpg)
 
 ---
 

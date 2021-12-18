@@ -2,37 +2,37 @@
 ---
 
 
-## 日本研究所探究为何日本病例较少 或为解决中共病毒提供新思路
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1767763/)
+## 12/18每日播报｜中共报复立陶宛：不许德国车企巨头使用立陶宛零部件
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1767804/)
 
-作者：日本方舟农场 – Andy5
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-08-30-at-7.37.59-PM-3.png)
-12月8日，日本大型研究机构理化学研究所发布报告，证实中共病毒与引发普通感冒的季节性冠状病毒存在相同的抗原表位，该种抗原表位能够激活人体产生特定的杀手T细胞，这种细胞可以杀灭病毒。在日本人体内，有一种特殊的HLA-A24型白血球抗原，这种抗原能够跟杀手T细胞结合，形成人体的免疫记忆。在日本人患普通感冒以及2003年的非典时期，这种抗原已经使日本人体内产生能应对中共病毒的杀手T细胞并形成了免疫记忆，因而整体来看，日本人感染病例总数低于全球其他国家。
+**By:[秘翻新闻](https://gtv.org/broadcast/watch/61b85c7e56f4921401b77b8b)**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/8-22-scaled.jpg)
+**2021-12-1**8
 
-分析人士指出，这份研究在免疫学层面为寻找中共病毒感染机制以及应对机制提供了一个新的方向。
+路透社12月17日报道。据两位知情人士透露，中共国向德国一家汽车零部件巨头大陆集团施压，要求其停止使用立陶宛制造的零部件。
 
-参考链接：
+该大陆集团是全球最大的汽车零部件生产商之一，其客户包括德国所有大型汽车制造商。大陆集团在立陶宛设有工厂，生产车门和座椅控制器等电子零部件，并向包括中共国在内的全球客户出口。
 
-- [新型コロナウイルスに殺傷効果を持つ記憶免疫キラーT細胞](https://www.riken.jp/press/2021/20211208_1/)
-- [https://www.gettr.com/post/pjslracaa9](https://www.gettr.com/post/pjslracaa9)
-- [https://twitter.com/ZionaEmanuel/status/1471504538221760520?s=20](https://twitter.com/ZionaEmanuel/status/1471504538221760520?s=20)
+立陶宛政府在上个月允许台湾当局设立“驻立陶宛台湾代表处”。中共方面对此非常愤怒，立即宣布将中共国和立陶宛两国外交关系降为代办级，两国关系严重恶化。 中共外交部发言人威胁说:“我听说很多中国企业不再把立陶宛视为值得信赖的合作伙伴。
 
+立陶宛企业在中国开展经贸合作遇到困难，立陶宛必须审视自己。” 上周有消息说，中共国已要求跨国公司切断与立陶宛的联系，否则将会被中共国市场拒之门外。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
+代表数千家立陶宛公司的立陶宛工业家联盟（Lithuania Confederation of Industrialists）证实，一些从立陶宛供应商购买商品的跨国公司已成为中共国的目标。 对此，中共国外交部予以否认。
 
-总编：飞虹
-编辑：飞虹
-校正/发稿：海阔天空1
+立陶宛与中国的直接贸易额不大，但有数百家公司为销往中国的跨国公司生产家具、激光器、食品和服装等产品。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+立陶宛外交部表示:“在立陶宛运营的企业已成功融入国际供应链，因此中共国的经济施压措施可能对这些企业造成各种干扰。”
+
+欧盟委员会星期五表示，如果发现中共国违反国际贸易规则的证据，欧盟可能会将中共国和立陶宛之间的贸易争端提交给世界贸易组织WTO。
+
+秘翻新闻主编宝宝编译报道
+
+发布：文小明
+
+* * *
+
+**By 【秘密翻译组-即时新闻播报组】**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/招募-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
