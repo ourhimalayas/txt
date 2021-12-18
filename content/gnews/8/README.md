@@ -2,44 +2,35 @@
 ---
 
 
-## 俄罗斯呼吁就乌克兰及北约东扩问题尽快与美方展开谈判
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1768573/)
+## 103名海军陆战队队员因拒绝新冠疫苗被开除
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1768576/)
 
-#### 撰稿：日本东京方舟农场 北极
+作者：纽约香草山教育部 – Irene木木
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月16日，据当地媒体报道，美国海军陆战队发布公告称，已有103名海军陆战队队员因拒绝接种新冠疫苗而被开除。除此之外，还有多达三万名的其他军种现役军人也将因同样的理由开始被分批遣散。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-19-上午12.34.17.png)
+早在今年8月，美国国防部长奥斯汀下令，要求全体军人必须接种新冠疫苗。此后，各军种迅速制定了相应的截止日期，同时警告所有的服役人员，如果他们不接种疫苗，他们可能会面临退伍的处罚。数据显示，美国现役军人中，未接种新冠疫苗的人员数量接近3万名，他们或者直接拒绝接种疫苗，或者正在等待行政处理医疗或宗教豁免的请求。目前，美国多个军种已经开始正式执行行政开除的处罚措施。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/924071DC-831B-4B33-A4AF-396D0874186A.jpeg)美国总统拜登和俄罗斯总统普京（资料图片来自网络）
+对此，世界卫生组织欧洲免疫咨询专家组前副主席克里斯蒂安·佩龙于当天警告称，服从政府强制令接种新冠疫苗的人才是对公共健康真正的威胁。佩龙解释道，研究表明，95% 的新冠重症患者都是接种过新冠疫苗的人，而未接种者几乎很少出现感染情况。佩龙强调，相较于未接种者，那些接种新冠疫苗的民众才是真正会传染病毒的人。
 
-据《美国之音》中文网报道，俄罗斯副外长谢尔盖·里亚布科夫（Sergei Ryabkov） 本周五（12月17日）在莫斯科接受记者采访时表示，就乌克兰边境危机和北约东扩问题，俄方希望尽快与美方展开谈判。
+参考链接：
+1）[https://gettr.com/post/pju0uta2fa](https://gettr.com/post/pju0uta2fa)
+2）[103 Marines booted for refusing COVID vaccine as services begin discharges](https://abcnews.go.com/Politics/103-marines-booted-refusing-covid-vaccine-services-begin/story?id=81793800)
+3）[Immunization expert warns that covid VACCINATED people are the real threat to public health](https://newstarget.com/2021-12-16-immunization-expert-covid-vaccinated-threat-public-health.html)
 
-里亚布科夫向媒体公布了向美国及北约盟国提交的安全建议草案细节，并表示莫斯科已做好了谈判准备。
+![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-里亚布科夫对记者们说：“我们准备好立即、甚至明天——真的是明天、星期六12月18日就在第三国与美国会谈。”他还表示，俄罗斯已向美国官员建议在日内瓦进行会谈。
+总编：Ivy001
+编辑：Ivy001
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-近期，俄乌关系迅速恶化，双方在两国边境地区部署了大量军事人员和装备。美国和乌克兰声称俄罗斯在俄乌边境集结重兵，可能准备“入侵”乌克兰，但俄方对此予以否认。
-
-本月7日，拜登与普京举行视频会晤，重点讨论了乌克兰局势及双边关系中所存在的问题。
-
-本月15日，在俄美双方代表于莫斯科外交部大楼举行的一次会议上，俄方向美国代表提交一份“安全建议草案”。草案内容主要包括，要求美国承诺排除北约进一步东扩的可能，并拒绝接纳苏联前加盟共和国加入北约。俄方还敦促美国和北约对上述内容制定长期的法律保障，并呼吁有关各方为缓解欧洲紧张局势做出进一步努力。
-
-据一位要求匿名的美国高级官员透露，对俄罗斯来说，乌克兰和格鲁吉亚等苏联前加盟国加入北约是一条红线。俄方知道有些内容是美国不可接受的，但美国也做好了谈判的准备。这名官员还补充说：“如果侵略乌克兰的事件再次发生，将产生巨大的后果，而且代价将非常昂贵”。
-
-白宫发言人普萨基也在周五声明，“所有国家都有权决定本国的未来，决定本国的外交政策，不受外部的影响”。
-
-*参考链接：*
-
-1. [*俄罗斯公布向西方提交的安全建议草案细节*](https://www.voachinese.com/a/russia-publishes-details-of-security-proposal-with-west-20211217/6359470.html)
-2. [*俄罗斯外交部公布与北约关于安全保障的条约草案*](https://news.sina.com.cn/w/2021-12-17/doc-ikyamrmy9633469.shtml)
-3. [*美国接受谈判俄罗斯提出的东欧中亚限制北约扩张的法律提案*](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20211217-%E7%BE%8E%E5%9B%BD%E6%8E%A5%E5%8F%97%E8%B0%88%E5%88%A4%E4%BF%84%E7%BD%97%E6%96%AF%E6%8F%90%E5%87%BA%E7%9A%84%E4%B8%9C%E6%AC%A7%E4%B8%AD%E4%BA%9A%E9%99%90%E5%88%B6%E5%8C%97%E7%BA%A6%E6%89%A9%E5%BC%A0%E7%9A%84%E6%B3%95%E5%BE%8B%E6%8F%90%E6%A1%88)
-
-
-* * *
-
-*素材采编：北极*
-
-*编辑：青衣青青*
-
-*发布：miumiu*
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
