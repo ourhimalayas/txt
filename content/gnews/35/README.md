@@ -2,36 +2,131 @@
 ---
 
 
-## 中共物伤其类，呼吁国际社会调查美军滥杀无辜平民的罪行
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1767679/)
+## 12/18每日播报|社媒消息：蓬佩奥 皮特纳瓦罗
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1767729/)
 
-撰稿—八木
-校对/上传—无明逆流
+**By:**[秘翻新闻](https://gtv.org/broadcast/watch/61bda2287882000d5103ae35)
 
-美国时间12月13日，美国国防部高级官员表示，美国国防部长劳埃德·奥斯汀（Lloyd Austin）批准了两名高级指挥官的建议，对参与阿富汗喀布尔无人机行动造成平民死亡的军事人员，将不会采取任何形式的惩罚。
+**2021-12-1**8
 
-美国国防部发言人约翰·柯比当日在简报会上表示，奥斯汀知道此决定会受到质疑，但他称这是经过独立调查和深思熟虑的结果，无论任何时候，如果国防部发现有故意的疏忽行为、领导错误和犯罪行为，将会开始另一项调查。
+1.** 蓬佩奥12月18日发推说： **如果拜登因军人拒绝遵从他的疫苗强制令而让其不光荣地退伍，那么下一任美国共和党总统应使用赦免权，将他们全部恢复为光荣退伍，并邀请他们重新参军。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Imaw17-PM.jpeg)资料图：塔利班与共产党
 
-17日，在中共外交部例行记者会上，中共新闻记者就美国国防部决定不对参与阿富汗喀布尔无人机作战造成10名平民死亡的美军事人员实施惩罚的问题提问汪文斌。
-发言人汪文斌回应称，“美军在世界各地滥杀平民的罪行应当受到追究，中方呼吁国际社会行动起来，对美军蓄意破坏国际法治、滥杀无辜平民的罪行进行调查，让各国人民特别是发展中国家人民的人权得到切实维护和保障。”
 
-**美军承认误炸目标，致10名无辜平民身亡。**
+> If Biden discharges military members for refusing his forced 'vaccine' w/any discharge other than an honorable discharge, the next GOP President should use the pardon power to restore them all to honorable discharges & invite them to rejoin the military. [https://t.co/hYsim0odmi](https://t.co/hYsim0odmi)
+> — Mike Pompeo (@mikepompeo) [December 17, 2021](https://twitter.com/mikepompeo/status/1471986778894708740?ref_src=twsrc%5Etfw)
 
-此前，调查无人机空袭阿富汗行动的空军监察长赛义德（Sami Said）表示，美军空袭行动并未违反包括战争法在内的国际法，由于出现通讯故障与轰炸目标出现偏差，造成了令人遗憾的平民伤亡。
 
-美国中央司令部司令麦肯锡（Kenneth McKenzie）也在此前表示，空袭计划是针对极端恐怖组织伊斯兰国IS的紧急行动。美国情报显示，武装分子计划用一辆装满炸药的车辆攻击喀布尔机场。空袭事件发生后，美军调查确信至少有包括7名儿童在内的10人在攻击中死亡。对于这起悲剧，麦肯锡表示，“这是一个错误，我诚挚表达歉意”，美国将对此负责。
 
-在美军发动阿富汗空袭计划的前几天，伊斯兰恐怖组织分支IS-K对喀布尔机场发动炸弹袭击造成多达170人死亡，其中包括13名美军。
+2.** 皮特纳瓦罗12月18日发推说：** 感谢乔·拜登、美联储主席杰罗姆·鲍威尔 (Jerome Powell)和习近平，感谢刚刚袭击美国的通胀中子弹，美国遭遇了滞涨危机。 【推文转《福克斯》报道，纳瓦罗说：“这场由大流行病驱动、以及政治家糟糕政策制造的通货膨胀灾难，与1970年代由过度刺激的凯恩斯主义政策，所产生的滞涨情况极为相似。拜登取消了基石（Keystone）输油管道扩建项目，冻结联邦土地上的石油和天然气租赁，导致能源价格飙升，推动食品价格上涨，美国的工人阶级和小企业受到了恶性通货膨胀的攻击。美国更大的问题是由食品和能源价格冲击引起的成本推动型通货膨胀压力，以及全球供应链断裂和中共输出其制造的通货膨胀，但美联储没有任何工具来对抗这些东西。应该清楚的是，美国失控的通货膨胀大部分源于这场大流行病，而它几乎肯定是由武汉病毒研究所释放出来的病毒导致的。除非中共坦白说明病毒是如何被基因改造的，否则我们不可能完全解决这一大流行病及其经济后果。我们仍然没有获得该病毒的原始基因组，这是更广泛的大流行病难题的一个关键部分。在中共和福奇坦白真相之前，这将是一条坎坷的滞胀之路。】
 
-**伊斯兰极端恐怖组织和反人类政权中共**
 
-作为都喜欢残杀、绑架本国人民威胁他国的犯罪组织，伊斯兰极端组织和反人类政权中共一样，都善于使用军民融合的卑劣手段。当人民变成它们的挡箭牌，正义就对它们产生了忌惮；当人民成为它们的替死鬼，正义在道义上就会遭受责难。
-对于无辜死去的平民最好的负责方式就是对邪恶的不妥协。面对这些卑劣者，除恶务尽；才能结束这个世界无尽循环的人道灾难。
 
-相关新闻：[外交部：中方呼吁国际社会调查美军滥杀无辜平民的罪行](http://www.news.cn/2021-12/17/c_1128175089.htm)
+> Thank Joe Biden, Jay Powell, and Xi Jinping for the inflation neutron bomb that just hit America. Good read here if you want to understand the complexities of the stagflation issue.[https://t.co/ngYhmlH7um](https://t.co/ngYhmlH7um)
+> — Peter Navarro (@RealPNavarro) [December 17, 2021](https://twitter.com/RealPNavarro/status/1471930037687496704?ref_src=twsrc%5Etfw)
 
+
+
+3. **国家脉动12月18日在盖特发文：** 前美军官员乔伊·肯特（JOE KENT）说：“是时候让中共为其制造的中共病毒大屠杀作出赔偿了！“ 【盖文转报道，中共正在与我们交战，而这场战争的主要战线是经济领域，中共正在攻击我们。总统拜登等腐败政客已完全被中共收买，导致我们正在输掉这场战争，中共制造的这场大流行病危机令人痛苦地表明了这一点。中共利用廉价的奴工来腐蚀我们的商界精英，全球企业通过向美国消费市场兜售中共国商品发财，而我们在国内生产关键商品的能力被严重削弱和破坏。我们在关键商品上越来越依赖一个敌对国家，这不仅威胁到我们的国家安全，而且损害了我们人民的健康。阿片类药物摧毁了我们最脆弱的公民，并削弱了美国家庭的成长。中共深度介入我们的资本市场，是我们债券的最大购买者。中共利用美国的法律漏洞，购买了19万多英亩的美国优质农业用地，这是他们购买关键土地和港口以获取自然资源的战略的一部分。我们现在需要采取大胆行动，捍卫我们的国家主权，反击中共。首先，我们要让中共就其释放的病毒向美国人民作出赔偿：没收中共在美国拥有的土地、没收中共在资本市场的资产、并利用关税来削弱中共对我们经济的控制。为了实现这一目标，我们需要对付我们自己的精英阶层。他们将制造业送往中共国，并将我们投资于华尔街的养老基金送给中共。为了反击，我们必须使制造业复苏，并振兴自然资源产业。坚持“美国优先“政策，把国家安全和美国中心地带的工人阶级家庭放在第一位。美国不仅仅是一个为全球精英阶层致富而存在的经济体，更是一个深深关心我们人民的主权国家。】
+
+[https://gettr.com/post/pjxfxi0b61](https://gettr.com/post/pjxfxi0b61)
+
+4. **媒体人士 克雷·特拉维斯（Clay Travis） 12月17日发推说：** 全美橄榄球联盟NFL有95%的人接种了新冠疫苗，全美职业篮球联盟NBA的接种率高达 97%，全美冰球联盟NHL几乎100%接种了疫苗。但这三个联盟仍然新冠疫情泛滥，而且新增的新冠病例数创下新高。那么政府为何说疫苗将终结大流行病呢？职业体育联盟的现状就足以证明这是100%的谎言。
+
+
+
+> The NFL is 95% vaccinated, the NBA is 97% vaccinated, the NHL is nearly 100% vaccinated. All three leagues are still overwhelmed with covid cases & hitting new covid case highs. So how is [@JoeBiden](https://twitter.com/JoeBiden?ref_src=twsrc%5Etfw) arguing vaccines will end covid? The pro sports leagues prove that’s 100% a lie.
+> — Clay Travis (@ClayTravis) [December 17, 2021](https://twitter.com/ClayTravis/status/1471635387550519298?ref_src=twsrc%5Etfw)
+
+
+
+5. **莲心不染12月17日发推说：** 139 项高质量研究证实了的新冠患者获得的自然免疫力的优越性： 自然获得性免疫： 1.效力等于或优于疫苗 2.持久的保护力 3. 与疫苗不同，它预防病毒的所有变异，而不仅仅是某个变异 4. 接种疫苗的人与未接种疫苗的人一样具有很高的病毒载量，同样具有传染性 5. 个人保护用品和口罩在医疗保健环境中基本上无效 6. 新冠疫苗导致病毒传播更容易、传播速度更快，以及产生更多和“更厉害”的变种
+
+
+
+> 139 Research Studies Affirm Naturally Acquired Immunity to Covid-19
+> 
+> naturally acquired immunity：
+> 1. equal to or better than vaccines
+> 2. long lasting
+> 3. protecting against the virus, not just a specific variant, unlike vaccine[https://t.co/TKkBvZH64C](https://t.co/TKkBvZH64C)
+> — PureLotusHeart莲心不染 (@PureLotusHeart1) [December 17, 2021](https://twitter.com/PureLotusHeart1/status/1471716214955196416?ref_src=twsrc%5Etfw)
+
+
+
+6. **新唐人12月17日在盖特发文：** “如果台湾落入中共之手，日本将完全被孤立和分割。第一条岛链将被突破。” 前美国外交官司徒文 (William Stanton)说，如果台湾被中共夺走，对美国来说将是一场灾难，华盛顿需要为这个自治岛屿的防卫做更多的工作。 【盖文转报道，司徒文说：“我们有巨大的战略利益，如果美国不想失去整个东亚，那么就必须参与到这场战斗中。北京推动将台湾纳入其版图是出于战略原因，而不仅仅是民族主义。中共的霸权主义愿望，希望通过占领台湾获得更多的权力和更多的军事力量。我建议在导弹事项方面，华盛顿应该取消对台湾的所有导弹技术控制制度（MTCR）限制。台湾需要更多的远程导弹作为一种威慑。“】
+
+[https://gettr.com/post/pjw4v0605e](https://gettr.com/post/pjw4v0605e)
+
+7. **DarrenB 12月17日转发Resist the Mainstream的报道说：** 德克萨斯州长格雷格·阿博特 (Greg Abbott) 告诉五角大楼，他不会执行拜登政府的疫苗强制令，给德州的国民警卫队强制接种疫苗。 阿博特12月16日致函美国国防部长劳埃德·奥斯汀 (Lloyd Austin)，明确表示他不会强制给该州的军人接种疫苗。阿博特说：“如果那些未接种疫苗的卫兵在德州遭受任何副作用，他们只能将其归咎于拜登总统及其政府。德州不会对其卫兵实施最新的疫苗强制令。如果联邦政府继续威胁要削减德州国民警卫队的经费，作为州长，我将动用一切可用的法律工具，来捍卫这些美国英雄。”奥斯汀部长最近威胁说，如果各州不遵守规定，将切断联邦对未接种疫苗的卫兵的资助，但阿博特仍然毫不畏惧地坚持自己的立场。
+
+[https://gettr.com/post/pjwvqga569](https://gettr.com/post/pjwvqga569)
+
+8. **网关专家12月17日在盖特发文：** 调查显示，在挪威，圣诞晚宴后感染新冠的人中，98%的人已完全接种了新冠疫苗。 【该文转报道，挪威公共卫生研究所NIPH在网站上公布了此次调查的结果摘要：在室内密切接触的社交环境中，奥米炕变种在完全接种疫苗的成年人中具有很高的传播能力；在对111名参加了圣诞晚宴的受访者进行调查后发现，74% 的人事后被诊断出患有新冠病毒，其中的60%确认感染了奥米炕变种；大多数病例的症状轻微，迄今为止没有人住院；超过 70% 的病例报告了以下症状：咳嗽、流鼻涕/鼻塞、嗜睡和喉咙痛，此外，50%的病例有发烧症状。挪威公共卫生研究所根据初步调查得出的结论是，奥米炕变种的传染性更强，在这次爆发的病例中，没有严重感染的迹象。】
+
+[https://gettr.com/post/pjwz4i51ff](https://gettr.com/post/pjwz4i51ff)
+
+9. **盖特官方12月18日在盖特发文： **前美国众议员肖恩·达菲 (Sean Duffy)在接受福克斯采访时说：“盖特是推特杀手。这里有言论自由，每个人都在那里，这是最好的平台。”
+
+[https://gettr.com/post/pjx00c5423](https://gettr.com/post/pjx00c5423)
+
+10. **盖特CEO杰森米勒12月17日表示**，在德国，言论自由正在我们的眼前消失，这应该让每个人感到担忧。 盖特官方12月17日表示：12月14日这天，德国注册盖特的人数比世界上任何其他国家都要多。这个迹象明确无误地表明，德国公民多么渴望自由，盖特已成为这些人想要使用的媒体平台。 盖特全球通讯主管埃博尼·博登12月18日发推说，大新闻！德国选择党从明年1月起将正式开始使用盖特，这样他们就可以在没有大科技公司审查的情况下，分享他们的平台和政策想法。言论自由是一个全球性的问题，我为我们致力于捍卫思想交流的工作感到自豪。
+
+
+
+> Free speech in Germany is being eliminated in front of our very eyes, and this should worry everybody.
+> 
+> My latest op-ed for [#jungefreiheit](https://twitter.com/hashtag/jungefreiheit?src=hash&amp;ref_src=twsrc%5Etfw)![#Gettr\_De](https://twitter.com/hashtag/Gettr_De?src=hash&amp;ref_src=twsrc%5Etfw) [#GETTR](https://twitter.com/hashtag/GETTR?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/D6SH9W3HGc](https://t.co/D6SH9W3HGc)
+> — Jason Miller (@JasonMillerinDC) [December 17, 2021](https://twitter.com/JasonMillerinDC/status/1471822131684118536?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> "On Dec 14th, more people registered [on GETTR] in [#Germany](https://twitter.com/hashtag/Germany?src=hash&amp;ref_src=twsrc%5Etfw) than in any other country in the world…This is an unmistakable sign of how much the German citizens thirst for freedom and that [#GETTR](https://twitter.com/hashtag/GETTR?src=hash&amp;ref_src=twsrc%5Etfw) has become a main goal of these people." 🇩🇪[https://t.co/x3TOu1EX9x](https://t.co/x3TOu1EX9x)
+> — GETTR (@GETTRofficial) [December 17, 2021](https://twitter.com/GETTRofficial/status/1471860990803329024?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> Huge, huge news! Germany's [@AfD](https://twitter.com/AfD?ref_src=twsrc%5Etfw) party will officially begin using [#GETTR](https://twitter.com/hashtag/GETTR?src=hash&amp;ref_src=twsrc%5Etfw) from January so they can share their platform and policy ideas without Big Tech censorship. Free speech is a global issue and I'm proud of the work we are going to defend the exchange of ideas.
+> — Ebony Bowden (@ebonybowden) [December 17, 2021](https://twitter.com/ebonybowden/status/1471875831404404741?ref_src=twsrc%5Etfw)
+
+
+
+11. **洛杉矶时报驻北京记者苏奕安 12月18日发推说：** 路透社的这篇特别报道说，亚马逊为了在中共国销售kindle和云服务，向中共绥靖，包括将习近平的书作为“畅销书“来宣传，审查中共的宣传电影的评论，以及向当局提供异议人士的IP地址。
+
+
+
+> Fantastic ⁦[@Reuters](https://twitter.com/Reuters?ref_src=twsrc%5Etfw)⁩ reporting on how Amazon bent over backwards to sell kindle & cloud services in China, including by promoting Xi’s books as “best sellers,” censoring reviews of propaganda films & providing a dissident’s IP address to authorities [https://t.co/0PND5vi4yE](https://t.co/0PND5vi4yE)
+> — Alice Su (@aliceysu) [December 17, 2021](https://twitter.com/aliceysu/status/1471890179723911169?ref_src=twsrc%5Etfw)
+
+
+
+12. Disclose.tv 12月18日发推说： 辉瑞正在测试给5岁以下的婴儿和学龄前儿童接种第三针疫苗，因为研究显示，对一些儿童来说，两针似乎不能提供足够的保护力。
+
+
+
+> NEW – Pfizer is now testing 3 injections of its [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) jab in babies and preschoolers. 2 shots didn’t "appear strong enough for some." (Sky)
+> — Disclose.tv (@disclosetv) [December 18, 2021](https://twitter.com/disclosetv/status/1472021803782578178?ref_src=twsrc%5Etfw)
+
+
+
+13. **郭文贵先生在12月17日的大直播中说：** 共产党为何要在此时搞盘古、裕达？因为习近平和彭丽媛等人极度迷信，认为裕达是中原佛手、是文贵先生的根器，必须在壬水寅虎年前干掉裕达。盘古龙头变鸟头、龟头的根本原因也是习、王等人迷信，相信盘古阳龙会对属虎的彭丽媛造成绝对威胁，所以必须在壬水寅虎年到来前搞掉盘古龙头。
+
+[https://gettr.com/post/pjyhvx84f2](https://gettr.com/post/pjyhvx84f2)
+
+[https://gettr.com/post/pjyah77fda](https://gettr.com/post/pjyah77fda)
+
+以上社交媒体新闻由 巴拉克和Stephanie 联合编译报道
+
+发布:陸柒陸捌
+
+* * *
+
+**By 【秘密翻译组-即时新闻播报组】**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/招募-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,46 +2,35 @@
 ---
 
 
-## 乔·肯特：让中共为新冠病毒大屠杀进行赔偿
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1767730/)
+## 美国大型医院取消疫苗强制接种
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1767743/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-219.jpg)图片来源：Los Angeles Times
-**整理报道：文扬**
-**编辑：文泓**
+作者：纽约香草山医疗部 – 云豹
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-08-30-at-7.37.59-PM-3.png)
+据美国媒体12月15 日报道，在联邦法官暂时停止了拜登政府对医护人员的疫苗强制令后，美国一些大型医院集团，如Advent医学中心、克利夫兰诊所、HCA医疗、山间医疗以及泰尼特医疗等，表示取消对员工的新冠病毒疫苗强制接种计划，以帮助解决劳动力短缺问题。所列的五个集团共涉及300多家医院，50多万名员工。
 
-**中国共产党正在与我们交战，这场战争主要战线是他们对我们经济的攻击。**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/7-29.jpg)
 
-现在，多亏了拜登总统的“领导力”和一些妥协的共和党人，譬如像我的对手海梅·埃雷拉·贝特勒议员（她从中共控制的公司获得数百万的竞选捐款），这是一场我们正在输掉的战争。中共制造的新冠病毒危机清楚地说明了这一点。
+最近几个月，由于职业倦怠、劳动力成本和疫苗强制的原因，数以千计的工人选择了离开这个行业，或者失去工作，而不是去接种疫苗。一名员工福利律师称，这是一次大规模的外流，医疗保健行业的很多人都愿意出去找工作。这些医疗机构一直在努力留住足够的护士、技术人员和清洁工，以应付新冠病毒大流行期间住院人数激增的状况。
 
-中共已经能够抓住我们商业部门的精英，为他们提供廉价的奴隶劳动力，让他们在没有安全或环境标准的工厂工作。全球公司通过向美国消费市场兜售中国商品而致富，削弱和破坏了我们在国内制造关键商品的能力。
+参考链接：
 
-与中共国进行自由贸易的噩梦，已经夺走了整整一代美国人的工作，他们的父辈和祖辈靠这些工作养家。这不仅威胁到我们的国家安全，因为我们依赖于一个敌对国家提供关键商品，而且损害了我们人民的健康，扼杀了整个城镇，将我们最脆弱的公民推向致命的阿片类药物并成瘾，并削弱了美国家庭的成长。
+- [Some Hospitals Drop Worker Vaccine Mandates](https://www.webmd.com/vaccines/covid-19-vaccine/news/20211215/some-hospitals-drop-worker-vaccine-mandates)
 
-中共大量参与我们的资本市场，是我们债务债券的最大买家。它们是维持我们的非生产性、以债务为基础的经济保持运转的关键贷款人。中共还利用美国允许外国人拥有土地的愚蠢法律，让中共拥有超过190,000英亩的美国优质农业用地。
 
-中共正在购买我们的土地，以便将其纳入他们的“一带一路”倡议，他们购买关键土地和港口的战略，以获得矿产和水权等自然资源。随着中共控制着全球制造业和生产线，并正在美国获得土地，我们距离向中共付费购买在自己的土地上的收获已不远了。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
 
-我们现在需要采取大胆行动，捍卫我们的国家主权，反对红色中共国。**这首先要从中共对美国人民因新冠病毒而遭受的大屠杀进行赔偿开始：没收中共在美国拥有的土地；没收中共在（美国）资本市场的资产；并利用关税来削弱中共对我们经济的控制。**
+总编：飞虹
+编辑：飞虹
+校正/发稿：海阔天空1
 
-为了实现这一目标，我们将需要挑战自己的精英。顶级亿万富翁已将我们的制造业转移至中国，并利用我们在华尔街的养老基金为中共对我们国家的经济战争提供资金。为了反击，我们必须进入战时状态使制造业复苏，并振兴我们的自然资源产业。
-
-为了重建我们的制造基地，我们必须为那些已经将生产设施运往海外的公司提供利润丰厚的企业减税和免费的政府土地，前提是他们愿意迅速上岸并雇用美国劳动力。
-
-有了这根胡萝卜，还必须有一根大棒。那些没有迅速进入境内的公司将面临严重的关税。信息很明确：如果你不在这里生产，你就不会在这里销售。我们不能再容忍美国公司削弱美国工人并帮助敌对势力。
-
-让我们伟大的国家经久不衰，而不只是成为中国共产党蓬勃发展的全球霸权车轮上的另一个齿轮，我们必须实现“美国优先”的经济复兴，将我们的国家安全和美国中心地带的工人阶级家庭放在首位。现在是重新建立我们的国家认同的时候了。**美国不仅仅是一个为全球精英阶层致富而存在的经济体，而是一个深深关心我们人民的主权国家**。
-
-原文链接： [JOE KENT: It’s Time for Reparations for China’s COVID-19 Carnage. (thenationalpulse.com)](https://thenationalpulse.com/analysis/joe-kent-its-time-for-reparations-for-chinas-covid-19-carnage/)
-
-发布：去中心化Math
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
