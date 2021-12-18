@@ -2,39 +2,30 @@
 ---
 
 
-## 习近平彭丽媛互联网时代以一国之力对政泉和盘古施巫术
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1766833/)
+## 【中日财经爆】中共国土地出让收入连续四个月负增长
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1766844/)
 
-**郭文贵先生：**今天对盘古、对政泉做的事情，今天我告诉大家不叫风水，不是共产党说的假的无神论，它是彻彻底底的一场政治巫术，大家没看明白这问题，是一场大的政治巫术，跟过去汉朝、大汉、商朝，包括司马懿之后的晋朝，还有这个唐朝，最后没落的时候，包括武则天，都是一定是无穷无尽的道士，无穷无尽的所谓的神学之士，而且大量的事情——蛊、惑、妖术、巫术治理朝廷，一点儿都不差。包括大清朝，慈禧最后相信的都是什么这道术、那道术、这山那山，咱就别说了！这公那公都是来了。
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/11-7.jpg)[图片来源](http://www.aap5.com/biji-37-162773-0.html)
+经济下行压力加大，中共国财政支出步伐日渐加快，11月全国财政支出同比增幅创年内次高水平。与此同时经济放缓导致税收收入同比持续下降，当月全国财政收入为连续第三个月同比负增长。
 
-今天的盘古和裕达，告诉了人类史上最荒唐的事情，在一个讲科学、无神论的共产党治理的天下，个人崇拜、个人独裁和所有的所谓国家主义和民族主义到了最最鼎盛的时候，施行了中国5000年、8000年以来，所有的最愚蠢的政治行为——巫术、蛊术，竟然以一国家之力，在互联网的摄像机的监督下，来做这个事情。
+中央经济工作会议传递出清晰的稳增长基调，财政部近期也已提前下达2022年地方政府专项债券额度1.46万亿元人民币，明年“财政前置”发力已经跃然纸上。
 
-编辑整理：海贼王M.D.LUFFY；
+另外，值得注意的是，受房地产持续低迷影响，11月国有土地出让收入连续第四个月同比负增长。
 
-视频制作：Cindy；
+中共国财政部周五公布，1-11月全国一般公共预算收入191,252亿元人民币，同比增长12.8%。其中，全国税收收入164,490亿元，同比增长14%；非税收入26,762亿元，同比增长5.9%。同期，全国一般公共预算支出213,924亿元，同比增长2.9%。
 
-视频上传：Cindy；
+根据历史数据计算得出，11月单月，全国一般公共预算收入同比下降11.2%，为连续第三个月负增长；其中税收收入下降13.1%。主体税种中，增值税同比下降8.3%，亦为连续第二个月负值。
 
-G-News发布：黎明之前；
+11月单月全国一般公共预算支出同比增长8.5%，为年内次高水平，最高点是1-2月的10.5%。由于中共国农历春节因素，财政部不公布1月单月财政收支数据，而是联合公布1-2月数据。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
+消息来源:
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+[中共国11月财政支出加快、明年料“财政前置”发力土地出让收入连四个月负增](https://cn.reuters.com/article/china-nov-fiscal-balance-land-sale-1217-idCNKBS2IW0OQ?il=0)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
