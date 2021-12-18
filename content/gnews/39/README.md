@@ -2,44 +2,38 @@
 ---
 
 
-## 潘石屹名下SOHO项目被罚7.09亿元
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1767548/)
+## 美国会两院通过防止维吾尔人强迫劳动法案
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1767656/)
 
-作者：纽约香草山文艺部 宁文静
+撰稿：纽约香草山医疗部-云豹
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-8.png)
+继众议院通过议案后，美国参议院于当地时间12月16日，也通过了《防止维吾尔人强迫劳动法案》。法案将禁止涉及强迫劳动的新疆产品流入美国市场。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-930.png)
+该法案将要求国土安全部拟定清单，列举与中共国政府合作、压迫新疆维吾尔族穆斯林少数民族的实体。此法案采用《可反驳推定》条款，企业必须自己举证，向政府机构提出明确且令人信服的证据，来证明从新疆进口的产品未涉及强迫劳动，否则，所有来自新疆的商品一律被推定为强迫劳动生产，并禁止进口。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
-
-当地时间12月17日，据中共媒体消息显示，中共北京市税务局官方网站发布公告称，潘石屹名下的北京建华置地有限公司在SOHO尚都项目中存在虚假申报的行为，少缴土地增值税和企业所得税共计1.98亿元人民币。为此，中共税务部门将向建华公司追缴税款并加收滞纳金，同时再处以2.5倍罚款，共计7.09亿元人民币。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-18-at-8.52.25-PM.png)
-
-据悉，建华置地的法定代表人是潘石屹，其拥有SOHO中国和华远置业各60%和40%的股权。但有消息称，自今年起，潘石屹一直在进行“清仓”式的大甩卖，其所出售的资产涉及物业、办公、停车位等多个业态。今年9月，潘曾还曾试图出售SOHO中国的核心资产，但因当时中共所谓的“反垄断”调查风声趋紧，导致黑石集团最终放弃收购SOHO中国的计划。而10月22日，中共北京市税务局随即对建华置地以税务缘由立案调查。
-
-此前，郭文贵先生曾在直播中反复示警道，中共的房地产必将爆雷，且中共的经济也难逃崩溃之势。在此局面之下，中共的各大“白手套”必然难逃一劫。而郭先生也曾点名潘石屹，道出中共在房企方面的定向爆破计划。
-
-截止今日，SOHO中国在港交所的股价已跌至1.69，跌幅超过62.28% 。
-
-参考链接：
-
-1. [SOHO中国旗下公司涉嫌偷逃税被立案检查](https://m.sohu.com/a/509365659_100117963/?pvid=000115_3w_a)
-2. [潘石屹甩卖SOHO中国失败后，下属公司涉嫌偷税被调查](https://3g.163.com/dy/article/GN6IKK0F0539ARRF.html?spss=adap_pc)
-3. [涉嫌偷逃税被立案调查？是时候算算潘石屹和SOHO的账了](https://zhuanlan.zhihu.com/p/425509411)
+白宫已表明拜登将会签署这项法案。白宫发言人莎琪在新闻简报会表示，美国必须采取行动，追究中共在种族灭绝与侵犯人权行为上的责任，并解决新疆强制劳动的问题。这项禁令在法案生效后180天内开始执行。
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
 
-编辑/总编：Irene木木
-校正/发稿：我不在这里
+新闻连接：
+
+[美國會通過維吾爾法案 限制新疆產品進口](https://www.cna.com.tw/news/firstnews/202112170009.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
+
+总编：飞虹
+
+编辑：DM
+
+校正/发稿：浪迹天涯
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-8.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

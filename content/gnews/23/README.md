@@ -2,35 +2,37 @@
 ---
 
 
-## 美国大型医院取消疫苗强制接种
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1767743/)
+## 12/18每日播报｜中共报复立陶宛：不许德国车企巨头使用立陶宛零部件
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1767804/)
 
-作者：纽约香草山医疗部 – 云豹
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-08-30-at-7.37.59-PM-3.png)
-据美国媒体12月15 日报道，在联邦法官暂时停止了拜登政府对医护人员的疫苗强制令后，美国一些大型医院集团，如Advent医学中心、克利夫兰诊所、HCA医疗、山间医疗以及泰尼特医疗等，表示取消对员工的新冠病毒疫苗强制接种计划，以帮助解决劳动力短缺问题。所列的五个集团共涉及300多家医院，50多万名员工。
+**By:[秘翻新闻](https://gtv.org/broadcast/watch/61b85c7e56f4921401b77b8b)**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/7-29.jpg)
+**2021-12-1**8
 
-最近几个月，由于职业倦怠、劳动力成本和疫苗强制的原因，数以千计的工人选择了离开这个行业，或者失去工作，而不是去接种疫苗。一名员工福利律师称，这是一次大规模的外流，医疗保健行业的很多人都愿意出去找工作。这些医疗机构一直在努力留住足够的护士、技术人员和清洁工，以应付新冠病毒大流行期间住院人数激增的状况。
+路透社12月17日报道。据两位知情人士透露，中共国向德国一家汽车零部件巨头大陆集团施压，要求其停止使用立陶宛制造的零部件。
 
-参考链接：
+该大陆集团是全球最大的汽车零部件生产商之一，其客户包括德国所有大型汽车制造商。大陆集团在立陶宛设有工厂，生产车门和座椅控制器等电子零部件，并向包括中共国在内的全球客户出口。
 
-- [Some Hospitals Drop Worker Vaccine Mandates](https://www.webmd.com/vaccines/covid-19-vaccine/news/20211215/some-hospitals-drop-worker-vaccine-mandates)
+立陶宛政府在上个月允许台湾当局设立“驻立陶宛台湾代表处”。中共方面对此非常愤怒，立即宣布将中共国和立陶宛两国外交关系降为代办级，两国关系严重恶化。 中共外交部发言人威胁说:“我听说很多中国企业不再把立陶宛视为值得信赖的合作伙伴。
 
+立陶宛企业在中国开展经贸合作遇到困难，立陶宛必须审视自己。” 上周有消息说，中共国已要求跨国公司切断与立陶宛的联系，否则将会被中共国市场拒之门外。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
+代表数千家立陶宛公司的立陶宛工业家联盟（Lithuania Confederation of Industrialists）证实，一些从立陶宛供应商购买商品的跨国公司已成为中共国的目标。 对此，中共国外交部予以否认。
 
-总编：飞虹
-编辑：飞虹
-校正/发稿：海阔天空1
+立陶宛与中国的直接贸易额不大，但有数百家公司为销往中国的跨国公司生产家具、激光器、食品和服装等产品。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+立陶宛外交部表示:“在立陶宛运营的企业已成功融入国际供应链，因此中共国的经济施压措施可能对这些企业造成各种干扰。”
+
+欧盟委员会星期五表示，如果发现中共国违反国际贸易规则的证据，欧盟可能会将中共国和立陶宛之间的贸易争端提交给世界贸易组织WTO。
+
+秘翻新闻主编宝宝编译报道
+
+发布：文小明
+
+* * *
+
+**By 【秘密翻译组-即时新闻播报组】**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/招募-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,40 +2,24 @@
 ---
 
 
-## 国安法后 赴英港人激增
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1767547/)
+## AUKUS三边会谈确定技术和军事全方位围堵中共
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1767611/)
 
-作者： 纽约香草山教育部 Irene木木
+撰稿：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-219.png)[图片来源](https://trendsresearch.org/insight/aukus-and-the-future-of-alliances-in-the-indopacific/)
+白宫12月17日宣布，印太新军事合作框架“AUKUS”指挥塔—联合指导小组，已圆满结束了本月在五角大楼举行的三方会谈。会上确认了在网络战能力、人工智能（AI）和量子计算机等先进技术方面的合作，以遏制中共国的霸权行为，并加强在澳大利亚早期部署核潜艇的合作。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+根据公告，三国于9日举行了关于先进技术能力的会议，14日举行了有关核潜艇的会议。鉴于中共国的霸权行径，三国一致同意将致力于提高防卫伙伴机制，并促进印太等地区的安全和稳定，以及在明年初之前确定具体工作计划。
 
-当地时间12月15日，据英国外交部发布的报告显示，在新版赴英签证BNO推出后的9个月中，约有8.8万名香港人通过申请该签证前往英国。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-18-at-8.47.03-PM.png)
-报告中提及，中共在香港强制推行国安法的一年多时间里，与港共政府利用该法全面镇压香港的异议人士、自由媒体和公民社会。在此期间，港共政府大肆逮捕民主人士，强行关闭香港《苹果日报》。同时，中共还肆意插手香港选举，严重迫害香港的民主人权。
+鉴于对核扩散和和平利用核能方面的担忧，三国还讨论了为保持其在防扩散方面的长期领导作用，将采取与国际原子能机构（IAEA）持续磋商等一系列努力。三个国家随后表达了对《核不扩散条约》（NPT）制度的坚定支持，并确认将遵守核不扩散义务并尽可能执行最严格的不扩散标准。
 
-为此，英国政府自2021年1月起实施了新版BNO移民签证计划，回应中共在香港地区利用国安法压制政治异议和民主呼声的暴行。
+信息来源:
 
-有关人士提到，虽然中共政府仍然狡辩称，其国安法是为了所谓的“恢复香港的秩序和稳定”。但事实表明，中共国安法推行后，香港机场里前往英国的旅客大排长龙。
+[中国にらみ相互運用性向上へ　オーカス本格始動](https://news.yahoo.co.jp/articles/f9ee5db05145d3cff9bcfd2978f848390f0b9bc3)
 
-英国政府也在报告中预测，未来五年中，估计有多达33万名香港人移居英国。
-
-参考链接：[Beijing criticises UK for creating ‘second-class citizens’ with Hong Kong visa scheme](https://www.theguardian.com/world/2021/dec/16/beijing-criticises-uk-for-creating-second-class-citizens-with-hong-kong-visa-scheme)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
-
-总编：Ivy001
-编辑：Jack Li文阳
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
