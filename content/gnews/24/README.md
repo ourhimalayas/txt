@@ -2,38 +2,29 @@
 ---
 
 
-## 又一中共房企世茂集团被曝陷入债务困境
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1767805/)
+## 自然免疫力令南非Omicron感染者症状轻微
+` Runaway` [轉載自GNews](https://gnews.org/zh-hans/1767809/)
 
-作者：银河勇气星 – 骄子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-08-30-at-7.37.59-PM-2.png)
-据外国媒体报道，12月14日，中共最大房地产开发商之一世茂集团的股价下跌了创纪录的20%，原因是它正在出售资产来管理不断攀升的债务。据墙内媒体12月17日最新消息，其总负债额已达到4,636亿元，其中短期借款为444.43亿元，应付账款及票据为874.04亿元，而其账上的现金及现金等价物仅有747.69亿元。
+撰稿：Runaway
+![](https://assets.gnews.org/wp-content/uploads/2021/12/i_Stock_170438259_c7fa46cb3b.jpg)图片来源：**AFLDS**
+南非目前疫苗一针接种率31.4%，两针接种率26.2%，可以说是接种率较低的国家。当COVID19病毒新变异出现时，并没有造成太大规模的重症。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/10-7.jpg)
+据《卫报》报道，曾在南非领导疫苗试验的威特沃特斯兰德大学疫苗专家Shabir Mahdi 表示，在南非感染Omicron的人大多出现轻微症状的原因是，他们已经感染过之前的变体病毒。
 
-郭先生曾反复提及，中共国的房地产债务数额巨大，且债务人从未想过偿还。一旦引爆，将不可避免地拖垮国内银行、保险等其他金融业，进而冲击中共整体经济。并因与世界主要国家千丝万缕的联系，使暴雷向世界各地蔓延，累及全球经济，引发金融海啸。
+马赫迪接受了全球健康危机协调中心的采访，他强调最近在南非完成的血清阳性调查结果显示，大约72%的人口已经在过去某个时候从COVID感染中康复。
 
-几个月内，恒大、阳光100、花样年等中共知名房企接连被曝出债务违约，无法偿还，现在又加上世茂集团，中共正在不断逼近断崖崩溃的边缘。
+他说，尽管Omicron似乎比Delta更具传染性，并且比以前的主要菌株更能逃避抗体保护，但考虑到他所看到的低住院率和死亡率，抗体保护之外的其他东西似乎也在起作用。
 
-参考链接：
+“在南非，目前存在的大部分免疫力主要是由于前三波的感染，”马赫迪说，“它告诉我们，当Omicron的高感染力没有在严重疾病和大量死亡方面成为现实时，有些事情在起作用。”
 
-- [China housing market slumps again as another developer runs into trouble](https://www.theguardian.com/world/2021/dec/15/china-housing-market-slumps-again-as-another-developer-runs-into-trouble)
-- [4636亿总负债压顶，世茂集团陷违约风波！许荣茂能否渡过难关？](https://baijiahao.baidu.com/s?id=1719378622215618170&amp;wfr=spider&amp;for=pc)
+马赫迪认为“起作用的东西”是T细胞在预防更严重的疾病方面的活性，换句话说，自然免疫远优于“疫苗诱导的免疫”，许多[研究](https://gnews.org/zh-hans/1755646/)已经证明了这一点。
 
+但是对于尚未感染过COVID的病毒的人群，是否可以避免重症还有待于观察。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
+发布：Runaway
 
-总编：Irene木木
-编辑：飞虹
-校正/发稿：海阔天空1
+参考：[Omicron: Who’s at risk?](Who's%20at%20risk?)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
