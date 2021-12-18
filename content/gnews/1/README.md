@@ -2,37 +2,23 @@
 ---
 
 
-## 有声|加拿大特鲁多隐瞒将疫苗强制延长三年的计划
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1768211/)
+## 美国制裁中共的几大重招
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1768412/)
 
-配音：香草山美食部 – 玫瑰园
+文编：东京樱花团/樱花传媒
 
+视频:东京樱花团/中文小视频组
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-12月15日，加拿大保守党议员Michael Cooper发推，推文显示，特鲁多政府在国会立法中，把一项将疫苗强制授权延长至三年的条款，隐藏在财政和经济报告中，自由党计划将强制疫苗规定再维持3年。Cooper在推文最后补充，特鲁多正在企图把这些所谓的临时授权措施永久化。
+12月12日，郭文贵先生在GTV大直播指出：
 
-推文下的评论说，特鲁多的三年疫苗强制计划，只能证明疫苗是无效的.
+2022年美国的中期选举,两党无论是哪方总统候选人,都会100%地去灭中共。灭共的核心大招是: 1.与中共经济脱钩;2.依法、快速地全球行动,查处中共所有在海外的私生子女和资产;3.把共产主义列为人类的邪教,跟恐怖主义相提并论,使人人都可以合法地杀之灭之。
 
-文贵先生一直反复强调，这个疫苗是中共设计出来的假疫苗，目的是为了让政府能更好的控制国民，进而控制全人类。现在，特鲁多暴露的疫苗强制三年计划，给文贵先生对世界的警告，提供了完美的证明。
+以上大招都是由郭先生和新中国联邦极力促成。
 
-文字版原文：[加拿大特鲁多隐瞒将疫苗强制延长三年的计划](https://gnews.org/zh-hans/1766754/)
+编辑：东京樱花团/墨然
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWSLOGO20211207.jpg)
 
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

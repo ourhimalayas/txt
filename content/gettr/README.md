@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/18/2021 3:35 PM (UTC)`
+
+18/12/2021 “Hcoin To the Moon" Hits iTunes <br/> No. 1 🥇on 8 Countries Top MV Charts !<br/>No.1🥇 on 10 Countries Rock MV Charts!<br/>No.1🥇 on 6 Countries Rock song Charts!<br/>No.1🥇on 3 countries Hip-pop/Rap song Charts!<br/>Miracle continues…….🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in USA，Australia, Canada, Hungary, Sweden, Portugal, Greece, Malta, Latvia, Finland!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1768242<br/><br/>12月18号，Hcoin To the Moon位列iTunes<br/>8国热门MV榜首🥇！<br/>10国摇滚MV榜首🥇！<br/>6国摇滚歌曲榜首🥇！<br/>3国嘻哈歌曲榜首🥇！<br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢美国，澳大利亚，加拿大，匈牙利, 瑞典，葡萄牙，希腊，马耳他，拉脱维亚，芬兰的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏
+
+---
+
 `@miles 12/18/2021 2:01 PM (UTC)`
 
 12月18号：尊敬的战友们好，你们健身了吗？传播C C P病毒．疫苗解药的真相了吗？一切都已经开始！
@@ -151,13 +157,6 @@
 
 12/15/2021 Miles Guo: The West will provide the Tibet independence forces with weapons, money, and food and will take care of their descendants; Hong Kong, Taiwan, Xinjiang, and Tibet should join forces to fight against the CCP. If the CCP dares to take action, the world shall decouple from the CCP economically; there are more bills to be introduced for Xinjiang, Tibet, Hong Kong, and Taiwan<br/><br/>12/15/2021 文贵直播：西方将为藏独提供武器、钱和粮食，救助藏独人士的后代；港台疆藏应联合抗共，若中共动手，世界就跟它经济脱钩；还有更多对新疆、西藏、香港、台湾的法案要出台<br/>
 ![img](https://media.gettr.com/group21/getter/2021/12/16/07/e5c63733-85e6-7c93-0bc8-29dcf1722842/out.jpg)
-
----
-
-`@miles 12/16/2021 7:29 AM (UTC)`
-
-12/15/2021 Miles Guo: I said in as early as 2017 that the US would introduce a series of bills targeting Xinjiang and Tibet; Xi Jinping ordered the CCP’s diplomats who are “wolf warriors” and “sheep warriors” to bluff around the world, resulting in the return of Taliban to Afghanistan, causing mass killings<br/><br/>12/15/2021 文贵直播：早在2017年，七哥就表示美国将出台一系列针对新疆、西藏的法案；习近平指挥其中共外交战狼和外交战羊全球鼓吹，导致塔利班重返阿富汗，制造出人类大屠杀<br/>
-![img](https://media.gettr.com/group43/getter/2021/12/16/07/f6079f1c-4477-290f-a0a4-d8f30ff369cc/out.jpg)
 
 ---
 
