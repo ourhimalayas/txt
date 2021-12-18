@@ -2,54 +2,34 @@
 ---
 
 
-## 中共以美传美运动强横 欲让美国人观看奥运会
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1766258/)
+## 法国黑客大量制作假疫苗护照
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1766305/)
 
-编译：Jenny Ball
+**翻译：Ronnie O’Sullivan
+编辑：守望黎明 **
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/59620367_303.jpg)图片来源：dw.com
+![](https://assets.gnews.org/wp-content/uploads/2021/12/18日发布.jpg)图片来源：The Canadian Press
 
-由于中共政府公然践踏人权，许多美国人决对没兴致观看 2022 年北京冬奥。
+据报道，黑客获得了法国南特市一名护士的个人信息，并用该数据假造出54,000张有效疫苗通行证。与此同时，法国政府表示，迄今为止已发现11万张此类假证明。
 
-与共产主义政府经常发生的情况一样，中共不能接受“不”的回答。
+法国健康通行证系统与其他欧盟国家使用的系统类似。其工作原理是将包含有接种者手机二维码的公钥与其所接种疫苗的医院、药房等医疗机构提供的私钥配对。检查某人新冠病毒通行证有效性的时会扫描公钥代码，若与私钥匹配，则显示出绿色的勾；而若不匹配，则会出现一个红叉。
 
-华盛顿《自由灯塔》（Free Beacon）周一报道称，中共驻纽约总领事馆制定了一项计划，利用社交媒体在美国的影响力推动奥运会。
+像南特市护士持有的这种私钥，可以生成不限数量的有效疫苗通行证。这些信息对黑客和诈骗者非常有价值，他们能随后制造并在线出售假通行证。
 
-根据提交给美国司法部的数据，领事馆以 30 万美元聘请了公关公司“唯品传媒” （Vippi Media）。以这个价格，这家公关公司将聘请 Instagram、TikTok 和 Twitch 上的热门人物来宣传北京奥运会。
+法国内政部长杰拉尔德·达马宁(Gerald Darmanin)周四表示，政府已发现了110,000张假疫苗证明。达马宁表示，使用假通行证的最高处罚可达到五年监禁，但当局将大赦任何“承认错误并接种疫苗”的人。
 
-虽然广告在奥运会等大型活动中很常见，但与典型的营销策略相比，这种手段更穷凶极恶。
+法国于夏季推出的“疫苗通行证”系统要求公民出示疫苗接种证明或冠状病毒检测呈阴性，才能进入酒吧、餐馆、购物中心或公共交通工具等场所。对这套系统的争议很大，自推出以来几乎每个周末都有上千名人涌入巴黎和其它主要城市的街道举行抗议。从明年 1 月起，法国的所有成年人都必须注射加强针才能保持健康通行证继续有效。
 
-中共领导人没有自己为北京奥运会做广告，而是付钱给美国的“影响者”，以模仿他们想要的观点。
+原文链接：[French hackers create 54,000 fake vaccine passports – reports](https://www.rt.com/news/543446-france-fake-vaccine-pass-hack/)
 
-这是中共宣传在社交媒体上变得司空见惯的一招儿，令人担忧。
+*发布：盘古相聚*
 
-虽然现在的主要话题只是奥运会，但怎么能阻止中共政府花钱买影响力来推动共产主义在其他问题上的宣传？
-
-事实上，Free Beacon 报道称，除了奥运会，中共领事馆与“唯品传媒”的合同还规定，该公司将聘请有影响力的人来“宣传中美关系”， 气候变化等问题上的合作。”
-
-允许共产主义政府付钱给美国人推动其政策，是一场危险的游戏。
-
-我们已经看到中共对自己国家“不听话”的人做了什么。
-
-此外，一段时间以来，中共一直在向社交媒体公司付费来推动亲华宣传。
-
-澳大利亚战略政策研究所 4 月份的一项研究发现，自 2020 年初以来，“中共政府和官方媒体，使用美国社交媒体网络来推动替代性叙述和虚假信息的情况急剧增加”。其中的谎言之一是旨在软化中共在新疆对维吾尔人进行种族灭绝的宣传。
-
-花钱请美国有影响力的人宣传体育赛事是一回事，花钱帮助掩盖种族灭绝是另一回事。
-
-但对中共来说，这一切都是相关的。 每一次推动宣传的运动都是其更大计划的一部分，即压制任何异议，又将自己描绘成真相的仲裁者。
-
-**评论：我们叫“笔”的工具，中共称之为“笔杆子”，是武器！对中共来说，媒体宣传是其维护暴政并称霸世界的最强武器，正如文贵先生所说：在和平年代，媒体的作用胜过原子弹！我们在这场人类命运的终极之战中，彻底见识了媒体这种摧毁真相的全球力量，也更珍视传播正义的平台Gettr的作用。**
-
-**参考资料：**[westernjournal][Revealed: China’s Secret Propaganda Campaign to Get Americans to Watch Its Tyrannical Olympics](https://www.westernjournal.com/revealed-chinas-secret-propaganda-campaign-get-americans-watch-tyrannical-olympics/?utm_source=Email&amp;utm_medium=WJBreaking&amp;utm_campaign=breaking&amp;utm_content=western-journal&amp;ats_es=dca67062709054f7bc6c6d0d828f4d01)
-
-* * *
-
-*审核：文乐*
-*校对 : 阿伯塔*
-*发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-3.jpeg)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
