@@ -2,17 +2,16 @@
 ---
 
 
-## 【文贵先生大直播PPT】彭丽媛登上政治高峰 历史总是惊人的相似
-` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1765828/)
+## 彼得·麦卡洛博士指出用于中共病毒的早期治疗方法被压制
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1765910/)
 
-撰稿：顽童2017【香草山】
-美工：足球队长【香草山】
+制作：peacelv
 
-【2021年12月17日文贵先生大直播PPT：彭丽媛登上政治高峰 历史总是惊人的相似】
-![](https://assets.gnews.org/wp-content/uploads/2021/12/41-7.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/42-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/43-6.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/44-8.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/45-7.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/46-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/47-3.jpg)
-* * *
+请观看下一个视频：[彼得·麦卡洛博士指出对早期治疗方法的压制，是为了让人们接受大规模疫苗接种](https://gnews.org/zh-hans/1765935/)
 
-发稿：云起时
+发稿：信心的选择
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-3.jpeg)
 
  
 
