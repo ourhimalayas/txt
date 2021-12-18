@@ -2,33 +2,37 @@
 ---
 
 
-## 美国海军陆战队开除103名拒绝接种疫苗的士兵
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1768033/)
+## 有声|加拿大特鲁多隐瞒将疫苗强制延长三年的计划
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1768211/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-68.jpg)
-[图片来源](https://www.military.com/daily-news/2021/07/01/marine-corps-least-vaccinated-military-service-new-data-shows.html)
+配音：香草山美食部 – 玫瑰园
 
-据华盛顿（CNN）网站报道，截止12月18日美国海军陆战队已经开除了103名士兵，理由是他们拒绝接种中共病毒疫苗。美国军方正在加紧采取措施，要求进行疫苗接种。
 
-根据海军陆战队本月16日发布的最新数据，95%的现役士兵已经接种了疫苗，对豁免接种疫苗的申请审查正在继续。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+12月15日，加拿大保守党议员Michael Cooper发推，推文显示，特鲁多政府在国会立法中，把一项将疫苗强制授权延长至三年的条款，隐藏在财政和经济报告中，自由党计划将强制疫苗规定再维持3年。Cooper在推文最后补充，特鲁多正在企图把这些所谓的临时授权措施永久化。
 
-报道说，超过97%的现役士兵已经接受了部分或全部的预定剂量。截至本周，空军的比例为97.5%，海军的比例约为98%。
+推文下的评论说，特鲁多的三年疫苗强制计划，只能证明疫苗是无效的.
 
-12月13日，空军宣布，它已经开除了27名拒绝接受疫苗的士兵。15日，海军宣布，它将开始开除拒绝接种疫苗的士兵。
+文贵先生一直反复强调，这个疫苗是中共设计出来的假疫苗，目的是为了让政府能更好的控制国民，进而控制全人类。现在，特鲁多暴露的疫苗强制三年计划，给文贵先生对世界的警告，提供了完美的证明。
 
-据估计，美国军队中大约有35000名未接种疫苗的士兵。这个数字包括数千名因宗教上的理由寻求特别豁免的人。
+文字版原文：[加拿大特鲁多隐瞒将疫苗强制延长三年的计划](https://gnews.org/zh-hans/1766754/)
 
-陆军接种疫苗的最后期限是12月15日。 98%的现役士兵已经完成了部分或全部的规定剂量。共有3,864人被撤销了疫苗接种。从下个月开始，陆军将开始开除拒绝接种疫苗的士兵，除非他们受到批准或豁免审查。
+音频处理：喜山必胜Maverick
+发稿：Tom Li
+[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
+**更多资讯，更多关注**
 
-信息源：
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[米海兵隊、ワクチン拒否の１０３人に除隊処分　空軍に続き](https://news.yahoo.co.jp/articles/806a2f511a0fbf1825f044a5552c82283d1ecb53)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWSLOGO20211207.jpg)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
