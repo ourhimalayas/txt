@@ -2,44 +2,28 @@
 ---
 
 
-## 全美废除或推迟强制疫苗令的企业、学校和机构日益增多
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1768519/)
+## GTV新闻访谈简报|2021年12月18日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1768548/)
 
-#### 撰稿：日本东京方舟农场  幽蘭自得
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-3.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/42110B17-7FF4-40D6-820A-46C9A72F9CA8.jpeg)图为密歇根人打疫苗（图片来自 Getty Image）
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-18.png)
+文章仅代表作者本人观点，与Gnews无关
 
-据《大纪元》12月18日报道，近日来，美国已经有越来越多的机构、公司和学校宣布废除或者推迟执行政府的强制疫苗政策。
+视频参看：[2021.12.18早GTV新闻访谈](https://gtv.org/video/id=61bde1e97882000d5103cbb6)
 
-据报道，美国铁路（Amtrak）执行官富林（William Flynn）在一份通知表示，公司将不执行原来的规定，即要求全体员工必须在1月4日前接种疫苗，否则就须无薪休假的做法。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-该通知指出，美国铁路的1.7万名员工中有500人还没接种疫苗。如果突然失去这么多员工，会导致公司的服务中断。富林表示，公司的这一决定也是符合最近的法庭宣判。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/calendar.jpeg)
 
-除了美国铁路之外，美国的几家医院系统也做出了相似的废除疫苗强制令决定。
-
-12月初，佛罗里达州的AdventHealth医院系统宣布，他们将结束对8.3万名员工执行强制疫苗令的政策。该院也同样引用了最近法庭的暂停令。其首席临床官员芬克勒（Neil Finkler）在一份信函中对职工表示，基于联邦法院最新阻止了（针对医疗保险和医疗补助服务中心）强制疫苗令的执行，该院决定停止所有的疫苗接种要求。
-
-在此之前，“医疗保险和医疗补助服务中心”（Centers for Medicare and Medicaid Services，CMS）也向《大纪元》证实，该机构在几周前两个法庭宣判后，已经暂停执行疫苗强制令。
-
-另外还有三家医院系统——德州的Tenet Healthcare、田纳西的HCA Healthcare和俄亥俄州的Cleveland Cliinic也都相继跟随法庭判决，对他们旗下300家医院的50万员工停止了疫苗强制令的执行。
-
-法庭宣判暂停CMS的疫苗令与总统拜登宣布联邦疫苗强制令是在同一天。拜登于当日称，他决定对联邦机构的公职人员、联邦合同企业公司员工以及100人以上的私营公司职工实行疫苗强制令。
-
-不过，有4.4万名员工的海军最大造船厂亨廷顿·英格尔斯工业（Huntington Ingalls Industries）宣布，他们将不执行拜登对联邦合同企业的强制令，理由是接种疫苗没有写在与联邦政府的合同中。
-
-与此同时，美国的教育界也同样发起了废除疫苗强制令的行动。在本周早些时候，洛杉矶联合学区董事会经过投票，以压倒性票数做出决定，将针对数万名学生的强制疫苗令从明年1月推迟到明年秋天。按照原先的规定，如果学生不接种疫苗，就不能去学校上课。
-
-此外，爱荷华州大学也在网站上发布通知称，学校将遵守上个月的联邦法庭规定，即不再对联邦合同员工实行疫苗强制令。
-
-*参考链接：[全美廢除強制疫苗政策企業增多](https://www.epochtimes.com/b5/21/12/18/n13444936.htm)*
-
-* * *
-
-*素材采编：幽蘭自得*
-
-*编辑：青衣青青*
-
-*发布：miumiu*
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
