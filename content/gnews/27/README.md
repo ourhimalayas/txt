@@ -2,30 +2,33 @@
 ---
 
 
-## 微软旗下网络搜索平台“必应”又遭中共网络监管打击
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1766864/)
+## 加拿大公民因未接種疫苗而被禁止進入祖國
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1766930/)
 
-#### **撰稿：日本东京方舟农场 Kevin wang**
+作者: 紐約香草山農場教育部 – 獨行者Maverick
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%96%B0.png)
+12月16日，一名加拿大女性製作了一段視頻，講述了她因未接種疫苗而被禁止入境的，哀嘆加拿大怎樣會墜落得如此之快。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/EA14DB5C-3187-44C1-A0D4-34DFF30EC28F.jpeg)（图片来自路透社）
+當她提到她不能回去看望她的家人並與他們一起慶祝聖誕節，並且她已經有一年多沒有見到他們時，她開始流淚。 即使她最終被允許進入加拿大，她也不會再被允許去另一個國家。 她成了自己國家的囚徒。 她懇求加拿大總理賈斯汀·特魯多將自由和權利還給加拿大人民。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture6-6.jpg)
+最後，她開始唱起了加拿大國歌，但她無法唱完整首歌，因為她感到非常難過，這裡不再是她所認識的加拿大。
 
-在中共的网络监管打击之下，微软为迎合中共，刚刚将其旗下“领英”APP“阉割”，推出专为中共国量身打造的新App“领英职场”（InCareer）后不久，12月17日，微软旗下网络搜索平台“必应”（bing）又被中共政府勒令暂停其“搜索自动建议”功能。
+世界各國政府，甚至是以民主自由為榮的西方國家，居然都墜落到了這個地步。 然而，他們越是打壓，人們的反抗就會越大。 正如我們現在所看到的，全世界熱愛自由的人們正在採取行動，走上街頭，告訴他們的政府他們實在已經受夠了，並要求將自由歸還給他們。 各國政府不可能這樣瘋狂下去，除非他們想把自己也毀滅掉。他們最終將不得不對人民讓步。
 
-据《中央社》12月17日报道，微软公司旗下网络搜索引擎“必应”17日表示，中共政府机构要求其暂停“搜寻自动建议”功能30天。
+参考来源：[加拿大公民因未接種疫苗而被禁止進入祖國](http://Unvaccinated%20Canadian%20Citizen%20Blocked%20from%20Returning%20to%20Her%20Home%20Country)
 
-在中共网络监控力度不断加强的情况下，微软“领英”于10月宣布关闭其在中共国的服务。随后， 为迎合中共政府的网络监控要求，微软为中共国量身打造了一款没有社交及分享功能的新APP——“领英职场”（InCareer）。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88-1.png)
 
-然而，在“领英职场”APP刚刚于12月14日上线仅仅几天后，微软又再一次遭到中共政府的监管打击。
+编辑/校对/发稿：Hetangyuese
 
-*参考链接：[應中國政府要求 微軟Bing暫停搜尋自動建議](https://www.cna.com.tw/news/aopl/202112170226.aspx)*
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-* * *
-
-*素材采编：Kevin wang*
-
-*编辑：青衣青青*
-
-*发布：miumiu*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
  
 

@@ -2,24 +2,26 @@
 ---
 
 
-## 【中日财经爆】港交所明年开始接受SPAC空壳公司上市申请
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1766811/)
+## 【中日财经爆】中共国土地出让收入连续四个月负增长
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1766844/)
 
 整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12-5.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=http%3A%2F%2Fspac.us%2Fuploads%2Fallimg%2F210430%2F1-2104300939250-L.jpg&amp;imgrefurl=http%3A%2F%2Fwww.spac.us%2Fm%2Fview.php%3Faid%3D270&amp;tbnid=MdLSTO5GBowKVM&amp;vet=12ahUKEwjz_pLcuez0AhWHfnAKHY8ZCOgQMygEegUIARChAQ..i&amp;docid=wyUXuV-ChCEOPM&amp;w=1280&amp;h=640&amp;itg=1&amp;q=SPAC%E7%A9%BA%E5%A3%B3%E5%85%AC%E5%8F%B8&amp;ved=2ahUKEwjz_pLcuez0AhWHfnAKHY8ZCOgQMygEegUIARChAQ)
-香港交易所旗下香港联合交易所周五12月17日公布引入新规则，在香港设立全新SPAC空壳公司上市机制，并于2022年1月1日起生效。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/11-7.jpg)[图片来源](http://www.aap5.com/biji-37-162773-0.html)
+经济下行压力加大，中共国财政支出步伐日渐加快，11月全国财政支出同比增幅创年内次高水平。与此同时经济放缓导致税收收入同比持续下降，当月全国财政收入为连续第三个月同比负增长。
 
-联交所今年9月就推行SPAC上市机制征询市场意见，共收到90份来自多个不同界别对新上市机制谘询的回应意见，大多数建议均获逾八成有表明意见的回应人士支持。
+中央经济工作会议传递出清晰的稳增长基调，财政部近期也已提前下达2022年地方政府专项债券额度1.46万亿元人民币，明年“财政前置”发力已经跃然纸上。
 
-“新规则将大致按照建议所述实施，并因应一些商业因素作出修订，确保兼顾上市公司质素与市场考虑。”港交所上市主管陈翊庭表示。
+另外，值得注意的是，受房地产持续低迷影响，11月国有土地出让收入连续第四个月同比负增长。
 
-港交所表示，将于1月起接受SPAC上市申请。
+中共国财政部周五公布，1-11月全国一般公共预算收入191,252亿元人民币，同比增长12.8%。其中，全国税收收入164,490亿元，同比增长14%；非税收入26,762亿元，同比增长5.9%。同期，全国一般公共预算支出213,924亿元，同比增长2.9%。
 
-SPAC是一种空壳公司，上市筹集资金的目的是为了上市后一段预设期限内收购目标公司（SPAC并购目标）的业务（SPAC并购交易）。
+根据历史数据计算得出，11月单月，全国一般公共预算收入同比下降11.2%，为连续第三个月负增长；其中税收收入下降13.1%。主体税种中，增值税同比下降8.3%，亦为连续第二个月负值。
+
+11月单月全国一般公共预算支出同比增长8.5%，为年内次高水平，最高点是1-2月的10.5%。由于中共国农历春节因素，财政部不公布1月单月财政收支数据，而是联合公布1-2月数据。
 
 消息来源:
 
-[香港交易所公布设立全新SPAC上市机制 明年1月起接受上市申请](https://cn.reuters.com/article/hkex-spac-rule-1217-idCNKBS2IW0S9?il=0)
+[中共国11月财政支出加快、明年料“财政前置”发力土地出让收入连四个月负增](https://cn.reuters.com/article/china-nov-fiscal-balance-land-sale-1217-idCNKBS2IW0OQ?il=0)
 
 *校对：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*

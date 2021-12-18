@@ -2,33 +2,24 @@
 ---
 
 
-## 加拿大公民因未接種疫苗而被禁止進入祖國
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1766930/)
+## 文章被标记“虚假信息”——英国医学杂志致信扎克伯格
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1766962/)
 
-作者: 紐約香草山農場教育部 – 獨行者Maverick
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%96%B0.png)
-12月16日，一名加拿大女性製作了一段視頻，講述了她因未接種疫苗而被禁止入境的，哀嘆加拿大怎樣會墜落得如此之快。
+#### 翻译/撰稿：黃金精神
 
-當她提到她不能回去看望她的家人並與他們一起慶祝聖誕節，並且她已經有一年多沒有見到他們時，她開始流淚。 即使她最終被允許進入加拿大，她也不會再被允許去另一個國家。 她成了自己國家的囚徒。 她懇求加拿大總理賈斯汀·特魯多將自由和權利還給加拿大人民。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture6-6.jpg)
-最後，她開始唱起了加拿大國歌，但她無法唱完整首歌，因為她感到非常難過，這裡不再是她所認識的加拿大。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-29.jpg)图片来源：西梅网
+12月2日据英国医学杂志BMJ报道，BMJ给马克·扎克伯格（Mark Zuckerberg）写了一封公开信，信中提出对第三方供应商代表Facebook/Meta进行的“事实核查(fact checking)”表示非常担忧。
 
-世界各國政府，甚至是以民主自由為榮的西方國家，居然都墜落到了這個地步。 然而，他們越是打壓，人們的反抗就會越大。 正如我們現在所看到的，全世界熱愛自由的人們正在採取行動，走上街頭，告訴他們的政府他們實在已經受夠了，並要求將自由歸還給他們。 各國政府不可能這樣瘋狂下去，除非他們想把自己也毀滅掉。他們最終將不得不對人民讓步。
+9月，帮助开展辉瑞中共病毒疫苗主要试验的合同研究公司Ventavia的一名前雇员向BMJ提供几十份公司内部文件、照片、录音和电子邮件。这些材料揭示了Ventavia公司发生的一系列不良的临床试验研究行为，这些行为可能会影响数据的完整性和病人的安全。BMJ还发现，尽管一年多前就收到了关于这些问题的直接投诉，但FDA并没有对Ventavia的试验地点进行调查。
 
-参考来源：[加拿大公民因未接種疫苗而被禁止進入祖國](http://Unvaccinated%20Canadian%20Citizen%20Blocked%20from%20Returning%20to%20Her%20Home%20Country)
+BMJ委托一名调查记者写了这篇报道。这篇文章在经过法律审查、外部同行审查并经过BMJ高水平编辑监督和审查后，于11月2日发表。但是从11月10日开始，读者开始报告在试图分享BMJ文章时出现了各种问题。一些人报告说无法分享，另外有许多人报告说，他们的帖子被标记为“缺少背景”的警告。独立事实核查人员说，这些信息可能会误导人们。那些试图发布这篇文章的人被Facebook告知，反复分享这些“虚假信息”的人可能会让他们的帖子在Facebook的“新闻源”中降低位置。分享该文章的群组管理员收到了来自Facebook的信息，告知他们这些帖子“部分是虚假的”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88-1.png)
+对BMJ文章进行审查的是Facebook的承包商Lead Stories。Lead Stories没有对BMJ文章所谓的错误提供任何论断。Lead Stories的“事实核查”仅是一个毫无意义的标题。尽管Lead Stories没有指出BMJ文章中有任何错误或不真实的地方，但还是制作了一张我们文章的截图，在这张截图上印着“缺陷审查”的字样。并把这件事标为“骗局警告”在其他网站上发布文章。BMJ认为Lead Stories进行的“事实核查”是不准确的、不称职且不负责任的。
 
-编辑/校对/发稿：Hetangyuese
+致此BMJ已经联系了Lead Stories，但他们拒绝对它们的文章或导致Facebook标记BMJ文章的行为做出任何改变。BMJ还直接联系了Facebook，要求立即删除“事实核查”的标签和指向Lead Stories文章的任何链接，从而允许BMJ的读者在Facebook平台上自由分享这篇文章。
 
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+新闻来源：[Covid-19: Researcher blows the whistle on data integrity issues in Pfizer’s vaccine trial](https://www.bmj.com/content/375/bmj.n2635/rr-80)
 
  
 

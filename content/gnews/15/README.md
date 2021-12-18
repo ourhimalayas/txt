@@ -2,47 +2,44 @@
 ---
 
 
-## 《国家脉动》“年度爱国者奖”获得者——史蒂夫·班农
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1767042/)
+## 美国新冠病毒死亡人数超过 80 万
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1767137/)
 
-#### 撰稿：日本东京方舟农场  幽蘭自得
+作者：纽约香草山教育部 Naughty(文行)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/73E49FD2-F4EC-404C-BEC2-95F6A9EE2D92.jpeg)（图片来自网络）
-
-12月16日，《国家脉动》宣布将其第二届“年度爱国者奖”授予前白宫首席战略顾问、知名政治类播客频道War Room （作战室）创建者兼主持人——史蒂夫·K·班农（Stephen K. Bannon）。
-
-据《国家脉动》报道，现年 68 岁的班农在 2016 年引起全美国的关注。他领导川普竞选团队，以惊人的胜利击败了民主党阵营的代表克林顿·希拉里，帮助川普当选美国总统。之后，班农曾一度担任白宫首席战略顾问。
-
-在离开白宫之后，班农与前川普的通讯主管杰森·米勒以及《国家脉动》总编辑拉希姆·卡萨姆一起，创立了政治类播客频道War Room ，并取得了巨大成功，不仅排名最高播客之一，并且获得了95%以上观众的喜爱。
-
-班农的履历十分辉煌。他曾在保罗·福斯特号航空母舰服役多年，随后在弗吉尼亚州五角大楼担任海军作战部长特别助理；在从海军退役后，班农去了高盛工作；几年后，他又在好莱坞创下了自己的事业，并制作了多部电影；2009 年，班农与安德鲁·布莱巴特（Andrew Breitbart)）合作创建了“布莱巴特新闻网”（Breitbart News Daily）；2016 年 8 月，班农受邀加入川普竞选团队担任首席执行官。
-
-在离开白宫和布莱巴特新闻网后，班农又以播客的形式建立了一个右翼势力媒体平台——War Room （作战室）。War Room现在被视为全球所有政治和新闻媒体类节目中最重要的节目之一，并且，War Room还是第一个在世界卫生组织及安东尼·福奇等人之前，就认识到即将到来的中共病毒疫情的危险并发出预警的节目。
-
-自 1 月 6 日美国国会大厦发生骚乱以来，班农再次成为左翼媒体仇恨的人物，并且遭到陷害，被控蔑视国会罪。
-
-《国家脉动》在宣布上述奖项时承认，这种政治迫害是该组织今年要向班农致敬的原因之一。《国家脉动》的主编表示，很高兴将第二届“年度爱国者奖”授予史蒂夫·班农。这不仅是因为他勇敢地与腐败的政治精英、中国共产党和世界各地的激进伊斯兰主义者做斗争，还因为他对整个西方世界保守运动所做出的不懈努力，以及他对美国这个共和国建国原则的坚守不渝。
-
-除了是美国坚定的爱国者之外，班农先生还是新中国联邦的坚定支持者。他一直和新中国联邦站在同一条战线上。2018年，新中国联邦创始人郭文贵先生成立“法治基金”，班农先生担任了该基金的首任主席；2020年6月4日，班农先生见证了新中国联邦的成立，并宣读了《新中国联邦宣言》英文版；2021年11月20日，班农先生参加了“法治基金”成立三周年纪念活动并发表演讲……
-
-班农先生一直心系中共国受压迫的人民，他常常亲切地用中文称呼它们“老百姓”。并且他还立下誓言，要为解放这些生活在苦难中的老百姓而战斗。
-
-班农先生自始至终都和新中国联邦人站在一起，共同为消灭邪恶中共这一目标而在不懈地努力奋斗着。所有中国人都应该向班农先生致敬！他不仅是美国的爱国者，也是中国人民的“爱国者”。
-
-*参考链接：*
-
-1. [*The National Pulse is today announcing its second annual Patriot of the YearAward, handing the honor to former White House Chief Strategist and host of the War Room: Pandemic podcast, Stephen K. Bannon.*](https://thenationalpulse.com/news/national-pulse-patriot-of-the-year-2021-stephen-k-bannon/)
-2. [*2018年11月20日郭文贵先生、班农先生关于王健之死新闻发布会全文字版*](https://gnews.org/zh-hans/1707751/)
-3. [*新中国联邦宣言之开篇部分*](https://gnews.org/zh-hans/222448/)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-7.png)
 
 
-* * *
+据福克斯新闻报道，截止到12月14日，美国新冠病毒死亡病例数已超过80万。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-300.jpeg)图片来源：美联社
+根据约翰·霍普金斯大学冠状病毒资源中心的数据，自2020年3月以来，全球已知死亡人数已超过530万人，美国是所有国家中报告死亡人数最多的国家，美国新冠确诊病例也已达5200万。
 
-*素材采编：幽蘭自得*
+欧盟官员表示，到明年1 月中旬，欧米克隆将成为全球新冠病毒的主要变种。
 
-*编辑：青衣青青*
+新闻来源：[https://www.foxnews.com/health/covid-19-pandemic-death-toll-800000-us?utm\_source=ground.news&utm\_medium=referral&gt;](https://www.foxnews.com/health/covid-19-pandemic-death-toll-800000-us?utm_source=ground.news&amp;utm_medium=referral%3E)
 
-*发布：miumiu*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-302.jpeg)
+
+编辑/校对/发稿：文敬
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-7.png)
+
+
+
 
  
 

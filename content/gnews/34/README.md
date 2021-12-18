@@ -2,32 +2,39 @@
 ---
 
 
-## 【中日财经爆】中共报复立陶宛，不许德国车企使用立陶宛零件
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1766805/)
+## 习近平彭丽媛互联网时代以一国之力对政泉和盘古施巫术
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1766833/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/5-25.jpg)[图片来源](https://www.sohu.com/a/213406104_283553)
-路透社12月17日报道，中共为报复立陶宛允许台湾在维尔纽斯设立办事处，中共国向德国汽车零部件跨国公司大陆集团施压，要求其停止使用立陶宛制造的零部件。
+**郭文贵先生：**今天对盘古、对政泉做的事情，今天我告诉大家不叫风水，不是共产党说的假的无神论，它是彻彻底底的一场政治巫术，大家没看明白这问题，是一场大的政治巫术，跟过去汉朝、大汉、商朝，包括司马懿之后的晋朝，还有这个唐朝，最后没落的时候，包括武则天，都是一定是无穷无尽的道士，无穷无尽的所谓的神学之士，而且大量的事情——蛊、惑、妖术、巫术治理朝廷，一点儿都不差。包括大清朝，慈禧最后相信的都是什么这道术、那道术、这山那山，咱就别说了！这公那公都是来了。
 
-大陆集团是全球最大的汽车零部件生产商之一，其客户包括德国所有大型汽车制造商。大陆集团在立陶宛设有工厂，生产车门和座椅控制器等电子零部件，并向包括中共国在内的全球客户出口。
+今天的盘古和裕达，告诉了人类史上最荒唐的事情，在一个讲科学、无神论的共产党治理的天下，个人崇拜、个人独裁和所有的所谓国家主义和民族主义到了最最鼎盛的时候，施行了中国5000年、8000年以来，所有的最愚蠢的政治行为——巫术、蛊术，竟然以一国家之力，在互联网的摄像机的监督下，来做这个事情。
 
-立陶宛政府在上个月允许台湾当局设立“驻立陶宛台湾代表处”。中共方面对此非常愤怒，立即宣布将中立两国外交关系降为代办级，两国关系严重恶化。
+编辑整理：海贼王M.D.LUFFY；
 
-上周有消息说，中共国已要求跨国公司切断与立陶宛的联系，否则将会被中共国市场拒之门外。代表数千家立陶宛公司的立陶宛工业家联盟（LithuaniaConfederationofIndustrialists）证实，一些从立陶宛供应商购买商品的跨国公司已成为中共国的目标。
+视频制作：Cindy；
 
-立陶宛与中共国的直接贸易规模不大，但有数百家公司为中共国销售的跨国公司提供家具、激光产品、食品和服装等。
+视频上传：Cindy；
 
-立陶宛外交部表示:“在立陶宛运营的企业已成功融入国际供应链，因此中共国的经济施压措施可能对在立陶宛运营的企业造成各种干扰。”
+G-News发布：黎明之前；
 
-欧盟委员会星期五表示，如果发现中共违反国际贸易规则的证据，欧盟可能会将中共国和立陶宛之间的贸易争端提交给世界贸易组织（WTO）。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
 
-消息来源:
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-[中共国报复立陶宛再出一拳：不许德国车企巨头使用立陶宛零部件](https://www.voachinese.com/a/China-pressures-Germany-s-Continental-to-cut-out-Lithuania-20211217/6358862.html)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
