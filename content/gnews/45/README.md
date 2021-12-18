@@ -2,50 +2,131 @@
 ---
 
 
-## 如何更好理解《文贵大直播》，以及大直播的意义
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1767660/)
+## 12/18每日播报|社媒消息：蓬佩奥 皮特纳瓦罗
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1767729/)
 
-**【雅典娜观察】与您一起洞察世界**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/maxresdefault-35.jpg)
-**作者：**文明明来了
-**编辑：**翼族
+**By:**[秘翻新闻](https://gtv.org/broadcast/watch/61bda2287882000d5103ae35)
 
-最近几周以来，郭文贵先生连续推动大直播，每期时间都比较长，而且讲的内容很多。对很多战友来说会感觉到天马行空，有些东西听起来也比较玄幻，不知所云，这点就连直播中的嘉宾也常常很迷茫。
+**2021-12-1**8
 
-真实的世界中，眼睛里看到的现象经常是复杂多变的，某一个事件的发展过程可能同时受多个因素共同影响，而产生一个事件的本质原因又是非常简单的。这就是纷繁复杂的事物归纳起来往往几句话，但却很难用简单的几句话来概括那些正在发展中的事物。总结起来，导致文贵大直播比较难懂的原因有以下几个方面：
+1.** 蓬佩奥12月18日发推说： **如果拜登因军人拒绝遵从他的疫苗强制令而让其不光荣地退伍，那么下一任美国共和党总统应使用赦免权，将他们全部恢复为光荣退伍，并邀请他们重新参军。
 
-**一）大直播中提到的很多事情本身就比较复杂**
 
-一个政治事件的发生可能源于几个人的推动，但并不是简单的几个人之间的关系，往往牵涉多股政治势力、多个权力团体的相互推动。启动一个国家机器经常不是一道行政命令，而是涉事政治势力之间的平衡和再平衡，像水波一样经过多个层级传递，到末端执行层，我们可以看到的层面往往已经是另外一个面目，所以只是根据看到的现象进行简单直接的反推，很难回到问题的原点。想看懂这些，做出正确的判断，需要对权力运作的规律非常了解，需要近距离观察过最上层的几个人的性格特点和思维模式，需要熟悉各个相关政治势力的运作方式，需要反应真实情况的情报支持。作为普通人，不太可能拥有这些经历和资源，看得云里雾里，着实正常。
 
-**二）大直播中提到的事件很多不是发生完的历史事件，而是眼前正在发展中的事件**
+> If Biden discharges military members for refusing his forced 'vaccine' w/any discharge other than an honorable discharge, the next GOP President should use the pardon power to restore them all to honorable discharges & invite them to rejoin the military. [https://t.co/hYsim0odmi](https://t.co/hYsim0odmi)
+> — Mike Pompeo (@mikepompeo) [December 17, 2021](https://twitter.com/mikepompeo/status/1471986778894708740?ref_src=twsrc%5Etfw)
 
-一个发展中的事件，往往受所有发生的事件的影响，甚至也包括大直播本身。换句话说，看懂一件事，如果将其说破，可能事件本身也会因为被说破而转入另一形态。这点也是为什么郭文贵先生经常被迫搂住，有些时候后悔自己说得太快，有些时候则说得非常坚决，甚至要付出战友随后被捕的代价。因为直播本身就是战斗，是通过这些主动的信息发布，来改变事态发展的方向。文贵先生多次提到过，直播不是预测，判断来自于情报支持，没有情报的事情不知道就是不知道。看似信马由缰，其实非常严谨，重要的信息发布都是提前写在面前一张纸上的。
 
-**三）直播的另外一个功能是配合国内战友行动**
 
-因为墙的原因，也因为安全的考量，国内重要战友可能不方便也并不需要通过电子设备直接沟通。在关键时刻，把部分信息广播式的散布出去，对方就会心领神会直接配合行动了。文贵先生年轻的时候接受过一些培训，之后和情报工作负责人员耳濡目染，很熟悉这些工作方法。可能很多战友喜欢看谍战片，激烈的战斗场面让你热血沸腾。但其实用心体会，过去几年里真正最高级的谍战就在你面前发生着。你看得云里雾里的原因之一，就是很多信息并不是给你看的，还有很多信息是为另外一些信息打掩护的。
+2.** 皮特纳瓦罗12月18日发推说：** 感谢乔·拜登、美联储主席杰罗姆·鲍威尔 (Jerome Powell)和习近平，感谢刚刚袭击美国的通胀中子弹，美国遭遇了滞涨危机。 【推文转《福克斯》报道，纳瓦罗说：“这场由大流行病驱动、以及政治家糟糕政策制造的通货膨胀灾难，与1970年代由过度刺激的凯恩斯主义政策，所产生的滞涨情况极为相似。拜登取消了基石（Keystone）输油管道扩建项目，冻结联邦土地上的石油和天然气租赁，导致能源价格飙升，推动食品价格上涨，美国的工人阶级和小企业受到了恶性通货膨胀的攻击。美国更大的问题是由食品和能源价格冲击引起的成本推动型通货膨胀压力，以及全球供应链断裂和中共输出其制造的通货膨胀，但美联储没有任何工具来对抗这些东西。应该清楚的是，美国失控的通货膨胀大部分源于这场大流行病，而它几乎肯定是由武汉病毒研究所释放出来的病毒导致的。除非中共坦白说明病毒是如何被基因改造的，否则我们不可能完全解决这一大流行病及其经济后果。我们仍然没有获得该病毒的原始基因组，这是更广泛的大流行病难题的一个关键部分。在中共和福奇坦白真相之前，这将是一条坎坷的滞胀之路。】
 
-**四）还有一个原因在于我们听众（观众）**
 
-我们认识新事物往往是通过自己过去的经历来衡量。对于原本没有见过的事物，特别是一些自己所不能达到维度的事物，就很难去理解。每个人有自己不同的生活背景，有不同的工作领域，不同领域里的人思维方式都是不一样的。而文贵先生展示的很多事物，都是不存在于普通人日常生活范围内的。为什么有很多人相信文贵先生，就是因为他们在自己的领域里管中窥豹看到了文贵先生所说的一切，他们知道文贵先生的真诚，以及内容的真实性。比如，你本人亲自参与过摘取器官、你本人亲自服务过这些人物、你本人参与过一些黑色行动、你本人就是五毛、你本人就替盗国贼转过钱、你本人见过甚至就是盗国贼的私生子，那么你自己就明白这一切看似夸张、看似反人类的事情，可能真的发生过并正在发生中。
 
-不加限制的权力必然带来腐败，无限权力必然带来无限的腐败，无限腐败只会催生逐渐变态的心理。就是对金钱和权力的无限攫取，进而一定要转为对生命延续的不切实际的追求，直到追求逆天转命，为一己欲求践踏一切世间规则。当面临有限生命和无限财富之时，真正能做到的却只是尽享此生和尽播子孙，所以催生了这一切超出常人认知的变态需求。说到底就是一种无法明白又太过明白“生不带来死不带去”的道理。财富能满足欲望的部分带来快乐，而过多财富则是负担，对今天大量持有喜币的战友来说也是如此。这也是文贵先生看透生死看淡财富之后反复和战友们讲述的道理。
+> Thank Joe Biden, Jay Powell, and Xi Jinping for the inflation neutron bomb that just hit America. Good read here if you want to understand the complexities of the stagflation issue.[https://t.co/ngYhmlH7um](https://t.co/ngYhmlH7um)
+> — Peter Navarro (@RealPNavarro) [December 17, 2021](https://twitter.com/RealPNavarro/status/1471930037687496704?ref_src=twsrc%5Etfw)
 
-**五）大直播的意义**
 
-从文贵先生自身的角度上说，可能谈起问题来不是很系统，连他自己也戏称自己跳跃思维。可能确实是教育背景的原因，让文贵先生不习惯非常系统的讲话。但另一方面其实也没法系统，因为文贵先生讲的事情本身结构太过复杂，而面向的听众则各个层次都有，很难做到深入浅出。我相信一对一，甚至一个小范围的座谈，文贵先生的能力绝对可以直接把听众提升若干层次完全听懂。但**用大直播这种形式，面对这么大这么复杂的人群构成，随时直播，直接反应各种问题，同时承担法律责任，还要给观众整体开智，这需要天赋异禀的智慧和缘于本性的真诚才能做到。为何文贵先生的对手不能开直播予以抗衡，是因为他们的假恶丑只能在阳光照不到的地方威胁加利诱，在公平公开公正的平台上面他们什么都不是，正所谓唯真不破。**
 
-黑暗势力所谓的能力只能在阴暗处生存，他们的力量存在于每个人人性的弱点中。他们只能生活在假恶丑的世界里，只能操控信息，利用人性中的弱点，用虚假信息诱导和胁迫人们相信他们，他们所有的信息都是善变的，随时根据情况而改变说辞，永远对信息接受者形成压迫，永远是接受信息好处大于思考质疑，但如果经历一段时间会发现每个节点都滑稽可笑。而**文贵大直播的意义则在于真实，是源自于同一个体系，随着时间的推移可以验证，给人选择相信的机会而不是让人被迫相信**。所以，如果你还看不懂就接着看下去，随着时间的推移你会逐渐开眼界，同框同心，独立思考，自由选择，直到你看到真相，这就是唯真不破的力量。
+3. **国家脉动12月18日在盖特发文：** 前美军官员乔伊·肯特（JOE KENT）说：“是时候让中共为其制造的中共病毒大屠杀作出赔偿了！“ 【盖文转报道，中共正在与我们交战，而这场战争的主要战线是经济领域，中共正在攻击我们。总统拜登等腐败政客已完全被中共收买，导致我们正在输掉这场战争，中共制造的这场大流行病危机令人痛苦地表明了这一点。中共利用廉价的奴工来腐蚀我们的商界精英，全球企业通过向美国消费市场兜售中共国商品发财，而我们在国内生产关键商品的能力被严重削弱和破坏。我们在关键商品上越来越依赖一个敌对国家，这不仅威胁到我们的国家安全，而且损害了我们人民的健康。阿片类药物摧毁了我们最脆弱的公民，并削弱了美国家庭的成长。中共深度介入我们的资本市场，是我们债券的最大购买者。中共利用美国的法律漏洞，购买了19万多英亩的美国优质农业用地，这是他们购买关键土地和港口以获取自然资源的战略的一部分。我们现在需要采取大胆行动，捍卫我们的国家主权，反击中共。首先，我们要让中共就其释放的病毒向美国人民作出赔偿：没收中共在美国拥有的土地、没收中共在资本市场的资产、并利用关税来削弱中共对我们经济的控制。为了实现这一目标，我们需要对付我们自己的精英阶层。他们将制造业送往中共国，并将我们投资于华尔街的养老基金送给中共。为了反击，我们必须使制造业复苏，并振兴自然资源产业。坚持“美国优先“政策，把国家安全和美国中心地带的工人阶级家庭放在第一位。美国不仅仅是一个为全球精英阶层致富而存在的经济体，更是一个深深关心我们人民的主权国家。】
 
-*发布：翼族*
+[https://gettr.com/post/pjxfxi0b61](https://gettr.com/post/pjxfxi0b61)
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+4. **媒体人士 克雷·特拉维斯（Clay Travis） 12月17日发推说：** 全美橄榄球联盟NFL有95%的人接种了新冠疫苗，全美职业篮球联盟NBA的接种率高达 97%，全美冰球联盟NHL几乎100%接种了疫苗。但这三个联盟仍然新冠疫情泛滥，而且新增的新冠病例数创下新高。那么政府为何说疫苗将终结大流行病呢？职业体育联盟的现状就足以证明这是100%的谎言。
 
+
+
+> The NFL is 95% vaccinated, the NBA is 97% vaccinated, the NHL is nearly 100% vaccinated. All three leagues are still overwhelmed with covid cases & hitting new covid case highs. So how is [@JoeBiden](https://twitter.com/JoeBiden?ref_src=twsrc%5Etfw) arguing vaccines will end covid? The pro sports leagues prove that’s 100% a lie.
+> — Clay Travis (@ClayTravis) [December 17, 2021](https://twitter.com/ClayTravis/status/1471635387550519298?ref_src=twsrc%5Etfw)
+
+
+
+5. **莲心不染12月17日发推说：** 139 项高质量研究证实了的新冠患者获得的自然免疫力的优越性： 自然获得性免疫： 1.效力等于或优于疫苗 2.持久的保护力 3. 与疫苗不同，它预防病毒的所有变异，而不仅仅是某个变异 4. 接种疫苗的人与未接种疫苗的人一样具有很高的病毒载量，同样具有传染性 5. 个人保护用品和口罩在医疗保健环境中基本上无效 6. 新冠疫苗导致病毒传播更容易、传播速度更快，以及产生更多和“更厉害”的变种
+
+
+
+> 139 Research Studies Affirm Naturally Acquired Immunity to Covid-19
+> 
+> naturally acquired immunity：
+> 1. equal to or better than vaccines
+> 2. long lasting
+> 3. protecting against the virus, not just a specific variant, unlike vaccine[https://t.co/TKkBvZH64C](https://t.co/TKkBvZH64C)
+> — PureLotusHeart莲心不染 (@PureLotusHeart1) [December 17, 2021](https://twitter.com/PureLotusHeart1/status/1471716214955196416?ref_src=twsrc%5Etfw)
+
+
+
+6. **新唐人12月17日在盖特发文：** “如果台湾落入中共之手，日本将完全被孤立和分割。第一条岛链将被突破。” 前美国外交官司徒文 (William Stanton)说，如果台湾被中共夺走，对美国来说将是一场灾难，华盛顿需要为这个自治岛屿的防卫做更多的工作。 【盖文转报道，司徒文说：“我们有巨大的战略利益，如果美国不想失去整个东亚，那么就必须参与到这场战斗中。北京推动将台湾纳入其版图是出于战略原因，而不仅仅是民族主义。中共的霸权主义愿望，希望通过占领台湾获得更多的权力和更多的军事力量。我建议在导弹事项方面，华盛顿应该取消对台湾的所有导弹技术控制制度（MTCR）限制。台湾需要更多的远程导弹作为一种威慑。“】
+
+[https://gettr.com/post/pjw4v0605e](https://gettr.com/post/pjw4v0605e)
+
+7. **DarrenB 12月17日转发Resist the Mainstream的报道说：** 德克萨斯州长格雷格·阿博特 (Greg Abbott) 告诉五角大楼，他不会执行拜登政府的疫苗强制令，给德州的国民警卫队强制接种疫苗。 阿博特12月16日致函美国国防部长劳埃德·奥斯汀 (Lloyd Austin)，明确表示他不会强制给该州的军人接种疫苗。阿博特说：“如果那些未接种疫苗的卫兵在德州遭受任何副作用，他们只能将其归咎于拜登总统及其政府。德州不会对其卫兵实施最新的疫苗强制令。如果联邦政府继续威胁要削减德州国民警卫队的经费，作为州长，我将动用一切可用的法律工具，来捍卫这些美国英雄。”奥斯汀部长最近威胁说，如果各州不遵守规定，将切断联邦对未接种疫苗的卫兵的资助，但阿博特仍然毫不畏惧地坚持自己的立场。
+
+[https://gettr.com/post/pjwvqga569](https://gettr.com/post/pjwvqga569)
+
+8. **网关专家12月17日在盖特发文：** 调查显示，在挪威，圣诞晚宴后感染新冠的人中，98%的人已完全接种了新冠疫苗。 【该文转报道，挪威公共卫生研究所NIPH在网站上公布了此次调查的结果摘要：在室内密切接触的社交环境中，奥米炕变种在完全接种疫苗的成年人中具有很高的传播能力；在对111名参加了圣诞晚宴的受访者进行调查后发现，74% 的人事后被诊断出患有新冠病毒，其中的60%确认感染了奥米炕变种；大多数病例的症状轻微，迄今为止没有人住院；超过 70% 的病例报告了以下症状：咳嗽、流鼻涕/鼻塞、嗜睡和喉咙痛，此外，50%的病例有发烧症状。挪威公共卫生研究所根据初步调查得出的结论是，奥米炕变种的传染性更强，在这次爆发的病例中，没有严重感染的迹象。】
+
+[https://gettr.com/post/pjwz4i51ff](https://gettr.com/post/pjwz4i51ff)
+
+9. **盖特官方12月18日在盖特发文： **前美国众议员肖恩·达菲 (Sean Duffy)在接受福克斯采访时说：“盖特是推特杀手。这里有言论自由，每个人都在那里，这是最好的平台。”
+
+[https://gettr.com/post/pjx00c5423](https://gettr.com/post/pjx00c5423)
+
+10. **盖特CEO杰森米勒12月17日表示**，在德国，言论自由正在我们的眼前消失，这应该让每个人感到担忧。 盖特官方12月17日表示：12月14日这天，德国注册盖特的人数比世界上任何其他国家都要多。这个迹象明确无误地表明，德国公民多么渴望自由，盖特已成为这些人想要使用的媒体平台。 盖特全球通讯主管埃博尼·博登12月18日发推说，大新闻！德国选择党从明年1月起将正式开始使用盖特，这样他们就可以在没有大科技公司审查的情况下，分享他们的平台和政策想法。言论自由是一个全球性的问题，我为我们致力于捍卫思想交流的工作感到自豪。
+
+
+
+> Free speech in Germany is being eliminated in front of our very eyes, and this should worry everybody.
+> 
+> My latest op-ed for [#jungefreiheit](https://twitter.com/hashtag/jungefreiheit?src=hash&amp;ref_src=twsrc%5Etfw)![#Gettr\_De](https://twitter.com/hashtag/Gettr_De?src=hash&amp;ref_src=twsrc%5Etfw) [#GETTR](https://twitter.com/hashtag/GETTR?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/D6SH9W3HGc](https://t.co/D6SH9W3HGc)
+> — Jason Miller (@JasonMillerinDC) [December 17, 2021](https://twitter.com/JasonMillerinDC/status/1471822131684118536?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> "On Dec 14th, more people registered [on GETTR] in [#Germany](https://twitter.com/hashtag/Germany?src=hash&amp;ref_src=twsrc%5Etfw) than in any other country in the world…This is an unmistakable sign of how much the German citizens thirst for freedom and that [#GETTR](https://twitter.com/hashtag/GETTR?src=hash&amp;ref_src=twsrc%5Etfw) has become a main goal of these people." 🇩🇪[https://t.co/x3TOu1EX9x](https://t.co/x3TOu1EX9x)
+> — GETTR (@GETTRofficial) [December 17, 2021](https://twitter.com/GETTRofficial/status/1471860990803329024?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> Huge, huge news! Germany's [@AfD](https://twitter.com/AfD?ref_src=twsrc%5Etfw) party will officially begin using [#GETTR](https://twitter.com/hashtag/GETTR?src=hash&amp;ref_src=twsrc%5Etfw) from January so they can share their platform and policy ideas without Big Tech censorship. Free speech is a global issue and I'm proud of the work we are going to defend the exchange of ideas.
+> — Ebony Bowden (@ebonybowden) [December 17, 2021](https://twitter.com/ebonybowden/status/1471875831404404741?ref_src=twsrc%5Etfw)
+
+
+
+11. **洛杉矶时报驻北京记者苏奕安 12月18日发推说：** 路透社的这篇特别报道说，亚马逊为了在中共国销售kindle和云服务，向中共绥靖，包括将习近平的书作为“畅销书“来宣传，审查中共的宣传电影的评论，以及向当局提供异议人士的IP地址。
+
+
+
+> Fantastic ⁦[@Reuters](https://twitter.com/Reuters?ref_src=twsrc%5Etfw)⁩ reporting on how Amazon bent over backwards to sell kindle & cloud services in China, including by promoting Xi’s books as “best sellers,” censoring reviews of propaganda films & providing a dissident’s IP address to authorities [https://t.co/0PND5vi4yE](https://t.co/0PND5vi4yE)
+> — Alice Su (@aliceysu) [December 17, 2021](https://twitter.com/aliceysu/status/1471890179723911169?ref_src=twsrc%5Etfw)
+
+
+
+12. Disclose.tv 12月18日发推说： 辉瑞正在测试给5岁以下的婴儿和学龄前儿童接种第三针疫苗，因为研究显示，对一些儿童来说，两针似乎不能提供足够的保护力。
+
+
+
+> NEW – Pfizer is now testing 3 injections of its [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) jab in babies and preschoolers. 2 shots didn’t "appear strong enough for some." (Sky)
+> — Disclose.tv (@disclosetv) [December 18, 2021](https://twitter.com/disclosetv/status/1472021803782578178?ref_src=twsrc%5Etfw)
+
+
+
+13. **郭文贵先生在12月17日的大直播中说：** 共产党为何要在此时搞盘古、裕达？因为习近平和彭丽媛等人极度迷信，认为裕达是中原佛手、是文贵先生的根器，必须在壬水寅虎年前干掉裕达。盘古龙头变鸟头、龟头的根本原因也是习、王等人迷信，相信盘古阳龙会对属虎的彭丽媛造成绝对威胁，所以必须在壬水寅虎年到来前搞掉盘古龙头。
+
+[https://gettr.com/post/pjyhvx84f2](https://gettr.com/post/pjyhvx84f2)
+
+[https://gettr.com/post/pjyah77fda](https://gettr.com/post/pjyah77fda)
+
+以上社交媒体新闻由 巴拉克和Stephanie 联合编译报道
+
+发布:陸柒陸捌
+
+* * *
+
+**By 【秘密翻译组-即时新闻播报组】**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/招募-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
