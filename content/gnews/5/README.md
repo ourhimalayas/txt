@@ -2,33 +2,38 @@
 ---
 
 
-## 12/18每日播报｜CECC主席敦促NBC报道冬奥会时不要成为中共的外宣工具
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1767799/)
+## 又一中共房企世茂集团被曝陷入债务困境
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1767805/)
 
-**By:[秘翻新闻](https://gtv.org/broadcast/watch/61b85c7e56f4921401b77b8b)**
+作者：银河勇气星 – 骄子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-08-30-at-7.37.59-PM-2.png)
+据外国媒体报道，12月14日，中共最大房地产开发商之一世茂集团的股价下跌了创纪录的20%，原因是它正在出售资产来管理不断攀升的债务。据墙内媒体12月17日最新消息，其总负债额已达到4,636亿元，其中短期借款为444.43亿元，应付账款及票据为874.04亿元，而其账上的现金及现金等价物仅有747.69亿元。
 
-**2021-12-1**8
+![](https://assets.gnews.org/wp-content/uploads/2021/12/10-7.jpg)
 
-据《美国之音》12月17日报道，12月16日，美国国会暨行政当局中国委员会CECC的两党领袖致函北京冬奥会美国独家转播商——全国广播公司NBC的主管，敦促NBC在转播这场在“种族灭绝”国家中举行的奥运会时，报道中共政府侵犯新疆维吾尔人人权、镇压香港民主等暴行。
+郭先生曾反复提及，中共国的房地产债务数额巨大，且债务人从未想过偿还。一旦引爆，将不可避免地拖垮国内银行、保险等其他金融业，进而冲击中共整体经济。并因与世界主要国家千丝万缕的联系，使暴雷向世界各地蔓延，累及全球经济，引发金融海啸。
 
-致函人包括CECC主席、参议员杰夫·默克利 (Jeff Merkley)和共同主席、众议员吉姆·麦克高文 (Jim McGovern)。他们在写给NBC首席执行官杰夫·谢尔（Jeff Shell）的公开信中要求NBC承诺对中共的暴行进行背景报道，并敦促中共当局在奥运会报道期间公开申明媒体自由和宗教自由。
+几个月内，恒大、阳光100、花样年等中共知名房企接连被曝出债务违约，无法偿还，现在又加上世茂集团，中共正在不断逼近断崖崩溃的边缘。
 
-公开信特别强调，中共政府希望宣传中共国少数民族的“幸福”，以此掩饰其在新疆地区的“罪行”，NBC要避免播放维吾尔人和其他少数民族身着传统服饰的画面，也不应使用中共政府用来宣传新疆维吾尔自治区的官方画面，拒绝配合中共的大外宣工作。
+参考链接：
 
-默克利和麦戈文在信中说：“NBC及其附属机构在北京冬奥会上投资了近10亿美元，这意味着该组织有责任应对中共侵犯人权行为的影响。运动员、后勤保障和媒体成员将来到一个正在发生种族灭绝的国家，在遵循《奥林匹克宪章》、促进‘对普遍基本伦理原则的尊重’的过程中，NBC必须考虑这对北京奥运会的参与者和中共国公民意味着什么。”
+- [China housing market slumps again as another developer runs into trouble](https://www.theguardian.com/world/2021/dec/15/china-housing-market-slumps-again-as-another-developer-runs-into-trouble)
+- [4636亿总负债压顶，世茂集团陷违约风波！许荣茂能否渡过难关？](https://baijiahao.baidu.com/s?id=1719378622215618170&amp;wfr=spider&amp;for=pc)
 
-公开信说：“CECC坚决支持美国队以及美国运动员参加即将到来的奥运会，但NBC不能将美国运动员的新闻事件与中共政府为掩盖它们的反人类罪行而进行的粉饰描述相提并论。
 
-中共政府企图利用奥运会提升其执政合法性，再一次用体育来洗刷对新疆、香港、西藏和国外的少数民族、公民社会活动者和政治异议人士者的恶行。作为美国的奥运会转播商，我们敦促NBC不要替中共做宣传！”
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
 
-秘翻新闻主编 巴拉克 编辑报道
+总编：Irene木木
+编辑：飞虹
+校正/发稿：海阔天空1
 
-发布：文小明
-
-* * *
-
-**By 【秘密翻译组-即时新闻播报组】**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/招募-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,28 +2,28 @@
 ---
 
 
-## 美新任驻中共国大使伯恩斯：谨防中共侵犯台湾
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1767691/)
+## 日本研究所探究为何日本病例较少 或为解决中共病毒提供新思路
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1767763/)
 
-作者：纽约香草山医疗部 – 云豹
+作者：日本方舟农场 – Andy5
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-08-30-at-7.37.59-PM-3.png)
-当地时间12月16日，美国联邦参议院通过伯恩斯出任驻中共国大使的任命提案。伯恩斯10月在提名听证会上表示，中共具侵略性且不可信任，美国必须做的优先事项是强化台湾的防卫力量，防止中共侵犯台湾。
+12月8日，日本大型研究机构理化学研究所发布报告，证实中共病毒与引发普通感冒的季节性冠状病毒存在相同的抗原表位，该种抗原表位能够激活人体产生特定的杀手T细胞，这种细胞可以杀灭病毒。在日本人体内，有一种特殊的HLA-A24型白血球抗原，这种抗原能够跟杀手T细胞结合，形成人体的免疫记忆。在日本人患普通感冒以及2003年的非典时期，这种抗原已经使日本人体内产生能应对中共病毒的杀手T细胞并形成了免疫记忆，因而整体来看，日本人感染病例总数低于全球其他国家。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/6-35.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/8-22-scaled.jpg)
 
-伯恩斯曾担任国务次卿，亲眼见证香港主权移交。他说：「在台湾议题上，我们显然不能相信中共会履行他们的承诺」。
-
-伯恩斯说，美国国会与行政部门完全有权深化美国与台湾之间的安全合作。美国必须要把台湾变得坚不可摧。透过台湾关系法、对台六项保证等法律，向台湾提供武器，协助台湾提升不对称防卫战力，并建议其他国家也能效法。
+分析人士指出，这份研究在免疫学层面为寻找中共病毒感染机制以及应对机制提供了一个新的方向。
 
 参考链接：
 
-- [勃恩斯主張抗中挺台 獲美參議院同意任駐中大使](https://www.cna.com.tw/news/firstnews/202112170015.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+- [新型コロナウイルスに殺傷効果を持つ記憶免疫キラーT細胞](https://www.riken.jp/press/2021/20211208_1/)
+- [https://www.gettr.com/post/pjslracaa9](https://www.gettr.com/post/pjslracaa9)
+- [https://twitter.com/ZionaEmanuel/status/1471504538221760520?s=20](https://twitter.com/ZionaEmanuel/status/1471504538221760520?s=20)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
 
-总编：Irene木木
-编辑：Jack Li文阳
+总编：飞虹
+编辑：飞虹
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
