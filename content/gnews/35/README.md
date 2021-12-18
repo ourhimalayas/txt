@@ -2,30 +2,47 @@
 ---
 
 
-## 突发：第六巡回法院支持拜登政权的强制疫苗规定
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1766682/)
+## “全球灭共大游行”，战友们要做好“三防两准备”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1766687/)
 
-**撰稿：Grace**
+撰稿人：纽约香草山农场 Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-8.png)
+在2021年12月15日大直播中，郭文贵先生提醒参加“新中国联邦全球灭共大游行”的战友们，要提前做好“三防两准备”。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-906.png)
+“三防”，
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-11-16-at-10.58.19-PM.jpeg)图片来源：ussanews
-据The Gateway Pundit 12月17日报道，拜登政府的职业安全与健康管理局(OSHA)的强制疫苗规定被分配到美国第六巡回上诉法院 （the 6th US Circuit Court of Appeals），这是在第五巡回法院停止了该规定后的一次乒乓式的抽签。
+第一防，防止病毒感染。目前，欧米克隆新变种病毒肆虐全球，战友上街游行务必做好预防工作。
 
-拜登除了要求所有210万联邦雇员接受中共病毒疫苗注射或面临解雇之外，在 9月，拜登政权还要求所有拥有100名以上雇员的公司对工人每周进行中共病毒测试或证明他们已经接种了中共病毒疫苗。
+第二防，防止中共的海外华人组织故意设置法律陷阱，引诱战友做出违法行为。
 
-不遵守拜登政权的中共病毒疫苗规定的小企业将面临巨额罚款。
+第三防，对于国内还有家人的战友，中共一定会追查，并对家人实施威胁。战友们一定不能妥协，不给中共可乘之机。
 
-在11月6日，美国第五巡回上诉法院对拜登政府的强制中共病毒疫苗规定发布了临时禁令。随后，在11月23日，拜登政府的司法部向美国第六巡回上诉法院提出诉讼，要求第六巡回法院解除第五巡回法院的暂停令。
+“两准备”，
 
-可是，拜登政权的上诉被第六巡回上诉法院12月3日周五的时候给驳回了。
+第一，所有参与游行活动的战友一定要做好准备，从这次游行活动正式启动，直到中共被灭的这段时间内，所有参与游行活动的战友将无法回到国内。除了威胁家人，中共还会对战友进行各种骚扰。
 
-然而，在2-1的投票中，三位法官组成的小组允许拜登政权的职业安全与健康管理局对100人以上的私人雇主的强制疫苗规定生效。
+第二，所有参加游行活动的战友，一定要随身携带预防和治疗病毒的药物，伊维菌素，青蒿素等。
 
-多数人投了赞成票。法官朱莉娅·吉本斯（Julia Gibbons）（乔治-W-布什推荐）、简·斯特兰奇 （Jane Stranch）（巴拉克-奥巴马推荐）投了赞成票。琼·拉森 （Joan Larsen）（川普总统推荐）投了反对票。
+郭先生提醒，只有在物资上和心理上做好充分的准备，才能应对各种复杂的情况，否则，不要轻易上街。
 
-报道称，第六巡回法院表示，职业安全与健康管理局有权保护工人免受病毒侵害。
+链接：[2021年12月15日 文贵大直播](https://gtv.org/video/id=61b9e8037882000d5100be68)
 
-**新闻来源：**[Breaking: 6th Circuit Court Upholds Joe Biden’s OSHA Vaccine Mandate](https://www.thegatewaypundit.com/2021/12/breaking-6th-circuit-court-upholds-joe-bidens-osha-vaccine-mandate/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
+
+总编：文真
+
+编辑：雪梨
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-8.png)
+
 
  
 
