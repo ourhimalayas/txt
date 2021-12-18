@@ -2,56 +2,28 @@
 ---
 
 
-## 灭共者之郭氏情报站（四）12月17日版
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1769041/)
+## 蓬培奥要迁址冬奥 美奥委会主席让调查彭帅事件
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1769199/)
 
-**出品：纽约香草山设计部**
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/12/B-9.jpg)majesticpr.com
+在蓬佩奥前国务卿继续呼吁2022冬奥会迁址移地后，美国奥委会主席昨天（12月17日）也要求中共调查彭帅的指控。
 
+蓬卿在前天的推文里指出，奥运会应该在一个全世界都能够引以为豪的地方举办【1】，推文链接了《每日电讯》（daily wire）的文章，“蓬佩奥：拜登外交抵制冬奥‘还远远不够’”【2】，文章说，蓬佩奥前国务卿批评了乔·拜登决定以外交抵制 2022 年冬季奥运会来打击中共的方式，认为此举“做得还不够”，应该全面抵制北京奥运会。文章引用蓬卿曾经发表过的言论，中共不应因种族灭绝和无视基本人权而受到奖励， 全面抵制北京奥运会符合我们运动员的健康和安全的最佳利益。中共消失了报道武汉病毒的记者、讲述中共病毒实验室真相的医生、优秀的网球运动员、维吾尔人、香港人以及国际刑警组织的负责人，我们应该让奥运会从他们手中消失，把奥运会放在一个世界可以引以为豪的地方举行。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+是不是在响应蓬佩奥国务卿，笔者没有太高的期待，疑似亲共的美国奥委会在不去完全抵制的情况下，似乎在以另一种方式指责中共，奥委会主席苏珊·莱昂斯（Susanne Lyons）发话，“彭帅的性侵指控必须调查”。《新闻关注》（news concerns）转载、报道了这则消息【3】，文章说，距离北京冬奥会开幕还有七周的时间，美国奥委会和残奥委员会领导人批评了中共国最近处理一名明星运动员性侵指控的做法。该组织主席苏珊·莱昂斯周五（12月17日）在今年最后一次董事会会议后与新闻媒体的电话会议上表示，“我认为这是一个可悲的情况，在过去几年中，美国奥委会经历过最重要的一个教训是，不仅要倾听被虐待幸存者的声音，还要相信他们，保护他们免遭报复。因此，这一点非常重要。”至少是在作样子吧，这是拜登政府在派出运动员参会前，受到蓬佩奥等有识之士压力下的回应，作表面文章。
 
+截止发稿时，欧盟的抵制情况没有新的进展。
 
+原文链接：
 
+【1】[https://twitter.com/mikepompeo/status/1471490375617417221](https://twitter.com/mikepompeo/status/1471490375617417221)
 
+【2】[https://www.dailywire.com/news/pompeo-bidens-diplomatic-boycott-of-winter-olympics-does-not-go-far-enough](https://www.dailywire.com/news/pompeo-bidens-diplomatic-boycott-of-winter-olympics-does-not-go-far-enough)
 
-
-
-
-
-## **灭共者之郭氏情报站- 2021年12月17日，文贵大直播总结提炼：**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/33B84B1C-1BD2-45C0-8159-D4D1F4B768C8.png)
-1、中共国内经济危机：公司倒闭，爆发裁员潮、失业潮；出口增长难以持续；经济数据造假；房地产危机，劣质吃掉优质；方正证劵接管郑州裕达。 
-2、“习太阳”面临困境 ，极其恐惧、极度失望，加速死亡；彭副主席上位，是摊牌，是家天下正式登场，是习包子快死了！畏惧盘古龙，对道家迷信巫术相信，认为虎年是对彭丽媛的挑战，把龙头变鸟头，是相信风水，相信裕达佛手；明年是虎年，彭属虎，“龙虎相斗，必有一伤”，什么都逃不过佛主之手，是一场风水大战。 
-3、疫苗大灾难，疫苗接种的疯狂；儿童打疫苗对民众的巨大冲激；强制疫苗2个月一定会停止。新病毒Omicron，对有污染地区、有打过疫苗的，有其它病史的人群致死率、致病率都是最大的，打过疫苗会加速染病。只有新中国联邦保护我们素不相识的战友。
-
-**上一期：**
-
-[**\[郭氏情报站 （三）12月12日/12月15日版 – GNEWS\](https://gnews.org/zh-hans/1759084/)**](https://gnews.org/zh-hans/1741507/)
-
-
-
-**编辑/发稿：小鹿**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-2.png)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
-
+【3】[https://newsconcerns.com/u-s-olympic-leader-peng-shuais-sexual-assault-charge-must-be-investigated/](https://newsconcerns.com/u-s-olympic-leader-peng-shuais-sexual-assault-charge-must-be-investigated/)
 
  
 

@@ -15,122 +15,122 @@
 
 ---
 
-### [12/18/2021 文贵盖特：大家要小心奥米炕，传播快、并发症多，备好伊维菌素和青蒿素](/content/gnews/1/README.md)
- ` 秘密翻译组-北美组`
-
-### [一种政治病毒，起源于中共习近平的恐怖政权和集权统治](/content/gnews/2/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [严重饥荒：阿富汗的人道主义危机正在恶化](/content/gnews/3/README.md)
- ` 墨尔本雅典娜农场`
-
-### [反对强制疫苗政策，墨尔本民众坚持不懈抗议集会](/content/gnews/4/README.md)
- ` 墨尔本雅典娜农场`
-
-### [《上观新闻》辟谣“上海未婚妈妈可以领生育金……”的真相](/content/gnews/5/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [中共房地产金融骗局](/content/gnews/6/README.md)
- ` 纽约香草山MOS03`
-
-### [中植系大鳄谢直锟猝然离世，万亿帝国谁掌管](/content/gnews/7/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [有声|疫苗强制令下卡车司机流失引发供应链问题](/content/gnews/8/README.md)
- ` MOSREC`
-
-### [有声|央企离京潮加速，上海正在“东北化”](/content/gnews/9/README.md)
- ` MOSREC`
-
-### [有声|日本加快推进辉瑞的药品供应](/content/gnews/10/README.md)
- ` MOSREC`
-
-### [蓬培奥要迁址冬奥 美奥委会主席让调查彭帅事件](/content/gnews/11/README.md)
- ` HimalayaRussia`
-
-### [独家:中共国监管部门的下一个打击对象-互联网证券商](/content/gnews/12/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [爆料革命日记（七）: 感·触](/content/gnews/13/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [俄罗斯喀秋莎农场12月18日直播生的计划死的随机](/content/gnews/14/README.md)
- ` HimalayaRussia`
-
-### [对拜登政府疫苗强制令的法律战或将打至美国最高法院](/content/gnews/15/README.md)
- ` 日本东京方舟农场`
-
-### [有声|美参议院通过国防授权法应对中共威胁](/content/gnews/16/README.md)
- ` MOSREC`
-
-### [灭共者之郭氏情报站（四）12月17日版](/content/gnews/17/README.md)
- ` MOS Designer香草山设计部`
-
-### [隐宫习近平曾强戴绿帽，跪哭求痴判妻归](/content/gnews/18/README.md)
+### [从毛阿敏老公解直锟心梗猝死，探知中共新一轮土改、肃反运动](/content/gnews/1/README.md)
  ` YALUN 亚伦`
 
-### [郭先生：打过疫苗的人很大概率死亡或得癌症](/content/gnews/19/README.md)
- ` MG 澳喜农场多语组`
+### [CDC 刚刚警告说，到圣诞节前每周将有 15,000 名美国人死亡； 但实际上，正如独立医生一直告诉我们的那样，疫苗死亡正在加速](/content/gnews/2/README.md)
+ ` 温哥华圆成农场🇨🇦`
 
-### [新中国联邦的视野不在地球，将成为所有人的依靠](/content/gnews/20/README.md)
- ` MG 澳喜农场多语组`
+### [文件显示，华为与中共在新疆的间谍活动有关](/content/gnews/3/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [上诉法院允许拜登政府对大型雇主执行疫苗规则](/content/gnews/21/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [上诉法院恢复拜登对企业的疫苗授权，可能会在最高法院摊牌](/content/gnews/4/README.md)
+ ` 温哥华圆成农场🇨🇦`
 
-### [英国对美国的Omicron发出警告](/content/gnews/22/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [12/17/2021 文贵直播：习近平决心走北朝鲜之路来统治中国](/content/gnews/23/README.md)
+### [12/18/2021 文贵盖特：大家要小心奥米炕，传播快、并发症多，备好伊维菌素和青蒿素](/content/gnews/5/README.md)
  ` 秘密翻译组-北美组`
 
-### [中共政权对美国进行超限战的演化](/content/gnews/24/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [【Michael.Tonny专栏】英格兰未成年人死于中共病毒感染概率和被雷劈差不多](/content/gnews/25/README.md)
- ` 温哥华扬帆农场`
-
-### [证据表明 Covid病毒疫苗阻止群体免疫 延长了病毒‘大流行’ -1](/content/gnews/26/README.md)
+### [新变体病毒奥米克戎Omicron似乎只传染已完全接种疫苗的人](/content/gnews/6/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [疫苗接种率最高的纽约州病毒感染病例连创新高](/content/gnews/27/README.md)
+### [一种政治病毒，起源于中共习近平的恐怖政权和集权统治](/content/gnews/7/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [【墙内新闻】网传西安突发大面积出血热感染](/content/gnews/8/README.md)
+ ` 温哥华扬帆农场`
+
+### [严重饥荒：阿富汗的人道主义危机正在恶化](/content/gnews/9/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [反对强制疫苗政策，墨尔本民众坚持不懈抗议集会](/content/gnews/10/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [《上观新闻》辟谣“上海未婚妈妈可以领生育金……”的真相](/content/gnews/11/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [中共房地产金融骗局](/content/gnews/12/README.md)
+ ` 纽约香草山MOS03`
+
+### [中植系大鳄谢直锟猝然离世，万亿帝国谁掌管](/content/gnews/13/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [有声|疫苗强制令下卡车司机流失引发供应链问题](/content/gnews/14/README.md)
+ ` MOSREC`
+
+### [有声|央企离京潮加速，上海正在“东北化”](/content/gnews/15/README.md)
+ ` MOSREC`
+
+### [有声|日本加快推进辉瑞的药品供应](/content/gnews/16/README.md)
+ ` MOSREC`
+
+### [蓬培奥要迁址冬奥 美奥委会主席让调查彭帅事件](/content/gnews/17/README.md)
  ` HimalayaRussia`
 
-### [儿童注射辉瑞疫苗后确认有心肌炎症状](/content/gnews/28/README.md)
+### [独家:中共国监管部门的下一个打击对象-互联网证券商](/content/gnews/18/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [爆料革命日记（七）: 感·触](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美国在首次公开募股前将人工智能公司“商汤科技”列入黑名单](/content/gnews/29/README.md)
+### [俄罗斯喀秋莎农场12月18日直播生的计划死的随机](/content/gnews/20/README.md)
+ ` HimalayaRussia`
+
+### [对拜登政府疫苗强制令的法律战或将打至美国最高法院](/content/gnews/21/README.md)
+ ` 日本东京方舟农场`
+
+### [有声|美参议院通过国防授权法应对中共威胁](/content/gnews/22/README.md)
+ ` MOSREC`
+
+### [灭共者之郭氏情报站（四）12月17日版](/content/gnews/23/README.md)
+ ` MOS Designer香草山设计部`
+
+### [隐宫习近平曾强戴绿帽，跪哭求痴判妻归](/content/gnews/24/README.md)
+ ` YALUN 亚伦`
+
+### [郭先生：打过疫苗的人很大概率死亡或得癌症](/content/gnews/25/README.md)
+ ` MG 澳喜农场多语组`
+
+### [新中国联邦的视野不在地球，将成为所有人的依靠](/content/gnews/26/README.md)
+ ` MG 澳喜农场多语组`
+
+### [12/17/2021 文贵直播：习近平决心走北朝鲜之路来统治中国](/content/gnews/27/README.md)
+ ` 秘密翻译组-北美组`
+
+### [中共政权对美国进行超限战的演化](/content/gnews/28/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2021年12月17日郭文贵先生直播全文字版](/content/gnews/30/README.md)
+### [疫苗接种率最高的纽约州病毒感染病例连创新高](/content/gnews/29/README.md)
+ ` HimalayaRussia`
+
+### [儿童注射辉瑞疫苗后确认有心肌炎症状](/content/gnews/30/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [2021年12月17日郭文贵先生直播全文字版](/content/gnews/31/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [中共嫖娼就是哲学概念 超越人类](/content/gnews/31/README.md)
+### [中共嫖娼就是哲学概念 超越人类](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中国企业家带上五角帽也永远不是赵家人](/content/gnews/32/README.md)
+### [中国企业家带上五角帽也永远不是赵家人](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [标普全球调降恒大至“选择性违约”](/content/gnews/33/README.md)
+### [标普全球调降恒大至“选择性违约”](/content/gnews/34/README.md)
  ` GTV新闻访谈`
 
-### [103名海军陆战队队员因拒绝新冠疫苗被开除](/content/gnews/34/README.md)
+### [103名海军陆战队队员因拒绝新冠疫苗被开除](/content/gnews/35/README.md)
  ` GTV新闻访谈`
 
-### [GTV新闻访谈简报|2021年12月18日早](/content/gnews/35/README.md)
+### [GTV新闻访谈简报|2021年12月18日早](/content/gnews/36/README.md)
  ` 纽约香草山MOS01`
 
-### [12/18/2021国际财经快讯：美联储3月会议上可能会加息;标普500消极一周后收跌](/content/gnews/36/README.md)
+### [12/18/2021国际财经快讯：美联储3月会议上可能会加息;标普500消极一周后收跌](/content/gnews/37/README.md)
  ` 秘密翻译组金融团队`
 
-### [美国制裁中共的几大重招](/content/gnews/37/README.md)
+### [美国制裁中共的几大重招](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [众议院因强迫劳动问题投票禁止从新疆进口](/content/gnews/38/README.md)
+### [众议院因强迫劳动问题投票禁止从新疆进口](/content/gnews/39/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [12/18每日播报｜新闻简讯：主流媒体曝 科学研究证明疫苗无用](/content/gnews/39/README.md)
- ` 秘密翻译组-即时新闻播报组`
 
 ### [也给共匪掐指一算（二）](/content/gnews/40/README.md)
  ` 骄子`
