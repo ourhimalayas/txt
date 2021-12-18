@@ -2,21 +2,28 @@
 ---
 
 
-## 共产党张牙舞爪的日子到头了 欧盟开始抵制中共
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1768522/)
+## GTV新闻访谈简报|2021年12月18日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1768548/)
 
-文编：东京樱花团/樱花传媒
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-3.jpg)
 
-视频:东京樱花团/中文小视频组
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-18.png)
+文章仅代表作者本人观点，与Gnews无关
 
-12月10日，郭文贵先生在GTV大直播指出：
+视频参看：[2021.12.18早GTV新闻访谈](https://gtv.org/video/id=61bde1e97882000d5103cbb6)
 
-虽然中共对欧洲及日本进行了强硬威胁，但代表欧盟的四个国家已明确表态抵制北京冬奥会，并在WTO对中共国人权等问题发出抗议，日本也在改变态度。与此同时，俄罗斯也明确表明，不要把乌克兰和台湾问题相提并论，病毒、疫苗问题与俄罗斯没有任何关系。这两个重磅炸弹直对中共的心脏。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-编辑：东京樱花团/墨然
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWSLOGO20211207.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/calendar.jpeg)
 
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

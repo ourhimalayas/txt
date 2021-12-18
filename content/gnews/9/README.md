@@ -2,42 +2,59 @@
 ---
 
 
-## 【Michael.Tonny专栏】英格兰未成年人死于中共病毒感染概率和被雷劈差不多
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1768898/)
+## 中共政权对美国进行超限战的演化
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1768901/)
 
-作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12-6-e1639850551916.jpg)2021年10月9日，军代表们在北京人民大会堂行军。图片来源： (Noel Celis/AFP via Getty Images)
+据《大纪元时报》作者：Bradley A. Thayer，2021年12月6日报道：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+正值美国五角大楼发布《全球态势评估》之际，我们必须承认，中共政权对美国的超限战的做法正在演化。同时，超限战随着中共国能力不断增长而不断变化。
 
-2021年11月11日，英国多家著名医疗机构联合发表在[Nature](https://www.nature.com/)的调查报告《[Deaths in children and young people in England after SARS-CoV-2 infection during the first pandemic year](https://www.nature.com/articles/s41591-021-01578-1)》显示，在2020年3月至2021年2月中共病毒流行期间，英格兰12,023,568名18岁以下的未成年人中，仅25人死于中共病毒感染。相当于在这期间，英格兰18岁以下的未成年人感染中共病毒死亡的机率为2/100万，比英格兰人被雷劈的机率（1/120万）高一点。
+有三个要点值得我们注意。
 
-该报告由英国多家著名医疗机构的十多位专家联合完成，这些专家来自英国 NHS（National Health Service，英国国家医疗服务体系）、伦敦帝国理工学院（the Imperial College of London）、英国公共卫生（Public Health England）部门和布里斯托尔皇家儿童医院（the Bristol Royal Hospital for Children）。
+**第一，中国共产党（CCP）自1949年上台以来，一直在攻击美国，其目标是战胜美国。在冷战期间，从1972年理查德-尼克松总统访问中国后直到冷战结束，只出现了短暂的休战。苏联的解体、美国在1990-1991年海湾战争中的胜利，以及1989年北京天安门大屠杀，这些事件使得中共政权的领导层深信，中共国取得了对美国的胜利。因为中共国攻击美国并没有触发华盛顿必要的反应。中共政权的坚定决心是千方百计取得胜利。**
 
-该报告显示，中共病毒在英格兰大流行的第一个年中，自2020年3月至2021年2月期间，英格兰12,023,568名18岁以下的未成年人（Children and Young People，CYP）中，共有3105人因各种原因死亡，其中仅61例死亡后，其CCP病毒检测结果呈阳性，其余3044人的死因与中共病毒没有关系。
+**第二，中共政权对美国进行全方位、全面和不遗余力的攻击。这一点在两位中共人民解放军空军上校在《超限战》书中（英文版于1999年出版）中得以充分描述。超限战利用多方面手段间接地打击美国，但没有任何一种攻击途径足以导致或挑起直接的军事对抗。**
 
-图1：用于确定是感染中共病毒导致死亡还是巧合的方法流程图
-![](https://assets.gnews.org/wp-content/uploads/2021/12/approach-used-to-determine-if-SARS-CoV-2-contributed-to-death.jpg)
-而结合病历对这61例个案进行仔细调查后发现，仅25例死于中共病毒感染，其中22例死于急性感染，3例死于多系统炎症综合征（PIMS-TS），另外36例尽管死亡后中共病毒检测呈阳性，但死亡原因与中共病毒无关。
+其攻击形式数不胜数，包括以下内容：1）政治战，涉及影响其他国家的国内政治制度，包括美国，还要赢得全球意识形态理念，即共产主义被视为未来的浪潮；2）法律战，阻碍或使个人、组织或国家失去合法性；3）网络战，包括攻击计算机网络，通信和基础设施网络（如美国的电网）；4）利用或资助针对美国或其全球利益的恐怖主义； 5）经济战，涵盖削弱敌人的经济和金融市场，或对其进行劫持以支持中国的增长；以及6）热战，即使用军事力量。
 
-图2：图表显示了研究期间（2020年3月至2021年2 月）因中共病毒检测呈阳性而死亡的所有未成年人的累计死亡数
+这些手段的战略目标是削弱、迷惑和掏空敌人，使对手在不诉诸军事对抗的情况下从内部崩塌–这意味着中共政权的目标是美国的军事、工业、技术中心，还包括其人口、士气、意识形态和身份。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/the-cumulative-number-of-deaths-for-all-CYP-who-died-with-a-positive-SARS-CoV-2.png)
+虽然所有超限战的手段都很重要，但美国不应低估热战及其对中共政权的重要性。美国人始终要牢记，美军和中共解放军曾在朝鲜战争中战斗过。他们在越南战争中又间接地做战。在这场冲突中，北京对北越的支持包括对向美国飞机开火的高射炮基地点派遣部队，以及在“滚雷”空战中修复北越的基础设施。在中共实力远弱于美国时，中共曾与美国开战。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/13-4-e1639850596674.jpg)1967年越南战争期间，美军从一辆卡车上登陆。图片来源：(AFP/Getty Images)
+军事手段对中共军队越来越重要，包括运用科技手段利用美国的弱点来打败美国。
 
-而自2020年3月到2021年2月期间，英格兰总共有469,982名18岁以下的未成年人感染了中共病毒。
+自1999年以来，超限战的热战部分发生的几率越来越大，越来越明显，这一点从常规打击能力和核武库的扩张以及包括高超音速导弹在内的新武器系统的发展都得以证明。中共更公开地展示其军事力量的含义是，该政权认为自己有能力在热战领域挑战美国。反过来，这意味着美国对其盟国和其他友好国家（如台湾）的威慑力可能会受到挑战。
 
-据此换算，英格兰18岁以下的未成年人感染中共病毒后的死亡率为5/10万（25÷469,982），感染中共病毒死亡的机率为2/100万（25÷12,023,568）。
+**第三，中共认为美国容易受到超限战的影响，因为华盛顿还没有意识到这些攻击途径。在很大程度上，美国将战略视为与使用军事手段有关。因此，美国的重点集中在热战手段上，关注热战手段是必要的，但这远远不够。美国的注意力应该放在作为胜利原因的战略上。这就是中共对战略的理解。正如超限战所阐述的那样，胜利将通过一切手段来实现：经济、意识形态、法律和军事。事实上，中共政权已经使用了一种名副其实的大规模杀伤性武器—鸦片类药物危机应该被视为对美国民众使用化学武器的一种形式。**
 
-英格兰18岁以下的未成年人死于感染中共病毒的概率为2/100万，而所有其他原因的死亡率为25.5/10万。尽管死于中共病毒的未成年人中，亚裔和黑人比例更高，但他们死于 中共病毒感染的绝对风险仍然极低，为每6/100百万和 8/100万。同样，10-14岁和 15-17岁的未成年人死于中共病毒感染的比例高于同年龄组的未成年人死于所有其他原因的比例。然而，他们死于中共病毒感染的绝对风险仍然极低，分别为每3/100万和5/100万。
+美国对中共政权的多种攻击方式缺乏统一的反应。在该伪政权已经宣布其要战略措施几十年后，情况依然如此。几十年来，美国国家安全分析家们对中国的军事能力持乐观态度，现在他们感到忧虑。中共政权利用美国战略和经济利益之间的缝隙。实际上，美国的战略家们玩忽职守，而华尔街却欢迎、庆祝并加速了中国的经济增长。即使美国的战略家们清醒了，也不清楚他们是否有能力打破华尔街对中国的成瘾。
 
-而据[The Week](https://www.theweek.co.uk/)的调查报告（[What are the chances of being hit by lightning?](https://www.theweek.co.uk/59687/what-are-the-chances-of-being-struck-by-lightning)），所有英格兰5820万人，被雷劈（室内和室外总和）的风险为120万分之一，被雷劈死的风险为 1900万分之一。
+因此，中共对美国的重大优势仍然存在。美国人必须认识到，美国一直受到中共国的攻击，这一敌人是在山姆大叔眼皮底下成长起来的。既不幸又遗憾的是，中共这种增长之所以能够实现–从根本上说，是因为西方允许共产主义中国进入我们的经济生态系统。与热战相比，其他形式的超限战仍然有用，但其功效可能正在减少。军事部分作用日益增强，进行公开展示，而且更有可能被用来对抗美国的利益。
 
-参考数据：
+细想起来，在苏联解体后的几十年里，美国所做的一切就是让中国经济富裕、军事强大，进而实现超限战的目标。当战略家们浑然不知时，经济学家们却可以让战争更有可能发生。
 
-[Deaths in children and young people in England after SARS-CoV-2 infection during the first pandemic year](https://www.nature.com/articles/s41591-021-01578-1)
 
-[What are the chances of being hit by lightning?](https://www.theweek.co.uk/59687/what-are-the-chances-of-being-struck-by-lightning)
 
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/) 上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+**【简评】**
+
+*《超限战》由中共解放军两位上将编著的战略书籍，1999年首次出版，在郭先生直播中多次提及，也在班农先生的《Warroom》节目中多次展示英文版，在出版20多年后，书中涉及内容开始被美国五角大楼及相关媒体引起注意，并引发思考。美国把了中共养成大虎留下后患。正如郭先生所说：由于中共的“蓝金黄”渗透策略和华盛顿的迟钝反应，贪婪的美国政客、军界、华尔街和中共恶魔 无所不极，从各个方面合作不择手段以控制人类和重启世界，现在全世界经历的Covid-19全球大流行疫情，正是超限战中的一种生化病毒武器。虽然美国人已经开始清醒，将中共视为对手和恐怖组织，尤其目前华尔街和资本大佬仍然和中共进行暗中勾兑利益的情况下,美国仍需要更强有力的打击手段来铲除中共这个世纪恶魔。*
+
+原文连接：[https://www.theepochtimes.com/the-evolution-of-the-chinese-regimes-unrestricted-warfare-against-the-us\_4136881.html](https://www.theepochtimes.com/the-evolution-of-the-chinese-regimes-unrestricted-warfare-against-the-us_4136881.html)
+
+[翻译：洛杉矶盘古农场 – Poplar](https://www.theepochtimes.com/the-evolution-of-the-chinese-regimes-unrestricted-warfare-against-the-us_4136881.html)
+
+[校对：洛杉矶盘古农场 – Mike Li](https://www.theepochtimes.com/the-evolution-of-the-chinese-regimes-unrestricted-warfare-against-the-us_4136881.html)
+
+[评论：洛杉矶盘古农场 – Poplar](https://www.theepochtimes.com/the-evolution-of-the-chinese-regimes-unrestricted-warfare-against-the-us_4136881.html)
+
+[编辑：洛杉矶盘古农场 -滴水穿石](https://www.theepochtimes.com/the-evolution-of-the-chinese-regimes-unrestricted-warfare-against-the-us_4136881.html)
+
+
+![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入: (或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
