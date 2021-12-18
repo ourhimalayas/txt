@@ -2,41 +2,26 @@
 ---
 
 
-## 习近平彭丽媛以一国之力施巫七哥却毫发未损并长足发展
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1767102/)
+## 【中日财经爆】亚马逊为中共国市场 选择下跪“习禁评”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1767204/)
 
-**郭文贵先生：**然后对你七哥，刚才你们就忘了那个大印了，是吧！那个印是对七哥来的呀！七哥是唯一的一个目标，没把你小李写上去，没把你JessicaG写上去，也没有把你荣光依旧写上去，也没把你政清，是吧！长岛哥，老班长都轮不上，是不是！
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2-67.jpg)[图片来源](https://www.rfa.org/mandarin/zhuanlan/jingmaorediansaomiao/eco-07162021155834.html)
+路透社12月17日报导，美国电商龙头亚马逊（Amazon）与中共国官方宣传机构合作，禁止在亚马逊中文网站上评论或评分中共国国家主席习近平的讲话与文字选集，若直接搜寻亚马逊英文网站上，这同一本著作则出现指责习近平治国就是「对新疆进行种族灭绝」的一星差评。有消息指出，亚马逊2年前为了取得中共政府的青睐而配合中共的审查。
 
-就把我给写上去，就是我是核心嘛，我是被消灭的对象，他要不把我看成个人物，他能集一国之力，把盘古楼拿过来，在前面挖这么大一坑，埋这么大一印，那个玉还挺值钱我给你们说那玉啊！
+评分和评论是亚马逊电子商务的重要部分，是吸引购物者的主要方式，但在亚马逊中文网站上，这本由中共国政府出版的《习近平谈治国理政》没有任何网友评分，评论也被禁用。知情人士表示，中共国政府对读者的负面评论感到不满，因此要求禁止评分和评论，低于五星的评分都不得出现在亚马逊的美国网站上。
 
-这个玉现在已经没了，都给碎（音脆）了，要不碎（音脆）了，留着以后得多值钱啊！证明这个，是吧！这真是这个成了已经是万神之物了。但是他埋了两三年了，你七哥是除了性能力比较弱之外，变成郭一秒了，没有任何病变，也长得越来越好看，是吧！而且长足发展，是吧！过去的一年里边，这一系列的系统，是吧！更好！
+内部文件和采访显示，亚马逊与中共国宣传机构的中共国国际图书贸易总公司（CIBTC）合作开办的「中共国书店」（China Books）出售9万多种出版物，虽然并未带来可观的收入，但因亚马逊在中共国发展电子书阅读器Kindle、云端和电商业务，所以亚马逊将「中国书店」视为是中共国赢得支持的关键。
 
-编辑整理：海贼王M.D.LUFFY；
+内部文件还泄露，中共国国家互联网信息办公室2018年要求亚马逊，将亚马逊旗下的电影讯息和评论平台IMDb，删除中共国新电影《厉害了，我的国》的连结，原因是这部宣扬习近平政绩的影片在网路上遭到恶评，亚马逊中共国分部虽无法通融这类请求，但将讯息传达给总部，后来部分负面评论在网站上消失。在满分10分的评分制中，这部影片目前在IMDb的总体评分只有2.3。
 
-视频制作：Cindy；
+消息来源:
 
-视频上传：Cindy；
+[中共国不爽习近平著作分数太低出奥步？路透：北京要求亚马逊｢禁评｣](https://tw.news.yahoo.com/%E4%B8%AD%E5%9C%8B%E4%B8%8D%E7%88%BD%E7%BF%92%E8%BF%91%E5%B9%B3%E8%91%97%E4%BD%9C%E5%88%86%E6%95%B8%E5%A4%AA%E4%BD%8E%E5%87%BA%E5%A5%A7%E6%AD%A5-%E8%B7%AF%E9%80%8F-%E5%8C%97%E4%BA%AC%E8%A6%81%E6%B1%82%E4%BA%9E%E9%A6%AC%E9%81%9C-%E7%A6%81%E8%A9%95-034502324.html)
 
-G-News发布：黎明之前；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

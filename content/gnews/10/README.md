@@ -2,24 +2,40 @@
 ---
 
 
-## 文章被标记“虚假信息”——英国医学杂志致信扎克伯格
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1766962/)
+## 习近平彭丽媛以一国之力施巫七哥却毫发未损并长足发展
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1767102/)
 
-#### 翻译/撰稿：黃金精神
+**郭文贵先生：**然后对你七哥，刚才你们就忘了那个大印了，是吧！那个印是对七哥来的呀！七哥是唯一的一个目标，没把你小李写上去，没把你JessicaG写上去，也没有把你荣光依旧写上去，也没把你政清，是吧！长岛哥，老班长都轮不上，是不是！
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-29.jpg)图片来源：西梅网
-12月2日据英国医学杂志BMJ报道，BMJ给马克·扎克伯格（Mark Zuckerberg）写了一封公开信，信中提出对第三方供应商代表Facebook/Meta进行的“事实核查(fact checking)”表示非常担忧。
+就把我给写上去，就是我是核心嘛，我是被消灭的对象，他要不把我看成个人物，他能集一国之力，把盘古楼拿过来，在前面挖这么大一坑，埋这么大一印，那个玉还挺值钱我给你们说那玉啊！
 
-9月，帮助开展辉瑞中共病毒疫苗主要试验的合同研究公司Ventavia的一名前雇员向BMJ提供几十份公司内部文件、照片、录音和电子邮件。这些材料揭示了Ventavia公司发生的一系列不良的临床试验研究行为，这些行为可能会影响数据的完整性和病人的安全。BMJ还发现，尽管一年多前就收到了关于这些问题的直接投诉，但FDA并没有对Ventavia的试验地点进行调查。
+这个玉现在已经没了，都给碎（音脆）了，要不碎（音脆）了，留着以后得多值钱啊！证明这个，是吧！这真是这个成了已经是万神之物了。但是他埋了两三年了，你七哥是除了性能力比较弱之外，变成郭一秒了，没有任何病变，也长得越来越好看，是吧！而且长足发展，是吧！过去的一年里边，这一系列的系统，是吧！更好！
 
-BMJ委托一名调查记者写了这篇报道。这篇文章在经过法律审查、外部同行审查并经过BMJ高水平编辑监督和审查后，于11月2日发表。但是从11月10日开始，读者开始报告在试图分享BMJ文章时出现了各种问题。一些人报告说无法分享，另外有许多人报告说，他们的帖子被标记为“缺少背景”的警告。独立事实核查人员说，这些信息可能会误导人们。那些试图发布这篇文章的人被Facebook告知，反复分享这些“虚假信息”的人可能会让他们的帖子在Facebook的“新闻源”中降低位置。分享该文章的群组管理员收到了来自Facebook的信息，告知他们这些帖子“部分是虚假的”。
+编辑整理：海贼王M.D.LUFFY；
 
-对BMJ文章进行审查的是Facebook的承包商Lead Stories。Lead Stories没有对BMJ文章所谓的错误提供任何论断。Lead Stories的“事实核查”仅是一个毫无意义的标题。尽管Lead Stories没有指出BMJ文章中有任何错误或不真实的地方，但还是制作了一张我们文章的截图，在这张截图上印着“缺陷审查”的字样。并把这件事标为“骗局警告”在其他网站上发布文章。BMJ认为Lead Stories进行的“事实核查”是不准确的、不称职且不负责任的。
+视频制作：Cindy；
 
-致此BMJ已经联系了Lead Stories，但他们拒绝对它们的文章或导致Facebook标记BMJ文章的行为做出任何改变。BMJ还直接联系了Facebook，要求立即删除“事实核查”的标签和指向Lead Stories文章的任何链接，从而允许BMJ的读者在Facebook平台上自由分享这篇文章。
+视频上传：Cindy；
 
-新闻来源：[Covid-19: Researcher blows the whistle on data integrity issues in Pfizer’s vaccine trial](https://www.bmj.com/content/375/bmj.n2635/rr-80)
+G-News发布：黎明之前；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
