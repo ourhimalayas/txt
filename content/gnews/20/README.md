@@ -2,39 +2,20 @@
 ---
 
 
-## 有声|日本加快推进辉瑞的药品供应
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1769203/)
+## 中植系大鳄谢直锟猝然离世，万亿帝国谁掌管
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1769233/)
 
-配音：香草山美食部 – 玫瑰园
+撰稿：西枫westca
 
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/12/unnamed-26.jpg)图片来源：网络照片
+据今日头条12月18日报道。中植集团创始人，董事会主席兼首席执行官解直锟因心脏病突发抢救无效去世。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-据[OAN网站](https://www.oann.com/japan-pm-kishida-speeds-boosters-and-secures-pfizer-pills-amid-omicron-fears/)12月17日援引路透社报道，出于对OMICRON变种的担忧，日本首相岸田文雄周五与辉瑞公司负责人进行了电话交谈，以确保200万剂辉瑞公司抗病毒药在日本的供应，并表示将加速为老年人接种疫苗加强针的措施。
+中植集团建于1995年，成立之初仅为黑龙江的一家造纸企业，后逐步涉足房地产领域，2002年，中植集团进军金融业，成立中融信托。2010年中融信托有获得国资背景，在此身份“加持”下，中融系在资本市场上控股参股六家持牌金融机构，并拥有财富管理公司、资产管理公司、实体产业、房地产开放业和探矿业等。它旗下的控股数十家上市公司，总计资产规模超过万亿。
 
-岸田说，日本的目标是在首次接种后的六个月而非八个月内，为大约3100万名医护人员和高危老人提供疫苗加强针。他说，从2月起，其他老人将在7个月内得到加强针注射。
+然而，在中共国的任何一个万亿公司的背后都是对老百姓的血汗和生命的剥削、压榨和强掠，是官商勾结的结果。在文革2.0到来之时，巨大的财富只能招来灭顶之灾。习近平频频打击金融大鳄、严管资金。据称中植集团已在被调查中。这位恒大集团金主的突然死亡是否另有内幕？
 
-日本已与辉瑞公司签约，为明年订购了1.2亿剂疫苗。截至本月，日本的疫苗库存约为1600万剂。周四，日本政府正式批准Moderna的中共病毒疫苗加强针计划，该计划迄今位置仅覆盖了0.1%的日本人口。
-
-尽管日本的疫苗接种相对较晚，但迄今为止，日本已为其近80%的人口进行了全面接种，是七国集团经济体中接种比例最高的国家。
-
-文字版原文：[日本加快推进辉瑞的药品供应](https://gnews.org/zh-hans/1766142/)
-
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**新闻来源：**[“中植系”掌舵手解直锟辞世，万亿金融帝国前途未卜 (toutiao.com)](https://www.toutiao.com/a7043086224323510815/?channel=&amp;source=search_tab)
 
  
 

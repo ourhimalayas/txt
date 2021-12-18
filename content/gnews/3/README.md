@@ -2,36 +2,35 @@
 ---
 
 
-## 《国家脉搏》曝光后，中共资助的世卫COVID 调查员Koopmans被除名
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1769401/)
+## BBVA 瑞士分行在其加密货币托管和交易服务中添加了以太坊
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1769450/)
 
-温哥华扬帆农场 翻译：文农
-![](https://assets.gnews.org/wp-content/uploads/2021/12/中共资助的世卫COVID-调查员Koopmans被除名.jpg)图片来源：ec.europa.eu
-Marion Koopmans 曾在世界卫生组织的第一个 COVID-19 起源调查小组任职，她似乎已被排除在该组织所谓的追踪病毒来源的新团队，因为《国家脉搏》（National Pulse）揭露了她与中共的长期联系。
+**据BBVA 银行官网，2021年12月13日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/ahudm-vqdq6.jpg)
+去年6月，BBVA瑞士分行开始面向所有客户提供加密资产服务，现在，通过将以太坊添加到其投资组合中，BBVA在加密货币领域又向前迈进了一步。如今，BBVA瑞士的私人银行客户和拥有New Gen账户的客户将能够同时管理比特币和这种加密货币（以太坊）。在BBVA的应用程序上，他们可以查看这些数字资产以及其他传统投资。此外，它们（比特币和以太坊）还可以自动兑换成欧元、美元或任何法定货币。
 
-Koopmans 似乎遭遇了与世界卫生组织 (WHO) 同行 Peter Daszak 类似的命运，Peter Daszak 是一位美国研究员，他与武汉病毒学研究所的合作由福奇（Anthony Fauci） 资助。
+**BBVA Switzerland 是欧洲第一家将以太坊纳入其服务的传统银行。**
 
-在世卫组织的新型病原体起源科学咨询小组 (SAGO) 十月份的最初声明中，Koopmans被列为 28 名成员之一。然而，SAGO 更新的成员名单并未将她列为所谓的“揭开 COVID-19 起源的努力的贡献者”。
+BBVA Switzerland 的首席执行官阿方索·戈麦斯 (Alfonso Gómez) 说，“我们决定将以太币添加到我们的加密货币资产‘钱包’中，因为与比特币一起，它们是最能激发投资者兴趣的协议，同时也提供了遵守监管的所有保证”。
 
-Daszak 生态健康联盟的科学与政策顾问 Hume Field 博士，在 Twitter 上对 Koopmans 被除名表示遗憾。
+BBVA 瑞士分行的数字资产托管服务自推出以来，深受私人银行客户和（选择通过 New Gen 亲自管理其投资组合的）新投资者的欢迎。最大的需求来自希望分散投资组合的投资者—包括从个人客户、家族理财室到机构投资者。
 
-《国家脉搏》此前曾披露过Koopmans在中国广东疾病预防控制中心科学顾问委员会的角色。该国营机构对她工作的总结是：“她为该地区新发传染病检测实验室能力的建设提供了建议，并正在进行研究合作，试图通过该地区的动物生产链解开病毒的出现和传播。”
+就地理位置而言，BBVA强调了拉丁美洲国家对投资各种数字资产有广泛的兴趣，其次是欧洲和土耳其。
 
-此外，考夫曼斯还撰写了由中共资助的科学研究论文和期刊文章。
+BBVA Switzerland 的目标是在未来几个月继续扩大数字资产组合。凭借这一创新产品，BBVA 将自己定位为采用区块链技术的领先银行，从而使其客户更容易投资于这个新的数字世界。
 
-2020 年 7 月，她进行的一项有关“探索基因组流行病学在广东追踪高致病性 A/H7N9 流感起源的效用”的研究，得到了“中国国家重点研发计划 [和] 中国国家重点研发计划的资助。 ”
+目前，BBVA 正在瑞士提供这项新服务，因为它拥有非常先进的区块链生态系统，对这些数字资产有明确的监管和高水平的采用度。他们向新国家或其他类型客户的扩张此项服务，将取决于市场在成熟度、需求和监管方面是否满足适当的条件。
 
-她于2017 年进行的另一项针对寨卡病毒的研究也由广东省政府资助和执行。摘要中表明：“感谢广东省疾病预防控制中心和江门市疾病预防控制中心的所有相关实验室和行政人员为后续调查所做的贡献。本研究得到了广东省科技计划和国家重点发展计划的资助。”
+**原文连接:**[https://www.bbva.com/en/bbva-switzerland-adds-ether-to-its-cryptocurrency-custody-and-trading-service/](https://www.bbva.com/en/bbva-switzerland-adds-ether-to-its-cryptocurrency-custody-and-trading-service/)
 
-2014 年由考夫曼领导的另一项研究也是与广东省疾病预防控制中心的研究人员一起完成的，这项关于甲型流感（H7N9）的研究，“得到了中国公共卫生部第十二个五年重点项目的支持。”考夫曼还撰写了大量由中共国家机构“中国留学基金委”资助的研究报告，包括关于诺如病毒、轮状病毒、钙调神经磷酸酶和迁移的报告等。
+翻译：洛杉矶盘古农场 –河马甩尾(Yi)巴
+校对：洛杉矶盘古农场 – Ferrrarth
+编辑：洛杉矶盘古农场 – Rosa
+发布：洛杉矶盘古农场—彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-参考资料：
-
-[https://thenationalpulse.com/news/scalp-koopmans-removed-from-who-team](https://thenationalpulse.com/news/scalp-koopmans-removed-from-who-team)
-
-编审：abbs
-
-发布：shuang
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
