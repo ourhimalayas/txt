@@ -96,32 +96,32 @@
 ### [中共被曝在2012年利用华为入侵外国电信网络](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [春节大行动只对施巫和信巫者习近平王岐山孟建柱江泽民](/content/gnews/28/README.md)
- ` 喜马拉雅日本银河系农场`
+### [墙内世界 2021.12.16](/content/gnews/28/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [12/12郭文贵直播：美国两党的总统候选人都会去灭共（粤语配音）](/content/gnews/29/README.md)
+### [12/12郭文贵直播：习近平女儿的真名叫李木子（粤语配音）](/content/gnews/29/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [12/12郭文贵直播：西方抵制冬奥会真的会是习近平的滑铁卢吗？（粤语配音）](/content/gnews/30/README.md)
+### [12/12郭文贵直播：美国两党的总统候选人都会去灭共（粤语配音）](/content/gnews/30/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [12/12郭文贵直播：俄罗斯明确告诉中共，你不行了（粤语配音）](/content/gnews/31/README.md)
+### [12/12郭文贵直播：西方抵制冬奥会真的会是习近平的滑铁卢吗？（粤语配音）](/content/gnews/31/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [12/10郭文贵直播：美国会有十招对付中共，招招毙命（粤语配音）](/content/gnews/32/README.md)
+### [12/12郭文贵直播：俄罗斯明确告诉中共，你不行了（粤语配音）](/content/gnews/32/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [12/10郭文贵直播：杨洁篪抓了拿塞浦路斯护照的十几位战友（粤语配音）](/content/gnews/33/README.md)
+### [12/10郭文贵直播：美国会有十招对付中共，招招毙命（粤语配音）](/content/gnews/33/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [12/8郭文贵直播：全球抗议中共联合大行动总动员（粤语配音）](/content/gnews/34/README.md)
+### [12/10郭文贵直播：杨洁篪抓了拿塞浦路斯护照的十几位战友（粤语配音）](/content/gnews/34/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [12/8郭文贵直播：俄罗斯正重返东亚，开启美俄联合灭共（粤语配音）](/content/gnews/35/README.md)
+### [12/8郭文贵直播：全球抗议中共联合大行动总动员（粤语配音）](/content/gnews/35/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [习近平彭丽媛施巫完全失败并重蹈齐奥塞斯库埃列娜之路](/content/gnews/36/README.md)
- ` 喜马拉雅日本银河系农场`
+### [12/8郭文贵直播：俄罗斯正重返东亚，开启美俄联合灭共（粤语配音）](/content/gnews/36/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [每日快报：美国对中共国在南海的基地进行监视](/content/gnews/37/README.md)
  ` 喜马拉雅-华盛顿DC农场`
