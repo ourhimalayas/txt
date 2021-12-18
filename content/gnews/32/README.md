@@ -2,24 +2,38 @@
 ---
 
 
-## 文章被标记“虚假信息”——英国医学杂志致信扎克伯格
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1766962/)
+## 北京冬奥会美国运动员用数字人民币有被监控的风险
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1767085/)
 
-#### 翻译/撰稿：黃金精神
+**【雅典娜快讯】，紧贴时代脉搏 **
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-218.jpg)**图片来源：News.com.wu**
+**整理报道：文扬**
+**编辑：文泓**
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-29.jpg)图片来源：西梅网
-12月2日据英国医学杂志BMJ报道，BMJ给马克·扎克伯格（Mark Zuckerberg）写了一封公开信，信中提出对第三方供应商代表Facebook/Meta进行的“事实核查(fact checking)”表示非常担忧。
+当地时间12月17日，据布莱巴特新闻披露，众多共和党议员敦促美国奥运运动员在北京参加冬奥会期间不要使用中共的数字人民币，认为这将导致运动员面临新的监控。
 
-9月，帮助开展辉瑞中共病毒疫苗主要试验的合同研究公司Ventavia的一名前雇员向BMJ提供几十份公司内部文件、照片、录音和电子邮件。这些材料揭示了Ventavia公司发生的一系列不良的临床试验研究行为，这些行为可能会影响数据的完整性和病人的安全。BMJ还发现，尽管一年多前就收到了关于这些问题的直接投诉，但FDA并没有对Ventavia的试验地点进行调查。
+周四，众议员兰斯·古登在一份声明中告诉布赖特巴特新闻，“中共国是美国的主要对手，它有监视美国公民的长期记录”，他敦促美国奥委会“采取一切预防措施，保护美国运动员的隐私不受中共政府的侵犯”。
 
-BMJ委托一名调查记者写了这篇报道。这篇文章在经过法律审查、外部同行审查并经过BMJ高水平编辑监督和审查后，于11月2日发表。但是从11月10日开始，读者开始报告在试图分享BMJ文章时出现了各种问题。一些人报告说无法分享，另外有许多人报告说，他们的帖子被标记为“缺少背景”的警告。独立事实核查人员说，这些信息可能会误导人们。那些试图发布这篇文章的人被Facebook告知，反复分享这些“虚假信息”的人可能会让他们的帖子在Facebook的“新闻源”中降低位置。分享该文章的群组管理员收到了来自Facebook的信息，告知他们这些帖子“部分是虚假的”。
+最近有消息称，美国国税局将关注价值600美元（以上）的银行交易，一些人表示，美国已经在财务上监督本国人民。尽管如此，古登还是重点放在了中共国，宣称因为数字人民币“完全由‘中国人民银行’控制，可以由中央银行跟踪和追踪”，它在全球商业中的使用“涉及到许多有问题的个人隐私”。
 
-对BMJ文章进行审查的是Facebook的承包商Lead Stories。Lead Stories没有对BMJ文章所谓的错误提供任何论断。Lead Stories的“事实核查”仅是一个毫无意义的标题。尽管Lead Stories没有指出BMJ文章中有任何错误或不真实的地方，但还是制作了一张我们文章的截图，在这张截图上印着“缺陷审查”的字样。并把这件事标为“骗局警告”在其他网站上发布文章。BMJ认为Lead Stories进行的“事实核查”是不准确的、不称职且不负责任的。
+除了古登外，众议员马克韦恩·穆林（俄克拉荷马州议员）、杰克·埃尔兹（德克萨斯州议员）和丽莎·麦克莱恩（密歇根州议员）也签署了该倡议，并指出数字人民币的扩张尤其令人担忧，因为“中共是使用新兴技术压制维吾尔族、香港人和中国各地争取言论自由的人”。
 
-致此BMJ已经联系了Lead Stories，但他们拒绝对它们的文章或导致Facebook标记BMJ文章的行为做出任何改变。BMJ还直接联系了Facebook，要求立即删除“事实核查”的标签和指向Lead Stories文章的任何链接，从而允许BMJ的读者在Facebook平台上自由分享这篇文章。
+**微信等数字支付平台已被用于监视、威胁和逮捕中国公民。**
 
-新闻来源：[Covid-19: Researcher blows the whistle on data integrity issues in Pfizer’s vaccine trial](https://www.bmj.com/content/375/bmj.n2635/rr-80)
+这封信是继参议员玛莎·布莱克本、罗杰·威克和辛西娅·卢米斯早些时候发出的信件之后发出的。在写给奥运会和残奥会委员会（USOPAC）的信中，三人要求它与国务院、财政部和商务部一起工作，**以“保护美国运动员的隐私不受中共政府侵犯”。**
+
+与此同时，中共国计划在奥运会期间放松对西方社交媒体平台的审查，甚至为他们提供特殊的SIM卡。北京通常会阻止访问推特、脸书和油管等社交网络媒体。
+
+新闻链接： [US lawmakers claim risk of surveillance from digital yuan use at 2022 Olympics — RT World News](https://www.rt.com/news/543553-olympics-crypto-athletes-privacy-china/)
+
+发布：去中心化Math
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

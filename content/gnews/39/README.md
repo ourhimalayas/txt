@@ -2,28 +2,58 @@
 ---
 
 
-## 【中日财经爆】港交所明年开始接受SPAC空壳公司上市申请
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1766811/)
+## 美国会通过跨党派涉疆法案，禁止强迫劳动产品进入美国
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1766952/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12-5.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=http%3A%2F%2Fspac.us%2Fuploads%2Fallimg%2F210430%2F1-2104300939250-L.jpg&amp;imgrefurl=http%3A%2F%2Fwww.spac.us%2Fm%2Fview.php%3Faid%3D270&amp;tbnid=MdLSTO5GBowKVM&amp;vet=12ahUKEwjz_pLcuez0AhWHfnAKHY8ZCOgQMygEegUIARChAQ..i&amp;docid=wyUXuV-ChCEOPM&amp;w=1280&amp;h=640&amp;itg=1&amp;q=SPAC%E7%A9%BA%E5%A3%B3%E5%85%AC%E5%8F%B8&amp;ved=2ahUKEwjz_pLcuez0AhWHfnAKHY8ZCOgQMygEegUIARChAQ)
-香港交易所旗下香港联合交易所周五12月17日公布引入新规则，在香港设立全新SPAC空壳公司上市机制，并于2022年1月1日起生效。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-913.png)*2021 年12月9日，示威者在中共驻伦敦大使馆外的示威活动中举着标语牌和旗帜。 (Alberto Pezzali/美联社)*
+来自《华盛顿邮报》2021年12月16日的报道，参议院周四批准了一项两党措施，禁止从中共国新疆地区进口产品，除非进口商能够证明这些产品不是用强迫劳动制成的，这是要求中共政权对以穆斯林为主的维吾尔少数民族的镇压负责迈出的重要一步。
 
-联交所今年9月就推行SPAC上市机制征询市场意见，共收到90份来自多个不同界别对新上市机制谘询的回应意见，大多数建议均获逾八成有表明意见的回应人士支持。
+本周早些时候，众议院通过了《防止强迫维吾尔族劳动法案》(Uyghur Forced Labor Prevention Act)，目前已提交到总统拜登的办公桌。白宫周二表示，拜登将签署成为法律。
 
-“新规则将大致按照建议所述实施，并因应一些商业因素作出修订，确保兼顾上市公司质素与市场考虑。”港交所上市主管陈翊庭表示。
+该立法适用于“所有在新疆开采、生产或制造的全部或部分货物、制品、物品和商品”，新疆是中共国最西部的广阔地区，从2017年开始，中共政府就在该地区对维吾尔族和其他少数民族人开展了大规模的“再教育”运动。
 
-港交所表示，将于1月起接受SPAC上市申请。
+根据美国1930年《关税法》(Tariff Act)，将全部或部分由强迫劳动生产的任何商品进口到美国都是非法的。新立法将禁止所有从新疆进口的货物，“除非美国海关和边境保护局通过明确和令人信服的证据证明货物不是用强迫劳动生产的”。
 
-SPAC是一种空壳公司，上市筹集资金的目的是为了上市后一段预设期限内收购目标公司（SPAC并购目标）的业务（SPAC并购交易）。
+此举紧随川普政府今年早些时候采取的行动，宣布全面禁止从新疆进口棉花或番茄产品——尽管这些制裁的执行被证明具有挑战性。
 
-消息来源:
+学者们估计，新疆有超过100万人被关押在集中营中，其中一些人被释放，一些人被转移到监狱，另一些人则被迫在工厂工作。
 
-[香港交易所公布设立全新SPAC上市机制 明年1月起接受上市申请](https://cn.reuters.com/article/hkex-spac-rule-1217-idCNKBS2IW0S9?il=0)
+在今年3月发布的年度人权报告中，拜登政府宣布中共对待维吾尔族人的方式是种族灭绝，并使其对中共政府在新疆对少数民族群体的大规模拘留和绝育运动的可怕评估正式化。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+中共政府一再否认在新疆发生过任何强迫劳动，但承认有针对官员认为有分裂主义或宗教极端主义风险的居民的“职业培训计划”。被拘留的原因可能包括戴头巾或长胡子、有两个以上的孩子或出国度假等所谓的违规行为。
+
+《防止强迫维吾尔族劳动法案》的版本早些时候已经在众议院和参议院通过，本周参众两院议员就最终文本达成了一致。
+
+周四上午，卢比奥(Rubio)在参议院发表讲话时表示，新疆用强迫劳动制造的商品已以“惊人、可怕的速度”进口。他说，这项立法“将极大地帮助阻止这种情况的发生。”
+
+“许多公司已经采取措施清理他们的供应链。”卢比奥表示，“坦率地说，他们不应该担心这项法律。对于那些没有这样做的人来说，他们将不再能够继续让美国人——坦率的说，是我们每个人——在不知情的情况下成为中国共产党犯下的暴行和种族灭绝的帮凶。”
+
+默克利(Merkley)在一份声明中表示，该措施“确保美国消费者和企业可以购买商品，而不会无意中参与中共政权可怕的侵犯人权行为”。
+
+川普政府今年1月对新疆生产的棉花和番茄产品实施禁令。根据《华盛顿邮报》的官方数据和计算，该地区占全球棉花产量的近五分之一。但英国研究人员在上个月的一份报告中表示，被禁的新疆棉花很有可能仍在美国上架，因为它被运往第三国进行服装制造。
+
+拜登政府今年7月还禁止进口太阳能电池板和其他由“合盛矽业”(Hoshine Silicon)生产的材料制成的商品。该公司被指控使用来自新疆的强迫劳工。合盛矽业是世界上最大的冶金级硅生产商，这是太阳能电池板的关键原材料。
+
+简评：
+《防止强迫维吾尔族劳动法案》成为法律，预示着新疆地区的任何产品未来都将很难进入美国市场，不法商人也许会通过其他渠道使其流入美国市场，但是，你要提供美国海关和边境保护局认可的证据来证明该产品不是用强迫劳动生产的，如果以虚假的信息蒙混过关，必将严重触犯美国法律，此举会极大地压缩中共在新疆利用强迫劳动的获利空间，打击中共政权肆意侵犯人权的嚣张气焰。此次法案的通过得到了国会两院的跨党派支持，说明美国民主、共和两党在新疆议题和反共立场上已经进一步趋向一致，这为美国走向全面反共灭共迈出了重要一步。
+
+News Link:[https://www.washingtonpost.com/politics/senate-passes-uyghur-forced-labor-prevention-act-in-major-step-toward-holding-china-accountable-for-repression-in-xinjiang/2021/12/16/a8043b0c-5ea6-11ec-8665-aed48580f911\_story.html](https://www.washingtonpost.com/politics/senate-passes-uyghur-forced-labor-prevention-act-in-major-step-toward-holding-china-accountable-for-repression-in-xinjiang/2021/12/16/a8043b0c-5ea6-11ec-8665-aed48580f911_story.html)
+
+翻译/简评: 希望
+
+PR: Harvey（叶知秋）
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

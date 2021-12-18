@@ -2,45 +2,28 @@
 ---
 
 
-## 美国新冠病毒死亡人数超过 80 万
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1767137/)
+## 法律买卖 中共国检察院判刑“像买菜一样”随便
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1767197/)
 
-作者：纽约香草山教育部 Naughty(文行)
+撰稿/配图：东京樱花团/ Ob
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-216.png)
+看中国2021年12月18日讯，12月17日，黑龙江省绥化市庆安县检察院一书记员被曝向当事人家属索贿，并称“刑期长短跟买菜是一样”的随便，结果网络翻车。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-7.png)
+据上观新闻消息，近日，黑龙江省绥化市庆安县孙女士向“新黄河”举报称，2020年丈夫吕某因涉及了一起案件被警方逮捕，庆安县检察院在办案过程中，工作人员丛某多次私下登门拜访，让她劝说吕某主动“多认一项罪名”，并向她索要3万元“打点费”，并称通过内部打点，可以帮助吕某“少判刑”。 丛某还说：“检察院里头有大（领导）也有小（领导），至少有俩人你必须得拿下来，谁无功不受禄，一分（钱）不出你咋整？”、“刑期长短跟买菜是一样的，买多了抹个零，多认一项罪名，反而可以少判点。”
 
+孙女士说，在检察院人员不断劝说下，丈夫最终还是签了“认罪认罚书”。“开庭的时候我才发现，当初丛某骗了我，所以我才选择了举报。”12月5日，孙女士举报信中写道：“检察院办案人员王某指使下属丛某多次到我家，让我劝说我爱人吕某认罪，以便签署认罪认罚具结书。同时索要钱财。同时吕某也当庭说明以诱供方式让自己认罪。”
 
-据福克斯新闻报道，截止到12月14日，美国新冠病毒死亡病例数已超过80万。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-300.jpeg)图片来源：美联社
-根据约翰·霍普金斯大学冠状病毒资源中心的数据，自2020年3月以来，全球已知死亡人数已超过530万人，美国是所有国家中报告死亡人数最多的国家，美国新冠确诊病例也已达5200万。
+近日，庆安县检察院对此举报书面回应称：“涉事人员丛某系检察院聘用制书记员，因违反工作纪律，现已予以解聘。”孙女士举报庆安县检察院工作人员丛某的消息公开后，引发网络沸腾。
 
-欧盟官员表示，到明年1 月中旬，欧米克隆将成为全球新冠病毒的主要变种。
+中共国的司法系统黑是大家心知肚明的事。法律是一件神圣的事，每个司法从业者都应该用生命保证司法制度的严肃性，公正性。但是在“党”这个幽灵无孔不入的社会，到处都是党这个幽灵的干扰和扰乱，久而久之法律沦为一场场游戏，成为领导的“狩猎场”，神圣庄严不再，啥都可以交易，啥都可以勾兑。
 
-新闻来源：[https://www.foxnews.com/health/covid-19-pandemic-death-toll-800000-us?utm\_source=ground.news&utm\_medium=referral&gt;](https://www.foxnews.com/health/covid-19-pandemic-death-toll-800000-us?utm_source=ground.news&amp;utm_medium=referral%3E)
+消息来源：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-302.jpeg)
+[揭中国检察院判刑“像买菜一样”随便(图)](https://m.secretchina.com/news/gb/2021/12/18/992664.html)
 
-编辑/校对/发稿：文敬
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-7.png)
-
-
-
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

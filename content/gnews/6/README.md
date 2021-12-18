@@ -2,40 +2,43 @@
 ---
 
 
-## 习近平彭丽媛施巫完全失败并重蹈齐奥塞斯库埃列娜之路
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1767330/)
+## 墙内世界 2021.12.17
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1767479/)
 
-**郭文贵先生：**这是一场多大的巫术，而且这个施术者最后的承受人一定是习近平和彭丽媛啦。那他俩，你觉得习近平的脸色，在去年到现在更好吗？你觉得彭丽媛现在比原来更年轻吗？你觉得中国的经济越来越好吗？最主要的房地产，这房地产你觉得现在是涨了还是增了？金融机构你说是好还是坏啦？
+一、　12月16日，广东深圳。一男子在加油站点燃正在给汽车加油的油枪，致保时捷爆燃。
 
-中国人，中国共产党习近平、彭丽媛在世界上受喜欢的环境是越来越多了吗？是吧！就说明这个术失败了吗，是吧！他的经济不好，房地产不好，民心不好，国际环境不好，对台湾对香港更不好，而且全世界把他们列为了犯罪组织，这多大的事啊！而且让他负责，多大的事啊！
+二、　12月3日，上海长宁。驾驶员行驶中失去知觉，导致轿车高速撞向中央隔离栏。
 
-跟当年齐奥塞斯库，跟当年萨达姆、卡扎菲，完全是一个路，你可千万别忘了，连北朝鲜都没混上这么多头衔，全让习太阳今天全混上了。
+三、　12月16日，广东深圳。老人倒地，小伙怕被讹，一直用手机录像才敢搀扶。中共恶法给社会带来的示范效应。
 
-编辑整理：海贼王M.D.LUFFY；
+四、　12月16日，杭州萧山“一网统管”，数字监控系统上线。戴没戴口罩，远程就能看到。被数字监控全员监视下中国人。
 
-视频制作：小满；
+五、　12月17日，中国农业银行近期又开启了一波销卡行动，很多人的银行卡被以犯罪监控的理由给冻结。
 
-视频上传：Cindy；
+六、　被中共宣传忽悠来黑龙江鹤岗市买房的外地人发现被骗开始撤离，房子好买工作难找。
 
-G-News发布：黎明之前；
+七、　工地工人用身体做支撑，让水泥顺利注入。共产主义社会人命如草芥。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
+八、　12月10日，湖北荆州。60岁老人欲轻生，爬上20米高压电线塔。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+九、　雷锋，是共产主义宣传出来的一个洗脑“英雄”形象，以国家名义将人的生命奉献于党。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+十、　12月15日，重庆。男子被妈妈威胁式催婚，“不要搞得大家春节都不愉快”。这算是中国未婚年轻人的普遍被催婚状态。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+*搜集 / 翻译：Filon|校对：CharlesS*
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+* * *
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+编辑：【英国伦敦喜庄园编辑部】
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 
