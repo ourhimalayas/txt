@@ -2,33 +2,39 @@
 ---
 
 
-## 上诉法院恢复拜登对企业的疫苗授权，可能会在最高法院摊牌
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1769347/)
+## 文件显示，华为与中共在新疆的间谍活动有关
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1769351/)
 
-2021 年 12 月 17 日下午 6:59 更新
+**据《insiderpaper.com》作者：Brendan Taylor，2021年12月15报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/awcsi-lqz5j-2.jpg)**视频截图源自insiderpaper.com**
+据报道，中国华为技术有限公司与新疆地区的国内间谍活动有关，该公司正在为“劳动和再教育营”开发技术，并在主要由维吾尔族穆斯林居住的中国西部地区开发监控系统。
 
-作者：Ann E. Marimow（华盛顿邮报）
+根据《华盛顿邮报》获得的PPT演示文稿显示，这个科技巨头的业务可能参与了“对该地区少数民族的迫害”。
 
-翻译：沉默老歌
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Joe-Biden-Mask.jpg)图片来源：网络
-周五，联邦上诉法院恢复了拜登政府对大型私营企业的冠状病毒疫苗接种政策，扭转了早先的法院裁决，该裁决已停止白宫为减少传播和减少案件数量所做的标志性努力之一。
+《邮报》翻译了一张描述在新疆使用的监控系统的幻灯片。
 
-总部位于俄亥俄州的美国第六巡回上诉法院的裁决可以上诉到美国最高法院，最高法院很可能对定于 1 月 4 日生效的规则拥有最终决定权。
+根据周二出炉的报告，“它谈到了该地区首府乌鲁木齐的公安部队如何使用面部识别系统来抓捕一名逃犯。”
+然而，华为在监控系统方面的工作介绍中并没有提到维吾尔人，而且该公司否认直接向新疆提供技术。
+根据该报告，其中一张幻灯片提到华为的产品是“智能监狱统一平台的基础”，并提到了制造和再教育劳动力的效率分析。
+据美国国务院称，据称有多达200万维吾尔族和其他穆斯林少数民族在新疆被关押。
+中共政府被指控对维吾尔人实施了一系列侵犯人权的行为，包括将他们安置在拘留所和再教育营，并使他们遭受强迫劳动。
+美国财政部本周宣布，中共国人工智能公司SenseTime（商汤科技）因其在促成针对新疆维吾尔族和其他穆斯林少数民族的人权侵犯中的作用而受到制裁，SenseTime（商汤科技）强烈否认这些指控。
 
-司法部曾要求法院为旨在保护大型私营企业工人免受病毒侵害的政策扫清道路，该病毒已在美国造成超过 800,000 人死亡。 该机构发言人拒绝置评。
+维吾尔法庭上周宣布，中共实施阻止生育的措施，意图消灭新疆相当一部分维吾尔人，从而犯下种族灭绝罪。
+根据这个设在英国的独立法庭，中共对维吾尔人的酷刑是证据确凿的。
+中国共产党（CCP）在新疆地区开展了多方面、多平台的宣传活动，以驳斥关于强迫劳动、大规模拘留、监视、绝育、文化抹杀和所谓种族灭绝的指控。
 
-根据劳工部的规定，拥有超过 100 名员工的雇主必须要求员工接种疫苗或每周接受检测并强制戴口罩，不在现场工作或与他人一起工作的员工也有例外。
+**原文连接：**[https://insiderpaper.com/docs-link-huawei-to-chinas-domestic-spying-in-xinjiang/](https://insiderpaper.com/docs-link-huawei-to-chinas-domestic-spying-in-xinjiang/)
 
-周五的 2-1 裁决支持拜登政府通过职业安全与健康管理局发布紧急工作场所指令的权力。
+翻译：洛杉矶盘古农场- TrueSky
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – 柯镇恶
+发布：洛杉矶盘古农场—彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-“记录表明，COVID-19 继续传播、变异、杀死并阻止美国工人安全返回工作岗位。 为了保护工人，OSHA 能够而且必须能够应对不断演变的危险”，Jane B. Stranch 法官撰写的意见写道。
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-来源链接：[https://www.seattletimes.com/nation-world/appeals-court-reinstates-bidens-vaccine-mandate-for-businesses-setting-up-a-likely-showdown-at-supreme-court/?amp=1](https://www.seattletimes.com/nation-world/appeals-court-reinstates-bidens-vaccine-mandate-for-businesses-setting-up-a-likely-showdown-at-supreme-court/?amp=1)
-
-编辑/发布：LILY
-
-20211218
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
