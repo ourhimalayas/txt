@@ -15,113 +15,113 @@
 
 ---
 
-### [西媒头条 — 第133期](/content/gnews/1/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [爆发，五天内第三家魁北克医院爆发COVID-19 新冠变种病毒——80 名员工中有 27 名检测呈阳性](/content/gnews/2/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [主要航空公司首席执行官支持取消飞机上的口罩规定](/content/gnews/3/README.md)
- ` MG FARM`
-
-### [法国黑客大量制作假疫苗护照](/content/gnews/4/README.md)
+### [文·贵天成——文贵先生谈“彭丽媛”（二）](/content/gnews/1/README.md)
  ` 墨尔本雅典娜农场`
 
-### [结束支付宝微信等第三方支付与央行数字钱包上线的背后](/content/gnews/5/README.md)
+### [DC大中华时事：2021年新增专项债券已发行3.42万亿元](/content/gnews/2/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [文·贵天成——文贵先生谈“彭丽媛”（一）](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [农产品第一进口大国戳破“粮食大丰收”和“农业强国”谎言](/content/gnews/4/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [焦点：波音公司不再要求美国员工接种疫苗](/content/gnews/6/README.md)
+### [西媒头条 — 第133期](/content/gnews/5/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [爆发，五天内第三家魁北克医院爆发COVID-19 新冠变种病毒——80 名员工中有 27 名检测呈阳性](/content/gnews/6/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [主要航空公司首席执行官支持取消飞机上的口罩规定](/content/gnews/7/README.md)
+ ` MG FARM`
+
+### [法国黑客大量制作假疫苗护照](/content/gnews/8/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [结束支付宝微信等第三方支付与央行数字钱包上线的背后](/content/gnews/9/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [焦点：波音公司不再要求美国员工接种疫苗](/content/gnews/10/README.md)
  ` 丁过`
 
-### [彼得·麦卡洛博士谈羟氯喹作为治疗新冠的有效药物被打压的事实](/content/gnews/7/README.md)
+### [彼得·麦卡洛博士谈羟氯喹作为治疗新冠的有效药物被打压的事实](/content/gnews/11/README.md)
  ` 澳喜农场`
 
-### [援共军的数十家生物技术公司被美列入黑名单](/content/gnews/8/README.md)
+### [援共军的数十家生物技术公司被美列入黑名单](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共以美传美运动强横 欲让美国人观看奥运会](/content/gnews/9/README.md)
+### [中共以美传美运动强横 欲让美国人观看奥运会](/content/gnews/13/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [CVS即将把数百万的疫苗记录交给比尔-盖茨？医疗隐私何存？](/content/gnews/10/README.md)
+### [CVS即将把数百万的疫苗记录交给比尔-盖茨？医疗隐私何存？](/content/gnews/14/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [佛州长提议立法允许家长起诉教授CTR的学校（2/2）](/content/gnews/11/README.md)
+### [佛州长提议立法允许家长起诉教授CTR的学校（2/2）](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [众议院调查美商务部长与中共的财务联系](/content/gnews/12/README.md)
+### [众议院调查美商务部长与中共的财务联系](/content/gnews/16/README.md)
  ` HimalayaRussia`
 
-### [马斯克表示反对强制接种疫苗，称这不是我们应该做的事](/content/gnews/13/README.md)
+### [马斯克表示反对强制接种疫苗，称这不是我们应该做的事](/content/gnews/17/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美国疾病控制与预防中心的数据显示，美国欧米克戎的大多数病例都是“完全接种了疫苗”的美国人](/content/gnews/14/README.md)
+### [美国疾病控制与预防中心的数据显示，美国欧米克戎的大多数病例都是“完全接种了疫苗”的美国人](/content/gnews/18/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [2021/12/16 文贵先生盖特精要](/content/gnews/15/README.md)
+### [2021/12/16 文贵先生盖特精要](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [日本加快推进辉瑞的药品供应](/content/gnews/16/README.md)
+### [日本加快推进辉瑞的药品供应](/content/gnews/20/README.md)
  ` 纽约香草山MOS02`
 
-### [2021年12月17日郭先生大直播文字同步精要](/content/gnews/17/README.md)
+### [2021年12月17日郭先生大直播文字同步精要](/content/gnews/21/README.md)
  ` 焦點20分`
 
-### [灭共币 让真相更好传播](/content/gnews/18/README.md)
+### [灭共币 让真相更好传播](/content/gnews/22/README.md)
  ` 焦點20分`
 
-### [央企离京潮加速，上海正在“东北化”](/content/gnews/19/README.md)
+### [央企离京潮加速，上海正在“东北化”](/content/gnews/23/README.md)
  ` 纽约香草山MOS01`
 
-### [德克萨斯州禁止对医护工作人员的疫苗强制令](/content/gnews/20/README.md)
+### [德克萨斯州禁止对医护工作人员的疫苗强制令](/content/gnews/24/README.md)
  ` HimalayaRussia`
 
-### [疫苗强制令毫无科学依据，而是在被以政治方式处理](/content/gnews/21/README.md)
+### [疫苗强制令毫无科学依据，而是在被以政治方式处理](/content/gnews/25/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [迈克·蓬佩奥：2022北京冬奥会破坏国际奥委会和全球商业的声誉](/content/gnews/22/README.md)
+### [迈克·蓬佩奥：2022北京冬奥会破坏国际奥委会和全球商业的声誉](/content/gnews/26/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [鲍里斯-约翰逊因其推出的中共病毒新政而受到其党内成员的反对](/content/gnews/23/README.md)
+### [鲍里斯-约翰逊因其推出的中共病毒新政而受到其党内成员的反对](/content/gnews/27/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [佛州长提议立法允许家长起诉教授CTR的学校(1/2)](/content/gnews/24/README.md)
+### [佛州长提议立法允许家长起诉教授CTR的学校(1/2)](/content/gnews/28/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [参议院批准7700亿美元巨额国防法案，包括12周带薪假期，17架战斗机，8艘军舰，2艘核潜艇，2.7%的加薪](/content/gnews/25/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [美参院通过国防授权法应对中共威胁](/content/gnews/26/README.md)
- ` GTV News Talk`
-
-### [12/17每日播报｜《國家脈動》授予斯蒂芬·K·班農2021 年度愛國者獎](/content/gnews/27/README.md)
+### [12/17每日播报｜《國家脈動》授予斯蒂芬·K·班農2021 年度愛國者獎](/content/gnews/29/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [文贵爆料 12.17：家天下、巫术当道——红色王朝气数已尽](/content/gnews/28/README.md)
+### [文贵爆料 12.17：家天下、巫术当道——红色王朝气数已尽](/content/gnews/30/README.md)
  ` 秘密翻译组-原创组`
 
-### [温哥华的Mel Brushet医生因揭露疫苗导致死胎率急剧上升被强行留在医院](/content/gnews/29/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [前华尔街银行家在中共国的调查中突然失踪](/content/gnews/30/README.md)
+### [前华尔街银行家在中共国的调查中突然失踪](/content/gnews/31/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [恒大被多家企业起诉 再次成为被执行人](/content/gnews/31/README.md)
+### [恒大被多家企业起诉 再次成为被执行人](/content/gnews/32/README.md)
  ` GTV新闻访谈`
 
-### [阿里巴巴股价领跌 直面中概股退市](/content/gnews/32/README.md)
+### [阿里巴巴股价领跌 直面中概股退市](/content/gnews/33/README.md)
  ` GTV新闻访谈`
 
-### [彼得·麦卡洛博士指出对早期治疗方法的压制，是为了让人们接受大规模疫苗接种](/content/gnews/33/README.md)
+### [彼得·麦卡洛博士指出对早期治疗方法的压制，是为了让人们接受大规模疫苗接种](/content/gnews/34/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [12/17每日播报｜新闻简讯:疫情灾难 私人监控 中共煽动民族仇恨](/content/gnews/34/README.md)
+### [12/17每日播报｜新闻简讯:疫情灾难 私人监控 中共煽动民族仇恨](/content/gnews/35/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [彼得·麦卡洛博士指出用于中共病毒的早期治疗方法被压制](/content/gnews/35/README.md)
+### [彼得·麦卡洛博士指出用于中共病毒的早期治疗方法被压制](/content/gnews/36/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [法国国民议会代表团到访台湾](/content/gnews/36/README.md)
- ` GTV News Talk`
 
 ### [杀人诛心 中共死亡磨盘之轮回](/content/gnews/37/README.md)
  ` 纽约香草山MOS03`

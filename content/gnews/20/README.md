@@ -2,40 +2,50 @@
 ---
 
 
-## 德克萨斯州禁止对医护工作人员的疫苗强制令
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1766084/)
+## 日本加快推进辉瑞的药品供应
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1766142/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+作者：纽约香草山农场 – 四季
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/12/A-5.jpg)prather2022.com
-再来一则德克萨斯州抗拒拜登的疫苗强制的消息。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-德克萨斯州的媒体KVUE发表文章，题目是“德克萨斯州获得初步禁令，禁止对医疗、医护工作人员的疫苗强制令”，文章副标题报道，德克萨斯州总检察长肯·帕克斯顿（Ken Paxton）称之为“自由的胜利”。
 
-全文如下：
 
-（奥斯丁，德克萨斯）  在他们进行全州的对抗中共病毒疫苗强制过程中，该州的最高政治领导人已经赢得了另一个胜利。
 
-周四（12与16日），德克萨斯州获得了一项初步禁令，禁止拜登政府对医疗补助和医疗保险提供者和供应者的员工执行的疫苗强制令。
 
-“这是自由的胜利。” 德克萨斯州总检察长肯·帕克斯顿说，“联邦政府没有能力为辛勤工作的美国人作出健康决定，这些违宪的规定在我们国家没有立足之地，在德克萨斯州也不受欢迎。”
+据[OAN网站](https://www.oann.com/japan-pm-kishida-speeds-boosters-and-secures-pfizer-pills-amid-omicron-fears/)12月17日援引路透社报道，出于对OMICRON变种的担忧，日本首相岸田文雄周五与辉瑞公司负责人进行了电话交谈，以确保200万剂辉瑞公司抗病毒药在日本的供应，并表示将加速为老年人接种疫苗加强针的措施。
 
-也是在周四，州长格雷格·阿伯特（Greg Abbott）致函美国国防部长，重申德克萨斯州不会将政府的疫苗强制令强加给德克萨斯州国民警卫队（Texas National Guard）成员。阿伯特在信中说，国防部长劳埃德·奥斯汀（Lloyd Austin）上月末威胁要切断对未接种疫苗士兵的联邦资金的供给。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1746-1.jpg)2021年2月17日，日本正在启动疫苗接种活动。在日本东京，一名医务人员在东京医疗中心拿着一小瓶辉瑞-生物技术公司的冠状病毒病（COVID-19）疫苗。（Behrouz Mehri/Pool via REUTERS）
 
-与此同时，周二（12月14日），帕克斯顿宣布了另一项针对拜登政府的诉讼，指控拜登政府针对“领先”（the Head Start）幼儿教育计划中，对工作人员和志愿者实施的口罩和疫苗强制令。
+岸田说，日本的目标是在首次接种后的六个月而非八个月内，为大约3100万名医护人员和高危老人提供疫苗加强针。他说，从2月起，其他老人将在7个月内得到加强针注射。
 
-这一消息传来之际，美国各地数千万工作者仍处于悬而未决的状态，因为联邦法院（只是）搁置了影响私营企业运营的疫苗强制令。
+日本已与辉瑞公司签约，为明年订购了1.2亿剂疫苗。截至本月，日本的疫苗库存约为1600万剂。周四，日本政府正式批准Moderna的中共病毒疫苗加强针计划，该计划迄今位置仅覆盖了0.1%的日本人口。
 
-（全文完）
+尽管日本的疫苗接种相对较晚，但迄今为止，日本已为其近80%的人口进行了全面接种，是七国集团经济体中接种比例最高的国家。
 
-唤醒世人认知疫苗是阴谋集团实施的罪恶，这需要一定的时间，但是一个简单的逻辑应该能够警示，那就是任何“政府没有权利为任何人作健康决定，”我的健康我作主。当一个政府穷凶极恶地靠解雇、断你的生存来源推行它的强制政策时，是不是比病毒本身更有毒害性？所以，强推、强制背后肯定有更大的阴谋，必须站起来说不。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月.png)
 
-继续为德克萨斯州的反抗行动点赞，终止疫苗强制政策，终止毒疫苗，清算罪恶集团！
+编辑/校对/发稿：小鹿
 
-原文链接：
 
-[https://www.kvue.com/article/news/local/texas/vaccine-mandates-medicaid-medicare/269-2b3499b5-6d7b-4dc0-8e5e-bbbc53de2781](https://www.kvue.com/article/news/local/texas/vaccine-mandates-medicaid-medicare/269-2b3499b5-6d7b-4dc0-8e5e-bbbc53de2781)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 
