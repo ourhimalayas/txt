@@ -2,36 +2,33 @@
 ---
 
 
-## 新中国联邦引领时尚新潮流
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1766528/)
+## 亚马逊为讨好北京而与中共国宣传机构合作
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1766597/)
 
-撰稿：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-8.png)
-12月15日大直播中，郭文贵先生开场展示了多款精致、设计独特的GFashion新服饰。郭先生指出，新中国联邦对外展示的，不仅是卓越的衣品和文化态度，我们正以超前媒体，金融布局，及颠覆性的网络科技，引领时尚新潮流。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-903.png)
-郭先生表示，时尚的感觉是表达自我，是融合当代的物质、科技、人文等多方面，产生的认知综合展现的结果。它不单是衣服的质地、款式以及价格的显现，更是个人在时代环境下修习，并形成新的人生观、世界观的展现。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Unknown-26.jpg)亚马逊为讨好北京而与中共国宣传机构合作 网络图片
+据美国之音12月18日援引路透社17日发表的报道，美国电商巨头亚马逊(Amazon)为了赢得北京的垂青而与中共国官方宣传机构合作。
 
-对于当前热议的网络3.0版，郭先生胸有成竹地说，爆料革命所有的布局早就达3.0版，以使用者为中心，使用者利益最大化。GTV、盖特、GNEWS，将会成为信息交易市场，社交媒体时间交易市场，社交媒体最安全的货币市场。
+2004年，亚马逊收购中共国的卓越网，开始进入中共国市场。为了发展电子书业务并推销Kindle，亚马逊推出了“中国书店”项目，出售很多非政治类书籍，也出售宣传中共政府立场和成就的书籍，包括《习近平治国理政》。但是按照北京的要求，该书关闭了读者打分和评论。
 
-当今世界正遭受着中共病毒侵害，伊维菌素、青蒿素和疫苗灾难的话题被严格审查。我们新中国联邦人行使拯救人类的使命，揭露真相，引领时尚、科技新潮流，是世界上最健康、自信的族群。
+2018年，中共国国家互联网信息办公室要求亚马逊从该公司的电影信息和评论平台IMDb删除中共国新影片《厉害了，我的国》，因为这部影片遭到恶评。在满分10分的评分制中，这部影片总评只有2.3。
+
+雅虎撤离中共国，微软旗下的领英将取消一些服务，而亚马逊近年来却在中共国成为一股强大的经济力量。只要把灵魂卖给魔鬼，短期内就能看见利益，只是与魔鬼同行能走多远呢？拭目以待吧。
+
+新闻参考链接：[https://www.voachinese.com/a/reuters-special-report-amazon-works-with-chinese-propaganda-arms-20211217/6359603.html](https://www.voachinese.com/a/reuters-special-report-amazon-works-with-chinese-propaganda-arms-20211217/6359603.html)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
 
-新闻链接: [2021年12月15日 文贵大直播](https://gtv.org/video/id=61b9e8037882000d5100be68)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
-
-编辑: Kathy文艺/雪梨
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-8.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

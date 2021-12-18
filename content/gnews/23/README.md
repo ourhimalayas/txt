@@ -2,37 +2,26 @@
 ---
 
 
-## 加拿大特鲁多隐瞒将疫苗强制延长三年的计划
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1766754/)
+## 【中日财经爆】信用评级机构标普正式判定恒大违约
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1766768/)
 
-撰稿：纽约香草山健身部— Ivy001
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2-65.jpg)[图片来源](https://www.ifinnet.com/123.html)
+中共国房地产危机的典型代表中国恒大集团周五（12月17日）被信用评级机构标普全球正式宣布违约，此前这家庞大的公司在本月早些时候未能按期完成一笔债务偿付。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/06/WhatsApp_Image_2020-10-24_at_04.33.05-4.jpeg)
+“我们评估认为，中国恒大集团及其境外融资机构天基控股有限公司未能对其未偿还的美元优先票据支付票息，”标普在一份声明中说。
 
+标普补充说，在评级被下调至“选择性违约”后，恒大已要求撤销评级。“选择性违约”是评级公司用来描述未能偿付一笔债务的情况，但不一定是所有债务。
 
+“恒大、天基或受托人没有公布或向我们确认票据支付的情况，”标普称。
 
-12月15日，加拿大保守党议员Michael Cooper发推，推文显示，特鲁多政府在国会立法中，把一项将疫苗强制授权延长至三年的条款，隐藏在财政和经济报告中，自由党计划将强制疫苗规定再维持3年。Cooper在推文最后补充，特鲁多正在企图把这些所谓的临时授权措施永久化。
+消息来源:
 
-推文下的评论说，特鲁多的三年疫苗强制计划，只能证明疫苗是无效的.
+[标普全球将中国恒大及天基控股评级调降至“选择性违约”](https://cn.reuters.com/article/sp-china-evergrande-aaa-1217-idCNKBS2IW10A?il=0)
 
-文贵先生一直反复强调，这个疫苗是中共设计出来的假疫苗，目的是为了让政府能更好的控制国民，进而控制全人类。现在，特鲁多暴露的疫苗强制三年计划，给文贵先生对世界的警告，提供了完美的证明。[https://www.gettr.com/post/pjwjg97fc1 https://mobile.twitter.com/spoonfull9/status/1471687732581715970?s=20](https://www.gettr.com/post/pjwjg97fc1%20https://mobile.twitter.com/spoonfull9/status/1471687732581715970?s=20)
-
-编辑/校对/发稿：菩提树
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

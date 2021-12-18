@@ -15,131 +15,131 @@
 
 ---
 
-### [中共国《环球时报》总编因对台湾好战言论而提前退休](/content/gnews/1/README.md)
+### [美国会通过跨党派涉疆法案，禁止强迫劳动产品进入美国](/content/gnews/1/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [加拿大公民因未接種疫苗而被禁止進入祖國](/content/gnews/2/README.md)
+### [中共国自称“民主国家”，这就是一个天大的笑话](/content/gnews/2/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [中共国《环球时报》总编因对台湾好战言论而提前退休](/content/gnews/3/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [加拿大公民因未接種疫苗而被禁止進入祖國](/content/gnews/4/README.md)
  ` 纽约香草山MOS01`
 
-### [2018年7月9日 郭文贵先生直播 全文字版](/content/gnews/3/README.md)
+### [2018年7月9日 郭文贵先生直播 全文字版](/content/gnews/5/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [美国将中国生物技术公司列入黑名单](/content/gnews/4/README.md)
+### [美国将中国生物技术公司列入黑名单](/content/gnews/6/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [习近平领导下的中共国网络言论审查日益严苛近乎变态](/content/gnews/5/README.md)
+### [习近平领导下的中共国网络言论审查日益严苛近乎变态](/content/gnews/7/README.md)
  ` 日本东京方舟农场`
 
-### [微软旗下网络搜索平台“必应”又遭中共网络监管打击](/content/gnews/6/README.md)
+### [微软旗下网络搜索平台“必应”又遭中共网络监管打击](/content/gnews/8/README.md)
  ` 日本东京方舟农场`
 
-### [疫苗效应还是功能性神经系统疾病？— COVID-19 疫苗可能会触发功能性神经障碍（ FND）](/content/gnews/7/README.md)
+### [疫苗效应还是功能性神经系统疾病？— COVID-19 疫苗可能会触发功能性神经障碍（ FND）](/content/gnews/9/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [【中日财经爆】中共国土地出让收入连续四个月负增长](/content/gnews/8/README.md)
+### [【中日财经爆】中共国土地出让收入连续四个月负增长](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [习近平彭丽媛互联网时代以一国之力对政泉和盘古施巫术](/content/gnews/9/README.md)
+### [习近平彭丽媛互联网时代以一国之力对政泉和盘古施巫术](/content/gnews/11/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [【中日财经爆】多家“海航系”上市公司被集体立案](/content/gnews/10/README.md)
+### [【中日财经爆】多家“海航系”上市公司被集体立案](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【中日财经爆】 港科网股再演黑色星期五，恒生科技指数收创新低](/content/gnews/11/README.md)
+### [【中日财经爆】 港科网股再演黑色星期五，恒生科技指数收创新低](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [12/17/2021 文贵直播：自称无神论的中共竟倾一国之力以巫术对付文贵！](/content/gnews/12/README.md)
+### [12/17/2021 文贵直播：自称无神论的中共竟倾一国之力以巫术对付文贵！](/content/gnews/14/README.md)
  ` 秘密翻译组-北美组`
 
-### [【中日财经爆】港交所明年开始接受SPAC空壳公司上市申请](/content/gnews/13/README.md)
+### [【中日财经爆】港交所明年开始接受SPAC空壳公司上市申请](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [习近平非常惧怕齐奥塞斯库与埃列娜被中国大师测准之灾](/content/gnews/14/README.md)
+### [习近平非常惧怕齐奥塞斯库与埃列娜被中国大师测准之灾](/content/gnews/16/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [【中日财经爆】中共报复立陶宛，不许德国车企使用立陶宛零件](/content/gnews/15/README.md)
+### [【中日财经爆】中共报复立陶宛，不许德国车企使用立陶宛零件](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【中日财经爆】SOHO中国与华远地产合资公司被罚7.09亿元](/content/gnews/16/README.md)
+### [【中日财经爆】SOHO中国与华远地产合资公司被罚7.09亿元](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [12/17/2021 文贵直播：标榜无神论者的习彭对盘古、政泉施了一场政治大巫术，和当年齐奥塞斯库两口子、中国历代末世君王大量实行蛊、惑、妖术、巫术如出一辙](/content/gnews/17/README.md)
+### [12/17/2021 文贵直播：标榜无神论者的习彭对盘古、政泉施了一场政治大巫术，和当年齐奥塞斯库两口子、中国历代末世君王大量实行蛊、惑、妖术、巫术如出一辙](/content/gnews/19/README.md)
  ` 秘密翻译组-北美组`
 
-### [没有患新冠的乘客被强行拘留](/content/gnews/18/README.md)
+### [没有患新冠的乘客被强行拘留](/content/gnews/20/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [【中日财经爆】中共将切断墙内投资境外股市交易渠道](/content/gnews/19/README.md)
+### [【中日财经爆】中共将切断墙内投资境外股市交易渠道](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [视频| 1000天大行动战友们要做好“三防两个准备”](/content/gnews/20/README.md)
+### [视频| 1000天大行动战友们要做好“三防两个准备”](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [【中日财经爆】信用评级机构标普正式判定恒大违约](/content/gnews/21/README.md)
+### [【中日财经爆】信用评级机构标普正式判定恒大违约](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新西兰财经G乐部 2021年12月16日](/content/gnews/22/README.md)
+### [新西兰财经G乐部 2021年12月16日](/content/gnews/24/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [加拿大特鲁多隐瞒将疫苗强制延长三年的计划](/content/gnews/23/README.md)
+### [加拿大特鲁多隐瞒将疫苗强制延长三年的计划](/content/gnews/25/README.md)
  ` 纽约香草山MOS02`
 
-### [中共的病毒疫苗生化武器计划与美国华尔街的贪婪](/content/gnews/24/README.md)
+### [中共的病毒疫苗生化武器计划与美国华尔街的贪婪](/content/gnews/26/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [第六巡回法院恢复了拜登对私营企业的疫苗强制令](/content/gnews/25/README.md)
+### [第六巡回法院恢复了拜登对私营企业的疫苗强制令](/content/gnews/27/README.md)
  ` HimalayaRussia`
 
-### [12/17/2021 文贵直播：习、彭等人极度迷信，认为裕达是中原佛手、是文贵先生的根器，必须在壬水寅虎年前干掉](/content/gnews/26/README.md)
+### [12/17/2021 文贵直播：习、彭等人极度迷信，认为裕达是中原佛手、是文贵先生的根器，必须在壬水寅虎年前干掉](/content/gnews/28/README.md)
  ` 秘密翻译组-北美组`
 
-### [GTV新闻访谈简报|2021年12月17日晚](/content/gnews/27/README.md)
+### [GTV新闻访谈简报|2021年12月17日晚](/content/gnews/29/README.md)
  ` 纽约香草山MOS01`
 
-### [中共放毒失控导致江浙疫情大爆发](/content/gnews/28/README.md)
+### [中共放毒失控导致江浙疫情大爆发](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [富力地产预爆雷，试问苍天饶过谁？](/content/gnews/29/README.md)
+### [富力地产预爆雷，试问苍天饶过谁？](/content/gnews/31/README.md)
  ` 首尔天池农场`
 
-### [新西兰财经G乐部 2021年12月15日](/content/gnews/30/README.md)
+### [新西兰财经G乐部 2021年12月15日](/content/gnews/32/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [“全球灭共大游行”，战友们要做好“三防两准备”](/content/gnews/31/README.md)
+### [“全球灭共大游行”，战友们要做好“三防两准备”](/content/gnews/33/README.md)
  ` GTV新闻访谈`
 
-### [美国制裁中共34家生产“脑控武器”实体](/content/gnews/32/README.md)
+### [美国制裁中共34家生产“脑控武器”实体](/content/gnews/34/README.md)
  ` GTV News Talk`
 
-### [突发：第六巡回法院支持拜登政权的强制疫苗规定](/content/gnews/33/README.md)
+### [突发：第六巡回法院支持拜登政权的强制疫苗规定](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [新中国联邦用尊严、安全、教育和利益凝结五十六个民族](/content/gnews/34/README.md)
+### [新中国联邦用尊严、安全、教育和利益凝结五十六个民族](/content/gnews/36/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [如果拜登真想遏制通货膨胀本可迅速做到](/content/gnews/35/README.md)
+### [如果拜登真想遏制通货膨胀本可迅速做到](/content/gnews/37/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [西藏独立对灭共意义重大](/content/gnews/36/README.md)
+### [西藏独立对灭共意义重大](/content/gnews/38/README.md)
  ` GTV新闻访谈`
 
-### [民主党人和共和党人一同呼吁拜登支持西藏自治](/content/gnews/37/README.md)
+### [民主党人和共和党人一同呼吁拜登支持西藏自治](/content/gnews/39/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国任命主张对中共强硬的伯恩斯出任大使](/content/gnews/38/README.md)
+### [美国任命主张对中共强硬的伯恩斯出任大使](/content/gnews/40/README.md)
  ` GTV News Talk`
 
-### [躺平币严格讲叫社交币，是全球的完全独立于喜币的系统](/content/gnews/39/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [“我们不反疫苗，我们反对的是假疫苗”](/content/gnews/40/README.md)
+### [“我们不反疫苗，我们反对的是假疫苗”](/content/gnews/41/README.md)
  ` GTV新闻访谈`
 
-### [亚马逊为讨好北京而与中共国宣传机构合作](/content/gnews/41/README.md)
+### [亚马逊为讨好北京而与中共国宣传机构合作](/content/gnews/42/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [新中国联邦引领时尚新潮流](/content/gnews/42/README.md)
- ` GTV新闻访谈`
 
 ### [英国新增中共病毒人数连续三天创新高](/content/gnews/43/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

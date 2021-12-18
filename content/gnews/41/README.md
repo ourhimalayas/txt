@@ -2,33 +2,36 @@
 ---
 
 
-## 亚马逊为讨好北京而与中共国宣传机构合作
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1766597/)
+## “我们不反疫苗，我们反对的是假疫苗”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1766615/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Unknown-26.jpg)亚马逊为讨好北京而与中共国宣传机构合作 网络图片
-据美国之音12月18日援引路透社17日发表的报道，美国电商巨头亚马逊(Amazon)为了赢得北京的垂青而与中共国官方宣传机构合作。
+撰稿：纽约香草山农场福音部-恩永存
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-8.png)
+12月15日，郭文贵先生在大直播中时强调，我们不是反对那些经过验证的、对人类有益的疫苗，我们反对的，是未经验证的新冠病毒假疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-904.png)
+郭先生一再强调，当前各国政府向民众推广的新冠疫苗，是中共等黑暗势力用来屠杀平民的武器。黑暗势力不仅释放病毒，还充分利用人性的弱点，推广更具杀伤性的疫苗。他们控制媒体，妄图掩盖病毒和疫苗真相。
 
-2004年，亚马逊收购中共国的卓越网，开始进入中共国市场。为了发展电子书业务并推销Kindle，亚马逊推出了“中国书店”项目，出售很多非政治类书籍，也出售宣传中共政府立场和成就的书籍，包括《习近平治国理政》。但是按照北京的要求，该书关闭了读者打分和评论。
-
-2018年，中共国国家互联网信息办公室要求亚马逊从该公司的电影信息和评论平台IMDb删除中共国新影片《厉害了，我的国》，因为这部影片遭到恶评。在满分10分的评分制中，这部影片总评只有2.3。
-
-雅虎撤离中共国，微软旗下的领英将取消一些服务，而亚马逊近年来却在中共国成为一股强大的经济力量。只要把灵魂卖给魔鬼，短期内就能看见利益，只是与魔鬼同行能走多远呢？拭目以待吧。
-
-新闻参考链接：[https://www.voachinese.com/a/reuters-special-report-amazon-works-with-chinese-propaganda-arms-20211217/6359603.html](https://www.voachinese.com/a/reuters-special-report-amazon-works-with-chinese-propaganda-arms-20211217/6359603.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+通过GNEWS、GTV、GETTR，爆料革命向全世界揭露，新冠病毒就是中共制造的生化武器，呼吁全世界认识疫苗的危害性，还无私地分享解药—青蒿素。郭先生强调，新中国联邦揭露真相，反对毒疫苗，旨在挽救更多无辜的生命。
 
 
 
+新闻链接：[2021年12月15日 文贵大直播](https://gettr.com/post/pjqagc144c)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
+
+总编：文特
+
+编辑：飞虹/雪梨
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-8.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
