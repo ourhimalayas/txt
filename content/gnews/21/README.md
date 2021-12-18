@@ -2,44 +2,42 @@
 ---
 
 
-## 证据表明 Covid病毒疫苗阻止群体免疫 延长了病毒‘大流行’ -1
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1768895/)
+## 【Michael.Tonny专栏】英格兰未成年人死于中共病毒感染概率和被雷劈差不多
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1768898/)
 
-本文作者：Rebecca (一切心皆不可得！)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-220.png)
-上图显示了接种疫苗者的免疫系统被逐渐破坏的情况。
+作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
-Humetrix AI 国防部对5.6百万65岁以上的医疗保障受益者的研究表明，接种疫苗后5-6个月被病毒感染率是接种疫苗后3-4个月的两倍。接种时间越长，其抵抗力越差。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-从流感大流行的历史来看，从来没有过持续超过两个冬天的流感大流行。到那时，群体免疫力总是已经开始发挥作用了。我们现在正处于Covid19大流行病的第二个冬天。但是没有专家预测这种大流行病会在春季结束。
+2021年11月11日，英国多家著名医疗机构联合发表在[Nature](https://www.nature.com/)的调查报告《[Deaths in children and young people in England after SARS-CoV-2 infection during the first pandemic year](https://www.nature.com/articles/s41591-021-01578-1)》显示，在2020年3月至2021年2月中共病毒流行期间，英格兰12,023,568名18岁以下的未成年人中，仅25人死于中共病毒感染。相当于在这期间，英格兰18岁以下的未成年人感染中共病毒死亡的机率为2/100万，比英格兰人被雷劈的机率（1/120万）高一点。
 
-这一次发生了一些不正常的事情。
+该报告由英国多家著名医疗机构的十多位专家联合完成，这些专家来自英国 NHS（National Health Service，英国国家医疗服务体系）、伦敦帝国理工学院（the Imperial College of London）、英国公共卫生（Public Health England）部门和布里斯托尔皇家儿童医院（the Bristol Royal Hospital for Children）。
 
-病毒基因疫苗阻止了群体免疫力发挥作用。病毒疫苗并没有加速实现群体免疫，反而阻止了群体免疫。
+该报告显示，中共病毒在英格兰大流行的第一个年中，自2020年3月至2021年2月期间，英格兰12,023,568名18岁以下的未成年人（Children and Young People，CYP）中，共有3105人因各种原因死亡，其中仅61例死亡后，其CCP病毒检测结果呈阳性，其余3044人的死因与中共病毒没有关系。
 
-事实上，唯一达到群体免疫的群体是不接种疫苗的阿米什人，以及像印度这样最初不接种疫苗而选择伊维菌素等疗法的国家。
+图1：用于确定是感染中共病毒导致死亡还是巧合的方法流程图
+![](https://assets.gnews.org/wp-content/uploads/2021/12/approach-used-to-determine-if-SARS-CoV-2-contributed-to-death.jpg)
+而结合病历对这61例个案进行仔细调查后发现，仅25例死于中共病毒感染，其中22例死于急性感染，3例死于多系统炎症综合征（PIMS-TS），另外36例尽管死亡后中共病毒检测呈阳性，但死亡原因与中共病毒无关。
 
-从世界各国实际数据来看，
+图2：图表显示了研究期间（2020年3月至2021年2 月）因中共病毒检测呈阳性而死亡的所有未成年人的累计死亡数
 
-- 基因疫苗阻止人们达到群体免疫力。
-- 基因疫苗通过降低你自身免疫系统，使你更容易感染和传播covid-19中共病毒。在满是未接种疫苗者的餐厅里，你比和接种疫苗者一起吃饭更安全。
-- 由于疫苗抑制了你自身免疫系统，不但阻止了接种疫苗的人达到群体免疫力，还使其患上了疫苗产生之免疫缺陷综合症，即一种艾滋病，我们称之为VAIDS。
-- 疫苗护照是一个骗局。持有疫苗护照的人的免疫系统受到损害，因此比未接种疫苗的人更有可能被感染。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/the-cumulative-number-of-deaths-for-all-CYP-who-died-with-a-positive-SARS-CoV-2.png)
 
+而自2020年3月到2021年2月期间，英格兰总共有469,982名18岁以下的未成年人感染了中共病毒。
 
-新闻来源链接：
+据此换算，英格兰18岁以下的未成年人感染中共病毒后的死亡率为5/10万（25÷469,982），感染中共病毒死亡的机率为2/100万（25÷12,023,568）。
 
+英格兰18岁以下的未成年人死于感染中共病毒的概率为2/100万，而所有其他原因的死亡率为25.5/10万。尽管死于中共病毒的未成年人中，亚裔和黑人比例更高，但他们死于 中共病毒感染的绝对风险仍然极低，为每6/100百万和 8/100万。同样，10-14岁和 15-17岁的未成年人死于中共病毒感染的比例高于同年龄组的未成年人死于所有其他原因的比例。然而，他们死于中共病毒感染的绝对风险仍然极低，分别为每3/100万和5/100万。
 
+而据[The Week](https://www.theweek.co.uk/)的调查报告（[What are the chances of being hit by lightning?](https://www.theweek.co.uk/59687/what-are-the-chances-of-being-struck-by-lightning)），所有英格兰5820万人，被雷劈（室内和室外总和）的风险为120万分之一，被雷劈死的风险为 1900万分之一。
 
-> [Evidence suggests the Covid-19 Vaccines are prolonging this “Pandemic” and preventing the world from reaching Herd Immunity](https://dailyexpose.uk/2021/12/13/covid-19-vaccines-are-prolonging-this-pandemic/)
+参考数据：
 
+[Deaths in children and young people in England after SARS-CoV-2 infection during the first pandemic year](https://www.nature.com/articles/s41591-021-01578-1)
 
+[What are the chances of being hit by lightning?](https://www.theweek.co.uk/59687/what-are-the-chances-of-being-struck-by-lightning)
 
-【文章仅限作者个人观点】
-
-审核校对：sherryok (水云间)
-
-上传排版：CharlieNZ查理
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/) 上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

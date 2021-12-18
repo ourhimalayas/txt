@@ -2,56 +2,33 @@
 ---
 
 
-## 灭共者之郭氏情报站（四）12月17日版
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1769041/)
+## 有声|美参议院通过国防授权法应对中共威胁
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1769060/)
 
-**出品：纽约香草山设计部**
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+配音：香草山美食部 – 玫瑰园
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+当地时间12月15日，美国国会参议院通过新财政年度的国防开支法案，为美军应对中共、俄罗斯和中东地区恐怖分子提供必要资金。预计拜登总统将在年底前签署，正式完成立法程序。 据悉，该国防授权法开支总额高达7780亿美元，比去年增加约5%。参议院军事委员会主席里德表示，该法案将解决与中共和俄罗斯展开战略竞争的迫切问题。 法案还包括协助台湾提升自我防卫能力的具体措施，加强美台双边国防高层官员全面交流，维持美军阻止中共侵略台湾采取“既成事实”的能力。在涉及中共人权方面，该法案要求国防部禁止购买任何新疆强迫劳动生产的产品。
 
+文字版原文：[美参院通过国防授权法应对中共威胁](https://gnews.org/zh-hans/1766008/)
 
-
-
-
-
-
-## **灭共者之郭氏情报站- 2021年12月17日，文贵大直播总结提炼：**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/33B84B1C-1BD2-45C0-8159-D4D1F4B768C8.png)
-1、中共国内经济危机：公司倒闭，爆发裁员潮、失业潮；出口增长难以持续；经济数据造假；房地产危机，劣质吃掉优质；方正证劵接管郑州裕达。 
-2、“习太阳”面临困境 ，极其恐惧、极度失望，加速死亡；彭副主席上位，是摊牌，是家天下正式登场，是习包子快死了！畏惧盘古龙，对道家迷信巫术相信，认为虎年是对彭丽媛的挑战，把龙头变鸟头，是相信风水，相信裕达佛手；明年是虎年，彭属虎，“龙虎相斗，必有一伤”，什么都逃不过佛主之手，是一场风水大战。 
-3、疫苗大灾难，疫苗接种的疯狂；儿童打疫苗对民众的巨大冲激；强制疫苗2个月一定会停止。新病毒Omicron，对有污染地区、有打过疫苗的，有其它病史的人群致死率、致病率都是最大的，打过疫苗会加速染病。只有新中国联邦保护我们素不相识的战友。
-
-**上一期：**
-
-[**\[郭氏情报站 （三）12月12日/12月15日版 – GNEWS\](https://gnews.org/zh-hans/1759084/)**](https://gnews.org/zh-hans/1741507/)
-
-
-
-**编辑/发稿：小鹿**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-2.png)
-
+音频处理：喜山必胜Maverick
+发稿：Tom Li
+[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

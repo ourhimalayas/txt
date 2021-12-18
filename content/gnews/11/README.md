@@ -2,33 +2,34 @@
 ---
 
 
-## 有声|美参议院通过国防授权法应对中共威胁
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1769060/)
+## 对拜登政府疫苗强制令的法律战或将打至美国最高法院
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1769093/)
 
-配音：香草山美食部 – 玫瑰园
+**撰稿：日本东京方舟农场 Kevin wang**
 
+12月17日，美国联邦第六巡回法院裁定恢复拜登政府针对企业的强制疫苗令。这一裁定取代了先前第五巡回法院的暂缓执行令。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-当地时间12月15日，美国国会参议院通过新财政年度的国防开支法案，为美军应对中共、俄罗斯和中东地区恐怖分子提供必要资金。预计拜登总统将在年底前签署，正式完成立法程序。 据悉，该国防授权法开支总额高达7780亿美元，比去年增加约5%。参议院军事委员会主席里德表示，该法案将解决与中共和俄罗斯展开战略竞争的迫切问题。 法案还包括协助台湾提升自我防卫能力的具体措施，加强美台双边国防高层官员全面交流，维持美军阻止中共侵略台湾采取“既成事实”的能力。在涉及中共人权方面，该法案要求国防部禁止购买任何新疆强迫劳动生产的产品。
+据《中央社》12月18日报道，做出此次判决的美国联邦第六巡回法院的法官斯特兰契（Jane Stranch）仅对此表示，早前暂缓实施疫苗强制令的禁令不合乎法律，然而她并未对这次判决给出足够的司法解释。
 
-文字版原文：[美参院通过国防授权法应对中共威胁](https://gnews.org/zh-hans/1766008/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-223.png)图片来自大纪元
 
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
-**更多资讯，更多关注**
+日前，美国多个州对拜登政府推出的疫苗强制令表示反对，并向法院发起诉讼。提出诉讼请求的州包括德州、路易斯安那州、南卡罗来纳州、犹他州、密西西比州等。此外，还有多个私人企业与宗教团体也加入了诉讼行列。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+随后，美国联邦第五巡回法院以“存在重大法律及宪法问题”为由，裁定拜登政府的疫苗强制令暂缓执行。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+如今，美国联邦第六巡回法院的最新裁定取代了先前第五巡回法院的暂缓执行令。而由于两个法院做出了对立的判决，因此本次法律战可能会打到美国最高法院。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+*参考链接：*
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[拜登大型企業疫苗強制令 美法院裁定恢復執行](https://www.cna.com.tw/news/firstnews/202112180099.aspx)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+* * *
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+*素材采编：Kevin wang*
+
+*编辑：青衣青青*
+
+*发布：Ranting*
 
  
 
