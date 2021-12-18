@@ -2,23 +2,32 @@
 ---
 
 
-## 以色列总理本周五決定限制未接种疫苗者进入商场 引发商场主愤怒
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1766593/)
+## 亚马逊为讨好北京而与中共国宣传机构合作
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1766597/)
 
-翻译编辑整理：GM
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-18-10.10.19.jpg)
-以色列总理贝內特昨天決定，從本周五开始，在购物商场強制执行绿色标志。根据指南，綠标规则將适合用超过1000平方米的封闭式商场，在商场入口处，將由安保人员扫描绿色标志，有绿色标志的人才被允許进入商場內自由购物，商场主对这一決定感到愤怒，并打算就政府关于商场强制绿色标志的決定向高等法院提出上訴。（已打三針疫苗者才能获得绿色标志） 那些希望进入商城而被迫只能进入基本服务场所，例如：超市和药店是被豁免出示绿色标志的场所。同时，仅接种了一次疫苗的儿童和成人將仅获得临时绿卡，该临时绿卡有效期仅为30天。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Unknown-26.jpg)亚马逊为讨好北京而与中共国宣传机构合作 网络图片
+据美国之音12月18日援引路透社17日发表的报道，美国电商巨头亚马逊(Amazon)为了赢得北京的垂青而与中共国官方宣传机构合作。
 
-今天上午购物集团Azrieli(星期三）向总理纳夫塔利·贝内特( Naftali Bennett)和参与的部长们致辞，要求取消这种布局。大纲漏洞百出——违宪、歧视，不合理、不相称的行为。该集团还发出最后通牒：“24小时内回复，以便我们审查我们的步骤。“
+2004年，亚马逊收购中共国的卓越网，开始进入中共国市场。为了发展电子书业务并推销Kindle，亚马逊推出了“中国书店”项目，出售很多非政治类书籍，也出售宣传中共政府立场和成就的书籍，包括《习近平治国理政》。但是按照北京的要求，该书关闭了读者打分和评论。
 
-“商场内强制绿卡措施在很多方面都存在缺陷，从表面上看，构成违宪、歧视、不合理、不相称，没有任何实际能力来实现防止疾病在人群中传播的目的，或鼓励免疫，”Azrieli 小组写道。“此外，大纲的实施可能对遵守法律并配合以色列政府指令的企业主和商场业主造成致命伤害。此外，正如所述，正在制定的大纲既不适用也不实际。
+2018年，中共国国家互联网信息办公室要求亚马逊从该公司的电影信息和评论平台IMDb删除中共国新影片《厉害了，我的国》，因为这部影片遭到恶评。在满分10分的评分制中，这部影片总评只有2.3。
 
-新闻链接：
+雅虎撤离中共国，微软旗下的领英将取消一些服务，而亚马逊近年来却在中共国成为一股强大的经济力量。只要把灵魂卖给魔鬼，短期内就能看见利益，只是与魔鬼同行能走多远呢？拭目以待吧。
 
-[https://mobile.mako.co.il/news-money/2021\_q4/Article-55311708a0dbd71026.htm?utm\_source=Twitter&utm\_medium=NewsChannelPost&partne=rNewsChannelTwitter&s=08](https://mobile.mako.co.il/news-money/2021_q4/Article-55311708a0dbd71026.htm?utm_source=Twitter&amp;utm_medium=NewsChannelPost&amp;partne=rNewsChannelTwitter&amp;s=08)
+新闻参考链接：[https://www.voachinese.com/a/reuters-special-report-amazon-works-with-chinese-propaganda-arms-20211217/6359603.html](https://www.voachinese.com/a/reuters-special-report-amazon-works-with-chinese-propaganda-arms-20211217/6359603.html)
 
-审核校对：Barry Jack
-上传排版：F
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

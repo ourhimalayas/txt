@@ -2,38 +2,31 @@
 ---
 
 
-## 习近平彭丽媛互联网时代以一国之力对政泉和盘古施巫术
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1766833/)
+## 疫苗效应还是功能性神经系统疾病？— COVID-19 疫苗可能会触发功能性神经障碍（ FND）
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1766860/)
 
-**郭文贵先生：**今天对盘古、对政泉做的事情，今天我告诉大家不叫风水，不是共产党说的假的无神论，它是彻彻底底的一场政治巫术，大家没看明白这问题，是一场大的政治巫术，跟过去汉朝、大汉、商朝，包括司马懿之后的晋朝，还有这个唐朝，最后没落的时候，包括武则天，都是一定是无穷无尽的道士，无穷无尽的所谓的神学之士，而且大量的事情——蛊、惑、妖术、巫术治理朝廷，一点儿都不差。包括大清朝，慈禧最后相信的都是什么这道术、那道术、这山那山，咱就别说了！这公那公都是来了。
+作者： Snowman
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-18-12.12.28.png)
+2021年8月20日Medpage Today報道（作者：Judy George）： 來自多伦多大学（University of Toronto）和罗马天主教圣心大学 (Università Cattolica del Sacro Cuore)的两位医学博士，阿方索·法萨诺 (Alfonso Fasano)和安东尼奥·丹尼尔 (Antonio Daniele)在给神经病学、神经外科和精神病学杂志 (Journal of Neurology, Neurosurgery, and Psychiatry)的一封信中，报告了两位年轻女性接种 COVID-19 疫苗后均表现出 FND的病例。与FND相似的另外两份病例，由英国伦敦国王学院（Kings College London in England）的医学博士 Matthew Butler及其共同作者，发表在神经精神病和临床神经科学杂志（Journal of Neuropsychiatry and Clinical Neuroscience）的文章中，研究结果也表明接种 COVID-19 疫苗可能会诱发 FND，并强调在评估疫苗接种后的神经系统异常症状时应考虑 FND的起因。
 
-今天的盘古和裕达，告诉了人类史上最荒唐的事情，在一个讲科学、无神论的共产党治理的天下，个人崇拜、个人独裁和所有的所谓国家主义和民族主义到了最最鼎盛的时候，施行了中国5000年、8000年以来，所有的最愚蠢的政治行为——巫术、蛊术，竟然以一国家之力，在互联网的摄像机的监督下，来做这个事情。
+FND 涉及到正常大脑控制机制的功能性损伤和破坏。导致FND产生的因素有多种，例如头部受伤，医疗、外科手术或疫苗接种等。 FND 患者可能会出现一系列神经系统异常症状，如癫痫发作、感觉出现障碍或异常、行走姿态改变、平衡出现障碍或身体明显虚弱。
 
-编辑整理：海贼王M.D.LUFFY；
+Fasano 博士和 Daniele 博士的第一位女性患者在接受第二剂辉瑞 BioNTech 疫苗 20 分钟后，出现了短暂的心因性非癫痫发作。此后，又出现了不同的病症，包括完全无法移动身体。这些病症没有发作后期，发病期中一些视频脑电图表明，并未显示任何癫痫样脑电图谱。第二位患者在接受阿斯利康疫苗约 2 周后出现持续性头晕，并报告其右臂和腿部触觉敏感性丧失。但她的脑部 CT 扫描并无异常，神经系统检查结果也未显示出明显的触觉或疼痛敏感性缺失的客观指标。在这两名患者中，神经系统病症的特点是突然发作和病理检测的结果明显不一致，均与通常在 FND 患者中观察到的相同。Bulter博士及其同事在“临床科学神经杂志”中报告的两名女性患者，均为 30 多岁而且一直非常健康。然而，一个在接种第一剂辉瑞-BioNTech 疫苗后、另一个在接种第一剂Moderna 之后均出现了FND。
 
-视频制作：Cindy；
+MedPage Today 的报告同时也引用了其他医学博士和学者的论点。例如，Espay博士阐述： “相关性并不意味着因果关系，如果确定接种疫苗后的神经系统出现功能性病症，那么只能将疫苗接种视为压力源或诱发因素，就像任何其他的压力源一样。” 此外，David Perez博士（波士顿马赛诸塞州总医院）的一篇发表在JAMA Neurology上的论文，引用并讨论了在Facebook、YouTube 和其他渠道上发佈的视频，这些视频显示了患有严重神经系统病症的人，有些在接种 COVID-19 疫苗后出现抽搐和行走困难等。他们声称：“这些视频的传播可能会造成误解，将疫苗接种与严重的神经系统病症之间过于简单的联系起来，从而增加对接种疫苗的犹豫不决。”
 
-视频上传：Cindy；
+针对这些不同论点Bulter博士告诉MedPage Today： “让临床医生意识到这一点，可以使接种疫苗后出现FND的人受益，并保持公众对疫苗的信心。” 随后补充说：“当临床医生怀疑患者是FND时，应该进行严格的因果关系评估。”
 
-G-News发布：黎明之前；
+Fasano 博士和 Daniele 博士也在信中写道： “对于医疗保险、媒体和公众舆论来说，COVID-19 疫苗接种后观察到的各种不良事件中，是否引发功能性（曾经称为心因性）神经系统疾病会是一个具有挑战性的问题，它只会对疫苗接种活动产生负面影响 。但在我们看来，接种 COVID-19 疫苗后的 FND 将不会是一种罕见的现象，并将会被媒体广泛传播。” 他们还指出： “虽然目前卫生专家一直试图强调：‘在大多数情况下，COVID-19 疫苗与各种媒体报道的不良事件之间没有直接联系，还需要做更多的工作。’但我们强烈建议神经科医生和其他医疗保健专业人员有义务向公众宣传FND方面的知识。”
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
+评：数据是科学研究的基础，但数据也能成就卑鄙的谎言。在亲历这次疫情的开始和大流行的两年时间里，如果没有郭文贵先生领导的爆料革命，几乎没有多少人能真正地看清病毒大流行发展的趋势和最终的结局。因为没有多少人意识到这不是传统意义上的病毒，就不会有多少人相信硫酸羟氯喹和伊维菌素等抗生素可以消灭病毒。一个奇怪的现象值得关注，受教育程度越高的群体则越相信疫苗才是解决病毒疫情的唯一方式。几乎所有接种疫苗的人都毫无例外的相信CDC的数据是最权威、最科学的。谁会相信疫苗公司，大主流媒体，政府权力机构中的利益高官协同掩盖真实数据，以科学的名义欺骗民众获得巨额暴利呢？残酷的事实告诉我们，中共不灭，邪恶不止。新中国联邦人才是世界上最幸运的群体，因为相信了郭文贵先生，才能看清隐藏在幕后的真相；相信爆料革命，才能冲出层层迷雾，直通喜马拉雅。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+文章来源[https://www.medpagetoday.com/neurology/generalneurology/94151](https://www.medpagetoday.com/neurology/generalneurology/94151)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+审核校对：Barry Jack
+上传排版：F
 
  
 
