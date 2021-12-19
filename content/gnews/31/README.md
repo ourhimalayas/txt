@@ -2,90 +2,30 @@
 ---
 
 
-## 视频| 共产党把盘古龙头变鸟头的原因（三）
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1770087/)
+## 温哥华岛维多利亚大学新冠疫情爆发
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/1770101/)
 
-## 摘自2021.12.17郭先生大直播
+加拿大温哥华扬帆农场 LuLu1312
+![](https://assets.gnews.org/wp-content/uploads/2021/12/uvic.ca-2.jpg)*图片来源：uvia.ca*
+加拿大BC省卫生官员表示，更多的 COVID-19 病例与维多利亚大学(Uvic)学生在校外的聚会有关。
 
-制作：香草山视频部
+截至周三，共有 137 例 COVID-19 病例与上周 UVic 学生参加的两次校外聚会有关。在这些案例中，有 15 个被确定为 Omicron 的关注变体。
 
+周二，省卫生官员 Bonnie Henry还指出，一些 Omicron 病例与 UVic 运动员参加的橄榄球比赛有关。
 
+“这次爆发是由（Delta 变体）和与橄榄球比赛有关的Omicron的部分引入所推动的，令人遗憾的是该赛事将 Omicron 传播到全国各地的社区和大学社区。”
 
-习、彭、所有的高官
-对整个中原佛手
-和对盘古龙克虎
-习是小蛇，他不是龙，龙虎永远相斗
-这两口子之间不是相生是相克的
-一定有一个早嗝儿屁的，你看着吧
-这个恐惧存在了，相信佛相信神存在了
-相信中原佛手的力量存在了
-相信明年壬寅年大水灾年存在了
-相信爆料革命就是那个所谓的八卦
-奇门遁甲，要代替他的人，相信了
-所以必须在今年农历的12月到腊月初
-在这之前要干掉
-这是叫什么？斗法呀
-这是习彭与咱斗法之年呢
-今天对盘古对政泉做的事情
-今天我告诉大家，不叫风水
-不是共产党说的假的无神论
-它是彻彻底底的一场政治巫术
-大家没看明白这个问题
-这是一场大的政治巫术
-今天的盘古和裕达
-告诉了人类最荒唐的事情
-在一个讲科学
-无神论的共产党治理的天下
-个人崇拜
-个人独裁和所有的所谓国家主义
-和民族主义到了最最鼎盛的时候
-施行了中国五千年八千年以来
-所有的最愚蠢的政治行为：巫术、蛊术
-竟然以一国家之力
-在互联网的摄像机的监督下
-来做这个事情
-这是一场多大的巫术
-而且这个施术者最后的承受人
-一定是习近平和彭丽媛的
-那他俩… 你觉得习近平的脸色
-从去年到现在更好吗？
-你觉得彭丽媛现在比原来更年轻吗？
-你觉得中国的经济越来越好吗？
-最主要的房地产
-这房地产你觉得现在是长了是增了？
-金融机构你说是好是坏了？
-中国人的中国共产党习近平同志
-在世界上受喜欢的环境
-是越来越多了吗？
-这说明这个（巫）术失败吧
-它的经济不好，房地产不好，民心不好
-国际环境不好，对台湾对香港更不好
-而且全世界把他们列为了犯罪组织
-这多大的事儿呀
-而且还让他负责
-跟当年齐奥塞斯库
-跟当年萨达姆、卡扎菲完全是一个路
-你可千万别忘了
-连北朝鲜都没混上这么多的头衔
-全让习太阳今天全混上了
+温哥华岛的活跃病例数在全省排名第二，仅次于 Fraser Health，周三有 945 例活跃病例。
 
+\*\*\*非常值得注意的是根据维多利亚大学最新10月31日的校园疫苗接种报告 – 93.7% 的学生都接种了双剂新冠疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/victoria.jpg)[图片来源](https://www.uvic.ca/news/assets/docs/2021/nov10-uvic-covid-stats-update.pdf)
+原文链接：[https://vancouverisland.ctvnews.ca/15-omicron-cases-now-linked-to-uvic-outbreak-island-health-1.5709448](https://vancouverisland.ctvnews.ca/15-omicron-cases-now-linked-to-uvic-outbreak-island-health-1.5709448)
 
+维多利亚大学接种报告：[https://www.uvic.ca/news/assets/docs/2021/nov10-uvic-covid-stats-update.pdf](https://www.uvic.ca/news/assets/docs/2021/nov10-uvic-covid-stats-update.pdf)
 
-发稿：雪梨
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/M12.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+编辑/发稿：云起时
 
  
 

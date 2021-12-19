@@ -2,31 +2,26 @@
 ---
 
 
-## 日韩接连出现接种后仍被感染的著名艺人
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1770384/)
+## 中共公布100条网络短视频审核细则，让墙内百姓更难以发声
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1770412/)
 
 作者：日本方舟农场 – Andy5
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-08-30-at-7.37.59-PM-3.png)
-12月18日最新消息，在12月第三周，韩国和日本接连出现知名艺人接种疫苗后依旧感染的情况。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-08-30-at-7.37.59-PM-2.png)
+12月15日，中共发布100条网络短视频审核的相关细则，进一步剥夺了墙内老百姓发声的自由和权利。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/9-14.jpg)
+这些细则中，除了占据首要位置的“不允许攻击、讽刺中共”“必须顺从中共核心思想”以外，还包括“不允许对主流价值观低级红、高级黑”“不允许引诱公众参与虚拟货币交易”“不允许传播非省级以上新闻单位发布的灾难事故信息”，以及“不允许私自发布党和国家领导人家庭成员信息”等。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/7-30.jpg)
-
-据悉，早在12月13日，韩国著名主持人、搞笑艺人刘在石被确诊。而在今年九月，刘在石已经接种完了第二针疫苗。接着在12月18日，日本知名搞笑艺人渡边直美也确诊感染中共病毒，同时身边经纪人也出现了确诊。据了解，渡边直美在今年4月赶赴美国纽约发展后，就立即接种了两针辉瑞疫苗。
-
-分析人士指出，这两位日韩顶尖艺人在接种后确诊，更加会引发民众对疫苗有效性的质疑。
+分析人士称，结合12月以来郭先生在大直播中屡次提及明年墙内将会有更严重的人祸天灾，以及将从明年除夕开始的对习王孟江的全球送葬活动，中共赶在15日推出的细则，切实表明了中共对新中国联邦以及墙内老百姓为真实发声的恐惧。
 
 参考链接：
 
-- [韩国艺人刘在石确诊感染新冠肺炎，此前已接种疫苗](https://m.bjnews.com.cn/detail/163937797914757.html)
-- [渡边直美在美国发烧 打完疫苗仍确诊经纪人也中镖](https://www.chinatimes.com/cn/realtimenews/20211218003257-260404?ctrack=pc_main_recmd_p01&amp;chdtv)
-- [渡辺直美、ワクチン接種を公表　「打ったのはファイザーです」「痛くなかった」](https://www.j-cast.com/2021/06/29414847.html)
-- [Conservative MP says Trudeau hiding plans to enforce vaccine mandates for THREE MORE YEARS](https://thepostmillennial.com/conservative-mp-says-trudeau-hiding-plans-to-enforce-vaccine-mandates-for-three-more-years)
+- [网络短视频内容审核标准细则（2021）](http://politics.people.com.cn/n1/2021/1215/c1001-32309186.html)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
+![This image has an empty alt attribute; its file name is Dec-4-3.png](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
 
 总编：飞虹
-编辑：文特
+编辑：飞虹
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
@@ -35,7 +30,9 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
