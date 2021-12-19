@@ -2,61 +2,36 @@
 ---
 
 
-## 中共病毒预防和治疗中几点重要细节
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1770296/)
+## 特鲁多试图秘密推动将疫苗强制延长三年的计划
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1770352/)
 
-作者：枳实
-![](https://assets.gnews.org/wp-content/uploads/2021/12/病程曲线.png)
-图片来源：FLCCC
+作者：纽约香草山健身部 – Ivy001
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-08-30-at-7.37.59-PM-2.png)
+12月15日，加拿大保守党议员米歇尔·库博发表推文称，特鲁多政府在国会立法中，一项将疫苗强制授权延长至三年的条款，隐藏在了财政和经济报告中，这表明自由党计划将疫苗强制令再维持3年。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/6-37.jpg)
+库博在推文的最后补充道，特鲁多正在企图把这些所谓的临时措施永久化。
 
-文贵先生直播最近分享了他最近服用伊维菌素的疗效，从医学角度来说，文贵先生服用伊维菌素是暴露后预防的用药方法。中共病毒感染与其它感染性疾病一样，早期用药十分重要。无论是Zelenko医生方案还是FLCCC方案都强调了这一点，后者还特别提出了暴露后预防的用药方法。这是因为暴露于病毒传染源感染病毒之后通常需要多日才会出现症状，如上图中可以看出，病毒感染的曲线陡峭上升的时间段主要处于潜伏期中，这时是没有症状的，所以出现症状之前的治疗非常重要，往往也更为有效。
-
-按照FLCCC的方案，暴露后预防的方法是：伊维菌素0.4 mg每公斤体重，饭后服用或与食物一起服用，48小时后再服用一次。
-
-从上图中潜伏期的陡峭上升的曲线可以看出，症状出现之前的病毒复制是非常迅猛的，可以说用药越早，效果越好，能够在机体的免疫系统动员起来之前，把病毒复制抑制在低水平，从而有利于在症状出现之前清除病毒。因此，战友们提前自备药物非常重要，即使能提早用药1小时都可能带来临床后果的巨大收益。
-
-另外有一个临床极为常见的问题，在目前的几个诊疗常规中都没有强调过，那就是家中的小孩染上了中共病毒而且有了症状，但是照顾孩子的家长却没有症状，这时候家长们自己该如何用药呢？根据目前的临床指南，似乎采用前面的暴露后预防的方案就可以了。
-
-我曾经也是这么认为，因此也曾经按照这个方案建议一对战友夫妻用药，虽然他们在孩子被通知隔离的当天就按照暴露后预防的方案开始服用伊维菌素，但是仍然在第3天和第4天相继出现症状，后来都经历了完整的病程。
-
-现在反思之下，我认为在孩子患病的情况下，父母或者照顾者无法隔离的情况下，伊维菌素的剂量可以考虑，或者说强烈建议直接依照治疗方案，即:
-
-在原来服用的中共病毒预防方案基础上，**伊维菌素0.4-0.6mg每公斤体重，每日一次，连用5天。**（按照FLCCC的方案，在以下3种情况下应采用较高的剂量：1. 比较有侵略性的毒株流行的地区，例如德尔塔毒株。2. 治疗始于或者晚于症状出现的第5天。3. 有基础疾病或高风险因素。）
-
-**如果仍然出现症状再按照完整治疗方案加用其它药物。**
-
-其理由如下：
-
-- 暴露后预防的典型场景是短暂的一次性暴露于被感染的风险中，比如说在无防护的情况下与感染者短暂交谈，而不是持续的无防护的情况下照顾感染者。实际上在家庭环境中，既没有层流病房，没有分隔污染区和清洁区的空间，也没有全套防护装备，更没有感染科的消毒隔离训练，仅靠普通口罩和消毒酒精对减少感染能起的作用恐怕相当有限，尤其是对低龄小儿来说，实践上是无法做到隔离的。这种情况实际上等于是每天反复暴露，从逻辑上也应该每天都服用暴露后预防方案，那么几乎就等同于治疗剂量了。
-- 伊维菌素相当安全，副作用很罕见。在这种情况下加量服用治疗剂量的潜在收益远远大于由此可能增加的风险。
-
-
-因此，家有“神兽”的战友，万一不幸遇到类似情况，可以参考本文的建议。其实如果有家人感染，即使不是小儿，但仍然共同居住的情况下，其实也可以考虑本文所建议的治疗剂量用作预防。当然在偶然接触阳性病例的情况下，或者如文贵先生那样稍有疑似症状的话，只要用暴露后预防的方案就可以了。
-
-最后需要强调的是，预防方案所包含的羟氯喹，锌，维生素D，C以及其它药物的剂量请参考以下链接，服用任何药物都应关注细节，谨慎从事。
-
-（免责声明：本文只为提供信息参考，并不含有关于使用任何药物、医疗设备、治疗或口服产品的广告，不能取代向医生或其他有资格的医疗专业人士进行咨询。您不能将这里包含的信息用于医疗、保健中问题的解决或疾病的诊断。您必须向医生或其他有资格的医疗专业人士进行咨询。请以医生建议为准。）
+推文下的多数评论称，特鲁多的三年疫苗强制计划，只能更加证明疫苗的无效。
 
 参考链接：
 
-[香草山医疗组预防和治疗方案](https://gettr.com/post/peunhudb98)
+- [https://www.gettr.com/post/pjwjg97fc1](https://www.gettr.com/post/pjwjg97fc1)
+- [https://mobile.twitter.com/spoonfull9/status/1471687732581715970?s=20](https://mobile.twitter.com/spoonfull9/status/1471687732581715970?s=20)
 
-[泽兰科医生预防和治疗方案](https://vladimirzelenkomd.com/)
 
-[FLCCC方案](https://covid19criticalcare.com/wp-content/uploads/2021/06/FLCCC_Alliance-I-MASKplus-Protocol-CHINESE-Traditional-%E7%B9%81%E9%AB%94%E4%B8%AD%E6%96%87.pdf)（中文版）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
 
-[FLCCC临床指南](https://covid19criticalcare.com/wp-content/uploads/2020/12/FLCCC-Protocols-%E2%80%93-A-Guide-to-the-Management-of-COVID-19.pdf)
+总编：Jack Li文阳
+编辑：Jack Li文阳
+校正/发稿：海阔天空1
 
-发布：枳实
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
