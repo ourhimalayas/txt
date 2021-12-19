@@ -2,17 +2,61 @@
 ---
 
 
-## 【文贵先生大直播PPT】疫苗大灾难
-` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1772003/)
+## 民主党支持将“重建更好”计划推迟至2022年
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1772007/)
 
-撰稿：火来（香草山）MyWay （扬帆）莲心不染（扬帆）文恩（香草山）
-美工：青山
+翻译：波士顿五月花  冲天一怒
 
-【2021年12月19日文贵先生大直播PPT：疫苗大灾难】
-![](https://assets.gnews.org/wp-content/uploads/2021/12/31-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/32-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/33-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/34-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/35-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/36-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/37-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/37-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/38-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/39-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/40.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/41-8.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture1-22.jpg)https://www.axios.com/
+Illustration: Brendan Lynch/Axios
+
+Axios 获悉，尽管民主党领导人坚称大规模的社会和气候支出法案将在今年年底前通过，但一些参议院民主党人正在支持拜登总统的“重建更好”计划推迟到2022年。
+
+**为何此事很重要：**除了将主要支出立法推迟到中期选举之年以外，1.75 万亿美元的法案延迟还给民主党人带来了一些技术和金融障碍，包括儿童税、清洁能源信用额度等关键条款的失效。
+
+- 对该法案的技术修复会激怒民主党人，但不会对立法造成致命影响。
+- 更大的担忧为：任何延迟都会导致计划规模变小。
+
+
+**他****们说了什么：**参议院金融服务主席罗恩·怀登告诉 Axios：当然，从一年推迟到另一年会存在经济问题。
+
+- 怀登表示，为使一月的联邦支持支票能够邮寄到美国人手中，该法案获得通过的时间必须不迟于12月28 日。
+- 委员会成员、参议员本·卡丁也表示同意：如果法案推迟到明年，会面临诸多挑战。
+
+
+**驱动****新闻：**拜登总统于周五表示，他计划在本周初与参议员乔·曼钦交谈，后者是反对该立法的关键人物。
+
+- 但曼钦并不着急会谈，尤其是在周五的报告显示通胀率已升至 6.8%之后。
+- 参议员林赛.格雷厄姆告诉记者：在 CPI 报告和共和党对“重建更好”计划的评分公布后，他于周五与曼钦进行了交谈——据估，如果项目永不失效，该法案在10年间将耗资3 万亿美元。
+- 格雷厄姆在“福克斯周日新闻”节目中谈到：乔曼钦找到我，表示该法案充满了噱头。这些项目会一直存在。如果给它们评分，我认为这个法案的预算会翻倍。
+
+
+**我****们听到的：**参议院的高级助手告诉 Axios：即便是参议院多数党领袖查克·舒默也私下承认，在 一月份之前通过该法案是一个非常有野心的目标。
+
+- 一位助手表示：如果没有如此紧迫的截止日期，工作人员就无需迫切地尽快完成工作。
+- 这位助手向 Axios 指出：舒默也曾在过去的立法斗争中设定了雄心勃勃的最后期限，例如中国法案或美国人救援计划。
+- 他们辩解道：施加压力是领导者工作的一部分。
+
+
+**字里行间的意思：**这项法案很可能被推迟。
+
+- 本月，国会面临一系列必须通过的法案的截至日期，这些期限的优先权高于 BBB (Build Back Better)法案，包括为政府提供资金、年度国防立法和提高债务上限。
+- 参议员伊丽莎白·麦克唐纳一直在接受乳腺癌治疗，这使得完成“伯德”流程（民主党和共和党人就允许纳入预算调节内容而进行的商讨流程）的时机变得复杂。
+- 卡丁表示：现在的时间表正受到国会议员的影响，不能操之过急。
+
+
+**底****线：**伯德流程预计将于本周晚些时候完工。麦克唐纳的最终决定可能会加剧谈判的复杂性。
+
+- 民主党参议员仍就法案中的关键条款开战辩论，包括州及地方税收的减免，怀登的“亿万富翁税”以及扩大医疗保险的提案。
+
+
+新闻来源: [Democrats brace for Build Back Better delay into 2022](https://www.axios.com/democrats-brace-for-build-back-better-delay-into-2022-b105d083-f716-418f-9e18-c83ec2b6f68f.html)
+
 * * *
 
-发稿：云起时
+*素材来源：**Miles Guo*
+
+*编辑**& 发布：jamie(文胤)*
 
  
 
