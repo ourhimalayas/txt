@@ -15,85 +15,85 @@
 
 ---
 
-### [香港第七届立法会选举投票站门可罗雀](/content/gnews/1/README.md)
+### [美国遣责中共开发人脑控制武器](/content/gnews/1/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [香港第七届立法会选举投票站门可罗雀](/content/gnews/2/README.md)
  ` 澳喜农场`
 
-### [法庭允许拜登的疫苗计划生效 遭强烈反对](/content/gnews/2/README.md)
+### [法庭允许拜登的疫苗计划生效 遭强烈反对](/content/gnews/3/README.md)
  ` GTV新闻访谈`
 
-### [南非住院率在世界奥米克戎激增时反而下降](/content/gnews/3/README.md)
+### [南非住院率在世界奥米克戎激增时反而下降](/content/gnews/4/README.md)
  ` GTV新闻访谈`
 
-### [内部文件显示亚马逊与中共大外宣之间的勾兑](/content/gnews/4/README.md)
+### [内部文件显示亚马逊与中共大外宣之间的勾兑](/content/gnews/5/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [奥密克戎横扫欧洲，丹麦接种率第一却成重灾区](/content/gnews/5/README.md)
+### [奥密克戎横扫欧洲，丹麦接种率第一却成重灾区](/content/gnews/6/README.md)
  ` GTV新闻访谈`
 
-### [新变种病毒对特定人群更加致命](/content/gnews/6/README.md)
+### [新变种病毒对特定人群更加致命](/content/gnews/7/README.md)
  ` GTV新闻访谈`
 
-### [李木子是能力和控制力极强的人 已是两个孩子的母亲](/content/gnews/7/README.md)
+### [李木子是能力和控制力极强的人 已是两个孩子的母亲](/content/gnews/8/README.md)
  ` 焦點20分`
 
-### [邪恶的中共，最终会被自己的邪恶反噬](/content/gnews/8/README.md)
+### [邪恶的中共，最终会被自己的邪恶反噬](/content/gnews/9/README.md)
  ` GTV新闻访谈`
 
-### [傻女国华的命运](/content/gnews/9/README.md)
+### [傻女国华的命运](/content/gnews/10/README.md)
  ` 澳喜特战旅Gnews`
 
-### [奥米克戎对定人群是极度危险的 中共国恐有10万余人已罹难](/content/gnews/10/README.md)
+### [奥米克戎对定人群是极度危险的 中共国恐有10万余人已罹难](/content/gnews/11/README.md)
  ` 焦點20分`
 
-### [第五巡回法院决定被推翻 OSHA重申疫苗强制令](/content/gnews/11/README.md)
+### [第五巡回法院决定被推翻 OSHA重申疫苗强制令](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [波音公司暂停COVID-19疫苗强制令](/content/gnews/12/README.md)
+### [波音公司暂停COVID-19疫苗强制令](/content/gnews/13/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [蔡英文：公投结果表台湾人民积拥抱国际社会的民意](/content/gnews/13/README.md)
+### [蔡英文：公投结果表台湾人民积拥抱国际社会的民意](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [习近平身边几乎已无人可信可用 言行具备大独裁者倒下前一切特质](/content/gnews/14/README.md)
+### [习近平身边几乎已无人可信可用 言行具备大独裁者倒下前一切特质](/content/gnews/15/README.md)
  ` 焦點20分`
 
-### [台湾公投案民进党大获全胜 蔡英文总统发表公开谈话](/content/gnews/15/README.md)
+### [台湾公投案民进党大获全胜 蔡英文总统发表公开谈话](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [上海震旦职业学院教师宋庚一因发表“错误言论”被开除](/content/gnews/16/README.md)
+### [上海震旦职业学院教师宋庚一因发表“错误言论”被开除](/content/gnews/17/README.md)
  ` 澳喜特战旅Gnews`
 
-### [盘古为地上龙对彭丽媛大不利 习近平忌讳龙虎相伤钦准改造盘古](/content/gnews/17/README.md)
+### [盘古为地上龙对彭丽媛大不利 习近平忌讳龙虎相伤钦准改造盘古](/content/gnews/18/README.md)
  ` 焦點20分`
 
-### [神秘脑控武器浮出水面 美国制裁34家中企指责中国开发“脑控武器”](/content/gnews/18/README.md)
+### [神秘脑控武器浮出水面 美国制裁34家中企指责中国开发“脑控武器”](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文字狱还是文化大革命？ 上海女教师质疑南京大屠杀人数遭开除](/content/gnews/19/README.md)
+### [文字狱还是文化大革命？ 上海女教师质疑南京大屠杀人数遭开除](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [瑞典开始将中共病毒护照微芯片植入人体内](/content/gnews/20/README.md)
+### [瑞典开始将中共病毒护照微芯片植入人体内](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [日本外交大臣林芳正表示：抵制北京冬奥会包括人权在内，我们将做出决定](/content/gnews/21/README.md)
+### [日本外交大臣林芳正表示：抵制北京冬奥会包括人权在内，我们将做出决定](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [台湾就美国猪肉进口进行公投，彰显民主](/content/gnews/22/README.md)
+### [台湾就美国猪肉进口进行公投，彰显民主](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [世卫组织称英国和南非的入院人数正在上升](/content/gnews/23/README.md)
+### [世卫组织称英国和南非的入院人数正在上升](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花灭共诗——游东泓炮台](/content/gnews/24/README.md)
+### [樱花灭共诗——游东泓炮台](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [裕达酒店被接管 中共国现在是劣胜优汰 互害模式的社会 经济](/content/gnews/25/README.md)
+### [裕达酒店被接管 中共国现在是劣胜优汰 互害模式的社会 经济](/content/gnews/26/README.md)
  ` 焦點20分`
 
-### [中共病毒生物战是中国共产党妄图统治全世界的前哨战](/content/gnews/26/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [新任美国驻日大使发推表示将加强美日共同的民主价值观](/content/gnews/27/README.md)
+### [中共病毒生物战是中国共产党妄图统治全世界的前哨战](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [COVID-19 最新情报｜日本考虑公费负担新冠口服药 郭文贵曾爆新药副作用极强](/content/gnews/28/README.md)
