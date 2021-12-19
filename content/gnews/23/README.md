@@ -2,66 +2,50 @@
 ---
 
 
-## 【Michael.Tonny专栏】英国官方数据和报告证明 对公众宣称的疫苗接种数据造假（下）
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1770981/)
+## 靠借钱做生意什么都敢吃明天死了今天也得工作的中国人
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1771036/)
 
-作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
-[接上篇：【Michael.Tonny专栏】英国官方数据和报告证明 对公众宣称的疫苗接种数据造假（上）](https://gnews.org/zh-hans/1770915/)
+**郭文贵先生：**我娘到最后一分钟，我老娘都88了走了，还给旁边儿的这些保镖、医生做饭吃，她不做饭她难受。我爹现在中风躺在那儿了，我爹是没办法了是吧？没法、他没法干别的事情了。
 
-根据英国卫生安全局（UK Health Security Agency）发布的《[COVID-19 vaccine surveillance report Week 50](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1041593/Vaccine-surveillance-report-week-50.pdf)》报告第三页Population impact一段，到 2021年12 月12日，英格兰第1剂疫苗的总体接种率为67.9%，第2剂疫苗为62.2%，第3剂的接种率为 31.4%。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Population-impact.png)
-结合英格兰总人口、年龄分布、和卫生安全局的报告，可得到下表计算结果：
+我从小长大的我一直在问一个问题：为什么中国人咋就这么勤劳，这么样的穷苦，从来不过好日子，从来不吃好的，但为什么中国这个国家从来不富裕？为什么中国人都已经地震来了，中国人还得去干活儿？中国人从来没有过上好日子，没有一个体面房子、体面的衣裳，一年不洗两次澡。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Covid-19-Vaccination-Uptake-in-England-a.jpg)
+刚才我跟你说的房地产这么坏的大数据的时候，你看看中国人的视野在干嘛？有人在捡便宜买房，就像我小时候看到有人杀了猪过年，结果带豆儿，那个痘猪吃了是长肿瘤的，但一堆人会抢掉，也有人抢得买，就便宜，在高压锅煮完以后就卖带痘儿的猪肉，疯抢完毕。就中国的房地产现在有多少人买那个带痘的病猪，一模一样。还有人在开饭店，为啥呀？因为很多饭店关了。不是因为饭店生意好，是因为很多饭店关了。在甘肃都有人开，为什么？没选择。开饭店还有点机会。开饭店的钱哪的？东家表姐，表姐、表哥借来的。
 
-也就是说，根据英国各部门的数据汇总到一起推算，在英格兰5598万人中，没有打毒疫苗的人有2350.5万，拒绝打疫苗的人口为2350.5-815.2=1535.3万，远比政客和媒体从9月份到现在一直宣称的500万人多得多。
+所以中国人这个互害互伤，只要我能活着，只要我活着，只要我活着我就得工作，只要我活着挣的钱我就要留着，只要我挣的钱我留着最后都是党的，然后只要我能开店，我能开个小生意，我就把所有亲戚家人全借了。
 
-英国政客和媒体一直在对公众撒谎！隐瞒数字，把拒绝打毒疫苗群体变成人数人，对拒绝打疫苗的人进行道德和法律绑架！
+靠借钱做生意，几乎人类上可能就剩我们这一家；什么都敢吃的也只有我们这一家了；什么明天就是死了今天也得干活也只有我们一家了；而且根本只顾今天不顾明天，顾了头顾不了腚也就我们一家了；中国人已经完全没有一个识别真假善恶，甚至判断自己生存危机的基本能力都没有了。
 
-更为严重的是，英国政客和媒体，很少向公众透露疫苗有毒的事实。注射毒疫苗既不能预防感染，也不能减少死亡，反而是成倍增加感染概率、增加感染后住院概率、增加死亡概率！
+所以说你看到这个的时候，就是共产党为啥乐是吧？就我们几个家族，坐在那讲讲话，是吧，宇宙无限大，地球是一粒沙，你就把裤子脱了，是吧？然后告诉你没有共产党就没有新中国，（唱）没有共产党就没有新中国。哎对呀，就是呀，没有共产党就没有新中国，两遍一开回去听吧，（用力唱）没有共产党就没有新中国，呀绝对信绝对信，就信了，是吧？这个民族他就这样，是不是，（唱）北京的金山上出来个金太阳，唉毛主席就是太阳。
 
-TheExpose.uk就根据[英国卫生安全局（UK Health Security Agency）](https://www.gov.uk/government/organisations/uk-health-security-agency)2021年12月9日发布的第49周全国流感和COVID-19监测报告（[National flu and COVID-19surveillance report:9 December 2021 (week 49)](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1039639/Weekly_Flu_and_COVID-19_report_w49.pdf)）得出结论：自8月16日至12月5日期间，英国每5个感染中共病毒病例中有3个、每5个住院病例中有3个、每5个死亡病例中有4个已完全接种疫苗。未接种疫苗的人感染中共病毒后的病死率为0.2%，完全接种疫苗为0.8%；未接种疫苗人感染中共病毒后的住院死亡率为26%，完全接种疫苗的人群为63%。
+就没办法，现在中央领导说了，大家要过紧日子清盘叫清盘吃光啊。然后房地产不会降不会降啊。说一遍不信是吧，有党呢，爹亲娘亲不如党亲，一切相信党的，党说的都是真理，对对对对。对吧，然后打针，打疫苗，打疫苗没事，打了人死了几个？还是死人少是吧，那你为啥不打？是吧，对对对，打，是吧。我都打了，你为啥不打？唉打打打打打。
 
-今年8月16日至12月5日期间，未接种疫苗的人因感染CCP病毒后的住院人数是11,767人，而接种疫苗后因感染中共病毒后住院的人数是19,730人，其中18,406人还是接种了两针毒剂量疫苗的人群。这意味着自2021年8月以来，接种疫苗的人群占所有因感染中共病毒而住院人数的 63%，接种疫苗不能预防病毒，更不能减少住院，有限的医疗资源反而是接种疫苗的人占据了大部分。
+就是你都不能想象，我跟外国人解释这段，跟你们说完全不同的感觉。我每句话说出来我都想拿刀子捅我几刀的感觉，你们不知道有多痛啊。因为你说这些话的时候，在你周围就你自己的时候，你的心痛到不能想象。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-154-1.png)
+字幕来源：[2021年12月17日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1768692/)；
 
-自2021年8月以来，完全接种疫苗的人群占感染中共病毒死亡人数的大部分，尤其自10 月份情况确实变得更糟。
+SRT文件制作：小满；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/fully-vaccinated-population-have-accounted-for-the-majority-of-Covid-19-deaths-every-single-month-since-August-2021.png)
+视频剪辑及上传：Cindy；
 
-从8月16日开始到12月5日，因感染中共病毒总共死亡15,128人，其中，未打疫苗者为3,070人，仅打一针疫苗者514人，打了两针疫苗者11,544人，已接种疫苗的人占79.7%，10月11日到11月7日四周内，打了疫苗的人占感染中共病毒后，总死亡人数的82.9%，11月8日到12月5日期间占80.1%。
+G-News发布：小满；
 
-从8月16日开始到12月5日，接种疫苗的人群占中共病毒确诊病例的56%、住院人数的63%和死亡人数的 80%（79.7%）。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-612.png)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-最后看一下，同样是感染了CCP病毒，没有打疫苗的人最终死亡率为0.2%，而打了疫苗的人为0.8%。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/not-vaccinated-population-and-the-case-fatality-rate-among-the-vaccinated-population.png)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-疫苗既不能预防感染，也不能减少死亡！
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-政客和媒体通过隐瞒拒绝打疫苗的人数，用虚假数据使拒绝打毒疫苗的人处于被孤立的少部分，背上胆小、无知、不负责任或愚蠢的精神枷锁和甚至违法的沉重负担，这种用一个谎言掩盖另一个谎言，必将受到人类的审判！
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-参考数据：
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-[COVID-19 vaccine surveillance report Week 50](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1041593/Vaccine-surveillance-report-week-50.pdf)
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-[Whilst you were distracted by a Christmas Party the UK Gov. released a report confirming the Fully Vaccinated account for 4 in every 5 Covid-19 Deaths in England since August](https://dailyexpose.uk/2021/12/11/report-shows-4-in-5-covid-deaths-fully-vaccinated/)
-
-[Population of England in 2020, by age group](https://www.statista.com/statistics/281208/population-of-the-england-by-age-group/)
-
-[It’s time to punish Britain’s five million vaccine refuseniks: They put us all at risk of more restrictions, says ANDREW NEIL. So why shouldn’t we curb some of their freedoms?](https://www.dailymail.co.uk/debate/article-10294225/Its-time-punish-Britains-five-million-vaccine-refuseniks-says-ANDREW-NEIL.html)
-
-[COVID-19 vaccine surveillance report Week 49](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1039677/Vaccine_surveillance_report_-_week_49.pdf)
-
-[Covid jab rollout for 12 to 15-year-olds to start in UK schools](https://www.bbc.com/news/uk-58552769)
-
-[UK Government report admits there are 23.5 Million people in England who have NOT had a single dose of a Covid-19 Vaccine](https://dailyexpose.uk/2021/12/17/23-million-not-vaccinated-in-england/)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/) 上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
