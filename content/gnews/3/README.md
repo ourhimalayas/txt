@@ -2,41 +2,40 @@
 ---
 
 
-## 波音公司暂停对美国员工强制接种疫苗
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1770351/)
+## 日韩接连出现接种后仍被感染的著名艺人
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1770384/)
 
-**作者：埃里克·M·约翰逊（Eric M. Johnson）**
+作者：日本方舟农场 – Andy5
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-08-30-at-7.37.59-PM-3.png)
+12月18日最新消息，在12月第三周，韩国和日本接连出现知名艺人接种疫苗后依旧感染的情况。
 
-**2021年12月17日**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-19-下午1_Fotor.png)
-西雅图，12月17日(路透社)——美国飞机制造商波音公司(BA.N)周五表示，该公司暂停了对美国员工的冠状病毒疫苗接种要求，数千名员工寻求豁免，因为（此事）数周的不确定性画上了句号，并在法庭上对联邦命令提出了挑战。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/7-30.jpg)
 
-波音公司在一份内部声明中表示，该决定是在对美国地方法院本月早些时候的裁决进行审查后做出的，该裁决暂停执行总统乔·拜登(Joe Biden)要求联邦承包商接种疫苗的规定。
+据悉，早在12月13日，韩国著名主持人、搞笑艺人刘在石被确诊。而在今年九月，刘在石已经接种完了第二针疫苗。接着在12月18日，日本知名搞笑艺人渡边直美也确诊感染中共病毒，同时身边经纪人也出现了确诊。据了解，渡边直美在今年4月赶赴美国纽约发展后，就立即接种了两针辉瑞疫苗。
 
-一些大型医疗连锁企业和公司，如通用电气(GE.N)、势必锐航空系统公司(Spirit AeroSystems)和美国铁路客运公司(Amtrak)，也暂停了对员工接种疫苗的规定。
+分析人士指出，这两位日韩顶尖艺人在接种后确诊，更加会引发民众对疫苗有效性的质疑。
 
-据路透社报道，最近几周，波音公司因宗教或医疗原因寻求疫苗豁免的员工人数已超过11000人，占其美国员工总数的近9%，这一数字比高管们最初的估计高出许多倍。
+参考链接：
 
-绝大多数的求职申请都是基于宗教原因，这一事实将美国最大的雇主之一推向了一场关于探究雇员的宗教信仰是否道德的辩论漩涡中。
+- [韩国艺人刘在石确诊感染新冠肺炎，此前已接种疫苗](https://m.bjnews.com.cn/detail/163937797914757.html)
+- [渡边直美在美国发烧 打完疫苗仍确诊经纪人也中镖](https://www.chinatimes.com/cn/realtimenews/20211218003257-260404?ctrack=pc_main_recmd_p01&amp;chdtv)
+- [渡辺直美、ワクチン接種を公表　「打ったのはファイザーです」「痛くなかった」](https://www.j-cast.com/2021/06/29414847.html)
+- [Conservative MP says Trudeau hiding plans to enforce vaccine mandates for THREE MORE YEARS](https://thepostmillennial.com/conservative-mp-says-trudeau-hiding-plans-to-enforce-vaccine-mandates-for-three-more-years)
 
-这也让高管们在寻找一种既能保证员工安全，又能避免工程和工厂劳动力外流的策略。
 
-根据周五的备忘录，波音公司的疫苗接种要求导致超过92%的美国员工注册为完全接种疫苗，或接受了宗教或医疗豁免证明。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
 
-“波音公司迄今为止的疫苗接种要求的成功，使该公司很好地遵守联邦行政命令，如果它在未来恢复的话，”它补充说。
+总编：飞虹
+编辑：文特
+校正/发稿：海阔天空1
 
-波音的一名发言人证实了这一决定，并补充说，该公司“致力于为我们的员工维持一个安全的工作环境，并促进我们全球员工的健康和安全。”
-
-该发言人补充说，波音公司根据法院禁止执行联邦承包商行政命令和一些州法律的决定，暂停了其疫苗接种要求。
-
-上个月，白宫将联邦承包商雇员接受疫苗接种或定期检测的最后期限推迟到1月4日，如果他们获得了豁免。
-
-**新闻来源:[路透社（REUTERS）](https://www.reuters.com/business/aerospace-defense/exclusive-boeing-suspends-vaccination-requirement-us-based-employees-internal-2021-12-17/)**
-
-翻译：文虓Bobby
-
-发布:Astrid星星
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

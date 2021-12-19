@@ -2,41 +2,36 @@
 ---
 
 
-## 超级台风肆虐菲律宾，造成重大破坏
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1769589/)
+## 令行禁止：波音公司暂停对美国员工的疫苗强制
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1769703/)
 
-**【雅典娜快讯】，紧贴时代脉搏**
+作者：雄起
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-975.png)图片来源：CNN
+据12 月 17 日路透社报道，美国飞机制造商波音公司（BA.N）周五表示，公司暂停了对美国员工的冠状病毒疫苗接种要求，结束了几周以来的不确定性，因为数千名工人的寻求疫苗豁免和在法庭上挑战联邦强制令。
 
-**编译：文泓**
+发言人补充说，波音公司是根据法院禁止执行联邦承包商行政命令和一些州法律的决定，暂停了其疫苗接种要求。
 
-12月18日，据RT新闻报道，台风“Rai”横扫菲律宾，造成30多万人流离失所，至少31人死亡。它是该群岛今年第15个和最强的大风暴。
+在上个月，白宫将联邦承包商的雇员接种疫苗或定期接受豁免的最后期限推迟到 1 月 4 日。而在本月早些时候，美国地方法院的一项裁决停止执行总统乔·拜登对联邦承包商的疫苗要求。
 
-这场热带风暴在国际上被命名为“Rai”，在当地被命名为“Odette”，本周它聚集在菲律宾上空，比通常在7月至10月间形成的大多数台风要晚。在星期四台风迅速加强，并被列为超级台风，并达到了最高级别的5级风暴。
+值得一提的是，通用电气[(GE.N)](https://www.reuters.com/companies/GE.N)、Spirit AeroSystems [(SPR.N)](https://www.reuters.com/companies/SPR.N)和 Amtrak等一些大型医疗保健连锁店和公司也暂停了对员工的疫苗接种要求。
 
-在受灾最严重的地区，“怪物风暴”造成了“彻底破坏”，记者大卫·桑托斯也在社交媒体上分享了灾后的图片。
+据路透社首次报道，最近几周，因宗教或医疗原因寻求疫苗豁免的波音员工人数已超过 11,000 人，占其美国员工总数的近 9%，比高管最初估计的人数高出许多倍。这让高管们试图寻找一种策略，既能保证员工安全，又能避免工程和工厂劳动力外流。
 
-视频显示，当风速达到195公里/小时（121英里/小时），它撕掉了屋顶，连根拔起了树木，在台风横扫路径上造成了广泛的破坏，暴雨使房屋和大片稻田被淹没。
+根据周五的备忘录，波音公司的疫苗接种要求已导致超过 92% 的美国工人已登记为完全接种疫苗，或获得宗教及医疗豁免。
 
-菲律宾的灾害机构星期六说，至少有31人死亡。据报道，大多数死亡者是由于树木倒下或溺水而死。官员们说，这些死亡人数是初步的，可能会上升，因为各省的更多信息还没有上报。
+“迄今为止，波音疫苗接种要求的成功使该公司能够很好地遵守联邦行政命令，备忘录提到，该公司 “致力于为我们的员工维护一个安全的工作环境，并促进我们全球员工的健康和安全。”
 
-台风肆虐了这个岛国的南部和中部地区，也袭击了包括锡亚高和宿务在内的热门旅游目的地。30多万人逃离了他们的家园和海滨度假胜地。数十个航班被取消，导致约4000人滞留。
+笔者相信，波音公司是真的出于保证员工安全的初心来执行疫苗注射要求的。毕竟科学的概念已经深入人心很多年。但目前科学界由福奇这样的所谓权威专家占据着话语权，大量的科学界，医学界的反对疫苗的声音被打压，所以社会普遍的以相信科学的心态来执行政府的疫苗接种要求也就不足为奇了。
 
-迪纳加群岛的一名当地官员说，“一切都被摧毁了”，包括疏散中心，当地居民无处寻求庇护。总统杜特尔特宣布，他将在周六访问受灾最严重的地区，他说他不太担心建筑物结构的损坏，但“担心可能有很多人死亡”。
+而随着疫苗灾难以及临床数据的不断披露，和反对疫苗强制的声音越来越强，美国政界也终于有所反应，相信，以地方法院的对疫苗强制令的反对为起点，整个美国政府对疫苗强制的态度很快会有转变。企业和教育机构乃至整个社会的传导效应也会随之而来。
 
-气象预报员说，在星期六离开菲律宾后，台风“Rai”将在南中国海上空出现，并向越南进发。
+[新闻链接](https://www.reuters.com/business/aerospace-defense/exclusive-boeing-suspends-vaccination-requirement-us-based-employees-internal-2021-12-17/)：[https://www.reuters.com/business/aerospace-defense/exclusive-boeing-suspends-vaccination-requirement-us-based-employees-internal-2021-12-17/](https://www.reuters.com/business/aerospace-defense/exclusive-boeing-suspends-vaccination-requirement-us-based-employees-internal-2021-12-17/)
 
-新闻链接：[WATCH: ‘Utter destruction’ as super typhoon ravages Philippines — RT World News](https://www.rt.com/news/543590-philippines-typhoon-devastation-video/)
+审核校对： sherryok
 
-*发布：盘古相聚*
+上传排版： 水云间
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
 
  
 

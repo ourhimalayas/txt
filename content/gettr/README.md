@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/19/2021 6:36 AM (UTC)`
+
+本周末,成千上万的澳大利亚人再次聚集在墨尔本街头抗议疫苗禁令<br/><br/>This weekend,  thousands of Australia protesters hit the streets  in Melbourne again to fight vaccination mandates and Covid-19 restrictions<br/><br/>
+![img](https://media.gettr.com/group27/getter/2021/12/19/06/f0ed2c36-a5b5-5509-0084-ccf859558104/out.jpg)
+
+---
+
 `@miles 12/18/2021 10:25 PM (UTC)`
 
 12/18/2021 Miles Guo’s GETTR: I heard that many people working in the banks and the Political & Legal Affairs Commission system got arrested.  Did I guess correctly again?  In the whole central south region in China, it was ordered to withhold salaries and pensions and no payment would be issued anymore.  How can Lao Baixing survive?  In contrast, hospitals’ business is going to be hot and booming. It’s said that all hospitals in Communist China must surrender 1.5 trillion yuan by June 2022.<br/><br/>12/18/2021 文贵盖特：听说政法委、银行系统大量抓人，七哥又蒙对了？整个中南部地区已经下令停发工资、养老金，老百姓可怎么活？医院生意要火啊，据说明年6月前中共国医院必须上交一万五千亿！
@@ -152,12 +159,6 @@
 
 12/16/2021 Miles Guo’s GETTR: “VP” Peng Liyuan joined the show yesterday, and why did I say that right again? It’s also said that Wang Jianlin (Wanda) had taken over Yuda Palace Hotel. Hope he can manage it well, and God bless him. Don’t turn Yuda, the Buddha’s Hands-shaped building, into “Buddha's Hands on Fire”<br/><br/>12/16/2021 文贵盖特：听说昨天彭“副主席”正式出场了，七哥咋又蒙对了呢？据说万达王健林把裕达国贸酒店拿走了？希望他好好管理，可千万别让裕达变成“火佛手”啊<br/>
 ![img](https://media.gettr.com/group25/getter/2021/12/16/22/2c517dc4-55b5-91e1-0693-cbda8117466a/out.jpg)
-
----
-
-`@miles 12/16/2021 10:12 PM (UTC)`
-
-16/12/2021  On 7th Day of Launch, MV "Hcoin To the Moon" Hits iTunes <br/> No. 1 🥇on 16 Countries Top MV Charts !<br/>No.1🥇 on 12 Countries Rock MV Charts!<br/>No.1🥇 on 8 Countries Rock song Charts!<br/>No.1🥇on 4 countries Hip-pop/Rap song Charts!<br/>Miracle continues…….🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, USA, Taiwan, Australia, Canada, Singapore, Cambodia, Laos, Hungary，Italy, Philippines, Malaysia, Fiji, Latvia, Macau, Finland!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1761435/<br/><br/>12月16号，MV版Hcoin To the Moon上线第7天位列iTunes<br/>16国热门MV榜首🥇！<br/>12国摇滚MV榜首🥇！<br/>8国摇滚歌曲榜首🥇！<br/>4国嘻哈歌曲榜首🥇！<br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港，美国，台湾，澳大利亚，加拿大，新加坡，柬埔寨，老挝，匈牙利, 意大利，菲律宾， 马来西亚，斐济，拉脱维亚，澳门，芬兰的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏
 
 ---
 

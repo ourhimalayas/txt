@@ -2,42 +2,22 @@
 ---
 
 
-## Twitter禁止用户声称疫苗接种者会传播冠状病毒
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1769824/)
+## 秘翻在线：“相信政府，反而失去了家人”…疫苗受害者家人在暴雪中哭诉
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1769896/)
 
-【简评：】从短期来看，该措施会阻碍COVID毒疫苗真相的揭露和传播；但是勇敢的人已经站出来发声，民众已经开始觉醒，螳臂当车能挡得住吗？从长期来看，这也是好事：就让 这些信息垄断者犯下罪行，将来才能通过审判，一举打倒消灭这些科技寡头，将信息/言论自由的权利重新归还给人民。“上帝让谁灭亡，必先让其疯狂！”
+翻译/撰稿: Eric Kim(文言)KR
+![](https://assets.gnews.org/wp-content/uploads/2021/12/画像3.png)图片来源：韩国中央日报
+2021年12月18日下午4时，下起了鹅毛大雪的韩国首尔西大门区独立门前摆满了40名疫苗受害者的遗照。在恶劣的天气中，站在遗照旁的人们对来往的市民哭诉道：“请驻足倾听下我们的冤屈”……他们正是COVID-19疫苗受害者的家人们。
 
-据《Breitbart》记者 ALLUM BOKHARI，2021年12月15日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-985.png)图片源自Google Cloud
-据报道，Twitter将惩罚那些声称“接种了冠状病毒疫苗的人仍然可以传播这种疾病”的用户——尽管疾病控制中心（CDC）的官方指南另有说法。
+因相信韩国政府，让家人接种了疫苗导致家人死亡，其原因却不被韩国政府所承认，何其悲哀。为受害者鸣不平的家人们自主成立了“COVID-19疫苗受害者家人互助会”(Kobaekhoe)，当天在独立门和青瓦台前举行了第5次蜡烛集会。11月20日，在国会前举行“疫苗牺牲者追悼仪式”后，每周六都会聚在一起的人们高喊着“我们的死亡是韩国政府造成的人祸”，并要求政府解释疫苗受害原因，并承认其因果关系。
 
-用户可能会因违反该政策而面临一系列处罚，包括其被推文上贴上“事实核查”标签、暂停和永久禁止用户使用该平台。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-986.png)2021 年 3 月 20 日，一名医疗保健专业人员在都柏林城市大学校园 Helix 的疫苗接种中心准备一剂辉瑞 / BioNTech Covid-19 疫苗。 – 爱尔兰卫生服务执行官于 3 月 19 日宣布将恢复接种因安全问题而暂停AstraZeneca/Oxford Covid-19 疫苗。（Paul Faith/法新社摄）（PAUL FAITH/法新社摄，盖蒂图片社）
-通过媒体：
+当日，Kobaekhoe会长(KIM DUKEONG)对政府发出了质疑：“真想问问我们的政府，为什么我们要拿着家属遗照带着如此委屈的心情来到这里？这就是对疫苗安全负责的承诺吗？”，又说到“政府对直到昨天还健康完整，却在家人接种疫苗死亡后濒临破碎的家庭，只是表示遗憾和不承认其因果关系的态度，良心不会痛吗？”
 
-“当推文包含有关Covid-19的误导性信息时，我们可能会在这些推文上贴上标签，其中包含有关该声明的纠正信息。”该网站在详细说明其有关Covid-19错误信息的规则的部分中指出 。“我们可能会在推文上贴上标签，例如……虚假或误导性的声明，即接种疫苗的人可以将病毒（或症状或免疫力）传播或传播给未接种疫苗的人。”
+据COVID-19疫苗接种应对小组称，从2021年2月26日至16日开始接种疫苗的人中，已经有977例疑似因接种后因副作用死亡的报告。自上个月20日Kobaekhoe举行第一次烛光守夜以来的四个星期内，报告的死亡人数增加了60人。
 
-用户可能会受到处罚，直至永久被禁止使用平台。
+信息来源: [https://www.joongang.co.kr/article/25033413](https://www.joongang.co.kr/article/25033413)
 
-根据Reclaim the Net检索到的Wayback Machine档案 ，该更改是在12月2日进行 的。该政策与疾病控制和预防中心（CDC）的指导方针相矛盾，该指导方针指出“只要病毒继续在社区传播，就不能完全消除完全接种疫苗的人感染SARS-CoV-2的风险。”
-
-根据CDC的说法，“虽然疫苗可以降低您因COVID-19而患上重病、住院和死亡的风险，但我们尚不知道它们对可能出现的新变种（包括 Omicron）的效果如何。”
-
-CDC其实已经变相承认疫苗无用，无法阻挡新冠病毒变种的感染。
-
-Breitbart News已联系Twitter征求评论。
-
-文章来源：[https://www.breitbart.com/politics/2021/12/15/twitter-bans-claim-that-vaccinated-can-spread-coronavirus/](https://www.breitbart.com/politics/2021/12/15/twitter-bans-claim-that-vaccinated-can-spread-coronavirus/)
-
-翻译：洛杉矶盘古农场 – Raul 
-校对：洛杉矶盘古农场– Mike Li
-评论：洛杉矶盘古农场–柯镇恶
-编辑：洛杉矶盘古农场-柯镇恶
-发布 ：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/12/image-987.png)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+责编:待命(文晓)
 
  
 
