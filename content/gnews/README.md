@@ -15,101 +15,101 @@
 
 ---
 
-### [文字狱还是文化大革命？ 上海女教师质疑南京大屠杀人数遭开除](/content/gnews/1/README.md)
+### [蔡英文：公投结果表台湾人民积拥抱国际社会的民意](/content/gnews/1/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [瑞典开始将中共病毒护照微芯片植入人体内](/content/gnews/2/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [日本外交大臣林芳正表示：抵制北京冬奥会包括人权在内，我们将做出决定](/content/gnews/3/README.md)
+### [台湾公投案民进党大获全胜 蔡英文总统发表公开谈话](/content/gnews/2/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [台湾就美国猪肉进口进行公投，彰显民主](/content/gnews/4/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [世卫组织称英国和南非的入院人数正在上升](/content/gnews/5/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [樱花灭共诗——游东泓炮台](/content/gnews/6/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [裕达酒店被接管 中共国现在是劣胜优汰 互害模式的社会 经济](/content/gnews/7/README.md)
+### [盘古为地上龙对彭丽媛大不利 习近平忌讳龙虎相伤钦准改造盘古](/content/gnews/3/README.md)
  ` 焦點20分`
 
-### [中共病毒生物战是中国共产党妄图统治全世界的前哨战](/content/gnews/8/README.md)
+### [神秘脑控武器浮出水面 美国制裁34家中企指责中国开发“脑控武器”](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新任美国驻日大使发推表示将加强美日共同的民主价值观](/content/gnews/9/README.md)
+### [文字狱还是文化大革命？ 上海女教师质疑南京大屠杀人数遭开除](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [COVID-19 最新情报｜日本考虑公费负担新冠口服药 郭文贵曾爆新药副作用极强](/content/gnews/10/README.md)
+### [瑞典开始将中共病毒护照微芯片植入人体内](/content/gnews/6/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [日本外交大臣林芳正表示：抵制北京冬奥会包括人权在内，我们将做出决定](/content/gnews/7/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [台湾就美国猪肉进口进行公投，彰显民主](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [世卫组织称英国和南非的入院人数正在上升](/content/gnews/9/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [樱花灭共诗——游东泓炮台](/content/gnews/10/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [裕达酒店被接管 中共国现在是劣胜优汰 互害模式的社会 经济](/content/gnews/11/README.md)
+ ` 焦點20分`
+
+### [中共病毒生物战是中国共产党妄图统治全世界的前哨战](/content/gnews/12/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [新任美国驻日大使发推表示将加强美日共同的民主价值观](/content/gnews/13/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [COVID-19 最新情报｜日本考虑公费负担新冠口服药 郭文贵曾爆新药副作用极强](/content/gnews/14/README.md)
  ` 關注組`
 
-### [【中日财经爆】王岐山的马仔百亿富豪解直锟 三针疫苗心梗死](/content/gnews/11/README.md)
+### [【中日财经爆】王岐山的马仔百亿富豪解直锟 三针疫苗心梗死](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [国务卿东南亚行程两名空军机组人员感染中共病毒](/content/gnews/12/README.md)
+### [国务卿东南亚行程两名空军机组人员感染中共病毒](/content/gnews/16/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [郭文贵先生2021年12月18日盖特视频（9分57秒）全文字版](/content/gnews/13/README.md)
+### [郭文贵先生2021年12月18日盖特视频（9分57秒）全文字版](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国监管机构调查 Afterpay](/content/gnews/14/README.md)
+### [美国监管机构调查 Afterpay](/content/gnews/18/README.md)
  ` 澳喜农场`
 
-### [有声|郭先生解析中共年前抢夺盘古和裕达的原因](/content/gnews/15/README.md)
+### [有声|郭先生解析中共年前抢夺盘古和裕达的原因](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [有声|港共政府清算《苹果日报》发行公司](/content/gnews/16/README.md)
+### [有声|港共政府清算《苹果日报》发行公司](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [对六四勇士的乱葬岗并未让共产党更强大却培养出郭文贵](/content/gnews/17/README.md)
+### [对六四勇士的乱葬岗并未让共产党更强大却培养出郭文贵](/content/gnews/21/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [曝光：利兹·切尼 (Liz Cheney) 接受了中国共产党影响力集团颁发的“政治家风度”奖](/content/gnews/18/README.md)
+### [曝光：利兹·切尼 (Liz Cheney) 接受了中国共产党影响力集团颁发的“政治家风度”奖](/content/gnews/22/README.md)
  ` 温哥华扬帆农场`
 
-### [捷克新政府强调将与台湾等民主政府合作](/content/gnews/19/README.md)
- ` GTV新闻访谈`
-
-### [郭文贵盖特音频 2021.12.18](/content/gnews/20/README.md)
+### [郭文贵盖特音频 2021.12.18](/content/gnews/23/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中共公布100条网络短视频审核细则，让墙内百姓更难以发声](/content/gnews/21/README.md)
+### [哥伦比亚研究：美国新冠病毒疫苗的真实死亡人数为40万](/content/gnews/24/README.md)
  ` GTV新闻访谈`
 
-### [哥伦比亚研究：美国新冠病毒疫苗的真实死亡人数为40万](/content/gnews/22/README.md)
- ` GTV新闻访谈`
-
-### [每日快报：亚马逊与中国宣传部门合作赢得北京的青睐](/content/gnews/23/README.md)
+### [每日快报：亚马逊与中国宣传部门合作赢得北京的青睐](/content/gnews/25/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [日韩接连出现接种后仍被感染的著名艺人](/content/gnews/24/README.md)
+### [日韩接连出现接种后仍被感染的著名艺人](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [波音公司暂停对美国员工强制接种疫苗](/content/gnews/25/README.md)
+### [波音公司暂停对美国员工强制接种疫苗](/content/gnews/27/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [PLA南海频频实弹演习，美国警告“侵略”行为](/content/gnews/26/README.md)
+### [PLA南海频频实弹演习，美国警告“侵略”行为](/content/gnews/28/README.md)
  ` 墨尔本雅典娜农场`
 
-### [苏格兰公共卫生数据：死于中共病毒的人中 九成完全接种了疫苗](/content/gnews/27/README.md)
+### [苏格兰公共卫生数据：死于中共病毒的人中 九成完全接种了疫苗](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [事实：台湾79%新增病例发生在疫苗接种者身上](/content/gnews/28/README.md)
+### [事实：台湾79%新增病例发生在疫苗接种者身上](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
 
-### [塔利班继续制造人道危机 妇女儿童和前政府雇员处境危险](/content/gnews/29/README.md)
+### [塔利班继续制造人道危机 妇女儿童和前政府雇员处境危险](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [台湾四大公投皆未通过 民进党持续引领民意](/content/gnews/30/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [有声|生命的意义是什么？（第二集）](/content/gnews/31/README.md)
+### [有声|生命的意义是什么？（第二集）](/content/gnews/32/README.md)
  ` MOSREC`
-
-### [币圈新闻动态：未来几年，数字货币将更多地用于商业交易](/content/gnews/32/README.md)
- ` 喜马拉雅-华盛顿DC农场`
 
 ### [美国飞行员的死亡人数在中共病毒疫苗推广后增加了1750%](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`

@@ -2,31 +2,25 @@
 ---
 
 
-## 捷克新政府强调将与台湾等民主政府合作
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1770422/)
+## 有声|郭先生解析中共年前抢夺盘古和裕达的原因
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1770448/)
 
-作者：纽约香草山医疗部 – 云豹
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-08-30-at-7.37.59-PM-2.png)
-捷克新政府于当地时间12月17日上任，新任总理费亚拉强调，他的执政联盟将与台湾等民主政府合作，并考虑变更由总统齐曼所主导的亲中俄路线。
+配音：香草山美食部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+12月17日，郭文贵先生在直播中解析道，习近平其实既相信风水，也相信自然的力量。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/10-8.jpg)
+郭先生提到，盘古实为地上阳龙，而其地下5层又连接在一起构成了滔龙。时逢明年正好是虎年，但风水学中却相当忌讳龙虎斗——因为龙虎相争必有一伤——然而彭丽媛属虎。因此，习近平认定，盘古此设计会对彭丽媛不利，于是把盘古的龙头改成龟头，但此举实际代表着共产党对爆料革命的极端恐惧。
 
-费亚拉在11月28日被任命为新任总理，他带领的人民民主党与其他四个政党合作，在捷克国会200个席位中，合计拿下108席。
+郭先生还透露，由于习近平对巫术的崇拜，这让他非常相信黑蛇、白蛇的故事。而盘古和裕达可谓“北有龙头，南有佛手”——这是一个风水大阵，可使万事皆达。因此，马明哲也向习近平递了投名状：其与李友一起抢夺了郑州裕达。
 
-现年57岁的费亚拉曾在大学任政治学教授及主任，在受访时曾表示，自己在民主精神下成长，自幼就认为民主和自由是正确的。
+郭先生解释道，共产党用巫术治理国家的方式，与中国五千年来惯于用巫术、蛊术治国的封建王朝一模一样，但他们最后的结局都是灭亡。这正应验了一句谶语，使用巫术者必被巫术反噬。
 
-新任的外交部长利帕夫斯基隶属海盗党，信奉自由主义，是反中共团体“对中政策跨国议会联盟”的成员。他对中共立场强硬，曾多次批评新疆的人权问题，谴责中共隐瞒中共病毒疫情，导致疫情扩大。利帕夫斯基对台湾相当友好，曾多次出席台湾举办的活动，并曾在自己的脸书上发文称台湾是可靠的伙伴。
+文字版原文：[郭先生解析中共年前抢夺盘古和裕达的原因](https://gnews.org/zh-hans/1766971/)
 
-参考链接：
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-- [捷克新政府上任 強調與台灣等民主政府合作](https://www.cna.com.tw/news/firstnews/202112170314.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-
-
-![This image has an empty alt attribute; its file name is Dec-4-3.png](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
-
-总编：飞虹
-编辑：飞虹
-校正/发稿：海阔天空1
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -34,9 +28,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
