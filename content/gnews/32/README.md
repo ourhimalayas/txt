@@ -2,34 +2,30 @@
 ---
 
 
-## 视频| 共产党把盘古龙头变鸟头的原因（二）
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1770088/)
+## 温哥华岛维多利亚大学新冠疫情爆发
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/1770101/)
 
-## 摘自2021.12.17郭先生大直播
+加拿大温哥华扬帆农场 LuLu1312
+![](https://assets.gnews.org/wp-content/uploads/2021/12/uvic.ca-2.jpg)*图片来源：uvia.ca*
+加拿大BC省卫生官员表示，更多的 COVID-19 病例与维多利亚大学(Uvic)学生在校外的聚会有关。
 
-制作：香草山视频部
+截至周三，共有 137 例 COVID-19 病例与上周 UVic 学生参加的两次校外聚会有关。在这些案例中，有 15 个被确定为 Omicron 的关注变体。
 
+周二，省卫生官员 Bonnie Henry还指出，一些 Omicron 病例与 UVic 运动员参加的橄榄球比赛有关。
 
+“这次爆发是由（Delta 变体）和与橄榄球比赛有关的Omicron的部分引入所推动的，令人遗憾的是该赛事将 Omicron 传播到全国各地的社区和大学社区。”
 
-干什么他得编个故事，这个故事的核心，就是中原佛手力量之大，郭文贵的根，就是我的根器，郭文贵的根起中原。得天下者得中原，得中原者得天下，逐鹿中原呐！中原佛手之力量是郭文贵的根，你把郭文贵的蛋子儿要捏住就得把那裕达给弄了。我们要在他楼上要执法，要施法事，要把郭文贵一切的气场全拿掉，这和他们埋下的盘古的那个所谓的印，和盘古龙头变成鸟头包头，和裕达佛手要被他们几个控制，然后要做法事100%被习和习家人，桥桥啊，安安啊远平啊彭丽媛啊彭雷啊100%接受了，而且这件事情一定在壬水寅年之前干掉！这就是一场风水大阵，然后一定是风水大师，原来给盘古裕达看过风水的人都叫过来，还活着的啊，当年你咋算的，你亲身地经历，然后现在怎么破，这是始于你啊，国家安危啊，就看你啦。他敢不算吗，他敢没招吗，没招弄死个球的了。那么最重要的你看到盘古的时候，是四大原则：一，郭文贵要为UAE阿联酋的所有的项目合作失败负责；第二，喜马拉雅币竟然敢攻击我党我国，还竟然联合西方极右主义，盖特，颠覆我国家政权；第四，你现在郭文贵在国际上成立新中国联邦，特别是对我党国家领导人的攻击，这个影响力的问题，这一系列的事情，哇塞，这要惩罚咱，一定会让郭文贵离开18楼，一定把郭文贵所有的地方没地方住，不但让你没地方住，让你们全家都没地方住。所以这四条念完了，到了裕达你看说什么，非常清楚的，这四条都有，但加了两条，中原佛手必然被国家控制，你们要讲政治。说中原佛手出事，这四个字完了，中原佛手，得中原者得天下。
+温哥华岛的活跃病例数在全省排名第二，仅次于 Fraser Health，周三有 945 例活跃病例。
 
+\*\*\*非常值得注意的是根据维多利亚大学最新10月31日的校园疫苗接种报告 – 93.7% 的学生都接种了双剂新冠疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/victoria.jpg)[图片来源](https://www.uvic.ca/news/assets/docs/2021/nov10-uvic-covid-stats-update.pdf)
+原文链接：[https://vancouverisland.ctvnews.ca/15-omicron-cases-now-linked-to-uvic-outbreak-island-health-1.5709448](https://vancouverisland.ctvnews.ca/15-omicron-cases-now-linked-to-uvic-outbreak-island-health-1.5709448)
 
+维多利亚大学接种报告：[https://www.uvic.ca/news/assets/docs/2021/nov10-uvic-covid-stats-update.pdf](https://www.uvic.ca/news/assets/docs/2021/nov10-uvic-covid-stats-update.pdf)
 
-发稿：雪梨
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/M12.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+编辑/发稿：云起时
 
  
 

@@ -2,36 +2,247 @@
 ---
 
 
-## 特鲁多试图秘密推动将疫苗强制延长三年的计划
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1770352/)
+## 每日快报：亚马逊与中国宣传部门合作赢得北京的青睐
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1770387/)
 
-作者：纽约香草山健身部 – Ivy001
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-08-30-at-7.37.59-PM-2.png)
-12月15日，加拿大保守党议员米歇尔·库博发表推文称，特鲁多政府在国会立法中，一项将疫苗强制授权延长至三年的条款，隐藏在了财政和经济报告中，这表明自由党计划将疫苗强制令再维持3年。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/6-37.jpg)
-库博在推文的最后补充道，特鲁多正在企图把这些所谓的临时措施永久化。
+*作者：GSeries*
 
-推文下的多数评论称，特鲁多的三年疫苗强制计划，只能更加证明疫苗的无效。
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/每日快报.png)
 
-参考链接：
+# ***今日摘要***
 
-- [https://www.gettr.com/post/pjwjg97fc1](https://www.gettr.com/post/pjwjg97fc1)
-- [https://mobile.twitter.com/spoonfull9/status/1471687732581715970?s=20](https://mobile.twitter.com/spoonfull9/status/1471687732581715970?s=20)
+1. **[文件显示，亚马逊与中国宣传部门合作赢得北京的青睐](https://www.newsmax.com/newsfront/amazon-beijing/2021/12/18/id/1049207/)**
+2. **[纽约立法规定可根据州长的意愿无限期拘留未接种疫苗的人](https://thenationalpulse.com/news/new-york-legislation-provides-for-indefinite-detention-of-unvaccinated-at-governors-whim/)**
+3. **[国会将在今年春天讨论大麻改革问题](https://thehill.com/homenews/house/586399-congress-to-take-up-marijuana-reform-this-spring)**
+4. **[美国指责中共开发大脑控制技术](https://www.zerohedge.com/technology/us-accuses-china-developing-brain-control-technology)**
+5. **[中印边境紧张情势持续，解放军在西藏举行防核防化“实战演练”](https://www.voachinese.com/a/china-conducts-nuclear-chemical-and-biological-real-combat-drill-in-tibet-20211218/6360295.html)**
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
+# 重要事件
 
-总编：Jack Li文阳
-编辑：Jack Li文阳
-校正/发稿：海阔天空1
+- **[12.18. The National Pulse：纽约立法规定可根据州长的意愿无限期拘留未接种疫苗的人 New York Legislation Provides for Indefinite Detention of Unvaccinated at Governor’s Whim.](https://thenationalpulse.com/news/new-york-legislation-provides-for-indefinite-detention-of-unvaccinated-at-governors-whim/)**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+2022年1月5日，纽约参议院和众议院将对一项法案进行表决，该法案如果获得通过成为法律，将授予清除和拘留病例、接触者、携带者或任何被怀疑对 “公共卫生构成重大威胁 “的人的权限，并无限期地将他们从公共生活中清除。
+A416法案对纽约州所有美国人的基本自由构成严重威胁，包括他们选择是否接受与迄今尚未确定的传染病有关的医疗和疫苗接种的权利。
+
+该法案赋予纽约州长及其代表–包括但不限于地方卫生部门的专员和负责人–通过发布一项命令，将任何个人或群体带走和拘留的权利。这些命令只需包括个人的姓名或 “对个人或群体的合理具体描述”。
+
+该部门可以决定将一个人或一群人关押在医疗机构或任何其他他们认为合适的地方。这些语言是有意模糊的。
+
+虽然该法案试图说明，任何人都不得被关押超过60天，但语言允许法院命令放弃这一最长拘留时间。60天后，法院被允许再有90天的时间来考虑对一个人的拘留，根据该部门的意见，这个周期可以无限期地持续下去。
+
+它接着说，《法案》将 “要求接触过或感染过某种传染病的个人完成适当的、规定的治疗、预防药物或疫苗接种过程”，实质上是赋予政府拘留任何他们想要的人并强行为其接种疫苗的权利。
+
+- **[12.19. NewsMAX ：文件显示，亚马逊与中国宣传部门合作赢得北京的青睐 Amazon Partnered With China Propaganda Arm to Win Beijing’s Favor, Document Shows](https://www.newsmax.com/newsfront/amazon-beijing/2021/12/18/id/1049207/)**
+
+
+据两位熟悉此事的人士透露，大约两年前，亚马逊公司在其中国网站上推销习近平主席的讲话和著作集，当时中国政府发布了一项法令。这家美国电子商务巨头必须停止在中国允许任何客户评分和评论。其中一位人士说，对习近平的书的负面评论促使了这项要求。另一位人士说：”我认为问题在于任何低于五星的评价，”这是亚马逊五分制中的最高评价。
+
+评分和评论是亚马逊电子商务业务的一个重要组成部分，是吸引购物者的一个主要方式。但这两位人士说，亚马逊遵守了规定。目前，在其中国网站Amazon.cn上，这本由政府出版的书没有客户评论或任何评级。而且评论区也被禁用。亚马逊遵守中国政府的法令，这在以前没有报道过，是该公司更深层次、长达十年的努力的一部分，以赢得北京的青睐，保护和发展其在世界最大市场之一的业务。
+
+一份描述该公司中国业务的2018年亚马逊内部简报文件，列出了这家总部位于西雅图的巨头在中国面临的一些 “核心问题”。其中。”意识形态控制和宣传是共产党实现和维持其成功的工具包的核心，”该文件指出。”我们不对它是对是错做出判断。”这份简报文件，以及对二十多位曾参与亚马逊中国业务的人的采访，揭示了该公司如何通过帮助推进执政的共产党的全球经济和政治议程，同时有时对政府的一些要求进行反击，从而在中国生存并发展壮大。
+
+内部文件和访谈显示，在这一战略的一个核心要素中，亚马逊与中国宣传机构的一个部门合作，在该公司的美国网站Amazon.com上创建了一个销售门户–这个项目后来被称为中国图书。这个项目–最终提供了9万多份出版物供出售–没有产生大量收入。但文件显示，随着亚马逊公司发展其Kindle电子书设备、云计算和电子商务业务，它被亚马逊视为在中国赢得支持的关键。2018年的简报文件为亚马逊游说和公共政策业务全球负责人杰伊-卡尼(Jay Carney)阐述了中国图书项目的战略利害关系，在他前往北京之前。”Kindle在中国的运营一直处于政策灰色地带，”该文件称，并指出亚马逊很难获得在中国销售电子书的许可证。
+
+文件说，”保障 “其与中国政府的许可证问题的 “关键因素是Chinabooks项目”。该文件还指出。”亚马逊网站/中国图书项目也获得了中国监管机构的广泛认可”。这些书包括许多非政治性的书，如中文教科书、烹饪书和儿童睡前故事。但是它们也包括放大共产党官方路线的书籍。
+
+有一本书颂扬了新疆的生活，联合国专家说，中国在新疆的难民营网络中关押了一百万维吾尔族人。这本书–《不可思议的新疆：激情与遗产的故事》–讨论了位于该地区的一个在线喜剧节目。书中引用了一位扮演维吾尔族 “乡下人 “的演员的话说，民族性在那里 “不是问题”。这与北京的立场一致，北京否认虐待少数民族群体。一些书籍以英雄的口吻描述了中国与始于中国城市武汉的COVID-19大流行病的斗争。其中一本名为《勇气和决心的故事》。武汉处于冠状病毒封锁状态”。另一则以习近平的评论开始：”我们迄今为止的成功再次证明了中国共产党的领导和中国社会主义的优势。”与亚马逊合作开发中国图书的国有企业–中国国际图书交易公司（CIBTC）告诉路透社，该企业是 “两个企业之间的商业关系”。中国国家新闻出版署（NPPA），即与亚马逊有合作关系的国家宣传部门，没有发表评论。
+
+
+
+- **[12.18. The Hill：国会将在今年春天讨论大麻改革问题 Congress to take up marijuana reform this spring](https://thehill.com/homenews/house/586399-congress-to-take-up-marijuana-reform-this-spring)**
+
+
+国会民主党人正在为一套旨在使大麻合法化的全面举措做准备，他们计划在今年春天采取行动。这些联邦提案试图为这个近180亿美元的行业建立21世纪的银行服务，并清除成千上万的大麻犯罪者的犯罪记录。
+
+“两党在大麻改革方面日益增长的势头表明，国会已准备好在2022年取得进展，我们比以往任何时候都更接近于使我们的大麻政策和法律与美国人民保持一致，”众议员。Earl Blumenauer（D-Ore.）和Barbara Lee（D-Calif.）周四在给国会大麻核心小组的一份备忘录中写道。
+
+备忘录援引2020年盖洛普民意调查指出，近70%的美国人–包括大约一半的共和党人–支持大麻合法化。过去一年，有五个州加入了允许娱乐性大麻的行列–新墨西哥州、新泽西州、弗吉尼亚州和康涅狄格州–以及国会中 “针对结束大麻禁令 “的 “大量政策想法”，立法者们指出。该备忘录是几十项法案的路线图，这些法案试图重新构想联邦政府在大麻行业各个方面的作用，其中一些措施得到了国会的支持。
+
+由Lee和Blumenauer提出的《大麻机会再投资和撤销法》（MORE）等法案，试图将大麻从《受控物质法》中删除，并清除那些因使用大麻而被定罪的记录。其他法案将允许在华盛顿特区发展合法的大麻市场；规定各州大麻计划的合法性，以及这些计划甚至应涵盖联邦工作人员的可能性；并规定对创伤后应激障碍进行大麻研究试验，同时禁止退伍军人管理局对推荐该物质的医生进行报复。
+
+另一项关键法案，即由众议员埃德-珀尔马特（Ed Perlmutter）提出的《安全银行法》，将允许大麻行业获得一系列金融服务，如商业贷款、支票账户和信用卡处理。”珀尔马特关于该法案的解释说：”根据目前的法律，根据州法律向合法和有执照的大麻企业提供银行服务的金融机构将受到一些联邦法规的刑事起诉，如’协助和教唆’联邦犯罪和洗钱。
+
+这迫使大多数合法的州的大麻行业几乎完全以现金方式开展业务–总额达数十亿美元，导致偶尔发生引人注目的抢劫和谋杀。
+
+
+
+- **[12.18. ZeroHedge：美国指责中共开发大脑控制技术 US Accuses China Of Developing Brain Control Technology](https://www.zerohedge.com/technology/us-accuses-china-developing-brain-control-technology)**
+
+
+因涉嫌脑控武器，拜登政府将34家中共实体列入黑名单。拜登政府星期四说，它对30多个中共研究机构和实体实施了贸易限制，因为它们侵犯了人权，并被指控开发了破坏美国国家安全的技术，如脑控武器。根据《联邦公报》上的一份通知，商务部指责中国军事医学科学院及其11个研究机构利用生物技术 “支持中国军事的最终用途和最终用户，包括所谓的脑控武器”。
+
+《华盛顿邮报》有这些有趣的评论。商务部长吉娜-雷蒙多在一份声明中说：”对生物技术和医学创新的科学追求可以拯救生命。不幸的是，[中共]正选择使用这些技术来追求对其人民的控制以及对少数民族和宗教团体成员的压制。我们不能允许支持医疗科学和生物技术创新的美国商品、技术和软件被转用于违反美国国家安全的用途。”
+
+国务院认为中共对新疆维吾尔族和其他穆斯林少数民族的镇压是 “种族灭绝”，其中包括使用强迫劳动和绝育。美国情报界表示，中共已经在整个新疆建立了一个 “高科技监控系统”，”作为其压迫机器的一部分”，一位高级政府官员说，由于此事的敏感性，他不愿透露姓名。这位官员说，作为该系统的一部分，当局不仅使用生物识别技术进行大规模监控，而且还收集了所有12至65岁新疆居民的DNA样本。
+
+这位官员说，根据中国的 “军民融合 “战略，中国政府正在寻求利用新兴的生物技术来支持未来的军事应用，包括赞助基因编辑、人体性能提升、脑机接口和生物材料的研究。这位官员说：”我们对中国在生物技术领域的活动关注了很久，”他补充说，针对公司和支持美国生物技术部门将是 “我们持续关注的领域”。
+
+“该官员说，…..” 什么官员？脑机接口？《华尔街日报》不知何故设法将其标题段写成如下内容。拜登政府周四表示，它正在将中国的顶级军事医学研究机构列入出口黑名单，以回应对北京使用生物识别技术和脑控武器等新兴技术的担忧，美国官员称这些技术威胁到国家安全。
+
+
+
+- **[12.19. VOAChinese：中印边境紧张情势持续，解放军在西藏举行防核防化“实战演练”](https://www.voachinese.com/a/china-conducts-nuclear-chemical-and-biological-real-combat-drill-in-tibet-20211218/6360295.html)**
+
+
+在中印边境紧张情势持续，双方部署大量部队相互对峙之时，解放军一支部队最近在西藏地区进行了一场防核防化的“实战化演练”。法新社引述《印度斯坦时报》的消息报道说，这次演练由西部战区下辖的西藏军区组织实施，参演部队是解放军的一个合成旅。
+
+西部战区是中国5大战区中最大的一个，主要负责中国西部，特别是长达3440公里界限划分并不清楚、常常存在争议甚至冲突的中印边境地区的防卫。报道说，解放军的这个合成旅在演练中出动了突击分队、装甲突击群和防核防化分队。
+
+有趣的是，有关这次演习的报道最早出现在解放军的一个网站上，而中国的官媒并没有对此作任何跟进报道。直到《印度斯坦时报》对此做了报道之后，一系列中国官媒才引述印媒的报道对此作跟进报道。解放军网站的报道说，“解放军这个合成旅的实战演练紧扣‘敌’情，围绕着昼夜机动、多兵种协同等重点、难点科目专攻精炼，锤炼了部队在复杂环境下的火力打击能力。”
+
+据报道，这次解放军合成旅的实战化演练在西藏的雪域高原进行，但是并没有透露具体的演练地点。在演练中，解放军合成旅向“敌”方阵地发射了数十枚火箭弹之后，未等硝烟散去，便迅速发动了装甲突击群突击。突击队在遭遇道路障碍后，立即出动工兵前出至障碍物前捆绑炸药、安装电雷管并铺设起爆线路，而突击分队在几声巨大的爆炸声过后，又继续向前推进。
+
+报道说，演练部队突然遭遇“核生化袭击”，而合成三营营长李群峰则指挥官兵穿戴防毒面具，快速通过污染地带，随后向指挥所报告情况，请求防化分队驰援洗消。与此同时，合成一营接到指挥所火力打击命令，炮兵根据目标信息，快速测定风速和风向，装定射击诸元后迅速开火。霎时炮声隆隆，密集的火力覆盖了目标地域。一轮打击过后，突击分队向“敌”阵地发起猛攻，步战车、坦克和单兵火力悉数投入了战斗。
+
+解放军网站的报道还配发了解放军官兵身穿防毒防化装备通过污染地带、解放军步战车快速机动以及坦克集群向“敌”方阵地发动冲击的照片。法新社的报道说，美国国防部此前曾指责北京利用其军事医学研究机构秘密进行军民两用的化学和生化技术。
+
+“中华人民共和国从事旨在获取潜在双重用途的生物技术研究，而这引起有关它是否遵守《禁止生物武器公约》和《禁止化学武器公约》的关切，”美国国防部的一份报告指出。
+
+中印边境情势过去一年多来多有恶化。去年6月15日，双方军人在边境地区爆发徒手搏斗，造成双方军人的死伤。随即双方在各自控制的边境地区大举增兵，并加强武器装备的部署。中印双方举行过多次军长级别的谈判和对话，但是中印边境的紧张情势仍然不见缓解。
+
+# 每日文贵说
+![](https://assets.gnews.org/wp-content/uploads/2021/04/65-7.jpg)
+# 更多要闻链接
+
+1. [中国从增长放缓到房地产忧虑再到……希望和失落多久](https://www.zerohedge.com/the-market-ear/seriouschina)
+2. [中国五矿MMG秘鲁一处铜矿因当地爆发社会运动停止运营](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211218-%E4%B8%AD%E5%9B%BD%E4%BA%94%E7%9F%BFmmg%E7%A7%98%E9%B2%81%E9%93%9C%E7%9F%BF%E5%9B%A0%E5%BD%93%E5%9C%B0%E7%88%86%E5%8F%91%E7%A4%BE%E4%BC%9A%E8%BF%90%E5%8A%A8%E5%81%9C%E6%AD%A2%E8%BF%90%E8%90%A5)
+3. [台湾四大公投皆未通过 蔡英文：人民希望走向世界](https://www.dw.com/zh/%E5%8F%B0%E6%B9%BE%E5%9B%9B%E5%A4%A7%E5%85%AC%E6%8A%95%E7%9A%86%E6%9C%AA%E9%80%9A%E8%BF%87-%E8%94%A1%E8%8B%B1%E6%96%87%E4%BA%BA%E6%B0%91%E5%B8%8C%E6%9C%9B%E8%B5%B0%E5%90%91%E4%B8%96%E7%95%8C/a-60179789)
+4. [德语媒体：立陶宛问题变成了德国问题](https://www.dw.com/zh/%E5%BE%B7%E8%AF%AD%E5%AA%92%E4%BD%93%E7%AB%8B%E9%99%B6%E5%AE%9B%E9%97%AE%E9%A2%98%E5%8F%98%E6%88%90%E4%BA%86%E5%BE%B7%E5%9B%BD%E9%97%AE%E9%A2%98/a-60181226)
+5. [俄罗斯正式退出“开放天空”条约，称没有美国就没有意义](https://www.zerohedge.com/geopolitical/russia-formally-quits-open-skies-treaty-saying-theres-no-point-without-us)
+
+
+# 每日推特文摘
+
+
+
+迈克·蓬佩奥先生：独裁中共正准备袭击台湾；中共国举行的奥运会破坏了国际奥委会和全球商业的声誉；尽管中共已十分强大，但我们仍能像击溃苏联那样战胜他们。
+
+
+
+
+
+> 迈克·蓬佩奥先生：独裁中共正准备袭击台湾；中共国举行的奥运会破坏了国际奥委会和全球商业的声誉；尽管中共已十分强大，但我们仍能像击溃苏联那样战胜他们。[#秘密翻译组](https://twitter.com/hashtag/%E7%A7%98%E5%AF%86%E7%BF%BB%E8%AF%91%E7%BB%84?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/gR9asgarl1](https://t.co/gR9asgarl1)
+> — BillyHarry (@billyha56203728) [December 18, 2021](https://twitter.com/billyha56203728/status/1472025290654113792?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+The best present ever for 2021 Christmas to Mr. Bannon! 🥰😄💕👍🏻🎉🎉🎉Woohoo!
+
+2021年圣诞班农先生收到的最好的圣诞礼物吧～😄🥰🖖🏻🎉Woohoo！
+
+
+
+
+
+> The best present ever for 2021 Christmas to Mr. Bannon! 🥰😄💕👍🏻🎉🎉🎉Woohoo!
+> 
+> 2021年圣诞班农先生收到的最好的圣诞礼物吧～😄🥰🖖🏻🎉Woohoo！ [pic.twitter.com/2g8qMO3LMM](https://t.co/2g8qMO3LMM)
+> — 银河系🪐Hakunamatata💫 (@hakunamomoda) [December 18, 2021](https://twitter.com/hakunamomoda/status/1472199412268945409?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+历经两个半月，74天的SEC抗议游行在今天完美收官。感谢所有参加游行的战友们，你们的努力和付出捍卫了GTV投资者合法的利益，更展现了超强的行动力和一流的素质，战友们你们辛苦了！难忘和大家一起奋斗的日子，相信我们很快就会在盘古相见，期待下次和大家一起战斗！
+
+
+
+
+
+> 历经两个半月，74天的SEC抗议游行在今天完美收官。感谢所有参加游行的战友们，你们的努力和付出捍卫了GTV投资者合法的利益，更展现了超强的行动力和一流的素质，战友们你们辛苦了！难忘和大家一起奋斗的日子，相信我们很快就会在盘古相见，期待下次和大家一起战斗！[https://t.co/nwyOsRLBO4](https://t.co/nwyOsRLBO4)
+> — 傳遞正義之光芒3(澳喜特戰旅) (@3CD8866) [December 18, 2021](https://twitter.com/3CD8866/status/1472108083459485697?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+澳洲9号台 新闻
+预计接下来一周到圣诞节，美国将新增1百万CCP病毒病例😱…
+拜登警告未接种疫苗者将会有重病和死亡的风险…
+
+From Nine News
+By Christmas US. will see an increase of 1 million covid cases.
+Biden warns the unvaccinated of severe illness and even death.
+
+
+
+
+
+> 澳洲9号台 新闻
+> 预计接下来一周到圣诞节，美国将新增1百万CCP病毒病例😱…
+> 拜登警告未接种疫苗者将会有重病和死亡的风险…
+> 
+> From Nine News
+> By Christmas U.S. will see an increase of 1 million covid cases.
+> Biden warns the unvaccinated of severe illness and even death.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#JoeBiden](https://twitter.com/hashtag/JoeBiden?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/073ReuV5Lo](https://t.co/073ReuV5Lo)
+> — Vitamin (澳喜特战旅) (@Fisa\_end\_ccp) [December 18, 2021](https://twitter.com/Fisa_end_ccp/status/1472126258557304833?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+Say nothing but looking💉看图儿不说话
+
+
+
+
+
+> Say nothing but looking💉看图儿不说话 [pic.twitter.com/w3D5GLdcHB](https://t.co/w3D5GLdcHB)
+> — 清豐大學博士後 (@Sa60192968) [December 18, 2021](https://twitter.com/Sa60192968/status/1472111797264027648?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+ 
+
+ 
+
+
+
+ 
+
+ 
+
+
+
+ 
+
+ 
+
+
+
+ 
+
+ 
+
+
+
+ 
+
+ 
+
+
+
+
+
+
+*作者：GSeries*
+*审核发布：文顾*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
