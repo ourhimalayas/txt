@@ -2,67 +2,27 @@
 ---
 
 
-## 彭帅事件绝对是习近平政治生涯的滑铁卢
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1771646/)
+## 以色列总理贝内特力争推出更极端限制一、封闭以国天空二、在教育部帮助下给儿童接种疫苗
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1771670/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/3242.png)
-[https://gtv.org/video/id=61bde517a68b4f4b28e9f3f0](https://gtv.org/video/id=61bde517a68b4f4b28e9f3f0)
+编译：ＧＭ
+![](https://assets.gnews.org/wp-content/uploads/2021/12/be57ed97-45d0-4034-954a-744c3cb71a11.jpg)
+尽管总理贝内特在购物中心的绿色标志问题上失败了，但他有一些新的限制措施，旨在㓕缓Omicron变休进入以色列的速度。贝内特讨论了两个重要步骤—-以色列几乎完全关闭天空，以及在教育部帮助下为儿童接种疫苗。
 
-**郭文贵
-Miles Guo**
+就他希望采取的措施来控制该国的疾病状态而言，贝内特最近已成为其政府中最鹰派人物，他的构想包括两个内容：
 
-你知道彭帅这个事儿对他的影响，习下决心要干掉张高丽
-You know the impact of Peng Shuai incident that Xi is determined to get rid of Zhang Gaoli
+第一步；关闭天空 贝内特计划的第一步是收紧边界的关闭，以争取时间，不让新的Omicron变种降到地面上，贝内特希望从这一举措中获得时间减缓发病率并利用这段时间继续进行疫苗接种运动。在周日将美国添加到红色名单中，在接下来几天里，世界上大多数国家将成为红色国家，因此实际上以色列的天空将完全关闭。
 
-说一半的功劳是张高丽的彭帅搞出来的，这叫天意呀
-It is said that half of the credit is Zhang Gaoli’s Peng Shua, this is God’s will
+第二步；在校园进行疫苗接种 此外，贝内特正在计划一项举动措，其中包括在教育部的协助下开展全面的疫苗接种运动。广泛的行动将包括通过全国各学校的疫苗接种车对孩子进行接种，并将得到内线司令部的协助，如果到现在教育部没有反对这一行动，看来这一操作要继续执行。
 
-彭帅这件事情是个锦上添花，老天送我们的礼啊，彭帅呀
-Peng Shuai incident is an icing on the cake, Peng Shuai is God’s gift to us
+编者按：二战中大约六百万犹太人惨遭纳粹种族屠杀，之后犹太人痛定思痛，在1948年奇迹般建国并且在之后无数次战争中取得胜利，见证了上帝的帮助，在中东成为唯一一个民主发达国家。
 
-我们未来得给彭帅点喜币，你知道吗？
-We have to give Peng Shuai some Hcoins in the future, you know?
+但是自从ccp病毒及疫苗灾难以来，以色列患病人数及接种疫苗人数均为全球高位，现在政客强推的疫苗接种运动无异于另一场对犹太人的种族屠杀，多年fake news的洗脑令被公认最智慧的上帝的选民的犹太人也沦为如此悲哀的处境，更看到我们的媒体Gnews.GTV.GETTR的重要性，希望更多人看到真相，更多人苏醒过来为自己为后代奋起反抗！
 
-她加速了共产党冬奥会的灭亡，然后弄点儿躺平币
-She accelerated the demise of the Communist Party’s Winter Olympics game, and then made some lay-flat-coin for her
+参考链接：[https://mobile.mako.co.il/news-lifestyle/2021\_q4/Article-4923a4f6f94cd71027.htm?utm\_source=Twitter&utm\_medium=NewsChannelPost&partne=rNewsChannelTwitter&s=08](https://mobile.mako.co.il/news-lifestyle/2021_q4/Article-4923a4f6f94cd71027.htm?utm_source=Twitter&amp;utm_medium=NewsChannelPost&amp;partne=rNewsChannelTwitter&amp;s=08)
 
-咱们也可以专门给彭帅搞一个币，叫做什么，天空无限大，是吧
-We can also make a coin specifically for Peng Shuai, what is it called, the sky is infinite, right?
-
-然后地球一粒沙的，上面带上这个图腾的彭帅币
-Then the earth is a grain of sand with the totem Peng Shuai coin on it
-
-这实在太有意义了，你们没有意识到这件事情对他们的羞辱
-This is so meaningful, you didn’t realize the humiliation of this incident to CCP
-
-很多人说这是真正的习近平的滑铁卢的开始
-Many people say that this is the beginning of the real Xi Jinping’s Waterloo
-
-这个滑铁卢又搞了俄罗斯这样，这对他来讲这真的是多米诺骨牌开始了
-and Russia is like another Waterloo, this is really the start of dominoes for him
-
-谢谢
-thank you
-
-* * *
-
-Date:12/16/2021
-原视频标题: 彭帅事件绝对是习近平政治生涯的滑铁卢
-The Peng Shuai incident is definitely the Waterloo of Xi Jinping’s political career
-原视频日期：2021/12/12
-原视频链接[**https://gettr.com/post/pjp42e188e**](https://gettr.com/post/pjp42e188e)
-任务编号：KC344（3242）
-视频时间段 : 0:00-1:02
-中听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – jambo
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+审核校对：Barry Jack
+上传排版：F
 
  
 
