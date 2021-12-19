@@ -2,42 +2,29 @@
 ---
 
 
-## Omicron对污染区和有病史的及两三针疫苗接种者极危险
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1771117/)
+## 香港议会选举，没有民主派
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1771339/)
 
-**郭文贵先生：**我现在给大家再重申一下，特别是现在有个倾向认为现在Omicron甚至可能是解药，甚至更差致死率，在过去的48小时就上次直播到现在，就是我们的科学家和我联系的非常的频繁，现在出现了几个极端的问题，它对不同的种族和不同的地区完全不同的感觉，因为咱们的科学家是国内的数据掌握是非常新的，特别是国内大面积污染的地方，就是你的肺部被污染，PM2.5很多的堵塞的地方， Omicron致死率在过去48小时非常之严重，就是整个人就是呼吸急促，因为它在肺里边整个的这个病毒的重复率和繁殖率加速了这个整个肺部还有血管、毛细血管的堵塞，瞬间就死掉了。
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3-27.png)
+图片来源本文网站
 
-他认为在过去的这个一周内中国死一定是超过几十万人的，一定是这个数，而且是一定是十万起步的，但是没有公布。就对污染区严重的人是很夸张这是一个；第2个有病史的、肺病历史的、还有一个就血管病的、脑梗的、心梗的，有过这历史的绝对是这是非常危险的。因为它的繁殖率极高，你完了这是身体他就“啪”过去。
+《日本电视新闻24》报道，今天，19日，香港议会举行投票选举。因选举制度的改变消除了民主派候选人，毋庸置疑亲中派将获胜。
 
-这是最近几天全世界很多人说，所有的发现都是二针、三针被感染了，他认为一个最核心的元素是什么？由于你打了mRNA这个东西在身体一直有抗体，它本身就是毒，它本身就是毒，它本身就在你身体造成了堵塞，而这个堵塞这时候你得到Omicorn它加速了阻塞，而且使你身体极力的再加对抗，他生活不了了。一个是本身的心肌炎、心包炎，再一个加速堵塞“啪”就过去了。
+此次选举只有少数自称为 “民主人士”的人被允许继续存在。自称是 “民主派”候选人的刘卓裕说：”市民很失望，但我们不能什么都不做，不能把所有的席位都交给亲中派。虽然他得到了亲中派的推荐做候选人，但市民的表现非常冷淡。“
 
-很危险啊！致死率、致命率跟过去的没有可能会低，但对某些人群可能是集结更加相反，大家要千万千万要记住是第一个我要重申的问题；
+香港市民表示：”他不是一个真正的民主人士”，“投票给他没有意义，没有我想投的候选人”。
 
-字幕来源：[2021年12月17日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1768692/)；
+香港当局想通过允许少数”自称民主人士”者参选来显示其选举的合法性。计票将于19日晚进行，亲中派肯定会获胜。
 
-SRT文件制作：小满；
+信息源：
 
-视频剪辑及上传：Cindy；
+[香港議会選挙“民主派ゼロ”親中派が圧勝へ](https://news.yahoo.co.jp/articles/4ed0f15fee650f41451c58b469c444af32b4b932#:~:text=%E3%)
 
-G-News发布：小满；
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWSLOGO20211207.jpg)
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
