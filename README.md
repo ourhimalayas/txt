@@ -15,71 +15,71 @@
 
 ---
 
-### [CDC欲将周死亡人数归咎于病毒而不是疫苗](/content/gnews/1/README.md)
+### [婴儿谋杀： 82% 妊娠中早期接种孕妇发生自然流产](/content/gnews/1/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [文·贵天成——文贵先生谈“中原佛手、裕达国贸”（二）](/content/gnews/2/README.md)
+### [CDC欲将周死亡人数归咎于病毒而不是疫苗](/content/gnews/2/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [文·贵天成——文贵先生谈“中原佛手、裕达国贸”（二）](/content/gnews/3/README.md)
  ` 墨尔本雅典娜农场`
 
-### [是时候停止体育联盟对健康者进行的COVID检测了](/content/gnews/3/README.md)
+### [是时候停止体育联盟对健康者进行的COVID检测了](/content/gnews/4/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [阻止拜登对私企的疫苗授权的努力现到达最高法院](/content/gnews/4/README.md)
+### [阻止拜登对私企的疫苗授权的努力现到达最高法院](/content/gnews/5/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2021年12月19日郭先生大直播文字同步精要](/content/gnews/5/README.md)
+### [2021年12月19日郭先生大直播文字同步精要](/content/gnews/6/README.md)
  ` 焦點20分`
 
-### [民主党支持将“重建更好”计划推迟至2022年](/content/gnews/6/README.md)
+### [民主党支持将“重建更好”计划推迟至2022年](/content/gnews/7/README.md)
  ` 波士顿五月花农场`
 
-### [【文贵先生大直播PPT】疫苗大灾难](/content/gnews/7/README.md)
+### [【文贵先生大直播PPT】疫苗大灾难](/content/gnews/8/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [文贵爆料 12.19：病毒的遗害是你挥之不去噩梦](/content/gnews/8/README.md)
+### [文贵爆料 12.19：病毒的遗害是你挥之不去噩梦](/content/gnews/9/README.md)
  ` 秘密翻译组-原创组`
 
-### [中共国富力地产预告自己将暴雷](/content/gnews/9/README.md)
+### [中共国富力地产预告自己将暴雷](/content/gnews/10/README.md)
  ` 纽约香草山MOS02`
 
-### [香草山翻译部周刊|2021年12月19日第27期](/content/gnews/10/README.md)
+### [香草山翻译部周刊|2021年12月19日第27期](/content/gnews/11/README.md)
  ` 纽约香草山MOS01`
 
-### [【文贵先生大直播PPT】全球抵制北京冬奥会 人权加经济制裁中共](/content/gnews/11/README.md)
+### [【文贵先生大直播PPT】全球抵制北京冬奥会 人权加经济制裁中共](/content/gnews/12/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [杨洁篪和王毅被美国定为最危险人物](/content/gnews/12/README.md)
+### [杨洁篪和王毅被美国定为最危险人物](/content/gnews/13/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【文贵先生大直播PPT】从地产持续暴雷破产 经济指标作假 企业家意外死亡看中共还能撑多久](/content/gnews/13/README.md)
+### [【文贵先生大直播PPT】从地产持续暴雷破产 经济指标作假 企业家意外死亡看中共还能撑多久](/content/gnews/14/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [GTV新闻访谈简报|2021年12月19日早](/content/gnews/14/README.md)
+### [GTV新闻访谈简报|2021年12月19日早](/content/gnews/15/README.md)
  ` 纽约香草山MOS01`
 
-### [习近平不能被暗杀，只有习才可以挑战美国，才会打台湾、才会带领共产党走进坟墓](/content/gnews/15/README.md)
+### [习近平不能被暗杀，只有习才可以挑战美国，才会打台湾、才会带领共产党走进坟墓](/content/gnews/16/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [郭文贵先生最新歌曲Hcoin To the Moon创造了历史](/content/gnews/16/README.md)
+### [郭文贵先生最新歌曲Hcoin To the Moon创造了历史](/content/gnews/17/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [新中国联邦的未来一定是各种高科技加持](/content/gnews/17/README.md)
+### [新中国联邦的未来一定是各种高科技加持](/content/gnews/18/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [因奥米克戎变种的出现以色列将禁止访问英国和丹麦](/content/gnews/18/README.md)
+### [因奥米克戎变种的出现以色列将禁止访问英国和丹麦](/content/gnews/19/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [习家人掌握一切权力](/content/gnews/19/README.md)
+### [习家人掌握一切权力](/content/gnews/20/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [一粒药，见真心，爆料革命真战友一定要备好药！](/content/gnews/20/README.md)
+### [一粒药，见真心，爆料革命真战友一定要备好药！](/content/gnews/21/README.md)
  ` 秘密翻译组-原创组`
 
-### [美国怕中共不再使用美元](/content/gnews/21/README.md)
+### [美国怕中共不再使用美元](/content/gnews/22/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [文贵大直播 12/19 中共国有一件真吗？！新中国联邦有一件假吗？！](/content/gnews/22/README.md)
- ` 秘密翻译组-原创组`
 
 ### [彭帅事件绝对是习近平政治生涯的滑铁卢](/content/gnews/23/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`

@@ -2,174 +2,40 @@
 ---
 
 
-## 习家人掌握一切权力
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1771743/)
+## 因奥米克戎变种的出现以色列将禁止访问英国和丹麦
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1771760/)
 
-[https://gtv.org/video/id=61bde5c7a68b4f4b28e9f432](https://gtv.org/video/id=61bde5c7a68b4f4b28e9f432)
+本文作者：Rebecca (一切心皆不可得！)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-232.png)
+以色列一位高级卫生官员周日宣布，因政府担心奥米克戎Omicron病毒变种的传播，而收紧旅行限制、隔离要求，以色列人将被禁止访问英国和丹麦。
 
-习近平, 彭丽媛的衣服
-Las ropas de Xi Jinping y Peng Liyuan
+以色列卫生部公共卫生服务负责人Sharon Alroy-Preis博士说，英国、丹麦等国将在未来72小时内被列入 “红 “签国家名单。
 
-买什么料子, 穿什么牌, 带什么包, 用什么手机
-Qué tipo de tela comprar, qué marca, cartera o teléfono utilizan
+在宣布 “红”签国的前一天，联盟党领导人同意每日更新被禁国家名单。此举可能会使人们难以提前计划旅行，从而减少海外航班。
 
-照相, 出行
-Las fotos que se toma y las salidas de paseo
+卫生部长称，将有更多国家很快被禁，并贴上 “红 “标签。并强调，未接种疫苗的人 “危及他们自己和他们周围的人”，并敦促有5-11岁孩子的父母为他们接种疫苗。
 
-100%听她女儿的
-Esto 100% escucha de su hija
+卫生部总干事纳赫曼-阿什（Nachman Ash）在发布会上警告，不要乘坐飞机出国：”无论谁计划在这个时候出国旅行，都要知道，在回国后，很可能需要隔离。”
 
-军队用谁, 不用谁
-A quién van a utilizar del ejército y a quien no
+根据以色列议会委员会周日批准的新检疫规则来看，从 “红 “签国回来的以色列人必须在国营机构中隔离至少10天。如果对奥米克戎病毒检测呈阴性，才可在家完成隔离。
 
-几乎是它弟弟远平说了算
-Casi todo lo decide su hermano Yuanping
+阿什还呼吁以色列人接种疫苗，并警告说奥米克戎有可能导致严重并发症。
 
-我再说一遍
-Repito de nuevo
+本人观点：
 
-只有七哥2012年说过
-Sólo lo que yo dije en el 2012
+以色列政府此举，意图很明显，在人们缺乏完整信息且不对等的情况下，欲盖弥彰，强推疫苗。
 
-中国没有常委会了
-Ya no hay Comité Permanente en China
+要知道，从南非、英国医生汇总的奥米克戎病例可知，奥米克戎病毒患者大多数都已接种了COVID病毒疫苗。
 
-常委会就成了跟班的了
-El Comité Permanente se convierte en asistente seguidor
+新闻来源链接：
 
-只有国家安全委员会
-Sólo el Consejo de Seguridad Nacional
+[https://www.timesofisrael.com/israelis-to-be-barred-from-visiting-uk-and-denmark-amid-omicron-scare/](https://www.timesofisrael.com/israelis-to-be-barred-from-visiting-uk-and-denmark-amid-omicron-scare/)
 
-然后成立各个组
-Luego establecen cada grupo
+【文章仅限作者个人观点】
 
-各个组就架空了, 所有中国的政府职能机构
-Cada grupo está vacío y todas las agencias gubernamentales chinas
-李克强完全是个托儿
-Li Keqiang es totalmente un niño de la guardería
+审核校对：sherryok (水云间)
 
-叫做一双新皮鞋, 下面沾了一个人家吐的那个
-Se llama un nuevo zapato de vestir, debajo está pegado algo que lo escupieron
-
-一个口香糖就叫李克强
-Un chicle que se llama Li Keqiang
-
-就是沾上了
-Y así se pegó
-
-我这也不适合给你拿下去
-No soy adecuado para quitarlo
-
-你就沾着吧
-Quédate pegado
-
-就踩了一个这个东西
-Y así tiene esta cosa pisada
-
-完全没有任何职能
-No tiene totalmente ninguna función
-
-国家安全委员会完全代表了(常委会)
-El Consejo de Seguridad Nacional representa absolutamente al (Comité Permanente)
-
-国安委有谁呀, 习远平
-¿Quiénes están en el Consejo de Seguridad Nacional? Xi Yuanping
-
-彭丽媛
-Peng Liyuan
-
-有彭办在里边
-Teniendo a Peng adentro
-
-他女儿直接领导着一切
-Su hija lidera todo directamente
-中办主任丁薛祥, 什么事都得(和她汇报)
-Ding Xuexiang, director de la Oficina Central, tiene que (informar todo a ella)
-
-他能天天问习近平吗
-¿Él puede preguntar todos los días a Xi Jinping?
-
-他只能问他女儿去
-Solamente puede preguntar a su hija
-
-中国在过去的这10年历史
-En los pasados 10 años de la historia de China
-
-记着今天爆料中说的话
-Recuerda las palabras que se dijo hoy en el Movimiento de Denunciantes
-
-就是李木子
-Es Li Muzi
-
-习远平
-Xi Yuanping
-
-彭丽媛再加上彭磊
-Peng Liyuan más Peng Lei
-
-然后再加上习桥桥
-Y se suma Xi Qiaoqiao
-
-然后再加上习安安
-Y Xi An’an
-
-几乎就是这一家11个人
-Casi es toda esta familia que son 11 personas
-
-对外的情报信息几乎上是靠
-Casi todas las informaciones externas dependen de
-
-安安的家人还有安安的孩子
-La familia y los hijos de An’an
-嫁给了英国人的像吴拉菲
-Se casó con un británico como Wu Lafei
-
-就叫拉菲, 叫吴拉菲
-así se llama, Wu Lafei
-
-完全是英国护照
-Es totalmente pasaporte británico
-
-这所有的包括在英国的老公
-Todo esto incluye al esposo que está en Reino Unido
-
-拉菲是安安的孙女
-Lafei es la nieta de An’an
-
-是安安的闺女的孩子
-Es la niña del hijo de An’an
-
-所以说这习家在海外的根本(就是这些人)
-Por eso la familia Xi en el exterior en sí (son estas personas)
-
-像杨洁篪这些人
-Esta gente como Yang Jiechi
-
-见他们那就狗一样
-Cuando ven a ellos lo ven como perros
-
-他认为这是主子
-Él piensa que este es el dueño
-
-* * *
-
-日期：12/17/2021
-原视频标题：习家人掌握一切权力
-La familia Xi tiene todo el poder
-原视频日期：12/15/2021
-原视频网址： [**https://gettr.com/post/pjpr1vbefd**](https://gettr.com/post/pjpr1vbefd)
-任务编号：KC345(3239)
-视频时间段：0:00-02:11
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 ：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+上传排版：CharlieNZ查理
 
  
 
