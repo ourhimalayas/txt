@@ -2,23 +2,28 @@
 ---
 
 
-## 美国制裁中共的几大重招
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1768412/)
+## GTV新闻访谈简报|2021年12月18日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1768548/)
 
-文编：东京樱花团/樱花传媒
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-3.jpg)
 
-视频:东京樱花团/中文小视频组
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-18.png)
+文章仅代表作者本人观点，与Gnews无关
 
-12月12日，郭文贵先生在GTV大直播指出：
+视频参看：[2021.12.18早GTV新闻访谈](https://gtv.org/video/id=61bde1e97882000d5103cbb6)
 
-2022年美国的中期选举,两党无论是哪方总统候选人,都会100%地去灭中共。灭共的核心大招是: 1.与中共经济脱钩;2.依法、快速地全球行动,查处中共所有在海外的私生子女和资产;3.把共产主义列为人类的邪教,跟恐怖主义相提并论,使人人都可以合法地杀之灭之。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-以上大招都是由郭先生和新中国联邦极力促成。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/calendar.jpeg)
 
-编辑：东京樱花团/墨然
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWSLOGO20211207.jpg)
-
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
