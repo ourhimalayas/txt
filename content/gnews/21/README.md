@@ -2,45 +2,21 @@
 ---
 
 
-## IBM和三星联合宣布“突破性”半导体，能耗降低85%
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1769475/)
+## 港府催票失效 港人投票意欲减
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1769480/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/amq6p-x6e25-1.jpg)
-**据《Zerohedge》记者Tyler Druden 2021年12月15日报道**
-如果您像我们一样，就会想知道IBM 过去几年到底在做什么。今天，我们似乎有了部分答案。
+作者：东京樱花团丨阿恩
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-317.jpeg)[*图片来源*](https://fs.mingpao.com/pns/20211218/s00006/e03dff87060b5fa1125a121e20fc9e8e.jpg)
+香港民意研究所于本月9至14日以电话随机抽样访问891人，39%受访者表示不会投票；表示会投票的受访者为48%。有学者分析，愈临近选举日，有意投票的选民愈少，反映选民没被选举论坛及政府呼吁投票所吸引。全国港澳研究会副会长刘兆佳说，投票率预测不太准确，最终投票率要视乎选举日爱国力量能否形成吸引选民投票的气氛。他称将投票率与新选制挂钩是扭曲改变选举制度的目标，目前政治局面稳定，投票率低属正常。
 
-蓝色巨人IBM 今天上午在新闻稿中透露，它一直与三星合作，并在半导体设计方面取得了“突破” ，可以将能源使用量减少 85%。
+明日是中共篡改香港选举制度后的首个立法会选举，投票气氛与2019年区议员选举齐力同心的气氛大相径庭。想当初竞选人小组在小区内奔走呼喊居民用选票赶走中共走狗，民众们自发劝说家人和亲友跟随公义，创造超过七成投票率的历史记录。反观今日港府、政要以及“爱国团体”，要使出浑身解数卖力宣传至骚扰的程度，临近投票日市民的反应愈发冷淡。面对媒体曝光低迷的选举意欲，中共代言人频繁在媒体发表“中共不在乎投票率，投票率与新选制的认受性无关“等混淆视听的言论。既然是小圈子选举，就学内地人大选举自己人玩好了，何必在乎选民意志！既然不在乎投票率，何必要将催票活动搞得全城沸沸扬扬，还连带恐吓勿宣传投白票。投不投票是港人的权力，一个被中共强行阉割了民主自由的新选举制度和垃圾无异，有特色的社会主义选举无法愚弄享受过民主自由的香港人。
 
-两家公司共同宣布“利用新的垂直晶体管架构在半导体设计方面取得突破，该架构展示了一种超 越纳米片的扩展路径，与按比例缩放的鳍式场效应晶体管相比，有可能将能源使用量减少 85%” 。
+资料来源：[**民调：不投票升至四成 欲投者减 学者指政府催票失效  刘兆佳：政局稳定低票率正常**](https://news.mingpao.com/pns/%e8%a6%81%e8%81%9e/article/20211218/s00001/1639765240581/%e6%b0%91%e8%aa%bf-%e4%b8%8d%e6%8a%95%e7%a5%a8%e5%8d%87%e8%87%b3%e5%9b%9b%e6%88%90-%e6%ac%b2%e6%8a%95%e8%80%85%e6%b8%9b-%e5%ad%b8%e8%80%85%e6%8c%87%e6%94%bf%e5%ba%9c%e5%82%ac%e7%a5%a8%e5%a4%b1%e6%95%88-%e5%8a%89%e5%85%86%e4%bd%b3-%e6%94%bf%e5%b1%80%e7%a9%a9%e5%ae%9a-%e4%bd%8e%e7%a5%a8%e7%8e%87%e6%ad%a3%e5%b8%b8)
 
-该公告是在全球半导体短缺的情况下发布的，许多人认为这种短缺可能要到 2023 年才能完全结 束。
+*校对：东京樱花团 / 文小白
+发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
 
-新闻稿称：“两家公司的半导体创新是在纽约州奥尔巴尼的奥尔巴尼纳米技术综合体进行的，在那 里研究科学家与公共和私营部门合作伙伴一同突破逻辑缩放和半导体能力的界限。”
-
-**该版本列出了这一突破的一些潜在好处，包括：**
-
-● 潜在的器件架构，使半导体器件能够在纳米片之外继续进行缩放。
-● 手机电池可以在不充电的情况下使用一周，而不是几天。
-● 能源密集型流程，例如加密采矿操作和数据加密，可能需要的能源显着减少，碳足迹也更 小。
-● 物联网 (IoT) 和能源需求较低的边缘设备的持续扩展，使它们能够在更多样化的环境中运 行，例如海洋浮标、自动驾驶汽车和航天器。
-
-IBM 研究部混合云和系统副总裁 Mukesh Khare 博士评论说：“今天的技术公告是关于挑战传统 并重新思考我们如何继续推动社会进步并提供新的创新来改善生活、业务并减少我们对环境的 影响。”
-
-他继续说道：“鉴于该行业目前在多个方面面临限制，IBM 和三星正在展示我们对半导体设计联 合创新的承诺以及对我们所谓的‘硬技术’的共同追求。”
-
-**您可以在此处阅读完整版本。链接如下：**
-[https://www.news-journal.com/ibm-and-samsung-unveil-semiconductor-breakthrough-that-defi es-conventional-design/article\_ba471204-e08a-5866-82ab-e77e895e076c.html](https://www.news-journal.com/ibm-and-samsung-unveil-semiconductor-breakthrough-that-defi%20es-conventional-design/article_ba471204-e08a-5866-82ab-e77e895e076c.html)
-
-**文章来源：**[https://www.zerohedge.com/markets/ibm-and-samsung-jointly-announce-breakthrough-semic onductor-uses-85-less-energy](https://www.zerohedge.com/markets/ibm-and-samsung-jointly-announce-breakthrough-semic%20onductor-uses-85-less-energy)
-
-翻译：洛杉矶盘古农场 – Raul
-校对：洛杉矶盘古农场 – Milojai
-编辑：洛杉矶盘古农场 –Rosa
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
