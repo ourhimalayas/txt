@@ -2,20 +2,46 @@
 ---
 
 
-## 换汤不换药 香港延长居屋禁售期
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1769469/)
+## IBM和三星联合宣布“突破性”半导体，能耗降低85%
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1769475/)
 
-作者：东京樱花团丨阿恩
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-315.jpeg)[*图片来源*](https://cdn.hk01.com/di/media/images/dw/20211115/536893592711467008097684.jpeg/7roFl0pSPhZQ-j1B-B2bxz8OqtjSPJy-Jhd9bSYXfW0?v=w1920)
-房委会资助房屋小组将商讨收紧资助房屋的转售限制，或会规定业主需住满5年或以上才准高于原价转售，较现时的2年长。房委会委员、公屋联会总干事招国伟同意收紧相关的限制；测量师学会前会长刘振江则指，如果「限太死」，会影响居屋的流转，影响土地资源效益的问题。地产商新世界成立的社企「新世界建好生活」建议发展私人居屋，招国伟同时是「新世界建好生活」咨询委员会成员。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/amq6p-x6e25-1.jpg)
+**据《Zerohedge》记者Tyler Druden 2021年12月15日报道**
+如果您像我们一样，就会想知道IBM 过去几年到底在做什么。今天，我们似乎有了部分答案。
 
-香港人居住空间狭窄的问题一直没有得到解决，尤其是97后官商勾结令香港人置业举步维艰，港府为保地产商的利益不断减少公营房屋的建设，导致公屋轮候时间长达十年，加上福利房推出的数量极为有限，而且与市场价格挂钩，工薪港人想有瓦遮头难上加难。中共独裁香港后也揪住这个民生问题用“糖衣炮弹”攻香港基层市民，号称要尽快解决，但现在公营和私人的土地被中共巧取豪夺了不少，各地也大兴土木，却被港府高官泼冷水，称公营房屋因土地转换和建设速度问题，解决住房问题还需要十年或二十的时间。既然长期的问题解决不了，现实的福利房流转问题还是要体贴民生吧！但事与愿违，上面的新闻透露出港府依旧采取福利房定期流转成私人楼的政策，只是将限售期延长而已。殊不知福利房就是为低收入者所设，流转方向也只应予低收入者，不能存在增值成分，否则就违背了建设的宗旨。这么浅显的道理港府绝不会不晓，他们的目的就是官商勾结愚弄港人。
+蓝色巨人IBM 今天上午在新闻稿中透露，它一直与三星合作，并在半导体设计方面取得了“突破” ，可以将能源使用量减少 85%。
 
-资料来源：[**居屋禁售期或延至5年  房委会委员意见分歧  有人忧减慢流转**](https://www.hk01.com/%E7%A4%BE%E6%9C%83%E6%96%B0%E8%81%9E/713817/%E5%B1%85%E5%B1%8B%E7%A6%81%E5%94%AE%E6%9C%9F%E6%88%96%E5%BB%B6%E8%87%B35%E5%B9%B4-%E6%88%BF%E5%A7%94%E6%9C%83%E5%A7%94%E5%93%A1%E6%84%8F%E8%A6%8B%E5%88%86%E6%AD%A7-%E6%9C%89%E4%BA%BA%E6%86%82%E6%B8%9B%E6%85%A2%E6%B5%81%E8%BD%89)
+两家公司共同宣布“利用新的垂直晶体管架构在半导体设计方面取得突破，该架构展示了一种超 越纳米片的扩展路径，与按比例缩放的鳍式场效应晶体管相比，有可能将能源使用量减少 85%” 。
 
-*校对：东京樱花团 / 文小白
-发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+该公告是在全球半导体短缺的情况下发布的，许多人认为这种短缺可能要到 2023 年才能完全结 束。
+
+新闻稿称：“两家公司的半导体创新是在纽约州奥尔巴尼的奥尔巴尼纳米技术综合体进行的，在那 里研究科学家与公共和私营部门合作伙伴一同突破逻辑缩放和半导体能力的界限。”
+
+**该版本列出了这一突破的一些潜在好处，包括：**
+
+● 潜在的器件架构，使半导体器件能够在纳米片之外继续进行缩放。
+● 手机电池可以在不充电的情况下使用一周，而不是几天。
+● 能源密集型流程，例如加密采矿操作和数据加密，可能需要的能源显着减少，碳足迹也更 小。
+● 物联网 (IoT) 和能源需求较低的边缘设备的持续扩展，使它们能够在更多样化的环境中运 行，例如海洋浮标、自动驾驶汽车和航天器。
+
+IBM 研究部混合云和系统副总裁 Mukesh Khare 博士评论说：“今天的技术公告是关于挑战传统 并重新思考我们如何继续推动社会进步并提供新的创新来改善生活、业务并减少我们对环境的 影响。”
+
+他继续说道：“鉴于该行业目前在多个方面面临限制，IBM 和三星正在展示我们对半导体设计联 合创新的承诺以及对我们所谓的‘硬技术’的共同追求。”
+
+**您可以在此处阅读完整版本。链接如下：**
+[https://www.news-journal.com/ibm-and-samsung-unveil-semiconductor-breakthrough-that-defi es-conventional-design/article\_ba471204-e08a-5866-82ab-e77e895e076c.html](https://www.news-journal.com/ibm-and-samsung-unveil-semiconductor-breakthrough-that-defi%20es-conventional-design/article_ba471204-e08a-5866-82ab-e77e895e076c.html)
+
+**文章来源：**[https://www.zerohedge.com/markets/ibm-and-samsung-jointly-announce-breakthrough-semic onductor-uses-85-less-energy](https://www.zerohedge.com/markets/ibm-and-samsung-jointly-announce-breakthrough-semic%20onductor-uses-85-less-energy)
+
+翻译：洛杉矶盘古农场 – Raul
+校对：洛杉矶盘古农场 – Milojai
+编辑：洛杉矶盘古农场 –Rosa
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
