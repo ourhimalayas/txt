@@ -15,74 +15,74 @@
 
 ---
 
-### [习近平感觉去日无多的多疑和托孤、杀掠和疯狂发动战争](/content/gnews/1/README.md)
+### [性无能被前妻戴绿帽子并抛弃的习近平用音乐征服彭丽媛](/content/gnews/1/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [2021年12月17日文贵大直播简报](/content/gnews/2/README.md)
+### [习近平感觉去日无多的多疑和托孤、杀掠和疯狂发动战争](/content/gnews/2/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [2021年12月17日文贵大直播简报](/content/gnews/3/README.md)
  ` 秘密翻译组-原创组`
 
-### [文贵先生盖特精要2021/12/18](/content/gnews/3/README.md)
+### [文贵先生盖特精要2021/12/18](/content/gnews/4/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [日本政府决定将边境中共病毒疫情管控措施延长到年底](/content/gnews/4/README.md)
+### [日本政府决定将边境中共病毒疫情管控措施延长到年底](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [12月17日大直播：习彭同框—开启夫人参政](/content/gnews/5/README.md)
+### [12月17日大直播：习彭同框—开启夫人参政](/content/gnews/6/README.md)
  ` 墨尔本雅典娜农场`
 
-### [令行禁止：波音公司暂停对美国员工的疫苗强制](/content/gnews/6/README.md)
+### [令行禁止：波音公司暂停对美国员工的疫苗强制](/content/gnews/7/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [前HHS顾问、病毒学家说，&#8221;完全接种疫苗者是中共病毒主要传播媒介&#8221;](/content/gnews/7/README.md)
+### [前HHS顾问、病毒学家说，&#8221;完全接种疫苗者是中共病毒主要传播媒介&#8221;](/content/gnews/8/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [美国将进行军事协助中共国生物技术公司列入黑名单](/content/gnews/8/README.md)
+### [美国将进行军事协助中共国生物技术公司列入黑名单](/content/gnews/9/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [以色列称将多次接种病毒疫苗列入议程](/content/gnews/9/README.md)
+### [以色列称将多次接种病毒疫苗列入议程](/content/gnews/10/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [安省强推不能阻断Omicron变种爆发的疫苗！](/content/gnews/10/README.md)
+### [安省强推不能阻断Omicron变种爆发的疫苗！](/content/gnews/11/README.md)
  ` 向真`
 
-### [比赛仅 19 分钟，那不勒斯中场齐林斯基因呼吸困难而离场](/content/gnews/11/README.md)
+### [比赛仅 19 分钟，那不勒斯中场齐林斯基因呼吸困难而离场](/content/gnews/12/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [小雨专栏在路上052——幸运篇](/content/gnews/12/README.md)
+### [小雨专栏在路上052——幸运篇](/content/gnews/13/README.md)
  ` 温哥华扬帆农场`
 
-### [小雨专栏053在路上——随便篇](/content/gnews/13/README.md)
+### [小雨专栏053在路上——随便篇](/content/gnews/14/README.md)
  ` 温哥华扬帆农场`
 
-### [特鲁多国际机场，从下周二起乘飞机出行旅客都必须出示 COVID 测试阴性结果](/content/gnews/14/README.md)
+### [特鲁多国际机场，从下周二起乘飞机出行旅客都必须出示 COVID 测试阴性结果](/content/gnews/15/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [埃隆马斯克：特斯拉开始接受加密货币Doge购买商品](/content/gnews/15/README.md)
+### [埃隆马斯克：特斯拉开始接受加密货币Doge购买商品](/content/gnews/16/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [超级台风肆虐菲律宾，造成重大破坏](/content/gnews/16/README.md)
+### [超级台风肆虐菲律宾，造成重大破坏](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [五角大楼必须在中国窃取美国的军事机密之前采取行动](/content/gnews/17/README.md)
+### [五角大楼必须在中国窃取美国的军事机密之前采取行动](/content/gnews/18/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [COVID-19：市长本人被隔离，蒙特利尔市长瓦莱丽·普兰特普兰特（Valérie Plante）进入隔离状态](/content/gnews/18/README.md)
+### [COVID-19：市长本人被隔离，蒙特利尔市长瓦莱丽·普兰特普兰特（Valérie Plante）进入隔离状态](/content/gnews/19/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [对中国寻求大西洋军事基地的分析](/content/gnews/19/README.md)
+### [对中国寻求大西洋军事基地的分析](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [文贵先生直播精要2021/12/17](/content/gnews/20/README.md)
+### [文贵先生直播精要2021/12/17](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [港府催票失效 港人投票意欲减](/content/gnews/21/README.md)
+### [港府催票失效 港人投票意欲减](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [高官借口岸选民 暗讽本地港人冷淡](/content/gnews/22/README.md)
+### [高官借口岸选民 暗讽本地港人冷淡](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [IBM和三星联合宣布“突破性”半导体，能耗降低85%](/content/gnews/23/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [中共铁拳搅混香港教育 百年名校财赤](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
