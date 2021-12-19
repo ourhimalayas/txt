@@ -2,40 +2,24 @@
 ---
 
 
-## 捷克新政府强调将与台湾等民主政府合作
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1770422/)
+## 国务卿东南亚行程两名空军机组人员感染中共病毒
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1770536/)
 
-作者：纽约香草山医疗部 – 云豹
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-08-30-at-7.37.59-PM-2.png)
-捷克新政府于当地时间12月17日上任，新任总理费亚拉强调，他的执政联盟将与台湾等民主政府合作，并考虑变更由总统齐曼所主导的亲中俄路线。
+#### 撰稿：彩虹
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/10-8.jpg)
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-2-14.jpg)图片来源：美国新闻
+12月18日，《新闻极限》引用《路透社》的报道，两名为国务卿安东尼·布林肯（Antony Blinken）提供支持的空军机组人员感染了中共病毒（COVID-19）。现在感染人数已增至三人。
 
-费亚拉在11月28日被任命为新任总理，他带领的人民民主党与其他四个政党合作，在捷克国会200个席位中，合计拿下108席。
+之前，国务院披露，陪同国务卿出访的一名记者团成员的中共病毒检测结果也是阳性。这名记者在抵达马来西亚首都吉隆坡后接受检测，周二晚些时候被确定为中共病毒阳性病例，目前此人仍在隔离中。
 
-现年57岁的费亚拉曾在大学任政治学教授及主任，在受访时曾表示，自己在民主精神下成长，自幼就认为民主和自由是正确的。
+根据报道，空军没有说明布林肯行程中的机组人员何时或在哪一站检测结果为阳性的。空军发言人在周五晚些时候的一份电子邮件中告诉《路透社》，“这两名空乘人员之前都已完全接种疫苗，两人都没有与国务卿或高级工作人员有过密切接触，一名空勤人员没有症状，而另一名空勤人员出现了轻微症状。”
 
-新任的外交部长利帕夫斯基隶属海盗党，信奉自由主义，是反中共团体“对中政策跨国议会联盟”的成员。他对中共立场强硬，曾多次批评新疆的人权问题，谴责中共隐瞒中共病毒疫情，导致疫情扩大。利帕夫斯基对台湾相当友好，曾多次出席台湾举办的活动，并曾在自己的脸书上发文称台湾是可靠的伙伴。
+周三，国务院发言人内德·普莱斯（Ned Price）说，在记者团中出现阳性病例后，“布林肯和他的高级工作人员”检测结果为阴性。然而，普莱斯的声明没有提及与布林肯一起乘坐飞机的其他人（的情况）。
 
-参考链接：
+**新闻来源**
 
-- [捷克新政府上任 強調與台灣等民主政府合作](https://www.cna.com.tw/news/firstnews/202112170314.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-
-
-![This image has an empty alt attribute; its file name is Dec-4-3.png](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
-
-总编：飞虹
-编辑：飞虹
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[Air Force: 2 Supporting Blinken’s Foreign Trip Test Positive for COVID](https://www.newsmax.com/us/air-force-superspreader-secretary-state-department/2021/12/18/id/1049200/)
 
  
 
