@@ -2,41 +2,36 @@
 ---
 
 
-## 波音公司暂停对美国员工强制接种疫苗
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1770351/)
+## 特鲁多试图秘密推动将疫苗强制延长三年的计划
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1770352/)
 
-**作者：埃里克·M·约翰逊（Eric M. Johnson）**
+作者：纽约香草山健身部 – Ivy001
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-08-30-at-7.37.59-PM-2.png)
+12月15日，加拿大保守党议员米歇尔·库博发表推文称，特鲁多政府在国会立法中，一项将疫苗强制授权延长至三年的条款，隐藏在了财政和经济报告中，这表明自由党计划将疫苗强制令再维持3年。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/6-37.jpg)
+库博在推文的最后补充道，特鲁多正在企图把这些所谓的临时措施永久化。
 
-**2021年12月17日**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-19-下午1_Fotor.png)
-西雅图，12月17日(路透社)——美国飞机制造商波音公司(BA.N)周五表示，该公司暂停了对美国员工的冠状病毒疫苗接种要求，数千名员工寻求豁免，因为（此事）数周的不确定性画上了句号，并在法庭上对联邦命令提出了挑战。
+推文下的多数评论称，特鲁多的三年疫苗强制计划，只能更加证明疫苗的无效。
 
-波音公司在一份内部声明中表示，该决定是在对美国地方法院本月早些时候的裁决进行审查后做出的，该裁决暂停执行总统乔·拜登(Joe Biden)要求联邦承包商接种疫苗的规定。
+参考链接：
 
-一些大型医疗连锁企业和公司，如通用电气(GE.N)、势必锐航空系统公司(Spirit AeroSystems)和美国铁路客运公司(Amtrak)，也暂停了对员工接种疫苗的规定。
+- [https://www.gettr.com/post/pjwjg97fc1](https://www.gettr.com/post/pjwjg97fc1)
+- [https://mobile.twitter.com/spoonfull9/status/1471687732581715970?s=20](https://mobile.twitter.com/spoonfull9/status/1471687732581715970?s=20)
 
-据路透社报道，最近几周，波音公司因宗教或医疗原因寻求疫苗豁免的员工人数已超过11000人，占其美国员工总数的近9%，这一数字比高管们最初的估计高出许多倍。
 
-绝大多数的求职申请都是基于宗教原因，这一事实将美国最大的雇主之一推向了一场关于探究雇员的宗教信仰是否道德的辩论漩涡中。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
 
-这也让高管们在寻找一种既能保证员工安全，又能避免工程和工厂劳动力外流的策略。
+总编：Jack Li文阳
+编辑：Jack Li文阳
+校正/发稿：海阔天空1
 
-根据周五的备忘录，波音公司的疫苗接种要求导致超过92%的美国员工注册为完全接种疫苗，或接受了宗教或医疗豁免证明。
-
-“波音公司迄今为止的疫苗接种要求的成功，使该公司很好地遵守联邦行政命令，如果它在未来恢复的话，”它补充说。
-
-波音的一名发言人证实了这一决定，并补充说，该公司“致力于为我们的员工维持一个安全的工作环境，并促进我们全球员工的健康和安全。”
-
-该发言人补充说，波音公司根据法院禁止执行联邦承包商行政命令和一些州法律的决定，暂停了其疫苗接种要求。
-
-上个月，白宫将联邦承包商雇员接受疫苗接种或定期检测的最后期限推迟到1月4日，如果他们获得了豁免。
-
-**新闻来源:[路透社（REUTERS）](https://www.reuters.com/business/aerospace-defense/exclusive-boeing-suspends-vaccination-requirement-us-based-employees-internal-2021-12-17/)**
-
-翻译：文虓Bobby
-
-发布:Astrid星星
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

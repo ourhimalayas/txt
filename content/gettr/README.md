@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/19/2021 7:01 AM (UTC)`
+
+因侵犯人权，美参议院两党一致通过法案，使美国成为第一个全面禁止进口新疆产品的国家，美国将34家中共国公司列入黑名单<br/><br/>The US Senate passed the bill unanimously to be the first country banning all imports from Xinjiang and the US further blacklists 34 Chinese firms over human rights abuse<br/><br/>
+![img](https://media.gettr.com/group28/getter/2021/12/19/07/65782d04-101b-4b8e-3468-bc5bd20a1a54/out.jpg)
+
+---
+
 `@miles 12/19/2021 6:36 AM (UTC)`
 
 本周末,成千上万的澳大利亚人再次聚集在墨尔本街头抗议疫苗禁令<br/><br/>This weekend,  thousands of Australia protesters hit the streets  in Melbourne again to fight vaccination mandates and Covid-19 restrictions<br/><br/>
@@ -152,13 +159,6 @@
 
 12/16/2021 Miles Guo’s GETTR: Did Xi Jinping’s cough catch the attention of half of the world? In Communist China, the CCP is propagating a nuclear war against the US. Will the world be a bystander when the CCP invades Taiwan? The Omicron variant has strong transmission and a long incubation period. Everyone must be careful!<br/><br/>12/16/2021 文贵盖特：“习太阳”咳嗽了，半个世界被惊到了？中共对内大肆宣传要和美国打核战，世界会对中共打台湾袖手旁观吗？奥米炕病毒传播力强、潜伏期长，大家务必小心<br/>
 ![img](https://media.gettr.com/group24/getter/2021/12/16/22/770efd91-a66d-b809-e2fe-ad8048c318a2/out.jpg)
-
----
-
-`@miles 12/16/2021 10:18 PM (UTC)`
-
-12/16/2021 Miles Guo’s GETTR: “VP” Peng Liyuan joined the show yesterday, and why did I say that right again? It’s also said that Wang Jianlin (Wanda) had taken over Yuda Palace Hotel. Hope he can manage it well, and God bless him. Don’t turn Yuda, the Buddha’s Hands-shaped building, into “Buddha's Hands on Fire”<br/><br/>12/16/2021 文贵盖特：听说昨天彭“副主席”正式出场了，七哥咋又蒙对了呢？据说万达王健林把裕达国贸酒店拿走了？希望他好好管理，可千万别让裕达变成“火佛手”啊<br/>
-![img](https://media.gettr.com/group25/getter/2021/12/16/22/2c517dc4-55b5-91e1-0693-cbda8117466a/out.jpg)
 
 ---
 
