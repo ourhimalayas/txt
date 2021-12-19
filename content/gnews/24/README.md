@@ -2,17 +2,37 @@
 ---
 
 
-## 李木子是能力和控制力极强的人 已是两个孩子的母亲
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1770793/)
+## 南非住院率在世界奥米克戎激增时反而下降
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1770824/)
 
-栏目作者：焦点20分
+撰稿：纽约香草山文艺部 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-8.png)
+正当全球都对激增的奥米克戎焦头烂额的时候，12月17日，南非卫生部长称这次新变种病毒症状温和，与前两波病毒爆发时的峰值相比，住院率大大降低。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1012.png)
+据卫生部长乔·法哈拉的描述，在这波大流行期间，只有1.7%的患者在第二周感染入院，而在第三波德尔塔主导的大流行中，该比率为19%。南非国家传染病研究所的一名官员说，目前需要氧气的人数 “比以前任何一个波段的人数都要少”。与此同时，超额死亡人数，即与历史平均水平相比多出的死亡人数，略低于每周2,000人，是之前峰值的八分之一。据悉，南非现有7600人因新冠病毒住院，约占第二波和第三波峰值的40%。
 
-[习公主](https://gettr.com/hashtag/%23%E4%B9%A0%E5%85%AC%E4%B8%BB)[李木子](https://gettr.com/hashtag/%23%E6%9D%8E%E6%9C%A8%E5%AD%90)已经是2个孩子的母亲了。她有[金正恩](https://gettr.com/hashtag/%23%E9%87%91%E6%AD%A3%E6%81%A9)的鬼才，[金正恩妹妹](https://gettr.com/hashtag/%23%E9%87%91%E6%AD%A3%E6%81%A9%E5%A6%B9%E5%A6%B9)金與正的狠劲；[习近平](https://gettr.com/hashtag/%23%E4%B9%A0%E8%BF%91%E5%B9%B3)的亲善感，[彭丽媛](https://gettr.com/hashtag/%23%E5%BD%AD%E4%B8%BD%E5%AA%9B)的大度。是控制力、能力极强，心思缜密之人。
+南非是奥米克戎首发并上报的地方。正当多国为激增的新病例重新实施各项限制令的时候，南非的现状却与他国激进的措施和无谓的恐慌迥然不同。
 
-视频来源: 2021年12月17日郭先生大直播视频
-视频制作: 文星光
-文案: 梦田、文星光
-上传: 零点
+
+
+新闻链接：
+
+[South African hospitalization rates drop during Omicron surge](https://nypost.com/2021/12/17/south-african-hospitalization-rates-drop-during-omicron-surge/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3-1.png)
+
+总编/编辑：飞虹
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/新-8.png)
+
 
  
 
