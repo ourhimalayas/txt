@@ -15,170 +15,170 @@
 
 ---
 
-### [美国对新疆实施制裁后，中共发誓要作出反制](/content/gnews/1/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [币圈新闻动态：未来几年，数字货币将更多地用于商业交易](/content/gnews/1/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [从震旦大学事件看中共国众生相](/content/gnews/2/README.md)
+### [对奥运会起源的思考](/content/gnews/2/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [秘翻在线：关于北京冬奥会日本外相的最新表态](/content/gnews/3/README.md)
+### [美国飞行员的死亡人数在中共病毒疫苗推广后增加了1750%](/content/gnews/3/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [加拿大保守党议员批评特鲁多政府想永久执行疫苗强制令](/content/gnews/4/README.md)
+### [视频| 共产党把盘古龙头变鸟头的原因（二）](/content/gnews/4/README.md)
+ ` MOSREC`
+
+### [视频| 共产党把盘古龙头变鸟头的原因（三）](/content/gnews/5/README.md)
+ ` MOSREC`
+
+### [视频| 习近平命不久矣](/content/gnews/6/README.md)
+ ` MOSREC`
+
+### [视频| 共产党把盘古龙头变鸟头的原因（一）](/content/gnews/7/README.md)
+ ` MOSREC`
+
+### [视频| 爆料革命战友们的打榜对墙内外影响巨大](/content/gnews/8/README.md)
+ ` MOSREC`
+
+### [视频| 1000天大行动只针对“习王孟江”](/content/gnews/9/README.md)
+ ` MOSREC`
+
+### [几名 BuzzFeed 员工参加了在曼哈顿举办节日派对后感染了 Covid-19](/content/gnews/10/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [普京以个人名义接受习近平的邀请出席2022年北京冬奥会](/content/gnews/11/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [美国对新疆实施制裁后，中共发誓要作出反制](/content/gnews/12/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [从震旦大学事件看中共国众生相](/content/gnews/13/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [秘翻在线：关于北京冬奥会日本外相的最新表态](/content/gnews/14/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [加拿大保守党议员批评特鲁多政府想永久执行疫苗强制令](/content/gnews/15/README.md)
  ` 首尔天池农场`
 
-### [秘翻在线：“相信政府，反而失去了家人”…疫苗受害者家人在暴雪中哭诉](/content/gnews/5/README.md)
+### [秘翻在线：“相信政府，反而失去了家人”…疫苗受害者家人在暴雪中哭诉](/content/gnews/16/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [性无能被前妻戴绿帽子并抛弃的习近平用音乐征服彭丽媛](/content/gnews/6/README.md)
+### [性无能被前妻戴绿帽子并抛弃的习近平用音乐征服彭丽媛](/content/gnews/17/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [瑞士就禁止强制疫苗举行公投是时代的悲哀](/content/gnews/7/README.md)
+### [瑞士就禁止强制疫苗举行公投是时代的悲哀](/content/gnews/18/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [GTV新闻访谈简报|2021年12月18日晚](/content/gnews/8/README.md)
+### [GTV新闻访谈简报|2021年12月18日晚](/content/gnews/19/README.md)
  ` 纽约香草山MOS01`
 
-### [习近平感觉去日无多的多疑和托孤、杀掠和疯狂发动战争](/content/gnews/9/README.md)
+### [Twitter禁止用户声称疫苗接种者会传播冠状病毒](/content/gnews/20/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [习近平感觉去日无多的多疑和托孤、杀掠和疯狂发动战争](/content/gnews/21/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [2021年12月17日文贵大直播简报](/content/gnews/10/README.md)
+### [2021年12月17日文贵大直播简报](/content/gnews/22/README.md)
  ` 秘密翻译组-原创组`
 
-### [文贵先生盖特精要2021/12/18](/content/gnews/11/README.md)
+### [文贵先生盖特精要2021/12/18](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [对中共加强咸慑的重要性，历史对侵略者绥靖永不会奏效](/content/gnews/12/README.md)
+### [对中共加强咸慑的重要性，历史对侵略者绥靖永不会奏效](/content/gnews/24/README.md)
  ` 纽约香草山MOS02`
 
-### [日本政府决定将边境中共病毒疫情管控措施延长到年底](/content/gnews/13/README.md)
+### [日本政府决定将边境中共病毒疫情管控措施延长到年底](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [12月17日大直播：习彭同框—开启夫人参政](/content/gnews/14/README.md)
+### [12月17日大直播：习彭同框—开启夫人参政](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
 
-### [令行禁止：波音公司暂停对美国员工的疫苗强制](/content/gnews/15/README.md)
+### [令行禁止：波音公司暂停对美国员工的疫苗强制](/content/gnews/27/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [前HHS顾问、病毒学家说，&#8221;完全接种疫苗者是中共病毒主要传播媒介&#8221;](/content/gnews/16/README.md)
+### [前HHS顾问、病毒学家说，&#8221;完全接种疫苗者是中共病毒主要传播媒介&#8221;](/content/gnews/28/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [美国将进行军事协助中共国生物技术公司列入黑名单](/content/gnews/17/README.md)
+### [美国将进行军事协助中共国生物技术公司列入黑名单](/content/gnews/29/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [以色列称将多次接种病毒疫苗列入议程](/content/gnews/18/README.md)
+### [以色列称将多次接种病毒疫苗列入议程](/content/gnews/30/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [安省强推不能阻断Omicron变种爆发的疫苗！](/content/gnews/19/README.md)
+### [安省强推不能阻断Omicron变种爆发的疫苗！](/content/gnews/31/README.md)
  ` 向真`
 
-### [比赛仅 19 分钟，那不勒斯中场齐林斯基因呼吸困难而离场](/content/gnews/20/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [小雨专栏在路上052——幸运篇](/content/gnews/21/README.md)
+### [小雨专栏在路上052——幸运篇](/content/gnews/32/README.md)
  ` 温哥华扬帆农场`
 
-### [小雨专栏053在路上——随便篇](/content/gnews/22/README.md)
+### [小雨专栏053在路上——随便篇](/content/gnews/33/README.md)
  ` 温哥华扬帆农场`
 
-### [特鲁多国际机场，从下周二起乘飞机出行旅客都必须出示 COVID 测试阴性结果](/content/gnews/23/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [埃隆马斯克：特斯拉开始接受加密货币Doge购买商品](/content/gnews/24/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [超级台风肆虐菲律宾，造成重大破坏](/content/gnews/25/README.md)
+### [超级台风肆虐菲律宾，造成重大破坏](/content/gnews/34/README.md)
  ` 墨尔本雅典娜农场`
 
-### [五角大楼必须在中国窃取美国的军事机密之前采取行动](/content/gnews/26/README.md)
+### [五角大楼必须在中国窃取美国的军事机密之前采取行动](/content/gnews/35/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [对中国寻求大西洋军事基地的分析](/content/gnews/27/README.md)
+### [对中国寻求大西洋军事基地的分析](/content/gnews/36/README.md)
  ` 墨尔本雅典娜农场`
 
-### [文贵先生直播精要2021/12/17](/content/gnews/28/README.md)
+### [文贵先生直播精要2021/12/17](/content/gnews/37/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [港府催票失效 港人投票意欲减](/content/gnews/29/README.md)
+### [港府催票失效 港人投票意欲减](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [高官借口岸选民 暗讽本地港人冷淡](/content/gnews/30/README.md)
+### [高官借口岸选民 暗讽本地港人冷淡](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共铁拳搅混香港教育 百年名校财赤](/content/gnews/31/README.md)
+### [中共铁拳搅混香港教育 百年名校财赤](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [换汤不换药 香港延长居屋禁售期](/content/gnews/32/README.md)
+### [换汤不换药 香港延长居屋禁售期](/content/gnews/41/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [12/18/2021 文贵盖特：整个中南部地区已经下令停发工资、养老金](/content/gnews/33/README.md)
- ` 秘密翻译组-北美组`
-
-### [从中共国的财政数据看GDP造假](/content/gnews/34/README.md)
+### [从中共国的财政数据看GDP造假](/content/gnews/42/README.md)
  ` 澳喜农场`
 
-### [从毛阿敏老公解直锟心梗猝死，探知中共新一轮土改、肃反运动](/content/gnews/35/README.md)
+### [从毛阿敏老公解直锟心梗猝死，探知中共新一轮土改、肃反运动](/content/gnews/43/README.md)
  ` YALUN 亚伦`
 
-### [12/18/2021 文贵盖特：大家要小心奥米炕，传播快、并发症多，备好伊维菌素和青蒿素](/content/gnews/36/README.md)
- ` 秘密翻译组-北美组`
-
-### [严重饥荒：阿富汗的人道主义危机正在恶化](/content/gnews/37/README.md)
- ` 墨尔本雅典娜农场`
-
-### [反对强制疫苗政策，墨尔本民众坚持不懈抗议集会](/content/gnews/38/README.md)
- ` 墨尔本雅典娜农场`
-
-### [有声|疫苗强制令下卡车司机流失引发供应链问题](/content/gnews/39/README.md)
- ` MOSREC`
-
-### [有声|央企离京潮加速，上海正在“东北化”](/content/gnews/40/README.md)
- ` MOSREC`
-
-### [有声|日本加快推进辉瑞的药品供应](/content/gnews/41/README.md)
- ` MOSREC`
-
-### [有声|美参议院通过国防授权法应对中共威胁](/content/gnews/42/README.md)
- ` MOSREC`
-
-### [隐宫习近平曾强戴绿帽，跪哭求痴判妻归](/content/gnews/43/README.md)
+### [隐宫习近平曾强戴绿帽，跪哭求痴判妻归](/content/gnews/44/README.md)
  ` YALUN 亚伦`
 
-### [标普全球调降恒大至“选择性违约”](/content/gnews/44/README.md)
+### [标普全球调降恒大至“选择性违约”](/content/gnews/45/README.md)
  ` GTV新闻访谈`
 
-### [103名海军陆战队队员因拒绝新冠疫苗被开除](/content/gnews/45/README.md)
+### [103名海军陆战队队员因拒绝新冠疫苗被开除](/content/gnews/46/README.md)
  ` GTV新闻访谈`
 
-### [GTV新闻访谈简报|2021年12月18日早](/content/gnews/46/README.md)
+### [GTV新闻访谈简报|2021年12月18日早](/content/gnews/47/README.md)
  ` 纽约香草山MOS01`
 
-### [12/18/2021国际财经快讯：美联储3月会议上可能会加息;标普500消极一周后收跌](/content/gnews/47/README.md)
+### [12/18/2021国际财经快讯：美联储3月会议上可能会加息;标普500消极一周后收跌](/content/gnews/48/README.md)
  ` 秘密翻译组金融团队`
 
-### [美国制裁中共的几大重招](/content/gnews/48/README.md)
+### [美国制裁中共的几大重招](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [也给共匪掐指一算（二）](/content/gnews/49/README.md)
+### [也给共匪掐指一算（二）](/content/gnews/50/README.md)
  ` 骄子`
 
-### [也给共匪掐指一算（一）](/content/gnews/50/README.md)
+### [也给共匪掐指一算（一）](/content/gnews/51/README.md)
  ` 骄子`
 
-### [军情启示录节目专访郝海东先生](/content/gnews/51/README.md)
+### [军情启示录节目专访郝海东先生](/content/gnews/52/README.md)
  ` 军情启示录`
 
-### [汇丰因反洗钱漏洞被英国金融监管局罚款6千多万英镑](/content/gnews/52/README.md)
+### [汇丰因反洗钱漏洞被英国金融监管局罚款6千多万英镑](/content/gnews/53/README.md)
  ` 日本东京方舟农场`
 
-### [AUKUS三边会谈确定技术和军事全方位围堵中共](/content/gnews/53/README.md)
+### [AUKUS三边会谈确定技术和军事全方位围堵中共](/content/gnews/54/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [《国家脉动》“年度爱国者奖”获得者——史蒂夫·班农](/content/gnews/54/README.md)
+### [《国家脉动》“年度爱国者奖”获得者——史蒂夫·班农](/content/gnews/55/README.md)
  ` 日本东京方舟农场`
-
-### [港共政府清算《苹果日报》发行公司](/content/gnews/55/README.md)
- ` GTV新闻访谈`
 
 ### [习近平的“家天下”昭示其政治孤立的境地](/content/gnews/56/README.md)
  ` GTV新闻访谈`

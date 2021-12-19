@@ -2,36 +2,27 @@
 ---
 
 
-## 令行禁止：波音公司暂停对美国员工的疫苗强制
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1769703/)
+## 加拿大保守党议员批评特鲁多政府想永久执行疫苗强制令
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1769916/)
 
-作者：雄起
+翻译：zzballack
+上传：追着曙光跑
 
-据12 月 17 日路透社报道，美国飞机制造商波音公司（BA.N）周五表示，公司暂停了对美国员工的冠状病毒疫苗接种要求，结束了几周以来的不确定性，因为数千名工人的寻求疫苗豁免和在法庭上挑战联邦强制令。
+据Lifesitenews 12月17日报道，加拿大保守党（CPC）议员迈克尔·库珀 (Michael Cooper)警告说，加拿大总理贾斯廷·特鲁多 (Justin Trudeau) 领导的自由党政府正计划在未来数年内继续保留疫苗强制令和防疫措施。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Image-2021-12-19-at-12.02.31-1.jpeg)图片来源：原新闻
+迈克尔·库珀12月15日发推说：“这很令人不安。根据《2021年经济和财政更新报告》，自由党正计划将疫苗强制令再延续3年。这些据称是‘临时的’要求被特鲁多变成了永久性的命令。”
 
-发言人补充说，波音公司是根据法院禁止执行联邦承包商行政命令和一些州法律的决定，暂停了其疫苗接种要求。
+加拿大副总理兼财政部长方慧兰 (Chrystia Freeland)12月14日公布的《2021年经济和财政更新报告》，详细介绍了2021年到2024年期间，联邦政府在旅行安全方面的开支计划。库珀强调说，该报告显示，2021至2024年这三年中，将向加拿大交通部提供3740万美元的资金，以“支持（交通部）执行和监督针对受联邦监管的航空、铁路和海运行业的雇员和管理人员的疫苗强制令”。
 
-在上个月，白宫将联邦承包商的雇员接种疫苗或定期接受豁免的最后期限推迟到 1 月 4 日。而在本月早些时候，美国地方法院的一项裁决停止执行总统乔·拜登对联邦承包商的疫苗要求。
+该报告PDF在线版本第25页的“疫苗强制令–让旅行更安全（Vaccine Mandates — Making Travel Safer）”一项列出了特鲁多政府在该项目上的支出计划，2021-2022年500万美元，2022-2023年2300万美元，2023-2024年900万美元。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-988.png)
+报告还说，“2021-2022财年至2026-2027财年期间，在疫苗采购和大流行病的准备工作上的支出（Spending on Vaccine Procurement and Pandemic Preparedness）”将总计达到73.57亿美元。数字显示，自由党的通过资助疫苗“使加拿大人远离新冠病毒（Keep Canadians Safe from COVID-19）”的计划将持续到2027年年底。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-989.png)
+另有17亿美元的资金，将用于“增加加拿大各地的快速检测用品，帮助尽早发现病例，打破传播链，减少疫情爆发”。
 
-值得一提的是，通用电气[(GE.N)](https://www.reuters.com/companies/GE.N)、Spirit AeroSystems [(SPR.N)](https://www.reuters.com/companies/SPR.N)和 Amtrak等一些大型医疗保健连锁店和公司也暂停了对员工的疫苗接种要求。
+这份报告鼓吹新冠疫苗是对抗新冠病毒的最佳防线，但实际情况是这些被紧急批准使用的疫苗会产生严重的副作用，比如血栓、皮疹、流产，甚至让年轻健康男性患上心脏病。加拿大很多医生已经公开反对疫苗强制令，认为它们的有效性和安全性令人堪忧。大量的证据和数据表明，强制接种疫苗策略在应对新冠疫情上是失败的。尽管如此，加拿大卫生部长让-伊夫·杜克洛斯 (Jean-Yves Duclos) 最近暗示说，政府为了应对疫情危机而颁布的法令，如旅行禁令和疫苗强制令，可能会持续几个月甚至“数年”。
 
-据路透社首次报道，最近几周，因宗教或医疗原因寻求疫苗豁免的波音员工人数已超过 11,000 人，占其美国员工总数的近 9%，比高管最初估计的人数高出许多倍。这让高管们试图寻找一种策略，既能保证员工安全，又能避免工程和工厂劳动力外流。
-
-根据周五的备忘录，波音公司的疫苗接种要求已导致超过 92% 的美国工人已登记为完全接种疫苗，或获得宗教及医疗豁免。
-
-“迄今为止，波音疫苗接种要求的成功使该公司能够很好地遵守联邦行政命令，备忘录提到，该公司 “致力于为我们的员工维护一个安全的工作环境，并促进我们全球员工的健康和安全。”
-
-笔者相信，波音公司是真的出于保证员工安全的初心来执行疫苗注射要求的。毕竟科学的概念已经深入人心很多年。但目前科学界由福奇这样的所谓权威专家占据着话语权，大量的科学界，医学界的反对疫苗的声音被打压，所以社会普遍的以相信科学的心态来执行政府的疫苗接种要求也就不足为奇了。
-
-而随着疫苗灾难以及临床数据的不断披露，和反对疫苗强制的声音越来越强，美国政界也终于有所反应，相信，以地方法院的对疫苗强制令的反对为起点，整个美国政府对疫苗强制的态度很快会有转变。企业和教育机构乃至整个社会的传导效应也会随之而来。
-
-[新闻链接](https://www.reuters.com/business/aerospace-defense/exclusive-boeing-suspends-vaccination-requirement-us-based-employees-internal-2021-12-17/)：[https://www.reuters.com/business/aerospace-defense/exclusive-boeing-suspends-vaccination-requirement-us-based-employees-internal-2021-12-17/](https://www.reuters.com/business/aerospace-defense/exclusive-boeing-suspends-vaccination-requirement-us-based-employees-internal-2021-12-17/)
-
-审核校对： sherryok
-
-上传排版： 水云间
-
-
+原新闻：[Conservative MP: Trudeau wants to make jab mandates, COVID protocols permanent](https://www.lifesitenews.com/news/conservative-mp-trudeau-wants-to-make-jab-mandates-covid-protocols-permanent/)
 
  
 

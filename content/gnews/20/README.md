@@ -2,34 +2,40 @@
 ---
 
 
-## 比赛仅 19 分钟，那不勒斯中场齐林斯基因呼吸困难而离场
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1769628/)
+## Twitter禁止用户声称疫苗接种者会传播冠状病毒
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1769824/)
 
-【**简评：】最近，我们注意到，来自世界各地的年轻、健康的运动员突然开始患有心脏病、呼吸困难、神经系统疾病以及其他严重的慢性疾病。一些运动员倒在赛场上，再也醒不过来。一个月前，巴塞罗纳前锋，顶级球星阿奎罗因突然呼吸困难，而被送院确诊患有心脏损伤，本周三，阿奎罗将宣布退役！阿奎罗活了下来，但是大量运动员倒下导致住院和早逝。 《柏林报》最近发表了一份报告，试图解释为什么“最近出现了大量的职业和业余足球运动员在赛场昏倒”。文章列举了近期大量足球运动员在场上出现心脏问题或昏倒，甚至导致死亡的案例。即便如此，媒体仍然不允许质疑疫苗的声音存在，在Sheffield United 23日客场对战雷丁队比赛中，苏格兰国脚John Fleck突然倒地不起，前英超球员直播就此事质疑疫苗却惨遭断播…疫苗暴政必须停止，推动疫苗的幕后黑势力必须搞清楚，否则无论普通老百姓，还是国际巨星，全人类都将面临空前浩劫。**
+【简评：】从短期来看，该措施会阻碍COVID毒疫苗真相的揭露和传播；但是勇敢的人已经站出来发声，民众已经开始觉醒，螳臂当车能挡得住吗？从长期来看，这也是好事：就让 这些信息垄断者犯下罪行，将来才能通过审判，一举打倒消灭这些科技寡头，将信息/言论自由的权利重新归还给人民。“上帝让谁灭亡，必先让其疯狂！”
 
-•** 据《太阳报》记者Jack Figg，2021年12月13日报道：**
-周日，意甲联赛，那不勒斯对阵恩波利，开场仅19分钟，那不勒斯中场球员，彼得·齐林斯基（Piotr Zielinski）便因呼吸困难而离场。
-这位波兰国脚走到边线，对跑向他的医务人员指了指自己的脖子和胸部，表示自己呼吸困难。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/a7cfh-gc2b2.jpg)**那不勒斯球星齐林斯基在呼吸困难后被迫离开球场。图片来源：Getty**
-**齐林斯基 穿上外套并被带到更衣室，因西涅替补登场。**
+据《Breitbart》记者 ALLUM BOKHARI，2021年12月15日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-985.png)图片源自Google Cloud
+据报道，Twitter将惩罚那些声称“接种了冠状病毒疫苗的人仍然可以传播这种疾病”的用户——尽管疾病控制中心（CDC）的官方指南另有说法。
 
-那不勒斯随后发表的一份声明证实，齐林斯基比赛中呼吸困难，但随后的核酸检测结果呈COVID-19阴性。
+用户可能会因违反该政策而面临一系列处罚，包括其被推文上贴上“事实核查”标签、暂停和永久禁止用户使用该平台。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-986.png)2021 年 3 月 20 日，一名医疗保健专业人员在都柏林城市大学校园 Helix 的疫苗接种中心准备一剂辉瑞 / BioNTech Covid-19 疫苗。 – 爱尔兰卫生服务执行官于 3 月 19 日宣布将恢复接种因安全问题而暂停AstraZeneca/Oxford Covid-19 疫苗。（Paul Faith/法新社摄）（PAUL FAITH/法新社摄，盖蒂图片社）
+通过媒体：
 
-那不勒斯说:“齐林斯基因呼吸困难而离开。他的检查结果是阴性的”。
+“当推文包含有关Covid-19的误导性信息时，我们可能会在这些推文上贴上标签，其中包含有关该声明的纠正信息。”该网站在详细说明其有关Covid-19错误信息的规则的部分中指出 。“我们可能会在推文上贴上标签，例如……虚假或误导性的声明，即接种疫苗的人可以将病毒（或症状或免疫力）传播或传播给未接种疫苗的人。”
 
-由于帕特里克·库特罗内 (Patrick Cutrone) 的进球，客场球队恩波利 (Empoli) 以 1-0 的比分赢得了本场比赛。
+用户可能会受到处罚，直至永久被禁止使用平台。
 
-那不勒斯现在在三场比赛中没有获胜，他们在积分榜上排名第四。
+根据Reclaim the Net检索到的Wayback Machine档案 ，该更改是在12月2日进行 的。该政策与疾病控制和预防中心（CDC）的指导方针相矛盾，该指导方针指出“只要病毒继续在社区传播，就不能完全消除完全接种疫苗的人感染SARS-CoV-2的风险。”
 
-**原文连接**[: https://www.thesun.co.uk/sport/football/17019857/napoli-piotr-zielinski-empoli-breathe](https://www.thesun.co.uk/sport/football/17019857/napoli-piotr-zielinski-empoli-breathe)
+根据CDC的说法，“虽然疫苗可以降低您因COVID-19而患上重病、住院和死亡的风险，但我们尚不知道它们对可能出现的新变种（包括 Omicron）的效果如何。”
 
-翻译：洛杉矶盘古农场 –河马甩尾(Yi)巴
-校对：洛杉矶盘古农场 –Mike Li
-评论：洛杉矶盘古农场 – 河马甩尾(Yi)巴
-编辑：洛杉矶盘古农场 – Rosa
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+CDC其实已经变相承认疫苗无用，无法阻挡新冠病毒变种的感染。
+
+Breitbart News已联系Twitter征求评论。
+
+文章来源：[https://www.breitbart.com/politics/2021/12/15/twitter-bans-claim-that-vaccinated-can-spread-coronavirus/](https://www.breitbart.com/politics/2021/12/15/twitter-bans-claim-that-vaccinated-can-spread-coronavirus/)
+
+翻译：洛杉矶盘古农场 – Raul 
+校对：洛杉矶盘古农场– Mike Li
+评论：洛杉矶盘古农场–柯镇恶
+编辑：洛杉矶盘古农场-柯镇恶
+发布 ：洛杉矶盘古农场 – Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/12/image-987.png)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入: (或点击上方图片）
 
 [https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 

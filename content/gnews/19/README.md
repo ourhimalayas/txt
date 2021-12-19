@@ -2,28 +2,27 @@
 ---
 
 
-## 安省强推不能阻断Omicron变种爆发的疫苗！
-` 向真` [轉載自GNews](https://gnews.org/zh-hans/1769654/)
+## GTV新闻访谈简报|2021年12月18日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1769833/)
 
-#### 作者：加拿大温哥华农场 向真
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-984.png)Gnews
-据加拿大CP24美东时间18日报道，安大略省卫生官员今天报告新增确诊3,301 人，另有四人死于中共病毒感染。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV-Gnews-1.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/1218text-SC.png)
+校对：Stay文苑
 
-在今天报告的新增确诊病例中，2,338 人已完全接种疫苗，718 人未接种疫苗，104 人已部分接种疫苗，141 人的疫苗接种状态未知。
+编辑：Stay文苑
 
-其中感染中共病毒变种Omicron的人数占了大多数。安省已有超过 86% 五岁以上的人至少接种了一剂中共病毒疫苗，81% 的人接种了两剂或三剂。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-318.jpeg)Gnews
-报告称截至今天安省的7 天感染滚动平均值为 2,000，今天确诊的感染人数几乎是一周前平均数的两倍，也是七个月以来的最高记录。数据模型显示感染人数正在以2.8天翻一番的速度暴增。
+发稿：Stay文苑
 
-因此恐惧的人们从16日开始排起长队领取免费的快速抗原检测试剂盒。安省卫生部称，实验室在过去 24 小时内处理了 54,400 项测试，阳性率达到 8.9%，这是自 5 月中旬以来的最高水平。
+视频参看：[12.18  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61be8a897882000d5104194d)
 
-数据显示，已经接种疫苗的人占到新增感染的71%以上，证明疫苗对阻断病毒的传播作用相当有限，各大疫苗生产商也承认尚未研制出对付Omicron的有效疫苗，但令人不解的是，安省政府还是一如既往地实施疫苗护照，省卫生部和安省病毒顾问组仍然极力强调必须加强疫苗接种。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/calendar-1.jpeg)
 
-参考：
-
-[Ontario reports 3,301 new COVID-19 cases; highest 7-day rolling average in 7 months](https://www.cp24.com/news/ontario-reports-3-301-new-covid-19-cases-highest-7-day-rolling-average-in-7-months-1.5712761)
-
-编辑/发文：Kent
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
