@@ -15,113 +15,113 @@
 
 ---
 
-### [以色列称将多次接种病毒疫苗列入议程](/content/gnews/1/README.md)
+### [前HHS顾问、病毒学家说，&#8221;完全接种疫苗者是中共病毒主要传播媒介&#8221;](/content/gnews/1/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [安省强推不能阻断Omicron变种爆发的疫苗！](/content/gnews/2/README.md)
+### [美国将进行军事协助中共国生物技术公司列入黑名单](/content/gnews/2/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [以色列称将多次接种病毒疫苗列入议程](/content/gnews/3/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [安省强推不能阻断Omicron变种爆发的疫苗！](/content/gnews/4/README.md)
  ` 向真`
 
-### [比赛仅 19 分钟，那不勒斯中场齐林斯基因呼吸困难而离场](/content/gnews/3/README.md)
+### [比赛仅 19 分钟，那不勒斯中场齐林斯基因呼吸困难而离场](/content/gnews/5/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [小雨专栏在路上052——幸运篇](/content/gnews/4/README.md)
+### [小雨专栏在路上052——幸运篇](/content/gnews/6/README.md)
  ` 温哥华扬帆农场`
 
-### [小雨专栏053在路上——随便篇](/content/gnews/5/README.md)
+### [小雨专栏053在路上——随便篇](/content/gnews/7/README.md)
  ` 温哥华扬帆农场`
 
-### [特鲁多国际机场，从下周二起乘飞机出行旅客都必须出示 COVID 测试阴性结果](/content/gnews/6/README.md)
+### [特鲁多国际机场，从下周二起乘飞机出行旅客都必须出示 COVID 测试阴性结果](/content/gnews/8/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [埃隆马斯克：特斯拉开始接受加密货币Doge购买商品](/content/gnews/7/README.md)
+### [埃隆马斯克：特斯拉开始接受加密货币Doge购买商品](/content/gnews/9/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [超级台风肆虐菲律宾，造成重大破坏](/content/gnews/8/README.md)
+### [超级台风肆虐菲律宾，造成重大破坏](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [COVID-19：市长本人被隔离，蒙特利尔市长瓦莱丽·普兰特普兰特（Valérie Plante）进入隔离状态](/content/gnews/9/README.md)
+### [五角大楼必须在中国窃取美国的军事机密之前采取行动](/content/gnews/11/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [COVID-19：市长本人被隔离，蒙特利尔市长瓦莱丽·普兰特普兰特（Valérie Plante）进入隔离状态](/content/gnews/12/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [对中国寻求大西洋军事基地的分析](/content/gnews/10/README.md)
+### [对中国寻求大西洋军事基地的分析](/content/gnews/13/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美联邦上诉法院裁决拜登的疫苗强制令有效](/content/gnews/11/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [港府催票失效 港人投票意欲减](/content/gnews/12/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [高官借口岸选民 暗讽本地港人冷淡](/content/gnews/13/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [IBM和三星联合宣布“突破性”半导体，能耗降低85%](/content/gnews/14/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [中共铁拳搅混香港教育 百年名校财赤](/content/gnews/15/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [换汤不换药 香港延长居屋禁售期](/content/gnews/16/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [BBVA 瑞士分行在其加密货币托管和交易服务中添加了以太坊](/content/gnews/17/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [12/18/2021 文贵盖特：整个中南部地区已经下令停发工资、养老金](/content/gnews/18/README.md)
- ` 秘密翻译组-北美组`
-
-### [从中共国的财政数据看GDP造假](/content/gnews/19/README.md)
- ` 澳喜农场`
-
-### [英格兰银行警告说，比特币可能变得一文不值](/content/gnews/20/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [从毛阿敏老公解直锟心梗猝死，探知中共新一轮土改、肃反运动](/content/gnews/21/README.md)
- ` YALUN 亚伦`
-
-### [军人拒绝疫苗被解雇，下任共和党总统应予赦免](/content/gnews/22/README.md)
- ` 纽约香草山MOS02`
-
-### [12/18/2021 文贵盖特：大家要小心奥米炕，传播快、并发症多，备好伊维菌素和青蒿素](/content/gnews/23/README.md)
- ` 秘密翻译组-北美组`
-
-### [严重饥荒：阿富汗的人道主义危机正在恶化](/content/gnews/24/README.md)
- ` 墨尔本雅典娜农场`
-
-### [反对强制疫苗政策，墨尔本民众坚持不懈抗议集会](/content/gnews/25/README.md)
- ` 墨尔本雅典娜农场`
-
-### [有声|疫苗强制令下卡车司机流失引发供应链问题](/content/gnews/26/README.md)
- ` MOSREC`
-
-### [有声|央企离京潮加速，上海正在“东北化”](/content/gnews/27/README.md)
- ` MOSREC`
-
-### [有声|日本加快推进辉瑞的药品供应](/content/gnews/28/README.md)
- ` MOSREC`
-
-### [蓬培奥要迁址冬奥 美奥委会主席让调查彭帅事件](/content/gnews/29/README.md)
- ` HimalayaRussia`
-
-### [独家:中共国监管部门的下一个打击对象-互联网证券商](/content/gnews/30/README.md)
+### [文贵先生直播精要2021/12/17](/content/gnews/14/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|美参议院通过国防授权法应对中共威胁](/content/gnews/31/README.md)
- ` MOSREC`
+### [美联邦上诉法院裁决拜登的疫苗强制令有效](/content/gnews/15/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [隐宫习近平曾强戴绿帽，跪哭求痴判妻归](/content/gnews/32/README.md)
- ` YALUN 亚伦`
+### [港府催票失效 港人投票意欲减](/content/gnews/16/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [12/17/2021 文贵直播：习近平决心走北朝鲜之路来统治中国](/content/gnews/33/README.md)
- ` 秘密翻译组-北美组`
+### [高官借口岸选民 暗讽本地港人冷淡](/content/gnews/17/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共政权对美国进行超限战的演化](/content/gnews/34/README.md)
+### [IBM和三星联合宣布“突破性”半导体，能耗降低85%](/content/gnews/18/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2021年12月17日郭文贵先生直播全文字版](/content/gnews/35/README.md)
- ` 温哥华扬帆农场七哥直播全文听写组`
-
-### [中共嫖娼就是哲学概念 超越人类](/content/gnews/36/README.md)
+### [中共铁拳搅混香港教育 百年名校财赤](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
+
+### [换汤不换药 香港延长居屋禁售期](/content/gnews/20/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [12/18/2021 文贵盖特：整个中南部地区已经下令停发工资、养老金](/content/gnews/21/README.md)
+ ` 秘密翻译组-北美组`
+
+### [从中共国的财政数据看GDP造假](/content/gnews/22/README.md)
+ ` 澳喜农场`
+
+### [从毛阿敏老公解直锟心梗猝死，探知中共新一轮土改、肃反运动](/content/gnews/23/README.md)
+ ` YALUN 亚伦`
+
+### [12/18/2021 文贵盖特：大家要小心奥米炕，传播快、并发症多，备好伊维菌素和青蒿素](/content/gnews/24/README.md)
+ ` 秘密翻译组-北美组`
+
+### [严重饥荒：阿富汗的人道主义危机正在恶化](/content/gnews/25/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [反对强制疫苗政策，墨尔本民众坚持不懈抗议集会](/content/gnews/26/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [有声|疫苗强制令下卡车司机流失引发供应链问题](/content/gnews/27/README.md)
+ ` MOSREC`
+
+### [有声|央企离京潮加速，上海正在“东北化”](/content/gnews/28/README.md)
+ ` MOSREC`
+
+### [有声|日本加快推进辉瑞的药品供应](/content/gnews/29/README.md)
+ ` MOSREC`
+
+### [蓬培奥要迁址冬奥 美奥委会主席让调查彭帅事件](/content/gnews/30/README.md)
+ ` HimalayaRussia`
+
+### [独家:中共国监管部门的下一个打击对象-互联网证券商](/content/gnews/31/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [有声|美参议院通过国防授权法应对中共威胁](/content/gnews/32/README.md)
+ ` MOSREC`
+
+### [隐宫习近平曾强戴绿帽，跪哭求痴判妻归](/content/gnews/33/README.md)
+ ` YALUN 亚伦`
+
+### [12/17/2021 文贵直播：习近平决心走北朝鲜之路来统治中国](/content/gnews/34/README.md)
+ ` 秘密翻译组-北美组`
+
+### [中共政权对美国进行超限战的演化](/content/gnews/35/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [2021年12月17日郭文贵先生直播全文字版](/content/gnews/36/README.md)
+ ` 温哥华扬帆农场七哥直播全文听写组`
 
 ### [标普全球调降恒大至“选择性违约”](/content/gnews/37/README.md)
  ` GTV新闻访谈`
