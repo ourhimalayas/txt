@@ -2,26 +2,30 @@
 ---
 
 
-## COVID-19：市长本人被隔离，蒙特利尔市长瓦莱丽·普兰特普兰特（Valérie Plante）进入隔离状态
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1769548/)
+## 特鲁多国际机场，从下周二起乘飞机出行旅客都必须出示 COVID 测试阴性结果
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1769610/)
 
 编译：16626
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片17874-edited.png)图片来源：MAXIME DELAND/AGENCE QMI
-蒙特利尔日报2021 年 12 月 18 日（AGENCE QMI, 2021 年 12 月 17 日星期五 20:51）发表文章报道蒙特利尔市长瓦莱丽·普兰特 (Valérie Plante) 于周五晚间宣布，她在早上接受了 COVID-19 检测后，将被实施预防性隔离。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片13485-edited.png)图片来源：蒙特利尔日报2021年12月18日 TVA 新闻
+蒙特利尔日报2021 年 12 月 18 日（TVA新闻，2021 年 12 月 18 日星期六下午 2:56）发表文章报道尽管联邦政府已要求加拿大人在接下来的几周内不要出国旅行，但仍有一些人决定乘飞机出行。该篇题为《一些旅客不顾建议决意乘飞机出行》的报道编译如下：
 
-该篇题为《COVID-19：瓦莱丽·普兰特（Valérie Plante）进入隔离状态》的报道编译如下：
+周六早上，皮埃尔·埃利奥特·特鲁多国际机场（Pierre Elliott Trudeau International Airport）看起来处于疫情大流行前夕状态，数百名旅客在等待他们的航班。
 
-**蒙特利尔市长瓦莱丽·普兰特 (Valérie Plante) 于周五晚间宣布，她在早上接受了 COVID-19 检测后，将被实施预防性隔离。**
+旅行目的地的太阳太好了，在场的旅客表示。
 
-她在推特上写道：“在我的随行人员感染了 COVID 之后，我今天早上去接受了测试，但我仍然处于预防性隔离状态中。”
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片167657.png)
-在我的随行人员发生 Covid 病例后，我今天早上去接受了测试，但我仍处于预防性隔离状态中。像成千上万的其他市政府工作人员一样，我继续远程为我们的市民服务！- 瓦莱丽·普兰特 (@Val\_Plante) 2021 年 12 月 18 日
+TVA新闻团队采访的人承认，这通常是计划了数周的旅行，他们打算遵守卫生措施。
 
-她补充说，她将“像成千上万的其他市政府工作人员一样”继续为市民提供远程服务。
+其他人则辩称，他们“不害怕大流行和病例的增加”。
+
+但是，旅客在返回时必须耐心等待入境检查和隔离，因为这个等待时间可能会更长。
+
+从下周二起，所有旅客都必须出示 COVID 测试的阴性结果。
+
+联邦政府还警告加拿大人，他们国外度假回来后现行生效的疫苗规定可能随时会改变。
 
 **文章编译人提醒读者，病毒仍在传播，疫情正在爆发，大家必须格外小心。**
 
-参考资料：AGENCE QMI，Vendredi, 17 décembre 2021 20:51， [Journal De Montreal] [https://www.journaldemontreal.com/2021/12/17/covid-19-valerie-plante-se-place-en-isolement](https://www.journaldemontreal.com/2021/12/17/covid-19-valerie-plante-se-place-en-isolement)
+参考资料：TVA NOUVELLES，Samedi, 18 décembre 2021 14:56， [Journal De Montreal] [https://www.journaldemontreal.com/2021/12/18/plusieurs-voyageurs-decident-de-partir-malgre-les-recommandations-1](https://www.journaldemontreal.com/2021/12/18/plusieurs-voyageurs-decident-de-partir-malgre-les-recommandations-1)
 
 编辑/发布：LILY
 

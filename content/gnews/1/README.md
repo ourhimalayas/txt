@@ -2,35 +2,37 @@
 ---
 
 
-## 特鲁多国际机场，从下周二起乘飞机出行旅客都必须出示 COVID 测试阴性结果
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1769610/)
+## 比赛仅 19 分钟，那不勒斯中场齐林斯基因呼吸困难而离场
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1769628/)
 
-编译：16626
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片13485-edited.png)图片来源：蒙特利尔日报2021年12月18日 TVA 新闻
-蒙特利尔日报2021 年 12 月 18 日（TVA新闻，2021 年 12 月 18 日星期六下午 2:56）发表文章报道尽管联邦政府已要求加拿大人在接下来的几周内不要出国旅行，但仍有一些人决定乘飞机出行。该篇题为《一些旅客不顾建议决意乘飞机出行》的报道编译如下：
+【**简评：】最近，我们注意到，来自世界各地的年轻、健康的运动员突然开始患有心脏病、呼吸困难、神经系统疾病以及其他严重的慢性疾病。一些运动员倒在赛场上，再也醒不过来。一个月前，巴塞罗纳前锋，顶级球星阿奎罗因突然呼吸困难，而被送院确诊患有心脏损伤，本周三，阿奎罗将宣布退役！阿奎罗活了下来，但是大量运动员倒下导致住院和早逝。 《柏林报》最近发表了一份报告，试图解释为什么“最近出现了大量的职业和业余足球运动员在赛场昏倒”。文章列举了近期大量足球运动员在场上出现心脏问题或昏倒，甚至导致死亡的案例。即便如此，媒体仍然不允许质疑疫苗的声音存在，在Sheffield United 23日客场对战雷丁队比赛中，苏格兰国脚John Fleck突然倒地不起，前英超球员直播就此事质疑疫苗却惨遭断播…疫苗暴政必须停止，推动疫苗的幕后黑势力必须搞清楚，否则无论普通老百姓，还是国际巨星，全人类都将面临空前浩劫。**
 
-周六早上，皮埃尔·埃利奥特·特鲁多国际机场（Pierre Elliott Trudeau International Airport）看起来处于疫情大流行前夕状态，数百名旅客在等待他们的航班。
+•** 据《太阳报》记者Jack Figg，2021年12月13日报道：**
+周日，意甲联赛，那不勒斯对阵恩波利，开场仅19分钟，那不勒斯中场球员，彼得·齐林斯基（Piotr Zielinski）便因呼吸困难而离场。
+这位波兰国脚走到边线，对跑向他的医务人员指了指自己的脖子和胸部，表示自己呼吸困难。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/a7cfh-gc2b2.jpg)**那不勒斯球星齐林斯基在呼吸困难后被迫离开球场。图片来源：Getty**
+**齐林斯基 穿上外套并被带到更衣室，因西涅替补登场。**
 
-旅行目的地的太阳太好了，在场的旅客表示。
+那不勒斯随后发表的一份声明证实，齐林斯基比赛中呼吸困难，但随后的核酸检测结果呈COVID-19阴性。
 
-TVA新闻团队采访的人承认，这通常是计划了数周的旅行，他们打算遵守卫生措施。
+那不勒斯说:“齐林斯基因呼吸困难而离开。他的检查结果是阴性的”。
 
-其他人则辩称，他们“不害怕大流行和病例的增加”。
+由于帕特里克·库特罗内 (Patrick Cutrone) 的进球，客场球队恩波利 (Empoli) 以 1-0 的比分赢得了本场比赛。
 
-但是，旅客在返回时必须耐心等待入境检查和隔离，因为这个等待时间可能会更长。
+那不勒斯现在在三场比赛中没有获胜，他们在积分榜上排名第四。
 
-从下周二起，所有旅客都必须出示 COVID 测试的阴性结果。
+**原文连接**[: https://www.thesun.co.uk/sport/football/17019857/napoli-piotr-zielinski-empoli-breathe](https://www.thesun.co.uk/sport/football/17019857/napoli-piotr-zielinski-empoli-breathe)
 
-联邦政府还警告加拿大人，他们国外度假回来后现行生效的疫苗规定可能随时会改变。
+翻译：洛杉矶盘古农场 –河马甩尾(Yi)巴
+校对：洛杉矶盘古农场 –Mike Li
+评论：洛杉矶盘古农场 – 河马甩尾(Yi)巴
+编辑：洛杉矶盘古农场 – Rosa
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-**文章编译人提醒读者，病毒仍在传播，疫情正在爆发，大家必须格外小心。**
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-参考资料：TVA NOUVELLES，Samedi, 18 décembre 2021 14:56， [Journal De Montreal] [https://www.journaldemontreal.com/2021/12/18/plusieurs-voyageurs-decident-de-partir-malgre-les-recommandations-1](https://www.journaldemontreal.com/2021/12/18/plusieurs-voyageurs-decident-de-partir-malgre-les-recommandations-1)
-
-编辑/发布：LILY
-
-20211218
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

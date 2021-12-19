@@ -2,41 +2,42 @@
 ---
 
 
-## 美联邦上诉法院裁决拜登的疫苗强制令有效
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1769484/)
+## 超级台风肆虐菲律宾，造成重大破坏
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1769589/)
 
-作者：东京樱花团丨捆绑CCP一千年
-![](https://assets.gnews.org/wp-content/uploads/2021/12/pasted-image-0-5.png)[*图片来源*](https://static01.nyt.com/images/2021/12/16/multimedia/16virus-briefing-cdc-jandj/16virus-briefing-cdc-jandj-superJumbo.jpg?quality=75&amp;auto=webp)
-**联邦法院恢复拜登疫苗强制令，并解释理由是，没有科学证据表明疫苗的副作用，停止疫苗强制令不具有足够理由。但目前尚不清楚裁决是否会再次受到更多州法官们的质疑。这的确是很遗憾，共产党很清楚西方人不会拒绝疫苗。很不幸，我们不能唤醒美国和世界，最后是老百姓的怒号和生命的代价来唤醒并摧毁疫苗暴政。**
+**【雅典娜快讯】，紧贴时代脉搏**
 
-据美国[国会山消息](https://thehill.com/regulation/court-battles/586397-federal-appeals-court-reinstates-bidens-vaccine-mandate?rnd=1639790894)称，美国当地时间17日下午周五，联邦上诉法院裁决表示“恢复拜登的疫苗授权”法。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-975.png)图片来源：CNN
 
-这一裁定意味着美国反疫苗运动的重大挫败，但相信随着疫苗死亡率的不断刷新，政府在人民血泪的怒吼中一定会低下他独裁者的头颅，相信全球反“疫苗暴政”运动最终会促成全球灭共的最后胜利。
+**编译：文泓**
 
-- ***延展阅读：***[***美国上诉法院恢复拜登政府对私营企业颁布的疫苗强制令***](http://www.chinanews.com.cn/gj/2021/12-18/9632872.shtml)
+12月18日，据RT新闻报道，台风“Rai”横扫菲律宾，造成30多万人流离失所，至少31人死亡。它是该群岛今年第15个和最强的大风暴。
 
+这场热带风暴在国际上被命名为“Rai”，在当地被命名为“Odette”，本周它聚集在菲律宾上空，比通常在7月至10月间形成的大多数台风要晚。在星期四台风迅速加强，并被列为超级台风，并达到了最高级别的5级风暴。
 
-- ***延展阅读：***[***Omicron可能会在美国带来迄今为止最严重的中共病毒激增——而且速度很快***](https://www.wypr.org/2021-12-17/omicron-could-bring-the-worst-surge-of-covid-yet-in-the-u-s-and-fast)
+在受灾最严重的地区，“怪物风暴”造成了“彻底破坏”，记者大卫·桑托斯也在社交媒体上分享了灾后的图片。
 
+视频显示，当风速达到195公里/小时（121英里/小时），它撕掉了屋顶，连根拔起了树木，在台风横扫路径上造成了广泛的破坏，暴雨使房屋和大片稻田被淹没。
 
-该消息称，联邦法院解释驳回的理由是，“考虑到它所依赖的大量证据，包括许多同行评审的科学研究，对机构的决定进行二次猜测是不合适的。事实上，OSHA 不需要证明科学的确定性。”法院的意思表明，没有科学证据表明疫苗的副作用，停止疫苗强制令不具有足够理由。这好比人们对中共病毒提出质疑时，所谓科学家们就搬出同行评议的权威性科学论文来驳斥人们对邪恶力量的怀疑。但就是有人故意审查屏蔽质疑——科学论文造假现象早已在大流行爆发伊始就已开始。
+菲律宾的灾害机构星期六说，至少有31人死亡。据报道，大多数死亡者是由于树木倒下或溺水而死。官员们说，这些死亡人数是初步的，可能会上升，因为各省的更多信息还没有上报。
 
-显然，联邦法院驳回疫苗强制令就是一次彻底的无视生命的判决。法官认为，“职业安全与健康管理局已经证明中共病毒（Covid-19）对工作场所的工人构成普遍危险，尤其是未接种疫苗的工人。” 法院在其裁决中仍然强调疫苗有效，这好比法院对杀人案判决中认为杀人者不是问题核心，反而宣称呼吁对枪支的管控是解决问题之道。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-969.png)
-在该消息发布之际，人们越来越担心圣诞节假期期间，美国Omicron变异毒株病例激增。然而，科学家和公共卫生专家仍在努力弄清楚Omicron感染的症状是否比以前的毒株更严重， 但这会不会成为促使法官恢复拜登疫苗强制令的催化剂呢?——威胁法官，继续强推共产主义毒疫苗。[**阅读更多**](https://www.nytimes.com/live/2021/12/16/world/covid-omicron-vaccines#amid-worries-about-omicron-virus-cases-are-jumping-across-the-united-states)
+台风肆虐了这个岛国的南部和中部地区，也袭击了包括锡亚高和宿务在内的热门旅游目的地。30多万人逃离了他们的家园和海滨度假胜地。数十个航班被取消，导致约4000人滞留。
 
-- ***延展阅读：***[***Omicron蔓延浪潮可能使美国的中共病毒病例激增***](https://www.reuters.com/world/us/tidal-wave-omicron-could-put-us-covid-19-surge-into-overdrive-2021-12-17/)
+迪纳加群岛的一名当地官员说，“一切都被摧毁了”，包括疏散中心，当地居民无处寻求庇护。总统杜特尔特宣布，他将在周六访问受灾最严重的地区，他说他不太担心建筑物结构的损坏，但“担心可能有很多人死亡”。
 
+气象预报员说，在星期六离开菲律宾后，台风“Rai”将在南中国海上空出现，并向越南进发。
 
-此前人们信心满满地期盼由德克萨斯州、路易斯安那州、密西西比州、犹他州和南卡罗来纳州提出反疫苗强制令的法律挑战后，美国第五巡回上诉法院暂停了联邦授权。目前尚不清楚法院周五的裁决是否会再次受到更多州法官和上述法官们的质疑。
+新闻链接：[WATCH: ‘Utter destruction’ as super typhoon ravages Philippines — RT World News](https://www.rt.com/news/543590-philippines-typhoon-devastation-video/)
 
-这的确是很遗憾，正如新中国联邦郭文贵先生所言（[2:57.26时段](https://gettr.com/post/pjqagc144c)），“共产党掌握西方人的思维逻辑规律，他很清楚西方人不会拒绝疫苗的。这就是共产党邪恶的地方之一。但疫苗死亡现象有几个周期，三年到五年内，大灾难会发生。所以我重申，我不是反疫苗，我是反未经验证的假疫苗。很不幸，不是我们能唤醒，最后是老百姓的怒号和生命的代价。”
+*发布：盘古相聚*
 
-2021年12月18日
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-*校对：东京樱花团 / 東洋武士
-发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
