@@ -2,17 +2,10 @@
 ---
 
 
-## 【文贵先生大直播PPT】疫苗大灾难
-` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1772003/)
+## 中共的地产与经济灾难，是对全世界的一场合法洗劫
+` MG 澳喜农场多语组` [轉載自GNews](https://gnews.org/zh-hans/1772087/)
 
-撰稿：火来（香草山）MyWay （扬帆）莲心不染（扬帆）文恩（香草山）
-美工：青山
-
-【2021年12月19日文贵先生大直播PPT：疫苗大灾难】
-![](https://assets.gnews.org/wp-content/uploads/2021/12/31-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/32-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/33-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/34-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/35-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/36-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/37-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/37-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/38-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/39-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/40.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/41-8.jpg)
-* * *
-
-发稿：云起时
+郭先生：中共国房地产和金融的崩盘，将会给社会将带来绝对性的摧毁效应，会给世界带来想象不到的金融灾难，金融领域所有不可查的隐蔽数据，对西方是致命的打击。美国和西方的一些利益集团冒险把大量的钱投到中共国，因为西方投到中共的钱，绝大多数都是违法进去的，共产党的傲慢源自于它抓住了西方国家一些人的把柄。这样会开启西方世界集体灭共的浪潮。
 
  
 

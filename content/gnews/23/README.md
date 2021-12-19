@@ -2,63 +2,170 @@
 ---
 
 
-## 彭帅事件绝对是习近平政治生涯的滑铁卢
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1771646/)
+## 习家人掌握一切权力
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1771743/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/3242.png)
-[https://gtv.org/video/id=61bde517a68b4f4b28e9f3f0](https://gtv.org/video/id=61bde517a68b4f4b28e9f3f0)
+[https://gtv.org/video/id=61bde5c7a68b4f4b28e9f432](https://gtv.org/video/id=61bde5c7a68b4f4b28e9f432)
 
-**郭文贵
-Miles Guo**
+习近平, 彭丽媛的衣服
+Las ropas de Xi Jinping y Peng Liyuan
 
-你知道彭帅这个事儿对他的影响，习下决心要干掉张高丽
-You know the impact of Peng Shuai incident that Xi is determined to get rid of Zhang Gaoli
+买什么料子, 穿什么牌, 带什么包, 用什么手机
+Qué tipo de tela comprar, qué marca, cartera o teléfono utilizan
 
-说一半的功劳是张高丽的彭帅搞出来的，这叫天意呀
-It is said that half of the credit is Zhang Gaoli’s Peng Shua, this is God’s will
+照相, 出行
+Las fotos que se toma y las salidas de paseo
 
-彭帅这件事情是个锦上添花，老天送我们的礼啊，彭帅呀
-Peng Shuai incident is an icing on the cake, Peng Shuai is God’s gift to us
+100%听她女儿的
+Esto 100% escucha de su hija
 
-我们未来得给彭帅点喜币，你知道吗？
-We have to give Peng Shuai some Hcoins in the future, you know?
+军队用谁, 不用谁
+A quién van a utilizar del ejército y a quien no
 
-她加速了共产党冬奥会的灭亡，然后弄点儿躺平币
-She accelerated the demise of the Communist Party’s Winter Olympics game, and then made some lay-flat-coin for her
+几乎是它弟弟远平说了算
+Casi todo lo decide su hermano Yuanping
 
-咱们也可以专门给彭帅搞一个币，叫做什么，天空无限大，是吧
-We can also make a coin specifically for Peng Shuai, what is it called, the sky is infinite, right?
+我再说一遍
+Repito de nuevo
 
-然后地球一粒沙的，上面带上这个图腾的彭帅币
-Then the earth is a grain of sand with the totem Peng Shuai coin on it
+只有七哥2012年说过
+Sólo lo que yo dije en el 2012
 
-这实在太有意义了，你们没有意识到这件事情对他们的羞辱
-This is so meaningful, you didn’t realize the humiliation of this incident to CCP
+中国没有常委会了
+Ya no hay Comité Permanente en China
 
-很多人说这是真正的习近平的滑铁卢的开始
-Many people say that this is the beginning of the real Xi Jinping’s Waterloo
+常委会就成了跟班的了
+El Comité Permanente se convierte en asistente seguidor
 
-这个滑铁卢又搞了俄罗斯这样，这对他来讲这真的是多米诺骨牌开始了
-and Russia is like another Waterloo, this is really the start of dominoes for him
+只有国家安全委员会
+Sólo el Consejo de Seguridad Nacional
 
-谢谢
-thank you
+然后成立各个组
+Luego establecen cada grupo
+
+各个组就架空了, 所有中国的政府职能机构
+Cada grupo está vacío y todas las agencias gubernamentales chinas
+李克强完全是个托儿
+Li Keqiang es totalmente un niño de la guardería
+
+叫做一双新皮鞋, 下面沾了一个人家吐的那个
+Se llama un nuevo zapato de vestir, debajo está pegado algo que lo escupieron
+
+一个口香糖就叫李克强
+Un chicle que se llama Li Keqiang
+
+就是沾上了
+Y así se pegó
+
+我这也不适合给你拿下去
+No soy adecuado para quitarlo
+
+你就沾着吧
+Quédate pegado
+
+就踩了一个这个东西
+Y así tiene esta cosa pisada
+
+完全没有任何职能
+No tiene totalmente ninguna función
+
+国家安全委员会完全代表了(常委会)
+El Consejo de Seguridad Nacional representa absolutamente al (Comité Permanente)
+
+国安委有谁呀, 习远平
+¿Quiénes están en el Consejo de Seguridad Nacional? Xi Yuanping
+
+彭丽媛
+Peng Liyuan
+
+有彭办在里边
+Teniendo a Peng adentro
+
+他女儿直接领导着一切
+Su hija lidera todo directamente
+中办主任丁薛祥, 什么事都得(和她汇报)
+Ding Xuexiang, director de la Oficina Central, tiene que (informar todo a ella)
+
+他能天天问习近平吗
+¿Él puede preguntar todos los días a Xi Jinping?
+
+他只能问他女儿去
+Solamente puede preguntar a su hija
+
+中国在过去的这10年历史
+En los pasados 10 años de la historia de China
+
+记着今天爆料中说的话
+Recuerda las palabras que se dijo hoy en el Movimiento de Denunciantes
+
+就是李木子
+Es Li Muzi
+
+习远平
+Xi Yuanping
+
+彭丽媛再加上彭磊
+Peng Liyuan más Peng Lei
+
+然后再加上习桥桥
+Y se suma Xi Qiaoqiao
+
+然后再加上习安安
+Y Xi An’an
+
+几乎就是这一家11个人
+Casi es toda esta familia que son 11 personas
+
+对外的情报信息几乎上是靠
+Casi todas las informaciones externas dependen de
+
+安安的家人还有安安的孩子
+La familia y los hijos de An’an
+嫁给了英国人的像吴拉菲
+Se casó con un británico como Wu Lafei
+
+就叫拉菲, 叫吴拉菲
+así se llama, Wu Lafei
+
+完全是英国护照
+Es totalmente pasaporte británico
+
+这所有的包括在英国的老公
+Todo esto incluye al esposo que está en Reino Unido
+
+拉菲是安安的孙女
+Lafei es la nieta de An’an
+
+是安安的闺女的孩子
+Es la niña del hijo de An’an
+
+所以说这习家在海外的根本(就是这些人)
+Por eso la familia Xi en el exterior en sí (son estas personas)
+
+像杨洁篪这些人
+Esta gente como Yang Jiechi
+
+见他们那就狗一样
+Cuando ven a ellos lo ven como perros
+
+他认为这是主子
+Él piensa que este es el dueño
 
 * * *
 
-Date:12/16/2021
-原视频标题: 彭帅事件绝对是习近平政治生涯的滑铁卢
-The Peng Shuai incident is definitely the Waterloo of Xi Jinping’s political career
-原视频日期：2021/12/12
-原视频链接[**https://gettr.com/post/pjp42e188e**](https://gettr.com/post/pjp42e188e)
-任务编号：KC344（3242）
-视频时间段 : 0:00-1:02
-中听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – jambo
+日期：12/17/2021
+原视频标题：习家人掌握一切权力
+La familia Xi tiene todo el poder
+原视频日期：12/15/2021
+原视频网址： [**https://gettr.com/post/pjpr1vbefd**](https://gettr.com/post/pjpr1vbefd)
+任务编号：KC345(3239)
+视频时间段：0:00-02:11
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
 审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
+发布 ：洛杉矶盘古农场 – 恩典
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

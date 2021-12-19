@@ -2,32 +2,18 @@
 ---
 
 
-## 郭文贵先生最新歌曲Hcoin To the Moon创造了历史
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1771778/)
+## 【文贵先生大直播PPT】从地产持续暴雷破产 经济指标作假 企业家意外死亡看中共还能撑多久
+` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1771937/)
 
-12/19/2021 郭文贵先生的最新歌曲Hcoin To the Moon及其MV版视频上线iTunes的18日内，创造了历史。
+撰稿：Nine Lee （DC)
+文案指导：泰山（伊甸） 北评2025（英喜）
+美工：嘿虎 雷蒙 （雅典娜）
 
+【2021年12月19日文贵先生大直播PPT：从地产持续暴雷破产 经济指标作假 企业家意外死亡看中共还能撑多久】
+![](https://assets.gnews.org/wp-content/uploads/2021/12/21-10.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/22-11.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/23-8.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/24-8.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/25-7.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/26-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/27-4.jpg)
 * * *
 
-[【PDF 下载】1-18 Dec 2021 – Hcoin To The Moon by Miles Guo – iTunes&Billboard Charts Ranking Record](https://assets.gnews.org/wp-content/uploads/2021/12/1-18-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/1-18-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record.pdf)
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_5.jpg)
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_6.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_7.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_8.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_9.jpg)
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_10.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_11.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_12.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_13.jpg)
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_14.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_15.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_16.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_17.jpg)
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_18.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_19.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_20.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_21.jpg)
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_22.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_23.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_24.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_25.jpg)
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_26.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_27.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_28.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_29.jpg)
-[【PDF 下载】1-18 Dec 2021 – Hcoin To The Moon by Miles Guo – iTunes&Billboard Charts Ranking Record](https://assets.gnews.org/wp-content/uploads/2021/12/1-18-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/1-18-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record.pdf)
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+发稿：云起时
 
  
 
