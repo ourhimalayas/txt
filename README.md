@@ -15,116 +15,116 @@
 
 ---
 
-### [彼得·纳瓦罗是福奇最恐惧的噩梦](/content/gnews/1/README.md)
+### [家庭背景和成长经历是一条线的彭丽媛脑子越空白越疯狂](/content/gnews/1/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [秘翻在线：杰森·米勒将于本周日做客法国记者埃里克·莫里洛的节目](/content/gnews/2/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [港人不再治港，香港第七届立法会选举人气凋零，林郑月娥 李家超上街拉票](/content/gnews/3/README.md)
+ ` 首尔天池农场`
+
+### [靠借钱做生意什么都敢吃明天死了今天也得工作的中国人](/content/gnews/4/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [北京利用警察和安全培训渗透外国](/content/gnews/5/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [5种中国进口的食品千万别吃](/content/gnews/2/README.md)
+### [秘翻在线：张文宏说病毒或将结束于明年底，并积极推行疫苗第三针](/content/gnews/6/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [彼得·纳瓦罗是福奇最恐惧的噩梦](/content/gnews/7/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2021年12月18日郭先生盖特 — 视频盖特2「9分56秒」](/content/gnews/3/README.md)
+### [5种中国进口的食品千万别吃](/content/gnews/8/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [2021年12月18日郭先生盖特 — 视频盖特2「9分56秒」](/content/gnews/9/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [彭副主席正式走向前台，是否会步江副组长后尘？](/content/gnews/4/README.md)
+### [彭副主席正式走向前台，是否会步江副组长后尘？](/content/gnews/10/README.md)
  ` 波士顿五月花农场`
 
-### [德巨头遭施压 中共要求其切断与立陶宛的商业关系](/content/gnews/5/README.md)
+### [德巨头遭施压 中共要求其切断与立陶宛的商业关系](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2021年12月18日郭先生盖特 1— 视频盖特「1分46秒」](/content/gnews/6/README.md)
+### [2021年12月18日郭先生盖特 1— 视频盖特「1分46秒」](/content/gnews/12/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [【Michael.Tonny专栏】英国官方数据和报告证明 对公众宣称的疫苗接种数据造假（下）](/content/gnews/7/README.md)
+### [【Michael.Tonny专栏】英国官方数据和报告证明 对公众宣称的疫苗接种数据造假（下）](/content/gnews/13/README.md)
  ` 温哥华扬帆农场`
 
-### [荷兰首相：荷兰将从周日开始进入封锁状态](/content/gnews/8/README.md)
+### [荷兰首相：荷兰将从周日开始进入封锁状态](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [为打第三针 中共已近乎疯狂](/content/gnews/9/README.md)
+### [为打第三针 中共已近乎疯狂](/content/gnews/15/README.md)
  ` G-NEWS TAIWAN`
 
-### [欧洲多国因新变种病毒重启各项限制令](/content/gnews/10/README.md)
+### [欧洲多国因新变种病毒重启各项限制令](/content/gnews/16/README.md)
  ` 澳喜特战旅Gnews`
 
-### [Omicron变种病毒已在全球89个国家被发现](/content/gnews/11/README.md)
+### [Omicron变种病毒已在全球89个国家被发现](/content/gnews/17/README.md)
  ` 澳喜特战旅Gnews`
 
-### [7·24系列——“中植系”解直锟](/content/gnews/12/README.md)
+### [7·24系列——“中植系”解直锟](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【Michael.Tonny专栏】英国官方数据和报告证明 对公众宣称的疫苗接种数据造假（上）](/content/gnews/13/README.md)
+### [【Michael.Tonny专栏】英国官方数据和报告证明 对公众宣称的疫苗接种数据造假（上）](/content/gnews/19/README.md)
  ` 温哥华扬帆农场`
 
-### [共产党恐惧到用上了巫蛊之术](/content/gnews/14/README.md)
+### [共产党恐惧到用上了巫蛊之术](/content/gnews/20/README.md)
  ` 骄子`
 
-### [文·贵天成——文贵先生谈“沼泽地”（三）](/content/gnews/15/README.md)
- ` 墨尔本雅典娜农场`
-
-### [波音公司放弃了对美国雇员的疫苗强制接种令，加入了美国国铁和其他主要联邦承包商的行列](/content/gnews/16/README.md)
+### [波音公司放弃了对美国雇员的疫苗强制接种令，加入了美国国铁和其他主要联邦承包商的行列](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [解直锟突发心脏病身死，习近平打土豪大清洗正酣](/content/gnews/17/README.md)
- ` 墨尔本雅典娜农场`
-
-### [丧心病狂的CCP将人民生育权作为统治的工具](/content/gnews/18/README.md)
- ` 澳喜特战旅Gnews`
-
-### [文·贵天成——文贵先生谈“沼泽地”（二）](/content/gnews/19/README.md)
- ` 墨尔本雅典娜农场`
-
-### [从解植锟之死说“暴富草民死亡公式”](/content/gnews/20/README.md)
+### [从解植锟之死说“暴富草民死亡公式”](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【中日财经爆】因中共病毒的影响，丰田将减产至2.2万辆汽车](/content/gnews/21/README.md)
+### [【中日财经爆】因中共病毒的影响，丰田将减产至2.2万辆汽车](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国遣责中共开发人脑控制武器](/content/gnews/22/README.md)
+### [美国遣责中共开发人脑控制武器](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [法庭允许拜登的疫苗计划生效 遭强烈反对](/content/gnews/23/README.md)
+### [法庭允许拜登的疫苗计划生效 遭强烈反对](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [南非住院率在世界奥米克戎激增时反而下降](/content/gnews/24/README.md)
+### [南非住院率在世界奥米克戎激增时反而下降](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [内部文件显示亚马逊与中共大外宣之间的勾兑](/content/gnews/25/README.md)
+### [内部文件显示亚马逊与中共大外宣之间的勾兑](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [奥密克戎横扫欧洲，丹麦接种率第一却成重灾区](/content/gnews/26/README.md)
+### [奥密克戎横扫欧洲，丹麦接种率第一却成重灾区](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [新变种病毒对特定人群更加致命](/content/gnews/27/README.md)
+### [新变种病毒对特定人群更加致命](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [蔡英文：公投结果表台湾人民积拥抱国际社会的民意](/content/gnews/28/README.md)
+### [蔡英文：公投结果表台湾人民积拥抱国际社会的民意](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [台湾公投案民进党大获全胜 蔡英文总统发表公开谈话](/content/gnews/29/README.md)
+### [台湾公投案民进党大获全胜 蔡英文总统发表公开谈话](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [瑞典开始将中共病毒护照微芯片植入人体内](/content/gnews/30/README.md)
+### [瑞典开始将中共病毒护照微芯片植入人体内](/content/gnews/32/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [日本外交大臣林芳正表示：抵制北京冬奥会包括人权在内，我们将做出决定](/content/gnews/31/README.md)
+### [日本外交大臣林芳正表示：抵制北京冬奥会包括人权在内，我们将做出决定](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [台湾就美国猪肉进口进行公投，彰显民主](/content/gnews/32/README.md)
+### [台湾就美国猪肉进口进行公投，彰显民主](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [COVID-19 最新情报｜日本考虑公费负担新冠口服药 郭文贵曾爆新药副作用极强](/content/gnews/33/README.md)
+### [COVID-19 最新情报｜日本考虑公费负担新冠口服药 郭文贵曾爆新药副作用极强](/content/gnews/35/README.md)
  ` 關注組`
 
-### [国务卿东南亚行程两名空军机组人员感染中共病毒](/content/gnews/34/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [有声|郭先生解析中共年前抢夺盘古和裕达的原因](/content/gnews/35/README.md)
+### [有声|郭先生解析中共年前抢夺盘古和裕达的原因](/content/gnews/36/README.md)
  ` MOSREC`
 
-### [有声|港共政府清算《苹果日报》发行公司](/content/gnews/36/README.md)
+### [有声|港共政府清算《苹果日报》发行公司](/content/gnews/37/README.md)
  ` MOSREC`
-
-### [每日快报：亚马逊与中国宣传部门合作赢得北京的青睐](/content/gnews/37/README.md)
- ` 喜马拉雅-华盛顿DC农场`
 
 ### [波音公司暂停对美国员工强制接种疫苗](/content/gnews/38/README.md)
  ` 喜马拉雅农场新西兰站`

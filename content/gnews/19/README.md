@@ -2,52 +2,62 @@
 ---
 
 
-## 文·贵天成——文贵先生谈“沼泽地”（二）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1770863/)
+## 【Michael.Tonny专栏】英国官方数据和报告证明 对公众宣称的疫苗接种数据造假（上）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1770915/)
 
-整理：BENJ1
-编辑：Mttfly
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-229.png)图片来源：雅典娜设计组（姐夫说说）
-**郭文贵先生2020年12月6日直播**
+作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
-灭共这场战争已经到了最后的关键时刻，从灭共的角度讲，说实在话，昨天我给朱利安尼先生他们说，得到这个消息以后我说，这会加速美国灭共。大家没有注意到，佛州的议长开着开着会染上病毒了，川普总统的竞选经理在Arizona讲着讲着话，一下来染上病毒了，你们都不知道而已。大家你们发现了吗，所有的帮助川普总统打官司的，包括Sidney·Powell，包括Lin·Wood，包括我们空军将领尼古(音)将军。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-当战友们知道名字的时候，都是现在班农的War Room出来，然后杀出去，都是起始于战斗室，然后帮助川普总统杀向沼泽地。哪个不是?个个都是，朱利安尼也是。
+法国总统Emmanuel Macron曾经在宣布疫苗护照政策一周后，法国创纪录的370万人预约注射中共病毒疫苗。现在，英国政客和媒体正在利用谎言让拒绝注射中共病毒疫苗的人觉得他们是少数人的一部分，达到恐吓民众接种毒疫苗的目的，在英格兰实施“B计划”。
 
-**郭文贵先生2020年12月8日直播**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-1639128383-4203-1639128388_r_680x408.jpg)
 
-美国有坏人，可是美国这个国家机器他还是正常的，你这个美国他还是有法律。美国他这个国家是个最明智的民族，即使在这种情况下没有那些因为愤怒、说话过分，还在按照法律、按照程序，大家还都冷静，这就是一个文明的国家，他是一个比较明智、比较冷静、非常遵守规则的，你不能被那几个人所影响。这样的国家是可以信赖的，有所谓的深层政府，深层政府还有什么沼泽地，还是影子政府，那都是见不得人的，真正的光明正大还是美国的合法政府，还是绝大多数美国人民，还是好人。
+为了恐吓民众接种毒疫苗，英国首相Boris Johnson早在今年9月14日就宣布了应对COVID-19（中共病毒）的英格兰秋季和冬季A计划（autumn and winter plan A）。英国政府首席科学顾问帕特里克·瓦兰斯爵士 (Sir Patrick Vallance) 表示，现在有大约500万人有资格接种疫苗但没有接种疫苗，如果以目前的限制水平进入冬季，病例就会“爆炸”。Boris Johnson会根据风险、疾病状况以及医院压力等因素，将英国的疫苗政策推向强制性疫苗护照（mandatory vaccine passports）的B计划（Plan B）。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Chris-Whitty.jpg)
+在12月8 日举行的全国Covid-19简报会（national Covid-19 briefing）上，英国首相Boris Johnson宣布将从12月15日（星期三）起在英格兰实施“B计划”，将对未接种疫苗的人实施更严格的规定，引入疫苗护照（Vaccine Passports）。
 
-**郭文贵先生2020年12月10日直播**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Boris-Johnson.png)
 
-华盛顿的权力和美国的权力，和法律的制定，都是以这为本，包括货币。翟东升竟然说美国有人想把美元放掉这个货币权，作为世界上的通用货币，把这法定权给放弃，无知到了极点，你但凡和美国有过交道的，你有几样事情没发生你根本不了解美国。你没有与这个真正的所谓的美国的deep state这样的人有同样的财富，有同样的经历，以及一个基本一样的信仰，和一样的生活方式，和一样的身体，你绝对不可能走进所谓的沼泽地，美国的沼泽地绝对不在华盛顿，沼泽地的人是绝对不上班。这翟东升都是胡扯八蛋的简直是，在美国呆了几天，打着共产党的所谓的国家安全委员会、战略协会的密干的身份，得到大使馆的背书，见几个美国二流三流的三脚猫，你连沼泽地在哪都不知道，就忽悠了。还谈美国货币呢，你去想想兄弟姐妹们，美国人就两样东西是硬实力，他没了他就完蛋了。第一就是货币美元，第二就是它的航母舰队，国防力量。
+英国《每日邮报》（Daily Mail）撰稿人Andrew Neil甚至在12月10日发表的文章《[It’s time to punish Britain’s five million vaccine refuseniks: They put us all at risk of more restrictions, says ANDREW NEIL. So why shouldn’t we curb some of their freedoms?](https://www.dailymail.co.uk/debate/article-10294225/Its-time-punish-Britains-five-million-vaccine-refuseniks-says-ANDREW-NEIL.html)》中说“仍有500万英国成年人，由于恐惧（fear）、无知（ignorance）、不负责任（irresponsibility）或愚蠢（stupidity）而拒绝注射疫苗，他们这样做不仅危及他们自己，也危及我们其他人的健康；如果他们感染了新冠病毒，他们将对NHS(National Health Service)施加最大压力，导致我们其他患有严重非新冠病毒（CCP病毒）疾病的人无法接受我们有权的治疗。我们都在为这些拒绝疫苗的硬核（hard core）付出沉重的代价”。
 
-**郭文贵2020年12月11日直播**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/ANDREW-NEIL-FOR-THE-DAILY-MAIL.jpg)
 
-翟东升这号的，没道德底线的，满嘴爱国爱党的，这是一个是聪明的爱国者和流氓爱国者的区别，翟东升和王全书还有岳文海这样的。翟东升这个人，这回他惹闹了，惹大了。他整了不少钱，这小子。这么年轻弄了亿把万的很多钱了，弄好几套房子，听说不少女朋友。这高院闹心呐，还没消息。那么我想说说他所理解的拜登，他所理解的美国，战友们很多人认为这小子讲的不错。
+事实上，这是政客和媒体用一个谎言掩盖另一个谎言！英国政客和媒体一直宣称的500万人没有打疫苗，本身就是一个谎言。
 
-我告诉你他说实话，但是他说的是无知的实话。我昨天晚上我给大家简单的说一下，在美国真正的沼泽地。美国有沼泽地呀，在哪你们知道吗?一两万年前的沼泽地在哪你们知道吗?在佛罗里达，有一个鳄鱼滩，里边到处是鳄鱼，最稀有的鳄鱼特别是绿纹鳄那最多。据查那沼泽地几万年了，比人类还早。那鳄鱼都是稀有的鳄鱼，你可以看到那里头的鳄鱼，你绝对不知道沼泽地是谁弄的，你根本不知道谁造了沼泽地。谁造的沼泽地呀，哪国总统，那时候还没有人类呢。沼泽地到现在完好无损在那，而且有很多人们无法想象的痕迹，你们去看看去，在佛罗里达你们查一查，就在城市边儿。
+英国政客和媒体从9月14日到现在，都向民众传达英格兰有500万人，由于恐惧、无知、不负责任或愚蠢而拒绝注射疫苗。
 
-你可以看到鳄鱼，你绝对不知道是谁是如何真有这个沼泽地，鳄鱼怎么来到这的。人类所谓研究自然科学，研究到这也没研究明白。在美国这个国家所有的问题，真正的权力，你要看一个。犹太国的犹太人，爱尔兰的爱尔兰人和非洲裔的非洲人，然后是西班牙裔和墨西哥裔的西语人，咱们亚洲人华人，轮不着你。你就不在这个比例范围内，真的没人理你，没人在乎。别说沼泽地了，连基本的族群都轮不着你，别看你一两千万。
+[THE EXPOSE](https://dailyexpose.uk/)12月17日发表的文章《[UK Government report admits there are 23.5 Million people in England who have NOT had a single dose of a Covid-19 Vaccine](https://dailyexpose.uk/2021/12/17/23-million-not-vaccinated-in-england/)》采用英国政府官方数据和报告证明，英国政客和媒体一直对实际接种疫苗的人数造假。
 
-这些人背后，它形成了几个大的板块。第一国防板块，国防板块是以什么族裔为主的，大家去查查。金融板块，大家知道是犹太裔是吧。CIA情报，包括DOJ情报这些、FBI什么口最多，大家去查查，绝对不全是犹太裔，也不是爱尔兰裔，你去查查。国会这是另外一个国家的权力，过去二十年三十年，你千万记住，基本上美国所有这些部门，基本是在不运行状态。那你反过来说，好莱坞是谁的，犹太裔控制的，硅谷谁控制的，犹太裔，工作者印度人亚裔中国人。
+根据英國國家統計局（Office for National Statistics）公布的数据，英格兰共有5598万人（2018年）。
 
-然后占美国GDP的50%，文化产业，你以为都是犹太人吗?真的不都是。我可以告诉大家，你可以查出这些公司谁管的，谁控股的，真正的背后的老板一个你都查不着。那些人是沼泽地里的，他是沼泽地里的鳄鱼，你能看见的，偶尔你能看得见，偶尔你看不见。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/England-Population.png)
 
-但是真正的沼泽地绝对你是看不见的，所以翟东升说所谓的四九五圈儿、华盛顿的国防部、司法部、FBI、国土资源部，这些事官们，绝对完全是胡扯八道的。沼泽地里的权力是你看不见的，沼泽地里边最后的决策权是绝对你找不着的，这就是美国。这些人为啥说反川普呢，他讲的那个道理啊，什么软性违约呀，什么华尔街说了不算啦，川普总统。大家不要忘了，川普总统没当上总统以前没有任何银行和他打交道，只有德意志银行，鲜有吧。很多俱乐部是不让他进的，所以他自己搞了个马哈拉哥俱乐部。
+根据今年7月2日[Statista](https://www.statista.com/statistics/281208/population-of-the-england-by-age-group/)公布的2020年英格兰人口年龄分布数据，2020年，英格兰约323.9万人年龄在4岁及以下，另有353.9万人年龄在5至9岁之间。10-14岁之间为343.6万人，可推算出10-11岁大约为343.6÷5×2=137.4万人。
 
-**往期回顾：**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Population-of-England-in-2020-by-age-group.png)
 
-[文·贵天成——文贵先生谈“沼泽地”（一）](https://gnews.org/zh-hans/1770357/)
+英国要求12岁及以上的人打毒疫苗，则12岁以下不需要打疫苗的为323.9+353.9+137.4=815.2万人；应接种人群总数为5598-323.9-353.9-137.4=4782.8万人。
 
-发布：去中心化Math
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[接下篇：【Michael.Tonny专栏】英国官方数据和报告证明 对公众宣称的疫苗接种数据造假（下）](https://gnews.org/zh-hans/1770981/)
+
+参考数据：
+
+[COVID-19 vaccine surveillance report Week 50](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1041593/Vaccine-surveillance-report-week-50.pdf)
+
+[Whilst you were distracted by a Christmas Party the UK Gov. released a report confirming the Fully Vaccinated account for 4 in every 5 Covid-19 Deaths in England since August](https://dailyexpose.uk/2021/12/11/report-shows-4-in-5-covid-deaths-fully-vaccinated/)
+
+[Population of England in 2020, by age group](https://www.statista.com/statistics/281208/population-of-the-england-by-age-group/)
+
+[It’s time to punish Britain’s five million vaccine refuseniks: They put us all at risk of more restrictions, says ANDREW NEIL. So why shouldn’t we curb some of their freedoms?](https://www.dailymail.co.uk/debate/article-10294225/Its-time-punish-Britains-five-million-vaccine-refuseniks-says-ANDREW-NEIL.html)
+
+[COVID-19 vaccine surveillance report Week 49](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1039677/Vaccine_surveillance_report_-_week_49.pdf)
+
+[Covid jab rollout for 12 to 15-year-olds to start in UK schools](https://www.bbc.com/news/uk-58552769)
+
+[UK Government report admits there are 23.5 Million people in England who have NOT had a single dose of a Covid-19 Vaccine](https://dailyexpose.uk/2021/12/17/23-million-not-vaccinated-in-england/)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/) 上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 
