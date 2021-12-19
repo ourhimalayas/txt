@@ -2,28 +2,45 @@
 ---
 
 
-## 【中日财经爆】港交所明年开始接受SPAC空壳公司上市申请
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1766811/)
+## 班农先生荣获《国家脉动》第二届年度爱国者奖
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1762894/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12-5.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=http%3A%2F%2Fspac.us%2Fuploads%2Fallimg%2F210430%2F1-2104300939250-L.jpg&amp;imgrefurl=http%3A%2F%2Fwww.spac.us%2Fm%2Fview.php%3Faid%3D270&amp;tbnid=MdLSTO5GBowKVM&amp;vet=12ahUKEwjz_pLcuez0AhWHfnAKHY8ZCOgQMygEegUIARChAQ..i&amp;docid=wyUXuV-ChCEOPM&amp;w=1280&amp;h=640&amp;itg=1&amp;q=SPAC%E7%A9%BA%E5%A3%B3%E5%85%AC%E5%8F%B8&amp;ved=2ahUKEwjz_pLcuez0AhWHfnAKHY8ZCOgQMygEegUIARChAQ)
-香港交易所旗下香港联合交易所周五12月17日公布引入新规则，在香港设立全新SPAC空壳公司上市机制，并于2022年1月1日起生效。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/8121-2.jpg)图片来源：Gnews
 
-联交所今年9月就推行SPAC上市机制征询市场意见，共收到90份来自多个不同界别对新上市机制谘询的回应意见，大多数建议均获逾八成有表明意见的回应人士支持。
 
-“新规则将大致按照建议所述实施，并因应一些商业因素作出修订，确保兼顾上市公司质素与市场考虑。”港交所上市主管陈翊庭表示。
+#### 整理报道：文泓
 
-港交所表示，将于1月起接受SPAC上市申请。
+美国时间12月16日，《国家脉动》主编宣布，史蒂夫·班农先生荣获《国家脉动》第二届年度爱国者奖。
+现年68岁的班农在2016年引起了全国的关注，帮助带领川普竞选团队以惊人的优势击败希拉里克林顿和民主党机器。从那以后，班农一直担任白宫首席战略官，并与前川普通讯主管杰森米勒和国家脉搏总编辑拉希姆·卡萨姆一起创立了非常成功的《班农战争室》：大流行播客。
 
-SPAC是一种空壳公司，上市筹集资金的目的是为了上市后一段预设期限内收购目标公司（SPAC并购目标）的业务（SPAC并购交易）。
+班农出生于弗吉尼亚州诺福克，是多丽丝和马丁班农的儿子。他曾就读于弗吉尼亚理工大学，在加入美国海军之前成为学生会主席，同时获得国家安全研究硕士学位，然后在哈佛商学院获得MBA。
+班农曾在保罗·福斯特号航空母舰服役，然后在弗吉尼亚州五角大楼担任海军作战部长的特别助理。
 
-消息来源:
+离开海军后，班农去了高盛工作，在那里他会花几年时间了解他现在每天两次的节目所反对的那些精英阶层的全球主义商业运作。
+几年后，他在好莱坞建立了自己的业务，其本人制作了多部电影，包括里根史诗《直面邪恶》和2012年的《揭露占领》。
 
-[香港交易所公布设立全新SPAC上市机制 明年1月起接受上市申请](https://cn.reuters.com/article/hkex-spac-rule-1217-idCNKBS2IW0S9?il=0)
+2009年金融危机后不久，班农与传奇性的保守派火爆人物安德鲁·布赖特巴特合作，他们搭档继续为布赖特巴特新闻网站制定发展计划。布雷特巴特于2012年去世，班农担任执行主席。他将该网站建成了一个民粹主义/民族主义保守主义的全球中心，这令建制派媒体和政治阶层感到震惊和恐惧。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+2016年8月，班农应邀加入川普竞选团队，担任其首席执行官。当时，该竞选团队在几乎所有摇摆州都处于下风。正是班农的坚定性和纪律性帮助竞选团队重新调整并顺利度过了臭名昭著的“比利·布什周末”，在这个周末，一盘以候选人川普私下发表猥亵言论为主题的录音带被公布。
+
+自从离开白宫和布莱巴特新闻网后，班农以《战争室》播客的形式建立了一个右翼势力。该节目现在被视为全球所有政治和新闻媒体中最重要的节目之一，并且是第一个在世界卫生组织、安东尼·福奇等人之前就认识到即将到来的大流行的危险的节目。
+**事实证明，班农和他的团队对中国共产党（他心中的对手）和病毒起源的判断是正确的。**
+自1月6日美国国会大厦发生骚乱以来，班农一直是1月6日欺诈委员会的焦点，被控蔑视国会，并再次被企业左翼媒体视为仇恨人物。
+
+《国家脉动》主编强调，政治迫害是我们今年要向班农致敬的原因之一：
+
+当我听说史蒂夫被国会蔑视时，我给他发了短信，让他知道，世界上没有任何机构比现在的国会更希望被藐视了。这是一个荣誉的徽章，应该如此佩戴。我们很高兴向史蒂夫颁发第二届年度爱国者奖，**这不仅是因为他敢于站出来反对腐败的政治精英、中国共产党和世界各地的激进伊斯兰主义者，还因为他对整个西方世界的保守主义运动的不懈的努力，以及他对这个共和国的建国原则的恒久承诺。我很自豪地称史蒂夫为导师、朋友和****2021年国家脉搏的年度爱国者。**
+
+新闻链接：[National Pulse Patriot of The Year 2021: Stephen K. Bannon. (thenationalpulse.com)](https://thenationalpulse.com/news/national-pulse-patriot-of-the-year-2021-stephen-k-bannon/)
+
+**发布：文泓**
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,24 +2,38 @@
 ---
 
 
-## 苏格兰公共卫生数据：死于中共病毒的人中 九成完全接种了疫苗
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1770287/)
+## PLA南海频频实弹演习，美国警告“侵略”行为
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1770295/)
 
-#### 翻译/撰稿：黃金精神
+#### 翻译：美哥
+编辑：文泓
 
-#### 校对：Chris
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/5955-1.jpg)图片来源：South China Morning Post
 
-12月16日据The Exposé报道，苏格兰官方公共卫生数据（Public Health data）显示，自8月以来，每10个中共病毒病例中就有6个是接种过疫苗的人，每10个住院病人中就有7个，每10个死亡病例中就有9个。
 
-苏格兰公共卫生局（Public Health Scotland）每周三发布一份 “中共病毒统计报告”，其中包含在四周内按疫苗接种情况分类的中共病毒病例、住院和死亡数据。最新的报告于12月15日发布，包含了11月13日至12月10日的病例和住院数据，以及11月6日至12月3日的死亡数据。报告显示，在11月13日至12月10日期间，共有82,161个确诊病例和1,617个住院病例，而在11月6日至12月3日期间，共有383个中共病毒死亡病例。报告还证实，接种疫苗的人群占确诊病例、住院及死亡的比例分别为64%、69%和85%。但这并不是因为奥米炕（Omicron）变体的紧急情况而突然发生的。至少从2021年8月起，绝大部分中共病毒病例、住院和死亡都发生在完全接种疫苗的人中。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-26.png)图片来源：Public Health Scotland
-官方数据显示，自2021年8月以来，接种疫苗的人群占确诊病例、住院、死亡的比例分别为59%、71%及85%。这些疫苗无法防止德尔塔（Delta）变种病毒的传播，虽然我们被告知它们在防止住院和死亡方面非常成功。但根据官方公共卫生数据表明，实际上中共病毒疫苗在暴露于中共病毒时，一直在使接种者的病情恶化。
+本周，中共官媒在指责美方武力恫吓和挑衅南海的同时，解放军在南海举行了多起实弹演习。华盛顿高度关注中方在南海的挑衅行为，美国国务院誓言要维护争议海域的航行自由权。
 
-下图显示了过去17周内根据苏格兰公共卫生局中共病毒统计报告，未接种疫苗人群的病死率，以及接种两针疫苗人群的病死率。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片3-11.png)图片来源：Public Health Scotland
-住院-死亡率的计算方法是用人群中已知的死亡人数除以已知的住院人数。从上面我们可以看到，未接种疫苗的人群中，住院-死亡率仅为9%。但是完全接种疫苗的人群中，住院-死亡率相当于21%。这意味着完全接种疫苗的人群一旦因中共病毒住院而死亡的可能性要高出2.3/133%。
+《解放军报》转载了海南海事局关于海南岛有三处地点限航的通告。目前还没有关于该军演的进一步的消息，但是海域的实弹演习通常是为了检验海军军力，特别是两栖登陆的备战能力。
+本周五前，PLA至少已结束了两场演习，一个靠近海南，另外一个在中越之间的北部湾。
+《解放军报》一段隐匿地址的视频显示，隶属南部战区司令部的海军驱逐舰队进行了7天密集演习，训练内容包括舰载机着陆，浮动水雷的操作和炮击。
+南中国海是印太地区最潜在的火药桶，中共国宣称的主权领土与文莱、马来西亚、菲律宾、台湾和越南都有重叠。上周，其党媒《环球时报》也透露了PLA在南海岛屿上用H6J轰炸机进行实弹轰炸和海面布雷的画面。
 
-新闻来源：[For every 10 people who have died with Covid-19 since August, 9 of them have been Fully Vaccinated according to the latest official Public Health data](https://dailyexpose.uk/2021/12/16/omicron-deception-9-in-10-covid-deaths-since-august-vaccinated/)
+观察人士称，日益密集的演习是中共给台湾和其盟友美国传递威慑的信号，而美国则加强了对“自由开放的印太地区”的倡导，作为其外交和国防政策的坚实基础。
+
+本周二，美国国务卿安东尼·布林肯则在访问印度尼西亚时称，北京的“侵略行为”给印太地区各国带来了不安，美国“决心确保南海的自由航行权”。
+这是布林肯自一月就职后，首次以国务卿身份访问东南亚。拜登明年初在华盛顿与东南亚领导人的会晤也备受期待。
+针对布林肯的言论，中共外交部发言人赵立坚反驳回应，“美国在南海部署先进的军机和舰只，是恫吓和挑衅的行为。”
+
+周二，北京智库名为“南海战略态势感知”机构，指控美国空军间谍机RC-135W在中共国沿海靠近演习的地点近距离侦察，并称这是美方自11月以来的第94次侦察飞行。
+
+原文链接：[US Warns Of ‘Aggression’ As China Holds More Live-Fire Exercises In South China Sea – Eurasia Review](https://www.eurasiareview.com/18122021-us-warns-of-aggression-as-china-holds-more-live-fire-exercises-in-south-china-sea/)
+**发布：文泓**
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
