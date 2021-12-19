@@ -2,40 +2,32 @@
 ---
 
 
-## 因奥米克戎变种的出现以色列将禁止访问英国和丹麦
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1771760/)
+## 郭文贵先生最新歌曲Hcoin To the Moon创造了历史
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1771778/)
 
-本文作者：Rebecca (一切心皆不可得！)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-232.png)
-以色列一位高级卫生官员周日宣布，因政府担心奥米克戎Omicron病毒变种的传播，而收紧旅行限制、隔离要求，以色列人将被禁止访问英国和丹麦。
+12/19/2021 郭文贵先生的最新歌曲Hcoin To the Moon及其MV版视频上线iTunes的18日内，创造了历史。
 
-以色列卫生部公共卫生服务负责人Sharon Alroy-Preis博士说，英国、丹麦等国将在未来72小时内被列入 “红 “签国家名单。
+* * *
 
-在宣布 “红”签国的前一天，联盟党领导人同意每日更新被禁国家名单。此举可能会使人们难以提前计划旅行，从而减少海外航班。
+[【PDF 下载】1-18 Dec 2021 – Hcoin To The Moon by Miles Guo – iTunes&Billboard Charts Ranking Record](https://assets.gnews.org/wp-content/uploads/2021/12/1-18-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/1-18-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record.pdf)
 
-卫生部长称，将有更多国家很快被禁，并贴上 “红 “标签。并强调，未接种疫苗的人 “危及他们自己和他们周围的人”，并敦促有5-11岁孩子的父母为他们接种疫苗。
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_5.jpg)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_6.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_7.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_8.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_9.jpg)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_10.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_11.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_12.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_13.jpg)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_14.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_15.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_16.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_17.jpg)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_18.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_19.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_20.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_21.jpg)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_22.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_23.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_24.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_25.jpg)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_26.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_27.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_28.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_29.jpg)
+[【PDF 下载】1-18 Dec 2021 – Hcoin To The Moon by Miles Guo – iTunes&Billboard Charts Ranking Record](https://assets.gnews.org/wp-content/uploads/2021/12/1-18-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/1-18-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record.pdf)
 
-卫生部总干事纳赫曼-阿什（Nachman Ash）在发布会上警告，不要乘坐飞机出国：”无论谁计划在这个时候出国旅行，都要知道，在回国后，很可能需要隔离。”
-
-根据以色列议会委员会周日批准的新检疫规则来看，从 “红 “签国回来的以色列人必须在国营机构中隔离至少10天。如果对奥米克戎病毒检测呈阴性，才可在家完成隔离。
-
-阿什还呼吁以色列人接种疫苗，并警告说奥米克戎有可能导致严重并发症。
-
-本人观点：
-
-以色列政府此举，意图很明显，在人们缺乏完整信息且不对等的情况下，欲盖弥彰，强推疫苗。
-
-要知道，从南非、英国医生汇总的奥米克戎病例可知，奥米克戎病毒患者大多数都已接种了COVID病毒疫苗。
-
-新闻来源链接：
-
-[https://www.timesofisrael.com/israelis-to-be-barred-from-visiting-uk-and-denmark-amid-omicron-scare/](https://www.timesofisrael.com/israelis-to-be-barred-from-visiting-uk-and-denmark-amid-omicron-scare/)
-
-【文章仅限作者个人观点】
-
-审核校对：sherryok (水云间)
-
-上传排版：CharlieNZ查理
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

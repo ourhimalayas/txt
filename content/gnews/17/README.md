@@ -2,27 +2,159 @@
 ---
 
 
-## 以色列总理贝内特力争推出更极端限制一、封闭以国天空二、在教育部帮助下给儿童接种疫苗
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1771670/)
+## 美国怕中共不再使用美元
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1771714/)
 
-编译：ＧＭ
-![](https://assets.gnews.org/wp-content/uploads/2021/12/be57ed97-45d0-4034-954a-744c3cb71a11.jpg)
-尽管总理贝内特在购物中心的绿色标志问题上失败了，但他有一些新的限制措施，旨在㓕缓Omicron变休进入以色列的速度。贝内特讨论了两个重要步骤—-以色列几乎完全关闭天空，以及在教育部帮助下为儿童接种疫苗。
+[https://gtv.org/video/id=61bde404a68b4f4b28e9f371](https://gtv.org/video/id=61bde404a68b4f4b28e9f371)
 
-就他希望采取的措施来控制该国的疾病状态而言，贝内特最近已成为其政府中最鹰派人物，他的构想包括两个内容：
+**郭文贵
+Miles Guo**
 
-第一步；关闭天空 贝内特计划的第一步是收紧边界的关闭，以争取时间，不让新的Omicron变种降到地面上，贝内特希望从这一举措中获得时间减缓发病率并利用这段时间继续进行疫苗接种运动。在周日将美国添加到红色名单中，在接下来几天里，世界上大多数国家将成为红色国家，因此实际上以色列的天空将完全关闭。
+对共产党最大的叫经济核弹，就是停止你使用美元
+The biggest US weapon against the communists is called economic nukes, which is to stop you from using the dollar
 
-第二步；在校园进行疫苗接种 此外，贝内特正在计划一项举动措，其中包括在教育部的协助下开展全面的疫苗接种运动。广泛的行动将包括通过全国各学校的疫苗接种车对孩子进行接种，并将得到内线司令部的协助，如果到现在教育部没有反对这一行动，看来这一操作要继续执行。
+对待伊朗，所有的什么这些国家，巴基斯坦
+in Iran, Pakistan, and all of whatever these countries
 
-编者按：二战中大约六百万犹太人惨遭纳粹种族屠杀，之后犹太人痛定思痛，在1948年奇迹般建国并且在之后无数次战争中取得胜利，见证了上帝的帮助，在中东成为唯一一个民主发达国家。
+现在变成了，美国人怕共产党停止美元支付
+Now it has become that the U.S. is worried Communist China would Stop Using the dollar payment
 
-但是自从ccp病毒及疫苗灾难以来，以色列患病人数及接种疫苗人数均为全球高位，现在政客强推的疫苗接种运动无异于另一场对犹太人的种族屠杀，多年fake news的洗脑令被公认最智慧的上帝的选民的犹太人也沦为如此悲哀的处境，更看到我们的媒体Gnews.GTV.GETTR的重要性，希望更多人看到真相，更多人苏醒过来为自己为后代奋起反抗！
+为什么？
+Why?
 
-参考链接：[https://mobile.mako.co.il/news-lifestyle/2021\_q4/Article-4923a4f6f94cd71027.htm?utm\_source=Twitter&utm\_medium=NewsChannelPost&partne=rNewsChannelTwitter&s=08](https://mobile.mako.co.il/news-lifestyle/2021_q4/Article-4923a4f6f94cd71027.htm?utm_source=Twitter&amp;utm_medium=NewsChannelPost&amp;partne=rNewsChannelTwitter&amp;s=08)
+共产党说我不接受任何美元支付的时候
+When the Communist Party says I’m not accepting any dollar payments
 
-审核校对：Barry Jack
-上传排版：F
+不是人民币跌了，是人民币会暴涨
+It’s not that the yuan would go down, it would skyrocket
+
+美元会暴跌，美股会暴跌
+The dollar would drop and the U.S. stock market would collapse
+
+这是为什么共产党牛啊
+This is why the communist party is evil
+
+5000亿给沙特，搞了一个投资2万亿美元
+They offer 500 billion dollars to Saudi Arabia, and have made a 2 trillion dollars investment
+
+然后未来20年全接受数字人民币和人民币结算
+and then Saudi Arabia would accept digital yuan and yuan settlement for the next 20 years
+
+美国当年创建阿美集团呐
+That’s the U.S. that created Aramco back then
+
+帮着沙特挖出了油啊
+US helped the Saudis dig out the oil
+
+那个地方只有沙子，什么都没有
+There was nothing but sand back then
+
+当年的国王看着油出来的时候浑身发抖
+The king was trembling when he saw the oil came out
+
+就抖的不行了，就抖
+He was shaking so much that he couldn’t stand it
+
+当年他才30几个媳妇，出来油以后就变成了5000个媳妇
+He only had about 30 wives back then, but it became 5000 after the oil came out
+
+5000个王子，500个媳妇
+Actually, it was 5000 princes, 500 wives
+
+最后发现美国人骗他以后，把阿美给强行国有化收回来
+Finally, after finding out that the Americans had cheated him, he nationalized Aramco and took it back
+
+沙特王国诞生
+The Kingdom of Saudi Arabia was born
+
+后来美国人签了个合同
+Afterward, the Americans signed a contract with Saudi Arabia
+
+好吧，壳牌石油，我以后买我就最便宜的
+All right, Shell Oil, our America will pay the lowest price when buying it in the future
+
+几美金一桶的油
+A few dollars a barrel
+
+这是美国的石油技术
+This is thanks to the United States oil technology
+
+后来美国发展页岩气才出来的
+Later, the United States developed shale gas
+
+要不然美国这个油就被卡住了
+Otherwise, the United States would be stuck with oil
+
+但是，现在美国搞了个什么
+But now, what U.S. want to do with China?
+
+整个在沙特当年干的事情，它想在中国搞一个
+The whole thing that the US did to Saudi Arabia back then, they want to repeat it again in China
+
+经济上的像阿美的
+which is creating an economic puppet-like Aramco
+
+结果人家不是给你收回来了，是连你都给废了
+As a result, the CCP not only took back this economic puppet but also want to destroy the United States
+
+这时候澳大利亚、日本为啥要出汗，你知道吗？
+At this time, do you know why Australia and Japan are sweating?
+
+日本紧张啊
+Japan is being nervous
+
+共产党要在亚洲当老大，这已经是亚洲老大了
+The Communist Party wants to be the boss in Asia, which he already is
+
+美国也承认了你是我代言人
+The United States has also recognized The Communist Party as their spokesman
+
+过去30年，八九六四之后
+In the past 30 years, after June 4, 1989 (the Tiananmen massacre)
+
+基辛格、克林顿、布什家族已经全同意
+Kissinger, Clinton, and Bush family had all agreed
+
+这都是明摆的事
+This is obvious
+
+日本现在你看我跟你那么好
+Japan told the United States that we were having such a good relationship
+
+我想当亚洲老大
+let me be the boss of Asia
+
+所以叫CPTPP，是吧？
+So they organized the CPTPP, right?
+
+全面与进步跨太平洋伙伴关系协定
+They made the Comprehensive and Progressive Trans-Pacific Partnership agreement
+
+那可是日本绝对的经济杀手锏
+That was Japan’s absolute economic killer
+
+结果被川普给废掉了
+however, it was scrapped by Trump
+
+* * *
+
+Date:12/07/2021
+原视频标题: 美国怕中共不再使用美元
+The U.S. Fears That The CCP Will no Longer Use the U.S. Dollar
+原视频日期：2021/12/05
+原视频链接:[**https://gettr.com/post/piv73q2421**](https://gettr.com/post/piv73q2421)
+任务编号：KC343（3133）
+视频时间段 : 0:00-02:07
+中听校：洛杉矶盘古农场 – Mike Li
+翻译：洛杉矶盘古农场 – Mike Li
+翻译终校：洛杉矶盘古农场 – 郭班之樱
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

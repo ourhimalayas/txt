@@ -2,167 +2,119 @@
 ---
 
 
-## 习家人掌握一切权力
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1771743/)
+## 新中国联邦的未来一定是各种高科技加持
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1771761/)
 
-[https://gtv.org/video/id=61bde5c7a68b4f4b28e9f432](https://gtv.org/video/id=61bde5c7a68b4f4b28e9f432)
+[https://gtv.org/video/id=61bdf424a68b4f4b28e9fa51](https://gtv.org/video/id=61bdf424a68b4f4b28e9fa51)
 
-习近平, 彭丽媛的衣服
-Las ropas de Xi Jinping y Peng Liyuan
+**郭文贵
+Miles Guo**
 
-买什么料子, 穿什么牌, 带什么包, 用什么手机
-Qué tipo de tela comprar, qué marca, cartera o teléfono utilizan
+所有未来社交媒体的两个核心
+The two cores of all future social media
 
-照相, 出行
-Las fotos que se toma y las salidas de paseo
+大家看到了IBM的两个nm米（纳米）的芯片出现
+Everyone has seen the appearance of the 2nanometre chips from IBM
 
-100%听她女儿的
-Esto 100% escucha de su hija
+那不是一般的改变了，是吧？
+That’s not a normal change, right?
 
-军队用谁, 不用谁
-A quién van a utilizar del ejército y a quien no
+还有一个通信
+The other is communication
 
-几乎是它弟弟远平说了算
-Casi todo lo decide su hermano Yuanping
+伊隆·马斯克要搞的自动充电、大脑、大脑和手机自动联系
+Elon Musk wants to engage in automatic charging, the brain, and brain to mobile phone automatic contact
 
-我再说一遍
-Repito de nuevo
+这都是他玩的游戏
+These are all games that he plays
 
-只有七哥2012年说过
-Sólo lo que yo dije en el 2012
+安全是免费wifi，不受基站影响
+Wifi is totally free in future and is not affected by base stations
 
-中国没有常委会了
-Ya no hay Comité Permanente en China
+七哥告诉你，他最大的量子电脑和生物科技
+Let me tell you his biggest quantum computer and biotechnology
 
-常委会就成了跟班的了
-El Comité Permanente se convierte en asistente seguidor
+你再看这个伊隆·马斯克（搞得这些）都是很小的事儿
+Look at Elon Musk, all he does matters just a little
 
-只有国家安全委员会
-Sólo el Consejo de Seguridad Nacional
+它是一个技术性的改变, 生物科技最大的一件事情
+It is a technical revolution and the biggest event about biotechnology
 
-然后成立各个组
-Luego establecen cada grupo
+生物科技会让你所有的电脑
+Biotechnology will make everything computerized for you
 
-各个组就架空了, 所有中国的政府职能机构
-Cada grupo está vacío y todas las agencias gubernamentales chinas
-李克强完全是个托儿
-Li Keqiang es totalmente un niño de la guardería
+所有的也就是人的辨别系统就是眼睛、鼻子闻的味儿，耳朵听的东西，你身体上感到热度
+everything in the human discernment system which are your eyes, the scents you smell, the things that you hear, and the heat that your body feels
 
-叫做一双新皮鞋, 下面沾了一个人家吐的那个
-Se llama un nuevo zapato de vestir, debajo está pegado algo que lo escupieron
+生物科技都能让你实现
+Biotechnology can make all these to reality for you
 
-一个口香糖就叫李克强
-Un chicle que se llama Li Keqiang
+生物科技就是一个火柴盒大的一个这么的一个硬盘
+Biotechnology is like have a hard drive whose size is as big as a matchbox
 
-就是沾上了
-Y así se pegó
+能把全人类现在所有的信息收集进去
+And it’s able to collect all the information that mankind has now
 
-我这也不适合给你拿下去
-No soy adecuado para quitarlo
+现在所有的，你想想
+Everything that currently has, think about it
 
-你就沾着吧
-Quédate pegado
+那么再想想区块链
+Then think about the blockchain
 
-就踩了一个这个东西
-Y así tiene esta cosa pisada
+现在比特币就是生产那个像硬盘似的的盒子
+Bitcoin now produces the box that looks like a hard drive,
 
-完全没有任何职能
-No tiene totalmente ninguna función
+里边儿能放1000亿个比特币的价值
+which can hold the value of 100 billion Bitcoins in it
 
-国家安全委员会完全代表了(常委会)
-El Consejo de Seguridad Nacional representa absolutamente al (Comité Permanente)
+它就叫做数字货币的所谓的这个流通币
+It’s called the so-called circulating currency of the digital currency
 
-国安委有谁呀, 习远平
-¿Quiénes están en el Consejo de Seguridad Nacional? Xi Yuanping
+到未来那个东西，它可以放在你什么（地方）
+In the future, where can it be placed?
 
-彭丽媛
-Peng Liyuan
+它放在你身体里，肉体里
+It’s in your body, in your flesh
 
-有彭办在里边
-Teniendo a Peng adentro
+它可以放在你完全没有人知道的地方
+It can be placed in your body where no one knows
 
-他女儿直接领导着一切
-Su hija lidera todo directamente
-中办主任丁薛祥, 什么事都得(和她汇报)
-Ding Xuexiang, director de la Oficina Central, tiene que (informar todo a ella)
+就像我们现在要发展的未来的喜币的那个金币，纯金铸的币
+Just like the gold coin that we are going to develop for the future of HCoin, which made of pure gold
 
-他能天天问习近平吗
-¿Él puede preguntar todos los días a Xi Jinping?
+可以有100万额度的，有10万额度的，有1万额度的
+There can be 1 million credits, 100,000 credits, and 10,000 credits,
 
-他只能问他女儿去
-Solamente puede preguntar a su hija
+然后跟电脑里放在一起，“啪”一辨别，加上眼睛，指纹识别，什么识别
+Then put them together on the computer, conducting a quick identity, adding your eyes scanning, fingerprint, and other recognitions
 
-中国在过去的这10年历史
-En los pasados 10 años de la historia de China
+就马上就可以把东西传给你一样
+They can send things to you right away
 
-记着今天爆料中说的话
-Recuerda las palabras que se dijo hoy en el Movimiento de Denunciantes
+它人类已经到这个时代了
+Mankind has reached this age
 
-就是李木子
-Es Li Muzi
+我们要准备的不是（互联网）3.0版
+What we are going to prepare is not (Internet) version 3.0
 
-习远平
-Xi Yuanping
+3.0版都对我们来讲已经不是 …已过去
+Version 3.0 is no longer for us…it’s over
 
-彭丽媛再加上彭磊
-Peng Liyuan más Peng Lei
-
-然后再加上习桥桥
-Y se suma Xi Qiaoqiao
-
-然后再加上习安安
-Y Xi An’an
-
-几乎就是这一家11个人
-Casi es toda esta familia que son 11 personas
-
-对外的情报信息几乎上是靠
-Casi todas las informaciones externas dependen de
-
-安安的家人还有安安的孩子
-La familia y los hijos de An’an
-嫁给了英国人的像吴拉菲
-Se casó con un británico como Wu Lafei
-
-就叫拉菲, 叫吴拉菲
-así se llama, Wu Lafei
-
-完全是英国护照
-Es totalmente pasaporte británico
-
-这所有的包括在英国的老公
-Todo esto incluye al esposo que está en Reino Unido
-
-拉菲是安安的孙女
-Lafei es la nieta de An’an
-
-是安安的闺女的孩子
-Es la niña del hijo de An’an
-
-所以说这习家在海外的根本(就是这些人)
-Por eso la familia Xi en el exterior en sí (son estas personas)
-
-像杨洁篪这些人
-Esta gente como Yang Jiechi
-
-见他们那就狗一样
-Cuando ven a ellos lo ven como perros
-
-他认为这是主子
-Él piensa que este es el dueño
+我们是要真正的AI加生物科技、量子科技加数字货币的新中国联邦的时代
+What we need is the New Federal State of China Era that has the real AI plus biotechnology and quantum technology plus digital currency
 
 * * *
 
-日期：12/17/2021
-原视频标题：习家人掌握一切权力
-La familia Xi tiene todo el poder
-原视频日期：12/15/2021
-原视频网址： [**https://gettr.com/post/pjpr1vbefd**](https://gettr.com/post/pjpr1vbefd)
-任务编号：KC345(3239)
-视频时间段：0:00-02:11
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+Date: 12/16/2021
+原视频标题: 新中国联邦的未来一定是各种高科技加持
+The Future of The New Federal State of China Must be a Variety of High-tech Blessings
+原视频日期：2021/15/12
+原视频链接: [**https://gettr.com/post/pjtm7m56ab**](https://gettr.com/post/pjtm7m56ab)
+任务编号：KC347(3256)
+视频时间段 : 0:00-2:16
+英听校：洛杉矶盘古农场 – 郭班之樱
+翻译：洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
 字幕+视频制作：洛杉矶盘古农场 – 天涯行
 审片：洛杉矶盘古农场 – 银龙
 发布 ：洛杉矶盘古农场 – 恩典

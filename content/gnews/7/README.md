@@ -2,15 +2,14 @@
 ---
 
 
-## 【文贵先生大直播PPT】从地产持续暴雷破产 经济指标作假 企业家意外死亡看中共还能撑多久
-` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1771937/)
+## 【文贵先生大直播PPT】全球抵制北京冬奥会 人权加经济制裁中共
+` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1771971/)
 
-撰稿：Nine Lee （DC)
-文案指导：泰山（伊甸） 北评2025（英喜）
-美工：嘿虎 雷蒙 （雅典娜）
+撰稿：顽童（香草山）
+美工：sotres (香草山）
 
-【2021年12月19日文贵先生大直播PPT：从地产持续暴雷破产 经济指标作假 企业家意外死亡看中共还能撑多久】
-![](https://assets.gnews.org/wp-content/uploads/2021/12/21-10.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/22-11.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/23-8.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/24-8.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/25-7.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/26-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/27-4.jpg)
+【2021年12月19日文贵先生大直播PPT：全球抵制北京冬奥会 人权加经济制裁中共】
+![](https://assets.gnews.org/wp-content/uploads/2021/12/7-31.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/2-74.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/3-46.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/4-31.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/5-27.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/30-2.jpg)
 * * *
 
 发稿：云起时

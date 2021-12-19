@@ -2,32 +2,28 @@
 ---
 
 
-## 欧洲议会决议呼吁 调查中共诱骗越南劳工赴塞尔维亚工作
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1770202/)
+## 塔利班继续制造人道危机 妇女儿童和前政府雇员处境危险
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1770221/)
 
-作者：日本方舟农场 – Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月16日，欧洲议会以586票赞成，53票反对通过决议，呼吁塞尔维亚当局慎重调查越南劳工，被中共诱骗至塞尔维亚境内的中资工厂，并被强迫劳动的现象。这家位于塞尔维亚北部的中共工厂，约有500名越南劳工。今年11月，这些越南劳工爆发了罢工，抗议工作环境恶劣，并声称自己是被诱骗到塞尔维亚从事工作的。
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-227.jpg)[图片来源](https://www.ft.com/content/acb69a3a-51ee-4484-8dad-e04b2c711f89)
+近日，联合国官员表示，塔利班上台以来，已至少有一百名以上前政府军官兵被杀害。联合国副人权事务高级专员娜达·阿尔-纳希夫（ Nada Al-Nashif）在日内瓦说，其中大多数人是被塔利班杀害的，此外还有至少八名积极分子和两名记者遭到杀害。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide4-15.jpeg)
+这位联合国官员还表示，塔利班目前还在招募儿童充军，并实施针对妇女的压迫政策。前法官、检察官以及律师的处境非常危险，其中尤以女性为甚。
 
-多名劳工告诉记者，他们的护照被没收，像生活在牢狱里一样，而塞尔维亚领导人则对这些不法行为视而不见。因此，欧洲议会呼吁，希望塞尔维亚政府让欧盟及相关官员，完全自由地进入这家中共公司以及员工宿舍，对事实进行核实。
+阿富汗前政府驻联合国大使、现在仍获联合国认可的安迪沙（ Nasir Ahmed Andischa）在联合国人权理事会上的发言中，也描绘了当前阿富汗的紧张局势。安迪沙指责塔利班犯下了大量践踏人权的罪行，并实施有针对性的杀戮和绑架。
 
-参考链接：
+他表示，推崇伊斯兰原教旨主义的塔利班制造了大量侵犯人权的案件，而其中有很多案件并没有记录在案。今年八月，塔利班重新在阿富汗掌权之后，过去20年的建设成就被毁于一旦。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
+塔利班于今年夏季发起攻势，并在八月占领了首都喀布尔，八月底，最后一批美军士兵撤离阿富汗。大赦国际指责塔利班，在发动攻势的过程中，对少数族群、宗教少数派以及政府军官兵实施酷刑和屠戮。战争罪行的实际规模很难调查清楚，因为塔利班对偏僻地区的手机通讯和互联网联络采取了限制措施。都察洛夫表示，塔利班制造了“外界难以想象的大规模流血事件”。
 
-总编：文特
-编辑：Kathy文艺
-校正/发稿：谐趣园
+信息来源：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[阿富汗人权局势堪忧 前政府军官兵惨遭屠戮](https://www.dw.com/zh/%E9%98%BF%E5%AF%8C%E6%B1%97%E4%BA%BA%E6%9D%83%E5%B1%80%E5%8A%BF%E5%A0%AA%E5%BF%A7-%E5%89%8D%E6%94%BF%E5%BA%9C%E5%86%9B%E5%AE%98%E5%85%B5%E6%83%A8%E9%81%AD%E5%B1%A0%E6%88%AE/a-60127217)
+
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
