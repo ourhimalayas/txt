@@ -2,47 +2,32 @@
 ---
 
 
-## 对六四勇士的乱葬岗并未让共产党更强大却培养出郭文贵
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1770446/)
+## 美国监管机构调查 Afterpay
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1770498/)
 
-**郭文贵先生：**就像共产党搞这个巫术一样，我听说以后特别开心。因为七哥经历过事，我在清丰看守所出来过。你知道埋掉那些人，都埋什么地方去了吗？所有这人叫，中国叫乱葬岗、叫乱葬岗。乱葬岗在清丰的北边，有个叫南乐县。
+撰稿：云彩
 
-南乐县的南边，有一个日本人杀害所谓当年杀人的一个地方，说是万人坑，都是被斩头，妇女孩子强奸、轮奸完，直接给扔万人坑。所有枪毙的这些民运分子全到那去，往下挖坑两三米，直接头送下去埋了，全埋到乱葬岗。他认为你再永无回生之地。
+视频来自网络
+2021年5月17日从事先买后付业务的澳洲Afterpay 和Zip公司，受美国监管机构要求它们披露其消费者保护措施消息影响，股价在澳洲股市受到打击。
 
-就是里边专干这事的这个人，就是驻清丰看守所的检察官，还有个叫做监狱官。监察狱的官叫检察官告诉我的，他说：“你准备好，很快就埋你了，就把你埋到南乐乱葬岗去了。”我说：“为啥埋乱葬岗”？“叫你永世不得为生，永世不能反党。你们这帮不安定分子”。哇塞！老头超低，非常非常激动。
+美国消费者金融保护局命令 Afterpay、Zip、Klarna、PayPal 和 Affirm 回答一系列问题，其中包括消费者所承担的债务、公司是否遵守消费者法律以及数据收集法规？ CFPB 主任 Rohit Chopra 表示，该局已命令这些公司提交信息，以便他们可以向公众报告行业惯例和风险。
 
-后来我跟你们说过，到我出来以后找我喝酒，喝死个球的了。没办法，他喝死是喝死了，他不是我让他喝死了，喝完以后喝死了。老头喝茅台，我不让他喝他使劲喝，喝完以后还挺厉害，是吧！还证明自己没喝多，吐好几次回来还继续喝。走的时候抱两箱，结果回去死了，你咋办？你说喝死个球的了。
+buy now, pay later（BNPL）是一种为人们提供购买和带走物品的预付款，然后分期偿还的科技公司。BNPL 在美国爆炸式增长，监管机构表示，在大流行和最近的黑色星期五销售期间，其使用量激增。
 
-所以他对这些六十多个勇士枪毙的乱葬岗，没有让共产党更强大，他却培养出了郭文贵。所以他这个巫术不管用。后来我专门请教人，我说为什么他的巫术不管用？给了我一句经典的话。他说记住，施巫术之人和相信巫术之人，十之八九最后都被巫术给灭掉。
+在澳大利亚，财政部最近的数据发现，五分之一的在线销售现在涉及 BNPL。近日，澳大利亚政府宣布它还在考虑修订相关金融法，以监管包括 BNPL 在内的一系列科技技术。
 
-他说这就像打枪一样，不是你拿过来枪就要射的，后作用力就把你干掉了。还有个你就打枪去，你可能你射了…天天练，天天练。可能当你掏枪那一刻，真的去杀人的时候，十之八九不是你杀了人，是被别人杀。因为你需要的时候，就是有别人也杀你的时候。他说千万不要动巫念，是这样。
+点评：腾讯拥有Afterpay 5%的股份，是大股东。腾讯的背后有共产党的影子。自从腾讯加入Afterpay 后，Afterday 开始主攻美国市场。先后与Apple Pay 和Google Pay 合作，业务从线上转到线下实体店。大部分用户是美国年轻人。试想，将来当这批年轻人成为美国社会的中坚力量时，是不是意味着共产党通过控制这股力量来控制美国？
 
-字幕来源：[2021年12月17日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1768692/)；
+参考资料：
 
-SRT文件制作：小满；
+[美国机构监管AFTERPAY](https://www.abc.net.au/news/2021-12-17/asx-bank-england-interest-rates-wall-street-afterpay/100707908)
 
-视频剪辑及上传：Cindy；
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-G-News发布：小满；
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

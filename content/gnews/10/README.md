@@ -2,48 +2,57 @@
 ---
 
 
-## 郭文贵先生2021年12月18日盖特视频（9分57秒）全文字版
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1770535/)
+## COVID-19 最新情报｜日本考虑公费负担新冠口服药 郭文贵曾爆新药副作用极强
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1770550/)
 
-听写整理编辑：东京樱花团/Peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-993.png)
-12月18号，尊敬的战友们好，你们健身了吗？哎呀，战友们呐，千万不能不健身，兄弟姐妹们，千万不能不健身啊。健身的好处可大了去了啊！
+**疫情關注組 / 發佈時間｜19/12/2021**
 
-哎呀，我的妈呀，从昨天到现在呀，这家伙这纽约一个曼哈顿啊，几万人就就就这个得上Omicron了，这全世界很多城市啊，拉响了警报，共产党这放的这个毒啊，就是想，从过去的啊弄死你，到现在的吓死你，到现在，让所有人不仅呆在家里啊，让一传全家都传上，啊，太可怕了，传染力快，啊，并发症多，啊，而且对老人，对孩子是威胁，千万小心啊!就在我们的办公室啊，前天,是三四天以前一个,昨天又发现一个,啊，就别提了，就身边的这样的家人，那个家人多都不行了。咱们战友中啊,英国的战友，一家两口都得上啊，啊这这这真是吓死人了，战友们，无论如何，一定要防毒啊，高于灭共啊，这个时候呆在家里，呆在家里。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-第二，青蒿素，伊维菌素，太牛了，太牛了，神药啊！哈……神药啊，我一说神，现在浑身起鸡皮疙瘩，习太阳，习太，习太阳，习大神搞巫术给我，哇塞，这简直是这刘彦平当时说了句话，他说：“你真以为我党是无神论吗？我党无神论能搞五角星吗？啊？我党要是无神论，为啥先去延安？为什么毛老爷子不进故宫呢？啊，是吧？事实上是信神的。”所以说你大过年的，那你搞那么不愉快，是吧？领导也要过年啊，是吧？神也要过年啊，习大神设定了搞巫术。
 
-现在就是神药伊维菌素啊，青蒿素他谁也代替不了，啊，真的是，不是一般的好啊，Ivermectin啊这个是非常非常伊维菌素，我就老想这个词儿啊，Iver…mectin啊。然后另外一个是，这另外一个就是艺术的意思Arte…misinin，Arte…misini，Artemisinin是这个青蒿素Arte…misinin，Artemisinin我已经快对这个词背下来了。A…e…r…e，啊，然后呢，呃，m…i…s…i…n…i…n，诶，我都记住了。Arte…misinin，Arte…misinin，Arte…misinin叫青蒿素啊。
+日本首相岸田文雄已经与辉瑞公司达成了一项基本协定，确保200万剂量的新冠口服药物。 政府正在考虑用公共费用支付这些药品的全部费用。
 
-这个是伊维菌素是I…v…e…t,啊，Ivet, Ivet就是mec啊，就是Ivermectin, tin是t…i…n，Ivermectin， mectin, t…i…n 哎呦，这就会好的，哎呀，咱也不是神，只能是哎呀，我的天哪，我一定把这个英文搞明白他，哎呀，天下神药。
+岸田文雄表示：通过辉瑞首席执行官布拉和我的直接电话交谈，我们达成了基本协议，确保了200万剂辉瑞公司的口服药。
 
-现在这个说不吃羟氯喹，直接吃伊维菌素就可以，吃伊维菌素就可以防毒啊，当然解毒啊，就这么牛，就这么牛啊。青蒿素解疫苗毒，当然防，啊冠状病毒，看一下消灭绝大多数癌症啊，血压、高血压、糖尿病，太多病了，牛了，牛了牛了，我才吃了，（直到）今天吃了六次吧，我现在上哪去了，说怎么看你比原来还年轻，都这么说，你看是啊，是越来越年轻啊，年轻不是我的追求，但是如果上天赐予我年轻的话，我也很愿意接受啊。
+- 相关：[COVID-19 最新情报｜关于“新冠口服药” 你不可不知的泽连科方案](https://gnews.org/zh-hant/1643262/)
 
-哎呀，国内的经济呀，没法说，兄弟姐妹们，继我们这昨天直播完以后，房地产，国内啊，一系列的中小地产开始崩溃。整个啊，北京首都，每天从过去的啊110家，包含的小小什么小店算上啊，这个倒闭。现在每天大概在300多家，啊，300多家，300多家企业就有员工的，有经营地址的啊，有营业额的，时间超过一年的，这算所谓啊中小型公司，啊，一天300多家，我不知道这这个接下去会是什么结局，是吧？
 
-另外，银行，现在银行抓人抓疯了啊，一到年底露馅了，你知道吗？一到年底，什么借旧还新啊，什么借新还旧啊，啊，什么是借什么高息这个这个拉储啊，都出问题了啊，很多都抓了。
+岸田文雄透露，他和辉瑞公司首席执行官布拉昨天进行了电话交谈，基本上达成了确保200万剂口服药的协定。 此外，政府已经获得了160万剂默克公司的口服药物莫努匹拉韦“**molnupiravir**”，如果获得批准，将从今年年底开始向医疗界提供。这些口服药物的费用，将考虑由公共资金全额负担。
 
-大家还有注意到一个问题没有？最近抓的啊，政法委之多，银行之多，就是前所未有。七哥都说对了吧，又蒙对了吧？这些人你别看他嘚瑟啊，最终都是，一定都是共产党的这个恶魔被吸血的一个工具而已，啊，也逃不过去的，这就是一个共产党杀人机器的结果。
+## 美FDA研拟将 紧急使用授权molnupiravir
 
-我从昨天到现在直播完，我收到太多太多人，给我说谁谁谁被抓了，谁谁突然死了。那个解直锟中直系的毛阿敏老公啊，毛阿敏老公，还有他的弟弟叫解直明吧，啊是中国人民银行的啊，绝对王岐山的人，跟郭树清这些人好的不得了，啊，还有什么这个外汇局局长潘功胜，是吧，周亮，好的一塌糊涂啊，然后呢，这个这是东北帮啊出来的，和这个张宏伟啊，原来是PK。
+据[EBSCO post](https://www.ebsco.com/e/zh-tw/blog/antiviral-pill-covid-19-molnupiravir-too-good-be-true) 2021/11/18指出，Molnupiravir 被定义为用来治疗 COVID-19 的全新抗病毒口服药。在研制有效预防、治疗COVID的过程中，发现“**羟氯奎宁(hydroxychloroquine)、伊维菌素(ivermectin)**和某些抗HIV病毒药物”具有预防、治疗COVID效用。
 
-张宏伟妒忌人家娶了毛阿敏，结果他没娶上毛阿敏，他娶了另外一个啊，我知道叫吃货的一个一个女的啊，说在美国读个哈佛啊，呃也年轻啊，但是俩人是性能力都不行啊，都基本没有啊，结果是打了三针疫苗。
+- 相关：[美国卫生研究院(NIH)批准“伊维菌素”作为新冠治疗药物](https://gnews.org/zh-hant/1570778/)
+- 相关：[新冠病毒预防、治疗方案](https://vladimirzelenkomd.com/prophylaxis-protocol/)（Zev Zelenko 博士）
+- 相关：[印度德里使用伊维菌素，确诊病例下降97%](https://gnews.org/zh-hant/1570870/)
 
-解直锟大概十个月以前就被中纪委开始啊，要求把钱交出来，事业交出来，他一直拖着，一直弄啊，然后还打了三针疫苗，昨天啪，走了，年轻啊，才60岁呀，啊，才60岁呀，所以说这又打疫苗，再加上共产党抢钱，你说能活得了？没法活啊，没法活，你你娶毛阿敏，你取啥你也不行，啊，走好吧，一路走好吧，那你生在共产党国了，你没办法，是吧？下一个就是张宏伟了，你还会心脏病，这小子也打了三针疫苗儿，听说也是，啊，积极的认真的打了辉瑞疫苗，打三针啊，挺厉害的，是吧。
 
-所以兄弟姐妹你看这国内疫苗死，企业家被抓啊，马云到处全世界往回拿钱啊，马化腾现在正在向中央表忠心，把所有钱都愿意交出来啊，不但交钱，还交技术啊，交团队啊，那民生就别提了，是吧？啊，你还想一想，大家还记得吴小晖吗？安邦吗？安邦不都破产了吗？安邦的东西去哪了？听说最近安邦的事啊，几个资产，又引起了叫做死后的官司，就死了棺材板里人家破产的人又蹦出来打官司来了。又说，又说听说邓家要反击，啊邓家要反击，不接受啊，这个有事儿，这个有意思啊，这个有意思。会不会邓家有这勇气，邓家没这个种，邓家一家人家没敢动手的，都享福，已享了福了，人就没有勇气了，福气太大，啊物质生活过于奢靡，啊，亡国啊，亡家，亡你的个性，所以过度的奢靡啊，再没有信仰，那基本就完蛋了啊。所以说，听说这个邓家和这个吴小晖这个，现在在资产处理上已经开始反击。
+**羟氯奎宁、伊维菌素**，已经被长期使用于疟疾等免疫力疾病防治，安全性无虞。并有国际研究逐渐表明，羟氯喹宁、伊维菌素确实可以作为有效防治的方案。然，为何药厂舍弃这些被广泛使用的药物，要研制全新的抗COVID药物Molnupiravir 呢？
 
-然后整个，啊，中南部已经全下令，工资养老金很多都不要发了，甚至说养老金要缓发三年到五年，支持国家的战略转型期，也就是打台湾，啊，所以说你看所有的独裁，最后所有的问题都转向战争啊，然后让所谓的爱国主义啊，民族主义，民族仇恨，内部仇恨，什么阶级呀，是吧？富人和穷人呐，什么少数民族和多数民族啊，都是这一套，然后让你还奉献，让你不拿工资，养老金不让你拿，退休工资不让你拿，那这些人咋活呀？
+文章清楚指出，过去一款名为瑞德西韦(remdesivir)的药物被证实可以作为COVID-19患者治疗用药，并被美国相关部门列为新冠治疗用药。瑞德西韦，被用来针对伊波拉病毒。但有媒体指出，将[瑞德西韦(remdesivir)列为治疗用药而刻意的打压伤害性更小的伊维菌素是图利于医院、药厂](https://gnews.org/zh-hant/1570778/)。
 
-特别是最近这几天，就从昨天直播完到现在医院，火了！啊，听说中共中央下命令，叫今年啊，也就是说啊不是今年了，就明年了，2022年6月份以前，叫中国的医院要吐出一万五千亿，一万五千亿啊！记住啊，一万五千亿。现在我时间到了啊，啥都不说了，明儿再见。
+使用瑞德西韦治疗新冠，对病患身体会有其他伤害，新的抗病毒药molnupiravir运作机理相似于瑞德西韦，借由抑制病毒RNA聚合酶，达到阻断病毒快速增生的效果。molnupiravir在一期、二期临床试验中，文章指出molnupiravir耐受性良好、没有引发任何严重的不良事件，更具备减少COVID-19病患的传染力。默克指出molnupiravir的[三期随机试验](https://www.merck.com/news/merck-and-ridgebacks-investigational-oral-antiviral-molnupiravir-reduced-the-risk-of-hospitalization-or-death-by-approximately-50-percent-compared-to-placebo-for-patients-with-mild-or-moderat/)治疗效果非常显著。
 
-稿件仅作参考，最终以郭文贵先生盖特视频内容为准。
+美国食品药物管理局FDA于11月30日，已开始讨论是否将紧急使用授权(EUA)新冠口服药物molnupiravir。
 
-郭文贵先生12月18日盖特视频链接：[https://gettr.com/post/pk026ned18](https://gettr.com/post/pk026ned18)
+## 抗病毒药物 为何不选羟氯奎宁、伊维菌素？
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
+新冠持续延烧世界，新冠疫苗大规模接种并未阻止疫情扩散，政府及药厂在持续推动加强针、强制接种(疫苗通行证)之余，更转向口服药物防治方案。瑞韦西德、羟氯喹、伊维菌素被证实为有效防治药物选项，然[瑞韦西德治疗对病患身体有其他不利影响](https://gnews.org/zh-hant/1570778/)。伊维菌素、羟氯喹已被广泛使用，且容易取得，却被政府、药厂等忽略。
+
+[EBSCO post](https://www.ebsco.com/e/zh-tw/blog/antiviral-pill-covid-19-molnupiravir-too-good-be-true)介绍Molnupiravir 文章，提及羟氯奎宁(hydroxychloroquine)、伊维菌素(ivermectin)和某些抗HIV病毒药物具有预防、治疗COVID效用。
+
+郭文贵于2021/11/11直播片段针对“新冠口服药”爆料是针对淋病、爱滋等性病，副作用极强。Molnupiravir 成分是否包含抗HIV病毒药物，及是否为他所指的新冠口服药尚无法确定。
+ 來源：[GETTR](https://gettr.com/post/pgmtu1b16f)
+[默克新闻稿](https://www.merck.com/news/merck-and-ridgebacks-investigational-oral-antiviral-molnupiravir-reduced-the-risk-of-hospitalization-or-death-by-approximately-50-percent-compared-to-placebo-for-patients-with-mild-or-moderat/)指出Molnupiravir 预计到 2021 年底将生产 1000 万剂量，2022 年将生产更多。Molnupiravir的全球三期、随机、安慰剂对照、双盲、多中心研究MOVe-OUT 试验 (MK-4482-002) ( [NCT04575597](https://cts.businesswire.com/ct/CT?id=smartlink&amp;url=https%3A%2F%2Fclinicaltrials.gov%2Fct2%2Fshow%2FNCT04575597%3Fterm%3Dmolnupiravir%26draw%3D2%26rank%3D2&amp;esheet=52502008&amp;newsitemid=20211001005189&amp;lan=en-US&amp;anchor=NCT04575597&amp;index=3&amp;md5=d00529fc8647b82c99f3f53d57191335) ) ，第 3 阶段已经在全球范围内进行，包括在阿根廷、巴西、加拿大、智利、哥伦比亚、埃及、法国、德国、危地马拉、以色列、意大利、日本、墨西哥、菲律宾、波兰、俄罗斯、南非、西班牙、瑞典、台湾、乌克兰、英国和美国。
+
+## 关于MERCK（默克）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截圖-2021-12-19-下午3.21.57.png)來源：[MERC](https://www.merck.com/news/merck-and-ridgebacks-investigational-oral-antiviral-molnupiravir-reduced-the-risk-of-hospitalization-or-death-by-approximately-50-percent-compared-to-placebo-for-patients-with-mild-or-moderat/)[K](https://www.merck.com/news/merck-and-ridgebacks-investigational-oral-antiviral-molnupiravir-reduced-the-risk-of-hospitalization-or-death-by-approximately-50-percent-compared-to-placebo-for-patients-with-mild-or-moderat/)
+译文：今天，默克的研究仍在预防、治疗那些威胁人类与动物的疾病，包含癌症、伊波拉及爱滋等传染性疾病、新兴的动物疾病。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-3-1.png)
+來源￨[YAHOO JAPAN](https://news.yahoo.co.jp/articles/c6a30e2f3285fb892b40d4bdbf94b0dd2bcc105c)/GNEWS/[默沙東實驗報告](https://www.merck.com/news/merck-and-ridgebacks-investigational-oral-antiviral-molnupiravir-reduced-the-risk-of-hospitalization-or-death-by-approximately-50-percent-compared-to-placebo-for-patients-with-mild-or-moderat/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

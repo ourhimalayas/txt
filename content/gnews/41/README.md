@@ -2,13 +2,15 @@
 ---
 
 
-## 日本政府决定将边境中共病毒疫情管控措施延长到年底
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1769730/)
+## 2021年12月17日文贵大直播简报
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1769794/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12._19-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/文贵大直播12.17.png)
+【参考链接】[https://gtv.org/broadcast/watch/61b0b18fbbd75f62e532ced9](https://gtv.org/video/id=61b5f49556f4921401b604a9)
+
+文案提供：回响 / Ermat / 大浪小水花
+制作：艾伦
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

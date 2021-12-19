@@ -2,42 +2,33 @@
 ---
 
 
-## 曝光：利兹·切尼 (Liz Cheney) 接受了中国共产党影响力集团颁发的“政治家风度”奖
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1770444/)
+## 有声|郭先生解析中共年前抢夺盘古和裕达的原因
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1770448/)
 
-加拿大温哥华扬帆农场 翻译：文农
+配音：香草山美食部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+12月17日，郭文贵先生在直播中解析道，习近平其实既相信风水，也相信自然的力量。
 
+郭先生提到，盘古实为地上阳龙，而其地下5层又连接在一起构成了滔龙。时逢明年正好是虎年，但风水学中却相当忌讳龙虎斗——因为龙虎相争必有一伤——然而彭丽媛属虎。因此，习近平认定，盘古此设计会对彭丽媛不利，于是把盘古的龙头改成龟头，但此举实际代表着共产党对爆料革命的极端恐惧。
 
+郭先生还透露，由于习近平对巫术的崇拜，这让他非常相信黑蛇、白蛇的故事。而盘古和裕达可谓“北有龙头，南有佛手”——这是一个风水大阵，可使万事皆达。因此，马明哲也向习近平递了投名状：其与李友一起抢夺了郑州裕达。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/IMG_0366.jpg)
+郭先生解释道，共产党用巫术治理国家的方式，与中国五千年来惯于用巫术、蛊术治国的封建王朝一模一样，但他们最后的结局都是灭亡。这正应验了一句谶语，使用巫术者必被巫术反噬。
 
+文字版原文：[郭先生解析中共年前抢夺盘古和裕达的原因](https://gnews.org/zh-hans/1766971/)
 
-图片来源：thenationalpulse.com
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-美国众议员利兹·切尼 (Liz Cheney) 接受了中美交流基金会（CUSEF）赞助的奖项，这是一个由中共支持的臭名昭著的团体，被美国政府标记为：努力胁迫美国领导人“在行动或立场上与中共保持一致”。
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-众议员切尼[与](https://www.usafmc.org/statesmanship-2021)参议员蒂姆·斯科特、克里斯·库恩斯和众议员吉姆·克莱本一起获得了前国会议员协会 (FMC) 2021 年政治家精神奖。该奖项的赞助商包括中美交流基金会。
-
-切尼是一个频繁的唐纳德·特朗普批评者、众议院1月6日调查委员会成员，也参与了一项与前国会议员协会的对话讨论，该组织与中美交流基金会有长期[合作](https://thenationalpulse.com/exclusive/former-reps-sponsored-trips-to-china/)记录。
-
-“中美交流基金会”由负责中共对外统一战线的最高组织-中共统战部-副主席创立，是[被美中经济与安全评估委员会](https://zh.wikipedia.org/zh-cn/%E7%BE%8E%E4%B8%AD%E7%B6%93%E6%BF%9F%E6%9A%A8%E5%AE%89%E5%85%A8%E6%AA%A2%E8%A8%8E%E5%A7%94%E5%93%A1%E6%9C%83)认定的中共执行机构，主旨为“拉拢结盟，消除潜在的对中共政策、权威的威胁”，并“影响外国政府在行动或立场上支持中共”。
-
-美国国务院[将](https://2017-2021.state.gov/designation-of-the-national-association-for-chinas-peaceful-unification-nacpu-as-a-foreign-mission-of-the-prc/index.html)统一战线比作中国政权推进其偏爱政策的“法宝”。
-
-根据外国代理人登记法 (FARA) 的文件，中美交流基金会已对美国记者和[前](https://thenationalpulse.com/exclusive/former-reps-sponsored-trips-to-china/)国会议员采用了上述的策略，比如提供免费中国旅行以换取“有利的报道”。这些旅行实际上就是向媒体、主要影响者、意见倡导者以及公众灌输关于中共所谓的“正面消息”。
-
-正是这个中国紧密勾结并努力采取影响行动的近百人的基金会赞助了此次颁奖活动。
-
-切尼众议员接受 CUSEF 资助的奖项，与此前《国家脉搏》曝光她丈夫受雇于一家与中共往来密切的律师事务所接踵相联。
-
-参考资料；
-
-thenationalpulse.com /exclusive/cheney-receives-award-sponsored-by-ccp-influence-group/
-
-编审：文敏   发布：天予
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
