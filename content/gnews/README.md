@@ -15,59 +15,59 @@
 
 ---
 
-### [12/10郭文贵直播：欧洲四国将抵制冬奥会并与中共经济脱钩（粤语配音）](/content/gnews/1/README.md)
+### [Omicron对污染区和有病史的及两三针疫苗接种者极危险](/content/gnews/1/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [12/10郭文贵直播：欧洲四国将抵制冬奥会并与中共经济脱钩（粤语配音）](/content/gnews/2/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [习近平彭丽媛施巫术源于对死亡的极度恐惧和对人世失望](/content/gnews/2/README.md)
+### [习近平彭丽媛施巫术源于对死亡的极度恐惧和对人世失望](/content/gnews/3/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [80万Covid死亡：拜登傲慢对待记者质问](/content/gnews/3/README.md)
+### [80万Covid死亡：拜登傲慢对待记者质问](/content/gnews/4/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [家庭背景和成长经历是一条线的彭丽媛脑子越空白越疯狂](/content/gnews/4/README.md)
+### [家庭背景和成长经历是一条线的彭丽媛脑子越空白越疯狂](/content/gnews/5/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [秘翻在线：杰森·米勒将于本周日做客法国记者埃里克·莫里洛的节目](/content/gnews/5/README.md)
+### [秘翻在线：杰森·米勒将于本周日做客法国记者埃里克·莫里洛的节目](/content/gnews/6/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [港人不再治港，香港第七届立法会选举人气凋零，林郑月娥 李家超上街拉票](/content/gnews/6/README.md)
+### [港人不再治港，香港第七届立法会选举人气凋零，林郑月娥 李家超上街拉票](/content/gnews/7/README.md)
  ` 首尔天池农场`
 
-### [靠借钱做生意什么都敢吃明天死了今天也得工作的中国人](/content/gnews/7/README.md)
+### [靠借钱做生意什么都敢吃明天死了今天也得工作的中国人](/content/gnews/8/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [北京利用警察和安全培训渗透外国](/content/gnews/8/README.md)
+### [北京利用警察和安全培训渗透外国](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [秘翻在线：张文宏说病毒或将结束于明年底，并积极推行疫苗第三针](/content/gnews/9/README.md)
+### [秘翻在线：张文宏说病毒或将结束于明年底，并积极推行疫苗第三针](/content/gnews/10/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [彼得·纳瓦罗是福奇最恐惧的噩梦](/content/gnews/10/README.md)
+### [彼得·纳瓦罗是福奇最恐惧的噩梦](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [5种中国进口的食品千万别吃](/content/gnews/11/README.md)
+### [5种中国进口的食品千万别吃](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2021年12月18日郭先生盖特 — 视频盖特2「9分56秒」](/content/gnews/12/README.md)
+### [2021年12月18日郭先生盖特 — 视频盖特2「9分56秒」](/content/gnews/13/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [彭副主席正式走向前台，是否会步江副组长后尘？](/content/gnews/13/README.md)
+### [彭副主席正式走向前台，是否会步江副组长后尘？](/content/gnews/14/README.md)
  ` 波士顿五月花农场`
 
-### [德巨头遭施压 中共要求其切断与立陶宛的商业关系](/content/gnews/14/README.md)
+### [德巨头遭施压 中共要求其切断与立陶宛的商业关系](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2021年12月18日郭先生盖特 1— 视频盖特「1分46秒」](/content/gnews/15/README.md)
+### [2021年12月18日郭先生盖特 1— 视频盖特「1分46秒」](/content/gnews/16/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [【Michael.Tonny专栏】英国官方数据和报告证明 对公众宣称的疫苗接种数据造假（下）](/content/gnews/16/README.md)
+### [【Michael.Tonny专栏】英国官方数据和报告证明 对公众宣称的疫苗接种数据造假（下）](/content/gnews/17/README.md)
  ` 温哥华扬帆农场`
 
-### [荷兰首相：荷兰将从周日开始进入封锁状态](/content/gnews/17/README.md)
+### [荷兰首相：荷兰将从周日开始进入封锁状态](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [为打第三针 中共已近乎疯狂](/content/gnews/18/README.md)
- ` G-NEWS TAIWAN`
 
 ### [7·24系列——“中植系”解直锟](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
@@ -138,17 +138,17 @@
 ### [有声|生命的意义是什么？（第二集）](/content/gnews/41/README.md)
  ` MOSREC`
 
-### [视频| 共产党把盘古龙头变鸟头的原因（三）](/content/gnews/42/README.md)
+### [视频| 习近平命不久矣](/content/gnews/42/README.md)
  ` MOSREC`
 
-### [视频| 习近平命不久矣](/content/gnews/43/README.md)
- ` MOSREC`
-
-### [加拿大保守党议员批评特鲁多政府想永久执行疫苗强制令](/content/gnews/44/README.md)
+### [加拿大保守党议员批评特鲁多政府想永久执行疫苗强制令](/content/gnews/43/README.md)
  ` 首尔天池农场`
 
-### [秘翻在线：“相信政府，反而失去了家人”…疫苗受害者家人在暴雪中哭诉](/content/gnews/45/README.md)
+### [秘翻在线：“相信政府，反而失去了家人”…疫苗受害者家人在暴雪中哭诉](/content/gnews/44/README.md)
  ` 秘密翻譯組G-Translators`
+
+### [【#G时新闻】路易斯安娜州长因强制儿童接种疫苗被州司法部长起诉](/content/gnews/45/README.md)
+ ` G-时新闻`
 
 ### [日本政府决定将边境中共病毒疫情管控措施延长到年底](/content/gnews/46/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
