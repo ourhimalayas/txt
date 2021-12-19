@@ -2,22 +2,40 @@
 ---
 
 
-## 秘翻在线：“相信政府，反而失去了家人”…疫苗受害者家人在暴雪中哭诉
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1769896/)
+## 普京以个人名义接受习近平的邀请出席2022年北京冬奥会
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1770068/)
 
-翻译/撰稿: Eric Kim(文言)KR
-![](https://assets.gnews.org/wp-content/uploads/2021/12/画像3.png)图片来源：韩国中央日报
-2021年12月18日下午4时，下起了鹅毛大雪的韩国首尔西大门区独立门前摆满了40名疫苗受害者的遗照。在恶劣的天气中，站在遗照旁的人们对来往的市民哭诉道：“请驻足倾听下我们的冤屈”……他们正是COVID-19疫苗受害者的家人们。
+![Russia's President Vladimir Putin (R) and his Chinese counterpart Xi Jinping meet in the Grand Kremlin Palace in Moscow, on March 22, 2013. Xi Jinping arrived today in Moscow on his first foreign trip, to cement ties between the two countries by inking a raft of energy and investment accords. …](https://media.breitbart.com/media/2018/06/GettyImages-164278591-640x480.jpg)*资料照：习近平与普金*
+克里姆林宫首次证实，习近平已于11月中旬邀请普京参加2022年北京冬奥会开幕式活动，并称普京仍需“确定”日程，然后再正式确认接受邀请。 普京在12月15日（周三）的一次虚拟会议上直接与习近平交谈时，收到了第二次更正式的邀请。
 
-因相信韩国政府，让家人接种了疫苗导致家人死亡，其原因却不被韩国政府所承认，何其悲哀。为受害者鸣不平的家人们自主成立了“COVID-19疫苗受害者家人互助会”(Kobaekhoe)，当天在独立门和青瓦台前举行了第5次蜡烛集会。11月20日，在国会前举行“疫苗牺牲者追悼仪式”后，每周六都会聚在一起的人们高喊着“我们的死亡是韩国政府造成的人祸”，并要求政府解释疫苗受害原因，并承认其因果关系。
+《雅虎体育》周三指出，在普京和习近平进行了长达数小时的视频对话后，普京确认如果不是习近平亲自邀请他，他出席奥运会将违反国际奥委会（IOC）的规定。
 
-当日，Kobaekhoe会长(KIM DUKEONG)对政府发出了质疑：“真想问问我们的政府，为什么我们要拿着家属遗照带着如此委屈的心情来到这里？这就是对疫苗安全负责的承诺吗？”，又说到“政府对直到昨天还健康完整，却在家人接种疫苗死亡后濒临破碎的家庭，只是表示遗憾和不承认其因果关系的态度，良心不会痛吗？”
+从2017年开始，国际奥委会禁止俄罗斯参加奥运会，世界锦标赛机构也采取了相同措施。当时一名俄罗斯运动队举报人透露，政府组织了一场大规模阴谋，向多达 1,000 名运动员提供提高成绩的药物，导致俄罗斯运动员在数十场世界赛事上获胜的成绩现在仍受到质疑，并可能因此而不再被视为诚实的参赛者。
 
-据COVID-19疫苗接种应对小组称，从2021年2月26日至16日开始接种疫苗的人中，已经有977例疑似因接种后因副作用死亡的报告。自上个月20日Kobaekhoe举行第一次烛光守夜以来的四个星期内，报告的死亡人数增加了60人。
+这项正在进行的禁令包括2022年北京奥运会。人权活动人士已经谴责北京冬奥会是对目前正在进行种族灭绝的中共国的脸上贴金，这是奥运会的耻辱。正如《雅虎体育》所指出的那样，决定对俄罗斯队进行处罚的体育仲裁法院（CAS）“禁止在制服或仪式上展示俄罗斯国旗。它还规定俄罗斯政府官员不得‘参加或出席’奥运会。”
 
-信息来源: [https://www.joongang.co.kr/article/25033413](https://www.joongang.co.kr/article/25033413)
+然而， “该命令不适用于受东道国国家元首或总理 [或同等职位] 邀请参加特定活动的政府代表。”正是这一个漏洞使得习近平有机可乘。
 
-责编:待命(文晓)
+简评：
+
+普京接受习近平的邀请出席开幕式总统只是表面文章。正如郭文贵先生在多次揭露的那样，在这场政治作秀的背后是利益的交易。习近平已经进入了历史上所有独裁者都必须经历的的最后疯狂，为了营造所谓的“万邦来朝”，不惜花大把大把的银子去收买各国。这世上没人会跟银子过不去，所以普京也当然不例外。但是，俄罗斯毕竟不是前苏联。普京当年没有成为习近平眼里的那个“七尺男儿”，想来如今更不会甘愿为另一个大厦将倾的共产党政权做陪葬。而且，难道普京会愿意和一个进行种族大屠杀、反人类的犯罪团伙的头目站在同一个主席台上？普京的聪明不是习可以明白的。北京冬奥会注定是一场笑话。
+
+Task Link: [https://www.breitbart.com/asia/2021/12/17/vladimir-putin-gloats-over-china-invite-to-genocide-games-flaunting-olympics-russia-ban/](https://www.breitbart.com/asia/2021/12/17/vladimir-putin-gloats-over-china-invite-to-genocide-games-flaunting-olympics-russia-ban/)
+
+Translator: 苹果树
+
+PR: clau
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
