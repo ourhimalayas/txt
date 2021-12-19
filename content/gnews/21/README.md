@@ -2,66 +2,48 @@
 ---
 
 
-## 【Michael.Tonny专栏】英国官方数据和报告证明 对公众宣称的疫苗接种数据造假（下）
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1770981/)
+## 德巨头遭施压 中共要求其切断与立陶宛的商业关系
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1770989/)
 
-作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
-[接上篇：【Michael.Tonny专栏】英国官方数据和报告证明 对公众宣称的疫苗接种数据造假（上）](https://gnews.org/zh-hans/1770915/)
+**翻译:里奇**
 
-根据英国卫生安全局（UK Health Security Agency）发布的《[COVID-19 vaccine surveillance report Week 50](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1041593/Vaccine-surveillance-report-week-50.pdf)》报告第三页Population impact一段，到 2021年12 月12日，英格兰第1剂疫苗的总体接种率为67.9%，第2剂疫苗为62.2%，第3剂的接种率为 31.4%。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Population-impact.png)
-结合英格兰总人口、年龄分布、和卫生安全局的报告，可得到下表计算结果：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip18-1.png)德国轮胎公司大陆集团的标志于 2021 年 3 月 9 日在德国汉诺威举行的年度新闻发布会前拍摄。REUTERS/Fabian Bimmer
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Covid-19-Vaccination-Uptake-in-England-a.jpg)
+路透维尔纽斯/法兰克福 12 月 17 日 – 两名知情人士告诉路透，中国正向德国汽车零部件巨头大陆集团 (CONG.DE) 施压，要求其停止使用立陶宛制造的零部件，因为北京与这个波罗的海国家之间就台湾的地位存在纷争。
 
-也就是说，根据英国各部门的数据汇总到一起推算，在英格兰5598万人中，没有打毒疫苗的人有2350.5万，拒绝打疫苗的人口为2350.5-815.2=1535.3万，远比政客和媒体从9月份到现在一直宣称的500万人多得多。
+大陆集团此次中枪成为一个生动案例，它体现了在全球供应链时代，中国与立陶宛的外交争端正在蔓延到商业领域，并影响到作为欧洲最大经济体利润丰厚的支柱的德国汽车业。
 
-英国政客和媒体一直在对公众撒谎！隐瞒数字，把拒绝打毒疫苗群体变成人数人，对拒绝打疫苗的人进行道德和法律绑架！
+在台湾在维尔纽斯开设代表处后，将自治的台湾视为其领土的中国政府上个月降低了与立陶宛的外交关系。立陶宛执政联盟去年也同意支持台湾并称之为 “为自由而战的人” 。
 
-更为严重的是，英国政客和媒体，很少向公众透露疫苗有毒的事实。注射毒疫苗既不能预防感染，也不能减少死亡，反而是成倍增加感染概率、增加感染后住院概率、增加死亡概率！
+大陆集团是全球最大的汽车零部件制造商之一，在立陶宛设有生产基地，生产车门和座椅控制器等电子零部件，并出口到包括中国在内的全球客户。
 
-TheExpose.uk就根据[英国卫生安全局（UK Health Security Agency）](https://www.gov.uk/government/organisations/uk-health-security-agency)2021年12月9日发布的第49周全国流感和COVID-19监测报告（[National flu and COVID-19surveillance report:9 December 2021 (week 49)](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1039639/Weekly_Flu_and_COVID-19_report_w49.pdf)）得出结论：自8月16日至12月5日期间，英国每5个感染中共病毒病例中有3个、每5个住院病例中有3个、每5个死亡病例中有4个已完全接种疫苗。未接种疫苗的人感染中共病毒后的病死率为0.2%，完全接种疫苗为0.8%；未接种疫苗人感染中共病毒后的住院死亡率为26%，完全接种疫苗的人群为63%。
+德国行业消息人士称，不仅大陆集团感受到了压力，还有多达 12 家公司感受到了压力，主要来自汽车和农业部门。为德国所有大型汽车制造商供货的大陆集团拒绝评论中国政府是否要求它切断与立陶宛的联系。
 
-今年8月16日至12月5日期间，未接种疫苗的人因感染CCP病毒后的住院人数是11,767人，而接种疫苗后因感染中共病毒后住院的人数是19,730人，其中18,406人还是接种了两针毒剂量疫苗的人群。这意味着自2021年8月以来，接种疫苗的人群占所有因感染中共病毒而住院人数的 63%，接种疫苗不能预防病毒，更不能减少住院，有限的医疗资源反而是接种疫苗的人占据了大部分。
+中国外交部否认北京曾向此跨国公司施压，要求他们不要使用立陶宛生产的零部件，但表示中国公司不再信任立陶宛。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-154-1.png)
+一位中方发言人称，“一中一台” 的做法粗暴干涉中国内政，严重侵犯中国核心利益。
 
-自2021年8月以来，完全接种疫苗的人群占感染中共病毒死亡人数的大部分，尤其自10 月份情况确实变得更糟。
+他说：“听说很多中国企业不再把立陶宛视为值得信赖的合作伙伴。”“立陶宛企业在中国的经贸合作面临困境，立陶宛应该反省自己。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/fully-vaccinated-population-have-accounted-for-the-majority-of-Covid-19-deaths-every-single-month-since-August-2021.png)
+中国已向各国施压，要求其降级或断绝与民主治理的台湾的关系。本月早些时候，一位高级官员和一家行业机构表示，中国已告知跨国公司与立陶宛断绝关系，否则将面临被排除在中国市场之外的风险。
 
-从8月16日开始到12月5日，因感染中共病毒总共死亡15,128人，其中，未打疫苗者为3,070人，仅打一针疫苗者514人，打了两针疫苗者11,544人，已接种疫苗的人占79.7%，10月11日到11月7日四周内，打了疫苗的人占感染中共病毒后，总死亡人数的82.9%，11月8日到12月5日期间占80.1%。
+立陶宛与中国的直接贸易规模不大，但其出口型经济拥有数百家公司，这些公司为向中国销售的跨国公司生产家具、激光、食品和服装等产品。
 
-从8月16日开始到12月5日，接种疫苗的人群占中共病毒确诊病例的56%、住院人数的63%和死亡人数的 80%（79.7%）。
+立陶宛外交部表示：“在立陶宛运营的公司已成功融入国际供应链，因此中国的经济施压措施可能会对在立陶宛运营的公司造成各种干扰。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-612.png)
+“我们密切关注、分析和评估每一个此类案例，包括这些德国公司” 发言人补充说，立陶宛“正在寻找长期可持续的解决方案和方法来恢复与中国的贸易流动”。
 
-最后看一下，同样是感染了CCP病毒，没有打疫苗的人最终死亡率为0.2%，而打了疫苗的人为0.8%。
+**新闻来源**：[路透社][EXCLUSIVE China pressures Germany’s Continental to cut out Lithuania – sources](https://www.reuters.com/world/china/exclusive-china-asks-germanys-continental-cut-out-lithuania-sources-2021-12-17/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/not-vaccinated-population-and-the-case-fatality-rate-among-the-vaccinated-population.png)
+* * *
 
-疫苗既不能预防感染，也不能减少死亡！
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
 
-政客和媒体通过隐瞒拒绝打疫苗的人数，用虚假数据使拒绝打毒疫苗的人处于被孤立的少部分，背上胆小、无知、不负责任或愚蠢的精神枷锁和甚至违法的沉重负担，这种用一个谎言掩盖另一个谎言，必将受到人类的审判！
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-4.jpeg)
 
-参考数据：
 
-[COVID-19 vaccine surveillance report Week 50](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1041593/Vaccine-surveillance-report-week-50.pdf)
-
-[Whilst you were distracted by a Christmas Party the UK Gov. released a report confirming the Fully Vaccinated account for 4 in every 5 Covid-19 Deaths in England since August](https://dailyexpose.uk/2021/12/11/report-shows-4-in-5-covid-deaths-fully-vaccinated/)
-
-[Population of England in 2020, by age group](https://www.statista.com/statistics/281208/population-of-the-england-by-age-group/)
-
-[It’s time to punish Britain’s five million vaccine refuseniks: They put us all at risk of more restrictions, says ANDREW NEIL. So why shouldn’t we curb some of their freedoms?](https://www.dailymail.co.uk/debate/article-10294225/Its-time-punish-Britains-five-million-vaccine-refuseniks-says-ANDREW-NEIL.html)
-
-[COVID-19 vaccine surveillance report Week 49](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1039677/Vaccine_surveillance_report_-_week_49.pdf)
-
-[Covid jab rollout for 12 to 15-year-olds to start in UK schools](https://www.bbc.com/news/uk-58552769)
-
-[UK Government report admits there are 23.5 Million people in England who have NOT had a single dose of a Covid-19 Vaccine](https://dailyexpose.uk/2021/12/17/23-million-not-vaccinated-in-england/)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/) 上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

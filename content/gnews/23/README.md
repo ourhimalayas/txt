@@ -2,50 +2,66 @@
 ---
 
 
-## 7·24系列——“中植系”解直锟
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1770934/)
+## 【Michael.Tonny专栏】英国官方数据和报告证明 对公众宣称的疫苗接种数据造假（下）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1770981/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/266dde92b7bf461f822746a71b6ea80a.png)
-**整理：**BENJ1
-**编辑：**翼族
+作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+[接上篇：【Michael.Tonny专栏】英国官方数据和报告证明 对公众宣称的疫苗接种数据造假（上）](https://gnews.org/zh-hans/1770915/)
 
-郭文贵先生在2021年12月18日盖特小视频中提到“中植系”解直锟：
+根据英国卫生安全局（UK Health Security Agency）发布的《[COVID-19 vaccine surveillance report Week 50](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1041593/Vaccine-surveillance-report-week-50.pdf)》报告第三页Population impact一段，到 2021年12 月12日，英格兰第1剂疫苗的总体接种率为67.9%，第2剂疫苗为62.2%，第3剂的接种率为 31.4%。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Population-impact.png)
+结合英格兰总人口、年龄分布、和卫生安全局的报告，可得到下表计算结果：
 
-##### 毛阿敏的老公解直锟——‘中植系’掌门人，昨天刚过世，才六十岁，因为打了三针疫苗。十个月以前他就开始被中纪委立案调查，要求把钱和公司管理权都交出来，他的弟弟解直铭（应为口误，实为解直锟的哥哥解植春）中国人民银行的，王岐山的人，跟郭树清、潘功胜、周亮这些人好，他两属于东北帮出来的，原来和张宏伟PK过。现在打了三针又逢共产党抢钱，那真地没法活了，一路走好。下一个就轮到张宏伟了，这人也打了三针辉瑞疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Covid-19-Vaccination-Uptake-in-England-a.jpg)
 
-年纪在40岁以上的中国人，对毛阿敏都不陌生。毛阿敏，1963年3月1日生于上海，是1980年代和1990年代中国流行乐坛天后级女歌手，代表作有《渴望》、《思念》、《绿叶对根的情意》等。2002年与解直锟相识，2003年结婚，2004年产下一女，2008年又生下一子。
+也就是说，根据英国各部门的数据汇总到一起推算，在英格兰5598万人中，没有打毒疫苗的人有2350.5万，拒绝打疫苗的人口为2350.5-815.2=1535.3万，远比政客和媒体从9月份到现在一直宣称的500万人多得多。
 
-解直锟1961年1月出生于黑龙江省，原名解植坤，中植企业集团创始人，曾任中植企业集团首席执行官，同时担任北京大学、复旦大学和南开大学的校董。解家共有六个兄弟姐妹，解直锟有三个姐姐，在兄弟中行二。
+英国政客和媒体一直在对公众撒谎！隐瞒数字，把拒绝打毒疫苗群体变成人数人，对拒绝打疫苗的人进行道德和法律绑架！
 
-[中植企业集团官网](http://www.zhongzhi.com.cn/about.html)显示，公司业务涵盖半导体、大数据、大消费、新能源汽车、生态环保等；在金融板块方面，控股或参股了**中融信托**、中融基金等六家持牌金融机构，中海晟融、中植国际等五家资产管理公司，以及四家财富管理公司。中植企业集团通过旗下金融平台等曾入股或控股多家中港上市公司，包括中金科技服务、ST天山、宇顺电子、美尔雅、康盛股份等。
+更为严重的是，英国政客和媒体，很少向公众透露疫苗有毒的事实。注射毒疫苗既不能预防感染，也不能减少死亡，反而是成倍增加感染概率、增加感染后住院概率、增加死亡概率！
 
-天眼查平台、相关上市公司披露的资料都显示，中植集团注册成立于1989年。它的前身是五营区地方企业联合开发公司，注册资本140万元，经过10多年的经营积累，到2000年注册资本变更为1亿元。
+TheExpose.uk就根据[英国卫生安全局（UK Health Security Agency）](https://www.gov.uk/government/organisations/uk-health-security-agency)2021年12月9日发布的第49周全国流感和COVID-19监测报告（[National flu and COVID-19surveillance report:9 December 2021 (week 49)](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1039639/Weekly_Flu_and_COVID-19_report_w49.pdf)）得出结论：自8月16日至12月5日期间，英国每5个感染中共病毒病例中有3个、每5个住院病例中有3个、每5个死亡病例中有4个已完全接种疫苗。未接种疫苗的人感染中共病毒后的病死率为0.2%，完全接种疫苗为0.8%；未接种疫苗人感染中共病毒后的住院死亡率为26%，完全接种疫苗的人群为63%。
 
-2000年4月，解直锟与黑龙江中植企业集团公司工会委员会（下称中植工委会）共同设立黑龙江中植企业集团有限公司（下称黑龙江中植）。解直锟和中植工委会分别实缴出资1.7752亿元、4438万元，出资比例分别为80%、20%。2000年5月，黑龙江中植将公司更名为中植集团。
+今年8月16日至12月5日期间，未接种疫苗的人因感染CCP病毒后的住院人数是11,767人，而接种疫苗后因感染中共病毒后住院的人数是19,730人，其中18,406人还是接种了两针毒剂量疫苗的人群。这意味着自2021年8月以来，接种疫苗的人群占所有因感染中共病毒而住院人数的 63%，接种疫苗不能预防病毒，更不能减少住院，有限的医疗资源反而是接种疫苗的人占据了大部分。
 
-2003年，中植集团注册资本增至5亿元。2009年，解直锟将所持中植集团80%的股权转让给刘洋（解直锟外甥）。2011年2月，刘洋又将所持中植集团80%的股权转让给解蕙淯（解直锟与前妻生育的大女儿），中植工委会将所持中植集团 20%的股权转让给刘义良。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-154-1.png)
 
-2011年6月，中植集团注册资本增至12亿元，新增的7亿元注册资本由上海禾国源实业有限公司（下称禾国源）认购。增资完成后，禾国源、解蕙淯和刘义良在中植集团的出资比例分别为58.34%、33.33%、8.33%。
+自2021年8月以来，完全接种疫苗的人群占感染中共病毒死亡人数的大部分，尤其自10 月份情况确实变得更糟。
 
-2011年7月，禾国源将所持中植集团58.34%股权转让给解直锟。2012年1月，解直锟又将这部分股权悉数转让给刘义良。刘义良和解蕙淯成为中植集团唯二的股东，出资比例分别是66.67%、33.33%。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/fully-vaccinated-population-have-accounted-for-the-majority-of-Covid-19-deaths-every-single-month-since-August-2021.png)
 
-2015年9月，中植集团将注册资本增至50亿元，新增38亿元注册资本由解直锟全资持股的中海晟丰（北京）资本管理有限公司（下称中海晟丰）认购。中海晟丰、刘义良和解蕙淯的出资比例分别是76%、16%和8%。此后中植集团的股权结构一直保持至今天。
+从8月16日开始到12月5日，因感染中共病毒总共死亡15,128人，其中，未打疫苗者为3,070人，仅打一针疫苗者514人，打了两针疫苗者11,544人，已接种疫苗的人占79.7%，10月11日到11月7日四周内，打了疫苗的人占感染中共病毒后，总死亡人数的82.9%，11月8日到12月5日期间占80.1%。
 
-解直锟大哥解植春，曾担任光大证券总裁，中国光大（集团）总公司执行董事、副总经理，光大永明人寿保险公司董事长。2014年4月，解植春调任中央汇金公司总经理，后辞职。解植春现为中国富强金融（港股上市）的董事会主席。
+从8月16日开始到12月5日，接种疫苗的人群占中共病毒确诊病例的56%、住院人数的63%和死亡人数的 80%（79.7%）。
 
-2017年3月20日《华尔街日报》报道，解直锟在开曼群岛法院提起诉讼，指控XIO董事长Athene Li和首席执行长Joseph Pacini串谋诈骗。《华尔街日报》获得的资料显示，解直锟于2014年曾授权Athene Li处理他在开曼群岛的Dorsey Ventures公司的投资，Li作为公司的法定所有人，但股份委托协议中却说明解直锟才是公司实际所有人，报道称：“（中植）庞大的企业群，在股权关系上勾稽复杂，空壳公司且用且弃，资本运作眼花缭乱。‘中植系’成员间合作密切，但在规避法律意义上的控制关系、隔断资金链危机等环节精妙设计、手法老到，使其在规则边缘游刃有余，远胜昔日德隆”。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-612.png)
 
-2018年3月13日，A股上市公司经纬纺机公告称，将收购中植集团所持中融信托32.98%股权。中植集团之前持有中融信托32.99%股权，是其第二大股东，位列大股东经纬纺机之后。本次收购完成后，中植集团几乎将中融信托的股权全部售出。
+最后看一下，同样是感染了CCP病毒，没有打疫苗的人最终死亡率为0.2%，而打了疫苗的人为0.8%。
 
-中融信托是中国国内最大的信托巨头之一，与中信信托、平安信托并列信托业第一梯队。2017年，中融信托营收位列行业第二、以28亿利润位列行业第四。中植系一贯的运作方式就是一手靠着信托充实“钱袋子”，然后另一只手在市场上大肆买买买，中植系把自己最大的“钱袋子” 中融信托都交给央企，即便如此中共也没有放过他，一路走好，解直锟……
+![](https://assets.gnews.org/wp-content/uploads/2021/12/not-vaccinated-population-and-the-case-fatality-rate-among-the-vaccinated-population.png)
 
-*发布：翼族*
+疫苗既不能预防感染，也不能减少死亡！
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+政客和媒体通过隐瞒拒绝打疫苗的人数，用虚假数据使拒绝打毒疫苗的人处于被孤立的少部分，背上胆小、无知、不负责任或愚蠢的精神枷锁和甚至违法的沉重负担，这种用一个谎言掩盖另一个谎言，必将受到人类的审判！
+
+参考数据：
+
+[COVID-19 vaccine surveillance report Week 50](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1041593/Vaccine-surveillance-report-week-50.pdf)
+
+[Whilst you were distracted by a Christmas Party the UK Gov. released a report confirming the Fully Vaccinated account for 4 in every 5 Covid-19 Deaths in England since August](https://dailyexpose.uk/2021/12/11/report-shows-4-in-5-covid-deaths-fully-vaccinated/)
+
+[Population of England in 2020, by age group](https://www.statista.com/statistics/281208/population-of-the-england-by-age-group/)
+
+[It’s time to punish Britain’s five million vaccine refuseniks: They put us all at risk of more restrictions, says ANDREW NEIL. So why shouldn’t we curb some of their freedoms?](https://www.dailymail.co.uk/debate/article-10294225/Its-time-punish-Britains-five-million-vaccine-refuseniks-says-ANDREW-NEIL.html)
+
+[COVID-19 vaccine surveillance report Week 49](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1039677/Vaccine_surveillance_report_-_week_49.pdf)
+
+[Covid jab rollout for 12 to 15-year-olds to start in UK schools](https://www.bbc.com/news/uk-58552769)
+
+[UK Government report admits there are 23.5 Million people in England who have NOT had a single dose of a Covid-19 Vaccine](https://dailyexpose.uk/2021/12/17/23-million-not-vaccinated-in-england/)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/) 上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

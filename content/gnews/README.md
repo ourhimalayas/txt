@@ -15,109 +15,109 @@
 
 ---
 
-### [香港议会选举，没有民主派](/content/gnews/1/README.md)
+### [从人口老龄化和社会保障性支出简析各国强制疫苗政策化解财政危机的动机](/content/gnews/1/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2至5岁儿童低剂量疫苗试验失败！辉瑞和生物技术将申请第三剂紧急授权](/content/gnews/2/README.md)
+### [香港议会选举，没有民主派](/content/gnews/2/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [DC每日热点1219](/content/gnews/3/README.md)
+### [2至5岁儿童低剂量疫苗试验失败！辉瑞和生物技术将申请第三剂紧急授权](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [DC每日热点1219](/content/gnews/4/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [Omicron对污染区和有病史的及两三针疫苗接种者极危险](/content/gnews/4/README.md)
+### [Omicron对污染区和有病史的及两三针疫苗接种者极危险](/content/gnews/5/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [12/10郭文贵直播：欧洲四国将抵制冬奥会并与中共经济脱钩（粤语配音）](/content/gnews/5/README.md)
+### [波音加入美铁等联邦承包商抛弃疫苗授权](/content/gnews/6/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [12/10郭文贵直播：欧洲四国将抵制冬奥会并与中共经济脱钩（粤语配音）](/content/gnews/7/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [习近平彭丽媛施巫术源于对死亡的极度恐惧和对人世失望](/content/gnews/6/README.md)
+### [习近平彭丽媛施巫术源于对死亡的极度恐惧和对人世失望](/content/gnews/8/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [80万Covid死亡：拜登傲慢对待记者质问](/content/gnews/7/README.md)
+### [80万Covid死亡：拜登傲慢对待记者质问](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [家庭背景和成长经历是一条线的彭丽媛脑子越空白越疯狂](/content/gnews/8/README.md)
+### [家庭背景和成长经历是一条线的彭丽媛脑子越空白越疯狂](/content/gnews/10/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [秘翻在线：杰森·米勒将于本周日做客法国记者埃里克·莫里洛的节目](/content/gnews/9/README.md)
+### [秘翻在线：杰森·米勒将于本周日做客法国记者埃里克·莫里洛的节目](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [矢板明夫赞赏台湾四大公投结果](/content/gnews/10/README.md)
+### [矢板明夫赞赏台湾四大公投结果](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [港人不再治港，香港第七届立法会选举人气凋零，林郑月娥 李家超上街拉票](/content/gnews/11/README.md)
+### [港人不再治港，香港第七届立法会选举人气凋零，林郑月娥 李家超上街拉票](/content/gnews/13/README.md)
  ` 首尔天池农场`
 
-### [靠借钱做生意什么都敢吃明天死了今天也得工作的中国人](/content/gnews/12/README.md)
+### [靠借钱做生意什么都敢吃明天死了今天也得工作的中国人](/content/gnews/14/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [北京利用警察和安全培训渗透外国](/content/gnews/13/README.md)
+### [北京利用警察和安全培训渗透外国](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [秘翻在线：张文宏说病毒或将结束于明年底，并积极推行疫苗第三针](/content/gnews/14/README.md)
+### [秘翻在线：张文宏说病毒或将结束于明年底，并积极推行疫苗第三针](/content/gnews/16/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [彼得·纳瓦罗是福奇最恐惧的噩梦](/content/gnews/15/README.md)
+### [彼得·纳瓦罗是福奇最恐惧的噩梦](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [5种中国进口的食品千万别吃](/content/gnews/16/README.md)
+### [5种中国进口的食品千万别吃](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2021年12月18日郭先生盖特 — 视频盖特2「9分56秒」](/content/gnews/17/README.md)
+### [2021年12月18日郭先生盖特 — 视频盖特2「9分56秒」](/content/gnews/19/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [彭副主席正式走向前台，是否会步江副组长后尘？](/content/gnews/18/README.md)
+### [彭副主席正式走向前台，是否会步江副组长后尘？](/content/gnews/20/README.md)
  ` 波士顿五月花农场`
 
-### [德巨头遭施压 中共要求其切断与立陶宛的商业关系](/content/gnews/19/README.md)
+### [德巨头遭施压 中共要求其切断与立陶宛的商业关系](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2021年12月18日郭先生盖特 1— 视频盖特「1分46秒」](/content/gnews/20/README.md)
+### [2021年12月18日郭先生盖特 1— 视频盖特「1分46秒」](/content/gnews/22/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [【Michael.Tonny专栏】英国官方数据和报告证明 对公众宣称的疫苗接种数据造假（下）](/content/gnews/21/README.md)
+### [【Michael.Tonny专栏】英国官方数据和报告证明 对公众宣称的疫苗接种数据造假（下）](/content/gnews/23/README.md)
  ` 温哥华扬帆农场`
 
-### [荷兰首相：荷兰将从周日开始进入封锁状态](/content/gnews/22/README.md)
+### [荷兰首相：荷兰将从周日开始进入封锁状态](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [7·24系列——“中植系”解直锟](/content/gnews/23/README.md)
+### [7·24系列——“中植系”解直锟](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【Michael.Tonny专栏】英国官方数据和报告证明 对公众宣称的疫苗接种数据造假（上）](/content/gnews/24/README.md)
- ` 温哥华扬帆农场`
-
-### [共产党恐惧到用上了巫蛊之术](/content/gnews/25/README.md)
+### [共产党恐惧到用上了巫蛊之术](/content/gnews/26/README.md)
  ` 骄子`
 
-### [波音公司放弃了对美国雇员的疫苗强制接种令，加入了美国国铁和其他主要联邦承包商的行列](/content/gnews/26/README.md)
+### [波音公司放弃了对美国雇员的疫苗强制接种令，加入了美国国铁和其他主要联邦承包商的行列](/content/gnews/27/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [从解植锟之死说“暴富草民死亡公式”](/content/gnews/27/README.md)
+### [从解植锟之死说“暴富草民死亡公式”](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【中日财经爆】因中共病毒的影响，丰田将减产至2.2万辆汽车](/content/gnews/28/README.md)
+### [【中日财经爆】因中共病毒的影响，丰田将减产至2.2万辆汽车](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国遣责中共开发人脑控制武器](/content/gnews/29/README.md)
+### [美国遣责中共开发人脑控制武器](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [法庭允许拜登的疫苗计划生效 遭强烈反对](/content/gnews/30/README.md)
+### [未感染中共病毒乘客被强行拘留隔离](/content/gnews/31/README.md)
  ` GTV新闻访谈`
 
-### [南非住院率在世界奥米克戎激增时反而下降](/content/gnews/31/README.md)
+### [奥米克戎对重污染、打疫苗致死率极高](/content/gnews/32/README.md)
  ` GTV新闻访谈`
 
-### [内部文件显示亚马逊与中共大外宣之间的勾兑](/content/gnews/32/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [未感染中共病毒乘客被强行拘留隔离](/content/gnews/33/README.md)
+### [Eglise医生建议病毒高发区战友强化预防](/content/gnews/33/README.md)
  ` GTV新闻访谈`
 
-### [奥米克戎对重污染、打疫苗致死率极高](/content/gnews/34/README.md)
+### [德国选择党将于1月10日启用盖特官方账号](/content/gnews/34/README.md)
  ` GTV新闻访谈`
 
-### [Eglise医生建议病毒高发区战友强化预防](/content/gnews/35/README.md)
+### [纽约学区警告家长关注孩子心脏骤停情况](/content/gnews/35/README.md)
  ` GTV新闻访谈`
 
 ### [COVID-19 最新情报｜日本考虑公费负担新冠口服药 郭文贵曾爆新药副作用极强](/content/gnews/36/README.md)

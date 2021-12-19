@@ -2,34 +2,32 @@
 ---
 
 
-## 内部文件显示亚马逊与中共大外宣之间的勾兑
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1770820/)
+## 奥米克戎对重污染、打疫苗致死率极高
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1770818/)
 
-#### 撰稿：彩虹
+作者： 纽约香草山 晓仙女
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-2-15.jpg)图片来源：路透社
-12月18日，《新闻极限》引述《路透社》文章，揭示了亚马逊与中共大外宣之间不可见人的勾兑关系。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-《路透社》报道说，大约两年前，亚马逊公司在其中国网站（Amazon.cn）上推销习近平的讲话和著作集，当时中共国政府发布了一项法令，亚马逊电子商务必须停止在中共国开放客户评论和评分功能。
+12月18日，文贵先生在大直播中提到，解析奥米克戎病毒特点，文贵先生警示：奥米克戎病毒（Omicron）对不同种族和地区人的影响不同。奥米克戎传播性极强，对健康的人至死率没那么高，但对于大面积污染的地区死亡率极高，对有心血管疾病、呼吸道疾病 、肺部疾病、心脑梗问题疾病的人群非常危险，因为奥米克戎病毒的繁殖率极高。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-19-at-9.19.38-PM-1.png)
+文贵先生爆料，近一周内，中共国约有10万余人感染，最近全世界打过2-3针疫苗的人被传染概率更大，新冠疫苗本身就是毒，对身体造成堵塞，感染奥米克戎会加速堵塞，身体会极力抵抗，到了极限立即死亡。
 
-两位熟悉此事的人士中的一人说，对习近平书的负面评论导致了这项要求。另一位人士说：“我认为问题在于（不能存在）任何低于五星的评价”。在亚马逊电子商务系统中，五分是最高评价。
+参考链接：[奥米克戎对不同种族和地区的人的影响不同](https://gettr.com/post/pjz6hu80db)
 
-评分和评论是亚马逊电子商务业务的一个重要组成部分，是吸引购物者的一个主要方式。但这两位人士说，亚马逊遵守了（中共的此项）规定。目前，在其中国网站Amazon.cn上，这本由政府出版的书没有客户评论或任何评级，而且评论区也被禁用。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
 
-根据报道，一份描述亚马逊公司中国业务的2018年内部简报文件，列出了这家总部位于西雅图的巨头在中共国面临的一些“核心问题”。其中，“意识形态控制和宣传是共产党实现和维持其成功的所有工具中的核心，”该文件指出：“我们不对它是对是错做出判断”。
+编辑/总编：文特
+校正/发稿：我不在这里
 
-这份简报文件，以及对二十多位曾参与亚马逊中国业务的人的采访，揭示了该公司如何通过帮助推进执政的共产党的全球经济和政治议程，同时有时对政府的一些要求进行反击，从而在中共国生存并发展壮大。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-内部文件和访谈显示，该战略的一个核心要素是，亚马逊与中共国宣传机构的一个部门合作，在该公司的美国网站Amazon.com上创建了一个销售门户，这个项目后来被称为中国图书（Chinabooks）。这个项目最终成为9万多份出版物的销售平台，却没有产生大量收入。但文件显示，中国图书项目成为了亚马逊之后发展Kindle电子书设备、云计算和电子商务业务时，赢得北京支持的关键。
-
-2018年的简报文件揭示，在前往北京之前，负责为亚马逊游说的公共政策业务全球负责人杰伊·卡尼(Jay Carney)阐述了中国图书项目的战略利害关系。“Kindle在中国的运营一直处于政策灰色地带”,“保障”亚马逊公司取得中共政府的销售许可证的“关键因素是中国图书（Chinabooks）项目”。
-
-该文件还指出：“亚马逊网站/中国图书项目也获得了中共监管机构的广泛认可”。
-
-**新闻来源**
-
-[Amazon Partnered With China Propaganda Arm to Win Beijing’s Favor, Document Shows](https://www.newsmax.com/newsfront/amazon-beijing/2021/12/18/id/1049207/)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 

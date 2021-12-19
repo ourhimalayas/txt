@@ -2,28 +2,18 @@
 ---
 
 
-## 荷兰首相：荷兰将从周日开始进入封锁状态
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1770970/)
+## 2021年12月18日郭先生盖特 1— 视频盖特「1分46秒」
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1770982/)
 
-**翻译:里奇**
+听写：洛杉矶盘古农场 — 盘古小蚂蚁
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip17.png)2021 年 12 月 18 日，在荷兰奈梅亨市中心，人们在荷兰政府预计宣布“严格”圣诞节封锁以遏制 Omicron 冠状病毒变种的传播之前进行圣诞购物。 REUTERS/Piroschka van de Wouw
+Video link: [https://gettr.com/post/pjztwr8e9a](https://gettr.com/post/pjztwr8e9a)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/54544BD6-CAF2-4D7F-935C-D5ABBC22A64E.jpeg)
+战友们好！你看我干几件事儿？边看G-TV访谈边运动，另外那块儿还有个小视频会。
 
-路透海牙 12 月 18 日 – 荷兰首相马克·吕特周六表示，荷兰将从周日上午开始实施新的封锁措施，以试图限制因 Omicron 冠状病毒变种引起的 COVID-19 感染。
+兄弟姐妹们，生活无限美好啊！千万别忘了运动兄弟姐妹们。
 
-“荷兰再次关闭。这是不可避免的，因为 第五波高峰Omicron 变体正在向我们袭来” 吕特在新闻发布会上说。
-
-**新闻来源**:[路透社][Dutch PM Rutte: Netherlands will go into lockdown from Sunday](https://www.reuters.com/world/europe/dutch-pm-rutte-netherlands-will-go-into-lockdown-sunday-2021-12-18/)
-
-* * *
-
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-4.jpeg)
-
-
+啥都不说了，战友们好，千万别忘了运动，姆盖嗮～
 
  
 
