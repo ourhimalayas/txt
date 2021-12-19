@@ -2,67 +2,18 @@
 ---
 
 
-## 彭帅事件绝对是习近平政治生涯的滑铁卢
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1771646/)
+## 文贵大直播 12/19 中共国有一件真吗？！新中国联邦有一件假吗？！
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1771671/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/3242.png)
-[https://gtv.org/video/id=61bde517a68b4f4b28e9f3f0](https://gtv.org/video/id=61bde517a68b4f4b28e9f3f0)
+撰稿：回响 【秘翻Gnews原创组】
+![](https://assets.gnews.org/wp-content/uploads/2021/12/snapshot23.jpg)图片来源： GTV
+创造了多个全球音乐排行榜历史第一甚至唯一的郭文贵先生，在12月19日的文贵大直播中，纵论音乐，横谈中共国政商，反问全球公众，爆料革命近五年的事实是否表明：中共国有一件是真的吗？！新中国联邦有一件是假的吗？！
 
-**郭文贵
-Miles Guo**
+中植公司的谢植坤，郭先生从2017年就爆料，如今疫苗加共匪的恐吓，已经猝然离世；其弟谢直春，是中投的高管。企业，全是假、骗；其人，玩明星成习。郭先生从音乐这个精神核武器之一谈起，纵论人之初的本能到中共国音乐界历史现状的种种不堪，横谈政商高官名人们的变态生态圈，强烈地对比出，新中国联邦在中共举一国之力拼命打压下，创造的一个个神奇、传奇。
 
-你知道彭帅这个事儿对他的影响，习下决心要干掉张高丽
-You know the impact of Peng Shuai incident that Xi is determined to get rid of Zhang Gaoli
+无论中共如何包装，只要不无视爆料革命近五年来的事实，所有人都会思考从上倒下，从政商金融到音乐文化，中共国会有一件值得相信的真吗？！
 
-说一半的功劳是张高丽的彭帅搞出来的，这叫天意呀
-It is said that half of the credit is Zhang Gaoli’s Peng Shua, this is God’s will
-
-彭帅这件事情是个锦上添花，老天送我们的礼啊，彭帅呀
-Peng Shuai incident is an icing on the cake, Peng Shuai is God’s gift to us
-
-我们未来得给彭帅点喜币，你知道吗？
-We have to give Peng Shuai some Hcoins in the future, you know?
-
-她加速了共产党冬奥会的灭亡，然后弄点儿躺平币
-She accelerated the demise of the Communist Party’s Winter Olympics game, and then made some lay-flat-coin for her
-
-咱们也可以专门给彭帅搞一个币，叫做什么，天空无限大，是吧
-We can also make a coin specifically for Peng Shuai, what is it called, the sky is infinite, right?
-
-然后地球一粒沙的，上面带上这个图腾的彭帅币
-Then the earth is a grain of sand with the totem Peng Shuai coin on it
-
-这实在太有意义了，你们没有意识到这件事情对他们的羞辱
-This is so meaningful, you didn’t realize the humiliation of this incident to CCP
-
-很多人说这是真正的习近平的滑铁卢的开始
-Many people say that this is the beginning of the real Xi Jinping’s Waterloo
-
-这个滑铁卢又搞了俄罗斯这样，这对他来讲这真的是多米诺骨牌开始了
-and Russia is like another Waterloo, this is really the start of dominoes for him
-
-谢谢
-thank you
-
-* * *
-
-Date:12/16/2021
-原视频标题: 彭帅事件绝对是习近平政治生涯的滑铁卢
-The Peng Shuai incident is definitely the Waterloo of Xi Jinping’s political career
-原视频日期：2021/12/12
-原视频链接[**https://gettr.com/post/pjp42e188e**](https://gettr.com/post/pjp42e188e)
-任务编号：KC344（3242）
-视频时间段 : 0:00-1:02
-中听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – jambo
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+【来源链接】https://gtv.org/broadcast/watch/61bf32a0bcb7f101bb705000
 
  
 
