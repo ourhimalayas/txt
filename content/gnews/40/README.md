@@ -2,41 +2,31 @@
 ---
 
 
-## 波音公司暂停对美国员工强制接种疫苗
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1770351/)
+## 有声|港共政府清算《苹果日报》发行公司
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1770447/)
 
-**作者：埃里克·M·约翰逊（Eric M. Johnson）**
+配音：香草山美食部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+当地时间12月16日，据相关媒体报道，香港法院下令对最近倒闭的民主派报纸《苹果日报》的母公司Next Digital进行清算。
 
-**2021年12月17日**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-19-下午1_Fotor.png)
-西雅图，12月17日(路透社)——美国飞机制造商波音公司(BA.N)周五表示，该公司暂停了对美国员工的冠状病毒疫苗接种要求，数千名员工寻求豁免，因为（此事）数周的不确定性画上了句号，并在法庭上对联邦命令提出了挑战。
+资料显示，中共政府于2020年在香港强制推行国安法后，港共政府随即将香港《苹果日报》及其母公司Next Digital作为镇压目标。今年6月，港共政府借由国安法定义的所谓“颠覆、分裂、恐怖主义和与外国势力勾结”等莫须有罪名，迫使Next Digital停止出版香港《苹果日报》并冻结了该公司的所有银行账户，同时暂停了该公司的股票交易。与此同时，《苹果日报》的创办人也因中共国安法定义的“非法集会”罪而被迫入狱。知情人士透露，由于香港《苹果日报》及相关人员的遭遇，Next Digital公司的资金随即被迅速耗尽。数据显示，目前，Next Digital净亏损超过2.4亿港元，其中还有拖欠当地员工工资的1.2亿港元，这也导致港共政府对该公司提出清算要求。
 
-波音公司在一份内部声明中表示，该决定是在对美国地方法院本月早些时候的裁决进行审查后做出的，该裁决暂停执行总统乔·拜登(Joe Biden)要求联邦承包商接种疫苗的规定。
+另外，报道中也提及，Next Digital公司仍在运作的台湾分部的资产也会遭到波及。有关人士提到，作为清算资产的一部分，台湾版《苹果日报》也将被出售，同时，包含台湾员工个人信息的Next Digital数据库也将被暴露给港共政府。对此，台湾大陆事务委员会也表示，台湾方相当担忧这些数据可能会被“不当使用”。
 
-一些大型医疗连锁企业和公司，如通用电气(GE.N)、势必锐航空系统公司(Spirit AeroSystems)和美国铁路客运公司(Amtrak)，也暂停了对员工接种疫苗的规定。
+文字版原文：[港共政府清算《苹果日报》发行公司](https://gnews.org/zh-hans/1767011/)
 
-据路透社报道，最近几周，波音公司因宗教或医疗原因寻求疫苗豁免的员工人数已超过11000人，占其美国员工总数的近9%，这一数字比高管们最初的估计高出许多倍。
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-绝大多数的求职申请都是基于宗教原因，这一事实将美国最大的雇主之一推向了一场关于探究雇员的宗教信仰是否道德的辩论漩涡中。
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-这也让高管们在寻找一种既能保证员工安全，又能避免工程和工厂劳动力外流的策略。
-
-根据周五的备忘录，波音公司的疫苗接种要求导致超过92%的美国员工注册为完全接种疫苗，或接受了宗教或医疗豁免证明。
-
-“波音公司迄今为止的疫苗接种要求的成功，使该公司很好地遵守联邦行政命令，如果它在未来恢复的话，”它补充说。
-
-波音的一名发言人证实了这一决定，并补充说，该公司“致力于为我们的员工维持一个安全的工作环境，并促进我们全球员工的健康和安全。”
-
-该发言人补充说，波音公司根据法院禁止执行联邦承包商行政命令和一些州法律的决定，暂停了其疫苗接种要求。
-
-上个月，白宫将联邦承包商雇员接受疫苗接种或定期检测的最后期限推迟到1月4日，如果他们获得了豁免。
-
-**新闻来源:[路透社（REUTERS）](https://www.reuters.com/business/aerospace-defense/exclusive-boeing-suspends-vaccination-requirement-us-based-employees-internal-2021-12-17/)**
-
-翻译：文虓Bobby
-
-发布:Astrid星星
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,42 +2,69 @@
 ---
 
 
-## 调查显示，在挪威(奥斯陆)的圣诞晚餐后98%的COVID-19感染者都是充分接种了疫苗的人
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1772172/)
+## 2021年12月19日文贵先生直播摘要及音频—银河系农场
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1772198/)
 
-发布日期：2021年12月17日
-新闻来源：lorphicweb.com
-翻译：文虓Bobby
+![](https://assets.gnews.org/wp-content/uploads/2021/12/fa51eff4ad3dcb934bf1fa7d8f9eba19.jpg)
+视频连接：[2021年12月19日 文贵大直播：病毒疫苗虚假经济；强办奥运后果严重；欧美惩罚中共难逃；疫苗灾难大事将至](https://gettr.com/streaming/pk2np2e160)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/122001.png)
+1、中植集团创始人解直锟的发家之路就是金融欺诈；
 
-11月26日，挪威公共卫生研究所(NIPH)在奥斯陆的圣诞晚餐上接到当地一家实验室关于COVID-19疫情爆发的通知后，进行了调查。调查的初步结果周四发表在《欧洲监控杂志》(Eurosurveillance Journal)上。
+2、解直锟的弟弟解直春是中投的总裁；
 
-调查显示，其中一名与会者已于11月24日从南非返回。COVID-19的Omicron变种于11月中旬在南非首次发现。
+3、得过冠状病毒的人，3-10年50%的概率会患上癌症；
 
-网管专家（Gateway Pundit）-根据发表在《欧洲监控杂志》(Eurosurveillance Journal)上的研究结果，111名受访者中，66人(59%)为确诊病例(26人基于WGS, 40人基于PCR VOC筛查)，15人(14%)为疑似病例(仅PCR阳性)。1例PCR阳性参与者被确认感染SARS-CoV-2 Delta型(B.1.617.2)，随后被排除在进一步分析之外。
+4、最重要是刺突蛋白在身体内只要不被消除，两个地方容易癌变一个是淋巴一个是血液；
 
-欧米克戎（Omicron）变种的总感染率为74%(81/110)。平均年龄38岁(SD:8.6;中位数36，范围:26-61)和35(43%)为女性。截至2021年12月13日，其余29名与会者没有PCR阳性结果。
+5、女性妇科是所有病毒不能排除的地方，男性是前列腺，一定要正确吃青蒿素，长期血液检查，淋巴检查 ，可以避免癌症的发生；
 
-此外，在调查过程中，截至12月13日，我们在现场发现了近70名其他可能被感染的客人，其中53人通过PCR变异筛查或测序检测出了Omicron变异。
+6、得过冠状病毒的人在运动健身生活方式上一定注意 ，剧烈运动一定要避免；
 
-以下是NIPH网站上发布的研究结果摘要:
+7、美国通货膨胀CPI已经达到6.8%已经是非常严重的程度；
 
-- 研究结果表明，在室内密切接触的社会环境中，欧米克戎变体在完全接种过疫苗的成年人中具有很高的传播能力。
-- 在圣诞餐桌上见面的111名参与者中，74%的人后来被诊断出患有SARS-CoV-2。其中60%证实感染了欧米克戎变体(截至2021年12月13日)。此外，有一名参与者感染了Delta变种。样品的分析仍在进行中。
-- 大多数病例报告症状轻微，迄今没有一例住院。
-- 70%以上的病例报告有以下症状:咳嗽、流鼻涕/鼻塞、嗜睡和喉咙痛。此外，50%的病例报告发烧。
-- 其中一些病例曾提前到国外旅行，但没有人报告在圣诞餐桌前出现症状。
-- 其中98%的病例得到了充分的接种。在接种了两剂疫苗的人群中，41/75人接种了Comirnaty (BioNTech-Pfizer)， 17/75人接种了Spikevax (Moderna)。在未感染组中，Comirnaty (BioNTech-Pfizer)为7/25,Spikevax (Moderna)为12/25。
-- 虽然我们观察到在受感染和未受感染的人群中占主导地位的疫苗类型存在一些差异，但数据库太过薄弱，无法断定某些疫苗类型是否比其他疫苗类型更有效地抵御Omicron变异的感染。
+8、按理美联储印钞只能是GDP的一倍，结果2020年超印10万亿美元，结果一块钱的面包涨到3块，手里有很多美元的人不去买面包而去买房子了，最后导致全球通胀和紧缩并存。
 
+9、世界法币超发，全球债务官方226万亿美元实际是300万亿美元，经济崩塌时，几百万亿谁还？
 
-（挪威）国家公共卫生研究所根据初步调查得出结论，欧米克戎变种具有更强的传染性，冠状病毒疫苗对欧米克戎感染传播的（抑制）效果不如Delta变种。与此同时，在此次疫情中的病例中没有严重感染的迹象。
+10、经济崩塌时：你手里的东西都会一文不值。数字货币代替法币，将进入人类数字货币春秋战国时代；
 
-[援引原文](https://lorphicweb.com/investigation-revealed-98-of-those-infected-with-covid-19-after-christmas-dinner-in-norway-were-fully-vaccinated/)
+11、解直锟是被中共做掉的；
 
-审核校对：玫瑰天空
-上传排版：糖果儿
+12、参加冬奥会的运动员一定会有人染上病毒，一定会有集体事件，然后很严格的治理和隔离。讲故事写故事，然后各地报告“反应快、检查快、治理快、处理的好”，感人泪下的剧本已经写好。证明习太阳治理世界和国家的能力，共产党的一党专制的优越性。中国开始造神运动，再打台湾，解救所谓“水深火热”的台湾人民；
+
+13、彭丽媛会成为联合国慈善大使、艾滋病大使，出席冬奥会，告诉大家她是二把手；
+
+14、冬奥会期间天然气爆炸重大事故超过50%、军队警察政变50%，习被染病毒 ，身体出问题超过70%；
+
+15、冬奥会将是习太阳的噩梦，特别是知道彭副主席要曲线救国的时候，世界要出现大震荡；
+
+16、西安爆发的所谓热毒 就是疫苗的副作用；
+
+**注：直播大音频正在制作和上传中，敬请关注——**
+
+**（直播大音频位置）**
+
+编辑整理：文俊；
+
+发布：黎明之前
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
