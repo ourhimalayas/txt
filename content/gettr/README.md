@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/19/2021 8:22 AM (UTC)`
+
+CCTV, the crazy CCP’s mouthpiece, shirking responsibility for creating the virus, spreading the crisis, and abusing human rights to the US.<br/><br/>疯狂的中共党媒CCTV甩锅美国制造病毒、传播危机、践踏人权<br/>
+![img](https://media.gettr.com/group9/getter/2021/12/19/08/f150605d-b5fb-5eca-623b-d86040f85eb2/out.jpg)
+
+---
+
 `@miles 12/19/2021 7:01 AM (UTC)`
 
 因侵犯人权，美参议院两党一致通过法案，使美国成为第一个全面禁止进口新疆产品的国家，美国将34家中共国公司列入黑名单<br/><br/>The US Senate passed the bill unanimously to be the first country banning all imports from Xinjiang and the US further blacklists 34 Chinese firms over human rights abuse<br/><br/>
@@ -152,13 +159,6 @@
 
 2021年12月17日 文贵大直播：国内经济危机与冬奥会；方正证券郑州接管裕达；彭副主席上位意图何在；各数字货币下滑与喜币
 ![img](https://media.gettr.com/group43/origin/2021/12/17/12/60a69cba-2ea3-e77e-c396-55c12a33d5c0/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 12/16/2021 10:59 PM (UTC)`
-
-12/16/2021 Miles Guo’s GETTR: Did Xi Jinping’s cough catch the attention of half of the world? In Communist China, the CCP is propagating a nuclear war against the US. Will the world be a bystander when the CCP invades Taiwan? The Omicron variant has strong transmission and a long incubation period. Everyone must be careful!<br/><br/>12/16/2021 文贵盖特：“习太阳”咳嗽了，半个世界被惊到了？中共对内大肆宣传要和美国打核战，世界会对中共打台湾袖手旁观吗？奥米炕病毒传播力强、潜伏期长，大家务必小心<br/>
-![img](https://media.gettr.com/group24/getter/2021/12/16/22/770efd91-a66d-b809-e2fe-ad8048c318a2/out.jpg)
 
 ---
 
