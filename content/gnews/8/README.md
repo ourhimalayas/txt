@@ -2,66 +2,30 @@
 ---
 
 
-## 杨洁篪和王毅被美国定为最危险人物
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1771954/)
+## 文贵爆料 12.19：病毒的遗害是你挥之不去噩梦
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1771986/)
 
-[https://gtv.org/video/id=61be00eda68b4f4b28e9feef](https://gtv.org/video/id=61be00eda68b4f4b28e9feef)
+撰稿：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/12/snapshot23.jpg)
+如海啸般席卷世界的这场病毒灾难，不仅是人们心中挥之不去的阴影，而且会给他们的身体留下永久的创伤。郭文贵先生在12月19日的大直播中说，所有染上病毒的人在未来3到10年内，得癌症的概率几乎超过50%。
 
-**郭文贵
-Miles Guo**
+所有得过冠状病毒的兄弟姐妹们，我在这里严正声明，我是世界上告诉第一个你们的。在大概一个多月前，国内的跑出来的科学家和病毒的知情者得出这样一个论证，今天，我被授权告知大家：
 
-所以说兄弟姐妹们，这种情况下你只能挣扎了，共产党只能是挣扎
-So brothers and sisters, in this case you can only struggle, the Communist Party can only struggle
+第一，你们所有染上病毒的人在未来的10年内，也就是3到10年内，得癌症的概率几乎超过50%，不分老少，不分男女，不分大小，不分症状。原理我就不再解释了，主要是因为这个刺突蛋白mRNA在你身体里边，它不会100%被消除。它会在你身体的淋巴产生癌症。
 
-你看看现在那个外交部发言人，美国称王称霸的民主时代一去不复返
-Look at the spokesperson of the Ministry of Foreign Affairs of China, saying the era of democracy in which the United States dominates is gone forever
+第二，就是身体上的免疫力。由于它长时间的，在内部对整个细胞的改变，你的血液很可能出问题。女性容易得妇科病，而男性容易得前列腺相关的疾病。
 
-你知道对美国现在影响多大
-Do you know how much impact it has on the U.S. now？
+你唯一的办法就是，一定要吃青蒿素和伊维菌素，而且是合理的吃。你别一天吃完，没有用的。如果你无法百分之百从将病毒从身体里清除，你就有超过50%的可能患上癌症。科学家非常严肃地告诉我，说一定要告诉咱们战友，特别是你得过病并恢复过的。你一定要保持中长期时间身体检查，每年都要检查一次，甚至两次，做血液检查和淋巴检查。然后一定要定期吃药，而且科学家一再警告伊维菌素也好，羟氯喹也好，锌也好，青蒿素也好，每天吃，一定是坏处大于利处。
 
-你见到这个战羊秦刚，他到美国装羊装狼的这个样子，在美国引起对大反响
-You see Qin Gang who is the war sheep, and he went to the United States to pretend to be a sheep or a wolf, which aroused great repercussions in the U.S.
+郭先生强调说，我再重申一遍啊，任何咱们所说的羟氯喹、锌，青蒿素、青蒿素保健品、伊维菌素和地塞米松，只要你长期吃，一定坏处大于好处，一定要分期、分段，根据症状去吃，而且一定要会停。
 
-你知道现在杨洁篪在世界上各处活动
-You know that Yang Jiechi is active everywhere in the world
+再一个，吃这些药的时候一定要补铁，缺维他命的补维他命，说维他命和铁相互的吃是最关键。在运动、健身和生活方式上一定要注意，特别是剧烈的运动一定要避免。
 
-杨洁篪和王毅已经被美国、欧洲定义为最危险的人物，时刻都要关注的人物
-Yang Jiechi and Wang Yi have been defined by the United States and Europe as the most dangerous people, people who must always pay attention to
+所有天下的兄弟姐妹们，我知道我们很多战友染上冠状病毒，这是非常不幸的，虽然今天好了，但是一定要知道这个病并没有在你身里面彻底被清除，它不可能被彻底的消除，它还需要时间。科学家说，合理地吃药，一定能清除身体病毒。
 
-他去任何一个地方，美国都要知道他见了谁跟谁说了话
-Wherever he goes, the U.S. must know who he met and talked to
+参考链接：
 
-他的电话监听已经成为最高级的，跟当年塔利班本拉登是一模一样的
-monitoring his phone has become the most advanced, exactly the same as the Taliban bin Laden back then
-
-就是因为王毅和杨洁篪跟塔利班的勾兑，把塔利班送回了阿富汗
-It was because of Wang Yi and Yang Jiechi’s hook-up with the Taliban that they sent the Taliban back to Afghanistan
-
-阿富汗现在每时就在我们直播的时候，每天死几千上万人
-now at our live broadcast same time in Afghanistan, there are tens of thousands of people die every day
-
-这个冬天要死掉几百万人，这不是种族大屠杀，这是人类大屠杀
-Millions of people will die this winter, this is not just a genocide, this is the massacre of mankind
-
-* * *
-
-Date:12/17/2021
-原视频标题: 杨洁篪和王毅被美国定为最危险人物
-Yang Jiechi and Wang Yi are defined by the United States as the most dangerous people
-原视频日期：2021/12/15
-原视频链接[**https://gettr.com/post/pjw4it50a3**](https://gettr.com/post/pjw4it50a3)
-任务编号：KC348（3266）
-视频时间段 : 0:00-1:15
-中听校： 洛杉矶盘古农场 – Layka
-翻译 : 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 ：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[2021年12月19日 文贵大直播](https://gettr.com/streaming/pk2np2e160)
 
  
 

@@ -2,28 +2,31 @@
 ---
 
 
-## 塔利班继续制造人道危机 妇女儿童和前政府雇员处境危险
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1770221/)
+## 有声|港共政府清算《苹果日报》发行公司
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1770447/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-227.jpg)[图片来源](https://www.ft.com/content/acb69a3a-51ee-4484-8dad-e04b2c711f89)
-近日，联合国官员表示，塔利班上台以来，已至少有一百名以上前政府军官兵被杀害。联合国副人权事务高级专员娜达·阿尔-纳希夫（ Nada Al-Nashif）在日内瓦说，其中大多数人是被塔利班杀害的，此外还有至少八名积极分子和两名记者遭到杀害。
+配音：香草山美食部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+当地时间12月16日，据相关媒体报道，香港法院下令对最近倒闭的民主派报纸《苹果日报》的母公司Next Digital进行清算。
 
-这位联合国官员还表示，塔利班目前还在招募儿童充军，并实施针对妇女的压迫政策。前法官、检察官以及律师的处境非常危险，其中尤以女性为甚。
+资料显示，中共政府于2020年在香港强制推行国安法后，港共政府随即将香港《苹果日报》及其母公司Next Digital作为镇压目标。今年6月，港共政府借由国安法定义的所谓“颠覆、分裂、恐怖主义和与外国势力勾结”等莫须有罪名，迫使Next Digital停止出版香港《苹果日报》并冻结了该公司的所有银行账户，同时暂停了该公司的股票交易。与此同时，《苹果日报》的创办人也因中共国安法定义的“非法集会”罪而被迫入狱。知情人士透露，由于香港《苹果日报》及相关人员的遭遇，Next Digital公司的资金随即被迅速耗尽。数据显示，目前，Next Digital净亏损超过2.4亿港元，其中还有拖欠当地员工工资的1.2亿港元，这也导致港共政府对该公司提出清算要求。
 
-阿富汗前政府驻联合国大使、现在仍获联合国认可的安迪沙（ Nasir Ahmed Andischa）在联合国人权理事会上的发言中，也描绘了当前阿富汗的紧张局势。安迪沙指责塔利班犯下了大量践踏人权的罪行，并实施有针对性的杀戮和绑架。
+另外，报道中也提及，Next Digital公司仍在运作的台湾分部的资产也会遭到波及。有关人士提到，作为清算资产的一部分，台湾版《苹果日报》也将被出售，同时，包含台湾员工个人信息的Next Digital数据库也将被暴露给港共政府。对此，台湾大陆事务委员会也表示，台湾方相当担忧这些数据可能会被“不当使用”。
 
-他表示，推崇伊斯兰原教旨主义的塔利班制造了大量侵犯人权的案件，而其中有很多案件并没有记录在案。今年八月，塔利班重新在阿富汗掌权之后，过去20年的建设成就被毁于一旦。
+文字版原文：[港共政府清算《苹果日报》发行公司](https://gnews.org/zh-hans/1767011/)
 
-塔利班于今年夏季发起攻势，并在八月占领了首都喀布尔，八月底，最后一批美军士兵撤离阿富汗。大赦国际指责塔利班，在发动攻势的过程中，对少数族群、宗教少数派以及政府军官兵实施酷刑和屠戮。战争罪行的实际规模很难调查清楚，因为塔利班对偏僻地区的手机通讯和互联网联络采取了限制措施。都察洛夫表示，塔利班制造了“外界难以想象的大规模流血事件”。
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-信息来源：
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-[阿富汗人权局势堪忧 前政府军官兵惨遭屠戮](https://www.dw.com/zh/%E9%98%BF%E5%AF%8C%E6%B1%97%E4%BA%BA%E6%9D%83%E5%B1%80%E5%8A%BF%E5%A0%AA%E5%BF%A7-%E5%89%8D%E6%94%BF%E5%BA%9C%E5%86%9B%E5%AE%98%E5%85%B5%E6%83%A8%E9%81%AD%E5%B1%A0%E6%88%AE/a-60127217)
-
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

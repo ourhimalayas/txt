@@ -2,67 +2,18 @@
 ---
 
 
-## 彭帅事件绝对是习近平政治生涯的滑铁卢
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1771646/)
+## 一粒药，见真心，爆料革命真战友一定要备好药！
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1771724/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/3242.png)
-[https://gtv.org/video/id=61bde517a68b4f4b28e9f3f0](https://gtv.org/video/id=61bde517a68b4f4b28e9f3f0)
+撰稿人：大浪小水花
+![](https://assets.gnews.org/wp-content/uploads/2021/12/5a91f5272013d429b26fe8d842cebcf7.jpg)
+郭先生在2021年12月17日的大直播中提到，爆料革命宣传疫苗真相和病毒解药已经有一年之久，但仍然有战友在患病（或打疫苗）后只会一味朝联盟伸手要药，让战友冒着风险付着辛苦千里迢迢给自己送药，自己却不去买。
 
-**郭文贵
-Miles Guo**
+郭先生指出，现在市场上有很多种青蒿素是有效的，是很容易买到的，不能总指望别人帮忙。
 
-你知道彭帅这个事儿对他的影响，习下决心要干掉张高丽
-You know the impact of Peng Shuai incident that Xi is determined to get rid of Zhang Gaoli
+郭先生建议，以后送药这种事情战友们要少做，到现在还不备药的人，说明他根本不信爆料革命，相信的人一定会备药。那些既不信又不听的人，就拿自己的生命去试试。
 
-说一半的功劳是张高丽的彭帅搞出来的，这叫天意呀
-It is said that half of the credit is Zhang Gaoli’s Peng Shua, this is God’s will
-
-彭帅这件事情是个锦上添花，老天送我们的礼啊，彭帅呀
-Peng Shuai incident is an icing on the cake, Peng Shuai is God’s gift to us
-
-我们未来得给彭帅点喜币，你知道吗？
-We have to give Peng Shuai some Hcoins in the future, you know?
-
-她加速了共产党冬奥会的灭亡，然后弄点儿躺平币
-She accelerated the demise of the Communist Party’s Winter Olympics game, and then made some lay-flat-coin for her
-
-咱们也可以专门给彭帅搞一个币，叫做什么，天空无限大，是吧
-We can also make a coin specifically for Peng Shuai, what is it called, the sky is infinite, right?
-
-然后地球一粒沙的，上面带上这个图腾的彭帅币
-Then the earth is a grain of sand with the totem Peng Shuai coin on it
-
-这实在太有意义了，你们没有意识到这件事情对他们的羞辱
-This is so meaningful, you didn’t realize the humiliation of this incident to CCP
-
-很多人说这是真正的习近平的滑铁卢的开始
-Many people say that this is the beginning of the real Xi Jinping’s Waterloo
-
-这个滑铁卢又搞了俄罗斯这样，这对他来讲这真的是多米诺骨牌开始了
-and Russia is like another Waterloo, this is really the start of dominoes for him
-
-谢谢
-thank you
-
-* * *
-
-Date:12/16/2021
-原视频标题: 彭帅事件绝对是习近平政治生涯的滑铁卢
-The Peng Shuai incident is definitely the Waterloo of Xi Jinping’s political career
-原视频日期：2021/12/12
-原视频链接[**https://gettr.com/post/pjp42e188e**](https://gettr.com/post/pjp42e188e)
-任务编号：KC344（3242）
-视频时间段 : 0:00-1:02
-中听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – jambo
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+郭先生呼吁支持爆料革命相信爆料革命的真战友应该马上行动起来，尽快备好必须的药物，救命要靠自己。
 
  
 

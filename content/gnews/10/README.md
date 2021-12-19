@@ -2,19 +2,17 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月19日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1771906/)
+## 香草山翻译部周刊|2021年12月19日第27期
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1771974/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-4.jpg)
 
 作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-19.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/27CN.png)
 文章仅代表作者本人观点，与Gnews无关
 
-视频参看：[2021.12.19早GTV新闻访谈](https://gtv.org/video/id=61bf3422bcb7f101bb70575e)
-
+总编： GBWater
 编辑： Lakers
-校对： Lakers
 发稿： Lakers
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/calendar-1.jpeg)

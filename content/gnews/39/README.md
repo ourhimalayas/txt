@@ -2,32 +2,41 @@
 ---
 
 
-## 欧洲议会决议呼吁 调查中共诱骗越南劳工赴塞尔维亚工作
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1770202/)
+## 波音公司暂停对美国员工强制接种疫苗
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1770351/)
 
-作者：日本方舟农场 – Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月16日，欧洲议会以586票赞成，53票反对通过决议，呼吁塞尔维亚当局慎重调查越南劳工，被中共诱骗至塞尔维亚境内的中资工厂，并被强迫劳动的现象。这家位于塞尔维亚北部的中共工厂，约有500名越南劳工。今年11月，这些越南劳工爆发了罢工，抗议工作环境恶劣，并声称自己是被诱骗到塞尔维亚从事工作的。
+**作者：埃里克·M·约翰逊（Eric M. Johnson）**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide4-15.jpeg)
+**2021年12月17日**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-19-下午1_Fotor.png)
+西雅图，12月17日(路透社)——美国飞机制造商波音公司(BA.N)周五表示，该公司暂停了对美国员工的冠状病毒疫苗接种要求，数千名员工寻求豁免，因为（此事）数周的不确定性画上了句号，并在法庭上对联邦命令提出了挑战。
 
-多名劳工告诉记者，他们的护照被没收，像生活在牢狱里一样，而塞尔维亚领导人则对这些不法行为视而不见。因此，欧洲议会呼吁，希望塞尔维亚政府让欧盟及相关官员，完全自由地进入这家中共公司以及员工宿舍，对事实进行核实。
+波音公司在一份内部声明中表示，该决定是在对美国地方法院本月早些时候的裁决进行审查后做出的，该裁决暂停执行总统乔·拜登(Joe Biden)要求联邦承包商接种疫苗的规定。
 
-参考链接：
+一些大型医疗连锁企业和公司，如通用电气(GE.N)、势必锐航空系统公司(Spirit AeroSystems)和美国铁路客运公司(Amtrak)，也暂停了对员工接种疫苗的规定。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
+据路透社报道，最近几周，波音公司因宗教或医疗原因寻求疫苗豁免的员工人数已超过11000人，占其美国员工总数的近9%，这一数字比高管们最初的估计高出许多倍。
 
-总编：文特
-编辑：Kathy文艺
-校正/发稿：谐趣园
+绝大多数的求职申请都是基于宗教原因，这一事实将美国最大的雇主之一推向了一场关于探究雇员的宗教信仰是否道德的辩论漩涡中。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+这也让高管们在寻找一种既能保证员工安全，又能避免工程和工厂劳动力外流的策略。
+
+根据周五的备忘录，波音公司的疫苗接种要求导致超过92%的美国员工注册为完全接种疫苗，或接受了宗教或医疗豁免证明。
+
+“波音公司迄今为止的疫苗接种要求的成功，使该公司很好地遵守联邦行政命令，如果它在未来恢复的话，”它补充说。
+
+波音的一名发言人证实了这一决定，并补充说，该公司“致力于为我们的员工维持一个安全的工作环境，并促进我们全球员工的健康和安全。”
+
+该发言人补充说，波音公司根据法院禁止执行联邦承包商行政命令和一些州法律的决定，暂停了其疫苗接种要求。
+
+上个月，白宫将联邦承包商雇员接受疫苗接种或定期检测的最后期限推迟到1月4日，如果他们获得了豁免。
+
+**新闻来源:[路透社（REUTERS）](https://www.reuters.com/business/aerospace-defense/exclusive-boeing-suspends-vaccination-requirement-us-based-employees-internal-2021-12-17/)**
+
+翻译：文虓Bobby
+
+发布:Astrid星星
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
