@@ -2,14 +2,27 @@
 ---
 
 
-## 2021年12月17日文贵大直播简报
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1769794/)
+## GTV新闻访谈简报|2021年12月18日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1769833/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/文贵大直播12.17.png)
-【参考链接】[https://gtv.org/broadcast/watch/61b0b18fbbd75f62e532ced9](https://gtv.org/video/id=61b5f49556f4921401b604a9)
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV-Gnews-1.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/1218text-SC.png)
+校对：Stay文苑
 
-文案提供：回响 / Ermat / 大浪小水花
-制作：艾伦
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+视频参看：[12.18  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61be8a897882000d5104194d)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/calendar-1.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
