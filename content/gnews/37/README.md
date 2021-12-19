@@ -2,33 +2,28 @@
 ---
 
 
-## 有声|郭先生解析中共年前抢夺盘古和裕达的原因
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1770448/)
+## 塔利班继续制造人道危机 妇女儿童和前政府雇员处境危险
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1770221/)
 
-配音：香草山美食部 – 玫瑰园
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-12月17日，郭文贵先生在直播中解析道，习近平其实既相信风水，也相信自然的力量。
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-227.jpg)[图片来源](https://www.ft.com/content/acb69a3a-51ee-4484-8dad-e04b2c711f89)
+近日，联合国官员表示，塔利班上台以来，已至少有一百名以上前政府军官兵被杀害。联合国副人权事务高级专员娜达·阿尔-纳希夫（ Nada Al-Nashif）在日内瓦说，其中大多数人是被塔利班杀害的，此外还有至少八名积极分子和两名记者遭到杀害。
 
-郭先生提到，盘古实为地上阳龙，而其地下5层又连接在一起构成了滔龙。时逢明年正好是虎年，但风水学中却相当忌讳龙虎斗——因为龙虎相争必有一伤——然而彭丽媛属虎。因此，习近平认定，盘古此设计会对彭丽媛不利，于是把盘古的龙头改成龟头，但此举实际代表着共产党对爆料革命的极端恐惧。
+这位联合国官员还表示，塔利班目前还在招募儿童充军，并实施针对妇女的压迫政策。前法官、检察官以及律师的处境非常危险，其中尤以女性为甚。
 
-郭先生还透露，由于习近平对巫术的崇拜，这让他非常相信黑蛇、白蛇的故事。而盘古和裕达可谓“北有龙头，南有佛手”——这是一个风水大阵，可使万事皆达。因此，马明哲也向习近平递了投名状：其与李友一起抢夺了郑州裕达。
+阿富汗前政府驻联合国大使、现在仍获联合国认可的安迪沙（ Nasir Ahmed Andischa）在联合国人权理事会上的发言中，也描绘了当前阿富汗的紧张局势。安迪沙指责塔利班犯下了大量践踏人权的罪行，并实施有针对性的杀戮和绑架。
 
-郭先生解释道，共产党用巫术治理国家的方式，与中国五千年来惯于用巫术、蛊术治国的封建王朝一模一样，但他们最后的结局都是灭亡。这正应验了一句谶语，使用巫术者必被巫术反噬。
+他表示，推崇伊斯兰原教旨主义的塔利班制造了大量侵犯人权的案件，而其中有很多案件并没有记录在案。今年八月，塔利班重新在阿富汗掌权之后，过去20年的建设成就被毁于一旦。
 
-文字版原文：[郭先生解析中共年前抢夺盘古和裕达的原因](https://gnews.org/zh-hans/1766971/)
+塔利班于今年夏季发起攻势，并在八月占领了首都喀布尔，八月底，最后一批美军士兵撤离阿富汗。大赦国际指责塔利班，在发动攻势的过程中，对少数族群、宗教少数派以及政府军官兵实施酷刑和屠戮。战争罪行的实际规模很难调查清楚，因为塔利班对偏僻地区的手机通讯和互联网联络采取了限制措施。都察洛夫表示，塔利班制造了“外界难以想象的大规模流血事件”。
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
+信息来源：
 
-![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+[阿富汗人权局势堪忧 前政府军官兵惨遭屠戮](https://www.dw.com/zh/%E9%98%BF%E5%AF%8C%E6%B1%97%E4%BA%BA%E6%9D%83%E5%B1%80%E5%8A%BF%E5%A0%AA%E5%BF%A7-%E5%89%8D%E6%94%BF%E5%BA%9C%E5%86%9B%E5%AE%98%E5%85%B5%E6%83%A8%E9%81%AD%E5%B1%A0%E6%88%AE/a-60127217)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

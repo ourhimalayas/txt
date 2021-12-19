@@ -2,31 +2,25 @@
 ---
 
 
-## 德国选择党将于1月10日启用盖特官方账号
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1770800/)
+## 有声|郭先生解析中共年前抢夺盘古和裕达的原因
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1770448/)
 
-作者：纽约香草山信息部- 诺雅
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间12月17日，德国选择党的联邦执行委员会成员和数字化专家：乔安娜-科塔尔宣布，将于2022年1月10日开始启用盖特官方账号，账号名为：@AfD。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-19-下午10.06.52.png)
-科塔尔表示，在盖特上可以不经过滤、不受影响和审查地发布和讨论问题，让人们自由和全面地了解德国选择党。她说，我们采用了门户网站的座右铭，即乔治-奥威尔的一句话：如果自由有任何意义，那就是能够告诉人们他们不想听到的东西。这正是我们对自由互联网的理解。
+配音：香草山美食部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+12月17日，郭文贵先生在直播中解析道，习近平其实既相信风水，也相信自然的力量。
 
-德国选择党在今年的联邦选举中获得了10.3%的选票，位列第五。该党被主流媒体贴上了“极右民族主义政党”的标签，一直苦于无法正确传达其政党理念和政策纲领，最近，又因为反对普遍强制接种疫苗的立场而备受打压。
+郭先生提到，盘古实为地上阳龙，而其地下5层又连接在一起构成了滔龙。时逢明年正好是虎年，但风水学中却相当忌讳龙虎斗——因为龙虎相争必有一伤——然而彭丽媛属虎。因此，习近平认定，盘古此设计会对彭丽媛不利，于是把盘古的龙头改成龟头，但此举实际代表着共产党对爆料革命的极端恐惧。
 
-盖特全球沟通总监埃邦尼-鲍登转发了该党的官方文章，并邀请盖特用户届时关注他们，表达来自于盖特这个自由言论大家庭的欢迎。
+郭先生还透露，由于习近平对巫术的崇拜，这让他非常相信黑蛇、白蛇的故事。而盘古和裕达可谓“北有龙头，南有佛手”——这是一个风水大阵，可使万事皆达。因此，马明哲也向习近平递了投名状：其与李友一起抢夺了郑州裕达。
 
-参考链接：
-1）[https://gettr.com/post/pjxi44497f](https://gettr.com/post/pjxi44497f)
-2）[Joana Cotar: @AfD auf Social-Media-Plattform GETTR](https://www.afd.de/joana-cotar-afd-auf-social-media-plattform-gettr/)
-3）[German election 2021: full results and analysis](https://www.theguardian.com/world/ng-interactive/2021/sep/26/german-election-results-exit-poll-and-possible-coalitions)
-4）[Right-wing populist AfD may sue to get on talk shows](https://www.dw.com/en/right-wing-populist-afd-may-sue-to-get-on-talk-shows/a-39699333)
-5）[Tino Chrupalla: AfD startet Kampagne „Gesund ohne Zwang“ gegen allgemeine Impfpflicht](https://www.afd.de/tino-chrupalla-afd-startet-kampagne-gesund-ohne-zwang-gegen-allgemeine-impfpflicht/)
+郭先生解释道，共产党用巫术治理国家的方式，与中国五千年来惯于用巫术、蛊术治国的封建王朝一模一样，但他们最后的结局都是灭亡。这正应验了一句谶语，使用巫术者必被巫术反噬。
 
-![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+文字版原文：[郭先生解析中共年前抢夺盘古和裕达的原因](https://gnews.org/zh-hans/1766971/)
 
-总编：文特
-编辑：正义的小新
-校正/发稿：呼吸的雾霾（文小呼吸）
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
+
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -34,7 +28,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

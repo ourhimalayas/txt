@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/19/2021 3:47 PM (UTC)`
+
+On Dec 18, 2021 The actual controller and owner of Zhongzhi Enterprise Group died suddenly. <br/>As early as Oct 15, 2017, Miles Guo had revealed that the founder and Chairman of Zhongzhi Enterprise Group and his brother have a very unusual tie with Wang Qishan’s family. On Nov 7, 2019, Miles Guo again blew the whistle that a financial group owned by a Chinese celebrity’s husband will collapse, indicating Chinese singer Mao Amin’s husband Xie Zhikun.<br/><br/>中植企业集团实际控制人解直锟于2021年12月18日猝然离世。<br/>早在2017年10月15日，郭文贵先生就在直播中爆料中植企业集团创始人和主席解直锟和其弟与王歧山家族有非同一般的关系。2019年11月7日，郭文贵先生又爆料一位明星的老公的金融集团即将倒闭，暗指毛阿敏的老公解直锟.
+![img](https://media.gettr.com/group28/getter/2021/12/19/15/2519746b-c9cf-53be-8067-9dbcb634e25c/out.jpg)
+
+---
+
 `@miles 12/19/2021 1:25 PM (UTC)`
 
 2021年12月19日 文贵大直播：病毒疫苗虚假经济；强办奥运后果严重；欧美惩罚中共难逃；疫苗灾难大事将至
@@ -152,13 +159,6 @@ CCTV, the crazy CCP’s mouthpiece, shirking responsibility for creating the vir
 
 历史再次证明，并非落后就要挨打，而是不守规则的暴力和滥杀才挨打。各国使馆电讯中断后，6月17日英法美德俄日意奥八国即派兵攻占大沽口，随后从天津向北京进攻。6月21日，一个亘古未有的事情发生了，慈禧以光绪的名义发布《宣战诏书》，居然向英美法德俄日等十一国宣战！大家一定会感到奇怪，经历过鸦片战争和甲午海战，慈禧一定知道清军的实力，怎么会以卵击石做出如此荒唐的决定呢？后人做了很多研究，一个比较可信的解释是，“甲午海战”和“戊戌变法”失败后，清廷内部守旧派势力大增，他们说服了慈禧建储，准备取代光绪，遭到洋人反对。如果对洋人不强硬甚至妥协，万一光绪亲政，他们将遭到清算，涉及皇位的事是有性命之忧的，慈禧也可能失去权位。所以守旧派是没有退路的，他们甚至要联合义和团杀死光绪。有传说守旧派伪造一个外国照会，要求慈禧归政光绪，触碰了慈禧最敏感的神经。慈禧作为平衡术大师，既然你们守旧派势力大，那就顺着你们，权位靠的是实力，万一不行你们也得一起担待（后面果然是他们担责），但她同时留下了光绪，一方面制衡守旧派，一方面也是在洋人那里留有余地。接下来的历史大家都知道，8月14日八国联军打败清军和义和团攻占北京，慈禧带着光绪皇帝逃往西安。1900年春节后就是庚子年，因此此次事件被称为“庚子之乱”。10月慈禧命李鸿章与列强谈判，1901年9月7日大清和11国签署《辛丑条约》，主要内容是赔款白银4亿5千万两，等于全体中国人每人赔1两，惩罚主战的大臣，外国可以在北京到山海关沿线驻军，等。慈禧没有废黜光绪，但她继续训政。
 > `@mr3rights 12/18/2021 1:57 AM (UTC)`<br/>这其中有几件事值得探讨。首先是9月7日慈禧在逃往西安的途中命令各地官兵剿灭义和团。义和团从开始被利用终于变成了最大的替罪羊。60年后的红卫兵也是如此命运，开始被毛利用，用完后被毛“上山下乡”发配农村。如今被中共利用反美反日的小粉红最后也一定也逃不出被抛弃的命运。<br/><br/>第二件事是在整个“庚子之乱”过程中，英美等西方国家除了要求保护本国侨民和使领馆人员外，只是要求开放通商公平贸易，一再强调保持中国的主权和领土完整，对领土和政权没有要求。但俄国却趁人之危，出动20万大军占领东北全境，并于1900年7月17至21日对海兰泡和江东六十四屯的华人进行大屠杀，造成7000名中国人死亡，史称“庚子俄难”。在庚子赔款中，美国英国等国家都退还或免除了部分赔款，清华大学就是美国的庚款建起来的，但俄国以及后来的苏联虽然也说要将部分赔款用于中国，但始终没有落实。<br/><br/>第三件事就是“东南互保”，在慈禧发布向11国的《宣战诏书》后，湖广总督张之洞、两广总督李鸿章、两江总督刘坤一、铁路大臣盛宣怀、山东巡抚袁世凯等即和外国达成地方上的协议，称皇室发布的《宣战诏书》是被义和团挟持的情况下发的“矫诏、乱命”，东南各省不执行这样的命令，剿灭义和团，保持各省稳定。同时他们密商万一太后和皇帝遭遇不测，他们将改建共和并推举李鸿章为总统。这件事说明清王朝的中央专制已经出现裂缝丧失权威，各地方势力已经有一定的独立性，为之后的“辛亥革命”清王朝的覆灭以及共和的建立创造了条件。内部的分裂是专制政权解体的前兆和必要条件。<br/><br/>https://gnews.org/zh-hans/1456695/
-
----
-
-`@miles 12/18/2021 2:14 AM (UTC)`
-
-12/17/2021 Miles Guo: The fundamental reason that the Pangu Plaza’s dragon head-shaped building was turned into the bird head-shaped/glans-shaped design is Xi Jinping and Wang Qishan are superstitious, thinking that the dragon head-shaped design can pose absolute threat to Peng Liyuan, whose Chinese zodiac sign is tiger (because it’s believed that dragons can defeat tigers). So, the Pangu Plaza’s dragon head-shaped building must be altered before the year of the water tiger (2022)<br/><br/>12/17/2021 文贵直播：盘古龙头变鸟头、龟头的根本原因是习、王等迷信，相信盘古阳龙会对彭丽媛（属虎）造成绝对的威胁，所以必须在壬水寅虎年到来前搞掉盘古龙头<br/>
-![img](https://media.gettr.com/group16/getter/2021/12/18/02/c26ed343-5868-6c47-a933-89b7ebd51c44/out.jpg)
 
 ---
 

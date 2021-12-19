@@ -2,18 +2,32 @@
 ---
 
 
-## 秘翻在线：杰森·米勒将于本周日做客法国记者埃里克·莫里洛的节目
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1771056/)
+## 波音加入美铁等联邦承包商抛弃疫苗授权
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1771086/)
 
-**翻译：Shan Shan**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screenshot-2021-12-19-204911.jpg)
-GETTR首席执行官杰森·米勒 (Jason Miller) 将受邀作为嘉宾于2021年12月19日参加法国记者埃里克·莫里洛 (Eric Morillon) 创建和主持的 YouTube “Incorrectibles” 下午18点的节目，并讨论他的新社交网络 GETTR 的飞速发展。
+编译： Jenny Ball
 
-杰森·米勒 (Jason Miller)说 : ”GETTR 正在法国起飞，因此参加这个节目是展示我们的网络如何与言论自由和意见自由联系在一起的好方法”。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-3-9.jpg)波音公司表示，将暂停要求其在美国的员工接种疫苗。（马修劳埃德/彭博新闻）
 
-米勒是在巴黎和斯特拉斯堡之行后刚刚返回美国，就以特殊身份和民主组织的法国代表团受此邀请的。他在欧洲议会发表演讲时，向许多欧洲国家的议会议员表达了他对言论和见解自由的重视，以及打击 GAFAM 实施的政治审查制度的重要性。
+波音公司正在放弃要求所有美国员工接种疫苗的政策，理由是联邦地方法院本月的一项裁决，阻止了拜登政府对联邦承包商和分包商实施的一项关键免疫任务。
 
-**[新闻链接](https://twitter.com/incorrectibles?lang=en)**
+这家航空航天巨头周五宣布了这一消息，此前，**美国铁路公司**和**通用电气**等其他主要公司，因保守派领导的各州与联邦政府之间正在进行的法律斗争，也暂停了疫苗授权。
+
+据美联社援引公司声明称，波音公司约 92% 的美国员工已全面接种疫苗，或因医疗或宗教原因获得豁免。
+
+本周，美铁还宣布，鉴于佐治亚州联邦法院的裁决，它将放弃所需的疫苗接种。该公司首席执行官比尔·弗林在一份声明中说，没有资格获得豁免的未接种疫苗的员工——该公司估计少于 500 人——将被允许继续工作，只要他们接受常规的冠状病毒检测。
+
+拜登政府旨在提高疫苗接种率和遏制冠状病毒传播的许多关键政策，**都在法庭上受到牵连，使公司和工人陷入法律纠纷**。
+
+**参考资料：**[washingtonpost][Boeing drops vaccine mandate for U.S. workers, joining Amtrak and other major federal contractors](https://www.washingtonpost.com/nation/2021/12/18/boeing-vaccine-mandate-lawsuit/?utm_campaign=wp_post_most&amp;utm_medium=email&amp;utm_source=newsletter&amp;wpisrc=nl_most&amp;carta-url=https%3A%2F%2Fs2.washingtonpost.com%2Fcar-ln-tr%2F358e445%2F61be12789d2fdab56bced79c%2F5e2dde419bbc0f6326309bfd%2F10%2F70%2F61be12789d2fdab56bced79c)
+
+* * *
+
+*审核：文乐*
+*校对 : 信心满满*
+*发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-4.jpeg)
 
  
 

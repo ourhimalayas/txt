@@ -2,49 +2,38 @@
 ---
 
 
-## 有声|生命的意义是什么？（第二集）
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1770193/)
+## 中共进入全面加速崩溃时代
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1770155/)
 
-配音：香草山教育部 – 蒙古鸿雁
+作者：香草山农场 – 文特
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月18日，文贵先生发布盖特说，从12月17日到18日，纽约几万人感染奥秘康，全世界很多城市开始拉响了警报。中共放的毒从弄死人，到吓死人，再让所有人不仅呆在家里，而且一人感染全家都被传染。传染力快，并发率高，尤其对老人和孩子威胁之大。战友们一定要呆在家里，保护好自己和家人，同时备好神药青蒿素及伊维菌素。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide1-20.jpeg)
 
+文贵先生强调，共产党经济即将全面崩溃，到处抢劫财富导致的社会动乱已铺开。17日起，中小企业倒闭仅北京一地，就从每天110家到每天300多家。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
+国内正大量抓捕公检法及金融部门官员，银行借旧换新，借新还旧以及高薪拉储等措施都出问题了，到年底露馅了 ，所以很多相关人员都会被抓 。所抓政法委和银行官员之多，前所未有，同时企业家也被抓捕。马云往国内不断汇钱 ；马化腾为了表忠心，不光交钱，还交技术和团队。
 
+整个中南部工资养老金不发，还要求半年内，医院和医疗企业部门上交1.5万亿，支持所谓的国家战略转型期，即为了打台湾做准备。
 
+文贵先生评价道， 所有的独裁者到最后都会发动战争，激起所谓的爱国主义和民族仇恨，拉着老百姓殉葬。
 
-**生命是关于无条件的爱。**
+参考链接：[https://gettr.com/post/pk026ned18](https://gettr.com/post/pk026ned18)
 
-我们都在谈论爱，但我们并不了解爱的真实价值。和家人的关系，和自己的父母、兄弟姐妹、孩子，以及与你周围的人建立联系，是找到生命意义的最好方式。爱你的家庭成员说起来容易做起来难，因为大多数人的家庭关系繁琐而[生命的意义](https://gnews.org/zh-hans/tag/%e7%94%9f%e5%91%bd%e7%9a%84%e6%84%8f%e4%b9%89/)找到真正的幸福。无条件的爱不仅只对你自己的家人和爱人，还应该扩展到你的邻居、同事、客户、社区、陌生人、地域、国家、民族文化和整个地球母亲家园。无条件的爱包括对生活中的一切心存感激，尽可能地为他人服务，无私奉献、宽恕他人、接受差异，还要充满同情心，并在任何情况下都对生活抱有极大的希望。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
 
-**生命就是要克服不安全感。**
-
-对大多数人来说，不安全感是生活的一部分。不安全感使我们为自己和他人担忧。我们经常担心家庭、人际关系、工作、金钱、账单、债务、抵押贷款、退休、孩子、健康、养生，以及其他社会和个人问题。克服生活中的不安全感的恐惧，首先要认识到问题的存在，并努力解决你的焦虑，而不是规避或逃离这些挑战。对不安全感采取坚定立场的最好方法是有意识地思考，有意识地行动，积极地作为，并明智地面对一切发生的现实。尝试接受内在的不安全感，才会有勇气面对你内心的阴影和恐惧，也才会在面对不安和挑战时释放自己的内在力量。生命的内涵包括要挑战自己的孱弱内心和对未来的恐惧，使自己能够大胆尝试以前不可能想象的或者没有勇气面对的事物。
-
-原文链接：[生命的意义是什么？（第二集）](https://gnews.org/zh-hans/1677666/)
-
-音频处理：喜山必胜Maverick
-
-发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+总编：Jack Li文阳
+编辑：Kathy文艺
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
