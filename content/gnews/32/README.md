@@ -2,25 +2,30 @@
 ---
 
 
-## 纽约学区警告家长关注孩子心脏骤停情况
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1770799/)
+## 德国选择党将于1月10日启用盖特官方账号
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1770800/)
 
-作者：纽约香草山文艺部 – 宁文静
+作者：纽约香草山信息部- 诺雅
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月16日，纽约萨福克郡的东港-南曼诺中央学区向所有家长发送了一封电子邮件，邮件中介绍了学区的新医生，其重点关注在幼儿园到12年级学生心脏骤停的迹象。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-19-下午10.06.40.png)
-据悉，该学区提示一项新规定，要求各学区员工了解心脏骤停的前奏，并确保护士和教练能够及时监测并救助出现心脏骤停的学生。并且在邮件中附了一份调查表，要求向校医提供孩子的心脏健康信息。
+当地时间12月17日，德国选择党的联邦执行委员会成员和数字化专家：乔安娜-科塔尔宣布，将于2022年1月10日开始启用盖特官方账号，账号名为：@AfD。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-19-下午10.06.52.png)
+科塔尔表示，在盖特上可以不经过滤、不受影响和审查地发布和讨论问题，让人们自由和全面地了解德国选择党。她说，我们采用了门户网站的座右铭，即乔治-奥威尔的一句话：如果自由有任何意义，那就是能够告诉人们他们不想听到的东西。这正是我们对自由互联网的理解。
 
-对此，一位家长忧心忡忡地说，很多青少年和运动员在打完疫苗后死了，看来他们正在为此做准备。考虑到纽约已经临近儿童强制接种疫苗的期限，这封邮件着实令人不安。
+德国选择党在今年的联邦选举中获得了10.3%的选票，位列第五。该党被主流媒体贴上了“极右民族主义政党”的标签，一直苦于无法正确传达其政党理念和政策纲领，最近，又因为反对普遍强制接种疫苗的立场而备受打压。
 
-据官方信息显示，早在11月，该学区的教育委员会曾经发布了一份致纽约州州长霍楚尔的声明，表示坚决反对对儿童进行强制性疫苗接种，认为这项行政令是一种政府权力的过度扩张。
+盖特全球沟通总监埃邦尼-鲍登转发了该党的官方文章，并邀请盖特用户届时关注他们，表达来自于盖特这个自由言论大家庭的欢迎。
 
-参考链接：[School District in New York Sends out Email Warning Parents of Sudden Cardiac Arrest in Students Grades K-12](https://www.thegatewaypundit.com/2021/12/school-district-new-york-sends-email-warning-parents-sudden-cardiac-arrest-students-grades-k-12/)
+参考链接：
+1）[https://gettr.com/post/pjxi44497f](https://gettr.com/post/pjxi44497f)
+2）[Joana Cotar: @AfD auf Social-Media-Plattform GETTR](https://www.afd.de/joana-cotar-afd-auf-social-media-plattform-gettr/)
+3）[German election 2021: full results and analysis](https://www.theguardian.com/world/ng-interactive/2021/sep/26/german-election-results-exit-poll-and-possible-coalitions)
+4）[Right-wing populist AfD may sue to get on talk shows](https://www.dw.com/en/right-wing-populist-afd-may-sue-to-get-on-talk-shows/a-39699333)
+5）[Tino Chrupalla: AfD startet Kampagne „Gesund ohne Zwang“ gegen allgemeine Impfpflicht](https://www.afd.de/tino-chrupalla-afd-startet-kampagne-gesund-ohne-zwang-gegen-allgemeine-impfpflicht/)
 
 ![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-总编：正义的小新
-编辑：文特
+总编：文特
+编辑：正义的小新
 校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**

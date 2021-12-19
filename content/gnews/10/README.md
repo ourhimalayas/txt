@@ -2,68 +2,159 @@
 ---
 
 
-## 12/19/21 香港快讯 截至下午五时半地方直选投票率23.12% 比上届的35.3%低
-` 英喜-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1771629/)
+## 美国怕中共不再使用美元
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1771714/)
 
-**搜集****/****整理：卡西欧**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1219fenmian.jpg)
-封面素材：立场新闻
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-19-at-10.15.12-AM.png)
-**1.****【立会选举】截至下午五时半地方直选投票率****23.12%   ****比上届的****35.3%****低**
+[https://gtv.org/video/id=61bde404a68b4f4b28e9f371](https://gtv.org/video/id=61bde404a68b4f4b28e9f371)
 
-[据【Now新闻台】12月19日讯，立法会选举今天举行， 投票早上8时半开始，截至下午五时半，地方直选有103万多人投了票，投票率是百分之23.12%，而2016年换届选举同期的投票率是35.3%。](https://news.now.com/home/local/player?newsId=460477)
+**郭文贵
+Miles Guo**
 
-[地方直选的十个选区中，投票率最高的是新界西南，有24.51%。](https://news.now.com/home/local/player?newsId=460477)
+对共产党最大的叫经济核弹，就是停止你使用美元
+The biggest US weapon against the communists is called economic nukes, which is to stop you from using the dollar
 
-[功能界别方面，今届首次28个界别没有自动当选，全部要经选举产生，最新的投票率是24%。最高投票率的界别是商界(第三)，投票率达96.88%，而投票率最低的界别暂时是社会福利界，投票率只13.12%，是唯一投票率未达双位数的界别。](https://news.now.com/home/local/player?newsId=460477)
+对待伊朗，所有的什么这些国家，巴基斯坦
+in Iran, Pakistan, and all of whatever these countries
 
-[至于新增的选举委员会界别，由1400多名选委选出40席，截至五时半已有过半数1381人投票，投票率是95.37%，是三个界别中最高。](https://news.now.com/home/local/player?newsId=460477)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-19-at-10.15.21-AM.png)
-**2.****【免费搭车】全民旅游日　长洲、赤柱、西贡、大棠人来人往**
+现在变成了，美国人怕共产党停止美元支付
+Now it has become that the U.S. is worried Communist China would Stop Using the dollar payment
 
-[据【立场新闻】12月19日讯，港铁、巴士及电车今日安排免费搭车，港人纷纷响应外出，港岛新界离岛各大郊区均见汹涌人潮。在西贡，海旁一带早上已现人群。](https://www.thestandnews.com/politics/ab免費搭車全民旅遊日-長洲赤柱西貢大棠人來人往)
+为什么？
+Why?
 
-[港岛渡假热点赤柱和元朗赏枫胜地大棠枫香林也相当热闹，赤柱海堤坐满了游人，而来往元朗市区及大棠的红叶专线巴士，中午等待回程人龙长到见不到龙尾。](https://www.thestandnews.com/politics/ab免費搭車全民旅遊日-長洲赤柱西貢大棠人來人往)
+共产党说我不接受任何美元支付的时候
+When the Communist Party says I’m not accepting any dollar payments
 
-[多个港铁站部分出口一度实施人流管制，有巴士站出现人龙，亦有旺区人头涌涌。](https://www.thestandnews.com/politics/ab免費搭車全民旅遊日-長洲赤柱西貢大棠人來人往)
+不是人民币跌了，是人民币会暴涨
+It’s not that the yuan would go down, it would skyrocket
 
-[有市民趁乘车免费一家大小由新界出港九游玩。有上班一族说，今日节省了近30元车资。](https://www.thestandnews.com/politics/ab免費搭車全民旅遊日-長洲赤柱西貢大棠人來人往)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-19-at-10.15.35-AM.png)
-**3.****【立法会争位】卢文端：建制全取****90****席是输****   ****违背中央本意**
+美元会暴跌，美股会暴跌
+The dollar would drop and the U.S. stock market would collapse
 
-[据【立场新闻】12月19日讯，今日（ 19 日 ） 是立法会选举，选委会界别选民在湾仔会展投票，选出 40 席选委会界别立法会议员。基本法委员会副主任谭惠珠到会展投票时指，今次选举无先例可援，不需要为投票率作纠缠。全国侨联副主席卢文端就认为，「反中乱港分子」未能入闸，选举无以往两极对抗气氛，投票率低属正常，吁「非建制派支持者」投票表达声音。](https://www.thestandnews.com/politics/立法會爭位譚惠珠今次選舉無先例可援-不需糾纏投票率-盧文端料投票率三成多)
+这是为什么共产党牛啊
+This is why the communist party is evil
 
-[全国侨联副主席卢文端指，新一届选举投票率低是正常，因为今次反中乱港分子未能入闸，选举无以往两极对抗气氛，双方支持者没那么踊跃投票，不过认为投票率高低和新的选举制度好坏无必然关系，他预计今次投票率大约百分之三十几。](https://www.thestandnews.com/politics/立法會爭位譚惠珠今次選舉無先例可援-不需糾纏投票率-盧文端料投票率三成多)
+5000亿给沙特，搞了一个投资2万亿美元
+They offer 500 billion dollars to Saudi Arabia, and have made a 2 trillion dollars investment
 
-[卢文端又重申他的论调，建制派不要全取 90 席，「我都讲过，如果全取90席就是输，不是赢，违背中央新选举制度的本意。低投票率是正常，回归前的两届立法局选举都是百分之30多，投票率高未必是好事。」](https://www.thestandnews.com/politics/立法會爭位譚惠珠今次選舉無先例可援-不需糾纏投票率-盧文端料投票率三成多)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-19-at-10.15.43-AM.png)
-**4.****【立法会争位．新界】民建联新界五区全「告急」****   ****民主思路黄頴灏：若投票率只有****2****成多，预计不会有胜算**
+然后未来20年全接受数字人民币和人民币结算
+and then Saudi Arabia would accept digital yuan and yuan settlement for the next 20 years
 
-[据【立场新闻】12月19日讯，被「完善」后的首次立法会选举今日（19日）投票。被削至 20席的地区直选，每区设两个直选议席。新界各选区皆有自称「非建制派」人士参选，惟选前民调料，民建联于新界四区当中胜算较大。新界东南、新界北，全数候选人均称「选情告急」，民建联的候选人在新界全部「告急」。](https://www.thestandnews.com/society/立法會爭位新界民建聯新界五區全告急-民主思路黃頴灝若投票率只有2成多預計不會有勝算)
+美国当年创建阿美集团呐
+That’s the U.S. that created Aramco back then
 
-[据香港民意调查研究所，民建联、新社联李世荣胜选机会最高。不过，无论在选举论坛，还是今（19 日）在街站，他都表示需要选民支持，称选举不会有「够票」之说，早在周三告急。](https://www.thestandnews.com/society/立法會爭位新界民建聯新界五區全告急-民主思路黃頴灝若投票率只有2成多預計不會有勝算)
+帮着沙特挖出了油啊
+US helped the Saudis dig out the oil
 
-[工联会陈颖欣下午 3 时于葵涌广场现身告急，形容选情非常严峻，呼吁市民不要误信谣言以为她「赢梗」而不投票。](https://www.thestandnews.com/society/立法會爭位新界民建聯新界五區全告急-民主思路黃頴灝若投票率只有2成多預計不會有勝算)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-19-at-10.15.52-AM.png)
-**5.****【立法会争位】工联会义工大窝口村逐户敲门催票放单张****   ****住户斥滋扰**
+那个地方只有沙子，什么都没有
+There was nothing but sand back then
 
-[据【立场新闻】12月19日讯，政府「完善」选举制度后的首场立法会选举，周日（19 日）举行投票日，投票率备受关注。 《立场》接获读者投诉，指有工联会义工在大窝口村逐户敲门，询问住客「投票了吗？」，造成滋扰。](https://www.thestandnews.com/politics/立法會爭位工聯會義工大窩口邨逐戶敲門催票-放陳穎欣單張-住戶斥滋擾)
+当年的国王看着油出来的时候浑身发抖
+The king was trembling when he saw the oil came out
 
-[由读者提供的片段显示，一男一女自称工联会义工，在楼层逐户敲门，女义工手持夹纸板及资料，一边查看资料，一边读出住户的姓名。](https://www.thestandnews.com/politics/立法會爭位工聯會義工大窩口邨逐戶敲門催票-放陳穎欣單張-住戶斥滋擾)
+就抖的不行了，就抖
+He was shaking so much that he couldn’t stand it
 
-[如有人应门，义工会核对对方的姓名，并询问「你投票了吗？」；其中一住户回应指已投票，两名义工则称「多谢你」，然后离开并到另一单位再敲门。如单位无人应门，男义工会将工联会陈颖欣的选举单张，夹在铁闸后离开。](https://www.thestandnews.com/politics/立法會爭位工聯會義工大窩口邨逐戶敲門催票-放陳穎欣單張-住戶斥滋擾)
+当年他才30几个媳妇，出来油以后就变成了5000个媳妇
+He only had about 30 wives back then, but it became 5000 after the oil came out
 
-[《立场》向工联会及陈颖欣的选举团队查询，是否派人在大窝口村逐层找选民提醒投票、如何回应有投诉指遭受滋扰，以及义工持有的选民资料如何取得、保管及使用是否符合《私隐条例》规定等问题，正待回覆。](https://www.thestandnews.com/politics/立法會爭位工聯會義工大窩口邨逐戶敲門催票-放陳穎欣單張-住戶斥滋擾)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-19-at-10.16.00-AM.png)
-**6. ****星岛：****20 ****警队高层升职　简启恩顶替蔡展鹏　任国安处处长**
+5000个王子，500个媳妇
+Actually, it was 5000 princes, 500 wives
 
-[据【立场新闻】12月19日讯，《星岛日报》引述消息指，今年年底有 20 警队高层升职， 8 人升任管理层。原为国家安全处助理处长的简启恩，将接替早前涉嫌光顾无牌按摩店的蔡展鹏，成为国安处处长；助理警务处长（行动）陈俊燊升任行动处处长；警务处助理处长（刑事）叶云龙升任刑事及保安处处长。](https://www.thestandnews.com/society/星島20-警隊高層升職-簡啟恩頂替蔡展鵬-任國安處處長)
+最后发现美国人骗他以后，把阿美给强行国有化收回来
+Finally, after finding out that the Americans had cheated him, he nationalized Aramco and took it back
 
-[至于警察公共关系科（PPRB）主管郭嘉铨，则任新增的助理处长职位，继续带领警察公共关系科；警务处行动处处长郭荫庸、警务处副处长（管理）郭荫庶及香港警察学院院长张静，将于明年 3 至 4 月退休，预料下任警务处处长大热人选、刑事及保安处处长周一鸣，将升任副处长（管理）。](https://www.thestandnews.com/society/星島20-警隊高層升職-簡啟恩頂替蔡展鵬-任國安處處長)
+沙特王国诞生
+The Kingdom of Saudi Arabia was born
 
-[警方回覆《立场》查询指，就警队内部的人事变动，警方不作评论。](https://www.thestandnews.com/society/星島20-警隊高層升職-簡啟恩頂替蔡展鵬-任國安處處長)
+后来美国人签了个合同
+Afterward, the Americans signed a contract with Saudi Arabia
 
-校对 / 封面合成：文粤 / 发布：流光飞舞
+好吧，壳牌石油，我以后买我就最便宜的
+All right, Shell Oil, our America will pay the lowest price when buying it in the future
+
+几美金一桶的油
+A few dollars a barrel
+
+这是美国的石油技术
+This is thanks to the United States oil technology
+
+后来美国发展页岩气才出来的
+Later, the United States developed shale gas
+
+要不然美国这个油就被卡住了
+Otherwise, the United States would be stuck with oil
+
+但是，现在美国搞了个什么
+But now, what U.S. want to do with China?
+
+整个在沙特当年干的事情，它想在中国搞一个
+The whole thing that the US did to Saudi Arabia back then, they want to repeat it again in China
+
+经济上的像阿美的
+which is creating an economic puppet-like Aramco
+
+结果人家不是给你收回来了，是连你都给废了
+As a result, the CCP not only took back this economic puppet but also want to destroy the United States
+
+这时候澳大利亚、日本为啥要出汗，你知道吗？
+At this time, do you know why Australia and Japan are sweating?
+
+日本紧张啊
+Japan is being nervous
+
+共产党要在亚洲当老大，这已经是亚洲老大了
+The Communist Party wants to be the boss in Asia, which he already is
+
+美国也承认了你是我代言人
+The United States has also recognized The Communist Party as their spokesman
+
+过去30年，八九六四之后
+In the past 30 years, after June 4, 1989 (the Tiananmen massacre)
+
+基辛格、克林顿、布什家族已经全同意
+Kissinger, Clinton, and Bush family had all agreed
+
+这都是明摆的事
+This is obvious
+
+日本现在你看我跟你那么好
+Japan told the United States that we were having such a good relationship
+
+我想当亚洲老大
+let me be the boss of Asia
+
+所以叫CPTPP，是吧？
+So they organized the CPTPP, right?
+
+全面与进步跨太平洋伙伴关系协定
+They made the Comprehensive and Progressive Trans-Pacific Partnership agreement
+
+那可是日本绝对的经济杀手锏
+That was Japan’s absolute economic killer
+
+结果被川普给废掉了
+however, it was scrapped by Trump
+
+* * *
+
+Date:12/07/2021
+原视频标题: 美国怕中共不再使用美元
+The U.S. Fears That The CCP Will no Longer Use the U.S. Dollar
+原视频日期：2021/12/05
+原视频链接:[**https://gettr.com/post/piv73q2421**](https://gettr.com/post/piv73q2421)
+任务编号：KC343（3133）
+视频时间段 : 0:00-02:07
+中听校：洛杉矶盘古农场 – Mike Li
+翻译：洛杉矶盘古农场 – Mike Li
+翻译终校：洛杉矶盘古农场 – 郭班之樱
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

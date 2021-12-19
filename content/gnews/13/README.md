@@ -2,31 +2,67 @@
 ---
 
 
-## 英国即将迎来老弱病残群体的巨大死亡浪潮，但Covid-19不会是罪魁祸首
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1771564/)
+## 彭帅事件绝对是习近平政治生涯的滑铁卢
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1771646/)
 
-作者：Snowman
-![](https://assets.gnews.org/wp-content/uploads/2021/12/PHOTO-2021-12-19-22-41-48.jpg)
-The Expose 12月15日报道， 在英国的老年人和最脆弱的人群中即将出现死亡高峰，此高峰将与2020年4月的情况相似。虽然媒体仍然一无既往的宣传Covid-19是造成死亡高峰的罪魁祸首，但无法掩盖的事实是：英国政府及其科学顾问团所炮制的 “灾难配方 “应该承担全部责任。这个“ 配方”包括强制要求护理院的病人接种疫苗，不惜穷尽国家卫生系统的全部资源用于为国民进行 “强化 “接种，以及再次大规模购买一种被称为“咪达唑仑”的药物。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3242.png)
+[https://gtv.org/video/id=61bde517a68b4f4b28e9f3f0](https://gtv.org/video/id=61bde517a68b4f4b28e9f3f0)
 
-2020年3月，英国人民被政府限制只能呆在家里以拯救生命。但实际上的证据表明，英国人民被命令呆在家里，以达到NHS（国家健康服务机构—英国）可以不受制约的给老人和弱势群体服用咪达唑仑，如果发生死亡病例，则谎报他们是死于Covid-19。请看下面证据：
+**郭文贵
+Miles Guo**
 
-- 咪达唑仑是一种用于临终关怀的药物。在美国，咪达唑仑是可被用于死刑注射的一种药物，它会导致严重或危及生命的呼吸系统障碍，如呼吸变浅、变慢或暂时停止，这些均有可能导致永久性脑损伤或死亡。英国的监管机构有严格规定，咪达唑仑只能在医院或医生办公室被服用，而且这些地方必须拥有心肺检测设备，以保证心肺异常时可进行及时救治。
-- 在所谓的Covid-19大流行开始时，马特-汉考克（卫生和社会保健国务秘书）就订购了足以满足两年使用的咪达唑仑，随后又从法国购买了更多的此类药物。这个事实证据已经在包括汉考克、范-谭教授、托里议员和卢克-埃文斯博士在内的议会委员会的会议上得到证实。马特-汉考克曾经说 “良好的死亡方式 “需要三样东西，其中之一就是咪达唑仑。
-- 马特-汉考克和政府以冠状病毒法案为幌子，取消了死亡证明和有关火葬的法律，同时还废除了医疗服务赔偿的法律和禁止护理院探访亲人的法律。新的法律规定，火葬不需要出示医疗机构的死亡证明。
-- 2020年4月和5月，发生在护理院的死亡人数显著增加，死亡的许多人都被错误地归咎于Covid-19。
-- 2020年底，护理质量委员会发现有34%的卫生和社会护理工作者受到来自护理院的行政指令压力，可以在不必通知护理院的居民和他们亲人的情况下，执行 “不抢救 “的命令。大赦国际的一份报告也发现在护理院中普遍使用了 “不抢救 “的指令。
-- 有证据表明，在所谓的大流行开始时，购买的可使用两年的咪达唑仑在当年的10月份就已经告馨。如此巨大数量的咪达唑仑都去哪儿了？
+你知道彭帅这个事儿对他的影响，习下决心要干掉张高丽
+You know the impact of Peng Shuai incident that Xi is determined to get rid of Zhang Gaoli
 
+说一半的功劳是张高丽的彭帅搞出来的，这叫天意呀
+It is said that half of the credit is Zhang Gaoli’s Peng Shua, this is God’s will
 
-现在，当局准备再次玩这个游戏，这次是以所谓的Omicron Covid-19变体为幌子。2021年11月12日，英国政府卫生和社会保健部（DHSC）发布了一份供应商的竞标书：《为Covid-19准备ITY药品和生命末期护理药品的供应》
+彭帅这件事情是个锦上添花，老天送我们的礼啊，彭帅呀
+Peng Shuai incident is an icing on the cake, Peng Shuai is God’s gift to us
 
-评论：这次疫情毋庸置疑就是一场人为设计的并被政府，大科技集团，大制药公司政府相关权力机构和主流媒体合谋制造的一场人类历史上的最大劫难。为达到各自最大的利益，法律可以随意修改，言论自由和公民各种权力受到严重侵犯。如果没有文贵先生创立的Gnews 等自由发声平台，我们在揭露黑暗和捍卫人权自由的征途中，不知需要遭遇多少难以想像的困难和付出多大的代价，才能冲出邪恶势力的层层封锁。现在，我们值得骄傲的是，我们已拥有GTV, GNEWS, GETTR等独立的自由发声平台，任何邪恶势力都不可能再阻挡新中国联邦人彻底铲除中共的历史步伐。
+我们未来得给彭帅点喜币，你知道吗？
+We have to give Peng Shuai some Hcoins in the future, you know?
 
-参考链接：[https://dailyexpose.uk/2021/12/15/huge-wave-of-deaths-coming-to-uk/](https://dailyexpose.uk/2021/12/15/huge-wave-of-deaths-coming-to-uk/)
+她加速了共产党冬奥会的灭亡，然后弄点儿躺平币
+She accelerated the demise of the Communist Party’s Winter Olympics game, and then made some lay-flat-coin for her
 
-审核校对：Barry Jack
-上传排版：F
+咱们也可以专门给彭帅搞一个币，叫做什么，天空无限大，是吧
+We can also make a coin specifically for Peng Shuai, what is it called, the sky is infinite, right?
+
+然后地球一粒沙的，上面带上这个图腾的彭帅币
+Then the earth is a grain of sand with the totem Peng Shuai coin on it
+
+这实在太有意义了，你们没有意识到这件事情对他们的羞辱
+This is so meaningful, you didn’t realize the humiliation of this incident to CCP
+
+很多人说这是真正的习近平的滑铁卢的开始
+Many people say that this is the beginning of the real Xi Jinping’s Waterloo
+
+这个滑铁卢又搞了俄罗斯这样，这对他来讲这真的是多米诺骨牌开始了
+and Russia is like another Waterloo, this is really the start of dominoes for him
+
+谢谢
+thank you
+
+* * *
+
+Date:12/16/2021
+原视频标题: 彭帅事件绝对是习近平政治生涯的滑铁卢
+The Peng Shuai incident is definitely the Waterloo of Xi Jinping’s political career
+原视频日期：2021/12/12
+原视频链接[**https://gettr.com/post/pjp42e188e**](https://gettr.com/post/pjp42e188e)
+任务编号：KC344（3242）
+视频时间段 : 0:00-1:02
+中听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – jambo
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

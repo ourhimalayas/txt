@@ -2,18 +2,32 @@
 ---
 
 
-## 一粒药，见真心，爆料革命真战友一定要备好药！
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1771724/)
+## 郭文贵先生最新歌曲Hcoin To the Moon创造了历史
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1771778/)
 
-撰稿人：大浪小水花
-![](https://assets.gnews.org/wp-content/uploads/2021/12/5a91f5272013d429b26fe8d842cebcf7.jpg)
-郭先生在2021年12月17日的大直播中提到，爆料革命宣传疫苗真相和病毒解药已经有一年之久，但仍然有战友在患病（或打疫苗）后只会一味朝联盟伸手要药，让战友冒着风险付着辛苦千里迢迢给自己送药，自己却不去买。
+12/19/2021 郭文贵先生的最新歌曲Hcoin To the Moon及其MV版视频上线iTunes的18日内，创造了历史。
 
-郭先生指出，现在市场上有很多种青蒿素是有效的，是很容易买到的，不能总指望别人帮忙。
+* * *
 
-郭先生建议，以后送药这种事情战友们要少做，到现在还不备药的人，说明他根本不信爆料革命，相信的人一定会备药。那些既不信又不听的人，就拿自己的生命去试试。
+[【PDF 下载】1-18 Dec 2021 – Hcoin To The Moon by Miles Guo – iTunes&Billboard Charts Ranking Record](https://assets.gnews.org/wp-content/uploads/2021/12/1-18-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/1-18-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record.pdf)
 
-郭先生呼吁支持爆料革命相信爆料革命的真战友应该马上行动起来，尽快备好必须的药物，救命要靠自己。
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_5.jpg)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_6.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_7.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_8.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_9.jpg)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_10.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_11.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_12.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_13.jpg)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_14.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_15.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_16.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_17.jpg)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_18.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_19.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_20.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_21.jpg)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_22.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_23.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_24.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_25.jpg)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_26.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_27.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_28.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/打榜记录_29.jpg)
+[【PDF 下载】1-18 Dec 2021 – Hcoin To The Moon by Miles Guo – iTunes&Billboard Charts Ranking Record](https://assets.gnews.org/wp-content/uploads/2021/12/1-18-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/1-18-Dec-2021-Hcoin-To-The-Moon-by-Miles-Guo-iTunesBillboard-Charts-Ranking-Record.pdf)
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

@@ -2,167 +2,174 @@
 ---
 
 
-## 习家人掌握一切权力
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1771743/)
+## 习近平不能被暗杀，只有习才可以挑战美国，才会打台湾、才会带领共产党走进坟墓
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1771781/)
 
-[https://gtv.org/video/id=61bde5c7a68b4f4b28e9f432](https://gtv.org/video/id=61bde5c7a68b4f4b28e9f432)
+[https://gtv.org/video/id=61be008aa68b4f4b28e9fecf](https://gtv.org/video/id=61be008aa68b4f4b28e9fecf)
 
-习近平, 彭丽媛的衣服
-Las ropas de Xi Jinping y Peng Liyuan
+Miles我们得到很多情报中共很多人想杀掉习近平
+Miles recibimos muchas informaciones de que muchos del PCCh quieren asesinar a Xi Jinping
 
-买什么料子, 穿什么牌, 带什么包, 用什么手机
-Qué tipo de tela comprar, qué marca, cartera o teléfono utilizan
+你怎么看待这个问题
+Cómo le ves a este problema
 
-照相, 出行
-Las fotos que se toma y las salidas de paseo
+他一问我这话
+Él al preguntarme
 
-100%听她女儿的
-Esto 100% escucha de su hija
+我当时我回答我说你们
+Yo le respondí en aquel momento: “ustedes
 
-军队用谁, 不用谁
-A quién van a utilizar del ejército y a quien no
+可能掌握的情报是肯定是准确的
+“Seguramente las informaciones que obtienen son las más puntuales”
 
-几乎是它弟弟远平说了算
-Casi todo lo decide su hermano Yuanping
+在中国共产党内部
+Dentro del Partido Comunista de China
 
-我再说一遍
-Repito de nuevo
+不时的都会发生这种事情
+En cualquier momento suceden este tipo de cosas
 
-只有七哥2012年说过
-Sólo lo que yo dije en el 2012
+他注定了所有的副总统都要干掉总统
+Está destinado que todos los vicepresidentes quieran asesinar al presidente
 
-中国没有常委会了
-Ya no hay Comité Permanente en China
+从来不会说因为说你想不想干
+Nunca ha pasado eso de “porque tu quieres hacerlo o no”
 
-常委会就成了跟班的了
-El Comité Permanente se convierte en asistente seguidor
+他是必须干
+Él debe hacerlo
 
-只有国家安全委员会
-Sólo el Consejo de Seguridad Nacional
+你没选择你在副总统位置上
+No tienes para escoger estando en el puesto de vicepresidente
 
-然后成立各个组
-Luego establecen cada grupo
+你不干他 他干你
+Si no lo haces tú te asesinan a ti
 
-各个组就架空了, 所有中国的政府职能机构
-Cada grupo está vacío y todas las agencias gubernamentales chinas
-李克强完全是个托儿
-Li Keqiang es totalmente un niño de la guardería
+这些事情他到了最后的时候
+Estas cosas al llegar el momento final
 
-叫做一双新皮鞋, 下面沾了一个人家吐的那个
-Se llama un nuevo zapato de vestir, debajo está pegado algo que lo escupieron
+他本性体制都注定要干掉习
+Su sistema de naturaleza está destinado a acabar con Xi
 
-一个口香糖就叫李克强
-Un chicle que se llama Li Keqiang
+但是
+Pero
 
-就是沾上了
-Y así se pegó
+干掉习的结果会使这场人类灾难
+El resultado de matar a Xi hará que este desastre humano
 
-我这也不适合给你拿下去
-No soy adecuado para quitarlo
+继续延伸更多年
+Continúe extendiendo por más años
 
-你就沾着吧
-Quédate pegado
+只要习被任何人杀掉了
+Mientras Xi sea asesinado por alguien
 
-就踩了一个这个东西
-Y así tiene esta cosa pisada
+习就是共产党的英雄
+Xi será el héroe del Partido Comunista
 
-完全没有任何职能
-No tiene totalmente ninguna función
+甚至是一半愚蠢的中国被洗脑人的英雄
+Incluso será el héroe de la mitad de los chinos con el cerebro lavado
 
-国家安全委员会完全代表了(常委会)
-El Consejo de Seguridad Nacional representa absolutamente al (Comité Permanente)
+一下子成了英雄了
+En un momento se convierte en héroe
 
-国安委有谁呀, 习远平
-¿Quiénes están en el Consejo de Seguridad Nacional? Xi Yuanping
+这是一点都不用怀疑的
+De esto no hay que dudarlo
 
-彭丽媛
-Peng Liyuan
+他就成了英雄了
+Se convierte en un héroe
 
-有彭办在里边
-Teniendo a Peng adentro
+然后这一半人会誓死保护习近平的
+Y esta mitad de persona protegerá a Xi Jinping hasta la muerte
 
-他女儿直接领导着一切
-Su hija lidera todo directamente
-中办主任丁薛祥, 什么事都得(和她汇报)
-Ding Xuexiang, director de la Oficina Central, tiene que (informar todo a ella)
+今天的习近平太阳思想
+Hoy el pensamiento de sol de Xi Jinping
+他是个人一个社会关系学历史学的一个必然
+Él es un individuo, una necesidad de las relaciones sociales y de la historia
 
-他能天天问习近平吗
-¿Él puede preguntar todos los días a Xi Jinping?
+你把习变成这么个人物
+Si conviertes a Xi en un personaje así
 
-他只能问他女儿去
-Solamente puede preguntar a su hija
+那就真的是中国的悲剧
+Entonces eso si de verdad es una tristeza de China
 
-中国在过去的这10年历史
-En los pasados 10 años de la historia de China
+就是本来应该是把这个体制消灭
+Quiere decir que en realidad este sistema debe ser eliminado
 
-记着今天爆料中说的话
-Recuerda las palabras que se dijo hoy en el Movimiento de Denunciantes
+它自然而然就灭掉
+Él naturalmente se extingue
 
-就是李木子
-Es Li Muzi
+你把它捏了干什么呀
+Para qué lo aprietas
 
-习远平
-Xi Yuanping
+所以说我说这是肯定没有
+Por eso yo digo que esto seguro no
 
-彭丽媛再加上彭磊
-Peng Liyuan más Peng Lei
+我本人坚决反对
+Yo personalmente me opongo firmemente
 
-然后再加上习桥桥
-Y se suma Xi Qiaoqiao
+如果现在有人暗杀习的话
+Si ahora hay alguien que quiera asesinar a Xi
 
-然后再加上习安安
-Y Xi An’an
+我说我会站在他前面替他挡子弹去
+Yo me pondré delante de él para detenerle la bala
 
-几乎就是这一家11个人
-Casi es toda esta familia que son 11 personas
+我让他继续活下去
+Yo haré que siga viviendo
 
-对外的情报信息几乎上是靠
-Casi todas las informaciones externas dependen de
+因为只有习能完成我们的想法
+Porque sólo Xi puede completar nuestra idea
 
-安安的家人还有安安的孩子
-La familia y los hijos de An’an
-嫁给了英国人的像吴拉菲
-Se casó con un británico como Wu Lafei
+打台湾
+Atacar a Taiwán
+在内部杀土豪 是吧
+Matar a los ricos dentro del partido, cierto
 
-就叫拉菲, 叫吴拉菲
-así se llama, Wu Lafei
+党内清党 垄断思想
+Limpieza clara dentro del partido, pensamiento de monopolio
 
-完全是英国护照
-Es totalmente pasaporte británico
+灭掉宗教
+Destruir las religiones
 
-这所有的包括在英国的老公
-Todo esto incluye al esposo que está en Reino Unido
+共享财富
+Riqueza compartida
 
-拉菲是安安的孙女
-Lafei es la nieta de An’an
+谁能做到了现在呀
+Quién ahora puede lograrlo
 
-是安安的闺女的孩子
-Es la niña del hijo de An’an
+就是党内有100个王岐山他也做不到啊
+Así haya 100 Wang Qishan dentro del partido él no lo puede lograr
 
-所以说这习家在海外的根本(就是这些人)
-Por eso la familia Xi en el exterior en sí (son estas personas)
+只有习能做到
+Solo Xi lo puede lograr hacer
 
-像杨洁篪这些人
-Esta gente como Yang Jiechi
+关键的问题它还要挑战美利坚共和国
+El problema clave es que él hasta quiere desafiar a Estados Unidos
 
-见他们那就狗一样
-Cuando ven a ellos lo ven como perros
+我刚刚跟那哥们说 不挑战你们美国
+Ahorita le dije a ese compadre: “si no desafía a ustedes EE. UU”
 
-他认为这是主子
-Él piensa que este es el dueño
+你美国永远不会和我们站在一起的
+Ustedes nunca estarán parados junto con nosotros
+
+我坚决反对
+Yo me opongo firmemente
+
+我会誓死捍卫习近平的生命
+Yo protegeré hasta la muerte la vida de Xi Jinping
+
+我让他一直活到共产党灭了为止
+Yo lo dejaré vivir hasta que el Partido Comunista sea extinto
 
 * * *
 
 日期：12/17/2021
-原视频标题：习家人掌握一切权力
-La familia Xi tiene todo el poder
+原视频标题：习近平不能被暗杀，只有习才可以挑战美国，才会打台湾、才会带领共产党走进坟墓
+Xi no puede ser asesinado, sólo Xi puede desafiar a EE. UU, solamente así atacará a Taiwán, de esta manera llevará al PCCh a la tumba.
 原视频日期：12/15/2021
-原视频网址： [**https://gettr.com/post/pjpr1vbefd**](https://gettr.com/post/pjpr1vbefd)
-任务编号：KC345(3239)
-视频时间段：0:00-02:11
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+原视频网址： [**https://gettr.com/post/pjpokt3d9f**](https://gettr.com/post/pjpokt3d9f)
+任务编号：KC346（3240）
+视频时间段：0:00-02:16
+西听校：洛杉矶盘古农场 – 小文萱
+翻译：洛杉矶盘古农场 – 霙霙（文霙）
+翻译终校：洛杉矶盘古农场 – 小文萱
 字幕+视频制作：洛杉矶盘古农场 – 天涯行
 审片：洛杉矶盘古农场 – 银龙
 发布 ：洛杉矶盘古农场 – 恩典
