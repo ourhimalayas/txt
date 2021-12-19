@@ -2,38 +2,21 @@
 ---
 
 
-## 南非住院率在世界奥米克戎激增时反而下降
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1770824/)
+## 香港第七届立法会选举投票站门可罗雀
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1770828/)
 
-撰稿：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-8.png)
-正当全球都对激增的奥米克戎焦头烂额的时候，12月17日，南非卫生部长称这次新变种病毒症状温和，与前两波病毒爆发时的峰值相比，住院率大大降低。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1012.png)
-据卫生部长乔·法哈拉的描述，在这波大流行期间，只有1.7%的患者在第二周感染入院，而在第三波德尔塔主导的大流行中，该比率为19%。南非国家传染病研究所的一名官员说，目前需要氧气的人数 “比以前任何一个波段的人数都要少”。与此同时，超额死亡人数，即与历史平均水平相比多出的死亡人数，略低于每周2,000人，是之前峰值的八分之一。据悉，南非现有7600人因新冠病毒住院，约占第二波和第三波峰值的40%。
+撰稿人：自由战士
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Untitled-32.png)图片来自网络
+香港于星期日（12月19日）举行立法会换届选举，是中共全国人大2021年3月颁令修改香港选举办法以来第一次，在这次选举过程中，大家可以看到每个投票站，没有了往日的长龙排队投票的景象，过去的自由之港已经被中共践踏成了一个死港。自从《国安法》让中共血腥强制实施后，香港已经变成深圳一个区来管理了。
 
-南非是奥米克戎首发并上报的地方。正当多国为激增的新病例重新实施各项限制令的时候，南非的现状却与他国激进的措施和无谓的恐慌迥然不同。
+首先，这一次，候选人已经过国家安全机构的审查。也就是说你如果为候选人，必须是经过中共党魁的审核，必须要有党的认知才能有资格选举，就是明摆着对香港人宣布，以后任何选举，每一个选举人都必须姓党，否则一律剥夺选举资格，聚众闹事者一律逮捕入狱。同时给你定以颠覆国家的罪名。
 
+其次，这次立法会由70席扩大至90席，但直选议席从35席减至20席。153名候选人中，只有13人被认为属于非建制派，自称属民主派的更只有三人。民意调查显示，只有48%受访者有投票意欲，创30年低点，这个名存实亡的过场选举，已经没有任何意义了。随后香港就是走中共的流程，一切都是演给百姓看的，一切官员都是内定服务于党。
 
+最后，这次选举后，香港的所有行事都必须在中共的红线范围内进行，不能有越雷池半步。后面香港的任何选择都是一边倒的局面，只有所谓的”爱国者“才能参与治理香港。
 
-新闻链接：
-
-[South African hospitalization rates drop during Omicron surge](https://nypost.com/2021/12/17/south-african-hospitalization-rates-drop-during-omicron-surge/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3-1.png)
-
-总编/编辑：飞虹
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-8.png)
-
-
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
