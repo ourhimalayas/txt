@@ -2,36 +2,46 @@
 ---
 
 
-## 令行禁止：波音公司暂停对美国员工的疫苗强制
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1769703/)
+## 习近平感觉去日无多的多疑和托孤、杀掠和疯狂发动战争
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1769796/)
 
-作者：雄起
+**郭文贵先生：**所以说七哥在最早时候就说，我说习去了俄罗斯几次，整个人放弃了所有对美国，被奥巴马给踢回去以后没面子，特别知道给奥巴马当年给胡锦涛关于中共的信息，特别是提供了薄熙来的这些信息，然后这一系列情况，最后习面向北方双头鹰俄罗斯，去了北朝鲜回来，他决定就要当金氏家族。
 
-据12 月 17 日路透社报道，美国飞机制造商波音公司（BA.N）周五表示，公司暂停了对美国员工的冠状病毒疫苗接种要求，结束了几周以来的不确定性，因为数千名工人的寻求疫苗豁免和在法庭上挑战联邦强制令。
+毫不犹豫的，还认为这个宣传路子，这个价值是对的，而且对待老百姓就是要狠，死球蛋了拉球倒！不行就犬决、枪决，就像赖小民直接注射毒针一样，把所有的企业家国有化。
 
-发言人补充说，波音公司是根据法院禁止执行联邦承包商行政命令和一些州法律的决定，暂停了其疫苗接种要求。
+所有的国家独裁记住，第一个制造内部矛盾，贫富悬殊的矛盾，然后是种族矛盾——新疆、西藏，然后是宗教矛盾，干基督教，干天主教，然后叫各教服，你就念我是神，你不服老子就把教给灭了，然后自己干掉所有的神，所有的教，自己当那个教主，都干了吧习？
 
-在上个月，白宫将联邦承包商的雇员接种疫苗或定期接受豁免的最后期限推迟到 1 月 4 日。而在本月早些时候，美国地方法院的一项裁决停止执行总统乔·拜登对联邦承包商的疫苗要求。
+然后任用自己的亲子、亲女、兄弟、姐妹、爹妈、老婆、小姨子、小舅子，当军权，财权和最后的建造一个自己的秘密部队，中国叫中央警卫局，现在叫做国安委，在希特勒的时候，叫做盖世太保，在斯大林时代叫做KGB——俄罗斯情报委员会，是吧！也就是国家安全委员会。
 
-值得一提的是，通用电气[(GE.N)](https://www.reuters.com/companies/GE.N)、Spirit AeroSystems [(SPR.N)](https://www.reuters.com/companies/SPR.N)和 Amtrak等一些大型医疗保健连锁店和公司也暂停了对员工的疫苗接种要求。
+阿明、苏哈托、日本天皇无不如此，你看看七哥给你讲这个走向，这个近代史，它一定是这个结果，今天全走了，然后用巫术，然后呢诅咒！然后把邪恶的宗教力量、魔术，就所谓的那些魔教的魔术，今天全显现了。
 
-据路透社首次报道，最近几周，因宗教或医疗原因寻求疫苗豁免的波音员工人数已超过 11,000 人，占其美国员工总数的近 9%，比高管最初估计的人数高出许多倍。这让高管们试图寻找一种策略，既能保证员工安全，又能避免工程和工厂劳动力外流。
+所以说这个时候大家看到习在那咳嗽，咳！咳！咳嗽的时候，你想想对世界影响有多大呀！因为所有我讲到的这些人过去都会发生他们身体上的不自信，觉得自己命不久矣！要么被甄嬛给勒死，要么自己勒死别人，就这么简单；第二托孤，托谁？第三，在这个时候是杀无赦，所有我感觉到威胁都要杀掠；第四个，恨这个世界，为什么不能再给我500年，谁都看不顺眼，那种疯狂一定发动战争！
 
-根据周五的备忘录，波音公司的疫苗接种要求已导致超过 92% 的美国工人已登记为完全接种疫苗，或获得宗教及医疗豁免。
+编辑整理：海贼王M.D.LUFFY；
 
-“迄今为止，波音疫苗接种要求的成功使该公司能够很好地遵守联邦行政命令，备忘录提到，该公司 “致力于为我们的员工维护一个安全的工作环境，并促进我们全球员工的健康和安全。”
+视频制作：Cindy；
 
-笔者相信，波音公司是真的出于保证员工安全的初心来执行疫苗注射要求的。毕竟科学的概念已经深入人心很多年。但目前科学界由福奇这样的所谓权威专家占据着话语权，大量的科学界，医学界的反对疫苗的声音被打压，所以社会普遍的以相信科学的心态来执行政府的疫苗接种要求也就不足为奇了。
+视频上传：Cindy；
 
-而随着疫苗灾难以及临床数据的不断披露，和反对疫苗强制的声音越来越强，美国政界也终于有所反应，相信，以地方法院的对疫苗强制令的反对为起点，整个美国政府对疫苗强制的态度很快会有转变。企业和教育机构乃至整个社会的传导效应也会随之而来。
+G-News发布：小满；
 
-[新闻链接](https://www.reuters.com/business/aerospace-defense/exclusive-boeing-suspends-vaccination-requirement-us-based-employees-internal-2021-12-17/)：[https://www.reuters.com/business/aerospace-defense/exclusive-boeing-suspends-vaccination-requirement-us-based-employees-internal-2021-12-17/](https://www.reuters.com/business/aerospace-defense/exclusive-boeing-suspends-vaccination-requirement-us-based-employees-internal-2021-12-17/)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
 
-审核校对： sherryok
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-上传排版： 水云间
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

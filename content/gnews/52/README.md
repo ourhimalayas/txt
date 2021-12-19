@@ -2,24 +2,33 @@
 ---
 
 
-## AUKUS三边会谈确定技术和军事全方位围堵中共
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1767611/)
+## 汇丰因反洗钱漏洞被英国金融监管局罚款6千多万英镑
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1767764/)
 
-撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-219.png)[图片来源](https://trendsresearch.org/insight/aukus-and-the-future-of-alliances-in-the-indopacific/)
-白宫12月17日宣布，印太新军事合作框架“AUKUS”指挥塔—联合指导小组，已圆满结束了本月在五角大楼举行的三方会谈。会上确认了在网络战能力、人工智能（AI）和量子计算机等先进技术方面的合作，以遏制中共国的霸权行为，并加强在澳大利亚早期部署核潜艇的合作。
+#### 撰稿：日本东京方舟农场  海星
 
-根据公告，三国于9日举行了关于先进技术能力的会议，14日举行了有关核潜艇的会议。鉴于中共国的霸权行径，三国一致同意将致力于提高防卫伙伴机制，并促进印太等地区的安全和稳定，以及在明年初之前确定具体工作计划。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/D5120774-7172-44E2-879F-0EA04DF87DA8.jpeg)图片来源：路透社
 
-鉴于对核扩散和和平利用核能方面的担忧，三国还讨论了为保持其在防扩散方面的长期领导作用，将采取与国际原子能机构（IAEA）持续磋商等一系列努力。三个国家随后表达了对《核不扩散条约》（NPT）制度的坚定支持，并确认将遵守核不扩散义务并尽可能执行最严格的不扩散标准。
+12月17日，英国金融监管局（Financial Conduct Authority）宣布，将对汇丰控股有限公司罚款约6395万英镑，理由是其交易监控系统反洗钱流程长期存在缺陷，且始终未完全修复。
 
-信息来源:
+据《RTT新闻》报导，英国金融监管局在12月17日表示，该机构已对以亚洲为重点的英国金融机构汇丰控股有限公司（HSBC）罚款约6395万英镑。
 
-[中国にらみ相互運用性向上へ　オーカス本格始動](https://news.yahoo.co.jp/articles/f9ee5db05145d3cff9bcfd2978f848390f0b9bc3)
+FCA指出，汇丰一直以来是使用自动化程序来监测每月数以亿计的交易，以便于识别可能的金融犯罪。然而该机构发现，自2010年3月31日至2018年3月31日的八年里，汇丰交易监控系统的三个关键部分存在严重的缺陷。
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+FCA执法和市场监督执行董事马克·斯特伍德（Mark Steward）表示，在很多场合他都强调过汇丰交易监控系统存在的问题，但汇丰却始终未完全修复这些缺陷，这使得银行和社区都面临着原本可以避免的风险。
+
+据悉，目前汇丰已对其交易监控系统反洗錢流程提出大规模补救计划，而该计划将由FCA监督执行。
+
+*参考链接：[FCA Fines HSBC £63.9 Mln For Deficient Transaction Monitoring Controls](https://www.nasdaq.com/articles/fca-fines-hsbc-ps63.9-mln-for-deficient-transaction-monitoring-controls)*
+
+* * *
+
+*素材采编：海星*
+
+*编辑：青衣青青*
+
+*发布：miumiu*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
