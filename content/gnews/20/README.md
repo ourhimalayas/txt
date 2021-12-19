@@ -2,52 +2,53 @@
 ---
 
 
-## 阻止拜登对私企的疫苗授权的努力现到达最高法院
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1772095/)
+## 意大利为应对OMICRON考虑采取新的COVID-19措施
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1772113/)
 
-编译： Jenny Ball
+作者：纽约香草山农场 – 四季
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1032.png)位于华盛顿特区的美国最高法院档案照片。（马克·托马斯/ Pixabay）
-
-三家公司和密苏里州总检察长要求美国最高法院**暂停拜登政府对拥有 100 名或更多员工的私营企业的疫苗授权。**
-
-三家公司是：
-
-- 菲利普斯制造与塔公司（Phillips Manufacturing & Tower Company）
-- Sixarp 有限责任公司(Sixarp LLC )
-- 奥伯格工业有限责任公司(Oberg Industries LLC)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
 
-他们于周五提交了一份紧急申请，要求发出禁令，**称拜登政府正在私营企业行使无限的联邦行政权力。**
 
-申请中写道：“各方之间对于结束 COVID-19 大流行祸害的共同愿望没有争议。” “行政部门提出的论点承认，**联邦行政权力没有明显的限制。**”
 
-“对少数美国人的医疗选择感到沮丧，行政部门试图控制和监督该国大量人口的疫苗接种时间表，”该申请补充说。
 
-如果法院不阻止，这三家公司都拥有 100 多名员工，将不得不执行疫苗任务。
+据[OAN网站](https://www.oann.com/italy-eyes-new-covid-19-measures-amid-omicron-worries-newspapers/)12月19日援引路透社报道，出于对高传染性Omicron中共病毒变体传播的担忧，意大利政府正在考虑采取新的措施，以避免假日期间中共病毒感染率的激增。
 
-同时，三家申请人在申请中表示，**疫苗授权还将危及公司本已陷入困境的招聘工作。**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1777-1-1.jpg)2021年3月15日，意大利米兰，伦巴第大区成为 “红区”，在该国为努力减少冠状病毒疾病（COVID-19）感染进入封锁状态，一名戴着口罩的妇女经过一家关闭的商店。（REUTERS/Flavio Lo Scalzo）
 
-这是周五美国第六巡回上诉法院允许其生效后，一些公司和红州为阻止乔·拜登对私营公司的疫苗授权所做的最新努力。
+据悉，总理马里奥·德拉吉可能会要求已接种疫苗者在进入包括迪斯科舞厅、电影院、剧院和体育场在内的拥挤场所时出示COVID-19阴性测试报告，并在户外也须佩戴口罩。
 
-OSHA 发布的针对私营企业的疫苗要求意味着，大约 8400 万美国工人面临在 1 月 4 日的截止日期之前接种疫苗。
+而根据目前的规定，已经接种疫苗或最近从该疾病中康复的人可以自由进入酒吧、餐馆、博物馆、电影院、俱乐部和参加体育赛事。
 
-根据规定，未完全接种疫苗的员工必须戴上口罩，并每周接受一次检测，以检测导致 COVID-19 疾病的 CCP病毒。例外情况适用于在户外或在家工作的人。
+意大利早前已经强制要求医疗工作者、学校工作人员、警察和军人进行疫苗接种，这一接种义务范围可能从1月起将扩大至涵盖所有工人。
 
-OSHA 规则威胁每次违规罚款高达 13,600 美元。如果雇主不减少违规行为，它还可能会每天额外罚款 13,600 美元。对于故意或严重违规，OSHA 可处以最高 136,000 美元的罚款。
+本周早些时候，罗马已经将COVID-19的紧急状态延长至3月31日，并规定所有来自欧盟国家的游客必须在出发前接受测试。
 
-在第六巡回法院作出裁决后，OSHA 将 1 月 10 日定为拥有 100 名或更多员工的公司遵守该规则的最后期限。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月.png)
 
-**评论：悲哀啊！人权自由和医疗隐私是宪法赋予美国人民的基本权利，现在却被自己的政府颠覆了宪法！**
+编辑/校对/发稿：小鹿
 
-新闻来源：[theepochtimes.com] [Efforts to Stop Biden’s Vaccine Mandate for Private Businesses Reach US Supreme Court](https://www.theepochtimes.com/efforts-to-stop-bidens-vaccine-mandate-for-private-businesses-reach-us-supreme-court_4165564.html?utm_source=CCPVirusNewsletter&amp;utm_medium=email&amp;utm_campaign=2021-12-19)
 
-* * *
 
-*审核：文乐 
-校对: 信心满满
-发稿: Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-4.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

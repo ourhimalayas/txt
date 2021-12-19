@@ -15,128 +15,128 @@
 
 ---
 
-### [美国前副总统候选人佩林坚决对疫苗强制令说不](/content/gnews/1/README.md)
+### [我们不要疫苗，不要洗脑，不要仇恨，远离孩子们！](/content/gnews/1/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [Dr. Nagase 如何看到疫苗导致死胎率上升](/content/gnews/2/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [在预期的圣诞节封锁之前，荷兰人涌向商店](/content/gnews/3/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [美国前副总统候选人佩林坚决对疫苗强制令说不](/content/gnews/4/README.md)
  ` HimalayaRussia`
 
-### [柳叶刀的信说社会上对未接种疫苗者的污名“不合理”](/content/gnews/2/README.md)
+### [柳叶刀的信说社会上对未接种疫苗者的污名“不合理”](/content/gnews/5/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [法币和电子货币的翻转即将到来](/content/gnews/3/README.md)
+### [法币和电子货币的翻转即将到来](/content/gnews/6/README.md)
  ` 温哥华扬帆农场`
 
-### [荷兰将实施严格的圣诞封锁](/content/gnews/4/README.md)
+### [荷兰将实施严格的圣诞封锁](/content/gnews/7/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [加拿大特鲁多政府是中共的一条忠实走狗](/content/gnews/5/README.md)
+### [加拿大特鲁多政府是中共的一条忠实走狗](/content/gnews/8/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [新浪微博还能挺住？](/content/gnews/6/README.md)
+### [新浪微博还能挺住？](/content/gnews/9/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [新冠疫苗很危险，伊维菌素被打压，永远不应该在怀孕妇女身上使用试验性药物](/content/gnews/7/README.md)
+### [新冠疫苗很危险，伊维菌素被打压，永远不应该在怀孕妇女身上使用试验性药物](/content/gnews/10/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [自然生成的免疫系统与新冠疫苗的免疫系统有很大的差别，请带着慈悲之心传播真相](/content/gnews/8/README.md)
+### [自然生成的免疫系统与新冠疫苗的免疫系统有很大的差别，请带着慈悲之心传播真相](/content/gnews/11/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [世茂房地产公司用抵押房欺诈购房者](/content/gnews/9/README.md)
+### [世茂房地产公司用抵押房欺诈购房者](/content/gnews/12/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2021年12月19日文贵先生直播摘要及音频—银河系农场](/content/gnews/10/README.md)
+### [2021年12月19日文贵先生直播摘要及音频—银河系农场](/content/gnews/13/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [中共国医学界专家爆料疫苗会导致儿童迅速早熟、细胞变异长肿瘤](/content/gnews/11/README.md)
+### [中共国医学界专家爆料疫苗会导致儿童迅速早熟、细胞变异长肿瘤](/content/gnews/14/README.md)
  ` MG 澳喜农场多语组`
 
-### [调查显示，在挪威(奥斯陆)的圣诞晚餐后98%的COVID-19感染者都是充分接种了疫苗的人](/content/gnews/12/README.md)
+### [调查显示，在挪威(奥斯陆)的圣诞晚餐后98%的COVID-19感染者都是充分接种了疫苗的人](/content/gnews/15/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [DC大中华时事：中国央行强调金融政策“稳字当头”](/content/gnews/13/README.md)
+### [DC大中华时事：中国央行强调金融政策“稳字当头”](/content/gnews/16/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [重磅！世界第一个对新冠病毒康复者的严正声明，吃药定检防癌变](/content/gnews/14/README.md)
+### [重磅！世界第一个对新冠病毒康复者的严正声明，吃药定检防癌变](/content/gnews/17/README.md)
  ` YALUN 亚伦`
 
-### [婴儿谋杀： 82% 妊娠中早期接种孕妇发生自然流产](/content/gnews/15/README.md)
+### [婴儿谋杀： 82% 妊娠中早期接种孕妇发生自然流产](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [CDC欲将周死亡人数归咎于病毒而不是疫苗](/content/gnews/16/README.md)
+### [CDC欲将周死亡人数归咎于病毒而不是疫苗](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [意大利为应对OMICRON考虑采取新的COVID-19措施](/content/gnews/17/README.md)
+### [意大利为应对OMICRON考虑采取新的COVID-19措施](/content/gnews/20/README.md)
  ` 纽约香草山MOS02`
 
-### [文·贵天成——文贵先生谈“中原佛手、裕达国贸”（二）](/content/gnews/18/README.md)
+### [文·贵天成——文贵先生谈“中原佛手、裕达国贸”（二）](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [是时候停止体育联盟对健康者进行的COVID检测了](/content/gnews/19/README.md)
+### [是时候停止体育联盟对健康者进行的COVID检测了](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [阻止拜登对私企的疫苗授权的努力现到达最高法院](/content/gnews/20/README.md)
+### [阻止拜登对私企的疫苗授权的努力现到达最高法院](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共的地产与经济灾难，是对全世界的一场合法洗劫](/content/gnews/21/README.md)
+### [中共的地产与经济灾难，是对全世界的一场合法洗劫](/content/gnews/24/README.md)
  ` MG 澳喜农场多语组`
 
-### [2021年12月19日郭先生大直播文字同步精要](/content/gnews/22/README.md)
- ` 焦點20分`
-
-### [【文贵先生大直播PPT】疫苗大灾难](/content/gnews/23/README.md)
+### [【文贵先生大直播PPT】疫苗大灾难](/content/gnews/25/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [文贵爆料 12.19：病毒的遗害是你挥之不去噩梦](/content/gnews/24/README.md)
+### [文贵爆料 12.19：病毒的遗害是你挥之不去噩梦](/content/gnews/26/README.md)
  ` 秘密翻译组-原创组`
 
-### [香草山翻译部周刊|2021年12月19日第27期](/content/gnews/25/README.md)
+### [香草山翻译部周刊|2021年12月19日第27期](/content/gnews/27/README.md)
  ` 纽约香草山MOS01`
 
-### [【文贵先生大直播PPT】全球抵制北京冬奥会 人权加经济制裁中共](/content/gnews/26/README.md)
+### [【文贵先生大直播PPT】全球抵制北京冬奥会 人权加经济制裁中共](/content/gnews/28/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [【文贵先生大直播PPT】从地产持续暴雷破产 经济指标作假 企业家意外死亡看中共还能撑多久](/content/gnews/27/README.md)
+### [【文贵先生大直播PPT】从地产持续暴雷破产 经济指标作假 企业家意外死亡看中共还能撑多久](/content/gnews/29/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [GTV新闻访谈简报|2021年12月19日早](/content/gnews/28/README.md)
+### [GTV新闻访谈简报|2021年12月19日早](/content/gnews/30/README.md)
  ` 纽约香草山MOS01`
 
-### [2021年12月19日文贵先生直播小飞象大雨围城速记](/content/gnews/29/README.md)
+### [2021年12月19日文贵先生直播小飞象大雨围城速记](/content/gnews/31/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [12/19/21 香港快讯 截至下午五时半地方直选投票率23.12% 比上届的35.3%低](/content/gnews/30/README.md)
+### [12/19/21 香港快讯 截至下午五时半地方直选投票率23.12% 比上届的35.3%低](/content/gnews/32/README.md)
  ` 英喜-粵語組`
 
-### [【玫瑰看新闻】每日快讯 2021年12月18日](/content/gnews/31/README.md)
+### [【玫瑰看新闻】每日快讯 2021年12月18日](/content/gnews/33/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [日本政府通过立法保障国防设备供应](/content/gnews/32/README.md)
+### [日本政府通过立法保障国防设备供应](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [银河快讯: 日本边境政策至明年年初不会有变化；岸田内阁支持率上升](/content/gnews/33/README.md)
+### [银河快讯: 日本边境政策至明年年初不会有变化；岸田内阁支持率上升](/content/gnews/35/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [感染关键标志？Omicron 感染比以前的毒菌快70倍](/content/gnews/34/README.md)
+### [感染关键标志？Omicron 感染比以前的毒菌快70倍](/content/gnews/36/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美议员呼吁NBC借助冬奥会揭露中共侵犯人权的行为](/content/gnews/35/README.md)
+### [美议员呼吁NBC借助冬奥会揭露中共侵犯人权的行为](/content/gnews/37/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [12/10郭文贵直播：欧洲四国将抵制冬奥会并与中共经济脱钩（粤语配音）](/content/gnews/36/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [共产党恐惧到用上了巫蛊之术](/content/gnews/37/README.md)
+### [共产党恐惧到用上了巫蛊之术](/content/gnews/38/README.md)
  ` 骄子`
 
-### [从解植锟之死说“暴富草民死亡公式”](/content/gnews/38/README.md)
+### [从解植锟之死说“暴富草民死亡公式”](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【中日财经爆】因中共病毒的影响，丰田将减产至2.2万辆汽车](/content/gnews/39/README.md)
+### [【中日财经爆】因中共病毒的影响，丰田将减产至2.2万辆汽车](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [COVID-19 最新情报｜日本考虑公费负担新冠口服药 郭文贵曾爆新药副作用极强](/content/gnews/40/README.md)
+### [COVID-19 最新情报｜日本考虑公费负担新冠口服药 郭文贵曾爆新药副作用极强](/content/gnews/41/README.md)
  ` 關注組`
-
-### [有声|郭先生解析中共年前抢夺盘古和裕达的原因](/content/gnews/41/README.md)
- ` MOSREC`
 
 ### [波音公司暂停对美国员工强制接种疫苗](/content/gnews/42/README.md)
  ` 喜马拉雅农场新西兰站`
