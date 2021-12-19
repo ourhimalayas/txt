@@ -2,62 +2,50 @@
 ---
 
 
-## 【Michael.Tonny专栏】英国官方数据和报告证明 对公众宣称的疫苗接种数据造假（上）
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1770915/)
+## 7·24系列——“中植系”解直锟
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1770934/)
 
-作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/266dde92b7bf461f822746a71b6ea80a.png)
+**整理：**BENJ1
+**编辑：**翼族
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+郭文贵先生在2021年12月18日盖特小视频中提到“中植系”解直锟：
 
-法国总统Emmanuel Macron曾经在宣布疫苗护照政策一周后，法国创纪录的370万人预约注射中共病毒疫苗。现在，英国政客和媒体正在利用谎言让拒绝注射中共病毒疫苗的人觉得他们是少数人的一部分，达到恐吓民众接种毒疫苗的目的，在英格兰实施“B计划”。
+##### 毛阿敏的老公解直锟——‘中植系’掌门人，昨天刚过世，才六十岁，因为打了三针疫苗。十个月以前他就开始被中纪委立案调查，要求把钱和公司管理权都交出来，他的弟弟解直铭（应为口误，实为解直锟的哥哥解植春）中国人民银行的，王岐山的人，跟郭树清、潘功胜、周亮这些人好，他两属于东北帮出来的，原来和张宏伟PK过。现在打了三针又逢共产党抢钱，那真地没法活了，一路走好。下一个就轮到张宏伟了，这人也打了三针辉瑞疫苗。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-1639128383-4203-1639128388_r_680x408.jpg)
+年纪在40岁以上的中国人，对毛阿敏都不陌生。毛阿敏，1963年3月1日生于上海，是1980年代和1990年代中国流行乐坛天后级女歌手，代表作有《渴望》、《思念》、《绿叶对根的情意》等。2002年与解直锟相识，2003年结婚，2004年产下一女，2008年又生下一子。
 
-为了恐吓民众接种毒疫苗，英国首相Boris Johnson早在今年9月14日就宣布了应对COVID-19（中共病毒）的英格兰秋季和冬季A计划（autumn and winter plan A）。英国政府首席科学顾问帕特里克·瓦兰斯爵士 (Sir Patrick Vallance) 表示，现在有大约500万人有资格接种疫苗但没有接种疫苗，如果以目前的限制水平进入冬季，病例就会“爆炸”。Boris Johnson会根据风险、疾病状况以及医院压力等因素，将英国的疫苗政策推向强制性疫苗护照（mandatory vaccine passports）的B计划（Plan B）。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Chris-Whitty.jpg)
-在12月8 日举行的全国Covid-19简报会（national Covid-19 briefing）上，英国首相Boris Johnson宣布将从12月15日（星期三）起在英格兰实施“B计划”，将对未接种疫苗的人实施更严格的规定，引入疫苗护照（Vaccine Passports）。
+解直锟1961年1月出生于黑龙江省，原名解植坤，中植企业集团创始人，曾任中植企业集团首席执行官，同时担任北京大学、复旦大学和南开大学的校董。解家共有六个兄弟姐妹，解直锟有三个姐姐，在兄弟中行二。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Boris-Johnson.png)
+[中植企业集团官网](http://www.zhongzhi.com.cn/about.html)显示，公司业务涵盖半导体、大数据、大消费、新能源汽车、生态环保等；在金融板块方面，控股或参股了**中融信托**、中融基金等六家持牌金融机构，中海晟融、中植国际等五家资产管理公司，以及四家财富管理公司。中植企业集团通过旗下金融平台等曾入股或控股多家中港上市公司，包括中金科技服务、ST天山、宇顺电子、美尔雅、康盛股份等。
 
-英国《每日邮报》（Daily Mail）撰稿人Andrew Neil甚至在12月10日发表的文章《[It’s time to punish Britain’s five million vaccine refuseniks: They put us all at risk of more restrictions, says ANDREW NEIL. So why shouldn’t we curb some of their freedoms?](https://www.dailymail.co.uk/debate/article-10294225/Its-time-punish-Britains-five-million-vaccine-refuseniks-says-ANDREW-NEIL.html)》中说“仍有500万英国成年人，由于恐惧（fear）、无知（ignorance）、不负责任（irresponsibility）或愚蠢（stupidity）而拒绝注射疫苗，他们这样做不仅危及他们自己，也危及我们其他人的健康；如果他们感染了新冠病毒，他们将对NHS(National Health Service)施加最大压力，导致我们其他患有严重非新冠病毒（CCP病毒）疾病的人无法接受我们有权的治疗。我们都在为这些拒绝疫苗的硬核（hard core）付出沉重的代价”。
+天眼查平台、相关上市公司披露的资料都显示，中植集团注册成立于1989年。它的前身是五营区地方企业联合开发公司，注册资本140万元，经过10多年的经营积累，到2000年注册资本变更为1亿元。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/ANDREW-NEIL-FOR-THE-DAILY-MAIL.jpg)
+2000年4月，解直锟与黑龙江中植企业集团公司工会委员会（下称中植工委会）共同设立黑龙江中植企业集团有限公司（下称黑龙江中植）。解直锟和中植工委会分别实缴出资1.7752亿元、4438万元，出资比例分别为80%、20%。2000年5月，黑龙江中植将公司更名为中植集团。
 
-事实上，这是政客和媒体用一个谎言掩盖另一个谎言！英国政客和媒体一直宣称的500万人没有打疫苗，本身就是一个谎言。
+2003年，中植集团注册资本增至5亿元。2009年，解直锟将所持中植集团80%的股权转让给刘洋（解直锟外甥）。2011年2月，刘洋又将所持中植集团80%的股权转让给解蕙淯（解直锟与前妻生育的大女儿），中植工委会将所持中植集团 20%的股权转让给刘义良。
 
-英国政客和媒体从9月14日到现在，都向民众传达英格兰有500万人，由于恐惧、无知、不负责任或愚蠢而拒绝注射疫苗。
+2011年6月，中植集团注册资本增至12亿元，新增的7亿元注册资本由上海禾国源实业有限公司（下称禾国源）认购。增资完成后，禾国源、解蕙淯和刘义良在中植集团的出资比例分别为58.34%、33.33%、8.33%。
 
-[THE EXPOSE](https://dailyexpose.uk/)12月17日发表的文章《[UK Government report admits there are 23.5 Million people in England who have NOT had a single dose of a Covid-19 Vaccine](https://dailyexpose.uk/2021/12/17/23-million-not-vaccinated-in-england/)》采用英国政府官方数据和报告证明，英国政客和媒体一直对实际接种疫苗的人数造假。
+2011年7月，禾国源将所持中植集团58.34%股权转让给解直锟。2012年1月，解直锟又将这部分股权悉数转让给刘义良。刘义良和解蕙淯成为中植集团唯二的股东，出资比例分别是66.67%、33.33%。
 
-根据英國國家統計局（Office for National Statistics）公布的数据，英格兰共有5598万人（2018年）。
+2015年9月，中植集团将注册资本增至50亿元，新增38亿元注册资本由解直锟全资持股的中海晟丰（北京）资本管理有限公司（下称中海晟丰）认购。中海晟丰、刘义良和解蕙淯的出资比例分别是76%、16%和8%。此后中植集团的股权结构一直保持至今天。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/England-Population.png)
+解直锟大哥解植春，曾担任光大证券总裁，中国光大（集团）总公司执行董事、副总经理，光大永明人寿保险公司董事长。2014年4月，解植春调任中央汇金公司总经理，后辞职。解植春现为中国富强金融（港股上市）的董事会主席。
 
-根据今年7月2日[Statista](https://www.statista.com/statistics/281208/population-of-the-england-by-age-group/)公布的2020年英格兰人口年龄分布数据，2020年，英格兰约323.9万人年龄在4岁及以下，另有353.9万人年龄在5至9岁之间。10-14岁之间为343.6万人，可推算出10-11岁大约为343.6÷5×2=137.4万人。
+2017年3月20日《华尔街日报》报道，解直锟在开曼群岛法院提起诉讼，指控XIO董事长Athene Li和首席执行长Joseph Pacini串谋诈骗。《华尔街日报》获得的资料显示，解直锟于2014年曾授权Athene Li处理他在开曼群岛的Dorsey Ventures公司的投资，Li作为公司的法定所有人，但股份委托协议中却说明解直锟才是公司实际所有人，报道称：“（中植）庞大的企业群，在股权关系上勾稽复杂，空壳公司且用且弃，资本运作眼花缭乱。‘中植系’成员间合作密切，但在规避法律意义上的控制关系、隔断资金链危机等环节精妙设计、手法老到，使其在规则边缘游刃有余，远胜昔日德隆”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Population-of-England-in-2020-by-age-group.png)
+2018年3月13日，A股上市公司经纬纺机公告称，将收购中植集团所持中融信托32.98%股权。中植集团之前持有中融信托32.99%股权，是其第二大股东，位列大股东经纬纺机之后。本次收购完成后，中植集团几乎将中融信托的股权全部售出。
 
-英国要求12岁及以上的人打毒疫苗，则12岁以下不需要打疫苗的为323.9+353.9+137.4=815.2万人；应接种人群总数为5598-323.9-353.9-137.4=4782.8万人。
+中融信托是中国国内最大的信托巨头之一，与中信信托、平安信托并列信托业第一梯队。2017年，中融信托营收位列行业第二、以28亿利润位列行业第四。中植系一贯的运作方式就是一手靠着信托充实“钱袋子”，然后另一只手在市场上大肆买买买，中植系把自己最大的“钱袋子” 中融信托都交给央企，即便如此中共也没有放过他，一路走好，解直锟……
 
-[接下篇：【Michael.Tonny专栏】英国官方数据和报告证明 对公众宣称的疫苗接种数据造假（下）](https://gnews.org/zh-hans/1770981/)
+*发布：翼族*
 
-参考数据：
-
-[COVID-19 vaccine surveillance report Week 50](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1041593/Vaccine-surveillance-report-week-50.pdf)
-
-[Whilst you were distracted by a Christmas Party the UK Gov. released a report confirming the Fully Vaccinated account for 4 in every 5 Covid-19 Deaths in England since August](https://dailyexpose.uk/2021/12/11/report-shows-4-in-5-covid-deaths-fully-vaccinated/)
-
-[Population of England in 2020, by age group](https://www.statista.com/statistics/281208/population-of-the-england-by-age-group/)
-
-[It’s time to punish Britain’s five million vaccine refuseniks: They put us all at risk of more restrictions, says ANDREW NEIL. So why shouldn’t we curb some of their freedoms?](https://www.dailymail.co.uk/debate/article-10294225/Its-time-punish-Britains-five-million-vaccine-refuseniks-says-ANDREW-NEIL.html)
-
-[COVID-19 vaccine surveillance report Week 49](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1039677/Vaccine_surveillance_report_-_week_49.pdf)
-
-[Covid jab rollout for 12 to 15-year-olds to start in UK schools](https://www.bbc.com/news/uk-58552769)
-
-[UK Government report admits there are 23.5 Million people in England who have NOT had a single dose of a Covid-19 Vaccine](https://dailyexpose.uk/2021/12/17/23-million-not-vaccinated-in-england/)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/) 上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

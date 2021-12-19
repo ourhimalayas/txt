@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/19/2021 1:25 PM (UTC)`
+
+2021年12月19日 文贵大直播：病毒疫苗虚假经济；强办奥运后果严重；欧美惩罚中共难逃；疫苗灾难大事将至
+![img](https://media.gettr.com/group9/origin/2021/12/19/12/f8548e85-b5ba-4a60-9dae-03117fd44ff6/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 12/19/2021 8:22 AM (UTC)`
 
 CCTV, the crazy CCP’s mouthpiece, shirking responsibility for creating the virus, spreading the crisis, and abusing human rights to the US.<br/><br/>疯狂的中共党媒CCTV甩锅美国制造病毒、传播危机、践踏人权<br/>
@@ -152,13 +159,6 @@ CCTV, the crazy CCP’s mouthpiece, shirking responsibility for creating the vir
 
 12/17/2021 Miles Guo: The fundamental reason that the Pangu Plaza’s dragon head-shaped building was turned into the bird head-shaped/glans-shaped design is Xi Jinping and Wang Qishan are superstitious, thinking that the dragon head-shaped design can pose absolute threat to Peng Liyuan, whose Chinese zodiac sign is tiger (because it’s believed that dragons can defeat tigers). So, the Pangu Plaza’s dragon head-shaped building must be altered before the year of the water tiger (2022)<br/><br/>12/17/2021 文贵直播：盘古龙头变鸟头、龟头的根本原因是习、王等迷信，相信盘古阳龙会对彭丽媛（属虎）造成绝对的威胁，所以必须在壬水寅虎年到来前搞掉盘古龙头<br/>
 ![img](https://media.gettr.com/group16/getter/2021/12/18/02/c26ed343-5868-6c47-a933-89b7ebd51c44/out.jpg)
-
----
-
-`@miles 12/17/2021 1:10 PM (UTC)`
-
-2021年12月17日 文贵大直播：国内经济危机与冬奥会；方正证券郑州接管裕达；彭副主席上位意图何在；各数字货币下滑与喜币
-![img](https://media.gettr.com/group43/origin/2021/12/17/12/60a69cba-2ea3-e77e-c396-55c12a33d5c0/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

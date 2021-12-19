@@ -2,27 +2,67 @@
 ---
 
 
-## 欧洲多国因新变种病毒重启各项限制令
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1770938/)
+## 【Michael.Tonny专栏】英国官方数据和报告证明 对公众宣称的疫苗接种数据造假（下）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1770981/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1219J.jpg)网络图片
-欧洲各国正在采取更严厉的措施，以阻止由高度传播的 Omicron 变体引发的新一波CCP病毒感染——这些举措引发了从巴黎到巴塞罗那各地区的抗议活动。
+作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+[接上篇：【Michael.Tonny专栏】英国官方数据和报告证明 对公众宣称的疫苗接种数据造假（上）](https://gnews.org/zh-hans/1770915/)
 
-随着新增感染病例数的增加，奥地利收紧了旅行限制、法国巴黎取消了新年前夜的烟花表演、丹麦关闭了剧院、音乐厅、游乐园和博物馆，而爱尔兰则对酒吧实行晚上 8 点宵禁，并限制参加室内和室外活动。
+根据英国卫生安全局（UK Health Security Agency）发布的《[COVID-19 vaccine surveillance report Week 50](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1041593/Vaccine-surveillance-report-week-50.pdf)》报告第三页Population impact一段，到 2021年12 月12日，英格兰第1剂疫苗的总体接种率为67.9%，第2剂疫苗为62.2%，第3剂的接种率为 31.4%。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Population-impact.png)
+结合英格兰总人口、年龄分布、和卫生安全局的报告，可得到下表计算结果：
 
-其他国家可能会走得更远。荷兰政府部长周六将开会讨论专家小组的建议，他们建议加强已经实施的部分封锁。一些商店周六比往常更早开门，购物者涌入市中心的购物区，担心这可能是他们在圣诞节前购物的最后机会。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Covid-19-Vaccination-Uptake-in-England-a.jpg)
 
-在英国，本周确认的每日感染人数已飙升至创纪录的最高水平，政府已经重新要求人们在室内戴上口罩，并要求人们在去夜总会和大型活动时出示疫苗接种证明或最近的冠状病毒检测呈阴性。Omicron 现在是伦敦的主要冠状病毒变种，并且蔓延态势依旧十分凶猛。
+也就是说，根据英国各部门的数据汇总到一起推算，在英格兰5598万人中，没有打毒疫苗的人有2350.5万，拒绝打疫苗的人口为2350.5-815.2=1535.3万，远比政客和媒体从9月份到现在一直宣称的500万人多得多。
 
-同一事件，英国以及其他国家也在加快推进疫苗加强针的步伐：英国的购物中心、大教堂和足球场已被改造成大规模疫苗接种中心。这在笔者看来似乎又是一次精心安排：通过变种病毒恐吓群众接受加强针，如有必要再次进行封锁和限制，强迫人们以接种加强针换取人身自由。
+英国政客和媒体一直在对公众撒谎！隐瞒数字，把拒绝打毒疫苗群体变成人数人，对拒绝打疫苗的人进行道德和法律绑架！
 
-在法国，政府宣布将从周三开始为 5 至 11 岁年龄段的儿童接种疫苗。总理让·卡斯特斯周五表示，随着 Omicron 变种像“闪电”一样快速传播，政府提议要求人们在进入餐馆、咖啡馆和其他公共场所时提供疫苗接种证明——该措施正在等待议会批准。
+更为严重的是，英国政客和媒体，很少向公众透露疫苗有毒的事实。注射毒疫苗既不能预防感染，也不能减少死亡，反而是成倍增加感染概率、增加感染后住院概率、增加死亡概率！
 
-新闻参考链接：
+TheExpose.uk就根据[英国卫生安全局（UK Health Security Agency）](https://www.gov.uk/government/organisations/uk-health-security-agency)2021年12月9日发布的第49周全国流感和COVID-19监测报告（[National flu and COVID-19surveillance report:9 December 2021 (week 49)](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1039639/Weekly_Flu_and_COVID-19_report_w49.pdf)）得出结论：自8月16日至12月5日期间，英国每5个感染中共病毒病例中有3个、每5个住院病例中有3个、每5个死亡病例中有4个已完全接种疫苗。未接种疫苗的人感染中共病毒后的病死率为0.2%，完全接种疫苗为0.8%；未接种疫苗人感染中共病毒后的住院死亡率为26%，完全接种疫苗的人群为63%。
 
-[9 News](https://www.9news.com.au/world/coronavirus-europe-countries-reimpose-restrictions-as-omicron-variant-sweeps-continent/8b004811-32d3-4b32-a4db-c0e35187b3e8)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
+今年8月16日至12月5日期间，未接种疫苗的人因感染CCP病毒后的住院人数是11,767人，而接种疫苗后因感染中共病毒后住院的人数是19,730人，其中18,406人还是接种了两针毒剂量疫苗的人群。这意味着自2021年8月以来，接种疫苗的人群占所有因感染中共病毒而住院人数的 63%，接种疫苗不能预防病毒，更不能减少住院，有限的医疗资源反而是接种疫苗的人占据了大部分。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-154-1.png)
+
+自2021年8月以来，完全接种疫苗的人群占感染中共病毒死亡人数的大部分，尤其自10 月份情况确实变得更糟。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/fully-vaccinated-population-have-accounted-for-the-majority-of-Covid-19-deaths-every-single-month-since-August-2021.png)
+
+从8月16日开始到12月5日，因感染中共病毒总共死亡15,128人，其中，未打疫苗者为3,070人，仅打一针疫苗者514人，打了两针疫苗者11,544人，已接种疫苗的人占79.7%，10月11日到11月7日四周内，打了疫苗的人占感染中共病毒后，总死亡人数的82.9%，11月8日到12月5日期间占80.1%。
+
+从8月16日开始到12月5日，接种疫苗的人群占中共病毒确诊病例的56%、住院人数的63%和死亡人数的 80%（79.7%）。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-612.png)
+
+最后看一下，同样是感染了CCP病毒，没有打疫苗的人最终死亡率为0.2%，而打了疫苗的人为0.8%。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/not-vaccinated-population-and-the-case-fatality-rate-among-the-vaccinated-population.png)
+
+疫苗既不能预防感染，也不能减少死亡！
+
+政客和媒体通过隐瞒拒绝打疫苗的人数，用虚假数据使拒绝打毒疫苗的人处于被孤立的少部分，背上胆小、无知、不负责任或愚蠢的精神枷锁和甚至违法的沉重负担，这种用一个谎言掩盖另一个谎言，必将受到人类的审判！
+
+参考数据：
+
+[COVID-19 vaccine surveillance report Week 50](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1041593/Vaccine-surveillance-report-week-50.pdf)
+
+[Whilst you were distracted by a Christmas Party the UK Gov. released a report confirming the Fully Vaccinated account for 4 in every 5 Covid-19 Deaths in England since August](https://dailyexpose.uk/2021/12/11/report-shows-4-in-5-covid-deaths-fully-vaccinated/)
+
+[Population of England in 2020, by age group](https://www.statista.com/statistics/281208/population-of-the-england-by-age-group/)
+
+[It’s time to punish Britain’s five million vaccine refuseniks: They put us all at risk of more restrictions, says ANDREW NEIL. So why shouldn’t we curb some of their freedoms?](https://www.dailymail.co.uk/debate/article-10294225/Its-time-punish-Britains-five-million-vaccine-refuseniks-says-ANDREW-NEIL.html)
+
+[COVID-19 vaccine surveillance report Week 49](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1039677/Vaccine_surveillance_report_-_week_49.pdf)
+
+[Covid jab rollout for 12 to 15-year-olds to start in UK schools](https://www.bbc.com/news/uk-58552769)
+
+[UK Government report admits there are 23.5 Million people in England who have NOT had a single dose of a Covid-19 Vaccine](https://dailyexpose.uk/2021/12/17/23-million-not-vaccinated-in-england/)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/) 上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
