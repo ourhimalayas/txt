@@ -2,27 +2,36 @@
 ---
 
 
-## 瑞典开始将中共病毒护照微芯片植入人体内
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1770610/)
+## 未感染中共病毒乘客被强行拘留隔离
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1770819/)
 
-#### 撰稿：彩虹
+作者： 东京樱花团 在远方
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-31.jpg)图片来源：TRT World
-12月18日，《新闻极限》引用《新闻周刊》的报道，指瑞典人已经开始在人体上植入包含其中共病毒（COVID-19）护照的微芯片。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-这种芯片由Epicenter公司开发，该公司“首席颠覆官（Chief Disruption Officer）”汉内斯·斯约布莱德（Hannes Sjöblad）告诉Ruptly新闻台说：“植入物是非常多样化的技术，可以用于许多不同的事情，而现在，在你的植入物上可以随时访问Covid护照，万一你的手机没电了，这是非常方便的” 。
+盖特12月18日消息，近日福克斯节目揭露了一起匪夷所思的疫苗暴政事件，一位并没有感染中共病毒的飞机旅客，被强行拘留并被隔离。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1219AM（1-10）視頻備用.003-2.jpeg)
+据悉，该事件发生在荷兰阿姆斯特丹机场，一名登机前接受检测并未感染中共病毒的旅客，被全副武装的军警强行拖下飞机，被送往中共病毒营地进行强制隔离。究其原因仅仅是荷兰政府根据他的旅行史，认为他可能有一天会感染新冠病毒而已。
 
-但是，根据Nya Dagbladet的一篇文章，斯约布莱德警告说，由于读取这些芯片所需要的只是用手机在身体上刷一下，植入者的信息有可能被黑客。“这些芯片很容易被读取，这意味着我可以用手机悄悄靠近你，读取你芯片上的内容。我通常告诉人们不要在芯片上写下他们生活的秘密”。
+主持人警告说，这样离奇的事件不仅仅发生在海牙国际法庭的故乡，加拿大也在发生着同样的疫苗暴政。人们被禁止乘坐飞机、火车和轮船旅行，除非他们证明已经注射过特鲁多逼迫他们注射的中共病毒疫苗。如果人们拒绝，就会被关押在一个伪装成公共卫生设施的监狱里。
 
-文章说，到目前为止，全国大约有“6000人在他们的手中植入了芯片”。然而，这并不是说这些人在体内植入芯片是为了办理与中共病毒有关的护照，因为这些芯片可能被用于其他目的。
+主持人最后的结语令人深思：世界各地正在发生的强制注射中共疫苗的暴政，象征着民主的死亡。
 
-根据报道，这些比米粒略大的芯片可以被植入手臂、拇指和食指之间，或其他身体部位。
+参考链接：[没有患新冠的乘客被强行拘留](https://gettr.com/post/pjz0b5c0f6)
 
-**新闻来源**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
 
-[Sweden Starts Microchipping COVID Passports in People](https://www.newsmax.com/newsfront/microchip-covid-passport-sweden/2021/12/18/id/1049202/)
+总编：Ivy001
+编辑：Kathy文艺
+校正/发稿：我不在这里
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

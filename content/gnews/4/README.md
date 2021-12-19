@@ -2,54 +2,42 @@
 ---
 
 
-## 80万Covid死亡：拜登傲慢对待记者质问
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1771062/)
+## Omicron对污染区和有病史的及两三针疫苗接种者极危险
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1771117/)
 
-编译： Jenny Ball
+**郭文贵先生：**我现在给大家再重申一下，特别是现在有个倾向认为现在Omicron甚至可能是解药，甚至更差致死率，在过去的48小时就上次直播到现在，就是我们的科学家和我联系的非常的频繁，现在出现了几个极端的问题，它对不同的种族和不同的地区完全不同的感觉，因为咱们的科学家是国内的数据掌握是非常新的，特别是国内大面积污染的地方，就是你的肺部被污染，PM2.5很多的堵塞的地方， Omicron致死率在过去48小时非常之严重，就是整个人就是呼吸急促，因为它在肺里边整个的这个病毒的重复率和繁殖率加速了这个整个肺部还有血管、毛细血管的堵塞，瞬间就死掉了。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-2-11.jpg)图片来源：twitter.com（Freddy Gray的推文视频截图）
+他认为在过去的这个一周内中国死一定是超过几十万人的，一定是这个数，而且是一定是十万起步的，但是没有公布。就对污染区严重的人是很夸张这是一个；第2个有病史的、肺病历史的、还有一个就血管病的、脑梗的、心梗的，有过这历史的绝对是这是非常危险的。因为它的繁殖率极高，你完了这是身体他就“啪”过去。
 
-超过 80 万美国同胞死亡，美国人在寻找导致他们死亡的冠状病毒起源的答案时，可能首先要回答一个不同的问题：
+这是最近几天全世界很多人说，所有的发现都是二针、三针被感染了，他认为一个最核心的元素是什么？由于你打了mRNA这个东西在身体一直有抗体，它本身就是毒，它本身就是毒，它本身就在你身体造成了堵塞，而这个堵塞这时候你得到Omicorn它加速了阻塞，而且使你身体极力的再加对抗，他生活不了了。一个是本身的心肌炎、心包炎，再一个加速堵塞“啪”就过去了。
 
-为什么他们的总统看起来满不在乎？
+很危险啊！致死率、致命率跟过去的没有可能会低，但对某些人群可能是集结更加相反，大家要千万千万要记住是第一个我要重申的问题；
 
-周三，乔·拜登和《纽约邮报》记者之间的交流清楚地表明了这一点，当时拜登似乎不仅对这个话题不感兴趣，而且一开始似乎对被问到这个话题感到震惊——然后带着傲慢的笑容走开了。
+字幕来源：[2021年12月17日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1768692/)；
 
-据《华盛顿邮报》报道，这一时刻发生在周三，拜登正要离开白宫，前往周五和周六早些时候袭击肯塔基州和其他五个州的致命龙卷风造成的破坏。
+SRT文件制作：小满；
 
-“**对于 80 万冠状病毒死亡，你有没有说过你的责任有多大？为什么你没有就病毒起源透明化要求中共国做更多的事情？**” 记者问道。 作为回应，**拜登只是不屑一顾地挥了挥手，“你相信这个人吗？”边咧着嘴笑**。
+视频剪辑及上传：Cindy；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/unknown-2-6.png)图片来自原文
+G-News发布：小满；
 
-这是典型的总司令案例，被主流媒体宠爱着，呵护着公众对总统能力的看法，似乎相信他不必向美国人民解释他自己。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
 
-这在任何情况下值得怀疑——然而，媒体永远不容忍川普总统这样做。但是，当拜登自己的政府在给国家施加命令，旨在对抗问及他的病毒的法规时，这个回答是不可原谅的。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-对于问题的前一部分，拜登的粗鲁至少是可以理解的。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-一个指责当时的总统川普无视冠状病毒，并发誓要“关闭病毒”，而不关闭国家的，与这样的人进行竞选，现在是总统，在他任内难道不应该为 COVID-19 杀死更多美国人的事实承担责任， 至少比他的前任应该承担责任。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-（无论如何，这样做需要一位比乔·拜登更有道德的总统。）
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-但问题的第二部分，询问为什么拜登没有就其在这场瘟疫起源中的作用向中共施压，要求中共提高透明度。截至周三，这场瘟疫已经在全球范围内造成超过 500 万人死亡，这值得认真回应。
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-然而，现实是，拜登没有勇气为冠状病毒对抗北京，就像他不敢为陷入困境的香港人民、不断受到威胁的台湾友好政府，或中国大陆种族灭绝的维吾尔族受害者挺身而出一样 。
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-现在，总统偶尔会谈一场艰难的对抗，但只限于采取无足轻重的行动——比如被北京政府官员公开嘲笑的对 2 月中共奥运会的“外交抵制”。
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-当他在白宫草坪上被问及此事时，拜登只是沉默和冷笑。
-
-除非美国总统想找到答案——并确保他们成为人人知道的答案，否则，美国和全世界人民，都不会得到中共对这种致命的病毒不断爆发应该承担责任的答案。
-
-**参考资料：**[westernjournal][Watch the Look on Biden’s Face When Reporter Confronts Him on 800,000 COVID Deaths](https://www.westernjournal.com/watch-look-bidens-face-reporter-confronts-800000-covid-deaths/?utm_source=Email&amp;utm_medium=CTBreaking&amp;utm_campaign=breaking&amp;utm_content=conservative-tribune&amp;ats_es=dca67062709054f7bc6c6d0d828f4d01)
-
-* * *
-
-*审核：文乐*
-*校对 : 信心满满*
-*发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-4.jpeg)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

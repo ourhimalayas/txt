@@ -2,66 +2,34 @@
 ---
 
 
-## 【Michael.Tonny专栏】英国官方数据和报告证明 对公众宣称的疫苗接种数据造假（下）
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1770981/)
+## 2021年12月18日郭先生盖特 — 视频盖特2「9分56秒」
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1771009/)
 
-作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
-[接上篇：【Michael.Tonny专栏】英国官方数据和报告证明 对公众宣称的疫苗接种数据造假（上）](https://gnews.org/zh-hans/1770915/)
+听写：洛杉矶盘古农场 — Antsee-GTV
 
-根据英国卫生安全局（UK Health Security Agency）发布的《[COVID-19 vaccine surveillance report Week 50](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1041593/Vaccine-surveillance-report-week-50.pdf)》报告第三页Population impact一段，到 2021年12 月12日，英格兰第1剂疫苗的总体接种率为67.9%，第2剂疫苗为62.2%，第3剂的接种率为 31.4%。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Population-impact.png)
-结合英格兰总人口、年龄分布、和卫生安全局的报告，可得到下表计算结果：
+Video link: [https://gettr.com/post/pk026ned18](https://gettr.com/post/pk026ned18)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/D1C6224C-A6DF-4042-8392-5D34F6DB6545.jpeg)
+12月18号，尊敬的战友们好，你们健身了吗？战友们呐，千万不能不健身；兄弟姐妹们，千万不能不健身啊。健身的好处可大了去了！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Covid-19-Vaccination-Uptake-in-England-a.jpg)
+从昨天到现在，纽约一个曼哈顿几万人就得上omicron了。全世界很多城市拉响了警报。共产党放的这个毒，想从过去的“弄死你”到现在的“吓死你”，到现在让所有人不仅待在家里，让你一传全家都传染上。太可怕了！传染力快，并发症多，而且对老人对孩子是威胁，千万小心。就在我们的办公室，前天，三四天以前一个，昨天又发现一个，就别提身边的这个家人那个家人多得不行了。咱们的战友，英国的，一家两口都得上了。吓死人了！战友们：无论如何一定要防毒高于灭共。这个时候待在家里。
 
-也就是说，根据英国各部门的数据汇总到一起推算，在英格兰5598万人中，没有打毒疫苗的人有2350.5万，拒绝打疫苗的人口为2350.5-815.2=1535.3万，远比政客和媒体从9月份到现在一直宣称的500万人多得多。
+第二，青蒿素、伊维菌素太牛了，太牛了！神药啊 — 我一说“神药”浑身都起鸡皮疙瘩。“习太阳”，“习大神”搞巫术给我。哇噻，这简直是…刘彦平当时说了句话，他说，“你真以为我党是无神论吗？我党无神论能搞五角星吗？我党要是无神论为啥先去延安？为什么毛老爷子不进故宫呢？事实上是信神的。大过年的，你搞得我们不愉快，领导也要过年啊，是吧？神也要过年啊，‘习大神’ ”。说明了，搞巫术。
 
-英国政客和媒体一直在对公众撒谎！隐瞒数字，把拒绝打毒疫苗群体变成人数人，对拒绝打疫苗的人进行道德和法律绑架！
+现在的神药 — 伊维菌素、青蒿素 — 谁也代替不了。真的是不是一般的好。Ivermectin，我就老想这个词儿啊。然后另外一个就是艺术意思：Artemisinin — art-misinin。这个是青蒿素 — art-misinin。我已经快把这个词儿给背下来了：a-r-e，然后是，m-i-s-i-n-i-n。我都记住了！Art-misinin，叫青蒿素。伊维菌素是i-v-e-r，「后面是」m-e-c，tin是t-i-n — Ivermectin。哎呦，这记性好的！咱也不是神，我的天呐，但我一定把这个英文搞明白的啊。这是天下神药。现在说不吃羟氯喹直接吃伊维菌素就可以，吃伊维菌素就可以防毒，当然解毒。就这么牛！青蒿素解疫苗的毒，当然防冠状病毒，还消灭绝大多数癌症，还有高血压、糖尿病…太多病了。牛了!牛了！牛了！我才吃了，到今天是吃了6次吧，我现在上哪儿去都说怎么看你比原来还年轻啊 — 都这么说。一看是啊，是越来越年轻啊？！年轻不是我的追求，但如果上天赐予我年轻的话我也很愿意接受。
 
-更为严重的是，英国政客和媒体，很少向公众透露疫苗有毒的事实。注射毒疫苗既不能预防感染，也不能减少死亡，反而是成倍增加感染概率、增加感染后住院概率、增加死亡概率！
+国内的经济呀，没法说，兄弟姐妹们。继我们昨天播完以后，房地产国内一系列的中小地产开始崩溃。整个北京首都每天从过去的110家，包含小店儿算上，倒闭，现在每天大概在300多家。300多家企业是有员工的，有经营地址的，有营业额的，时间超过一年的，这算中小型公司 — 一天300多家。我不知道这样下去会是什么结局。
 
-TheExpose.uk就根据[英国卫生安全局（UK Health Security Agency）](https://www.gov.uk/government/organisations/uk-health-security-agency)2021年12月9日发布的第49周全国流感和COVID-19监测报告（[National flu and COVID-19surveillance report:9 December 2021 (week 49)](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1039639/Weekly_Flu_and_COVID-19_report_w49.pdf)）得出结论：自8月16日至12月5日期间，英国每5个感染中共病毒病例中有3个、每5个住院病例中有3个、每5个死亡病例中有4个已完全接种疫苗。未接种疫苗的人感染中共病毒后的病死率为0.2%，完全接种疫苗为0.8%；未接种疫苗人感染中共病毒后的住院死亡率为26%，完全接种疫苗的人群为63%。
+另外，银行现在银行抓人抓疯了。一到年底，露馅儿了你知道吗？到年底什么续旧还新啊，什么借新还旧啊，什么高息拉储啊都出问题了，很多人都抓了。大家还有注意到一个问题没有？最近抓的政法委之多，银行之多前所未有！7哥又说对了吧，又蒙对了吧？这些人你别看他们得瑟，最终一定都是共产党的这个恶魔吸血的一个工具而已。逃不过去的！这就是一个共产党杀人机器的结果。从昨天到现在直播完，我收到太多太多人跟我说谁谁谁被抓了，谁谁突然死了。
 
-今年8月16日至12月5日期间，未接种疫苗的人因感染CCP病毒后的住院人数是11,767人，而接种疫苗后因感染中共病毒后住院的人数是19,730人，其中18,406人还是接种了两针毒剂量疫苗的人群。这意味着自2021年8月以来，接种疫苗的人群占所有因感染中共病毒而住院人数的 63%，接种疫苗不能预防病毒，更不能减少住院，有限的医疗资源反而是接种疫苗的人占据了大部分。
+那解直锟，中植系的，毛阿敏老公毛，还有他弟弟叫解直铭吧（解直春），中国人民银行的，绝对王岐山的人，跟郭树清这些人好的不得了，还有什么外汇局局长潘功胜，是吧，周亮，好的一榻胡涂。这人东北帮出来的，和张宏伟原来PK，张宏伟妒忌人家娶了毛阿敏，结果他没娶上毛阿敏，娶了另外一个叫“吃货”的一个女的，说在美国读过哈佛，也年轻。但这两人性能力都不行，都基本没有。结果是打了三针疫苗，解直锟，大概十个月以前就被中纪委开始要求把钱交出来，事业交出来，他一直拖着一直弄，然后还打了三针疫苗，昨天 — “啪”，走了！年轻啊，才60岁呀。所以说又打疫苗再加上共产党抢钱，你说能活得了吗？没法活。你娶了毛阿敏，你娶“啥阿敏”也不行啊。一路走好吧。你生在共产党国了没办法，是吧？下一个就是张宏伟了，也得得心脏病。这小子也打了三针疫苗。听说也是积极地，认真地打了辉瑞疫苗，打了三针。挺厉害的，是吧？
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-154-1.png)
+所以兄弟姐妹们，你看到国内“疫苗死”；企业家被抓；马云到处全世界往回拿钱；马化腾现在正在向中央表示衷心，把所有钱都愿意交出来，不但交钱还交技术，交团队。民生就别提了，是吧？想想大家还记得吴小晖，安邦吗？安邦不都破产了，安邦的东西去哪儿了？听说最近安邦的事儿，几个资产又引起了叫做“死后的官司” — 就都死在棺材板里的人，已经破产的人又蹦出来打官司来了。听说邓家要反击，不接受 — 这个有事儿，这个有意思。会不会邓家有这勇气？邓家没这个种，邓家一家人没个敢动手的。都享福了，一享福了人就没有勇气了。福气太大，物质生活过于奢靡亡国、亡家、亡你的个性。过度奢靡，再没有信仰，那基本就完蛋了。说听邓家和吴小晖现在这个资产处理上已经开始反击。
 
-自2021年8月以来，完全接种疫苗的人群占感染中共病毒死亡人数的大部分，尤其自10 月份情况确实变得更糟。
+然后整个中南部已经全下跌，工资、养老金很多都不要发了，甚至说养老金要缓发3年到5年，支持国家的战略转型期，也就是打台湾。所以你看所有的独裁最后所有的问题都转向战争。让所谓的爱国主义、民族主义、民族仇恨、内部仇恨 — 什么阶级啊，富人和穷人啊，什么少数民族和多数民族啊 — 都是这一套。然后让你还奉献，让你不拿工资，养老金不让你拿，退休工资不让你拿。那这些人咋活呀？
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/fully-vaccinated-population-have-accounted-for-the-majority-of-Covid-19-deaths-every-single-month-since-August-2021.png)
+特别是最近这几天，从昨天直播到现在医院火了。听说中共中央下命令，叫今年，也就是说，不是今年了是明年了，2022年6月份以前，叫中国的医院要突出15000亿。15000亿 — 记住啊，15000亿！
 
-从8月16日开始到12月5日，因感染中共病毒总共死亡15,128人，其中，未打疫苗者为3,070人，仅打一针疫苗者514人，打了两针疫苗者11,544人，已接种疫苗的人占79.7%，10月11日到11月7日四周内，打了疫苗的人占感染中共病毒后，总死亡人数的82.9%，11月8日到12月5日期间占80.1%。
-
-从8月16日开始到12月5日，接种疫苗的人群占中共病毒确诊病例的56%、住院人数的63%和死亡人数的 80%（79.7%）。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-612.png)
-
-最后看一下，同样是感染了CCP病毒，没有打疫苗的人最终死亡率为0.2%，而打了疫苗的人为0.8%。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/not-vaccinated-population-and-the-case-fatality-rate-among-the-vaccinated-population.png)
-
-疫苗既不能预防感染，也不能减少死亡！
-
-政客和媒体通过隐瞒拒绝打疫苗的人数，用虚假数据使拒绝打毒疫苗的人处于被孤立的少部分，背上胆小、无知、不负责任或愚蠢的精神枷锁和甚至违法的沉重负担，这种用一个谎言掩盖另一个谎言，必将受到人类的审判！
-
-参考数据：
-
-[COVID-19 vaccine surveillance report Week 50](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1041593/Vaccine-surveillance-report-week-50.pdf)
-
-[Whilst you were distracted by a Christmas Party the UK Gov. released a report confirming the Fully Vaccinated account for 4 in every 5 Covid-19 Deaths in England since August](https://dailyexpose.uk/2021/12/11/report-shows-4-in-5-covid-deaths-fully-vaccinated/)
-
-[Population of England in 2020, by age group](https://www.statista.com/statistics/281208/population-of-the-england-by-age-group/)
-
-[It’s time to punish Britain’s five million vaccine refuseniks: They put us all at risk of more restrictions, says ANDREW NEIL. So why shouldn’t we curb some of their freedoms?](https://www.dailymail.co.uk/debate/article-10294225/Its-time-punish-Britains-five-million-vaccine-refuseniks-says-ANDREW-NEIL.html)
-
-[COVID-19 vaccine surveillance report Week 49](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1039677/Vaccine_surveillance_report_-_week_49.pdf)
-
-[Covid jab rollout for 12 to 15-year-olds to start in UK schools](https://www.bbc.com/news/uk-58552769)
-
-[UK Government report admits there are 23.5 Million people in England who have NOT had a single dose of a Covid-19 Vaccine](https://dailyexpose.uk/2021/12/17/23-million-not-vaccinated-in-england/)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/) 上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+时间到了，啥都不说了，明儿个见！
 
  
 

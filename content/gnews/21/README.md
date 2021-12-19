@@ -2,30 +2,67 @@
 ---
 
 
-## 共产党恐惧到用上了巫蛊之术
-` 骄子` [轉載自GNews](https://gnews.org/zh-hans/1770887/)
+## 【Michael.Tonny专栏】英国官方数据和报告证明 对公众宣称的疫苗接种数据造假（下）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1770981/)
 
-文：银河勇气星｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-230.jpg)
-大清以后，人心就变黑了，共产党统治了中国以后，搞的各种各样惨无人道的运动，社会环境，生态环境，全部跟着黑化了，人心只能更坏。共产党盗国贼，尤其是那些红卫兵出身的人，从来不讲规则的，并且认为你们这些规则都是让人去遵守，他自认为他不用遵守，既然不用遵守那也就是说他可以不是人，他到底是个什么，就是见人是人，见鬼是鬼，随波逐流和一碗饭吃到连骨头都不剩，他认为这才叫哲学，这才能称之为不枉来人间这一遭。
+作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+[接上篇：【Michael.Tonny专栏】英国官方数据和报告证明 对公众宣称的疫苗接种数据造假（上）](https://gnews.org/zh-hans/1770915/)
 
-经常有那样的洗脑，比如一个人不上班天天躺在家里，会有无数的人来“教育”他，你得上班，你得挣钱，你得买大房子，你得买豪车，你那个媳妇也得换了，孩子得读国际小学。但是对于这个不上班的人来说，没人在意他怎么想的，他得活得符合“社会主义核心价值观”。去年国内某大型死了老板的房产中介机构，本来老板的死就够蹊跷了，现在全体员工都要面对一个核心价值观考量，要评级，ABCD。这个东西用来给员工划分阶级的，晋升都要靠这个了。很少见到有把所谓的洗脑考核量化成指标的，因为这个说实话，没办法量化，独裁洗脑就是一天一个思想，量化起来异常麻烦，不像是纯技术方面的，好就是好，先进就是先进，完全能从数据上看到，做考核标准也比较容易一些。当思想考核开始量化的时候只有一个原因，企业熬不住了，真熬不住了，老板已经被熬死了吧，共产党还不善罢甘休，人家员工和你多大愁多大冤啊，经济不行了就开始折磨人，这完全就是盗国贼没文化，只能用红卫兵做法。所以被李友、马明哲、王健林，“接管”以后的佛手裕达，施以巫术，那就先不说，你打算折磨人家员工算怎么回事啊。从盘古和裕达被共产党折磨的员工，一个也没有说要和文贵先生，就算是从未见过，要断绝联系的，在共产党嘴里叫“和海外某反党组织保持联系”。是啊，共产党有能耐给老百姓洗脑，你继续洗啊，你让这些无辜的员工都跟着你啊，认你共产党做爹妈啊，你不是还可以的嘛，怎么这会儿不奏效了，还用上巫术了，嗨呀真是，蠢到丢掉了所有，不要说什么体面了，连一张脸都没有了。在所有的历史轮回，所有的影视剧著，所有的现实生活中，不到万不得已，谁也不会用巫术的，共产党真得走到了山穷水尽这一刻。
+根据英国卫生安全局（UK Health Security Agency）发布的《[COVID-19 vaccine surveillance report Week 50](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1041593/Vaccine-surveillance-report-week-50.pdf)》报告第三页Population impact一段，到 2021年12 月12日，英格兰第1剂疫苗的总体接种率为67.9%，第2剂疫苗为62.2%，第3剂的接种率为 31.4%。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Population-impact.png)
+结合英格兰总人口、年龄分布、和卫生安全局的报告，可得到下表计算结果：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/srchttp-_inews.gtimg_.com_newsapp_match_0_10377899886_0.jpgreferhttp-_inews.gtimg_.comapp2002sizef999910000qa80n0g0nfmtjpeg.jpg)图源：网路
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Covid-19-Vaccination-Uptake-in-England-a.jpg)
 
-再者，共产党总是动不动就绑架老百姓，威胁家人威胁资产，就这两样，其他都是给洗脑，说实话，洗脑根本没多少人听的，而为什么世人都要信了共产党的邪，相信谎言，因为确实很多红卫兵从共产党那儿拿到了太多钱了，人都是一个看一个，原来背叛和谎言能得到这么多好处，再加上人心本来就是黑乎乎的了，贪婪自私，精致利己，永远不过都是为了一点点钱，一点点性。当一个社会连最基本的吃喝都不能管饱的时候，还说什么底线，当然不能一杆子打死所有人，在困苦的条件下坚持老老实实不骗人、有底线的人也有，只是太少了，别人都说他们是傻子。但是这样的老实人，是应该被尊重的。
+也就是说，根据英国各部门的数据汇总到一起推算，在英格兰5598万人中，没有打毒疫苗的人有2350.5万，拒绝打疫苗的人口为2350.5-815.2=1535.3万，远比政客和媒体从9月份到现在一直宣称的500万人多得多。
 
-文贵先生曾经说过，共产党一定会有各种各样的对爆料革命的封锁，不封锁那就不是共产党了。如果害怕被封锁而选择不关注爆料革命，伤害程度有多严重呢，俗话说捡了芝麻丢了西瓜，啥都捡不到最后还会因为没有及时关注不要打疫苗的信息把自己小命给送走了，冤不冤。共产党的各种监听封锁技术很早以前都已经非常先进了，想听谁听谁，想录谁录谁，只需要做到让共产党的封锁没有用就可以了。共产党无论是在网路通讯上动手脚还是在银行卡汇款上不给汇，要是当时退缩了，不干了，那就让共产党得逞了，他的邪恶目的主要就是不让人关注爆料革命，不让人给喜联储汇款。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/srchttp-_inews.gtimg_.com_newsapp_match_0_9262733745_0.jpgreferhttp-_inews.gtimg_.comapp2002sizef999910000qa80n0g0nfmtjpeg.jpg)图源：网路
-这件事情就是要告诉所有的人，老实人，好人，是值得拥有财富的，应该被社会尊重的。共产党所谓的培养思想，就是让人削尖了脑袋跟着他们做邪恶的事情，危害全人类，毁灭全地球，他可以拿钱养那些红卫兵爪牙，那为什么正义力量不能用钱积蓄我们的好人正道之力？这样只会让那些认真做事的好人更加得心应手，让本黑心的社会慢慢开始转变，只要钱跟着好人走，坏人也不敢太做恶。
+英国政客和媒体一直在对公众撒谎！隐瞒数字，把拒绝打毒疫苗群体变成人数人，对拒绝打疫苗的人进行道德和法律绑架！
 
-* * *
+更为严重的是，英国政客和媒体，很少向公众透露疫苗有毒的事实。注射毒疫苗既不能预防感染，也不能减少死亡，反而是成倍增加感染概率、增加感染后住院概率、增加死亡概率！
 
-作者：骄子
-发布：骄子
+TheExpose.uk就根据[英国卫生安全局（UK Health Security Agency）](https://www.gov.uk/government/organisations/uk-health-security-agency)2021年12月9日发布的第49周全国流感和COVID-19监测报告（[National flu and COVID-19surveillance report:9 December 2021 (week 49)](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1039639/Weekly_Flu_and_COVID-19_report_w49.pdf)）得出结论：自8月16日至12月5日期间，英国每5个感染中共病毒病例中有3个、每5个住院病例中有3个、每5个死亡病例中有4个已完全接种疫苗。未接种疫苗的人感染中共病毒后的病死率为0.2%，完全接种疫苗为0.8%；未接种疫苗人感染中共病毒后的住院死亡率为26%，完全接种疫苗的人群为63%。
 
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，欢迎加入银河系农场，欢迎各农场兄弟姐妹们坐客串门，欢迎订阅我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/345-1.jpg) 
+今年8月16日至12月5日期间，未接种疫苗的人因感染CCP病毒后的住院人数是11,767人，而接种疫苗后因感染中共病毒后住院的人数是19,730人，其中18,406人还是接种了两针毒剂量疫苗的人群。这意味着自2021年8月以来，接种疫苗的人群占所有因感染中共病毒而住院人数的 63%，接种疫苗不能预防病毒，更不能减少住院，有限的医疗资源反而是接种疫苗的人占据了大部分。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-154-1.png)
+
+自2021年8月以来，完全接种疫苗的人群占感染中共病毒死亡人数的大部分，尤其自10 月份情况确实变得更糟。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/fully-vaccinated-population-have-accounted-for-the-majority-of-Covid-19-deaths-every-single-month-since-August-2021.png)
+
+从8月16日开始到12月5日，因感染中共病毒总共死亡15,128人，其中，未打疫苗者为3,070人，仅打一针疫苗者514人，打了两针疫苗者11,544人，已接种疫苗的人占79.7%，10月11日到11月7日四周内，打了疫苗的人占感染中共病毒后，总死亡人数的82.9%，11月8日到12月5日期间占80.1%。
+
+从8月16日开始到12月5日，接种疫苗的人群占中共病毒确诊病例的56%、住院人数的63%和死亡人数的 80%（79.7%）。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-612.png)
+
+最后看一下，同样是感染了CCP病毒，没有打疫苗的人最终死亡率为0.2%，而打了疫苗的人为0.8%。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/not-vaccinated-population-and-the-case-fatality-rate-among-the-vaccinated-population.png)
+
+疫苗既不能预防感染，也不能减少死亡！
+
+政客和媒体通过隐瞒拒绝打疫苗的人数，用虚假数据使拒绝打毒疫苗的人处于被孤立的少部分，背上胆小、无知、不负责任或愚蠢的精神枷锁和甚至违法的沉重负担，这种用一个谎言掩盖另一个谎言，必将受到人类的审判！
+
+参考数据：
+
+[COVID-19 vaccine surveillance report Week 50](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1041593/Vaccine-surveillance-report-week-50.pdf)
+
+[Whilst you were distracted by a Christmas Party the UK Gov. released a report confirming the Fully Vaccinated account for 4 in every 5 Covid-19 Deaths in England since August](https://dailyexpose.uk/2021/12/11/report-shows-4-in-5-covid-deaths-fully-vaccinated/)
+
+[Population of England in 2020, by age group](https://www.statista.com/statistics/281208/population-of-the-england-by-age-group/)
+
+[It’s time to punish Britain’s five million vaccine refuseniks: They put us all at risk of more restrictions, says ANDREW NEIL. So why shouldn’t we curb some of their freedoms?](https://www.dailymail.co.uk/debate/article-10294225/Its-time-punish-Britains-five-million-vaccine-refuseniks-says-ANDREW-NEIL.html)
+
+[COVID-19 vaccine surveillance report Week 49](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1039677/Vaccine_surveillance_report_-_week_49.pdf)
+
+[Covid jab rollout for 12 to 15-year-olds to start in UK schools](https://www.bbc.com/news/uk-58552769)
+
+[UK Government report admits there are 23.5 Million people in England who have NOT had a single dose of a Covid-19 Vaccine](https://dailyexpose.uk/2021/12/17/23-million-not-vaccinated-in-england/)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/) 上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

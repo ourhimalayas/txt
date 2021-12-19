@@ -2,24 +2,33 @@
 ---
 
 
-## 日本外交大臣林芳正表示：抵制北京冬奥会包括人权在内，我们将做出决定
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1770604/)
+## 奥米克戎对重污染、打疫苗致死率极高
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1770818/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1001.png)[图片来源](https://news.yahoo.co.jp/articles/c0d17478c0574af07f89c5f46600886aa42f8220#:~:text=%E3%)
-据《产经新闻》19日报道，日本外交大臣林芳正周三在NHK的节目上表示，他将根据人权状况，以应对明年 2 月在中共国举行的北京冬奥运会。美国和英国等宣布了不派政府代表团的“外交抵制”，政府正在考虑不派部长参加。
+作者： 纽约香草山 晓仙女
 
-关于北京冬运会，此前岸田文雄首相解释说，他将从国家利益的角度出发，在适当的时候考虑到各种情况，做出自己的决定。林芳正表示，“日中关系自然会被纳入各种情况。”
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-林芳正还解释说，他没有具体考虑过自己访问中共国的问题。关于本月在英国利物浦举行的七国集团外长会议，他说：“很久以前，有一种气氛，日本会对中国说各种话，因为它很近，但欧洲与俄罗斯相当接近，现在，中共国问题已经成为七国集团国家的共识。”
+12月18日，文贵先生在大直播中提到，解析奥米克戎病毒特点，文贵先生警示：奥米克戎病毒（Omicron）对不同种族和地区人的影响不同。奥米克戎传播性极强，对健康的人至死率没那么高，但对于大面积污染的地区死亡率极高，对有心血管疾病、呼吸道疾病 、肺部疾病、心脑梗问题疾病的人群非常危险，因为奥米克戎病毒的繁殖率极高。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-19-at-9.19.38-PM-1.png)
+文贵先生爆料，近一周内，中共国约有10万余人感染，最近全世界打过2-3针疫苗的人被传染概率更大，新冠疫苗本身就是毒，对身体造成堵塞，感染奥米克戎会加速堵塞，身体会极力抵抗，到了极限立即死亡。
 
-另一方面，被朝鲜绑架时只有22岁的田口八重子的哥哥飯塚繁雄不幸于18日去世。生前他是被绑架者家属协会的负责人。林芳正说：“谨此表达我们最深切的哀悼，为他祈祷。我最遗憾的是，在飯塚繁雄先生还活着的时候，我们没能做到他与田口八重子团聚。”
+参考链接：[奥米克戎对不同种族和地区的人的影响不同](https://gettr.com/post/pjz6hu80db)
 
-信息源：[林外相、北京五輪外交ボイコット「人権状況含め判断」](https://news.yahoo.co.jp/articles/c0d17478c0574af07f89c5f46600886aa42f8220#:~:text=%E3%)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月小图.jpg)
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
+编辑/总编：文特
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
