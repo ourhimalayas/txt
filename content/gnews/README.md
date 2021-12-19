@@ -18,80 +18,80 @@
 ### [文贵爆料 12.19：病毒的遗害是你挥之不去噩梦](/content/gnews/1/README.md)
  ` 秘密翻译组-原创组`
 
-### [香草山翻译部周刊|2021年12月19日第27期](/content/gnews/2/README.md)
+### [中共国富力地产预告自己将暴雷](/content/gnews/2/README.md)
+ ` 纽约香草山MOS02`
+
+### [香草山翻译部周刊|2021年12月19日第27期](/content/gnews/3/README.md)
  ` 纽约香草山MOS01`
 
-### [杨洁篪和王毅被美国定为最危险人物](/content/gnews/3/README.md)
+### [杨洁篪和王毅被美国定为最危险人物](/content/gnews/4/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【文贵先生大直播PPT】从地产持续暴雷破产 经济指标作假 企业家意外死亡看中共还能撑多久](/content/gnews/4/README.md)
+### [【文贵先生大直播PPT】从地产持续暴雷破产 经济指标作假 企业家意外死亡看中共还能撑多久](/content/gnews/5/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [GTV新闻访谈简报|2021年12月19日早](/content/gnews/5/README.md)
+### [GTV新闻访谈简报|2021年12月19日早](/content/gnews/6/README.md)
  ` 纽约香草山MOS01`
 
-### [习近平不能被暗杀，只有习才可以挑战美国，才会打台湾、才会带领共产党走进坟墓](/content/gnews/6/README.md)
+### [习近平不能被暗杀，只有习才可以挑战美国，才会打台湾、才会带领共产党走进坟墓](/content/gnews/7/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [郭文贵先生最新歌曲Hcoin To the Moon创造了历史](/content/gnews/7/README.md)
+### [郭文贵先生最新歌曲Hcoin To the Moon创造了历史](/content/gnews/8/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [新中国联邦的未来一定是各种高科技加持](/content/gnews/8/README.md)
+### [新中国联邦的未来一定是各种高科技加持](/content/gnews/9/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [因奥米克戎变种的出现以色列将禁止访问英国和丹麦](/content/gnews/9/README.md)
+### [因奥米克戎变种的出现以色列将禁止访问英国和丹麦](/content/gnews/10/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [习家人掌握一切权力](/content/gnews/10/README.md)
+### [习家人掌握一切权力](/content/gnews/11/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [一粒药，见真心，爆料革命真战友一定要备好药！](/content/gnews/11/README.md)
+### [一粒药，见真心，爆料革命真战友一定要备好药！](/content/gnews/12/README.md)
  ` 秘密翻译组-原创组`
 
-### [美国怕中共不再使用美元](/content/gnews/12/README.md)
+### [美国怕中共不再使用美元](/content/gnews/13/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [文贵大直播 12/19 中共国有一件真吗？！新中国联邦有一件假吗？！](/content/gnews/13/README.md)
+### [文贵大直播 12/19 中共国有一件真吗？！新中国联邦有一件假吗？！](/content/gnews/14/README.md)
  ` 秘密翻译组-原创组`
 
-### [以色列总理贝内特力争推出更极端限制一、封闭以国天空二、在教育部帮助下给儿童接种疫苗](/content/gnews/14/README.md)
+### [以色列总理贝内特力争推出更极端限制一、封闭以国天空二、在教育部帮助下给儿童接种疫苗](/content/gnews/15/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [彭帅事件绝对是习近平政治生涯的滑铁卢](/content/gnews/15/README.md)
+### [彭帅事件绝对是习近平政治生涯的滑铁卢](/content/gnews/16/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [12/19/21 香港快讯 截至下午五时半地方直选投票率23.12% 比上届的35.3%低](/content/gnews/16/README.md)
+### [12/19/21 香港快讯 截至下午五时半地方直选投票率23.12% 比上届的35.3%低](/content/gnews/17/README.md)
  ` 英喜-粵語組`
 
-### [【玫瑰看新闻】每日快讯 2021年12月18日](/content/gnews/17/README.md)
+### [【玫瑰看新闻】每日快讯 2021年12月18日](/content/gnews/18/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [日本政府通过立法保障国防设备供应](/content/gnews/18/README.md)
+### [日本政府通过立法保障国防设备供应](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [英国即将迎来老弱病残群体的巨大死亡浪潮，但Covid-19不会是罪魁祸首](/content/gnews/19/README.md)
+### [英国即将迎来老弱病残群体的巨大死亡浪潮，但Covid-19不会是罪魁祸首](/content/gnews/20/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [文·贵天成——文贵先生谈“中原佛手、裕达国贸”（三）](/content/gnews/20/README.md)
+### [文·贵天成——文贵先生谈“中原佛手、裕达国贸”（三）](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [银河快讯: 日本边境政策至明年年初不会有变化；岸田内阁支持率上升](/content/gnews/21/README.md)
+### [银河快讯: 日本边境政策至明年年初不会有变化；岸田内阁支持率上升](/content/gnews/22/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [感染关键标志？Omicron 感染比以前的毒菌快70倍](/content/gnews/22/README.md)
+### [感染关键标志？Omicron 感染比以前的毒菌快70倍](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [医学法西斯主义：FDA 与 USPS 合谋阻止救生伊维菌素的运输](/content/gnews/23/README.md)
+### [医学法西斯主义：FDA 与 USPS 合谋阻止救生伊维菌素的运输](/content/gnews/24/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [文·贵天成——文贵先生谈“中原佛手、裕达国贸”（一）](/content/gnews/24/README.md)
+### [文·贵天成——文贵先生谈“中原佛手、裕达国贸”（一）](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美议员呼吁NBC借助冬奥会揭露中共侵犯人权的行为](/content/gnews/25/README.md)
+### [美议员呼吁NBC借助冬奥会揭露中共侵犯人权的行为](/content/gnews/26/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [盖茨和福奇：“强大而邪恶”的伙伴关系（2/2）](/content/gnews/26/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [从人口老龄化和社会保障性支出简析各国强制疫苗政策化解财政危机的动机](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
