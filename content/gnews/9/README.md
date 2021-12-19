@@ -2,37 +2,67 @@
 ---
 
 
-## 日本政府通过立法保障国防设备供应
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1771589/)
+## 彭帅事件绝对是习近平政治生涯的滑铁卢
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1771646/)
 
-撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/4-30.jpg)
-[图片源](https://www.tokyo-np.co.jp/article/98966)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3242.png)
+[https://gtv.org/video/id=61bde517a68b4f4b28e9f3f0](https://gtv.org/video/id=61bde517a68b4f4b28e9f3f0)
 
-政府官员19日透露，日本政府正在考虑通过立法，加强战斗机等其他重要国防设备的供应链，从海外采购零部件存在风险的情况下，政府可发布命令更换供应商。政府计划在明年年底前制定加强国防生产系统的措施，包括立法。国防部在其2022财年预算计划中拨出了约22亿日元的专款，以落实各项支援政策。
+**郭文贵
+Miles Guo**
 
-政府正在审议的加强国防工业的法案，针对对象是战斗机和潜艇等重要设备中，独家供应的定制产品制造商，通用产品除外。法案中涉及到要求制造商配合供应链调查，如果不配合则考虑相应处罚措施。
+你知道彭帅这个事儿对他的影响，习下决心要干掉张高丽
+You know the impact of Peng Shuai incident that Xi is determined to get rid of Zhang Gaoli
 
-根据调查结果，如果从存在供应链中断风险的其他国家采购零件，政府可以命令更改其供应商。此外，如果存在制造商退出业务的风险，政府有权要求业务继任者提供供应合作。
+说一半的功劳是张高丽的彭帅搞出来的，这叫天意呀
+It is said that half of the credit is Zhang Gaoli’s Peng Shua, this is God’s will
 
-该法案被定位为针对各行业的《经济安全促进法案》（暂定名）的“国家防卫版”。然而，在保障供应链和防止泄密方面，国防对安全的要求比其他行业更高，国防部长期以来一直在调查关键设备的供应链，并采取措施加强系统供应商的安全。该部强调，采取这些措施的目的很明确，就是为了与经济安全作区分，做到在更高层面保卫日本。
+彭帅这件事情是个锦上添花，老天送我们的礼啊，彭帅呀
+Peng Shuai incident is an icing on the cake, Peng Shuai is God’s gift to us
 
-另一方面，在国防工业中，基础薄弱一直被视为一个问题。根据国防采购技术局的一项调查显示，与国防相关的销售额占承包商总销售额的比例不到3%。即使是制造船舶等其他设备的三菱重工也只占10%左右，这一水平远远低于其他国家的军事公司。
+我们未来得给彭帅点喜币，你知道吗？
+We have to give Peng Shuai some Hcoins in the future, you know?
 
-政府正在考虑收紧法规，并将在下一财政年度在国防采购技术局内，设立国防工业政策办公室（暂定名），以开始全面启动支持措施。2022财年的初始预算包括总计约22亿日元，其中6亿日元用于通过引进先进技术提高制造效率，5亿日元用于支持参与美国军事装备，8亿日元用于为中小型企业引进网络安全设备。国防部将首次制定全方位产业扶持措施。
+她加速了共产党冬奥会的灭亡，然后弄点儿躺平币
+She accelerated the demise of the Communist Party’s Winter Olympics game, and then made some lay-flat-coin for her
 
-日本政府如此加紧步伐保障国防设备的供应链，笔者的感觉是剑在弦上，粮草先行，中共，实已危矣！
+咱们也可以专门给彭帅搞一个币，叫做什么，天空无限大，是吧
+We can also make a coin specifically for Peng Shuai, what is it called, the sky is infinite, right?
 
-信息源：
+然后地球一粒沙的，上面带上这个图腾的彭帅币
+Then the earth is a grain of sand with the totem Peng Shuai coin on it
 
-[＜独自＞防衛装備品、調達先の変更命令も　法整備し供給網を強化](https://news.yahoo.co.jp/articles/119b3a425c858959787c6266a4671bb4302ac33c)
+这实在太有意义了，你们没有意识到这件事情对他们的羞辱
+This is so meaningful, you didn’t realize the humiliation of this incident to CCP
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWSLOGO20211207.jpg)
+很多人说这是真正的习近平的滑铁卢的开始
+Many people say that this is the beginning of the real Xi Jinping’s Waterloo
 
+这个滑铁卢又搞了俄罗斯这样，这对他来讲这真的是多米诺骨牌开始了
+and Russia is like another Waterloo, this is really the start of dominoes for him
 
+谢谢
+thank you
 
+* * *
+
+Date:12/16/2021
+原视频标题: 彭帅事件绝对是习近平政治生涯的滑铁卢
+The Peng Shuai incident is definitely the Waterloo of Xi Jinping’s political career
+原视频日期：2021/12/12
+原视频链接[**https://gettr.com/post/pjp42e188e**](https://gettr.com/post/pjp42e188e)
+任务编号：KC344（3242）
+视频时间段 : 0:00-1:02
+中听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – jambo
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
