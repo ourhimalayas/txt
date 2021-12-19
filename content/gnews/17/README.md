@@ -2,41 +2,53 @@
 ---
 
 
-## 是时候停止体育联盟对健康者进行的COVID检测了
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1772102/)
+## 意大利为应对OMICRON考虑采取新的COVID-19措施
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1772113/)
 
-编译： Jenny Ball
+作者：纽约香草山农场 – 四季
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1034.png)图片来源**：**westernjournal.com
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-本周，美国主要体育联盟，如 NHL、NBA 和 NFL，已有 100 多名球员被置于所谓的“COVID-19 协议”中。然而，这些球员中的绝大多数或轻微或根本没有症状。
 
-根据雅虎体育，周一有 36 名 NFL 球员置于协议。该媒体称，周二又增加了“数十人”，其中许多人在不到 48 小时前参加了一场 NFL 比赛。
 
-以洛杉矶公羊队的外接手小奥德尔·贝克汉姆（Odell Beckham, Jr.）为例。据 ESPN 报道，他在周一晚上对阵亚利桑那红雀队，在 77 码处传球 6 次。
 
-周二，贝克汉姆是公羊队中被置于 COVID-19 协议的九名成员之一。目前尚不清楚贝克汉姆是检测呈阳性，还是被视为与检测呈阳性的人有密切接触，但在任何一种情况下，他都没有出现症状。
 
-这个问题不仅 NFL 独有，还发生在NBA 的芝加哥公牛队 10 名成员，和布鲁克林篮网队7 名球员身上。
+据[OAN网站](https://www.oann.com/italy-eyes-new-covid-19-measures-amid-omicron-worries-newspapers/)12月19日援引路透社报道，出于对高传染性Omicron中共病毒变体传播的担忧，意大利政府正在考虑采取新的措施，以避免假日期间中共病毒感染率的激增。
 
-据《运动员》（The Athletic）报道，在 NHL 中，周二晚上明尼苏达狂野队和卡罗莱纳飓风队之间的比赛被推迟，因为飓风组织中又有四名球员检测呈阳性。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1777-1-1.jpg)2021年3月15日，意大利米兰，伦巴第大区成为 “红区”，在该国为努力减少冠状病毒疾病（COVID-19）感染进入封锁状态，一名戴着口罩的妇女经过一家关闭的商店。（REUTERS/Flavio Lo Scalzo）
 
-飓风队的主教练罗德·布林德·阿穆尔（Rod Brind Amour）对越来越多的病例非常恼火。
+据悉，总理马里奥·德拉吉可能会要求已接种疫苗者在进入包括迪斯科舞厅、电影院、剧院和体育场在内的拥挤场所时出示COVID-19阴性测试报告，并在户外也须佩戴口罩。
 
-“归根结底，每个人都做了要求做的事情，” 阿穆尔说。“我们接种了疫苗。我们尽力了， 我不知道还有什么可做的。伙计们一直在被测试， 我们都戴着口罩。但这就是现在的情况。”
+而根据目前的规定，已经接种疫苗或最近从该疾病中康复的人可以自由进入酒吧、餐馆、博物馆、电影院、俱乐部和参加体育赛事。
 
-更糟糕的是，阿穆尔说，没有一个球员真的感觉不舒服。
+意大利早前已经强制要求医疗工作者、学校工作人员、警察和军人进行疫苗接种，这一接种义务范围可能从1月起将扩大至涵盖所有工人。
 
-**评论：“每个人都做了要求做的事情，”“我不知道还有什么可做的”。而应该做的，不是去做要求的事，而是质疑为什么疫苗没有向保证的那样保护人民？质疑为什么政府欺骗民众，但真正勇敢者做的是追求真相！用行动保护我们的基本自由人权！**
+本周早些时候，罗马已经将COVID-19的紧急状态延长至3月31日，并规定所有来自欧盟国家的游客必须在出发前接受测试。
 
-新闻来源 **：**[westernjournal.com][Atkinson: It’s Time for Sports Leagues to Stop Testing Healthy People for COVID-19](https://www.westernjournal.com/commentary/?ff_source=Email&amp;ff_medium=WJBreaking&amp;ff_campaign=breaking&amp;ff_content=western-journal)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月.png)
 
-* * *
+编辑/校对/发稿：小鹿
 
-*审核：文乐
-校对: 阿伯塔
-发稿: Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-4.jpeg)
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
