@@ -2,28 +2,39 @@
 ---
 
 
-## 世卫组织：奥密克戎传播速度远超德尔塔，疫苗接种越高感染越快
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1770230/)
+## PLA南海频频实弹演习，美国警告“侵略”行为
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1770295/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/12/5-26.jpg)[图片来源](https://www.google.com.hk/search?q=Omicron&amp;newwindow=1&amp;source=lnms&amp;tbm=isch&amp;sa=X&amp;ved=2ahUKEwiZlpzdg-_0AhURxpQKHVk0BBUQ_AUoAXoECAIQAw&amp;biw=1707&amp;bih=770&amp;dpr=1.13#imgrc=hWdNCYSXAHJNiM)
-德国之声中文网12月18日消息，世界卫生组织（WHO）说，根据已有的证据，中共病毒的奥密克戎变种的传播速度远远超过德尔塔变种。
+#### 翻译：美哥
+编辑：文泓
 
-在周五（12月17日）发布的一份声明中，世卫组织说：“奥密克戎比德尔塔有很大的传播优势。在人口免疫水平高的国家，它的传播速度明显快于德尔塔变种”。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/5955-1.jpg)图片来源：South China Morning Post
 
-世卫组织表示，在出现社区传播的地区，奥密克戎变种感染病例在1.5至3天时间内就会翻倍。社区传播的定义是一种传染疾病在一个人群中进行来源不明的传播。
 
-至今有89个国家通报了奥密克戎感染病例。世卫组织说，对该病毒变种的严重程度的了解仍然有限，需要收集更多数据。 对于疫苗在防范奥密克戎感染方面的有效性，人们目前的已知内容也很有限。
+本周，中共官媒在指责美方武力恫吓和挑衅南海的同时，解放军在南海举行了多起实弹演习。华盛顿高度关注中方在南海的挑衅行为，美国国务院誓言要维护争议海域的航行自由权。
 
-此外，奥密克戎的快速传播将给医疗机构带来负担。 世卫组织说：“英国和南非的住院人数继续上升。由于感染病例激增，许多医疗系统有可能很快变得不堪重负。”
+《解放军报》转载了海南海事局关于海南岛有三处地点限航的通告。目前还没有关于该军演的进一步的消息，但是海域的实弹演习通常是为了检验海军军力，特别是两栖登陆的备战能力。
+本周五前，PLA至少已结束了两场演习，一个靠近海南，另外一个在中越之间的北部湾。
+《解放军报》一段隐匿地址的视频显示，隶属南部战区司令部的海军驱逐舰队进行了7天密集演习，训练内容包括舰载机着陆，浮动水雷的操作和炮击。
+南中国海是印太地区最潜在的火药桶，中共国宣称的主权领土与文莱、马来西亚、菲律宾、台湾和越南都有重叠。上周，其党媒《环球时报》也透露了PLA在南海岛屿上用H6J轰炸机进行实弹轰炸和海面布雷的画面。
 
-信息来源：
+观察人士称，日益密集的演习是中共给台湾和其盟友美国传递威慑的信号，而美国则加强了对“自由开放的印太地区”的倡导，作为其外交和国防政策的坚实基础。
 
-[世卫组织：奥密克戎的传播速度明显快于德尔塔](https://www.dw.com/zh/%E4%B8%96%E5%8D%AB%E7%BB%84%E7%BB%87%E5%A5%A5%E5%AF%86%E5%85%8B%E6%88%8E%E7%9A%84%E4%BC%A0%E6%92%AD%E9%80%9F%E5%BA%A6%E6%98%8E%E6%98%BE%E5%BF%AB%E4%BA%8E%E5%BE%B7%E5%B0%94%E5%A1%94/a-60181344)
+本周二，美国国务卿安东尼·布林肯则在访问印度尼西亚时称，北京的“侵略行为”给印太地区各国带来了不安，美国“决心确保南海的自由航行权”。
+这是布林肯自一月就职后，首次以国务卿身份访问东南亚。拜登明年初在华盛顿与东南亚领导人的会晤也备受期待。
+针对布林肯的言论，中共外交部发言人赵立坚反驳回应，“美国在南海部署先进的军机和舰只，是恫吓和挑衅的行为。”
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+周二，北京智库名为“南海战略态势感知”机构，指控美国空军间谍机RC-135W在中共国沿海靠近演习的地点近距离侦察，并称这是美方自11月以来的第94次侦察飞行。
+
+原文链接：[US Warns Of ‘Aggression’ As China Holds More Live-Fire Exercises In South China Sea – Eurasia Review](https://www.eurasiareview.com/18122021-us-warns-of-aggression-as-china-holds-more-live-fire-exercises-in-south-china-sea/)
+**发布：文泓**
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

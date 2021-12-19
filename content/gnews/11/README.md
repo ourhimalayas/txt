@@ -2,31 +2,36 @@
 ---
 
 
-## 郭先生谈风水
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1770289/)
+## 特鲁多试图秘密推动将疫苗强制延长三年的计划
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1770352/)
 
-风水就是你生存下去，让人类生存下去的一个自然的力量的密码。你把它改了，你也得死。
+作者：纽约香草山健身部 – Ivy001
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-08-30-at-7.37.59-PM-2.png)
+12月15日，加拿大保守党议员米歇尔·库博发表推文称，特鲁多政府在国会立法中，一项将疫苗强制授权延长至三年的条款，隐藏在了财政和经济报告中，这表明自由党计划将疫苗强制令再维持3年。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/6-37.jpg)
+库博在推文的最后补充道，特鲁多正在企图把这些所谓的临时措施永久化。
 
+推文下的多数评论称，特鲁多的三年疫苗强制计划，只能更加证明疫苗的无效。
 
+参考链接：
 
-**【郭先生直播摘要】 2021.12.17 Miles Guo 谈风水**
-
-郭先生：
-
-按照今天所说科学讲就是科学更近了一步， 让我们了解了，一定记住风和水， 风水和巫术是两回事。 风水中风是自然的， 水也是自然的， 就是动和水， 太阳和风和水是生命的本质。
-
-风就是空气， 太阳就是给你的能量生存， 水就是我们每天生存下去的， 就是你生存下去， 让人类生存下去的一个自然的力量的密码叫风水。
-
-你把它改了， 比如你只有水没有太阳， 你看你死不死， 你一定死。 只有太阳只有水，没有空气你死不死， 你也得死。 就是完全自然和人类相并存的，一个环境和条件的物质叫风水。
-
-科学只是把风水给物理化了一部分的答案而已。 就像手机， 隔着世界原来说叫千里眼、顺风耳，今天不就实现了吗，就是这个意思。
+- [https://www.gettr.com/post/pjwjg97fc1](https://www.gettr.com/post/pjwjg97fc1)
+- [https://mobile.twitter.com/spoonfull9/status/1471687732581715970?s=20](https://mobile.twitter.com/spoonfull9/status/1471687732581715970?s=20)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
 
+总编：Jack Li文阳
+编辑：Jack Li文阳
+校正/发稿：海阔天空1
 
-
-剪辑：小腾腾说 听写：雨山溪桥客| 翻译：Polaris | 校对： Arthur | 视频制作+字幕：CG. |编辑&发布：闪电训练
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
