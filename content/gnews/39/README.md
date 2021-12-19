@@ -2,33 +2,24 @@
 ---
 
 
-## 有声|郭先生解析中共年前抢夺盘古和裕达的原因
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1770448/)
+## 【中日财经爆】因中共病毒的影响，丰田将减产至2.2万辆汽车
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1770850/)
 
-配音：香草山美食部 – 玫瑰园
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-12月17日，郭文贵先生在直播中解析道，习近平其实既相信风水，也相信自然的力量。
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3-26.png)图片来源本文网站
+据《FNN Prime Online》18日报道，丰田（TOYOTA）公司宣布，由于东南亚地区中共病毒的再次扩大而导致半导体和其它部件的短缺，采购困难等原因，将扩大关闭国内的几家工厂，并进一步减产。
 
-郭先生提到，盘古实为地上阳龙，而其地下5层又连接在一起构成了滔龙。时逢明年正好是虎年，但风水学中却相当忌讳龙虎斗——因为龙虎相争必有一伤——然而彭丽媛属虎。因此，习近平认定，盘古此设计会对彭丽媛不利，于是把盘古的龙头改成龟头，但此举实际代表着共产党对爆料革命的极端恐惧。
+丰田公司目前正在暂停日本国内一些工厂的部分生产线，还将取消其在爱知县的高冈和田原工厂的假期作业，这些措施会影响到五个工厂。
 
-郭先生还透露，由于习近平对巫术的崇拜，这让他非常相信黑蛇、白蛇的故事。而盘古和裕达可谓“北有龙头，南有佛手”——这是一个风水大阵，可使万事皆达。因此，马明哲也向习近平递了投名状：其与李友一起抢夺了郑州裕达。
+该公司此前曾计划在12月减产14,000辆，但现在又增加了8,000辆，总数达到22,000辆，并表示（RAV4）和（HARRIER）的生产也将受到影响。
 
-郭先生解释道，共产党用巫术治理国家的方式，与中国五千年来惯于用巫术、蛊术治国的封建王朝一模一样，但他们最后的结局都是灭亡。这正应验了一句谶语，使用巫术者必被巫术反噬。
+信息源：
 
-文字版原文：[郭先生解析中共年前抢夺盘古和裕达的原因](https://gnews.org/zh-hans/1766971/)
+[トヨタ減産2万2000台に　5工場で休日稼働を取りやめなど　半導体不足の影響](https://news.yahoo.co.jp/articles/c7ec87331f11117a38394fa37006a124f76f0b56#:~:text=%E3%)
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
-
-![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
