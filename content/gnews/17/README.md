@@ -2,54 +2,38 @@
 ---
 
 
-## 军人拒绝疫苗被解雇，下任共和党总统应予赦免
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1769341/)
+## 文件显示，华为与中共在新疆的间谍活动有关
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1769351/)
 
-作者：纽约香草山农场健身部Jack Li 文阳
+**据《insiderpaper.com》作者：Brendan Taylor，2021年12月15报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/awcsi-lqz5j-2.jpg)**视频截图源自insiderpaper.com**
+据报道，中国华为技术有限公司与新疆地区的国内间谍活动有关，该公司正在为“劳动和再教育营”开发技术，并在主要由维吾尔族穆斯林居住的中国西部地区开发监控系统。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/06/WhatsApp_Image_2020-10-24_at_04.33.05-4.jpeg)
+根据《华盛顿邮报》获得的PPT演示文稿显示，这个科技巨头的业务可能参与了“对该地区少数民族的迫害”。
 
+《邮报》翻译了一张描述在新疆使用的监控系统的幻灯片。
 
+根据周二出炉的报告，“它谈到了该地区首府乌鲁木齐的公安部队如何使用面部识别系统来抓捕一名逃犯。”
+然而，华为在监控系统方面的工作介绍中并没有提到维吾尔人，而且该公司否认直接向新疆提供技术。
+根据该报告，其中一张幻灯片提到华为的产品是“智能监狱统一平台的基础”，并提到了制造和再教育劳动力的效率分析。
+据美国国务院称，据称有多达200万维吾尔族和其他穆斯林少数民族在新疆被关押。
+中共政府被指控对维吾尔人实施了一系列侵犯人权的行为，包括将他们安置在拘留所和再教育营，并使他们遭受强迫劳动。
+美国财政部本周宣布，中共国人工智能公司SenseTime（商汤科技）因其在促成针对新疆维吾尔族和其他穆斯林少数民族的人权侵犯中的作用而受到制裁，SenseTime（商汤科技）强烈否认这些指控。
 
-12月18日，美国前国务卿蓬佩奥在盖特上发文称，如果因为拒绝执行拜登政府的疫苗强制令而受到解雇的军人，下一任共和党总统应使用赦免权将他们全部恢复光荣退役，并邀请他们重新加入军队。
+维吾尔法庭上周宣布，中共实施阻止生育的措施，意图消灭新疆相当一部分维吾尔人，从而犯下种族灭绝罪。
+根据这个设在英国的独立法庭，中共对维吾尔人的酷刑是证据确凿的。
+中国共产党（CCP）在新疆地区开展了多方面、多平台的宣传活动，以驳斥关于强迫劳动、大规模拘留、监视、绝育、文化抹杀和所谓种族灭绝的指控。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/106823092-16104685432021-01-12t155633z_631631315_rc2f6l9viwxz_rtrmadp_0_usa-pompeo.jpeg)
+**原文连接：**[https://insiderpaper.com/docs-link-huawei-to-chinas-domestic-spying-in-xinjiang/](https://insiderpaper.com/docs-link-huawei-to-chinas-domestic-spying-in-xinjiang/)
 
-据报载，美国军队有超过97%现役军人接种了一剂以上的中共病毒疫苗。在11月15日的疫苗接种限期截止前，陆军已对98%现役军人进行了完整或部分疫苗接种，但仍有3864名军人拒绝接种疫苗；空军现役军人至少接种第一剂的比率为97.5%；海军则约为98%；海军陆战队约为95%。
+翻译：洛杉矶盘古农场- TrueSky
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – 柯镇恶
+发布：洛杉矶盘古农场—彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-11月13日，美国空军表示，已解雇27名拒绝接种疫苗的现役空军军人；海军也在15日宣布，将解雇不愿接种疫苗的现役军人；海军陆战队已经解雇103名拒绝接种疫苗的现役军人；陆军称从下月开始开始解雇未受豁免的拒绝接种疫苗的军人。
-
-在11月15日美军接种截止日期后，仍有大约3万5000名军人尚未接种疫苗。其中部分军人提出包括宗教原因等豁免请求，现正在等待审核，如不被通过，将面临被解雇的可能。
-
-曾表示愿意参加下任总统竞选的蓬佩奥，在本周末发表倡议，表明了他以个人名义反对美国现政府强推疫苗政策的态度，并给予因拒绝疫苗而被解雇的军人以极大的支持与安慰。[https://www.gettr.com/post/pjxtk3ef84https://tw.news.yahoo.com/%E6%8B%92%E7%B5%95%E6%8E%A5%E7%A8%AE%E7%96%AB%E8%8B%97-%E7%BE%8E%E8%BB%8D%E9%99%B8%E6%88%B0%E9%9A%8A%E8%A7%A3%E9%9B%87103%E4%BA%BA-104930722.html](https://www.gettr.com/post/pjxtk3ef84https://tw.news.yahoo.com/%E6%8B%92%E7%B5%95%E6%8E%A5%E7%A8%AE%E7%96%AB%E8%8B%97-%E7%BE%8E%E8%BB%8D%E9%99%B8%E6%88%B0%E9%9A%8A%E8%A7%A3%E9%9B%87103%E4%BA%BA-104930722.html)
-
-编辑/校对/发稿：菩提树
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

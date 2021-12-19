@@ -2,50 +2,45 @@
 ---
 
 
-## 严重饥荒：阿富汗的人道主义危机正在恶化
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1769451/)
+## IBM和三星联合宣布“突破性”半导体，能耗降低85%
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1769475/)
 
-**【雅典娜快讯】，紧贴时代脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/amq6p-x6e25-1.jpg)
+**据《Zerohedge》记者Tyler Druden 2021年12月15日报道**
+如果您像我们一样，就会想知道IBM 过去几年到底在做什么。今天，我们似乎有了部分答案。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-967.png)图片来源：Human Rights Watch
+蓝色巨人IBM 今天上午在新闻稿中透露，它一直与三星合作，并在半导体设计方面取得了“突破” ，可以将能源使用量减少 85%。
 
-**翻译：不要代表我Kari
-校对：盘古相聚**
+两家公司共同宣布“利用新的垂直晶体管架构在半导体设计方面取得突破，该架构展示了一种超 越纳米片的扩展路径，与按比例缩放的鳍式场效应晶体管相比，有可能将能源使用量减少 85%” 。
 
-12月18日，随着冬季的来临，当美国主导的军队撤出首都喀布尔，在阿富汗沦陷四个月后，这个国家正在遭受无尽的苦难。
+该公告是在全球半导体短缺的情况下发布的，许多人认为这种短缺可能要到 2023 年才能完全结 束。
 
-喀布尔救助儿童会的克里斯蒂安娜·马顿告诉新闻界，患有营养不良的儿童和新冠肺炎患者的绝望家庭正涌入全国各地的医院，由于缺乏医疗资源，医院没有能力满足病人的迫切需求。
+新闻稿称：“两家公司的半导体创新是在纽约州奥尔巴尼的奥尔巴尼纳米技术综合体进行的，在那 里研究科学家与公共和私营部门合作伙伴一同突破逻辑缩放和半导体能力的界限。”
 
-“目前有近2400万人面临严重饥荒，其中包括大约1300万儿童”，她说：“目前医院的问题之一是员工拿不到应有的报酬，他们也没有所需的物资。”
+**该版本列出了这一突破的一些潜在好处，包括：**
 
-当地卫生官员称，这是一个日益恶化的黑暗现实。
+● 潜在的器件架构，使半导体器件能够在纳米片之外继续进行缩放。
+● 手机电池可以在不充电的情况下使用一周，而不是几天。
+● 能源密集型流程，例如加密采矿操作和数据加密，可能需要的能源显着减少，碳足迹也更 小。
+● 物联网 (IoT) 和能源需求较低的边缘设备的持续扩展，使它们能够在更多样化的环境中运 行，例如海洋浮标、自动驾驶汽车和航天器。
 
-在当地日本传染病医院的工作的艾哈迈德·法塔赫·哈比比亚尔医生说：“三个多月以来，我们甚至都没有拿到过工资。我们没有任何医疗设备，没有必要的装备，没有新冠肺炎所需的药品，而这些都是WHO已经批准的。而我们一无所有。我们没有足够的物资、食物、氧气机、燃料，一切即将终结。”
+IBM 研究部混合云和系统副总裁 Mukesh Khare 博士评论说：“今天的技术公告是关于挑战传统 并重新思考我们如何继续推动社会进步并提供新的创新来改善生活、业务并减少我们对环境的 影响。”
 
-由于塔利班接管政权，该国的经济面临崩溃，货币暴跌，数十亿的国际资产仍被冻结，马顿说，当地家庭不得不做出难以想像的决定。
+他继续说道：“鉴于该行业目前在多个方面面临限制，IBM 和三星正在展示我们对半导体设计联 合创新的承诺以及对我们所谓的‘硬技术’的共同追求。”
 
-她说：“我还和其他家庭交谈过，他们不得不去做可怕的、难以想像的可怕——极其可怕的事情。比如说，放弃他们的孩子，因为他们没有能力养活孩子们。”
+**您可以在此处阅读完整版本。链接如下：**
+[https://www.news-journal.com/ibm-and-samsung-unveil-semiconductor-breakthrough-that-defi es-conventional-design/article\_ba471204-e08a-5866-82ab-e77e895e076c.html](https://www.news-journal.com/ibm-and-samsung-unveil-semiconductor-breakthrough-that-defi%20es-conventional-design/article_ba471204-e08a-5866-82ab-e77e895e076c.html)
 
-由于国家的惨状，群情激愤的女性们在最近几周走上街头抗议高呼，“我们要食物、要工作、要自由”。
+**文章来源：**[https://www.zerohedge.com/markets/ibm-and-samsung-jointly-announce-breakthrough-semic onductor-uses-85-less-energy](https://www.zerohedge.com/markets/ibm-and-samsung-jointly-announce-breakthrough-semic%20onductor-uses-85-less-energy)
 
-自8月中旬以来，塔利班阻止女性们返回工作岗位。示威抗议者说，“没有工作，她们就无法养活家人，不自由，毋宁死，她们拒绝像过去那样在塔利班统治下生活。”
+翻译：洛杉矶盘古农场 – Raul
+校对：洛杉矶盘古农场 – Milojai
+编辑：洛杉矶盘古农场 –Rosa
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-“大多数家庭迫不得已做出违背意愿的决定，”马顿说。
-
-在华盛顿，一些民主党立法者正在呼吁美国政府采取救济措施。建议寻找途径在不帮助塔利班的情况下防止阿富汗的经济崩溃。
-
-马顿说：“如果国际社会众志成城，齐心协力支持阿富汗人民，我们将能够做出巨大的改变来阻止人道灾难的发生。”
-
-新闻链接：[The Humanitarian Crisis In Afghanistan Is Getting Worse (msn.com)](https://www.msn.com/en-us/news/world/the-humanitarian-crisis-in-afghanistan-is-getting-worse/ar-AARVT3q?ocid=BingNewsSearch)
-
-*发布：盘古相聚*
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
