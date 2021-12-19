@@ -2,37 +2,24 @@
 ---
 
 
-## 南非住院率在世界奥米克戎激增时反而下降
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1770824/)
+## 美国遣责中共开发人脑控制武器
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1770833/)
 
-撰稿：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-8.png)
-正当全球都对激增的奥米克戎焦头烂额的时候，12月17日，南非卫生部长称这次新变种病毒症状温和，与前两波病毒爆发时的峰值相比，住院率大大降低。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1012.png)
-据卫生部长乔·法哈拉的描述，在这波大流行期间，只有1.7%的患者在第二周感染入院，而在第三波德尔塔主导的大流行中，该比率为19%。南非国家传染病研究所的一名官员说，目前需要氧气的人数 “比以前任何一个波段的人数都要少”。与此同时，超额死亡人数，即与历史平均水平相比多出的死亡人数，略低于每周2,000人，是之前峰值的八分之一。据悉，南非现有7600人因新冠病毒住院，约占第二波和第三波峰值的40%。
+#### 釆集/翻译：意翎
 
-南非是奥米克戎首发并上报的地方。正当多国为激增的新病例重新实施各项限制令的时候，南非的现状却与他国激进的措施和无谓的恐慌迥然不同。
+#### 责编：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/https___d1e00ek4ebabms.cloudfront.net_production_adf50f01-8c5e-4e1a-9c81-bc6b159fa536.jpg)图片来源：Financial Times
+据《联邦公报》（Federal Register）的一份通知，美国商务部遣责中共军事医学科学院及其11家研究机构利用生物技术侵犯人权，涉嫌开发破坏美国国家安全的技术，比如控制大脑的武器。周四，拜登政府说，已经对30多家中共研究机构和实体实施了贸易制裁。
 
+美国商务部长吉娜·雷蒙多（Gina Raimondo）表示：“生物技术和医疗创新的科学追求可以拯救生命。不幸的是，中共选择利用这些技术来控制其人民，镇压少数民族和宗教团体成员。我们不能允许美国的商品、技术和软件被用于支持（中共的）医疗科学和生物技术从而威胁美国国家安全。”
 
+美情报机构表示，中共在新疆建立了一个“高科技监视系统”，“作为其压迫机器的一部分”，有关部门不仅使用生物面部识别技术进行大规模监控，还收集了新疆所有12岁至65岁居民的DNA样本。在中共“军民融合”战略下，北京正寻求利用新兴生物技术来支持未来的军事应用，包括资助基因编辑、人类性能增强、脑机接口和生物材料的研究。
 
-新闻链接：
+美国国务院认为中共对新疆维吾尔族和其他穆斯林少数民族的镇压是“种族灭绝”，包括强迫劳动和绝育，已对美国国家安全构成威胁。
 
-[South African hospitalization rates drop during Omicron surge](https://nypost.com/2021/12/17/south-african-hospitalization-rates-drop-during-omicron-surge/)
+网友评论：面对他愤怒的人民，习要么释放穆斯林以矫饰其过，要么失去国际尊重绊倒他统治世界的野心。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3-1.png)
-
-总编/编辑：飞虹
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-8.png)
-
+原文链接：[US Accuses China Of Developing Brain Control Technology](https://www.zerohedge.com/technology/us-accuses-china-developing-brain-control-technology)
 
  
 

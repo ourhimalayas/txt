@@ -2,48 +2,62 @@
 ---
 
 
-## 波音公司放弃了对美国雇员的疫苗强制接种令，加入了美国国铁和其他主要联邦承包商的行列
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1770884/)
+## 【Michael.Tonny专栏】英国官方数据和报告证明 对公众宣称的疫苗接种数据造假（上）
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1770915/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/vax-protest1-fb5.jpg)图片来源：Matthew Lloyd/Bloomberg News
-《华盛顿邮报》12月18日报道，波音公司正在放弃一项要求所有美国雇员接种疫苗的政策，理由是本月早些时候联邦地区法院的一项裁决阻止了拜登政府对联邦承包商和分包商的一项关键免疫强制令。
+作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
-在这家航空航天巨头周五宣布之前，因保守派总检察长领导的各州与联邦政府正在进行的法律斗争而导致了美国国铁和通用电气等其他大公司暂停了自己的疫苗强制令。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-12月7日，佐治亚州的一名联邦法官与阿拉巴马州、佐治亚州、爱达荷州、堪萨斯州、南卡罗来纳州、犹他州和西弗吉尼亚州七个州以及几家公司站在一起，在全国范围内发布了暂停总统乔·拜登对有政府合同的公司的疫苗强制接种令。在这次挫折之后，白宫表示，司法部将继续推动这项原定于2022年1月初生效的强制令。
+法国总统Emmanuel Macron曾经在宣布疫苗护照政策一周后，法国创纪录的370万人预约注射中共病毒疫苗。现在，英国政客和媒体正在利用谎言让拒绝注射中共病毒疫苗的人觉得他们是少数人的一部分，达到恐吓民众接种毒疫苗的目的，在英格兰实施“B计划”。
 
-在宣布这一消息后，波音商用飞机公司首席执行官斯坦·迪尔（Stan Deal）周五接受《西雅图时报》采访时表示，他仍然希望“鼓励我们的每一位员工接种疫苗”。他指出，疫苗在使全球航空旅游业从疫情中恢复方面发挥着重要作用。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-1639128383-4203-1639128388_r_680x408.jpg)
 
-据美联社援引一份公司声明称，大约92%的波音美国员工已完全接种疫苗，或因医疗或宗教原因获得豁免。
+为了恐吓民众接种毒疫苗，英国首相Boris Johnson早在今年9月14日就宣布了应对COVID-19（中共病毒）的英格兰秋季和冬季A计划（autumn and winter plan A）。英国政府首席科学顾问帕特里克·瓦兰斯爵士 (Sir Patrick Vallance) 表示，现在有大约500万人有资格接种疫苗但没有接种疫苗，如果以目前的限制水平进入冬季，病例就会“爆炸”。Boris Johnson会根据风险、疾病状况以及医院压力等因素，将英国的疫苗政策推向强制性疫苗护照（mandatory vaccine passports）的B计划（Plan B）。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Chris-Whitty.jpg)
+在12月8 日举行的全国Covid-19简报会（national Covid-19 briefing）上，英国首相Boris Johnson宣布将从12月15日（星期三）起在英格兰实施“B计划”，将对未接种疫苗的人实施更严格的规定，引入疫苗护照（Vaccine Passports）。
 
-本周早些时候，美国国铁也宣布，鉴于佐治亚州的联邦裁决，它将放弃规定的疫苗接种。该公司首席执行官比尔·弗林（Bill Flynn）在一份声明中表示，对该公司内估计不到500名不符合豁免条件的未接种疫苗的员工，只要他们接受常规新冠病毒检测，就可以继续工作。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Boris-Johnson.png)
 
-拜登政府许多旨在提高疫苗接种率和遏制新冠病毒传播的关键政策都在法庭上被缠住，使公司和员工们处于法律争论的中心。
+英国《每日邮报》（Daily Mail）撰稿人Andrew Neil甚至在12月10日发表的文章《[It’s time to punish Britain’s five million vaccine refuseniks: They put us all at risk of more restrictions, says ANDREW NEIL. So why shouldn’t we curb some of their freedoms?](https://www.dailymail.co.uk/debate/article-10294225/Its-time-punish-Britains-five-million-vaccine-refuseniks-says-ANDREW-NEIL.html)》中说“仍有500万英国成年人，由于恐惧（fear）、无知（ignorance）、不负责任（irresponsibility）或愚蠢（stupidity）而拒绝注射疫苗，他们这样做不仅危及他们自己，也危及我们其他人的健康；如果他们感染了新冠病毒，他们将对NHS(National Health Service)施加最大压力，导致我们其他患有严重非新冠病毒（CCP病毒）疾病的人无法接受我们有权的治疗。我们都在为这些拒绝疫苗的硬核（hard core）付出沉重的代价”。
 
-在对联邦疫苗强制令的挑战的最新进展中，美国俄亥俄州的一家上诉法院周五恢复了对雇用100名以上员工的企业的联邦强制令——这一规则与适用于联邦承包商或由医疗补助或医疗保险资助的医疗保健设施的强制令是分开的。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/ANDREW-NEIL-FOR-THE-DAILY-MAIL.jpg)
 
-但是，在犹他州共和党总检察长肖恩·雷耶斯（Sean Reyes）表示，正在与 “几十个州 “一起向高等法院寻求“迫切、紧急”的救助之后，这一逆转很可能被提升到美国最高法院，他的办公室的一份声明中写道。
+事实上，这是政客和媒体用一个谎言掩盖另一个谎言！英国政客和媒体一直宣称的500万人没有打疫苗，本身就是一个谎言。
 
-简评：
+英国政客和媒体从9月14日到现在，都向民众传达英格兰有500万人，由于恐惧、无知、不负责任或愚蠢而拒绝注射疫苗。
 
-波音公司的选择无疑是十分明智的，特别是类似飞行员的重要岗位，工作中疫苗副作用的突然发作将是大公司无法承担的代价，因此随着爆料革命和其他媒体对疫苗黑幕的进一步曝光，更多的公司或为了员工的安危，或为了公司的利益，将必然站在疫苗强制接种令的对立面，而可预见成反比提升的将是拜登政府政令通行的阻力。
+[THE EXPOSE](https://dailyexpose.uk/)12月17日发表的文章《[UK Government report admits there are 23.5 Million people in England who have NOT had a single dose of a Covid-19 Vaccine](https://dailyexpose.uk/2021/12/17/23-million-not-vaccinated-in-england/)》采用英国政府官方数据和报告证明，英国政客和媒体一直对实际接种疫苗的人数造假。
 
-新闻链接：
+根据英國國家統計局（Office for National Statistics）公布的数据，英格兰共有5598万人（2018年）。
 
-- [Boeing drops vaccine mandate for U.S. workers, joining Amtrak and other major federal contractors](https://finance.yahoo.com/news/boeing-drops-vaccine-mandate-u-125914799.html)
-- [Boeing drops vaccine mandate for U.S. workers, joining Amtrak and other major federal contractors](https://www.washingtonpost.com/nation/2021/12/18/boeing-vaccine-mandate-lawsuit/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/England-Population.png)
 
+根据今年7月2日[Statista](https://www.statista.com/statistics/281208/population-of-the-england-by-age-group/)公布的2020年英格兰人口年龄分布数据，2020年，英格兰约323.9万人年龄在4岁及以下，另有353.9万人年龄在5至9岁之间。10-14岁之间为343.6万人，可推算出10-11岁大约为343.6÷5×2=137.4万人。
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Population-of-England-in-2020-by-age-group.png)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+英国要求12岁及以上的人打毒疫苗，则12岁以下不需要打疫苗的为323.9+353.9+137.4=815.2万人；应接种人群总数为5598-323.9-353.9-137.4=4782.8万人。
 
+[接下篇：【Michael.Tonny专栏】英国官方数据和报告证明 对公众宣称的疫苗接种数据造假（下）](https://gnews.org/zh-hans/1770981/)
 
-编辑：【英国伦敦喜庄园编辑部】
+参考数据：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+[COVID-19 vaccine surveillance report Week 50](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1041593/Vaccine-surveillance-report-week-50.pdf)
+
+[Whilst you were distracted by a Christmas Party the UK Gov. released a report confirming the Fully Vaccinated account for 4 in every 5 Covid-19 Deaths in England since August](https://dailyexpose.uk/2021/12/11/report-shows-4-in-5-covid-deaths-fully-vaccinated/)
+
+[Population of England in 2020, by age group](https://www.statista.com/statistics/281208/population-of-the-england-by-age-group/)
+
+[It’s time to punish Britain’s five million vaccine refuseniks: They put us all at risk of more restrictions, says ANDREW NEIL. So why shouldn’t we curb some of their freedoms?](https://www.dailymail.co.uk/debate/article-10294225/Its-time-punish-Britains-five-million-vaccine-refuseniks-says-ANDREW-NEIL.html)
+
+[COVID-19 vaccine surveillance report Week 49](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1039677/Vaccine_surveillance_report_-_week_49.pdf)
+
+[Covid jab rollout for 12 to 15-year-olds to start in UK schools](https://www.bbc.com/news/uk-58552769)
+
+[UK Government report admits there are 23.5 Million people in England who have NOT had a single dose of a Covid-19 Vaccine](https://dailyexpose.uk/2021/12/17/23-million-not-vaccinated-in-england/)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/) 上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 
