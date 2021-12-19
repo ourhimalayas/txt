@@ -2,119 +2,174 @@
 ---
 
 
-## 新中国联邦的未来一定是各种高科技加持
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1771761/)
+## 习近平不能被暗杀，只有习才可以挑战美国，才会打台湾、才会带领共产党走进坟墓
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1771781/)
 
-[https://gtv.org/video/id=61bdf424a68b4f4b28e9fa51](https://gtv.org/video/id=61bdf424a68b4f4b28e9fa51)
+[https://gtv.org/video/id=61be008aa68b4f4b28e9fecf](https://gtv.org/video/id=61be008aa68b4f4b28e9fecf)
 
-**郭文贵
-Miles Guo**
+Miles我们得到很多情报中共很多人想杀掉习近平
+Miles recibimos muchas informaciones de que muchos del PCCh quieren asesinar a Xi Jinping
 
-所有未来社交媒体的两个核心
-The two cores of all future social media
+你怎么看待这个问题
+Cómo le ves a este problema
 
-大家看到了IBM的两个nm米（纳米）的芯片出现
-Everyone has seen the appearance of the 2nanometre chips from IBM
+他一问我这话
+Él al preguntarme
 
-那不是一般的改变了，是吧？
-That’s not a normal change, right?
+我当时我回答我说你们
+Yo le respondí en aquel momento: “ustedes
 
-还有一个通信
-The other is communication
+可能掌握的情报是肯定是准确的
+“Seguramente las informaciones que obtienen son las más puntuales”
 
-伊隆·马斯克要搞的自动充电、大脑、大脑和手机自动联系
-Elon Musk wants to engage in automatic charging, the brain, and brain to mobile phone automatic contact
+在中国共产党内部
+Dentro del Partido Comunista de China
 
-这都是他玩的游戏
-These are all games that he plays
+不时的都会发生这种事情
+En cualquier momento suceden este tipo de cosas
 
-安全是免费wifi，不受基站影响
-Wifi is totally free in future and is not affected by base stations
+他注定了所有的副总统都要干掉总统
+Está destinado que todos los vicepresidentes quieran asesinar al presidente
 
-七哥告诉你，他最大的量子电脑和生物科技
-Let me tell you his biggest quantum computer and biotechnology
+从来不会说因为说你想不想干
+Nunca ha pasado eso de “porque tu quieres hacerlo o no”
 
-你再看这个伊隆·马斯克（搞得这些）都是很小的事儿
-Look at Elon Musk, all he does matters just a little
+他是必须干
+Él debe hacerlo
 
-它是一个技术性的改变, 生物科技最大的一件事情
-It is a technical revolution and the biggest event about biotechnology
+你没选择你在副总统位置上
+No tienes para escoger estando en el puesto de vicepresidente
 
-生物科技会让你所有的电脑
-Biotechnology will make everything computerized for you
+你不干他 他干你
+Si no lo haces tú te asesinan a ti
 
-所有的也就是人的辨别系统就是眼睛、鼻子闻的味儿，耳朵听的东西，你身体上感到热度
-everything in the human discernment system which are your eyes, the scents you smell, the things that you hear, and the heat that your body feels
+这些事情他到了最后的时候
+Estas cosas al llegar el momento final
 
-生物科技都能让你实现
-Biotechnology can make all these to reality for you
+他本性体制都注定要干掉习
+Su sistema de naturaleza está destinado a acabar con Xi
 
-生物科技就是一个火柴盒大的一个这么的一个硬盘
-Biotechnology is like have a hard drive whose size is as big as a matchbox
+但是
+Pero
 
-能把全人类现在所有的信息收集进去
-And it’s able to collect all the information that mankind has now
+干掉习的结果会使这场人类灾难
+El resultado de matar a Xi hará que este desastre humano
 
-现在所有的，你想想
-Everything that currently has, think about it
+继续延伸更多年
+Continúe extendiendo por más años
 
-那么再想想区块链
-Then think about the blockchain
+只要习被任何人杀掉了
+Mientras Xi sea asesinado por alguien
 
-现在比特币就是生产那个像硬盘似的的盒子
-Bitcoin now produces the box that looks like a hard drive,
+习就是共产党的英雄
+Xi será el héroe del Partido Comunista
 
-里边儿能放1000亿个比特币的价值
-which can hold the value of 100 billion Bitcoins in it
+甚至是一半愚蠢的中国被洗脑人的英雄
+Incluso será el héroe de la mitad de los chinos con el cerebro lavado
 
-它就叫做数字货币的所谓的这个流通币
-It’s called the so-called circulating currency of the digital currency
+一下子成了英雄了
+En un momento se convierte en héroe
 
-到未来那个东西，它可以放在你什么（地方）
-In the future, where can it be placed?
+这是一点都不用怀疑的
+De esto no hay que dudarlo
 
-它放在你身体里，肉体里
-It’s in your body, in your flesh
+他就成了英雄了
+Se convierte en un héroe
 
-它可以放在你完全没有人知道的地方
-It can be placed in your body where no one knows
+然后这一半人会誓死保护习近平的
+Y esta mitad de persona protegerá a Xi Jinping hasta la muerte
 
-就像我们现在要发展的未来的喜币的那个金币，纯金铸的币
-Just like the gold coin that we are going to develop for the future of HCoin, which made of pure gold
+今天的习近平太阳思想
+Hoy el pensamiento de sol de Xi Jinping
+他是个人一个社会关系学历史学的一个必然
+Él es un individuo, una necesidad de las relaciones sociales y de la historia
 
-可以有100万额度的，有10万额度的，有1万额度的
-There can be 1 million credits, 100,000 credits, and 10,000 credits,
+你把习变成这么个人物
+Si conviertes a Xi en un personaje así
 
-然后跟电脑里放在一起，“啪”一辨别，加上眼睛，指纹识别，什么识别
-Then put them together on the computer, conducting a quick identity, adding your eyes scanning, fingerprint, and other recognitions
+那就真的是中国的悲剧
+Entonces eso si de verdad es una tristeza de China
 
-就马上就可以把东西传给你一样
-They can send things to you right away
+就是本来应该是把这个体制消灭
+Quiere decir que en realidad este sistema debe ser eliminado
 
-它人类已经到这个时代了
-Mankind has reached this age
+它自然而然就灭掉
+Él naturalmente se extingue
 
-我们要准备的不是（互联网）3.0版
-What we are going to prepare is not (Internet) version 3.0
+你把它捏了干什么呀
+Para qué lo aprietas
 
-3.0版都对我们来讲已经不是 …已过去
-Version 3.0 is no longer for us…it’s over
+所以说我说这是肯定没有
+Por eso yo digo que esto seguro no
 
-我们是要真正的AI加生物科技、量子科技加数字货币的新中国联邦的时代
-What we need is the New Federal State of China Era that has the real AI plus biotechnology and quantum technology plus digital currency
+我本人坚决反对
+Yo personalmente me opongo firmemente
+
+如果现在有人暗杀习的话
+Si ahora hay alguien que quiera asesinar a Xi
+
+我说我会站在他前面替他挡子弹去
+Yo me pondré delante de él para detenerle la bala
+
+我让他继续活下去
+Yo haré que siga viviendo
+
+因为只有习能完成我们的想法
+Porque sólo Xi puede completar nuestra idea
+
+打台湾
+Atacar a Taiwán
+在内部杀土豪 是吧
+Matar a los ricos dentro del partido, cierto
+
+党内清党 垄断思想
+Limpieza clara dentro del partido, pensamiento de monopolio
+
+灭掉宗教
+Destruir las religiones
+
+共享财富
+Riqueza compartida
+
+谁能做到了现在呀
+Quién ahora puede lograrlo
+
+就是党内有100个王岐山他也做不到啊
+Así haya 100 Wang Qishan dentro del partido él no lo puede lograr
+
+只有习能做到
+Solo Xi lo puede lograr hacer
+
+关键的问题它还要挑战美利坚共和国
+El problema clave es que él hasta quiere desafiar a Estados Unidos
+
+我刚刚跟那哥们说 不挑战你们美国
+Ahorita le dije a ese compadre: “si no desafía a ustedes EE. UU”
+
+你美国永远不会和我们站在一起的
+Ustedes nunca estarán parados junto con nosotros
+
+我坚决反对
+Yo me opongo firmemente
+
+我会誓死捍卫习近平的生命
+Yo protegeré hasta la muerte la vida de Xi Jinping
+
+我让他一直活到共产党灭了为止
+Yo lo dejaré vivir hasta que el Partido Comunista sea extinto
 
 * * *
 
-Date: 12/16/2021
-原视频标题: 新中国联邦的未来一定是各种高科技加持
-The Future of The New Federal State of China Must be a Variety of High-tech Blessings
-原视频日期：2021/15/12
-原视频链接: [**https://gettr.com/post/pjtm7m56ab**](https://gettr.com/post/pjtm7m56ab)
-任务编号：KC347(3256)
-视频时间段 : 0:00-2:16
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译：洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
+日期：12/17/2021
+原视频标题：习近平不能被暗杀，只有习才可以挑战美国，才会打台湾、才会带领共产党走进坟墓
+Xi no puede ser asesinado, sólo Xi puede desafiar a EE. UU, solamente así atacará a Taiwán, de esta manera llevará al PCCh a la tumba.
+原视频日期：12/15/2021
+原视频网址： [**https://gettr.com/post/pjpokt3d9f**](https://gettr.com/post/pjpokt3d9f)
+任务编号：KC346（3240）
+视频时间段：0:00-02:16
+西听校：洛杉矶盘古农场 – 小文萱
+翻译：洛杉矶盘古农场 – 霙霙（文霙）
+翻译终校：洛杉矶盘古农场 – 小文萱
 字幕+视频制作：洛杉矶盘古农场 – 天涯行
 审片：洛杉矶盘古农场 – 银龙
 发布 ：洛杉矶盘古农场 – 恩典
