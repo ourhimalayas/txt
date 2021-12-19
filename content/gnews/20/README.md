@@ -2,52 +2,42 @@
 ---
 
 
-## 意大利为应对OMICRON考虑采取新的COVID-19措施
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1772113/)
+## 调查显示，在挪威(奥斯陆)的圣诞晚餐后98%的COVID-19感染者都是充分接种了疫苗的人
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1772172/)
 
-作者：纽约香草山农场 – 四季
+发布日期：2021年12月17日
+新闻来源：lorphicweb.com
+翻译：文虓Bobby
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/122001.png)
 
+11月26日，挪威公共卫生研究所(NIPH)在奥斯陆的圣诞晚餐上接到当地一家实验室关于COVID-19疫情爆发的通知后，进行了调查。调查的初步结果周四发表在《欧洲监控杂志》(Eurosurveillance Journal)上。
 
+调查显示，其中一名与会者已于11月24日从南非返回。COVID-19的Omicron变种于11月中旬在南非首次发现。
 
+网管专家（Gateway Pundit）-根据发表在《欧洲监控杂志》(Eurosurveillance Journal)上的研究结果，111名受访者中，66人(59%)为确诊病例(26人基于WGS, 40人基于PCR VOC筛查)，15人(14%)为疑似病例(仅PCR阳性)。1例PCR阳性参与者被确认感染SARS-CoV-2 Delta型(B.1.617.2)，随后被排除在进一步分析之外。
 
+欧米克戎（Omicron）变种的总感染率为74%(81/110)。平均年龄38岁(SD:8.6;中位数36，范围:26-61)和35(43%)为女性。截至2021年12月13日，其余29名与会者没有PCR阳性结果。
 
-据[OAN网站](https://www.oann.com/italy-eyes-new-covid-19-measures-amid-omicron-worries-newspapers/)12月19日援引路透社报道，出于对高传染性Omicron中共病毒变体传播的担忧，意大利政府正在考虑采取新的措施，以避免假日期间中共病毒感染率的激增。
+此外，在调查过程中，截至12月13日，我们在现场发现了近70名其他可能被感染的客人，其中53人通过PCR变异筛查或测序检测出了Omicron变异。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1777-1-1.jpg)2021年3月15日，意大利米兰，伦巴第大区成为 “红区”，在该国为努力减少冠状病毒疾病（COVID-19）感染进入封锁状态，一名戴着口罩的妇女经过一家关闭的商店。（REUTERS/Flavio Lo Scalzo）
+以下是NIPH网站上发布的研究结果摘要:
 
-据悉，总理马里奥·德拉吉可能会要求已接种疫苗者在进入包括迪斯科舞厅、电影院、剧院和体育场在内的拥挤场所时出示COVID-19阴性测试报告，并在户外也须佩戴口罩。
-
-而根据目前的规定，已经接种疫苗或最近从该疾病中康复的人可以自由进入酒吧、餐馆、博物馆、电影院、俱乐部和参加体育赛事。
-
-意大利早前已经强制要求医疗工作者、学校工作人员、警察和军人进行疫苗接种，这一接种义务范围可能从1月起将扩大至涵盖所有工人。
-
-本周早些时候，罗马已经将COVID-19的紧急状态延长至3月31日，并规定所有来自欧盟国家的游客必须在出发前接受测试。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月.png)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+- 研究结果表明，在室内密切接触的社会环境中，欧米克戎变体在完全接种过疫苗的成年人中具有很高的传播能力。
+- 在圣诞餐桌上见面的111名参与者中，74%的人后来被诊断出患有SARS-CoV-2。其中60%证实感染了欧米克戎变体(截至2021年12月13日)。此外，有一名参与者感染了Delta变种。样品的分析仍在进行中。
+- 大多数病例报告症状轻微，迄今没有一例住院。
+- 70%以上的病例报告有以下症状:咳嗽、流鼻涕/鼻塞、嗜睡和喉咙痛。此外，50%的病例报告发烧。
+- 其中一些病例曾提前到国外旅行，但没有人报告在圣诞餐桌前出现症状。
+- 其中98%的病例得到了充分的接种。在接种了两剂疫苗的人群中，41/75人接种了Comirnaty (BioNTech-Pfizer)， 17/75人接种了Spikevax (Moderna)。在未感染组中，Comirnaty (BioNTech-Pfizer)为7/25,Spikevax (Moderna)为12/25。
+- 虽然我们观察到在受感染和未受感染的人群中占主导地位的疫苗类型存在一些差异，但数据库太过薄弱，无法断定某些疫苗类型是否比其他疫苗类型更有效地抵御Omicron变异的感染。
 
 
+（挪威）国家公共卫生研究所根据初步调查得出结论，欧米克戎变种具有更强的传染性，冠状病毒疫苗对欧米克戎感染传播的（抑制）效果不如Delta变种。与此同时，在此次疫情中的病例中没有严重感染的迹象。
 
+[援引原文](https://lorphicweb.com/investigation-revealed-98-of-those-infected-with-covid-19-after-christmas-dinner-in-norway-were-fully-vaccinated/)
 
+审核校对：玫瑰天空
+上传排版：糖果儿
 
  
 

@@ -2,26 +2,10 @@
 ---
 
 
-## 香草山翻译部周刊|2021年12月19日第27期
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1771974/)
+## 中共的地产与经济灾难，是对全世界的一场合法洗劫
+` MG 澳喜农场多语组` [轉載自GNews](https://gnews.org/zh-hans/1772087/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-4.jpg)
-
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/12/27CN.png)
-文章仅代表作者本人观点，与Gnews无关
-
-总编： GBWater
-编辑： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/calendar-1.jpeg)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+郭先生：中共国房地产和金融的崩盘，将会给社会将带来绝对性的摧毁效应，会给世界带来想象不到的金融灾难，金融领域所有不可查的隐蔽数据，对西方是致命的打击。美国和西方的一些利益集团冒险把大量的钱投到中共国，因为西方投到中共的钱，绝大多数都是违法进去的，共产党的傲慢源自于它抓住了西方国家一些人的把柄。这样会开启西方世界集体灭共的浪潮。
 
  
 
