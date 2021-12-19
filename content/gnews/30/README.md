@@ -2,39 +2,36 @@
 ---
 
 
-## 事实：台湾79%新增病例发生在疫苗接种者身上
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1770272/)
+## 中共公布100条网络短视频审核细则，让墙内百姓更难以发声
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1770412/)
 
-#### 翻译：美哥
-编辑：文泓
+作者：日本方舟农场 – Andy5
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-08-30-at-7.37.59-PM-2.png)
+12月15日，中共发布100条网络短视频审核的相关细则，进一步剥夺了墙内老百姓发声的自由和权利。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/9-14.jpg)
+这些细则中，除了占据首要位置的“不允许攻击、讽刺中共”“必须顺从中共核心思想”以外，还包括“不允许对主流价值观低级红、高级黑”“不允许引诱公众参与虚拟货币交易”“不允许传播非省级以上新闻单位发布的灾难事故信息”，以及“不允许私自发布党和国家领导人家庭成员信息”等。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/5955-2.jpg)图片来源：Monash University
+分析人士称，结合12月以来郭先生在大直播中屡次提及明年墙内将会有更严重的人祸天灾，以及将从明年除夕开始的对习王孟江的全球送葬活动，中共赶在15日推出的细则，切实表明了中共对新中国联邦以及墙内老百姓为真实发声的恐惧。
+
+参考链接：
+
+- [网络短视频内容审核标准细则（2021）](http://politics.people.com.cn/n1/2021/1215/c1001-32309186.html)
 
 
-12月16日，据《自然新闻》报道，台湾疾病控制中心（TCDC）最新数据显示，五分之四的新冠病毒新增病例发生在接种疫苗的人中。
-截止到12月10日的前三周里，TCDC统计了215个核酸检测呈阳性的人群，发现其中170个人至少已接种了一剂福奇疫苗，占比79%。
+![This image has an empty alt attribute; its file name is Dec-4-3.png](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
 
-根据微生物学家苏查里特·巴克迪教授的说法，所有这些都是意料之中的，甚至计划以这种方式进行。在他看来，所谓的“疫苗”是注定要失败的——从我们所知道的来看，它们被设计成无限期地（变种）爆发。
-“血液中产生的抗体，例如注射到肌肉中产生的抗体，不能保护任何人免受呼吸道感染，”英国媒体援引巴克迪教授的观点。
-理查德·弗萊明博士也用辉瑞、莫德纳和强生的疫苗实验数据得出相同结论——从数据统计来说，疫苗没有能够有效减少新冠病毒爆发。
+总编：飞虹
+编辑：飞虹
+校正/发稿：海阔天空1
 
-**核酸检测从来不是用于检测病毒。**
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-早在2013年中共新冠病毒大流行之前，核酸检测的发明者，生化学家凯利·穆利斯就曾说过他的核酸技术不是为辨别病毒而生，因为它所做的只是放大遗传物质的片段。
-核酸检测的对象只是病毒基因片段极小的一部分，检测结果十分随机，完全取决于我们提取的是哪一个片段的DNA“引物”用来做扩增片段。辉瑞公司副总裁迈克·耶登博士也批评说，用核酸检测健康人群的行为必须马上停止，称这是违反生物和免疫学的基础常识。
-
-迈克·耶登博士还称“无症状感染”也是个伪概念，一个人没有症状，那么他就是健康的，没有感染。**如果呼吸道聚集了病毒，它就会攻击你的肺上皮组织，或者体内免疫系统启动对抗，身体一定有感觉，人不可能既感染又毫无症状。**
-
-评论人员指出，就台湾而言，一个多月来连一个新冠感染者的死亡案例都没有，即使有核酸检测的假阳性，病例率仍然几乎是零。
-
-新闻链接：[In Taiwan, 79% of all new covid cases are occurring in the “vaccinated” – NaturalNews.com](https://www.naturalnews.com/2021-12-16-taiwan-new-covid-cases-occurring-in-vaccinated.html)
-**发布：文泓**
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 

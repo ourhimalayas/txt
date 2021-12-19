@@ -2,41 +2,24 @@
 ---
 
 
-## 曝光：利兹·切尼 (Liz Cheney) 接受了中国共产党影响力集团颁发的“政治家风度”奖
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1770444/)
+## 国务卿东南亚行程两名空军机组人员感染中共病毒
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1770536/)
 
-加拿大温哥华扬帆农场 翻译：文农
+#### 撰稿：彩虹
 
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-2-14.jpg)图片来源：美国新闻
+12月18日，《新闻极限》引用《路透社》的报道，两名为国务卿安东尼·布林肯（Antony Blinken）提供支持的空军机组人员感染了中共病毒（COVID-19）。现在感染人数已增至三人。
 
+之前，国务院披露，陪同国务卿出访的一名记者团成员的中共病毒检测结果也是阳性。这名记者在抵达马来西亚首都吉隆坡后接受检测，周二晚些时候被确定为中共病毒阳性病例，目前此人仍在隔离中。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/IMG_0366.jpg)
+根据报道，空军没有说明布林肯行程中的机组人员何时或在哪一站检测结果为阳性的。空军发言人在周五晚些时候的一份电子邮件中告诉《路透社》，“这两名空乘人员之前都已完全接种疫苗，两人都没有与国务卿或高级工作人员有过密切接触，一名空勤人员没有症状，而另一名空勤人员出现了轻微症状。”
 
+周三，国务院发言人内德·普莱斯（Ned Price）说，在记者团中出现阳性病例后，“布林肯和他的高级工作人员”检测结果为阴性。然而，普莱斯的声明没有提及与布林肯一起乘坐飞机的其他人（的情况）。
 
-图片来源：thenationalpulse.com
+**新闻来源**
 
-美国众议员利兹·切尼 (Liz Cheney) 接受了中美交流基金会（CUSEF）赞助的奖项，这是一个由中共支持的臭名昭著的团体，被美国政府标记为：努力胁迫美国领导人“在行动或立场上与中共保持一致”。
-
-众议员切尼[与](https://www.usafmc.org/statesmanship-2021)参议员蒂姆·斯科特、克里斯·库恩斯和众议员吉姆·克莱本一起获得了前国会议员协会 (FMC) 2021 年政治家精神奖。该奖项的赞助商包括中美交流基金会。
-
-切尼是一个频繁的唐纳德·特朗普批评者、众议院1月6日调查委员会成员，也参与了一项与前国会议员协会的对话讨论，该组织与中美交流基金会有长期[合作](https://thenationalpulse.com/exclusive/former-reps-sponsored-trips-to-china/)记录。
-
-“中美交流基金会”由负责中共对外统一战线的最高组织-中共统战部-副主席创立，是[被美中经济与安全评估委员会](https://zh.wikipedia.org/zh-cn/%E7%BE%8E%E4%B8%AD%E7%B6%93%E6%BF%9F%E6%9A%A8%E5%AE%89%E5%85%A8%E6%AA%A2%E8%A8%8E%E5%A7%94%E5%93%A1%E6%9C%83)认定的中共执行机构，主旨为“拉拢结盟，消除潜在的对中共政策、权威的威胁”，并“影响外国政府在行动或立场上支持中共”。
-
-美国国务院[将](https://2017-2021.state.gov/designation-of-the-national-association-for-chinas-peaceful-unification-nacpu-as-a-foreign-mission-of-the-prc/index.html)统一战线比作中国政权推进其偏爱政策的“法宝”。
-
-根据外国代理人登记法 (FARA) 的文件，中美交流基金会已对美国记者和[前](https://thenationalpulse.com/exclusive/former-reps-sponsored-trips-to-china/)国会议员采用了上述的策略，比如提供免费中国旅行以换取“有利的报道”。这些旅行实际上就是向媒体、主要影响者、意见倡导者以及公众灌输关于中共所谓的“正面消息”。
-
-正是这个中国紧密勾结并努力采取影响行动的近百人的基金会赞助了此次颁奖活动。
-
-切尼众议员接受 CUSEF 资助的奖项，与此前《国家脉搏》曝光她丈夫受雇于一家与中共往来密切的律师事务所接踵相联。
-
-参考资料；
-
-thenationalpulse.com /exclusive/cheney-receives-award-sponsored-by-ccp-influence-group/
-
-编审：文敏   发布：天予
-
-
+[Air Force: 2 Supporting Blinken’s Foreign Trip Test Positive for COVID](https://www.newsmax.com/us/air-force-superspreader-secretary-state-department/2021/12/18/id/1049200/)
 
  
 

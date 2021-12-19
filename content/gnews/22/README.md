@@ -2,32 +2,20 @@
 ---
 
 
-## 美国监管机构调查 Afterpay
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1770498/)
+## 新任美国驻日大使发推表示将加强美日共同的民主价值观
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1770556/)
 
-撰稿：云彩
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-995.png)[图片来源](https://www.msn.com/ja-jp/news/world/%E6%AC%A1%E6%9C%9F%E9%A7%90%E6%97%A5%E7%B1%B3%E5%A4%A7%E4%BD%BF-%E7%B5%86%E3%82%92%E5%BC%B7%E3%82%81%E3%82%8B-%E3%82%A8%E3%83%9E%E3%83%8B%E3%83%A5%E3%82%A8%E3%83%AB%E6%B0%8F%E3%81%8C%E6%8A%B1%E8%B2%A0/ar-AARXhkk?ocid=msedgntp)
+共同社华盛顿12月19日报道：12月18日，参议院全体会议批准了伊曼纽尔的任命，预计他将很快就任新职。62岁的下任美国驻日本大使拉姆-伊曼纽尔（Rahm Emanuel）在这个决定后,首次在推特上说：美国和日本面临着共同的挑战。我们将不懈努力，加强两国之间的联系。
 
-视频来自网络
-2021年5月17日从事先买后付业务的澳洲Afterpay 和Zip公司，受美国监管机构要求它们披露其消费者保护措施消息影响，股价在澳洲股市受到打击。
+伊曼纽尔说：促进拥有60年历史的美日联盟的和平与繁荣，加强我们共同的民主价值观。我们在未来三年能够建立什么样的合作将决定美国未来30年在印太地区的地位。我会努力加强这一联盟。
 
-美国消费者金融保护局命令 Afterpay、Zip、Klarna、PayPal 和 Affirm 回答一系列问题，其中包括消费者所承担的债务、公司是否遵守消费者法律以及数据收集法规？ CFPB 主任 Rohit Chopra 表示，该局已命令这些公司提交信息，以便他们可以向公众报告行业惯例和风险。
+信息来源：[次期駐日米大使「絆を強める」 エマニュエル氏が抱負 (msn.com)](https://www.msn.com/ja-jp/news/world/%E6%AC%A1%E6%9C%9F%E9%A7%90%E6%97%A5%E7%B1%B3%E5%A4%A7%E4%BD%BF-%E7%B5%86%E3%82%92%E5%BC%B7%E3%82%81%E3%82%8B-%E3%82%A8%E3%83%9E%E3%83%8B%E3%83%A5%E3%82%A8%E3%83%AB%E6%B0%8F%E3%81%8C%E6%8A%B1%E8%B2%A0/ar-AARXhkk?ocid=msedgntp)
 
-buy now, pay later（BNPL）是一种为人们提供购买和带走物品的预付款，然后分期偿还的科技公司。BNPL 在美国爆炸式增长，监管机构表示，在大流行和最近的黑色星期五销售期间，其使用量激增。
-
-在澳大利亚，财政部最近的数据发现，五分之一的在线销售现在涉及 BNPL。近日，澳大利亚政府宣布它还在考虑修订相关金融法，以监管包括 BNPL 在内的一系列科技技术。
-
-点评：腾讯拥有Afterpay 5%的股份，是大股东。腾讯的背后有共产党的影子。自从腾讯加入Afterpay 后，Afterday 开始主攻美国市场。先后与Apple Pay 和Google Pay 合作，业务从线上转到线下实体店。大部分用户是美国年轻人。试想，将来当这批年轻人成为美国社会的中坚力量时，是不是意味着共产党通过控制这股力量来控制美国？
-
-参考资料：
-
-[美国机构监管AFTERPAY](https://www.abc.net.au/news/2021-12-17/asx-bank-england-interest-rates-wall-street-afterpay/100707908)
-
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
-
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-
-[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-1.jpg)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

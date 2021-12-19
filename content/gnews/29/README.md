@@ -2,24 +2,40 @@
 ---
 
 
-## 苏格兰公共卫生数据：死于中共病毒的人中 九成完全接种了疫苗
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1770287/)
+## 捷克新政府强调将与台湾等民主政府合作
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1770422/)
 
-#### 翻译/撰稿：黃金精神
+作者：纽约香草山医疗部 – 云豹
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-08-30-at-7.37.59-PM-2.png)
+捷克新政府于当地时间12月17日上任，新任总理费亚拉强调，他的执政联盟将与台湾等民主政府合作，并考虑变更由总统齐曼所主导的亲中俄路线。
 
-#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/10-8.jpg)
 
-12月16日据The Exposé报道，苏格兰官方公共卫生数据（Public Health data）显示，自8月以来，每10个中共病毒病例中就有6个是接种过疫苗的人，每10个住院病人中就有7个，每10个死亡病例中就有9个。
+费亚拉在11月28日被任命为新任总理，他带领的人民民主党与其他四个政党合作，在捷克国会200个席位中，合计拿下108席。
 
-苏格兰公共卫生局（Public Health Scotland）每周三发布一份 “中共病毒统计报告”，其中包含在四周内按疫苗接种情况分类的中共病毒病例、住院和死亡数据。最新的报告于12月15日发布，包含了11月13日至12月10日的病例和住院数据，以及11月6日至12月3日的死亡数据。报告显示，在11月13日至12月10日期间，共有82,161个确诊病例和1,617个住院病例，而在11月6日至12月3日期间，共有383个中共病毒死亡病例。报告还证实，接种疫苗的人群占确诊病例、住院及死亡的比例分别为64%、69%和85%。但这并不是因为奥米炕（Omicron）变体的紧急情况而突然发生的。至少从2021年8月起，绝大部分中共病毒病例、住院和死亡都发生在完全接种疫苗的人中。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-26.png)图片来源：Public Health Scotland
-官方数据显示，自2021年8月以来，接种疫苗的人群占确诊病例、住院、死亡的比例分别为59%、71%及85%。这些疫苗无法防止德尔塔（Delta）变种病毒的传播，虽然我们被告知它们在防止住院和死亡方面非常成功。但根据官方公共卫生数据表明，实际上中共病毒疫苗在暴露于中共病毒时，一直在使接种者的病情恶化。
+现年57岁的费亚拉曾在大学任政治学教授及主任，在受访时曾表示，自己在民主精神下成长，自幼就认为民主和自由是正确的。
 
-下图显示了过去17周内根据苏格兰公共卫生局中共病毒统计报告，未接种疫苗人群的病死率，以及接种两针疫苗人群的病死率。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片3-11.png)图片来源：Public Health Scotland
-住院-死亡率的计算方法是用人群中已知的死亡人数除以已知的住院人数。从上面我们可以看到，未接种疫苗的人群中，住院-死亡率仅为9%。但是完全接种疫苗的人群中，住院-死亡率相当于21%。这意味着完全接种疫苗的人群一旦因中共病毒住院而死亡的可能性要高出2.3/133%。
+新任的外交部长利帕夫斯基隶属海盗党，信奉自由主义，是反中共团体“对中政策跨国议会联盟”的成员。他对中共立场强硬，曾多次批评新疆的人权问题，谴责中共隐瞒中共病毒疫情，导致疫情扩大。利帕夫斯基对台湾相当友好，曾多次出席台湾举办的活动，并曾在自己的脸书上发文称台湾是可靠的伙伴。
 
-新闻来源：[For every 10 people who have died with Covid-19 since August, 9 of them have been Fully Vaccinated according to the latest official Public Health data](https://dailyexpose.uk/2021/12/16/omicron-deception-9-in-10-covid-deaths-since-august-vaccinated/)
+参考链接：
+
+- [捷克新政府上任 強調與台灣等民主政府合作](https://www.cna.com.tw/news/firstnews/202112170314.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+
+
+![This image has an empty alt attribute; its file name is Dec-4-3.png](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
+
+总编：飞虹
+编辑：飞虹
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 

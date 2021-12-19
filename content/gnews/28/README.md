@@ -2,39 +2,31 @@
 ---
 
 
-## PLA南海频频实弹演习，美国警告“侵略”行为
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1770295/)
+## 有声|港共政府清算《苹果日报》发行公司
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1770447/)
 
-#### 翻译：美哥
-编辑：文泓
+配音：香草山美食部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+当地时间12月16日，据相关媒体报道，香港法院下令对最近倒闭的民主派报纸《苹果日报》的母公司Next Digital进行清算。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/5955-1.jpg)图片来源：South China Morning Post
+资料显示，中共政府于2020年在香港强制推行国安法后，港共政府随即将香港《苹果日报》及其母公司Next Digital作为镇压目标。今年6月，港共政府借由国安法定义的所谓“颠覆、分裂、恐怖主义和与外国势力勾结”等莫须有罪名，迫使Next Digital停止出版香港《苹果日报》并冻结了该公司的所有银行账户，同时暂停了该公司的股票交易。与此同时，《苹果日报》的创办人也因中共国安法定义的“非法集会”罪而被迫入狱。知情人士透露，由于香港《苹果日报》及相关人员的遭遇，Next Digital公司的资金随即被迅速耗尽。数据显示，目前，Next Digital净亏损超过2.4亿港元，其中还有拖欠当地员工工资的1.2亿港元，这也导致港共政府对该公司提出清算要求。
 
+另外，报道中也提及，Next Digital公司仍在运作的台湾分部的资产也会遭到波及。有关人士提到，作为清算资产的一部分，台湾版《苹果日报》也将被出售，同时，包含台湾员工个人信息的Next Digital数据库也将被暴露给港共政府。对此，台湾大陆事务委员会也表示，台湾方相当担忧这些数据可能会被“不当使用”。
 
-本周，中共官媒在指责美方武力恫吓和挑衅南海的同时，解放军在南海举行了多起实弹演习。华盛顿高度关注中方在南海的挑衅行为，美国国务院誓言要维护争议海域的航行自由权。
+文字版原文：[港共政府清算《苹果日报》发行公司](https://gnews.org/zh-hans/1767011/)
 
-《解放军报》转载了海南海事局关于海南岛有三处地点限航的通告。目前还没有关于该军演的进一步的消息，但是海域的实弹演习通常是为了检验海军军力，特别是两栖登陆的备战能力。
-本周五前，PLA至少已结束了两场演习，一个靠近海南，另外一个在中越之间的北部湾。
-《解放军报》一段隐匿地址的视频显示，隶属南部战区司令部的海军驱逐舰队进行了7天密集演习，训练内容包括舰载机着陆，浮动水雷的操作和炮击。
-南中国海是印太地区最潜在的火药桶，中共国宣称的主权领土与文莱、马来西亚、菲律宾、台湾和越南都有重叠。上周，其党媒《环球时报》也透露了PLA在南海岛屿上用H6J轰炸机进行实弹轰炸和海面布雷的画面。
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-观察人士称，日益密集的演习是中共给台湾和其盟友美国传递威慑的信号，而美国则加强了对“自由开放的印太地区”的倡导，作为其外交和国防政策的坚实基础。
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-本周二，美国国务卿安东尼·布林肯则在访问印度尼西亚时称，北京的“侵略行为”给印太地区各国带来了不安，美国“决心确保南海的自由航行权”。
-这是布林肯自一月就职后，首次以国务卿身份访问东南亚。拜登明年初在华盛顿与东南亚领导人的会晤也备受期待。
-针对布林肯的言论，中共外交部发言人赵立坚反驳回应，“美国在南海部署先进的军机和舰只，是恫吓和挑衅的行为。”
-
-周二，北京智库名为“南海战略态势感知”机构，指控美国空军间谍机RC-135W在中共国沿海靠近演习的地点近距离侦察，并称这是美方自11月以来的第94次侦察飞行。
-
-原文链接：[US Warns Of ‘Aggression’ As China Holds More Live-Fire Exercises In South China Sea – Eurasia Review](https://www.eurasiareview.com/18122021-us-warns-of-aggression-as-china-holds-more-live-fire-exercises-in-south-china-sea/)
-**发布：文泓**
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
