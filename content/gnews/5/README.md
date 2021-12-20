@@ -2,34 +2,46 @@
 ---
 
 
-## 台北马拉松赛5名选手昏迷 赛前均被迫接种疫苗
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1775360/)
+## 灭共漫画系列——家天下
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1775423/)
 
-**撰稿：日本东京方舟农场 海星**
+**出品：纽约香草山设计部**
 
-12月19日，在台北举行的马拉松比赛中，有5名参赛选手倒地昏迷，一度失去呼吸心跳。而在赛前，按主办方要求，所有选手都必须至少接种一剂中共病毒疫苗方可参赛。
 
-据《世界新闻网》报道，“2021台北马拉松赛”于12月19日清晨鸣枪开跑。比赛中，有7名选手陆续感到身体不适，被立即送医救治。这7人的年龄在20岁至60岁之间。他们当中，有5人倒地昏迷，一度失去呼吸心跳，被送往加护病房；另外2人则是出现气喘胸闷的症状。最严重的1人因急性心肌梗塞已进行了手术抢救。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-250.jpg)图片来源：世界新闻网
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-该报道称，这是自台北马拉松赛举办35年以来发生的最严重的意外事件。
 
-据悉，所有参加比赛的选手都必须在12月5日前至少接种一剂疫苗，并且还需于赛前完成病毒检测，结果阴性方可出赛。
 
-*参考链接：*
 
-[台北馬拉松 5跑者昏迷送加護病房](https://www.worldjournal.com/wj/story/121475/5974095)
 
-[Taipei Marathon 臺北馬拉松](https://www.taipeicitymarathon.com/news-page.php?id=82)
 
-* * *
 
-*素材采编：海星*
 
-*编辑：青衣青青*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-IMG_3510.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/2-IMG_3460.jpg)
 
-*发布：Ranting*
+
+**编辑/发稿：小鹿**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-2.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
 
  
 
