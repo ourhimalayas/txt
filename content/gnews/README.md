@@ -105,80 +105,80 @@
 ### [港警持长枪高调武装巡视立法会投票站](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [12/19/2021 文贵直播：习将继续造神并以拯救台湾的名义打台湾，届时，台湾运动员就不用回去了](/content/gnews/31/README.md)
+### [日本将不出席核禁公约缔约方会议](/content/gnews/31/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [12/19/2021 文贵直播：习将继续造神并以拯救台湾的名义打台湾，届时，台湾运动员就不用回去了](/content/gnews/32/README.md)
  ` 秘密翻译组-北美组`
 
-### [【中日财经爆】日本参议院一致通过国内半导体生产补贴修正案](/content/gnews/32/README.md)
+### [【中日财经爆】日本参议院一致通过国内半导体生产补贴修正案](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [GTV投资人对SEC的抗议活动圆满完成](/content/gnews/33/README.md)
+### [GTV投资人对SEC的抗议活动圆满完成](/content/gnews/34/README.md)
  ` GTV新闻访谈`
 
-### [为保在华销售利亚马逊屈服于北京的宣传武器](/content/gnews/34/README.md)
+### [为保在华销售利亚马逊屈服于北京的宣传武器](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [【#G时新闻】冲绳首次发现奥密克戎毒株，驻冲美军集体感染令人担忧](/content/gnews/35/README.md)
+### [【#G时新闻】冲绳首次发现奥密克戎毒株，驻冲美军集体感染令人担忧](/content/gnews/36/README.md)
  ` G-时新闻`
 
-### [此生安得两全法，不负生来不负死](/content/gnews/36/README.md)
+### [此生安得两全法，不负生来不负死](/content/gnews/37/README.md)
  ` 骄子`
 
-### [杰森·米勒：联邦制终将拯救美国](/content/gnews/37/README.md)
+### [杰森·米勒：联邦制终将拯救美国](/content/gnews/38/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共为报复立陶宛以市场为筹码向跨国公司施压](/content/gnews/38/README.md)
+### [中共为报复立陶宛以市场为筹码向跨国公司施压](/content/gnews/39/README.md)
  ` 日本东京方舟农场`
 
-### [德国多个城市爆发反疫苗和防疫政策的抗议活动](/content/gnews/39/README.md)
+### [德国多个城市爆发反疫苗和防疫政策的抗议活动](/content/gnews/40/README.md)
  ` 日本东京方舟农场`
 
-### [墨尔本成千上万的民众再次上街抗议政府强制疫苗令](/content/gnews/40/README.md)
+### [墨尔本成千上万的民众再次上街抗议政府强制疫苗令](/content/gnews/41/README.md)
  ` 日本东京方舟农场`
 
-### [12/20/2021国际财经快讯：美国“超级星期六”将吸引最后一刻购物者；木材价格又飙升](/content/gnews/41/README.md)
+### [12/20/2021国际财经快讯：美国“超级星期六”将吸引最后一刻购物者；木材价格又飙升](/content/gnews/42/README.md)
  ` 秘密翻译组金融团队`
 
-### [文贵视角12.17 六十年一遇壬寅年 习（近平）彭（丽媛）相克定有一亡](/content/gnews/42/README.md)
+### [文贵视角12.17 六十年一遇壬寅年 习（近平）彭（丽媛）相克定有一亡](/content/gnews/43/README.md)
  ` 秘密翻译组-原创组`
 
-### [12/20每日播报｜新闻简讯：多个美国商业机构就疫苗强制令提出上诉](/content/gnews/43/README.md)
+### [12/20每日播报｜新闻简讯：多个美国商业机构就疫苗强制令提出上诉](/content/gnews/44/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [中共党媒CCTV甩锅美国制造病毒、传播危机、践踏人权](/content/gnews/44/README.md)
+### [中共党媒CCTV甩锅美国制造病毒、传播危机、践踏人权](/content/gnews/45/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [12/20每日播报|社媒消息：布莱恩泰森医生 Newsmax](/content/gnews/45/README.md)
+### [12/20每日播报|社媒消息：布莱恩泰森医生 Newsmax](/content/gnews/46/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [小罗伯特肯尼迪：美国情报部门和军方参与了武汉实验室的研究](/content/gnews/46/README.md)
+### [小罗伯特肯尼迪：美国情报部门和军方参与了武汉实验室的研究](/content/gnews/47/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [日本外交部长表示加强美日联盟打击中共霸权主义](/content/gnews/47/README.md)
+### [日本外交部长表示加强美日联盟打击中共霸权主义](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [王毅对放发狠话：不惧中美对抗将奉陪到底](/content/gnews/48/README.md)
+### [王毅对放发狠话：不惧中美对抗将奉陪到底](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共证监会明确严管“假外资”](/content/gnews/49/README.md)
+### [中共证监会明确严管“假外资”](/content/gnews/50/README.md)
  ` 纽约香草山MOS01`
 
-### [世界将进入数字货币的混战时代](/content/gnews/50/README.md)
+### [世界将进入数字货币的混战时代](/content/gnews/51/README.md)
  ` GTV新闻访谈`
 
-### [解直锟之猝死是充当中共白手套的必然结局](/content/gnews/51/README.md)
+### [解直锟之猝死是充当中共白手套的必然结局](/content/gnews/52/README.md)
  ` GTV新闻访谈`
 
-### [港闻前线｜“完善”选制完败不合作运动 立法会选举投票率创历届新低](/content/gnews/52/README.md)
+### [港闻前线｜“完善”选制完败不合作运动 立法会选举投票率创历届新低](/content/gnews/53/README.md)
  ` 關注組`
 
-### [中共病毒感染者需长期服药清理病毒 避免癌症](/content/gnews/53/README.md)
+### [中共病毒感染者需长期服药清理病毒 避免癌症](/content/gnews/54/README.md)
  ` GTV新闻访谈`
 
-### [美学者警告比特币或不久将消失](/content/gnews/54/README.md)
+### [美学者警告比特币或不久将消失](/content/gnews/55/README.md)
  ` GTV新闻访谈`
-
-### [秘翻在线：川普：拜登因对习的畏惧而政策走偏](/content/gnews/55/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [娜塔莉·温特斯多角度揭示美国被中共贿赂买通得有多深](/content/gnews/56/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
