@@ -2,10 +2,10 @@
 ---
 
 
-## 俄勒冈州参议员将中共奥运会比作纳粹1936年奥运会
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1772727/)
+## 杰森·米勒谈盖特GVision等新功能以及对捍卫西方文明的意义
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1772729/)
 
-12/13/2021 俄勒冈州参议员杰夫·默克利谴责中共国侵犯人权的行为，并抨击国际奥委会在对抗中共国方面做得不够。他呼吁世界因中共的种族灭绝行为站出来反对邪恶的中共，抵制北京奥运会。
+12/14/2021 杰森·米勒谈盖特的GVision等新功能以及其对捍卫西方文明的意义。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

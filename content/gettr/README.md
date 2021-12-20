@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/20/2021 7:14 AM (UTC)`
+
+12/19/2021 Miles Guo: The CCP’s police forces controlled by the Central Political and Legal Affairs Commission and Meng Jianzhu is one of the greatest factors of Xi Jinping’s insecurity; there is over 70% of chance that Xi may catch the virus and have health problems; the Winter Olympics is Xi’s nightmare and also a great gift from heaven to the Whistleblowers’ Movement!<br/><br/>12/19/2021 文贵直播：政法委、孟建柱控制的警察是习最大的不安全因素之一；习会染上病毒、身体会出问题的可能性超过七成；冬奥会是习的噩梦，也是上天送给爆料革命的大礼！<br/>
+![img](https://media.gettr.com/group10/getter/2021/12/20/07/df201243-a549-43da-27f9-0bf654be27f0/out.jpg)
+
+---
+
+`@miles 12/20/2021 7:10 AM (UTC)`
+
+12/19/2021 Miles Guo: Fearing possible assassinations and attacks, Xi Jinping has ordered the evacuation of Beijing and its surrounding cities including Beijing Daxing International Airport before the Winter Olympic Games starts; troops and anti-missile systems are being deployed in and around Beijing; the chance of army coup after the Winter Olympic Games is higher than 50%; it might start with making explosions of public facilities<br/><br/>12/19/2021 文贵直播：因为惧怕刺杀和袭击，在冬奥会开幕前，习近平已在北京及周边包括大兴机场开始清城行动，并部署了重兵和反导系统；冬奥会后出现反习兵变的几率超过50%，可能会从公共设施爆炸先着手<br/>
+![img](https://media.gettr.com/group37/getter/2021/12/20/07/30f2be06-c7fe-8380-d02c-e5f9d0bad4fd/out.jpg)
+
+---
+
 `@miles 12/20/2021 7:05 AM (UTC)`
 
 12/19/2021 Miles Guo: Peng Liyuan (Xi Jinping’s wife) will surely make an appearance at the Winter Olympics, announcing that she is the second top figure of Communist China! The Great Hall of the People will be the first choice for Xi to meet with the leaders from 20 or so countries attending the Winter Olympics. The Pangu 7 Star Hotel will be the most important venue for the Winter Olympics as the national security control center!<br/><br/>12/19/2021 文贵直播: 彭丽媛一定会在冬奥会上亮相，以此向世人宣告她是中国第二号人物！习近平也一定会首选人民大会堂接见来自20多个国家的领导人。作为国家安全控制中心的盘古七星酒店将成为冬奥会最重要的场所！
@@ -139,20 +153,6 @@ CCTV, the crazy CCP’s mouthpiece, shirking responsibility for creating the vir
 
 12月18号：谢谢战友做得精美的视频！【我的肌肉哥靓照合集视频🥰🥰🥰   晚安亲爱的，周末愉快， 想想想想想想想想想想想想想想想想想想想想想想想你 ❤️❤️🌽🌽💋💋】
 ![img](https://media.gettr.com/group24/getter/2021/12/18/12/a471b124-61df-5556-ba75-1b3812932bc9/out.jpg)
-
----
-
-`@miles 12/18/2021 7:49 AM (UTC)`
-
-12/17/2021 Miles Guo: The operations of the mock funerals dedicated to the CCP will only target the following four CCP kleptocrat families: Xi Jinping’s family, Wang Qishan’s family, Meng Jianzhu’s family, and Jiang Zemin’s family. Since they are obsessed with using magic powers and sorcery to go against us, we are going to deal with them in the same way; what does it mean for Xi to let his wife Peng Liyuan make a formal appearance in the recent All-China Congress of Literary and Arts Workers this year?<br/><br/>12/17/2021 文贵直播：给共产党的送棺材活动只针对习、王、孟、江四大家族，他们沉迷于施法术、巫术，我们将以其人之道还治其人之身；习这次文代会让彭丽媛正式出场，意味着什么？<br/>
-![img](https://media.gettr.com/group49/getter/2021/12/18/07/d739e0e2-aad5-9c4f-ac6e-33412449fe93/out.jpg)
-
----
-
-`@miles 12/18/2021 7:43 AM (UTC)`
-
-12/17/2021 Miles Guo: The CCP’s taking over Pangu (the dragon head-shaped building) and Yuda (“the Buddha's Hands in Zhongyuan”) indicates that Xi Jinping believes in the existence of God and Buddha and that the Whistleblowers’ Movement and the New Federal State of China are bound to take down the CCP. The year of Ren Yin, the year of the water tiger, is the year for the “match of magic powers” of Xi and Peng Liyuan vs. New Federal State of China <br/><br/>12/17/2021 文贵直播：中共现在搞盘古(龙)、搞裕达(中原佛手)，说明习彭相信神佛、相信爆料革命、新中国联邦必灭中共，农历壬水寅虎年是习彭和新中国联邦的“斗法”之年<br/><br/>
-![img](https://media.gettr.com/group38/getter/2021/12/18/07/3dcc718a-7fec-95f3-2419-dfed740c3931/out.jpg)
 
 ---
 

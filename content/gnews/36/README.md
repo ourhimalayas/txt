@@ -2,27 +2,12 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月19日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1772703/)
+## 俄勒冈州参议员将中共奥运会比作纳粹1936年奥运会
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1772727/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV-Gnews-1.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/1219text-SC.png)
-校对：Stay文苑
+12/13/2021 俄勒冈州参议员杰夫·默克利谴责中共国侵犯人权的行为，并抨击国际奥委会在对抗中共国方面做得不够。他呼吁世界因中共的种族灭绝行为站出来反对邪恶的中共，抵制北京奥运会。
 
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-视频参看：[12.19  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61bfdc15bcb7f101bb7160dc)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-1.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
