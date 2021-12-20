@@ -2,24 +2,46 @@
 ---
 
 
-## 美国一些大型医院放弃了疫苗强制接种
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1775224/)
+## 灭共漫画系列——家天下
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1775423/)
 
-采编撰稿：Spirit
-![](https://assets.gnews.org/wp-content/uploads/2021/12/03-image02.jpg)
-[图片来源](https://www.wsj.com/articles/some-hospitals-drop-covid-19-vaccine-mandates-to-ease-labor-shortages-11639396806)
+**出品：纽约香草山设计部**
 
-据美国医疗媒体《WebMD》12月15 日报道，在联邦法官暂停拜登政府对医护人员的“新冠病毒”疫苗强制接种授权后，美国一些大型医院集团也已放弃了该政策。
 
-据悉，包括[Healthcare]在内的数家医院均表示，已暂时取消对其员工的强制接种规定来解决劳动力短缺问题。并试图通过此举留住足够的医护人员和其他雇员，以应对疫情期间不断激增的住院病患人数。
 
-报道称，由于劳动力成本飙升，疫苗强制接种及职业倦怠等原因，大量医疗工作者被迫离开了卫生保健行业或失去了原有工作。目前，这些医院集团共有300多家医院和50多万名员工，但暂时还不清楚具体有多少家医院已停止了疫苗接种授权。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-校对编辑：硫酸羟氯喹64
 
-发稿：苦尽甜来 (文來）
 
-[原文链接](https://www.webmd.com/vaccines/covid-19-vaccine/news/20211215/some-hospitals-drop-worker-vaccine-mandates)
+
+
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-IMG_3510.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/2-IMG_3460.jpg)
+
+
+**编辑/发稿：小鹿**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-2.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
 
  
 

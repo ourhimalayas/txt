@@ -2,28 +2,22 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月20日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1774926/)
+## 仅少数疫苗受害者能通过“伤害赔偿计划”
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1775204/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-4.jpg)
+采编：文莱     翻译编辑：文明(添草灭共)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/02-image.jpeg)
+据加拿大【CTV新闻】12月16日报道，自该国“‘新冠病毒’疫苗伤害赔偿计划”启动以来至11月底，共收到相关索赔申报400件，但仅5件通过了初步审查。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-1-7.png)
-文章仅代表作者本人观点，与Gnews无关
+据悉，这项计划已于今年6月正式启动。尽管[加拿大公共卫生局]称该疫苗所导致的严重或永久性伤害极为罕见，但其公布的数据则显示，目前共受理了323件索赔申报，其中196件已完成了初步医学审查。
 
-视频参看：[2021.12.20早GTV新闻访谈](https://gtv.org/video/id=61c084d9bcb7f101bb71c9aa)
+报道称，[加拿大公共卫生局]对相关索赔的标准非常严格，规定只有那些“因接种疫苗而需要住院治疗并危及生命健康的疾病，及其所导致持续或严重的残疾、丧失工作能力，乃至先天畸形或死亡等”才能构成严重或永久性伤害。因此，在这些索赔中，目前只有五件通过了初步审查，最终能否获赔还须等待[医学审查委员会]的审查结果。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+校对编辑：硫酸羟氯喹64
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/calendar-1.jpeg)
+发稿：苦尽甜来 (文來）
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[原文链接](https://www.ctvnews.ca/health/coronavirus/canada-s-vaccine-injury-support-program-400-claims-since-launch-fewer-than-five-approved-1.5709786)
 
  
 

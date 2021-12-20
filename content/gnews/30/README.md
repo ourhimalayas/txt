@@ -2,36 +2,61 @@
 ---
 
 
-## 纽约疫情失控 前线医生禁谈疫苗后遗症
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1774877/)
+## 痴呆拜登将更疯狂强推疫苗接种
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1775102/)
 
-作者：纽约香草山农场 文真
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月18日，纽约市新增中共病毒感染人数近2万2千例，继上周五后，再次创下单日感染最高记录。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-20-下午11.56.05.png)
-新增感染病例主要来自欧米康变体。过去三天内，中共病毒感染率增加了三倍，住院率也随之增加。此前，美国CDC统计数据显示，近八成欧米康变体感染病例，来自完全接种过中共病毒疫苗人群。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-一位一线临床家庭医生爆料，近日，纽约各地区医院和诊所陆续收到通知，告诫他们不许与病人谈论疫苗副作用。如被发现，则将被直接解雇。
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/12/B-10.jpg)patriotdailypress.org
+《门道专家》12月20日发表文章，题目是“老态龙钟的乔·拜登针对中共病毒，明天（12月21日）将推出更多疯狂举动”。
 
-郭文贵先生在近期的直播中透露，中共释放新的变种病毒，一方面为了掩盖疫苗后遗症；另一方面为了与黑暗组织配合，在全世界加速疫苗强制接种。
+全文如下：
 
-参考链接：
-1）[https://gettr.com/post/pk12553a0d](https://gettr.com/post/pk12553a0d)
-2）[New York state sets coronavirus record for second straight day](https://news.yahoo.com/york-state-sets-coronavirus-record-123405360.html?guce_referrer=aHR0cHM6Ly93d3cuYmluZy5jb20v&amp;guce_referrer_sig=AQAAABty7WGd-ZLq0s71mwFelRKo8N4Zy4Ghn-b_lUsp22-HTT91AVqz07WGzMqz50LxOcRUONUH_gCuzqRaLYVsGM9Jncb45rr1gMceAWDEyO5oaKNgwh6U57vapyZG3a-Nt4glkmzShVvz8qsouyy8HoGPSphBNz3htalhKrZQJoem&amp;guccounter=2)
+拜登会讲话，但不会再有人听了。
 
-![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+乔·拜登计划周二（12月21日）就中共病毒发表一次重要演讲。
 
-总编：Jack Li文阳
-编辑：Kathy文艺
-校正/发稿：呼吸的雾霾（文小呼吸）
+不要指望乔·拜登会提供任何关于中共病毒来源、福奇和美国如何帮助了中共病毒研发的准确信息，相反，拜登预计将在冬季推行更疯狂的反美国和反自由措施，将重点关注那些未接种疫苗的人群。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+白宫在周五（12月17日）举行的新闻发布会上说：
+
+*正如我们在先前的简报中所解释的那样，奥米克戎（Omicron）变体病毒更易传播，我们的医学专家预计它将导致病例增加。*
+
+*但与去年冬天不同的是，我们现在有能力保护自己。*
+
+*我们的疫苗对奥米克戎有效，特别是对符合条件的人接种加强剂，如果你接种了疫苗，你的病毒检测可能呈阳性，但如果你真地感染了中共病毒，你很可能是无症状或症状轻微的。*
+
+*我们致力于不让奥米克戎干扰接种疫苗者的工作和学校，你做得对，我们会度过难关的。*
+
+*对于未接种疫苗的人来说，你们会看到你自己、你们家庭将面临一个严重疾病和死亡的冬天，你们很快就会把医院塞满。*
+
+*因此，我们向每个美国人传达的信息是明确的：你应该采取行动保护你自己和你的家人，在室内公共场所佩戴口罩，接种疫苗，让你的孩子接种疫苗，当你符合条件时再接种一次加强剂。*
+
+*我们准备迎接这一新挑战，我们在方便的地点免费提供了大量疫苗和加强剂，有明确的口罩指导，以帮助减缓传播，我们有紧急医疗队在必要时应对激增的病例。*
+
+*所以，现在不是恐慌的时候，因为我们知道如何保护人民，我们有工具来保护人民，但我们需要美国人民尽自己的一份力量保护他们自己、他们的孩子和他们的社区。*
+
+通过声称如果你接种了疫苗，你的症状将是轻微的，却忽略了接种疫苗死亡的人数。羞辱那些没有接种疫苗的人是应该受到谴责的，再说一次，坚持口罩起作用充其量也是不准确的。总的来说，使用疫苗和口罩造成的伤害似乎比不使用疫苗和口罩造成的伤害更大。
+
+圣丹斯（Sundance）在“保守的树屋”（Conservative Treehouse）提醒：
+
+*也许会对不干净（未接种疫苗）的公民实行新的国内旅行限制，也许会有新的规定，或是对那些继续支持不洁者的雇主宣布未来的惩罚，也许白宫正准备宣布新的清洁措施，以针对不洁人群。*
+
+*不管美国政府准备出台什么样的新的规章制度，现在值得考虑的是你该怎样设置这条界线？你和你的家人到底在哪里划界？*
+
+拜登政权和他们在蓝州的伙伴们向美国人民撒了多少谎言，或实施了多少违宪令似乎无关紧要了，对他们来说不幸的是，显然他们没有被包括在美国正在增长的感染人数当中。
+
+（原文完）
+
+昏聩的拜登老儿，你这个丧门星，竟敢诅咒我们这些未接种疫苗者，“你们会看到你自己、你们家庭将面临一个严重疾病和死亡的冬天，你们很快就会把医院塞满”。我R你……
+
+拜登的疯狂，折射出阴谋集团的黔驴技穷，估计他们没有意识到，世界觉醒的程度如此之高，还需要通过再次播撒奥米克戎病毒推进疫苗的接种，这是阴谋集团不得已的下策。在新中国联邦引领下的反毒疫苗运动严重阻碍了罪恶集团的计划，罪恶正在被曝光，他们的死期正临近。
+
+原文链接：
+
+[https://www.thegatewaypundit.com/2021/12/senile-joe-biden-cant-talk-without-assistance-expected-push-covid-insanity-tuesday/](https://www.thegatewaypundit.com/2021/12/senile-joe-biden-cant-talk-without-assistance-expected-push-covid-insanity-tuesday/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
