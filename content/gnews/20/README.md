@@ -2,49 +2,55 @@
 ---
 
 
-## 自强推疫苗以来，美国试管婴儿诊所出现了严重的问题
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1772474/)
+## 前白宫经济顾问皮特·纳瓦罗：鲍威尔和习近平刚刚用通货膨胀中子弹袭击了美国
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1772525/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/5955-3.jpg)图片来源：Consumer Health News
+前白宫经济顾问皮特·纳瓦罗： 感谢乔·拜登，杰伊·鲍威尔和习近平刚刚用通货膨胀中子弹袭击了美国。如果您想了解滞胀问题的复杂性，请阅读此处。 【附福克斯新闻：拜登，民主党和中共国应为美国的滞涨混乱负责】
 
 
-####  翻译：Jenny wgmg
-编辑：文泓
 
-当地时间12月18日，斯蒂夫·基尔希时事通讯报道，基尔希先生刚刚和一位在大型试管婴儿诊所工作的女士通完电话。她必须保持匿名，以免因说出实情而被解雇。没有人知道那里正在发生的严重问题。以下是基尔希先生的事实陈述。
+> Thank Joe Biden, Jay Powell, and Xi Jinping for the inflation neutron bomb that just hit America. Good read here if you want to understand the complexities of the stagflation issue.[https://t.co/ngYhmlH7um](https://t.co/ngYhmlH7um)
+> — Peter Navarro (@RealPNavarro) [December 17, 2021](https://twitter.com/RealPNavarro/status/1471930037687496704?ref_src=twsrc%5Etfw)
 
-让我告诉你那里到底在发生着什么，科学研究报告给了解答。你需要自己独立作出判断。
-请放心，所谓的“事实核查者们”会联系试管婴儿诊所，诊所会否认有任何问题。“这儿没什么可值得关注的，伙计们，到别的地方去吧”。
-从2021年3月开始一系列的问题就出现了，以前从未发生过类似事件。尽管我得到的信息让我相信这和疫苗有关（当然，这也是我接到这个电话的原因）。她说到，试管婴儿诊所雇用调查团队正在研究“每一个可能的变量”，以弄清楚为什么流产率突然翻了一倍（从3月到5月期间），所有做试管婴儿的女士都没有什么共同的问题，完全没有，她无法弄清原因。
 
-**调查团队的博士从未把患者们都注射过疫苗作为一个可能的变量——当有人提到这确实是他们所有流产孕妇唯一的共同性，但博士拒绝考虑和查看**。由于其它那些“变量”并不能找出流产率翻倍的原因，博士把流产的增加称为**“意外和偶然”**。
 
-**试管婴儿诊所从今年****3月开始出现问题，他们发现其他的试管婴儿诊所也出现了类似情况**。
+比尔·戈茨： 未提及的：[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 可能会故意制造假阳性新冠Covid 测试结果，以将特定的来访运动员排除在外，并使比赛对其自身有利。 【转华尔街日报：受疫情影响，北京冬奥会已经面临挑战。 Omicron可能会让情况变得更糟。】
 
-**健康独立联盟（****HEALTH INDEPENDENCE ALLIANCE）制作的这份42页的报告中记录了在犹他州发生的问题。**以下是报告中要点内容：
 
-**1.由于接种疫苗，孕妇流产率从28%跃升至40%（即增加了43%）；**
-**2.该报告详细介绍了流产、死亡、残疾和各种其他疫苗副作用的具体情况；**
-**3．结论：应该立即停止疫苗接种。**
 
-**以下是他们所遇到的问题中的一些例子。**随着时间的推移，我将得到更多的数据，但我现在就想分享给你们。
-【注意：**他们不跟踪参与试管婴儿过程的任何女士或男士的疫苗接种情况，因为他们相信疫苗是安全和有效的**。】
+> Not mentioned: China could deliberately create false-positive Covid test results to sideline specific visiting athletes and skew the games in its favor [https://t.co/UDZvR7vW83](https://t.co/UDZvR7vW83)
+> — Bill Gertz (@BillGertz) [December 18, 2021](https://twitter.com/BillGertz/status/1472245094761652228?ref_src=twsrc%5Etfw)
 
-1、在3月至5月，流产率出现了一个巨大的高峰。通常是25%到30%。在这几个月里，**它飙升了50%以上**。他们以前从未见过这样的情况。
-2、一位女士每次来捐献时都能保证捐献30个或更多的卵子，产生了5到8个胚胎。5月份，**她注射了第二针疫苗**，几周后又来捐献。诊所很震惊：当他们**在第5天检查胚胎时，所有的胚胎都已经停止发育，没有一个达到滋养胚胎层形成的阶段**。我被告知，这种事情正是疫苗接种后你可以预见的。
-3、他们在有胚胎的孔中看到一种未知的污染物。他们从8月开始注意到这一点，但可能比这更早开始。他们只在高倍放大镜下注意到它，而且只在有胚胎的孔里。他们仍然不知道它是什么，也不知道它是怎么来的。多个诊所都报告了完全相同的情况。这意味着它要么来自精子，要么来自卵子。
-4、这个月，他们诊所的10名女士中有2名出现了非常严重的问题。她们都取出了38个卵子，但只产生了1或2个胚胎，远远低于正常水平。
 
-试管婴儿诊所并未让公众关注到这些问题，他们不想惊动任何人，也不想阻止任何人接种这些“安全而有效”的疫苗。这一切都在试管婴儿诊所之间的私人聊天室里讨论。如果他们发现我的线人是谁，她就会被解雇。
-新闻链接：[IVF clinics started having serious problems right after the vaccines started rolling out (substack.com)](https://stevekirsch.substack.com/p/ivf-clinics-started-having-serious)
 
-**发布：文泓**
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+参议员迈克·布莱恩： 我与参议员汤姆·科顿的提案将遏制美国对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 药品的依赖。 我们不能任由我们最大的政治对手摆布。 【附布莱恩参议员在福克斯的视频】
+
+
+
+> My bill with [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw) will curb U.S. reliance on Chinese pharmaceuticals.
+> 
+> We cannot be at the mercy of our greatest political adversary. [@FoxBusiness](https://twitter.com/FoxBusiness?ref_src=twsrc%5Etfw) [@cvpayne](https://twitter.com/cvpayne?ref_src=twsrc%5Etfw) [pic.twitter.com/lEfu6tHTWQ](https://t.co/lEfu6tHTWQ)
+> — Senator Mike Braun (@SenatorBraun) [December 17, 2021](https://twitter.com/SenatorBraun/status/1471947371089125382?ref_src=twsrc%5Etfw)
+
+
+
+众议员拉惹·克里西那摩提： 我很自豪与众议员克里斯·斯图尔特 [@RepChrisStewart](https://twitter.com/RepChrisStewart) 共同撰写了两党的监督中共国-阿联酋合作法案，以保护我们的国家安全和美国技术免受 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 的侵害。
+
+
+
+> I am proud to have authored the bipartisan Monitoring China-UAE Cooperation Act with [@RepChrisStewart](https://twitter.com/RepChrisStewart?ref_src=twsrc%5Etfw) in order to protect our national security and American technology from the Chinese Communist Party.[https://t.co/shWc5DURXY](https://t.co/shWc5DURXY)
+> — Congressman Raja Krishnamoorthi (@CongressmanRaja) [December 17, 2021](https://twitter.com/CongressmanRaja/status/1471911830306103298?ref_src=twsrc%5Etfw)
+
+
+
+美国国会及行政当局中国委员会： 戴耀廷 [#BennyTai](https://twitter.com/hashtag/BennyTai?src=hashtag_click) 因在 [#香港](https://twitter.com/hashtag/%E9%A6%99%E6%B8%AF?src=hashtag_click) [#HongKong](https://twitter.com/hashtag/HongKong?src=hashtag_click) 推动普选而被香港大学解雇。 他现在因颠覆香港立法会民主候选人组织初选的指控而被拘留，这显示出香港政府将在多大程度上扼杀民主。 [#奥运囚徒](https://twitter.com/hashtag/%E5%A5%A5%E8%BF%90%E5%9B%9A%E5%BE%92?src=hashtag_click) [#OlympicPrisoner](https://twitter.com/hashtag/OlympicPrisoner?src=hashtag_click)
+
+
+
+> [#BennyTai](https://twitter.com/hashtag/BennyTai?src=hash&amp;ref_src=twsrc%5Etfw) was fired by [#HKUniversity](https://twitter.com/hashtag/HKUniversity?src=hash&amp;ref_src=twsrc%5Etfw) for his work promoting universal suffrage in [#HongKong](https://twitter.com/hashtag/HongKong?src=hash&amp;ref_src=twsrc%5Etfw). He is detained now on a subversion charge for organizing a primary for democratic [#LegCo](https://twitter.com/hashtag/LegCo?src=hash&amp;ref_src=twsrc%5Etfw) candidates, showing how far the [#HKGov](https://twitter.com/hashtag/HKGov?src=hash&amp;ref_src=twsrc%5Etfw) will go to stifle democracy. [#OlympicPrisoner](https://twitter.com/hashtag/OlympicPrisoner?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/1Nlaq8o4tU](https://t.co/1Nlaq8o4tU)
+> — China Commission (@CECCgov) [December 18, 2021](https://twitter.com/CECCgov/status/1472295782023933963?ref_src=twsrc%5Etfw)
+
+
 
  
 
