@@ -2,55 +2,42 @@
 ---
 
 
-## 前白宫经济顾问皮特·纳瓦罗：鲍威尔和习近平刚刚用通货膨胀中子弹袭击了美国
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1772525/)
+## 又有八家中共国公司列入美国投资黑名单
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1772562/)
 
-前白宫经济顾问皮特·纳瓦罗： 感谢乔·拜登，杰伊·鲍威尔和习近平刚刚用通货膨胀中子弹袭击了美国。如果您想了解滞胀问题的复杂性，请阅读此处。 【附福克斯新闻：拜登，民主党和中共国应为美国的滞涨混乱负责】
+#### **【雅典娜快讯】，紧贴时代脉搏**
 
-
-
-> Thank Joe Biden, Jay Powell, and Xi Jinping for the inflation neutron bomb that just hit America. Good read here if you want to understand the complexities of the stagflation issue.[https://t.co/ngYhmlH7um](https://t.co/ngYhmlH7um)
-> — Peter Navarro (@RealPNavarro) [December 17, 2021](https://twitter.com/RealPNavarro/status/1471930037687496704?ref_src=twsrc%5Etfw)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/54721-1.jpg)图片来源：墨尔本雅典娜农场设计组
 
 
+#### 整理报道：文扬
+编辑：文泓
 
-比尔·戈茨： 未提及的：[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 可能会故意制造假阳性新冠Covid 测试结果，以将特定的来访运动员排除在外，并使比赛对其自身有利。 【转华尔街日报：受疫情影响，北京冬奥会已经面临挑战。 Omicron可能会让情况变得更糟。】
+上周，拜登政府将包括全球最大的商用无人机制造商大疆在内的八家中共国公司列入投资黑名单，因为它们均涉嫌参与监视维吾尔穆斯林少数民族。
+据两位知情人士透露，美国财政部于周四（澳大利亚东部时间周五）将大疆和其他公司列入其“中国军工企业”黑名单。美国投资者被禁止持有已经列入黑名单的60家中国公司的股份。
 
+该措施标志着美国总统乔·拜登为惩罚中共镇压西北部新疆地区的维吾尔族和其他穆斯林少数民族所做的最新努力。
 
+上周，在英国《金融时报》报道称，美国准备将该公司列入黑名单后，面部识别软件公司**商汤科技（****SenseTime）**推迟了其在香港的首次公开募股计划。
 
-> Not mentioned: China could deliberately create false-positive Covid test results to sideline specific visiting athletes and skew the games in its favor [https://t.co/UDZvR7vW83](https://t.co/UDZvR7vW83)
-> — Bill Gertz (@BillGertz) [December 18, 2021](https://twitter.com/BillGertz/status/1472245094761652228?ref_src=twsrc%5Etfw)
+周四将受到制裁的其他中国公司，包括商汤科技的主要竞争对手**旷视科技**，去年因被列入单独的美国黑名单而暂停了在香港上市的计划，以及经营云计算服务的超级计算机制造商**曙光信息产业**（一家在新疆运营云计算服务的超级计算机制造商）。
+其他被列入投资黑名单的公司有：面部识别软件公司**云从科技（CloudWalk Technology）**；与执法部门合作的网络安全集团厦门**美亚皮科**；人工智能公司**亿图科技**；云计算公司**（莱昂科技）Leon Technology**；以及基于云的监控系统生产商**东方网力（NetPosa Technologies）**。
+大疆和旷视没有公开交易，但曙光信息在上海上市，莱昂、网力和美亚皮科在深圳上市。
 
+所有这八家公司都已在商务部的“实体清单”上，该清单限制美国公司在未获得政府许可的情况下向中国公司出口美国的技术或产品。白宫没有发表评论，财政部没有回应评论请求。
 
+大疆拒绝发表评论。但去年它表示，在川普总统任期结束时被添加到商务部的出口黑名单后，它“没有做任何事情来为自身辩白”。
 
-参议员迈克·布莱恩： 我与参议员汤姆·科顿的提案将遏制美国对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 药品的依赖。 我们不能任由我们最大的政治对手摆布。 【附布莱恩参议员在福克斯的视频】
+据知情人士透露，美国商务部周四还将把二十多家中国公司列入实体清单，其中包括一些涉及生物技术的公司。美国商务部没有对评论请求作出回应。
+新闻链接：[Dronemaker DJI among 8 Chinese companies being added to US blacklist (afr.com)](https://www.afr.com/world/north-america/us-to-blacklist-eight-more-chinese-companies-including-dronemaker-dji-20211215-p59hw6)
 
-
-
-> My bill with [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw) will curb U.S. reliance on Chinese pharmaceuticals.
-> 
-> We cannot be at the mercy of our greatest political adversary. [@FoxBusiness](https://twitter.com/FoxBusiness?ref_src=twsrc%5Etfw) [@cvpayne](https://twitter.com/cvpayne?ref_src=twsrc%5Etfw) [pic.twitter.com/lEfu6tHTWQ](https://t.co/lEfu6tHTWQ)
-> — Senator Mike Braun (@SenatorBraun) [December 17, 2021](https://twitter.com/SenatorBraun/status/1471947371089125382?ref_src=twsrc%5Etfw)
-
-
-
-众议员拉惹·克里西那摩提： 我很自豪与众议员克里斯·斯图尔特 [@RepChrisStewart](https://twitter.com/RepChrisStewart) 共同撰写了两党的监督中共国-阿联酋合作法案，以保护我们的国家安全和美国技术免受 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 的侵害。
-
-
-
-> I am proud to have authored the bipartisan Monitoring China-UAE Cooperation Act with [@RepChrisStewart](https://twitter.com/RepChrisStewart?ref_src=twsrc%5Etfw) in order to protect our national security and American technology from the Chinese Communist Party.[https://t.co/shWc5DURXY](https://t.co/shWc5DURXY)
-> — Congressman Raja Krishnamoorthi (@CongressmanRaja) [December 17, 2021](https://twitter.com/CongressmanRaja/status/1471911830306103298?ref_src=twsrc%5Etfw)
-
-
-
-美国国会及行政当局中国委员会： 戴耀廷 [#BennyTai](https://twitter.com/hashtag/BennyTai?src=hashtag_click) 因在 [#香港](https://twitter.com/hashtag/%E9%A6%99%E6%B8%AF?src=hashtag_click) [#HongKong](https://twitter.com/hashtag/HongKong?src=hashtag_click) 推动普选而被香港大学解雇。 他现在因颠覆香港立法会民主候选人组织初选的指控而被拘留，这显示出香港政府将在多大程度上扼杀民主。 [#奥运囚徒](https://twitter.com/hashtag/%E5%A5%A5%E8%BF%90%E5%9B%9A%E5%BE%92?src=hashtag_click) [#OlympicPrisoner](https://twitter.com/hashtag/OlympicPrisoner?src=hashtag_click)
-
-
-
-> [#BennyTai](https://twitter.com/hashtag/BennyTai?src=hash&amp;ref_src=twsrc%5Etfw) was fired by [#HKUniversity](https://twitter.com/hashtag/HKUniversity?src=hash&amp;ref_src=twsrc%5Etfw) for his work promoting universal suffrage in [#HongKong](https://twitter.com/hashtag/HongKong?src=hash&amp;ref_src=twsrc%5Etfw). He is detained now on a subversion charge for organizing a primary for democratic [#LegCo](https://twitter.com/hashtag/LegCo?src=hash&amp;ref_src=twsrc%5Etfw) candidates, showing how far the [#HKGov](https://twitter.com/hashtag/HKGov?src=hash&amp;ref_src=twsrc%5Etfw) will go to stifle democracy. [#OlympicPrisoner](https://twitter.com/hashtag/OlympicPrisoner?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/1Nlaq8o4tU](https://t.co/1Nlaq8o4tU)
-> — China Commission (@CECCgov) [December 18, 2021](https://twitter.com/CECCgov/status/1472295782023933963?ref_src=twsrc%5Etfw)
-
-
+**发布：文泓**
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

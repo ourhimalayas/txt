@@ -2,14 +2,14 @@
 ---
 
 
-## 【文贵先生大直播PPT】全球抵制北京冬奥会 人权加经济制裁中共
-` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1771971/)
+## 【文贵先生大直播PPT】疫苗大灾难
+` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1772003/)
 
-撰稿：顽童（香草山）
-美工：sotres (香草山）
+撰稿：火来（香草山）MyWay （扬帆）莲心不染（扬帆）文恩（香草山）
+美工：青山
 
-【2021年12月19日文贵先生大直播PPT：全球抵制北京冬奥会 人权加经济制裁中共】
-![](https://assets.gnews.org/wp-content/uploads/2021/12/7-31.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/2-74.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/3-46.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/4-31.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/5-27.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/30-2.jpg)
+【2021年12月19日文贵先生大直播PPT：疫苗大灾难】
+![](https://assets.gnews.org/wp-content/uploads/2021/12/31-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/32-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/33-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/34-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/35-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/36-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/37-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/37-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/38-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/39-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/40.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/41-8.jpg)
 * * *
 
 发稿：云起时
