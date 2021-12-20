@@ -2,29 +2,41 @@
 ---
 
 
-## 【中日财经爆】日本参议院一致通过国内半导体生产补贴修正案
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1774367/)
+## 有声|意大利为应对OMICRON考虑采取新的COVID-19措施
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1774470/)
 
-撰稿:东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-247.jpg)
-[图片源](https://parstoday.com/ja/news/japan-i90144)
+配音：香草山美食部 – 玫瑰园
 
-日本政府支持半导体国内生产的修订法于20日在参议院全体会议上获得通过。
 
-其目的是确保高性能半导体的国内生产，这与经济安全直接相关。经济产业省将建立一个系统制度，对申请企业的国内生产设施的发展计划给予认证，并对获批的企业按年分批发放补贴。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+据[OAN网站](https://www.oann.com/italy-eyes-new-covid-19-measures-amid-omicron-worries-newspapers/)12月19日援引路透社报道，出于对高传染性Omicron中共病毒变体传播的担忧，意大利政府正在考虑采取新的措施，以避免假日期间中共病毒感染率的激增。
 
-全球最大的半导体代工制造商台积电在熊本县规划的新工厂有望率先获得认证，给予补助。
+据悉，总理马里奥·德拉吉可能会要求已接种疫苗者在进入包括迪斯科舞厅、电影院、剧院和体育场在内的拥挤场所时出示COVID-19阴性测试报告，并在户外也须佩戴口罩。
 
-新法案修订了《促进特定先进信息和通信技术的开发、供应和引进法》（5G促进法）和《新能源和产业技术综合开发机构法（NEDO）》，将在2021财年生效。最高补助金额为所需资金的一半，这些资金将从NEDO设立的基金中提供。政府在20日批准的2021财政年度补充预算中为该基金争取到6170亿日元的资金费用。
+而根据目前的规定，已经接种疫苗或最近从该疾病中康复的人可以自由进入酒吧、餐馆、博物馆、电影院、俱乐部和参加体育赛事。
 
-信息源:
+意大利早前已经强制要求医疗工作者、学校工作人员、警察和军人进行疫苗接种，这一接种义务范围可能从1月起将扩大至涵盖所有工人。
 
-[半導体国内生産に助成金　複数年にわたり支援　改正法成立](https://news.yahoo.co.jp/articles/71b53f7d27bda02071a43123c7932305f0c8fb06)
+本周早些时候，罗马已经将COVID-19的紧急状态延长至3月31日，并规定所有来自欧盟国家的游客必须在出发前接受测试。
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWSLOGO20211207.jpg)
+文字版原文：[意大利为应对OMICRON考虑采取新的COVID-19措施](https://gnews.org/zh-hans/1772113/)
 
+音频处理：喜山必胜Maverick
+发稿：Tom Li
+[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

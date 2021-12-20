@@ -2,138 +2,66 @@
 ---
 
 
-## 12/20每日播报|社媒消息：布莱恩泰森医生 Newsmax
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1773883/)
+## 12/20每日播报｜新闻简讯：多个美国商业机构就疫苗强制令提出上诉
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1774008/)
 
-By:[秘翻新聞](https://gtv.org/broadcast/watch/61c04558bcb7f101bb71a1d4)
+BY:[秘翻新闻](https://gtv.org/broadcast/watch/61c06259bcb7f101bb71b0dc)
 
-**2021-12-20**
+**2021-12-**20
 
-**1. 国家脉动12月19日在盖特发文：** 美国电视广播公司福克斯将执行疫苗强制令，核酸测试不再是替代方案。 【盖文转报道，福克斯给在纽约市工作的员工发送电子邮件说：“根据纽约市市长白思豪公布的针对私营行业所有公司员工的疫苗强制令，从12月27日起，纽约市所有员工，包括雇员，必须出示至少接种了一剂新冠疫苗的证明。然后，员工将有45天的时间来证明他们接种了第二剂疫苗。被认可的疫苗包括辉瑞和莫德纳。新冠核酸检测不再是疫苗接种的替代方案，未接种疫苗的员工被禁止在福克斯的纽约办公室工作。”】
+**1、美医疗人员爆料：医院挤满中共病毒疫苗接种者**
 
-[https://gettr.com/post/pjzo00ee89](https://gettr.com/post/pjzo00ee89)
+[据《真理卫士》12月20日视频消息称，一位美国医疗人员在一段影片中表示，医院里挤满了中共病毒疫苗接种者，并在视频中表示，因疫情的爆发，去年成为医疗人员最辛苦的一年，但今年情况也并没有好转。因为中共病毒疫苗毫无作用，反而在削弱人们的免疫系统，让人们住进医院。 报道更指出，中共病毒疫苗是全球主义者为杀死人口而制造的生物武器！在宣传中共病毒疫苗时，官员们表示疫苗能预防中共病毒的传播，但到目前为止，疫情不断扩大证明疫苗并不能阻止病毒传播，因此官员们又更改了声明，声称中共病毒疫苗可以使人们免于住院和死亡。 在医疗工作者的爆料影片中显示，中共疫苗不但不能保护人们免受感染，还不能防止患者住院，更不能挽救接种者的生命。由此我们可以合理怀疑，中共病毒疫苗本是生物武器这一理论是正确的，而推广疫苗就是为杀人服务。](https://thetruedefender.com/hospital-full-with-vaccinated-patients/)
 
-**2. Breaking911 12月19日发推说：** 美国总统拜登将宣布新措施以对抗“大流行病的新阶段”，并将对未接种新冠疫苗的美国人发出“严厉警告”。
+秘翻新闻文雀编辑报道
 
+**2、两位接种疫苗的参议员感染中共病毒**
 
+[据《路透社》12月19日报道，周日，美国参议员伊丽莎白·沃伦和科里·布克被证实，他们的中共病毒检测结果均呈阳性。 现年72岁的马萨诸塞州民主党人沃伦在推特上表示，自己接种了中共病毒疫苗，并且还接种了加强针。在本周早些时候的检测结果为阴性，但周日的检测结果转为阳性。 另一位现年52岁的布克是新泽西州的民主党人，他在推特上表示，在周六感觉到感染症状后，于周日得知自己的检测呈阳性。此外，他还补充道，自己也是在最近接种了加强针。](https://www.reuters.com/world/us/us-senator-elizabeth-warren-tests-positive-covid-19-2021-12-19/)
 
-> BREAKING: President Biden to announce fresh measures to combat ‘new phase of the pandemic,’ will issue “stark warning” to unvaccinated Americans [pic.twitter.com/AusZOr04sY](https://t.co/AusZOr04sY)
-> — Breaking911 (@Breaking911) [December 18, 2021](https://twitter.com/Breaking911/status/1472286398321467393?ref_src=twsrc%5Etfw)
+秘翻冰糖葫芦喵编译报道
 
+**3.受一带一路影响，巴基斯坦海港抗议不断**
 
+[据《今日新闻》12月20日消息，处于中共一带一路计划中的巴基斯坦港口民众，由于不满中共建造的港口和没能实现中共承诺的繁荣，近来抗议不断。报道指出，港口城市瓜达尔是一带一路中巴经济走廊的关键节点。此外，中巴经济走廊投资45至600亿美元，涉及基础设施、能源和电信项目，也是一带一路沿线最大的单一投资国家。 虽然瓜达尔过去也有抗议等集体活动，但是这次抗议的活动规模、持续时间与多元性都前所未见，本次抗议中还出现了大批妇女、孩童的参与者。当地人担心会在中共控制下遭到边缘化，并且文化上的差异也让他们感到不被重视，甚至被受干扰。 由此看来，中共的一带一路为瓜达尔带来的不是经济繁荣，而是满满的不安以及火药味。](https://tw.news.yahoo.com/帶-路苦主-巴基斯坦海港爆抗議-025236836.html)
 
-**3. 莲心不染12月19日发推说：** 佛罗里达州最终接受了建议，将Zelenko疗法用于新冠病毒的预防和早期治疗。 佛州州长罗恩·德桑蒂斯 (Ron DeSantis)和外科医生约瑟夫·拉达波 (Joseph Ladapo)做了出色的工作！ 【推文中，Zelenko疗法是指使用羥氯奎寧，阿奇霉素，硫酸鋅】
+秘翻新闻明澈编辑报道
 
+**4、多个美国商业机构就疫苗强制令提出上诉**
 
+[综合外媒12月19日消息，11月法庭裁定恢复美国职业安全与健康管理局对私营企业的要求后，拜登将疫苗强制令实施时间推迟到1月10日，此前的裁决已暂停。 上周五，位于辛辛那提的美国第六上诉法院支持拜登的强制令，随即，27家企业向最高法院提出上诉，要求阻止疫苗强制令，并表示该规定将 “伤害 “成千上万的企业。 疫苗强制令近日被多方抵制，加上以自由委员会为首的各个兵种、前线医护等群体控告拜登及国防部外，还有联合航空的数千人对此限制令开展集体诉讼。](https://www.dailymail.co.uk/news/article-10326171/Biden-pushes-vaccine-test-implementation-Jan-10-court-rules-reinstate-rule.html)
 
-> State of Florida finally adopts the
-> Zelenko Protocol recommendations of prophylaxis and early treatment. 
-> 
-> Nice job Governer Desantis and Surgeon General Joseph Ladapo[https://t.co/smK9KKpDa3](https://t.co/smK9KKpDa3)[https://t.co/xnqyifQXuM](https://t.co/xnqyifQXuM)[https://t.co/QnG4IzVLc7](https://t.co/QnG4IzVLc7)
-> — PureLotusHeart莲心不染 (@PureLotusHeart1) [December 19, 2021](https://twitter.com/PureLotusHeart1/status/1472454245840564225?ref_src=twsrc%5Etfw)
+秘翻新闻明澈编辑报道
 
+**5.韩国奥米炕肆虐，接种3针仍感染**
 
+[据《韩联社》12月19日消息，南韩政府在19日宣布，奥米炕感染病例新增12例。其中有4人曾接种过第3剂疫苗，这也让南韩当地感染奥米炕的病例人数达到178人。由于当地确诊人数持续增加，不少医院都挤满了病患，甚至传出有待产孕妇遭到16家医院拒收，因为医院内没有任何的病床可以提供，最后这名孕妇只能在救护车上生产。 报导中指出，英国在此之前曾报导，接种第3剂疫苗的民众在面对Delta时，仍然有93至94%的保护力，但是在面对奥米炕时，保护力则直接下降到71至76%。](https://www.hankookilbo.com/News/Read/A2021121909370004055?did=GO)
 
-**4. 布莱恩泰森医生12月19日发推说：** 纽约一个学区发送电子邮件警告家长说，K-12年级学生会出现心脏骤停的情况。 【推文转《网关专家》报道，邮件说，纽约州苏福克郡 (Suffolk County)马诺维尔（Eastport-South Manor）中央学区颁布了一项新规，要求所有地区确保护士和教练能够治疗和监测出现心脏骤停迹象和症状的学生，所有工作人员必须都知道心脏骤停的警告信号，以及如果有人出现心脏骤停该怎么应对。一位关心此事的家长向《网关专家》表示，考虑到纽约已经离强制要求上学孩子接种新冠疫苗的可能性很接近，所以这封邮件非常可疑。“我觉得令人不安的是，学校新引进了专门研究心脏骤停的医护人员。我们已经看到很多青少年和运动员在接种疫苗几天后就死了，看来他们正在为此做准备。“】
+秘翻新闻明澈编辑报道
 
-[https://twitter.com/btysonmd/status/1472309212306829312](https://twitter.com/btysonmd/status/1472309212306829312)
+**6.西安爆发大规模出血热**
 
-**5. 莲心不染 12月19日发推说：** 人们要求就新冠防疫政策以及新冠疫苗造成的伤害或死亡进行赔偿，超过4000项索赔案正在等待美国政府赔偿。
+[综合媒体12月18日消息，近日陕西西安市爆发出血热疫情，导致西安出血热定点医院爆满。除感染人数众多外，还出现多名死亡病例，大量社区医院也被封。 同时，西安雁塔区防疫指挥办公室发函，对辖区二环南路南道沿以南，南三环北道沿以北，太白南路东道沿以东，新安路西道沿以西区域采取封控管理，管控区域内居民应严格遵守疫情防控要求。 有网友爆料：长安区出血热特别严重，只是没有报道，感染将近200多人，有长安区医院的医生朋友说，她同事的老公在公园跑步感染出血热，一周多就死了，特别吓人。更有网友表示，整个西安现在就像一部恐怖片一样！ 另有消息指出，长安大学研究生宿舍楼18日一整天都有救护车出入，据此判断应有大量学生被感染后送往医院。](https://cdn.discordapp.com/attachments/895315867368312852/922038309499305984/WeChat_20211219141834.mp4)
 
+秘翻新闻菜园子编辑报道
 
+**7.改制后香港立法会首度选举，投票率大幅下滑**
 
-> Claim Alleging Injury or Death From a COVID-19 Countermeasure to Be Compensated
-> More than 4,000 other claims await decision by the U.S. government compensation program[https://t.co/gdfrxIQmfo](https://t.co/gdfrxIQmfo)
-> — PureLotusHeart莲心不染 (@PureLotusHeart1) [December 19, 2021](https://twitter.com/PureLotusHeart1/status/1472427455038242818?ref_src=twsrc%5Etfw)
+[7.改制后香港立法会首度选举，投票率大幅下滑 综合媒体12月20日消息，香港于19日举行了立法会换届选举，全天投票人数约136万，投票率仅30.2％，创下投票率最低的记录。 这是在中共强行更改香港选举制度后举行的首场立法会选举，此次选举投票率成为外界关注的焦点。 19日当天，有许多香港市民并未去投票站投票，而是利用政府提供的免费乘车机会去郊游或野餐；有市民直言根本没有自己心仪的候选人，因此不想投票；还有上百人去西九龙文化区参加了“Minions Run Hong Kong”跑步活动。在各投票站现场门可罗雀，倒是穿防弹背心的驻守特警及军装警员十分醒目。 香港选管会的主席冯骅对媒体承认，当天很少有投票站外能排起长队。参与投票的市民受访时告诉外媒，这届的投票基本上无须排队等候。也有香港市民受访时表示，自己不会去投票，因为不值得投，中共改革完全是荒谬，这不是民主选举，只是一言堂。 有媒体指出，当日香港各区投票站冷清的现场，与2019年反送中运动期间投票率破纪录的状况形成了鲜明对比。此次选举中，香港民众静默无声的抗议也是对中共改革的讽刺。](https://www.thestandnews.com/politics/立法會爭位地區直選無效票比率創歷屆新高-11非建制派僅取-66-選票全敗-民建聯-10-區全勝)
 
+秘翻新闻二丫编辑报道
 
+**8.潘石屹全家跑路 旗下公司遭中共重罚**
 
-**6 真正美国之声12月20日发推说：** 负责应对新冠疫情的联邦机构正受到前官员和知名医学教授的抨击，因为他们“排挤专家”，不进行基础研究，并在与青少年接种疫苗和佩戴口罩有关的证据上发表了错误描述。
+[据《新唐人》12月19日消息，今年9月，潘石屹拟出售北京地产项目SOHO中国给美国黑石集团，但中共监管部门以反垄断为由，对这笔30亿美元的交易进行审查，导致交易告吹，此后SOHO中国股价一路下跌。 12月17日，北京市税务局官网通报，经查明，SOHO中国旗下子公司建华置地偷逃税款1.98亿元，北京市税务局追缴其税款、加收滞纳金及2.5倍罚款，共计7.09亿元人民币。 17日晚，SOHO中国发布公告称将诚恳接受处罚，并按期全额缴纳税款、滞纳金及罚款。 报道指出，建华置地法人是SOHO中国创办人潘石屹，这是SOHO中国旗下公司第二次遭监管部门处罚。 12月初，SOHO中国旗下的北京搜厚物业管理有限公司，曾因向多家分公司加收电费被上海多地市场监管部门罚款，罚金合计约8664万元人民币。 12月17日，SOHO中国被重罚的消息公布后，该公司股价暴跌，港股收盘仅1.69港元，再创新低，距离今年最高点已跌掉逾65%。](https://m.ntdtv.com/gb/2021/12/19/a103297989.html)
 
-【推文转报道，前疫苗研究和审查办公室副主任菲利普·克劳泽（Philip Krause）和前代理首席科学家卢西亚娜·博里奥（Luciana Borio）抗议政府最近的三项行动，其中之一是授权为16岁的未成年人接种加强针。他们批评美国食品药品监督管理局FDA的解释“没有说服力”。约翰·霍普金斯大学的医学教授马蒂·马卡里（Marty Makary）同意加强针会伤害低风险群体，并指责联邦政府对奥米炕变种的“猜测”太多，研究太少。马卡里12月8日发文说：“事实上，我们大部分的新冠研究成果来自以色列和国外的科学家。令人费解的是，美国国立卫生研究院NIH或疾控中心CDC没有“动员他们的7000多名科学家”，就疫苗产生的抗体和自然免疫如何应对奥米炕变种做出回答，甚至没有一个关于奥米炕病例的“实时数据仪表板”。也许福奇可以少做一些媒体采访和大学讲座，转而亲自监督NIH的奥米炕变种的抗体结合实验。CDC的数据十分滞后，而且不完善。。】
+秘翻新闻二丫编辑报道
 
+**10.连锁餐厅《新元素》受中共病毒冲击而倒闭**
 
+[综合媒体12月20日消息，在多轮疫情影响下，餐饮业成为受冲击最严重的行业之一。 12月14日，经营约20年的美式轻食连锁餐厅《新元素》发布一份破产清算通知，表示因不敌疫情，公司运营遇到了前所未有的巨大困难，所属门店经营遭受严重影响。 通知中提到，目前该连锁餐厅已处于严重亏损和资金链断裂的状态，正按照相关法律规定进入破产清算流程。该通知还称将陆续关闭《新元素》公司所属门店。 官网资讯显示，该公司目前在大陆有逾30家门店，主打三明治、莎拉、果汁等食物。在11月时就有消息传出，新元素正在与买家洽谈，寻求出售的可能性。](https://www.epochtimes.com/b5/21/12/19/n13446936.htm)
 
-> Federal agencies in charge of [#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw) response are taking hits from former officials and high-profile medical professors for "sidelining experts," not conducting basic research, and mischaracterizing evidence related to vaccines and masks for young people.[https://t.co/QdJ1PpW1j2](https://t.co/QdJ1PpW1j2)
-> — Real America's Voice (RAV) (@RealAmVoice) [December 19, 2021](https://twitter.com/RealAmVoice/status/1472597599677030401?ref_src=twsrc%5Etfw)
-
-
-
-**7. 印太新闻 – 关注中共威胁12月20日发推说：** 亚马逊为了在中共国销售kindle和云服务产品，与中共宣传机构合作，将习近平的书作为“畅销书”进行宣传，审查评论，并向当局提供中共政权异议人士的IP地址。
-
-【推文转《日本时报》报道，路透社的一项深度调查报告说，亚马逊通过配合中共审查、帮助中共推进其政治和经济议程，以获得中共国的市场。亚马逊在宣传《习近平谈治国理政》这种党宣读物时，关闭评论区并禁止用户打分。知情人士说，对这本书的差评促使北京给亚马逊下达这一指令，北京不能接受最高分五星之外的其他分数。虽然销售情况糟糕，但亚马逊认为这个项目对赢得中共的支持来说非常重要，因此该项目仍在持续，《习近平谈治国理政》在中国图书的畅销书页面上排名第一。】
-
-
-
-> [#Amazon](https://twitter.com/hashtag/Amazon?src=hash&amp;ref_src=twsrc%5Etfw) partnered with [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) propaganda arm to win Beijing's favor
-> 
-> Amazon promoted [#XiJinping](https://twitter.com/hashtag/XiJinping?src=hash&amp;ref_src=twsrc%5Etfw)'s books as “best sellers,” censored reviews & provided the IP address of dissidents to authorities.
-> 
-> This to sell kindle & cloud services in China.[https://t.co/tMlQ0wfcXs](https://t.co/tMlQ0wfcXs)
-> — Indo-Pacific News – Watching the CCP-China Threat (@IndoPac\_Info) [December 19, 2021](https://twitter.com/IndoPac_Info/status/1472673662469754881?ref_src=twsrc%5Etfw)
-
-
-
-**8 Newsmax 12月18日发推说：** 美国国家安全顾问杰克·苏利文 (Jake Sullivan)在外交关系委员会对听众表示，俄罗斯总统弗拉基米尔·普京尚未就是否入侵乌克兰“做出决定”，但根据美国最新的情报评估，他正在“认真考虑”这样做。 【推文转报道，苏利文说：“情报界所做的分析表明，俄罗斯政府正在认真考虑并计划在乌克兰和克里米亚等地演习，我们已经与盟友和合作伙伴分享了这一信息，我们一起就如果俄罗斯选择进一步入侵乌克兰将面临的巨大后果传递明确信息。”】
-
-
-
-> Russian President Vladimir Putin has not yet ''made a decision'' on whether he will invade Ukraine, but is giving ''serious consideration'' to doing so, according to the latest U.S. intelligence assessment, national security adviser Jake Sullivan said. [https://t.co/CDa3dzIEJh](https://t.co/CDa3dzIEJh)
-> — Newsmax (@newsmax) [December 18, 2021](https://twitter.com/newsmax/status/1472115751699902464?ref_src=twsrc%5Etfw)
-
-
-
-**9. 盖特官方12月20日发推说：** 杰森米勒在接受英国媒体GB News采访时，就美国红州和蓝州的新冠防疫政策差异评论说：“许多美国人实际上已经开始搬到红州，因为他们想要自由，不想戴着口罩度过一生，不想担心是否能够开展业务。在南方的州或者红州，政府的做法更负责任。他们在匆忙做出决定之前，会参考一下科学依据。”
-
-
-
-> "People have actually started to move to them [red states] because they want freedom. They don't want to spend their life with a mask…worrying about if they're going to be able to conduct their business."[@JasonMillerinDC](https://twitter.com/JasonMillerinDC?ref_src=twsrc%5Etfw) speaks w/ GB News. 
-> Full clip 👉[https://t.co/6az4JBU3m0](https://t.co/6az4JBU3m0) [pic.twitter.com/oxFuzkbDSQ](https://t.co/oxFuzkbDSQ)
-> — GETTR (@GETTRofficial) [December 20, 2021](https://twitter.com/GETTRofficial/status/1472718394461933576?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> "If you go to a Southern state or if you go to a red state, they're being much more responsible in their approach…they're looking at the science, or the lack thereof, before rushing to decisions."[@JasonMillerinDC](https://twitter.com/JasonMillerinDC?ref_src=twsrc%5Etfw) on [#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw) policy differences b/w states w/ GB News. [pic.twitter.com/t8gMevhXiW](https://t.co/t8gMevhXiW)
-> — GETTR (@GETTRofficial) [December 19, 2021](https://twitter.com/GETTRofficial/status/1472655119619608582?ref_src=twsrc%5Etfw)
-
-
-
-**10 杰森米勒12月20日发推说：** 在法国，盖特正在发生一些特别的事情。仅在昨天，法国的注册人数就增加了1360%！在此特别感谢法国的战略主管阿里斯特利维耶等人，以及其他许多拒绝被大科技公司压制的爱国者！
-
-
-
-> WOW! Something special is happening with [#GETTR](https://twitter.com/hashtag/GETTR?src=hash&amp;ref_src=twsrc%5Etfw) in France – we had a 1360% increase in signups yesterday alone! A special thanks to [@DIVIZIO1](https://twitter.com/DIVIZIO1?ref_src=twsrc%5Etfw), [@Jean\_Messiha](https://twitter.com/jean_messiha?ref_src=twsrc%5Etfw), [@EricMorillot](https://twitter.com/EricMorillot?ref_src=twsrc%5Etfw), [@RiviereAlister](https://twitter.com/RiviereAlister?ref_src=twsrc%5Etfw), @GettrEnFrance and so many other Patriots refusing to be silenced by Big Tech!!!
-> — Jason Miller (@JasonMillerinDC) [December 19, 2021](https://twitter.com/JasonMillerinDC/status/1472716571298742272?ref_src=twsrc%5Etfw)
-
-
-
-**11. 比尔格茨12月19日发推说：** 中共可能故意制造假阳性的核酸测试结果，以让某些特定的运动员退赛，使赛事对其有利。
-
-
-
-> Not mentioned: China could deliberately create false-positive Covid test results to sideline specific visiting athletes and skew the games in its favor [https://t.co/UDZvR7vW83](https://t.co/UDZvR7vW83)
-> — Bill Gertz (@BillGertz) [December 18, 2021](https://twitter.com/BillGertz/status/1472245094761652228?ref_src=twsrc%5Etfw)
-
-
-
-**12. Dislcose.tv 12月20日发推说：** 纽约州的单日新增新冠病例数创下新高。在美国人口最多的州中，纽约州的疫苗接种率是最高的。
-
-
-
-> JUST IN – New York reports the highest one-day increase of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) cases on record. NY has the highest vaccination rate among the most populous states in the U.S.
-> — Disclose.tv (@disclosetv) [December 19, 2021](https://twitter.com/disclosetv/status/1472671850572431365?ref_src=twsrc%5Etfw)
-
-
-
-**13. 喜马拉雅战鹰团12月19日在盖特发文：** 班农先生12月15日接受了英国喜庄园的采访，台湾政务委员在展示了一张将中共国和台湾标以不同颜色的地图之后被切断画面，班农先生评论说：“这是又一个完美的例子，表明美国政府跪倒在中共面前。你把中共干掉，让中国人在过去一万年来第一次拥有民主就行了，那才叫民主峰会，在中国和中国人得到自由之前整个世界都是被奴役的。” 关于中共要求中共党员生三个孩子，班农先生评论说：“文贵说过很多次帝王时代的‘驭民五术’，中共把‘驭民五术’发展到了极致。中共政权没有做过一件关心中国人民死活的事。现在他们朝着超人类主义飞奔，因为他们不关心人类。他们认为他们就是最高的权力，现在全世界给他们下跪。”
-
-[https://gettr.com/post/pk22qw41e8](https://gettr.com/post/pk22qw41e8)
-
-[https://gettr.com/post/pk2too81e4](https://gettr.com/post/pk2too81e4)
-
-**以上社交媒体新闻由 巴拉克和Stephanie 联合编译报道**
+秘翻新闻明澈编辑报道
 
 发布:陸柒陸捌
 
@@ -141,6 +69,16 @@ By:[秘翻新聞](https://gtv.org/broadcast/watch/61c04558bcb7f101bb71a1d4)
 
 **By 【秘密翻译组-即时新闻播报组】**
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/秘翻海报.jpg)
+
+
+
+
+
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

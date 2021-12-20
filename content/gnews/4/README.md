@@ -2,34 +2,22 @@
 ---
 
 
-## 印度：三针疫苗接种者查出Omicron病毒
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1775448/)
+## 以色列卫生部考虑建议刚接种新冠疫苗的人避免训练
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/1775514/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Omicron_Virus.jpg)图片来源：REUTERS
-翻译：George Warshing
-校对/编辑：守望黎明
+#### 翻译/简评                    意大利达芬奇农场                  小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Schermata-2021-12-20-alle-16.38.58.png)图片来源：grandeinganno.it
+据《耶路撒冷邮报》报道，以色列卫生部可能会要求每一个接种辉瑞疫苗的人，在他们接种第一剂辉瑞疫苗之后一个星期应避免从事体育活动和其他剧烈运动, 这是因为接受疫苗会使他们中的一小部分人得心肌炎。以色列卫生部流行病部门的某些官员建议打了第二针mRNA新冠疫苗的人一个星期以内要避免剧烈的运动，而随便行走，做伸展运动，站着工作， 做家务都没问题。
 
-孟买市政厅在12月17日的新闻发布会上说，一位29岁从纽约回来的男子，11 月 9 日在该市机场接受冠状病毒病检测时，检测结果为阳性，随后通过病毒样本的基因组测序证实了在这位患者感染的是奥密克戎Omicron变种病毒。
+这项建议是在星期三发布的一项研究之后提出的。这项研究表明注射一针辉瑞疫苗之后，会增加患心脏炎症的风险。总而言之，一般病情普遍较轻，大部分患者是年轻男性。
 
-孟买市政厅详细阐述了这个特殊案例，称他先前已经注射过三针辉瑞疫苗。在他被测试出阳性后不久，便被接入医院以作预防。官方声明称，市政当局还启动了接触者追踪调查，但他的两个“密切接触者”的检测均呈阴性。
+“ 建议所有人，特别是青少年和30岁以下的年轻人，尤其是刚打了第一针和第二针之后避免剧烈运动。剧烈运动是指像举重、短跑、长距离的游泳。” 官员們称职业运动员担心将他们的训练强度降低会削弱他们的表现水准。疫苗小组成员向邮报记者指出， 这一问题将在下次会议中讨论， 大多数委员会成员目前对此持反对意见。
 
-得注意的是，美国辉瑞制药公司12月17日表示了担忧，认为新冠的大流行可能会持续到 2024 年，因为据报道，传播迅速的奥密克戎Omicron变种病毒的传染率可能比更早些的德尔塔病毒要高五倍。
+新冠疫苗有如此之大的副作用，我们已经看到许多运动员因为心梗突然倒在了赛场上， 专家们还在鼓励民众注射疫苗， 只是建议不做剧烈运动， 这世界简直疯狂到了极点。那些还在相信科学和疫苗的人该醒醒了，否则不知还会有多少无辜的生命因此而付出惨重代价。
 
-辉瑞与德国拜恩泰科BioNTech合作开发了辉瑞新冠疫苗，目前它们又在开发一款专门针对奥密克戎Omicron变种病毒的疫苗，但尚未确定它是否需要推广。辉瑞高管称，他们预计在明年1月份开始对升级的疫苗进行临床试验。
+原文链接：[https://www.jpost.com/health-and-wellness/health-ministry-to-consider-asking-newly-vaccinated-to-avoid-working-out-681317](https://www.jpost.com/health-and-wellness/health-ministry-to-consider-asking-newly-vaccinated-to-avoid-working-out-681317)
 
-随着最近在孟买报告的变种新冠最新病例，这座印度金融之都的奥密克戎Omicron病毒患者的最新数字已升至14人，其中5人是外来人员。
-
-值得注意的是，这14位患者中有13人已经出院。孟买市政厅在新闻发布中说，这14名奥密克戎Omicron病毒患者无人出现重症。目前在印度马哈拉施特拉邦全境感染奥密克戎Omicron病毒的累计总人数达到了40人。
-
-原文链接**：**[Omicron detected in US returnee, who took 3 doses of Pfizer vaccine: BMC](https://www.hindustantimes.com/cities/mumbai-news/omicron-detected-in-us-returnee-who-took-3-doses-of-pfizer-vaccine-bmc-101639791054052.html)
-
-发布：Peter Xin
-
-**更多****资讯****，****请关****注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+编辑、发布：  Xiao   baige
 
  
 

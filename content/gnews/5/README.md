@@ -2,64 +2,33 @@
 ---
 
 
-## 灭共者之郭氏情报站（五）12月19日版
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1775444/)
+## 浙江冠状病毒病例急增，中共敛财好时机
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1775499/)
 
-**出品：纽约香草山设计部**
+【**国内新闻短评**】
 
+**12月19日浙江省卫生健康委员会通报：截止18日24时累计确诊冠状病毒病例1975例**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/a7cfh-gc2b2-3.jpg)**图片来源：中共国浙江省卫生健康委员会官网**
+**短评：**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/amq6p-x6e25-3.jpg)
+**相信中共政府部门的公告，来确定浙江省新冠病毒疫情的现状，固然是不可取的，但是疫情带给中共的利益是可以推断的。**
 
+**首先，疫情隔离和疫苗接种是中共国当前的重要经济增长方式，在收割百姓的同时又肥了中南坑的盗国贼。核酸检测的钱挣的更是太容易，老百姓乖乖的排队检测，一次、二次、三次。当然，密集聚集的核酸检测，带来的危险政府是“看不见”的，媒体不会报道的，因为，百姓是否被感染它们并不关注。**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+**其次，华大基因公司提供的核酸检测的准确率只有33%，怎么低的准确率，还不如抛硬币确定更准确，却是官方御用检测剂，为什么？也正是这样，很多阳性的携带者并没有被检测出来，相信，这在中国一定是个可怕的数字。**
 
+**文章观点仅代表作者，与GNews 平台无关**
 
+**新闻链接：**[https://m.sohu.com/a/508892102\_260616/?pvid=000115\_3w\_a](https://m.sohu.com/a/508892102_260616/?pvid=000115_3w_a)
 
+素材：洛杉矶盘古农场 — 心照
+评论：洛杉矶盘古农场 — 期待明天tooles
+编审：洛杉矶盘古农场 — 心照
+发布：洛杉矶盘古农场 —彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-
-
-
-
-
-## **灭共者之郭氏情报站 – 2021年12月19日，文贵大直播：**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12-19.png)
-**一、两个很不好的消息： 
-**1、所有得过新冠病毒的人3-10年内50%以上概率会染上癌症，一定要避免剧烈运动。主要两个地方容易得病：淋巴和血液；女性容易得妇科疾病。感染康复后一定要坚持吃青蒿素和伊维菌素。 
-2、法币的超发导致的通货膨胀，通胀、通缩，生产力不平衡，是全球经济从来没有过的黑暗时期。不会有任何解药，唯独崩塌一条路。
-
-**二、中共房地产持续暴雷破产，内外交困，经济指标作假欲掩盖金融大崩盘。**从企业家解直锟的意外死亡，中共内斗谁都无法幸免。人类已经走向了“货币春秋”，是世界走向“三国”的数字货币时代，我们是其中一极。
-
-**三、抵制奥运会意义深远。**奥运会一定会有集体事件、隔离事件。习想要通过奥运展现治理能力，一党专政的优越性，然后开始造神运动，并准备打台湾。
-
-
-
-**上一期：**
-
-[**灭共者之郭氏情报站（四）12月17日版 – GNEWS**](https://gnews.org/zh-hans/1769041/)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-2.png)
-
-***编辑/发稿：小鹿***
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

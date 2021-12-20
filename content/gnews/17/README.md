@@ -2,22 +2,24 @@
 ---
 
 
-## 仅少数疫苗受害者能通过“伤害赔偿计划”
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1775204/)
+## 美国一些大型医院放弃了疫苗强制接种
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1775224/)
 
-采编：文莱     翻译编辑：文明(添草灭共)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/02-image.jpeg)
-据加拿大【CTV新闻】12月16日报道，自该国“‘新冠病毒’疫苗伤害赔偿计划”启动以来至11月底，共收到相关索赔申报400件，但仅5件通过了初步审查。
+采编撰稿：Spirit
+![](https://assets.gnews.org/wp-content/uploads/2021/12/03-image02.jpg)
+[图片来源](https://www.wsj.com/articles/some-hospitals-drop-covid-19-vaccine-mandates-to-ease-labor-shortages-11639396806)
 
-据悉，这项计划已于今年6月正式启动。尽管[加拿大公共卫生局]称该疫苗所导致的严重或永久性伤害极为罕见，但其公布的数据则显示，目前共受理了323件索赔申报，其中196件已完成了初步医学审查。
+据美国医疗媒体《WebMD》12月15 日报道，在联邦法官暂停拜登政府对医护人员的“新冠病毒”疫苗强制接种授权后，美国一些大型医院集团也已放弃了该政策。
 
-报道称，[加拿大公共卫生局]对相关索赔的标准非常严格，规定只有那些“因接种疫苗而需要住院治疗并危及生命健康的疾病，及其所导致持续或严重的残疾、丧失工作能力，乃至先天畸形或死亡等”才能构成严重或永久性伤害。因此，在这些索赔中，目前只有五件通过了初步审查，最终能否获赔还须等待[医学审查委员会]的审查结果。
+据悉，包括[Healthcare]在内的数家医院均表示，已暂时取消对其员工的强制接种规定来解决劳动力短缺问题。并试图通过此举留住足够的医护人员和其他雇员，以应对疫情期间不断激增的住院病患人数。
+
+报道称，由于劳动力成本飙升，疫苗强制接种及职业倦怠等原因，大量医疗工作者被迫离开了卫生保健行业或失去了原有工作。目前，这些医院集团共有300多家医院和50多万名员工，但暂时还不清楚具体有多少家医院已停止了疫苗接种授权。
 
 校对编辑：硫酸羟氯喹64
 
 发稿：苦尽甜来 (文來）
 
-[原文链接](https://www.ctvnews.ca/health/coronavirus/canada-s-vaccine-injury-support-program-400-claims-since-launch-fewer-than-five-approved-1.5709786)
+[原文链接](https://www.webmd.com/vaccines/covid-19-vaccine/news/20211215/some-hospitals-drop-worker-vaccine-mandates)
 
  
 
