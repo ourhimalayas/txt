@@ -15,98 +15,98 @@
 
 ---
 
-### [【文炬拾字】送葬中共的几点思考](/content/gnews/1/README.md)
- ` 温哥华扬帆农场`
-
-### [湖北高速公路桥梁侧翻致4死8伤](/content/gnews/2/README.md)
- ` 澳喜农场`
-
-### [阻止拜登对私营企业的强制疫苗接种令将上诉到最高法院](/content/gnews/3/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [祸国殃民的中共](/content/gnews/4/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [加拿大议员Jeremy Patzer：因为疫苗政策，无数为国家和城市奉献的英雄今天被当作二等公民，我会为你们站出来](/content/gnews/5/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [加密币的区块链技术是人类的未来](/content/gnews/6/README.md)
- ` 澳喜特战旅Gnews`
-
-### [日本政府将于今日下午通过史上最大金额补充预算案](/content/gnews/7/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [秘翻在线：冲绳美军军营发生至少180人的群体感染](/content/gnews/8/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [20211217文贵大直播灭共关键词](/content/gnews/9/README.md)
- ` 澳喜农场`
-
-### [视频| 习近平与彭丽媛那些事（上）](/content/gnews/10/README.md)
- ` MOSREC`
-
-### [视频| 习近平与彭丽媛那些事（下）](/content/gnews/11/README.md)
- ` MOSREC`
-
-### [视频| 感染过病毒后的注意事项](/content/gnews/12/README.md)
- ` MOSREC`
-
-### [论邪恶精英的起源和终极目标](/content/gnews/13/README.md)
- ` 墨尔本雅典娜农场`
-
-### [纽约州欲立法，可按州长意愿对未打疫苗族无限期拘留](/content/gnews/14/README.md)
- ` 墨尔本雅典娜农场`
-
-### [20211215文贵大直播灭共关键词](/content/gnews/15/README.md)
- ` 澳喜农场`
-
-### [12.19文贵爆料 2022北京冬奥会或是习近平和CCP的毁灭之路](/content/gnews/16/README.md)
- ` 秘密翻译组-原创组`
-
-### [文·贵天成——文贵先生谈“中原佛手、裕达国贸”（六）](/content/gnews/17/README.md)
- ` 墨尔本雅典娜农场`
-
-### [20211212文贵大直播灭共关键词](/content/gnews/18/README.md)
- ` 澳喜农场`
-
-### [文·贵天成——郭文贵先生谈“中原佛手、裕达国贸”（五）](/content/gnews/19/README.md)
- ` 墨尔本雅典娜农场`
-
-### [文雍漫谈：一种突破底线的无耻](/content/gnews/20/README.md)
- ` 文雍`
-
-### [港闻前线｜“完善”选制完败不合作运动 立法会选举投票率创历届新低](/content/gnews/21/README.md)
- ` 關注組`
-
-### [香港议会选举结果，投票率有史以来最低](/content/gnews/22/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [乔拜登即将宣布抗击 Omicron 的新措施向未接种疫苗者发出“严重警告”](/content/gnews/23/README.md)
+### [币圈新闻动态：喜币（HCN）价格目前在44.340 HDO](/content/gnews/1/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [奥密克戎变异株已在89国发现 感染病例翻倍增长](/content/gnews/24/README.md)
+### [澳洲议员凯利呼吁政府重视伊维菌素治疗新冠的有效性](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [秘翻在线：跟踪报道杰森·米勒接受法国记者埃里克·莫里洛的采访](/content/gnews/3/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [【文炬拾字】送葬中共的几点思考](/content/gnews/4/README.md)
+ ` 温哥华扬帆农场`
+
+### [湖北高速公路桥梁侧翻致4死8伤](/content/gnews/5/README.md)
+ ` 澳喜农场`
+
+### [阻止拜登对私营企业的强制疫苗接种令将上诉到最高法院](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [秘翻在线：川普要求中共为新冠全球疫情赔偿60万亿美元](/content/gnews/25/README.md)
+### [祸国殃民的中共](/content/gnews/7/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [加拿大议员Jeremy Patzer：因为疫苗政策，无数为国家和城市奉献的英雄今天被当作二等公民，我会为你们站出来](/content/gnews/8/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [加密币的区块链技术是人类的未来](/content/gnews/9/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [日本政府将于今日下午通过史上最大金额补充预算案](/content/gnews/10/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [秘翻在线：冲绳美军军营发生至少180人的群体感染](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [喜马拉雅币一周分析与总结（12月13日-12月19日）](/content/gnews/26/README.md)
- ` GTV新闻访谈`
+### [20211217文贵大直播灭共关键词](/content/gnews/12/README.md)
+ ` 澳喜农场`
 
-### [美学者警告比特币或不久将消失](/content/gnews/27/README.md)
- ` GTV新闻访谈`
+### [视频| 习近平与彭丽媛那些事（上）](/content/gnews/13/README.md)
+ ` MOSREC`
 
-### [秘翻在线：川普：拜登因对习的畏惧而政策走偏](/content/gnews/28/README.md)
+### [视频| 习近平与彭丽媛那些事（下）](/content/gnews/14/README.md)
+ ` MOSREC`
+
+### [视频| 感染过病毒后的注意事项](/content/gnews/15/README.md)
+ ` MOSREC`
+
+### [论邪恶精英的起源和终极目标](/content/gnews/16/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [纽约州欲立法，可按州长意愿对未打疫苗族无限期拘留](/content/gnews/17/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [20211215文贵大直播灭共关键词](/content/gnews/18/README.md)
+ ` 澳喜农场`
+
+### [12.19文贵爆料 2022北京冬奥会或是习近平和CCP的毁灭之路](/content/gnews/19/README.md)
+ ` 秘密翻译组-原创组`
+
+### [文·贵天成——文贵先生谈“中原佛手、裕达国贸”（六）](/content/gnews/20/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [20211212文贵大直播灭共关键词](/content/gnews/21/README.md)
+ ` 澳喜农场`
+
+### [港闻前线｜“完善”选制完败不合作运动 立法会选举投票率创历届新低](/content/gnews/22/README.md)
+ ` 關注組`
+
+### [香港议会选举结果，投票率有史以来最低](/content/gnews/23/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [乔拜登即将宣布抗击 Omicron 的新措施向未接种疫苗者发出“严重警告”](/content/gnews/24/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [奥密克戎变异株已在89国发现 感染病例翻倍增长](/content/gnews/25/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [秘翻在线：川普要求中共为新冠全球疫情赔偿60万亿美元](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [西安出现出血热疫情](/content/gnews/29/README.md)
+### [喜马拉雅币一周分析与总结（12月13日-12月19日）](/content/gnews/27/README.md)
+ ` GTV新闻访谈`
+
+### [美学者警告比特币或不久将消失](/content/gnews/28/README.md)
+ ` GTV新闻访谈`
+
+### [秘翻在线：川普：拜登因对习的畏惧而政策走偏](/content/gnews/29/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [西安出现出血热疫情](/content/gnews/30/README.md)
  ` 纽约香草山MOS03`
 
-### [纽约立法规定可根据州长的意愿无限期拘留未接种疫苗的人](/content/gnews/30/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [只有对党忠心的人才能获准香港立法机构的投票选举 （下）](/content/gnews/31/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [盖特是那些挺身而出捍卫自身价值观的人们的平台](/content/gnews/31/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [航空行业高管就疫苗强制令接受参议院委员会质询](/content/gnews/32/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`

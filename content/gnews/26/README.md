@@ -2,41 +2,20 @@
 ---
 
 
-## 喜马拉雅币一周分析与总结（12月13日-12月19日）
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1772871/)
+## 秘翻在线：川普要求中共为新冠全球疫情赔偿60万亿美元
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1772887/)
 
-作者：纽约香草山金融部  – ILOVE战神
+#### 翻译：  Evalu
 
+#### 校对：白夜
+![](https://assets.gnews.org/wp-content/uploads/2021/12/16399727771.png)   图片来源： www.163.com
+华盛顿时报12月19日报道，前总统唐纳德·川普星期日说，中共应该为它造成全球中共病毒疫情而赔偿60万亿美元。
 
+中共病毒自2019年起在中共国武汉爆发后蔓延世界，重创世界经济， 并已造成超过530万人死亡，虽然起源还未定论，但武汉病毒研究所起源不能排除，中共国始终否认实验室起源说。今年3月世界卫生组织的调查报告认为实验室起源可能性很小， 但世卫组织总干事谭德赛说:“我认为调查还不够深入，还需要有关专家进一步的调查。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+作为共和党的领军人物，川普先生告诉福克斯电视台新闻主持人玛丽亚·巴蒂罗姆，共产主义极权统治应该为其帮助中共病毒传播而付出代价。前总统说，中共病毒在全球造成的损失，估计中共很可能欠了60万亿。“ 不只是美国受损，我认为全球为此损失了60万亿，他们（中共）必须为其所做的付出代价， 他们对世界做了可怕的事，而且没有终止”。
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.4-3.jpg)
-过去一周，喜马拉雅币价格稳定在44美元上下，平均日交易量约4万5千喜币。相对于其他数字货币市场暴涨暴跌的行情，喜币上市以来的涨势与稳定创造了数字货币的奇迹。喜币上市以来总交易量突破2190万枚 ，占今年总发行量的仅约2.19%。目前大型机构投资者尚未进场，市场交易量较低，价格仍被严重低估。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.2-8.jpg)
-据郭文贵先生本周直播透露，喜币和喜美元将在未来新疆、西藏、香港、台湾独立于中共统治的过程中发挥重要的货币与金融功能。喜币在未来还可以直接进行工资支付，并结合人工智能、生物科技、量子计算等最前沿的科技成为一种身份的象征。未来的盖特、GTV，Gnews，不光是社交媒体平台，而且会成为一个信息交易市场，并融合喜币、躺平币成为社交媒体上最安全的货币市场。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.3-5.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+[新闻来源](http://Trump%20demands%20China%20pay%20$60T%20in%20‘reparations’%20for%20the%20coronavirus%20pandemic)
 
 
 
