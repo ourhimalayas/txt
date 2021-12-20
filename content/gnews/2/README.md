@@ -2,17 +2,24 @@
 ---
 
 
-## 谢直锟早已“身无分文” 他的猝然离世和海航王建去世一样关键
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1775222/)
+## 美国一些大型医院放弃了疫苗强制接种
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1775224/)
 
-栏目作者：焦点20分
+采编撰稿：Spirit
+![](https://assets.gnews.org/wp-content/uploads/2021/12/03-image02.jpg)
+[图片来源](https://www.wsj.com/articles/some-hospitals-drop-covid-19-vaccine-mandates-to-ease-labor-shortages-11639396806)
 
-解直锟的兄弟解直春是[中投](https://gettr.com/hashtag/%23%E4%B8%AD%E6%8A%95)的总裁 。曾有算命先生在4年前为[解](https://gettr.com/hashtag/%23%E8%B0%A2%E7%9B%B4%E9%94%9F)直锟算命，道他活不过61岁，现已灵验。事实上中海晟荣被拿走时，[解](https://gettr.com/hashtag/%23%E8%B0%A2%E7%9B%B4%E9%94%9F)直锟就根本没有什么资产了。2018年海航被爆出时，王岐山就已经想灭他的口。中植谢直锟猝然离世和[海航](https://gettr.com/hashtag/%23%E6%B5%B7%E8%88%AA) 王建去世一样关键。张宏伟也多半会是如此的下场。
+据美国医疗媒体《WebMD》12月15 日报道，在联邦法官暂停拜登政府对医护人员的“新冠病毒”疫苗强制接种授权后，美国一些大型医院集团也已放弃了该政策。
 
-视频来源: 2021年12月19日郭先生大直播视频
-视频制作: 文星光
-文案: 梦田、文星光
-上传: 零点
+据悉，包括[Healthcare]在内的数家医院均表示，已暂时取消对其员工的强制接种规定来解决劳动力短缺问题。并试图通过此举留住足够的医护人员和其他雇员，以应对疫情期间不断激增的住院病患人数。
+
+报道称，由于劳动力成本飙升，疫苗强制接种及职业倦怠等原因，大量医疗工作者被迫离开了卫生保健行业或失去了原有工作。目前，这些医院集团共有300多家医院和50多万名员工，但暂时还不清楚具体有多少家医院已停止了疫苗接种授权。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：苦尽甜来 (文來）
+
+[原文链接](https://www.webmd.com/vaccines/covid-19-vaccine/news/20211215/some-hospitals-drop-worker-vaccine-mandates)
 
  
 

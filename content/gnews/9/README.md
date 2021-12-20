@@ -2,60 +2,64 @@
 ---
 
 
-## 痴呆拜登将更疯狂强推疫苗接种
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1775102/)
+## 【Michael.Tonny专栏】辉瑞CCP病毒疫苗临床试验中，儿童不良反应率为86.2%
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1775124/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/12/B-10.jpg)patriotdailypress.org
-《门道专家》12月20日发表文章，题目是“老态龙钟的乔·拜登针对中共病毒，明天（12月21日）将推出更多疯狂举动”。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-全文如下：
+未成年人接种中共病毒疫苗危害有多大？
 
-拜登会讲话，但不会再有人听了。
+根据美国CDC（[Centers for Disease Control and Prevention](https://www.cdc.gov/coronavirus/2019-ncov/vaccines/safety/adverse-events.html)）的报告，截至2021年12月8日，VAERS已收到1,908份12-29岁人群接种COVID-19（中共病毒）毒疫苗后的心肌炎（myocarditis）或心包炎（pericarditis）报告。尤其是在男性青少年和年轻人中，大多数病例是在接种Pfizer-BioNTech或Moderna的mRNA中共病毒疫苗后报告的。通过包括病历审查在内的随访，CDC和FDA已确认1,106份心肌炎或心包炎报告。
 
-乔·拜登计划周二（12月21日）就中共病毒发表一次重要演讲。
+美国食品和药物管理局 (FDA，Food and Drug Administration) 在2021年5月10日的就授予辉瑞mRNA毒疫苗紧急用于美国12岁及以上儿童使用授权情况说明书（[US Food & Drug Administration (FDA) fact sheet](https://www.fda.gov/media/153715/download)）中，透露了很多令人触目惊心的数字。
 
-不要指望乔·拜登会提供任何关于中共病毒来源、福奇和美国如何帮助了中共病毒研发的准确信息，相反，拜登预计将在冬季推行更疯狂的反美国和反自由措施，将重点关注那些未接种疫苗的人群。
+第30页表5显示，有1,127名12至15岁儿童参与疫苗测试，其中，1,127名儿童种了一剂mRNA疫苗，1,097名儿童接种了两针疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Table-5-Study-2-Frequency-and-Percentages-of-Adolescents.jpg)Healthcare Providers for 12 years of age and older, gray cap (no dilution)
+在接种第一针的1,127名儿童中，971人出现了不良反应，不良反应的比例为86.2%。在接种第二剂的1,097名儿童中，有866人出现了不良反应，占78.9%。
 
-白宫在周五（12月17日）举行的新闻发布会上说：
+第31-32页表6显示，接种第一剂辉瑞毒疫苗的1,127名儿童中有228人出现发烧（Fever），占20.3%，而接种第二剂毒疫苗的1,097名儿童中有430人出现发烧，占39.3%。
 
-*正如我们在先前的简报中所解释的那样，奥米克戎（Omicron）变体病毒更易传播，我们的医学专家预计它将导致病例增加。*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Table-6-Study-2-–-Frequency-and-Percentages-of-Adolescents.jpg)Healthcare Providers for 12 years of age and older, gray cap (no dilution)
 
-*但与去年冬天不同的是，我们现在有能力保护自己。*
+接种第一剂的儿童中，677人出现疲劳（Fatigue），占60.1%，而接种第二剂的儿童中有766人出现疲劳，占66.2%。
 
-*我们的疫苗对奥米克戎有效，特别是对符合条件的人接种加强剂，如果你接种了疫苗，你的病毒检测可能呈阳性，但如果你真地感染了中共病毒，你很可能是无症状或症状轻微的。*
+接种第一剂的儿童中，有623人出现了头痛（Headache），占55.3%，而接种第二剂的儿童中，有708人出现了头痛，占64.5%。
 
-*我们致力于不让奥米克戎干扰接种疫苗者的工作和学校，你做得对，我们会度过难关的。*
+接种第一剂疫苗的儿童中有311人会发冷（Chills），占27.6%，而接种第二剂疫苗的儿童中有455人会发冷，占41.5%。
 
-*对于未接种疫苗的人来说，你们会看到你自己、你们家庭将面临一个严重疾病和死亡的冬天，你们很快就会把医院塞满。*
+接种第一剂的儿童中有31人出现呕吐（Vomiting），占2.8%，而接种第二剂的儿童中有29人出现呕吐，占2.6%。
 
-*因此，我们向每个美国人传达的信息是明确的：你应该采取行动保护你自己和你的家人，在室内公共场所佩戴口罩，接种疫苗，让你的孩子接种疫苗，当你符合条件时再接种一次加强剂。*
+FDA列出的最终特定不良反应是腹泻（Diarrhea）。在接种第一剂疫苗的1,127名儿童中，有90人出现腹泻，占8.0%，在接种第二剂毒疫苗的1,097名儿童中，65人出现腹泻，占5.9%。
 
-*我们准备迎接这一新挑战，我们在方便的地点免费提供了大量疫苗和加强剂，有明确的口罩指导，以帮助减缓传播，我们有紧急医疗队在必要时应对激增的病例。*
+英国大约有1560万19岁及以下的人，自2020年3月至2021年8月26日英国对19岁以下的人注射毒疫苗前的18个月，只有9名19岁以下没有既往疾病史（Pre existing condition）的人死于中共病毒感染。平均每两个月才有1名19岁以下没有既往疾病史的人死于中共病毒感染。
 
-*所以，现在不是恐慌的时候，因为我们知道如何保护人民，我们有工具来保护人民，但我们需要美国人民尽自己的一份力量保护他们自己、他们的孩子和他们的社区。*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/All-data-up-to-4pm-25-August-2021.jpg)
 
-通过声称如果你接种了疫苗，你的症状将是轻微的，却忽略了接种疫苗死亡的人数。羞辱那些没有接种疫苗的人是应该受到谴责的，再说一次，坚持口罩起作用充其量也是不准确的。总的来说，使用疫苗和口罩造成的伤害似乎比不使用疫苗和口罩造成的伤害更大。
+而在对18岁的人开打毒疫苗后的78天内（8月26日到11月11日），就有8名19岁以下没有既往疾病史的人死于中共病毒感染，相当于每个月就有3.1名19岁以下没有既往疾病史的人死于中共病毒感染。
 
-圣丹斯（Sundance）在“保守的树屋”（Conservative Treehouse）提醒：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/All-data-up-to-4pm-11-November-2021.jpg)
 
-*也许会对不干净（未接种疫苗）的公民实行新的国内旅行限制，也许会有新的规定，或是对那些继续支持不洁者的雇主宣布未来的惩罚，也许白宫正准备宣布新的清洁措施，以针对不洁人群。*
+中共病毒疫苗就是毒药！
 
-*不管美国政府准备出台什么样的新的规章制度，现在值得考虑的是你该怎样设置这条界线？你和你的家人到底在哪里划界？*
+可喜的是，强制疫苗政策已经开始不得人心。在早安英国（[Good Morning Britain](https://twitter.com/GMB/status/1472824626095009793)）12月7日发起的一项民意调查中，截止到目前，有153,483 人参与了投票，其中89.1%的人不赞成“Should we lockdown before Christmas?”，民众对Boris Johnson的B计划非常反感，根本不赞成强制疫苗政策。
 
-拜登政权和他们在蓝州的伙伴们向美国人民撒了多少谎言，或实施了多少违宪令似乎无关紧要了，对他们来说不幸的是，显然他们没有被包括在美国正在增长的感染人数当中。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Should-we-lockdown-before-Christmas.png)
 
-（原文完）
+参考数据：
 
-昏聩的拜登老儿，你这个丧门星，竟敢诅咒我们这些未接种疫苗者，“你们会看到你自己、你们家庭将面临一个严重疾病和死亡的冬天，你们很快就会把医院塞满”。我R你……
+[Should we lockdown before Christmas?](https://twitter.com/GMB/status/1472824626095009793)
 
-拜登的疯狂，折射出阴谋集团的黔驴技穷，估计他们没有意识到，世界觉醒的程度如此之高，还需要通过再次播撒奥米克戎病毒推进疫苗的接种，这是阴谋集团不得已的下策。在新中国联邦引领下的反毒疫苗运动严重阻碍了罪恶集团的计划，罪恶正在被曝光，他们的死期正临近。
+[US Food & Drug Administration (FDA) fact sheet](https://www.fda.gov/media/153715/download)
 
-原文链接：
+[COVID 19 total announced deaths 12 November 2021 – weekly file](https://www.england.nhs.uk/statistics/wp-content/uploads/sites/2/2021/11/COVID-19-total-announced-deaths-12-November-2021-weekly-file.xlsx)
 
-[https://www.thegatewaypundit.com/2021/12/senile-joe-biden-cant-talk-without-assistance-expected-push-covid-insanity-tuesday/](https://www.thegatewaypundit.com/2021/12/senile-joe-biden-cant-talk-without-assistance-expected-push-covid-insanity-tuesday/)
+[COVID 19 total announced deaths 26 August 2021 – weekly file](https://www.england.nhs.uk/statistics/wp-content/uploads/sites/2/2021/08/COVID-19-total-announced-deaths-26-August-2021-weekly-file.xlsx)
+
+[Shocking 86% of Children suffered an Adverse Reaction to the Pfizer Covid Vaccine in Clinical Trial](https://dailyexpose.uk/2021/05/30/shocking-86-of-children-suffered-an-adverse-reaction-to-the-pfizer-covid-vaccine-in-clinical-trial/)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 
