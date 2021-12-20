@@ -2,41 +2,27 @@
 ---
 
 
-## 七哥冬奥会悬念解惑四：盘古龙头和盘古大观是否会启用
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1773912/)
+## 中共国大咖级带货女主播被罚13亿
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1774031/)
 
-下一个问题，盘古大观酒店，七星级酒店已经是龙虾被他们蘸咖喱给吃完了，专案组，酒店已经关业（闭）了，停业了，然后裕达国贸，被李友和王健林已经接了，叫万达美景酒店。咱就别说那个了，还在营业中，诱骗所有的员工，不补偿，让你签半年一年合同，咱先另说，盘古大观七星酒店，在2月14号的时候会不会重新营业呢？
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1220C.png)网络图片
+12月20日，中共国网络带货第一女主播薇娅遭浙江省杭州市税务稽查部门通报，罚人民币13.4亿元，理由是她在2019-2020两年间存在偷税逃税等问题。
 
-你们的问题（回答）全错了！他根本不存在营业不营业，所以又掉坑里去啦！盘古大观七星酒店，将是冬奥会最重要的场址，所有的开幕式，闭幕式的关键所在之地，冬奥会的国家安全控制中心，又回到了2008年，风水如此轮回之转，啊哈哈！会使用，会重大使用，核心！
+根据税务部门的说法，薇娅通过瞒报收入、虚构业务转换换收入以及虚假申报等方式逃税约6.4亿元人民币，如果能够在规定期限内缴纳罚款并缴清税金，鉴于第一次查出将不予追究形式责任。
 
-而且是，习近平习太阳和他的彭月亮，都会出现在同一个地方，而且主要的人物也会出现在那里。鸟头，还有上面的龟头上面，有重大安全举措，而且就是盘古龙头和盘古大观，是狙击手的最高制高点，兄弟姐妹们你们的答案都错了！
+此前，中共当局便展开过针对直播带货主播的突击查税行动，结果导致淘宝直播排名第三以及第九的两位主播被连追带罚超过人民币9000万元。让人感到有趣的是，这些查税行动不早不晚，偏偏是选在中共国内双十一购物节结束后不久，似乎是算准实际进行埋伏。
 
-编辑整理：海贼王M.D.LUFFY；
+笔者认为，中共当局现在日子的确不太好国，手头又不宽裕，从传统艺人以及流量明星揩油不算，现在就连带货主播也都不再放过，而且是故意掉长线放大鱼。
 
-字幕制作：小满；
+既然薇娅早在两三年就出现了逃税漏税的行为，为何到现在才突然提起，笔者认为或许一是当时中共还不至于落魄到如今这个程度，而来是直播带货这个行业那个时候还没有完全养肥，不到宰杀收割的时候。
 
-视频制作及上传：Cindy；
+现在中共的荷包逐渐干瘪，直播带货行业也渐成规模，对于老杂毛们来讲自然就成了一块肥肉。当然这件事又一次提醒了中共国名义上的“有钱人”：你们的财富毫无自主，随时等待着被盗国贼收割。
 
-G-News发布：小满；
+新闻参考链接：
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+[联合新闻网](https://udn.com/news/story/7332/5975420?from=udn-catebreaknews_ch2)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,52 +2,25 @@
 ---
 
 
-## 墨尔本反疫苗示威者再次游行
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1773727/)
+## 利物浦教练克洛普：球队不会签没打疫苗的球员
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1773826/)
 
-拟稿：金生水
-![](https://assets.gnews.org/wp-content/uploads/2021/12/墨尔本.png)
-图片来自网络
+#### 翻译/撰稿：zzballack
 
-雅虎新闻近日报道，来自澳大利亚的抗议者们再次走上街头，要求摆脱中共病毒大流行，并反对强制接种疫苗。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-2-16.jpg)图片来源：英国独立报
+《The Covid World》网站12月19日发文称， 英超利物浦队的世界知名教练尤尔根·克洛普（Jürgen Klopp）近日宣布，从现在开始他的俱乐部不会签署任何没有接种新冠疫苗的球员，此举将在足球世界中引起震动。
 
-抗议者周六再次聚集在墨尔本的中央商务区，以表明他们反对任何中共病毒限制，尽管他们大多被撤回并呼吁“选择权”。
+此前，同属英超联赛的阿斯顿维拉队教练史蒂文·杰拉德（Steven Gerrard）和水晶宫队教练帕特里克·维埃拉（Patrick Vieira）都表示，在签署新球员时会考虑其疫苗接种状况。
 
-在抗议活动中拍摄的视频显示，参与游行的人士高呼“没有疫苗护照”。
+在新闻发布会上，当被问及一名球员的疫苗接种状况是否会影响俱乐部签下他时，克洛普回答说：“是的，这肯定会有影响。在现今情况下，如果一名球员根本没有接种疫苗，那么他对我们所有人来说都是一个持续的威胁。当然，他并不想成为一个威胁，也不是说他不关心其他人的感受，但事实上他是个威胁。我们必须为此找到不同的方案，我们要给未接种球员安排不同的交通工具、食堂、更衣室、训练场所，这会让球队的管理变得越来越麻烦。”
 
-“醒醒，暴政来了，”一个牌子说。
+英超联赛（EFL）最近透露，只有59%的球员接种了两剂疫苗，16%的球员接种了一剂并准备再接种一剂，25%的球员不打算接种疫苗。鉴于克洛普在足球世界的巨大影响力，他的这一决定肯定会引起一些足球运动员的恐慌。
 
-人群中点缀着尤里卡寨子的旗帜，这是右翼团体近年来采用的旗帜。
+克洛普为人真诚，其推广疫苗的初衷肯定是认为疫苗可以预防病毒的传播和感染，绝非像中共那样为了金钱和其它邪恶目的。但是足球界最近的反常现象越来越多，以往罕见的心脏疾病、呼吸困难和胸痛等问题频频发生在足球运动员身上。我希望克洛普能花时间审视一下这些报道，重新思考对于新冠疫苗的看法。毕竟克洛普的影响力非常巨大，不仅限于足球界。这番话除了会让未接种疫苗的球员在足球界的处境愈发困难，毕竟之前已经有很多球员因未接种疫苗遭到了外界的猛烈抨击，比如德国球星约书亚·基米希（Joshua Kimmich），还会让其它各界效仿其做法，这将引发巨大的灾难。
 
-抗议者在墨尔本游行时高呼“拯救我们的孩子”。
+新闻来源：[Liverpool FC Will NOT Sign Unvaccinated Players Says Head Coach Jurgen Klopp](https://thecovidworld.com/liverpool-fc-will-not-sign-unvaccinated-players-says-head-coach-jurgen-klopp/)
 
-据《先驱太阳报》报道，抗议者于中午在国会大厦会面，随后又包围了墨尔本西警察局。
-
-据《先驱太阳报》报道，一名抗议者进入警察局给警员送达文件。 目前尚不清楚原因。
-
-维多利亚警方证实，周六没有因抗议活动而逮捕任何人。
-
-今天早上，该州报告了 1504 例新的中共病毒病例，除 5 例外，其余病例均在当地感染。
-
-维多利亚州在本周略微放宽了对新冠病毒的限制，在一些情况下取消了疫苗规定，但零售店仍强制要求戴口罩。
-
-购物者不再需要证明他们已接种疫苗即可前往非必要的零售店、礼拜场所、婚礼、葬礼以及房地产检查和拍卖。
-
-在维多利亚州，92% 的 12 岁以上的人都接种了中共病毒疫苗。
-
-周六是中共病毒大流行期间澳大利亚第一次在全国单日内报告的病例超过 4000 例。
-
-走上街头的勇士们反对的是强制施打疫苗，反对的是这个未经正常程序实验测试的疫苗，严格来说这根本不是真正的疫苗。维多利亚州92% 的 12 岁以上的人都接种了这个所谓的疫苗，而在新南威尔士州上个月就已经有90%的人完全接种了疫苗，那为什么这两个周单日内报告的病例居然能够超过 4000 例？
-
-尽管这两个州针对疫情封锁的限制都有所放松，但还需警惕政府会把病例激增的责任推卸到未接种疫苗的人身上。所以游行反抗不能停，直到政府停止强制施打疫苗，彻底解除对未接种过疫苗的人士活动的限制，并且推动药物治疗。
-
-参考链接：
-[Melbourne protesters swarm police station (yahoo.com)](https://au.news.yahoo.com/melbourne-protesters-swarm-police-station-063652412.html)
-[NSW hits 90 per cent COVID-19 fully vaccinated target – ABC News](https://www.abc.net.au/news/2021-11-09/nsw-reaches-90-per-cent-covid-19-double-vaccination/100600014)
-[Australia records more than 4,000 daily Covid cases for first time – as it happened | Australia news | The Guardian](https://www.theguardian.com/australia-news/live/2021/dec/18/australia-live-news-updates-omicron-surge-strains-covid-testing-sites-tasmania-bans-jumping-castles-from-state-schools-after-tragedy)
-
-发稿：MG4
-![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

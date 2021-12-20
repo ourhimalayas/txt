@@ -2,23 +2,30 @@
 ---
 
 
-## 以色列卫生部咨询委员会建议将美国列入旅行限制国家
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1773641/)
+## 澳大利亚任命强硬派担任国家战略政策研究所负责人
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1773794/)
 
-#### 撰稿：彩虹       
+翻译：Shirley
+![](https://assets.gnews.org/wp-content/uploads/2021/12/澳大利亚.png)
+图片来自网络
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1066.png)图片来源：雅虎
-周日，以色列卫生部的一个咨询委员会建议将美国加入到受中共病毒（COVID-19）相关旅行限制的“红色”国家名单中。12月19日，《国会山报》对此做了报道。
+在澳洲正在遭受来自中共的史无前例的国家安全威胁的时期，在国防部长彼得·达顿 (Peter Dutton) 的建议下，澳州外长玛丽斯·佩恩的幕僚长贾斯汀·巴西（Justin Bassi）将被任命为澳大利亚战略政策研究所的新负责人，接替即将离任的执行董事彼得·詹宁斯。
 
-根据法新社的报道，该咨询委员会建议将美国与加拿大、比利时、意大利、德国和其他地方一起列入被指定为“红色”的国家名单，这意味着以色列人不能去那里旅行，来自这些地方的外国人未经特别许可也不能进入以色列。如果以色列公民或居民已经在一个“红色”国家，他们回国后必须进行隔离检疫。
+巴西先生曾是马尔科姆·特恩布尔 (Malcolm Turnbull) 总理和前司法部长乔治·布兰迪斯 (George Brandis) 的国家安全顾问。他还担任过国家情报办公室的高级官员，领导该机构的网络和关键技术部门。
 
-报道指，同一天，以色列总理纳夫塔利·贝内特(Naftali Bennett)鼓励人们接种中共病毒疫苗，并在该国与第五波中共病毒（COVID-19）疫情作斗争时加强与疫情有关的预防措施。然而，据路透社报道，他在讲话中没有提到卫生部的建议。
+在他领导佩恩参议员办公室期间，政府通过了新的马格尼茨基式定向制裁法和2020 年外交关系法，赋予其否决州和地方政府与外国势力的协议，从而取消了维多利亚州与北京的“一带一路”谅解备忘录。
 
-**新闻来源**
+巴西先生还是特恩布尔先生决定禁止华为和其他中国电信公司进入澳大利亚5G 网络的关键顾问，并且是制定有关外国干涉、反恐、网络入侵和边境安全的立法的主要参与者。
 
-[Health ministry recommends Israel limit travel to the US, Canada](https://thehill.com/policy/international/586490-health-ministry-recommends-israel-limit-travel-to-the-us-canada)
+中国问题专家、前特恩布尔顾问约翰·加诺特说，巴西是“他那一代最有能力的国家安全专家”。
 
+巴西先生在政府中被称为具有“惊人网络”的深刻思想家，在过去八年中，他在政府的国家安全改革中发挥了关键的幕后作用。他在将外国影响和干涉纳入国家安全议程以及制定2016 年网络安全战略方面发挥了重要作用。
+
+消息来源：
+[As China-Australia ties fray, who is shaping Canberra’s increasingly hawkish policy on Beijing? | South China Morning Post (scmp.com)](https://www.scmp.com/week-asia/people/article/3135930/china-australia-ties-fray-who-shaping-canberras-increasingly?module=perpetual_scroll_0&amp;pgtype=article&amp;campaign=3135930)
+
+发稿：MG4
+![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,44 +2,45 @@
 ---
 
 
-## 七哥冬奥会悬念解惑五：界时北京什么地方会清城最厉害
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1773923/)
+## 川普要求中共国为全球冠状病毒大流行支付巨额赔偿
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1774036/)
 
-届时的，即时的北京城，军队、警察和北京市民又会像2008年奥运会一样—-清城！张家口，当然已经在开始清了，你觉得北京城什么地方是，让你看到的，是清得最厉害的，必须离开北京城的，他为什么这么做？
+**【雅典娜快讯】，紧贴时代脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-245.jpg)图片来源：Anadolu Agency
+在美国时间周日，**前总统唐纳德·川普表示，中共国应该为其在新冠疫情大流行病中的所作所为支付赔偿金。**
 
-大家看到的侠能渡和七道湾战友最早说出来的，还有远山的呼唤，玉泉山、天安门、长安街这是肯定的，这次最让人家不一样的，就是北京城肯定清城，通州都清城。最让人感到震撼的事情，你们不知道北京，说明你们四个都不是北京人，北京的新机场在哪里呀？（嘉宾回答：在大兴吗。）
+川普先生是美国共和党内的领军人物，他告诉福克斯新闻的玛丽亚·巴蒂罗莫，中共政权应该为其在协助传播冠状病毒中的所作所为负责。
 
-整个大兴周围布置的重兵—-40万，所有的参加冬奥会的运动员，和所有的所谓政府官员，都会从大兴降落下来。沿线快铁（高铁）和快铁（高铁）周围的房子，已经在去年，已经该拆的拆，不好看的已经都弄了，跟北朝鲜一样。
+“中共国必须付钱，他们必须做点什么”，川普先生说：“他们必须支付赔偿金，而他们没有钱支付这些赔偿金。”
 
-我去北朝鲜看到的都是好房子，再往后一看，一拐弯儿，全都烂垃圾房，是吧！死人房。大兴！所以为啥问你文斌，共产党首先控制空中，当然，长安街、奥运村是一定要清北京城，大兴全清！空中，张家口，当然是会议场所——清。
+这位前总统认为，**如果正确估计冠状病毒在全世界造成的损失，中国可能会欠下****60****万亿美元以上**。
 
-更夸张的事情，兄弟姐妹们！习怕到什么程度，盘古大观周围、四环以北、机场路以西、西环以内、然后往京城路整个这范围内，包括到长安街内，整个里边全部布置反导系统，红旗系列、导弹部署，他怕的是谁呀？他怕的是斩首，怕的是内乱。
+“我相信，在世界范围内，我不只是在谈论美国，而是在世界范围内[其造成的]60万亿美元的损失”，川普先生说：“中共国没有60万亿美元，但他们必须做一些事情来弥补他们所做的事情。”
 
-编辑整理：海贼王M.D.LUFFY；
+**“****他们对这世界所做的事情太可怕了”**，这位前总统补充道：**“它在全世界都很可怕，而且不会停止。****”**
 
-字幕制作：小满；
+据约翰·霍普金斯大学称，新冠大流行病在2020年震撼了世界经济，**并被指责在全世界造成530多万人死亡。**
 
-视频制作及上传：Cindy；
+中共国卫生官员于2019年11月在该国湖北省省会武汉市检测到这种新的冠状病毒，北京在同年12月正式向世界卫生组织报告了该病毒。
 
-G-News发布：小满；
+据全球卫生官员称，这种滞后造成了疫情在全世界蔓延，严重削弱了实施检疫措施的能力。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
+尽管该病毒的来源仍不清楚，但有证据表明不能排除中共武汉病毒研究所的实验室事故。这一理论曾经被民主党人抨击为“仇外”，但最近在公共卫生界获得了支持。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+“我认为起源是如此明显”，川普先生说：“我认为，如果有人有什么不同的想法，他们只是在自欺欺人。”
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+今年5月，近20位美国顶尖科学家在学术期刊《科学》上发表了一封信，呼吁对该病毒的起源进行进一步调查。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+新闻链接：[Trump demands China pay $60T in ‘reparations’ for pandemic – Washington Times](https://www.washingtontimes.com/news/2021/dec/19/trump-demands-china-pay-60t-reparations-pandemic/)
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+**发布：**去中心化Math
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

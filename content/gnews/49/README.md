@@ -2,10 +2,12 @@
 ---
 
 
-## 12/19/2021 文贵直播：科学家和病毒知情者爆料，所有得过中共病毒的人未来10年内身体里的淋巴系统和免疫力系统有50%会出问题
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1772637/)
+## 杰森·米勒谈盖特GVision等新功能以及对捍卫西方文明的意义
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1772729/)
 
-秘密翻译组-北美组
+12/14/2021 杰森·米勒谈盖特的GVision等新功能以及其对捍卫西方文明的意义。
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
