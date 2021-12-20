@@ -2,46 +2,21 @@
 ---
 
 
-## 灭共漫画系列——家天下
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1775423/)
+## 港股暴跌 CCP假擀面杖撑不住了！
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1775475/)
 
-**出品：纽约香草山设计部**
+上週港股迎来黑色星期五，遭到新一轮暴跌。携程、阿里巴巴、腾讯等科技股都出现暴跌。恆生指数再创新低，以23192.63点收盘。郭先生曾多次指出24000点是恆生指数的生死线，恆生指数直接影响港币兑美元汇率。CCP深知其中的利害关係，一直费尽心机操控恆生指数，使其不低于24000点。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/images-7.jpg)
 
+如今港股暴跌，充分说明了中共的假擀麵杖子已经撑不住了。这还仅仅是科技股暴跌，还没有涉及到威力更大的房地产股。
+一年多以前卡尔巴斯先生就明确表明做空港股与港币。受上週港股暴跌影响，港币兑美元也同步下跌到了1美元兑换7.80港币。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+做空港币打到了CCP的七寸， CCP迅速动用假擀麵杖子调高恆生指数以拉升港币汇率。然而一年多过去，现在港币跌到1美元兑7.80港币，CCP的假擀麵杖子不再起作用。这一切说明香港的经济民生已经被CCP糟蹋的千疮百孔、人心惶惶，接近了崩溃的边缘。
 
-
-
-
-
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-IMG_3510.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/2-IMG_3460.jpg)
-
-
-**编辑/发稿：小鹿**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-2.png)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
-
+文案：自由之翼
+校对整理：面包树、理工男文峰
+上传：米線
 
  
 
