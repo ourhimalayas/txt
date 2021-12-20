@@ -2,11 +2,13 @@
 ---
 
 
-## 12/19/2021 文贵直播：科学家和病毒知情者爆料，所有得过中共病毒的人未来10年内身体里的淋巴系统和免疫力系统有50%会出问题
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1772637/)
+## 世卫：中共病毒Omicron毒株确诊数每1.5至3天就会增加一倍
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1772684/)
 
-秘密翻译组-北美组
-
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1220-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

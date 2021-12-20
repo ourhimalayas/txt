@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/20/2021 2:37 AM (UTC)`
+
+Miles Guo's Latest Song "Hcoin To the Moon" has created 22 historic records so far🎉🎉🎉🎉🎉🎉🎉🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1771779<br/><br/>郭文贵先生最新歌曲《Hcoin To the Moon》迄今为止已经创造了22项历史记录🎉🎉🎉🎉🎉🎉🎉🙏🙏🙏🙏🙏🙏🙏<br/>https://gnews.org/zh-hans/1771778/<br/><br/>
+
+---
+
 `@miles 12/20/2021 12:41 AM (UTC)`
 
 12/19/2021 Miles Guo: The Winter Olympics will be the stage for the CCP to show the whole world its “governance capability”. Some attendees of the Winter Olympics will certainly catch the virus, and everything will be the CCP’s show. The CCP has prepared in case the Americans will be infected by the virus, and such preparations include assigning female interpreters, because the number of male athletes is 50% more than the females in the US Olympic team<br/><br/>12/19/2021 文贵直播：冬奥会是中共向全世界展示“治理”能力的舞台，一定有人染病毒、一切都会是演戏，中共已经为美国人染病做好了准备，其中包括女翻译，因为美国奥运队的男运动员比女运动员多一半<br/>
@@ -147,13 +153,6 @@ CCTV, the crazy CCP’s mouthpiece, shirking responsibility for creating the vir
 
 12/17/2021 Miles Guo: The CCP, which claims to be atheist, attacks me using sorcery by taking advantage of the power of the entire Communist China! However, I have been doing better and better, while the CCP has been labeled as a criminal organization by the world, facing all kinds of unfavorable situations in terms of finance, real estate, public opinion, and its reputation in the international community etc. The sorcery used by Xi Jinping and Peng Liyuan have failed completely!<br/><br/>12/17/2021 文贵直播：自称无神论的中共竟倾一国之力以巫术对付文贵！然而文贵发展越来越好，但中共却被世界列为犯罪组织，面临着金融，房地产，民心和国际环境等各方面不利的局面！习和彭使用的巫术已彻底失败！<br/>
 ![img](https://media.gettr.com/group43/getter/2021/12/18/03/7a77abca-8b0b-1e1d-c622-7b077e0156cc/out.jpg)
-
----
-
-`@miles 12/18/2021 3:10 AM (UTC)`
-
-12/17/2021 Miles Guo: Why did the CCP take over the Pangu Plaza and Yuda Palace Hotel at this time? Xi Jinping and Peng Liyuan are extremely superstitious and believe that the Yuda Palace hotel is the “Buddha's Hands” in Zhongyuan and is like Mr. Miles Guo’s root/penis. So, they believe that they must take it over before the year of the water tiger<br/><br/>12/17/2021 文贵直播：共产党为何要在此时搞盘古、裕达？习彭等人极度迷信，认为裕达是中原佛手、是文贵先生的根器，必须在壬水寅虎年前干掉<br/>
-![img](https://media.gettr.com/group18/getter/2021/12/18/03/6a6142ff-a8a7-1828-8cf7-f580acbc4638/out.jpg)
 
 ---
 
