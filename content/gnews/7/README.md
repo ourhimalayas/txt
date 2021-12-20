@@ -2,50 +2,39 @@
 ---
 
 
-## 新州的预算赤字因为疫情封锁政策飙升至近200亿
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1773760/)
+## 七哥冬奥会悬念解惑一：彭丽媛副主席会以何种形式出场
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1773802/)
 
-拟稿：金生水
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新州.png)
-图片来自网络
+第三个七哥请教一个问题，今年的冬奥会，彭丽媛彭副主席会怎么出场？
 
-澳媒《ABC News》近日报道，澳大利亚新南威尔士州的预算赤字比六个月前的预测高出一倍多。
+她（彭丽媛）一定会出场，节目已经在排练中。联合国慈善大使，艾滋病大使的身份一定会出来，所有的国母嘛，得要慈悲天下！慈悲为怀，赈济天下、女性代表，是吧！一定会出来，而且这次出来就是真正的彭丽媛，告诉中国人民，我就是二把手。你会看着，只要习大大，习太阳还继续发光的话就会出来。
 
-州政府公布了其半年度预算审查，修订后的赤字为 195 亿澳元。
+编辑整理：海贼王M.D.LUFFY；
 
-在大悉尼地区陷入封锁四个多月前几天公布的 6 月州预算中，赤字预计为 86 亿澳元。
+SRT文件制作：小满；
 
-财务主管马特·基恩今天表示，花在失业救济和中共病毒上的补助资金导致了财政赤字的飙升。
+视频制作及上传：Cindy；
 
-基恩先生说：“这种赤字是由于我们在卫生系统中进行了大量投资，以确保我们的安全和支持业务并保持我们的经济发展。”
+G-News发布：小满；
 
-该州在失业救济补助计划上花费了 35 亿。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
 
-尽管赤字急剧增加，但政府继续承诺在 2024-25 年会扭亏为盈。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-“支出措施是临时性的、有针对性的，这意味着我们能够规划一条回到盈余的道路，”基恩先生说。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-财政部长并没有排除更多的资产私有化来实现这一结果，并仍然致力于政府 1100 亿元的基础设施建设计划。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-半年度审查还预测，到 2024-25 年的四年内，收入将比 6 月预算中的预测多 142 亿元。
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-“我们的经济正在复苏，”基恩先生说。
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-“印花税上涨，商品及服务税收入增加，矿业特许权使用费也增加。”
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-财政部长仍然不承诺推行其前任现任州长多米尼克·佩罗特的改革，以用年度土地税取代印花税。
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-“如果我们从印花税过渡到基础广泛的土地税，这将在短期内对该州的财务报表产生财政影响，”基恩先生说。
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
-财政部长已承诺在明年第一季度之前恢复在封锁期间失去的 234000 个工作岗位。
-
-如果中共当初没有释放病毒，或者政府早点选择放弃掏空国库却又无用的疫苗而转用廉价却有效的药物治疗那么这一切是否就不会发生。疫情和疫苗衍生出的一系列次生灾难正在摧毁澳大利亚，经济灾难只是其中之一，最终这一切的恶果都会算在中共头上。
-
-参考链接：
-[NSW budget deficit blows out to almost $20b because of COVID-19 lockdown – ABC News](https://www.abc.net.au/news/2021-12-16/nsw-budget-deficit-blows-out-because-of-covid19-lockdown/100705080)
-
-发稿：MG4
-![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

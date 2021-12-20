@@ -2,52 +2,27 @@
 ---
 
 
-## 墨尔本反疫苗示威者再次游行
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1773727/)
+## 英国：圣诞节前或将出台更为严厉的防疫政策
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1773776/)
 
-拟稿：金生水
-![](https://assets.gnews.org/wp-content/uploads/2021/12/墨尔本.png)
-图片来自网络
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2021/12/202.jpg)图片来自网络
+由于新增感染的迅速增加以及 Omicron 变异毒株的持续不确定性，英国卫生部长表示不排除在圣诞节前实施更严格的 COVID-19 限制。
 
-雅虎新闻近日报道，来自澳大利亚的抗议者们再次走上街头，要求摆脱中共病毒大流行，并反对强制接种疫苗。
+英国卫生部长贾维德表示，政府目前正在评估快速发展的局势，并敦促公众在科学家对数据进行研究期间保持谨慎和警惕态度。同时他强调，即使医院已经准备好应对新增感染激增的情况，关于这种高速传播的新变种仍有很多未知数。
 
-抗议者周六再次聚集在墨尔本的中央商务区，以表明他们反对任何中共病毒限制，尽管他们大多被撤回并呼吁“选择权”。
+当被问及是否可能出台新的限制措施时，贾维德回答：“我认为在这种病毒大流行状况当中不存在任何保证或确定的事情……在这个时间点上，我们还在进行各种探讨和研究。”
 
-在抗议活动中拍摄的视频显示，参与游行的人士高呼“没有疫苗护照”。
+英国首相约翰逊上周恢复了要求在店内戴口罩的规定，并命令人们在进入夜总会和其他人多拥挤的场所之前出示疫苗接种证明或病毒检测阴性证明。同时他开始支持新的疫苗接种计划，该计划仅在星期六就进行了 830,000 次CCP病毒加强针注射。
 
-“醒醒，暴政来了，”一个牌子说。
+疫苗接种点被要求每周 7 天、每天 12 小时营业，购物中心、大教堂和足球场都被成为了大规模疫苗接种中心的一部分。一些站点甚至处于每天 24 小时的运营状态，内部员工则采取轮班工作的方式。
 
-人群中点缀着尤里卡寨子的旗帜，这是右翼团体近年来采用的旗帜。
+上周日，英国一天内又出现了 82,886 例CCP病毒新增确诊病例。目前在英国由于CCP病毒死亡的人数已经超过 147,000 人，这使得英国已经成为仅次于俄罗斯的欧洲CCP病毒死亡人数最高的国家。
 
-抗议者在墨尔本游行时高呼“拯救我们的孩子”。
+新闻参考链接：[9 News](https://www.9news.com.au/world/coronavirus-uk-updates-pandemic-rules-could-tighten-by-christmas-omicron-variant-surge/81831a24-ea47-4d28-999e-bb61bb8f11a2)
 
-据《先驱太阳报》报道，抗议者于中午在国会大厦会面，随后又包围了墨尔本西警察局。
-
-据《先驱太阳报》报道，一名抗议者进入警察局给警员送达文件。 目前尚不清楚原因。
-
-维多利亚警方证实，周六没有因抗议活动而逮捕任何人。
-
-今天早上，该州报告了 1504 例新的中共病毒病例，除 5 例外，其余病例均在当地感染。
-
-维多利亚州在本周略微放宽了对新冠病毒的限制，在一些情况下取消了疫苗规定，但零售店仍强制要求戴口罩。
-
-购物者不再需要证明他们已接种疫苗即可前往非必要的零售店、礼拜场所、婚礼、葬礼以及房地产检查和拍卖。
-
-在维多利亚州，92% 的 12 岁以上的人都接种了中共病毒疫苗。
-
-周六是中共病毒大流行期间澳大利亚第一次在全国单日内报告的病例超过 4000 例。
-
-走上街头的勇士们反对的是强制施打疫苗，反对的是这个未经正常程序实验测试的疫苗，严格来说这根本不是真正的疫苗。维多利亚州92% 的 12 岁以上的人都接种了这个所谓的疫苗，而在新南威尔士州上个月就已经有90%的人完全接种了疫苗，那为什么这两个周单日内报告的病例居然能够超过 4000 例？
-
-尽管这两个州针对疫情封锁的限制都有所放松，但还需警惕政府会把病例激增的责任推卸到未接种疫苗的人身上。所以游行反抗不能停，直到政府停止强制施打疫苗，彻底解除对未接种过疫苗的人士活动的限制，并且推动药物治疗。
-
-参考链接：
-[Melbourne protesters swarm police station (yahoo.com)](https://au.news.yahoo.com/melbourne-protesters-swarm-police-station-063652412.html)
-[NSW hits 90 per cent COVID-19 fully vaccinated target – ABC News](https://www.abc.net.au/news/2021-11-09/nsw-reaches-90-per-cent-covid-19-double-vaccination/100600014)
-[Australia records more than 4,000 daily Covid cases for first time – as it happened | Australia news | The Guardian](https://www.theguardian.com/australia-news/live/2021/dec/18/australia-live-news-updates-omicron-surge-strains-covid-testing-sites-tasmania-bans-jumping-castles-from-state-schools-after-tragedy)
-
-发稿：MG4
-![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-1.jpg)
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
