@@ -2,57 +2,28 @@
 ---
 
 
-## 美学者警告比特币或不久将消失
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1772870/)
+## 奥密克戎变异株已在89国发现 感染病例翻倍增长
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1772949/)
 
-作者：香草山佛教部 -文一
+![荷兰东部城市奈梅亨市民在拥挤的街道上采购节日礼物。荷兰政府已经宣布将封城防止奥密克绒变异病毒的传播。](https://gdb.voanews.com/5AFE22CD-4B5A-4436-9C82-5801FA1A1ABE_w1023_r1_s.jpg)荷兰东部城市奈梅亨市民在拥挤的街道上采购节日礼物。荷兰政府已经宣布将封城防止奥密克绒变异*病毒的传播。*
+据美国之音12月19日报道，世界卫生组织18日表示，传染力超强的奥密克戎（Omicron）变异毒株已在89个国家被发现。该毒株很可能会代替德尔塔（Delta）变异毒株，成为占主导的新冠病毒毒株。而由该变异毒株造成的感染病例每1.5到3天内便翻倍增加，甚至在新冠疫苗接种率很高，或者很多人口已从感染病毒中康复的国家迅速传播。
 
+世卫提出了很多疑问，唯独没有问问：病毒来自哪里？为什么疫苗打得越多，变种越多？
 
+新闻参考链接：[https://www.voachinese.com/a/omicron-detected-in-89-countries-cases-doubling-fast-20211219/6360883.html](https://www.voachinese.com/a/omicron-detected-in-89-countries-cases-doubling-fast-20211219/6360883.html)
 
+编辑：胖丁
 
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-
-
-据外媒12月17日报道，康奈尔大学国际贸易政策高级教授埃斯瓦尔·普拉萨德本月早些时候发出警告，称”比特币本身不久或将消失”。
-
-他指出，比特币价格持续极度波动，在刚过去的一个月中，又一次从5万8千美元左右跌至不到4万8千美元。 现在加密货币的数量从过去的屈指可数增长至今天的数百种，其中有些比比特币更实用，更环保。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-240.jpg)
-区块链是大多数加密货币背后的底层技术，本质上是一个虚拟货币交易的数字分类账，分布在全球计算机网络中。但比特币对这种技术的运用效率不高，造成了很大的环境破坏，远不如一些新兴加密货币。
-
-普拉萨德更指出，区块链技术将 “从根本上改变 “金融的方式，以及我们进行日常交易的方式。加密货币可为每个人提供一种低成本支付选择，而比特币无法很好的作为一种交易媒介，除了投资者对其的信心之外，其本身不具任何价值。因此比特币终将消失。
-
-普拉萨德此番言论与郭文贵先生一直以来对比特币的定论不谋而合，而比特币作为洗钱犯罪工具的暗黑本质也将日益暴露而加速其消亡。
-
-参考链接：
-[Bitcoin ‘may not last that much longer,’ academic warns](https://www.cnbc.com/2021/12/17/bitcoin-may-not-last-that-much-longer-academic-warns.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
-
-总编：文特
-编辑：Lakeman文仁
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
