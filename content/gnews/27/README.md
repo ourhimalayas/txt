@@ -2,40 +2,36 @@
 ---
 
 
-## 中共病毒与出血热同时笼罩在西安城
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1774146/)
+## 心脏协会研究发现：98% 的儿童心肌炎病例都归咎于中共病毒疫苗
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1774255/)
 
-作者 台湾宝岛农场 Y.M.O
-![](https://assets.gnews.org/wp-content/uploads/2021/12/螢幕擷取畫面-2021-12-20-211438-e1640006126401.png)
-2021年12月18日西安新闻网讯，今年入冬以来，西安市各大医院已相继接诊多例出血热患者。由于流行性出血热早期症状和普通流感较相似，所以不少患者会误以为是普通的感冒。市疾控专家特别提醒：出血热发病急、进展快，一旦市民出现发烧发热等身体不适应及时就医。出血热的治疗强调“三早一就”，早发现、早休息、早治疗、就近治疗，接种疫苗是个人预防该病的最有效方法。
+原文出处：THE EXPOSE
 
-以上算是中共的官方说辞，相信实际情况肯定更加严重。并且麻烦还不止于此，根据西安市12月19日下午新闻发布会的说法，12月18日0时-24时新增中共病毒本土确诊病例10例，本土无症状感染者3例。而私下有西安当地人表示他附近确实有封闭管理的状况，但不确定是因为中共病毒还是出血热。不论是封闭区域还是两种病毒的同时存在，信息越来越难以传递，真实情况也越来越控制不住这是一定的。
+翻译：尚劲哥
 
-中华预防医学会秘书长冯子健接受《环球时报》记者采访时表示，出血热很难人传人。首先流行性出血热是动物源性传染病，由汉坦病毒引起，主要通过鼠类传播，几乎不会出现人传人现象。第二陕西省关中地区、西安的一些郊区县在每年的十月到次年的三四月份是相对高发的地区，第三随着医疗水平提升如今传播和暴露感染风险已显著降低，致死率也已降至低位。
+美国心脏协会发表了一项新研究，该研究发现，98% 的儿童心肌炎病例是由于 mRNA Covid-19疫苗 注射引起的。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image001-14.png)
+这项新研究（[https://www.ahajournals.org/doi/10.1161/CIRCULATIONAHA.121.056583](https://www.ahajournals.org/doi/10.1161/CIRCULATIONAHA.121.056583) ）由来自美国多所大学、儿童医院和医学院的数十名医生和科学家实施，并于 2021 年 12 月 6 日发表在美国心脏协会 (AHA) 的期刊《Circulation》上。
 
-再来回顾一下文贵先生9月23日大直播的相关内容。
+研究人员调查了 139 名儿童和年轻人，共发生了 140 次疑似心肌炎，其中 49 次被确诊，91 次疑似。 大多数患者为男性 (126)，中间年龄为 15.8 岁。  心肌炎是心肌的炎症，而心包炎是心脏周围保护囊的炎症。 由于心脏在保持人的生命中起着至关重要的作用，而且心肌无法再生，这两种情况都是极其严重的情况， 严重的心肌炎会导致心脏骤停，让人的寿命缩短。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image003-3.png)
+结果显示，136 名患者出现疑似心肌炎，相当于所有心肌炎病例的 98%。 这些病例中 131 例（94%）是因注射辉瑞疫苗而引发的，其中 128 例（92% ）发生在第二次注射后。  研究人员在他们的发现中指出，最常见的症状是胸痛，发生在 99% 的患者身上，26 名患者 (19%)因这种情况被送进重症监护室。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image006-1.gif)
+根据英国政府医学监管机构 （MHRA ）发布的最新消息，截至 2021年11 月 17 日 ，已有 686 例心肌炎和 578 例心包炎报告为 Covid-19疫苗的不良反应。 在报告中，有18,354 例心脏疾病，其中有290 例死亡。
 
-**现在的毒都属于冠状病毒这一株的，我们的欧洲的科学家头两天跟我说，他说再放，如果说共产党疯狂再放，他说就不是这个了，再放出来的毒叫热毒，记住我今天的话，叫热毒。什么叫热毒啊？就是你放完了(毒)，立马就七窍出血结束，就是剧毒型的，没有什么反应期，没有反应期！记住我说的话啊，再有毒的时候就是七窍流血，而且几乎是死亡率奇高。**
+然而，众所周知，MHRA 严重漏报了疫苗的不良反应，此前称仅报告了 其中的10% 。
 
-中共病毒传播率很高致死率相对较低，出血热传播率较低但致死率相对较高，目前这两者同时存在于西安城。官方一再强调出血热是北方常见的传染性疾病，不过既然常见的话现在应该也有很好的一个处理机制才是。西安的出血热能够冲上热搜说明目前的患者数量已经超过了西安医疗体系的处理能力，不然不会去互联网求助。或者是西安的医护减员严重，或者是出血热病毒数量暴增，还有出血热病毒发生了自然或者人工变异，以上这些假设无一例外都属于文贵先生直播中叙述过的范畴。
+11 月 29 日，英国卫生安全局 (UKHSA) 确认Covid 疫苗注射导致了心脏疾病的风险，  UKHSA 发布了临床指南，支持与 Covid疫苗 注射相关的心肌炎和心包炎临床病例的检测和管理。 尤其是对于 儿童和40 岁以下的人。  UKHSA 临床建议的第一部分：背景中列出了一些要点，（[https://www.gov.uk/government/publications/myocarditis-and-pericarditis-after-covid-19-vaccination/myocarditis-and-pericarditis-after-covid-19-vaccination-guidance-for-healthcare-professionals](https://www.gov.uk/government/publications/myocarditis-and-pericarditis-after-covid-19-vaccination/myocarditis-and-pericarditis-after-covid-19-vaccination-guidance-for-healthcare-professionals) ）其中第五项为：入院儿童中有很高的比例患有心肌炎。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image007.png)
+9 月初，疫苗接种和免疫联合委员会 (“JCVI”) 无法证明向儿童提供实验性接种疫苗是合理的（[https://dailyexpose.uk/2021/10/08/less-than-10-percent-of-children-over-age-12-have-had-the-covid-vaccine/](https://dailyexpose.uk/2021/10/08/less-than-10-percent-of-children-over-age-12-have-had-the-covid-vaccine/) ）。 众所周知，儿童很少患有严重的 Covid-19 感染疾病，更不用说丧生了，而且 Covid-19 疫苗并不能预防病毒感染或传播。 英格兰首席医疗官克里斯·惠蒂 (Chris Whitty) 及其同僚决定为儿童接种疫苗，且政府同意实施，这都是史无前例的。 在此之前，他们一直遵循 JCVI 的建议。
 
-此时此刻真是担心西安民众的安全状况，中共病毒可以让你集中隔离，出血热则可以集中消灭相关人群。要知道中共病毒一开始出现的时候大家也觉得是普通的感冒病毒，而这次的出血热也有可能就是那个新的热毒。另外非常多的相关报道都强调了接种疫苗是个人预防该病的最有效方法，很明显想要通过习惯性思维把更多无知的民众带入中共病毒疫苗的坑中。拿暂时无害的出血热疫苗作为参照，拿中共的信用背书证明中共病毒疫苗的有效。
+但现在整个国家以 Omicron 的名义，不再遵循该建议，向所有 12 岁以上的儿童提供第二剂疫苗，尽管当局知道儿童在第二剂后更容易患心肌炎，正如美国心脏协会发布的新研究那样 （[https://www.ahajournals.org/doi/epdf/10.1161/CIRCULATIONAHA.121.056583](https://www.ahajournals.org/doi/epdf/10.1161/CIRCULATIONAHA.121.056583) ）。
 
-新闻链接
+[援引原文](https://dailyexpose.uk/2021/12/15/study-finds-covid-vaccines-to-blame-for-98-percent-cases-myocarditis/)
 
-[https://m.weibo.cn/1992613670/4715890903615934](https://m.weibo.cn/1992613670/4715890903615934)
+审核校对：sherryok (水云间)
 
-微博中西安新闻网的原文链接无法打开，怀疑已被删除
-
-[https://m.huanqiu.com/article/463ERBUrheS](https://m.huanqiu.com/article/463ERBUrheS)
-
-* * *
-
-***更多资讯***
-[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
-[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
-[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+上传排版：漂流瓶
 
  
 
