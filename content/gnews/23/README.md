@@ -2,51 +2,52 @@
 ---
 
 
-## 美大学校长严厉斥责持续骚扰恐吓别人的中共留学生
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1772816/)
+## 西安出现出血热疫情
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1772826/)
 
-作者：纽约香草山文艺部 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-5-768x103-17.jpg)
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+作者：纽约香草山 医疗部 云豹
 
 
 
-12月15日，美国普渡大学校长向全校师生发出公开信，谴责该校一些中共留学生对一位批评中共政策、支持“六四”事件的学生及其国内家人的持续骚扰恐吓行为，并称如果不支持言论自由，“最好走人”。
+陕西西安疾控中心于当地时间12月18日发布公告警示，入冬后已经发现多例出血热的感染病患，提醒民众要注意防鼠除鼠。
 
-在该校就读土木工程博士的孔同学去年发起纪念“六四”的签名活动后，一些留学生就持续跟踪孔同学，称他为CIA特工，并向大使馆举报。中共国国安威胁孔的父母，要求他们立即阻止儿子在海外参与政治活动。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1.2-9.jpg)
-事件被媒体披露后，校长米奇·丹尼尔斯为孔同学受到长时间骚扰、学校一无所知而痛心。他在公开信中说，没有什么比自由的探索和表达更重要，加入普渡大学就需要接受学校的规则和价值观，其中最重要的就是言论和求知的自由。与外国政府共谋来打压这些权利的人，请另寻他处。 随后，前述中共留学生在校园内发起联署，要求丹尼尔斯就严厉的措辞道歉。他们的嚣张气焰激怒了其他族裔的同学，另一个要求开除他们的联署迅速展开，目前获得的签名已经接近13000个。据悉，2020年普渡大学中共国留学生总人数为2756人，平时由普渡大学学生学者联合会组织活动，背后受芝加哥领事馆掌控。
+出血热是由汉他病毒所造成，在西安区域的媒介传染源是黑线姬鼠。传染的途径可经由老鼠咬伤，食用了被老鼠污染的食物和饮水，吸入或接触被带有汉他病毒的鼠粪尿污染的飞扬尘土、物体，都可能感染出血热。最常出现感染病例的是在野外工作的农民、从事粮食加工的工人，以及群体在学校用餐的学生。
 
-参考链接：
-1. [“不支持言论自由，就别来上学” 普渡大学校长发信斥责骚扰他人的中国留学生](https://www.voachinese.com/a/purdue-university-responds-to-chinese-student-harassment-20211216/6357847.html)
-2. [美国公立学校排名第18的普渡大学（Purdue University）校长向全校师生发出公开信，要部分中国学生别再骚扰1名孔姓学生，校长丹尼尔斯（Mitch Daniels）在信里撂话，如果不尊重言论自由就别来这里。](https://twitter.com/williamlong/status/1472015189725700100?s=21)
-3. [Expel the students that harassed Purdue student Zhihao Kong](https://www.change.org/p/purdue-university-expel-the-students-that-harassed-purdue-student-zhihao-kong)
+汉他病毒出血热感染后潜伏期为数天至两个月，主要症状为突然且持续性的发烧、结膜充血、虚弱、背痛、头痛、腹痛、厌食、呕吐等，在第3至6天出现出血症状，随后出现蛋白尿、低血压或少尿，部分患者会出现休克或轻微肾病变，并可能进展成急性肾衰竭，如果不适时治疗，严重的病患可能致死。但是如果有经过适当治疗，病况可能改善。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+民众平时注意保持环境卫生，留意环境中老鼠可能入侵的路径，妥善处理家中厨余，并清除家中老鼠可能躲藏的死角。经营餐厅、饭店、小吃摊、市场、食品工厂等业者应留意环境卫生，不让所在的建筑物有鼠类的生存空间，是预防汉他病毒最有效的方法。
 
-总编：飞虹
-编辑：Lakeman文仁
-校对/发稿：为真不破20
+文贵先生之前有警示，中共下一波有可能释出热性病毒，此次西安的出血热流行，应提高警觉。
 
-**更多资讯，更多关注**
+(本文为作者观点，不代表G NEWS立场)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+参考连接：
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[http://www.xhby.net/index/202112/t20211219\_7354237.shtml](http://www.xhby.net/index/202112/t20211219_7354237.shtml)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[https://www.cna.com.tw/news/acn/202112190137.aspx](https://www.cna.com.tw/news/acn/202112190137.aspx)
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec.png)
 
 
+
+校对/编辑/发稿：云豹
+
+**更多信息，更多关注**
+
+[**纽约香草山农场**** GTV****–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
  
 

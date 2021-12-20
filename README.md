@@ -15,83 +15,83 @@
 
 ---
 
-### [文·贵天成——郭文贵先生谈“中原佛手、裕达国贸”（五）](/content/gnews/1/README.md)
+### [文·贵天成——文贵先生谈“中原佛手、裕达国贸”（六）](/content/gnews/1/README.md)
  ` 墨尔本雅典娜农场`
 
-### [文雍漫谈：一种突破底线的无耻](/content/gnews/2/README.md)
+### [20211212文贵大直播灭共关键词](/content/gnews/2/README.md)
+ ` 澳喜农场`
+
+### [文·贵天成——郭文贵先生谈“中原佛手、裕达国贸”（五）](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [文雍漫谈：一种突破底线的无耻](/content/gnews/4/README.md)
  ` 文雍`
 
-### [港闻前线｜“完善”选制完败不合作运动 立法会选举投票率创历届新低](/content/gnews/3/README.md)
+### [港闻前线｜“完善”选制完败不合作运动 立法会选举投票率创历届新低](/content/gnews/5/README.md)
  ` 關注組`
 
-### [香港议会选举结果，投票率有史以来最低](/content/gnews/4/README.md)
+### [香港议会选举结果，投票率有史以来最低](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2万现役美军拒绝接种毒疫苗或被开除](/content/gnews/5/README.md)
+### [2万现役美军拒绝接种毒疫苗或被开除](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [乔拜登即将宣布抗击 Omicron 的新措施向未接种疫苗者发出“严重警告”](/content/gnews/6/README.md)
+### [乔拜登即将宣布抗击 Omicron 的新措施向未接种疫苗者发出“严重警告”](/content/gnews/8/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [加农业专家因隐瞒与中共国大学的联系而被控欺诈](/content/gnews/7/README.md)
+### [加农业专家因隐瞒与中共国大学的联系而被控欺诈](/content/gnews/9/README.md)
  ` 首尔天池农场`
 
-### [20211210文贵大直播灭共关键词](/content/gnews/8/README.md)
+### [20211210文贵大直播灭共关键词](/content/gnews/10/README.md)
  ` 澳喜农场`
 
-### [麻省理工学院博士对英国下议院说：“对知道大流行起源的人来说，站出来是不安全的”](/content/gnews/9/README.md)
+### [麻省理工学院博士对英国下议院说：“对知道大流行起源的人来说，站出来是不安全的”](/content/gnews/11/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [奥密克戎变异株已在89国发现 感染病例翻倍增长](/content/gnews/10/README.md)
+### [奥密克戎变异株已在89国发现 感染病例翻倍增长](/content/gnews/12/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共愚民，民须自我觉醒](/content/gnews/11/README.md)
+### [中共愚民，民须自我觉醒](/content/gnews/13/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [加拿大联邦和省政府正对Omicron变种毒株传播做准备](/content/gnews/12/README.md)
+### [加拿大联邦和省政府正对Omicron变种毒株传播做准备](/content/gnews/14/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [开展示威活动，安全的方式进行并符合市政法规](/content/gnews/13/README.md)
+### [开展示威活动，安全的方式进行并符合市政法规](/content/gnews/15/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [秘翻在线：川普要求中共为新冠全球疫情赔偿60万亿美元](/content/gnews/14/README.md)
+### [秘翻在线：川普要求中共为新冠全球疫情赔偿60万亿美元](/content/gnews/16/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [拜登政府缺席的情况下德克萨斯-墨西哥边境墙的建设即将开始](/content/gnews/15/README.md)
+### [拜登政府缺席的情况下德克萨斯-墨西哥边境墙的建设即将开始](/content/gnews/17/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [喜马拉雅币一周分析与总结（12月13日-12月19日）](/content/gnews/16/README.md)
+### [喜马拉雅币一周分析与总结（12月13日-12月19日）](/content/gnews/18/README.md)
  ` GTV新闻访谈`
 
-### [美学者警告比特币或不久将消失](/content/gnews/17/README.md)
+### [美学者警告比特币或不久将消失](/content/gnews/19/README.md)
  ` GTV新闻访谈`
 
-### [秘翻在线：川普：拜登因对习的畏惧而政策走偏](/content/gnews/18/README.md)
+### [秘翻在线：川普：拜登因对习的畏惧而政策走偏](/content/gnews/20/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [文·贵天成——文贵先生谈“中原佛手、裕达国贸”（四）](/content/gnews/19/README.md)
+### [文·贵天成——文贵先生谈“中原佛手、裕达国贸”（四）](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [20211208文贵大直播灭共关键词](/content/gnews/20/README.md)
- ` 澳喜农场`
-
-### [学做菜，对抗中共病毒](/content/gnews/21/README.md)
+### [学做菜，对抗中共病毒](/content/gnews/22/README.md)
  ` 纽约香草山MOS03`
 
-### [西安出现出血热疫情](/content/gnews/22/README.md)
+### [西安出现出血热疫情](/content/gnews/23/README.md)
  ` 纽约香草山MOS03`
 
-### [美大学校长严厉斥责持续骚扰恐吓别人的中共留学生](/content/gnews/23/README.md)
+### [美大学校长严厉斥责持续骚扰恐吓别人的中共留学生](/content/gnews/24/README.md)
  ` GTV新闻访谈`
 
-### [纽约立法规定可根据州长的意愿无限期拘留未接种疫苗的人](/content/gnews/24/README.md)
+### [纽约立法规定可根据州长的意愿无限期拘留未接种疫苗的人](/content/gnews/25/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [只有对党忠心的人才能获准香港立法机构的投票选举 （下）](/content/gnews/25/README.md)
+### [只有对党忠心的人才能获准香港立法机构的投票选举 （下）](/content/gnews/26/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [文贵爆料12.19.2021 两个不利消息：感染中共病毒超50%致癌率 经济黑暗时代将长达5-10年](/content/gnews/26/README.md)
- ` 秘密翻译组-原创组`
 
 ### [华夏速报：“12 月 19 日，福克斯对前总统川普进行了专访：川普指出新冠病毒来自武汉实验室](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
@@ -171,23 +171,23 @@
 ### [高官借口岸选民 暗讽本地港人冷淡](/content/gnews/52/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [换汤不换药 香港延长居屋禁售期](/content/gnews/53/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [12/19/2021国内经济财经周报：地产巨头预告式暴雷；潘石屹因偷税被重罚](/content/gnews/54/README.md)
+### [12/19/2021国内经济财经周报：地产巨头预告式暴雷；潘石屹因偷税被重罚](/content/gnews/53/README.md)
  ` 秘密翻译组金融团队`
 
-### [12/18/2021国际财经快讯：美联储3月会议上可能会加息;标普500消极一周后收跌](/content/gnews/55/README.md)
+### [12/18/2021国际财经快讯：美联储3月会议上可能会加息;标普500消极一周后收跌](/content/gnews/54/README.md)
  ` 秘密翻译组金融团队`
 
-### [也给共匪掐指一算（二）](/content/gnews/56/README.md)
+### [也给共匪掐指一算（二）](/content/gnews/55/README.md)
  ` 骄子`
 
-### [也给共匪掐指一算（一）](/content/gnews/57/README.md)
+### [也给共匪掐指一算（一）](/content/gnews/56/README.md)
  ` 骄子`
 
-### [军情启示录节目专访郝海东先生](/content/gnews/58/README.md)
+### [军情启示录节目专访郝海东先生](/content/gnews/57/README.md)
  ` 军情启示录`
+
+### [汇丰因反洗钱漏洞被英国金融监管局罚款6千多万英镑](/content/gnews/58/README.md)
+ ` 日本东京方舟农场`
 
 ### [班农先生荣获《国家脉动》第二届年度爱国者奖](/content/gnews/59/README.md)
  ` 墨尔本雅典娜农场`
