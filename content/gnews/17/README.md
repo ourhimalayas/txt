@@ -2,36 +2,41 @@
 ---
 
 
-## 纽约疫情失控 前线医生禁谈疫苗后遗症
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1774877/)
+## 彭帅接受媒体采访否认性侵指控反而引发更多怀疑与担忧
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1774915/)
 
-作者：纽约香草山农场 文真
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月18日，纽约市新增中共病毒感染人数近2万2千例，继上周五后，再次创下单日感染最高记录。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-20-下午11.56.05.png)
-新增感染病例主要来自欧米康变体。过去三天内，中共病毒感染率增加了三倍，住院率也随之增加。此前，美国CDC统计数据显示，近八成欧米康变体感染病例，来自完全接种过中共病毒疫苗人群。
+**撰稿：日本东京方舟农场 北极**
 
-一位一线临床家庭医生爆料，近日，纽约各地区医院和诊所陆续收到通知，告诫他们不许与病人谈论疫苗副作用。如被发现，则将被直接解雇。
+据《德国之声》中文网12月20日报道，中共国网球名将彭帅周日（12月19日）在上海接受《联合早报》采访时，否认之前曾指控中共前副总理张高丽对自己实施性侵。她劝读者不要过度曲解她所发的相关微博内容，同时还表示自己的人身自由未受到限制。
 
-郭文贵先生在近期的直播中透露，中共释放新的变种病毒，一方面为了掩盖疫苗后遗症；另一方面为了与黑暗组织配合，在全世界加速疫苗强制接种。
+然而，这并没有解除之前外界的各种疑虑，反而引发了人们对于彭帅目前真实境况的怀疑与担忧。
 
-参考链接：
-1）[https://gettr.com/post/pk12553a0d](https://gettr.com/post/pk12553a0d)
-2）[New York state sets coronavirus record for second straight day](https://news.yahoo.com/york-state-sets-coronavirus-record-123405360.html?guce_referrer=aHR0cHM6Ly93d3cuYmluZy5jb20v&amp;guce_referrer_sig=AQAAABty7WGd-ZLq0s71mwFelRKo8N4Zy4Ghn-b_lUsp22-HTT91AVqz07WGzMqz50LxOcRUONUH_gCuzqRaLYVsGM9Jncb45rr1gMceAWDEyO5oaKNgwh6U57vapyZG3a-Nt4glkmzShVvz8qsouyy8HoGPSphBNz3htalhKrZQJoem&amp;guccounter=2)
+彭帅是世界知名网球名将，也是中共国排名最高的网球运动员之一。她在2014年时双打排名世界第一；单打排名最高时也曾排到世界第14位。
 
-![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+不久前，彭帅在微博上发文揭露自己受到中共前副总理张高丽的性侵扰，引起了全世界的关注。随后，彭帅的微博内容遭中共审查机构火速删除，而她本人也在相当长的一段时间里消失于公众视野中。这引起了人们对于彭帅是否自由和安全的担忧。
 
-总编：Jack Li文阳
-编辑：Kathy文艺
-校正/发稿：呼吸的雾霾（文小呼吸）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-256.png)图片截屏自youtube
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+随后，“#彭帅在哪里”的话题在全球社交媒体上引起了轰动。中共为此不得不做出一场场戏，试图用彭帅的照片、视频，甚至和国际奥委会主席的通话来证明彭帅是“安全且自由”的。然而，已陷入“塔西佗陷阱”的中共无论怎么做都消除不了人们对于此事的怀疑和担忧。
+
+本周日，彭帅与中共国篮球明星姚明等数名前运动员一起现身上海，观看“2021国际雪联城市越野滑雪中国巡回赛上海杨浦站”的比赛。在那里，她“偶遇”了《联合早报》记者，并首次接受了媒体采访。
+
+在采访中，彭帅否认之前有关性侵的指控，并表示微博内容属于个人隐私，劝读者不要“过度曲解”。此外她还表示自己的人身自由并未受到限制。
+
+然而，YouTube网站上的视频片段显示，在彭帅接受采访时，现场立即有数名执勤人员围拢过来，并且还避开了镜头。 不难看出，这一所谓的“偶遇”采访是刻意安排的，并且彭帅并不像她所说的“人身自由并未受到限制”，而这更加引发了人们对于彭帅目前真实境况的怀疑与担忧。
+
+*参考链接：*
+
+[彭帅首度对外媒发声 称“从未说过被性侵”](https://www.dw.com/zh/%E5%BD%AD%E5%B8%85%E9%A6%96%E5%BA%A6%E5%AF%B9%E5%A4%96%E5%AA%92%E5%8F%91%E5%A3%B0-%E7%A7%B0%E4%BB%8E%E6%9C%AA%E8%AF%B4%E8%BF%87%E8%A2%AB%E6%80%A7%E4%BE%B5/a-60190091)
+
+* * *
+
+*素材采编：北极*
+
+*编辑：青衣青青*
+
+*发布：Ranting*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

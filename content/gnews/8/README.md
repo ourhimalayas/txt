@@ -2,16 +2,12 @@
 ---
 
 
-## 西媒头条 — 第134期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1775022/)
+## 为何愈来愈多医师反对强制接种疫苗
+` MG 澳喜农场多语组` [轉載自GNews](https://gnews.org/zh-hans/1775095/)
 
-**制作: **蚂蚁兄弟
+医师们认为，如果政府现在试图给尽可能多的人注射这种显然几乎没有必要但却有潜在危险的疫苗，那么我们就应该合理地怀疑。我们应该质疑，政府想借此达到什么目的。
 
-**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2021.12.19.pptx.jpg)
-*发稿 : Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-4.jpeg)
-
+原视频链接：https://twitter.com/JoFresh0/status/1471053440063348736?s=20
 
  
 
