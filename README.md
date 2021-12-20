@@ -15,83 +15,83 @@
 
 ---
 
-### [彭帅否认遭到性侵，并说她关于此事的微博被误读](/content/gnews/1/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [拜登执政期间美国死于中共病毒的人数比川普时期更多](/content/gnews/2/README.md)
+### [墨尔本成千上万的民众再次上街抗议政府强制疫苗令](/content/gnews/1/README.md)
  ` 日本东京方舟农场`
 
-### [标准普尔撤销中国恒大评级](/content/gnews/3/README.md)
+### [彭帅否认遭到性侵，并说她关于此事的微博被误读](/content/gnews/2/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [拜登执政期间美国死于中共病毒的人数比川普时期更多](/content/gnews/3/README.md)
+ ` 日本东京方舟农场`
+
+### [标准普尔撤销中国恒大评级](/content/gnews/4/README.md)
  ` 澳喜特战旅Gnews`
 
-### [川普要求中共国为全球冠状病毒大流行支付巨额赔偿](/content/gnews/4/README.md)
+### [川普要求中共国为全球冠状病毒大流行支付巨额赔偿](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共国大咖级带货女主播被罚13亿](/content/gnews/5/README.md)
+### [中共国大咖级带货女主播被罚13亿](/content/gnews/6/README.md)
  ` 澳喜特战旅Gnews`
 
-### [12/20/2021国际财经快讯：美国“超级星期六”将吸引最后一刻购物者；木材价格又飙升](/content/gnews/6/README.md)
+### [12/20/2021国际财经快讯：美国“超级星期六”将吸引最后一刻购物者；木材价格又飙升](/content/gnews/7/README.md)
  ` 秘密翻译组金融团队`
 
-### [文贵视角12.17 六十年一遇壬寅年 习（近平）彭（丽媛）相克定有一亡](/content/gnews/7/README.md)
+### [文贵视角12.17 六十年一遇壬寅年 习（近平）彭（丽媛）相克定有一亡](/content/gnews/8/README.md)
  ` 秘密翻译组-原创组`
 
-### [联邦调查局拍卖活动涉足加密货币市场](/content/gnews/8/README.md)
+### [联邦调查局拍卖活动涉足加密货币市场](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [波兰人全国范围举行抗议以捍卫媒体自由](/content/gnews/9/README.md)
+### [波兰人全国范围举行抗议以捍卫媒体自由](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线：用钱买来的北京冬奥会](/content/gnews/10/README.md)
+### [秘翻在线：用钱买来的北京冬奥会](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [12/20每日播报｜美国最高法院被要求暂停拜登政府对私营企业的强制疫苗规定](/content/gnews/11/README.md)
+### [12/20每日播报｜美国最高法院被要求暂停拜登政府对私营企业的强制疫苗规定](/content/gnews/12/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [七哥冬奥会悬念解惑五：界时北京什么地方会清城最厉害](/content/gnews/12/README.md)
+### [七哥冬奥会悬念解惑五：界时北京什么地方会清城最厉害](/content/gnews/13/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [七哥冬奥会悬念解惑四：盘古龙头和盘古大观是否会启用](/content/gnews/13/README.md)
+### [七哥冬奥会悬念解惑四：盘古龙头和盘古大观是否会启用](/content/gnews/14/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [七哥冬奥会悬念解惑三：习近平对到场外国政要接不接见](/content/gnews/14/README.md)
+### [七哥冬奥会悬念解惑三：习近平对到场外国政要接不接见](/content/gnews/15/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [中共国房地产压力让钢铁行业情况变糟，示警经济](/content/gnews/15/README.md)
+### [中共国房地产压力让钢铁行业情况变糟，示警经济](/content/gnews/16/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [12/20每日播报|社媒消息：布莱恩泰森医生 Newsmax](/content/gnews/16/README.md)
+### [12/20每日播报|社媒消息：布莱恩泰森医生 Newsmax](/content/gnews/17/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [七哥冬奥会悬念解惑二：钥匙澜会不会成为冬奥会主持人](/content/gnews/17/README.md)
+### [七哥冬奥会悬念解惑二：钥匙澜会不会成为冬奥会主持人](/content/gnews/18/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [秘翻在线：彭帅接受外媒采访，改口否认遭性侵“没说过，也没写过”](/content/gnews/18/README.md)
+### [秘翻在线：彭帅接受外媒采访，改口否认遭性侵“没说过，也没写过”](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：香港议会清一色亲中派，通过改变选举制度排除民主人士](/content/gnews/19/README.md)
+### [秘翻在线：香港议会清一色亲中派，通过改变选举制度排除民主人士](/content/gnews/20/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [纳瓦罗: 拜登、民主党人和中共国应该为美国的滞胀困境负责](/content/gnews/20/README.md)
+### [纳瓦罗: 拜登、民主党人和中共国应该为美国的滞胀困境负责](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [澳洲昆士兰超100名警员圣诞期间或将在家隔离](/content/gnews/21/README.md)
+### [澳洲昆士兰超100名警员圣诞期间或将在家隔离](/content/gnews/22/README.md)
  ` 澳喜特战旅Gnews`
 
-### [12/20每日播报｜第六巡回法院裁定继续执行拜登疫苗强制令](/content/gnews/22/README.md)
+### [12/20每日播报｜第六巡回法院裁定继续执行拜登疫苗强制令](/content/gnews/23/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [利物浦教练克洛普：球队不会签没打疫苗的球员](/content/gnews/23/README.md)
+### [利物浦教练克洛普：球队不会签没打疫苗的球员](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共西安出现多例出血热患者？](/content/gnews/24/README.md)
+### [中共西安出现多例出血热患者？](/content/gnews/25/README.md)
  ` 儒为`
 
-### [12/20每日播报｜荷兰、英国等许多欧洲国家因Omicron变种病毒的巨大威胁而重启封锁状态](/content/gnews/25/README.md)
+### [12/20每日播报｜荷兰、英国等许多欧洲国家因Omicron变种病毒的巨大威胁而重启封锁状态](/content/gnews/26/README.md)
  ` 秘密翻译组-即时新闻播报组`
-
-### [七哥冬奥会悬念解惑一：彭丽媛副主席会以何种形式出场](/content/gnews/26/README.md)
- ` 喜马拉雅日本银河系农场`
 
 ### [澳大利亚任命强硬派担任国家战略政策研究所负责人](/content/gnews/27/README.md)
  ` 澳喜农场`
