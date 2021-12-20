@@ -2,55 +2,60 @@
 ---
 
 
-## 前白宫经济顾问皮特·纳瓦罗：鲍威尔和习近平刚刚用通货膨胀中子弹袭击了美国
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1772525/)
+## 美中霸权战争的本质&#8212;-前韩国驻日本外交官禹东柱教授系列讲座一
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1772639/)
 
-前白宫经济顾问皮特·纳瓦罗： 感谢乔·拜登，杰伊·鲍威尔和习近平刚刚用通货膨胀中子弹袭击了美国。如果您想了解滞胀问题的复杂性，请阅读此处。 【附福克斯新闻：拜登，民主党和中共国应为美国的滞涨混乱负责】
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-639.png)
+整理：瑞沃路森
+上传：追着曙光跑
+![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Image-2021-12-20-at-11.22.28.jpeg)
+**美国的国家本质是什么？**
+**世界帝国    Global empire**
 
+源于英国移民→种族
+**央格鲁撒克逊民族     Anglo –Saxon**
 
+世界帝国
+一、英国—-殖民帝国 影响世界300年
+二、美国—-同盟帝国 影响世界100年
 
-> Thank Joe Biden, Jay Powell, and Xi Jinping for the inflation neutron bomb that just hit America. Good read here if you want to understand the complexities of the stagflation issue.[https://t.co/ngYhmlH7um](https://t.co/ngYhmlH7um)
-> — Peter Navarro (@RealPNavarro) [December 17, 2021](https://twitter.com/RealPNavarro/status/1471930037687496704?ref_src=twsrc%5Etfw)
+虽然国家不同，但同为盎格鲁撒克逊民族统治的世界帝国
+秉承罗马帝国的DNA
+一、基督教（宗教）
+二、罗马法（律法）
+三、罗马军团（军事）
 
+\*英语\* 成为世界语言
+英语国家成为同盟国
 
+**1776年美国提出独立宣言**
+人人生而平等—-All men are created equal
+**天赋人权 这是首次对人的大命题**
+**天赋人的基本权（Human Rights）**
+**如果政府（国家）无视人民基本权**
+**人民有权推翻政府**
 
-比尔·戈茨： 未提及的：[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 可能会故意制造假阳性新冠Covid 测试结果，以将特定的来访运动员排除在外，并使比赛对其自身有利。 【转华尔街日报：受疫情影响，北京冬奥会已经面临挑战。 Omicron可能会让情况变得更糟。】
+秉承独立宣言价值观的国家成为自由民主主义属同盟国
+与之相反的为集权主义：
+一、德国 纳粹主义 希特勒时期
+二、日本 军国主义
+三、苏联 共产主义
+极权主义三国都与盎格鲁撒克逊民族进行过战争。
+二战后，军国主义与纳粹主义灭亡。
+冷战后，苏联共产党灭亡。
+中国也是集权主义国家，没有个人权利跟自由，与欧盟国家，美国及其他发达国家完全不同。
+中美霸权战争的本质原因是由文明差异导致的冲突。
 
+二战后，战争犯罪委员会设立
+联合国成立（英国‘，美国、法国、俄罗斯，中国）
+对战争罪行进行惩罚—战争犯罪者，战犯。
 
+**二战：文明与野蛮的战争**
+野蛮：
+1、原始性野蛮
+2、破坏文明的野蛮—德国，日本。
 
-> Not mentioned: China could deliberately create false-positive Covid test results to sideline specific visiting athletes and skew the games in its favor [https://t.co/UDZvR7vW83](https://t.co/UDZvR7vW83)
-> — Bill Gertz (@BillGertz) [December 18, 2021](https://twitter.com/BillGertz/status/1472245094761652228?ref_src=twsrc%5Etfw)
-
-
-
-参议员迈克·布莱恩： 我与参议员汤姆·科顿的提案将遏制美国对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 药品的依赖。 我们不能任由我们最大的政治对手摆布。 【附布莱恩参议员在福克斯的视频】
-
-
-
-> My bill with [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw) will curb U.S. reliance on Chinese pharmaceuticals.
-> 
-> We cannot be at the mercy of our greatest political adversary. [@FoxBusiness](https://twitter.com/FoxBusiness?ref_src=twsrc%5Etfw) [@cvpayne](https://twitter.com/cvpayne?ref_src=twsrc%5Etfw) [pic.twitter.com/lEfu6tHTWQ](https://t.co/lEfu6tHTWQ)
-> — Senator Mike Braun (@SenatorBraun) [December 17, 2021](https://twitter.com/SenatorBraun/status/1471947371089125382?ref_src=twsrc%5Etfw)
-
-
-
-众议员拉惹·克里西那摩提： 我很自豪与众议员克里斯·斯图尔特 [@RepChrisStewart](https://twitter.com/RepChrisStewart) 共同撰写了两党的监督中共国-阿联酋合作法案，以保护我们的国家安全和美国技术免受 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 的侵害。
-
-
-
-> I am proud to have authored the bipartisan Monitoring China-UAE Cooperation Act with [@RepChrisStewart](https://twitter.com/RepChrisStewart?ref_src=twsrc%5Etfw) in order to protect our national security and American technology from the Chinese Communist Party.[https://t.co/shWc5DURXY](https://t.co/shWc5DURXY)
-> — Congressman Raja Krishnamoorthi (@CongressmanRaja) [December 17, 2021](https://twitter.com/CongressmanRaja/status/1471911830306103298?ref_src=twsrc%5Etfw)
-
-
-
-美国国会及行政当局中国委员会： 戴耀廷 [#BennyTai](https://twitter.com/hashtag/BennyTai?src=hashtag_click) 因在 [#香港](https://twitter.com/hashtag/%E9%A6%99%E6%B8%AF?src=hashtag_click) [#HongKong](https://twitter.com/hashtag/HongKong?src=hashtag_click) 推动普选而被香港大学解雇。 他现在因颠覆香港立法会民主候选人组织初选的指控而被拘留，这显示出香港政府将在多大程度上扼杀民主。 [#奥运囚徒](https://twitter.com/hashtag/%E5%A5%A5%E8%BF%90%E5%9B%9A%E5%BE%92?src=hashtag_click) [#OlympicPrisoner](https://twitter.com/hashtag/OlympicPrisoner?src=hashtag_click)
-
-
-
-> [#BennyTai](https://twitter.com/hashtag/BennyTai?src=hash&amp;ref_src=twsrc%5Etfw) was fired by [#HKUniversity](https://twitter.com/hashtag/HKUniversity?src=hash&amp;ref_src=twsrc%5Etfw) for his work promoting universal suffrage in [#HongKong](https://twitter.com/hashtag/HongKong?src=hash&amp;ref_src=twsrc%5Etfw). He is detained now on a subversion charge for organizing a primary for democratic [#LegCo](https://twitter.com/hashtag/LegCo?src=hash&amp;ref_src=twsrc%5Etfw) candidates, showing how far the [#HKGov](https://twitter.com/hashtag/HKGov?src=hash&amp;ref_src=twsrc%5Etfw) will go to stifle democracy. [#OlympicPrisoner](https://twitter.com/hashtag/OlympicPrisoner?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/1Nlaq8o4tU](https://t.co/1Nlaq8o4tU)
-> — China Commission (@CECCgov) [December 18, 2021](https://twitter.com/CECCgov/status/1472295782023933963?ref_src=twsrc%5Etfw)
-
-
+直播链接：[中美霸权战争的本质是什么？美国是什么样的国家？](https://gtv.org/video/id=61bdc29f7882000d5103b93b)
 
  
 

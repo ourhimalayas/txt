@@ -2,51 +2,64 @@
 ---
 
 
-## 杀婴制度让82%的孕妇在第一二阶段接种疫苗后遭自然流产
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1773370/)
+## 英国政府再次大量采购咪达唑仑意欲何为？
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1773443/)
 
-纽约香草山翻译部 – defiance
+翻译：坤哥 
+校对：zzballack
+上传：无明逆流
 
+据《每日曝光》（Daily Expose）12月15日报道，英国即将迎来老年人和身体脆弱人群的大规模死亡，这与2020年4月的情形类似。公众将被告知新冠病毒是罪魁祸首，但灾难实际上是由英国政府及其科学顾问圈子所采取的防疫措施所导致的。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV-Gnews.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/ima84.png)圖片來源：原新聞
 
+这些措施包括强制护工接种疫苗，将整个国民医疗服务体系（NHS）的精力用于给全体国民接种“加强针”，以及再次大规模购买一种被称为咪达唑仑(Midazolam)的药物。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/imag.png)图片来源：原新闻
+2020年3月，英国人被勒令待在家里，以确保NHS正常运行来拯救生命。但实际证据表明，英国人被迫待在家里时，NHS给老人和弱势群体服用咪达唑仑导致其死亡，却谎称他们是死于新冠病毒。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/middia.jpg)图片来源：FULL FACT
+下面简要介绍一些有关证据：
 
-奥威尔式的死亡邪教，它在光天化日下推广疫苗引起的堕胎和不孕。
+咪达唑仑是一种常用于姑息治疗（palliative care）的药物，可以将其视为类固醇的地西泮（diazepam）。
 
-美国疾病控制和预防中心（CDC）的一帮高管正在为CCP病毒注射疫苗进行社交媒体式的宣传，并打出“安全有效”的老口号，我们都看到了，科学和实践证明，这只是一个编造的弥天大谎。
+咪达唑仑在美国也是一种被用于注射死刑（lethal injection）的药物。
 
-大多数孕妇在怀孕后的第一个三个月或之后三个月接受毒疫苗注射时都会自然流产，所以它怎么可能“安全”或“有效”，除非这里的“有效”应该是指在子宫内外有效地杀死婴儿。
+英国监管机构指出，除非病人所在医院或医生办公室拥有所需设备以监测心脏和肺部，并在病人呼吸减缓或停止时迅速提供生命救助，否则不能接受服用咪达唑仑。
 
-你自己看一下短视频，准备好接受令人毛骨悚然、充满剧情的制药业死亡崇拜宣传。她用令人毛骨悚然的声音低声说：“如果你想很快怀孕，现在就去接种毒疫苗。”
+这是因为咪达唑仑可能导致严重的或危及生命的呼吸问题，如呼吸变浅、变慢或暂时停止，可能导致永久性脑损伤或死亡。
 
-然后，她的同伙，一位执业的妇产科医生，称其为“CCP病毒疾病”。当然，然后大家就可以去腐败的CDC网站，了解更多关于减少人口计划的信息。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture5-10.jpg)
-**疫苗的推动显然是为了减少人口**
+在所谓的新冠病毒大流行病开始时，时任英国卫生大臣马特·汉考克 (Matt Hancock)就订购了两年的咪达唑仑供应，然后又去法国购买了更多。
 
-《新英格兰医学杂志》发表的一项研究显示，在第一和第二孕期接受毒疫苗注射的孕妇，在血管系统中注射了穗状蛋白后不久就会自然流产。这种疫苗引起的流产率不是4%，也不是10%或50%，而是高达82%。
+这一点可在包括马特.汉考克、英国医疗保健专家乔纳森·凡-塔姆 (Jonathan Van-Tam)和保守党议员在内的议会委员会会议上得到证实，卢克·埃文斯 (Luke Evans) 博士说 “好的死亡“需要三样东西，其中之一就是咪达唑仑。
 
-这个世界上的妇女想在六膛枪中上四到五颗子弹，来玩俄罗斯轮盘赌，赌他们的孩子的生命吗？是的，有了这样的谋杀率，如果你称其为堕胎、“死产”或“猝死”（记得有SIDS突然婴儿死亡征）都无所谓了，因为他们肯定不会称其为……疫苗引起的堕胎（如发表在Pub-Med上的那样）。
+同时，汉考克和政府以《冠状病毒法案》（coronavirus act）为幌子，改变了关于死亡证明的法律。
 
-疾病预防控制中心显然正在付钱给护士和医生，让他们一字一句地阅读制药公司的剧本，并用短视频对社交媒体进行地毯式轰炸。让时间倒流到希特勒时期，现在他们用的小视频就像那时候的宣传 “预告片”。比尔·盖茨说得最好，他宣称如果我们在 ”疫苗和医疗保健方面做得非常好“，他可以通过减少几十亿人口来拯救世界–他说的”医疗保健“，不用错意，就是指堕胎。
+还有关于火葬的法律,取消了对确认性医疗证明的需求。
 
-参考来源：[杀婴制度让82%的孕妇在第一二阶段接种疫苗后遭自然流产](https://vaccines.news/2021-12-17-82-percent-women-suffer-abortion-covid-jab.html)
+还有关于医疗服务活动赔偿的法律。
 
-![This image has an empty alt attribute; its file name is 12%E6%9C%88-1.png](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88-1.png)
+还有关于探访护理院中的亲人的法律，该法律已被禁止了。
 
-编辑/校对/发稿：Hetangyuese
+2020年4月和5月，护理院的死亡人数大增，许多人被错误地认为死于新冠病毒。
 
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+2020年底，英国国会的护理质量委员会(Care Quality Commission) 发现，34%的卫生和社会护理人员说他们感到被施压对护理院的病人执行 “不抢救（Do Not Resuscitate） “命令，而且不用通知居民或他们的亲人。
 
-![This image has an empty alt attribute; its file name is Gnews-Logo-36-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+大赦国际（Amnesty international）的一份报告也发现护理院普遍执行 “不抢救 “指令。
 
+在所谓的大流行开始时购买的两年咪达唑仑供应在10月份时就已经用完。
 
+所有的咪达唑仑药物发生了什么？
 
+现在当局准备故技重施，这次是以所谓的奥密克戎（Omicron）变种毒株为幌子。
 
+2021年11月12日，英国政府的卫生及社会关怀部 (Department of Health and Social Care)（DHSC）公布了一份招标书，邀请供应商为”应对新冠病毒的ITY药品和临终护理 (End-of-life care)药物的供应”竞标。
+
+招标书说，DHSC希望 “增加咪达唑仑和去甲肾上腺素（Norepinephrine）药物的库存量，为2021年冬季和2022年春季再次爆发的新冠疫情做准备”。
+
+英国当局在2020年4月和5月所做的事情，导致了数千人不必要地死亡，他们却将其死因归咎于新冠病毒，而这正是英国政府即将再次要做的事情。
+
+人类面临千年以来最大的生存危机，世界的黑暗力量联手扼杀无辜的生命，黑暗的根源源于共产主义的独裁政权。世界上正义的力量只有联手铲除邪恶，推翻独裁政权，才能迎来重生。
+
+新闻来源：[Déjà vu – The UK is about to experience a huge wave of deaths among the Elderly and Vulnerable comparable to April 2020; but Covid-19 will NOT be to blame](https://dailyexpose.uk/2021/12/15/huge-wave-of-deaths-coming-to-uk/)
 
  
 

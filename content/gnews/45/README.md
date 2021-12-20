@@ -2,10 +2,12 @@
 ---
 
 
-## 12/19/2021 文贵直播：冬奥会是中共向全世界展示“治理”能力的舞台，一定有人染病毒、一切都会是演戏
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1772619/)
+## 杰森·米勒谈盖特GVision等新功能以及对捍卫西方文明的意义
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1772729/)
 
-秘密翻译组-北美组
+12/14/2021 杰森·米勒谈盖特的GVision等新功能以及其对捍卫西方文明的意义。
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

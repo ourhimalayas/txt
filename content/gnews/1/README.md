@@ -2,26 +2,28 @@
 ---
 
 
-## 前总统川普表示自己不会抵制北京冬奥会
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1773594/)
+## 纽约州法案意欲授权州长可以随意拘押任何人
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1773710/)
 
-#### 撰稿：彩虹
+#### 撰稿：彩虹       
 
 #### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1065.png)图片来源：Republic World
-12月19日，《国会山报》报道，在播出的采访中，前总统川普表示他不会对北京奥运会进行抵制，认为这样做的话“差不多让我们看起来像是痛苦的失败者”。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1069.png)图片来源：纽约时报
+12月19日，《新闻极限》报道纽约州参议院和众议院有可能在下届会议上对一项法案进行表决，该法案将赋予州长及其代表权限，以移除和拘留病人、接触者、携带者或任何有可能“对公共健康构成重大威胁”的人。
 
-周日，前总统川普接受了福克斯财经新闻网“周日早晨谈未来”（Sunday Morning Futures）节目的采访，主持人玛丽亚·巴蒂罗莫（*Maria Bartiromo*）问他是否会像拜登政府那样对2022年北京奥运会进行外交抵制，川普说：“不会，因为我看到吉米·卡特（Jimmy Carter）这么做过。这样做很糟很糟，伤害了运动员”。
+根据《国家脉动》的报道，该法案赋予纽约州长或其代表，包括专员和地方卫生部门负责人，有权通过发布一个命令带走和拘留任何人。该命令只需要包括个人或团体的名字或其他合理的描述。该个人或团体可以被关押在医疗机构或“他们认为合适的任何其他地方”。
 
-川普接着补充说：“我们有比这更有力的事情可以做，并且是更多更有力的事情。（抵制）不是一件有力的事情，这样做几乎让我们看起来像，怎么说呢，痛苦的失败者”。值得注意的是，川普没有讲说哪些是更多更有力的事情。
+更为严重的是，该法案意图说明，虽然任何人都不能被关押超过60天，但法案允许对一个人或团体再拘留额外90天，并且可以无限期地持续下去。
 
-他说，他恰恰希望看到美国运动员表现出色，“赢得每一块奖牌”。
+并且，该法案还将“要求接触或感染过传染病的个人接受适当的规定性治疗、服用预防药物或（强制）接种疫苗”。
 
-根据公开的报道，参议员泰德·克鲁兹（Ted Cruz）上个月在白宫做出外交抵制决定之前，说：“我认为全面抵制奥运会是一个错误。我们有年轻的男女（运动员），他们用自己的一生为这一时刻进行练习，我不想惩罚这些年轻的运动员。我们应该做的是，正是我同意进行所谓的外交抵制的概念”。
+《国家脉动》指，在纽约参议院网站上，该法案得到了压倒性的负面回应。
 
 **新闻来源**
 
-[Trump says he would not impose boycott against Beijing Olympics](https://thehill.com/homenews/sunday-talk-shows/586487-trump-says-he-would-not-impose-boycott-against-beijing-olympics)
+[NY Bill Lets Governor Detain Anyone Suspected as ‘Threat to Public Health’](https://www.newsmax.com/us/newyork-covid19-statesenate/2021/12/19/id/1049294/)
+
+[New York Legislation Provides for Indefinite Detention of Unvaccinated at Governor’s Whim.](https://thenationalpulse.com/news/new-york-legislation-provides-for-indefinite-detention-of-unvaccinated-at-governors-whim/)
 
  
 
