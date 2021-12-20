@@ -2,37 +2,32 @@
 ---
 
 
-## 重磅！世界第一个对新冠病毒康复者的严正声明，吃药定检防癌变
-` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/1772156/)
+## 反对疫苗政策 英政府一高级成员辞职
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1772450/)
 
-新西兰伊甸农场Gnews组 财经G乐部 – 亚伦
+作者：纽约香草山 – 飞虹
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+12月18日晚，英国首相约翰逊内阁的脱欧大臣大卫·弗罗斯特提出辞职。尽管他本人还没有明确表达辞职原因，但媒体在几天前就已经透露，他辞职是因为对约翰逊的政策越来越失望。上周约翰逊出台的新疫情限制政策成为他离职的导火索，这些限制措施包括：人们在进入夜总会和其他拥挤的场所时要出示疫苗接种证明或冠状病毒检测阴性证明。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture7-3.jpg)
+在辞职信中，弗罗斯特委婉地提醒首相约翰逊：“我希望我们能尽快回到正轨，不要被我们在其他地方看到的那种强制性措施所诱惑。”
 
+另据消息称，本周早些时候，有99名保守派议员在英国下议院投票，反对疫苗护照政策。
 
+参考链接：[反对疫苗政策 英政府一高级成员辞职](https://www.voanews.com/a/uk-brexit-minister-quits-as-new-covid-rules-spark-anger/6360698.html)
 
-12月19日郭文贵先生于GTV、Gettr大直播中发出重要严正声明，再次第一个向全世界公布，凡是得过冠状病毒的患者（不分男女老少）会在未来的3-10年内，超过百分之五的概率十会产生癌症。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/0ba9a8a9dde3f3c35f608d5f8b360969.jpg)图片来源Gettr
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
+总编：文特
+编辑：飞虹
+校对/发稿：Hetangyuese
 
-“世界上第一个这么说！”郭文贵先生斩钉截铁自信满满地宣告。
-
-通过一个多月以前从国内跑出来的相关科学家和病毒研发知情者的一再论证，授权郭文贵先生做今天的公告。只要刺突蛋白MRNA在身体里没有百分百清理干净，就会永久性攻击身体里两个地方，一个是淋巴系统，第二个就是免疫力系统。由于病毒长时间在人身体内部对细胞的改变，随后血液也会出问题。最容易导致女性妇科疾病（因为所有病毒聚集不能排除的地方），导致男性前列腺类疾病。
-
-虽然新冠病毒康复者的病毒症状消除，但是病毒仍然残留在身体内部。而且短期内不可能彻底摆脱病毒的影响，这里需要时间。目前唯一的拯救方案是合理的服用伊维菌素和青蒿素，但是一定要根据症状分期、分疗程按医嘱服用，而且一定要配合着补铁和其他维他命。另外尤为重要的是，一定要保持长期的、每年一次到两次的定期身体检查，包括血液检查、淋巴检查。关于剧烈的健身和运动，短时间内一定避免。
-
-好消息是科学家也强调，新冠患者只要严格遵循这些方案，定期按量吃药、定期身体检查、辅助运动治疗，几乎百分百可以保证健康。
-
-**注：**青蒿素（包括保健品），伊维菌素，羟氯喹，锌，地塞米松，每天长期吃一定是弊大于利！
-
-**相关****Gnews文章：**
-
-伊维菌素、青蒿素撰写人类新篇章，平疫排苗延寿长
-
-
-
-> [伊维菌素、青蒿素撰写人类新篇章，平疫排苗延寿长](https://gnews.org/zh-hans/1761978/)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,56 +2,31 @@
 ---
 
 
-## COVID-19 最新情报｜日本考虑公费负担新冠口服药 郭文贵曾爆新药副作用极强
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1770550/)
+## 从解植锟之死说“暴富草民死亡公式”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1770851/)
 
-**疫情關注組 / 發佈時間｜19/12/2021**
+撰稿/配图：东京樱花团/谈古论今
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-228.jpg)
+近年来，中共国的“有钱人”大有提前“英年早逝”的倾向，路透上海12月19日又报道：中共国大型民营企业——中植企业集团周六发布讣告，称公司创始人解直锟因心脏病突发逝世。公司旗下拥有多家金融机构和上市公司，资产版图庞大，相关企业被市场称为“中植系”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+据说，出身印刷工，后来做过几个工厂厂长的草民解植锟很有经营头脑，据说是凭着做中金总经理的哥哥（弟弟？说法不一）攀附上了权贵，解植锟就“好风凭借力”“神速”地“修成正果”——据说他把持的中植企业集团控制的资产万亿级别之巨，人生创造的如此辉煌，世界史上有几人？此乃中共国特色！不过在网上检索就知道了，有关中植企业集团以及解植锟本人的负面消息至少三年前就铺天盖地了。
 
+解植锟到底死于突发还是他人的安排无疑是个谜，为什么被中纪委、政法委请去喝过茶的人都那么容易心梗？掀开中植企业集团的“锅盖“，里面到底“煲的是什么汤”无疑现在外界谁也说不清楚。所以评论此事的“各路神仙们”无外乎道听途说或“掐指一算”而已，就像诸位“民主大咖们”评论中共高层政治生态和私生活的龌龊绘声绘色一样——每当郭文贵先生爆出一件中共丑闻，他们就获得了充分发挥的“真材实料”赖以生存，可又不肯感恩爆料革命的恩惠。
 
-日本首相岸田文雄已经与辉瑞公司达成了一项基本协定，确保200万剂量的新冠口服药物。 政府正在考虑用公共费用支付这些药品的全部费用。
+解植锟之死的内幕虽然无从知晓，但是解植锟打造的“光辉业绩”那可是事实。他的死又给中共治下的“暴富草民死亡公式”又增加了一个案例。
 
-岸田文雄表示：通过辉瑞首席执行官布拉和我的直接电话交谈，我们达成了基本协议，确保了200万剂辉瑞公司的口服药。
+如果用最简单粗暴的阶级划分法，人类社会从原始人积累财富开始至今，其本质就是掌控财富的是统治者，被剥夺财富的是被统治者，居两者之间的无外乎是穷尽智力和精力向统治者的位置靠近或企图抢夺统治者大位的“中产阶级”，人类社会的人群分类，无外乎“巨富阶级（统治者）”、“中产阶级”、“贫困阶级（被统治者）”这三大阶级归属。这种现象，中产阶级比例越高的国家三大阶级划分越模糊，贫富差距越大的国家却清晰——例如世界强国的中共国、北朝鲜、非洲的部分国家等等。
 
-- 相关：[COVID-19 最新情报｜关于“新冠口服药” 你不可不知的泽连科方案](https://gnews.org/zh-hant/1643262/)
+在中共治下三大阶级划分非常清晰，加之中国从秦王朝到共产党的“普天之下，莫非王土。率土之滨，莫非王臣”的治国理念，从国家到国民都不过是“天子”的“家产”。所以，当天子的统治不够残酷的时候，中产阶级就会“雨后春笋”般的“野蛮生长”；当中产阶级野心膨胀到威胁了皇权的时候，大规模的“整理整顿”、“规范市场”、“理顺行业管理”必然全面展开，并且大开杀戒，杀一儆百。中国历史就是这样不断地重复上演的。中共改革开放的四十年，这种历史的重演更加“色彩浓重”，甚至形成了常态化的“暴富草民死亡公式”。
 
+在邓江胡时代，由于统治者们（一群家族）忙于“原始积累”、“化国有为私有”，需要众多的“操刀手”和“白手套”操持“家事”，这样就可以尽可能地掩人耳目“闷声发大财”，于是就有了为数不少的草民为钱为出人头地“应招”铤而走险刀尖舔血，于是这样的草民们就“一夜暴富”了。然而，当皇权再度回归时，这些白手套们的所作所为就是十恶不赦的了。自从习近平被摆在“总书记”位置上的那一天，习近平就不甘被操纵，自命为“天子主席”了，可惜，包括中共的老江湖们都没有深刻地意识到这一层，很多共党高层就此埋下“与帝相争”的祸根甚至惹来杀身之祸囹圄之灾。
 
-岸田文雄透露，他和辉瑞公司首席执行官布拉昨天进行了电话交谈，基本上达成了确保200万剂口服药的协定。 此外，政府已经获得了160万剂默克公司的口服药物莫努匹拉韦“**molnupiravir**”，如果获得批准，将从今年年底开始向医疗界提供。这些口服药物的费用，将考虑由公共资金全额负担。
+任何一朝天子都以怜悯子民来塑造亲民形象的，杀富济贫就是历朝天子们惯用的套路——既杀了威胁皇权的政敌及其帮凶爪牙，又可以掠夺他们的财富归己，又博得草民屁民的喝彩拥戴，实乃一箭三雕！所以，已经有同伙在解植锟之前踏上了黄泉路，解植锟之后还会有人奔赴黄泉——只要你是以草民之身攀附权贵而一夜暴富，不管是“纯白手套”还是你自己捞取多少，都不可能超脱“暴富草民死亡公式”的魔咒——因为皇权治下，天下所有的财富包括你的肉身都是皇上家的，岂能容你一介草民染指？！这是历史的总结，也是今后的历史之路——前仆后继者如同后浪推前浪。
 
-## 美FDA研拟将 紧急使用授权molnupiravir
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
 
-据[EBSCO post](https://www.ebsco.com/e/zh-tw/blog/antiviral-pill-covid-19-molnupiravir-too-good-be-true) 2021/11/18指出，Molnupiravir 被定义为用来治疗 COVID-19 的全新抗病毒口服药。在研制有效预防、治疗COVID的过程中，发现“**羟氯奎宁(hydroxychloroquine)、伊维菌素(ivermectin)**和某些抗HIV病毒药物”具有预防、治疗COVID效用。
-
-- 相关：[美国卫生研究院(NIH)批准“伊维菌素”作为新冠治疗药物](https://gnews.org/zh-hant/1570778/)
-- 相关：[新冠病毒预防、治疗方案](https://vladimirzelenkomd.com/prophylaxis-protocol/)（Zev Zelenko 博士）
-- 相关：[印度德里使用伊维菌素，确诊病例下降97%](https://gnews.org/zh-hant/1570870/)
-
-
-**羟氯奎宁、伊维菌素**，已经被长期使用于疟疾等免疫力疾病防治，安全性无虞。并有国际研究逐渐表明，羟氯喹宁、伊维菌素确实可以作为有效防治的方案。然，为何药厂舍弃这些被广泛使用的药物，要研制全新的抗COVID药物Molnupiravir 呢？
-
-文章清楚指出，过去一款名为瑞德西韦(remdesivir)的药物被证实可以作为COVID-19患者治疗用药，并被美国相关部门列为新冠治疗用药。瑞德西韦，被用来针对伊波拉病毒。但有媒体指出，将[瑞德西韦(remdesivir)列为治疗用药而刻意的打压伤害性更小的伊维菌素是图利于医院、药厂](https://gnews.org/zh-hant/1570778/)。
-
-使用瑞德西韦治疗新冠，对病患身体会有其他伤害，新的抗病毒药molnupiravir运作机理相似于瑞德西韦，借由抑制病毒RNA聚合酶，达到阻断病毒快速增生的效果。molnupiravir在一期、二期临床试验中，文章指出molnupiravir耐受性良好、没有引发任何严重的不良事件，更具备减少COVID-19病患的传染力。默克指出molnupiravir的[三期随机试验](https://www.merck.com/news/merck-and-ridgebacks-investigational-oral-antiviral-molnupiravir-reduced-the-risk-of-hospitalization-or-death-by-approximately-50-percent-compared-to-placebo-for-patients-with-mild-or-moderat/)治疗效果非常显著。
-
-美国食品药物管理局FDA于11月30日，已开始讨论是否将紧急使用授权(EUA)新冠口服药物molnupiravir。
-
-## 抗病毒药物 为何不选羟氯奎宁、伊维菌素？
-
-新冠持续延烧世界，新冠疫苗大规模接种并未阻止疫情扩散，政府及药厂在持续推动加强针、强制接种(疫苗通行证)之余，更转向口服药物防治方案。瑞韦西德、羟氯喹、伊维菌素被证实为有效防治药物选项，然[瑞韦西德治疗对病患身体有其他不利影响](https://gnews.org/zh-hant/1570778/)。伊维菌素、羟氯喹已被广泛使用，且容易取得，却被政府、药厂等忽略。
-
-[EBSCO post](https://www.ebsco.com/e/zh-tw/blog/antiviral-pill-covid-19-molnupiravir-too-good-be-true)介绍Molnupiravir 文章，提及羟氯奎宁(hydroxychloroquine)、伊维菌素(ivermectin)和某些抗HIV病毒药物具有预防、治疗COVID效用。
-
-郭文贵于2021/11/11直播片段针对“新冠口服药”爆料是针对淋病、爱滋等性病，副作用极强。Molnupiravir 成分是否包含抗HIV病毒药物，及是否为他所指的新冠口服药尚无法确定。
- 來源：[GETTR](https://gettr.com/post/pgmtu1b16f)
-[默克新闻稿](https://www.merck.com/news/merck-and-ridgebacks-investigational-oral-antiviral-molnupiravir-reduced-the-risk-of-hospitalization-or-death-by-approximately-50-percent-compared-to-placebo-for-patients-with-mild-or-moderat/)指出Molnupiravir 预计到 2021 年底将生产 1000 万剂量，2022 年将生产更多。Molnupiravir的全球三期、随机、安慰剂对照、双盲、多中心研究MOVe-OUT 试验 (MK-4482-002) ( [NCT04575597](https://cts.businesswire.com/ct/CT?id=smartlink&amp;url=https%3A%2F%2Fclinicaltrials.gov%2Fct2%2Fshow%2FNCT04575597%3Fterm%3Dmolnupiravir%26draw%3D2%26rank%3D2&amp;esheet=52502008&amp;newsitemid=20211001005189&amp;lan=en-US&amp;anchor=NCT04575597&amp;index=3&amp;md5=d00529fc8647b82c99f3f53d57191335) ) ，第 3 阶段已经在全球范围内进行，包括在阿根廷、巴西、加拿大、智利、哥伦比亚、埃及、法国、德国、危地马拉、以色列、意大利、日本、墨西哥、菲律宾、波兰、俄罗斯、南非、西班牙、瑞典、台湾、乌克兰、英国和美国。
-
-## 关于MERCK（默克）
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截圖-2021-12-19-下午3.21.57.png)來源：[MERC](https://www.merck.com/news/merck-and-ridgebacks-investigational-oral-antiviral-molnupiravir-reduced-the-risk-of-hospitalization-or-death-by-approximately-50-percent-compared-to-placebo-for-patients-with-mild-or-moderat/)[K](https://www.merck.com/news/merck-and-ridgebacks-investigational-oral-antiviral-molnupiravir-reduced-the-risk-of-hospitalization-or-death-by-approximately-50-percent-compared-to-placebo-for-patients-with-mild-or-moderat/)
-译文：今天，默克的研究仍在预防、治疗那些威胁人类与动物的疾病，包含癌症、伊波拉及爱滋等传染性疾病、新兴的动物疾病。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-3-1.png)
-來源￨[YAHOO JAPAN](https://news.yahoo.co.jp/articles/c6a30e2f3285fb892b40d4bdbf94b0dd2bcc105c)/GNEWS/[默沙東實驗報告](https://www.merck.com/news/merck-and-ridgebacks-investigational-oral-antiviral-molnupiravir-reduced-the-risk-of-hospitalization-or-death-by-approximately-50-percent-compared-to-placebo-for-patients-with-mild-or-moderat/)
 
  
 

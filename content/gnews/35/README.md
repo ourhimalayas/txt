@@ -2,10 +2,10 @@
 ---
 
 
-## 杰森·米勒谈盖特GVision等新功能以及对捍卫西方文明的意义
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1772729/)
+## 航空行业高管就疫苗强制令接受参议院委员会质询
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1772733/)
 
-12/14/2021 杰森·米勒谈盖特的GVision等新功能以及其对捍卫西方文明的意义。
+12/16/2021 据国会记者艾沙·哈思报道，航空行业高管就疫苗强制令接受参议院商务委员会质询，该强制令导致大量员工辞职，数千航班因工作人员短缺而取消。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
