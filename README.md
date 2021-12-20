@@ -18,71 +18,71 @@
 ### [血的教训-新西兰开始正视疫苗致死危害](/content/gnews/1/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [【中日财经爆】天量断供房冲击市场，法拍房也将限购](/content/gnews/2/README.md)
+### [英国政府再次大量采购咪达唑仑意欲何为？](/content/gnews/2/README.md)
+ ` 首尔天池农场`
+
+### [【中日财经爆】天量断供房冲击市场，法拍房也将限购](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本外交部长表示加强美日联盟打击中共霸权主义](/content/gnews/3/README.md)
+### [日本外交部长表示加强美日联盟打击中共霸权主义](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [王毅对放发狠话：不惧中美对抗将奉陪到底](/content/gnews/4/README.md)
+### [王毅对放发狠话：不惧中美对抗将奉陪到底](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [杀婴制度让82%的孕妇在第一二阶段接种疫苗后遭自然流产](/content/gnews/5/README.md)
+### [杀婴制度让82%的孕妇在第一二阶段接种疫苗后遭自然流产](/content/gnews/6/README.md)
  ` 纽约香草山MOS01`
 
-### [喜币代持意义](/content/gnews/6/README.md)
+### [喜币代持意义](/content/gnews/7/README.md)
  ` 澳喜农场`
 
-### [香港立法会选举投票率创新低](/content/gnews/7/README.md)
+### [香港立法会选举投票率创新低](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [研究发现中国的科兴公司疫苗对奥米炕抗体无效](/content/gnews/8/README.md)
+### [研究发现中国的科兴公司疫苗对奥米炕抗体无效](/content/gnews/9/README.md)
  ` 纽约香草山MOS01`
 
-### [DC大中华时事：中共称西方炮制“强迫劳动”谎言目的是祸乱新疆](/content/gnews/9/README.md)
+### [DC大中华时事：中共称西方炮制“强迫劳动”谎言目的是祸乱新疆](/content/gnews/10/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [对抗中共的隐瞒、拉拢和胁迫是国会最统一的议题](/content/gnews/10/README.md)
+### [对抗中共的隐瞒、拉拢和胁迫是国会最统一的议题](/content/gnews/11/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美国会通过新疆产品进口禁令将34家中共国公司列入黑名单](/content/gnews/11/README.md)
+### [美国会通过新疆产品进口禁令将34家中共国公司列入黑名单](/content/gnews/12/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共意图通过超限战手段夺取未来战争的控制权](/content/gnews/12/README.md)
+### [中共意图通过超限战手段夺取未来战争的控制权](/content/gnews/13/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [全球债务飙升至226万亿美元可能引发下一次金融危机](/content/gnews/13/README.md)
+### [全球债务飙升至226万亿美元可能引发下一次金融危机](/content/gnews/14/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [伦敦市长警告说，将出台更多的疫情限制措施](/content/gnews/14/README.md)
+### [伦敦市长警告说，将出台更多的疫情限制措施](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [币圈新闻动态：喜币（HCN）价格目前在44.340 HDO](/content/gnews/15/README.md)
+### [币圈新闻动态：喜币（HCN）价格目前在44.340 HDO](/content/gnews/16/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中共证监会明确严管“假外资”](/content/gnews/16/README.md)
+### [中共证监会明确严管“假外资”](/content/gnews/17/README.md)
  ` 纽约香草山MOS01`
 
-### [澳洲议员凯利呼吁政府重视伊维菌素治疗新冠的有效性](/content/gnews/17/README.md)
+### [澳洲议员凯利呼吁政府重视伊维菌素治疗新冠的有效性](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线：跟踪报道杰森·米勒接受法国记者埃里克·莫里洛的采访](/content/gnews/18/README.md)
+### [秘翻在线：跟踪报道杰森·米勒接受法国记者埃里克·莫里洛的采访](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [【文炬拾字】送葬中共的几点思考](/content/gnews/19/README.md)
+### [【文炬拾字】送葬中共的几点思考](/content/gnews/20/README.md)
  ` 温哥华扬帆农场`
 
-### [湖北高速公路桥梁侧翻致4死8伤](/content/gnews/20/README.md)
+### [湖北高速公路桥梁侧翻致4死8伤](/content/gnews/21/README.md)
  ` 澳喜农场`
 
-### [阻止拜登对私营企业的强制疫苗接种令将上诉到最高法院](/content/gnews/21/README.md)
+### [阻止拜登对私营企业的强制疫苗接种令将上诉到最高法院](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [祸国殃民的中共](/content/gnews/22/README.md)
+### [祸国殃民的中共](/content/gnews/23/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [加拿大议员Jeremy Patzer：因为疫苗政策，无数为国家和城市奉献的英雄今天被当作二等公民，我会为你们站出来](/content/gnews/23/README.md)
- ` 加拿大温哥华扬帆农场视频组`
 
 ### [加密币的区块链技术是人类的未来](/content/gnews/24/README.md)
  ` 澳喜特战旅Gnews`
