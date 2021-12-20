@@ -2,30 +2,39 @@
 ---
 
 
-## 澳大利亚任命强硬派担任国家战略政策研究所负责人
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1773794/)
+## 七哥冬奥会悬念解惑二：钥匙澜会不会成为冬奥会主持人
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1773876/)
 
-翻译：Shirley
-![](https://assets.gnews.org/wp-content/uploads/2021/12/澳大利亚.png)
-图片来自网络
+下一个问题，现在从小李往回转，倒时针，钥匙澜会不会成为主持人？会不会出场？
 
-在澳洲正在遭受来自中共的史无前例的国家安全威胁的时期，在国防部长彼得·达顿 (Peter Dutton) 的建议下，澳州外长玛丽斯·佩恩的幕僚长贾斯汀·巴西（Justin Bassi）将被任命为澳大利亚战略政策研究所的新负责人，接替即将离任的执行董事彼得·詹宁斯。
+好！这个问题我今天不回答，答案都跟你们俩都不一样，给你们两派，三个出来的一个不出来的都不一样，所以我就不说了，到时候你们看会很有意思，杨澜会是一个很有意思的事儿。
 
-巴西先生曾是马尔科姆·特恩布尔 (Malcolm Turnbull) 总理和前司法部长乔治·布兰迪斯 (George Brandis) 的国家安全顾问。他还担任过国家情报办公室的高级官员，领导该机构的网络和关键技术部门。
+编辑整理：海贼王M.D.LUFFY；
 
-在他领导佩恩参议员办公室期间，政府通过了新的马格尼茨基式定向制裁法和2020 年外交关系法，赋予其否决州和地方政府与外国势力的协议，从而取消了维多利亚州与北京的“一带一路”谅解备忘录。
+字幕制作：小满；
 
-巴西先生还是特恩布尔先生决定禁止华为和其他中国电信公司进入澳大利亚5G 网络的关键顾问，并且是制定有关外国干涉、反恐、网络入侵和边境安全的立法的主要参与者。
+视频制作及上传：Cindy；
 
-中国问题专家、前特恩布尔顾问约翰·加诺特说，巴西是“他那一代最有能力的国家安全专家”。
+G-News发布：小满；
 
-巴西先生在政府中被称为具有“惊人网络”的深刻思想家，在过去八年中，他在政府的国家安全改革中发挥了关键的幕后作用。他在将外国影响和干涉纳入国家安全议程以及制定2016 年网络安全战略方面发挥了重要作用。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
 
-消息来源：
-[As China-Australia ties fray, who is shaping Canberra’s increasingly hawkish policy on Beijing? | South China Morning Post (scmp.com)](https://www.scmp.com/week-asia/people/article/3135930/china-australia-ties-fray-who-shaping-canberras-increasingly?module=perpetual_scroll_0&amp;pgtype=article&amp;campaign=3135930)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-发稿：MG4
-![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-1.jpg)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
