@@ -2,29 +2,37 @@
 ---
 
 
-## 学校关闭，终考推迟，学生和教职员工中的COVID-19 病例过多，一所蒙特利尔中学和小学将于周一关闭
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1772685/)
+## 奥地利首都维也纳，反封锁抗议者与警察发生冲突
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1772830/)
 
-##### 编译：16626
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片175667.png)图片来源：COLLÈGE CHARLES-LEMOYNE网站
-蒙特利尔日报2021 年 12 月 19 日（AGENCE QMI，2021 年 12 月 19 日星期日 12:29）发表文章报道，由于学生和教职员工中的COVID-19 病例过多，位于圣兰伯特Saint-Lambert的私立中学 Charles-Lemoyne College 及其附属小学 Charles-Lemoyne Academy 将于周一和周二关闭，期终考试也被推迟。该篇题为《蒙特利尔南岸的一所私立学校因 COVID-19 病例过多而关闭》的报道编译如下：
+**【雅典娜快讯】，紧贴时代脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-239.jpg)图片来源：DH.be
+整理报道：皮特
+编辑：文泓
 
-**由于 COVID-19 病例过多，位于圣兰伯特****Saint-Lambert****的私立中学 Charles-Lemoyne College 及其附属小学 Charles-Lemoyne Academy 将于周一和周二关闭。**
+当地时间12月19日，据RT新闻报道，在奥地利首都维也纳，反对政府严格的新冠疫情封锁的人群冲破警察设置的路障，并与警察发生冲突，有7人被拘留。起因是该国将于2月强制实行实验性疫苗接种。
 
-刚好停学这两天是放假前的最后两天，两所学校的学生两天后就迎来了圣诞假期，在停学这两天不会有虚拟教学。
+在周六，多达2000人在维也纳聚集示威。他们在游行时高呼“自由”，一些人举着标语，上面写着“人们被封锁，而病毒却没有”。
 
-“在过去的几个小时和几天里，太多学生和教职员工的 COVID-19 检测呈阳性，另外还有很多学生和教职员工正在等待或预约检测COVID-19。随着传染病的迅速增加，为了保护学生和我们工作人员及其家人的健康，必须停学，停课，避免学生在学校群聚”，在一份发给家长的通知信函这样写道。
+一些抗议者绕过警察路障，而一些人群则突破了路障。有人拍摄到警察使用金属障碍物将人们推离街道。一段时间内，警察驱散了150至200名抗议者，没收了旗帜、鼓和扩音器。
 
-附属小学学校学生将于 1 月 6 日返校上课，而私立中学学生将接受远程教育将于 1 月 10 日返校上课，届时将恢复因停学这两天耽误的期终考试。
+奥地利媒体援引警方报道，有7人被逮捕。另有100多起因违反公共集会法而被起诉，有一名警官受了轻伤。
 
-**放假前的最后两天都不能坚持了，文章编译人提醒读者，病毒仍在传播，疫情正在爆发，大家必须格外小心。**
+在其它城市克拉根福、因斯布鲁克和莱布尼茨也举行了类似的集会。**奥地利上周放宽了最近的封锁措施，但只针对接种疫苗的公民。一项全国性的强制疫苗接种将从****2022****年****2****月****1****日开始生效。**
 
-参考资料：AGENCE QMI，2021 年 12 月 19 日星期日，[Journal De Montreal] [https://www.journaldemontreal.com/2021/12/19/une-ecole-privee-de-la-rive-sud-de-montreal-fermee-en-raison-du-surplus-de-cas-de-covid-19-1](https://www.journaldemontreal.com/2021/12/19/une-ecole-privee-de-la-rive-sud-de-montreal-fermee-en-raison-du-surplus-de-cas-de-covid-19-1)
+政府在周五对未接种疫苗者的封锁期延长了10天，但同意在圣诞节和新年前夕对私人聚会的一些限制作出暂时放松。
 
-编辑/发布：LILY
+新闻链接:[Anti-lockdown protesters clash with police in Vienna (VIDEO) — RT World News](https://www.rt.com/news/543664-austria-covid-demo-clash/)
 
-20211219
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
+发布：去中心化Math
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

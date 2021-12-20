@@ -2,36 +2,29 @@
 ---
 
 
-## 奥地利首都维也纳，反封锁抗议者与警察发生冲突
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1772830/)
+## 加拿大联邦和省政府正对Omicron变种毒株传播做准备
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1772927/)
 
-**【雅典娜快讯】，紧贴时代脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-239.jpg)图片来源：DH.be
-整理报道：皮特
-编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2021/12/加拿大.png) 图片来自网络
+据《环球新闻》加拿大通讯社工作人员2021年12月16日报道随着COVID-19病例数在某些省份和世界各地急剧上升，加拿大各地政府都在对Omicron变种可能带来的影响做好准备。安大略省(Ontario)周三报告了1808例新病例，省长道格·福特（Doug Ford）宣布，从周一开始，所有成年人都将有资格接受强化注射，前提是自他们打了第二次针至少有三个月。魁北克省长(Francois Legault)表示，他所在的省报告了另外2386感染病例，由于COVID-19病例的增加，政府可能会重新考虑下星期四将室内聚会从20人限制至10人。由于纽芬兰省(Newfoundland)和拉布拉多省(Labrador)确认了第一例具有高度传染性的变种病例，Omicron已覆盖了所有四个大西洋省份。
 
-当地时间12月19日，据RT新闻报道，在奥地利首都维也纳，反对政府严格的新冠疫情封锁的人群冲破警察设置的路障，并与警察发生冲突，有7人被拘留。起因是该国将于2月强制实行实验性疫苗接种。
+在艾伯塔省(Alberta)，从周五开始，选定的医疗保健场所和药店，将免费提供500,000多个快速抗原检测试剂盒。而50岁及以上的任何人，以及六个月前或更早打过第二针COVID-19疫苗的所有医护人员，可以预订一剂疫苗加强针。早期数据表明Omicron比目前占主导地位的Delta变种更易传播，倍增时间约为两天。不列颠哥伦比亚省(British Columbia)卫生部长阿德里安·迪克斯(Adrian Dix)表示，该省正在考虑对公共和私人聚会发布进一步的公共卫生命令，预计下周将发布公告。萨斯喀彻温省(Saskatchewan)和曼尼托巴省(Manitoba)表示，他们计划暂时维持目前的公共卫生限制。
 
-在周六，多达2000人在维也纳聚集示威。他们在游行时高呼“自由”，一些人举着标语，上面写着“人们被封锁，而病毒却没有”。
+原文链接：
 
-一些抗议者绕过警察路障，而一些人群则突破了路障。有人拍摄到警察使用金属障碍物将人们推离街道。一段时间内，警察驱散了150至200名抗议者，没收了旗帜、鼓和扩音器。
 
-奥地利媒体援引警方报道，有7人被逮捕。另有100多起因违反公共集会法而被起诉，有一名警官受了轻伤。
 
-在其它城市克拉根福、因斯布鲁克和莱布尼茨也举行了类似的集会。**奥地利上周放宽了最近的封锁措施，但只针对接种疫苗的公民。一项全国性的强制疫苗接种将从****2022****年****2****月****1****日开始生效。**
+> [Federal and provincial governments preparing for Omicron variant spread](https://globalnews.ca/news/8455370/federal-provincial-governments-preparing-omicron-variant-spread/)
 
-政府在周五对未接种疫苗者的封锁期延长了10天，但同意在圣诞节和新年前夕对私人聚会的一些限制作出暂时放松。
 
-新闻链接:[Anti-lockdown protesters clash with police in Vienna (VIDEO) — RT World News](https://www.rt.com/news/543664-austria-covid-demo-clash/)
 
-发布：去中心化Math
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
+
+
+
+翻译： 飞利普 |校对：烟波浩淼 |编辑&发布：闪电训练
 
  
 

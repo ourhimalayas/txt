@@ -2,49 +2,42 @@
 ---
 
 
-## 河北霸州67天罚款6700万元 是前三季度的11倍
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1772815/)
+## 拜登政府缺席的情况下德克萨斯-墨西哥边境墙的建设即将开始
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1772876/)
 
-信息采集：纽约香草山农场 – 侠肝义胆
-作者：纽约香草山农场 – 飞虹
+![](https://assets.gnews.org/wp-content/uploads/2021/12/乔拜.png) 图片来自网络
+据《网关专家》作者克里斯蒂娜·莱拉（Cristina Laila）2021 年 12 月 15 日报道德克萨斯州将开始1.7 英里部分的美墨边境墙建设。4 月，拜登政府取消了川普总统下令的国防部对边界墙（建设）的资助。后来有报道称，乔·拜登仍在向美国南部边境的承包商付款。但他们得到的报酬不是为了完成川普边界墙的。他们在看守钢梁以确保不被偷走，因此得到了报酬。德克萨斯州州长格雷格·阿博特（Greg Abbott）表示，该州将加紧完成修建边界墙的工作。
 
+Click2Houston 报道：
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-12月17日，据墙内新闻报道，自进入2021年第四个季度以来，河北省霸州市采取多种督导措施推动，各乡镇、街道、开发区、村街等，以安全生产、执法检查等多种名义，对中小微企业和个体工商户进行了集中罚款、摊派和收费。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1.1-9.jpg)
-据不完全统计，从10月1日到12月6日，霸州市15个乡镇、街道和开发区入库和未入库的罚没收入达到6718.37万元，是1到9月份罚没收入的11倍。涉及企业和个体工商户2547家，平均每家罚款、收费2.64万元。
-
-另外，霸州市的这次集中罚款收费有三个突出特点：第一，没有任何理由和手续就伸手向企业收费；第二，对企业集中开展逐利式乱检查、乱罚款；第三，盲目提出超高任务向村街企业乱摊派。
-
-参考链接：
-[网易 12月17日报道【 河北霸州“霸道”罚款：企业和商户被地毯式检查，67天罚了6700万，是前三季度11倍 】](https://gettr.com/post/pjzzmff529)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
-
-总编/编辑：文特
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+*德克萨斯州边界墙 1.7 英里长的部分预计将很快开始施工。边界墙是州长雷格·阿博特6 月份宣布的倡议的一部分。*阿博特*责成德克萨斯州设施委员会（TFC）完成州边界墙的建设。在 11 月 18 日的 TFC 会议上，委员们一致批准了一项不超过 1.62 亿美元的设计 – 建造合同以填补几段联邦边界墙之间的总共 8 英里的空白处。合同授予了波西利科市政公司（ Posillico Civil, Inc. ），这是一家拥有 75 年历史，曾参与过其他边境项目的纽约工程公司。委员们表示，边境墙的第一部分将建在斯塔尔县（Starr County）的国有土地上，并在私人土地上延伸 1.2 英里。*“在拜登政府缺席的情况下，德克萨斯州正在加紧建设我们自己的边界墙，来完成这项工作。” 州长格雷格·阿博特说。
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+> Construction of Texas-Mexico border wall will begin soon.
+> 
+> In the Biden Administration's absence, Texas is stepping up to get the job done by building our own border wall.[https://t.co/jLEBT0QenL](https://t.co/jLEBT0QenL)
+> — Greg Abbott (@GregAbbott\_TX) [December 15, 2021](https://twitter.com/GregAbbott_TX/status/1471215076896034822?ref_src=twsrc%5Etfw)
 
 
+
+*格雷格·阿博特 (@GregAbbott\_TX) 德克萨斯-墨西哥边境墙的建设即将开始。*
+
+*在拜登政府缺席的情况下，德克萨斯州正在加紧建设我们自己的边界墙来完成这项工作。*[*https://t.co/jLEBT0QenL*](https://t.co/jLEBT0QenL)
+
+*2021 年 12 月 15 日*
+
+原文链接：
+
+
+
+> [‘In the Biden Admin’s Absence, Texas is Stepping Up to Get the Job Done’ – Construction of Texas-Mexico Border Wall to Begin Soon](https://www.thegatewaypundit.com/2021/12/biden-admins-absence-texas-stepping-get-job-done-construction-texas-mexico-border-wall-begin-soon/)
+
+
+
+
+
+翻译：Nick｜校对：JS709｜编辑&发布：闪电训练
 
  
 
