@@ -2,22 +2,28 @@
 ---
 
 
-## 秘翻在线：川普要求中共为新冠全球疫情赔偿60万亿美元
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1772887/)
+## 奥密克戎变异株已在89国发现 感染病例翻倍增长
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1772949/)
 
-#### 翻译：  Evalu
+![荷兰东部城市奈梅亨市民在拥挤的街道上采购节日礼物。荷兰政府已经宣布将封城防止奥密克绒变异病毒的传播。](https://gdb.voanews.com/5AFE22CD-4B5A-4436-9C82-5801FA1A1ABE_w1023_r1_s.jpg)荷兰东部城市奈梅亨市民在拥挤的街道上采购节日礼物。荷兰政府已经宣布将封城防止奥密克绒变异*病毒的传播。*
+据美国之音12月19日报道，世界卫生组织18日表示，传染力超强的奥密克戎（Omicron）变异毒株已在89个国家被发现。该毒株很可能会代替德尔塔（Delta）变异毒株，成为占主导的新冠病毒毒株。而由该变异毒株造成的感染病例每1.5到3天内便翻倍增加，甚至在新冠疫苗接种率很高，或者很多人口已从感染病毒中康复的国家迅速传播。
 
-#### 校对：白夜
-![](https://assets.gnews.org/wp-content/uploads/2021/12/16399727771.png)   图片来源： www.163.com
-华盛顿时报12月19日报道，前总统唐纳德·川普星期日说，中共应该为它造成全球中共病毒疫情而赔偿60万亿美元。
+世卫提出了很多疑问，唯独没有问问：病毒来自哪里？为什么疫苗打得越多，变种越多？
 
-中共病毒自2019年起在中共国武汉爆发后蔓延世界，重创世界经济， 并已造成超过530万人死亡，虽然起源还未定论，但武汉病毒研究所起源不能排除，中共国始终否认实验室起源说。今年3月世界卫生组织的调查报告认为实验室起源可能性很小， 但世卫组织总干事谭德赛说:“我认为调查还不够深入，还需要有关专家进一步的调查。”
+新闻参考链接：[https://www.voachinese.com/a/omicron-detected-in-89-countries-cases-doubling-fast-20211219/6360883.html](https://www.voachinese.com/a/omicron-detected-in-89-countries-cases-doubling-fast-20211219/6360883.html)
 
-作为共和党的领军人物，川普先生告诉福克斯电视台新闻主持人玛丽亚·巴蒂罗姆，共产主义极权统治应该为其帮助中共病毒传播而付出代价。前总统说，中共病毒在全球造成的损失，估计中共很可能欠了60万亿。“ 不只是美国受损，我认为全球为此损失了60万亿，他们（中共）必须为其所做的付出代价， 他们对世界做了可怕的事，而且没有终止”。
+编辑：胖丁
 
-[新闻来源](http://Trump%20demands%20China%20pay%20$60T%20in%20‘reparations’%20for%20the%20coronavirus%20pandemic)
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
