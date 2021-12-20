@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/20/2021 4:29 PM (UTC)`
+
+12月20号：昨天我们直播说，盘古可能变成火龙，裕达国贸可能变成火佛手，可能会天然气爆炸……直播一个小时后盘现场马上就去了上百个国安和工程人员．检查天然气和管道共产党快被吓死了……盘古和裕达的个故事，只是刚刚开始咱们走着瞧……
+![img](https://media.gettr.com/group49/getter/2021/12/20/16/47d009c8-a584-55fc-2690-c010066f05b4/d9c6c1c0045d7e96aeea5c2668f32848.jpg)
+
+---
+
 `@miles 12/20/2021 3:55 PM (UTC)`
 
 12月20号：尊敬的战友们好．冬奥会的政治游戏唯一的受伤害的就10亿中国人民……所有的中国人将为这个完全没有任何价值的政治国际上的愚蠢的秀……付出几千亿美元的代价可悲，可怜．可恨至极……这是人类全球最昂贵的一场灾难游戏……昨天的大直播在国内影响巨大……在世界经济即将崩塌之前．我们的爆料革命的声音。是世界上唯一的救人的忠言警告。
@@ -147,12 +154,6 @@ CCTV, the crazy CCP’s mouthpiece, shirking responsibility for creating the vir
 
 <br/>12月18号：共产党的经济的全面的即将崩溃……和到处抢劫财富的导致的社会动乱……和大量的抓朴公检法．金融部门官员！现在又要求在半年内让中国的医院和医疗企业部门上交1．5万亿支持所谓的国家战略转型期意味着什么？
 ![img](https://media.gettr.com/group18/getter/2021/12/18/16/b3d84aba-add9-e9e2-dd9f-69c17553d92a/out.jpg)
-
----
-
-`@miles 12/18/2021 3:35 PM (UTC)`
-
-18/12/2021 “Hcoin To the Moon" Hits iTunes <br/> No. 1 🥇on 8 Countries Top MV Charts !<br/>No.1🥇 on 10 Countries Rock MV Charts!<br/>No.1🥇 on 6 Countries Rock song Charts!<br/>No.1🥇on 3 countries Hip-pop/Rap song Charts!<br/>Miracle continues…….🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in USA，Australia, Canada, Hungary, Sweden, Portugal, Greece, Malta, Latvia, Finland!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1768242<br/><br/>12月18号，Hcoin To the Moon位列iTunes<br/>8国热门MV榜首🥇！<br/>10国摇滚MV榜首🥇！<br/>6国摇滚歌曲榜首🥇！<br/>3国嘻哈歌曲榜首🥇！<br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢美国，澳大利亚，加拿大，匈牙利, 瑞典，葡萄牙，希腊，马耳他，拉脱维亚，芬兰的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏
 
 ---
 
