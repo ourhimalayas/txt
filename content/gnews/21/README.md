@@ -2,35 +2,46 @@
 ---
 
 
-## 乔拜登即将宣布抗击 Omicron 的新措施向未接种疫苗者发出“严重警告”
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1772967/)
+## 港闻前线｜“完善”选制完败不合作运动 立法会选举投票率创历届新低
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1772994/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-97.png) 图片来自网络
-据《网关专家》作者克里斯蒂娜·莱拉（ Cristina Laila ）2021 年 12 月 18 日报道：
+**撰文/ 港台前线关注组｜发布日期/ 20/12/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Bank-Manager-Banner.jpg)
+**更多资讯请关注官方盖特｜please follow our Gettr （[https://gettr.com/user/hktwfrontline）](https://gettr.com/user/hktwfrontline%EF%BC%89)**
 
-乔拜登将于周二向全国发表讲话，并公布其政府为抗击 Omicron 变种，将采取的新措施。 据报道拜登将对未接种疫苗的人“发出严重警告”。
+昨日（20日）是中共中央“完善”香港选举制度后的首场立法会选举，市民反应冷淡，地区直选及功能组别的投票率均创历史新低。
 
-引述NBC 新闻报道：
+有意思的是，截至晚上九点半，投票率仍然未够三成，所幸有本次新设的边境口岸投票站助攻，戏剧性的贡献了0.39个百分点，最终力保整体投票率不失三成，报收30.2%，创下1997年回归以来的历届最低，亦创下1991年立法局引入直选议席后的历史最低。
 
-*一位白宫官员周六告诉 NBC 新闻，总统乔拜登将于周二发表讲话，以解决 omicron 变种问题，并公布政府为帮助需要救助的社区而采取的新步骤。这位官员说，拜登预计将在他已经公布的“冬季计划”之外采取更多措施，同时“对选择不接种疫苗的美国人发出严重警告，表明这个冬季对他们会是什么样子”。这位官员说，助手们表示，拜登政府“为不断上升的病例数做好了准备”，而拜登打算解释他的团队“将如何应对这一挑战”。*
+功能组别部分，过去曾属民主派票仓的界别，投票率同样是“跳楼式”大跌，创下1985年立法局首次引入间选后的历史最低。社福界投票率由2016年83.6%暴跌至仅余二成，教育界、法律界、会计界、工程界、建筑测量界、医疗衞生界同样创历史新低。
 
-尽管 CDC 中共病毒响应小组发布的每周报告显示，迄今为止在美国发现的绝大多数感染 Omicron 变种的患者，都已完全接种疫苗，但拜登还是在周四向未接种疫苗的人发出了警告。美国疾病控制与预防中心 (CDC) 报告说，在由 Omicron 变种引起的 43 例中共病毒病例中，有 34 人已完全接种疫苗。在完全接种疫苗的人中，有 14 人接种了加强针，但其中 5 人接种时间还不到​​ 14 天。感染了 Omicron 变种的只有 8 人未接种疫苗，1 人状态未知。
+#### **港人不合作：到处吃喝玩乐 唯独不去投票**
 
-原文链接：
+港府为了推动市民出街投票，推出选举日免费搭车措施，一向守规的港人纷纷响应外出。港岛、新界、离岛等各大郊区均见汹涌人潮。
 
+两大乐园，迪士尼和海洋公园的游客络绎不绝，连工作人员都惊讶，从未见过这么多游客。港岛区度假胜地，赤柱和元朗赏枫胜地亦相当热闹，赤柱的海堤坐满了看海的港人。市区的各大商场，食肆都大排长龙… …
 
+**一时间，整个香港仿佛都被挤满了，到处是排队的人，唯独各个投票站门口冷冷清清。**
 
-> [Joe Biden to Announce New Measures to Combat Omicron, Will Issue “Stark Warning” to the Unvaxxed](https://www.thegatewaypundit.com/2021/12/joe-biden-announce-new-measures-combat-omicron-will-issue-stark-warning-unvaxxed/)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Screenshot_20211220-113644_Instagram.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Screenshot_20211220-113632_Instagram.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Screenshot_20211220-113607_Instagram.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Screenshot_20211220-113548_Instagram.jpg)
 
+圖片來源：立場新聞
+#### **林郑月娥：感谢 130 万选民表达支持**
 
+特首林郑月娥于投票结束后发声明，指这次选举具广泛代表性、政治包容性、均衡参与性及公平竞争性。投票的130 万选民不但选出了他们心目中的立法会议员，也表达了经完善后的选举制度的支持。她期望与新一届立法会能衷诚合作，共同推动香港发展经济，融入国家发展大局，并致力改善民生，建设香港，贡献国家。
 
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/SmartSelect_20211220-113520_Instagram.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Screenshot_20211220-113500_Instagram.jpg)
 
+往屆對比 圖片來源：立場新聞
+#### **新华社评论：投票表明是民心所向**
 
-
-
-
-
-翻译：JS709｜校对：Nick｜编辑&发布:闪电训练
+新华社昨晚 9 时，以“百万港人用实际行动粉碎谎言与污蔑”为题，发表评论文章，指中央完善选制后，“众多香港选民用自己的实际行动『打脸』少数国外势力和反中乱港分子。”文章还指，投票表明是民心所向，“外部势力再怎么折腾，也阻挡不了这场关键选举的有序进行，阻挡不了香港特区在民主法治的大道上阔步前进”。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/港台前線-（HK模板）-2.jpg)
+来源｜[立場新聞](https://www.thestandnews.com/politics/ab免費搭車全民旅遊日-長洲赤柱西貢大棠人來人往)
 
  
 
