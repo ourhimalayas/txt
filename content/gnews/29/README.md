@@ -2,10 +2,10 @@
 ---
 
 
-## 武黄高速路高架桥侧翻倒塌
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1773400/)
+## 成千上万的人聚集在墨尔本街头抗议疫苗禁令
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1773398/)
 
-中共国豆腐渣工程又出事，12月18日武黄高速路高架桥侧翻倒塌。
+12/18/2021 成千上万的人聚集在墨尔本街头抗议疫苗禁令。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
