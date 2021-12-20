@@ -2,41 +2,33 @@
 ---
 
 
-## 有声|意大利为应对OMICRON考虑采取新的COVID-19措施
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1774470/)
+## 日本政府拟修改国家安全战略 自卫队将不仅自卫
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1774478/)
 
-配音：香草山美食部 – 玫瑰园
+撰稿：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/4-33.jpg)
+[图片来源](https://www.sankei.com/article/20211007-KTEFYU7KN5I3PC4L5ETUH7WRI4/)
 
+12月20日，日本自民党开始在党内讨论修改《国家安全战略》，这是外交和安全的长期指导方针。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-据[OAN网站](https://www.oann.com/italy-eyes-new-covid-19-measures-amid-omicron-worries-newspapers/)12月19日援引路透社报道，出于对高传染性Omicron中共病毒变体传播的担忧，意大利政府正在考虑采取新的措施，以避免假日期间中共病毒感染率的激增。
+安保调查会长小野寺说：“岸田首相将在明年审查国家安全战略、国防计划大纲和中期防卫计划。从今天开始，我们希望在明年5月底前最终确定我们的建议。”
 
-据悉，总理马里奥·德拉吉可能会要求已接种疫苗者在进入包括迪斯科舞厅、电影院、剧院和体育场在内的拥挤场所时出示COVID-19阴性测试报告，并在户外也须佩戴口罩。
+岸田首相在6日的政策演讲中宣布，他将 “用大约一年的时间制定新的国家安全战略、国防计划大纲和中期国防力量改进计划”，以从根本上加强日本的防卫能力。
 
-而根据目前的规定，已经接种疫苗或最近从该疾病中康复的人可以自由进入酒吧、餐馆、博物馆、电影院、俱乐部和参加体育赛事。
+对此，自民党每周一次在安全调查委员会听取专家意见，并在2022年5月前为政府编撰一份提案。
 
-意大利早前已经强制要求医疗工作者、学校工作人员、警察和军人进行疫苗接种，这一接种义务范围可能从1月起将扩大至涵盖所有工人。
+预计讨论中将包括岸田首相经常提到的拥有“敌方基地攻击能力”的问题。
 
-本周早些时候，罗马已经将COVID-19的紧急状态延长至3月31日，并规定所有来自欧盟国家的游客必须在出发前接受测试。
+拥有“敌方基地攻击能力”将从根本上改变日本自卫队的属性，读者请细品，这是为什么做准备呢？
 
-文字版原文：[意大利为应对OMICRON考虑采取新的COVID-19措施](https://gnews.org/zh-hans/1772113/)
+信息来源:
 
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
-**更多资讯，更多关注**
+[安保戦略見直し 自民が開始　敵基地攻撃能力も議論へ](https://news.yahoo.co.jp/articles/d14192006d09a8c0e3eabc5058222a9b95fabff9)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWSLOGO20211207.jpg)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
