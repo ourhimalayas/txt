@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/20/2021 7:05 AM (UTC)`
+
+12/19/2021 Miles Guo: Peng Liyuan (Xi Jinping’s wife) will surely make an appearance at the Winter Olympics, announcing that she is the second top figure of Communist China! The Great Hall of the People will be the first choice for Xi to meet with the leaders from 20 or so countries attending the Winter Olympics. The Pangu 7 Star Hotel will be the most important venue for the Winter Olympics as the national security control center!<br/><br/>12/19/2021 文贵直播: 彭丽媛一定会在冬奥会上亮相，以此向世人宣告她是中国第二号人物！习近平也一定会首选人民大会堂接见来自20多个国家的领导人。作为国家安全控制中心的盘古七星酒店将成为冬奥会最重要的场所！
+![img](https://media.gettr.com/group12/getter/2021/12/20/07/79d93a5d-9935-4cd3-b756-ac87808c2d79/out.jpg)
+
+---
+
+`@miles 12/20/2021 7:00 AM (UTC)`
+
+12/19/2021 Miles Guo: Xi attempts to use foreign athletes and media coverage of the Winter Olympics to prove his governing capability and the superiority of the CCP’s system; Xi will continue to make him a god and will invade Taiwan in the name of saving Taiwan, and by then the Taiwanese athletes will not have to go back to Taiwan<br/><br/>12/19/2021 文贵直播：习妄想在冬奥会利用外国运动员和媒体报道来证明自己的治理能力和中共体制的优越性；习将继续造神并以拯救台湾的名义打台湾，届时，台湾运动员就不用回去了<br/>
+![img](https://media.gettr.com/group8/getter/2021/12/20/07/9d31ec79-eb5f-de44-340b-79bca1513a43/out.jpg)
+
+---
+
 `@miles 12/20/2021 2:37 AM (UTC)`
 
 Miles Guo's Latest Song "Hcoin To the Moon" has created 22 historic records so far🎉🎉🎉🎉🎉🎉🎉🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1771779<br/><br/>郭文贵先生最新歌曲《Hcoin To the Moon》迄今为止已经创造了22项历史记录🎉🎉🎉🎉🎉🎉🎉🙏🙏🙏🙏🙏🙏🙏<br/>https://gnews.org/zh-hans/1771778/<br/><br/>
@@ -139,20 +153,6 @@ CCTV, the crazy CCP’s mouthpiece, shirking responsibility for creating the vir
 
 12/17/2021 Miles Guo: The CCP’s taking over Pangu (the dragon head-shaped building) and Yuda (“the Buddha's Hands in Zhongyuan”) indicates that Xi Jinping believes in the existence of God and Buddha and that the Whistleblowers’ Movement and the New Federal State of China are bound to take down the CCP. The year of Ren Yin, the year of the water tiger, is the year for the “match of magic powers” of Xi and Peng Liyuan vs. New Federal State of China <br/><br/>12/17/2021 文贵直播：中共现在搞盘古(龙)、搞裕达(中原佛手)，说明习彭相信神佛、相信爆料革命、新中国联邦必灭中共，农历壬水寅虎年是习彭和新中国联邦的“斗法”之年<br/><br/>
 ![img](https://media.gettr.com/group38/getter/2021/12/18/07/3dcc718a-7fec-95f3-2419-dfed740c3931/out.jpg)
-
----
-
-`@miles 12/18/2021 3:42 AM (UTC)`
-
-12/17/2021 Miles Guo: “Atheists Xi (Jinping) & Peng (Liyuan) performed a political witchcraft on Pangu Plaza, which is exactly the same with what Ceausescu couple, and each last emperor in China’s history, i.e., massively applied enchantment, delusion, witchcraft and wizardry in their last days<br/><br/>12/17/2021 文贵直播：标榜无神论者的习彭对盘古施了一场政治大巫术，和当年齐奥塞斯库两口子、中国历代末世君王大量实行蛊、惑、妖术、巫术如出一辙
-![img](https://media.gettr.com/group43/getter/2021/12/18/03/8b43e466-dabc-0e3f-30a9-a44341b44e7b/out.jpg)
-
----
-
-`@miles 12/18/2021 3:28 AM (UTC)`
-
-12/17/2021 Miles Guo: The CCP, which claims to be atheist, attacks me using sorcery by taking advantage of the power of the entire Communist China! However, I have been doing better and better, while the CCP has been labeled as a criminal organization by the world, facing all kinds of unfavorable situations in terms of finance, real estate, public opinion, and its reputation in the international community etc. The sorcery used by Xi Jinping and Peng Liyuan have failed completely!<br/><br/>12/17/2021 文贵直播：自称无神论的中共竟倾一国之力以巫术对付文贵！然而文贵发展越来越好，但中共却被世界列为犯罪组织，面临着金融，房地产，民心和国际环境等各方面不利的局面！习和彭使用的巫术已彻底失败！<br/>
-![img](https://media.gettr.com/group43/getter/2021/12/18/03/7a77abca-8b0b-1e1d-c622-7b077e0156cc/out.jpg)
 
 ---
 
