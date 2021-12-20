@@ -2,46 +2,22 @@
 ---
 
 
-## 灭共漫画系列——家天下
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1775423/)
+## 恆大破产在即 金融危机下战友们的执行力！
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1775440/)
 
-**出品：纽约香草山设计部**
+标普全球评级(S&P Global Ratings)最新将恒大集团(China Evergrande Group, 3333.HK, 简称：中国恒大)的评级下调至可能的最低水平之一，这意味着全球三大信用评级机构现在都认为这家房地产巨头存在违约。上週五标普正式宣布恆大“选择性违约”，离破产仅一步之遥。恆大负债3000多亿美元，其中有大量交叉债券违约，一旦正式宣告破产，将会对全球金融市场造成巨大伤害。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/download-2-1.jpg)
 
+恆大的债务包括：1）欠中共国银行和基金公司等200多家金融机构的债务；2）未能按时履行向购房业主交付商品房的违约赔偿金；3）拖欠建筑承包商和装修承包商的工程款；4）欠海外投资的基金公司的债务。恆大所谓选择性偿还的债务必然选则偿还第一项，原因不言自明。而剩下的偿还不了的债务将以破产的方式赖掉。“选择性违约”一词值得推敲。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+海外媒体关于恆大暴雷的报导也将近一个月，在给全球金融市场吹风，犹抱琵琶半遮面的预警，掩耳盗铃般的期待这个金融巨雷能够“软著陆”。
 
+郭先生多次在直播中预警恆大即将暴雷，房价和股票必然暴跌。爆料革命战友要具备“众人皆醉我独醒”的智慧、勇气和执行力，在别人还在炒房、炒股票和比特币的时候，果断抛掉手中的股票、比特币和多馀的房产。郭先生每周三次的大直播里，语重心长提醒战友们，规避金融风险不仅要及时掌握正确的资讯，更要有智慧勇气和执行力。
 
-
-
-
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-IMG_3510.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/2-IMG_3460.jpg)
-
-
-**编辑/发稿：小鹿**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-2.png)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
-
+文案：自由之翼
+校对整理：面包树、理工男文峰
+上传：米線
 
  
 

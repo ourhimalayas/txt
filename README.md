@@ -15,65 +15,65 @@
 
 ---
 
-### [浙江冠状病毒病例急增，中共敛财好时机](/content/gnews/1/README.md)
+### [以色列卫生部考虑建议刚接种新冠疫苗的人避免训练](/content/gnews/1/README.md)
+ ` xiaobaige`
+
+### [浙江冠状病毒病例急增，中共敛财好时机](/content/gnews/2/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [港股暴跌 CCP假擀面杖撑不住了！](/content/gnews/2/README.md)
+### [港股暴跌 CCP假擀面杖撑不住了！](/content/gnews/3/README.md)
  ` 焦點20分`
 
-### [印度：三针疫苗接种者查出Omicron病毒](/content/gnews/3/README.md)
+### [印度：三针疫苗接种者查出Omicron病毒](/content/gnews/4/README.md)
  ` 墨尔本雅典娜农场`
 
-### [灭共者之郭氏情报站（五）12月19日版](/content/gnews/4/README.md)
+### [灭共者之郭氏情报站（五）12月19日版](/content/gnews/5/README.md)
  ` MOS Designer香草山设计部`
 
-### [恆大破产在即 金融危机下战友们的执行力！](/content/gnews/5/README.md)
+### [恆大破产在即 金融危机下战友们的执行力！](/content/gnews/6/README.md)
  ` 焦點20分`
 
-### [灭共漫画系列——家天下](/content/gnews/6/README.md)
+### [灭共漫画系列——家天下](/content/gnews/7/README.md)
  ` MOS Designer香草山设计部`
 
-### [2021年12月19日郭文贵先生直播全文字版（下）](/content/gnews/7/README.md)
+### [2021年12月19日郭文贵先生直播全文字版（下）](/content/gnews/8/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [台北马拉松赛5名选手昏迷 赛前均被迫接种疫苗](/content/gnews/8/README.md)
+### [台北马拉松赛5名选手昏迷 赛前均被迫接种疫苗](/content/gnews/9/README.md)
  ` 日本东京方舟农场`
 
-### [彭帅事件充分暴露出中共的媒体审查及操纵机制](/content/gnews/9/README.md)
+### [彭帅事件充分暴露出中共的媒体审查及操纵机制](/content/gnews/10/README.md)
  ` 日本东京方舟农场`
 
-### [每日快报： 达沃斯世界经济论坛连续第二年推迟](/content/gnews/10/README.md)
+### [每日快报： 达沃斯世界经济论坛连续第二年推迟](/content/gnews/11/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [湖北侧翻单柱桥梁，专家出来开始甩锅](/content/gnews/11/README.md)
+### [湖北侧翻单柱桥梁，专家出来开始甩锅](/content/gnews/12/README.md)
  ` 澳喜农场`
 
-### [合法示威活动，特殊干预警队，警官道德守则](/content/gnews/12/README.md)
+### [合法示威活动，特殊干预警队，警官道德守则](/content/gnews/13/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [美国一些大型医院放弃了疫苗强制接种](/content/gnews/13/README.md)
+### [美国一些大型医院放弃了疫苗强制接种](/content/gnews/14/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [谢直锟早已“身无分文” 他的猝然离世和海航王建去世一样关键](/content/gnews/14/README.md)
+### [谢直锟早已“身无分文” 他的猝然离世和海航王建去世一样关键](/content/gnews/15/README.md)
  ` 焦點20分`
 
-### [世界经济坠入至暗时刻，新中国联邦必将冲出数字货币“春秋”时代赢得“三国演义”](/content/gnews/15/README.md)
+### [世界经济坠入至暗时刻，新中国联邦必将冲出数字货币“春秋”时代赢得“三国演义”](/content/gnews/16/README.md)
  ` YALUN 亚伦`
 
-### [仅少数疫苗受害者能通过“伤害赔偿计划”](/content/gnews/16/README.md)
+### [仅少数疫苗受害者能通过“伤害赔偿计划”](/content/gnews/17/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [中共国的信托几乎是诈骗 不知拖死多少人](/content/gnews/17/README.md)
+### [中共国的信托几乎是诈骗 不知拖死多少人](/content/gnews/18/README.md)
  ` 焦點20分`
 
-### [特鲁多政府警告加拿大人不要旅行](/content/gnews/18/README.md)
+### [特鲁多政府警告加拿大人不要旅行](/content/gnews/19/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [五眼联盟外长就香港立法会选举发表联合声明](/content/gnews/19/README.md)
+### [五眼联盟外长就香港立法会选举发表联合声明](/content/gnews/20/README.md)
  ` HimalayaRussia`
-
-### [【Michael.Tonny专栏】辉瑞CCP病毒疫苗临床试验中，儿童不良反应率为86.2%](/content/gnews/20/README.md)
- ` 温哥华扬帆农场`
 
 ### [痴呆拜登将更疯狂强推疫苗接种](/content/gnews/21/README.md)
  ` HimalayaRussia`
