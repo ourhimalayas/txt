@@ -2,30 +2,40 @@
 ---
 
 
-## 秘翻在线：彭帅接受外媒采访，改口否认遭性侵“没说过，也没写过”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1773875/)
+## 七哥冬奥会悬念解惑四：盘古龙头和盘古大观是否会启用
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1773912/)
 
-撰稿：文字燒
-![](https://assets.gnews.org/wp-content/uploads/2021/12/16399939781-1.png)图片来源：《联合早报》采访视频截图
-据《朝日新闻》报道，在微博上指控前中共高官（张高丽）强迫她与其发生性关系的中共国著名职业网球运动员——彭帅周三在接受新加坡《联合早报》采访时，否认她曾说过或写过她曾受到过性侵犯。 这是她在社交媒体上发帖后首次接受海外媒体采访。
+下一个问题，盘古大观酒店，七星级酒店已经是龙虾被他们蘸咖喱给吃完了，专案组，酒店已经关业（闭）了，停业了，然后裕达国贸，被李友和王健林已经接了，叫万达美景酒店。咱就别说那个了，还在营业中，诱骗所有的员工，不补偿，让你签半年一年合同，咱先另说，盘古大观七星酒店，在2月14号的时候会不会重新营业呢？
 
-据《联合早报》报道，19日，彭帅在上海观看了一场滑雪比赛。 活动结束后，她在会场接受了采访。
+你们的问题（回答）全错了！他根本不存在营业不营业，所以又掉坑里去啦！盘古大观七星酒店，将是冬奥会最重要的场址，所有的开幕式，闭幕式的关键所在之地，冬奥会的国家安全控制中心，又回到了2008年，风水如此轮回之转，啊哈哈！会使用，会重大使用，核心！
 
-彭帅告诉记者，“我一直是自由的”，否认她受到共产党政府的监视。她还说，她很享受与国际奥林匹克委员会（IOC）主席托马斯-巴赫在北京的家中进行的在线对话。
+而且是，习近平习太阳和他的彭月亮，都会出现在同一个地方，而且主要的人物也会出现在那里。鸟头，还有上面的龟头上面，有重大安全举措，而且就是盘古龙头和盘古大观，是狙击手的最高制高点，兄弟姐妹们你们的答案都错了！
 
-她还强调，上个月CGTN（中共国国际电视台）在推特上公布的否认性侵犯的电子邮件，她说她已经发送给了女子网球协会（WTA），这是她自己的意愿。
+编辑整理：海贼王M.D.LUFFY；
 
-引发争论的帖子于11月2日发表在中共国社交网站微博上，其账号据称属于彭帅。它声称前副总理张高丽曾强迫她对他进行性行为，并在不久之后被删除。
+字幕制作：小满；
 
-此后，彭帅一直下落不明，国际社会对她的安全越来越关注。也不清楚彭帅是在什么情况下同意接受采访的。
+视频制作及上传：Cindy；
 
-您怎么看？
+G-News发布：小满；
 
-信息来源：
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
 
-[https://www.asahi.com/articles/ASPDN3CT5PDNUHBI007.html?iref=pc\_photo\_gallery\_breadcrumb](https://www.asahi.com/articles/ASPDN3CT5PDNUHBI007.html?iref=pc_photo_gallery_breadcrumb)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-责编：待命（文晓）
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

@@ -2,12 +2,12 @@
 ---
 
 
-## 彭帅否认遭到性侵，并说她关于此事的微博被误读
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1774062/)
+## 杰森·米勒：联邦制终将拯救美国
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1774125/)
 
-12/19/2021 中国网球运动员彭帅否认曾指控别人性侵自己，并说她上个月发的一篇微博被错误解读。
+12/15/2021 杰森·米勒认为在欧盟看到的疫苗护照过几个月就会在美国出现。然而，由于联邦制和许多坚强的州长和保守派，美国人最终会停止这种专制的疫苗护照。
 
-By:【秘密翻译组-精翻组 G-Translators/Elite Team】
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

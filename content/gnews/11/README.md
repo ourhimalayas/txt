@@ -2,48 +2,37 @@
 ---
 
 
-## 合法示威活动，驱散通知，示威非法
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1774087/)
+## 接种辉瑞疫苗者死亡，卫生当局仍然认为接种疫苗更安全
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1774142/)
 
-编译：16626
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1677.png)图片来源：https://spvm.qc.ca/fr网站
-蒙特利尔市警察局SPVM（蒙特利尔市警察局，SPVM， 2021 年 12 月 19 日星期日更新，https://spvm.qc.ca/fr）指出，蒙特利尔市警察局SPVM 致力于维护蒙特利尔公民的言论自由和示威权利，我们坚定的认为，绝大多数的公共示威活动都会顺利进行。蒙特利尔市警察局SPVM有关开展示威活动的规定编译如下：
+**【雅典娜快讯】，紧贴时代脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-246.jpg)图片来源：Yahoo News
+**整理报道：文泓**
 
-**在发出驱散通知后，警方会要求多长时间离开现场，以及如何通知示威者？**
+12月19日，新西兰卫生当局表示，他们确信一名26岁男子的死亡与辉瑞公司新冠疫苗的副作用有关。
 
-根据情况，蒙特利尔市警察SPVM 可以通过音频设备发出一个或多个口头通知，请场内的所有人离开。
+据彭博社报道，初步的验尸分析表明，该男子的死因可能是心肌炎，这是疫苗的一种“罕见”的副作用，会导致心肌壁发炎。
 
-驱散通知信息通常也以通过蒙特利尔市警察局SPVM的 Twitter 帐户 (@SPVM) 传达并通知示威者。
+同期，新西兰新冠疫苗独立安全监测委员会在一份声明中说，“根据目前现有的信息，委员会认为该死亡者的心肌炎可能是由于接种疫苗造成的”。该人在接种第一支辉瑞疫苗后两周内死亡。
 
-如果在公共秩序受到威胁，或公民的安全受到威胁，而示威者对口头通知没有反应，蒙特利尔市警察SPVM将在干预的分级中上移到更高的干预级别，以执行干预示威者离场的指示。
+该声明表示，“新冠病毒感染本身可能是心肌炎的一个原因”，并补充说“接种疫苗仍然比感染病毒更安全”。
 
-**什么时候宣布示威是非法的？**
+委员会还进一步强调，“使用辉瑞公司的新冠疫苗接种的好处仍然大大超过了这种罕见的副作用所带来的风险”。
 
-当发生违法行为或发生暴力行为时，示威活动被宣布为非法，蒙特利尔市警察SPVM 将进行干预以制止示威活动。同样，如果示威者占据一个地方，房间或建筑物，而该地方的负责人要求警方协助将示威者驱逐出该地方，房间或建筑物，则该示威活动被视为非法。
+世界卫生组织（WHO）已经承认，**一些新冠疫苗已经报告了“非常罕见”的心肌炎信号。该组织补充说，大多数心肌炎病例发生在16至24岁的年轻男子身上，通常是在他们第二次接种疫苗后的几天内。**
 
-中共大使馆领事馆住蒙特利尔市的地址：
+美国疾病控制和预防中心（CDC）也表示，它正在“积极监测（接种者）心肌炎的报告”，但它“继续建议5岁及以上的人接种新冠疫苗”。
 
-2100 Rue Ste-Catherine O, 8th floor, Montréal, Québec H3H 2T3
+新闻链接：[New Zealand links death to Pfizer COVID vaccine: ‘it remains safer to be vaccinated’ | TheHill](https://thehill.com/policy/healthcare/586516-new-zealand-links-26-year-olds-death-to-pfizer-covid-vaccine)
 
-中共大使馆领事馆住蒙特利尔市附近的警察局地址信息：
+**发布：**去中心化Math
 
-VILLE-MARIE OUEST, WESTMOUNT，POSTE DE QUARTIER 12
-
-21, rue Stanton，[près de l’av. Argyle]，Westmount，H3Y 3B1
-
-Téléphone : 514-280-0112，Télécopieur : 514-280-0612
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1378.png)黑圈中为中共大使馆领事馆住蒙特利尔市附近的警察局地址
-**待续**
-
-**文章编译人提醒读者，魁北克警官道德守则规定，警官不得 “在与公众直接打交道时不佩戴规定的身份标识”（第5条第3款），这指的是任何识别标志（如识别徽章、服务号码或身份证）。**
-
-参考资料：蒙特利尔市警察局SPVM，2021 年 12 月 19 日星期日更新，[Journal De Montreal] [https://spvm.qc.ca/fr](https://spvm.qc.ca/fr)
-
-编辑/发布：LILY
-
-20211220
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
-
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
