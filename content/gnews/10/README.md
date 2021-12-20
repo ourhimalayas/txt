@@ -2,42 +2,30 @@
 ---
 
 
-## 合法示威活动，驱散通知，示威非法
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1774087/)
+## 民主党参议员科里·布克 (Cory Booker) 透露，他的 COVID-19 突破测试呈阳性：“相对温和”
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1774106/)
 
-编译：16626
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1677.png)图片来源：https://spvm.qc.ca/fr网站
-蒙特利尔市警察局SPVM（蒙特利尔市警察局，SPVM， 2021 年 12 月 19 日星期日更新，https://spvm.qc.ca/fr）指出，蒙特利尔市警察局SPVM 致力于维护蒙特利尔公民的言论自由和示威权利，我们坚定的认为，绝大多数的公共示威活动都会顺利进行。蒙特利尔市警察局SPVM有关开展示威活动的规定编译如下：
+特里斯坦·巴拉格塔斯
 
-**在发出驱散通知后，警方会要求多长时间离开现场，以及如何通知示威者？**
+翻译：沉默老歌
 
-根据情况，蒙特利尔市警察SPVM 可以通过音频设备发出一个或多个口头通知，请场内的所有人离开。
+2021 年 12 月 19 日晚上 09:46
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Q2ZIBFSNDZJPVOT5DYG5BWP6RY1-edited.jpg)图片来源：网络
+科里·布克 (Cory Booker) 在推特上分享说：“我非常感激我接种了两剂疫苗，而且最近又接种了一次加强剂——我确信如果没有它们，我的情况会更糟。”
 
-驱散通知信息通常也以通过蒙特利尔市警察局SPVM的 Twitter 帐户 (@SPVM) 传达并通知示威者。
+参议员科里·布克 (Cory Booker) 透露，他的 COVID-19 突破测试呈阳性：“相对温和”。
 
-如果在公共秩序受到威胁，或公民的安全受到威胁，而示威者对口头通知没有反应，蒙特利尔市警察SPVM将在干预的分级中上移到更高的干预级别，以执行干预示威者离场的指示。
+科里·布克 (Cory Booker) 是最新一位透露他的 COVID-19 检测呈阳性的政治家。
 
-**什么时候宣布示威是非法的？**
+这位已接种疫苗的民主党新泽西州参议员在前一天感觉“相对轻微”的症状后，于周日在 Twitter 上宣布了他对突破性 COVID 的诊断。
 
-当发生违法行为或发生暴力行为时，示威活动被宣布为非法，蒙特利尔市警察SPVM 将进行干预以制止示威活动。同样，如果示威者占据一个地方，房间或建筑物，而该地方的负责人要求警方协助将示威者驱逐出该地方，房间或建筑物，则该示威活动被视为非法。
+52 岁的布克写道：“我今天了解到，在周六第一次出现症状后，我的 COVID-19 检测呈阳性，我的症状相对较轻” 。 “我非常感激我接种了两剂疫苗，最近又接种了一次加强剂，我敢肯定，如果没有它们，我的情况会更糟”。
 
-中共大使馆领事馆住蒙特利尔市的地址：
+**评：**又一民主党参议员检测出中共病毒阳性，而且接种了三针疫苗。事实再一次证明，疫苗是无效的，接种疫苗是有害的。避免接种疫苗，远离中共病毒是保护自己不受伤害最有效的方法。
 
-2100 Rue Ste-Catherine O, 8th floor, Montréal, Québec H3H 2T3
+来源链接：
 
-中共大使馆领事馆住蒙特利尔市附近的警察局地址信息：
-
-VILLE-MARIE OUEST, WESTMOUNT，POSTE DE QUARTIER 12
-
-21, rue Stanton，[près de l’av. Argyle]，Westmount，H3Y 3B1
-
-Téléphone : 514-280-0112，Télécopieur : 514-280-0612
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1378.png)黑圈中为中共大使馆领事馆住蒙特利尔市附近的警察局地址
-**待续**
-
-**文章编译人提醒读者，魁北克警官道德守则规定，警官不得 “在与公众直接打交道时不佩戴规定的身份标识”（第5条第3款），这指的是任何识别标志（如识别徽章、服务号码或身份证）。**
-
-参考资料：蒙特利尔市警察局SPVM，2021 年 12 月 19 日星期日更新，[Journal De Montreal] [https://spvm.qc.ca/fr](https://spvm.qc.ca/fr)
+[https://www.reuters.com/world/us/us-senator-elizabeth-warren-tests-positive-covid-19-2021-12-19/](https://www.reuters.com/world/us/us-senator-elizabeth-warren-tests-positive-covid-19-2021-12-19/)
 
 编辑/发布：LILY
 

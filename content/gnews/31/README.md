@@ -2,64 +2,38 @@
 ---
 
 
-## 中共国房地产压力让钢铁行业情况变糟，示警经济
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1773897/)
+## 七哥冬奥会悬念解惑三：习近平对到场外国政要接不接见
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1773898/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/122004-1.jpg)档案图片：2017 年 7 月 7 日，在中共国山东省济南市的山东钢铁集团钢铁厂工作的工人。特约记者/ 路透社
-北京（路透社）12月18日报道， 一家中共国主要房地产开发商的债务问题现在已经蔓延到钢铁行业——中共工业引擎至关重要的一条动脉，并开始波及这一世界第二大经济体的其它关键领域。
+下一个问题，大家听好下一个问题，习近平最关键的在这次冬奥会上，也是全世界最关注的，他的个人健康。这就是来的二三十个国家领导人，他见不见面的问题，接不接见的问题，是各个接见，还是群体接见，会在哪里接见？
 
-房地产公司资产负债表危机的扩散对政策制定者来说是一个警告，因为钢铁行业的命运摇摆将给中共经济带来极严重的后果，水泥、玻璃和家用电器都容易受到需求下滑的影响。
+好！我告诉大家答案，他会见，啊！会见，集体见个人见都会见，首选人民大会堂，一定会见的，记住我今天说的话。
 
-由于来自建筑活动的需求放缓，钢铁价格已经从今年早些时候的历史高位上下落。建筑对钢铁的需求占金属消费的一半以上，同时钢铁生产商的股价也已遭受打击。
+编辑整理：海贼王M.D.LUFFY；
 
-房地产行业的不安动摇了本已疲软的买家情绪，在2021年最后一个季度，该行业遭受了进一步的打击：11月，中共国100大城市的未售房库存量达到5年来的最高点。
+字幕制作：小满；
 
-住房需求预计在2022年会进一步放缓，给下游的家用产品制造商带来打击。
+视频制作及上传：Cindy；
 
-**命运逆转**
+G-News发布：小满；
 
-在2021年的前三个季度，钢铁公司是中共整个经济中表现最好的企业之一——中共国28家主要上市炼钢厂赚取净利润超过1060亿人民币（166.1亿美元），同比增长了174%，高出2019年疫情前129%。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
 
-但是钢铁行业的繁荣期已经结束。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-按建筑面积计算，新开工地块从一年前的7月份就已经开始收缩——这是自2015年以来最长的下降期。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-房地产行业放缓重创了中共的原钢产出，自9月份以来，月产量下降了20%以上。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-随着钢铁生产商开始踩刹车（减产），用于钢铁制造的关键原料也遭受沉重打击——大连商品交易所铁矿石期货跟 5 月份的纪录相比下跌超过45%。
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-**不确定的前景**
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-房地产相关行业是中共经济唯一最大的贡献者，2021年贡献了28%的GDP，低于2016年的峰值35%。
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-继今年钢材需求下降4.7%之后，一家政府行业咨询机构预计中共国2022年的钢材需求将下降0.7%。
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-**简评：**
-
-房地产危机是中共国内经济灾难的前奏，最终中共所有的谎言都会被戳破。
-
-房地产相关行业贡献了中共GDP的30%左右，这个比例越大，反映普通人的生活质量相应越差。房子是建立一个家不可或缺的一环，所以稍稍有了点积蓄的工薪族几乎都会贷款买房，但随后就是一代人或两代人十几、二十年的还贷生活，这期间不敢生病，只图能安安稳稳的守住一份工作，改善生活、梦想都无从谈起。大家会逐渐了解房地产对老百姓的欺骗，意识到被它绑架，并且不会继续做中共的供血机器。
-
-新闻链接：[China’s Property Distress Sours Steel Sector in Warning Sign for Economy](https://money.usnews.com/investing/news/articles/2021-12-18/chinas-property-distress-sours-steel-sector-in-warning-sign-for-economy)
-
-*翻译: 乡间小路*
-
-*校对：感恩*
-
-
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

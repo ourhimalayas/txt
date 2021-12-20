@@ -2,10 +2,10 @@
 ---
 
 
-## 中共党媒CCTV甩锅美国制造病毒、传播危机、践踏人权
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1773958/)
+## 接种疫苗加强针的参议员伊丽莎白.沃伦病毒检测呈阳性
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1773960/)
 
-中共党媒CCTV甩锅美国制造病毒、传播危机、践踏人权
+12/19/2021 接种过疫苗和加强针的美国马萨诸塞州民主党参议员伊丽莎白.沃伦病毒检测呈阳性。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
