@@ -2,30 +2,32 @@
 ---
 
 
-## 【中日财经爆】日本参议院一致通过国内半导体生产补贴修正案
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1774367/)
+## GTV投资人对SEC的抗议活动圆满完成
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1774355/)
 
-撰稿:东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-247.jpg)
-[图片源](https://parstoday.com/ja/news/japan-i90144)
+作者：纽约香草山农场 – 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月17日，GTV投资人在美国SEC华盛顿特区总部外举行的抗议活动圆满结束。此次抗议活动开始于10月4日，历时74天。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/4-32.jpg)
+美国SEC在9月13日与GTV和Saraca公司达成了和解协议。然而，在此后近一个月的时间里，美国SEC没有按照和解协议展开任何行动。美国SEC的腐败和官僚作风，引起了投资人的强烈不满。GTV投资人为了维护自己的合法权益，依法展开一系列的抗议行动。
 
-日本政府支持半导体国内生产的修订法于20日在参议院全体会议上获得通过。
+此次抗议活动持续了两个半月，并且坚持在GTV平台上直播，得到了全球GTV投资人与正义人士的积极响应与支持，并得到了广泛的赞誉。
 
-其目的是确保高性能半导体的国内生产，这与经济安全直接相关。经济产业省将建立一个系统制度，对申请企业的国内生产设施的发展计划给予认证，并对获批的企业按年分批发放补贴。
+参考链接: [历经两个半月，74天的SEC抗议游行在今天完美收官。感谢所有参加游行的战友们，你们的努力和付出捍卫了GTV投资者合法的利益，更展现了超强的行动力和一流的素质，战友们你们辛苦了！难忘和大家一起奋斗的日子，相信我们很快就会在盘古相见，期待下次和大家一起战斗！](https://gettr.com/post/pjyv19196f)
 
-全球最大的半导体代工制造商台积电在熊本县规划的新工厂有望率先获得认证，给予补助。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-新法案修订了《促进特定先进信息和通信技术的开发、供应和引进法》（5G促进法）和《新能源和产业技术综合开发机构法（NEDO）》，将在2021财年生效。最高补助金额为所需资金的一半，这些资金将从NEDO设立的基金中提供。政府在20日批准的2021财政年度补充预算中为该基金争取到6170亿日元的资金费用。
+总编：Ivy001
+编辑：Jack Li文阳
+校正/发稿：Fei797
 
-信息源:
-
-[半導体国内生産に助成金　複数年にわたり支援　改正法成立](https://news.yahoo.co.jp/articles/71b53f7d27bda02071a43123c7932305f0c8fb06)
-
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWSLOGO20211207.jpg)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
