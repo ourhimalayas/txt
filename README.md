@@ -15,127 +15,127 @@
 
 ---
 
-### [血的教训-新西兰开始正视疫苗致死危害](/content/gnews/1/README.md)
+### [前总统川普表示自己不会抵制北京冬奥会](/content/gnews/1/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [血的教训-新西兰开始正视疫苗致死危害](/content/gnews/2/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [英国政府再次大量采购咪达唑仑意欲何为？](/content/gnews/2/README.md)
+### [英国政府再次大量采购咪达唑仑意欲何为？](/content/gnews/3/README.md)
  ` 首尔天池农场`
 
-### [【中日财经爆】天量断供房冲击市场，法拍房也将限购](/content/gnews/3/README.md)
+### [【中日财经爆】天量断供房冲击市场，法拍房也将限购](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本外交部长表示加强美日联盟打击中共霸权主义](/content/gnews/4/README.md)
+### [日本外交部长表示加强美日联盟打击中共霸权主义](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [王毅对放发狠话：不惧中美对抗将奉陪到底](/content/gnews/5/README.md)
+### [王毅对放发狠话：不惧中美对抗将奉陪到底](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [杀婴制度让82%的孕妇在第一二阶段接种疫苗后遭自然流产](/content/gnews/6/README.md)
+### [杀婴制度让82%的孕妇在第一二阶段接种疫苗后遭自然流产](/content/gnews/7/README.md)
  ` 纽约香草山MOS01`
 
-### [喜币代持意义](/content/gnews/7/README.md)
+### [喜币代持意义](/content/gnews/8/README.md)
  ` 澳喜农场`
 
-### [香港立法会选举投票率创新低](/content/gnews/8/README.md)
+### [香港立法会选举投票率创新低](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [研究发现中国的科兴公司疫苗对奥米炕抗体无效](/content/gnews/9/README.md)
+### [研究发现中国的科兴公司疫苗对奥米炕抗体无效](/content/gnews/10/README.md)
  ` 纽约香草山MOS01`
 
-### [DC大中华时事：中共称西方炮制“强迫劳动”谎言目的是祸乱新疆](/content/gnews/10/README.md)
+### [DC大中华时事：中共称西方炮制“强迫劳动”谎言目的是祸乱新疆](/content/gnews/11/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [对抗中共的隐瞒、拉拢和胁迫是国会最统一的议题](/content/gnews/11/README.md)
+### [对抗中共的隐瞒、拉拢和胁迫是国会最统一的议题](/content/gnews/12/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美国会通过新疆产品进口禁令将34家中共国公司列入黑名单](/content/gnews/12/README.md)
+### [美国会通过新疆产品进口禁令将34家中共国公司列入黑名单](/content/gnews/13/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共意图通过超限战手段夺取未来战争的控制权](/content/gnews/13/README.md)
+### [中共意图通过超限战手段夺取未来战争的控制权](/content/gnews/14/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [全球债务飙升至226万亿美元可能引发下一次金融危机](/content/gnews/14/README.md)
+### [全球债务飙升至226万亿美元可能引发下一次金融危机](/content/gnews/15/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [伦敦市长警告说，将出台更多的疫情限制措施](/content/gnews/15/README.md)
+### [伦敦市长警告说，将出台更多的疫情限制措施](/content/gnews/16/README.md)
  ` 墨尔本雅典娜农场`
 
-### [币圈新闻动态：喜币（HCN）价格目前在44.340 HDO](/content/gnews/16/README.md)
+### [币圈新闻动态：喜币（HCN）价格目前在44.340 HDO](/content/gnews/17/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中共证监会明确严管“假外资”](/content/gnews/17/README.md)
+### [中共证监会明确严管“假外资”](/content/gnews/18/README.md)
  ` 纽约香草山MOS01`
 
-### [澳洲议员凯利呼吁政府重视伊维菌素治疗新冠的有效性](/content/gnews/18/README.md)
+### [澳洲议员凯利呼吁政府重视伊维菌素治疗新冠的有效性](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线：跟踪报道杰森·米勒接受法国记者埃里克·莫里洛的采访](/content/gnews/19/README.md)
+### [秘翻在线：跟踪报道杰森·米勒接受法国记者埃里克·莫里洛的采访](/content/gnews/20/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [【文炬拾字】送葬中共的几点思考](/content/gnews/20/README.md)
+### [【文炬拾字】送葬中共的几点思考](/content/gnews/21/README.md)
  ` 温哥华扬帆农场`
 
-### [湖北高速公路桥梁侧翻致4死8伤](/content/gnews/21/README.md)
+### [湖北高速公路桥梁侧翻致4死8伤](/content/gnews/22/README.md)
  ` 澳喜农场`
 
-### [阻止拜登对私营企业的强制疫苗接种令将上诉到最高法院](/content/gnews/22/README.md)
+### [阻止拜登对私营企业的强制疫苗接种令将上诉到最高法院](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [祸国殃民的中共](/content/gnews/23/README.md)
+### [祸国殃民的中共](/content/gnews/24/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [加密币的区块链技术是人类的未来](/content/gnews/24/README.md)
+### [加密币的区块链技术是人类的未来](/content/gnews/25/README.md)
  ` 澳喜特战旅Gnews`
 
-### [秘翻在线：冲绳美军军营发生至少180人的群体感染](/content/gnews/25/README.md)
+### [秘翻在线：冲绳美军军营发生至少180人的群体感染](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [视频| 习近平与彭丽媛那些事（上）](/content/gnews/26/README.md)
+### [视频| 习近平与彭丽媛那些事（上）](/content/gnews/27/README.md)
  ` MOSREC`
 
-### [视频| 习近平与彭丽媛那些事（下）](/content/gnews/27/README.md)
+### [视频| 习近平与彭丽媛那些事（下）](/content/gnews/28/README.md)
  ` MOSREC`
 
-### [郭文贵直播摘要和音频 2021.12.19](/content/gnews/28/README.md)
+### [郭文贵直播摘要和音频 2021.12.19](/content/gnews/29/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [纽约州欲立法，可按州长意愿对未打疫苗族无限期拘留](/content/gnews/29/README.md)
+### [纽约州欲立法，可按州长意愿对未打疫苗族无限期拘留](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
 
-### [12.19文贵爆料 2022北京冬奥会或是习近平和CCP的毁灭之路](/content/gnews/30/README.md)
+### [12.19文贵爆料 2022北京冬奥会或是习近平和CCP的毁灭之路](/content/gnews/31/README.md)
  ` 秘密翻译组-原创组`
 
-### [港闻前线｜“完善”选制完败不合作运动 立法会选举投票率创历届新低](/content/gnews/31/README.md)
+### [港闻前线｜“完善”选制完败不合作运动 立法会选举投票率创历届新低](/content/gnews/32/README.md)
  ` 關注組`
 
-### [香港议会选举结果，投票率有史以来最低](/content/gnews/32/README.md)
+### [香港议会选举结果，投票率有史以来最低](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [奥密克戎变异株已在89国发现 感染病例翻倍增长](/content/gnews/33/README.md)
+### [奥密克戎变异株已在89国发现 感染病例翻倍增长](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [喜马拉雅币一周分析与总结（12月13日-12月19日）](/content/gnews/34/README.md)
+### [喜马拉雅币一周分析与总结（12月13日-12月19日）](/content/gnews/35/README.md)
  ` GTV新闻访谈`
 
-### [美学者警告比特币或不久将消失](/content/gnews/35/README.md)
+### [美学者警告比特币或不久将消失](/content/gnews/36/README.md)
  ` GTV新闻访谈`
 
-### [秘翻在线：川普：拜登因对习的畏惧而政策走偏](/content/gnews/36/README.md)
+### [秘翻在线：川普：拜登因对习的畏惧而政策走偏](/content/gnews/37/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [盖特是那些挺身而出捍卫自身价值观的人们的平台](/content/gnews/37/README.md)
+### [盖特是那些挺身而出捍卫自身价值观的人们的平台](/content/gnews/38/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [航空行业高管就疫苗强制令接受参议院委员会质询](/content/gnews/38/README.md)
+### [航空行业高管就疫苗强制令接受参议院委员会质询](/content/gnews/39/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [娜塔莉·温特斯多角度揭示美国被中共贿赂买通得有多深](/content/gnews/39/README.md)
+### [娜塔莉·温特斯多角度揭示美国被中共贿赂买通得有多深](/content/gnews/40/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [杰森·米勒谈盖特GVision等新功能以及对捍卫西方文明的意义](/content/gnews/40/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [俄勒冈州参议员将中共奥运会比作纳粹1936年奥运会](/content/gnews/41/README.md)
+### [杰森·米勒谈盖特GVision等新功能以及对捍卫西方文明的意义](/content/gnews/41/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [美中霸权战争的本质&#8212;-前韩国驻日本外交官禹东柱教授系列讲座一](/content/gnews/42/README.md)
