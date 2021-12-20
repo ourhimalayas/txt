@@ -2,39 +2,27 @@
 ---
 
 
-## 有声|习近平的“家天下”昭示其政治孤立的境地
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1774377/)
+## 中共海上屡次挑衅 日本政府正面提出抗议
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1774426/)
 
-配音：香草山美食部 – 玫瑰园
+撰稿：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3-48.jpg)
+[图片源](https://news.yahoo.co.jp/articles/e9d764a89039fd062382718b52fee7495c324721/images/000)
 
+20日，日本和中共政府在网上举行了“海洋事务高级别磋商”会议。外交、国防和海上保安厅官员在会上讨论了目前存在的相关海洋问题。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-在12月17日的直播中，郭文贵先生明确表示，随着习氏夫妇在中共文联大会上一起亮相，这表明了习近平的“家天下”已经从幕后走到了台前。然而，习近平向外界展示其大权在握的同时，也昭示着习家被中共党内各政治派别孤立的处境。
+日方对中共国公务船在冲绳县尖阁诸岛周围一系列入侵其领海的行为提出抗议。并对中俄军舰绕行日本列岛等不断增加的军事活动表示担忧。
 
-郭先生指出，历史证明，独裁者安排家人当政的做法往往是因为其担忧恐惧，并且身边既无人可信，也无人可用，但这也恰恰说明了其统治已经到了衰亡的时候。
+笔者感觉此次会议像是日本政府给予中共的最后通牒。
 
-郭先生透露，习如今的所有行程表都由彭决定，而习当年出访时的衣着则由李木子安排；另外，彭磊的权力已经到了“一人之下”的地步，他可以决定许其亮的生死；同时，中共国安委全权由习远平说了算；至于对外情报方面，习完全依靠安安。至此，习家的11人集团通过成立各个领导小组，全然架空了中共国的政府职能机构。
+信息源:
 
-对此，郭先生表示，一个公司的运营最忌讳单靠血缘关系建立起家族企业，因为这些纠缠混乱的关系会牵绊公司的发展，而在治理一个国家时，也同样如此。郭先生还解释道，当中国最有权力的人是习、彭及其家人，以及几个忠实的家丁时，这说明中共党内已经没有多少人愿意为习卖命了。因此，习的“家天下”也即将走到政治孤立的悬崖边上。
+[領海侵入で中国に抗議　政府](https://news.yahoo.co.jp/articles/ab0d7d68696fd963049f83baa14607ceab8387ca)
 
-文字版原文：[习近平的“家天下”昭示其政治孤立的境地](https://gnews.org/zh-hans/1766973/)
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWSLOGO20211207.jpg)
 
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

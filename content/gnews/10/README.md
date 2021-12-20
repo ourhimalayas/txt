@@ -2,38 +2,33 @@
 ---
 
 
-## 西安爆发疫情 借出血热转移疫苗后遗症
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1774880/)
+## 由青蒿素看到的社会现象
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1774950/)
 
-作者：日本方舟农场 Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月19日，多家媒体报道，继西安爆发中共病毒疫情后，又发现多例出血热病例。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-20-下午11.56.26.png)
-出血热初期症状与流感类似，发病急、进展快，以发热、出血和肾损伤为主要特征，严重的可导致死亡。
+[![](https://express.adobe.com/page/JAbqFnmBtCMpC/images/a04af4e6-2c99-4a75-b799-c9b6f807bf6d.jpg?asset_id=9f2336ae-88e2-4c88-9bdb-63fc5d07bc86&amp;img_etag=%22547593249d142b955f6941ce8dfc69f6%22&amp;size=1024)](https://express.adobe.com/page/JAbqFnmBtCMpC/images/a04af4e6-2c99-4a75-b799-c9b6f807bf6d.jpg?asset_id=9f2336ae-88e2-4c88-9bdb-63fc5d07bc86&amp;img_etag=%22547593249d142b955f6941ce8dfc69f6%22&amp;size=1024)图片来源网络
+***作者:JuvenGuo***
 
-西安当地医护人员透露，自己所在医院的传染科已住满，而且西安市所有出血热定点医院全部爆满，还有医院被封。部分地区疫情严重，已有多人死亡。一些学校已经停课。
+青蒿素，由几乎到处都能生长的杂草黄花蒿提取而来。我小时候给猪牛羊割草，有时候偷懒会弄两棵大的黄花蒿进去充数，回家交差时会被骂，想不到猪都不吃的草竟然有如此的保健价值。世界就是这样，最珍贵的东西往往就存在于不显眼处，需要每个人用心地去发掘。
 
-郭文贵先生在直播中透露，中共国的疫情早已失控，疫苗灾难正在发生，中共官媒放出发现出血热传染病的消息，目的就是掩盖中共病毒疫苗导致的严重后遗症。
+我们来罗列一下对新冠病毒和毒疫苗有效的药和保健药品：如硫酸羟氯喹、槲皮素、伊维菌素和青蒿素等，它们共同的特点是碱基，羟氯喹、槲皮素、伊维菌素带一价的氧离子，青蒿素更厉害，带三价的氧离子。由此可见，大自然的负离子环境，或者人造负离子对新冠病毒和感冒会有明显的抑制作用。
 
-参考链接：
-1）[中國西安爆鼠疫 出血熱患者湧入醫院](https://tw.news.yahoo.com/%E4%B8%AD%E5%9C%8B%E8%A5%BF%E5%AE%89%E7%88%86%E9%BC%A0%E7%96%AB-%E5%87%BA%E8%A1%80%E7%86%B1%E6%82%A3%E8%80%85%E6%B9%A7%E5%85%A5%E9%86%AB%E9%99%A2-061521972.html)
-2）[西安爆出血热疫情 网传定点医院全爆满](https://www.ntdtv.com/gb/2021/12/18/a103297712.html)
-3）[今日起西安航天总医院门急诊停诊](http://news.hsw.cn/system/2021/1218/1408068.shtml)
-4）[西安：疫情防控形势严峻复杂，启动全员核酸检测工作](https://china.huanqiu.com/article/463GlXVFfeV)
+人类的大部分疾病几乎都有共性，就是倾向存在于酸性环境、红细胞聚集等等。羟氯喹、槲皮素、伊维菌素的碱基对酸性体质的抑制就导致了它们对疾病来源有先天的克制，青蒿素的过氧桥和铁元素的关系注定了青蒿素对几乎全系列疾病都有靶向的特性。
+[![](https://express.adobe.com/page/JAbqFnmBtCMpC/images/f342b47c-b6ab-498a-bdd5-846a91766ba1.png?asset_id=55b3fa8f-9755-4df3-a8e4-cff220f74f09&amp;img_etag=%228ce24433fcef671c0736fc977217b876%22&amp;size=2560)](https://express.adobe.com/page/JAbqFnmBtCMpC/images/f342b47c-b6ab-498a-bdd5-846a91766ba1.png?asset_id=55b3fa8f-9755-4df3-a8e4-cff220f74f09&amp;img_etag=%228ce24433fcef671c0736fc977217b876%22&amp;size=1024)图片来源网络
+我们都知道一棵树无论风吹雨打都会活很久，但是如果砍下来放那里不处理就会很快腐朽。活着的树不会腐朽，原因就是生态，没有了生态，再大的树也会很快烂掉。CCP就是自毁生态的魔鬼，所以CCP很快就会灭亡。
 
-![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+对于我们人类社会来说，金钱名利都可以看作氧离子，如果有信仰，有法治，有底线，有生态的人，金钱名利会让他茁壮成长，让大生态环境更好。而没有底线、假话连篇、拿人不当人，实施种族灭绝的CCP，拥有大量的财富使他们更加狂妄而制造出人类前所未有的危机，与全人类为敌，这只会加速他们自己的灭亡。
 
-总编：Ivy001
-编辑：文真
-校正/发稿：呼吸的雾霾（文小呼吸）
+与CCP为伍的人也不会有好下场，只有及早与CCP切割，重拾信仰和良知，自己及家人才能因此进入良性生态，获得地狱到天堂的解脱。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*编辑：【英国伦敦喜庄园编辑部】*
+
+*校对：穆清/文明明 | 审核：文明明 | Page: Daoiii*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+[![](https://express.adobe.com/page/JAbqFnmBtCMpC/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://express.adobe.com/page/JAbqFnmBtCMpC/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

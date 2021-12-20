@@ -2,34 +2,42 @@
 ---
 
 
-## 港警持长枪高调武装巡视立法会投票站
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1774404/)
+## 有声|意大利为应对OMICRON考虑采取新的COVID-19措施
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1774470/)
 
-作者：纽约香草山农场 – 文真
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-香港立法会选举于当地时间12月19日举行，香港警方提前两天派出万名警力在全港立法会投票站武装巡视。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/6-39.jpg)
-17日，港警调派三个部队，包括反恐特勤队、机场特警、以及铁路应变部队，分别在下午和晚上，到全港多个投票站，包括落马洲边境投票站、中环中心和九龙公园等投票站外高调巡逻。所有警员均手持长枪，部分带领警犬。至晚上，数十名反恐警茶携带胡椒喷雾、警棍等，在调景岭体育馆进行演习。
+配音：香草山美食部 – 玫瑰园
 
-虽然港警声称，此举在于加强市民对香港治安的信心，确保选举安全进行。但市民明显感到这是港府特意在投票前，派出大量武装部队，无非是要炫耀武力，威胁选民，控制立法会选举。
 
-参考链接: 
-1) . [名曰“民主投票“、实属黑帮绑架！](https://gettr.com/post/pjxmwm4edc)
-2) . [立法會投票日倒數 2 天　機場特警等持長槍高調巡視票站](https://www.thestandnews.com/politics/%E7%AB%8B%E6%B3%95%E6%9C%83%E6%8A%95%E7%A5%A8%E6%97%A5%E5%80%92%E6%95%B8-2-%E5%A4%A9-%E6%A9%9F%E5%A0%B4%E7%89%B9%E8%AD%A6%E7%AD%89%E6%8C%81%E9%95%B7%E6%A7%8D%E9%AB%98%E8%AA%BF%E5%B7%A1%E8%A6%96%E7%A5%A8%E7%AB%99)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+据[OAN网站](https://www.oann.com/italy-eyes-new-covid-19-measures-amid-omicron-worries-newspapers/)12月19日援引路透社报道，出于对高传染性Omicron中共病毒变体传播的担忧，意大利政府正在考虑采取新的措施，以避免假日期间中共病毒感染率的激增。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+据悉，总理马里奥·德拉吉可能会要求已接种疫苗者在进入包括迪斯科舞厅、电影院、剧院和体育场在内的拥挤场所时出示COVID-19阴性测试报告，并在户外也须佩戴口罩。
 
-总编：Ivy001
-编辑：Jack Li文阳
-校正/发稿：Fei797
+而根据目前的规定，已经接种疫苗或最近从该疾病中康复的人可以自由进入酒吧、餐馆、博物馆、电影院、俱乐部和参加体育赛事。
 
+意大利早前已经强制要求医疗工作者、学校工作人员、警察和军人进行疫苗接种，这一接种义务范围可能从1月起将扩大至涵盖所有工人。
+
+本周早些时候，罗马已经将COVID-19的紧急状态延长至3月31日，并规定所有来自欧盟国家的游客必须在出发前接受测试。
+
+文字版原文：[意大利为应对OMICRON考虑采取新的COVID-19措施](https://gnews.org/zh-hans/1772113/)
+
+音频处理：喜山必胜Maverick
+发稿：Tom Li
+[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
