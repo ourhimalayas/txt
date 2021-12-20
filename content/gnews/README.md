@@ -15,116 +15,116 @@
 
 ---
 
-### [世卫：中共病毒Omicron毒株确诊数每1.5至3天就会增加一倍](/content/gnews/1/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [《我是音雄》年度十大音雄终极半决赛观后感](/content/gnews/2/README.md)
- ` 墨尔本雅典娜农场`
-
-### [日本政府考虑明年继续实施中共病毒疫情边境管控措施](/content/gnews/3/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [德国多地爆发反新冠疫苗抗议活动](/content/gnews/4/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [中共戏剧性的篡改香港选举 （上）](/content/gnews/5/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [12/19/2021 文贵直播：科学家和病毒知情者爆料，所有得过中共病毒的人未来10年内身体里的淋巴系统和免疫力系统有50%会出问题](/content/gnews/6/README.md)
- ` 秘密翻译组-北美组`
-
-### [IMF官员：监管加密货币，无需立即禁止](/content/gnews/7/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [12/19/2021 文贵直播：冬奥会是中共向全世界展示“治理”能力的舞台，一定有人染病毒、一切都会是演戏](/content/gnews/8/README.md)
- ` 秘密翻译组-北美组`
-
-### [文贵爆料 12.19：解直锟去了 王健——黄泉路上不孤单](/content/gnews/9/README.md)
+### [文贵爆料12.19.2021 两个不利消息：感染中共病毒超50%致癌率 经济黑暗时代将长达5-10年](/content/gnews/1/README.md)
  ` 秘密翻译组-原创组`
 
-### [【粤语配音】2021年12月19日文贵直播：感染过病毒后的注意事项](/content/gnews/10/README.md)
- ` MOS香港部`
-
-### [又有八家中共国公司列入美国投资黑名单](/content/gnews/11/README.md)
- ` 墨尔本雅典娜农场`
-
-### [12.19 文贵爆料： 数字区块链货币会让人类第一次和平、迅速、不流血地改变货币属性](/content/gnews/12/README.md)
- ` 秘密翻译组-原创组`
-
-### [前白宫经济顾问皮特·纳瓦罗：鲍威尔和习近平刚刚用通货膨胀中子弹袭击了美国](/content/gnews/13/README.md)
- ` 美国政要直译推`
-
-### [疫情之后，要对政客和‘专家’秋后算账](/content/gnews/14/README.md)
- ` 走进澳洲`
-
-### [自强推疫苗以来，美国试管婴儿诊所出现了严重的问题](/content/gnews/15/README.md)
- ` 墨尔本雅典娜农场`
-
-### [樱花灭共诗——题文贵先生](/content/gnews/16/README.md)
+### [樱花灭共诗——凌云寺浮屠临眺](/content/gnews/2/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [你会站在历史的哪一边？](/content/gnews/17/README.md)
- ` 加拿大温哥华扬帆农场视频组`
+### [华夏速报：“12 月 19 日，福克斯对前总统川普进行了专访：川普指出新冠病毒来自武汉实验室](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [聚焦：为什么大媒体对印度北方邦战胜中共病毒的奇迹选择沉默？](/content/gnews/18/README.md)
- ` 丁过`
-
-### [民主党参议员伊丽莎白·沃伦中共病毒检测阳性](/content/gnews/19/README.md)
- ` HimalayaRussia`
-
-### [带着慈悲之心去传播疫苗真相](/content/gnews/20/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [美国参议员伊丽莎白·沃伦 (Elizabeth Warren) 的 COVID-19 检测呈阳性](/content/gnews/21/README.md)
+### [学校关闭，终考推迟，学生和教职员工中的COVID-19 病例过多，一所蒙特利尔中学和小学将于周一关闭](/content/gnews/4/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [我们被欺骗了，人们不应该再继续听从任何人对我们说是否应该打疫苗](/content/gnews/22/README.md)
- ` 加拿大温哥华扬帆农场视频组`
+### [世卫：中共病毒Omicron毒株确诊数每1.5至3天就会增加一倍](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [12.19 文贵爆料：“一定要做好五年、十年甚至更长时间 经济上全球从来没有的黑暗时期”](/content/gnews/23/README.md)
- ` 秘密翻译组-原创组`
-
-### [我们不要疫苗，不要洗脑，不要仇恨，远离孩子们！](/content/gnews/24/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [Dr. Nagase 如何看到疫苗导致死胎率上升](/content/gnews/25/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [在预期的圣诞节封锁之前，荷兰人涌向商店](/content/gnews/26/README.md)
+### [拜登政府排斥疫苗专家引发担忧](/content/gnews/6/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美国前副总统候选人佩林坚决对疫苗强制令说不](/content/gnews/27/README.md)
- ` HimalayaRussia`
-
-### [柳叶刀的信说社会上对未接种疫苗者的污名“不合理”](/content/gnews/28/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [法币和电子货币的翻转即将到来](/content/gnews/29/README.md)
- ` 温哥华扬帆农场`
-
-### [加拿大特鲁多政府是中共的一条忠实走狗](/content/gnews/30/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [新浪微博还能挺住？](/content/gnews/31/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [2021年12月19日文贵先生直播摘要及音频—银河系农场](/content/gnews/32/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [重磅！世界第一个对新冠病毒康复者的严正声明，吃药定检防癌变](/content/gnews/33/README.md)
- ` YALUN 亚伦`
-
-### [文·贵天成——文贵先生谈“中原佛手、裕达国贸”（二）](/content/gnews/34/README.md)
+### [《我是音雄》年度十大音雄终极半决赛观后感](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2021年12月19日郭先生大直播文字同步精要](/content/gnews/35/README.md)
+### [日本政府考虑明年继续实施中共病毒疫情边境管控措施](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [德国多地爆发反新冠疫苗抗议活动](/content/gnews/9/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [中共戏剧性的篡改香港选举 （上）](/content/gnews/10/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [12/19/2021 文贵直播：科学家和病毒知情者爆料，所有得过中共病毒的人未来10年内身体里的淋巴系统和免疫力系统有50%会出问题](/content/gnews/11/README.md)
+ ` 秘密翻译组-北美组`
+
+### [IMF官员：监管加密货币，无需立即禁止](/content/gnews/12/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [12/19/2021 文贵直播：冬奥会是中共向全世界展示“治理”能力的舞台，一定有人染病毒、一切都会是演戏](/content/gnews/13/README.md)
+ ` 秘密翻译组-北美组`
+
+### [文贵爆料 12.19：解直锟去了 王健——黄泉路上不孤单](/content/gnews/14/README.md)
+ ` 秘密翻译组-原创组`
+
+### [【粤语配音】2021年12月19日文贵直播：感染过病毒后的注意事项](/content/gnews/15/README.md)
+ ` MOS香港部`
+
+### [又有八家中共国公司列入美国投资黑名单](/content/gnews/16/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [12.19 文贵爆料： 数字区块链货币会让人类第一次和平、迅速、不流血地改变货币属性](/content/gnews/17/README.md)
+ ` 秘密翻译组-原创组`
+
+### [前白宫经济顾问皮特·纳瓦罗：鲍威尔和习近平刚刚用通货膨胀中子弹袭击了美国](/content/gnews/18/README.md)
+ ` 美国政要直译推`
+
+### [疫情之后，要对政客和‘专家’秋后算账](/content/gnews/19/README.md)
+ ` 走进澳洲`
+
+### [自强推疫苗以来，美国试管婴儿诊所出现了严重的问题](/content/gnews/20/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [樱花灭共诗——题文贵先生](/content/gnews/21/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [你会站在历史的哪一边？](/content/gnews/22/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [聚焦：为什么大媒体对印度北方邦战胜中共病毒的奇迹选择沉默？](/content/gnews/23/README.md)
+ ` 丁过`
+
+### [民主党参议员伊丽莎白·沃伦中共病毒检测阳性](/content/gnews/24/README.md)
+ ` HimalayaRussia`
+
+### [带着慈悲之心去传播疫苗真相](/content/gnews/25/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [美国参议员伊丽莎白·沃伦 (Elizabeth Warren) 的 COVID-19 检测呈阳性](/content/gnews/26/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [我们被欺骗了，人们不应该再继续听从任何人对我们说是否应该打疫苗](/content/gnews/27/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [12.19 文贵爆料：“一定要做好五年、十年甚至更长时间 经济上全球从来没有的黑暗时期”](/content/gnews/28/README.md)
+ ` 秘密翻译组-原创组`
+
+### [我们不要疫苗，不要洗脑，不要仇恨，远离孩子们！](/content/gnews/29/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [Dr. Nagase 如何看到疫苗导致死胎率上升](/content/gnews/30/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [在预期的圣诞节封锁之前，荷兰人涌向商店](/content/gnews/31/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [美国前副总统候选人佩林坚决对疫苗强制令说不](/content/gnews/32/README.md)
+ ` HimalayaRussia`
+
+### [2021年12月19日文贵先生直播摘要及音频—银河系农场](/content/gnews/33/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [重磅！世界第一个对新冠病毒康复者的严正声明，吃药定检防癌变](/content/gnews/34/README.md)
+ ` YALUN 亚伦`
+
+### [文·贵天成——文贵先生谈“中原佛手、裕达国贸”（二）](/content/gnews/35/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [2021年12月19日郭先生大直播文字同步精要](/content/gnews/36/README.md)
  ` 焦點20分`
 
-### [【文贵先生大直播PPT】疫苗大灾难](/content/gnews/36/README.md)
+### [【文贵先生大直播PPT】疫苗大灾难](/content/gnews/37/README.md)
  ` Mr. Miles Guo's News Briefing`
-
-### [文贵爆料 12.19：病毒的遗害是你挥之不去噩梦](/content/gnews/37/README.md)
- ` 秘密翻译组-原创组`
 
 ### [【文贵先生大直播PPT】全球抵制北京冬奥会 人权加经济制裁中共](/content/gnews/38/README.md)
  ` Mr. Miles Guo's News Briefing`
