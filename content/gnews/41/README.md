@@ -2,10 +2,10 @@
 ---
 
 
-## 杰森·米勒：我们处于临界点，这是保卫西方文明之战
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1773956/)
+## 中共党媒CCTV甩锅美国制造病毒、传播危机、践踏人权
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1773958/)
 
-12/18/2021 杰森·米勒说我们处于临界点，这是保卫西方文明之战。
+中共党媒CCTV甩锅美国制造病毒、传播危机、践踏人权
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

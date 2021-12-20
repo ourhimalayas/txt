@@ -2,37 +2,42 @@
 ---
 
 
-## 富力地产预告将暴雷
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1774489/)
+## 魁北克疫情爆发，省政府面临停摆
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1774576/)
 
-作者：纽约香草山健身部 – Jack Li文阳
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月15日下午，中共国富力地产发布一则公告称，富力总额7.25亿美元的美元票据，将于2022年1月13日到期，拟以折价方式回购。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/7-32.jpg)
-折价回购有两种方案：一是以原定价格兑现所持票据的50%，剩余50%延期半年；二是兑现相当于原来价格的83%。与此同时，富力地产恳请票据持有人，同意将票据延期半年至明年7月13日。
+2021-12-10
 
-富力地产负责人坦言，若无法与票据持有人达成共识，公司有可能无法全额按合约履行偿还承诺。另外，富力还将酌情对此两种回购方式，调整偿付的最高金额。就是说，票据持有人可能拿不到回购方案约定的金额，分析家称富力此举为预告式暴雷。
+编译：16626
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1076-edited.png)图片来源：AGENCE QMI, JOËL LEMAY
+根据Journal De Montreal记者AGENCE QMI与12月19日报道：
 
-参考链接: 
-1) . [20亿理财中间人失联，地产巨头预告式暴雷](https://www.gettr.com/post/pk1ursfb2a)
-2) . [还钱也能讨价还价？富力地产预告式“爆雷”，投资人：怎么选都亏](http://www.amcupdate.com/2021/12/16/%E5%AF%8C%E5%8A%9B%E7%A6%BB%E5%AE%9E%E8%B4%A8%E6%80%A7%E8%BF%9D%E7%BA%A6%E8%BF%98%E6%9C%89%E5%A4%9A%E8%BF%9C/)
-3) . [富力地产预告式“爆雷”：可能无法在到期日全额赎回票据](https://www.sohu.com/a/508639837_639898)
+**由于最近几天魁北克省的COVID-19病例大幅增加，勒戈（Legault）政府已决定暂停其部长们的所有活动。**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+作为预防措施，所有部长们的新闻发布会和在各地区的参观探访活动已被取消，只有公共卫生方面的新闻发布会将被保留。
 
-总编：Ivy001
-编辑：Kathy文艺
-校正/发稿：Fei797
+卫生和社会服务部长克里斯蒂安·杜贝（Christian Dubé）和奥拉西奥·阿鲁达（Horacio Arruda）将在本周内重新审查省内情况。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+今晚（12月20日），莱戈特将在听取魁北克国家卫生与社会服务研究所和魁北克国家公共卫生研究所的最新预测之后，发布最新消息。
 
+教育部长让-弗朗索瓦·罗贝热（Jean-François Roberge） COVID-19检测呈阳性。
 
+交通部长尚塔尔·鲁洛 (Chantal Rouleau) 和财政部长埃里克·吉拉德 (Eric Girard) 在与蒙特利尔市长瓦莱丽·普兰特 (Valérie Plante) 接触后，被置于预防性隔离状态。普兰特在周六宣布她患有COVID-19。
+
+鲁洛于周日在Twitter上发布道：”在我的筛选测试之后，我收到了COVID-19的阴性结果，”
+
+**正如文章报道，魁北克省总理莱戈特身边的几个人都中招了，魁北克政府有停摆的可能：**
+
+**教育部长——让-弗朗索瓦·罗贝热Jean-François Roberge COVID-19检测呈阳性。**
+**交通部长——尚塔尔·鲁洛 (Chantal Rouleau) 被置于预防性隔离状态。**
+**财政部长——埃里克·吉拉德 (Eric Girard) 被置于预防性隔离状态。**
+**蒙特利尔市长——瓦莱丽·普兰特 (Valérie Plante) COVID-19检测呈阳性。**
+
+**文章编译人提醒读者，病毒仍在传播，疫情正在爆发，大家必须格外小心。**
+
+参考资料：AGENCE QMI，2021 年 12 月 19 日星期日，[Journal De Montreal] [COVID-19: Québec suspend les activités de ses ministres](Québec%20suspend%20les%20activités%20de%20ses%20ministres)
+
+校对/编辑/发布：MQ
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
