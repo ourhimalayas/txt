@@ -2,10 +2,10 @@
 ---
 
 
-## 武黄高速路高架桥侧翻倒塌
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1773400/)
+## 西安爆发出血热，中共出动军队封城
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1773402/)
 
-中共国豆腐渣工程又出事，12月18日武黄高速路高架桥侧翻倒塌。
+12月18日，西安爆发出血热，中共出动军队封城。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
