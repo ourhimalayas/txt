@@ -2,10 +2,27 @@
 ---
 
 
-## 12/19/2021 文贵直播：冬奥会是中共向全世界展示“治理”能力的舞台，一定有人染病毒、一切都会是演戏
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1772619/)
+## GTV新闻访谈简报|2021年12月19日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1772703/)
 
-秘密翻译组-北美组
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV-Gnews-1.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/1219text-SC.png)
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+视频参看：[12.19  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61bfdc15bcb7f101bb7160dc)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-1.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

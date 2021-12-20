@@ -2,20 +2,37 @@
 ---
 
 
-## 秘翻在线：川普：拜登因对习的畏惧而政策走偏
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1772849/)
+## 麻省理工学院博士对英国下议院说：“对知道大流行起源的人来说，站出来是不安全的”
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1772953/)
 
-#### 编译：致敬香港！
+![](https://assets.gnews.org/wp-content/uploads/2021/12/麻生.png) 图片来自网络
+据**《网关专家》**作者理查德·阿贝尔森([**Richard Abelson**](https://www.thegatewaypundit.com/author/collinm/)**) **2021年12月15日报道：
 
-#### 校对：白夜
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1055.png)图片来源： Fox News
-据《华盛顿观察家报》12月19日报道，在福克斯新闻频道的高收视率节目“周日早间谈未来（Sunday Morning Futures）”中，美国前总统川普接受了著名主持人玛丽亚（Maria Bartiromo）的采访，称拜登的外交政策和抗疫政策都因为对中共国和习近平的畏惧而走偏方向。
+**麻省理工学院和哈佛大学的基因治疗和细胞工程专家 **[**陈丽娜(Alina Chan)博士**](https://www.amazon.co.uk/Viral-Search-Covid-19-Alina-Chan/dp/0008487499/ref=sr_1_1?keywords=Chan+Ridley&amp;qid=1639585831&amp;sr=8-1)** 在英国议会科学技术委员会面前作证说，实验室泄漏现在被认为是 COVID大流行的最可能来源，并且 Covid-19 有可能是一种改变基因结构的病毒。**
 
-川普在采访中直言，“我觉得他（拜登总统）在担心（中共国）给了他儿子（亨特）数十亿美元这个事情”，玛丽亚追问“所以，他们抓住了他的把柄？”，川普说，“是的，当然是这样”。
+据**《每日电讯报》**报道，陈博士说：“我认为实验室起源的可能性更大”。 **她指出，“现在，知道大流行起源的人站出来是不安全的。** 但我们是生活在一个存储了大量信息而导致它最终会出来的时代。”
 
-节目中，川普抨击了拜登的疫情对策，指出今年疫情导致的死亡人数比去年年不减反增，他认为拜登的行政命令正在扼杀美国经济。他也不忘强调他与习近平的关系、及他为抵御中共国威胁所做的努力。“我们从中国吸收了数十亿、百亿、千亿的资金，我把很多钱给了农民和制造商。”在玛丽亚提醒他习近平是个“凶手”之后，他迅速订正说他 “与习的关系”当然指的是疫情爆发前。
+陈说“我们从许多顶级病毒学家那里听说，基因工程起源是合理的，其中包括对第一种非典病毒进行改造的病毒学家。 我们知道这种病毒有一个独特的特征，称为弗林蛋白酶切位点，如果没有这个特征，就不可能导致这种大流行。”
 
-**新闻来源：** [Trump says Biden is afraid of China](https://www.washingtonexaminer.com/news/trump-says-biden-is-afraid-of-china)
+“一份提议被泄露，表明生态健康联盟(EcoHealth) 和武汉病毒研究所过去在开发一条用于插入新型弗林蛋白酶切位点的管道。 所以，你会发现这些科学家在2018年初说‘我要给马安上角’，而在2019年底，武汉市出现了一只独角兽。”
+
+
+
+原文链接：
+
+
+
+> [MIT Doctor in UK House of Commons: “Not Safe for People Who Know the Origin of the Pandemic to Come Forward”](https://www.thegatewaypundit.com/2021/12/mit-doctor-uk-house-commons-not-safe-people-know-origin-pandemic-come-forward/)
+
+
+
+
+
+
+
+
+
+翻译：飞利普 | 校对 ：烟波浩淼 |编辑& 发布：闪电训练
 
  
 
