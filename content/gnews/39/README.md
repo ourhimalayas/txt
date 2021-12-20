@@ -2,27 +2,12 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月19日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1772703/)
+## 娜塔莉·温特斯多角度揭示美国被中共贿赂买通得有多深
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1772731/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV-Gnews-1.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/1219text-SC.png)
-校对：Stay文苑
+12/15/2021 娜塔莉·温特斯：安东尼·福奇和马克·扎克伯格之间的关联；陈和扎克伯格基金会投资科技与公民生活中心；哈佛大学接受中国国营公司的捐款，为受制裁的中共官员提供咨询，出版中共宣传品；利兹·切尼毫无意外地接受了由中美交流基金会部分赞助的政治家风范奖。
 
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-视频参看：[12.19  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61bfdc15bcb7f101bb7160dc)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-1.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
