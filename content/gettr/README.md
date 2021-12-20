@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/20/2021 12:41 AM (UTC)`
+
+12/19/2021 Miles Guo: The Winter Olympics will be the stage for the CCP to show the whole world its “governance capability”. Some attendees of the Winter Olympics will certainly catch the virus, and everything will be the CCP’s show. The CCP has prepared in case the Americans will be infected by the virus, and such preparations include assigning female interpreters, because the number of male athletes is 50% more than the females in the US Olympic team<br/><br/>12/19/2021 文贵直播：冬奥会是中共向全世界展示“治理”能力的舞台，一定有人染病毒、一切都会是演戏，中共已经为美国人染病做好了准备，其中包括女翻译，因为美国奥运队的男运动员比女运动员多一半<br/>
+![img](https://media.gettr.com/group27/getter/2021/12/20/00/85245ed4-0229-dceb-54a1-79d79d9f3a4b/out.jpg)
+
+---
+
 `@miles 12/20/2021 12:33 AM (UTC)`
 
 12/19/2021 Miles Guo: Our scientists and whistleblowers exposed that, those being infected by the Covid virus will have 50% chances to get cancer in their lymphatic and/or immune systems, but if they take necessary medicines and supplements, do regular medical check-up, and avoid strenuous exercise, they will be fine<br/><br/>12/19/2021 文贵直播：科学家和病毒知情者爆料，所有得过中共病毒的人未来10年内身体里的淋巴系统和免疫力系统有50%会出问题，但如果按需吃药、定期体检、避免剧烈运动，一定会没事<br/>
@@ -147,15 +154,6 @@ CCTV, the crazy CCP’s mouthpiece, shirking responsibility for creating the vir
 
 12/17/2021 Miles Guo: Why did the CCP take over the Pangu Plaza and Yuda Palace Hotel at this time? Xi Jinping and Peng Liyuan are extremely superstitious and believe that the Yuda Palace hotel is the “Buddha's Hands” in Zhongyuan and is like Mr. Miles Guo’s root/penis. So, they believe that they must take it over before the year of the water tiger<br/><br/>12/17/2021 文贵直播：共产党为何要在此时搞盘古、裕达？习彭等人极度迷信，认为裕达是中原佛手、是文贵先生的根器，必须在壬水寅虎年前干掉<br/>
 ![img](https://media.gettr.com/group18/getter/2021/12/18/03/6a6142ff-a8a7-1828-8cf7-f580acbc4638/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@mr3rights 12/18/2021 1:57 AM (UTC)`
-
-这其中有几件事值得探讨。首先是9月7日慈禧在逃往西安的途中命令各地官兵剿灭义和团。义和团从开始被利用终于变成了最大的替罪羊。60年后的红卫兵也是如此命运，开始被毛利用，用完后被毛“上山下乡”发配农村。如今被中共利用反美反日的小粉红最后也一定也逃不出被抛弃的命运。<br/><br/>第二件事是在整个“庚子之乱”过程中，英美等西方国家除了要求保护本国侨民和使领馆人员外，只是要求开放通商公平贸易，一再强调保持中国的主权和领土完整，对领土和政权没有要求。但俄国却趁人之危，出动20万大军占领东北全境，并于1900年7月17至21日对海兰泡和江东六十四屯的华人进行大屠杀，造成7000名中国人死亡，史称“庚子俄难”。在庚子赔款中，美国英国等国家都退还或免除了部分赔款，清华大学就是美国的庚款建起来的，但俄国以及后来的苏联虽然也说要将部分赔款用于中国，但始终没有落实。<br/><br/>第三件事就是“东南互保”，在慈禧发布向11国的《宣战诏书》后，湖广总督张之洞、两广总督李鸿章、两江总督刘坤一、铁路大臣盛宣怀、山东巡抚袁世凯等即和外国达成地方上的协议，称皇室发布的《宣战诏书》是被义和团挟持的情况下发的“矫诏、乱命”，东南各省不执行这样的命令，剿灭义和团，保持各省稳定。同时他们密商万一太后和皇帝遭遇不测，他们将改建共和并推举李鸿章为总统。这件事说明清王朝的中央专制已经出现裂缝丧失权威，各地方势力已经有一定的独立性，为之后的“辛亥革命”清王朝的覆灭以及共和的建立创造了条件。内部的分裂是专制政权解体的前兆和必要条件。<br/><br/>https://gnews.org/zh-hans/1456695/
-> `@mr3rights 12/17/2021 1:33 AM (UTC)`<br/>《让历史告诉未来》系列文章之《重说中国近代史》之二：《“甲午战争”、“戊戌变法”和伪君子康有为》<br/><br/>历史上日本一直在向中国学习，从徐福到鉴真大师，日本在文字、宗教、国家治理甚至动植物品种和农耕技术等很多方面都从中国学习和引进，中国一直把日本当作自己的徒弟。当然有两样东西日本没学，一是太监制度，一是科举制度。但日本和中国的本质不同在于，中国从秦朝起的两千多年至今都是中央集权专制政体，而日本历史上只有短暂的中央集权，从1185年到1868年明治维新的683年日本是幕府将军掌权的封建时代，天皇只是个名义上的最高领导，有点像中国东周时期的周天子。由于没有一个中央集权需要维护，当1853年美国海军准将佩里率领美国舰队驶入日本江户湾的时候，日本人看到了美国的先进，与闭关锁国的清朝不同，日本主动打开国门学习西方文化与文明引发了明治维新。由于佩里的舰船是黑色的，这又被称为“黑船事件”。1868年日本开始了明治维新，形式上是君主立宪、议会政治、三权分立，实际上是天皇集权废藩置县，经济上打破封建割据、国家财政统一并迅速实现工业化，制订完善的法律体系，文化和价值观上推行 “脱亚入欧” ，全面学习西方先进的政治、军事、文化和科学技术。明治维新使日本的经济有了迅猛发展，国力和军力得到极大提升，迅速成为亚洲强国。1894年的中日甲午海战，日本海军战胜了军力远胜于自己的清朝北洋水师并使其全军覆没。其后大清被逼签署《马关条约》，赔款2亿两白银，割让辽东半岛、台湾和澎湖，放弃对朝鲜的宗主国地位，确认朝鲜为独立国家（实际由日本控制）。大清惨败于自己的徒弟，可谓丧权辱国颜面尽失。
 
 ---
 

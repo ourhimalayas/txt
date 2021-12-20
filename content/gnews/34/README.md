@@ -2,18 +2,26 @@
 ---
 
 
-## 【文贵先生大直播PPT】从地产持续暴雷破产 经济指标作假 企业家意外死亡看中共还能撑多久
-` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1771937/)
+## 香草山翻译部周刊|2021年12月19日第27期
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1771974/)
 
-撰稿：Nine Lee （DC)
-文案指导：泰山（伊甸） 北评2025（英喜）
-美工：嘿虎 雷蒙 （雅典娜）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-4.jpg)
 
-【2021年12月19日文贵先生大直播PPT：从地产持续暴雷破产 经济指标作假 企业家意外死亡看中共还能撑多久】
-![](https://assets.gnews.org/wp-content/uploads/2021/12/21-10.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/22-11.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/23-8.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/24-8.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/25-7.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/26-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/27-4.jpg)
-* * *
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/12/27CN.png)
+文章仅代表作者本人观点，与Gnews无关
 
-发稿：云起时
+总编： GBWater
+编辑： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/calendar-1.jpeg)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
