@@ -2,40 +2,35 @@
 ---
 
 
-## 七哥冬奥会悬念解惑四：盘古龙头和盘古大观是否会启用
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1773912/)
+## 联邦调查局拍卖活动涉足加密货币市场
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1774012/)
 
-下一个问题，盘古大观酒店，七星级酒店已经是龙虾被他们蘸咖喱给吃完了，专案组，酒店已经关业（闭）了，停业了，然后裕达国贸，被李友和王健林已经接了，叫万达美景酒店。咱就别说那个了，还在营业中，诱骗所有的员工，不补偿，让你签半年一年合同，咱先另说，盘古大观七星酒店，在2月14号的时候会不会重新营业呢？
+**整理报道：彩虹**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/15-18.jpg)图片来源：Restored Republican
+12月19日，《新闻极限》报道说，美国政府因破获犯罪活动而缴获的大量比特币库存，成为支付欺诈受害者的收入来源，但其销售时机令人怀疑，而且官员们往往难以在尖端技术方面跟上犯罪分子的步伐。
 
-你们的问题（回答）全错了！他根本不存在营业不营业，所以又掉坑里去啦！盘古大观七星酒店，将是冬奥会最重要的场址，所有的开幕式，闭幕式的关键所在之地，冬奥会的国家安全控制中心，又回到了2008年，风水如此轮回之转，啊哈哈！会使用，会重大使用，核心！
+前联邦网络犯罪检察官裘德·韦勒（Jud Welle）告诉CNBC：“在创新和技术方面，政府通常比犯罪分子落后至少几步。这不是那种会在你的基本训练中出现的东西”。
 
-而且是，习近平习太阳和他的彭月亮，都会出现在同一个地方，而且主要的人物也会出现在那里。鸟头，还有上面的龟头上面，有重大安全举措，而且就是盘古龙头和盘古大观，是狙击手的最高制高点，兄弟姐妹们你们的答案都错了！
+韦勒认为，保持领先是一场持续的斗争，特别是在比特币和加密货币的设计上，它们本来就是要逃避执法部门的检查。“手册后续会被编辑和更新，是为了如何对待加密货币的追踪，是为了如何扣押加密货币”。
 
-编辑整理：海贼王M.D.LUFFY；
+报道说，政府需要私人部门协助处理比特币的扣押、处理和销售，而后者是通过拍卖进行的。
 
-字幕制作：小满；
+美国国内税收署网络犯罪主任贾罗德·库普曼（Jarod Koopman）告诉CNBC，“（拍卖开始）可能是10艘船，12辆车，然后其中一个批次是一定数量的比特币。我们不试图玩弄（比特币）市场，基本上，你可以按照计划顺序拍卖，我们永远不想用巨大的数量来充斥市场，这样的话可能会对定价产生影响”。
 
-视频制作及上传：Cindy；
+据CNBC报道，2018年以500万美元卖给比特币挖矿公司Riot Blockchain的500个比特币现在价值2300万美元以上，而2014年以1900万美元卖给亿万富翁、风险投资家蒂姆·德雷珀（Tim Draper）的3万个比特币今天价值超过了13亿美元。
 
-G-News发布：小满；
+**新闻来源**
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
+[Feds Dabbling in Bitcoin Through Crime Seizure and Sales](https://www.newsmax.com/newsfront/bitcoin-criminal-seizure-cryptocurrency/2021/12/19/id/1049271/)
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+**发布：彩虹**
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

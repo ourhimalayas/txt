@@ -2,12 +2,12 @@
 ---
 
 
-## 中共党媒CCTV甩锅美国制造病毒、传播危机、践踏人权
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1773958/)
+## 彭帅否认遭到性侵，并说她关于此事的微博被误读
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1774062/)
 
-中共党媒CCTV甩锅美国制造病毒、传播危机、践踏人权
+12/19/2021 中国网球运动员彭帅否认曾指控别人性侵自己，并说她上个月发的一篇微博被错误解读。
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

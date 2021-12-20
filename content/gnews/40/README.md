@@ -2,24 +2,44 @@
 ---
 
 
-## 利物浦教练克洛普：球队不会签没打疫苗的球员
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1773826/)
+## 七哥冬奥会悬念解惑五：界时北京什么地方会清城最厉害
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1773923/)
 
-#### 翻译/撰稿：zzballack
+届时的，即时的北京城，军队、警察和北京市民又会像2008年奥运会一样—-清城！张家口，当然已经在开始清了，你觉得北京城什么地方是，让你看到的，是清得最厉害的，必须离开北京城的，他为什么这么做？
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-2-16.jpg)图片来源：英国独立报
-《The Covid World》网站12月19日发文称， 英超利物浦队的世界知名教练尤尔根·克洛普（Jürgen Klopp）近日宣布，从现在开始他的俱乐部不会签署任何没有接种新冠疫苗的球员，此举将在足球世界中引起震动。
+大家看到的侠能渡和七道湾战友最早说出来的，还有远山的呼唤，玉泉山、天安门、长安街这是肯定的，这次最让人家不一样的，就是北京城肯定清城，通州都清城。最让人感到震撼的事情，你们不知道北京，说明你们四个都不是北京人，北京的新机场在哪里呀？（嘉宾回答：在大兴吗。）
 
-此前，同属英超联赛的阿斯顿维拉队教练史蒂文·杰拉德（Steven Gerrard）和水晶宫队教练帕特里克·维埃拉（Patrick Vieira）都表示，在签署新球员时会考虑其疫苗接种状况。
+整个大兴周围布置的重兵—-40万，所有的参加冬奥会的运动员，和所有的所谓政府官员，都会从大兴降落下来。沿线快铁（高铁）和快铁（高铁）周围的房子，已经在去年，已经该拆的拆，不好看的已经都弄了，跟北朝鲜一样。
 
-在新闻发布会上，当被问及一名球员的疫苗接种状况是否会影响俱乐部签下他时，克洛普回答说：“是的，这肯定会有影响。在现今情况下，如果一名球员根本没有接种疫苗，那么他对我们所有人来说都是一个持续的威胁。当然，他并不想成为一个威胁，也不是说他不关心其他人的感受，但事实上他是个威胁。我们必须为此找到不同的方案，我们要给未接种球员安排不同的交通工具、食堂、更衣室、训练场所，这会让球队的管理变得越来越麻烦。”
+我去北朝鲜看到的都是好房子，再往后一看，一拐弯儿，全都烂垃圾房，是吧！死人房。大兴！所以为啥问你文斌，共产党首先控制空中，当然，长安街、奥运村是一定要清北京城，大兴全清！空中，张家口，当然是会议场所——清。
 
-英超联赛（EFL）最近透露，只有59%的球员接种了两剂疫苗，16%的球员接种了一剂并准备再接种一剂，25%的球员不打算接种疫苗。鉴于克洛普在足球世界的巨大影响力，他的这一决定肯定会引起一些足球运动员的恐慌。
+更夸张的事情，兄弟姐妹们！习怕到什么程度，盘古大观周围、四环以北、机场路以西、西环以内、然后往京城路整个这范围内，包括到长安街内，整个里边全部布置反导系统，红旗系列、导弹部署，他怕的是谁呀？他怕的是斩首，怕的是内乱。
 
-克洛普为人真诚，其推广疫苗的初衷肯定是认为疫苗可以预防病毒的传播和感染，绝非像中共那样为了金钱和其它邪恶目的。但是足球界最近的反常现象越来越多，以往罕见的心脏疾病、呼吸困难和胸痛等问题频频发生在足球运动员身上。我希望克洛普能花时间审视一下这些报道，重新思考对于新冠疫苗的看法。毕竟克洛普的影响力非常巨大，不仅限于足球界。这番话除了会让未接种疫苗的球员在足球界的处境愈发困难，毕竟之前已经有很多球员因未接种疫苗遭到了外界的猛烈抨击，比如德国球星约书亚·基米希（Joshua Kimmich），还会让其它各界效仿其做法，这将引发巨大的灾难。
+编辑整理：海贼王M.D.LUFFY；
 
-新闻来源：[Liverpool FC Will NOT Sign Unvaccinated Players Says Head Coach Jurgen Klopp](https://thecovidworld.com/liverpool-fc-will-not-sign-unvaccinated-players-says-head-coach-jurgen-klopp/)
+字幕制作：小满；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

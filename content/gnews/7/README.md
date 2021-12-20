@@ -2,37 +2,34 @@
 ---
 
 
-## 心脏协会研究发现：98% 的儿童心肌炎病例都归咎于中共病毒疫苗
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1774255/)
+## 港警持长枪高调武装巡视立法会投票站
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1774404/)
 
-原文出处：THE EXPOSE
+作者：纽约香草山农场 – 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+香港立法会选举于当地时间12月19日举行，香港警方提前两天派出万名警力在全港立法会投票站武装巡视。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/6-39.jpg)
+17日，港警调派三个部队，包括反恐特勤队、机场特警、以及铁路应变部队，分别在下午和晚上，到全港多个投票站，包括落马洲边境投票站、中环中心和九龙公园等投票站外高调巡逻。所有警员均手持长枪，部分带领警犬。至晚上，数十名反恐警茶携带胡椒喷雾、警棍等，在调景岭体育馆进行演习。
 
-翻译：尚劲哥
+虽然港警声称，此举在于加强市民对香港治安的信心，确保选举安全进行。但市民明显感到这是港府特意在投票前，派出大量武装部队，无非是要炫耀武力，威胁选民，控制立法会选举。
 
-美国心脏协会发表了一项新研究，该研究发现，98% 的儿童心肌炎病例是由于 mRNA Covid-19疫苗 注射引起的。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image001-14.png)
-这项新研究（[https://www.ahajournals.org/doi/10.1161/CIRCULATIONAHA.121.056583](https://www.ahajournals.org/doi/10.1161/CIRCULATIONAHA.121.056583) ）由来自美国多所大学、儿童医院和医学院的数十名医生和科学家实施，并于 2021 年 12 月 6 日发表在美国心脏协会 (AHA) 的期刊《Circulation》上。
+参考链接: 
+1) . [名曰“民主投票“、实属黑帮绑架！](https://gettr.com/post/pjxmwm4edc)
+2) . [立法會投票日倒數 2 天　機場特警等持長槍高調巡視票站](https://www.thestandnews.com/politics/%E7%AB%8B%E6%B3%95%E6%9C%83%E6%8A%95%E7%A5%A8%E6%97%A5%E5%80%92%E6%95%B8-2-%E5%A4%A9-%E6%A9%9F%E5%A0%B4%E7%89%B9%E8%AD%A6%E7%AD%89%E6%8C%81%E9%95%B7%E6%A7%8D%E9%AB%98%E8%AA%BF%E5%B7%A1%E8%A6%96%E7%A5%A8%E7%AB%99)
 
-研究人员调查了 139 名儿童和年轻人，共发生了 140 次疑似心肌炎，其中 49 次被确诊，91 次疑似。 大多数患者为男性 (126)，中间年龄为 15.8 岁。  心肌炎是心肌的炎症，而心包炎是心脏周围保护囊的炎症。 由于心脏在保持人的生命中起着至关重要的作用，而且心肌无法再生，这两种情况都是极其严重的情况， 严重的心肌炎会导致心脏骤停，让人的寿命缩短。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image003-3.png)
-结果显示，136 名患者出现疑似心肌炎，相当于所有心肌炎病例的 98%。 这些病例中 131 例（94%）是因注射辉瑞疫苗而引发的，其中 128 例（92% ）发生在第二次注射后。  研究人员在他们的发现中指出，最常见的症状是胸痛，发生在 99% 的患者身上，26 名患者 (19%)因这种情况被送进重症监护室。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image006-1.gif)
-根据英国政府医学监管机构 （MHRA ）发布的最新消息，截至 2021年11 月 17 日 ，已有 686 例心肌炎和 578 例心包炎报告为 Covid-19疫苗的不良反应。 在报告中，有18,354 例心脏疾病，其中有290 例死亡。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-然而，众所周知，MHRA 严重漏报了疫苗的不良反应，此前称仅报告了 其中的10% 。
+总编：Ivy001
+编辑：Jack Li文阳
+校正/发稿：Fei797
 
-11 月 29 日，英国卫生安全局 (UKHSA) 确认Covid 疫苗注射导致了心脏疾病的风险，  UKHSA 发布了临床指南，支持与 Covid疫苗 注射相关的心肌炎和心包炎临床病例的检测和管理。 尤其是对于 儿童和40 岁以下的人。  UKHSA 临床建议的第一部分：背景中列出了一些要点，（[https://www.gov.uk/government/publications/myocarditis-and-pericarditis-after-covid-19-vaccination/myocarditis-and-pericarditis-after-covid-19-vaccination-guidance-for-healthcare-professionals](https://www.gov.uk/government/publications/myocarditis-and-pericarditis-after-covid-19-vaccination/myocarditis-and-pericarditis-after-covid-19-vaccination-guidance-for-healthcare-professionals) ）其中第五项为：入院儿童中有很高的比例患有心肌炎。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image007.png)
-9 月初，疫苗接种和免疫联合委员会 (“JCVI”) 无法证明向儿童提供实验性接种疫苗是合理的（[https://dailyexpose.uk/2021/10/08/less-than-10-percent-of-children-over-age-12-have-had-the-covid-vaccine/](https://dailyexpose.uk/2021/10/08/less-than-10-percent-of-children-over-age-12-have-had-the-covid-vaccine/) ）。 众所周知，儿童很少患有严重的 Covid-19 感染疾病，更不用说丧生了，而且 Covid-19 疫苗并不能预防病毒感染或传播。 英格兰首席医疗官克里斯·惠蒂 (Chris Whitty) 及其同僚决定为儿童接种疫苗，且政府同意实施，这都是史无前例的。 在此之前，他们一直遵循 JCVI 的建议。
-
-但现在整个国家以 Omicron 的名义，不再遵循该建议，向所有 12 岁以上的儿童提供第二剂疫苗，尽管当局知道儿童在第二剂后更容易患心肌炎，正如美国心脏协会发布的新研究那样 （[https://www.ahajournals.org/doi/epdf/10.1161/CIRCULATIONAHA.121.056583](https://www.ahajournals.org/doi/epdf/10.1161/CIRCULATIONAHA.121.056583) ）。
-
-[援引原文](https://dailyexpose.uk/2021/12/15/study-finds-covid-vaccines-to-blame-for-98-percent-cases-myocarditis/)
-
-审核校对：sherryok (水云间)
-
-上传排版：漂流瓶
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

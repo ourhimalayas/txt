@@ -2,37 +2,29 @@
 ---
 
 
-## 接种辉瑞疫苗者死亡，卫生当局仍然认为接种疫苗更安全
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1774142/)
+## 【中日财经爆】日本参议院一致通过国内半导体生产补贴修正案
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1774367/)
 
-**【雅典娜快讯】，紧贴时代脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-246.jpg)图片来源：Yahoo News
-**整理报道：文泓**
+撰稿:东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-247.jpg)
+[图片源](https://parstoday.com/ja/news/japan-i90144)
 
-12月19日，新西兰卫生当局表示，他们确信一名26岁男子的死亡与辉瑞公司新冠疫苗的副作用有关。
+日本政府支持半导体国内生产的修订法于20日在参议院全体会议上获得通过。
 
-据彭博社报道，初步的验尸分析表明，该男子的死因可能是心肌炎，这是疫苗的一种“罕见”的副作用，会导致心肌壁发炎。
+其目的是确保高性能半导体的国内生产，这与经济安全直接相关。经济产业省将建立一个系统制度，对申请企业的国内生产设施的发展计划给予认证，并对获批的企业按年分批发放补贴。
 
-同期，新西兰新冠疫苗独立安全监测委员会在一份声明中说，“根据目前现有的信息，委员会认为该死亡者的心肌炎可能是由于接种疫苗造成的”。该人在接种第一支辉瑞疫苗后两周内死亡。
+全球最大的半导体代工制造商台积电在熊本县规划的新工厂有望率先获得认证，给予补助。
 
-该声明表示，“新冠病毒感染本身可能是心肌炎的一个原因”，并补充说“接种疫苗仍然比感染病毒更安全”。
+新法案修订了《促进特定先进信息和通信技术的开发、供应和引进法》（5G促进法）和《新能源和产业技术综合开发机构法（NEDO）》，将在2021财年生效。最高补助金额为所需资金的一半，这些资金将从NEDO设立的基金中提供。政府在20日批准的2021财政年度补充预算中为该基金争取到6170亿日元的资金费用。
 
-委员会还进一步强调，“使用辉瑞公司的新冠疫苗接种的好处仍然大大超过了这种罕见的副作用所带来的风险”。
+信息源:
 
-世界卫生组织（WHO）已经承认，**一些新冠疫苗已经报告了“非常罕见”的心肌炎信号。该组织补充说，大多数心肌炎病例发生在16至24岁的年轻男子身上，通常是在他们第二次接种疫苗后的几天内。**
+[半導体国内生産に助成金　複数年にわたり支援　改正法成立](https://news.yahoo.co.jp/articles/71b53f7d27bda02071a43123c7932305f0c8fb06)
 
-美国疾病控制和预防中心（CDC）也表示，它正在“积极监测（接种者）心肌炎的报告”，但它“继续建议5岁及以上的人接种新冠疫苗”。
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWSLOGO20211207.jpg)
 
-新闻链接：[New Zealand links death to Pfizer COVID vaccine: ‘it remains safer to be vaccinated’ | TheHill](https://thehill.com/policy/healthcare/586516-new-zealand-links-26-year-olds-death-to-pfizer-covid-vaccine)
-
-**发布：**去中心化Math
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

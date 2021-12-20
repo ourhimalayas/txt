@@ -2,44 +2,56 @@
 ---
 
 
-## 班农先生荣获《国家脉动》第二届年度爱国者奖
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1762894/)
+## COVID-19 最新情报｜日本考虑公费负担新冠口服药 郭文贵曾爆新药副作用极强
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1770550/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/8121-2.jpg)图片来源：Gnews
+**疫情關注組 / 發佈時間｜19/12/2021**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
 
-#### 整理报道：文泓
+日本首相岸田文雄已经与辉瑞公司达成了一项基本协定，确保200万剂量的新冠口服药物。 政府正在考虑用公共费用支付这些药品的全部费用。
 
-美国时间12月16日，《国家脉动》主编宣布，史蒂夫·班农先生荣获《国家脉动》第二届年度爱国者奖。
-现年68岁的班农在2016年引起了全国的关注，帮助带领川普竞选团队以惊人的优势击败希拉里克林顿和民主党机器。从那以后，班农一直担任白宫首席战略官，并与前川普通讯主管杰森米勒和国家脉搏总编辑拉希姆·卡萨姆一起创立了非常成功的《班农战争室》：大流行播客。
+岸田文雄表示：通过辉瑞首席执行官布拉和我的直接电话交谈，我们达成了基本协议，确保了200万剂辉瑞公司的口服药。
 
-班农出生于弗吉尼亚州诺福克，是多丽丝和马丁班农的儿子。他曾就读于弗吉尼亚理工大学，在加入美国海军之前成为学生会主席，同时获得国家安全研究硕士学位，然后在哈佛商学院获得MBA。
-班农曾在保罗·福斯特号航空母舰服役，然后在弗吉尼亚州五角大楼担任海军作战部长的特别助理。
+- 相关：[COVID-19 最新情报｜关于“新冠口服药” 你不可不知的泽连科方案](https://gnews.org/zh-hant/1643262/)
 
-离开海军后，班农去了高盛工作，在那里他会花几年时间了解他现在每天两次的节目所反对的那些精英阶层的全球主义商业运作。
-几年后，他在好莱坞建立了自己的业务，其本人制作了多部电影，包括里根史诗《直面邪恶》和2012年的《揭露占领》。
 
-2009年金融危机后不久，班农与传奇性的保守派火爆人物安德鲁·布赖特巴特合作，他们搭档继续为布赖特巴特新闻网站制定发展计划。布雷特巴特于2012年去世，班农担任执行主席。他将该网站建成了一个民粹主义/民族主义保守主义的全球中心，这令建制派媒体和政治阶层感到震惊和恐惧。
+岸田文雄透露，他和辉瑞公司首席执行官布拉昨天进行了电话交谈，基本上达成了确保200万剂口服药的协定。 此外，政府已经获得了160万剂默克公司的口服药物莫努匹拉韦“**molnupiravir**”，如果获得批准，将从今年年底开始向医疗界提供。这些口服药物的费用，将考虑由公共资金全额负担。
 
-2016年8月，班农应邀加入川普竞选团队，担任其首席执行官。当时，该竞选团队在几乎所有摇摆州都处于下风。正是班农的坚定性和纪律性帮助竞选团队重新调整并顺利度过了臭名昭著的“比利·布什周末”，在这个周末，一盘以候选人川普私下发表猥亵言论为主题的录音带被公布。
+## 美FDA研拟将 紧急使用授权molnupiravir
 
-自从离开白宫和布莱巴特新闻网后，班农以《战争室》播客的形式建立了一个右翼势力。该节目现在被视为全球所有政治和新闻媒体中最重要的节目之一，并且是第一个在世界卫生组织、安东尼·福奇等人之前就认识到即将到来的大流行的危险的节目。
-**事实证明，班农和他的团队对中国共产党（他心中的对手）和病毒起源的判断是正确的。**
-自1月6日美国国会大厦发生骚乱以来，班农一直是1月6日欺诈委员会的焦点，被控蔑视国会，并再次被企业左翼媒体视为仇恨人物。
+据[EBSCO post](https://www.ebsco.com/e/zh-tw/blog/antiviral-pill-covid-19-molnupiravir-too-good-be-true) 2021/11/18指出，Molnupiravir 被定义为用来治疗 COVID-19 的全新抗病毒口服药。在研制有效预防、治疗COVID的过程中，发现“**羟氯奎宁(hydroxychloroquine)、伊维菌素(ivermectin)**和某些抗HIV病毒药物”具有预防、治疗COVID效用。
 
-《国家脉动》主编强调，政治迫害是我们今年要向班农致敬的原因之一：
+- 相关：[美国卫生研究院(NIH)批准“伊维菌素”作为新冠治疗药物](https://gnews.org/zh-hant/1570778/)
+- 相关：[新冠病毒预防、治疗方案](https://vladimirzelenkomd.com/prophylaxis-protocol/)（Zev Zelenko 博士）
+- 相关：[印度德里使用伊维菌素，确诊病例下降97%](https://gnews.org/zh-hant/1570870/)
 
-当我听说史蒂夫被国会蔑视时，我给他发了短信，让他知道，世界上没有任何机构比现在的国会更希望被藐视了。这是一个荣誉的徽章，应该如此佩戴。我们很高兴向史蒂夫颁发第二届年度爱国者奖，**这不仅是因为他敢于站出来反对腐败的政治精英、中国共产党和世界各地的激进伊斯兰主义者，还因为他对整个西方世界的保守主义运动的不懈的努力，以及他对这个共和国的建国原则的恒久承诺。我很自豪地称史蒂夫为导师、朋友和****2021年国家脉搏的年度爱国者。**
 
-新闻链接：[National Pulse Patriot of The Year 2021: Stephen K. Bannon. (thenationalpulse.com)](https://thenationalpulse.com/news/national-pulse-patriot-of-the-year-2021-stephen-k-bannon/)
+**羟氯奎宁、伊维菌素**，已经被长期使用于疟疾等免疫力疾病防治，安全性无虞。并有国际研究逐渐表明，羟氯喹宁、伊维菌素确实可以作为有效防治的方案。然，为何药厂舍弃这些被广泛使用的药物，要研制全新的抗COVID药物Molnupiravir 呢？
 
-**发布：文泓**
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+文章清楚指出，过去一款名为瑞德西韦(remdesivir)的药物被证实可以作为COVID-19患者治疗用药，并被美国相关部门列为新冠治疗用药。瑞德西韦，被用来针对伊波拉病毒。但有媒体指出，将[瑞德西韦(remdesivir)列为治疗用药而刻意的打压伤害性更小的伊维菌素是图利于医院、药厂](https://gnews.org/zh-hant/1570778/)。
+
+使用瑞德西韦治疗新冠，对病患身体会有其他伤害，新的抗病毒药molnupiravir运作机理相似于瑞德西韦，借由抑制病毒RNA聚合酶，达到阻断病毒快速增生的效果。molnupiravir在一期、二期临床试验中，文章指出molnupiravir耐受性良好、没有引发任何严重的不良事件，更具备减少COVID-19病患的传染力。默克指出molnupiravir的[三期随机试验](https://www.merck.com/news/merck-and-ridgebacks-investigational-oral-antiviral-molnupiravir-reduced-the-risk-of-hospitalization-or-death-by-approximately-50-percent-compared-to-placebo-for-patients-with-mild-or-moderat/)治疗效果非常显著。
+
+美国食品药物管理局FDA于11月30日，已开始讨论是否将紧急使用授权(EUA)新冠口服药物molnupiravir。
+
+## 抗病毒药物 为何不选羟氯奎宁、伊维菌素？
+
+新冠持续延烧世界，新冠疫苗大规模接种并未阻止疫情扩散，政府及药厂在持续推动加强针、强制接种(疫苗通行证)之余，更转向口服药物防治方案。瑞韦西德、羟氯喹、伊维菌素被证实为有效防治药物选项，然[瑞韦西德治疗对病患身体有其他不利影响](https://gnews.org/zh-hant/1570778/)。伊维菌素、羟氯喹已被广泛使用，且容易取得，却被政府、药厂等忽略。
+
+[EBSCO post](https://www.ebsco.com/e/zh-tw/blog/antiviral-pill-covid-19-molnupiravir-too-good-be-true)介绍Molnupiravir 文章，提及羟氯奎宁(hydroxychloroquine)、伊维菌素(ivermectin)和某些抗HIV病毒药物具有预防、治疗COVID效用。
+
+郭文贵于2021/11/11直播片段针对“新冠口服药”爆料是针对淋病、爱滋等性病，副作用极强。Molnupiravir 成分是否包含抗HIV病毒药物，及是否为他所指的新冠口服药尚无法确定。
+ 來源：[GETTR](https://gettr.com/post/pgmtu1b16f)
+[默克新闻稿](https://www.merck.com/news/merck-and-ridgebacks-investigational-oral-antiviral-molnupiravir-reduced-the-risk-of-hospitalization-or-death-by-approximately-50-percent-compared-to-placebo-for-patients-with-mild-or-moderat/)指出Molnupiravir 预计到 2021 年底将生产 1000 万剂量，2022 年将生产更多。Molnupiravir的全球三期、随机、安慰剂对照、双盲、多中心研究MOVe-OUT 试验 (MK-4482-002) ( [NCT04575597](https://cts.businesswire.com/ct/CT?id=smartlink&amp;url=https%3A%2F%2Fclinicaltrials.gov%2Fct2%2Fshow%2FNCT04575597%3Fterm%3Dmolnupiravir%26draw%3D2%26rank%3D2&amp;esheet=52502008&amp;newsitemid=20211001005189&amp;lan=en-US&amp;anchor=NCT04575597&amp;index=3&amp;md5=d00529fc8647b82c99f3f53d57191335) ) ，第 3 阶段已经在全球范围内进行，包括在阿根廷、巴西、加拿大、智利、哥伦比亚、埃及、法国、德国、危地马拉、以色列、意大利、日本、墨西哥、菲律宾、波兰、俄罗斯、南非、西班牙、瑞典、台湾、乌克兰、英国和美国。
+
+## 关于MERCK（默克）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截圖-2021-12-19-下午3.21.57.png)來源：[MERC](https://www.merck.com/news/merck-and-ridgebacks-investigational-oral-antiviral-molnupiravir-reduced-the-risk-of-hospitalization-or-death-by-approximately-50-percent-compared-to-placebo-for-patients-with-mild-or-moderat/)[K](https://www.merck.com/news/merck-and-ridgebacks-investigational-oral-antiviral-molnupiravir-reduced-the-risk-of-hospitalization-or-death-by-approximately-50-percent-compared-to-placebo-for-patients-with-mild-or-moderat/)
+译文：今天，默克的研究仍在预防、治疗那些威胁人类与动物的疾病，包含癌症、伊波拉及爱滋等传染性疾病、新兴的动物疾病。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-3-1.png)
+來源￨[YAHOO JAPAN](https://news.yahoo.co.jp/articles/c6a30e2f3285fb892b40d4bdbf94b0dd2bcc105c)/GNEWS/[默沙東實驗報告](https://www.merck.com/news/merck-and-ridgebacks-investigational-oral-antiviral-molnupiravir-reduced-the-risk-of-hospitalization-or-death-by-approximately-50-percent-compared-to-placebo-for-patients-with-mild-or-moderat/)
 
  
 

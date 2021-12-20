@@ -2,24 +2,39 @@
 ---
 
 
-## 日本外交部长表示加强美日联盟打击中共霸权主义
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1773386/)
+## 七哥冬奥会悬念解惑三：习近平对到场外国政要接不接见
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1773898/)
 
-撰稿人：东京樱花团/风翼
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1063.png)[图片来源](https://mainichi.jp/articles/20211219/k00/00m/010/083000c)
-据【NHK电视台】的辩论节目中，外交部长林芳正表示，定于2022年1月在美国举行的日美外长和防长会议（2加2）将讨论如何在”朝鲜发展核导弹、中国不透明的军事建设以及在东海和南海以武力为背景单方面改变现状的企图 “的前提下加强日美同盟和讨论加强的方法。会在下周日就给2021年起五年内驻扎的美军的费用补助协议作最后调整。
+下一个问题，大家听好下一个问题，习近平最关键的在这次冬奥会上，也是全世界最关注的，他的个人健康。这就是来的二三十个国家领导人，他见不见面的问题，接不接见的问题，是各个接见，还是群体接见，会在哪里接见？
 
-他说，关于中国日益增长的霸权问题在本月英国举行的七国外长会议开始，就被列入议程，以前我们提到中共相关问题时，被指出因地理位置相近过于敏感，欧洲方面对于俄罗斯则更感兴趣。但是现在，中共问题已成为七国集团的共识。
+好！我告诉大家答案，他会见，啊！会见，集体见个人见都会见，首选人民大会堂，一定会见的，记住我今天说的话。
 
-关于岸田文雄首相加强经济安全的计划，他说：”这并不意味着我们应该停止所有经济关系，但我们必须为外交和安全创造必要的规则。对于外交部长访中共一事，他表示还没有进行详细讨论。
+编辑整理：海贼王M.D.LUFFY；
 
-林芳正外交部长曾任日中友好联盟会长，广泛被认为的亲中共派，也就是所谓的日本政界的左派的立场。而作为左派代表曾担当过国防部长、财政政策部长的工作经历的影响力和他的“知共”而不是“亲共”的发言所代表着一些左派一些人的态度。不难看出对于中共的威胁论现在不论是右派还是左派都已经达成一定的共识。对抗中共的形势已经逐渐形成。
+字幕制作：小满；
 
-信息来源：[林外相、日米2プラス2で同盟強化策を協議　NHK番組で発言](https://mainichi.jp/articles/20211219/k00/00m/010/083000c)
+视频制作及上传：Cindy；
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

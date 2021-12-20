@@ -2,37 +2,35 @@
 ---
 
 
-## 民主党参议员科里·布克 (Cory Booker) 透露，他的 COVID-19 突破测试呈阳性：“相对温和”
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1774106/)
+## 昆士兰企业如何应对 COVID-19 疫苗强制令
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1774242/)
 
-特里斯坦·巴拉格塔斯
+撰稿：云彩
 
-翻译：沉默老歌
+视频来自网络
 
-2021 年 12 月 19 日晚上 09:46
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Q2ZIBFSNDZJPVOT5DYG5BWP6RY1-edited.jpg)图片来源：网络
-科里·布克 (Cory Booker) 在推特上分享说：“我非常感激我接种了两剂疫苗，而且最近又接种了一次加强剂——我确信如果没有它们，我的情况会更糟。”
+2021 年 12 月 17 日昆士兰州疫苗强制令生效。根据新规定，未接种疫苗的人不能进入餐厅堂食，只能叫外卖和使用免下车点餐服务。
 
-参议员科里·布克 (Cory Booker) 透露，他的 COVID-19 突破测试呈阳性：“相对温和”。
+一些餐厅选择关闭他们的用餐区，恢复外卖，以避免与未接种疫苗的顾客发生冲突。
 
-科里·布克 (Cory Booker) 是最新一位透露他的 COVID-19 检测呈阳性的政治家。
+在布里斯班西南约 200 公里的边境城镇 Stanthorpe 经营 咖啡店 和熟食店的业主Kristy O’Brien，她说这个强制令在乡村小镇很难执行，使企业处于尴尬的境地，因为这让你几乎看起来像个坏人。在一个小镇上,我们几乎认识每个人,执行强制令,你会拒绝你认识的人。她趋向以后只做外卖，这样可以让每位顾客得到同样的服务。
 
-这位已接种疫苗的民主党新泽西州参议员在前一天感觉“相对轻微”的症状后，于周日在 Twitter 上宣布了他对突破性 COVID 的诊断。
+布里斯班内北区的 Bowen Hills 拥有一家咖啡馆和生产商业咖啡设备的Phillip Di Bella
 
-52 岁的布克写道：“我今天了解到，在周六第一次出现症状后，我的 COVID-19 检测呈阳性，我的症状相对较轻” 。 “我非常感激我接种了两剂疫苗，最近又接种了一次加强剂，我敢肯定，如果没有它们，我的情况会更糟”。
+表示他的员工不能站在门口检查每位顾客，很难监管这项强制令。他认为这个强制令是严重的权力过度。
 
-**评：**又一民主党参议员检测出中共病毒阳性，而且接种了三针疫苗。事实再一次证明，疫苗是无效的，接种疫苗是有害的。避免接种疫苗，远离中共病毒是保护自己不受伤害最有效的方法。
+点评：强制疫苗政策曾让打疫苗和未打疫苗的墨尔本民众彼此之间产生冲突。不过，澳洲毕竟是法治民主国家，关爱和包容是主旋律。从昆州的小企业主的反应，社会还是很难接受这个让社会分裂的疫苗强制令。
 
-来源链接：
+参考资料：
 
-[https://www.reuters.com/world/us/us-senator-elizabeth-warren-tests-positive-covid-19-2021-12-19/](https://www.reuters.com/world/us/us-senator-elizabeth-warren-tests-positive-covid-19-2021-12-19/)
+[昆州如何应对强制疫苗令](https://www.abc.net.au/news/2021-12-17/qld-coronavirus-covid19-business-restrictions-ease/100702020)
 
-编辑/发布：LILY
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-20211220
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
 
-
+[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

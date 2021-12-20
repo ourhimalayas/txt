@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/20/2021 3:05 PM (UTC)`
+
+12月20号：尊敬的战友们好，你们健身了吗？传播C C P的病毒和疫苗解药的真相了吗？一切都已经开始！
+![img](https://media.gettr.com/group25/getter/2021/12/20/15/31d5a9f5-af01-4735-7258-e55bf937ebfc/out.jpg)
+
+---
+
 `@miles 12/20/2021 7:14 AM (UTC)`
 
 12/19/2021 Miles Guo: The CCP’s police forces controlled by the Central Political and Legal Affairs Commission and Meng Jianzhu is one of the greatest factors of Xi Jinping’s insecurity; there is over 70% of chance that Xi may catch the virus and have health problems; the Winter Olympics is Xi’s nightmare and also a great gift from heaven to the Whistleblowers’ Movement!<br/><br/>12/19/2021 文贵直播：政法委、孟建柱控制的警察是习最大的不安全因素之一；习会染上病毒、身体会出问题的可能性超过七成；冬奥会是习的噩梦，也是上天送给爆料革命的大礼！<br/>
@@ -146,13 +153,6 @@ CCTV, the crazy CCP’s mouthpiece, shirking responsibility for creating the vir
 
 12月18号：尊敬的战友们好，你们健身了吗？传播C C P病毒．疫苗解药的真相了吗？一切都已经开始！
 ![img](https://media.gettr.com/group29/getter/2021/12/18/14/0fd306d4-8778-af1c-35d7-90d4f955a51c/out.jpg)
-
----
-
-`@miles 12/18/2021 12:49 PM (UTC)`
-
-12月18号：谢谢战友做得精美的视频！【我的肌肉哥靓照合集视频🥰🥰🥰   晚安亲爱的，周末愉快， 想想想想想想想想想想想想想想想想想想想想想想想你 ❤️❤️🌽🌽💋💋】
-![img](https://media.gettr.com/group24/getter/2021/12/18/12/a471b124-61df-5556-ba75-1b3812932bc9/out.jpg)
 
 ---
 
