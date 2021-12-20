@@ -2,55 +2,34 @@
 ---
 
 
-## 前白宫经济顾问皮特·纳瓦罗：鲍威尔和习近平刚刚用通货膨胀中子弹袭击了美国
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1772525/)
+## 12.19 文贵爆料： 数字区块链货币会让人类第一次和平、迅速、不流血地改变货币属性
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1772543/)
 
-前白宫经济顾问皮特·纳瓦罗： 感谢乔·拜登，杰伊·鲍威尔和习近平刚刚用通货膨胀中子弹袭击了美国。如果您想了解滞胀问题的复杂性，请阅读此处。 【附福克斯新闻：拜登，民主党和中共国应为美国的滞涨混乱负责】
+撰稿：卡拉马佐夫姐姐
+![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Image-2021-12-19-at-10.23.17-AM.jpeg)
+**不能高看或轻视敌人，看到真实、客观的敌人才能赢**
 
+在2021年12月19日郭文贵先生直播提到数字货币时，他透露现在万事达卡（MasterCard）都认为数字货币对他们来讲是一个机会。JPMorgan CEO表示比特币一文不值，郭先生说“这个咱们同意，但他没有说所有数字货币一毛没有，大家要听清楚。”
 
+共产党最早搞的数字化人民币发起人就是周亮是吧？郭树清，还有一个国际外汇局管理的，叫潘功胜，都是高艳艳裤裆下的产物。郭先生说“你想他们能懂什么币啊，就是装叉，就是共产党给了这些人经营。战友们，你一定要看到这个人类的悲剧：我说**你把敌人看太高大的时候，你就输了，你太小看别人的时候，你也输了。你一定要看到真实的敌人，客观的敌人才能赢。我们最最重要的就是看到这些人的背后的人生和背景，你就知道他们有多low。**”
 
-> Thank Joe Biden, Jay Powell, and Xi Jinping for the inflation neutron bomb that just hit America. Good read here if you want to understand the complexities of the stagflation issue.[https://t.co/ngYhmlH7um](https://t.co/ngYhmlH7um)
-> — Peter Navarro (@RealPNavarro) [December 17, 2021](https://twitter.com/RealPNavarro/status/1471930037687496704?ref_src=twsrc%5Etfw)
+**“数字区块链货币会让人类第一次和平、迅速、不流血地改变货币属性”**
 
+以上提到的所有人都是王岐山的兵。王岐山的兵搞出了数字人民币的时候，他完全没有意识到一个根本性结果：去中心化的数字货币的未来。他们跟法币一定会同时存在一段时间，然后代替法币。郭先生说，**“实际上我告诉大家，这次的数字货币、区块链币的到来，会是真正的从上万年来开始，人类第一次和平的、迅速的、不用流血的改变货币的属性。”**从过去的西班牙王国、葡萄牙王国、罗马帝国、包括我们中国的袁大头，大清朝（银行兑换）券，所有的货币，就是说确定为面包多少钱、用啥来衡量的时候，一定是改朝换代，尸骨遍野，永远是。
 
+定价权就是CPI要回到零，现在已经不是（百分之）一百了，现在已经奔十万去了，大家看到已达到四五万了。就是过去面包是一块钱，现在就五万块钱。这是很吓人的，（定价权）只有砸回来。砸回来后拿什么来量呢？那谁说了算呢？那就是枪、刀、死人。而且你一定你看到这些币都不会存在，这个战再继续，全人类就完了。郭先生告诉大家，从去年到今年，我们人类就在这场战争。
 
-比尔·戈茨： 未提及的：[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 可能会故意制造假阳性新冠Covid 测试结果，以将特定的来访运动员排除在外，并使比赛对其自身有利。 【转华尔街日报：受疫情影响，北京冬奥会已经面临挑战。 Omicron可能会让情况变得更糟。】
+现在我们在第三次世界大战的网络战中，金融战和超限战中已经一年了。这是网络战、数字战、货币战、和病毒生化危机战争，然后是疫苗战。这几个战从来没有同时发生在人类上。**那么现在可以说网络战的最核心是什么？数字货币。**情报都是放第二位的，数字货币是第一，谁都想拿数字货币定价权、发行权和监管权。
 
+数字货币可以用数字反映每个人过去的工作，不可更改，两方交易，中间没有第三方，没有印币方，工作时间就是造币的时间。**你付出的时间换来的币，和他工作时间换来的面包，你们平等交换，这叫什么？去中心化的货币时代。**
 
+**人类走向数字货币春秋时代，然后出现三国，最后的司马懿就是新中国联邦**
 
-> Not mentioned: China could deliberately create false-positive Covid test results to sideline specific visiting athletes and skew the games in its favor [https://t.co/UDZvR7vW83](https://t.co/UDZvR7vW83)
-> — Bill Gertz (@BillGertz) [December 18, 2021](https://twitter.com/BillGertz/status/1472245094761652228?ref_src=twsrc%5Etfw)
+所以今天所有政府都想要第三方（货币）话语权。但是，他们现在欠下了几百万亿，特别是现在钱都砸到房地产了，怎么还呢？都在拉帮结伙，中共要搞数字化人民币，叫大家都跟他们玩儿，别跟美国玩儿。而美国一定搞数字货币，欧洲一定搞数字欧元，数字瑞士元已经早就有了，是吧？大家想拉帮结伙。
 
+有数字美元时代，数字人民币的时代就没有SWIFT。那结果是谁说了算呢？最后看谁成本低，保密安全信任度高，而且要同宗同信，还有文化各种因素加在一起。看谁对我还挺够意思，看谁人品挺不错的，未来我就跟你了。
 
-
-参议员迈克·布莱恩： 我与参议员汤姆·科顿的提案将遏制美国对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 药品的依赖。 我们不能任由我们最大的政治对手摆布。 【附布莱恩参议员在福克斯的视频】
-
-
-
-> My bill with [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw) will curb U.S. reliance on Chinese pharmaceuticals.
-> 
-> We cannot be at the mercy of our greatest political adversary. [@FoxBusiness](https://twitter.com/FoxBusiness?ref_src=twsrc%5Etfw) [@cvpayne](https://twitter.com/cvpayne?ref_src=twsrc%5Etfw) [pic.twitter.com/lEfu6tHTWQ](https://t.co/lEfu6tHTWQ)
-> — Senator Mike Braun (@SenatorBraun) [December 17, 2021](https://twitter.com/SenatorBraun/status/1471947371089125382?ref_src=twsrc%5Etfw)
-
-
-
-众议员拉惹·克里西那摩提： 我很自豪与众议员克里斯·斯图尔特 [@RepChrisStewart](https://twitter.com/RepChrisStewart) 共同撰写了两党的监督中共国-阿联酋合作法案，以保护我们的国家安全和美国技术免受 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 的侵害。
-
-
-
-> I am proud to have authored the bipartisan Monitoring China-UAE Cooperation Act with [@RepChrisStewart](https://twitter.com/RepChrisStewart?ref_src=twsrc%5Etfw) in order to protect our national security and American technology from the Chinese Communist Party.[https://t.co/shWc5DURXY](https://t.co/shWc5DURXY)
-> — Congressman Raja Krishnamoorthi (@CongressmanRaja) [December 17, 2021](https://twitter.com/CongressmanRaja/status/1471911830306103298?ref_src=twsrc%5Etfw)
-
-
-
-美国国会及行政当局中国委员会： 戴耀廷 [#BennyTai](https://twitter.com/hashtag/BennyTai?src=hashtag_click) 因在 [#香港](https://twitter.com/hashtag/%E9%A6%99%E6%B8%AF?src=hashtag_click) [#HongKong](https://twitter.com/hashtag/HongKong?src=hashtag_click) 推动普选而被香港大学解雇。 他现在因颠覆香港立法会民主候选人组织初选的指控而被拘留，这显示出香港政府将在多大程度上扼杀民主。 [#奥运囚徒](https://twitter.com/hashtag/%E5%A5%A5%E8%BF%90%E5%9B%9A%E5%BE%92?src=hashtag_click) [#OlympicPrisoner](https://twitter.com/hashtag/OlympicPrisoner?src=hashtag_click)
-
-
-
-> [#BennyTai](https://twitter.com/hashtag/BennyTai?src=hash&amp;ref_src=twsrc%5Etfw) was fired by [#HKUniversity](https://twitter.com/hashtag/HKUniversity?src=hash&amp;ref_src=twsrc%5Etfw) for his work promoting universal suffrage in [#HongKong](https://twitter.com/hashtag/HongKong?src=hash&amp;ref_src=twsrc%5Etfw). He is detained now on a subversion charge for organizing a primary for democratic [#LegCo](https://twitter.com/hashtag/LegCo?src=hash&amp;ref_src=twsrc%5Etfw) candidates, showing how far the [#HKGov](https://twitter.com/hashtag/HKGov?src=hash&amp;ref_src=twsrc%5Etfw) will go to stifle democracy. [#OlympicPrisoner](https://twitter.com/hashtag/OlympicPrisoner?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/1Nlaq8o4tU](https://t.co/1Nlaq8o4tU)
-> — China Commission (@CECCgov) [December 18, 2021](https://twitter.com/CECCgov/status/1472295782023933963?ref_src=twsrc%5Etfw)
-
-
+**所以，人类走向了叫做货币春秋数字化的竞争大时代，随后出现三国，我们会是三国之中最重要的国，最后咱一定就是司马懿，这就叫新中国联邦。**我们是其中一级，而且要做好手里的东西一毛不值的准备。
 
  
 

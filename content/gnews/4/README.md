@@ -2,51 +2,55 @@
 ---
 
 
-## 疫情之后，要对政客和‘专家’秋后算账
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1772504/)
+## 前白宫经济顾问皮特·纳瓦罗：鲍威尔和习近平刚刚用通货膨胀中子弹袭击了美国
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1772525/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Piers.jpg)图片来源：IMDd
-翻译/编辑：守望黎明
+前白宫经济顾问皮特·纳瓦罗： 感谢乔·拜登，杰伊·鲍威尔和习近平刚刚用通货膨胀中子弹袭击了美国。如果您想了解滞胀问题的复杂性，请阅读此处。 【附福克斯新闻：拜登，民主党和中共国应为美国的滞涨混乱负责】
 
-**皮尔斯**・**阿克曼 | 星期日电讯报**
 
-在疫情流行两年后，对其起源、治疗方案、疫苗的功效以及专家意见的不断失误和政府奇怪的应对手法仍在争议中。
 
-从疫情一开始就缺乏透明度——无论是在国家之间还是在各地，在各个层面的透明度低的令人不可思议。
+> Thank Joe Biden, Jay Powell, and Xi Jinping for the inflation neutron bomb that just hit America. Good read here if you want to understand the complexities of the stagflation issue.[https://t.co/ngYhmlH7um](https://t.co/ngYhmlH7um)
+> — Peter Navarro (@RealPNavarro) [December 17, 2021](https://twitter.com/RealPNavarro/status/1471930037687496704?ref_src=twsrc%5Etfw)
 
-卫生专家们的意见也并不一致。珍妮特・杨（Jeannette Young）博士是昆士兰州前首席卫生官，现在已是该州州长了，就是她助推了一大票疫苗强势州的领导人，特别是维州的工党州长丹尼尔・安德鲁斯（Daniel Andrews）、昆士兰州工党州长安娜・帕拉斯丘克（Anna Palaszczuk）和西澳的工党州长马克・麦高文（Mark McGowan），正是这批人，对普通澳大利亚人受到的一系列不人道的严酷待遇负有责任。
 
-直到上一周，昆士兰州的人们才得以与被封锁在州外的亲人团聚，而西澳人要等来这一天还要等到2月初。
 
-许多人错过了近亲的葬礼、婚姻和出生礼——这些本是家庭的纽带和维系了几代人联系的根本。
+比尔·戈茨： 未提及的：[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 可能会故意制造假阳性新冠Covid 测试结果，以将特定的来访运动员排除在外，并使比赛对其自身有利。 【转华尔街日报：受疫情影响，北京冬奥会已经面临挑战。 Omicron可能会让情况变得更糟。】
 
-维多利亚州警方在家中当着伴侣和孩子的面，逮捕了28岁身穿睡衣的孕妇佐伊・布勒（Zoe Buhler），就因为她在自己的脸书Facebook页面上发布了反封锁抗议活动的信息。
 
-昆士兰州的帕拉斯丘克州长拒绝家庭成员们参加一个婴儿的葬礼，但却允许电影明星和体育界人士随意出入家门。
 
-同样，西澳州的麦高文州长给予当地亿万富翁旅行豁免权，但拒绝家人一起参加婚礼和葬礼。
+> Not mentioned: China could deliberately create false-positive Covid test results to sideline specific visiting athletes and skew the games in its favor [https://t.co/UDZvR7vW83](https://t.co/UDZvR7vW83)
+> — Bill Gertz (@BillGertz) [December 18, 2021](https://twitter.com/BillGertz/status/1472245094761652228?ref_src=twsrc%5Etfw)
 
-正当圣诞节到来之时，前总理托尼・阿博特（Tony Abbott）呼吁成立一个皇家委员会来调查政府对新冠疫情的处理决定。
 
-阿博特在国际战略领导力对话视频会议上发言时说，一旦疫情结束，政府和官员在疫情中所做的各种决定就必须受到审查。他说，迄今为止政府的这些决定缺乏议会审查，这值得关注。他说：”对于这些几十年一遇的最重大的决定，在支出和限制等方面，从未通过议会充分的辩论，也没有进行过表决。我们听凭某些’专家意见’大行其道，而民主机制难以发声。我认为这就是这么多人现在感到非常不满的原因。”
 
-对此，本文作者要求彻底调查医疗药品管理局（TGA）的所作所为，因为它不合逻辑地拒绝了被证明可以减少新冠死亡风险的药物，并向大制药公司献媚。
+参议员迈克·布莱恩： 我与参议员汤姆·科顿的提案将遏制美国对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 药品的依赖。 我们不能任由我们最大的政治对手摆布。 【附布莱恩参议员在福克斯的视频】
 
-最后，当这一流行病刚到澳洲时，我曾相信总理斯科特・莫里森（Scott Morrison）所吹嘘的国家管制方式是必要的，也是可行的。我还对当时的新南威尔士州财政部长多米尼克・佩罗特(Dominic Perrottet)抵制内阁的计划表示过不满，那个计划把外来人员安置在酒店隔离并向他们所属州收取隔离费用。
 
-现在，对此我对自己当初的态度表示歉意。当时佩罗特部长正确地解读了各州之间的态度，并准确地预测到这些费用最终还是要新南威尔士州自己买单的。
 
-懦弱的政客们的小题大做、行事极端，所谓的健康专家实际上不懂专业，我们并没有与他们同流合污。
+> My bill with [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw) will curb U.S. reliance on Chinese pharmaceuticals.
+> 
+> We cannot be at the mercy of our greatest political adversary. [@FoxBusiness](https://twitter.com/FoxBusiness?ref_src=twsrc%5Etfw) [@cvpayne](https://twitter.com/cvpayne?ref_src=twsrc%5Etfw) [pic.twitter.com/lEfu6tHTWQ](https://t.co/lEfu6tHTWQ)
+> — Senator Mike Braun (@SenatorBraun) [December 17, 2021](https://twitter.com/SenatorBraun/status/1471947371089125382?ref_src=twsrc%5Etfw)
 
-人民已经被剥夺了宪法赋予的权利！
 
-发布：Peter Xin
 
-**更多****资讯****，****请关****注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+众议员拉惹·克里西那摩提： 我很自豪与众议员克里斯·斯图尔特 [@RepChrisStewart](https://twitter.com/RepChrisStewart) 共同撰写了两党的监督中共国-阿联酋合作法案，以保护我们的国家安全和美国技术免受 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 的侵害。
+
+
+
+> I am proud to have authored the bipartisan Monitoring China-UAE Cooperation Act with [@RepChrisStewart](https://twitter.com/RepChrisStewart?ref_src=twsrc%5Etfw) in order to protect our national security and American technology from the Chinese Communist Party.[https://t.co/shWc5DURXY](https://t.co/shWc5DURXY)
+> — Congressman Raja Krishnamoorthi (@CongressmanRaja) [December 17, 2021](https://twitter.com/CongressmanRaja/status/1471911830306103298?ref_src=twsrc%5Etfw)
+
+
+
+美国国会及行政当局中国委员会： 戴耀廷 [#BennyTai](https://twitter.com/hashtag/BennyTai?src=hashtag_click) 因在 [#香港](https://twitter.com/hashtag/%E9%A6%99%E6%B8%AF?src=hashtag_click) [#HongKong](https://twitter.com/hashtag/HongKong?src=hashtag_click) 推动普选而被香港大学解雇。 他现在因颠覆香港立法会民主候选人组织初选的指控而被拘留，这显示出香港政府将在多大程度上扼杀民主。 [#奥运囚徒](https://twitter.com/hashtag/%E5%A5%A5%E8%BF%90%E5%9B%9A%E5%BE%92?src=hashtag_click) [#OlympicPrisoner](https://twitter.com/hashtag/OlympicPrisoner?src=hashtag_click)
+
+
+
+> [#BennyTai](https://twitter.com/hashtag/BennyTai?src=hash&amp;ref_src=twsrc%5Etfw) was fired by [#HKUniversity](https://twitter.com/hashtag/HKUniversity?src=hash&amp;ref_src=twsrc%5Etfw) for his work promoting universal suffrage in [#HongKong](https://twitter.com/hashtag/HongKong?src=hash&amp;ref_src=twsrc%5Etfw). He is detained now on a subversion charge for organizing a primary for democratic [#LegCo](https://twitter.com/hashtag/LegCo?src=hash&amp;ref_src=twsrc%5Etfw) candidates, showing how far the [#HKGov](https://twitter.com/hashtag/HKGov?src=hash&amp;ref_src=twsrc%5Etfw) will go to stifle democracy. [#OlympicPrisoner](https://twitter.com/hashtag/OlympicPrisoner?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/1Nlaq8o4tU](https://t.co/1Nlaq8o4tU)
+> — China Commission (@CECCgov) [December 18, 2021](https://twitter.com/CECCgov/status/1472295782023933963?ref_src=twsrc%5Etfw)
+
+
 
  
 
