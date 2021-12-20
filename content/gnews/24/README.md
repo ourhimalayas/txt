@@ -2,38 +2,28 @@
 ---
 
 
-## 七哥冬奥会悬念解惑三：习近平对到场外国政要接不接见
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1773898/)
+## 秘翻在线：用钱买来的北京冬奥会
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1773941/)
 
-下一个问题，大家听好下一个问题，习近平最关键的在这次冬奥会上，也是全世界最关注的，他的个人健康。这就是来的二三十个国家领导人，他见不见面的问题，接不接见的问题，是各个接见，还是群体接见，会在哪里接见？
+**撰稿：葛大饼**
 
-好！我告诉大家答案，他会见，啊！会见，集体见个人见都会见，首选人民大会堂，一定会见的，记住我今天说的话。
+**责编：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screenshot-2021-12-20-193257.jpg)图片来源： asianewsphoto
+根据2021年12月20日新浪报道，美国奥委会首席执行官赫希兰德称，美将派出约230名运动员参加北京冬奥会，65名运动员参加北京冬残奥会。
 
-编辑整理：海贼王M.D.LUFFY；
+外交部发言人赵立坚对此表示，近期国际社会都在支持北京冬奥会，反对体育政治化 ，奥运会不是搞意识形态对抗的地方，而是帮助国与国之间建立更紧密友谊与合作的平台，全世界的运动健儿都在热切期盼着北京奥运会，许多国家奥委会官员都表示，期待北京冬奥会取得圆满成功。
 
-字幕制作：小满；
+这是一场用钱买来的冬奥会，到处都是被绑架的利益，运动员面对拿到手软的广告代言费，无法拒绝这样的赚钱机会。比如零零后出生于旧金山的美国滑雪冠军谷爱凌，就和瑞幸咖啡，中国移动，中国银行等众多中共国品牌签约代言。据北京冬奥组委会消息，北京冬奥会市场开发收入在今年7月份便已经超过了以往历届市场开发收入， 共产党的一切都是用钱堆起来的海市蜃楼，想利用冬奥会向全世界展示共产党体制的优越性，展示习太阳的英明。
 
-视频制作及上传：Cindy；
+然而在疫情和疫苗灾难面前，金钱并不能解决问题，何况全球的经济在奔溃的边缘，全球货币超发注定大贬值。这些被派往北京的运动员们也只是政治的牺牲品，因为病毒不可控，肯定会有人染上中共病毒！
 
-G-News发布：小满；
+**[新闻来源](https://news.sina.cn/gn/2021-12-20/detail-ikyamrmz0128623.d.html?sinawapsharesource=newsapp&amp;wm=3200_0024)**
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+关键词： 2022北京冬奥会，
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+摘要：美国将派出约230名运动员参加北京冬奥会，65名运动员参加北京冬残奥会。外交部发言人赵立坚对此表示，近期国际社会都在支持北京冬奥会，反对体育政治化 。
 
  
 

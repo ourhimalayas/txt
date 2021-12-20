@@ -2,34 +2,37 @@
 ---
 
 
-## 中共为报复立陶宛以市场为筹码向跨国公司施压
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1774107/)
+## 接种辉瑞疫苗者死亡，卫生当局仍然认为接种疫苗更安全
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1774142/)
 
-#### **撰稿：**日本东京方舟农场 子辰
+**【雅典娜快讯】，紧贴时代脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-246.jpg)图片来源：Yahoo News
+**整理报道：文泓**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/C10F874B-06E9-4D42-9789-EA6FEC4AE475.jpeg)（图片来自路透社）
+12月19日，新西兰卫生当局表示，他们确信一名26岁男子的死亡与辉瑞公司新冠疫苗的副作用有关。
 
-《美国之音》12月20日援引《路透社》的独家消息报道称，中共为了报复立陶宛，以市场为筹码，向与立陶宛有联系的跨国企业施压。
+据彭博社报道，初步的验尸分析表明，该男子的死因可能是心肌炎，这是疫苗的一种“罕见”的副作用，会导致心肌壁发炎。
 
-此次被施压对象是德国最大的汽车零部件生产商之一，在立陶宛设有工厂。该公司向包括中共国在内的全球客户出口座椅、车门和控制器等汽车零部件。
+同期，新西兰新冠疫苗独立安全监测委员会在一份声明中说，“根据目前现有的信息，委员会认为该死亡者的心肌炎可能是由于接种疫苗造成的”。该人在接种第一支辉瑞疫苗后两周内死亡。
 
-自上个月立陶宛政府允许台湾当局在该国设立“驻立陶宛台湾代表处”之后，中共为了报复，立即宣布将中立两国外交关系降为代办级。两国关系迅速恶化。
+该声明表示，“新冠病毒感染本身可能是心肌炎的一个原因”，并补充说“接种疫苗仍然比感染病毒更安全”。
 
-据悉，中共已要求跨国公司切断与立陶宛的联系，否则就将被中共国市场拒之门外。代表数千家立陶宛公司的立陶宛工业家联盟（Lithuania Confederation of Industrialists）证实，一些从立陶宛供应商那里购买商品的跨国公司已成为中共的目标。
+委员会还进一步强调，“使用辉瑞公司的新冠疫苗接种的好处仍然大大超过了这种罕见的副作用所带来的风险”。
 
-立陶宛外交部表示，在立陶宛运营的企业已成功融入了国际供应链，因此中共的经济施压措施可能会对在立陶宛运营的企业造成各种干扰。立陶宛外交部同时还表示，他们正在“寻找长期可持续的解决方案及恢复对华贸易流动的途径”。
+世界卫生组织（WHO）已经承认，**一些新冠疫苗已经报告了“非常罕见”的心肌炎信号。该组织补充说，大多数心肌炎病例发生在16至24岁的年轻男子身上，通常是在他们第二次接种疫苗后的几天内。**
 
-欧盟委员会就此问题表示，如果发现中共违反国际贸易规则的证据，欧盟可能会将中共国和立陶宛之间的贸易争端提交给世界贸易组织（WTO）。
+美国疾病控制和预防中心（CDC）也表示，它正在“积极监测（接种者）心肌炎的报告”，但它“继续建议5岁及以上的人接种新冠疫苗”。
 
-*参考链接： [中国报复立陶宛再出一拳：不许德国车企巨头使用立陶宛零部件](https://www.voachinese.com/a/China-pressures-Germany-s-Continental-to-cut-out-Lithuania-20211217/6358862.html)*
+新闻链接：[New Zealand links death to Pfizer COVID vaccine: ‘it remains safer to be vaccinated’ | TheHill](https://thehill.com/policy/healthcare/586516-new-zealand-links-26-year-olds-death-to-pfizer-covid-vaccine)
 
-* * *
+**发布：**去中心化Math
 
-*素材采编：子辰*
-
-*编辑：青衣青青*
-
-*发布：miumiu*
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
