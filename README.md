@@ -15,86 +15,86 @@
 
 ---
 
-### [民主党参议员伊丽莎白·沃伦中共病毒检测阳性](/content/gnews/1/README.md)
- ` HimalayaRussia`
-
-### [带着慈悲之心去传播疫苗真相](/content/gnews/2/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [美国参议员伊丽莎白·沃伦 (Elizabeth Warren) 的 COVID-19 检测呈阳性](/content/gnews/3/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [我们被欺骗了，人们不应该再继续听从任何人对我们说是否应该打疫苗](/content/gnews/4/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [12.19 文贵爆料：“一定要做好五年、十年甚至更长时间 经济上全球从来没有的黑暗时期”](/content/gnews/5/README.md)
- ` 秘密翻译组-原创组`
-
-### [我们不要疫苗，不要洗脑，不要仇恨，远离孩子们！](/content/gnews/6/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [Dr. Nagase 如何看到疫苗导致死胎率上升](/content/gnews/7/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [在预期的圣诞节封锁之前，荷兰人涌向商店](/content/gnews/8/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [美国前副总统候选人佩林坚决对疫苗强制令说不](/content/gnews/9/README.md)
- ` HimalayaRussia`
-
-### [柳叶刀的信说社会上对未接种疫苗者的污名“不合理”](/content/gnews/10/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [法币和电子货币的翻转即将到来](/content/gnews/11/README.md)
- ` 温哥华扬帆农场`
-
-### [荷兰将实施严格的圣诞封锁](/content/gnews/12/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [加拿大特鲁多政府是中共的一条忠实走狗](/content/gnews/13/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [新浪微博还能挺住？](/content/gnews/14/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [新冠疫苗很危险，伊维菌素被打压，永远不应该在怀孕妇女身上使用试验性药物](/content/gnews/15/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [自然生成的免疫系统与新冠疫苗的免疫系统有很大的差别，请带着慈悲之心传播真相](/content/gnews/16/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [世茂房地产公司用抵押房欺诈购房者](/content/gnews/17/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [2021年12月19日文贵先生直播摘要及音频—银河系农场](/content/gnews/18/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [中共国医学界专家爆料疫苗会导致儿童迅速早熟、细胞变异长肿瘤](/content/gnews/19/README.md)
- ` MG 澳喜农场多语组`
-
-### [调查显示，在挪威(奥斯陆)的圣诞晚餐后98%的COVID-19感染者都是充分接种了疫苗的人](/content/gnews/20/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [DC大中华时事：中国央行强调金融政策“稳字当头”](/content/gnews/21/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [重磅！世界第一个对新冠病毒康复者的严正声明，吃药定检防癌变](/content/gnews/22/README.md)
- ` YALUN 亚伦`
-
-### [婴儿谋杀： 82% 妊娠中早期接种孕妇发生自然流产](/content/gnews/23/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [CDC欲将周死亡人数归咎于病毒而不是疫苗](/content/gnews/24/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [意大利为应对OMICRON考虑采取新的COVID-19措施](/content/gnews/25/README.md)
- ` 纽约香草山MOS02`
-
-### [文·贵天成——文贵先生谈“中原佛手、裕达国贸”（二）](/content/gnews/26/README.md)
+### [自强推疫苗以来，美国试管婴儿诊所出现了严重的问题](/content/gnews/1/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共的地产与经济灾难，是对全世界的一场合法洗劫](/content/gnews/27/README.md)
+### [樱花灭共诗——题文贵先生](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [你会站在历史的哪一边？](/content/gnews/3/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [民主党参议员伊丽莎白·沃伦中共病毒检测阳性](/content/gnews/4/README.md)
+ ` HimalayaRussia`
+
+### [带着慈悲之心去传播疫苗真相](/content/gnews/5/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [美国参议员伊丽莎白·沃伦 (Elizabeth Warren) 的 COVID-19 检测呈阳性](/content/gnews/6/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [我们被欺骗了，人们不应该再继续听从任何人对我们说是否应该打疫苗](/content/gnews/7/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [12.19 文贵爆料：“一定要做好五年、十年甚至更长时间 经济上全球从来没有的黑暗时期”](/content/gnews/8/README.md)
+ ` 秘密翻译组-原创组`
+
+### [我们不要疫苗，不要洗脑，不要仇恨，远离孩子们！](/content/gnews/9/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [Dr. Nagase 如何看到疫苗导致死胎率上升](/content/gnews/10/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [在预期的圣诞节封锁之前，荷兰人涌向商店](/content/gnews/11/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [美国前副总统候选人佩林坚决对疫苗强制令说不](/content/gnews/12/README.md)
+ ` HimalayaRussia`
+
+### [柳叶刀的信说社会上对未接种疫苗者的污名“不合理”](/content/gnews/13/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [法币和电子货币的翻转即将到来](/content/gnews/14/README.md)
+ ` 温哥华扬帆农场`
+
+### [荷兰将实施严格的圣诞封锁](/content/gnews/15/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [加拿大特鲁多政府是中共的一条忠实走狗](/content/gnews/16/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [新浪微博还能挺住？](/content/gnews/17/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [新冠疫苗很危险，伊维菌素被打压，永远不应该在怀孕妇女身上使用试验性药物](/content/gnews/18/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [自然生成的免疫系统与新冠疫苗的免疫系统有很大的差别，请带着慈悲之心传播真相](/content/gnews/19/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [世茂房地产公司用抵押房欺诈购房者](/content/gnews/20/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [2021年12月19日文贵先生直播摘要及音频—银河系农场](/content/gnews/21/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [中共国医学界专家爆料疫苗会导致儿童迅速早熟、细胞变异长肿瘤](/content/gnews/22/README.md)
  ` MG 澳喜农场多语组`
+
+### [调查显示，在挪威(奥斯陆)的圣诞晚餐后98%的COVID-19感染者都是充分接种了疫苗的人](/content/gnews/23/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [DC大中华时事：中国央行强调金融政策“稳字当头”](/content/gnews/24/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [重磅！世界第一个对新冠病毒康复者的严正声明，吃药定检防癌变](/content/gnews/25/README.md)
+ ` YALUN 亚伦`
+
+### [意大利为应对OMICRON考虑采取新的COVID-19措施](/content/gnews/26/README.md)
+ ` 纽约香草山MOS02`
+
+### [文·贵天成——文贵先生谈“中原佛手、裕达国贸”（二）](/content/gnews/27/README.md)
+ ` 墨尔本雅典娜农场`
 
 ### [【文贵先生大直播PPT】疫苗大灾难](/content/gnews/28/README.md)
  ` Mr. Miles Guo's News Briefing`
