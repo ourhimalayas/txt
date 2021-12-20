@@ -2,38 +2,57 @@
 ---
 
 
-## 西安爆发疫情 借出血热转移疫苗后遗症
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1774880/)
+## 2021/12/20 大卫作战室直播精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1774931/)
 
-作者：日本方舟农场 Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月19日，多家媒体报道，继西安爆发中共病毒疫情后，又发现多例出血热病例。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-20-下午11.56.26.png)
-出血热初期症状与流感类似，发病急、进展快，以发热、出血和肾损伤为主要特征，严重的可导致死亡。
+[![](https://express.adobe.com/page/yGg4Vv4J0i5pC/images/59D983EF-CC5A-43CE-A922-89CEDEAB9990.png?asset_id=BB4D0AAB-2952-4C34-9D41-66D36EB45B84&amp;size=1024)](https://express.adobe.com/page/yGg4Vv4J0i5pC/images/59D983EF-CC5A-43CE-A922-89CEDEAB9990.png?asset_id=BB4D0AAB-2952-4C34-9D41-66D36EB45B84&amp;size=1024)
+G-TV 链接：[2021-12-20草根大卫点评近期灭共国际大事件](https://gtv.org/video/id=61c071f8bcb7f101bb71bc3e)
 
-西安当地医护人员透露，自己所在医院的传染科已住满，而且西安市所有出血热定点医院全部爆满，还有医院被封。部分地区疫情严重，已有多人死亡。一些学校已经停课。
+**嘉宾：**草根小哥
 
-郭文贵先生在直播中透露，中共国的疫情早已失控，疫苗灾难正在发生，中共官媒放出发现出血热传染病的消息，目的就是掩盖中共病毒疫苗导致的严重后遗症。
+————————————————
 
-参考链接：
-1）[中國西安爆鼠疫 出血熱患者湧入醫院](https://tw.news.yahoo.com/%E4%B8%AD%E5%9C%8B%E8%A5%BF%E5%AE%89%E7%88%86%E9%BC%A0%E7%96%AB-%E5%87%BA%E8%A1%80%E7%86%B1%E6%82%A3%E8%80%85%E6%B9%A7%E5%85%A5%E9%86%AB%E9%99%A2-061521972.html)
-2）[西安爆出血热疫情 网传定点医院全爆满](https://www.ntdtv.com/gb/2021/12/18/a103297712.html)
-3）[今日起西安航天总医院门急诊停诊](http://news.hsw.cn/system/2021/1218/1408068.shtml)
-4）[西安：疫情防控形势严峻复杂，启动全员核酸检测工作](https://china.huanqiu.com/article/463GlXVFfeV)
+#### 板块1–中共病毒
 
-![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+**1.**美国创下Covid-19病例的记录。欧美病毒住院率大幅上升，相比之下南非的住院率大幅下降。
 
-总编：Ivy001
-编辑：文真
-校正/发稿：呼吸的雾霾（文小呼吸）
+大卫、草根身边朋友家人都有受到中共病毒的影响，大卫哥老婆打完两针疫苗还准备加强针被大卫哥劝退；非战友相关人士表示病毒变种非常规，疫苗不可能好使；普遍打过疫苗的人剧烈运动有不适感。英喜马哥恢复出院精神状态不错，但病毒诱发慢性病任然需要调养。大卫哥准备建群全面了解病毒康复战友饮食、健身、用药等后续情况，收集更多有关数据。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+Omicron病毒的“诡异行踪”，如：爆料革命预料一样-起源非洲、欧美爆发。中共按计划“投毒”，在全球供应链短缺的基础上，使欧美持续保持疫情爆发状态，趁机向世界宣传“大国治理理念”扩大国际影响力。
+
+**2.**拜登总统计划周二就Omicron变异病毒向全国讲话；疫苗造成的危害实际数据逐渐呈现；美各种法案开始限制疫苗的扩散。
+
+国际持续“混乱”，美国国内政治就疫苗问题还在激烈“较量”。
+
+#### 板块2–科技
+
+**1.**华大基因表示试剂盒应该能检测到Omicron变异病毒。
+
+**中共继续在病毒和疫苗问题上“作死”，随着真相逐步曝光，物极必反将引来更多“报复”。**
+
+**2.**日本战友准备“镀金龙凤棺材”配备豪车为习、王、孟、江及夫人们“量身打造”。
+[![](https://express.adobe.com/page/yGg4Vv4J0i5pC/images/93224491-282F-46A7-89CD-0E7A5C69A787.png?asset_id=DED5947A-2633-4A68-86D0-58EEB82244C1&amp;size=1024)](https://express.adobe.com/page/yGg4Vv4J0i5pC/images/93224491-282F-46A7-89CD-0E7A5C69A787.png?asset_id=DED5947A-2633-4A68-86D0-58EEB82244C1&amp;size=1024)
+#### 板块3–国际政治
+
+拜登政府因中共人权问题将中共国生物企业列入黑名单。例如：解放军医院军事研究所、放射与辐射医学研究所、军事兽医研究所等。
+
+中共国军民融合企业体系化收集不同人种数据、采集并研究动物甚至人体器官、研究血清蛋白在人体作用等邪恶至极。
+
+#### 板块4–财经
+
+11月份欧洲汽车注册量暴跌17%创1993年来最差数据。
+
+国际市场大宗商品价格波动，全球经济处于脆弱状态。汽车代表国家综合消费实力，中共国汽车销售连续11个月下降。国内房地产“多尼诺骨牌”即将爆发，中共擅长降低人民的预期在困难时期会偶尔“送颗糖”，让民众忽视真正的大危机和不断刷新忍受下限。
+
+***编辑：【英国伦敦喜庄园编辑部】***
+
+*听写：call me uncle | 校对：乐禧禧 | PAGE：彼岸花*
+
+- [点击阅读英国伦敦喜庄园在G-News的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+[![](https://express.adobe.com/page/yGg4Vv4J0i5pC/images/A3120A68-78FC-4A63-8703-7DECBA8B05D5.jpg?asset_id=4E893AAF-61E8-44BA-86E9-2C1D7377B120&amp;size=1024)](https://express.adobe.com/page/yGg4Vv4J0i5pC/images/A3120A68-78FC-4A63-8703-7DECBA8B05D5.jpg?asset_id=4E893AAF-61E8-44BA-86E9-2C1D7377B120&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
