@@ -2,35 +2,32 @@
 ---
 
 
-## 昆士兰企业如何应对 COVID-19 疫苗强制令
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1774242/)
+## GTV投资人对SEC的抗议活动圆满完成
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1774355/)
 
-撰稿：云彩
+作者：纽约香草山农场 – 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月17日，GTV投资人在美国SEC华盛顿特区总部外举行的抗议活动圆满结束。此次抗议活动开始于10月4日，历时74天。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/4-32.jpg)
+美国SEC在9月13日与GTV和Saraca公司达成了和解协议。然而，在此后近一个月的时间里，美国SEC没有按照和解协议展开任何行动。美国SEC的腐败和官僚作风，引起了投资人的强烈不满。GTV投资人为了维护自己的合法权益，依法展开一系列的抗议行动。
 
-视频来自网络
+此次抗议活动持续了两个半月，并且坚持在GTV平台上直播，得到了全球GTV投资人与正义人士的积极响应与支持，并得到了广泛的赞誉。
 
-2021 年 12 月 17 日昆士兰州疫苗强制令生效。根据新规定，未接种疫苗的人不能进入餐厅堂食，只能叫外卖和使用免下车点餐服务。
+参考链接: [历经两个半月，74天的SEC抗议游行在今天完美收官。感谢所有参加游行的战友们，你们的努力和付出捍卫了GTV投资者合法的利益，更展现了超强的行动力和一流的素质，战友们你们辛苦了！难忘和大家一起奋斗的日子，相信我们很快就会在盘古相见，期待下次和大家一起战斗！](https://gettr.com/post/pjyv19196f)
 
-一些餐厅选择关闭他们的用餐区，恢复外卖，以避免与未接种疫苗的顾客发生冲突。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-在布里斯班西南约 200 公里的边境城镇 Stanthorpe 经营 咖啡店 和熟食店的业主Kristy O’Brien，她说这个强制令在乡村小镇很难执行，使企业处于尴尬的境地，因为这让你几乎看起来像个坏人。在一个小镇上,我们几乎认识每个人,执行强制令,你会拒绝你认识的人。她趋向以后只做外卖，这样可以让每位顾客得到同样的服务。
+总编：Ivy001
+编辑：Jack Li文阳
+校正/发稿：Fei797
 
-布里斯班内北区的 Bowen Hills 拥有一家咖啡馆和生产商业咖啡设备的Phillip Di Bella
-
-表示他的员工不能站在门口检查每位顾客，很难监管这项强制令。他认为这个强制令是严重的权力过度。
-
-点评：强制疫苗政策曾让打疫苗和未打疫苗的墨尔本民众彼此之间产生冲突。不过，澳洲毕竟是法治民主国家，关爱和包容是主旋律。从昆州的小企业主的反应，社会还是很难接受这个让社会分裂的疫苗强制令。
-
-参考资料：
-
-[昆州如何应对强制疫苗令](https://www.abc.net.au/news/2021-12-17/qld-coronavirus-covid19-business-restrictions-ease/100702020)
-
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
-
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-
-[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

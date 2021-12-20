@@ -2,10 +2,10 @@
 ---
 
 
-## 杰森·米勒：我们处于临界点，这是保卫西方文明之战
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1773956/)
+## 接种疫苗加强针的参议员伊丽莎白.沃伦病毒检测呈阳性
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1773960/)
 
-12/18/2021 杰森·米勒说我们处于临界点，这是保卫西方文明之战。
+12/19/2021 接种过疫苗和加强针的美国马萨诸塞州民主党参议员伊丽莎白.沃伦病毒检测呈阳性。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
