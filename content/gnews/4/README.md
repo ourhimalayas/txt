@@ -2,55 +2,20 @@
 ---
 
 
-## 前白宫经济顾问皮特·纳瓦罗：鲍威尔和习近平刚刚用通货膨胀中子弹袭击了美国
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1772525/)
+## 【粤语配音】2021年12月19日文贵直播：感染过病毒后的注意事项
+` MOS香港部` [轉載自GNews](https://gnews.org/zh-hans/1772591/)
 
-前白宫经济顾问皮特·纳瓦罗： 感谢乔·拜登，杰伊·鲍威尔和习近平刚刚用通货膨胀中子弹袭击了美国。如果您想了解滞胀问题的复杂性，请阅读此处。 【附福克斯新闻：拜登，民主党和中共国应为美国的滞涨混乱负责】
+紐約香草山-香港部
 
+所有得过冠状病毒的兄弟姐妹们，我在这里严正声明，世界上第一个是七哥现在告诉你们的
+，在过去的大概一个多月，我们跟国内的跑出来的科学家和病毒的知情者，我们一再论证接触后，我被授权今天向大家公告这个事情。
 
+第一个，你们所有得过病毒的人，在未来的10年内，也就是3~10年内，几乎超过50%的概率会染上癌症，不分老少，不分男女，不分大小，不分症状，最重要的是刺突蛋白mRNA在你身体里边，只要不会100%被消除，在你身体造成两个地方，是永远都是发癌的。
 
-> Thank Joe Biden, Jay Powell, and Xi Jinping for the inflation neutron bomb that just hit America. Good read here if you want to understand the complexities of the stagflation issue.[https://t.co/ngYhmlH7um](https://t.co/ngYhmlH7um)
-> — Peter Navarro (@RealPNavarro) [December 17, 2021](https://twitter.com/RealPNavarro/status/1471930037687496704?ref_src=twsrc%5Etfw)
+一个是淋巴，第二个就是你身体上的免疫力，由于它长时间地在内部的，整个对细胞的改变
+你的血液很可能要出问题，唯一的办法现在看到，一定要吃青蒿素和伊维菌素，而且是合理地吃，你别一天天吃完，那没有用的，说你只要不100%清除掉，你解决了症状，你无法100%从身体里清除，它就有这种可能，而且超过50%的可能，所以说，科学家非常严肃地告诉我说，一定要告诉咱们战友，特别是你得过病，恢复过的，你一定要保持中长期时间身体检查，每年都要检查一次，甚至两次，血液检查，淋巴检查，然后一定吃定期地，不要每天吃啊，而且一再科学家警告，伊维菌素也好，羟氯喹也好，锌也好，青蒿素也好，每天吃，一定是坏处大于利处，所以一定要分期、分段，根据症状去吃，而且一定要会停。
 
-
-
-比尔·戈茨： 未提及的：[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 可能会故意制造假阳性新冠Covid 测试结果，以将特定的来访运动员排除在外，并使比赛对其自身有利。 【转华尔街日报：受疫情影响，北京冬奥会已经面临挑战。 Omicron可能会让情况变得更糟。】
-
-
-
-> Not mentioned: China could deliberately create false-positive Covid test results to sideline specific visiting athletes and skew the games in its favor [https://t.co/UDZvR7vW83](https://t.co/UDZvR7vW83)
-> — Bill Gertz (@BillGertz) [December 18, 2021](https://twitter.com/BillGertz/status/1472245094761652228?ref_src=twsrc%5Etfw)
-
-
-
-参议员迈克·布莱恩： 我与参议员汤姆·科顿的提案将遏制美国对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 药品的依赖。 我们不能任由我们最大的政治对手摆布。 【附布莱恩参议员在福克斯的视频】
-
-
-
-> My bill with [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw) will curb U.S. reliance on Chinese pharmaceuticals.
-> 
-> We cannot be at the mercy of our greatest political adversary. [@FoxBusiness](https://twitter.com/FoxBusiness?ref_src=twsrc%5Etfw) [@cvpayne](https://twitter.com/cvpayne?ref_src=twsrc%5Etfw) [pic.twitter.com/lEfu6tHTWQ](https://t.co/lEfu6tHTWQ)
-> — Senator Mike Braun (@SenatorBraun) [December 17, 2021](https://twitter.com/SenatorBraun/status/1471947371089125382?ref_src=twsrc%5Etfw)
-
-
-
-众议员拉惹·克里西那摩提： 我很自豪与众议员克里斯·斯图尔特 [@RepChrisStewart](https://twitter.com/RepChrisStewart) 共同撰写了两党的监督中共国-阿联酋合作法案，以保护我们的国家安全和美国技术免受 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 的侵害。
-
-
-
-> I am proud to have authored the bipartisan Monitoring China-UAE Cooperation Act with [@RepChrisStewart](https://twitter.com/RepChrisStewart?ref_src=twsrc%5Etfw) in order to protect our national security and American technology from the Chinese Communist Party.[https://t.co/shWc5DURXY](https://t.co/shWc5DURXY)
-> — Congressman Raja Krishnamoorthi (@CongressmanRaja) [December 17, 2021](https://twitter.com/CongressmanRaja/status/1471911830306103298?ref_src=twsrc%5Etfw)
-
-
-
-美国国会及行政当局中国委员会： 戴耀廷 [#BennyTai](https://twitter.com/hashtag/BennyTai?src=hashtag_click) 因在 [#香港](https://twitter.com/hashtag/%E9%A6%99%E6%B8%AF?src=hashtag_click) [#HongKong](https://twitter.com/hashtag/HongKong?src=hashtag_click) 推动普选而被香港大学解雇。 他现在因颠覆香港立法会民主候选人组织初选的指控而被拘留，这显示出香港政府将在多大程度上扼杀民主。 [#奥运囚徒](https://twitter.com/hashtag/%E5%A5%A5%E8%BF%90%E5%9B%9A%E5%BE%92?src=hashtag_click) [#OlympicPrisoner](https://twitter.com/hashtag/OlympicPrisoner?src=hashtag_click)
-
-
-
-> [#BennyTai](https://twitter.com/hashtag/BennyTai?src=hash&amp;ref_src=twsrc%5Etfw) was fired by [#HKUniversity](https://twitter.com/hashtag/HKUniversity?src=hash&amp;ref_src=twsrc%5Etfw) for his work promoting universal suffrage in [#HongKong](https://twitter.com/hashtag/HongKong?src=hash&amp;ref_src=twsrc%5Etfw). He is detained now on a subversion charge for organizing a primary for democratic [#LegCo](https://twitter.com/hashtag/LegCo?src=hash&amp;ref_src=twsrc%5Etfw) candidates, showing how far the [#HKGov](https://twitter.com/hashtag/HKGov?src=hash&amp;ref_src=twsrc%5Etfw) will go to stifle democracy. [#OlympicPrisoner](https://twitter.com/hashtag/OlympicPrisoner?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/1Nlaq8o4tU](https://t.co/1Nlaq8o4tU)
-> — China Commission (@CECCgov) [December 18, 2021](https://twitter.com/CECCgov/status/1472295782023933963?ref_src=twsrc%5Etfw)
-
-
+再一个，吃这些药的时候，一定要补铁的补铁，特别给维他命，补维他命，说维他命和铁相辅地吃是最关键的，而且染过这个病毒的人，在运动、健身、生活方式上一定要注意，特别他说到剧烈的运动一定要避免，在短时间内一定要避免，然后我问科学家，如果按照科学家的想法，能不能100%的保证这个病毒没了，他说一定会的，只要你按照，不要愚蠢地认为我的病都好了，我不需要吃这个青蒿素了，这种辅助运动了、辅助的治疗了，长时间检查了，他说你就有50%以上的机会得癌症，在未来3~10年。
 
  
 
