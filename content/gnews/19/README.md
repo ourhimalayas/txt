@@ -2,22 +2,47 @@
 ---
 
 
-## 文贵爆料12.19.2021 两个不利消息：感染中共病毒超50%致癌率 经济黑暗时代将长达5-10年
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1772715/)
+## 河北霸州67天罚款6700万元 是前三季度的11倍
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1772815/)
 
-撰稿：大浪小水花
-![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Image-2021-12-19-at-10.23.17-AM.jpeg)图片来源：GTV & GETTR
-郭文贵先生在2021年12月19日大直播中宣布有两个很不好的消息要通知战友：
-
-第一条是有关中共病毒，科学家告诉郭先生，曾经感染过中共病毒的战友未来十年内有超过50%的可能会患癌症，他请战友一定要科学的吃药，还要定期检查身体。在运动健身方面一定要避免剧烈运动。中共病毒要彻底消除需要一定的时间，按照科学家的建议去做基本可以保证生命安全。
-
-第二条是有关世界经济，由于美国疯狂印钞，导致美元贬值严重，物价飞涨，美国的汽油面包均已涨价超过50%。目前全球经济是滞胀同存，物资缺乏，法币贬值，有钱也买不到东西，没钱就更难过。郭先生提醒大家一定要做好准备应对5-10年经济黑暗时代的到来。
+信息采集：纽约香草山农场 – 侠肝义胆
+作者：纽约香草山农场 – 飞虹
 
 
 
-参考链接：[https://gettr.com/streaming/pk2np2e160](https://gettr.com/streaming/pk2np2e160)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-校对发布：Shifter
+
+
+12月17日，据墙内新闻报道，自进入2021年第四个季度以来，河北省霸州市采取多种督导措施推动，各乡镇、街道、开发区、村街等，以安全生产、执法检查等多种名义，对中小微企业和个体工商户进行了集中罚款、摊派和收费。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1.1-9.jpg)
+据不完全统计，从10月1日到12月6日，霸州市15个乡镇、街道和开发区入库和未入库的罚没收入达到6718.37万元，是1到9月份罚没收入的11倍。涉及企业和个体工商户2547家，平均每家罚款、收费2.64万元。
+
+另外，霸州市的这次集中罚款收费有三个突出特点：第一，没有任何理由和手续就伸手向企业收费；第二，对企业集中开展逐利式乱检查、乱罚款；第三，盲目提出超高任务向村街企业乱摊派。
+
+参考链接：
+[网易 12月17日报道【 河北霸州“霸道”罚款：企业和商户被地毯式检查，67天罚了6700万，是前三季度11倍 】](https://gettr.com/post/pjzzmff529)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+
+总编/编辑：文特
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
 
 

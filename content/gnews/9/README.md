@@ -2,20 +2,42 @@
 ---
 
 
-## 秘翻在线：川普：拜登因对习的畏惧而政策走偏
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1772849/)
+## 拜登政府缺席的情况下德克萨斯-墨西哥边境墙的建设即将开始
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1772876/)
 
-#### 编译：致敬香港！
+![](https://assets.gnews.org/wp-content/uploads/2021/12/乔拜.png) 图片来自网络
+据《网关专家》作者克里斯蒂娜·莱拉（Cristina Laila）2021 年 12 月 15 日报道德克萨斯州将开始1.7 英里部分的美墨边境墙建设。4 月，拜登政府取消了川普总统下令的国防部对边界墙（建设）的资助。后来有报道称，乔·拜登仍在向美国南部边境的承包商付款。但他们得到的报酬不是为了完成川普边界墙的。他们在看守钢梁以确保不被偷走，因此得到了报酬。德克萨斯州州长格雷格·阿博特（Greg Abbott）表示，该州将加紧完成修建边界墙的工作。
 
-#### 校对：白夜
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1055.png)图片来源： Fox News
-据《华盛顿观察家报》12月19日报道，在福克斯新闻频道的高收视率节目“周日早间谈未来（Sunday Morning Futures）”中，美国前总统川普接受了著名主持人玛丽亚（Maria Bartiromo）的采访，称拜登的外交政策和抗疫政策都因为对中共国和习近平的畏惧而走偏方向。
+Click2Houston 报道：
 
-川普在采访中直言，“我觉得他（拜登总统）在担心（中共国）给了他儿子（亨特）数十亿美元这个事情”，玛丽亚追问“所以，他们抓住了他的把柄？”，川普说，“是的，当然是这样”。
+*德克萨斯州边界墙 1.7 英里长的部分预计将很快开始施工。边界墙是州长雷格·阿博特6 月份宣布的倡议的一部分。*阿博特*责成德克萨斯州设施委员会（TFC）完成州边界墙的建设。在 11 月 18 日的 TFC 会议上，委员们一致批准了一项不超过 1.62 亿美元的设计 – 建造合同以填补几段联邦边界墙之间的总共 8 英里的空白处。合同授予了波西利科市政公司（ Posillico Civil, Inc. ），这是一家拥有 75 年历史，曾参与过其他边境项目的纽约工程公司。委员们表示，边境墙的第一部分将建在斯塔尔县（Starr County）的国有土地上，并在私人土地上延伸 1.2 英里。*“在拜登政府缺席的情况下，德克萨斯州正在加紧建设我们自己的边界墙，来完成这项工作。” 州长格雷格·阿博特说。
 
-节目中，川普抨击了拜登的疫情对策，指出今年疫情导致的死亡人数比去年年不减反增，他认为拜登的行政命令正在扼杀美国经济。他也不忘强调他与习近平的关系、及他为抵御中共国威胁所做的努力。“我们从中国吸收了数十亿、百亿、千亿的资金，我把很多钱给了农民和制造商。”在玛丽亚提醒他习近平是个“凶手”之后，他迅速订正说他 “与习的关系”当然指的是疫情爆发前。
 
-**新闻来源：** [Trump says Biden is afraid of China](https://www.washingtonexaminer.com/news/trump-says-biden-is-afraid-of-china)
+
+> Construction of Texas-Mexico border wall will begin soon.
+> 
+> In the Biden Administration's absence, Texas is stepping up to get the job done by building our own border wall.[https://t.co/jLEBT0QenL](https://t.co/jLEBT0QenL)
+> — Greg Abbott (@GregAbbott\_TX) [December 15, 2021](https://twitter.com/GregAbbott_TX/status/1471215076896034822?ref_src=twsrc%5Etfw)
+
+
+
+*格雷格·阿博特 (@GregAbbott\_TX) 德克萨斯-墨西哥边境墙的建设即将开始。*
+
+*在拜登政府缺席的情况下，德克萨斯州正在加紧建设我们自己的边界墙来完成这项工作。*[*https://t.co/jLEBT0QenL*](https://t.co/jLEBT0QenL)
+
+*2021 年 12 月 15 日*
+
+原文链接：
+
+
+
+> [‘In the Biden Admin’s Absence, Texas is Stepping Up to Get the Job Done’ – Construction of Texas-Mexico Border Wall to Begin Soon](https://www.thegatewaypundit.com/2021/12/biden-admins-absence-texas-stepping-get-job-done-construction-texas-mexico-border-wall-begin-soon/)
+
+
+
+
+
+翻译：Nick｜校对：JS709｜编辑&发布：闪电训练
 
  
 

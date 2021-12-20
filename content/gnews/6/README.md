@@ -2,42 +2,29 @@
 ---
 
 
-## 拜登政府缺席的情况下德克萨斯-墨西哥边境墙的建设即将开始
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1772876/)
+## 加拿大联邦和省政府正对Omicron变种毒株传播做准备
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1772927/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/乔拜.png) 图片来自网络
-据《网关专家》作者克里斯蒂娜·莱拉（Cristina Laila）2021 年 12 月 15 日报道德克萨斯州将开始1.7 英里部分的美墨边境墙建设。4 月，拜登政府取消了川普总统下令的国防部对边界墙（建设）的资助。后来有报道称，乔·拜登仍在向美国南部边境的承包商付款。但他们得到的报酬不是为了完成川普边界墙的。他们在看守钢梁以确保不被偷走，因此得到了报酬。德克萨斯州州长格雷格·阿博特（Greg Abbott）表示，该州将加紧完成修建边界墙的工作。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/加拿大.png) 图片来自网络
+据《环球新闻》加拿大通讯社工作人员2021年12月16日报道随着COVID-19病例数在某些省份和世界各地急剧上升，加拿大各地政府都在对Omicron变种可能带来的影响做好准备。安大略省(Ontario)周三报告了1808例新病例，省长道格·福特（Doug Ford）宣布，从周一开始，所有成年人都将有资格接受强化注射，前提是自他们打了第二次针至少有三个月。魁北克省长(Francois Legault)表示，他所在的省报告了另外2386感染病例，由于COVID-19病例的增加，政府可能会重新考虑下星期四将室内聚会从20人限制至10人。由于纽芬兰省(Newfoundland)和拉布拉多省(Labrador)确认了第一例具有高度传染性的变种病例，Omicron已覆盖了所有四个大西洋省份。
 
-Click2Houston 报道：
-
-*德克萨斯州边界墙 1.7 英里长的部分预计将很快开始施工。边界墙是州长雷格·阿博特6 月份宣布的倡议的一部分。*阿博特*责成德克萨斯州设施委员会（TFC）完成州边界墙的建设。在 11 月 18 日的 TFC 会议上，委员们一致批准了一项不超过 1.62 亿美元的设计 – 建造合同以填补几段联邦边界墙之间的总共 8 英里的空白处。合同授予了波西利科市政公司（ Posillico Civil, Inc. ），这是一家拥有 75 年历史，曾参与过其他边境项目的纽约工程公司。委员们表示，边境墙的第一部分将建在斯塔尔县（Starr County）的国有土地上，并在私人土地上延伸 1.2 英里。*“在拜登政府缺席的情况下，德克萨斯州正在加紧建设我们自己的边界墙，来完成这项工作。” 州长格雷格·阿博特说。
-
-
-
-> Construction of Texas-Mexico border wall will begin soon.
-> 
-> In the Biden Administration's absence, Texas is stepping up to get the job done by building our own border wall.[https://t.co/jLEBT0QenL](https://t.co/jLEBT0QenL)
-> — Greg Abbott (@GregAbbott\_TX) [December 15, 2021](https://twitter.com/GregAbbott_TX/status/1471215076896034822?ref_src=twsrc%5Etfw)
-
-
-
-*格雷格·阿博特 (@GregAbbott\_TX) 德克萨斯-墨西哥边境墙的建设即将开始。*
-
-*在拜登政府缺席的情况下，德克萨斯州正在加紧建设我们自己的边界墙来完成这项工作。*[*https://t.co/jLEBT0QenL*](https://t.co/jLEBT0QenL)
-
-*2021 年 12 月 15 日*
+在艾伯塔省(Alberta)，从周五开始，选定的医疗保健场所和药店，将免费提供500,000多个快速抗原检测试剂盒。而50岁及以上的任何人，以及六个月前或更早打过第二针COVID-19疫苗的所有医护人员，可以预订一剂疫苗加强针。早期数据表明Omicron比目前占主导地位的Delta变种更易传播，倍增时间约为两天。不列颠哥伦比亚省(British Columbia)卫生部长阿德里安·迪克斯(Adrian Dix)表示，该省正在考虑对公共和私人聚会发布进一步的公共卫生命令，预计下周将发布公告。萨斯喀彻温省(Saskatchewan)和曼尼托巴省(Manitoba)表示，他们计划暂时维持目前的公共卫生限制。
 
 原文链接：
 
 
 
-> [‘In the Biden Admin’s Absence, Texas is Stepping Up to Get the Job Done’ – Construction of Texas-Mexico Border Wall to Begin Soon](https://www.thegatewaypundit.com/2021/12/biden-admins-absence-texas-stepping-get-job-done-construction-texas-mexico-border-wall-begin-soon/)
+> [Federal and provincial governments preparing for Omicron variant spread](https://globalnews.ca/news/8455370/federal-provincial-governments-preparing-omicron-variant-spread/)
 
 
 
 
 
-翻译：Nick｜校对：JS709｜编辑&发布：闪电训练
+
+
+
+
+翻译： 飞利普 |校对：烟波浩淼 |编辑&发布：闪电训练
 
  
 

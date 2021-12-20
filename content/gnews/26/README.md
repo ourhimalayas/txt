@@ -2,10 +2,10 @@
 ---
 
 
-## 日本政府考虑明年继续实施中共病毒疫情边境管控措施
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1772667/)
+## 世卫：中共病毒Omicron毒株确诊数每1.5至3天就会增加一倍
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1772684/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12._20-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1220-scaled.jpg)
 *编辑：东京樱花团/简报小组
 发布：东京樱花团/平安卿卿*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
