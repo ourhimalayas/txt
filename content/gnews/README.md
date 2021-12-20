@@ -15,80 +15,80 @@
 
 ---
 
-### [秘翻在线：用钱买来的北京冬奥会](/content/gnews/1/README.md)
+### [波兰人全国范围举行抗议以捍卫媒体自由](/content/gnews/1/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [秘翻在线：用钱买来的北京冬奥会](/content/gnews/2/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [12/20每日播报｜美国最高法院被要求暂停拜登政府对私营企业的强制疫苗规定](/content/gnews/2/README.md)
+### [12/20每日播报｜美国最高法院被要求暂停拜登政府对私营企业的强制疫苗规定](/content/gnews/3/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [七哥冬奥会悬念解惑五：界时北京什么地方会清城最厉害](/content/gnews/3/README.md)
+### [七哥冬奥会悬念解惑五：界时北京什么地方会清城最厉害](/content/gnews/4/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [七哥冬奥会悬念解惑四：盘古龙头和盘古大观是否会启用](/content/gnews/4/README.md)
+### [七哥冬奥会悬念解惑四：盘古龙头和盘古大观是否会启用](/content/gnews/5/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [七哥冬奥会悬念解惑三：习近平对到场外国政要接不接见](/content/gnews/5/README.md)
+### [七哥冬奥会悬念解惑三：习近平对到场外国政要接不接见](/content/gnews/6/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [中共国房地产压力让钢铁行业情况变糟，示警经济](/content/gnews/6/README.md)
+### [中共国房地产压力让钢铁行业情况变糟，示警经济](/content/gnews/7/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [七哥冬奥会悬念解惑二：钥匙澜会不会成为冬奥会主持人](/content/gnews/7/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [秘翻在线：彭帅接受外媒采访，改口否认遭性侵“没说过，也没写过”](/content/gnews/8/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [秘翻在线：香港议会清一色亲中派，通过改变选举制度排除民主人士](/content/gnews/9/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [纳瓦罗: 拜登、民主党人和中共国应该为美国的滞胀困境负责](/content/gnews/10/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [澳洲昆士兰超100名警员圣诞期间或将在家隔离](/content/gnews/11/README.md)
- ` 澳喜特战旅Gnews`
-
-### [12/20每日播报｜第六巡回法院裁定继续执行拜登疫苗强制令](/content/gnews/12/README.md)
+### [12/20每日播报|社媒消息：布莱恩泰森医生 Newsmax](/content/gnews/8/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [利物浦教练克洛普：球队不会签没打疫苗的球员](/content/gnews/13/README.md)
+### [七哥冬奥会悬念解惑二：钥匙澜会不会成为冬奥会主持人](/content/gnews/9/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [秘翻在线：彭帅接受外媒采访，改口否认遭性侵“没说过，也没写过”](/content/gnews/10/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共西安出现多例出血热患者？](/content/gnews/14/README.md)
+### [秘翻在线：香港议会清一色亲中派，通过改变选举制度排除民主人士](/content/gnews/11/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [纳瓦罗: 拜登、民主党人和中共国应该为美国的滞胀困境负责](/content/gnews/12/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [澳洲昆士兰超100名警员圣诞期间或将在家隔离](/content/gnews/13/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [12/20每日播报｜第六巡回法院裁定继续执行拜登疫苗强制令](/content/gnews/14/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [利物浦教练克洛普：球队不会签没打疫苗的球员](/content/gnews/15/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [中共西安出现多例出血热患者？](/content/gnews/16/README.md)
  ` 儒为`
 
-### [12/20每日播报｜荷兰、英国等许多欧洲国家因Omicron变种病毒的巨大威胁而重启封锁状态](/content/gnews/15/README.md)
+### [12/20每日播报｜荷兰、英国等许多欧洲国家因Omicron变种病毒的巨大威胁而重启封锁状态](/content/gnews/17/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [七哥冬奥会悬念解惑一：彭丽媛副主席会以何种形式出场](/content/gnews/16/README.md)
+### [七哥冬奥会悬念解惑一：彭丽媛副主席会以何种形式出场](/content/gnews/18/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [澳大利亚任命强硬派担任国家战略政策研究所负责人](/content/gnews/17/README.md)
+### [澳大利亚任命强硬派担任国家战略政策研究所负责人](/content/gnews/19/README.md)
  ` 澳喜农场`
 
-### [英国：圣诞节前或将出台更为严厉的防疫政策](/content/gnews/18/README.md)
+### [英国：圣诞节前或将出台更为严厉的防疫政策](/content/gnews/20/README.md)
  ` 澳喜特战旅Gnews`
 
-### [新州的预算赤字因为疫情封锁政策飙升至近200亿](/content/gnews/19/README.md)
+### [新州的预算赤字因为疫情封锁政策飙升至近200亿](/content/gnews/21/README.md)
  ` 澳喜农场`
 
-### [冬奥会发生任何一件事都是以共灭共以美灭共的重大进展](/content/gnews/20/README.md)
+### [冬奥会发生任何一件事都是以共灭共以美灭共的重大进展](/content/gnews/22/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [墨尔本反疫苗示威者再次游行](/content/gnews/21/README.md)
+### [墨尔本反疫苗示威者再次游行](/content/gnews/23/README.md)
  ` 澳喜农场`
 
-### [纽约州法案意欲授权州长可以随意拘押任何人](/content/gnews/22/README.md)
+### [纽约州法案意欲授权州长可以随意拘押任何人](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [【中日财经爆】“养肥了开宰”网红薇娅被中共罚款13.41亿元](/content/gnews/23/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [小罗伯特肯尼迪：美国情报部门和军方参与了武汉实验室的研究](/content/gnews/24/README.md)
+### [小罗伯特肯尼迪：美国情报部门和军方参与了武汉实验室的研究](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [新西兰达到 90% 的疫苗接种率，数千人游行要求自由](/content/gnews/25/README.md)
- ` 澳喜农场`
 
 ### [韩国李英美博士举办的“反对儿童和青少年疫苗通行证”的活动(二)](/content/gnews/26/README.md)
  ` 首尔天池农场`
@@ -135,8 +135,8 @@
 ### [印度神童阿南德预言与郭先生大直播内容惊人吻合](/content/gnews/40/README.md)
  ` 纽约香草山MOS03`
 
-### [秘翻在线：跟踪报道杰森·米勒接受法国记者埃里克·莫里洛的采访](/content/gnews/41/README.md)
- ` 秘密翻譯組G-Translators`
+### [7·24系列——泛海集团卢志强与民生银行](/content/gnews/41/README.md)
+ ` 墨尔本雅典娜农场`
 
 ### [12.19文贵爆料 2022北京冬奥会或是习近平和CCP的毁灭之路](/content/gnews/42/README.md)
  ` 秘密翻译组-原创组`

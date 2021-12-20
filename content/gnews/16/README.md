@@ -2,38 +2,22 @@
 ---
 
 
-## 七哥冬奥会悬念解惑一：彭丽媛副主席会以何种形式出场
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1773802/)
+## 中共西安出现多例出血热患者？
+` 儒为` [轉載自GNews](https://gnews.org/zh-hans/1773825/)
 
-第三个七哥请教一个问题，今年的冬奥会，彭丽媛彭副主席会怎么出场？
+作者：意大利达芬奇农场-儒为
+![](https://assets.gnews.org/wp-content/uploads/2021/12/出血热.jpeg)封面来源：网络图片
+新华网2021年12月19日报道，今年入冬以来，西安各大医院已相继接诊多例出血热患者，由于流行性出血热早期症状和普通流感较相似，所以不少患者会误以为是普通的感冒。西安疾控中心专家特别提醒，在冬季发病高峰期间如果出现感冒、发烧一定要警惕出血热，立即去正规医院进行救治，以免延误治疗。七哥直播中说，这次中共国出现出血热是疫苗接种后遗症的体现，也是中共病毒不可控的体现，不管中共怎么解读都是在掩饰。
 
-她（彭丽媛）一定会出场，节目已经在排练中。联合国慈善大使，艾滋病大使的身份一定会出来，所有的国母嘛，得要慈悲天下！慈悲为怀，赈济天下、女性代表，是吧！一定会出来，而且这次出来就是真正的彭丽媛，告诉中国人民，我就是二把手。你会看着，只要习大大，习太阳还继续发光的话就会出来。
+肾综和出血症是一种主要由鼠类携带汉坦病毒引起的自然疫源性疾病，简称出血热，引起出血热的病毒主要有汉坦病毒(HTNV)、汉城病毒(SEOV)、普马拉病毒(PUUV)和多不拉伐病毒(DOBV)等。临床症状主要有发热、出血、头痛、低血压休克及肾脏损害等。传播通过接触宿主动物的排泄物、伤口感染、气溶胶, 还可通过螨类等传播或通过母体垂直传播。欧亚大陆是肾综合征出血热的主要传播地区，死亡率为12%。
 
-编辑整理：海贼王M.D.LUFFY；
+中共病毒是实验室拼接出来的杀人怪物，其中藏着多少秘密至今还不清楚，但在不同感染中共病毒者所体现的不同症状中不难看出与所谓出血热的症状是多么的相似，包括出血热的传播途径同中共病毒也是会惊人的相似，这说明了什么？这太可怕了！这说明中共病毒在中共国已经处于失控状态，不得不转移视线，这说明疫苗接种的后遗症已经在出现，同七哥直播中说的时间是否惊人的吻合？12月底到明年5月份。
 
-SRT文件制作：小满；
+中共这次把“出血热事件”甩锅给“老鼠”，不过是给中共病毒和疫苗接种后遗症做掩饰。中共提出预防方案，1、灭鼠和防鼠，也只有在中共国才能看到是不是的开展“灭鼠、灭蚊”就是爱国卫生运动的奇葩现象。2、疫苗接种，这才是正餐，出血热疫苗全程规范接种共3针次，前两针间隔14天，第三针间隔一年。前两针为基础免疫，至关重要，请确保至少完成基础针次接种，获得一定免疫力。若完成基础免疫后超过一年，可随时对第三针进行补种，恐怖吧！3、个人防护，这就是套话了，各自理解。
 
-视频制作及上传：Cindy；
+新闻来源：🔗[注意！西安出现多例出血热患者](https://mp.weixin.qq.com/s?__biz=MzA4MjQxNjQzMA==&amp;mid=2768694325&amp;idx=2&amp;sn=791c64100fbbcfc1dd50c1da1f3f58e6&amp;scene=0)
 
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+*编辑/校对/发稿：意大利达芬奇农场-儒为*
 
  
 
