@@ -2,57 +2,30 @@
 ---
 
 
-## COVID-19 最新情报｜日本考虑公费负担新冠口服药 郭文贵曾爆新药副作用极强
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1770550/)
+## 共产党恐惧到用上了巫蛊之术
+` 骄子` [轉載自GNews](https://gnews.org/zh-hans/1770887/)
 
-**疫情關注組 / 發佈時間｜19/12/2021**
+文：银河勇气星｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-230.jpg)
+大清以后，人心就变黑了，共产党统治了中国以后，搞的各种各样惨无人道的运动，社会环境，生态环境，全部跟着黑化了，人心只能更坏。共产党盗国贼，尤其是那些红卫兵出身的人，从来不讲规则的，并且认为你们这些规则都是让人去遵守，他自认为他不用遵守，既然不用遵守那也就是说他可以不是人，他到底是个什么，就是见人是人，见鬼是鬼，随波逐流和一碗饭吃到连骨头都不剩，他认为这才叫哲学，这才能称之为不枉来人间这一遭。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+经常有那样的洗脑，比如一个人不上班天天躺在家里，会有无数的人来“教育”他，你得上班，你得挣钱，你得买大房子，你得买豪车，你那个媳妇也得换了，孩子得读国际小学。但是对于这个不上班的人来说，没人在意他怎么想的，他得活得符合“社会主义核心价值观”。去年国内某大型死了老板的房产中介机构，本来老板的死就够蹊跷了，现在全体员工都要面对一个核心价值观考量，要评级，ABCD。这个东西用来给员工划分阶级的，晋升都要靠这个了。很少见到有把所谓的洗脑考核量化成指标的，因为这个说实话，没办法量化，独裁洗脑就是一天一个思想，量化起来异常麻烦，不像是纯技术方面的，好就是好，先进就是先进，完全能从数据上看到，做考核标准也比较容易一些。当思想考核开始量化的时候只有一个原因，企业熬不住了，真熬不住了，老板已经被熬死了吧，共产党还不善罢甘休，人家员工和你多大愁多大冤啊，经济不行了就开始折磨人，这完全就是盗国贼没文化，只能用红卫兵做法。所以被李友、马明哲、王健林，“接管”以后的佛手裕达，施以巫术，那就先不说，你打算折磨人家员工算怎么回事啊。从盘古和裕达被共产党折磨的员工，一个也没有说要和文贵先生，就算是从未见过，要断绝联系的，在共产党嘴里叫“和海外某反党组织保持联系”。是啊，共产党有能耐给老百姓洗脑，你继续洗啊，你让这些无辜的员工都跟着你啊，认你共产党做爹妈啊，你不是还可以的嘛，怎么这会儿不奏效了，还用上巫术了，嗨呀真是，蠢到丢掉了所有，不要说什么体面了，连一张脸都没有了。在所有的历史轮回，所有的影视剧著，所有的现实生活中，不到万不得已，谁也不会用巫术的，共产党真得走到了山穷水尽这一刻。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/srchttp-_inews.gtimg_.com_newsapp_match_0_10377899886_0.jpgreferhttp-_inews.gtimg_.comapp2002sizef999910000qa80n0g0nfmtjpeg.jpg)图源：网路
 
-日本首相岸田文雄已经与辉瑞公司达成了一项基本协定，确保200万剂量的新冠口服药物。 政府正在考虑用公共费用支付这些药品的全部费用。
+再者，共产党总是动不动就绑架老百姓，威胁家人威胁资产，就这两样，其他都是给洗脑，说实话，洗脑根本没多少人听的，而为什么世人都要信了共产党的邪，相信谎言，因为确实很多红卫兵从共产党那儿拿到了太多钱了，人都是一个看一个，原来背叛和谎言能得到这么多好处，再加上人心本来就是黑乎乎的了，贪婪自私，精致利己，永远不过都是为了一点点钱，一点点性。当一个社会连最基本的吃喝都不能管饱的时候，还说什么底线，当然不能一杆子打死所有人，在困苦的条件下坚持老老实实不骗人、有底线的人也有，只是太少了，别人都说他们是傻子。但是这样的老实人，是应该被尊重的。
 
-岸田文雄表示：通过辉瑞首席执行官布拉和我的直接电话交谈，我们达成了基本协议，确保了200万剂辉瑞公司的口服药。
+文贵先生曾经说过，共产党一定会有各种各样的对爆料革命的封锁，不封锁那就不是共产党了。如果害怕被封锁而选择不关注爆料革命，伤害程度有多严重呢，俗话说捡了芝麻丢了西瓜，啥都捡不到最后还会因为没有及时关注不要打疫苗的信息把自己小命给送走了，冤不冤。共产党的各种监听封锁技术很早以前都已经非常先进了，想听谁听谁，想录谁录谁，只需要做到让共产党的封锁没有用就可以了。共产党无论是在网路通讯上动手脚还是在银行卡汇款上不给汇，要是当时退缩了，不干了，那就让共产党得逞了，他的邪恶目的主要就是不让人关注爆料革命，不让人给喜联储汇款。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/srchttp-_inews.gtimg_.com_newsapp_match_0_9262733745_0.jpgreferhttp-_inews.gtimg_.comapp2002sizef999910000qa80n0g0nfmtjpeg.jpg)图源：网路
+这件事情就是要告诉所有的人，老实人，好人，是值得拥有财富的，应该被社会尊重的。共产党所谓的培养思想，就是让人削尖了脑袋跟着他们做邪恶的事情，危害全人类，毁灭全地球，他可以拿钱养那些红卫兵爪牙，那为什么正义力量不能用钱积蓄我们的好人正道之力？这样只会让那些认真做事的好人更加得心应手，让本黑心的社会慢慢开始转变，只要钱跟着好人走，坏人也不敢太做恶。
 
-- 相关：[COVID-19 最新情报｜关于“新冠口服药” 你不可不知的泽连科方案](https://gnews.org/zh-hant/1643262/)
+* * *
 
+作者：骄子
+发布：骄子
 
-岸田文雄透露，他和辉瑞公司首席执行官布拉昨天进行了电话交谈，基本上达成了确保200万剂口服药的协定。 此外，政府已经获得了160万剂默克公司的口服药物莫努匹拉韦“**molnupiravir**”，如果获得批准，将从今年年底开始向医疗界提供。这些口服药物的费用，将考虑由公共资金全额负担。
-
-## 美FDA研拟将 紧急使用授权molnupiravir
-
-据[EBSCO post](https://www.ebsco.com/e/zh-tw/blog/antiviral-pill-covid-19-molnupiravir-too-good-be-true) 2021/11/18指出，Molnupiravir 被定义为用来治疗 COVID-19 的全新抗病毒口服药。在研制有效预防、治疗COVID的过程中，发现“**羟氯奎宁(hydroxychloroquine)、伊维菌素(ivermectin)**和某些抗HIV病毒药物”具有预防、治疗COVID效用。
-
-- 相关：[美国卫生研究院(NIH)批准“伊维菌素”作为新冠治疗药物](https://gnews.org/zh-hant/1570778/)
-- 相关：[新冠病毒预防、治疗方案](https://vladimirzelenkomd.com/prophylaxis-protocol/)（Zev Zelenko 博士）
-- 相关：[印度德里使用伊维菌素，确诊病例下降97%](https://gnews.org/zh-hant/1570870/)
-
-
-**羟氯奎宁、伊维菌素**，已经被长期使用于疟疾等免疫力疾病防治，安全性无虞。并有国际研究逐渐表明，羟氯喹宁、伊维菌素确实可以作为有效防治的方案。然，为何药厂舍弃这些被广泛使用的药物，要研制全新的抗COVID药物Molnupiravir 呢？
-
-文章清楚指出，过去一款名为瑞德西韦(remdesivir)的药物被证实可以作为COVID-19患者治疗用药，并被美国相关部门列为新冠治疗用药。瑞德西韦，被用来针对伊波拉病毒。但有媒体指出，将[瑞德西韦(remdesivir)列为治疗用药而刻意的打压伤害性更小的伊维菌素是图利于医院、药厂](https://gnews.org/zh-hant/1570778/)。
-
-使用瑞德西韦治疗新冠，对病患身体会有其他伤害，新的抗病毒药molnupiravir运作机理相似于瑞德西韦，借由抑制病毒RNA聚合酶，达到阻断病毒快速增生的效果。molnupiravir在一期、二期临床试验中，文章指出molnupiravir耐受性良好、没有引发任何严重的不良事件，更具备减少COVID-19病患的传染力。默克指出molnupiravir的[三期随机试验](https://www.merck.com/news/merck-and-ridgebacks-investigational-oral-antiviral-molnupiravir-reduced-the-risk-of-hospitalization-or-death-by-approximately-50-percent-compared-to-placebo-for-patients-with-mild-or-moderat/)治疗效果非常显著。
-
-美国食品药物管理局FDA于11月30日，已开始讨论是否将紧急使用授权(EUA)新冠口服药物molnupiravir。
-
-## 抗病毒药物 为何不选羟氯奎宁、伊维菌素？
-
-新冠持续延烧世界，新冠疫苗大规模接种并未阻止疫情扩散，政府及药厂在持续推动加强针、强制接种(疫苗通行证)之余，更转向口服药物防治方案。瑞韦西德、羟氯喹、伊维菌素被证实为有效防治药物选项，然[瑞韦西德治疗对病患身体有其他不利影响](https://gnews.org/zh-hant/1570778/)。伊维菌素、羟氯喹已被广泛使用，且容易取得，却被政府、药厂等忽略。
-
-[EBSCO post](https://www.ebsco.com/e/zh-tw/blog/antiviral-pill-covid-19-molnupiravir-too-good-be-true)介绍Molnupiravir 文章，提及羟氯奎宁(hydroxychloroquine)、伊维菌素(ivermectin)和某些抗HIV病毒药物具有预防、治疗COVID效用。
-
-郭文贵于2021/11/11直播片段针对“新冠口服药”爆料是针对淋病、爱滋等性病，副作用极强。Molnupiravir 成分是否包含抗HIV病毒药物，及是否为他所指的新冠口服药尚无法确定。
- 來源：[GETTR](https://gettr.com/post/pgmtu1b16f)
-[默克新闻稿](https://www.merck.com/news/merck-and-ridgebacks-investigational-oral-antiviral-molnupiravir-reduced-the-risk-of-hospitalization-or-death-by-approximately-50-percent-compared-to-placebo-for-patients-with-mild-or-moderat/)指出Molnupiravir 预计到 2021 年底将生产 1000 万剂量，2022 年将生产更多。Molnupiravir的全球三期、随机、安慰剂对照、双盲、多中心研究MOVe-OUT 试验 (MK-4482-002) ( [NCT04575597](https://cts.businesswire.com/ct/CT?id=smartlink&amp;url=https%3A%2F%2Fclinicaltrials.gov%2Fct2%2Fshow%2FNCT04575597%3Fterm%3Dmolnupiravir%26draw%3D2%26rank%3D2&amp;esheet=52502008&amp;newsitemid=20211001005189&amp;lan=en-US&amp;anchor=NCT04575597&amp;index=3&amp;md5=d00529fc8647b82c99f3f53d57191335) ) ，第 3 阶段已经在全球范围内进行，包括在阿根廷、巴西、加拿大、智利、哥伦比亚、埃及、法国、德国、危地马拉、以色列、意大利、日本、墨西哥、菲律宾、波兰、俄罗斯、南非、西班牙、瑞典、台湾、乌克兰、英国和美国。
-
-## 关于MERCK（默克）
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截圖-2021-12-19-下午3.21.57.png)來源：[MERC](https://www.merck.com/news/merck-and-ridgebacks-investigational-oral-antiviral-molnupiravir-reduced-the-risk-of-hospitalization-or-death-by-approximately-50-percent-compared-to-placebo-for-patients-with-mild-or-moderat/)[K](https://www.merck.com/news/merck-and-ridgebacks-investigational-oral-antiviral-molnupiravir-reduced-the-risk-of-hospitalization-or-death-by-approximately-50-percent-compared-to-placebo-for-patients-with-mild-or-moderat/)
-译文：今天，默克的研究仍在预防、治疗那些威胁人类与动物的疾病，包含癌症、伊波拉及爱滋等传染性疾病、新兴的动物疾病。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-3-1.png)
-來源￨[YAHOO JAPAN](https://news.yahoo.co.jp/articles/c6a30e2f3285fb892b40d4bdbf94b0dd2bcc105c)/GNEWS/[默沙東實驗報告](https://www.merck.com/news/merck-and-ridgebacks-investigational-oral-antiviral-molnupiravir-reduced-the-risk-of-hospitalization-or-death-by-approximately-50-percent-compared-to-placebo-for-patients-with-mild-or-moderat/)
-
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，欢迎加入银河系农场，欢迎各农场兄弟姐妹们坐客串门，欢迎订阅我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/345-1.jpg) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

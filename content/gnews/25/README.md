@@ -2,40 +2,34 @@
 ---
 
 
-## 有声|习近平的“家天下”昭示其政治孤立的境地
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1774377/)
+## 港警持长枪高调武装巡视立法会投票站
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1774404/)
 
-配音：香草山美食部 – 玫瑰园
+作者：纽约香草山农场 – 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+香港立法会选举于当地时间12月19日举行，香港警方提前两天派出万名警力在全港立法会投票站武装巡视。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/6-39.jpg)
+17日，港警调派三个部队，包括反恐特勤队、机场特警、以及铁路应变部队，分别在下午和晚上，到全港多个投票站，包括落马洲边境投票站、中环中心和九龙公园等投票站外高调巡逻。所有警员均手持长枪，部分带领警犬。至晚上，数十名反恐警茶携带胡椒喷雾、警棍等，在调景岭体育馆进行演习。
 
+虽然港警声称，此举在于加强市民对香港治安的信心，确保选举安全进行。但市民明显感到这是港府特意在投票前，派出大量武装部队，无非是要炫耀武力，威胁选民，控制立法会选举。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-在12月17日的直播中，郭文贵先生明确表示，随着习氏夫妇在中共文联大会上一起亮相，这表明了习近平的“家天下”已经从幕后走到了台前。然而，习近平向外界展示其大权在握的同时，也昭示着习家被中共党内各政治派别孤立的处境。
+参考链接: 
+1) . [名曰“民主投票“、实属黑帮绑架！](https://gettr.com/post/pjxmwm4edc)
+2) . [立法會投票日倒數 2 天　機場特警等持長槍高調巡視票站](https://www.thestandnews.com/politics/%E7%AB%8B%E6%B3%95%E6%9C%83%E6%8A%95%E7%A5%A8%E6%97%A5%E5%80%92%E6%95%B8-2-%E5%A4%A9-%E6%A9%9F%E5%A0%B4%E7%89%B9%E8%AD%A6%E7%AD%89%E6%8C%81%E9%95%B7%E6%A7%8D%E9%AB%98%E8%AA%BF%E5%B7%A1%E8%A6%96%E7%A5%A8%E7%AB%99)
 
-郭先生指出，历史证明，独裁者安排家人当政的做法往往是因为其担忧恐惧，并且身边既无人可信，也无人可用，但这也恰恰说明了其统治已经到了衰亡的时候。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-郭先生透露，习如今的所有行程表都由彭决定，而习当年出访时的衣着则由李木子安排；另外，彭磊的权力已经到了“一人之下”的地步，他可以决定许其亮的生死；同时，中共国安委全权由习远平说了算；至于对外情报方面，习完全依靠安安。至此，习家的11人集团通过成立各个领导小组，全然架空了中共国的政府职能机构。
+总编：Ivy001
+编辑：Jack Li文阳
+校正/发稿：Fei797
 
-对此，郭先生表示，一个公司的运营最忌讳单靠血缘关系建立起家族企业，因为这些纠缠混乱的关系会牵绊公司的发展，而在治理一个国家时，也同样如此。郭先生还解释道，当中国最有权力的人是习、彭及其家人，以及几个忠实的家丁时，这说明中共党内已经没有多少人愿意为习卖命了。因此，习的“家天下”也即将走到政治孤立的悬崖边上。
-
-文字版原文：[习近平的“家天下”昭示其政治孤立的境地](https://gnews.org/zh-hans/1766973/)
-
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

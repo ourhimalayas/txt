@@ -2,27 +2,41 @@
 ---
 
 
-## 中共海上屡次挑衅 日本政府正面提出抗议
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1774426/)
+## 有声|意大利为应对OMICRON考虑采取新的COVID-19措施
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1774470/)
 
-撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/3-48.jpg)
-[图片源](https://news.yahoo.co.jp/articles/e9d764a89039fd062382718b52fee7495c324721/images/000)
+配音：香草山美食部 – 玫瑰园
 
-20日，日本和中共政府在网上举行了“海洋事务高级别磋商”会议。外交、国防和海上保安厅官员在会上讨论了目前存在的相关海洋问题。
 
-日方对中共国公务船在冲绳县尖阁诸岛周围一系列入侵其领海的行为提出抗议。并对中俄军舰绕行日本列岛等不断增加的军事活动表示担忧。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+据[OAN网站](https://www.oann.com/italy-eyes-new-covid-19-measures-amid-omicron-worries-newspapers/)12月19日援引路透社报道，出于对高传染性Omicron中共病毒变体传播的担忧，意大利政府正在考虑采取新的措施，以避免假日期间中共病毒感染率的激增。
 
-笔者感觉此次会议像是日本政府给予中共的最后通牒。
+据悉，总理马里奥·德拉吉可能会要求已接种疫苗者在进入包括迪斯科舞厅、电影院、剧院和体育场在内的拥挤场所时出示COVID-19阴性测试报告，并在户外也须佩戴口罩。
 
-信息源:
+而根据目前的规定，已经接种疫苗或最近从该疾病中康复的人可以自由进入酒吧、餐馆、博物馆、电影院、俱乐部和参加体育赛事。
 
-[領海侵入で中国に抗議　政府](https://news.yahoo.co.jp/articles/ab0d7d68696fd963049f83baa14607ceab8387ca)
+意大利早前已经强制要求医疗工作者、学校工作人员、警察和军人进行疫苗接种，这一接种义务范围可能从1月起将扩大至涵盖所有工人。
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWSLOGO20211207.jpg)
+本周早些时候，罗马已经将COVID-19的紧急状态延长至3月31日，并规定所有来自欧盟国家的游客必须在出发前接受测试。
 
+文字版原文：[意大利为应对OMICRON考虑采取新的COVID-19措施](https://gnews.org/zh-hans/1772113/)
+
+音频处理：喜山必胜Maverick
+发稿：Tom Li
+[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

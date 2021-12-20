@@ -2,41 +2,36 @@
 ---
 
 
-## 有声|意大利为应对OMICRON考虑采取新的COVID-19措施
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1774470/)
+## 富力地产预告将暴雷
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1774489/)
 
-配音：香草山美食部 – 玫瑰园
+作者：纽约香草山健身部 – Jack Li文阳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月15日下午，中共国富力地产发布一则公告称，富力总额7.25亿美元的美元票据，将于2022年1月13日到期，拟以折价方式回购。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/7-32.jpg)
+折价回购有两种方案：一是以原定价格兑现所持票据的50%，剩余50%延期半年；二是兑现相当于原来价格的83%。与此同时，富力地产恳请票据持有人，同意将票据延期半年至明年7月13日。
 
+富力地产负责人坦言，若无法与票据持有人达成共识，公司有可能无法全额按合约履行偿还承诺。另外，富力还将酌情对此两种回购方式，调整偿付的最高金额。就是说，票据持有人可能拿不到回购方案约定的金额，分析家称富力此举为预告式暴雷。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-据[OAN网站](https://www.oann.com/italy-eyes-new-covid-19-measures-amid-omicron-worries-newspapers/)12月19日援引路透社报道，出于对高传染性Omicron中共病毒变体传播的担忧，意大利政府正在考虑采取新的措施，以避免假日期间中共病毒感染率的激增。
+参考链接: 
+1) . [20亿理财中间人失联，地产巨头预告式暴雷](https://www.gettr.com/post/pk1ursfb2a)
+2) . [还钱也能讨价还价？富力地产预告式“爆雷”，投资人：怎么选都亏](http://www.amcupdate.com/2021/12/16/%E5%AF%8C%E5%8A%9B%E7%A6%BB%E5%AE%9E%E8%B4%A8%E6%80%A7%E8%BF%9D%E7%BA%A6%E8%BF%98%E6%9C%89%E5%A4%9A%E8%BF%9C/)
+3) . [富力地产预告式“爆雷”：可能无法在到期日全额赎回票据](https://www.sohu.com/a/508639837_639898)
 
-据悉，总理马里奥·德拉吉可能会要求已接种疫苗者在进入包括迪斯科舞厅、电影院、剧院和体育场在内的拥挤场所时出示COVID-19阴性测试报告，并在户外也须佩戴口罩。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-而根据目前的规定，已经接种疫苗或最近从该疾病中康复的人可以自由进入酒吧、餐馆、博物馆、电影院、俱乐部和参加体育赛事。
+总编：Ivy001
+编辑：Kathy文艺
+校正/发稿：Fei797
 
-意大利早前已经强制要求医疗工作者、学校工作人员、警察和军人进行疫苗接种，这一接种义务范围可能从1月起将扩大至涵盖所有工人。
-
-本周早些时候，罗马已经将COVID-19的紧急状态延长至3月31日，并规定所有来自欧盟国家的游客必须在出发前接受测试。
-
-文字版原文：[意大利为应对OMICRON考虑采取新的COVID-19措施](https://gnews.org/zh-hans/1772113/)
-
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
