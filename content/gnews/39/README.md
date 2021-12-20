@@ -2,70 +2,32 @@
 ---
 
 
-## 2021年12月19日文贵先生直播摘要及音频—银河系农场
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1772198/)
+## 反对疫苗政策 英政府一高级成员辞职
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1772450/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/fa51eff4ad3dcb934bf1fa7d8f9eba19.jpg)
-视频连接：[2021年12月19日 文贵大直播：病毒疫苗虚假经济；强办奥运后果严重；欧美惩罚中共难逃；疫苗灾难大事将至](https://gettr.com/streaming/pk2np2e160)
+作者：纽约香草山 – 飞虹
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+12月18日晚，英国首相约翰逊内阁的脱欧大臣大卫·弗罗斯特提出辞职。尽管他本人还没有明确表达辞职原因，但媒体在几天前就已经透露，他辞职是因为对约翰逊的政策越来越失望。上周约翰逊出台的新疫情限制政策成为他离职的导火索，这些限制措施包括：人们在进入夜总会和其他拥挤的场所时要出示疫苗接种证明或冠状病毒检测阴性证明。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture7-3.jpg)
+在辞职信中，弗罗斯特委婉地提醒首相约翰逊：“我希望我们能尽快回到正轨，不要被我们在其他地方看到的那种强制性措施所诱惑。”
 
-1、中植集团创始人解直锟的发家之路就是金融欺诈；
+另据消息称，本周早些时候，有99名保守派议员在英国下议院投票，反对疫苗护照政策。
 
-2、解直锟的弟弟解直春是中投的总裁；
+参考链接：[反对疫苗政策 英政府一高级成员辞职](https://www.voanews.com/a/uk-brexit-minister-quits-as-new-covid-rules-spark-anger/6360698.html)
 
-3、得过冠状病毒的人，3-10年50%的概率会患上癌症；
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-4、最重要是刺突蛋白在身体内只要不被消除，两个地方容易癌变一个是淋巴一个是血液；
+总编：文特
+编辑：飞虹
+校对/发稿：Hetangyuese
 
-5、女性妇科是所有病毒不能排除的地方，男性是前列腺，一定要正确吃青蒿素，长期血液检查，淋巴检查 ，可以避免癌症的发生；
-
-6、得过冠状病毒的人在运动健身生活方式上一定注意 ，剧烈运动一定要避免；
-
-7、美国通货膨胀CPI已经达到6.8%已经是非常严重的程度；
-
-8、按理美联储印钞只能是GDP的一倍，结果2020年超印10万亿美元，结果一块钱的面包涨到3块，手里有很多美元的人不去买面包而去买房子了，最后导致全球通胀和紧缩并存。
-
-9、世界法币超发，全球债务官方226万亿美元实际是300万亿美元，经济崩塌时，几百万亿谁还？
-
-10、经济崩塌时：你手里的东西都会一文不值。数字货币代替法币，将进入人类数字货币春秋战国时代；
-
-11、解直锟是被中共做掉的；
-
-12、参加冬奥会的运动员一定会有人染上病毒，一定会有集体事件，然后很严格的治理和隔离。讲故事写故事，然后各地报告“反应快、检查快、治理快、处理的好”，感人泪下的剧本已经写好。证明习太阳治理世界和国家的能力，共产党的一党专制的优越性。中国开始造神运动，再打台湾，解救所谓“水深火热”的台湾人民；
-
-13、彭丽媛会成为联合国慈善大使、艾滋病大使，出席冬奥会，告诉大家她是二把手；
-
-14、冬奥会期间天然气爆炸重大事故超过50%、军队警察政变50%，习被染病毒 ，身体出问题超过70%；
-
-15、冬奥会将是习太阳的噩梦，特别是知道彭副主席要曲线救国的时候，世界要出现大震荡；
-
-16、西安爆发的所谓热毒 就是疫苗的副作用；
-
-**注：直播大音频正在制作和上传中，敬请关注——**
-
-**（直播大音频位置）**
-
-编辑整理：文俊；
-
-发布：黎明之前
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

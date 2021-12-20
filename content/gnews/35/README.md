@@ -2,29 +2,55 @@
 ---
 
 
-## 你会站在历史的哪一边？
-` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1772458/)
+## 前白宫经济顾问皮特·纳瓦罗：鲍威尔和习近平刚刚用通货膨胀中子弹袭击了美国
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1772525/)
 
-在周一的健康与福利听证会上，执业 17 年的注册护士科莱特·马丁分享了她在医院看到的情况。 “你会站在历史的哪一边？”
+前白宫经济顾问皮特·纳瓦罗： 感谢乔·拜登，杰伊·鲍威尔和习近平刚刚用通货膨胀中子弹袭击了美国。如果您想了解滞胀问题的复杂性，请阅读此处。 【附福克斯新闻：拜登，民主党和中共国应为美国的滞涨混乱负责】
 
-我是一名工作了17年的注册护士，12年的肿瘤学的护士。 在过去的五年里，我一直是医院所有不同楼层的流动护士。 我非常担心强制要求孩子接种疫苗的主张。 我们在医院看到了被忽视的成人（接种疫苗后）可怕的不良反应。这些不良反应包括血栓、心脏病发作、中风、脑病、心律失常（如心房颤动）等。 同样在老年人中，我们看到跌倒、晕厥、病因不明的急性意识模糊的增加。 我认识的两个年轻健康的同事也有视力变化、下肢刺痛和麻木（的副作用），他们仍在治疗这些病症。另一位同事突然得了 DVT（深静脉血栓）。 我本人曾有一名患者在接种疫苗三个月后死于心包炎，我们知道这是一种不明的副作用。 （他）在接种疫苗后 30 天被诊断出来，但这件事并没有上报 VAERS（疫苗不良反应报告系统）。
 
-我们的大多数护士、护士经理和一些医生甚至不知道什么是 VAERS。 我与我们的首席医学经理和其他护士讨论过我们为什么不向 VAERS 报告。 最常见的回答是“什么是 VAERS？” 这真让人无言以对。我提出我的担忧并多次被置之不理。 有人告诉我，他确信有人正在调查此事。 好吧，如果我们不调查，那么谁会调查？特别是辉瑞在（其疫苗）试验开始六个月后就结束了他们的研究。 我也被告知 VAERS 不是疫苗副作用的最佳反馈系统。
 
-如果是这样的话，那么我们应该以什么标准作为参考？ 超过 18,000 人死亡，100 万人永久残疾，CDC 承认甚至只有 1% 到 10% 的（不良）反应被报告。 而且我们知道（许多）医院并没有上报所有的不良反应。 这不仅仅是发生在我工作的地方。 我有很多在路易斯安那州东南部当地医院工作的护士朋友都说（看到）同样的事情发生。
+> Thank Joe Biden, Jay Powell, and Xi Jinping for the inflation neutron bomb that just hit America. Good read here if you want to understand the complexities of the stagflation issue.[https://t.co/ngYhmlH7um](https://t.co/ngYhmlH7um)
+> — Peter Navarro (@RealPNavarro) [December 17, 2021](https://twitter.com/RealPNavarro/status/1471930037687496704?ref_src=twsrc%5Etfw)
 
-我还发现我们的治疗方案非常令人不安。 我真的相信我们的治疗方案正在杀死我们的 COVID 患者。 当我询问其他护士的想法时，他们也持相同意见。 在这一点上，医生也承认我们主要的治疗方法不起作用，但医生会说我们只有这种方法。 我们知道这根本不是真的， 这只是 CDC 允许我们使用的方法，而我们的双手却被束缚住了。
 
-回到孩子身上，我们知道化疗会产生副作用，在接受治疗10多年后可能会导致白血病等血癌。 我们知道这一点，因为我们对这些药物进行了真正的长期试验。 现在我们不仅看到了这种疫苗的严重急性反应，我们更完全不了解长期副作用是什么。有可能是癌症，自身免疫性疾病，或者不孕症，我们只是不知道。 我们很可能会牺牲我们的孩子，就因为害怕感染了这个病毒可能会引起死亡，其实感染COVID病毒患者的存活率高达 99%。 而孩子们甚至不会面临这种死亡风险。
-截至目前，死于 COVID 疫苗的儿童比死于 COVID 本身的儿童还多，然后卫生部门出来说新变异的病毒具有我们目前看到的所有疫苗反应的副作用。这一切真的很疯狂，我不明白为什么更多的人看不明白。 我认为他们只是害怕说出来，怕被解雇。
 
-我能出来作证也不是一件易事，但我对说出真相以及作为护士在医院内部所看到的现象深信不疑。 成年人有选择自己研究和相信与否的权利，但是我们的孩子是十分无助的。 当我在 20 到 30 年后回顾这件事时，我知道我已经尽力了，请你们认真考虑一下，你会站在历史的哪一边？ 这种疯狂必须要停止了。
+比尔·戈茨： 未提及的：[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 可能会故意制造假阳性新冠Covid 测试结果，以将特定的来访运动员排除在外，并使比赛对其自身有利。 【转华尔街日报：受疫情影响，北京冬奥会已经面临挑战。 Omicron可能会让情况变得更糟。】
 
-素材：文倩
-翻译：abbs
-字幕：文雅
 
-发布：风云小哥
+
+> Not mentioned: China could deliberately create false-positive Covid test results to sideline specific visiting athletes and skew the games in its favor [https://t.co/UDZvR7vW83](https://t.co/UDZvR7vW83)
+> — Bill Gertz (@BillGertz) [December 18, 2021](https://twitter.com/BillGertz/status/1472245094761652228?ref_src=twsrc%5Etfw)
+
+
+
+参议员迈克·布莱恩： 我与参议员汤姆·科顿的提案将遏制美国对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 药品的依赖。 我们不能任由我们最大的政治对手摆布。 【附布莱恩参议员在福克斯的视频】
+
+
+
+> My bill with [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw) will curb U.S. reliance on Chinese pharmaceuticals.
+> 
+> We cannot be at the mercy of our greatest political adversary. [@FoxBusiness](https://twitter.com/FoxBusiness?ref_src=twsrc%5Etfw) [@cvpayne](https://twitter.com/cvpayne?ref_src=twsrc%5Etfw) [pic.twitter.com/lEfu6tHTWQ](https://t.co/lEfu6tHTWQ)
+> — Senator Mike Braun (@SenatorBraun) [December 17, 2021](https://twitter.com/SenatorBraun/status/1471947371089125382?ref_src=twsrc%5Etfw)
+
+
+
+众议员拉惹·克里西那摩提： 我很自豪与众议员克里斯·斯图尔特 [@RepChrisStewart](https://twitter.com/RepChrisStewart) 共同撰写了两党的监督中共国-阿联酋合作法案，以保护我们的国家安全和美国技术免受 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 的侵害。
+
+
+
+> I am proud to have authored the bipartisan Monitoring China-UAE Cooperation Act with [@RepChrisStewart](https://twitter.com/RepChrisStewart?ref_src=twsrc%5Etfw) in order to protect our national security and American technology from the Chinese Communist Party.[https://t.co/shWc5DURXY](https://t.co/shWc5DURXY)
+> — Congressman Raja Krishnamoorthi (@CongressmanRaja) [December 17, 2021](https://twitter.com/CongressmanRaja/status/1471911830306103298?ref_src=twsrc%5Etfw)
+
+
+
+美国国会及行政当局中国委员会： 戴耀廷 [#BennyTai](https://twitter.com/hashtag/BennyTai?src=hashtag_click) 因在 [#香港](https://twitter.com/hashtag/%E9%A6%99%E6%B8%AF?src=hashtag_click) [#HongKong](https://twitter.com/hashtag/HongKong?src=hashtag_click) 推动普选而被香港大学解雇。 他现在因颠覆香港立法会民主候选人组织初选的指控而被拘留，这显示出香港政府将在多大程度上扼杀民主。 [#奥运囚徒](https://twitter.com/hashtag/%E5%A5%A5%E8%BF%90%E5%9B%9A%E5%BE%92?src=hashtag_click) [#OlympicPrisoner](https://twitter.com/hashtag/OlympicPrisoner?src=hashtag_click)
+
+
+
+> [#BennyTai](https://twitter.com/hashtag/BennyTai?src=hash&amp;ref_src=twsrc%5Etfw) was fired by [#HKUniversity](https://twitter.com/hashtag/HKUniversity?src=hash&amp;ref_src=twsrc%5Etfw) for his work promoting universal suffrage in [#HongKong](https://twitter.com/hashtag/HongKong?src=hash&amp;ref_src=twsrc%5Etfw). He is detained now on a subversion charge for organizing a primary for democratic [#LegCo](https://twitter.com/hashtag/LegCo?src=hash&amp;ref_src=twsrc%5Etfw) candidates, showing how far the [#HKGov](https://twitter.com/hashtag/HKGov?src=hash&amp;ref_src=twsrc%5Etfw) will go to stifle democracy. [#OlympicPrisoner](https://twitter.com/hashtag/OlympicPrisoner?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/1Nlaq8o4tU](https://t.co/1Nlaq8o4tU)
+> — China Commission (@CECCgov) [December 18, 2021](https://twitter.com/CECCgov/status/1472295782023933963?ref_src=twsrc%5Etfw)
+
+
 
  
 

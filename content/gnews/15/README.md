@@ -2,36 +2,42 @@
 ---
 
 
-## 学做菜，对抗中共病毒
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1772835/)
+## 拜登政府缺席的情况下德克萨斯-墨西哥边境墙的建设即将开始
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1772876/)
 
-作者：香草山农场美食组—雨过天晴Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/12/乔拜.png) 图片来自网络
+据《网关专家》作者克里斯蒂娜·莱拉（Cristina Laila）2021 年 12 月 15 日报道德克萨斯州将开始1.7 英里部分的美墨边境墙建设。4 月，拜登政府取消了川普总统下令的国防部对边界墙（建设）的资助。后来有报道称，乔·拜登仍在向美国南部边境的承包商付款。但他们得到的报酬不是为了完成川普边界墙的。他们在看守钢梁以确保不被偷走，因此得到了报酬。德克萨斯州州长格雷格·阿博特（Greg Abbott）表示，该州将加紧完成修建边界墙的工作。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-5-768x103-17.jpg)
+Click2Houston 报道：
 
-
-
-“蔬中最有利益者也”《本草纲目》中李时珍评价白萝蔔的一句话，民间用白萝蔔做美食材料的食品数不胜数。白萝蔔营养丰富，含有维生素A、B、C、D、E，可促进新陈代谢；含丰富的维生素C和微量的锌，能加强人体免疫力。它还能清热气、解毒，亦有顺气、化痰、治喘、消食积的功用，可降低胆固醇、预防胆结石及高血压、冠心病。民间俗谚也说：“冬吃萝蔔夏吃薑，不劳医生开药方。
-媲美红烧肉— 红烧豆泡萝蔔
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1056.png)
-材料： 白萝蔔块，炸豆泡，葱花，红椒丁，胡椒粉，盐，蚝油，生抽。
-热油煸炒白萝蔔块，加上豆泡，盐和水，把萝蔔煮八成熟，加上盐，蚝油，生抽再煮到完全熟透。最后撒上葱花，红椒丁翻炒均匀即可。
-tip： 1. 不要把盐过早放人，萝蔔会因而产生酸味口感。2. 烧萝蔔的时间是因人而异，我喜欢吃脆口鲜甜味道所以煮至萝蔔刚好熟透。
-病毒横行之时，听取文贵先生的建议，减少外出，避免人多聚集，採取简单居家生活模式，充分利用天然资源对抗病毒。战友们坚持下去，美好的明天属于新中国联邦人！
-
-编辑/校对/发稿：菩提树
-![](https://assets.gnews.org/wp-content/uploads/2021/12/unknown-4.jpg)
+*德克萨斯州边界墙 1.7 英里长的部分预计将很快开始施工。边界墙是州长雷格·阿博特6 月份宣布的倡议的一部分。*阿博特*责成德克萨斯州设施委员会（TFC）完成州边界墙的建设。在 11 月 18 日的 TFC 会议上，委员们一致批准了一项不超过 1.62 亿美元的设计 – 建造合同以填补几段联邦边界墙之间的总共 8 英里的空白处。合同授予了波西利科市政公司（ Posillico Civil, Inc. ），这是一家拥有 75 年历史，曾参与过其他边境项目的纽约工程公司。委员们表示，边境墙的第一部分将建在斯塔尔县（Starr County）的国有土地上，并在私人土地上延伸 1.2 英里。*“在拜登政府缺席的情况下，德克萨斯州正在加紧建设我们自己的边界墙，来完成这项工作。” 州长格雷格·阿博特说。
 
 
-**更多资讯，更多关注**
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+> Construction of Texas-Mexico border wall will begin soon.
+> 
+> In the Biden Administration's absence, Texas is stepping up to get the job done by building our own border wall.[https://t.co/jLEBT0QenL](https://t.co/jLEBT0QenL)
+> — Greg Abbott (@GregAbbott\_TX) [December 15, 2021](https://twitter.com/GregAbbott_TX/status/1471215076896034822?ref_src=twsrc%5Etfw)
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+*格雷格·阿博特 (@GregAbbott\_TX) 德克萨斯-墨西哥边境墙的建设即将开始。*
+
+*在拜登政府缺席的情况下，德克萨斯州正在加紧建设我们自己的边界墙来完成这项工作。*[*https://t.co/jLEBT0QenL*](https://t.co/jLEBT0QenL)
+
+*2021 年 12 月 15 日*
+
+原文链接：
+
+
+
+> [‘In the Biden Admin’s Absence, Texas is Stepping Up to Get the Job Done’ – Construction of Texas-Mexico Border Wall to Begin Soon](https://www.thegatewaypundit.com/2021/12/biden-admins-absence-texas-stepping-get-job-done-construction-texas-mexico-border-wall-begin-soon/)
+
+
+
+
+
+翻译：Nick｜校对：JS709｜编辑&发布：闪电训练
 
  
 

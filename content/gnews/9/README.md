@@ -2,42 +2,37 @@
 ---
 
 
-## 拜登政府缺席的情况下德克萨斯-墨西哥边境墙的建设即将开始
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1772876/)
+## 麻省理工学院博士对英国下议院说：“对知道大流行起源的人来说，站出来是不安全的”
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1772953/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/乔拜.png) 图片来自网络
-据《网关专家》作者克里斯蒂娜·莱拉（Cristina Laila）2021 年 12 月 15 日报道德克萨斯州将开始1.7 英里部分的美墨边境墙建设。4 月，拜登政府取消了川普总统下令的国防部对边界墙（建设）的资助。后来有报道称，乔·拜登仍在向美国南部边境的承包商付款。但他们得到的报酬不是为了完成川普边界墙的。他们在看守钢梁以确保不被偷走，因此得到了报酬。德克萨斯州州长格雷格·阿博特（Greg Abbott）表示，该州将加紧完成修建边界墙的工作。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/麻生.png) 图片来自网络
+据**《网关专家》**作者理查德·阿贝尔森([**Richard Abelson**](https://www.thegatewaypundit.com/author/collinm/)**) **2021年12月15日报道：
 
-Click2Houston 报道：
+**麻省理工学院和哈佛大学的基因治疗和细胞工程专家 **[**陈丽娜(Alina Chan)博士**](https://www.amazon.co.uk/Viral-Search-Covid-19-Alina-Chan/dp/0008487499/ref=sr_1_1?keywords=Chan+Ridley&amp;qid=1639585831&amp;sr=8-1)** 在英国议会科学技术委员会面前作证说，实验室泄漏现在被认为是 COVID大流行的最可能来源，并且 Covid-19 有可能是一种改变基因结构的病毒。**
 
-*德克萨斯州边界墙 1.7 英里长的部分预计将很快开始施工。边界墙是州长雷格·阿博特6 月份宣布的倡议的一部分。*阿博特*责成德克萨斯州设施委员会（TFC）完成州边界墙的建设。在 11 月 18 日的 TFC 会议上，委员们一致批准了一项不超过 1.62 亿美元的设计 – 建造合同以填补几段联邦边界墙之间的总共 8 英里的空白处。合同授予了波西利科市政公司（ Posillico Civil, Inc. ），这是一家拥有 75 年历史，曾参与过其他边境项目的纽约工程公司。委员们表示，边境墙的第一部分将建在斯塔尔县（Starr County）的国有土地上，并在私人土地上延伸 1.2 英里。*“在拜登政府缺席的情况下，德克萨斯州正在加紧建设我们自己的边界墙，来完成这项工作。” 州长格雷格·阿博特说。
+据**《每日电讯报》**报道，陈博士说：“我认为实验室起源的可能性更大”。 **她指出，“现在，知道大流行起源的人站出来是不安全的。** 但我们是生活在一个存储了大量信息而导致它最终会出来的时代。”
 
+陈说“我们从许多顶级病毒学家那里听说，基因工程起源是合理的，其中包括对第一种非典病毒进行改造的病毒学家。 我们知道这种病毒有一个独特的特征，称为弗林蛋白酶切位点，如果没有这个特征，就不可能导致这种大流行。”
 
-
-> Construction of Texas-Mexico border wall will begin soon.
-> 
-> In the Biden Administration's absence, Texas is stepping up to get the job done by building our own border wall.[https://t.co/jLEBT0QenL](https://t.co/jLEBT0QenL)
-> — Greg Abbott (@GregAbbott\_TX) [December 15, 2021](https://twitter.com/GregAbbott_TX/status/1471215076896034822?ref_src=twsrc%5Etfw)
+“一份提议被泄露，表明生态健康联盟(EcoHealth) 和武汉病毒研究所过去在开发一条用于插入新型弗林蛋白酶切位点的管道。 所以，你会发现这些科学家在2018年初说‘我要给马安上角’，而在2019年底，武汉市出现了一只独角兽。”
 
 
-
-*格雷格·阿博特 (@GregAbbott\_TX) 德克萨斯-墨西哥边境墙的建设即将开始。*
-
-*在拜登政府缺席的情况下，德克萨斯州正在加紧建设我们自己的边界墙来完成这项工作。*[*https://t.co/jLEBT0QenL*](https://t.co/jLEBT0QenL)
-
-*2021 年 12 月 15 日*
 
 原文链接：
 
 
 
-> [‘In the Biden Admin’s Absence, Texas is Stepping Up to Get the Job Done’ – Construction of Texas-Mexico Border Wall to Begin Soon](https://www.thegatewaypundit.com/2021/12/biden-admins-absence-texas-stepping-get-job-done-construction-texas-mexico-border-wall-begin-soon/)
+> [MIT Doctor in UK House of Commons: “Not Safe for People Who Know the Origin of the Pandemic to Come Forward”](https://www.thegatewaypundit.com/2021/12/mit-doctor-uk-house-commons-not-safe-people-know-origin-pandemic-come-forward/)
 
 
 
 
 
-翻译：Nick｜校对：JS709｜编辑&发布：闪电训练
+
+
+
+
+翻译：飞利普 | 校对 ：烟波浩淼 |编辑& 发布：闪电训练
 
  
 

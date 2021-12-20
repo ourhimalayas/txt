@@ -2,29 +2,24 @@
 ---
 
 
-## 奥密克戎变异株已在89国发现 感染病例翻倍增长
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1772949/)
+## 香港议会选举结果，投票率有史以来最低
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1772988/)
 
-![荷兰东部城市奈梅亨市民在拥挤的街道上采购节日礼物。荷兰政府已经宣布将封城防止奥密克绒变异病毒的传播。](https://gdb.voanews.com/5AFE22CD-4B5A-4436-9C82-5801FA1A1ABE_w1023_r1_s.jpg)荷兰东部城市奈梅亨市民在拥挤的街道上采购节日礼物。荷兰政府已经宣布将封城防止奥密克绒变异*病毒的传播。*
-据美国之音12月19日报道，世界卫生组织18日表示，传染力超强的奥密克戎（Omicron）变异毒株已在89个国家被发现。该毒株很可能会代替德尔塔（Delta）变异毒株，成为占主导的新冠病毒毒株。而由该变异毒株造成的感染病例每1.5到3天内便翻倍增加，甚至在新冠疫苗接种率很高，或者很多人口已从感染病毒中康复的国家迅速传播。
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3-30.png)图片来源网站
+据《共同通信》20日的报道，今天香港当局公布了19日选举的投票结果。选举的最终投票率为30.2%，为有史以来的最低水平，远低于2016年上一次选举的58.3%。
 
-世卫提出了很多疑问，唯独没有问问：病毒来自哪里？为什么疫苗打得越多，变种越多？
+这是在习近平暴政下推出的消除民主人士的新制度下的首次议会选举。选民投票率创下历史新低，由此表明香港人民对新制度没有信心，政府的合法性已经被动摇了。
 
-新闻参考链接：[https://www.voachinese.com/a/omicron-detected-in-89-countries-cases-doubling-fast-20211219/6360883.html](https://www.voachinese.com/a/omicron-detected-in-89-countries-cases-doubling-fast-20211219/6360883.html)
+新政府从明年1月1日开始，任期为四年。
 
-编辑：胖丁
+信息源：
 
-* * *
+[香港議会選、過去最低の投票率　わずか30％、揺らぐ正当性](https://news.yahoo.co.jp/articles/548b88afede769ca2c422963cf87ec1d8b49f1e0#:~:text=%E9)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

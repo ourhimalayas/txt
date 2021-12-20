@@ -2,19 +2,25 @@
 ---
 
 
-## 加拿大联邦和省政府正对Omicron变种毒株传播做准备
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1772927/)
+## 乔拜登即将宣布抗击 Omicron 的新措施向未接种疫苗者发出“严重警告”
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1772967/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/加拿大.png) 图片来自网络
-据《环球新闻》加拿大通讯社工作人员2021年12月16日报道随着COVID-19病例数在某些省份和世界各地急剧上升，加拿大各地政府都在对Omicron变种可能带来的影响做好准备。安大略省(Ontario)周三报告了1808例新病例，省长道格·福特（Doug Ford）宣布，从周一开始，所有成年人都将有资格接受强化注射，前提是自他们打了第二次针至少有三个月。魁北克省长(Francois Legault)表示，他所在的省报告了另外2386感染病例，由于COVID-19病例的增加，政府可能会重新考虑下星期四将室内聚会从20人限制至10人。由于纽芬兰省(Newfoundland)和拉布拉多省(Labrador)确认了第一例具有高度传染性的变种病例，Omicron已覆盖了所有四个大西洋省份。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-97.png) 图片来自网络
+据《网关专家》作者克里斯蒂娜·莱拉（ Cristina Laila ）2021 年 12 月 18 日报道：
 
-在艾伯塔省(Alberta)，从周五开始，选定的医疗保健场所和药店，将免费提供500,000多个快速抗原检测试剂盒。而50岁及以上的任何人，以及六个月前或更早打过第二针COVID-19疫苗的所有医护人员，可以预订一剂疫苗加强针。早期数据表明Omicron比目前占主导地位的Delta变种更易传播，倍增时间约为两天。不列颠哥伦比亚省(British Columbia)卫生部长阿德里安·迪克斯(Adrian Dix)表示，该省正在考虑对公共和私人聚会发布进一步的公共卫生命令，预计下周将发布公告。萨斯喀彻温省(Saskatchewan)和曼尼托巴省(Manitoba)表示，他们计划暂时维持目前的公共卫生限制。
+乔拜登将于周二向全国发表讲话，并公布其政府为抗击 Omicron 变种，将采取的新措施。 据报道拜登将对未接种疫苗的人“发出严重警告”。
+
+引述NBC 新闻报道：
+
+*一位白宫官员周六告诉 NBC 新闻，总统乔拜登将于周二发表讲话，以解决 omicron 变种问题，并公布政府为帮助需要救助的社区而采取的新步骤。这位官员说，拜登预计将在他已经公布的“冬季计划”之外采取更多措施，同时“对选择不接种疫苗的美国人发出严重警告，表明这个冬季对他们会是什么样子”。这位官员说，助手们表示，拜登政府“为不断上升的病例数做好了准备”，而拜登打算解释他的团队“将如何应对这一挑战”。*
+
+尽管 CDC 中共病毒响应小组发布的每周报告显示，迄今为止在美国发现的绝大多数感染 Omicron 变种的患者，都已完全接种疫苗，但拜登还是在周四向未接种疫苗的人发出了警告。美国疾病控制与预防中心 (CDC) 报告说，在由 Omicron 变种引起的 43 例中共病毒病例中，有 34 人已完全接种疫苗。在完全接种疫苗的人中，有 14 人接种了加强针，但其中 5 人接种时间还不到​​ 14 天。感染了 Omicron 变种的只有 8 人未接种疫苗，1 人状态未知。
 
 原文链接：
 
 
 
-> [Federal and provincial governments preparing for Omicron variant spread](https://globalnews.ca/news/8455370/federal-provincial-governments-preparing-omicron-variant-spread/)
+> [Joe Biden to Announce New Measures to Combat Omicron, Will Issue “Stark Warning” to the Unvaxxed](https://www.thegatewaypundit.com/2021/12/joe-biden-announce-new-measures-combat-omicron-will-issue-stark-warning-unvaxxed/)
 
 
 
@@ -24,7 +30,7 @@
 
 
 
-翻译： 飞利普 |校对：烟波浩淼 |编辑&发布：闪电训练
+翻译：JS709｜校对：Nick｜编辑&发布:闪电训练
 
  
 
