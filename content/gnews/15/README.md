@@ -2,32 +2,35 @@
 ---
 
 
-## 日本政府拟修改国家安全战略 自卫队将不仅自卫
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1774478/)
+## 富力地产预告将暴雷
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1774489/)
 
-撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/4-33.jpg)
-[图片来源](https://www.sankei.com/article/20211007-KTEFYU7KN5I3PC4L5ETUH7WRI4/)
+作者：纽约香草山健身部 – Jack Li文阳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月15日下午，中共国富力地产发布一则公告称，富力总额7.25亿美元的美元票据，将于2022年1月13日到期，拟以折价方式回购。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/7-32.jpg)
+折价回购有两种方案：一是以原定价格兑现所持票据的50%，剩余50%延期半年；二是兑现相当于原来价格的83%。与此同时，富力地产恳请票据持有人，同意将票据延期半年至明年7月13日。
 
-12月20日，日本自民党开始在党内讨论修改《国家安全战略》，这是外交和安全的长期指导方针。
+富力地产负责人坦言，若无法与票据持有人达成共识，公司有可能无法全额按合约履行偿还承诺。另外，富力还将酌情对此两种回购方式，调整偿付的最高金额。就是说，票据持有人可能拿不到回购方案约定的金额，分析家称富力此举为预告式暴雷。
 
-安保调查会长小野寺说：“岸田首相将在明年审查国家安全战略、国防计划大纲和中期防卫计划。从今天开始，我们希望在明年5月底前最终确定我们的建议。”
+参考链接: 
+1) . [20亿理财中间人失联，地产巨头预告式暴雷](https://www.gettr.com/post/pk1ursfb2a)
+2) . [还钱也能讨价还价？富力地产预告式“爆雷”，投资人：怎么选都亏](http://www.amcupdate.com/2021/12/16/%E5%AF%8C%E5%8A%9B%E7%A6%BB%E5%AE%9E%E8%B4%A8%E6%80%A7%E8%BF%9D%E7%BA%A6%E8%BF%98%E6%9C%89%E5%A4%9A%E8%BF%9C/)
+3) . [富力地产预告式“爆雷”：可能无法在到期日全额赎回票据](https://www.sohu.com/a/508639837_639898)
 
-岸田首相在6日的政策演讲中宣布，他将 “用大约一年的时间制定新的国家安全战略、国防计划大纲和中期国防力量改进计划”，以从根本上加强日本的防卫能力。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-对此，自民党每周一次在安全调查委员会听取专家意见，并在2022年5月前为政府编撰一份提案。
+总编：Ivy001
+编辑：Kathy文艺
+校正/发稿：Fei797
 
-预计讨论中将包括岸田首相经常提到的拥有“敌方基地攻击能力”的问题。
-
-拥有“敌方基地攻击能力”将从根本上改变日本自卫队的属性，读者请细品，这是为什么做准备呢？
-
-信息来源:
-
-[安保戦略見直し 自民が開始　敵基地攻撃能力も議論へ](https://news.yahoo.co.jp/articles/d14192006d09a8c0e3eabc5058222a9b95fabff9)
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWSLOGO20211207.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
  

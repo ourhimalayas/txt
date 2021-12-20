@@ -2,32 +2,37 @@
 ---
 
 
-## GTV投资人对SEC的抗议活动圆满完成
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1774355/)
+## DC每日热点1220
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1774362/)
 
-作者：纽约香草山农场 – 文真
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月17日，GTV投资人在美国SEC华盛顿特区总部外举行的抗议活动圆满结束。此次抗议活动开始于10月4日，历时74天。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/4-32.jpg)
-美国SEC在9月13日与GTV和Saraca公司达成了和解协议。然而，在此后近一个月的时间里，美国SEC没有按照和解协议展开任何行动。美国SEC的腐败和官僚作风，引起了投资人的强烈不满。GTV投资人为了维护自己的合法权益，依法展开一系列的抗议行动。
+编辑：楚门门
+![](https://assets.gnews.org/wp-content/uploads/2021/12/F45263BA-1855-461D-943F-D49378861C0A-scaled.jpeg)
+道琼斯指数 35365.44 ▼1.48%
+纳斯达克指数 15169.68 ▼0.07%
+WTI纽约原油CFD 67.688 ▼4.25%
+布伦特原油CFD 70.779 ▼3.72%
+标普50指数 2,911.76 ▼41.70%
+美元兑人民币 1USD=6.376 RMB
+美元兑港币 1USD=7.800 HKD
+国际黄金 1797.03 美元/盎司
+全球CCP病毒感染人数 275,142,022例
 
-此次抗议活动持续了两个半月，并且坚持在GTV平台上直播，得到了全球GTV投资人与正义人士的积极响应与支持，并得到了广泛的赞誉。
+1、被美国政府列入投资黑名单的中共国人工智能公司商汤科技重新启动在香港的IPO，并表示仍然计划在年底上市
+2、川普称习近平是“杀手” 但不支持抵制北京冬奥
+3、展望来年对外关系 王毅警告美国：要对抗，不惧， 会奉陪到底
+4、穆斯林世界设立基金帮助阿富汗避免人道主义灾难
+5、世卫：奥密克戎变异株已在89国发现 感染病例翻倍增长
+6、“五眼联盟”外长就香港立法会选举发表联合声明
+7、法政府冀1月底前《疫苗通行证》取代《健康通行证》
+8、俄罗斯称若遭制裁被断开国际SWIFT银行系统，也能活下来
+9、美参院外委会两党领袖呼吁拜登政府强化亚太地区经贸合作
+10、德国新任防长首访选择立陶宛：这是北约盟国团结的信号
+11、日外相：现未就访问中共国进行任何具体讨论
+12、法美海军签署《战略互操作性框架》文件：双方合作愿望达到顶峰
+13、彭帅露面否认指控 WTA仍坚持透明调查性侵案
+14、遭火箭弹袭击 驻巴格达美军启动防御系统
+15、 澳大利亚政府的一份最新统计报告说，澳大利亚本年度的资源和能源出口净收入将达到3790亿澳元，中共国贸易惩罚损人不利己反被打耳光
 
-参考链接: [历经两个半月，74天的SEC抗议游行在今天完美收官。感谢所有参加游行的战友们，你们的努力和付出捍卫了GTV投资者合法的利益，更展现了超强的行动力和一流的素质，战友们你们辛苦了！难忘和大家一起奋斗的日子，相信我们很快就会在盘古相见，期待下次和大家一起战斗！](https://gettr.com/post/pjyv19196f)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
-
-总编：Ivy001
-编辑：Jack Li文阳
-校正/发稿：Fei797
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
