@@ -2,31 +2,39 @@
 ---
 
 
-## 12/20每日播报｜第六巡回法院裁定继续执行拜登疫苗强制令
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1773830/)
+## 七哥冬奥会悬念解惑二：钥匙澜会不会成为冬奥会主持人
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1773876/)
 
-**By:[秘翻新闻](https://gtv.org/broadcast/watch/61b85c7e56f4921401b77b8b)**
+下一个问题，现在从小李往回转，倒时针，钥匙澜会不会成为主持人？会不会出场？
 
-**2021-12-**20
+好！这个问题我今天不回答，答案都跟你们俩都不一样，给你们两派，三个出来的一个不出来的都不一样，所以我就不说了，到时候你们看会很有意思，杨澜会是一个很有意思的事儿。
 
-《华盛顿观察家报》12月19日报道，在美国第六巡回上诉法院裁定，继续执行拜登政府针对大企业的疫苗强制令后，美国劳工部周六宣布，它正在推迟这些企业员工强制接种中共病毒疫苗的日期。
+编辑整理：海贼王M.D.LUFFY；
 
-之前，美国职业安全与健康管理局（OSHA）在11月4日发布了疫苗令的临时标准，该疫苗令要求拥有100人以上的大企业员工，在2022年1月4日之前必须接种中共病毒疫苗，并要求未接种疫苗的员工戴口罩以及定期接受病毒检测。
+字幕制作：小满；
 
-该标准也适用于受雇于州和地方政府的公共部门员工，包括教育工作者和学校工作人员。 职业安全与健康管理局表示，这个裁定给企业雇主提供了足够的时间来遵守规定。只要雇主做出合理、真诚的努力来遵守该标准，就不会在2月9日之前发出有关测试要求的违约通知。
+视频制作及上传：Cindy；
 
-第六巡回上诉法院的决定，引起了各州立法者的愤怒。此前，一个州联盟在第五巡回上诉法院对拜登政府的这项疫苗强制令提起了讼诉，该法院发布了一个暂停令。 然而，美国第六巡回上诉法院却恢复了疫苗强制令。
+G-News发布：小满；
 
-州立法者已经表示，他们打算对第六巡回法院的裁决提出上诉。 周五，德克萨斯州总检察长肯-帕克斯顿(Ken Paxton)在推特上写道：”第六巡回法院的一个左倾小组做出了一个糟糕的决定，强迫私人企业员工接受疫苗强制令，迫使人们选择失业和不可逆的医疗程序，这不符合美国精神。””我将立即把这个问题提交给联邦最高法院，寻求逆转”。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
 
-秘翻新闻主编 冰糖葫芦庙编译报道
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-发布：文小明
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-* * *
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-**By 【秘密翻译组-即时新闻播报组】**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/秘翻海报.jpg)
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

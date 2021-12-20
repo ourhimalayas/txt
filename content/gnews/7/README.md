@@ -2,39 +2,25 @@
 ---
 
 
-## 七哥冬奥会悬念解惑一：彭丽媛副主席会以何种形式出场
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1773802/)
+## 澳洲昆士兰超100名警员圣诞期间或将在家隔离
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1773839/)
 
-第三个七哥请教一个问题，今年的冬奥会，彭丽媛彭副主席会怎么出场？
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2021/12/203.jpg)图片来自网络
+在多名警员被检测出CCP病毒呈阳性后，澳大利亚昆士兰州最大的两个警察局的工作人员将在圣诞节期间被迫隔离。
 
-她（彭丽媛）一定会出场，节目已经在排练中。联合国慈善大使，艾滋病大使的身份一定会出来，所有的国母嘛，得要慈悲天下！慈悲为怀，赈济天下、女性代表，是吧！一定会出来，而且这次出来就是真正的彭丽媛，告诉中国人民，我就是二把手。你会看着，只要习大大，习太阳还继续发光的话就会出来。
+在昆士兰黄金海岸，由于两名警察检测出CCP病毒阳性反应，导致另外 52 人必须隔离。在位于布里斯班南部的Logan区，由于一名警官检测呈阳性，当地警察局的另外 49 名警官也需要被隔离。
 
-编辑整理：海贼王M.D.LUFFY；
+警察局副局长史蒂夫·戈尔舍夫斯基 (Steve Gollschewski) 表示，昆士兰警察局有能力应对因自我隔离指示而导致的人员短缺以及任何额外压力。他表示：“我们的业务连续性计划是合理的，我们可以承受住更多考验……我们已经为此做好了计划，并且一直在为整个政府制定计划。我们的计划非常可靠，目前情况一切良好。”
 
-SRT文件制作：小满；
+戈尔舍夫斯基补充说，在大流行最严重的时候，昆州警署曾有1300 名警察被要求进行隔离，如果有需要，将会召集额外的警力介入日常事物。
 
-视频制作及上传：Cindy；
+“我们目前每天隔离的人数不到 500 人。当然，我们工作非常努力。” 戈尔舍夫斯基先生说，“举例来说，假设我们看到黄金海岸出现任何压力，我们就会让其他地区的官员加入——我们有这样做的灵活性。”
 
-G-News发布：小满；
+新闻参考链接：[9 News](https://www.9news.com.au/national/coronavirus-update-queensland-two-police-stations-isolation-positive-covid19-cases/231a446b-ae7c-4eb5-8dc9-f5fb85872790)
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,10 +2,10 @@
 ---
 
 
-## 成千上万的人聚集在墨尔本街头抗议疫苗禁令
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1773398/)
+## 西安爆发出血热，中共出动军队封城
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1773402/)
 
-12/18/2021 成千上万的人聚集在墨尔本街头抗议疫苗禁令。
+12月18日，西安爆发出血热，中共出动军队封城。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

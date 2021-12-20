@@ -2,52 +2,39 @@
 ---
 
 
-## 墨尔本反疫苗示威者再次游行
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1773727/)
+## 七哥冬奥会悬念解惑一：彭丽媛副主席会以何种形式出场
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1773802/)
 
-拟稿：金生水
-![](https://assets.gnews.org/wp-content/uploads/2021/12/墨尔本.png)
-图片来自网络
+第三个七哥请教一个问题，今年的冬奥会，彭丽媛彭副主席会怎么出场？
 
-雅虎新闻近日报道，来自澳大利亚的抗议者们再次走上街头，要求摆脱中共病毒大流行，并反对强制接种疫苗。
+她（彭丽媛）一定会出场，节目已经在排练中。联合国慈善大使，艾滋病大使的身份一定会出来，所有的国母嘛，得要慈悲天下！慈悲为怀，赈济天下、女性代表，是吧！一定会出来，而且这次出来就是真正的彭丽媛，告诉中国人民，我就是二把手。你会看着，只要习大大，习太阳还继续发光的话就会出来。
 
-抗议者周六再次聚集在墨尔本的中央商务区，以表明他们反对任何中共病毒限制，尽管他们大多被撤回并呼吁“选择权”。
+编辑整理：海贼王M.D.LUFFY；
 
-在抗议活动中拍摄的视频显示，参与游行的人士高呼“没有疫苗护照”。
+SRT文件制作：小满；
 
-“醒醒，暴政来了，”一个牌子说。
+视频制作及上传：Cindy；
 
-人群中点缀着尤里卡寨子的旗帜，这是右翼团体近年来采用的旗帜。
+G-News发布：小满；
 
-抗议者在墨尔本游行时高呼“拯救我们的孩子”。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
 
-据《先驱太阳报》报道，抗议者于中午在国会大厦会面，随后又包围了墨尔本西警察局。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-据《先驱太阳报》报道，一名抗议者进入警察局给警员送达文件。 目前尚不清楚原因。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-维多利亚警方证实，周六没有因抗议活动而逮捕任何人。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-今天早上，该州报告了 1504 例新的中共病毒病例，除 5 例外，其余病例均在当地感染。
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-维多利亚州在本周略微放宽了对新冠病毒的限制，在一些情况下取消了疫苗规定，但零售店仍强制要求戴口罩。
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-购物者不再需要证明他们已接种疫苗即可前往非必要的零售店、礼拜场所、婚礼、葬礼以及房地产检查和拍卖。
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-在维多利亚州，92% 的 12 岁以上的人都接种了中共病毒疫苗。
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-周六是中共病毒大流行期间澳大利亚第一次在全国单日内报告的病例超过 4000 例。
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
-走上街头的勇士们反对的是强制施打疫苗，反对的是这个未经正常程序实验测试的疫苗，严格来说这根本不是真正的疫苗。维多利亚州92% 的 12 岁以上的人都接种了这个所谓的疫苗，而在新南威尔士州上个月就已经有90%的人完全接种了疫苗，那为什么这两个周单日内报告的病例居然能够超过 4000 例？
-
-尽管这两个州针对疫情封锁的限制都有所放松，但还需警惕政府会把病例激增的责任推卸到未接种疫苗的人身上。所以游行反抗不能停，直到政府停止强制施打疫苗，彻底解除对未接种过疫苗的人士活动的限制，并且推动药物治疗。
-
-参考链接：
-[Melbourne protesters swarm police station (yahoo.com)](https://au.news.yahoo.com/melbourne-protesters-swarm-police-station-063652412.html)
-[NSW hits 90 per cent COVID-19 fully vaccinated target – ABC News](https://www.abc.net.au/news/2021-11-09/nsw-reaches-90-per-cent-covid-19-double-vaccination/100600014)
-[Australia records more than 4,000 daily Covid cases for first time – as it happened | Australia news | The Guardian](https://www.theguardian.com/australia-news/live/2021/dec/18/australia-live-news-updates-omicron-surge-strains-covid-testing-sites-tasmania-bans-jumping-castles-from-state-schools-after-tragedy)
-
-发稿：MG4
-![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
