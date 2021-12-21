@@ -15,110 +15,110 @@
 
 ---
 
-### [2021/12/20 墙内世界](/content/gnews/1/README.md)
+### [【中日财经爆】由于供应延误，麦当劳控股日本公司宣布暂时只销售S号的薯条](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [城管暴力打人致倒地不起，中共极力狡辩不负责任](/content/gnews/2/README.md)
+ ` 澳喜农场`
+
+### [2021/12/20 墙内世界](/content/gnews/3/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [数字货币区块链迅速地和平改变人类上万年来的货币属性](/content/gnews/2/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [DC每日热点1221](/content/gnews/3/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [令人震惊的中共病毒数据——证明疫苗无效](/content/gnews/4/README.md)
+### [秘翻在线 :给我伊维菌素，否则罚款!](/content/gnews/4/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中植等同海航,王岐山2018年让解直锟要么自绝要么被绝](/content/gnews/5/README.md)
+### [数字货币区块链迅速地和平改变人类上万年来的货币属性](/content/gnews/5/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [辉瑞以67亿美元收购了研究心血管疾病的生物制药公司Arena](/content/gnews/6/README.md)
+### [DC每日热点1221](/content/gnews/6/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [令人震惊的中共病毒数据——证明疫苗无效](/content/gnews/7/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [中植等同海航,王岐山2018年让解直锟要么自绝要么被绝](/content/gnews/8/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [辉瑞以67亿美元收购了研究心血管疾病的生物制药公司Arena](/content/gnews/9/README.md)
  ` 首尔天池农场`
 
-### [“爱国者治港”葫芦里装的什么药？ 后立法会选举投票率创新低](/content/gnews/7/README.md)
+### [“爱国者治港”葫芦里装的什么药？ 后立法会选举投票率创新低](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [从薇娅被罚款13亿看中共治下社会的腐烂](/content/gnews/8/README.md)
+### [从薇娅被罚款13亿看中共治下社会的腐烂](/content/gnews/11/README.md)
  ` 澳喜农场`
 
-### [Vice号称用他人无法做到的方式讲述故事，却毫无证据信口开河](/content/gnews/9/README.md)
+### [Vice号称用他人无法做到的方式讲述故事，却毫无证据信口开河](/content/gnews/12/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [诋毁的代价](/content/gnews/10/README.md)
+### [诋毁的代价](/content/gnews/13/README.md)
  ` 骄子`
 
-### [12/21每日播报｜好莱坞与中共国的良好关系终于于今年结束](/content/gnews/11/README.md)
+### [12/21每日播报｜好莱坞与中共国的良好关系终于于今年结束](/content/gnews/14/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [DC大中华时事：中共社评辱骂五眼联盟“五眼”昏花](/content/gnews/12/README.md)
+### [DC大中华时事：中共社评辱骂五眼联盟“五眼”昏花](/content/gnews/15/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [12/21/2021国际财经快讯：俄罗斯限制境内使用加密货币；全球并购活动刷新历史记录](/content/gnews/13/README.md)
+### [12/21/2021国际财经快讯：俄罗斯限制境内使用加密货币；全球并购活动刷新历史记录](/content/gnews/16/README.md)
  ` 秘密翻译组金融团队`
 
-### [澳洲经济低迷却拍出了史上最贵的红葡萄酒 &#8211; 近16万美金](/content/gnews/14/README.md)
+### [澳洲经济低迷却拍出了史上最贵的红葡萄酒 &#8211; 近16万美金](/content/gnews/17/README.md)
  ` 澳喜农场`
 
-### [共产党的冬奥会迷信](/content/gnews/15/README.md)
+### [共产党的冬奥会迷信](/content/gnews/18/README.md)
  ` 骄子`
 
-### [秘翻在线: 《英国医学杂志》打脸扎克柏格](/content/gnews/16/README.md)
+### [秘翻在线: 《英国医学杂志》打脸扎克柏格](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [毒党极简史](/content/gnews/17/README.md)
+### [毒党极简史](/content/gnews/20/README.md)
  ` 银河勇气之星`
 
-### [NIH和辉瑞疫苗的作用极其狭窄](/content/gnews/18/README.md)
+### [NIH和辉瑞疫苗的作用极其狭窄](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [拜登的“重病和死亡的冬天”已在高疫苗接种州成现实(1/2)](/content/gnews/19/README.md)
+### [拜登的“重病和死亡的冬天”已在高疫苗接种州成现实(1/2)](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [伊维菌素的起源和功效](/content/gnews/20/README.md)
+### [伊维菌素的起源和功效](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [香港立法选举遭“五眼联盟”联合声明谴责并印证“北京绝对控制林郑月娥”](/content/gnews/21/README.md)
+### [香港立法选举遭“五眼联盟”联合声明谴责并印证“北京绝对控制林郑月娥”](/content/gnews/24/README.md)
  ` Zero-Day【零时差】`
 
-### [12/21每日播报｜新闻简讯：疫苗微芯片 中共网信办](/content/gnews/22/README.md)
+### [12/21每日播报｜新闻简讯：疫苗微芯片 中共网信办](/content/gnews/25/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [【中日财经爆】华晨雷诺金杯也“雷”了](/content/gnews/23/README.md)
+### [【中日财经爆】华晨雷诺金杯也“雷”了](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线：疫情下的艺术品交易创新高　拍卖行是权钱交易的完美平台](/content/gnews/24/README.md)
+### [秘翻在线：疫情下的艺术品交易创新高　拍卖行是权钱交易的完美平台](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [班农专访4: 由于政策失衡，中共国面临人口危机](/content/gnews/25/README.md)
+### [班农专访4: 由于政策失衡，中共国面临人口危机](/content/gnews/28/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [12/21每日播报｜社媒消息：蓬佩奥 娜塔莉温特斯](/content/gnews/26/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [中共治国逻辑显奇效，河北山海关民众冻得直哭](/content/gnews/27/README.md)
+### [中共治国逻辑显奇效，河北山海关民众冻得直哭](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [拜登的“重病和死亡的冬天”已在高疫苗接种州成现实(2/2)](/content/gnews/28/README.md)
+### [拜登的“重病和死亡的冬天”已在高疫苗接种州成现实(2/2)](/content/gnews/30/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [台湾理智回击王毅外长“战斗到底”的誓言](/content/gnews/29/README.md)
+### [台湾理智回击王毅外长“战斗到底”的誓言](/content/gnews/31/README.md)
  ` 澳喜农场`
 
-### [英国脱欧部长在辞职信中警告不要采取“强制性”中共病毒措施](/content/gnews/30/README.md)
+### [英国脱欧部长在辞职信中警告不要采取“强制性”中共病毒措施](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [秘翻在线：奥米炕超过德尔塔成为美国主要的新冠变种](/content/gnews/31/README.md)
+### [两名参议员接种中共病毒加强针后感染中共病毒](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [两名参议员接种中共病毒加强针后感染中共病毒](/content/gnews/32/README.md)
+### [世界最大游轮“海洋交响乐号”爆发新冠疫情 至少48人确诊](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [世界最大游轮“海洋交响乐号”爆发新冠疫情 至少48人确诊](/content/gnews/33/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [台湾前线｜中共间谍渗透严重 前军方人士称 包含将军、总统随扈](/content/gnews/34/README.md)
+### [台湾前线｜中共间谍渗透严重 前军方人士称 包含将军、总统随扈](/content/gnews/35/README.md)
  ` 關注組`
-
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/35/README.md)
- ` wenwu`
 
 ### [前总统川普接种了中共病毒疫苗加强针](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
