@@ -2,41 +2,38 @@
 ---
 
 
-## 时代杂志将大规模谋杀疫苗科学家命名为“年度英雄”，而疫苗死亡人数继续加速
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1777947/)
+## 辉瑞欲收购致力于心血管疾病药物研发的企业
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1777984/)
 
-2021 年 12 月 19 日，星期日
+作者：纽约香草山信息部- 诺雅
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据外媒消息，辉瑞公司将以67亿美元收购生物制药企业Arena，该交易预计将在2022年上半年完成。据悉，Arena正在开发免疫炎症性疾病的新疗法，多数已进入临床试验阶段；当前，该公司致力于研发针对急性心力衰竭和微血管梗阻等疾病的治疗产品。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-21-下午11.08.24-1.png)
+此前，辉瑞以22.2亿美元收购了致力于肿瘤免疫治疗的药企- 翠莲医药，辉瑞将借此拓宽其血液病，尤其是血癌治疗产品的研发和生产。
 
-作者：S.D. 威尔斯
+随着辉瑞疫苗及其加强针接种率不断提升，越来越多的接种者出现心肌炎、静脉微血栓、免疫血栓性血小板减少症等严重不良反应。郭文贵先生多次援引中共病毒及疫苗计划爆料人的观点并警告世界：疫苗接种后普遍的灾难性后果将在15个月到两年内爆发；感染病毒的人群将在3到10年内有一半以上的概率罹患各种癌症。辉瑞近来陆续收购肿瘤和心血管疾病药企的行径，其真实的意图更加耐人玩味。
 
-翻译：沉默老歌
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Biochemistry-Doctors-Scientists.jpg)图片来源：网络
-自然新闻：《时代》是纽约市的终极“骗子”杂志，发行量约为 300 万份，而 3 年前已减少到 200 万份。 《时代》通过代表主流媒体可以利用的教条主义政治立场的人来讲述“新闻”，包括 9/11、乔治·弗洛伊德事件，以及任何宣传虚假全球变暖和致命“疫苗”的人。
+参考链接：
+1）[Pfizer is Buying a Cardiovascular Biopharma Company for $6.7Bn.](https://thenationalpulse.com/news/pfizer-is-buying-a-cardiovascular-biopharma-company-for-6-7bn/)
+2）[Pfizer to Acquire Arena Pharmaceuticals](https://www.pfizer.com/news/press-release/press-release-detail/pfizer-acquire-arena-pharmaceuticals)
+3）[Pfizer bets on Arena’s promising bowel disease treatment in $6.7 bln deal](https://www.reuters.com/markets/deals/pfizer-acquire-arena-pharmaceuticals-67-bln-deal-2021-12-13/)
+4）[Pfizer bets on Arena Pharmaceuticals’ promising bowel disease treatment in $6.7 billion deal](https://www.cnbc.com/2021/12/13/pfizer-to-acquire-arena-pharmaceuticals-in-6point7-billion-deal-.html)
+5）[arenapharm](https://www.arenapharm.com/therapeutic-focus/cardiovascular)
+6）[United Therapeutics](https://www.unither.com/products)
 
-随着 Covid 疫苗引起的伤害和死亡像大流行一样不断增加和蔓延，美国的大众媒体宣布了新的“年度英雄”，以掩盖他们研究、在实验室臆造的、并代表减少人口优生学的非常“技术”造成的大规模伤亡。领先疫苗开发人员（科学家）最近被选为 《时代》杂志的英雄 托儿，他们的名字是 Kizzmekia Corbett、Barney Graham、Katalin Kariko 和 Drew Weissman。
+![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-仅在美国，新冠病毒疫苗引起的“超额”死亡人数就迅速接近 50 万
+总编：文真
+编辑：Zion文恩
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-不，疾控中心不会承认大屠杀，但他们没有否认，所以这几乎是因疏忽而有罪。 由于 Covid 凝血注射，至少有 388,000 名美国人死亡，最好证据来自这些疫苗的临床试验，这些疫苗仍由 FDA 批准，他们知道“ 批准”将导致的大规模屠杀，无论是紧急情况还是假印章。
-
-在辉瑞公司对其有毒蛋白朊病毒疫苗 (mRNA) 的临床试验中，接种疫苗的患者比接种安慰剂的患者更有可能死亡。 此外，疫苗杀死一个人的机率比将他们从 Covid 病毒中拯救出来更高。 如果美国真的知道这一点，那么疫苗“犹豫”很快就会变成疫苗恐惧，这将对整个疫苗邪教杀人机器造成重大打击。
-
-尽管如此，《时代》杂志必须帮助掩盖大屠杀，所以他们称这个死亡机器的制造者为英雄，就像一个新的熟练的约瑟夫·门格勒（纳粹时期被称为“死亡天使”的医生）的团队。 以这种速度，Covid 疫苗的死亡人数使 Covid-19 病毒及其变种的死亡人数相形见绌。
-
-《时代》杂志应因推动危险宣传和帮助传播 Covid 疫苗引发的伤亡海啸而被起诉
-
-这代表了人类叛徒的最高层次，例如开发Zyklon B（毒气室的杀虫剂毒药）的纳粹科学家。 唯一的区别是，2 亿美国人认为致命的 Covid 疫苗就像药物。
-
-我们真正正在经历的是世界舞台上的“杜鲁门秀”，接种疫苗的羊群像一群脑死亡的僵尸一样朝着ADE海啸直奔。 他们不知道 中共、CDC 和 FDA 都希望他们为了疫苗利润和极权控制而快速、悲惨、高代价地死去。
-
-尽管大众媒体在撒谎和掩饰，凝块疫苗注射的大屠杀将如此明显，这是不可否认的。总有一天， 我们共和国的叛徒将要为背叛美国人和推广致命的基因疗法疫苗而付出高昂的代价。 这次大流行是有计划的，这不是阴谋论。 疫苗是计划中的人口减少的媒介，这不是阴谋论。 数据和临床试验不言自明。 密切关注。 如果您已经接种了 Covid 疫苗，那么您将参与一项具有非常黑暗、代价高昂的结果的大型实验。 寻求帮助，因为你需要它。 摆脱凝块注射、口罩和 CDC 建议的疯狂。
-
-来源链接：[https://www.afinalwarning.com/579718.html](https://www.afinalwarning.com/579718.html)
-
-编辑/发布：LILY
-
-20211221
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

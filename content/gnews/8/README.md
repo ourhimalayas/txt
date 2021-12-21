@@ -2,39 +2,36 @@
 ---
 
 
-## 弗拉基米尔-泽连科博士称中共病毒疫苗是人类历史上最严重的罪行
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1777965/)
+## 中共是导致中共国人口危机的罪魁祸首
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1777992/)
 
-本文作者：Rebecca (一切心皆不可得！)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image001-17.png)
-据《自然新闻网》报道，12月3日，在Brighteon.TV与安.范德斯蒂尔（Ann Vandersteel）的 “钢铁真相 “节目上，纽约知名医生弗拉基米尔-泽连科博士说，中共病毒（COVID-19）是一种人造的大规模毁灭性武器。中共病毒疫苗是人类历史上最严重的罪行——有预谋的一级谋杀、种族灭绝和反人类罪。
+作者：东京樱花团 – 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+盖特12月19日消息，近日班农先生在英喜农场的每周战斗室采访节目中，谈及中共国人口危机。他表示，中共的历史就是一部血淋淋的杀人历史——大跃进、大饥荒和文革，杀死了9千万到一亿中国人。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2-82.jpg)
+中共的计划生育政策杀死了4亿婴儿，其中80%是女婴。他估计目前中共国只有不到10亿人口，所以人口急速老龄化导致劳动力缺失，中共对此极度恐慌，开始推出3胎政策，但是无助的人民却恐惧孩子变成共产奴隶。
 
-泽连科博士同时说，反社会的比尔-盖茨要为70亿人接种疫苗；2016年，劳斯-施瓦布要在10年内，为每个人都贴上数字标识符；这要怎样实现呢？
+班农先生指出：中共高层的内斗以及层出不穷的愚蠢政策，让中国人民苦难不断。中共污染了土地、空气和水，剥夺中国人的生产资料，禁止人民创业，国企效率低下。恐惧中国人拥有自然而健全的家庭，所以强制进行计划生育，因此导致目前中共国人口危机。
 
-研究过心理战的就会知道：如果人们长期生活在焦虑中并被长期隔离时，人们就会变得非常容易受骗和被操纵。
+中共活摘器官、剥夺人民信仰自由，工人得不到应有工资，自杀率很高。但中共从来不在乎人民的生命，现在又朝着建立人类命运共同体狂奔，狂妄的认为可以主宰一切。而华尔街、拜登政府、跨国公司却跟中共私下勾兑，全世界对此视而不见。
 
-泽连科博士警告说，中共病毒‘大流行’是唬人的，目的就是操纵70亿人打疫苗毒针。接种疫苗显然已被证实没有任何好处，这是对人类的大屠杀。而且，在大多数情况下，对儿童来说，根本没有必要接种疫苗。
+班农先生强调说，只有中国人民自由了，世界才能自由。
 
-与此同时，泽连科博士还列举了世界各国那些敢于反对政府官方说法的专家们正遭受政府的审查与诋毁。
+参考链接: [GTV UK Mr. Bannon’s Weekly Interview 1215-Q4](https://gettr.com/post/pk2ols8066)
 
-对于泽连科博士的观点，医疗自由维权律师托马斯-伦茨透露，一位举报人提供的政府数据记录显示，48465名医疗保险患者在接种COVID-19疫苗后的14天内死亡。(相关报道：传奇医生说，COVID-19疫苗是种族灭绝。)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-去年7月，一位专业从事医疗数据分析的计算机程序员举报，“医疗保险和医疗补助服务中心”（CMS）的数据显示，至少有4.5万人因接种实验性COVID-19疫苗去世。
+总编：文真
+编辑：Lakeman文仁
+校正/发稿：Fei797
 
-也有一份来自Project Veritas的举报人报告，联邦医院的医务人员证实，有许多病人正受COVID疫苗的伤害。
-
-伦茨律师证实了“食品和药物管理局”几乎可实时监控病毒疫苗的各种不良反应，跟CMS使用同一数据源。
-
-但是，政府和媒体却掩盖事实并一再强调接种病毒疫苗是安全有效的。
-
-[新闻来源链接](https://www.naturalnews.com/2021-12-14-zelenko-calls-covid-vaccines-worst-crime-in-history.html#)
-
-
-
-审核校对：sherryok (水云间)
-
-上传排版：漂流瓶
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

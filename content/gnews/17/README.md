@@ -2,26 +2,25 @@
 ---
 
 
-## 数据显示:接种“病毒疫苗”正在引发数十万人的精神障碍
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1777823/)
+## 美参院通过提名案 伯恩斯出任驻华大使
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1777937/)
 
-本文作者：Rebecca (一切心皆不可得！)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image001-15.png)
-据《自然新闻网》报道，世界卫生组织（WHO）的VigiBase数据显示，至少有121,559名“病毒疫苗“接种者得了一种或多种精神障碍疾病。
+撰文 : 新中国联邦静
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-375.jpeg)
+来源：互联网
 
-最常见的问题是失眠，其次是焦虑、”混乱状态”、睡眠障碍、”紧张”、”迷失方向”、”急性应激障碍”、”不安”、幻觉、抑郁、”情绪低落”、”惊恐发作”、”睡眠质量差”、”谵妄”、”激动”、噩梦、”异常的梦”、饮食障碍、”精神障碍 “或 “急性精神病 “或 “精神病行为”，以及抽搐障碍。
+美国参议院12月16日以75票对18票，通过总统拜登提名资深外交官伯恩斯做驻华大使，填补超过一年的空缺。 65岁的伯恩斯曾任美国驻希腊及北约大使，并担任过国务次卿。伯恩斯10月出席确认提名听证会时，形容中国是地区侵略者，强调要同中国积极竞争，同时在气候变化方面寻求合作。他还批评北京连串作为，促停止在新疆、西藏、香港和台湾的不公正行为。又指华府会坚持一个中国政策，同时依照《台湾关系法》助台维持足够防卫能力。他还说，“我们的责任是让台湾成为一块难啃的骨头。”上任驻华大使布兰斯塔德在去年10月辞职。伯恩斯直至今年8月才获白宫正式提名。
 
-VigiBase还显示了213份接种疫苗后濒死体验报告，57份自杀报告和25份 “爆炸声综合症 “报告，生活新闻网（LifeSiteNews）将这种情况描述为 “听到非常大的噪音，如爆炸、枪声或铙钹声，好像就在他们身边”。
+引用新闻来源
+[https://www.881903.com/news/china/2422107/%E7%BE%8E%E5%9C%8B%E5%8F%83%E8%AD%B0%E9%99%A2%E8%A1%A8%E6%B1%BA%E9%80%9A%E9%81%8E%E7%94%B1%E4%BC%AF%E6%81%A9%E6%96%AF%E5%81%9A%E9%A7%90%E8%8F%AF%E5%A4%A7%E4%BD%BF](https://www.881903.com/news/china/2422107/%E7%BE%8E%E5%9C%8B%E5%8F%83%E8%AD%B0%E9%99%A2%E8%A1%A8%E6%B1%BA%E9%80%9A%E9%81%8E%E7%94%B1%E4%BC%AF%E6%81%A9%E6%96%AF%E5%81%9A%E9%A7%90%E8%8F%AF%E5%A4%A7%E4%BD%BF)
 
-同样，在英国黄卡网站——不良事件报告系统，也收到近3万份因接种病毒疫苗后导致的精神障碍病例的记录。
+* * *
 
-[新闻来源链接](https://www.naturalnews.com/2021-12-14-covid-vaccines-triggering-psychiatric-disorders-hundreds-thousands.html#)
-
-
-
-审核校对：sherryok (水云间)
-
-上传排版：漂流瓶
+***更多资讯***
+[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
 
  
 

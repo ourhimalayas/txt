@@ -2,28 +2,27 @@
 ---
 
 
-## 欧洲受“奥米抗”毒株感染的国家及病例激增
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1777985/)
+## 有声|国安法后 赴英港人激增
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1778177/)
 
-作者：纽约香草山 医疗部 云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-欧洲疾病预防控制中心于当地时间12月20日公告，欧盟及欧洲经济区已经有28国，总共四千六百九十一则“奥米抗”变异病毒感染案病例。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-21-下午11.08.32.png)
-在12月18日，仅英国境内“奥米抗”毒株感染病例已经达到两万五千例，其中有7例死亡。 伦敦市长因此宣布伦敦进入紧急状态，以加速整合各处资源来协助各大医院因应激增的住院人数。据专家估计，目前在伦敦新增的感染案例中，有8成是属于“奥米抗”变异病毒。
+配音：香草山香港部 – 文凯琳
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+当地时间12月15日，据英国外交部发布的报告显示，在新版赴英签证BNO推出后的9个月中，约有8.8万名香港人通过申请该签证前往英国。
 
-此外，截止12月20日，欧盟主要成员国报道“奥米抗”毒株为：挪威2060例、丹麦726例、法国347例、德国249例。
+报告中提及，中共在香港强制推行国安法的一年多时间里，与港共政府利用该法全面镇压香港的异议人士、自由媒体和公民社会。在此期间，港共政府大肆逮捕民主人士，强行关闭香港《苹果日报》。同时，中共还肆意插手香港选举，严重迫害香港的民主人权。
 
-据悉，“奥米抗”变异株的传染力强，在欧洲区域目前的现况是每2至3天，病例数成长一倍。 如果此趋势不变，到明年元月，“奥米抗”将成为欧洲区域内中共病毒传染的主要病毒株，需严加防范。
+为此，英国政府自2021年1月起实施了新版BNO移民签证计划，回应中共在香港地区利用国安法压制政治异议和民主呼声的暴行。
 
-参考链接：
-1）[Omicron擴散歐洲28國 逾4000病例](https://www.cna.com.tw/news/firstnews/202112200340.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-2）[英國Omicron單日增逾1萬例 倫敦進入重大事件狀態](https://www.cna.com.tw/news/firstnews/202112190050.aspx)
+有关人士提到，虽然中共政府仍然狡辩称，其国安法是为了所谓的“恢复香港的秩序和稳定”。但事实表明，中共国安法推行后，香港机场里前往英国的旅客大排长龙。
 
-![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+英国政府也在报告中预测，未来五年中，估计有多达33万名香港人移居英国。
 
-总编：Zion文恩
-编辑：Zion文恩
-校正/发稿：呼吸的雾霾（文小呼吸）
+文字版原文：[国安法后 赴英港人激增](https://gnews.org/zh-hans/1767547/)
+
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
+
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -31,7 +30,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
