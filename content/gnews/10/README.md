@@ -2,40 +2,26 @@
 ---
 
 
-## 国内出现所谓热毒实际上都是疫苗引起的出血脑梗心梗等
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1775860/)
+## 【小一方便面】中共对网红动手，旨在电商税
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/1775937/)
 
-**Rachel****：**我那个问题，七哥，之前我替战友问的问题，就是国内现在的这个热毒国内反应就是有出现，这个需不需要担心？有没有背后的一些信息可以跟战友说明一下？
+加拿大温哥华扬帆农场 我是1，小一
+![](https://assets.gnews.org/wp-content/uploads/2021/12/小一.png)
+12月20日，杭州市税务局查明，网络主播黄薇（网名：薇娅）在2019年至2020年期间，通过隐匿个人收入、虚构业务转换收入性质虚假申报等方式偷逃税款6.43亿元，其他少缴税款0.6亿元，依法对黄薇作出税务行政处理处罚决定，追缴税款、加收滞纳金并处罚款共计13.41亿元。一石激起千层浪。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/小1.png)*图片来源：twitter*
+墙内这二年唯一还能混日子的就2个活口：1）内销直播带货。2）外贸做电商。在全球脱钩，疫情施虐，大企业撤离，总体营商环境严重恶化的情况下，这是二根独木桥，千军万马踩踏而死！即便是这样，中共对他们还是要整治，下手，根本不考虑千千万万小老百姓的生活。
 
-**郭文贵先生：**所有的热毒，现在我们了解实际上就都是疫苗的后果，根本不是什么热毒，就是疫苗，疫苗接下去的所有结果，就是出血、脑梗、心梗、心包炎、心肌炎，肛梗不是开玩笑，肛门梗，因为肛门那块儿是最重要的是一个身上，眼梗。
+中共稽查偷税漏税只是一个由头，早不查完不查，人家直播了这么久，为什么今天才开始查？
+![](https://assets.gnews.org/wp-content/uploads/2021/12/小2.jpeg)*图片来源：twitter*
+作者认为，中共核心目的是要准备大规模收取“电商税”，杀薇娅，只是立威，树典型。中共在所有动手前，一定会树立典型，拉仇恨，发动人民群众去憎恨，然后“党国”出手锄奸，大快人心。永远一样的套路，一样的配方。
 
-就是凡是这些东西，这根本不是什么出血热病毒的问题，全是疫苗后期症，还会有更多这样的症状，就是你但凡有点儿常识你就知道，我在这个非洲得了疟疾的后边儿反应症是什么，七哥打过20几针疫苗，我不反疫苗的啊，我反的是假疫苗，我反的是共产党病毒的疫苗和强迫打的疫苗，回答完毕，谢谢！
+2021年3月开始，中共就开始大事宣传电商税，有些地方在试点，全面开征是2022年。先给这些小公司一个心理缓冲期，然后开始收紧紧箍咒。微信已经开始对微商的商业支付下手，不许纳税人脱离中共的公司监管体系。现在对直播带货下手，目的就是2022年全面推出“电商税”。电商税的最大问题不是税率是10%还是20%的问题，而是中共秋后算账。举例：你公司前10年一共要补缴100万税款，试问还有多少公司顶得住？到时候上层资本早就圈钱走人，给全社会又是留下一地鸡毛！
 
-编辑整理：海贼王M.D.LUFFY；
+中共的经济一塌糊涂，为了维持这个“烂苹果”，要不停地吸血，现在目标就是要榨干最后的中产阶级。完全顾不得是不是杀鸡取卵了，连地里的小菜苗也要拿来炒菜了。最后的疯狂，战友们保护好自己，没有任何其他的选择。紧跟爆料革命，这是唯一的诺亚方舟。
 
-字幕制作：小满；
+* * *
 
-视频制作及上传：Cindy；
-
-G-News发布：黎明之前；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)，**欢迎订阅油管频道****[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos) ****；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+编辑/发稿：云起时
 
  
 

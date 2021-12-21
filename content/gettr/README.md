@@ -93,14 +93,6 @@ Miles Guo's Latest Song "Hcoin To the Moon" has created 22 historic records so f
 
 ---
 
-**:arrows_clockwise: miles 已轉發**
-
-`@wang1839 12/14/2021 12:38 AM (UTC)`
-
-如果我设计一个治疗新冠和疫苗的临床方案，我会这么设计：<br/>1.新冠病例分为轻型、中型、危重型三类；<br/>1、轻型给与口服2.4mg/kg 青蒿琥酯治疗，一天两次，测量症状消失和RNA转移时间；转阴或症状消失（以时间延后者为准）后维持3天治疗结束。<br/>2、中型：给与 口服3.6mg/kg 青蒿琥酯治疗，同时配合NAC、ZINC 750MG 50MG治疗，儿童减半。测量症状消失和RNA转移时间；转阴或症状消失（以时间延后者为准）后维持3天治疗结束。<br/>3、危重型： 给与静脉注射4.8mg/kg 青蒿琥酯治疗，一天两次，同时配合地塞米松、NAC、ZINC治疗，可以使用脂质纳米颗粒维生素C、D3、E配合治疗；后维持3天治疗结束。，3天测量一次免疫学指标，以免疫学指标正常、症状消失和RNA转移时间转阴或症状消失（以时间延后者为准）后维持3天治疗结束。<br/>欢迎提出不同意见。
-
----
-
 `@miles 12/19/2021 3:47 PM (UTC)`
 
 On Dec 18, 2021 The actual controller and owner of Zhongzhi Enterprise Group died suddenly. <br/>As early as Oct 15, 2017, Miles Guo had revealed that the founder and Chairman of Zhongzhi Enterprise Group and his brother have a very unusual tie with Wang Qishan’s family. On Nov 7, 2019, Miles Guo again blew the whistle that a financial group owned by a Chinese celebrity’s husband will collapse, indicating Chinese singer Mao Amin’s husband Xie Zhikun.<br/><br/>中植企业集团实际控制人解直锟于2021年12月18日猝然离世。<br/>早在2017年10月15日，郭文贵先生就在直播中爆料中植企业集团创始人和主席解直锟和其弟与王歧山家族有非同一般的关系。2019年11月7日，郭文贵先生又爆料一位明星的老公的金融集团即将倒闭，暗指毛阿敏的老公解直锟.
@@ -154,6 +146,13 @@ CCTV, the crazy CCP’s mouthpiece, shirking responsibility for creating the vir
 
 12/17/2021 Miles Guo: Xi Jingping has made up his mind to adopt the governing approach of North Korea. Xi has the characteristics of all dictators. 1）instigate conflicts bewtween the rich and poor, between the religious and ethnic groups. 2) ensure the succession of his descendants at any cost. 3) animosity to the entire world<br/><br/>12/17/2021 文贵直播: 习近平决心走北朝鲜之路来统治中国。他具备所有独裁者的特征！1)制造贫富，宗教，民族等矛盾；2)确保自己儿女继承权位； 3)无情杀戮；4)仇恨全世界。<br/>
 ![img](https://media.gettr.com/group49/getter/2021/12/18/22/cc227a03-df82-5ec3-782d-7fe793cd0314/out.jpg)
+
+---
+
+`@miles 12/18/2021 4:05 PM (UTC)`
+
+<br/>12月18号：共产党的经济的全面的即将崩溃……和到处抢劫财富的导致的社会动乱……和大量的抓朴公检法．金融部门官员！现在又要求在半年内让中国的医院和医疗企业部门上交1．5万亿支持所谓的国家战略转型期意味着什么？
+![img](https://media.gettr.com/group18/getter/2021/12/18/16/b3d84aba-add9-e9e2-dd9f-69c17553d92a/out.jpg)
 
 ---
 
