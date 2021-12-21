@@ -2,41 +2,35 @@
 ---
 
 
-## 美国前线医生组织发誓要开设自己的诊所
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1775673/)
+## 订单没有了制造业还缺人吗？
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1775692/)
 
-#### **【雅典娜快讯】，紧贴时代脉搏**
+【**国内新闻短评**】
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/疫苗-2.png)图片来源：Children’s Health Defense
+**澎湃新闻2021-12-15报道：年轻人不爱进工厂，制造业用工缺口怎么填**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/adtul-ihyhj.jpg)**图片来源：新闻稿原文（新华社记者 王建威 摄）**![](https://assets.gnews.org/wp-content/uploads/2021/12/iamq6p-x6e25.jpg)
+**短评：**
 
+**在世界争先恐后和中国经济脱钩的大背景下，还有人大言不惭说人工紧缺？这个主编是不是疫苗针打多了出现副作用了？老百姓接不开锅了还在取乐。**
 
-####  整理报道：文泓
+**中国失业状况不言而喻，仅“房地产爆雷”给相关行业带来的冲击就够喝一壶的，建筑材料相关的铁矿厂、钢厂、水泥厂、木材厂、水电设备厂、装饰材料厂，这些失业工人有多少？建筑工、木工、水电工、装修工、搬运工，这些失业人员又有多少？**
 
-当地时间12月20日，美国前线医生组织（AFLDS）反对政府通过强制接种实验性疫苗和其他限制措施来阻止新冠病毒的传播，并承诺开设自己的诊所，邀请专业医务人员和药剂师加入。
+**咋不说因为新疆种族大屠杀给轻纺业带来的后果：从棉花种植到深加工，一条龙的企业都下马，做出口加工的下岗多少人计算过吗？澎湃社招牌啥时改招工办了？还是别有用心？**
 
-AFLDS及其相关公司目前正在接受国会的调查，而加州医疗委员会正在调查这个组织的创始人西蒙·戈尔德，因为主流媒体在呼吁剥夺她在该州的行医执照。
-然而，所有的压力和法律困境并没有影响该组织进一步扩大其在美国的业务的计划。
+**经过中共新冠病毒施虐二年以后，全球经济大幅衰退之际，制造业有订单吗？通货膨胀加上通货紧缩，制造出来的兵马俑给中南海用吗？瞪着眼说瞎话，就你聪明，算你狠。**
 
-戈德医生在上周向支持者分发的一份通讯中说，“AFLDS将在未来几个月内开设第一家医疗诊所，不久之后还将计划开设更多的诊所”。邮件中没有提到这家处女诊所的地点和开业日期。
-她重申了美国医务工作者在大流行病期间，“被腐败的国家和政府行为者剥夺了（行医）权利”的说法。
-该通讯包括一个特殊的表格，以便医生和药剂师能够“不受干扰”地照顾他们的病人，对他们来说，“在良好的环境下行医意味着……而不是屈服于医院的不合理的强制要求”。
-戈尔德是1月6日在国会大厦前总统唐纳德·川普支持者之一，现在因这些事件面临几项指控。目前这位急诊医生成为政治人物，在推特上有大约38万名追随者。
+**文章观点仅代表作者个人，与gnews平台无关**
 
-今年5月，该组织起诉美国公共卫生服务部给儿童接种疫苗，“我们医生支持疫苗，但这不是疫苗，”AFLDS创始人、医学博士戈尔德在一份声明中说：“这是一种实验性生物制剂，其危害有据可查（尽管受到压制和审查）并且增长迅速，我们不会支持将美国儿童用作豚鼠。”
-她的个人账户和拥有20多万追随者的AFLDS账户页面，被该组织用来传播与疫苗接种和冠状病毒限制危险有关的视频和其他材料。
-对“美国前线医生组织”及其创始人活动的调查是在今年8月和9月媒体披露后启动的。《时代》杂志和《拦截》杂志声称，与该组织有关的在线医疗保健公司赚取了数百万美元。
+**新闻链接**：**https://m.thepaper.cn/newsDetail\_forward\_15850039**
 
-新闻链接：
-1、[Anti-vax group vows to open own clinics — RT USA News](https://www.rt.com/usa/543776-aflds-clinnic-vaccine-investigation/)
-2、[Simone Gold’s Group Sues to Stop COVID Shots for Kids | MedPage Today](https://www.medpagetoday.com/special-reports/exclusives/92807)
+素材：洛杉矶盘古农场–鲁西西
+评论：洛杉矶盘古农场–大浪淘沙
+编审：洛杉矶盘古农场–心照
+发布：洛杉矶盘古农场 —彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-**发布：文泓**
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
