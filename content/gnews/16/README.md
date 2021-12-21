@@ -2,22 +2,33 @@
 ---
 
 
-## 美国华盛顿特区的一家广播电台接受了中共440万美元为其做宣传
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1776422/)
+## 辉瑞·拜恩泰科疫苗中含有未被批准用于人体的成分
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1776511/)
 
-翻译：zzballack
-上传：追着曙光跑
+撰稿：文月
+![](https://assets.gnews.org/wp-content/uploads/2021/12/213.png)图片来自网络
+最近的研究结果显示，Conmirnaty (Biontech & Pfizer)，也就是辉瑞和拜恩泰科品牌的疫苗主要成分中，包括了一些未被批准用于人体的成分。
 
-据《华盛顿自由灯塔》（Washington Free Beacon）12月20日报道，根据《外国代理人登记法》，总部设在弗吉尼亚州的波托马克媒体集团（Potomac Media Group）12月16日向司法部提交了一份最新披露文件。文件详细说明了它与中宣部下属机构国际传播规划局（International Communication Planning Bureau）之间利润丰厚的合同。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Image-2021-12-21-at-14.23.18.jpeg)图片来源：原新闻
-根据文件，中共与波托马克媒体集团旗下的、位于华盛顿特区的WCRW广播电台签署了一笔价值440万美元的合同，涵盖时间从2019年7月至2021年8月。合同要求WCRW电台广播宣传中国环球电视网CGTN的内容和一系列正面描述中共的谈话节目、社交媒体推广、以及制作脱口秀节目《桥》（The Bridge）。国际传播规划局可以审查并核实广播节目。波托马克媒体被要求向规划局提供关于受众范围、反馈和“国际组织的评价”的报告。
+Comirnaty接种疫苗成分其中都包含什么？研究人员发现了两种物质：一个是((4-hydroxybutyl)azanediyl)bis(hexane-6,1-diyl)bis(2-hexyl decanoate)（编号ALC-0315），而另一个则是2-[（聚乙二醇）-2000]-N,N-二十四烷基乙酰胺（编号ALC-0159）。这些成分虽然看上去较为复杂，但其实就是我们常说的纳米脂质材料。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/214.png)网络图片（一）![](https://assets.gnews.org/wp-content/uploads/2021/12/215.png)网络图片（二）
+这种脂质纳米颗粒ALC-0159是由一家名为Echelon Biosciences的美国公司生产和经销。产品说明书上明确写着该成分不能用于人体（见图二中红色下划线：ALC-0159本产品仅用于研究，不供人类使用）。
 
-其实自1992年以来，WCRW就一直在播放来自中共官媒中国国际广播电台 (China Radio International) 的内容，但此前并没有向司法部登记为中共的外国代理人。
+另一方面在辉瑞疫苗的接种说明书中还提到：在使用Corminaty之前，应该注意ALC-0159 和ALC-0315等质粒可能会让人出现过敏反应，如果患者对于这些活性物质有任何不良反应，都不应该使用。
 
-北京与WCRW的合作突显了中共在美国的宣传活动范围十分广泛。近年来，由于中共试图转移人们对其侵犯人权行为的注意力，它们的宣传活动已经进入了高潮。中共官媒通过社交媒体和与美国报纸和杂志的出版交易，积极地向美国受众推广其内容。《中国日报》已向《时代周刊》、《外交政策》（Foreign Policy）杂志和《华尔街日报》支付了数百万美元，以便让它们在其官网上发表中共的大外宣文章。中共驻纽约领事馆最近雇用了一家公关公司，通过招募社交媒体上的网红来宣传北京冬奥会。
+在辉瑞12月7日发布的安全数据报告中，没有任何关于上述物质的毒理学评价，例如是否会致癌，是否与其他药物的相互作用。并且，纳米脂质及纳米颗粒ALC-0315和ALC-0159只能用于研究目的应用，由一家技术性公司生产——而并不是制药公司。
 
-信息来源：[CCP Paid DC Radio Station $4.4 Million To Broadcast Propaganda](https://freebeacon.com/media/ccp-paid-dc-radio-station-4-4-million-to-broadcast-propaganda/)
+这些都是对《药品法》的大规模违反——依据法律，任何参与这些疫苗接种的人都将面临高达10年的监禁！
 
+新闻参考链接：
+
+1. 德语视频：[Beate Bahner, 医疗法律专业律师](http://www.beatebahner.de/lib.medien/video_2021-12-20_12-18-55.mp4)
+
+2. ALC-01509: [Echelon-inc.com](https://echelon-inc.com/wp-content/uploads/2021/08/N-2010_TDS_rev1.pdf)
+
+[Pfizer](https://safetydatasheets.pfizer.com/DirectDocumentDownloader/Document?prd=PF00092~~PDF~~MTR~~PFEM~~DE)
+
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

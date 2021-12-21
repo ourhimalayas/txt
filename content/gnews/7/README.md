@@ -2,54 +2,48 @@
 ---
 
 
-## 【玫瑰看新闻】第209期 新西兰本地新闻
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1776568/)
+## 新加坡媒体“偶遇”彭帅 继续为冬奥会洗地
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1776609/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/PHOTO-2021-12-20-00-44-59.jpg)
-🌲新西兰本地新闻
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片-1-33.jpg)
-🦠[新冠病毒](https://www.newshub.co.nz/home/storytag.:storyTag=newshub:story-tags___cd___coronavirus.:offset=0.html)：COVID-19 社区爆发的最新消息 – 12 月 18日，星期六，39 例新病例
-
-新西兰今天有39 例新的 Covid-19 病例。
-
-其中，25个在奥克兰，11个在丰盛湾，2个在湖区，1个在塔拉纳基。
-
-有 49 人住院，其中 5 人在重症监护室或高依赖病房。目前住院患者的平均年龄为 53 岁。
-
-新西兰符合条件的人口中有 94% 接种了第一剂 Covid-19疫苗，90% 接种了第二剂。
-
-已有 4,368,166 次疫苗通行证下载，其中包括 过去 24 小时内的32,526次。
-
-全基因组测序现已在最近的国际抵达中检测到另外四例Omicron。现在共有 8 例在 MIQ 设施中分离出Omicron 变体的病例，社区中没有一例。
-
-🦠新西兰在基督城管理的隔离设施中记录了第一例Omicron，这是最近确定的“关注变种”。
-
-该人从德国经迪拜前往并于 12 月 10 日抵达，目前正在基督城机场设施完成两周的隔离。并且，他们是在已经完全接种疫苗的情况下感染了。
-
-下午 5 点 57 分 – 卫生部发言人表示，接触者追踪者已经确定了 86 名与基督城 Omicron 病例有关的密切接触者
-
-据称，目前新西兰90% 的符合条件的新西兰人已经完全接种了 COVID-19 疫苗。辉瑞 BioNTech 的儿科疫苗也获得了 Medsafe 的临时批准，可用于 5 至 11 岁的儿童。
-
-与此同时，周四，数千人涌入首都，按计划向议会游行，以抗议疫苗接种要求和持续的限制。
-
-你需要知道的：
-
-- 新西兰首例 Omicron 变体病例已在基督城 MIQ 设施中发现。
-- 现在，在塔拉纳基的埃尔瑟姆，许多人的 COVID-19 检测呈阳性。大多数病例是当地学校的学生。
-- 现在，90% 的符合条件的新西兰人已全面接种疫苗。
-- 辉瑞 BioNTech 的 COVID-19 疫苗的儿科版本已获得Medsafe 的临时批准，可用于 5 至 11 岁的儿童。
-
-
-🌲12月17日，下午 5:02 ，据新西兰卫生部称，一名 0 至9 岁的感染了COVID-19 的儿童死亡。
-
-卫生部的病例统计网站于周五下午更新，显示 0 至 9 岁年龄段的单一死亡病例。
-
-这名儿童是新西兰死于 COVID-19 的最年轻的人。 该儿童何时死亡不详。[https://www.newshub.co.nz/home/new-zealand/2021/12/coronavirus-latest-on-covid-19-community-outbreak-friday-december-17.html](https://www.newshub.co.nz/home/new-zealand/2021/12/coronavirus-latest-on-covid-19-community-outbreak-friday-december-17.html)
+作者：纽约香草山文艺部 – 宁文静
 
 
 
-审核校对：Barry Jack
-上传排版：F
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
+12月19日，彭帅现身上海“城市越野滑雪赛”决赛现场，结束后接受新加坡媒体采访。虽然一再强调自己“很自由”，给国际女子网球协会主席的中文信“出自本人意愿”，但反应迟缓言辞闪烁，很难压下质疑之势。
+
+这次的滑雪赛是明年中共国冬奥会的积分赛，只有受邀嘉宾才能观赛。如此低调的现场，而新加坡媒体却能“偶遇”彭帅，并对轰动全世界的事件进行了数分钟的采访。彭帅说，微博是自己所发，属于个人隐私。当被询问是否有人监视，是否自由，她用了反问的语句。写给西蒙的信中文版是自己所写，中共媒体放出的英文版是他人翻译。至于是否出国，彭帅再一次反问没有比赛干嘛要出国。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1.2-10.jpg)
+有分析人士称，从彭帅不自然的言行举止可以看出，她承受着很大的压力。在五眼联盟、日本、比利时等国家已经宣布外交抵制冬奥会，其它国家考虑跟进的时间关口，这个马云投资的媒体采访视频“洗地”嫌疑太大，恐怕收效甚微。
+
+参考链接：
+[中国网球女将彭帅现身上海城市越野滑雪赛 接受《联合早报》采访](https://www.zaobao.com.sg/realtime/china/story20211219-1224709)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+
+总编/编辑：DM
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
