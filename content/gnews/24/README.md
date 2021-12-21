@@ -2,32 +2,36 @@
 ---
 
 
-## 美媒报道：碳中和成中共国本年度关键词
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1776427/)
+## 难掩儿童受害 越南多地叫停新冠疫苗问题批次
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1776496/)
 
-撰稿：喜妈
-![pastedGraphic.png](https://assets.gnews.org/wp-content/uploads/2021/12/B09524FD-09B0-43F0-A088-CC8706DE2F7C.jpeg)
-来自网络截图
+编译：致敬香港！
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-107.png)
+图片来源： The Star
 
-美国彭博社最新报道：“碳中和”应该可以成为中共国2021年度的关键词。报道指出，中共国领导人称中共国“到2060年世界上最大排放国将实现净零排放”。文章指出中共国从诸多方面，如“经济、金融、科技”等都不断提到“碳中和”；该词“已经成为每次会议和演讲的关键词之一”。而且，据报道，中共国的文化和旅游都在显示了中共国社会“日益增长的气候意识”；此举形成“前所未有的炒作和漂绿”。
+据TrialSiteNews 新闻网12月20日报道，越南多地先后出现儿童接种新冠疫苗后的严重不良反应，河内市和清化省先后叫停了相关批次新冠疫苗的儿童接种。
 
-可是文章毫不留情地指出，无论这些中共国的“碳中和”样本显示如何漂亮，如何显示其“减少排放的漂亮技术的描述”，显示“能源或节水量的图表”，展现“与北京最高领导人的话相呼应的口号”都不能说明问题。因为这里“他们经常错过关键的信息：他们的排放量”。也就是说，“制造产品时释放了多少二氧化碳？生产其原材料需要消耗多少燃料？你资助什么样的抵消计划来抵消这些？”
+**儿童接种死亡病例**
 
-同时，文章指出，和“碳中和”有关术语也有“更广泛采用”：“生态”、“清洁”、“绿色”和“环保”。可是这些都普遍存在“含糊不清”和“误导”，“混淆公众”并“掩盖”其污染。报道认为，碳中和“不是一个激动人心的口号，而是一个需要仔细计算和详细行动计划的目标”。
+11 月28日，北江省（Bac Giang）16 岁男孩在接种辉瑞疫苗4天后死亡；
 
-文章引用行业人士称，碳中和与气候问题，“需要面对和回答”。中共领导人于 2020 年 9 月作出气候承诺，有“几家中共国公司宣布了净零排放的截止日期”。可是，“许多提议都是含糊的承诺，而不是具体的措施，有些计划甚至与远离化石燃料的方向背道而驰”。
+11 月28日，河内市15岁女孩在接种疫苗1天后死亡。事件专家小组称，女童出现了最严重的4 级过敏反应，包括呼吸和心脏衰竭，但该过敏反应与疫苗接种无关。
 
-综上所述，笔者认为，这个报道十分真实和无情地指出中共的谎言治国实质。气候问题是中共国号称其对国际社会有担当和责任的所在，可是今年的气候大会，不仅避开不参与，还光是做表面文章，撒谎来敷衍。这样的做法是无耻和邪恶的。一个没有真正具有国际担当和不能兑现其国际承诺的政府，已经没有资格来代表中国国家和人民形象了。
+11月30日，平福省（Binh Phuoc）12岁男孩在接种疫苗1天后死亡；
 
-同时，中共治下，不仅没有能力治理好已经被污染的国土，反而是变本加厉，让低下的燃烧和粗劣的碳排放更加严重。不过好的是，国际社会已经看到了中共的欺骗和敷衍，国际社会也指出中共的做法从各个方面都是无法遮掩的。碳中和成为中共国本年度的关键词，其实很讽刺。这就充分说明中共说得多做得少，是行动的矮子，根本无法行使其管理职能。只有灭共，才能恢复正常的中国国家在国际社会的各种参与以及对自己百姓的关怀。
+12月7日，山萝省（Son La）15 岁男孩在接种疫苗3天后死亡……
 
-参考消息：
+河内市自11月23日展开儿童的新冠疫苗接种，在15岁女童死亡后叫停了相关两个批次（124001号、123002号）辉瑞疫苗的使用。
 
-[2022 Is a Year to Call Out Greenwashing in China](https://www.bloomberg.com/news/articles/2021-12-20/china-s-climate-change-goals-are-creating-a-greenwashing-wave)
+**清化省逾1****20****名学生送院**
 
-*编辑：cindy*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-1.jpg)
+11月30日清化省27个区域为15~17岁的学生展开新冠疫苗接种后，部分学生出现了恶心、呼吸困难、高烧等不良反应，至12月2日中午已有120多人被送院治疗，其中17人症状严重但尚无生命危险。该省卫生部门当日叫停了相关批次的疫苗接种，但其疾控中心主任Luong Ngoc Truong称将继续为儿童接种其他批次的疫苗，暂停的批次以后可用于成年人等其他群体。
 
+辉瑞和莫德纳的新冠疫苗被越南政府批准用于儿童，并将分成16-17岁 、12-15岁和 3-11岁三个年龄组先后展开接种。 该计划实施不久后，各地就先后出现多种不良反应，越南卫生部门则称这些反应“与疫苗的质量或疫苗接种方法无关”，并一再强调疫苗安全有效。
+
+**新闻来源：**
+
+[PFIZER-BIONTECH VACCINES WITHHELD FROM VIETNAMESE CHILDREN AFTER SPATE OF DEATHS & AEs](https://trialsitenews.com/pfizer-biontech-vaccines-withheld-from-vietnamese-children-after-spate-of-deaths-aes/)[More than 120 children were hospitalized after vaccination, Thanh Hoa stopped the batch of vaccines](https://vnexpress.net/hon-120-tre-nhap-vien-sau-tiem-thanh-hoa-dung-lo-vaccine-4397532.html)[Why has Hanoi temporarily stopped giving Covid-19 vaccines to children?](https://nld.com.vn/suc-khoe/vi-sao-ha-noi-tam-dung-tiem-vac-xin-covid-19-cho-tre-em-20211201102254986.htm)[3rd child in Vietnam dies after Covid vaccination](https://e.vnexpress.net/news/news/3rd-child-in-vietnam-dies-after-covid-vaccination-4396697.html)[4th child dies after Pfizer vaccine injection in Vietnam](https://e.vnexpress.net/news/news/4th-child-dies-after-pfizer-vaccine-injection-in-vietnam-4400466.html)
 
  
 

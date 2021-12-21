@@ -2,49 +2,63 @@
 ---
 
 
-## 【玫瑰看新闻】第209期 疫苗灾难新闻
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1776479/)
+## 【玫瑰看新闻】第209期 中共病毒新闻
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1776513/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/PHOTO-2021-12-20-00-44-59-3.jpg)
-[亚利桑那州立法者呼吁结束实施违宪的疫苗强制令](https://www.thegatewaypundit.com/2021/12/epic-az-lawmakers-call-doug-ducey-end-mandates-former-phoenix-chief-staff-rips-vaccine-card-never/)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片-1-31.jpg)
-据《门户网》2021年12月8日报道，大约一千名员工在亚利桑那州议会大厦外集会抗议，并且致电亚利桑那州州长Doug Ducey（杜西）要求停止执行拜登的违宪疫苗授权任务；组织者梅丽莎·汉密尔顿 (Merissa Hamilton) 表示，由于草根爱国者所承诺的民事诉讼，凤凰城宣布法院已搁置所有联邦授权。他们声称这不是城市授权，而是联邦授权。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/PHOTO-2021-12-20-00-45-00.jpg)
+南非总统新冠病毒检测结果呈阳性
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片-1-32.jpg)來源：拉馬福薩Twitter
+南非总统府网站发布消息称，12日早些时候，总统西里尔·拉马福萨在离开南非前总统德克勒克的国家纪念馆后开始感到不适，随后，其新冠病毒检测结果报告呈阳性。
 
-亚利桑那州众议员马克芬肯称这项违宪授权为“我们时代的民权行动”，他呼吁立即召开特别会议以制止侵犯民权的行为。
+南非总统府说：总统已经完成了疫苗接种，正在开普敦自觉隔离。现已将总统对未来一周的全部责任委托给马布扎副总统。
 
-[洛杉矶愤怒的母亲说13 岁的儿子在奥巴马全球预备学院未经她同意就被接种疫苗](https://www.thegatewaypundit.com/2021/12/watch-outraged-mother-says-13-year-old-son-vaccinated-without-consent-obama-global-prep-academy-la-school-bribed-pizza/)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-16.jpg)
-据《门户网》2021年12月7日报道，一位加利福尼亚母亲本周震惊，因为她发现她 13 岁儿子的学校在未经她同意的情况下强迫被接种实验性 COVID 疫苗。
+[美国因 COVID-19 造成的死亡人数超过80万](https://apnews.com/article/coronavirus-pandemic-health-united-states-41fd85092ef5571515afbb923b8a06ef)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片-2-6.jpg)
+据周二消息报道，个曾经难以想象的数字被视为双重悲剧，因为在去年春天疫苗几乎可供询问后，有超过 200,000 人丧生。
 
-周二，玛丽贝尔·杜阿尔特 (Maribel Duarte) 告诉[NBC 4 新闻](https://www.google.com/amp/s/www.nbclosangeles.com/news/local/mom-says-son-vaccinated-in-exchange-for-pizza-at-lausd-without-her-consent/2773619/%3famp)，她的儿子在洛杉矶的[巴拉克奥巴马全球预备学院](https://obamaprepacademy-lausd-ca.schoolloop.com/)接受了学校官员提供的披萨，以换取疫苗接种，此后带回了一张疫苗卡。
+约翰霍普金斯大学汇编的死亡人数大约等于亚特兰大和圣路易斯的人口总​​和。这个数据大致相当于每年有多少美国人死于心脏病或中风。
 
-当儿子告诉她，校官让他“不要说”这件事时，她的震惊很快变成了愤怒。
+目前，美国是所有国家中报告的死亡人数最高的国家。
 
-杜阿尔特说，学校的行为尤其令人担忧，因为她的儿子有哮喘和过敏问题，她担心在接受实验性注射后可能会出现问题。她反对儿子接种疫苗。毫无疑问，这是她完全有权做出的决定，但这些疯狂人却在未经她同意的情况下不道德地哄骗了她的儿子接种疫苗。
+[津巴布韦禁止未接种疫苗的人使用公共交通工具](https://insiderpaper.com/zimbabwe-to-ban-unvaccinated-from-using-public-transport/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片-3-8.jpg)
+津巴布韦政府对该国越来越多[的 Covid-19 病例](https://insiderpaper.com/singapore-records-715-new-covid-cases/)表示严重关切，称这些[病例](https://insiderpaper.com/singapore-records-715-new-covid-cases/)是由 Omicron 变种引起的，并已宣布计划禁止未接种疫苗的人使用公共交通工具。
 
-正在“密切关注”针对洛杉矶学区的疫苗强制案例的律师詹妮弗肯尼迪表示，任何学区都无权要 求学生接种疫苗——更不用说在没有父母签字的情况下给他们接种了——因为正如她指出的，儿童还不能自己同意接种疫苗。
+据报道，上周新冠病毒病例每日病例呈指数级增长，从 11 月 28 日的 40 例增加到周一的 2,555 例。
 
-校官以学生的隐私为由拒绝直接评论这一事件。
+穆茨万瓦表示[，政府](https://insiderpaper.com/heres-how-pfizer-exploits-secretive-vaccine-contracts-to-strong-arm-governments/)将在主要市内和城际巴士总站设立疫苗接种站，以确保未接种疫苗的人在上车前可以自愿接种疫苗。而那些没有有效疫苗接种卡的人，最终将被拒绝乘坐公共交通工具。她还说，卫生部和教育部将继续合作为学校16-17 岁的儿童接种疫苗。根据官方数据，截至周一，该国的 Covid-19 病例总数为141,601，治愈 128,966 例，死亡 4,713 例。共有3,882,255 人接受[了第一次](https://insiderpaper.com/austria-imposes-full-nationwide-lockdown-makes-covid-vaccine-jabs-mandatory/)接种，2,892,366 人接受了第二次接种。津巴布韦的目标是到年底为 60% 的人口接种疫苗。
 
-[华盛顿海军指挥官因拒绝接种疫苗而被解雇](https://www.washingtontimes.com/news/2021/dec/10/lucian-kins-navy-commander-fired-over-vaccine-refu/)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片-3-7.jpg)
-美联社在 2021 年 12 月 10 日报道：
+[柳叶刀：大规模疫苗接种未能阻止 COVID 传播率](https://dailytelegraph.co.nz/news/mass-vaccination-fails-to-halt-covid-transmission-rates-the-lancet-2/)
 
-华盛顿一位海军官员表示，一名海军军舰执行官指挥官被解雇了，因为他拒绝按要求接种 COVID-19 疫苗并拒绝接受病毒检测。
+12月2日据【每日电讯报】报道：
 
-第14[海军水面中队](https://www.washingtontimes.com/topics/naval-surface-squadron/)指挥官、海军上尉肯·安德森 (Lucian Kins) 解除了驱逐舰温斯顿·丘吉尔 (USS Winston Churchill)军舰二把手的职务。 官员们表示，金斯 ( Lucian Kins)是第一位因拒绝接种疫苗而被解雇的海军军官。
+根据《柳叶刀》杂志的一项医学研究，成功的疫苗推广不萌阻止 Covid 传播。新数据显示，这种病毒在完全接种疫苗者的个体中的流行率正在增加。
 
-官员们在不愿透露姓名的情况下发言讨论了人事问题。五角大楼已强制要求所有服役人员接种疫苗，海军人员必须在11 月下旬之前接种疫苗或申请豁免。数以千计的军人要求宗教豁免，但到目前为止，没有得到任何军事部门批准。
+在德国的新感染病例中，研究人员发现 60 岁及以上完全接种疫苗者的感染率从 7 月份的 16.9% 上升到 10 月份的58.9%。
 
-[辉瑞老板、福奇博士声称可能每年都需要注射疫苗](https://insiderpaper.com/pfizer-boss-dr-fauci-warn-vaccine-shots-may-be-needed-every-year/)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片-4-9.jpg)
-自从[Covid-19](https://insiderpaper.com/new-heavily-mutated-b-1-1-529-covid-19-coronavirus-variant-affecting-those-under-25-officials/)于 2020[年出现](https://insiderpaper.com/new-heavily-mutated-b-1-1-529-covid-19-coronavirus-variant-affecting-those-under-25-officials/)以来，世界动态发生了巨大变化。戴口罩、保持社交距离、隔离、消毒，甚至在接种疫苗后，中共病毒感染的威胁似乎并没有消失。
+该研究还提供了一个明确的评估，即完全接种疫苗者正日益成为 Covid 传播的来源。
 
-然而，根据安东尼·福奇最近又发布了蛊惑人心的言论：他建议美国人准备好每年进行加强注射，他声称，这样才能保持高水平的保护以防止感染。
+该评估还确定了英国的类似情况：在整个英国，未接种疫苗的家庭病例患者数量 为23%略低于疫苗接种者的数量25%。
 
-此外，根据美国有线电视新闻网的报道，福奇还表示，“目前，我们所能做的就是等待，观察Omicron对世界的影响。最好的结果是通过现有的疫苗接种获得增强的免疫力，并将根据全球大流行的发展情况来处理情况。”他还希望通过[加强注射](https://insiderpaper.com/brazil-to-give-all-adults-covid-19-booster-shots/)获得所谓的持久性免疫力。在其他新闻中，[辉瑞公司的老板也](https://insiderpaper.com/covid-infection-risk-increases-gradually-post-second-pfizer-vaccine-shot-study/)声称，建议英国人准备每年接受一次疫苗接种。
+英国在三周内，60 岁或以上的人群中报告了 100 例Covid 病例。在这些感染中，89.7% 的人完全接种了疫苗，而 3.4% 的人未接种疫苗。
 
-随着本世纪的这场疫苗灾难愈演愈烈，各国疫苗强制令的压力依然在不断增大。我们要不断强调提示：爱惜生命，远离疫苗！
+除此以外，更让研究人员担忧的是，在以色列，一场感染了多名医护人员和患者及其家人的疫情来源来自一名完全接种疫苗的医院患者。
+
+目前因为这种担忧，美国疾病控制与预防中心 (CDC) 已经将美国完全接种疫苗者比例最高的五个地区中的四个列为高传播县。研究人员还警告说，决策者必须承认接种疫苗者仍然存在风险。
+
+在决定公共卫生控制措施时，如果忽视已经接种疫苗的人群，这会是一个可能的病毒传播来源，这似乎是一种严重的疏忽。
+
+《柳叶刀》发表的这项研究适逢各国政府正在权衡实施Covid 疫苗授权应对omicron 变体传播和患病者病例数量潜在回升之际。希腊成为欧盟第一个实施 Covid 疫苗强制性要求的国家，并且，还以每月罚款来威胁所有未接种疫苗的 60 岁以上的人。
+
+[洛杉矶学校推迟对学生进行 COVID-19 疫苗接种](https://apnews.com/article/coronavirus-pandemic-health-education-california-los-angeles-aec10c9f37163865f946ebc8f0707a00)
+
+洛杉矶学区是最早被宣布为强制学生接种 COVID-19 疫苗的学区之一。周二晚，洛杉矶联合学区董事会投票决定推迟1 月 10 日为12 岁以上学生接种疫苗及到校园上课的截止日期，将截止日期移至 2022 年秋季。到目前为止，该年龄组的 87% 的洛杉矶学生已出示疫苗接种证明或有资格获得医疗豁免。
+
+但是，有官员们表示，强制执行 1 月的最后期限会扰乱太多学生的教育。它将禁止大约 27,000 名未接种疫苗的学生进入校园。
+
+纽约市的学校系统只要求学生为高风险的课外活动接种疫苗，如乐队、管弦乐队、足球、篮球和摔跤。那里的学校工作人员必须在 10 月之前接种疫苗。
+
+其他几个州则反其道而行之，包括佛罗里达州、德克萨斯州和阿拉巴马州，这些州的措施可能会限制官员或学区对学生强制接种病毒疫苗。
 
 
 

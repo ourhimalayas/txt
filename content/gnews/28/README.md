@@ -2,38 +2,21 @@
 ---
 
 
-## 中共房地产毁掉两代人、三代人、四代人，让你成为房奴
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1776387/)
+## 美国华盛顿特区的一家广播电台接受了中共440万美元为其做宣传
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1776422/)
 
-**郭文贵先生：**更重要的事情，我们这位战友的娘说了一句话，她说：“你知道我在我们老家现在发生什么？我们在老家的房子，现在政府登记完以后，马上要求你，答应像咱们喜币要币加锁一样，他们叫币加房（口误：房加锁），3到5年内不能卖，因为你曾经有过三套房。
+翻译：zzballack
+上传：追着曙光跑
 
-这是已经到了这不是已经共产，已经不是抢钱，已经不是山东养狗啊——警察告诉你养狗100块人民币。现在房子3年锁房，而且银行给你的造假提前交3年物业管理费，银行贷给你的物业管理费。房地产现在是共产党（想）捂住捂不住的在“裤裆下那个大窟窿”了已经。这是个天大的事情，这为什么今天我们还要继续谈房产，让所有的国内同胞们你们一定要记住，我们告诉你今天的话，房地产会毁掉你两代人、三代人、四代人，或者你成为房奴。
+据《华盛顿自由灯塔》（Washington Free Beacon）12月20日报道，根据《外国代理人登记法》，总部设在弗吉尼亚州的波托马克媒体集团（Potomac Media Group）12月16日向司法部提交了一份最新披露文件。文件详细说明了它与中宣部下属机构国际传播规划局（International Communication Planning Bureau）之间利润丰厚的合同。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Image-2021-12-21-at-14.23.18.jpeg)图片来源：原新闻
+根据文件，中共与波托马克媒体集团旗下的、位于华盛顿特区的WCRW广播电台签署了一笔价值440万美元的合同，涵盖时间从2019年7月至2021年8月。合同要求WCRW电台广播宣传中国环球电视网CGTN的内容和一系列正面描述中共的谈话节目、社交媒体推广、以及制作脱口秀节目《桥》（The Bridge）。国际传播规划局可以审查并核实广播节目。波托马克媒体被要求向规划局提供关于受众范围、反馈和“国际组织的评价”的报告。
 
-字幕来源：[2021年12月15日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1762636/)；
+其实自1992年以来，WCRW就一直在播放来自中共官媒中国国际广播电台 (China Radio International) 的内容，但此前并没有向司法部登记为中共的外国代理人。
 
-视频制作：小满；
+北京与WCRW的合作突显了中共在美国的宣传活动范围十分广泛。近年来，由于中共试图转移人们对其侵犯人权行为的注意力，它们的宣传活动已经进入了高潮。中共官媒通过社交媒体和与美国报纸和杂志的出版交易，积极地向美国受众推广其内容。《中国日报》已向《时代周刊》、《外交政策》（Foreign Policy）杂志和《华尔街日报》支付了数百万美元，以便让它们在其官网上发表中共的大外宣文章。中共驻纽约领事馆最近雇用了一家公关公司，通过招募社交媒体上的网红来宣传北京冬奥会。
 
-视频上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+信息来源：[CCP Paid DC Radio Station $4.4 Million To Broadcast Propaganda](https://freebeacon.com/media/ccp-paid-dc-radio-station-4-4-million-to-broadcast-propaganda/)
 
  
 

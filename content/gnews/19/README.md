@@ -2,63 +2,49 @@
 ---
 
 
-## 【玫瑰看新闻】第209期 中共病毒新闻
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1776513/)
+## 【玫瑰看新闻】第209期 新西兰本地新闻
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1776568/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/PHOTO-2021-12-20-00-45-00.jpg)
-南非总统新冠病毒检测结果呈阳性
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片-1-32.jpg)來源：拉馬福薩Twitter
-南非总统府网站发布消息称，12日早些时候，总统西里尔·拉马福萨在离开南非前总统德克勒克的国家纪念馆后开始感到不适，随后，其新冠病毒检测结果报告呈阳性。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/PHOTO-2021-12-20-00-44-59.jpg)
+🌲新西兰本地新闻
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片-1-33.jpg)
+🦠[新冠病毒](https://www.newshub.co.nz/home/storytag.:storyTag=newshub:story-tags___cd___coronavirus.:offset=0.html)：COVID-19 社区爆发的最新消息 – 12 月 18日，星期六，39 例新病例
 
-南非总统府说：总统已经完成了疫苗接种，正在开普敦自觉隔离。现已将总统对未来一周的全部责任委托给马布扎副总统。
+新西兰今天有39 例新的 Covid-19 病例。
 
-[美国因 COVID-19 造成的死亡人数超过80万](https://apnews.com/article/coronavirus-pandemic-health-united-states-41fd85092ef5571515afbb923b8a06ef)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片-2-6.jpg)
-据周二消息报道，个曾经难以想象的数字被视为双重悲剧，因为在去年春天疫苗几乎可供询问后，有超过 200,000 人丧生。
+其中，25个在奥克兰，11个在丰盛湾，2个在湖区，1个在塔拉纳基。
 
-约翰霍普金斯大学汇编的死亡人数大约等于亚特兰大和圣路易斯的人口总​​和。这个数据大致相当于每年有多少美国人死于心脏病或中风。
+有 49 人住院，其中 5 人在重症监护室或高依赖病房。目前住院患者的平均年龄为 53 岁。
 
-目前，美国是所有国家中报告的死亡人数最高的国家。
+新西兰符合条件的人口中有 94% 接种了第一剂 Covid-19疫苗，90% 接种了第二剂。
 
-[津巴布韦禁止未接种疫苗的人使用公共交通工具](https://insiderpaper.com/zimbabwe-to-ban-unvaccinated-from-using-public-transport/)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片-3-8.jpg)
-津巴布韦政府对该国越来越多[的 Covid-19 病例](https://insiderpaper.com/singapore-records-715-new-covid-cases/)表示严重关切，称这些[病例](https://insiderpaper.com/singapore-records-715-new-covid-cases/)是由 Omicron 变种引起的，并已宣布计划禁止未接种疫苗的人使用公共交通工具。
+已有 4,368,166 次疫苗通行证下载，其中包括 过去 24 小时内的32,526次。
 
-据报道，上周新冠病毒病例每日病例呈指数级增长，从 11 月 28 日的 40 例增加到周一的 2,555 例。
+全基因组测序现已在最近的国际抵达中检测到另外四例Omicron。现在共有 8 例在 MIQ 设施中分离出Omicron 变体的病例，社区中没有一例。
 
-穆茨万瓦表示[，政府](https://insiderpaper.com/heres-how-pfizer-exploits-secretive-vaccine-contracts-to-strong-arm-governments/)将在主要市内和城际巴士总站设立疫苗接种站，以确保未接种疫苗的人在上车前可以自愿接种疫苗。而那些没有有效疫苗接种卡的人，最终将被拒绝乘坐公共交通工具。她还说，卫生部和教育部将继续合作为学校16-17 岁的儿童接种疫苗。根据官方数据，截至周一，该国的 Covid-19 病例总数为141,601，治愈 128,966 例，死亡 4,713 例。共有3,882,255 人接受[了第一次](https://insiderpaper.com/austria-imposes-full-nationwide-lockdown-makes-covid-vaccine-jabs-mandatory/)接种，2,892,366 人接受了第二次接种。津巴布韦的目标是到年底为 60% 的人口接种疫苗。
+🦠新西兰在基督城管理的隔离设施中记录了第一例Omicron，这是最近确定的“关注变种”。
 
-[柳叶刀：大规模疫苗接种未能阻止 COVID 传播率](https://dailytelegraph.co.nz/news/mass-vaccination-fails-to-halt-covid-transmission-rates-the-lancet-2/)
+该人从德国经迪拜前往并于 12 月 10 日抵达，目前正在基督城机场设施完成两周的隔离。并且，他们是在已经完全接种疫苗的情况下感染了。
 
-12月2日据【每日电讯报】报道：
+下午 5 点 57 分 – 卫生部发言人表示，接触者追踪者已经确定了 86 名与基督城 Omicron 病例有关的密切接触者
 
-根据《柳叶刀》杂志的一项医学研究，成功的疫苗推广不萌阻止 Covid 传播。新数据显示，这种病毒在完全接种疫苗者的个体中的流行率正在增加。
+据称，目前新西兰90% 的符合条件的新西兰人已经完全接种了 COVID-19 疫苗。辉瑞 BioNTech 的儿科疫苗也获得了 Medsafe 的临时批准，可用于 5 至 11 岁的儿童。
 
-在德国的新感染病例中，研究人员发现 60 岁及以上完全接种疫苗者的感染率从 7 月份的 16.9% 上升到 10 月份的58.9%。
+与此同时，周四，数千人涌入首都，按计划向议会游行，以抗议疫苗接种要求和持续的限制。
 
-该研究还提供了一个明确的评估，即完全接种疫苗者正日益成为 Covid 传播的来源。
+你需要知道的：
 
-该评估还确定了英国的类似情况：在整个英国，未接种疫苗的家庭病例患者数量 为23%略低于疫苗接种者的数量25%。
+- 新西兰首例 Omicron 变体病例已在基督城 MIQ 设施中发现。
+- 现在，在塔拉纳基的埃尔瑟姆，许多人的 COVID-19 检测呈阳性。大多数病例是当地学校的学生。
+- 现在，90% 的符合条件的新西兰人已全面接种疫苗。
+- 辉瑞 BioNTech 的 COVID-19 疫苗的儿科版本已获得Medsafe 的临时批准，可用于 5 至 11 岁的儿童。
 
-英国在三周内，60 岁或以上的人群中报告了 100 例Covid 病例。在这些感染中，89.7% 的人完全接种了疫苗，而 3.4% 的人未接种疫苗。
 
-除此以外，更让研究人员担忧的是，在以色列，一场感染了多名医护人员和患者及其家人的疫情来源来自一名完全接种疫苗的医院患者。
+🌲12月17日，下午 5:02 ，据新西兰卫生部称，一名 0 至9 岁的感染了COVID-19 的儿童死亡。
 
-目前因为这种担忧，美国疾病控制与预防中心 (CDC) 已经将美国完全接种疫苗者比例最高的五个地区中的四个列为高传播县。研究人员还警告说，决策者必须承认接种疫苗者仍然存在风险。
+卫生部的病例统计网站于周五下午更新，显示 0 至 9 岁年龄段的单一死亡病例。
 
-在决定公共卫生控制措施时，如果忽视已经接种疫苗的人群，这会是一个可能的病毒传播来源，这似乎是一种严重的疏忽。
-
-《柳叶刀》发表的这项研究适逢各国政府正在权衡实施Covid 疫苗授权应对omicron 变体传播和患病者病例数量潜在回升之际。希腊成为欧盟第一个实施 Covid 疫苗强制性要求的国家，并且，还以每月罚款来威胁所有未接种疫苗的 60 岁以上的人。
-
-[洛杉矶学校推迟对学生进行 COVID-19 疫苗接种](https://apnews.com/article/coronavirus-pandemic-health-education-california-los-angeles-aec10c9f37163865f946ebc8f0707a00)
-
-洛杉矶学区是最早被宣布为强制学生接种 COVID-19 疫苗的学区之一。周二晚，洛杉矶联合学区董事会投票决定推迟1 月 10 日为12 岁以上学生接种疫苗及到校园上课的截止日期，将截止日期移至 2022 年秋季。到目前为止，该年龄组的 87% 的洛杉矶学生已出示疫苗接种证明或有资格获得医疗豁免。
-
-但是，有官员们表示，强制执行 1 月的最后期限会扰乱太多学生的教育。它将禁止大约 27,000 名未接种疫苗的学生进入校园。
-
-纽约市的学校系统只要求学生为高风险的课外活动接种疫苗，如乐队、管弦乐队、足球、篮球和摔跤。那里的学校工作人员必须在 10 月之前接种疫苗。
-
-其他几个州则反其道而行之，包括佛罗里达州、德克萨斯州和阿拉巴马州，这些州的措施可能会限制官员或学区对学生强制接种病毒疫苗。
+这名儿童是新西兰死于 COVID-19 的最年轻的人。 该儿童何时死亡不详。[https://www.newshub.co.nz/home/new-zealand/2021/12/coronavirus-latest-on-covid-19-community-outbreak-friday-december-17.html](https://www.newshub.co.nz/home/new-zealand/2021/12/coronavirus-latest-on-covid-19-community-outbreak-friday-december-17.html)
 
 
 

@@ -2,45 +2,33 @@
 ---
 
 
-## 房地产绝对导致中共崩塌,战友们能拿一分是一分,赶紧走人
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1776466/)
+## 辉瑞·拜恩泰科疫苗中含有未被批准用于人体的成分
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1776511/)
 
-**郭文贵先生：**那么房地产商你要明白一个问题，你一个60多亿的注册公司，6亿多还是？我不知道恒大，你贷了两万亿的钱呐，这就是个骗局呀！这就是个犯罪集团呐！那哪一家又不是呢？连荣茂都是。
+撰稿：文月
+![](https://assets.gnews.org/wp-content/uploads/2021/12/213.png)图片来自网络
+最近的研究结果显示，Conmirnaty (Biontech & Pfizer)，也就是辉瑞和拜恩泰科品牌的疫苗主要成分中，包括了一些未被批准用于人体的成分。
 
-兄弟姐妹们，所以说这个房地产不是开玩笑的。冬奥会之后房地产崩塌的时候，你会看到无数的人魂飞魄散，为啥叫魂飞魄散？你不是没家了，不是像盘古撵到大街上冻你，零下4度。
+Comirnaty接种疫苗成分其中都包含什么？研究人员发现了两种物质：一个是((4-hydroxybutyl)azanediyl)bis(hexane-6,1-diyl)bis(2-hexyl decanoate)（编号ALC-0315），而另一个则是2-[（聚乙二醇）-2000]-N,N-二十四烷基乙酰胺（编号ALC-0159）。这些成分虽然看上去较为复杂，但其实就是我们常说的纳米脂质材料。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/214.png)网络图片（一）![](https://assets.gnews.org/wp-content/uploads/2021/12/215.png)网络图片（二）
+这种脂质纳米颗粒ALC-0159是由一家名为Echelon Biosciences的美国公司生产和经销。产品说明书上明确写着该成分不能用于人体（见图二中红色下划线：ALC-0159本产品仅用于研究，不供人类使用）。
 
-还有人后面追杀要钱。就像四川我这个老的同事，是吧？人家原来挣的钱，人家买的房子，人家不欠贷款，不欠贷款那你不能卖。在北京有贷款的你现在你要听我的，还要假贷款还利息。你想这是个什么概念？哪有这种不要脸的事情啊！
+另一方面在辉瑞疫苗的接种说明书中还提到：在使用Corminaty之前，应该注意ALC-0159 和ALC-0315等质粒可能会让人出现过敏反应，如果患者对于这些活性物质有任何不良反应，都不应该使用。
 
-人家的房子你不让人家卖，人家贷款它要假贷款还你利息，你现在天下哪有这种事情？！我又要跟你上床，我还不想脱裤子，就这种是吧？这什么概念这是？！所以说房地产今天讲到这儿时候兄弟姐妹们，它一定是会成为中国共产党灭亡的最核心的，一定是导致雪崩的那个关键的雪花。
+在辉瑞12月7日发布的安全数据报告中，没有任何关于上述物质的毒理学评价，例如是否会致癌，是否与其他药物的相互作用。并且，纳米脂质及纳米颗粒ALC-0315和ALC-0159只能用于研究目的应用，由一家技术性公司生产——而并不是制药公司。
 
-所以今天我请兄弟姐妹们但凡有家人的你不要要求结果，一定告诉家人，能拿一块拿一块，能拿一毛拿一毛，赶快走人！这就是今天讲房地产的目的。
+这些都是对《药品法》的大规模违反——依据法律，任何参与这些疫苗接种的人都将面临高达10年的监禁！
 
-字幕来源：[2021年12月15日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1762636/)；
+新闻参考链接：
 
-视频制作：小满；
+1. 德语视频：[Beate Bahner, 医疗法律专业律师](http://www.beatebahner.de/lib.medien/video_2021-12-20_12-18-55.mp4)
 
-视频上传：Cindy；
+2. ALC-01509: [Echelon-inc.com](https://echelon-inc.com/wp-content/uploads/2021/08/N-2010_TDS_rev1.pdf)
 
-G-News发布：小满；
+[Pfizer](https://safetydatasheets.pfizer.com/DirectDocumentDownloader/Document?prd=PF00092~~PDF~~MTR~~PFEM~~DE)
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
