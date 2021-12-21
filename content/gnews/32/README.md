@@ -2,41 +2,44 @@
 ---
 
 
-## 德国下萨克森州法院否决针对零售业的“2G规则”
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1776405/)
+## 房地产绝对导致中共崩塌,战友们能拿一分是一分,赶紧走人
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1776466/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1091.png)*图片来源：dikobraziy /盖蒂图片社*
-来自“信息战”网站2021年12月19日的报道，下萨克森州(Lower Saxony)高等行政法院推翻了在零售行业实施的新冠病毒限制，被称为“2G规则”。德国各地的零售商都提起了反对“2G规则”的诉讼。“2G规则”高度限制了那些没有新冠病毒疫苗护照的人，这些人被禁止进入许多商店、餐馆和文化活动场所。周四，下萨克森州的一家法院叫停了这一影响零售业的规则的实施。法院辩称，这些限制是带有歧视性的。
+**郭文贵先生：**那么房地产商你要明白一个问题，你一个60多亿的注册公司，6亿多还是？我不知道恒大，你贷了两万亿的钱呐，这就是个骗局呀！这就是个犯罪集团呐！那哪一家又不是呢？连荣茂都是。
 
-德国新闻社(German press agency)的德国贸易协会(HDE)总经理斯蒂芬·根特(Stefan Genth)表示，“下萨克森州的判决清楚地表明，“2G规则”不是大部分零售业的一项万无一失的合法接替规则。”根特希望在“2G规则”受到挑战的其他联邦州能够以下萨克森州为榜样。他在一份声明中说：“其他州政府现在也应该考虑到这一点，避免给零售业带来不合理的负担，而不是等到他们的法令再次被法院收集。”
+兄弟姐妹们，所以说这个房地产不是开玩笑的。冬奥会之后房地产崩塌的时候，你会看到无数的人魂飞魄散，为啥叫魂飞魄散？你不是没家了，不是像盘古撵到大街上冻你，零下4度。
 
-自本月早些时候零售业实施“2G规则”以来，零售商一直抱怨销售额急剧下降，以及圣诞节期间实施限制的时机不当。许多商店，包括时装店和电子产品店，只允许那些持有疫苗护照的人进入。
+还有人后面追杀要钱。就像四川我这个老的同事，是吧？人家原来挣的钱，人家买的房子，人家不欠贷款，不欠贷款那你不能卖。在北京有贷款的你现在你要听我的，还要假贷款还利息。你想这是个什么概念？哪有这种不要脸的事情啊！
 
-简评：
+人家的房子你不让人家卖，人家贷款它要假贷款还你利息，你现在天下哪有这种事情？！我又要跟你上床，我还不想脱裤子，就这种是吧？这什么概念这是？！所以说房地产今天讲到这儿时候兄弟姐妹们，它一定是会成为中国共产党灭亡的最核心的，一定是导致雪崩的那个关键的雪花。
 
-原德国总理安格拉·默克尔作为中共政权的“老朋友”，在位时积极配合中共，极力在德国推行实施以中共政权为代表的世界黑暗力量的“毒疫苗”计划，给德国经济和德国人的生活带来了无法估量的损失和困苦。但是，如今的德国正在开始觉醒，这次下萨克森州地方法院的裁决就是先例，希望德国其他地区的法院也能效仿，也希望德国各民间组织和团体能够站出来集体声讨德国政府强推疫苗护照的做法，以尽快在德国结束这场人造灾难。
+所以今天我请兄弟姐妹们但凡有家人的你不要要求结果，一定告诉家人，能拿一块拿一块，能拿一毛拿一毛，赶快走人！这就是今天讲房地产的目的。
 
-德国的“3G，2G规则”：
-3G规则：仅允许已完全接种疫苗者、感染过新冠病毒痊愈者和新冠病毒检测阴性（抗原24小时以内、核酸48小时数以内）者三类人进入餐馆、电影院、会展中心等大部分室内场所；
-2G规则：仅允许已完全接种疫苗者、感染过新冠病毒痊愈者进入上述场所。
-“2G规则”是对“3G规则”的收紧。
+字幕来源：[2021年12月15日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1762636/)；
 
-News Link:[https://www.infowars.com/posts/court-in-german-region-of-lower-saxony-rules-against-vaccine-passports/](https://www.infowars.com/posts/court-in-german-region-of-lower-saxony-rules-against-vaccine-passports/)
+视频制作：小满；
 
-翻译/简评: 希望
+视频上传：Cindy；
 
-PR: Harvey（叶知秋）
+G-News发布：小满；
 
-* * *
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-编辑：【英国伦敦喜庄园编辑部】
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

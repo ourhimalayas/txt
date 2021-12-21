@@ -2,21 +2,36 @@
 ---
 
 
-## 美国华盛顿特区的一家广播电台接受了中共440万美元为其做宣传
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1776422/)
+## 难掩儿童受害 越南多地叫停新冠疫苗问题批次
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1776496/)
 
-翻译：zzballack
-上传：追着曙光跑
+编译：致敬香港！
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-107.png)
+图片来源： The Star
 
-据《华盛顿自由灯塔》（Washington Free Beacon）12月20日报道，根据《外国代理人登记法》，总部设在弗吉尼亚州的波托马克媒体集团（Potomac Media Group）12月16日向司法部提交了一份最新披露文件。文件详细说明了它与中宣部下属机构国际传播规划局（International Communication Planning Bureau）之间利润丰厚的合同。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Image-2021-12-21-at-14.23.18.jpeg)图片来源：原新闻
-根据文件，中共与波托马克媒体集团旗下的、位于华盛顿特区的WCRW广播电台签署了一笔价值440万美元的合同，涵盖时间从2019年7月至2021年8月。合同要求WCRW电台广播宣传中国环球电视网CGTN的内容和一系列正面描述中共的谈话节目、社交媒体推广、以及制作脱口秀节目《桥》（The Bridge）。国际传播规划局可以审查并核实广播节目。波托马克媒体被要求向规划局提供关于受众范围、反馈和“国际组织的评价”的报告。
+据TrialSiteNews 新闻网12月20日报道，越南多地先后出现儿童接种新冠疫苗后的严重不良反应，河内市和清化省先后叫停了相关批次新冠疫苗的儿童接种。
 
-其实自1992年以来，WCRW就一直在播放来自中共官媒中国国际广播电台 (China Radio International) 的内容，但此前并没有向司法部登记为中共的外国代理人。
+**儿童接种死亡病例**
 
-北京与WCRW的合作突显了中共在美国的宣传活动范围十分广泛。近年来，由于中共试图转移人们对其侵犯人权行为的注意力，它们的宣传活动已经进入了高潮。中共官媒通过社交媒体和与美国报纸和杂志的出版交易，积极地向美国受众推广其内容。《中国日报》已向《时代周刊》、《外交政策》（Foreign Policy）杂志和《华尔街日报》支付了数百万美元，以便让它们在其官网上发表中共的大外宣文章。中共驻纽约领事馆最近雇用了一家公关公司，通过招募社交媒体上的网红来宣传北京冬奥会。
+11 月28日，北江省（Bac Giang）16 岁男孩在接种辉瑞疫苗4天后死亡；
 
-信息来源：[CCP Paid DC Radio Station $4.4 Million To Broadcast Propaganda](https://freebeacon.com/media/ccp-paid-dc-radio-station-4-4-million-to-broadcast-propaganda/)
+11 月28日，河内市15岁女孩在接种疫苗1天后死亡。事件专家小组称，女童出现了最严重的4 级过敏反应，包括呼吸和心脏衰竭，但该过敏反应与疫苗接种无关。
+
+11月30日，平福省（Binh Phuoc）12岁男孩在接种疫苗1天后死亡；
+
+12月7日，山萝省（Son La）15 岁男孩在接种疫苗3天后死亡……
+
+河内市自11月23日展开儿童的新冠疫苗接种，在15岁女童死亡后叫停了相关两个批次（124001号、123002号）辉瑞疫苗的使用。
+
+**清化省逾1****20****名学生送院**
+
+11月30日清化省27个区域为15~17岁的学生展开新冠疫苗接种后，部分学生出现了恶心、呼吸困难、高烧等不良反应，至12月2日中午已有120多人被送院治疗，其中17人症状严重但尚无生命危险。该省卫生部门当日叫停了相关批次的疫苗接种，但其疾控中心主任Luong Ngoc Truong称将继续为儿童接种其他批次的疫苗，暂停的批次以后可用于成年人等其他群体。
+
+辉瑞和莫德纳的新冠疫苗被越南政府批准用于儿童，并将分成16-17岁 、12-15岁和 3-11岁三个年龄组先后展开接种。 该计划实施不久后，各地就先后出现多种不良反应，越南卫生部门则称这些反应“与疫苗的质量或疫苗接种方法无关”，并一再强调疫苗安全有效。
+
+**新闻来源：**
+
+[PFIZER-BIONTECH VACCINES WITHHELD FROM VIETNAMESE CHILDREN AFTER SPATE OF DEATHS & AEs](https://trialsitenews.com/pfizer-biontech-vaccines-withheld-from-vietnamese-children-after-spate-of-deaths-aes/)[More than 120 children were hospitalized after vaccination, Thanh Hoa stopped the batch of vaccines](https://vnexpress.net/hon-120-tre-nhap-vien-sau-tiem-thanh-hoa-dung-lo-vaccine-4397532.html)[Why has Hanoi temporarily stopped giving Covid-19 vaccines to children?](https://nld.com.vn/suc-khoe/vi-sao-ha-noi-tam-dung-tiem-vac-xin-covid-19-cho-tre-em-20211201102254986.htm)[3rd child in Vietnam dies after Covid vaccination](https://e.vnexpress.net/news/news/3rd-child-in-vietnam-dies-after-covid-vaccination-4396697.html)[4th child dies after Pfizer vaccine injection in Vietnam](https://e.vnexpress.net/news/news/4th-child-dies-after-pfizer-vaccine-injection-in-vietnam-4400466.html)
 
  
 
