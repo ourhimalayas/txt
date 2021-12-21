@@ -15,77 +15,77 @@
 
 ---
 
-### [日本同意提高驻日美军经费，以对抗中共军力威胁](/content/gnews/1/README.md)
+### [疫苗强制令生效，昆士兰警察和医护出现抵制](/content/gnews/1/README.md)
+ ` 走进澳洲`
+
+### [中共在向中美洲行动](/content/gnews/2/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [日本同意提高驻日美军经费，以对抗中共军力威胁](/content/gnews/3/README.md)
  ` 墨尔本雅典娜农场`
 
-### [《纽约时报》公布中共大外宣投标报价单 揭露中共国操纵海外媒体真相](/content/gnews/2/README.md)
+### [《纽约时报》公布中共大外宣投标报价单 揭露中共国操纵海外媒体真相](/content/gnews/4/README.md)
  ` 日本东京方舟农场`
 
-### [中共将对得到认证的冬奥会外国参赛者及媒体打开防火墙](/content/gnews/3/README.md)
+### [中共将对得到认证的冬奥会外国参赛者及媒体打开防火墙](/content/gnews/5/README.md)
  ` 日本东京方舟农场`
 
-### [《彭博社》：美国必须准许亚洲使用其市场以在印太地区对抗中共](/content/gnews/4/README.md)
+### [《彭博社》：美国必须准许亚洲使用其市场以在印太地区对抗中共](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [日本著名艺人渡边直美确诊](/content/gnews/5/README.md)
+### [日本著名艺人渡边直美确诊](/content/gnews/7/README.md)
  ` 日本东京方舟农场`
 
-### [在维也纳，反对封锁的抗议者们与警察发成冲突](/content/gnews/6/README.md)
+### [在维也纳，反对封锁的抗议者们与警察发成冲突](/content/gnews/8/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [民心向郭](/content/gnews/7/README.md)
+### [民心向郭](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线: 薇娅全网被封，新一轮割韭菜开始](/content/gnews/8/README.md)
+### [秘翻在线: 薇娅全网被封，新一轮割韭菜开始](/content/gnews/10/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [牛津大学研究揭接种疫苗者得心脏病入院或死亡律达1%](/content/gnews/9/README.md)
+### [牛津大学研究揭接种疫苗者得心脏病入院或死亡律达1%](/content/gnews/11/README.md)
  ` HimalayaRussia`
 
-### [丹麦数据揭真相，打疫苗的感染多](/content/gnews/10/README.md)
+### [丹麦数据揭真相，打疫苗的感染多](/content/gnews/12/README.md)
  ` 墨尔本雅典娜农场`
 
-### [瑞士银行自裁走下神坛 或让道喜联储](/content/gnews/11/README.md)
+### [瑞士银行自裁走下神坛 或让道喜联储](/content/gnews/13/README.md)
  ` 纽约香草山MOS03`
 
-### [中共举办冬奥为了展示习近平的治理能力也为了合理化统一台湾](/content/gnews/12/README.md)
+### [中共举办冬奥为了展示习近平的治理能力也为了合理化统一台湾](/content/gnews/14/README.md)
  ` 焦點20分`
 
-### [2021/12/19文贵先生直播精要](/content/gnews/13/README.md)
+### [2021/12/19文贵先生直播精要](/content/gnews/15/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [抵制冬奥会的意义重大 中共已经走上集权灭亡的老路](/content/gnews/14/README.md)
+### [抵制冬奥会的意义重大 中共已经走上集权灭亡的老路](/content/gnews/16/README.md)
  ` 焦點20分`
 
-### [上海文峰集团老板到底犯了什么法？](/content/gnews/15/README.md)
+### [上海文峰集团老板到底犯了什么法？](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [“我们不遵守！”伦敦大规模抗议Covid限制和疫苗护照](/content/gnews/16/README.md)
+### [“我们不遵守！”伦敦大规模抗议Covid限制和疫苗护照](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美橄榄球联盟跪拜中共 国际分布图将台湾并入中共国](/content/gnews/17/README.md)
+### [美橄榄球联盟跪拜中共 国际分布图将台湾并入中共国](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [枪口抬高一寸 好人必有好报](/content/gnews/18/README.md)
+### [枪口抬高一寸 好人必有好报](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [数字货币春秋时代开启 喜币喜元独占鳌头](/content/gnews/19/README.md)
+### [数字货币春秋时代开启 喜币喜元独占鳌头](/content/gnews/21/README.md)
  ` 焦點20分`
 
-### [疫苗政策严苛的美国蓝州感染率激增](/content/gnews/20/README.md)
+### [疫苗政策严苛的美国蓝州感染率激增](/content/gnews/22/README.md)
  ` HimalayaRussia`
 
-### [人类将迎来有史以来 经济上最黑暗的时刻](/content/gnews/21/README.md)
+### [人类将迎来有史以来 经济上最黑暗的时刻](/content/gnews/23/README.md)
  ` 焦點20分`
 
-### [中美穿白大褂的间谍之战（二）](/content/gnews/22/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [2021/12/21大卫作战室直播精要](/content/gnews/23/README.md)
+### [2021/12/21大卫作战室直播精要](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [中美穿白大褂的间谍之战（一）](/content/gnews/24/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [七国集团对香港的民主侵蚀表示“严重关切”](/content/gnews/25/README.md)
  ` HimalayaRussia`
