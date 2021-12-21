@@ -2,42 +2,100 @@
 ---
 
 
-## 【樱花深度报道】GETTR 能否打赢捍卫言论自由的战争？（上）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1776993/)
+## 国内房地产现状就是共产党裤裆下的那个窟窿，会毁掉中国三代人
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1777029/)
 
-编译：东京樱花团/Hopkins
+[https://gtv.org/video/id=61c09ec243ccb726a088fa58](https://gtv.org/video/id=61c09ec243ccb726a088fa58)
 
-编者按：近日GETTR官方发布专题文章围绕“在这个日益拥挤的社交媒体平台市场中，GETTR能否实现其成为幻想破灭的网民第一平台的雄心？”进行了探讨。
+**郭文贵
+Miles Guo**
 
-GETTR官方表示，“我们创建 GETTR 是因为我们想建立一个社交媒体平台，允许人们表达他们的政治观点，同时仍然有明确的规则和服务条款，使平台为所有用户提供一个安全的环境，”“ 在GETTR，我们专注于革命性的新功能，如直播、短视频网络以及两币加密和基于区块链的支付系统。 ” 如果保守派和有自由意识的个人希望打败硅谷的审查制度和垄断行为，他们必须接受不断取得成果的替代技术产品。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1104.png)
-尽管自 2016 年大选之前社交媒体平台就一直在审查保守的内容，但硅谷对言论自由构成威胁的严峻现实直到今年 1 月才完全体现出来，当时 Twitter、Facebook 和其他主要平台做出了禁止现任总统在他们平台上自由发言的荒唐决定。
+她说我孩子在北京和我，我们都买了房子，干了这一二十年
+She said that my child and I, we both bought apartments in Beijing and worked there for 10-20 years
 
-在唐纳德特朗普被禁止之后，Parler 这个已经被数百万保守派使用的专注于言论自由的平台似乎不可避免地将成为 Twitter 的主要竞争对手。一位作家甚至在特朗普被禁止使用 Twitter 后写了一篇专栏文章，称这位前总统应该加入并支持该平台，作为对大型科技公司进行更广泛反击的一部分。
+然后我们是盘古人，她说我的前30年是在这个小城市活着的
+Then we are Pangu people, she said that I lived in this small town for my first 30 years
 
-然后更大的灾难发生了。随着 Parler 的用户群开始爆炸式增长，硅谷进行了反击。以 1 月 6 日的骚乱为例，亚马逊宣布他们将不再提供该网站的服务器，使他们处于瘫痪状态。雪上加霜的是，Parler 应用程序随后被 Apple 和 Google Play 商店禁止，这意味着其数百万用户无法通过移动设备访问它。
+我的后20年是在盘古跟你一起活着的，我的女儿生下来以后长大18岁以后就是跟盘古活着
+I lived in Pangu with you for the last 20 years, after my daughter was born and after she was 18 years old, she grew up with Pangu and lived with Pangu
 
-在荒野中待了一个多月后，Parler 在新服务器上重新启动。然而，该平台受到性能问题的困扰，几乎无法使用。当 Parler 终于重新站起来时，创建一家新公司的计划已经在进行中。前特朗普顾问杰森米勒成功获得了一个财团的资金，该财团包括中国商人和反共异见人士郭文贵，以基于相似的理想创建一个类似的平台。
+她说我们一家两代人都买了房子，她说现在我们在北京, 现在想卖房子的时候
+She said that two generations of our family have bought apartments, and she said that now we are in Beijing now when we want to sell the house
 
-GETTR 于今年 7 月推出，尽管出现了一些可以理解的小问题，但自那时以来它经历了创纪录的增长。该平台的一些最引人注目的用户包括战争室主持人史蒂夫班农、前国务卿迈克庞培和福克斯新闻主持人肖恩汉尼提。
+我们降价卖不让我们卖，而且一家人在过去的时候，郭先生，我就听了你的
+We want to sell it at lower price and won’t let us sell it, and Mr. Guo when our family was in the past we listened to you
 
-“我们创建 GETTR 是因为我们想建立一个社交媒体平台，允许人们表达他们的政治观点，同时仍然有明确的规则和服务条款，使平台为所有用户提供一个安全的环境，”米勒在接受采访时告诉 El American .
+我们全家买了政泉的房子，也就是付了300块人民币的定金每平方米买了的房子
+Our family bought Zhengquan’s house, which means we paid a deposit of RMB 300 per square meter
 
-“这意味着我们已经能够在 GETTR 创造一个空间，让人们能够辩论想法并仍然拥有积极的体验，不受大型科技公司的压迫，”他继续说道。 “我们还能够避免竞争对手因几乎没有审核系统而被平台化的一些陷阱。
+她说每套房子都赚了2000多万，又听了你七哥的直播，我们把房子给卖了
+She said that every house made more than 20 million yuan profits, and after listening to you Miles’s live broadcast, we sold the apartments
 
-随着用户涌向 Gettr，很明显市场正在进一步分化。然而，在 10 月中旬，一项公告再次引发了关于哪个平台最终会胜出的严重问题。
+我们的钱也都拿回来了，现在我们在外边买的房子就是打折卖没人买
+We got money back, and now we want to sell the apartments we bought other place at a discount price and no one buys it
 
-在对这位前总统创建自己的平台进行了数月的猜测之后，特朗普组织证实了一个名为特朗普媒体和技术集团的新实体的成立。作为这一大胆冒险的一部分，特朗普还将推出自己的社交媒体公司Truth Social，该公司将自己描述为“‘大帐篷’社交媒体平台，鼓励在不歧视政治意识形态的情况下进行开放、自由和诚实的全球对话。 ”它定于明年初推出。
+我们两代的房子就没听你没了，她说，不但是我们这样是整个北京
+We didn’t listen to you that our two generations’ apartments are gone, she said, not only ours, it is for the whole Beijing’s
 
-作者：[**BEN KEW**](https://elamerican.com/author/ben-kew/)
+但是我问了一下我们四川的老乡，几乎是只要超过500万的房子
+But I asked our Sichuan’s fellows, there are almost the apartments that are over 5 million yuan
 
-您可以在Gettr上关注 [*Ben Kew*](https://gettr.com/user/benkew) 和 [*El American*](https://gettr.com/user/elamerican_)
+你挂牌以后，跟那个市场的要价根本不可能，她说，最可怕的是银行
+after you list it, it is impossible to ask for the market price, she said that the most terrifying thing is the bank
 
-信息来源：[**Can GETTR Win the War for Free Speech Supremacy?**](https://elamerican.com/can-gettr-win-the-war-for-free-speech-supremacy/)
+她说银行在春节前还让我们跟它做假账，什么还贷款
+She said that before the Spring Festival, the bank asked us to make false accounts with them, and like repay the loan
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
+你多给我点儿钱，我借给点钱，你给我充什么贷款
+all the banks rush performance, and desperately urging me to borrow money etc.
+
+她说一堆复杂的东西，更重要的事情，我们这位战友的娘说了一句话
+She said a lot of complicated things, more important things, this comrade-in-arms’ mother said a word
+
+她说你知道我在外面老家现在发生什么，我们在老家的房子
+She said you know what is happening in my hometown, our apartments in my hometown
+
+现在政府登记完以后，马上要求你，答应像咱们锁币币加锁一样
+Now that after the government has finished registering, it will ask you immediately and promise to be like we freeze Hcoins
+
+他们叫房加锁，3到5年内不能卖，因为你曾经有过三套房
+Apartments cannot be sold for 3 to 5 years, because you once owned three houses
+
+现在房子3年锁房，而且银行给你的造假
+Now the house is freeze for 3 years, and the bank gives you a fraudulent paperwork
+
+提前交3年物业管理费, 银行贷给你的物业管理费
+pay the property management fee for 3 years in advance and the bank lends your property management fees
+
+房地产现在是共产党(想)捂住捂不住的
+now the Communist Party want to cover up the real estate’s collapse and it can’t
+
+在裤裆下那个大窟窿了，这是个天大的事情
+this is a big hole in the crotch, this is a big deal
+
+房地产会毁掉两代人、三代人、四代人，或者你成为房奴
+Real estate’s collapse will destroy two, three, or four generations, or you will become the house slave
+
+* * *
+
+Date: 12/18/2021
+原视频标题: 国内房地产现状就是共产党裤裆下的那个窟窿，会毁掉中国三代人
+The status quo of domestic real estate is the hole in the crotch of the Communist Party, which will destroy three generations of China
+原视频日期：2021/12/15
+原视频链接[**https://gettr.com/post/pjwfvdd010**](https://gettr.com/post/pjwfvdd010)
+任务编号：KC352(3267)
+视频时间段 : 0:00-2:17
+中听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

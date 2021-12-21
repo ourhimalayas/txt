@@ -2,51 +2,36 @@
 ---
 
 
-## 恒大地皮再被收回，相关上市公司大跌
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1776373/)
+## 难掩儿童受害 越南多地叫停新冠疫苗问题批次
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1776496/)
 
-作者：日本方舟农场 – Andy5
+编译：致敬香港！
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-107.png)
+图片来源： The Star
 
+据TrialSiteNews 新闻网12月20日报道，越南多地先后出现儿童接种新冠疫苗后的严重不良反应，河内市和清化省先后叫停了相关批次新冠疫苗的儿童接种。
 
+**儿童接种死亡病例**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+11 月28日，北江省（Bac Giang）16 岁男孩在接种辉瑞疫苗4天后死亡；
 
+11 月28日，河内市15岁女孩在接种疫苗1天后死亡。事件专家小组称，女童出现了最严重的4 级过敏反应，包括呼吸和心脏衰竭，但该过敏反应与疫苗接种无关。
 
+11月30日，平福省（Binh Phuoc）12岁男孩在接种疫苗1天后死亡；
 
-12月20日，成都市相关官网的公告显示，恒大在成都的两副面积共逾30平方米用地被收回。受此消息冲击，投资恒大的华人置业和嘉寓股份股票大跌。
+12月7日，山萝省（Son La）15 岁男孩在接种疫苗3天后死亡……
 
-据了解，这两块地皮是在2010-2011年间拍得，现在因为长期未开工，被当地政府收回。从9月到现在，恒大地皮已经有安徽安庆（8）、海南海口（8）以及四川成都（2）共18块地皮被政府无补偿回收。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-251.jpg)
-受此影响，恒大股价连续大跌，并拖累了投资恒大的上市企业。例如，华人置业在12月20日复牌之后，跌幅一度达到35%，如果年内清空全部恒大股票，亏损将超过104亿港元。19日晚，嘉寓股份发布风险提示公告，目前正在跟恒大协商解决问题，次日嘉寓股份股价大跌近18.4%。据悉，嘉寓股份合计商票敞口金额为13.16亿元，而自2007年累计净利润约8亿元，仅靠嘉寓股份自身已经无法补上这个敞口。
+河内市自11月23日展开儿童的新冠疫苗接种，在15岁女童死亡后叫停了相关两个批次（124001号、123002号）辉瑞疫苗的使用。
 
-参考链接：
-1. [恒大成都两幅用地被收回　涉逾30万平方米](https://gbcode.rthk.hk/TuniS/news.rthk.hk/rthk/ch/component/k2/1625210-20211220.htm?spTabChangeable=0)
-2. [又一家上市公司被恒大拖下水，15年净利直接白干了](https://finance.sina.com.cn/stock/s/2021-12-20/doc-ikyakumx5331455.shtml)
-3. [一度暴跌超30%！华人置业水逆，投资恒大血亏超100亿](http://hk.jrj.com.cn/2021/12/20165734034879.shtml)
-4. [财经网头条](http://m.caijing.com.cn/api/show?contentid=48265028.)
+**清化省逾1****20****名学生送院**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+11月30日清化省27个区域为15~17岁的学生展开新冠疫苗接种后，部分学生出现了恶心、呼吸困难、高烧等不良反应，至12月2日中午已有120多人被送院治疗，其中17人症状严重但尚无生命危险。该省卫生部门当日叫停了相关批次的疫苗接种，但其疾控中心主任Luong Ngoc Truong称将继续为儿童接种其他批次的疫苗，暂停的批次以后可用于成年人等其他群体。
 
-总编/编辑：DM
-校对/发稿：为真不破20
+辉瑞和莫德纳的新冠疫苗被越南政府批准用于儿童，并将分成16-17岁 、12-15岁和 3-11岁三个年龄组先后展开接种。 该计划实施不久后，各地就先后出现多种不良反应，越南卫生部门则称这些反应“与疫苗的质量或疫苗接种方法无关”，并一再强调疫苗安全有效。
 
-**更多资讯，更多关注**
+**新闻来源：**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+[PFIZER-BIONTECH VACCINES WITHHELD FROM VIETNAMESE CHILDREN AFTER SPATE OF DEATHS & AEs](https://trialsitenews.com/pfizer-biontech-vaccines-withheld-from-vietnamese-children-after-spate-of-deaths-aes/)[More than 120 children were hospitalized after vaccination, Thanh Hoa stopped the batch of vaccines](https://vnexpress.net/hon-120-tre-nhap-vien-sau-tiem-thanh-hoa-dung-lo-vaccine-4397532.html)[Why has Hanoi temporarily stopped giving Covid-19 vaccines to children?](https://nld.com.vn/suc-khoe/vi-sao-ha-noi-tam-dung-tiem-vac-xin-covid-19-cho-tre-em-20211201102254986.htm)[3rd child in Vietnam dies after Covid vaccination](https://e.vnexpress.net/news/news/3rd-child-in-vietnam-dies-after-covid-vaccination-4396697.html)[4th child dies after Pfizer vaccine injection in Vietnam](https://e.vnexpress.net/news/news/4th-child-dies-after-pfizer-vaccine-injection-in-vietnam-4400466.html)
 
  
 
