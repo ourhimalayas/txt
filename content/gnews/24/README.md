@@ -2,42 +2,83 @@
 ---
 
 
-## 【樱花深度报道】GETTR 能否打赢捍卫言论自由的战争？（下）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1777015/)
+## 中共的经济地产灾难是对全世界的合法洗劫
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1777269/)
 
-编译：东京樱花团/Hopkins
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3188.png)
+[https://gtv.org/video/id=61c0a2ba43ccb726a088fbe1](https://gtv.org/video/id=61c0a2ba43ccb726a088fbe1)
 
-编者按：近日GETTR官方发布专题文章围绕“在这个日益拥挤的社交媒体平台市场中，GETTR能否实现其成为幻想破灭的网民第一平台的雄心？”进行了探讨。
+**郭文贵
+Miles Guo**
 
-GETTR官方表示，“我们创建 GETTR 是因为我们想建立一个社交媒体平台，允许人们表达他们的政治观点，同时仍然有明确的规则和服务条款，使平台为所有用户提供一个安全的环境，”“ 在GETTR，我们专注于革命性的新功能，如直播、短视频网络以及两币加密和基于区块链的支付系统。 ” 如果保守派和有自由意识的个人希望打败硅谷的审查制度和垄断行为，他们必须接受不断取得成果的替代技术产品。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1105.png)
-据报道，米勒探讨了直接与特朗普合作的可能性，尽管双方最终未能达成协议。当被问及 Gettr 是否能与 Truth Social 之类的公司一起取得成功时，米勒解释说，他认为 Truth Social 与其说是竞争对手，不如说是整个新生态系统的补充部分。
+所以说今天你看到这个金融的时候，你看到整个数据的时候
+So when you look at finance system today, when you look at the whole data
 
-“在成功推出之后，GETTR 不仅是历史上增长最快的社交媒体平台，而且在唐纳德特朗普总统宣布真相社交后的一周内，该应用程序的安装量增长了 19 倍，这表明对诸如推特和脸书平台替代品的需求巨大。我们不认为这是一个关于 GETTR 与 Truth Social 的故事，而是关于多个新平台挑战硅谷垄断企业的故事。”
+你要知道，了解共产党的真相和所谓投到中国的房地产经济
+You have to know the truth about the Communist Party and the so-called real estate economy that was invested in China
 
-“我们的产品也不同。我们知道Truth Social 将专注于订阅流媒体服务和保守节目，而在GETTR，我们专注于革命性的新功能，如直播、短视频网络以及两币加密和基于区块链的支付系统。 ”
+你看到的这些全都是假象
+are all illusions
 
-与大多数分析师一样，米勒认为，最终脱颖而出的平台将是提供最好的产品和服务的平台。 “随着市场开始成熟，我们相信拥有最好产品的更强大的参与者将会出现，”他说。 “也就是说，涨潮会抬高所有船只，而我们在 Truth Social 之后的惊人增长证明了这一点。”
+核心是金融领域的所有不可告知的不可查的隐秘的数据
+The core is all the untold, untraceable, hidden data in the financial sector
 
-“越来越多的人开始意识到大型科技公司的政治歧视做法，并正在寻找替代方案，”他继续说道。 “硅谷公然实行的影子禁令和审查制度不仅适用于保守派。许多自由主义者也意识到这一新现实，我们欢迎他们在 GETTR 上行使言论自由的权利。”
+那些隐秘的东西才是对西方的最大威胁
+Those hidden things are the biggest threat to the West
 
-新兴社交媒体公司面临的最大问题之一是，他们的产品明显不如 Facebook 和 Twitter 之类的公司，这些组织花了十多年时间完善其功能和整体用户体验。但是，该平台一直在不断开发中，不断添加新功能，包括使用加密货币的能力。
+还有西方金融机构，别光说中国金融机构
+And the Western financial institutions, not just the Chinese financial institutions
 
-“明年对 GETTR 来说将是重要的一年，”米勒补充道。 “我们正处于直播的测试阶段，并准备推出我们的短视频网络，该网络将与 TikTok 和 Instagram 相媲美。我们还期待宣布我们的 GETTR Pay 平台，该平台将支持加密货币和其他新功能，包括加密的直接消息传递以及向您最喜欢的内容创作者提供小费的能力。”
+西方的金融机构它不能合法地投到中国去
+Western financial institutions cannot legally invest in China’s real estate
 
-从长远来看，无法说这些平台中的哪一个会胜出，尽管 GETTR 看起来确实很有可能取得成功。然而，其他平台并没有倒闭。 Parler 最近宣布计划帮助梅拉尼娅特朗普推出 NFT 或不可替代的代币，名为“梅拉尼娅的愿景”，这是她自丈夫 1 月卸任以来的首次公开努力。作为交易的一部分，这位前第一夫人也加入了该平台。与此同时，Gab 继续报告强劲增长，尽管有证据表明它是极端主义活动的避风港。
+它有西方的金融管理机构
+Western financial institutions and
 
-唯一可以确定的是，如果保守派和有自由意识的个人希望打败硅谷的审查制度和垄断行为，他们必须接受不断取得成果的替代技术产品。
+西方的金融机构，所谓的金融产品买了对冲基金
+fund, so-called financial products bought from hedge funds
 
-作者：[**BEN KEW**](https://elamerican.com/author/ben-kew/)
+西方的养老保险，西方的退伍保险、保险基金大量地投入到这个基金里
+Western pension insurance, western retirement insurance, insurance funds are heavily invested in hedge fund
 
-您可以在Gettr上关注 [*Ben Kew*](https://gettr.com/user/benkew) 和 [*El American*](https://gettr.com/user/elamerican_)
+所有的美国的几个华人、退休基金
+All these several American Chinese managed funds, retirement funds
 
-信息来源：[**Can GETTR Win the War for Free Speech Supremacy?**](https://elamerican.com/can-gettr-win-the-war-for-free-speech-supremacy/)
+这都是合法的偷
+Are all legal theft
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
+那是什么概念？要命的
+What is the end of that? It’s deadly
+
+兄弟姐妹们，那真的是要命的
+Brothers and sisters, that really is deadly
+
+我得吃了，我先说到这儿
+I have to eat, I’ll stop here
+
+所以说告诉你，共产党的地产和经济灾难是对全世界的一场合法洗劫
+So the Communist real estate and economic disaster is a legal looting of the whole world
+
+* * *
+
+Date:12/16/2021
+原视频标题: 中共的经济地产灾难是对全世界的合法洗劫
+CCP’s economic real estate disaster is a legitimate looting of the world
+原视频日期：2021/12/10
+原视频链接:[**https://gettr.com/post/pje75ydd03**](https://gettr.com/post/pje75ydd03)
+任务编号：3188
+视频时间段 : 0:00-01:10
+中听校：洛杉矶盘古农场 -Mike Li
+翻译：洛杉矶盘古农场 – Mike Li
+翻译终校：洛杉矶盘古农场 – Layka
+字幕+视频制作：洛杉矶盘古农场 – Jambo
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

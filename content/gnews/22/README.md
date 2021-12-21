@@ -2,72 +2,54 @@
 ---
 
 
-## 西喜时事新闻简报 — 中共病毒时事篇
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1777128/)
+## G-Fashion最重要的是让H-Coin让HDO和G-Clubs赚钱
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1777301/)
 
-**编译：西班牙巴塞罗那喜悦农场-wenwu**
+**郭文贵先生：**买一个15万美金的一个鳄鱼的全世界爱马仕厂做的鳄鱼，不是东莞厂做的，也不是什么某个东南亚某厂，这是绝对爱马仕厂，一模一样的鳄鱼皮，不是假鳄鱼皮，不是画的鳄鱼皮，完全是世界上最高级的，这个15万的夹克我买的十多年以前都是30万美元左右，你们都可以上网去查，爱马仕随便一个都是13万到30万美元，一模一样，15万美元，我不知道，大概15万美元、17万还是10万美元，我不知道标价。
 
-您若想了解全文报导内容，请点击标题链接
+就刚才草根小哥说的，G-Clubs卡五折，就是7万、10万，你就是1000个币，1000个币你都花100多个美金，像这件衣服我估计也就是说1000HDO，或者是几百，五、六百HDO，我不知道多少钱，不管什么打了五折，你可能就花了大概几块美金，我觉得而且这个是别忘了，这是爱马仕厂做的，MANDELLI做的，千万别忘了，这个料子这不是来自中国东莞的化学料子。
 
-（爱惜生命 远离疫苗）
+你一定要问，中国的衣服为什么几百块人民币、几十块人民币，因为那料子根本不值钱，全是血汗人工，连人工都不够，像MANDELLI做一件衣服不管多少钱，一个人工要你的钱你也可以在国内买一串衣裳 了。
 
-1. [辉瑞正在以67 亿美元收购一家心血管生物制药公司](https://thenationalpulse.com/news/pfizer-is-buying-a-cardiovascular-biopharma-company-for-6-7bn/)
+那我们这个G-Clubs和G-Fashion给你什么概念？一定要记住：它佐证了一个最重要的问题，G-Fashion让H-Coin、HDO能正式地实体流通，它不仅对我们的G-Clubs会员换来了实际的利益，它不仅对HDO是一个认可，H-Coin，它还让所有未来支付系统加入其它货币，一个比特币6万美元，进来以后“咵嚓”买你多少？你去想一想，是吧？能买一大堆。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1125.png)
+所以刚才那金哨子、钻石哨子成本在那儿摆着呢，那个哨子给战友大概，它比如说10000块美金，你打了五折就成了5000美金，5000美金现在你到任何一个牌子里面你不可能买到这么一个东西，甭说哨儿啦，甭说响不响啦，甭说是不是钻石啦，就是金你都买不着，那不可能G-Fashion 有任何利润的，绝对是不可能的。
 
-据《国家脉动》2021年12月20日电，辉瑞即将以 67 亿美元收购 Arena Pharmaceuticals（Arena 是一家生物制药公司）并专注于为全球患者群体提供心血管和炎症药物。大多数主流新闻媒体都将报道重点放在 Arena 的[肠道疾病治疗上](https://www.reuters.com/markets/deals/pfizer-acquire-arena-pharmaceuticals-67-bln-deal-2021-12-13/)，而没有提及该公司的心血管研究。
+因为时尚界大牌子都是10倍到15倍，就是即使中国的品牌，最烂的厂牌也是5倍，因为它有行政开支、运输、工资，它一定要加上去，否则赔钱了嘛。那么G-Fashion最重要的意义，它不是赚钱的，它是让H-Coin赚钱的，它是让HDO赚钱的，它是让G-Clubs人赚钱的。
 
-与中共病毒（COVID-19）相关的核心问题之一是[易患肺动脉高压](https://www.sciencedirect.com/science/article/pii/S0306987721000013)；COVID-19 疫苗接种也与心肌炎等心血管问题密切相关，尤其是在年轻男性中。尽管大多数[主流新闻媒体的报道](https://thenationalpulse.com/news/conflict-reuters-chairman-is-pfizer-investor-and-board-member/)都集中在 Moderna 的 COVID-19 mRNA 疫苗[以及与心肌炎的联系上](https://thenationalpulse.com/news/a-pandemic-of-the-vaccinated/)，但辉瑞的 COVID-19 疫苗也与心脏病有关。
+G-Fashion未来它一定做大的时候，就像现在看到，很多人会加入到这么什么、这个送礼的游戏。送礼的游戏是让大家成为一个固定的高端客户，让大家在整个一个生态圈里边儿生存。这个生态圈的本身价值，能让所有的参与这个送礼游戏的人能赚到天大的钱。就像喜币，你像喜币现在，现在你G-Fashion现在，这一次3000万美元、5000万美元的货上线了以后，只要手快的1秒钟就没了。
 
-2. [福奇博士说数百万美国人拒绝接种实验性 Covid 疫苗是“不可接受的”](https://www.thegatewaypundit.com/2021/12/dr-fauci-says-millions-americans-refusing-get-experimental-covid-vaccine-unacceptable-video/)
+你肯定那个鳄鱼衫，你们但凡看这直播的不会傻得去买这个去。你先买鳄鱼，鳄鱼皮嘛，那是很简单的是吧。你买鳄鱼皮一件就赚回一个G-Clubs了。我昨天我告诉他，我说我如果我聪明的话，我如果像我的话，我第一个上去我就把你的这个鳄鱼皮给你买了。买完以后我就过一段时间我就卖出去，我就赚一个G-Clubs，为啥不可以呢？为啥不可以呢？
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1120.png)
+是不是啊！今天猫本买了两个，一白一黑，鳄鱼，鳄鱼衫，绝对，不要说卖15万美金，我10万美金抢着买。那我就赚10万美元，赚10万美元，我是关键我成本是多少钱呢，我总共是花了4000个币或者2000个币买了200美金的成本。我赚的是纯赚，是吧。还有那哨子，我说我上去下一子就给你买光了，是不是。像根哥，我砸进去1万个币，我，我砸进一万个币，我把你这一堆都给买了好不好，对不对，就那么简单。
 
-据《门户网》2021年12月20日电，福奇博士周一（20日）讨论了 Omicron 变体、家庭测试以及数千万未接种 Covid 疫苗的美国人，其认为美国人不能有政治观点，美国人不能自己做出医疗决定（福奇说：“你们有一种非常安全的高效疫苗，全国有 5000 万人拒绝接种，其中许多人纯粹是出于政治意识形态的差异，这真的是不可接受的。”）
+所以说我们的政策你不可能让你都一下子就，像根哥买十个，肯定限量，哈哈哈，是吧。就这，这一次拿出几千万美元，就几千万美元就说我这钱按着原来的成本可能是就是几万块钱，几百倍，400多倍的差距。你看得很准了，你不了解G-Fashion的价值，现在还没到时候，等到G-Fashion到明年，你会知道G-Fashion会成为另外一个东西。就是，不是“H-Coin to the moon”，是真的是”G-Fashion to the moon”。
 
-MSNBC 的安德里亚·米切尔 (Andrea Mitchell) 询问福奇，在联邦法院对拜登对联邦承包商的疫苗授权实施禁令后，官员们是否应该放弃强制接种疫苗。“我更愿意，我们都更愿意人们自愿接种疫苗，但如果他们不这样做，有时你必须做一些不受欢迎的事情，但（政府）显然会取代个人选择以促进公共利益，”福奇[讨论](https://www.thegatewaypundit.com/2021/12/sometimes-got-things-unpopular-clearly-supersede-individual-choices-fauci-deal-unvaxxed-video/)时候说。
+字幕来源：[2021年12月15日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1762636/)；
 
-3. [拜登将于周二就COVID-19 传播的omicron 变体、政府的回应向全国发表讲话](https://justthenews.com/politics-policy/coronavirus/biden-address-nation-tuesday-covid-19s-spreading-omicron-variant)
+视频制作：小满；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1121.png)
+视频上传：Cindy；
 
-据《Just The News》2021年12月18日电，一位白宫官员周六告诉[NBC 新闻](https://www.nbcnews.com/politics/politics-news/biden-address-omicron-variant-unveil-new-steps-help-communities-tuesda-rcna9263)，拜登总统将于周二向全国发表讲话，讨论中共病毒（COVID-19）的 omicron 变种在美国蔓延的情况以及他的政府的计划应对措施；拜登总统预计将通过增加推动新措施并向那些选择不接种疫苗的人发出“严厉警告”来超越他的“冬季计划”，以控制季节性感染的增加。
+G-News发布：小满；
 
-4. [卫生主管说，纽约市的COVID 病例“急剧”上升，但住院人数却没有](https://justthenews.com/politics-policy/coronavirus/cases-rise-sharply-new-york-city-hospitalizations-do-not-says-health)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
 
-据《Just The News》纽约市的 COVID-19 病例正在迅速增加，连续创下多项每日记录，但该市卫生专员Dave Chokshi 博士告诉 CNN，住院人数的增长速度没有那么快；与其他变体一样，Omicron 可能对未接种疫苗的人构成“最大”威胁（纽约市超过 70% 的疫苗接种率是“抵御 Omicron 浪潮的防波堤”）。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-尽管 Omicron 的性质看似温和，但拜登政府已经全面进攻，警告未接种疫苗的美国人，等待他们的是死亡和疾病的冬天。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-5. [早安英国民意调查显示十分之九的人反对再次封锁并反对强制接种疫苗](https://dailyexpose.uk/2021/12/20/9-in-10-oppose-lockdown-gmb-poll/)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1123.png)
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-据《吹哨人》2021年12月20日电，早安英国 (GMB)于周一（20日）上午在[Twitter](https://twitter.com/GMB/status/1472824626095009793)上[发布了民意调查](https://twitter.com/GMB/status/1472824626095009793)，并询问“我们应该在圣诞节前封锁吗？”。截至同日14:38，该投票已收到超过13.2万份回复，其中89%/每10人中有9人投了“反对票”，这表明英国人民不赞成因重新命名的普通感冒（现在被称为Omicron）的流行而再次进行严厉的封锁。
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-12月7日，GMB发布了一项投票，询问“随着欧米茄病例每两天翻一番，是时候强制接种疫苗了吗？”。该投票在被GMB删除之前收到了4万4713份投票，很可能是因为10人中有9人再次对强制接种疫苗投了“反对票”。
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-YouGov的民意调查被主流媒体操纵和利用，以动摇公众意见。通过精心挑选1696名成年人来获得他们需要的答案，他们能够声称大多数英国人支持强制性疫苗接种，并让你觉得自己是少数人的一部分；但是实际上只有十分之一的英国人显示自己是Covid崇拜者，也就是大部分人会和你站在一起反对强制疫苗。
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-6. [罗伯特·肯尼迪：揭露危险的疫苗、疫苗护照和真正的安东尼·福奇](https://dailyexpose.uk/2021/12/20/exposing-dangerous-vaccines-vaccine-passports-and-the-real-anthony-fauci/)
-
-据《吹哨人》2021年12月20日电，肯尼迪解释疫苗是政府机构/制药业关系的支点，因为它们有巨大的利润。 疫苗是免责的，所以无论伤害多么严重，你都不能起诉制药公司，”仅此一点就使疫苗获得了巨大的利润”（疫苗从Fauci控制NIH时每年1.87亿美元的产业，变成了600亿美元的产业）。
-
-以下是我们可以预测的情况。 我们知道他们有可编程的货币，这意味着我们的每一笔金融交易都会被政府看到，而且这些信息可以被金融机构看到。
-
-肯尼迪用一个日常的例子进一步解释：”他们可以编排你的钱。比方说，你违反了社会隔离规定。 他们从你的手机[移动]电话……或面部识别……知道你的位置，你违反了[社会距离]，他们可以说’在你遵守规定之前，你会被软禁，你只能离开家去当地的杂货店购买’。 他们可以让你的钱在你家门口的杂货店以外的任何地方都不能用……所以，他们可以控制你。”
-
-“一旦你拿到[疫苗]护照，[你以前的]自由就不再是自由，而是特权。而它们的特权是以你对最终无限的指令清单的服从为条件的。”历史上没有任何时候，被赋予的权力被交还给人民，我们必须假设，我们赋予他们的权力，他们会滥用。 我们越是服从，情况就会越糟。
-
-* * *
-
-*发稿 : Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-1.jpeg)
-
-
-
-
-
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

@@ -2,35 +2,96 @@
 ---
 
 
-## 韭菜收割新模式开启，富豪贪官主播网红难逃一劫
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1776851/)
+## 习近平只相信自己家人, 搞家天下治国
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1777236/)
 
-作者：顺其自然
-编辑：文泓
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-253.jpg)图片来源：墨尔本雅典娜农场设计组
-墙内的媒体报道，在12月18日清晨，解直锟在做瑜伽时突发心脏病，被送到医院后抢救无效而过世。今天郭先生直播时说，他不是做瑜伽死，而是在瑜伽房儿里上吊而死。
+[https://gtv.org/video/id=61c09fbd43ccb726a088faad](https://gtv.org/video/id=61c09fbd43ccb726a088faad)
 
-解直锟的心脏病死亡，墙内民众觉得好像还算比较正常，因为他内外交困压力山大，但没想到最后是上吊自杀。不过，这个消息令我联想到中共前财政部长金人庆的死亡，说他因烧纸钱祭奠亡妻导致引火烧身。因他本人行动不便，坐着轮椅着火时无法自救，最后被烧成重伤而亡。官方报道称，起火点在阳台，那里堆放着书籍，燃烧面积只有两平方米。当时网友就炸锅了，这么高级别的（退休）官员，身边怎么可能一个人都没有，任凭火烧几个小时？中共省部级以上干部退休待遇，配备专职司机兼警卫，并有专职工作人员，75岁以上还要配备专职的医疗人员，他家里肯本不差钱，至少给自己请一两个保姆，怎么在着火的时候只有他自己一个人在家？所以中共现在的说谎水平是漏洞百出，而且还不怕人们指出其穿帮。最有名的当然是海航王健拍照跳墙死。
+**郭文贵
+Miles Guo**
 
-凡是在中共国生活过的人，大家都明白是怎么回事儿。所以官媒也懒得去煞费苦心的编一个没有漏洞的谎言。中国有句古话，“一朝天子一朝臣”，新上来的皇帝总要有自己一帮跟班儿的，前朝把所有的钱都贪走了，本朝的皇上和他的臣子怎么活呢？所以只能把前朝那些人的钱弄到他们自己的手上，现在习近平做的就是这些。之前中国经济大发展的时候，还可以从韭菜身上割点儿，弄点儿钱，现在韭菜身上也割不到什么了，所以就从这些年贪污腐败的富豪和贪官身上弄钱，也就是老百姓说的猪养肥了要杀。现在悲哀的是，哪止这些贪官和富豪，连网红主播都要收拾。
+习身体说明真的是不行了，还有习是真没人可用啦
+Xi’s health is really bad, and Xi is really not trust anybody
 
-昨天消息，直播带货一姐薇娅因偷逃税款被罚，被追缴税款、加收滞纳金并处罚款共计13.41亿元。薇娅巨额罚款之事出来后，新华社消息，已有上千名网络主播主动自查补缴税款。今年9月国税总局声明，网络主播2021年底前能够主动报告并及时纠正涉税问题的，可以依法从轻、减轻或免予处罚，对自查整改不彻底、拒不配合或情节严重的，将依法严肃查处。所以大刀也砍向了以薇娅、李佳琪为首的这些网红主播。现在但凡手里有些钱的，无论你是怎么挣的，共产党都会惦记上，都会想方设法把你手里的钱给弄到他们手上。
+还有习是真不相信任何其他人，只相信彭丽媛，女儿，弟弟，还有彭磊
+And Xi really doesn’t believe in anyone else, only Peng Liyuan (wife), daughter, brother, and Peng Lei (brother in law)
 
-对于薇娅偷逃税被罚这事，中国新闻网评论称，薇娅被罚释放了三重信号，一是充分显示税务部门严厉打击各类涉税违法犯罪行为的决心，彰显了税收公平；二是网络直播行业不是税收的灰色地带和盲区，所有人都要自觉依法纳税；三是释放了对高收入群体加大税收监管力度的信号，有助于维护法律尊严，调节收入分配，促进共同富裕。
+彭磊现在扮演的作用比彭丽媛还大，彭磊几乎可以决定任何一个中国企业家
+Peng Lei now plays a bigger role than Peng Liyuan, and Peng Lei can determine the fate almost any Chinese entrepreneur
 
-其实，背后最主要的原因就是中共财政没钱了，所以，社会各界但凡有钱政府都被盯上，就会明白告诉你，把钱交上来吧。
+像马明哲他说这个王八蛋对咱有威胁，100%让他消失，马上让他变成海航的王健100%
+Like Ma Mingzhe, he said that this bastard is a threat to us, 100% let him disappear, and 100% immediately let him become HNA’s Wang Jian
 
-关于薇娅的事情，我再补充一下其他的资料。除了被追缴并罚款13.41亿元以外，薇娅还遭到了当局全面的封杀。她的微博、淘宝直播、抖音、快手平台的账号均被封禁，平台上过往的直播历史被全部删除。其实，在这个消息出来之前，网络上就有很多做电商商家就已在抱怨，说电商网红主播已经压得小商家喘不过气来，很多淘宝的小商家都已经被迫关店了。因为网红主播把顾客都吸走了，其他的小商家根本没有流量，东西都卖不出去。另外网络主播依靠他们大量的粉丝可以对供货厂家进行压价，很多企业其实给网络主播的价格也是不高，如果不给，供货商家自己做直播，没有那么多的流量，卖不出货。所以这些个网红大主播是建立在欺压其他的小电商和给他们的供货商的基础之上的。而这样的话，就会导致大量的人失业，在已经众多行业都在破产倒闭、员工失业的大背景下上，现在中共政府严打这种网红直播，也许是为了给那些小店家、小商家、小企业家一条生路。不至于造成失业人员太多，而引发社会的动荡。
+许其亮都得消失，这100%，这是人最可怕(的地方)
+Xu Qiliang has to disappear 100%, this is the scariest thing about people
 
-油管视频资料来源：[闲聊澳洲 – YouTube](https://www.youtube.com/channel/UCPxB0vpNpmHN0hORXK4gj2A)
+你像我，你看盘古，你看裕达，没有一个我们老郭家的人在这上班，一个没有
+You look at me, look at Pangu, look at Yuda, none of our Guo’s family member work here, none of them
 
-发布：去中心化Math
+没有我嫂子，我侄女，我七大襟，没有一个老郭家的
+Not my sister-in-law, my niece, my other family members, there is no one from the Guo’s family
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+我从第一天我恨的就是家族企业，我到现在我也特别恨，像新中国联邦
+From the first day I hated the family business, till now I still hate it very much, like the New Federal State of China
+
+你不会有老郭家任何人参与，有一个我们老郭家参与时候你就记住
+There is no Guo family member participate, if there is one of our Guo family member’s participating
+
+你这个七哥已经是变成坏种了，坏蛋了，家天下
+You brother Miles has become a bad species, badass, and become family world
+
+还有一个人想把任何事情变成自己的，变成家族的，我不相信他会有未来
+There is one person who wants to turn anything into his own, into his family, I don’t believe he will have a future
+
+即使有了未来，他家族将付出代价
+Even with a future, his family will pay the price
+
+我从来不认为血缘关系有任何能证明你们之间有多亲多近
+I never think that blood relationship can prove how close you are
+
+我从来不相信家族关系，血缘关系，就能证明你可以依可以赖
+I never believe in family relationships, blood relationships, it can prove that you can rely on
+
+我也从来不认为就因为家族关系，他跟别人不同，恰恰相反
+I never think that he is different from others just because of the family relationship, on the contrary
+
+而且我认为，凡是把家族关系切入到事业当中的，都不叫事业
+and I think that put the family relationship into the career is not called the career
+
+就那是非常糟糕的很低级的这么一个事业，我一到哪去很多人说
+It’s a very terrible, very low-level business, whenever I go that many people say
+
+这是我们家族300年200年，我都在心里说，所以说你现在才能那么low嘛
+this is our family business for 300 years and 200 years, I said in my heart, so you can be so low now
+
+300年你还只能开个餐厅，300年你只能开个红酒店
+In 300 years, you can only open a restaurant, in 300 years, you can only open a red wine shop
+
+你有什么了不起的，人类的文明，一定不会因为你(创造)发明, 是吧
+What’s great about you, human civilization will definitely not be invented because of your creation, right?
+
+你一定不是人类的创造者，因为你根本没有奉献
+You must not be the creator of mankind because you have no dedication at all
+
+* * *
+
+Date: 12/19/2021
+原视频标题: 习近平只相信自己家人, 搞家天下治国
+Xi Jinping only believes his family members, and governs the country as his family
+原视频日期：2021/12/17
+原视频链接[https://gettr.com/post/pk22x92750](https://gettr.com/post/pk22x92750)
+任务编号：KC354（3280）
+视频时间段 : 0:00-2:04
+中听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

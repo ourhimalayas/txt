@@ -2,45 +2,159 @@
 ---
 
 
-## 伊维菌素救了非洲,中共对改变人类寿命的青蒿素秘不示人
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1777350/)
+## 12/21每日播报｜社媒消息：蓬佩奥 娜塔莉温特斯
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1777441/)
 
-**郭文贵先生：**说到这儿我要跟你讲伊维菌素，你看看伊维菌素这个神药，最近这些天我让战友找了很多伊维菌素的根基出来。它是救了整个非洲。我去过那里非洲，你们没去过。你到非洲有河盲症的地方你看到真到了人间的地狱呀！一个村子里有将近三分之一的人眼睛是看不见的，非常强壮，都是拿着棍戳戳的。你知道那个非洲的地方喝的那个脏水真的是太脏了！吃东西也不洗，疟疾，还有这个河盲症，瞎的，都是直接就是瞎了。伊维菌素五粒就让他把眼睛睁开。
+**By:[秘翻新聞](https://gtv.org/broadcast/watch/61c19743bcb7f101bb724eea)**
 
-你看世界上最贪婪的辉瑞，还有中国的国药这些制药厂，你想想人家美国这个制药厂，叫这个联邦制药，叫什么邦制药，竟然制造了伊维菌素，是免费给非洲人的。我到那儿去我是打了疫苗的。我也害怕你知道吗？而且就有人当时就拉着肚子拉到不行，伊维菌素是日本人一个农民在日本的土地上，就靠自己一个农村里边相信人，大自然给了人类所有需要的力量和医药和解决问题的办法。就这么一个日本人，几十年干了一件事，研究了伊维菌素，现在日本的英雄中的英雄，而且日本国家全力支持，最后跟美国合作把它分子化，把它医药化，把它变成能救人，最后是免费救人。
+**2021-12-21**
 
-你告诉我共产党有一个这事儿它干过吗？从共产党的历史上你找一件这事儿。同样是屠呦呦，在中国没人问津，获完诺贝尔奖以后没人搭理她。中国政府把青蒿素免费给过哪个国家？他让青蒿素在人类治过多少人？我告诉你青蒿素比伊维菌素还要牛万倍，亿倍！它绝对可以百分之百消除癌症，不是百分之九十九。
+**1.蓬佩奥12月21日发推说：**
 
-如果你们相信我，青蒿素会让所有现在躺在病床上的人真的能站起来、真的能活下来，真的没癌症。我就有些话现在不能告诉你，七哥说话是很保守的在这事儿上，我是很小心的。人家给我讲的话很多我是在这儿不能说的，就是咱们告诉这是解药的。
+我们不能向中共屈服。
 
-当时共产党说郭文贵讲出青蒿素这仨字儿的时候，是解药的时候，这郭文贵对我们的威胁就增加了无限倍。为什么？当时所谓国安委的说：青蒿素会改变人类的寿命。这是共产党知道能救人，它就不告诉你能救人。和日本人说能明知道救人给美国人开放，我让你去救人，这是完全不同的政府啊！
 
-字幕来源：[2021年12月15日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1762636/)；
 
-视频制作：小满；
+> We cannot kowtow to the Chinese Communist Party.
+> — Mike Pompeo (@mikepompeo) [December 20, 2021](https://twitter.com/mikepompeo/status/1473019181700423680?ref_src=twsrc%5Etfw)
 
-视频上传：Cindy；
 
-G-News发布：小满；
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
+**2.娜塔莉温特斯12月21日发推说：**
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+乔·拜登禁止美国人投资中共的一些科技公司，但他儿子亨特·拜登却从其中获利。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+【推文转《国家脉动》报道，被白宫列入“中共军工企业”黑名单的几家公司获得了与亨特·拜登有关的投资基金的支持。比如专注于面部识别的旷视科技 从渤海华美获得了大量投资。渤海华美是一家私募股权公司，Hunter Biden于 2013 年开始担任该公司的董事。】
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+> Biden Bans Investment In Chinese Tech Firms Hunter Profited From.[https://t.co/BfikPxlK4P](https://t.co/BfikPxlK4P)
+> — Natalie Winters (@nataliegwinters) [December 20, 2021](https://twitter.com/nataliegwinters/status/1472987463748489218?ref_src=twsrc%5Etfw)
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**3.《国家脉动》12月20日在盖特发文：**
 
+辉瑞公司以67亿美元收购了一家心血管生物制药公司。
+
+【盖文转报道，辉瑞收购的这家公司是Arena制药公司。Arena公司部分专注于心血管和炎症药物的研发。但是大多数主流新闻机构的报道都集中在Arena的肠道疾病治疗上，而没有提及该公司的心血管研究。总部位于犹他州的Arena公司与联合治疗公司（United Therapeutics Corporation）现在有合作关系，后者的研究重点是肺动脉高血压。辉瑞的此项收购肯定会给其带来比企业媒体所吹捧的肠道疾病治疗更多的回报。因为中共病毒容易让感染者患上肺动脉高压，另外辉瑞等公司开发的中共病毒疫苗容易引发心血管问题，比如心肌炎。】
+
+[https://gettr.com/post/pk6ah70068](https://gettr.com/post/pk6ah70068)
+
+**4.《班农战斗室》12月19日在盖特发文：**
+
+小罗伯特·F·肯尼迪 (Robert F. Kennedy, Jr.)12月18日接受了《班农战斗室》节目的采访，他说美国情报部门和军方参与了武汉实验室的研究。
+
+【盖文转《网关专家》报道，小肯尼迪表示：“他们从来没有谈论过公共卫生，也从不谈论如何药物再利用、如何隔离病人、如何让人们吃维生素D和锌、锻炼身体、建立他们的免疫系统。他们所谈的全是关于如何以大流行病为借口来消灭民主制度。武汉功能增强研究实验的最大资助者是美国中情局（CIA），它们通过美国国际开发署（USAID）提供资金，甚至比福奇的资助还要多；五角大楼排第二；福奇第三。五角大楼通过福奇向武汉实验室输送资金，每年17亿美元，现在是22亿美元。他们还因福奇的生物武器研究给他增加了68%的薪水。这就是为什么即使奥巴马让他在2014年停止功能增强研究时，他仍继续此项目的原因之一。他们将其武器化，以便让人无法追溯到他们将病毒投放到世界上的时间。”】
+
+[https://gettr.com/post/pk2ab53d7a](https://gettr.com/post/pk2ab53d7a)
+
+**5.Newsmax 12月20日在盖特发文：**
+
+路透社报道称，CNN 12月18日在一份内部备忘录中告诉员工，由于中共病毒病例数的增加，对于CNN的非必要员工，将关闭其在美国的办事处。不在办公室工作的员工，其办公室将被关闭。CNN总裁杰夫·扎克（Jeff Zucker）在备忘录中说：“我们这么做是出于非常谨慎的考虑，通过尽量减少在办公室的人数来保护那些将在办公室工作的人。”
+
+[https://gettr.com/post/pk38mpeda6](https://gettr.com/post/pk38mpeda6)
+
+**6.Newsmax 12月20日发推说：**
+
+美国密歇根州上周公布的数据显示，有强制口罩规定的学校与不强制戴口罩的学校，在新冠的病例率上并无差别。
+
+【推文转报道，与实施严格口罩规定的学校相比，没有口罩规定的学校的平均病例数要少。路易斯维尔大学 (University of Louisville) 的研究人员今年 8 月发布的一项经过同行评审的研究也有类似的发现，结论是“口罩强制令可能不会影响新冠病例的增长。”】
+
+
+
+> The state of Michigan last week published data that shows schools with no mask mandates had "similar" COVID-19 case rates to schools with mandates. [https://t.co/WQGSxoo1aS](https://t.co/WQGSxoo1aS)
+> — Newsmax (@newsmax) [December 20, 2021](https://twitter.com/newsmax/status/1472877007335612416?ref_src=twsrc%5Etfw)
+
+
+
+**7.新唐人12月20日在盖特发文：**
+
+皇家加勒比公司的“海洋交响乐号”游轮上至少有48名乘客的新冠核酸检测呈阳性，尽管该公司已要求所有12岁及以上的游客都需要出示疫苗接种证明才能登船。
+
+【盖文转报道，皇家加勒比公司的发言人莱安·西耶拉-卡罗（Lyan Sierra-Carro）向当地媒体证实，12月4日，游轮上的一位乘客被确认感染了奥米炕变种病毒。检测呈阳性的乘客有轻微症状或没有症状。】
+
+[https://gettr.com/post/pk5gfd3b5d](https://gettr.com/post/pk5gfd3b5d)
+
+**8.真正美国之声12月21日发推说：**
+
+哈佛大学表示，由于新冠病例的“快速上升”，在明年1月份的前三周将进行远程授课，尽管97%的学生和员工都已接种了新冠疫苗。
+
+【推文转报道，哈佛大学12月18日在给学生的一封信中说：“预计奥米炕变种将在未来几周内成为全国的主导变种，可能在1月的前几周达到顶峰。如果公共卫生条件允许，1月下旬将重新开放校园。”哈佛大学还鼓励学生接种加强针，戴口罩，保持社交距离，并接受核酸测试。】
+
+
+
+> .[@Harvard](https://twitter.com/Harvard?ref_src=twsrc%5Etfw) University says classes will be mostly remote for the first three weeks of January due to a "rapid rise" in [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) cases, despite the fact that 97% of all students and employees are vaccinated.[https://t.co/p6FfisCr9q](https://t.co/p6FfisCr9q)
+> — Real America's Voice (RAV) (@RealAmVoice) [December 20, 2021](https://twitter.com/RealAmVoice/status/1473075743030591491?ref_src=twsrc%5Etfw)
+
+
+
+**9.印太新闻 – 关注中共威胁 12月20日发推说：**
+
+澳英美联盟的任务之一是打破中共对稀土的控制。中共掌控了太多对先进技术来说至关重要的原材料。
+
+
+
+> Breaking [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)'s grip on rare earths should be an [#AUKUS](https://twitter.com/hashtag/AUKUS?src=hash&amp;ref_src=twsrc%5Etfw) mission
+> 
+> Beijing has too much control over critical materials vital to advanced technology.[https://t.co/cTf70awdi1](https://t.co/cTf70awdi1)
+> — Indo-Pacific News – Watching the CCP-China Threat (@IndoPac\_Info) [December 20, 2021](https://twitter.com/IndoPac_Info/status/1472899619717713923?ref_src=twsrc%5Etfw)
+
+
+
+**10.盖特官方12月21日在盖特发文：**
+
+杰森米勒在接受媒体El American采访时说：“我们创建盖特是因为我们想建立一个这样的社交媒体平台，允许人们表达他们的政治观点，但同时仍有明确的规则和服务条款，以确保为所有盖特用户提供一个安全的平台环境。我们不认为这是一个关于盖特与Truth Social竞争的故事，而是一个关于多个新平台挑战硅谷垄断的故事。平台服务于不同的目，据我们了解，Truth Social将专注于流媒体服务和保守派节目，而在盖特，我们专注于直播、短视频网络、双币加密货币以及基于区块链的支付系统。”
+
+[https://www.gettr.com/post/pk5ype7d10](https://www.gettr.com/post/pk5ype7d10)
+
+
+
+> "We don’t think this is a story about GETTR versus Truth Social, but rather one about multiple new platforms challenging the Silicon Valley monopolies.” 
+> 
+> In-depth interview with [@JasonMillerinDC](https://twitter.com/JasonMillerinDC?ref_src=twsrc%5Etfw) for [@ElAmerican\_](https://twitter.com/ElAmerican_?ref_src=twsrc%5Etfw) [https://t.co/d1lBlHJq4d](https://t.co/d1lBlHJq4d)
+> — Ben Kew 🐶 (@ben\_kew) [December 20, 2021](https://twitter.com/ben_kew/status/1472957559829155840?ref_src=twsrc%5Etfw)
+
+
+
+[https://twitter.com/ben\_kew/status/](https://twitter.com/ben_kew/status/)
+
+**11.Disclose.tv 12月21日发推说：**
+
+12月17日在空军一号上与总统拜登共度了一段时间的白宫工作人员，尽管已接种了加强针，但仍感染了奥米炕变种。在接触了感染者后，拜登12月19日的核酸检测结果为阴性，12月20日早上的检测结果也为阴性。
+
+
+
+> JUST IN – Vaccinated and boosted White House staffer infected with [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) after spending time on AF1 with Biden on Friday.
+> — Disclose.tv (@disclosetv) [December 21, 2021](https://twitter.com/disclosetv/status/1473086008182906882?ref_src=twsrc%5Etfw)
+
+
+
+**12.Disclose.tv 12月21日发推说：**
+
+接种了加强针疫苗的前美国总统川普对那些质疑新冠疫苗的人说，你正被他们玩弄于股掌之间。
+
+
+
+> NEW – Trump: "You’re playing right into their hands" when you doubt the [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) vaccines.[pic.twitter.com/GXmxQVNezF](https://t.co/GXmxQVNezF)
+> — Disclose.tv (@disclosetv) [December 20, 2021](https://twitter.com/disclosetv/status/1472987776786354177?ref_src=twsrc%5Etfw)
+
+
+
+**13.郭文贵先生在12月20日的盖特视频中说：**
+
+北京冬奥会这场政治游戏的唯一受害者就是10亿中国人民。所有的中国人将为这个完全没有任何价值的愚蠢的国际政治秀付出几千亿美元的代价。可悲、可怜、可恨至极！这是人类全球最昂贵的一场灾难游戏。昨天的大直播在国内影响巨大。在世界经济即将崩塌之前，我们爆料革命的声音是世界上唯一救人的忠言警告。
+
+[https://gettr.com/post/pk5p5a0268](https://gettr.com/post/pk5p5a0268)
+
+**以上社交媒体新闻由 巴拉克和Stephanie 联合编译报道**
+
+发布:星星
+
+* * *
+
+**By 【秘密翻译组-即时新闻播报组】**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/秘翻海报.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
