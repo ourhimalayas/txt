@@ -84,37 +84,37 @@
 ### [西喜时事新闻简报 — 美国时事篇](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中国老年法轮功学员从臭名昭著的监狱出狱3天后死亡](/content/gnews/24/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [GTV新闻访谈简报|2021年12月21日早](/content/gnews/25/README.md)
+### [GTV新闻访谈简报|2021年12月21日早](/content/gnews/24/README.md)
  ` 纽约香草山MOS01`
 
-### [详述中共对美大使馆外交人员进行“肛门测试”](/content/gnews/26/README.md)
+### [详述中共对美大使馆外交人员进行“肛门测试”](/content/gnews/25/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美国汇丰银行零售商业银行业务明年将易主](/content/gnews/27/README.md)
+### [美国汇丰银行零售商业银行业务明年将易主](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [英国医护人员拒绝强制疫苗可能导致医院关闭](/content/gnews/28/README.md)
+### [英国医护人员拒绝强制疫苗可能导致医院关闭](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [有声|台湾四大公投皆否 粉碎中共及同路人阴谋](/content/gnews/29/README.md)
+### [有声|台湾四大公投皆否 粉碎中共及同路人阴谋](/content/gnews/28/README.md)
  ` MOSREC`
 
-### [有声|潘石屹名下SOHO项目被罚7.09亿元](/content/gnews/30/README.md)
+### [有声|潘石屹名下SOHO项目被罚7.09亿元](/content/gnews/29/README.md)
  ` MOSREC`
 
-### [有声|欧洲议会决议呼吁 调查中共诱骗越南劳工赴塞尔维亚工作](/content/gnews/31/README.md)
+### [有声|欧洲议会决议呼吁 调查中共诱骗越南劳工赴塞尔维亚工作](/content/gnews/30/README.md)
  ` MOSREC`
 
-### [有声|南非住院率在世界奥米克戎激增时反而下降](/content/gnews/32/README.md)
+### [有声|南非住院率在世界奥米克戎激增时反而下降](/content/gnews/31/README.md)
  ` MOSREC`
 
-### [有声|国安法后 赴英港人激增](/content/gnews/33/README.md)
+### [有声|国安法后 赴英港人激增](/content/gnews/32/README.md)
  ` MOSREC`
 
-### [欧洲受“奥米抗”毒株感染的国家及病例激增](/content/gnews/34/README.md)
+### [欧洲受“奥米抗”毒株感染的国家及病例激增](/content/gnews/33/README.md)
+ ` GTV新闻访谈`
+
+### [辉瑞欲收购致力于心血管疾病药物研发的企业](/content/gnews/34/README.md)
  ` GTV新闻访谈`
 
 ### [银河快讯:日本东京股市大跌；日本 “史上最大”年度补充预算已被批准](/content/gnews/35/README.md)

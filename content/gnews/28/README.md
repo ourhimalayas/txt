@@ -2,26 +2,23 @@
 ---
 
 
-## 英国医护人员拒绝强制疫苗可能导致医院关闭
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1778264/)
+## 有声|台湾四大公投皆否 粉碎中共及同路人阴谋
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1778181/)
 
-作者：纽约香草山信息部- 诺雅
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-外媒12月20日消息，英国政府要求在明年4月1日前，卫生工作者必须完成中共病毒疫苗接种，而医务人员拒绝遵守，可能会迫使整个医院单位关闭。
+配音：香草山香港部 – 文凯琳
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+当地时间12月18日，台湾举行四项议题公投，当晚8点多开票结束。四大议题包括公投第17案：重启核四；第18案：反萊豬进口；第19案：公投绑大选；第20案：三接迁离。结果皆是不同意票大于同意票，表示民众多数赞成维持政府目前的施政措施，无意做变更。此结果粉碎了中共及其同路人国民党，意图破坏台美关系，及台湾经济发展的计划。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide7-8.jpeg)
+四个公投案皆由国民党及中共操纵，意图打着环保及食安议题的名义，扰乱台湾政府目前的施政。含莱剂猪肉品进口案，是中共及国民党主打议题，希望借着公投结果，让美国含莱剂的猪肉品不能进口到台湾，藉此造成台美间的贸易障碍。不仅增加台湾期待加入各个自由贸易组织的困难度，也破坏了台美间的和谐气氛。
 
-英国”国家医疗服务供应者“的首席执行官克里斯-霍普森透露，英国某医院有大约40名助产士拒绝接种中共病毒疫苗。他表示，鉴于这些工作人员的技能和专业知识，他们很难重新就业，但也极难被替换。因此，该医院的产科可能会被关闭。霍普森承认，这个案例具有典型性：对强制疫苗政策的抵制可能导致医疗服务短缺。
+15日，中共国台办发言人马晓光，针对台湾即将进行的公投案，对台执政党进行批评，意图左右公投投票结果。有评论称，这暴露了中共在背后操控台湾公投的阴谋。
 
-英国卫生部长萨吉德-贾维德上周告诉国会议员，还有大约九万四千名国家医疗服务人员未接种疫苗。由于训练有素的助产士在英格兰持续短缺，产科尤其容易受到疫苗强制政策的影响。伦敦地区的疫苗接种率普遍最低，政府的强制政策，可能对医院的能力造成严重的压力。
+文字版原文：[台湾四大公投皆否 粉碎中共及同路人阴谋](https://gnews.org/zh-hans/1770167/)
 
-参考链接：[Entire Hospital Wards at Risk of Shutdown Over Vaccine Mandates](https://www.infowars.com/posts/entire-hospital-wards-at-risk-of-shutdown-over-vaccine-mandates/)
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
-
-总编：童谣
-编辑：童谣
-校正/发稿：谐趣园
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -29,7 +26,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
