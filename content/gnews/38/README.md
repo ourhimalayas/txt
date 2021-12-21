@@ -2,38 +2,38 @@
 ---
 
 
-## 银河快讯:日本东京股市大跌；日本 “史上最大”年度补充预算已被批准
-` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1777978/)
+## 辉瑞欲收购致力于心血管疾病药物研发的企业
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1777984/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-111.png)[图片来源](https://www.btranks.com/)
-**1.****日本东京股市大跌，两周来首次跌破2****8000****日元 **
+作者：纽约香草山信息部- 诺雅
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据外媒消息，辉瑞公司将以67亿美元收购生物制药企业Arena，该交易预计将在2022年上半年完成。据悉，Arena正在开发免疫炎症性疾病的新疗法，多数已进入临床试验阶段；当前，该公司致力于研发针对急性心力衰竭和微血管梗阻等疾病的治疗产品。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-21-下午11.08.24-1.png)
+此前，辉瑞以22.2亿美元收购了致力于肿瘤免疫治疗的药企- 翠莲医药，辉瑞将借此拓宽其血液病，尤其是血癌治疗产品的研发和生产。
 
-[据共同社报道，本周一20日本东京股市的日经平均指数（225种）继续大幅下跌。收盘价为27,937.81日元，较上周末下跌607.87日元，两周以来首次跌破了28,000日元的节点。卖盘以对美联储收紧货币的谨慎态度为主。中共国宣布降息以及对中国经济放缓的再次担忧也使市场受到拖累。跌幅是自11月26日以来最大的一次，当时由于中共病毒的新变种Omicron的出现，跌幅接近750日元。包括上周末在内的两天跌幅超过了1,100 日元。东证指数报1,941.33，下跌43.14点。成交量约为11.42亿股。](https://news.yahoo.co.jp/articles/a7ccbfb1cd6843229f246326e9677c8e105704a2)
+随着辉瑞疫苗及其加强针接种率不断提升，越来越多的接种者出现心肌炎、静脉微血栓、免疫血栓性血小板减少症等严重不良反应。郭文贵先生多次援引中共病毒及疫苗计划爆料人的观点并警告世界：疫苗接种后普遍的灾难性后果将在15个月到两年内爆发；感染病毒的人群将在3到10年内有一半以上的概率罹患各种癌症。辉瑞近来陆续收购肿瘤和心血管疾病药企的行径，其真实的意图更加耐人玩味。
 
-**2.****日本 “史上最大”的本年度补充预算已被批准，总额达35兆98****95****亿日元**
+参考链接：
+1）[Pfizer is Buying a Cardiovascular Biopharma Company for $6.7Bn.](https://thenationalpulse.com/news/pfizer-is-buying-a-cardiovascular-biopharma-company-for-6-7bn/)
+2）[Pfizer to Acquire Arena Pharmaceuticals](https://www.pfizer.com/news/press-release/press-release-detail/pfizer-acquire-arena-pharmaceuticals)
+3）[Pfizer bets on Arena’s promising bowel disease treatment in $6.7 bln deal](https://www.reuters.com/markets/deals/pfizer-acquire-arena-pharmaceuticals-67-bln-deal-2021-12-13/)
+4）[Pfizer bets on Arena Pharmaceuticals’ promising bowel disease treatment in $6.7 billion deal](https://www.cnbc.com/2021/12/13/pfizer-to-acquire-arena-pharmaceuticals-in-6point7-billion-deal-.html)
+5）[arenapharm](https://www.arenapharm.com/therapeutic-focus/cardiovascular)
+6）[United Therapeutics](https://www.unither.com/products)
 
-[据TBS新闻20日报道，本财政年度的补充预算已经获得批准，其中包括为 18 岁以下的人提供相当于 10万日元的福利。普通账户的总金额超过35兆9800亿日元，是有史以来最大的。补充预算是政府编制的经济措施的依据，并于早些时候在参议院全体会议上进行了表决，获得了执政党多数通过和批准。普通账户的支出总金额为35兆9895亿日元，其中还包括为中小型企业提供高达250万日元的资金以及为普及“我的号码卡”的积分授予的财政来源。](https://news.yahoo.co.jp/articles/b22054074fb277046fa0dcb5f612fa242a57444f)
+![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-**3.****在日本与中共病毒相关的破产案2****544****件，其中2021年超过1700件**
+总编：文真
+编辑：Zion文恩
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-[据帝国数据银行报道，截至2021年12月20日16点，日本全国范围内已确认受中共病毒影响的破产案件\[包括依法清算或停业（银行停止交易处理除外）、债务1000万日元以下及个人独资企业\]2544件（依法清算2363件，停业181件）。1亿日元以下的小规模破产案1486件（占总比58.4%），负债100亿日元以上的大规模破产案仅5起（占0.2%）。按发生月份，第5波感染影响大，9月的案件数最高；按行业，餐饮业最多427件；按地区，东京最多525件。](https://news.yahoo.co.jp/articles/52485b0116439c63b768a0727f17897578283d25)
-
-**4.****前泽友作返回地球，完成了1****2****天的国际空间站太空之旅**
-
-[据NHK报道，一艘载有两名日本民间人士的俄罗斯宇宙飞船在日本时间20日中午后不久返回地球，其中包括企业家前泽友作，这是他第一次在国际宇宙空间站停留进行宇宙旅行。企业家前泽友作和相关公司董事平野阳三两人作为日本民间人士首次进行了在国际空间站停留的太空旅行，为了返回地球，和俄罗斯宇航员一起乘坐俄罗斯的宇宙飞船“联盟号”，于日本时间20日上午9点前离开了宇宙空间站。此次太空旅行历时12天，进入太空的日本人总数为14人。](https://www3.nhk.or.jp/news/html/20211220/k10013395341000.html)
-
-**5.****东京都有超过1****000****人为Omicron感染者的密切接触者**
-
-[据NHK 20日报道，以国外入境者为主，中共病毒新变种Omicron病毒的感染相继发生，乘坐同一架飞机而成为密切接触者的情况也在增加，东京都内超过了1000人。厚生劳动省将与从国外入境并被发现感染 Omicron的患者的同机乘客视为密切接触者。根据东京都政府的数据，截至19日，这些人中有1002人在东京居住或逗留。这1002人中，408人已经或将被送入市政府的寄宿护理机构，其他人则留在家中，并与卫生站保持联系。此外，东京都健康安全研究中心已经确诊的4 名Omicron感染者的密切接触者还有 15 名。](https://www3.nhk.or.jp/news/html/20211220/k10013396401000.html)
-
-**6.****“接种证明程序”输入错误，可能导致显示错误的信息**
-
-[据读卖新闻报道，日本政府用于证明接种中共病毒疫苗的智能手机应用程序将于20日开始运行。然而，在签发证书的疫苗接种记录系统中登记的信息中，错误和遗漏却层出不穷。一些市政当局还没有进行修改，数字厅要求在使用前要检查确认，因为可能会显示内容不正确的证明。据数字厅称，截至16日，全国约有10万人需要修改VRS记录。很多错误是第二次接种的日期早于第一次接种，或者疫苗的批号不正确。此外，还有约433万人得到了可能是错误的“需要确认”信息。除了输入错误，也有认为是政府借出的专用终端造成的。](https://news.yahoo.co.jp/articles/555f4a557d4379e74a1424da86fbafdc41eaaaf0)
-
-【日本银河系农场-阿尔法星球】
-作者：π&π
-校对：帆間知津
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
