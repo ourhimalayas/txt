@@ -2,28 +2,28 @@
 ---
 
 
-## 欧洲受“奥米抗”毒株感染的国家及病例激增
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1777985/)
+## 中共是导致中共国人口危机的罪魁祸首
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1777992/)
 
-作者：纽约香草山 医疗部 云豹
+作者：东京樱花团 – 在远方
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-欧洲疾病预防控制中心于当地时间12月20日公告，欧盟及欧洲经济区已经有28国，总共四千六百九十一则“奥米抗”变异病毒感染案病例。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-21-下午11.08.32.png)
-在12月18日，仅英国境内“奥米抗”毒株感染病例已经达到两万五千例，其中有7例死亡。 伦敦市长因此宣布伦敦进入紧急状态，以加速整合各处资源来协助各大医院因应激增的住院人数。据专家估计，目前在伦敦新增的感染案例中，有8成是属于“奥米抗”变异病毒。
+盖特12月19日消息，近日班农先生在英喜农场的每周战斗室采访节目中，谈及中共国人口危机。他表示，中共的历史就是一部血淋淋的杀人历史——大跃进、大饥荒和文革，杀死了9千万到一亿中国人。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2-82.jpg)
+中共的计划生育政策杀死了4亿婴儿，其中80%是女婴。他估计目前中共国只有不到10亿人口，所以人口急速老龄化导致劳动力缺失，中共对此极度恐慌，开始推出3胎政策，但是无助的人民却恐惧孩子变成共产奴隶。
 
-此外，截止12月20日，欧盟主要成员国报道“奥米抗”毒株为：挪威2060例、丹麦726例、法国347例、德国249例。
+班农先生指出：中共高层的内斗以及层出不穷的愚蠢政策，让中国人民苦难不断。中共污染了土地、空气和水，剥夺中国人的生产资料，禁止人民创业，国企效率低下。恐惧中国人拥有自然而健全的家庭，所以强制进行计划生育，因此导致目前中共国人口危机。
 
-据悉，“奥米抗”变异株的传染力强，在欧洲区域目前的现况是每2至3天，病例数成长一倍。 如果此趋势不变，到明年元月，“奥米抗”将成为欧洲区域内中共病毒传染的主要病毒株，需严加防范。
+中共活摘器官、剥夺人民信仰自由，工人得不到应有工资，自杀率很高。但中共从来不在乎人民的生命，现在又朝着建立人类命运共同体狂奔，狂妄的认为可以主宰一切。而华尔街、拜登政府、跨国公司却跟中共私下勾兑，全世界对此视而不见。
 
-参考链接：
-1）[Omicron擴散歐洲28國 逾4000病例](https://www.cna.com.tw/news/firstnews/202112200340.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-2）[英國Omicron單日增逾1萬例 倫敦進入重大事件狀態](https://www.cna.com.tw/news/firstnews/202112190050.aspx)
+班农先生强调说，只有中国人民自由了，世界才能自由。
 
-![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+参考链接: [GTV UK Mr. Bannon’s Weekly Interview 1215-Q4](https://gettr.com/post/pk2ols8066)
 
-总编：Zion文恩
-编辑：Zion文恩
-校正/发稿：呼吸的雾霾（文小呼吸）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+
+总编：文真
+编辑：Lakeman文仁
+校正/发稿：Fei797
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

@@ -2,28 +2,21 @@
 ---
 
 
-## 波音公司暂停对美国员工的疫苗强制令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1778020/)
+## 有声|奥米克戎对重污染、打疫苗致死率极高
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1778176/)
 
-作者：纽约香草山农场 – 文真
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月17日，美国飞机制造商波音公司表示，暂停对美国雇员的中共病毒疫苗接种强制令。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/3-49.jpg)
-波音公司在一份内部公告中说，该决定是在审查了美国地区法院，本月早些时候的一项裁决后作出的，该裁决停止了拜登政府对联邦承包商的疫苗强制执行要求。
+配音：香草山香港部 – 文凯琳
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+12月18日，文贵先生在大直播中提到，解析奥米克戎病毒特点，文贵先生警示：奥米克戎病毒（Omicron）对不同种族和地区人的影响不同。奥米克戎传播性极强，对健康的人至死率没那么高，但对于大面积污染的地区死亡率极高，对有心血管疾病、呼吸道疾病 、肺部疾病、心脑梗问题疾病的人群非常危险，因为奥米克戎病毒的繁殖率极高。
 
-据报道，最近几周，以宗教或医疗理由寻求疫苗豁免的波音公司员工人数，已达一万一千多人，占其美国员工总数的近9%。这比最初预估的人数高出许多倍，因而迫使波音开始考虑避免工程和工厂劳动力外流的策略。
+文贵先生爆料，近一周内，中共国约有10万余人感染，最近全世界打过2-3针疫苗的人被传染概率更大，新冠疫苗本身就是毒，对身体造成堵塞，感染奥米克戎会加速堵塞，身体会极力抵抗，到了极限立即死亡。
 
-据悉，一些大型医疗连锁店和通用电气等美国公司，也暂停了对工人的疫苗强制令。
+文字版原文：[奥米克戎对重污染、打疫苗致死率极高](https://gnews.org/zh-hans/1770818/)
 
-参考链接: 
-1) . [内部文件显示，波音公司暂停了美国境内员工的强制疫苗政策](https://gettr.com/post/pjy2633193)
-2) . [Boeing suspends vaccine mandate for U.S. employees](https://news.yahoo.com/exclusive-boeing-suspends-vaccination-requirement-203212561.html)
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
-
-总编：Zion文恩
-编辑：Kathy文艺
-校正/发稿：Fei797
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -31,7 +24,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
