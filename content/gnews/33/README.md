@@ -2,35 +2,20 @@
 ---
 
 
-## 印度：三针疫苗接种者查出Omicron病毒
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1775448/)
+## 港府和中共联手蒙骗 制造人心所向
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1775551/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Omicron_Virus.jpg)图片来源：REUTERS
-翻译：George Warshing
-校对/编辑：守望黎明
+作者：东京樱花团丨阿恩
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-352.jpeg)
+立法会选举已结束，投票率仅三成。林郑月娥指投票超过 130 万名选民，称他们既选出了心目中的立法会议员，也是支持完善后的选举制度；新华社发表[评论文章](http://www.news.cn/gangao/2021-12/19/c_1128179336.htm)，「百万港人用实际行动粉碎了一些外部势力针对选举的谎言与污蔑，表明了真正的人心所向」。
 
-孟买市政厅在12月17日的新闻发布会上说，一位29岁从纽约回来的男子，11 月 9 日在该市机场接受冠状病毒病检测时，检测结果为阳性，随后通过病毒样本的基因组测序证实了在这位患者感染的是奥密克戎Omicron变种病毒。
+中共篡改的选举制度已经被香港人用超低的投票率打了脸，港府仍在媒体吹嘘，把投白票和投废票的选民都纳入支持中共新选制的名单中愚弄港人，新华社也发文骗内地同胞，称百万港人投票人心所向。混淆视听一贯是中共的伎俩，去投票的就被定义我支持新选举制度，有谁不知道在中共的白色恐怖下，港人的抗争已转化各种形式，许多投票的港人是为防止种票造假，有许多人专门跑去投白票以示抗议，还有人将选票涂污成废票发泄不满，这两年有大量的港人移民或逃离香港，许多人仍持有香港身份，而建制派种票是人尽皆知的丑事，相信这些无法投票的选民将成为种票造假的资源，所以三成的投票率还要挤出多少水分，港人是心知肚明的。中共想在香港建立有社会主义特色的民主，不过香港人不吃这一套，2019年创历史新高的七成投票率，港人还击了中共的暴政，周日超低的三成投票率，是港人用深水炸弹毁了中共的民主之舟。
 
-孟买市政厅详细阐述了这个特殊案例，称他先前已经注射过三针辉瑞疫苗。在他被测试出阳性后不久，便被接入医院以作预防。官方声明称，市政当局还启动了接触者追踪调查，但他的两个“密切接触者”的检测均呈阴性。
+资料来源：[**【立法会争位】投票率创新低林郑：逾130 万选民支持完善选制 新华社评论：表明人心所向**](https://www.thestandnews.com/politics/%E7%AB%8B%E6%B3%95%E6%9C%83%E7%88%AD%E4%BD%8D%E6%8A%95%E7%A5%A8%E7%8E%87%E5%89%B5%E6%96%B0%E4%BD%8E-%E6%9E%97%E9%84%AD%E9%80%BE-130-%E8%90%AC%E9%81%B8%E6%B0%91%E6%94%AF%E6%8C%81%E5%AE%8C%E5%96%84%E9%81%B8%E5%88%B6-%E6%96%B0%E8%8F%AF%E7%A4%BE%E8%A9%95%E8%AB%96%E8%A1%A8%E6%98%8E%E4%BA%BA%E5%BF%83%E6%89%80%E5%90%91)
 
-得注意的是，美国辉瑞制药公司12月17日表示了担忧，认为新冠的大流行可能会持续到 2024 年，因为据报道，传播迅速的奥密克戎Omicron变种病毒的传染率可能比更早些的德尔塔病毒要高五倍。
-
-辉瑞与德国拜恩泰科BioNTech合作开发了辉瑞新冠疫苗，目前它们又在开发一款专门针对奥密克戎Omicron变种病毒的疫苗，但尚未确定它是否需要推广。辉瑞高管称，他们预计在明年1月份开始对升级的疫苗进行临床试验。
-
-随着最近在孟买报告的变种新冠最新病例，这座印度金融之都的奥密克戎Omicron病毒患者的最新数字已升至14人，其中5人是外来人员。
-
-值得注意的是，这14位患者中有13人已经出院。孟买市政厅在新闻发布中说，这14名奥密克戎Omicron病毒患者无人出现重症。目前在印度马哈拉施特拉邦全境感染奥密克戎Omicron病毒的累计总人数达到了40人。
-
-原文链接**：**[Omicron detected in US returnee, who took 3 doses of Pfizer vaccine: BMC](https://www.hindustantimes.com/cities/mumbai-news/omicron-detected-in-us-returnee-who-took-3-doses-of-pfizer-vaccine-bmc-101639791054052.html)
-
-发布：Peter Xin
-
-**更多****资讯****，****请关****注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团 / 文小白*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
