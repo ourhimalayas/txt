@@ -2,61 +2,159 @@
 ---
 
 
-## 拜登的“重病和死亡的冬天”已在高疫苗接种州成现实(2/2)
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1777376/)
+## 12/21每日播报｜社媒消息：蓬佩奥 娜塔莉温特斯
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1777441/)
 
-**翻译： Jenny Ball**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip02-4.png)图片来源：newstarget.com
-以后每年冬天，都会发生一波疫苗死亡浪潮
+**By:[秘翻新聞](https://gtv.org/broadcast/watch/61c19743bcb7f101bb724eea)**
 
-不幸的是，对于蓝色城市、县和州来说，疫苗无法打进去再弄出来。在即将到来的冬天，死亡人数将受到重创，但由于天然维生素 D 的增加，死亡人数可能会在 2022 年夏天减少。然而，2022/2023 年的冬天绝对是毁灭性的，因为 mRNA 刺突蛋白又多了一年的时间损害血管系统并抑制免疫。更糟糕的是，许多人将被说服在 2022 年之前进行额外的加强剂注射，这将导致他们明年第二次进入冬季死亡。
+**2021-12-21**
 
-**这种死亡的循环，由于加强注射和媒体歇斯底里，将持续造成数千万美国人死亡**（除非以某种方式停止种族灭绝）。 这可能要几年时间，但在此期间，美国经济将遭受重创，我们的公民自由将不断受到攻击。随着纽约州现在正在考虑立法，使武装医疗绑架未接种疫苗的人合法化——并将他们扔进集中营——这是对美国政府压制美国人民的医疗暴政能到何种程度才能掀起一场激烈的反抗的测试。
+**1.蓬佩奥12月21日发推说：**
 
-**民主党州将被未接种疫苗的非法移民取代，他们获有特殊保护**
+我们不能向中共屈服。
 
-与此同时，蓝色的州、市和县，将在未来几年遭受毁灭性的经济后果，而死亡的人口统计数据将看到，每有一名共和党人死于疫苗，就有两名民主党人死于疫苗。
 
-腐败的左翼领导人已经知道这一点，这就是为什么他们要引进受到保护而免于接种疫苗的非法移民，以便他们在占领美国后，能够保持生育能力和繁殖。
 
-这是真的： [没有给非法移民注射疫苗](https://www.lifesitenews.com/news/refugees-are-not-being-given-covid-jabs-because-manufacturers-fear-lawsuits-over-adverse-reactions/)，因为疫苗制造商不想承担因疫苗伤害引起的诉讼责任。因此，美国公民可能被疫苗系统性地毒害、死亡或导致不育，而非法分子则被赋予“受保护”地位，并被允许占领和重新居住在美国，以取代即将死去的民主党人。
+> We cannot kowtow to the Chinese Communist Party.
+> — Mike Pompeo (@mikepompeo) [December 20, 2021](https://twitter.com/mikepompeo/status/1473019181700423680?ref_src=twsrc%5Etfw)
 
-**特别具有讽刺意味的是，投票支持的民主党人，还不知道他们正在被非法移民灭绝和取代。**
 
-美国FDA已宣布，在所有 50 个州通过邮递提供堕胎药，同时，FDA正与 USPS 合谋拦截和销毁所有伊维菌素。换句话说，邮件可以用来谋杀未出生的婴儿，但绝不能用来挽救公民的生命免受新冠病毒的侵害。
 
-因此，在犯罪主谋福奇和CDC的积极推动下，美利坚合众国已成为一个巨大的死亡集中营，在未来十年内将有数千万新冠疫苗的伤亡，替代者已准备好接替死去的民主党人。
+**2.娜塔莉温特斯12月21日发推说：**
 
-非法移民是比被洗脑的左翼美国人更可靠的社会主义者
+乔·拜登禁止美国人投资中共的一些科技公司，但他儿子亨特·拜登却从其中获利。
 
-事实证明，来自中美洲和南美洲的非法移民比妄想的左翼白人自由主义者更可靠会投票给社会主义者。因此，**他们被选为受保护阶级，以迎接下一个世纪的大规模贫困、政府威权主义和医疗暴政。**正如美国的非法移民很少需要携带汽车保险或驾照一样——他们在德克萨斯州、加利福尼亚州、新墨西哥州和其他州，**基本上拥有法律豁免权**——**他们也不需要出示任何疫苗合规文件**。他们将被允许通过社会的各个部门——包括投票站——而无需出示任何形式的身份证明或合规性。
+【推文转《国家脉动》报道，被白宫列入“中共军工企业”黑名单的几家公司获得了与亨特·拜登有关的投资基金的支持。比如专注于面部识别的旷视科技 从渤海华美获得了大量投资。渤海华美是一家私募股权公司，Hunter Biden于 2013 年开始担任该公司的董事。】
 
-强制疫苗只会施加在真正的美国公民身上，以便消灭他们。
 
-这就是你现在生活的现实，**只有那些拒绝接种疫苗的人才能成为这场疫苗大屠杀的幸存者。**
 
-如果你遵守强制，你就会死。抵制疫苗，你可能还有机会，尽管目前很难通过设计阻止非法移民横扫全国。用免费机票把他们送到民主党需要额外投票支持的摇摆县和州，由于在 2020 年大选被操纵后对电子投票机的审查越来越严格，他们不再能够可靠地通过选票欺诈来实现。
+> Biden Bans Investment In Chinese Tech Firms Hunter Profited From.[https://t.co/BfikPxlK4P](https://t.co/BfikPxlK4P)
+> — Natalie Winters (@nataliegwinters) [December 20, 2021](https://twitter.com/nataliegwinters/status/1472987463748489218?ref_src=twsrc%5Etfw)
 
-再说一次，民主党人已计划了下两到三步，而共和党则在玩着整齐的眨眼，并在每一个转弯处都被迷惑了。共和党仍在打上一场战争，而民主党和全球主义者日复一日地将其计划席卷全国。
 
-你曾经熟悉的美国已经消失了。青年人已被 LGBT洗脑和公共教育的彻底失败所腐蚀，无可救药。已经对他们进行了大规模死亡所需的疫苗注射。**法定货币已经印到了毁灭的地步。现在只是这些问题的演习。**
 
-很少有人意识到我们曾经熟悉的美国已经消失了。就像《孙子兵法》，这场战争的胜负，在第一枪还没打响之前就已经决定了。现在唯一的问题是，随着美国的垮台，谁将负责？ 是民主党人故意设计了这个伟大国家的毁灭吗？ 还是共和党人在马克思主义者和共产党人接管每个机构时袖手旁观，无所作为？
+**3.《国家脉动》12月20日在盖特发文：**
 
-**不管怎样，你曾经熟悉的世界已经不复存在。**
+辉瑞公司以67亿美元收购了一家心血管生物制药公司。
 
-**新闻来源**：[newstarget.com][Emergency update from Adams – Biden’s promised “winter of severe illness and death” is coming true, and here are the states that will see the highest death rates](https://www.newstarget.com/2021-12-20-emergency-update-from-adams-bidens-promised-winter-of-severe-illness-and-death-is-coming-true.html)
+【盖文转报道，辉瑞收购的这家公司是Arena制药公司。Arena公司部分专注于心血管和炎症药物的研发。但是大多数主流新闻机构的报道都集中在Arena的肠道疾病治疗上，而没有提及该公司的心血管研究。总部位于犹他州的Arena公司与联合治疗公司（United Therapeutics Corporation）现在有合作关系，后者的研究重点是肺动脉高血压。辉瑞的此项收购肯定会给其带来比企业媒体所吹捧的肠道疾病治疗更多的回报。因为中共病毒容易让感染者患上肺动脉高压，另外辉瑞等公司开发的中共病毒疫苗容易引发心血管问题，比如心肌炎。】
 
-**相关文章**：[拜登的“重病和死亡的冬天”已在高疫苗接种州成现实(1/2）](https://gnews.org/zh-hans/1777503/)
+[https://gettr.com/post/pk6ah70068](https://gettr.com/post/pk6ah70068)
+
+**4.《班农战斗室》12月19日在盖特发文：**
+
+小罗伯特·F·肯尼迪 (Robert F. Kennedy, Jr.)12月18日接受了《班农战斗室》节目的采访，他说美国情报部门和军方参与了武汉实验室的研究。
+
+【盖文转《网关专家》报道，小肯尼迪表示：“他们从来没有谈论过公共卫生，也从不谈论如何药物再利用、如何隔离病人、如何让人们吃维生素D和锌、锻炼身体、建立他们的免疫系统。他们所谈的全是关于如何以大流行病为借口来消灭民主制度。武汉功能增强研究实验的最大资助者是美国中情局（CIA），它们通过美国国际开发署（USAID）提供资金，甚至比福奇的资助还要多；五角大楼排第二；福奇第三。五角大楼通过福奇向武汉实验室输送资金，每年17亿美元，现在是22亿美元。他们还因福奇的生物武器研究给他增加了68%的薪水。这就是为什么即使奥巴马让他在2014年停止功能增强研究时，他仍继续此项目的原因之一。他们将其武器化，以便让人无法追溯到他们将病毒投放到世界上的时间。”】
+
+[https://gettr.com/post/pk2ab53d7a](https://gettr.com/post/pk2ab53d7a)
+
+**5.Newsmax 12月20日在盖特发文：**
+
+路透社报道称，CNN 12月18日在一份内部备忘录中告诉员工，由于中共病毒病例数的增加，对于CNN的非必要员工，将关闭其在美国的办事处。不在办公室工作的员工，其办公室将被关闭。CNN总裁杰夫·扎克（Jeff Zucker）在备忘录中说：“我们这么做是出于非常谨慎的考虑，通过尽量减少在办公室的人数来保护那些将在办公室工作的人。”
+
+[https://gettr.com/post/pk38mpeda6](https://gettr.com/post/pk38mpeda6)
+
+**6.Newsmax 12月20日发推说：**
+
+美国密歇根州上周公布的数据显示，有强制口罩规定的学校与不强制戴口罩的学校，在新冠的病例率上并无差别。
+
+【推文转报道，与实施严格口罩规定的学校相比，没有口罩规定的学校的平均病例数要少。路易斯维尔大学 (University of Louisville) 的研究人员今年 8 月发布的一项经过同行评审的研究也有类似的发现，结论是“口罩强制令可能不会影响新冠病例的增长。”】
+
+
+
+> The state of Michigan last week published data that shows schools with no mask mandates had "similar" COVID-19 case rates to schools with mandates. [https://t.co/WQGSxoo1aS](https://t.co/WQGSxoo1aS)
+> — Newsmax (@newsmax) [December 20, 2021](https://twitter.com/newsmax/status/1472877007335612416?ref_src=twsrc%5Etfw)
+
+
+
+**7.新唐人12月20日在盖特发文：**
+
+皇家加勒比公司的“海洋交响乐号”游轮上至少有48名乘客的新冠核酸检测呈阳性，尽管该公司已要求所有12岁及以上的游客都需要出示疫苗接种证明才能登船。
+
+【盖文转报道，皇家加勒比公司的发言人莱安·西耶拉-卡罗（Lyan Sierra-Carro）向当地媒体证实，12月4日，游轮上的一位乘客被确认感染了奥米炕变种病毒。检测呈阳性的乘客有轻微症状或没有症状。】
+
+[https://gettr.com/post/pk5gfd3b5d](https://gettr.com/post/pk5gfd3b5d)
+
+**8.真正美国之声12月21日发推说：**
+
+哈佛大学表示，由于新冠病例的“快速上升”，在明年1月份的前三周将进行远程授课，尽管97%的学生和员工都已接种了新冠疫苗。
+
+【推文转报道，哈佛大学12月18日在给学生的一封信中说：“预计奥米炕变种将在未来几周内成为全国的主导变种，可能在1月的前几周达到顶峰。如果公共卫生条件允许，1月下旬将重新开放校园。”哈佛大学还鼓励学生接种加强针，戴口罩，保持社交距离，并接受核酸测试。】
+
+
+
+> .[@Harvard](https://twitter.com/Harvard?ref_src=twsrc%5Etfw) University says classes will be mostly remote for the first three weeks of January due to a "rapid rise" in [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) cases, despite the fact that 97% of all students and employees are vaccinated.[https://t.co/p6FfisCr9q](https://t.co/p6FfisCr9q)
+> — Real America's Voice (RAV) (@RealAmVoice) [December 20, 2021](https://twitter.com/RealAmVoice/status/1473075743030591491?ref_src=twsrc%5Etfw)
+
+
+
+**9.印太新闻 – 关注中共威胁 12月20日发推说：**
+
+澳英美联盟的任务之一是打破中共对稀土的控制。中共掌控了太多对先进技术来说至关重要的原材料。
+
+
+
+> Breaking [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)'s grip on rare earths should be an [#AUKUS](https://twitter.com/hashtag/AUKUS?src=hash&amp;ref_src=twsrc%5Etfw) mission
+> 
+> Beijing has too much control over critical materials vital to advanced technology.[https://t.co/cTf70awdi1](https://t.co/cTf70awdi1)
+> — Indo-Pacific News – Watching the CCP-China Threat (@IndoPac\_Info) [December 20, 2021](https://twitter.com/IndoPac_Info/status/1472899619717713923?ref_src=twsrc%5Etfw)
+
+
+
+**10.盖特官方12月21日在盖特发文：**
+
+杰森米勒在接受媒体El American采访时说：“我们创建盖特是因为我们想建立一个这样的社交媒体平台，允许人们表达他们的政治观点，但同时仍有明确的规则和服务条款，以确保为所有盖特用户提供一个安全的平台环境。我们不认为这是一个关于盖特与Truth Social竞争的故事，而是一个关于多个新平台挑战硅谷垄断的故事。平台服务于不同的目，据我们了解，Truth Social将专注于流媒体服务和保守派节目，而在盖特，我们专注于直播、短视频网络、双币加密货币以及基于区块链的支付系统。”
+
+[https://www.gettr.com/post/pk5ype7d10](https://www.gettr.com/post/pk5ype7d10)
+
+
+
+> "We don’t think this is a story about GETTR versus Truth Social, but rather one about multiple new platforms challenging the Silicon Valley monopolies.” 
+> 
+> In-depth interview with [@JasonMillerinDC](https://twitter.com/JasonMillerinDC?ref_src=twsrc%5Etfw) for [@ElAmerican\_](https://twitter.com/ElAmerican_?ref_src=twsrc%5Etfw) [https://t.co/d1lBlHJq4d](https://t.co/d1lBlHJq4d)
+> — Ben Kew 🐶 (@ben\_kew) [December 20, 2021](https://twitter.com/ben_kew/status/1472957559829155840?ref_src=twsrc%5Etfw)
+
+
+
+[https://twitter.com/ben\_kew/status/](https://twitter.com/ben_kew/status/)
+
+**11.Disclose.tv 12月21日发推说：**
+
+12月17日在空军一号上与总统拜登共度了一段时间的白宫工作人员，尽管已接种了加强针，但仍感染了奥米炕变种。在接触了感染者后，拜登12月19日的核酸检测结果为阴性，12月20日早上的检测结果也为阴性。
+
+
+
+> JUST IN – Vaccinated and boosted White House staffer infected with [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) after spending time on AF1 with Biden on Friday.
+> — Disclose.tv (@disclosetv) [December 21, 2021](https://twitter.com/disclosetv/status/1473086008182906882?ref_src=twsrc%5Etfw)
+
+
+
+**12.Disclose.tv 12月21日发推说：**
+
+接种了加强针疫苗的前美国总统川普对那些质疑新冠疫苗的人说，你正被他们玩弄于股掌之间。
+
+
+
+> NEW – Trump: "You’re playing right into their hands" when you doubt the [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) vaccines.[pic.twitter.com/GXmxQVNezF](https://t.co/GXmxQVNezF)
+> — Disclose.tv (@disclosetv) [December 20, 2021](https://twitter.com/disclosetv/status/1472987776786354177?ref_src=twsrc%5Etfw)
+
+
+
+**13.郭文贵先生在12月20日的盖特视频中说：**
+
+北京冬奥会这场政治游戏的唯一受害者就是10亿中国人民。所有的中国人将为这个完全没有任何价值的愚蠢的国际政治秀付出几千亿美元的代价。可悲、可怜、可恨至极！这是人类全球最昂贵的一场灾难游戏。昨天的大直播在国内影响巨大。在世界经济即将崩塌之前，我们爆料革命的声音是世界上唯一救人的忠言警告。
+
+[https://gettr.com/post/pk5p5a0268](https://gettr.com/post/pk5p5a0268)
+
+**以上社交媒体新闻由 巴拉克和Stephanie 联合编译报道**
+
+发布:星星
 
 * * *
 
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-4.jpeg)
-
+**By 【秘密翻译组-即时新闻播报组】**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/秘翻海报.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

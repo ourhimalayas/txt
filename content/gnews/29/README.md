@@ -2,30 +2,24 @@
 ---
 
 
-## 两名参议员接种中共病毒加强针后感染中共病毒
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1777213/)
+## 秘翻在线：奥米炕超过德尔塔成为美国主要的新冠变种
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1777225/)
 
-#### 撰稿：彩虹
+#### 翻译/撰稿：zzballack
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-33.jpg)新闻来源：ABC7 News
-12月20日，《新闻极限》引述美联社的报道，指两名民主党参议员虽然接种了两剂中共病毒疫苗，以及最近刚接种了加强针，但仍然感染了中共病毒，这两名参议员分别是马萨诸塞州的伊丽莎白·沃伦(Elizabeth Warren)和新泽西州的科里·布克(Cory Booker)。
+#### 校对：白夜
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1126.png)图片来源：NBC新闻网
+据《真正美国之声》（Real America’s Voice）12月21日报道，根据美国疾控中心（CDC）公布的数据，全美上周新增的新冠病例中，奥米炕（Omicron）病例占了73.2%。
 
-在周日的单独声明中，民主党人说他们（两人）已经完全接种了两剂中共病毒疫苗和一剂加强针，他们的（病毒感染）症状很轻微。
+据报道，美国上周可能有超过65万个奥米炕病例。在一些地区，如纽约、东南部、太平洋西北地区和中西部工业地区，新增感染病例中，奥米炕就占了90%或者更多。
 
-但是，这两名参议员继续忽悠民众，鼓励民众接种疫苗和加强针。
+根据CDC的数据，当世卫组织在11月首次将奥米炕确定为一种新冠变种时，美国当时超过99.5%的新冠病例是德尔塔（Delta）。但在不到一个月的时间里，奥米炕就超过了德尔塔，成为美国主要的流行变种。
 
-沃伦在推特上说：“幸运的是，我只经历了轻微的症状，并感谢通过接种疫苗和加强针而提供的对严重疾病的保护”。
+尽管很多医生和专家说奥米炕患者的症状轻微，相较以前的新冠变种更温和。但一些专家警告说，这种乐观情绪可能为时过早。据《路透社》（Reuters）报道，伦敦帝国学院 (Imperial College London) 12月17日公布的一项研究显示，奥米炕的再感染风险比德尔塔高五倍以上，而且没有迹象表明它更温和。
 
-沃伦没有详细说明她可能在哪里感染了病毒，但她说会定期进行检测，并在上周早些时候对中共病毒（COVID-19）的检测结果为阴性。
+郭文贵先生直播中说过，奥米炕变种是中共放出的又一个生物武器，传染性极强，不能因为症状轻微就掉以轻心。并且，经多名专家反复论证，所有感染过新冠病毒的人，不分男女、不分老少、不分症状，在未来3到10年内，有几乎超过50%的概率染上癌症。解决疫情的根源是找到制造和释放病毒的元凶，除了灭共，别无他法。
 
-报道指，沃伦本周与其他参议员一起在美国国会大厦（工作），因为民主党人试图通过总统乔·拜登的2万亿美元的《重建美好未来社会和环境法案》（Build Back Better social and environment bill）。
-
-而布克在其办公室的一份声明中则说：“我非常感谢接种了两剂疫苗，最近又接种了加强针，我确信，如果没有（接种）它们，我的情况会更糟糕”。
-
-**新闻来源**
-
-[Sens. Warren and Booker Test Positive for Breakthrough COVID](https://www.newsmax.com/newsfront/senators-elizabeth-warren-cory-booker-breakthrough-covid/2021/12/20/id/1049312/)
+新闻来源：[Omicron overtakes Delta, now accounts for 73% of all new U.S. COVID cases](https://americasvoice.news/justthenews/omicron-overtakes-delta-now-accounts-73-all-new-us-covid-cases/)
 
  
 
