@@ -2,35 +2,32 @@
 ---
 
 
-## 中共为报复立陶宛以市场为筹码向跨国公司施压
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1774107/)
+## GTV投资人对SEC的抗议活动圆满完成
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1774355/)
 
-#### **撰稿：**日本东京方舟农场 子辰
+作者：纽约香草山农场 – 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月17日，GTV投资人在美国SEC华盛顿特区总部外举行的抗议活动圆满结束。此次抗议活动开始于10月4日，历时74天。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/4-32.jpg)
+美国SEC在9月13日与GTV和Saraca公司达成了和解协议。然而，在此后近一个月的时间里，美国SEC没有按照和解协议展开任何行动。美国SEC的腐败和官僚作风，引起了投资人的强烈不满。GTV投资人为了维护自己的合法权益，依法展开一系列的抗议行动。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/C10F874B-06E9-4D42-9789-EA6FEC4AE475.jpeg)（图片来自路透社）
+此次抗议活动持续了两个半月，并且坚持在GTV平台上直播，得到了全球GTV投资人与正义人士的积极响应与支持，并得到了广泛的赞誉。
 
-《美国之音》12月20日援引《路透社》的独家消息报道称，中共为了报复立陶宛，以市场为筹码，向与立陶宛有联系的跨国企业施压。
+参考链接: [历经两个半月，74天的SEC抗议游行在今天完美收官。感谢所有参加游行的战友们，你们的努力和付出捍卫了GTV投资者合法的利益，更展现了超强的行动力和一流的素质，战友们你们辛苦了！难忘和大家一起奋斗的日子，相信我们很快就会在盘古相见，期待下次和大家一起战斗！](https://gettr.com/post/pjyv19196f)
 
-此次被施压对象是德国最大的汽车零部件生产商之一，在立陶宛设有工厂。该公司向包括中共国在内的全球客户出口座椅、车门和控制器等汽车零部件。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-自上个月立陶宛政府允许台湾当局在该国设立“驻立陶宛台湾代表处”之后，中共为了报复，立即宣布将中立两国外交关系降为代办级。两国关系迅速恶化。
+总编：Ivy001
+编辑：Jack Li文阳
+校正/发稿：Fei797
 
-据悉，中共已要求跨国公司切断与立陶宛的联系，否则就将被中共国市场拒之门外。代表数千家立陶宛公司的立陶宛工业家联盟（Lithuania Confederation of Industrialists）证实，一些从立陶宛供应商那里购买商品的跨国公司已成为中共的目标。
-
-立陶宛外交部表示，在立陶宛运营的企业已成功融入了国际供应链，因此中共的经济施压措施可能会对在立陶宛运营的企业造成各种干扰。立陶宛外交部同时还表示，他们正在“寻找长期可持续的解决方案及恢复对华贸易流动的途径”。
-
-欧盟委员会就此问题表示，如果发现中共违反国际贸易规则的证据，欧盟可能会将中共国和立陶宛之间的贸易争端提交给世界贸易组织（WTO）。
-
-*参考链接： [中国报复立陶宛再出一拳：不许德国车企巨头使用立陶宛零部件](https://www.voachinese.com/a/China-pressures-Germany-s-Continental-to-cut-out-Lithuania-20211217/6358862.html)*
-
-* * *
-
-*素材采编：子辰*
-
-*编辑：青衣青青*
-
-*发布：miumiu*
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,55 +2,49 @@
 ---
 
 
-## 短视频：在2分20秒说明伊维菌素的事实
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1776131/)
+## 三个宗教团体要求最高法院暂停拜登政府对企业的疫苗强制令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1776360/)
 
-#### 翻译：Annabelle
-校对：枳实
-剪辑/字幕：蛮吉
-编辑：文泓
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/疫苗-3.png)图片来源：视频截屏
+信息采集：美国纽约香草山农场 – 侠肝义胆
+作者：美国纽约香草山农场 – 飞虹
 
 
-为什么世界各地成千上万的人们在抗议游行？
-他们不是边缘化的疯子，他们都有做过详尽的调查：
-瘟疫大流行的高峰时段，印度有个地方有240万人口，两个月里99%新冠病毒被消灭。从五月份的顶峰时期的31万的活跃案例，到9月份的187个。近来那里每天增加个位数的8-9个案例，这相当于在美国的每天（仅）少于12个案例。
 
-这是个令人惊奇的事实。那里只有5%的人打过疫苗，这个地区仅用6分钱的药片打败病毒。
-这个成就被坦斯·劳瑞博士在同行评价报告里称赞，这份报告是在1800万份发表了的报告中名列前10名。
-这奇妙的药品曾经是世界健康组织给2.5亿人用过的。（现在）你可能只知道它不同的名字——马用驱虫剂。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
-（因为）经常用于给马驱虫，大多都是用来给马驱虫及做驱虫药。政府不鼓励使用并称那是“马用驱虫药”，不适合人用。|
-我恨撒谎，新闻上说不可以人用那是谎话！
-他们意识到那是谎话，为什么只是其他媒体在报道这些故事？
 
-辉瑞（疫苗）具有的抗病毒作用应该和他们声称的（兽用药）伊维菌素作用相同。我不知道这是否就是为什么FDA要在推特上大肆宣扬伊维菌素是兽用药物的原因？
 
-FDA若颁布“紧急使用授权”必须保证候选产品没有合适的、经过批准且可用的替代品。谁不想展示这可恶的疫苗……全是一派胡言！
-现在我们迫使人们接种，然后（疫苗）有很多副作用，然而人们有一些有疗效的药物。巴格瓦特博士和你谈过给病人开伊维菌素处方的事。在这家医院不可以用！我想不通。
-我和你说过，不论什么情况，你绝对不能使用伊维菌素治疗新冠病毒，除非你不想有工作。
-一种新的辉瑞疫苗设计理念是为阻止萨斯2新冠病毒的传播能力，3-糜蛋白酶样蛋白酶。但是有另一种普通药叫伊维菌素可以具有相同的治疗作用，然而现在没人说这些信息，这是因为几年来有人故意压制，百万人却死于非命。
+美国媒体报道，12月19日，美国有三个宗教组织——美国家庭协会、创世纪答案和晨星电视网络——要求最高法院紧急暂停拜登政府的关于至少有 100 名工人企业的疫苗强制令。这一要求，是在辛辛那提第 6 美国巡回上诉法院，就恢复拜登政府的该强制令几天后提出的。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1.1-10.jpg)
+这几个宗教团体认为，该措施侵犯了他们的第一修正案权利，以及它“未能提供任何宗教豁免或便利”。
 
-超越头条新闻（Anderson Cooper 360）带给你辉瑞疫苗，它创造不同…….
-你知道它们有什么不同吗？那就是不允许批评辉瑞！
+分析人士指出，鉴于11月份第5巡回上诉法院曾暂停该强制令，预计最高法院会就此问题进行认真权衡，因为这一问题已经使下级的联邦法院之间产生了分歧。
 
-伊维菌素是世界健康组织批准使用的6分钱的药，不仅伊维菌素拧弯了钥匙，它还把塑化剂塞进了锁内。
-伊维菌素同时与选出的人类ACE-2蛋白互动，像我们所说的，它也同时堵塞这种蛋白。这很棒。这有另一种蛋白NSP14，伊维菌素也堵塞它。
+参考链接：
+[Religious groups ask Supreme Court for emergency stay on vaccine rule for U.S. companies](https://www.axios.com/religious-group-lawsuit-vaccine-mandate-41ebc11b-1e83-46b8-87c2-151380bae7e8.html)
 
-现在我认为的事实就是辉瑞疫苗仅对一种生物化学途径有效，而病毒可以学会绕过它会变异出对抗药性。但是伊维菌素可以在非常多方面发挥作用，是指它的6个突变体能在同一时间躲过所有的问题。
-不客气地说这是非常重要的，6分钱啊！
-现在）医学审查就是谋杀！而伊维菌素可以结束这场大流行病。
-——坦斯·劳瑞博士
-视频链接：[Ivermectin Facts In 2 minutes 20 seconds (bitchute.com)](https://www.bitchute.com/video/HyceC2lHcNy7/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-**发布：文泓**
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+总编/编辑：DM
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

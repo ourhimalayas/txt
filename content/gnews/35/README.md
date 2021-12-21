@@ -2,49 +2,21 @@
 ---
 
 
-## 三个宗教团体要求最高法院暂停拜登政府对企业的疫苗强制令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1776360/)
+## 美国华盛顿特区的一家广播电台接受了中共440万美元为其做宣传
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1776422/)
 
-信息采集：美国纽约香草山农场 – 侠肝义胆
-作者：美国纽约香草山农场 – 飞虹
+翻译：zzballack
+上传：追着曙光跑
 
+据《华盛顿自由灯塔》（Washington Free Beacon）12月20日报道，根据《外国代理人登记法》，总部设在弗吉尼亚州的波托马克媒体集团（Potomac Media Group）12月16日向司法部提交了一份最新披露文件。文件详细说明了它与中宣部下属机构国际传播规划局（International Communication Planning Bureau）之间利润丰厚的合同。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Image-2021-12-21-at-14.23.18.jpeg)图片来源：原新闻
+根据文件，中共与波托马克媒体集团旗下的、位于华盛顿特区的WCRW广播电台签署了一笔价值440万美元的合同，涵盖时间从2019年7月至2021年8月。合同要求WCRW电台广播宣传中国环球电视网CGTN的内容和一系列正面描述中共的谈话节目、社交媒体推广、以及制作脱口秀节目《桥》（The Bridge）。国际传播规划局可以审查并核实广播节目。波托马克媒体被要求向规划局提供关于受众范围、反馈和“国际组织的评价”的报告。
 
+其实自1992年以来，WCRW就一直在播放来自中共官媒中国国际广播电台 (China Radio International) 的内容，但此前并没有向司法部登记为中共的外国代理人。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+北京与WCRW的合作突显了中共在美国的宣传活动范围十分广泛。近年来，由于中共试图转移人们对其侵犯人权行为的注意力，它们的宣传活动已经进入了高潮。中共官媒通过社交媒体和与美国报纸和杂志的出版交易，积极地向美国受众推广其内容。《中国日报》已向《时代周刊》、《外交政策》（Foreign Policy）杂志和《华尔街日报》支付了数百万美元，以便让它们在其官网上发表中共的大外宣文章。中共驻纽约领事馆最近雇用了一家公关公司，通过招募社交媒体上的网红来宣传北京冬奥会。
 
-
-
-美国媒体报道，12月19日，美国有三个宗教组织——美国家庭协会、创世纪答案和晨星电视网络——要求最高法院紧急暂停拜登政府的关于至少有 100 名工人企业的疫苗强制令。这一要求，是在辛辛那提第 6 美国巡回上诉法院，就恢复拜登政府的该强制令几天后提出的。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1.1-10.jpg)
-这几个宗教团体认为，该措施侵犯了他们的第一修正案权利，以及它“未能提供任何宗教豁免或便利”。
-
-分析人士指出，鉴于11月份第5巡回上诉法院曾暂停该强制令，预计最高法院会就此问题进行认真权衡，因为这一问题已经使下级的联邦法院之间产生了分歧。
-
-参考链接：
-[Religious groups ask Supreme Court for emergency stay on vaccine rule for U.S. companies](https://www.axios.com/religious-group-lawsuit-vaccine-mandate-41ebc11b-1e83-46b8-87c2-151380bae7e8.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
-
-总编/编辑：DM
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+信息来源：[CCP Paid DC Radio Station $4.4 Million To Broadcast Propaganda](https://freebeacon.com/media/ccp-paid-dc-radio-station-4-4-million-to-broadcast-propaganda/)
 
  
 

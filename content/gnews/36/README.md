@@ -2,48 +2,51 @@
 ---
 
 
-## 歌曲《病毒和疫苗解药》
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1776205/)
+## 恒大地皮再被收回，相关上市公司大跌
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1776373/)
 
-《病毒和疫苗解药》
+作者：日本方舟农场 – Andy5
 
-词曲唱： 家驹2020
 
-地狱的魔鬼用解药换你的命
-天堂的英雄把解药送给全世界
-我们来人间，不过短短三万天
-但有灵魂和爱永存
 
-伊维菌素，羟氯喹
-青蒿素，地塞米松
-阿奇霉素，锌
-土霉素，维生素C
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
-地狱和天堂都在人间，
-也在你心里，就在一念之间
-干掉ccp才是唯一的解药
-你现在做的，是正义的必须
 
-Bridge
-魔鬼的蓝金黄是地狱的奶酪
-英雄的解药是天堂的一道光
-人间多诱惑， 也有太多真与乐
-百年过后，你能留下什么?
 
-伊维菌素，羟氯喹
-青蒿素，地塞米松
-阿奇霉素，锌
-土霉素，维生素D
+12月20日，成都市相关官网的公告显示，恒大在成都的两副面积共逾30平方米用地被收回。受此消息冲击，投资恒大的华人置业和嘉寓股份股票大跌。
 
-地狱和天堂是一步之遥
-就在你心里，你是否愿意
-干掉ccp，干掉CCP
-你现在做的，老天知道
+据了解，这两块地皮是在2010-2011年间拍得，现在因为长期未开工，被当地政府收回。从9月到现在，恒大地皮已经有安徽安庆（8）、海南海口（8）以及四川成都（2）共18块地皮被政府无补偿回收。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-251.jpg)
+受此影响，恒大股价连续大跌，并拖累了投资恒大的上市企业。例如，华人置业在12月20日复牌之后，跌幅一度达到35%，如果年内清空全部恒大股票，亏损将超过104亿港元。19日晚，嘉寓股份发布风险提示公告，目前正在跟恒大协商解决问题，次日嘉寓股份股价大跌近18.4%。据悉，嘉寓股份合计商票敞口金额为13.16亿元，而自2007年累计净利润约8亿元，仅靠嘉寓股份自身已经无法补上这个敞口。
 
-这才是唯一，唯一的解药
-救命的解药
+参考链接：
+1. [恒大成都两幅用地被收回　涉逾30万平方米](https://gbcode.rthk.hk/TuniS/news.rthk.hk/rthk/ch/component/k2/1625210-20211220.htm?spTabChangeable=0)
+2. [又一家上市公司被恒大拖下水，15年净利直接白干了](https://finance.sina.com.cn/stock/s/2021-12-20/doc-ikyakumx5331455.shtml)
+3. [一度暴跌超30%！华人置业水逆，投资恒大血亏超100亿](http://hk.jrj.com.cn/2021/12/20165734034879.shtml)
+4. [财经网头条](http://m.caijing.com.cn/api/show?contentid=48265028.)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+
+总编/编辑：DM
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
