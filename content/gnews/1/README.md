@@ -2,34 +2,40 @@
 ---
 
 
-## 印度：三针疫苗接种者查出Omicron病毒
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1775784/)
+## 国内出现所谓热毒实际上都是疫苗引起的出血脑梗心梗等
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1775860/)
 
-翻译：George Warshing
-校对/编辑：守望黎明
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Omicron_Virus-1.jpg)图片来源：REUTERS
-孟买市政厅在12月17日的新闻发布会上说，一位29岁从纽约回来的男子，11 月 9 日在该市机场接受冠状病毒病检测时，检测结果为阳性，随后通过病毒样本的基因组测序证实了在这位患者感染的是奥密克戎Omicron变种病毒。
+**Rachel****：**我那个问题，七哥，之前我替战友问的问题，就是国内现在的这个热毒国内反应就是有出现，这个需不需要担心？有没有背后的一些信息可以跟战友说明一下？
 
-孟买市政厅详细阐述了这个特殊案例，称他先前已经注射过三针辉瑞疫苗。在他被测试出阳性后不久，便被接入医院以作预防。官方声明称，市政当局还启动了接触者追踪调查，但他的两个“密切接触者”的检测均呈阴性。
+**郭文贵先生：**所有的热毒，现在我们了解实际上就都是疫苗的后果，根本不是什么热毒，就是疫苗，疫苗接下去的所有结果，就是出血、脑梗、心梗、心包炎、心肌炎，肛梗不是开玩笑，肛门梗，因为肛门那块儿是最重要的是一个身上，眼梗。
 
-得注意的是，美国辉瑞制药公司12月17日表示了担忧，认为新冠的大流行可能会持续到 2024 年，因为据报道，传播迅速的奥密克戎Omicron变种病毒的传染率可能比更早些的德尔塔病毒要高五倍。
+就是凡是这些东西，这根本不是什么出血热病毒的问题，全是疫苗后期症，还会有更多这样的症状，就是你但凡有点儿常识你就知道，我在这个非洲得了疟疾的后边儿反应症是什么，七哥打过20几针疫苗，我不反疫苗的啊，我反的是假疫苗，我反的是共产党病毒的疫苗和强迫打的疫苗，回答完毕，谢谢！
 
-辉瑞与德国拜恩泰科BioNTech合作开发了辉瑞新冠疫苗，目前它们又在开发一款专门针对奥密克戎Omicron变种病毒的疫苗，但尚未确定它是否需要推广。辉瑞高管称，他们预计在明年1月份开始对升级的疫苗进行临床试验。
+编辑整理：海贼王M.D.LUFFY；
 
-随着最近在孟买报告的变种新冠最新病例，这座印度金融之都的奥密克戎Omicron病毒患者的最新数字已升至14人，其中5人是外来人员。
+字幕制作：小满；
 
-值得注意的是，这14位患者中有13人已经出院。孟买市政厅在新闻发布中说，这14名奥密克戎Omicron病毒患者无人出现重症。目前在印度马哈拉施特拉邦全境感染奥密克戎Omicron病毒的累计总人数达到了40人。
+视频制作及上传：Cindy；
 
-原文链接**：**[Omicron detected in US returnee, who took 3 doses of Pfizer vaccine: BMC](https://www.hindustantimes.com/cities/mumbai-news/omicron-detected-in-us-returnee-who-took-3-doses-of-pfizer-vaccine-bmc-101639791054052.html)
+G-News发布：黎明之前；
 
-发布：去中心化Math
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)，**欢迎订阅油管频道****[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos) ****；**
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

@@ -2,19 +2,44 @@
 ---
 
 
-## 张学良就是中国历史的罪人 为一己之私救活了中共这个恶魔
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1775592/)
+## 斯科特·莫里森召开紧急国家内阁会议
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1775604/)
 
-文编：东京樱花团/樱花传媒
-视频:东京樱花团/中文小视频组
+**翻译：月映万川
+编辑：盘古相聚**
 
-12月12日，郭文贵先生在GTV大直播指出：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/莫里斯.jpg)图片来源：7NEWS
 
-张学良在历史上绝对应该千刀杀万刀刮，张学良就是一个土匪流氓、纨绔子弟、就是共产党买通的走狗，张学良从来就没有想过抗日，完全是一己之私发动了西安事变，他就是想当东北王，甚至可以当国民党老大、让长征后快要死掉的邪恶中共复活并壮大。
+澳大利亚总理斯科特·莫里森要求召开紧急国家内阁会议来应对奥密克戎病毒。
 
-*编辑：东京樱花团/墨然
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+在这次紧急会议前，莫里森总理呼吁州长们要“冷静且一致”的推出他们关于圣诞出行的信息。
+
+总理在周一出席布里斯班活动时被问到他是否担心不断增加的感染对航空业的打击。总理回应说，“对未来的规划清晰明确是非常重要的。澳大利亚人需要知道如果他们坐上飞机，能够在目的地下飞机，并且能够做他们想做的事情。我们对待奥密克戎病毒是认真的，同时，我们会不断监测感染数据，并且遵从最好的医疗建议来确保做出最符合澳大利亚国情的决定。”
+
+关于周三的“非正式”国家内阁紧急会议，总理称，“此次会议的目的是让与会者获得目前最新信息。”
+
+随着州长们因为高奥密克戎病例而采取相关措施的可能性不断增大，澳大利亚民众也在不断担心他们的圣诞出行计划。而总理被要求对这一情况做出一些评论。
+
+但是，总理说，这些要等到紧急会议后再细化。
+
+当被问到关于口罩强制令时，总理称，这“应该”是一个选择。
+
+他说，“当我去看圣诞庆典时，我们一家都戴了口罩，但是，也有一些人不带。这是我们的选择，所以，选择很重要。”
+
+“澳大利亚人有对自己身体健康自己负责的能力。政府在过去的两年太多的指导民众的生活方式，而很多澳大利亚人也对此已经不厌其烦。”
+
+“我们相信每个人都应该为自己的健康负责。”
+
+原文链接： [Scott Morrison calls emergency national cabinet meeting](https://www.news.com.au/travel/travel-updates/scott-morrison-urges-premiers-to-be-calm-amid-fears-over-christmas-travel-plans/news-story/c8bbba7854eb48ee50d7fa5a3459133e)
+
+发布：盘古相聚
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
