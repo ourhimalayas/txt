@@ -2,26 +2,69 @@
 ---
 
 
-## 日本政府宣布了两次假想大地震的损失预测
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1776225/)
+## 【零时差】新闻速递：新西兰奥克兰夫妇在COVID-19封锁期间逃避限制令赴南岛小镇瓦纳卡遭法庭处罚
+` Zero-Day【零时差】` [轉載自GNews](https://gnews.org/zh-hans/1776238/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1089.png)[图片来源](https://news.yahoo.co.jp/articles/309ccf6db07fe78400deaac9457414b57e5e85ef)
-每日新闻12月21日消息：内阁办公室宣布了两次假想大地震的损失预测，一次是沿日本东北海岸的日本海沟，另一次是沿北方的千岛群岛海沟。
+**[新冠病毒](https://www.newshub.co.nz/home/storytag.:storyTag=newshub:story-tags___cd___coronavirus.:offset=0.html)**
+![police-supplied-thomas-phillips-toyota-hilux-ute-1120+(1).jpg](https://assets.gnews.org/wp-content/uploads/2021/12/0F1D1EE7-3C81-479D-8E88-83DFFF5DB615.jpeg)威廉·威利斯和汉娜·罗恩斯利。图片来源：新西兰警方/提供
+据称，这对奥克兰夫妇[使用基本工人豁免来逃避 4 级警报](https://www.newshub.co.nz/home/new-zealand/2021/09/wanaka-couple-s-identity-revealed-as-william-willis-hannah-rawnsley-after-name-suppression-lapses.html)并前往新西兰南岛小镇瓦纳卡，遭到指控并且被传唤出庭。
 
-这个预测的前提是日本的太平洋一侧，即千叶县以北，在受到最高强度为7级的震荡和最高约30米高海啸的袭击时，其最坏的情况是，日本海沟地震将导致约19.9万人死亡，摧毁或烧毁约22万座建筑，并造成约31.3万亿日元的经济损失。千岛海沟地震的话，将造成约10万人死亡，8.4万座房屋被毁，经济损失约为16.7万亿日元。内阁办公室说：如果采取应对措施，可以减少损害。关键是要做到”正确的恐惧”。
+这对奥克兰夫妇利用基本工作豁免来逃避新西兰奥克兰地区 COVID-19 封锁的行为已被当地法庭判定有罪，并且需要接受处罚。
 
-负责防灾的部长二之汤智在12月21日的新闻发布会上宣布了这个损失预测。中央灾害管理委员会的一个工作组一直在研究该预测，目的是让公众了解提前准备的必要性，并让国家和地方政府在其防灾措施中充分利用有准备的预测。
+35 岁的马术运动员威廉·威利斯和 26 岁的律师汉娜·[罗恩斯利于](https://www.newshub.co.nz/home/new-zealand/2021/09/w-naka-couple-william-willis-hannah-rawnsley-to-face-court-over-alleged-covid-19-breach-after-police-investigation.html)9 月被指控[未遵守 COVID-19 健康令](https://www.newshub.co.nz/home/new-zealand/2021/09/w-naka-couple-william-willis-hannah-rawnsley-to-face-court-over-alleged-covid-19-breach-after-police-investigation.html)。他们被指控使用基本工人豁免，穿过奥克兰南部边界前往汉密尔顿，然后经惠灵顿飞往皇后镇，然后开车前往瓦纳卡。当时，奥克兰处于[COVID-19](https://www.newshub.co.nz/home/storytag.:storyTag=newshub:story-tags___cd___coronavirus.:offset=0.html)警报级别 4。
 
-损失预测是基于两个地震分别发生时的假设。该预测将冬季的午夜、冬季的傍晚、夏季的白天，这三个不同的季节和时间考虑为地震发生时间。2020年4月和9月，海啸高度和淹没区是以市为单位公布的，但这次海啸高度和淹没区只以县和省为单位公布，以便从宏观上展示损失情况。
+威廉·威利斯和汉娜·罗恩斯利在警方调查后因涉嫌 COVID-19 违规而被法庭传唤。
 
-预计千叶以北太平洋沿岸的七个县以及秋田县和山形县将成为直接受灾地区，按道县划分的话，北海道将是受害最严重的地方。该假想震发生后，核电站会立即关闭。
+周二，两人于通过视听链接在 Papakura 地方法院出庭并认罪。
 
-信息来源：[最悪19万9000人死亡　日本海溝・千島海溝地震被害想定　政府（毎日新聞） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/309ccf6db07fe78400deaac9457414b57e5e85ef)
+周二下午，威利斯被罚款 750 纽币，并被勒令支付 130 纽币的法庭费用。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
+![威廉·威利斯和汉娜·罗恩斯利。]()
+
+目前，罗恩斯利被无罪释放，但被勒令向一家公认的慈善机构捐赠 500 纽币。
+
+虽然这对夫妇原定于 10 月 14 日出庭，但 COVID-19 警报级别导致了一系列延误。
+
+这起案件发生在全国处于封锁状态，这对夫妇受到了公众的密切关注。这对夫妇于 9 月中旬被点名，此后，他们发布了一份声明，就他们的行为向新西兰道歉。
+
+这对夫妇说：
+
+“最初，我们在收到死亡威胁后寻求隐姓埋名，我们真的很担心自己的安全。但是，我们仍然致力于为我们的行为负责，不会寻求一直隐姓埋名。”
+
+“我们明白，我们的国家消灭 COVID-19，需要严格遵守。我们的行为让每个人都失望了，我们衷心道歉。”
+
+![瓦纳卡。]()瓦纳卡。照片来源：盖蒂图片社
+
+两人还说，在前往瓦纳卡之前和返回后，他们的 COVID-19 测试呈阴性，并且没有去过任何感兴趣的地方，也没有密切接触。
+
+这对夫妇补充说，他们在旅行前后都接受了COVID-19 测试，朋友和家人并不知道他们的旅行计划。
+
+威利斯的母亲、地方法院法官玛丽-贝丝·夏普（Mary-Beth Sharp）也发表声明谴责他们的行为。
+
+她表示对他们的行为感到“震惊”并且“非常尴尬”。
+
+“如果我知道他们的意图，我当然不知道，我会告诉他们不要如此轻率和自私地行事。我不会宽恕他们的行为。”
+
+编译/米拉娅
+
+审阅/丘杰斯
+
+上传/天赐良闻
+
+[新闻援引链接](https://www.newshub.co.nz/home/new-zealand/2021/12/auckland-couple-who-escaped-to-w-naka-during-lockdown-plead-guilty.)
+
+
+
+[相关新闻链接1.](https://www.newshub.co.nz/home/new-zealand/2021/09/w-naka-couple-william-willis-hannah-rawnsley-to-face-court-over-alleged-covid-19-breach-after-police-investigation.html)
+
+[相关新闻链接2.](https://www.newshub.co.nz/home/new-zealand/2021/09/wanaka-couple-s-identity-revealed-as-william-willis-hannah-rawnsley-after-name-suppression-lapses.html)
+
+
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

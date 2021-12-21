@@ -2,24 +2,27 @@
 ---
 
 
-## 加拿大新布朗瑞克省的疫苗护照计划受挫
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1775828/)
+## GTV新闻访谈简报|2021年12月20日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1776007/)
 
-采编/编译：文明(添草灭共)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/04-image-4.jpg)
-据加拿大自媒体【真北方】12月17日报道，新布朗瑞克省政府在各界声讨和谴责的压力之下，取消了此前颁布的“超市疫苗护照”政策。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV-Gnews-2.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/1220text-SC.png)
+校对：Stay文苑
 
-报道称，该项以防控疫情为由的“冬季行动计划”授权该省的超市和百货商店可以要求其12岁以上入店客户必须出示疫苗护照。此举一出，随即遭到了各界的强烈反对，并谴责当局已触碰法律红线，而因此完全进入法西斯化。同时，[宪法自由中心]也就该违反基本人权的命令向省司法部长提出严厉警告。
+编辑：Stay文苑
 
-面对反抗的民意和舆论压力，该省政府近日发布公告表示：当局从未打算禁止人们正常购买日用物品，而所有引起争议的措施将从其强制命令中删除。
+发稿：Stay文苑
 
-本台编辑对此评论道：任何“独裁、极权和专制”政府的底气和狂妄均来自其人民的无知，怯懦和退让，而自由民主的权利还必须靠每个人的积极行动去争取！
+视频参看：[12.20  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61c12daabcb7f101bb721610)
 
-校对编辑：硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-1.png)
 
-发稿：苦尽甜来 (文來）
-
-[參考链接](https://tnc.news/2021/12/17/new-brunswick-backtracks-on-vaccine-passports-for-grocery-stores/)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

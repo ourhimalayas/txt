@@ -2,68 +2,29 @@
 ---
 
 
-## 【零时差】新闻速递：新西兰奥克兰夫妇在COVID-19封锁期间逃避限制令赴南岛小镇瓦纳卡遭法庭处罚
-` Zero-Day【零时差】` [轉載自GNews](https://gnews.org/zh-hans/1776238/)
+## Covid-19 疫苗比病毒更危险
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1776302/)
 
-**[新冠病毒](https://www.newshub.co.nz/home/storytag.:storyTag=newshub:story-tags___cd___coronavirus.:offset=0.html)**
-![police-supplied-thomas-phillips-toyota-hilux-ute-1120+(1).jpg](https://assets.gnews.org/wp-content/uploads/2021/12/0F1D1EE7-3C81-479D-8E88-83DFFF5DB615.jpeg)威廉·威利斯和汉娜·罗恩斯利。图片来源：新西兰警方/提供
-据称，这对奥克兰夫妇[使用基本工人豁免来逃避 4 级警报](https://www.newshub.co.nz/home/new-zealand/2021/09/wanaka-couple-s-identity-revealed-as-william-willis-hannah-rawnsley-after-name-suppression-lapses.html)并前往新西兰南岛小镇瓦纳卡，遭到指控并且被传唤出庭。
+作者： Snowman
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-21-12.36.08.png)
+12月17日The Expose 发表了署名为 “飞翔的机长” 的报道：Peter McCullough 博士警告说 Covid-19 疫苗比病毒更危险。
 
-这对奥克兰夫妇利用基本工作豁免来逃避新西兰奥克兰地区 COVID-19 封锁的行为已被当地法庭判定有罪，并且需要接受处罚。
+对某些人来说，在接种Covid-19 疫苗和感染病毒之间做出选择似乎很困难：主要是必须权衡接种或病毒本身造成死亡和伤残的可能性概率。在这里我们看到，又一位世界级著名心脏病专家发出的警告：医学研究已经呈现出一个事实，目前的疫苗比它们应该保护人们免受侵害的病毒实际上更危险。
 
-35 岁的马术运动员威廉·威利斯和 26 岁的律师汉娜·[罗恩斯利于](https://www.newshub.co.nz/home/new-zealand/2021/09/w-naka-couple-william-willis-hannah-rawnsley-to-face-court-over-alleged-covid-19-breach-after-police-investigation.html)9 月被指控[未遵守 COVID-19 健康令](https://www.newshub.co.nz/home/new-zealand/2021/09/w-naka-couple-william-willis-hannah-rawnsley-to-face-court-over-alleged-covid-19-breach-after-police-investigation.html)。他们被指控使用基本工人豁免，穿过奥克兰南部边界前往汉密尔顿，然后经惠灵顿飞往皇后镇，然后开车前往瓦纳卡。当时，奥克兰处于[COVID-19](https://www.newshub.co.nz/home/storytag.:storyTag=newshub:story-tags___cd___coronavirus.:offset=0.html)警报级别 4。
+Peter McCullough 博士是一位顶尖的心脏病专家，他已经在各种医学期刊上发表了 650 多篇研究论文，撰写了有影响的心脏病学教科书，是心脏病学杂志的编辑，并曾经参与新疫苗的审核和检查。在他已经从事的医学生涯中，曾多次担任数据安全监测委员会的主席。自去年首次推出 Covid-19 疫苗后发生的许多事情，让他感到震惊和无法接受。来自官方渠道的信息让他获知，至今年 1 月在 2亿7千8百万疫苗接种者中，已经出现了182例因接种死亡的案例。在正常情况下，这个死亡率已经远远超过医学能够接受的范围，这个数据表明必须立即结束当前的Covid-19 疫苗计划。
 
-威廉·威利斯和汉娜·罗恩斯利在警方调查后因涉嫌 COVID-19 违规而被法庭传唤。
+McCullough 博士强调，疫苗对老年人和其他体弱多病的群体尤其危险，包括那些免疫功能低下的人。在欧洲疗养院进行的研究表明，至少 40% 的死亡与接种covid-19疫苗有关。我们已经清楚的知道，这些老年人是死于疫苗接种，死亡者其中的50% 发生在 注射疫苗的48 小时内，80% 发生在一周内。此外，已有相当多医生的观察发现，在接种疫苗者中有许多人出现了严重的不良反应。对这些病例的大量科学研究表明，这些人是接种疫苗后的机体内突然产生的大量刺突蛋白导致的心肺衰竭，在短短几天内就造成了死亡；而另一些人则是在接种疫苗后的几周内或死于血栓栓塞，或死于与血栓引起的相关性致命疾病。很明显，所有这些突然死亡都应该与疫苗的接种有直接因果关系。
 
-周二，两人于通过视听链接在 Papakura 地方法院出庭并认罪。
+McCullough博士警告年轻人应该避免接种这个疫苗，因为接种会导致严重的心脏问题，例如心肌炎（心肌炎症）和心包炎（心囊炎症），实际上我们已经看到由于注射疫苗而导致的数量巨大的的心脏病例。然而，主流媒体仍然完全无视这些严重心脏病例的存在，想方设法试图淡化这些问题，他们反复强调“严重的不良反应或死亡非常罕见”。McCullough博士说：“我只能告诉你，目前所有专家分析的死亡率都高得令人无法接受。”
 
-周二下午，威利斯被罚款 750 纽币，并被勒令支付 130 纽币的法庭费用。
+最后，McCullough博士预测： “由于美国居高不下的死亡率，我们的 [COVID] 疫苗政策极有可能在明年 2 月份终止。”
 
-![威廉·威利斯和汉娜·罗恩斯利。]()
+评论：注射这种毒疫苗对心脏的损伤并非如CDC所说的“非常温和”。心肌细胞一旦损伤将终生不能修复。学过人体生理学的人都清楚，心肌细胞组织是一种机能性“合胞体”结构，心肌细胞和细胞之间的连接特化，凸凹相连，形成阶梯状的称为“闫盘”的结构，所有的心肌细胞都通过闫盘相互连接在一起。“闫盘”的电阻极低，因此当有电信号到达心脏时，电信号就能迅速扩布至全部心房肌和心室肌，刺激所有的心肌细胞同时兴奋而同步收缩，将心脏内的血以最快和最大力量一次性完全射出心室，完成心脏的一次节律性收缩，这是心脏组织结构独特的功能。如果心肌细胞受损，损伤处的细胞将形成“疤痕”，由损伤细胞形成的疤痕将不再能与其他心肌细胞形成同步收缩，从而将影响心脏的射血效率（血从心室一次射出量）及心率的整齐。当你执意给你的孩子打疫苗时，你是否清楚知道，你的决定将可能会使孩子心脏终生受损，而你也将为你的决定抱恨终生？
 
-目前，罗恩斯利被无罪释放，但被勒令向一家公认的慈善机构捐赠 500 纽币。
+文章链接：[https://dailyexpose.uk/2021/12/17/dr-peter-mccullough-warns-that-covid-19-vaccines-are-more-dangerous-than-the-virus/](https://dailyexpose.uk/2021/12/17/dr-peter-mccullough-warns-that-covid-19-vaccines-are-more-dangerous-than-the-virus/)
 
-虽然这对夫妇原定于 10 月 14 日出庭，但 COVID-19 警报级别导致了一系列延误。
-
-这起案件发生在全国处于封锁状态，这对夫妇受到了公众的密切关注。这对夫妇于 9 月中旬被点名，此后，他们发布了一份声明，就他们的行为向新西兰道歉。
-
-这对夫妇说：
-
-“最初，我们在收到死亡威胁后寻求隐姓埋名，我们真的很担心自己的安全。但是，我们仍然致力于为我们的行为负责，不会寻求一直隐姓埋名。”
-
-“我们明白，我们的国家消灭 COVID-19，需要严格遵守。我们的行为让每个人都失望了，我们衷心道歉。”
-
-![瓦纳卡。]()瓦纳卡。照片来源：盖蒂图片社
-
-两人还说，在前往瓦纳卡之前和返回后，他们的 COVID-19 测试呈阴性，并且没有去过任何感兴趣的地方，也没有密切接触。
-
-这对夫妇补充说，他们在旅行前后都接受了COVID-19 测试，朋友和家人并不知道他们的旅行计划。
-
-威利斯的母亲、地方法院法官玛丽-贝丝·夏普（Mary-Beth Sharp）也发表声明谴责他们的行为。
-
-她表示对他们的行为感到“震惊”并且“非常尴尬”。
-
-“如果我知道他们的意图，我当然不知道，我会告诉他们不要如此轻率和自私地行事。我不会宽恕他们的行为。”
-
-编译/米拉娅
-
-审阅/丘杰斯
-
-上传/天赐良闻
-
-[新闻援引链接](https://www.newshub.co.nz/home/new-zealand/2021/12/auckland-couple-who-escaped-to-w-naka-during-lockdown-plead-guilty.)
-
-
-
-[相关新闻链接1.](https://www.newshub.co.nz/home/new-zealand/2021/09/w-naka-couple-william-willis-hannah-rawnsley-to-face-court-over-alleged-covid-19-breach-after-police-investigation.html)
-
-[相关新闻链接2.](https://www.newshub.co.nz/home/new-zealand/2021/09/wanaka-couple-s-identity-revealed-as-william-willis-hannah-rawnsley-after-name-suppression-lapses.html)
-
-
-
-
-
-
+审核校对：Barry Jack
+上传排版：F
 
  
 
