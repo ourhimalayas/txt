@@ -15,92 +15,92 @@
 
 ---
 
-### [中国人崇拜俄罗斯文化](/content/gnews/1/README.md)
+### [郭先生谈为什么不会做华盛顿](/content/gnews/1/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [长津湖就是毛泽东为给儿子接班清除国民党降军的大屠杀](/content/gnews/2/README.md)
+### [七哥用7个理由谈川普不推广纳瓦罗的书《川普时间》](/content/gnews/2/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国前线医生组织发誓要开设自己的诊所](/content/gnews/3/README.md)
+### [俄罗斯特使向中共通报的四项内容吓傻了共产党](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [订单没有了制造业还缺人吗？](/content/gnews/4/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [中国人崇拜俄罗斯文化](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [长津湖就是毛泽东为给儿子接班清除国民党降军的大屠杀](/content/gnews/6/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美国前线医生组织发誓要开设自己的诊所](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [彭丽媛主宰音乐界](/content/gnews/4/README.md)
+### [彭丽媛主宰音乐界](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [房地产是中共恶魔 剥削老百姓的手段（2）](/content/gnews/5/README.md)
+### [房地产是中共恶魔 剥削老百姓的手段（2）](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [在中国网球明星撤回性侵指控后，WTA持怀疑态度](/content/gnews/6/README.md)
+### [在中国网球明星撤回性侵指控后，WTA持怀疑态度](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [房地产是中共恶魔 剥削老百姓的手段（1）](/content/gnews/7/README.md)
+### [房地产是中共恶魔 剥削老百姓的手段（1）](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [习近平是崇俄派](/content/gnews/8/README.md)
+### [习近平是崇俄派](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [斯科特·莫里森召开紧急国家内阁会议](/content/gnews/9/README.md)
+### [斯科特·莫里森召开紧急国家内阁会议](/content/gnews/13/README.md)
  ` 走进澳洲`
 
-### [彭帅事件绝对是习近平政治生涯的滑铁卢](/content/gnews/10/README.md)
+### [彭帅事件绝对是习近平政治生涯的滑铁卢](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [魁北克爆发COVID-19疫情——政府下令酒吧，体育馆，剧院和学校今晚5点必须关闭，卫生部长担心魁北克人对卫生措施和疫苗接种的支持度会下降](/content/gnews/11/README.md)
+### [魁北克爆发COVID-19疫情——政府下令酒吧，体育馆，剧院和学校今晚5点必须关闭，卫生部长担心魁北克人对卫生措施和疫苗接种的支持度会下降](/content/gnews/15/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [张学良就是中国历史的罪人 为一己之私救活了中共这个恶魔](/content/gnews/12/README.md)
+### [张学良就是中国历史的罪人 为一己之私救活了中共这个恶魔](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [学生举报教师，文革2.0进行中](/content/gnews/13/README.md)
+### [学生举报教师，文革2.0进行中](/content/gnews/17/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2022是中共国回到54、55、56年的时代](/content/gnews/14/README.md)
+### [2022是中共国回到54、55、56年的时代](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [习家人掌握一切权利](/content/gnews/15/README.md)
+### [习家人掌握一切权利](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [习近平不能被暗杀 只有习才可以挑战美国 才会打台湾 才会带领共产党走进坟墓](/content/gnews/16/README.md)
+### [习近平不能被暗杀 只有习才可以挑战美国 才会打台湾 才会带领共产党走进坟墓](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [爆料革命对欧美影响排第一 其次大胡子医生和班农](/content/gnews/17/README.md)
+### [爆料革命对欧美影响排第一 其次大胡子医生和班农](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新闻评述：王毅喊话“台湾游子”要回家，猛炒“台独”为武统正名](/content/gnews/18/README.md)
+### [新闻评述：王毅喊话“台湾游子”要回家，猛炒“台独”为武统正名](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [不止于口罩的抗争](/content/gnews/19/README.md)
+### [不止于口罩的抗争](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2021年,我会如何想起你](/content/gnews/20/README.md)
+### [2021年,我会如何想起你](/content/gnews/24/README.md)
  ` dingding`
 
-### [超低投票率毁中共式民主 白皮书控诉港式民主](/content/gnews/21/README.md)
+### [超低投票率毁中共式民主 白皮书控诉港式民主](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [港府和中共联手蒙骗 制造人心所向](/content/gnews/22/README.md)
+### [港府和中共联手蒙骗 制造人心所向](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [Peter McCullough医生警告新冠疫苗比新冠病毒更危险](/content/gnews/23/README.md)
+### [Peter McCullough医生警告新冠疫苗比新冠病毒更危险](/content/gnews/27/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [以色列卫生部考虑建议刚接种新冠疫苗的人避免训练](/content/gnews/24/README.md)
+### [以色列卫生部考虑建议刚接种新冠疫苗的人避免训练](/content/gnews/28/README.md)
  ` xiaobaige`
 
-### [浙江冠状病毒病例急增，中共敛财好时机](/content/gnews/25/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [港股暴跌 CCP假擀面杖撑不住了！](/content/gnews/26/README.md)
- ` 焦點20分`
-
-### [印度：三针疫苗接种者查出Omicron病毒](/content/gnews/27/README.md)
+### [印度：三针疫苗接种者查出Omicron病毒](/content/gnews/29/README.md)
  ` 墨尔本雅典娜农场`
-
-### [灭共者之郭氏情报站（五）12月19日版](/content/gnews/28/README.md)
- ` MOS Designer香草山设计部`
-
-### [恆大破产在即 金融危机下战友们的执行力！](/content/gnews/29/README.md)
- ` 焦點20分`
 
 ### [2021年12月19日郭文贵先生直播全文字版（下）](/content/gnews/30/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`

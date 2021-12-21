@@ -2,64 +2,22 @@
 ---
 
 
-## 灭共者之郭氏情报站（五）12月19日版
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1775444/)
+## 以色列卫生部考虑建议刚接种新冠疫苗的人避免训练
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/1775514/)
 
-**出品：纽约香草山设计部**
+#### 翻译/简评                    意大利达芬奇农场                  小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Schermata-2021-12-20-alle-16.38.58.png)图片来源：grandeinganno.it
+据《耶路撒冷邮报》报道，以色列卫生部可能会要求每一个接种辉瑞疫苗的人，在他们接种第一剂辉瑞疫苗之后一个星期应避免从事体育活动和其他剧烈运动, 这是因为接受疫苗会使他们中的一小部分人得心肌炎。以色列卫生部流行病部门的某些官员建议打了第二针mRNA新冠疫苗的人一个星期以内要避免剧烈的运动，而随便行走，做伸展运动，站着工作， 做家务都没问题。
 
+这项建议是在星期三发布的一项研究之后提出的。这项研究表明注射一针辉瑞疫苗之后，会增加患心脏炎症的风险。总而言之，一般病情普遍较轻，大部分患者是年轻男性。
 
+“ 建议所有人，特别是青少年和30岁以下的年轻人，尤其是刚打了第一针和第二针之后避免剧烈运动。剧烈运动是指像举重、短跑、长距离的游泳。” 官员們称职业运动员担心将他们的训练强度降低会削弱他们的表现水准。疫苗小组成员向邮报记者指出， 这一问题将在下次会议中讨论， 大多数委员会成员目前对此持反对意见。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+新冠疫苗有如此之大的副作用，我们已经看到许多运动员因为心梗突然倒在了赛场上， 专家们还在鼓励民众注射疫苗， 只是建议不做剧烈运动， 这世界简直疯狂到了极点。那些还在相信科学和疫苗的人该醒醒了，否则不知还会有多少无辜的生命因此而付出惨重代价。
 
+原文链接：[https://www.jpost.com/health-and-wellness/health-ministry-to-consider-asking-newly-vaccinated-to-avoid-working-out-681317](https://www.jpost.com/health-and-wellness/health-ministry-to-consider-asking-newly-vaccinated-to-avoid-working-out-681317)
 
-
-
-
-
-
-
-
-## **灭共者之郭氏情报站 – 2021年12月19日，文贵大直播：**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12-19.png)
-**一、两个很不好的消息： 
-**1、所有得过新冠病毒的人3-10年内50%以上概率会染上癌症，一定要避免剧烈运动。主要两个地方容易得病：淋巴和血液；女性容易得妇科疾病。感染康复后一定要坚持吃青蒿素和伊维菌素。 
-2、法币的超发导致的通货膨胀，通胀、通缩，生产力不平衡，是全球经济从来没有过的黑暗时期。不会有任何解药，唯独崩塌一条路。
-
-**二、中共房地产持续暴雷破产，内外交困，经济指标作假欲掩盖金融大崩盘。**从企业家解直锟的意外死亡，中共内斗谁都无法幸免。人类已经走向了“货币春秋”，是世界走向“三国”的数字货币时代，我们是其中一极。
-
-**三、抵制奥运会意义深远。**奥运会一定会有集体事件、隔离事件。习想要通过奥运展现治理能力，一党专政的优越性，然后开始造神运动，并准备打台湾。
-
-
-
-**上一期：**
-
-[**灭共者之郭氏情报站（四）12月17日版 – GNEWS**](https://gnews.org/zh-hans/1769041/)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-2.png)
-
-***编辑/发稿：小鹿***
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
-
+编辑、发布：  Xiao   baige
 
  
 
