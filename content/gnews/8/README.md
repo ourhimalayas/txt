@@ -2,159 +2,49 @@
 ---
 
 
-## 12/21每日播报｜社媒消息：蓬佩奥 娜塔莉温特斯
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1777441/)
+## 香港立法选举遭“五眼联盟”联合声明谴责并印证“北京绝对控制林郑月娥”
+` Zero-Day【零时差】` [轉載自GNews](https://gnews.org/zh-hans/1777473/)
 
-**By:[秘翻新聞](https://gtv.org/broadcast/watch/61c19743bcb7f101bb724eea)**
+【国会山报】于2021年12月20日 – 美国东部时间发文报道，**香港立法会换届选举周一早上完成点票，三个界别投票选出共90个议席；其中通过地方选区直选部分总投票率为30.20%，较2016年的上一次选举低约28个百分点，亦是香港地方选区投票率最低的一次。**
+![2f58f3606509908a6d1819134ef38128.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/9E3A3190-8EC3-49F7-B6C4-67E254D0A8B6.jpeg)*2021年12月19日，香港立法会选举举行，香港选举管理委员会冯骅（右二）和其他官员在投票站清空投票箱清点选票。（AP）*
+据报道，虽然林郑月娥承认投票率很低，但她没有解释原因。
 
-**2021-12-21**
+据路透社报道称，一些人认为投票率是合法性的标志，特别是考虑到中共最近通过的国家安全法以及在香港表达希望竞选公职的民主候选人被监禁或流放。
 
-**1.蓬佩奥12月21日发推说：**
+而且，只有被视为“爱国者”的候选人才被允许参选，这促使一些外国领导人联合发表[声明](https://www.state.gov/joint-statement-on-hong-kong-legislative-council-elections/)谴责香港选举。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/CFC324A5-8E22-432E-8101-44044690BF82.jpeg)*澳大利亚外长佩恩发表的“五眼联盟”相关声明 © 网络图片*
 
-我们不能向中共屈服。
 
+“五眼联盟”发布联合声明指出，作为澳大利亚、加拿大、新西兰和英国的外交部长和美国国务卿，他们注意到香港立法会的选举结果，以及特别行政区的选举制度。他们强调了，对香港民主元素受到侵蚀表示严重关切。声明还补充说：
 
+“破坏香港权利、自由和高度自治的行为正在威胁我们希望看到香港成功的共同愿望，”
 
-> We cannot kowtow to the Chinese Communist Party.
-> — Mike Pompeo (@mikepompeo) [December 20, 2021](https://twitter.com/mikepompeo/status/1473019181700423680?ref_src=twsrc%5Etfw)
+声明还称：“保护不同和平观点的表达空间，是确保香港稳定繁荣的最有效途径。我们敦促中国根据其国际义务采取行动，尊重包括《中英联合声明》所保障香港的权利和自由。”
 
+英国外交大臣特拉斯（Liz Truss）稍早通过表示，“选举改革和香港国安法消灭了香港的反对声音，是对自由的冒犯。”她呼吁，“中方应该允许言论自由，遵守其同意的《中英联合声明》，并根据国际义务行事。”
 
+特拉斯后在发表联合声明时附文称，“昨天的选举暴露了北京正在努力消除香港的权利、自由和自治。英国与澳大利亚、加拿大、新西兰和美国站在一起，支持自由，并呼吁中共国按照其国际义务行事。”
 
-**2.娜塔莉温特斯12月21日发推说：**
+七国集团（G7）与欧盟之后[也加入行列](https://www.hk01.com/%E5%8D%B3%E6%99%82%E5%9C%8B%E9%9A%9B/714977/%E7%AB%8B%E6%B3%95%E6%9C%83%E9%81%B8%E8%88%89-g7%E6%AD%90%E7%9B%9F%E7%99%BC%E8%81%AF%E5%90%88%E8%81%B2%E6%98%8E-%E7%A8%B1%E5%B0%8D%E6%B0%91%E4%B8%BB%E5%8F%97%E4%BE%B5%E8%9D%95%E8%A1%A8%E7%A4%BA%E5%9A%B4%E9%87%8D%E9%97%9C%E5%88%87)，就香港立法会选举发布声明，批评选举削弱了香港在「一国两制」原则下的高度自治。
 
-乔·拜登禁止美国人投资中共的一些科技公司，但他儿子亨特·拜登却从其中获利。
+昔日亚洲金融中心被誉为东方之珠的香港如今已经面目全非，早已丧失了自由、民主和安全。正如新中国联邦文贵先生无数次警示世界所提出的，香港将不再有民主自由！
+![](https://assets.gnews.org/wp-content/uploads/2021/12/CE397A1E-EF3B-45AF-A9A9-ADAA02C56C12.jpeg)
+早在2017年，文贵先生就指出大陆资金频频在香港以超高价买地，并非是搞发展，而是经济“掺沙子”，控制整个（香港）房地产市场，也就是“控制香港的生死”，是一场政治阴谋。2018年12月21日文贵先生在推特视频鼓励香港加油，也谈到了香港的没落。2019年10月4日，文贵先生在YouTube直播中又明确谈到了“北京绝对控制林郑月娥！”（见直播9:13秒）
 
-【推文转《国家脉动》报道，被白宫列入“中共军工企业”黑名单的几家公司获得了与亨特·拜登有关的投资基金的支持。比如专注于面部识别的旷视科技 从渤海华美获得了大量投资。渤海华美是一家私募股权公司，Hunter Biden于 2013 年开始担任该公司的董事。】
+可见，香港当下所谓选举只不过是北京当局早有谋划的棋盘中的一局。
 
+编译/米拉娅
 
+审阅/丘杰斯
 
-> Biden Bans Investment In Chinese Tech Firms Hunter Profited From.[https://t.co/BfikPxlK4P](https://t.co/BfikPxlK4P)
-> — Natalie Winters (@nataliegwinters) [December 20, 2021](https://twitter.com/nataliegwinters/status/1472987463748489218?ref_src=twsrc%5Etfw)
+上传/天赐良闻
 
+新闻来源链接：（[TheHill国会山报](https://thehill.com/policy/international/586689-pro-beijing-candidates-sweep-controversial-hong-kong-election)）
 
 
-**3.《国家脉动》12月20日在盖特发文：**
 
-辉瑞公司以67亿美元收购了一家心血管生物制药公司。
 
-【盖文转报道，辉瑞收购的这家公司是Arena制药公司。Arena公司部分专注于心血管和炎症药物的研发。但是大多数主流新闻机构的报道都集中在Arena的肠道疾病治疗上，而没有提及该公司的心血管研究。总部位于犹他州的Arena公司与联合治疗公司（United Therapeutics Corporation）现在有合作关系，后者的研究重点是肺动脉高血压。辉瑞的此项收购肯定会给其带来比企业媒体所吹捧的肠道疾病治疗更多的回报。因为中共病毒容易让感染者患上肺动脉高压，另外辉瑞等公司开发的中共病毒疫苗容易引发心血管问题，比如心肌炎。】
 
-[https://gettr.com/post/pk6ah70068](https://gettr.com/post/pk6ah70068)
-
-**4.《班农战斗室》12月19日在盖特发文：**
-
-小罗伯特·F·肯尼迪 (Robert F. Kennedy, Jr.)12月18日接受了《班农战斗室》节目的采访，他说美国情报部门和军方参与了武汉实验室的研究。
-
-【盖文转《网关专家》报道，小肯尼迪表示：“他们从来没有谈论过公共卫生，也从不谈论如何药物再利用、如何隔离病人、如何让人们吃维生素D和锌、锻炼身体、建立他们的免疫系统。他们所谈的全是关于如何以大流行病为借口来消灭民主制度。武汉功能增强研究实验的最大资助者是美国中情局（CIA），它们通过美国国际开发署（USAID）提供资金，甚至比福奇的资助还要多；五角大楼排第二；福奇第三。五角大楼通过福奇向武汉实验室输送资金，每年17亿美元，现在是22亿美元。他们还因福奇的生物武器研究给他增加了68%的薪水。这就是为什么即使奥巴马让他在2014年停止功能增强研究时，他仍继续此项目的原因之一。他们将其武器化，以便让人无法追溯到他们将病毒投放到世界上的时间。”】
-
-[https://gettr.com/post/pk2ab53d7a](https://gettr.com/post/pk2ab53d7a)
-
-**5.Newsmax 12月20日在盖特发文：**
-
-路透社报道称，CNN 12月18日在一份内部备忘录中告诉员工，由于中共病毒病例数的增加，对于CNN的非必要员工，将关闭其在美国的办事处。不在办公室工作的员工，其办公室将被关闭。CNN总裁杰夫·扎克（Jeff Zucker）在备忘录中说：“我们这么做是出于非常谨慎的考虑，通过尽量减少在办公室的人数来保护那些将在办公室工作的人。”
-
-[https://gettr.com/post/pk38mpeda6](https://gettr.com/post/pk38mpeda6)
-
-**6.Newsmax 12月20日发推说：**
-
-美国密歇根州上周公布的数据显示，有强制口罩规定的学校与不强制戴口罩的学校，在新冠的病例率上并无差别。
-
-【推文转报道，与实施严格口罩规定的学校相比，没有口罩规定的学校的平均病例数要少。路易斯维尔大学 (University of Louisville) 的研究人员今年 8 月发布的一项经过同行评审的研究也有类似的发现，结论是“口罩强制令可能不会影响新冠病例的增长。”】
-
-
-
-> The state of Michigan last week published data that shows schools with no mask mandates had "similar" COVID-19 case rates to schools with mandates. [https://t.co/WQGSxoo1aS](https://t.co/WQGSxoo1aS)
-> — Newsmax (@newsmax) [December 20, 2021](https://twitter.com/newsmax/status/1472877007335612416?ref_src=twsrc%5Etfw)
-
-
-
-**7.新唐人12月20日在盖特发文：**
-
-皇家加勒比公司的“海洋交响乐号”游轮上至少有48名乘客的新冠核酸检测呈阳性，尽管该公司已要求所有12岁及以上的游客都需要出示疫苗接种证明才能登船。
-
-【盖文转报道，皇家加勒比公司的发言人莱安·西耶拉-卡罗（Lyan Sierra-Carro）向当地媒体证实，12月4日，游轮上的一位乘客被确认感染了奥米炕变种病毒。检测呈阳性的乘客有轻微症状或没有症状。】
-
-[https://gettr.com/post/pk5gfd3b5d](https://gettr.com/post/pk5gfd3b5d)
-
-**8.真正美国之声12月21日发推说：**
-
-哈佛大学表示，由于新冠病例的“快速上升”，在明年1月份的前三周将进行远程授课，尽管97%的学生和员工都已接种了新冠疫苗。
-
-【推文转报道，哈佛大学12月18日在给学生的一封信中说：“预计奥米炕变种将在未来几周内成为全国的主导变种，可能在1月的前几周达到顶峰。如果公共卫生条件允许，1月下旬将重新开放校园。”哈佛大学还鼓励学生接种加强针，戴口罩，保持社交距离，并接受核酸测试。】
-
-
-
-> .[@Harvard](https://twitter.com/Harvard?ref_src=twsrc%5Etfw) University says classes will be mostly remote for the first three weeks of January due to a "rapid rise" in [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) cases, despite the fact that 97% of all students and employees are vaccinated.[https://t.co/p6FfisCr9q](https://t.co/p6FfisCr9q)
-> — Real America's Voice (RAV) (@RealAmVoice) [December 20, 2021](https://twitter.com/RealAmVoice/status/1473075743030591491?ref_src=twsrc%5Etfw)
-
-
-
-**9.印太新闻 – 关注中共威胁 12月20日发推说：**
-
-澳英美联盟的任务之一是打破中共对稀土的控制。中共掌控了太多对先进技术来说至关重要的原材料。
-
-
-
-> Breaking [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)'s grip on rare earths should be an [#AUKUS](https://twitter.com/hashtag/AUKUS?src=hash&amp;ref_src=twsrc%5Etfw) mission
-> 
-> Beijing has too much control over critical materials vital to advanced technology.[https://t.co/cTf70awdi1](https://t.co/cTf70awdi1)
-> — Indo-Pacific News – Watching the CCP-China Threat (@IndoPac\_Info) [December 20, 2021](https://twitter.com/IndoPac_Info/status/1472899619717713923?ref_src=twsrc%5Etfw)
-
-
-
-**10.盖特官方12月21日在盖特发文：**
-
-杰森米勒在接受媒体El American采访时说：“我们创建盖特是因为我们想建立一个这样的社交媒体平台，允许人们表达他们的政治观点，但同时仍有明确的规则和服务条款，以确保为所有盖特用户提供一个安全的平台环境。我们不认为这是一个关于盖特与Truth Social竞争的故事，而是一个关于多个新平台挑战硅谷垄断的故事。平台服务于不同的目，据我们了解，Truth Social将专注于流媒体服务和保守派节目，而在盖特，我们专注于直播、短视频网络、双币加密货币以及基于区块链的支付系统。”
-
-[https://www.gettr.com/post/pk5ype7d10](https://www.gettr.com/post/pk5ype7d10)
-
-
-
-> "We don’t think this is a story about GETTR versus Truth Social, but rather one about multiple new platforms challenging the Silicon Valley monopolies.” 
-> 
-> In-depth interview with [@JasonMillerinDC](https://twitter.com/JasonMillerinDC?ref_src=twsrc%5Etfw) for [@ElAmerican\_](https://twitter.com/ElAmerican_?ref_src=twsrc%5Etfw) [https://t.co/d1lBlHJq4d](https://t.co/d1lBlHJq4d)
-> — Ben Kew 🐶 (@ben\_kew) [December 20, 2021](https://twitter.com/ben_kew/status/1472957559829155840?ref_src=twsrc%5Etfw)
-
-
-
-[https://twitter.com/ben\_kew/status/](https://twitter.com/ben_kew/status/)
-
-**11.Disclose.tv 12月21日发推说：**
-
-12月17日在空军一号上与总统拜登共度了一段时间的白宫工作人员，尽管已接种了加强针，但仍感染了奥米炕变种。在接触了感染者后，拜登12月19日的核酸检测结果为阴性，12月20日早上的检测结果也为阴性。
-
-
-
-> JUST IN – Vaccinated and boosted White House staffer infected with [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) after spending time on AF1 with Biden on Friday.
-> — Disclose.tv (@disclosetv) [December 21, 2021](https://twitter.com/disclosetv/status/1473086008182906882?ref_src=twsrc%5Etfw)
-
-
-
-**12.Disclose.tv 12月21日发推说：**
-
-接种了加强针疫苗的前美国总统川普对那些质疑新冠疫苗的人说，你正被他们玩弄于股掌之间。
-
-
-
-> NEW – Trump: "You’re playing right into their hands" when you doubt the [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) vaccines.[pic.twitter.com/GXmxQVNezF](https://t.co/GXmxQVNezF)
-> — Disclose.tv (@disclosetv) [December 20, 2021](https://twitter.com/disclosetv/status/1472987776786354177?ref_src=twsrc%5Etfw)
-
-
-
-**13.郭文贵先生在12月20日的盖特视频中说：**
-
-北京冬奥会这场政治游戏的唯一受害者就是10亿中国人民。所有的中国人将为这个完全没有任何价值的愚蠢的国际政治秀付出几千亿美元的代价。可悲、可怜、可恨至极！这是人类全球最昂贵的一场灾难游戏。昨天的大直播在国内影响巨大。在世界经济即将崩塌之前，我们爆料革命的声音是世界上唯一救人的忠言警告。
-
-[https://gettr.com/post/pk5p5a0268](https://gettr.com/post/pk5p5a0268)
-
-**以上社交媒体新闻由 巴拉克和Stephanie 联合编译报道**
-
-发布:星星
-
-* * *
-
-**By 【秘密翻译组-即时新闻播报组】**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/秘翻海报.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

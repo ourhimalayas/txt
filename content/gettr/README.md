@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/21/2021 12:40 PM (UTC)`
+
+12月21号：一个国家副主席沦落成……一个刚当主持人．为习洗脚的角色，真够可怜的啦，王岐山完了，死不了也活不好的状态，对他而言是最痛苦的……
+![img](https://media.gettr.com/group45/getter/2021/12/21/12/6b85f6c2-bafa-e382-0168-51017426f5c8/2b10a2ea0f3c89d9a9650b21ca77b753.jpg)
+
+---
+
 `@miles 12/21/2021 12:18 PM (UTC)`
 
 12月21号：世界卫生组织．疫苗制药厂．几个国家的医疗卫生管理部门，一定会受到人类的大审判，他们的官僚和邪恶力量．充分的利用了人类几百年来共同建立对科学的信任和服从．成了他们的杀人的工具🧰和手段！最终在法庭上。所有的这些杀人犯都将受到审判……真正的灾难！并没有到来，2022年，五月份才应该是打了疫苗人开始不良反应的开周期的开始！
@@ -145,13 +152,6 @@ CCTV, the crazy CCP’s mouthpiece, shirking responsibility for creating the vir
 
 12/18/2021 Miles Guo’s GETTR: I heard that many people working in the banks and the Political & Legal Affairs Commission system got arrested.  Did I guess correctly again?  In the whole central south region in China, it was ordered to withhold salaries and pensions and no payment would be issued anymore.  How can Lao Baixing survive?  In contrast, hospitals’ business is going to be hot and booming. It’s said that all hospitals in Communist China must surrender 1.5 trillion yuan by June 2022.<br/><br/>12/18/2021 文贵盖特：听说政法委、银行系统大量抓人，七哥又蒙对了？整个中南部地区已经下令停发工资、养老金，老百姓可怎么活？医院生意要火啊，据说明年6月前中共国医院必须上交一万五千亿！
 ![img](https://media.gettr.com/group1/getter/2021/12/18/22/89cbe2b2-db3f-698f-cf02-583f9524b223/out.jpg)
-
----
-
-`@miles 12/18/2021 10:21 PM (UTC)`
-
-12/18/2021 Miles Guo’s GETTR: Watch out for Omicron - spreading faster with more complications, have in stock Ivermectin & Artemisinin; are the CCP really Atheists?  Why did Mao Zedong go to Yan’An first, why did Mao dare not to move into the Forbidden City, and why did the CCP design that Red 5-pointed Star?<br/><br/>12/18/2021 文贵盖特：大家要小心奥米炕，传播快、并发症多，备好伊维菌素和青蒿素；共产党真的是无神论吗？当年毛贼东为什么先去延安、不敢搬进故宫、为什么设计了红色五角星？<br/><br/>
-![img](https://media.gettr.com/group43/getter/2021/12/18/22/ccbe29ee-f7d3-2be7-4831-596a8c43f9e0/out.jpg)
 
 ---
 
