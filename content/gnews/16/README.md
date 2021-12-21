@@ -2,26 +2,27 @@
 ---
 
 
-## 【小一方便面】中共对网红动手，旨在电商税
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/1775937/)
+## GTV新闻访谈简报|2021年12月20日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1776007/)
 
-加拿大温哥华扬帆农场 我是1，小一
-![](https://assets.gnews.org/wp-content/uploads/2021/12/小一.png)
-12月20日，杭州市税务局查明，网络主播黄薇（网名：薇娅）在2019年至2020年期间，通过隐匿个人收入、虚构业务转换收入性质虚假申报等方式偷逃税款6.43亿元，其他少缴税款0.6亿元，依法对黄薇作出税务行政处理处罚决定，追缴税款、加收滞纳金并处罚款共计13.41亿元。一石激起千层浪。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/小1.png)*图片来源：twitter*
-墙内这二年唯一还能混日子的就2个活口：1）内销直播带货。2）外贸做电商。在全球脱钩，疫情施虐，大企业撤离，总体营商环境严重恶化的情况下，这是二根独木桥，千军万马踩踏而死！即便是这样，中共对他们还是要整治，下手，根本不考虑千千万万小老百姓的生活。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV-Gnews-2.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/1220text-SC.png)
+校对：Stay文苑
 
-中共稽查偷税漏税只是一个由头，早不查完不查，人家直播了这么久，为什么今天才开始查？
-![](https://assets.gnews.org/wp-content/uploads/2021/12/小2.jpeg)*图片来源：twitter*
-作者认为，中共核心目的是要准备大规模收取“电商税”，杀薇娅，只是立威，树典型。中共在所有动手前，一定会树立典型，拉仇恨，发动人民群众去憎恨，然后“党国”出手锄奸，大快人心。永远一样的套路，一样的配方。
+编辑：Stay文苑
 
-2021年3月开始，中共就开始大事宣传电商税，有些地方在试点，全面开征是2022年。先给这些小公司一个心理缓冲期，然后开始收紧紧箍咒。微信已经开始对微商的商业支付下手，不许纳税人脱离中共的公司监管体系。现在对直播带货下手，目的就是2022年全面推出“电商税”。电商税的最大问题不是税率是10%还是20%的问题，而是中共秋后算账。举例：你公司前10年一共要补缴100万税款，试问还有多少公司顶得住？到时候上层资本早就圈钱走人，给全社会又是留下一地鸡毛！
+发稿：Stay文苑
 
-中共的经济一塌糊涂，为了维持这个“烂苹果”，要不停地吸血，现在目标就是要榨干最后的中产阶级。完全顾不得是不是杀鸡取卵了，连地里的小菜苗也要拿来炒菜了。最后的疯狂，战友们保护好自己，没有任何其他的选择。紧跟爆料革命，这是唯一的诺亚方舟。
+视频参看：[12.20  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61c12daabcb7f101bb721610)
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-1.png)
 
-编辑/发稿：云起时
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

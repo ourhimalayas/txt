@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/21/2021 3:51 AM (UTC)`
+
+20/12/2021 “Hcoin To the Moon" Hits iTunes <br/> No. 1 🥇on 9 Countries Top MV Charts !<br/>No.1🥇 on 7 Countries Rock MV Charts!<br/>No.1🥇 on 4 Countries Rock song Charts!<br/>No.1🥇on 2 countries Hip-pop/Rap song Charts!<br/>Miracle continues…….🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, Taiwan, Laos, Hungary, Macau, Fiji, Philippines, Finland, Singapore!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1774690<br/><br/>12月20号，Hcoin To the Moon位列iTunes<br/>9国热门MV榜首🥇！<br/>7国摇滚MV榜首🥇！<br/>4国摇滚歌曲榜首🥇！<br/>2国嘻哈歌曲榜首🥇！<br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港，台湾，老挝，匈牙利，澳门，斐济，菲律宾，芬兰，新加坡的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏
+
+---
+
 `@miles 12/20/2021 4:59 PM (UTC)`
 
 12月20号，这是VICE在这个时间点，配合共产党在冬奥会之前，对世界的大外宣和打压反对声音的一场国际的大外宣行动。在Vice的多次要求后，在接受采访的同时，我们也进行了同场录播。稍后大家在对比观看后，就会明白共产党对世界宣传的控制，和卑鄙的VICE一直以来反爆料革命亲共的立场！不看不知道，不对比不知道，一对比吓你一大跳！ <br/><br/>12/20/2021 This is VICE at this point in time, act as part of the CCP’s major international outreach operation and suppression of opposition voices just before the Beijing Winter Olympics. We accepted VICE’s interview invitation after their repeated requests. But we also recorded the interview on set ourselves. You will understand the CCP’s control over world propaganda and the despicable VICE’s ongoing anti-Whistleblower Movement, pro-Communist stance once you watched our record later! Please Watch the unaltered interview and compare it for yourself.  You will be shocked by the differences! 
@@ -146,13 +152,6 @@ CCTV, the crazy CCP’s mouthpiece, shirking responsibility for creating the vir
 
 12/17/2021 Miles Guo: Xi Jingping has made up his mind to adopt the governing approach of North Korea. Xi has the characteristics of all dictators. 1）instigate conflicts bewtween the rich and poor, between the religious and ethnic groups. 2) ensure the succession of his descendants at any cost. 3) animosity to the entire world<br/><br/>12/17/2021 文贵直播: 习近平决心走北朝鲜之路来统治中国。他具备所有独裁者的特征！1)制造贫富，宗教，民族等矛盾；2)确保自己儿女继承权位； 3)无情杀戮；4)仇恨全世界。<br/>
 ![img](https://media.gettr.com/group49/getter/2021/12/18/22/cc227a03-df82-5ec3-782d-7fe793cd0314/out.jpg)
-
----
-
-`@miles 12/18/2021 4:05 PM (UTC)`
-
-<br/>12月18号：共产党的经济的全面的即将崩溃……和到处抢劫财富的导致的社会动乱……和大量的抓朴公检法．金融部门官员！现在又要求在半年内让中国的医院和医疗企业部门上交1．5万亿支持所谓的国家战略转型期意味着什么？
-![img](https://media.gettr.com/group18/getter/2021/12/18/16/b3d84aba-add9-e9e2-dd9f-69c17553d92a/out.jpg)
 
 ---
 
