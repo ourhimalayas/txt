@@ -2,26 +2,68 @@
 ---
 
 
-## 中共向华盛顿特区广播电台支付440万美元用于播放其大外宣
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1776233/)
+## 【零时差】新闻速递：新西兰奥克兰夫妇在COVID-19封锁期间逃避限制令赴南岛小镇瓦纳卡遭法庭处罚
+` Zero-Day【零时差】` [轉載自GNews](https://gnews.org/zh-hans/1776238/)
 
-编译：花岗岩
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-28.png)
-图片来源：网络截图
+**[新冠病毒](https://www.newshub.co.nz/home/storytag.:storyTag=newshub:story-tags___cd___coronavirus.:offset=0.html)**
+![police-supplied-thomas-phillips-toyota-hilux-ute-1120+(1).jpg](https://assets.gnews.org/wp-content/uploads/2021/12/0F1D1EE7-3C81-479D-8E88-83DFFF5DB615.jpeg)威廉·威利斯和汉娜·罗恩斯利。图片来源：新西兰警方/提供
+据称，这对奥克兰夫妇[使用基本工人豁免来逃避 4 级警报](https://www.newshub.co.nz/home/new-zealand/2021/09/wanaka-couple-s-identity-revealed-as-william-willis-hannah-rawnsley-after-name-suppression-lapses.html)并前往新西兰南岛小镇瓦纳卡，遭到指控并且被传唤出庭。
 
-据《华盛顿自由灯塔》网站12月20日报道，根据新的联邦外国代理人披露的信息，中共在过去两年中向总部设在弗吉尼亚州的波托马克媒体集团支付了440万美元，用于推广其大外宣。
+这对奥克兰夫妇利用基本工作豁免来逃避新西兰奥克兰地区 COVID-19 封锁的行为已被当地法庭判定有罪，并且需要接受处罚。
 
-该集团在上周四提交给司法部的文件中详细说明了它与中共宣传部下属的国际通信规划局利润丰厚的合同。作为交易的一部分，波托马克传媒旗下的中波电台WCRW播放中共国全球电视网的内容和一系列以正面形象描述中共国的谈话节目。根据合同，规划局可以审查广播节目并核实节目，并要求其向规划局提供关于受众范围、反馈和“国际组织的评估 ”的报告。这笔440万美元的款项，涵盖了2019年7月至2021年8月期间，用于播放CGTN的内容，社交媒体推广，以及制作《桥》脱口秀。
+35 岁的马术运动员威廉·威利斯和 26 岁的律师汉娜·[罗恩斯利于](https://www.newshub.co.nz/home/new-zealand/2021/09/w-naka-couple-william-willis-hannah-rawnsley-to-face-court-over-alleged-covid-19-breach-after-police-investigation.html)9 月被指控[未遵守 COVID-19 健康令](https://www.newshub.co.nz/home/new-zealand/2021/09/w-naka-couple-william-willis-hannah-rawnsley-to-face-court-over-alleged-covid-19-breach-after-police-investigation.html)。他们被指控使用基本工人豁免，穿过奥克兰南部边界前往汉密尔顿，然后经惠灵顿飞往皇后镇，然后开车前往瓦纳卡。当时，奥克兰处于[COVID-19](https://www.newshub.co.nz/home/storytag.:storyTag=newshub:story-tags___cd___coronavirus.:offset=0.html)警报级别 4。
 
-这一合作突显了中共在美国的大宣传活动的范围，近年来，由于中共国试图转移对其侵犯人权行为的注意力，这些大宣传活动尤为泛滥。中共国的国营媒体组织通过社交媒体和与美国报纸和杂志的出版交易，侵略性的向美国受众推广其内容。中共国营报纸《中国日报》已向《时代》、《外交政策》和《华尔街日报》支付了数百万美元，以便在网上发表其文章。中共国驻纽约领事馆最近雇用了一家公共关系公司来招募社交媒体影响者，以宣传北京奥运会。
+威廉·威利斯和汉娜·罗恩斯利在警方调查后因涉嫌 COVID-19 违规而被法庭传唤。
 
-司法部近年来加大了对外国代理人法律的执行力度，要求中共国、俄罗斯和土耳其的国家控制的媒体公司向政府登记其活动。司法部于2019年2月强迫CGTN注册为外国代理人，波托马克媒体公司随即进行外国代理人登记。
+周二，两人于通过视听链接在 Papakura 地方法院出庭并认罪。
 
-自1992年以来，WCRW播放了来自中共国营中国国际广播电台的内容，但此前没有在司法部登记为中共国的外国代理人。俄罗斯卫星通讯社向总部设在佛罗里达州的RM广播公司支付了140多万美元，在华盛顿特区和其他城市的调幅广播中播出。
+周二下午，威利斯被罚款 750 纽币，并被勒令支付 130 纽币的法庭费用。
 
-波托马克媒体集团没有对评论请求作出回应。
+![威廉·威利斯和汉娜·罗恩斯利。]()
 
-新闻来源：[CCP Paid DC Radio Station $4.4 Million To Broadcast Propaganda](https://freebeacon.com/media/ccp-paid-dc-radio-station-4-4-million-to-broadcast-propaganda/)
+目前，罗恩斯利被无罪释放，但被勒令向一家公认的慈善机构捐赠 500 纽币。
+
+虽然这对夫妇原定于 10 月 14 日出庭，但 COVID-19 警报级别导致了一系列延误。
+
+这起案件发生在全国处于封锁状态，这对夫妇受到了公众的密切关注。这对夫妇于 9 月中旬被点名，此后，他们发布了一份声明，就他们的行为向新西兰道歉。
+
+这对夫妇说：
+
+“最初，我们在收到死亡威胁后寻求隐姓埋名，我们真的很担心自己的安全。但是，我们仍然致力于为我们的行为负责，不会寻求一直隐姓埋名。”
+
+“我们明白，我们的国家消灭 COVID-19，需要严格遵守。我们的行为让每个人都失望了，我们衷心道歉。”
+
+![瓦纳卡。]()瓦纳卡。照片来源：盖蒂图片社
+
+两人还说，在前往瓦纳卡之前和返回后，他们的 COVID-19 测试呈阴性，并且没有去过任何感兴趣的地方，也没有密切接触。
+
+这对夫妇补充说，他们在旅行前后都接受了COVID-19 测试，朋友和家人并不知道他们的旅行计划。
+
+威利斯的母亲、地方法院法官玛丽-贝丝·夏普（Mary-Beth Sharp）也发表声明谴责他们的行为。
+
+她表示对他们的行为感到“震惊”并且“非常尴尬”。
+
+“如果我知道他们的意图，我当然不知道，我会告诉他们不要如此轻率和自私地行事。我不会宽恕他们的行为。”
+
+编译/米拉娅
+
+审阅/丘杰斯
+
+上传/天赐良闻
+
+[新闻援引链接](https://www.newshub.co.nz/home/new-zealand/2021/12/auckland-couple-who-escaped-to-w-naka-during-lockdown-plead-guilty.)
+
+
+
+[相关新闻链接1.](https://www.newshub.co.nz/home/new-zealand/2021/09/w-naka-couple-william-willis-hannah-rawnsley-to-face-court-over-alleged-covid-19-breach-after-police-investigation.html)
+
+[相关新闻链接2.](https://www.newshub.co.nz/home/new-zealand/2021/09/wanaka-couple-s-identity-revealed-as-william-willis-hannah-rawnsley-after-name-suppression-lapses.html)
+
+
+
+
+
+
 
  
 

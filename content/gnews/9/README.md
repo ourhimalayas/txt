@@ -2,68 +2,34 @@
 ---
 
 
-## 【零时差】新闻速递：新西兰奥克兰夫妇在COVID-19封锁期间逃避限制令赴南岛小镇瓦纳卡遭法庭处罚
-` Zero-Day【零时差】` [轉載自GNews](https://gnews.org/zh-hans/1776238/)
+## 港闻前线｜立法会选举后 国际组织发声明斥“有违高度自治” 中共发白皮书坚称“民主发展前景光明”
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1776274/)
 
-**[新冠病毒](https://www.newshub.co.nz/home/storytag.:storyTag=newshub:story-tags___cd___coronavirus.:offset=0.html)**
-![police-supplied-thomas-phillips-toyota-hilux-ute-1120+(1).jpg](https://assets.gnews.org/wp-content/uploads/2021/12/0F1D1EE7-3C81-479D-8E88-83DFFF5DB615.jpeg)威廉·威利斯和汉娜·罗恩斯利。图片来源：新西兰警方/提供
-据称，这对奥克兰夫妇[使用基本工人豁免来逃避 4 级警报](https://www.newshub.co.nz/home/new-zealand/2021/09/wanaka-couple-s-identity-revealed-as-william-willis-hannah-rawnsley-after-name-suppression-lapses.html)并前往新西兰南岛小镇瓦纳卡，遭到指控并且被传唤出庭。
+**撰文/港台前线关注组｜發佈日期/ 21/12/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Bank-Manager-Banner.jpg)
+**更多资讯请关注官方盖特｜please follow our Gettr （[https://gettr.com/user/hktwfrontline）](https://gettr.com/user/hktwfrontline%EF%BC%89)**
 
-这对奥克兰夫妇利用基本工作豁免来逃避新西兰奥克兰地区 COVID-19 封锁的行为已被当地法庭判定有罪，并且需要接受处罚。
+中共“完善”选制后的首次立法会换届选举创下史上最低投票率后，五眼联盟、G7、欧盟等相继发表联合声明，对新选举制度下，民主元素受到侵蚀，表达严重关注，同时批评中共无理镇压政治反对派，有违《中英联合声明》给予香港高度自治的承诺。中共国务院亦发表《一国两制下香港的民主发展》白皮书反驳，辩称香港在英国殖民统治下从未有过民主，反而今年“完善”选举制度之后，香港民主发展“前景光明”。
 
-35 岁的马术运动员威廉·威利斯和 26 岁的律师汉娜·[罗恩斯利于](https://www.newshub.co.nz/home/new-zealand/2021/09/w-naka-couple-william-willis-hannah-rawnsley-to-face-court-over-alleged-covid-19-breach-after-police-investigation.html)9 月被指控[未遵守 COVID-19 健康令](https://www.newshub.co.nz/home/new-zealand/2021/09/w-naka-couple-william-willis-hannah-rawnsley-to-face-court-over-alleged-covid-19-breach-after-police-investigation.html)。他们被指控使用基本工人豁免，穿过奥克兰南部边界前往汉密尔顿，然后经惠灵顿飞往皇后镇，然后开车前往瓦纳卡。当时，奥克兰处于[COVID-19](https://www.newshub.co.nz/home/storytag.:storyTag=newshub:story-tags___cd___coronavirus.:offset=0.html)警报级别 4。
+**五眼联盟：民主受严重侵蚀**
 
-威廉·威利斯和汉娜·罗恩斯利在警方调查后因涉嫌 COVID-19 违规而被法庭传唤。
+“五眼联盟”外长及国务卿20日发表联合声明，指自回归以来，不同政见的参选人在香港可竞争角逐参与选举，但新的选举制度改革彻底颠覆了这一趋势，直选议席大幅减少，同时增设新的审查制度，限制选民选择，排除有意义的政治反对声音，民主受到前所未有的严重侵蚀，五眼联盟对此表达严重关注。
 
-周二，两人于通过视听链接在 Papakura 地方法院出庭并认罪。
+声明还对对正被还押的反对派政界人士—— 包括“国安法 47 人案”的大部分被告以及《港区国安法》产生寒蝉效应等等表达严重关注，敦促中共当局应根据其国际义务采取行动，遵守《中英联合声明》中所承诺给香港的权利和基本自由。
 
-周二下午，威利斯被罚款 750 纽币，并被勒令支付 130 纽币的法庭费用。
+**G7及欧盟：无理镇压民主人士 破坏高度自治 **
 
-![威廉·威利斯和汉娜·罗恩斯利。]()
+另外，“七大工业国组织 (G7)”及欧盟高级代表亦对此发表联合声明，指新的选举制度限制选民选择，破坏“一国两制”下的高度自治。
 
-目前，罗恩斯利被无罪释放，但被勒令向一家公认的慈善机构捐赠 500 纽币。
+声明还呼吁中共应按“中英联合声明”及其他法律义务行事，尊重《基本法》给予香港的基本人权与自由，同时停止不合理地镇压那些推广民主价值、捍卫自由与权益的人。
 
-虽然这对夫妇原定于 10 月 14 日出庭，但 COVID-19 警报级别导致了一系列延误。
+**中共国务院：是中国共产党建立并完善了香港的民主制度**
 
-这起案件发生在全国处于封锁状态，这对夫妇受到了公众的密切关注。这对夫妇于 9 月中旬被点名，此后，他们发布了一份声明，就他们的行为向新西兰道歉。
+中共国务院新闻办公室在立法会选举后，发表《一国两制下香港的民主发展》白皮书，针对香港自英殖年代以来至今的“民主发展”作出回顾及展望。
 
-这对夫妇说：
-
-“最初，我们在收到死亡威胁后寻求隐姓埋名，我们真的很担心自己的安全。但是，我们仍然致力于为我们的行为负责，不会寻求一直隐姓埋名。”
-
-“我们明白，我们的国家消灭 COVID-19，需要严格遵守。我们的行为让每个人都失望了，我们衷心道歉。”
-
-![瓦纳卡。]()瓦纳卡。照片来源：盖蒂图片社
-
-两人还说，在前往瓦纳卡之前和返回后，他们的 COVID-19 测试呈阴性，并且没有去过任何感兴趣的地方，也没有密切接触。
-
-这对夫妇补充说，他们在旅行前后都接受了COVID-19 测试，朋友和家人并不知道他们的旅行计划。
-
-威利斯的母亲、地方法院法官玛丽-贝丝·夏普（Mary-Beth Sharp）也发表声明谴责他们的行为。
-
-她表示对他们的行为感到“震惊”并且“非常尴尬”。
-
-“如果我知道他们的意图，我当然不知道，我会告诉他们不要如此轻率和自私地行事。我不会宽恕他们的行为。”
-
-编译/米拉娅
-
-审阅/丘杰斯
-
-上传/天赐良闻
-
-[新闻援引链接](https://www.newshub.co.nz/home/new-zealand/2021/12/auckland-couple-who-escaped-to-w-naka-during-lockdown-plead-guilty.)
-
-
-
-[相关新闻链接1.](https://www.newshub.co.nz/home/new-zealand/2021/09/w-naka-couple-william-willis-hannah-rawnsley-to-face-court-over-alleged-covid-19-breach-after-police-investigation.html)
-
-[相关新闻链接2.](https://www.newshub.co.nz/home/new-zealand/2021/09/wanaka-couple-s-identity-revealed-as-william-willis-hannah-rawnsley-after-name-suppression-lapses.html)
-
-
-
-
-
-
+报告指，香港在英国殖民统治下没有民主可言，反而是中共当局帮助香港恢复行使主权，实行一国两制方针，创建并完善了香港选举制度，令香港的民主发展“前景光明”，显示中国共产党和中共当局对建立发展香港民主的决心、诚意以及付出的巨大努力，一以贯之，有目共睹。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/立法會選舉後.jpg)
+来源｜[联合声明](https://www.gov.uk/government/news/g7-foreign-ministers-issue-joint-statement-on-hong-kong-elections) / [白皮书](http://www.scio.gov.cn/m/zfbps/32832/Document/1717821/1717821.htm)
 
  
 
