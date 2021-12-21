@@ -2,32 +2,36 @@
 ---
 
 
-## GTV投资人对SEC的抗议活动圆满完成
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1774355/)
+## 五眼联盟外长就香港立法会选举发表联合声明
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1775150/)
 
-作者：纽约香草山农场 – 文真
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月17日，GTV投资人在美国SEC华盛顿特区总部外举行的抗议活动圆满结束。此次抗议活动开始于10月4日，历时74天。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/4-32.jpg)
-美国SEC在9月13日与GTV和Saraca公司达成了和解协议。然而，在此后近一个月的时间里，美国SEC没有按照和解协议展开任何行动。美国SEC的腐败和官僚作风，引起了投资人的强烈不满。GTV投资人为了维护自己的合法权益，依法展开一系列的抗议行动。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-此次抗议活动持续了两个半月，并且坚持在GTV平台上直播，得到了全球GTV投资人与正义人士的积极响应与支持，并得到了广泛的赞誉。
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/12/H-2.jpg)stl.news
+五眼联盟外长针对香港立法会选举发表了联合声明，全文如下：
 
-参考链接: [历经两个半月，74天的SEC抗议游行在今天完美收官。感谢所有参加游行的战友们，你们的努力和付出捍卫了GTV投资者合法的利益，更展现了超强的行动力和一流的素质，战友们你们辛苦了！难忘和大家一起奋斗的日子，相信我们很快就会在盘古相见，期待下次和大家一起战斗！](https://gettr.com/post/pjyv19196f)
+关于香港立法会选举联合的声明
+新闻声明
+美国国务 卿安东尼·布林肯
+2021年12月20日
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+在注意到香港立法会选举的结果时，我们，澳大利亚、加拿大、新西兰和英国的外长，以及美国国务卿，对该特别行政区选举制度中民主因素受到的侵蚀表示我们严重的关切。破坏香港权利、自由和高度自治的行动，正威胁着我们共同希望看到的香港成功。
 
-总编：Ivy001
-编辑：Jack Li文阳
-校正/发稿：Fei797
+自移交以来，不同政治观点的候选人能够在香港角逐选举，昨天的选举扭转了这一趋势。今年早些时候，香港选举制度的改革减少了直选议席的数量，并建立了一个新的审批程序，严格限制选票上候选人的选举资格，这些变化消除了任何有意义的政治反对（派）。与此同时，该市的许多反对派政治人士——尤其是《国家安全法》（NSL，the National Security Law）47人中的大多数——仍在监狱等待审判，其他人则流亡海外。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+我们还对《国家安全法》更广泛的压制效应，以及对言论自由和集会自由的日益严格的限制感到严重关切，这在整个民间社会都能感受到。不支持政府议程的非政府组织、工会和人权组织已被迫解散或离开，而媒体自由正被迅速剥夺。
+
+维护和平选择自由观点的空间是确保香港稳定繁荣的最有效途径，我们敦促中共国履行其国际义务，尊重香港的保护权利和基本自由，包括《中英联合声明》（the Sino-British Joint Declaration）所保障的权利和基本自由。
+
+（声明完）
+
+中共对香港的倒行逆施足以警醒世界，这就是中共统治人民的套路，香港是这样，台湾落入中共魔掌之后也会是这样，那些为中共叫好、摇旗呐喊的人，中共接手你们所在国后，包括现在的五眼联盟，也摆脱不了这样的下场。香港的现状，就是你们的未来，不灭掉中共这个恶魔，世界难以再现应有的光明。
+
+声明链接：
+
+[https://www.state.gov/joint-statement-on-hong-kong-legislative-council-elections/](https://www.state.gov/joint-statement-on-hong-kong-legislative-council-elections/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,205 +2,24 @@
 ---
 
 
-## 家长绝对不能让孩子打疫苗
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1777191/)
+## 秘翻在线：奥米炕超过德尔塔成为美国主要的新冠变种
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1777225/)
 
-[https://gtv.org/video/id=61c09f6443ccb726a088fa8e](https://gtv.org/video/id=61c09f6443ccb726a088fa8e)
+#### 翻译/撰稿：zzballack
 
-我觉得首先一点 翌珊
-Yishan, yo siento que el primer punto
+#### 校对：白夜
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1126.png)图片来源：NBC新闻网
+据《真正美国之声》（Real America’s Voice）12月21日报道，根据美国疾控中心（CDC）公布的数据，全美上周新增的新冠病例中，奥米炕（Omicron）病例占了73.2%。
 
-我觉得疫苗我相信在两个月到五个月内一定会全球停止的
-Yo siento, yo confío en que esta vacuna se paralizará en todo el mundo dentro de 2 a 5 meses
+据报道，美国上周可能有超过65万个奥米炕病例。在一些地区，如纽约、东南部、太平洋西北地区和中西部工业地区，新增感染病例中，奥米炕就占了90%或者更多。
 
-我觉得两个月我是很有信心的
-Yo siento que estoy seguro con 2 meses
+根据CDC的数据，当世卫组织在11月首次将奥米炕确定为一种新冠变种时，美国当时超过99.5%的新冠病例是德尔塔（Delta）。但在不到一个月的时间里，奥米炕就超过了德尔塔，成为美国主要的流行变种。
 
-我觉得会停止
-Yo pienso que se paralizará
+尽管很多医生和专家说奥米炕患者的症状轻微，相较以前的新冠变种更温和。但一些专家警告说，这种乐观情绪可能为时过早。据《路透社》（Reuters）报道，伦敦帝国学院 (Imperial College London) 12月17日公布的一项研究显示，奥米炕的再感染风险比德尔塔高五倍以上，而且没有迹象表明它更温和。
 
-因为我有很多话在这儿不能说
-Tengo muchas cosas que aquí no puedo decir
+郭文贵先生直播中说过，奥米炕变种是中共放出的又一个生物武器，传染性极强，不能因为症状轻微就掉以轻心。并且，经多名专家反复论证，所有感染过新冠病毒的人，不分男女、不分老少、不分症状，在未来3到10年内，有几乎超过50%的概率染上癌症。解决疫情的根源是找到制造和释放病毒的元凶，除了灭共，别无他法。
 
-这是
-Esto
-
-绝对是说了是（会）影响这件事情的进展的
-Esto seguro si se dice, afectará el avance de este asunto
-
-我很有信心一两个月内会停止
-Pero tengo mucha fe de que en 1 a 2 meses se detendrá
-
-全球性的
-A nivel mundial
-
-另外一个就是
-Lo otro es
-
-我觉得不会超过5个月就会停止
-Siento que no pasará de 5 meses para detenerse
-
-这是一个问题
-Esta es una pregunta
-
-第二个问题
-La segunda pregunta
-
-关于孩子打了疫苗了
-En relación con los niños vacunados
-
-千万千万记住
-Deben recordar
-
-一定要吃青蒿素吃伊维菌素
-Tienen que tomar la Artemisinina y la Ivermectina
-
-伊维菌素绝对解疫苗
-La Ivermectina puede desintoxicar la vacuna en lo absoluto
-
-青蒿素绝对解疫苗
-La Artemisinina también
-
-都解
-Ambos dexintoxica
-
-这是非常非常清楚的
-Esto es muy claro
-
-但是怎么吃
-Pero cómo se toma
-
-请看咱们的盖特发的信息
-Pueden ir a ver las informaciones que compartimos por Gettr
-
-第三个关于孩子现在说回家搞分裂
-Tercero, sobre el problema de que los hijos regresan diciendo que van a causar división
-
-孩子回来说不能参加party 不能搞（什么的）
-Los hijos regresan diciendo que no se puede participar en las fiestas
-
-这说实在话
-Hablando seriamente
-
-这话就不能说
-Esto no se puede decir
-
-也不能听
-Y tampoco se puede escuchar
-
-如果孩子你还让他上学
-Si a tu hijo aún lo mandas a la escuela
-
-因为他不能上学你要他打疫苗
-Lo haces vacunar porque sin hacerlo no puede ir a la escuela
-
-因为他不能开party 打疫苗
-Porque no puede ir a la fiesta por eso lo mandas a vacunar
-
-这个家长是犯罪
-Este representante está cometiendo un crimen
-
-不存在孩子反对的问题
-No existe el problema de que el hijo esté en contra
-
-如果你一个家长在未成年孩子面前你都做不到这点
-Si tu siendo un representante no logras hacer esto con un hijo sin cumplir la mayoría de edad
-
-你不配做家长
-No mereces ser padre
-
-未来孩子要审判你这样无知的父母的
-En un futuro tu hijo te ajuiciará por ser unos padres ignorantes
-
-你怎么自己不打呢
-Por qué tu mismo no te vacunas
-
-你自己能不打你就不能让孩子打
-Si ni tu te puedes vacunar menos puedes dejar a tus hijos vacunarse
-
-不要再让他上学
-No lo mandes a la escuela
-
-你把它怎么弄在家里都不能让他去打疫苗
-No importa cómo lo dejes en la casa, pero no puedes mandar a que se vacune
-
-你一定要有耐心
-Tienes que tener paciencia
-
-不要给自己的没耐心和懦弱和自私找任何借口
-No le busques excusa a tu impaciencia, cobardía y egoísmo
-
-任何一个父母特别新中国联邦的
-Cualquier padre, especialmente de la Nueva Federación de China
-
-我不会听任何人解释
-Yo no escucharé la explicación de nadie
-
-像小福利 像小seven两口子想尽办法窜出德国
-Así como Xiao Fuli y Xiao Seven, esta pareja hace lo posible para salir de Alemania
-
-得走出去
-Deben salir
-
-孩子要不然上学必须打（疫苗）
-O sino los hijos deben vacunarse al ir a la escuela
-
-或者孩子你不打疫苗的话
-O si tu hijo no se vacuna
-
-德国社会不愿意
-La sociedad alemana no lo permite
-
-这就要离开了
-Así hay que irse
-这就想尽一切办法
-Haciendo todo lo posible
-
-就这
-Nada mas esto
-
-你也不能孩子打
-Tampoco le puedes vacunar a tus hijos
-
-任何理由都不能让未满18岁的孩子因为父母的同意默许打疫苗
-Bajo ninguna excusa, así sea por aceptación o consentimiento no debes vacunar a un niño sin cumplir los 18 años
-
-这都是你的终身的犯罪
-Esto es cometer crimen de por vida
-
-而且强制打疫苗我相信两个月后全球一定会停
-Además, esto de exigir vacunarse, yo confío de que en dos meses se detendrá en todo el mundo
-
-不会超过五个月
-No pasará de 5 meses
-
-另外打了疫苗的一定要吃青蒿素伊维菌素
-Lo otro, si ya se vacunaron deben tomar la Artemisinina y la Ivermectina
-
-就是我给大家的答案
-Esta es la respuesta que les doy a ustedes
-
-谢谢
-Gracias
-
-* * *
-
-日期：12/18/2021
-原视频标题：家长绝对不能让孩子打疫苗
-Los padres no pueden dejar en lo absoluto a que los hijos se vacunen
-原视频日期：12/16/2021
-原视频网址：[**https://gettr.com/post/pjt94b7c0e**](https://gettr.com/post/pjt94b7c0e)
-任务编号：KC353(3254)
-视频时间段：0:00-02:11
-西听校：洛杉矶盘古农场 – 小文萱
-翻译：洛杉矶盘古农场 – 霙霙（文霙）
-翻译终校：洛杉矶盘古农场 – 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+新闻来源：[Omicron overtakes Delta, now accounts for 73% of all new U.S. COVID cases](https://americasvoice.news/justthenews/omicron-overtakes-delta-now-accounts-73-all-new-us-covid-cases/)
 
  
 

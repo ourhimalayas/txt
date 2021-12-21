@@ -2,29 +2,83 @@
 ---
 
 
-## 2025年以后美国就不存在中概股了
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1777222/)
+## 中共的经济地产灾难是对全世界的合法洗劫
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1777269/)
 
-撰稿：永遠の小学生文筝
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide1-30.jpg)
-图片来自网络
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3188.png)
+[https://gtv.org/video/id=61c0a2ba43ccb726a088fbe1](https://gtv.org/video/id=61c0a2ba43ccb726a088fbe1)
 
-上周美国TCW集团新兴市场董事总经理洛文杰（David Loevinger）接受了美国全国广播公司消费者新闻与商业频道（CNBC）的采访。他认为在华尔街上市的中共国企业将在未来三年内全部退市，游戏已经结束了。
+**郭文贵
+Miles Guo**
 
-中共加入WTO之后就一直在玩金融诈骗的游戏，利用国家的身份进行掩护，使用各种手段逃避审计。最终搞得美国受不了，要把这些中概渣股踢出自家的资本市场。这个过程可能更快完成，根据郭先生的情报中共在冬奥会之后会打台湾，当变成军事问题之后中概渣股可能被集体踢出去。
+所以说今天你看到这个金融的时候，你看到整个数据的时候
+So when you look at finance system today, when you look at the whole data
 
-前白宫贸易顾问纳瓦罗在今年8月4日（Peter Navarro）接受了CNBC的访问，认为在中概渣股的暴跌中美国退休基金亏损了4000多亿美元，以及全世界的退体基金都有不同程度的亏损。从今年6月一直到现在中概渣股始终在持续地下跌，要把中共国朝鲜化的习太阳必须要把富人都控制住才算完事，经济规模终将向朝鲜看齐，那么所有中概股的最终价格可能都要到不值1美元的地步。
+你要知道，了解共产党的真相和所谓投到中国的房地产经济
+You have to know the truth about the Communist Party and the so-called real estate economy that was invested in China
 
-最终就算私有化后回香港或者中共国重新上市也没有什么意义，当港币变人民币，人民币不值钱之后，不论中共怎么给自控的企业定价，都换不回外币。没有外币就无法进口原材料与技术，要知道中共国的企业只是小孩子在搭积木而已，没有任何实用价值。
+你看到的这些全都是假象
+are all illusions
 
-从美国退市不仅无法继续骗美元，而且私有化需要大量美元，这又会持续掏空中共的外储。2025年之后不仅中概渣股滚出了美国，中共跟共产主义也一样从地球消失了。
+核心是金融领域的所有不可告知的不可查的隐秘的数据
+The core is all the untold, untraceable, hidden data in the financial sector
 
-参考消息：
+那些隐秘的东西才是对西方的最大威胁
+Those hidden things are the biggest threat to the West
 
-[资管公司：在美上市中资企业 恐在两、三年内全面下市](https://udn.com/news/story/7333/5968679?from=udn-catebreaknews_ch2)
+还有西方金融机构，别光说中国金融机构
+And the Western financial institutions, not just the Chinese financial institutions
 
-[中概股大崩壞！今年市值蒸發1.9兆美元 哪些基金、大股東最慘烈？](https://www.wealth.com.tw/articles/66b36a98-1b0f-4608-b4d2-a8bcd705ee6b)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
+西方的金融机构它不能合法地投到中国去
+Western financial institutions cannot legally invest in China’s real estate
+
+它有西方的金融管理机构
+Western financial institutions and
+
+西方的金融机构，所谓的金融产品买了对冲基金
+fund, so-called financial products bought from hedge funds
+
+西方的养老保险，西方的退伍保险、保险基金大量地投入到这个基金里
+Western pension insurance, western retirement insurance, insurance funds are heavily invested in hedge fund
+
+所有的美国的几个华人、退休基金
+All these several American Chinese managed funds, retirement funds
+
+这都是合法的偷
+Are all legal theft
+
+那是什么概念？要命的
+What is the end of that? It’s deadly
+
+兄弟姐妹们，那真的是要命的
+Brothers and sisters, that really is deadly
+
+我得吃了，我先说到这儿
+I have to eat, I’ll stop here
+
+所以说告诉你，共产党的地产和经济灾难是对全世界的一场合法洗劫
+So the Communist real estate and economic disaster is a legal looting of the whole world
+
+* * *
+
+Date:12/16/2021
+原视频标题: 中共的经济地产灾难是对全世界的合法洗劫
+CCP’s economic real estate disaster is a legitimate looting of the world
+原视频日期：2021/12/10
+原视频链接:[**https://gettr.com/post/pje75ydd03**](https://gettr.com/post/pje75ydd03)
+任务编号：3188
+视频时间段 : 0:00-01:10
+中听校：洛杉矶盘古农场 -Mike Li
+翻译：洛杉矶盘古农场 – Mike Li
+翻译终校：洛杉矶盘古农场 – Layka
+字幕+视频制作：洛杉矶盘古农场 – Jambo
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
