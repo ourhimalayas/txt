@@ -2,27 +2,28 @@
 ---
 
 
-## 富力地产预告将暴雷
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1774489/)
+## 台北马拉松需急救人数远超往年
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1774878/)
 
-作者：纽约香草山健身部 – Jack Li文阳
+作者：纽约香草山 医疗部 云豹
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月15日下午，中共国富力地产发布一则公告称，富力总额7.25亿美元的美元票据，将于2022年1月13日到期，拟以折价方式回购。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/7-32.jpg)
-折价回购有两种方案：一是以原定价格兑现所持票据的50%，剩余50%延期半年；二是兑现相当于原来价格的83%。与此同时，富力地产恳请票据持有人，同意将票据延期半年至明年7月13日。
+台北马拉松于当地时间12月19日上午举行，当天温度为摄氏13度，气候凉爽，但是赛程中仍有7位跑者发生身体不适现象。其中5位跑者为重症，到院前心跳呼吸中止，经强救已全部恢复生命迹象，但还在住院治疗中。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-20-下午11.56.16.png)
+台北马拉松近几年都是每年12月在台北市举办。今年赛程中意外事故数目如此之多，远超往年记录。据悉，今年因为中共病毒疫情，大多数参赛者已经至少接种过一针中共病毒疫苗。
 
-富力地产负责人坦言，若无法与票据持有人达成共识，公司有可能无法全额按合约履行偿还承诺。另外，富力还将酌情对此两种回购方式，调整偿付的最高金额。就是说，票据持有人可能拿不到回购方案约定的金额，分析家称富力此举为预告式暴雷。
+据报道，在世界各地，已经出现许多案例——接种过中共病毒疫苗的运动员，在赛事中突然昏厥，甚至猝死。医学研究报告，这与接种中共病毒疫苗引发的心肌炎有关。
 
-参考链接: 
-1) . [20亿理财中间人失联，地产巨头预告式暴雷](https://www.gettr.com/post/pk1ursfb2a)
-2) . [还钱也能讨价还价？富力地产预告式“爆雷”，投资人：怎么选都亏](http://www.amcupdate.com/2021/12/16/%E5%AF%8C%E5%8A%9B%E7%A6%BB%E5%AE%9E%E8%B4%A8%E6%80%A7%E8%BF%9D%E7%BA%A6%E8%BF%98%E6%9C%89%E5%A4%9A%E8%BF%9C/)
-3) . [富力地产预告式“爆雷”：可能无法在到期日全额赎回票据](https://www.sohu.com/a/508639837_639898)
+目前，专家正在调查，此次台北马拉松赛事中多位跑者突然昏厥，与疫苗副作用的关系。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+参考链接：
+1）[台北馬拉松》7跑者昏倒送醫 2胸悶、5人OHCA皆恢復生命跡象](https://sports.ltn.com.tw/news/breakingnews/3773504)
+2）[巧合？一個睡夢中去世、一個重訓完突無心跳　新加坡、美國2青少年都打了「這款疫苗」](https://www.businesstoday.com.tw/article/category/203946/post/202107060017/%E5%B7%A7%E5%90%88%EF%BC%9F%E4%B8%80%E5%80%8B%E7%9D%A1%E5%A4%A2%E4%B8%AD%E5%8E%BB%E4%B8%96%E3%80%81%E4%B8%80%E5%80%8B%E9%87%8D%E8%A8%93%E5%AE%8C%E7%AA%81%E7%84%A1%E5%BF%83%E8%B7%B3%E3%80%80%E6%96%B0%E5%8A%A0%E5%9D%A1%E3%80%81%E7%BE%8E%E5%9C%8B2%E9%9D%92%E5%B0%91%E5%B9%B4%E9%83%BD%E6%89%93%E4%BA%86%E3%80%8C%E9%80%99%E6%AC%BE%E7%96%AB%E8%8B%97%E3%80%8D)
 
-总编：Ivy001
-编辑：Kathy文艺
-校正/发稿：Fei797
+![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+
+总编：Jack Li文阳
+编辑：Ivy001
+校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -31,8 +32,6 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

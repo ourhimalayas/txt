@@ -15,139 +15,139 @@
 
 ---
 
-### [中共花440万美元收买美国媒体遭揭露](/content/gnews/1/README.md)
+### [亚马逊“中国书店”洗脑全球](/content/gnews/1/README.md)
+ ` 秘密翻译组-原创组`
+
+### [日本政府宣布了两次假想大地震的损失预测](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [解说员：加强针对抗奥米克戎的关键还有很多需要学习](/content/gnews/3/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [歌曲《病毒和疫苗解药》](/content/gnews/4/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [美国游轮上48人检测出中共病毒，大多数人已接种疫苗](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共花440万美元收买美国媒体遭揭露](/content/gnews/6/README.md)
  ` HimalayaRussia`
 
-### [视频| 共产党高官和他们的红顶商人们都喜欢换明星老婆](/content/gnews/2/README.md)
+### [中共使劲浑身解数，依旧难以挽回香港立法会选举投票人数创新低](/content/gnews/7/README.md)
+ ` GTV News Talk`
+
+### [郭文贵先生爆出解直锟死亡背后更多内幕](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [视频| 共产党高官和他们的红顶商人们都喜欢换明星老婆](/content/gnews/9/README.md)
  ` MOSREC`
 
-### [视频| 王岐山马仔谢氏兄弟发家始末](/content/gnews/3/README.md)
+### [视频| 王岐山马仔谢氏兄弟发家始末](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [郭文贵先生2021年12月20日盖特视频（9分49秒）全文字版](/content/gnews/4/README.md)
+### [郭文贵先生2021年12月20日盖特视频（9分49秒）全文字版](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [香港立法会选举结果：投票率创新低、非建制派全落败](/content/gnews/5/README.md)
+### [香港立法会选举结果：投票率创新低、非建制派全落败](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [五国外长就香港立法会选举发声明](/content/gnews/6/README.md)
+### [五国外长就香港立法会选举发声明](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [台风雷伊过后 菲律宾死亡人数猛升](/content/gnews/7/README.md)
+### [台风雷伊过后 菲律宾死亡人数猛升](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共妄图统治全球的前期备战——“炎黄子孙优越论”](/content/gnews/8/README.md)
+### [中共妄图统治全球的前期备战——“炎黄子孙优越论”](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [前哈佛化学系主任承认从中共获取数万美元](/content/gnews/9/README.md)
+### [前哈佛化学系主任承认从中共获取数万美元](/content/gnews/16/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [庞大供应链的崩溃](/content/gnews/10/README.md)
+### [庞大供应链的崩溃](/content/gnews/17/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [G时评216期（12.20）直播摘要：伊拉克/南京大屠杀](/content/gnews/11/README.md)
+### [G时评216期（12.20）直播摘要：伊拉克/南京大屠杀](/content/gnews/18/README.md)
  ` GISELLE`
 
-### [纽约感染中共病毒人数连续三天创新高，一周增加60%](/content/gnews/12/README.md)
+### [纽约感染中共病毒人数连续三天创新高，一周增加60%](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【粤语配音】2021年12月19日文贵直播：今年的冬奥会将是习近平的噩梦](/content/gnews/13/README.md)
+### [【粤语配音】2021年12月19日文贵直播：今年的冬奥会将是习近平的噩梦](/content/gnews/20/README.md)
  ` MOS香港部`
 
-### [习性能力不行私生子消息是假的](/content/gnews/14/README.md)
+### [习性能力不行私生子消息是假的](/content/gnews/21/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [美军驻冲绳汉森大本营已有180人感染中共病毒](/content/gnews/15/README.md)
+### [美军驻冲绳汉森大本营已有180人感染中共病毒](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [GTV新闻访谈简报|2021年12月20日晚](/content/gnews/16/README.md)
+### [GTV新闻访谈简报|2021年12月20日晚](/content/gnews/23/README.md)
  ` 纽约香草山MOS01`
 
-### [串珠490:将有更多国家抵制冬奥会](/content/gnews/17/README.md)
+### [串珠490:将有更多国家抵制冬奥会](/content/gnews/24/README.md)
  ` 郭爆料串珠`
 
-### [【小一方便面】中共对网红动手，旨在电商税](/content/gnews/18/README.md)
+### [【小一方便面】中共对网红动手，旨在电商税](/content/gnews/25/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [文·贵天成——文贵先生谈“中原佛手、裕达国贸”（七）](/content/gnews/19/README.md)
+### [文·贵天成——文贵先生谈“中原佛手、裕达国贸”（七）](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
 
-### [以美灭共的经济制裁正加速实施中](/content/gnews/20/README.md)
+### [以美灭共的经济制裁正加速实施中](/content/gnews/27/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [感染中共病毒者愈后采取措施未来三到十年五成致癌可能](/content/gnews/21/README.md)
+### [感染中共病毒者愈后采取措施未来三到十年五成致癌可能](/content/gnews/28/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [特鲁多绥靖外交政策使加拿大国际地位下降](/content/gnews/22/README.md)
+### [加拿大新布朗瑞克省的疫苗护照计划受挫](/content/gnews/29/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [国内出现所谓热毒实际上都是疫苗引起的出血脑梗心梗等](/content/gnews/23/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [加拿大新布朗瑞克省的疫苗护照计划受挫](/content/gnews/24/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [美国汇丰银行零售商业银行业务明年将易主](/content/gnews/25/README.md)
- ` 纽约香草山MOS02`
-
-### [印度：三针疫苗接种者查出Omicron病毒](/content/gnews/26/README.md)
- ` 墨尔本雅典娜农场`
-
-### [聚焦：普京和习大神在冬奥会期间将有疯狂举动](/content/gnews/27/README.md)
+### [聚焦：普京和习大神在冬奥会期间将有疯狂举动](/content/gnews/30/README.md)
  ` 丁过`
 
-### [郭先生谈为什么不会做华盛顿](/content/gnews/28/README.md)
+### [郭先生谈为什么不会做华盛顿](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [七哥用7个理由谈川普不推广纳瓦罗的书《川普时间》](/content/gnews/29/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [澳洲的民主法治难挡中共病毒子母弹](/content/gnews/30/README.md)
+### [澳洲的民主法治难挡中共病毒子母弹](/content/gnews/32/README.md)
  ` 澳喜特战旅Gnews`
 
-### [美国前线医生组织发誓要开设自己的诊所](/content/gnews/31/README.md)
+### [美国前线医生组织发誓要开设自己的诊所](/content/gnews/33/README.md)
  ` 墨尔本雅典娜农场`
 
-### [在中国网球明星撤回性侵指控后，WTA持怀疑态度](/content/gnews/32/README.md)
+### [在中国网球明星撤回性侵指控后，WTA持怀疑态度](/content/gnews/34/README.md)
  ` 墨尔本雅典娜农场`
 
-### [斯科特·莫里森召开紧急国家内阁会议](/content/gnews/33/README.md)
+### [斯科特·莫里森召开紧急国家内阁会议](/content/gnews/35/README.md)
  ` 走进澳洲`
 
-### [新闻评述：王毅喊话“台湾游子”要回家，猛炒“台独”为武统正名](/content/gnews/34/README.md)
+### [新闻评述：王毅喊话“台湾游子”要回家，猛炒“台独”为武统正名](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [不止于口罩的抗争](/content/gnews/35/README.md)
+### [不止于口罩的抗争](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [超低投票率毁中共式民主 白皮书控诉港式民主](/content/gnews/36/README.md)
+### [超低投票率毁中共式民主 白皮书控诉港式民主](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [港府和中共联手蒙骗 制造人心所向](/content/gnews/37/README.md)
+### [港府和中共联手蒙骗 制造人心所向](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [印度：三针疫苗接种者查出Omicron病毒](/content/gnews/38/README.md)
+### [印度：三针疫苗接种者查出Omicron病毒](/content/gnews/40/README.md)
  ` 墨尔本雅典娜农场`
 
-### [世界经济坠入至暗时刻，新中国联邦必将冲出数字货币“春秋”时代赢得“三国演义”](/content/gnews/39/README.md)
+### [世界经济坠入至暗时刻，新中国联邦必将冲出数字货币“春秋”时代赢得“三国演义”](/content/gnews/41/README.md)
  ` YALUN 亚伦`
 
-### [五眼联盟外长就香港立法会选举发表联合声明](/content/gnews/40/README.md)
+### [五眼联盟外长就香港立法会选举发表联合声明](/content/gnews/42/README.md)
  ` HimalayaRussia`
 
-### [GTV新闻访谈简报|2021年12月20日早](/content/gnews/41/README.md)
+### [GTV新闻访谈简报|2021年12月20日早](/content/gnews/43/README.md)
  ` 纽约香草山MOS01`
 
-### [西安爆发疫情 借出血热转移疫苗后遗症](/content/gnews/42/README.md)
+### [西安爆发疫情 借出血热转移疫苗后遗症](/content/gnews/44/README.md)
  ` GTV新闻访谈`
 
-### [台北马拉松需急救人数远超往年](/content/gnews/43/README.md)
- ` GTV新闻访谈`
-
-### [纽约疫情失控 前线医生禁谈疫苗后遗症](/content/gnews/44/README.md)
- ` GTV新闻访谈`
-
-### [富力地产预告将暴雷](/content/gnews/45/README.md)
+### [台北马拉松需急救人数远超往年](/content/gnews/45/README.md)
  ` GTV新闻访谈`
 
 ### [【中日财经爆】日本参议院一致通过国内半导体生产补贴修正案](/content/gnews/46/README.md)
