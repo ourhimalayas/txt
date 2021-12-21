@@ -2,23 +2,51 @@
 ---
 
 
-## 《纽约时报》报道：默克公司的COVID药物可能造成机体多功能受损
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1776341/)
+## 恒大地皮再被收回，相关上市公司大跌
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1776373/)
 
-——DNA突变、出生缺陷、癌症和男性生育能力下降
+作者：日本方舟农场 – Andy5
 
-作者：Snowman
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-21-12.56.57.png)
-据《纽约时报》12月14日的报道：默克公司新近获得FDA批准的COVID-19抗病毒药物–莫努匹拉韦，可能会造成严重的健康后果。这种被吹嘘的神乎其神的“神奇药物”虽然在批准前就被拜登政府大量购买（但并不能证明它是安全的药物），却可能有导致人类DNA突变的风险。相关研究人员称：特别需要引起关注的是此药物对孕妇的影响，因为这种药物可能会影响胎儿发育时期时的细胞分裂，造成出生时的某些功能性缺陷。必须指出，这种推测在理论上是合理的，是完全成立的。因此，在任何情况下相关研究人员都不会建议孕妇服用这种药物。
 
-北卡罗来纳州的一个研究小组称，无论是在胎儿发育过程中，还是通过侵入精子前体细胞，这种药物都有可能导致服药者的DNA或未出生孩子的DNA序列出现 “错误”，而这些 “错误 “可能会引致DNA突变的巨大风险，从而可能引起相关癌症的发展或在出生时出现致命的生理机能缺陷。
 
-评论：任何新药研发都需要长时间的评估，才能确定其安全性。批准、使用药物的首要原则必须是：DO NOT HARM FIRST（首先无伤害），这是世界医学史上以损失成千上万生命为代价换来的血的铁律和教训。疫苗的伤害才刚刚开始，尽管主流媒体和利益集团至今还在竭尽全力掩盖疫苗造成的各种人道灾难，但疫苗对机体产生的40多种不同的致伤、致残已有大量的实证，每天都有受害者爆光的视频推出，疫苗对人类生命的危胁已远远超过病毒本身，对机体致残的后果惨不忍暏。产生这些人为灾难的其中一个重要原因就是，在没有中、长期实验结果的基础上，将人类当做实验用的小白鼠，发动了这场人类医学史上规模最大、涉及人数最多，也是最疯狂的医学实验。在疫苗强制有希望终结的关键时期，我们是否需要知道，FDA新批准的COVID-19抗病毒药物–莫努匹拉韦，会不会是另一个无中、长期动物实验和人类实验数据的“三无”产品？难道我们还要重蹈复辙、再次甘愿掉入灾难的陷阱吗？
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
-新闻链接：[https://nationalfile.com/mercks-covid-drug-may-cause-mutated-dna-birth-defects-cancer-reduced-male-fertility-nyt-reports/](https://nationalfile.com/mercks-covid-drug-may-cause-mutated-dna-birth-defects-cancer-reduced-male-fertility-nyt-reports/)
 
-审核校对：Barry Jack
-上传排版：F
+
+12月20日，成都市相关官网的公告显示，恒大在成都的两副面积共逾30平方米用地被收回。受此消息冲击，投资恒大的华人置业和嘉寓股份股票大跌。
+
+据了解，这两块地皮是在2010-2011年间拍得，现在因为长期未开工，被当地政府收回。从9月到现在，恒大地皮已经有安徽安庆（8）、海南海口（8）以及四川成都（2）共18块地皮被政府无补偿回收。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-251.jpg)
+受此影响，恒大股价连续大跌，并拖累了投资恒大的上市企业。例如，华人置业在12月20日复牌之后，跌幅一度达到35%，如果年内清空全部恒大股票，亏损将超过104亿港元。19日晚，嘉寓股份发布风险提示公告，目前正在跟恒大协商解决问题，次日嘉寓股份股价大跌近18.4%。据悉，嘉寓股份合计商票敞口金额为13.16亿元，而自2007年累计净利润约8亿元，仅靠嘉寓股份自身已经无法补上这个敞口。
+
+参考链接：
+1. [恒大成都两幅用地被收回　涉逾30万平方米](https://gbcode.rthk.hk/TuniS/news.rthk.hk/rthk/ch/component/k2/1625210-20211220.htm?spTabChangeable=0)
+2. [又一家上市公司被恒大拖下水，15年净利直接白干了](https://finance.sina.com.cn/stock/s/2021-12-20/doc-ikyakumx5331455.shtml)
+3. [一度暴跌超30%！华人置业水逆，投资恒大血亏超100亿](http://hk.jrj.com.cn/2021/12/20165734034879.shtml)
+4. [财经网头条](http://m.caijing.com.cn/api/show?contentid=48265028.)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+
+总编/编辑：DM
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

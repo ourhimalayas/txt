@@ -2,23 +2,49 @@
 ---
 
 
-## 自从推出COVID-19疫苗以来，葬礼不断
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1776321/)
+## 三个宗教团体要求最高法院暂停拜登政府对企业的疫苗强制令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1776360/)
 
-作者：Snowman
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-21-12.49.55.png)
-12月4日在英国约克市举行的反对疫苗强制政策的抗议活动中，莎拉（其丈夫是英国教会的牧师）大声疾呼： 我们所面临的是善与恶之间的战斗。她对THE EXPOSE记者说：”我们现在正在被拖入一场大规模的战争中。 这不是关于北方或南方，不是关于政治上的左派还是右派，也不是关于领土的战斗。 这是一场关于精神与信仰的战斗，这是你将面临和要经历的一场人类历史上最伟大的战斗……“
+信息采集：美国纽约香草山农场 – 侠肝义胆
+作者：美国纽约香草山农场 – 飞虹
 
-当被问及她对“保护他人“的疫苗政策的看法时，她斩钉截铁的回答：不，这完全是颠倒黑白。黑暗被描绘成光明，苦涩被形容成甜蜜，这不过是军事上常用的“蛊惑人心”之术。在医学常识上我们普遍认为疫苗会产生对侵入机体病毒的免疫力。然而对这个冠状病毒疫苗，鲍里斯-约翰逊说过：疫苗不能阻止你不感染，也不会给你免疫力。 请问，这还叫疫苗吗？ 莎拉说”我认识的大多数感染Covid-19的人全都是接种了两次甚至三次疫苗（COVID-19）的人，这还是疫苗的保护作用吗？所以，他们（政府）想做的就是希望让你成为一个美德的象征。打了疫苗后你还必须戴上口罩，这样你就可以说‘我是个好人，我是个好基督徒，我在保护人们’。 恰恰相反，你不是。 这只能证明你被堵住了嘴，只有通过你才能说出政府无法直接表达的希望”。她继续说：“她的丈夫是英国教会的一名牧师，在去年大流行期间，他很少主持葬礼。 但自从疫苗推出后，葬礼就一个接着一个，死亡接连持续不断的一个接着一个，这是个悲剧。“
 
-《每日邮报》曾在2021年7月报道：”查理-博伊尔牧师、他的妻子和四个孩子被强制赶出居住了八年的牧师住宅，原因是有教会官员指控牧师违反了Covid-19的规定，”。 这位牧师何罪之有？就是因为在葬礼上，他用一个拥抱来安慰一个哀悼者，并在没戴口罩的悲伤的情况下唱了一首赞美诗，并将圣经放在教堂的座位上。 这些完全充满表达了人间爱的行动却成了这位牧师的罪过！知道吗，这位被判违反规定的牧师就是莎拉的丈夫。
 
-评论：即使世界上硝烟从未间断过，但无论是否经历还是没有经历过硝烟的人，无论如何也不会相信病毒—疫情—疫苗已经将世界上的每一个人都卷入了一场战争中，一场没有硝烟但却是真实的正在发生在我们身边的战争中。莎拉无疑是勇敢的。我从来没有想过自己会和勇敢或勇气有关，我的今天已和昨天完全不同。文贵先生总是说：没有背后无数的爆料革命战友，他什么都不是。文贵先生用他单薄的一个人的臂膀改变了世界，他开启的爆料革命成就了成千上万的战友。跟随爆料革命，参与爆料革命，是我们每个战友获得勇气并传播勇气的唯一重要的途径。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
-文章链接：[https://dailyexpose.uk/2021/12/19/vicars-wife-says-since-the-roll-out-of-covid-injections-theres-been-funeral-after-funeral-after-funeral-its-tragic/](https://dailyexpose.uk/2021/12/19/vicars-wife-says-since-the-roll-out-of-covid-injections-theres-been-funeral-after-funeral-after-funeral-its-tragic/)
 
-审核校对：Barry Jack
-上传排版：F
+
+美国媒体报道，12月19日，美国有三个宗教组织——美国家庭协会、创世纪答案和晨星电视网络——要求最高法院紧急暂停拜登政府的关于至少有 100 名工人企业的疫苗强制令。这一要求，是在辛辛那提第 6 美国巡回上诉法院，就恢复拜登政府的该强制令几天后提出的。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1.1-10.jpg)
+这几个宗教团体认为，该措施侵犯了他们的第一修正案权利，以及它“未能提供任何宗教豁免或便利”。
+
+分析人士指出，鉴于11月份第5巡回上诉法院曾暂停该强制令，预计最高法院会就此问题进行认真权衡，因为这一问题已经使下级的联邦法院之间产生了分歧。
+
+参考链接：
+[Religious groups ask Supreme Court for emergency stay on vaccine rule for U.S. companies](https://www.axios.com/religious-group-lawsuit-vaccine-mandate-41ebc11b-1e83-46b8-87c2-151380bae7e8.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+
+总编/编辑：DM
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

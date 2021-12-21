@@ -2,41 +2,36 @@
 ---
 
 
-## 德国下萨克森州法院否决针对零售业的“2G规则”
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1776405/)
+## 难掩儿童受害 越南多地叫停新冠疫苗问题批次
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1776496/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1091.png)*图片来源：dikobraziy /盖蒂图片社*
-来自“信息战”网站2021年12月19日的报道，下萨克森州(Lower Saxony)高等行政法院推翻了在零售行业实施的新冠病毒限制，被称为“2G规则”。德国各地的零售商都提起了反对“2G规则”的诉讼。“2G规则”高度限制了那些没有新冠病毒疫苗护照的人，这些人被禁止进入许多商店、餐馆和文化活动场所。周四，下萨克森州的一家法院叫停了这一影响零售业的规则的实施。法院辩称，这些限制是带有歧视性的。
+编译：致敬香港！
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-107.png)
+图片来源： The Star
 
-德国新闻社(German press agency)的德国贸易协会(HDE)总经理斯蒂芬·根特(Stefan Genth)表示，“下萨克森州的判决清楚地表明，“2G规则”不是大部分零售业的一项万无一失的合法接替规则。”根特希望在“2G规则”受到挑战的其他联邦州能够以下萨克森州为榜样。他在一份声明中说：“其他州政府现在也应该考虑到这一点，避免给零售业带来不合理的负担，而不是等到他们的法令再次被法院收集。”
+据TrialSiteNews 新闻网12月20日报道，越南多地先后出现儿童接种新冠疫苗后的严重不良反应，河内市和清化省先后叫停了相关批次新冠疫苗的儿童接种。
 
-自本月早些时候零售业实施“2G规则”以来，零售商一直抱怨销售额急剧下降，以及圣诞节期间实施限制的时机不当。许多商店，包括时装店和电子产品店，只允许那些持有疫苗护照的人进入。
+**儿童接种死亡病例**
 
-简评：
+11 月28日，北江省（Bac Giang）16 岁男孩在接种辉瑞疫苗4天后死亡；
 
-原德国总理安格拉·默克尔作为中共政权的“老朋友”，在位时积极配合中共，极力在德国推行实施以中共政权为代表的世界黑暗力量的“毒疫苗”计划，给德国经济和德国人的生活带来了无法估量的损失和困苦。但是，如今的德国正在开始觉醒，这次下萨克森州地方法院的裁决就是先例，希望德国其他地区的法院也能效仿，也希望德国各民间组织和团体能够站出来集体声讨德国政府强推疫苗护照的做法，以尽快在德国结束这场人造灾难。
+11 月28日，河内市15岁女孩在接种疫苗1天后死亡。事件专家小组称，女童出现了最严重的4 级过敏反应，包括呼吸和心脏衰竭，但该过敏反应与疫苗接种无关。
 
-德国的“3G，2G规则”：
-3G规则：仅允许已完全接种疫苗者、感染过新冠病毒痊愈者和新冠病毒检测阴性（抗原24小时以内、核酸48小时数以内）者三类人进入餐馆、电影院、会展中心等大部分室内场所；
-2G规则：仅允许已完全接种疫苗者、感染过新冠病毒痊愈者进入上述场所。
-“2G规则”是对“3G规则”的收紧。
+11月30日，平福省（Binh Phuoc）12岁男孩在接种疫苗1天后死亡；
 
-News Link:[https://www.infowars.com/posts/court-in-german-region-of-lower-saxony-rules-against-vaccine-passports/](https://www.infowars.com/posts/court-in-german-region-of-lower-saxony-rules-against-vaccine-passports/)
+12月7日，山萝省（Son La）15 岁男孩在接种疫苗3天后死亡……
 
-翻译/简评: 希望
+河内市自11月23日展开儿童的新冠疫苗接种，在15岁女童死亡后叫停了相关两个批次（124001号、123002号）辉瑞疫苗的使用。
 
-PR: Harvey（叶知秋）
+**清化省逾1****20****名学生送院**
 
-* * *
+11月30日清化省27个区域为15~17岁的学生展开新冠疫苗接种后，部分学生出现了恶心、呼吸困难、高烧等不良反应，至12月2日中午已有120多人被送院治疗，其中17人症状严重但尚无生命危险。该省卫生部门当日叫停了相关批次的疫苗接种，但其疾控中心主任Luong Ngoc Truong称将继续为儿童接种其他批次的疫苗，暂停的批次以后可用于成年人等其他群体。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+辉瑞和莫德纳的新冠疫苗被越南政府批准用于儿童，并将分成16-17岁 、12-15岁和 3-11岁三个年龄组先后展开接种。 该计划实施不久后，各地就先后出现多种不良反应，越南卫生部门则称这些反应“与疫苗的质量或疫苗接种方法无关”，并一再强调疫苗安全有效。
 
+**新闻来源：**
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+[PFIZER-BIONTECH VACCINES WITHHELD FROM VIETNAMESE CHILDREN AFTER SPATE OF DEATHS & AEs](https://trialsitenews.com/pfizer-biontech-vaccines-withheld-from-vietnamese-children-after-spate-of-deaths-aes/)[More than 120 children were hospitalized after vaccination, Thanh Hoa stopped the batch of vaccines](https://vnexpress.net/hon-120-tre-nhap-vien-sau-tiem-thanh-hoa-dung-lo-vaccine-4397532.html)[Why has Hanoi temporarily stopped giving Covid-19 vaccines to children?](https://nld.com.vn/suc-khoe/vi-sao-ha-noi-tam-dung-tiem-vac-xin-covid-19-cho-tre-em-20211201102254986.htm)[3rd child in Vietnam dies after Covid vaccination](https://e.vnexpress.net/news/news/3rd-child-in-vietnam-dies-after-covid-vaccination-4396697.html)[4th child dies after Pfizer vaccine injection in Vietnam](https://e.vnexpress.net/news/news/4th-child-dies-after-pfizer-vaccine-injection-in-vietnam-4400466.html)
 
  
 

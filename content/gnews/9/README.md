@@ -2,51 +2,49 @@
 ---
 
 
-## 【玫瑰看新闻】第209期 国际热点新闻
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1776392/)
+## 【玫瑰看新闻】第209期 疫苗灾难新闻
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1776479/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/PHOTO-2021-12-20-00-44-58-2.jpg)
-[布林肯出访东南亚寻求合作对抗中共国](https://www.dw.com/zh/%E5%B8%83%E6%9E%97%E8%82%AF%E5%87%BA%E8%AE%BF%E4%B8%9C%E5%8D%97%E4%BA%9A-%E5%AF%BB%E6%B1%82%E5%90%88%E4%BD%9C%E5%AF%B9%E6%8A%97%E4%B8%AD%E5%9B%BD/a-60105520)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片-1-30.jpg)
-美国国务卿布林肯首次出访东南亚国家。东南亚已成为美国和中共国这两个世界最大经济体之间的战略战场。在上周的英国[七国外长会议](https://m.dw.com/zh/g7%E5%A4%96%E9%95%BF%E4%BC%9A%E8%AE%AE-%E9%9B%86%E7%BB%93%E6%B0%91%E4%B8%BB%E5%9B%BD%E5%AE%B6%E6%8A%97%E8%A1%A1%E4%B8%AD%E4%BF%84%E5%A8%81%E8%83%81/a-60088896)之后，美国国务卿布林肯飞往印度尼西亚，开启了其上任以来首次东南亚之行。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/PHOTO-2021-12-20-00-44-59-3.jpg)
+[亚利桑那州立法者呼吁结束实施违宪的疫苗强制令](https://www.thegatewaypundit.com/2021/12/epic-az-lawmakers-call-doug-ducey-end-mandates-former-phoenix-chief-staff-rips-vaccine-card-never/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片-1-31.jpg)
+据《门户网》2021年12月8日报道，大约一千名员工在亚利桑那州议会大厦外集会抗议，并且致电亚利桑那州州长Doug Ducey（杜西）要求停止执行拜登的违宪疫苗授权任务；组织者梅丽莎·汉密尔顿 (Merissa Hamilton) 表示，由于草根爱国者所承诺的民事诉讼，凤凰城宣布法院已搁置所有联邦授权。他们声称这不是城市授权，而是联邦授权。
 
-12月13日，布林肯抵达印尼首都雅加达，此后他还将访问马来西亚和泰国。
+亚利桑那州众议员马克芬肯称这项违宪授权为“我们时代的民权行动”，他呼吁立即召开特别会议以制止侵犯民权的行为。
 
-路透社指出，东南亚已成为美国和中共国这两个世界最大经济体之间的战略战场。
+[洛杉矶愤怒的母亲说13 岁的儿子在奥巴马全球预备学院未经她同意就被接种疫苗](https://www.thegatewaypundit.com/2021/12/watch-outraged-mother-says-13-year-old-son-vaccinated-without-consent-obama-global-prep-academy-la-school-bribed-pizza/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-16.jpg)
+据《门户网》2021年12月7日报道，一位加利福尼亚母亲本周震惊，因为她发现她 13 岁儿子的学校在未经她同意的情况下强迫被接种实验性 COVID 疫苗。
 
-布林肯在同印尼总统佐科举行会晤时表达了美国对印尼的坚定承诺。布林肯还将在周二就美国亚太战略发表演讲。
+周二，玛丽贝尔·杜阿尔特 (Maribel Duarte) 告诉[NBC 4 新闻](https://www.google.com/amp/s/www.nbclosangeles.com/news/local/mom-says-son-vaccinated-in-exchange-for-pizza-at-lausd-without-her-consent/2773619/%3famp)，她的儿子在洛杉矶的[巴拉克奥巴马全球预备学院](https://obamaprepacademy-lausd-ca.schoolloop.com/)接受了学校官员提供的披萨，以换取疫苗接种，此后带回了一张疫苗卡。
 
-美国在对亚太地区的战略问题上，拜登总统和前任特朗普之间并不存在根本的区别。两届政府都认为，面对中共国咄咄逼人的势力增长，亚太地区应该保持自由和开放。
+当儿子告诉她，校官让他“不要说”这件事时，她的震惊很快变成了愤怒。
 
-[拜登与普京在乌克兰战争担忧中谈了两个多小时](https://www.newsmax.com/newsfront/biden-putin-talk/2021/12/07/id/1047680/)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-15.jpg)
-据NewsMax在2021年12月7日报道，由于西方担心莫斯科准备入侵其南部邻国，美国总统乔.拜登和俄罗斯总统弗拉基米尔.普京在周二就乌克兰和其他争端进行了两个小时的虚拟会谈。据白宫称，两位领导人谈了两小时一分钟。
+杜阿尔特说，学校的行为尤其令人担忧，因为她的儿子有哮喘和过敏问题，她担心在接受实验性注射后可能会出现问题。她反对儿子接种疫苗。毫无疑问，这是她完全有权做出的决定，但这些疯狂人却在未经她同意的情况下不道德地哄骗了她的儿子接种疫苗。
 
-拜登告诉普京，如果俄罗斯攻击乌克兰，俄罗斯及其银行可能会受到迄今为止最严厉的经济制裁。
+正在“密切关注”针对洛杉矶学区的疫苗强制案例的律师詹妮弗肯尼迪表示，任何学区都无权要 求学生接种疫苗——更不用说在没有父母签字的情况下给他们接种了——因为正如她指出的，儿童还不能自己同意接种疫苗。
 
-据一位消息人士称，制裁可能针对俄罗斯最大的银行以及莫斯科将卢布兑换成美元和其他货币的能力。
+校官以学生的隐私为由拒绝直接评论这一事件。
 
-克里姆林宫在周二的会议前表示，否认有任何攻击乌克兰的意图，并表示其部队姿态是防御性的。
+[华盛顿海军指挥官因拒绝接种疫苗而被解雇](https://www.washingtontimes.com/news/2021/dec/10/lucian-kins-navy-commander-fired-over-vaccine-refu/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片-3-7.jpg)
+美联社在 2021 年 12 月 10 日报道：
 
-普京曾表示，他希望得到具有法律约束力的保证北约不会进一步向东扩张，并承诺不会在靠近俄罗斯的国家部署某些类型的武器，包括乌克兰。
+华盛顿一位海军官员表示，一名海军军舰执行官指挥官被解雇了，因为他拒绝按要求接种 COVID-19 疫苗并拒绝接受病毒检测。
 
-[伊朗同意让国际原能总署更换核子设施破损摄影机](https://www.google.com/amp/s/hk.news.yahoo.com/amphtml/%25E4%25BC%258A%25E6%259C%2597%25E5%2590%258C%25E6%2584%258F%25E8%25AE%2593%25E5%259C%258B%25E9%259A%259B%25E5%258E%259F%25E8%2583%25BD%25E7%25B8%25BD%25E7%25BD%25B2%25E6%259B%25B4%25E6%258F%259B%25E6%25A0%25B8%25E5%25AD%2590%25E8%25A8%25AD%25E6%2596%25BD%25E7%25A0%25B4%25E6%2590%258D%25E6%2594%259D%25E5%25BD%25B1%25E6%25A9%259F-170502460.html)
+第14[海军水面中队](https://www.washingtontimes.com/topics/naval-surface-squadron/)指挥官、海军上尉肯·安德森 (Lucian Kins) 解除了驱逐舰温斯顿·丘吉尔 (USS Winston Churchill)军舰二把手的职务。 官员们表示，金斯 ( Lucian Kins)是第一位因拒绝接种疫苗而被解雇的海军军官。
 
-伊朗媒体15日报导，德黑兰当局已同意让联合国国际原子能总署（IAEA）更换位于德黑兰以西卡拉吉市（Karaj）TESA核子设施的破损摄影机。
+官员们在不愿透露姓名的情况下发言讨论了人事问题。五角大楼已强制要求所有服役人员接种疫苗，海军人员必须在11 月下旬之前接种疫苗或申请豁免。数以千计的军人要求宗教豁免，但到目前为止，没有得到任何军事部门批准。
 
-据法新社报导，德黑兰当局拒绝让国际原子能总署更换损坏的监视摄影机，已危害到伊朗和世界强权谈判恢复2015年伊朗核子协议的进展。
+[辉瑞老板、福奇博士声称可能每年都需要注射疫苗](https://insiderpaper.com/pfizer-boss-dr-fauci-warn-vaccine-shots-may-be-needed-every-year/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片-4-9.jpg)
+自从[Covid-19](https://insiderpaper.com/new-heavily-mutated-b-1-1-529-covid-19-coronavirus-variant-affecting-those-under-25-officials/)于 2020[年出现](https://insiderpaper.com/new-heavily-mutated-b-1-1-529-covid-19-coronavirus-variant-affecting-those-under-25-officials/)以来，世界动态发生了巨大变化。戴口罩、保持社交距离、隔离、消毒，甚至在接种疫苗后，中共病毒感染的威胁似乎并没有消失。
 
-[每个众议院共和党人都支持取消商业疫苗授权](https://www.newsmax.com/newsfront/vaccine-mandate-businesses-fred-keller-gop/2021/12/07/id/1047694/)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片3-5.jpg)
-据《Newsmax》报道，宾夕法尼亚州共和党人12月7日[宣布](https://webmail.newsmax.com/owa/#path=/attachmentlightbox)，众议院共和党会议的所有 212 名成员都支持众议员弗雷德凯勒 (Fred Keller) 的决议，即取消乔拜登总统对拥有100 名或更多员工的企业的疫苗接种和检测任务，这一措施影响了八千万美国员工。
+然而，根据安东尼·福奇最近又发布了蛊惑人心的言论：他建议美国人准备好每年进行加强注射，他声称，这样才能保持高水平的保护以防止感染。
 
-[多明尼加私人飞机坠毁9人丧生知名音乐制作人一家三口全罹难](https://www.orientaldaily.com.my/news/entertainment/2021/12/16/456193)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片-4-8.jpg)知名音乐制作人Flow La Movie（右）及妻儿也在坠毁班机上。 （图取自IG）
-2021年12月15日 ，Helidosa航空集团在声明中说，旗下一架私人飞机在多明尼加首都圣多明哥的美洲机场（Las Americas Airport）坠毁，造成9人丧生。该公司表示，将对此事故进行全面调查，厘清事发原因。
+此外，根据美国有线电视新闻网的报道，福奇还表示，“目前，我们所能做的就是等待，观察Omicron对世界的影响。最好的结果是通过现有的疫苗接种获得增强的免疫力，并将根据全球大流行的发展情况来处理情况。”他还希望通过[加强注射](https://insiderpaper.com/brazil-to-give-all-adults-covid-19-booster-shots/)获得所谓的持久性免疫力。在其他新闻中，[辉瑞公司的老板也](https://insiderpaper.com/covid-infection-risk-increases-gradually-post-second-pfizer-vaccine-shot-study/)声称，建议英国人准备每年接受一次疫苗接种。
 
-综合外媒报导，中美洲多米尼加共和国日前发生一架私人飞机坠毁意外，飞机于当地时间周三（15日）要飞往美国佛罗里达州，但却在紧急迫降时坠毁于跑道，造成机上2名机组员及7名乘客，共9人全数罹难，而这7名旅客中只有1人是多明米加籍，其他是外国乘客。
-
-根据报导指出，住在佛州奥兰多的拉美音乐制作人Flow La Movie（本名Jose Angel Hernandez）也在这起坠机事故中丧命，享年38岁，与他同行的31岁妻子及4岁儿子也未能在返家途中逃过死劫。
+随着本世纪的这场疫苗灾难愈演愈烈，各国疫苗强制令的压力依然在不断增大。我们要不断强调提示：爱惜生命，远离疫苗！
 
 
 

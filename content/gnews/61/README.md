@@ -2,40 +2,42 @@
 ---
 
 
-## 社交媒体影响者 与中共国领事馆签订官方合同
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1756634/)
+## CNN挺班农 要求公布被司法部保护的文件
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1756945/)
 
-作者: 纽约香草山农场翻译部—祈望明天会更好
+**翻译：Lulumi**
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip08-3.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-17.jpg)
+目前被司法部以藐视法庭罪关押的班农，在如何使用司法部在针对他的案件中获得的文件方面，受到了联邦法官的限制。
 
+美国有线电视新闻网（CNN）已经发出请求，要求就他们在美国诉史蒂夫·班农一案中的干预动议举行听证会。他们试图公开司法部在此案中的文件，班农也希望公开这些文件，但被限制公开。
 
-12月14日杰克·波索贝克(Jack Posobiec)在班农作战室节目中, 谈到我们从司法部所提交的一份外国代理人注册信息文件中得到了一条新消息:社交媒体影响者营销公司与中共国领事馆正式签订官方合同.
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-15-at-5.10.27-PM.png)图片来源GTV
-这家总部位于新泽西州的美国公司, 从中共国收取数十万美元, 来支付 Twitch, Instagram和抖音等媒体, 用以宣传北京奥运会, 并淡化在“彭帅事件”上的追查力度.
+班农目前被拜登政府的司法部视为藐视法庭，他在如何使用司法部在起诉他的案件中获得的文件方面受到了联邦法官的限制。尼科尔斯法官听取了检方关于需要保护令的论证，并批准了该命令。
 
-诚如郭先生在12月12日大直播中所说, 一半抵制冬奥会的是因为彭帅事件, 这就是多米诺骨牌效应的开始.
+![](https://assets.gnews.org/wp-content/uploads/2021/12/捕获49.png)
 
-杰克在班农作战室节目中又说, 中共国领事馆为了帮中共宣传这冬奥会, 无所不用其极地用大量资金注入媒体来宣传冬奥, 淡化彭帅事件, 并诋毁反对中共国的人们, 他们会被称为种族主义者, 所有能贬低人的名称都会用上. 例如, 史蒂夫·班农以种族灭绝抵制冬奥会的报导, 中共国就宣称班农是想要更多的白人婴儿. 中共国所做的一切都是为了达到宣传北京奥运会而使出的卑劣技俩.
+干预动议中写道，由CNN领导的“新闻联盟”“恳请法院安排听证会”，讨论该动议。他们说，尽管有保护令，但“新闻联盟的干预动议中提出的法律问题仍未解决”。
 
-**参考阅读**: [https://gtv.org/video/id=61b8b7fa56f4921401b7ba4a](https://gtv.org/video/id=61b8b7fa56f4921401b7ba4a)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-6.png)
-总编: 飞虹
+“具体地说，保护令没有发现，政府也没有证明，如果不限制被告对发现材料的再版，就会有‘合理的损害可能性’，或者没有‘限制性较小的替代方案’可以充分减轻任何感知到的损害。”
 
-编辑/校对/发稿: 卡夫卡的甲壳虫
+CNN来自巴拉德·斯伯尔律师事务所的律师，和班农一样希望曝光这些文件，但司法部更倾向于把文件被保护令保护起来。律师在动议辩护中写道，披露这些文件对“透明度、公共利益和宪法问题”非常重要。
 
-**更多资讯，更多关注**
+据彭博社报道，班农曾表示，他打算“利用这些文件把这个案子变成民主党人的‘地狱’”。因此，尼科尔斯禁止班农披露这些文件。但美国CNN想要这些文件，他们的“干预动议”是为了得到这些文件。
 
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+这是一个奇怪的状态，班农和CNN都希望披露同样的文件。
 
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+尼科尔斯的命令指出，班农和他的律师“不得直接或间接向任何个人或实体披露这些材料或其内容，但受雇协助辩护的人除外”。他们还被禁止公开“与材料内容有关的任何笔记或任何形式的记录”。
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+**新闻来源**：[**thepostmillennial**][BREAKING: CNN joins Bannon in demanding release of documents in his case protected by DOJ](https://thepostmillennial.com/cnn-bannon-documents-doj?utm_campaign=64474)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+* * *
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-2.jpeg)
 
 
 
