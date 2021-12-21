@@ -2,39 +2,40 @@
 ---
 
 
-## 2021/12/20 文贵先生盖特精要
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1775783/)
+## 国内出现所谓热毒实际上都是疫苗引起的出血脑梗心梗等
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1775860/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/122010.png)[盖特直播链接](https://gettr.com/post/pk5p5a0268)
+**Rachel****：**我那个问题，七哥，之前我替战友问的问题，就是国内现在的这个热毒国内反应就是有出现，这个需不需要担心？有没有背后的一些信息可以跟战友说明一下？
 
-昨天的大直播影响非常大，特别是解直锟的事件，还在继续发酵中。现在基本确定的是，解直锟被抢夺完财产和被中纪委多次问话约谈以及得到被双规的通知以后，就选择在自己的瑜伽屋自缢了；目前由其姐姐的孩子来全面接管产业；他前妻的孩子和毛阿敏的孩子都在海外无法及时回国参加追悼会。重点是解后面隐藏的故事很多很大，与孟建柱、孙立军的案件全都联系上了。从这点可以看出凡是共产党公开的 、严肃认真 的、声泪俱下说的话都是假的；凡是背后见不得人、见不得光的、鬼鬼祟祟搞的，反而都是真的。
+**郭文贵先生：**所有的热毒，现在我们了解实际上就都是疫苗的后果，根本不是什么热毒，就是疫苗，疫苗接下去的所有结果，就是出血、脑梗、心梗、心包炎、心肌炎，肛梗不是开玩笑，肛门梗，因为肛门那块儿是最重要的是一个身上，眼梗。
 
-王健林、潘石屹、马化腾、马云、马明哲、李友等，都会有解直锟和王健同样的结局。按共产党的逻辑，只要是在我锅里的肉，那么只是早加把火和晚加把火的问题，早晚都得炖死你们，反正都限制出境，最后结局都一样，要么自己主动了结，要么党帮你推一把。
+就是凡是这些东西，这根本不是什么出血热病毒的问题，全是疫苗后期症，还会有更多这样的症状，就是你但凡有点儿常识你就知道，我在这个非洲得了疟疾的后边儿反应症是什么，七哥打过20几针疫苗，我不反疫苗的啊，我反的是假疫苗，我反的是共产党病毒的疫苗和强迫打的疫苗，回答完毕，谢谢！
 
-HBO VICE一直求着要采访，今年5月份的时候满足了他们。作为左派媒体，他们是共产党势力在海外的延伸，大外宣；他们的采访目的很简单就是借着采访视频来抹黑诋毁爆料革命的形象和信誉。特别他们准备在冬奥会开幕前播出，试图把爆料革命的声音给压下去，标题很差，采访内容故意碎片化播出，引导人断章取义。但是我们将计就计，英喜全程都有录播，等待反击的时刻，到时候我们会放在Youtube和GTV上；有判断力的聪明人对比一看就知道孰真孰假，孰好孰坏，也可以了解到共产党的居心叵测，阴谋诡计之深，就是要通过他们的假恶丑来证明咱爆料革命的质量和真实。很多人都说七哥的英文太牛了！
+编辑整理：海贼王M.D.LUFFY；
 
-党内的很多人早就知道彭副主席是二号人物，闺女是三把手，弟弟是四把手，丁薛祥最多是六把手，栗战书可能前八都进不去。咱们的爆料革命就是在这种愉悦中“以黄灭共、以共灭共、 以钱灭共、 以疫苗灭共、 以美灭共“，每个领域都进行地无比顺利，关键的问题在于绝对的智慧、强大的内心、看破生死、达到无我的境界。
+字幕制作：小满；
 
-今早一位战友汇到欧洲某银行账号3500万美元，两笔过，准备按100-200美元/枚价格来购买喜币，他曾是中粮的最大受益者之一。他说了句深刻的话：“如果这个世界的人们还不知道喜币和G系列的价值，那么他们不可能拥有任何机会。”这位战友正在从海外的长期投资项目里套现，至少会挪出500亿美元。这几次大直播让他和他周围的人对爆料革命有了彻底的改观，都说七哥讲得太对了！
+视频制作及上传：Cindy；
 
-普京收到钱了，一张价值1000亿美元的支票，表示个人答应习的邀请来参加冬奥会。这1000多亿，都是老百姓的钱，全体百姓要为此付出舔盘子的代价，对中国到底有啥子好处？普京就是来了，难道中国人地里开始冒金子了？就是这么折腾，家天下，为了一个人的疯狂，全民跟着买单全民牺牲，醒不来那就永远别醒了！
+G-News发布：黎明之前；
 
-*听写：阿甘*
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)，**欢迎订阅油管频道****[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos) ****；**
 
-*校对: 小雨*
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-* * *
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-编辑：【英国伦敦喜庄园编辑部】
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
