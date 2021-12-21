@@ -2,28 +2,18 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月21日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1778305/)
+## 得过新冠的人很可能会得癌症 要合理清毒 方能防范
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1778420/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-4.jpg)
+严正声明：得过新冠的人，即使康复，不分年龄和性别，在未来的3-10年内有高达50%机会会得癌症 。 这主要是因为刺突蛋白mRNA在体内积聚，长期侵袭和自体免疫相关的淋巴和血液系统。女性要注意妇科；男性前列腺。要彻底消除病毒的影响需要时间，并且合理有效的服用清毒的保健品，维他命和药物，包括青蒿素和伊维菌素。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-21.png)
-文章仅代表作者本人观点，与Gnews无关
+要做到：
+1、一定要避免剧烈运动；2、青蒿素（包括保健品）、伊维菌素、羟氯喹、锌、地塞米松等，长期吃一定是弊大于利，要按医生建议的方式服用；3、注意补铁和其他必须的维他命；4、一定要做好每年定期的身体检查，特别是血液检查和淋巴检查。如此坚持清理病毒，是可以避免癌症的发生。
 
-视频参看：[2021.12.21早GTV新闻访谈](https://gtv.org/video/id=61c1d68abcb7f101bb728268)
-
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/calendar-1.jpeg)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+视频来源: 2021年12月19日郭先生大直播视频
+视频制作: 文星光
+文案: 梦田、文星光
+上传: 零点
 
  
 

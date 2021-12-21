@@ -2,28 +2,25 @@
 ---
 
 
-## 中共是导致中共国人口危机的罪魁祸首
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1777992/)
+## 有声|潘石屹名下SOHO项目被罚7.09亿元
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1778180/)
 
-作者：东京樱花团 – 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-盖特12月19日消息，近日班农先生在英喜农场的每周战斗室采访节目中，谈及中共国人口危机。他表示，中共的历史就是一部血淋淋的杀人历史——大跃进、大饥荒和文革，杀死了9千万到一亿中国人。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-82.jpg)
-中共的计划生育政策杀死了4亿婴儿，其中80%是女婴。他估计目前中共国只有不到10亿人口，所以人口急速老龄化导致劳动力缺失，中共对此极度恐慌，开始推出3胎政策，但是无助的人民却恐惧孩子变成共产奴隶。
+配音：香草山香港部 – 文凯琳
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+当地时间12月17日，据中共媒体消息显示，中共北京市税务局官方网站发布公告称，潘石屹名下的北京建华置地有限公司在SOHO尚都项目中存在虚假申报的行为，少缴土地增值税和企业所得税共计1.98亿元人民币。为此，中共税务部门将向建华公司追缴税款并加收滞纳金，同时再处以2.5倍罚款，共计7.09亿元人民币。
 
-班农先生指出：中共高层的内斗以及层出不穷的愚蠢政策，让中国人民苦难不断。中共污染了土地、空气和水，剥夺中国人的生产资料，禁止人民创业，国企效率低下。恐惧中国人拥有自然而健全的家庭，所以强制进行计划生育，因此导致目前中共国人口危机。
+据悉，建华置地的法定代表人是潘石屹，其拥有SOHO中国和华远置业各60%和40%的股权。但有消息称，自今年起，潘石屹一直在进行“清仓”式的大甩卖，其所出售的资产涉及物业、办公、停车位等多个业态。今年9月，潘曾还曾试图出售SOHO中国的核心资产，但因当时中共所谓的“反垄断”调查风声趋紧，导致黑石集团最终放弃收购SOHO中国的计划。而10月22日，中共北京市税务局随即对建华置地以税务缘由立案调查。
 
-中共活摘器官、剥夺人民信仰自由，工人得不到应有工资，自杀率很高。但中共从来不在乎人民的生命，现在又朝着建立人类命运共同体狂奔，狂妄的认为可以主宰一切。而华尔街、拜登政府、跨国公司却跟中共私下勾兑，全世界对此视而不见。
+此前，郭文贵先生曾在直播中反复示警道，中共的房地产必将爆雷，且中共的经济也难逃崩溃之势。在此局面之下，中共的各大“白手套”必然难逃一劫。而郭先生也曾点名潘石屹，道出中共在房企方面的定向爆破计划。
 
-班农先生强调说，只有中国人民自由了，世界才能自由。
+截止今日，SOHO中国在港交所的股价已跌至1.69，跌幅超过62.28% 。
 
-参考链接: [GTV UK Mr. Bannon’s Weekly Interview 1215-Q4](https://gettr.com/post/pk2ols8066)
+文字版原文：[潘石屹名下SOHO项目被罚7.09亿元](https://gnews.org/zh-hans/1767548/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-总编：文真
-编辑：Lakeman文仁
-校正/发稿：Fei797
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -31,7 +28,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

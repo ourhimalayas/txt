@@ -2,38 +2,58 @@
 ---
 
 
-## 弗拉基米尔-泽连科博士称中共病毒疫苗是人类历史上最严重的罪行
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1777965/)
+## MV版Hcoin To the Moon上线第12天位列8国iTunes热门MV榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1778018/)
 
-本文作者：Rebecca (一切心皆不可得！)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image001-17.png)
-据《自然新闻网》报道，12月3日，在Brighteon.TV与安.范德斯蒂尔（Ann Vandersteel）的 “钢铁真相 “节目上，纽约知名医生弗拉基米尔-泽连科博士说，中共病毒（COVID-19）是一种人造的大规模毁灭性武器。中共病毒疫苗是人类历史上最严重的罪行——有预谋的一级谋杀、种族灭绝和反人类罪。
+12/21/2021 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线第12天位列8国iTunes热门MV榜榜首。
 
-泽连科博士同时说，反社会的比尔-盖茨要为70亿人接种疫苗；2016年，劳斯-施瓦布要在10年内，为每个人都贴上数字标识符；这要怎样实现呢？
+* * *
 
-研究过心理战的就会知道：如果人们长期生活在焦虑中并被长期隔离时，人们就会变得非常容易受骗和被操纵。
+[【PDF 下载】Tuesday-21-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-21-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record-1.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-21-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record-1.pdf)
 
-泽连科博士警告说，中共病毒‘大流行’是唬人的，目的就是操纵70亿人打疫苗毒针。接种疫苗显然已被证实没有任何好处，这是对人类的大屠杀。而且，在大多数情况下，对儿童来说，根本没有必要接种疫苗。
+* * *
 
-与此同时，泽连科博士还列举了世界各国那些敢于反对政府官方说法的专家们正遭受政府的审查与诋毁。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-21-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-21-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_3.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-21-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_10.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-21-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_12.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-21-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_14.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-21-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_15.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-21-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_16.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-21-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_17.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-21-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_18.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-21-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_20.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-21-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_22.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-21-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_34.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-21-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_36.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-21-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-21-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_44.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-21-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_46.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-21-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_48.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-21-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_49.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-21-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_50.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-21-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_51.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-21-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_52.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-21-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_53.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-21-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_54.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-21-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_58.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-21-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_59.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-21-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_73.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-21-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_75.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-21-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_76.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-21-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_77.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-21-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_78-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-21-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_83.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-21-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_84.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-21-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_93.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-21-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_95.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-21-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_97.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-21-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record_111.jpg)
 
-对于泽连科博士的观点，医疗自由维权律师托马斯-伦茨透露，一位举报人提供的政府数据记录显示，48465名医疗保险患者在接种COVID-19疫苗后的14天内死亡。(相关报道：传奇医生说，COVID-19疫苗是种族灭绝。)
 
-去年7月，一位专业从事医疗数据分析的计算机程序员举报，“医疗保险和医疗补助服务中心”（CMS）的数据显示，至少有4.5万人因接种实验性COVID-19疫苗去世。
+[【PDF 下载】Tuesday-21-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-21-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record-1.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Tuesday-21-Dec-2021-Songs-by-Miles-Guo-BillboardiTunes-Charts-Ranking-Record-1.pdf)
 
-也有一份来自Project Veritas的举报人报告，联邦医院的医务人员证实，有许多病人正受COVID疫苗的伤害。
-
-伦茨律师证实了“食品和药物管理局”几乎可实时监控病毒疫苗的各种不良反应，跟CMS使用同一数据源。
-
-但是，政府和媒体却掩盖事实并一再强调接种病毒疫苗是安全有效的。
-
-[新闻来源链接](https://www.naturalnews.com/2021-12-14-zelenko-calls-covid-vaccines-worst-crime-in-history.html#)
-
-
-
-审核校对：sherryok (水云间)
-
-上传排版：漂流瓶
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
