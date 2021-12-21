@@ -2,39 +2,38 @@
 ---
 
 
-## 弗拉基米尔-泽连科博士称中共病毒疫苗是人类历史上最严重的罪行
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1777965/)
+## 辉瑞欲收购致力于心血管疾病药物研发的企业
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1777984/)
 
-本文作者：Rebecca (一切心皆不可得！)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image001-17.png)
-据《自然新闻网》报道，12月3日，在Brighteon.TV与安.范德斯蒂尔（Ann Vandersteel）的 “钢铁真相 “节目上，纽约知名医生弗拉基米尔-泽连科博士说，中共病毒（COVID-19）是一种人造的大规模毁灭性武器。中共病毒疫苗是人类历史上最严重的罪行——有预谋的一级谋杀、种族灭绝和反人类罪。
+作者：纽约香草山信息部- 诺雅
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据外媒消息，辉瑞公司将以67亿美元收购生物制药企业Arena，该交易预计将在2022年上半年完成。据悉，Arena正在开发免疫炎症性疾病的新疗法，多数已进入临床试验阶段；当前，该公司致力于研发针对急性心力衰竭和微血管梗阻等疾病的治疗产品。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-21-下午11.08.24-1.png)
+此前，辉瑞以22.2亿美元收购了致力于肿瘤免疫治疗的药企- 翠莲医药，辉瑞将借此拓宽其血液病，尤其是血癌治疗产品的研发和生产。
 
-泽连科博士同时说，反社会的比尔-盖茨要为70亿人接种疫苗；2016年，劳斯-施瓦布要在10年内，为每个人都贴上数字标识符；这要怎样实现呢？
+随着辉瑞疫苗及其加强针接种率不断提升，越来越多的接种者出现心肌炎、静脉微血栓、免疫血栓性血小板减少症等严重不良反应。郭文贵先生多次援引中共病毒及疫苗计划爆料人的观点并警告世界：疫苗接种后普遍的灾难性后果将在15个月到两年内爆发；感染病毒的人群将在3到10年内有一半以上的概率罹患各种癌症。辉瑞近来陆续收购肿瘤和心血管疾病药企的行径，其真实的意图更加耐人玩味。
 
-研究过心理战的就会知道：如果人们长期生活在焦虑中并被长期隔离时，人们就会变得非常容易受骗和被操纵。
+参考链接：
+1）[Pfizer is Buying a Cardiovascular Biopharma Company for $6.7Bn.](https://thenationalpulse.com/news/pfizer-is-buying-a-cardiovascular-biopharma-company-for-6-7bn/)
+2）[Pfizer to Acquire Arena Pharmaceuticals](https://www.pfizer.com/news/press-release/press-release-detail/pfizer-acquire-arena-pharmaceuticals)
+3）[Pfizer bets on Arena’s promising bowel disease treatment in $6.7 bln deal](https://www.reuters.com/markets/deals/pfizer-acquire-arena-pharmaceuticals-67-bln-deal-2021-12-13/)
+4）[Pfizer bets on Arena Pharmaceuticals’ promising bowel disease treatment in $6.7 billion deal](https://www.cnbc.com/2021/12/13/pfizer-to-acquire-arena-pharmaceuticals-in-6point7-billion-deal-.html)
+5）[arenapharm](https://www.arenapharm.com/therapeutic-focus/cardiovascular)
+6）[United Therapeutics](https://www.unither.com/products)
 
-泽连科博士警告说，中共病毒‘大流行’是唬人的，目的就是操纵70亿人打疫苗毒针。接种疫苗显然已被证实没有任何好处，这是对人类的大屠杀。而且，在大多数情况下，对儿童来说，根本没有必要接种疫苗。
+![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-与此同时，泽连科博士还列举了世界各国那些敢于反对政府官方说法的专家们正遭受政府的审查与诋毁。
+总编：文真
+编辑：Zion文恩
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-对于泽连科博士的观点，医疗自由维权律师托马斯-伦茨透露，一位举报人提供的政府数据记录显示，48465名医疗保险患者在接种COVID-19疫苗后的14天内死亡。(相关报道：传奇医生说，COVID-19疫苗是种族灭绝。)
-
-去年7月，一位专业从事医疗数据分析的计算机程序员举报，“医疗保险和医疗补助服务中心”（CMS）的数据显示，至少有4.5万人因接种实验性COVID-19疫苗去世。
-
-也有一份来自Project Veritas的举报人报告，联邦医院的医务人员证实，有许多病人正受COVID疫苗的伤害。
-
-伦茨律师证实了“食品和药物管理局”几乎可实时监控病毒疫苗的各种不良反应，跟CMS使用同一数据源。
-
-但是，政府和媒体却掩盖事实并一再强调接种病毒疫苗是安全有效的。
-
-[新闻来源链接](https://www.naturalnews.com/2021-12-14-zelenko-calls-covid-vaccines-worst-crime-in-history.html#)
-
-
-
-审核校对：sherryok (水云间)
-
-上传排版：漂流瓶
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
