@@ -2,50 +2,54 @@
 ---
 
 
-## 美国汇丰银行零售商业银行业务明年将易主
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1775807/)
+## 感染中共病毒者愈后采取措施未来三到十年五成致癌可能
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1775900/)
 
-作者：纽约香草山健身部Jack Li文阳
+**郭文贵先生：**所有得过冠状病毒的兄弟姐妹们，我在这里严正申明，世界上第一个是七哥现在告诉你们的，在过去的大概一个多月，我们跟国内的跑出来的科学家和病毒的知情者，我们一再论证接触后，我被授权今天向大家公告这个事情。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/gnews-logo.jpeg)
+第一个，你们所有得过病毒的人，在未来的10年内，也就是3~10年内，几乎超过50%的概率会染上癌症，不分老少，不分男女，不分大小，不分症状，原理我就不再解释了，给我讲一大堆，我都不一定记得住，我怕给说错了，最重要的是刺突蛋白mRNA在你身体里边，只要不会100%被消除，在你身体造成两个地方，是永远都是发癌的。
 
+一个是淋巴，最可怕的是淋巴；第二个就是你身体上的免疫力，由于它长时间地在内部的整个对细胞的改变，你的血液很有可能要出问题，这两种病一定要听进去，女性妇科最容易得病，因为妇科是所有的聚集病毒不能排除的地方，男性前列腺。
 
+唯一的办法现在看到，一定要吃青蒿素和伊维菌素，而且是合理地吃，你别一天天吃完，那没有用的，说你只要不100%清除掉，你解决了症状，你无法100%从身体里清除，它就有这种可能，而且超过50%的可能。
 
-日前，美国汇丰银行给其个人客户发信，告知客户该银行已经将个人银行业务转移给另一家银行——Citizens Bank，引致大批客户到各分行排队咨询银行账户和分行的经营情况。
+所以说你现在，科学家非常严肃地告诉我说，他说一定要告诉咱们战友，特别是你得过病、恢复过的，你一定要保持中长期时间身体检查，每年都要检查一次甚至两次，血液检查，淋巴检查，然后一定吃，定期地，不要每天吃。
 
-美国汇丰银行在给客户的信中提到，自美国东岸时间2022年2月18日11:59PM起，原汇丰银行个人客户名下的账户，将变成Citizens Bank账户。涉及的账户业务类型包括：支票、储蓄、定期存款、个人信用卡、按揭贷款和房屋净值贷款。
+而且一再科学家警告，伊维菌素也好，羟氯喹也好，锌也好，青蒿素也好，每天吃，一定是坏处大于利处。我再重申一遍，任何咱们所说的羟氯喹、锌，包括青蒿素，就是保健品青蒿素、伊维菌素，包括地塞米松，只要你长期吃，一定坏处大于好处，说一定要分期、分段，根据症状去吃，而且一定要会停。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/id13223480-152107-600x400-1.jpg)
+再一个，吃这些药的时候，一定要补铁的补铁，特别给维他命，补维他命，说维他命和铁相辅地吃是最关键的。所以说大卫也好，飞飞也好，所有这些染过这个病毒的人，一定要听住咱们科学家说的话，定期检查，然后吃青蒿素，不要乱吃，而且特别补维他命，而且染过这个病毒的人在运动、健身、生活方式上一定要注意，一定要注意。
 
-据报道，美国汇丰银行2021年上半年已与美国两家当地银行达成了出售协议。根据汇丰银行与Citizens Bank签订协议，Citizens Bank 购买美国东海岸国内大众市场和零售商业银行以及网上银行业务，包括 80 家分行和约 800,000 名客户。截至 2021 年 3 月 31 日，存款 92 亿美元，未偿还贷款 22 亿美元。
+特别他说到剧烈的运动一定要避免，在短时间内一定要避免，所有天下的兄弟姐妹们，我知道我们很多战友染上冠状病毒，这是非常不幸的，虽然你今天好了，但是你一定要知道，这个病并没有在你身体里边彻底地消除，它不可能彻底地消除，它需要时间。
 
-国泰银行签订的收购协议，收购原汇丰银行美国西海岸国内大众市场和零售商业银行业务，包括 10 家分行和约 50,000 名客户，截至 2021 年 3 月 31 日，存款总额为 10 亿美元，未偿还贷款为 8 亿美元。
+然后我问科学家，如果按照科学家的想法，能不能100%的保证这个病没了，他说一定会的，只要你按照，不要愚蠢地认为我的病毒好了，我不需要吃这个青蒿素了，或者持这种辅助运动了、辅助的治疗了、长时间检查了，他说你就有50%以上的机会得癌症——三年到十年。
 
-汇丰银行声称， HBCYF 将留在美国，其在美国的团队只保留“国际银行和财富管理”——尤其是“全球连接的富裕和高净值客户的业务”。
+然后如果按照这个的话，他说你是几乎是完全可以保证没有问题的。所以这今天这是个非常非常坏的消息，但是我觉得这是个对每个人都是救命的，你们会感受到的。
 
-2020年，中共平安集团取代BlackRock, 成为汇丰控股的第一大股东。多年来，汇丰银行参与中共在海外的扩张和国际洗钱业务。2021年，汇丰支付19.2亿美元，获得了与纽约布鲁克林联邦检察官办公室，就该银行违反美国制裁和洗钱法，达成一项暂缓起诉协议。汇丰银行还因参与华为与伊朗的非法交易，违反美国对伊朗的制裁，而受到美国的调查。
+编辑整理：喜马拉雅的肉夹馍；
 
-评论人士指出：美国汇丰银行的经营数据表明，这是一家有着优良资产的公司。该银行并非因为经营状况，导致出售零售商业银行业务。相信该银行撤出美国本土业务，是与执法机构达成的妥协有关。在美国，执法机构可以收取一定金额的罚金，受罚方可以换取保存脸面，体面离场。对于汇丰仍然保留了高净值客户业务，相信是还有些业务需要些时间来收拾干净，最终将全部撤出美国。
+字幕制作：小满；
 
-文贵先生一早就呼吁战友们有汇丰账户的，要尽早转移，汇丰一定会被美国踢出去的。汇丰银行亲自验证了文贵先生的预言，先生又”蒙”对了。[https://www.businesswire.com/news/home/20210526006149/en/HSBC-Exits-US-Mass-Market-Retail-Banking-Strategically-Repositions-US-Retail-Business-Towards-International-Banking-and-Wealth-Management](https://www.businesswire.com/news/home/20210526006149/en/HSBC-Exits-US-Mass-Market-Retail-Banking-Strategically-Repositions-US-Retail-Business-Towards-International-Banking-and-Wealth-Management)
+视频制作及上传：Cindy；
 
-编辑/校对/发稿：菩提树
+G-News发布：黎明之前；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpeg)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)，**欢迎订阅油管频道****[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**** ****；**
 
-**更多资讯，更多关注**
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
