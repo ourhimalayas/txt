@@ -16,6 +16,10 @@
 ---
 ## 頁面 25/38 [**<**](/content/README-24.md) [1](/content/README.md) ... [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) **25** [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) ... [38](/content/README-38.md) [**>**](/content/README-26.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年4月6日班农先生与郭文贵先生谈“当委会”、中美贸易协议与法治基金](/content/2019/04/20190407-6044925743176035036.md)
+
+[翻译整理：2019年3月21日班农先生在意大利罗马《信息算法》主题演讲](/content/2019/04/20190404-1301610143804687789.md)
+
 [文字版：2019年4月2日郭文贵先生报平安 ](/content/2019/04/20190403-7393706925448798261.md)
 
 [文字版：2019年3月29日郭文贵先生浴火重生](/content/2019/03/20190330-2880102853633751402.md)
@@ -61,10 +65,6 @@
 [文字版：2019年2月4号 除夕去共赢正道郭文贵爆料春晚](/content/2019/02/20190209-3549584960178600210.md)
 
 [文字版：2019 年2月4号 除夕去共赢正道郭文贵爆料春晚之达赖喇嘛尊者篇](/content/2019/02/20190208-3310541803704262131.md)
-
-[翻译：委内瑞拉军方将意识到马杜罗的时代已经结束: 美国国务卿迈克·庞培](/content/2019/02/20190207-4952752821783304200.md)
-
-[For CHINA, Is GUO Wengui More Important Than A State Level Ally?](/content/2019/02/20190206-4750659155472193962.md)
 
 
 ## 頁面 25/38 [**<**](/content/README-24.md) [1](/content/README.md) ... [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) **25** [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) ... [38](/content/README-38.md) [**>**](/content/README-26.md) [查看全部](/content/README-all.md)

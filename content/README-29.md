@@ -16,6 +16,10 @@
 ---
 ## 頁面 29/38 [**<**](/content/README-28.md) [1](/content/README.md) ... [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) **29** [30](/content/README-30.md) [31](/content/README-31.md) [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) ... [38](/content/README-38.md) [**>**](/content/README-30.md) [查看全部](/content/README-all.md)
 
+[文字版：郭文贵9月20日:马云开始被“狩猎”时间王岐山穿睡衣大谈中美贸易战,FBI约谈博讯西诺](/content/2018/09/20180921-2736922515347046582.md)
+
+[文字版：9172018 文贵先生直播王健事件重大进展法国已经正式立案重新调查！](/content/2018/09/20180917-8550776674007589502.md)
+
 [文字版：路德访谈中南海保镖亨利小哥（下）：再次深入曝光中南海常委们的性故事，捞钱的故事，升官的规则](/content/2018/09/20180916-1687313530283465166.md)
 
 [文字版：9月10号马云辞职的真正原因](/content/2018/09/20180913-8040960110830809305.md)
@@ -61,10 +65,6 @@
 [文字版：August 13th 2018：大连政法委书记于德泉．检察长吴喆！在几个小时前在京哈高速上．将盘古公司副总经理贾鑫及妻子两个孩子绑架至大连！](/content/2018/08/20180814-2211522547668099731.md)
 
 [文字版： August 9th 2018](/content/2018/08/20180810-4219843988347833039.md)
-
-[文字版：2018年8月6日晚上文贵致王健夫人及兄王伟先生的提示法国这个与王健一起最后晚餐的女人！](/content/2018/08/20180809-4256963212298749895.md)
-
-[文字版：2018.8.7王健被杀死前曾接触过其他国家情报部门并通过香港中间人与文贵有联系！](/content/2018/08/20180809-3627104687795521023.md)
 
 
 ## 頁面 29/38 [**<**](/content/README-28.md) [1](/content/README.md) ... [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) **29** [30](/content/README-30.md) [31](/content/README-31.md) [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) ... [38](/content/README-38.md) [**>**](/content/README-30.md) [查看全部](/content/README-all.md)
