@@ -2,28 +2,26 @@
 ---
 
 
-## 辉瑞欲收购致力于心血管疾病药物研发的企业
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1777984/)
+## 欧洲受“奥米抗”毒株感染的国家及病例激增
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1777985/)
 
-作者：纽约香草山信息部- 诺雅
+作者：纽约香草山 医疗部 云豹
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据外媒消息，辉瑞公司将以67亿美元收购生物制药企业Arena，该交易预计将在2022年上半年完成。据悉，Arena正在开发免疫炎症性疾病的新疗法，多数已进入临床试验阶段；当前，该公司致力于研发针对急性心力衰竭和微血管梗阻等疾病的治疗产品。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-21-下午11.08.24-1.png)
-此前，辉瑞以22.2亿美元收购了致力于肿瘤免疫治疗的药企- 翠莲医药，辉瑞将借此拓宽其血液病，尤其是血癌治疗产品的研发和生产。
+欧洲疾病预防控制中心于当地时间12月20日公告，欧盟及欧洲经济区已经有28国，总共四千六百九十一则“奥米抗”变异病毒感染案病例。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-21-下午11.08.32.png)
+在12月18日，仅英国境内“奥米抗”毒株感染病例已经达到两万五千例，其中有7例死亡。 伦敦市长因此宣布伦敦进入紧急状态，以加速整合各处资源来协助各大医院因应激增的住院人数。据专家估计，目前在伦敦新增的感染案例中，有8成是属于“奥米抗”变异病毒。
 
-随着辉瑞疫苗及其加强针接种率不断提升，越来越多的接种者出现心肌炎、静脉微血栓、免疫血栓性血小板减少症等严重不良反应。郭文贵先生多次援引中共病毒及疫苗计划爆料人的观点并警告世界：疫苗接种后普遍的灾难性后果将在15个月到两年内爆发；感染病毒的人群将在3到10年内有一半以上的概率罹患各种癌症。辉瑞近来陆续收购肿瘤和心血管疾病药企的行径，其真实的意图更加耐人玩味。
+此外，截止12月20日，欧盟主要成员国报道“奥米抗”毒株为：挪威2060例、丹麦726例、法国347例、德国249例。
+
+据悉，“奥米抗”变异株的传染力强，在欧洲区域目前的现况是每2至3天，病例数成长一倍。 如果此趋势不变，到明年元月，“奥米抗”将成为欧洲区域内中共病毒传染的主要病毒株，需严加防范。
 
 参考链接：
-1）[Pfizer is Buying a Cardiovascular Biopharma Company for $6.7Bn.](https://thenationalpulse.com/news/pfizer-is-buying-a-cardiovascular-biopharma-company-for-6-7bn/)
-2）[Pfizer to Acquire Arena Pharmaceuticals](https://www.pfizer.com/news/press-release/press-release-detail/pfizer-acquire-arena-pharmaceuticals)
-3）[Pfizer bets on Arena’s promising bowel disease treatment in $6.7 bln deal](https://www.reuters.com/markets/deals/pfizer-acquire-arena-pharmaceuticals-67-bln-deal-2021-12-13/)
-4）[Pfizer bets on Arena Pharmaceuticals’ promising bowel disease treatment in $6.7 billion deal](https://www.cnbc.com/2021/12/13/pfizer-to-acquire-arena-pharmaceuticals-in-6point7-billion-deal-.html)
-5）[arenapharm](https://www.arenapharm.com/therapeutic-focus/cardiovascular)
-6）[United Therapeutics](https://www.unither.com/products)
+1）[Omicron擴散歐洲28國 逾4000病例](https://www.cna.com.tw/news/firstnews/202112200340.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+2）[英國Omicron單日增逾1萬例 倫敦進入重大事件狀態](https://www.cna.com.tw/news/firstnews/202112190050.aspx)
 
 ![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-总编：文真
+总编：Zion文恩
 编辑：Zion文恩
 校正/发稿：呼吸的雾霾（文小呼吸）
 
