@@ -2,10 +2,10 @@
 ---
 
 
-## 因奥米炕感染创新高，伦敦市长宣布进入“重大事件”状态
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1776913/)
+## 欧洲很多人不希望看到封城和疫苗强制毁了一切
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1776917/)
 
-12/18/2021 因奥米炕感染病例创新高（2.6万例），伦敦市长宣布该市进入“重大事件”状态。
+12/19/2021 杰森·米勒： 欧洲很多人相信言论自由，并且不希望看到封城和疫苗强制毁了一切。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

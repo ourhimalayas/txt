@@ -2,23 +2,25 @@
 ---
 
 
-## 日本增加驻日美军费用应对中共军事扩张
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1777809/)
+## 美参院通过提名案 伯恩斯出任驻华大使
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1777937/)
 
-撰稿：东京樱花团丨麗子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/3-41.png)
-[*图片来源*](https://www.jiji.com/sp/article?k=2021033100194&amp;g=pol)
+撰文 : 新中国联邦静
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-375.jpeg)
+来源：互联网
 
-12月21日，日本政府宣布已与美国政府就从2022财年起为期5年的驻日美军费用负担达成一致。 预计总金额为1.0551万亿日元，比2016-2020财年的总支出9801亿日元增加了750亿日元。 为加强自卫队与美军的合作，此费用将用于采购最新的联合训练系统，提高作战响应能力并增加设施维护成本，以在发生攻击时维持基本作战功能。
+美国参议院12月16日以75票对18票，通过总统拜登提名资深外交官伯恩斯做驻华大使，填补超过一年的空缺。 65岁的伯恩斯曾任美国驻希腊及北约大使，并担任过国务次卿。伯恩斯10月出席确认提名听证会时，形容中国是地区侵略者，强调要同中国积极竞争，同时在气候变化方面寻求合作。他还批评北京连串作为，促停止在新疆、西藏、香港和台湾的不公正行为。又指华府会坚持一个中国政策，同时依照《台湾关系法》助台维持足够防卫能力。他还说，“我们的责任是让台湾成为一块难啃的骨头。”上任驻华大使布兰斯塔德在去年10月辞职。伯恩斯直至今年8月才获白宫正式提名。
 
-始于美国前特朗普政府的要求大幅增加日本负担费用的美日谈判，就此得到解决。每年的金额约为2,110亿日元。鉴于日本周围严峻的安全环境，包括中共国的军事扩张，日本方面接受了增加经费的要求。
+引用新闻来源
+[https://www.881903.com/news/china/2422107/%E7%BE%8E%E5%9C%8B%E5%8F%83%E8%AD%B0%E9%99%A2%E8%A1%A8%E6%B1%BA%E9%80%9A%E9%81%8E%E7%94%B1%E4%BC%AF%E6%81%A9%E6%96%AF%E5%81%9A%E9%A7%90%E8%8F%AF%E5%A4%A7%E4%BD%BF](https://www.881903.com/news/china/2422107/%E7%BE%8E%E5%9C%8B%E5%8F%83%E8%AD%B0%E9%99%A2%E8%A1%A8%E6%B1%BA%E9%80%9A%E9%81%8E%E7%94%B1%E4%BC%AF%E6%81%A9%E6%96%AF%E5%81%9A%E9%A7%90%E8%8F%AF%E5%A4%A7%E4%BD%BF)
 
-信息来源：[**米軍駐留費負担5****年で1****兆円超　日米合意、750****億円増**](https://news.yahoo.co.jp/articles/62b3605188b3f250de59167b791f54488a320394)
+* * *
 
-*校对：东京樱花团 / 東洋武士
-发布：东京樱花团 /*yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWSLOGO20211207.jpg)
-.
+***更多资讯***
+[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
 
  
 

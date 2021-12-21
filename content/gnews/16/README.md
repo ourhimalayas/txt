@@ -2,23 +2,32 @@
 ---
 
 
-## 辉瑞以67亿美元收购了研究心血管疾病的生物制药公司Arena
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1777614/)
+## 秘翻在线 :给我伊维菌素，否则罚款!
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1777685/)
 
-翻译：zzballack
-上传：无明逆流
+撰稿：William
+校对：牛小妹
+![](https://assets.gnews.org/wp-content/uploads/2021/12/圖片1.jpg-1.png)
+图片来源：principletrial
 
-据《国家脉动》（The National Pulse）12月20日报道，辉瑞公司日前以67亿美元收购了Arena制药公司（Arena Pharmaceuticals）。
+**福基尔医院拒绝使用伊维菌素治疗病患**
 
-总部位于美国犹他州的Arena公司部分专注于心血管和炎症药物的研发，但是大多数主流媒体机构的报道都集中在Arena的肠道疾病治疗上，而没有提及该公司的心血管研究。Arena官网上的一篇文章称，该公司正在“扩大其研究急性心力衰竭（Acute heart failure）和微血管阻塞（Microvascular obstruction）等心血管疾病的能力”。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1133.png)图片来源：原新闻
-该公司的Crunchbase页面也宣称他们专注于心血管和炎症性疾病的治疗。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1134.png)图片来源：原新闻
-另外，Arena公司现在还与联合治疗公司（United Therapeutics Corporation）有合作关系，后者的研究重点是肺动脉高血压。巧合的是，新冠患者的症状之一就是肺动脉高压，而新冠疫苗容易引发心血管疾病，比如心肌炎，特别是在年轻男性当中。辉瑞的此项收购肯定会给其带来比企业媒体所吹捧的肠道疾病治疗更多的回报。
+根据《零对冲》(Zero Hedge) 引述《福基尔时报》的报导, 一位罹患中共病毒导致呼吸衰竭的患者克里斯托弗·戴维斯(Christopher Davies)， 自从11 月 3 日以来一直依赖呼吸机以维持生命。戴维斯的家庭医生给她开了伊维菌素的处方，她的家人因此要求医院用伊维菌素来治疗，但福基尔医院拒绝使用，并以医疗、法律和其他方面的问题来塘塞。
 
-辉瑞通过新冠疫苗赚得盆满钵满，其高管甚至因此登上《福布斯》杂志的全球十亿富翁榜。但是他们的贪婪不止于此，料到新冠疫苗大范围推广后，寻求心脏和血管疾病治疗的人会越来越多，这笔收购就是为此做准备，准备再发一笔横财。不得不说，辉瑞及其实际掌控人的算盘打得很精，也足够邪恶。但世人不会任其为非作歹，必将绳之以法。
+**伸张正义的法官救人一命**
 
-新闻来源：[Pfizer is Buying a Cardiovascular Biopharma Company for $6.7Bn.](https://thenationalpulse.com/news/pfizer-is-buying-a-cardiovascular-biopharma-company-for-6-7bn/)
+12月20日，有正义感的弗吉尼亚州第 20 法院的P. 费舍尔法官 P. Fisher 根据《医疗保健决策法》和联邦和州审判法案的权利，签署了一项命令，判处Fauquier 医院藐视法律，”不必要地阻碍患者使用所需的医疗药物。”此外，”鑑于严重性”，医院必须”每天支付 10,000 美元，追溯至法院提交禁令之日”，这意味着医院如果无法每天对 Davies 开伊维菌素处方，他们将必须支付罚款”直到命令的救济完成”。
+
+**伊维菌素就是解药**
+
+尽管一些中共病毒的重病患者在服用伊维菌素后明显改善，伊维菌素仍未被FDA批准用于治疗病患，病患的权益在政治正确的考量下荡然无存。
+
+伊维菌素绝对可以治疗中共病毒以及疫苗带来的病症，然而黑暗势力、媒体掌控的话语权，让许多人无法得到正确的治疗。
+
+郭文贵先生在直播中多次提到，面对中共病毒及疫苗的次生灾害，最重要的就是传播伊维菌素的疗效。
+
+新闻来源：&lt;a href="http://&lt;br&gt;撰稿：William
+Judge Holds Hospital In Contempt: Give Ivermectin To Dying Woman Or Pay $10,000-A-Day Fine
 
  
 
