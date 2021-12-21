@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/21/2021 10:45 PM (UTC)`
+
+12月21日：😱😱😱😠😠😠【Vicar’s wife says since the roll-out of Covid injections there ‘s been funeral after funeral,after funeral. It’s tragic<br/>牧师的妻子说，自从开始接种新冠疫苗以来， 葬礼一个接一个。真的很悲剧。】
+![img](https://media.gettr.com/group19/getter/2021/12/21/22/837b9a39-ced5-b90a-0a46-b0c8f0a689c8/out.jpg)
+
+---
+
 `@miles 12/21/2021 12:40 PM (UTC)`
 
 12月21号：一个国家副主席沦落成……一个刚当主持人．为习洗脚的角色，真够可怜的啦，王岐山完了，死不了也活不好的状态，对他而言是最痛苦的……
@@ -145,13 +152,6 @@ CCTV, the crazy CCP’s mouthpiece, shirking responsibility for creating the vir
 
 本周末,成千上万的澳大利亚人再次聚集在墨尔本街头抗议疫苗禁令<br/><br/>This weekend,  thousands of Australia protesters hit the streets  in Melbourne again to fight vaccination mandates and Covid-19 restrictions<br/><br/>
 ![img](https://media.gettr.com/group27/getter/2021/12/19/06/f0ed2c36-a5b5-5509-0084-ccf859558104/out.jpg)
-
----
-
-`@miles 12/18/2021 10:25 PM (UTC)`
-
-12/18/2021 Miles Guo’s GETTR: I heard that many people working in the banks and the Political & Legal Affairs Commission system got arrested.  Did I guess correctly again?  In the whole central south region in China, it was ordered to withhold salaries and pensions and no payment would be issued anymore.  How can Lao Baixing survive?  In contrast, hospitals’ business is going to be hot and booming. It’s said that all hospitals in Communist China must surrender 1.5 trillion yuan by June 2022.<br/><br/>12/18/2021 文贵盖特：听说政法委、银行系统大量抓人，七哥又蒙对了？整个中南部地区已经下令停发工资、养老金，老百姓可怎么活？医院生意要火啊，据说明年6月前中共国医院必须上交一万五千亿！
-![img](https://media.gettr.com/group1/getter/2021/12/18/22/89cbe2b2-db3f-698f-cf02-583f9524b223/out.jpg)
 
 ---
 
