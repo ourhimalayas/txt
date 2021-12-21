@@ -2,21 +2,27 @@
 ---
 
 
-## 世界最大游轮“海洋交响乐号”爆发新冠疫情 至少48人确诊
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1777176/)
+## 澳洲经济低迷却拍出了史上最贵的红葡萄酒 &#8211; 近16万美金
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1777553/)
 
-#### 翻译/撰稿：zzballack
+翻译：Jenny
+![](https://assets.gnews.org/wp-content/uploads/2021/12/https___prod.static9.net_.jpg)网络截图
+周日在兰顿拍卖会上，一瓶奔富Grange Hermitage Bin 1 Shiraz 1951以157,624美元落槌，打破了之前由另一瓶奔富Grange 1951年创造的142,131美元的记录。成为澳大利亚有史以来最昂贵的红葡萄酒。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-2-17.jpg)图片来源：Cruise Industry News
-据《NBC新闻网》（NBC News）12月20日报道，皇家加勒比（Royal Caribbean）公司12月20日表示，该公司旗下的世界最大之一游轮“海洋交响乐号”（Symphony of the Seas）18日发生群聚感染事件，有48位乘客和船员新冠检测呈阳性。
+那么，这款酒为什么如此珍贵？
 
-载有近7000人的“海洋交响乐号”游轮本月11日从迈阿密出发，8天7夜的旅途中曾停靠加勒比海的圣马丁岛（St. Martin）、圣托马斯岛（St. Thomas），18日返回迈阿密，结束航程。皇家加勒比公司在声明中表示：“在航行期间发现一名乘客确诊后，立即展开接触追踪，扩大病毒筛检，目前至少有48人确诊。全船95%的人都已完全接种疫苗，阳性患者中有高达98%的人已经接种了两剂疫苗，不过症状轻微或没有症状。每一个人都迅速被隔离，我们将持续监测他们的健康状况。有6位受影响的客人在返回迈阿密之前下了船。”
+因为它是Penfolds Grange奔富葛兰许第一个年份的葡萄酒中仅存的几瓶之一。
 
-该公司称，“海洋交响乐号”的全体工作人员都接种了疫苗，并每周进行核酸测试。而且要求12岁及以上乘客必须接种两剂辉瑞或莫德纳疫苗，或者一剂强生疫苗。
+根据Langton’s负责人Tamara Grischy的说法，鉴于其年份，每一瓶奔富葛兰许（Penfolds Grange）1951年都是不同的。这瓶酒自2014年在奔富的“换塞诊所”换塞后，几乎处于原始状态。
 
-新闻来源：[Nearly 50 on Royal Caribbean’s Symphony of the Seas cruise ship test positive for Covid-19](https://www.nbcnews.com/news/us-news/nearly-50-royal-caribbeans-symphony-seas-cruise-ship-test-positive-cov-rcna9346)
+评论：整个2021年，澳大利亚因为疫情封城导致的经济急剧下滑是令人担忧的，6月份季度数据显示，澳洲GDP已经出现了自1959年以来最大跌幅，澳洲经济29年来首次进入衰退。
 
+而澳洲经济重镇悉尼与墨尔本刚刚于12月中旬解封，这么低迷的经济居然拍卖出史上最贵的葡萄酒，要知道根据澳大利亚税务局最新年度数据显示，**平均工资**仅为63085澳元（45000美元）。这瓶红酒居然拍出了近16万美金！并刷新了历史记录，实在是令人夷非所思。
+
+翻译自：[9 News](https://www.9news.com.au/national/penfolds-grange-most-expensive-bottle-of-australian-wine-sold-over-weekend/69c64d05-ffd4-489e-9d45-9e271dfb93c0)
+
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

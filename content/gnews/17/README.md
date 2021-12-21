@@ -2,27 +2,26 @@
 ---
 
 
-## 【中日财经爆】由于供应延误，麦当劳控股日本公司宣布暂时只销售S号的薯条
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1777706/)
+## 数据显示:接种“病毒疫苗”正在引发数十万人的精神障碍
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1777823/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-259.jpg)
-[图片来源](https://www.tsunagujapan.com/zh-hant/50-mcdonald-s-menu-items-only-in-japan/)：
+本文作者：Rebecca (一切心皆不可得！)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image001-15.png)
+据《自然新闻网》报道，世界卫生组织（WHO）的VigiBase数据显示，至少有121,559名“病毒疫苗“接种者得了一种或多种精神障碍疾病。
 
-据彭博社21日报道，麦当劳控股日本公司周四表示，由于从北美进口薯条供应出现延误，通常的M和L号暂停销售，只卖小号（S），包括套餐中的薯条。进口薯条的延迟将影响日本国内约2900家商店。
+最常见的问题是失眠，其次是焦虑、”混乱状态”、睡眠障碍、”紧张”、”迷失方向”、”急性应激障碍”、”不安”、幻觉、抑郁、”情绪低落”、”惊恐发作”、”睡眠质量差”、”谵妄”、”激动”、噩梦、”异常的梦”、饮食障碍、”精神障碍 “或 “急性精神病 “或 “精神病行为”，以及抽搐障碍。
 
-该公司表示，原因是加拿大温哥华港附近发生了大规模水灾，以及中共病毒对物流配送网络的影响。从本月24日起暂停上述产品的销售，31日上午10:30恢复正常。
+VigiBase还显示了213份接种疫苗后濒死体验报告，57份自杀报告和25份 “爆炸声综合症 “报告，生活新闻网（LifeSiteNews）将这种情况描述为 “听到非常大的噪音，如爆炸、枪声或铙钹声，好像就在他们身边”。
 
-2014年12月在美国西海岸旷日持久的劳资谈判中，该公司也曾暂停过部分薯片的销售。
+同样，在英国黄卡网站——不良事件报告系统，也收到近3万份因接种病毒疫苗后导致的精神障碍病例的记录。
 
-信息源：
+[新闻来源链接](https://www.naturalnews.com/2021-12-14-covid-vaccines-triggering-psychiatric-disorders-hundreds-thousands.html#)
 
-[マクドナルドＨＤ：フライポテトＳサイズのみの販売に制限、輸入遅延で](https://news.yahoo.co.jp/articles/59347e18d0d299a01c9d531e2a4555b7c5a23163#:~:text=%E3%8)
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWSLOGO20211207.jpg)
 
+审核校对：sherryok (水云间)
+
+上传排版：漂流瓶
 
  
 

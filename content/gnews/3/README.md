@@ -2,27 +2,36 @@
 ---
 
 
-## Omicron 的住院率低于之前的 COVID 变种——至少在南非这个热点地区
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1777955/)
+## 中共是导致中共国人口危机的罪魁祸首
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1777992/)
 
-作者：苏菲梅勒
+作者：东京樱花团 – 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+盖特12月19日消息，近日班农先生在英喜农场的每周战斗室采访节目中，谈及中共国人口危机。他表示，中共的历史就是一部血淋淋的杀人历史——大跃进、大饥荒和文革，杀死了9千万到一亿中国人。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2-82.jpg)
+中共的计划生育政策杀死了4亿婴儿，其中80%是女婴。他估计目前中共国只有不到10亿人口，所以人口急速老龄化导致劳动力缺失，中共对此极度恐慌，开始推出3胎政策，但是无助的人民却恐惧孩子变成共产奴隶。
 
-翻译：沉默老歌
-![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕截图-2021-12-21-094824-edited.png)图片来源：网络
-据南非卫生部长乔·法拉 (Joe Phaahla) 称，尽管过去一周南非各地的 COVID-19 住院人数增加了 70%，但住院感染者的比例与第一波、第二波甚至第三波相比相差甚远。
+班农先生指出：中共高层的内斗以及层出不穷的愚蠢政策，让中国人民苦难不断。中共污染了土地、空气和水，剥夺中国人的生产资料，禁止人民创业，国企效率低下。恐惧中国人拥有自然而健全的家庭，所以强制进行计划生育，因此导致目前中共国人口危机。
 
-南非 Omicron 变体的病例数超过了该病毒之前任何突变的病例数，但在这一波中只有 1.7% 的 COVID-19 病例住院，这是该国的第四波——过去一周平均每天有 350 例新入院病例 。 第三波以 Delta 变体为主，每天有 800 人住院，平均占感染者的 19%。
+中共活摘器官、剥夺人民信仰自由，工人得不到应有工资，自杀率很高。但中共从来不在乎人民的生命，现在又朝着建立人类命运共同体狂奔，狂妄的认为可以主宰一切。而华尔街、拜登政府、跨国公司却跟中共私下勾兑，全世界对此视而不见。
 
-“就绝对数字而言，我们仍处于相当低的水平”，Phaahla 周五表示。
+班农先生强调说，只有中国人民自由了，世界才能自由。
 
-根据 Phaahla 的说法，自 Omicron 开始以来，已经收治了 7,600 多名患者，大约是第二和第三波高峰期的 40%。  Phaahla 说，非正常死亡人数，即高于历史平均水平的死亡人数，每周低于 2000 人，是之前峰值的八分之一，第四波感染者中有 91% 已经康复。
+参考链接: [GTV UK Mr. Bannon’s Weekly Interview 1215-Q4](https://gettr.com/post/pk2ols8066)
 
-来源链接：[https://fortune.com/2021/12/17/omicron-covid-hospitalization-rates-south-africa-lower-previous-variants-delta/amp/](https://fortune.com/2021/12/17/omicron-covid-hospitalization-rates-south-africa-lower-previous-variants-delta/amp/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-编辑/发布：LILY
+总编：文真
+编辑：Lakeman文仁
+校正/发稿：Fei797
 
-20211221
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

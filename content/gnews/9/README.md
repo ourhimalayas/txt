@@ -2,33 +2,27 @@
 ---
 
 
-## 疯狂：凤凰城动物园为75只濒危动物注射中共病毒疫苗
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1777914/)
+## Omicron 的住院率低于之前的 COVID 变种——至少在南非这个热点地区
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1777955/)
 
-本文作者：Rebecca (一切心皆不可得！)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image001-16.png)
-据《自然新闻网》报道，美国各地多家动物园出现了动物感染上中共病毒，甚至死亡的病例。这是由于动物饲养员已完全接种了疫苗，并与动物亲密接触造成的。
+作者：苏菲梅勒
 
-今年年初，Zoeti公司专门为动物开发的中共病毒疫苗获得农业部紧急使用授权，可用于濒危物种。从那时起，COVID-19病毒疫苗已经在美国各地的许多动物园中对动物进行了接种。
+翻译：沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕截图-2021-12-21-094824-edited.png)图片来源：网络
+据南非卫生部长乔·法拉 (Joe Phaahla) 称，尽管过去一周南非各地的 COVID-19 住院人数增加了 70%，但住院感染者的比例与第一波、第二波甚至第三波相比相差甚远。
 
-这样接种下去的话，未来将有更多动物因接种了实验性并危险的COVID-19病毒疫苗而出现突发健康并发症。
+南非 Omicron 变体的病例数超过了该病毒之前任何突变的病例数，但在这一波中只有 1.7% 的 COVID-19 病例住院，这是该国的第四波——过去一周平均每天有 350 例新入院病例 。 第三波以 Delta 变体为主，每天有 800 人住院，平均占感染者的 19%。
 
-作为大规模疫苗接种计划的一部分，动物园的兽医有义务每月向Zoetis公司发送报告，详细说明与疫苗接种有关的任何不良反应。
+“就绝对数字而言，我们仍处于相当低的水平”，Phaahla 周五表示。
 
-凤凰城动物园负责动物健康和生活兼兽医的副总裁加里-韦斯特博士声称，现已为75只濒危动物接种了病毒疫苗。预计它们很快就会接受第二针-加强剂量的疫苗。老虎、山猫、美洲虎和狮子被从远处用含有针剂的飞镖接种。
+根据 Phaahla 的说法，自 Omicron 开始以来，已经收治了 7,600 多名患者，大约是第二和第三波高峰期的 40%。  Phaahla 说，非正常死亡人数，即高于历史平均水平的死亡人数，每周低于 2000 人，是之前峰值的八分之一，第四波感染者中有 91% 已经康复。
 
-Zoetis公司向亚利桑那州凤凰城动物园捐赠了160剂病毒疫苗。
+来源链接：[https://fortune.com/2021/12/17/omicron-covid-hospitalization-rates-south-africa-lower-previous-variants-delta/amp/](https://fortune.com/2021/12/17/omicron-covid-hospitalization-rates-south-africa-lower-previous-variants-delta/amp/)
 
-韦斯特还说，动物园的预防措施还包括：动物工作人员只要接近动物就必须戴上口罩和手套。动物园内允许游客稍微接近动物的地方目前仍然关闭。
+编辑/发布：LILY
 
-[新闻来源链接](https://www.naturalnews.com/2021-12-14-insanity-phoenix-zoo-vaccinates-animals-covid.html#)
-
-
-
-审核校对：sherryok (水云间)
-
-上传排版：漂流瓶
-
+20211221
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
