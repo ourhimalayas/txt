@@ -129,50 +129,50 @@
 ### [日本增加驻日美军费用应对中共军事扩张](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2021/12/20 墙内世界](/content/gnews/39/README.md)
+### [中共国反击美国政府实施的制裁](/content/gnews/39/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [2021/12/20 墙内世界](/content/gnews/40/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [辉瑞以67亿美元收购了研究心血管疾病的生物制药公司Arena](/content/gnews/40/README.md)
+### [辉瑞以67亿美元收购了研究心血管疾病的生物制药公司Arena](/content/gnews/41/README.md)
  ` 首尔天池农场`
 
-### [诋毁的代价](/content/gnews/41/README.md)
+### [诋毁的代价](/content/gnews/42/README.md)
  ` 骄子`
 
-### [12/21每日播报｜好莱坞与中共国的良好关系终于于今年结束](/content/gnews/42/README.md)
+### [12/21每日播报｜好莱坞与中共国的良好关系终于于今年结束](/content/gnews/43/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [12/21/2021国际财经快讯：俄罗斯限制境内使用加密货币；全球并购活动刷新历史记录](/content/gnews/43/README.md)
+### [12/21/2021国际财经快讯：俄罗斯限制境内使用加密货币；全球并购活动刷新历史记录](/content/gnews/44/README.md)
  ` 秘密翻译组金融团队`
 
-### [拜登的“重病和死亡的冬天”已在高疫苗接种州成现实(1/2)](/content/gnews/44/README.md)
+### [拜登的“重病和死亡的冬天”已在高疫苗接种州成现实(1/2)](/content/gnews/45/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [12/21每日播报｜新闻简讯：疫苗微芯片 中共网信办](/content/gnews/45/README.md)
+### [12/21每日播报｜新闻简讯：疫苗微芯片 中共网信办](/content/gnews/46/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [台湾前线｜中共间谍渗透严重 前军方人士称 包含将军、总统随扈](/content/gnews/46/README.md)
+### [台湾前线｜中共间谍渗透严重 前军方人士称 包含将军、总统随扈](/content/gnews/47/README.md)
  ` 關注組`
 
-### [【樱花深度报道】GETTR 能否打赢捍卫言论自由的战争？（下）](/content/gnews/47/README.md)
+### [【樱花深度报道】GETTR 能否打赢捍卫言论自由的战争？（下）](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【樱花深度报道】GETTR 能否打赢捍卫言论自由的战争？（上）](/content/gnews/48/README.md)
+### [【樱花深度报道】GETTR 能否打赢捍卫言论自由的战争？（上）](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [反对强制接种义务的少数人将转变为大多数人](/content/gnews/49/README.md)
+### [反对强制接种义务的少数人将转变为大多数人](/content/gnews/50/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [韭菜收割新模式开启，富豪贪官主播网红难逃一劫](/content/gnews/50/README.md)
+### [韭菜收割新模式开启，富豪贪官主播网红难逃一劫](/content/gnews/51/README.md)
  ` 墨尔本雅典娜农场`
 
-### [COVID-19 最新情报｜Omicron 入侵 驻日美军群聚感染 日政府通过预算考虑将职场加强剂提前](/content/gnews/51/README.md)
+### [COVID-19 最新情报｜Omicron 入侵 驻日美军群聚感染 日政府通过预算考虑将职场加强剂提前](/content/gnews/52/README.md)
  ` 關注組`
 
-### [澳洲医生匿名揭露疫苗真相：它具有永久性心脏损伤的固有风险](/content/gnews/52/README.md)
+### [澳洲医生匿名揭露疫苗真相：它具有永久性心脏损伤的固有风险](/content/gnews/53/README.md)
  ` 加拿大温哥华扬帆农场视频组`
-
-### [美国华盛顿特区的一家广播电台接受了中共440万美元为其做宣传](/content/gnews/53/README.md)
- ` 首尔天池农场`
 
 ### [五国外长就香港立法会选举发声明](/content/gnews/54/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
