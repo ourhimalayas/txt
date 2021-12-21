@@ -2,28 +2,24 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月21日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1778305/)
+## 安倍讲话后中共取消日本驻华使馆的活动
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1778393/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-4.jpg)
+俄罗斯莫斯科喀秋莎农场  银河
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-21.png)
-文章仅代表作者本人观点，与Gnews无关
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/12/J-5.jpg)cnfocus.com
+日本共同社12 月21日报道，知情人士透露在日本前首相安倍晋三就台湾问题发表讲话后，中共国迫使日本驻华大使馆取消本月早些时候的文化交流活动。
 
-视频参看：[2021.12.21早GTV新闻访谈](https://gtv.org/video/id=61c1d68abcb7f101bb728268)
+12月1日，安倍晋三在一个活动上说，任何有关台湾的紧急情况对日本和美国安全联盟都将是紧急事件。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+消息人士称，安倍就台湾问题发表讲话一天后，在约250名受邀参加文化交流活动的嘉宾中，许多中共国人受到了当局的压力，以感染中共病毒的风险为由，拒绝参加活动。原定于12月7日举行的中日活动最终被迫取消。明年是两国邦交正常化50周年，然而双边关系日显脆弱。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/calendar-1.jpeg)
+安倍在担任日本首相近8年后，于2020年卸任。这位日本前领导人是在出席台湾智库活动时称，加强台湾、日本和美国之间的关系“对该地区的和平与稳定至关重要”。目前，中共国正对台湾这个民主统治的岛屿施加外交和军事压力。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+参考链接：
+
+[https://english.kyodonews.net/news/2021/12/471dda4e44da-china-scuttles-japan-embassy-event-over-abe-comments-on-taiwan.html](https://english.kyodonews.net/news/2021/12/471dda4e44da-china-scuttles-japan-embassy-event-over-abe-comments-on-taiwan.html)
 
  
 

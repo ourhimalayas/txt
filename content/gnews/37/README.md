@@ -2,28 +2,38 @@
 ---
 
 
-## 辽宁号再次“亮剑”了吗？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1777845/)
+## 辉瑞欲收购致力于心血管疾病药物研发的企业
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1777984/)
 
-撰稿：东京樱花团/文勝
-![](https://assets.gnews.org/wp-content/uploads/2021/12/4-35.jpg)
-[图片来源](https://www.mfa.gov.cn/ce/cgngy/chn/rbyw/t976714.htm)
+作者：纽约香草山信息部- 诺雅
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据外媒消息，辉瑞公司将以67亿美元收购生物制药企业Arena，该交易预计将在2022年上半年完成。据悉，Arena正在开发免疫炎症性疾病的新疗法，多数已进入临床试验阶段；当前，该公司致力于研发针对急性心力衰竭和微血管梗阻等疾病的治疗产品。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-21-下午11.08.24-1.png)
+此前，辉瑞以22.2亿美元收购了致力于肿瘤免疫治疗的药企- 翠莲医药，辉瑞将借此拓宽其血液病，尤其是血癌治疗产品的研发和生产。
 
-据每日新闻报道，日本防卫省21日宣布，日本军方确认到包括中共航空母舰辽宁号等6艘舰艇于19日闯入冲绳的北大东岛周边的公海，其间有舰载机在该地区起飞升空。
+随着辉瑞疫苗及其加强针接种率不断提升，越来越多的接种者出现心肌炎、静脉微血栓、免疫血栓性血小板减少症等严重不良反应。郭文贵先生多次援引中共病毒及疫苗计划爆料人的观点并警告世界：疫苗接种后普遍的灾难性后果将在15个月到两年内爆发；感染病毒的人群将在3到10年内有一半以上的概率罹患各种癌症。辉瑞近来陆续收购肿瘤和心血管疾病药企的行径，其真实的意图更加耐人玩味。
 
-这是日本军方首次公开辽宁号在冲绳海域附近的活动，然而辽宁号却并非第一次在这部分海域亮相。据悉本月16日辽宁号等5艘船曾穿过冲绳和宫古岛之间的公海，驶入太平洋。这次19日的行动从上午8点左右持续到晚上9点，期间舰上的战斗机和预警直升机在该海域飞进飞出。日本海上自卫队被迫出动 “出云”号驱逐舰及其舰载飞机对其进行监控。
+参考链接：
+1）[Pfizer is Buying a Cardiovascular Biopharma Company for $6.7Bn.](https://thenationalpulse.com/news/pfizer-is-buying-a-cardiovascular-biopharma-company-for-6-7bn/)
+2）[Pfizer to Acquire Arena Pharmaceuticals](https://www.pfizer.com/news/press-release/press-release-detail/pfizer-acquire-arena-pharmaceuticals)
+3）[Pfizer bets on Arena’s promising bowel disease treatment in $6.7 bln deal](https://www.reuters.com/markets/deals/pfizer-acquire-arena-pharmaceuticals-67-bln-deal-2021-12-13/)
+4）[Pfizer bets on Arena Pharmaceuticals’ promising bowel disease treatment in $6.7 billion deal](https://www.cnbc.com/2021/12/13/pfizer-to-acquire-arena-pharmaceuticals-in-6point7-billion-deal-.html)
+5）[arenapharm](https://www.arenapharm.com/therapeutic-focus/cardiovascular)
+6）[United Therapeutics](https://www.unither.com/products)
 
-中共军方频频为入侵台湾造势，这次出动辽宁号是意在威慑台海吗？可惜在不断爆出瘫痪在南海，抛锚，冒黑烟这样的丑闻之后，辽宁号的出动真能起到亮剑的效果吗？或许这只是军方为了安慰一下习神武统台湾梦的一次交作业行为吧！
+![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-信息来源：
+总编：文真
+编辑：Zion文恩
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-[中国空母「遼寧」など6隻、艦載機発着　北大東島周辺などの公海航行](https://news.yahoo.co.jp/articles/fc0817376c37479cf5efaf9d8e3e2c879ba141a1)
-
-校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWSLOGO20211207.jpg)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
