@@ -2,21 +2,37 @@
 ---
 
 
-## 世界最大游轮“海洋交响乐号”爆发新冠疫情 至少48人确诊
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1777176/)
+## 以色列担心Omicron变体，准备禁止赴美旅行
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1777223/)
 
-#### 翻译/撰稿：zzballack
+编译：七叶之芒
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-2-17.jpg)图片来源：Cruise Industry News
-据《NBC新闻网》（NBC News）12月20日报道，皇家加勒比（Royal Caribbean）公司12月20日表示，该公司旗下的世界最大之一游轮“海洋交响乐号”（Symphony of the Seas）18日发生群聚感染事件，有48位乘客和船员新冠检测呈阳性。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕截图-2021-12-21-112100.jpg)图片来源 ：dailycaller.com
 
-载有近7000人的“海洋交响乐号”游轮本月11日从迈阿密出发，8天7夜的旅途中曾停靠加勒比海的圣马丁岛（St. Martin）、圣托马斯岛（St. Thomas），18日返回迈阿密，结束航程。皇家加勒比公司在声明中表示：“在航行期间发现一名乘客确诊后，立即展开接触追踪，扩大病毒筛检，目前至少有48人确诊。全船95%的人都已完全接种疫苗，阳性患者中有高达98%的人已经接种了两剂疫苗，不过症状轻微或没有症状。每一个人都迅速被隔离，我们将持续监测他们的健康状况。有6位受影响的客人在返回迈阿密之前下了船。”
+因为Omicron的变种继续蔓延，以色列部长们已经同意禁止前往美国和其他九个国家，该国周一宣布。
 
-该公司称，“海洋交响乐号”的全体工作人员都接种了疫苗，并每周进行核酸测试。而且要求12岁及以上乘客必须接种两剂辉瑞或莫德纳疫苗，或者一剂强生疫苗。
+据美联社报道，加拿大、比利时、德国、意大利、匈牙利、葡萄牙、摩洛哥、瑞士和土耳其也被列入以色列人不能前往的地方名单。经内阁投票批准的旅行禁令可能会通过议会委员会获得最终批准，并最快于周三实施。
 
-新闻来源：[Nearly 50 on Royal Caribbean’s Symphony of the Seas cruise ship test positive for Covid-19](https://www.nbcnews.com/news/us-news/nearly-50-royal-caribbeans-symphony-seas-cruise-ship-test-positive-cov-rcna9346)
+在过去的几周里，以色列的Omicron病例越来越多。11月首次宣布变种时，该国已经开始限制旅行。
 
+美国在感恩节后不久禁止从南非（首次发现该变种的地方）和其他七个国家旅行。在以色列，外国公民不能进入该国，回国旅行的公民必须进行隔离，完全接种疫苗的人没有例外。
+
+根据《我们的数据世界》汇编的数据，以色列大约有63.3%的人口已经完全接种疫苗。自全球大流行病爆发以来，该国已经发放了1640万剂疫苗，至少有8232人死于该病毒。据美联社报道，以色列卫生部宣布，截至周日有175个新病例。
+
+以色列的旅行禁令与对Omicron变体的新恐惧相吻合。科学家们仍在研究该变体，一些早期研究显示，迄今为止，该变体的传播性更强，但比以前的变体病症要轻。政府对Omicron采取了强硬立场，总统乔-拜登最近警告说，未接种疫苗的人将经历“一个严重疾病和死亡的冬天”。
+
+拜登的首席医疗顾问安东尼-福奇博士周日在谈到Omicron变种时说：“它将会接管。”
+
+第一批治疗Omicron患者的南非医生之一Angelique Coetzee博士周一带来了希望。她在美国有线电视新闻网（CNN）上说，COVID-19病例在据信是爆发开始的省份已经开始下降，并且还指出，病例的激增并没有导致更多的住院治疗。
+
+新闻来源：[dailycaller.com] [Israel Poised To Ban Travel To US Amid Omicron Variant Fears](https://dailycaller.com/2021/12/20/israel-ban-travel-us-omicron-variant-covid-19-canada-germany/)
+
+* * *
+
+*审核：Aries的星
+校对：阿伯塔
+发布：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-4.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

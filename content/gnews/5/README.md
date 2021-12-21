@@ -2,76 +2,20 @@
 ---
 
 
-## 全球和澳洲疫情疫苗统计信息更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1777277/)
+## 民心不为所动 中共大失所望
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1777378/)
 
-**（2021年 12月21日）**
+作者：东京樱花团丨阿恩
+![](https://lh4.googleusercontent.com/Ig1f9wHaryJ1C0t5OZvEDjq1BTC_6UhFek_aZq9JdpBWoqHskkPIXQxL1-eiGjo_jB1C8ydvI2YOL_KrJXIQkIBzUFAx1Rln0fm3Ll35GzW1oxKmIoOOVmYrCx9bvsIrMAG7vDIA)
+首届立法会选举直选投票率仅30.2%创新低，出现「清一色」建制赛果。全国侨联副主席卢文端在选前指，建制派如全取议席「全胜即输」，让西方反华势力抹黑及否定新选制。他认为这个结果并非中共的错，因为有人煽动不投票，但坦言对于非建制选民也不投自己人感到「有些失望」。
 
-整理：枳实
-![](https://assets.gnews.org/wp-content/uploads/2021/12/疫苗-5.jpg)图片：雅典娜农场设计组 姐夫说说
-一，全球疫情基本数据
+中共篡改了香港的选举制度，试图在香港立法会营造集权下的多党合作，还期望通过民主选举的方式产生。中共仓促孕育的畸形立法会最终流产，清一色的“爱国者建制”赛果使中共如鲠在喉。中共一直认为反逃犯条例运动之所以声势浩大，一定有大台在后面支撑，所以强推港区国安法清扫香港的民主力量，在短短的一年多时间成功将香港人与本地民主力量隔绝。中共将此次立法会选举搞得甚嚣尘上，港府还要求运输公司在投票日免费服务港人。对防疫严控早已厌烦的香港人紧紧抓住了这次机会，在投票日进行大挪移，新界居民大举奔赴港岛游山玩水，港岛居民远赴东涌购物休闲，各交通枢纽人潮涌动，各景点热闹非凡，餐厅的生意暴涨，商铺的营业额急升，投票站则人流疏落。中共先拆了香港人的民主大台，现在又不解港人为何不投非建制候选人！这个被脑子有病的独裁者率领的邪恶政权如何能明白，香港人的民主意识是存在于每个人的心里，中共砸碎再多的大台也是徒劳无功。何况人与生俱来对善恶的分辨力，怎能分不清披着民主外衣臣服邪恶中共的人。
 
-感染总数：2.75亿（日新增 46.87万）
+资料来源：[**立法会选举︱建制囊括直选议席「全胜即输」？卢文端：非中央的错**](https://www.hk01.com/%E6%94%BF%E6%83%85/714676/%E7%AB%8B%E6%B3%95%E6%9C%83%E9%81%B8%E8%88%89-%E5%BB%BA%E5%88%B6%E5%9B%8A%E6%8B%AC%E7%9B%B4%E9%81%B8%E8%AD%B0%E5%B8%AD-%E5%85%A8%E5%8B%9D%E5%8D%B3%E8%BC%B8-%E7%9B%A7%E6%96%87%E7%AB%AF-%E9%9D%9E%E4%B8%AD%E5%A4%AE%E7%9A%84%E9%8C%AF)
 
-死亡总数：535万（日新增 4537人）
-
-每万人感染人数：152.73人
-
-二，全球“疫苗”毒针统计数据
-
-“疫苗”毒针注射总数：84.7亿
-
-完全“接种”：36.3亿人
-
-完全“接种”百分比：46.6%
-
-三，澳洲疫情和“疫苗”数据
-
-感染总数：254，685（今日新增 3990人）
-
-死亡总数：2146人
-
-每万人感染人数：100.50人
-
-“疫苗”毒针注射总数：41,460,631
-
-完全“接种”：1960万人
-
-完全“接种”百分比：76.1%
-
-16岁以上人口接种至少一剂疫苗的比例：93.9%
-
-16岁以上人口接种至少两剂疫苗的比例：90.6%
-
-四，澳洲中共病毒“疫苗“副作用每周报告关键信息
-
-报告给TGA 的接种后疫苗死亡的案例已达705例
-
-疑似心包炎：1881例
-
-疑似心肌炎：891例
-
-胸痛已经被该报告列入18岁以下人群的常见疫苗副作用之首
-
-接种疫苗后发生的格林巴利综合征154例。
-
-格林巴利综合征是一种神经元脱髓鞘疾病，它会导致全身瘫痪甚至呼吸困难，心律失常，通常需要重症监护病房抢救。[在澳大利亚每年发病率仅340人](https://www.gbs-cidp-nsw.org.au/information/what-is-cidp)，而现在中共病毒疫苗在澳洲推行不足一年竟然已经有154人在注射这种所谓“疫苗“后发生此病。
-
-数据来源：
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-发布：kk
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团 / 文小白*
+*发布：东京樱花团 /*平安卿卿
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,35 +2,72 @@
 ---
 
 
-## 中共国科技人员的特务化
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1777033/)
+## 西喜时事新闻简报 — 中共病毒时事篇
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1777128/)
 
-作者：紐約香草山農場教育部 – 文港
+**编译：西班牙巴塞罗那喜悦农场-wenwu**
+
+您若想了解全文报导内容，请点击标题链接
+
+（爱惜生命 远离疫苗）
+
+1. [辉瑞正在以67 亿美元收购一家心血管生物制药公司](https://thenationalpulse.com/news/pfizer-is-buying-a-cardiovascular-biopharma-company-for-6-7bn/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1125.png)
+
+据《国家脉动》2021年12月20日电，辉瑞即将以 67 亿美元收购 Arena Pharmaceuticals（Arena 是一家生物制药公司）并专注于为全球患者群体提供心血管和炎症药物。大多数主流新闻媒体都将报道重点放在 Arena 的[肠道疾病治疗上](https://www.reuters.com/markets/deals/pfizer-acquire-arena-pharmaceuticals-67-bln-deal-2021-12-13/)，而没有提及该公司的心血管研究。
+
+与中共病毒（COVID-19）相关的核心问题之一是[易患肺动脉高压](https://www.sciencedirect.com/science/article/pii/S0306987721000013)；COVID-19 疫苗接种也与心肌炎等心血管问题密切相关，尤其是在年轻男性中。尽管大多数[主流新闻媒体的报道](https://thenationalpulse.com/news/conflict-reuters-chairman-is-pfizer-investor-and-board-member/)都集中在 Moderna 的 COVID-19 mRNA 疫苗[以及与心肌炎的联系上](https://thenationalpulse.com/news/a-pandemic-of-the-vaccinated/)，但辉瑞的 COVID-19 疫苗也与心脏病有关。
+
+2. [福奇博士说数百万美国人拒绝接种实验性 Covid 疫苗是“不可接受的”](https://www.thegatewaypundit.com/2021/12/dr-fauci-says-millions-americans-refusing-get-experimental-covid-vaccine-unacceptable-video/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1120.png)
+
+据《门户网》2021年12月20日电，福奇博士周一（20日）讨论了 Omicron 变体、家庭测试以及数千万未接种 Covid 疫苗的美国人，其认为美国人不能有政治观点，美国人不能自己做出医疗决定（福奇说：“你们有一种非常安全的高效疫苗，全国有 5000 万人拒绝接种，其中许多人纯粹是出于政治意识形态的差异，这真的是不可接受的。”）
+
+MSNBC 的安德里亚·米切尔 (Andrea Mitchell) 询问福奇，在联邦法院对拜登对联邦承包商的疫苗授权实施禁令后，官员们是否应该放弃强制接种疫苗。“我更愿意，我们都更愿意人们自愿接种疫苗，但如果他们不这样做，有时你必须做一些不受欢迎的事情，但（政府）显然会取代个人选择以促进公共利益，”福奇[讨论](https://www.thegatewaypundit.com/2021/12/sometimes-got-things-unpopular-clearly-supersede-individual-choices-fauci-deal-unvaxxed-video/)时候说。
+
+3. [拜登将于周二就COVID-19 传播的omicron 变体、政府的回应向全国发表讲话](https://justthenews.com/politics-policy/coronavirus/biden-address-nation-tuesday-covid-19s-spreading-omicron-variant)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1121.png)
+
+据《Just The News》2021年12月18日电，一位白宫官员周六告诉[NBC 新闻](https://www.nbcnews.com/politics/politics-news/biden-address-omicron-variant-unveil-new-steps-help-communities-tuesda-rcna9263)，拜登总统将于周二向全国发表讲话，讨论中共病毒（COVID-19）的 omicron 变种在美国蔓延的情况以及他的政府的计划应对措施；拜登总统预计将通过增加推动新措施并向那些选择不接种疫苗的人发出“严厉警告”来超越他的“冬季计划”，以控制季节性感染的增加。
+
+4. [卫生主管说，纽约市的COVID 病例“急剧”上升，但住院人数却没有](https://justthenews.com/politics-policy/coronavirus/cases-rise-sharply-new-york-city-hospitalizations-do-not-says-health)
+
+据《Just The News》纽约市的 COVID-19 病例正在迅速增加，连续创下多项每日记录，但该市卫生专员Dave Chokshi 博士告诉 CNN，住院人数的增长速度没有那么快；与其他变体一样，Omicron 可能对未接种疫苗的人构成“最大”威胁（纽约市超过 70% 的疫苗接种率是“抵御 Omicron 浪潮的防波堤”）。
+
+尽管 Omicron 的性质看似温和，但拜登政府已经全面进攻，警告未接种疫苗的美国人，等待他们的是死亡和疾病的冬天。
+
+5. [早安英国民意调查显示十分之九的人反对再次封锁并反对强制接种疫苗](https://dailyexpose.uk/2021/12/20/9-in-10-oppose-lockdown-gmb-poll/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1123.png)
+
+据《吹哨人》2021年12月20日电，早安英国 (GMB)于周一（20日）上午在[Twitter](https://twitter.com/GMB/status/1472824626095009793)上[发布了民意调查](https://twitter.com/GMB/status/1472824626095009793)，并询问“我们应该在圣诞节前封锁吗？”。截至同日14:38，该投票已收到超过13.2万份回复，其中89%/每10人中有9人投了“反对票”，这表明英国人民不赞成因重新命名的普通感冒（现在被称为Omicron）的流行而再次进行严厉的封锁。
+
+12月7日，GMB发布了一项投票，询问“随着欧米茄病例每两天翻一番，是时候强制接种疫苗了吗？”。该投票在被GMB删除之前收到了4万4713份投票，很可能是因为10人中有9人再次对强制接种疫苗投了“反对票”。
+
+YouGov的民意调查被主流媒体操纵和利用，以动摇公众意见。通过精心挑选1696名成年人来获得他们需要的答案，他们能够声称大多数英国人支持强制性疫苗接种，并让你觉得自己是少数人的一部分；但是实际上只有十分之一的英国人显示自己是Covid崇拜者，也就是大部分人会和你站在一起反对强制疫苗。
+
+6. [罗伯特·肯尼迪：揭露危险的疫苗、疫苗护照和真正的安东尼·福奇](https://dailyexpose.uk/2021/12/20/exposing-dangerous-vaccines-vaccine-passports-and-the-real-anthony-fauci/)
+
+据《吹哨人》2021年12月20日电，肯尼迪解释疫苗是政府机构/制药业关系的支点，因为它们有巨大的利润。 疫苗是免责的，所以无论伤害多么严重，你都不能起诉制药公司，”仅此一点就使疫苗获得了巨大的利润”（疫苗从Fauci控制NIH时每年1.87亿美元的产业，变成了600亿美元的产业）。
+
+以下是我们可以预测的情况。 我们知道他们有可编程的货币，这意味着我们的每一笔金融交易都会被政府看到，而且这些信息可以被金融机构看到。
+
+肯尼迪用一个日常的例子进一步解释：”他们可以编排你的钱。比方说，你违反了社会隔离规定。 他们从你的手机[移动]电话……或面部识别……知道你的位置，你违反了[社会距离]，他们可以说’在你遵守规定之前，你会被软禁，你只能离开家去当地的杂货店购买’。 他们可以让你的钱在你家门口的杂货店以外的任何地方都不能用……所以，他们可以控制你。”
+
+“一旦你拿到[疫苗]护照，[你以前的]自由就不再是自由，而是特权。而它们的特权是以你对最终无限的指令清单的服从为条件的。”历史上没有任何时候，被赋予的权力被交还给人民，我们必须假设，我们赋予他们的权力，他们会滥用。 我们越是服从，情况就会越糟。
+
+* * *
+
+*发稿 : Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-1.jpeg)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV-Gnews-1.png)
 
 
-随着美欧日等西方国家开始警惕ccp的技术渗透和盗窃，ccp开始调整人才政策，各项人才的引进、申报和评选过程全面转入地下。各项人才的申报通知和指南不得上网，只能去各单位负责人事的党政办公室看纸质文件，不得拍照和网上转发。以此来避免被“西方敌对势力”通过网络等电子侦察手段获知。以前的“千人计划（大千人）”改头换面，一部分由各个国家重点实验室的“登峰计划”所代替；“青年千人计划（小千人）”，则由国家计经委的“优秀青年人才计划”中的海外人才项目（海外优青）所替代。一个号称要给全人类命运共同体的未来把脉、指路的世界第二大经济体，一个号称“道路自信、理论自信、制度自信、文化自信”,“永远伟大光荣正确”的政党，把一个正常和普通的人才引进和奖励政策，开展的如此偷偷摸摸、鬼鬼祟祟，就像给特务和地下党员私下授勋和发奖一样。由此可见ccp对西方科技抵制的恐惧和其人才政策的真实目的。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture13.jpg)
-同时ccp还会给中共国的各高校和科研单位的人员进行一定特殊的培训，由各省市国宝单位的专业人员打着防止“西方敌对势力”对中共国技术窃取，这样冠冕堂皇的理由给当地各高校和科研单位的科研人员进行一些反侦察方面的讲座和培训。比较讽刺的是在讲“防止西方敌对势力对中共国技术窃取”的内容时，举的实例多是中国人民的老朋友俄罗斯的间谍对中国科研人员种种行为。而提到美欧日等“西方敌对势力”时，多是教中共国科研人员如何躲避和骗过这些国家的审查。当这些ccp的科研人员使用国宝所传授的“技巧”成功骗过美欧日等国的审查而窃喜，以自己又一次战胜“美帝国主义”为国家作出贡献而骄傲的时候，他们可能忘了ccp自从成立那天起从来就没有真正信任和尊重过知识分子。在ccp眼里他们这些骗过“西方敌对势力”为国家作出贡献，自以为重要的知识分子，只能是永远不被信任，且随时可以丢弃的家奴而已。在对ccp有用的时候可以享受和风细雨，只要ccp感受到丝毫威胁，等待你们的就只有雷霆万钧。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture11.jpg)
-在ccp的体制下，现有的科研人员一方面成为渗透和盗取西方国家技术的特务，同时也被他们正在培养的学生，未来的科研人员所监视。现在大学所有上课内容全程录像监控，同时受到坐在下面的各个“积极要求进步”学生的实时监视。只要讲授的内容和ccp的主流价值观稍有偏差，老师就会成为“积极要求进步”的学生实现其进步的垫脚石。在“爹亲娘亲不如党亲”逻辑的洗涤下，父母亲情尚且可以抛弃，师生情谊更加不值一提。老师的事业和正常生活会因为某个只字片语瞬间被ccp颠覆，而学生会因为这一积极表现而在其学业和未来事业中受到ccp的奖励，成为学生中的佼佼者和榜样。所以那名上海震旦职业学院的学生在视频举报教师的上课内容后，ccp的喉舌环球时报立马将它褒奖为“反对历史虚无主义的吹哨人”。如此扭曲的价值观培养出的“精英”，在其学习和未来步入社会各个领域的过程中，做出任何突破人类底线的行为都是处理成章的。
 
-中国人的精神被ccp毒害了近100年已深入骨髓，推翻ccp后如何将毒素肃清使中国人回归人性，新中国联邦人未来还有很长的路要走。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88-1.png)
-
-编辑/校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
  
 
