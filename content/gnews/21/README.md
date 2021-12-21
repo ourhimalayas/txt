@@ -2,47 +2,20 @@
 ---
 
 
-## 灭共漫画系列——家天下
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1775423/)
+## 超低投票率毁中共式民主 白皮书控诉港式民主
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1775552/)
 
-**出品：纽约香草山设计部**
+作者：东京樱花团丨阿恩
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-351.jpeg)[*图片来源*](https://www.thestandnews.com/politics/ab%E4%B8%AD%E5%A4%AE%E7%99%BC%E8%A1%A8%E4%B8%80%E5%9C%8B%E5%85%A9%E5%88%B6%E4%B8%8B%E9%A6%99%E6%B8%AF%E7%9A%84%E6%B0%91%E4%B8%BB%E7%99%BC%E5%B1%95%E7%99%BD%E7%9A%AE%E6%9B%B8-%E6%8C%87%E4%B8%AD%E8%8B%B1%E8%81%AF%E5%90%88%E8%81%B2%E6%98%8E%E6%B2%92%E6%9C%89%E6%99%AE%E9%81%B8%E6%B0%91%E4%B8%BB%E5%AD%97%E7%9C%BC)
+中共国务院新闻办公室发表《一国两制下香港的民主发展》白皮书，历数英国殖民统治下的香港没有民主，称中共篡改了香港选举制度，才创建了香港的民主制度，香港民主才有「前景光明」。白皮书列举党媒《大公报》曾因煽动左派暴动被港英政府处罚，以及六七暴动中数分左媒因发布欺诈煽动言论被封，却绝口不提左派杀害香港市民挑起社会纷争的罪行。国新办还批评，英方推出关于香港居民申领英国国民（海外）（BNO）签证的新政策，再次公然违反《中英联合声明》。
 
+中共韬光养晦已久，自以为用蓝金黄的下作手段收买和掌控了各国政要，以为有足够的能力挑战世界，“终止香港的一国两制”成为中共称霸全球的开端，中共不惜公开撕毁《中英联合声明》，否定中共前辈的“功绩”，还在香港实施国安恶法摧毁民主力量，制造白色恐怖，还篡改选举制度剥夺港人监督的权力，新选制下首次立法会选举仅录得三成的超低投票率，证实港人根本不懈于中共的安排。中共颜面尽失，试图通过扭曲历史证明香港原本没有民主，只有港英政府的独裁，它例举的那些“受迫害”的媒体，全部都是中共安插在香港的反政府力量，这些左派在香港行事与红卫兵无异，多次的民主运动都因左派渗透制造暴力而引发惨烈的冲突收场，他们的罪行都被记录史册，不是中共一个白皮书就能篡改的。反观英国政府不仅视《中英联合声明》为国际条约，还推出BN（0）护照接纳逃离香港的港人定居英国。中共民心尽失，倍受羞辱，一边用媒体呼吁港人“勿做二等公民”，一边攻击英国政府干预中共国内政违反《中英联合声明》。中共这个精神分裂的邪恶政权在国际舞台上真的不过是个小丑而已，香港人也用超低的投票率向世界表面不甘被中共这个又蠢又恶的政权操纵。
 
+资料来源：[**中央发表《一国两制下香港的民主发展》白皮书指中英联合声明没有「普选」、「民主」字眼**](https://www.thestandnews.com/politics/ab%E4%B8%AD%E5%A4%AE%E7%99%BC%E8%A1%A8%E4%B8%80%E5%9C%8B%E5%85%A9%E5%88%B6%E4%B8%8B%E9%A6%99%E6%B8%AF%E7%9A%84%E6%B0%91%E4%B8%BB%E7%99%BC%E5%B1%95%E7%99%BD%E7%9A%AE%E6%9B%B8-%E6%8C%87%E4%B8%AD%E8%8B%B1%E8%81%AF%E5%90%88%E8%81%B2%E6%98%8E%E6%B2%92%E6%9C%89%E6%99%AE%E9%81%B8%E6%B0%91%E4%B8%BB%E5%AD%97%E7%9C%BC)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
-
-
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-IMG_3510.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/2-IMG_3460.jpg)
-
-
-**编辑/发稿：小鹿**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-2.png)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
-
-
+*校对：东京樱花团 / 文小白*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,29 +2,32 @@
 ---
 
 
-## 为保在华销售利亚马逊屈服于北京的宣传武器
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1774304/)
+## GTV投资人对SEC的抗议活动圆满完成
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1774355/)
 
-**采集****/翻译：意翎    **
+作者：纽约香草山农场 – 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月17日，GTV投资人在美国SEC华盛顿特区总部外举行的抗议活动圆满结束。此次抗议活动开始于10月4日，历时74天。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/4-32.jpg)
+美国SEC在9月13日与GTV和Saraca公司达成了和解协议。然而，在此后近一个月的时间里，美国SEC没有按照和解协议展开任何行动。美国SEC的腐败和官僚作风，引起了投资人的强烈不满。GTV投资人为了维护自己的合法权益，依法展开一系列的抗议行动。
 
-**责编：白夜**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1074.png)
-《零对冲》资深记者泰勒·德顿（Tyler Darden）观察报道：与苹果公司于本月初与中共政府达成的“付费玩游戏”协议类似，亚马逊似乎也在牺牲诚信与北京交易。北京方面希望亚马逊禁止来自中国的客户对习近平的书进行负面评论和评分，亚马逊遵从了这一要求。顾客无法对这本书进行评论和评分，这本书的评论部分也被禁用。
+此次抗议活动持续了两个半月，并且坚持在GTV平台上直播，得到了全球GTV投资人与正义人士的积极响应与支持，并得到了广泛的赞誉。
 
-亚马逊在2018中国做生意的一份内部备忘录中表示：“意识形态控制和宣传是中共实现和保持成功的核心工具。我们不会判断这是对还是错”，“帮助推进执政的共产党的全球经济和政治议程”对亚马逊的成功至关重要，这一举措是“为羸得北京好感而进行的更加深入的、长达十年的努力”的一部分。
+参考链接: [历经两个半月，74天的SEC抗议游行在今天完美收官。感谢所有参加游行的战友们，你们的努力和付出捍卫了GTV投资者合法的利益，更展现了超强的行动力和一流的素质，战友们你们辛苦了！难忘和大家一起奋斗的日子，相信我们很快就会在盘古相见，期待下次和大家一起战斗！](https://gettr.com/post/pjyv19196f)
 
-事实上，亚马逊甚至与中共的宣传机构合作，为美国客户创建了一个名为“中国图书”的销售门户。该报告称，尽管它没有产生可观的收入，但亚马逊认为它是“赢得中国支持的关键因素”，以获取进入中国市场。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-据路透社报道，亚马逊销量的这些中国图书在从维族劳改营到新冠肺炎的所有问题上都在为中共的统治文过饰非，对人民洗脑。
+总编：Ivy001
+编辑：Jack Li文阳
+校正/发稿：Fei797
 
-联合国专家称中共在新疆的劳改营拘押了100万维吾尔族人，而一本书名为《神奇的新疆：激情与传承的故事》引用一位扮演维族“乡巴佬”的喜剧演员的话说，“那里不存在种族问题”，来附会中共否认虐待少数民族。
-
-而另一些书用英雄的语言来描绘从武汉开始的中国抗击新冠疫情，其中一题为《勇气和决心：武汉封城》，以丧事喜办的口吻为中共歌功颂德，“迄今为止，我们的成功再次证明了中国共产党领导的社会主义的优越性。”
-
-网友评论：中共“告诉你的一切都是谎言，真相全被掩盖，……，习帝、福奇、辉瑞公司成熟的毒疫苗数据。”还有网友说，亚马逊的“爱国心和忠诚取决于在国际上的销售量。他们什么时候把总部搬到中国？”
-
-[原文链接](https://www.zerohedge.com/markets/amazon-bowed-beijings-propaganda-arm-keep-chinese-sales-secured-new-report-reveals)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

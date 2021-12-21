@@ -2,24 +2,64 @@
 ---
 
 
-## 美国一些大型医院放弃了疫苗强制接种
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1775224/)
+## 灭共者之郭氏情报站（五）12月19日版
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1775444/)
 
-采编撰稿：Spirit
-![](https://assets.gnews.org/wp-content/uploads/2021/12/03-image02.jpg)
-[图片来源](https://www.wsj.com/articles/some-hospitals-drop-covid-19-vaccine-mandates-to-ease-labor-shortages-11639396806)
+**出品：纽约香草山设计部**
 
-据美国医疗媒体《WebMD》12月15 日报道，在联邦法官暂停拜登政府对医护人员的“新冠病毒”疫苗强制接种授权后，美国一些大型医院集团也已放弃了该政策。
 
-据悉，包括[Healthcare]在内的数家医院均表示，已暂时取消对其员工的强制接种规定来解决劳动力短缺问题。并试图通过此举留住足够的医护人员和其他雇员，以应对疫情期间不断激增的住院病患人数。
 
-报道称，由于劳动力成本飙升，疫苗强制接种及职业倦怠等原因，大量医疗工作者被迫离开了卫生保健行业或失去了原有工作。目前，这些医院集团共有300多家医院和50多万名员工，但暂时还不清楚具体有多少家医院已停止了疫苗接种授权。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-校对编辑：硫酸羟氯喹64
 
-发稿：苦尽甜来 (文來）
 
-[原文链接](https://www.webmd.com/vaccines/covid-19-vaccine/news/20211215/some-hospitals-drop-worker-vaccine-mandates)
+
+
+
+
+
+
+## **灭共者之郭氏情报站 – 2021年12月19日，文贵大直播：**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12-19.png)
+**一、两个很不好的消息： 
+**1、所有得过新冠病毒的人3-10年内50%以上概率会染上癌症，一定要避免剧烈运动。主要两个地方容易得病：淋巴和血液；女性容易得妇科疾病。感染康复后一定要坚持吃青蒿素和伊维菌素。 
+2、法币的超发导致的通货膨胀，通胀、通缩，生产力不平衡，是全球经济从来没有过的黑暗时期。不会有任何解药，唯独崩塌一条路。
+
+**二、中共房地产持续暴雷破产，内外交困，经济指标作假欲掩盖金融大崩盘。**从企业家解直锟的意外死亡，中共内斗谁都无法幸免。人类已经走向了“货币春秋”，是世界走向“三国”的数字货币时代，我们是其中一极。
+
+**三、抵制奥运会意义深远。**奥运会一定会有集体事件、隔离事件。习想要通过奥运展现治理能力，一党专政的优越性，然后开始造神运动，并准备打台湾。
+
+
+
+**上一期：**
+
+[**灭共者之郭氏情报站（四）12月17日版 – GNEWS**](https://gnews.org/zh-hans/1769041/)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-2.png)
+
+***编辑/发稿：小鹿***
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
 
  
 
