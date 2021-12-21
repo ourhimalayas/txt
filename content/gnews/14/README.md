@@ -2,152 +2,112 @@
 ---
 
 
-## 12/21每日播报｜社媒消息：蓬佩奥 娜塔莉温特斯
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1777441/)
+## 12/21每日播报｜新闻简讯：疫苗微芯片 中共网信办
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1777471/)
 
-**By:[秘翻新聞](https://gtv.org/broadcast/watch/61c19743bcb7f101bb724eea)**
+**BY:秘翻新闻**
 
 **2021-12-21**
 
-**1.蓬佩奥12月21日发推说：**
+**1、瑞典公司开发可植入人体的疫苗信息微芯片**
 
-我们不能向中共屈服。
+[据《电讯日报》12月20日报道，一家瑞典公司正在开发可植入手中或手臂的微芯片，有关该技术的视频周五由《华南邮报》公布后在网络广为流传，该视频展示了斯德哥尔摩初创公司最近推出的微芯片技术，该技术很可能应用在一种特制的疫苗通行证中，用于存储有关接种疫苗的数据，可被任何使用近场通信协议的设备读取。](https://www.dailywire.com/news/video-of-swedish-companys-covid-passport-microchips-implanted-in-hands-goes-viral)
 
+[英国媒体《Metro》报导，瑞典已约有6000人已植入该芯片，他们还用来存储财务信息，使他们在付款设备前挥挥手就能购买商品。](https://www.dailywire.com/news/video-of-swedish-companys-covid-passport-microchips-implanted-in-hands-goes-viral)
 
+[在社交媒体上，人们对接种疫苗的数据，或将任何个人数据植入手中的想法持消极态度。尤其是基督徒，这个芯片的描述使人想起圣经启示录中的“兽印”。](https://www.dailywire.com/news/video-of-swedish-companys-covid-passport-microchips-implanted-in-hands-goes-viral)
 
-> We cannot kowtow to the Chinese Communist Party.
-> — Mike Pompeo (@mikepompeo) [December 20, 2021](https://twitter.com/mikepompeo/status/1473019181700423680?ref_src=twsrc%5Etfw)
+秘翻新闻文雀编辑报道
 
+**2、2022必须终结疫情 谭德塞喊话中共提供病毒起源数据**
 
+[综合媒体12月20日消息，20日谭德赛出席记者会表示，2022年必须成为世界终结疫情大流行的一年。](https://tw.news.yahoo.com/2022%E5%BF%85%E9%A0%88%E7%B5%82%E7%B5%90%E7%96%AB%E6%83%85-%E8%AD%9A%E5%BE%B7%E5%A1%9E%E5%B0%8D%E9%99%B8%E5%96%8A%E8%A9%B1%E6%8F%90%E4%BE%9B%E8%B5%B7%E6%BA%90%E6%95%B8%E6%93%9A-011946106.html)
 
-**2.娜塔莉温特斯12月21日发推说：**
+[谭德塞在日内瓦举行的记者会上指出，WHO现行的国际卫生条例中规定的规则或义务有缺失，导致在疫情应对中出现许多失败。谭德塞强调必须更加努力的了解病毒起源，从中吸取教训，未来才能更加正确的应对。](https://tw.news.yahoo.com/2022%E5%BF%85%E9%A0%88%E7%B5%82%E7%B5%90%E7%96%AB%E6%83%85-%E8%AD%9A%E5%BE%B7%E5%A1%9E%E5%B0%8D%E9%99%B8%E5%96%8A%E8%A9%B1%E6%8F%90%E4%BE%9B%E8%B5%B7%E6%BA%90%E6%95%B8%E6%93%9A-011946106.html)
 
-乔·拜登禁止美国人投资中共的一些科技公司，但他儿子亨特·拜登却从其中获利。
+[同时，他也提醒中共应尽块拿出2019年首次发现中共病毒的相关数据及资料，以便对疫情进行更精准的应对工作。](https://tw.news.yahoo.com/2022%E5%BF%85%E9%A0%88%E7%B5%82%E7%B5%90%E7%96%AB%E6%83%85-%E8%AD%9A%E5%BE%B7%E5%A1%9E%E5%B0%8D%E9%99%B8%E5%96%8A%E8%A9%B1%E6%8F%90%E4%BE%9B%E8%B5%B7%E6%BA%90%E6%95%B8%E6%93%9A-011946106.html)
 
-【推文转《国家脉动》报道，被白宫列入“中共军工企业”黑名单的几家公司获得了与亨特·拜登有关的投资基金的支持。比如专注于面部识别的旷视科技 从渤海华美获得了大量投资。渤海华美是一家私募股权公司，Hunter Biden于 2013 年开始担任该公司的董事。】
+秘翻新闻文洋编辑报道
 
+**3.受疫情影响 世界经济论坛周年大会再遭取消**
 
+[12月20日，世界经济论坛发布公告称，介于奥米炕疫情的不确定性，将推迟在瑞士达沃斯的年会。](https://www.weforum.org/press/2021/12/world-economic-forum-s-annual-meeting-2022-deferred/)
 
-> Biden Bans Investment In Chinese Tech Firms Hunter Profited From.[https://t.co/BfikPxlK4P](https://t.co/BfikPxlK4P)
-> — Natalie Winters (@nataliegwinters) [December 20, 2021](https://twitter.com/nataliegwinters/status/1472987463748489218?ref_src=twsrc%5Etfw)
+[年度会议原定于2022年1月17日至21日在瑞士达沃斯-克洛斯特举行。再次取消后定于明年初夏举办。](https://www.weforum.org/press/2021/12/world-economic-forum-s-annual-meeting-2022-deferred/)
 
+[这是自中共病毒疫情开始，世界经济论坛第二次取消正式公开会议。](https://www.weforum.org/press/2021/12/world-economic-forum-s-annual-meeting-2022-deferred/)
 
+秘翻新闻文洋编辑报道
 
-**3.《国家脉动》12月20日在盖特发文：**
+**4.川普总统透露已接种疫苗加强针**
 
-辉瑞公司以67亿美元收购了一家心血管生物制药公司。
+[据《网关专家》12月20日报道，周日，川普总统在德克萨斯州达拉斯与政治评论员比尔·奥莱利交谈时透露，他已经接种了三针中共病毒疫苗。](https://www.washingtonexaminer.com/news/trump-receives-covid-booster-shot)
 
-【盖文转报道，辉瑞收购的这家公司是Arena制药公司。Arena公司部分专注于心血管和炎症药物的研发。但是大多数主流新闻机构的报道都集中在Arena的肠道疾病治疗上，而没有提及该公司的心血管研究。总部位于犹他州的Arena公司与联合治疗公司（United Therapeutics Corporation）现在有合作关系，后者的研究重点是肺动脉高血压。辉瑞的此项收购肯定会给其带来比企业媒体所吹捧的肠道疾病治疗更多的回报。因为中共病毒容易让感染者患上肺动脉高压，另外辉瑞等公司开发的中共病毒疫苗容易引发心血管问题，比如心肌炎。】
+[截至目前，有72.8%的美国居民接种了第一剂中共病毒疫苗，其中61.4%的人完全接种了疫苗。](https://www.washingtonexaminer.com/news/trump-receives-covid-booster-shot)
 
-[https://gettr.com/post/pk6ah70068](https://gettr.com/post/pk6ah70068)
+[美国疾控中心数据显示，约有29.5%的美国居民接种了加强针。](https://www.washingtonexaminer.com/news/trump-receives-covid-booster-shot)
 
-**4.《班农战斗室》12月19日在盖特发文：**
+秘翻新闻冰糖葫芦喵编译报道
 
-小罗伯特·F·肯尼迪 (Robert F. Kennedy, Jr.)12月18日接受了《班农战斗室》节目的采访，他说美国情报部门和军方参与了武汉实验室的研究。
+**5、中共网信办约谈知乎 致其股价暴跌**
 
-【盖文转《网关专家》报道，小肯尼迪表示：“他们从来没有谈论过公共卫生，也从不谈论如何药物再利用、如何隔离病人、如何让人们吃维生素D和锌、锻炼身体、建立他们的免疫系统。他们所谈的全是关于如何以大流行病为借口来消灭民主制度。武汉功能增强研究实验的最大资助者是美国中情局（CIA），它们通过美国国际开发署（USAID）提供资金，甚至比福奇的资助还要多；五角大楼排第二；福奇第三。五角大楼通过福奇向武汉实验室输送资金，每年17亿美元，现在是22亿美元。他们还因福奇的生物武器研究给他增加了68%的薪水。这就是为什么即使奥巴马让他在2014年停止功能增强研究时，他仍继续此项目的原因之一。他们将其武器化，以便让人无法追溯到他们将病毒投放到世界上的时间。”】
+[综合媒体12月21日消息，20日北京网信办消息显示，知乎网负责人遭北京市网信办约谈，原因是多次发布或者传输中共禁止的信息。当局要求知乎网立即整改，处理相关责任人。同时，北京市网信办已立案对知乎网进行行政处罚。](https://tw.news.yahoo.com/%E7%9B%A3%E7%AE%A1%E4%BA%92%E8%81%AF%E7%B6%B2-%E5%8C%97%E4%BA%AC%E7%B6%B2%E4%BF%A1%E8%BE%A6%E7%B4%84%E8%AB%87-%E7%9F%A5%E4%B9%8E-012200691.html)
 
-[https://gettr.com/post/pk2ab53d7a](https://gettr.com/post/pk2ab53d7a)
+[自2020年底以来，中共加大了对中国科技公司的言论监管力度。除了被点名批评和约谈，许多科技企业都受到不同程度的罚款。在20年宽松管制下蓬勃发展的中国互联网行业由此深受重创。](https://tw.news.yahoo.com/%E7%9B%A3%E7%AE%A1%E4%BA%92%E8%81%AF%E7%B6%B2-%E5%8C%97%E4%BA%AC%E7%B6%B2%E4%BF%A1%E8%BE%A6%E7%B4%84%E8%AB%87-%E7%9F%A5%E4%B9%8E-012200691.html)
 
-**5.Newsmax 12月20日在盖特发文：**
+[消息一出，知乎在纽约上市的股票在盘前交易中下跌超过10%。](https://tw.news.yahoo.com/%E7%9B%A3%E7%AE%A1%E4%BA%92%E8%81%AF%E7%B6%B2-%E5%8C%97%E4%BA%AC%E7%B6%B2%E4%BF%A1%E8%BE%A6%E7%B4%84%E8%AB%87-%E7%9F%A5%E4%B9%8E-012200691.html)
 
-路透社报道称，CNN 12月18日在一份内部备忘录中告诉员工，由于中共病毒病例数的增加，对于CNN的非必要员工，将关闭其在美国的办事处。不在办公室工作的员工，其办公室将被关闭。CNN总裁杰夫·扎克（Jeff Zucker）在备忘录中说：“我们这么做是出于非常谨慎的考虑，通过尽量减少在办公室的人数来保护那些将在办公室工作的人。”
+秘翻新闻文洋编辑报道
 
-[https://gettr.com/post/pk38mpeda6](https://gettr.com/post/pk38mpeda6)
+**6、网红主播薇娅因税务问题被罚13.41亿元 **
 
-**6.Newsmax 12月20日发推说：**
+[综合媒体12月20日消息，20日下午四点中共央视新闻微博发文表示，浙江省杭州市税务局稽查局称，有直播一姐封号的网络主播薇娅在2019年至2020年期间，偷逃税款6.43亿元，少缴税款0.6亿元，故对其作出处罚，令其追缴税款、加收滞纳金并处罚款共计13.41亿元。](https://finance.sina.com.cn/jjxw/2021-12-20/doc-ikyakumx5334407.shtml)
 
-美国密歇根州上周公布的数据显示，有强制口罩规定的学校与不强制戴口罩的学校，在新冠的病例率上并无差别。
+[有媒体注意到，目前，薇娅遭到当局全网封杀，其微博、淘宝直播、抖音、快手等平台的帐号均被封禁，平台上过往的直播历史被全部删除。对于薇娅直播间被封，淘宝客服称，因违反相关规定，该主播帐号已被冻结。](https://finance.sina.com.cn/jjxw/2021-12-20/doc-ikyakumx5334407.shtml)
 
-【推文转报道，与实施严格口罩规定的学校相比，没有口罩规定的学校的平均病例数要少。路易斯维尔大学 (University of Louisville) 的研究人员今年 8 月发布的一项经过同行评审的研究也有类似的发现，结论是“口罩强制令可能不会影响新冠病例的增长。”】
+[在央视新闻发文前就有新华社内部人士爆料称，在薇娅税务问题后，接下去还会爆李佳琦的20亿、老罗的10亿，同时榜单上的这些会一个一个被收割。](https://finance.sina.com.cn/jjxw/2021-12-20/doc-ikyakumx5334407.shtml)
 
+秘翻新闻菜园子、二丫编辑报道
 
+**7.中共国原材料涨价已波及衣食住行**
 
-> The state of Michigan last week published data that shows schools with no mask mandates had "similar" COVID-19 case rates to schools with mandates. [https://t.co/WQGSxoo1aS](https://t.co/WQGSxoo1aS)
-> — Newsmax (@newsmax) [December 20, 2021](https://twitter.com/newsmax/status/1472877007335612416?ref_src=twsrc%5Etfw)
+[据《大纪元》12月20日消息，中共国家统计局于12月9日公布的CPI环比上涨0.4%，同比上涨了2.3%，涨幅比10月份扩大0.8个百分点。其中衣着、食品和交通通信的价格和10月份环比的增幅分别是0.3%、2.4%和0.3%。与去年11月相比，涨幅最大的是交通工具用燃料，同比涨幅35.7%，其次是新鲜蔬菜涨了30.6%。](https://www.epochtimes.com/gb/21/12/19/n13446976.htm)
 
+[12月14日，中共统计局公布了2021年12月上旬重要农业原料的市场价格变动情况。三项农业生产资料中，小颗粒尿毒和95%原药的农药草甘膦，涨幅分别为1.0%和1.1%，复合肥下降了0.3%。这或推动食材在未来涨价。](https://www.epochtimes.com/gb/21/12/19/n13446976.htm)
 
+[此外，在居住方面，租房的居民或将通过降低居住标准来调整租房的费用，但11月份住房的水电燃料价格环比上涨0.2%，同比上涨4.4%，已超过了鲜果同比4.1%的涨幅。](https://www.epochtimes.com/gb/21/12/19/n13446976.htm)
 
-**7.新唐人12月20日在盖特发文：**
+秘翻新闻二丫编辑报道
 
-皇家加勒比公司的“海洋交响乐号”游轮上至少有48名乘客的新冠核酸检测呈阳性，尽管该公司已要求所有12岁及以上的游客都需要出示疫苗接种证明才能登船。
+**8、声援宋庚一 湖南怀孕女教师被关精神病院 **
 
-【盖文转报道，皇家加勒比公司的发言人莱安·西耶拉-卡罗（Lyan Sierra-Carro）向当地媒体证实，12月4日，游轮上的一位乘客被确认感染了奥米炕变种病毒。检测呈阳性的乘客有轻微症状或没有症状。】
+[综合媒体12月20日消息，17日湖南省永顺县砂坝镇学校教师李田田在微博发帖声援宋庚一，称自己认为宋庚一的授课内容没有问题，有问题的是她的学生、开除她的学校、官方的报导，以及沉默的知识份子。李田田的微博目前疑似已遭封锁，无法连结。](https://news.ltn.com.tw/news/world/breakingnews/3775123)
 
-[https://gettr.com/post/pk5gfd3b5d](https://gettr.com/post/pk5gfd3b5d)
+[19日李甜甜发出紧急呼救表示，她因声援宋庚一，连续2天被永顺县教育局和公安局登门威胁，对方以精神有问题为由，要求她住院打针治疗，否则将予以逮捕。怀有身孕的她表示，如自己死了，那就是一尸两命！](https://news.ltn.com.tw/news/world/breakingnews/3775123)
 
-**8.真正美国之声12月21日发推说：**
+[据《自由亚洲》报导称，李田田已被强行送到永顺县精神病院。另有报导指出，教育局和公安局人员在登门拜访时要求她签认罪书，否则将开除公职，并声称本案情节严重，是省长亲自下文要求处分。但李田田拒绝认罪，警方便警告她，若手机定位调查结果显示李田田真的发了声援宋庚一的微博，就跟宋庚一一样是汉奸，要被枪毙。](https://news.ltn.com.tw/news/world/breakingnews/3775123)
 
-哈佛大学表示，由于新冠病例的“快速上升”，在明年1月份的前三周将进行远程授课，尽管97%的学生和员工都已接种了新冠疫苗。
+秘翻新闻二丫编辑报道
 
-【推文转报道，哈佛大学12月18日在给学生的一封信中说：“预计奥米炕变种将在未来几周内成为全国的主导变种，可能在1月的前几周达到顶峰。如果公共卫生条件允许，1月下旬将重新开放校园。”哈佛大学还鼓励学生接种加强针，戴口罩，保持社交距离，并接受核酸测试。】
+**9、佳兆业集团追随恒大脚步商讨债务重组**
 
+[综合媒体12月21日消息，本月7日主营房地产业务的佳兆集团业未能偿还到期的4亿美元债券，已触发了其所有离岸债券的交叉违约条款，促使其评级下调至限制性违约级别。至此佳兆业集团可能和中国恒大双双步入债务重组之路。](https://www.hk01.com/%E8%B2%A1%E7%B6%93%E5%BF%AB%E8%A8%8A/714331/%E4%BD%B3%E5%85%86%E6%A5%AD%E4%BB%8A%E5%BE%A9%E7%89%8C-%E4%B8%80%E7%9B%B4%E8%88%87%E5%84%AA%E5%85%88%E7%A5%A8%E6%93%9A%E6%8C%81%E6%9C%89%E4%BA%BA%E5%95%86%E8%AD%B0%E5%85%A8%E9%9D%A2%E5%82%B5%E5%8B%99%E9%87%8D%E7%B5%84%E8%A8%88%E5%8A%83)
 
+[20日佳兆业集团表示，该公司未能按期偿还总共117.8亿的美元债券，也未能支付三只其它票据共计逾1.05亿美元的到期利息。目前该公司正与债券持有人商讨一项范围广泛的重组计划。](https://www.hk01.com/%E8%B2%A1%E7%B6%93%E5%BF%AB%E8%A8%8A/714331/%E4%BD%B3%E5%85%86%E6%A5%AD%E4%BB%8A%E5%BE%A9%E7%89%8C-%E4%B8%80%E7%9B%B4%E8%88%87%E5%84%AA%E5%85%88%E7%A5%A8%E6%93%9A%E6%8C%81%E6%9C%89%E4%BA%BA%E5%95%86%E8%AD%B0%E5%85%A8%E9%9D%A2%E5%82%B5%E5%8B%99%E9%87%8D%E7%B5%84%E8%A8%88%E5%8A%83)
 
-> .[@Harvard](https://twitter.com/Harvard?ref_src=twsrc%5Etfw) University says classes will be mostly remote for the first three weeks of January due to a "rapid rise" in [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) cases, despite the fact that 97% of all students and employees are vaccinated.[https://t.co/p6FfisCr9q](https://t.co/p6FfisCr9q)
-> — Real America's Voice (RAV) (@RealAmVoice) [December 20, 2021](https://twitter.com/RealAmVoice/status/1473075743030591491?ref_src=twsrc%5Etfw)
+秘翻新闻二丫编辑报道
 
+**10、恒大多块土地归还政府 股价受重挫**
 
+[综合媒体12月20日消息，恒大集团债务危机持续引发全球关注。其位于四川省成都市的两块地皮因两年未动工，20日被当地政府无偿收回。此消息传出后，再度重挫市场对恒大的信心，港股的恒大系股票20日全面走低。](https://www.epochtimes.com/b5/21/12/20/n13448642.htm)
 
-**9.印太新闻 – 关注中共威胁 12月20日发推说：**
+[四川省成都市龙泉驿区规划和自然资源局12月17日发布的两份公告称，恒大涉及的两块土地，自从取得使用权后一直未动工，且已超过两年，认定为闲置土地，成都市龙泉驿区规划和自然资源局将无偿收回。](https://www.epochtimes.com/b5/21/12/20/n13448642.htm)
 
-澳英美联盟的任务之一是打破中共对稀土的控制。中共掌控了太多对先进技术来说至关重要的原材料。
+[有报道指出，上周早些时候海口市政府也采取了同样的行动。海口市自然资源和规划局12月13日发布一则不动产权证书作废公告，公告显示恒大集团位于海口的数宗地块被无偿回收。](https://www.epochtimes.com/b5/21/12/20/n13448642.htm)
 
+[恒大新能源汽车集团上月底也表示，已将总价值13亿元人民币的七个项目的未开发土地退还给政府。](https://www.epochtimes.com/b5/21/12/20/n13448642.htm)
 
-
-> Breaking [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)'s grip on rare earths should be an [#AUKUS](https://twitter.com/hashtag/AUKUS?src=hash&amp;ref_src=twsrc%5Etfw) mission
-> 
-> Beijing has too much control over critical materials vital to advanced technology.[https://t.co/cTf70awdi1](https://t.co/cTf70awdi1)
-> — Indo-Pacific News – Watching the CCP-China Threat (@IndoPac\_Info) [December 20, 2021](https://twitter.com/IndoPac_Info/status/1472899619717713923?ref_src=twsrc%5Etfw)
-
-
-
-**10.盖特官方12月21日在盖特发文：**
-
-杰森米勒在接受媒体El American采访时说：“我们创建盖特是因为我们想建立一个这样的社交媒体平台，允许人们表达他们的政治观点，但同时仍有明确的规则和服务条款，以确保为所有盖特用户提供一个安全的平台环境。我们不认为这是一个关于盖特与Truth Social竞争的故事，而是一个关于多个新平台挑战硅谷垄断的故事。平台服务于不同的目，据我们了解，Truth Social将专注于流媒体服务和保守派节目，而在盖特，我们专注于直播、短视频网络、双币加密货币以及基于区块链的支付系统。”
-
-[https://www.gettr.com/post/pk5ype7d10](https://www.gettr.com/post/pk5ype7d10)
-
-
-
-> "We don’t think this is a story about GETTR versus Truth Social, but rather one about multiple new platforms challenging the Silicon Valley monopolies.” 
-> 
-> In-depth interview with [@JasonMillerinDC](https://twitter.com/JasonMillerinDC?ref_src=twsrc%5Etfw) for [@ElAmerican\_](https://twitter.com/ElAmerican_?ref_src=twsrc%5Etfw) [https://t.co/d1lBlHJq4d](https://t.co/d1lBlHJq4d)
-> — Ben Kew 🐶 (@ben\_kew) [December 20, 2021](https://twitter.com/ben_kew/status/1472957559829155840?ref_src=twsrc%5Etfw)
-
-
-
-[https://twitter.com/ben\_kew/status/](https://twitter.com/ben_kew/status/)
-
-**11.Disclose.tv 12月21日发推说：**
-
-12月17日在空军一号上与总统拜登共度了一段时间的白宫工作人员，尽管已接种了加强针，但仍感染了奥米炕变种。在接触了感染者后，拜登12月19日的核酸检测结果为阴性，12月20日早上的检测结果也为阴性。
-
-
-
-> JUST IN – Vaccinated and boosted White House staffer infected with [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) after spending time on AF1 with Biden on Friday.
-> — Disclose.tv (@disclosetv) [December 21, 2021](https://twitter.com/disclosetv/status/1473086008182906882?ref_src=twsrc%5Etfw)
-
-
-
-**12.Disclose.tv 12月21日发推说：**
-
-接种了加强针疫苗的前美国总统川普对那些质疑新冠疫苗的人说，你正被他们玩弄于股掌之间。
-
-
-
-> NEW – Trump: "You’re playing right into their hands" when you doubt the [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) vaccines.[pic.twitter.com/GXmxQVNezF](https://t.co/GXmxQVNezF)
-> — Disclose.tv (@disclosetv) [December 20, 2021](https://twitter.com/disclosetv/status/1472987776786354177?ref_src=twsrc%5Etfw)
-
-
-
-**13.郭文贵先生在12月20日的盖特视频中说：**
-
-北京冬奥会这场政治游戏的唯一受害者就是10亿中国人民。所有的中国人将为这个完全没有任何价值的愚蠢的国际政治秀付出几千亿美元的代价。可悲、可怜、可恨至极！这是人类全球最昂贵的一场灾难游戏。昨天的大直播在国内影响巨大。在世界经济即将崩塌之前，我们爆料革命的声音是世界上唯一救人的忠言警告。
-
-[https://gettr.com/post/pk5p5a0268](https://gettr.com/post/pk5p5a0268)
-
-**以上社交媒体新闻由 巴拉克和Stephanie 联合编译报道**
+秘翻新闻二丫编辑报道
 
 发布:星星
 
