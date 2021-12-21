@@ -2,20 +2,30 @@
 ---
 
 
-## 世界最大游轮“海洋交响乐号”爆发新冠疫情 至少48人确诊
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1777176/)
+## 台湾理智回击王毅外长“战斗到底”的誓言
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1777360/)
 
-#### 翻译/撰稿：zzballack
+撰稿：Jenny
+![](https://assets.gnews.org/wp-content/uploads/2021/12/IMG_2410.jpg)截图自9News
+本周一，外交部长王毅发表了一段关于收复台湾的演讲，措辞强硬。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-2-17.jpg)图片来源：Cruise Industry News
-据《NBC新闻网》（NBC News）12月20日报道，皇家加勒比（Royal Caribbean）公司12月20日表示，该公司旗下的世界最大之一游轮“海洋交响乐号”（Symphony of the Seas）18日发生群聚感染事件，有48位乘客和船员新冠检测呈阳性。
+**他说：“如果美国在这个民主治理的岛屿上提出挑战，北京 “将战斗到底”。同时他将目前紧张局势的原因归咎于台湾政府试图 “依靠美国获得独立”。**
 
-载有近7000人的“海洋交响乐号”游轮本月11日从迈阿密出发，8天7夜的旅途中曾停靠加勒比海的圣马丁岛（St. Martin）、圣托马斯岛（St. Thomas），18日返回迈阿密，结束航程。皇家加勒比公司在声明中表示：“在航行期间发现一名乘客确诊后，立即展开接触追踪，扩大病毒筛检，目前至少有48人确诊。全船95%的人都已完全接种疫苗，阳性患者中有高达98%的人已经接种了两剂疫苗，不过症状轻微或没有症状。每一个人都迅速被隔离，我们将持续监测他们的健康状况。有6位受影响的客人在返回迈阿密之前下了船。”
+**他重申中国的目标是将台湾置于大陆政府的控制之下。并说台湾是一个最终会回家的 “流浪者”，而不是一个可以被玩弄的棋子，中国必须而且一定会实现统一”！**
 
-该公司称，“海洋交响乐号”的全体工作人员都接种了疫苗，并每周进行核酸测试。而且要求12岁及以上乘客必须接种两剂辉瑞或莫德纳疫苗，或者一剂强生疫苗。
+**台湾当局针对王毅的讲话作出了理智的回应，坚称只有其公民才有权决定该岛的未来。台湾负责中国政策的大陆事务委员会说，该岛从未是中华人民共和国的一部分。**
 
-新闻来源：[Nearly 50 on Royal Caribbean’s Symphony of the Seas cruise ship test positive for Covid-19](https://www.nbcnews.com/news/us-news/nearly-50-royal-caribbeans-symphony-seas-cruise-ship-test-positive-cov-rcna9346)
+**他在一份声明中说：”台湾既不是一个流浪者，也不是一个棋子。只有2,300万台湾人民有权决定台湾的未来，绝对不会接受一个专制的政治制度所规定的道路。”**
+
+美国参议院外交委员会于12月8日就“未来美国对台政策”举行听证会。外委会主席、民主党以及共和党的议员都对中共咄咄逼人的胁迫行为表示忧虑。他们认为，“美国必须展现对台湾安全防卫的承诺，不能让北京对美国防卫台湾的决心有所怀疑”。
+
+台湾作为一个民主国家不论政治经济，都远远领先于一党专政的中共。台湾从未被中共控制过，谈何“回家”？实在搞不懂中共哪来的一厢情愿。
+
+部分翻译自：[9 News](https://www.9news.com.au/world/china-will-fight-to-finish-over-taiwan-foreign-minister-wang-yi-warns-us/9f8b65fb-ef7d-4861-b472-ca92e2805d1f)
+
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-1.jpg)
+
 
  
 

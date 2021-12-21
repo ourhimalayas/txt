@@ -2,28 +2,20 @@
 ---
 
 
-## 前总统川普接种了中共病毒疫苗加强针
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1777110/)
+## 世界最大游轮“海洋交响乐号”爆发新冠疫情 至少48人确诊
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1777176/)
 
-#### 撰稿：彩虹
+#### 翻译/撰稿：zzballack
 
 #### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-32.jpg)图片来源：CNN
-12月20日，《新闻极限》报道，前总统川普说自己接种了中共病毒疫苗加强针。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-2-17.jpg)图片来源：Cruise Industry News
+据《NBC新闻网》（NBC News）12月20日报道，皇家加勒比（Royal Caribbean）公司12月20日表示，该公司旗下的世界最大之一游轮“海洋交响乐号”（Symphony of the Seas）18日发生群聚感染事件，有48位乘客和船员新冠检测呈阳性。
 
-报道说，周日，前总统川普在达拉斯出席活动时，与记者比尔·奥莱利（Bill O’Reilly）交谈，被问及是否已经打了加强针，川普坐在台上回答说：“是的！”
+载有近7000人的“海洋交响乐号”游轮本月11日从迈阿密出发，8天7夜的旅途中曾停靠加勒比海的圣马丁岛（St. Martin）、圣托马斯岛（St. Thomas），18日返回迈阿密，结束航程。皇家加勒比公司在声明中表示：“在航行期间发现一名乘客确诊后，立即展开接触追踪，扩大病毒筛检，目前至少有48人确诊。全船95%的人都已完全接种疫苗，阳性患者中有高达98%的人已经接种了两剂疫苗，不过症状轻微或没有症状。每一个人都迅速被隔离，我们将持续监测他们的健康状况。有6位受影响的客人在返回迈阿密之前下了船。”
 
-根据公开的视频，此时一些观众发出了嘘声，川普随即一边挥手一边说：“别，别，别……”
+该公司称，“海洋交响乐号”的全体工作人员都接种了疫苗，并每周进行核酸测试。而且要求12岁及以上乘客必须接种两剂辉瑞或莫德纳疫苗，或者一剂强生疫苗。
 
-随后，川普说他反对强制接种中共病毒疫苗后，受到了大声欢呼。
-
-据《新闻周刊》报道，川普告诉人群：“如果你不想接种，就不应该强迫你接种（中共病毒疫苗）”。
-
-另据《纽约时报》3月份报道，川普和他的妻子梅拉尼娅（Melania）在2021年1月份离任前悄悄接受了中共病毒疫苗接种。在10月份时，他告诉雅虎财经说自己接种了辉瑞公司的中共病毒疫苗。
-
-**新闻来源**
-
-[Trump: I Received COVID Booster Shot](https://www.newsmax.com/newsfront/trump-covid-vaccine-booster-shot/2021/12/20/id/1049365/)
+新闻来源：[Nearly 50 on Royal Caribbean’s Symphony of the Seas cruise ship test positive for Covid-19](https://www.nbcnews.com/news/us-news/nearly-50-royal-caribbeans-symphony-seas-cruise-ship-test-positive-cov-rcna9346)
 
  
 

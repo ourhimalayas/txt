@@ -2,27 +2,34 @@
 ---
 
 
-## 数据显示:接种“病毒疫苗”正在引发数十万人的精神障碍
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1777823/)
+## 中共的灭美计划由来已久
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1777923/)
 
-本文作者：Rebecca (一切心皆不可得！)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image001-15.png)
-据《自然新闻网》报道，世界卫生组织（WHO）的VigiBase数据显示，至少有121,559名“病毒疫苗“接种者得了一种或多种精神障碍疾病。
+作者：纽约香草山农场 – 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月15日，郭文贵先生在直播中爆料，中共自上世纪90年代就开始研究低成本的灭美、灭白计划。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-260.jpg)
+根据早年在中共国的经历，郭先生表示，共产党认定消灭美国和白人的最好办法，就是生化武器和化学武器，而且生化武器要疫苗化，化学武器要规模化。不但如此，中共还在一直研究纽约、洛杉矶等美国大城市的水源和风向等环境因素，便于放毒。
 
-最常见的问题是失眠，其次是焦虑、”混乱状态”、睡眠障碍、”紧张”、”迷失方向”、”急性应激障碍”、”不安”、幻觉、抑郁、”情绪低落”、”惊恐发作”、”睡眠质量差”、”谵妄”、”激动”、噩梦、”异常的梦”、饮食障碍、”精神障碍 “或 “急性精神病 “或 “精神病行为”，以及抽搐障碍。
+郭先生强调，中共在西方各个国家，用威胁和蓝金黄的手段，绑架了这些国家腐败的政商等各界人员。中共企图控制世界的野心由来已久，但是中共的强大及其计划不断得逞，更离不开美国贪婪的华尔街券商及其幕后资本家的加持。
 
-VigiBase还显示了213份接种疫苗后濒死体验报告，57份自杀报告和25份 “爆炸声综合症 “报告，生活新闻网（LifeSiteNews）将这种情况描述为 “听到非常大的噪音，如爆炸、枪声或铙钹声，好像就在他们身边”。
+参考链接: 
+1) . [2021年12月15日 文贵大直播：Billboard和iTunes全球打榜记录- Hcoin To The Moon；欧美制裁 奥运人权经济；疫苗灾难 危害验证抗议 ；国内经济 地产负债脱钩；终共行动 中共是否报复](https://gtv.org/video/id=61b9e8037882000d5100be68)
+2) . [中共的病毒疫苗生化武器计划与美国华尔街的贪婪](https://gnews.org/zh-hans/1766753/)
 
-同样，在英国黄卡网站——不良事件报告系统，也收到近3万份因接种病毒疫苗后导致的精神障碍病例的记录。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-[新闻来源链接](https://www.naturalnews.com/2021-12-14-covid-vaccines-triggering-psychiatric-disorders-hundreds-thousands.html#)
+总编：Zion文恩
+编辑：Lakeman文仁
+校正/发稿：Fei797
 
-
-
-审核校对：sherryok (水云间)
-
-上传排版：漂流瓶
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
