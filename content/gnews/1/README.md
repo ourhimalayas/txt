@@ -2,32 +2,68 @@
 ---
 
 
-## 亚马逊“中国书店”洗脑全球
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1776234/)
+## 【零时差】新闻速递：新西兰奥克兰夫妇在COVID-19封锁期间逃避限制令赴南岛小镇瓦纳卡遭法庭处罚
+` Zero-Day【零时差】` [轉載自GNews](https://gnews.org/zh-hans/1776238/)
 
-整撰：奔跑的黄小鸭
-![](https://assets.gnews.org/wp-content/uploads/2021/12/20211220-亚马逊中国书店洗脑全球.png)
-图片来源：https://www.amazon.com/stores/page
+**[新冠病毒](https://www.newshub.co.nz/home/storytag.:storyTag=newshub:story-tags___cd___coronavirus.:offset=0.html)**
+![police-supplied-thomas-phillips-toyota-hilux-ute-1120+(1).jpg](https://assets.gnews.org/wp-content/uploads/2021/12/0F1D1EE7-3C81-479D-8E88-83DFFF5DB615.jpeg)威廉·威利斯和汉娜·罗恩斯利。图片来源：新西兰警方/提供
+据称，这对奥克兰夫妇[使用基本工人豁免来逃避 4 级警报](https://www.newshub.co.nz/home/new-zealand/2021/09/wanaka-couple-s-identity-revealed-as-william-willis-hannah-rawnsley-after-name-suppression-lapses.html)并前往新西兰南岛小镇瓦纳卡，遭到指控并且被传唤出庭。
 
-12月17日，路透社发表一篇特别报道说，美国电商巨头亚马逊与中共新闻出版总署的一家“执行机构”合作，建立专门的“中国书店”，推广《习近平文选》等中共中宣部重点推广的书籍。亚马逊对中共市场寄予的高度热情不言而喻，但或许亚马逊并不知道，将自己拒之门外的最关键人物竟然是中共国公主-李木子。
+这对奥克兰夫妇利用基本工作豁免来逃避新西兰奥克兰地区 COVID-19 封锁的行为已被当地法庭判定有罪，并且需要接受处罚。
 
-2004年，亚马逊收购中共的卓越网进入中共国市场后，希望能发展电子书业务并推销Kindle，为此需要得到中共中央宣传部之下国家新闻出版局多个部门的层层批准。
+35 岁的马术运动员威廉·威利斯和 26 岁的律师汉娜·[罗恩斯利于](https://www.newshub.co.nz/home/new-zealand/2021/09/w-naka-couple-william-willis-hannah-rawnsley-to-face-court-over-alleged-covid-19-breach-after-police-investigation.html)9 月被指控[未遵守 COVID-19 健康令](https://www.newshub.co.nz/home/new-zealand/2021/09/w-naka-couple-william-willis-hannah-rawnsley-to-face-court-over-alleged-covid-19-breach-after-police-investigation.html)。他们被指控使用基本工人豁免，穿过奥克兰南部边界前往汉密尔顿，然后经惠灵顿飞往皇后镇，然后开车前往瓦纳卡。当时，奥克兰处于[COVID-19](https://www.newshub.co.nz/home/storytag.:storyTag=newshub:story-tags___cd___coronavirus.:offset=0.html)警报级别 4。
 
-路透社援引参加谈判的前高管披露的信息说，亚马逊在中共出售电子书和Kindle还未拿到中共政府部分的全部批准。在这种背景下，亚马逊公共团队推出了“中国书店”项目，希望用这种心照不宣的方式，赢得中共政府更多的支持。亚马逊向中共当局夸口说，这是亚马逊唯一用国家命名的网店。
+威廉·威利斯和汉娜·罗恩斯利在警方调查后因涉嫌 COVID-19 违规而被法庭传唤。
 
-中共国际图书贸易总公司作为新闻出版总署的“执行机构”参与了“中国书店”项目。
+周二，两人于通过视听链接在 Papakura 地方法院出庭并认罪。
 
-该报道还援引了一份公司内部文件。内部文件显示，“中国书店”项目最终提供了9万多份出版物供出售，虽没有产生大量收入，但随着亚马逊公司在中共发展Kindle电子书设备、云计算和电子商务业务，相信它会成为亚马逊赢得中共支持的关键。”
+周二下午，威利斯被罚款 750 纽币，并被勒令支付 130 纽币的法庭费用。
 
-从“中国书店”网页可见，大部分出售的是宣传中共政府立场和成就的书籍，包括在显著位置推销《习近平治国理政》，描绘中共对抗冠病疫情等书籍。
+![威廉·威利斯和汉娜·罗恩斯利。]()
 
-这份公司内部文件还提到，2018年，中共国家互联网信息办公室要求亚马逊从该公司拥有的电影信息和评论平台[IMDb](https://www.imdb.com/title/tt8081062/reviews?ref_=tt_ov_rt)删除中共影片《厉害了，我的国》的链接，原因是这部宣扬习近平政绩的影片遭到恶评。《厉害了，我的国》目前仍留在IMDb，从可查到的评论只剩下23条，评分只有2.3（满分共10分），共有3113条评论仅给了1分，占比82%。亚马逊对路透社辩解说：“某些就《厉害了，我的国》的题目而提交的评论被删除，这是因为它们违反了我们的用户评论内容准则，其中大多数为离题。”
+目前，罗恩斯利被无罪释放，但被勒令向一家公认的慈善机构捐赠 500 纽币。
 
-郭文贵先生在大直播里透露，“亚马逊的电子书要卖出天价，代理人是李木子，说没兴趣不想干。” “过去十多年，中共国根本没有常委，习家人几乎控制着整个国家，习近平的女儿叫李木子，习近平和彭丽媛的日常都是李木子说了算”。
+虽然这对夫妇原定于 10 月 14 日出庭，但 COVID-19 警报级别导致了一系列延误。
 
-当前美国总统川普在为5000万的贸易协议与中共讨价还价的时候，华尔街已悄悄向中共国投入了9万亿美元，仅苹果一家在几年前跟中共做了2750亿美元的交易。列宁曾经说过，“资本家会卖给我们那根用来绞死他们的绳索。”独裁者的思维方式总是惊人的相似，华尔街一定会为自己的贪婪付出沉重的代价。
+这起案件发生在全国处于封锁状态，这对夫妇受到了公众的密切关注。这对夫妇于 9 月中旬被点名，此后，他们发布了一份声明，就他们的行为向新西兰道歉。
 
-参考来源：[路透社：亚马逊为讨好北京而与中国宣传机构合作](https://www.voachinese.com/a/reuters-special-report-amazon-works-with-chinese-propaganda-arms-20211217/6359603.html)
+这对夫妇说：
+
+“最初，我们在收到死亡威胁后寻求隐姓埋名，我们真的很担心自己的安全。但是，我们仍然致力于为我们的行为负责，不会寻求一直隐姓埋名。”
+
+“我们明白，我们的国家消灭 COVID-19，需要严格遵守。我们的行为让每个人都失望了，我们衷心道歉。”
+
+![瓦纳卡。]()瓦纳卡。照片来源：盖蒂图片社
+
+两人还说，在前往瓦纳卡之前和返回后，他们的 COVID-19 测试呈阴性，并且没有去过任何感兴趣的地方，也没有密切接触。
+
+这对夫妇补充说，他们在旅行前后都接受了COVID-19 测试，朋友和家人并不知道他们的旅行计划。
+
+威利斯的母亲、地方法院法官玛丽-贝丝·夏普（Mary-Beth Sharp）也发表声明谴责他们的行为。
+
+她表示对他们的行为感到“震惊”并且“非常尴尬”。
+
+“如果我知道他们的意图，我当然不知道，我会告诉他们不要如此轻率和自私地行事。我不会宽恕他们的行为。”
+
+编译/米拉娅
+
+审阅/丘杰斯
+
+上传/天赐良闻
+
+[新闻援引链接](https://www.newshub.co.nz/home/new-zealand/2021/12/auckland-couple-who-escaped-to-w-naka-during-lockdown-plead-guilty.)
+
+
+
+[相关新闻链接1.](https://www.newshub.co.nz/home/new-zealand/2021/09/w-naka-couple-william-willis-hannah-rawnsley-to-face-court-over-alleged-covid-19-breach-after-police-investigation.html)
+
+[相关新闻链接2.](https://www.newshub.co.nz/home/new-zealand/2021/09/wanaka-couple-s-identity-revealed-as-william-willis-hannah-rawnsley-after-name-suppression-lapses.html)
+
+
+
+
+
+
 
  
 

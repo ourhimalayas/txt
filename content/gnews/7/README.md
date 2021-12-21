@@ -2,44 +2,22 @@
 ---
 
 
-## 中共使劲浑身解数，依旧难以挽回香港立法会选举投票人数创新低
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1776171/)
+## 美国游轮上48人检测出中共病毒，大多数人已接种疫苗
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1776204/)
 
-撰稿：日本方舟农场 Andy5
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
-尽管中共极尽宣传、呼吁、威胁之能事，依旧难以挽回香港立法会选举投票人数降至历史最低。
-![](https://imgcdn.cna.com.tw/www/WebPhotos/800/20211220/1152x768_20211220000120.jpg)图片来自cna.com.tw
-中共联合港共政府，在所谓“爱国者治港”之后首次立法会选举之前，出台了一系列政策来提高投票率。例如在深圳开设投票点，免除一些符合条件人士赴港投票时本需要的防疫隔离，再比如让成龙、谭咏麟等港奸艺人呼吁投票，让亲共人士警告泛民派跟中共作对没有好下场等等举措。然而这依旧让本次选举仅有140多万票，投票率也仅仅只有30%，跌破了一直以来的40%以上投票率，创有立法会选举以来的新低。 分析指出（第六条CNA），历届地方直选中，泛民票的得票率一般高于亲共的建制派，而本次30%的投票率正好符合投票者中支持亲共建制派的人数比例。
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1088.png)[图片来源](https://news.yahoo.co.jp/articles/40d0d1d1e984f14997fe9f516b190d1a19cc49a9#:~:text=%E7)
+据(路透社）20日报道，美国邮轮运营商皇家加勒比集团周四表示，其邮轮“海洋交响乐”号上的48人检测出感染了中共病毒。
 
+皇家加勒比公司称，这48人没有症状或有轻微症状。这艘载有6,091名乘客和船员的游轮于12月11日离港，在12月18日返回了佛罗里达州的迈阿密。船上95％的人，以及98％的检测结果呈阳性的人都接种过疫苗。
 
+人们越来越担心Omicron的扩散可能会破坏邮轮业的复苏。
 
-新闻链接:
+信息源：[米クルーズ船で48人がコロナ陽性、大半がワクチン接種済み](https://news.yahoo.co.jp/articles/40d0d1d1e984f14997fe9f516b190d1a19cc49a9#:~:text=%E7)
 
-[国际时评|快评：百万港人用实际行动粉碎谎言与污蔑](https://china.huanqiu.com/article/463RDs0LenX)
-
-[香港民主党前副主席参选立法会：“泛民”应明白，触碰中央红线既不聪明也没好处](http://www.hkcd.com/hkcdweb/content/2021/12/19/content_1312941.html)
-
-[有片 | 成龍曾志偉譚詠麟呼籲市民投票](http://www.hkcd.com/hkcdweb/content/2021/12/19/content_1312941.html)
-
-[投票率30.2%历届最低　立法会步入“爱国者治港”时代](https://www.orientaldaily.com.my/news/international/2021/12/20/457056)
-
-[湾区/赶赴口岸投票港人 不乏会计科技专才](http://www.takungpao.com/news/232109/2021/1220/667995.html)
-
-[香港立法會選舉投票率30.2%創新低 親政府建制派全勝](https://www.cna.com.tw/news/firstnews/202112200016.aspx)
-
-[二○二一年立法會換屆選舉──選民從內地返港投票安排登記服務今日截止](https://www.info.gov.hk/gia/general/202112/08/P2021120800327.htm)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-303.jpeg)
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
