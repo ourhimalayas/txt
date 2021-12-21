@@ -2,46 +2,37 @@
 ---
 
 
-## 港闻前线｜“完善”选制完败不合作运动 立法会选举投票率创历届新低
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1772994/)
+## 世界将进入数字货币的混战时代
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1773008/)
 
-**撰文/ 港台前线关注组｜发布日期/ 20/12/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Bank-Manager-Banner.jpg)
-**更多资讯请关注官方盖特｜please follow our Gettr （[https://gettr.com/user/hktwfrontline）](https://gettr.com/user/hktwfrontline%EF%BC%89)**
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月19日的大直播中，郭文贵先生详细分析了当前世界货币的现状及前景。他指出，法币的天量超发一定导致世界经济的彻底崩塌。数字货币将在废墟中崛起，世界即将进入数字货币的春秋战国时代，直到形成三国鼎立之势。新中国联邦喜联储和喜币将成为其中最重要的一支力量。
 
-昨日（20日）是中共中央“完善”香港选举制度后的首场立法会选举，市民反应冷淡，地区直选及功能组别的投票率均创历史新低。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide3-13.jpeg)
 
-有意思的是，截至晚上九点半，投票率仍然未够三成，所幸有本次新设的边境口岸投票站助攻，戏剧性的贡献了0.39个百分点，最终力保整体投票率不失三成，报收30.2%，创下1997年回归以来的历届最低，亦创下1991年立法局引入直选议席后的历史最低。
+自疫情开始以来，各国滥发货币导致通胀。全球高达200万亿到300万亿的天量债务，根本没有办法解决，唯一出路只能是摧毁原来的货币体系。数字货币应运而生，与法币共存一段时间后，最终必将取代法币。这是人类有史以来第一次，不用流血就改变了货币的属性。
 
-功能组别部分，过去曾属民主派票仓的界别，投票率同样是“跳楼式”大跌，创下1985年立法局首次引入间选后的历史最低。社福界投票率由2016年83.6%暴跌至仅余二成，教育界、法律界、会计界、工程界、建筑测量界、医疗衞生界同样创历史新低。
+郭先生认为，目前，人类已经身处网络战、货币战、疫苗战及生化病毒战之中，这是真正意义上的第三次世界大战。数字货币的战争首当其冲，各国都在争夺数字货币的定价权、发行权和监管权。
 
-#### **港人不合作：到处吃喝玩乐 唯独不去投票**
+最终，新中国联邦的喜马拉雅币，将会以去中心化的技术和中心化的监管，以黄金为锚的稳定生态，以及最多人使用的支付系统等优势，在这场数字货币从的混战中胜出，成为最重要的一极。
 
-港府为了推动市民出街投票，推出选举日免费搭车措施，一向守规的港人纷纷响应外出。港岛、新界、离岛等各大郊区均见汹涌人潮。
+参考链接：[2021年12月19日（下） 文贵大直播](https://gtv.org/video/id=61bf5c86bcb7f101bb70b057)
 
-两大乐园，迪士尼和海洋公园的游客络绎不绝，连工作人员都惊讶，从未见过这么多游客。港岛区度假胜地，赤柱和元朗赏枫胜地亦相当热闹，赤柱的海堤坐满了看海的港人。市区的各大商场，食肆都大排长龙… …
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
 
-**一时间，整个香港仿佛都被挤满了，到处是排队的人，唯独各个投票站门口冷冷清清。**
+总编：文真
+编辑：Kathy文艺
+校正/发稿：谐趣园
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Screenshot_20211220-113644_Instagram.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Screenshot_20211220-113632_Instagram.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Screenshot_20211220-113607_Instagram.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Screenshot_20211220-113548_Instagram.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-圖片來源：立場新聞
-#### **林郑月娥：感谢 130 万选民表达支持**
-
-特首林郑月娥于投票结束后发声明，指这次选举具广泛代表性、政治包容性、均衡参与性及公平竞争性。投票的130 万选民不但选出了他们心目中的立法会议员，也表达了经完善后的选举制度的支持。她期望与新一届立法会能衷诚合作，共同推动香港发展经济，融入国家发展大局，并致力改善民生，建设香港，贡献国家。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/SmartSelect_20211220-113520_Instagram.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Screenshot_20211220-113500_Instagram.jpg)
-
-往屆對比 圖片來源：立場新聞
-#### **新华社评论：投票表明是民心所向**
-
-新华社昨晚 9 时，以“百万港人用实际行动粉碎谎言与污蔑”为题，发表评论文章，指中央完善选制后，“众多香港选民用自己的实际行动『打脸』少数国外势力和反中乱港分子。”文章还指，投票表明是民心所向，“外部势力再怎么折腾，也阻挡不了这场关键选举的有序进行，阻挡不了香港特区在民主法治的大道上阔步前进”。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/港台前線-（HK模板）-2.jpg)
-来源｜[立場新聞](https://www.thestandnews.com/politics/ab免費搭車全民旅遊日-長洲赤柱西貢大棠人來人往)
 
  
 
