@@ -2,56 +2,44 @@
 ---
 
 
-## 【玫瑰看新闻】第209期 国际热点新闻
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1776392/)
+## 房地产绝对导致中共崩塌,战友们能拿一分是一分,赶紧走人
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1776466/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/PHOTO-2021-12-20-00-44-58-2.jpg)
-[布林肯出访东南亚寻求合作对抗中共国](https://www.dw.com/zh/%E5%B8%83%E6%9E%97%E8%82%AF%E5%87%BA%E8%AE%BF%E4%B8%9C%E5%8D%97%E4%BA%9A-%E5%AF%BB%E6%B1%82%E5%90%88%E4%BD%9C%E5%AF%B9%E6%8A%97%E4%B8%AD%E5%9B%BD/a-60105520)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片-1-30.jpg)
-美国国务卿布林肯首次出访东南亚国家。东南亚已成为美国和中共国这两个世界最大经济体之间的战略战场。在上周的英国[七国外长会议](https://m.dw.com/zh/g7%E5%A4%96%E9%95%BF%E4%BC%9A%E8%AE%AE-%E9%9B%86%E7%BB%93%E6%B0%91%E4%B8%BB%E5%9B%BD%E5%AE%B6%E6%8A%97%E8%A1%A1%E4%B8%AD%E4%BF%84%E5%A8%81%E8%83%81/a-60088896)之后，美国国务卿布林肯飞往印度尼西亚，开启了其上任以来首次东南亚之行。
+**郭文贵先生：**那么房地产商你要明白一个问题，你一个60多亿的注册公司，6亿多还是？我不知道恒大，你贷了两万亿的钱呐，这就是个骗局呀！这就是个犯罪集团呐！那哪一家又不是呢？连荣茂都是。
 
-12月13日，布林肯抵达印尼首都雅加达，此后他还将访问马来西亚和泰国。
+兄弟姐妹们，所以说这个房地产不是开玩笑的。冬奥会之后房地产崩塌的时候，你会看到无数的人魂飞魄散，为啥叫魂飞魄散？你不是没家了，不是像盘古撵到大街上冻你，零下4度。
 
-路透社指出，东南亚已成为美国和中共国这两个世界最大经济体之间的战略战场。
+还有人后面追杀要钱。就像四川我这个老的同事，是吧？人家原来挣的钱，人家买的房子，人家不欠贷款，不欠贷款那你不能卖。在北京有贷款的你现在你要听我的，还要假贷款还利息。你想这是个什么概念？哪有这种不要脸的事情啊！
 
-布林肯在同印尼总统佐科举行会晤时表达了美国对印尼的坚定承诺。布林肯还将在周二就美国亚太战略发表演讲。
+人家的房子你不让人家卖，人家贷款它要假贷款还你利息，你现在天下哪有这种事情？！我又要跟你上床，我还不想脱裤子，就这种是吧？这什么概念这是？！所以说房地产今天讲到这儿时候兄弟姐妹们，它一定是会成为中国共产党灭亡的最核心的，一定是导致雪崩的那个关键的雪花。
 
-美国在对亚太地区的战略问题上，拜登总统和前任特朗普之间并不存在根本的区别。两届政府都认为，面对中共国咄咄逼人的势力增长，亚太地区应该保持自由和开放。
+所以今天我请兄弟姐妹们但凡有家人的你不要要求结果，一定告诉家人，能拿一块拿一块，能拿一毛拿一毛，赶快走人！这就是今天讲房地产的目的。
 
-[拜登与普京在乌克兰战争担忧中谈了两个多小时](https://www.newsmax.com/newsfront/biden-putin-talk/2021/12/07/id/1047680/)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-15.jpg)
-据NewsMax在2021年12月7日报道，由于西方担心莫斯科准备入侵其南部邻国，美国总统乔.拜登和俄罗斯总统弗拉基米尔.普京在周二就乌克兰和其他争端进行了两个小时的虚拟会谈。据白宫称，两位领导人谈了两小时一分钟。
+字幕来源：[2021年12月15日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1762636/)；
 
-拜登告诉普京，如果俄罗斯攻击乌克兰，俄罗斯及其银行可能会受到迄今为止最严厉的经济制裁。
+视频制作：小满；
 
-据一位消息人士称，制裁可能针对俄罗斯最大的银行以及莫斯科将卢布兑换成美元和其他货币的能力。
+视频上传：Cindy；
 
-克里姆林宫在周二的会议前表示，否认有任何攻击乌克兰的意图，并表示其部队姿态是防御性的。
+G-News发布：小满；
 
-普京曾表示，他希望得到具有法律约束力的保证北约不会进一步向东扩张，并承诺不会在靠近俄罗斯的国家部署某些类型的武器，包括乌克兰。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
 
-[伊朗同意让国际原能总署更换核子设施破损摄影机](https://www.google.com/amp/s/hk.news.yahoo.com/amphtml/%25E4%25BC%258A%25E6%259C%2597%25E5%2590%258C%25E6%2584%258F%25E8%25AE%2593%25E5%259C%258B%25E9%259A%259B%25E5%258E%259F%25E8%2583%25BD%25E7%25B8%25BD%25E7%25BD%25B2%25E6%259B%25B4%25E6%258F%259B%25E6%25A0%25B8%25E5%25AD%2590%25E8%25A8%25AD%25E6%2596%25BD%25E7%25A0%25B4%25E6%2590%258D%25E6%2594%259D%25E5%25BD%25B1%25E6%25A9%259F-170502460.html)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-伊朗媒体15日报导，德黑兰当局已同意让联合国国际原子能总署（IAEA）更换位于德黑兰以西卡拉吉市（Karaj）TESA核子设施的破损摄影机。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-据法新社报导，德黑兰当局拒绝让国际原子能总署更换损坏的监视摄影机，已危害到伊朗和世界强权谈判恢复2015年伊朗核子协议的进展。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-[每个众议院共和党人都支持取消商业疫苗授权](https://www.newsmax.com/newsfront/vaccine-mandate-businesses-fred-keller-gop/2021/12/07/id/1047694/)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片3-5.jpg)
-据《Newsmax》报道，宾夕法尼亚州共和党人12月7日[宣布](https://webmail.newsmax.com/owa/#path=/attachmentlightbox)，众议院共和党会议的所有 212 名成员都支持众议员弗雷德凯勒 (Fred Keller) 的决议，即取消乔拜登总统对拥有100 名或更多员工的企业的疫苗接种和检测任务，这一措施影响了八千万美国员工。
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-[多明尼加私人飞机坠毁9人丧生知名音乐制作人一家三口全罹难](https://www.orientaldaily.com.my/news/entertainment/2021/12/16/456193)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片-4-8.jpg)知名音乐制作人Flow La Movie（右）及妻儿也在坠毁班机上。 （图取自IG）
-2021年12月15日 ，Helidosa航空集团在声明中说，旗下一架私人飞机在多明尼加首都圣多明哥的美洲机场（Las Americas Airport）坠毁，造成9人丧生。该公司表示，将对此事故进行全面调查，厘清事发原因。
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-综合外媒报导，中美洲多米尼加共和国日前发生一架私人飞机坠毁意外，飞机于当地时间周三（15日）要飞往美国佛罗里达州，但却在紧急迫降时坠毁于跑道，造成机上2名机组员及7名乘客，共9人全数罹难，而这7名旅客中只有1人是多明米加籍，其他是外国乘客。
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-根据报导指出，住在佛州奥兰多的拉美音乐制作人Flow La Movie（本名Jose Angel Hernandez）也在这起坠机事故中丧命，享年38岁，与他同行的31岁妻子及4岁儿子也未能在返家途中逃过死劫。
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-
-
-审核校对：Barry Jack
-上传排版：F
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

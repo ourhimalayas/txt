@@ -2,49 +2,38 @@
 ---
 
 
-## 三个宗教团体要求最高法院暂停拜登政府对企业的疫苗强制令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1776360/)
+## 中共房地产毁掉两代人、三代人、四代人，让你成为房奴
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1776387/)
 
-信息采集：美国纽约香草山农场 – 侠肝义胆
-作者：美国纽约香草山农场 – 飞虹
+**郭文贵先生：**更重要的事情，我们这位战友的娘说了一句话，她说：“你知道我在我们老家现在发生什么？我们在老家的房子，现在政府登记完以后，马上要求你，答应像咱们喜币要币加锁一样，他们叫币加房（口误：房加锁），3到5年内不能卖，因为你曾经有过三套房。
 
+这是已经到了这不是已经共产，已经不是抢钱，已经不是山东养狗啊——警察告诉你养狗100块人民币。现在房子3年锁房，而且银行给你的造假提前交3年物业管理费，银行贷给你的物业管理费。房地产现在是共产党（想）捂住捂不住的在“裤裆下那个大窟窿”了已经。这是个天大的事情，这为什么今天我们还要继续谈房产，让所有的国内同胞们你们一定要记住，我们告诉你今天的话，房地产会毁掉你两代人、三代人、四代人，或者你成为房奴。
 
+字幕来源：[2021年12月15日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1762636/)；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+视频制作：小满；
 
+视频上传：Cindy；
 
+G-News发布：小满；
 
-美国媒体报道，12月19日，美国有三个宗教组织——美国家庭协会、创世纪答案和晨星电视网络——要求最高法院紧急暂停拜登政府的关于至少有 100 名工人企业的疫苗强制令。这一要求，是在辛辛那提第 6 美国巡回上诉法院，就恢复拜登政府的该强制令几天后提出的。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1.1-10.jpg)
-这几个宗教团体认为，该措施侵犯了他们的第一修正案权利，以及它“未能提供任何宗教豁免或便利”。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
 
-分析人士指出，鉴于11月份第5巡回上诉法院曾暂停该强制令，预计最高法院会就此问题进行认真权衡，因为这一问题已经使下级的联邦法院之间产生了分歧。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-参考链接：
-[Religious groups ask Supreme Court for emergency stay on vaccine rule for U.S. companies](https://www.axios.com/religious-group-lawsuit-vaccine-mandate-41ebc11b-1e83-46b8-87c2-151380bae7e8.html)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-总编/编辑：DM
-校对/发稿：为真不破20
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-**更多资讯，更多关注**
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
