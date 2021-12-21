@@ -2,39 +2,46 @@
 ---
 
 
-## 【零时差】新闻速递：Omicron病例激增至美国Covid-19病例的近四分之三已宣布首例死亡
-` Zero-Day【零时差】` [轉載自GNews](https://gnews.org/zh-hans/1776608/)
+## 新加坡媒体“偶遇”彭帅 继续为冬奥会洗地
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1776609/)
 
-![US-HEALTH-VIRUS-TEST-184009.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/18FF1380-2C46-4477-9442-A52751FE4D16.jpeg)（2021 年 12 月 17 日，一名男子在纽约接受 Covid-19 测试时接受了鼻拭子。 照片：法新社）
-据【海峡时报 】于2021年12月21日报道，根据最新的数据显示，在美国所有已测序的 Covid-19 病例中，Omicron 变体占73%，高于上周的 3% 左右。
+作者：纽约香草山文艺部 – 宁文静
 
-美国疾病控制与预防中心在每周更新中表示，这种高度突变的冠状病毒株已在全国范围内被发现。Delta 变种[曾是上周美国病毒的主要形式，](https://www.straitstimes.com/world/united-states/us-crosses-50-million-covid-19-cases-as-delta-dominates-amid-omicron-emergence)现在已下降到测序病例的大约 27%。
 
-Omicron 整体流行率的大幅增长引起了人们的担忧，这种快速传播的变种很可能会产生又一波感染浪潮，从而使美国的医疗保健系统不堪重负。
 
-美国广播公司新闻援引哈里斯县卫生官员的话报道称，德克萨斯州的卫生官员周一宣布，该州已经记录了与 Omicron Covid-19 变体相关的首例死亡病例。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
-报告补充说，这是美国第一个已知的 Omicron 死亡记录。
 
-尽管有证据表明[Omicron 不会产生比 Delta 更严重的疾病](https://www.straitstimes.com/world/europe/uk-study-finds-no-evidence-omicron-cases-are-less-severe-than-delta)，但感染水平的大幅上升仍可能使医院病例人满为患
 
-CDC 表示，Omicron 的增长在意料之中。目前，全球范围内的模式相似。
+12月19日，彭帅现身上海“城市越野滑雪赛”决赛现场，结束后接受新加坡媒体采访。虽然一再强调自己“很自由”，给国际女子网球协会主席的中文信“出自本人意愿”，但反应迟缓言辞闪烁，很难压下质疑之势。
 
-在美国的一些地区，几乎所有的新感染病例都是由 Omicron 造成的。疾病预防控制中心估计显示，该变体约占纽约和新泽西州病例的 92%，在华盛顿州占 96%。
+这次的滑雪赛是明年中共国冬奥会的积分赛，只有受邀嘉宾才能观赛。如此低调的现场，而新加坡媒体却能“偶遇”彭帅，并对轰动全世界的事件进行了数分钟的采访。彭帅说，微博是自己所发，属于个人隐私。当被询问是否有人监视，是否自由，她用了反问的语句。写给西蒙的信中文版是自己所写，中共媒体放出的英文版是他人翻译。至于是否出国，彭帅再一次反问没有比赛干嘛要出国。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1.2-10.jpg)
+有分析人士称，从彭帅不自然的言行举止可以看出，她承受着很大的压力。在五眼联盟、日本、比利时等国家已经宣布外交抵制冬奥会，其它国家考虑跟进的时间关口，这个马云投资的媒体采访视频“洗地”嫌疑太大，恐怕收效甚微。
 
-美国总统乔拜登将于周二在 Covid-19 上向全国发表讲话。白宫新闻秘书 Jen Psaki 已经表示，他不打算“封锁国家”以应对激增。
+参考链接：
+[中国网球女将彭帅现身上海城市越野滑雪赛 接受《联合早报》采访](https://www.zaobao.com.sg/realtime/china/story20211219-1224709)
 
-与此同时，Omicron 的迅速蔓延迫使许多企业重新考虑复工计划以及投资者会议等活动。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-上周，摩根大通选择将其下个月的年度医疗保健会议移至线上，世界经济论坛已经在周一表示，原定于下个月在瑞士达沃斯举行的会议被推迟。
+总编/编辑：DM
+校对/发稿：为真不破20
 
-编译/米拉娅
+**更多资讯，更多关注**
 
-审阅/丘杰斯
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-上传/天赐良闻
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[新闻援引链接：](https://www.straitstimes.com/world/united-states/omicron-surges-to-nearly-three-quarters-of-us-coronavirus-cases)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
 
 

@@ -15,107 +15,107 @@
 
 ---
 
-### [英国脱欧部长在辞职信中警告不要采取“强制性”中共病毒措施](/content/gnews/1/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [G-Fashion最重要的是让H-Coin让HDO和G-Clubs赚钱](/content/gnews/2/README.md)
+### [伊维菌素救了非洲,中共对改变人类寿命的青蒿素秘不示人](/content/gnews/1/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [中共的经济地产灾难是对全世界的合法洗劫](/content/gnews/3/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [蒙古人新疆人西藏人台湾人都会因为喜币无缝连接在一起](/content/gnews/2/README.md)
+ ` 喜马拉雅日本银河系农场`
 
-### [Omicron未来以每日200,000的增长速度席卷澳洲](/content/gnews/4/README.md)
- ` 澳喜特战旅Gnews`
+### [英国脱欧部长在辞职信中警告不要采取“强制性”中共病毒措施](/content/gnews/3/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [习近平只相信自己家人, 搞家天下治国](/content/gnews/5/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [G-Fashion最重要的是让H-Coin让HDO和G-Clubs赚钱](/content/gnews/4/README.md)
+ ` 喜马拉雅日本银河系农场`
 
-### [秘翻在线：奥米炕超过德尔塔成为美国主要的新冠变种](/content/gnews/6/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [2025年以后美国就不存在中概股了](/content/gnews/7/README.md)
- ` 澳喜特战旅Gnews`
-
-### [两名参议员接种中共病毒加强针后感染中共病毒](/content/gnews/8/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [郭文贵盖特音频2021.12.20](/content/gnews/9/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [家长绝对不能让孩子打疫苗](/content/gnews/10/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [世界最大游轮“海洋交响乐号”爆发新冠疫情 至少48人确诊](/content/gnews/11/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [台湾前线｜中共间谍渗透严重 前军方人士称 包含将军、总统随扈](/content/gnews/12/README.md)
- ` 關注組`
-
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/13/README.md)
- ` wenwu`
-
-### [前总统川普接种了中共病毒疫苗加强针](/content/gnews/14/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [【中日财经爆】富士康印度工厂员工食物中毒 爆发示威抗议](/content/gnews/15/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共以“愤青”为由关闭军事论坛](/content/gnews/16/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [俄中联盟：莫斯科与北约正处于短兵相见的紧张时刻](/content/gnews/17/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共国科技人员的特务化](/content/gnews/18/README.md)
- ` 纽约香草山MOS01`
-
-### [国内房地产现状就是共产党裤裆下的那个窟窿，会毁掉中国三代人](/content/gnews/19/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [【樱花深度报道】GETTR 能否打赢捍卫言论自由的战争？（下）](/content/gnews/20/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [【樱花深度报道】GETTR 能否打赢捍卫言论自由的战争？（上）](/content/gnews/21/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [【中日财经爆】中共进口大米比去年增加96.8%，创历史新高](/content/gnews/22/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [【中日财经爆】中共国法拍房数量五年翻200倍](/content/gnews/23/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [台湾与科索沃成立国会联谊会](/content/gnews/24/README.md)
- ` 纽约香草山MOS03`
-
-### [韭菜收割新模式开启，富豪贪官主播网红难逃一劫](/content/gnews/25/README.md)
+### [全球和澳洲疫情疫苗统计信息更新](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [COVID-19 最新情报｜Omicron 入侵 驻日美军群聚感染 日政府通过预算考虑将职场加强剂提前](/content/gnews/26/README.md)
+### [中共的经济地产灾难是对全世界的合法洗劫](/content/gnews/6/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [Omicron未来以每日200,000的增长速度席卷澳洲](/content/gnews/7/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [习近平只相信自己家人, 搞家天下治国](/content/gnews/8/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [秘翻在线：奥米炕超过德尔塔成为美国主要的新冠变种](/content/gnews/9/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [以色列担心Omicron变体，准备禁止赴美旅行](/content/gnews/10/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [2025年以后美国就不存在中概股了](/content/gnews/11/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [两名参议员接种中共病毒加强针后感染中共病毒](/content/gnews/12/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [郭文贵盖特音频2021.12.20](/content/gnews/13/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [家长绝对不能让孩子打疫苗](/content/gnews/14/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [世界最大游轮“海洋交响乐号”爆发新冠疫情 至少48人确诊](/content/gnews/15/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [台湾前线｜中共间谍渗透严重 前军方人士称 包含将军、总统随扈](/content/gnews/16/README.md)
  ` 關注組`
 
-### [世卫组织：有证据显示“奥米克戎”可传染疫苗接种者](/content/gnews/27/README.md)
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/17/README.md)
+ ` wenwu`
+
+### [前总统川普接种了中共病毒疫苗加强针](/content/gnews/18/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [【中日财经爆】富士康印度工厂员工食物中毒 爆发示威抗议](/content/gnews/19/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共以“愤青”为由关闭军事论坛](/content/gnews/20/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [俄中联盟：莫斯科与北约正处于短兵相见的紧张时刻](/content/gnews/21/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共国科技人员的特务化](/content/gnews/22/README.md)
+ ` 纽约香草山MOS01`
+
+### [国内房地产现状就是共产党裤裆下的那个窟窿，会毁掉中国三代人](/content/gnews/23/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [【樱花深度报道】GETTR 能否打赢捍卫言论自由的战争？（下）](/content/gnews/24/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [【樱花深度报道】GETTR 能否打赢捍卫言论自由的战争？（上）](/content/gnews/25/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [台湾与科索沃成立国会联谊会](/content/gnews/26/README.md)
+ ` 纽约香草山MOS03`
+
+### [韭菜收割新模式开启，富豪贪官主播网红难逃一劫](/content/gnews/27/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [COVID-19 最新情报｜Omicron 入侵 驻日美军群聚感染 日政府通过预算考虑将职场加强剂提前](/content/gnews/28/README.md)
+ ` 關注組`
+
+### [世卫组织：有证据显示“奥米克戎”可传染疫苗接种者](/content/gnews/29/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [整肃加强 知乎继新浪微博、豆瓣后收到整改令](/content/gnews/28/README.md)
+### [整肃加强 知乎继新浪微博、豆瓣后收到整改令](/content/gnews/30/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美英澳新加外长关切香港立法会选举民主大倒退](/content/gnews/29/README.md)
+### [美英澳新加外长关切香港立法会选举民主大倒退](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [每日快报：Omicron超越delta成为美国最主要的冠状病毒菌种](/content/gnews/30/README.md)
+### [每日快报：Omicron超越delta成为美国最主要的冠状病毒菌种](/content/gnews/32/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [2021年12月19日文贵大直播简报](/content/gnews/31/README.md)
+### [2021年12月19日文贵大直播简报](/content/gnews/33/README.md)
  ` 秘密翻译组-原创组`
 
-### [币圈新闻动态：喜交所近日再次发行1,500,000,000 HDO](/content/gnews/32/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [新加坡媒体“偶遇”彭帅 继续为冬奥会洗地](/content/gnews/33/README.md)
+### [新加坡媒体“偶遇”彭帅 继续为冬奥会洗地](/content/gnews/34/README.md)
  ` GTV新闻访谈`
-
-### [【零时差】新闻速递：Omicron病例激增至美国Covid-19病例的近四分之三已宣布首例死亡](/content/gnews/34/README.md)
- ` Zero-Day【零时差】`
 
 ### [直播带货网红薇娅因偷逃税被罚13.41亿](/content/gnews/35/README.md)
  ` GTV新闻访谈`

@@ -2,82 +2,36 @@
 ---
 
 
-## 中共的经济地产灾难是对全世界的合法洗劫
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1777269/)
+## 英国脱欧部长在辞职信中警告不要采取“强制性”中共病毒措施
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1777309/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/3188.png)
-[https://gtv.org/video/id=61c0a2ba43ccb726a088fbe1](https://gtv.org/video/id=61c0a2ba43ccb726a088fbe1)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/4B253197-2F14-4ED0-9156-39020F720E58_w1023_r1_s3.jpg)图片来源：© Reuters/John Sibley
+英国脱欧事务大臣大卫·弗罗斯特（David Frost）周六辞职，警告不要实施与中共病毒相关的新限制。 他说，在他的计划被泄露给媒体后，他不得不提前下台。《星期日邮报》首次报道了他的辞职，其中描述了弗罗斯特近几个月对政府经济政策的日益失望。
 
-**郭文贵
-Miles Guo**
+弗罗斯特在给英国首相鲍里斯·约翰逊的告别信中表示，他最初计划在1月份卸任以确保平稳过渡，但在他即将离职的消息泄露给媒体后，他决定立即辞职。“令人失望的是，这项计划已经公开，”弗罗斯特说。
 
-所以说今天你看到这个金融的时候，你看到整个数据的时候
-So when you look at finance system today, when you look at the whole data
+“英国退欧现在是安全的，”他和约翰逊“一直采用相同的方法”，他说。 与此同时，弗罗斯特对政府恢复与大流行相关的限制表示失望。
 
-你要知道，了解共产党的真相和所谓投到中国的房地产经济
-You have to know the truth about the Communist Party and the so-called real estate economy that was invested in China
+你在七月做出了一个勇敢的决定，在大量反对的情况下，再次开放这个国家。 可悲的是，它并没有像我希望的那样证明是不可逆转的，相信你也是如此。 我希望我们能尽快回到正轨，不要被我们看到的其他地方那种强制性措施所诱惑。
 
-你看到的这些全都是假象
-are all illusions
+约翰逊在回信中感谢弗罗斯特在与欧盟有争议的谈判中“不懈的努力、决心和远见”。 首相指出，在弗罗斯特的监督下，英国完成了退出欧盟并与布鲁塞尔签署了贸易协议。
 
-核心是金融领域的所有不可告知的不可查的隐秘的数据
-The core is all the untold, untraceable, hidden data in the financial sector
+弗罗斯特的离职正值约翰逊内阁的艰难时期。本周，首相面临着近100名保守党议员的内部反抗，他们投票反对政府关于新的中共病毒限制的计划。约翰逊还因去年政府官员在圣诞节期间举行的几次聚会而受到批评，据报道，这些聚会违反了封锁规定。
 
-那些隐秘的东西才是对西方的最大威胁
-Those hidden things are the biggest threat to the West
+简评：随着全球新的一轮中共病毒蔓延，许多国家都在疯狂地盲目地实行强制疫苗政策，郭文贵先生和新中国联邦是第一个站出来披露疫苗真相，反对假疫苗，揭露中共病毒来源并且提供病毒解药的方案。当疫苗灾难逐渐爆发，会有越来越多的人，包括政府机构，为了正义和真相加入进来。灭共是世界和平的需要，灭共更是正义的需要。
 
-还有西方金融机构，别光说中国金融机构
-And the Western financial institutions, not just the Chinese financial institutions
-
-西方的金融机构它不能合法地投到中国去
-Western financial institutions cannot legally invest in China’s real estate
-
-它有西方的金融管理机构
-Western financial institutions and
-
-西方的金融机构，所谓的金融产品买了对冲基金
-fund, so-called financial products bought from hedge funds
-
-西方的养老保险，西方的退伍保险、保险基金大量地投入到这个基金里
-Western pension insurance, western retirement insurance, insurance funds are heavily invested in hedge fund
-
-所有的美国的几个华人、退休基金
-All these several American Chinese managed funds, retirement funds
-
-这都是合法的偷
-Are all legal theft
-
-那是什么概念？要命的
-What is the end of that? It’s deadly
-
-兄弟姐妹们，那真的是要命的
-Brothers and sisters, that really is deadly
-
-我得吃了，我先说到这儿
-I have to eat, I’ll stop here
-
-所以说告诉你，共产党的地产和经济灾难是对全世界的一场合法洗劫
-So the Communist real estate and economic disaster is a legal looting of the whole world
+原文链接：[Brexit minister warns against ‘coercive’ Covid measures in resignation letter](https://www.rt.com/uk/543661-david-frost-resignation-letter/)
 
 * * *
 
-Date:12/16/2021
-原视频标题: 中共的经济地产灾难是对全世界的合法洗劫
-CCP’s economic real estate disaster is a legitimate looting of the world
-原视频日期：2021/12/10
-原视频链接:[**https://gettr.com/post/pje75ydd03**](https://gettr.com/post/pje75ydd03)
-任务编号：3188
-视频时间段 : 0:00-01:10
-中听校：洛杉矶盘古农场 -Mike Li
-翻译：洛杉矶盘古农场 – Mike Li
-翻译终校：洛杉矶盘古农场 – Layka
-字幕+视频制作：洛杉矶盘古农场 – Jambo
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
