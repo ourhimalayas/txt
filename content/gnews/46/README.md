@@ -2,28 +2,29 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月20日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1774926/)
+## 【中日财经爆】日本参议院一致通过国内半导体生产补贴修正案
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1774367/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-4.jpg)
+撰稿:东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-247.jpg)
+[图片源](https://parstoday.com/ja/news/japan-i90144)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-1-7.png)
-文章仅代表作者本人观点，与Gnews无关
+日本政府支持半导体国内生产的修订法于20日在参议院全体会议上获得通过。
 
-视频参看：[2021.12.20早GTV新闻访谈](https://gtv.org/video/id=61c084d9bcb7f101bb71c9aa)
+其目的是确保高性能半导体的国内生产，这与经济安全直接相关。经济产业省将建立一个系统制度，对申请企业的国内生产设施的发展计划给予认证，并对获批的企业按年分批发放补贴。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+全球最大的半导体代工制造商台积电在熊本县规划的新工厂有望率先获得认证，给予补助。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/calendar-1.jpeg)
+新法案修订了《促进特定先进信息和通信技术的开发、供应和引进法》（5G促进法）和《新能源和产业技术综合开发机构法（NEDO）》，将在2021财年生效。最高补助金额为所需资金的一半，这些资金将从NEDO设立的基金中提供。政府在20日批准的2021财政年度补充预算中为该基金争取到6170亿日元的资金费用。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+信息源:
+
+[半導体国内生産に助成金　複数年にわたり支援　改正法成立](https://news.yahoo.co.jp/articles/71b53f7d27bda02071a43123c7932305f0c8fb06)
+
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWSLOGO20211207.jpg)
+
 
  
 
