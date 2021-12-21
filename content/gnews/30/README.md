@@ -2,30 +2,20 @@
 ---
 
 
-## 两名参议员接种中共病毒加强针后感染中共病毒
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1777213/)
+## 世界最大游轮“海洋交响乐号”爆发新冠疫情 至少48人确诊
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1777176/)
 
-#### 撰稿：彩虹
+#### 翻译/撰稿：zzballack
 
 #### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-33.jpg)新闻来源：ABC7 News
-12月20日，《新闻极限》引述美联社的报道，指两名民主党参议员虽然接种了两剂中共病毒疫苗，以及最近刚接种了加强针，但仍然感染了中共病毒，这两名参议员分别是马萨诸塞州的伊丽莎白·沃伦(Elizabeth Warren)和新泽西州的科里·布克(Cory Booker)。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-2-17.jpg)图片来源：Cruise Industry News
+据《NBC新闻网》（NBC News）12月20日报道，皇家加勒比（Royal Caribbean）公司12月20日表示，该公司旗下的世界最大之一游轮“海洋交响乐号”（Symphony of the Seas）18日发生群聚感染事件，有48位乘客和船员新冠检测呈阳性。
 
-在周日的单独声明中，民主党人说他们（两人）已经完全接种了两剂中共病毒疫苗和一剂加强针，他们的（病毒感染）症状很轻微。
+载有近7000人的“海洋交响乐号”游轮本月11日从迈阿密出发，8天7夜的旅途中曾停靠加勒比海的圣马丁岛（St. Martin）、圣托马斯岛（St. Thomas），18日返回迈阿密，结束航程。皇家加勒比公司在声明中表示：“在航行期间发现一名乘客确诊后，立即展开接触追踪，扩大病毒筛检，目前至少有48人确诊。全船95%的人都已完全接种疫苗，阳性患者中有高达98%的人已经接种了两剂疫苗，不过症状轻微或没有症状。每一个人都迅速被隔离，我们将持续监测他们的健康状况。有6位受影响的客人在返回迈阿密之前下了船。”
 
-但是，这两名参议员继续忽悠民众，鼓励民众接种疫苗和加强针。
+该公司称，“海洋交响乐号”的全体工作人员都接种了疫苗，并每周进行核酸测试。而且要求12岁及以上乘客必须接种两剂辉瑞或莫德纳疫苗，或者一剂强生疫苗。
 
-沃伦在推特上说：“幸运的是，我只经历了轻微的症状，并感谢通过接种疫苗和加强针而提供的对严重疾病的保护”。
-
-沃伦没有详细说明她可能在哪里感染了病毒，但她说会定期进行检测，并在上周早些时候对中共病毒（COVID-19）的检测结果为阴性。
-
-报道指，沃伦本周与其他参议员一起在美国国会大厦（工作），因为民主党人试图通过总统乔·拜登的2万亿美元的《重建美好未来社会和环境法案》（Build Back Better social and environment bill）。
-
-而布克在其办公室的一份声明中则说：“我非常感谢接种了两剂疫苗，最近又接种了加强针，我确信，如果没有（接种）它们，我的情况会更糟糕”。
-
-**新闻来源**
-
-[Sens. Warren and Booker Test Positive for Breakthrough COVID](https://www.newsmax.com/newsfront/senators-elizabeth-warren-cory-booker-breakthrough-covid/2021/12/20/id/1049312/)
+新闻来源：[Nearly 50 on Royal Caribbean’s Symphony of the Seas cruise ship test positive for Covid-19](https://www.nbcnews.com/news/us-news/nearly-50-royal-caribbeans-symphony-seas-cruise-ship-test-positive-cov-rcna9346)
 
  
 

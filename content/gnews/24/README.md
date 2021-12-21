@@ -2,44 +2,74 @@
 ---
 
 
-## 伊维菌素救了非洲,中共对改变人类寿命的青蒿素秘不示人
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1777350/)
+## 大流行的一切都基于恐惧和操纵
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1777339/)
 
-**郭文贵先生：**说到这儿我要跟你讲伊维菌素，你看看伊维菌素这个神药，最近这些天我让战友找了很多伊维菌素的根基出来。它是救了整个非洲。我去过那里非洲，你们没去过。你到非洲有河盲症的地方你看到真到了人间的地狱呀！一个村子里有将近三分之一的人眼睛是看不见的，非常强壮，都是拿着棍戳戳的。你知道那个非洲的地方喝的那个脏水真的是太脏了！吃东西也不洗，疟疾，还有这个河盲症，瞎的，都是直接就是瞎了。伊维菌素五粒就让他把眼睛睁开。
+翻译 : JENNY BALL
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1129.png)图片来源 newstarget.com
+事实证明，关于武汉冠状病毒 (COVID-19) 的任何事情都不是基于事实和理由的。律师托马斯·伦茨（Thomas Renz）说，一切都是恐惧和操纵。
 
-你看世界上最贪婪的辉瑞，还有中国的国药这些制药厂，你想想人家美国这个制药厂，叫这个联邦制药，叫什么邦制药，竟然制造了伊维菌素，是免费给非洲人的。我到那儿去我是打了疫苗的。我也害怕你知道吗？而且就有人当时就拉着肚子拉到不行，伊维菌素是日本人一个农民在日本的土地上，就靠自己一个农村里边相信人，大自然给了人类所有需要的力量和医药和解决问题的办法。就这么一个日本人，几十年干了一件事，研究了伊维菌素，现在日本的英雄中的英雄，而且日本国家全力支持，最后跟美国合作把它分子化，把它医药化，把它变成能救人，最后是免费救人。
+在最近的“再次唤醒美国”（Reawaken America）巡回活动中，在伦茨展示的幻灯片中，解释了整个系统，包括政府机构、主流媒体和大型制药公司，如何向公众撒谎以推动更多的暴政和销售更多的药物。
 
-你告诉我共产党有一个这事儿它干过吗？从共产党的历史上你找一件这事儿。同样是屠呦呦，在中国没人问津，获完诺贝尔奖以后没人搭理她。中国政府把青蒿素免费给过哪个国家？他让青蒿素在人类治过多少人？我告诉你青蒿素比伊维菌素还要牛万倍，亿倍！它绝对可以百分之百消除癌症，不是百分之九十九。
+下面来自 Brighteon.com 的剪辑包含了伦茨演讲的一部分——请务必观看：
 
-如果你们相信我，青蒿素会让所有现在躺在病床上的人真的能站起来、真的能活下来，真的没癌症。我就有些话现在不能告诉你，七哥说话是很保守的在这事儿上，我是很小心的。人家给我讲的话很多我是在这儿不能说的，就是咱们告诉这是解药的。
+[newstarget.com](https://www.newstarget.com/2021-12-18-thomas-renz-plandemic-based-on-fear-manipulation.html)
 
-当时共产党说郭文贵讲出青蒿素这仨字儿的时候，是解药的时候，这郭文贵对我们的威胁就增加了无限倍。为什么？当时所谓国安委的说：青蒿素会改变人类的寿命。这是共产党知道能救人，它就不告诉你能救人。和日本人说能明知道救人给美国人开放，我让你去救人，这是完全不同的政府啊！
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1131.png)图片来源 newstarget.com
 
-字幕来源：[2021年12月15日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1762636/)；
+作为一名律师，伦茨知道处理这些危害人类罪，不仅仅只需要一个法庭案件。
 
-视频制作：小满；
+“当你的犯罪规模如此之大，影响到整个人口时，你需要开始考虑比法庭更大的事情，”他说。
 
-视频上传：Cindy；
+“这就是为什么我们需要在国际范围内研究事件，我们需要把很多人关进监狱。”
 
-G-News发布：小满；
+伦茨将这一努力称为“纽伦堡 2.0”，第二次世界大战后进行了第一次纽伦堡审判。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
+“整个事件都是一场骗局，”伦茨谈到大流行时说。“恐惧、操纵，欺诈，以及最终的死亡正在推动它。我们必须有权威人士进行独立调查，追究刑事责任。”
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+Omicron 是这些疫苗的结果：它是接种疫苗后引发的变体
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+骗局的最新部分是所谓的“Omicron”或愚蠢的变种。就像之前的变体“Delta”一样，愚蠢的行为被用来恐吓更多人，迫使他们放弃他们的权利。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+所有这一切，都是很久以前由CDC等机构制定的，**该中心使用几乎相同的策略来销售流感疫苗。**
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+通过不断传播对严重伤害或死亡的恐惧，CDC 及其在大药企和大媒体的合作，说服数百万人进行季节性注射，这些注射剂没有任何好处，只有伤害。
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+那些个疫苗已经持续了几十年，现在系统正在加大对福奇流感疫苗的赌注，这些疫苗正迅速变得就像流感疫苗一样，将有无穷无尽的“加强剂”。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+CDC 与大型制药公司极力勾结，推动这场针对流感疫苗和 COVID 疫苗的恐惧运动。伦茨在幻灯片中提供了这一点的证据，**用该机构自己的话描述了 ****CDC ****的策略。**（相关：美国前线医生的律师就 45,000 例新冠疫苗死亡向美国政府提起诉讼。）
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+“你可以随时将流感换成 COVID，”伦茨谈到流感疫苗和 COVID 疫苗的策略是一个套路。
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+媒体还通过对流感、COVID 或当今可能发生的任何疾病，造成“高度关注和焦虑”，来发挥宣传作用。
+
+正如我们现在所知，一切都变成了 COVID 死亡，毫无疑问，他们欺骗使数字激增，并吓唬数百万人进行封锁、疏远、接种疫苗，和现在加强剂。
+
+伦茨在他的网站上展示了其他值得注意的信息，包括：
+
+• 国防部 (DoD) 文件显示，政府根据种族跟踪疫苗接种情况；
+
+• 举报人数据显示 ，COVID 疫苗比政府承认的要致命得多；
+
+• 数字显示 COVID 疫苗死亡人数不在图表之列；
+
+“伦茨律师呼吁设立一名特别独立检察官，调查 福奇博士、FDA、CDC、DHHS ，以及主流媒体等，那些可能对这种致命注射剂的营销和授权负有责任的人的刑事和民事违法行为”。
+
+有关大流行谎言欺骗的更多消息，请访问[Corruption.news](https://corruption.news/).
+
+新闻来源 ：[newstarget.com] [Thomas Renz: Everything about the plandemic is based on fear and manipulation](https://www.newstarget.com/2021-12-18-thomas-renz-plandemic-based-on-fear-manipulation.html) / [Renz-Law.com](https://renz-law.com/nuremburg20/) / [Brighteon.com](https://www.brighteon.com/ad09bdc9-0d8f-4147-b897-d52e5fc358e2) / [NaturalNews.com](https://naturalnews.com/2021-07-21-americas-frontline-lawsuit-government-covid-vaccine-deaths.html)
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-4.jpeg)
+
+
+
+
+
 
  
 
