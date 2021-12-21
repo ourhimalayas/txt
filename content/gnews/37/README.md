@@ -2,29 +2,40 @@
 ---
 
 
-## 令人震惊的中共病毒数据——证明疫苗无效
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1777621/)
+## 数字货币区块链迅速地和平改变人类上万年来的货币属性
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1777649/)
 
-#### 采集/翻译：意翎 
+**郭文贵先生：**共产党最早搞的叫数字化人民币，发起人就是今天的周亮，是吧，郭树清，还有一个叫国际外汇局管理的叫潘功胜，都是解直锟，全都是解直锟、解植春、高燕燕裤裆下的产物，你想他能懂什么币呀？这是装X呢。就是共产党给了这些人经营，战友们你一定要看到这个人类的悲剧，有时候你真把坏人看得太高大的时候吧你就输了，你要太小看敌人的时候吧你也输了，就你一定要看到真实的敌人、客观的敌人你才能赢。
 
-#### 责编：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-110.png)
-亚历克斯·贝伦森（Alex Branson）在《未报道的真相》刊登的关于中共病毒数据的一系列报道，该报道指出主流媒体关于疫苗可以免疫的叙述完全是一派胡言，所有的限制、疫苗、疫苗护照等都是笑话。
+我们一个最重要的其中一个看到的是什么？你看到这些人的背后的人生和背景，你就知道他们有多low。你看王岐山，所有今天说到的这些人都是王岐山的兵，王岐山的兵搞出了数字人民币的时候，他完全没有意识到一个根本性的结果，把所有的去中心化的数字货币的未来，也就是今天刚才说跟法币，一定会同时存在一段时间，代替法币。
 
-丹麦人正在发布的关于中共病毒病例和住院情况的极其详细每日数据图表（该数据图表不仅仅是奥米炕Omicron，而是包含所有的中共病毒变体），呈现出与过去两年活下来的人所司空见惯的新闻描述截然不同的结果——丹麦的大多数新冠病例发生在接种过疫苗的人身上，他们甚至打过加强针，在奥米炕的感染者中90%都接种过疫苗。
+实际上我告诉大家，这次的数字货币的区块链币的到来，会真正地人类第一次从上万年来开始，第一次和平地、迅速地、不用流血地改变货币的属性。
 
-奥米炕的强传播性一直被当作疫苗失败的借口，尽管它比中共病毒的早期变种更具传染性，但其危险性明显降低。
+字幕来源：[2021年12月19日郭文贵先生大直播全文字版（上）](https://gnews.org/zh-hans/1773363/) ；
 
-丹麦超过76%的病例均非感染奥米炕，在丹麦目前因中共病毒住院的561人中，只有25人患有奥米炕变体。丹麦没有提供奥米炕重症病人的确切数字，只是说少于5人。网友评论说：“如果全国只有25人在大流行近两年的时间里住院，那就不是一场流行病”，“仅仅因为25例住院患者，就封锁了一个600万人口的国家，这是疯狂的。”
+字幕文件制作：小满；
 
-丹麦的数据清楚地表明，今年欧洲病例和住院率大幅上升的原因与奥米炕无关，而与疫苗失败有关。亚历克斯早些时候的几篇报道也支持了这一结论。
+视频制作及上传：Cindy；
 
-- 接种疫苗的60岁以下英国成年人的死亡率是同龄未接种人群的两倍。
-- 即使你感染过中共病毒并从中康复，但中共病毒疫苗将阻止你获得完全的免疫力。
-- 疫苗导致心肌炎和其他严重问题。
+G-News发布：黎明之前；
 
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的短视频发布频道**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-原文链接：[Stunning Covid data from Denmark](https://alexberenson.substack.com/p/stunning-covid-data-from-denmark)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
