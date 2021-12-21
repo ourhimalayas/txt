@@ -2,28 +2,28 @@
 ---
 
 
-## 欧洲受“奥米抗”毒株感染的国家及病例激增
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1777985/)
+## 波音公司暂停对美国员工的疫苗强制令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1778020/)
 
-作者：纽约香草山 医疗部 云豹
+作者：纽约香草山农场 – 文真
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-欧洲疾病预防控制中心于当地时间12月20日公告，欧盟及欧洲经济区已经有28国，总共四千六百九十一则“奥米抗”变异病毒感染案病例。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-21-下午11.08.32.png)
-在12月18日，仅英国境内“奥米抗”毒株感染病例已经达到两万五千例，其中有7例死亡。 伦敦市长因此宣布伦敦进入紧急状态，以加速整合各处资源来协助各大医院因应激增的住院人数。据专家估计，目前在伦敦新增的感染案例中，有8成是属于“奥米抗”变异病毒。
+12月17日，美国飞机制造商波音公司表示，暂停对美国雇员的中共病毒疫苗接种强制令。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3-49.jpg)
+波音公司在一份内部公告中说，该决定是在审查了美国地区法院，本月早些时候的一项裁决后作出的，该裁决停止了拜登政府对联邦承包商的疫苗强制执行要求。
 
-此外，截止12月20日，欧盟主要成员国报道“奥米抗”毒株为：挪威2060例、丹麦726例、法国347例、德国249例。
+据报道，最近几周，以宗教或医疗理由寻求疫苗豁免的波音公司员工人数，已达一万一千多人，占其美国员工总数的近9%。这比最初预估的人数高出许多倍，因而迫使波音开始考虑避免工程和工厂劳动力外流的策略。
 
-据悉，“奥米抗”变异株的传染力强，在欧洲区域目前的现况是每2至3天，病例数成长一倍。 如果此趋势不变，到明年元月，“奥米抗”将成为欧洲区域内中共病毒传染的主要病毒株，需严加防范。
+据悉，一些大型医疗连锁店和通用电气等美国公司，也暂停了对工人的疫苗强制令。
 
-参考链接：
-1）[Omicron擴散歐洲28國 逾4000病例](https://www.cna.com.tw/news/firstnews/202112200340.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-2）[英國Omicron單日增逾1萬例 倫敦進入重大事件狀態](https://www.cna.com.tw/news/firstnews/202112190050.aspx)
+参考链接: 
+1) . [内部文件显示，波音公司暂停了美国境内员工的强制疫苗政策](https://gettr.com/post/pjy2633193)
+2) . [Boeing suspends vaccine mandate for U.S. employees](https://news.yahoo.com/exclusive-boeing-suspends-vaccination-requirement-203212561.html)
 
-![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
 总编：Zion文恩
-编辑：Zion文恩
-校正/发稿：呼吸的雾霾（文小呼吸）
+编辑：Kathy文艺
+校正/发稿：Fei797
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
