@@ -2,32 +2,52 @@
 ---
 
 
-## COVID-19 最新情报｜Omicron 入侵 驻日美军群聚感染 日政府通过预算考虑将职场加强剂提前
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1776837/)
+## 台湾与科索沃成立国会联谊会
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1776905/)
 
-疫情關注組 / 發佈時間｜21/12/2021
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-5-768x103-19.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+作者：纽约香草山 医疗部 云豹
 
 
-日前，据日本首相岸田文雄表示[已经与辉瑞公司达成了一项基本协定](https://gnews.org/zh-hant/1770349/)，确保200万剂量的新冠口服药物，日本政府正考虑公费负担新冠口服药的全部费用。
 
-## **日本政府通过35兆日元补正预算 考虑将职场疫苗接种日程提前**
 
-20日下午日本参议院全体会议上，批准并公布2021财年（截至2022年3月底）补正预算，支出总额为35.9895兆日元，成为日本有史以来最大的补正预算案。日本首相岸田文雄于11月提出补正预算案，为刺激经济、提供补贴，如因应新冠病毒，针对18岁以下提出10万的生活补助措施。
 
-厚生劳动部长后藤茂之在全体会议之前的参议院预算委员会会议上宣布，考虑将第三剂新冠疫苗接种提前用于职场的接种，为应对Omicron病毒。首相岸田文雄在预算委员会上重申，加强新冠病毒的防范措施将至少持续到明年年初。
+当地时间12月20日，台湾民进党立委罗致政邀集朝野立委39人，组成「台湾–科索沃国会联谊会」。同时与「科索沃–台湾国会友谊小组」成员进行视频会议，正式开启两国的国会联谊。
 
-## **冲绳美军基地 爆群聚感染 至少180人确诊**
+这是台湾国会与欧洲巴尔干地区国家建立的第一个国会友谊团体，具有历史性里程碑的特别意义。
 
-内阁官房长官松野博一于20日上午的记者会表示，根据驻日美军的通知，截至当天(20日)上午，[冲绳县汉森美军营发生群聚感染](https://mainichi.jp/articles/20211220/ddg/001/040/002000c)（包括金武町），至少有180人被确认感染了新冠病毒。其中，发现在汉森营地工作的一名40多岁日本籍女性确诊Omicron。
+科索沃在2008年宣布独立时，台湾是少数几个、立即承认科索沃独立的国家。科索沃和台湾在争取国家独立主权、民主价值观、争取经济生存空间及国际承认的奋斗过程中有许多相似的境遇。
 
-日本冲绳县知事21日[表示](https://mainichi.jp/articles/20211220/k00/00m/040/227000c)，若基地内的传染病防治措施没有彻底实施，Omicron将蔓延冲绳县，迄今为止的努力(防止感染的传播)将会泡汤。他要求日美两国政府暂停美军前往冲绳的行动，并禁止汉森营地驻军外出，在基地内建立筛检制度。
+今天的会议，科索沃方面是由民主党籍（PDK）副主席黛柳（Blerta Deliu-Kodra）代表致词，隶属民主联盟党（LDK）的议员杰麦（Armend Zemaj）以及未来同盟党（AAK）议员贝瑞夏（Beke Berisha）等代表友台小组成员参加。
 
-松野长官说，他已要求所有美国官员遵守行为管理指示，并“强烈建议在不遵守的情况下采取严格措施，包括纪律处分”。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-1-4.png)
-来源￨[KYODO](https://nordot.app/845581512475803648)/[每日新聞](https://mainichi.jp/)
+双方议员表示，台湾与科索沃两个民主国家，可以并肩对抗独裁政权。同时表示声援立陶宛支持台湾的立场，并期待未来藉由台科双方的实质交流，强化双方的接触与合作。并约定明年进行互相访问。
+
+(本文为作者观点，不代表G NEWS立场)
+
+参考连接：
+
+&lt;[https://www.cna.com.tw/news/firstnews/202112200341.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/firstnews/202112200341.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)&gt;
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec.png)
+
+
+
+校对/编辑/发稿：云豹
+
+**更多信息，更多关注**
+
+[**纽约香草山农场**** GTV****–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
  
 
