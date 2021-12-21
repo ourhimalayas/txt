@@ -2,21 +2,48 @@
 ---
 
 
-## 美国华盛顿特区的一家广播电台接受了中共440万美元为其做宣传
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1776422/)
+## 新加坡媒体“偶遇”彭帅 继续为冬奥会洗地
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1776609/)
 
-翻译：zzballack
-上传：追着曙光跑
+作者：纽约香草山文艺部 – 宁文静
 
-据《华盛顿自由灯塔》（Washington Free Beacon）12月20日报道，根据《外国代理人登记法》，总部设在弗吉尼亚州的波托马克媒体集团（Potomac Media Group）12月16日向司法部提交了一份最新披露文件。文件详细说明了它与中宣部下属机构国际传播规划局（International Communication Planning Bureau）之间利润丰厚的合同。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Image-2021-12-21-at-14.23.18.jpeg)图片来源：原新闻
-根据文件，中共与波托马克媒体集团旗下的、位于华盛顿特区的WCRW广播电台签署了一笔价值440万美元的合同，涵盖时间从2019年7月至2021年8月。合同要求WCRW电台广播宣传中国环球电视网CGTN的内容和一系列正面描述中共的谈话节目、社交媒体推广、以及制作脱口秀节目《桥》（The Bridge）。国际传播规划局可以审查并核实广播节目。波托马克媒体被要求向规划局提供关于受众范围、反馈和“国际组织的评价”的报告。
 
-其实自1992年以来，WCRW就一直在播放来自中共官媒中国国际广播电台 (China Radio International) 的内容，但此前并没有向司法部登记为中共的外国代理人。
 
-北京与WCRW的合作突显了中共在美国的宣传活动范围十分广泛。近年来，由于中共试图转移人们对其侵犯人权行为的注意力，它们的宣传活动已经进入了高潮。中共官媒通过社交媒体和与美国报纸和杂志的出版交易，积极地向美国受众推广其内容。《中国日报》已向《时代周刊》、《外交政策》（Foreign Policy）杂志和《华尔街日报》支付了数百万美元，以便让它们在其官网上发表中共的大外宣文章。中共驻纽约领事馆最近雇用了一家公关公司，通过招募社交媒体上的网红来宣传北京冬奥会。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
-信息来源：[CCP Paid DC Radio Station $4.4 Million To Broadcast Propaganda](https://freebeacon.com/media/ccp-paid-dc-radio-station-4-4-million-to-broadcast-propaganda/)
+
+
+12月19日，彭帅现身上海“城市越野滑雪赛”决赛现场，结束后接受新加坡媒体采访。虽然一再强调自己“很自由”，给国际女子网球协会主席的中文信“出自本人意愿”，但反应迟缓言辞闪烁，很难压下质疑之势。
+
+这次的滑雪赛是明年中共国冬奥会的积分赛，只有受邀嘉宾才能观赛。如此低调的现场，而新加坡媒体却能“偶遇”彭帅，并对轰动全世界的事件进行了数分钟的采访。彭帅说，微博是自己所发，属于个人隐私。当被询问是否有人监视，是否自由，她用了反问的语句。写给西蒙的信中文版是自己所写，中共媒体放出的英文版是他人翻译。至于是否出国，彭帅再一次反问没有比赛干嘛要出国。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1.2-10.jpg)
+有分析人士称，从彭帅不自然的言行举止可以看出，她承受着很大的压力。在五眼联盟、日本、比利时等国家已经宣布外交抵制冬奥会，其它国家考虑跟进的时间关口，这个马云投资的媒体采访视频“洗地”嫌疑太大，恐怕收效甚微。
+
+参考链接：
+[中国网球女将彭帅现身上海城市越野滑雪赛 接受《联合早报》采访](https://www.zaobao.com.sg/realtime/china/story20211219-1224709)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+
+总编/编辑：DM
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

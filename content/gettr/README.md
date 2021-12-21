@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/21/2021 12:18 PM (UTC)`
+
+12月21号：世界卫生组织．疫苗制药厂．几个国家的医疗卫生管理部门，一定会受到人类的大审判，他们的官僚和邪恶力量．充分的利用了人类几百年来共同建立对科学的信任和服从．成了他们的杀人的工具🧰和手段！最终在法庭上。所有的这些杀人犯都将受到审判……真正的灾难！并没有到来，2022年，五月份才应该是打了疫苗人开始不良反应的开周期的开始！
+![img](https://media.gettr.com/group7/getter/2021/12/21/12/e830a709-9ca9-5423-6b23-61c364d696c0/out.jpg)
+
+---
+
 `@miles 12/21/2021 3:51 AM (UTC)`
 
 20/12/2021 “Hcoin To the Moon" Hits iTunes <br/> No. 1 🥇on 9 Countries Top MV Charts !<br/>No.1🥇 on 7 Countries Rock MV Charts!<br/>No.1🥇 on 4 Countries Rock song Charts!<br/>No.1🥇on 2 countries Hip-pop/Rap song Charts!<br/>Miracle continues…….🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, Taiwan, Laos, Hungary, Macau, Fiji, Philippines, Finland, Singapore!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1774690<br/><br/>12月20号，Hcoin To the Moon位列iTunes<br/>9国热门MV榜首🥇！<br/>7国摇滚MV榜首🥇！<br/>4国摇滚歌曲榜首🥇！<br/>2国嘻哈歌曲榜首🥇！<br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港，台湾，老挝，匈牙利，澳门，斐济，菲律宾，芬兰，新加坡的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏
@@ -145,13 +152,6 @@ CCTV, the crazy CCP’s mouthpiece, shirking responsibility for creating the vir
 
 12/18/2021 Miles Guo’s GETTR: Watch out for Omicron - spreading faster with more complications, have in stock Ivermectin & Artemisinin; are the CCP really Atheists?  Why did Mao Zedong go to Yan’An first, why did Mao dare not to move into the Forbidden City, and why did the CCP design that Red 5-pointed Star?<br/><br/>12/18/2021 文贵盖特：大家要小心奥米炕，传播快、并发症多，备好伊维菌素和青蒿素；共产党真的是无神论吗？当年毛贼东为什么先去延安、不敢搬进故宫、为什么设计了红色五角星？<br/><br/>
 ![img](https://media.gettr.com/group43/getter/2021/12/18/22/ccbe29ee-f7d3-2be7-4831-596a8c43f9e0/out.jpg)
-
----
-
-`@miles 12/18/2021 10:17 PM (UTC)`
-
-12/17/2021 Miles Guo: Xi Jingping has made up his mind to adopt the governing approach of North Korea. Xi has the characteristics of all dictators. 1）instigate conflicts bewtween the rich and poor, between the religious and ethnic groups. 2) ensure the succession of his descendants at any cost. 3) animosity to the entire world<br/><br/>12/17/2021 文贵直播: 习近平决心走北朝鲜之路来统治中国。他具备所有独裁者的特征！1)制造贫富，宗教，民族等矛盾；2)确保自己儿女继承权位； 3)无情杀戮；4)仇恨全世界。<br/>
-![img](https://media.gettr.com/group49/getter/2021/12/18/22/cc227a03-df82-5ec3-782d-7fe793cd0314/out.jpg)
 
 ---
 

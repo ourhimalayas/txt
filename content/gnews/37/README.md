@@ -2,53 +2,42 @@
 ---
 
 
-## 台湾与科索沃成立国会联谊会
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1776905/)
+## 【樱花深度报道】GETTR 能否打赢捍卫言论自由的战争？（上）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1776993/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-5-768x103-19.jpg)
+编译：东京樱花团/Hopkins
 
-作者：纽约香草山 医疗部 云豹
+编者按：近日GETTR官方发布专题文章围绕“在这个日益拥挤的社交媒体平台市场中，GETTR能否实现其成为幻想破灭的网民第一平台的雄心？”进行了探讨。
 
+GETTR官方表示，“我们创建 GETTR 是因为我们想建立一个社交媒体平台，允许人们表达他们的政治观点，同时仍然有明确的规则和服务条款，使平台为所有用户提供一个安全的环境，”“ 在GETTR，我们专注于革命性的新功能，如直播、短视频网络以及两币加密和基于区块链的支付系统。 ” 如果保守派和有自由意识的个人希望打败硅谷的审查制度和垄断行为，他们必须接受不断取得成果的替代技术产品。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1104.png)
+尽管自 2016 年大选之前社交媒体平台就一直在审查保守的内容，但硅谷对言论自由构成威胁的严峻现实直到今年 1 月才完全体现出来，当时 Twitter、Facebook 和其他主要平台做出了禁止现任总统在他们平台上自由发言的荒唐决定。
 
+在唐纳德特朗普被禁止之后，Parler 这个已经被数百万保守派使用的专注于言论自由的平台似乎不可避免地将成为 Twitter 的主要竞争对手。一位作家甚至在特朗普被禁止使用 Twitter 后写了一篇专栏文章，称这位前总统应该加入并支持该平台，作为对大型科技公司进行更广泛反击的一部分。
 
+然后更大的灾难发生了。随着 Parler 的用户群开始爆炸式增长，硅谷进行了反击。以 1 月 6 日的骚乱为例，亚马逊宣布他们将不再提供该网站的服务器，使他们处于瘫痪状态。雪上加霜的是，Parler 应用程序随后被 Apple 和 Google Play 商店禁止，这意味着其数百万用户无法通过移动设备访问它。
 
+在荒野中待了一个多月后，Parler 在新服务器上重新启动。然而，该平台受到性能问题的困扰，几乎无法使用。当 Parler 终于重新站起来时，创建一家新公司的计划已经在进行中。前特朗普顾问杰森米勒成功获得了一个财团的资金，该财团包括中国商人和反共异见人士郭文贵，以基于相似的理想创建一个类似的平台。
 
-当地时间12月20日，台湾民进党立委罗致政邀集朝野立委39人，组成「台湾–科索沃国会联谊会」。同时与「科索沃–台湾国会友谊小组」成员进行视频会议，正式开启两国的国会联谊。
+GETTR 于今年 7 月推出，尽管出现了一些可以理解的小问题，但自那时以来它经历了创纪录的增长。该平台的一些最引人注目的用户包括战争室主持人史蒂夫班农、前国务卿迈克庞培和福克斯新闻主持人肖恩汉尼提。
 
-这是台湾国会与欧洲巴尔干地区国家建立的第一个国会友谊团体，具有历史性里程碑的特别意义。
+“我们创建 GETTR 是因为我们想建立一个社交媒体平台，允许人们表达他们的政治观点，同时仍然有明确的规则和服务条款，使平台为所有用户提供一个安全的环境，”米勒在接受采访时告诉 El American .
 
-科索沃在2008年宣布独立时，台湾是少数几个、立即承认科索沃独立的国家。科索沃和台湾在争取国家独立主权、民主价值观、争取经济生存空间及国际承认的奋斗过程中有许多相似的境遇。
+“这意味着我们已经能够在 GETTR 创造一个空间，让人们能够辩论想法并仍然拥有积极的体验，不受大型科技公司的压迫，”他继续说道。 “我们还能够避免竞争对手因几乎没有审核系统而被平台化的一些陷阱。
 
-今天的会议，科索沃方面是由民主党籍（PDK）副主席黛柳（Blerta Deliu-Kodra）代表致词，隶属民主联盟党（LDK）的议员杰麦（Armend Zemaj）以及未来同盟党（AAK）议员贝瑞夏（Beke Berisha）等代表友台小组成员参加。
+随着用户涌向 Gettr，很明显市场正在进一步分化。然而，在 10 月中旬，一项公告再次引发了关于哪个平台最终会胜出的严重问题。
 
-双方议员表示，台湾与科索沃两个民主国家，可以并肩对抗独裁政权。同时表示声援立陶宛支持台湾的立场，并期待未来藉由台科双方的实质交流，强化双方的接触与合作。并约定明年进行互相访问。
+在对这位前总统创建自己的平台进行了数月的猜测之后，特朗普组织证实了一个名为特朗普媒体和技术集团的新实体的成立。作为这一大胆冒险的一部分，特朗普还将推出自己的社交媒体公司Truth Social，该公司将自己描述为“‘大帐篷’社交媒体平台，鼓励在不歧视政治意识形态的情况下进行开放、自由和诚实的全球对话。 ”它定于明年初推出。
 
-(本文为作者观点，不代表G NEWS立场)
+作者：[**BEN KEW**](https://elamerican.com/author/ben-kew/)
 
-参考连接：
+您可以在Gettr上关注 [*Ben Kew*](https://gettr.com/user/benkew) 和 [*El American*](https://gettr.com/user/elamerican_)
 
-&lt;[https://www.cna.com.tw/news/firstnews/202112200341.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/firstnews/202112200341.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)&gt;
+信息来源：[**Can GETTR Win the War for Free Speech Supremacy?**](https://elamerican.com/can-gettr-win-the-war-for-free-speech-supremacy/)
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec.png)
-
-
-
-校对/编辑/发稿：云豹
-
-**更多信息，更多关注**
-
-[**纽约香草山农场**** GTV****–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,26 +2,82 @@
 ---
 
 
-## 秘翻在线：李嘉诚的长江和记一切安好？
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1777239/)
+## 中共的经济地产灾难是对全世界的合法洗劫
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1777269/)
 
-**撰稿：Ping**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3188.png)
+[https://gtv.org/video/id=61c0a2ba43ccb726a088fbe1](https://gtv.org/video/id=61c0a2ba43ccb726a088fbe1)
 
-**责编：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screenshot-2021-12-21-192610.jpg)
-网易今天刊登一条名为，“李嘉诚公司遭调查！涉及717亿交易，留给长江和记的时间不多了！”标题十分醒目，到底717亿是为了急于套现还是有什么其他原因吗？
+**郭文贵
+Miles Guo**
 
-文章披露李嘉诚的长江和记在去年开始着手将分布在欧洲的6个国家的2.9万个通讯基础设施站点，出售给Cellnex Telecom。如果交易顺利完成，Cellnex Telecom将持有长江和记旗下通讯塔业务的所有权益，**交易总值100亿欧元（约合人民币717亿）**,但是直到今天交易仍未完成。
+所以说今天你看到这个金融的时候，你看到整个数据的时候
+So when you look at finance system today, when you look at the whole data
 
-今年7月份CMA表示长江和记将通讯设施出售给Cellnex以外的公司将有助于维持健康的竞争。Cellnex是英国最大的独立移动通信塔供应商，这也是CMA反垄断调查原因所在。这样巨额的交易到底是为了更健康的竞争，还是有什么不可告人的难言之隐？
+你要知道，了解共产党的真相和所谓投到中国的房地产经济
+You have to know the truth about the Communist Party and the so-called real estate economy that was invested in China
 
-李嘉诚作为香港首富，早已经被共产党视为可收割的囊中之物。对于李嘉诚转移财产的行为，实际就是在为江家洗钱，这个郭文贵先生早有爆料。如今长江和记急于抛售通讯基站业务并被CMA审查是否与共产党有关，不久的将来真相定会出来。但是在这样的时机，中共媒体大肆渲染报道李嘉诚的时间不多了，意味深厚。这大概是在给李嘉诚下马威，说明江家已经势弱，让李家看清形势不要拖延时间，尽快把海外资产交给习大神才是自保。
+你看到的这些全都是假象
+are all illusions
 
-香港早已经不是98年以前的香港，在经过共产党20多年荼毒，曾经繁荣的香港已经变成了今天颓废的臭港。香港是共产党洗劫财富的地方，李嘉诚想要脱离共产党控制，简直是痴人说梦。郭文贵先生在直播中爆料，共产党手中握有众多关于李嘉诚家族成员的黑材料。例如李嘉诚换器官，玩弄幼女等卑鄙龌龊的视频，这些都足以让他身败名裂，李嘉诚以为曾经为江家卖命有功就可以保住家族财富千秋万代吗，这样的幻想只能说明香港富豪们注定最终都是悲惨的下场。
+核心是金融领域的所有不可告知的不可查的隐秘的数据
+The core is all the untold, untraceable, hidden data in the financial sector
 
-如今大陆的富豪企业家们各个都如坐针毡，谁也保不了自己是不是下一个解直锟，会不会下一秒就会成为阶下囚。难道香港的富豪就可以独善其身？香港已然是共产党的香港，香港富豪们一旦与共产党一起嫖过娼，一起扛过枪，无论你当初地位多么显赫，你的财富就不再是你可以控制的了。还是听郭文贵先生中肯的建议，远离共产党，加入到爆料革命的灭共大军来，这才是香港和大陆富豪们的唯一出路！
+那些隐秘的东西才是对西方的最大威胁
+Those hidden things are the biggest threat to the West
 
-**[新闻链接](https://www.163.com/dy/article/GRLUA7N6055218H2.html)**
+还有西方金融机构，别光说中国金融机构
+And the Western financial institutions, not just the Chinese financial institutions
+
+西方的金融机构它不能合法地投到中国去
+Western financial institutions cannot legally invest in China’s real estate
+
+它有西方的金融管理机构
+Western financial institutions and
+
+西方的金融机构，所谓的金融产品买了对冲基金
+fund, so-called financial products bought from hedge funds
+
+西方的养老保险，西方的退伍保险、保险基金大量地投入到这个基金里
+Western pension insurance, western retirement insurance, insurance funds are heavily invested in hedge fund
+
+所有的美国的几个华人、退休基金
+All these several American Chinese managed funds, retirement funds
+
+这都是合法的偷
+Are all legal theft
+
+那是什么概念？要命的
+What is the end of that? It’s deadly
+
+兄弟姐妹们，那真的是要命的
+Brothers and sisters, that really is deadly
+
+我得吃了，我先说到这儿
+I have to eat, I’ll stop here
+
+所以说告诉你，共产党的地产和经济灾难是对全世界的一场合法洗劫
+So the Communist real estate and economic disaster is a legal looting of the whole world
+
+* * *
+
+Date:12/16/2021
+原视频标题: 中共的经济地产灾难是对全世界的合法洗劫
+CCP’s economic real estate disaster is a legitimate looting of the world
+原视频日期：2021/12/10
+原视频链接:[**https://gettr.com/post/pje75ydd03**](https://gettr.com/post/pje75ydd03)
+任务编号：3188
+视频时间段 : 0:00-01:10
+中听校：洛杉矶盘古农场 -Mike Li
+翻译：洛杉矶盘古农场 – Mike Li
+翻译终校：洛杉矶盘古农场 – Layka
+字幕+视频制作：洛杉矶盘古农场 – Jambo
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

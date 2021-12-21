@@ -2,96 +2,27 @@
 ---
 
 
-## 习近平只相信自己家人, 搞家天下治国
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1777236/)
+## Omicron未来以每日200,000的增长速度席卷澳洲
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1777268/)
 
-[https://gtv.org/video/id=61c09fbd43ccb726a088faad](https://gtv.org/video/id=61c09fbd43ccb726a088faad)
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide1-31.jpg)
+图片来源：Pexels免费照片素材库；摄影：Tiff Ng
+根据澳洲第九新闻今日报道，Doherty 研究所的最新流行病传染模型显示，在没有任何严格限制的情况下，Omicron变异毒株明年每天在澳大利亚全境的感染病例可能会达到 200,000 起——这意味着新型CCP病毒变体将可能激增并淹没卫生系统。
 
-**郭文贵
-Miles Guo**
+该模型将会在明天的国家内阁紧急会议中被提出，届时该会议将解决调整第二次疫苗接种和加强注射之间的等待周期问题。模型研究结论认为，在缺乏中等水平管制措施的前提下，从1 月底至 2 月初，澳大利亚每天可能报告多达 200,000 例病例，同时医院的住院人数每天恐怕将会突破4000人。
 
-习身体说明真的是不行了，还有习是真没人可用啦
-Xi’s health is really bad, and Xi is really not trust anybody
+该建模基于几乎没有限制的情形：没有社交距离要求、没有封锁、没有零售商铺限制，并且学校保持开放。它还假设 Omicron 变体比 Delta 变体更容易传播，并且也会导致严重的疾病。
 
-还有习是真不相信任何其他人，只相信彭丽媛，女儿，弟弟，还有彭磊
-And Xi really doesn’t believe in anyone else, only Peng Liyuan (wife), daughter, brother, and Peng Lei (brother in law)
+模型同时显示，如果大多数澳大利亚人在明年年初接种三剂疫苗——也就是完成加强针注射——那么严格的封锁可以在一个月的时间内抑制严重的疫情爆发。这便让笔者对于改模型设计的初衷有所怀疑，这个研究模型究竟只是单纯预测病例增长趋势呢？还是说实际仍然是在为进一步的疫苗加强针接种打广告？
 
-彭磊现在扮演的作用比彭丽媛还大，彭磊几乎可以决定任何一个中国企业家
-Peng Lei now plays a bigger role than Peng Liyuan, and Peng Lei can determine the fate almost any Chinese entrepreneur
+澳洲总理今天坚称，澳大利亚人不会再经历一次严格的封锁。而明天举行的紧急国家内阁会议主要是围绕加强针进行探讨。根据笔者的理解，澳大利亚加强针等待周期一定会大幅缩短，同时政府很可能在明天的会议之后鼓励居民进行加强针注射，并且越快越好。而许多可怜民众可能由于恐慌心理而再次中招，往自己体内注射更多危险的mRNA疫苗成分。
 
-像马明哲他说这个王八蛋对咱有威胁，100%让他消失，马上让他变成海航的王健100%
-Like Ma Mingzhe, he said that this bastard is a threat to us, 100% let him disappear, and 100% immediately let him become HNA’s Wang Jian
+新闻参考链接：
 
-许其亮都得消失，这100%，这是人最可怕(的地方)
-Xu Qiliang has to disappear 100%, this is the scariest thing about people
+[9 News](https://www.9news.com.au/national/coronavirus-update-national-omicron-cases-could-hit-200000-australia-doherty-modelling-shows/9c01b3d2-2c96-4eda-9e5b-bd41fbf4c84a)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
 
-你像我，你看盘古，你看裕达，没有一个我们老郭家的人在这上班，一个没有
-You look at me, look at Pangu, look at Yuda, none of our Guo’s family member work here, none of them
-
-没有我嫂子，我侄女，我七大襟，没有一个老郭家的
-Not my sister-in-law, my niece, my other family members, there is no one from the Guo’s family
-
-我从第一天我恨的就是家族企业，我到现在我也特别恨，像新中国联邦
-From the first day I hated the family business, till now I still hate it very much, like the New Federal State of China
-
-你不会有老郭家任何人参与，有一个我们老郭家参与时候你就记住
-There is no Guo family member participate, if there is one of our Guo family member’s participating
-
-你这个七哥已经是变成坏种了，坏蛋了，家天下
-You brother Miles has become a bad species, badass, and become family world
-
-还有一个人想把任何事情变成自己的，变成家族的，我不相信他会有未来
-There is one person who wants to turn anything into his own, into his family, I don’t believe he will have a future
-
-即使有了未来，他家族将付出代价
-Even with a future, his family will pay the price
-
-我从来不认为血缘关系有任何能证明你们之间有多亲多近
-I never think that blood relationship can prove how close you are
-
-我从来不相信家族关系，血缘关系，就能证明你可以依可以赖
-I never believe in family relationships, blood relationships, it can prove that you can rely on
-
-我也从来不认为就因为家族关系，他跟别人不同，恰恰相反
-I never think that he is different from others just because of the family relationship, on the contrary
-
-而且我认为，凡是把家族关系切入到事业当中的，都不叫事业
-and I think that put the family relationship into the career is not called the career
-
-就那是非常糟糕的很低级的这么一个事业，我一到哪去很多人说
-It’s a very terrible, very low-level business, whenever I go that many people say
-
-这是我们家族300年200年，我都在心里说，所以说你现在才能那么low嘛
-this is our family business for 300 years and 200 years, I said in my heart, so you can be so low now
-
-300年你还只能开个餐厅，300年你只能开个红酒店
-In 300 years, you can only open a restaurant, in 300 years, you can only open a red wine shop
-
-你有什么了不起的，人类的文明，一定不会因为你(创造)发明, 是吧
-What’s great about you, human civilization will definitely not be invented because of your creation, right?
-
-你一定不是人类的创造者，因为你根本没有奉献
-You must not be the creator of mankind because you have no dedication at all
-
-* * *
-
-Date: 12/19/2021
-原视频标题: 习近平只相信自己家人, 搞家天下治国
-Xi Jinping only believes his family members, and governs the country as his family
-原视频日期：2021/12/17
-原视频链接[https://gettr.com/post/pk22x92750](https://gettr.com/post/pk22x92750)
-任务编号：KC354（3280）
-视频时间段 : 0:00-2:04
-中听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

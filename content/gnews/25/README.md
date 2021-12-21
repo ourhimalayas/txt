@@ -2,27 +2,75 @@
 ---
 
 
-## Omicron未来以每日200,000的增长速度席卷澳洲
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1777268/)
+## 全球和澳洲疫情疫苗统计信息更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1777277/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide1-31.jpg)
-图片来源：Pexels免费照片素材库；摄影：Tiff Ng
-根据澳洲第九新闻今日报道，Doherty 研究所的最新流行病传染模型显示，在没有任何严格限制的情况下，Omicron变异毒株明年每天在澳大利亚全境的感染病例可能会达到 200,000 起——这意味着新型CCP病毒变体将可能激增并淹没卫生系统。
+**（2021年 12月21日）**
 
-该模型将会在明天的国家内阁紧急会议中被提出，届时该会议将解决调整第二次疫苗接种和加强注射之间的等待周期问题。模型研究结论认为，在缺乏中等水平管制措施的前提下，从1 月底至 2 月初，澳大利亚每天可能报告多达 200,000 例病例，同时医院的住院人数每天恐怕将会突破4000人。
+整理：枳实
+![](https://assets.gnews.org/wp-content/uploads/2021/12/疫苗-5.jpg)图片：雅典娜农场设计组 姐夫说说
+一，全球疫情基本数据
 
-该建模基于几乎没有限制的情形：没有社交距离要求、没有封锁、没有零售商铺限制，并且学校保持开放。它还假设 Omicron 变体比 Delta 变体更容易传播，并且也会导致严重的疾病。
+感染总数：2.75亿（日新增 46.87万）
 
-模型同时显示，如果大多数澳大利亚人在明年年初接种三剂疫苗——也就是完成加强针注射——那么严格的封锁可以在一个月的时间内抑制严重的疫情爆发。这便让笔者对于改模型设计的初衷有所怀疑，这个研究模型究竟只是单纯预测病例增长趋势呢？还是说实际仍然是在为进一步的疫苗加强针接种打广告？
+死亡总数：535万（日新增 4537人）
 
-澳洲总理今天坚称，澳大利亚人不会再经历一次严格的封锁。而明天举行的紧急国家内阁会议主要是围绕加强针进行探讨。根据笔者的理解，澳大利亚加强针等待周期一定会大幅缩短，同时政府很可能在明天的会议之后鼓励居民进行加强针注射，并且越快越好。而许多可怜民众可能由于恐慌心理而再次中招，往自己体内注射更多危险的mRNA疫苗成分。
+每万人感染人数：152.73人
 
-新闻参考链接：
+二，全球“疫苗”毒针统计数据
 
-[9 News](https://www.9news.com.au/national/coronavirus-update-national-omicron-cases-could-hit-200000-australia-doherty-modelling-shows/9c01b3d2-2c96-4eda-9e5b-bd41fbf4c84a)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
+“疫苗”毒针注射总数：84.7亿
 
+完全“接种”：36.3亿人
+
+完全“接种”百分比：46.6%
+
+三，澳洲疫情和“疫苗”数据
+
+感染总数：254，685（今日新增 3990人）
+
+死亡总数：2146人
+
+每万人感染人数：100.50人
+
+“疫苗”毒针注射总数：41,460,631
+
+完全“接种”：1960万人
+
+完全“接种”百分比：76.1%
+
+16岁以上人口接种至少一剂疫苗的比例：93.9%
+
+16岁以上人口接种至少两剂疫苗的比例：90.6%
+
+四，澳洲中共病毒“疫苗“副作用每周报告关键信息
+
+报告给TGA 的接种后疫苗死亡的案例已达705例
+
+疑似心包炎：1881例
+
+疑似心肌炎：891例
+
+胸痛已经被该报告列入18岁以下人群的常见疫苗副作用之首
+
+接种疫苗后发生的格林巴利综合征154例。
+
+格林巴利综合征是一种神经元脱髓鞘疾病，它会导致全身瘫痪甚至呼吸困难，心律失常，通常需要重症监护病房抢救。[在澳大利亚每年发病率仅340人](https://www.gbs-cidp-nsw.org.au/information/what-is-cidp)，而现在中共病毒疫苗在澳洲推行不足一年竟然已经有154人在注射这种所谓“疫苗“后发生此病。
+
+数据来源：
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+
+发布：kk
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

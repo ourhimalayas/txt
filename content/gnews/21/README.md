@@ -2,36 +2,74 @@
 ---
 
 
-## 英国脱欧部长在辞职信中警告不要采取“强制性”中共病毒措施
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1777309/)
+## 大流行的一切都基于恐惧和操纵
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1777339/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/4B253197-2F14-4ED0-9156-39020F720E58_w1023_r1_s3.jpg)图片来源：© Reuters/John Sibley
-英国脱欧事务大臣大卫·弗罗斯特（David Frost）周六辞职，警告不要实施与中共病毒相关的新限制。 他说，在他的计划被泄露给媒体后，他不得不提前下台。《星期日邮报》首次报道了他的辞职，其中描述了弗罗斯特近几个月对政府经济政策的日益失望。
+翻译 : JENNY BALL
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1129.png)图片来源 newstarget.com
+事实证明，关于武汉冠状病毒 (COVID-19) 的任何事情都不是基于事实和理由的。律师托马斯·伦茨（Thomas Renz）说，一切都是恐惧和操纵。
 
-弗罗斯特在给英国首相鲍里斯·约翰逊的告别信中表示，他最初计划在1月份卸任以确保平稳过渡，但在他即将离职的消息泄露给媒体后，他决定立即辞职。“令人失望的是，这项计划已经公开，”弗罗斯特说。
+在最近的“再次唤醒美国”（Reawaken America）巡回活动中，在伦茨展示的幻灯片中，解释了整个系统，包括政府机构、主流媒体和大型制药公司，如何向公众撒谎以推动更多的暴政和销售更多的药物。
 
-“英国退欧现在是安全的，”他和约翰逊“一直采用相同的方法”，他说。 与此同时，弗罗斯特对政府恢复与大流行相关的限制表示失望。
+下面来自 Brighteon.com 的剪辑包含了伦茨演讲的一部分——请务必观看：
 
-你在七月做出了一个勇敢的决定，在大量反对的情况下，再次开放这个国家。 可悲的是，它并没有像我希望的那样证明是不可逆转的，相信你也是如此。 我希望我们能尽快回到正轨，不要被我们看到的其他地方那种强制性措施所诱惑。
+[newstarget.com](https://www.newstarget.com/2021-12-18-thomas-renz-plandemic-based-on-fear-manipulation.html)
 
-约翰逊在回信中感谢弗罗斯特在与欧盟有争议的谈判中“不懈的努力、决心和远见”。 首相指出，在弗罗斯特的监督下，英国完成了退出欧盟并与布鲁塞尔签署了贸易协议。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1131.png)图片来源 newstarget.com
 
-弗罗斯特的离职正值约翰逊内阁的艰难时期。本周，首相面临着近100名保守党议员的内部反抗，他们投票反对政府关于新的中共病毒限制的计划。约翰逊还因去年政府官员在圣诞节期间举行的几次聚会而受到批评，据报道，这些聚会违反了封锁规定。
+作为一名律师，伦茨知道处理这些危害人类罪，不仅仅只需要一个法庭案件。
 
-简评：随着全球新的一轮中共病毒蔓延，许多国家都在疯狂地盲目地实行强制疫苗政策，郭文贵先生和新中国联邦是第一个站出来披露疫苗真相，反对假疫苗，揭露中共病毒来源并且提供病毒解药的方案。当疫苗灾难逐渐爆发，会有越来越多的人，包括政府机构，为了正义和真相加入进来。灭共是世界和平的需要，灭共更是正义的需要。
+“当你的犯罪规模如此之大，影响到整个人口时，你需要开始考虑比法庭更大的事情，”他说。
 
-原文链接：[Brexit minister warns against ‘coercive’ Covid measures in resignation letter](https://www.rt.com/uk/543661-david-frost-resignation-letter/)
+“这就是为什么我们需要在国际范围内研究事件，我们需要把很多人关进监狱。”
+
+伦茨将这一努力称为“纽伦堡 2.0”，第二次世界大战后进行了第一次纽伦堡审判。
+
+“整个事件都是一场骗局，”伦茨谈到大流行时说。“恐惧、操纵，欺诈，以及最终的死亡正在推动它。我们必须有权威人士进行独立调查，追究刑事责任。”
+
+Omicron 是这些疫苗的结果：它是接种疫苗后引发的变体
+
+骗局的最新部分是所谓的“Omicron”或愚蠢的变种。就像之前的变体“Delta”一样，愚蠢的行为被用来恐吓更多人，迫使他们放弃他们的权利。
+
+所有这一切，都是很久以前由CDC等机构制定的，**该中心使用几乎相同的策略来销售流感疫苗。**
+
+通过不断传播对严重伤害或死亡的恐惧，CDC 及其在大药企和大媒体的合作，说服数百万人进行季节性注射，这些注射剂没有任何好处，只有伤害。
+
+那些个疫苗已经持续了几十年，现在系统正在加大对福奇流感疫苗的赌注，这些疫苗正迅速变得就像流感疫苗一样，将有无穷无尽的“加强剂”。
+
+CDC 与大型制药公司极力勾结，推动这场针对流感疫苗和 COVID 疫苗的恐惧运动。伦茨在幻灯片中提供了这一点的证据，**用该机构自己的话描述了 ****CDC ****的策略。**（相关：美国前线医生的律师就 45,000 例新冠疫苗死亡向美国政府提起诉讼。）
+
+“你可以随时将流感换成 COVID，”伦茨谈到流感疫苗和 COVID 疫苗的策略是一个套路。
+
+媒体还通过对流感、COVID 或当今可能发生的任何疾病，造成“高度关注和焦虑”，来发挥宣传作用。
+
+正如我们现在所知，一切都变成了 COVID 死亡，毫无疑问，他们欺骗使数字激增，并吓唬数百万人进行封锁、疏远、接种疫苗，和现在加强剂。
+
+伦茨在他的网站上展示了其他值得注意的信息，包括：
+
+• 国防部 (DoD) 文件显示，政府根据种族跟踪疫苗接种情况；
+
+• 举报人数据显示 ，COVID 疫苗比政府承认的要致命得多；
+
+• 数字显示 COVID 疫苗死亡人数不在图表之列；
+
+“伦茨律师呼吁设立一名特别独立检察官，调查 福奇博士、FDA、CDC、DHHS ，以及主流媒体等，那些可能对这种致命注射剂的营销和授权负有责任的人的刑事和民事违法行为”。
+
+有关大流行谎言欺骗的更多消息，请访问[Corruption.news](https://corruption.news/).
+
+新闻来源 ：[newstarget.com] [Thomas Renz: Everything about the plandemic is based on fear and manipulation](https://www.newstarget.com/2021-12-18-thomas-renz-plandemic-based-on-fear-manipulation.html) / [Renz-Law.com](https://renz-law.com/nuremburg20/) / [Brighteon.com](https://www.brighteon.com/ad09bdc9-0d8f-4147-b897-d52e5fc358e2) / [NaturalNews.com](https://naturalnews.com/2021-07-21-americas-frontline-lawsuit-government-covid-vaccine-deaths.html)
 
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-4.jpeg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 
