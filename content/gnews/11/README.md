@@ -2,100 +2,38 @@
 ---
 
 
-## 国内房地产现状就是共产党裤裆下的那个窟窿，会毁掉中国三代人
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1777029/)
+## 【中日财经爆】富士康印度工厂员工食物中毒 爆发示威抗议
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1777074/)
 
-[https://gtv.org/video/id=61c09ec243ccb726a088fa58](https://gtv.org/video/id=61c09ec243ccb726a088fa58)
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1111.png)[图片来源](https://www.exmoo.com/article/189726.html)
+鸿海集团旗下富士康的印度组装厂员工走上街头，抗议宿舍食物中毒事件。印度警方逮捕数十名阻塞高速公路的示威参与者，目前已将工人释放。该厂本周继续关闭。这是苹果公司在印度的代工厂，于一年内爆发的第2起示威。
 
-**郭文贵
-Miles Guo**
+随着富士康希望把中美贸易战的冲击最小化，印度、墨西哥及越南等地的代工厂，重要性也愈来愈高。
 
-她说我孩子在北京和我，我们都买了房子，干了这一二十年
-She said that my child and I, we both bought apartments in Beijing and worked there for 10-20 years
+[《The Hindu》](https://www.thehindu.com/news/national/tamil-nadu/rumour-leads-to-protest-in-foxconn-factory-near-chennai/article37983801.ece)报导，当地15日富士康位于提鲁瓦卢尔区（Tiruvallur）的其中一栋员工宿舍，在用餐后多集体爆发食物中毒，报导指出多达256人接受治疗，有159名住院，而在这159名病患当中，已有155人于当地时间周六出院。
 
-然后我们是盘古人，她说我的前30年是在这个小城市活着的
-Then we are Pangu people, she said that I lived in this small town for my first 30 years
+另外据报导，有4名在治疗后状况良好，目前已脱离险境。
 
-我的后20年是在盘古跟你一起活着的，我的女儿生下来以后长大18岁以后就是跟盘古活着
-I lived in Pangu with you for the last 20 years, after my daughter was born and after she was 18 years old, she grew up with Pangu and lived with Pangu
+不过因为有传言说因此事造成2名员工身亡，进而引发大批员工不满上前抗议，工厂工人与家属上街抗议，示威者封锁清奈到班加罗尔（Bengaluru）的重要干道，时间长达数小时。
 
-她说我们一家两代人都买了房子，她说现在我们在北京, 现在想卖房子的时候
-She said that two generations of our family have bought apartments, and she said that now we are in Beijing now when we want to sell the house
+《The Hindu》报导，当地官员已与员工进行视讯对话，消除身亡谣言，并保证会采取必要措施保障他们，部分示威者已经散去，不过仍有不满的员工仍在抗议，已被警方带走。
 
-我们降价卖不让我们卖，而且一家人在过去的时候，郭先生，我就听了你的
-We want to sell it at lower price and won’t let us sell it, and Mr. Guo when our family was in the past we listened to you
+路透社报导，目前无法立即得知工厂生产线是否因示威中断，富士康拒绝置评。苹果公司未立即回覆要求置评的电子邮件。未获授权对媒体发言因此要求匿名的印度警官表示，在18日示威遭到拘留的近70名女性，隔天已经获释，另有22名男子被逮捕。富士康在印度的员工多为女性。
 
-我们全家买了政泉的房子，也就是付了300块人民币的定金每平方米买了的房子
-Our family bought Zhengquan’s house, which means we paid a deposit of RMB 300 per square meter
+政府消息人士周二告诉路透，该工厂爆发抗议事件后本周将继续关闭。Kancheepuram的警察总监说，该工厂宣布放假五天。
 
-她说每套房子都赚了2000多万，又听了你七哥的直播，我们把房子给卖了
-She said that every house made more than 20 million yuan profits, and after listening to you Miles’s live broadcast, we sold the apartments
+去年12月，苹果公司代工厂——台湾纬创资通的印度南部厂房传出数千名工人因薪资问题暴动，砸毁办公设备和部分生产线及车辆，损失估计达6000万美元。
 
-我们的钱也都拿回来了，现在我们在外边买的房子就是打折卖没人买
-We got money back, and now we want to sell the apartments we bought other place at a discount price and no one buys it
+消息来源：[外传员工因食物中毒身亡富士康印度厂爆示威者抗议](https://ec.ltn.com.tw/article/breakingnews/3773479)
 
-我们两代的房子就没听你没了，她说，不但是我们这样是整个北京
-We didn’t listen to you that our two generations’ apartments are gone, she said, not only ours, it is for the whole Beijing’s
+[富士康印度廠爆集體食物中毒 多人住院 員工爆抗議潮](https://www.mypeoplevol.com/Fin/Article/12923)
 
-但是我问了一下我们四川的老乡，几乎是只要超过500万的房子
-But I asked our Sichuan’s fellows, there are almost the apartments that are over 5 million yuan
+[独家：鸿海印度厂爆发抗议事件后继续关闭–政府消息人士](https://cn.reuters.com/article/hon-hai-india-plant-protest-1221-idCNKBS2J00H5)
 
-你挂牌以后，跟那个市场的要价根本不可能，她说，最可怕的是银行
-after you list it, it is impossible to ask for the market price, she said that the most terrifying thing is the bank
-
-她说银行在春节前还让我们跟它做假账，什么还贷款
-She said that before the Spring Festival, the bank asked us to make false accounts with them, and like repay the loan
-
-你多给我点儿钱，我借给点钱，你给我充什么贷款
-all the banks rush performance, and desperately urging me to borrow money etc.
-
-她说一堆复杂的东西，更重要的事情，我们这位战友的娘说了一句话
-She said a lot of complicated things, more important things, this comrade-in-arms’ mother said a word
-
-她说你知道我在外面老家现在发生什么，我们在老家的房子
-She said you know what is happening in my hometown, our apartments in my hometown
-
-现在政府登记完以后，马上要求你，答应像咱们锁币币加锁一样
-Now that after the government has finished registering, it will ask you immediately and promise to be like we freeze Hcoins
-
-他们叫房加锁，3到5年内不能卖，因为你曾经有过三套房
-Apartments cannot be sold for 3 to 5 years, because you once owned three houses
-
-现在房子3年锁房，而且银行给你的造假
-Now the house is freeze for 3 years, and the bank gives you a fraudulent paperwork
-
-提前交3年物业管理费, 银行贷给你的物业管理费
-pay the property management fee for 3 years in advance and the bank lends your property management fees
-
-房地产现在是共产党(想)捂住捂不住的
-now the Communist Party want to cover up the real estate’s collapse and it can’t
-
-在裤裆下那个大窟窿了，这是个天大的事情
-this is a big hole in the crotch, this is a big deal
-
-房地产会毁掉两代人、三代人、四代人，或者你成为房奴
-Real estate’s collapse will destroy two, three, or four generations, or you will become the house slave
-
-* * *
-
-Date: 12/18/2021
-原视频标题: 国内房地产现状就是共产党裤裆下的那个窟窿，会毁掉中国三代人
-The status quo of domestic real estate is the hole in the crotch of the Communist Party, which will destroy three generations of China
-原视频日期：2021/12/15
-原视频链接[**https://gettr.com/post/pjwfvdd010**](https://gettr.com/post/pjwfvdd010)
-任务编号：KC352(3267)
-视频时间段 : 0:00-2:17
-中听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*校对：东京樱花团/ 知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

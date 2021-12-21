@@ -2,38 +2,21 @@
 ---
 
 
-## 【中日财经爆】富士康印度工厂员工食物中毒 爆发示威抗议
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1777074/)
+## 世界最大游轮“海洋交响乐号”爆发新冠疫情 至少48人确诊
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1777176/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1111.png)[图片来源](https://www.exmoo.com/article/189726.html)
-鸿海集团旗下富士康的印度组装厂员工走上街头，抗议宿舍食物中毒事件。印度警方逮捕数十名阻塞高速公路的示威参与者，目前已将工人释放。该厂本周继续关闭。这是苹果公司在印度的代工厂，于一年内爆发的第2起示威。
+#### 翻译/撰稿：zzballack
 
-随着富士康希望把中美贸易战的冲击最小化，印度、墨西哥及越南等地的代工厂，重要性也愈来愈高。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-2-17.jpg)图片来源：Cruise Industry News
+据《NBC新闻网》（NBC News）12月20日报道，皇家加勒比（Royal Caribbean）公司12月20日表示，该公司旗下的世界最大之一游轮“海洋交响乐号”（Symphony of the Seas）18日发生群聚感染事件，有48位乘客和船员新冠检测呈阳性。
 
-[《The Hindu》](https://www.thehindu.com/news/national/tamil-nadu/rumour-leads-to-protest-in-foxconn-factory-near-chennai/article37983801.ece)报导，当地15日富士康位于提鲁瓦卢尔区（Tiruvallur）的其中一栋员工宿舍，在用餐后多集体爆发食物中毒，报导指出多达256人接受治疗，有159名住院，而在这159名病患当中，已有155人于当地时间周六出院。
+载有近7000人的“海洋交响乐号”游轮本月11日从迈阿密出发，8天7夜的旅途中曾停靠加勒比海的圣马丁岛（St. Martin）、圣托马斯岛（St. Thomas），18日返回迈阿密，结束航程。皇家加勒比公司在声明中表示：“在航行期间发现一名乘客确诊后，立即展开接触追踪，扩大病毒筛检，目前至少有48人确诊。全船95%的人都已完全接种疫苗，阳性患者中有高达98%的人已经接种了两剂疫苗，不过症状轻微或没有症状。每一个人都迅速被隔离，我们将持续监测他们的健康状况。有6位受影响的客人在返回迈阿密之前下了船。”
 
-另外据报导，有4名在治疗后状况良好，目前已脱离险境。
+该公司称，“海洋交响乐号”的全体工作人员都接种了疫苗，并每周进行核酸测试。而且要求12岁及以上乘客必须接种两剂辉瑞或莫德纳疫苗，或者一剂强生疫苗。
 
-不过因为有传言说因此事造成2名员工身亡，进而引发大批员工不满上前抗议，工厂工人与家属上街抗议，示威者封锁清奈到班加罗尔（Bengaluru）的重要干道，时间长达数小时。
+新闻来源：[Nearly 50 on Royal Caribbean’s Symphony of the Seas cruise ship test positive for Covid-19](https://www.nbcnews.com/news/us-news/nearly-50-royal-caribbeans-symphony-seas-cruise-ship-test-positive-cov-rcna9346)
 
-《The Hindu》报导，当地官员已与员工进行视讯对话，消除身亡谣言，并保证会采取必要措施保障他们，部分示威者已经散去，不过仍有不满的员工仍在抗议，已被警方带走。
-
-路透社报导，目前无法立即得知工厂生产线是否因示威中断，富士康拒绝置评。苹果公司未立即回覆要求置评的电子邮件。未获授权对媒体发言因此要求匿名的印度警官表示，在18日示威遭到拘留的近70名女性，隔天已经获释，另有22名男子被逮捕。富士康在印度的员工多为女性。
-
-政府消息人士周二告诉路透，该工厂爆发抗议事件后本周将继续关闭。Kancheepuram的警察总监说，该工厂宣布放假五天。
-
-去年12月，苹果公司代工厂——台湾纬创资通的印度南部厂房传出数千名工人因薪资问题暴动，砸毁办公设备和部分生产线及车辆，损失估计达6000万美元。
-
-消息来源：[外传员工因食物中毒身亡富士康印度厂爆示威者抗议](https://ec.ltn.com.tw/article/breakingnews/3773479)
-
-[富士康印度廠爆集體食物中毒 多人住院 員工爆抗議潮](https://www.mypeoplevol.com/Fin/Article/12923)
-
-[独家：鸿海印度厂爆发抗议事件后继续关闭–政府消息人士](https://cn.reuters.com/article/hon-hai-india-plant-protest-1221-idCNKBS2J00H5)
-
-*校对：东京樱花团/ 知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

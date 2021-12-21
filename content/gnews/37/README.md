@@ -2,51 +2,21 @@
 ---
 
 
-## 恒大地皮再被收回，相关上市公司大跌
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1776373/)
+## 美国华盛顿特区的一家广播电台接受了中共440万美元为其做宣传
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1776422/)
 
-作者：日本方舟农场 – Andy5
+翻译：zzballack
+上传：追着曙光跑
 
+据《华盛顿自由灯塔》（Washington Free Beacon）12月20日报道，根据《外国代理人登记法》，总部设在弗吉尼亚州的波托马克媒体集团（Potomac Media Group）12月16日向司法部提交了一份最新披露文件。文件详细说明了它与中宣部下属机构国际传播规划局（International Communication Planning Bureau）之间利润丰厚的合同。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/WhatsApp-Image-2021-12-21-at-14.23.18.jpeg)图片来源：原新闻
+根据文件，中共与波托马克媒体集团旗下的、位于华盛顿特区的WCRW广播电台签署了一笔价值440万美元的合同，涵盖时间从2019年7月至2021年8月。合同要求WCRW电台广播宣传中国环球电视网CGTN的内容和一系列正面描述中共的谈话节目、社交媒体推广、以及制作脱口秀节目《桥》（The Bridge）。国际传播规划局可以审查并核实广播节目。波托马克媒体被要求向规划局提供关于受众范围、反馈和“国际组织的评价”的报告。
 
+其实自1992年以来，WCRW就一直在播放来自中共官媒中国国际广播电台 (China Radio International) 的内容，但此前并没有向司法部登记为中共的外国代理人。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+北京与WCRW的合作突显了中共在美国的宣传活动范围十分广泛。近年来，由于中共试图转移人们对其侵犯人权行为的注意力，它们的宣传活动已经进入了高潮。中共官媒通过社交媒体和与美国报纸和杂志的出版交易，积极地向美国受众推广其内容。《中国日报》已向《时代周刊》、《外交政策》（Foreign Policy）杂志和《华尔街日报》支付了数百万美元，以便让它们在其官网上发表中共的大外宣文章。中共驻纽约领事馆最近雇用了一家公关公司，通过招募社交媒体上的网红来宣传北京冬奥会。
 
-
-
-12月20日，成都市相关官网的公告显示，恒大在成都的两副面积共逾30平方米用地被收回。受此消息冲击，投资恒大的华人置业和嘉寓股份股票大跌。
-
-据了解，这两块地皮是在2010-2011年间拍得，现在因为长期未开工，被当地政府收回。从9月到现在，恒大地皮已经有安徽安庆（8）、海南海口（8）以及四川成都（2）共18块地皮被政府无补偿回收。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-251.jpg)
-受此影响，恒大股价连续大跌，并拖累了投资恒大的上市企业。例如，华人置业在12月20日复牌之后，跌幅一度达到35%，如果年内清空全部恒大股票，亏损将超过104亿港元。19日晚，嘉寓股份发布风险提示公告，目前正在跟恒大协商解决问题，次日嘉寓股份股价大跌近18.4%。据悉，嘉寓股份合计商票敞口金额为13.16亿元，而自2007年累计净利润约8亿元，仅靠嘉寓股份自身已经无法补上这个敞口。
-
-参考链接：
-1. [恒大成都两幅用地被收回　涉逾30万平方米](https://gbcode.rthk.hk/TuniS/news.rthk.hk/rthk/ch/component/k2/1625210-20211220.htm?spTabChangeable=0)
-2. [又一家上市公司被恒大拖下水，15年净利直接白干了](https://finance.sina.com.cn/stock/s/2021-12-20/doc-ikyakumx5331455.shtml)
-3. [一度暴跌超30%！华人置业水逆，投资恒大血亏超100亿](http://hk.jrj.com.cn/2021/12/20165734034879.shtml)
-4. [财经网头条](http://m.caijing.com.cn/api/show?contentid=48265028.)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
-
-总编/编辑：DM
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+信息来源：[CCP Paid DC Radio Station $4.4 Million To Broadcast Propaganda](https://freebeacon.com/media/ccp-paid-dc-radio-station-4-4-million-to-broadcast-propaganda/)
 
  
 
