@@ -2,52 +2,32 @@
 ---
 
 
-## 辉瑞公司首席执行官谈FDA已批准第一个电子药丸
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1776788/)
+## COVID-19 最新情报｜Omicron 入侵 驻日美军群聚感染 日政府通过预算考虑将职场加强剂提前
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1776837/)
 
-**翻译：奮鬥**
-**校对：精靈藍**
-**剪辑/字幕：向上James**
-**文字编辑：MSGZ**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-260.png)图片来源：雅典娜农场
-提问者：
+疫情關注組 / 發佈時間｜21/12/2021
 
-我有一个关于病人参与的问题。你以前也提到过这个问题。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-所有这些进展都是惊人的。
 
-但是，即使你制造了最伟大的药物或最伟大的可穿戴设备，也不能保证病人会服用药物或使用设备。
+日前，据日本首相岸田文雄表示[已经与辉瑞公司达成了一项基本协定](https://gnews.org/zh-hant/1770349/)，确保200万剂量的新冠口服药物，日本政府正考虑公费负担新冠口服药的全部费用。
 
-所以你是如何考虑用技术来吸引病人的？
+## **日本政府通过35兆日元补正预算 考虑将职场疫苗接种日程提前**
 
-辉瑞公司首席执行官Albert Bourla：
+20日下午日本参议院全体会议上，批准并公布2021财年（截至2022年3月底）补正预算，支出总额为35.9895兆日元，成为日本有史以来最大的补正预算案。日本首相岸田文雄于11月提出补正预算案，为刺激经济、提供补贴，如因应新冠病毒，针对18岁以下提出10万的生活补助措施。
 
-同样，也许我会用一个我认为很吸引人的例子，现在这个领域正在发生的事情。
+厚生劳动部长后藤茂之在全体会议之前的参议院预算委员会会议上宣布，考虑将第三剂新冠疫苗接种提前用于职场的接种，为应对Omicron病毒。首相岸田文雄在预算委员会上重申，加强新冠病毒的防范措施将至少持续到明年年初。
 
-我的意思是，美国食品和药物管理局批准了第一个电子药丸，如果我可以这样称呼它的话。
+## **冲绳美军基地 爆群聚感染 至少180人确诊**
 
-所以它基本上是一种生物芯片，它在片剂中。
+内阁官房长官松野博一于20日上午的记者会表示，根据驻日美军的通知，截至当天(20日)上午，[冲绳县汉森美军营发生群聚感染](https://mainichi.jp/articles/20211220/ddg/001/040/002000c)（包括金武町），至少有180人被确认感染了新冠病毒。其中，发现在汉森营地工作的一名40多岁日本籍女性确诊Omicron。
 
-一旦你服用了药片，并溶解在你的胃里，就会发出一个信号，但你服用了药片。
+日本冲绳县知事21日[表示](https://mainichi.jp/articles/20211220/k00/00m/040/227000c)，若基地内的传染病防治措施没有彻底实施，Omicron将蔓延冲绳县，迄今为止的努力(防止感染的传播)将会泡汤。他要求日美两国政府暂停美军前往冲绳的行动，并禁止汉森营地驻军外出，在基地内建立筛检制度。
 
-那么想象一下合规性的应用。
-
-保险公司可以知道病人应该吃的药物，他们确实服用了这些药物。
-
-在这个领域发生的事情是令人着迷的。
-
-但当然，会有一个初始成本，但需要有人投资。
-
-视频链接：[https://www.bitchute.com/video/wXdlllPg5WgA/](https://www.bitchute.com/video/wXdlllPg5WgA/)
-
-**发布：**去中心化Math
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+松野长官说，他已要求所有美国官员遵守行为管理指示，并“强烈建议在不遵守的情况下采取严格措施，包括纪律处分”。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-1-4.png)
+来源￨[KYODO](https://nordot.app/845581512475803648)/[每日新聞](https://mainichi.jp/)
 
  
 

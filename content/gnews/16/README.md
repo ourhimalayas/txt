@@ -2,26 +2,52 @@
 ---
 
 
-## 整肃加强 知乎继新浪微博、豆瓣后收到整改令
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1776813/)
+## 台湾与科索沃成立国会联谊会
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1776905/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/4B253197-2F14-4ED0-9156-39020F720E58_w1023_r1_s2.jpg)网络图片
-据美国之音12月21日报道，继中共当局对新浪微博和豆瓣网当月分别约谈和处罚300万元和150万元后，社会性问答网站“知乎网”负责人被约谈，针对“知乎网”多次出现所谓的“法律法规禁止发布或者传输的信息”等问题，依据中共的《网络安全法》，责令知乎网立即整改，不得为当局视为“违法违规”的信息提供传播平台。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-5-768x103-19.jpg)
 
-2021年1月至11月，国家网信办指令北京市网信办对新浪微博处罚44次，累计罚款1430万元。对豆瓣网处罚20次，累计罚款900万元。中共没钱了！于是，各行各业被清算，大小老板被抢劫。虽然没钱了，但日子还得过，帮着壮胆的小弟要养，公检法要养。冬奥会即将开幕，没钱怎么办？只能从大小企业和老百姓兜里抢钱，这是中共唯一的生财之道。
-
-新闻参考链接：[中共加紧整肃处罚网络平台 继新浪微博、豆瓣后,知乎亦收到整改令](https://www.voachinese.com/a/china-summons-zhihu-for-unlawful-release-of-information-20211220/6362080.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+作者：纽约香草山 医疗部 云豹
 
 
-编辑：【英国伦敦喜庄园编辑部】
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
+
+
+当地时间12月20日，台湾民进党立委罗致政邀集朝野立委39人，组成「台湾–科索沃国会联谊会」。同时与「科索沃–台湾国会友谊小组」成员进行视频会议，正式开启两国的国会联谊。
+
+这是台湾国会与欧洲巴尔干地区国家建立的第一个国会友谊团体，具有历史性里程碑的特别意义。
+
+科索沃在2008年宣布独立时，台湾是少数几个、立即承认科索沃独立的国家。科索沃和台湾在争取国家独立主权、民主价值观、争取经济生存空间及国际承认的奋斗过程中有许多相似的境遇。
+
+今天的会议，科索沃方面是由民主党籍（PDK）副主席黛柳（Blerta Deliu-Kodra）代表致词，隶属民主联盟党（LDK）的议员杰麦（Armend Zemaj）以及未来同盟党（AAK）议员贝瑞夏（Beke Berisha）等代表友台小组成员参加。
+
+双方议员表示，台湾与科索沃两个民主国家，可以并肩对抗独裁政权。同时表示声援立陶宛支持台湾的立场，并期待未来藉由台科双方的实质交流，强化双方的接触与合作。并约定明年进行互相访问。
+
+(本文为作者观点，不代表G NEWS立场)
+
+参考连接：
+
+&lt;[https://www.cna.com.tw/news/firstnews/202112200341.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/firstnews/202112200341.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)&gt;
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec.png)
+
+
+
+校对/编辑/发稿：云豹
+
+**更多信息，更多关注**
+
+[**纽约香草山农场**** GTV****–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
  
 

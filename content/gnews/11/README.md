@@ -2,52 +2,99 @@
 ---
 
 
-## 台湾与科索沃成立国会联谊会
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1776905/)
+## 国内房地产现状就是共产党裤裆下的那个窟窿，会毁掉中国三代人
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1777029/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-5-768x103-19.jpg)
+[https://gtv.org/video/id=61c09ec243ccb726a088fa58](https://gtv.org/video/id=61c09ec243ccb726a088fa58)
 
-作者：纽约香草山 医疗部 云豹
+**郭文贵
+Miles Guo**
 
+她说我孩子在北京和我，我们都买了房子，干了这一二十年
+She said that my child and I, we both bought apartments in Beijing and worked there for 10-20 years
 
+然后我们是盘古人，她说我的前30年是在这个小城市活着的
+Then we are Pangu people, she said that I lived in this small town for my first 30 years
 
+我的后20年是在盘古跟你一起活着的，我的女儿生下来以后长大18岁以后就是跟盘古活着
+I lived in Pangu with you for the last 20 years, after my daughter was born and after she was 18 years old, she grew up with Pangu and lived with Pangu
 
+她说我们一家两代人都买了房子，她说现在我们在北京, 现在想卖房子的时候
+She said that two generations of our family have bought apartments, and she said that now we are in Beijing now when we want to sell the house
 
-当地时间12月20日，台湾民进党立委罗致政邀集朝野立委39人，组成「台湾–科索沃国会联谊会」。同时与「科索沃–台湾国会友谊小组」成员进行视频会议，正式开启两国的国会联谊。
+我们降价卖不让我们卖，而且一家人在过去的时候，郭先生，我就听了你的
+We want to sell it at lower price and won’t let us sell it, and Mr. Guo when our family was in the past we listened to you
 
-这是台湾国会与欧洲巴尔干地区国家建立的第一个国会友谊团体，具有历史性里程碑的特别意义。
+我们全家买了政泉的房子，也就是付了300块人民币的定金每平方米买了的房子
+Our family bought Zhengquan’s house, which means we paid a deposit of RMB 300 per square meter
 
-科索沃在2008年宣布独立时，台湾是少数几个、立即承认科索沃独立的国家。科索沃和台湾在争取国家独立主权、民主价值观、争取经济生存空间及国际承认的奋斗过程中有许多相似的境遇。
+她说每套房子都赚了2000多万，又听了你七哥的直播，我们把房子给卖了
+She said that every house made more than 20 million yuan profits, and after listening to you Miles’s live broadcast, we sold the apartments
 
-今天的会议，科索沃方面是由民主党籍（PDK）副主席黛柳（Blerta Deliu-Kodra）代表致词，隶属民主联盟党（LDK）的议员杰麦（Armend Zemaj）以及未来同盟党（AAK）议员贝瑞夏（Beke Berisha）等代表友台小组成员参加。
+我们的钱也都拿回来了，现在我们在外边买的房子就是打折卖没人买
+We got money back, and now we want to sell the apartments we bought other place at a discount price and no one buys it
 
-双方议员表示，台湾与科索沃两个民主国家，可以并肩对抗独裁政权。同时表示声援立陶宛支持台湾的立场，并期待未来藉由台科双方的实质交流，强化双方的接触与合作。并约定明年进行互相访问。
+我们两代的房子就没听你没了，她说，不但是我们这样是整个北京
+We didn’t listen to you that our two generations’ apartments are gone, she said, not only ours, it is for the whole Beijing’s
 
-(本文为作者观点，不代表G NEWS立场)
+但是我问了一下我们四川的老乡，几乎是只要超过500万的房子
+But I asked our Sichuan’s fellows, there are almost the apartments that are over 5 million yuan
 
-参考连接：
+你挂牌以后，跟那个市场的要价根本不可能，她说，最可怕的是银行
+after you list it, it is impossible to ask for the market price, she said that the most terrifying thing is the bank
 
-&lt;[https://www.cna.com.tw/news/firstnews/202112200341.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/firstnews/202112200341.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)&gt;
+她说银行在春节前还让我们跟它做假账，什么还贷款
+She said that before the Spring Festival, the bank asked us to make false accounts with them, and like repay the loan
 
+你多给我点儿钱，我借给点钱，你给我充什么贷款
+all the banks rush performance, and desperately urging me to borrow money etc.
 
+她说一堆复杂的东西，更重要的事情，我们这位战友的娘说了一句话
+She said a lot of complicated things, more important things, this comrade-in-arms’ mother said a word
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec.png)
+她说你知道我在外面老家现在发生什么，我们在老家的房子
+She said you know what is happening in my hometown, our apartments in my hometown
 
+现在政府登记完以后，马上要求你，答应像咱们锁币币加锁一样
+Now that after the government has finished registering, it will ask you immediately and promise to be like we freeze Hcoins
 
+他们叫房加锁，3到5年内不能卖，因为你曾经有过三套房
+Apartments cannot be sold for 3 to 5 years, because you once owned three houses
 
-校对/编辑/发稿：云豹
+现在房子3年锁房，而且银行给你的造假
+Now the house is freeze for 3 years, and the bank gives you a fraudulent paperwork
 
-**更多信息，更多关注**
+提前交3年物业管理费, 银行贷给你的物业管理费
+pay the property management fee for 3 years in advance and the bank lends your property management fees
 
-[**纽约香草山农场**** GTV****–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+房地产现在是共产党(想)捂住捂不住的
+now the Communist Party want to cover up the real estate’s collapse and it can’t
 
-[**纽约香草山农场**** GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+在裤裆下那个大窟窿了，这是个天大的事情
+this is a big hole in the crotch, this is a big deal
 
-[**纽约香草山农场**** Gettr**](https://www.gettr.com/user/himalaya_mos)
+房地产会毁掉两代人、三代人、四代人，或者你成为房奴
+Real estate’s collapse will destroy two, three, or four generations, or you will become the house slave
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+* * *
 
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+Date: 12/18/2021
+原视频标题: 国内房地产现状就是共产党裤裆下的那个窟窿，会毁掉中国三代人
+The status quo of domestic real estate is the hole in the crotch of the Communist Party, which will destroy three generations of China
+原视频日期：2021/12/15
+原视频链接[**https://gettr.com/post/pjwfvdd010**](https://gettr.com/post/pjwfvdd010)
+任务编号：KC352(3267)
+视频时间段 : 0:00-2:17
+中听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
