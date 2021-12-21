@@ -2,25 +2,26 @@
 ---
 
 
-## 有声|潘石屹名下SOHO项目被罚7.09亿元
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1778180/)
+## 英国医护人员拒绝强制疫苗可能导致医院关闭
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1778264/)
 
-配音：香草山香港部 – 文凯琳
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-当地时间12月17日，据中共媒体消息显示，中共北京市税务局官方网站发布公告称，潘石屹名下的北京建华置地有限公司在SOHO尚都项目中存在虚假申报的行为，少缴土地增值税和企业所得税共计1.98亿元人民币。为此，中共税务部门将向建华公司追缴税款并加收滞纳金，同时再处以2.5倍罚款，共计7.09亿元人民币。
+作者：纽约香草山信息部- 诺雅
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+外媒12月20日消息，英国政府要求在明年4月1日前，卫生工作者必须完成中共病毒疫苗接种，而医务人员拒绝遵守，可能会迫使整个医院单位关闭。
 
-据悉，建华置地的法定代表人是潘石屹，其拥有SOHO中国和华远置业各60%和40%的股权。但有消息称，自今年起，潘石屹一直在进行“清仓”式的大甩卖，其所出售的资产涉及物业、办公、停车位等多个业态。今年9月，潘曾还曾试图出售SOHO中国的核心资产，但因当时中共所谓的“反垄断”调查风声趋紧，导致黑石集团最终放弃收购SOHO中国的计划。而10月22日，中共北京市税务局随即对建华置地以税务缘由立案调查。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide7-8.jpeg)
 
-此前，郭文贵先生曾在直播中反复示警道，中共的房地产必将爆雷，且中共的经济也难逃崩溃之势。在此局面之下，中共的各大“白手套”必然难逃一劫。而郭先生也曾点名潘石屹，道出中共在房企方面的定向爆破计划。
+英国”国家医疗服务供应者“的首席执行官克里斯-霍普森透露，英国某医院有大约40名助产士拒绝接种中共病毒疫苗。他表示，鉴于这些工作人员的技能和专业知识，他们很难重新就业，但也极难被替换。因此，该医院的产科可能会被关闭。霍普森承认，这个案例具有典型性：对强制疫苗政策的抵制可能导致医疗服务短缺。
 
-截止今日，SOHO中国在港交所的股价已跌至1.69，跌幅超过62.28% 。
+英国卫生部长萨吉德-贾维德上周告诉国会议员，还有大约九万四千名国家医疗服务人员未接种疫苗。由于训练有素的助产士在英格兰持续短缺，产科尤其容易受到疫苗强制政策的影响。伦敦地区的疫苗接种率普遍最低，政府的强制政策，可能对医院的能力造成严重的压力。
 
-文字版原文：[潘石屹名下SOHO项目被罚7.09亿元](https://gnews.org/zh-hans/1767548/)
+参考链接：[Entire Hospital Wards at Risk of Shutdown Over Vaccine Mandates](https://www.infowars.com/posts/entire-hospital-wards-at-risk-of-shutdown-over-vaccine-mandates/)
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
 
-![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+总编：童谣
+编辑：童谣
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -28,7 +29,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -15,121 +15,121 @@
 
 ---
 
-### [中共体制内人员上山下乡，经济崩溃的迹象](/content/gnews/1/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [中共贸易惩罚反打脸 澳大利亚出口利润不减反增](/content/gnews/1/README.md)
+ ` 日本东京方舟农场`
 
-### [有声|未感染中共病毒乘客被强行拘留隔离](/content/gnews/2/README.md)
+### [有声|印度神童阿南德预言与郭先生大直播内容惊人吻合](/content/gnews/2/README.md)
  ` MOSREC`
 
-### [接种了新冠疫苗的意大利人在医院重症监护室和住院部高喊：“国家背叛了我们”](/content/gnews/3/README.md)
+### [网球明星彭帅“否认”性侵指控](/content/gnews/3/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [中共体制内人员上山下乡，经济崩溃的迹象](/content/gnews/4/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [有声|未感染中共病毒乘客被强行拘留隔离](/content/gnews/5/README.md)
+ ` MOSREC`
+
+### [接种了新冠疫苗的意大利人在医院重症监护室和住院部高喊：“国家背叛了我们”](/content/gnews/6/README.md)
  ` xiaobaige`
 
-### [房屋质量比烂新时代，业主维权难于上青天](/content/gnews/4/README.md)
+### [房屋质量比烂新时代，业主维权难于上青天](/content/gnews/7/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [疫苗强制令生效，昆士兰警察和医护出现抵制](/content/gnews/5/README.md)
+### [疫苗强制令生效，昆士兰警察和医护出现抵制](/content/gnews/8/README.md)
  ` 走进澳洲`
 
-### [中共在向中美洲行动](/content/gnews/6/README.md)
+### [中共在向中美洲行动](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [日本同意提高驻日美军经费，以对抗中共军力威胁](/content/gnews/7/README.md)
+### [日本同意提高驻日美军经费，以对抗中共军力威胁](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [《纽约时报》公布中共大外宣投标报价单 揭露中共国操纵海外媒体真相](/content/gnews/8/README.md)
+### [《纽约时报》公布中共大外宣投标报价单 揭露中共国操纵海外媒体真相](/content/gnews/11/README.md)
  ` 日本东京方舟农场`
 
-### [中共将对得到认证的冬奥会外国参赛者及媒体打开防火墙](/content/gnews/9/README.md)
+### [中共将对得到认证的冬奥会外国参赛者及媒体打开防火墙](/content/gnews/12/README.md)
  ` 日本东京方舟农场`
 
-### [《彭博社》：美国必须准许亚洲使用其市场以在印太地区对抗中共](/content/gnews/10/README.md)
+### [《彭博社》：美国必须准许亚洲使用其市场以在印太地区对抗中共](/content/gnews/13/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [日本著名艺人渡边直美确诊](/content/gnews/11/README.md)
+### [日本著名艺人渡边直美确诊](/content/gnews/14/README.md)
  ` 日本东京方舟农场`
 
-### [在维也纳，反对封锁的抗议者们与警察发成冲突](/content/gnews/12/README.md)
+### [在维也纳，反对封锁的抗议者们与警察发成冲突](/content/gnews/15/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [民心向郭](/content/gnews/13/README.md)
+### [民心向郭](/content/gnews/16/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线: 薇娅全网被封，新一轮割韭菜开始](/content/gnews/14/README.md)
+### [秘翻在线: 薇娅全网被封，新一轮割韭菜开始](/content/gnews/17/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [牛津大学研究揭接种疫苗者得心脏病入院或死亡律达1%](/content/gnews/15/README.md)
+### [牛津大学研究揭接种疫苗者得心脏病入院或死亡律达1%](/content/gnews/18/README.md)
  ` HimalayaRussia`
 
-### [丹麦数据揭真相，打疫苗的感染多](/content/gnews/16/README.md)
+### [丹麦数据揭真相，打疫苗的感染多](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [瑞士银行自裁走下神坛 或让道喜联储](/content/gnews/17/README.md)
+### [瑞士银行自裁走下神坛 或让道喜联储](/content/gnews/20/README.md)
  ` 纽约香草山MOS03`
 
-### [中共举办冬奥为了展示习近平的治理能力也为了合理化统一台湾](/content/gnews/18/README.md)
+### [中共举办冬奥为了展示习近平的治理能力也为了合理化统一台湾](/content/gnews/21/README.md)
  ` 焦點20分`
 
-### [2021/12/19文贵先生直播精要](/content/gnews/19/README.md)
+### [2021/12/19文贵先生直播精要](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [抵制冬奥会的意义重大 中共已经走上集权灭亡的老路](/content/gnews/20/README.md)
+### [抵制冬奥会的意义重大 中共已经走上集权灭亡的老路](/content/gnews/23/README.md)
  ` 焦點20分`
 
-### [上海文峰集团老板到底犯了什么法？](/content/gnews/21/README.md)
+### [上海文峰集团老板到底犯了什么法？](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [“我们不遵守！”伦敦大规模抗议Covid限制和疫苗护照](/content/gnews/22/README.md)
+### [“我们不遵守！”伦敦大规模抗议Covid限制和疫苗护照](/content/gnews/25/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美橄榄球联盟跪拜中共 国际分布图将台湾并入中共国](/content/gnews/23/README.md)
+### [美橄榄球联盟跪拜中共 国际分布图将台湾并入中共国](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [枪口抬高一寸 好人必有好报](/content/gnews/24/README.md)
+### [中共病毒康复后仍可能患癌，经济黑暗时代即将到来](/content/gnews/27/README.md)
+ ` GTV新闻访谈`
+
+### [疫苗政策严苛的美国蓝州感染率激增](/content/gnews/28/README.md)
+ ` HimalayaRussia`
+
+### [2021/12/21大卫作战室直播精要](/content/gnews/29/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [疫苗政策严苛的美国蓝州感染率激增](/content/gnews/25/README.md)
+### [七国集团对香港的民主侵蚀表示“严重关切”](/content/gnews/30/README.md)
  ` HimalayaRussia`
 
-### [2021/12/21大卫作战室直播精要](/content/gnews/26/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [七国集团对香港的民主侵蚀表示“严重关切”](/content/gnews/27/README.md)
+### [安倍讲话后中共取消日本驻华使馆的活动](/content/gnews/31/README.md)
  ` HimalayaRussia`
 
-### [安倍讲话后中共取消日本驻华使馆的活动](/content/gnews/28/README.md)
- ` HimalayaRussia`
-
-### [期待感受同时播出Vice艺术片和采访实录的震撼](/content/gnews/29/README.md)
+### [期待感受同时播出Vice艺术片和采访实录的震撼](/content/gnews/32/README.md)
  ` 秘密翻译组-原创组`
 
-### [西喜时事新闻简报 — 美国时事篇](/content/gnews/30/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [GTV新闻访谈简报|2021年12月21日早](/content/gnews/31/README.md)
+### [GTV新闻访谈简报|2021年12月21日早](/content/gnews/33/README.md)
  ` 纽约香草山MOS01`
 
-### [美国汇丰银行零售商业银行业务明年将易主](/content/gnews/32/README.md)
+### [美国汇丰银行零售商业银行业务明年将易主](/content/gnews/34/README.md)
  ` GTV新闻访谈`
 
-### [英国医护人员拒绝强制疫苗可能导致医院关闭](/content/gnews/33/README.md)
+### [英国医护人员拒绝强制疫苗可能导致医院关闭](/content/gnews/35/README.md)
  ` GTV新闻访谈`
 
-### [有声|台湾四大公投皆否 粉碎中共及同路人阴谋](/content/gnews/34/README.md)
+### [有声|台湾四大公投皆否 粉碎中共及同路人阴谋](/content/gnews/36/README.md)
  ` MOSREC`
 
-### [有声|潘石屹名下SOHO项目被罚7.09亿元](/content/gnews/35/README.md)
+### [有声|潘石屹名下SOHO项目被罚7.09亿元](/content/gnews/37/README.md)
  ` MOSREC`
 
-### [有声|欧洲议会决议呼吁 调查中共诱骗越南劳工赴塞尔维亚工作](/content/gnews/36/README.md)
+### [有声|欧洲议会决议呼吁 调查中共诱骗越南劳工赴塞尔维亚工作](/content/gnews/38/README.md)
  ` MOSREC`
 
-### [有声|南非住院率在世界奥米克戎激增时反而下降](/content/gnews/37/README.md)
- ` MOSREC`
-
-### [欧洲受“奥米抗”毒株感染的国家及病例激增](/content/gnews/38/README.md)
- ` GTV新闻访谈`
-
-### [辉瑞欲收购致力于心血管疾病药物研发的企业](/content/gnews/39/README.md)
+### [欧洲受“奥米抗”毒株感染的国家及病例激增](/content/gnews/39/README.md)
  ` GTV新闻访谈`
 
 ### [数据显示:接种“病毒疫苗”正在引发数十万人的精神障碍](/content/gnews/40/README.md)
