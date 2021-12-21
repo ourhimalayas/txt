@@ -2,33 +2,55 @@
 ---
 
 
-## 辉瑞·拜恩泰科疫苗中含有未被批准用于人体的成分
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1776511/)
+## 【玫瑰看新闻】第209期 新西兰本地新闻
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1776568/)
 
-撰稿：文月
-![](https://assets.gnews.org/wp-content/uploads/2021/12/213.png)图片来自网络
-最近的研究结果显示，Conmirnaty (Biontech & Pfizer)，也就是辉瑞和拜恩泰科品牌的疫苗主要成分中，包括了一些未被批准用于人体的成分。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/PHOTO-2021-12-20-00-44-59.jpg)
+🌲新西兰本地新闻
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片-1-33.jpg)
+🦠[新冠病毒](https://www.newshub.co.nz/home/storytag.:storyTag=newshub:story-tags___cd___coronavirus.:offset=0.html)：COVID-19 社区爆发的最新消息 – 12 月 18日，星期六，39 例新病例
 
-Comirnaty接种疫苗成分其中都包含什么？研究人员发现了两种物质：一个是((4-hydroxybutyl)azanediyl)bis(hexane-6,1-diyl)bis(2-hexyl decanoate)（编号ALC-0315），而另一个则是2-[（聚乙二醇）-2000]-N,N-二十四烷基乙酰胺（编号ALC-0159）。这些成分虽然看上去较为复杂，但其实就是我们常说的纳米脂质材料。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/214.png)网络图片（一）![](https://assets.gnews.org/wp-content/uploads/2021/12/215.png)网络图片（二）
-这种脂质纳米颗粒ALC-0159是由一家名为Echelon Biosciences的美国公司生产和经销。产品说明书上明确写着该成分不能用于人体（见图二中红色下划线：ALC-0159本产品仅用于研究，不供人类使用）。
+新西兰今天有39 例新的 Covid-19 病例。
 
-另一方面在辉瑞疫苗的接种说明书中还提到：在使用Corminaty之前，应该注意ALC-0159 和ALC-0315等质粒可能会让人出现过敏反应，如果患者对于这些活性物质有任何不良反应，都不应该使用。
+其中，25个在奥克兰，11个在丰盛湾，2个在湖区，1个在塔拉纳基。
 
-在辉瑞12月7日发布的安全数据报告中，没有任何关于上述物质的毒理学评价，例如是否会致癌，是否与其他药物的相互作用。并且，纳米脂质及纳米颗粒ALC-0315和ALC-0159只能用于研究目的应用，由一家技术性公司生产——而并不是制药公司。
+有 49 人住院，其中 5 人在重症监护室或高依赖病房。目前住院患者的平均年龄为 53 岁。
 
-这些都是对《药品法》的大规模违反——依据法律，任何参与这些疫苗接种的人都将面临高达10年的监禁！
+新西兰符合条件的人口中有 94% 接种了第一剂 Covid-19疫苗，90% 接种了第二剂。
 
-新闻参考链接：
+已有 4,368,166 次疫苗通行证下载，其中包括 过去 24 小时内的32,526次。
 
-1. 德语视频：[Beate Bahner, 医疗法律专业律师](http://www.beatebahner.de/lib.medien/video_2021-12-20_12-18-55.mp4)
+全基因组测序现已在最近的国际抵达中检测到另外四例Omicron。现在共有 8 例在 MIQ 设施中分离出Omicron 变体的病例，社区中没有一例。
 
-2. ALC-01509: [Echelon-inc.com](https://echelon-inc.com/wp-content/uploads/2021/08/N-2010_TDS_rev1.pdf)
+🦠新西兰在基督城管理的隔离设施中记录了第一例Omicron，这是最近确定的“关注变种”。
 
-[Pfizer](https://safetydatasheets.pfizer.com/DirectDocumentDownloader/Document?prd=PF00092~~PDF~~MTR~~PFEM~~DE)
+该人从德国经迪拜前往并于 12 月 10 日抵达，目前正在基督城机场设施完成两周的隔离。并且，他们是在已经完全接种疫苗的情况下感染了。
 
-*发稿：mgjxs*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
+下午 5 点 57 分 – 卫生部发言人表示，接触者追踪者已经确定了 86 名与基督城 Omicron 病例有关的密切接触者
+
+据称，目前新西兰90% 的符合条件的新西兰人已经完全接种了 COVID-19 疫苗。辉瑞 BioNTech 的儿科疫苗也获得了 Medsafe 的临时批准，可用于 5 至 11 岁的儿童。
+
+与此同时，周四，数千人涌入首都，按计划向议会游行，以抗议疫苗接种要求和持续的限制。
+
+你需要知道的：
+
+- 新西兰首例 Omicron 变体病例已在基督城 MIQ 设施中发现。
+- 现在，在塔拉纳基的埃尔瑟姆，许多人的 COVID-19 检测呈阳性。大多数病例是当地学校的学生。
+- 现在，90% 的符合条件的新西兰人已全面接种疫苗。
+- 辉瑞 BioNTech 的 COVID-19 疫苗的儿科版本已获得Medsafe 的临时批准，可用于 5 至 11 岁的儿童。
+
+
+🌲12月17日，下午 5:02 ，据新西兰卫生部称，一名 0 至9 岁的感染了COVID-19 的儿童死亡。
+
+卫生部的病例统计网站于周五下午更新，显示 0 至 9 岁年龄段的单一死亡病例。
+
+这名儿童是新西兰死于 COVID-19 的最年轻的人。 该儿童何时死亡不详。[https://www.newshub.co.nz/home/new-zealand/2021/12/coronavirus-latest-on-covid-19-community-outbreak-friday-december-17.html](https://www.newshub.co.nz/home/new-zealand/2021/12/coronavirus-latest-on-covid-19-community-outbreak-friday-december-17.html)
+
+
+
+审核校对：Barry Jack
+上传排版：F
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
