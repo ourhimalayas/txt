@@ -2,28 +2,20 @@
 ---
 
 
-## 台湾前线｜中共间谍渗透严重 前军方人士称 包含将军、总统随扈
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1777166/)
+## 世界最大游轮“海洋交响乐号”爆发新冠疫情 至少48人确诊
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1777176/)
 
-**港台前線關注組｜發佈日期/ 21/12/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/photo_2021-11-07-14.32.38.jpeg)
-**更多資訊請關注官方蓋特｜please follow our Gettr （[https://gettr.com/user/hktwfrontline](https://gettr.com/user/hktwfrontline)）**
+#### 翻译/撰稿：zzballack
 
-路透社20日报导指出，中共持续对台湾发动间谍渗透活动，路透社采访台湾资深退休军官、现任反间谍人员和前美国官员称“目的为搜集台湾国防计划、通信密码、武器地点、部队位置等细节”且不忠于台湾的军官可能拒绝战斗、误导部队，借此破坏台湾军队战斗意志。此外，台湾总统安保人员也发生被渗透的情形。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-2-17.jpg)图片来源：Cruise Industry News
+据《NBC新闻网》（NBC News）12月20日报道，皇家加勒比（Royal Caribbean）公司12月20日表示，该公司旗下的世界最大之一游轮“海洋交响乐号”（Symphony of the Seas）18日发生群聚感染事件，有48位乘客和船员新冠检测呈阳性。
 
-目前，台湾尚有9名现役或退休军事人员因涉嫌与中共间谍接触，正在调查或审判。自2011年起至今，至少发生21名上尉以上级别人员，被判定替中共招募间谍或向中共传递敏感资讯，如台湾高级军官、中共在台间谍的联系方式等详细资讯。
+载有近7000人的“海洋交响乐号”游轮本月11日从迈阿密出发，8天7夜的旅途中曾停靠加勒比海的圣马丁岛（St. Martin）、圣托马斯岛（St. Thomas），18日返回迈阿密，结束航程。皇家加勒比公司在声明中表示：“在航行期间发现一名乘客确诊后，立即展开接触追踪，扩大病毒筛检，目前至少有48人确诊。全船95%的人都已完全接种疫苗，阳性患者中有高达98%的人已经接种了两剂疫苗，不过症状轻微或没有症状。每一个人都迅速被隔离，我们将持续监测他们的健康状况。有6位受影响的客人在返回迈阿密之前下了船。”
 
-退休海军中校告诉路透社：“中共对台湾进行非常有针对性的渗透，且几乎已经渗透所有级别，包括将军。”台美军事专家分析，两岸紧张局势急剧上升，中共在台湾军队安插的间谍可以为中共提供极大的便利，特别是发生“公开冲突”时。
+该公司称，“海洋交响乐号”的全体工作人员都接种了疫苗，并每周进行核酸测试。而且要求12岁及以上乘客必须接种两剂辉瑞或莫德纳疫苗，或者一剂强生疫苗。
 
-对此，郭文贵曾于2021年8月9日于[GETTR爆料](https://gettr.com/post/p72wbs)称：“台湾同胞需要注意了，共匪已经制定了N个诱战的详细计划，就是诱导台湾开第一枪……或自己碰瓷台军……开始对台的侵略战争。”
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截圖-2021-12-21-下午4.49.15.png)来源：[MILES GUO GETTR](https://gettr.com/post/p72wbs)
-此外，郭文贵早于[9月24日直播](https://gnews.org/zh-hant/1553111/)中指出，[毁掉台湾的主要是卖台贼](https://gnews.org/zh-hant/1633028/)。他表示卖台贼天天给中共发信息，台湾军队内的卖台贼天天对中共军官说：“我们不想去打啊(指中共对台发动战争)”。此外，卖台贼更对中共表示台湾绝大多数人希望中共解放台湾。
-
-- 相关：[台湾前线｜前新党荣誉主席郁慕明：已做好被统的准备](https://gnews.org/zh-hant/1679939/)
-- 相关：[台湾前线｜空军退将夏瀛洲再度卖台 称“共军有权进入台湾空域”](https://gnews.org/zh-hant/1650171/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Yellow-Black-Year-End-Report-2.png)
-来源｜GNEWS/[大纪元](https://www.epochtimes.com/b5/21/12/20/n13449173.htm)/GETTR
+新闻来源：[Nearly 50 on Royal Caribbean’s Symphony of the Seas cruise ship test positive for Covid-19](https://www.nbcnews.com/news/us-news/nearly-50-royal-caribbeans-symphony-seas-cruise-ship-test-positive-cov-rcna9346)
 
  
 

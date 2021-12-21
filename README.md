@@ -15,89 +15,89 @@
 
 ---
 
-### [《彭博社》：美国必须准许亚洲使用其市场以在印太地区对抗中共](/content/gnews/1/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [日本著名艺人渡边直美确诊](/content/gnews/2/README.md)
+### [中共将对得到认证的冬奥会外国参赛者及媒体打开防火墙](/content/gnews/1/README.md)
  ` 日本东京方舟农场`
 
-### [在维也纳，反对封锁的抗议者们与警察发成冲突](/content/gnews/3/README.md)
+### [《彭博社》：美国必须准许亚洲使用其市场以在印太地区对抗中共](/content/gnews/2/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [民心向郭](/content/gnews/4/README.md)
+### [日本著名艺人渡边直美确诊](/content/gnews/3/README.md)
+ ` 日本东京方舟农场`
+
+### [在维也纳，反对封锁的抗议者们与警察发成冲突](/content/gnews/4/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [民心向郭](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线: 薇娅全网被封，新一轮割韭菜开始](/content/gnews/5/README.md)
+### [秘翻在线: 薇娅全网被封，新一轮割韭菜开始](/content/gnews/6/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [牛津大学研究揭接种疫苗者得心脏病入院或死亡律达1%](/content/gnews/6/README.md)
+### [牛津大学研究揭接种疫苗者得心脏病入院或死亡律达1%](/content/gnews/7/README.md)
  ` HimalayaRussia`
 
-### [丹麦数据揭真相，打疫苗的感染多](/content/gnews/7/README.md)
+### [丹麦数据揭真相，打疫苗的感染多](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [瑞士银行自裁走下神坛 或让道喜联储](/content/gnews/8/README.md)
+### [瑞士银行自裁走下神坛 或让道喜联储](/content/gnews/9/README.md)
  ` 纽约香草山MOS03`
 
-### [中共举办冬奥为了展示习近平的治理能力也为了合理化统一台湾](/content/gnews/9/README.md)
+### [中共举办冬奥为了展示习近平的治理能力也为了合理化统一台湾](/content/gnews/10/README.md)
  ` 焦點20分`
 
-### [2021/12/19文贵先生直播精要](/content/gnews/10/README.md)
+### [2021/12/19文贵先生直播精要](/content/gnews/11/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [抵制冬奥会的意义重大 中共已经走上集权灭亡的老路](/content/gnews/11/README.md)
+### [抵制冬奥会的意义重大 中共已经走上集权灭亡的老路](/content/gnews/12/README.md)
  ` 焦點20分`
 
-### [上海文峰集团老板到底犯了什么法？](/content/gnews/12/README.md)
+### [上海文峰集团老板到底犯了什么法？](/content/gnews/13/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [“我们不遵守！”伦敦大规模抗议Covid限制和疫苗护照](/content/gnews/13/README.md)
+### [“我们不遵守！”伦敦大规模抗议Covid限制和疫苗护照](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美橄榄球联盟跪拜中共 国际分布图将台湾并入中共国](/content/gnews/14/README.md)
+### [美橄榄球联盟跪拜中共 国际分布图将台湾并入中共国](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [枪口抬高一寸 好人必有好报](/content/gnews/15/README.md)
+### [枪口抬高一寸 好人必有好报](/content/gnews/16/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [数字货币春秋时代开启 喜币喜元独占鳌头](/content/gnews/16/README.md)
+### [数字货币春秋时代开启 喜币喜元独占鳌头](/content/gnews/17/README.md)
  ` 焦點20分`
 
-### [疫苗政策严苛的美国蓝州感染率激增](/content/gnews/17/README.md)
+### [疫苗政策严苛的美国蓝州感染率激增](/content/gnews/18/README.md)
  ` HimalayaRussia`
 
-### [人类将迎来有史以来 经济上最黑暗的时刻](/content/gnews/18/README.md)
+### [人类将迎来有史以来 经济上最黑暗的时刻](/content/gnews/19/README.md)
  ` 焦點20分`
 
-### [中美穿白大褂的间谍之战（二）](/content/gnews/19/README.md)
+### [中美穿白大褂的间谍之战（二）](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2021/12/21大卫作战室直播精要](/content/gnews/20/README.md)
+### [2021/12/21大卫作战室直播精要](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [得过新冠的人很可能会得癌症 要合理清毒 方能防范](/content/gnews/21/README.md)
+### [得过新冠的人很可能会得癌症 要合理清毒 方能防范](/content/gnews/22/README.md)
  ` 焦點20分`
 
-### [中美穿白大褂的间谍之战（一）](/content/gnews/22/README.md)
+### [中美穿白大褂的间谍之战（一）](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七国集团对香港的民主侵蚀表示“严重关切”](/content/gnews/23/README.md)
+### [七国集团对香港的民主侵蚀表示“严重关切”](/content/gnews/24/README.md)
  ` HimalayaRussia`
 
-### [安倍讲话后中共取消日本驻华使馆的活动](/content/gnews/24/README.md)
+### [安倍讲话后中共取消日本驻华使馆的活动](/content/gnews/25/README.md)
  ` HimalayaRussia`
 
-### [期待感受同时播出Vice艺术片和采访实录的震撼](/content/gnews/25/README.md)
+### [期待感受同时播出Vice艺术片和采访实录的震撼](/content/gnews/26/README.md)
  ` 秘密翻译组-原创组`
 
-### [西喜时事新闻简报 — 美国时事篇](/content/gnews/26/README.md)
+### [西喜时事新闻简报 — 美国时事篇](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [GTV新闻访谈简报|2021年12月21日早](/content/gnews/27/README.md)
+### [GTV新闻访谈简报|2021年12月21日早](/content/gnews/28/README.md)
  ` 纽约香草山MOS01`
-
-### [详述中共对美大使馆外交人员进行“肛门测试”](/content/gnews/28/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [美国汇丰银行零售商业银行业务明年将易主](/content/gnews/29/README.md)
  ` GTV新闻访谈`
@@ -153,11 +153,11 @@
 ### [12/21每日播报｜新闻简讯：疫苗微芯片 中共网信办](/content/gnews/46/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [世界最大游轮“海洋交响乐号”爆发新冠疫情 至少48人确诊](/content/gnews/47/README.md)
+### [两名参议员接种中共病毒加强针后感染中共病毒](/content/gnews/47/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [台湾前线｜中共间谍渗透严重 前军方人士称 包含将军、总统随扈](/content/gnews/48/README.md)
- ` 關注組`
+### [世界最大游轮“海洋交响乐号”爆发新冠疫情 至少48人确诊](/content/gnews/48/README.md)
+ ` 秘密翻譯組G-Translators`
 
 ### [【樱花深度报道】GETTR 能否打赢捍卫言论自由的战争？（下）](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
