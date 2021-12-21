@@ -2,51 +2,41 @@
 ---
 
 
-## 恒大地皮再被收回，相关上市公司大跌
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1776373/)
+## 德国下萨克森州法院否决针对零售业的“2G规则”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1776405/)
 
-作者：日本方舟农场 – Andy5
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1091.png)*图片来源：dikobraziy /盖蒂图片社*
+来自“信息战”网站2021年12月19日的报道，下萨克森州(Lower Saxony)高等行政法院推翻了在零售行业实施的新冠病毒限制，被称为“2G规则”。德国各地的零售商都提起了反对“2G规则”的诉讼。“2G规则”高度限制了那些没有新冠病毒疫苗护照的人，这些人被禁止进入许多商店、餐馆和文化活动场所。周四，下萨克森州的一家法院叫停了这一影响零售业的规则的实施。法院辩称，这些限制是带有歧视性的。
 
+德国新闻社(German press agency)的德国贸易协会(HDE)总经理斯蒂芬·根特(Stefan Genth)表示，“下萨克森州的判决清楚地表明，“2G规则”不是大部分零售业的一项万无一失的合法接替规则。”根特希望在“2G规则”受到挑战的其他联邦州能够以下萨克森州为榜样。他在一份声明中说：“其他州政府现在也应该考虑到这一点，避免给零售业带来不合理的负担，而不是等到他们的法令再次被法院收集。”
 
+自本月早些时候零售业实施“2G规则”以来，零售商一直抱怨销售额急剧下降，以及圣诞节期间实施限制的时机不当。许多商店，包括时装店和电子产品店，只允许那些持有疫苗护照的人进入。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+简评：
 
+原德国总理安格拉·默克尔作为中共政权的“老朋友”，在位时积极配合中共，极力在德国推行实施以中共政权为代表的世界黑暗力量的“毒疫苗”计划，给德国经济和德国人的生活带来了无法估量的损失和困苦。但是，如今的德国正在开始觉醒，这次下萨克森州地方法院的裁决就是先例，希望德国其他地区的法院也能效仿，也希望德国各民间组织和团体能够站出来集体声讨德国政府强推疫苗护照的做法，以尽快在德国结束这场人造灾难。
 
+德国的“3G，2G规则”：
+3G规则：仅允许已完全接种疫苗者、感染过新冠病毒痊愈者和新冠病毒检测阴性（抗原24小时以内、核酸48小时数以内）者三类人进入餐馆、电影院、会展中心等大部分室内场所；
+2G规则：仅允许已完全接种疫苗者、感染过新冠病毒痊愈者进入上述场所。
+“2G规则”是对“3G规则”的收紧。
 
-12月20日，成都市相关官网的公告显示，恒大在成都的两副面积共逾30平方米用地被收回。受此消息冲击，投资恒大的华人置业和嘉寓股份股票大跌。
+News Link:[https://www.infowars.com/posts/court-in-german-region-of-lower-saxony-rules-against-vaccine-passports/](https://www.infowars.com/posts/court-in-german-region-of-lower-saxony-rules-against-vaccine-passports/)
 
-据了解，这两块地皮是在2010-2011年间拍得，现在因为长期未开工，被当地政府收回。从9月到现在，恒大地皮已经有安徽安庆（8）、海南海口（8）以及四川成都（2）共18块地皮被政府无补偿回收。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-251.jpg)
-受此影响，恒大股价连续大跌，并拖累了投资恒大的上市企业。例如，华人置业在12月20日复牌之后，跌幅一度达到35%，如果年内清空全部恒大股票，亏损将超过104亿港元。19日晚，嘉寓股份发布风险提示公告，目前正在跟恒大协商解决问题，次日嘉寓股份股价大跌近18.4%。据悉，嘉寓股份合计商票敞口金额为13.16亿元，而自2007年累计净利润约8亿元，仅靠嘉寓股份自身已经无法补上这个敞口。
+翻译/简评: 希望
 
-参考链接：
-1. [恒大成都两幅用地被收回　涉逾30万平方米](https://gbcode.rthk.hk/TuniS/news.rthk.hk/rthk/ch/component/k2/1625210-20211220.htm?spTabChangeable=0)
-2. [又一家上市公司被恒大拖下水，15年净利直接白干了](https://finance.sina.com.cn/stock/s/2021-12-20/doc-ikyakumx5331455.shtml)
-3. [一度暴跌超30%！华人置业水逆，投资恒大血亏超100亿](http://hk.jrj.com.cn/2021/12/20165734034879.shtml)
-4. [财经网头条](http://m.caijing.com.cn/api/show?contentid=48265028.)
+PR: Harvey（叶知秋）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+* * *
 
-总编/编辑：DM
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
