@@ -2,136 +2,109 @@
 ---
 
 
-## 12/22每日播报|社媒消息：蓬佩奥 彼得·麦卡洛医生
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1780521/)
+## 12/22/21 香港快讯 831湾仔冲突案律政司提上诉 社工陈虹秀等三脱罪被告突被带上庭
+` 英喜-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1780686/)
 
-BY:[秘翻新闻](https://gtv.org/broadcast/watch/61c2e8b6bcb7f101bb7303bd)
+**搜集****/****整理：卡西欧**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1222fenmian.jpg)
+封面素材：立场新闻
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-22-at-8.54.53-AM.png)
+**1. ****中共国新招规管宗教****   ****禁网上传教讲道****   ****不得直播烧香弥撒**
 
-**2021-12-2**2
+[据【立场新闻】12月22日讯，中共国近年大力打压宗教活动，国家宗教事务局昨日再出招，公布《互联网宗教资讯服务管理办法》，当中明文规定除非取得许可证，否则不得在网上传教或讲经讲道，亦不得转发相关内容。拜佛、烧香、弥撒等仪式，亦不得以文字、图片、音视频等方式在网上传播。](https://www.thestandnews.com/china/中國新招規管宗教-禁網上傳教講道-不得直播燒香彌撒)
 
+[新规例由国家宗教事务局、公安部和国家安全部等 5 个部门联合制定，早在 2018 年征求意见，最终文本在今天公布，将于明年 3 月 1 日起正式实施。当局称新规定是要「坚持保障公民宗教信仰自由与维护国家意识形态安全相统一」，并要制止非法、遏制极端、抵御渗透、打击犯罪。](https://www.thestandnews.com/china/中國新招規管宗教-禁網上傳教講道-不得直播燒香彌撒)
 
+[本月初，一连两日的全国宗教工作会议在北京召开，国家主席习近平出席会议发表讲话，强调必须坚持「宗教中国化」，并提高宗教事务「治理法治化」；又称要增进宗教界人士和群众对中国、中华民族、中华文化、中国共产党、中共国特色社会主义的认同，及坚持总体国家安全观，加强互联网宗教事务管理等。](https://www.thestandnews.com/china/中國新招規管宗教-禁網上傳教講道-不得直播燒香彌撒)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-22-at-8.55.03-AM.png)
+**2. ****中联办指美英等对立会选举抹黑让世界看清双重标准本性**
 
-**1. 蓬佩奥12月22日发推说：** 中共正在利用美国的社交媒体公司来推进其共产主义议程。大科技公司当然知道这一点。我们必须保卫我们的共和国。 【推文转《纽约时报》报道，上海公安局浦东分局的一份承包商招标文件向世人解释了中共官员如何命令私营企业按需提供内容、吸引关注着、追踪批评人士，并为信息战提供其他服务。这类行动越来越多地出现在脸书和推特等国际平台上，让人们了解中共庞大的官僚机构是如何在全球社交媒体上散播宣传信息和塑造舆论。】
+[据【香港电台】12月22日讯，中联办发言人重申，美英等少数西方国家自诩民主教师爷，对香港立法会选举攻击抹黑，指手划脚， 美国民主状况千疮百孔，美英等少数西方国家对外部势力干涉选举极为敏感，百般防范，但对香港民主发展无端指责及对选举事务干扰破坏。](https://news.rthk.hk/rthk/ch/component/k2/1625497-20211222.htm)
 
+[发言人强调，只有符合自身实际、能够解决问题的民主才是好民主。随着香港选举制度完善，香港特区民主发展已经重回正轨。](https://news.rthk.hk/rthk/ch/component/k2/1625497-20211222.htm)
 
+[发言人指出，新选举制度在立法会选举中首次成功实践，香港迈出实现优质民主、实质民主的坚实步伐，是任何外部势力的诋毁、干预都无法阻挡，充分体现选举广泛代表性和政治包容性。让世界爱好和平、追求民主的人，看清美英等少数西方国家双重标准本性。](https://news.rthk.hk/rthk/ch/component/k2/1625497-20211222.htm)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-22-at-8.55.12-AM.png)
+**3. 831****湾仔冲突案律政司提上诉****   ****社工陈虹秀等三脱罪被告突被带上庭**
 
-> The CCP is using social media — American companies — to advance its communist agenda. Big Tech surely knows this. We must protect our Republic. [https://t.co/9heik7wczh](https://t.co/9heik7wczh)
-> — Mike Pompeo (@mikepompeo) [December 21, 2021](https://twitter.com/mikepompeo/status/1473329742820646915?ref_src=twsrc%5Etfw)
+[据【大纪元时报】12月22日讯，社工陈虹秀及另外7人，早前因前年8月31日的湾仔冲突案被控暴动罪。她被裁定表证不成立获当庭释放，另7人受审后亦全部脱罪。律政司表明不服并提出上诉。陈虹秀今早（22日）在Facebook透露有警察上门。她其后与同案的两人被带上高等法院作紧急聆讯，3人获准保释，保释条件包括5,000元现金、不得离港、交出所有旅游证件，每周到警署报到一次及居于指定住址。](https://hk.epochtimes.com/news/2021-12-22/61303854)
 
+[陈虹秀下午在Facebook发文，指律政司决定上诉时，已获律师告知律政司有机会会扣留旅游证件，她坦言自己现时仍留在香港其实已有心理准备。她更透露，昨晚已经知道有一名同案的人士被查身份证，才揭发他们已在通缉拘捕名单上，不过对于警察今早立即上门感到意外。](https://hk.epochtimes.com/news/2021-12-22/61303854)
 
+[前年8月31日湾仔冲突中8人被控暴动罪，案件早前由法官沉小民裁定控方表证不成立，陈虹秀获当庭释放，另外7人受审后亦全部脱罪。法官亦批准陈虹秀的讼费申请，律政司须支付其法律援助署分担费。不过律政司表明不服裁决，并提出上诉。](https://hk.epochtimes.com/news/2021-12-22/61303854)
 
-**2. 彼得·麦卡洛医生12月21日发推说：** 截至2021 年 12 月 13 日，丹麦的新冠病例数据显示： 感染了奥米炕变种的患者中，9.6%的人没有接种疫苗，90.4%打了疫苗，79%打了2 针，9%打了加强针，2.3%打了1针；感染了其他新冠变种的患者中，24%未打疫苗，76%打了疫苗，67% 打了2 针，6%打了加强针，3%打了1针。 显然，疫苗未能保护接种者免受感染。
+[早前有报道沉小民将提早退休移民英国。现时司法机构网页的法官名单上已找不到沉小民的名字。](https://hk.epochtimes.com/news/2021-12-22/61303854)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-22-at-8.55.33-AM.png)
+**4. ****入境处推电子签证　首阶段包括延长逗留期限、外籍佣工签证**
 
+[据【立场新闻】12月22日讯，入境处将于下周二（ 28 日）起分阶段推行电子化签证申请服务，首阶段涵盖各类延长逗留期限、外籍家庭佣工；申请人可透过入境处网站或手机应用程式，完成整个申请程序。](https://www.thestandnews.com/society/入境處推電子簽證-首階段包括延長逗留期限外籍傭工簽證)
 
+[签发「电子签证」安排首阶段适用于各延长逗留期限申请，以及外佣、非本地生留港或回港就业、输入中国籍香港永久性居民第二代计划的入境签证申请，明年将扩展至所有申请类别。而实施「电子签证」后，处方会停发贴纸式标签，但中共国驻外使领馆和香港特区政府驻内地办事处会继续签发贴纸式标签。](https://www.thestandnews.com/society/入境處推電子簽證-首階段包括延長逗留期限外籍傭工簽證)
 
-> [pic.twitter.com/nnXKYh4OCA](https://t.co/nnXKYh4OCA)
-> — Peter McCullough, MD (@P\_McCulloughMD) [December 21, 2021](https://twitter.com/P_McCulloughMD/status/1473299558281191433?ref_src=twsrc%5Etfw)
+[另外，《立场新闻》得知入境处举行记者会，今早曾派员到湾仔入境事务大楼采访。惟入境处人员得知记者所属机构后，便以《立场》未有获邀，以及人数所限，拒绝让《立场》记者参与记者会。](https://www.thestandnews.com/society/入境處推電子簽證-首階段包括延長逗留期限外籍傭工簽證)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-22-at-8.55.43-AM.png)
+**5. ****配合国旗条例****   ****浸大下月起逢周一举行升旗仪式**
 
+[据【立场新闻】12月22日讯，香港浸会大学昨（21日）晚向全校师生发电邮，指将在来年 1 月 1 日起于每个星期一及指定日期举行升旗仪式。](https://www.thestandnews.com/politics/配合國旗條例-浸大下月起逢周一舉行升旗儀式)
 
+[浸大电邮内指升旗仪式将在早上8时正开始，日期为每个星期一及指定日期，包括1月1日、7月1日的香港特区成立纪念日、10月1日国庆日。校方欢迎师生参与，但须在仪式进行前5分钟抵达。](https://www.thestandnews.com/politics/配合國旗條例-浸大下月起逢周一舉行升旗儀式)
 
-**3. 莲心不染 12月21日发推说：** 纽约州议会正试图通过A416号法案，该法案将把未接种疫苗的人置于与社会其他人分开的“集中营”！请打电话给你当地的政客，确保他们投票反对。这是违宪而且野蛮的法律。这个政府完全失控了！
+[随着《国旗及国徽条例》修订通过，学校明年起须每天升挂国旗，且每周举行升旗仪式，8间资助大学均会落实安排。](https://www.thestandnews.com/politics/配合國旗條例-浸大下月起逢周一舉行升旗儀式)
 
+[教育局早前指出，早前已致函专上院校，提醒其在《国旗及国徽条例》下的责任，亦提供当局向中小学发出的相关指引作参考，院校可按实际情况制定合适的执行安排。](https://www.thestandnews.com/politics/配合國旗條例-浸大下月起逢周一舉行升旗儀式)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-22-at-8.55.52-AM.png)
+**6. ****传统名校爆退学潮****   ****皇仁中学一年****47****人退学**
 
+[据【大纪元时报】12月22日讯，移民潮下不少学生随家人离港而掀起退学潮。近日直资及官立学校陆续上载20/21学年的周年报告，有不少学校的退学数字都较去年上升，其中传统官立名校的皇仁书院2020/21学年退学率达6%，一年内47人退学，对比过去两个学年上升约两倍。](https://hk.epochtimes.com/news/2021-12-22/48244772)
 
-> New York State Assembly are trying to pass Bill A416 that will put the unvaxxed in "camps" separate from the rest of society! CALL your local politicians and make sure they vote against this. It's unconstitutional and it's BARBARIC.
-> 
-> Here is the bill[https://t.co/IVwsBReZPF](https://t.co/IVwsBReZPF) [pic.twitter.com/ZaBykIdKul](https://t.co/ZaBykIdKul)
-> — PureLotusHeart莲心不染 (@PureLotusHeart1) [December 21, 2021](https://twitter.com/PureLotusHeart1/status/1473313047578128390?ref_src=twsrc%5Etfw)
+[除了皇仁书院外，英皇书院的退学潮亦严重，该校全校学生约有812人，2020/21学年的退学率达3.3%，即一年内27人退学。而英皇书院的初中退学情况尤其严重，中一的退学率为8.3%，较过去一个学年的0.7%上升了7.6%，上升幅度达11倍。](https://hk.epochtimes.com/news/2021-12-22/48244772)
 
+[直资学校议会主席陈狄安表示，以他所知有直资名校出现近两百名学生退学的状况，并表示传统名校亦无法避免从去年起出现的退学潮。他又表示由于澳纽等地恢复通关，加上全球各地不断有新移民政策，因此退学潮仍未达高峰，情况仍然会持续到明年。](https://hk.epochtimes.com/news/2021-12-22/48244772)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-22-at-8.56.02-AM.png)
+**7. ****中大职员如不打针无检测****   ****将禁入校园强制放年假****   ****合约期满者不获续约**
 
+[据【立场新闻】12月22日讯，中文大学前日（20 日）发电邮通知职员，由下月 10 日起，无提交接种新冠疫苗证明或检测证明的职员，其「中大通（CU Link）」智能卡将无法使用，即无法拍卡进入校园或部分设施，而且须放年假或无薪假，而合约期满者将不予续约。](https://www.thestandnews.com/society/中大職員如不打針無檢測-將禁入校園強制放年假-合約期滿者不獲續約)
 
-**4. 莲心不染 12月21日发推说**： 12月6日，一位勇敢的律师和七名原告向国际刑事法院递交了一份长达46页的法律文件，指控福奇、达萨克、梅琳达·盖茨,、比尔·盖茨和其他十二人，包括世卫组织总干事谭德赛、英国首相鲍里斯·约翰逊、全球主义的代表人物克劳斯·施瓦布、辉瑞、阿斯利康、莫德纳和强生4家疫苗厂商的CEO和英国卫生大臣等人，多次违反纽伦堡守则 (Nuremberg Code)，包括各种反人类罪和战争罪。
+[中大回覆《立场》查询时指出，有责任保护校园社区的健康和福祉，「接种疫苗及其他公共卫生措施是确保我们持续战胜疫情的基本条件。」](https://www.thestandnews.com/society/中大職員如不打針無檢測-將禁入校園強制放年假-合約期滿者不獲續約)
 
+[中大在今年 9 月要求师生作打针申请，如有医疗原因无法打针，须每两周检测。](https://www.thestandnews.com/society/中大職員如不打針無檢測-將禁入校園強制放年假-合約期滿者不獲續約)
 
+[劳工处今年7月曾发出文件，其中就雇主若规定雇员接种疫苗或进行检测，文件表示《雇佣条例》并无就有关的独特情况作出规定，指雇主与雇员应协商有关安排。](https://www.thestandnews.com/society/中大職員如不打針無檢測-將禁入校園強制放年假-合約期滿者不獲續約)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-22-at-8.56.11-AM.png)
+**8. ****国泰下月取消部分航班****   ****传涉澳洲、北美等**
 
-> 1/2: On Dec 6, in a stunning 46-page legal filing to the International Criminal Court，an intrepid attorney and seven applicants accused Anthony Fauci, Peter Daszak, Melinda Gates, William Gates III, and twelve others，[https://t.co/5Ohjvc7wbu](https://t.co/5Ohjvc7wbu)
-> — PureLotusHeart莲心不染 (@PureLotusHeart1) [December 21, 2021](https://twitter.com/PureLotusHeart1/status/1473199993418915842?ref_src=twsrc%5Etfw)
+[据【Now新闻台】12月22日讯，国泰航空表示，将于下月取消部分往来香港航班。](https://news.now.com/home/finance/player?newsId=460851)
 
+[国泰公布，受跨境旅游及营运限制的持续影响，集团航班将有所调整，现正审视明年1月往来香港的客运航班，部分会因航次安排整合而被取消。](https://news.now.com/home/finance/player?newsId=460851)
 
+[据《路透》引述消息指，多条长途航线包括澳洲、北美及欧洲等将受影响。](https://news.now.com/home/finance/player?newsId=460851)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-22-at-8.56.21-AM.png)
+**9.****【连升两日】恒指收复****23000   ****惟成交不足****1000****亿**
 
-**5. 真正美国之声12月22日发推说：** 根据美国疾控中心CDC的数据，美国上周新增的新冠病例中，奥米炕变种占了73.2%。 【推文转报道，美国上周可能有超过65万个奥米炕病例。在一些地区，比如纽约、东南部、太平洋西北地区和中西部工业地区的新增感染病例中，奥米炕就占了90%或者更多。根据CDC的数据，当世卫组织在11月首次将奥米炕确定为一种新冠变种时，美国当时超过99.5%的新冠病例是德尔塔（Delta）。但在不到一个月的时间里，奥米炕就超过了德尔塔，成为美国的主要新冠变种。尽管很多医生和专家说奥米炕患者的症状轻微，相较以前的新冠变种更温和。但一些专家警告说，这种乐观情绪可能为时过早。据《路透社》（Reuters）报道，伦敦帝国学院 (Imperial College London) 12月17日公布的一项研究显示，奥米炕的再感染风险比德尔塔高五倍以上，而且没有迹象表明它更温和。】
+[据【Now新闻台】12月22日讯，本港股市连升两日，恒生指数重上23000点。](https://news.now.com/home/finance/player?newsId=460853)
 
+[大市今日高开249点后，最多升287点，高见23258点，午后升幅一度大幅收窄，收市升131点，报23102点。大市全日成交缩减至逾927亿元，是7个月以来最少。](https://news.now.com/home/finance/player?newsId=460853)
 
+[科技指数亦两连升，升逾1%，收报5685点。](https://news.now.com/home/finance/player?newsId=460853)
 
-> As of Dec 18,2021, Omicron is 73.2% of the new COVID cases, Delta 26.6%. Omicron has been spreading rapidly since its emergence in Dec 4, displaced Delta with 2 weeks and become the dominant variant[https://t.co/n574tyTMHf](https://t.co/n574tyTMHf) [pic.twitter.com/iTD0sZ2bes](https://t.co/iTD0sZ2bes)
-> — PureLotusHeart莲心不染 (@PureLotusHeart1) [December 21, 2021](https://twitter.com/PureLotusHeart1/status/1473322372132397070?ref_src=twsrc%5Etfw)
+[市传阿里巴巴旗下阿里云未有及时报告安全漏洞，阿里、美团、小米集团向上，京东升2%，网易升3%。](https://news.now.com/home/finance/player?newsId=460853)
 
+[哔哩哔哩升近6%，汽车之家反弹近7%，为表现最佳科指成分股。](https://news.now.com/home/finance/player?newsId=460853)
 
+[安踏体育及李宁升逾5%，是表现最佳两只蓝筹。](https://news.now.com/home/finance/player?newsId=460853)
 
-**6. 印太新闻 – 关注中共威胁 12月22日发推说： **印度国家航天机构与中共智能手机生产商OPPO签署合作协议，这引发了印度人的不满。 【推文转《亚洲时报》报道，印度空间研究组织ISRO和OPPO的印度分公司OPPO India之间达成谅解备忘录，OPPO手机将使用印度国产的“印度区域导航卫星系统NavIC”。因为此事，莫迪政府遭到了反对派和专家的猛烈抨击，他们认为这会对印度的安全构成威胁。印度政府曾在2020年6月以“国防安全”为由禁止了260多个中共国的APP，包括流行的TikTok、扫描全能王(CamScanner)等等。印度反对党的领导人普里扬卡·恰徒威迪 (Priyanka Chaturvedi)说：“让我非常惊讶的是，我们整个国家一方面在与中共发生边境争端，努力减少他们的商品与服务在印度市场的曝光，另一方面却毫不在意地将印度的重要武器以及国家安全置于威胁之下。”另一位反对派领导人马利卡鲁恩·卡尔格 (Mallikarjun Kharge) 在推特上说：”ISRO已经与中共公司Oppo签订了研发协议，现在oppo将能够获取ISRO收集的数据。这会损害国家安全，为什么莫迪政府会允许这样做？“”】
+[波罗的海干散货指数下跌，拖累中远海控及海丰国际跌4%。](https://news.now.com/home/finance/player?newsId=460853)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-22-at-8.56.31-AM.png)
+**10. ****政府拟修例放宽强积金投资中共国国债、政策性银行未评级债券**
 
+[据【立场新闻】12月22日讯，在 2021 年施政报告，政府提倡便利强积金投资内地政府和政策性银行债劵。财库局局长许正宇今日（22日）指，局方已完成研究，计划修改目前适用于规管强积金投资的法例，将中央政府及三家内地政策性银行纳入为「获豁免当局」，令强积金可投资未有评级的国债、内地政策性银行债券。](https://www.thestandnews.com/politics/a-政府擬修例放寬強積金投資中國國債政策性銀行未評級債券)
 
+[去年政府放宽强积金投资于上海及深圳证券交易所证券的限制。许正宇指，措施令强积金投资中国 A 股的金额在短短一年间增加超过一倍，达 200 多亿人民币。](https://www.thestandnews.com/politics/a-政府擬修例放寬強積金投資中國國債政策性銀行未評級債券)
 
-> [#Indian](https://twitter.com/hashtag/Indian?src=hash&amp;ref_src=twsrc%5Etfw) space agency deal with [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) telco sparks a firestorm
-> 
-> An agreement between India’s space agency to swap technical details of its satellite-based messaging service with [#Chinese](https://twitter.com/hashtag/Chinese?src=hash&amp;ref_src=twsrc%5Etfw) smartphone maker [#OPPO](https://twitter.com/hashtag/OPPO?src=hash&amp;ref_src=twsrc%5Etfw) has provoked a backlash.[https://t.co/1k2dHrrzqY](https://t.co/1k2dHrrzqY)
-> — Indo-Pacific News – Watching the CCP-China Threat (@IndoPac\_Info) [December 21, 2021](https://twitter.com/IndoPac_Info/status/1473344233209696257?ref_src=twsrc%5Etfw)
+[许正宇指相关政策措施，涉及修改附属条例，如果得到新一届立法会的支持，预计最快可于明年年中完成修例及生效。](https://www.thestandnews.com/politics/a-政府擬修例放寬強積金投資中國國債政策性銀行未評級債券)
 
+校对 / 封面合成：文粤 / 发布：流光飞舞
 
-
-**7. Newsmax 12月21日发推说：** 与拜登不同，美国副总统哈里斯并不将持续的大流行疫情归咎于未接种疫苗者。 【推文转报道，哈里斯表示：“我认为现在不是谈论过错的时候。这种病毒袭击我们的海岸或袭击全世界不是任何人的错，但它更多地是关于个人的权力和责任，毫无疑问每个人都可选择做出自己的决定。”】
-
-
-
-> Unlike President Joe Biden, Vice President Kamala Harris is refusing to blame the unvaccinated for the continuing COVID-19 pandemic. [https://t.co/c9KvEXfQ8K](https://t.co/c9KvEXfQ8K)
-> — Newsmax (@newsmax) [December 21, 2021](https://twitter.com/newsmax/status/1473285489763360771?ref_src=twsrc%5Etfw)
-
-
-
-**8. 新加坡总理李显龙12月21日发推说：** 在2009年至2012年之间出生的儿童可以从下周开始接种新冠疫苗。 【推文转《海峡时报》报道，新加坡将于12月22日开始接受5至11岁儿童的疫苗预订，接种从12月27日开始，15个儿科中心将分批为30多万名儿童接种疫苗。】
-
-
-
-> Children born btwn '09 & '12 can get COVID-19 vaccinations from next week. Vaccinating our young ones will help to keep them, their families & the wider community safe, especially with the Omicron variant spreading everywhere. – LHL [https://t.co/hfGOv5c26c](https://t.co/hfGOv5c26c) [https://t.co/8VL94zJ33X](https://t.co/8VL94zJ33X)
-> — leehsienloong (@leehsienloong) [December 21, 2021](https://twitter.com/leehsienloong/status/1473235941837848576?ref_src=twsrc%5Etfw)
-
-
-
-**9. 《零对冲》12月21日发推说：** 日本政府告诫市民：“不要歧视未接种疫苗的人。” 【推文转报道，尽管许多国家都强制要求国民接种新冠疫苗，但是日本政府采取了非常不同的方法，声称只有在人们完全同意的情况下才可以接种疫苗，而且不应该将其作为胁迫或恐吓的工具。日本厚生省在其官网上发布了以下通知：“虽然我们鼓励所有公民接种疫苗，但这不是强制性的。只有在提供信息后，并获得被接种者同意的情况下才能接种疫苗。请你在了解了疫苗预防传染病的效果和其副作用风险后，自己决定是否接种疫苗。未经同意，不得接种疫苗。请不要强迫你工作场所的任何人或你周围的人接种疫苗，不要歧视没有接种疫苗的人。”】
-
-
-
-> Japanese Government Tells Citizens: "Don't Discriminate Against The Unvaccinated" [https://t.co/s3vJLKJGxH](https://t.co/s3vJLKJGxH)
-> — zerohedge (@zerohedge) [December 21, 2021](https://twitter.com/zerohedge/status/1473278911442268164?ref_src=twsrc%5Etfw)
-
-
-
-**10. Disclose.tv 12月21日发推说： **欧盟委员会说：“从2022年2月起，如果你的欧洲“疫苗接种证书”缺少“加强针”疫苗，那么这个症书将在你最后一次接种疫苗的9个月后失效。
-
-
-
-> JUST IN – EU Commission: European "vaccination certificates" lacking the "booster" injection invalid after 9 months effective from February 2022.
-> — Disclose.tv (@disclosetv) [December 21, 2021](https://twitter.com/disclosetv/status/1473262443396841475?ref_src=twsrc%5Etfw)
-
-
-
-**11. Disclose.tv 12月21日发推说：** 德国的疫苗接种常设委员会现在建议18岁以上人群在接种了第二剂mRNA疫苗后三个月接种加强针，较原来说的六个月缩短了三个月。
-
-
-
-> JUST IN – Germany's vaccine commission (STIKO) now recommends "booster" injections with mRNA vaccines for 18+ three months after the 2nd shot (down from six months).
-> — Disclose.tv (@disclosetv) [December 21, 2021](https://twitter.com/disclosetv/status/1473280941997142021?ref_src=twsrc%5Etfw)
-
-
-
-**12. 喜马拉雅战鹰团12月21日在盖特发文：** 杰森米勒12月20日在接受Les Incorrectibles采访时说：“大科技公司限制人们的言论，例如限制人们对新冠病毒的说法。人们不能说病毒来自武汉实验室，但这是事实。我意识到这并不是一个美国独有的问题，这种情况正在世界各地发生。”
-
-[https://gettr.com/post/pk9nhi9617](https://gettr.com/post/pk9nhi9617)
-
-13. 郭文贵先生12月21日在盖特发文： 世界卫生组织、疫苗厂商和几个国家的医疗卫生管理部门一定会受到人类的大审判，他们的官僚和邪恶力量，充分利用了人类几百年来共同建立的对科学的信任和服从，将其变成了他们的杀人的工具和手段！最终在法庭上，所有的这些杀人犯都将受到审判！真正的灾难并没有到来，2022年五月份，才应该是接种了疫苗的人不良反应周期的开始！
-
-[https://gettr.com/post/pk9mot4c8b](https://gettr.com/post/pk9mot4c8b)
-
-
-
-**以上社交媒体新闻由 巴拉克和Stephanie 联合编译报导**
-
-发布：陸柒陸捌
-
-* * *
-
-**By 【秘密翻译组-即时新闻播报组】**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/招募-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

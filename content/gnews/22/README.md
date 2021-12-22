@@ -2,32 +2,28 @@
 ---
 
 
-## 病理学家很担忧因接种新冠疫苗后引发的‘淋巴细胞失控’
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1780619/)
+## 美国豪华邮轮爆发“奥密克戎”病毒疫情
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1780705/)
 
-本文作者：Rebecca (一切心皆不可得！)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image001-18.png)
-9月，两位病理学家阿恩.伯克哈特（Arne Burkhardt）教授和沃尔特.杨（Walter Yang）教授公布了因接种新冠疫苗致死的调查结论。
+采编/编译撰稿：薇文
+![](https://assets.gnews.org/wp-content/uploads/2021/12/01-image-5.jpg)
+[图片来源](https://www.euronews.com/travel/2021/12/21/royal-caribbean-says-48-passengers-test-positive-for-omicron-variant-on-ship)
 
-伯克哈特教授是一位德国病理学家和研究员。在罗伊特林根的病理学研究所领导了18年研究工作，之后作为执业病理学家工作。并在杂志上发表了150多篇文章。
+据加拿大[CTV新闻]12月20日报道，两天前停靠在迈阿密的[皇家加勒比公司]“海洋乐章号”邮轮，至少有48人被检测出“奥密克戎”病毒阳性。
 
-伯克哈特教授为20位年龄在28-95岁的已接种新冠疫苗的死者做了尸检。他们都在接种疫苗后的第7天到6个月期间去世的。其中8位死于医院。9位死在医院外，例如在家里或工作场所。1位死在老年护理院。2位死亡地点不明。
+报道称，在该邮轮上的6000多名乘客和船员中，12岁以上的人士不仅均接种了“新冠病毒”疫苗，而且还在登船前都通过了该病毒阴性检测。此外，大部分被感染乘客没有症状或症状轻微。
 
-这20起案例中，除1人死亡与疫苗接种没有明显关联外，其余死亡案例均与疫苗接种有关联性。
+据悉，美国邮轮业自今年6月被解除“禁航令”后，疫情在邮轮上爆发的规模越来越大。而这次在世界最大邮轮上的48例感染则创了新高。据统计，在解禁后的三个月内，就出现了1300多个病例，其中一人死亡，而且所有感染者基本都是接种了两剂或更多疫苗的船员或游客。
 
-尸检发现许多器官和组织的特征与接种新冠疫苗有关。在尸体的许多器官和部位都发现了T-淋巴细胞（即杀伤性淋巴细胞）的浸润：心脏、主动脉、肺、肝脏、肾脏、甲状腺、子宫、肾盂、皮肤和脑硬膜。
+本台编辑评论，主流媒体完全无视事实和逻辑，在所有船员和乘客都已完全接种的情况下，不仅对疫苗的零功效只字不提，反而将病毒传播恶意归咎于邮轮航行的重新放开。更何况即将全面爆发的疫苗灾难！
 
-伯克哈特教授说，如此多的器官充斥着杀伤性淋巴细胞，不得不感到震惊……因为这是接种疫苗后的典型现象，它证明了接种疫苗是致死的原因。
+校对编辑：硫酸羟氯喹64
 
-伯克哈特教授呼吁世界各地的同僚、医生，停止给人们接种新冠疫苗，特别是不要给我们的孩子接种新冠疫苗。
+发稿：苦尽甜来 (文來）
 
-[新闻来源连结](https://dailyexpose.uk/2021/12/14/lymphocytes-amok-post-covid-injection-is-very-alarming-says-pathologist/)
+[原文链接1](https://torontosun.com/news/world/royal-caribbean-says-48-passengers-test-positive-for-omicron-variant-on-ship?utm_term=Autofeed&amp;utm_medium=Social&amp;utm_source=Twitter%23Echobox=1640010267)
 
-
-
-审核校对：sherryok (水云间)
-
-上传排版：漂流瓶
+[原文链接2](https://www.washingtonpost.com/travel/2021/12/20/royal-caribbean-cruise-coronavirus-omicron/)
 
  
 
