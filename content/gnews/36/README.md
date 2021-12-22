@@ -2,46 +2,20 @@
 ---
 
 
-## 推特祭出新规则 被定义为误导性中共病毒信息恐遭永久封禁
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1780875/)
+## 秘翻在线：中共鼓吹国产芯片要替代英特尔
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1780931/)
 
-作者：银河勇气星—骄子
+**撰稿：葛大饼**
 
+**责编：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screenshot-2021-12-22-233034.jpg)图片来源：知乎
+根据2021年12月22日新浪报道， 英特尔在给供应商写的一封信中称：“英特尔需要确保我们的供应链不使用任何来自新疆地区的劳工、采购产品或服务。 “
 
+新闻称英特尔一次又一次把自己陷入舆论争议，是一种“自杀式营销”，英特尔从中共国获得的收入已经越来越少，并且近年来在技术上停滞不前， 英特尔行业的地位在不断下降 ， 国产CPU或将成为这场竞争中值得关注的参与者，庞大的市场空间也会给国产替代创造有利的环境。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+英特尔不惧中共的勇气值得称赞！资本不看好中共国市场，越来越多的投资撤离中共国， 一个随时面临脆断的政权，一个不安全的环境怎么能够让投资者安心？明明是人家看不上你，断供，硬是嘴硬往自己脸上贴金，国产芯片真那么牛啊，别光说不干，扎扎实实做出来让全世界看看！
 
-
-
-外媒12月20日报道，社交媒体推特将针对用户发表“疫苗接种者可以传播中共病毒”等相关言论予以处罚，最严重的可能受到永久封禁。推特将此类言论定义为“包含有关中共病毒的误导性信息”。
-
-THE DC PATRIOT的创始人Matt Couch，在推特分享了泽连科博士关于中共病毒的相关文章后，帐号遭到推特永久封禁。 此项措施将会适用于所有类似的情形。
-
-该惩罚措施最早可追溯至11月29日推特原CEO 杰克·多尔西辞职后，继任的CEO于12月2日改变了平台规则。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-271.jpg)
-参考链接：
-[Twitter Not Trusting the Science, Says It Will Penalize and Suspend Those Claiming Vaccinated Can Spread Covid-19](https://thedcpatriot.com/twitter-not-trusting-the-science-says-it-will-penalize-and-suspend-those-claiming-vaccinated-can-spread-covid-19/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
-
-总编/编辑：Zhong
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+**[新闻来源](https://news.sina.cn/gn/2021-12-22/detail-ikyakumx5667701.d.html?sinawapsharesource=newsapp&amp;wm=3200_0024)**
 
 
 
