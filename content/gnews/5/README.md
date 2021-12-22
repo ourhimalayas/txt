@@ -2,40 +2,32 @@
 ---
 
 
-## DC大中华时事：中共称中国民主得人心
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1779776/)
+## 澳洲议员克雷格·凯利认为药物治疗比疫苗更有效
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1779833/)
 
-*编辑：西北风 / 作图：*虎子哥
+【雅典娜快讯】紧贴时事脉搏
 
-![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/ScreenShot-2021-08-01-at-17.25.09@2x.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1169.png)图片来源：Sydney Morning Herald
 
-#   墙国妄语每日驳
+**整理报道：小鱼儿
+编辑：盘古相聚**
 
-### 12.22.2021
+12月21日，据每日邮报报道，州长多米尼克·佩罗特将把新南威尔士州的强化第三针日期提前一整个月。现在起，可以在第二次接种注射后的四个月而不是五个月内获得加强第三针。周二新州录得创纪录的3057例新增感染病例，主要由于Omicron变种病毒正在蔓延。
 
-[外媒述评：“民主峰会”不民主，中国民主得人心\_参考消息网 (cankaoxiaoxi.com)](http://m.cankaoxiaoxi.com/column/20211221/2463637.shtml)
+总理莫里森先生将于周三中午12点主持召开国家内阁紧急会议，与各州州长讨论对策。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1111.png)图片来源：克雷格·凯利议员推文
+面对新州州长缩短注射加强针的新规定。克雷格·凯利议员呼吁民众：“羊群应该醒来了！政府之前说，你只需完全接种——两剂疫苗，你就会得到‘保护’，免于病毒感染。但现在他们说，第三剂疫苗才算完全接种。而且你需要在4个月后注射加强针疫苗才能得到‘保护’。这都是因为他们拒绝抗病毒药物,他们真是一帮小丑”。
 
-***简评：***在中共囯，一个乡村级干部有得都有自己的私人食堂，这在中共国官员级别还只是一个连品级都算不上的芝麻芝麻村官，那中共官员级别再往上那就更了不得了，乡，镇，县，市，这些官员的待遇想必每个中国人都耳濡目染，深有感触，如果中共官员再往上看，普通老百姓接触不到，但通过爆料革命大家了解到冰山一角已经让我们瞠目给舌了，换肝换肾，夜夜做新郎，日日进洞房，一顿百万千万的大餐那是他们正常消费。看看中囯人普罗大众日常生活整天为一日三餐奔波劳命，高昂的物价吃顿猪肉现在都觉得是奢侈。中共仍然睁眼说瞎话“中国民主得人心”。是啊，这个体制他们是既得利益者，当然即使不得人心也必须得人心了
+参考资料：[Dominic Perrottet pushes to bring Covid boosters forward to four months](https://www.dailymail.co.uk/news/article-10331903/Dominic-Perrottet-pushes-bring-Covid-boosters-forward-four-months.html)（[dailymail.co.uk](https://dailymail.co.uk))
 
-### 12.22.2021
+*发布：盘古相聚*
 
-[港媒：中国将助伊拉克建1000所学校\_参考消息网 (cankaoxiaoxi.com)](http://m.cankaoxiaoxi.com/china/20211221/2463599.shtml)
-
-***简评：***如果你去中共国的农村去实地看看，过去乡镇都还有小学，初中，现在都荒废了，农村孩子上学只能去离家很远的当地镇或县城去读书，很多小孩从小学起就得去当地镇县的寄宿学校，这个年龄的小孩应该是离不开父母身边，无论从从小孩身体健康到心灵健康成长都是必须的。可中共囯谁又真正在乎，关心农村普通老百姓的生死，谁会真正关心农村孩子教育健康呢，在中共国草民的命是不值钱的。中共全世界到处大撒币，这又要帮伊拉克建1000所学，而自己国家农村教育急需援助却视若罔闻，这样的政府他有存在的必要和法理吗？
-
-### 12.22.2021
-
-[外电评述：中国电影海外影响力仍待提升\_参考消息网 (cankaoxiaoxi.com)](http://m.cankaoxiaoxi.com/culture/culture20211221/2463600.shtml)
-
-***简评：***中共囯没有真正的艺术，所有的艺术都是党需要的政治正确的艺术，艺术是人的灵魂和大自然和信仰碰撞的结果，真正的艺术是富有个性化的，在中共国艺术异化成权钱交易权色交易政治化腐败大染缸。在国外生活过的华人都知道，比如所谓中共国的知名歌星到美国也只是去一些赌场挣点出场费，在国际上这些中共国内大红大紫的星星月亮国际上有几人知道，“中国电影海外影响力仍待提升”这句话翻译过来应该是中国电影海外没有影响力。
-
-#   港台资讯
-![](https://media.discordapp.net/attachments/858887785507323904/923053847516151818/01.png?width=1043&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/923053954995220490/02.png?width=1043&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/923054013820338176/03.png?width=1043&amp;height=586)
-
-
-*编辑：*西北风
-*作图：虎子哥
-发布：文顾*
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
