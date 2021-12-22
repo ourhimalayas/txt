@@ -17,6 +17,14 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@mikepompeo 12/21/2021 4:29 PM (UTC)`
+
+The CCP is using social media — American companies — to advance its communist agenda. Big Tech surely knows this. We must protect our Republic. https://www.nytimes.com/interactive/2021/12/20/technology/china-facebook-twitter-influence-manipulation.html?unlocked_article_code=AAAAAAAAAAAAAAAACEIPuonUyYiZ_tU1Gw5CRWySB4B991rf37-VmPsgi3T-Ki-RTjlTiO8VAo6JvknEbqdpYNwwmiiERcNdPaVqRfp8yvJSOUdgDgyhpJqchZAMPyQyr8SzQmYyldrrbIwPzAXLPCO_Ofstg_q-uQ6LKjG7HfybhWsnLQsypZJmd0Wu2nIJ2quUF-BqiYV1j-NxBch-RTgCMCPe6KP4Gl4pboX9GxLW7wQ0W-tfUSiC3oLPruJdL3gBTA7OX3h94m4j6NhDO9txPa73LR8oecqWkqxGQyUzb9_vX8ttMtCSw7Z6srfNqgiOyN60wpg0FKZVtbDHswWqJbKsuoL1vaoViK0kSAwRrm8&referringSour
+
+---
+
 `@miles 12/21/2021 10:45 PM (UTC)`
 
 12月21日：😱😱😱😠😠😠【Vicar’s wife says since the roll-out of Covid injections there ‘s been funeral after funeral,after funeral. It’s tragic<br/>牧师的妻子说，自从开始接种新冠疫苗以来， 葬礼一个接一个。真的很悲剧。】
@@ -145,13 +153,6 @@ CCTV, the crazy CCP’s mouthpiece, shirking responsibility for creating the vir
 
 因侵犯人权，美参议院两党一致通过法案，使美国成为第一个全面禁止进口新疆产品的国家，美国将34家中共国公司列入黑名单<br/><br/>The US Senate passed the bill unanimously to be the first country banning all imports from Xinjiang and the US further blacklists 34 Chinese firms over human rights abuse<br/><br/>
 ![img](https://media.gettr.com/group28/getter/2021/12/19/07/65782d04-101b-4b8e-3468-bc5bd20a1a54/out.jpg)
-
----
-
-`@miles 12/19/2021 6:36 AM (UTC)`
-
-本周末,成千上万的澳大利亚人再次聚集在墨尔本街头抗议疫苗禁令<br/><br/>This weekend,  thousands of Australia protesters hit the streets  in Melbourne again to fight vaccination mandates and Covid-19 restrictions<br/><br/>
-![img](https://media.gettr.com/group27/getter/2021/12/19/06/f0ed2c36-a5b5-5509-0084-ccf859558104/out.jpg)
 
 ---
 
