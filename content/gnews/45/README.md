@@ -2,21 +2,32 @@
 ---
 
 
-## 秘翻在线: 薇娅全网被封，新一轮割韭菜开始
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1778644/)
+## 中共支付一千多亿美元求普京出席冬奥
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1778966/)
 
-撰稿：西枫westca
+作者：东京樱花团 – 在远方
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+郭文贵先生在12月20日的盖特视频中爆料，目前普京已经收到了中共拱手相送的一千多亿美元的支票，表示同意以个人名义出席北京冬奥会。
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/12/unnamed-27.jpg)图片来源：网络截屏
-据新浪科技12月22日报道， 在“薇娅”直播被爆出因偷逃税款被罚13.41亿元的消息后， 拥有9000多万粉丝的“薇娅彩妆节”的直播戛然停止。数百万人涌入其隔壁李佳琦的直播间刷着“村里的希望，你一定要撑住”等留言。
+郭先生指出，在共产党冬奥会的政治游戏中，唯一受到伤害的就是中共国10亿人民，所有中国人都将为了这个在国际上和政治上，完全没有任何价值的愚蠢的作秀而付出巨大的代价。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture14-1.jpg)
+除了送给俄罗斯的一千多亿美元，加上冬奥会场地、人员、服装、后勤、安保等其他费用，中共总共需要花费数千亿美元。这是极其可悲、可怜、可恨的，这也是全世界最昂贵的一场灾难游戏。而在世界经济即将崩塌之前，爆料革命的声音，是世界上唯一救人的忠言警告。
 
-直播带货是利用互联网平台，利用直播技术进行近距离商品展示，咨询和导购的新服务模式。最早始于2005年，因电商的流行，于2016年起迅速占领中国市场。2017年直播一姐“薇娅”曾直播5小时带货7000万，在2021年双十一购物节中更以“14小时销售82亿”惊人数字震动社会。网红直播成了电子商务的新发展力量。薇娅屡获各种“大使”、人民日报新媒体带货官、三八红旗手等荣誉称号。然而，日前公布的追逃税款和罚款的金额是大名鼎鼎的范冰冰的处罚金额的1.5倍，真是令人瞠目结舌。中国网络社会组织联合会率先撤销其“网络诚信宣传大使”资格。
+参考链接：[中共支付一千多亿美元求普京出席冬奥](https://www.gettr.com/post/pk5p5a0268)
 
-在中共国的乱象经济中，对于直播带货处罚只是政府开始敛财的一小部分。预计网络主播的“补税”潮也会由此而生。新一轮割韭菜运动在这一新兴行业中开始。
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-**新闻来源：**[薇娅被封、上千人补税，直播最严查税风暴来了 (baidu.com)](https://baijiahao.baidu.com/s?id=1719715130209774082&amp;wfr=spider&amp;for=pc)
+总编：飞虹
+编辑：飞虹
+校对/发稿：Hetangyuese
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

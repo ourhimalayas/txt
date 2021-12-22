@@ -2,30 +2,40 @@
 ---
 
 
-## 美国国际宗教自由委员会谴责中共追加制裁其成员
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1779303/)
+## 泽连科医生号召人们形成新社群对抗全球主义
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1779382/)
 
-![美国国际宗教自由委员会主席梅恩扎接受美国之音记者的采访。](https://gdb.voanews.com/6F952B83-8FF7-41DA-8B62-F31035405AF9_w1023_r1_s.png)*美国国际宗教自由委员会主席梅恩扎接受美国之音记者的采访。*
-据美国之音12月22日报道，美国国际宗教自由委员会强烈谴责中共国政府对其委员会主席、副主席和其他成员追加制裁，强调委员会不会对中共国的人权和宗教自由问题保持沉默。中共国政府今年早些时候已经制裁了委员会前主席和其他两名委员。
-
-委员会主席在声明中说，中共国政府需要停止对维吾尔人、西藏人、基督徒、法轮功等民众的压迫，而不是执行被误导的制裁。委员会称赞拜登总统因中共国对新疆维吾尔人的暴行和侵犯人权而对北京冬奥实施外交制裁。委员会还称赞美国参众两院通过《防止强迫维吾尔人劳动法》，并敦促拜登总统签字成为法律。
-
-信仰自由、尊重人权，在中共国的所谓宪法中是有明确声明的。只是中共国的宪法是按照制定者的要求可以重新解释的。中共国的人权就是党权，党高于一切。中共国的信仰就是人人相信中国共产党，哪怕他们自己不信，全民洗脑也要相信中国共产党。
-
-新闻参考链接：[https://www.voachinese.com/a/scirf-condemns-china-20211221/6363986.html](https://www.voachinese.com/a/scirf-condemns-china-20211221/6363986.html)
-
-编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+作者：东京樱花团—在远方
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-16.jpg)
+
+
+
+盖特12月18日消息，近日泽连科医生在采访中表示，人们应当脱离暴政体系，形成新社群来对抗全球主义。
+
+泽连科医生说，像比尔.盖茨这种社会变态者，他们对人类有绝对的仇恨，不去审视自己、正视问题和承担责任，不去成长并发挥最大的潜力，而是总想毁掉比自己优秀的人，并憎恨上帝制造人类的事实。
+
+目前医疗系统正在压制羟氯喹，并将伊维菌素制成药丸，而这些正是泽连科医生最初所发现的，可以治疗中共病毒的有效药物，但却反被媒体攻击并将其妖魔化。泽连科医生表示，目前邪恶势力几乎控制了世界，而我们应当意识到人类是有主人的，我们应当形成新的社群派系，推行平民主义，每个人都连接到互联网的源头，而全球主义者的阴谋注定会失败。
+
+新闻链接：[https://gettr.com/post/pjyp6ad4f1](https://gettr.com/post/pjyp6ad4f1)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-304.jpeg)
+
+编辑/校对/发稿：滚滚长江都是水
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
  
 

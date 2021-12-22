@@ -2,43 +2,42 @@
 ---
 
 
-## 有声| 了解信仰，走出误区
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1779422/)
+## 有声|新加坡媒体“偶遇”彭帅 继续为冬奥会洗地
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1779524/)
 
-配音：香草山福音部 – Daxia
-
-
+配音：香草山美食部 – 玫瑰园
 
 
 
-很多人以为我们可以走进信仰，成为一名基督徒，其实这是我们认识的第一个误区，也是我曾经的误区。
-
-基督教信仰从来不是我们主动去寻找上帝，然后结局很美好，心诚则灵，我找到了。不是的，人类寻找上帝的结果，就是我们今天所看到的宗教派别林立，你抱着大象腿说大象是一个柱子，他抱着大象耳朵说大象是一面扇子。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
 
 
-**文字版原文：[了解信仰，走出误区](https://gnews.org/zh-hans/924793/)**
+12月19日，彭帅现身上海“城市越野滑雪赛”决赛现场，结束后接受新加坡媒体采访。虽然一再强调自己“很自由”，给国际女子网球协会主席的中文信“出自本人意愿”，但反应迟缓言辞闪烁，很难压下质疑之势。
 
+这次的滑雪赛是明年中共国冬奥会的积分赛，只有受邀嘉宾才能观赛。如此低调的现场，而新加坡媒体却能“偶遇”彭帅，并对轰动全世界的事件进行了数分钟的采访。彭帅说，微博是自己所发，属于个人隐私。当被询问是否有人监视，是否自由，她用了反问的语句。写给西蒙的信中文版是自己所写，中共媒体放出的英文版是他人翻译。至于是否出国，彭帅再一次反问没有比赛干嘛要出国。
 
+原文链接：[新加坡媒体“偶遇”彭帅 继续为冬奥会洗地](https://gnews.org/zh-hans/1776609/)
 
 音频处理：喜山必胜Maverick
-发稿：雪梨
 
-[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
+发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
 **更多资讯，更多关注**
 
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

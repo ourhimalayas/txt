@@ -2,88 +2,53 @@
 ---
 
 
-## 参议员瑞克·斯科特: 美国必须继续与要求民主的香港人站在一起
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1779227/)
+## 中国环境污染“常态化”何时结束？
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1779285/)
 
-参议员瑞克·斯科特： 在他们的沉默中，香港人民已经向 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 发出响亮而清晰的信息。 美国必须继续与要求民主的香港人站在一起，并称这些选举是假的。 【附华尔街日报专栏：香港的民主杯葛-绝大多数民众拒绝参加虚假选举】
+南方周末2021年12月18日报道：仅一企合法取黄河水，大量污水去向不明，宁夏一工业园被中央环保督察通报
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1150.png)平罗化工产业园规模迅速扩张，新企业正如火如荼建设。 （南方周末记者 林方舟/图）![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1151.png)
+短评：
 
+宁夏罗平化工园区80家企业（共81家）非法取用黄河水，大量化工污水不知去向不明。在中共治下的中国这样的环境污染事件被报道的当时冰山一角，然而，盘点一下官方可查数据，仅就水资源污染一项，就足以让我们害怕。
 
+**触目惊心的常态化污染**
 
-> In their silence, the people of Hong Kong's message to Communist China has been delivered loud and clear. 
->  
-> The U.S. must continue to stand with Hong Kongers demanding democracy & call these elections what they are: a sham. [https://t.co/uZ1iQcSIBl](https://t.co/uZ1iQcSIBl)
-> — Rick Scott (@SenRickScott) [December 21, 2021](https://twitter.com/SenRickScott/status/1473410585672966151?ref_src=twsrc%5Etfw)
+2019年1月21日搜狐报道：80%以上的污水未经处理就直接排入水域，已造成三分之一以上的河段受到污染，90%以上的城市水域严重污染，近50%的重点城镇水源不符合饮用水标准。……七大江河水质继续在恶化，Ⅴ类和劣于Ⅴ类水所占比例仍很高。水污染严重河流，依次为：海河、辽河、淮河、黄河、松花江、长江、珠江。其中海河劣于Ⅴ类水质河段高达56.7%，辽河达37%，黄河达36.1%。长江干流超过Ⅲ类水的断面已达38%，比8年前上升了20.5%。
 
+2012年5月媒体报道一条消息：全国普查自来水合格率仅50%，无一城市自来水可以直接饮用。
 
+中共政府2014数据显示，59.6%的地下水质量较差甚至极差。
 
-参议员玛莎·布莱克本： 乔·拜登正在做什么来追责 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 呢？
+维基百科统计世界水污染例表，仅2004、2005、2006三年的7件水污染事件，中国就占6件。
 
+数据触目惊心，而且已经成为常态。水是生命之源，在这块传统农耕文明的土地上，何以在短短几十年间走到如此境地？
 
+何以如此，何时结束
 
-> What is Joe Biden doing to hold the Chinese Communist Party accountable?
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [December 22, 2021](https://twitter.com/MarshaBlackburn/status/1473445554302631944?ref_src=twsrc%5Etfw)
+中共党魁习近平有言，“金山银山不如绿水青山”。口号优美煽情，而事实统计数据却截然相反。也许《南方周末》报道中的几段话，可以给我们答案。
 
+“仅2021年2月至6月，园区管委会就将七千余吨管网污水违规用于固废填埋场。”
 
+“如果只是个别企业没有取得合法手续，我们把它停掉容易，如果整个园区都因为水的问题关停，确实很难下这个决心。”平罗县水务局负责人陈祥告诉南方周末记者。
 
-前国务卿迈克.蓬佩奥： 在川普政府领导下，我们专注于创造一种让美国人重返工作岗位的经济。 拜登政府却专注于失控的支出，让你在一切方面都依赖政府。
+2018、2019年，平罗县水务局曾三次向平罗水务公司下达整改通知，责令其尽快办理取水许可证和水资源使用权。水务局还集中约谈了园区内80家无取水权的企业，下达71份限期整改通知书。
 
+……
 
+园区管委会知法犯法、执法犯法，水务局难下决心、选择性执法，整改约谈流于形式。中共政府部门在利益面前一切皆是可为，环境安全、人民生命皆是鸿毛。党魁的煽情口号，自然也是愚民的谎言。那么，只要共产党依然在位，常态的环境污染结束有期？
 
-> Under the Trump Admin, we focused on creating an economy that put Americans back to work.
-> 
-> Under the Biden Admin, they are focused on out-of-control spending and making you dependent on the government for everything.
-> — Mike Pompeo (@mikepompeo) [December 21, 2021](https://twitter.com/mikepompeo/status/1473367846621175813?ref_src=twsrc%5Etfw)
+文章观点仅代表作者，与GNews 平台无关
 
+新闻链接：[http://www.infzm.com/wap/#/content/220375](http://www.infzm.com/wap/#/content/220375)
 
+素材：洛杉矶盘古农场 — 鲁西西
+评论：洛杉矶盘古农场 — 心照
+编审：洛杉矶盘古农场 — 柯镇恶
+发布 ：洛杉矶盘古农场 — Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-比尔·格茨： Indo-Pacom （太平洋军事指挥部）采用软件工具来监控 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 对美国的愤怒，批评者称之为“绥靖应用程序”。拜登行政裁员的最新迹象是亲北京政策 【附比尔·格茨在华盛顿邮报的文章】
-
-
-
-> Indo-Pacom adopts software tool that monitors Chinese anger of US in what critics are calling the “appeasement app.” Latest sign of Biden admin retrenchment to pro-Beijing policies [https://t.co/6JhHCkW7kO](https://t.co/6JhHCkW7kO)
-> — Bill Gertz (@BillGertz) [December 21, 2021](https://twitter.com/BillGertz/status/1473405658821103617?ref_src=twsrc%5Etfw)
-
-
-
-参议员泰德·克鲁兹： 除了 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 之外，中共在 COVID-19 ([#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click)) 成为全球大流行病时掩盖了它的来源、传播和性质。 【转媒体推文：卡马拉说：“这种病毒袭击了我们的国家或世界，这不是任何人的错。”（附卡马拉讲话视频）】
-
-
-
-> Except for the part where the Chinese Communist Party covered up the source, spread, and nature of COVID-19 as it became a global pandemic. [https://t.co/Ld5MwY51xx](https://t.co/Ld5MwY51xx)
-> — Ted Cruz (@tedcruz) [December 21, 2021](https://twitter.com/tedcruz/status/1473370430580867078?ref_src=twsrc%5Etfw)
-
-
-
-参议员卢比奥新闻办公室： 卢比奥参议员敦促他的同事们支持他的法案，该法案旨在禁止美国投资恶意的中共国公司。 【附参议院官网发布的相关信息】
-
-
-
-> Sen. Rubio urged his colleagues to support his bill to prohibit American investment in malicious Chinese companies. [https://t.co/Ycaw6L6K9n](https://t.co/Ycaw6L6K9n)
-> — Senator Rubio Press (@SenRubioPress) [December 21, 2021](https://twitter.com/SenRubioPress/status/1473358171095851011?ref_src=twsrc%5Etfw)
-
-
-
-参议员汤姆·科顿： 如果五角大楼想找到极端分子，他们应该将目光投向 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 和弗拉基米尔普京的俄罗斯。
-
-
-
-> If the Pentagon wants to find extremists they should look to the Chinese Communist Party and Vladimir Putin’s Russia.
-> — Tom Cotton (@SenTomCotton) [December 21, 2021](https://twitter.com/SenTomCotton/status/1473352289297514496?ref_src=twsrc%5Etfw)
-
-
-
-众议员迈克·沃尔茨： 感谢罗恩·德桑蒂斯州长[@GovRonDesantis](https://twitter.com/GovRonDeSantis) 的领导并将佛罗里达州的养老金从 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 转移出去。 我们的养老金不应该被用作 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 削弱美国公司的代价。 【转华盛顿邮报：佛州州长罗恩·德桑蒂斯 (Ron DeSantis) 采取行动将阳光之州的养老基金与中国共产党脱钩】
-
-众议员迈克·沃尔茨： 在5 月份，参议员马可·卢比奥[@MarcoRubio](https://twitter.com/marcorubio) 和我致信佛罗里达州的州领导人，要求他们考虑采取这一行动。 【转华盛顿监察员网：卢比奥和沃尔茨警告佛罗里达州关于养老基金投资 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 公司之事】
-
-
-
-> Thank you [@GovRonDesantis](https://twitter.com/GovRonDeSantis?ref_src=twsrc%5Etfw) for your leadership and getting Florida's pensions out of China. 
-> 
-> Our pensions shouldn't be used to cripple American companies at the expense of the Chinese Communist Party. [https://t.co/EDQqvCHFu3](https://t.co/EDQqvCHFu3)
-> — Rep. Mike Waltz (@michaelgwaltz) [December 21, 2021](https://twitter.com/michaelgwaltz/status/1473327332719005698?ref_src=twsrc%5Etfw)
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

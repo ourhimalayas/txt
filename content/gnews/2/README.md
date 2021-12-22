@@ -2,43 +2,24 @@
 ---
 
 
-## 有声|新加坡媒体“偶遇”彭帅 继续为冬奥会洗地
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1779524/)
+## 日本政府将为12岁以下儿童做免费中共病毒测试
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1779647/)
 
-配音：香草山美食部 – 玫瑰园
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-264.png)（图片源自本文链接）
+12月22日TBS新闻发表的消息称：经济振兴部长山际先生宣布，正准备在年底前开始为12岁以下的儿童等人群进行免费中共病毒（新冠病毒COVID-19）测试。
 
+山际先生说：我们正准备在年底前在所有县推出免费的、无需预约的测试，最早的县计划于本周开始实施。
 
+免费检测对象为，健康原因或因未满12岁而不能接种疫苗的人群。这意味着，政府想使用疫苗和测试包来减轻这些人的行为限制。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+该测试将主要在私营测试点和药店提供，具体地点将由县政府宣布。
 
+信息来源：[子どもなどワクチン接種受けられない人のコロナ検査が無料に 山際経済再生相（TBS系（JNN）） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/79540b1e46c3dee93fb4de446198117e0775abbf)
 
-
-12月19日，彭帅现身上海“城市越野滑雪赛”决赛现场，结束后接受新加坡媒体采访。虽然一再强调自己“很自由”，给国际女子网球协会主席的中文信“出自本人意愿”，但反应迟缓言辞闪烁，很难压下质疑之势。
-
-这次的滑雪赛是明年中共国冬奥会的积分赛，只有受邀嘉宾才能观赛。如此低调的现场，而新加坡媒体却能“偶遇”彭帅，并对轰动全世界的事件进行了数分钟的采访。彭帅说，微博是自己所发，属于个人隐私。当被询问是否有人监视，是否自由，她用了反问的语句。写给西蒙的信中文版是自己所写，中共媒体放出的英文版是他人翻译。至于是否出国，彭帅再一次反问没有比赛干嘛要出国。
-
-原文链接：[新加坡媒体“偶遇”彭帅 继续为冬奥会洗地](https://gnews.org/zh-hans/1776609/)
-
-音频处理：喜山必胜Maverick
-
-发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
