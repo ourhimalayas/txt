@@ -2,49 +2,36 @@
 ---
 
 
-## 灭共者之郭先生直播厅：反对假疫苗
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1781611/)
+## 立陶宛总理与布林肯通话 讨论共同对抗中共胁迫
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1781690/)
 
-**出品：纽约香草山设计部**
+**撰稿：日本东京方舟农场 北极**
 
+据《德国之声》中文网报道，立陶宛总理希莫尼特（Ingrida Simonyte）周二（12月21日）与美国国务卿布林肯通话，讨论有关中共对立陶宛经济施压的问题。布林肯重申美国将与理念相近国家共同对抗中共外交、经济胁迫作为。
 
+布林肯向立陶宛承诺，会与盟国共同对抗共胁迫，在“胁迫性外交和经济行为”中给予立陶宛支持。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+随后，布林肯在接受美国记者采访时表示，中共和俄罗斯试图破坏我们所建立和领导的国际体系，美国将与盟国保持高度一致，阻止中共和俄罗斯挑战国际秩序。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-271.png)台湾11月18日正式在立陶宛以台湾名义开设代表处，被认为是一次无视北京方面强烈压力和警告的重大外交行动。（图片来自《德国之声》中文网）
 
+希莫尼特办公室对此发表声明表示，总理感谢美国对立陶宛表示的声援和支持。在面对经济压力时，同盟国家必须保持团结。我们将继续在欧盟内部、与美国以及印度–太平洋地区的民主国家分享信息并协调行动。
 
+事件起源于11月18日，台湾在立陶宛正式设立国家代表处，中共随即降低与立陶宛的外交关系，并利用自己作为世界贸易大国的地位对立陶宛实施全面经贸制裁。
 
+此外，中共还威胁跨国公司断绝与立陶宛的关系，否则拒绝进入中共（国）市场。其中受影响较大的是德国汽车轮胎和零部件制造商大陆集团（Continental），中共逼迫其停止使用立陶宛制造的零部件。
 
+*参考链接：*
 
+[立陶宛总理与布林肯通话 讨论中国问题](https://www.dw.com/zh/%E7%AB%8B%E9%99%B6%E5%AE%9B%E6%80%BB%E7%90%86%E4%B8%8E%E5%B8%83%E6%9E%97%E8%82%AF%E9%80%9A%E8%AF%9D-%E8%AE%A8%E8%AE%BA%E4%B8%AD%E5%9B%BD%E9%97%AE%E9%A2%98/a-60219699)
 
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-image1.jpg)Only 1% chance of dying if infected by the coronavirus, while 96% chance of getting cancers or die [in a few years] if COVID-vaccinated. Why would anyone still go for the so-called “vaccine”? 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-image0-1.jpg)得了冠状病毒不一定死，只有1%的机会死；打疫苗会有96%的机会死和得癌症。那你为什么要打疫苗呢？![](https://assets.gnews.org/wp-content/uploads/2021/12/3-20211220-08.jpg)
-The vast majority of people who have taken the COVID-vaccine jabs did so due to ignorance, petty benefits, plus the “Scientism” way of logical and habitual thinking, of which all have been stealthily exploited by the CCP. Because the CCP knew that the West would not say NO to the vaccine. That is exactly why the CCP is so evil.![](https://assets.gnews.org/wp-content/uploads/2021/12/4-20211220-07.jpg)绝大多数打疫苗的就是无知，受小利的影响，还有就是科学主义的逻辑思维和习惯性思维的结果，背后都是共产党在利用：因为它知道西方国家是不会拒绝疫苗的！这就是中共邪恶的地方。![](https://assets.gnews.org/wp-content/uploads/2021/12/5-1215-.jpg)
-I’m not anti-vaccine; I’m anti-fake-vaccine.![](https://assets.gnews.org/wp-content/uploads/2021/12/6-1215-.jpg)我不反疫苗，我反的是假疫苗。
+*素材采编：北极*
 
+*编辑：文顺*
 
-**编辑/发稿：小鹿**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-2.png)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
-
+*发布：Ranting*
 
  
 
