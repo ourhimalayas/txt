@@ -99,111 +99,114 @@
 ### [韩国政府屈服于中共的压力，当日取消了唐风的演讲](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国向日本使馆客人施压，取消了交流活动](/content/gnews/29/README.md)
+### [20211219文贵大直播灭共关键词](/content/gnews/29/README.md)
+ ` 澳喜农场`
+
+### [中共国向日本使馆客人施压，取消了交流活动](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [习近平将宗教一统为&#8221;中国共产党教&#8221;！](/content/gnews/30/README.md)
+### [习近平将宗教一统为&#8221;中国共产党教&#8221;！](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [王岐山副主席和彭丽媛副主席比起来到底谁在上边谁在下](/content/gnews/31/README.md)
+### [王岐山副主席和彭丽媛副主席比起来到底谁在上边谁在下](/content/gnews/32/README.md)
  ` NewFOC`
 
-### [视频| 全球通胀通缩同存，未来5-10年将面临从未有过的黑暗时刻（上）](/content/gnews/32/README.md)
+### [视频| 全球通胀通缩同存，未来5-10年将面临从未有过的黑暗时刻（上）](/content/gnews/33/README.md)
  ` MOSREC`
 
-### [视频| 全球通胀通缩同存，未来5-10年将面临从未有过的黑暗时刻（下）](/content/gnews/33/README.md)
+### [视频| 全球通胀通缩同存，未来5-10年将面临从未有过的黑暗时刻（下）](/content/gnews/34/README.md)
  ` MOSREC`
 
-### [华为与中共智能手机制造商合作绕过美国制裁](/content/gnews/34/README.md)
+### [华为与中共智能手机制造商合作绕过美国制裁](/content/gnews/35/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|新加坡媒体“偶遇”彭帅 继续为冬奥会洗地](/content/gnews/35/README.md)
+### [有声|新加坡媒体“偶遇”彭帅 继续为冬奥会洗地](/content/gnews/36/README.md)
  ` MOSREC`
 
-### [有声|美国汇丰银行零售商业银行业务明年将易主](/content/gnews/36/README.md)
+### [有声|美国汇丰银行零售商业银行业务明年将易主](/content/gnews/37/README.md)
  ` MOSREC`
 
-### [有声|恒大地皮再被收回，相关上市公司大跌](/content/gnews/37/README.md)
+### [有声|恒大地皮再被收回，相关上市公司大跌](/content/gnews/38/README.md)
  ` MOSREC`
 
-### [北京冬奥会脚本提前剧透，丧事喜办愚外患，布置重兵防内乱](/content/gnews/38/README.md)
+### [北京冬奥会脚本提前剧透，丧事喜办愚外患，布置重兵防内乱](/content/gnews/39/README.md)
  ` YALUN 亚伦`
 
-### [有声| 真人真事与恩慈相待—谈关系的修复](/content/gnews/39/README.md)
+### [有声| 真人真事与恩慈相待—谈关系的修复](/content/gnews/40/README.md)
  ` MOSREC`
 
-### [中共严重渗透台湾军方，蔡英文安保也在内](/content/gnews/40/README.md)
+### [中共严重渗透台湾军方，蔡英文安保也在内](/content/gnews/41/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国将依据《香港自治法》制裁中联办5名官员](/content/gnews/41/README.md)
+### [美国将依据《香港自治法》制裁中联办5名官员](/content/gnews/42/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [以色列将起诉向中共出口巡航导弹的公司和个人](/content/gnews/42/README.md)
+### [以色列将起诉向中共出口巡航导弹的公司和个人](/content/gnews/43/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [GTV新闻访谈简报|2021年12月21日晚](/content/gnews/43/README.md)
+### [GTV新闻访谈简报|2021年12月21日晚](/content/gnews/44/README.md)
  ` 纽约香草山MOS01`
 
-### [制造环测达标假象 河北某地禁柴封灶致当地民众无法取暖](/content/gnews/44/README.md)
+### [制造环测达标假象 河北某地禁柴封灶致当地民众无法取暖](/content/gnews/45/README.md)
  ` GTV新闻访谈`
 
-### [以色列一男子接种2剂疫苗后感染中共病毒Omicron死亡](/content/gnews/45/README.md)
+### [以色列一男子接种2剂疫苗后感染中共病毒Omicron死亡](/content/gnews/46/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本强烈抗议中共海警船频繁入侵日本领海](/content/gnews/46/README.md)
+### [日本强烈抗议中共海警船频繁入侵日本领海](/content/gnews/47/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [法媒称台内部亲中共势力是北京特洛伊木马](/content/gnews/47/README.md)
+### [法媒称台内部亲中共势力是北京特洛伊木马](/content/gnews/48/README.md)
  ` GTV新闻访谈`
 
-### [“千人计划”参与者哈佛教授利伯今被判有罪](/content/gnews/48/README.md)
+### [“千人计划”参与者哈佛教授利伯今被判有罪](/content/gnews/49/README.md)
  ` HimalayaRussia`
 
-### [牛津大学研究揭接种疫苗者得心脏病入院或死亡律达1%](/content/gnews/49/README.md)
+### [牛津大学研究揭接种疫苗者得心脏病入院或死亡律达1%](/content/gnews/50/README.md)
  ` HimalayaRussia`
 
-### [数据显示:接种“病毒疫苗”正在引发数十万人的精神障碍](/content/gnews/50/README.md)
+### [数据显示:接种“病毒疫苗”正在引发数十万人的精神障碍](/content/gnews/51/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [辉瑞以67亿美元收购了研究心血管疾病的生物制药公司Arena](/content/gnews/51/README.md)
+### [辉瑞以67亿美元收购了研究心血管疾病的生物制药公司Arena](/content/gnews/52/README.md)
  ` 首尔天池农场`
 
-### [12/21/2021国际财经快讯：俄罗斯限制境内使用加密货币；全球并购活动刷新历史记录](/content/gnews/52/README.md)
+### [12/21/2021国际财经快讯：俄罗斯限制境内使用加密货币；全球并购活动刷新历史记录](/content/gnews/53/README.md)
  ` 秘密翻译组金融团队`
 
-### [拜登的“重病和死亡的冬天”已在高疫苗接种州成现实(1/2)](/content/gnews/53/README.md)
+### [拜登的“重病和死亡的冬天”已在高疫苗接种州成现实(1/2)](/content/gnews/54/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [反对强制接种义务的少数人将转变为大多数人](/content/gnews/54/README.md)
+### [反对强制接种义务的少数人将转变为大多数人](/content/gnews/55/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [韭菜收割新模式开启，富豪贪官主播网红难逃一劫](/content/gnews/55/README.md)
+### [韭菜收割新模式开启，富豪贪官主播网红难逃一劫](/content/gnews/56/README.md)
  ` 墨尔本雅典娜农场`
 
-### [以美灭共的经济制裁正加速实施中](/content/gnews/56/README.md)
+### [以美灭共的经济制裁正加速实施中](/content/gnews/57/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [【Michael.Tonny专栏】辉瑞CCP病毒疫苗临床试验中，儿童不良反应率为86.2%](/content/gnews/57/README.md)
+### [【Michael.Tonny专栏】辉瑞CCP病毒疫苗临床试验中，儿童不良反应率为86.2%](/content/gnews/58/README.md)
  ` 温哥华扬帆农场`
 
-### [小罗伯特肯尼迪：美国情报部门和军方参与了武汉实验室的研究](/content/gnews/58/README.md)
+### [小罗伯特肯尼迪：美国情报部门和军方参与了武汉实验室的研究](/content/gnews/59/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [班农先生荣获《国家脉动》第二届年度爱国者奖](/content/gnews/59/README.md)
+### [班农先生荣获《国家脉动》第二届年度爱国者奖](/content/gnews/60/README.md)
  ` 墨尔本雅典娜农场`
 
-### [CNN挺班农 要求公布被司法部保护的文件](/content/gnews/60/README.md)
+### [CNN挺班农 要求公布被司法部保护的文件](/content/gnews/61/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [社交媒体影响者 与中共国领事馆签订官方合同](/content/gnews/61/README.md)
+### [社交媒体影响者 与中共国领事馆签订官方合同](/content/gnews/62/README.md)
  ` GTV News Talk`
 
-### [法官限制了班农先生公开证据的要求](/content/gnews/62/README.md)
+### [法官限制了班农先生公开证据的要求](/content/gnews/63/README.md)
  ` HimalayaRussia`
 
-### [“班农先生不睬案”审理日期已确定](/content/gnews/63/README.md)
+### [“班农先生不睬案”审理日期已确定](/content/gnews/64/README.md)
  ` HimalayaRussia`
 
-### [班农的传票将1.6委员会吓得半死](/content/gnews/64/README.md)
+### [班农的传票将1.6委员会吓得半死](/content/gnews/65/README.md)
  ` HimalayaRussia`
 
