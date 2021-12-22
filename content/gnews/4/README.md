@@ -2,36 +2,121 @@
 ---
 
 
-## 美国副国务卿被任命为西藏问题特别协调员
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1778926/)
+## 强制疫苗一定会在两个月内被停止
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1778992/)
 
-**撰稿：日本东京方舟农场 幽蘭自得**
+[https://gtv.org/video/id=61c2014b43ccb726a0897599](https://gtv.org/video/id=61c2014b43ccb726a0897599)
 
-据《美国之音》12月21日报道，美国副国务卿泽雅被任命为西藏问题特别协调员，将在北京侵犯西藏人权之际领导美国维护西藏宗教、文化和语言遗产的工作。
+**郭文贵**
+**Miles Guo**
 
-据报道，美国国务卿布林肯在宣布这个任命时表示，负责民事安全、民主和人权事务的副国务卿乌兹拉·泽雅（Uzra Zeya）还将同时寻求促进中共国和西藏精神领袖达赖喇嘛或民选西藏领导人之间的对话。
+打了一针、两针、三针的得病毒的机会更多
+Ones that have already received one shot, two shots, or three shots would have a bigger chance to get the virus infection
 
-布林肯在推文中说，“她将领导美国努力维护西藏人民的宗教、文化和语言遗产，西藏人民正面临人权侵犯，他们的生计和环境正在面临挑战。”
+为什么就刚才我说那个
+Why? It’s because of what I have just said earlier
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-263.png)图片来自美联社
+它本身身体就有病毒
+(The vaccine) itself puts a virus inside your body
 
-国际声援西藏运动（International Campaign for Tibet）对此表示欢迎泽雅履新。临时主席布琼次仁（Bhuchung Tsering）在一份声明中呼吁泽雅带头争取志同道合国家的支持，制定西藏问题的共同方法，正如美国去年通过的《西藏政策及支持法案》（Tibetan Policy and Support Act）所要求的那样。
+它本身就繁殖病毒
+(The vaccine) itself reproduces the virus
 
-此前，美国63名国会两党参众议员就西藏问题同时致函副国务卿乌兹拉·泽雅，对西藏自治表示支持，呼吁拜登政府与国会依据2002年“西藏政策法案”（Tibetan Policy Act）和2020年“西藏政策及支持法案”（Tibetan Policy and Support Act）等法律共同推动美国西藏政策的11个具体领域，保护藏人权利、自治与尊严，并进一步确认与中共国不同的西藏独特的政治、族裔、文化和宗教认同。
+它本身会加剧你的病毒反应
+(The vaccine) itself will exacerbate your viral response
 
-*参考链接：*
+这是灾难的结果
+This is a disaster
 
-[美国副国务卿泽雅被任命为西藏问题特别协调员](https://www.voachinese.com/a/zeya-named-coordinator-for-tibet-20211220/6362358.html)
+但是人类永远是墓碑文明和墓碑科技
+But human beings will always be a tombstone civilization and technology
 
-[美国60多名国会两党参众议员致函国务院支持西藏自治](https://www.voachinese.com/a/lawmakers-urge-to-make-tibet-priority-20211214/6354909.html)
+必须掉N多架
+it must be crashed many planes
 
-* * *
+一个飞机没有掉几架以后是不可能批准你这个飞机上天飞的
+It’s impossible to get approval for flying into the sky if a plane has not crashed a few
 
-*素材采编：幽蘭自得*
+绝不可能, 几乎不可能
+It’s absolutely impossible, almost impossible
 
-*编辑：文顺*
+人类的汽车文明都是墓碑科技
+Human vehicle civilization is tombstone technology
 
-*发布：Ranting*
+文明就是墓碑文明
+and the civilization is a tombstone civilization
+
+解决这次病毒和疫苗灾难就是一种墓碑增加以后的结果
+Solving this virus and vaccine disaster is a result of the fact that after increasing a tombstone
+
+这就是现在的认知
+This is the current perception
+
+所以说现在你看到那个疯狂的时候
+So now the time when you see that insaneness
+
+他会逼迫更多保护孩子、保护自己的饭碗和生存
+it will force more people to protect their children, protect their jobs, and survive
+
+然后保护兄弟姐妹、家人
+and then to protect their brothers and sisters, and other family members
+
+只有新中国联邦是保护我们这些素不相识的兄弟姐妹
+Only the New Federal State of China will protect our brothers and sisters who have never met
+
+唯一一个群体，无私无已的，唯一的
+The only organization that is selfless, the only one
+
+另外一个打疫苗的反应
+The other is the response to the vaccine
+
+一定记住，8个月、12个月、16个月或者是10个月、12个月
+Remember, it would be 8 -12 – 16 months or 10 – 12 months
+
+它的整个的爆发和被认知确实来自疫苗
+The entire outbreak and acknowledgment of the vaccine consequence did indeed come from the vaccine
+
+一定是在今年圣诞节之后逐渐开始
+It will definitely start gradually after Christmas this year
+
+今年年底我说疫苗是到了最最开始的灾难
+I said that the end of this year would be the very beginning of the vaccine disaster
+
+大家看到了，从10月、11月、12月，逐渐比我们预期还坏
+You may all see that it has been gradually worse than we expected month by month
+
+强制疫苗一定会在两个月，不会超过（这个时间）一定会被停止
+The mandatory vaccine will definitely be stopped within two months, no longer than two months
+
+这种杀掠，而且这次杀掠
+This kind of killing and looting and this time
+
+疫苗杀害的绝对都是怕死的、没有信仰的、有钱的、有权的、有名的
+The victims of the vaccines must be those who are afraid of death, have no faith, rich, powerful, and famous
+
+肯定是这些人
+It must be these people
+
+**原视频链接:** [https://gettr.com/post/pk2isx04af](https://gettr.com/post/pk2isx04af)
+
+Date: 12/18/2021
+原视频标题: 强制疫苗一定会在两个月内被停止
+The Vaccines Mandates Would Definitely be Stopped Within Two Months
+原视频日期：2021/12/17
+原视频链接: https://gettr.com/post/pk2isx04af
+任务编号：KC356(3281)
+视频时间段 : 0:00-1:39
+
+英听校: 洛杉矶盘古农场 – 郭班之樱
+翻译: 洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 -Mike Li
+字幕+视频制作: 洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

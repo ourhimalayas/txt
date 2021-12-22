@@ -2,32 +2,41 @@
 ---
 
 
-## 华夏幸福累计未偿还债务1078.05亿
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1778915/)
+## 有声|中共进入全面加速崩溃时代
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1778948/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/122110-1.jpg)图片：网络资源
-编辑摘要：
-
-据《观点地产新媒体》12月21 日报道，华夏幸福基业股份有限公司发布公告称，近期公司及下属子公司新增未能如期偿还银行贷款、信托贷款等形式的债务本息金额67.87亿元。截至本公告披露日，该公司累计未能如期偿还债务本息合计1078.05亿元。
-
-中共跌倒的房地产是再也爬不起来了，华夏幸福再重组，也不可能再现昔日的辉煌。虚假的房地产市场已经过去了，还是面对现实吧。
-
-新闻参考链接：[华夏幸福新增未能如期偿还债务67.87亿 累计未偿还债务1078.05亿](https://c.m.163.com/news/a/GRP0JNOJ0519D45U.html?spss=newsapp)
-
-*编辑：胖丁*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+配音：香草山香港部 – 文凯琳
 
 
-编辑：【英国伦敦喜庄园编辑部】
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+12月18日，文贵先生发布盖特说，从12月17日到18日，纽约几万人感染奥秘康，全世界很多城市开始拉响了警报。中共放的毒从弄死人，到吓死人，再让所有人不仅呆在家里，而且一人感染全家都被传染。传染力快，并发率高，尤其对老人和孩子威胁之大。战友们一定要呆在家里，保护好自己和家人，同时备好神药青蒿素及伊维菌素。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+文贵先生强调，共产党经济即将全面崩溃，到处抢劫财富导致的社会动乱已铺开。17日起，中小企业倒闭仅北京一地，就从每天110家到每天300多家。
 
+国内正大量抓捕公检法及金融部门官员，银行借旧换新，借新还旧以及高薪拉储等措施都出问题了，到年底露馅了 ，所以很多相关人员都会被抓 。所抓政法委和银行官员之多，前所未有，同时企业家也被抓捕。马云往国内不断汇钱 ；马化腾为了表忠心，不光交钱，还交技术和团队。
 
+整个中南部工资养老金不发，还要求半年内，医院和医疗企业部门上交1.5万亿，支持所谓的国家战略转型期，即为了打台湾做准备。
+
+文贵先生评价道， 所有的独裁者到最后都会发动战争，激起所谓的爱国主义和民族仇恨，拉着老百姓殉葬。
+
+文字版原文：[中共进入全面加速崩溃时代](https://gnews.org/zh-hans/1770155/)
+
+音频处理：喜山必胜Maverick
+发稿：Tom Li
+[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

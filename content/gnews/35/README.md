@@ -2,46 +2,35 @@
 ---
 
 
-## 疫苗政策严苛的美国蓝州感染率激增
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1778450/)
+## 中共病毒康复后仍可能患癌，经济黑暗时代即将到来
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1778507/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+作者：纽约香草山教育部 – Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+在12月19日的大直播中，郭文贵先生着重提醒战友，务必要注意两个坏消息：
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/12/A-6.jpg)courant.com
-《门道专家》今早（12月21日）发文，题目是，“尽管接种了疫苗，纽约每天仍然是有史以来最高的中共病毒感染率——密歇根州、明尼苏达州、佛蒙特州和马里兰州也出现了激增”。
+第一，科学家告诉郭先生，所有感染过中共病毒的康复者，在未来3-10年内，超过50%的概率会患癌症。而唯一的办法，就是合理的吃青蒿素和伊维菌素，特别是补铁、维他命等。并提醒，一定要科学的吃药，还要定期检查身体；在运动健身方面一定要避免剧烈运动。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture15.jpg)
+第二，世界经济唯有崩塌之路。由于美国疯狂印钞，导致美元贬值严重，物价飞涨，美国的汽油面包均已涨价超过50%。目前全球经济是滞胀同存，物资缺乏，法币贬值，有钱也买不到东西，没钱就更难过。
 
-全文如下：
+郭先生还特别强调，一定要做好5-10年、甚至更长时间的准备，以应对经济上从未有过的黑暗时期。
 
-如果沉没的泰坦尼克号（Titanic）的船长在其解体和沉没之前向乘客和船员发表过演讲的话，乔·拜登（Joe Biden）今天关于中共病毒“危机”的演讲应该就有了历史的先例。无论痴呆的乔说什么，新一轮的中共病毒海啸表明疫苗不起作用。
+参考链接：&lt;a href="https://gtv.org/video中共病毒康复后仍可能患癌，经济黑暗时代即将到来
 
-是的，我们听说那些已经接种了多种疫苗和加强剂的无脑白痴坚持说，即使再次感染了中共病毒后，这些疫苗还是挽救了他们的生命。目前，中共病毒检测呈阳性的接种疫苗者名单正在按小时增长：
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-吉姆·克莱默（Jim Cramer）——左派CNBC大牌主持
+总编：文特
+编辑：DM
+校对/发稿：Hetangyuese
 
-科里·布克（Cory Booker）——民主党参议员
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
-伊丽莎白·沃伦（Elizabeth Warren）——民主党参议员、拜登近身工作人员
-
-拉里·霍根（Larry Hogan）——马里兰州州长共和党建制派人物
-
-（笔者再加一个，白宫新闻秘书普萨基）
-
-蓝州纽约以防止中共病毒传播为名，采取了一系列最严厉的侵犯公民权利的措施，目前反馈报告的每日数量，该蓝州已经达到了2020年疫情爆发以来的最高水平。
-
-纽约并不孤单，再加上密歇根、明尼苏达、马里兰州和佛蒙特州，宾夕法尼亚州和马萨诸塞州也在这样做。如果这些州有更多的反疫苗者，那将是另一回事，但事实并非如此。恰恰相反，大量的疫苗接种、口罩强制令和封城等这些严格的措施并没有阻止中共病毒疫情的再次出现。
-
-越来越清楚的是，中共病毒疫苗并不能阻止中共病毒的传播，更糟糕的是，接种疫苗的人没有获得免疫检测还呈阳性，再多的狡辩也无法抹去这一事实。
-
-不幸的泰坦尼克号船长不能假装没有冰山，在冰冷的海水中疯狂颠簸的乘客们知道真相，同样的情况现在也适用于中共病毒疫情。拜登的计划失败了，他关于更多疫苗的口头禅被揭露为欺诈，有人向你保证，如果你打了针，可怕的中共病毒就会消失。事实证明这不是真的。带上救生艇，孩子们。
-
-（原文完）
-
-给作者点赞，病毒是冰块，疫苗是冰山，完全接种再加上加强剂就是加速向冰山上去撞。怎么就是唤不醒这帮政客？活生生的现实，疫苗不仅没有遏制住病毒，反而因为疫苗越打疫情越高发，这已经不是个案，而是数个州的实际情形。拜登还在骗，政府仍在欺。再呐喊一声“带上救生艇，孩子们”——那就是拒绝毒疫苗！
-
-原文链接：
-
-[https://www.thegatewaypundit.com/2021/12/despite-vaccinated-new-york-hits-highest-daily-covid-infection-ever/](https://www.thegatewaypundit.com/2021/12/despite-vaccinated-new-york-hits-highest-daily-covid-infection-ever/)
 
  
 

@@ -2,41 +2,35 @@
 ---
 
 
-## 有声|中共进入全面加速崩溃时代
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1778948/)
+## 因隐瞒疫苗严重安全问题，英国政府官员面临警方调查
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1779033/)
 
-配音：香草山香港部 – 文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-29.png)图片来源：National Times
+整理报道:文泓
 
+2021年12月21日，据大纪元报道，星期一，英国健康专家山姆·怀特博士和他的法律团队成员拜访了伦敦的查林克罗斯和哈默史密斯警察局，这是他们为揭露关于新冠疫苗的严重安全问题所做出的最新努力。他们还指责英国政府机构故意向公众隐瞒信息。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-12月18日，文贵先生发布盖特说，从12月17日到18日，纽约几万人感染奥秘康，全世界很多城市开始拉响了警报。中共放的毒从弄死人，到吓死人，再让所有人不仅呆在家里，而且一人感染全家都被传染。传染力快，并发率高，尤其对老人和孩子威胁之大。战友们一定要呆在家里，保护好自己和家人，同时备好神药青蒿素及伊维菌素。
+法律团队提交了一份包含“重要且无可辩驳证据”的刑事申诉，并被伦敦警察局受理。因此，警局已经发布了一个“**公职人员不当行为**”的犯罪参考编号，并且已经分配了一个指定的官员和警察部门来处理这件事情。
 
-文贵先生强调，共产党经济即将全面崩溃，到处抢劫财富导致的社会动乱已铺开。17日起，中小企业倒闭仅北京一地，就从每天110家到每天300多家。
+代表怀特博士的律师表示：“最重要的是，**作为一个公共安全问题，我们作为一个集体要求立即政府停止新冠疫苗的推广**，我们建议由伦敦警察局向全国发表讲话，并提出相应的建议。”
 
-国内正大量抓捕公检法及金融部门官员，银行借旧换新，借新还旧以及高薪拉储等措施都出问题了，到年底露馅了 ，所以很多相关人员都会被抓 。所抓政法委和银行官员之多，前所未有，同时企业家也被抓捕。马云往国内不断汇钱 ；马化腾为了表忠心，不光交钱，还交技术和团队。
+他们补充说：“英国的一些政府部门，特别是担任公职和政府中的个人被指为犯罪者，我们有支持性证据。”
 
-整个中南部工资养老金不发，还要求半年内，医院和医疗企业部门上交1.5万亿，支持所谓的国家战略转型期，即为了打台湾做准备。
+他们与警方的谈话持续了6个小时，并进行了录音，但为了避免影响现在正在进行的刑事调查，这些内容没有被公布。
 
-文贵先生评价道， 所有的独裁者到最后都会发动战争，激起所谓的爱国主义和民族仇恨，拉着老百姓殉葬。
+怀特博士向警方强调，英国的医生、护士和护理人员也在被政府“勒索，要求他们接种疫苗，否则就会失去工作”。
 
-文字版原文：[中共进入全面加速崩溃时代](https://gnews.org/zh-hans/1770155/)
+政府为医护人员全面接种疫苗设定的最后期限是2022年4月1日。这一天恰巧是“愚人节”，传统上人们会在这一天搞恶作剧，但怀特和他的同事说，强迫人们接种未经全面测试的实验性疫苗或失去工作，不会带来任何乐趣。
 
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
-**更多资讯，更多关注**
+新闻链接：[UK Government Officials Face Police Investigation Over COVID Vaccines (theepochtimes.com)](https://www.theepochtimes.com/uk-government-officials-face-police-investigation-over-covid-vaccines_4171032.html)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+发布：Peter Xin
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**更多****资讯****，****请关****注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

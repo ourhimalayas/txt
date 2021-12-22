@@ -2,39 +2,29 @@
 ---
 
 
-## 日本机构警告来自中共国的经济安全威胁
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1778907/)
+## 科研践踏犯罪行为：半途终止中共病毒 药物瑞德西韦的研究，然后调整以歪曲结果
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1778939/)
 
-据《The News Motion》作者：Kathy Acker，2021年12月19报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1145.png)图片源自：thenewsmotion.com
-东京：日本公共安全情报局警告，警惕中共国的经济安全威胁，称其尝试获取军事技术，并招募人才。
+编译： 真北007
+![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕截图-2021-12-21-190728.png)图片来源：网络
+来自REDVOICE MEDIA星期一12月20日的新闻报道：
 
-该机构周五在年度报告中指出：“人们担心中共国将继续致力于收购（日本）公司和招募具有先进专业知识的人力资源。”
+瑞德西韦Remdesivir：福奇Fauci 知道它是有毒的且杀死了人，但无论如何还推广它。
 
-报告称，已有中共国公司投资半导体领域和其他领域或试图收购日本公司。
-报告还指出，日本研究人员正在参与中共国的“千人计划”。中共国以丰厚的资金从海外招募优秀人才。
+在谈到 COVID-19 以及美国对病毒的反应时，一名男子已将自己置于整个大流行的最前沿。作为乔·拜登总统的首席医疗顾问，安东尼·福奇博士持续推动几个月后采取了不同立场的议程和讲述。随着他不道德的过去受到质疑，许多人开始调查 这个COVID-19 背后的人以及继续给全国带来灾难的疫苗强制令。
 
-该机构在报告中透露，已经发生系列旨在窃取日本公司机密信息的网络攻击事件。报告指，网络攻击在日本和国外变得越来越普遍和复杂。
+在原文的视频中，Paul Maik 博士在田纳西州纳什维尔举行的 COVID 峰会上发表讲话，当时他提出了一种用于治疗埃博拉患者的名为 Remdesivir 的药物的研究过程。 2019 年 12 月 12 日，在宣布 COVID-19 的同时，《新英格兰医学杂志》发表了研究结果，即瑞德西韦是一种有毒药物，会导致患者死亡并增加肾功能衰竭的风险。根据迈克的说法，福奇博士知道这一点，但他甚至在所有数据汇编之前就将其推广为 COVID-19 的治疗方法。
 
-该机构呼吁对一些国家参与或支持网络攻击保持警惕，并特别提到中国、俄罗斯和朝鲜。它补充认为，网络攻击的威胁正变得越来越严重。
+Maik 继续补充说：“在研究进行到一半时，他们进行了中期分析，发现该研究不会有好的结果。因此，他们在研究进行到一半时改变了目标，即球门。这正是科学不端行为。”
 
-关于邻国的情况，该机构分析认为，因应对新型冠状病毒传播，朝鲜长期关闭边境，正面临着粮食价格飙升和供给短缺。
+**点评：**文贵先生也及时告诉过世界，瑞德西韦也是一种杀人武器，中共病毒背后的人，为了利益任何邪恶的事情都干得出来!
 
-报告称，中共党魁习近平预计将进一步加强对经济和社会的控制，以确保明年北京冬奥会和中共党代会召开前的国内稳定。
+原文链接：[https://www.redvoicemedia.com/2021/12/scientific-misconduct-study-on-covid-drug-halted-then-adjusted-to-skew-results-video/](https://www.redvoicemedia.com/2021/12/scientific-misconduct-study-on-covid-drug-halted-then-adjusted-to-skew-results-video/)
 
-原文连接：[https://thenewsmotion.com/japan-agency-warns-of-economic-security-threats-from-china%EF%BD%9Carab-news-japan/](https://thenewsmotion.com/japan-agency-warns-of-economic-security-threats-from-china%EF%BD%9Carab-news-japan/)
+编辑/发布：LILY
 
-翻译：洛杉矶盘古农场 – TrueSky
-校对：洛杉矶盘古农场 – Mike Li 
-编辑：洛杉矶盘古农场 – WenXiong
-发布 ：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-
-
+20211221
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
