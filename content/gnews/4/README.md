@@ -2,21 +2,38 @@
 ---
 
 
-## 【文贵先生大直播PPT】疫苗大灾难
-` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1781442/)
+## 拜登承认他的疫苗强制令不受欢迎
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1781448/)
 
-撰稿：飞飞（DC) Now 小哥（香草山）庚子灭共（DC）莲心不染（扬帆）
-美工：青山（英喜）
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-【2021年12月22日文贵先生大直播PPT：疫苗大灾难】
-![](https://assets.gnews.org/wp-content/uploads/2021/12/11-10.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/12-9.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/13-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/14-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/15-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/16-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/17-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/18-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/19-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/20-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/21-11.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/22-12.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/23-9.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/24-9.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/25-8.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/26-6.jpg)
-**Omicron 从实验室里释放的证据的相关信息源链接：**
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/12/B-1.png)newshub.social
+《福克斯新闻》发表文章，题目是“拜登承认他的疫苗强制令不受欢迎，但表示这些强制令‘合法且有效’”，文章副标题透露，拜登说，疫苗强制令“甚至对那些急于获得疫苗的人来说都不受欢迎”。【1】
 
-1.[https://rumble.com/vqy7qe-dr.-peter-mccullough-on-nfl-protocols-pregnancy-omicron-and-more.html](https://rumble.com/vqy7qe-dr.-peter-mccullough-on-nfl-protocols-pregnancy-omicron-and-more.html)2.[https://rwmalonemd.substack.com/p/has-omicron-shifted-receptor-binding?r=ta0o1&utm\_campaign=post&utm\_medium=web](https://rwmalonemd.substack.com/p/has-omicron-shifted-receptor-binding?r=ta0o1&amp;utm_campaign=post&amp;utm_medium=web)3.[https://frenchdailynews.com/health/3691-omicron-the-molecular-analysis-of-pr-jacques-fantini 4.https://rwmalonemd.substack.com/p/omicron-today?r=ta0o1&utm\_campaign=post&utm\_medium=web](https://frenchdailynews.com/health/3691-omicron-the-molecular-analysis-of-pr-jacques-fantini%204.https://rwmalonemd.substack.com/p/omicron-today?r=ta0o1&amp;utm_campaign=post&amp;utm_medium=web)5.[https://www.cbsnews.com/news/omicron-variant-covid-in-europe-netherlands-before-alert-raised/ 6.https://www.cnbc.com/2021/12/02/where-did-omicron-covid-variant-come-from-and-where-is-it-circulating.html 7.https://www.who.int/news/item/26-11-2021-classification-of-omicron-(b.1.1.529)-sars-cov-2-variant-of-concern](https://www.cbsnews.com/news/omicron-variant-covid-in-europe-netherlands-before-alert-raised/%206.https://www.cnbc.com/2021/12/02/where-did-omicron-covid-variant-come-from-and-where-is-it-circulating.html%207.https://www.who.int/news/item/26-11-2021-classification-of-omicron-%28b.1.1.529%29-sars-cov-2-variant-of-concern)8.[https://twitter.com/P\_McCulloughMD/status/1473299558281191433?s=20 https://www.msn.com/en-us/health/medical/most-omicron-cases-in-us-have-been-mild-but-most-were-vaccinated-cdc-reports/ar-AARGOxE](https://twitter.com/P_McCulloughMD/status/1473299558281191433?s=20%20https://www.msn.com/en-us/health/medical/most-omicron-cases-in-us-have-been-mild-but-most-were-vaccinated-cdc-reports/ar-AARGOxE) 9.[https://www.msn.com/en-us/health/medical/most-omicron-cases-in-us-have-been-mild-but-most-were-vaccinated-cdc-reports/ar-AARGOxE 10.https://www.voiceforscienceandsolidarity.org/videos-and-interviews/geert-vanden-bossche-speaks-about-omicron-and-mass-vaccination-at-dana-show](https://www.msn.com/en-us/health/medical/most-omicron-cases-in-us-have-been-mild-but-most-were-vaccinated-cdc-reports/ar-AARGOxE%2010.https://www.voiceforscienceandsolidarity.org/videos-and-interviews/geert-vanden-bossche-speaks-about-omicron-and-mass-vaccination-at-dana-show)
+全文如下：
 
-* * *
+拜登总统在星期二（12月21日）的讲话中承认，他的对大型私人企业的中共病毒疫苗强制令及强制测试是“不受欢迎的”，但坚持认为这对每个人都有利。
 
-发稿：云起时
+拜登在白宫国宴厅（the White House’s State Dining Room）向全国发表讲话时说：“当人们接种疫苗或接受检测时，他们得病的可能性和向他人传播疾病的可能性要小得多。”
+
+“顾客更可能进来购物，因为他们知道这是一个安全的环境。”他继续说，“我知道疫苗接种要求对许多人来说并不受欢迎，甚至对那些急于接种疫苗的人来说也不受欢迎。我的政府实施这些措施不是为了控制你的生命，而是为了拯救你和其他人的生命。”
+
+拜登发表上述言论之前，辛辛那提的美国第六上诉法院于解除了11月的一项禁令，该禁令阻止了“职业安全与健康管理局”（the Occupational Safety and Health Administration）的这项规定，该局规定，拥有至少100名雇员的私营企业，要求员工接种疫苗或定期进行检测。
+
+拜登在讲话中说，这项规定“合法有效”，将拯救“成千上万的美国人的生命”。
+
+由于奥密克戎变种的传播，新病例激增，拜登宣布了三项措施，以在他先前宣布的冬季计划的基础上再接再厉——包括增加对医院的支持、获得免费检测和扩大美国人接种疫苗的能力。
+
+（原文完）
+
+面对强烈的抗拒，拜登怂了？至少他要面对现实，承认现实。按说第六巡回法院解除了第五巡回法院的暂停判决，他应该得意才是。若是没有感到强大的抵抗，他不会有这样的表态。压力之一或许就是来自最高法院，接手这个诉讼的法官布雷特·卡瓦诺 (Brett Kavanaugh)周一（12月20日）作了表态，卡瓦诺要求拜登政府回应第六巡回法院裁决的大量上诉。由于地理原因，卡瓦诺负责监督第六巡回法院的紧急上诉，卡瓦诺还为拜登政府的回应设定了截止日期和时间，即 12 月 30 日下午 4 点【2】。最高法院可能会在 2022 年初对此案采取行动。笔者并不看好最高法院能作出明智的判决，卡瓦诺目前的这种表态，也许是最高法院双方各打一板的策略。当然，他们若能真正认清疫苗的无用、疫苗的危害、疫苗的阴谋，否决第六巡回法院的判决，那才是正义在美国最高法院的彰显。
+
+有关链接：
+
+【1】[https://www.foxnews.com/politics/biden-vaccine-mandates-unpopular-legal-effective](https://www.foxnews.com/politics/biden-vaccine-mandates-unpopular-legal-effective)
+
+【2】[https://www.foxbusiness.com/politics/supreme-court-vaccine-mandate-kavanaugh-biden-respond](https://www.foxbusiness.com/politics/supreme-court-vaccine-mandate-kavanaugh-biden-respond)
 
  
 
