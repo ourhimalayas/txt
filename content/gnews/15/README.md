@@ -2,28 +2,18 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月22日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1781023/)
+## 文贵大直播 12/22 冬奥会之前的媒体超限战 中共大外宣用心险恶
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1781060/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-4.jpg)
+撰稿：回响【秘翻Gnews原创组】
+![](https://assets.gnews.org/wp-content/uploads/2021/12/snapshot1.png)图片来源：GTV
+12月22日新中国联邦创始人郭文贵先生，在纽约准时开始了《文贵大直播》。在VICE杨贝贝采访完整版和播放版两相对照的视频后，明确指出这是中共大外宣操控世界媒体，在冬奥会之前，精心针对爆料革命和新中国联邦发动的媒体超限战。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-22.png)
-文章仅代表作者本人观点，与Gnews无关
+这位杨贝贝曾经采访过的三位海外华人（包括出现在报道中的两位当事人），非常详尽地对直播嘉宾及超过数百万观众们分享了接受采访前后的真实事实，表达了自己的愤怒与担忧，还有看到报道后身心受到的伤害和纷扰。
 
-视频参看：[2021.12.22早GTV新闻访谈](https://gtv.org/video/id=61c32786bcb7f101bb732ea8)
+文贵先生郑重告诉公众，这次共产党的设计很深，1、冬奥会前；2、定为邪教，驱离；3、对别人造成恐怖威胁。班农先生也被绑到了一起。所有这些都是用心极其险恶的，是配合中共所谓“灭爆”以及绑架海外华人大行动的重要部分。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-2.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+【来源链接】https://gtv.org/broadcast/watch/61c324ccbcb7f101bb732569
 
  
 

@@ -2,24 +2,21 @@
 ---
 
 
-## 加拿大医疗系统因疫情反复不堪重负
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1780831/)
+## 美俄联手让习近平更加疯狂 更加有利于我们灭共
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1780845/)
 
-采编/翻译：文莱
-![](https://assets.gnews.org/wp-content/uploads/2021/12/02-image-7.jpg)
-[图片来源](https://www.ctvnews.ca/health/coronavirus/pm-trudeau-announces-major-funding-for-virtual-health-care-antibody-research-1.4922667)
+文编：东京樱花团/樱花传媒
 
-据【多伦多太阳报】12月18日报道，加拿大政府针对“新冠病毒”及其变体“奥密克戎”疫情蔓延所采取的应对措施，显然体现出该国医疗系统能力低于平均标准且资金严重不足的境况。
+视频:东京樱花团/中文小视频组
 
-报道称，联邦政府近日因疫情再度恶化，而以“保障加拿大医疗系统正常运行”为由，宣布实施新的旅行限制令。但实际上，由于该国医院及其重症监护室容量根本无法应对病毒感染患者的激增，因此特鲁多政府总是迅速地采取各种包括封锁社区和关闭企业等极端限制措施。
+2月10日，郭文贵先生在GTV大直播指出：
 
-据悉，尽管安省在近期增加了医院病床容量，但对于一个拥有1470万人口的省份，一旦其“新冠病毒”感染患者占据了250张“重症监护”病床，那么将很难确保会继续提供全面的医疗护理。此外，总理特鲁多还拒绝了全国各省都曾要求联邦政府将卫生资金拨款份额从22%增加到35%的要求。
+俄、美联手，俄罗斯将会有一系列的行动，这对习来说是致命打击。任何政治家都是在穷凶极恶和丧失自我的情况下，干出了丧心病狂的疯狂举动。当年的那些独裁者无一例外，习和共产党现在就到了这个时刻，这种情况会大大的帮助我们灭共。
 
-校对编辑：硫酸羟氯喹64
+编辑：东京樱花团/墨然
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-1.jpg)
 
-发稿：苦尽甜来 (文來）
-
-[原文链接](https://torontosun.com/opinion/lilley-trudeaus-refusal-to-fund-health-care-leads-to-covid-restrictions-today)
 
  
 

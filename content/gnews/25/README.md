@@ -2,46 +2,20 @@
 ---
 
 
-## 全球最大邮轮48人感染其中47人已完整接种疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1780870/)
+## 秘翻在线：中共鼓吹国产芯片要替代英特尔
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1780931/)
 
-作者：东京樱花团—在远方
+**撰稿：葛大饼**
 
+**责编：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screenshot-2021-12-22-233034.jpg)图片来源：知乎
+根据2021年12月22日新浪报道， 英特尔在给供应商写的一封信中称：“英特尔需要确保我们的供应链不使用任何来自新疆地区的劳工、采购产品或服务。 “
 
+新闻称英特尔一次又一次把自己陷入舆论争议，是一种“自杀式营销”，英特尔从中共国获得的收入已经越来越少，并且近年来在技术上停滞不前， 英特尔行业的地位在不断下降 ， 国产CPU或将成为这场竞争中值得关注的参与者，庞大的市场空间也会给国产替代创造有利的环境。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+英特尔不惧中共的勇气值得称赞！资本不看好中共国市场，越来越多的投资撤离中共国， 一个随时面临脆断的政权，一个不安全的环境怎么能够让投资者安心？明明是人家看不上你，断供，硬是嘴硬往自己脸上贴金，国产芯片真那么牛啊，别光说不干，扎扎实实做出来让全世界看看！
 
-
-
-台湾媒体12月21日报道，全球最大邮轮“海洋交响号”在航行中有48名游客确诊中共病毒，但是其中47人已经完整接种过疫苗。
-
-据悉，该邮轮共有6091名乘客及船员，目前正在加勒比海进行为期一周的航行。其中一名游客在航行期间确诊后，邮轮方面开始进行大范围筛检。
-
-资料显示，该邮轮上有95%的乘客已经完整接种了疫苗，而在确诊的48位游客中，则有98%即47人已经接受了完整接种，但是仍然没有起到任何防护作用。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1.1-11.jpg)
-参考链接：
-[世界最大郵輪爆48人染新冠 98％確診者完整接種疫苗](https://www.chinatimes.com/realtimenews/20211221001337-260408?chdtv)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+**[新闻来源](https://news.sina.cn/gn/2021-12-22/detail-ikyakumx5667701.d.html?sinawapsharesource=newsapp&amp;wm=3200_0024)**
 
 
 
