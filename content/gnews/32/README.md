@@ -2,47 +2,32 @@
 ---
 
 
-## 疫苗政策严苛的美国蓝州感染率激增
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1778450/)
+## 中共国冬奥会前的荒唐作秀
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1778508/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+作者：银河勇气星 – 骄子
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+郭先生在12月19日的直播中谈及中共国冬奥会准备情况时指出，这是一场荒唐的洗脑表演。为此，中共竟然不惜劳民伤财的动用了至少5千万人。 郭先生表示，中共歪曲事实的宣传表演的目的之一是洗脑民众，并让世界相信一党真正的优越性，然后，在中共国开始进行造神运动。而为了此次表演，中共要求摇摇欲坠的房产企业不能倒下、银行做假账以及各媒体封口。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture14.jpg)
+郭先生说，中共还会利用病毒给世界作一场“精彩”表演。中共已经按语种、性别、国别分配好了参奥运动员的后勤准备，包括隔离区与治疗区。届时，将会有一些参加冬奥会的运动员被要求，根据中共已写好的剧本被感染、被隔离、被治愈。而整个过程，会通过媒体大肆渲染中共在病毒上的治理能力。
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/12/A-6.jpg)courant.com
-《门道专家》今早（12月21日）发文，题目是，“尽管接种了疫苗，纽约每天仍然是有史以来最高的中共病毒感染率——密歇根州、明尼苏达州、佛蒙特州和马里兰州也出现了激增”。
+针对中共荒唐疯狂的表演。郭先生透露，中共正在为下一步打台湾做充足的世界舆论准备。
 
-全文如下：
+参考链接：&lt;a href="https://gtv.org/video/中共国冬奥会前的荒唐作秀
 
-如果沉没的泰坦尼克号（Titanic）的船长在其解体和沉没之前向乘客和船员发表过演讲的话，乔·拜登（Joe Biden）今天关于中共病毒“危机”的演讲应该就有了历史的先例。无论痴呆的乔说什么，新一轮的中共病毒海啸表明疫苗不起作用。
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-是的，我们听说那些已经接种了多种疫苗和加强剂的无脑白痴坚持说，即使再次感染了中共病毒后，这些疫苗还是挽救了他们的生命。目前，中共病毒检测呈阳性的接种疫苗者名单正在按小时增长：
+总编：DM
+编辑：DM
+校对/发稿：Hetangyuese
 
-吉姆·克莱默（Jim Cramer）——左派CNBC大牌主持
-
-科里·布克（Cory Booker）——民主党参议员
-
-伊丽莎白·沃伦（Elizabeth Warren）——民主党参议员、拜登近身工作人员
-
-拉里·霍根（Larry Hogan）——马里兰州州长共和党建制派人物
-
-（笔者再加一个，白宫新闻秘书普萨基）
-
-蓝州纽约以防止中共病毒传播为名，采取了一系列最严厉的侵犯公民权利的措施，目前反馈报告的每日数量，该蓝州已经达到了2020年疫情爆发以来的最高水平。
-
-纽约并不孤单，再加上密歇根、明尼苏达、马里兰州和佛蒙特州，宾夕法尼亚州和马萨诸塞州也在这样做。如果这些州有更多的反疫苗者，那将是另一回事，但事实并非如此。恰恰相反，大量的疫苗接种、口罩强制令和封城等这些严格的措施并没有阻止中共病毒疫情的再次出现。
-
-越来越清楚的是，中共病毒疫苗并不能阻止中共病毒的传播，更糟糕的是，接种疫苗的人没有获得免疫检测还呈阳性，再多的狡辩也无法抹去这一事实。
-
-不幸的泰坦尼克号船长不能假装没有冰山，在冰冷的海水中疯狂颠簸的乘客们知道真相，同样的情况现在也适用于中共病毒疫情。拜登的计划失败了，他关于更多疫苗的口头禅被揭露为欺诈，有人向你保证，如果你打了针，可怕的中共病毒就会消失。事实证明这不是真的。带上救生艇，孩子们。
-
-（原文完）
-
-给作者点赞，病毒是冰块，疫苗是冰山，完全接种再加上加强剂就是加速向冰山上去撞。怎么就是唤不醒这帮政客？活生生的现实，疫苗不仅没有遏制住病毒，反而因为疫苗越打疫情越高发，这已经不是个案，而是数个州的实际情形。拜登还在骗，政府仍在欺。再呐喊一声“带上救生艇，孩子们”——那就是拒绝毒疫苗！
-
-原文链接：
-
-[https://www.thegatewaypundit.com/2021/12/despite-vaccinated-new-york-hits-highest-daily-covid-infection-ever/](https://www.thegatewaypundit.com/2021/12/despite-vaccinated-new-york-hits-highest-daily-covid-infection-ever/)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
