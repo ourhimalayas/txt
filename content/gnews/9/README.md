@@ -2,15 +2,14 @@
 ---
 
 
-## 【文贵先生大直播PPT】中共媒体对爆料革命的超限战
-` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1781346/)
+## 【文贵先生大直播PPT】抵制冬奥 彭帅被迫澄清
+` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1781407/)
 
-撰稿：见证人-文剑（伊甸）
-指导：北评（英喜）
-美工：青山（英喜）
+撰稿：顽童（香草山）
+美工：嘿虎，雷蒙（雅典娜）
 
-【2021年12月22日文贵先生大直播PPT：中共媒体对爆料革命的超限战】
-![](https://assets.gnews.org/wp-content/uploads/2021/12/31-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/32-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/33-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/34-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/35-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/36-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/37-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/38-2.jpg)
+【2021年12月22日文贵先生大直播PPT：抵制冬奥 彭帅被迫澄清】
+![](https://assets.gnews.org/wp-content/uploads/2021/12/41-9.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/42-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/43-7.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/44-9.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/45-8.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/46-6.jpg)
 * * *
 
 发稿：云起时
