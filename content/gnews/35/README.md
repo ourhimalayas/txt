@@ -2,33 +2,29 @@
 ---
 
 
-## 华夏幸福累计未偿还债务1078.05亿
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1778915/)
+## 科研践踏犯罪行为：半途终止中共病毒 药物瑞德西韦的研究，然后调整以歪曲结果
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1778939/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/122110-1.jpg)图片：网络资源
-编辑摘要：
+编译： 真北007
+![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕截图-2021-12-21-190728.png)图片来源：网络
+来自REDVOICE MEDIA星期一12月20日的新闻报道：
 
-据《观点地产新媒体》12月21 日报道，华夏幸福基业股份有限公司发布公告称，近期公司及下属子公司新增未能如期偿还银行贷款、信托贷款等形式的债务本息金额67.87亿元。截至本公告披露日，该公司累计未能如期偿还债务本息合计1078.05亿元。
+瑞德西韦Remdesivir：福奇Fauci 知道它是有毒的且杀死了人，但无论如何还推广它。
 
-中共跌倒的房地产是再也爬不起来了，华夏幸福再重组，也不可能再现昔日的辉煌。虚假的房地产市场已经过去了，还是面对现实吧。
+在谈到 COVID-19 以及美国对病毒的反应时，一名男子已将自己置于整个大流行的最前沿。作为乔·拜登总统的首席医疗顾问，安东尼·福奇博士持续推动几个月后采取了不同立场的议程和讲述。随着他不道德的过去受到质疑，许多人开始调查 这个COVID-19 背后的人以及继续给全国带来灾难的疫苗强制令。
 
-新闻参考链接：[华夏幸福新增未能如期偿还债务67.87亿 累计未偿还债务1078.05亿](https://c.m.163.com/news/a/GRP0JNOJ0519D45U.html?spss=newsapp)
+在原文的视频中，Paul Maik 博士在田纳西州纳什维尔举行的 COVID 峰会上发表讲话，当时他提出了一种用于治疗埃博拉患者的名为 Remdesivir 的药物的研究过程。 2019 年 12 月 12 日，在宣布 COVID-19 的同时，《新英格兰医学杂志》发表了研究结果，即瑞德西韦是一种有毒药物，会导致患者死亡并增加肾功能衰竭的风险。根据迈克的说法，福奇博士知道这一点，但他甚至在所有数据汇编之前就将其推广为 COVID-19 的治疗方法。
 
-*编辑：胖丁*
+Maik 继续补充说：“在研究进行到一半时，他们进行了中期分析，发现该研究不会有好的结果。因此，他们在研究进行到一半时改变了目标，即球门。这正是科学不端行为。”
 
-* * *
+**点评：**文贵先生也及时告诉过世界，瑞德西韦也是一种杀人武器，中共病毒背后的人，为了利益任何邪恶的事情都干得出来!
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+原文链接：[https://www.redvoicemedia.com/2021/12/scientific-misconduct-study-on-covid-drug-halted-then-adjusted-to-skew-results-video/](https://www.redvoicemedia.com/2021/12/scientific-misconduct-study-on-covid-drug-halted-then-adjusted-to-skew-results-video/)
 
+编辑/发布：LILY
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+20211221
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

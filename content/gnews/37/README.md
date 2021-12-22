@@ -2,39 +2,38 @@
 ---
 
 
-## 有声|中共国富力地产预告自己将暴雷
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1778867/)
+## 日本机构警告来自中共国的经济安全威胁
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1778907/)
 
-配音：香草山香港部 – 文凯琳
+据《The News Motion》作者：Kathy Acker，2021年12月19报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1145.png)图片源自：thenewsmotion.com
+东京：日本公共安全情报局警告，警惕中共国的经济安全威胁，称其尝试获取军事技术，并招募人才。
+
+该机构周五在年度报告中指出：“人们担心中共国将继续致力于收购（日本）公司和招募具有先进专业知识的人力资源。”
+
+报告称，已有中共国公司投资半导体领域和其他领域或试图收购日本公司。
+报告还指出，日本研究人员正在参与中共国的“千人计划”。中共国以丰厚的资金从海外招募优秀人才。
+
+该机构在报告中透露，已经发生系列旨在窃取日本公司机密信息的网络攻击事件。报告指，网络攻击在日本和国外变得越来越普遍和复杂。
+
+该机构呼吁对一些国家参与或支持网络攻击保持警惕，并特别提到中国、俄罗斯和朝鲜。它补充认为，网络攻击的威胁正变得越来越严重。
+
+关于邻国的情况，该机构分析认为，因应对新型冠状病毒传播，朝鲜长期关闭边境，正面临着粮食价格飙升和供给短缺。
+
+报告称，中共党魁习近平预计将进一步加强对经济和社会的控制，以确保明年北京冬奥会和中共党代会召开前的国内稳定。
+
+原文连接：[https://thenewsmotion.com/japan-agency-warns-of-economic-security-threats-from-china%EF%BD%9Carab-news-japan/](https://thenewsmotion.com/japan-agency-warns-of-economic-security-threats-from-china%EF%BD%9Carab-news-japan/)
+
+翻译：洛杉矶盘古农场 – TrueSky
+校对：洛杉矶盘古农场 – Mike Li 
+编辑：洛杉矶盘古农场 – WenXiong
+发布 ：洛杉矶盘古农场 – Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-12月15日下午，中共国富力地产发布一则公告。公告称：富力总额7.25亿美元的美元票据，将于2022年1月13日到期，拟以折价方式回购。折价回购方式有两种方案：一是以原定价格兑现所持票据的50%，剩余50%延期半年；二是相当于原来价格的83%全部兑现。另外，富力地产恳请票据持有人同意其将票据展期半年至明年7月13日。
-
-富力地产坦言，若无法与票据持有人达成共识，公司将有可能无法将明年1月13日到期的票据，全额按合约履行偿还承诺。另外，富力还将视情况为该两种回购方式，调整偿付的最高金额。就是说，票据持有人可能连回购方案的约定的金额都拿不到，市场将富力此举称为预告式暴雷。
-
-富力地产的回购方案被标普视作不良债务重组，因此在交易完成后，标普可能将其评估为“等同于违约”。标普全球评级随即宣布将富力地产及富力香港的长期发行人信用评级从“B-”下调至“CC”，展望均为“负面”。
-
-文贵先生多次在直播中说，中共国的地产是一场人类有史以来最大的庞氏骗局，中国老百姓被骗尽家财。另一方面，西方华尔街多年来不断向中共输血，其中包括很多西方退休基金。西方“精英”和中共盗国贼合伙偷盗转移巨额资产，留下的只有泡沫。但凡参与了这场旁氏骗局，只要没有及早离场，登上暴力革命诺亚方舟的。即将到来的中共国房地产崩盘，金融崩盘，没有一个能幸免于难，不为此付出巨大的代价。
-
-文字版原文：[中共国富力地产预告自己将暴雷](https://gnews.org/zh-hans/1771977/)
-
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

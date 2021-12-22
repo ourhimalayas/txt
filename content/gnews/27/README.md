@@ -2,117 +2,37 @@
 ---
 
 
-## 强制疫苗一定会在两个月内被停止
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1778992/)
+## 篮网队凯文·杜兰特触发“健康安全协议”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1778996/)
 
-[https://gtv.org/video/id=61c2014b43ccb726a0897599](https://gtv.org/video/id=61c2014b43ccb726a0897599)
+据《Newsmax》作者：Charles Kim，2021年12月18日发布：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1147.png)2021年12月16日在纽约市巴克莱中心的比赛中，布鲁克林篮网队7号凯文•杜兰特运球对抗费城76人队31号塞斯‧柯瑞(Al Bello/ 盖蒂图片)
+根据体育记者在推特的贴文，布鲁克林篮网队球星凯文•杜兰特周六成为第九位触发NBA“健康安全协议”的队员，而未接种新冠疫苗的球星凯里·厄文将继续等待回归。
 
-**郭文贵**
-**Miles Guo**
+ESPN的阿德里安·沃纳罗斯基周六在他的帖子中表示：“篮网队球星凯文•杜兰特触发联盟新冠协议，成为该队第八名触发协议的球员。”
 
-打了一针、两针、三针的得病毒的机会更多
-Ones that have already received one shot, two shots, or three shots would have a bigger chance to get the virus infection
+根据记者克莱·特拉维斯的说法，杜兰特在COVID-19检测呈阳性后触发了协议。
 
-为什么就刚才我说那个
-Why? It’s because of what I have just said earlier
+消息传来时，篮网队预计厄文将上场比赛。球队周五表示，如果厄文接受新冠测试，他将可以参加客场比赛。
 
-它本身身体就有病毒
-(The vaccine) itself puts a virus inside your body
+29岁的厄文不允许在主场比赛中出场，因为纽约市强制要求球员必须接种新冠疫苗。路透社报道，由于安大略省的规定，他也不能参加对纽约尼克斯队的客场比赛，以及在多伦多的比赛。
 
-它本身就繁殖病毒
-(The vaccine) itself reproduces the virus
+为了满足协议要求，他必须每天接受新冠测试才能参加客场比赛，但仍可与球队一起练习。
 
-它本身会加剧你的病毒反应
-(The vaccine) itself will exacerbate your viral response
+篮网队总经理西恩·马克斯周五在一份声明中对路透社表示：“在与我们的教练、球员和工作人员讨论后，团队决定让凯里•厄文重新加入球队，参加他有资格参加的比赛和训练。受球员全力支持，并仔细考虑现况后，我们做出了这个决定，包括球员因伤缺席比赛以及健康安全协议这些因素。”
 
-这是灾难的结果
-This is a disaster
+路透社称明星后卫詹姆斯·哈登也因触发健康协议而缺席。
 
-但是人类永远是墓碑文明和墓碑科技
-But human beings will always be a tombstone civilization and technology
+厄文是七次全明星球员，上赛季为篮网队参加了54场常规赛，平均得到26.9分，6.0次助攻和4.8个篮板。
 
-必须掉N多架
-it must be crashed many planes
+他下一次有资格在12月23日的客场比赛中出场，届时战绩为21-8的篮网队将与波特兰拓荒者队进行本赛季第三场比赛。
 
-一个飞机没有掉几架以后是不可能批准你这个飞机上天飞的
-It’s impossible to get approval for flying into the sky if a plane has not crashed a few
+文章来源: [https://www.newsmax.com/newsfront/nba-nets-covid-durant/2021/12/18/id/1049208/](https://www.newsmax.com/newsfront/nba-nets-covid-durant/2021/12/18/id/1049208/)
 
-绝不可能, 几乎不可能
-It’s absolutely impossible, almost impossible
-
-人类的汽车文明都是墓碑科技
-Human vehicle civilization is tombstone technology
-
-文明就是墓碑文明
-and the civilization is a tombstone civilization
-
-解决这次病毒和疫苗灾难就是一种墓碑增加以后的结果
-Solving this virus and vaccine disaster is a result of the fact that after increasing a tombstone
-
-这就是现在的认知
-This is the current perception
-
-所以说现在你看到那个疯狂的时候
-So now the time when you see that insaneness
-
-他会逼迫更多保护孩子、保护自己的饭碗和生存
-it will force more people to protect their children, protect their jobs, and survive
-
-然后保护兄弟姐妹、家人
-and then to protect their brothers and sisters, and other family members
-
-只有新中国联邦是保护我们这些素不相识的兄弟姐妹
-Only the New Federal State of China will protect our brothers and sisters who have never met
-
-唯一一个群体，无私无已的，唯一的
-The only organization that is selfless, the only one
-
-另外一个打疫苗的反应
-The other is the response to the vaccine
-
-一定记住，8个月、12个月、16个月或者是10个月、12个月
-Remember, it would be 8 -12 – 16 months or 10 – 12 months
-
-它的整个的爆发和被认知确实来自疫苗
-The entire outbreak and acknowledgment of the vaccine consequence did indeed come from the vaccine
-
-一定是在今年圣诞节之后逐渐开始
-It will definitely start gradually after Christmas this year
-
-今年年底我说疫苗是到了最最开始的灾难
-I said that the end of this year would be the very beginning of the vaccine disaster
-
-大家看到了，从10月、11月、12月，逐渐比我们预期还坏
-You may all see that it has been gradually worse than we expected month by month
-
-强制疫苗一定会在两个月，不会超过（这个时间）一定会被停止
-The mandatory vaccine will definitely be stopped within two months, no longer than two months
-
-这种杀掠，而且这次杀掠
-This kind of killing and looting and this time
-
-疫苗杀害的绝对都是怕死的、没有信仰的、有钱的、有权的、有名的
-The victims of the vaccines must be those who are afraid of death, have no faith, rich, powerful, and famous
-
-肯定是这些人
-It must be these people
-
-**原视频链接:** [https://gettr.com/post/pk2isx04af](https://gettr.com/post/pk2isx04af)
-
-Date: 12/18/2021
-原视频标题: 强制疫苗一定会在两个月内被停止
-The Vaccines Mandates Would Definitely be Stopped Within Two Months
-原视频日期：2021/12/17
-原视频链接: https://gettr.com/post/pk2isx04af
-任务编号：KC356(3281)
-视频时间段 : 0:00-1:39
-
-英听校: 洛杉矶盘古农场 – 郭班之樱
-翻译: 洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 -Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
+翻译：洛杉矶盘古农场 – KY
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – WenXiong
+发布 ：洛杉矶盘古农场 – Kevin37L
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
