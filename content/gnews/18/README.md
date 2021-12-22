@@ -2,49 +2,42 @@
 ---
 
 
-## 加拿大警察辞职认为疫苗强制等同于大屠杀
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/1779201/)
+## 人类正身处CPI归零的网络战数字战货币战生化战疫苗战
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1779255/)
 
-加拿大扬帆农场 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2021/12/December-WS-Regular-Graphics-27.jpg)图片来源：The Western Standard
-根据《卡尔加里先驱报》(Calgary Herald) 12月21 日报道，一名警察将COVID-19疫苗强制与纳粹种族灭绝相提并论，并且已经从卡尔加里警察局辞职。
+**郭文贵先生：**从过去的西班牙王国、葡萄牙王国，包括罗马帝国，包括我们中国的袁大头、大清朝券，所有的什么、所有的货币你可以看到，每个国家、每种货币，就是说确定你为Eric的面包多少钱的时候，用啥来衡量的时候，一定是更朝换代，尸骨遍野，永远是。
 
-前警员布莱恩-丹尼森（Brian Denison）曾是该局仇恨犯罪部门的成员，他说他在上个月被停薪留职并被告知不能公开谈论该市的一项政策，该政策规定没有完全接种疫苗的警官必须提交定期测试结果，之后他就退出了警队。
+这次是所有的定价权，就是CPI要回到零，现在已经不是100了，现在已经达到10万去了，大家看到已经达到4万了，CPI100现在已经达到4万到5万了。就是过去订面包是一块钱，实际上现在就是5万块钱，你就这么简单，它很吓人的，它只有砸回来，砸回来拿什么来量呢？那谁决定算呢？那就是枪、刀，死人，那是一定你看到这些币都不会存在，一定是的，在这个战争再死的话，就全人类就完了。我告诉大家从去年到今天，我们人类就在这场战争中，互联网。
 
-丹尼森周六在市中心的反Covid疫苗集会上说：”我递交了辞呈，因为我不能遵守他们的做法……他们的命令是错误的，不要听他们的”。
+包括现在在讲现在是不是在第三次世界大战中、网络战中、金融战中和超限战中，大家我告诉你，百分之百人类已经一年了在这种网络战、数字战、货币战和病毒生化武器战争中，然后疫苗战。这几个战同时发生在人类上前所没有的。
 
-CPS周一确认丹尼森不再受雇于警察部门。
+那么现在可以说网络战的最核心是什么？数字货币，情报都是放第二位的，数字货币是第一战，谁都想拿数字货币定价权，谁都想拿数字货币的发行权和监管权。
 
-丹尼森在CPS工作了22年，他呼吁其他官员也这样做。他说：”让我说清楚CPS并不拥有你，政府不拥有你，他们不能告诉你在你的身体里注射了什么”，他告诉欢呼的人群。
+字幕来源：[2021年12月19日郭文贵先生大直播全文字版（上）](https://gnews.org/zh-hans/1773363/) ；
 
-在他9月底穿制服时录制的一段视频中，他说社会对未接种疫苗者的排斥不断扩大，正走向纳粹德国在20世纪30年代所走的类似道路。
+字幕文件制作：小满；
 
-他继续说道：”那些接种了疫苗的人，其中很多人，看不起我们这些没有接种疫苗的人，这很容易让人联想到希特勒对犹太人进行的世界大战”。
+视频制作及上传：Cindy；
 
-1933年至1945年，纳粹政权杀害了600万犹太人和数百万其他人，包括同性恋者、罗姆人、左派政治反对派和苏联战俘。
+G-News发布：黎明之前；
 
-周六，丹尼森说，”加拿大政府的COVID-19疫苗强制政策表明其相关性是存在的，历史上发生的事情正在再次发生”。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的短视频发布频道**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-这位前警察说他永远不会接受实验性的COVID-19疫苗。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-CPS说其93%的员工现在已经完全接种了疫苗。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-本月早些时候，CPS局长Mark Neufeld坚持认为如果该部门不为其成员提供免费的COVID-19测试，就会面临人员短缺的挑战。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-12月1日是警员提供已完全接种疫苗证明或开始自费从授权供应商处接受定期COVID测试的最后期限。
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-原文链接：
-https://calgaryherald.com/news/local-news/anti-vaxx-police-officer-who-compares-vaccine-mandates-to-holocaust-resigns
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-* * *
-
-发稿 Spirit
-
-
-
-通过www.DeepL.com/Translator（免费版）翻译
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

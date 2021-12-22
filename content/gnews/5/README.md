@@ -2,26 +2,41 @@
 ---
 
 
-## 以色列将起诉向中共出口巡航导弹的公司和个人
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1779320/)
+## 泽连科医生号召人们形成新社群对抗全球主义
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1779382/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1154.png)[图片来源](https://www.israelhayom.com/2021/12/21/israeli-defense-firms-suspected-of-illegally-exporting-missiles-to-china/)
-据德国之声中文网12月21日报道，以色列政府将起诉3家本土公司以及10名公民，指控他们在没有获得国家许可的情况下，向中共出口巡航导弹。
+作者：东京樱花团—在远方
 
-本周一（12月20日），以色列检察院经济司已向嫌疑人下达了公诉通知。其中理由包括：破坏国家安全、违反武器法、违反军备出口控制法以及洗钱等罪状。
 
-报导称，这几家公司及个人制造了数十枚巡航导弹，并在以色列本土对它们进行测试。之后，导弹在进行伪装后交送中方。今年2月，以色列情报局最早注意到并开始调查该案。在以色列-中共弹道导弹生意中，扮演中心角色的是以色列太阳天空公司(Solar Sky company)老板梅纳舍(Ephraim Menashe),他的公司不仅是弹道导弹的制造商之一,他本人牵线多家中共国公司参与购买弹道导弹。
 
-该报报导，上世纪九十年代后期至本世纪初，美国曾多次要求以色列取消向中共国出售费尔康空中早期预警雷达系统（Phalcon airborne early detection radar systems）以及攻击雷达系统的哈比无人机（Harpy drones），以色列最后听从了美国的要求。从那以后，没有华盛顿的点头，以色列再也没有向中国出售过高端武器。2006年，以色列国防部设立了专门的军备出口控制局，规范以色列本土国防器械的出口事宜。在与国外公司成交之前，相关以色列公司必须向该局提交申请，获批后才能向海外出口军备以及相关的技术。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-16.jpg)
 
-报导指出，以色列军火出口业十分强大，提供近20万人的就业机会，这还不包括为它们提供软件、硬件、原材料等服务领域的人数。对其实施监控的军备出口控制局，工作方式并不透明，它的目标是确保以色列武器不被敌对国家购置、从而反过来对以色列构成威胁。
 
-信息来源：[以色列媒體：將起訴向中國出口巡航導彈的公司和個人](https://www.dw.com/zh/%E4%BB%A5%E8%89%B2%E5%88%97%E5%AA%92%E4%BD%93%E5%B0%86%E8%B5%B7%E8%AF%89%E5%90%91%E4%B8%AD%E5%9B%BD%E5%87%BA%E5%8F%A3%E5%B7%A1%E8%88%AA%E5%AF%BC%E5%BC%B9%E7%9A%84%E5%85%AC%E5%8F%B8%E5%92%8C%E4%B8%AA%E4%BA%BA/a-60212728?zhongwen=trad&amp;m)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
+盖特12月18日消息，近日泽连科医生在采访中表示，人们应当脱离暴政体系，形成新社群来对抗全球主义。
+
+泽连科医生说，像比尔.盖茨这种社会变态者，他们对人类有绝对的仇恨，不去审视自己、正视问题和承担责任，不去成长并发挥最大的潜力，而是总想毁掉比自己优秀的人，并憎恨上帝制造人类的事实。
+
+目前医疗系统正在压制羟氯喹，并将伊维菌素制成药丸，而这些正是泽连科医生最初所发现的，可以治疗中共病毒的有效药物，但却反被媒体攻击并将其妖魔化。泽连科医生表示，目前邪恶势力几乎控制了世界，而我们应当意识到人类是有主人的，我们应当形成新的社群派系，推行平民主义，每个人都连接到互联网的源头，而全球主义者的阴谋注定会失败。
+
+新闻链接：[https://gettr.com/post/pjyp6ad4f1](https://gettr.com/post/pjyp6ad4f1)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-304.jpeg)
+
+编辑/校对/发稿：滚滚长江都是水
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

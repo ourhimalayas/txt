@@ -2,39 +2,176 @@
 ---
 
 
-## 有声|中共国富力地产预告自己将暴雷
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1778867/)
+## 中共早年就提出生物武器疫苗化，灭美是公开的信息
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1778952/)
 
-配音：香草山香港部 – 文凯琳
+[https://gtv.org/video/id=61c1cb8043ccb726a0895c46](https://gtv.org/video/id=61c1cb8043ccb726a0895c46)
 
+另外一个我想跟你说
+Lo otro que te quiero decir
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-12月15日下午，中共国富力地产发布一则公告。公告称：富力总额7.25亿美元的美元票据，将于2022年1月13日到期，拟以折价方式回购。折价回购方式有两种方案：一是以原定价格兑现所持票据的50%，剩余50%延期半年；二是相当于原来价格的83%全部兑现。另外，富力地产恳请票据持有人同意其将票据展期半年至明年7月13日。
+现在政府是不是会放松阿
+¿ Se relajará el gobierno ahora?
 
-富力地产坦言，若无法与票据持有人达成共识，公司将有可能无法将明年1月13日到期的票据，全额按合约履行偿还承诺。另外，富力还将视情况为该两种回购方式，调整偿付的最高金额。就是说，票据持有人可能连回购方案的约定的金额都拿不到，市场将富力此举称为预告式暴雷。
+是不是给你缓期啊
+Te está prolongando la fecha, cierto
 
-富力地产的回购方案被标普视作不良债务重组，因此在交易完成后，标普可能将其评估为“等同于违约”。标普全球评级随即宣布将富力地产及富力香港的长期发行人信用评级从“B-”下调至“CC”，展望均为“负面”。
+而且未来是什么样
+Y cómo será el futuro
 
-文贵先生多次在直播中说，中共国的地产是一场人类有史以来最大的庞氏骗局，中国老百姓被骗尽家财。另一方面，西方华尔街多年来不断向中共输血，其中包括很多西方退休基金。西方“精英”和中共盗国贼合伙偷盗转移巨额资产，留下的只有泡沫。但凡参与了这场旁氏骗局，只要没有及早离场，登上暴力革命诺亚方舟的。即将到来的中共国房地产崩盘，金融崩盘，没有一个能幸免于难，不为此付出巨大的代价。
+咱们要这么想问题
+Debemos pensar este problema
 
-文字版原文：[中共国富力地产预告自己将暴雷](https://gnews.org/zh-hans/1771977/)
+肯定核心的核心
+Seguramente es el núcleo de los núcleos
 
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
-**更多资讯，更多关注**
+共产党就是最后的黑手
+El Partido Comunista es la última mano negra
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+我在重申一遍
+Repito de nuevo
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+我从九几年跟共产党的情报部门在一起
+Desde el año 1900 y algo estuve en el Departamento de Inteligencia del Partido Comunista
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+包括二部, 三部, 什么安全部
+Incluyendo el 2do y el 3er departamento, que si Departamento de Seguridad
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+你们都看到了
+Todo ustedes vieron
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+也就我那个年龄, 你也能知道
+A mi edad de aquel entonces, también lo puedes saber
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+又是一个草根的中国人
+Siendo un chino en posición básica
+
+能和他们平起平坐
+Poder sentarse en píe de igualdad con ellos
+
+被他们绝对(信任)
+Y ser absolutamente (confiado) por ellos
+
+就像当时的二部的部长对我都
+Así como en aquel momento, el ministro del segundo departamento me trató
+
+一介绍, 这是我老板啊
+Cuando me presentan a otras personas, decía: “este es mi jefe”
+
+都介绍到这个程度了
+Ha llegado a este nivel de presentación
+
+(共产党)那个时候就在想着怎么灭美国
+(El PCCh) en aquel tiempo estaba pensando cómo eliminar a EE. UU
+
+怎么灭白人
+Cómo eliminar a los blancos
+
+这并不是什么秘密
+Esto no es un secreto
+
+而且最后的研究就是觉得生化武器, 化学武器是最好的办法
+Y el estudio final es pensar que las arma bioquímicas y químicas son la mejor manera
+
+然后研究怎么杀白人, 杀美国人, 干掉美国成本最低
+E investigar cómo matar a los blancos, estadounidenses, ver el costo más bajo para matar a EE. UU
+
+然后怎么弄
+Luego cómo hacer
+
+就是生化武器一定是把它疫苗化
+Las armas bioquímicas deben enlazarse con la vacunación
+
+你看这个都是多少年前的事了
+Mira de hace cuántos años pasaron estos asuntos
+
+化学武器要把它大规模化
+Las armas químicas deben hacerlo a gran escala
+
+因为化学武器杀人是只能一点一点儿的
+Porque matar a las personas a través de estas armas debe ser poco a poco
+
+他们当时就研究纽约呀, 洛杉矶呀
+En aquel momento, ellos investigaron a New York, Los Ángeles
+
+美国的水源呀, 都研究, 包刮风向
+El origen del agua de EE. UU, estudiaban de todo, incluyendo la dirección del viento
+
+就是美国人, 他不会想到有中共国
+Son los estadounidenses, no pensaría en el PCCh
+
+我对你那么好
+Yo te trato tan bien
+
+我帮你把GDP从几千亿美元升到1.3万亿美元
+Te ayudé a aumentar el PIB de cientos de miles de millones de dólares a 1.3 billones de dólares
+
+再变成15万亿美元, 最后你要杀我
+Se convierte en otros 15 billones de dólares, y finalmente me vas a matar
+
+它是没有想到的
+Él nunca lo había pensado
+
+还根本原因还是美国人贪婪, 华尔街贪
+Y la razón original es por la avaricia de los estadounidenses y el Wall Street
+
+(中共)给他那么多钱
+(PCCh) le dió tanto dinero
+
+根本原因还是美国人干的
+El motivo original es hecho por los estadounidenses
+
+而且这个病毒就是美国人研发的冠状病毒
+Y este virus es el coronavirus desarrollado por los estadounidenses
+
+还给了中国共产党
+Hasta se lo devolvió al PCCh
+
+这一定要想到一个问题
+Esto debe pensar un problema
+
+没有病毒, 没有疫苗
+No hay virus ni vacunas
+
+想杀世界的人一定是中共
+La persona quien quiere matar al mundo es el PCCh
+
+中共在西方各国家无非是用威胁蓝金黄
+Ellos en cada país occidental amenazaban con el plan ADA (BGY)
+
+绑架了这些人而已
+Para secuestrar a estas personas nada más
+
+大家一定要记住这几个观点
+Todos deben recordar este punto de vista
+
+很多西方国家是文明和科学建立的国家和城邦
+Muchos países occidentales son países y ciudades-estado establecidos por la civilización y la ciencia
+
+你让他否定科学是很难的
+Si quieres que rechace la ciencia eso es muy difícil
+
+**原视频网址：**[https://gettr.com/post/pjtnin1198](https://gettr.com/post/pjtnin1198)
+
+日期：12/20/2021
+原视频标题：中共早年就提出生物武器疫苗化，灭美是公开的信息
+El PCCh propuso la vacunación de armas biológicas en los primeros años, y la eliminación de Estados Unidos es información pública
+
+原视频日期：12/16/2021
+**原视频网址：** https://gettr.com/post/pjtnin1198
+任务编号：3255
+视频时间段：0:00-02:15
+
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 -天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

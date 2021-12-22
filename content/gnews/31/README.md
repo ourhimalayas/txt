@@ -2,36 +2,36 @@
 ---
 
 
-## 西安疫情爆发再度封城 医疗体系濒临瘫痪
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1778967/)
+## 澳洲对医药卫生人员的疫苗强制令扩展到基层保健人员
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1779020/)
 
-作者：纽约香草山教育部 – Noemi
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-中共官方12月20日发布消息指，陕西省西安市因近期出现大量新冠及出血热感染病例，需要再度封城。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-113.png)图片来源：thewest.com.au
+翻译整理：枳实
 
-目前西安市有1个高风险地区和13个中风险地区，主要出城公路均已封闭，所有学校全面停课，市民上班必须持有48小时内核酸阴性报告。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture14-2.jpg)
-另外，当地不少医院因疫情停诊，医疗系统濒临瘫痪，对基础病患者造成极大的影响，有媒体报导，发现不少尿毒症患者已经连续4天不能去医院透析，生命健康面临重大挑战。有医护人员表示，为了确保医院自身的安全及正常运作，对于来自中高风险地区的患者确实存在接收困难的问题。
+2021年12月16日，澳洲新南威尔士州卫生厅发布新闻稿，强制性疫苗接种要求将扩大到新南威尔士州的所有初级保健和其他私营部门的卫生服务提供者，这些工作人员必须在2022年1月31日前接种两剂COVID-19疫苗。
 
-虽然，目前受困患者据报已得到救治，但相关人员认为，西安整个医疗系统实际上已经瘫痪，这个根本性问题远没有得到解决。
+澳大利亚其它州也有类似的强制令，包括维多利亚、昆士兰和西澳大利亚州。
 
-参考链接：
-1. [西安疫情爆发再度封城 医疗体系濒临瘫痪](https://www.epochtimes.com/gb/21/12/20/n13448903.htm)
-2. [西安疫情爆发再度封城 医疗体系濒临瘫痪](https://www.exmoo.com/article/189761.html)
+新南威尔士州卫生厅今年早些时候对其管辖下的医护人员，包括公立医院和私立医院的医护人员实行了强制性疫苗接种。
 
-![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+修订后的《公共卫生令》将保留现有的强制疫苗措施，它还将把强制疫苗接种的范围扩大到在私人和社区环境中工作的卫生从业人员，如全科医生、护士和药剂师、语言病理学家、营养师和自然疗法师。它还将涵盖在这些诊所工作的辅助人员。
 
-总编：天滅中共
-编辑：天滅中共
-校对/发稿：Hetangyuese
+雇主有义务采取合理措施确保工人遵守这些疫苗接种要求，工人也有义务提供疫苗接种的证据。工人将不能在这些场所工作，除非他们已接种疫苗或有医生证明的医疗禁忌。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+新南威尔士州卫生厅将在改革开始前与主要的医疗和健康利益相关者进行协商。
+
+这些措施如果实施，将导致新州所有卫生从业人员，包括独立开业的药剂师，营养师，物理治疗师等无一幸免，若要继续工作，都将被迫接受基因治疗类型的所谓“疫苗“注射。
+
+参考链接：[Vaccination order extended to primary care and private sector health service providers](https://www.health.nsw.gov.au/news/Pages/20211216_01.aspx)
+
+发布：Peter Xin
+
+**更多****资讯****，****请关****注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

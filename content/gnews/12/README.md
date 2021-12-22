@@ -2,33 +2,30 @@
 ---
 
 
-## 制造环测达标假象 河北某地禁柴封灶致当地民众无法取暖
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1779267/)
+## 美国国际宗教自由委员会谴责中共追加制裁其成员
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1779303/)
 
-作者：纽约香草山 – 飞虹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-中共媒体12月20日报道，河北省秦皇岛市山海关地区以清洁取暖为由，禁止民众烧柴、烧煤，导致部分群众在寒冷的冬季无法取暖，挨冷受冻。
+![美国国际宗教自由委员会主席梅恩扎接受美国之音记者的采访。](https://gdb.voanews.com/6F952B83-8FF7-41DA-8B62-F31035405AF9_w1023_r1_s.png)*美国国际宗教自由委员会主席梅恩扎接受美国之音记者的采访。*
+据美国之音12月22日报道，美国国际宗教自由委员会强烈谴责中共国政府对其委员会主席、副主席和其他成员追加制裁，强调委员会不会对中共国的人权和宗教自由问题保持沉默。中共国政府今年早些时候已经制裁了委员会前主席和其他两名委员。
 
-报道认为，秦皇岛市近几年开始推广清洁取暖，但并未在全市范围内全面限制燃煤烧柴，之所以在山海关地区进行彻底管控，主要因为该区设有一个大气监测国控点位，如果在该区域放开煤、柴限制，会造成大气监测数据不达标，影响整个地区的环评监测结果。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture15-1.jpg)
-为了数据达标，不影响政绩，当地政府就让民众在寒冷中勉强度日。禁止燃煤之后，政府虽然给受影响住户发放过一些电暖器，但电暖器功率太小，远远达不到基本的采暖标准，另外，政府给予的象征性补贴，也远远弥补不了取暖所需的全部成本。
+委员会主席在声明中说，中共国政府需要停止对维吾尔人、西藏人、基督徒、法轮功等民众的压迫，而不是执行被误导的制裁。委员会称赞拜登总统因中共国对新疆维吾尔人的暴行和侵犯人权而对北京冬奥实施外交制裁。委员会还称赞美国参众两院通过《防止强迫维吾尔人劳动法》，并敦促拜登总统签字成为法律。
 
-参考链接：[制造环测达标假象 河北某地禁柴封灶致当地民众无法取暖](https://gettr.com/post/pk7pss096fa)
+信仰自由、尊重人权，在中共国的所谓宪法中是有明确声明的。只是中共国的宪法是按照制定者的要求可以重新解释的。中共国的人权就是党权，党高于一切。中共国的信仰就是人人相信中国共产党，哪怕他们自己不信，全民洗脑也要相信中国共产党。
 
-![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+新闻参考链接：[https://www.voachinese.com/a/scirf-condemns-china-20211221/6363986.html](https://www.voachinese.com/a/scirf-condemns-china-20211221/6363986.html)
 
-总编：天灭中共
-编辑：天灭中共
-校对/发稿：Hetangyuese
+编辑：胖丁
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+* * *
 
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
