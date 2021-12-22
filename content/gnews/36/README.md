@@ -2,30 +2,50 @@
 ---
 
 
-## 美国国际宗教自由委员会谴责中共追加制裁其成员
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1779303/)
+## 澳大利亚将核磁共振扫描诊断心肌炎列入医保项目
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1779304/)
 
-![美国国际宗教自由委员会主席梅恩扎接受美国之音记者的采访。](https://gdb.voanews.com/6F952B83-8FF7-41DA-8B62-F31035405AF9_w1023_r1_s.png)*美国国际宗教自由委员会主席梅恩扎接受美国之音记者的采访。*
-据美国之音12月22日报道，美国国际宗教自由委员会强烈谴责中共国政府对其委员会主席、副主席和其他成员追加制裁，强调委员会不会对中共国的人权和宗教自由问题保持沉默。中共国政府今年早些时候已经制裁了委员会前主席和其他两名委员。
+**【雅典娜快讯】，紧贴时代脉搏**
 
-委员会主席在声明中说，中共国政府需要停止对维吾尔人、西藏人、基督徒、法轮功等民众的压迫，而不是执行被误导的制裁。委员会称赞拜登总统因中共国对新疆维吾尔人的暴行和侵犯人权而对北京冬奥实施外交制裁。委员会还称赞美国参众两院通过《防止强迫维吾尔人劳动法》，并敦促拜登总统签字成为法律。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1153.png)图片来源：NT News
 
-信仰自由、尊重人权，在中共国的所谓宪法中是有明确声明的。只是中共国的宪法是按照制定者的要求可以重新解释的。中共国的人权就是党权，党高于一切。中共国的信仰就是人人相信中国共产党，哪怕他们自己不信，全民洗脑也要相信中国共产党。
+**整理报道：文扬
+编辑：文泓**
 
-新闻参考链接：[https://www.voachinese.com/a/scirf-condemns-china-20211221/6363986.html](https://www.voachinese.com/a/scirf-condemns-china-20211221/6363986.html)
+12月21日，据本地媒体报道，明年开始，澳大利亚人核磁共振扫描心脏将获得政府补贴，以协助诊断由新冠病毒疫苗引起的炎症性心脏疾病。
 
-编辑：胖丁
+上周五，联邦卫生局悄悄地更新了医疗保险福利计划（MBS）在线网站，宣布从2022年1月1日到2022年6月30日在社保（Medicare）福利表中增加新的临时项目。
 
-* * *
+该项目介绍，MBS项目63399正在引入心脏核磁共振（MRI），以协助诊断接种mRNA新冠辉瑞疫苗和莫德纳疫苗后可能引发的心肌炎。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+政府认为该检查项目应该花费的金额为855.20美元。对于院外服务，患者将能够从医保获得最高767.30澳元（85%）的退款，如果服务是在私立医院进行的，则为641.40澳元（75%）。
 
+该项目病人一生中只能申请一次，用于“在使用常规成像技术不能明确诊断心肌炎的情况下”。
 
-编辑：【英国伦敦喜庄园编辑部】
+MBS将这项服务描述为：“心血管系统的MRI扫描，以评估心肌结构和功能，**前提是****这项服务是由评估病人的顾问医生要求的**”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+扫描请求必须说明“**患者在接受mRNA****新冠****疫苗后疑似心肌炎”、“患者在接种mRNA****新冠****疫苗后21天内出现症状**”，**以及超声心动图、胸部X-射线和肌钙蛋白测试结果“不能确诊心肌炎”**。
+
+情况说明书提示，“准确诊断与mRNA新冠疫苗相关的心肌炎对于澳大利亚新冠疫苗接种计划的持续管理至关重要，包括推出mRNA加强剂量，以及将 mRNA疫苗接种扩展到12岁以下的儿童。”
+
+卫生部的一位女发言人说，**在澳大利亚和新西兰心脏协会的要求下，医疗服务咨询委员会将该项目加入了MBS**。
+
+“在更广泛地使用心脏MRI诊断心肌炎进行全面健康技术评估之前，暂时建议使用它”，她说：“澳大利亚政府将在年中经济和财政展望(MYEFO)更新中额外提供98亿澳元，以提供持续的远程医疗和新冠疫苗接种，并确保澳大利亚人能够获得世界一流的医疗保健和药物。”
+
+医疗服务咨询委员会（MSAC）负责评估拟用于公共资助的医疗服务或技术的安全性、有效性和性价比。
+
+**心肌炎或心肌炎症，是辉瑞和****莫德纳****疫苗的一个****已知而“****罕见****”****的副作用****；****心包炎或心脏周围的内膜炎症不太严重，但更常见。**
+
+原文链接： [Medicare: MRI to diagnose myocarditis after Covid-19 vaccine added to MBS | news.com.au — Australia’s leading news site](https://www.news.com.au/lifestyle/health/health-problems/mri-scan-to-diagnose-myocarditis-after-covid19-vaccine-added-to-medicare-benefits-schedule/news-story/9795fb7b3140b420565bc629cc1c2df9)
+
+*发布：盘古相聚*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
