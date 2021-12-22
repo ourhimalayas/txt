@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/22/2021 4:15 AM (UTC)`
+
+21/12/2021 “Hcoin To the Moon" Hits iTunes <br/> No. 1 🥇on 8 Countries Top MV Charts !<br/>No.1🥇 on 7 Countries Rock MV Charts!<br/>No.1🥇 on 4 Countries Rock song Charts!<br/>No.1🥇on 1 countries Hip-pop/Rap song Charts!<br/>Miracle continues…….🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, Laos, Hungary, Macau, Fiji, Philippines, Finland, Greece!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1778019/<br/><br/>12月20号，Hcoin To the Moon位列iTunes<br/>8国热门MV榜首🥇！<br/>7国摇滚MV榜首🥇！<br/>4国摇滚歌曲榜首🥇！<br/>1国嘻哈歌曲榜首🥇！<br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港，老挝，匈牙利，澳门，斐济，菲律宾，芬兰，希腊的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@mikepompeo 12/21/2021 4:29 PM (UTC)`
@@ -146,13 +152,6 @@ On Dec 18, 2021 The actual controller and owner of Zhongzhi Enterprise Group die
 
 CCTV, the crazy CCP’s mouthpiece, shirking responsibility for creating the virus, spreading the crisis, and abusing human rights to the US.<br/><br/>疯狂的中共党媒CCTV甩锅美国制造病毒、传播危机、践踏人权<br/>
 ![img](https://media.gettr.com/group9/getter/2021/12/19/08/f150605d-b5fb-5eca-623b-d86040f85eb2/out.jpg)
-
----
-
-`@miles 12/19/2021 7:01 AM (UTC)`
-
-因侵犯人权，美参议院两党一致通过法案，使美国成为第一个全面禁止进口新疆产品的国家，美国将34家中共国公司列入黑名单<br/><br/>The US Senate passed the bill unanimously to be the first country banning all imports from Xinjiang and the US further blacklists 34 Chinese firms over human rights abuse<br/><br/>
-![img](https://media.gettr.com/group28/getter/2021/12/19/07/65782d04-101b-4b8e-3468-bc5bd20a1a54/out.jpg)
 
 ---
 
