@@ -2,36 +2,33 @@
 ---
 
 
-## 牛津大学研究揭接种疫苗者得心脏病入院或死亡律达1%
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1778607/)
+## 日本同意提高驻日美军经费，以对抗中共军力威胁
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1778729/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-112.png)图片来源：inf news
+翻译：美哥
+编辑：Mttfly
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/12/V-3.jpg)id-hub.com
-《门道专家》12月20日晚间发表了题为“牛津大学的研究令人震惊：在研究期间，每100名接种疫苗的人中就有1人入院或死于心律失常”。【1】
+从明年4月开始，日本政府同意将驻日美军的经费提高到每财年2110亿日元（折合18.6亿美元），比原来与华盛顿谈判的协议高出100亿日元。
 
-全文如下：
+周二，日本媒体披露根据新的协议条款，在五年内，日本预计向美国支付1.05万亿日元（折合93亿美金）的驻军拨款。明年一月份，正式协议将由双方外交和国防部门在美国正式签署完毕。
 
-2021年12月14日，《自然医学》（Nature Medicine）发布了一项基于牛津大学研究人员分析的广泛人群数据的研究，研究人员检查了中共病毒感染和心肌炎和心律不齐的风险。
+据日本共同通讯社报道，新协议是为回应拜登政府“东道国军费增援”的要求，也是为了对付中共国的军力需要。该协议增加的拨款大约为总经费的5%，与2019年川普政府要求的高达150%的军费增长，还是相去甚远。
 
-牛津大学的研究人员透露，在所有接种疫苗的人中，每100人中有1人或1%因心律失常或心律不齐而入院治疗或死亡。
+《每日新闻》的政府消息源透露，根据2月份拜登就职之后的一项临时协议，日本今年的军事预算为2017亿日元。但日本比往年减少了军事设备的负担费用，增加的费用主要用于美军和日本自卫队共同使用的基地的维护，以及联合演习。
 
-*在我们研究中包括的38,615,491名接种疫苗的个体中，385,508名（1.0%）在研究期间的任何时间（接种前或接种后开始的研究）因心律失常入院或死亡；其中86,754例（0.2%）发生在第1-28天 。接种任何疫苗后数天，在入院或死亡的患者中，39,897人（10.3%）的中共病毒检测呈阳性，其中29,694人（7.7%）在接种疫苗前检测呈阳性，有7,795例死于心律失常（1,108例中共病毒检测呈阳性）。*
+日本和南韩占美国海外驻军的一半，分别为54000和26000人。
 
-因此，每100名接种疫苗的人中就有1人因心律不齐而去医院，这不应该是国际新闻的头条吗？
+**原文链接：**[Japan agrees to pay more for hosting US troops](https://www.rt.com/news/543826-japan-hosting-american-troops/)
 
-这是一个令人震惊的数字。
+发布：Peter Xin
 
-（原文完）
-
-笔者不太放心，按照文章提供的线索，查阅到了有关论文【2】，的确有这样的描述。笔者有同样的疑惑，“这不应该是国际新闻的头条吗？” 为什么主管机构不认真对待？还在加紧实施疫苗的强制接种？主流媒体集体禁声？一切的不正常背后必有妖术、邪术，那就是与中共一起的阴谋集团在操控。
-
-有关链接：
-
-【1】[https://www.thegatewaypundit.com/2021/12/oxford-study-shocker-1-100-vaccinated-individuals-admitted-hospital-died-arrhythmia-study-period/](https://www.thegatewaypundit.com/2021/12/oxford-study-shocker-1-100-vaccinated-individuals-admitted-hospital-died-arrhythmia-study-period/)
-
-【2】[https://www.nature.com/articles/s41591-021-01630-0](https://www.nature.com/articles/s41591-021-01630-0)
+**更多****资讯****，****请关****注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

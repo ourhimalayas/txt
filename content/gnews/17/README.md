@@ -2,39 +2,32 @@
 ---
 
 
-## 日本机构警告来自中共国的经济安全威胁
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1778907/)
+## 中共支付一千多亿美元求普京出席冬奥
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1778966/)
 
-据《The News Motion》作者：Kathy Acker，2021年12月19报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1145.png)图片源自：thenewsmotion.com
-东京：日本公共安全情报局警告，警惕中共国的经济安全威胁，称其尝试获取军事技术，并招募人才。
+作者：东京樱花团 – 在远方
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+郭文贵先生在12月20日的盖特视频中爆料，目前普京已经收到了中共拱手相送的一千多亿美元的支票，表示同意以个人名义出席北京冬奥会。
 
-该机构周五在年度报告中指出：“人们担心中共国将继续致力于收购（日本）公司和招募具有先进专业知识的人力资源。”
+郭先生指出，在共产党冬奥会的政治游戏中，唯一受到伤害的就是中共国10亿人民，所有中国人都将为了这个在国际上和政治上，完全没有任何价值的愚蠢的作秀而付出巨大的代价。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture14-1.jpg)
+除了送给俄罗斯的一千多亿美元，加上冬奥会场地、人员、服装、后勤、安保等其他费用，中共总共需要花费数千亿美元。这是极其可悲、可怜、可恨的，这也是全世界最昂贵的一场灾难游戏。而在世界经济即将崩塌之前，爆料革命的声音，是世界上唯一救人的忠言警告。
 
-报告称，已有中共国公司投资半导体领域和其他领域或试图收购日本公司。
-报告还指出，日本研究人员正在参与中共国的“千人计划”。中共国以丰厚的资金从海外招募优秀人才。
+参考链接：[中共支付一千多亿美元求普京出席冬奥](https://www.gettr.com/post/pk5p5a0268)
 
-该机构在报告中透露，已经发生系列旨在窃取日本公司机密信息的网络攻击事件。报告指，网络攻击在日本和国外变得越来越普遍和复杂。
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-该机构呼吁对一些国家参与或支持网络攻击保持警惕，并特别提到中国、俄罗斯和朝鲜。它补充认为，网络攻击的威胁正变得越来越严重。
+总编：飞虹
+编辑：飞虹
+校对/发稿：Hetangyuese
 
-关于邻国的情况，该机构分析认为，因应对新型冠状病毒传播，朝鲜长期关闭边境，正面临着粮食价格飙升和供给短缺。
-
-报告称，中共党魁习近平预计将进一步加强对经济和社会的控制，以确保明年北京冬奥会和中共党代会召开前的国内稳定。
-
-原文连接：[https://thenewsmotion.com/japan-agency-warns-of-economic-security-threats-from-china%EF%BD%9Carab-news-japan/](https://thenewsmotion.com/japan-agency-warns-of-economic-security-threats-from-china%EF%BD%9Carab-news-japan/)
-
-翻译：洛杉矶盘古农场 – TrueSky
-校对：洛杉矶盘古农场 – Mike Li 
-编辑：洛杉矶盘古农场 – WenXiong
-发布 ：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

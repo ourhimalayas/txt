@@ -2,32 +2,37 @@
 ---
 
 
-## 中共国冬奥会前的荒唐作秀
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1778508/)
+## 牛津大学研究揭接种疫苗者得心脏病入院或死亡律达1%
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1778607/)
 
-作者：银河勇气星 – 骄子
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-郭先生在12月19日的直播中谈及中共国冬奥会准备情况时指出，这是一场荒唐的洗脑表演。为此，中共竟然不惜劳民伤财的动用了至少5千万人。 郭先生表示，中共歪曲事实的宣传表演的目的之一是洗脑民众，并让世界相信一党真正的优越性，然后，在中共国开始进行造神运动。而为了此次表演，中共要求摇摇欲坠的房产企业不能倒下、银行做假账以及各媒体封口。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture14.jpg)
-郭先生说，中共还会利用病毒给世界作一场“精彩”表演。中共已经按语种、性别、国别分配好了参奥运动员的后勤准备，包括隔离区与治疗区。届时，将会有一些参加冬奥会的运动员被要求，根据中共已写好的剧本被感染、被隔离、被治愈。而整个过程，会通过媒体大肆渲染中共在病毒上的治理能力。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-针对中共荒唐疯狂的表演。郭先生透露，中共正在为下一步打台湾做充足的世界舆论准备。
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/12/V-3.jpg)id-hub.com
+《门道专家》12月20日晚间发表了题为“牛津大学的研究令人震惊：在研究期间，每100名接种疫苗的人中就有1人入院或死于心律失常”。【1】
 
-参考链接：&lt;a href="https://gtv.org/video/中共国冬奥会前的荒唐作秀
+全文如下：
 
-![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+2021年12月14日，《自然医学》（Nature Medicine）发布了一项基于牛津大学研究人员分析的广泛人群数据的研究，研究人员检查了中共病毒感染和心肌炎和心律不齐的风险。
 
-总编：DM
-编辑：DM
-校对/发稿：Hetangyuese
+牛津大学的研究人员透露，在所有接种疫苗的人中，每100人中有1人或1%因心律失常或心律不齐而入院治疗或死亡。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+*在我们研究中包括的38,615,491名接种疫苗的个体中，385,508名（1.0%）在研究期间的任何时间（接种前或接种后开始的研究）因心律失常入院或死亡；其中86,754例（0.2%）发生在第1-28天 。接种任何疫苗后数天，在入院或死亡的患者中，39,897人（10.3%）的中共病毒检测呈阳性，其中29,694人（7.7%）在接种疫苗前检测呈阳性，有7,795例死于心律失常（1,108例中共病毒检测呈阳性）。*
+
+因此，每100名接种疫苗的人中就有1人因心律不齐而去医院，这不应该是国际新闻的头条吗？
+
+这是一个令人震惊的数字。
+
+（原文完）
+
+笔者不太放心，按照文章提供的线索，查阅到了有关论文【2】，的确有这样的描述。笔者有同样的疑惑，“这不应该是国际新闻的头条吗？” 为什么主管机构不认真对待？还在加紧实施疫苗的强制接种？主流媒体集体禁声？一切的不正常背后必有妖术、邪术，那就是与中共一起的阴谋集团在操控。
+
+有关链接：
+
+【1】[https://www.thegatewaypundit.com/2021/12/oxford-study-shocker-1-100-vaccinated-individuals-admitted-hospital-died-arrhythmia-study-period/](https://www.thegatewaypundit.com/2021/12/oxford-study-shocker-1-100-vaccinated-individuals-admitted-hospital-died-arrhythmia-study-period/)
+
+【2】[https://www.nature.com/articles/s41591-021-01630-0](https://www.nature.com/articles/s41591-021-01630-0)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
