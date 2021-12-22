@@ -2,18 +2,33 @@
 ---
 
 
-## 中共国向日本使馆客人施压，取消了交流活动
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1779684/)
+## 国家冰球联盟决定不派球员参加北京冬奥会
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1779859/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1164.png)[图片来源](https://news.yahoo.co.jp/articles/38bfca1d17485a228c04d6795faac72fe51c0f65#:~:text=%E6%97%A5%E6%9C%A)
-据《共同社北京》网站21日报道，在日本前首相安倍晋三发表了”台湾的紧急情况就是日本的紧急情况“谈话后，中共国有关部门随即向中国客人施压，要求他们不要参加日本驻北京大使馆定于本月举行的日中交流活动。在当局的要求下，该活动最终被取消。据多位接近此事的消息人士透露，被取消的理由是抗击中共病毒（新冠病毒Covid-19）。而其它外国使馆被允许在同一时间举行活动，日本有关人士深信这是中共对前首相安倍晋三支持台湾言论做出的反应。
+#### 撰稿：彩虹
 
-信息源：[日本大使館の招待客に圧力、中国　交流イベント中止、安倍氏発言後](https://news.yahoo.co.jp/articles/38bfca1d17485a228c04d6795faac72fe51c0f65#:~:text=%E6%97%A5%E6%9C%A)
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-34.jpg)图片来源：Code Sports
+周二，ESPN和路透社报道说，由于对中共病毒（COVID-19）的担心，国家冰球联盟(National Hockey League)和国家冰球联盟球员协会（National Hockey League Players’ Association）将不派球员参加北京冬奥会冰球比赛。对此，《新闻极限》和《国会山报》也分别于12月22日进行了报道。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
+根据报道，去年9月，国家冰球联盟同意暂停其常规赛季，以便世界顶级球员能够在北京比赛，但有一个前提条件，即如果由于中共病毒的干扰迫使比赛在奥运会期间重新安排，那么它可以退出（北京奥运会比赛）。
+
+最近几天，中共病毒变体奥米炕使得职业体育联盟撕裂严重，完全接种过中共病毒疫苗的球员连续感染了中共病毒，这使得越来越多的球员加入了COVID-19协议，国家冰球联盟被迫推迟在加拿大和美国的50场比赛。
+
+文章分析认为，球员们大多渴望回到这个最大的国际舞台，但担心在中共国的阳性测试可能导致21天的隔离，并推迟他们返回家庭和国家冰球联盟俱乐部的时间，这抑制了一些人的（参与）热情。埃德蒙顿油人队(Edmonton Oilers)的中锋康纳·麦大卫(Connor McDavid)称中共国的COVID-19协议规定，阳性病例将被强制隔离最高长达5周，“令人不安”。
+
+国家冰球联盟的决定将对加拿大和美国队产生的影响最大，因为他们的整个奥运冰球名单由国家冰球联盟球员组成。其他奖牌竞争者，如瑞典、芬兰、俄罗斯和捷克共和国，对国家冰球联盟人才的依赖程度较低。
+
+国家冰球联盟没有立即回应《新闻极限》和《国会山报》的评论请求，但ESPN说，预计国家冰球联盟将在未来24小时内正式宣布选择退出北京奥运会。
+
+文章指，国家冰球联盟可以在1月10日之前退出2月4日至20日的北京奥运会，而不会受到经济处罚。
+
+**新闻来源**
+
+[NHL Pulls Out of Beijing Winter Olympics Due to COVID-19](https://www.newsmax.com/us/nhl-olympics-covid-19-players-union/2021/12/21/id/1049538/)
+
+[NHL, NHLPA agree to skip Beijing Olympics due to COVID-19 concerns: report](https://thehill.com/policy/healthcare/public-global-health/586805-nhl-nhlpa-agree-to-skip-beijing-olympics-due-to-covid)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

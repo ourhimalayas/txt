@@ -2,27 +2,38 @@
 ---
 
 
-## 【中日财经爆】日本官方认为今后十年有望复兴日之丸半导体
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1780467/)
+## 西安疫情&#8212;封城
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1780678/)
 
-撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-268.jpg)
-[图片源](https://business.nikkei.com/atcl/gen/19/00371/120800019/)
+【撰稿人】纽约香草山教育部-Noemi
 
-22日在日本新闻俱乐部举行的发布会上，经济安全事务大臣小林鹰之说：”在复兴日之丸（日本）半导体的问题上，国家对半导体行业的重视程度至关重要。现在还不算太晚。有可能重振半导体产业。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/gnews-logo.jpeg)
 
-同时，小林氏也表达了他的危机感，他说：“如果政府认真对待的态度没得到有效传达，（与半导体有关的）私营企业和人力资源将流向海外。他还指出，半导体行业至少需要10年时间才能恢复。在保障生产基地建设等供应方的同时，在日本推动完善一个半导体市场也很重要。今后10年国家的重视程度直接影响到私营企业的执行决心。”
 
-笔者认为，政企一体推进半导体行业复兴，重振之日则指日可待。
 
-信息源：
+当地时间12月22日，据中共官方消息，陕西省西安市疫情再度失控，在当地的封控区之外已发现阳性病例，目前整体疫情呈现出社区式集中传播。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/mmexport1640180302153-2.jpg)
+有盖特网友爆料，西安市目前所有的出城道路均已被中共警方控制，所有尝试出城的民众，均会被警察直接带至就近的隔离点隔离。而民众们按官方要求所出示的48小时内阴性核酸证明以及绿色行程码，都被中共警方当场宣告无效。
 
-[経済安保相、日の丸半導体復権「今なら間に合う」](https://news.yahoo.co.jp/articles/6c93cefce7f6a2051517e71addd7ff95301a3939)
+另有网友爆料，在当地一所名为长安大学的校园外，有一大批救护车已连续往返了整个下午，却还没有将需要集中隔离、治疗的学生们转运完毕。而在其他的各所大学中，学生们也在纷纷尝试用翻墙的方法强行逃离校园。
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWSLOGO20211207.jpg)
+此外，更多的西安市民在出城无望后则是在进行疯狂地囤货。各大超市目前已被抢购一空，有部分超市已出现无货停业现象。有墙内网友在视频中惊呼，大家都在抢东西，人实在是太多了！
 
+[https://www.gettr.com/post/pkc4p5a9ea https://www.gettr.com/post/pkc8mka45c https://www.gettr.com/post/pkctmxd45e https://weibo.com/u/2540733094](https://www.gettr.com/post/pkc4p5a9ea%20%20%20%20%20%20%20%20%20%20%20%20%20%20%20%20%20https://www.gettr.com/post/pkc8mka45c%20%20%20%20%20%20%20%20%20%20%20%20%20%20%20%20%20https://www.gettr.com/post/pkctmxd45e%20%20%20%20%20%20%20%20%20%20%20%20%20%20%20%20%20https://weibo.com/u/2540733094)
+
+编辑/校对/发稿：菩提树
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
