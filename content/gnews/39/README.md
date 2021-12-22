@@ -2,22 +2,36 @@
 ---
 
 
-## 世界想模仿夏天的北戴河会议
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1781157/)
+## “叮咚买菜”被曝强制员工无薪排休
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1781165/)
 
-文编：东京樱花团/樱花传媒
+作者：纽约香草山农场 – 飞虹
 
-视频:东京樱花团/中文小视频组
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-12月3日，郭文贵先生在GTV大直播指出：
+当地时间12月20日，据中共媒体报道称，近日，中共国内大型配送平台“叮咚买菜”的部分站点强制其配送员无薪排休，当中，部分配送员甚至出现一个月内被强制排休近半个月的情况。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/6-42.jpg)
+据多地配送员反映，由于每个配送员都背负了一定的绩效工作量，因此，在公司总订单量不断下滑的情况下，公司因为不能轻易裁人，只能迫使部分配送员强制无薪排休。
 
-北戴河会议是夏季的政治常委会，完全模仿苏联。北戴河会议是现任领导与退休的老常委们勾兑的一个平台，西方国家很希望模仿。通过现任领导去看望老常委，判断出谁重不重要，这是政治上的风向标。
+对此，分析人士表示，鉴于中概股在投资市场上的声誉越来越差，这导致“叮咚买菜”此前在美国上市时没有筹集到足够的资金，再加上中共国内市场的不景气，从而造成该公司的亏损愈发严重。在此基础上，该公司若无故解雇员工，或将面临被员工起诉的风险，更有可能会赔付违约金、补偿金等数额更高的成本。为此，该公司选择用强迫员工休假这一手段用来继续压榨墙内本已苦不堪言的民众，借此来维持自身岌岌可危的经营。
 
-编辑：东京樱花团/墨然
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-1.jpg)
+参考链接: 
+1) . [搜狐 12月20日报道【叮咚买菜被曝强制员工无薪排休 降低员工成本成为抑制亏损首选】](https://gettr.com/post/pk7wt6182f)
+2) .[**叮咚买菜被曝强制员工无薪排休 降低员工成本成为抑制亏损首选？**](https://baijiahao.baidu.com/s?id=1719638558592904351&amp;wfr=spider&amp;for=pc)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
+总编：Ivy001
+编辑：文特
+校正/发稿：Fei797
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

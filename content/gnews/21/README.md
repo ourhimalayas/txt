@@ -2,38 +2,29 @@
 ---
 
 
-## 台立法院召开首场香港公听会
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1781720/)
+## 德克萨斯州首次确认美国 Omicron 死亡
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1781738/)
 
-**撰稿：日本东京方舟农场 北极**
+**编译：西班牙巴塞罗那喜悦农场-wenwu**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip03-3.png)人们在德克萨斯州休斯顿的 Covid-19 疫苗诊所前等待并签署豁免。
+照片：布兰登贝尔/盖蒂图片社。
+周一（20日），德克萨斯州的哈里斯县[报告](https://publichealth.harriscountytx.gov/Portals/27/Documents/HCPH%20Reports%20First%20Omicron%20Related%20Death%20sm.pdf?ver=oK77qT2qjHEIryPPhgBoog==)了美国第一例因感染 Omicron 变体而确认的死亡；12月13日，英国[报告](https://www.reuters.com/world/uk/britain-says-omicron-spreading-phenomenal-rate-2021-12-13/)了世界上第一例感染 Omicron 变体的死亡案例。
 
-据《德国之声》中文网报道，台湾立法院人权促进会于周一（12月21日）召开的主题为“香港的走向以及台湾的对应” 的在线公听会，呼吁台湾政府与公民社会合作保卫民主机制，并积极推动港人在台的安置工作。流亡海外的香港民运人士罗冠聪及张昆阳在线出席。
+**简评：**
 
-根据台湾大陆委员会数据，2020年获台湾居留许可的港人破万人，比2019年成长了80%，创下历史新高。陆委会发言人邱垂正21日更指出，预计今年赴台居留的香港人数将再创新高。
+**七哥今日直播特别指出，此次 Omicron 因为出现死亡后需要特别关注。三票先生（[@Mr3rights](https://gettr.com/post/pkdgf43e32)）在盖特上也分享重要信息：中共释放看似温和的Omicron毒株，误导人们以为感染Omicron不一定是坏事，其实这是个阴险的陷阱。事实上 Omicron 病症可能会变得更严重，所有被感染过新冠病毒的人如不进行排毒治疗，将面临50%罹患癌症的风险。**
 
-依照现行法律规定，港人赴台湾工作仅能居留，不得申请定居，因而无法入籍台湾，这使部分在台港人担心他们在居留期满后就得返回香港。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-273.png)流亡英国的香港前立法会议员罗冠聪21日在台湾立法院首场香港议题公听会上呼吁，台湾政府与公民社会应合作保卫民主机制。（图片来自德国之声中文网）
-
-流亡英国的香港民运人士张昆阳表示，希望台湾政府下定决心，加快审批程序，协助港人在台定居，并可尽快获得入籍条件。
-
-另一位流亡英国的前香港立法会议员罗冠聪在会议上发出警告，“台湾是中共进攻自由世界的下一个目标”。
-
-罗冠聪表示，中共对台湾的渗透、统战工作手法与香港雷同，都是通过利益收买黑帮结盟及卖台贼，破坏台湾的民主与人权。他补充道，支持香港与支持台湾基本上是同一件事，而台湾与香港、甚至维吾尔人、藏族人权活动，若能在国际上协同合作，会有“一加一大于二”的效果。
-
-10月份，台湾政府传出消息，欲修法放宽港人来台申请定居、入籍的相关规定，但具体修法时间尚不明确。
-
-*参考链接：*
-
-[台立法院首场香港公听会 罗冠聪张昆阳在线出席](https://www.dw.com/zh/%E5%8F%B0%E7%AB%8B%E6%B3%95%E9%99%A2%E9%A6%96%E5%9C%BA%E9%A6%99%E6%B8%AF%E5%85%AC%E5%90%AC%E4%BC%9A-%E7%BD%97%E5%86%A0%E8%81%AA%E5%BC%A0%E5%B4%91%E9%98%B3%E5%9C%A8%E7%BA%BF%E5%87%BA%E5%B8%AD/a-60220187)
+**也就说，新的一波疫情将是一场针对疫苗接种者的生命的收割“PARTY”。
+**
+**新闻来源**：[axios.com] [First confirmed U.S. Omicron death recorded in Texas](https://www.axios.com/first-confirmed-us-omicron-death-texas-006fb75d-0a84-45bb-b1db-816ba5ca0226.html) | 发布时间：2021年12月21日｜
 
 * * *
 
-*素材采编：北极*
+***发稿：信心满满***
 
-*编辑：文顺*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-1.jpeg)
 
-*发布：Ranting*
+
 
  
 
