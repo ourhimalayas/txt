@@ -2,35 +2,21 @@
 ---
 
 
-## Đảng Cộng Sản Trung Quốc đã xâm nhập nghiêm trọng vào quân đội Đài Loan, và an ninh của Thái Anh Văn cũng nằm trong đó
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1781217/)
+## 【文贵先生大直播PPT】疫苗大灾难
+` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1781442/)
 
-Biên Dịch: 东京樱花团/越南文雄
-![](https://assets.gnews.org/wp-content/uploads/2021/12/6-19.png)
-[Nguồn ảnh:](00)
+撰稿：飞飞（DC) Now 小哥（香草山）庚子灭共（DC）莲心不染（扬帆）
+美工：青山（英喜）
 
-Reuters ngày 20/12 đưa tin, Các điệp viên Đảng Cộng Sản Trung Quốc đã xâm nhập nghiêm trọng vào quân đội Đài Loan, và bộ phận an ninh của tổng thống Thái Anh Văn cũng không ngoại lệ, và trong thập kỷ qua, ít nhất 21 sĩ quan cảnh sát quân sự cấp cao trở lên đã bị kết án vì tội gián điệp, trong khi 9 cựu chiến binh đang bị xét xử hoặc điều tra vì nghi ngờ tiếp xúc với gián điệp của Đảng Cộng Sản Trung Quốc.
+【2021年12月22日文贵先生大直播PPT：疫苗大灾难】
+![](https://assets.gnews.org/wp-content/uploads/2021/12/11-10.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/12-9.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/13-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/14-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/15-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/16-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/17-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/18-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/19-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/20-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/21-11.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/22-12.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/23-9.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/24-9.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/25-8.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/26-6.jpg)
+**Omicron 从实验室里释放的证据的相关信息源链接：**
 
-Reuters lấy ví dụ về Ông XIE XIZHANG, một điệp Đảng Cộng Sản Trung Quốc hoạt động tại Đài Loan với tư cách là một doanh nhân Hồng Kông, chỉ ra rằng XIE XIZHANG đã nhiều lần đến Đài Loan với tư cách là một doanh nhân Hồng Kông từ năm 1997, nhưng đã bí mật tuyển dụng gián điệp cho Bắc Kinh, thâm nhập thành công vào quân đội Đài Loan thông qua các phương tiện như tặng vàng và tặng quà.
+1.[https://rumble.com/vqy7qe-dr.-peter-mccullough-on-nfl-protocols-pregnancy-omicron-and-more.html](https://rumble.com/vqy7qe-dr.-peter-mccullough-on-nfl-protocols-pregnancy-omicron-and-more.html)2.[https://rwmalonemd.substack.com/p/has-omicron-shifted-receptor-binding?r=ta0o1&utm\_campaign=post&utm\_medium=web](https://rwmalonemd.substack.com/p/has-omicron-shifted-receptor-binding?r=ta0o1&amp;utm_campaign=post&amp;utm_medium=web)3.[https://frenchdailynews.com/health/3691-omicron-the-molecular-analysis-of-pr-jacques-fantini 4.https://rwmalonemd.substack.com/p/omicron-today?r=ta0o1&utm\_campaign=post&utm\_medium=web](https://frenchdailynews.com/health/3691-omicron-the-molecular-analysis-of-pr-jacques-fantini%204.https://rwmalonemd.substack.com/p/omicron-today?r=ta0o1&amp;utm_campaign=post&amp;utm_medium=web)5.[https://www.cbsnews.com/news/omicron-variant-covid-in-europe-netherlands-before-alert-raised/ 6.https://www.cnbc.com/2021/12/02/where-did-omicron-covid-variant-come-from-and-where-is-it-circulating.html 7.https://www.who.int/news/item/26-11-2021-classification-of-omicron-(b.1.1.529)-sars-cov-2-variant-of-concern](https://www.cbsnews.com/news/omicron-variant-covid-in-europe-netherlands-before-alert-raised/%206.https://www.cnbc.com/2021/12/02/where-did-omicron-covid-variant-come-from-and-where-is-it-circulating.html%207.https://www.who.int/news/item/26-11-2021-classification-of-omicron-%28b.1.1.529%29-sars-cov-2-variant-of-concern)8.[https://twitter.com/P\_McCulloughMD/status/1473299558281191433?s=20 https://www.msn.com/en-us/health/medical/most-omicron-cases-in-us-have-been-mild-but-most-were-vaccinated-cdc-reports/ar-AARGOxE](https://twitter.com/P_McCulloughMD/status/1473299558281191433?s=20%20https://www.msn.com/en-us/health/medical/most-omicron-cases-in-us-have-been-mild-but-most-were-vaccinated-cdc-reports/ar-AARGOxE) 9.[https://www.msn.com/en-us/health/medical/most-omicron-cases-in-us-have-been-mild-but-most-were-vaccinated-cdc-reports/ar-AARGOxE 10.https://www.voiceforscienceandsolidarity.org/videos-and-interviews/geert-vanden-bossche-speaks-about-omicron-and-mass-vaccination-at-dana-show](https://www.msn.com/en-us/health/medical/most-omicron-cases-in-us-have-been-mild-but-most-were-vaccinated-cdc-reports/ar-AARGOxE%2010.https://www.voiceforscienceandsolidarity.org/videos-and-interviews/geert-vanden-bossche-speaks-about-omicron-and-mass-vaccination-at-dana-show)
 
-Theo Reuters, ông XIE cung cấp toàn bộ chi phí đi lại nước ngoài của các sĩ quan Đài Loan và gia đình họ, hàng ngàn Đô la tiền mặt, đồng thời tặng quà như khăn lụa và thắt lưng cho vợ của sĩ quan. các sĩ quan quân đội cấp cao đã nghỉ hưu, quân đội Hoa Kỳ có kinh nghiệm liên quan đến Đài Loan và các quan chức phản gián của chính phủ hiện tại đều nói với Reuters rằng những trường hợp này cho Đảng Cộng Sản Trung Quốc đã phát động một chiến dịch rộng rãi nhằm phá hoại lãnh đạo quân sự và dân sự của Đài Loan, làm xói mòn ý chí chiến đấu của họ, trích xuất bí mật của vũ khí công nghệ cao và tìm hiểu về kế hoạch quốc phòng của Đài Loan.
+* * *
 
-Ngoài ra, Đảng Cộng Sản Trung Quốc thậm chí còn thâm nhập vào các nhân viên an ninh để bảo vệ tổng thống Đài Loan Thái Anh Văn. Báo cáo cho biết một quan chức an ninh tổng thống đã nghỉ hưu và trung tá hiến binh đang phục vụ trong lực lượng chịu trách nhiệm bảo vệ tổng thống đã bị kết án vào đầu năm nay vì tiết lộ thông tin nhạy cảm về sự an toàn của Thái Anh Văn cho các cơ quan tình báo của Đảng Cộng Sản Trung Quốc. theo phán quyết của tòa án tối cao, thông tin này bao gồm một sơ đồ tổ chức của một trung tâm dịch vụ đặc biệt được vẽ tay, đơn vị này chịu trách nhiệm bảo vệ tổng thống. Hai người này cũng bị buộc tội tiết lộ tên, chức vụ và số điện thoại làm việc của các nhân viên an ninh cấp cao bảo vệ Dinh Tổng Thống và nơi cư trú của bà Thái Anh Văn ở trung tâm Đài Bắc, theo Reuters.
-
-Theo hồ sơ tòa án Đài Loan và báo cáo của truyền thông quan phương tại địa phương, trong thập kỷ qua, ít nhất 21 sĩ quan Thượng Uý hoặc ở cấp độ cao hơn đang làm việc hoặc đã nghỉ hưu của Đài Loan đã bị kết án là gián điệp của Đảng Cộng Sản Trung Quốc. 21 sĩ quan bị kết án đã bị kết tội tuyển dụng gián điệp cho Đảng Cộng Sản Trung Quốc hoặc chuyển một loạt thông tin nhạy cảm cho Đảng Cộng Sản Trung Quốc, bao gồm thông tin liên lạc của các sĩ quan quân đội cấp cao của Đài Loan và chi tiết về các người đại lý của Đài Loan tại nước Cộng Sản Trung Quốc.
-
-备注：越南语根据中文稿件进行翻译，本文内容以中文为准。
-
-Bản dịch tiếng Việt dựa trên bản tiếng Trung, nội dung bài dịch này lấy bản tiếng Trung làm chuẩn mực
-
-Nguồn tin:
-
-[中共严重渗透台湾军方，蔡英文安保也在内 – GNEWS](https://gnews.org/zh-hans/1779350/)
-
-Biên Tập: 东京樱花团/知了知了（以Google翻译分段校对）
-Đăng Bài: 东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-1.jpg)
-
+发稿：云起时
 
  
 
