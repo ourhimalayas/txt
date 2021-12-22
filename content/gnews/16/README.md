@@ -2,35 +2,24 @@
 ---
 
 
-## Đảng Cộng Sản Trung Quốc đã xâm nhập nghiêm trọng vào quân đội Đài Loan, và an ninh của Thái Anh Văn cũng nằm trong đó
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1781217/)
+## 加拿大魁省疫情再次刷新记录
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1781312/)
 
-Biên Dịch: 东京樱花团/越南文雄
-![](https://assets.gnews.org/wp-content/uploads/2021/12/6-19.png)
-[Nguồn ảnh:](00)
+采编：文明  编译撰稿：文明(添草灭共)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/04-image02.jpeg)
+[图片来源](https://cultmtl.com/2021/12/quebec-may-go-back-into-lockdown-curfew-restaurant-closure-after-christmas-sources/)
 
-Reuters ngày 20/12 đưa tin, Các điệp viên Đảng Cộng Sản Trung Quốc đã xâm nhập nghiêm trọng vào quân đội Đài Loan, và bộ phận an ninh của tổng thống Thái Anh Văn cũng không ngoại lệ, và trong thập kỷ qua, ít nhất 21 sĩ quan cảnh sát quân sự cấp cao trở lên đã bị kết án vì tội gián điệp, trong khi 9 cựu chiến binh đang bị xét xử hoặc điều tra vì nghi ngờ tiếp xúc với gián điệp của Đảng Cộng Sản Trung Quốc.
+据加拿大【CTV新闻】12月21日报道，魁北克省“新冠病毒”疫情持续爆发，当日新增感染5043人，刷新了前一天4571人的最高记录。
 
-Reuters lấy ví dụ về Ông XIE XIZHANG, một điệp Đảng Cộng Sản Trung Quốc hoạt động tại Đài Loan với tư cách là một doanh nhân Hồng Kông, chỉ ra rằng XIE XIZHANG đã nhiều lần đến Đài Loan với tư cách là một doanh nhân Hồng Kông từ năm 1997, nhưng đã bí mật tuyển dụng gián điệp cho Bắc Kinh, thâm nhập thành công vào quân đội Đài Loan thông qua các phương tiện như tặng vàng và tặng quà.
+报道称，自疫情开始以来魁省感染者累计约50万人。目前的活动病例有近3万人，其中住院治疗415人。重症监护室88人。在新增感染病例中，接种过两剂及以上疫苗的患者仍占据多数，而仅有1219人未接种或只接种了一次疫苗。
 
-Theo Reuters, ông XIE cung cấp toàn bộ chi phí đi lại nước ngoài của các sĩ quan Đài Loan và gia đình họ, hàng ngàn Đô la tiền mặt, đồng thời tặng quà như khăn lụa và thắt lưng cho vợ của sĩ quan. các sĩ quan quân đội cấp cao đã nghỉ hưu, quân đội Hoa Kỳ có kinh nghiệm liên quan đến Đài Loan và các quan chức phản gián của chính phủ hiện tại đều nói với Reuters rằng những trường hợp này cho Đảng Cộng Sản Trung Quốc đã phát động một chiến dịch rộng rãi nhằm phá hoại lãnh đạo quân sự và dân sự của Đài Loan, làm xói mòn ý chí chiến đấu của họ, trích xuất bí mật của vũ khí công nghệ cao và tìm hiểu về kế hoạch quốc phòng của Đài Loan.
+对此，卫生部长杜贝表示：目前的疫情很严重，这是一场与“奥密克戎”变种病毒的战争。同时魁省政府也在当天紧急宣布关闭所有学校，酒吧，赌场、电影院及健身房等公共场所，远程办公再次成为强制性规定。
 
-Ngoài ra, Đảng Cộng Sản Trung Quốc thậm chí còn thâm nhập vào các nhân viên an ninh để bảo vệ tổng thống Đài Loan Thái Anh Văn. Báo cáo cho biết một quan chức an ninh tổng thống đã nghỉ hưu và trung tá hiến binh đang phục vụ trong lực lượng chịu trách nhiệm bảo vệ tổng thống đã bị kết án vào đầu năm nay vì tiết lộ thông tin nhạy cảm về sự an toàn của Thái Anh Văn cho các cơ quan tình báo của Đảng Cộng Sản Trung Quốc. theo phán quyết của tòa án tối cao, thông tin này bao gồm một sơ đồ tổ chức của một trung tâm dịch vụ đặc biệt được vẽ tay, đơn vị này chịu trách nhiệm bảo vệ tổng thống. Hai người này cũng bị buộc tội tiết lộ tên, chức vụ và số điện thoại làm việc của các nhân viên an ninh cấp cao bảo vệ Dinh Tổng Thống và nơi cư trú của bà Thái Anh Văn ở trung tâm Đài Bắc, theo Reuters.
+校对编辑：硫酸羟氯喹64
 
-Theo hồ sơ tòa án Đài Loan và báo cáo của truyền thông quan phương tại địa phương, trong thập kỷ qua, ít nhất 21 sĩ quan Thượng Uý hoặc ở cấp độ cao hơn đang làm việc hoặc đã nghỉ hưu của Đài Loan đã bị kết án là gián điệp của Đảng Cộng Sản Trung Quốc. 21 sĩ quan bị kết án đã bị kết tội tuyển dụng gián điệp cho Đảng Cộng Sản Trung Quốc hoặc chuyển một loạt thông tin nhạy cảm cho Đảng Cộng Sản Trung Quốc, bao gồm thông tin liên lạc của các sĩ quan quân đội cấp cao của Đài Loan và chi tiết về các người đại lý của Đài Loan tại nước Cộng Sản Trung Quốc.
+发稿：苦尽甜来 (文來）
 
-备注：越南语根据中文稿件进行翻译，本文内容以中文为准。
-
-Bản dịch tiếng Việt dựa trên bản tiếng Trung, nội dung bài dịch này lấy bản tiếng Trung làm chuẩn mực
-
-Nguồn tin:
-
-[中共严重渗透台湾军方，蔡英文安保也在内 – GNEWS](https://gnews.org/zh-hans/1779350/)
-
-Biên Tập: 东京樱花团/知了知了（以Google翻译分段校对）
-Đăng Bài: 东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-1.jpg)
-
+[原文链接](https://montreal.ctvnews.ca/5-043-new-covid-19-cases-as-quebec-breaks-infection-record-again-1.5715320)
 
  
 

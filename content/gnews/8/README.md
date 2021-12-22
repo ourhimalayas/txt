@@ -2,21 +2,24 @@
 ---
 
 
-## 【文贵先生大直播PPT】疫苗大灾难
-` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1781442/)
+## 特鲁多再次拒绝承认中共种族灭绝
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1781453/)
 
-撰稿：飞飞（DC) Now 小哥（香草山）庚子灭共（DC）莲心不染（扬帆）
-美工：青山（英喜）
+采编：文莱          编译撰稿：文文-自由法兰西
+![](https://assets.gnews.org/wp-content/uploads/2021/12/05-image-2.jpeg)
+[图片来源](https://apnews.com/article/race-and-ethnicity-cabinets-justin-trudeau-china-olympic-games-5c85eedb0d3c3811ba1fd56eb4ac325d)
 
-【2021年12月22日文贵先生大直播PPT：疫苗大灾难】
-![](https://assets.gnews.org/wp-content/uploads/2021/12/11-10.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/12-9.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/13-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/14-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/15-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/16-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/17-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/18-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/19-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/20-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/21-11.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/22-12.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/23-9.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/24-9.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/25-8.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/26-6.jpg)
-**Omicron 从实验室里释放的证据的相关信息源链接：**
+据自媒体《后千禧年》12月20日报道，加拿大总理特鲁多在当天接受媒体采访时，再次拒绝承认中共国对维吾尔少数民族实施了种族灭绝。
 
-1.[https://rumble.com/vqy7qe-dr.-peter-mccullough-on-nfl-protocols-pregnancy-omicron-and-more.html](https://rumble.com/vqy7qe-dr.-peter-mccullough-on-nfl-protocols-pregnancy-omicron-and-more.html)2.[https://rwmalonemd.substack.com/p/has-omicron-shifted-receptor-binding?r=ta0o1&utm\_campaign=post&utm\_medium=web](https://rwmalonemd.substack.com/p/has-omicron-shifted-receptor-binding?r=ta0o1&amp;utm_campaign=post&amp;utm_medium=web)3.[https://frenchdailynews.com/health/3691-omicron-the-molecular-analysis-of-pr-jacques-fantini 4.https://rwmalonemd.substack.com/p/omicron-today?r=ta0o1&utm\_campaign=post&utm\_medium=web](https://frenchdailynews.com/health/3691-omicron-the-molecular-analysis-of-pr-jacques-fantini%204.https://rwmalonemd.substack.com/p/omicron-today?r=ta0o1&amp;utm_campaign=post&amp;utm_medium=web)5.[https://www.cbsnews.com/news/omicron-variant-covid-in-europe-netherlands-before-alert-raised/ 6.https://www.cnbc.com/2021/12/02/where-did-omicron-covid-variant-come-from-and-where-is-it-circulating.html 7.https://www.who.int/news/item/26-11-2021-classification-of-omicron-(b.1.1.529)-sars-cov-2-variant-of-concern](https://www.cbsnews.com/news/omicron-variant-covid-in-europe-netherlands-before-alert-raised/%206.https://www.cnbc.com/2021/12/02/where-did-omicron-covid-variant-come-from-and-where-is-it-circulating.html%207.https://www.who.int/news/item/26-11-2021-classification-of-omicron-%28b.1.1.529%29-sars-cov-2-variant-of-concern)8.[https://twitter.com/P\_McCulloughMD/status/1473299558281191433?s=20 https://www.msn.com/en-us/health/medical/most-omicron-cases-in-us-have-been-mild-but-most-were-vaccinated-cdc-reports/ar-AARGOxE](https://twitter.com/P_McCulloughMD/status/1473299558281191433?s=20%20https://www.msn.com/en-us/health/medical/most-omicron-cases-in-us-have-been-mild-but-most-were-vaccinated-cdc-reports/ar-AARGOxE) 9.[https://www.msn.com/en-us/health/medical/most-omicron-cases-in-us-have-been-mild-but-most-were-vaccinated-cdc-reports/ar-AARGOxE 10.https://www.voiceforscienceandsolidarity.org/videos-and-interviews/geert-vanden-bossche-speaks-about-omicron-and-mass-vaccination-at-dana-show](https://www.msn.com/en-us/health/medical/most-omicron-cases-in-us-have-been-mild-but-most-were-vaccinated-cdc-reports/ar-AARGOxE%2010.https://www.voiceforscienceandsolidarity.org/videos-and-interviews/geert-vanden-bossche-speaks-about-omicron-and-mass-vaccination-at-dana-show)
+特鲁多声称，中共国确实正在发生侵犯人权的行为，加拿大政府为此将继续采取强有力的行动。但因“种族灭绝”罪的指控过于严重，因此需要进行适当的调查。
 
-* * *
+报道指出，早在今年2月，尽管总理特鲁多及其自由党内阁成员都投了弃权票，但加拿大议会则以压倒性多数投票通过议案，称中共政权对维吾尔族实施了“种族灭绝”。该动议使加拿大成为继美国之后第二个认定中共犯有以上罪行的国家。
 
-发稿：云起时
+校对编辑：硫酸羟氯喹64
+
+发稿：苦尽甜来 (文來）
+
+[參考链接](https://thepostmillennial.com/trudeau-refuses-to-recognize)
 
  
 
