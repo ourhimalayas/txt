@@ -2,73 +2,34 @@
 ---
 
 
-## 2021/12/21大卫作战室直播精要
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1778436/)
+## 政治动乱、谋杀恐成北京冬奥闭幕大礼
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1778509/)
 
-**主播：大卫｜嘉宾：**小福利、Nick
+作者：纽约香草山教育部 – Noemi
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+12月19日，郭文贵先生在最新的大直播节目中透露，中共军方最有可能在冬奥会闭幕式时，制造出政治动乱和谋杀事件，届时北京将成为最危险之地。
 
+郭先生爆料，恐怖袭击的发生很可能由两方面入手。其一，是制造天然气管道爆炸事故，该类事件发生概率超过50%；其二，则是警察暴动，发生概率亦超50%。同时，中共党魁习近平在这场奥运中染毒的机率超过了70%，冬奥或将成为这位独裁者最后的噩梦。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture17.jpg)
+郭先生分析，这两种危机对于习近平来说，都是防不胜防。首先，若想要完全避免天然气事故的发生，除非做到全城断气，否则这类事故将无从杜绝。其次，除中央警卫团之外，中共的警察系统习控制不了，一直就是政法委的势力所在，而冬奥会，或许就是借警察暴动铲除习近平的最好时机。近期，中共的公检法、政法委系统人员频频出现大动，就是习近平在为冬奥期间的自保做出准备。
 
+郭先生总结道，此次冬奥会会让中共党内乃至全世界都极为震惊。而在明年的五月份之前，这个世界将会相当动荡。
 
-**[GTV视频链接](https://gtv.org/video/id=61c1c1c3bcb7f101bb726cf9)**
+参考链接：[政治动乱、谋杀恐成北京冬奥闭幕大礼](https://gtv.org/video/id=61bf5c86bcb7f101bb70b057)
 
-**板块1–中共病毒、疫苗灾难**
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-1.大卫建战友康复灭共群（Telegram电报）目的：相互交流、关注病毒康复者的心理状况。进群请遵守群规。
+总编：DM
+编辑：DM
+校对/发稿：Hetangyuese
 
-2. 英国日报告八万二千八百六十六病例，爱尔兰属于“重灾区”；英国确认Omicron死亡人数已经十二人；新西兰当局将辉瑞疫苗与一名26岁男子死亡相关联（心包炎）。
-
-3. 呼吁战友们做好防护措施（备药、防护装备）。
-
-**板块2–香港台湾**
-
-1.亲共产党候选人在香港选举中赢得多数席位，投票率骤降，五眼联盟对香港选举结果表示关切，G7谴责香港民意调查，中共辩称因新冠病毒、反中分子、外部干扰造成选举率低下。
-
-2.香港选举结果已经“版本化”完全效仿中共国内选举模式。投票率仅有39.2%创历史新低。中共再次“强奸”全世界的智商，持续对香港年轻人进行迫害，并利用媒体新闻煽动矛盾和仇恨洗脑香港人（比如：在宣传香港年轻人暴力时，配备的新闻视频就是黑衣人暴力扔汽油瓶、制造混乱，最后播放小孩子哭的视频博得同情心，固定香港人的思维定式）。国际社会表态反对，但已经为时已晚。
-
-3. 中共国间谍渗透进台湾军队。前特警警卫官、总统警卫官等21名尉及以上军衔在职和退休军人因从事间谍罪被定刑。案件已经了结才会在媒体报道，台方止损已经完成。
-
-4. 中共在台湾设立的侨联、侨办即勾兑台湾的渠道，深度涉入台湾国防情报和台湾领导人状况。中共在世界范围长期培养“蛇、燕子”，在关键时候“捅刀子”。
-
-5. 英喜欢迎特务伪类来加入，英喜“基本盘”扎实，不惧伪类渗透。
-
-**板块3–社会文化**
-
-1.“直播女王”薇娅因偷税漏税被罚13.4亿。
-
-据小福利认识薇娅的朋友反馈，黄薇本人（三八红旗手）很瘦面部有明显填充痕迹，但直播工作辛苦。“网红经济”让中共国经济“去实向虚”，明星届的“整风运动”开始，中共最初让其随意发展赚钱，等“养肥了”以各种法律名义“割韭菜”，中共治理下没有任何人可以安全。
-
-2.值得深思的问题，王力宏婚内的“乱事情”被广泛传播（道德问题），而张高丽事件“全网无影”（犯罪问题）。中共治理下道德沦丧、引导式灌输、虚伪做作，完全让百姓忽略真正的社会经济问题。
-
-**板块4–财经**
-
-1.亚马逊与中共国宣传部门合作，被责令取消对《习近平谈治国理政》一书的评论。类似2019年《学习强国APP》不被显示差评的操作。华尔街资本开始讲究“政治争取”以获取中共国市场。
-
-2.中共招标购买五毛水军做虚假信息宣传，操控Facebook和Twitter。
-
-中共用钱养活这帮网络造假之徒。内部招标文件被纽约时报曝光很“蹊跷”，文件价格虚高骗取钱财，实际价格应该很低，是典型中共国“层层欺骗、层层压迫、玩弄百姓”的模式。
-
-*编辑：【英国伦敦喜庄园编辑部】*
-
-*听写：call me uncle|PR: 乐禧禧| Page：小六月*
-
-- [欢迎关注GTV-大卫作战室](https://gtv.org/user/5e86008377d0e42087e2a56d#home)
-- [欢迎关注YouTube-大卫作战室](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
-- [欢迎关注YouTube-大卫作战室 备用直播号](https://www.youtube.com/channel/UCSjAwTM1autpHTLVihdJHHg)
-
-[![](https://express.adobe.com/page/pDxmSlBB8XBlc/images/a90e0d9b-08ae-41c0-a8a2-82b053736a4e.jpg?asset_id=03cf270f-9326-428a-a462-968d7fe14dee&amp;img_etag=%221daeca2c04053e77ca1ac242e9218160%22&amp;size=1024)](https://express.adobe.com/page/pDxmSlBB8XBlc/images/a90e0d9b-08ae-41c0-a8a2-82b053736a4e.jpg?asset_id=03cf270f-9326-428a-a462-968d7fe14dee&amp;img_etag=%221daeca2c04053e77ca1ac242e9218160%22&amp;size=1024)
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

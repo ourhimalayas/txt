@@ -2,24 +2,35 @@
 ---
 
 
-## 安倍讲话后中共取消日本驻华使馆的活动
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1778393/)
+## 中共病毒康复后仍可能患癌，经济黑暗时代即将到来
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1778507/)
 
-俄罗斯莫斯科喀秋莎农场  银河
+作者：纽约香草山教育部 – Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+在12月19日的大直播中，郭文贵先生着重提醒战友，务必要注意两个坏消息：
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/12/J-5.jpg)cnfocus.com
-日本共同社12 月21日报道，知情人士透露在日本前首相安倍晋三就台湾问题发表讲话后，中共国迫使日本驻华大使馆取消本月早些时候的文化交流活动。
+第一，科学家告诉郭先生，所有感染过中共病毒的康复者，在未来3-10年内，超过50%的概率会患癌症。而唯一的办法，就是合理的吃青蒿素和伊维菌素，特别是补铁、维他命等。并提醒，一定要科学的吃药，还要定期检查身体；在运动健身方面一定要避免剧烈运动。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture15.jpg)
+第二，世界经济唯有崩塌之路。由于美国疯狂印钞，导致美元贬值严重，物价飞涨，美国的汽油面包均已涨价超过50%。目前全球经济是滞胀同存，物资缺乏，法币贬值，有钱也买不到东西，没钱就更难过。
 
-12月1日，安倍晋三在一个活动上说，任何有关台湾的紧急情况对日本和美国安全联盟都将是紧急事件。
+郭先生还特别强调，一定要做好5-10年、甚至更长时间的准备，以应对经济上从未有过的黑暗时期。
 
-消息人士称，安倍就台湾问题发表讲话一天后，在约250名受邀参加文化交流活动的嘉宾中，许多中共国人受到了当局的压力，以感染中共病毒的风险为由，拒绝参加活动。原定于12月7日举行的中日活动最终被迫取消。明年是两国邦交正常化50周年，然而双边关系日显脆弱。
+参考链接：&lt;a href="https://gtv.org/video中共病毒康复后仍可能患癌，经济黑暗时代即将到来
 
-安倍在担任日本首相近8年后，于2020年卸任。这位日本前领导人是在出席台湾智库活动时称，加强台湾、日本和美国之间的关系“对该地区的和平与稳定至关重要”。目前，中共国正对台湾这个民主统治的岛屿施加外交和军事压力。
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-参考链接：
+总编：文特
+编辑：DM
+校对/发稿：Hetangyuese
 
-[https://english.kyodonews.net/news/2021/12/471dda4e44da-china-scuttles-japan-embassy-event-over-abe-comments-on-taiwan.html](https://english.kyodonews.net/news/2021/12/471dda4e44da-china-scuttles-japan-embassy-event-over-abe-comments-on-taiwan.html)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
 
  
 

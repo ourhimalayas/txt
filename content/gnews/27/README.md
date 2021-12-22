@@ -2,35 +2,19 @@
 ---
 
 
-## 中共病毒康复后仍可能患癌，经济黑暗时代即将到来
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1778507/)
+## 抵制冬奥会的意义重大 中共已经走上集权灭亡的老路
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1778529/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-在12月19日的大直播中，郭文贵先生着重提醒战友，务必要注意两个坏消息：
+抵制[冬奥会](https://gettr.com/hashtag/%23%E5%86%AC%E5%A5%A5%E4%BC%9A)的意义重大。中共已经走上了希特勒和斯大林集权灭亡的道路。1, 中共没有当年德国纳粹的技术实力；2, 中共绝对复制了斯大林当年把人民财产公有化，国家权力私有化；3，低估了美国实力的强大。这也是集权走向灭亡的必然[，所以共产党必死无疑](https://gettr.com/hashtag/%23%E5%85%B1%E4%BA%A7%E5%85%9A%E5%BF%85%E6%AD%BB%E6%97%A0%E7%96%91) 。
 
-第一，科学家告诉郭先生，所有感染过中共病毒的康复者，在未来3-10年内，超过50%的概率会患癌症。而唯一的办法，就是合理的吃青蒿素和伊维菌素，特别是补铁、维他命等。并提醒，一定要科学的吃药，还要定期检查身体；在运动健身方面一定要避免剧烈运动。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture15.jpg)
-第二，世界经济唯有崩塌之路。由于美国疯狂印钞，导致美元贬值严重，物价飞涨，美国的汽油面包均已涨价超过50%。目前全球经济是滞胀同存，物资缺乏，法币贬值，有钱也买不到东西，没钱就更难过。
+北京冬奥不会超过30个国家出席。美国代表团也会去，因为美国的商家和运动员有合同和信用要履行。其余国家多半是为了钱或因为“忌惮”中共而来的。
 
-郭先生还特别强调，一定要做好5-10年、甚至更长时间的准备，以应对经济上从未有过的黑暗时期。
+但是，这也足够让一些明白的中国人看明白，中共已经是在灭亡的边缘垂死挣扎了。
 
-参考链接：&lt;a href="https://gtv.org/video中共病毒康复后仍可能患癌，经济黑暗时代即将到来
-
-![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
-
-总编：文特
-编辑：DM
-校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
-
+视频来源: 2021年12月19日郭先生大直播视频
+视频制作: 文星光
+文案: 梦田、文星光
+上传: 零点
 
  
 
