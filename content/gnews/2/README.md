@@ -2,38 +2,38 @@
 ---
 
 
-## 佟丽娅成功上位高官，新浪微博疯狂删帖
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1779871/)
+## 学者研究表明，中共病毒对精子质量的影响很大
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1779923/)
 
-北京时间12月21日晚，新浪微博有网友爆出佟丽娅离婚后当小三成功上位，再嫁的对象为中央电视台台长慎海雄，这也可以解释缘何演员身份的佟丽娅可以以主持人的身份登上春晚的舞台。而从爆出的时间线来看，佟丽娅应为婚内出轨。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/001.png)
-中央电视台台长慎海雄
-![](https://assets.gnews.org/wp-content/uploads/2021/12/002-1.jpg)
-主持春晚的佟丽娅
+**【雅典娜快讯】，紧贴时代脉搏**
 
-随后微博迅速删除相关话题，并封禁大量账号，大陆网友则在不同热搜下评论佟丽娅，提示大家前往吃瓜，并创建几十个佟丽娅相关话题，但目前均以无法显示。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/003.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/004.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/005.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/006.jpg)
-新浪微博作为大陆流量最大的社交平台之一，始终严格管控着言论，涉及到权贵的信息会立刻删除，平日充斥着各种娱乐信息及洗脑宣传，以防止老百姓了解社会真实的情况。同时偶尔会出现一些热点新闻，作为控制言论的遮羞布，又可以起到引导舆论的目的。即便如此，网友间仍有“微博办案”的说法，这也反应出各级政府及相关部门的不作为，以及社会缺少法治的病态。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1171.png)图片来源：Verywell Family
 
-撰稿：cris-7
+**整理报道：美哥
+编 辑：文泓**
 
-发布：黎明之前
+当地时间12月21日，根据RT新闻报道，最新研究成果表明，感染中共病毒会减少高达37%的精子数量，同时精子活力也有所下降，并对精子质量的影响可长达3个月之久。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
+该项研究由比利时大学机构牵头，总共观察了120个中共病毒有症状感染者。研究成果虽然还没有被同行评估，但在周一已经发表在《生育与不育》杂志上。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+参加研究的男性平均年龄35岁，截止采样时，人均52天都没有再出现过感染症状，但精子数量仍因病毒感染的后续影响下降了37%，精子活力也丧失了60%。中共病毒对男性生育力的影响通常持续3个月后才能恢复正常水平。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+研究结论表明，“需要提醒想要怀孕的夫妇，中共病毒感染后的精子质量是堪忧的”，而科学家还认为中共病毒对于生育的长期影响尚待进一步研究。
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+科学界早已知晓流感会损伤精子，主要归咎于流感病毒引起的体温过高的副作用。然而，中共病毒损害精子的方式与高烧无关，也不是免疫系统对病毒的攻击引起的。**该项研究对参与的男性样本进行了检测，表明病人血液中高浓度的病毒抗体中和精子功能降低（临时性精子功能障碍）之间才是有关联的**。
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+尽管如此，研究者认为“有强有力证据”表明，只要已经康复的病人，是不会通过性交传播中共病毒的。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+新闻链接：[Study reveals effects of Covid on sperm — RT World News](https://www.rt.com/news/543904-covid-reduces-sperm-count/)
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+*发布：盘古相聚*
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

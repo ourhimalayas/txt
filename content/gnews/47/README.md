@@ -2,22 +2,20 @@
 ---
 
 
-## 墙内主播补税事件继续发酵
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1778968/)
+## 法媒称台内部亲中共势力是北京特洛伊木马
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1778969/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+作者：纽约香草山医疗部 – 云豹
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-12月20日，墙内“直播一姐”薇娅因偷逃税被罚款的消息传出后，关于其他主播税务问题的传言也越来越多。据墙内税务部门的消息，除薇娅外，还有部分头部主播没有被披露，各头部主播一直在补税，且越查漏洞越大，“数额惊人，至少几个亿”。除此之外，各相关方面还商讨了公布其余头部主播的恰当时机，具体处罚也不会在同一天公布。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture17-1.jpg)
-据中共官媒的消息，税务部门已经印发通知，对相关经纪公司及经纪人、网络平台企业、中介机构和帮助设计、策划、实施逃避税行为的第三方等进行联动检查，一并依法从严处理。
+12月19日晚上，法国一家人气较高的电视台以“台湾：被中共巨人围困的岛屿”为题，播出了一个一小时的深入报道专辑，分析中共对台湾民主发展的威胁，及台湾民主发展的韧性。主持人称赞台湾是民主的典范，并指出台湾内部的亲中共势力是北京在台湾内部的特洛伊木马。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture15-2.jpg)
+主持人指出，台湾拥有自由蓬勃的经济，是进步的社会、民主的典范。 中共正企图如同对待香港一样，分别以外交、武力的方式对台湾施压，并用金钱来收买卖台贼。
 
-据称，截至目前，已有上千名主播主动自查，补缴税款。
-
-参考链接：[墙内主播补税事件继续发酵](https://cj.sina.cn/article/norm_detail?url=http%3A%2F%2Ffinance.sina.cn%2F2021-12-21%2Fdetail-ikyamrmz0261005.d.html&amp;autocallup=no&amp;isfromsina=yes)
+参考链接：[法媒称台内部亲中共势力是北京特洛伊木马](https://www.cna.com.tw/news/firstnews/202112200313.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
 ![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-总编：飞虹
+总编：文特
 编辑：飞虹
 校对/发稿：Hetangyuese
 
