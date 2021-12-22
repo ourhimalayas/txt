@@ -2,38 +2,61 @@
 ---
 
 
-## 拜登承认他的疫苗强制令不受欢迎
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1781448/)
+## 2021年12月22日文贵先生直播摘要及音频—银河系农场
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1781528/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+![](https://assets.gnews.org/wp-content/uploads/2021/12/6c0f978e2ce037b35be222dd74486352.jpg)
+视频连接：[2021年12月22日 文贵大直播：外媒采访台前幕后；疫苗灾难典型案例；彭帅被迫澄清事实；大外宣媒体真面目](https://gettr.com/streaming/pkcrqm1be7)
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/12/B-1.png)newshub.social
-《福克斯新闻》发表文章，题目是“拜登承认他的疫苗强制令不受欢迎，但表示这些强制令‘合法且有效’”，文章副标题透露，拜登说，疫苗强制令“甚至对那些急于获得疫苗的人来说都不受欢迎”。【1】
+1、Vice 记者评价文贵先生：所有海外反共浪潮是由文贵先生而起；
 
-全文如下：
+2、中共大外宣媒体Vice 记者（Isobel Yeung）采访郭先生，对采访内容进行造谣及后期剪辑，并把海外华人定为恐怖分子；
 
-拜登总统在星期二（12月21日）的讲话中承认，他的对大型私人企业的中共病毒疫苗强制令及强制测试是“不受欢迎的”，但坚持认为这对每个人都有利。
+3、Vice 记者（Isobel Yeung）断章取义，通过剪辑视频，把战友小斯基定义为恐怖分子，战友Nicole 定为极右分子，对这两位战友的人身安全造成极大的威胁；
 
-拜登在白宫国宴厅（the White House’s State Dining Room）向全国发表讲话时说：“当人们接种疫苗或接受检测时，他们得病的可能性和向他人传播疾病的可能性要小得多。”
+4、Isobel Yeung用欺骗的手段，骗取被采访人的信任并断章取义被采访人的语言、随意攻击被采访人为暴力分子，这种明显属于采访型的欺骗，是其职业专业绝对不允许的，违背了美国法律；
 
-“顾客更可能进来购物，因为他们知道这是一个安全的环境。”他继续说，“我知道疫苗接种要求对许多人来说并不受欢迎，甚至对那些急于接种疫苗的人来说也不受欢迎。我的政府实施这些措施不是为了控制你的生命，而是为了拯救你和其他人的生命。”
+5、HBO和vice什么关系？HBO作为国际上最老最大的媒体，背后的时代华纳和中共什么关系？vice 2013的投资是谁？和共产党（PAG）单伟建什么关系？
 
-拜登发表上述言论之前，辛辛那提的美国第六上诉法院于解除了11月的一项禁令，该禁令阻止了“职业安全与健康管理局”（the Occupational Safety and Health Administration）的这项规定，该局规定，拥有至少100名雇员的私营企业，要求员工接种疫苗或定期进行检测。
+6、七哥爆料，中共利用免除债务的方式勾兑，让很多国家支持冬奥会。中美即将取消贸易关税；
 
-拜登在讲话中说，这项规定“合法有效”，将拯救“成千上万的美国人的生命”。
+7、奥米克戎的严重后果，超出了大家的想象，比以前预期的要严重
 
-由于奥密克戎变种的传播，新病例激增，拜登宣布了三项措施，以在他先前宣布的冬季计划的基础上再接再厉——包括增加对医院的支持、获得免费检测和扩大美国人接种疫苗的能力。
+8、对于奥米克戎，伊维菌素和青蒿素不再是100%有效了；
 
-（原文完）
+9、彭帅事件：国安委员会紧急事故处理办公室，启动紧急机制，约谈彭帅，谈判专家长达20个小时对彭帅及家人谈心，习近平 在玉泉山小会议室亲自约谈彭帅，共产党明确告诉彭帅，所有家人全部不许出国，所有银行卡都是查封状态；
 
-面对强烈的抗拒，拜登怂了？至少他要面对现实，承认现实。按说第六巡回法院解除了第五巡回法院的暂停判决，他应该得意才是。若是没有感到强大的抵抗，他不会有这样的表态。压力之一或许就是来自最高法院，接手这个诉讼的法官布雷特·卡瓦诺 (Brett Kavanaugh)周一（12月20日）作了表态，卡瓦诺要求拜登政府回应第六巡回法院裁决的大量上诉。由于地理原因，卡瓦诺负责监督第六巡回法院的紧急上诉，卡瓦诺还为拜登政府的回应设定了截止日期和时间，即 12 月 30 日下午 4 点【2】。最高法院可能会在 2022 年初对此案采取行动。笔者并不看好最高法院能作出明智的判决，卡瓦诺目前的这种表态，也许是最高法院双方各打一板的策略。当然，他们若能真正认清疫苗的无用、疫苗的危害、疫苗的阴谋，否决第六巡回法院的判决，那才是正义在美国最高法院的彰显。
+10、14亿人都知道彭帅被性侵了，共产党用一国之力在全世界面前颠倒黑白；
 
-有关链接：
+11、彭帅一定会消失（被精神病、被自杀）；
 
-【1】[https://www.foxnews.com/politics/biden-vaccine-mandates-unpopular-legal-effective](https://www.foxnews.com/politics/biden-vaccine-mandates-unpopular-legal-effective)
+12、一定要看七哥Vice造假对比视频。
 
-【2】[https://www.foxbusiness.com/politics/supreme-court-vaccine-mandate-kavanaugh-biden-respond](https://www.foxbusiness.com/politics/supreme-court-vaccine-mandate-kavanaugh-biden-respond)
+**注：直播大音频正在制作和上传中，敬请关注——**
+
+**（直播大音频位置）**
+
+编辑整理：文俊；
+
+发布：黎明之前
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

@@ -15,97 +15,97 @@
 
 ---
 
-### [七哥谈“大兴全清”（2021-12-19摘录）](/content/gnews/1/README.md)
+### [美国务卿和立陶宛总理就反击中共的外交经济胁迫通话](/content/gnews/1/README.md)
+ ` 日本东京方舟农场`
+
+### [七哥谈“以共灭共，以美灭共”（2021-12-19摘录）](/content/gnews/2/README.md)
  ` MG FARM`
 
-### [DC每日热点1222](/content/gnews/2/README.md)
+### [灭共者之郭先生直播厅：反对假疫苗](/content/gnews/3/README.md)
+ ` MOS Designer香草山设计部`
+
+### [七哥谈中央警卫团（2021-12-19摘录）](/content/gnews/4/README.md)
+ ` MG FARM`
+
+### [七哥谈“大兴全清”（2021-12-19摘录）](/content/gnews/5/README.md)
+ ` MG FARM`
+
+### [DC每日热点1222](/content/gnews/6/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [七哥谈咱有情报（2021-12-19摘录）](/content/gnews/3/README.md)
+### [七哥谈咱有情报（2021-12-19摘录）](/content/gnews/7/README.md)
  ` MG FARM`
 
-### [为什么我为美国和全世界自由挺身而出](/content/gnews/4/README.md)
+### [为什么我为美国和全世界自由挺身而出](/content/gnews/8/README.md)
  ` MG FARM`
 
-### [2021年12月22日文贵先生直播摘要及音频—银河系农场](/content/gnews/5/README.md)
+### [2021年12月22日文贵先生直播摘要及音频—银河系农场](/content/gnews/9/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [2021年12月22日文贵先生直播小飞象大雨围城速记](/content/gnews/6/README.md)
+### [2021年12月22日文贵先生直播小飞象大雨围城速记](/content/gnews/10/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [中共间谍全方位渗透台湾军队](/content/gnews/7/README.md)
+### [中共间谍全方位渗透台湾军队](/content/gnews/11/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [特鲁多再次拒绝承认中共种族灭绝](/content/gnews/8/README.md)
+### [特鲁多再次拒绝承认中共种族灭绝](/content/gnews/12/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [拜登承认他的疫苗强制令不受欢迎](/content/gnews/9/README.md)
+### [拜登承认他的疫苗强制令不受欢迎](/content/gnews/13/README.md)
  ` HimalayaRussia`
 
-### [文贵爆料 12.22：VICE虚假的采访报道——谁在拨动媒体的琴弦](/content/gnews/10/README.md)
+### [文贵爆料 12.22：VICE虚假的采访报道——谁在拨动媒体的琴弦](/content/gnews/14/README.md)
  ` 秘密翻译组-原创组`
 
-### [【文贵先生大直播PPT】疫苗大灾难](/content/gnews/11/README.md)
+### [【文贵先生大直播PPT】疫苗大灾难](/content/gnews/15/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [王岐山厦门露脸，生不如死继续捧习](/content/gnews/12/README.md)
- ` 波士顿五月花农场`
-
-### [【文贵先生大直播PPT】抵制冬奥 彭帅被迫澄清](/content/gnews/13/README.md)
+### [【文贵先生大直播PPT】抵制冬奥 彭帅被迫澄清](/content/gnews/16/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [【文贵先生大直播PPT】中共媒体对爆料革命的超限战](/content/gnews/14/README.md)
+### [【文贵先生大直播PPT】中共媒体对爆料革命的超限战](/content/gnews/17/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [2021年12月22日文贵先生直播大雨围城速记](/content/gnews/15/README.md)
+### [2021年12月22日文贵先生直播大雨围城速记](/content/gnews/18/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [加拿大魁省疫情再次刷新记录](/content/gnews/16/README.md)
+### [加拿大魁省疫情再次刷新记录](/content/gnews/19/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [文·贵天成——文贵先生谈“中原佛手、裕达国贸”（十）](/content/gnews/17/README.md)
- ` 墨尔本雅典娜农场`
-
-### [德国警告中共：德海军近期的任务只是刚刚开始](/content/gnews/18/README.md)
- ` 墨尔本雅典娜农场`
-
-### [Đảng Cộng Sản Trung Quốc đã xâm nhập nghiêm trọng vào quân đội Đài Loan, và an ninh của Thái Anh Văn cũng nằm trong đó](/content/gnews/19/README.md)
+### [Đảng Cộng Sản Trung Quốc đã xâm nhập nghiêm trọng vào quân đội Đài Loan, và an ninh của Thái Anh Văn cũng nằm trong đó](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本大阪3名没有出国记录的人员感染Omicron](/content/gnews/20/README.md)
+### [日本大阪3名没有出国记录的人员感染Omicron](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国经济制裁中共官员又添5人](/content/gnews/21/README.md)
+### [美国经济制裁中共官员又添5人](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [氦气短缺！日本迪士尼乐园暂停氦气球售卖](/content/gnews/22/README.md)
+### [氦气短缺！日本迪士尼乐园暂停氦气球售卖](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [人类从来没有像今天这样被共产主义玩成这样](/content/gnews/23/README.md)
+### [人类从来没有像今天这样被共产主义玩成这样](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [共中共拿了10000亿美元现金给俄罗斯就是抗美](/content/gnews/24/README.md)
+### [共中共拿了10000亿美元现金给俄罗斯就是抗美](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [国家概念成了暴力垄断的唯一象征性存在机构](/content/gnews/25/README.md)
+### [国家概念成了暴力垄断的唯一象征性存在机构](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [“叮咚买菜”被曝强制员工无薪排休](/content/gnews/26/README.md)
+### [“叮咚买菜”被曝强制员工无薪排休](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [新中国联邦的教育事业是有这四种人支撑](/content/gnews/27/README.md)
+### [新中国联邦的教育事业是有这四种人支撑](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [世界想模仿夏天的北戴河会议](/content/gnews/28/README.md)
+### [世界想模仿夏天的北戴河会议](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [弱者要得到尊重 老实人要得到更多而非更少](/content/gnews/29/README.md)
+### [弱者要得到尊重 老实人要得到更多而非更少](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共早年就提出生物武器 疫苗化灭美是公开的信息](/content/gnews/30/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [共产党一直吹嘘自己制度优越 但失业大潮会导致几千万套房子断供](/content/gnews/31/README.md)
+### [中共早年就提出生物武器 疫苗化灭美是公开的信息](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [12/22每日播报｜数十名国会议员在有中共背景的非营利组织做顾问](/content/gnews/32/README.md)

@@ -2,21 +2,24 @@
 ---
 
 
-## 【文贵先生大直播PPT】疫苗大灾难
-` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1781442/)
+## 中共间谍全方位渗透台湾军队
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1781508/)
 
-撰稿：飞飞（DC) Now 小哥（香草山）庚子灭共（DC）莲心不染（扬帆）
-美工：青山（英喜）
+采编：文莱        编译撰稿：文所未闻
+![](https://assets.gnews.org/wp-content/uploads/2021/12/06-image02-1.jpg)
+[图片来源](https://www.channelnewsasia.com/asia/china-spies-taiwan-military-espionage-security-2391971)
 
-【2021年12月22日文贵先生大直播PPT：疫苗大灾难】
-![](https://assets.gnews.org/wp-content/uploads/2021/12/11-10.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/12-9.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/13-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/14-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/15-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/16-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/17-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/18-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/19-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/20-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/21-11.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/22-12.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/23-9.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/24-9.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/25-8.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/26-6.jpg)
-**Omicron 从实验室里释放的证据的相关信息源链接：**
+据加拿大《CTV新闻》12月20日报道，香港商人身份的谢锡璋夫妇，因长期在台湾为中共从事间谍活动，近日被当局逮捕并面临相关指控。
 
-1.[https://rumble.com/vqy7qe-dr.-peter-mccullough-on-nfl-protocols-pregnancy-omicron-and-more.html](https://rumble.com/vqy7qe-dr.-peter-mccullough-on-nfl-protocols-pregnancy-omicron-and-more.html)2.[https://rwmalonemd.substack.com/p/has-omicron-shifted-receptor-binding?r=ta0o1&utm\_campaign=post&utm\_medium=web](https://rwmalonemd.substack.com/p/has-omicron-shifted-receptor-binding?r=ta0o1&amp;utm_campaign=post&amp;utm_medium=web)3.[https://frenchdailynews.com/health/3691-omicron-the-molecular-analysis-of-pr-jacques-fantini 4.https://rwmalonemd.substack.com/p/omicron-today?r=ta0o1&utm\_campaign=post&utm\_medium=web](https://frenchdailynews.com/health/3691-omicron-the-molecular-analysis-of-pr-jacques-fantini%204.https://rwmalonemd.substack.com/p/omicron-today?r=ta0o1&amp;utm_campaign=post&amp;utm_medium=web)5.[https://www.cbsnews.com/news/omicron-variant-covid-in-europe-netherlands-before-alert-raised/ 6.https://www.cnbc.com/2021/12/02/where-did-omicron-covid-variant-come-from-and-where-is-it-circulating.html 7.https://www.who.int/news/item/26-11-2021-classification-of-omicron-(b.1.1.529)-sars-cov-2-variant-of-concern](https://www.cbsnews.com/news/omicron-variant-covid-in-europe-netherlands-before-alert-raised/%206.https://www.cnbc.com/2021/12/02/where-did-omicron-covid-variant-come-from-and-where-is-it-circulating.html%207.https://www.who.int/news/item/26-11-2021-classification-of-omicron-%28b.1.1.529%29-sars-cov-2-variant-of-concern)8.[https://twitter.com/P\_McCulloughMD/status/1473299558281191433?s=20 https://www.msn.com/en-us/health/medical/most-omicron-cases-in-us-have-been-mild-but-most-were-vaccinated-cdc-reports/ar-AARGOxE](https://twitter.com/P_McCulloughMD/status/1473299558281191433?s=20%20https://www.msn.com/en-us/health/medical/most-omicron-cases-in-us-have-been-mild-but-most-were-vaccinated-cdc-reports/ar-AARGOxE) 9.[https://www.msn.com/en-us/health/medical/most-omicron-cases-in-us-have-been-mild-but-most-were-vaccinated-cdc-reports/ar-AARGOxE 10.https://www.voiceforscienceandsolidarity.org/videos-and-interviews/geert-vanden-bossche-speaks-about-omicron-and-mass-vaccination-at-dana-show](https://www.msn.com/en-us/health/medical/most-omicron-cases-in-us-have-been-mild-but-most-were-vaccinated-cdc-reports/ar-AARGOxE%2010.https://www.voiceforscienceandsolidarity.org/videos-and-interviews/geert-vanden-bossche-speaks-about-omicron-and-mass-vaccination-at-dana-show)
+据悉，谢锡璋早在2006年就通过向台湾军队官员及其家人提供海外旅游，现金及礼品的方式，发展其代理人并建立中共间谍网。直至2019年6月，台湾反间谍官员才破获该间谍组织。
 
-* * *
+报道称，中共对台湾展开的全面军事渗透活动已成常态，并以收买军界官员为主要手段，全面掌握台湾国防和军事信息。甚至还以此控制了台湾总统蔡英文周围的安保人员。因此，双发一旦开战，台湾军队中潜伏的中共间谍必将伺机而动。
 
-发稿：云起时
+校对编辑：硫酸羟氯喹64
+
+发稿：苦尽甜来 (文來）
+
+[參考链接](https://www.ctvnews.ca/world/chinese-spies-have-penetrated-taiwan-s-military-case-documents-reveal-1.5714262)
 
  
 
