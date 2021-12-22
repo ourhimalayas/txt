@@ -2,33 +2,30 @@
 ---
 
 
-## 制造环测达标假象 河北某地禁柴封灶致当地民众无法取暖
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1779267/)
+## 秘翻在线:日本政府宣称不歧视未接种疫苗的人
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1779284/)
 
-作者：纽约香草山 – 飞虹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-中共媒体12月20日报道，河北省秦皇岛市山海关地区以清洁取暖为由，禁止民众烧柴、烧煤，导致部分群众在寒冷的冬季无法取暖，挨冷受冻。
+撰稿:牛小妹
+![](https://assets.gnews.org/wp-content/uploads/2021/12/biden-2.jpg)
+图片: 欧新社
 
-报道认为，秦皇岛市近几年开始推广清洁取暖，但并未在全市范围内全面限制燃煤烧柴，之所以在山海关地区进行彻底管控，主要因为该区设有一个大气监测国控点位，如果在该区域放开煤、柴限制，会造成大气监测数据不达标，影响整个地区的环评监测结果。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture15-1.jpg)
-为了数据达标，不影响政绩，当地政府就让民众在寒冷中勉强度日。禁止燃煤之后，政府虽然给受影响住户发放过一些电暖器，但电暖器功率太小，远远达不到基本的采暖标准，另外，政府给予的象征性补贴，也远远弥补不了取暖所需的全部成本。
+**日本政府完全尊重个人接种疫苗的意愿**
 
-参考链接：[制造环测达标假象 河北某地禁柴封灶致当地民众无法取暖](https://gettr.com/post/pk7pss096fa)
+尽管许多国家要求强制接种中共病毒疫苗，但日本政府告诉公民”不能歧视未接种疫苗的人”， 声称疫苗只能在本人完全同意的情况下使用，不应用作胁迫或恐吓的工具。
 
-![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+日本政府在厚生劳动省网站上发布了以下通知 :
+“虽然我们鼓励所有公民接种中共病毒疫苗，但这不是强制性的。只有在政府提供疫苗讯息并获得接种者同意之下，才能接种疫苗。请根据个人的需求来决定是否接种疫苗，并了解预防传染病的有效性和副作用的风险。未经本人同意，不得接种疫苗。请不要强迫工作场所的任何人接种疫苗，不要歧视没有接种疫苗的人。”
 
-总编：天灭中共
-编辑：天灭中共
-校对/发稿：Hetangyuese
+日本首相的 网站上 也有类似的声明:
+“未经接种者本人同意，绝不会强制接种疫苗。我们敦促大众永远不要强迫在工作场所或周围的其他人接种疫苗，永远不要歧视没有接种疫苗的人。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+**西方政府成为”新法西斯主义”代言人**
 
+然而，与此同时，奥地利政府正招聘人员”追捕”那些拒绝强制接种疫苗的人，德国也将通过强制执行接种疫苗来跟随奥地利的法西斯脚步，拒绝接种疫苗者将面临不断升级的罚款并最终被判入狱。
+
+尽管西方政府曾经声称是公民自由的首要捍卫者，然而从此次中共病毒疫苗事件而言，西方政府处心积虑地用毒针伤害人民的生命，早已丧失自由民主捍卫者的地位，而成为彻头彻尾”新法西斯主义”的走狗。
+
+消息来源:[Japanese Government Tells Citizens: “Don’t Discriminate Against The Unvaccinated”](http://Japanese%20Government%20Tells%20Citizens:%20&quot;Don't%20Discriminate%20Against%20The%20Unvaccinated&quot;)
 
  
 

@@ -2,43 +2,18 @@
 ---
 
 
-## 有声| 了解信仰，走出误区
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1779422/)
+## 秘翻在线：出展迪拜世博会的日本寿司店11名员工确诊感染
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1779510/)
 
-配音：香草山福音部 – Daxia
+撰稿：待命（文暁）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/16401468841.png)（图片源自本文链接）
+12月22日读卖新闻消息：经济产业省（METI）透露，参加正，在阿拉伯联合酋长国（UAE）举办的迪拜国际博览会的，日本展馆的传送带式寿司店Sushi Road 万博店的10名员工已经感染了中共病毒。
 
+该店自20日起停止营业，待确认安全后再回复营业。日本馆整体照常参展。
 
+作为中东地区的第一个世博会，迪拜世博会于10月开幕，由于中共病毒新变种的扩散，游客人数明显放缓。新变种奥密克戎也影响到了12月11日举行的介绍日本传统和文化的 “日本日 “活动，活动规模被被迫缩小。
 
-
-
-很多人以为我们可以走进信仰，成为一名基督徒，其实这是我们认识的第一个误区，也是我曾经的误区。
-
-基督教信仰从来不是我们主动去寻找上帝，然后结局很美好，心诚则灵，我找到了。不是的，人类寻找上帝的结果，就是我们今天所看到的宗教派别林立，你抱着大象腿说大象是一个柱子，他抱着大象耳朵说大象是一面扇子。
-
-
-
-**文字版原文：[了解信仰，走出误区](https://gnews.org/zh-hans/924793/)**
-
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+信息源：[ドバイ万博出店のスシロー、従業員１０人がコロナ感染 (msn.com)](https://www.msn.com/ja-jp/news/world/%E3%83%89%E3%83%90%E3%82%A4%E4%B8%87%E5%8D%9A%E5%87%BA%E5%BA%97%E3%81%AE%E3%82%B9%E3%82%B7%E3%83%AD%E3%83%BC-%E5%BE%93%E6%A5%AD%E5%93%A1%EF%BC%91%EF%BC%90%E4%BA%BA%E3%81%8C%E3%82%B3%E3%83%AD%E3%83%8A%E6%84%9F%E6%9F%93/ar-AAS2u5r?ocid=msedgntp)
 
  
 

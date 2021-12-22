@@ -2,29 +2,32 @@
 ---
 
 
-## 科研践踏犯罪行为：半途终止中共病毒 药物瑞德西韦的研究，然后调整以歪曲结果
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1778939/)
+## 中共支付一千多亿美元求普京出席冬奥
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1778966/)
 
-编译： 真北007
-![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕截图-2021-12-21-190728.png)图片来源：网络
-来自REDVOICE MEDIA星期一12月20日的新闻报道：
+作者：东京樱花团 – 在远方
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+郭文贵先生在12月20日的盖特视频中爆料，目前普京已经收到了中共拱手相送的一千多亿美元的支票，表示同意以个人名义出席北京冬奥会。
 
-瑞德西韦Remdesivir：福奇Fauci 知道它是有毒的且杀死了人，但无论如何还推广它。
+郭先生指出，在共产党冬奥会的政治游戏中，唯一受到伤害的就是中共国10亿人民，所有中国人都将为了这个在国际上和政治上，完全没有任何价值的愚蠢的作秀而付出巨大的代价。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture14-1.jpg)
+除了送给俄罗斯的一千多亿美元，加上冬奥会场地、人员、服装、后勤、安保等其他费用，中共总共需要花费数千亿美元。这是极其可悲、可怜、可恨的，这也是全世界最昂贵的一场灾难游戏。而在世界经济即将崩塌之前，爆料革命的声音，是世界上唯一救人的忠言警告。
 
-在谈到 COVID-19 以及美国对病毒的反应时，一名男子已将自己置于整个大流行的最前沿。作为乔·拜登总统的首席医疗顾问，安东尼·福奇博士持续推动几个月后采取了不同立场的议程和讲述。随着他不道德的过去受到质疑，许多人开始调查 这个COVID-19 背后的人以及继续给全国带来灾难的疫苗强制令。
+参考链接：[中共支付一千多亿美元求普京出席冬奥](https://www.gettr.com/post/pk5p5a0268)
 
-在原文的视频中，Paul Maik 博士在田纳西州纳什维尔举行的 COVID 峰会上发表讲话，当时他提出了一种用于治疗埃博拉患者的名为 Remdesivir 的药物的研究过程。 2019 年 12 月 12 日，在宣布 COVID-19 的同时，《新英格兰医学杂志》发表了研究结果，即瑞德西韦是一种有毒药物，会导致患者死亡并增加肾功能衰竭的风险。根据迈克的说法，福奇博士知道这一点，但他甚至在所有数据汇编之前就将其推广为 COVID-19 的治疗方法。
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-Maik 继续补充说：“在研究进行到一半时，他们进行了中期分析，发现该研究不会有好的结果。因此，他们在研究进行到一半时改变了目标，即球门。这正是科学不端行为。”
+总编：飞虹
+编辑：飞虹
+校对/发稿：Hetangyuese
 
-**点评：**文贵先生也及时告诉过世界，瑞德西韦也是一种杀人武器，中共病毒背后的人，为了利益任何邪恶的事情都干得出来!
-
-原文链接：[https://www.redvoicemedia.com/2021/12/scientific-misconduct-study-on-covid-drug-halted-then-adjusted-to-skew-results-video/](https://www.redvoicemedia.com/2021/12/scientific-misconduct-study-on-covid-drug-halted-then-adjusted-to-skew-results-video/)
-
-编辑/发布：LILY
-
-20211221
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,49 +2,88 @@
 ---
 
 
-## 加拿大警察辞职认为疫苗强制等同于大屠杀
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/1779201/)
+## 参议员瑞克·斯科特: 美国必须继续与要求民主的香港人站在一起
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1779227/)
 
-加拿大扬帆农场 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2021/12/December-WS-Regular-Graphics-27.jpg)图片来源：The Western Standard
-根据《卡尔加里先驱报》(Calgary Herald) 12月21 日报道，一名警察将COVID-19疫苗强制与纳粹种族灭绝相提并论，并且已经从卡尔加里警察局辞职。
-
-前警员布莱恩-丹尼森（Brian Denison）曾是该局仇恨犯罪部门的成员，他说他在上个月被停薪留职并被告知不能公开谈论该市的一项政策，该政策规定没有完全接种疫苗的警官必须提交定期测试结果，之后他就退出了警队。
-
-丹尼森周六在市中心的反Covid疫苗集会上说：”我递交了辞呈，因为我不能遵守他们的做法……他们的命令是错误的，不要听他们的”。
-
-CPS周一确认丹尼森不再受雇于警察部门。
-
-丹尼森在CPS工作了22年，他呼吁其他官员也这样做。他说：”让我说清楚CPS并不拥有你，政府不拥有你，他们不能告诉你在你的身体里注射了什么”，他告诉欢呼的人群。
-
-在他9月底穿制服时录制的一段视频中，他说社会对未接种疫苗者的排斥不断扩大，正走向纳粹德国在20世纪30年代所走的类似道路。
-
-他继续说道：”那些接种了疫苗的人，其中很多人，看不起我们这些没有接种疫苗的人，这很容易让人联想到希特勒对犹太人进行的世界大战”。
-
-1933年至1945年，纳粹政权杀害了600万犹太人和数百万其他人，包括同性恋者、罗姆人、左派政治反对派和苏联战俘。
-
-周六，丹尼森说，”加拿大政府的COVID-19疫苗强制政策表明其相关性是存在的，历史上发生的事情正在再次发生”。
-
-这位前警察说他永远不会接受实验性的COVID-19疫苗。
-
-CPS说其93%的员工现在已经完全接种了疫苗。
-
-本月早些时候，CPS局长Mark Neufeld坚持认为如果该部门不为其成员提供免费的COVID-19测试，就会面临人员短缺的挑战。
-
-12月1日是警员提供已完全接种疫苗证明或开始自费从授权供应商处接受定期COVID测试的最后期限。
+参议员瑞克·斯科特： 在他们的沉默中，香港人民已经向 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 发出响亮而清晰的信息。 美国必须继续与要求民主的香港人站在一起，并称这些选举是假的。 【附华尔街日报专栏：香港的民主杯葛-绝大多数民众拒绝参加虚假选举】
 
 
 
-原文链接：
-https://calgaryherald.com/news/local-news/anti-vaxx-police-officer-who-compares-vaccine-mandates-to-holocaust-resigns
-
-* * *
-
-发稿 Spirit
+> In their silence, the people of Hong Kong's message to Communist China has been delivered loud and clear. 
+>  
+> The U.S. must continue to stand with Hong Kongers demanding democracy & call these elections what they are: a sham. [https://t.co/uZ1iQcSIBl](https://t.co/uZ1iQcSIBl)
+> — Rick Scott (@SenRickScott) [December 21, 2021](https://twitter.com/SenRickScott/status/1473410585672966151?ref_src=twsrc%5Etfw)
 
 
 
-通过www.DeepL.com/Translator（免费版）翻译
+参议员玛莎·布莱克本： 乔·拜登正在做什么来追责 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 呢？
+
+
+
+> What is Joe Biden doing to hold the Chinese Communist Party accountable?
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [December 22, 2021](https://twitter.com/MarshaBlackburn/status/1473445554302631944?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿迈克.蓬佩奥： 在川普政府领导下，我们专注于创造一种让美国人重返工作岗位的经济。 拜登政府却专注于失控的支出，让你在一切方面都依赖政府。
+
+
+
+> Under the Trump Admin, we focused on creating an economy that put Americans back to work.
+> 
+> Under the Biden Admin, they are focused on out-of-control spending and making you dependent on the government for everything.
+> — Mike Pompeo (@mikepompeo) [December 21, 2021](https://twitter.com/mikepompeo/status/1473367846621175813?ref_src=twsrc%5Etfw)
+
+
+
+比尔·格茨： Indo-Pacom （太平洋军事指挥部）采用软件工具来监控 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 对美国的愤怒，批评者称之为“绥靖应用程序”。拜登行政裁员的最新迹象是亲北京政策 【附比尔·格茨在华盛顿邮报的文章】
+
+
+
+> Indo-Pacom adopts software tool that monitors Chinese anger of US in what critics are calling the “appeasement app.” Latest sign of Biden admin retrenchment to pro-Beijing policies [https://t.co/6JhHCkW7kO](https://t.co/6JhHCkW7kO)
+> — Bill Gertz (@BillGertz) [December 21, 2021](https://twitter.com/BillGertz/status/1473405658821103617?ref_src=twsrc%5Etfw)
+
+
+
+参议员泰德·克鲁兹： 除了 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 之外，中共在 COVID-19 ([#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click)) 成为全球大流行病时掩盖了它的来源、传播和性质。 【转媒体推文：卡马拉说：“这种病毒袭击了我们的国家或世界，这不是任何人的错。”（附卡马拉讲话视频）】
+
+
+
+> Except for the part where the Chinese Communist Party covered up the source, spread, and nature of COVID-19 as it became a global pandemic. [https://t.co/Ld5MwY51xx](https://t.co/Ld5MwY51xx)
+> — Ted Cruz (@tedcruz) [December 21, 2021](https://twitter.com/tedcruz/status/1473370430580867078?ref_src=twsrc%5Etfw)
+
+
+
+参议员卢比奥新闻办公室： 卢比奥参议员敦促他的同事们支持他的法案，该法案旨在禁止美国投资恶意的中共国公司。 【附参议院官网发布的相关信息】
+
+
+
+> Sen. Rubio urged his colleagues to support his bill to prohibit American investment in malicious Chinese companies. [https://t.co/Ycaw6L6K9n](https://t.co/Ycaw6L6K9n)
+> — Senator Rubio Press (@SenRubioPress) [December 21, 2021](https://twitter.com/SenRubioPress/status/1473358171095851011?ref_src=twsrc%5Etfw)
+
+
+
+参议员汤姆·科顿： 如果五角大楼想找到极端分子，他们应该将目光投向 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 和弗拉基米尔普京的俄罗斯。
+
+
+
+> If the Pentagon wants to find extremists they should look to the Chinese Communist Party and Vladimir Putin’s Russia.
+> — Tom Cotton (@SenTomCotton) [December 21, 2021](https://twitter.com/SenTomCotton/status/1473352289297514496?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克·沃尔茨： 感谢罗恩·德桑蒂斯州长[@GovRonDesantis](https://twitter.com/GovRonDeSantis) 的领导并将佛罗里达州的养老金从 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 转移出去。 我们的养老金不应该被用作 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 削弱美国公司的代价。 【转华盛顿邮报：佛州州长罗恩·德桑蒂斯 (Ron DeSantis) 采取行动将阳光之州的养老基金与中国共产党脱钩】
+
+众议员迈克·沃尔茨： 在5 月份，参议员马可·卢比奥[@MarcoRubio](https://twitter.com/marcorubio) 和我致信佛罗里达州的州领导人，要求他们考虑采取这一行动。 【转华盛顿监察员网：卢比奥和沃尔茨警告佛罗里达州关于养老基金投资 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 公司之事】
+
+
+
+> Thank you [@GovRonDesantis](https://twitter.com/GovRonDeSantis?ref_src=twsrc%5Etfw) for your leadership and getting Florida's pensions out of China. 
+> 
+> Our pensions shouldn't be used to cripple American companies at the expense of the Chinese Communist Party. [https://t.co/EDQqvCHFu3](https://t.co/EDQqvCHFu3)
+> — Rep. Mike Waltz (@michaelgwaltz) [December 21, 2021](https://twitter.com/michaelgwaltz/status/1473327332719005698?ref_src=twsrc%5Etfw)
+
+
 
  
 
