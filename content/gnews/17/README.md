@@ -2,52 +2,47 @@
 ---
 
 
-## GTV和盖特的小视频打到共产党的痛处变成被耍弄的斗牛
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1779914/)
+## 中共为宣传向一家华盛顿电台支付百万
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1779948/)
 
-**郭文贵先生：**共产党所有对异常的声音和批评的声音，处理办法——蓝、金、黄，买、威胁、全搞定，要么来硬的，要么来软的，反正一定管用。在全世界管用，不管对任何人。只有新中国联邦吓也不行，买也不行。而且这帮家伙有能力，越打越强。
+**【雅典娜快讯】，紧贴时事脉搏**
 
-所有过去这四五年来针对的所有政策，一个又一个政策，全都是对着咱们新中国联邦来的。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1174.png)图片来源：mapio
 
-这个所谓的视频剪辑就是：一，不允许剪辑习太阳和彭副主席，以及春节我们要推行的送棺材的活动，就针对着咱来的。这说明他们天天看视频。就像一个检察院的一个哥们告诉我说，七哥，我们全家是反烟族，看到别人抽烟都烦。现在我们全家全抽黑烟，雪茄，他说，连我老娘抽雪茄，一看七哥叼着雪茄的时候，老娘说，不行，给我来一口。现在来着来着都抽上了。
+**翻译：文扬
+编辑：Mttfly**
 
-然后问我生活中你跟谁抽雪茄，我说我真的是，你七嫂子不抽雪茄，她抽白烟，你嫂子是从十几岁就抽烟。我和我女儿抽雪茄，郭美，唯一一个陪我抽雪茄的人。我和我闺女俺两一起抽雪茄。这就是对共产党的影响力。
+新的联邦披露的信息显示，中共政权已向设在华盛顿的一家广播电台支付了近440万美元，用于向美国家庭进行宣传。
 
-就是你想想检察院的一家不抽烟的人，反烟人，最后都，连老娘都开始抽雪茄了，他说我们家都不叫雪茄，全叫雪茄（qie），跟你一样叫，是吧？
+中国国营广播公司CCTV的全球分支CGTN，自2019年7月起向覆盖华盛顿、弗吉尼亚和马里兰州的日间广播电台WCRW支付了435万美元，每天12小时播放其内容。
 
-你看他们怕到啥程度，影响力有多大？所以这一切政策都是对着咱来的。恰恰证明了咱们一定要这么做，更重要的事情是G-TV，所有的小视频、盖特小视频，功能上线，他真害怕，还有秘密直播。
+听众们不知道的是，北京控制了大部分的广播内容。据今年7月签署的一项协议，在上周提交给司法部的文件中披露：禁止电台在未经中国广播公司明确许可的情况下改变或缩短CGTN的节目内容或插入广告。该合同是由WCRW和国际传播规划局签订的，后者是由中共政权的宣传部监督的机构。
 
-你可见咱的每一个决策像跳舞一样，跳探戈的时候，是男女共同的配合；跳华尔兹的时候，是女方占据主角，男方处于一个——优美，跟着女性的抖动，是吧？“咔咔咔”，是吧，摇头摆腚的是吧？
+根据华盛顿自由灯塔首次报道的文件，根据该协议，该局从无线电网络所有者、位于弗吉尼亚州的波托马克广播集团那里收到季度业绩数据。此类报告包括观众反馈和“国际组织的评估”，合同中没有具体说明。广播局也可以委托第三方监督播出效果，并定期进行评估。
 
-咱现在已经把共产党斗得什么样？咱是斗牛，咱只要一脱裤子，一露红裤衩，这牛就疯狂，是吧？咱只要一解扣子，一露红衣裳，它就疯狂，咱准备了全都是（让它）撞上去的东西是吧？咱现在跟共产党已经玩成斗牛状态。
+截至记者发稿时，WCRW没有对《大纪元时报》的媒体询问作出回应。
 
-所以你今天的答案回答你，说明共产党彻底被我们给彻彻底底地牵着鼻子走，我们知道他手里真的有啥牌，我们也知道他怎么打牌，就像斗牛一样。
+WCRW的网站称，它自1992年以来一直在华盛顿播放中国国际广播电台的节目，这是另一家主要的国营中国国际广播电台。
 
-字幕来源：[2021年12月19日郭文贵先生大直播全文字版（下）](https://gnews.org/zh-hans/1775367/) ；
+波托马克媒体（Potomac Media）注册为外国代理人，是因为华盛顿对中共国在美国的宣传活动越来越警惕。
 
-字幕文件制作：小满；
+中国国有英文报纸《中国日报》于2021年向外交政策和金融时报等主要西方媒体支付了数百万美元，以传播其内容。中国领事馆最近还签订了一项合同，通过新泽西州的一家中介公司聘请数十名社交媒体影响者，作为3月份宣传北京即将举行的冬奥会的营销闪电战的一部分。
 
-视频制作及上传：Cindy；
+近年来，CGTN在多个国家遭遇了一连串的挫折。
 
-G-News发布：小满；
+英国官员于2月撤销了这家电视机构在英国的广播许可证，称该许可证由一个对其播放的节目没有编辑控制权的实体持有。英国广播监管机构后来对CGTN的两个节目进行了罚款，总额约为27.3万美元，因为这两个节目中含有强迫认罪的内容。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的短视频发布频道**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+**原文链接：**[Beijing Paid Millions to DC Radio Station to Broadcast Propaganda](https://www.theepochtimes.com/beijing-paid-millions-to-dc-radio-station-to-broadcast-propaganda_4171045.html)
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+*发布：盘古相聚*
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**
+****更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

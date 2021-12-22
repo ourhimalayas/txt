@@ -2,38 +2,30 @@
 ---
 
 
-## 学者研究表明，中共病毒对精子质量的影响很大
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1779923/)
+## 虚伪的民主—昆士兰州立法议员享毒疫苗豁免特权
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1779949/)
 
-**【雅典娜快讯】，紧贴时代脉搏**
+作者：雄起
+![](https://assets.gnews.org/wp-content/uploads/2021/12/酷翻组1-1.png)
+上周，澳大利亚昆士兰州议长柯蒂斯-皮特（Curtis Pitt）颁布一项指令，未接种疫苗的人将被禁止进入州议会，但议员将被豁免。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1171.png)图片来源：Verywell Family
+12月18日生效的这项指令中规定，任何进入议会区的人，必须是已经接受了两剂疫苗，或者有医疗豁免，或者已经向皮特先生申请了豁免。
 
-**整理报道：美哥
-编 辑：文泓**
+但是因议会事务而进入的立法会议成员将被豁免，虽然他们不能去餐区，包括自助餐厅、咖啡馆或任何酒吧。
 
-当地时间12月21日，根据RT新闻报道，最新研究成果表明，感染中共病毒会减少高达37%的精子数量，同时精子活力也有所下降，并对精子质量的影响可长达3个月之久。
+这项疫苗强制令还延伸到了选举办公室，在那里国会议员则不会被豁免。议会官员和工作人员必须在12月17日前接种第一剂疫苗，在1月21日前接种第二剂。不遵守规定可能会导致被解雇。
 
-该项研究由比利时大学机构牵头，总共观察了120个中共病毒有症状感染者。研究成果虽然还没有被同行评估，但在周一已经发表在《生育与不育》杂志上。
+虽然上个月，在当局考虑出台这项强制令时，议会秘书尼尔-劳里（Neil Laurie）表示，这是一个不应仓促的过程。但是最终这项指令还是出台了。而针对全州580名工作人员的强制令从12月13日起就已生效。
 
-参加研究的男性平均年龄35岁，截止采样时，人均52天都没有再出现过感染症状，但精子数量仍因病毒感染的后续影响下降了37%，精子活力也丧失了60%。中共病毒对男性生育力的影响通常持续3个月后才能恢复正常水平。
+“简而言之，议长和书记有责任照顾议员、工作人员和公众，使他们在与服务人员的互动中尽量减少感染COVID-19的风险，”工作人员指令写道。”COVID-19在政府服务部门的快速传播将使官员和雇员患病后，进行隔离或康复期间失去服务能力。
 
-研究结论表明，“需要提醒想要怀孕的夫妇，中共病毒感染后的精子质量是堪忧的”，而科学家还认为中共病毒对于生育的长期影响尚待进一步研究。
+笔者不禁感叹，在实行民主制度的澳大利亚，我们如今看到的更多是独裁式的强制令。虽然强制令书写的理由冠冕堂皇，但并不能解释同为国家公务人员，为什么立法议员就可以豁免，而民选议员却并无特权，是否因为执恶法者，心知肚明这是违法违宪的行为，因此网开一面，换手持立法权的立法议员保持沉默？政府借中共病毒（新冠病毒covid-19）流行，疯狂越权，滥权，民主世界的公民已无路可退，唯有反抗自救。
 
-科学界早已知晓流感会损伤精子，主要归咎于流感病毒引起的体温过高的副作用。然而，中共病毒损害精子的方式与高烧无关，也不是免疫系统对病毒的攻击引起的。**该项研究对参与的男性样本进行了检测，表明病人血液中高浓度的病毒抗体中和精子功能降低（临时性精子功能障碍）之间才是有关联的**。
+[新闻链接](https://www.brisbanetimes.com.au/national/qld-mps-exempt-from-vaccine-mandate-in-parliament-20211212-p59guf.html)：[https://www.brisbanetimes.com.au/national/qld-mps-exempt-from-vaccine-mandate-in-parliament-20211212-p59guf.html](https://www.brisbanetimes.com.au/national/qld-mps-exempt-from-vaccine-mandate-in-parliament-20211212-p59guf.html)
 
-尽管如此，研究者认为“有强有力证据”表明，只要已经康复的病人，是不会通过性交传播中共病毒的。
+审核校对：sherryok
 
-新闻链接：[Study reveals effects of Covid on sperm — RT World News](https://www.rt.com/news/543904-covid-reduces-sperm-count/)
-
-*发布：盘古相聚*
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+上传排版：水云间
 
  
 
