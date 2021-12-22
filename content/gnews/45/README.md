@@ -2,22 +2,20 @@
 ---
 
 
-## 中共支付一千多亿美元求普京出席冬奥
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1778966/)
+## 法媒称台内部亲中共势力是北京特洛伊木马
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1778969/)
 
-作者：东京樱花团 – 在远方
+作者：纽约香草山医疗部 – 云豹
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-郭文贵先生在12月20日的盖特视频中爆料，目前普京已经收到了中共拱手相送的一千多亿美元的支票，表示同意以个人名义出席北京冬奥会。
+12月19日晚上，法国一家人气较高的电视台以“台湾：被中共巨人围困的岛屿”为题，播出了一个一小时的深入报道专辑，分析中共对台湾民主发展的威胁，及台湾民主发展的韧性。主持人称赞台湾是民主的典范，并指出台湾内部的亲中共势力是北京在台湾内部的特洛伊木马。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture15-2.jpg)
+主持人指出，台湾拥有自由蓬勃的经济，是进步的社会、民主的典范。 中共正企图如同对待香港一样，分别以外交、武力的方式对台湾施压，并用金钱来收买卖台贼。
 
-郭先生指出，在共产党冬奥会的政治游戏中，唯一受到伤害的就是中共国10亿人民，所有中国人都将为了这个在国际上和政治上，完全没有任何价值的愚蠢的作秀而付出巨大的代价。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture14-1.jpg)
-除了送给俄罗斯的一千多亿美元，加上冬奥会场地、人员、服装、后勤、安保等其他费用，中共总共需要花费数千亿美元。这是极其可悲、可怜、可恨的，这也是全世界最昂贵的一场灾难游戏。而在世界经济即将崩塌之前，爆料革命的声音，是世界上唯一救人的忠言警告。
-
-参考链接：[中共支付一千多亿美元求普京出席冬奥](https://www.gettr.com/post/pk5p5a0268)
+参考链接：[法媒称台内部亲中共势力是北京特洛伊木马](https://www.cna.com.tw/news/firstnews/202112200313.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
 ![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-总编：飞虹
+总编：文特
 编辑：飞虹
 校对/发稿：Hetangyuese
 

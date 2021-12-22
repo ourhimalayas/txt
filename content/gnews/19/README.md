@@ -2,43 +2,42 @@
 ---
 
 
-## 有声| 真人真事与恩慈相待—谈关系的修复
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1779420/)
+## 有声|恒大地皮再被收回，相关上市公司大跌
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1779514/)
 
-配音：香草山福音部 – Daxia
-
-
+配音：香草山美食部 – 玫瑰园
 
 
 
-我觉得有三个重要题目是值得新中国联邦人深思的：1）如何面对关系上的问题；2）如何解决关系的紧张问题；3）如何恢复爱的交流。其实这三个重要的题目，正是福音的中心信息所要面对和解决的。
-
-《圣经·新约·以弗所书》 （4:31-32）：“一切苦毒、恼恨、忿怒、嚷闹、毁谤，并一切的恶毒 ，都当从你们中间除掉； 并要以恩慈相待，存怜悯的心，彼此饶恕，正如神在基督里饶恕了你们一样。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
 
 
-**文字版原文：[真人真事与恩慈相待——谈关系的修复](https://gnews.org/zh-hans/1132262/)**
+12月20日，成都市相关官网的公告显示，恒大在成都的两副面积共逾30平方米用地被收回。受此消息冲击，投资恒大的华人置业和嘉寓股份股票大跌。
 
+据了解，这两块地皮是在2010-2011年间拍得，现在因为长期未开工，被当地政府收回。从9月到现在，恒大地皮已经有安徽安庆（8）、海南海口（8）以及四川成都（2）共18块地皮被政府无补偿回收。
 
+原文链接：[恒大地皮再被收回，相关上市公司大跌](https://gnews.org/zh-hans/1776373/)
 
 音频处理：喜山必胜Maverick
-发稿：雪梨
 
-[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
+发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
 **更多资讯，更多关注**
 
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

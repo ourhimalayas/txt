@@ -2,33 +2,50 @@
 ---
 
 
-## 制造环测达标假象 河北某地禁柴封灶致当地民众无法取暖
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1779267/)
+## 澳大利亚将核磁共振扫描诊断心肌炎列入医保项目
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1779304/)
 
-作者：纽约香草山 – 飞虹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-中共媒体12月20日报道，河北省秦皇岛市山海关地区以清洁取暖为由，禁止民众烧柴、烧煤，导致部分群众在寒冷的冬季无法取暖，挨冷受冻。
+**【雅典娜快讯】，紧贴时代脉搏**
 
-报道认为，秦皇岛市近几年开始推广清洁取暖，但并未在全市范围内全面限制燃煤烧柴，之所以在山海关地区进行彻底管控，主要因为该区设有一个大气监测国控点位，如果在该区域放开煤、柴限制，会造成大气监测数据不达标，影响整个地区的环评监测结果。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture15-1.jpg)
-为了数据达标，不影响政绩，当地政府就让民众在寒冷中勉强度日。禁止燃煤之后，政府虽然给受影响住户发放过一些电暖器，但电暖器功率太小，远远达不到基本的采暖标准，另外，政府给予的象征性补贴，也远远弥补不了取暖所需的全部成本。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1153.png)图片来源：NT News
 
-参考链接：[制造环测达标假象 河北某地禁柴封灶致当地民众无法取暖](https://gettr.com/post/pk7pss096fa)
+**整理报道：文扬
+编辑：文泓**
 
-![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+12月21日，据本地媒体报道，明年开始，澳大利亚人核磁共振扫描心脏将获得政府补贴，以协助诊断由新冠病毒疫苗引起的炎症性心脏疾病。
 
-总编：天灭中共
-编辑：天灭中共
-校对/发稿：Hetangyuese
+上周五，联邦卫生局悄悄地更新了医疗保险福利计划（MBS）在线网站，宣布从2022年1月1日到2022年6月30日在社保（Medicare）福利表中增加新的临时项目。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+该项目介绍，MBS项目63399正在引入心脏核磁共振（MRI），以协助诊断接种mRNA新冠辉瑞疫苗和莫德纳疫苗后可能引发的心肌炎。
 
+政府认为该检查项目应该花费的金额为855.20美元。对于院外服务，患者将能够从医保获得最高767.30澳元（85%）的退款，如果服务是在私立医院进行的，则为641.40澳元（75%）。
+
+该项目病人一生中只能申请一次，用于“在使用常规成像技术不能明确诊断心肌炎的情况下”。
+
+MBS将这项服务描述为：“心血管系统的MRI扫描，以评估心肌结构和功能，**前提是****这项服务是由评估病人的顾问医生要求的**”。
+
+扫描请求必须说明“**患者在接受mRNA****新冠****疫苗后疑似心肌炎”、“患者在接种mRNA****新冠****疫苗后21天内出现症状**”，**以及超声心动图、胸部X-射线和肌钙蛋白测试结果“不能确诊心肌炎”**。
+
+情况说明书提示，“准确诊断与mRNA新冠疫苗相关的心肌炎对于澳大利亚新冠疫苗接种计划的持续管理至关重要，包括推出mRNA加强剂量，以及将 mRNA疫苗接种扩展到12岁以下的儿童。”
+
+卫生部的一位女发言人说，**在澳大利亚和新西兰心脏协会的要求下，医疗服务咨询委员会将该项目加入了MBS**。
+
+“在更广泛地使用心脏MRI诊断心肌炎进行全面健康技术评估之前，暂时建议使用它”，她说：“澳大利亚政府将在年中经济和财政展望(MYEFO)更新中额外提供98亿澳元，以提供持续的远程医疗和新冠疫苗接种，并确保澳大利亚人能够获得世界一流的医疗保健和药物。”
+
+医疗服务咨询委员会（MSAC）负责评估拟用于公共资助的医疗服务或技术的安全性、有效性和性价比。
+
+**心肌炎或心肌炎症，是辉瑞和****莫德纳****疫苗的一个****已知而“****罕见****”****的副作用****；****心包炎或心脏周围的内膜炎症不太严重，但更常见。**
+
+原文链接： [Medicare: MRI to diagnose myocarditis after Covid-19 vaccine added to MBS | news.com.au — Australia’s leading news site](https://www.news.com.au/lifestyle/health/health-problems/mri-scan-to-diagnose-myocarditis-after-covid19-vaccine-added-to-medicare-benefits-schedule/news-story/9795fb7b3140b420565bc629cc1c2df9)
+
+*发布：盘古相聚*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

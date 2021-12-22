@@ -2,23 +2,36 @@
 ---
 
 
-## 辉瑞以67亿美元收购了研究心血管疾病的生物制药公司Arena
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1777614/)
+## 牛津大学研究揭接种疫苗者得心脏病入院或死亡律达1%
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1778607/)
 
-翻译：zzballack
-上传：无明逆流
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-据《国家脉动》（The National Pulse）12月20日报道，辉瑞公司日前以67亿美元收购了Arena制药公司（Arena Pharmaceuticals）。
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/12/V-3.jpg)id-hub.com
+《门道专家》12月20日晚间发表了题为“牛津大学的研究令人震惊：在研究期间，每100名接种疫苗的人中就有1人入院或死于心律失常”。【1】
 
-总部位于美国犹他州的Arena公司部分专注于心血管和炎症药物的研发，但是大多数主流媒体机构的报道都集中在Arena的肠道疾病治疗上，而没有提及该公司的心血管研究。Arena官网上的一篇文章称，该公司正在“扩大其研究急性心力衰竭（Acute heart failure）和微血管阻塞（Microvascular obstruction）等心血管疾病的能力”。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1133.png)图片来源：原新闻
-该公司的Crunchbase页面也宣称他们专注于心血管和炎症性疾病的治疗。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1134.png)图片来源：原新闻
-另外，Arena公司现在还与联合治疗公司（United Therapeutics Corporation）有合作关系，后者的研究重点是肺动脉高血压。巧合的是，新冠患者的症状之一就是肺动脉高压，而新冠疫苗容易引发心血管疾病，比如心肌炎，特别是在年轻男性当中。辉瑞的此项收购肯定会给其带来比企业媒体所吹捧的肠道疾病治疗更多的回报。
+全文如下：
 
-辉瑞通过新冠疫苗赚得盆满钵满，其高管甚至因此登上《福布斯》杂志的全球十亿富翁榜。但是他们的贪婪不止于此，料到新冠疫苗大范围推广后，寻求心脏和血管疾病治疗的人会越来越多，这笔收购就是为此做准备，准备再发一笔横财。不得不说，辉瑞及其实际掌控人的算盘打得很精，也足够邪恶。但世人不会任其为非作歹，必将绳之以法。
+2021年12月14日，《自然医学》（Nature Medicine）发布了一项基于牛津大学研究人员分析的广泛人群数据的研究，研究人员检查了中共病毒感染和心肌炎和心律不齐的风险。
 
-新闻来源：[Pfizer is Buying a Cardiovascular Biopharma Company for $6.7Bn.](https://thenationalpulse.com/news/pfizer-is-buying-a-cardiovascular-biopharma-company-for-6-7bn/)
+牛津大学的研究人员透露，在所有接种疫苗的人中，每100人中有1人或1%因心律失常或心律不齐而入院治疗或死亡。
+
+*在我们研究中包括的38,615,491名接种疫苗的个体中，385,508名（1.0%）在研究期间的任何时间（接种前或接种后开始的研究）因心律失常入院或死亡；其中86,754例（0.2%）发生在第1-28天 。接种任何疫苗后数天，在入院或死亡的患者中，39,897人（10.3%）的中共病毒检测呈阳性，其中29,694人（7.7%）在接种疫苗前检测呈阳性，有7,795例死于心律失常（1,108例中共病毒检测呈阳性）。*
+
+因此，每100名接种疫苗的人中就有1人因心律不齐而去医院，这不应该是国际新闻的头条吗？
+
+这是一个令人震惊的数字。
+
+（原文完）
+
+笔者不太放心，按照文章提供的线索，查阅到了有关论文【2】，的确有这样的描述。笔者有同样的疑惑，“这不应该是国际新闻的头条吗？” 为什么主管机构不认真对待？还在加紧实施疫苗的强制接种？主流媒体集体禁声？一切的不正常背后必有妖术、邪术，那就是与中共一起的阴谋集团在操控。
+
+有关链接：
+
+【1】[https://www.thegatewaypundit.com/2021/12/oxford-study-shocker-1-100-vaccinated-individuals-admitted-hospital-died-arrhythmia-study-period/](https://www.thegatewaypundit.com/2021/12/oxford-study-shocker-1-100-vaccinated-individuals-admitted-hospital-died-arrhythmia-study-period/)
+
+【2】[https://www.nature.com/articles/s41591-021-01630-0](https://www.nature.com/articles/s41591-021-01630-0)
 
  
 
