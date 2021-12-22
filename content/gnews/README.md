@@ -15,131 +15,131 @@
 
 ---
 
-### [人类从来没有像今天这样被共产主义玩成这样](/content/gnews/1/README.md)
+### [Đảng Cộng Sản Trung Quốc đã xâm nhập nghiêm trọng vào quân đội Đài Loan, và an ninh của Thái Anh Văn cũng nằm trong đó](/content/gnews/1/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [共中共拿了10000亿美元现金给俄罗斯就是抗美](/content/gnews/2/README.md)
+### [日本大阪3名没有出国记录的人员感染Omicron](/content/gnews/2/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [国家概念成了暴力垄断的唯一象征性存在机构](/content/gnews/3/README.md)
+### [美国经济制裁中共官员又添5人](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新中国联邦的教育事业是有这四种人支撑](/content/gnews/4/README.md)
+### [氦气短缺！日本迪士尼乐园暂停氦气球售卖](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [世界想模仿夏天的北戴河会议](/content/gnews/5/README.md)
+### [人类从来没有像今天这样被共产主义玩成这样](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [弱者要得到尊重 老实人要得到更多而非更少](/content/gnews/6/README.md)
+### [共中共拿了10000亿美元现金给俄罗斯就是抗美](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共早年就提出生物武器 疫苗化灭美是公开的信息](/content/gnews/7/README.md)
+### [国家概念成了暴力垄断的唯一象征性存在机构](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [共产党一直吹嘘自己制度优越 但失业大潮会导致几千万套房子断供](/content/gnews/8/README.md)
+### [新中国联邦的教育事业是有这四种人支撑](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [家长绝对不能让孩子打疫苗](/content/gnews/9/README.md)
+### [世界想模仿夏天的北戴河会议](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共是从来没有选举的国家 14亿人不知道历史真相的国家 对杀中国人最多的俄罗斯人从来不敢说不的国家](/content/gnews/10/README.md)
+### [弱者要得到尊重 老实人要得到更多而非更少](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [我朱门酒肉臭的 一定会被清算](/content/gnews/11/README.md)
+### [中共早年就提出生物武器 疫苗化灭美是公开的信息](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [12/22每日播报｜数十名国会议员在有中共背景的非营利组织做顾问](/content/gnews/12/README.md)
+### [共产党一直吹嘘自己制度优越 但失业大潮会导致几千万套房子断供](/content/gnews/12/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [家长绝对不能让孩子打疫苗](/content/gnews/13/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共是从来没有选举的国家 14亿人不知道历史真相的国家 对杀中国人最多的俄罗斯人从来不敢说不的国家](/content/gnews/14/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [我朱门酒肉臭的 一定会被清算](/content/gnews/15/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [12/22每日播报｜数十名国会议员在有中共背景的非营利组织做顾问](/content/gnews/16/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [历史的真相是共产党在长征后 毛泽东已经准备保命做老师 共产党的宣传完全是胡扯](/content/gnews/13/README.md)
+### [历史的真相是共产党在长征后 毛泽东已经准备保命做老师 共产党的宣传完全是胡扯](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [过冬至](/content/gnews/14/README.md)
+### [过冬至](/content/gnews/18/README.md)
  ` 纽约香草山MOS03`
 
-### [文贵大直播 12/22 冬奥会之前的媒体超限战 中共大外宣用心险恶](/content/gnews/15/README.md)
+### [文贵大直播 12/22 冬奥会之前的媒体超限战 中共大外宣用心险恶](/content/gnews/19/README.md)
  ` 秘密翻译组-原创组`
 
-### [12/22每日播报｜美佛罗里达州官员采取行动脱钩养老基金与中共的联系](/content/gnews/16/README.md)
+### [12/22每日播报｜美佛罗里达州官员采取行动脱钩养老基金与中共的联系](/content/gnews/20/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [躺平币的功能和应用场景和喜币是不一样的](/content/gnews/17/README.md)
+### [躺平币的功能和应用场景和喜币是不一样的](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美媒揭露中共利用网军操控社交平台舆论](/content/gnews/18/README.md)
+### [美媒揭露中共利用网军操控社交平台舆论](/content/gnews/22/README.md)
  ` GTV新闻访谈`
 
-### [银河快讯：日本对有争议的香港选举表示严重关切；中日交流活动被取消](/content/gnews/19/README.md)
+### [银河快讯：日本对有争议的香港选举表示严重关切；中日交流活动被取消](/content/gnews/23/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [3.0的主要目的是让GTV GNEWS GETTR成为信息的交易市场](/content/gnews/20/README.md)
+### [3.0的主要目的是让GTV GNEWS GETTR成为信息的交易市场](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [GTV新闻访谈简报|2021年12月22日早](/content/gnews/21/README.md)
+### [GTV新闻访谈简报|2021年12月22日早](/content/gnews/25/README.md)
  ` 纽约香草山MOS01`
 
-### [串珠495:习近平只要发现冬奥会开不成了一定打台湾](/content/gnews/22/README.md)
+### [串珠495:习近平只要发现冬奥会开不成了一定打台湾](/content/gnews/26/README.md)
  ` 郭爆料串珠`
 
-### [新中国联邦的未来一定是各种高科技加持](/content/gnews/23/README.md)
+### [新中国联邦的未来一定是各种高科技加持](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [串珠494:彭帅事件是习政治滑铁卢，毁了冬奥会](/content/gnews/24/README.md)
+### [串珠494:彭帅事件是习政治滑铁卢，毁了冬奥会](/content/gnews/28/README.md)
  ` 郭爆料串珠`
 
-### [秘翻在线：中共鼓吹国产芯片要替代英特尔](/content/gnews/25/README.md)
+### [秘翻在线：中共鼓吹国产芯片要替代英特尔](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [MV版Hcoin To the Moon上线第13天位列7国iTunes热门MV榜首](/content/gnews/26/README.md)
+### [MV版Hcoin To the Moon上线第13天位列7国iTunes热门MV榜首](/content/gnews/30/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [推特祭出新规则 被定义为误导性中共病毒信息恐遭永久封禁](/content/gnews/27/README.md)
+### [推特祭出新规则 被定义为误导性中共病毒信息恐遭永久封禁](/content/gnews/31/README.md)
  ` GTV新闻访谈`
 
-### [李嘉诚面临英国反垄断调查](/content/gnews/28/README.md)
+### [李嘉诚面临英国反垄断调查](/content/gnews/32/README.md)
  ` GTV新闻访谈`
 
-### [全球最大邮轮48人感染其中47人已完整接种疫苗](/content/gnews/29/README.md)
+### [全球最大邮轮48人感染其中47人已完整接种疫苗](/content/gnews/33/README.md)
  ` GTV新闻访谈`
 
-### [美国务院和财政部将制裁五名中共官员](/content/gnews/30/README.md)
+### [美国务院和财政部将制裁五名中共官员](/content/gnews/34/README.md)
  ` GTV新闻访谈`
 
-### [秘翻在线：美佛罗里达州政府将重点清理在中共国投资的公共养老基金](/content/gnews/31/README.md)
+### [秘翻在线：美佛罗里达州政府将重点清理在中共国投资的公共养老基金](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美俄联手让习近平更加疯狂 更加有利于我们灭共](/content/gnews/32/README.md)
+### [美俄联手让习近平更加疯狂 更加有利于我们灭共](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [所有的办法都是消灭恶势力的办法 传播真相就足够了 剩下的七哥来安排](/content/gnews/33/README.md)
+### [所有的办法都是消灭恶势力的办法 传播真相就足够了 剩下的七哥来安排](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国人口增长率在CCP病毒大流行期间创下最低纪录](/content/gnews/34/README.md)
- ` 澳喜特战旅Gnews`
-
-### [俄罗斯国家病毒学与生物技术研究中心首次公布“Omicron”病毒毒株照片](/content/gnews/35/README.md)
+### [俄罗斯国家病毒学与生物技术研究中心首次公布“Omicron”病毒毒株照片](/content/gnews/38/README.md)
  ` 纽约香草山MOS02`
 
-### [12/22/2021 国际财经快讯：西班牙简化破产程序以获得欧盟复苏资金；尽管有中共病毒奥密克戎变异的威胁，亚洲股市仍然走高](/content/gnews/36/README.md)
+### [12/22/2021 国际财经快讯：西班牙简化破产程序以获得欧盟复苏资金；尽管有中共病毒奥密克戎变异的威胁，亚洲股市仍然走高](/content/gnews/39/README.md)
  ` 秘密翻译组金融团队`
 
-### [中共管控铁拳下“铁血失血”，五毛愤青为哪般？](/content/gnews/37/README.md)
+### [中共管控铁拳下“铁血失血”，五毛愤青为哪般？](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [岸田力推“新时代现实主义外交”](/content/gnews/38/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [12/22每日播报｜新闻简讯：美制裁港中联办 中共推新法](/content/gnews/39/README.md)
+### [12/22每日播报｜新闻简讯：美制裁港中联办 中共推新法](/content/gnews/41/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [12/22/21 香港快讯 831湾仔冲突案律政司提上诉 社工陈虹秀等三脱罪被告突被带上庭](/content/gnews/40/README.md)
+### [12/22/21 香港快讯 831湾仔冲突案律政司提上诉 社工陈虹秀等三脱罪被告突被带上庭](/content/gnews/42/README.md)
  ` 英喜-粵語組`
-
-### [最高法院法官布雷特•卡瓦诺(Brett Kavanaugh)要求拜登就准许其疫苗强制令的一系列上诉作出回应](/content/gnews/41/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [【中日财经爆】日本首相呼吁国民比平时多喝一杯牛奶](/content/gnews/42/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [新闻述评：日本公布老布什对天安门事件的忧虑用意何为](/content/gnews/43/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

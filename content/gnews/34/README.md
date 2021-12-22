@@ -2,29 +2,34 @@
 ---
 
 
-## 美国人口增长率在CCP病毒大流行期间创下最低纪录
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1780802/)
+## 美国务院和财政部将制裁五名中共官员
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1780853/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1222E.jpg)网络图片
-本周二公布的人口数据显示，由于冠状病毒减少了移民、推迟了怀孕并导致数十万美国居民死亡，美国人口增长率在病毒大流行的第一年降至其建国以来的最低水平。
+作者：纽约香草山健身部— Ivy001
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月20日，美国国务卿布林肯根据《香港自治法》向美国国会提交了一年一度的“香港自治报告”，当中，布林肯再次明确，美国将制裁五名破坏香港民主的中共官员。
 
-根据美国人口普查局公布的人口评估报告，从 2020 年 7 月到 2021 年 7 月，美国人口又增加了 约393,000 人，使该国的人口总数达到 3.318 亿 ，增长率仅为 0.1%。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide3-15.jpeg)
 
-该人口估计数值是通过综合美国的出生、死亡和移民人数后计算得出的，国际移民净增长（约245,000人）首次超过本地净出生人口（约148,000人）。
+报道提及，本次制裁名单中的五名中共官员陈冬、何靖、卢新宁、谭铁牛、尹宗华都是香港中联办的副主任。资料显示，他们的行为破坏了香港民主，同时也持续削弱了《中英联合声明》中承诺给香港的高度自治等。
 
-布鲁金斯学会都市政策项目高级研究员威廉·弗雷说：“我原本就预料到年度增长会很低，但我没有想到竟然会如此之低。这一事实告诉我们，目前的流行病在各个方面对我们产生了巨大影响。”
+报告也警告了相关金融机构必须遵守美国法律，严禁此类机构与受制裁的有关人员进行交易。据悉，早在今年7月，上述五名官员已经被美国财政部予以制裁，相应制裁包括冻结他们在美国境内的资产等，而此次美国财政部的二次制裁还将涉及拒绝给予相关人员签证和拒绝入境美国等措施。
 
-同时弗雷认为，即便CCP病毒大流行得到控制，即便美国最终可能会看到死亡人数的逐渐下降，但是由于出生人数减少，人口增长可能无法恢复到过去几年的水平。
+参考链接：[【完善選舉】美點名中聯辦5副主任損香港民主　金融機構與其交易將受制裁](https://www.gettr.com/post/pk9t6vd60e)
 
-事实上，美国最近几年以来一直处于人口增长缓慢的状态之下，但是大流行加剧了这一趋势。过去一年是自 1937 年以来，美国人口增长首次低于 100 万的年份。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
 
-纽约大学家庭问题研究专家卡恩教授表示，CCP病毒是的社会系统无法正常为母亲与家庭提供必要的支持。同时女性在大流行中受到的打击更大。她们失业的速度更快，承受着更大的压力。
+总编：Jack Li文阳 
+编辑：Jack Li文阳 
+校正/发稿：谐趣园
 
-新闻参考链接：
-
-[AP News](https://apnews.com/article/coronavirus-pandemic-immigration-health-us-census-bureau-covid-19-pandemic-d224035ee70e805f1e42da6c1a9c079c)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
