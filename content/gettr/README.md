@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@gtranslators_1 12/22/2021 11:06 PM (UTC)`
+
+The Biden administration all lied about Covid vaccine mandate!
+![img](https://media.gettr.com/group16/origin/2021/12/22/23/e2438871-96a8-1563-44a7-1b7fd3a702e0/out.jpg)
+
+---
+
 `@miles 12/22/2021 9:11 PM (UTC)`
 
 12月22号：20年前录制的视频，现在看起来感触太多了……盘古七星美食．中国文化的真正的传承……莘县古城镇肉窝饼……
@@ -145,13 +154,6 @@ Miles Guo's Latest Song "Hcoin To the Moon" has created 22 historic records so f
 
 12/19/2021 Miles Guo: Our scientists and whistleblowers exposed that, those being infected by the Covid virus will have 50% chances to get cancer in their lymphatic and/or immune systems, but if they take necessary medicines and supplements, do regular medical check-up, and avoid strenuous exercise, they will be fine<br/><br/>12/19/2021 文贵直播：科学家和病毒知情者爆料，所有得过中共病毒的人未来10年内身体里的淋巴系统和免疫力系统有50%会出问题，但如果按需吃药、定期体检、避免剧烈运动，一定会没事<br/>
 ![img](https://media.gettr.com/group5/getter/2021/12/20/00/49daa40c-5093-fb5d-2de4-56b0ec0bcc7b/out.jpg)
-
----
-
-`@miles 12/19/2021 3:47 PM (UTC)`
-
-On Dec 18, 2021 The actual controller and owner of Zhongzhi Enterprise Group died suddenly. <br/>As early as Oct 15, 2017, Miles Guo had revealed that the founder and Chairman of Zhongzhi Enterprise Group and his brother have a very unusual tie with Wang Qishan’s family. On Nov 7, 2019, Miles Guo again blew the whistle that a financial group owned by a Chinese celebrity’s husband will collapse, indicating Chinese singer Mao Amin’s husband Xie Zhikun.<br/><br/>中植企业集团实际控制人解直锟于2021年12月18日猝然离世。<br/>早在2017年10月15日，郭文贵先生就在直播中爆料中植企业集团创始人和主席解直锟和其弟与王歧山家族有非同一般的关系。2019年11月7日，郭文贵先生又爆料一位明星的老公的金融集团即将倒闭，暗指毛阿敏的老公解直锟.
-![img](https://media.gettr.com/group28/getter/2021/12/19/15/2519746b-c9cf-53be-8067-9dbcb634e25c/out.jpg)
 
 ---
 
