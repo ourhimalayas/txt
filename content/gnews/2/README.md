@@ -2,56 +2,51 @@
 ---
 
 
-## 全球和澳洲疫情疫苗统计信息更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1780208/)
+## 纽约一女学生的圣诞愿望：“要求中共释放我的父母”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1780224/)
 
-**（2021年 12月22日）**
+翻译： Jenny Ball
 
-**整理：枳实**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-69.png)图片：雅典娜农场设计组 精灵蓝
-一，全球疫情基本数据
-感染总数：2.76亿（日新增 76.9万）
-死亡总数：537万（日新增 7511人）
-每万人感染人数：350.7774人
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1181.png)图片来源: theepochtimes.com
 
-二，全球“疫苗”毒针统计数据
-“疫苗”毒针注射总数：87.8亿
-完全“接种”：36.3亿人
-完全“接种”百分比：46.6%
+一名在纽约学习音乐的 16 岁中国女孩希望她的一个简单的圣诞愿望能够实现：无条件释放因修炼法轮功而被中共拘留的父母。
 
-三，澳洲疫情和“疫苗”数据
-感染总数：259，207（今日新增 4575人）
-死亡总数：2146人
-每万人感染人数：102.6457人
-“疫苗”毒针注射总数：41,667,960
-完全“接种”：1960万人
-完全“接种”百分比：76.4%
-16岁以上人口接种至少一剂疫苗的比例：93.9%
-16岁以上人口接种至少两剂疫苗的比例：90.6%
+2020 年 10 月 27 日，天才二胡演奏家陈法媛得知她父母在中共被捕后发生的事情已经一年多了。她自己5岁时也曾面临短暂的拘留。
 
-四，突发新闻
-西澳州长马克·麦高恩 (Mark McGowan) 宣布，西澳成为澳大利亚第一个强制施行第三剂加强针的州。
+“我和他们没有任何联络，我不知道他们在哪里，我想念他们，”陈在法轮功新闻办公室法轮大法信息中心在社交媒体上发布的一分钟视频中说。
 
-该强制令将涵盖所有受原有强制令影响的行业，包括老年护理、卫生、检疫人员、采矿和基本工人等行业。州长表示，他还希望最终将疫苗强制范围扩大到任何想参加体育赛事和音乐会等活动的人。他今天对记者说：“根据这项强制令，工人现在需要在符合条件的一个月内接种第三剂。”
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1183.png) 图片来源: theepochtimes.com
 
-人们目前可以在第二针五个月后接受加强针注射，但澳大利亚免疫技术咨询小组将很快决定该时间间隔是否会改变。州长表示，他希望尽可能缩短这个时间间隔。
+16岁的法轮功修炼者陈发源的父母被中共逮捕。她目前在美国读书。（李贵修/大纪元）
 
-参考链接：
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-[First state to mandate booster shot](https://www.news.com.au/national/western-australia/covid19-vaccine-mandate-in-wa-now-includes-a-third-dose/news-story/752c67452adc76f7242228edb500a12e)
+来自湖南省长沙市的陈阳和曹志敏的父母因修炼法轮功多次被捕。
 
-发布：去中心化Math
+今年圣诞节发起了一项写信活动以帮助陈的父母，敦促人们给被捕后关押她父母的看守所写信。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+陈的高中同学最近给她的父母写了十几封信，鼓励他们坚强，希望家人早日在纽约团聚。
 
+中共认为，和平禅修的日益普及和道德教义，对其无神论的马克思主义意识形态构成威胁，并于 1999 年 7 月在全国范围内发动了一场迫害法轮功的暴力运动，导致数以万计的信徒被逮捕和折磨，为了摘取他们的器官许多人被迫害致死。
+
+据专门报道法轮功在中国受迫害的网站明慧网的几篇报道，陈的父母是 1999 年迫害开始后不久被判刑的无数人之一，当时他们去北京上访。
+
+她的父亲是一名计算机工程师，被判处四年徒刑并遭受酷刑，包括被电棍电击和殴打，直到他的一颗牙齿被打掉。她的母亲是一家国有企业的人力资源员工，被判处三年刑期，每天被迫做10多个小时的奴工，陈也被捕过一次。
+
+2010 年，当时 5 岁的陈正和她的母亲在去幼儿园的路上，至少有五个身份不明的男人把他们俩拖上车，带到洗脑中心。她的母亲在 17 天后获释。这些人后来被确认为 610 办公室的官员——这是一个专门负责迫害法轮功的法外机构。
+
+“现在我很担心，因为没有关于我父母的消息，”陈在之前的一次采访中告诉《大纪元时报》。 “我最担心他们会再次挨打、折磨……逼着他们‘蜕变’，放弃修炼。”
+
+改造良心犯是共产主义政权的日常心理虐待，包括洗脑和折磨，以迫使精神信徒放弃信仰。
+
+陈在纽约的监护人朱莉娅说，她的父母被捕后，这名少女经常哭。
+
+新闻来源 : [theepochtimes.com][‘Ask Chinese Government to Release My Parents’: A New York Schoolgirl’s Christmas Wish](https://www.theepochtimes.com/a-new-york-schoolgirls-christmas-wish-ask-the-chinese-government-to-release-my-parents_4164769.html?utm_source=News&amp;utm_campaign=breaking-2021-12-21-1&amp;utm_medium=email&amp;est=scHh%2B%2FGyqvcYi0uhmGCqumUrBuIdY3jFzF%2B7s02M0dgbbWcBvFyQ1csKKXX0rK3A)
+
+* * *
+
+*审核：文乐
+校对: 阿伯塔
+发稿: Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-4.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
