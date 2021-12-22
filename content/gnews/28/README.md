@@ -2,21 +2,28 @@
 ---
 
 
-## 新中国联邦的未来一定是各种高科技加持
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1781015/)
+## GTV新闻访谈简报|2021年12月22日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1781023/)
 
-文编：东京樱花团/樱花传媒
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-4.jpg)
 
-视频:东京樱花团/中文小视频组
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-22.png)
+文章仅代表作者本人观点，与Gnews无关
 
-12月15日，郭文贵先生在GTV大直播指出：
+视频参看：[2021.12.22早GTV新闻访谈](https://gtv.org/video/id=61c32786bcb7f101bb732ea8)
 
-生物芯片，大脑和手机自动联线，微型硬盘植入人体，未来的量子电脑，生物科技将给人类带来质的飞跃，甚至可以实现对人体的辨别系统、感知系统的控制。新中国联邦的时代，将是AI➕生物科技➕量子科技➕加密数字货币技术的时代，是一个你完全不可想象的时代。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-编辑：东京樱花团/墨然
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-2.png)
 
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
