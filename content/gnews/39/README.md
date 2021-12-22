@@ -2,27 +2,21 @@
 ---
 
 
-## 西安疫情爆发再度封城 医疗体系濒临瘫痪
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1778967/)
+## 法媒称台内部亲中共势力是北京特洛伊木马
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1778969/)
 
-作者：纽约香草山教育部 – Noemi
+作者：纽约香草山医疗部 – 云豹
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-中共官方12月20日发布消息指，陕西省西安市因近期出现大量新冠及出血热感染病例，需要再度封城。
+12月19日晚上，法国一家人气较高的电视台以“台湾：被中共巨人围困的岛屿”为题，播出了一个一小时的深入报道专辑，分析中共对台湾民主发展的威胁，及台湾民主发展的韧性。主持人称赞台湾是民主的典范，并指出台湾内部的亲中共势力是北京在台湾内部的特洛伊木马。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture15-2.jpg)
+主持人指出，台湾拥有自由蓬勃的经济，是进步的社会、民主的典范。 中共正企图如同对待香港一样，分别以外交、武力的方式对台湾施压，并用金钱来收买卖台贼。
 
-目前西安市有1个高风险地区和13个中风险地区，主要出城公路均已封闭，所有学校全面停课，市民上班必须持有48小时内核酸阴性报告。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture14-2.jpg)
-另外，当地不少医院因疫情停诊，医疗系统濒临瘫痪，对基础病患者造成极大的影响，有媒体报导，发现不少尿毒症患者已经连续4天不能去医院透析，生命健康面临重大挑战。有医护人员表示，为了确保医院自身的安全及正常运作，对于来自中高风险地区的患者确实存在接收困难的问题。
-
-虽然，目前受困患者据报已得到救治，但相关人员认为，西安整个医疗系统实际上已经瘫痪，这个根本性问题远没有得到解决。
-
-参考链接：
-1. [西安疫情爆发再度封城 医疗体系濒临瘫痪](https://www.epochtimes.com/gb/21/12/20/n13448903.htm)
-2. [西安疫情爆发再度封城 医疗体系濒临瘫痪](https://www.exmoo.com/article/189761.html)
+参考链接：[法媒称台内部亲中共势力是北京特洛伊木马](https://www.cna.com.tw/news/firstnews/202112200313.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
 ![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-总编：天滅中共
-编辑：天滅中共
+总编：文特
+编辑：飞虹
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**

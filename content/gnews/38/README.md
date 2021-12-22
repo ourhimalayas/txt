@@ -2,32 +2,122 @@
 ---
 
 
-## 墙内主播补税事件继续发酵
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1778968/)
+## 强制疫苗一定会在两个月内被停止
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1778992/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-12月20日，墙内“直播一姐”薇娅因偷逃税被罚款的消息传出后，关于其他主播税务问题的传言也越来越多。据墙内税务部门的消息，除薇娅外，还有部分头部主播没有被披露，各头部主播一直在补税，且越查漏洞越大，“数额惊人，至少几个亿”。除此之外，各相关方面还商讨了公布其余头部主播的恰当时机，具体处罚也不会在同一天公布。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture17-1.jpg)
-据中共官媒的消息，税务部门已经印发通知，对相关经纪公司及经纪人、网络平台企业、中介机构和帮助设计、策划、实施逃避税行为的第三方等进行联动检查，一并依法从严处理。
+[https://gtv.org/video/id=61c2014b43ccb726a0897599](https://gtv.org/video/id=61c2014b43ccb726a0897599)
 
-据称，截至目前，已有上千名主播主动自查，补缴税款。
+**郭文贵**
+**Miles Guo**
 
-参考链接：[墙内主播补税事件继续发酵](https://cj.sina.cn/article/norm_detail?url=http%3A%2F%2Ffinance.sina.cn%2F2021-12-21%2Fdetail-ikyamrmz0261005.d.html&amp;autocallup=no&amp;isfromsina=yes)
+打了一针、两针、三针的得病毒的机会更多
+Ones that have already received one shot, two shots, or three shots would have a bigger chance to get the virus infection
 
-![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+为什么就刚才我说那个
+Why? It’s because of what I have just said earlier
 
-总编：飞虹
-编辑：飞虹
-校对/发稿：Hetangyuese
+它本身身体就有病毒
+(The vaccine) itself puts a virus inside your body
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+它本身就繁殖病毒
+(The vaccine) itself reproduces the virus
+
+它本身会加剧你的病毒反应
+(The vaccine) itself will exacerbate your viral response
+
+这是灾难的结果
+This is a disaster
+
+但是人类永远是墓碑文明和墓碑科技
+But human beings will always be a tombstone civilization and technology
+
+必须掉N多架
+it must be crashed many planes
+
+一个飞机没有掉几架以后是不可能批准你这个飞机上天飞的
+It’s impossible to get approval for flying into the sky if a plane has not crashed a few
+
+绝不可能, 几乎不可能
+It’s absolutely impossible, almost impossible
+
+人类的汽车文明都是墓碑科技
+Human vehicle civilization is tombstone technology
+
+文明就是墓碑文明
+and the civilization is a tombstone civilization
+
+解决这次病毒和疫苗灾难就是一种墓碑增加以后的结果
+Solving this virus and vaccine disaster is a result of the fact that after increasing a tombstone
+
+这就是现在的认知
+This is the current perception
+
+所以说现在你看到那个疯狂的时候
+So now the time when you see that insaneness
+
+他会逼迫更多保护孩子、保护自己的饭碗和生存
+it will force more people to protect their children, protect their jobs, and survive
+
+然后保护兄弟姐妹、家人
+and then to protect their brothers and sisters, and other family members
+
+只有新中国联邦是保护我们这些素不相识的兄弟姐妹
+Only the New Federal State of China will protect our brothers and sisters who have never met
+
+唯一一个群体，无私无已的，唯一的
+The only organization that is selfless, the only one
+
+另外一个打疫苗的反应
+The other is the response to the vaccine
+
+一定记住，8个月、12个月、16个月或者是10个月、12个月
+Remember, it would be 8 -12 – 16 months or 10 – 12 months
+
+它的整个的爆发和被认知确实来自疫苗
+The entire outbreak and acknowledgment of the vaccine consequence did indeed come from the vaccine
+
+一定是在今年圣诞节之后逐渐开始
+It will definitely start gradually after Christmas this year
+
+今年年底我说疫苗是到了最最开始的灾难
+I said that the end of this year would be the very beginning of the vaccine disaster
+
+大家看到了，从10月、11月、12月，逐渐比我们预期还坏
+You may all see that it has been gradually worse than we expected month by month
+
+强制疫苗一定会在两个月，不会超过（这个时间）一定会被停止
+The mandatory vaccine will definitely be stopped within two months, no longer than two months
+
+这种杀掠，而且这次杀掠
+This kind of killing and looting and this time
+
+疫苗杀害的绝对都是怕死的、没有信仰的、有钱的、有权的、有名的
+The victims of the vaccines must be those who are afraid of death, have no faith, rich, powerful, and famous
+
+肯定是这些人
+It must be these people
+
+**原视频链接:** [https://gettr.com/post/pk2isx04af](https://gettr.com/post/pk2isx04af)
+
+Date: 12/18/2021
+原视频标题: 强制疫苗一定会在两个月内被停止
+The Vaccines Mandates Would Definitely be Stopped Within Two Months
+原视频日期：2021/12/17
+原视频链接: https://gettr.com/post/pk2isx04af
+任务编号：KC356(3281)
+视频时间段 : 0:00-1:39
+
+英听校: 洛杉矶盘古农场 – 郭班之樱
+翻译: 洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 -Mike Li
+字幕+视频制作: 洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

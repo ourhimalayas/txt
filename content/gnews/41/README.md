@@ -2,42 +2,36 @@
 ---
 
 
-## 有声|中共进入全面加速崩溃时代
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1778948/)
+## 西安疫情爆发再度封城 医疗体系濒临瘫痪
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1778967/)
 
-配音：香草山香港部 – 文凯琳
+作者：纽约香草山教育部 – Noemi
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+中共官方12月20日发布消息指，陕西省西安市因近期出现大量新冠及出血热感染病例，需要再度封城。
 
+目前西安市有1个高风险地区和13个中风险地区，主要出城公路均已封闭，所有学校全面停课，市民上班必须持有48小时内核酸阴性报告。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture14-2.jpg)
+另外，当地不少医院因疫情停诊，医疗系统濒临瘫痪，对基础病患者造成极大的影响，有媒体报导，发现不少尿毒症患者已经连续4天不能去医院透析，生命健康面临重大挑战。有医护人员表示，为了确保医院自身的安全及正常运作，对于来自中高风险地区的患者确实存在接收困难的问题。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
-12月18日，文贵先生发布盖特说，从12月17日到18日，纽约几万人感染奥秘康，全世界很多城市开始拉响了警报。中共放的毒从弄死人，到吓死人，再让所有人不仅呆在家里，而且一人感染全家都被传染。传染力快，并发率高，尤其对老人和孩子威胁之大。战友们一定要呆在家里，保护好自己和家人，同时备好神药青蒿素及伊维菌素。
+虽然，目前受困患者据报已得到救治，但相关人员认为，西安整个医疗系统实际上已经瘫痪，这个根本性问题远没有得到解决。
 
-文贵先生强调，共产党经济即将全面崩溃，到处抢劫财富导致的社会动乱已铺开。17日起，中小企业倒闭仅北京一地，就从每天110家到每天300多家。
+参考链接：
+1. [西安疫情爆发再度封城 医疗体系濒临瘫痪](https://www.epochtimes.com/gb/21/12/20/n13448903.htm)
+2. [西安疫情爆发再度封城 医疗体系濒临瘫痪](https://www.exmoo.com/article/189761.html)
 
-国内正大量抓捕公检法及金融部门官员，银行借旧换新，借新还旧以及高薪拉储等措施都出问题了，到年底露馅了 ，所以很多相关人员都会被抓 。所抓政法委和银行官员之多，前所未有，同时企业家也被抓捕。马云往国内不断汇钱 ；马化腾为了表忠心，不光交钱，还交技术和团队。
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-整个中南部工资养老金不发，还要求半年内，医院和医疗企业部门上交1.5万亿，支持所谓的国家战略转型期，即为了打台湾做准备。
+总编：天滅中共
+编辑：天滅中共
+校对/发稿：Hetangyuese
 
-文贵先生评价道， 所有的独裁者到最后都会发动战争，激起所谓的爱国主义和民族仇恨，拉着老百姓殉葬。
-
-文字版原文：[中共进入全面加速崩溃时代](https://gnews.org/zh-hans/1770155/)
-
-音频处理：喜山必胜Maverick
-发稿：Tom Li
-[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
