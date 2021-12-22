@@ -2,39 +2,18 @@
 ---
 
 
-## 中共能化解牠们的“重大风险”？
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1779459/)
+## 秘翻在线：出展迪拜世博会的日本寿司店11名员工确诊感染
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1779510/)
 
-凤凰新闻转引“人民网”2021年12月19日报道：人民财评：正确认识和把握防范化解重大风险
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1160.png)图片来源；维基百科![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1161.png)
-短评：
+撰稿：待命（文暁）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/16401468841.png)（图片源自本文链接）
+12月22日读卖新闻消息：经济产业省（METI）透露，参加正，在阿拉伯联合酋长国（UAE）举办的迪拜国际博览会的，日本展馆的传送带式寿司店Sushi Road 万博店的10名员工已经感染了中共病毒。
 
-报道全文一千一百多字，除了大话、空话、套话、假话，笔者的理解主要是以下几点1，确保经济金融大局稳定。2，内外环境发生深刻变化。3，坚持底线思维、增强忧患意识。4，增强政治意识，提高政治站位。
+该店自20日起停止营业，待确认安全后再回复营业。日本馆整体照常参展。
 
-**经济金融大局稳定意味着什么？**
+作为中东地区的第一个世博会，迪拜世博会于10月开幕，由于中共病毒新变种的扩散，游客人数明显放缓。新变种奥密克戎也影响到了12月11日举行的介绍日本传统和文化的 “日本日 “活动，活动规模被被迫缩小。
 
-中国共产党是远东共产国际组织，牠是“黄俄”。自牠成立那天起就开始了牠对中华大地及其人民的杀戮、残害、破坏、奴役、欺骗、掠夺、互相绞杀之途；虽然形式各异、显隐不同，但是从未停止；牠是非法、犯罪的执政组织。维持牠统治的最重要基础，就是让奴隶们吃饱肚子。
-
-所以，一旦中国经济金融崩溃，中国共产党的统治地位就会随之倒塌。不仅如此，随着牠统治地位的倒塌，牠的掠夺、盗窃和奴役就会结束；并且，牠的杀戮、残害、破坏，种族灭绝，反人类等罪行就会被清算和审判。所以，经济金融大局意味着牠的利益和生死，即所谓的“重大风险”。
-
-**中共能化解牠们的“重大风险”？**
-
-面对生死，中国共产党要求牠们的组织成员“增强忧患意识，增强政治意识、提高政治站位”。也就是在行将就木的自我绞杀，以及面对外部世界文明力量围剿和国内民众被迫抗争的最后时刻，要求牠们的成员政治第一，选定立场、站好队伍；并不惜一切用无底线的“底线思维”来化解“重大风险”。
-
-然而，当下的文明力量，已经认清中国共产党的真正面目。贸易脱钩、科技脱钩、金融脱钩、外交脱钩正在进行，也就是冷战正在进行。经济崩溃已成定局。如果不爆发热战，那么中国共产党苟活的唯一方法就是闭关锁国。但是，面对改革开放后人民的觉醒和经济崩溃带来的生存危机，面对快信息高科技的世界一体化，这些内外环境的深刻变化，牠的目的能达到？牠们能化解牠们的“重大风险”？
-
-文章观点仅代表作者，与GNews 平台无关
-
-新闻链接：[https://ishare.ifeng.com/c/s/v00667IcUYHUj7FX0ByVgpz-\_kTY1rP6OMXhP2hWaUHbvb0nduNKokRoRfQLLwLUiq4Yy?spss=np&channelId=SYLB10NEW\_TOP&aman=fgW043er3rCfgYSQ04NY2ZukMGvQ0MvWNmCNzdGhNWSEz1t00v](https://ishare.ifeng.com/c/s/v00667IcUYHUj7FX0ByVgpz-_kTY1rP6OMXhP2hWaUHbvb0nduNKokRoRfQLLwLUiq4Yy?spss=np&amp;channelId=SYLB10NEW_TOP&amp;aman=fgW043er3rCfgYSQ04NY2ZukMGvQ0MvWNmCNzdGhNWSEz1t00v)
-
-素材：洛杉矶盘古农场 — 自由非侠
-评论：洛杉矶盘古农场 —心照
-编审：洛杉矶盘古农场 —柯镇恶
-发布 ：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+信息源：[ドバイ万博出店のスシロー、従業員１０人がコロナ感染 (msn.com)](https://www.msn.com/ja-jp/news/world/%E3%83%89%E3%83%90%E3%82%A4%E4%B8%87%E5%8D%9A%E5%87%BA%E5%BA%97%E3%81%AE%E3%82%B9%E3%82%B7%E3%83%AD%E3%83%BC-%E5%BE%93%E6%A5%AD%E5%93%A1%EF%BC%91%EF%BC%90%E4%BA%BA%E3%81%8C%E3%82%B3%E3%83%AD%E3%83%8A%E6%84%9F%E6%9F%93/ar-AAS2u5r?ocid=msedgntp)
 
  
 
