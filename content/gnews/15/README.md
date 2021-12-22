@@ -2,47 +2,22 @@
 ---
 
 
-## 推特祭出新规则 被定义为误导性中共病毒信息恐遭永久封禁
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1780875/)
+## 新中国联邦未来三年核心教育、医疗、宗教、法治和外交的独立
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1780938/)
 
-作者：银河勇气星—骄子
+文编：东京樱花团/樱花传媒
 
+视频:东京樱花团/中文小视频组
 
+12月12日，郭文贵先生在GTV大直播指出：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+千招会不如一招绝。
 
+新中国联邦的未来，在教育、医疗、宗教、法治、外交上当然有无穷无尽美好的设计。但是目前一切的一切都应以灭共为中心，不要分心，不灭共一切都是空谈。
 
-
-外媒12月20日报道，社交媒体推特将针对用户发表“疫苗接种者可以传播中共病毒”等相关言论予以处罚，最严重的可能受到永久封禁。推特将此类言论定义为“包含有关中共病毒的误导性信息”。
-
-THE DC PATRIOT的创始人Matt Couch，在推特分享了泽连科博士关于中共病毒的相关文章后，帐号遭到推特永久封禁。 此项措施将会适用于所有类似的情形。
-
-该惩罚措施最早可追溯至11月29日推特原CEO 杰克·多尔西辞职后，继任的CEO于12月2日改变了平台规则。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-271.jpg)
-参考链接：
-[Twitter Not Trusting the Science, Says It Will Penalize and Suspend Those Claiming Vaccinated Can Spread Covid-19](https://thedcpatriot.com/twitter-not-trusting-the-science-says-it-will-penalize-and-suspend-those-claiming-vaccinated-can-spread-covid-19/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
-
-总编/编辑：Zhong
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
+编辑：东京樱花团/墨然
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-1.jpg)
 
 
  

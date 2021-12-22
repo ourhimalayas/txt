@@ -15,113 +15,113 @@
 
 ---
 
-### [12/22每日播报｜数十名国会议员在有中共背景的非营利组织做顾问](/content/gnews/1/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [历史的真相是共产党在长征后 毛泽东已经准备保命做老师 共产党的宣传完全是胡扯](/content/gnews/2/README.md)
+### [中共是从来没有选举的国家 14亿人不知道历史真相的国家 对杀中国人最多的俄罗斯人从来不敢说不的国家](/content/gnews/1/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [过冬至](/content/gnews/3/README.md)
+### [我朱门酒肉臭的 一定会被清算](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [12/22每日播报｜数十名国会议员在有中共背景的非营利组织做顾问](/content/gnews/3/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [历史的真相是共产党在长征后 毛泽东已经准备保命做老师 共产党的宣传完全是胡扯](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [过冬至](/content/gnews/5/README.md)
  ` 纽约香草山MOS03`
 
-### [12/22每日播报｜美佛罗里达州官员采取行动脱钩养老基金与中共的联系](/content/gnews/4/README.md)
+### [文贵大直播 12/22 冬奥会之前的媒体超限战 中共大外宣用心险恶](/content/gnews/6/README.md)
+ ` 秘密翻译组-原创组`
+
+### [12/22每日播报｜美佛罗里达州官员采取行动脱钩养老基金与中共的联系](/content/gnews/7/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [躺平币的功能和应用场景和喜币是不一样的](/content/gnews/5/README.md)
+### [躺平币的功能和应用场景和喜币是不一样的](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [银河快讯：日本对有争议的香港选举表示严重关切；中日交流活动被取消](/content/gnews/6/README.md)
+### [银河快讯：日本对有争议的香港选举表示严重关切；中日交流活动被取消](/content/gnews/9/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [3.0的主要目的是让GTV GNEWS GETTR成为信息的交易市场](/content/gnews/7/README.md)
+### [3.0的主要目的是让GTV GNEWS GETTR成为信息的交易市场](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [串珠495:习近平只要发现冬奥会开不成了一定打台湾](/content/gnews/8/README.md)
+### [GTV新闻访谈简报|2021年12月22日早](/content/gnews/11/README.md)
+ ` 纽约香草山MOS01`
+
+### [串珠495:习近平只要发现冬奥会开不成了一定打台湾](/content/gnews/12/README.md)
  ` 郭爆料串珠`
 
-### [新中国联邦的未来一定是各种高科技加持](/content/gnews/9/README.md)
+### [新中国联邦的未来一定是各种高科技加持](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [串珠494:彭帅事件是习政治滑铁卢，毁了冬奥会](/content/gnews/10/README.md)
+### [串珠494:彭帅事件是习政治滑铁卢，毁了冬奥会](/content/gnews/14/README.md)
  ` 郭爆料串珠`
 
-### [新中国联邦未来三年核心教育、医疗、宗教、法治和外交的独立](/content/gnews/11/README.md)
+### [新中国联邦未来三年核心教育、医疗、宗教、法治和外交的独立](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线：中共鼓吹国产芯片要替代英特尔](/content/gnews/12/README.md)
+### [秘翻在线：中共鼓吹国产芯片要替代英特尔](/content/gnews/16/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [习家人早就布局投资社交媒体](/content/gnews/13/README.md)
+### [习家人早就布局投资社交媒体](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [MV版Hcoin To the Moon上线第13天位列7国iTunes热门MV榜首](/content/gnews/14/README.md)
+### [MV版Hcoin To the Moon上线第13天位列7国iTunes热门MV榜首](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [推特祭出新规则 被定义为误导性中共病毒信息恐遭永久封禁](/content/gnews/15/README.md)
+### [推特祭出新规则 被定义为误导性中共病毒信息恐遭永久封禁](/content/gnews/19/README.md)
  ` GTV新闻访谈`
 
-### [李嘉诚面临英国反垄断调查](/content/gnews/16/README.md)
+### [李嘉诚面临英国反垄断调查](/content/gnews/20/README.md)
  ` GTV新闻访谈`
 
-### [全球最大邮轮48人感染其中47人已完整接种疫苗](/content/gnews/17/README.md)
+### [全球最大邮轮48人感染其中47人已完整接种疫苗](/content/gnews/21/README.md)
  ` GTV新闻访谈`
 
-### [串珠493:习要用数字人民币灭江王、数字货币和美元](/content/gnews/18/README.md)
+### [串珠493:习要用数字人民币灭江王、数字货币和美元](/content/gnews/22/README.md)
  ` 郭爆料串珠`
 
-### [爱要有质量 爱有亿万种标准 希望战友们真心的互相真心地爱](/content/gnews/19/README.md)
+### [爱要有质量 爱有亿万种标准 希望战友们真心的互相真心地爱](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共的野心和愚蠢都超出预期想象 对于中国人的未来不抱有任何幻想](/content/gnews/20/README.md)
+### [中共的野心和愚蠢都超出预期想象 对于中国人的未来不抱有任何幻想](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国务院和财政部将制裁五名中共官员](/content/gnews/21/README.md)
+### [美国务院和财政部将制裁五名中共官员](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [秘翻在线：美佛罗里达州政府将重点清理在中共国投资的公共养老基金](/content/gnews/22/README.md)
+### [秘翻在线：美佛罗里达州政府将重点清理在中共国投资的公共养老基金](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美俄联手让习近平更加疯狂 更加有利于我们灭共](/content/gnews/23/README.md)
+### [美俄联手让习近平更加疯狂 更加有利于我们灭共](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [郭先生解读风水给人类生存带来的自然力量](/content/gnews/24/README.md)
+### [郭先生解读风水给人类生存带来的自然力量](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [最重要的好消息来临 吸取李自成的教训](/content/gnews/25/README.md)
+### [最重要的好消息来临 吸取李自成的教训](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [加拿大医疗系统因疫情反复不堪重负](/content/gnews/26/README.md)
+### [加拿大医疗系统因疫情反复不堪重负](/content/gnews/30/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [文贵先生关于HPAY的商业化描述](/content/gnews/27/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [疫苗政客与制药公司必将受到审判](/content/gnews/28/README.md)
+### [疫苗政客与制药公司必将受到审判](/content/gnews/31/README.md)
  ` GTV新闻访谈`
 
-### [所有的办法都是消灭恶势力的办法 传播真相就足够了 剩下的七哥来安排](/content/gnews/29/README.md)
+### [所有的办法都是消灭恶势力的办法 传播真相就足够了 剩下的七哥来安排](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国人口增长率在CCP病毒大流行期间创下最低纪录](/content/gnews/30/README.md)
+### [美国人口增长率在CCP病毒大流行期间创下最低纪录](/content/gnews/33/README.md)
  ` 澳喜特战旅Gnews`
 
-### [看事情的角度决定了事情的结果](/content/gnews/31/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [俄罗斯国家病毒学与生物技术研究中心首次公布“Omicron”病毒毒株照片](/content/gnews/32/README.md)
+### [俄罗斯国家病毒学与生物技术研究中心首次公布“Omicron”病毒毒株照片](/content/gnews/34/README.md)
  ` 纽约香草山MOS02`
 
-### [“为了我们你们的自由”，澳大利亚示威者抗议疫苗强制](/content/gnews/33/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [12/22/2021 国际财经快讯：西班牙简化破产程序以获得欧盟复苏资金；尽管有中共病毒奥密克戎变异的威胁，亚洲股市仍然走高](/content/gnews/34/README.md)
+### [12/22/2021 国际财经快讯：西班牙简化破产程序以获得欧盟复苏资金；尽管有中共病毒奥密克戎变异的威胁，亚洲股市仍然走高](/content/gnews/35/README.md)
  ` 秘密翻译组金融团队`
 
-### [中共管控铁拳下“铁血失血”，五毛愤青为哪般？](/content/gnews/35/README.md)
+### [中共管控铁拳下“铁血失血”，五毛愤青为哪般？](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美国豪华邮轮爆发“奥密克戎”病毒疫情](/content/gnews/36/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
 
 ### [岸田力推“新时代现实主义外交”](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
@@ -177,14 +177,14 @@
 ### [牛津大学研究揭接种疫苗者得心脏病入院或死亡律达1%](/content/gnews/54/README.md)
  ` HimalayaRussia`
 
-### [数据显示:接种“病毒疫苗”正在引发数十万人的精神障碍](/content/gnews/55/README.md)
+### [期待感受同时播出Vice艺术片和采访实录的震撼](/content/gnews/55/README.md)
+ ` 秘密翻译组-原创组`
+
+### [数据显示:接种“病毒疫苗”正在引发数十万人的精神障碍](/content/gnews/56/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [辉瑞以67亿美元收购了研究心血管疾病的生物制药公司Arena](/content/gnews/56/README.md)
+### [辉瑞以67亿美元收购了研究心血管疾病的生物制药公司Arena](/content/gnews/57/README.md)
  ` 首尔天池农场`
-
-### [拜登的“重病和死亡的冬天”已在高疫苗接种州成现实(1/2)](/content/gnews/57/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [【Michael.Tonny专栏】辉瑞CCP病毒疫苗临床试验中，儿童不良反应率为86.2%](/content/gnews/58/README.md)
  ` 温哥华扬帆农场`
