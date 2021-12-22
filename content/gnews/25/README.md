@@ -2,40 +2,30 @@
 ---
 
 
-## 七零后九零后零零后的近半数中国人必将跟随新中国联邦
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1779879/)
+## 虚伪的民主—昆士兰州立法议员享毒疫苗豁免特权
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1779949/)
 
-**郭文贵先生：**只有两个、两个条件你看到就行了，中国70后占中国多少人口？一亿多，90后占中国将近两亿多，两千后和孩子、婴儿，占了将近两亿多，这已经占了一半的中国人了。就是原来所谓的就是洗脑这些事，他们都不知道叫什么被洗脑和洗脑，他没有分别。就是他们脑子空白，就是他们对事情的接受能力和互联网的接受能力一旦打开，那个空间都是给新中国联邦准备的。
+作者：雄起
+![](https://assets.gnews.org/wp-content/uploads/2021/12/酷翻组1-1.png)
+上周，澳大利亚昆士兰州议长柯蒂斯-皮特（Curtis Pitt）颁布一项指令，未接种疫苗的人将被禁止进入州议会，但议员将被豁免。
 
-你今天的直播你觉得很累是吧，你们四个。到未来你看多少中国人看，任何一句话，任何一个动作都会影响他们一生。我就押他五亿人了，这五亿人一定会……怎么他养老人他养活下去，我们要三四个老人，新中国联邦给你答案，我让你养老人。怎么样生活呀？怎么要有地啊？怎么有车？怎么有房啊？新中国联邦给你答案。我就靠这两条，我就会……新中国联邦，我想不赢都不行，对吧？什么叫政治经济。
+12月18日生效的这项指令中规定，任何进入议会区的人，必须是已经接受了两剂疫苗，或者有医疗豁免，或者已经向皮特先生申请了豁免。
 
-咱这G-Fashion一晃荡，一穿是吧，一人发10件，你说谁会骂咱？没人骂咱。谁跟那些已经是土埋到鼻子的人一块活下去？不可能。他也不会看直播，他也看不了直播，他不会看盖特，不会看新G-TV。大家懂我意思了吧，咱掌握着现代核武器呢，咱怕啥呀？天空Wi-Fi，“咔叽”也上去了，咱怕啥呀是吧。
+但是因议会事务而进入的立法会议成员将被豁免，虽然他们不能去餐区，包括自助餐厅、咖啡馆或任何酒吧。
 
-字幕来源：[2021年12月19日郭文贵先生大直播全文字版（下）](https://gnews.org/zh-hans/1775367/) ；
+这项疫苗强制令还延伸到了选举办公室，在那里国会议员则不会被豁免。议会官员和工作人员必须在12月17日前接种第一剂疫苗，在1月21日前接种第二剂。不遵守规定可能会导致被解雇。
 
-字幕文件制作：小满；
+虽然上个月，在当局考虑出台这项强制令时，议会秘书尼尔-劳里（Neil Laurie）表示，这是一个不应仓促的过程。但是最终这项指令还是出台了。而针对全州580名工作人员的强制令从12月13日起就已生效。
 
-视频制作及上传：Cindy；
+“简而言之，议长和书记有责任照顾议员、工作人员和公众，使他们在与服务人员的互动中尽量减少感染COVID-19的风险，”工作人员指令写道。”COVID-19在政府服务部门的快速传播将使官员和雇员患病后，进行隔离或康复期间失去服务能力。
 
-G-News发布：小满；
+笔者不禁感叹，在实行民主制度的澳大利亚，我们如今看到的更多是独裁式的强制令。虽然强制令书写的理由冠冕堂皇，但并不能解释同为国家公务人员，为什么立法议员就可以豁免，而民选议员却并无特权，是否因为执恶法者，心知肚明这是违法违宪的行为，因此网开一面，换手持立法权的立法议员保持沉默？政府借中共病毒（新冠病毒covid-19）流行，疯狂越权，滥权，民主世界的公民已无路可退，唯有反抗自救。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的短视频发布频道**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+[新闻链接](https://www.brisbanetimes.com.au/national/qld-mps-exempt-from-vaccine-mandate-in-parliament-20211212-p59guf.html)：[https://www.brisbanetimes.com.au/national/qld-mps-exempt-from-vaccine-mandate-in-parliament-20211212-p59guf.html](https://www.brisbanetimes.com.au/national/qld-mps-exempt-from-vaccine-mandate-in-parliament-20211212-p59guf.html)
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+审核校对：sherryok
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+上传排版：水云间
 
  
 

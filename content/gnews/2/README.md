@@ -2,30 +2,55 @@
 ---
 
 
-## 中共在饱受战乱困扰的第三世界国家购买支持
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1780149/)
+## 全球和澳洲疫情疫苗统计信息更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1780208/)
 
-#### 翻译/撰稿：zzballack
+**（2021年 12月22日）**
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-2-18.jpg)图片来源：纽约时报
-据《布雷特巴特新闻网》（Breitbart News）12月20日报道，中共政府正在通过介入地区冲突、向当地政府提供经济支持和军事援助，以从非洲到中东国家的第三世界领导人那里获得好处。
+**整理：枳实**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2-69.png)图片：雅典娜农场设计组 精灵蓝
+一，全球疫情基本数据
+感染总数：2.76亿（日新增 76.9万）
+死亡总数：537万（日新增 7511人）
+每万人感染人数：350.7774人
 
-《坎帕拉独立报》（The Kampala Independent）12月19日报道说，知名的中共军事承包商正在与乌干达人民国防军UPDF和民主刚果合作，对抗反对乌干达政府的民主同盟军ADF。据报道，至少有两个大型的中共军事承包商悄悄地向乌干达政府军提供物资。它们分别是中国兵器工业集团（Norinco）和保利科技有限公司（Poly Technologies）。中国兵器工业集团是中国最大的武器制造商之一，也是中共解放军的主要供应商。
+二，全球“疫苗”毒针统计数据
+“疫苗”毒针注射总数：87.8亿
+完全“接种”：36.3亿人
+完全“接种”百分比：46.6%
 
-据《独立报》报道，乌干达从中国兵器工业集团购买了装甲战车，包括中共最近才开始出售给外国客户的一种新车型，保利科技公司则提供了防雷运兵车。保利科技还销售武器、通信设备、海洋设备和军用飞机地面支持设备。有报道说，乌干达现任总统约韦里·穆塞韦尼（Yoweri Museveni）的儿子穆霍齐·凯尼鲁加巴（Muhoozi Kainerugaba）中将以及一名与中共有密切利益关系的官员将被晋升为乌干达人民国防军总司令，以“巩固”中共和乌干达军队之间的关系。《独立报》说：“乌干达和保利科技之间的军火交易可能会让乌干达的一些盟友感到不安，比如向乌干达提供军事援助的美国。”
+三，澳洲疫情和“疫苗”数据
+感染总数：259，207（今日新增 4575人）
+死亡总数：2146人
+每万人感染人数：102.6457人
+“疫苗”毒针注射总数：41,667,960
+完全“接种”：1960万人
+完全“接种”百分比：76.4%
+16岁以上人口接种至少一剂疫苗的比例：93.9%
+16岁以上人口接种至少两剂疫苗的比例：90.6%
 
-另一个非洲国家尼日利亚正在发生数起叛乱活动，局势动荡。中共政府以保护在尼日利亚的中国公民为借口，向该国派出了一个刑侦专家高级代表团。《南华早报》指出：“中共这几十年来一直向非洲国家提供军事和安全培训，随着中共通过‘一带一路’基础设施倡议（BRI）扩大其影响力，他们现在可以打着保护投资、工程项目和人员的幌子，向这些发展中国家派遣安全部队。”
+四，突发新闻
+西澳州长马克·麦高恩 (Mark McGowan) 宣布，西澳成为澳大利亚第一个强制施行第三剂加强针的州。
 
-在伊拉克，随着美国正式结束在该国的作战任务，中共趁机在本月初与伊拉克政府签署了15份合同，建造一千多所学校。另外，中共的公司和投资者正在竞标该国的电力和水利建设、交通基础设施和石油等项目的合同。
+该强制令将涵盖所有受原有强制令影响的行业，包括老年护理、卫生、检疫人员、采矿和基本工人等行业。州长表示，他还希望最终将疫苗强制范围扩大到任何想参加体育赛事和音乐会等活动的人。他今天对记者说：“根据这项强制令，工人现在需要在符合条件的一个月内接种第三剂。”
 
-位于伦敦的智库公民社会研究所（Institute for the Study of Civil Society）的一份报告警告说，中共在为外国客户提供的军事训练计划中还包括“意识形态教育”，同时进行宣传，以“推广其治理模式”。一些臭名昭著的独裁者就毕业于中共的军事-意识形态培训项目，比如前津巴布韦总统罗伯特·穆加贝（Robert Mugabe）。
+人们目前可以在第二针五个月后接受加强针注射，但澳大利亚免疫技术咨询小组将很快决定该时间间隔是否会改变。州长表示，他希望尽可能缩短这个时间间隔。
 
-美国智库兰德公司（RAND Corporation）的安全分析师蒂莫西·希斯（Timothy Heath）说：“随着解放军与军事精英的联系以及中共与当地政治精英的联系的增强，在每个国家形成了一个可能会支持北京偏好而不是西方国家偏好的精英权力网络。”《日经亚洲评论》（Nikkei Asian Review）今年12月初的一篇专栏文章认为，中共正在更积极地利用其日益增长的影响力“输出独裁主义”，使发展中国家的政治精英们在意识形态上与北京保持一致。
+参考链接：
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+[First state to mandate booster shot](https://www.news.com.au/national/western-australia/covid19-vaccine-mandate-in-wa-now-includes-a-third-dose/news-story/752c67452adc76f7242228edb500a12e)
 
-弗吉尼亚联邦大学的助理教授本杰明·R·扬（Benjamin R. Young）警告说：“中共正在通过向发展中国家的政党传播其绝对忠诚和党建纪律的意识形态价值观，培养他们对中共党国治理模式的支持。津巴布韦的执政党非洲民族联盟－爱国阵线（ZANU-PF）派遣高级官员到中共的‘意识形态学校’参加培训就是一个例子。虽然西方民主政府可能会嘲笑中共独裁主义是一种有吸引力的现代化模式这一说法，但发展中国家的执政党越来越把中共的党国模式视为迅速实现经济增长和限制政治不稳定的最佳途径。”
+发布：去中心化Math
 
-新闻来源：[China Buys Up Support in War-Torn Third World](https://www.breitbart.com/africa/2021/12/20/china-buys-support-war-torn-third-world/)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

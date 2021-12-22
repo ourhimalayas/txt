@@ -2,38 +2,20 @@
 ---
 
 
-## 共产党放个屁的声音就没了,所有折腾是给新中国联邦送礼
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1779858/)
+## 奥米克戎横扫美国，占据现在新病例的73%
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1779933/)
 
-**郭文贵先生：**我觉得共产党一定是就我说的就“咔嚓”一下子甚至连声音都没有，放个屁的声音没有就没有了，而且老百姓一定会是狂欢、狂呼，特别最狂呼的是共产党而不是老百姓。中国老百姓很麻木的啊。这个时候一定会的，老百姓可能会继续吃草，有的老百姓关心关心自己生活的事儿，继续困苦。然后共产党会狂欢，最高兴的是共产党员。
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-114.png)
+图片来源： www.shobserver.com
 
-然后共产党就开始要拔城，占寨，闯王，都会出现。但是呢，一点都不用担心，现在的世界，咱新中国联邦想说不重要都不行，世界上没有共产党以后谁不找新中国联邦？你别找，咱们搭都不搭理。你可能这个什么胡春华上去啦，什么、什么汪洋上去啦，什么韩正上去，大家一定要沉住气，什么曾庆红啦、什么孟建柱啦，有可能孙力军也可能当政法委书记、当常委，都甭管。所有共产党嗝屁，“啪”一下完以后，就所有的折腾都是给新中国联邦送礼。
+美联社12月21日报道，美国联邦健康官员周一说，奥米克戎超越其他变种，目前在美国的中共病毒疫情中占主导地位，上周约占新病例的73%。
 
-字幕来源：[2021年12月19日郭文贵先生大直播全文字版（下）](https://gnews.org/zh-hans/1775367/) ；
+疾控中心数据显示，奥米克戎仅仅在一周内病例数几乎增加6倍，很多地方甚至更高，在纽约奥米克戎几乎占90%以上的新病例，上周全国奥米克戎感染就达65万，自从今年6月底以来德尔塔变种病毒一直是美国主要的感染类型，到11月底达到99.5%，而奥米克戎最初被非洲科学家发出警告，于11月26日世卫组织定义“令人担忧的变种。自那以后，该变种已经在全球90个国家出现。奥米克戎感染数字呈极快速增长，从最初的0.4%, 到前一周的13%，然后上周达73%。
 
-字幕文件制作：小满；
+对于奥米克戎还有很多问题未知，包括其严重性究竟是更重还是更轻？早期研究认为需要加强针以预防，但疫苗的保护力尚不明确。有学者认为只要我们有社交活动，我们都会与奥米克戎相遇。
 
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的短视频发布频道**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+疾控中心说目前还未能估计因奥米克戎住院或死亡的数字，因为还有很多新病例是德尔塔变种。
 
  
 
