@@ -2,36 +2,39 @@
 ---
 
 
-## 牛津大学研究揭接种疫苗者得心脏病入院或死亡律达1%
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1778607/)
+## 有声|未感染中共病毒乘客被强行拘留隔离
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1778807/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+配音：香草山香港部 – 文凯琳
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/12/V-3.jpg)id-hub.com
-《门道专家》12月20日晚间发表了题为“牛津大学的研究令人震惊：在研究期间，每100名接种疫苗的人中就有1人入院或死于心律失常”。【1】
 
-全文如下：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+盖特12月18日消息，近日福克斯节目揭露了一起匪夷所思的疫苗暴政事件，一位并没有感染中共病毒的飞机旅客，被强行拘留并被隔离。
 
-2021年12月14日，《自然医学》（Nature Medicine）发布了一项基于牛津大学研究人员分析的广泛人群数据的研究，研究人员检查了中共病毒感染和心肌炎和心律不齐的风险。
+据悉，该事件发生在荷兰阿姆斯特丹机场，一名登机前接受检测并未感染中共病毒的旅客，被全副武装的军警强行拖下飞机，被送往中共病毒营地进行强制隔离。究其原因仅仅是荷兰政府根据他的旅行史，认为他可能有一天会感染新冠病毒而已。
 
-牛津大学的研究人员透露，在所有接种疫苗的人中，每100人中有1人或1%因心律失常或心律不齐而入院治疗或死亡。
+主持人警告说，这样离奇的事件不仅仅发生在海牙国际法庭的故乡，加拿大也在发生着同样的疫苗暴政。人们被禁止乘坐飞机、火车和轮船旅行，除非他们证明已经注射过特鲁多逼迫他们注射的中共病毒疫苗。如果人们拒绝，就会被关押在一个伪装成公共卫生设施的监狱里。
 
-*在我们研究中包括的38,615,491名接种疫苗的个体中，385,508名（1.0%）在研究期间的任何时间（接种前或接种后开始的研究）因心律失常入院或死亡；其中86,754例（0.2%）发生在第1-28天 。接种任何疫苗后数天，在入院或死亡的患者中，39,897人（10.3%）的中共病毒检测呈阳性，其中29,694人（7.7%）在接种疫苗前检测呈阳性，有7,795例死于心律失常（1,108例中共病毒检测呈阳性）。*
+主持人最后的结语令人深思：世界各地正在发生的强制注射中共疫苗的暴政，象征着民主的死亡。
 
-因此，每100名接种疫苗的人中就有1人因心律不齐而去医院，这不应该是国际新闻的头条吗？
+文字版原文：[未感染中共病毒乘客被强行拘留隔离](https://gnews.org/zh-hans/1770819/)
 
-这是一个令人震惊的数字。
+音频处理：喜山必胜Maverick
+发稿：Tom Li
+[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
+**更多资讯，更多关注**
 
-（原文完）
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-笔者不太放心，按照文章提供的线索，查阅到了有关论文【2】，的确有这样的描述。笔者有同样的疑惑，“这不应该是国际新闻的头条吗？” 为什么主管机构不认真对待？还在加紧实施疫苗的强制接种？主流媒体集体禁声？一切的不正常背后必有妖术、邪术，那就是与中共一起的阴谋集团在操控。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-有关链接：
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-【1】[https://www.thegatewaypundit.com/2021/12/oxford-study-shocker-1-100-vaccinated-individuals-admitted-hospital-died-arrhythmia-study-period/](https://www.thegatewaypundit.com/2021/12/oxford-study-shocker-1-100-vaccinated-individuals-admitted-hospital-died-arrhythmia-study-period/)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-【2】[https://www.nature.com/articles/s41591-021-01630-0](https://www.nature.com/articles/s41591-021-01630-0)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

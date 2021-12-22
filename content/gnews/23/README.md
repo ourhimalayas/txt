@@ -2,37 +2,30 @@
 ---
 
 
-## 美国副国务卿被任命为西藏问题特别协调员
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1778926/)
+## 法媒称台内部亲中共势力是北京特洛伊木马
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1778969/)
 
-**撰稿：日本东京方舟农场 幽蘭自得**
+作者：纽约香草山医疗部 – 云豹
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+12月19日晚上，法国一家人气较高的电视台以“台湾：被中共巨人围困的岛屿”为题，播出了一个一小时的深入报道专辑，分析中共对台湾民主发展的威胁，及台湾民主发展的韧性。主持人称赞台湾是民主的典范，并指出台湾内部的亲中共势力是北京在台湾内部的特洛伊木马。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture15-2.jpg)
+主持人指出，台湾拥有自由蓬勃的经济，是进步的社会、民主的典范。 中共正企图如同对待香港一样，分别以外交、武力的方式对台湾施压，并用金钱来收买卖台贼。
 
-据《美国之音》12月21日报道，美国副国务卿泽雅被任命为西藏问题特别协调员，将在北京侵犯西藏人权之际领导美国维护西藏宗教、文化和语言遗产的工作。
+参考链接：[法媒称台内部亲中共势力是北京特洛伊木马](https://www.cna.com.tw/news/firstnews/202112200313.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-据报道，美国国务卿布林肯在宣布这个任命时表示，负责民事安全、民主和人权事务的副国务卿乌兹拉·泽雅（Uzra Zeya）还将同时寻求促进中共国和西藏精神领袖达赖喇嘛或民选西藏领导人之间的对话。
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-布林肯在推文中说，“她将领导美国努力维护西藏人民的宗教、文化和语言遗产，西藏人民正面临人权侵犯，他们的生计和环境正在面临挑战。”
+总编：文特
+编辑：飞虹
+校对/发稿：Hetangyuese
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-263.png)图片来自美联社
-
-国际声援西藏运动（International Campaign for Tibet）对此表示欢迎泽雅履新。临时主席布琼次仁（Bhuchung Tsering）在一份声明中呼吁泽雅带头争取志同道合国家的支持，制定西藏问题的共同方法，正如美国去年通过的《西藏政策及支持法案》（Tibetan Policy and Support Act）所要求的那样。
-
-此前，美国63名国会两党参众议员就西藏问题同时致函副国务卿乌兹拉·泽雅，对西藏自治表示支持，呼吁拜登政府与国会依据2002年“西藏政策法案”（Tibetan Policy Act）和2020年“西藏政策及支持法案”（Tibetan Policy and Support Act）等法律共同推动美国西藏政策的11个具体领域，保护藏人权利、自治与尊严，并进一步确认与中共国不同的西藏独特的政治、族裔、文化和宗教认同。
-
-*参考链接：*
-
-[美国副国务卿泽雅被任命为西藏问题特别协调员](https://www.voachinese.com/a/zeya-named-coordinator-for-tibet-20211220/6362358.html)
-
-[美国60多名国会两党参众议员致函国务院支持西藏自治](https://www.voachinese.com/a/lawmakers-urge-to-make-tibet-priority-20211214/6354909.html)
-
-* * *
-
-*素材采编：幽蘭自得*
-
-*编辑：文顺*
-
-*发布：Ranting*
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

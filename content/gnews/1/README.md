@@ -2,42 +2,50 @@
 ---
 
 
-## 人类正身处CPI归零的网络战数字战货币战生化战疫苗战
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1779255/)
+## 澳大利亚将核磁共振扫描诊断心肌炎列入医保项目
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1779304/)
 
-**郭文贵先生：**从过去的西班牙王国、葡萄牙王国，包括罗马帝国，包括我们中国的袁大头、大清朝券，所有的什么、所有的货币你可以看到，每个国家、每种货币，就是说确定你为Eric的面包多少钱的时候，用啥来衡量的时候，一定是更朝换代，尸骨遍野，永远是。
+**【雅典娜快讯】，紧贴时代脉搏**
 
-这次是所有的定价权，就是CPI要回到零，现在已经不是100了，现在已经达到10万去了，大家看到已经达到4万了，CPI100现在已经达到4万到5万了。就是过去订面包是一块钱，实际上现在就是5万块钱，你就这么简单，它很吓人的，它只有砸回来，砸回来拿什么来量呢？那谁决定算呢？那就是枪、刀，死人，那是一定你看到这些币都不会存在，一定是的，在这个战争再死的话，就全人类就完了。我告诉大家从去年到今天，我们人类就在这场战争中，互联网。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1153.png)图片来源：NT News
 
-包括现在在讲现在是不是在第三次世界大战中、网络战中、金融战中和超限战中，大家我告诉你，百分之百人类已经一年了在这种网络战、数字战、货币战和病毒生化武器战争中，然后疫苗战。这几个战同时发生在人类上前所没有的。
+**整理报道：文扬
+编辑：文泓**
 
-那么现在可以说网络战的最核心是什么？数字货币，情报都是放第二位的，数字货币是第一战，谁都想拿数字货币定价权，谁都想拿数字货币的发行权和监管权。
+12月21日，据本地媒体报道，明年开始，澳大利亚人核磁共振扫描心脏将获得政府补贴，以协助诊断由新冠病毒疫苗引起的炎症性心脏疾病。
 
-字幕来源：[2021年12月19日郭文贵先生大直播全文字版（上）](https://gnews.org/zh-hans/1773363/) ；
+上周五，联邦卫生局悄悄地更新了医疗保险福利计划（MBS）在线网站，宣布从2022年1月1日到2022年6月30日在社保（Medicare）福利表中增加新的临时项目。
 
-字幕文件制作：小满；
+该项目介绍，MBS项目63399正在引入心脏核磁共振（MRI），以协助诊断接种mRNA新冠辉瑞疫苗和莫德纳疫苗后可能引发的心肌炎。
 
-视频制作及上传：Cindy；
+政府认为该检查项目应该花费的金额为855.20美元。对于院外服务，患者将能够从医保获得最高767.30澳元（85%）的退款，如果服务是在私立医院进行的，则为641.40澳元（75%）。
 
-G-News发布：黎明之前；
+该项目病人一生中只能申请一次，用于“在使用常规成像技术不能明确诊断心肌炎的情况下”。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的短视频发布频道**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+MBS将这项服务描述为：“心血管系统的MRI扫描，以评估心肌结构和功能，**前提是****这项服务是由评估病人的顾问医生要求的**”。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+扫描请求必须说明“**患者在接受mRNA****新冠****疫苗后疑似心肌炎”、“患者在接种mRNA****新冠****疫苗后21天内出现症状**”，**以及超声心动图、胸部X-射线和肌钙蛋白测试结果“不能确诊心肌炎”**。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+情况说明书提示，“准确诊断与mRNA新冠疫苗相关的心肌炎对于澳大利亚新冠疫苗接种计划的持续管理至关重要，包括推出mRNA加强剂量，以及将 mRNA疫苗接种扩展到12岁以下的儿童。”
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+卫生部的一位女发言人说，**在澳大利亚和新西兰心脏协会的要求下，医疗服务咨询委员会将该项目加入了MBS**。
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+“在更广泛地使用心脏MRI诊断心肌炎进行全面健康技术评估之前，暂时建议使用它”，她说：“澳大利亚政府将在年中经济和财政展望(MYEFO)更新中额外提供98亿澳元，以提供持续的远程医疗和新冠疫苗接种，并确保澳大利亚人能够获得世界一流的医疗保健和药物。”
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+医疗服务咨询委员会（MSAC）负责评估拟用于公共资助的医疗服务或技术的安全性、有效性和性价比。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+**心肌炎或心肌炎症，是辉瑞和****莫德纳****疫苗的一个****已知而“****罕见****”****的副作用****；****心包炎或心脏周围的内膜炎症不太严重，但更常见。**
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+原文链接： [Medicare: MRI to diagnose myocarditis after Covid-19 vaccine added to MBS | news.com.au — Australia’s leading news site](https://www.news.com.au/lifestyle/health/health-problems/mri-scan-to-diagnose-myocarditis-after-covid19-vaccine-added-to-medicare-benefits-schedule/news-story/9795fb7b3140b420565bc629cc1c2df9)
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+*发布：盘古相聚*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

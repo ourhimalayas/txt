@@ -2,35 +2,49 @@
 ---
 
 
-## 因隐瞒疫苗严重安全问题，英国政府官员面临警方调查
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1779033/)
+## 加拿大警察辞职认为疫苗强制等同于大屠杀
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/1779201/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-29.png)图片来源：National Times
-整理报道:文泓
+加拿大扬帆农场 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2021/12/December-WS-Regular-Graphics-27.jpg)图片来源：The Western Standard
+根据《卡尔加里先驱报》(Calgary Herald) 12月21 日报道，一名警察将COVID-19疫苗强制与纳粹种族灭绝相提并论，并且已经从卡尔加里警察局辞职。
 
-2021年12月21日，据大纪元报道，星期一，英国健康专家山姆·怀特博士和他的法律团队成员拜访了伦敦的查林克罗斯和哈默史密斯警察局，这是他们为揭露关于新冠疫苗的严重安全问题所做出的最新努力。他们还指责英国政府机构故意向公众隐瞒信息。
+前警员布莱恩-丹尼森（Brian Denison）曾是该局仇恨犯罪部门的成员，他说他在上个月被停薪留职并被告知不能公开谈论该市的一项政策，该政策规定没有完全接种疫苗的警官必须提交定期测试结果，之后他就退出了警队。
 
-法律团队提交了一份包含“重要且无可辩驳证据”的刑事申诉，并被伦敦警察局受理。因此，警局已经发布了一个“**公职人员不当行为**”的犯罪参考编号，并且已经分配了一个指定的官员和警察部门来处理这件事情。
+丹尼森周六在市中心的反Covid疫苗集会上说：”我递交了辞呈，因为我不能遵守他们的做法……他们的命令是错误的，不要听他们的”。
 
-代表怀特博士的律师表示：“最重要的是，**作为一个公共安全问题，我们作为一个集体要求立即政府停止新冠疫苗的推广**，我们建议由伦敦警察局向全国发表讲话，并提出相应的建议。”
+CPS周一确认丹尼森不再受雇于警察部门。
 
-他们补充说：“英国的一些政府部门，特别是担任公职和政府中的个人被指为犯罪者，我们有支持性证据。”
+丹尼森在CPS工作了22年，他呼吁其他官员也这样做。他说：”让我说清楚CPS并不拥有你，政府不拥有你，他们不能告诉你在你的身体里注射了什么”，他告诉欢呼的人群。
 
-他们与警方的谈话持续了6个小时，并进行了录音，但为了避免影响现在正在进行的刑事调查，这些内容没有被公布。
+在他9月底穿制服时录制的一段视频中，他说社会对未接种疫苗者的排斥不断扩大，正走向纳粹德国在20世纪30年代所走的类似道路。
 
-怀特博士向警方强调，英国的医生、护士和护理人员也在被政府“勒索，要求他们接种疫苗，否则就会失去工作”。
+他继续说道：”那些接种了疫苗的人，其中很多人，看不起我们这些没有接种疫苗的人，这很容易让人联想到希特勒对犹太人进行的世界大战”。
 
-政府为医护人员全面接种疫苗设定的最后期限是2022年4月1日。这一天恰巧是“愚人节”，传统上人们会在这一天搞恶作剧，但怀特和他的同事说，强迫人们接种未经全面测试的实验性疫苗或失去工作，不会带来任何乐趣。
+1933年至1945年，纳粹政权杀害了600万犹太人和数百万其他人，包括同性恋者、罗姆人、左派政治反对派和苏联战俘。
 
-新闻链接：[UK Government Officials Face Police Investigation Over COVID Vaccines (theepochtimes.com)](https://www.theepochtimes.com/uk-government-officials-face-police-investigation-over-covid-vaccines_4171032.html)
+周六，丹尼森说，”加拿大政府的COVID-19疫苗强制政策表明其相关性是存在的，历史上发生的事情正在再次发生”。
 
-发布：Peter Xin
+这位前警察说他永远不会接受实验性的COVID-19疫苗。
 
-**更多****资讯****，****请关****注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+CPS说其93%的员工现在已经完全接种了疫苗。
+
+本月早些时候，CPS局长Mark Neufeld坚持认为如果该部门不为其成员提供免费的COVID-19测试，就会面临人员短缺的挑战。
+
+12月1日是警员提供已完全接种疫苗证明或开始自费从授权供应商处接受定期COVID测试的最后期限。
+
+
+
+原文链接：
+https://calgaryherald.com/news/local-news/anti-vaxx-police-officer-who-compares-vaccine-mandates-to-holocaust-resigns
+
+* * *
+
+发稿 Spirit
+
+
+
+通过www.DeepL.com/Translator（免费版）翻译
 
  
 

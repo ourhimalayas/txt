@@ -2,36 +2,36 @@
 ---
 
 
-## 西安疫情爆发再度封城 医疗体系濒临瘫痪
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1778967/)
+## 因隐瞒疫苗严重安全问题，英国政府官员面临警方调查
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1779033/)
 
-作者：纽约香草山教育部 – Noemi
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-中共官方12月20日发布消息指，陕西省西安市因近期出现大量新冠及出血热感染病例，需要再度封城。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-29.png)图片来源：National Times
+整理报道:文泓
 
-目前西安市有1个高风险地区和13个中风险地区，主要出城公路均已封闭，所有学校全面停课，市民上班必须持有48小时内核酸阴性报告。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture14-2.jpg)
-另外，当地不少医院因疫情停诊，医疗系统濒临瘫痪，对基础病患者造成极大的影响，有媒体报导，发现不少尿毒症患者已经连续4天不能去医院透析，生命健康面临重大挑战。有医护人员表示，为了确保医院自身的安全及正常运作，对于来自中高风险地区的患者确实存在接收困难的问题。
+2021年12月21日，据大纪元报道，星期一，英国健康专家山姆·怀特博士和他的法律团队成员拜访了伦敦的查林克罗斯和哈默史密斯警察局，这是他们为揭露关于新冠疫苗的严重安全问题所做出的最新努力。他们还指责英国政府机构故意向公众隐瞒信息。
 
-虽然，目前受困患者据报已得到救治，但相关人员认为，西安整个医疗系统实际上已经瘫痪，这个根本性问题远没有得到解决。
+法律团队提交了一份包含“重要且无可辩驳证据”的刑事申诉，并被伦敦警察局受理。因此，警局已经发布了一个“**公职人员不当行为**”的犯罪参考编号，并且已经分配了一个指定的官员和警察部门来处理这件事情。
 
-参考链接：
-1. [西安疫情爆发再度封城 医疗体系濒临瘫痪](https://www.epochtimes.com/gb/21/12/20/n13448903.htm)
-2. [西安疫情爆发再度封城 医疗体系濒临瘫痪](https://www.exmoo.com/article/189761.html)
+代表怀特博士的律师表示：“最重要的是，**作为一个公共安全问题，我们作为一个集体要求立即政府停止新冠疫苗的推广**，我们建议由伦敦警察局向全国发表讲话，并提出相应的建议。”
 
-![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+他们补充说：“英国的一些政府部门，特别是担任公职和政府中的个人被指为犯罪者，我们有支持性证据。”
 
-总编：天滅中共
-编辑：天滅中共
-校对/发稿：Hetangyuese
+他们与警方的谈话持续了6个小时，并进行了录音，但为了避免影响现在正在进行的刑事调查，这些内容没有被公布。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+怀特博士向警方强调，英国的医生、护士和护理人员也在被政府“勒索，要求他们接种疫苗，否则就会失去工作”。
+
+政府为医护人员全面接种疫苗设定的最后期限是2022年4月1日。这一天恰巧是“愚人节”，传统上人们会在这一天搞恶作剧，但怀特和他的同事说，强迫人们接种未经全面测试的实验性疫苗或失去工作，不会带来任何乐趣。
+
+新闻链接：[UK Government Officials Face Police Investigation Over COVID Vaccines (theepochtimes.com)](https://www.theepochtimes.com/uk-government-officials-face-police-investigation-over-covid-vaccines_4171032.html)
+
+发布：Peter Xin
+
+**更多****资讯****，****请关****注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,32 +2,25 @@
 ---
 
 
-## 中共支付一千多亿美元求普京出席冬奥
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1778966/)
+## 秘翻在线：谭德赛：中共国必须提供更多病毒起源的数据
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1779028/)
 
-作者：东京樱花团 – 在远方
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-郭文贵先生在12月20日的盖特视频中爆料，目前普京已经收到了中共拱手相送的一千多亿美元的支票，表示同意以个人名义出席北京冬奥会。
+翻译/撰稿：文旺
 
-郭先生指出，在共产党冬奥会的政治游戏中，唯一受到伤害的就是中共国10亿人民，所有中国人都将为了这个在国际上和政治上，完全没有任何价值的愚蠢的作秀而付出巨大的代价。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture14-1.jpg)
-除了送给俄罗斯的一千多亿美元，加上冬奥会场地、人员、服装、后勤、安保等其他费用，中共总共需要花费数千亿美元。这是极其可悲、可怜、可恨的，这也是全世界最昂贵的一场灾难游戏。而在世界经济即将崩塌之前，爆料革命的声音，是世界上唯一救人的忠言警告。
+校对：沙拉猫
+![](https://assets.gnews.org/wp-content/uploads/2021/12/gettyimages-1205434458_wide-155f7a2ce01f9711055cfad85e8fdd1d92611552-1600x900-1.jpg)来源：NPR
+据《路透社》（Reuters）12月20日发自日内瓦的报道，世界卫生组织 (WHO) 负责人谭德赛（Tedros Adhanom Ghebreyesus）周一表示，中共国必须要更加主动地提供冠状病毒（中共病毒）起源相关的数据和信息。
 
-参考链接：[中共支付一千多亿美元求普京出席冬奥](https://www.gettr.com/post/pk5p5a0268)
+谭德赛在日内瓦举行的记者新闻发布会上表示，由于（中共国）没有严格执行世界卫生组织2005 年制定的国际卫生条例中的条款或义务，导致了中共病毒大流行期间出现“许多失败”。
 
-![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+谭德塞说，世卫组织需要继续努力，直到了解病毒的起源，“因为我们应该从这次发生的事情中吸取教训，以便在未来做得更好。”
 
-总编：飞虹
-编辑：飞虹
-校对/发稿：Hetangyuese
+郭文贵先生和他引领的爆料革命早就向全世界揭露，所谓Covid-19就是中共故意释放出的生物武器， 意在用超限生化战破坏世界次序，摧毁全球经济，以此实现称霸地球的“美梦”。但随着爆料革命和新中国联邦持续不断地向全世界揭露中共病毒的真相，越来越多的国家和组织渐渐认识到了中共病毒大流行的本质，开始问责中共国，就连当初与中共勾兑的谭德赛“书记”，也在真相和压力下，不得不向中共喊话，但愿谭德赛不是表演，而是真正问责病毒元凶——中国共产党。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+新闻来源：[China must share more data on virus origins – WHO chief](https://www.reuters.com/world/china-must-share-more-data-virus-origins-who-chief-2021-12-20/)
+
+（免责声明：本文内容仅代表作者个人观点，本台不承担任何法律责任）
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

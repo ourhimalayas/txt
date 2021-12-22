@@ -2,33 +2,36 @@
 ---
 
 
-## 华夏幸福累计未偿还债务1078.05亿
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1778915/)
+## 西安疫情爆发再度封城 医疗体系濒临瘫痪
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1778967/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/122110-1.jpg)图片：网络资源
-编辑摘要：
+作者：纽约香草山教育部 – Noemi
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+中共官方12月20日发布消息指，陕西省西安市因近期出现大量新冠及出血热感染病例，需要再度封城。
 
-据《观点地产新媒体》12月21 日报道，华夏幸福基业股份有限公司发布公告称，近期公司及下属子公司新增未能如期偿还银行贷款、信托贷款等形式的债务本息金额67.87亿元。截至本公告披露日，该公司累计未能如期偿还债务本息合计1078.05亿元。
+目前西安市有1个高风险地区和13个中风险地区，主要出城公路均已封闭，所有学校全面停课，市民上班必须持有48小时内核酸阴性报告。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture14-2.jpg)
+另外，当地不少医院因疫情停诊，医疗系统濒临瘫痪，对基础病患者造成极大的影响，有媒体报导，发现不少尿毒症患者已经连续4天不能去医院透析，生命健康面临重大挑战。有医护人员表示，为了确保医院自身的安全及正常运作，对于来自中高风险地区的患者确实存在接收困难的问题。
 
-中共跌倒的房地产是再也爬不起来了，华夏幸福再重组，也不可能再现昔日的辉煌。虚假的房地产市场已经过去了，还是面对现实吧。
+虽然，目前受困患者据报已得到救治，但相关人员认为，西安整个医疗系统实际上已经瘫痪，这个根本性问题远没有得到解决。
 
-新闻参考链接：[华夏幸福新增未能如期偿还债务67.87亿 累计未偿还债务1078.05亿](https://c.m.163.com/news/a/GRP0JNOJ0519D45U.html?spss=newsapp)
+参考链接：
+1. [西安疫情爆发再度封城 医疗体系濒临瘫痪](https://www.epochtimes.com/gb/21/12/20/n13448903.htm)
+2. [西安疫情爆发再度封城 医疗体系濒临瘫痪](https://www.exmoo.com/article/189761.html)
 
-*编辑：胖丁*
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-* * *
+总编：天滅中共
+编辑：天滅中共
+校对/发稿：Hetangyuese
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
