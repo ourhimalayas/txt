@@ -2,30 +2,48 @@
 ---
 
 
-## 秘翻在线：美佛罗里达州政府将重点清理在中共国投资的公共养老基金
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1780849/)
+## 推特祭出新规则 被定义为误导性中共病毒信息恐遭永久封禁
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1780875/)
 
-**翻译：罗马骑士**
+作者：银河勇气星—骄子
 
-**校对：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screenshot-2021-12-22-230723.jpg)
-据大纪元12月21日报道，佛罗里达州官员已于本月20日正式展开行动，将州退休基金与中国共产党彻底划清界限，包括撤销外部管理人员对该州部分养老基金投资于何处的权力。
 
-共和党州长罗恩·德桑蒂斯 (Ron DeSantis) 的计划，在佛罗里达州管理委员会的一次会议上获得通过。该委员会负责投资和管理该州所有大大小小的养老金基金，而德州公共基金是美国最大的公共退休基金之一。
 
-管理委员会还批准开始审查这些基金，以了解有多少公共资产与中共国公司挂钩。并明确表示所有基金经理，都应彻底为公共基金的财务利益而行事。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
-州长在会议上表示，鉴于某些投资公司持有“意识形态倾向”，撤销代理投票权至关重要。根据佛罗里达州统计数据，自 2016 年以来，已牵涉到 5,000 多张投资代理权的投票。
 
-这位州长还表示说， “至今在中共国的整个投资尝试，对美国来说是一个巨大的失败，”  “我认为整个美国应该与中共国脱钩，德州的投资理所应当与其脱钩。”
 
-佛罗里达州首席财务官吉米·帕特罗尼斯（Jimmy Patronis）也是董事会成员之一，他完全认同州长的声明。他指出，中共国房地产开发商恒大集团的最近拖欠款项，正面临违约的风险，这将广泛影响到中共国各地的行业。同时，他还列出了与中共国脱离接触的其他原因，其中包括中共公然违反知识产权规则，对好莱坞和华府日益严重的负面影响力，中共病毒起源于中共国实验室的可能性。还包括最近几周内，在联邦政府这一级层面上，国会已通过的一项法案，禁止采购在中共国新疆地区生产的商品，因为当地许多工厂使用奴隶性质的劳动力。
+外媒12月20日报道，社交媒体推特将针对用户发表“疫苗接种者可以传播中共病毒”等相关言论予以处罚，最严重的可能受到永久封禁。推特将此类言论定义为“包含有关中共病毒的误导性信息”。
 
-佛罗里达州总检察长、董事会成员、共和党人阿什利·穆迪 (Ashley Moody) 表示，这些财务举措，完全符合退休基金参与者和受益人的最佳利益。
+THE DC PATRIOT的创始人Matt Couch，在推特分享了泽连科博士关于中共病毒的相关文章后，帐号遭到推特永久封禁。 此项措施将会适用于所有类似的情形。
 
-穆迪在一份声明中表示：“中共政府对在那里经营的企业的控制和影响力，应成为任何投资人投资中共国最为担忧的事情。”  “作为受托人，我们应该了解这些风险，并确保退休系统对其进行现时评估。”
+该惩罚措施最早可追溯至11月29日推特原CEO 杰克·多尔西辞职后，继任的CEO于12月2日改变了平台规则。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-271.jpg)
+参考链接：
+[Twitter Not Trusting the Science, Says It Will Penalize and Suspend Those Claiming Vaccinated Can Spread Covid-19](https://thedcpatriot.com/twitter-not-trusting-the-science-says-it-will-penalize-and-suspend-those-claiming-vaccinated-can-spread-covid-19/)
 
-**[新闻来源](https://m.theepochtimes.com/florida-moves-to-disentangle-state-investments-in-china_4169660.html?slsuccess=1)**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+
+总编/编辑：Zhong
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

@@ -2,35 +2,32 @@
 ---
 
 
-## Đảng Cộng Sản Trung Quốc đã xâm nhập nghiêm trọng vào quân đội Đài Loan, và an ninh của Thái Anh Văn cũng nằm trong đó
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1781217/)
+## 王岐山厦门露脸，生不如死继续捧习
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1781418/)
 
-Biên Dịch: 东京樱花团/越南文雄
-![](https://assets.gnews.org/wp-content/uploads/2021/12/6-19.png)
-[Nguồn ảnh:](00)
+作者：波士顿五月花 跟随战神
+![](https://assets.gnews.org/wp-content/uploads/2021/12/IMG_3809.jpg)
+2021年12月21日，中共厦门经济特区建设40周年。王岐山亲赴现场主持大会。习始皇颁发圣旨祝贺，以示皇权在握。
 
-Reuters ngày 20/12 đưa tin, Các điệp viên Đảng Cộng Sản Trung Quốc đã xâm nhập nghiêm trọng vào quân đội Đài Loan, và bộ phận an ninh của tổng thống Thái Anh Văn cũng không ngoại lệ, và trong thập kỷ qua, ít nhất 21 sĩ quan cảnh sát quân sự cấp cao trở lên đã bị kết án vì tội gián điệp, trong khi 9 cựu chiến binh đang bị xét xử hoặc điều tra vì nghi ngờ tiếp xúc với gián điệp của Đảng Cộng Sản Trung Quốc.
+中共的经济特区共有7个，第一个是深圳，也是最有名的一个，习近平为何偏爱厦门？因为习近平曾经在厦门主政，符合习的炫耀、高调和爱出风头的个性。习近平的地方官场生涯于1982年从河北正定县起步，在正定3年后，于1985年到厦门担任副市长，然后开始了长达17年的福建政治生涯，一直持续到2002年。习近平在福建的工作时间之长，在中共高官中亦属罕见。所以习对福建、对厦门另眼看待。习大权独揽后，许多重要官员来自于福建。
 
-Reuters lấy ví dụ về Ông XIE XIZHANG, một điệp Đảng Cộng Sản Trung Quốc hoạt động tại Đài Loan với tư cách là một doanh nhân Hồng Kông, chỉ ra rằng XIE XIZHANG đã nhiều lần đến Đài Loan với tư cách là một doanh nhân Hồng Kông từ năm 1997, nhưng đã bí mật tuyển dụng gián điệp cho Bắc Kinh, thâm nhập thành công vào quân đội Đài Loan thông qua các phương tiện như tặng vàng và tặng quà.
+为了显示重视，习近平不但发来贺信，还指派王岐山亲临现场。可怜的是王岐山，用文贵先生的话说：一个国家副主席沦落成一个主持人，为习洗脚的角色。习对王岐山的摆布和羞辱显而易见。王副主席还要强颜欢笑，还要装腔作势，还要继续表演。实在是难为了隔壁老王。
 
-Theo Reuters, ông XIE cung cấp toàn bộ chi phí đi lại nước ngoài của các sĩ quan Đài Loan và gia đình họ, hàng ngàn Đô la tiền mặt, đồng thời tặng quà như khăn lụa và thắt lưng cho vợ của sĩ quan. các sĩ quan quân đội cấp cao đã nghỉ hưu, quân đội Hoa Kỳ có kinh nghiệm liên quan đến Đài Loan và các quan chức phản gián của chính phủ hiện tại đều nói với Reuters rằng những trường hợp này cho Đảng Cộng Sản Trung Quốc đã phát động một chiến dịch rộng rãi nhằm phá hoại lãnh đạo quân sự và dân sự của Đài Loan, làm xói mòn ý chí chiến đấu của họ, trích xuất bí mật của vũ khí công nghệ cao và tìm hiểu về kế hoạch quốc phòng của Đài Loan.
+王岐山一番套话之后就开始了跪舔：深入贯彻落实党的十九届六中全会精神，在以习近平同志为核心的党中央坚强领导下，增强“四个意识”、做到“两个维护”。
 
-Ngoài ra, Đảng Cộng Sản Trung Quốc thậm chí còn thâm nhập vào các nhân viên an ninh để bảo vệ tổng thống Đài Loan Thái Anh Văn. Báo cáo cho biết một quan chức an ninh tổng thống đã nghỉ hưu và trung tá hiến binh đang phục vụ trong lực lượng chịu trách nhiệm bảo vệ tổng thống đã bị kết án vào đầu năm nay vì tiết lộ thông tin nhạy cảm về sự an toàn của Thái Anh Văn cho các cơ quan tình báo của Đảng Cộng Sản Trung Quốc. theo phán quyết của tòa án tối cao, thông tin này bao gồm một sơ đồ tổ chức của một trung tâm dịch vụ đặc biệt được vẽ tay, đơn vị này chịu trách nhiệm bảo vệ tổng thống. Hai người này cũng bị buộc tội tiết lộ tên, chức vụ và số điện thoại làm việc của các nhân viên an ninh cấp cao bảo vệ Dinh Tổng Thống và nơi cư trú của bà Thái Anh Văn ở trung tâm Đài Bắc, theo Reuters.
+中共的所谓“四个意识”指政治意识、大局意识、核心意识、看齐意识。归根到底就一个意识：以习近平的意识为意识。“两个维护”就更加赤裸裸，“坚决维护习近平党中央的核心、全党的核心地位，坚决维护党中央权威和集中统一领导。”就差一点说“习皇万岁万万岁”、“习就是神、就是太阳，没有他我们活不去”。活脱脱一幅北朝鲜金家王朝的景象。当然，金家王朝正是习近平所羡慕和追求的。
 
-Theo hồ sơ tòa án Đài Loan và báo cáo của truyền thông quan phương tại địa phương, trong thập kỷ qua, ít nhất 21 sĩ quan Thượng Uý hoặc ở cấp độ cao hơn đang làm việc hoặc đã nghỉ hưu của Đài Loan đã bị kết án là gián điệp của Đảng Cộng Sản Trung Quốc. 21 sĩ quan bị kết án đã bị kết tội tuyển dụng gián điệp cho Đảng Cộng Sản Trung Quốc hoặc chuyển một loạt thông tin nhạy cảm cho Đảng Cộng Sản Trung Quốc, bao gồm thông tin liên lạc của các sĩ quan quân đội cấp cao của Đài Loan và chi tiết về các người đại lý của Đài Loan tại nước Cộng Sản Trung Quốc.
+主持人王岐山看上去更像一个被告站在桌子面前，旁边坐着一排排陪审员。王的面色苍白，似乎已经脱相。如果和骷髅放在一起恐怕很难区分。这才短短的几年时间，和当初当选副主席时的意气风发形成鲜明对比。不是岁月催人老，不是岁月催人老，是习太阳光芒太盛，被烤糊了；是爆料革命放料太猛，被刺激的神经紊乱。两面夹击，怀揣尿袋的王副主席如何承受的了。
 
-备注：越南语根据中文稿件进行翻译，本文内容以中文为准。
+王岐山既不能死、也活不好的状态，对他而言是痛苦的。除非他投靠爆料革命和新中国联邦，反戈灭共、向国人认罪，或有一线生机。
 
-Bản dịch tiếng Việt dựa trên bản tiếng Trung, nội dung bài dịch này lấy bản tiếng Trung làm chuẩn mực
+* * *
 
-Nguồn tin:
+*编辑：文合*
 
-[中共严重渗透台湾军方，蔡英文安保也在内 – GNEWS](https://gnews.org/zh-hans/1779350/)
+*封面：水涨船高*
 
-Biên Tập: 东京樱花团/知了知了（以Google翻译分段校对）
-Đăng Bài: 东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-1.jpg)
-
+*发布：吐纳*
 
  
 
