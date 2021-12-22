@@ -2,56 +2,29 @@
 ---
 
 
-## 全球和澳洲疫情疫苗统计信息更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1780208/)
+## 澳大利亚或将最快在下个月批准Novavax疫苗
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1780290/)
 
-**（2021年 12月22日）**
+撰稿：Gradient Boost
 
-**整理：枳实**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-69.png)图片：雅典娜农场设计组 精灵蓝
-一，全球疫情基本数据
-感染总数：2.76亿（日新增 76.9万）
-死亡总数：537万（日新增 7511人）
-每万人感染人数：350.7774人
+从下个月开始，澳大利亚人似乎将迎来第四种CCP病毒疫苗。卫生部长Greg  Hunt在一档电视节目中年表示，Novavax生产的疫苗最早可能从2022 年 1 月开始向澳大利亚人民提供。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/16401733661.png)网络截图
+目前澳大利亚已经订购了 5100 万剂这类蛋白疫苗，但尚未得到治疗用品管理局的批准。Greg Hunt表示：“Novavax 目前正在通过医疗监管机构——治疗用品管理局——的审核……我希望，随着实验数据的逐渐积累，新的疫苗将在明年1 月份推出。”
 
-二，全球“疫苗”毒针统计数据
-“疫苗”毒针注射总数：87.8亿
-完全“接种”：36.3亿人
-完全“接种”百分比：46.6%
+Greg Hunt同时还认为，添加另一种疫苗类型可能有助于对澳大利亚疫苗接种的推广起到一个小幅但重要的推动作用。
 
-三，澳洲疫情和“疫苗”数据
-感染总数：259，207（今日新增 4575人）
-死亡总数：2146人
-每万人感染人数：102.6457人
-“疫苗”毒针注射总数：41,667,960
-完全“接种”：1960万人
-完全“接种”百分比：76.4%
-16岁以上人口接种至少一剂疫苗的比例：93.9%
-16岁以上人口接种至少两剂疫苗的比例：90.6%
+澳大利亚的首剂疫苗接种率达到了 94%，16 岁以上的人中有 90.8% 完成了两剂疫苗的接种。即便在这样的情况下，澳大利亚政府依然持续订购新品种的疫苗并且尝试通过监管审核，可见全国民范围的加强针注射运动势在必行，否则要如何解释目前还没有完成批准的超5000万剂次的疫苗大单？
 
-四，突发新闻
-西澳州长马克·麦高恩 (Mark McGowan) 宣布，西澳成为澳大利亚第一个强制施行第三剂加强针的州。
+就在昨日，欧洲药品管理局已经宣布，Novavax 被批准使用于 18 岁以上的欧盟成年居民。然而目前学界尚不清楚该款疫苗将在多大程度上抵御当前激增的 Omicron 病毒变异株，即便Novavax公司的CEO对于该款疫苗表现出很强的信心。
 
-该强制令将涵盖所有受原有强制令影响的行业，包括老年护理、卫生、检疫人员、采矿和基本工人等行业。州长表示，他还希望最终将疫苗强制范围扩大到任何想参加体育赛事和音乐会等活动的人。他今天对记者说：“根据这项强制令，工人现在需要在符合条件的一个月内接种第三剂。”
+在笔者看来，引入更多的疫苗实际只能够起到进一步为疫情煽风点火的作用，同时继续充实吃回扣的无良政客以及黑心药企的荷包。文贵先生在直播中已经说的非常清楚，向辉瑞这样的公司实际上已经是中共百分百完全控制，就是听之任之的傀儡角色。
 
-人们目前可以在第二针五个月后接受加强针注射，但澳大利亚免疫技术咨询小组将很快决定该时间间隔是否会改变。州长表示，他希望尽可能缩短这个时间间隔。
+新闻参考链接：
 
-参考链接：
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-[First state to mandate booster shot](https://www.news.com.au/national/western-australia/covid19-vaccine-mandate-in-wa-now-includes-a-third-dose/news-story/752c67452adc76f7242228edb500a12e)
+[9 News](https://www.9news.com.au/national/coronavirus-update-novovax-likely-to-be-available-from-january-2022-hunt-says/992a90ed-f7a4-4c7f-9b51-f796a48eaa60)
 
-发布：去中心化Math
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+编辑：五饼二鱼
+![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
