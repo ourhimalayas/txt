@@ -2,26 +2,33 @@
 ---
 
 
-## 韩国政府屈服于中共的压力，当日取消了唐风的演讲
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1779717/)
+## 澳洲议员克雷格·凯利认为药物治疗比疫苗更有效
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1779833/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1165.png)[图片来源](https://www.asahi.com/articles/ASPDP4TKKPDPUHBI01T.html#:~:text=%E9%9F%93%E5%9B%BD%E3%)
-据《朝日新闻》网站21日报道，韩国政府原定于本月16日召开的在线会议上邀请台湾数码部长唐凤参加。但是就在会议当天早上，却通过一份电子邮件取消了她的参加。
+【雅典娜快讯】紧贴时事脉搏
 
-根据台湾外交部的说明，这次会议是由韩国总统文在寅成立的第四次工业革命委员会组织的。今年9月，韩国方面以”台湾数码部长”的名义，邀请唐凤在本月16日的”全球政策会议”上就台湾的数字改革发表演讲。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1169.png)图片来源：Sydney Morning Herald
 
-唐凤原定于12月16日下午在网上发言，但就在活动的当天上午7点50分，韩国方面给她的办公室发了一封电子邮件，他们以”有关中国-台湾关系的各种观点”为理由。要求她取消发言。
+**整理报道：小鱼儿
+编辑：盘古相聚**
 
-对此，20日台湾外交部召唤韩国驻台北代表团的代表提出抗议，抗议其做法”缺乏礼仪”。外交部发言人欧江安在21日的新闻发布会上说，“在当天上午通知取消，不解释详细原因是非常不礼貌的。”
+12月21日，据每日邮报报道，州长多米尼克·佩罗特将把新南威尔士州的强化第三针日期提前一整个月。现在起，可以在第二次接种注射后的四个月而不是五个月内获得加强第三针。周二新州录得创纪录的3057例新增感染病例，主要由于Omicron变种病毒正在蔓延。
 
-此前12月初，唐凤曾以台湾数码部长的身份参加了美国政府本月首次举办的民主论坛峰会。
+总理莫里森先生将于周三中午12点主持召开国家内阁紧急会议，与各州州长讨论对策。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1111.png)图片来源：克雷格·凯利议员推文
+面对新州州长缩短注射加强针的新规定。克雷格·凯利议员呼吁民众：“羊群应该醒来了！政府之前说，你只需完全接种——两剂疫苗，你就会得到‘保护’，免于病毒感染。但现在他们说，第三剂疫苗才算完全接种。而且你需要在4个月后注射加强针疫苗才能得到‘保护’。这都是因为他们拒绝抗病毒药物,他们真是一帮小丑”。
 
-信息源：[韓国、オードリー・タン氏講演を当日キャンセル　「中台関係を考慮」](https://www.asahi.com/articles/ASPDP4TKKPDPUHBI01T.html#:~:text=%E9%9F%93%E5%9B%BD%E3%)
+参考资料：[Dominic Perrottet pushes to bring Covid boosters forward to four months](https://www.dailymail.co.uk/news/article-10331903/Dominic-Perrottet-pushes-bring-Covid-boosters-forward-four-months.html)（[dailymail.co.uk](https://dailymail.co.uk))
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
+*发布：盘古相聚*
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,47 +2,30 @@
 ---
 
 
-## 中共为宣传向一家华盛顿电台支付百万
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1779948/)
+## 虚伪的民主—昆士兰州立法议员享毒疫苗豁免特权
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1779949/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
+作者：雄起
+![](https://assets.gnews.org/wp-content/uploads/2021/12/酷翻组1-1.png)
+上周，澳大利亚昆士兰州议长柯蒂斯-皮特（Curtis Pitt）颁布一项指令，未接种疫苗的人将被禁止进入州议会，但议员将被豁免。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1174.png)图片来源：mapio
+12月18日生效的这项指令中规定，任何进入议会区的人，必须是已经接受了两剂疫苗，或者有医疗豁免，或者已经向皮特先生申请了豁免。
 
-**翻译：文扬
-编辑：Mttfly**
+但是因议会事务而进入的立法会议成员将被豁免，虽然他们不能去餐区，包括自助餐厅、咖啡馆或任何酒吧。
 
-新的联邦披露的信息显示，中共政权已向设在华盛顿的一家广播电台支付了近440万美元，用于向美国家庭进行宣传。
+这项疫苗强制令还延伸到了选举办公室，在那里国会议员则不会被豁免。议会官员和工作人员必须在12月17日前接种第一剂疫苗，在1月21日前接种第二剂。不遵守规定可能会导致被解雇。
 
-中国国营广播公司CCTV的全球分支CGTN，自2019年7月起向覆盖华盛顿、弗吉尼亚和马里兰州的日间广播电台WCRW支付了435万美元，每天12小时播放其内容。
+虽然上个月，在当局考虑出台这项强制令时，议会秘书尼尔-劳里（Neil Laurie）表示，这是一个不应仓促的过程。但是最终这项指令还是出台了。而针对全州580名工作人员的强制令从12月13日起就已生效。
 
-听众们不知道的是，北京控制了大部分的广播内容。据今年7月签署的一项协议，在上周提交给司法部的文件中披露：禁止电台在未经中国广播公司明确许可的情况下改变或缩短CGTN的节目内容或插入广告。该合同是由WCRW和国际传播规划局签订的，后者是由中共政权的宣传部监督的机构。
+“简而言之，议长和书记有责任照顾议员、工作人员和公众，使他们在与服务人员的互动中尽量减少感染COVID-19的风险，”工作人员指令写道。”COVID-19在政府服务部门的快速传播将使官员和雇员患病后，进行隔离或康复期间失去服务能力。
 
-根据华盛顿自由灯塔首次报道的文件，根据该协议，该局从无线电网络所有者、位于弗吉尼亚州的波托马克广播集团那里收到季度业绩数据。此类报告包括观众反馈和“国际组织的评估”，合同中没有具体说明。广播局也可以委托第三方监督播出效果，并定期进行评估。
+笔者不禁感叹，在实行民主制度的澳大利亚，我们如今看到的更多是独裁式的强制令。虽然强制令书写的理由冠冕堂皇，但并不能解释同为国家公务人员，为什么立法议员就可以豁免，而民选议员却并无特权，是否因为执恶法者，心知肚明这是违法违宪的行为，因此网开一面，换手持立法权的立法议员保持沉默？政府借中共病毒（新冠病毒covid-19）流行，疯狂越权，滥权，民主世界的公民已无路可退，唯有反抗自救。
 
-截至记者发稿时，WCRW没有对《大纪元时报》的媒体询问作出回应。
+[新闻链接](https://www.brisbanetimes.com.au/national/qld-mps-exempt-from-vaccine-mandate-in-parliament-20211212-p59guf.html)：[https://www.brisbanetimes.com.au/national/qld-mps-exempt-from-vaccine-mandate-in-parliament-20211212-p59guf.html](https://www.brisbanetimes.com.au/national/qld-mps-exempt-from-vaccine-mandate-in-parliament-20211212-p59guf.html)
 
-WCRW的网站称，它自1992年以来一直在华盛顿播放中国国际广播电台的节目，这是另一家主要的国营中国国际广播电台。
+审核校对：sherryok
 
-波托马克媒体（Potomac Media）注册为外国代理人，是因为华盛顿对中共国在美国的宣传活动越来越警惕。
-
-中国国有英文报纸《中国日报》于2021年向外交政策和金融时报等主要西方媒体支付了数百万美元，以传播其内容。中国领事馆最近还签订了一项合同，通过新泽西州的一家中介公司聘请数十名社交媒体影响者，作为3月份宣传北京即将举行的冬奥会的营销闪电战的一部分。
-
-近年来，CGTN在多个国家遭遇了一连串的挫折。
-
-英国官员于2月撤销了这家电视机构在英国的广播许可证，称该许可证由一个对其播放的节目没有编辑控制权的实体持有。英国广播监管机构后来对CGTN的两个节目进行了罚款，总额约为27.3万美元，因为这两个节目中含有强迫认罪的内容。
-
-**原文链接：**[Beijing Paid Millions to DC Radio Station to Broadcast Propaganda](https://www.theepochtimes.com/beijing-paid-millions-to-dc-radio-station-to-broadcast-propaganda_4171045.html)
-
-*发布：盘古相聚*
-
-**
-****更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+上传排版：水云间
 
  
 
