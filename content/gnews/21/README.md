@@ -2,47 +2,20 @@
 ---
 
 
-## 全球最大邮轮48人感染其中47人已完整接种疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1780870/)
+## 习家人早就布局投资社交媒体
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1780879/)
 
-作者：东京樱花团—在远方
+文编：东京樱花团/樱花传媒
 
+视频:东京樱花团/中文小视频组
 
+12月10日，郭文贵先生在GTV大直播指出：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+中共是在全世界最早大规模投资社交媒体的，习近平家人，早在06年就开始布局科技网络领域，当时习还不知道自己将来要当总书记。中共知道社交媒体、社交硬件、社交必需品，是人类的未来，所以习家控制华为和中兴，并且在短短2年内控制中国99%的稀土。
 
-
-
-台湾媒体12月21日报道，全球最大邮轮“海洋交响号”在航行中有48名游客确诊中共病毒，但是其中47人已经完整接种过疫苗。
-
-据悉，该邮轮共有6091名乘客及船员，目前正在加勒比海进行为期一周的航行。其中一名游客在航行期间确诊后，邮轮方面开始进行大范围筛检。
-
-资料显示，该邮轮上有95%的乘客已经完整接种了疫苗，而在确诊的48位游客中，则有98%即47人已经接受了完整接种，但是仍然没有起到任何防护作用。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1.1-11.jpg)
-参考链接：
-[世界最大郵輪爆48人染新冠 98％確診者完整接種疫苗](https://www.chinatimes.com/realtimenews/20211221001337-260408?chdtv)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
+编辑：东京樱花团/墨然
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-1.jpg)
 
 
  

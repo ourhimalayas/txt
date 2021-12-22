@@ -2,53 +2,29 @@
 ---
 
 
-## 俄罗斯国家病毒学与生物技术研究中心首次公布“Omicron”病毒毒株照片
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1780763/)
+## 美国人口增长率在CCP病毒大流行期间创下最低纪录
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1780802/)
 
-作者：香草山健身部 – 正道新闻
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1222E.jpg)网络图片
+本周二公布的人口数据显示，由于冠状病毒减少了移民、推迟了怀孕并导致数十万美国居民死亡，美国人口增长率在病毒大流行的第一年降至其建国以来的最低水平。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/gnews-logo.jpeg)
+根据美国人口普查局公布的人口评估报告，从 2020 年 7 月到 2021 年 7 月，美国人口又增加了 约393,000 人，使该国的人口总数达到 3.318 亿 ，增长率仅为 0.1%。
 
+该人口估计数值是通过综合美国的出生、死亡和移民人数后计算得出的，国际移民净增长（约245,000人）首次超过本地净出生人口（约148,000人）。
 
+布鲁金斯学会都市政策项目高级研究员威廉·弗雷说：“我原本就预料到年度增长会很低，但我没有想到竟然会如此之低。这一事实告诉我们，目前的流行病在各个方面对我们产生了巨大影响。”
 
-2021年12月16日，俄罗斯发现了25例Omicron病例。通过追踪研究，研究者发现患者中大多数人已经对病毒产生了免疫力，并没有出现严重的症状。
+同时弗雷认为，即便CCP病毒大流行得到控制，即便美国最终可能会看到死亡人数的逐渐下降，但是由于出生人数减少，人口增长可能无法恢复到过去几年的水平。
 
-12月21日，俄罗斯联邦消费者权益保护和人口福利监督局，在其官网上公布了三张下属实验室“俄罗斯国家病毒学与生物技术研究中心”从患者感染第6天后分离出来的“Omicron”病毒毒株照片。
+事实上，美国最近几年以来一直处于人口增长缓慢的状态之下，但是大流行加剧了这一趋势。过去一年是自 1937 年以来，美国人口增长首次低于 100 万的年份。
 
-国家病毒学与生物技术研究中心（Государственный научный центр вирусологии и биотехнологии），简称Вектор，也称Vector研究所，是俄罗斯联邦消费者权益保护和人口福利监督局最大科学病毒学和生物技术中心之一。位于俄罗斯新西伯利亚州科利佐沃科学城。中心拥有世界上最完整的病毒库之一，包括埃博拉病毒和马尔堡病毒、严重急性呼吸系统综合症 (SARS) 病毒、天花等。自成立以来，有一支军队负责保卫该设施
+纽约大学家庭问题研究专家卡恩教授表示，CCP病毒是的社会系统无法正常为母亲与家庭提供必要的支持。同时女性在大流行中受到的打击更大。她们失业的速度更快，承受着更大的压力。
 
-研究者将病毒嵌入到环氧树脂混合物中，制作成非常薄的切片通过电子显微镜观察。
+新闻参考链接：
 
-图一：Omicron的外形特点（图中的黑点）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1190.png)
-
-图二：细胞内各种形状的Omicron病毒毒株，
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1192.png)
-
-图三：细胞破裂之后，Omicron毒株被释放，并聚集在细胞表面：
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1194.png)
-
-科学家通过研究发现Omicron病毒虽然具有很快的传播速度，但是他的分裂生殖并不会导致细胞大量的死亡。感染第六天之后的Omicron对于细胞的破坏至于Delta感染2-3天之后的情况相似。 这个数据也印证了12月初南非约翰内斯堡大学IFK学院Pieter Streicher博士统计发现结果，南非因Omicron病毒株具有强力的传播能力，使得致病率上升到了80%，但是死亡率降低了到了0.42%。Omicron突然降低的毒性和对细胞较轻的破坏性使得俄罗斯的专家，开始乐观的认为，共产党病毒对于人类的威胁将会逐渐减小。[https://www.rospotrebnadzor.ru/region/rss/rss.php?ELEMENT\_ID=20116 https://ru.wikipedia.org/wiki/%D0%92%D0%B5%D0%BA%D1%82%D0%BE%D1%80\_(%D0%BD%D0%B0%D1%83%D1%87%D0%BD%D1%8B%D0%B9\_%D1%86%D0%B5%D0%BD%D1%82%D1%80) https://gnews.org/zh-hans/1748223](https://www.rospotrebnadzor.ru/region/rss/rss.php?ELEMENT_ID=20116%20https://ru.wikipedia.org/wiki/%D0%92%D0%B5%D0%BA%D1%82%D0%BE%D1%80_%28%D0%BD%D0%B0%D1%83%D1%87%D0%BD%D1%8B%D0%B9_%D1%86%D0%B5%D0%BD%D1%82%D1%80%29%20https://gnews.org/zh-hans/1748223)
-
-编辑/校对/发稿：菩提树
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
+[AP News](https://apnews.com/article/coronavirus-pandemic-immigration-health-us-census-bureau-covid-19-pandemic-d224035ee70e805f1e42da6c1a9c079c)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

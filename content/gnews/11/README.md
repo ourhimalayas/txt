@@ -2,29 +2,37 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月22日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1781023/)
+## 12/22每日播报｜美佛罗里达州官员采取行动脱钩养老基金与中共的联系
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1781059/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-4.jpg)
+**By:[秘翻新闻](https://gtv.org/broadcast/watch/61b85c7e56f4921401b77b8b)**
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-22.png)
-文章仅代表作者本人观点，与Gnews无关
+**2021-12-22**
 
-视频参看：[2021.12.22早GTV新闻访谈](https://gtv.org/video/id=61c32786bcb7f101bb732ea8)
+据《华盛顿邮报》12月21日报道，佛罗里达州州长罗恩·德桑蒂斯（Ron DeSantis）及其政府的一些高级官员在12月20日采取了行动，从大量投资于中共国的私人资产管理公司贝莱德手中夺回了该州巨大的养老金投资组合的控制权。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+在该州行政委员会的一次会议上，佛罗里达州首席财务官吉米·帕特罗尼斯 (Jimmy Patronis) 和司法部长阿什利·穆迪 (Ashley Moody) 与共和党人德桑蒂斯 (DeSantis) 一起提出了一项“撤销已经赋予外部基金经理的所有代理投票权”的动议。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-2.png)
+州政府官员说，他们需要确保基金经理 “完全按照州政府基金的财务利益行事”。 报道还称，贝莱德首席执行官拉里·芬克 （Larry Fink）与中共领导人之间的联系也引起了左翼亿万富翁乔治·索罗斯 （George Soros）的批评。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+贝莱德将客户的钱投资于中共国的公司，而且还获得了一份在中共国销售共同基金的合同。根据公开报道，该企业已经赚取了约10亿美元。
 
+贝莱德的中共国A类机会基金，自2018年成立以来，回报率超过32%，根据其最近的报告，该基金有超过4740万美元。
+
+消费者研究中心执行主任威尔·希尔德说：“贝莱德一直在利用他们的代理投票权来阻碍美国公司, 在我们最不能承受的时候导致美国人的负担加重，他们利用美国的投资资金向中共示好，背叛了我们的国家，使美国的养老金处于危险之中。
+
+” 德桑蒂斯先生在一份声明中表示，希望SBA调查目前正在进行的投资。
+
+贝莱德拒绝了发表评论的请求。
+
+秘翻新闻主编Grace 编译报道.
+
+发布：文小明
+
+* * *
+
+**By 【秘密翻译组-即时新闻播报组】**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/招募-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
