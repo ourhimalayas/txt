@@ -2,32 +2,32 @@
 ---
 
 
-## 澳洲议员克雷格·凯利认为药物治疗比疫苗更有效
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1779833/)
+## 国家冰球联盟决定不派球员参加北京冬奥会
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1779859/)
 
-【雅典娜快讯】紧贴时事脉搏
+#### 撰稿：彩虹
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1169.png)图片来源：Sydney Morning Herald
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-34.jpg)图片来源：Code Sports
+周二，ESPN和路透社报道说，由于对中共病毒（COVID-19）的担心，国家冰球联盟(National Hockey League)和国家冰球联盟球员协会（National Hockey League Players’ Association）将不派球员参加北京冬奥会冰球比赛。对此，《新闻极限》和《国会山报》也分别于12月22日进行了报道。
 
-**整理报道：小鱼儿
-编辑：盘古相聚**
+根据报道，去年9月，国家冰球联盟同意暂停其常规赛季，以便世界顶级球员能够在北京比赛，但有一个前提条件，即如果由于中共病毒的干扰迫使比赛在奥运会期间重新安排，那么它可以退出（北京奥运会比赛）。
 
-12月21日，据每日邮报报道，州长多米尼克·佩罗特将把新南威尔士州的强化第三针日期提前一整个月。现在起，可以在第二次接种注射后的四个月而不是五个月内获得加强第三针。周二新州录得创纪录的3057例新增感染病例，主要由于Omicron变种病毒正在蔓延。
+最近几天，中共病毒变体奥米炕使得职业体育联盟撕裂严重，完全接种过中共病毒疫苗的球员连续感染了中共病毒，这使得越来越多的球员加入了COVID-19协议，国家冰球联盟被迫推迟在加拿大和美国的50场比赛。
 
-总理莫里森先生将于周三中午12点主持召开国家内阁紧急会议，与各州州长讨论对策。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1111.png)图片来源：克雷格·凯利议员推文
-面对新州州长缩短注射加强针的新规定。克雷格·凯利议员呼吁民众：“羊群应该醒来了！政府之前说，你只需完全接种——两剂疫苗，你就会得到‘保护’，免于病毒感染。但现在他们说，第三剂疫苗才算完全接种。而且你需要在4个月后注射加强针疫苗才能得到‘保护’。这都是因为他们拒绝抗病毒药物,他们真是一帮小丑”。
+文章分析认为，球员们大多渴望回到这个最大的国际舞台，但担心在中共国的阳性测试可能导致21天的隔离，并推迟他们返回家庭和国家冰球联盟俱乐部的时间，这抑制了一些人的（参与）热情。埃德蒙顿油人队(Edmonton Oilers)的中锋康纳·麦大卫(Connor McDavid)称中共国的COVID-19协议规定，阳性病例将被强制隔离最高长达5周，“令人不安”。
 
-参考资料：[Dominic Perrottet pushes to bring Covid boosters forward to four months](https://www.dailymail.co.uk/news/article-10331903/Dominic-Perrottet-pushes-bring-Covid-boosters-forward-four-months.html)（[dailymail.co.uk](https://dailymail.co.uk))
+国家冰球联盟的决定将对加拿大和美国队产生的影响最大，因为他们的整个奥运冰球名单由国家冰球联盟球员组成。其他奖牌竞争者，如瑞典、芬兰、俄罗斯和捷克共和国，对国家冰球联盟人才的依赖程度较低。
 
-*发布：盘古相聚*
+国家冰球联盟没有立即回应《新闻极限》和《国会山报》的评论请求，但ESPN说，预计国家冰球联盟将在未来24小时内正式宣布选择退出北京奥运会。
 
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+文章指，国家冰球联盟可以在1月10日之前退出2月4日至20日的北京奥运会，而不会受到经济处罚。
+
+**新闻来源**
+
+[NHL Pulls Out of Beijing Winter Olympics Due to COVID-19](https://www.newsmax.com/us/nhl-olympics-covid-19-players-union/2021/12/21/id/1049538/)
+
+[NHL, NHLPA agree to skip Beijing Olympics due to COVID-19 concerns: report](https://thehill.com/policy/healthcare/public-global-health/586805-nhl-nhlpa-agree-to-skip-beijing-olympics-due-to-covid)
 
  
 

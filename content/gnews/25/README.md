@@ -2,32 +2,40 @@
 ---
 
 
-## 国家冰球联盟决定不派球员参加北京冬奥会
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1779859/)
+## 七零后九零后零零后的近半数中国人必将跟随新中国联邦
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1779879/)
 
-#### 撰稿：彩虹
+**郭文贵先生：**只有两个、两个条件你看到就行了，中国70后占中国多少人口？一亿多，90后占中国将近两亿多，两千后和孩子、婴儿，占了将近两亿多，这已经占了一半的中国人了。就是原来所谓的就是洗脑这些事，他们都不知道叫什么被洗脑和洗脑，他没有分别。就是他们脑子空白，就是他们对事情的接受能力和互联网的接受能力一旦打开，那个空间都是给新中国联邦准备的。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-34.jpg)图片来源：Code Sports
-周二，ESPN和路透社报道说，由于对中共病毒（COVID-19）的担心，国家冰球联盟(National Hockey League)和国家冰球联盟球员协会（National Hockey League Players’ Association）将不派球员参加北京冬奥会冰球比赛。对此，《新闻极限》和《国会山报》也分别于12月22日进行了报道。
+你今天的直播你觉得很累是吧，你们四个。到未来你看多少中国人看，任何一句话，任何一个动作都会影响他们一生。我就押他五亿人了，这五亿人一定会……怎么他养老人他养活下去，我们要三四个老人，新中国联邦给你答案，我让你养老人。怎么样生活呀？怎么要有地啊？怎么有车？怎么有房啊？新中国联邦给你答案。我就靠这两条，我就会……新中国联邦，我想不赢都不行，对吧？什么叫政治经济。
 
-根据报道，去年9月，国家冰球联盟同意暂停其常规赛季，以便世界顶级球员能够在北京比赛，但有一个前提条件，即如果由于中共病毒的干扰迫使比赛在奥运会期间重新安排，那么它可以退出（北京奥运会比赛）。
+咱这G-Fashion一晃荡，一穿是吧，一人发10件，你说谁会骂咱？没人骂咱。谁跟那些已经是土埋到鼻子的人一块活下去？不可能。他也不会看直播，他也看不了直播，他不会看盖特，不会看新G-TV。大家懂我意思了吧，咱掌握着现代核武器呢，咱怕啥呀？天空Wi-Fi，“咔叽”也上去了，咱怕啥呀是吧。
 
-最近几天，中共病毒变体奥米炕使得职业体育联盟撕裂严重，完全接种过中共病毒疫苗的球员连续感染了中共病毒，这使得越来越多的球员加入了COVID-19协议，国家冰球联盟被迫推迟在加拿大和美国的50场比赛。
+字幕来源：[2021年12月19日郭文贵先生大直播全文字版（下）](https://gnews.org/zh-hans/1775367/) ；
 
-文章分析认为，球员们大多渴望回到这个最大的国际舞台，但担心在中共国的阳性测试可能导致21天的隔离，并推迟他们返回家庭和国家冰球联盟俱乐部的时间，这抑制了一些人的（参与）热情。埃德蒙顿油人队(Edmonton Oilers)的中锋康纳·麦大卫(Connor McDavid)称中共国的COVID-19协议规定，阳性病例将被强制隔离最高长达5周，“令人不安”。
+字幕文件制作：小满；
 
-国家冰球联盟的决定将对加拿大和美国队产生的影响最大，因为他们的整个奥运冰球名单由国家冰球联盟球员组成。其他奖牌竞争者，如瑞典、芬兰、俄罗斯和捷克共和国，对国家冰球联盟人才的依赖程度较低。
+视频制作及上传：Cindy；
 
-国家冰球联盟没有立即回应《新闻极限》和《国会山报》的评论请求，但ESPN说，预计国家冰球联盟将在未来24小时内正式宣布选择退出北京奥运会。
+G-News发布：小满；
 
-文章指，国家冰球联盟可以在1月10日之前退出2月4日至20日的北京奥运会，而不会受到经济处罚。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的短视频发布频道**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-**新闻来源**
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-[NHL Pulls Out of Beijing Winter Olympics Due to COVID-19](https://www.newsmax.com/us/nhl-olympics-covid-19-players-union/2021/12/21/id/1049538/)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-[NHL, NHLPA agree to skip Beijing Olympics due to COVID-19 concerns: report](https://thehill.com/policy/healthcare/public-global-health/586805-nhl-nhlpa-agree-to-skip-beijing-olympics-due-to-covid)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
