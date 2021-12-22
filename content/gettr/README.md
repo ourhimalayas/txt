@@ -19,6 +19,15 @@
 
 **:arrows_clockwise: miles 已轉發**
 
+`@jasonmillerindc 12/22/2021 3:47 PM (UTC)`
+
+tune in as we award @ccbagley the Home for the Holidays check!
+![img](https://media.gettr.com/group8/getter/2021/12/22/15/4a5674ba-8c1b-92bd-d86a-240218f8486c/e0205dc9bf86d5e6cd05c40413de6e8e.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
 `@gtranslators_1 12/22/2021 11:06 PM (UTC)`
 
 The Biden administration all lied about Covid vaccine mandate!
@@ -147,13 +156,6 @@ Miles Guo's Latest Song "Hcoin To the Moon" has created 22 historic records so f
 
 12/19/2021 Miles Guo: The Winter Olympics will be the stage for the CCP to show the whole world its “governance capability”. Some attendees of the Winter Olympics will certainly catch the virus, and everything will be the CCP’s show. The CCP has prepared in case the Americans will be infected by the virus, and such preparations include assigning female interpreters, because the number of male athletes is 50% more than the females in the US Olympic team<br/><br/>12/19/2021 文贵直播：冬奥会是中共向全世界展示“治理”能力的舞台，一定有人染病毒、一切都会是演戏，中共已经为美国人染病做好了准备，其中包括女翻译，因为美国奥运队的男运动员比女运动员多一半<br/>
 ![img](https://media.gettr.com/group27/getter/2021/12/20/00/85245ed4-0229-dceb-54a1-79d79d9f3a4b/out.jpg)
-
----
-
-`@miles 12/20/2021 12:33 AM (UTC)`
-
-12/19/2021 Miles Guo: Our scientists and whistleblowers exposed that, those being infected by the Covid virus will have 50% chances to get cancer in their lymphatic and/or immune systems, but if they take necessary medicines and supplements, do regular medical check-up, and avoid strenuous exercise, they will be fine<br/><br/>12/19/2021 文贵直播：科学家和病毒知情者爆料，所有得过中共病毒的人未来10年内身体里的淋巴系统和免疫力系统有50%会出问题，但如果按需吃药、定期体检、避免剧烈运动，一定会没事<br/>
-![img](https://media.gettr.com/group5/getter/2021/12/20/00/49daa40c-5093-fb5d-2de4-56b0ec0bcc7b/out.jpg)
 
 ---
 
