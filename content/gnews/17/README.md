@@ -2,18 +2,18 @@
 ---
 
 
-## 中共支付一千多亿美元求普京出席冬奥
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1778966/)
+## 墙内主播补税事件继续发酵
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1778968/)
 
-作者：东京樱花团 – 在远方
+作者：纽约香草山教育部 – Naughty(文行)
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-郭文贵先生在12月20日的盖特视频中爆料，目前普京已经收到了中共拱手相送的一千多亿美元的支票，表示同意以个人名义出席北京冬奥会。
+12月20日，墙内“直播一姐”薇娅因偷逃税被罚款的消息传出后，关于其他主播税务问题的传言也越来越多。据墙内税务部门的消息，除薇娅外，还有部分头部主播没有被披露，各头部主播一直在补税，且越查漏洞越大，“数额惊人，至少几个亿”。除此之外，各相关方面还商讨了公布其余头部主播的恰当时机，具体处罚也不会在同一天公布。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture17-1.jpg)
+据中共官媒的消息，税务部门已经印发通知，对相关经纪公司及经纪人、网络平台企业、中介机构和帮助设计、策划、实施逃避税行为的第三方等进行联动检查，一并依法从严处理。
 
-郭先生指出，在共产党冬奥会的政治游戏中，唯一受到伤害的就是中共国10亿人民，所有中国人都将为了这个在国际上和政治上，完全没有任何价值的愚蠢的作秀而付出巨大的代价。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture14-1.jpg)
-除了送给俄罗斯的一千多亿美元，加上冬奥会场地、人员、服装、后勤、安保等其他费用，中共总共需要花费数千亿美元。这是极其可悲、可怜、可恨的，这也是全世界最昂贵的一场灾难游戏。而在世界经济即将崩塌之前，爆料革命的声音，是世界上唯一救人的忠言警告。
+据称，截至目前，已有上千名主播主动自查，补缴税款。
 
-参考链接：[中共支付一千多亿美元求普京出席冬奥](https://www.gettr.com/post/pk5p5a0268)
+参考链接：[墙内主播补税事件继续发酵](https://cj.sina.cn/article/norm_detail?url=http%3A%2F%2Ffinance.sina.cn%2F2021-12-21%2Fdetail-ikyamrmz0261005.d.html&amp;autocallup=no&amp;isfromsina=yes)
 
 ![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 

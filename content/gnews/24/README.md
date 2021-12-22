@@ -2,39 +2,29 @@
 ---
 
 
-## 日本机构警告来自中共国的经济安全威胁
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1778907/)
+## 牛津大学研究惊人发现：每 100 名疫苗接种者中就有 1 人在研究期间因心律失常入院或死亡
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1778925/)
 
-据《The News Motion》作者：Kathy Acker，2021年12月19报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1145.png)图片源自：thenewsmotion.com
-东京：日本公共安全情报局警告，警惕中共国的经济安全威胁，称其尝试获取军事技术，并招募人才。
+编译： 真北007
+![](https://assets.gnews.org/wp-content/uploads/2021/12/mufid-majnun-1PkQljcl3T0-unsplash-scaled-1-edited.jpg)图片来源：网络
+来自GATEWAY PUNDIT星期二12月21日的新闻报道：
 
-该机构周五在年度报告中指出：“人们担心中共国将继续致力于收购（日本）公司和招募具有先进专业知识的人力资源。”
+2021 年 12 月 14 日，Nature Medicine （自然医学）发布了一项基于牛津大学研究人员分析的广泛人群数据集的研究。研究人员检查了与 COVID-19 疫苗接种和感染相关的心肌炎、心包炎和心律失常的风险。
 
-报告称，已有中共国公司投资半导体领域和其他领域或试图收购日本公司。
-报告还指出，日本研究人员正在参与中共国的“千人计划”。中共国以丰厚的资金从海外招募优秀人才。
+牛津大学的研究显示，在所有接种疫苗的人中，每 100 人中就有 1 人或 1% 入院或死于心律失常或心律不齐。
 
-该机构在报告中透露，已经发生系列旨在窃取日本公司机密信息的网络攻击事件。报告指，网络攻击在日本和国外变得越来越普遍和复杂。
+在我们研究的 38,615,491 名接种疫苗的个体中，385,508 (1.0%) 人在研究期间的任何时间（接种疫苗之前或之后）因心律失常入院或死于心律失常；其中 86,754 (0.2%) 例发生在接种任何剂量疫苗后的 1-28 天。在入院或死亡的人中，有 39,897 人（10.3%）的 SARS-CoV-2 检测呈阳性，其中 29,694 人（7.7%）在接种疫苗前检测呈阳性。有 7,795 人因心律失常而死亡（1,108 人的 SARS-CoV-2 检测呈阳性）。
 
-该机构呼吁对一些国家参与或支持网络攻击保持警惕，并特别提到中国、俄罗斯和朝鲜。它补充认为，网络攻击的威胁正变得越来越严重。
+因此，每 100 名接种疫苗的人中就有 1 人因心律不齐而去医院，这不是国际头条新闻吗？
 
-关于邻国的情况，该机构分析认为，因应对新型冠状病毒传播，朝鲜长期关闭边境，正面临着粮食价格飙升和供给短缺。
+这是一个令人震惊的数字。
 
-报告称，中共党魁习近平预计将进一步加强对经济和社会的控制，以确保明年北京冬奥会和中共党代会召开前的国内稳定。
+原文链接：[https://www.thegatewaypundit.com/2021/12/oxford-study-shocker-1-100-vaccinated-individuals-admitted-hospital-died-arrhythmia-study-period/](https://www.thegatewaypundit.com/2021/12/oxford-study-shocker-1-100-vaccinated-individuals-admitted-hospital-died-arrhythmia-study-period/)
 
-原文连接：[https://thenewsmotion.com/japan-agency-warns-of-economic-security-threats-from-china%EF%BD%9Carab-news-japan/](https://thenewsmotion.com/japan-agency-warns-of-economic-security-threats-from-china%EF%BD%9Carab-news-japan/)
+编辑/发布：LILY
 
-翻译：洛杉矶盘古农场 – TrueSky
-校对：洛杉矶盘古农场 – Mike Li 
-编辑：洛杉矶盘古农场 – WenXiong
-发布 ：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-
-
+20211221
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

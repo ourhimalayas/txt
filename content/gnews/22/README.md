@@ -2,24 +2,24 @@
 ---
 
 
-## 牛津大学研究惊人发现：每 100 名疫苗接种者中就有 1 人在研究期间因心律失常入院或死亡
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1778925/)
+## 科研践踏犯罪行为：半途终止中共病毒 药物瑞德西韦的研究，然后调整以歪曲结果
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1778939/)
 
 编译： 真北007
-![](https://assets.gnews.org/wp-content/uploads/2021/12/mufid-majnun-1PkQljcl3T0-unsplash-scaled-1-edited.jpg)图片来源：网络
-来自GATEWAY PUNDIT星期二12月21日的新闻报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕截图-2021-12-21-190728.png)图片来源：网络
+来自REDVOICE MEDIA星期一12月20日的新闻报道：
 
-2021 年 12 月 14 日，Nature Medicine （自然医学）发布了一项基于牛津大学研究人员分析的广泛人群数据集的研究。研究人员检查了与 COVID-19 疫苗接种和感染相关的心肌炎、心包炎和心律失常的风险。
+瑞德西韦Remdesivir：福奇Fauci 知道它是有毒的且杀死了人，但无论如何还推广它。
 
-牛津大学的研究显示，在所有接种疫苗的人中，每 100 人中就有 1 人或 1% 入院或死于心律失常或心律不齐。
+在谈到 COVID-19 以及美国对病毒的反应时，一名男子已将自己置于整个大流行的最前沿。作为乔·拜登总统的首席医疗顾问，安东尼·福奇博士持续推动几个月后采取了不同立场的议程和讲述。随着他不道德的过去受到质疑，许多人开始调查 这个COVID-19 背后的人以及继续给全国带来灾难的疫苗强制令。
 
-在我们研究的 38,615,491 名接种疫苗的个体中，385,508 (1.0%) 人在研究期间的任何时间（接种疫苗之前或之后）因心律失常入院或死于心律失常；其中 86,754 (0.2%) 例发生在接种任何剂量疫苗后的 1-28 天。在入院或死亡的人中，有 39,897 人（10.3%）的 SARS-CoV-2 检测呈阳性，其中 29,694 人（7.7%）在接种疫苗前检测呈阳性。有 7,795 人因心律失常而死亡（1,108 人的 SARS-CoV-2 检测呈阳性）。
+在原文的视频中，Paul Maik 博士在田纳西州纳什维尔举行的 COVID 峰会上发表讲话，当时他提出了一种用于治疗埃博拉患者的名为 Remdesivir 的药物的研究过程。 2019 年 12 月 12 日，在宣布 COVID-19 的同时，《新英格兰医学杂志》发表了研究结果，即瑞德西韦是一种有毒药物，会导致患者死亡并增加肾功能衰竭的风险。根据迈克的说法，福奇博士知道这一点，但他甚至在所有数据汇编之前就将其推广为 COVID-19 的治疗方法。
 
-因此，每 100 名接种疫苗的人中就有 1 人因心律不齐而去医院，这不是国际头条新闻吗？
+Maik 继续补充说：“在研究进行到一半时，他们进行了中期分析，发现该研究不会有好的结果。因此，他们在研究进行到一半时改变了目标，即球门。这正是科学不端行为。”
 
-这是一个令人震惊的数字。
+**点评：**文贵先生也及时告诉过世界，瑞德西韦也是一种杀人武器，中共病毒背后的人，为了利益任何邪恶的事情都干得出来!
 
-原文链接：[https://www.thegatewaypundit.com/2021/12/oxford-study-shocker-1-100-vaccinated-individuals-admitted-hospital-died-arrhythmia-study-period/](https://www.thegatewaypundit.com/2021/12/oxford-study-shocker-1-100-vaccinated-individuals-admitted-hospital-died-arrhythmia-study-period/)
+原文链接：[https://www.redvoicemedia.com/2021/12/scientific-misconduct-study-on-covid-drug-halted-then-adjusted-to-skew-results-video/](https://www.redvoicemedia.com/2021/12/scientific-misconduct-study-on-covid-drug-halted-then-adjusted-to-skew-results-video/)
 
 编辑/发布：LILY
 

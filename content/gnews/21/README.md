@@ -2,36 +2,41 @@
 ---
 
 
-## 美国副国务卿被任命为西藏问题特别协调员
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1778926/)
+## 有声|中共进入全面加速崩溃时代
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1778948/)
 
-**撰稿：日本东京方舟农场 幽蘭自得**
+配音：香草山香港部 – 文凯琳
 
-据《美国之音》12月21日报道，美国副国务卿泽雅被任命为西藏问题特别协调员，将在北京侵犯西藏人权之际领导美国维护西藏宗教、文化和语言遗产的工作。
 
-据报道，美国国务卿布林肯在宣布这个任命时表示，负责民事安全、民主和人权事务的副国务卿乌兹拉·泽雅（Uzra Zeya）还将同时寻求促进中共国和西藏精神领袖达赖喇嘛或民选西藏领导人之间的对话。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+12月18日，文贵先生发布盖特说，从12月17日到18日，纽约几万人感染奥秘康，全世界很多城市开始拉响了警报。中共放的毒从弄死人，到吓死人，再让所有人不仅呆在家里，而且一人感染全家都被传染。传染力快，并发率高，尤其对老人和孩子威胁之大。战友们一定要呆在家里，保护好自己和家人，同时备好神药青蒿素及伊维菌素。
 
-布林肯在推文中说，“她将领导美国努力维护西藏人民的宗教、文化和语言遗产，西藏人民正面临人权侵犯，他们的生计和环境正在面临挑战。”
+文贵先生强调，共产党经济即将全面崩溃，到处抢劫财富导致的社会动乱已铺开。17日起，中小企业倒闭仅北京一地，就从每天110家到每天300多家。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-263.png)图片来自美联社
+国内正大量抓捕公检法及金融部门官员，银行借旧换新，借新还旧以及高薪拉储等措施都出问题了，到年底露馅了 ，所以很多相关人员都会被抓 。所抓政法委和银行官员之多，前所未有，同时企业家也被抓捕。马云往国内不断汇钱 ；马化腾为了表忠心，不光交钱，还交技术和团队。
 
-国际声援西藏运动（International Campaign for Tibet）对此表示欢迎泽雅履新。临时主席布琼次仁（Bhuchung Tsering）在一份声明中呼吁泽雅带头争取志同道合国家的支持，制定西藏问题的共同方法，正如美国去年通过的《西藏政策及支持法案》（Tibetan Policy and Support Act）所要求的那样。
+整个中南部工资养老金不发，还要求半年内，医院和医疗企业部门上交1.5万亿，支持所谓的国家战略转型期，即为了打台湾做准备。
 
-此前，美国63名国会两党参众议员就西藏问题同时致函副国务卿乌兹拉·泽雅，对西藏自治表示支持，呼吁拜登政府与国会依据2002年“西藏政策法案”（Tibetan Policy Act）和2020年“西藏政策及支持法案”（Tibetan Policy and Support Act）等法律共同推动美国西藏政策的11个具体领域，保护藏人权利、自治与尊严，并进一步确认与中共国不同的西藏独特的政治、族裔、文化和宗教认同。
+文贵先生评价道， 所有的独裁者到最后都会发动战争，激起所谓的爱国主义和民族仇恨，拉着老百姓殉葬。
 
-*参考链接：*
+文字版原文：[中共进入全面加速崩溃时代](https://gnews.org/zh-hans/1770155/)
 
-[美国副国务卿泽雅被任命为西藏问题特别协调员](https://www.voachinese.com/a/zeya-named-coordinator-for-tibet-20211220/6362358.html)
+音频处理：喜山必胜Maverick
+发稿：Tom Li
+[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
+**更多资讯，更多关注**
 
-[美国60多名国会两党参众议员致函国务院支持西藏自治](https://www.voachinese.com/a/lawmakers-urge-to-make-tibet-priority-20211214/6354909.html)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-* * *
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-*素材采编：幽蘭自得*
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-*编辑：文顺*
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-*发布：Ranting*
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

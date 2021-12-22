@@ -2,36 +2,38 @@
 ---
 
 
-## 中共渗入华盛顿特区地方电台
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1778887/)
+## 日本机构警告来自中共国的经济安全威胁
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1778907/)
 
-**撰稿：日本东京方舟农场 幽蘭自得**
+据《The News Motion》作者：Kathy Acker，2021年12月19报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1145.png)图片源自：thenewsmotion.com
+东京：日本公共安全情报局警告，警惕中共国的经济安全威胁，称其尝试获取军事技术，并招募人才。
 
-《中央社》12月21日报道，根据美国联邦外国代理人信息揭露系统曝光的最新数据显示，华盛顿特区调幅电台WCRW过去2年收受中国共产党支付的440万美元酬劳，负责为其播放政治宣传内容。
+该机构周五在年度报告中指出：“人们担心中共国将继续致力于收购（日本）公司和招募具有先进专业知识的人力资源。”
 
-据报道，总部在弗吉尼亚州的WCRW母公司波多马克媒体集团（Potomac Media Group），16日向美国司法部呈报的资料，详列与中共中央宣传部国际传播规划局签署的高额合约内容。
+报告称，已有中共国公司投资半导体领域和其他领域或试图收购日本公司。
+报告还指出，日本研究人员正在参与中共国的“千人计划”。中共国以丰厚的资金从海外招募优秀人才。
 
-这份合约横跨2019年7月至今年8月。按照合约，WCRW须播放中（共）国环球电视网（CGTN）提供的内容，制播用正面角度描绘中共国的系列谈话节目“桥梁”（The Bridge），并在社群媒体上宣传。
+该机构在报告中透露，已经发生系列旨在窃取日本公司机密信息的网络攻击事件。报告指，网络攻击在日本和国外变得越来越普遍和复杂。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-263.jpg)图片来自中央社
+该机构呼吁对一些国家参与或支持网络攻击保持警惕，并特别提到中国、俄罗斯和朝鲜。它补充认为，网络攻击的威胁正变得越来越严重。
 
-该合约还指出，中共中宣部国际传播规划局有权检查WCRW的节目内容并确认节目安排。波多马克媒体还须向中方提供有关听众点击率、回馈及“国际组织评价”的报告。
+关于邻国的情况，该机构分析认为，因应对新型冠状病毒传播，朝鲜长期关闭边境，正面临着粮食价格飙升和供给短缺。
 
-据了解，WCRW早在1992年便开始播放中共国际广播电台（CRI）提供的内容，但先前并未向美国司法部登记为代表中共国的外国代理人。
+报告称，中共党魁习近平预计将进一步加强对经济和社会的控制，以确保明年北京冬奥会和中共党代会召开前的国内稳定。
 
-除此之外，中共国官方媒体还透过社群平台及与美国平面媒体签订出版交易，积极向美国大众宣传他们提供的内容。例如《中（共）国日报》便已花费数以百万计美元，让美国《时代杂志》（Time）、《外交政策》（Foreign Policy）杂志和《华尔街日报》在网络版刊登它的文章。
+原文连接：[https://thenewsmotion.com/japan-agency-warns-of-economic-security-threats-from-china%EF%BD%9Carab-news-japan/](https://thenewsmotion.com/japan-agency-warns-of-economic-security-threats-from-china%EF%BD%9Carab-news-japan/)
 
-*参考链接：*
+翻译：洛杉矶盘古农场 – TrueSky
+校对：洛杉矶盘古农场 – Mike Li 
+编辑：洛杉矶盘古农场 – WenXiong
+发布 ：洛杉矶盘古农场 – Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[中國大外宣滲入華府 地方電台收1.2億播官媒內容](https://www.cna.com.tw/news/firstnews/202112210355.aspx)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-* * *
 
-*素材采编：幽蘭自得*
-
-*编辑：文顺*
-
-*发布：Ranting*
 
  
 
