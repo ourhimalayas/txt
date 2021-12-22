@@ -2,26 +2,38 @@
 ---
 
 
-## 秘翻在线：王岐山委身做主持，求生很难求死不得
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1779819/)
+## 佟丽娅成功上位高官，新浪微博疯狂删帖
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1779871/)
 
-**撰稿：Ping**
+北京时间12月21日晚，新浪微博有网友爆出佟丽娅离婚后当小三成功上位，再嫁的对象为中央电视台台长慎海雄，这也可以解释缘何演员身份的佟丽娅可以以主持人的身份登上春晚的舞台。而从爆出的时间线来看，佟丽娅应为婚内出轨。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/001.png)
+中央电视台台长慎海雄
+![](https://assets.gnews.org/wp-content/uploads/2021/12/002-1.jpg)
+主持春晚的佟丽娅
 
-**责编：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/20201006082135979.jpg)
-中共官媒报道，12月21日厦门经济特区建设40周年庆祝大会在福建省厦门市举行，中共中央总书记、国家主席、中央军委主席习近平发去了贺信。国家副主席王岐山出席大会并讲话。众所周知福建是习近平的大本营，厦门经济特区作为福建的窗口性城市，更是具有举足轻重的作用。足以看出习近平对厦门经济特区建设40周年的重视程度之深。
+随后微博迅速删除相关话题，并封禁大量账号，大陆网友则在不同热搜下评论佟丽娅，提示大家前往吃瓜，并创建几十个佟丽娅相关话题，但目前均以无法显示。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/003.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/004.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/005.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/006.jpg)
+新浪微博作为大陆流量最大的社交平台之一，始终严格管控着言论，涉及到权贵的信息会立刻删除，平日充斥着各种娱乐信息及洗脑宣传，以防止老百姓了解社会真实的情况。同时偶尔会出现一些热点新闻，作为控制言论的遮羞布，又可以起到引导舆论的目的。即便如此，网友间仍有“微博办案”的说法，这也反应出各级政府及相关部门的不作为，以及社会缺少法治的病态。
 
-国家副主席王岐山，在习大神的威慑下，再次甘当主持人亲临现场，不遗余力地肯定厦门经济特区的发展成就，可见王岐山真是卯足了劲讨好习近平，求生欲不可谓不强也。郭文贵先生多次在大直播中爆料，王岐山已经被控制，习近平欲除掉王岐山的意思早已经在党内不是什么秘密了。特别是彭丽媛即将要登上第二把交椅的时候，王岐山还能有活路么？面对如此境遇，王岐山煞费心机求生，北戴河会议期间恳求去福建养老没被同意，便甘当习太阳的主持人，发挥“余热”，真是进退两难，尴尬至极！
+撰稿：cris-7
 
-郭先生曾爆料过一位世外高人的预言“习亡岐山”。面对这个预言，习近平和王岐山谁都不能确定是习灭亡王岐山，还是王岐山消灭习近平。为了万无一失，习近平务必要将王岐山干掉，不然被干掉的就是习近平本人。虽然共产党不让老百姓信迷信，但是共产党却比谁都迷信。
+发布：黎明之前
 
-当一个人面临死亡威胁的时候，什么面子都不重要，吃屎能活命都可以迫不及待的大吃几口。王岐山此时正是在生死的十字路口上，特别是在共产党绞肉机体制下，除了生就是死。对于王来讲，也是能活着就比死了强，那还要什么面子呢？即使给习近平舔脚能换一命也是值得做的。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
 
-今年四月份，王岐山也以类似主持人的身份参加了海南博鳌亚洲论坛2021年年会开幕式。对于王岐山这种奸诈之人来说，只要能让习大神满意，做什么都不重要，重要的是能把习忽悠住，可以用一句高大上“卧薪尝胆”来形容他，一切都是为了等待时机有朝一日灭掉习近平，这才是王岐山的真正目的。共产党体制就是群魔乱舞，不知此魔灭掉彼魔，就是彼魔灭掉此魔。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-跟随爆料革命越久，就越是明白，摆在明面的都是假的。藏在背后不为人知的龌龊与邪恶才是真的。但是不管王岐山如何蝇营狗苟，也不管习近平如何嚣张跋扈，中共的末日到来都是迟早得问题！
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-**[新闻链接](http://www.fujian.gov.cn/xwdt/fjyw/202112/t20211221_5797554.htm)**
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
