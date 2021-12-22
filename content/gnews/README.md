@@ -15,79 +15,79 @@
 
 ---
 
-### [【中日财经爆】日本官方认为今后十年有望复兴日之丸半导体](/content/gnews/1/README.md)
+### [中共对美国国际宗教自由委员会4人进行对等反制](/content/gnews/1/README.md)
+ ` 儒为`
+
+### [【中日财经爆】日本官方认为今后十年有望复兴日之丸半导体](/content/gnews/2/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [西媒头条 — 第135期](/content/gnews/2/README.md)
+### [西媒头条 — 第135期](/content/gnews/3/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [新闻述评：日本公布老布什对天安门事件的忧虑用意何为](/content/gnews/3/README.md)
+### [新闻述评：日本公布老布什对天安门事件的忧虑用意何为](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [高等学府用新冠疫苗赶绝人才](/content/gnews/4/README.md)
+### [高等学府用新冠疫苗赶绝人才](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [习神指示帮规大于法律，为彭上位做铺垫](/content/gnews/5/README.md)
+### [习神指示帮规大于法律，为彭上位做铺垫](/content/gnews/6/README.md)
  ` 波士顿五月花农场`
 
-### [警队再添利器对付港人](/content/gnews/6/README.md)
+### [警队再添利器对付港人](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [律政司持复核权毁司法尊严](/content/gnews/7/README.md)
+### [律政司持复核权毁司法尊严](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [疫苗保障基金成空头支票　伤者哭诉无门](/content/gnews/8/README.md)
+### [疫苗保障基金成空头支票　伤者哭诉无门](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [打死都不信：彭帅照剧本拼命洗地 资深记者：一场闹剧](/content/gnews/9/README.md)
+### [打死都不信：彭帅照剧本拼命洗地 资深记者：一场闹剧](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国累计接种新冠疫苗超27亿剂次](/content/gnews/10/README.md)
+### [中共国累计接种新冠疫苗超27亿剂次](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [谷歌、福克斯和英特尔先后强制员工接种中共病毒疫苗](/content/gnews/11/README.md)
+### [谷歌、福克斯和英特尔先后强制员工接种中共病毒疫苗](/content/gnews/12/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国国务卿支持立陶宛对抗中共](/content/gnews/12/README.md)
+### [美国国务卿支持立陶宛对抗中共](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [安大略省需要疫苗护照的企业销售额下降](/content/gnews/13/README.md)
+### [安大略省需要疫苗护照的企业销售额下降](/content/gnews/14/README.md)
  ` 墨尔本雅典娜农场`
 
-### [日本机场今日又确认68例奥密克戎感染](/content/gnews/14/README.md)
+### [日本机场今日又确认68例奥密克戎感染](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【中日财经爆】华夏幸福自曝累计违约1078.05亿！](/content/gnews/15/README.md)
+### [【中日财经爆】华夏幸福自曝累计违约1078.05亿！](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [冬奥惊魂](/content/gnews/16/README.md)
+### [冬奥惊魂](/content/gnews/17/README.md)
  ` 银河勇气之星`
 
-### [澳洲总理内阁紧急会议后回应新型变种爆发态势](/content/gnews/17/README.md)
+### [澳洲总理内阁紧急会议后回应新型变种爆发态势](/content/gnews/18/README.md)
  ` 澳喜特战旅Gnews`
 
-### [卫生顾问建议南非政府停止新冠病毒的隔离工作](/content/gnews/18/README.md)
+### [卫生顾问建议南非政府停止新冠病毒的隔离工作](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [起底Vice news坏新闻坏记者Isobel Yeung/杨贝贝](/content/gnews/19/README.md)
+### [起底Vice news坏新闻坏记者Isobel Yeung/杨贝贝](/content/gnews/20/README.md)
  ` 纽约香草山MOS02`
 
-### [澳大利亚或将最快在下个月批准Novavax疫苗](/content/gnews/20/README.md)
+### [澳大利亚或将最快在下个月批准Novavax疫苗](/content/gnews/21/README.md)
  ` 澳喜特战旅Gnews`
 
-### [【玫瑰看新闻】每日快讯 2021年12月21日](/content/gnews/21/README.md)
+### [【玫瑰看新闻】每日快讯 2021年12月21日](/content/gnews/22/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [接种了疫苗的犹大圣徒乐队吉他手因主动脉瘤险些丧命舞台](/content/gnews/22/README.md)
+### [接种了疫苗的犹大圣徒乐队吉他手因主动脉瘤险些丧命舞台](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [纽约一女学生的圣诞愿望：“要求中共释放我的父母”](/content/gnews/23/README.md)
+### [纽约一女学生的圣诞愿望：“要求中共释放我的父母”](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [地方政府财政枯竭，乱收费、乱摊派、乱罚款现象频出](/content/gnews/24/README.md)
- ` 墨尔本雅典娜农场`
-
-### [全球和澳洲疫情疫苗统计信息更新](/content/gnews/25/README.md)
+### [地方政府财政枯竭，乱收费、乱摊派、乱罚款现象频出](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
 
 ### [成立监管机制，阻止华尔街和硅谷资助中共国](/content/gnews/26/README.md)

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/22/2021 1:15 PM (UTC)`
+
+2021年12月22日 文贵大直播：外媒采访台前幕后；疫苗灾难典型案例；彭帅被迫澄清事实；大外宣媒体真面目
+![img](https://media.gettr.com/group44/origin/2021/12/22/12/81d764b1-d6a3-da7f-64fe-7de8ec5167fd/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 12/22/2021 4:15 AM (UTC)`
 
 21/12/2021 “Hcoin To the Moon" Hits iTunes <br/> No. 1 🥇on 8 Countries Top MV Charts !<br/>No.1🥇 on 7 Countries Rock MV Charts!<br/>No.1🥇 on 4 Countries Rock song Charts!<br/>No.1🥇on 1 countries Hip-pop/Rap song Charts!<br/>Miracle continues…….🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, Laos, Hungary, Macau, Fiji, Philippines, Finland, Greece!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1778019/<br/><br/>12月20号，Hcoin To the Moon位列iTunes<br/>8国热门MV榜首🥇！<br/>7国摇滚MV榜首🥇！<br/>4国摇滚歌曲榜首🥇！<br/>1国嘻哈歌曲榜首🥇！<br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港，老挝，匈牙利，澳门，斐济，菲律宾，芬兰，希腊的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏
@@ -145,13 +152,6 @@ On Dec 18, 2021 The actual controller and owner of Zhongzhi Enterprise Group die
 
 2021年12月19日 文贵大直播：病毒疫苗虚假经济；强办奥运后果严重；欧美惩罚中共难逃；疫苗灾难大事将至
 ![img](https://media.gettr.com/group9/origin/2021/12/19/12/f8548e85-b5ba-4a60-9dae-03117fd44ff6/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 12/19/2021 8:22 AM (UTC)`
-
-CCTV, the crazy CCP’s mouthpiece, shirking responsibility for creating the virus, spreading the crisis, and abusing human rights to the US.<br/><br/>疯狂的中共党媒CCTV甩锅美国制造病毒、传播危机、践踏人权<br/>
-![img](https://media.gettr.com/group9/getter/2021/12/19/08/f150605d-b5fb-5eca-623b-d86040f85eb2/out.jpg)
 
 ---
 

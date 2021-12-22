@@ -2,51 +2,21 @@
 ---
 
 
-## 纽约一女学生的圣诞愿望：“要求中共释放我的父母”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1780224/)
+## 接种了疫苗的犹大圣徒乐队吉他手因主动脉瘤险些丧命舞台
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1780225/)
 
-翻译： Jenny Ball
+#### 翻译/撰稿：zzballack
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1181.png)图片来源: theepochtimes.com
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-3-7.jpg)图片来源：纽约邮报
+据《网关专家》（Gateway Pundit）12月21日报道，重金属乐队犹大圣徒（Judas Priest）今年9月26日在美国肯塔基州的刘易斯维尔市（Louisville）参加一年一度的Louder Than Life 摇滚音乐节时，其首席吉他手、现年41岁的英国音乐家李奇·福克纳 (Richie Faulkner) 在表演途中突然晕倒，患上主动脉瘤（aortic aneurysm ）的他险些死在舞台上。但是这事没有获得媒体的太多关注。
 
-一名在纽约学习音乐的 16 岁中国女孩希望她的一个简单的圣诞愿望能够实现：无条件释放因修炼法轮功而被中共拘留的父母。
+读者麦克（Mike）在写给《网关专家》的一封信中谈及了此事。麦克说：“我一直在看你们关于新冠疫苗导致的不良反应和死亡的报道。音乐界与疫苗行业有一个肮脏的小秘密。李奇·福克纳当时差点死在舞台上。他做了心脏重建手术，现在他的胸部有4个金属瓣膜（metal valves）。李奇是一个健康状况一流的人，没有吸毒史，但为了和乐队一起巡演，为了能够在Live Nation的场地演出，他不得不接种新冠疫苗。没有人会承认疫苗是（他差点死亡的）原因，因为没有证据可以证明，但我们这些对疫苗持怀疑态度的人有自己的理论。鉴于音乐和娱乐行业的极左倾向，我们不得不把自己的想法保留下来，因为怕被封杀和拉黑。我不知道你们能用这些信息做什么，但我想你可能有兴趣听听。”
 
-2020 年 10 月 27 日，天才二胡演奏家陈法媛得知她父母在中共被捕后发生的事情已经一年多了。她自己5岁时也曾面临短暂的拘留。
+《纽约邮报》（New York Post）今年10月6日曾报道过此事，文章说犹大圣徒乐队的吉他手李奇·福克纳在经历了主动脉瘤后几乎死在了舞台上，这通常是一种致命的心脏疾病，当动脉剖开或破裂时就很危险。李奇事后回忆了当时的濒死经历：“当我回看音乐节的录像时，我可以从我的脸上看到我在演奏时的困惑和痛苦，当时我的主动脉破裂，血液开始溢出胸腔。我当时有医生所说的主动脉瘤和完全性主动脉夹层（complete aortic dissection）。我的外科医生告诉我说我很幸运，因为有这种情况的人通常不会活着到医院。”
 
-“我和他们没有任何联络，我不知道他们在哪里，我想念他们，”陈在法轮功新闻办公室法轮大法信息中心在社交媒体上发布的一分钟视频中说。
+新闻来源：[Ignored by Media: Vaccinated Judas Priest Guitarist Collapses on Stage, Suffers Aortic Aneurysm and Nearly Dies (VIDEO)](https://www.thegatewaypundit.com/2021/12/ignored-media-vaccinated-judas-priest-guitarist-collapses-stage-suffers-aortic-aneurysm-nearly-dies-video/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1183.png) 图片来源: theepochtimes.com
-
-16岁的法轮功修炼者陈发源的父母被中共逮捕。她目前在美国读书。（李贵修/大纪元）
-
-来自湖南省长沙市的陈阳和曹志敏的父母因修炼法轮功多次被捕。
-
-今年圣诞节发起了一项写信活动以帮助陈的父母，敦促人们给被捕后关押她父母的看守所写信。
-
-陈的高中同学最近给她的父母写了十几封信，鼓励他们坚强，希望家人早日在纽约团聚。
-
-中共认为，和平禅修的日益普及和道德教义，对其无神论的马克思主义意识形态构成威胁，并于 1999 年 7 月在全国范围内发动了一场迫害法轮功的暴力运动，导致数以万计的信徒被逮捕和折磨，为了摘取他们的器官许多人被迫害致死。
-
-据专门报道法轮功在中国受迫害的网站明慧网的几篇报道，陈的父母是 1999 年迫害开始后不久被判刑的无数人之一，当时他们去北京上访。
-
-她的父亲是一名计算机工程师，被判处四年徒刑并遭受酷刑，包括被电棍电击和殴打，直到他的一颗牙齿被打掉。她的母亲是一家国有企业的人力资源员工，被判处三年刑期，每天被迫做10多个小时的奴工，陈也被捕过一次。
-
-2010 年，当时 5 岁的陈正和她的母亲在去幼儿园的路上，至少有五个身份不明的男人把他们俩拖上车，带到洗脑中心。她的母亲在 17 天后获释。这些人后来被确认为 610 办公室的官员——这是一个专门负责迫害法轮功的法外机构。
-
-“现在我很担心，因为没有关于我父母的消息，”陈在之前的一次采访中告诉《大纪元时报》。 “我最担心他们会再次挨打、折磨……逼着他们‘蜕变’，放弃修炼。”
-
-改造良心犯是共产主义政权的日常心理虐待，包括洗脑和折磨，以迫使精神信徒放弃信仰。
-
-陈在纽约的监护人朱莉娅说，她的父母被捕后，这名少女经常哭。
-
-新闻来源 : [theepochtimes.com][‘Ask Chinese Government to Release My Parents’: A New York Schoolgirl’s Christmas Wish](https://www.theepochtimes.com/a-new-york-schoolgirls-christmas-wish-ask-the-chinese-government-to-release-my-parents_4164769.html?utm_source=News&amp;utm_campaign=breaking-2021-12-21-1&amp;utm_medium=email&amp;est=scHh%2B%2FGyqvcYi0uhmGCqumUrBuIdY3jFzF%2B7s02M0dgbbWcBvFyQ1csKKXX0rK3A)
-
-* * *
-
-*审核：文乐
-校对: 阿伯塔
-发稿: Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-4.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,35 +2,20 @@
 ---
 
 
-## 谷歌、福克斯和英特尔先后强制员工接种中共病毒疫苗
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1780380/)
+## 中共国累计接种新冠疫苗超27亿剂次
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1780387/)
 
-整理报道：彩虹
-![](https://assets.gnews.org/wp-content/uploads/2021/12/d60ca728-1ec7-4ff1-b4ac-2bdee6d2a23d_1140x641.jpg)图片来源：市场观察
-12月21日，《国会山报》引述美联社报道，英特尔公司宣布，如果不能在公司1月4日的疫苗接种最后期限接种中共病毒（COVID-19）疫苗，并且没有获得宗教或医疗豁免，则未接种疫苗的员工很快就会被安排无薪休假。
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/12/7-33.jpg)[图片来源](https://ici.radio-canada.ca/rci/zh-hans/%E6%96%B0%E9%97%BB/1845603/%E5%8A%A0%E6%8B%BF%E5%A4%A7%E6%94%BF%E5%BA%9C%E6%89%A9%E5%A4%A7%E7%96%AB%E8%8B%97%E6%8E%A5%E7%A7%8D%E5%BC%BA%E5%88%B6%E8%A7%84%E5%AE%9A%E7%9A%84%E5%AE%9E%E6%96%BD%E8%8C%83%E5%9B%B4)
+12月22日人民网报道，据中共国卫生健康委员会截至2021年12月21日，31个省（自治区、直辖市）和新疆生产建设兵团累计报告国家卫生健康委新闻发言人、宣传司副司长米锋在12月20日举行的国务院联防联控机制新闻发布会上介绍，截至12月19日，中共国完成中共病毒疫苗（新冠疫苗）完成全程接种的人数为11亿9346.6万人，接种中共病毒疫苗270667.6万剂次，3-11岁儿童的接种数量已经超过1.4亿次。
 
-根据报道，未接种疫苗的员工的无薪假期将于4月开始。这家位于加州的科技公司将在3月15日前考虑员工的豁免请求，然后，没有获得豁免的员工将从4月4日开始休至少三个月的无薪假。
+中共独裁者在不明真相各种胁迫和宣传下让国人签下“自愿承诺书”，没有任何人任何政府机构或单位来为此负责，愿国人都能醒来看清中共掩盖病毒和所谓的疫苗接种的流氓杀人本质。
 
-英特尔公司的首席人事官克里斯蒂·潘比安奇（Christy Pambianchi）确认说，休假的员工“不会被解雇”，在休假期间将继续享受他们的医疗保健福利。
+[【我国累计报告接种新冠疫苗超27亿剂次】](https://ms.mbd.baidu.com/r/yq00OBlm5a?f=cp&amp;rs=3722730692&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=0002ffd3368915fa)
 
-根据公开的信息，虽然政府对联邦承包商提出了强制接种中共病毒疫苗的要求，但佐治亚州的一家联邦法院在12月初阻止了这一规定的执行，新闻说，政府正在对该法院决定提出上诉。因此，英特尔在一份声明中说“我们正在密切关注法律环境，预计佐治亚州的案件以及其他类似案件需要时间才能完全解决”。
-
-文章另外报道，福克斯公司将要求其纽约市的所有员工在12月27日前至少接种一次中共病毒疫苗。该公司还表示，它将取消未接种中共病毒疫苗的员工定期接受检测以代替接种疫苗的选择。
-
-此外，谷歌还宣布，没有获得宗教或医疗豁免的员工必须在1月18日前接种中共病毒疫苗，否则，他们可能面临包括扣减工资或可能失去工作的后果。
-
-**新闻来源**
-
-[Intel tells unvaccinated workers they will go on unpaid leave in April](https://thehill.com/policy/healthcare/586827-intel-tells-unvaccinated-workers-they-will-go-on-unpaid-leave-in-april)
-
-**发布：彩虹**
-
-**更多资讯，请关注：**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
