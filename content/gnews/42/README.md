@@ -2,31 +2,37 @@
 ---
 
 
-## 有声|台湾四大公投皆否 粉碎中共及同路人阴谋
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1778181/)
+## 牛津大学研究揭接种疫苗者得心脏病入院或死亡律达1%
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1778607/)
 
-配音：香草山香港部 – 文凯琳
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-当地时间12月18日，台湾举行四项议题公投，当晚8点多开票结束。四大议题包括公投第17案：重启核四；第18案：反萊豬进口；第19案：公投绑大选；第20案：三接迁离。结果皆是不同意票大于同意票，表示民众多数赞成维持政府目前的施政措施，无意做变更。此结果粉碎了中共及其同路人国民党，意图破坏台美关系，及台湾经济发展的计划。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-四个公投案皆由国民党及中共操纵，意图打着环保及食安议题的名义，扰乱台湾政府目前的施政。含莱剂猪肉品进口案，是中共及国民党主打议题，希望借着公投结果，让美国含莱剂的猪肉品不能进口到台湾，藉此造成台美间的贸易障碍。不仅增加台湾期待加入各个自由贸易组织的困难度，也破坏了台美间的和谐气氛。
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/12/V-3.jpg)id-hub.com
+《门道专家》12月20日晚间发表了题为“牛津大学的研究令人震惊：在研究期间，每100名接种疫苗的人中就有1人入院或死于心律失常”。【1】
 
-15日，中共国台办发言人马晓光，针对台湾即将进行的公投案，对台执政党进行批评，意图左右公投投票结果。有评论称，这暴露了中共在背后操控台湾公投的阴谋。
+全文如下：
 
-文字版原文：[台湾四大公投皆否 粉碎中共及同路人阴谋](https://gnews.org/zh-hans/1770167/)
+2021年12月14日，《自然医学》（Nature Medicine）发布了一项基于牛津大学研究人员分析的广泛人群数据的研究，研究人员检查了中共病毒感染和心肌炎和心律不齐的风险。
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
+牛津大学的研究人员透露，在所有接种疫苗的人中，每100人中有1人或1%因心律失常或心律不齐而入院治疗或死亡。
 
-![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+*在我们研究中包括的38,615,491名接种疫苗的个体中，385,508名（1.0%）在研究期间的任何时间（接种前或接种后开始的研究）因心律失常入院或死亡；其中86,754例（0.2%）发生在第1-28天 。接种任何疫苗后数天，在入院或死亡的患者中，39,897人（10.3%）的中共病毒检测呈阳性，其中29,694人（7.7%）在接种疫苗前检测呈阳性，有7,795例死于心律失常（1,108例中共病毒检测呈阳性）。*
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+因此，每100名接种疫苗的人中就有1人因心律不齐而去医院，这不应该是国际新闻的头条吗？
+
+这是一个令人震惊的数字。
+
+（原文完）
+
+笔者不太放心，按照文章提供的线索，查阅到了有关论文【2】，的确有这样的描述。笔者有同样的疑惑，“这不应该是国际新闻的头条吗？” 为什么主管机构不认真对待？还在加紧实施疫苗的强制接种？主流媒体集体禁声？一切的不正常背后必有妖术、邪术，那就是与中共一起的阴谋集团在操控。
+
+有关链接：
+
+【1】[https://www.thegatewaypundit.com/2021/12/oxford-study-shocker-1-100-vaccinated-individuals-admitted-hospital-died-arrhythmia-study-period/](https://www.thegatewaypundit.com/2021/12/oxford-study-shocker-1-100-vaccinated-individuals-admitted-hospital-died-arrhythmia-study-period/)
+
+【2】[https://www.nature.com/articles/s41591-021-01630-0](https://www.nature.com/articles/s41591-021-01630-0)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,24 +2,31 @@
 ---
 
 
-## 辉瑞以67亿美元收购了研究心血管疾病的生物制药公司Arena
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1777614/)
+## 有声|台湾四大公投皆否 粉碎中共及同路人阴谋
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1778181/)
 
-翻译：zzballack
-上传：无明逆流
+配音：香草山香港部 – 文凯琳
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+当地时间12月18日，台湾举行四项议题公投，当晚8点多开票结束。四大议题包括公投第17案：重启核四；第18案：反萊豬进口；第19案：公投绑大选；第20案：三接迁离。结果皆是不同意票大于同意票，表示民众多数赞成维持政府目前的施政措施，无意做变更。此结果粉碎了中共及其同路人国民党，意图破坏台美关系，及台湾经济发展的计划。
 
-据《国家脉动》（The National Pulse）12月20日报道，辉瑞公司日前以67亿美元收购了Arena制药公司（Arena Pharmaceuticals）。
+四个公投案皆由国民党及中共操纵，意图打着环保及食安议题的名义，扰乱台湾政府目前的施政。含莱剂猪肉品进口案，是中共及国民党主打议题，希望借着公投结果，让美国含莱剂的猪肉品不能进口到台湾，藉此造成台美间的贸易障碍。不仅增加台湾期待加入各个自由贸易组织的困难度，也破坏了台美间的和谐气氛。
 
-总部位于美国犹他州的Arena公司部分专注于心血管和炎症药物的研发，但是大多数主流媒体机构的报道都集中在Arena的肠道疾病治疗上，而没有提及该公司的心血管研究。Arena官网上的一篇文章称，该公司正在“扩大其研究急性心力衰竭（Acute heart failure）和微血管阻塞（Microvascular obstruction）等心血管疾病的能力”。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1133.png)图片来源：原新闻
-该公司的Crunchbase页面也宣称他们专注于心血管和炎症性疾病的治疗。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1134.png)图片来源：原新闻
-另外，Arena公司现在还与联合治疗公司（United Therapeutics Corporation）有合作关系，后者的研究重点是肺动脉高血压。巧合的是，新冠患者的症状之一就是肺动脉高压，而新冠疫苗容易引发心血管疾病，比如心肌炎，特别是在年轻男性当中。辉瑞的此项收购肯定会给其带来比企业媒体所吹捧的肠道疾病治疗更多的回报。
+15日，中共国台办发言人马晓光，针对台湾即将进行的公投案，对台执政党进行批评，意图左右公投投票结果。有评论称，这暴露了中共在背后操控台湾公投的阴谋。
 
-辉瑞通过新冠疫苗赚得盆满钵满，其高管甚至因此登上《福布斯》杂志的全球十亿富翁榜。但是他们的贪婪不止于此，料到新冠疫苗大范围推广后，寻求心脏和血管疾病治疗的人会越来越多，这笔收购就是为此做准备，准备再发一笔横财。不得不说，辉瑞及其实际掌控人的算盘打得很精，也足够邪恶。但世人不会任其为非作歹，必将绳之以法。
+文字版原文：[台湾四大公投皆否 粉碎中共及同路人阴谋](https://gnews.org/zh-hans/1770167/)
 
-新闻来源：[Pfizer is Buying a Cardiovascular Biopharma Company for $6.7Bn.](https://thenationalpulse.com/news/pfizer-is-buying-a-cardiovascular-biopharma-company-for-6-7bn/)
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

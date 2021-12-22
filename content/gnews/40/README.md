@@ -2,34 +2,40 @@
 ---
 
 
-## 政治动乱、谋杀恐成北京冬奥闭幕大礼
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1778509/)
+## 有声|未感染中共病毒乘客被强行拘留隔离
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1778807/)
 
-作者：纽约香草山教育部 – Noemi
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-12月19日，郭文贵先生在最新的大直播节目中透露，中共军方最有可能在冬奥会闭幕式时，制造出政治动乱和谋杀事件，届时北京将成为最危险之地。
+配音：香草山香港部 – 文凯琳
 
-郭先生爆料，恐怖袭击的发生很可能由两方面入手。其一，是制造天然气管道爆炸事故，该类事件发生概率超过50%；其二，则是警察暴动，发生概率亦超50%。同时，中共党魁习近平在这场奥运中染毒的机率超过了70%，冬奥或将成为这位独裁者最后的噩梦。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture17.jpg)
-郭先生分析，这两种危机对于习近平来说，都是防不胜防。首先，若想要完全避免天然气事故的发生，除非做到全城断气，否则这类事故将无从杜绝。其次，除中央警卫团之外，中共的警察系统习控制不了，一直就是政法委的势力所在，而冬奥会，或许就是借警察暴动铲除习近平的最好时机。近期，中共的公检法、政法委系统人员频频出现大动，就是习近平在为冬奥期间的自保做出准备。
 
-郭先生总结道，此次冬奥会会让中共党内乃至全世界都极为震惊。而在明年的五月份之前，这个世界将会相当动荡。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%96%B0.png)
+盖特12月18日消息，近日福克斯节目揭露了一起匪夷所思的疫苗暴政事件，一位并没有感染中共病毒的飞机旅客，被强行拘留并被隔离。
 
-参考链接：[政治动乱、谋杀恐成北京冬奥闭幕大礼](https://gtv.org/video/id=61bf5c86bcb7f101bb70b057)
+据悉，该事件发生在荷兰阿姆斯特丹机场，一名登机前接受检测并未感染中共病毒的旅客，被全副武装的军警强行拖下飞机，被送往中共病毒营地进行强制隔离。究其原因仅仅是荷兰政府根据他的旅行史，认为他可能有一天会感染新冠病毒而已。
 
-![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+主持人警告说，这样离奇的事件不仅仅发生在海牙国际法庭的故乡，加拿大也在发生着同样的疫苗暴政。人们被禁止乘坐飞机、火车和轮船旅行，除非他们证明已经注射过特鲁多逼迫他们注射的中共病毒疫苗。如果人们拒绝，就会被关押在一个伪装成公共卫生设施的监狱里。
 
-总编：DM
-编辑：DM
-校对/发稿：Hetangyuese
+主持人最后的结语令人深思：世界各地正在发生的强制注射中共疫苗的暴政，象征着民主的死亡。
 
+文字版原文：[未感染中共病毒乘客被强行拘留隔离](https://gnews.org/zh-hans/1770819/)
+
+音频处理：喜山必胜Maverick
+发稿：Tom Li
+[![图片](https://media.discordapp.net/attachments/908033143146172416/915434286746861618/unknown.png?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/915434286746861618/unknown.png)
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

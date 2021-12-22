@@ -2,37 +2,36 @@
 ---
 
 
-## 美国副国务卿被任命为西藏问题特别协调员
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1778926/)
+## 西安疫情爆发再度封城 医疗体系濒临瘫痪
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1778967/)
 
-**撰稿：日本东京方舟农场 幽蘭自得**
+作者：纽约香草山教育部 – Noemi
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+中共官方12月20日发布消息指，陕西省西安市因近期出现大量新冠及出血热感染病例，需要再度封城。
 
-据《美国之音》12月21日报道，美国副国务卿泽雅被任命为西藏问题特别协调员，将在北京侵犯西藏人权之际领导美国维护西藏宗教、文化和语言遗产的工作。
+目前西安市有1个高风险地区和13个中风险地区，主要出城公路均已封闭，所有学校全面停课，市民上班必须持有48小时内核酸阴性报告。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture14-2.jpg)
+另外，当地不少医院因疫情停诊，医疗系统濒临瘫痪，对基础病患者造成极大的影响，有媒体报导，发现不少尿毒症患者已经连续4天不能去医院透析，生命健康面临重大挑战。有医护人员表示，为了确保医院自身的安全及正常运作，对于来自中高风险地区的患者确实存在接收困难的问题。
 
-据报道，美国国务卿布林肯在宣布这个任命时表示，负责民事安全、民主和人权事务的副国务卿乌兹拉·泽雅（Uzra Zeya）还将同时寻求促进中共国和西藏精神领袖达赖喇嘛或民选西藏领导人之间的对话。
+虽然，目前受困患者据报已得到救治，但相关人员认为，西安整个医疗系统实际上已经瘫痪，这个根本性问题远没有得到解决。
 
-布林肯在推文中说，“她将领导美国努力维护西藏人民的宗教、文化和语言遗产，西藏人民正面临人权侵犯，他们的生计和环境正在面临挑战。”
+参考链接：
+1. [西安疫情爆发再度封城 医疗体系濒临瘫痪](https://www.epochtimes.com/gb/21/12/20/n13448903.htm)
+2. [西安疫情爆发再度封城 医疗体系濒临瘫痪](https://www.exmoo.com/article/189761.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-263.png)图片来自美联社
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-国际声援西藏运动（International Campaign for Tibet）对此表示欢迎泽雅履新。临时主席布琼次仁（Bhuchung Tsering）在一份声明中呼吁泽雅带头争取志同道合国家的支持，制定西藏问题的共同方法，正如美国去年通过的《西藏政策及支持法案》（Tibetan Policy and Support Act）所要求的那样。
+总编：天滅中共
+编辑：天滅中共
+校对/发稿：Hetangyuese
 
-此前，美国63名国会两党参众议员就西藏问题同时致函副国务卿乌兹拉·泽雅，对西藏自治表示支持，呼吁拜登政府与国会依据2002年“西藏政策法案”（Tibetan Policy Act）和2020年“西藏政策及支持法案”（Tibetan Policy and Support Act）等法律共同推动美国西藏政策的11个具体领域，保护藏人权利、自治与尊严，并进一步确认与中共国不同的西藏独特的政治、族裔、文化和宗教认同。
-
-*参考链接：*
-
-[美国副国务卿泽雅被任命为西藏问题特别协调员](https://www.voachinese.com/a/zeya-named-coordinator-for-tibet-20211220/6362358.html)
-
-[美国60多名国会两党参众议员致函国务院支持西藏自治](https://www.voachinese.com/a/lawmakers-urge-to-make-tibet-priority-20211214/6354909.html)
-
-* * *
-
-*素材采编：幽蘭自得*
-
-*编辑：文顺*
-
-*发布：Ranting*
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

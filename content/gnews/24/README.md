@@ -2,32 +2,25 @@
 ---
 
 
-## 墙内主播补税事件继续发酵
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1778968/)
+## 秘翻在线：谭德赛：中共国必须提供更多病毒起源的数据
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1779028/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-12月20日，墙内“直播一姐”薇娅因偷逃税被罚款的消息传出后，关于其他主播税务问题的传言也越来越多。据墙内税务部门的消息，除薇娅外，还有部分头部主播没有被披露，各头部主播一直在补税，且越查漏洞越大，“数额惊人，至少几个亿”。除此之外，各相关方面还商讨了公布其余头部主播的恰当时机，具体处罚也不会在同一天公布。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture17-1.jpg)
-据中共官媒的消息，税务部门已经印发通知，对相关经纪公司及经纪人、网络平台企业、中介机构和帮助设计、策划、实施逃避税行为的第三方等进行联动检查，一并依法从严处理。
+翻译/撰稿：文旺
 
-据称，截至目前，已有上千名主播主动自查，补缴税款。
+校对：沙拉猫
+![](https://assets.gnews.org/wp-content/uploads/2021/12/gettyimages-1205434458_wide-155f7a2ce01f9711055cfad85e8fdd1d92611552-1600x900-1.jpg)来源：NPR
+据《路透社》（Reuters）12月20日发自日内瓦的报道，世界卫生组织 (WHO) 负责人谭德赛（Tedros Adhanom Ghebreyesus）周一表示，中共国必须要更加主动地提供冠状病毒（中共病毒）起源相关的数据和信息。
 
-参考链接：[墙内主播补税事件继续发酵](https://cj.sina.cn/article/norm_detail?url=http%3A%2F%2Ffinance.sina.cn%2F2021-12-21%2Fdetail-ikyamrmz0261005.d.html&amp;autocallup=no&amp;isfromsina=yes)
+谭德赛在日内瓦举行的记者新闻发布会上表示，由于（中共国）没有严格执行世界卫生组织2005 年制定的国际卫生条例中的条款或义务，导致了中共病毒大流行期间出现“许多失败”。
 
-![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+谭德塞说，世卫组织需要继续努力，直到了解病毒的起源，“因为我们应该从这次发生的事情中吸取教训，以便在未来做得更好。”
 
-总编：飞虹
-编辑：飞虹
-校对/发稿：Hetangyuese
+郭文贵先生和他引领的爆料革命早就向全世界揭露，所谓Covid-19就是中共故意释放出的生物武器， 意在用超限生化战破坏世界次序，摧毁全球经济，以此实现称霸地球的“美梦”。但随着爆料革命和新中国联邦持续不断地向全世界揭露中共病毒的真相，越来越多的国家和组织渐渐认识到了中共病毒大流行的本质，开始问责中共国，就连当初与中共勾兑的谭德赛“书记”，也在真相和压力下，不得不向中共喊话，但愿谭德赛不是表演，而是真正问责病毒元凶——中国共产党。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+新闻来源：[China must share more data on virus origins – WHO chief](https://www.reuters.com/world/china-must-share-more-data-virus-origins-who-chief-2021-12-20/)
+
+（免责声明：本文内容仅代表作者个人观点，本台不承担任何法律责任）
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

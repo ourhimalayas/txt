@@ -2,32 +2,42 @@
 ---
 
 
-## 中共支付一千多亿美元求普京出席冬奥
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1778966/)
+## 篮网队凯文·杜兰特触发“健康安全协议”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1778996/)
 
-作者：东京樱花团 – 在远方
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-郭文贵先生在12月20日的盖特视频中爆料，目前普京已经收到了中共拱手相送的一千多亿美元的支票，表示同意以个人名义出席北京冬奥会。
+据《Newsmax》作者：Charles Kim，2021年12月18日发布：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1147.png)2021年12月16日在纽约市巴克莱中心的比赛中，布鲁克林篮网队7号凯文•杜兰特运球对抗费城76人队31号塞斯‧柯瑞(Al Bello/ 盖蒂图片)
+根据体育记者在推特的贴文，布鲁克林篮网队球星凯文•杜兰特周六成为第九位触发NBA“健康安全协议”的队员，而未接种新冠疫苗的球星凯里·厄文将继续等待回归。
 
-郭先生指出，在共产党冬奥会的政治游戏中，唯一受到伤害的就是中共国10亿人民，所有中国人都将为了这个在国际上和政治上，完全没有任何价值的愚蠢的作秀而付出巨大的代价。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture14-1.jpg)
-除了送给俄罗斯的一千多亿美元，加上冬奥会场地、人员、服装、后勤、安保等其他费用，中共总共需要花费数千亿美元。这是极其可悲、可怜、可恨的，这也是全世界最昂贵的一场灾难游戏。而在世界经济即将崩塌之前，爆料革命的声音，是世界上唯一救人的忠言警告。
+ESPN的阿德里安·沃纳罗斯基周六在他的帖子中表示：“篮网队球星凯文•杜兰特触发联盟新冠协议，成为该队第八名触发协议的球员。”
 
-参考链接：[中共支付一千多亿美元求普京出席冬奥](https://www.gettr.com/post/pk5p5a0268)
+根据记者克莱·特拉维斯的说法，杜兰特在COVID-19检测呈阳性后触发了协议。
 
-![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
+消息传来时，篮网队预计厄文将上场比赛。球队周五表示，如果厄文接受新冠测试，他将可以参加客场比赛。
 
-总编：飞虹
-编辑：飞虹
-校对/发稿：Hetangyuese
+29岁的厄文不允许在主场比赛中出场，因为纽约市强制要求球员必须接种新冠疫苗。路透社报道，由于安大略省的规定，他也不能参加对纽约尼克斯队的客场比赛，以及在多伦多的比赛。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+为了满足协议要求，他必须每天接受新冠测试才能参加客场比赛，但仍可与球队一起练习。
+
+篮网队总经理西恩·马克斯周五在一份声明中对路透社表示：“在与我们的教练、球员和工作人员讨论后，团队决定让凯里•厄文重新加入球队，参加他有资格参加的比赛和训练。受球员全力支持，并仔细考虑现况后，我们做出了这个决定，包括球员因伤缺席比赛以及健康安全协议这些因素。”
+
+路透社称明星后卫詹姆斯·哈登也因触发健康协议而缺席。
+
+厄文是七次全明星球员，上赛季为篮网队参加了54场常规赛，平均得到26.9分，6.0次助攻和4.8个篮板。
+
+他下一次有资格在12月23日的客场比赛中出场，届时战绩为21-8的篮网队将与波特兰拓荒者队进行本赛季第三场比赛。
+
+文章来源: [https://www.newsmax.com/newsfront/nba-nets-covid-durant/2021/12/18/id/1049208/](https://www.newsmax.com/newsfront/nba-nets-covid-durant/2021/12/18/id/1049208/)
+
+翻译：洛杉矶盘古农场 – KY
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – WenXiong
+发布 ：洛杉矶盘古农场 – Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

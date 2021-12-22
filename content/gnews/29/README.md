@@ -2,29 +2,32 @@
 ---
 
 
-## 科研践踏犯罪行为：半途终止中共病毒 药物瑞德西韦的研究，然后调整以歪曲结果
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1778939/)
+## 墙内主播补税事件继续发酵
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1778968/)
 
-编译： 真北007
-![](https://assets.gnews.org/wp-content/uploads/2021/12/屏幕截图-2021-12-21-190728.png)图片来源：网络
-来自REDVOICE MEDIA星期一12月20日的新闻报道：
+作者：纽约香草山教育部 – Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+12月20日，墙内“直播一姐”薇娅因偷逃税被罚款的消息传出后，关于其他主播税务问题的传言也越来越多。据墙内税务部门的消息，除薇娅外，还有部分头部主播没有被披露，各头部主播一直在补税，且越查漏洞越大，“数额惊人，至少几个亿”。除此之外，各相关方面还商讨了公布其余头部主播的恰当时机，具体处罚也不会在同一天公布。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture17-1.jpg)
+据中共官媒的消息，税务部门已经印发通知，对相关经纪公司及经纪人、网络平台企业、中介机构和帮助设计、策划、实施逃避税行为的第三方等进行联动检查，一并依法从严处理。
 
-瑞德西韦Remdesivir：福奇Fauci 知道它是有毒的且杀死了人，但无论如何还推广它。
+据称，截至目前，已有上千名主播主动自查，补缴税款。
 
-在谈到 COVID-19 以及美国对病毒的反应时，一名男子已将自己置于整个大流行的最前沿。作为乔·拜登总统的首席医疗顾问，安东尼·福奇博士持续推动几个月后采取了不同立场的议程和讲述。随着他不道德的过去受到质疑，许多人开始调查 这个COVID-19 背后的人以及继续给全国带来灾难的疫苗强制令。
+参考链接：[墙内主播补税事件继续发酵](https://cj.sina.cn/article/norm_detail?url=http%3A%2F%2Ffinance.sina.cn%2F2021-12-21%2Fdetail-ikyamrmz0261005.d.html&amp;autocallup=no&amp;isfromsina=yes)
 
-在原文的视频中，Paul Maik 博士在田纳西州纳什维尔举行的 COVID 峰会上发表讲话，当时他提出了一种用于治疗埃博拉患者的名为 Remdesivir 的药物的研究过程。 2019 年 12 月 12 日，在宣布 COVID-19 的同时，《新英格兰医学杂志》发表了研究结果，即瑞德西韦是一种有毒药物，会导致患者死亡并增加肾功能衰竭的风险。根据迈克的说法，福奇博士知道这一点，但他甚至在所有数据汇编之前就将其推广为 COVID-19 的治疗方法。
+![This image has an empty alt attribute; its file name is 2.1.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/2.1.jpg)
 
-Maik 继续补充说：“在研究进行到一半时，他们进行了中期分析，发现该研究不会有好的结果。因此，他们在研究进行到一半时改变了目标，即球门。这正是科学不端行为。”
+总编：飞虹
+编辑：飞虹
+校对/发稿：Hetangyuese
 
-**点评：**文贵先生也及时告诉过世界，瑞德西韦也是一种杀人武器，中共病毒背后的人，为了利益任何邪恶的事情都干得出来!
-
-原文链接：[https://www.redvoicemedia.com/2021/12/scientific-misconduct-study-on-covid-drug-halted-then-adjusted-to-skew-results-video/](https://www.redvoicemedia.com/2021/12/scientific-misconduct-study-on-covid-drug-halted-then-adjusted-to-skew-results-video/)
-
-编辑/发布：LILY
-
-20211221
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
