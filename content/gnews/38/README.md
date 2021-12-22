@@ -2,26 +2,33 @@
 ---
 
 
-## 韩国政府屈服于中共的压力，当日取消了唐风的演讲
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1779717/)
+## 国家冰球联盟决定不派球员参加北京冬奥会
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1779859/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1165.png)[图片来源](https://www.asahi.com/articles/ASPDP4TKKPDPUHBI01T.html#:~:text=%E9%9F%93%E5%9B%BD%E3%)
-据《朝日新闻》网站21日报道，韩国政府原定于本月16日召开的在线会议上邀请台湾数码部长唐凤参加。但是就在会议当天早上，却通过一份电子邮件取消了她的参加。
+#### 撰稿：彩虹
 
-根据台湾外交部的说明，这次会议是由韩国总统文在寅成立的第四次工业革命委员会组织的。今年9月，韩国方面以”台湾数码部长”的名义，邀请唐凤在本月16日的”全球政策会议”上就台湾的数字改革发表演讲。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-34.jpg)图片来源：Code Sports
+周二，ESPN和路透社报道说，由于对中共病毒（COVID-19）的担心，国家冰球联盟(National Hockey League)和国家冰球联盟球员协会（National Hockey League Players’ Association）将不派球员参加北京冬奥会冰球比赛。对此，《新闻极限》和《国会山报》也分别于12月22日进行了报道。
 
-唐凤原定于12月16日下午在网上发言，但就在活动的当天上午7点50分，韩国方面给她的办公室发了一封电子邮件，他们以”有关中国-台湾关系的各种观点”为理由。要求她取消发言。
+根据报道，去年9月，国家冰球联盟同意暂停其常规赛季，以便世界顶级球员能够在北京比赛，但有一个前提条件，即如果由于中共病毒的干扰迫使比赛在奥运会期间重新安排，那么它可以退出（北京奥运会比赛）。
 
-对此，20日台湾外交部召唤韩国驻台北代表团的代表提出抗议，抗议其做法”缺乏礼仪”。外交部发言人欧江安在21日的新闻发布会上说，“在当天上午通知取消，不解释详细原因是非常不礼貌的。”
+最近几天，中共病毒变体奥米炕使得职业体育联盟撕裂严重，完全接种过中共病毒疫苗的球员连续感染了中共病毒，这使得越来越多的球员加入了COVID-19协议，国家冰球联盟被迫推迟在加拿大和美国的50场比赛。
 
-此前12月初，唐凤曾以台湾数码部长的身份参加了美国政府本月首次举办的民主论坛峰会。
+文章分析认为，球员们大多渴望回到这个最大的国际舞台，但担心在中共国的阳性测试可能导致21天的隔离，并推迟他们返回家庭和国家冰球联盟俱乐部的时间，这抑制了一些人的（参与）热情。埃德蒙顿油人队(Edmonton Oilers)的中锋康纳·麦大卫(Connor McDavid)称中共国的COVID-19协议规定，阳性病例将被强制隔离最高长达5周，“令人不安”。
 
-信息源：[韓国、オードリー・タン氏講演を当日キャンセル　「中台関係を考慮」](https://www.asahi.com/articles/ASPDP4TKKPDPUHBI01T.html#:~:text=%E9%9F%93%E5%9B%BD%E3%)
+国家冰球联盟的决定将对加拿大和美国队产生的影响最大，因为他们的整个奥运冰球名单由国家冰球联盟球员组成。其他奖牌竞争者，如瑞典、芬兰、俄罗斯和捷克共和国，对国家冰球联盟人才的依赖程度较低。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
+国家冰球联盟没有立即回应《新闻极限》和《国会山报》的评论请求，但ESPN说，预计国家冰球联盟将在未来24小时内正式宣布选择退出北京奥运会。
+
+文章指，国家冰球联盟可以在1月10日之前退出2月4日至20日的北京奥运会，而不会受到经济处罚。
+
+**新闻来源**
+
+[NHL Pulls Out of Beijing Winter Olympics Due to COVID-19](https://www.newsmax.com/us/nhl-olympics-covid-19-players-union/2021/12/21/id/1049538/)
+
+[NHL, NHLPA agree to skip Beijing Olympics due to COVID-19 concerns: report](https://thehill.com/policy/healthcare/public-global-health/586805-nhl-nhlpa-agree-to-skip-beijing-olympics-due-to-covid)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

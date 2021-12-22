@@ -2,43 +2,29 @@
 ---
 
 
-## 大量民众呼吁法官阻止政府的强制疫苗令
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1780161/)
+## 澳大利亚或将最快在下个月批准Novavax疫苗
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1780290/)
 
-作者: 银河勇气星—骄子
+撰稿：Gradient Boost
 
+从下个月开始，澳大利亚人似乎将迎来第四种CCP病毒疫苗。卫生部长Greg  Hunt在一档电视节目中年表示，Novavax生产的疫苗最早可能从2022 年 1 月开始向澳大利亚人民提供。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/16401733661.png)网络截图
+目前澳大利亚已经订购了 5100 万剂这类蛋白疫苗，但尚未得到治疗用品管理局的批准。Greg Hunt表示：“Novavax 目前正在通过医疗监管机构——治疗用品管理局——的审核……我希望，随着实验数据的逐渐积累，新的疫苗将在明年1 月份推出。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-17.jpg)
+Greg Hunt同时还认为，添加另一种疫苗类型可能有助于对澳大利亚疫苗接种的推广起到一个小幅但重要的推动作用。
 
+澳大利亚的首剂疫苗接种率达到了 94%，16 岁以上的人中有 90.8% 完成了两剂疫苗的接种。即便在这样的情况下，澳大利亚政府依然持续订购新品种的疫苗并且尝试通过监管审核，可见全国民范围的加强针注射运动势在必行，否则要如何解释目前还没有完成批准的超5000万剂次的疫苗大单？
 
-12月20日，据当地媒体消息显示，美国部分企业贸易团体、保守派和宗教组织共同呼吁美国最高法院介入，阻止拜登对大企业的强制性中共病毒疫苗政策。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/AAS13i2.jpeg)图片源自网络
-据了解，此前，劳工部职业安全与健康管理局(OSHA)曾发布声明称，拥有100名以上员工的雇主需要求其员工接种中共病毒疫苗。虽然这项政令在本月初被不同的上诉法院阻止，但联邦上诉法院于12月17日恢复了该项政策。
+就在昨日，欧洲药品管理局已经宣布，Novavax 被批准使用于 18 岁以上的欧盟成年居民。然而目前学界尚不清楚该款疫苗将在多大程度上抵御当前激增的 Omicron 病毒变异株，即便Novavax公司的CEO对于该款疫苗表现出很强的信心。
 
-报道称，相关群体一致认为，拜登政府的这项强制疫苗政策超越了宪法赋予的权力，鉴于这项政令覆盖的范围之广，其需得到美国国会的明确授权声明，但OSAH实际上仅仅根据较少使用且权限有限的紧急授权声明而颁布了此项计划。相关人士还批评道，政府行政部门正在试图控制和监视全美民众的中共病毒疫苗接种计划。
+在笔者看来，引入更多的疫苗实际只能够起到进一步为疫情煽风点火的作用，同时继续充实吃回扣的无良政客以及黑心药企的荷包。文贵先生在直播中已经说的非常清楚，向辉瑞这样的公司实际上已经是中共百分百完全控制，就是听之任之的傀儡角色。
 
-报道还提及，拜登政府必须在12月30日之前回应此事，同时，他也必须回应对医护人员实行的中共病毒疫苗强制接种计划。
+新闻参考链接：
 
-**参考阅读**: [https://lawandcrime.com/supreme-court/justice-kavanaugh-receives-flurry-of-requests-for-supreme-court-to-block-bidens-employer-vaccine-mandate/](https://lawandcrime.com/supreme-court/justice-kavanaugh-receives-flurry-of-requests-for-supreme-court-to-block-bidens-employer-vaccine-mandate/)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-304.jpeg)
-总编: Ivy001、Irene木木
+[9 News](https://www.9news.com.au/national/coronavirus-update-novovax-likely-to-be-available-from-january-2022-hunt-says/992a90ed-f7a4-4c7f-9b51-f796a48eaa60)
 
-编辑: 文特
-
-校对/发稿: 卡夫卡的甲壳虫
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
-
+编辑：五饼二鱼
+![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
