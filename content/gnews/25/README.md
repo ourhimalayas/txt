@@ -2,23 +2,16 @@
 ---
 
 
-## 樱花灭共诗——中原佛手（新韵）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1779816/)
+## 86%的老年人的死亡是除了疫苗之外没有其他原因造成的
+` MG 澳喜农场多语组` [轉載自GNews](https://gnews.org/zh-hans/1779827/)
 
-撰稿：东京樱花团/曲非烟
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1166.png)
-佛手祷天下，
+报告显示了百分之五十的死亡发生在接种疫苗后的48小时内。百分之八十的死亡发生在疫苗接种后的一星期内.这些死亡发生在疗养院居民，80多岁、70多岁及以下的人。他们确定，86%的情况是除疫苗外没有其他原因造成的.
 
-安民裕且达。
+From(2021/12/14)
+[https://odysee.com/@TimTruth:b/Mccullough-vaers-joe-rogan:4](https://odysee.com/@TimTruth:b/Mccullough-vaers-joe-rogan:4)
 
-当祈春暖后，
 
-龙虎斗京华。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1167.png)
-*插图：东京樱花团/闪闪
-校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
