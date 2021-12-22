@@ -2,33 +2,29 @@
 ---
 
 
-## 华夏幸福累计未偿还债务1078.05亿
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1778915/)
+## 牛津大学研究惊人发现：每 100 名疫苗接种者中就有 1 人在研究期间因心律失常入院或死亡
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1778925/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/122110-1.jpg)图片：网络资源
-编辑摘要：
+编译： 真北007
+![](https://assets.gnews.org/wp-content/uploads/2021/12/mufid-majnun-1PkQljcl3T0-unsplash-scaled-1-edited.jpg)图片来源：网络
+来自GATEWAY PUNDIT星期二12月21日的新闻报道：
 
-据《观点地产新媒体》12月21 日报道，华夏幸福基业股份有限公司发布公告称，近期公司及下属子公司新增未能如期偿还银行贷款、信托贷款等形式的债务本息金额67.87亿元。截至本公告披露日，该公司累计未能如期偿还债务本息合计1078.05亿元。
+2021 年 12 月 14 日，Nature Medicine （自然医学）发布了一项基于牛津大学研究人员分析的广泛人群数据集的研究。研究人员检查了与 COVID-19 疫苗接种和感染相关的心肌炎、心包炎和心律失常的风险。
 
-中共跌倒的房地产是再也爬不起来了，华夏幸福再重组，也不可能再现昔日的辉煌。虚假的房地产市场已经过去了，还是面对现实吧。
+牛津大学的研究显示，在所有接种疫苗的人中，每 100 人中就有 1 人或 1% 入院或死于心律失常或心律不齐。
 
-新闻参考链接：[华夏幸福新增未能如期偿还债务67.87亿 累计未偿还债务1078.05亿](https://c.m.163.com/news/a/GRP0JNOJ0519D45U.html?spss=newsapp)
+在我们研究的 38,615,491 名接种疫苗的个体中，385,508 (1.0%) 人在研究期间的任何时间（接种疫苗之前或之后）因心律失常入院或死于心律失常；其中 86,754 (0.2%) 例发生在接种任何剂量疫苗后的 1-28 天。在入院或死亡的人中，有 39,897 人（10.3%）的 SARS-CoV-2 检测呈阳性，其中 29,694 人（7.7%）在接种疫苗前检测呈阳性。有 7,795 人因心律失常而死亡（1,108 人的 SARS-CoV-2 检测呈阳性）。
 
-*编辑：胖丁*
+因此，每 100 名接种疫苗的人中就有 1 人因心律不齐而去医院，这不是国际头条新闻吗？
 
-* * *
+这是一个令人震惊的数字。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+原文链接：[https://www.thegatewaypundit.com/2021/12/oxford-study-shocker-1-100-vaccinated-individuals-admitted-hospital-died-arrhythmia-study-period/](https://www.thegatewaypundit.com/2021/12/oxford-study-shocker-1-100-vaccinated-individuals-admitted-hospital-died-arrhythmia-study-period/)
 
+编辑/发布：LILY
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+20211221
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
