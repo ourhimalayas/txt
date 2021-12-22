@@ -2,42 +2,34 @@
 ---
 
 
-## 大量民众呼吁法官阻止政府的强制疫苗令
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1780161/)
+## 经济低迷消费不振，中共国多地突击发放政府消费券
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1780165/)
 
-作者: 银河勇气星—骄子
+#### **作者：文泓 **
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/5955-4.jpg)图片来源：South China Morning Post
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-17.jpg)
+当前，随着各种债务相继暴雷，中共国的经济已举步维艰。昔日“铁公基”拉动经济的药方已不再有效，外企加速退出中国的步伐依然坚定。临近年终，中共各地政府开启了一波赠券潮，试图通过发放消费券等形式提振民众消费。
 
+周二，据第一财经不完全统计，12月以来，全国已经有30多个城市发放消费券。
+**湖南省**衡水市政府，在12月22日8:00在全市范围内派发300万元“政府消费券”。本次发放额度大，辐射范围广，涵盖行政辖区内52个民生保障的商业超市。
+**四川省成都市**已于12月中旬发放200万元文旅消费券。其中，12月16日，数字消费节发放了30万元消费券；12月19日，在羊肉美食文化旅游节上发放20万元的消费券。
 
-12月20日，据当地媒体消息显示，美国部分企业贸易团体、保守派和宗教组织共同呼吁美国最高法院介入，阻止拜登对大企业的强制性中共病毒疫苗政策。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/AAS13i2.jpeg)图片源自网络
-据了解，此前，劳工部职业安全与健康管理局(OSHA)曾发布声明称，拥有100名以上员工的雇主需要求其员工接种中共病毒疫苗。虽然这项政令在本月初被不同的上诉法院阻止，但联邦上诉法院于12月17日恢复了该项政策。
+截至目前，据第一财经的统计，重庆、成都、合肥、郑州、南京等全国30多个城市推出消费券。发放的消费券主要集中在餐饮、购物、旅游和体育等领域。
+国家统计局数据显示，11月份，社会消费品零售总额同比增长3.9%，增速比10月份回落1个百分点，其中餐饮收入由增长转为下降；12月15日，中国央行宣布降准0.5%，释放长期资金1.2万亿元；12月18日，全国人大取消房产税试点的决定草案，5年内或将暂缓征收房产税。
+**餐饮收入是民众最基础的消费，11月已出现拐点，说明民众的消费能力大幅下降；中共病毒造成全球供应链危机，世界都在议论升息、压制通胀，中国国内蔬菜肉类价格翻番，中国央行却反其道而行之，宣布降准，继续宽松；今年，全国多地开始限制新房降价销售，全国人大“顺应民意”取消了房产税试点等**。凡此种种，说明中国经济出了大问题，当前只能饮鸩止渴，一条道走到黑了。
 
-报道称，相关群体一致认为，拜登政府的这项强制疫苗政策超越了宪法赋予的权力，鉴于这项政令覆盖的范围之广，其需得到美国国会的明确授权声明，但OSAH实际上仅仅根据较少使用且权限有限的紧急授权声明而颁布了此项计划。相关人士还批评道，政府行政部门正在试图控制和监视全美民众的中共病毒疫苗接种计划。
+这次多地集中发放“政府消费券”，地方政府意图启动处于长期低迷的消费市场，期待岁末消费旺季的到来，地方财政收入得到提升。然而，残酷的现实一定会令他们失望。
 
-报道还提及，拜登政府必须在12月30日之前回应此事，同时，他也必须回应对医护人员实行的中共病毒疫苗强制接种计划。
-
-**参考阅读**: [https://lawandcrime.com/supreme-court/justice-kavanaugh-receives-flurry-of-requests-for-supreme-court-to-block-bidens-employer-vaccine-mandate/](https://lawandcrime.com/supreme-court/justice-kavanaugh-receives-flurry-of-requests-for-supreme-court-to-block-bidens-employer-vaccine-mandate/)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-304.jpeg)
-总编: Ivy001、Irene木木
-
-编辑: 文特
-
-校对/发稿: 卡夫卡的甲壳虫
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+参考链接：[全国30余城发放消费券！提振消费还需这些长效措施 (yicai.com)](https://m.yicai.com/news/101265633.html)
+发布：文泓
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

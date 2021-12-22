@@ -2,30 +2,42 @@
 ---
 
 
-## 中共在饱受战乱困扰的第三世界国家购买支持
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1780149/)
+## 大量民众呼吁法官阻止政府的强制疫苗令
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1780161/)
 
-#### 翻译/撰稿：zzballack
+作者: 银河勇气星—骄子
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-2-18.jpg)图片来源：纽约时报
-据《布雷特巴特新闻网》（Breitbart News）12月20日报道，中共政府正在通过介入地区冲突、向当地政府提供经济支持和军事援助，以从非洲到中东国家的第三世界领导人那里获得好处。
 
-《坎帕拉独立报》（The Kampala Independent）12月19日报道说，知名的中共军事承包商正在与乌干达人民国防军UPDF和民主刚果合作，对抗反对乌干达政府的民主同盟军ADF。据报道，至少有两个大型的中共军事承包商悄悄地向乌干达政府军提供物资。它们分别是中国兵器工业集团（Norinco）和保利科技有限公司（Poly Technologies）。中国兵器工业集团是中国最大的武器制造商之一，也是中共解放军的主要供应商。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-2-768x103-17.jpg)
 
-据《独立报》报道，乌干达从中国兵器工业集团购买了装甲战车，包括中共最近才开始出售给外国客户的一种新车型，保利科技公司则提供了防雷运兵车。保利科技还销售武器、通信设备、海洋设备和军用飞机地面支持设备。有报道说，乌干达现任总统约韦里·穆塞韦尼（Yoweri Museveni）的儿子穆霍齐·凯尼鲁加巴（Muhoozi Kainerugaba）中将以及一名与中共有密切利益关系的官员将被晋升为乌干达人民国防军总司令，以“巩固”中共和乌干达军队之间的关系。《独立报》说：“乌干达和保利科技之间的军火交易可能会让乌干达的一些盟友感到不安，比如向乌干达提供军事援助的美国。”
 
-另一个非洲国家尼日利亚正在发生数起叛乱活动，局势动荡。中共政府以保护在尼日利亚的中国公民为借口，向该国派出了一个刑侦专家高级代表团。《南华早报》指出：“中共这几十年来一直向非洲国家提供军事和安全培训，随着中共通过‘一带一路’基础设施倡议（BRI）扩大其影响力，他们现在可以打着保护投资、工程项目和人员的幌子，向这些发展中国家派遣安全部队。”
+12月20日，据当地媒体消息显示，美国部分企业贸易团体、保守派和宗教组织共同呼吁美国最高法院介入，阻止拜登对大企业的强制性中共病毒疫苗政策。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/AAS13i2.jpeg)图片源自网络
+据了解，此前，劳工部职业安全与健康管理局(OSHA)曾发布声明称，拥有100名以上员工的雇主需要求其员工接种中共病毒疫苗。虽然这项政令在本月初被不同的上诉法院阻止，但联邦上诉法院于12月17日恢复了该项政策。
 
-在伊拉克，随着美国正式结束在该国的作战任务，中共趁机在本月初与伊拉克政府签署了15份合同，建造一千多所学校。另外，中共的公司和投资者正在竞标该国的电力和水利建设、交通基础设施和石油等项目的合同。
+报道称，相关群体一致认为，拜登政府的这项强制疫苗政策超越了宪法赋予的权力，鉴于这项政令覆盖的范围之广，其需得到美国国会的明确授权声明，但OSAH实际上仅仅根据较少使用且权限有限的紧急授权声明而颁布了此项计划。相关人士还批评道，政府行政部门正在试图控制和监视全美民众的中共病毒疫苗接种计划。
 
-位于伦敦的智库公民社会研究所（Institute for the Study of Civil Society）的一份报告警告说，中共在为外国客户提供的军事训练计划中还包括“意识形态教育”，同时进行宣传，以“推广其治理模式”。一些臭名昭著的独裁者就毕业于中共的军事-意识形态培训项目，比如前津巴布韦总统罗伯特·穆加贝（Robert Mugabe）。
+报道还提及，拜登政府必须在12月30日之前回应此事，同时，他也必须回应对医护人员实行的中共病毒疫苗强制接种计划。
 
-美国智库兰德公司（RAND Corporation）的安全分析师蒂莫西·希斯（Timothy Heath）说：“随着解放军与军事精英的联系以及中共与当地政治精英的联系的增强，在每个国家形成了一个可能会支持北京偏好而不是西方国家偏好的精英权力网络。”《日经亚洲评论》（Nikkei Asian Review）今年12月初的一篇专栏文章认为，中共正在更积极地利用其日益增长的影响力“输出独裁主义”，使发展中国家的政治精英们在意识形态上与北京保持一致。
+**参考阅读**: [https://lawandcrime.com/supreme-court/justice-kavanaugh-receives-flurry-of-requests-for-supreme-court-to-block-bidens-employer-vaccine-mandate/](https://lawandcrime.com/supreme-court/justice-kavanaugh-receives-flurry-of-requests-for-supreme-court-to-block-bidens-employer-vaccine-mandate/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-304.jpeg)
+总编: Ivy001、Irene木木
 
-弗吉尼亚联邦大学的助理教授本杰明·R·扬（Benjamin R. Young）警告说：“中共正在通过向发展中国家的政党传播其绝对忠诚和党建纪律的意识形态价值观，培养他们对中共党国治理模式的支持。津巴布韦的执政党非洲民族联盟－爱国阵线（ZANU-PF）派遣高级官员到中共的‘意识形态学校’参加培训就是一个例子。虽然西方民主政府可能会嘲笑中共独裁主义是一种有吸引力的现代化模式这一说法，但发展中国家的执政党越来越把中共的党国模式视为迅速实现经济增长和限制政治不稳定的最佳途径。”
+编辑: 文特
 
-新闻来源：[China Buys Up Support in War-Torn Third World](https://www.breitbart.com/africa/2021/12/20/china-buys-support-war-torn-third-world/)
+校对/发稿: 卡夫卡的甲壳虫
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
  
 
