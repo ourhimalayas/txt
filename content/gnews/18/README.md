@@ -2,21 +2,33 @@
 ---
 
 
-## 【文贵先生大直播PPT】疫苗大灾难
-` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1781442/)
+## 七哥谈咱有情报（2021-12-19摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1781567/)
 
-撰稿：飞飞（DC) Now 小哥（香草山）庚子灭共（DC）莲心不染（扬帆）
-美工：青山（英喜）
+文编：Hima
+听写：叮叮
+视频：七哥
 
-【2021年12月22日文贵先生大直播PPT：疫苗大灾难】
-![](https://assets.gnews.org/wp-content/uploads/2021/12/11-10.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/12-9.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/13-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/14-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/15-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/16-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/17-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/18-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/19-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/20-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/21-11.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/22-12.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/23-9.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/24-9.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/25-8.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/26-6.jpg)
-**Omicron 从实验室里释放的证据的相关信息源链接：**
+来源：郭先生2021-12-19直播12：35：50 摘录
 
-1.[https://rumble.com/vqy7qe-dr.-peter-mccullough-on-nfl-protocols-pregnancy-omicron-and-more.html](https://rumble.com/vqy7qe-dr.-peter-mccullough-on-nfl-protocols-pregnancy-omicron-and-more.html)2.[https://rwmalonemd.substack.com/p/has-omicron-shifted-receptor-binding?r=ta0o1&utm\_campaign=post&utm\_medium=web](https://rwmalonemd.substack.com/p/has-omicron-shifted-receptor-binding?r=ta0o1&amp;utm_campaign=post&amp;utm_medium=web)3.[https://frenchdailynews.com/health/3691-omicron-the-molecular-analysis-of-pr-jacques-fantini 4.https://rwmalonemd.substack.com/p/omicron-today?r=ta0o1&utm\_campaign=post&utm\_medium=web](https://frenchdailynews.com/health/3691-omicron-the-molecular-analysis-of-pr-jacques-fantini%204.https://rwmalonemd.substack.com/p/omicron-today?r=ta0o1&amp;utm_campaign=post&amp;utm_medium=web)5.[https://www.cbsnews.com/news/omicron-variant-covid-in-europe-netherlands-before-alert-raised/ 6.https://www.cnbc.com/2021/12/02/where-did-omicron-covid-variant-come-from-and-where-is-it-circulating.html 7.https://www.who.int/news/item/26-11-2021-classification-of-omicron-(b.1.1.529)-sars-cov-2-variant-of-concern](https://www.cbsnews.com/news/omicron-variant-covid-in-europe-netherlands-before-alert-raised/%206.https://www.cnbc.com/2021/12/02/where-did-omicron-covid-variant-come-from-and-where-is-it-circulating.html%207.https://www.who.int/news/item/26-11-2021-classification-of-omicron-%28b.1.1.529%29-sars-cov-2-variant-of-concern)8.[https://twitter.com/P\_McCulloughMD/status/1473299558281191433?s=20 https://www.msn.com/en-us/health/medical/most-omicron-cases-in-us-have-been-mild-but-most-were-vaccinated-cdc-reports/ar-AARGOxE](https://twitter.com/P_McCulloughMD/status/1473299558281191433?s=20%20https://www.msn.com/en-us/health/medical/most-omicron-cases-in-us-have-been-mild-but-most-were-vaccinated-cdc-reports/ar-AARGOxE) 9.[https://www.msn.com/en-us/health/medical/most-omicron-cases-in-us-have-been-mild-but-most-were-vaccinated-cdc-reports/ar-AARGOxE 10.https://www.voiceforscienceandsolidarity.org/videos-and-interviews/geert-vanden-bossche-speaks-about-omicron-and-mass-vaccination-at-dana-show](https://www.msn.com/en-us/health/medical/most-omicron-cases-in-us-have-been-mild-but-most-were-vaccinated-cdc-reports/ar-AARGOxE%2010.https://www.voiceforscienceandsolidarity.org/videos-and-interviews/geert-vanden-bossche-speaks-about-omicron-and-mass-vaccination-at-dana-show)
+说你们回答问题兄弟学着点,七哥跟共产党那么多年，三十年睡觉你知道我咋睡过来的呀？哈哈。那些老杂毛我对付他们，真的是我一个手放裤裆里边，我一个手就把他们给玩了。因为我都知道他会说啥，我说他们想听啥啊。如果他想不起来我会提醒他，这就是七哥，就是迷倒一片。你看他们找着我跟任何人送钱，七哥没有钱吧。他也没有找着一个跟七哥跟任何女人上床。我七哥绝对没用生殖器。七哥就靠自己的智慧和魅力横扫中南坑，男女通吃是吧，咱还一毛不拔。我这不是吹牛的哈，今天过了几年了你们知道了吧，是吧。跟所有的明星，歌星啊都有过接触，跟谁也没上过床是吧，但是谁都想跟咱上过床。你看这个境界到了如此之高，七哥能不得意吗。那共产党跟警察似的，你郭文贵跟哪个明星有个私生子，是不是。我给哪个官人送多少钱，跟哪官员的太太上床了，你想想那得造成多大的影响，那得多恐怖啊，都没有。最好看七哥就通过中国警察在重庆啊，抓住了加拿大陈氏兄弟，召开全世界新闻发布会。我们发现了郭文贵的罪行，结果陈氏兄弟如实说，结果说完以后所有记者跟我联系了，在那之前说：哇，郭文贵你完了你完了。在重庆警局，结果开完记者会，一半人都抓起来了，死的死，完的完。大家去查查去还有谁在，那么大一个动静，国家中宣部，中办通知，祝中国记者到重庆召开郭文贵的犯罪集团的会议。结果完了以后你还交由一个人报道，我发现郭文贵这小子是个神人，既不嫖也不被嫖，既不行贿也没被行贿，既没造假也不让别人造假，既不犯法还不让别人犯法，既不偷税还让别人多交税。你说这人物哪有啊，最后发现陈氏兄弟我们是要推翻共产党，人家信的话他就要推翻你啊。共产党真的搬起石头砸了自己的脚吧，为什么咱了解共产党，还有情报。
 
-* * *
+校对：HimaFaFA
+发布：HimaBoy
 
-发稿：云起时
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

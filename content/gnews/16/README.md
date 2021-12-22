@@ -2,38 +2,33 @@
 ---
 
 
-## 拜登承认他的疫苗强制令不受欢迎
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1781448/)
+## 七哥谈“大兴全清”（2021-12-19摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1781590/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+文编：Hima
+听写：叮叮
+视频：七哥
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/12/B-1.png)newshub.social
-《福克斯新闻》发表文章，题目是“拜登承认他的疫苗强制令不受欢迎，但表示这些强制令‘合法且有效’”，文章副标题透露，拜登说，疫苗强制令“甚至对那些急于获得疫苗的人来说都不受欢迎”。【1】
+来源：郭先生2021-12-19直播13:02:26摘录
 
-全文如下：
+天安门长安街这是肯定的啊，这次最让人家不一样的就是北京城，最让人感到震撼的事情。你们不知道北京啊，你们说明你们四个都不是北京人。北京的新机场在哪里啊？整个大兴周围布置的重兵40万。所有参加冬奥会的运动员和所有的所谓政府官员都会从大兴降落下来。沿线快铁和快铁周围的房子已经在去年已经该拆的拆，不好看的已经都弄得跟北朝鲜一样。我去北朝鲜看的都是好房子，再往后一看一拐弯全是垃圾房是吧，死人房。大兴，说为啥问你文斌，共产党首先控进空中，当然长安街奥运村是一定要请北京城，大兴全清。空中，张家口当然是会场说的清，更夸张的事情兄弟姐妹们。习怕到什么程度，盘古大关周围，四环以北，机场路以西，七环以内，然后往京城路整个这范围内，包括到长安城的长安街的路。整个里边，全部布置防导系统，红旗系列，导弹部署。他怕的是谁啊？他怕的是斩首，怕的是内乱。好！你们答错了！这就七哥啊，要是当主持人你们就没得活，我告诉你啊。
 
-拜登总统在星期二（12月21日）的讲话中承认，他的对大型私人企业的中共病毒疫苗强制令及强制测试是“不受欢迎的”，但坚持认为这对每个人都有利。
+校对：HimaFaFA
+发布：HimaBoy
 
-拜登在白宫国宴厅（the White House’s State Dining Room）向全国发表讲话时说：“当人们接种疫苗或接受检测时，他们得病的可能性和向他人传播疾病的可能性要小得多。”
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
 
-“顾客更可能进来购物，因为他们知道这是一个安全的环境。”他继续说，“我知道疫苗接种要求对许多人来说并不受欢迎，甚至对那些急于接种疫苗的人来说也不受欢迎。我的政府实施这些措施不是为了控制你的生命，而是为了拯救你和其他人的生命。”
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-拜登发表上述言论之前，辛辛那提的美国第六上诉法院于解除了11月的一项禁令，该禁令阻止了“职业安全与健康管理局”（the Occupational Safety and Health Administration）的这项规定，该局规定，拥有至少100名雇员的私营企业，要求员工接种疫苗或定期进行检测。
+**关注我们**
 
-拜登在讲话中说，这项规定“合法有效”，将拯救“成千上万的美国人的生命”。
+Discord 账号
 
-由于奥密克戎变种的传播，新病例激增，拜登宣布了三项措施，以在他先前宣布的冬季计划的基础上再接再厉——包括增加对医院的支持、获得免费检测和扩大美国人接种疫苗的能力。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-（原文完）
+Gettr 账号
 
-面对强烈的抗拒，拜登怂了？至少他要面对现实，承认现实。按说第六巡回法院解除了第五巡回法院的暂停判决，他应该得意才是。若是没有感到强大的抵抗，他不会有这样的表态。压力之一或许就是来自最高法院，接手这个诉讼的法官布雷特·卡瓦诺 (Brett Kavanaugh)周一（12月20日）作了表态，卡瓦诺要求拜登政府回应第六巡回法院裁决的大量上诉。由于地理原因，卡瓦诺负责监督第六巡回法院的紧急上诉，卡瓦诺还为拜登政府的回应设定了截止日期和时间，即 12 月 30 日下午 4 点【2】。最高法院可能会在 2022 年初对此案采取行动。笔者并不看好最高法院能作出明智的判决，卡瓦诺目前的这种表态，也许是最高法院双方各打一板的策略。当然，他们若能真正认清疫苗的无用、疫苗的危害、疫苗的阴谋，否决第六巡回法院的判决，那才是正义在美国最高法院的彰显。
-
-有关链接：
-
-【1】[https://www.foxnews.com/politics/biden-vaccine-mandates-unpopular-legal-effective](https://www.foxnews.com/politics/biden-vaccine-mandates-unpopular-legal-effective)
-
-【2】[https://www.foxbusiness.com/politics/supreme-court-vaccine-mandate-kavanaugh-biden-respond](https://www.foxbusiness.com/politics/supreme-court-vaccine-mandate-kavanaugh-biden-respond)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

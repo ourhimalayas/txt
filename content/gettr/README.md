@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/22/2021 9:11 PM (UTC)`
+
+12月22号：20年前录制的视频，现在看起来感触太多了……盘古七星美食．中国文化的真正的传承……莘县古城镇肉窝饼……
+![img](https://media.gettr.com/group31/getter/2021/12/22/21/5d790cb6-0a28-2083-747c-0bbd4fc282b2/out.jpg)
+
+---
+
 `@miles 12/22/2021 1:15 PM (UTC)`
 
 2021年12月22日 文贵大直播：外媒采访台前幕后；疫苗灾难典型案例；彭帅被迫澄清事实；大外宣媒体真面目
@@ -145,13 +152,6 @@ Miles Guo's Latest Song "Hcoin To the Moon" has created 22 historic records so f
 
 On Dec 18, 2021 The actual controller and owner of Zhongzhi Enterprise Group died suddenly. <br/>As early as Oct 15, 2017, Miles Guo had revealed that the founder and Chairman of Zhongzhi Enterprise Group and his brother have a very unusual tie with Wang Qishan’s family. On Nov 7, 2019, Miles Guo again blew the whistle that a financial group owned by a Chinese celebrity’s husband will collapse, indicating Chinese singer Mao Amin’s husband Xie Zhikun.<br/><br/>中植企业集团实际控制人解直锟于2021年12月18日猝然离世。<br/>早在2017年10月15日，郭文贵先生就在直播中爆料中植企业集团创始人和主席解直锟和其弟与王歧山家族有非同一般的关系。2019年11月7日，郭文贵先生又爆料一位明星的老公的金融集团即将倒闭，暗指毛阿敏的老公解直锟.
 ![img](https://media.gettr.com/group28/getter/2021/12/19/15/2519746b-c9cf-53be-8067-9dbcb634e25c/out.jpg)
-
----
-
-`@miles 12/19/2021 1:25 PM (UTC)`
-
-2021年12月19日 文贵大直播：病毒疫苗虚假经济；强办奥运后果严重；欧美惩罚中共难逃；疫苗灾难大事将至
-![img](https://media.gettr.com/group9/origin/2021/12/19/12/f8548e85-b5ba-4a60-9dae-03117fd44ff6/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

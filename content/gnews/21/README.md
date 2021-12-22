@@ -2,35 +2,38 @@
 ---
 
 
-## Đảng Cộng Sản Trung Quốc đã xâm nhập nghiêm trọng vào quân đội Đài Loan, và an ninh của Thái Anh Văn cũng nằm trong đó
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1781217/)
+## 拜登承认他的疫苗强制令不受欢迎
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1781448/)
 
-Biên Dịch: 东京樱花团/越南文雄
-![](https://assets.gnews.org/wp-content/uploads/2021/12/6-19.png)
-[Nguồn ảnh:](00)
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-Reuters ngày 20/12 đưa tin, Các điệp viên Đảng Cộng Sản Trung Quốc đã xâm nhập nghiêm trọng vào quân đội Đài Loan, và bộ phận an ninh của tổng thống Thái Anh Văn cũng không ngoại lệ, và trong thập kỷ qua, ít nhất 21 sĩ quan cảnh sát quân sự cấp cao trở lên đã bị kết án vì tội gián điệp, trong khi 9 cựu chiến binh đang bị xét xử hoặc điều tra vì nghi ngờ tiếp xúc với gián điệp của Đảng Cộng Sản Trung Quốc.
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/12/B-1.png)newshub.social
+《福克斯新闻》发表文章，题目是“拜登承认他的疫苗强制令不受欢迎，但表示这些强制令‘合法且有效’”，文章副标题透露，拜登说，疫苗强制令“甚至对那些急于获得疫苗的人来说都不受欢迎”。【1】
 
-Reuters lấy ví dụ về Ông XIE XIZHANG, một điệp Đảng Cộng Sản Trung Quốc hoạt động tại Đài Loan với tư cách là một doanh nhân Hồng Kông, chỉ ra rằng XIE XIZHANG đã nhiều lần đến Đài Loan với tư cách là một doanh nhân Hồng Kông từ năm 1997, nhưng đã bí mật tuyển dụng gián điệp cho Bắc Kinh, thâm nhập thành công vào quân đội Đài Loan thông qua các phương tiện như tặng vàng và tặng quà.
+全文如下：
 
-Theo Reuters, ông XIE cung cấp toàn bộ chi phí đi lại nước ngoài của các sĩ quan Đài Loan và gia đình họ, hàng ngàn Đô la tiền mặt, đồng thời tặng quà như khăn lụa và thắt lưng cho vợ của sĩ quan. các sĩ quan quân đội cấp cao đã nghỉ hưu, quân đội Hoa Kỳ có kinh nghiệm liên quan đến Đài Loan và các quan chức phản gián của chính phủ hiện tại đều nói với Reuters rằng những trường hợp này cho Đảng Cộng Sản Trung Quốc đã phát động một chiến dịch rộng rãi nhằm phá hoại lãnh đạo quân sự và dân sự của Đài Loan, làm xói mòn ý chí chiến đấu của họ, trích xuất bí mật của vũ khí công nghệ cao và tìm hiểu về kế hoạch quốc phòng của Đài Loan.
+拜登总统在星期二（12月21日）的讲话中承认，他的对大型私人企业的中共病毒疫苗强制令及强制测试是“不受欢迎的”，但坚持认为这对每个人都有利。
 
-Ngoài ra, Đảng Cộng Sản Trung Quốc thậm chí còn thâm nhập vào các nhân viên an ninh để bảo vệ tổng thống Đài Loan Thái Anh Văn. Báo cáo cho biết một quan chức an ninh tổng thống đã nghỉ hưu và trung tá hiến binh đang phục vụ trong lực lượng chịu trách nhiệm bảo vệ tổng thống đã bị kết án vào đầu năm nay vì tiết lộ thông tin nhạy cảm về sự an toàn của Thái Anh Văn cho các cơ quan tình báo của Đảng Cộng Sản Trung Quốc. theo phán quyết của tòa án tối cao, thông tin này bao gồm một sơ đồ tổ chức của một trung tâm dịch vụ đặc biệt được vẽ tay, đơn vị này chịu trách nhiệm bảo vệ tổng thống. Hai người này cũng bị buộc tội tiết lộ tên, chức vụ và số điện thoại làm việc của các nhân viên an ninh cấp cao bảo vệ Dinh Tổng Thống và nơi cư trú của bà Thái Anh Văn ở trung tâm Đài Bắc, theo Reuters.
+拜登在白宫国宴厅（the White House’s State Dining Room）向全国发表讲话时说：“当人们接种疫苗或接受检测时，他们得病的可能性和向他人传播疾病的可能性要小得多。”
 
-Theo hồ sơ tòa án Đài Loan và báo cáo của truyền thông quan phương tại địa phương, trong thập kỷ qua, ít nhất 21 sĩ quan Thượng Uý hoặc ở cấp độ cao hơn đang làm việc hoặc đã nghỉ hưu của Đài Loan đã bị kết án là gián điệp của Đảng Cộng Sản Trung Quốc. 21 sĩ quan bị kết án đã bị kết tội tuyển dụng gián điệp cho Đảng Cộng Sản Trung Quốc hoặc chuyển một loạt thông tin nhạy cảm cho Đảng Cộng Sản Trung Quốc, bao gồm thông tin liên lạc của các sĩ quan quân đội cấp cao của Đài Loan và chi tiết về các người đại lý của Đài Loan tại nước Cộng Sản Trung Quốc.
+“顾客更可能进来购物，因为他们知道这是一个安全的环境。”他继续说，“我知道疫苗接种要求对许多人来说并不受欢迎，甚至对那些急于接种疫苗的人来说也不受欢迎。我的政府实施这些措施不是为了控制你的生命，而是为了拯救你和其他人的生命。”
 
-备注：越南语根据中文稿件进行翻译，本文内容以中文为准。
+拜登发表上述言论之前，辛辛那提的美国第六上诉法院于解除了11月的一项禁令，该禁令阻止了“职业安全与健康管理局”（the Occupational Safety and Health Administration）的这项规定，该局规定，拥有至少100名雇员的私营企业，要求员工接种疫苗或定期进行检测。
 
-Bản dịch tiếng Việt dựa trên bản tiếng Trung, nội dung bài dịch này lấy bản tiếng Trung làm chuẩn mực
+拜登在讲话中说，这项规定“合法有效”，将拯救“成千上万的美国人的生命”。
 
-Nguồn tin:
+由于奥密克戎变种的传播，新病例激增，拜登宣布了三项措施，以在他先前宣布的冬季计划的基础上再接再厉——包括增加对医院的支持、获得免费检测和扩大美国人接种疫苗的能力。
 
-[中共严重渗透台湾军方，蔡英文安保也在内 – GNEWS](https://gnews.org/zh-hans/1779350/)
+（原文完）
 
-Biên Tập: 东京樱花团/知了知了（以Google翻译分段校对）
-Đăng Bài: 东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-1.jpg)
+面对强烈的抗拒，拜登怂了？至少他要面对现实，承认现实。按说第六巡回法院解除了第五巡回法院的暂停判决，他应该得意才是。若是没有感到强大的抵抗，他不会有这样的表态。压力之一或许就是来自最高法院，接手这个诉讼的法官布雷特·卡瓦诺 (Brett Kavanaugh)周一（12月20日）作了表态，卡瓦诺要求拜登政府回应第六巡回法院裁决的大量上诉。由于地理原因，卡瓦诺负责监督第六巡回法院的紧急上诉，卡瓦诺还为拜登政府的回应设定了截止日期和时间，即 12 月 30 日下午 4 点【2】。最高法院可能会在 2022 年初对此案采取行动。笔者并不看好最高法院能作出明智的判决，卡瓦诺目前的这种表态，也许是最高法院双方各打一板的策略。当然，他们若能真正认清疫苗的无用、疫苗的危害、疫苗的阴谋，否决第六巡回法院的判决，那才是正义在美国最高法院的彰显。
 
+有关链接：
+
+【1】[https://www.foxnews.com/politics/biden-vaccine-mandates-unpopular-legal-effective](https://www.foxnews.com/politics/biden-vaccine-mandates-unpopular-legal-effective)
+
+【2】[https://www.foxbusiness.com/politics/supreme-court-vaccine-mandate-kavanaugh-biden-respond](https://www.foxbusiness.com/politics/supreme-court-vaccine-mandate-kavanaugh-biden-respond)
 
  
 

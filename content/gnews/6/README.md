@@ -2,49 +2,38 @@
 ---
 
 
-## 灭共者之郭先生直播厅：反对假疫苗
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1781611/)
+## 台立法院召开首场香港公听会
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1781720/)
 
-**出品：纽约香草山设计部**
+**撰稿：日本东京方舟农场 北极**
 
+据《德国之声》中文网报道，台湾立法院人权促进会于周一（12月21日）召开的主题为“香港的走向以及台湾的对应” 的在线公听会，呼吁台湾政府与公民社会合作保卫民主机制，并积极推动港人在台的安置工作。流亡海外的香港民运人士罗冠聪及张昆阳在线出席。
 
+根据台湾大陆委员会数据，2020年获台湾居留许可的港人破万人，比2019年成长了80%，创下历史新高。陆委会发言人邱垂正21日更指出，预计今年赴台居留的香港人数将再创新高。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+依照现行法律规定，港人赴台湾工作仅能居留，不得申请定居，因而无法入籍台湾，这使部分在台港人担心他们在居留期满后就得返回香港。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-273.png)流亡英国的香港前立法会议员罗冠聪21日在台湾立法院首场香港议题公听会上呼吁，台湾政府与公民社会应合作保卫民主机制。（图片来自德国之声中文网）
 
+流亡英国的香港民运人士张昆阳表示，希望台湾政府下定决心，加快审批程序，协助港人在台定居，并可尽快获得入籍条件。
 
+另一位流亡英国的前香港立法会议员罗冠聪在会议上发出警告，“台湾是中共进攻自由世界的下一个目标”。
 
+罗冠聪表示，中共对台湾的渗透、统战工作手法与香港雷同，都是通过利益收买黑帮结盟及卖台贼，破坏台湾的民主与人权。他补充道，支持香港与支持台湾基本上是同一件事，而台湾与香港、甚至维吾尔人、藏族人权活动，若能在国际上协同合作，会有“一加一大于二”的效果。
 
+10月份，台湾政府传出消息，欲修法放宽港人来台申请定居、入籍的相关规定，但具体修法时间尚不明确。
 
+*参考链接：*
 
+[台立法院首场香港公听会 罗冠聪张昆阳在线出席](https://www.dw.com/zh/%E5%8F%B0%E7%AB%8B%E6%B3%95%E9%99%A2%E9%A6%96%E5%9C%BA%E9%A6%99%E6%B8%AF%E5%85%AC%E5%90%AC%E4%BC%9A-%E7%BD%97%E5%86%A0%E8%81%AA%E5%BC%A0%E5%B4%91%E9%98%B3%E5%9C%A8%E7%BA%BF%E5%87%BA%E5%B8%AD/a-60220187)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-image1.jpg)Only 1% chance of dying if infected by the coronavirus, while 96% chance of getting cancers or die [in a few years] if COVID-vaccinated. Why would anyone still go for the so-called “vaccine”? 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-image0-1.jpg)得了冠状病毒不一定死，只有1%的机会死；打疫苗会有96%的机会死和得癌症。那你为什么要打疫苗呢？![](https://assets.gnews.org/wp-content/uploads/2021/12/3-20211220-08.jpg)
-The vast majority of people who have taken the COVID-vaccine jabs did so due to ignorance, petty benefits, plus the “Scientism” way of logical and habitual thinking, of which all have been stealthily exploited by the CCP. Because the CCP knew that the West would not say NO to the vaccine. That is exactly why the CCP is so evil.![](https://assets.gnews.org/wp-content/uploads/2021/12/4-20211220-07.jpg)绝大多数打疫苗的就是无知，受小利的影响，还有就是科学主义的逻辑思维和习惯性思维的结果，背后都是共产党在利用：因为它知道西方国家是不会拒绝疫苗的！这就是中共邪恶的地方。![](https://assets.gnews.org/wp-content/uploads/2021/12/5-1215-.jpg)
-I’m not anti-vaccine; I’m anti-fake-vaccine.![](https://assets.gnews.org/wp-content/uploads/2021/12/6-1215-.jpg)我不反疫苗，我反的是假疫苗。
+* * *
 
+*素材采编：北极*
 
-**编辑/发稿：小鹿**
+*编辑：文顺*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-2.png)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
-
+*发布：Ranting*
 
  
 
