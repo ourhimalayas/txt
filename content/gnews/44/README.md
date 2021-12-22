@@ -2,23 +2,32 @@
 ---
 
 
-## 辉瑞以67亿美元收购了研究心血管疾病的生物制药公司Arena
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1777614/)
+## 2021/12/20 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1777686/)
 
-翻译：zzballack
-上传：无明逆流
+1. 12月19日，中共官方通报北京市通州区出现一例新冠确诊病例后，要求全镇进行核酸检测。
+2. 12月18日晚，陕西西安上分八里村！因为爆发大量出血热病例，大批交警和防护服人员出现在街头。
+3. 12月18日，湖北一高速公路桥面垮塌，致3人死亡4人受伤。
+4. 12月16日，广东潮州一男子当街持刀砍伤5人。
+5. 12月18日，江西乐平。一嫌犯手持斧头逃跑时被警察开枪制服。
+6. 上访人员在山西运城河津市莲池社区居委会门口 ，浇汽油自焚！
+7. 近日，山西80多岁老人烧柴取暖被封炕封烟囱，当地政府并对其子女罚款2000元。
+8. 现今中共国充满讽刺的场景，离婚登记室人流不息，结婚登记室无人问津。
+9. 12月17日，江苏宿迁。小男孩在家中玩耍时突然昏厥倒地抽搐。
+10. 12月18日，安徽蒙城发生一起车祸致6人遇难，包工头一家5口不幸身亡。
+11. 12月16日，广西玉林市博白县发生惨烈车祸。小汽车超车失败，被压在了混凝土车和半挂车之中。
 
-据《国家脉动》（The National Pulse）12月20日报道，辉瑞公司日前以67亿美元收购了Arena制药公司（Arena Pharmaceuticals）。
 
-总部位于美国犹他州的Arena公司部分专注于心血管和炎症药物的研发，但是大多数主流媒体机构的报道都集中在Arena的肠道疾病治疗上，而没有提及该公司的心血管研究。Arena官网上的一篇文章称，该公司正在“扩大其研究急性心力衰竭（Acute heart failure）和微血管阻塞（Microvascular obstruction）等心血管疾病的能力”。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1133.png)图片来源：原新闻
-该公司的Crunchbase页面也宣称他们专注于心血管和炎症性疾病的治疗。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1134.png)图片来源：原新闻
-另外，Arena公司现在还与联合治疗公司（United Therapeutics Corporation）有合作关系，后者的研究重点是肺动脉高血压。巧合的是，新冠患者的症状之一就是肺动脉高压，而新冠疫苗容易引发心血管疾病，比如心肌炎，特别是在年轻男性当中。辉瑞的此项收购肯定会给其带来比企业媒体所吹捧的肠道疾病治疗更多的回报。
+* * *
 
-辉瑞通过新冠疫苗赚得盆满钵满，其高管甚至因此登上《福布斯》杂志的全球十亿富翁榜。但是他们的贪婪不止于此，料到新冠疫苗大范围推广后，寻求心脏和血管疾病治疗的人会越来越多，这笔收购就是为此做准备，准备再发一笔横财。不得不说，辉瑞及其实际掌控人的算盘打得很精，也足够邪恶。但世人不会任其为非作歹，必将绳之以法。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-新闻来源：[Pfizer is Buying a Cardiovascular Biopharma Company for $6.7Bn.](https://thenationalpulse.com/news/pfizer-is-buying-a-cardiovascular-biopharma-company-for-6-7bn/)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
