@@ -2,44 +2,20 @@
 ---
 
 
-## 伊维菌素救了非洲,中共对改变人类寿命的青蒿素秘不示人
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1780046/)
+## 接种了疫苗的犹大圣徒乐队吉他手因主动脉瘤险些丧命舞台
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1780225/)
 
-**郭文贵先生：**说到这儿我要跟你讲伊维菌素，你看看伊维菌素这个神药，最近这些天我让战友找了很多伊维菌素的根基出来。它是救了整个非洲。我去过那里非洲，你们没去过。你到非洲有河盲症的地方你看到真到了人间的地狱呀！一个村子里有将近三分之一的人眼睛是看不见的，非常强壮，都是拿着棍戳戳的。你知道那个非洲的地方喝的那个脏水真的是太脏了！吃东西也不洗，疟疾，还有这个河盲症，瞎的，都是直接就是瞎了。伊维菌素五粒就让他把眼睛睁开。
+#### 翻译/撰稿：zzballack
 
-你看世界上最贪婪的辉瑞，还有中国的国药这些制药厂，你想想人家美国这个制药厂，叫这个联邦制药，叫什么邦制药，竟然制造了伊维菌素，是免费给非洲人的。我到那儿去我是打了疫苗的。我也害怕你知道吗？而且就有人当时就拉着肚子拉到不行，伊维菌素是日本人一个农民在日本的土地上，就靠自己一个农村里边相信人，大自然给了人类所有需要的力量和医药和解决问题的办法。就这么一个日本人，几十年干了一件事，研究了伊维菌素，现在日本的英雄中的英雄，而且日本国家全力支持，最后跟美国合作把它分子化，把它医药化，把它变成能救人，最后是免费救人。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-3-7.jpg)图片来源：纽约邮报
+据《网关专家》（Gateway Pundit）12月21日报道，重金属乐队犹大圣徒（Judas Priest）今年9月26日在美国肯塔基州的刘易斯维尔市（Louisville）参加一年一度的Louder Than Life 摇滚音乐节时，其首席吉他手、现年41岁的英国音乐家李奇·福克纳 (Richie Faulkner) 在表演途中突然晕倒，患上主动脉瘤（aortic aneurysm ）的他险些死在舞台上。但是这事没有获得媒体的太多关注。
 
-你告诉我共产党有一个这事儿它干过吗？从共产党的历史上你找一件这事儿。同样是屠呦呦，在中国没人问津，获完诺贝尔奖以后没人搭理她。中国政府把青蒿素免费给过哪个国家？他让青蒿素在人类治过多少人？我告诉你青蒿素比伊维菌素还要牛万倍，亿倍！它绝对可以百分之百消除癌症，不是百分之九十九。
+读者麦克（Mike）在写给《网关专家》的一封信中谈及了此事。麦克说：“我一直在看你们关于新冠疫苗导致的不良反应和死亡的报道。音乐界与疫苗行业有一个肮脏的小秘密。李奇·福克纳当时差点死在舞台上。他做了心脏重建手术，现在他的胸部有4个金属瓣膜（metal valves）。李奇是一个健康状况一流的人，没有吸毒史，但为了和乐队一起巡演，为了能够在Live Nation的场地演出，他不得不接种新冠疫苗。没有人会承认疫苗是（他差点死亡的）原因，因为没有证据可以证明，但我们这些对疫苗持怀疑态度的人有自己的理论。鉴于音乐和娱乐行业的极左倾向，我们不得不把自己的想法保留下来，因为怕被封杀和拉黑。我不知道你们能用这些信息做什么，但我想你可能有兴趣听听。”
 
-如果你们相信我，青蒿素会让所有现在躺在病床上的人真的能站起来、真的能活下来，真的没癌症。我就有些话现在不能告诉你，七哥说话是很保守的在这事儿上，我是很小心的。人家给我讲的话很多我是在这儿不能说的，就是咱们告诉这是解药的。
+《纽约邮报》（New York Post）今年10月6日曾报道过此事，文章说犹大圣徒乐队的吉他手李奇·福克纳在经历了主动脉瘤后几乎死在了舞台上，这通常是一种致命的心脏疾病，当动脉剖开或破裂时就很危险。李奇事后回忆了当时的濒死经历：“当我回看音乐节的录像时，我可以从我的脸上看到我在演奏时的困惑和痛苦，当时我的主动脉破裂，血液开始溢出胸腔。我当时有医生所说的主动脉瘤和完全性主动脉夹层（complete aortic dissection）。我的外科医生告诉我说我很幸运，因为有这种情况的人通常不会活着到医院。”
 
-当时共产党说郭文贵讲出青蒿素这仨字儿的时候，是解药的时候，这郭文贵对我们的威胁就增加了无限倍。为什么？当时所谓国安委的说：青蒿素会改变人类的寿命。这是共产党知道能救人，它就不告诉你能救人。和日本人说能明知道救人给美国人开放，我让你去救人，这是完全不同的政府啊！
-
-字幕来源：[2021年12月15日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1762636/)；
-
-视频制作：小满；
-
-视频上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+新闻来源：[Ignored by Media: Vaccinated Judas Priest Guitarist Collapses on Stage, Suffers Aortic Aneurysm and Nearly Dies (VIDEO)](https://www.thegatewaypundit.com/2021/12/ignored-media-vaccinated-judas-priest-guitarist-collapses-stage-suffers-aortic-aneurysm-nearly-dies-video/)
 
  
 
