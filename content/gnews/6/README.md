@@ -2,55 +2,20 @@
 ---
 
 
-## 全球和澳洲疫情疫苗统计信息更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1780208/)
+## 接种了疫苗的犹大圣徒乐队吉他手因主动脉瘤险些丧命舞台
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1780225/)
 
-**（2021年 12月22日）**
+#### 翻译/撰稿：zzballack
 
-**整理：枳实**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-69.png)图片：雅典娜农场设计组 精灵蓝
-一，全球疫情基本数据
-感染总数：2.76亿（日新增 76.9万）
-死亡总数：537万（日新增 7511人）
-每万人感染人数：350.7774人
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-3-7.jpg)图片来源：纽约邮报
+据《网关专家》（Gateway Pundit）12月21日报道，重金属乐队犹大圣徒（Judas Priest）今年9月26日在美国肯塔基州的刘易斯维尔市（Louisville）参加一年一度的Louder Than Life 摇滚音乐节时，其首席吉他手、现年41岁的英国音乐家李奇·福克纳 (Richie Faulkner) 在表演途中突然晕倒，患上主动脉瘤（aortic aneurysm ）的他险些死在舞台上。但是这事没有获得媒体的太多关注。
 
-二，全球“疫苗”毒针统计数据
-“疫苗”毒针注射总数：87.8亿
-完全“接种”：36.3亿人
-完全“接种”百分比：46.6%
+读者麦克（Mike）在写给《网关专家》的一封信中谈及了此事。麦克说：“我一直在看你们关于新冠疫苗导致的不良反应和死亡的报道。音乐界与疫苗行业有一个肮脏的小秘密。李奇·福克纳当时差点死在舞台上。他做了心脏重建手术，现在他的胸部有4个金属瓣膜（metal valves）。李奇是一个健康状况一流的人，没有吸毒史，但为了和乐队一起巡演，为了能够在Live Nation的场地演出，他不得不接种新冠疫苗。没有人会承认疫苗是（他差点死亡的）原因，因为没有证据可以证明，但我们这些对疫苗持怀疑态度的人有自己的理论。鉴于音乐和娱乐行业的极左倾向，我们不得不把自己的想法保留下来，因为怕被封杀和拉黑。我不知道你们能用这些信息做什么，但我想你可能有兴趣听听。”
 
-三，澳洲疫情和“疫苗”数据
-感染总数：259，207（今日新增 4575人）
-死亡总数：2146人
-每万人感染人数：102.6457人
-“疫苗”毒针注射总数：41,667,960
-完全“接种”：1960万人
-完全“接种”百分比：76.4%
-16岁以上人口接种至少一剂疫苗的比例：93.9%
-16岁以上人口接种至少两剂疫苗的比例：90.6%
+《纽约邮报》（New York Post）今年10月6日曾报道过此事，文章说犹大圣徒乐队的吉他手李奇·福克纳在经历了主动脉瘤后几乎死在了舞台上，这通常是一种致命的心脏疾病，当动脉剖开或破裂时就很危险。李奇事后回忆了当时的濒死经历：“当我回看音乐节的录像时，我可以从我的脸上看到我在演奏时的困惑和痛苦，当时我的主动脉破裂，血液开始溢出胸腔。我当时有医生所说的主动脉瘤和完全性主动脉夹层（complete aortic dissection）。我的外科医生告诉我说我很幸运，因为有这种情况的人通常不会活着到医院。”
 
-四，突发新闻
-西澳州长马克·麦高恩 (Mark McGowan) 宣布，西澳成为澳大利亚第一个强制施行第三剂加强针的州。
-
-该强制令将涵盖所有受原有强制令影响的行业，包括老年护理、卫生、检疫人员、采矿和基本工人等行业。州长表示，他还希望最终将疫苗强制范围扩大到任何想参加体育赛事和音乐会等活动的人。他今天对记者说：“根据这项强制令，工人现在需要在符合条件的一个月内接种第三剂。”
-
-人们目前可以在第二针五个月后接受加强针注射，但澳大利亚免疫技术咨询小组将很快决定该时间间隔是否会改变。州长表示，他希望尽可能缩短这个时间间隔。
-
-参考链接：
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-[First state to mandate booster shot](https://www.news.com.au/national/western-australia/covid19-vaccine-mandate-in-wa-now-includes-a-third-dose/news-story/752c67452adc76f7242228edb500a12e)
-
-发布：去中心化Math
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻来源：[Ignored by Media: Vaccinated Judas Priest Guitarist Collapses on Stage, Suffers Aortic Aneurysm and Nearly Dies (VIDEO)](https://www.thegatewaypundit.com/2021/12/ignored-media-vaccinated-judas-priest-guitarist-collapses-stage-suffers-aortic-aneurysm-nearly-dies-video/)
 
  
 
