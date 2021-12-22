@@ -2,38 +2,37 @@
 ---
 
 
-## 美媒揭露中共利用网军操控社交平台舆论
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1781041/)
+## 12/22每日播报｜美佛罗里达州官员采取行动脱钩养老基金与中共的联系
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1781059/)
 
-作者：纽约香草山健身部 – Ivy001
+**By:[秘翻新闻](https://gtv.org/broadcast/watch/61b85c7e56f4921401b77b8b)**
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**2021-12-22**
 
-12月20日，据美国媒体披露的一份文件显示，中共上海市公安局浦东分局曾于今年 5 月发布了一封名为“舆论技术服务项目”的招标书。该招标书中明确，供应商需要随时提供包括 Facebook 和 Twitter在内的境外社交媒体平台帐号，同时，供应商需在相关境外平台上发布中共政府指定的素材并提高相关帖子的浏览量。该招标文件中还列明了部分服务的费用，包括“境外社交平台帐号伪装及维修”费每月五千元人民币，制作原创视频每月经费四万元人民币等项目费用。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/4-40.jpg)
-另外，该文件还明确展示了中共利用私人公司进行对外宣传的过程，包括按照中共的规定制作内容并在海外社交媒体平台上发表，再通过各式手段吸引更多关注，最终达到扩大其政治宣传并制造和操纵舆论的目的。
+据《华盛顿邮报》12月21日报道，佛罗里达州州长罗恩·德桑蒂斯（Ron DeSantis）及其政府的一些高级官员在12月20日采取了行动，从大量投资于中共国的私人资产管理公司贝莱德手中夺回了该州巨大的养老金投资组合的控制权。
 
-据报道提及，这些网络水军主要负责推高亲中共贴文的流量，同时点赞及转发中共政府的宣传贴文，他们还需围攻批评中共政府的账号。
+在该州行政委员会的一次会议上，佛罗里达州首席财务官吉米·帕特罗尼斯 (Jimmy Patronis) 和司法部长阿什利·穆迪 (Ashley Moody) 与共和党人德桑蒂斯 (DeSantis) 一起提出了一项“撤销已经赋予外部基金经理的所有代理投票权”的动议。
 
-媒体指出，中共政府对国际社交媒体网络平台的操纵手段越来越成熟且方法多样，美国政府及世界都应更加警惕中共无孔不入的外宣手段。
+州政府官员说，他们需要确保基金经理 “完全按照州政府基金的财务利益行事”。 报道还称，贝莱德首席执行官拉里·芬克 （Larry Fink）与中共领导人之间的联系也引起了左翼亿万富翁乔治·索罗斯 （George Soros）的批评。
 
-参考链接: 
-1) . [紐時：上海公安招標文件揭中國網軍如何操縱 Facebook、Twitter 輿論](https://www.gettr.com/post/pk9lpr2b27)
-2) . [购买影响力：中国如何操纵Facebook和Twitter](https://www.nytimes.com/zh-hans/interactive/2021/12/20/technology/china-facebook-twitter-influence-manipulation-chinese.html)
+贝莱德将客户的钱投资于中共国的公司，而且还获得了一份在中共国销售共同基金的合同。根据公开报道，该企业已经赚取了约10亿美元。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+贝莱德的中共国A类机会基金，自2018年成立以来，回报率超过32%，根据其最近的报告，该基金有超过4740万美元。
 
-总编：Jack Li文阳
-编辑：Kathy文艺
-校正/发稿：Fei797
+消费者研究中心执行主任威尔·希尔德说：“贝莱德一直在利用他们的代理投票权来阻碍美国公司, 在我们最不能承受的时候导致美国人的负担加重，他们利用美国的投资资金向中共示好，背叛了我们的国家，使美国的养老金处于危险之中。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+” 德桑蒂斯先生在一份声明中表示，希望SBA调查目前正在进行的投资。
+
+贝莱德拒绝了发表评论的请求。
+
+秘翻新闻主编Grace 编译报道.
+
+发布：文小明
+
+* * *
+
+**By 【秘密翻译组-即时新闻播报组】**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/招募-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

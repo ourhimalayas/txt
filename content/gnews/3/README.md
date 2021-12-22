@@ -2,49 +2,31 @@
 ---
 
 
-## 灭共者之郭先生直播厅：反对假疫苗
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1781611/)
+## 七哥小时候照片的故事（2021-12-19 摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1781679/)
 
-**出品：纽约香草山设计部**
+文编：Hima
+听写：叮叮
+视频：七哥
 
+来源：郭先生2021-12-19直播09:41:50 摘录
 
+那时候还真有照片，但是我真的我的照片特别是中纪委的拿着我儿时的照片，让我们家人去看的时候，我们家人都傻了。他说我们从来没见过这照片。我最早的照片大概是六七岁吧，滑冰的照片，穿着夹克长头发了已经是啊，但是鼻涕就是这个东北老流鼻涕嘛，就是鼻子下面都是那个鼻痕，旁边擦的那个夹克上就那个都是发亮的都发亮了啊，照的照片，滑冰的照片。后来还有，后来再到九岁十时就很多很多照片啊。就我自己特别臭美，就让照相馆，人家那照相都带着那个海鸥相机到处给照相的，我就给人家照。然后有些人还免费给我照，到十二三岁时候，我的照片已经是在老家，回到老家，还有当时在哈尔滨，还有在东北。就很多照相馆就把我照片就放到他们那个照相馆墙上，当成模特使用啊。还有我拎着录音机啊，戴着蛤蟆镜啊，然后呢当时还抱着狗啊，当时都有。但是我跟你七嫂，我跟你们在2017年就说过。我们俩有一次吵架，我们俩很多照片，你七嫂把照片几乎给撕光了。这就是一个14岁的女孩干的事儿。就当时14岁的七嫂干了一件让我到今天想起来就生气的事，就她生气，跟我赌气。你说你撕照片干嘛啊，一堆的照片她全给我撕了。你那时候不是都能找到底板的。但是中纪委这帮人很厉害，办案专案组给我找到了很多照片啊，我相信会有很多会出来的。这是第一个问题。第二个问题就是你到了这个大使馆以后，你发现七哥啊不掖着不藏着，啥都是真的，好像以前我们说的都是假的，你来之前都是假的是吧。你要把这话说明白。很重要啊，很重要啊，你以身试真假这件事儿多重要啊Rachel啊，你要认真讲讲到这个大使馆以后经历了什么事让你感觉到，你以身试七哥的结果是七哥都是真的。我跟你讲的是真话，这是肯定的。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
+**关注我们**
 
+Discord 账号
 
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
+Gettr 账号
 
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-image1.jpg)Only 1% chance of dying if infected by the coronavirus, while 96% chance of getting cancers or die [in a few years] if COVID-vaccinated. Why would anyone still go for the so-called “vaccine”? 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-image0-1.jpg)得了冠状病毒不一定死，只有1%的机会死；打疫苗会有96%的机会死和得癌症。那你为什么要打疫苗呢？![](https://assets.gnews.org/wp-content/uploads/2021/12/3-20211220-08.jpg)
-The vast majority of people who have taken the COVID-vaccine jabs did so due to ignorance, petty benefits, plus the “Scientism” way of logical and habitual thinking, of which all have been stealthily exploited by the CCP. Because the CCP knew that the West would not say NO to the vaccine. That is exactly why the CCP is so evil.![](https://assets.gnews.org/wp-content/uploads/2021/12/4-20211220-07.jpg)绝大多数打疫苗的就是无知，受小利的影响，还有就是科学主义的逻辑思维和习惯性思维的结果，背后都是共产党在利用：因为它知道西方国家是不会拒绝疫苗的！这就是中共邪恶的地方。![](https://assets.gnews.org/wp-content/uploads/2021/12/5-1215-.jpg)
-I’m not anti-vaccine; I’m anti-fake-vaccine.![](https://assets.gnews.org/wp-content/uploads/2021/12/6-1215-.jpg)我不反疫苗，我反的是假疫苗。
-
-
-**编辑/发稿：小鹿**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-2.png)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
-
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

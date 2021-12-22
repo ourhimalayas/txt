@@ -2,39 +2,49 @@
 ---
 
 
-## DC每日热点1222
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1781580/)
+## 灭共者之郭先生直播厅：反对假疫苗
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1781611/)
 
-编辑：楚门门
-![](https://assets.gnews.org/wp-content/uploads/2021/12/569C2A2F-CDEB-4667-B79C-7CCB860ADA6B-scaled.jpeg)
-道琼斯指数 35579.21 ▲0.24%
-纳斯达克指数 15383.08 ▲0.27%
-WTI纽约原油CFD 71.581 ▲0.65%
-布伦特原油CFD 74.357 ▲0.51%
-标普50指数 2,953.70 ▼41.49%
-美元兑人民币 1USD=6.371 RMB
-美元兑港币 1USD=7.800 HKD
-国际黄金 1792.14 美元/盎司
-全球CCP病毒感染人数 276,759,347例
+**出品：纽约香草山设计部**
 
-1、哈佛教授因隐瞒与中共国关系被定罪后, 北京为其国际科技交流计划辩护
-2、美国著名军医院据信初步研制出有效对付所有新冠病毒的疫苗
-3、美国务卿与立陶宛总理通话 商讨联合反击中共国外交经济胁迫
-4、拜登宣布打击奥密克戎新冠病例激增的新措施：派遣联邦医护人员前往人手短缺的医院，在全国各地提前预置医疗设备的国家储备，并向美国人提供5亿只新冠检测试剂盒
-5、美国国际宗教自由委员会强烈谴责中共国对其成员追加制裁
-6、新冠疫情反弹 NHL球员将缺席北京冬奥
-7、美国前驻华大使组建咨询集团指导投资中共国
-8、新加坡卫生部表示，将限缩“疫苗接种者旅游通道”入境旅客的人数
-9、香港特首换届之际 李克强肯定林郑月娥政绩 又促香港助中共国建发展新格局
-10、俄乌边界局势紧张 普京首度暗示可能爆发冲突
-11、伊朗革命卫队发射弹道导弹与巡航导弹
-12、美国证券交易委员会要求中企加强风险披露
-13、德国新政府上台后 中德领导人通话
-14、美前印太司令：仍担忧6年内出现台湾突发事态
-15、 前美海军人员向中共国出售军备 被判监两年半
-16、涉嫌非法向中共国出口导弹 10以色列人被起诉
-17、特鲁多称中共为“重大挑战” 对华政策不明朗
-18、韩经济团体发布最新调查结果显示，超八成在华韩企认为， 投资环境比10年前恶化并遭差别待遇
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
+
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-image1.jpg)Only 1% chance of dying if infected by the coronavirus, while 96% chance of getting cancers or die [in a few years] if COVID-vaccinated. Why would anyone still go for the so-called “vaccine”? 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2-image0-1.jpg)得了冠状病毒不一定死，只有1%的机会死；打疫苗会有96%的机会死和得癌症。那你为什么要打疫苗呢？![](https://assets.gnews.org/wp-content/uploads/2021/12/3-20211220-08.jpg)
+The vast majority of people who have taken the COVID-vaccine jabs did so due to ignorance, petty benefits, plus the “Scientism” way of logical and habitual thinking, of which all have been stealthily exploited by the CCP. Because the CCP knew that the West would not say NO to the vaccine. That is exactly why the CCP is so evil.![](https://assets.gnews.org/wp-content/uploads/2021/12/4-20211220-07.jpg)绝大多数打疫苗的就是无知，受小利的影响，还有就是科学主义的逻辑思维和习惯性思维的结果，背后都是共产党在利用：因为它知道西方国家是不会拒绝疫苗的！这就是中共邪恶的地方。![](https://assets.gnews.org/wp-content/uploads/2021/12/5-1215-.jpg)
+I’m not anti-vaccine; I’m anti-fake-vaccine.![](https://assets.gnews.org/wp-content/uploads/2021/12/6-1215-.jpg)我不反疫苗，我反的是假疫苗。
+
+
+**编辑/发稿：小鹿**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-2.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
 
  
 

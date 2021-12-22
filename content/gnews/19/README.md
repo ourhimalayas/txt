@@ -2,24 +2,18 @@
 ---
 
 
-## 加拿大魁省疫情再次刷新记录
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1781312/)
+## 【文贵先生大直播PPT】中共媒体对爆料革命的超限战
+` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1781346/)
 
-采编：文明  编译撰稿：文明(添草灭共)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/04-image02.jpeg)
-[图片来源](https://cultmtl.com/2021/12/quebec-may-go-back-into-lockdown-curfew-restaurant-closure-after-christmas-sources/)
+撰稿：见证人-文剑（伊甸）
+指导：北评（英喜）
+美工：青山（英喜）
 
-据加拿大【CTV新闻】12月21日报道，魁北克省“新冠病毒”疫情持续爆发，当日新增感染5043人，刷新了前一天4571人的最高记录。
+【2021年12月22日文贵先生大直播PPT：中共媒体对爆料革命的超限战】
+![](https://assets.gnews.org/wp-content/uploads/2021/12/31-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/32-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/33-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/34-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/35-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/36-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/37-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/38-2.jpg)
+* * *
 
-报道称，自疫情开始以来魁省感染者累计约50万人。目前的活动病例有近3万人，其中住院治疗415人。重症监护室88人。在新增感染病例中，接种过两剂及以上疫苗的患者仍占据多数，而仅有1219人未接种或只接种了一次疫苗。
-
-对此，卫生部长杜贝表示：目前的疫情很严重，这是一场与“奥密克戎”变种病毒的战争。同时魁省政府也在当天紧急宣布关闭所有学校，酒吧，赌场、电影院及健身房等公共场所，远程办公再次成为强制性规定。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：苦尽甜来 (文來）
-
-[原文链接](https://montreal.ctvnews.ca/5-043-new-covid-19-cases-as-quebec-breaks-infection-record-again-1.5715320)
+发稿：云起时
 
  
 
