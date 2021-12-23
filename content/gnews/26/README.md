@@ -2,20 +2,18 @@
 ---
 
 
-## FDA严重拖长病毒疫苗数据开放时间
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1782775/)
+## 盖茨、福奇和谭德赛在法庭文件中被指控犯有种族灭绝
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1782784/)
 
-撰稿： 纽约香草山翻译部  defiance
+撰稿：香草山农场教育部-熊嘟嘟
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-1.png)
+在12月6日提交给国际刑事法院的一份长达46页的令人震惊的法律文件中，一位勇敢的律师和七名申请人指控安东尼·福奇、彼得·达扎克、梅琳达·盖茨、威廉·盖茨三世和其他十二人多次违反纽伦堡法典。其中包括《罗马规约》定义的各种危害人类罪和战争罪。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1223.png)
+除了四名主要人物外，还有十二人被提名，包括辉瑞、阿斯利康、Moderna、强生等领先疫苗公司的首席执行官，还有世界卫生组织总干事谭德塞，世界经济论坛主席克劳斯·施瓦布，以及英国首相鲍里斯·约翰逊等对英国卫生负责的领导人。
 
-据儿童健康守护组织12月17日报道，公共卫生和医疗专业人员透明度组织PHMPT近日对FDA发起了诉讼，要求FDA公布紧急批准辉瑞公司科米纳蒂疫苗的相关文件和数据。但据该组织指出，FDA严重拖长了资料开放所需的时间，并且为此项工作配员不足。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1222.png)
-按每人平均每小时50页的超低审核速度，要审查FDA估计的几十万页材料，该机构也仅需要19名审核员全职工作12周，就能完成所有查验资料和文档制作工作，而不是一家联邦地区法院所评估的75年。
+但对于该事件是否能有进一步行动，多位盖特网友表示怀疑，有评论称“我们需要看到逮捕令”。
 
-辉瑞有大约18000名员工，19个人只是零头。在口头辩论的前一天，FDA发布了14份文件，最长2030页。PHMPT要求辉瑞在108天内公布所有文件。
-
-
-
-新闻链接：[FDA Should Need Only ‘12 Weeks’ to Release Pfizer Data, Not 75 Years, Plaintiff Calculates](https://childrenshealthdefense.org/defender/fda-pfizer-comirnaty-vaccine-data-twelve-weeks/)
+新闻链接：[盖茨、福奇和达扎克在法庭文件中被指控犯有种族灭绝罪](https://gettr.com/post/pk9n7722c5)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-5.png)
 

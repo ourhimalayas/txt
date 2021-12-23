@@ -2,18 +2,18 @@
 ---
 
 
-## 樱花灭共诗——送门殿友西出
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1782857/)
+## 速报 岸田首相说对于Omicron必须保持谨慎行事
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1782866/)
 
-#### 作者：东京樱花团/小小杜
-![](https://assets.gnews.org/wp-content/uploads/2021/07/%E5%9B%BE%E7%89%871-7-scaled.jpg)
-与君分表里，长路望无垠。
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2-71.png)图片来源
+据(TBS新闻)网站23日报道，今天上午，日本首相岸田文雄在东京的讲演会上说，“日本国内感染新病毒Omicron的人数正在增加。然而，信息零散，在我们对Omicron有更清晰的了解之前，我们将采取谨慎的态度，必须加快遏制病毒扩散的速度”。
 
-曲重抚三叠，情深寄一樽。
+同时就有关昨天（22日）日本国内确认了第一例市区内感染Omicron病例的事态，岸田首相强调，日本正在加快努力，利用紧急实施的海滨对策提供的时间余地，进一步加快加强一系列预防、检测和早期治疗的工作。
 
-接天流水浊，悬漠日头昏。
+信息源：
 
-送别复相问，春风度玉门。
+[【速報】岸田首相 オミクロン株で「知見はっきりするまで慎重な対応を」](https://news.yahoo.co.jp/articles/510eb01ff76155b51f3eeb24eb8659136c48f1bb#:~:text=%E3)
 
 *校对：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*

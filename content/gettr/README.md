@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/23/2021 10:43 AM (UTC)`
+
+【The Truth Behind Mr. Miles Guo's Interview with #HBOVICE 】<br/><br/>HBO defamed Mr. Miles Guo to deceive investors, and the misleading editing only kept Mr. Miles Guo’s video of accusing the reporter as a liar in order to damage Miles Guo’s image. Fight back with full video recoveries of the raw interview<br/><br/>【反击 #HBOVICE 采访 #郭文贵 先生】<br/><br/>HBO诋毁郭先生欺骗投资者，混乱剪辑只留下郭先生不断说对方撒谎的片段，故意贬低郭先生形象，我们还原当时的原始视频进行反击
+![img](https://media.gettr.com/group4/getter/2021/12/23/10/44161a46-9a14-69a2-6b8f-4d5f06b6c699/out.jpg)
+
+---
+
 `@miles 12/23/2021 10:31 AM (UTC)`
 
 【The Truth Behind Mr. Miles Guo's Interview with #HBOVICE 】<br/><br/>HBO used Teng Biao to attack Mr. Miles Guo, and the misleading editing only kept Mr. Miles Guo’s video of a potential lawsuit against the reporter. Fight back with full video recoveries of the raw interview: Teng Biao vilified Mr. Miles Guo first and Miles Guo never said Teng Biao is a rapist （Part 2)<br/><br/>【反击 #HBOVICE 采访 #郭文贵 先生】<br/><br/>HBO拿滕彪攻击郭先生，混乱剪辑只留下郭先生说要起诉女记者的片段。还原当时的原始采访进行反击，是滕彪诋毁郭先生在前，而且郭先生从来没有说过滕彪是强奸犯 （第二段）
@@ -150,13 +157,6 @@ The Biden administration all lied about Covid vaccine mandate!
 `@mikepompeo 12/21/2021 4:29 PM (UTC)`
 
 The CCP is using social media — American companies — to advance its communist agenda. Big Tech surely knows this. We must protect our Republic. https://www.nytimes.com/interactive/2021/12/20/technology/china-facebook-twitter-influence-manipulation.html?unlocked_article_code=AAAAAAAAAAAAAAAACEIPuonUyYiZ_tU1Gw5CRWySB4B991rf37-VmPsgi3T-Ki-RTjlTiO8VAo6JvknEbqdpYNwwmiiERcNdPaVqRfp8yvJSOUdgDgyhpJqchZAMPyQyr8SzQmYyldrrbIwPzAXLPCO_Ofstg_q-uQ6LKjG7HfybhWsnLQsypZJmd0Wu2nIJ2quUF-BqiYV1j-NxBch-RTgCMCPe6KP4Gl4pboX9GxLW7wQ0W-tfUSiC3oLPruJdL3gBTA7OX3h94m4j6NhDO9txPa73LR8oecqWkqxGQyUzb9_vX8ttMtCSw7Z6srfNqgiOyN60wpg0FKZVtbDHswWqJbKsuoL1vaoViK0kSAwRrm8&referringSour
-
----
-
-`@miles 12/21/2021 10:45 PM (UTC)`
-
-12月21日：😱😱😱😠😠😠【Vicar’s wife says since the roll-out of Covid injections there ‘s been funeral after funeral,after funeral. It’s tragic<br/>牧师的妻子说，自从开始接种新冠疫苗以来， 葬礼一个接一个。真的很悲剧。】
-![img](https://media.gettr.com/group19/getter/2021/12/21/22/837b9a39-ced5-b90a-0a46-b0c8f0a689c8/out.jpg)
 
 ---
 
