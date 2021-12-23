@@ -2,35 +2,51 @@
 ---
 
 
-## 中国西安市因中共病毒扩散 23日开始封城
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1783579/)
+## 腾讯和阿里巴巴跌出全球市值前十名
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1783600/)
 
-撰稿：东京樱花团丨百花李香
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-73.png)
-[*图片来源*](https://news.yahoo.co.jp/articles/be9d2a1adfde47e63c8215dbec27b551b5ac2464/images/000)
+#### 【雅典娜观察】与您一起洞察世界
 
-中国西安市因新中共病毒（新冠病毒）的扩散，于23日凌晨开始封城。大约1300万民众被命令留在家中，每户人家只允许一个人每两天一次外出购买生活品。迫不得已要出城的话，只有在获得当局许可的情况下，才允许到市外去。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/alibabas-nft-marketplace-allows-content-creators-to-copyright-work-via-blockchain-ip-service-report.jpg)
 
-长途汽车站已经被关闭，在通往城市的高速公路上设立了检查站。许多往返于西安机场的航班也被取消了。
 
-非必要的商业场所已被关闭，公务员被命令在家工作。目前尚不清楚这些限制将持续多长时间。
 
-《环球时报》报道说，截至上周，该市已经关闭了酒吧、健身房和剧院等室内设施。
+图片来源：news.bitcoin.com
 
-西安自12月9日以来，出现了143例中共病毒（新冠病毒）感染者。
 
-中共媒体还报道说，西安市出现了“死亡率很高的出血热病例”，形成了新病毒的“双线流行”。在中国北方出血热是一种“常见的”季节性疾病，患者集中在郊区。
+#### 编译 ：小红帽
 
-中共承认，新病毒仍然是冬奥会的“最大挑战”。迄今为止，有超过11.3万人被感染，4849人死亡。（被认为严重隐瞒真实数据）
+最新数据显示，腾讯控股和阿里巴巴集团控股已跌出全球市值前十名的公司排名。
 
-信息来源：
+根据QUICK-FactSet数据库显示，腾讯在2020年底排名第七，阿里巴巴排名第九。今年二月，腾讯在其市值暴跌40%之前，曾达到第六名的排名。截至周五，腾讯排在第十一位。
 
-[**中国****・****西安でロックダウン　新型ウイルスの感染が拡****大**](https://news.yahoo.co.jp/articles/be9d2a1adfde47e63c8215dbec27b551b5ac2464#:~:text=%E3%)
+美国科技巨头在这份新名单中占主导地位。苹果、微软和谷歌母公司Alphabet占据了前三名的位置。沙特阿美排名第四，其次是亚马逊公司、特斯拉和脸书运营商Meta。芯片设计师英伟达（Nvidia）排名第八，而沃伦·巴菲特（Warren Buffet）的伯克希尔·哈撒韦公司（Berkshire Hathaway）排名第九。
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 /*yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-1.jpg)
+这样一来，台湾中芯国际集成电路制造有限公司成为全球最有价值的亚洲公司，排名第十。
 
+由于对中国经济寄予厚望，上证综指在2007年创下历史新高。市值排名前十位的公司中有四家是中国公司，其中石油巨头中石油排名第一。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-36.jpg)图片来源：news.bitcoin.com
+
+
+全球金融危机之后，中国科技公司崛起。由于新的商业模式和进入一个庞大的市场，其市值不断膨胀。但中国政府对科技行业打压和与美国的紧张关系使这些财富产生了逆转。
+
+中国最大的网约车平台背后的公司滴滴出行（Didi Global）在首次亮相仅五个月后，就决定于12月3日从纽约证券交易所退市。中国政府加强了对海外上市公司的审查，因为担心外国监管机构会获取敏感数据。
+
+另一方面，美国拜登政府加强了对中国企业的压力。拜登政府周四宣布对无人机制造商大疆创新（DJI）和其他几家被指控参与侵犯人权或军事开发的中国实体实施制裁。
+
+这些举措实际上禁止了美国人投资这些公司，同时也对其他公司实施了贸易禁令。
+
+新闻来源：[Tencent and Alibaba vanish from world’s top 10 by market cap – Nikkei Asia](https://asia.nikkei.com/Business/Markets/Tencent-and-Alibaba-vanish-from-world-s-top-10-by-market-cap)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

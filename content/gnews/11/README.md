@@ -2,10 +2,10 @@
 ---
 
 
-## 里根研究所所长谈美国公司屈服于中共，拜登对中共立场软弱
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1783816/)
+## CCP大外宣猫女郎，谁派你来的？
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1784024/)
 
-12/20/2021 里根研究所所长罗杰·扎克海姆 (Roger Zakheim) 探讨了亚马逊配合中共宣传，美国公司屈服于中共，拜登放弃巴格拉姆空军基地的潜在危险，及其对中共的软弱立场
+杨贝贝（Isobel Yeung）——中国中央电视台主持人，现受雇于HBO VICE，从一开始就是中共大外宣。她最近一次 “任务”是被派去采访郭文贵先生。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

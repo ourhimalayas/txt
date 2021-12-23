@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/23/2021 3:52 PM (UTC)`
+
+12月23号：尊敬的战友们好！共产党内部清理官二代·富二代．的时代已经全面开始。北京的冬奥会面临着全球的挑战……即将成为灾难性的笑话……昨天播放the HBO的流氓采访……引起的世界各大媒体的重视，媒体必须遵循法律，抛弃傲慢……<br/>停止与独裁勾结……为了金钱失去良知……触碰法律红线……必须抛弃被共产党的金钱收买！西方媒体……革命时代……即将到来！
+![img](https://media.gettr.com/group16/getter/2021/12/23/15/0c5d51ba-06c2-c154-8916-67f1963520d8/out.jpg)
+
+---
+
 `@miles 12/23/2021 3:40 PM (UTC)`
 
 12/22/2021 Miles Guo: The CCP dominates the international media and has arranged 5 media outlets to interview Peng Shuai; how the CCP wields the power of the whole country to cover up the truth about the Peng Shuai incident is the same as how they fabricated Ma Rui’s rape case to frame me back then<br/><br/>12/22/2021 文贵直播: 中共在国际媒体界一手遮天，安排了5家媒体采访彭帅；中共举一国之力掩盖彭帅事件的真相与当年炮制马蕊强奸案来陷害文贵的手段如出一辙<br/>
@@ -147,13 +154,6 @@ The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO-VICE's Delibe
 
 The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO-VICE's Deliberate Lies After Deceptive Editing [Part-1]：<br/>‼️Isobel Yeung, the HBO-VICE's host of the interview - her background and connection with the CCP <br/><br/>【#HBO #VICE 采访郭文贵先生背后的真相——揭露HBO-VICE精心编织的谎言 Part-1】：<br/>‼️HBO--VICE采访郭先生的记者ISOBEL YEUNG的背景及其亲共证明<br/><br/>YouTube link of full REBUTTAL video  (may be blocked by YouTube‘s rogue rules): https://youtu.be/VTQ91werzk8<br/>GTV link of full REBUTTAL video  (EN and CN subtitles): https://gtv.org/video/id=61c3bb8900f9a119180832eb<br/>GETTR link of full REBUTTAL video  (EN and CN subtitles): https://gettr.com/streaming/pkexq84603
 ![img](https://media.gettr.com/group39/origin/2021/12/23/11/78fc3b41-30da-e57c-870d-f3d37f29fce5/out.jpg)
-
----
-
-`@miles 12/23/2021 11:30 AM (UTC)`
-
-【The Truth Behind Mr. Miles Guo's Interview with #HBOVICE 】<br/><br/>HBO asked how many lawsuits Mr. Miles Guo is involved in, and the out-of-context clips and misleading editing only kept Guo's video of the potential lawsuit against the reporter next. Fight back with full video recoveries of the raw interview to reveal the ugly face of HBO and its evil boss CCP<br/><br/>【反击 #HBOVICE 采访 #郭文贵 先生】<br/><br/>HBO询问郭先生有多少诉讼，混乱剪辑只留下郭先生说没准下一个官司就是与女记者的片段，我们还原当时的原始视频进行反击，以此揭露HBO的丑陋嘴脸和其背后势力中共的险恶用心
-![img](https://media.gettr.com/group10/getter/2021/12/23/11/841dde45-8a59-9dd5-9682-f418c69f630e/out.jpg)
 
 ---
 

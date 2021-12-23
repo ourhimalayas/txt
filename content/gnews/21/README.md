@@ -2,21 +2,44 @@
 ---
 
 
-## 现民主已为集体优先主义 独裁化个人主义 这是人类的重大挑战
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1783678/)
+## 【Michael.Tonny专栏】接种中共病毒毒疫苗只会加重病情 带来更多死亡
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1783810/)
 
-文编：东京樱花团/樱花传媒
+作者： 加拿大温哥华扬帆农场  [Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
-视频:东京樱花团/中文小视频组
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-12月15日，郭文贵先生在GTV大直播指出：
+中共病毒毒疫苗（Covid-19 Vaccine）既不能预防病毒，也不能减少感染后的住院，更不能减少死亡。苏格兰公共卫生部门（[Public Health Scotland](https://publichealthscotland.scot/)）最新发表的《[Public Health Scotland COVID-19 & Winter Statistical Report-As at 20 December 2021](https://publichealthscotland.scot/media/10930/21-12-22-covid19-winter_publication_report.pdf)》中列出的11月20日到12月17日的苏格兰感染中共病毒确诊人数、感染中共病毒后住院人数及与中共病毒相关的死亡人数再次印证，注射中共病毒毒疫苗，只会带来更多感染、更多住院和更多死亡。
 
-任何国家政府不生产一分钱财富，都是百姓的吸血虫，利益优先级是按官员大小排序，关键时刻牺牲掉的都是百姓的利益。最可怕的是政府绝对的权力，现在世界局势就是西方所谓集体优先主义和独裁化的家族、个人优先主义，跟今天部分国家完全个人化地、邪恶地独裁国家联合在一起，人类必将面临一场重大挑战。
+11月20日至12月17日期间，苏格兰感染中共病毒案例中，属于未接种疫苗的人群有31,946例，打了一针毒疫苗的部分接种人群中有7,779例，打了两针毒疫苗的双重接种人群中有51,102例，打了三针毒疫苗的加强接种人群中有6,945例。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Table-13-Number-of-COVID-19-positive-cases.jpg)Public Health Scotland COVID-19 & Winter Statistical Report
+这意味着，11月20日至12月17日期间，在所有感染中共病毒的人群（31,946+7,779+51,102+6,945=97,772人）中，未接种疫苗的人群仅占病例的32.7%（31,946/97,772=32.7%），而接种疫苗的人群则占67.3%((7,779+51,102+6,945）/97,772=67.3%）。被感染最多的反而是打了中共病毒毒疫苗的人。
 
-编辑：东京樱花团/墨然
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-1.jpg)
+11月20日至12月17日期间，在所有因感染中共病毒而住院的人中，未接种疫苗的人群中有381例，打了一针毒疫苗的部分接种人群中有70例，打了两针毒疫苗的双重接种人群中有740例，打了三针毒疫苗的加强疫苗接种人群中有213例。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/able-14-Age-standardised-rate-of-acute-hospital-admissions.jpg)Public Health Scotland COVID-19 & Winter Statistical Report
+
+Public Health Scotland COVID-19 & Winter Statistical Report 这意味着，11月20日至12月17日期间，在所有因感染中共病毒而住院的1404(381+70+740+213=1404)人中，未接种疫苗的人群仅占27.1%(381/1404=27.1%)，而接种疫苗的人群则占72.9%((70+740+213)/1404=72.9%)。接种中共病毒毒疫苗，只会加重病情。
+
+11月13日至12月10日期间，在所有因中共病毒相关的死亡中，未接种疫苗的人群中有63人死亡，打了一针毒疫苗的部分接种人群中有13人死亡，打了两针毒疫苗的双重接种人群中有251人死亡，打了三针毒疫苗的加强疫苗接种人群中有35人死亡。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Table-15-Number-of-confirmed-COVID-19-related-deaths.jpg)Public Health Scotland COVID-19 & Winter Statistical Report
+
+这意味着，11月20日至12月17日期间，在所有与中共病毒相关的死亡362(63+13+251+35=362人)中，未接种疫苗的人群仅占17.4%(63/362=17.4%)，而接种疫苗的人群则占82.6%((13+251+35)/362=82.6%)。
+
+未接种疫苗的人感染中共病毒、因感染中共病毒住院、与中共病毒相关的死亡占比分别为：32.7%、27.1%、17.4%；接种中共病毒毒疫苗的人感染中共病毒、因感染中共病毒住院、与中共病毒相关的死亡占比分别为：67.3%、72.9%、82.6%。
+
+说明，在全世界没有弄清楚中共病毒来源，彻底认清中共病毒就是CCP对全世界发动的生化武器战争以前，所谓中共病毒疫苗其实就是一种毒药！
+
+接种中共病毒毒疫苗的人，在感染中共病毒后，病情更严重，更容易死亡。
+
+参考数据：
+
+[Public Health Scotland COVID-19 & Winter Statistical Report-As at 20 December 2021](https://publichealthscotland.scot/media/10930/21-12-22-covid19-winter_publication_report.pdf)
+
+[Public Health Scotland](https://publichealthscotland.scot/)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

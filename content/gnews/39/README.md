@@ -2,115 +2,93 @@
 ---
 
 
-## 12/23每日播报|社媒消息：班农先生 杰森米勒
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1783412/)
+## 12/23每日播报｜新闻简讯：欧洲缺电危机 缅甸将接人民币结算
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1783421/)
 
-BY：[密翻新聞](https://gtv.org/broadcast/watch/61c43a0900f9a1191808efcc)
+**By:[秘翻新闻](https://gtv.org/broadcast/watch/61c43a0900f9a1191808efcc)**
 
-**2021-12-2**3
+**2021-12-23**
 
-**1. 《国家脉动》12月22日在盖特发文：** 即将离任的美国国立卫生研究院NIH院长弗朗西斯·柯林斯 (Francis Collins) 哀叹没有对“人类行为”进行更多研究。 【推文转报道，柯林斯在接受《PBS新闻一小时》 采访时无耻的说，“他对其机构在人类行为研究方面投资不足”表示遗憾，同时对数千万美国人选择不接种新冠疫苗表示哀叹。我在一年前从未想过，会有六千万人拒绝接种疫苗。“在领导NIH期间，柯林斯因为资助了摘取活体胎儿器官而备受争议，同时他还用纳税人的钱资助了几项与中共和中共军方有关联的研究计划，包括武汉实验室的功能增强研究。】
+**1、英特尔禁新疆货 中共出征欲掀舆论风暴**
 
-[https://gettr.com/post/pkdi3k93ae](https://gettr.com/post/pkdi3k93ae)
+[综合媒体12月22日消息，美国参议院一致通过《防止强迫维吾尔人劳动法》最终协调版，禁止涉及强迫劳动的新疆产品进入美国市场。英特尔表态支持，随后英特尔官网向其供应链发出公告称，英特尔需要确保供应链中不使用任何来自新疆地区的劳工、服务或采购产品。](https://hk.news.yahoo.com/%E8%8B%B1%E7%89%B9%E7%88%BE%E7%A6%81%E6%96%B0%E7%96%86%E8%B2%A8-%E4%B8%AD%E5%9C%8B%E6%8E%80-%E5%87%BA%E5%BE%81%E8%8B%B1%E7%89%B9%E7%88%BE-%E8%BC%BF%E8%AB%96%E9%A2%A8%E6%9A%B4-172937857.html)
 
-**2. 真正美国之声12月23日发推说：** 美国司法部周二宣布，在新冠大流行期间被释放、然后在家隔离监禁的数千名囚犯，在卫生紧急状况结束后不应自动被重新监禁。 【推文转报道，司法部长梅里克·加兰 指示司法部授予美国监狱管理局（U.S. Bureau of Prisons）自由裁量权，以决定被释放到家中监禁的囚犯是否应被送回联邦设施或仍继续留在他们的家中。自2020年3月以来，已有超过36000名囚犯被释放到家中监禁。许多人已经完成了他们的刑期，有些人则因违反规定而被重新监禁。加兰说：“数千在家监禁的人已经与他们的家人重新取得联系，找到了有报酬的工作，并遵守了规则。我们将行使我们的权力，使那些已经取得康复进展并遵守家庭监禁规定的人，以及那些应该得到机会继续过渡到社会的的人，不会被不必要地送回监狱。”】
+[《环球时报》前主编胡锡进向中共各媒体表示，英特尔作出如此决定，是因为其供应链上本来就极少有新疆产品，而且其CPU在中共国当下仍是硬需求，并不太担心中共报复，或者英特尔觉得讨好美国和西方社会比维持与中共的关系更重要。](https://hk.news.yahoo.com/%E8%8B%B1%E7%89%B9%E7%88%BE%E7%A6%81%E6%96%B0%E7%96%86%E8%B2%A8-%E4%B8%AD%E5%9C%8B%E6%8E%80-%E5%87%BA%E5%BE%81%E8%8B%B1%E7%89%B9%E7%88%BE-%E8%BC%BF%E8%AB%96%E9%A2%A8%E6%9A%B4-172937857.html)
 
+秘翻新闻明澈编辑报道
 
+**2、欧洲身陷缺电危机 英国家庭电费暴增56%**
 
-> The Justice Department announced Tuesday that thousands of inmates who were released to home confinement during the [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) pandemic should not automatically be re-imprisoned after the health emergency ends.[https://t.co/9eoetZalKs](https://t.co/9eoetZalKs)
-> — Real America's Voice (RAV) (@RealAmVoice) [December 23, 2021](https://twitter.com/RealAmVoice/status/1473819393196912643?ref_src=twsrc%5Etfw)
+[据英国每日邮报、金融时报综合报导，英国天然气价格大涨，短短不到一年已涨5倍，不过由于政府制定的能源上限价格已无法反应成本，因此从8月以来，多达26家英国能源供应商被迫倒闭，影响约400万个家庭，这轮倒闭潮显示该行业状况相当危急，这也让能源监管机构Ofgem有意提高能源上限，但会导致家庭电费跟着上涨。](https://tw.stock.yahoo.com/news/%E5%9C%8B%E9%9A%9B%E7%B6%93%E6%BF%9F-%E6%AD%90%E6%B4%B2%E7%BC%BA%E9%9B%BB%E5%8D%B1%E6%A9%9F%E7%8B%82%E7%87%92-%E9%80%99%E5%A4%A7%E5%9C%8B%E6%85%98%E4%BA%86-%E6%AF%8F%E5%B9%B4%E5%AE%B6%E5%BA%AD%E9%9B%BB%E8%B2%BB%E6%9A%B4%E5%A2%9E2-6%E8%90%AC-043223151.html)
 
+[报导指出，金融机构Investec预测，目前英国能源价格上限为每年每户1277英镑，明年有极高机会大幅调涨至破纪录1995英镑，代表英国家庭的电费将会上涨将近56%，除非政府或监管机构Ofgem提出缓解措施，否则英国人每年需要额外负担700英镑以上的电费支出。](https://tw.stock.yahoo.com/news/%E5%9C%8B%E9%9A%9B%E7%B6%93%E6%BF%9F-%E6%AD%90%E6%B4%B2%E7%BC%BA%E9%9B%BB%E5%8D%B1%E6%A9%9F%E7%8B%82%E7%87%92-%E9%80%99%E5%A4%A7%E5%9C%8B%E6%85%98%E4%BA%86-%E6%AF%8F%E5%B9%B4%E5%AE%B6%E5%BA%AD%E9%9B%BB%E8%B2%BB%E6%9A%B4%E5%A2%9E2-6%E8%90%AC-043223151.html)
 
+秘翻新闻明澈编辑报道
 
-**3. 真正美国之声12月23日发推说：** 看来，福奇和美国国立卫生研究院的其他人正在努力限制医生提供新冠早期治疗的能力。泽伦科医生对此回复说：“扼杀辩论表明他们想隐藏真相。”
+**3、缅甸明年建立试点 接受人民币为贸易结算货币**
 
+[综合媒体12月22日消息， 缅甸军政府22日表示，明年起将在缅中跨境贸易建立试点，接受人民币作为结算货币。声明称，推进与中共的合作项目是主要优先事项，其中还提到了该国与中共合作的若干基础设施项目，其中包括铁路和港口。声明中还提到，缅甸今年的经济衰退要比一些国际经济学家的预测缓和得多。](https://www.reuters.com/article/myanmar-crossborder-trade-yuan-1222-idCNKBS2J10SP)
 
+[缅甸今年2月的军事政变以及随后对抗议者的镇压，受到西方的广泛批评。分析人士称，缅甸在国际上日益孤立，可能会使其更接近中共国。中共没有公开谴责政变，只是多次敦促缅甸各方消除分歧。](https://www.reuters.com/article/myanmar-crossborder-trade-yuan-1222-idCNKBS2J10SP)
 
-> It appears that Dr. Fauci and others at the NIH were working to limit doctors ability to provide [#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw) early treatments and therapeutics. In response, Dr. Valdimir "Zev" Zelenko says that “stifling debate shows a desire to hide the truth.’[@jfradioshow](https://twitter.com/jfradioshow?ref_src=twsrc%5Etfw) [#OutsideTheBeltway](https://twitter.com/hashtag/OutsideTheBeltway?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/11cGqqUDyy](https://t.co/11cGqqUDyy)
-> — Real America's Voice (RAV) (@RealAmVoice) [December 23, 2021](https://twitter.com/RealAmVoice/status/1473808083000254478?ref_src=twsrc%5Etfw)
+秘翻新闻Vera编辑报道
 
+**4、土耳其里拉贬值 加密货币成出路**
 
+[综合媒体12月23日消息，自9月开始，土耳其总统埃尔多安下令央行连续降息，降低基准利率，本以为能够遏制剧烈通货膨胀，但是事与愿违，每次降息后，里拉都出现暴跌。自9月以来里拉贬值已近40%，令民众活于水深火热之中，在高通胀下连购买日常用品也有困难。](https://www.hk01.com/%E5%8D%B3%E6%99%82%E5%9C%8B%E9%9A%9B/715570/%E5%9C%9F%E8%80%B3%E5%85%B6%E9%87%8C%E6%8B%89%E8%B2%B6%E5%80%BC%E5%A4%A7%E7%8E%A9-%E7%98%8B%E7%8B%82%E9%81%8E%E5%B1%B1%E8%BB%8A-%E5%8A%A0%E5%AF%86%E8%B2%A8%E5%B9%A3%E6%88%90%E5%87%BA%E8%B7%AF-%E5%9C%8B%E9%9A%9B%E6%99%A8%E5%A0%B1)
 
-**4. 真正美国之声12月23日发推说：** 几个基督教组织向美国最高法院提出上诉，要求暂停执行美国劳工部的疫苗强制令，他们认为该项强制令违反了宪法第一修正案和1993年的《宗教自由恢复法》（Religious Freedom Restoration Act）。 【推文转报道，位于德克萨斯州的第一自由研究所（First Liberty Institute）代表这些组织提起了诉讼，长达179页的诉讼书要求负责第六巡回法庭的布雷特·卡瓦诺 (Brett Kavanaugh) 大法官发出暂停令，禁止执行美国职业安全与健康管理局OSHA针对拥有百名雇员以上企业的疫苗强制令。这些基督教组织认为，OSHA的规定违反了受法律保护的宗教自由，因为它不允许有任何宗教上的豁免或便利。】
+[据路透报导，货币狂贬更刺激当地民众转向虚拟货币寻求资产保值。据最新数据显示，在土耳其里拉崩跌至历史新低之际，该国加密货币的每日交易量激增，直接冲破每日100万枚大关。比特币和泰达币，自2019年来也成为该国民众最爱买进的加密币。](https://www.hk01.com/%E5%8D%B3%E6%99%82%E5%9C%8B%E9%9A%9B/715570/%E5%9C%9F%E8%80%B3%E5%85%B6%E9%87%8C%E6%8B%89%E8%B2%B6%E5%80%BC%E5%A4%A7%E7%8E%A9-%E7%98%8B%E7%8B%82%E9%81%8E%E5%B1%B1%E8%BB%8A-%E5%8A%A0%E5%AF%86%E8%B2%A8%E5%B9%A3%E6%88%90%E5%87%BA%E8%B7%AF-%E5%9C%8B%E9%9A%9B%E6%99%A8%E5%A0%B1)
 
+秘翻新闻明澈编辑报道
 
+**5、球队因疫情凑不足8人 2场NBA比赛再延期 **
 
-> Several Christian organizations have appealed to the US Supreme Court to issue a stay prohibiting the U.S. Department of Labor from enforcing a vaccine mandate that they argue violates the First Amendment and the Religious Freedom Restoration Act of 1993.[https://t.co/3CoLjYeWS8](https://t.co/3CoLjYeWS8)
-> — Real America's Voice (RAV) (@RealAmVoice) [December 22, 2021](https://twitter.com/RealAmVoice/status/1473775359225044994?ref_src=twsrc%5Etfw)
+[综合媒体12月23日消息，受中共病毒疫情影响，美国职业篮球NBA中的不少球队无法派出足够人员参赛。据悉，除球星杜兰特、哈登和欧文等在内的10位球员触发健康安全协议无法上阵外，猛龙队也有8名球员触发健康安全协议。](https://www.rfi.fr/tw/nba%E5%86%8D%E5%AE%A3%E5%B8%832%E5%A0%B4%E6%AF%94%E8%B3%BD%E5%BB%B6%E6%9C%9F-%E7%90%83%E9%9A%8A%E5%9B%A0covid%E6%B9%8A%E4%B8%8D%E8%B6%B38%E4%BA%BA%E8%94%98%E8%B3%BD)
 
+[今天NBA宣布延期多伦多猛龙对芝加哥公牛，以及布鲁克林篮网对波特兰开拓者的比赛。有报道指出，受疫情影响，NBA赛事最近因疫情已延后9场比赛，但NBA总裁亚当-萧华表示并不打算暂停当前赛季。](https://www.rfi.fr/tw/nba%E5%86%8D%E5%AE%A3%E5%B8%832%E5%A0%B4%E6%AF%94%E8%B3%BD%E5%BB%B6%E6%9C%9F-%E7%90%83%E9%9A%8A%E5%9B%A0covid%E6%B9%8A%E4%B8%8D%E8%B6%B38%E4%BA%BA%E8%94%98%E8%B3%BD)
 
+秘翻新闻明澈编辑报道
 
-**5. 班农先生12月22日在盖特发文：** 在其垂死的阵痛中，非法的拜登政权完全没有意识到，也没有做好犯罪的准备，就向仍对新冠疫苗犹豫不决的美国公民开战了。
+**6、浙江国企老板包养20多位情妇 献身即可提总经理**
 
-[https://gettr.com/post/pkcvwgebd1](https://gettr.com/post/pkcvwgebd1)
+[综合媒体12月23日消息，浙江省宁波市交通房地产有限公司职工爆料称，原总经理许忠勇私下包养20多位情妇。爆料人王时敏2006年起开始担任许忠勇秘书，掌握了许忠勇包养情妇的相关证据。](https://www.ctwant.com/article/157997)
 
-**6. 新唐人12月22日在盖特发文：** 奥地利林茨市正在雇人寻找未接种新冠疫苗的人，并确保该国宣布了一项全国性的疫苗强制令后让那些人支付罚款。 【盖文转报道，根据林茨市议会官方网站上发布的招聘广告，该职位的月薪至少为2774欧元，职责包括为未接种疫苗的人准备刑事命令、处理对该命令的上诉、对这些人采取措施。当然，这项工作只对已完全接种的奥地利公民开放。自明年2月1日起，所有在奥地利有住所并且年满 14 岁的人都必须接种新冠疫苗。约有20万人口的林茨市是整个奥地利疫苗接种率最低的地区，目前只有63%的市民接种了两剂疫苗。】
+[爆料指出，许忠勇总共包养了20多名情妇，其中一名鲍姓女子曾因许忠勇怀孕、流产，但由于该女子在后宫中并不受宠，愤而监视并记录许忠勇生活，详细写下其行程、送礼品项，及多次在公司内服用药物后与情妇发生性关系。](https://www.ctwant.com/article/157997)
 
-[https://gettr.com/post/pkcv547621](https://gettr.com/post/pkcv547621)
+[此外，爆料指出许忠勇在办公室、宾馆，还有他购置的房屋里也会与情妇发生性关系，而其家人对此皆知情。情妇中一名李姓女子和许男在一起后特别受到疼爱，因此一路从普通职员，被提拔成宁波交通地产下属某公司总经理，随后许还动用人脉，将她调往其他集团高就。](https://www.ctwant.com/article/157997)
 
-**7. 印太新闻 – 关注中共威胁 12月22日发推说： **根据维基解密获得的美国国务院在2009年6月的一份电报，时任美国国务卿的希拉里·克林顿警告法国，武汉实验室的功能增强研究可能会导致“生物武器扩散问题”。 【推文转《en Volve》报道，2009年9月在巴黎举行的澳大利亚集团（Australia Group）全体会议之前，所有成员国的大使馆都收到了这些电报。澳大利亚集团是一个“非正式”的国际出口管制论坛，其目的是确保出口不被用于化学或生物武器的研发和扩散。克林顿在给法国的一封电子邮件中说：“美国认为参与者将从您协助中国在武汉病毒研究所建立生物安全 4 级 实验室时的出口管制和无形技术转让中受益。我们认为必须关注新兴的化学和生物技术、以及与化学武器有关的货物贸易趋势和威胁。”克林顿还要求澳大利亚集团成员交出那些与中共的生物和化学武器计划有关的信息。】
+[在爆料消息曝光后，王时敏与许忠勇皆已遭到调查，宁波交通投资控股有限公司表示，目前正在对此事进行核实，如果确实有违纪行为，将会依法严肃进行处理。](https://www.ctwant.com/article/157997)
 
+秘翻新闻明澈编辑报道
 
+**7、华晨汽车集团旗下的雷诺金杯公司员工停薪**
 
-> Hillary Clinton Warned ‘Biological Weapons’ Being Made at [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) Wuhan Lab on 2009
-> 
-> State Department cables obtained by WikiLeaks reveal Clinton warned [#France](https://twitter.com/hashtag/France?src=hash&amp;ref_src=twsrc%5Etfw) that gain-of-function activities at Wuhan lab were a “biological weapons proliferation concern.”[https://t.co/tKpMj1Spsh](https://t.co/tKpMj1Spsh) [pic.twitter.com/qwixGYeowK](https://t.co/qwixGYeowK)
-> — Indo-Pacific News – Watching the CCP-China Threat (@IndoPac\_Info) [December 22, 2021](https://twitter.com/IndoPac_Info/status/1473557020720517127?ref_src=twsrc%5Etfw)
+[综合媒体12月22日消息，华晨金杯公司20日召开会议，宣布以下信息：1.从即日起工资暂停发放。 2.除医保外，其他各种保险及公积金暂停缴纳。 3.今年采暖费已提上日程，报销与否具体等待结果。](https://www.culturechina.cn/auto/128205.html)
 
+[内部员工表示，目前该公司可以办理员工自愿离职，办理时间基本1至2天可完成解除劳动合同的手续，离职车间员工必须先与相关负责人沟通，完成车间内的工作交接。此外，有供应商反应，华晨雷诺金杯已经拖欠款项数月，该供应商已将华晨雷诺金杯告上法庭。](https://www.culturechina.cn/auto/128205.html)
 
+[据悉，华晨汽车集团控股有限公司是一家总部位于辽宁省沉阳市的国有大型汽车集团，拥有中华、金杯、华颂三大自主品牌和华晨宝马一大合资品牌。](https://www.culturechina.cn/auto/128205.html)
 
-**8. 盖特官方12月23日发推说：** 杰森米勒在接受El American采访时说：“硅谷科技寡头公然实行的影子禁令和审查制度并不仅仅适用于保守派，许多自由派人士也正在认识到这一新的现实。我们欢迎他们在盖特上实践他们的言论自由权利。”
+[此次停薪暴露出华晨雷诺金杯经营困难。据企查查APP显示，近一年来，华晨雷诺金杯被多个供应商告上法庭，诉讼原因主要是未按约定进行付款。此外，企查查APP显示，目前华晨雷诺金杯已有4条被强制执行的记录，被执行总金额达874.77万元。](https://www.culturechina.cn/auto/128205.html)
 
+秘翻新闻菜园子编辑报道
 
+**8、林郑月娥任期至明年6月30日  赴京述职受习近平肯定 **
 
-> “The blatant shadow banning and censorship practiced by Silicon Valley doesn’t just apply to conservatives. Many liberals are waking up to this new reality too, and we welcome them to practice their right to free speech here on GETTR.” – [@JasonMillerinDC](https://twitter.com/JasonMillerinDC?ref_src=twsrc%5Etfw)[https://t.co/fHHD0n1xAG](https://t.co/fHHD0n1xAG)
-> — GETTR (@GETTRofficial) [December 22, 2021](https://twitter.com/GETTRofficial/status/1473715269302431767?ref_src=twsrc%5Etfw)
+[综合媒体12月22日消息，22日林郑月娥飞往北京，进行她本届任期中最后一次述职，习近平表示，中央对香港政府的工作是充分肯定的。之后李克强同林郑月娥也分别进行了会面。](https://hk.news.yahoo.com/%E6%9E%97%E9%84%AD%E6%9C%88%E5%A8%A5-%E7%BF%92%E8%BF%91%E5%B9%B3-%E5%8C%97%E4%BA%AC-%E8%A1%8C%E6%94%BF%E9%95%B7%E5%AE%98-%E7%8E%8B%E5%8A%9B%E5%AE%8F-%E6%9D%8E%E9%9D%9A%E8%95%BE-%E5%BE%90%E8%8B%A5%E7%91%84-mandy-lieu-%E5%91%A8%E7%84%AF%E8%8F%AF-%E6%B4%97%E7%B1%B3%E8%8F%AF-%E5%A4%AA%E9%99%BD%E5%9F%8E%E9%9B%86%E5%9C%98-%E6%96%B0%E6%BF%A0-225810193.html)
 
+[法新社评论认为，虽然刚刚结束的香港立法会选举的投票率仅30%，但并不妨碍林郑得到中共的全力支持。林郑北京述职得到中共的肯定至关重要，这关系到她是否能够连任香港特首。虽然她坚持这次来北京唯一目的，是要做行政长官年度述职工作，并无做其他事情，也没有想自己未来的事。](https://hk.news.yahoo.com/%E6%9E%97%E9%84%AD%E6%9C%88%E5%A8%A5-%E7%BF%92%E8%BF%91%E5%B9%B3-%E5%8C%97%E4%BA%AC-%E8%A1%8C%E6%94%BF%E9%95%B7%E5%AE%98-%E7%8E%8B%E5%8A%9B%E5%AE%8F-%E6%9D%8E%E9%9D%9A%E8%95%BE-%E5%BE%90%E8%8B%A5%E7%91%84-mandy-lieu-%E5%91%A8%E7%84%AF%E8%8F%AF-%E6%B4%97%E7%B1%B3%E8%8F%AF-%E5%A4%AA%E9%99%BD%E5%9F%8E%E9%9B%86%E5%9C%98-%E6%96%B0%E6%BF%A0-225810193.html)
 
+[《纽约时报》引述观察人士评论，林郑月娥寻求连任还有一个重要原因，如果现在就下台的话，她将作为香港历史上最不受欢迎的行政长官为人们所铭记。如果能连任的话，她可以试图通过解决香港的住房短缺问题，以及加快与内地的融合来恢复自己的政治声誉。](https://hk.news.yahoo.com/%E6%9E%97%E9%84%AD%E6%9C%88%E5%A8%A5-%E7%BF%92%E8%BF%91%E5%B9%B3-%E5%8C%97%E4%BA%AC-%E8%A1%8C%E6%94%BF%E9%95%B7%E5%AE%98-%E7%8E%8B%E5%8A%9B%E5%AE%8F-%E6%9D%8E%E9%9D%9A%E8%95%BE-%E5%BE%90%E8%8B%A5%E7%91%84-mandy-lieu-%E5%91%A8%E7%84%AF%E8%8F%AF-%E6%B4%97%E7%B1%B3%E8%8F%AF-%E5%A4%AA%E9%99%BD%E5%9F%8E%E9%9B%86%E5%9C%98-%E6%96%B0%E6%BF%A0-225810193.html)
 
-**9. 《华盛顿时报》12月22日发推说：** 五角大楼的印太司令部最近公布了一个软件应用程序，军方官员说，该程序可以预测中共军队对美国在该地区活动的反应，以缓和紧张局势。 【推文转报道，一些分析家警告说，该应用程序代表着美国对中共的绥靖政策又进一步，美国的决策者们对惹恼北京产生了恐惧，因此他们被中共领导人所操纵。国防部的官员和发言人说，该软件工具旨在系统地衡量中共对美国在该地区行动的反应，比如对台湾的武器销售，在有争议的海域进行海军和空军演习，以及国会访问台湾。一位国防部官员表示，该工具衡量美中“战略摩擦”（strategic friction），该工具研究了自2020年年初以来的数据，评估各种影响美中关系的重大活动。军事领导人和五角大楼的政策制定者将利用它来预测北京将如何应对美国的行动。该软件是拜登政府寻求遏制中共侵略行为的政策的一部分，同时不惜一切代价防止世界上两个最强大的国家和两个最大的经济体之间发生公开冲突。】
+秘翻新闻Vera编辑报道
 
-
-
-> The Pentagon’s Indo-Pacific Command recently unveiled a software application that military officials say will monitor Chinese military anger at U.S. activities in the region in a bid to reduce tensions. [#TWTFrontPage](https://twitter.com/hashtag/TWTFrontPage?src=hash&amp;ref_src=twsrc%5Etfw)[https://t.co/IWywizx61d](https://t.co/IWywizx61d)
-> — The Washington Times (@WashTimes) [December 22, 2021](https://twitter.com/WashTimes/status/1473660506971979777?ref_src=twsrc%5Etfw)
-
-
-
-**10. Disclose.tv 12月23日发推说： **尽管在过去的12个月，英国政府进行了所有的疫苗接种工作，但疫情仍无法遏制，英国最新的单日新增新冠病例数首次超过了10万。
-
-
-
-> JUST IN – UK reports over 100,000 new [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) cases for the first time despite all vaccination efforts during the last 12 months.
-> — Disclose.tv (@disclosetv) [December 22, 2021](https://twitter.com/disclosetv/status/1473688611572924429?ref_src=twsrc%5Etfw)
-
-
-
-**11. Disclose.tv 12月23日发推说：** 德国慕尼黑的数千市民再次走上街头，抗议防疫限制措施和疫苗强制令。警方可以阻止一两次抗议活动，但无法阻止多次。
-
-
-
-> NOW – Thousands protest in [#Munich](https://twitter.com/hashtag/Munich?src=hash&amp;ref_src=twsrc%5Etfw) against Covid restrictions and compulsory vaccinations again. Police could not stop the large crowd multiple times.[pic.twitter.com/kAvEjaicIs](https://t.co/kAvEjaicIs)
-> — Disclose.tv (@disclosetv) [December 22, 2021](https://twitter.com/disclosetv/status/1473765998851461124?ref_src=twsrc%5Etfw)
-
-
-
-**12. 喜马拉雅战鹰团12月23日在盖特发文：** 彼得·麦卡洛博士说：“最有效的传染控制，是口鼻消毒疗法，任何消毒剂，比如，碘可以消毒。 用一个鼻腔喷雾器或者滴管，喷入口腔，吸入鼻腔深处直到嗓子里，然后再嘴里吐出来。必须从鼻子吸进去，这样才能有效清理鼻腔，然后用剩余的溶液漱口吐出来。最后用Scope或者Listerine漱口水漱口。
-
-[https://gettr.com/post/pkf9zse752](https://gettr.com/post/pkf9zse752)
-
-**13. 郭文贵先生12月23日在盖特发文：** 中共对人类释放的复合性病毒，有快速死亡、慢速死亡、长期死亡。这些病毒正在威胁全人类，为什么全世界的政府不找中共要病毒的真相？ 突发：奥米炕变种浪潮将席卷美国，到明年3月将有 60% 的人受到感染，新感染人数将达到 1.4 亿，但华盛顿大学警告说，90% 的人永远不会出现症状。
-
-[https://gettr.com/post/pkegqnab97](https://gettr.com/post/pkegqnab97)
-
-**以上社交媒体新闻由 巴拉克和Stephanie 联合编译报道**
-
-发布：陸柒陸捌
+发布:星星
 
 * * *
 
 **By 【秘密翻译组-即时新闻播报组】**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/秘翻海报.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/IMAGE-2021-12-13-113746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
