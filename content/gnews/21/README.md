@@ -2,41 +2,31 @@
 ---
 
 
-## 单伟建派出的杨贝贝坦承爆料革命在全球掀起的反共浪潮
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1782884/)
+## 澳洲CCP病毒感染激增，医疗保健人员恐面临心理危机
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1782956/)
 
-最早看到的就是大卫和木兰，这就是说，我让她采访，知道来黑咱来了，我们全程记录，她在镜头前就敢说，是全球掀起的反共浪潮，你说我啥感觉兄弟姐妹们？
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1223E-scaled.jpg)图片来源：Pexels免费照片素材库；摄影：Anna Shvets
+随着澳大利亚 COVID-19 病例激增，专家担心医护人员心理健康问题也会随之出现明显上升，而这一结果可能会威胁到整个医护劳动力群体，以及他们面对疫情时的反应能力。
 
-我告诉大家，这是我一生中很大的一场荣幸，敌人派来的美女尖兵，竟然说你是我们最大的敌人，而且对我们造成了最大的威胁，哇塞！我这太幸福了！当时你看我那个表情，我就幸福的已经不得了啦。
+最近由一线临床医生领导的一项研究表明，创伤后压力和其他心理健康问题正在严重影响澳大利亚的医护从业人员。超过 70% 的相关人士报告称，他们在第二波CCP病毒大流行期间身心俱疲。
 
-单伟建，共产党派出来的人，竟然这么说咱，那就是敌方的批评，就是最大的奖励。
+墨尔本急诊医学医师兼澳大利亚医学协会急诊医学代表莎拉·怀特劳博士表示，CCP病毒大流行对医疗保健方面的劳动者来说影响十分巨大，以至于人们很难找到一名没有精疲力竭的前线工作人员。
 
-编辑整理：海贼王M.D.LUFFY；
+怀特劳博士补充说：“我们根本无法应对 Omicron 在人群中快速传播的情况。”
 
-字幕文件制作：小满；
+该研究作为 BMJ 公共卫生紧急情况汇总的一部分发表，调查结果显示，在受访的 9518 名卫生专业人员中，有 60% 在 2020 年 8 月至 10 月期间经历了轻度至重度焦虑。
 
-视频制作及上传：Cindy；
+除此之外，57.3% 的人患有抑郁症，超过 58% 的人正在经历道德困扰，还有5.6%的医疗从业者出现了PTSD症状，及创伤后应激障碍。怀特劳博士认为，2021年末的现在情况恐怕比去年的大流行期间更加糟糕。
 
-G-News发布：小满；
+尽管澳大利亚精神健康问题的流行程度已经与受CCP病毒大流行影响最严重的国家相媲美，但在世界其他地区进行的研究表明，最糟糕的情况可能尚未到来。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+英国临床心理学杂志的一项研究发现，在英国，多达 44% 的医护人员患有与 CCP病毒有关的创伤后应激障碍。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+新闻参考链接：
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+[9 News](https://www.9news.com.au/national/coronavirus-australia-update-healthcare-workforce-faces-mental-health-crisis-covid19-cases-soar-exclusive/1fdc2474-291c-42d5-b6ee-7c7bfff42d25)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/TA1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
