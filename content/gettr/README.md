@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/23/2021 10:08 AM (UTC)`
+
+【The Truth Behind Mr. Miles Guo's Interview with #HBOVICE 】<br/><br/>HBO used out of context clips and misleading editing to smear the legal fight against the CCP pawns as Mr. Guo’s baseless slander. Fight back with full video recoveries of the raw interview: Our fellow fighters never made the first move to attack others and the US citizens have the right to protest <br/><br/>【反击 #HBOVICE 采访 #郭文贵 先生】<br/><br/>HBO把依法惩贼行动说成是郭先生在没有证据的情况下对伪类的诋毁，HBO断章取义进行混乱剪辑。还原当时的原始采访进行反击，我们从未主动攻击他人，美国公民有权抗议
+![img](https://media.gettr.com/group25/getter/2021/12/23/10/06cc015a-f47a-b204-fd49-63a72d468eff/out.jpg)
+
+---
+
+`@miles 12/23/2021 10:01 AM (UTC)`
+
+【The Truth Behind Mr. Miles Guo's Interview with #HBOVICE 】<br/><br/>HBO selected clips out of context and edited them misleadingly to defame Mr. Miles Guo and accused Miles Guo of spreading false information about COVID-19, COVID-19 Vaccine, exterminating the white population and 2020 US election <br/> <br/>【反击 #HBOVICE 采访 #郭文贵 先生】<br/><br/>HBO 断章取义进行混乱剪辑，以诋毁和指控郭先生散布关于病毒、疫苗、灭白计划以及美国大选的虚假信息
+![img](https://media.gettr.com/group6/getter/2021/12/23/10/79af0bce-9f35-35f3-37ac-3fdcb7188ebc/out.jpg)
+
+---
+
+`@miles 12/23/2021 9:55 AM (UTC)`
+
+Isobel Yeung, the CCP propagandist dressed as Cat Girl, who sent you here?<br/><br/>CCP大外宣猫女郎-杨贝贝，谁派你来的？
+![img](https://media.gettr.com/group32/getter/2021/12/23/09/c436ac57-1d4a-f519-1b76-23b55b257fdc/out.jpg)
+
+---
+
 `@miles 12/23/2021 6:30 AM (UTC)`
 
 The Truth Behind Mr. Miles Guo's Interview with #HBOVICE<br/><br/>HBO uses the words of a CCP agent to smear Mr. Miles Guo and defame GTV<br/><br/>【反击 #HBOVICE 采访 #郭文贵 先生】<br/><br/>HBO利用中共特务的话来诽谤郭先生和诋毁GTV<br/>
@@ -136,26 +157,6 @@ The CCP is using social media — American companies — to advance its communis
 
 12月21号：世界卫生组织．疫苗制药厂．几个国家的医疗卫生管理部门，一定会受到人类的大审判，他们的官僚和邪恶力量．充分的利用了人类几百年来共同建立对科学的信任和服从．成了他们的杀人的工具🧰和手段！最终在法庭上。所有的这些杀人犯都将受到审判……真正的灾难！并没有到来，2022年，五月份才应该是打了疫苗人开始不良反应的开周期的开始！
 ![img](https://media.gettr.com/group7/getter/2021/12/21/12/e830a709-9ca9-5423-6b23-61c364d696c0/out.jpg)
-
----
-
-`@miles 12/21/2021 3:51 AM (UTC)`
-
-20/12/2021 “Hcoin To the Moon" Hits iTunes <br/> No. 1 🥇on 9 Countries Top MV Charts !<br/>No.1🥇 on 7 Countries Rock MV Charts!<br/>No.1🥇 on 4 Countries Rock song Charts!<br/>No.1🥇on 2 countries Hip-pop/Rap song Charts!<br/>Miracle continues…….🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, Taiwan, Laos, Hungary, Macau, Fiji, Philippines, Finland, Singapore!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1774690<br/><br/>12月20号，Hcoin To the Moon位列iTunes<br/>9国热门MV榜首🥇！<br/>7国摇滚MV榜首🥇！<br/>4国摇滚歌曲榜首🥇！<br/>2国嘻哈歌曲榜首🥇！<br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港，台湾，老挝，匈牙利，澳门，斐济，菲律宾，芬兰，新加坡的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏
-
----
-
-`@miles 12/20/2021 4:59 PM (UTC)`
-
-12月20号，这是VICE在这个时间点，配合共产党在冬奥会之前，对世界的大外宣和打压反对声音的一场国际的大外宣行动。在Vice的多次要求后，在接受采访的同时，我们也进行了同场录播。稍后大家在对比观看后，就会明白共产党对世界宣传的控制，和卑鄙的VICE一直以来反爆料革命亲共的立场！不看不知道，不对比不知道，一对比吓你一大跳！ <br/><br/>12/20/2021 This is VICE at this point in time, act as part of the CCP’s major international outreach operation and suppression of opposition voices just before the Beijing Winter Olympics. We accepted VICE’s interview invitation after their repeated requests. But we also recorded the interview on set ourselves. You will understand the CCP’s control over world propaganda and the despicable VICE’s ongoing anti-Whistleblower Movement, pro-Communist stance once you watched our record later! Please Watch the unaltered interview and compare it for yourself.  You will be shocked by the differences! 
-![img](https://media.gettr.com/group38/getter/2021/12/20/16/2f7591ad-e305-4380-4555-0d472531add3/out.jpg)
-
----
-
-`@miles 12/20/2021 4:29 PM (UTC)`
-
-12月20号：昨天我们直播说，盘古可能变成火龙，裕达国贸可能变成火佛手，可能会天然气爆炸……直播一个小时后盘现场马上就去了上百个国安和工程人员．检查天然气和管道共产党快被吓死了……盘古和裕达的个故事，只是刚刚开始咱们走着瞧……
-![img](https://media.gettr.com/group49/getter/2021/12/20/16/47d009c8-a584-55fc-2690-c010066f05b4/d9c6c1c0045d7e96aeea5c2668f32848.jpg)
 
 ---
 
