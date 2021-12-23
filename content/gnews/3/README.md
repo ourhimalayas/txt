@@ -2,10 +2,10 @@
 ---
 
 
-## 英国单日新增感染中共病毒超10万人，连续5天创新高
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1782102/)
+## 日本将对中共病毒Omicron密接者实施14天隔离措施
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1782103/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1223-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12._23-scaled.jpg)
 *编辑：东京樱花团/简报小组
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
