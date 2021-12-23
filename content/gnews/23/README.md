@@ -2,59 +2,33 @@
 ---
 
 
-## 香港当局拆除天安门大屠杀纪念碑
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1784513/)
+## 泽连科医生推荐小罗伯特·F·肯尼迪在米兰的演讲
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1784587/)
 
-作者：Ian Miles Cheong
-翻译：Himasally
+作者：纽约香草山翻译部 – defiance
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV-Gnews.png)
+12月22日，泽连科医生发盖说：“起来。 反抗。 就当暴徒吧。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-287.png)
+并推出了2021年11月13日小罗伯特·F·肯尼迪于意大利米兰的1分40秒的演讲片段，演讲短视频内容如下：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture15-6.jpg)
+在人类历史上没有一个政府会主动放弃权力。他们最近这20个月，从我们这里拿走的权力，他们永不会还。他们弄走了我们的言论自由权，他们关闭了教堂。诉讼那些无良公司的时候，他们跳过了陪审团审理。不管那个公司犯了多大的过失，多莽撞，不管你受的伤多深，你起诉不了那个公司。他们弄走了我们的私有产权。在美国，他们关闭了100万个企业，这持续了一年，不走法律程序，连合理的补偿都没有。他们拿走了没有法院命令就不能被搜查抓捕，政府监控的权力（坏人可以随便搜查、抓人和监视人）。这是冲着地球上的自由民主世界来的全球性政变。所有这些已经被拿走的权力，这些政府说都是临时性的，两周就恢复正常了，会结束的。正在发生着的真实情况你们都看到了。被他们剥夺了的那些权力，他们永远不会还。除非，我们迫使他们交出来。
 
-1989 年在天安门广场大屠杀中丧生的学生抗议者的雕像与周三香港大学所谓的 “耻辱柱” 的拆除同步进行。
+参考来源：[泽连科医生推荐小罗伯特·F·肯尼迪在米兰的演讲](https://gettr.com/post/pkbn8m9ece)
 
-这座雕像展示了堆积如山的中国学生尸体，是为了纪念 1989 年被中国当局杀害的数千名民主抗议者的死亡。在被拆除之前，耻辱柱是中国为数不多的公共纪念碑之一的香港纪念事件。
+![This image has an empty alt attribute; its file name is 12%E6%9C%88-1.png](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88-1.png)
 
-2019 年，数十万民主抗议者走上香港街头，反对北京共产党政府强加给该岛的新国安法。此后数百人被捕，数万人在英国、澳大利亚和加拿大等国家寻求庇护。
+编辑/校对/发稿：Hetangyuese
 
-自从接管该岛以来，北京一直在镇压香港所有政界异见人士，曾经允许言论自由，现在可能会被判入狱。
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-尽管在中国受到高度打压，香港居民对天安门广场抗议活动仍然非常直言不讳，成千上万的中国学生为争取更大的政治自由而游行。
+![This image has an empty alt attribute; its file name is Gnews-Logo-36-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
-数千人在天安门广场扎营数周，促使军队进驻并用武力清除。中国政府声称只有 200 名平民和几十名安全人员死亡。然而，人权组织提供的估计表明，可能有多达 10,000 人被杀。
 
-该大学在一份声明中说：“关于拆除雕像的决定是基于外部法律建议和风险评估，以确保大学的最佳利益。” 香港大学最初于 10 月下令拆除这座雕像。
-
-声明补充说：“大学也非常关注脆弱的雕像所带来的潜在安全问题。”
-
-BBC 的格瑞斯崔报道：
-
-几十年来，香港以自己是“中国的良心”而自豪，中国领土上唯一没有忘记 1989 年天安门广场大屠杀的地方。
-
-北京允许每年一度的烛光守夜纪念血腥事件，这也成为香港集体记忆的一部分。
-
-但根据国家安全法，守夜活动组织者，香港支持中国爱国民主运动联盟被迫解散，许多抗议领导人被判入狱。很明显，北京将不再容忍任何公开的蔑视。
-
-这座纪念碑在校园里屹立了二十多年。现在，即使是在夜深人静的时候，它也必须被拆除和移除。
-
-雕像倒下时，传来了破裂和钻孔的声音，但没有人看到发生了什么。对许多人来说，突然搬迁就像是对这座城市身份的又一次侮辱。
-
-来源：[https://www.rebelnews.com/hong\_kong\_authorities\_remove\_monument\_commemorating\_tianamen\_square\_massacre](https://www.rebelnews.com/hong_kong_authorities_remove_monument_commemorating_tianamen_square_massacre)
-
-（文章仅代表作者个人观点）
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
