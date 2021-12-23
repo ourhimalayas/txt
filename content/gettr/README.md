@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/23/2021 3:24 PM (UTC)`
+
+12/22/2021 Miles Guo: The CCP’s National Security Commission ordered the Beijing State Security Bureau to have the Emergency Task Force handle the Peng Shuai incident by using negotiation experts and the despicable tactics such that they sometimes posed threat and sometimes pretended to be weak; the CCP ordered that the Peng Shuai incident must be put to an end before the Winter Olympics at all costs!<br/><br/>12/22/2021 文贵直播: 国家安全委员会派北京市国安局的紧急处理小组动用谈判专家，采取时而威胁时而示弱的卑鄙手段处理彭帅事件；中共指示不惜一切代价要在冬奥会之前务必平息此事！<br/>
+![img](https://media.gettr.com/group35/getter/2021/12/23/15/13a9b9ef-e051-da4b-e5be-63e37ec6b3ca/out.jpg)
+
+---
+
 `@miles 12/23/2021 2:40 PM (UTC)`
 
 12月23号，尊敬的战友们大家好：为了给大家带来更好的用户体验，@gfashion 网站进行了升级。我们已经给大家发送了邀请邮件（见下图），请所有的客户收到后尽快根据相关指南重新激活您的账户。没有收到邀请邮件的客户请查看您的垃圾邮箱。<br/><br/>再次感谢各位一路以来对G|Fashion的支持与厚爱！如果您在激活账户中遇到任何问题，请与G|Fashion客服团队联系：customer.service@gfashion.com<br/><br/>G|Fashion客服团队<br/>
@@ -147,13 +154,6 @@ The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO-VICE's Delibe
 
 【The Truth Behind Mr. Miles Guo's Interview with #HBOVICE 】<br/><br/>HBO used Teng Biao to attack Mr. Miles Guo, and the misleading editing only kept Mr. Miles Guo’s video of a potential lawsuit against the reporter. Fight back with full video recoveries of the raw interview: Teng Biao vilified Mr. Miles Guo first and Miles Guo never said Teng Biao is a rapist （Part 2)<br/><br/>【反击 #HBOVICE 采访 #郭文贵 先生】<br/><br/>HBO拿滕彪攻击郭先生，混乱剪辑只留下郭先生说要起诉女记者的片段。还原当时的原始采访进行反击，是滕彪诋毁郭先生在前，而且郭先生从来没有说过滕彪是强奸犯 （第二段）
 ![img](https://media.gettr.com/group25/getter/2021/12/23/10/584bae34-d2a1-eef6-be42-170b28f23e71/out.jpg)
-
----
-
-`@miles 12/23/2021 10:19 AM (UTC)`
-
-【The Truth Behind Mr. Miles Guo's Interview with #HBOVICE 】<br/><br/>HBO used Teng Biao to attack Mr. Miles Guo, and the misleading editing only kept Mr. Miles Guo’s video of a potential lawsuit against the reporter. Fight back with full video recoveries of the raw interview: Teng Biao vilified Mr. Miles Guo first and Miles Guo never said Teng Biao is a rapist （Part 1)<br/><br/>【反击 #HBOVICE 采访 #郭文贵 先生】<br/><br/>HBO拿滕彪攻击郭先生，混乱剪辑只留下郭先生说要起诉女记者的片段。还原当时的原始采访进行反击，是滕彪诋毁郭先生在前，而且郭先生从来没有说过滕彪是强奸犯 （第一段）
-![img](https://media.gettr.com/group46/getter/2021/12/23/10/7ce9a630-d03e-142c-8337-c6f52ef0fd1c/out.jpg)
 
 ---
 
