@@ -2,28 +2,28 @@
 ---
 
 
-## COVID-19 最新情报｜“后悔接种疫苗”压倒性当选荷兰2021年年度词汇
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1782425/)
+## 【中日财经爆】法国雷诺证实与华晨的合资公司已破产
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1782464/)
 
-**撰文｜疫情关注组 / 发布时间｜23/12/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup）](https://gettr.com/user/mightygroup%EF%BC%89)**
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1208.png)[图片来源](https://cn.reuters.com/article/france-renault-china-brilliance-jv-1223-idCNKBS2J203E?il=0)
+法国雷诺汽车周三(12月22日)证实，其与中共国汽车制造商华晨汽车集团的合资企业已经耗尽了现金，正在走向破产重组。
 
-最近几周，荷兰各大社交媒体，广播电视开始讨论2021年的年度词汇提名，并呼吁市民积极投票。时间从2021 年 12 月 7 日开始， 一直持续到 20 日届满，期间，市民可以从15个提名词汇中，投票选出最具代表性的年度词汇。
+“鉴于(合资公司)无力履行其目前的财务义务，公司董事会已决定启动重组程序，”一位发言人说。
 
-官方于21日宣布结果，“prikspijt”一词凭藉82.2%的支持率，压倒性当选为荷兰2021 年的年度词汇收录在荷兰词典“Van Dale”中，它的定义是：一个人很后悔接种了某种传染病的疫苗。
+消息人士在9月表示，雷诺正与拥有中共政府背景的中国华晨讨论结束商用车合资事业，藉以整顿旗下陷于困境的中共国业务。
 
+双方的合作可以追溯到2017年，当时雷诺和华晨中国汽车控股有限公司在辽宁省会沈阳成立合资公司，特别是着手推动电动商用车的发展。
 
+事实证明，中共国市场对一些外国汽车生产商来说是困难的–在中共病毒（新冠病毒）疫情之前销售就陷入了困境，而疫情更是对整个行业造成了打击。
 
-> Als je op de IC ligt omdat je géén prik hebt genomen. Dan heb je pas [#prikspijt](https://twitter.com/hashtag/prikspijt?src=hash&amp;ref_src=twsrc%5Etfw). [https://t.co/oVOHBhEcwX](https://t.co/oVOHBhEcwX)
-> — Hugo de Jonge (@hugodejonge) [December 21, 2021](https://twitter.com/hugodejonge/status/1473198731935862791?ref_src=twsrc%5Etfw)
+雷诺去年放弃了在中共国的主要乘用车业务，因为其与东风汽车的合资企业销售不佳。但雷诺正在与吉利控股集团进行新的尝试，在8月宣布双方建立创新型合作伙伴关系，最初将专注于中共国和韩国等核心快速市场开发混合动力汽车。
 
+消息来源：[法国雷诺证实与华晨的中国合资公司进入重组阶段](https://cn.reuters.com/article/france-renault-china-brilliance-jv-1223-idCNKBS2J203E?il=0)
 
-
-由于该年度词汇明显反应出荷兰人对于接种完 COVID-19 疫苗后的普遍心态，荷兰卫生部长雨果·德荣格（Hugo de Jonge）立即作出反应，他在推特发文，表达了自己对最新年度词汇的不认同，他的评论是：“如果你因为没有打过新冠疫苗而被送入重症监护室，你才该后悔。”
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-10.jpg)
-来源｜[Van Dale](https://www.vandale.nl/) / [Twitter](https://twitter.com/hugodejonge/status/1473198731935862791)
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
