@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/23/2021 6:00 AM (UTC)`
+
+The Truth Behind Mr. Miles Guo's Interview with #HBOVICE<br/><br/>The true mission of GTV and GNews — a bridge of truth and justice between the Chinese and the West, the only media in the world that dares to tell the truth<br/><br/>【反击 #HBOVICE 采访】<br/><br/>GTV、Gnews的真正使命 —— 中国和西方沟通的真相正义之桥梁，世界上唯一一个敢于说出真相的媒体<br/>
+![img](https://media.gettr.com/group4/getter/2021/12/23/05/8aff53ea-c46b-ff89-27c3-56dc2344c20d/out.jpg)
+
+---
+
 `@miles 12/23/2021 5:05 AM (UTC)`
 
 12/22/2021 Miles Guo: Now that the whole world is boycotting the Beijing Winter Olympics, and the CCP is determined to occupy the high grounds of media and public opinion. The release of this manipulated video by VICE at this very moment is to denounce the Whistleblowers’ Movement as a cult and to make the Whistleblowers’ Movement and the overseas Chinese to be the scapegoat for the CCP’s biological weapon - the CCP virus.<br/><br/>12/22/2021 文贵直播：全球抵制北京冬奥会，而中共已决心占领媒体舆论制高点，此时此刻VICE放出这个被剪辑、操纵过的视频，就是要把爆料革命打成邪教、让爆料革命和海外华人给病毒生化武器的罪魁祸首共产党背黑锅<br/>
@@ -149,13 +156,6 @@ The CCP is using social media — American companies — to advance its communis
 
 12月20号：尊敬的战友们好，你们健身了吗？传播C C P的病毒和疫苗解药的真相了吗？一切都已经开始！
 ![img](https://media.gettr.com/group25/getter/2021/12/20/15/31d5a9f5-af01-4735-7258-e55bf937ebfc/out.jpg)
-
----
-
-`@miles 12/20/2021 7:14 AM (UTC)`
-
-12/19/2021 Miles Guo: The CCP’s police forces controlled by the Central Political and Legal Affairs Commission and Meng Jianzhu is one of the greatest factors of Xi Jinping’s insecurity; there is over 70% of chance that Xi may catch the virus and have health problems; the Winter Olympics is Xi’s nightmare and also a great gift from heaven to the Whistleblowers’ Movement!<br/><br/>12/19/2021 文贵直播：政法委、孟建柱控制的警察是习最大的不安全因素之一；习会染上病毒、身体会出问题的可能性超过七成；冬奥会是习的噩梦，也是上天送给爆料革命的大礼！<br/>
-![img](https://media.gettr.com/group10/getter/2021/12/20/07/df201243-a549-43da-27f9-0bf654be27f0/out.jpg)
 
 ---
 
