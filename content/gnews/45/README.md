@@ -2,22 +2,24 @@
 ---
 
 
-## 牧师妻子称自接种疫苗后葬礼不断
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1782727/)
+## FDA严重拖长病毒疫苗数据开放时间
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1782775/)
 
-撰稿：东京樱花团—在远方
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-1.png)
-12月22日，郭文贵先生盖特转发了一位牧师妻子的采访视频。被问及疫苗强制接种时，牧师妻子表示，自从开始接种中共病毒疫苗以来，葬礼一个接着一个。人们通常认为疫苗能加强免疫力，但她知道很多注射了两针、甚至三针疫苗的人，仍旧感染了中共病毒，而且病得很重。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1220.png)
-政府在社交媒体平台上塑造虚假的“道德模范”，标榜注射疫苗就是在保护他人，但其实疫苗却在伤害自己。这种mRNA基因细胞技术，作为试验品不起任何免疫作用反而异常危险。牧师妻子表示，即使在疫情高峰期时，她的丈夫也很少主持葬礼，医院也很空。但自从开始接种疫苗以后，她的丈夫不停地接到电话被邀请主持葬礼。杀死人们的正是疫苗造成的损伤，如心脏病、中风、血栓、心肌炎，以及被疫苗诱发的癌症等。
+撰稿： 纽约香草山翻译部  defiance
 
-新闻链接: https://www.gettr.com/post/pkbk734f02
+据儿童健康守护组织12月17日报道，公共卫生和医疗专业人员透明度组织PHMPT近日对FDA发起了诉讼，要求FDA公布紧急批准辉瑞公司科米纳蒂疫苗的相关文件和数据。但据该组织指出，FDA严重拖长了资料开放所需的时间，并且为此项工作配员不足。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1222.png)
+按每人平均每小时50页的超低审核速度，要审查FDA估计的几十万页材料，该机构也仅需要19名审核员全职工作12周，就能完成所有查验资料和文档制作工作，而不是一家联邦地区法院所评估的75年。
+
+辉瑞有大约18000名员工，19个人只是零头。在口头辩论的前一天，FDA发布了14份文件，最长2030页。PHMPT要求辉瑞在108天内公布所有文件。
+
+
+
+新闻链接：[FDA Should Need Only ‘12 Weeks’ to Release Pfizer Data, Not 75 Years, Plaintiff Calculates](https://childrenshealthdefense.org/defender/fda-pfizer-comirnaty-vaccine-data-twelve-weeks/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-5.png)
 
-总编: 飞虹
-
-编辑: 童谣
+总编/编辑：童谣
 
 校正/发稿：浪迹天涯
 
@@ -28,8 +30,6 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-1.png)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,115 +2,55 @@
 ---
 
 
-## 12/23每日播报|社媒消息：班农先生 杰森米勒
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1783412/)
+## 12月22日大直播概要
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1783452/)
 
-BY：[密翻新聞](https://gtv.org/broadcast/watch/61c43a0900f9a1191808efcc)
+整理：顺其自然
+编辑：**Kelly**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2021-12-23.21.12.047-1.jpg)图片来源：雅典娜农场设计组
+在美国时间的12月22日，郭先生与几位嘉宾做了5个多小时的直播，在直播中，郭先生与几位嘉宾主要讲了：
 
-**2021-12-2**3
+1）杨贝贝是在半年前，五六月份的时候进行的采访，采访了几个小时，但是最后只剪接成了几分钟，中共就是要在冬奥会前把爆料革命定性为邪教，因为邪教是可以被遣返驱离的，当然这还要走程序。几年以来，各路媒体攻击迫害郭先生，例如：2017年马蕊强奸案并制作虚假性录音、2018年开始炒作郭先生被遣返、2019年炒作郭先生破产，BBC中文、RFA中文、DW中文报道，污蔑郭先生为双面间谍，然后博讯、阿波罗等海外华文媒体大篇幅跟进报道。2020年针对GTV，华尔街日报造谣郭先生、班农先生，说GTV接受FBI调查。爆料革命战友遭受推特大面积封杀，Youtube限流黄标等问题。2021年炒作SEC对GTV的审查，造谣和解的真实内容。而在2020年6月，斯坦福报告官方揭露了中共五毛水军在推特上的活动，同时推特宣布删除属于中国的23750个账户，其攻击的主要目标话题就是四个，香港，郭先生、冠状病毒和台湾。
 
-**1. 《国家脉动》12月22日在盖特发文：** 即将离任的美国国立卫生研究院NIH院长弗朗西斯·柯林斯 (Francis Collins) 哀叹没有对“人类行为”进行更多研究。 【推文转报道，柯林斯在接受《PBS新闻一小时》 采访时无耻的说，“他对其机构在人类行为研究方面投资不足”表示遗憾，同时对数千万美国人选择不接种新冠疫苗表示哀叹。我在一年前从未想过，会有六千万人拒绝接种疫苗。“在领导NIH期间，柯林斯因为资助了摘取活体胎儿器官而备受争议，同时他还用纳税人的钱资助了几项与中共和中共军方有关联的研究计划，包括武汉实验室的功能增强研究。】
+2）杨贝贝在联系Nico的时候，说她要做一个关于美国华人为什么支持川普的纪录片，最后却做成了攻击诋毁郭先生的片子。Nico他们在1月6日的国会事件当中都是非常和平的，而在杨贝贝采访的纪录片中却把Nico等人说成是暴乱分子，把所有到国会那边和平抗议的华人都说成是暴徒。
 
-[https://gettr.com/post/pkdi3k93ae](https://gettr.com/post/pkdi3k93ae)
+3）HBO是唯一一家长年在中国的五星酒店播放的电视媒体平台，是国际上最老最大的媒体，它的老板是时代华纳。想想，能在中国播放的外国媒体，不与中共勾兑，不遵守中共的游戏规则，怎么可能让你在中国播放呢？五星级酒店是有很多中国人入住的，所以自以为在五星级酒店里能看到西方新闻的国人，其实这些新闻一样是经过过滤歪曲的。
 
-**2. 真正美国之声12月23日发推说：** 美国司法部周二宣布，在新冠大流行期间被释放、然后在家隔离监禁的数千名囚犯，在卫生紧急状况结束后不应自动被重新监禁。 【推文转报道，司法部长梅里克·加兰 指示司法部授予美国监狱管理局（U.S. Bureau of Prisons）自由裁量权，以决定被释放到家中监禁的囚犯是否应被送回联邦设施或仍继续留在他们的家中。自2020年3月以来，已有超过36000名囚犯被释放到家中监禁。许多人已经完成了他们的刑期，有些人则因违反规定而被重新监禁。加兰说：“数千在家监禁的人已经与他们的家人重新取得联系，找到了有报酬的工作，并遵守了规则。我们将行使我们的权力，使那些已经取得康复进展并遵守家庭监禁规定的人，以及那些应该得到机会继续过渡到社会的的人，不会被不必要地送回监狱。”】
+4）西方人对媒体的信任就像对科学的信任一样，西方的人特别相信政府，VICE在西方有很高的知名度，美国人不会去甄别背后的老板是谁。TPG加入VICE是单伟建安排的，直接投入几亿美金，外资股东的最终受益人与郭先生有直接利益冲突。这个事情很危险，在美国是不能接受的，杨贝贝背后的老板和中共还有王岐山连在一起。中共就希望全球都排华，我们现在就面临着这种威胁，而这个杨贝贝在帮中共威胁全球华人。中共对西藏、新疆、香港的大屠杀，对台湾威胁，对世界蓝金黄，病毒真相，建海外军事基地，都要转嫁到爆料革命身上。
 
+5）1966年、1968年、1970年，印尼华人的遭遇就是中共在背后鼓捣的，结果无数华人在印尼排华中被杀害。杨贝贝纪录片中丑化华人是对全球华人的丑化，这个纪录片会让全世界人都认为中国人是可怕的，任何西方学校都不会再接受中国学生了，九成的大专院校在左派手里。在冬奥会之前，习近平要控制所有的媒体，要不惜一切代价在西方媒体占据制高点，消除反对冬奥会的杂音，消灭所有异议的声音。让支持冬奥会的人站出来，共产党给很多国家免除了债务，中国将付出几千亿美元，搞一场政治冬奥会。
 
+6)未来，只要反对共产党的都是邪教，只要反冬奥会的都是暴力分子，中美将会取消关税。
 
-> The Justice Department announced Tuesday that thousands of inmates who were released to home confinement during the [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) pandemic should not automatically be re-imprisoned after the health emergency ends.[https://t.co/9eoetZalKs](https://t.co/9eoetZalKs)
-> — Real America's Voice (RAV) (@RealAmVoice) [December 23, 2021](https://twitter.com/RealAmVoice/status/1473819393196912643?ref_src=twsrc%5Etfw)
+7）西方很多人通过这次杨贝贝的报道真的看明白了，爆料革命是真灭共的，西方媒体是真的造假，包括看清这种伪装的记者。他们一定会明白这个报道有什么目的，这个报道完全是抹黑的。BBC的朋友都说杨贝贝是有计划地抹黑，FBI一定会调查这次报道，就像梁冠军被调查一样，一定会发生。
 
+8）昨天喜币的砸盘是老班长和长岛哥故意砸的，套现了1000多万喜美元，然后这些套现的钱归爆料革命使用。现在共产党就是在想尽一切办法消灭爆料革命的声音，把爆料革命变成邪教和犯罪集团，在内部搞渗透和分化。
 
+9）这次的奥米克戎引起的综合症比我们想象的大得多，纽约的病毒检测棒现在已买不到，德州火葬场排队，墓地排队。西安所有的病例都是疫苗综合症导致的。疫苗导致的出血热，疫苗在不同人种、不同气候背景下造成的后果完全不一样。在俄罗斯可能是脑梗、心梗，心脏最受伤害，然后是肝脏；美国是前列腺癌多；日本是男女的性器官，脑梗，战友们要尽量呆在家里。早在2020年爆料革命就说疫苗灾难和次生灾害是最大的灾害，2021年底是真正灾难的开始，12月大爆发，而且是在感恩节后美国及世界大爆发，这不是蒙的，这是爆料革命的科学家和内部情报判断出来的，习近平一定要打赢这场中美世界大战。还有一点，这个新病毒青蒿素和伊维菌素不是100%的管用。
 
-**3. 真正美国之声12月23日发推说：** 看来，福奇和美国国立卫生研究院的其他人正在努力限制医生提供新冠早期治疗的能力。泽伦科医生对此回复说：“扼杀辩论表明他们想隐藏真相。”
+10）这一次疫情比2020年的还要严重。所有的强制疫苗都会在两个月以内基本结束，不会超过明年五月份。疫苗灾难和全球经济危机会在明年五月份后开始，靠我们自己的力量是无法停止疫苗的，我们起到杠杆儿作用，告诉大家，当初支持疫苗儿和打疫苗的，到现在已经完全逆转。这次病毒和疫苗灾难，最邪恶的就是共产党和全世界的媒体。
 
+11）彭帅的事情很清楚了，是国安部紧急处理小组出面做的，北京安全局对微博相关信息处理封杀，对彭帅的家人，包括表亲表弟采取全面措施，然后迅速提出了两条的评估意见：第一，彭帅事件对冬奥会产生巨大的影响；第二，彭帅说的是事实，后面很有可能还有一系列的行动。最后，中央决定不惜一切代价，不考虑一切后果，在冬奥会前让这件事情平息。各部门儿要启动紧急机制，用不同的方案处理不同的人。彭帅事件处理中的一个女性，是个谈判专家，亲自找彭帅，跟彭帅家人谈，明确说：“即日起，你不是彭帅，你们不是彭帅的爹妈，你们是我党、我国、我们中华民族的罪人。”跟随她的所谓四五个谈判专家，长达二十几个小时跟彭帅家人谈心说：“彭帅，你的经历我们很理解，但国家的利益更重要，不仅你的事业毁了，家人毁了，你还成为了国家罪人。”他们还说：“国际网球组织、海外反华势力犯罪集团会给你任何利益吗？他们就是在利用你。”
 
+12）“我党在外交上遭受了重大挫折，如果因为你冬奥会不能举行，你知道多少运动员苦练了几年不能比赛，这对他们伤害有多大？咱国家为此花了多少钱？民族复兴，百年大计让你给毁了，你个人的生活怎么能跟国家、党、民族连在一起呢？张高丽是党和国家领导人，你们两个人完全代表了国家领导人和14亿中国人的对外形象，你把所有运动员的前程都毁了。”谈判专家第四波是检查彭帅的身体时说的，彭帅吃了11年抗抑郁症的药，说：“你的抑郁症和暴躁症合起来，你精神不健康，状态很严重。”彭帅曾多次打胎，又说：“你妇科有毛病，精神也有疾病，你再折腾下去，你就成疯子了。”
 
-> It appears that Dr. Fauci and others at the NIH were working to limit doctors ability to provide [#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw) early treatments and therapeutics. In response, Dr. Valdimir "Zev" Zelenko says that “stifling debate shows a desire to hide the truth.’[@jfradioshow](https://twitter.com/jfradioshow?ref_src=twsrc%5Etfw) [#OutsideTheBeltway](https://twitter.com/hashtag/OutsideTheBeltway?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/11cGqqUDyy](https://t.co/11cGqqUDyy)
-> — Real America's Voice (RAV) (@RealAmVoice) [December 23, 2021](https://twitter.com/RealAmVoice/status/1473808083000254478?ref_src=twsrc%5Etfw)
+13）彭帅和张高丽在一起期间，和其他三个男人，有短暂的同居。后来张高丽听说了，威胁彭帅，要弄死她，彭帅又回到张高丽身边，彭帅交的三个男友，其中一个被抓起来，现在还关在天津的监狱，就是关没有判，家里很有钱，天津当地的，另两个被消失。接下来还会有五家世界级媒体采访彭帅，有CNN，BBC、日本媒体等。所有这一切，就是要彭帅承认这是自愿的，是谈恋爱，不是性侵，彭帅三任男友都被处理掉，如果没有动用政治力量，怎么可能做到？
 
+13）张高丽个人和家族一定会被审判。张高丽玩处女，广东惠州的一个朋友，她的女儿差几天还不到13岁，进了张高丽办公室，一个小时出来说被张高丽强奸了。最后秘书出面儿，协调给这人批了一大块儿地，搞房地产。彭帅一定会被消失的，用什么精神病，自杀，出车祸、跳墙死等等，当党需要的时候，张高丽某天也会被消失。
 
+14）在玉泉山小餐厅，习近平、韩正、栗战书亲自和彭帅谈话，一句不谈张高丽，就听听彭帅对冬奥会的一些建议，关心彭帅的身体，讲讲中国人的屈辱历史，还吃了点儿小餐，然后就把彭帅送走了，彭帅被送到了西边儿钓鱼山庄旁边的一个安全部的秘密点儿。
 
-**4. 真正美国之声12月23日发推说：** 几个基督教组织向美国最高法院提出上诉，要求暂停执行美国劳工部的疫苗强制令，他们认为该项强制令违反了宪法第一修正案和1993年的《宗教自由恢复法》（Religious Freedom Restoration Act）。 【推文转报道，位于德克萨斯州的第一自由研究所（First Liberty Institute）代表这些组织提起了诉讼，长达179页的诉讼书要求负责第六巡回法庭的布雷特·卡瓦诺 (Brett Kavanaugh) 大法官发出暂停令，禁止执行美国职业安全与健康管理局OSHA针对拥有百名雇员以上企业的疫苗强制令。这些基督教组织认为，OSHA的规定违反了受法律保护的宗教自由，因为它不允许有任何宗教上的豁免或便利。】
+15）彭帅的家人永远不可能有自由。彭帅所有的家人、亲戚连同她的表亲的信用卡都在查封 的状态。
 
+发布：去中心化Math
+**
+**更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-
-> Several Christian organizations have appealed to the US Supreme Court to issue a stay prohibiting the U.S. Department of Labor from enforcing a vaccine mandate that they argue violates the First Amendment and the Religious Freedom Restoration Act of 1993.[https://t.co/3CoLjYeWS8](https://t.co/3CoLjYeWS8)
-> — Real America's Voice (RAV) (@RealAmVoice) [December 22, 2021](https://twitter.com/RealAmVoice/status/1473775359225044994?ref_src=twsrc%5Etfw)
-
-
-
-**5. 班农先生12月22日在盖特发文：** 在其垂死的阵痛中，非法的拜登政权完全没有意识到，也没有做好犯罪的准备，就向仍对新冠疫苗犹豫不决的美国公民开战了。
-
-[https://gettr.com/post/pkcvwgebd1](https://gettr.com/post/pkcvwgebd1)
-
-**6. 新唐人12月22日在盖特发文：** 奥地利林茨市正在雇人寻找未接种新冠疫苗的人，并确保该国宣布了一项全国性的疫苗强制令后让那些人支付罚款。 【盖文转报道，根据林茨市议会官方网站上发布的招聘广告，该职位的月薪至少为2774欧元，职责包括为未接种疫苗的人准备刑事命令、处理对该命令的上诉、对这些人采取措施。当然，这项工作只对已完全接种的奥地利公民开放。自明年2月1日起，所有在奥地利有住所并且年满 14 岁的人都必须接种新冠疫苗。约有20万人口的林茨市是整个奥地利疫苗接种率最低的地区，目前只有63%的市民接种了两剂疫苗。】
-
-[https://gettr.com/post/pkcv547621](https://gettr.com/post/pkcv547621)
-
-**7. 印太新闻 – 关注中共威胁 12月22日发推说： **根据维基解密获得的美国国务院在2009年6月的一份电报，时任美国国务卿的希拉里·克林顿警告法国，武汉实验室的功能增强研究可能会导致“生物武器扩散问题”。 【推文转《en Volve》报道，2009年9月在巴黎举行的澳大利亚集团（Australia Group）全体会议之前，所有成员国的大使馆都收到了这些电报。澳大利亚集团是一个“非正式”的国际出口管制论坛，其目的是确保出口不被用于化学或生物武器的研发和扩散。克林顿在给法国的一封电子邮件中说：“美国认为参与者将从您协助中国在武汉病毒研究所建立生物安全 4 级 实验室时的出口管制和无形技术转让中受益。我们认为必须关注新兴的化学和生物技术、以及与化学武器有关的货物贸易趋势和威胁。”克林顿还要求澳大利亚集团成员交出那些与中共的生物和化学武器计划有关的信息。】
-
-
-
-> Hillary Clinton Warned ‘Biological Weapons’ Being Made at [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) Wuhan Lab on 2009
-> 
-> State Department cables obtained by WikiLeaks reveal Clinton warned [#France](https://twitter.com/hashtag/France?src=hash&amp;ref_src=twsrc%5Etfw) that gain-of-function activities at Wuhan lab were a “biological weapons proliferation concern.”[https://t.co/tKpMj1Spsh](https://t.co/tKpMj1Spsh) [pic.twitter.com/qwixGYeowK](https://t.co/qwixGYeowK)
-> — Indo-Pacific News – Watching the CCP-China Threat (@IndoPac\_Info) [December 22, 2021](https://twitter.com/IndoPac_Info/status/1473557020720517127?ref_src=twsrc%5Etfw)
-
-
-
-**8. 盖特官方12月23日发推说：** 杰森米勒在接受El American采访时说：“硅谷科技寡头公然实行的影子禁令和审查制度并不仅仅适用于保守派，许多自由派人士也正在认识到这一新的现实。我们欢迎他们在盖特上实践他们的言论自由权利。”
-
-
-
-> “The blatant shadow banning and censorship practiced by Silicon Valley doesn’t just apply to conservatives. Many liberals are waking up to this new reality too, and we welcome them to practice their right to free speech here on GETTR.” – [@JasonMillerinDC](https://twitter.com/JasonMillerinDC?ref_src=twsrc%5Etfw)[https://t.co/fHHD0n1xAG](https://t.co/fHHD0n1xAG)
-> — GETTR (@GETTRofficial) [December 22, 2021](https://twitter.com/GETTRofficial/status/1473715269302431767?ref_src=twsrc%5Etfw)
-
-
-
-**9. 《华盛顿时报》12月22日发推说：** 五角大楼的印太司令部最近公布了一个软件应用程序，军方官员说，该程序可以预测中共军队对美国在该地区活动的反应，以缓和紧张局势。 【推文转报道，一些分析家警告说，该应用程序代表着美国对中共的绥靖政策又进一步，美国的决策者们对惹恼北京产生了恐惧，因此他们被中共领导人所操纵。国防部的官员和发言人说，该软件工具旨在系统地衡量中共对美国在该地区行动的反应，比如对台湾的武器销售，在有争议的海域进行海军和空军演习，以及国会访问台湾。一位国防部官员表示，该工具衡量美中“战略摩擦”（strategic friction），该工具研究了自2020年年初以来的数据，评估各种影响美中关系的重大活动。军事领导人和五角大楼的政策制定者将利用它来预测北京将如何应对美国的行动。该软件是拜登政府寻求遏制中共侵略行为的政策的一部分，同时不惜一切代价防止世界上两个最强大的国家和两个最大的经济体之间发生公开冲突。】
-
-
-
-> The Pentagon’s Indo-Pacific Command recently unveiled a software application that military officials say will monitor Chinese military anger at U.S. activities in the region in a bid to reduce tensions. [#TWTFrontPage](https://twitter.com/hashtag/TWTFrontPage?src=hash&amp;ref_src=twsrc%5Etfw)[https://t.co/IWywizx61d](https://t.co/IWywizx61d)
-> — The Washington Times (@WashTimes) [December 22, 2021](https://twitter.com/WashTimes/status/1473660506971979777?ref_src=twsrc%5Etfw)
-
-
-
-**10. Disclose.tv 12月23日发推说： **尽管在过去的12个月，英国政府进行了所有的疫苗接种工作，但疫情仍无法遏制，英国最新的单日新增新冠病例数首次超过了10万。
-
-
-
-> JUST IN – UK reports over 100,000 new [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) cases for the first time despite all vaccination efforts during the last 12 months.
-> — Disclose.tv (@disclosetv) [December 22, 2021](https://twitter.com/disclosetv/status/1473688611572924429?ref_src=twsrc%5Etfw)
-
-
-
-**11. Disclose.tv 12月23日发推说：** 德国慕尼黑的数千市民再次走上街头，抗议防疫限制措施和疫苗强制令。警方可以阻止一两次抗议活动，但无法阻止多次。
-
-
-
-> NOW – Thousands protest in [#Munich](https://twitter.com/hashtag/Munich?src=hash&amp;ref_src=twsrc%5Etfw) against Covid restrictions and compulsory vaccinations again. Police could not stop the large crowd multiple times.[pic.twitter.com/kAvEjaicIs](https://t.co/kAvEjaicIs)
-> — Disclose.tv (@disclosetv) [December 22, 2021](https://twitter.com/disclosetv/status/1473765998851461124?ref_src=twsrc%5Etfw)
-
-
-
-**12. 喜马拉雅战鹰团12月23日在盖特发文：** 彼得·麦卡洛博士说：“最有效的传染控制，是口鼻消毒疗法，任何消毒剂，比如，碘可以消毒。 用一个鼻腔喷雾器或者滴管，喷入口腔，吸入鼻腔深处直到嗓子里，然后再嘴里吐出来。必须从鼻子吸进去，这样才能有效清理鼻腔，然后用剩余的溶液漱口吐出来。最后用Scope或者Listerine漱口水漱口。
-
-[https://gettr.com/post/pkf9zse752](https://gettr.com/post/pkf9zse752)
-
-**13. 郭文贵先生12月23日在盖特发文：** 中共对人类释放的复合性病毒，有快速死亡、慢速死亡、长期死亡。这些病毒正在威胁全人类，为什么全世界的政府不找中共要病毒的真相？ 突发：奥米炕变种浪潮将席卷美国，到明年3月将有 60% 的人受到感染，新感染人数将达到 1.4 亿，但华盛顿大学警告说，90% 的人永远不会出现症状。
-
-[https://gettr.com/post/pkegqnab97](https://gettr.com/post/pkegqnab97)
-
-**以上社交媒体新闻由 巴拉克和Stephanie 联合编译报道**
-
-发布：陸柒陸捌
-
-* * *
-
-**By 【秘密翻译组-即时新闻播报组】**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/秘翻海报.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

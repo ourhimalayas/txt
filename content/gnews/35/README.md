@@ -2,24 +2,56 @@
 ---
 
 
-## 最高法院将于1月初听取强制接种中共病毒疫苗的辩论
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1783005/)
+## 由于接种Covid疫苗才使大流行持续
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1783202/)
 
-#### 撰稿：彩虹
+编译： Jenny Ball
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-35.jpg)图片来源：福克斯
-12月22日，《国会山报》报道，最高法院将于下个月听取针对拜登政府要求雇主强制对员工接种中共病毒疫苗的口头辩论。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-1-13.jpg)ecpc.org
 
-文章说，周三晚上，大法官们宣布，为此类案件制定了一个快速时间表。在发布的一对命令中，最高法院表示，将于1月7日听取有关拜登总统对大型雇主的强制疫苗接种和测试，以及CMS（医疗保险和医疗补助服务中心）要求医护人员强制接种中共病毒疫苗规定的口头辩论。为了加速这些案件时间表，最高法院推迟了对是否阻止新规定的裁决，直到听完这些法律挑战口头辩论后。
+自大流行开始以来，全世界就被告知，通过“神速”注射“接种”疫苗，将“治愈”武汉冠状病毒 (Covid-19)。然而，将近两年过去了，事实证明恰恰相反。
 
-根据报道，职业安全与健康管理局（OSHA）上个月发布了一项规定，要求员工人数超过100人的公司强制要求其工人接种中共病毒（COVID-19）疫苗或进行定期测试，并采取其他措施来防止中共病毒的传播。而CMS的规定则要求全国几乎所有的医疗工作者都要接种中共病毒疫苗。
+新发表在《柳叶刀》杂志上的研究人员君特·坎普（Günter Kampf）的一封信，揭露了主流对疫苗注射叙述中的一些重大漏洞，其中最大的一个漏洞是“福奇流感”(Fauci Flu)疫苗并没有像声称的那样阻止传播。
 
-报道认为，由于这两项政府的强制规定将于1月份生效，从而下级法院对这两项规则意见的不一，促使最高法院有了干预的紧迫感。
+事实上，与那些让自己的免疫系统自然对抗疾病的人相比，在按照政府指导方针而接种疫苗注射的人中，疾病和死亡的传播似乎更大。
 
-**新闻来源**
+根据坎普的说法，依据最新数据，完全接种疫苗的人“正在增加”流行病的相关性。 往好了说，疫苗没有提供任何保护，而最糟糕的是，Covid疫苗使人更容易出现负面的健康结果。
 
-[Supreme Court to hear challenges to vaccine mandates in early January](https://thehill.com/regulation/court-battles/587044-supreme-court-to-hear-challenges-to-vaccine-mandates-in-early)
+“在英国，据描述，完全接种疫苗的病例与未接种疫苗的病例相似（接种疫苗的 25% 与未接种疫苗的 23%），” 坎普写道。
+
+“在完全接种疫苗的家庭接触者中，31 例感染中，有 [12 例] (39%) 来自完全接种疫苗的病例。峰值病毒载量，不会因疫苗接种状态或变异类型而异。”
+
+他补充说，在德国，接种疫苗者中出现症状的新冠病毒感染率正在上升。早在 7 月份，60 岁及以上的患者中，这一比例约为 16.9%。截至 10 月 27 日，这一数字猛增至 58.9%，“**这提供了明确的证据，表明完全接种疫苗的人作为可能的传播源的相关性越来越大。**”
+
+类似的现象也在英国，以色列和其他大量接种福奇流感疫苗的地方发生，完全接种疫苗的人中出现症状的新冠肺炎病例正在上升。
+
+美国CDC最近宣布，完全接种疫苗人口比例最高的前五名县中，有四个是“高”传播县。
+
+所有这些都表明，**接种****Covid****疫苗，很可能意味着生病或将疾病传播给他人**。然而官方的说法是，完全接种疫苗的人，甚至不能算作潜在的传播源。
+
+“在决定公共卫生控制措施时，忽视接种疫苗的人群作为可能的相关传播来源，似乎是严重渎职，”坎普说。
+
+坎普警告说，继续将当前情况称为“未接种疫苗的大流行”是完全错误的。实际上，这是接种疫苗的大流行，因为，**如果每个人都选择不接种疫苗，大流行现在就已经结束了**。
+
+**评论：事实大于雄辩，真相大于谎言，CDC，政府和媒体必须停止杀人的谎言！**
+
+内容来源：
+
+[Pandemic.news](https://pandemic.news/).
+
+[TheLancet.com](https://www.thelancet.com/journals/lanepe/article/PIIS2666-7762%2821%2900258-1/fulltext)
+
+[NaturalNews.com](https://naturalnews.com/2021-12-18-lancet-letter-stigmatizing-unvaccinated-society-not-justified.html)
+
+[newstarget][Lancet science paper DESTROYS false narrative of covid vaccines, reveals vaccinated are PERPETUATING the pandemic](https://www.newstarget.com/2021-12-21-lancet-paper-destroys-false-narrative-covid-vaccines.html)
+
+* * *
+
+*审核：文乐*
+*校对 : 阿伯塔*
+*发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-5.jpeg)
 
  
 

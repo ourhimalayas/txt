@@ -2,40 +2,75 @@
 ---
 
 
-## 单伟建派出的杨贝贝坦承爆料革命在全球掀起的反共浪潮
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1782884/)
+## 英国上个月数据：已接种疫苗者占新冠死亡人数的80%
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1782923/)
 
-最早看到的就是大卫和木兰，这就是说，我让她采访，知道来黑咱来了，我们全程记录，她在镜头前就敢说，是全球掀起的反共浪潮，你说我啥感觉兄弟姐妹们？
+据《dailyexpose.uk》 2021年12月18日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3300.png)图片：洛杉矶盘古农场 设计部-汪汪
+根据英国卫生安全局最新发布的关于Covid-19确诊、住院和死亡的数据显示：在过去四周里，那些被认为是最容易感染Covid-19的人群在9月和10月接受了“加强针”注射。这些人群占每5例Covid-19死亡病例中的4例。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1226.png)
+报告“Covid-19疫苗监测报告-第50周”由英国健康安全局（UKHSA，前身为公共卫生英格兰）周四（2021年12月16日）发布。它表明，11月15日至12月的绝大多数Covid-19案例是完全接种疫苗的人群。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1227.png)来源 – 第 35 页
+2021年11月15日至12月12日间，该报告表8确认的按疫苗接种状态划分的病例统计数据如下：
 
-我告诉大家，这是我一生中很大的一场荣幸，敌人派来的美女尖兵，竟然说你是我们最大的敌人，而且对我们造成了最大的威胁，哇塞！我这太幸福了！当时你看我那个表情，我就幸福的已经不得了啦。
+未接种疫苗的人群 = 417,606例
+部分接种人群 = 79,378 例
+三针/两针接种人群 = 518,373 例
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1228.png)
+这意味着接种疫苗人群占11月15日至12月12日间Covid-19病例的59%，而未接种疫苗人群仅占41%。进一步，当我们从等式中去除18岁以下的人群，其中许多人没有资格接种疫苗，接种疫苗后染病的人数比例更糟糕。
 
-单伟建，共产党派出来的人，竟然这么说咱，那就是敌方的批评，就是最大的奖励。
+2021年11月15日至12月12日间，该报告表8确认，18岁以上人群按疫苗接种状态划分的病例统计数据如下：
 
-编辑整理：海贼王M.D.LUFFY；
+未接种疫苗的人群 = 104,612 例
+部分接种人群 = 32,004 例
+3针/2针接种人群 = 517,061 例
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1229.png)
+这意味着在2021年11月15日至12月12日间，18岁以上人群中，接种疫苗的人群占Covid-19病例的84%，而未接种疫苗的人群仅占 16%。
 
-字幕文件制作：小满；
+不幸的是，最新报告还显示，尽管“加强针”推广正在进行中，但绝大多数Covid-19住院患者也属于2021年11月15日至12月12日间完全接种疫苗的人群。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1230.png)来源 – 第 36 页
+报告表9证实，2021年11月15日至12月12日间所有年龄组人群按疫苗接种情况划分的住院总数如下：
 
-视频制作及上传：Cindy；
+未接种疫苗的人群 = 3,532例
+部分接种疫苗的人群 = 345例
+三重/双重接种人群 = 4,256例
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1231.png)
+这意味着接种疫苗人群占11月15日至12月12日间Covid-19 住院人数的57%，而未接种疫苗的人群仅占43%。
 
-G-News发布：小满；
+但是，涉及到与Covid-19死亡相关的数据时，接种疫苗和未接种疫苗之间的差异再次变得更糟。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1232.png)来源 – 第 37 页
+该报告表10证实，11月15日至12月12日间，按疫苗接种状态划分的Covid-19死亡总数如下：
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+未接种疫苗的人群 = 718 人死亡
+部分接种疫苗的人群 = 82 人死亡
+三重/双重接种人群 = 2,259 人死亡
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1233.png)
+这意味着接种疫苗的人群占11月15日至12月12日间Covid-19死亡人数的77%，而未接种疫苗的人群仅占23%。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1234.png)
+接种疫苗人群占每10例Covid-19病例中的6例、每10例Covid-19住院病例中的6例、每10例Covid-19死亡病例中的8例。现在英国主流媒体开始谈论（继奥地利、希腊、德国和法国之后，在英国强制接种疫苗的）“疫苗强制令”真的有任何合理性吗？
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+在苏格兰和威尔士，以及在英格兰实施的疫苗护照是否有任何正当理由？
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+对未接种疫苗的人群进行限制（例如如果与疑似确诊感染者有密切接触，则强制他们接受检测并在家隔离10天）而允许接种疫苗的人自由活动，是否有任何正当理由？
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+Covid-19 疫苗注射不能预防感染。
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+Covid-19 疫苗注射不会阻止传播。
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+根据数据，它们看起来也不能防止住院或死亡。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+Covid-19注射目前唯一阻止的是对个人在2020年之前拥有的基本人权的尊重。
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+原文链接：[**https://dailyexpose.uk/2021/12/18/triple-vaccinated-account-4-in-5-covid-deaths/**](https://dailyexpose.uk/2021/12/18/triple-vaccinated-account-4-in-5-covid-deaths/)
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+翻译：洛杉矶盘古农场 – 柯镇恶
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
