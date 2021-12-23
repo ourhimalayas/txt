@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/23/2021 10:31 AM (UTC)`
+
+【The Truth Behind Mr. Miles Guo's Interview with #HBOVICE 】<br/><br/>HBO used Teng Biao to attack Mr. Miles Guo, and the misleading editing only kept Mr. Miles Guo’s video of a potential lawsuit against the reporter. Fight back with full video recoveries of the raw interview: Teng Biao vilified Mr. Miles Guo first and Miles Guo never said Teng Biao is a rapist （Part 2)<br/><br/>【反击 #HBOVICE 采访 #郭文贵 先生】<br/><br/>HBO拿滕彪攻击郭先生，混乱剪辑只留下郭先生说要起诉女记者的片段。还原当时的原始采访进行反击，是滕彪诋毁郭先生在前，而且郭先生从来没有说过滕彪是强奸犯 （第二段）
+![img](https://media.gettr.com/group25/getter/2021/12/23/10/584bae34-d2a1-eef6-be42-170b28f23e71/out.jpg)
+
+---
+
 `@miles 12/23/2021 10:19 AM (UTC)`
 
 【The Truth Behind Mr. Miles Guo's Interview with #HBOVICE 】<br/><br/>HBO used Teng Biao to attack Mr. Miles Guo, and the misleading editing only kept Mr. Miles Guo’s video of a potential lawsuit against the reporter. Fight back with full video recoveries of the raw interview: Teng Biao vilified Mr. Miles Guo first and Miles Guo never said Teng Biao is a rapist （Part 1)<br/><br/>【反击 #HBOVICE 采访 #郭文贵 先生】<br/><br/>HBO拿滕彪攻击郭先生，混乱剪辑只留下郭先生说要起诉女记者的片段。还原当时的原始采访进行反击，是滕彪诋毁郭先生在前，而且郭先生从来没有说过滕彪是强奸犯 （第一段）
@@ -150,13 +157,6 @@ The CCP is using social media — American companies — to advance its communis
 
 12月21日：😱😱😱😠😠😠【Vicar’s wife says since the roll-out of Covid injections there ‘s been funeral after funeral,after funeral. It’s tragic<br/>牧师的妻子说，自从开始接种新冠疫苗以来， 葬礼一个接一个。真的很悲剧。】
 ![img](https://media.gettr.com/group19/getter/2021/12/21/22/837b9a39-ced5-b90a-0a46-b0c8f0a689c8/out.jpg)
-
----
-
-`@miles 12/21/2021 12:40 PM (UTC)`
-
-12月21号：一个国家副主席沦落成……一个刚当主持人．为习洗脚的角色，真够可怜的啦，王岐山完了，死不了也活不好的状态，对他而言是最痛苦的……
-![img](https://media.gettr.com/group45/getter/2021/12/21/12/6b85f6c2-bafa-e382-0168-51017426f5c8/2b10a2ea0f3c89d9a9650b21ca77b753.jpg)
 
 ---
 
