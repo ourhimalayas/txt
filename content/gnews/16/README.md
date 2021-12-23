@@ -2,30 +2,67 @@
 ---
 
 
-## 多位金融高管违法，平安信托陈刚被重判
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1782349/)
+## 明年5月份以前 这个世界会相当动荡
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1782393/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Unknown-28.jpg)多位金融高管违法，平安信托陈刚被重判 网络图片
-据中国基金报12月22日报道，审计署官网21日发布2021年第5号公告《审计署移送违纪违法问题线索查处情况》，通报原中信集团党委委员、执行董事赵景文等10位金融领域高管的违法犯罪情况。其中平安信托有限责任公司江苏区域事业部原负责人陈刚被判处有期徒刑15年，并处没收财产1500万元，追缴违法所得5.32亿元。
+[https://gtv.org/video/id=61c34a4f43ccb726a089d0e7](https://gtv.org/video/id=61c34a4f43ccb726a089d0e7)
 
-平安信托有限责任公司成立于1996年4月9日，法定代表人为董事长姚贵平，注册资本130亿元，经营范围包含本外币业务、各种信托等。该公司由中国平安持股99.8809%，由上海市糖业烟酒（集团）有限公司持股0.1191%。10月9日，平安信托官网发布公告，戴巍接替宋成立出任公司总经理职务。
+**郭文贵
+Miles Guo**
 
-中共国经济蓬勃发展时，贪官奸商赚得盘满钵满；到了经济下行时，吃了我的给我吐出来，拿了我的给我送回来。这就是共产党的买卖，只赚不赔。于是，地产、银行、信托，各个行业资产大血洗、人员大调整。人人不得幸免，行行不得消停。
+世界上我觉得可能会出大事，严格讲，就是明年5月份以前
+I think something big could happen in the world, strictly speaking, before next May
+这个世界相当的动荡，习太阳，真要是好好思考思考
+The world is quite in turmoil, Xi Sun, he really need think about it
 
-新闻参考链接：[https://c.m.163.com/news/a/GRRKAE1E0530NLC9.html?spss=newsapp](https://c.m.163.com/news/a/GRRKAE1E0530NLC9.html?spss=newsapp)
+包括最近听说军队大调整，这种大调整就是不自信嘛，不相信嘛
+Including I recently heard about a major adjustment in the army, this kind of major adjustment means that Xi are not confident and not believe it
 
-* * *
+被调整都很有数，因为你不相信我嘛
+Those who have been adjusted are all mentally well-informed, because Xi don’t trust me
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+公检法的大调整，公安部的部长的调整， 政法委的整个的没落
+The major adjustments of the Public Security Bureau, the adjustment of the Minister of the Ministry of Public Security, the declining of the entire Politics and Law Commission
 
+中纪委到处最近抓金融机构和政法委的人
+Recently, the Central Commission for Discipline Inspection has been arresting people from financial institutions and political and legal committees everywhere
 
-编辑：【英国伦敦喜庄园编辑部】
+都说明了为冬奥会在做预防性的准备
+All show that preventive preparations are being made for the Winter Olympics game
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+刚刚河北又抓了20多个人
+Just now, Hebei has arrested more than 20 people
 
+你看河北政法委会抓多少人，你会看到血流成河
+look at the number of people arrested by the Hebei Political and Legal Committee, you will see the blood river
 
+所以说冬奥会绝对是上天送给爆料革命的大礼
+Therefore, the Winter Olympics game is definitely a gift from God to the whistleblower movement
+
+无论从国际影响、知名度，在党内引起的
+Regardless of international influence, popularity, or all the shock cause within the Communist Party
+
+所有的震撼和未来大家可以预期，任何我们今天讨论发生一件
+and the future you can expect, anything we discuss today will happen
+
+都是以共灭共、以美灭共，咱们一个重大的进展
+It’s all about taking down the Communist Party with CCP and with the United States, and we are making a major progress
+
+Date: 12/21/2021
+原视频标题: 明年5月份以前 这个世界会相当动荡
+The world will be quite turmoil before May next year
+原视频日期：2021/12/19
+原视频链接：[https://gettr.com/post/pk5lmv17ff](https://gettr.com/post/pk5lmv17ff)
+任务编号：KC360（3297）
+视频时间段 : 0:00-1:29
+中听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – Kevin37L
+
+00：10 相当的动荡 改为 相当地动荡
 
  
 

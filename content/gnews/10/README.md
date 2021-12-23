@@ -2,67 +2,28 @@
 ---
 
 
-## 明年5月份以前 这个世界会相当动荡
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1782393/)
+## 中共国下令1300万人的西安市封城
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1782451/)
 
-[https://gtv.org/video/id=61c34a4f43ccb726a089d0e7](https://gtv.org/video/id=61c34a4f43ccb726a089d0e7)
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-35.png)
+图片来源：网络截图
 
-**郭文贵
-Miles Guo**
+据美联社北京12月23日报道，在中共病毒病例激增后，中共国23日凌晨下令封锁北方城市西安的社区和工作场所，多达1300万人被封锁，在中共国举办冬奥会的几周前引发了恐慌性购买。
 
-世界上我觉得可能会出大事，严格讲，就是明年5月份以前
-I think something big could happen in the world, strictly speaking, before next May
-这个世界相当的动荡，习太阳，真要是好好思考思考
-The world is quite in turmoil, Xi Sun, he really need think about it
+中共媒体报道说，西安市政府官员命令所有居民呆在家里，除非他们有迫切的理由外出，并暂停除特殊情况以外的所有进出城市的交通。
 
-包括最近听说军队大调整，这种大调整就是不自信嘛，不相信嘛
-Including I recently heard about a major adjustment in the army, this kind of major adjustment means that Xi are not confident and not believe it
+该命令将于12月23日午夜零时生效，并无限期地持续下去。该命令说，每户人家每两天可以有一人外出购买家庭必需品。
 
-被调整都很有数，因为你不相信我嘛
-Those who have been adjusted are all mentally well-informed, because Xi don’t trust me
+周三，西安市报告了过去24小时内新出现的52例本地传播的中共病毒。
 
-公检法的大调整，公安部的部长的调整， 政法委的整个的没落
-The major adjustments of the Public Security Bureau, the adjustment of the Minister of the Ministry of Public Security, the declining of the entire Politics and Law Commission
+中共国根据其零传播计划采取了严格的大流行病控制措施，导致频繁的封锁，普遍的掩蔽和大规模测试，市民外出必须提供48小时核酸检测阴性证明。最近几天，在2月4日北京冬奥会开始之前，这些措施得到了加强。
 
-中纪委到处最近抓金融机构和政法委的人
-Recently, the Central Commission for Discipline Inspection has been arresting people from financial institutions and political and legal committees everywhere
+西安的限制措施是2020年中共国在2019年底首次检测到中共病毒后，对中部城市武汉及其周边地区的1100多万人实施严格封城以来最严厉的限制。
 
-都说明了为冬奥会在做预防性的准备
-All show that preventive preparations are being made for the Winter Olympics game
+社交媒体的帖子记录了对杂货和家用产品的恐慌性购买，政府说新的供应品将在周四运到。
 
-刚刚河北又抓了20多个人
-Just now, Hebei has arrested more than 20 people
-
-你看河北政法委会抓多少人，你会看到血流成河
-look at the number of people arrested by the Hebei Political and Legal Committee, you will see the blood river
-
-所以说冬奥会绝对是上天送给爆料革命的大礼
-Therefore, the Winter Olympics game is definitely a gift from God to the whistleblower movement
-
-无论从国际影响、知名度，在党内引起的
-Regardless of international influence, popularity, or all the shock cause within the Communist Party
-
-所有的震撼和未来大家可以预期，任何我们今天讨论发生一件
-and the future you can expect, anything we discuss today will happen
-
-都是以共灭共、以美灭共，咱们一个重大的进展
-It’s all about taking down the Communist Party with CCP and with the United States, and we are making a major progress
-
-Date: 12/21/2021
-原视频标题: 明年5月份以前 这个世界会相当动荡
-The world will be quite turmoil before May next year
-原视频日期：2021/12/19
-原视频链接：[https://gettr.com/post/pk5lmv17ff](https://gettr.com/post/pk5lmv17ff)
-任务编号：KC360（3297）
-视频时间段 : 0:00-1:29
-中听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 ：洛杉矶盘古农场 – Kevin37L
-
-00：10 相当的动荡 改为 相当地动荡
+新闻来源：[China orders lockdown of up to 13 million people in Xi’an](https://apnews.com/article/coronavirus-pandemic-health-china-beijing-xian-667558cdba28a0043db77f480a90ae95)
 
  
 

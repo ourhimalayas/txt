@@ -2,41 +2,28 @@
 ---
 
 
-## 明尼苏达州州长瓦尔兹及其家人病毒检测呈阳性
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1782406/)
+## 【中日财经爆】法国雷诺证实与华晨的合资公司已破产
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1782464/)
 
-**翻译：皮特
-编辑：Candy**
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1208.png)[图片来源](https://cn.reuters.com/article/france-renault-china-brilliance-jv-1223-idCNKBS2J203E?il=0)
+法国雷诺汽车周三(12月22日)证实，其与中共国汽车制造商华晨汽车集团的合资企业已经耗尽了现金，正在走向破产重组。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/mene.png)图片来源：美联社
+“鉴于(合资公司)无力履行其目前的财务义务，公司董事会已决定启动重组程序，”一位发言人说。
 
+消息人士在9月表示，雷诺正与拥有中共政府背景的中国华晨讨论结束商用车合资事业，藉以整顿旗下陷于困境的中共国业务。
 
-明尼苏达州州长办公室星期二宣布，明尼苏达州州长蒂姆·瓦尔兹及家人的COVID-19检测呈阳性，包括他的妻子和10多岁的儿子。
+双方的合作可以追溯到2017年，当时雷诺和华晨中国汽车控股有限公司在辽宁省会沈阳成立合资公司，特别是着手推动电动商用车的发展。
 
-沃尔茨在一份声明中说，他的儿子在周末出现轻微症状后，他们三人于周一检测呈阳性。州长和夫人格温·瓦尔兹没有症状。
+事实证明，中共国市场对一些外国汽车生产商来说是困难的–在中共病毒（新冠病毒）疫情之前销售就陷入了困境，而疫情更是对整个行业造成了打击。
 
-他们三人都已经接种了疫苗，包括沃尔兹，他在3月接种了强生公司的疫苗，并在10月接种了莫奈德增强疫苗。沃尔兹说他们会隔离10天。
+雷诺去年放弃了在中共国的主要乘用车业务，因为其与东风汽车的合资企业销售不佳。但雷诺正在与吉利控股集团进行新的尝试，在8月宣布双方建立创新型合作伙伴关系，最初将专注于中共国和韩国等核心快速市场开发混合动力汽车。
 
-沃尔茨在一份声明中说：“我的家人和我正在隔离，我将继续在家工作，直到我感觉好一些并对病毒检测呈阴性。”与此同时，我鼓励每一个明尼苏达人在假期前接受检测，并接种疫苗和加强剂，以确保他们对COVID-19有强大的保护力。”
+消息来源：[法国雷诺证实与华晨的中国合资公司进入重组阶段](https://cn.reuters.com/article/france-renault-china-brilliance-jv-1223-idCNKBS2J203E?il=0)
 
-“作为一个父亲，我很担心我的家人。”沃尔兹在推特上发布的一段视频，表示他自己没有症状，表达了对疫苗和加强针效果的信心。州长敦促明尼苏达人打加强针，如果他们在假日期间出现任何症状，就去做检查。
-
-他说：“保持安全是我们新年最大的礼物。”
-
-据美国疾病控制和预防中心称，奥米克戎变体已迅速成为主要变体，占本周全国新感染病例的73%。明尼苏达州的医院医疗能力仍然紧张，截至周一，有近1500人因COVID-19住院，其中355人在重症监护室。
-
-原文链接：
-[https://www.theepochtimes.com/minnesota-gov-walz-family-test-positive-for-covid-19\_4170398.html](https://www.theepochtimes.com/minnesota-gov-walz-family-test-positive-for-covid-19_4170398.html)
-
-***发布：Candy***
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
