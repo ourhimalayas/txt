@@ -2,63 +2,36 @@
 ---
 
 
-## 安大略省适逢圣诞节宣布新的新冠限制
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1782002/)
+## 米勒先生通过演讲成功向欧洲议员推广盖特
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1782014/)
 
-作者：Sheila Gunn Reid
-翻译：KK
+作者：东京樱花团—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月19日，社交媒体平台盖特的CEO杰森-米勒先生在接受英国媒体的采访时表示，上周，他在法国向欧洲议会成员发表了一场非常成功的演讲，同时，他还向这些议会成员推广了盖特平台。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-23-上午7.45.49.png)
+米勒先生谈到，在他逗留法国的期间里，许多法国的保守派领导人都加入了盖特平台。此外，这些领导人还邀请米勒先生加入欧盟驻欧洲委员会斯特拉斯堡代表团，并就“自由言论、平民主义和永不屈服于全球主义者”这一主题发表演讲。米勒先生提到，演讲现场有来自10个国家的将近50名欧洲议会成员。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-286.jpg)
+米勒先生表示，盖特现在已经拥有了超过三百万的用户。他还提别提及，在盖特总体的用户增长排行榜上，英国用户的增长幅度大概处于七八名的位置，目前大约有十五万零两百名的英国用户正在使用盖特。
 
-安大略省卫生部首席医疗官基兰·摩尔今天宣布了新的封锁措施，以应对 Omicron 新冠变体，尽管南非的早期数据显示，该菌株的传播性更强，但远没有那么致命。
+米勒先生强调称，欧洲有很多人相信言论自由，他们坚决反对各国政府目前因中共病毒疫情而实行封城措施，他们也很清楚，政府采取的中共病毒疫苗强制接种政策会毁掉一切。
 
-根据周五下午晚些时候的政府公告，新的限制旨在“减少密切接触的机会”，现在限制为 50%：
+参考链接：
+1）[https://gettr.com/post/pkafxz070c](https://gettr.com/post/pkafxz070c)
+2）[About the EU Delegation in Strasbourg](https://eeas.europa.eu/delegations/council-europe_en/1836/About%20the%20EU%20Delegation%20in%20Strasbourg)
 
-- 餐厅和酒吧
-- 脱衣舞俱乐部
-- 个人护理服务
-- 体能训练师
-- 零售商和购物中心
-- 用于体育和健身活动的设施区域，包括健身房
-- 室内游乐设施
-- 室内会所
-- 导游服务
-- 摄影工作室
-- 码头和划船俱乐部
+![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
+总编：Jack Li文阳
+编辑：诺雅
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-然而，容量限制不适用于用于宗教服务、葬礼或婚礼的营业场所，但适用的仪式必须施加掩蔽、距离和其他限制。
-
-摩尔证明了新冠的致命性和准时性，其明显的在晚上 11 点 05 分进行攻击。还谴责餐厅、会议和活动场所以及脱衣舞俱乐部将需要在晚上 11 点关闭，但允许外卖活动继续进行。
-
-晚上 10 点后酒类销售将受到限制，模仿《Footloose》中的小镇，这不是一部纪录片，但看起来更像是每天都有安大略省酒吧的顾客将被要求保持坐姿，除工人或表演者外，不允许跳舞。 桌子仅限于 10 位顾客。
-
-溜冰场的啤酒和热狗也不在菜单上。不允许在体育赛事、音乐会、剧院、电影院、赌场、游戏场所、赛马场、赛车场和其他场所携带食物和饮料。
-
-圣诞大餐也受到限制，所以即使供应链问题允许您找到一只大火鸡，也不要费心购买。室内非正式社交聚会限制减少到 10 人，室外限制减少到 25 人。
-
-所有新限制将于周日凌晨 12 点 01 分生效。仅两天后，福特表示，这将使企业有时间进行调整。
-
-安大略省的疫苗护照系统也将保留。
-
-来源：https://www.rebelnews.com/ontario\_announces\_new\_covid\_restrictions\_just\_in\_time\_for\_christmas
-
-（文章仅代表作者个人观点）
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

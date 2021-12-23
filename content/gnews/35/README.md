@@ -2,21 +2,39 @@
 ---
 
 
-## 【文贵先生大直播PPT】疫苗大灾难
-` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1781442/)
+## DC每日热点1222
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1781580/)
 
-撰稿：飞飞（DC) Now 小哥（香草山）庚子灭共（DC）莲心不染（扬帆）
-美工：青山（英喜）
+编辑：楚门门
+![](https://assets.gnews.org/wp-content/uploads/2021/12/569C2A2F-CDEB-4667-B79C-7CCB860ADA6B-scaled.jpeg)
+道琼斯指数 35579.21 ▲0.24%
+纳斯达克指数 15383.08 ▲0.27%
+WTI纽约原油CFD 71.581 ▲0.65%
+布伦特原油CFD 74.357 ▲0.51%
+标普50指数 2,953.70 ▼41.49%
+美元兑人民币 1USD=6.371 RMB
+美元兑港币 1USD=7.800 HKD
+国际黄金 1792.14 美元/盎司
+全球CCP病毒感染人数 276,759,347例
 
-【2021年12月22日文贵先生大直播PPT：疫苗大灾难】
-![](https://assets.gnews.org/wp-content/uploads/2021/12/11-10.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/12-9.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/13-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/14-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/15-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/16-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/17-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/18-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/19-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/20-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/21-11.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/22-12.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/23-9.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/24-9.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/25-8.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/26-6.jpg)
-**Omicron 从实验室里释放的证据的相关信息源链接：**
-
-1.[https://rumble.com/vqy7qe-dr.-peter-mccullough-on-nfl-protocols-pregnancy-omicron-and-more.html](https://rumble.com/vqy7qe-dr.-peter-mccullough-on-nfl-protocols-pregnancy-omicron-and-more.html)2.[https://rwmalonemd.substack.com/p/has-omicron-shifted-receptor-binding?r=ta0o1&utm\_campaign=post&utm\_medium=web](https://rwmalonemd.substack.com/p/has-omicron-shifted-receptor-binding?r=ta0o1&amp;utm_campaign=post&amp;utm_medium=web)3.[https://frenchdailynews.com/health/3691-omicron-the-molecular-analysis-of-pr-jacques-fantini 4.https://rwmalonemd.substack.com/p/omicron-today?r=ta0o1&utm\_campaign=post&utm\_medium=web](https://frenchdailynews.com/health/3691-omicron-the-molecular-analysis-of-pr-jacques-fantini%204.https://rwmalonemd.substack.com/p/omicron-today?r=ta0o1&amp;utm_campaign=post&amp;utm_medium=web)5.[https://www.cbsnews.com/news/omicron-variant-covid-in-europe-netherlands-before-alert-raised/ 6.https://www.cnbc.com/2021/12/02/where-did-omicron-covid-variant-come-from-and-where-is-it-circulating.html 7.https://www.who.int/news/item/26-11-2021-classification-of-omicron-(b.1.1.529)-sars-cov-2-variant-of-concern](https://www.cbsnews.com/news/omicron-variant-covid-in-europe-netherlands-before-alert-raised/%206.https://www.cnbc.com/2021/12/02/where-did-omicron-covid-variant-come-from-and-where-is-it-circulating.html%207.https://www.who.int/news/item/26-11-2021-classification-of-omicron-%28b.1.1.529%29-sars-cov-2-variant-of-concern)8.[https://twitter.com/P\_McCulloughMD/status/1473299558281191433?s=20 https://www.msn.com/en-us/health/medical/most-omicron-cases-in-us-have-been-mild-but-most-were-vaccinated-cdc-reports/ar-AARGOxE](https://twitter.com/P_McCulloughMD/status/1473299558281191433?s=20%20https://www.msn.com/en-us/health/medical/most-omicron-cases-in-us-have-been-mild-but-most-were-vaccinated-cdc-reports/ar-AARGOxE) 9.[https://www.msn.com/en-us/health/medical/most-omicron-cases-in-us-have-been-mild-but-most-were-vaccinated-cdc-reports/ar-AARGOxE 10.https://www.voiceforscienceandsolidarity.org/videos-and-interviews/geert-vanden-bossche-speaks-about-omicron-and-mass-vaccination-at-dana-show](https://www.msn.com/en-us/health/medical/most-omicron-cases-in-us-have-been-mild-but-most-were-vaccinated-cdc-reports/ar-AARGOxE%2010.https://www.voiceforscienceandsolidarity.org/videos-and-interviews/geert-vanden-bossche-speaks-about-omicron-and-mass-vaccination-at-dana-show)
-
-* * *
-
-发稿：云起时
+1、哈佛教授因隐瞒与中共国关系被定罪后, 北京为其国际科技交流计划辩护
+2、美国著名军医院据信初步研制出有效对付所有新冠病毒的疫苗
+3、美国务卿与立陶宛总理通话 商讨联合反击中共国外交经济胁迫
+4、拜登宣布打击奥密克戎新冠病例激增的新措施：派遣联邦医护人员前往人手短缺的医院，在全国各地提前预置医疗设备的国家储备，并向美国人提供5亿只新冠检测试剂盒
+5、美国国际宗教自由委员会强烈谴责中共国对其成员追加制裁
+6、新冠疫情反弹 NHL球员将缺席北京冬奥
+7、美国前驻华大使组建咨询集团指导投资中共国
+8、新加坡卫生部表示，将限缩“疫苗接种者旅游通道”入境旅客的人数
+9、香港特首换届之际 李克强肯定林郑月娥政绩 又促香港助中共国建发展新格局
+10、俄乌边界局势紧张 普京首度暗示可能爆发冲突
+11、伊朗革命卫队发射弹道导弹与巡航导弹
+12、美国证券交易委员会要求中企加强风险披露
+13、德国新政府上台后 中德领导人通话
+14、美前印太司令：仍担忧6年内出现台湾突发事态
+15、 前美海军人员向中共国出售军备 被判监两年半
+16、涉嫌非法向中共国出口导弹 10以色列人被起诉
+17、特鲁多称中共为“重大挑战” 对华政策不明朗
+18、韩经济团体发布最新调查结果显示，超八成在华韩企认为， 投资环境比10年前恶化并遭差别待遇
 
  
 

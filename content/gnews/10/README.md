@@ -2,115 +2,67 @@
 ---
 
 
-## 中国这个民族特勤劳 却被共产党奴役, 人人互害
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1782047/)
+## 亚马逊与中国共产党合作进行宣传
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1782063/)
 
-[https://gtv.org/video/id=61c3179543ccb726a089c40e](https://gtv.org/video/id=61c3179543ccb726a089c40e)
+作者：Ian Miles Cheong
+翻译：KK
 
-**郭文贵**
-**Miles Guo**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-279.png)
 
-中国这个民族不会享受的，更不要谈浪漫，更不要谈品味了
-Chinese people don’t know how to enjoy life, not even romance, let alone savor
+亚马逊是世界上最大的在线零售商，一直在从事营销中国政府宣传的活动，以讨好中国政府监管机构。这家由杰夫·贝佐斯 (Jeff Bezos) 创立的公司创建了所谓的“中国图书”项目，以向政府示好并进入中国在线零售市场。
 
-从来你不会看到像西方、欧洲、美国，家里边的家具，像模像样的家具
-You will never see furniture in your home like in the West, Europe, or America, decent furniture
+路透社报道亚马逊对两年前习近平主席著作集的特殊处理后，该项目的细节于上周晚些时候浮出水面。在发布了一些不太完美的评论后，政府出版的书籍的评级和评论被禁用。
 
-家里边墙都是空的，结果发现在(墙)脚一个柜子，路易十六的
-the house is empty, and it turned out that there is a cabinet at the corner, it’s Louis XVI’s
+中国政府对这些评论作出回应，要求该在线零售商禁用其针对负面反馈的评级和评论。
 
-或者是一八几几年的一个柜子，几十万美元
-or a cabinet from 1800 some year, several hundred thousand dollars
+路透社上周晚些时候报道称，两名接近该决定的内部人士告诉该出版物，亚马逊出售习近平的文章，其中包括《习近平：治国理政》，收到了一些负面评论，促使政府要求该零售商关闭其两个主要功能。
 
-屋里边，你图壁四空，就要那个桌子，然后放一个很漂亮的台灯
-inside the house, there is only the table inside the empty house, then there is a very beautiful table lamp
+“我认为问题在于五颗星以下的任何东西，”其中一位消息人士说。五颗星是亚马逊五分制中的最高评级。亚马逊使用其评级和评论系统作为吸引国内和国际市场购物者的一种手段。
 
-永远，中国人不会的，一定要买东莞产的
-Chinese people will never be like this, they must buy it from Dongguan
+亚马逊的中文网站Amazon.cn仍然保留其评论和评级系统，但该功能已被禁止用于政府出版的带有习近平署名的书籍。评论部分也被禁用。
 
-这种情况下，即使中国人有了钱，也是劳苦的命，中国城
-In this situation, even if the Chinese people become rich, it is the life of hard work in Chinatown
+据路透社报道，亚马逊对中国政府的要求遵守情况此前从未有过的，据说这是这家在线零售商为赢得北京青睐以在全球最大零售市场发展业务十年努力的一部分。 .
 
-犹太人在这看得很清楚，犹太人在华尔街，犹太人占了曼哈顿最好的
-Clearly see the Jews here, the Jews are at the Wall Street, and they occupy the best of Manhattan
+路透社报道：
 
-中国人在哪，法拉盛，中国城，你到旧金山中国城黑猫旅馆
-Where are the Chinese people, Flushing, Chinatown, you go to the Black Cat Ho-tel San Francisco Chinatown
+一份描述该公司中国业务的 2018 年亚马逊内部简报文件列出了这家总部位于西雅图的巨头在该国面临的一些“核心问题”。其中：“意识形态控制和宣传是共产党取得和保持成功工具包的核心，”文件指出。“我们不会判断它是对还是错。”
 
-就是中国人什么都讲物廉价美，没有生活，而且一定要工作，不工作是犯罪
-That is Chinese people demand everything cheap and good, they have no life, and they must work and it is a crime not to work
+这份简报文件对参与亚马逊中国业务二十多人的采访，揭示了该公司如何通过帮助推进执政共产党的全球经济和政治议程在中国生存和蓬勃发展，同时有时也会反击根据政府的一些要求。
 
-而且明天即使死了，我今天也得工作
-And even if I die tomorrow, I have to work today
+内部文件和采访显示，在这一战略的核心要素中，亚马逊与中国宣传机构的一个部门合作，在该公司的美国网站 Amazon.com 上创建了一个销售门户，该项目后来被称为中国图书。该企业最终提供了 90,000 多种出版物待售，但并未产生可观的收入。但该文件显示，随着该公司发展 Kindle 电子书设备、云计算和电子商务业务，亚马逊认为它对于赢得中国支持至关重要。
 
-中国人的勤劳和中国人的不知道享受生活，享受生命
-Chinese people’s hard work and Chinese people don’t know how to enjoy life
+根据该出版物审查的 2018 年简报文件，亚马逊游说和公共政策运营全球负责人杰伊卡尼指出，该公司正在努力获得在中国销售电子书的许可。由于这个问题，亚马逊设计了它所谓的“中国图书”项目来与中国监管机构合作。
 
-更没有度假休息，造就了中国共产党奴役中国人的这个必然的现实
-There is no vacation relax, creating the inevitable reality of the Chinese Com-munist Party enslaving the Chinese people
+该项目包括出版和营销大量非政治书籍，例如教科书、烹饪书籍，甚至儿童故事。
 
-我从小长大的，我一直在问一个问题，为什么中国人咋就这么勤劳, 这么样的穷苦
-When I grew up and I kept asking a question, why are Chinese people so hard-working with such a poor life?
+但该项目还包括宣传中国共产党官方路线的书名，例如一本关于新疆生活的书，名为《不可思议的新疆：激情和遗产的故事》， 该书颂扬生活在该地区的许多再教育营地。
 
-从来不过好日子，从来不吃好的，但为什么中国这个国家从来不说
-never have a good life and never eat good food, but why China, a country that has never raised questions？
+英美情报专家称，有超过一百万维吾尔族人被安置在这样的营地中，这在书中根本没有任何提及。
 
-刚才我跟你说这房地产这么坏的大数据的时候
-Just now when I told you about such big collapse data in real estate
+其他书籍以英雄的方式描绘了中国与始于武汉新冠大流行的斗争。路透社报道：
 
-你看看中国人的事业，在干嘛，有人在捡便宜买房，
-Look at the Chinese people’s business, what are they doing? Some people are buying cheap houses
+其中一篇名为《勇气与决心的故事：冠状病毒封锁中的武汉》。另一个以习近平的评论开头：“我们迄今为止的成功再次证明了中国共产党的领导和中国社会主义的力量。”
 
-就像我小时候看到有人杀了猪过年, 结果带痘，那个痘猪, 吃了是长肿瘤的
-just like when I was a kid I saw people killing pigs for the Chinese New Year, then the pig is pox pig, people will have tumors if they eat it
+针对该报道，亚马逊声称仅遵守其运营所在所有国家/地区的当地法律法规，拒绝对具体指控发表评论。
 
-但一堆人会抢着要，也有人抢着买，就是便宜
-but a bunch of people would rush to ask for it, and some would rush to buy it, just because it’s cheap
+来源：https://www.rebelnews.com/amazon\_partnered\_with\_chinese\_communist\_party\_to\_promote\_propaganda
 
-在高压锅煮完以后，再卖带痘痘猪肉，疯抢，
-After the pressure cooker cooked, then sell this pox pork, people rushed to get it
+（文章仅代表作者个人观点）
 
-还有人在开饭店，为啥呀
-and there are still people opening new restaurants, why?
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-因为很多饭店关了，不是因为饭店生意好，是因为很多饭店关了
-Because many restaurants are closed, not because the restaurant business is good, it’s because many restaurants are closed
+**关注我们**
 
-开饭店钱哪来的，东家表姐表哥借来的，所以中国人这个互害、互伤
-Where the money come from for opening the restaurant? It’s borrowed from the cousins, so the Chinese people hurt and harm each other
+Discord 账号
 
-只要我能活着，只要我活着，只要我活着，我就得工作
-As long as I can live, as long as I live, I have to work
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-只要我能活着，挣了钱我就要留着
-As long as I can live, I will keep the earnings
+Gettr 账号
 
-只要我挣了钱，我留着，最后都是党的
-As long as I make money, I keep it, and in the end it will all belong to the Communist Party
-
-然后只要我能开店，我能开店做小生意，我就把所有亲戚家人全借了
-Then as long as I can open a store, I can open a store and do a small business, I will borrow money from all my relatives
-
-**原视频链接**[:](https://gettr.com/post/pk2afy2dac)[https://gettr.com/post/pk2afy2dac](https://gettr.com/post/pk2afy2dac)
-
-Date: 12/20/2021
-原视频标题: 中国这个民族特勤劳 却被共产党奴役, 人人互害
-Chinese people is a hard-working people but is enslaved by the Communist Party, and everyone harms each other
-原视频日期：2021/12/17
-原视频链接https://gettr.com/post/pk2afy2dac
-任务编号：3282
-视频时间段 : 0:00-2:19
-
-中听校: 洛杉矶盘古农场 – Layka
-翻译 : 洛杉矶盘古农场 – Layka
-翻译终校 : 洛杉矶盘古农场 – Mike Li
-字幕+视频制作 ：洛杉矶盘古农场 – Jambo
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
