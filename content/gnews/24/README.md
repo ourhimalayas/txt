@@ -2,152 +2,54 @@
 ---
 
 
-## 中原佛手 盘古龙头 让习恐惧 秒杀共产党的无神论
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1782344/)
+## 西澳首将疫苗加强针列为强制要求
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1782372/)
 
-[https://gtv.org/video/id=61c349a343ccb726a089d0cb](https://gtv.org/video/id=61c349a343ccb726a089d0cb)
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-281.png)图片来源：ERROL PARKER
+翻译：月映万川
+编辑：Mttfly
 
-**郭文贵
-Miles Guo**
+要求西澳大利亚州州长马克·麦高恩（Mark McGowan）宣布，该州被要求强制接种新冠疫苗的工种现在必须要接种疫苗加强针。
 
-我要告诉大家一个最根本的问题
-Les voy a decir a todos el problema más fundamental
+西澳州是世界上第一个强制要求接种疫苗加强针的司法管辖区，受影响的行业将涵盖包括老年护理、卫生、检疫人员、采矿和在定义为必要工种工作的工人，等行业。
 
-盘古把龙头变龟头的根本原因是他（习）相信风水
-La razón fundamental por la que Pangu convirtió la cabeza del dragón a la cabeza de tortuga es que él (Xi) cree en el Feng Shui
+州长说，他还希望最终能将这一规定扩大到任何想要参加社会活动的人，比如体育比赛和音乐会等。
 
-他相信我们盘古的黑蛇白蛇的故事
-Él cree en la historia de Pangu sobre la serpiente negra y la serpiente blanca
+麦高恩先生说，改变西澳州疫苗接种计划的原因是奥密克戎毒株在其他州的传播开始出现令人不安的情况。
 
-他相信裕达这个佛手的力量
-Cree en el poder de Yuda, la mano de Buda
+“根据疫苗强制令，工人现在将被要求在符合条件的一个月内接受第三针，”麦高恩在星期三告诉记者。
 
-而且这个事情谁都做不了决定
-Además, este asunto nadie podrá hacer la decisión
+“强烈要求每个人在符合条件时接受第三针，即使他们不在强制的范围内。”
 
-一定是习王孟
-Seguro es Xi, Wang, Meng
+目前，人们可以在最近一次疫苗接种的五个月后符合接种加强针的注射条件，但澳大利亚免疫技术咨询小组将很快决定这一时限是否改变。
 
-所有人 孙力军 傅政华
-Todas las personas, Sun Lijun, Fu Zhenghua
+州长说，他希望这个时间间隔尽可能缩短。
 
-就是Ｎ个人经过核实后
-Es comprobado por N personas
+麦高恩先生还宣布，西澳州将从12月26日凌晨12点01分起与澳洲其它地区开始硬封锁。
 
-认为这是儿是靠普的 是真的
-Creen que esto es real, es confiable
+在西澳的边境管制名单上，北领地和塔斯马尼亚州也将从“低风险”变为“中风险”，这意味着来自这两州的旅行者将需要豁免进入西澳并必须隔离14天。
 
-而且越来越相信
-Además, cada vez creen más en eso
+这两州将与昆士兰州、南澳大利亚州和澳大利亚首都地区并列为中等风险地区，而新南威尔士州和维多利亚州将继续保持“极端风险”地区。
 
-明年是虎年 让荣光依旧给矇对了
-El próximo año es el año del tigre, Rong Guang aún lo adivinó correctamente
+“这些决定并非轻而易举，”麦高恩先生说。
 
-不是（因为）佛手他才怕的
-No es (porque) la mano de Buda por eso le teme
+“没有人想阻止家庭在节日期间返回西澳团聚。没有人。”
 
-盘古属啥呀
-¿Qué es Pangu?
+“但是，鉴于澳大利亚其他地区的危机不断升级，并根据最新的健康建议，我们已经采取了这一步骤，以保护西澳大利亚人，并阻止病毒在我们社区进行传播。“
 
-盘古是什么形象
-¿Cuál es la imagen de Pangu?
+西澳州州长补充说，西澳州仍然有望在2月5日重新开放其边境，“除非发生灾难”。
 
-盘古是龙
-Pangu es Dragón
+**原文链接：**[Covid-19 vaccine mandate in WA now includes a third dose](https://www.news.com.au/national/western-australia/covid19-vaccine-mandate-in-wa-now-includes-a-third-dose/news-story/752c67452adc76f7242228edb500a12e)
 
-明年是虎年
-El año que viene es año del Tigre
-
-龙虎是什么（关系）
-Qué es (relación) entre el dragón y el tigre
-
-龙虎相争 必有一伤
-Debe haber un herido en la batalla entre el dragón y el tigre
-
-天下最忌讳的是龙虎斗
-La cosa más tabú en el mundo es la pelea de dragones y tigres
-
-啥叫佛手
-Qué es la mano de Buda
-
-什么事你都逃不开佛祖之手
-Significa que no puedes escapar de la mano de Buda por nada
-
-什么人都跑不了
-Nadie puede escaparse
-
-在这个整个西游记里边也好
-Así sea dentro del “Viaje al oeste”
-
-降虎之魔那是如来掌
-El demonio para domar el tigre es la palma del Buda
-
-啪嚓是吧
-Una bofetada, cierto
-佛、菩萨
-Buda, Bodhisattva
-
-连苍蝇都不如 是吧
-Es menos que una mosca, cierto
-
-北有龙头
-Al norte hay la cabeza de dragón
-
-南有中原佛手
-Al sur hay la mano de Buda de las llanuras centrales
-
-你说一般人但凡你要是习近平你怕不怕
-Dime tu si una persona normal fuese Xi Jinping le temes o no
-
-关键你信不信
-El punto es que lo crees o no
-
-你要信了 你就怕
-Si crees en eso lo temes
-
-你不信你（就不怕）
-Si no lo crees (no lo temes)
-
-他要不信就不会强令让金融公司一定把龙头给包住
-Si él no lo creyera no obligaría a la compañía financiera a cubrir la cabeza del dragón
-
-这多可怕
-Que terrible es esto
-
-变成个龟头这个形象
-Se convirtió en una imagen de cabeza de tortuga
-
-震惊了世界
-Impactó al mundo
-
-你们没有意识到这件事情对中国共产党的无神论 几乎是秒杀
-Ustedes no tienen idea de que este asunto de ateísmo para el Partido Comunista de China es una destrucción en segundos
-
-共产党内部人就说
-Dentro del Partido Comunista la gente dice
-
-你不相信风水、不相信神你干这干什么
-“Si no crees en el Feng Shui, ni en Dios para qué haces esto”
-
-日期：12/20/2021
-原视频标题：中原佛手 盘古龙头 让习恐惧 秒杀共产党的无神论
-La mano de Buda de las llanuras centrales, la cabeza del dragón de Pangu, le da temor a Xi. Destruye en un segundo el ateísmo del Partido Comunista
-原视频日期：12/19/2021
-原视频网址： [https://gettr.com/post/pk2l535498](https://gettr.com/post/pk2l535498)
-任务编号：KC359(3283)
-视频时间段：0:00-01:39
-西听校：洛杉矶盘古农场 – 小文萱
-翻译：洛杉矶盘古农场 – 霙霙（文霙）
-翻译终校：洛杉矶盘古农场 – 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 ：洛杉矶盘古农场 – Kevin37L
-
-00：28 认为这是儿是靠谱的 改为 认为这事儿是靠谱的
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**发布：**去中心化Math
+**
+更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

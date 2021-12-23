@@ -2,36 +2,64 @@
 ---
 
 
-## 卖房筹钱治病潮即将来临
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1782201/)
+## 众议员迈克·加西亚:中共国一次又一次地表现出对美国及其盟友的恶意
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1782265/)
 
-作者：顺其自然
-编辑：**Kelly**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-280.png)图片来源：雅典娜农场设计组
-1960年出生的，如今61岁，1969年出生的如今52岁，墙内这部分人或者已经退休，或者即将退休。
+众议员迈克·加西亚： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 一次又一次地表现出对美国及其盟友的恶意。我和我的中国特别工作组立法委员们一起呼吁推特首席执行官追究他们的责任。不应该允许在他们的平台上进行中共宣传。 【附众议院外交委员会共和党官网新闻】
 
-在中共国1960年代的出生人口，除了1960年1402万，1961年949万，这是所谓的“三年自然灾害时期”出生人口比较少之外，从1962年出生人口就开始井喷，从1962年到1970年的出生人口几乎都是两千万人口以上，在1963年竟然达到了2934万。从1971年中国开始实行计划生育政策，那个时候是鼓励少生，并没有强制计划生育。此后出生人口开始减少，到1975年出生人口还是在两千万以上，从1976年开始减少到1000多万。近日，一份长达76页的《2018中国城市家庭财富健康报告》全面透视了中国城市家庭财富管理的现状、特征以及存在的相关问题。
 
-报告是广发银行联合西南财经大学通过对华北、华东、华中、华南、西南、东北、西北七大区域、23个城市的上万家庭进行调研分析，数据非常具有说服力和普遍性。报告中说，51岁以上配备家庭房产的人是最多的，达到81.2%，六十五岁以上的配备家庭房产的达到85.6%。51岁以上就是70年以前出生的人群。所以中国房产大部分持有者是60后、50后，当然，70后也持有相当一部分房产。
 
-这几拨人虽然赶上了中国经济腾飞最好的时代，积攒了很多财富，尤其是房产，但是，中共国经济腾飞的同时也伴随着土壤、水、空气的大面积污染。各种污染以及食品安全问题造成的心脑血管疾病，糖尿病，癌症等，逐年增加。根据世界卫生组织国际癌症研究机构发布的2020年数据，2020年中共国新发癌症457万人，占全球23.7%，位居全球第一。癌症发病率、死亡率全球第一。
+> Time & time again, China has shown their ill intention towards America & its allies. I joined my fellow China Task Force lawmakers in calling on the Twitter CEO to hold them accountable. CCP propaganda should not be allowed on their platform.[https://t.co/hLwJgZxApW](https://t.co/hLwJgZxApW)
+> — Rep. Mike Garcia (@RepMikeGarcia) [December 22, 2021](https://twitter.com/RepMikeGarcia/status/1473788687641198595?ref_src=twsrc%5Etfw)
 
-50后、60后这部分人群虽然相对比较富裕，也非常注重健康长寿，他们会把大量的金钱投入到保健品消费上，但是即使再保养，从年龄上看，中共国40岁以后癌症发病率快速提升，各种急慢性病趋于增多。
 
-现在不止是中国，全世界各个国家的医疗保障体系，都到了支撑不住，难以为继的时候，最后肯定是不可能保障所有人的医疗费用。加上中共病毒、疫苗灾难，中共国截止到21年12月已经接种疫苗约27亿剂次，核酸检测更是数十亿次，全国医保资金被掏空几千亿元。
 
-再有，很多的保险公司，钱都投入到了房地产上，房地产一崩盘，保险公司连同医保的钱，也全部都要打水漂儿，房地产崩塌的时间点越来越近了，郭文贵先生在大直播中说到房地产崩盘会在冬奥会之后，不可能是嘎嘣一下倒了，这个崩塌是有个过程的。
+参议员瑞克·斯科特： 本周，我与参议员玛莎·布莱克本和其他同事一起敦促政府商务部制裁那些支持 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 对维吾尔人进行种族灭绝以及对少数民族和宗教团体犯下可怕罪行的公司。 【附布莱克本参议员官网新闻】
 
-在这个过程中，普通老百姓的正常医保报销必然是越来越难了。目前医保部门就已经在拖延老百姓的医疗费用报销，有些人2019年，2020年的看病费用至今还没报销。但老百姓有病不能不去医院啊，所以这看病钱得自己先垫上，很多人手头又没有那么多现金，50后、60后甚至70后还这几亿人当中相当一部分人还有房产在手，那么为了治病，也只能先把房子卖了，卖房筹钱看病的这个大潮即将来临。
 
-发布：去中心化Math
-**
-**更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+> This week, I joined [@marshablackburn](https://twitter.com/MarshaBlackburn?ref_src=twsrc%5Etfw) & our colleagues urging [@CommerceGov](https://twitter.com/CommerceGov?ref_src=twsrc%5Etfw) to demand sanctions on companies enabling Communist China’s genocide against the Uyghurs & horrific crimes against ethnic & religious groups. [https://t.co/0zrFaHH4CR](https://t.co/0zrFaHH4CR)
+> — Rick Scott (@SenRickScott) [December 22, 2021](https://twitter.com/SenRickScott/status/1473805247030177792?ref_src=twsrc%5Etfw)
+
+
+
+美国国务院： 国务卿布林肯：与一年前相比，我们现在在几乎所有问题上都与我们的盟友和伙伴更加一致，包括俄罗斯对乌克兰及其邻国的侵略、伊朗的核计划以及 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 挑战基于规则的国际次序的企图。
+
+
+
+> .[@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw): We’re much more aligned with our allies and partners now than we were a year ago on nearly every issue, including Russia’s aggression toward Ukraine and its neighbors, Iran’s nuclear program, and China’s efforts to challenge the rules-based international order. [pic.twitter.com/bkByk6DCTO](https://t.co/bkByk6DCTO)
+> — Department of State (@StateDept) [December 22, 2021](https://twitter.com/StateDept/status/1473779127836721161?ref_src=twsrc%5Etfw)
+
+
+
+第780军事情报旅（网络）： 根据周二发布的一份新报告，[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 发起了一场大规模的宣传运动，旨在以自己的形象重建民主。 【附在[http://therecord.com](https://t.co/fOUMQEWPtW) 发表的该报告】第780军事情报旅（网络）： 中共国在民主（定义）上的话语权之战。 【附在[http://recordedfuture.com](https://t.co/JSPD8cLupN)发表的报告】
+
+
+
+> China has unleashed a massive propaganda campaign aimed at recreating democracy in its own image, according to a new report published Tuesday. [https://t.co/LDk7kQ37Cv](https://t.co/LDk7kQ37Cv) [@TheRecord\_Media](https://twitter.com/TheRecord_Media?ref_src=twsrc%5Etfw)
+> — 780th Military Intelligence Brigade (Cyber) (@780thC) [December 22, 2021](https://twitter.com/780thC/status/1473730325868171268?ref_src=twsrc%5Etfw)
+
+
+
+美国国会及行政当局中国委员会： [#Olympic](https://twitter.com/hashtag/Olympic?src=hashtag_click) 奥林匹克的团结与包容精神因 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 对宗教团体的严厉甚至有时是残酷的限制而遭到玷污，特别是那些寻求不受共产党监视、或与少数民族有关联的宗教团体。 [#奥运囚徒](https://twitter.com/hashtag/%E5%A5%A5%E8%BF%90%E5%9B%9A%E5%BE%92?src=hashtag_click) [#OlympicPrisoner](https://twitter.com/hashtag/OlympicPrisoner?src=hashtag_click)
+
+
+
+> The [#Olympic](https://twitter.com/hashtag/Olympic?src=hash&amp;ref_src=twsrc%5Etfw) spirit of unity and inclusiveness is tarnished by the severe and sometimes brutal restrictions placed on religious groups in China, particularly those seeking to be free of Communist Party oversight or those associated with ethnic minorities. [#OlympicPrisoner](https://twitter.com/hashtag/OlympicPrisoner?src=hash&amp;ref_src=twsrc%5Etfw)
+> — China Commission (@CECCgov) [December 22, 2021](https://twitter.com/CECCgov/status/1473745205107085322?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克·沃尔茨： [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 正在对企业施压，要求他们把立陶宛清除出他们的供应链，在后者支持民主和让 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 开设非官方大使馆之后。 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 会对任何妨碍他们走向统治全球道路的人发动经济战争。 【转路透社，立陶宛面临中共国带领的企业抵制，中国已要求跨国公司与立陶宛断绝关系】
+
+
+
+> The [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)’s pressuring corporations to cut Lithuania out of their supply chains after they supported democracy and let Taiwan open an unofficial embassy. 
+> 
+> China will wage economic war on ANYONE who stands in its way in its march towards global domination. [https://t.co/Ro3rQDxamI](https://t.co/Ro3rQDxamI)
+> — Rep. Mike Waltz (@michaelgwaltz) [December 22, 2021](https://twitter.com/michaelgwaltz/status/1473673160503566338?ref_src=twsrc%5Etfw)
+
+
 
  
 
