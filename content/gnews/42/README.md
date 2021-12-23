@@ -2,58 +2,24 @@
 ---
 
 
-## 有声 | 安妮日记2022：逃离新冠疫苗
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1782328/)
+## 世卫组织总干事说全面施打加强针恐延长疫情时间
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1782428/)
 
-配音：香草山媒体部 – Gtv abeilles
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-119.png)
+图片来源： news.un.org
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+美联社12月22日报道，世卫组织领导人周三警告说一些富裕国家全面施打加强针项目恐致全球抗击中共病毒的抗疫时间延长，认为“没有一个国家能通过打加强针以脱离疫情。”
 
+世卫组织总干事谭德赛说目前主要的目标应该是减少死亡，以帮助所有国家达到最低注射疫苗人数目标，他说：“ 绝大多数住院者和死亡者是未注射疫苗者，而不是未注射加强针的人。”
 
+谭德赛说今年疫苗已经挽救了很多生命，2021年已有350万人因中共病毒丧生，随着新变种奥米克戎的广泛传播，他说：“我们所有人都必须非常谨慎。”
 
+世卫组织主席曾要求暂停在健康成年人中施打加强针，以使全球疫苗接种的状态达到平衡，他在周三的网络会议上说目前的疫苗接种中有20%是接种加强针或者更多的加强针。
 
+谭德塞说各国应该共同合作，使疫苗接种达到同步，他说：“ 除非在全球范围内广泛的疫苗接种，否则我不认为我们会终止疫情，我们应该理性执行疫苗接种，希望2022年疫情能结束。”
 
-
-
-那是1944年8月4日。安妮-弗兰克和她的家人在阿姆斯特丹普林森格街263号的秘密阁楼中躲避纳粹两年了。她听到楼下的骚动声，心开始怦怦直跳。安妮不想被送进集中营。绝望中，她跑到窗前，跳了出去。
-
-安妮掉进了时光隧道，穿越到2022年。她睁开眼睛，发现自己躺在医院的床上。一个拿着针筒的护士走了进来。
-
-**安妮：**我在集中营吗？我不要注射死刑。
-
-**护士：**可怜的姑娘。你从楼梯上摔下来后，意识似乎很模糊。现在是2022年。没有集中营。
-
-**安妮：**2022年？我在未来吗？我安全吗？
-
-**护士：**是的，你很安全，新冠疫苗也是安全的。它可以保护你免受冠状病毒的侵害。
-
-**文字版原文：[安妮日记2022：逃离新冠疫苗 – GNEWS](https://gnews.org/zh-hans/1767646/)**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/unknown.png)
-
-发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+##### **新闻来源： **[WHO chief: Blanket booster drives risk prolonging pandemic](https://apnews.com/article/coronavirus-pandemic-business-health-pandemics-united-nations-cc2391245c7fa4833805d2af0513738e)
 
  
 

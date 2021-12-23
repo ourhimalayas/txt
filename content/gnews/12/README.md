@@ -2,42 +2,46 @@
 ---
 
 
-## 荷兰年度新词：疫苗后悔(药)
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1782766/)
+## 中共设计冬奥会前抛出爆料革命为邪教和恐怖分子的采访
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1782839/)
 
-作者：约瑟夫·萨默斯（Joseph Summers）
-发布日期：2021年12月21日
-新闻来源：LifeSiteNews
-翻译：文虓Bobby
+还有一个，你看那个Nicole她今天上镜头，这样的妹妹，你看多漂亮的妹妹，长得好看吧！我从来不知道，结果那天在寒冷中、大雪中跟小斯基被人家给埋伏了，小斯基傻乎乎的掂着盘着，我心里说你看她采访的时候，小斯基就是年轻，不懂！［坚决支持郭先生］——就要你这一句话。然后，Nicole就是［G-News］——就要你这一句话，就要你连上。
 
+所以说，咱这个哥们说了句话，他说这次共产党对你的设计——很深，三个重点——
 
+冬奥会之前放你。我们是半年前，半年前采访的，五六月份采访的，是吧！几月份我忘了，采访了就现在不出来，实际上采访了几个小时，只用了几分钟，而大量的是用的是我们现在最近的直播，一定在冬奥会前搞你；
 
-**疫苗（新冠疫苗）
-中共病毒（新冠病毒covid-19）**
+第二，最关键的把你定为邪教。邪教，大家记住，邪教可以把你给遣返，把你驱离呀，遣返不行，是驱离、驱离这个国。当然他们要走程序，是吧！
 
-**我们不反疫苗，只针对假疫苗
-我们不反科学，只针对反人类**
+要把我们定为邪教，要几个性质，乱交、性交，你问问青藤我给你性交过吗，乱性交、欺骗财产、伤害别人、形成组织、统一密码，大概三十多条，我数了数三十多条一条没有，给你定为邪教。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/122301.jpg)
+第三件事情，对别人造成恐怖威胁。看到了吗镜头，打人！我到现在都没看出来，是谁打谁，是阿富汗还是哪国的在打，打人！这种威胁，你看到没有？这都是时间、人物、定义，最后让你的人说话，我找你的人说话——小斯基，我找Nicole，说你郭文贵不是个好东西，说你们是一起的。
 
-发起这场推特活动的词典编辑说，“普里克斯皮特（Prikspijt）反映了社会在疫苗和强化疫苗接种方面的两极分化。”
+编辑整理：海贼王M.D.LUFFY；
 
-《戴克·范·戴尔词典》（Dikke Van Dale dictionary）以82.2%的得票率从15个词中选出了“普里克斯皮特（Prikspijt）”。最接近的两个竞争词，“woonprotest”(抗议荷兰房地产市场)和“wappiegeluid”(一个贬义词，口语化的意思是阴谋论者)分别获得3.7%和3.6%的选票。约有4.9万人参加了投票，从2020年的1.2万人（增加到现在的4.9万人）。
+字幕文件制作：小满；
 
-这个词的定义是“某人因接种了任何传染病疫苗而感到后悔”。
+视频制作及上传：Cindy；
 
-《范·戴尔词典》杂志的编辑顿·登·布恩（Ton den Boon）说，这个词是一些人在推特上发起的一场运动后被选上的。“这是那些不想接种疫苗的人做的，” 登·布恩（Den Boon）告诉无线1台杂志社。
+G-News发布：小满；
 
-登·布恩（Den Boon）继续说:“这个词反映了社会在疫苗接种和加强注射方面的两极分化。”“这是一个有趣的词。最近也发现了相反的情况:你后悔没有注射（疫苗）。”
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
 
-无线1台杂志社周二进行了街头采访，看看人们是否在使用这个词，结果发现人们还没有这样做。大多数受访者认为，如果因为逃避注射而被送进医院，人们会懊悔不已。荷兰卫生部长雨果·德·容格（无线1台杂志社）在推特上表达了类似的观点，他说:“如果你因为没有打预防针而住进重症监护室，你才会后悔。”
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-新冠病毒疫苗一直受到彼得·麦卡洛博士（Peter McCullough）等健康专家的批评。他主张，用mRNA疫苗治疗新冠病毒是危险的，治疗比疾病本身更糟糕。美国疾病控制和预防中心(CDC)的疫苗不良事件报告系统(VAERS)数据显示，接种疫苗已导致2万多人死亡，超过15.55万人受到严重伤害。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-[援引原文](https://www.lifesitenews.com/news/new-dutch-word-of-the-year-translates-to-vaccine-regret/?utm_source=top_news&amp;utm_campaign=canada)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-审核校对：玫瑰天空
-上传排版：糖果儿
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
