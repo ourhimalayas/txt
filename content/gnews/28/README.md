@@ -2,36 +2,56 @@
 ---
 
 
-## 米勒先生通过演讲成功向欧洲议员推广盖特
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1782014/)
+## 特勤局调查被盗的新冠救济资金超过 1000 亿美元
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1782039/)
 
-作者：东京樱花团—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月19日，社交媒体平台盖特的CEO杰森-米勒先生在接受英国媒体的采访时表示，上周，他在法国向欧洲议会成员发表了一场非常成功的演讲，同时，他还向这些议会成员推广了盖特平台。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-23-上午7.45.49.png)
-米勒先生谈到，在他逗留法国的期间里，许多法国的保守派领导人都加入了盖特平台。此外，这些领导人还邀请米勒先生加入欧盟驻欧洲委员会斯特拉斯堡代表团，并就“自由言论、平民主义和永不屈服于全球主义者”这一主题发表演讲。米勒先生提到，演讲现场有来自10个国家的将近50名欧洲议会成员。
+作者：Ian Miles Cheong
+翻译：KK
 
-米勒先生表示，盖特现在已经拥有了超过三百万的用户。他还提别提及，在盖特总体的用户增长排行榜上，英国用户的增长幅度大概处于七八名的位置，目前大约有十五万零两百名的英国用户正在使用盖特。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-277.png)
 
-米勒先生强调称，欧洲有很多人相信言论自由，他们坚决反对各国政府目前因中共病毒疫情而实行封城措施，他们也很清楚，政府采取的中共病毒疫苗强制接种政策会毁掉一切。
+近 1000 亿美元的大流行救济资金缺失。美国特勤局表示，犯罪分子从小型企业管理局的薪资保护计划、经济伤害灾难贷款计划和另一个旨在为美国人提供失业援助资金的计划中窃取资金。
 
-参考链接：
-1）[https://gettr.com/post/pkafxz070c](https://gettr.com/post/pkafxz070c)
-2）[About the EU Delegation in Strasbourg](https://eeas.europa.eu/delegations/council-europe_en/1836/About%20the%20EU%20Delegation%20in%20Strasbourg)
+在周二的一份声明中，美国特勤局表示，迄今已追回超过 23 亿美元，并逮捕了 100 多名涉嫌盗窃的嫌疑人。被捕者的范围从个人到有组织的团体。
 
-![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+自 2020 年初大流行开始以来，美国政府已发放了约 3.5 万亿美元的 新冠救助资金。
 
-总编：Jack Li文阳
-编辑：诺雅
-校正/发稿：呼吸的雾霾（文小呼吸）
+追踪和逮捕金融欺诈者的特勤局除了为总统提供安全细节外，还宣布成立一个新的全国大流行恢复欺诈协调员，以监督其对全国大量欺诈案件的大规模调查。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+CNBC 报道称，从数千亿美元的盗窃案中已经确定了大量欺诈案件。
+
+“我在执法部门工作了 29 年多，从事一些复杂的欺诈调查工作 20 多年，我从未见过如此规模的事情，”负责该职位的助理特别探员罗伊·多森说。
+
+“毫无疑问，这些程序很容易在线访问。因此，随之而来的是坏人有了机会，”多特森告诉CNBC。“有必要尝试将这些资金转给真正受到伤害的人，而不是任何人。”
+
+多森说，特勤局有 900 多项与大流行欺诈相关的积极调查。
+
+“这是一个很宽的范围，因为基底太大了，” 多森说。“不仅有典型的跨国有组织集团和国内有组织的集团、犯罪集团，还有决定利用这一点的个人。因此，我们开发了许多不同的模式和调查情报，我无法真正深入，但是我们已经绘制了不同群体的一些不同特征。”
+
+同时负责监督与加密货币欺诈相关调查的多森表示，新冠救济欺诈的困难在于曾经分发的欺诈性贷款或失业保险福利金额可领用范围。
+
+特勤局发言人表示，追回的资金包括发送给 PayPal 和 Green Dot 的数亿美元。
+
+特勤局表示：“在特勤局早期就新出现的欺诈向私营部门发出警报后，众多金融机构主动识别、调查并防范涉嫌欺诈的大流行救助资金。” “这些私人机构随后向特勤局寻求进一步帮助。通过与 Green Dot 公司和 PayPal 等公司合作，特勤局能够查获超过 4 亿美元的欺诈资金。”
+
+来源：[https://www.rebelnews.com/secret\_service\_investigates\_over\_100\_billion\_in\_stolen\_covid\_19\_relief\_funds](https://www.rebelnews.com/secret_service_investigates_over_100_billion_in_stolen_covid_19_relief_funds)
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,110 +2,64 @@
 ---
 
 
-## G时评217期（12.22）直播摘要：大外宣/以色列/马斯克
-` GISELLE` [轉載自GNews](https://gnews.org/zh-hans/1782221/)
+## 众议员迈克·加西亚:中共国一次又一次地表现出对美国及其盟友的恶意
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1782265/)
 
-摘录：文勇
+众议员迈克·加西亚： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 一次又一次地表现出对美国及其盟友的恶意。我和我的中国特别工作组立法委员们一起呼吁推特首席执行官追究他们的责任。不应该允许在他们的平台上进行中共宣传。 【附众议院外交委员会共和党官网新闻】
 
-编辑：Giselle
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12.22.png)
-【话题】
 
-中共制裁美国宗教人士
 
-以色列查处中共导弹走私案
+> Time & time again, China has shown their ill intention towards America & its allies. I joined my fellow China Task Force lawmakers in calling on the Twitter CEO to hold them accountable. CCP propaganda should not be allowed on their platform.[https://t.co/hLwJgZxApW](https://t.co/hLwJgZxApW)
+> — Rep. Mike Garcia (@RepMikeGarcia) [December 22, 2021](https://twitter.com/RepMikeGarcia/status/1473788687641198595?ref_src=twsrc%5Etfw)
 
-纽时曝光中共大外宣招标案例
 
-【新闻1】
 
-中共宣布对四名美国国际宗教自由委员会官员实施“对等反制”。
+参议员瑞克·斯科特： 本周，我与参议员玛莎·布莱克本和其他同事一起敦促政府商务部制裁那些支持 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 对维吾尔人进行种族灭绝以及对少数民族和宗教团体犯下可怕罪行的公司。 【附布莱克本参议员官网新闻】
 
-【解读】
 
-1，宗教信仰是一项基本人权，这是西方等民主国家都认可的，就算政治上再有分歧，也不能公然否定宗教自由。
 
-2，中共对宗教信仰的破坏，从它窃国建政第一天就开始了，它对整个宗教实施的是毁灭性的打击，对新疆和西藏宗教人士的残害也从来没有停止过。
+> This week, I joined [@marshablackburn](https://twitter.com/MarshaBlackburn?ref_src=twsrc%5Etfw) & our colleagues urging [@CommerceGov](https://twitter.com/CommerceGov?ref_src=twsrc%5Etfw) to demand sanctions on companies enabling Communist China’s genocide against the Uyghurs & horrific crimes against ethnic & religious groups. [https://t.co/0zrFaHH4CR](https://t.co/0zrFaHH4CR)
+> — Rick Scott (@SenRickScott) [December 22, 2021](https://twitter.com/SenRickScott/status/1473805247030177792?ref_src=twsrc%5Etfw)
 
-3，这种大面积的犯罪行为，中共整整持续了71年，西方文明国家，出于各自私心，视而不见，姑息养奸，终于酿成大祸。
 
-4，中共对美国国际宗教自由委员会官员的制裁，是一招臭棋，只能加速美国两党的觉醒。这个部门是联邦政府的独立机构，负责对世界范围内的宗教自由做出评估。它在美国民众当中象征意义大于实权。中共对其实施制裁，作用不大，但侮辱性极强。
 
-5，今年3月中共对欧盟官员的反制裁，直接导致中欧贸易协议破产。我们可以推断，中共这一次又要搬起石头猛砸自己的脚。
+美国国务院： 国务卿布林肯：与一年前相比，我们现在在几乎所有问题上都与我们的盟友和伙伴更加一致，包括俄罗斯对乌克兰及其邻国的侵略、伊朗的核计划以及 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 挑战基于规则的国际次序的企图。
 
-【新闻2】
 
-中共承诺，冬奥会期间，外国运动员可以不受限制地使用互联网。
 
-【解读】
+> .[@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw): We’re much more aligned with our allies and partners now than we were a year ago on nearly every issue, including Russia’s aggression toward Ukraine and its neighbors, Iran’s nuclear program, and China’s efforts to challenge the rules-based international order. [pic.twitter.com/bkByk6DCTO](https://t.co/bkByk6DCTO)
+> — Department of State (@StateDept) [December 22, 2021](https://twitter.com/StateDept/status/1473779127836721161?ref_src=twsrc%5Etfw)
 
-1，使用中共提供的无线上网服务，可能会给运动员们惹来大麻烦。其个人电子设备、私密信息等等，都有可能被中共掌握，未来成为中共威胁、恐吓、利用对方的筹码。
 
-2，中共这一波操作，实际上是在向全世界宣布：华人与狗不得翻墙。
 
-【新闻3】
+第780军事情报旅（网络）： 根据周二发布的一份新报告，[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 发起了一场大规模的宣传运动，旨在以自己的形象重建民主。 【附在[http://therecord.com](https://t.co/fOUMQEWPtW) 发表的该报告】第780军事情报旅（网络）： 中共国在民主（定义）上的话语权之战。 【附在[http://recordedfuture.com](https://t.co/JSPD8cLupN)发表的报告】
 
-涉嫌非法向中共国出口巡航导弹，3家以色列公司以及10名以色列人被起诉。
 
-【解读】
 
-1，这个新闻再一次证实了，中共利用蓝金黄的力量，实施全球战略扩张的野心。
+> China has unleashed a massive propaganda campaign aimed at recreating democracy in its own image, according to a new report published Tuesday. [https://t.co/LDk7kQ37Cv](https://t.co/LDk7kQ37Cv) [@TheRecord\_Media](https://twitter.com/TheRecord_Media?ref_src=twsrc%5Etfw)
+> — 780th Military Intelligence Brigade (Cyber) (@780thC) [December 22, 2021](https://twitter.com/780thC/status/1473730325868171268?ref_src=twsrc%5Etfw)
 
-2，以色列军工非常发达，是整个国民经济当中的支柱产业，这也是以色列敢跟伊朗直接叫板的原因。
 
-3，以色列军工制造的武器装备，向全世界60多个国家出口，以色列科技创新能力在全球排第二，高科技非常发达，是人均专利申请数量最高的国家之一。
 
-4，以色列公司私下向中共出口巡航导弹的背后，很可能涉及以色列军工方面高科技技术的泄密，甚至中共会把这批导弹，一转手就卖给以色列的死敌伊朗，这才是令以色列和美国担心的。而且这种可能性非常大。
+美国国会及行政当局中国委员会： [#Olympic](https://twitter.com/hashtag/Olympic?src=hashtag_click) 奥林匹克的团结与包容精神因 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 对宗教团体的严厉甚至有时是残酷的限制而遭到玷污，特别是那些寻求不受共产党监视、或与少数民族有关联的宗教团体。 [#奥运囚徒](https://twitter.com/hashtag/%E5%A5%A5%E8%BF%90%E5%9B%9A%E5%BE%92?src=hashtag_click) [#OlympicPrisoner](https://twitter.com/hashtag/OlympicPrisoner?src=hashtag_click)
 
-【新闻4】
 
-中共加紧整肃处罚网络平台，继新浪微博、豆瓣后，知乎也收到整改令。
 
-【解读】
+> The [#Olympic](https://twitter.com/hashtag/Olympic?src=hash&amp;ref_src=twsrc%5Etfw) spirit of unity and inclusiveness is tarnished by the severe and sometimes brutal restrictions placed on religious groups in China, particularly those seeking to be free of Communist Party oversight or those associated with ethnic minorities. [#OlympicPrisoner](https://twitter.com/hashtag/OlympicPrisoner?src=hash&amp;ref_src=twsrc%5Etfw)
+> — China Commission (@CECCgov) [December 22, 2021](https://twitter.com/CECCgov/status/1473745205107085322?ref_src=twsrc%5Etfw)
 
-1，中共独裁统治风雨飘摇、岌岌可危，政治、经济、疫苗危机同时爆发。按照中共的危机公关模式，一旦国内出现重大问题，它必然不是先去解决这个问题，而是首先控制网络、控制媒体、控制舆论。
 
-2，今年来大量的封杀自媒体、论坛等净网行动，目的都是维护习近平的独裁统治，保证权力的平稳过渡。
 
-3，即便是“铁血社区”这种粉蛆扎堆的地方，只要不是习近平可以操控的力量，那也是要被消灭的。
+众议员迈克·沃尔茨： [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 正在对企业施压，要求他们把立陶宛清除出他们的供应链，在后者支持民主和让 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 开设非官方大使馆之后。 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 会对任何妨碍他们走向统治全球道路的人发动经济战争。 【转路透社，立陶宛面临中共国带领的企业抵制，中国已要求跨国公司与立陶宛断绝关系】
 
-【新闻5】
 
-中共外宣报价单曝光，影响脸书、推特舆论。
 
-《纽约时报》报道，一份由上海市公安局浦东分局发布的招标案，征求民间企业协助运营境外平台外宣工作，欲透过假帐号带舆论风向，并搜索平台上发布特定内容的用户在中共国境内的信息。
+> The [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)’s pressuring corporations to cut Lithuania out of their supply chains after they supported democracy and let Taiwan open an unofficial embassy. 
+> 
+> China will wage economic war on ANYONE who stands in its way in its march towards global domination. [https://t.co/Ro3rQDxamI](https://t.co/Ro3rQDxamI)
+> — Rep. Mike Waltz (@michaelgwaltz) [December 22, 2021](https://twitter.com/michaelgwaltz/status/1473673160503566338?ref_src=twsrc%5Etfw)
 
-【解读】
 
-1，中共舆论战账号作假方式：无中生有创建假账号，收买大V为它所用。
-
-2，手段：分区作战，定向打击；真假参半，9分真1分假，各种花招迷惑公众。
-
-3，目的：混淆视听，扰乱真相；造谣，打击传播真相者的公信力；美化中共独裁统治。
-
-【新闻6】
-
-拜耳制药总裁 S. Oelrich 承认 mRNA “疫苗”是细胞和基因疗法，如果不是因为“大流行”的胁迫，公众不会同意服用的。
-
-【解读】
-
-1，拜耳制药总裁出来说这个事情，再次证实新冠疫苗只是细胞和基因疗法，民众是因为大流行的胁迫才同意使用。
-
-2，这个注射液不能叫疫苗，因为它根本就不是疫苗。
-
-【新闻7】
-
-伊隆马斯克：(左派所谓的)“觉醒运动”基本上想把喜剧变成非法的，这并不酷……我们想要一个只是充斥着谴责，和仇恨，没有幽默感的社会吗？
-
-【解读】
-
-1，马斯克选择站在光明阵营，是非常值得庆幸的事情。像马斯克这种既有才华又有创造力、有实力又有常识的人，是人类（走向）文明未来的希望之一。
-
-（文章内容仅代表G时评个人观点）
-
-本期链接：
-
-[https://gtv.org/video/id=61c302f6bcb7f101bb730c46](https://gtv.org/video/id=61c302f6bcb7f101bb730c46)
 
  
 
