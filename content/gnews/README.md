@@ -18,104 +18,104 @@
 ### [新歌打榜秀实力，大直播震撼中南坑](/content/gnews/1/README.md)
  ` 秘密翻译组-原创组`
 
-### [“阿里云被踢”印证中共对全球网络安全的威胁](/content/gnews/2/README.md)
+### [西媒头条 — 第137期](/content/gnews/2/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [“阿里云被踢”印证中共对全球网络安全的威胁](/content/gnews/3/README.md)
  ` 墨尔本雅典娜农场`
 
-### [最高法院将于1月初听取强制接种中共病毒疫苗的辩论](/content/gnews/3/README.md)
+### [最高法院将于1月初听取强制接种中共病毒疫苗的辩论](/content/gnews/4/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [迫于当前疫情压力，澳洲新南威尔士重启部分限制措施](/content/gnews/4/README.md)
+### [迫于当前疫情压力，澳洲新南威尔士重启部分限制措施](/content/gnews/5/README.md)
  ` 澳喜特战旅Gnews`
 
-### [朔尔茨意欲让德国倒向中共](/content/gnews/5/README.md)
+### [朔尔茨意欲让德国倒向中共](/content/gnews/6/README.md)
  ` 澳喜农场`
 
-### [塔克秀节目抨击CNN“恋童癖发作”](/content/gnews/6/README.md)
+### [塔克秀节目抨击CNN“恋童癖发作”](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [澳洲CCP病毒感染激增，医疗保健人员恐面临心理危机](/content/gnews/7/README.md)
+### [澳洲CCP病毒感染激增，医疗保健人员恐面临心理危机](/content/gnews/8/README.md)
  ` 澳喜特战旅Gnews`
 
-### [历史的转折点 文革会再来吗？](/content/gnews/8/README.md)
+### [历史的转折点 文革会再来吗？](/content/gnews/9/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [英国上个月数据：已接种疫苗者占新冠死亡人数的80%](/content/gnews/9/README.md)
+### [英国上个月数据：已接种疫苗者占新冠死亡人数的80%](/content/gnews/10/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [港大连夜移除“国殇之柱” 作者扬言求偿](/content/gnews/10/README.md)
+### [港大连夜移除“国殇之柱” 作者扬言求偿](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [警报：三个月内将有百分之六十的美国人感染中共病毒](/content/gnews/11/README.md)
+### [警报：三个月内将有百分之六十的美国人感染中共病毒](/content/gnews/12/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [【中日财经爆】全球第二大主权财富基金从云南白药撤资](/content/gnews/12/README.md)
+### [【中日财经爆】全球第二大主权财富基金从云南白药撤资](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [为镇压反抗的市民，港共警队新购3辆「水炮车」](/content/gnews/13/README.md)
+### [为镇压反抗的市民，港共警队新购3辆「水炮车」](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [驻北朝鲜中共国大使离任 ，后任者赴任期不明](/content/gnews/14/README.md)
+### [驻北朝鲜中共国大使离任 ，后任者赴任期不明](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [单伟建派出的杨贝贝坦承爆料革命在全球掀起的反共浪潮](/content/gnews/15/README.md)
+### [单伟建派出的杨贝贝坦承爆料革命在全球掀起的反共浪潮](/content/gnews/16/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [参与中共国千人计划的美国哈佛大学教授被判有罪](/content/gnews/16/README.md)
+### [参与中共国千人计划的美国哈佛大学教授被判有罪](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国要求日本撤销核电站处理水排海计划](/content/gnews/17/README.md)
+### [中共国要求日本撤销核电站处理水排海计划](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [速报 岸田首相说对于Omicron必须保持谨慎行事](/content/gnews/18/README.md)
+### [速报 岸田首相说对于Omicron必须保持谨慎行事](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花灭共诗——送门殿友西出](/content/gnews/19/README.md)
+### [樱花灭共诗——送门殿友西出](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【中日财经爆】英特尔为保中共国市场，发文道歉](/content/gnews/20/README.md)
+### [【中日财经爆】英特尔为保中共国市场，发文道歉](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [必须以法律行动应对共产党定性的骚扰诈骗和有组织暴力](/content/gnews/21/README.md)
+### [必须以法律行动应对共产党定性的骚扰诈骗和有组织暴力](/content/gnews/22/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [中共设计冬奥会前抛出爆料革命为邪教和恐怖分子的采访](/content/gnews/22/README.md)
+### [中共设计冬奥会前抛出爆料革命为邪教和恐怖分子的采访](/content/gnews/23/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [中共国雁过拔毛，习太阳南柯一梦](/content/gnews/23/README.md)
+### [中共国雁过拔毛，习太阳南柯一梦](/content/gnews/24/README.md)
  ` 银河勇气之星`
 
-### [美国国家冰球联盟与球员协会将退出北京冬奥会](/content/gnews/24/README.md)
+### [美国国家冰球联盟与球员协会将退出北京冬奥会](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [郭先生提前看穿并全程录播单伟建派遣记者杨贝贝的采访](/content/gnews/25/README.md)
+### [郭先生提前看穿并全程录播单伟建派遣记者杨贝贝的采访](/content/gnews/26/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [盖茨、福奇和谭德赛在法庭文件中被指控犯有种族灭绝](/content/gnews/26/README.md)
+### [盖茨、福奇和谭德赛在法庭文件中被指控犯有种族灭绝](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [FDA严重拖长病毒疫苗数据开放时间](/content/gnews/27/README.md)
+### [FDA严重拖长病毒疫苗数据开放时间](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [荷兰年度新词：疫苗后悔(药)](/content/gnews/28/README.md)
+### [荷兰年度新词：疫苗后悔(药)](/content/gnews/29/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [郭文贵先生首次揭露“彭帅事件”细节始末](/content/gnews/29/README.md)
+### [郭文贵先生首次揭露“彭帅事件”细节始末](/content/gnews/30/README.md)
  ` 纽约香草山MOS02`
 
-### [牧师妻子称自接种疫苗后葬礼不断](/content/gnews/30/README.md)
+### [牧师妻子称自接种疫苗后葬礼不断](/content/gnews/31/README.md)
  ` GTV新闻访谈`
 
-### [北京中轴风水秘密-盘古雷龙霹雳火](/content/gnews/31/README.md)
+### [北京中轴风水秘密-盘古雷龙霹雳火](/content/gnews/32/README.md)
  ` G-NEWS TAIWAN`
 
-### [把爆料革命归为美国右派是VICE视频谎言链条中的另一环](/content/gnews/32/README.md)
+### [把爆料革命归为美国右派是VICE视频谎言链条中的另一环](/content/gnews/33/README.md)
  ` NewFOC`
 
-### [特鲁多承认中共国为“重大挑战”，但对华政策仍不明朗](/content/gnews/33/README.md)
+### [特鲁多承认中共国为“重大挑战”，但对华政策仍不明朗](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [2021年美国IPO首达1000家，融资额3150亿美元创纪录](/content/gnews/34/README.md)
- ` 纽约香草山MOS02`
 
 ### [欧盟批准第五剂新冠疫苗以响应世卫组织](/content/gnews/35/README.md)
  ` 温哥华圆成农场🇨🇦`
