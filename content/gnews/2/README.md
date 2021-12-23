@@ -2,79 +2,67 @@
 ---
 
 
-## 女人挑选伴侣的9大愿望清单
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1782388/)
+## 明年5月份以前 这个世界会相当动荡
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1782393/)
 
-作者：纽约香草山福音部 – 正道人
+[https://gtv.org/video/id=61c34a4f43ccb726a089d0e7](https://gtv.org/video/id=61c34a4f43ccb726a089d0e7)
 
+**郭文贵
+Miles Guo**
 
+世界上我觉得可能会出大事，严格讲，就是明年5月份以前
+I think something big could happen in the world, strictly speaking, before next May
+这个世界相当的动荡，习太阳，真要是好好思考思考
+The world is quite in turmoil, Xi Sun, he really need think about it
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
+包括最近听说军队大调整，这种大调整就是不自信嘛，不相信嘛
+Including I recently heard about a major adjustment in the army, this kind of major adjustment means that Xi are not confident and not believe it
 
+被调整都很有数，因为你不相信我嘛
+Those who have been adjusted are all mentally well-informed, because Xi don’t trust me
 
+公检法的大调整，公安部的部长的调整， 政法委的整个的没落
+The major adjustments of the Public Security Bureau, the adjustment of the Minister of the Ministry of Public Security, the declining of the entire Politics and Law Commission
 
-大多数女人都对她们心中的白马王子抱有幻想。女人最初对男人的吸引力是肤浅的，比如英俊的外表、肌肉发达的身体、健谈的性格和性欲旺盛的举动。许多离婚女性后悔过于关注男性的外在魅力，而不是他们的品格。在当今世界里，随便找到一个约会对象相当容易，但对女性来说，找到一个真正的灵魂伴侣则更具挑战性。女人很可能会因为错误的选择而抱憾终身，因为他们在选择一生伴侣时过于无纸化和情绪化。许多成功的商界女性告诉我，她们在结婚前更关注伴侣的经济和家庭状况，而忽略了她们丈夫的特质和内在价值观。
+中纪委到处最近抓金融机构和政法委的人
+Recently, the Central Commission for Discipline Inspection has been arresting people from financial institutions and political and legal committees everywhere
 
+都说明了为冬奥会在做预防性的准备
+All show that preventive preparations are being made for the Winter Olympics game
 
+刚刚河北又抓了20多个人
+Just now, Hebei has arrested more than 20 people
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/20211223_1.jpg)图片来自网络
+你看河北政法委会抓多少人，你会看到血流成河
+look at the number of people arrested by the Hebei Political and Legal Committee, you will see the blood river
 
+所以说冬奥会绝对是上天送给爆料革命的大礼
+Therefore, the Winter Olympics game is definitely a gift from God to the whistleblower movement
 
+无论从国际影响、知名度，在党内引起的
+Regardless of international influence, popularity, or all the shock cause within the Communist Party
 
-许多情感专家为女性寻找灵魂伴侣提供了不同层面的建议。我要和大家分享的是女人在做出一生的承诺之前，需要考虑的好男人必须具备的9个特征。
+所有的震撼和未来大家可以预期，任何我们今天讨论发生一件
+and the future you can expect, anything we discuss today will happen
 
-**1****、诚实与正直**
+都是以共灭共、以美灭共，咱们一个重大的进展
+It’s all about taking down the Communist Party with CCP and with the United States, and we are making a major progress
 
-大多数男人会说一些谎话来吸引女人的注意。一开始这能保证约会的顺利进行，但最终，女人在发现真相后会有被欺骗的感觉。寻找诚实正直的男人对女性建立稳定牢固的关系至关重要。永远不要忽视一个人的核心价值观:公平、道德、伦理、诚实。
+Date: 12/21/2021
+原视频标题: 明年5月份以前 这个世界会相当动荡
+The world will be quite turmoil before May next year
+原视频日期：2021/12/19
+原视频链接：[https://gettr.com/post/pk5lmv17ff](https://gettr.com/post/pk5lmv17ff)
+任务编号：KC360（3297）
+视频时间段 : 0:00-1:29
+中听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – Kevin37L
 
-**2****、自信和自尊**
-
-很多有自信的人也因为太骄傲而自大。平衡自信和傲慢是很重要的。女人需要自尊心强的男人，而不是自私自大的男人。女人会被那些相信自己有自信的个性的男人所吸引，而不是那些盛气凌人或自我迷恋的男人。
-
-**3****、同情与诚信**
-
-女人很容易爱上值得信赖、有同理心的男人。大多数女人都希望和富有同情心的男人在一起，尤其是当女人感到悲伤、软弱或脆弱的时候。仁慈的男人不做判断就能理解别人的想法。与值得信赖、富有同情心的男人分享快乐或痛苦时光，女性会感到更安全。
-
-**4****、尊重与荣耀**
-
-所有女人都想拥有一段相互尊重的爱情关系，尽管有些女人从没有经历过来自伴侣的真正尊重。不快乐的女人抱怨她们被男人忽视、虐待、视为理所当然、精神上受到折磨。一段不尊重的关系最终会结束。女人应该寻找懂得如何尊重朋友、家庭成员和其他有尊严的人。
-
-**5****、开朗自在且情绪稳定**
-
-许多情绪不稳定的男人喜怒无常，难以捉摸，尤其是当他们面临工作或金钱方面的挑战时。女人应该远离这些男人，以避免情感创伤或其他关系危机。明智而有意识的女人寻找情绪稳定的男人，他们能公开表达自己的感受或与女人的问题。理性和可靠的男人知道如何在逆境中成长也知道如何寻求外界帮助，而不是选择逃避或者迁怒身边的人。
-
-**6****、责任与成熟**
-
-一般来说，女性比男性更成熟，因为女性从出生起就具备天性的责任和爱心。可悲的是，不成熟的男人从不享受长期的爱情关系，因为他们的坏脾气和失控的愤怒会很快摧毁信任关系的纽带。成熟的男人对自己的行为更敏感，偶尔允许自己表现出脆弱和软弱，也是成熟男人的特质。男人需要有勇气面对现实，承担责任，并信任他们的伴侣。
-
-**7****、感恩与赞美**
-
-大多数女性不快乐是因为她们的伴侣不知道如何表达感激。一位女性朋友在签署离婚协议后告诉我: “结婚20年来，我丈夫从未对我说过谢谢。” 一位非常著名的女教授在和她的男友分手后抱怨道:“我男友对我过去三年的杰出成就没有任何赞美之词。”这是一个普遍的社会现象，许多男人不愿意赞扬身边女性的才华或智慧。真诚的赞美和感激可以让一个女人很长一段时间都感到快乐和满足。
-
-**8****、忠诚和承诺**
-
-大多数女人离婚是因为男人的欺骗和出轨所致。人一旦欺骗，就会再欺骗，恶习难改也是事实。如果一个女人怀疑她的男人没有完全投入到这段感情中，她应该尽可能快地远离。忠诚是维系一段关系的核心魔力。永远不要降低你对信任、奉献或承诺的期许。明智的女人应该毫不犹豫地对不忠的男人说“不”，因为出轨的男人总是在寻找更好的伴侣。
-
-**9****、真爱和浪漫**
-
-女人对浪漫的男人束手无策，他们懂得如何用非常诱人和有吸引力的方式表达自己。一张简短的爱的纸条，一束花，一件小礼物，一首体贴的诗，或者偶尔一次惊喜的旅行，都可以快速俘获女人的心和灵魂。大多数已婚女性最后都会抱怨，因为她们的男人不再浪漫，不再爱她们。
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/dec.jpg)
-
-
-
-编辑/校对/发稿：武裝的羔羊
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+00：10 相当的动荡 改为 相当地动荡
 
  
 

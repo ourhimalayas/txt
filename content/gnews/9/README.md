@@ -2,48 +2,152 @@
 ---
 
 
-## 市政府付钱追捕未打疫苗的人并施以罚款
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1782323/)
+## 中原佛手 盘古龙头 让习恐惧 秒杀共产党的无神论
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1782344/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/61c2426f2030276eed146eaa.jpg)2021年12月11日，奥地利维也纳，警察拘捕了一名反对新冠病毒大流行的强制措施的示威男子 © AP / 弗洛里安-施罗特（Florian Schroetter）
-奥地利的一个城市发出招聘启事，工作要求是要对那些不愿意接种新冠疫苗（Covid）的人施以处罚性罚款。这次招聘活动是在欧洲国家全面推行疫苗强制令的几周前进行的。
+[https://gtv.org/video/id=61c349a343ccb726a089d0cb](https://gtv.org/video/id=61c349a343ccb726a089d0cb)
 
-根据奥地利林茨市发布的一则招聘广告，受雇者将对那些交不出因未接种疫苗而被罚款的人进行处罚、提出上诉和采取各种措施。在广告开头标注，这份工作适合那些“乐于从事立法和行政工作”的人。
+**郭文贵
+Miles Guo**
 
-这些受雇者的报酬以月计算，工资从2774欧元（3126美元）起。要获得这份工作的资格是，该受雇者必须拥有奥地利公民身份，最低学历是高中毕业，适应性强并可以加班，没有犯罪记录，最重要的是，要有有效的新冠疫苗接种或康复证书。
+我要告诉大家一个最根本的问题
+Les voy a decir a todos el problema más fundamental
 
-除此之外，在与具有同等资格的男性竞争该职位时，女性将被优先考虑。
+盘古把龙头变龟头的根本原因是他（习）相信风水
+La razón fundamental por la que Pangu convirtió la cabeza del dragón a la cabeza de tortuga es que él (Xi) cree en el Feng Shui
 
-据了解，拥有20万居民的林茨是整个奥地利新冠疫苗接种率最低的城市。根据一个跟踪该国数字疫苗接种证书发放情况的网站，到目前为止，该市只有63%的人口接种了完整剂量的新冠疫苗。
+他相信我们盘古的黑蛇白蛇的故事
+Él cree en la historia de Pangu sobre la serpiente negra y la serpiente blanca
 
-12月早些时候，执政的保守派和三个反对党中的两个党派同意在2022年2月1日之前对所有奥地利人实行强制接种新冠疫苗，14岁以下或有医疗豁免的人除外。那些不愿意接种的人将会面临每三个月被重罚一次的惩罚。据媒体报道，如果一个人在一年内坚持拒绝接种疫苗，他们最终可能面临12个月共3600欧元的罚款。
+他相信裕达这个佛手的力量
+Cree en el poder de Yuda, la mano de Buda
 
-奥地利是欧洲第一个宣布对其所有公民进行全面的新冠疫苗接种的国家。其首都维也纳是世界上第一个在11月对未接种新冠疫苗的人实施严格的全国性封锁的城市，只是在几周后就扩大到也包括接种了新冠疫苗的公民。禁令于12月12日已解除，但未接种新冠疫苗的奥地利人仍然被禁止进行非必要的外出活动。
+而且这个事情谁都做不了决定
+Además, este asunto nadie podrá hacer la decisión
 
-简评：
+一定是习王孟
+Seguro es Xi, Wang, Meng
 
-奥地利是欧洲第一个宣布对其所有公民进行全面的新冠疫苗接种的国家。其首都维也纳是世界上第一个在11月对未接种新冠疫苗的人实施严格的全国性封锁的城市。其第三大城市林茨也要争个“第一”，第一个政府出钱雇佣人民稽查队来监督疫苗强制令的欧洲城市。
+所有人 孙力军 傅政华
+Todas las personas, Sun Lijun, Fu Zhenghua
 
-奥地利这种在世界上争新冠疫苗强制令第一，为了展现给世界看自己的掌控力，其政府把政治正确建立在人民的痛苦和牺牲人民的利益之上。据调查，奥地利的最低工资为1500欧元，政府开出将近3000欧元的高薪，低门槛的招工条件，想必会诱惑吸引很多人。在其招工启示上注明，女性优先考虑。
+就是Ｎ个人经过核实后
+Es comprobado por N personas
 
-政府用纳税人的钱去整治纳税人，发动人民斗人民的手段，像极了为了掌控一切，不择手段，视人民为草芥的中共政权。
+认为这是儿是靠普的 是真的
+Creen que esto es real, es confiable
 
-新闻链接：[https://www.rt.com/news/543927-covid-unvaccinated-hunters-austria/](https://www.rt.com/news/543927-covid-unvaccinated-hunters-austria/)
+而且越来越相信
+Además, cada vez creen más en eso
 
-翻译/简评: JS
+明年是虎年 让荣光依旧给矇对了
+El próximo año es el año del tigre, Rong Guang aún lo adivinó correctamente
 
-PR：clau
+不是（因为）佛手他才怕的
+No es (porque) la mano de Buda por eso le teme
 
-* * *
+盘古属啥呀
+¿Qué es Pangu?
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+盘古是什么形象
+¿Cuál es la imagen de Pangu?
 
+盘古是龙
+Pangu es Dragón
 
-编辑：【英国伦敦喜庄园编辑部】
+明年是虎年
+El año que viene es año del Tigre
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+龙虎是什么（关系）
+Qué es (relación) entre el dragón y el tigre
+
+龙虎相争 必有一伤
+Debe haber un herido en la batalla entre el dragón y el tigre
+
+天下最忌讳的是龙虎斗
+La cosa más tabú en el mundo es la pelea de dragones y tigres
+
+啥叫佛手
+Qué es la mano de Buda
+
+什么事你都逃不开佛祖之手
+Significa que no puedes escapar de la mano de Buda por nada
+
+什么人都跑不了
+Nadie puede escaparse
+
+在这个整个西游记里边也好
+Así sea dentro del “Viaje al oeste”
+
+降虎之魔那是如来掌
+El demonio para domar el tigre es la palma del Buda
+
+啪嚓是吧
+Una bofetada, cierto
+佛、菩萨
+Buda, Bodhisattva
+
+连苍蝇都不如 是吧
+Es menos que una mosca, cierto
+
+北有龙头
+Al norte hay la cabeza de dragón
+
+南有中原佛手
+Al sur hay la mano de Buda de las llanuras centrales
+
+你说一般人但凡你要是习近平你怕不怕
+Dime tu si una persona normal fuese Xi Jinping le temes o no
+
+关键你信不信
+El punto es que lo crees o no
+
+你要信了 你就怕
+Si crees en eso lo temes
+
+你不信你（就不怕）
+Si no lo crees (no lo temes)
+
+他要不信就不会强令让金融公司一定把龙头给包住
+Si él no lo creyera no obligaría a la compañía financiera a cubrir la cabeza del dragón
+
+这多可怕
+Que terrible es esto
+
+变成个龟头这个形象
+Se convirtió en una imagen de cabeza de tortuga
+
+震惊了世界
+Impactó al mundo
+
+你们没有意识到这件事情对中国共产党的无神论 几乎是秒杀
+Ustedes no tienen idea de que este asunto de ateísmo para el Partido Comunista de China es una destrucción en segundos
+
+共产党内部人就说
+Dentro del Partido Comunista la gente dice
+
+你不相信风水、不相信神你干这干什么
+“Si no crees en el Feng Shui, ni en Dios para qué haces esto”
+
+日期：12/20/2021
+原视频标题：中原佛手 盘古龙头 让习恐惧 秒杀共产党的无神论
+La mano de Buda de las llanuras centrales, la cabeza del dragón de Pangu, le da temor a Xi. Destruye en un segundo el ateísmo del Partido Comunista
+原视频日期：12/19/2021
+原视频网址： [https://gettr.com/post/pk2l535498](https://gettr.com/post/pk2l535498)
+任务编号：KC359(3283)
+视频时间段：0:00-01:39
+西听校：洛杉矶盘古农场 – 小文萱
+翻译：洛杉矶盘古农场 – 霙霙（文霙）
+翻译终校：洛杉矶盘古农场 – 小文萱
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – Kevin37L
+
+00：28 认为这是儿是靠谱的 改为 认为这事儿是靠谱的
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

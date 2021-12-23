@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/23/2021 4:20 AM (UTC)`
+
+12/22/2021 Miles Guo: VICE, an unscrupulous media, baselessly accuses me of being a swindler by making up lies, and it smears the New Federal State of China and the Whistleblowers’ Movement as cults. However, VICE can’t provide any evidence whatsoever! Such despicable actions of VICE are exactly the same as how the CCP responded to the sexual assault of Peng Shuai by Zhang Gaoli<br/><br/>12/22/2021 文贵直播: 无良媒体VICE编造谎言指控文贵是骗子，并污蔑新中国联邦和爆料革命是邪教，却拿不出任何证据！这种卑劣的做法和中共对待彭帅被张高丽性侵事件的手法如出一辙！<br/>
+![img](https://media.gettr.com/group31/getter/2021/12/23/04/87be75aa-9b28-e647-9477-e61c4cbf1cec/out.jpg)
+
+---
+
 `@miles 12/23/2021 3:58 AM (UTC)`
 
 12/22/2021 Miles Guo: The biggest evil force controlled by the CCP is the media! Forcing Peng Shuai to admit that she "raped" Zhang Gaoli and using Ma Rui's rape case to frame me follow the same trick of the CCP; Isobel Yeung and VICE have denounced our fellow fighters as cult members, and yet they have not said a single word about the CCP's attack and harm on the Whistleblowers' Movement. But what we have said will be the evidence for their crimes!<br/><br/>12/22/2021 文贵直播：中共控制的最大邪恶力量是媒体！中共反逼彭帅承认其“诱奸”张高丽和用马蕊强奸案陷害文贵是同一套路数；杨贝贝和VICE污蔑战友们是邪教分子，却闭口不谈中共对爆料革命的攻击和伤害，我们说过的话都将成为审判他们罪行的证据！<br/>
@@ -149,13 +156,6 @@ The CCP is using social media — American companies — to advance its communis
 
 12/19/2021 Miles Guo: Fearing possible assassinations and attacks, Xi Jinping has ordered the evacuation of Beijing and its surrounding cities including Beijing Daxing International Airport before the Winter Olympic Games starts; troops and anti-missile systems are being deployed in and around Beijing; the chance of army coup after the Winter Olympic Games is higher than 50%; it might start with making explosions of public facilities<br/><br/>12/19/2021 文贵直播：因为惧怕刺杀和袭击，在冬奥会开幕前，习近平已在北京及周边包括大兴机场开始清城行动，并部署了重兵和反导系统；冬奥会后出现反习兵变的几率超过50%，可能会从公共设施爆炸先着手<br/>
 ![img](https://media.gettr.com/group37/getter/2021/12/20/07/30f2be06-c7fe-8380-d02c-e5f9d0bad4fd/out.jpg)
-
----
-
-`@miles 12/20/2021 7:05 AM (UTC)`
-
-12/19/2021 Miles Guo: Peng Liyuan (Xi Jinping’s wife) will surely make an appearance at the Winter Olympics, announcing that she is the second top figure of Communist China! The Great Hall of the People will be the first choice for Xi to meet with the leaders from 20 or so countries attending the Winter Olympics. The Pangu 7 Star Hotel will be the most important venue for the Winter Olympics as the national security control center!<br/><br/>12/19/2021 文贵直播: 彭丽媛一定会在冬奥会上亮相，以此向世人宣告她是中国第二号人物！习近平也一定会首选人民大会堂接见来自20多个国家的领导人。作为国家安全控制中心的盘古七星酒店将成为冬奥会最重要的场所！
-![img](https://media.gettr.com/group12/getter/2021/12/20/07/79d93a5d-9935-4cd3-b756-ac87808c2d79/out.jpg)
 
 ---
 
