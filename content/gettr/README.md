@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/23/2021 2:59 AM (UTC)`
+
+12月22号：共产党对人类的复合性的病毒🦠有快速死亡，慢速死亡，长期死亡的各病毒正在威胁全人类……为什么全世界的政府不找中共要病毒的真相？<br/><br/><br/>投射”恐惧贩子来了！<br/><br/> “突发：Omicron 浪潮将席卷美国，到 3 月将有 60% 的人受到感染，新感染人数将达到 1.4 亿——但华盛顿大学警告说，90% 的人永远不会出现症状”<br/><br/> https://www.dailymail.co.uk/news/article-10337845/Enormous-spread-Omicron-cause-140-MILLION-new-infections-January-1-March-1.html Here come the “projection” fear mongers!<br/><br/>“BREAKING: Omicron wave will crash on US with 60% of people infected by March and 140 MILLION new infections - but 90% will never show symptoms, University of Washington warns”<br/><br/>https://www.dailymail.co.uk/news/article-10337845/Enormous-spread-Omicron-cause-140-MILLION-new-infections-January-1-March-1.html类型全人类的安全安全安全！要！
+
+---
+
 `@miles 12/23/2021 12:00 AM (UTC)`
 
 2021.12.22 The Truth Behind Mr. Miles Guo's Interview with HBO Vice 
@@ -150,12 +156,6 @@ The CCP is using social media — American companies — to advance its communis
 
 12/19/2021 Miles Guo: Xi attempts to use foreign athletes and media coverage of the Winter Olympics to prove his governing capability and the superiority of the CCP’s system; Xi will continue to make him a god and will invade Taiwan in the name of saving Taiwan, and by then the Taiwanese athletes will not have to go back to Taiwan<br/><br/>12/19/2021 文贵直播：习妄想在冬奥会利用外国运动员和媒体报道来证明自己的治理能力和中共体制的优越性；习将继续造神并以拯救台湾的名义打台湾，届时，台湾运动员就不用回去了<br/>
 ![img](https://media.gettr.com/group8/getter/2021/12/20/07/9d31ec79-eb5f-de44-340b-79bca1513a43/out.jpg)
-
----
-
-`@miles 12/20/2021 2:37 AM (UTC)`
-
-Miles Guo's Latest Song "Hcoin To the Moon" has created 22 historic records so far🎉🎉🎉🎉🎉🎉🎉🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1771779<br/><br/>郭文贵先生最新歌曲《Hcoin To the Moon》迄今为止已经创造了22项历史记录🎉🎉🎉🎉🎉🎉🎉🙏🙏🙏🙏🙏🙏🙏<br/>https://gnews.org/zh-hans/1771778/<br/><br/>
 
 ---
 
