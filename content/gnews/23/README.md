@@ -2,36 +2,110 @@
 ---
 
 
-## 淘宝带货一姐薇娅因偷漏税被罚14.61亿人民币
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1782029/)
+## 中国这个民族特勤劳 却被共产党奴役, 人人互害
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1782047/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/a7cfh-gc2b2-9.jpg)
-**初识薇娅是在几年前，那时网络直播带货刚刚兴起。每天晚上家人都会捧着手机看薇娅在淘宝上推销产品，从零食小吃到大牌美妆，我每天都能收到好几个包裹。有别于传统的冷冰冰网销模式，薇娅通过网络直播带货快速积聚起一批忠诚客户而成了淘宝上名副其实的带货一姐。**
+[https://gtv.org/video/id=61c3179543ccb726a089c40e](https://gtv.org/video/id=61c3179543ccb726a089c40e)
 
-**2021年12月20日，国家税务总局浙江省税务局发布新闻，淘宝带货一姐薇娅因偷逃税被罚14.61亿人民币。打破了此前两位头部网络主播朱宸慧（微博ID：雪梨Cherie）、林珊珊（微博ID：林珊珊\_Sunny）因偷逃税款，被依法追缴税款、加收滞纳金并处1倍罚款分别计6555.31万元和2767.25万元的记录。一夜之间，带货一姐沦为被罚一姐。关于她的罚款主要有三部分：1，2019年-2020年偷逃税款6.43亿元；2，2019年-2020年少缴税款0.6亿元；3，因偷漏税而遭受的罚款：3.19+1.09+1.16=5.44亿元**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/aaaaaa.png)**（图片来源：国家税务总局浙江省税务局）**
-2016年5月，薇娅正式成为淘宝直播。距今已经有5年多，为什么处罚只是围绕19-20年度？
+**郭文贵**
+**Miles Guo**
 
-2020是薇娅从带货主播转向社会名人的关键年。当年5月，杭州市文化广电旅游局向薇娅授予“杭州旅游推广大使”荣誉称号。 26月，增补为云南省青年联合会常委。 8月，当选为第十三届全国青联委员。 9月，获得全国三八红旗手称号。 10月，获得全国脱贫攻坚奖。虽然获得了中共政府的众多荣誉，她也没能逃脱处罚。
+中国这个民族不会享受的，更不要谈浪漫，更不要谈品味了
+Chinese people don’t know how to enjoy life, not even romance, let alone savor
 
-**浙江省税务局的说明是否意味着16-19年间薇娅及其团队无偷漏税？**
+从来你不会看到像西方、欧洲、美国，家里边的家具，像模像样的家具
+You will never see furniture in your home like in the West, Europe, or America, decent furniture
 
-淘宝成立之初，大部门卖家都是个人卖家，正是因为低廉的开店费用和不用交税，网上的价格远低于实体店。人们纷纷上淘宝购物，国内电商从此崛起。可以说，中国电商的兴起就是从偷税漏税开始的，这也是所有电商人的原罪。
+家里边墙都是空的，结果发现在(墙)脚一个柜子，路易十六的
+the house is empty, and it turned out that there is a cabinet at the corner, it’s Louis XVI’s
 
-谁会成为第二个薇娅？淘宝、抖音里还有千万个薇娅带货主播，他们的命运会如何？
+或者是一八几几年的一个柜子，几十万美元
+or a cabinet from 1800 some year, several hundred thousand dollars
 
-薇娅的被处罚象征意义对社会的影响，远远大于其天价处罚金额给人们带来的冲击。所有电商的从业者都有可能成为第二个薇娅。电商行业在中共大数据监管下，偷漏税将成为过去。不仅是电商，这个处罚针对的是所有行业。在中国，像郭文贵先生和他的企业能做到不偷漏税凤毛麟角。公务员通过领变相福利逃税，企业员工通过前阴阳雇佣合同逃税，企业主通过私人收公款进行逃税。在中国，偷逃税早已是公开的秘密，偷逃税是致富的捷径。
+屋里边，你图壁四空，就要那个桌子，然后放一个很漂亮的台灯
+inside the house, there is only the table inside the empty house, then there is a very beautiful table lamp
 
-**薇娅是典型的中国人，勤奋且坚持**
+永远，中国人不会的，一定要买东莞产的
+Chinese people will never be like this, they must buy it from Dongguan
 
-偶然机会，得知薇娅同我居住在同一小区。听家人说，她有个女儿，每天放学都是爷爷奶奶来接，极少看到她本人同丈夫来接小孩。和绝大多数中国家庭一样，为了生计，牺牲了家庭和亲子时光。看过一个关于薇娅的访谈节目，每天晚上不间断的数小时直播。她是典型的中国人，勤奋且坚持。像她这样的直播人，中国数不胜数，也是目前直播带货的天花板。她和她的团队走到今天很不容易，对她的遭遇很痛心但不意外。她的被罚只是时间问题，幻想和政府走近能获得便利，都是痴心幻想。
+这种情况下，即使中国人有了钱，也是劳苦的命，中国城
+In this situation, even if the Chinese people become rich, it is the life of hard work in Chinatown
 
-如果她像范冰冰一样，有情夫王岐山在背后撑腰，不至于被处以天价罚款。中国社会的仇富之风让很多网友对此拍手称快，这也印证了中共的“共同富裕”，其实就是“杀富劫富”。人怕出名猪怕壮，薇娅和马云、吴小晖等一样都是共产党养的猪。养肥了就要割肉，中共对商人的洗劫才刚开始。
+犹太人在这看得很清楚，犹太人在华尔街，犹太人占了曼哈顿最好的
+Clearly see the Jews here, the Jews are at the Wall Street, and they occupy the best of Manhattan
 
-【**文章观点仅代表作者个人，与Gnews平台无关**】
+中国人在哪，法拉盛，中国城，你到旧金山中国城黑猫旅馆
+Where are the Chinese people, Flushing, Chinatown, you go to the Black Cat Ho-tel San Francisco Chinatown
 
-作者：洛杉矶盘古农场 — 文如
-编审：洛杉矶盘古农场 — 心照
+就是中国人什么都讲物廉价美，没有生活，而且一定要工作，不工作是犯罪
+That is Chinese people demand everything cheap and good, they have no life, and they must work and it is a crime not to work
+
+而且明天即使死了，我今天也得工作
+And even if I die tomorrow, I have to work today
+
+中国人的勤劳和中国人的不知道享受生活，享受生命
+Chinese people’s hard work and Chinese people don’t know how to enjoy life
+
+更没有度假休息，造就了中国共产党奴役中国人的这个必然的现实
+There is no vacation relax, creating the inevitable reality of the Chinese Com-munist Party enslaving the Chinese people
+
+我从小长大的，我一直在问一个问题，为什么中国人咋就这么勤劳, 这么样的穷苦
+When I grew up and I kept asking a question, why are Chinese people so hard-working with such a poor life?
+
+从来不过好日子，从来不吃好的，但为什么中国这个国家从来不说
+never have a good life and never eat good food, but why China, a country that has never raised questions？
+
+刚才我跟你说这房地产这么坏的大数据的时候
+Just now when I told you about such big collapse data in real estate
+
+你看看中国人的事业，在干嘛，有人在捡便宜买房，
+Look at the Chinese people’s business, what are they doing? Some people are buying cheap houses
+
+就像我小时候看到有人杀了猪过年, 结果带痘，那个痘猪, 吃了是长肿瘤的
+just like when I was a kid I saw people killing pigs for the Chinese New Year, then the pig is pox pig, people will have tumors if they eat it
+
+但一堆人会抢着要，也有人抢着买，就是便宜
+but a bunch of people would rush to ask for it, and some would rush to buy it, just because it’s cheap
+
+在高压锅煮完以后，再卖带痘痘猪肉，疯抢，
+After the pressure cooker cooked, then sell this pox pork, people rushed to get it
+
+还有人在开饭店，为啥呀
+and there are still people opening new restaurants, why?
+
+因为很多饭店关了，不是因为饭店生意好，是因为很多饭店关了
+Because many restaurants are closed, not because the restaurant business is good, it’s because many restaurants are closed
+
+开饭店钱哪来的，东家表姐表哥借来的，所以中国人这个互害、互伤
+Where the money come from for opening the restaurant? It’s borrowed from the cousins, so the Chinese people hurt and harm each other
+
+只要我能活着，只要我活着，只要我活着，我就得工作
+As long as I can live, as long as I live, I have to work
+
+只要我能活着，挣了钱我就要留着
+As long as I can live, I will keep the earnings
+
+只要我挣了钱，我留着，最后都是党的
+As long as I make money, I keep it, and in the end it will all belong to the Communist Party
+
+然后只要我能开店，我能开店做小生意，我就把所有亲戚家人全借了
+Then as long as I can open a store, I can open a store and do a small business, I will borrow money from all my relatives
+
+**原视频链接**[:](https://gettr.com/post/pk2afy2dac)[https://gettr.com/post/pk2afy2dac](https://gettr.com/post/pk2afy2dac)
+
+Date: 12/20/2021
+原视频标题: 中国这个民族特勤劳 却被共产党奴役, 人人互害
+Chinese people is a hard-working people but is enslaved by the Communist Party, and everyone harms each other
+原视频日期：2021/12/17
+原视频链接https://gettr.com/post/pk2afy2dac
+任务编号：3282
+视频时间段 : 0:00-2:19
+
+中听校: 洛杉矶盘古农场 – Layka
+翻译 : 洛杉矶盘古农场 – Layka
+翻译终校 : 洛杉矶盘古农场 – Mike Li
+字幕+视频制作 ：洛杉矶盘古农场 – Jambo
+审片：洛杉矶盘古农场 – 银龙
 发布：洛杉矶盘古农场 – 彩虹 Rainbow
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）

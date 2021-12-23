@@ -2,115 +2,48 @@
 ---
 
 
-## 中国这个民族特勤劳 却被共产党奴役, 人人互害
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1782047/)
+## 文·贵天成——文贵先生谈“中原佛手、裕达国贸”（十三）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1782064/)
 
-[https://gtv.org/video/id=61c3179543ccb726a089c40e](https://gtv.org/video/id=61c3179543ccb726a089c40e)
+整理： **BENJ1**
+编辑：**守望黎明**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-278.png)图片来源：墨尔本雅典娜农场设计组（614）
+**郭文贵先生****2020****年****4****月****23****日视频**
 
-**郭文贵**
-**Miles Guo**
+再往前看河南裕达、河南裕达花园、河南裕达别墅，大家到河南去查一查去，我卖的是多少钱？河南郑州的平均房价600块钱的时候，郭文贵开发了裕达别墅，卖多少钱呐？3000块人民币，1994年开盘。我当时有三个新概念：在郑州第一个保证24小时有天然气。当时没人做广告，我那还是楼花，就叫裕达别墅，就在郑州大学的院里边，3000多一平方。都说你疯了！郑州平均几百块钱的房价，最高不到1000块钱，还到处有国家政府盖的安居房子、政府福利房子，谁买你这么贵的房子。我是第一家有天然气的，我要3600，结果买得最多的是郑州市公安局的警察，你到郑州去查查去！第二，我有24小时物业管理。第三，我有停车位。那就是郭文贵盖的房子，后来那个房子迅速的打破了郑州6000块钱，7000，8000，打破万块钱的记录，最后价格上万。
 
-中国这个民族不会享受的，更不要谈浪漫，更不要谈品味了
-Chinese people don’t know how to enjoy life, not even romance, let alone savor
+接着是裕达花园，拆掉了郑州的林山寨，寨里人都姓郭，开始我们打架打得一塌糊涂。那里就在郑州市政府的隔壁，郑州市政府就盖在当年的林山寨村子里边。最初郑州有三寨九村，全拆完了，就剩一个林山寨了，就这么个都市里的村庄没拆掉。为什么呢？村里几千户都姓郭，个个彪悍。毛泽东他在毛泽东语录里面有一段陈述，说郑州市盖楼堂馆所，结果当地的村民不愿意了，把牛都赶到市政府去了。这就说的是郑州政府，它盖了个豪华的市政府，林山寨人不愿意了，就把牛给牵到它楼上去了，牛能上楼，下可就下不来了。这事惊动了当时的毛泽东，他住在郑州的黄河宾馆，非常恼火盖楼堂馆所，然后就对这个事做了批示。
 
-从来你不会看到像西方、欧洲、美国，家里边的家具，像模像样的家具
-You will never see furniture in your home like in the West, Europe, or America, decent furniture
+所以说林山寨是没人敢拆的，最后是我把它给拆了。郭文贵从来没买过共产党一块地，都是买农民的地、村民的地，谁要说我搞官商勾结，纯粹放屁，这都是可查的。我从不跟政府买一块地，郑州市政府让我去拆我都没拆它的，我不想和政府打交道，一打交道你必然得行贿，不行贿你搞不成，我可不想行贿。我在清丰看守所出来，知道不管多大的官最终都是一个结局，我可不想和他们掺和。
 
-家里边墙都是空的，结果发现在(墙)脚一个柜子，路易十六的
-the house is empty, and it turned out that there is a cabinet at the corner, it’s Louis XVI’s
+当时郑州管土地的叫周建秋，在全郑州房地产开发商大会上说，一个什么瘪孙外商，那个什么姓郭的港商，居然给我送了个刮胡刀，这个狗日的！我一个副总去参加的会，都知道他骂的是我，但我不能给他别的，就送了这么一把刮胡刀。后来周建秋被抓，判了15年，出狱以后到北京盘古见我。吃完晚饭，他说要一百万、两百万。我说两百万马上给你，我说但这算是借给你的，因为你现在不是副市长了。这都是后话了。对了，是400万，给了他400万。周建秋是有文化的人，是真有文化，他懂画，对画是真专，那家伙是真有本事。也绝对是个孝敬的人，最孝敬娘，所以我佩服他，他找我的时候，我立马给钱，一张口就给了他。还有史发亮，交通厅长，也都给了。你在位时我不给你，你不在位了我可以给你，就这么简单。
 
-或者是一八几几年的一个柜子，几十万美元
-or a cabinet from 1800 some year, several hundred thousand dollars
+所以我就拆林山寨。我当时拆林山寨的诀窍很简单，拆迁办开完会了，当时搞这个拆迁的时候，官员跟我们副总说：“跟你老板说，这他妈的拆迁还不得弄个三年五年的？”。我回来，他们汇报完以后，也跟我这么说。我们河南裕达当时在河南省的外商投资中，连续三年都排第一，我们百分之百全是外资，日本人、美国人、英国人、法国人、香港人，一笔五百万美元就过来了，那时候五百万美元多少钱呐，还是现金啊，战友们？那时候什么招商办，跟孙子一样到我们那儿来，还拎着当地产的这菜那菜的送来——这共产党政府是最他妈不要脸的，那时候大部分我这里是港资，没有香港人就没有我们的后来。那时候见到港商，恨不得舔人家腚。现在呐？杀人家香港人，真可怕！
 
-屋里边，你图壁四空，就要那个桌子，然后放一个很漂亮的台灯
-inside the house, there is only the table inside the empty house, then there is a very beautiful table lamp
+开完拆迁会以后说三五年拆完，可是这些外商投资者是相信我郭文贵的，我刚从看守所出来人家就投了我那么多钱。现在一个郑州市国税局要拆掉，旁边是上千户的林山寨，跟市政府就一墙之隔。这要拆上几年，那不得赔死！所以时间是最重要的，时间是决定你成功的根本要素。我就说我现在出个方案，然后让拆迁办的人把我的方法给林山寨的老百姓念一遍，行不行？他说行啊！我说，现在我说你写，一张纸足矣！我就说现在告诉林山寨的村民，这么多人要把我们杀了，要把我们剐了的，不让拆迁，我可以理解。但是我现在有个政策，第一批拆迁走的，现在你就搬走的，只要你举手了，我不管你房子大小，给你100万人民币，前十户都是100万；第二批十户，90万；依此类推…… 我说我现在拿出3000万现金落实这个方案，你动迁办只管传出来，贴出去就行了。
 
-永远，中国人不会的，一定要买东莞产的
-Chinese people will never be like this, they must buy it from Dongguan
+往期回顾：
 
-这种情况下，即使中国人有了钱，也是劳苦的命，中国城
-In this situation, even if the Chinese people become rich, it is the life of hard work in Chinatown
+[文·贵天成——文贵先生谈“中原佛手、裕达国贸”（一）](https://gnews.org/zh-hans/1771506/)
+[文·贵天成——文贵先生谈“中原佛手、裕达国贸”（二）](https://gnews.org/zh-hans/1772109/)
+[文·贵天成——文贵先生谈“中原佛手、裕达国贸”（三）](https://gnews.org/zh-hans/1771523/)
+[文·贵天成——文贵先生谈“中原佛手、裕达国贸”（四）](https://gnews.org/zh-hans/1772842/)
+[文·贵天成——文贵先生谈“中原佛手、裕达国贸”（五）](https://gnews.org/zh-hans/1773011/)
+[文·贵天成——文贵先生谈“中原佛手、裕达国贸”（六）](https://gnews.org/zh-hans/1773049/)
+[文·贵天成——文贵先生谈“中原佛手、裕达国贸”（七）](https://gnews.org/zh-hans/1775923/)
+[文·贵天成——文贵先生谈“中原佛手、裕达国贸”（八）](https://gnews.org/zh-hans/1776661/)
+[文·贵天成——文贵先生谈“中原佛手、裕达国贸”（九）](https://gnews.org/zh-hans/1776781/)
+[文·贵天成——文贵先生谈“中原佛手、裕达国贸”（十）](https://gnews.org/zh-hans/1776781/)
+[文·贵天成——文贵先生谈“中原佛手、裕达国贸”（十一）](https://gnews.org/zh-hans/1776781/)
+[文·贵天成——文贵先生谈“中原佛手、裕达国贸”（十二）](https://gnews.org/zh-hans/1776781/)
 
-犹太人在这看得很清楚，犹太人在华尔街，犹太人占了曼哈顿最好的
-Clearly see the Jews here, the Jews are at the Wall Street, and they occupy the best of Manhattan
+发布：去中心化Math
 
-中国人在哪，法拉盛，中国城，你到旧金山中国城黑猫旅馆
-Where are the Chinese people, Flushing, Chinatown, you go to the Black Cat Ho-tel San Francisco Chinatown
-
-就是中国人什么都讲物廉价美，没有生活，而且一定要工作，不工作是犯罪
-That is Chinese people demand everything cheap and good, they have no life, and they must work and it is a crime not to work
-
-而且明天即使死了，我今天也得工作
-And even if I die tomorrow, I have to work today
-
-中国人的勤劳和中国人的不知道享受生活，享受生命
-Chinese people’s hard work and Chinese people don’t know how to enjoy life
-
-更没有度假休息，造就了中国共产党奴役中国人的这个必然的现实
-There is no vacation relax, creating the inevitable reality of the Chinese Com-munist Party enslaving the Chinese people
-
-我从小长大的，我一直在问一个问题，为什么中国人咋就这么勤劳, 这么样的穷苦
-When I grew up and I kept asking a question, why are Chinese people so hard-working with such a poor life?
-
-从来不过好日子，从来不吃好的，但为什么中国这个国家从来不说
-never have a good life and never eat good food, but why China, a country that has never raised questions？
-
-刚才我跟你说这房地产这么坏的大数据的时候
-Just now when I told you about such big collapse data in real estate
-
-你看看中国人的事业，在干嘛，有人在捡便宜买房，
-Look at the Chinese people’s business, what are they doing? Some people are buying cheap houses
-
-就像我小时候看到有人杀了猪过年, 结果带痘，那个痘猪, 吃了是长肿瘤的
-just like when I was a kid I saw people killing pigs for the Chinese New Year, then the pig is pox pig, people will have tumors if they eat it
-
-但一堆人会抢着要，也有人抢着买，就是便宜
-but a bunch of people would rush to ask for it, and some would rush to buy it, just because it’s cheap
-
-在高压锅煮完以后，再卖带痘痘猪肉，疯抢，
-After the pressure cooker cooked, then sell this pox pork, people rushed to get it
-
-还有人在开饭店，为啥呀
-and there are still people opening new restaurants, why?
-
-因为很多饭店关了，不是因为饭店生意好，是因为很多饭店关了
-Because many restaurants are closed, not because the restaurant business is good, it’s because many restaurants are closed
-
-开饭店钱哪来的，东家表姐表哥借来的，所以中国人这个互害、互伤
-Where the money come from for opening the restaurant? It’s borrowed from the cousins, so the Chinese people hurt and harm each other
-
-只要我能活着，只要我活着，只要我活着，我就得工作
-As long as I can live, as long as I live, I have to work
-
-只要我能活着，挣了钱我就要留着
-As long as I can live, I will keep the earnings
-
-只要我挣了钱，我留着，最后都是党的
-As long as I make money, I keep it, and in the end it will all belong to the Communist Party
-
-然后只要我能开店，我能开店做小生意，我就把所有亲戚家人全借了
-Then as long as I can open a store, I can open a store and do a small business, I will borrow money from all my relatives
-
-**原视频链接**[:](https://gettr.com/post/pk2afy2dac)[https://gettr.com/post/pk2afy2dac](https://gettr.com/post/pk2afy2dac)
-
-Date: 12/20/2021
-原视频标题: 中国这个民族特勤劳 却被共产党奴役, 人人互害
-Chinese people is a hard-working people but is enslaved by the Communist Party, and everyone harms each other
-原视频日期：2021/12/17
-原视频链接https://gettr.com/post/pk2afy2dac
-任务编号：3282
-视频时间段 : 0:00-2:19
-
-中听校: 洛杉矶盘古农场 – Layka
-翻译 : 洛杉矶盘古农场 – Layka
-翻译终校 : 洛杉矶盘古农场 – Mike Li
-字幕+视频制作 ：洛杉矶盘古农场 – Jambo
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
