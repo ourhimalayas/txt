@@ -17,6 +17,41 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/23/2021 12:09 PM (UTC)`
+
+The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO-VICE's Deliberate Lies After Deceptive Editing [Part-5]：<br/>‼️HBO-VICE's unfounded accusation of Mr. Guo for spreading conspiracy theories and building personal power and influence, as well as Mr. Guo's refutation on the mainstream media portraying Mr. Steve Bannon as a racist<br/><br/>【 #HBO #VICE 采访郭文贵先生背后的真相——揭露HBO-VICE精心编织的谎言 Part-5】：<br/>‼️反击HBO-VICE诋毁郭先生传播阴谋论、筑造个人权力和影响力，以及反击主流媒体把班农先生塑造成种族主义者<br/><br/>YouTube link of full REBUTTAL video  (may be blocked by YouTube‘s rogue rules): https://youtu.be/VTQ91werzk8<br/>GTV link of full REBUTTAL video  (EN and CN subtitles): https://gtv.org/video/id=61c3bb8900f9a119180832eb<br/>GETTR link of full REBUTTAL video  (EN and CN subtitles): https://gettr.com/streaming/pkexq84603
+![img](https://media.gettr.com/group8/origin/2021/12/23/12/69711be3-0060-b83b-d354-06acbad59677/out.jpg)
+
+---
+
+`@miles 12/23/2021 12:06 PM (UTC)`
+
+The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO-VICE's Deliberate Lies After Deceptive Editing [Part-4]：<br/>‼️HBO-VICE's abuse of the Wall Street Journal's ‘double agent’ report to discredit Mr. Guo<br/><br/>【#HBO #VICE 采访郭文贵先生背后的真相——揭露HBO-VICE精心编织的谎言 Part-4】：<br/>‼️反击HBO-VICE利用华尔街日报的双面间谍报道来诋毁郭先生<br/><br/>YouTube link of full REBUTTAL video  (may be blocked by YouTube‘s rogue rules): https://youtu.be/VTQ91werzk8<br/>GTV link of full REBUTTAL video  (EN and CN subtitles): https://gtv.org/video/id=61c3bb8900f9a119180832eb<br/>GETTR link of full REBUTTAL video  (EN and CN subtitles): https://gettr.com/streaming/pkexq84603
+![img](https://media.gettr.com/group39/origin/2021/12/23/12/39e95db1-1e45-93cf-1871-52df70c53c77/out.jpg)
+
+---
+
+`@miles 12/23/2021 12:03 PM (UTC)`
+
+The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO-VICE's Deliberate Lies After Deceptive Editing [Part-3]：<br/>‼️HBO-VICE's defamation of Mr. Guo for the use of huge media platforms to spread facts<br/><br/>【#HBO #VICE 采访郭文贵先生背后的真相——揭露HBO-VICE精心编织的谎言 Part-3】：<br/>‼️反击HBO-VICE诋毁郭先生利用巨大媒体平台散播谎言<br/><br/>YouTube link of full REBUTTAL video  (may be blocked by YouTube‘s rogue rules): https://youtu.be/VTQ91werzk8<br/>GTV link of full REBUTTAL video  (EN and CN subtitles): https://gtv.org/video/id=61c3bb8900f9a119180832eb<br/>GETTR link of full REBUTTAL video  (EN and CN subtitles): https://gettr.com/streaming/pkexq84603
+![img](https://media.gettr.com/group39/origin/2021/12/23/12/3bb6247a-d7aa-fbcf-0b2f-4fb849b5ee18/out.jpg)
+
+---
+
+`@miles 12/23/2021 12:00 PM (UTC)`
+
+The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO-VICE's Deliberate Lies After Deceptive Editing [Part-2]：<br/>‼️HBO-VICE discredits Mr. Guo for his large-scale followers <br/><br/>【#HBO #VICE 采访郭文贵先生背后的真相——揭露HBO-VICE精心编织的谎言 Part-2】：<br/>‼️反击HBO-VICE诋毁郭先生进行大规模个人崇拜<br/><br/>YouTube link of full REBUTTAL video  (may be blocked by YouTube‘s rogue rules): https://youtu.be/VTQ91werzk8<br/>GTV link of full REBUTTAL video  (EN and CN subtitles): https://gtv.org/video/id=61c3bb8900f9a119180832eb<br/>GETTR link of full REBUTTAL video  (EN and CN subtitles): https://gettr.com/streaming/pkexq84603
+![img](https://media.gettr.com/group39/origin/2021/12/23/12/39d6b3f6-d143-1bb7-1c28-69a2b3d26dd2/out.jpg)
+
+---
+
+`@miles 12/23/2021 11:58 AM (UTC)`
+
+The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO-VICE's Deliberate Lies After Deceptive Editing [Part-1]：<br/>‼️Isobel Yeung, the HBO-VICE's host of the interview - her background and connection with the CCP <br/><br/>【#HBO #VICE 采访郭文贵先生背后的真相——揭露HBO-VICE精心编织的谎言 Part-1】：<br/>‼️HBO--VICE采访郭先生的记者ISOBEL YEUNG的背景及其亲共证明<br/><br/>YouTube link of full REBUTTAL video  (may be blocked by YouTube‘s rogue rules): https://youtu.be/VTQ91werzk8<br/>GTV link of full REBUTTAL video  (EN and CN subtitles): https://gtv.org/video/id=61c3bb8900f9a119180832eb<br/>GETTR link of full REBUTTAL video  (EN and CN subtitles): https://gettr.com/streaming/pkexq84603
+![img](https://media.gettr.com/group39/origin/2021/12/23/11/78fc3b41-30da-e57c-870d-f3d37f29fce5/out.jpg)
+
+---
+
 `@miles 12/23/2021 11:30 AM (UTC)`
 
 【The Truth Behind Mr. Miles Guo's Interview with #HBOVICE 】<br/><br/>HBO asked how many lawsuits Mr. Miles Guo is involved in, and the out-of-context clips and misleading editing only kept Guo's video of the potential lawsuit against the reporter next. Fight back with full video recoveries of the raw interview to reveal the ugly face of HBO and its evil boss CCP<br/><br/>【反击 #HBOVICE 采访 #郭文贵 先生】<br/><br/>HBO询问郭先生有多少诉讼，混乱剪辑只留下郭先生说没准下一个官司就是与女记者的片段，我们还原当时的原始视频进行反击，以此揭露HBO的丑陋嘴脸和其背后势力中共的险恶用心
@@ -118,44 +153,6 @@ The Truth Behind Mr. Miles Guo's Interview with #HBOVICE<br/><br/>The true missi
 
 2021.12.22 The Truth Behind Mr. Miles Guo's Interview with HBO Vice 
 ![img](https://media.gettr.com/group4/origin/2021/12/22/23/ea159647-5ab1-41fa-a882-d439785cbffa/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@jasonmillerindc 12/22/2021 3:47 PM (UTC)`
-
-tune in as we award @ccbagley the Home for the Holidays check!
-![img](https://media.gettr.com/group8/getter/2021/12/22/15/4a5674ba-8c1b-92bd-d86a-240218f8486c/e0205dc9bf86d5e6cd05c40413de6e8e.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@gtranslators_1 12/22/2021 11:06 PM (UTC)`
-
-The Biden administration all lied about Covid vaccine mandate!
-![img](https://media.gettr.com/group16/origin/2021/12/22/23/e2438871-96a8-1563-44a7-1b7fd3a702e0/out.jpg)
-
----
-
-`@miles 12/22/2021 9:11 PM (UTC)`
-
-12月22号：20年前录制的视频，现在看起来感触太多了……盘古七星美食．中国文化的真正的传承……莘县古城镇肉窝饼……
-![img](https://media.gettr.com/group31/getter/2021/12/22/21/5d790cb6-0a28-2083-747c-0bbd4fc282b2/out.jpg)
-
----
-
-`@miles 12/22/2021 1:15 PM (UTC)`
-
-2021年12月22日 文贵大直播：外媒采访台前幕后；疫苗灾难典型案例；彭帅被迫澄清事实；大外宣媒体真面目
-![img](https://media.gettr.com/group44/origin/2021/12/22/12/81d764b1-d6a3-da7f-64fe-7de8ec5167fd/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 12/22/2021 4:15 AM (UTC)`
-
-21/12/2021 “Hcoin To the Moon" Hits iTunes <br/> No. 1 🥇on 8 Countries Top MV Charts !<br/>No.1🥇 on 7 Countries Rock MV Charts!<br/>No.1🥇 on 4 Countries Rock song Charts!<br/>No.1🥇on 1 countries Hip-pop/Rap song Charts!<br/>Miracle continues…….🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, Laos, Hungary, Macau, Fiji, Philippines, Finland, Greece!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1778019/<br/><br/>12月20号，Hcoin To the Moon位列iTunes<br/>8国热门MV榜首🥇！<br/>7国摇滚MV榜首🥇！<br/>4国摇滚歌曲榜首🥇！<br/>1国嘻哈歌曲榜首🥇！<br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港，老挝，匈牙利，澳门，斐济，菲律宾，芬兰，希腊的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏
 
 ---
 
