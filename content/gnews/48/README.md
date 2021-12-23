@@ -2,26 +2,36 @@
 ---
 
 
-## 【中日财经爆】英特尔禁用涉新疆产品，被中共喉舌攻击
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1782475/)
+## 中共勾兑外媒抹黑爆料革命和海外华人
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1782510/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1209.png)[图片来源](https://www.nextgov.com/emerging-tech/2020/12/intel-nvidia-face-questions-lawmakers-sale-supercomputing-chips-china/170682/)
-路透社12月23日报道，美国芯片制造商英特尔在最近给其供应商的一封公开信中要求他们不使用任何来自新疆的劳工、采购产品或服务。现在英特尔则正面临来自中共各种官媒喉舌的攻击。
+作者：香草山农场-晓仙女
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月22日，郭文贵先生在直播中深度剖析了中共通过海外媒体制作虚假视频诋毁郭先生和爆料革命的行为。
 
-英特尔表示，在“多国政府”实施限制后，它被“要求确保其供应链不使用任何来自新疆的劳工、采购产品或服务”。有证据显示中共在新疆地区广泛侵犯人权，施行种族灭绝，包括强迫劳动。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide1-25.jpeg)
 
-中共喉舌环球时报称英特尔的涉疆表态“极其荒谬”，并称该公司的做法是“吃饭砸锅”。英特尔去年有26%的收入来自中国市场。该报在一篇社论中说：“我们需要做的，就是让他们冒犯中国的成本越来越高，直至得不偿失。”
+郭先生从多个角度揭露道，共产党为此筹谋已有半年之久，他们歪曲、捏造事实，再通过剪辑、拼接等技术，利用精心制作的假视频，将郭先生抹黑为暴力与欺骗的代表，并企图将爆料革命定义为邪教和造成恐怖威胁的暴动集团——其他参与此次直播的亲历者也通过自身的经历印证了这一点。
 
-歌手王俊凯迫于中共压力，在微博上表示解除与英特尔品牌一切合作关系，并在一份声明中补充说“国家利益高于一切”。许多被中共洗脑的微博用户还呼吁中国民众抵制英特尔。
+郭先生还提到，HBO的杨贝贝对郭先生的采访实际是由中共精心策划的：共产党将其惯用的分化手段延伸至海外，妄想通过虚假宣传把华人定位为恐怖分子。同时，中共试图将在美华人栽赃为那些所谓的冲击国会的暴徒，并妄图以此引发海外排华事件，把爆料革命和所有的海外华人变成中共的替罪羊。
 
-跨国公司受到了压力，因为它们既要遵守与新疆有关的贸易制裁，同时还得继续在中共国这个它们最大的市场之一运营。
+郭先生表示，他之所以会接受杨贝贝的采访，其实是为了引蛇出洞，让世界看清西方造假媒体与中共勾兑的真相。
 
-消息来源：[英特尔涉疆表态引发中国抨击歌手王俊凯解除与其合作关系](https://cn.reuters.com/article/intel-xinjiang1223-thur-idCNKBS2J2053?il=0)
+参考链接：[2021年12月22日 文贵大直播：iTunes全球打榜记录- Hcoin To The Moon；中美之间会取消关税，Vice的报导在冬奥会之前帮助中共做的一场政治宣传，中国老百姓将付出巨大代价；莘县古城鸳鸯饼和河南胡辣汤；疫苗灾难的最新数据；彭帅为何公开否认性侵](https://gtv.org/video/id=61c324ccbcb7f101bb732568)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
+
+总编：Irene木木
+编辑：Kathy文艺 
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
