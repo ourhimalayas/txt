@@ -2,31 +2,31 @@
 ---
 
 
-## 魁北克省长似乎将疫情爆发嫁祸于未接种疫苗者
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1782584/)
+## 英特尔要求供应商禁用新疆产品而遭中共网民围攻
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1782610/)
 
-2021-12-22
+![英特尔公司在北京举行的中国国际信息通信展览会上的展台。（2019年10月31日）](https://gdb.voanews.com/2C62175B-4830-468E-B2C3-0736CA8364FD_w1023_r1_s.jpg)英特尔公司在北京举行的中国国际信息通信展览会上的展台。（2019年10月31日）
+据美国之音12月23 日报道，以生产电脑中央处理器著称的美国半导体巨头英特尔向供应商发出信函，要求供应商不能使用任何来自新疆地区的劳工、采购产品或服务，并禁止任何形式的贩卖人口或非自愿劳工行为。
 
-综合编译报道：16626
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1218-edited.png)图片来源：[CBC](https://www.cbc.ca/player/play/1986751043588)
-加拿大广播公司（CBC）于 2021 年 12 月 22 日发表题为《魁北克省长向未接种疫苗的人发送信息》的文章报道，魁北克省省长弗朗索瓦-莱戈（François Legault） 告诉未接种疫苗的魁北克人，他们正在给医疗保健系统带来压力，并要求他们接种疫苗或待在家里。
+民族主义立场爆棚的中共国观察者网21日披露这封信函之后，中共国微博热搜量已经超过2.5亿人次，网民更是涌入英特尔官方微博账号对其口诛笔伐。由于中共国在很大程度上仍然依赖英特尔的中央处理器和高端芯片，所以网民骂归骂，还没有出现抵制的呼声。
 
-蒙特利尔日报2021 年 12 月 22 日也发表文章报道，未接种疫苗的人只占人口的10%，但占住院人数的50%左右，魁北克省省长清楚、明确、直截了当地要求未接种疫苗的人：“为了魁北克的利益，请留在家里”。
+中共洗脑和控制民众几十年，取得了显著的效果。中共擅长带风向，一句话就可兴起中共国千万网民对某一产品的声讨、抵制甚至驱逐。在中共国运作的外国公司很难维持中共国市场和某些敏感话题的平衡。中共在新疆对维吾尔族施行的种族灭绝震惊世界，但是任何国家、公司或个人敢涉及这个话题，中共马上利用民众进行反击。中共国14亿人民常年接受党天下的洗脑，人身和头脑都没有自由。自己被中共当作奴隶对待，还在为中共奴隶主高唱赞歌。可悲！
 
-日前，蒙特利尔日报2021 年 12 月 20 日发表题为《新限制：酒吧和学校今晚关闭》文章报道，Omicron变种的迅速传播迫使魁北克下令酒吧、体育馆、剧院和学校在晚5点必须关闭。同时卫生部长担心魁北克人对卫生措施和疫苗接种的支持度会下降。
+新闻参考链接：[https://www.voachinese.com/a/Intel-comes-under-fire-in-China-over-Xinjiang-labor-stance-20211222/6365213.html](https://www.voachinese.com/a/Intel-comes-under-fire-in-China-over-Xinjiang-labor-stance-20211222/6365213.html)
 
-**综合这几篇文章我们可以看出，越来越多的魁北克人开始清醒了，开始不相信疫苗了，还有相当一部分人坚定地拒绝接种疫苗。魁北克省政府可能要采取行动以扭转民众对卫生措施和疫苗接种的支持度下降的局面。与此同时，政府似乎开始把矛头指向未接种疫苗的人，并试图让这些人承担责任。文章编译人提醒读者，病毒仍在传播，疫情正在爆发，大家必须格外小心，特别是参加新中国联邦和爆料革命的未接种疫苗的战友一定要更加小心。**
+编辑：胖丁
 
-参考资料：
+* * *
 
-加拿大广播公司CBC 2021 年 12 月 22 日下午 7:45更新
-[CBC: Quebec’s premier sends a message to the unvaccinated](https://www.cbc.ca/player/play/1986751043588)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-蒙特利尔日报，文森特·拉林 VINCENT LARIN,2021 年 12 月 22 日晚上 8:42更新
-[Le Journal de Montreal: Noël est sauf, les rassemblements limités dès le 26 décembre](https://www.journaldemontreal.com/2021/12/22/annonce-a-18h-les-rassemblements-a-10-personnes-maintenus-les-24-et-25-decembre)
 
-校对/编辑/发布：MQ
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
