@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/23/2021 12:42 PM (UTC)`
+
+The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO-VICE's Deliberate Lies After Deceptive Editing [Part-14]：<br/>‼️HBO-VICE’s questioning on the numbers of lawsuits Mr. Guo had. Again, HBO editing team took it out of context and tried to mislead audience. In the uncut interview, it again revealed how HBO deceivingly manipulated the interview.<br/><br/>【#HBO #VICE 采访郭文贵先生背后的真相——揭露HBO-VICE精心编织的谎言 Part-14】：<br/>‼️ HBO-VICE询问郭先生有多少诉讼，混乱剪辑，只留下郭先生说没准下一个官司就是针对女记者的片段，断章取义。我们还原当时的原始采访进行反击，再次揭露HBO如何欺骗性地对采访视频进行扭曲。<br/><br/>YouTube link of full REBUTTAL video: https://youtu.be/VTQ91werzk8<br/>GTV link of full REBUTTAL video  (EN and CN subtitles): https://gtv.org/video/id=61c3bb8900f9a119180832eb<br/>GETTR link of full REBUTTAL video  (EN and CN subtitles): https://gettr.com/streaming/pkexq84603
+![img](https://media.gettr.com/group17/origin/2021/12/23/12/7560990a-74a2-ff3c-8af9-d0b748c274f9/out.jpg)
+
+---
+
 `@miles 12/23/2021 12:37 PM (UTC)`
 
 The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO-VICE's Deliberate Lies After Deceptive Editing [Part-13]：<br/>‼️HBO-VICE’s discredit Mr. Guo for deceiving his investors. Using deceptive editing, HBO tried to ruin Mr. Guo’s public image. The uncut interview revealed the facts and exposed how HBO manipulated the interview.<br/><br/>【#HBO #VICE 采访郭文贵先生背后的真相——揭露HBO-VICE精心编织的谎言 Part-13】：<br/>‼️ HBO-VICE诋毁郭先生欺骗投资者，混乱剪辑，只留下郭先生不断说她撒谎的片段，故意贬低郭先生形象。我们还原当时的原始采访进行反击，以揭露HBO如何虚假剪辑采访视频。<br/><br/>YouTube link of full REBUTTAL video: https://youtu.be/VTQ91werzk8<br/>GTV link of full REBUTTAL video  (EN and CN subtitles): https://gtv.org/video/id=61c3bb8900f9a119180832eb<br/>GETTR link of full REBUTTAL video  (EN and CN subtitles): https://gettr.com/streaming/pkexq84603
@@ -147,13 +154,6 @@ The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO-VICE's Delibe
 
 【The Truth Behind Mr. Miles Guo's Interview with #HBOVICE 】<br/><br/>HBO selected clips out of context and edited them misleadingly to defame Mr. Miles Guo and accused Miles Guo of spreading false information about COVID-19, COVID-19 Vaccine, exterminating the white population and 2020 US election <br/> <br/>【反击 #HBOVICE 采访 #郭文贵 先生】<br/><br/>HBO 断章取义进行混乱剪辑，以诋毁和指控郭先生散布关于病毒、疫苗、灭白计划以及美国大选的虚假信息
 ![img](https://media.gettr.com/group6/getter/2021/12/23/10/79af0bce-9f35-35f3-37ac-3fdcb7188ebc/out.jpg)
-
----
-
-`@miles 12/23/2021 9:55 AM (UTC)`
-
-Isobel Yeung, the CCP propagandist dressed as Cat Girl, who sent you here?<br/><br/>CCP大外宣猫女郎-杨贝贝，谁派你来的？
-![img](https://media.gettr.com/group32/getter/2021/12/23/09/c436ac57-1d4a-f519-1b76-23b55b257fdc/out.jpg)
 
 ---
 

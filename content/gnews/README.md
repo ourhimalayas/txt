@@ -15,64 +15,64 @@
 
 ---
 
-### [以色列将于本周曰开打第四针，针对60岁以上老人及医疗人员](/content/gnews/1/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [沈阳男子4年前救晕倒老人压断老人12根肋骨遭三次起诉](/content/gnews/2/README.md)
+### [中共国高压统治下底层生活之外卖员互相残杀](/content/gnews/1/README.md)
  ` 澳喜农场`
 
-### [12/23/2021 国际财经快讯：日本上调2022年度GDP增速展望至3.2％; 2021年美国IPO市场首触千笔大关，但隐忧不容忽视](/content/gnews/3/README.md)
+### [病毒防护小措施](/content/gnews/2/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [中共国和俄罗斯之间的“不结盟”](/content/gnews/3/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [以色列将于本周曰开打第四针，针对60岁以上老人及医疗人员](/content/gnews/4/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [沈阳男子4年前救晕倒老人压断老人12根肋骨遭三次起诉](/content/gnews/5/README.md)
+ ` 澳喜农场`
+
+### [12/23/2021 国际财经快讯：日本上调2022年度GDP增速展望至3.2％; 2021年美国IPO市场首触千笔大关，但隐忧不容忽视](/content/gnews/6/README.md)
  ` 秘密翻译组金融团队`
 
-### [穷途末路的中共国经济](/content/gnews/4/README.md)
+### [英特尔宣布“禁用新疆产品”，中国网红宣布解除与英特尔的合作](/content/gnews/7/README.md)
+ ` 首尔天池农场`
+
+### [为什么中共国央行上调外汇存准率](/content/gnews/8/README.md)
+ ` 澳喜农场`
+
+### [穷途末路的中共国经济](/content/gnews/9/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [100多年前的天花大流行带给今天的启示](/content/gnews/5/README.md)
+### [100多年前的天花大流行带给今天的启示](/content/gnews/10/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [西安成昔日武汉：因出血热和中共病毒扩散紧急封城](/content/gnews/6/README.md)
+### [西安成昔日武汉：因出血热和中共病毒扩散紧急封城](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [女业主验新房高跟鞋一踩一个洞](/content/gnews/7/README.md)
+### [女业主验新房高跟鞋一踩一个洞](/content/gnews/12/README.md)
  ` 澳喜农场`
 
-### [影响力购买：中共操纵Facebook和Twitter的策略](/content/gnews/8/README.md)
+### [影响力购买：中共操纵Facebook和Twitter的策略](/content/gnews/13/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [由于接种Covid疫苗才使大流行持续](/content/gnews/9/README.md)
+### [由于接种Covid疫苗才使大流行持续](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美国称中共国正在开发“神经系统控制武器”](/content/gnews/10/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [食客撑场「黄店」 抗中共暴政](/content/gnews/11/README.md)
+### [食客撑场「黄店」 抗中共暴政](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新邮件是政府极力压制言论自由的证据（2/2）](/content/gnews/12/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [三大行又印钞票 唯喜币可御资产贬值](/content/gnews/13/README.md)
+### [三大行又印钞票 唯喜币可御资产贬值](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [警惕中共国正在大力推进太空武器化进程](/content/gnews/14/README.md)
+### [警惕中共国正在大力推进太空武器化进程](/content/gnews/17/README.md)
  ` 澳喜农场`
 
-### [移民潮带走众名校生 港“千人计划”悄然启动](/content/gnews/15/README.md)
+### [移民潮带走众名校生 港“千人计划”悄然启动](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共已对香港议会完全掌控](/content/gnews/16/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [新邮件是政府极力压制言论自由的证据（1/2）](/content/gnews/17/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [7·24系列——中共为办冬奥会免除多少国家的债务？](/content/gnews/18/README.md)
+### [7·24系列——中共为办冬奥会免除多少国家的债务？](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [为什么我支持疫苗但反对疫苗授权？](/content/gnews/19/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [中共国的房地产泡沫？](/content/gnews/20/README.md)
+### [为什么我支持疫苗但反对疫苗授权？](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
 ### [新歌打榜秀实力，大直播震撼中南坑](/content/gnews/21/README.md)
