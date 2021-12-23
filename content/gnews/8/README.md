@@ -2,34 +2,35 @@
 ---
 
 
-## 波士顿宣布新的疫苗要求
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1782013/)
+## 秘翻在线：佛罗里达州政府将重点清理在中共国投资的公共养老基金
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1782055/)
 
-作者：纽约香草山福音部 –lilian89
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月20日，波士顿市长发布声明表示，该市即将对室内餐饮、健身和娱乐场所实行新的中共病毒疫苗要求，同时政府将加强对该市一万八千名工人的疫苗接种任务。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-23-上午7.45.39.png)
-有关报道显示，该项新规定要求，自2022年1月15日起，该市相关场所12岁以上的顾客将被要求出示中共病毒疫苗的接种证明。而自明年3月1日起，这项规则将延伸至5岁以上的儿童群体。
+#### 撰稿翻译：罗马骑士
 
-此外，该市还要求其一万八千名政府雇员在截止日期前完成中共病毒疫苗的接种。为此，波士顿政府取消了雇员可以选择定期接受病毒检测而不需要接种疫苗的规定。该规定还明确，所有未接种中共病毒疫苗的雇员将失去现有的工作机会。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Snipasewfwfte_2021-1sadf2-23_08-28-52.png)
 
-对此，波士顿反对强制疫苗令的团体在一份声明中强调，政府没有权利中止、削减或取消美国公民和工人的权利，相反的，每个人都应该有权利选择是否接种中共病毒疫苗。而共和党州长候选人杰夫-迪尔也发表评论称，这些政策明显地侵犯了所有在该市居住、工作或旅行的人的公民权利，这将使波士顿更难从大流行病中恢复。
+根据大纪元英文网站2021年12月21日报道：
 
-参考链接：[Boston Implementing Proof of Vaccination Requirement for Restaurants, Other Indoor Venues](https://www.nbcboston.com/news/local/mayor-wu-to-update-bostons-covid-response-monday/2594963/)
+佛罗里达州官员已于本月20日正式展开行动，将州退休基金与中国共产党彻底划清界限，包括撤销外部管理人员对该州部分养老基金投资于何处的权力。
 
-![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+共和党州长罗恩·德桑蒂斯 (Ron DeSantis) 的此计划，在佛罗里达州管理委员会的一次会议上获得通过。该委员会负责投资和管理该州所有大大小小的养老金基金，而德州公共基金是美国最大的公共退休基金之一。
 
-总编：Jack Li文阳
-编辑：Kathy文艺
-校正/发稿：呼吸的雾霾（文小呼吸）
+管理委员会还批准开始审查这些基金，以了解有多少公共资产与中共国公司挂钩。并明确表示所有基金经理，都应彻底为公共基金的财务利益而行事。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+州长在会议上表示，鉴于某些投资公司持有“意识形态倾向”，撤销代理投票权至关重要。根据佛罗里达州统计数据，自 2016 年以来，已牵涉到 5,000 多张投资代理权的投票。
+
+这位州长还表示说， “至今在中共国的整个投资尝试，对美国来说是一个巨大的失败，”  “我认为整个美国应该与中共国脱钩，德州的投资理所应当与其脱钩。”
+
+佛罗里达州首席财务官吉米·帕特罗尼斯（Jimmy Patronis）也是董事会成员之一，他完全认同州长的声明
+
+他指出，中国房地产开发商恒大集团的最近拖欠款项，正面临违约的风险，这将广泛影响到中共国各地的行业。
+
+同时，他还列出了与中共国脱离接触的其他原因，其中包括中共公然违反知识产权规则，对好莱坞和华府日益严重的负面影响力，中共病毒起源于中共国实验室的可能性。还包括最近几周内，在联邦政府这一级层面上，国会已通过的一项法案，禁止采购在中共国新疆地区生产的商品，因为当地许多工厂使用奴隶性质的劳动力。
+
+佛罗里达州总检察长、董事会成员、共和党人阿什利·穆迪 (Ashley Moody) 表示，这些财务举措，完全符合退休基金参与者和受益人的最佳利益。
+
+穆迪在一份声明中表示：“中共国政府对在中国经营的企业的控制和影响力，应成为任何在中国投资人最为担忧的事情。”  “作为受托人，我们应该了解这些风险，并确保退休系统对其进行现时评估。”
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

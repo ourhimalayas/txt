@@ -2,35 +2,42 @@
 ---
 
 
-## Đảng Cộng Sản Trung Quốc đã xâm nhập nghiêm trọng vào quân đội Đài Loan, và an ninh của Thái Anh Văn cũng nằm trong đó
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1781217/)
+## 文贵爆料 12.22：VICE虚假的采访报道——谁在拨动媒体的琴弦
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1781443/)
 
-Biên Dịch: 东京樱花团/越南文雄
-![](https://assets.gnews.org/wp-content/uploads/2021/12/6-19.png)
-[Nguồn ảnh:](00)
+撰稿：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/12/snapshot1-1.png)
+近日，VICE媒体推出的新闻纪录片不仅以曲解、断章取义、鱼目混珠的方式报道了对郭文贵先生和战友的采访，而且还煽动和灌输对华人的仇恨。对此，郭先生在12月22日的大直播中说，VICE对我们的攻击是有组织、有计划、有目的的，是要把我们变成恐怖、邪教和犯罪分子，报道充斥了谎言和阴谋。
 
-Reuters ngày 20/12 đưa tin, Các điệp viên Đảng Cộng Sản Trung Quốc đã xâm nhập nghiêm trọng vào quân đội Đài Loan, và bộ phận an ninh của tổng thống Thái Anh Văn cũng không ngoại lệ, và trong thập kỷ qua, ít nhất 21 sĩ quan cảnh sát quân sự cấp cao trở lên đã bị kết án vì tội gián điệp, trong khi 9 cựu chiến binh đang bị xét xử hoặc điều tra vì nghi ngờ tiếp xúc với gián điệp của Đảng Cộng Sản Trung Quốc.
+我今天可以在这直播中明确告诉大家啊，以撒贝拉的这个人的出现一定会让美国FBI找到中国共产党在对西方媒体的渗透，这是几代人的一个结果。伊莎贝拉对我们的攻击是有组织、有计划、有目的的政治图谋，伊萨贝朗本身的背后是个巨大的政治和利益交易的结果。
 
-Reuters lấy ví dụ về Ông XIE XIZHANG, một điệp Đảng Cộng Sản Trung Quốc hoạt động tại Đài Loan với tư cách là một doanh nhân Hồng Kông, chỉ ra rằng XIE XIZHANG đã nhiều lần đến Đài Loan với tư cách là một doanh nhân Hồng Kông từ năm 1997, nhưng đã bí mật tuyển dụng gián điệp cho Bắc Kinh, thâm nhập thành công vào quân đội Đài Loan thông qua các phương tiện như tặng vàng và tặng quà.
+伊萨贝勒这次报道是对郭文贵爆料的威胁，对整个爆料革命和新中国联盟每个人带来前所未有的、巨大的安全和法律威胁，会给我们带来重大利益损失。而且报道定向我们为邪，但一只字不提新中国联邦，这是共产党背后操纵的结果啊。特别是伊莎贝拉这么多次尝试走进我，我们现在强烈怀疑她还有其他同谋，我们会在法庭上说清楚。
 
-Theo Reuters, ông XIE cung cấp toàn bộ chi phí đi lại nước ngoài của các sĩ quan Đài Loan và gia đình họ, hàng ngàn Đô la tiền mặt, đồng thời tặng quà như khăn lụa và thắt lưng cho vợ của sĩ quan. các sĩ quan quân đội cấp cao đã nghỉ hưu, quân đội Hoa Kỳ có kinh nghiệm liên quan đến Đài Loan và các quan chức phản gián của chính phủ hiện tại đều nói với Reuters rằng những trường hợp này cho Đảng Cộng Sản Trung Quốc đã phát động một chiến dịch rộng rãi nhằm phá hoại lãnh đạo quân sự và dân sự của Đài Loan, làm xói mòn ý chí chiến đấu của họ, trích xuất bí mật của vũ khí công nghệ cao và tìm hiểu về kế hoạch quốc phòng của Đài Loan.
+这一次报道对爆料革命战友和所有的曾在现场每个人未来的生命和生活安全，造成的威胁和危险是绝对不可确定的。而且对反共产党，揭发共产党在新疆的犯罪和西藏和香港的犯罪，以及解救台湾这件事造成重大的打击。她说到了海外华人是暴力集团我们战友是暴力集团。
 
-Ngoài ra, Đảng Cộng Sản Trung Quốc thậm chí còn thâm nhập vào các nhân viên an ninh để bảo vệ tổng thống Đài Loan Thái Anh Văn. Báo cáo cho biết một quan chức an ninh tổng thống đã nghỉ hưu và trung tá hiến binh đang phục vụ trong lực lượng chịu trách nhiệm bảo vệ tổng thống đã bị kết án vào đầu năm nay vì tiết lộ thông tin nhạy cảm về sự an toàn của Thái Anh Văn cho các cơ quan tình báo của Đảng Cộng Sản Trung Quốc. theo phán quyết của tòa án tối cao, thông tin này bao gồm một sơ đồ tổ chức của một trung tâm dịch vụ đặc biệt được vẽ tay, đơn vị này chịu trách nhiệm bảo vệ tổng thống. Hai người này cũng bị buộc tội tiết lộ tên, chức vụ và số điện thoại làm việc của các nhân viên an ninh cấp cao bảo vệ Dinh Tổng Thống và nơi cư trú của bà Thái Anh Văn ở trung tâm Đài Bắc, theo Reuters.
+你怎么能轻而易举地走进新疆？不要说今天的新疆、二十年的新疆，我郭文贵走到新疆的时候，陪同的当地警察告诉我说，有些地方你能看，有些地方你绝对不能去。你怎么能去新疆采访？谁给你安排啊？这个那么正常吗？我们一定要在法庭上搞个明白。新疆的杀人的真相你真正的报道了多少？你打着采访新疆，实则是以采访新疆集中营来美化共产党。
 
-Theo hồ sơ tòa án Đài Loan và báo cáo của truyền thông quan phương tại địa phương, trong thập kỷ qua, ít nhất 21 sĩ quan Thượng Uý hoặc ở cấp độ cao hơn đang làm việc hoặc đã nghỉ hưu của Đài Loan đã bị kết án là gián điệp của Đảng Cộng Sản Trung Quốc. 21 sĩ quan bị kết án đã bị kết tội tuyển dụng gián điệp cho Đảng Cộng Sản Trung Quốc hoặc chuyển một loạt thông tin nhạy cảm cho Đảng Cộng Sản Trung Quốc, bao gồm thông tin liên lạc của các sĩ quan quân đội cấp cao của Đài Loan và chi tiết về các người đại lý của Đài Loan tại nước Cộng Sản Trung Quốc.
+新疆事件是我最早在国会说出来了，我说有集中营，我受到了世界的警告，说你这是疯子。我是最早第一个说出来的，千万别忘了最后证明是事实。我说那里有杀人、强奸和鸡奸，人说我是疯子，最后都证明是对的。你的媒体说过吗？为什么没有说过？再往回看你的报道，几乎都是小骂、大帮忙。所以说这次的采访，是对爆料革命最大的威胁，最后的结果是我们是暴力分子、坏蛋、邪教和骗子，我们威胁到了西方和中国共产党的关系，而且我们制造了美国和中国人的仇恨。
 
-备注：越南语根据中文稿件进行翻译，本文内容以中文为准。
+大家反过来看，现在我们最担心再出现印尼排华事件。你们真的觉得荒唐吗？共产党就希望全人类排华，就像在印尼抓了三百万华人，杀死五十万华人的时候，毛泽东说，这不是坏事儿嘛，让这些出去的人就不要再出去了嘛，可以回到祖国的怀抱嘛，是吧？周恩来等人则哈哈大笑？
 
-Bản dịch tiếng Việt dựa trên bản tiếng Trung, nội dung bài dịch này lấy bản tiếng Trung làm chuẩn mực
+我们现在正在面临着这种威胁，这就是伊萨贝拉在制造海外华人最大的危机，把共产党的威胁世界所有的华人，排华诞生了。第二，所有海外华人和共产党之间的危机来源于什么？来源于中共对新疆大屠杀、西藏和香港大屠杀，来源于对台湾的威胁、对美国的骇客、病毒的来源，对整个世界的经济的“蓝、金、黄”，和一带一路造成的结果。中共要把这些转嫁到我们身上。他只字不提海航、万达、许家印、马云这些人对西方的经济的威胁、一带一路对美国的威胁和共产党在世界建军事基地的威胁，而把我们爆料革命列为世界上对华人和美国最大的威胁。
 
-Nguồn tin:
+当年、从1966年到1970年在印尼发生的事情，都是因为小商小贩缺斤短两，加上还有一个就当地的媒体报道，华人做生意不老实，加上华人从过去的在印尼占百分之零点一，到如今已占到百分之九十七，最后很多华人被杀了。当时被杀的福建人，很多都是从香港逃到印尼的华人，经历了三次灾难。很多华人被杀、被鸡奸、被强奸和轮奸。当时还没有像今天这么大媒体报道，就是印尼当地报。
 
-[中共严重渗透台湾军方，蔡英文安保也在内 – GNEWS](https://gnews.org/zh-hans/1779350/)
+这是一模一样的出手，这是共产党对全世界所有的华人发出了最大的海外攻关和威胁。把华人污蔑为暴力分子。所有看过这个纪录片的人不会再爱华人。就是这种丑化是对全人类、对整个华人的丑化，这不是那么简单的，这不是情绪化的啊。
 
-Biên Tập: 东京樱花团/知了知了（以Google翻译分段校对）
-Đăng Bài: 东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-1.jpg)
+我大家要注意媒体的力量有多大啊！就在冬奥会全球反击中共的时候，你看到共产党干了什么？习近平要求要保持高度集集中统一，控制所有的媒体，全世界都在反对共产党，就连川普总统都支持反北京奥运。据我掌握的情报，共产党说：我们不惜一切代价要在西方媒体上占领制高点，一定要想尽一切办法对反对冬季奥运会的人禁声。共产党说一定要让他那些支持北京冬奥的人赶快站出来发声。
 
+兄弟姐妹们，你们查一查，在过去的三个月，共产党给各国免掉了多少钱的债务。接下来我再告诉你，在未来的三十、四十天，你看还有哪些国被免除债务。不会超过两星期，你会看到很多国家会表态支持北京冬奥会。
+
+共产党做出决定，不惜一切代价要叫美国拜登总统马上取消对中国追加的关税。这一定会发生的。所有今天这个伊莎贝拉这个造假的、犯罪的直播，是为美国取消对中国的关税作铺垫，是这帮人搞的中美之间的仇恨。拜登政府一定会取消这关税，二百多个美国运动员会出现在北京会出现场，歌颂北京完美的冬奥。所以你要知道媒体的力量有多大，这是一箭双雕的。
+
+郭先生说，中共要用一次采访，把我们消灭，把我们变成恐怖、邪教和犯罪分子，让我们处在恐惧之中，把我们称为中美之间和中国海外华人所有威胁的替罪羊，然后让中美政府之间进行勾兑的时候取消关税，记住我今天说的话，全世界没人说，这是我今天说的，今天是2021年12月22日。
+
+参考链接：
+
+[2021年12月22日 文贵大直播](https://gettr.com/streaming/pkcrqm1be7)
 
  
 

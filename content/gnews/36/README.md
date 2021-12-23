@@ -2,29 +2,33 @@
 ---
 
 
-## 美国经济制裁中共官员又添5人
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1781204/)
+## Đảng Cộng Sản Trung Quốc đã xâm nhập nghiêm trọng vào quân đội Đài Loan, và an ninh của Thái Anh Văn cũng nằm trong đó
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1781217/)
 
-撰稿：东京樱花团/立正道
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2-90.jpg)
-[图片来源](https://www.clydeco.com/en/insights/2020/08/us-sanctions-on-hong-kong-government-officials-and)
+Biên Dịch: 东京樱花团/越南文雄
+![](https://assets.gnews.org/wp-content/uploads/2021/12/6-19.png)
+[Nguồn ảnh:](00)
 
-据“华盛顿路透社”12月20日报道，美国白宫列举了中共官员被制裁的人名5个，均为中共香港“中联办”的官员。联络办7人中有5人在名单里。警告说，这些人与外国金融机构进行交易将被进行制裁。根据美国香港自治法，从去年10月以来，被认定参与了香港镇压民主的中共官员已达39人。
+Reuters ngày 20/12 đưa tin, Các điệp viên Đảng Cộng Sản Trung Quốc đã xâm nhập nghiêm trọng vào quân đội Đài Loan, và bộ phận an ninh của tổng thống Thái Anh Văn cũng không ngoại lệ, và trong thập kỷ qua, ít nhất 21 sĩ quan cảnh sát quân sự cấp cao trở lên đã bị kết án vì tội gián điệp, trong khi 9 cựu chiến binh đang bị xét xử hoặc điều tra vì nghi ngờ tiếp xúc với gián điệp của Đảng Cộng Sản Trung Quốc.
 
-国务院在向国会提交的最新报告表示，与报告中记载的个人故意进行重要交易的外国金融机构也将受到制裁。而且根据法律，有义务进行定期提交。
+Reuters lấy ví dụ về Ông XIE XIZHANG, một điệp Đảng Cộng Sản Trung Quốc hoạt động tại Đài Loan với tư cách là một doanh nhân Hồng Kông, chỉ ra rằng XIE XIZHANG đã nhiều lần đến Đài Loan với tư cách là một doanh nhân Hồng Kông từ năm 1997, nhưng đã bí mật tuyển dụng gián điệp cho Bắc Kinh, thâm nhập thành công vào quân đội Đài Loan thông qua các phương tiện như tặng vàng và tặng quà.
 
-报告还指出，在香港19日举行的立法会选举中，对中共试图剥夺香港人民的重要发言权的明显尝试有深刻的担忧。
+Theo Reuters, ông XIE cung cấp toàn bộ chi phí đi lại nước ngoài của các sĩ quan Đài Loan và gia đình họ, hàng ngàn Đô la tiền mặt, đồng thời tặng quà như khăn lụa và thắt lưng cho vợ của sĩ quan. các sĩ quan quân đội cấp cao đã nghỉ hưu, quân đội Hoa Kỳ có kinh nghiệm liên quan đến Đài Loan và các quan chức phản gián của chính phủ hiện tại đều nói với Reuters rằng những trường hợp này cho Đảng Cộng Sản Trung Quốc đã phát động một chiến dịch rộng rãi nhằm phá hoại lãnh đạo quân sự và dân sự của Đài Loan, làm xói mòn ý chí chiến đấu của họ, trích xuất bí mật của vũ khí công nghệ cao và tìm hiểu về kế hoạch quốc phòng của Đài Loan.
 
-目前为止，还没有对相关的金融机构进行过制裁。指定为制裁对象的金融机构，除了货款、汇率、房地产交易、出口、转移受到限制外，官员也是被制裁对象。
+Ngoài ra, Đảng Cộng Sản Trung Quốc thậm chí còn thâm nhập vào các nhân viên an ninh để bảo vệ tổng thống Đài Loan Thái Anh Văn. Báo cáo cho biết một quan chức an ninh tổng thống đã nghỉ hưu và trung tá hiến binh đang phục vụ trong lực lượng chịu trách nhiệm bảo vệ tổng thống đã bị kết án vào đầu năm nay vì tiết lộ thông tin nhạy cảm về sự an toàn của Thái Anh Văn cho các cơ quan tình báo của Đảng Cộng Sản Trung Quốc. theo phán quyết của tòa án tối cao, thông tin này bao gồm một sơ đồ tổ chức của một trung tâm dịch vụ đặc biệt được vẽ tay, đơn vị này chịu trách nhiệm bảo vệ tổng thống. Hai người này cũng bị buộc tội tiết lộ tên, chức vụ và số điện thoại làm việc của các nhân viên an ninh cấp cao bảo vệ Dinh Tổng Thống và nơi cư trú của bà Thái Anh Văn ở trung tâm Đài Bắc, theo Reuters.
 
-美国财政部根据该法，有义务在向国会提交报告后30-60天内确定受制裁的金融机构。
+Theo hồ sơ tòa án Đài Loan và báo cáo của truyền thông quan phương tại địa phương, trong thập kỷ qua, ít nhất 21 sĩ quan Thượng Uý hoặc ở cấp độ cao hơn đang làm việc hoặc đã nghỉ hưu của Đài Loan đã bị kết án là gián điệp của Đảng Cộng Sản Trung Quốc. 21 sĩ quan bị kết án đã bị kết tội tuyển dụng gián điệp cho Đảng Cộng Sản Trung Quốc hoặc chuyển một loạt thông tin nhạy cảm cho Đảng Cộng Sản Trung Quốc, bao gồm thông tin liên lạc của các sĩ quan quân đội cấp cao của Đài Loan và chi tiết về các người đại lý của Đài Loan tại nước Cộng Sản Trung Quốc.
 
-信息来源：
+备注：越南语根据中文稿件进行翻译，本文内容以中文为准。
 
-[米、香港の民主主義弾圧巡り中国当局者5人特定　取引銀行に制裁も](https://news.yahoo.co.jp/articles/e55e66d036f4a0a3f451d8c508aec95f08596549)
+Bản dịch tiếng Việt dựa trên bản tiếng Trung, nội dung bài dịch này lấy bản tiếng Trung làm chuẩn mực
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
+Nguồn tin:
+
+[中共严重渗透台湾军方，蔡英文安保也在内 – GNEWS](https://gnews.org/zh-hans/1779350/)
+
+Biên Tập: 东京樱花团/知了知了（以Google翻译分段校对）
+Đăng Bài: 东京樱花团/yuxingcao01
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-1.jpg)
 
 

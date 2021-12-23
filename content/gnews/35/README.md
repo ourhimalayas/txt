@@ -2,27 +2,21 @@
 ---
 
 
-## 日本大阪3名没有出国记录的人员感染Omicron
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1781209/)
+## 【文贵先生大直播PPT】疫苗大灾难
+` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1781442/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2021/12/5-26.png)
-[图片来源](https://news.yahoo.co.jp/articles/52540c32183fc61cc3c1bc75adc373462840c4f1)
+撰稿：飞飞（DC) Now 小哥（香草山）庚子灭共（DC）莲心不染（扬帆）
+美工：青山（英喜）
 
-大阪府知事吉村洋文今天宣布，该市已确认在市区内感染了Omicron的患者。
+【2021年12月22日文贵先生大直播PPT：疫苗大灾难】
+![](https://assets.gnews.org/wp-content/uploads/2021/12/11-10.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/12-9.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/13-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/14-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/15-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/16-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/17-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/18-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/19-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/20-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/21-11.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/22-12.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/23-9.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/24-9.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/25-8.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/26-6.jpg)
+**Omicron 从实验室里释放的证据的相关信息源链接：**
 
-据吉村洋文说，有四个人Omicron的检测结果是阳性。其中只有一人是从国外回来，而另外三个人没有出国旅行的记录，3名分别是一位三十多岁的男子和一名三十多岁的妇女以及一名不满十岁的女孩。男性患者是一位小学老师，截止17日都在出勤。现在所有儿童都要接受PCR测试
+1.[https://rumble.com/vqy7qe-dr.-peter-mccullough-on-nfl-protocols-pregnancy-omicron-and-more.html](https://rumble.com/vqy7qe-dr.-peter-mccullough-on-nfl-protocols-pregnancy-omicron-and-more.html)2.[https://rwmalonemd.substack.com/p/has-omicron-shifted-receptor-binding?r=ta0o1&utm\_campaign=post&utm\_medium=web](https://rwmalonemd.substack.com/p/has-omicron-shifted-receptor-binding?r=ta0o1&amp;utm_campaign=post&amp;utm_medium=web)3.[https://frenchdailynews.com/health/3691-omicron-the-molecular-analysis-of-pr-jacques-fantini 4.https://rwmalonemd.substack.com/p/omicron-today?r=ta0o1&utm\_campaign=post&utm\_medium=web](https://frenchdailynews.com/health/3691-omicron-the-molecular-analysis-of-pr-jacques-fantini%204.https://rwmalonemd.substack.com/p/omicron-today?r=ta0o1&amp;utm_campaign=post&amp;utm_medium=web)5.[https://www.cbsnews.com/news/omicron-variant-covid-in-europe-netherlands-before-alert-raised/ 6.https://www.cnbc.com/2021/12/02/where-did-omicron-covid-variant-come-from-and-where-is-it-circulating.html 7.https://www.who.int/news/item/26-11-2021-classification-of-omicron-(b.1.1.529)-sars-cov-2-variant-of-concern](https://www.cbsnews.com/news/omicron-variant-covid-in-europe-netherlands-before-alert-raised/%206.https://www.cnbc.com/2021/12/02/where-did-omicron-covid-variant-come-from-and-where-is-it-circulating.html%207.https://www.who.int/news/item/26-11-2021-classification-of-omicron-%28b.1.1.529%29-sars-cov-2-variant-of-concern)8.[https://twitter.com/P\_McCulloughMD/status/1473299558281191433?s=20 https://www.msn.com/en-us/health/medical/most-omicron-cases-in-us-have-been-mild-but-most-were-vaccinated-cdc-reports/ar-AARGOxE](https://twitter.com/P_McCulloughMD/status/1473299558281191433?s=20%20https://www.msn.com/en-us/health/medical/most-omicron-cases-in-us-have-been-mild-but-most-were-vaccinated-cdc-reports/ar-AARGOxE) 9.[https://www.msn.com/en-us/health/medical/most-omicron-cases-in-us-have-been-mild-but-most-were-vaccinated-cdc-reports/ar-AARGOxE 10.https://www.voiceforscienceandsolidarity.org/videos-and-interviews/geert-vanden-bossche-speaks-about-omicron-and-mass-vaccination-at-dana-show](https://www.msn.com/en-us/health/medical/most-omicron-cases-in-us-have-been-mild-but-most-were-vaccinated-cdc-reports/ar-AARGOxE%2010.https://www.voiceforscienceandsolidarity.org/videos-and-interviews/geert-vanden-bossche-speaks-about-omicron-and-mass-vaccination-at-dana-show)
 
-吉村知事表示，今后，将对与这个家庭密切接触的人进行大范围的检查，以控制感染的扩散。现在已经证实了没有出过国的人感染了Omicron，那么这很有可能在其它地方也会发生。他呼吁说，我们需要假设在市中心感染了Omicron的前提下采取措施。
+* * *
 
-信息来源：
-
-[【速報】オミクロン株　国内初の市中感染を確認　渡航歴ない家族3人が感染　大阪府](https://news.yahoo.co.jp/articles/52540c32183fc61cc3c1bc75adc373462840c4f1)
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-1.jpg)
-
+发稿：云起时
 
  
 
