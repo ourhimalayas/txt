@@ -2,12 +2,10 @@
 ---
 
 
-## CCP大外宣猫女郎，谁派你来的？
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1784024/)
+## 12/22/2021 文贵直播：国家安全委员会派北京市国安局的紧急处理小组动用谈判专家，采取时而威胁时而示弱的卑鄙手段处理彭帅事件
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1784026/)
 
-杨贝贝（Isobel Yeung）——中国中央电视台主持人，现受雇于HBO VICE，从一开始就是中共大外宣。她最近一次 “任务”是被派去采访郭文贵先生。
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+秘密翻译组-北美组
 
  
 
