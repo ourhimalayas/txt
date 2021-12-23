@@ -2,47 +2,35 @@
 ---
 
 
-## 公共卫生将开始收集加拿大人的手机位置数据
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1784470/)
+## 奥地利奇粑的疫苗强制令
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1784493/)
 
-作者：Sheila Gunn Reid
-翻译：Himasally
+![](https://assets.gnews.org/wp-content/uploads/2021/12/aycpk-aty2j.jpg)**图片来源：新闻原稿**
+来几波病毒了？ ？ ？
+第一次病毒(COVID19)横扫世界每一个角落，高致命。经过 一年时间疫苗问世，注射两针疫苗会把病毒控制住，大家都在注射疫苗。
+第二次病毒（DELTA)来了，把印度变成了人间炼狱因为疫情严重大街上都是焚烧的尸体。
+这个时候又推加强针疫苗，注射了第三针疫苗感染病毒的人数有增无减。
+第三次病毒(OMICRON)来了，传染率极强，加强针也没挡住病毒对人的传染，死亡人数不断增加。
+第四波病毒来了我们怎么办？
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-285.png)
+最近，Zerohedge 12月22日报道了一则，奥地利招聘人员“追捕拒绝接种疫苗的人”的新闻。
+奥地利政府颁布一项法规对未在2月之前接种疫苗的，违反法规的面临最高7200欧元罚款，可能还会被监禁一年，并且迫使他们支付自己的拘留费用。此项法规堪称年度第一奇葩疫苗强制令。
 
-加拿大公共卫生局将开始收集加拿大人的手机位置数据，用于“评估公共卫生措施”。
+荒唐至极的法规把民众当成实验室小白鼠了，疫苗试验数据没有经过临床验证注射人体里风险太大了，研究生物疫苗的科学家和临床医生都在质疑疫苗的有效性。
 
-该机构由特丽莎**·**唐博士监督，正在寻找承包商，通过“从手机信号塔/运营商位置数据得出的综合指标”，帮助实施中国社会信用式的公民监测。
+既然疫苗对病毒不起多大作用，为什么强制注射身体里？疫苗不花钱注射而且还有奖励？为什么？
 
-该合同的征求建议书于12 月 17 日发布在 www.BuySell.gc.ca 上：
+**文章观点仅代表个人，与Gnews平台无关**
 
-加拿大公共卫生局 (PHAC) 要求访问安全、处理和及时的手机信号塔/运营商位置数据，此外还需要针对安全、法律、隐私和透明度考虑进行充分审查，以协助应对新冠流行病和其他公共卫生应用。来自基站/运营商位置数据的汇总指标提供了有见地的信息，并允许对加拿大人口的流动性（或移动）进行有意义的分析。这些分析和发现提供了态势感知，并有助于为政策、公共卫生信息、公共卫生措施评估以及与公共卫生响应、规划、规划和准备相关的其他方面提供信息。
+**新闻链接：**[https://www.zerohedge.com/covid-19/austria-hiring-people-hunt-down-vaccine-refusers](https://www.zerohedge.com/covid-19/austria-hiring-people-hunt-down-vaccine-refusers)
 
-公共卫生窥探者收集的信息有许多险恶的应用，例如定位地下、无限制的教堂、发现调酒师不查看顾客疫苗卡的现代地下酒吧、检查家庭聚会的人数，或者确定 COVID-scofflaws 的已知关联者。
+作者：洛杉矶盘古农场–大浪淘沙
+编审：洛杉矶盘古农场–心照
+发布：洛杉矶盘古农场–彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-中国使用类似的系统，称为社会信用，其中共产党政府通过手机应用程序和位置数据监控公民的购买、旅行、人际关系等行为。然后，国家使用这些汇总数据来评估公民的公民适宜性，然后官僚们相应地进行惩罚或奖励。
-
-当加拿大政府即将发布的位置数据与疫苗护照系统联系起来时，很明显，大流行除了死亡人数的统计还有隐私也被纳入其中。
-
-来源：[https://www.rebelnews.com/public\_health\_will\_start\_gathering\_canadians\_cell\_phone\_location\_data](https://www.rebelnews.com/public_health_will_start_gathering_canadians_cell_phone_location_data)
-
-（文章仅代表作者个人观点）
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

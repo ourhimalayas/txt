@@ -2,42 +2,47 @@
 ---
 
 
-## FDA被迫披露的辉瑞疫苗不良反应数据令人震惊
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1784445/)
+## 公共卫生将开始收集加拿大人的手机位置数据
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1784470/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+作者：Sheila Gunn Reid
+翻译：Himasally
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/12/V-4.jpg)futurism.com
-有掩盖真相嫌疑，企图拖延55年，甚至75年才完全公布疫苗研制过程数据的辉瑞公司以及帮凶FDA，在有识之士依据宪法规定的紧逼下，FDA不得不开始了缓慢、仍企图拖延的“信息披露”。从发布的这些数据看来，疫苗的副作用是令人震惊的。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-285.png)
 
-《真相报道》（truth press）12月23日发表文章，题目是“FDA发布了更多关于辉瑞疫苗‘不良反应’的数据”。
+加拿大公共卫生局将开始收集加拿大人的手机位置数据，用于“评估公共卫生措施”。
 
-全文如下：
+该机构由特丽莎**·**唐博士监督，正在寻找承包商，通过“从手机信号塔/运营商位置数据得出的综合指标”，帮助实施中国社会信用式的公民监测。
 
-随着美国食品和药物管理局（FDA）准备批准辉瑞公司用于治疗感染中共（新冠）病毒的高危患者的新药，更多有关其疫苗副作用的危险的信息正在曝光。
+该合同的征求建议书于12 月 17 日发布在 www.BuySell.gc.ca 上：
 
-就在昨天（12月22日），我们报告了新西兰另一例与疫苗有关的死亡病例。现在，FDA发布的文件显示，制药商辉瑞公司在推出中共病毒疫苗的最初几个月内记录了近16万例中共病毒疫苗的不良反应。
+加拿大公共卫生局 (PHAC) 要求访问安全、处理和及时的手机信号塔/运营商位置数据，此外还需要针对安全、法律、隐私和透明度考虑进行充分审查，以协助应对新冠流行病和其他公共卫生应用。来自基站/运营商位置数据的汇总指标提供了有见地的信息，并允许对加拿大人口的流动性（或移动）进行有意义的分析。这些分析和发现提供了态势感知，并有助于为政策、公共卫生信息、公共卫生措施评估以及与公共卫生响应、规划、规划和准备相关的其他方面提供信息。
 
-这些数据是由一组被称为“促进透明度的公共健康医疗专业人士”（Public Health and Medical Professionals for Transparency）的医生、教授和记者获得。他们根据《信息自由法》（Freedom of Information Act），向FDA提交了的请求，要求公开文件。第一份文件显示，截至2021年2月，当辉瑞在全球范围内紧急推出该产品时，这家制药商已经收集了超过42，000份病例报告，详细说明了近16万个人对疫苗的不良反应。
+公共卫生窥探者收集的信息有许多险恶的应用，例如定位地下、无限制的教堂、发现调酒师不查看顾客疫苗卡的现代地下酒吧、检查家庭聚会的人数，或者确定 COVID-scofflaws 的已知关联者。
 
-数据显示，大部分严重和非严重的不良事件病例被归类为“一般性疾病”。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-284.png)
-报告的较常见疾病包括发热、疲劳和腹泻等。
+中国使用类似的系统，称为社会信用，其中共产党政府通过手机应用程序和位置数据监控公民的购买、旅行、人际关系等行为。然后，国家使用这些汇总数据来评估公民的公民适宜性，然后官僚们相应地进行惩罚或奖励。
 
-整个报告中最令人惊讶的数字是，在美国这些病例中有超过1，000个是致命的。总的来说，超过3，000的死亡与疫苗有关，这与该公司自己的数据相符。批评人士认为，一些死亡人数不能确定与疫苗有关，但其他人坚持认为死亡人数可能仍然少报了。
+当加拿大政府即将发布的位置数据与疫苗护照系统联系起来时，很明显，大流行除了死亡人数的统计还有隐私也被纳入其中。
 
-请记住，FDA使用了这些数据来宣布辉瑞疫苗是安全的，这是它在8月份为16岁及以上的美国人所做的。自那以后，它已经被批准用于5岁以下的儿童，以及从上周开始用于16岁及以上人群的加强剂。
+来源：[https://www.rebelnews.com/public\_health\_will\_start\_gathering\_canadians\_cell\_phone\_location\_data](https://www.rebelnews.com/public_health_will_start_gathering_canadians_cell_phone_location_data)
 
-读者可以在下面找到“促进透明度的公共健康医疗专业人士”的完整数据分类：文章链接了在斯柯伯德（Scribd）阅读平台发布的信息。
+（文章仅代表作者个人观点）
 
-（全文完）
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-这里再着重强调一下，“整个数字是令人惊讶的”，有人“坚持认为死亡人数可能仍然少报了”，在这样的数据面前，FDA依旧“宣布辉瑞疫苗是安全的”。阴谋集团真地是在玩耍美国人的智商，还不清醒！
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
 
-原文链接：
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-[https://truthpress.news/news/fda-releases-more-data-on-adverse-reactions-to-pfizer-vaccine/](https://truthpress.news/news/fda-releases-more-data-on-adverse-reactions-to-pfizer-vaccine/)
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
