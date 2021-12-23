@@ -2,67 +2,40 @@
 ---
 
 
-## 明年5月份以前 这个世界会相当动荡
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1782393/)
+## 明尼苏达州州长瓦尔兹及其家人病毒检测呈阳性
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1782406/)
 
-[https://gtv.org/video/id=61c34a4f43ccb726a089d0e7](https://gtv.org/video/id=61c34a4f43ccb726a089d0e7)
+**翻译：皮特
+编辑：Candy**
 
-**郭文贵
-Miles Guo**
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/mene.png)图片来源：美联社
 
-世界上我觉得可能会出大事，严格讲，就是明年5月份以前
-I think something big could happen in the world, strictly speaking, before next May
-这个世界相当的动荡，习太阳，真要是好好思考思考
-The world is quite in turmoil, Xi Sun, he really need think about it
 
-包括最近听说军队大调整，这种大调整就是不自信嘛，不相信嘛
-Including I recently heard about a major adjustment in the army, this kind of major adjustment means that Xi are not confident and not believe it
+明尼苏达州州长办公室星期二宣布，明尼苏达州州长蒂姆·瓦尔兹及家人的COVID-19检测呈阳性，包括他的妻子和10多岁的儿子。
 
-被调整都很有数，因为你不相信我嘛
-Those who have been adjusted are all mentally well-informed, because Xi don’t trust me
+沃尔茨在一份声明中说，他的儿子在周末出现轻微症状后，他们三人于周一检测呈阳性。州长和夫人格温·瓦尔兹没有症状。
 
-公检法的大调整，公安部的部长的调整， 政法委的整个的没落
-The major adjustments of the Public Security Bureau, the adjustment of the Minister of the Ministry of Public Security, the declining of the entire Politics and Law Commission
+他们三人都已经接种了疫苗，包括沃尔兹，他在3月接种了强生公司的疫苗，并在10月接种了莫奈德增强疫苗。沃尔兹说他们会隔离10天。
 
-中纪委到处最近抓金融机构和政法委的人
-Recently, the Central Commission for Discipline Inspection has been arresting people from financial institutions and political and legal committees everywhere
+沃尔茨在一份声明中说：“我的家人和我正在隔离，我将继续在家工作，直到我感觉好一些并对病毒检测呈阴性。”与此同时，我鼓励每一个明尼苏达人在假期前接受检测，并接种疫苗和加强剂，以确保他们对COVID-19有强大的保护力。”
 
-都说明了为冬奥会在做预防性的准备
-All show that preventive preparations are being made for the Winter Olympics game
+“作为一个父亲，我很担心我的家人。”沃尔兹在推特上发布的一段视频，表示他自己没有症状，表达了对疫苗和加强针效果的信心。州长敦促明尼苏达人打加强针，如果他们在假日期间出现任何症状，就去做检查。
 
-刚刚河北又抓了20多个人
-Just now, Hebei has arrested more than 20 people
+他说：“保持安全是我们新年最大的礼物。”
 
-你看河北政法委会抓多少人，你会看到血流成河
-look at the number of people arrested by the Hebei Political and Legal Committee, you will see the blood river
+据美国疾病控制和预防中心称，奥米克戎变体已迅速成为主要变体，占本周全国新感染病例的73%。明尼苏达州的医院医疗能力仍然紧张，截至周一，有近1500人因COVID-19住院，其中355人在重症监护室。
 
-所以说冬奥会绝对是上天送给爆料革命的大礼
-Therefore, the Winter Olympics game is definitely a gift from God to the whistleblower movement
+原文链接：
+[https://www.theepochtimes.com/minnesota-gov-walz-family-test-positive-for-covid-19\_4170398.html](https://www.theepochtimes.com/minnesota-gov-walz-family-test-positive-for-covid-19_4170398.html)
 
-无论从国际影响、知名度，在党内引起的
-Regardless of international influence, popularity, or all the shock cause within the Communist Party
+***发布：Candy***
 
-所有的震撼和未来大家可以预期，任何我们今天讨论发生一件
-and the future you can expect, anything we discuss today will happen
-
-都是以共灭共、以美灭共，咱们一个重大的进展
-It’s all about taking down the Communist Party with CCP and with the United States, and we are making a major progress
-
-Date: 12/21/2021
-原视频标题: 明年5月份以前 这个世界会相当动荡
-The world will be quite turmoil before May next year
-原视频日期：2021/12/19
-原视频链接：[https://gettr.com/post/pk5lmv17ff](https://gettr.com/post/pk5lmv17ff)
-任务编号：KC360（3297）
-视频时间段 : 0:00-1:29
-中听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 ：洛杉矶盘古农场 – Kevin37L
-
-00：10 相当的动荡 改为 相当地动荡
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
