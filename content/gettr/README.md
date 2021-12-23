@@ -17,6 +17,34 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/23/2021 12:25 PM (UTC)`
+
+The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO's Deliberate Lies After Deceptive Editing [Part-9]：<br/>‼️HBO's interview with "Crab" (Ryan) to denigrate Mr. Guo. In this part, we added Mr. Guo’s live broadcast footage on May 30, 2020 and at the same time used the uncut interview to refute when Mr. Guo was asked about "Crab". Mr. Guo said, "We don't owe 'Crab' (Ryan) a penny."<br/><br/>【HBO采访郭文贵先生背后的真相——揭露HBO精心编织的谎言 Part-9】：<br/>‼️ 反击HBO-VICE采访螃蟹(Ryan)诋毁郭先生的撒谎：我们利用郭先生2020年5月30日直播视频进行回击，同时用郭先生被问到关于螃蟹问题的原始采访进行回应，“我们不欠螃蟹一分钱”。<br/><br/>YouTube link of full REBUTTAL: https://youtu.be/VTQ91werzk8<br/>GTV link of full REBUTTAL (EN/CN subtitles): https://gtv.org/video/id=61c3bb8900f9a119180832eb<br/>GETTR link of full REBUTTAL (EN/CN subtitles): https://gettr.com/streaming/pkexq84603
+![img](https://media.gettr.com/group42/origin/2021/12/23/12/2284f66f-4e72-298a-4b6f-2c1e72a75aef/out.jpg)
+
+---
+
+`@miles 12/23/2021 12:22 PM (UTC)`
+
+The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO-VICE's Deliberate Lies After Deceptive Editing [Part-8]：<br/>‼️HBO-VICE’s discredit the majority of the GTV’s real investors by showing a small number of infiltrated CCP investors requesting a refund of their investment.<br/><br/>【 #HBO #VICE 采访郭文贵先生背后的真相——揭露HBO-VICE精心编织的谎言 Part-8】：<br/>‼️ 反击HBO-VICE利用少数混进来的中共特务GTV投资后故意要求退款以诋毁GTV的报道<br/><br/>YouTube link of full REBUTTAL video  (may be blocked by YouTube‘s rogue rules): https://youtu.be/VTQ91werzk8<br/>GTV link of full REBUTTAL video  (EN and CN subtitles): https://gtv.org/video/id=61c3bb8900f9a119180832eb<br/>GETTR link of full REBUTTAL video  (EN and CN subtitles): https://gettr.com/streaming/pkexq84603
+![img](https://media.gettr.com/group17/origin/2021/12/23/12/264e3146-9252-24ab-032c-7589fb95318a/out.jpg)
+
+---
+
+`@miles 12/23/2021 12:19 PM (UTC)`
+
+The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO's Deliberate Lies After Deceptive Editing [Part-7]：<br/>‼️HBO’s wrong portrayal of a “Wei Lei” Teng Biao as an underprivileged person. HBO edited Teng Biao’s interview to discredit Mr. Guo repeatedly. We used the live broadcast of Mr. Guo's response to Teng Biao's defamation on August 24, 2017 to reveal HBO’s lies and Teng Biao obviously slandered first.  *<br/>*“Wei Lei” is a person who works for the CCP by infiltrating and spreading misinformation.<br/><br/>【HBO采访郭文贵先生背后的真相——揭露HBO精心编织的谎言 Part-7】：<br/>‼️HBO-VICE把伪民运滕彪塑造成弱势群体，HBO采访滕彪继续诋毁郭先生。我们利用郭先生2017年8月24日回应滕彪造谣诽谤的直播视频进行反击，很明显滕彪诋毁在先。<br/><br/>YouTube link of full REBUTTAL (EN/CN subtitles): https://youtu.be/VTQ91werzk8<br/>GTV link: https://gtv.org/video/id=61c3bb8900f9a119180832eb
+![img](https://media.gettr.com/group17/origin/2021/12/23/12/e6da1ed9-87bd-be18-5011-f52d3ccbe509/out.jpg)
+
+---
+
+`@miles 12/23/2021 12:10 PM (UTC)`
+
+The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO-VICE's Deliberate Lies After Deceptive Editing [Part-6]：<br/>‼️HBO-VICE’s questioning about Mr. Guo's revelation of the source code of the Dominion voting machine<br/><br/>【 #HBO #VICE 采访郭文贵先生背后的真相——揭露HBO-VICE精心编织的谎言 Part-6】：<br/>‼️反击HBO-VICE质疑郭先生对于多米尼投票机源代码的爆料<br/><br/>YouTube link of full REBUTTAL video  (may be blocked by YouTube‘s rogue rules): https://youtu.be/VTQ91werzk8<br/>GTV link of full REBUTTAL video  (EN and CN subtitles): https://gtv.org/video/id=61c3bb8900f9a119180832eb<br/>GETTR link of full REBUTTAL video  (EN and CN subtitles): https://gettr.com/streaming/pkexq84603
+![img](https://media.gettr.com/group8/origin/2021/12/23/12/6489e8c5-8678-f9d5-99ad-81471097ffaf/out.jpg)
+
+---
+
 `@miles 12/23/2021 12:09 PM (UTC)`
 
 The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO-VICE's Deliberate Lies After Deceptive Editing [Part-5]：<br/>‼️HBO-VICE's unfounded accusation of Mr. Guo for spreading conspiracy theories and building personal power and influence, as well as Mr. Guo's refutation on the mainstream media portraying Mr. Steve Bannon as a racist<br/><br/>【 #HBO #VICE 采访郭文贵先生背后的真相——揭露HBO-VICE精心编织的谎言 Part-5】：<br/>‼️反击HBO-VICE诋毁郭先生传播阴谋论、筑造个人权力和影响力，以及反击主流媒体把班农先生塑造成种族主义者<br/><br/>YouTube link of full REBUTTAL video  (may be blocked by YouTube‘s rogue rules): https://youtu.be/VTQ91werzk8<br/>GTV link of full REBUTTAL video  (EN and CN subtitles): https://gtv.org/video/id=61c3bb8900f9a119180832eb<br/>GETTR link of full REBUTTAL video  (EN and CN subtitles): https://gettr.com/streaming/pkexq84603
@@ -126,33 +154,6 @@ The Truth Behind Mr. Miles Guo's Interview with #HBOVICE<br/><br/>The true missi
 
 12/22/2021 Miles Guo: Now that the whole world is boycotting the Beijing Winter Olympics, and the CCP is determined to occupy the high grounds of media and public opinion. The release of this manipulated video by VICE at this very moment is to denounce the Whistleblowers’ Movement as a cult and to make the Whistleblowers’ Movement and the overseas Chinese to be the scapegoat for the CCP’s biological weapon - the CCP virus.<br/><br/>12/22/2021 文贵直播：全球抵制北京冬奥会，而中共已决心占领媒体舆论制高点，此时此刻VICE放出这个被剪辑、操纵过的视频，就是要把爆料革命打成邪教、让爆料革命和海外华人给病毒生化武器的罪魁祸首共产党背黑锅<br/>
 ![img](https://media.gettr.com/group5/getter/2021/12/23/05/8cee30fd-4666-a74b-23ca-fbca9325d6a9/out.jpg)
-
----
-
-`@miles 12/23/2021 4:20 AM (UTC)`
-
-12/22/2021 Miles Guo: VICE, an unscrupulous media, baselessly accuses me of being a swindler by making up lies, and it smears the New Federal State of China and the Whistleblowers’ Movement as cults. However, VICE can’t provide any evidence whatsoever! Such despicable actions of VICE are exactly the same as how the CCP responded to the sexual assault of Peng Shuai by Zhang Gaoli<br/><br/>12/22/2021 文贵直播: 无良媒体VICE编造谎言指控文贵是骗子，并污蔑新中国联邦和爆料革命是邪教，却拿不出任何证据！这种卑劣的做法和中共对待彭帅被张高丽性侵事件的手法如出一辙！<br/>
-![img](https://media.gettr.com/group31/getter/2021/12/23/04/87be75aa-9b28-e647-9477-e61c4cbf1cec/out.jpg)
-
----
-
-`@miles 12/23/2021 3:58 AM (UTC)`
-
-12/22/2021 Miles Guo: The biggest evil force controlled by the CCP is the media! Forcing Peng Shuai to admit that she "raped" Zhang Gaoli and using Ma Rui's rape case to frame me follow the same trick of the CCP; Isobel Yeung and VICE have denounced our fellow fighters as cult members, and yet they have not said a single word about the CCP's attack and harm on the Whistleblowers' Movement. But what we have said will be the evidence for their crimes!<br/><br/>12/22/2021 文贵直播：中共控制的最大邪恶力量是媒体！中共反逼彭帅承认其“诱奸”张高丽和用马蕊强奸案陷害文贵是同一套路数；杨贝贝和VICE污蔑战友们是邪教分子，却闭口不谈中共对爆料革命的攻击和伤害，我们说过的话都将成为审判他们罪行的证据！<br/>
-![img](https://media.gettr.com/group34/getter/2021/12/23/03/576dfcf1-1864-c1ba-b107-78ab0c3b416e/out.jpg)
-
----
-
-`@miles 12/23/2021 2:59 AM (UTC)`
-
-12月22号：共产党对人类的复合性的病毒🦠有快速死亡，慢速死亡，长期死亡的各病毒正在威胁全人类……为什么全世界的政府不找中共要病毒的真相？<br/><br/><br/>投射”恐惧贩子来了！<br/><br/> “突发：Omicron 浪潮将席卷美国，到 3 月将有 60% 的人受到感染，新感染人数将达到 1.4 亿——但华盛顿大学警告说，90% 的人永远不会出现症状”<br/><br/> https://www.dailymail.co.uk/news/article-10337845/Enormous-spread-Omicron-cause-140-MILLION-new-infections-January-1-March-1.html Here come the “projection” fear mongers!<br/><br/>“BREAKING: Omicron wave will crash on US with 60% of people infected by March and 140 MILLION new infections - but 90% will never show symptoms, University of Washington warns”<br/><br/>https://www.dailymail.co.uk/news/article-10337845/Enormous-spread-Omicron-cause-140-MILLION-new-infections-January-1-March-1.html类型全人类的安全安全安全！要！
-
----
-
-`@miles 12/23/2021 12:00 AM (UTC)`
-
-2021.12.22 The Truth Behind Mr. Miles Guo's Interview with HBO Vice 
-![img](https://media.gettr.com/group4/origin/2021/12/22/23/ea159647-5ab1-41fa-a882-d439785cbffa/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
