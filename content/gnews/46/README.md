@@ -2,40 +2,22 @@
 ---
 
 
-## 西安疫情再度失控，大批民众慌乱出逃
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1782520/)
+## 中共国要求日本撤销核电站处理水排海计划
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1782874/)
 
-作者：纽约香草山教育部-Noemi
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间12月22日，据中共媒体消息显示，中共国内陕西省西安市的中共病毒疫情再度失控。有报道称，在当地的封控区之外仍然出现了中共病毒阳性病例，目前，当地的整体疫情呈现出社区式集中传播模式。
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3-48.png)图片来源
+12月22日《时事通信》消息，中共国外交部发言人赵立坚在22日的记者会上表示，他对东京电力公司21日向核监管委员会提出的将福岛第一核电站的处理水释放到海中的计划表示 “严重关切”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide3-17.jpeg)
+他要求日本撤回该计划，并说：”日本应认真听取包括邻国在内的国际社会的关切，并撤销其向海中放水的错误决定。国际原子能机构（IAEA）仍在努力核实该工厂的安全性。如果它是安全无害的，为什么不把它释放到国内的湖泊中或用于国内流通”。
 
-对此，相关人士在盖特平台上发文表示，当前，西安市所有出城道路已全部被中共警方控制。在此期间，所有尝试出城的民众均被当地警方直接押送至就近隔离点进行隔离。知情人士爆料称，有民众出示了48小时以内的病毒核酸阴性检测证明并携带了绿色“行程码”，但二者皆被当地警方宣告无效。
+信息源：
 
-另据爆料消息，为了强制集中隔离与治疗在校学生，当天，一大批救护车在西安长安大学校园外连续往返了整个下午。而在当地其他院校中，大批学生们纷纷尝试翻墙逃离校园。
+[中国、処理水海洋放出の撤回要求](https://news.yahoo.co.jp/articles/57c3c190efd0c8d88442ddafbfdb8352292aeccb#:~:text=%E3%)
 
-此外，鉴于当地政府实行的强制封锁措施，更多的西安市民在出城无望后不得不疯狂囤货。消息称，当地各大超市目前已被抢购一空，部分超市已无货停业。
-
-参考链接：
-1）[https://www.gettr.com/post/pkc4p5a9ea](https://www.gettr.com/post/pkc4p5a9ea)
-2）[https://www.gettr.com/post/pkc8mka45c](https://www.gettr.com/post/pkc8mka45c)
-3）[https://www.gettr.com/post/pkctmxd45e](https://www.gettr.com/post/pkctmxd45e)
-4）[https://weibo.com/u/2540733094](https://weibo.com/u/2540733094)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
-
-总编：Irene木木
-编辑：Kathy文艺
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
