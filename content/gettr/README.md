@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/23/2021 12:00 AM (UTC)`
+
+2021.12.22 The Truth Behind Mr. Miles Guo's Interview with HBO Vice 
+![img](https://media.gettr.com/group4/origin/2021/12/22/23/ea159647-5ab1-41fa-a882-d439785cbffa/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@jasonmillerindc 12/22/2021 3:47 PM (UTC)`
@@ -149,13 +156,6 @@ The CCP is using social media — American companies — to advance its communis
 `@miles 12/20/2021 2:37 AM (UTC)`
 
 Miles Guo's Latest Song "Hcoin To the Moon" has created 22 historic records so far🎉🎉🎉🎉🎉🎉🎉🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1771779<br/><br/>郭文贵先生最新歌曲《Hcoin To the Moon》迄今为止已经创造了22项历史记录🎉🎉🎉🎉🎉🎉🎉🙏🙏🙏🙏🙏🙏🙏<br/>https://gnews.org/zh-hans/1771778/<br/><br/>
-
----
-
-`@miles 12/20/2021 12:41 AM (UTC)`
-
-12/19/2021 Miles Guo: The Winter Olympics will be the stage for the CCP to show the whole world its “governance capability”. Some attendees of the Winter Olympics will certainly catch the virus, and everything will be the CCP’s show. The CCP has prepared in case the Americans will be infected by the virus, and such preparations include assigning female interpreters, because the number of male athletes is 50% more than the females in the US Olympic team<br/><br/>12/19/2021 文贵直播：冬奥会是中共向全世界展示“治理”能力的舞台，一定有人染病毒、一切都会是演戏，中共已经为美国人染病做好了准备，其中包括女翻译，因为美国奥运队的男运动员比女运动员多一半<br/>
-![img](https://media.gettr.com/group27/getter/2021/12/20/00/85245ed4-0229-dceb-54a1-79d79d9f3a4b/out.jpg)
 
 ---
 
