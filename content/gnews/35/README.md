@@ -2,28 +2,28 @@
 ---
 
 
-## 德国军舰穿越南海维护国际自由航行秩序
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1783724/)
+## 加州强制要求当地工作人员接种疫苗加强针
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1783934/)
 
-作者：东京樱花团 – 在远方
-
+作者：纽约香草山农场 Naughty(文行)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月21日，美国加利福尼亚州州长发布声明称，为了达到完全接种，加州将于近期开始推动全体医护人员接种中共病毒疫苗加强针的工作。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-23-下午11.15.53.png)
+此外，加州圣何塞市的市长也于当天宣布了另一项疫苗计划，该计划要求所有受雇于该市或需要进入当地城市设施的人员必须接种中共病毒疫苗加强针——这也让圣何塞市成为加州第一个强制推行疫苗加强针的城市。
 
-当地时间12月22日，据台湾媒体报道，德国海军司令薛恩-巴赫于本周二表示，德国军舰“巴伐利亚”号日前已经穿越南海，并于20日抵达新加坡。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/5-32.jpg)
-巴赫在致辞时提及，德国此番将为维护太平洋地区的国际秩序做出具体贡献，同时，德国也希望通过此举进一步深化与区域内国家的安全与防卫关系。
+与此同时，加州大学的官员也在当天公告表示，在冬季或春季学期开始前，该校将要求符合条件的教职员工和学生必须接种中共病毒疫苗加强剂，否则，相关人员将不被视为完全接种疫苗。
 
-巴赫指出，当前，中共正在利用自身的政治权力以及剥削来的财富对国际秩序造成压力。虽然海牙国际法院已经裁定，中共在南海的主权声索毫无法律依据，但中共仍然主张其主权涵盖南海的大部分海域，甚至还在南海的人工岛礁上建立了自己的军事据点，引起区域争端。
+对于政府越演越烈的疫苗强制令，有关医护人员曾指出，与其说是为了公共安全，政府的强制性中共病毒疫苗接种政策充满了政治色彩。医护人员强调，中共病毒疫苗及其加强针并不像宣传的那样有效，相反的，这些疫苗还会带来各式各样的严重副作用。另外，即使是所谓的“完全接种者”也仍在感染并传染中共病毒。因此，从医学的角度来看，每个人都应该有权利选择是否接种中共病毒疫苗及其加强针。
 
-巴赫强调，德国的印太政策是基于国际标准和国际法，并且将一直信守自由及开放的印太地区的承诺。为此，德国计划扩大在印太地区的军事部署，并将与新加坡、日本和韩国商讨，设立非永久性的后勤支援中心，协助德国军舰在印太地区的部署行动。
+参考链接：
+1）[California to require booster shots for health care workers](https://www.politico.com/states/california/story/2021/12/21/california-to-require-booster-shots-for-health-care-workers-1402555)
+2）[加州强制接种疫苗 一线医护同步举行抗议](https://www.epochtimes.com/gb/21/8/22/n13180298.htm)
 
-参考链接: [德海軍司令：巴伐利亞號穿越南海 助維護國際秩序](https://cn.rti.org.tw/news/view/id/2120086)
+![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
-
-总编：飞虹
+总编：Irene木木
 编辑：Kathy文艺
-校正/发稿：Fei797
+校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
