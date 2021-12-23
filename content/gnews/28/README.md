@@ -2,152 +2,26 @@
 ---
 
 
-## 中原佛手 盘古龙头 让习恐惧 秒杀共产党的无神论
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1782344/)
+## 泽连科医生：他们现在要全面实行极权暴政
+` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1782357/)
 
-[https://gtv.org/video/id=61c349a343ccb726a089d0cb](https://gtv.org/video/id=61c349a343ccb726a089d0cb)
+你好，我是泽连科博士，我要求我的追随者们采取行动，现在的政府是绝望的，暴君们知道黑暗的末日即将来临，他们现在要全面实行极权暴政，试图压制像我这样的声音。
 
-**郭文贵
-Miles Guo**
+因此，首先我没有自杀倾向，其次我现在很好，我的健康状况也很好，如果我死了或消失了，与自杀和健康无关，你知道它的来源是什么，它是通过暗杀来压制我的声音。
 
-我要告诉大家一个最根本的问题
-Les voy a decir a todos el problema más fundamental
+因此，如果你看一下这段视频所附的文章，你会看到他们压制像我这样的医生，拿走我们的执照，诋毁我们等等。我对医生同行们的要求，以及对任何听众的要求是，朝着完全相反的方向走，站起来，这是一场战争，为了自由，我希望是以非暴力的方式。
 
-盘古把龙头变龟头的根本原因是他（习）相信风水
-La razón fundamental por la que Pangu convirtió la cabeza del dragón a la cabeza de tortuga es que él (Xi) cree en el Feng Shui
+我们需要非暴力反抗，我们需要对白宫里那个痴呆的傀儡说不，对所有这些来自Fauci、NIH、CDC、FDA等人的暴虐谎言说不，所有这些组织不过是妓女和妓院而已，因此现在是时候站起来了。如果你想让你的孩子们自由生活，如果你想让孩子们有机会以上帝的意志茁壮成长，现在是起身作出牺牲的时候了，因为我们孩子的自由取决于我们现在所做的一切。
 
-他相信我们盘古的黑蛇白蛇的故事
-Él cree en la historia de Pangu sobre la serpiente negra y la serpiente blanca
+我不主张使用暴力，我主张人们不盲从，站起来对毒疫苗说不，彻底拒绝今天的政府，它不过是人民的敌人，人类的敌人，上帝的敌人，愿上帝保佑你。
 
-他相信裕达这个佛手的力量
-Cree en el poder de Yuda, la mano de Buda
+素材：Estie
 
-而且这个事情谁都做不了决定
-Además, este asunto nadie podrá hacer la decisión
+翻译：Kent
 
-一定是习王孟
-Seguro es Xi, Wang, Meng
+字幕：文所未闻
 
-所有人 孙力军 傅政华
-Todas las personas, Sun Lijun, Fu Zhenghua
-
-就是Ｎ个人经过核实后
-Es comprobado por N personas
-
-认为这是儿是靠普的 是真的
-Creen que esto es real, es confiable
-
-而且越来越相信
-Además, cada vez creen más en eso
-
-明年是虎年 让荣光依旧给矇对了
-El próximo año es el año del tigre, Rong Guang aún lo adivinó correctamente
-
-不是（因为）佛手他才怕的
-No es (porque) la mano de Buda por eso le teme
-
-盘古属啥呀
-¿Qué es Pangu?
-
-盘古是什么形象
-¿Cuál es la imagen de Pangu?
-
-盘古是龙
-Pangu es Dragón
-
-明年是虎年
-El año que viene es año del Tigre
-
-龙虎是什么（关系）
-Qué es (relación) entre el dragón y el tigre
-
-龙虎相争 必有一伤
-Debe haber un herido en la batalla entre el dragón y el tigre
-
-天下最忌讳的是龙虎斗
-La cosa más tabú en el mundo es la pelea de dragones y tigres
-
-啥叫佛手
-Qué es la mano de Buda
-
-什么事你都逃不开佛祖之手
-Significa que no puedes escapar de la mano de Buda por nada
-
-什么人都跑不了
-Nadie puede escaparse
-
-在这个整个西游记里边也好
-Así sea dentro del “Viaje al oeste”
-
-降虎之魔那是如来掌
-El demonio para domar el tigre es la palma del Buda
-
-啪嚓是吧
-Una bofetada, cierto
-佛、菩萨
-Buda, Bodhisattva
-
-连苍蝇都不如 是吧
-Es menos que una mosca, cierto
-
-北有龙头
-Al norte hay la cabeza de dragón
-
-南有中原佛手
-Al sur hay la mano de Buda de las llanuras centrales
-
-你说一般人但凡你要是习近平你怕不怕
-Dime tu si una persona normal fuese Xi Jinping le temes o no
-
-关键你信不信
-El punto es que lo crees o no
-
-你要信了 你就怕
-Si crees en eso lo temes
-
-你不信你（就不怕）
-Si no lo crees (no lo temes)
-
-他要不信就不会强令让金融公司一定把龙头给包住
-Si él no lo creyera no obligaría a la compañía financiera a cubrir la cabeza del dragón
-
-这多可怕
-Que terrible es esto
-
-变成个龟头这个形象
-Se convirtió en una imagen de cabeza de tortuga
-
-震惊了世界
-Impactó al mundo
-
-你们没有意识到这件事情对中国共产党的无神论 几乎是秒杀
-Ustedes no tienen idea de que este asunto de ateísmo para el Partido Comunista de China es una destrucción en segundos
-
-共产党内部人就说
-Dentro del Partido Comunista la gente dice
-
-你不相信风水、不相信神你干这干什么
-“Si no crees en el Feng Shui, ni en Dios para qué haces esto”
-
-日期：12/20/2021
-原视频标题：中原佛手 盘古龙头 让习恐惧 秒杀共产党的无神论
-La mano de Buda de las llanuras centrales, la cabeza del dragón de Pangu, le da temor a Xi. Destruye en un segundo el ateísmo del Partido Comunista
-原视频日期：12/19/2021
-原视频网址： [https://gettr.com/post/pk2l535498](https://gettr.com/post/pk2l535498)
-任务编号：KC359(3283)
-视频时间段：0:00-01:39
-西听校：洛杉矶盘古农场 – 小文萱
-翻译：洛杉矶盘古农场 – 霙霙（文霙）
-翻译终校：洛杉矶盘古农场 – 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 ：洛杉矶盘古农场 – Kevin37L
-
-00：28 认为这是儿是靠谱的 改为 认为这事儿是靠谱的
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+发布：风云小哥
 
  
 

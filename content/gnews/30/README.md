@@ -2,56 +2,28 @@
 ---
 
 
-## 有声 | 安妮日记2022：逃离新冠疫苗
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1782328/)
+## 多位金融高管违法，平安信托陈刚被重判
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1782349/)
 
-配音：香草山媒体部 – Gtv abeilles
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Unknown-28.jpg)多位金融高管违法，平安信托陈刚被重判 网络图片
+据中国基金报12月22日报道，审计署官网21日发布2021年第5号公告《审计署移送违纪违法问题线索查处情况》，通报原中信集团党委委员、执行董事赵景文等10位金融领域高管的违法犯罪情况。其中平安信托有限责任公司江苏区域事业部原负责人陈刚被判处有期徒刑15年，并处没收财产1500万元，追缴违法所得5.32亿元。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+平安信托有限责任公司成立于1996年4月9日，法定代表人为董事长姚贵平，注册资本130亿元，经营范围包含本外币业务、各种信托等。该公司由中国平安持股99.8809%，由上海市糖业烟酒（集团）有限公司持股0.1191%。10月9日，平安信托官网发布公告，戴巍接替宋成立出任公司总经理职务。
 
+中共国经济蓬勃发展时，贪官奸商赚得盘满钵满；到了经济下行时，吃了我的给我吐出来，拿了我的给我送回来。这就是共产党的买卖，只赚不赔。于是，地产、银行、信托，各个行业资产大血洗、人员大调整。人人不得幸免，行行不得消停。
 
+新闻参考链接：[https://c.m.163.com/news/a/GRRKAE1E0530NLC9.html?spss=newsapp](https://c.m.163.com/news/a/GRRKAE1E0530NLC9.html?spss=newsapp)
 
+* * *
 
-
-
-
-那是1944年8月4日。安妮-弗兰克和她的家人在阿姆斯特丹普林森格街263号的秘密阁楼中躲避纳粹两年了。她听到楼下的骚动声，心开始怦怦直跳。安妮不想被送进集中营。绝望中，她跑到窗前，跳了出去。
-
-安妮掉进了时光隧道，穿越到2022年。她睁开眼睛，发现自己躺在医院的床上。一个拿着针筒的护士走了进来。
-
-**安妮：**我在集中营吗？我不要注射死刑。
-
-**护士：**可怜的姑娘。你从楼梯上摔下来后，意识似乎很模糊。现在是2022年。没有集中营。
-
-**安妮：**2022年？我在未来吗？我安全吗？
-
-**护士：**是的，你很安全，新冠疫苗也是安全的。它可以保护你免受冠状病毒的侵害。
-
-**文字版原文：[安妮日记2022：逃离新冠疫苗 – GNEWS](https://gnews.org/zh-hans/1767646/)**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/unknown.png)
-
-发稿：小鹿
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
 
