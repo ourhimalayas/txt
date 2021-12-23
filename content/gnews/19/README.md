@@ -2,24 +2,53 @@
 ---
 
 
-## 【中日财经爆】欧盟将对中共国铝箔征收额外关税
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1782184/)
+## 土耳其的加密货币交易在里拉困境中创新高
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1782194/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1203.png)[图片来源](https://www.epochtimes.com/gb/21/12/22/n13453499.htm)
-欧盟官方期刊周三（12月22日）表示，欧盟将对来自中共国的铝箔征收额外关税，此前欧盟执委会发现中共国的生产商受益于过度和不公平的补贴。
+作者：纽约香草山农场 – 四季
 
-将于周四生效的针对特定薄铝转换箔产品的关税从8.6%到18.2%不等，建立在现行6.0%到28.5%的反倾销税之上。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-欧盟执委会在收到欧盟生产商的投诉后进行了调查，表示中共国已将铝箔确定为一个关键行业，并对市场进行了干预，以促进该行业的发展。国家补贴的形式包括优惠融资、出口信贷保险、补助、免税以及政府以低于市场价格提供土地使用权和电力等。
 
-调查显示，中共国在欧盟铝箔市场的份额从2017年的18%增长到2019年的24%，平均价格在下降。从其他国家进口的产品有限。投诉来自六家欧盟生产商，包括意大利的CarcanoAntonio、卢森堡的Eurofoil和德国的HydroAluminiumRolledProducts等。
 
-消息来源：[欧盟周四起将对中国铝箔征收额外关税理由是享受不公平补贴](https://cn.reuters.com/article/eu-china-aluminium-foil-tariff-1222-idCNKBS2J10SE?il=0)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
+
+据[OAN网站](https://www.oann.com/exclusive-turkeys-cryptocurrency-trades-top-1-million-a-day-amid-lira-woes/)援引路透社12月21日报道，随着土耳其货币跌至一系列创纪录低点，土耳其的加密货币交易数量已经回升至每天100万以上。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3-52.jpg)2021年9月27日，在土耳其安卡拉的一个货币兑换处，一名货币兑换商正在清点土耳其里拉纸币。（REUTERS/Cagla Gurdogan/File Photo）
+
+对土耳其经济政策的担忧使里拉自9月以来暴跌了近40%，这促使土耳其人寻找存放其储蓄之处，以应对通货膨胀飙升的影响。
+
+对土耳其人来说，将里拉兑换成美元或黄金是很常见的，因为自2008年以来，土耳其货币已经损失了90%的价值。但随着政府希望增加这些做法的难度，以及今年加密货币价格的大幅上涨，加密货币交易已获得广泛青睐。
+
+根据区块链分析公司Chainalysis和Kaiko的数据，每天100万的门槛在今年早些时候首次被超越。数据还显示，自2019年以来，比特币和Tether — 一种旨在保持稳定价值的 “稳定币”，被广泛用于加密货币交易，在里拉交易中最受欢迎。
+
+土耳其副财政部长在9月表示，将出台有关加密货币交易这一新兴资产类别的法规。土耳其中央银行早在4月已经禁止了加密货币用于传统类型的购买，理由是 “不可弥补的 ”损害和交易风险。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月.png)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

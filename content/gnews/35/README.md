@@ -2,25 +2,27 @@
 ---
 
 
-## 波士顿宣布新的疫苗要求
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1782013/)
+## 米勒先生通过演讲成功向欧洲议员推广盖特
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1782014/)
 
-作者：纽约香草山福音部 –lilian89
+作者：东京樱花团—在远方
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月20日，波士顿市长发布声明表示，该市即将对室内餐饮、健身和娱乐场所实行新的中共病毒疫苗要求，同时政府将加强对该市一万八千名工人的疫苗接种任务。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-23-上午7.45.39.png)
-有关报道显示，该项新规定要求，自2022年1月15日起，该市相关场所12岁以上的顾客将被要求出示中共病毒疫苗的接种证明。而自明年3月1日起，这项规则将延伸至5岁以上的儿童群体。
+12月19日，社交媒体平台盖特的CEO杰森-米勒先生在接受英国媒体的采访时表示，上周，他在法国向欧洲议会成员发表了一场非常成功的演讲，同时，他还向这些议会成员推广了盖特平台。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-23-上午7.45.49.png)
+米勒先生谈到，在他逗留法国的期间里，许多法国的保守派领导人都加入了盖特平台。此外，这些领导人还邀请米勒先生加入欧盟驻欧洲委员会斯特拉斯堡代表团，并就“自由言论、平民主义和永不屈服于全球主义者”这一主题发表演讲。米勒先生提到，演讲现场有来自10个国家的将近50名欧洲议会成员。
 
-此外，该市还要求其一万八千名政府雇员在截止日期前完成中共病毒疫苗的接种。为此，波士顿政府取消了雇员可以选择定期接受病毒检测而不需要接种疫苗的规定。该规定还明确，所有未接种中共病毒疫苗的雇员将失去现有的工作机会。
+米勒先生表示，盖特现在已经拥有了超过三百万的用户。他还提别提及，在盖特总体的用户增长排行榜上，英国用户的增长幅度大概处于七八名的位置，目前大约有十五万零两百名的英国用户正在使用盖特。
 
-对此，波士顿反对强制疫苗令的团体在一份声明中强调，政府没有权利中止、削减或取消美国公民和工人的权利，相反的，每个人都应该有权利选择是否接种中共病毒疫苗。而共和党州长候选人杰夫-迪尔也发表评论称，这些政策明显地侵犯了所有在该市居住、工作或旅行的人的公民权利，这将使波士顿更难从大流行病中恢复。
+米勒先生强调称，欧洲有很多人相信言论自由，他们坚决反对各国政府目前因中共病毒疫情而实行封城措施，他们也很清楚，政府采取的中共病毒疫苗强制接种政策会毁掉一切。
 
-参考链接：[Boston Implementing Proof of Vaccination Requirement for Restaurants, Other Indoor Venues](https://www.nbcboston.com/news/local/mayor-wu-to-update-bostons-covid-response-monday/2594963/)
+参考链接：
+1）[https://gettr.com/post/pkafxz070c](https://gettr.com/post/pkafxz070c)
+2）[About the EU Delegation in Strasbourg](https://eeas.europa.eu/delegations/council-europe_en/1836/About%20the%20EU%20Delegation%20in%20Strasbourg)
 
 ![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
 总编：Jack Li文阳
-编辑：Kathy文艺
+编辑：诺雅
 校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
