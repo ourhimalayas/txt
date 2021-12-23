@@ -2,27 +2,24 @@
 ---
 
 
-## COVID-19 最新情报｜“后悔接种疫苗”压倒性当选荷兰2021年年度词汇
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1782425/)
+## 世卫组织总干事说全面施打加强针恐延长疫情时间
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1782428/)
 
-**撰文｜疫情关注组 / 发布时间｜23/12/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup）](https://gettr.com/user/mightygroup%EF%BC%89)**
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-119.png)
+图片来源： news.un.org
 
-最近几周，荷兰各大社交媒体，广播电视开始讨论2021年的年度词汇提名，并呼吁市民积极投票。时间从2021 年 12 月 7 日开始， 一直持续到 20 日届满，期间，市民可以从15个提名词汇中，投票选出最具代表性的年度词汇。
+美联社12月22日报道，世卫组织领导人周三警告说一些富裕国家全面施打加强针项目恐致全球抗击中共病毒的抗疫时间延长，认为“没有一个国家能通过打加强针以脱离疫情。”
 
-官方于21日宣布结果，“prikspijt”一词凭藉82.2%的支持率，压倒性当选为荷兰2021 年的年度词汇收录在荷兰词典“Van Dale”中，它的定义是：一个人很后悔接种了某种传染病的疫苗。
+世卫组织总干事谭德赛说目前主要的目标应该是减少死亡，以帮助所有国家达到最低注射疫苗人数目标，他说：“ 绝大多数住院者和死亡者是未注射疫苗者，而不是未注射加强针的人。”
 
+谭德赛说今年疫苗已经挽救了很多生命，2021年已有350万人因中共病毒丧生，随着新变种奥米克戎的广泛传播，他说：“我们所有人都必须非常谨慎。”
 
+世卫组织主席曾要求暂停在健康成年人中施打加强针，以使全球疫苗接种的状态达到平衡，他在周三的网络会议上说目前的疫苗接种中有20%是接种加强针或者更多的加强针。
 
-> Als je op de IC ligt omdat je géén prik hebt genomen. Dan heb je pas [#prikspijt](https://twitter.com/hashtag/prikspijt?src=hash&amp;ref_src=twsrc%5Etfw). [https://t.co/oVOHBhEcwX](https://t.co/oVOHBhEcwX)
-> — Hugo de Jonge (@hugodejonge) [December 21, 2021](https://twitter.com/hugodejonge/status/1473198731935862791?ref_src=twsrc%5Etfw)
+谭德塞说各国应该共同合作，使疫苗接种达到同步，他说：“ 除非在全球范围内广泛的疫苗接种，否则我不认为我们会终止疫情，我们应该理性执行疫苗接种，希望2022年疫情能结束。”
 
-
-
-由于该年度词汇明显反应出荷兰人对于接种完 COVID-19 疫苗后的普遍心态，荷兰卫生部长雨果·德荣格（Hugo de Jonge）立即作出反应，他在推特发文，表达了自己对最新年度词汇的不认同，他的评论是：“如果你因为没有打过新冠疫苗而被送入重症监护室，你才该后悔。”
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-10.jpg)
-来源｜[Van Dale](https://www.vandale.nl/) / [Twitter](https://twitter.com/hugodejonge/status/1473198731935862791)
+##### **新闻来源： **[WHO chief: Blanket booster drives risk prolonging pandemic](https://apnews.com/article/coronavirus-pandemic-business-health-pandemics-united-nations-cc2391245c7fa4833805d2af0513738e)
 
  
 
