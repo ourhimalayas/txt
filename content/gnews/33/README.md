@@ -2,54 +2,67 @@
 ---
 
 
-## 西澳首将疫苗加强针列为强制要求
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1782372/)
+## 明年5月份以前 这个世界会相当动荡
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1782393/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-281.png)图片来源：ERROL PARKER
-翻译：月映万川
-编辑：Mttfly
+[https://gtv.org/video/id=61c34a4f43ccb726a089d0e7](https://gtv.org/video/id=61c34a4f43ccb726a089d0e7)
 
-要求西澳大利亚州州长马克·麦高恩（Mark McGowan）宣布，该州被要求强制接种新冠疫苗的工种现在必须要接种疫苗加强针。
+**郭文贵
+Miles Guo**
 
-西澳州是世界上第一个强制要求接种疫苗加强针的司法管辖区，受影响的行业将涵盖包括老年护理、卫生、检疫人员、采矿和在定义为必要工种工作的工人，等行业。
+世界上我觉得可能会出大事，严格讲，就是明年5月份以前
+I think something big could happen in the world, strictly speaking, before next May
+这个世界相当的动荡，习太阳，真要是好好思考思考
+The world is quite in turmoil, Xi Sun, he really need think about it
 
-州长说，他还希望最终能将这一规定扩大到任何想要参加社会活动的人，比如体育比赛和音乐会等。
+包括最近听说军队大调整，这种大调整就是不自信嘛，不相信嘛
+Including I recently heard about a major adjustment in the army, this kind of major adjustment means that Xi are not confident and not believe it
 
-麦高恩先生说，改变西澳州疫苗接种计划的原因是奥密克戎毒株在其他州的传播开始出现令人不安的情况。
+被调整都很有数，因为你不相信我嘛
+Those who have been adjusted are all mentally well-informed, because Xi don’t trust me
 
-“根据疫苗强制令，工人现在将被要求在符合条件的一个月内接受第三针，”麦高恩在星期三告诉记者。
+公检法的大调整，公安部的部长的调整， 政法委的整个的没落
+The major adjustments of the Public Security Bureau, the adjustment of the Minister of the Ministry of Public Security, the declining of the entire Politics and Law Commission
 
-“强烈要求每个人在符合条件时接受第三针，即使他们不在强制的范围内。”
+中纪委到处最近抓金融机构和政法委的人
+Recently, the Central Commission for Discipline Inspection has been arresting people from financial institutions and political and legal committees everywhere
 
-目前，人们可以在最近一次疫苗接种的五个月后符合接种加强针的注射条件，但澳大利亚免疫技术咨询小组将很快决定这一时限是否改变。
+都说明了为冬奥会在做预防性的准备
+All show that preventive preparations are being made for the Winter Olympics game
 
-州长说，他希望这个时间间隔尽可能缩短。
+刚刚河北又抓了20多个人
+Just now, Hebei has arrested more than 20 people
 
-麦高恩先生还宣布，西澳州将从12月26日凌晨12点01分起与澳洲其它地区开始硬封锁。
+你看河北政法委会抓多少人，你会看到血流成河
+look at the number of people arrested by the Hebei Political and Legal Committee, you will see the blood river
 
-在西澳的边境管制名单上，北领地和塔斯马尼亚州也将从“低风险”变为“中风险”，这意味着来自这两州的旅行者将需要豁免进入西澳并必须隔离14天。
+所以说冬奥会绝对是上天送给爆料革命的大礼
+Therefore, the Winter Olympics game is definitely a gift from God to the whistleblower movement
 
-这两州将与昆士兰州、南澳大利亚州和澳大利亚首都地区并列为中等风险地区，而新南威尔士州和维多利亚州将继续保持“极端风险”地区。
+无论从国际影响、知名度，在党内引起的
+Regardless of international influence, popularity, or all the shock cause within the Communist Party
 
-“这些决定并非轻而易举，”麦高恩先生说。
+所有的震撼和未来大家可以预期，任何我们今天讨论发生一件
+and the future you can expect, anything we discuss today will happen
 
-“没有人想阻止家庭在节日期间返回西澳团聚。没有人。”
+都是以共灭共、以美灭共，咱们一个重大的进展
+It’s all about taking down the Communist Party with CCP and with the United States, and we are making a major progress
 
-“但是，鉴于澳大利亚其他地区的危机不断升级，并根据最新的健康建议，我们已经采取了这一步骤，以保护西澳大利亚人，并阻止病毒在我们社区进行传播。“
+Date: 12/21/2021
+原视频标题: 明年5月份以前 这个世界会相当动荡
+The world will be quite turmoil before May next year
+原视频日期：2021/12/19
+原视频链接：[https://gettr.com/post/pk5lmv17ff](https://gettr.com/post/pk5lmv17ff)
+任务编号：KC360（3297）
+视频时间段 : 0:00-1:29
+中听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – Kevin37L
 
-西澳州州长补充说，西澳州仍然有望在2月5日重新开放其边境，“除非发生灾难”。
-
-**原文链接：**[Covid-19 vaccine mandate in WA now includes a third dose](https://www.news.com.au/national/western-australia/covid19-vaccine-mandate-in-wa-now-includes-a-third-dose/news-story/752c67452adc76f7242228edb500a12e)
-
-**发布：**去中心化Math
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+00：10 相当的动荡 改为 相当地动荡
 
  
 

@@ -2,67 +2,55 @@
 ---
 
 
-## 明年5月份以前 这个世界会相当动荡
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1782393/)
+## 北美国家冰球联盟因球员新冠疫情反弹，将缺席北京冬奥会
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1782417/)
 
-[https://gtv.org/video/id=61c34a4f43ccb726a089d0e7](https://gtv.org/video/id=61c34a4f43ccb726a089d0e7)
+![NHL will withdraw from the Winter Olympics after the regular-season schedule was disrupted by coronavirus outbreaks](https://i.dailymail.co.uk/1s/2021/12/22/01/52085937-10334515-image-a-37_1640136140578.jpg)*在常规赛赛程因冠状病毒爆发而中断后，NHL 将退出冬奥会*
+英国《每日邮报》12月22日报道，据周二的多个报道，在50场国家冰球联盟（National Hockey League，简称NHL，其他翻译：北美冰联）比赛因新冠病毒问题被推迟后，国家冰球联盟的球员将不会参加2月在北京的冬奥会。
+《娱乐与体育节目电视网》、《纽约时报》、《华盛顿邮报》、《今日美国》等报纸援引未具名消息人士的话称，国家冰球联盟及其联盟球员协会已达成协议，不派球员前往中共国。
+预计周三将正式宣布。
+在国家冰球联盟和美国各地的新冠病毒病例激增之后，随着具有高度传染性的Omicron变异病毒的流行，国家冰球联盟比赛预计要到12月27日才能恢复。
+如果没有国家冰球联盟的精英球星的参与，奥运国家队可能会类似于2018年平昌冬奥会，当时小联盟和当时退役的球员填补了空缺，来自俄罗斯的冰球队夺得了金牌。
+国家冰球联盟和球员工会本已同意派球员参加2022年和2026年冬季奥运会，除非联赛赛季受到新冠病毒延期的影响。
+随着周二华盛顿与费城的比赛因客队的疫情爆发而推迟，国家冰球联盟现在被迫推迟本赛季总共50场比赛。
+人们担心国家冰球联盟将无法完成一个完整的82场比赛赛季，同时还要在2月为奥运会休息两周多的时间。
+国家冰球联盟的底线与联盟息息相关，联盟和球员没有从冬季奥运会的比赛中直接获得收入。
+在北京奥运会期间呆在家里，可以腾出两周的时间来重新安排比赛，并为大多数球员提供一些休息。
+虽然国家冰球联盟和联盟球员工会去年同意作为集体谈判协议延期的一部分参加奥运会，但去北京的协议是以大流行病状况不恶化为条件的。
+赛程的实质性中断使得联盟不得不退出，而在北美蔓延的新冠变异毒株delta和 omicron不仅导致比赛被推迟，而且让一些球员对去中共国犹豫不决。
+结果是，奥运会男子冰球比赛将连续第二次在没有国家冰球联盟球员的情况下进行。
+匹兹堡队长西德尼·克罗斯比 (Sidney Crosby) 说：“作为一名运动员，你一生中获得的机会和经历并不多，而且可能只有一次。”他在2010年和2014年与加拿大一起赢得了奥运会金牌。 ” “它可能恰好落在你的窗户上，如果它恰好没有成功，那就很不幸了”。
+除非北京冬奥会像东京奥运会一样推迟一年，否则包括美国奥斯顿·马修斯（Auston Matthews）、加拿大人康纳·麦克戴维（Connor McDavid）和内森·麦金农（Nathan MacKinnon）、德国人莱昂·德莱赛特（Leon Draisaitl）和瑞典人维克多·赫德曼（Victor Hedman）在内的一代巨星将需要等到2026年才能首次参加奥运会男子冰球比赛。
+“这是你期待已久的事情”赫德曼说。“如果我们不能去，那会心疼一段日子。”
+计划在周三和周四进行的比赛被取消了，在原定的三天圣诞周末休息时间之前，该计划被调整为让球员在周日返回工作。
+球队将在周三至周六休息，周日返回进行测试，进入团队场地前需要进行阴性测试。
+联盟的下一场比赛将在12月27日星期一举行。
+周日，国家冰球联盟宣布所有涉及美国和加拿大俱乐部跨境旅行的比赛都将取消。到周一，已经有9支球队关闭了运营，进入休息状态。
+一位联盟发言人周日表示：“国家冰球联盟及其联盟工会正在积极讨论球员参加2022年北京冬奥会的事宜，预计将在未来几天内宣布最终决定。”
+几位国家冰球联盟球员已经表达了对参加的犹豫，其中包括维加斯守门员罗宾·莱纳 (Robin Lehner)，他将自己的名字排除在代表瑞典的考虑之外。莱纳引用了心理健康原因，指出在比赛期间测试呈阳性的运动员可能需要长时间的隔离。
+“我很失望，这对我来说是一个艰难的决定，因为这是一生一次的机会。现实是，人们所说的关于它将如何发生的事情对我的心理健康并不理想，”莱纳在文中写道。
+埃德蒙顿船长康纳·麦克戴维 (Connor McDavid) 提到潜在的五周隔离要求是“令人不安的”。
+“我仍然是一个想要参加奥运会的人，”麦克戴维说。“但我们也想确保它对每个人都是安全的。为所有运动员，而不仅仅是冰球运动员。”匹兹堡主帅迈克·沙利文(Mike Sullivan)将失去他作为美国国家队主教练的第一次机会。周二早些时候，他一直对参加国家冰球联盟抱有希望。“我们都是人。情绪是它的一部分。我希望我们都有机会参加”沙利文说，他曾在2006年奥运会上担任彼得·拉维莱特(Peter Laviolette)工作人员的助理教练。“能够代表你们的国家参加奥运会是一种难以置信的荣誉，老实说，这是一生的荣誉。所以我知道我和很多把他们国家的球服自豪和喜悦地套在头上的人没有什么不同。”
 
-**郭文贵
-Miles Guo**
+简评：北美国家冰球联盟是全世界最高层级的职业冰球比赛联盟，也是北美四大职业运动之一，该联盟球员不仅包括美国也包括加拿大甚至欧洲知名球员。该联盟退出北京冬奥会意味着参加奥运冰球比赛的明星没人去了，只剩下二三线冰球球星玩，比赛水准及观赏性将直线下降。
+正如北美国家冰球联盟的球员顾虑的一样：前往中共国比赛如果检测成阳性，隔离时间那么长除了直接影响球员的情绪甚至因生病命都可能没。所以才有该联盟里面那么多球员明星纷纷找理由不去参加冬奥会。同时也直接打脸中共所谓的冬奥会的“病毒清零运动”实际就是谎言不值得信任。通过北美国家冰球联盟退出北京冬奥会，这如同星星之火一样，我们相信接下来将有更多体育运动员勇敢的站出来，抵制北京冬奥会！！
 
-世界上我觉得可能会出大事，严格讲，就是明年5月份以前
-I think something big could happen in the world, strictly speaking, before next May
-这个世界相当的动荡，习太阳，真要是好好思考思考
-The world is quite in turmoil, Xi Sun, he really need think about it
+新闻链接：[https://www.dailymail.co.uk/news/article-10334515/NHL-players-not-Winter-Olympics-China-league-stops-play-year.html](https://www.dailymail.co.uk/news/article-10334515/NHL-players-not-Winter-Olympics-China-league-stops-play-year.html)
 
-包括最近听说军队大调整，这种大调整就是不自信嘛，不相信嘛
-Including I recently heard about a major adjustment in the army, this kind of major adjustment means that Xi are not confident and not believe it
+翻译/简评：Brianchow
 
-被调整都很有数，因为你不相信我嘛
-Those who have been adjusted are all mentally well-informed, because Xi don’t trust me
+PR：clau
 
-公检法的大调整，公安部的部长的调整， 政法委的整个的没落
-The major adjustments of the Public Security Bureau, the adjustment of the Minister of the Ministry of Public Security, the declining of the entire Politics and Law Commission
+* * *
 
-中纪委到处最近抓金融机构和政法委的人
-Recently, the Central Commission for Discipline Inspection has been arresting people from financial institutions and political and legal committees everywhere
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-都说明了为冬奥会在做预防性的准备
-All show that preventive preparations are being made for the Winter Olympics game
 
-刚刚河北又抓了20多个人
-Just now, Hebei has arrested more than 20 people
+编辑：【英国伦敦喜庄园编辑部】
 
-你看河北政法委会抓多少人，你会看到血流成河
-look at the number of people arrested by the Hebei Political and Legal Committee, you will see the blood river
-
-所以说冬奥会绝对是上天送给爆料革命的大礼
-Therefore, the Winter Olympics game is definitely a gift from God to the whistleblower movement
-
-无论从国际影响、知名度，在党内引起的
-Regardless of international influence, popularity, or all the shock cause within the Communist Party
-
-所有的震撼和未来大家可以预期，任何我们今天讨论发生一件
-and the future you can expect, anything we discuss today will happen
-
-都是以共灭共、以美灭共，咱们一个重大的进展
-It’s all about taking down the Communist Party with CCP and with the United States, and we are making a major progress
-
-Date: 12/21/2021
-原视频标题: 明年5月份以前 这个世界会相当动荡
-The world will be quite turmoil before May next year
-原视频日期：2021/12/19
-原视频链接：[https://gettr.com/post/pk5lmv17ff](https://gettr.com/post/pk5lmv17ff)
-任务编号：KC360（3297）
-视频时间段 : 0:00-1:29
-中听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 ：洛杉矶盘古农场 – Kevin37L
-
-00：10 相当的动荡 改为 相当地动荡
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

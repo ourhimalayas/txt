@@ -2,36 +2,24 @@
 ---
 
 
-## 米勒先生通过演讲成功向欧洲议员推广盖特
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1782014/)
+## 【中日财经爆】欧盟将对中共国铝箔征收额外关税
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1782184/)
 
-作者：东京樱花团—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月19日，社交媒体平台盖特的CEO杰森-米勒先生在接受英国媒体的采访时表示，上周，他在法国向欧洲议会成员发表了一场非常成功的演讲，同时，他还向这些议会成员推广了盖特平台。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-23-上午7.45.49.png)
-米勒先生谈到，在他逗留法国的期间里，许多法国的保守派领导人都加入了盖特平台。此外，这些领导人还邀请米勒先生加入欧盟驻欧洲委员会斯特拉斯堡代表团，并就“自由言论、平民主义和永不屈服于全球主义者”这一主题发表演讲。米勒先生提到，演讲现场有来自10个国家的将近50名欧洲议会成员。
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1203.png)[图片来源](https://www.epochtimes.com/gb/21/12/22/n13453499.htm)
+欧盟官方期刊周三（12月22日）表示，欧盟将对来自中共国的铝箔征收额外关税，此前欧盟执委会发现中共国的生产商受益于过度和不公平的补贴。
 
-米勒先生表示，盖特现在已经拥有了超过三百万的用户。他还提别提及，在盖特总体的用户增长排行榜上，英国用户的增长幅度大概处于七八名的位置，目前大约有十五万零两百名的英国用户正在使用盖特。
+将于周四生效的针对特定薄铝转换箔产品的关税从8.6%到18.2%不等，建立在现行6.0%到28.5%的反倾销税之上。
 
-米勒先生强调称，欧洲有很多人相信言论自由，他们坚决反对各国政府目前因中共病毒疫情而实行封城措施，他们也很清楚，政府采取的中共病毒疫苗强制接种政策会毁掉一切。
+欧盟执委会在收到欧盟生产商的投诉后进行了调查，表示中共国已将铝箔确定为一个关键行业，并对市场进行了干预，以促进该行业的发展。国家补贴的形式包括优惠融资、出口信贷保险、补助、免税以及政府以低于市场价格提供土地使用权和电力等。
 
-参考链接：
-1）[https://gettr.com/post/pkafxz070c](https://gettr.com/post/pkafxz070c)
-2）[About the EU Delegation in Strasbourg](https://eeas.europa.eu/delegations/council-europe_en/1836/About%20the%20EU%20Delegation%20in%20Strasbourg)
+调查显示，中共国在欧盟铝箔市场的份额从2017年的18%增长到2019年的24%，平均价格在下降。从其他国家进口的产品有限。投诉来自六家欧盟生产商，包括意大利的CarcanoAntonio、卢森堡的Eurofoil和德国的HydroAluminiumRolledProducts等。
 
-![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+消息来源：[欧盟周四起将对中国铝箔征收额外关税理由是享受不公平补贴](https://cn.reuters.com/article/eu-china-aluminium-foil-tariff-1222-idCNKBS2J10SE?il=0)
 
-总编：Jack Li文阳
-编辑：诺雅
-校正/发稿：呼吸的雾霾（文小呼吸）
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

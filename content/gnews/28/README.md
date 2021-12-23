@@ -2,27 +2,28 @@
 ---
 
 
-## COVID-19 最新情报｜“后悔接种疫苗”压倒性当选荷兰2021年年度词汇
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1782425/)
+## 飞行员接种非FDA批准的新冠疫苗后被迫飞行, FAA遭到飞行员起诉
+` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1782435/)
 
-**撰文｜疫情关注组 / 发布时间｜23/12/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup）](https://gettr.com/user/mightygroup%EF%BC%89)**
+他们无视并违反了他们自己的联邦航空条例，即联邦法规第14篇第6513节及其指南，其中禁止对使用非FDA批准产品的飞行员进行医学评估。
 
-最近几周，荷兰各大社交媒体，广播电视开始讨论2021年的年度词汇提名，并呼吁市民积极投票。时间从2021 年 12 月 7 日开始， 一直持续到 20 日届满，期间，市民可以从15个提名词汇中，投票选出最具代表性的年度词汇。
+如你所知，现在美国FDA没有批准COVID疫苗被商业使用，这意味着现在每一个在职飞行员，如果在美国接种了COVID-19疫苗，那么他们飞行时体内的产品未获得FDA的批准。
 
-官方于21日宣布结果，“prikspijt”一词凭藉82.2%的支持率，压倒性当选为荷兰2021 年的年度词汇收录在荷兰词典“Van Dale”中，它的定义是：一个人很后悔接种了某种传染病的疫苗。
+这些对飞行员不发（证书）就不飞行的规定和指南明确指出，我引用了’不发不飞’，航空体检人员不应该向使用这些药物或产品的人颁发医疗证书，非FDA授权，或FDA授权不足12个月，FAA通常要求新药上市后至少有一年的经验，才能考虑用于航空医学认证目的。
 
+这个观察期给不常见的、但重大的航空医学不良反应提供了体现的时间。这一禁令的理由怎么强调都不为过，事实上，在我向你引用的联邦规则中刚刚划定，我们不能让这些问题发生在工作中的飞行员身上，因为这不仅仅是对飞行员本身构成风险。
 
+它对每个美国人构成了风险，数以百计的美国人和他们一起乘坐商业飞机。在这一点上，联邦航空局对此视而不见，不仅仅是对这些飞行员使用新批准的产品的事实视而不见，他们应该等待一年才这样做，但他们现在使用完全未经批准的FDA产品，对不起，是FAA的产品（疫苗）。
 
-> Als je op de IC ligt omdat je géén prik hebt genomen. Dan heb je pas [#prikspijt](https://twitter.com/hashtag/prikspijt?src=hash&amp;ref_src=twsrc%5Etfw). [https://t.co/oVOHBhEcwX](https://t.co/oVOHBhEcwX)
-> — Hugo de Jonge (@hugodejonge) [December 21, 2021](https://twitter.com/hugodejonge/status/1473198731935862791?ref_src=twsrc%5Etfw)
+更糟糕的是，联邦航空局允许某些航空公司强制使用这些疫苗，这不仅违反了我刚才所说的规定，也违反了联邦黑信法《紧急使用授权法》，该法禁止在产品仍处于试验阶段时强制使用。
 
+素材：坐看云起时
 
+翻译：Kent
 
-由于该年度词汇明显反应出荷兰人对于接种完 COVID-19 疫苗后的普遍心态，荷兰卫生部长雨果·德荣格（Hugo de Jonge）立即作出反应，他在推特发文，表达了自己对最新年度词汇的不认同，他的评论是：“如果你因为没有打过新冠疫苗而被送入重症监护室，你才该后悔。”
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-10.jpg)
-来源｜[Van Dale](https://www.vandale.nl/) / [Twitter](https://twitter.com/hugodejonge/status/1473198731935862791)
+字幕：文所未闻
+
+发布：风云小哥
 
  
 
