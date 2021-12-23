@@ -2,36 +2,45 @@
 ---
 
 
-## CDC撤回对PCR测试的支持
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1784543/)
+## 两名护士谈论新冠大流行、患者对疫苗的反应
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1784602/)
 
-**评论：经过20个月的谎言，CDC再也无法掩饰其使用COVID-19 PCR测试是假的“科学”，但却制造了恐惧**
+作者：Tamara Ugolini
+翻译：Himasally
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-289.png)
+仅仅一年前还曾被誉为前线英雄的护士现在因为个人医疗选择而正在失去赚取收入的能力。对于许多采取观望态度的人来说，这是看到新冠注射剂引起的不良反应的直接结果。
 
-**据《美国前线医生网站》 作者：Yudi Sherman，2021年12月13日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/a7cfh-gc2b2-11.jpg)**图片源自美国前线医生网站**
-美国疾病控制和预防中心（CDC）将在今年年底前不再承认PCR测试是诊断COVID-19的有效方法。 CDC在其网站透露，它将撤销对食品和药物管理局（FDA）提出的“给予检测SARS-CoV-2的PCR测试的紧急使用授权”的延长请求。该请求于2020年2月发出，将于2021年12月31日到期，此举表明CDC不再批准PCR测试作为COVID-19诊断的有效方法。
+在这次采访中，我与来自同一家医院的两名护士进行了交谈，以了解他们的观点，从 2020 年 3 月大流行开始，当时他们被告知要等待从未真正发生的“激增”，他们一直工作从注射开始到现在，然而却被解雇并无薪休假。
 
-PCR测试被广泛用于美国和全球的大规模检测，以检测个人体内是否存在COVID-19。疾病预防控制中心在2021年7月做出的决定，是在COVID检测的假阳性结果报告不断增加的情况下做出的。尽管无良媒体齐心协力诋毁此类报告，但假阳性测试结果的攀升率已经获得了国际关注，最明显的是来自真实案例。就在2021年12月，NBA发表声明，确认篮球明星勒布朗-詹姆斯在一次PCR测试中获得假阳性结果，这导致他与家人隔离，错过了对萨克拉门托国王队的比赛。随后，该假阳性结论与另外两次PCR测试相悖，其结果为阴性。
+他们的两个说法都强化了我们多年来一直听到的说法：医院长期人手不足，而且由于精疲力竭和无法满负荷运转，受害最深的是患者。
 
-据报道PCR测试的假阳性率至少为5%。这意味着在英国等国家，每天有超过100万人接受检测，每天约有5万人被诊断为COVID-19阳性，并因此接受严格的措施，如检疫和严格隔离，然而其根本没有被感染。澳大利亚，在400个COVID-19阳性病例被证实，迅速转变为警察国家，假阳性结果会产生巨大的影响。
+路易丝是一名 30 年的资深护士，在重症监护室工作了 20 年，并在医院工作了 23 年（由于疫苗强制要求她提前退休），最后六年是在外科门诊度过的。
 
-自去年以来，COVID测试的准确性总体上受到了质疑。 2020年11月，埃隆-马斯克宣布，他在一天内进行了四次COVID-19测试，其中两次为阳性，两次为阴性。这位世界首富用以下推文嘲讽主流媒体：“一些极其虚假的事情正在发生。今天被检测了四次COVID。两个测试结果为阴性，两个测试结果为阳性。同样的机器，同样的测试，同样的护士。”
+她告诉我，手术已经积压了，但由于缺乏训练有素的护士，手术室的容量只能达到 60% 左右。
 
-最近，澳大利亚医疗制造商Ellume公司因高假阳性率而在美国召回了220万组家用COVID测试工具。
+她的匿名同事确定，因不良反应入院的患者正在接受煤气灯治疗，并被送去接受心理评估。这些评估通常会是对焦虑或抑郁的诊断，然后对患者进行药物治疗，并将减缓他们的排斥反应。
 
-许多人在质疑CDC取消对PCR测试支持的原因。如果是由于高假阳性率，这将与媒体报道的PCR测试的高准确性相互矛盾，而且这也会让人们质疑一些国家对其公民采取严厉措施所依据的COVID-19病例数量的真实性。相反，如果CDC不关心假阳性率，并认为PCR测试是对COVID-19的准确检测器，那么人们不禁要问还有什么因素导致取消这样一种有效的检测方法。
+那些不看病、不治疗病人、坐在远离前线的舒适椅子上的医院管理人员，已经抛弃了这些合格的、准备好的、愿意继续勇敢面对前线的护士。
 
-**文章来源:**[https://americasfrontlinedoctors.org/news/post/cdc-withdraws-support-for-pcr-tests/](https://americasfrontlinedoctors.org/news/post/cdc-withdraws-support-for-pcr-tests/)
+在所谓的大流行期间，尽管护理严重短缺，这两位有原则的护士要么离开，要么被解雇。而受苦最深的是患者。
 
-翻译：洛杉矶盘古农场 – Mike Li
-校对：洛杉矶盘古农场 – Milojai
-评论：洛杉矶盘古农场 –Mike Li
-编辑：洛杉矶盘古农场 –WenXiong
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+来源：https://www.rebelnews.com/two\_nurses\_talk\_covid\_pandemic\_patient\_reactions\_to\_vaccines
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
