@@ -2,53 +2,23 @@
 ---
 
 
-## MV版Hcoin To the Moon上线第14天位列6国iTunes摇滚MV榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1783872/)
+## 八年一轮回 经济循环新旧更迭
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1784003/)
 
-12/23/2021 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线第14天位列6国iTunes摇滚MV榜榜首。
+文编：东京樱花团/樱花传媒
 
-* * *
+视频:东京樱花团/中文小视频组
 
-[【PDF 下载】Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+12月15日，郭文贵先生在GTV大直播指出：
 
-* * *
+西方经济每两个八年经历一个经济下滑周期，经济下滑把泡沫挤出来。同时带来了世界生产力和经济的重大调整，更重要的是，催生了更多新技术的诞生。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_11.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_12.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_13.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_14.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_17.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_18.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_20.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_21.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_28.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_35.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_36.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_43.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_45.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_47.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_48.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_49.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_50.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_52.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_57.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_74.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_75.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_82.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_92.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_94.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_95.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_96.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_110.jpg)
+编辑：东京樱花团/墨然
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-1.jpg)
 
 
-[【PDF 下载】Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
