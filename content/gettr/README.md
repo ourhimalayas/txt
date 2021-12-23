@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/23/2021 5:05 AM (UTC)`
+
+12/22/2021 Miles Guo: Now that the whole world is boycotting the Beijing Winter Olympics, and the CCP is determined to occupy the high grounds of media and public opinion. The release of this manipulated video by VICE at this very moment is to denounce the Whistleblowers’ Movement as a cult and to make the Whistleblowers’ Movement and the overseas Chinese to be the scapegoat for the CCP’s biological weapon - the CCP virus.<br/><br/>12/22/2021 文贵直播：全球抵制北京冬奥会，而中共已决心占领媒体舆论制高点，此时此刻VICE放出这个被剪辑、操纵过的视频，就是要把爆料革命打成邪教、让爆料革命和海外华人给病毒生化武器的罪魁祸首共产党背黑锅<br/>
+![img](https://media.gettr.com/group5/getter/2021/12/23/05/8cee30fd-4666-a74b-23ca-fbca9325d6a9/out.jpg)
+
+---
+
 `@miles 12/23/2021 4:20 AM (UTC)`
 
 12/22/2021 Miles Guo: VICE, an unscrupulous media, baselessly accuses me of being a swindler by making up lies, and it smears the New Federal State of China and the Whistleblowers’ Movement as cults. However, VICE can’t provide any evidence whatsoever! Such despicable actions of VICE are exactly the same as how the CCP responded to the sexual assault of Peng Shuai by Zhang Gaoli<br/><br/>12/22/2021 文贵直播: 无良媒体VICE编造谎言指控文贵是骗子，并污蔑新中国联邦和爆料革命是邪教，却拿不出任何证据！这种卑劣的做法和中共对待彭帅被张高丽性侵事件的手法如出一辙！<br/>
@@ -149,13 +156,6 @@ The CCP is using social media — American companies — to advance its communis
 
 12/19/2021 Miles Guo: The CCP’s police forces controlled by the Central Political and Legal Affairs Commission and Meng Jianzhu is one of the greatest factors of Xi Jinping’s insecurity; there is over 70% of chance that Xi may catch the virus and have health problems; the Winter Olympics is Xi’s nightmare and also a great gift from heaven to the Whistleblowers’ Movement!<br/><br/>12/19/2021 文贵直播：政法委、孟建柱控制的警察是习最大的不安全因素之一；习会染上病毒、身体会出问题的可能性超过七成；冬奥会是习的噩梦，也是上天送给爆料革命的大礼！<br/>
 ![img](https://media.gettr.com/group10/getter/2021/12/20/07/df201243-a549-43da-27f9-0bf654be27f0/out.jpg)
-
----
-
-`@miles 12/20/2021 7:10 AM (UTC)`
-
-12/19/2021 Miles Guo: Fearing possible assassinations and attacks, Xi Jinping has ordered the evacuation of Beijing and its surrounding cities including Beijing Daxing International Airport before the Winter Olympic Games starts; troops and anti-missile systems are being deployed in and around Beijing; the chance of army coup after the Winter Olympic Games is higher than 50%; it might start with making explosions of public facilities<br/><br/>12/19/2021 文贵直播：因为惧怕刺杀和袭击，在冬奥会开幕前，习近平已在北京及周边包括大兴机场开始清城行动，并部署了重兵和反导系统；冬奥会后出现反习兵变的几率超过50%，可能会从公共设施爆炸先着手<br/>
-![img](https://media.gettr.com/group37/getter/2021/12/20/07/30f2be06-c7fe-8380-d02c-e5f9d0bad4fd/out.jpg)
 
 ---
 
