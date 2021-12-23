@@ -2,33 +2,34 @@
 ---
 
 
-## 大料！Isobel Yeung的污蔑视频是北京欲取消中美贸易关税的阴谋
-` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/1781930/)
+## 波士顿宣布新的疫苗要求
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1782013/)
 
-新西兰伊甸农场Gnews组 财经G乐部 – 亚伦
+作者：纽约香草山福音部 –lilian89
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月20日，波士顿市长发布声明表示，该市即将对室内餐饮、健身和娱乐场所实行新的中共病毒疫苗要求，同时政府将加强对该市一万八千名工人的疫苗接种任务。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-23-上午7.45.39.png)
+有关报道显示，该项新规定要求，自2022年1月15日起，该市相关场所12岁以上的顾客将被要求出示中共病毒疫苗的接种证明。而自明年3月1日起，这项规则将延伸至5岁以上的儿童群体。
 
-近日，美国媒体Vice News播放了其记者Isobel Yeung（杨贝贝）采访郭文贵先生的视频，由于该视频严重歪曲事实，极尽污蔑而且暗藏杀机，引起众人的强烈愤慨。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image_6487327.jpg)图片来源杨贝贝本人微博
+此外，该市还要求其一万八千名政府雇员在截止日期前完成中共病毒疫苗的接种。为此，波士顿政府取消了雇员可以选择定期接受病毒检测而不需要接种疫苗的规定。该规定还明确，所有未接种中共病毒疫苗的雇员将失去现有的工作机会。
 
+对此，波士顿反对强制疫苗令的团体在一份声明中强调，政府没有权利中止、削减或取消美国公民和工人的权利，相反的，每个人都应该有权利选择是否接种中共病毒疫苗。而共和党州长候选人杰夫-迪尔也发表评论称，这些政策明显地侵犯了所有在该市居住、工作或旅行的人的公民权利，这将使波士顿更难从大流行病中恢复。
 
-郭文贵先生于12月22日GTV、Gettr大直播中第一个向全世界做出严肃回应，这次Vice媒体Isobel Yeung涉嫌接受中共大外宣操纵，背后与PAG、TPG的中共高级特务单伟健有关。虚假、捏造、嫁祸的报道是想帮助北京消除各国抵制冬奥会，最终取消中美贸易关税的一场政治宣传大行动。
+参考链接：[Boston Implementing Proof of Vaccination Requirement for Restaurants, Other Indoor Venues](https://www.nbcboston.com/news/local/mayor-wu-to-update-bostons-covid-response-monday/2594963/)
 
-就在全球抵制北京冬奥会浪潮滚滚的时候，中共要求内部保持高度统一，全面控制媒体以此充分发挥媒体颠倒黑白的威力。据说要不惜一切代价地占据在西方媒体的制高点，全面消除反对北京冬奥会的声音，并要求支持北京冬奥会的人士赶快站出来发声。
+![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-在过去的三个月和未来的三四十天里，中共通过免除他国债务的手段（政府不生产财富，都是纳税人通过劳动缴纳的税务），迫使那些欠债国家跪下来支持冬奥会。而中国的纳税人将付出几千亿美元，被迫协助中共搞一场政治冬奥会，消灭所有异议声音。
+总编：Jack Li文阳
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-就在今天直播播出之后，会有很多国家表示支持北京冬奥会，但是没有一个背后没有交易的。现在很多标榜正义反对北京冬奥会的媒体，最后也会在交易之后调转矛头。
-
-如今Isobel捏造的虚假视频报道，嫁祸栽赃美中矛盾给新中国联邦，为美国取消对中共的贸易关税提前做铺垫，而拜登政府也一定会趁机取消对中共的贸易关税。
-
-“中共不惜一切代价，要让美国拜登政府取消对中共的贸易关税，而且一定会发生，一定会发生！全世界第一人这么说。”郭文贵先生斩钉截铁地说。
-
-Vice媒体一箭双雕的采访，妄图把新中国联邦打成邪教、恐怖分子，打成中美之间、海外华人所有威胁的替罪羊，把所有中共做的恶转嫁到新中国联邦身上，给予中美政府勾兑的抓手以至于取消抵制冬奥会、顺势取消中美贸易关税。中共通过此视频想要的结果是，未来只要反对中共的都是邪教，只要反对北京冬奥会的都是暴力分子，只要反对中共新疆、西藏、香港大屠杀的都是恐怖分子。这个报道之凶险和邪恶，对爆料革命的所有人都已经产生了实质性的威胁。
-
-舍不得孩子套不着狼，这次郭文贵先生以身作则，用的生命和名誉让全世界看到中共对西方媒体渗透之严重。
-
-美国FBI一定会调查这次视频报道，就像调查梁贯军一样。接下来会有一个接一个的官司朝向凡是污蔑、嫁祸新中国联邦的人以及背后主使，维护海外华人的安全和利益。
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
