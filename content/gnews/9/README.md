@@ -2,59 +2,62 @@
 ---
 
 
-## 2021/12/22 大卫作战室直播精要
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1781958/)
+## 安大略省适逢圣诞节宣布新的新冠限制
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1782002/)
 
-**主播**：Castle｜**嘉宾**：微蓝、防木
+作者：Sheila Gunn Reid
+翻译：KK
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-286.jpg)
 
+安大略省卫生部首席医疗官基兰·摩尔今天宣布了新的封锁措施，以应对 Omicron 新冠变体，尽管南非的早期数据显示，该菌株的传播性更强，但远没有那么致命。
 
-**板块1–VICE抹黑郭先生事件**
+根据周五下午晚些时候的政府公告，新的限制旨在“减少密切接触的机会”，现在限制为 50%：
 
-1. 受众人群偏年轻化的新媒体VICE利用采访郭先生机会，意图抹黑爆料革命、让西方世界远离爆料革命。曾经“获准”在新疆报道揭露新疆问题，其本质–伪中立、伪专业、伪真实、真煽情、真欺骗、真外宣。
-
-2.VICE派出的采访记者Isobel Yeung中英混血生于1986年，曾经长期在中共墙内从事媒体新闻工作（央视、上海国际频道等），有明显中共国背景，2014年加入VICE Media拥有颜值精通中英文获得一定量的关注。在推特世界宣传彭帅事件、新疆香港事件等吸粉（在中共非致命问题上积极呼吁、中共“小骂大帮忙”模式），与滕彪等中共大外宣积极互动，在面对爆料革命和郭先生故意抹黑（对中共痛点海航、王岐山、恒大事件等视而不见，对中共致命弱点公开反对）。
-
-3.海外智库发布报告海外水军、五毛攻击最多的依次是郭文贵先生、香港事件、病毒溯源。中共“养”账号模式–最先用“花花草草”度过监控审核期，迅速用五毛增加关注度，再发力推出诋毁爆料革命的信息。
-
-**板块2–网络科技**
-
-1. 阿里云团队首先发现的Log4Shell漏洞被怀疑与中共国黑客有关。软件缺陷引发对“网络大流行病毒”的担忧。
-
-中共国黑客通过漏洞当天进行超过120万次攻击，在阿里云发现漏洞按规程处理上报到美国Apache软件基金会之后，中共国工信部暂停与阿里云网络安全威胁和信息共享平台的合作伙伴关系。中共经典“此地无银三百两”模式。
-
-2.Facebook和Twitter出售用户数据信息盈利，Gettr绝不出卖用户数据信息。
-
-**板块3–社会文化**
-
-1.哈佛大学教授查尔斯利伯因隐瞒与中共国的关系被定罪。检方称他与武汉理工大学签署每月数万美元的生活费的合同。
-
-教授具有化学、生物化学背景，武汉理工大学与P2实验室有交流，中共擅长用钱渗透美国学术界扩展其邪恶目的。
-
-2.中共国赴美留学生从2018年50万降至2021年40万，中共辩称由于美国排华、疫情持续恶化导致留学生人数降低，实际美国只剔除有中共高官亲属或解放军军事院校背景大概500名，真正原因是中共国限制护照办理奉行“非必要不出国门”政策。
-
-**大卫作战室每周一到周六直播：英国时间12点；美东早7点；盘古19点.**
-
-- [欢迎关注GTV-大卫作战室](https://gtv.org/user/5e86008377d0e42087e2a56d#home)
-- [欢迎关注YouTube-大卫作战室](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
-- [欢迎关注YouTube-大卫作战室 备用直播号](https://www.youtube.com/channel/UCSjAwTM1autpHTLVihdJHHg)
-- [欢迎关注GETTR-大卫作战室](https://gettr.com/user/davidswarroom)
-
-[![](https://express.adobe.com/page/QfHbESQScnvX7/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)](https://express.adobe.com/page/QfHbESQScnvX7/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)
-*听写：call me uncle | 校对：乐禧禧 | Page：我是球大哥*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- 餐厅和酒吧
+- 脱衣舞俱乐部
+- 个人护理服务
+- 体能训练师
+- 零售商和购物中心
+- 用于体育和健身活动的设施区域，包括健身房
+- 室内游乐设施
+- 室内会所
+- 导游服务
+- 摄影工作室
+- 码头和划船俱乐部
 
 
-编辑：【英国伦敦喜庄园编辑部】
+然而，容量限制不适用于用于宗教服务、葬礼或婚礼的营业场所，但适用的仪式必须施加掩蔽、距离和其他限制。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+摩尔证明了新冠的致命性和准时性，其明显的在晚上 11 点 05 分进行攻击。还谴责餐厅、会议和活动场所以及脱衣舞俱乐部将需要在晚上 11 点关闭，但允许外卖活动继续进行。
 
+晚上 10 点后酒类销售将受到限制，模仿《Footloose》中的小镇，这不是一部纪录片，但看起来更像是每天都有安大略省酒吧的顾客将被要求保持坐姿，除工人或表演者外，不允许跳舞。 桌子仅限于 10 位顾客。
 
+溜冰场的啤酒和热狗也不在菜单上。不允许在体育赛事、音乐会、剧院、电影院、赌场、游戏场所、赛马场、赛车场和其他场所携带食物和饮料。
+
+圣诞大餐也受到限制，所以即使供应链问题允许您找到一只大火鸡，也不要费心购买。室内非正式社交聚会限制减少到 10 人，室外限制减少到 25 人。
+
+所有新限制将于周日凌晨 12 点 01 分生效。仅两天后，福特表示，这将使企业有时间进行调整。
+
+安大略省的疫苗护照系统也将保留。
+
+来源：https://www.rebelnews.com/ontario\_announces\_new\_covid\_restrictions\_just\_in\_time\_for\_christmas
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

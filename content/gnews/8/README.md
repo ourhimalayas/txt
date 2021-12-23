@@ -2,30 +2,34 @@
 ---
 
 
-## 彭丽媛的情人原来是他
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1781962/)
+## 波士顿宣布新的疫苗要求
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1782013/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/aif0y-uzduc.jpg)
-**彭丽媛是习近平的第二任妻子，她与习的媒人也是她的公公习仲勋。 1983年6月朝鲜前领导人金正日第一次访华，时任中共政治局委员习仲勋全程接待。彭丽媛在接待会时用中朝双语演唱了朝鲜家喻户晓的歌曲《卖花姑娘》而被习仲勋看中并介绍给习近平，习近平彼时与前妻发生婚变被抛弃。**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/amq6p-x6e25-6.jpg)（图片来源：亚洲日报）
-被习仲勋相中后，彭丽媛的歌唱事业扶摇直上，1984年从济南军区政治部前卫歌舞团调入总政歌舞团，师从金铁霖。金铁霖是中共党内歌唱界的泰斗，李谷一，宋祖英，彭丽媛，张也，阎维文等均是他门下弟子。 1987年，彭丽媛与习近平结婚。 1989年六四天安门事件，共产党血腥镇压学生抗议，彭丽媛身着军装、手持麦克风在天安门广场为持枪及戴头盔的戒严部队献唱。
+作者：纽约香草山福音部 –lilian89
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月20日，波士顿市长发布声明表示，该市即将对室内餐饮、健身和娱乐场所实行新的中共病毒疫苗要求，同时政府将加强对该市一万八千名工人的疫苗接种任务。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-23-上午7.45.39.png)
+有关报道显示，该项新规定要求，自2022年1月15日起，该市相关场所12岁以上的顾客将被要求出示中共病毒疫苗的接种证明。而自明年3月1日起，这项规则将延伸至5岁以上的儿童群体。
 
-阎维文于1979年从山西军区歌舞团进入总政歌舞团，他既是彭丽媛的师兄也是彭的战友。阎维文和彭丽媛是总政歌舞团的主力合唱歌手组合，演绎了众多的军旅歌曲，如《小白杨》等。 “小白杨”不仅穿了绿军装，也绿了习近平。郭文贵先生在2018年4月6日的YOUTUBE直播中爆出1998年-2000年之间，阎维文和彭丽媛在香格里拉酒店开房被北京公安局抓获。阎维文与他的妻子刘卫星于1982年结婚，婚姻状况很稳定。阎维文这个有妇之夫和彭丽媛这个有妇之夫，就像小白杨里的歌词一样，共同把习近平绿了。 2000年，习近平正担任福建省省长，也官居高位，处理厦门远华案。那是彭丽媛正在北京读书，和丈夫两地分居也是寂寞难耐。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/sd.jpg)**图片来源：中新网**
-如今掌握共产党生杀大权的习近平并没有对阎维文打击报复，可见彭丽媛对阎是一往情深，绝不是偷腥。郭文贵在GTV上，通过节目《文贵大直播》爆料：时任中共解放军总参谋长房峰辉对阎维文极其不尊重，彭丽媛非常恼火，房洪辉被抓后也是被处理的很彻底。由此可见彭丽媛极其维护阎维文。
+此外，该市还要求其一万八千名政府雇员在截止日期前完成中共病毒疫苗的接种。为此，波士顿政府取消了雇员可以选择定期接受病毒检测而不需要接种疫苗的规定。该规定还明确，所有未接种中共病毒疫苗的雇员将失去现有的工作机会。
 
-前央视主持人芮成钢为了服侍中共高官夫人一晚上吃8颗伟哥，由此可见彭丽媛有情人并不让人感到意外。中共官员找情人，官员夫人找情夫，乱性是共产党的一种常态。如果哪位中共官员没有乱性，那十有八九是阳痿。
+对此，波士顿反对强制疫苗令的团体在一份声明中强调，政府没有权利中止、削减或取消美国公民和工人的权利，相反的，每个人都应该有权利选择是否接种中共病毒疫苗。而共和党州长候选人杰夫-迪尔也发表评论称，这些政策明显地侵犯了所有在该市居住、工作或旅行的人的公民权利，这将使波士顿更难从大流行病中恢复。
 
-**【文章观点仅代表作者个人，与Gnews平台无关**】
+参考链接：[Boston Implementing Proof of Vaccination Requirement for Restaurants, Other Indoor Venues](https://www.nbcboston.com/news/local/mayor-wu-to-update-bostons-covid-response-monday/2594963/)
 
-作者：洛杉矶盘古农场 — 文如
-编审：洛杉矶盘古农场 — 心照
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+总编：Jack Li文阳
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
