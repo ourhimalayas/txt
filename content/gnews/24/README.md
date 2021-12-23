@@ -2,86 +2,152 @@
 ---
 
 
-## 视频| 郭先生从未与共产党勾兑过
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1782329/)
+## 中原佛手 盘古龙头 让习恐惧 秒杀共产党的无神论
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1782344/)
 
-## 摘自2021.12.19郭先生大直播
+[https://gtv.org/video/id=61c349a343ccb726a089d0cb](https://gtv.org/video/id=61c349a343ccb726a089d0cb)
 
-制作：香草山视频部
+**郭文贵
+Miles Guo**
 
+我要告诉大家一个最根本的问题
+Les voy a decir a todos el problema más fundamental
 
+盘古把龙头变龟头的根本原因是他（习）相信风水
+La razón fundamental por la que Pangu convirtió la cabeza del dragón a la cabeza de tortuga es que él (Xi) cree en el Feng Shui
 
-兄弟姐妹们
-我们今天看到解直锟他已经走了
-我2017年爆他的料
-一般人来讲
-人已经走了咱就不再说他了
-但是我想告诉你的是
-共产党这次你还必须看到
-习近平的另外一面
-你还真的是福气
-习近平一上来说过两句话
-绝不允许就是所谓的金融里边的金融巨阀
-野蛮式初叶增长周小川说的
-你们还记得吗
-习近平脑子已经知道了
-王岐山你这个孙子
-你把全中国的金融全霸占
-你再看今天的房地产的时候，兄弟姐妹们
-七哥的成长和七哥不沾这些官
-不沾这些所谓的大佬，绝对不可能
-七哥没和一个中国的大佬合作
-也没包过一个明星啊
-很多明星往外勾兑过，没包过
-七哥没和任何一个中国金融机构
-我要想拿牌照
-我能拿方正，我能拿海通
-你想想你七哥啥本事
-我更没靠银行贷款
-而且我告诉你
-我做完河南郑州俺就走啦
-到了北京做完盘古一概不做
-而且我告诉你
-我只搞过一回拆迁，郑州灵山寨
-还是农民还不是政府
-我在北京买的是企业地
-从来不跟政府买
-你告诉我七哥这么早的江湖能做到今天
-你觉得是吹牛能吹出来的吗
-还能盖出那样的楼
-最重要的事情
-大家看到盘古，裕达，证券
-七哥是什么时候套现的
-七哥2006年把所有的资产
-也全部变成资产包了
-坦白的说
-他收走了我感情上肯定受刺激
-但是从经济上一点损失都没有
-为什么，这就是你七哥
-全世界第一个亚洲房地产信托，七哥干的
-我没在大陆拿出一分钱
-可不等于我在外国不拿钱
-咱把这两个事搞清楚了
-我在外国这空中取钱
-为什么，我了解共产党
+他相信我们盘古的黑蛇白蛇的故事
+Él cree en la historia de Pangu sobre la serpiente negra y la serpiente blanca
 
+他相信裕达这个佛手的力量
+Cree en el poder de Yuda, la mano de Buda
 
+而且这个事情谁都做不了决定
+Además, este asunto nadie podrá hacer la decisión
 
-发稿：雪梨
+一定是习王孟
+Seguro es Xi, Wang, Meng
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/M12.jpg)
+所有人 孙力军 傅政华
+Todas las personas, Sun Lijun, Fu Zhenghua
 
-**更多资讯，更多关注**
+就是Ｎ个人经过核实后
+Es comprobado por N personas
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+认为这是儿是靠普的 是真的
+Creen que esto es real, es confiable
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+而且越来越相信
+Además, cada vez creen más en eso
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+明年是虎年 让荣光依旧给矇对了
+El próximo año es el año del tigre, Rong Guang aún lo adivinó correctamente
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+不是（因为）佛手他才怕的
+No es (porque) la mano de Buda por eso le teme
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+盘古属啥呀
+¿Qué es Pangu?
+
+盘古是什么形象
+¿Cuál es la imagen de Pangu?
+
+盘古是龙
+Pangu es Dragón
+
+明年是虎年
+El año que viene es año del Tigre
+
+龙虎是什么（关系）
+Qué es (relación) entre el dragón y el tigre
+
+龙虎相争 必有一伤
+Debe haber un herido en la batalla entre el dragón y el tigre
+
+天下最忌讳的是龙虎斗
+La cosa más tabú en el mundo es la pelea de dragones y tigres
+
+啥叫佛手
+Qué es la mano de Buda
+
+什么事你都逃不开佛祖之手
+Significa que no puedes escapar de la mano de Buda por nada
+
+什么人都跑不了
+Nadie puede escaparse
+
+在这个整个西游记里边也好
+Así sea dentro del “Viaje al oeste”
+
+降虎之魔那是如来掌
+El demonio para domar el tigre es la palma del Buda
+
+啪嚓是吧
+Una bofetada, cierto
+佛、菩萨
+Buda, Bodhisattva
+
+连苍蝇都不如 是吧
+Es menos que una mosca, cierto
+
+北有龙头
+Al norte hay la cabeza de dragón
+
+南有中原佛手
+Al sur hay la mano de Buda de las llanuras centrales
+
+你说一般人但凡你要是习近平你怕不怕
+Dime tu si una persona normal fuese Xi Jinping le temes o no
+
+关键你信不信
+El punto es que lo crees o no
+
+你要信了 你就怕
+Si crees en eso lo temes
+
+你不信你（就不怕）
+Si no lo crees (no lo temes)
+
+他要不信就不会强令让金融公司一定把龙头给包住
+Si él no lo creyera no obligaría a la compañía financiera a cubrir la cabeza del dragón
+
+这多可怕
+Que terrible es esto
+
+变成个龟头这个形象
+Se convirtió en una imagen de cabeza de tortuga
+
+震惊了世界
+Impactó al mundo
+
+你们没有意识到这件事情对中国共产党的无神论 几乎是秒杀
+Ustedes no tienen idea de que este asunto de ateísmo para el Partido Comunista de China es una destrucción en segundos
+
+共产党内部人就说
+Dentro del Partido Comunista la gente dice
+
+你不相信风水、不相信神你干这干什么
+“Si no crees en el Feng Shui, ni en Dios para qué haces esto”
+
+日期：12/20/2021
+原视频标题：中原佛手 盘古龙头 让习恐惧 秒杀共产党的无神论
+La mano de Buda de las llanuras centrales, la cabeza del dragón de Pangu, le da temor a Xi. Destruye en un segundo el ateísmo del Partido Comunista
+原视频日期：12/19/2021
+原视频网址： [https://gettr.com/post/pk2l535498](https://gettr.com/post/pk2l535498)
+任务编号：KC359(3283)
+视频时间段：0:00-01:39
+西听校：洛杉矶盘古农场 – 小文萱
+翻译：洛杉矶盘古农场 – 霙霙（文霙）
+翻译终校：洛杉矶盘古农场 – 小文萱
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – Kevin37L
+
+00：28 认为这是儿是靠谱的 改为 认为这事儿是靠谱的
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

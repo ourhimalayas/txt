@@ -2,152 +2,30 @@
 ---
 
 
-## 中原佛手 盘古龙头 让习恐惧 秒杀共产党的无神论
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1782344/)
+## 多位金融高管违法，平安信托陈刚被重判
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1782349/)
 
-[https://gtv.org/video/id=61c349a343ccb726a089d0cb](https://gtv.org/video/id=61c349a343ccb726a089d0cb)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Unknown-28.jpg)多位金融高管违法，平安信托陈刚被重判 网络图片
+据中国基金报12月22日报道，审计署官网21日发布2021年第5号公告《审计署移送违纪违法问题线索查处情况》，通报原中信集团党委委员、执行董事赵景文等10位金融领域高管的违法犯罪情况。其中平安信托有限责任公司江苏区域事业部原负责人陈刚被判处有期徒刑15年，并处没收财产1500万元，追缴违法所得5.32亿元。
 
-**郭文贵
-Miles Guo**
+平安信托有限责任公司成立于1996年4月9日，法定代表人为董事长姚贵平，注册资本130亿元，经营范围包含本外币业务、各种信托等。该公司由中国平安持股99.8809%，由上海市糖业烟酒（集团）有限公司持股0.1191%。10月9日，平安信托官网发布公告，戴巍接替宋成立出任公司总经理职务。
 
-我要告诉大家一个最根本的问题
-Les voy a decir a todos el problema más fundamental
+中共国经济蓬勃发展时，贪官奸商赚得盘满钵满；到了经济下行时，吃了我的给我吐出来，拿了我的给我送回来。这就是共产党的买卖，只赚不赔。于是，地产、银行、信托，各个行业资产大血洗、人员大调整。人人不得幸免，行行不得消停。
 
-盘古把龙头变龟头的根本原因是他（习）相信风水
-La razón fundamental por la que Pangu convirtió la cabeza del dragón a la cabeza de tortuga es que él (Xi) cree en el Feng Shui
+新闻参考链接：[https://c.m.163.com/news/a/GRRKAE1E0530NLC9.html?spss=newsapp](https://c.m.163.com/news/a/GRRKAE1E0530NLC9.html?spss=newsapp)
 
-他相信我们盘古的黑蛇白蛇的故事
-Él cree en la historia de Pangu sobre la serpiente negra y la serpiente blanca
+* * *
 
-他相信裕达这个佛手的力量
-Cree en el poder de Yuda, la mano de Buda
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-而且这个事情谁都做不了决定
-Además, este asunto nadie podrá hacer la decisión
 
-一定是习王孟
-Seguro es Xi, Wang, Meng
+编辑：【英国伦敦喜庄园编辑部】
 
-所有人 孙力军 傅政华
-Todas las personas, Sun Lijun, Fu Zhenghua
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-就是Ｎ个人经过核实后
-Es comprobado por N personas
 
-认为这是儿是靠普的 是真的
-Creen que esto es real, es confiable
-
-而且越来越相信
-Además, cada vez creen más en eso
-
-明年是虎年 让荣光依旧给矇对了
-El próximo año es el año del tigre, Rong Guang aún lo adivinó correctamente
-
-不是（因为）佛手他才怕的
-No es (porque) la mano de Buda por eso le teme
-
-盘古属啥呀
-¿Qué es Pangu?
-
-盘古是什么形象
-¿Cuál es la imagen de Pangu?
-
-盘古是龙
-Pangu es Dragón
-
-明年是虎年
-El año que viene es año del Tigre
-
-龙虎是什么（关系）
-Qué es (relación) entre el dragón y el tigre
-
-龙虎相争 必有一伤
-Debe haber un herido en la batalla entre el dragón y el tigre
-
-天下最忌讳的是龙虎斗
-La cosa más tabú en el mundo es la pelea de dragones y tigres
-
-啥叫佛手
-Qué es la mano de Buda
-
-什么事你都逃不开佛祖之手
-Significa que no puedes escapar de la mano de Buda por nada
-
-什么人都跑不了
-Nadie puede escaparse
-
-在这个整个西游记里边也好
-Así sea dentro del “Viaje al oeste”
-
-降虎之魔那是如来掌
-El demonio para domar el tigre es la palma del Buda
-
-啪嚓是吧
-Una bofetada, cierto
-佛、菩萨
-Buda, Bodhisattva
-
-连苍蝇都不如 是吧
-Es menos que una mosca, cierto
-
-北有龙头
-Al norte hay la cabeza de dragón
-
-南有中原佛手
-Al sur hay la mano de Buda de las llanuras centrales
-
-你说一般人但凡你要是习近平你怕不怕
-Dime tu si una persona normal fuese Xi Jinping le temes o no
-
-关键你信不信
-El punto es que lo crees o no
-
-你要信了 你就怕
-Si crees en eso lo temes
-
-你不信你（就不怕）
-Si no lo crees (no lo temes)
-
-他要不信就不会强令让金融公司一定把龙头给包住
-Si él no lo creyera no obligaría a la compañía financiera a cubrir la cabeza del dragón
-
-这多可怕
-Que terrible es esto
-
-变成个龟头这个形象
-Se convirtió en una imagen de cabeza de tortuga
-
-震惊了世界
-Impactó al mundo
-
-你们没有意识到这件事情对中国共产党的无神论 几乎是秒杀
-Ustedes no tienen idea de que este asunto de ateísmo para el Partido Comunista de China es una destrucción en segundos
-
-共产党内部人就说
-Dentro del Partido Comunista la gente dice
-
-你不相信风水、不相信神你干这干什么
-“Si no crees en el Feng Shui, ni en Dios para qué haces esto”
-
-日期：12/20/2021
-原视频标题：中原佛手 盘古龙头 让习恐惧 秒杀共产党的无神论
-La mano de Buda de las llanuras centrales, la cabeza del dragón de Pangu, le da temor a Xi. Destruye en un segundo el ateísmo del Partido Comunista
-原视频日期：12/19/2021
-原视频网址： [https://gettr.com/post/pk2l535498](https://gettr.com/post/pk2l535498)
-任务编号：KC359(3283)
-视频时间段：0:00-01:39
-西听校：洛杉矶盘古农场 – 小文萱
-翻译：洛杉矶盘古农场 – 霙霙（文霙）
-翻译终校：洛杉矶盘古农场 – 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 ：洛杉矶盘古农场 – Kevin37L
-
-00：28 认为这是儿是靠谱的 改为 认为这事儿是靠谱的
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

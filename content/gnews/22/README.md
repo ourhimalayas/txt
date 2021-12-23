@@ -2,30 +2,50 @@
 ---
 
 
-## 多位金融高管违法，平安信托陈刚被重判
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1782349/)
+## 柬埔寨和越南呼吁维护南中国海国际法
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1782356/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Unknown-28.jpg)多位金融高管违法，平安信托陈刚被重判 网络图片
-据中国基金报12月22日报道，审计署官网21日发布2021年第5号公告《审计署移送违纪违法问题线索查处情况》，通报原中信集团党委委员、执行董事赵景文等10位金融领域高管的违法犯罪情况。其中平安信托有限责任公司江苏区域事业部原负责人陈刚被判处有期徒刑15年，并处没收财产1500万元，追缴违法所得5.32亿元。
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-平安信托有限责任公司成立于1996年4月9日，法定代表人为董事长姚贵平，注册资本130亿元，经营范围包含本外币业务、各种信托等。该公司由中国平安持股99.8809%，由上海市糖业烟酒（集团）有限公司持股0.1191%。10月9日，平安信托官网发布公告，戴巍接替宋成立出任公司总经理职务。
-
-中共国经济蓬勃发展时，贪官奸商赚得盘满钵满；到了经济下行时，吃了我的给我吐出来，拿了我的给我送回来。这就是共产党的买卖，只赚不赔。于是，地产、银行、信托，各个行业资产大血洗、人员大调整。人人不得幸免，行行不得消停。
-
-新闻参考链接：[https://c.m.163.com/news/a/GRRKAE1E0530NLC9.html?spss=newsapp](https://c.m.163.com/news/a/GRRKAE1E0530NLC9.html?spss=newsapp)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Unclos.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+图片来源：cultofsea.com
 
 
+#### 编译 ：小红帽
+
+**根据菲律宾通讯社12月22日报道，柬埔寨和越南于周三呼吁在有争议的南中国海维护国际法，敦促遵守1982年《联合国海洋法公约》（UNCLOS）**。
+
+“双方重申了东盟对维护南中国海和平，安全，稳定，安全以及航行自由的重要性的立场，”越南总统对柬埔寨进行为期三天的国事访问后发表的联合公报说。
+
+越南总统阮春福正在柬埔寨会见了包括洪森总理在内的高级官员。
+
+东南亚国家联盟（Asean）的两个成员国呼吁促进南中国海的对话和建立信任。
+
+南中国海富含矿物质的温暖水域，一直是中国、地区国家以及美国及其盟国之间持续争端的对象。
+
+文莱、柬埔寨、印度尼西亚、马来西亚、菲律宾、新加坡、泰国和越南都是东盟成员国，沿海地区为南中国海。
+
+中国和其他几个地区国家都对该海洋体提出了主权要求。
+
+中国的主张是基于官方地图上的“九段线”，代表了北京当局对南中国海的历史主张。
+
+2016年，菲律宾在海牙常设仲裁法院（The Hague’s Permanent Court of Arbitration）的一起案件中胜诉，该诉讼宣布中国对资源丰富的南中国海的广泛主张无效。
+
+柬埔寨和越南还呼吁，根据国际法，包括1982年《联合国海洋法公约》，缔结一项有效和实质性的《南海行为准则》（CoC）。
+
+新闻来源： [Cambodia, Vietnam call for upholding int’l law in South China Sea | Philippine News Agency (pna.gov.ph)](https://www.pna.gov.ph/articles/1163508)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
