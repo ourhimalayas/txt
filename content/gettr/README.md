@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/23/2021 3:58 AM (UTC)`
+
+12/22/2021 Miles Guo: The biggest evil force controlled by the CCP is the media! Forcing Peng Shuai to admit that she "raped" Zhang Gaoli and using Ma Rui's rape case to frame me follow the same trick of the CCP; Isobel Yeung and VICE have denounced our fellow fighters as cult members, and yet they have not said a single word about the CCP's attack and harm on the Whistleblowers' Movement. But what we have said will be the evidence for their crimes!<br/><br/>12/22/2021 文贵直播：中共控制的最大邪恶力量是媒体！中共反逼彭帅承认其“诱奸”张高丽和用马蕊强奸案陷害文贵是同一套路数；杨贝贝和VICE污蔑战友们是邪教分子，却闭口不谈中共对爆料革命的攻击和伤害，我们说过的话都将成为审判他们罪行的证据！<br/>
+![img](https://media.gettr.com/group34/getter/2021/12/23/03/576dfcf1-1864-c1ba-b107-78ab0c3b416e/out.jpg)
+
+---
+
 `@miles 12/23/2021 2:59 AM (UTC)`
 
 12月22号：共产党对人类的复合性的病毒🦠有快速死亡，慢速死亡，长期死亡的各病毒正在威胁全人类……为什么全世界的政府不找中共要病毒的真相？<br/><br/><br/>投射”恐惧贩子来了！<br/><br/> “突发：Omicron 浪潮将席卷美国，到 3 月将有 60% 的人受到感染，新感染人数将达到 1.4 亿——但华盛顿大学警告说，90% 的人永远不会出现症状”<br/><br/> https://www.dailymail.co.uk/news/article-10337845/Enormous-spread-Omicron-cause-140-MILLION-new-infections-January-1-March-1.html Here come the “projection” fear mongers!<br/><br/>“BREAKING: Omicron wave will crash on US with 60% of people infected by March and 140 MILLION new infections - but 90% will never show symptoms, University of Washington warns”<br/><br/>https://www.dailymail.co.uk/news/article-10337845/Enormous-spread-Omicron-cause-140-MILLION-new-infections-January-1-March-1.html类型全人类的安全安全安全！要！
@@ -149,13 +156,6 @@ The CCP is using social media — American companies — to advance its communis
 
 12/19/2021 Miles Guo: Peng Liyuan (Xi Jinping’s wife) will surely make an appearance at the Winter Olympics, announcing that she is the second top figure of Communist China! The Great Hall of the People will be the first choice for Xi to meet with the leaders from 20 or so countries attending the Winter Olympics. The Pangu 7 Star Hotel will be the most important venue for the Winter Olympics as the national security control center!<br/><br/>12/19/2021 文贵直播: 彭丽媛一定会在冬奥会上亮相，以此向世人宣告她是中国第二号人物！习近平也一定会首选人民大会堂接见来自20多个国家的领导人。作为国家安全控制中心的盘古七星酒店将成为冬奥会最重要的场所！
 ![img](https://media.gettr.com/group12/getter/2021/12/20/07/79d93a5d-9935-4cd3-b756-ac87808c2d79/out.jpg)
-
----
-
-`@miles 12/20/2021 7:00 AM (UTC)`
-
-12/19/2021 Miles Guo: Xi attempts to use foreign athletes and media coverage of the Winter Olympics to prove his governing capability and the superiority of the CCP’s system; Xi will continue to make him a god and will invade Taiwan in the name of saving Taiwan, and by then the Taiwanese athletes will not have to go back to Taiwan<br/><br/>12/19/2021 文贵直播：习妄想在冬奥会利用外国运动员和媒体报道来证明自己的治理能力和中共体制的优越性；习将继续造神并以拯救台湾的名义打台湾，届时，台湾运动员就不用回去了<br/>
-![img](https://media.gettr.com/group8/getter/2021/12/20/07/9d31ec79-eb5f-de44-340b-79bca1513a43/out.jpg)
 
 ---
 
