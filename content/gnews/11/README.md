@@ -2,46 +2,34 @@
 ---
 
 
-## 特鲁多承认中共国为“重大挑战”，但对华政策仍不明朗
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1782691/)
+## FDA严重拖长病毒疫苗数据开放时间
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1782775/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/122206-1.jpg)资料图：加拿大总理贾斯汀·特鲁多(Justin Trudeau)
-加拿大总理贾斯汀·特鲁多(Justin Trudeau)在给其部长的授权书中并没有对中共国进行太多说明，目前尚不清楚“自由党”政府是否有对华政策。
-在他写给外交部长赵美兰(Melanie Joly)的信中，没有点名中共国，但许多指令可能与中共国有关。
-特鲁多呼吁赵美兰制定并启动一项“全面的印太战略，以深化该地区的外交、经济和国防伙伴关系以及国际援助”，但没有说明其根本目的。
-这封信的另一部分可能与中共国有关，它是指示与合作伙伴就“经济胁迫、网络威胁、外国干涉民主进程和严重侵犯人权”方面开展合作。
-另一方面，12月19日，特鲁多和 “CTV电视网(CTV)” 的埃文·所罗门(Evan Solomon)在年底采访时表示，中共国是一个“重大挑战”，但拒绝回答中共政府是否会被视为威胁。
-特鲁多表示，中共国被视为一个重要问题，但还有其他问题属于同一类别，例如“独裁主义国家的崛起”。
-特鲁多还被问到，他是否认为中共国新疆维吾尔自治区对维吾尔族人的迫害构成了英国、美国和加拿大议会所说的种族灭绝。在今年早些时候的议会投票中，特鲁多和他的内阁投了弃权票，但其他自由党议员投票承认这场迫害是种族灭绝。
-特鲁多说：“我认为，存在需要充分调查、揭露和解释的侵犯人权行为。”
-当所罗门说中共国不会允许调查时，特鲁多说：我们知道需要对这些种族灭绝指控进行适当的调查。这是中国需要接受的，我们将继续向他们施加压力，直到他们接受为止。
-“维吾尔权利保护项目”(Uighur Rights Protection Project)执行董事穆罕默德·托尔蒂(Mehmed Torti)批评特鲁多拒绝承认种族灭绝，并表示他的立场“没有道理”。托尔蒂说，关于这个问题，已经有相当多的目击者的证词、官方文件和专家意见。
-“不将中国政府的暴行称为种族灭绝是另一种逃避责任的方式，可以被解释为不尊重加拿大议会的意愿。”托尔蒂说。
-特鲁多告诉所罗门，鉴于中共国的发展和在世界范围内的影响力，加拿大将“在人权及其行动方面挑战并与中国抗衡的同时”，继续与中共做生意。另一个令托尔蒂失望的涉华问题是保守党决定不开始竞标恢复下议院特别委员会的消息，该委员会在选举召开时就解散了。
-前委员会成立于两年前，当时布洛克(Brock)和新民主党(NDP)支持保守派的行动，为其成员提供了解决与中共国有关的各种问题的机会。
-保守党外国评论家庄文浩(Michael Chung)12月20日告诉《环球邮报》，原因不是保守党对中共国的态度发生了变化，而是下议院的资源问题。他还表示，中共国的问题将由外交委员会处理。
-“让加拿大议会中的中国委员会下跪，在任何地方都会被列为是北京最成功和最有影响力的行动之一。”前加拿大大使大卫·马洛尼(David Maloney)回应这一消息称。
-托尔蒂表示，他对保守党不成立新委员会的举动感到“困惑”和“失望”，有其他消息称对中共国采取强硬立场会引发政治后果。
+撰稿： 纽约香草山翻译部  defiance
 
-**简评**：从这篇报道我们可以看到中共对加拿大政治高层的影响之深，连加拿大总理特鲁多都不得不顾忌，特鲁多在新疆人权和中共对世界造成的威胁等问题上表述得含糊不清，官方的措辞让我们看到加拿大现任政府无意与中共政权对抗，或者说已经对中共所可能实施的报复手段“吸取教训”。中国共产党利用蓝、金、黄手段，发动海内外亲共力量，包括海外华侨，渗透到世界各国的社会、经济、政治和文化等各个领域，渗透之深、之广是常人难以想象的。中共政权不灭，全世界人都会处于它的威胁之中，自由世界的民主和自由也将被共产主义病毒彻底吞噬。
+据儿童健康守护组织12月17日报道，公共卫生和医疗专业人员透明度组织PHMPT近日对FDA发起了诉讼，要求FDA公布紧急批准辉瑞公司科米纳蒂疫苗的相关文件和数据。但据该组织指出，FDA严重拖长了资料开放所需的时间，并且为此项工作配员不足。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1222.png)
+按每人平均每小时50页的超低审核速度，要审查FDA估计的几十万页材料，该机构也仅需要19名审核员全职工作12周，就能完成所有查验资料和文档制作工作，而不是一家联邦地区法院所评估的75年。
 
-新闻链接：[https://securykid.com/trudeau-calls-china-a-significant-challenge-but-chinas-policies-are-unclear/](https://securykid.com/trudeau-calls-china-a-significant-challenge-but-chinas-policies-are-unclear/)
-
-翻译/简评：Bruce Z#1641
-
-PR：Harvey（叶知秋）
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+辉瑞有大约18000名员工，19个人只是零头。在口头辩论的前一天，FDA发布了14份文件，最长2030页。PHMPT要求辉瑞在108天内公布所有文件。
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+新闻链接：[FDA Should Need Only ‘12 Weeks’ to Release Pfizer Data, Not 75 Years, Plaintiff Calculates](https://childrenshealthdefense.org/defender/fda-pfizer-comirnaty-vaccine-data-twelve-weeks/)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-5.png)
+
+总编/编辑：童谣
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

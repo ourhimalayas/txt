@@ -2,32 +2,34 @@
 ---
 
 
-## 欧盟批准第五剂新冠疫苗以响应世卫组织
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1782689/)
+## 牧师妻子称自接种疫苗后葬礼不断
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1782727/)
 
-2020-12-22
+撰稿：东京樱花团—在远方
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-1.png)
+12月22日，郭文贵先生盖特转发了一位牧师妻子的采访视频。被问及疫苗强制接种时，牧师妻子表示，自从开始接种中共病毒疫苗以来，葬礼一个接着一个。人们通常认为疫苗能加强免疫力，但她知道很多注射了两针、甚至三针疫苗的人，仍旧感染了中共病毒，而且病得很重。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1220.png)
+政府在社交媒体平台上塑造虚假的“道德模范”，标榜注射疫苗就是在保护他人，但其实疫苗却在伤害自己。这种mRNA基因细胞技术，作为试验品不起任何免疫作用反而异常危险。牧师妻子表示，即使在疫情高峰期时，她的丈夫也很少主持葬礼，医院也很空。但自从开始接种疫苗以后，她的丈夫不停地接到电话被邀请主持葬礼。杀死人们的正是疫苗造成的损伤，如心脏病、中风、血栓、心肌炎，以及被疫苗诱发的癌症等。
 
-原文作者：Marc Burleigh 与 Nina Larson，
-2021年12月20日发布于Medical Press
+新闻链接: https://www.gettr.com/post/pkbk734f02
 
-译评：沉默老歌
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Coronavirus-Omicron-Vaccine-Close-Up-Latex-Glove.jpg)图源网络
-**评：**
-世界卫生组织，作为联合国专门的卫生机构之一，为世界最大的政府间公共卫生组织，在这次全球中共病毒大流行疫情中扮演了极为邪恶的角色。首先不是溯源追查病毒来源，为结束大流行找到源头的依据，而是为中共文过饰非；而各国政府、主流媒体和大型药企也如出一辙，不是去寻找病毒及疫情起因，而是一味宣传强制给大众百姓注射疫苗，一针、二针、三针、四针、五针⋯⋯为了极少数人的利益，导致了另一场更大的灾难的发生，致使全球数亿人染病，数百万人无辜死亡，而且，疫情仍在继续，不知何时才是尽头。同时这也给全球经济、社会造成了毁灭性的破坏，实为罪大恶极！
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-5.png)
 
-**文章翻译：**
-由于世卫组织呼吁加大力度确保大流行在明年结束，欧盟于周一批准了第五种新冠疫苗，加强了与 Omicron变种病毒的斗争。
+总编: 飞虹
 
-欧洲在推出新冠疫苗和加强针方面已经远远领先于世界其他地区，但 Omicron变种促进了创纪录的病例激增，迫使一些国家恢复了严格的限制。
+编辑: 童谣
 
-尽管有迹象表明 Omicron 并不比仍然占主导地位的 Delta 变种更严重，早期数据表明它可能更具传染性，并且可能对疫苗具有更高的抵抗力。自今年 11 月在南非首次被报道以来，Omicron 已在数十个国家被发现，破灭了人们对“大流行最严重时期已经过去”的希望。但美国总统拜登周一表示，他不打算“封锁国家”。
+校正/发稿：浪迹天涯
 
-世卫组织总干事谭德塞呼吁各国加倍努力帮助结束这一流行病，并呼吁取消新年活动，因为“晚庆祝好过现在庆祝然后再悲伤”。他说： “我们现在必须专注于结束这种流行病。”
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-1.png)
 
-原文链接：[https://medicalxpress.com/news/2021-12-eu-jab-urges-greater-effort.amp](https://medicalxpress.com/news/2021-12-eu-jab-urges-greater-effort.amp)
 
-校对/发布：MQ
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

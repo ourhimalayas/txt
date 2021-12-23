@@ -2,40 +2,24 @@
 ---
 
 
-## 明尼苏达州州长瓦尔兹及其家人病毒检测呈阳性
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1782406/)
+## 世卫组织总干事说全面施打加强针恐延长疫情时间
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1782428/)
 
-**翻译：皮特
-编辑：Candy**
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-119.png)
+图片来源： news.un.org
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/mene.png)图片来源：美联社
+美联社12月22日报道，世卫组织领导人周三警告说一些富裕国家全面施打加强针项目恐致全球抗击中共病毒的抗疫时间延长，认为“没有一个国家能通过打加强针以脱离疫情。”
 
+世卫组织总干事谭德赛说目前主要的目标应该是减少死亡，以帮助所有国家达到最低注射疫苗人数目标，他说：“ 绝大多数住院者和死亡者是未注射疫苗者，而不是未注射加强针的人。”
 
-明尼苏达州州长办公室星期二宣布，明尼苏达州州长蒂姆·瓦尔兹及家人的COVID-19检测呈阳性，包括他的妻子和10多岁的儿子。
+谭德赛说今年疫苗已经挽救了很多生命，2021年已有350万人因中共病毒丧生，随着新变种奥米克戎的广泛传播，他说：“我们所有人都必须非常谨慎。”
 
-沃尔茨在一份声明中说，他的儿子在周末出现轻微症状后，他们三人于周一检测呈阳性。州长和夫人格温·瓦尔兹没有症状。
+世卫组织主席曾要求暂停在健康成年人中施打加强针，以使全球疫苗接种的状态达到平衡，他在周三的网络会议上说目前的疫苗接种中有20%是接种加强针或者更多的加强针。
 
-他们三人都已经接种了疫苗，包括沃尔兹，他在3月接种了强生公司的疫苗，并在10月接种了莫奈德增强疫苗。沃尔兹说他们会隔离10天。
+谭德塞说各国应该共同合作，使疫苗接种达到同步，他说：“ 除非在全球范围内广泛的疫苗接种，否则我不认为我们会终止疫情，我们应该理性执行疫苗接种，希望2022年疫情能结束。”
 
-沃尔茨在一份声明中说：“我的家人和我正在隔离，我将继续在家工作，直到我感觉好一些并对病毒检测呈阴性。”与此同时，我鼓励每一个明尼苏达人在假期前接受检测，并接种疫苗和加强剂，以确保他们对COVID-19有强大的保护力。”
-
-“作为一个父亲，我很担心我的家人。”沃尔兹在推特上发布的一段视频，表示他自己没有症状，表达了对疫苗和加强针效果的信心。州长敦促明尼苏达人打加强针，如果他们在假日期间出现任何症状，就去做检查。
-
-他说：“保持安全是我们新年最大的礼物。”
-
-据美国疾病控制和预防中心称，奥米克戎变体已迅速成为主要变体，占本周全国新感染病例的73%。明尼苏达州的医院医疗能力仍然紧张，截至周一，有近1500人因COVID-19住院，其中355人在重症监护室。
-
-原文链接：
-[https://www.theepochtimes.com/minnesota-gov-walz-family-test-positive-for-covid-19\_4170398.html](https://www.theepochtimes.com/minnesota-gov-walz-family-test-positive-for-covid-19_4170398.html)
-
-***发布：Candy***
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+##### **新闻来源： **[WHO chief: Blanket booster drives risk prolonging pandemic](https://apnews.com/article/coronavirus-pandemic-business-health-pandemics-united-nations-cc2391245c7fa4833805d2af0513738e)
 
  
 
