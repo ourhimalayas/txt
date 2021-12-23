@@ -2,22 +2,34 @@
 ---
 
 
-## 斯蒂芬妮迫于工作压力接种了摩德纳疫苗，但是她被疫苗带走了
-` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1782534/)
+## FDA严重拖长病毒疫苗数据开放时间
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1782775/)
 
-这是我在 4 月 10 日早上收到的消息，短信只是说“救救我”。 我冲到我前妻Staphanie Wasil的家，发现她在地板上挣扎求生。 我女儿也在。 我们赶紧把她送到了医院。 在医疗专业人士进行了近四个小时的抢救后，（我们）失去了我女儿们的母亲。 她将永远再也见不到我们的孩子。 她永远不会看到她们结婚，参加她们的婚礼，她将永远不会再牵着她们的手。 她永远再也不会给她们发短信，问她们每天过得怎么样。 她美妙，美丽，乐于助人。 她是我的生意伙伴。 在某种程度上，她是我最好的朋友，我的帮手，我结婚 11 年的妻子。 我很伤心，她被这个圈套圈住了。
-她只是想摆脱来自学校接种疫苗的压力，所以她就接种了这些疫苗。他们说：“每个人都在接种疫苗”；“当你接种了疫苗的时候，告诉我们一声”；“看看所有已经接种了疫苗的人们”。他们或者向她发送这些伪善的信息。 她非常担心没有接种疫苗不能旅行。 她只想让这一切结束。 然而这个怪物公司却闯入我们家，抢走了我的妻子，我的前妻，但她在我心中仍然是我的妻子。 我每天都想你，Stephanie。 我爱你。 我们会再相见。
+撰稿： 纽约香草山翻译部  defiance
 
-安息吧 Staphanie Wasil
-1970 年 8 月 6 日 – 2021 年 4 月 10 日
-请帮助提高(Covid)疫苗危险的认识。 勇敢点，挺身而出——如果你因 Covid 19 疫苗而受伤或失去亲人,你的声音应当被听到。 将您的故事提交至：www.covidvaccinevictims.com 分享他们的故事.
+据儿童健康守护组织12月17日报道，公共卫生和医疗专业人员透明度组织PHMPT近日对FDA发起了诉讼，要求FDA公布紧急批准辉瑞公司科米纳蒂疫苗的相关文件和数据。但据该组织指出，FDA严重拖长了资料开放所需的时间，并且为此项工作配员不足。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1222.png)
+按每人平均每小时50页的超低审核速度，要审查FDA估计的几十万页材料，该机构也仅需要19名审核员全职工作12周，就能完成所有查验资料和文档制作工作，而不是一家联邦地区法院所评估的75年。
 
-素材：文倩
-翻译：abbs
-字幕：文雅
+辉瑞有大约18000名员工，19个人只是零头。在口头辩论的前一天，FDA发布了14份文件，最长2030页。PHMPT要求辉瑞在108天内公布所有文件。
 
-发布：风云小哥
 
+
+新闻链接：[FDA Should Need Only ‘12 Weeks’ to Release Pfizer Data, Not 75 Years, Plaintiff Calculates](https://childrenshealthdefense.org/defender/fda-pfizer-comirnaty-vaccine-data-twelve-weeks/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-5.png)
+
+总编/编辑：童谣
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
