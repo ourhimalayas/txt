@@ -2,28 +2,26 @@
 ---
 
 
-## COVID-19 最新情报｜“后悔接种疫苗”压倒性当选荷兰2021年年度词汇
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1782425/)
+## 【中日财经爆】英特尔禁用涉新疆产品，被中共喉舌攻击
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1782475/)
 
-**撰文｜疫情关注组 / 发布时间｜23/12/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup）](https://gettr.com/user/mightygroup%EF%BC%89)**
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1209.png)[图片来源](https://www.nextgov.com/emerging-tech/2020/12/intel-nvidia-face-questions-lawmakers-sale-supercomputing-chips-china/170682/)
+路透社12月23日报道，美国芯片制造商英特尔在最近给其供应商的一封公开信中要求他们不使用任何来自新疆的劳工、采购产品或服务。现在英特尔则正面临来自中共各种官媒喉舌的攻击。
 
-最近几周，荷兰各大社交媒体，广播电视开始讨论2021年的年度词汇提名，并呼吁市民积极投票。时间从2021 年 12 月 7 日开始， 一直持续到 20 日届满，期间，市民可以从15个提名词汇中，投票选出最具代表性的年度词汇。
+英特尔表示，在“多国政府”实施限制后，它被“要求确保其供应链不使用任何来自新疆的劳工、采购产品或服务”。有证据显示中共在新疆地区广泛侵犯人权，施行种族灭绝，包括强迫劳动。
 
-官方于21日宣布结果，“prikspijt”一词凭藉82.2%的支持率，压倒性当选为荷兰2021 年的年度词汇收录在荷兰词典“Van Dale”中，它的定义是：一个人很后悔接种了某种传染病的疫苗。
+中共喉舌环球时报称英特尔的涉疆表态“极其荒谬”，并称该公司的做法是“吃饭砸锅”。英特尔去年有26%的收入来自中国市场。该报在一篇社论中说：“我们需要做的，就是让他们冒犯中国的成本越来越高，直至得不偿失。”
 
+歌手王俊凯迫于中共压力，在微博上表示解除与英特尔品牌一切合作关系，并在一份声明中补充说“国家利益高于一切”。许多被中共洗脑的微博用户还呼吁中国民众抵制英特尔。
 
+跨国公司受到了压力，因为它们既要遵守与新疆有关的贸易制裁，同时还得继续在中共国这个它们最大的市场之一运营。
 
-> Als je op de IC ligt omdat je géén prik hebt genomen. Dan heb je pas [#prikspijt](https://twitter.com/hashtag/prikspijt?src=hash&amp;ref_src=twsrc%5Etfw). [https://t.co/oVOHBhEcwX](https://t.co/oVOHBhEcwX)
-> — Hugo de Jonge (@hugodejonge) [December 21, 2021](https://twitter.com/hugodejonge/status/1473198731935862791?ref_src=twsrc%5Etfw)
+消息来源：[英特尔涉疆表态引发中国抨击歌手王俊凯解除与其合作关系](https://cn.reuters.com/article/intel-xinjiang1223-thur-idCNKBS2J2053?il=0)
 
-
-
-由于该年度词汇明显反应出荷兰人对于接种完 COVID-19 疫苗后的普遍心态，荷兰卫生部长雨果·德荣格（Hugo de Jonge）立即作出反应，他在推特发文，表达了自己对最新年度词汇的不认同，他的评论是：“如果你因为没有打过新冠疫苗而被送入重症监护室，你才该后悔。”
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-10.jpg)
-来源｜[Van Dale](https://www.vandale.nl/) / [Twitter](https://twitter.com/hugodejonge/status/1473198731935862791)
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

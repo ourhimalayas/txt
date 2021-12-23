@@ -2,152 +2,40 @@
 ---
 
 
-## 中原佛手 盘古龙头 让习恐惧 秒杀共产党的无神论
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1782344/)
+## 明尼苏达州州长瓦尔兹及其家人病毒检测呈阳性
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1782406/)
 
-[https://gtv.org/video/id=61c349a343ccb726a089d0cb](https://gtv.org/video/id=61c349a343ccb726a089d0cb)
+**翻译：皮特
+编辑：Candy**
 
-**郭文贵
-Miles Guo**
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/mene.png)图片来源：美联社
 
-我要告诉大家一个最根本的问题
-Les voy a decir a todos el problema más fundamental
 
-盘古把龙头变龟头的根本原因是他（习）相信风水
-La razón fundamental por la que Pangu convirtió la cabeza del dragón a la cabeza de tortuga es que él (Xi) cree en el Feng Shui
+明尼苏达州州长办公室星期二宣布，明尼苏达州州长蒂姆·瓦尔兹及家人的COVID-19检测呈阳性，包括他的妻子和10多岁的儿子。
 
-他相信我们盘古的黑蛇白蛇的故事
-Él cree en la historia de Pangu sobre la serpiente negra y la serpiente blanca
+沃尔茨在一份声明中说，他的儿子在周末出现轻微症状后，他们三人于周一检测呈阳性。州长和夫人格温·瓦尔兹没有症状。
 
-他相信裕达这个佛手的力量
-Cree en el poder de Yuda, la mano de Buda
+他们三人都已经接种了疫苗，包括沃尔兹，他在3月接种了强生公司的疫苗，并在10月接种了莫奈德增强疫苗。沃尔兹说他们会隔离10天。
 
-而且这个事情谁都做不了决定
-Además, este asunto nadie podrá hacer la decisión
+沃尔茨在一份声明中说：“我的家人和我正在隔离，我将继续在家工作，直到我感觉好一些并对病毒检测呈阴性。”与此同时，我鼓励每一个明尼苏达人在假期前接受检测，并接种疫苗和加强剂，以确保他们对COVID-19有强大的保护力。”
 
-一定是习王孟
-Seguro es Xi, Wang, Meng
+“作为一个父亲，我很担心我的家人。”沃尔兹在推特上发布的一段视频，表示他自己没有症状，表达了对疫苗和加强针效果的信心。州长敦促明尼苏达人打加强针，如果他们在假日期间出现任何症状，就去做检查。
 
-所有人 孙力军 傅政华
-Todas las personas, Sun Lijun, Fu Zhenghua
+他说：“保持安全是我们新年最大的礼物。”
 
-就是Ｎ个人经过核实后
-Es comprobado por N personas
+据美国疾病控制和预防中心称，奥米克戎变体已迅速成为主要变体，占本周全国新感染病例的73%。明尼苏达州的医院医疗能力仍然紧张，截至周一，有近1500人因COVID-19住院，其中355人在重症监护室。
 
-认为这是儿是靠普的 是真的
-Creen que esto es real, es confiable
+原文链接：
+[https://www.theepochtimes.com/minnesota-gov-walz-family-test-positive-for-covid-19\_4170398.html](https://www.theepochtimes.com/minnesota-gov-walz-family-test-positive-for-covid-19_4170398.html)
 
-而且越来越相信
-Además, cada vez creen más en eso
+***发布：Candy***
 
-明年是虎年 让荣光依旧给矇对了
-El próximo año es el año del tigre, Rong Guang aún lo adivinó correctamente
-
-不是（因为）佛手他才怕的
-No es (porque) la mano de Buda por eso le teme
-
-盘古属啥呀
-¿Qué es Pangu?
-
-盘古是什么形象
-¿Cuál es la imagen de Pangu?
-
-盘古是龙
-Pangu es Dragón
-
-明年是虎年
-El año que viene es año del Tigre
-
-龙虎是什么（关系）
-Qué es (relación) entre el dragón y el tigre
-
-龙虎相争 必有一伤
-Debe haber un herido en la batalla entre el dragón y el tigre
-
-天下最忌讳的是龙虎斗
-La cosa más tabú en el mundo es la pelea de dragones y tigres
-
-啥叫佛手
-Qué es la mano de Buda
-
-什么事你都逃不开佛祖之手
-Significa que no puedes escapar de la mano de Buda por nada
-
-什么人都跑不了
-Nadie puede escaparse
-
-在这个整个西游记里边也好
-Así sea dentro del “Viaje al oeste”
-
-降虎之魔那是如来掌
-El demonio para domar el tigre es la palma del Buda
-
-啪嚓是吧
-Una bofetada, cierto
-佛、菩萨
-Buda, Bodhisattva
-
-连苍蝇都不如 是吧
-Es menos que una mosca, cierto
-
-北有龙头
-Al norte hay la cabeza de dragón
-
-南有中原佛手
-Al sur hay la mano de Buda de las llanuras centrales
-
-你说一般人但凡你要是习近平你怕不怕
-Dime tu si una persona normal fuese Xi Jinping le temes o no
-
-关键你信不信
-El punto es que lo crees o no
-
-你要信了 你就怕
-Si crees en eso lo temes
-
-你不信你（就不怕）
-Si no lo crees (no lo temes)
-
-他要不信就不会强令让金融公司一定把龙头给包住
-Si él no lo creyera no obligaría a la compañía financiera a cubrir la cabeza del dragón
-
-这多可怕
-Que terrible es esto
-
-变成个龟头这个形象
-Se convirtió en una imagen de cabeza de tortuga
-
-震惊了世界
-Impactó al mundo
-
-你们没有意识到这件事情对中国共产党的无神论 几乎是秒杀
-Ustedes no tienen idea de que este asunto de ateísmo para el Partido Comunista de China es una destrucción en segundos
-
-共产党内部人就说
-Dentro del Partido Comunista la gente dice
-
-你不相信风水、不相信神你干这干什么
-“Si no crees en el Feng Shui, ni en Dios para qué haces esto”
-
-日期：12/20/2021
-原视频标题：中原佛手 盘古龙头 让习恐惧 秒杀共产党的无神论
-La mano de Buda de las llanuras centrales, la cabeza del dragón de Pangu, le da temor a Xi. Destruye en un segundo el ateísmo del Partido Comunista
-原视频日期：12/19/2021
-原视频网址： [https://gettr.com/post/pk2l535498](https://gettr.com/post/pk2l535498)
-任务编号：KC359(3283)
-视频时间段：0:00-01:39
-西听校：洛杉矶盘古农场 – 小文萱
-翻译：洛杉矶盘古农场 – 霙霙（文霙）
-翻译终校：洛杉矶盘古农场 – 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 ：洛杉矶盘古农场 – Kevin37L
-
-00：28 认为这是儿是靠谱的 改为 认为这事儿是靠谱的
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,86 +2,67 @@
 ---
 
 
-## 视频| 郭先生从未与共产党勾兑过
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1782329/)
+## 明年5月份以前 这个世界会相当动荡
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1782393/)
 
-## 摘自2021.12.19郭先生大直播
+[https://gtv.org/video/id=61c34a4f43ccb726a089d0e7](https://gtv.org/video/id=61c34a4f43ccb726a089d0e7)
 
-制作：香草山视频部
+**郭文贵
+Miles Guo**
 
+世界上我觉得可能会出大事，严格讲，就是明年5月份以前
+I think something big could happen in the world, strictly speaking, before next May
+这个世界相当的动荡，习太阳，真要是好好思考思考
+The world is quite in turmoil, Xi Sun, he really need think about it
 
+包括最近听说军队大调整，这种大调整就是不自信嘛，不相信嘛
+Including I recently heard about a major adjustment in the army, this kind of major adjustment means that Xi are not confident and not believe it
 
-兄弟姐妹们
-我们今天看到解直锟他已经走了
-我2017年爆他的料
-一般人来讲
-人已经走了咱就不再说他了
-但是我想告诉你的是
-共产党这次你还必须看到
-习近平的另外一面
-你还真的是福气
-习近平一上来说过两句话
-绝不允许就是所谓的金融里边的金融巨阀
-野蛮式初叶增长周小川说的
-你们还记得吗
-习近平脑子已经知道了
-王岐山你这个孙子
-你把全中国的金融全霸占
-你再看今天的房地产的时候，兄弟姐妹们
-七哥的成长和七哥不沾这些官
-不沾这些所谓的大佬，绝对不可能
-七哥没和一个中国的大佬合作
-也没包过一个明星啊
-很多明星往外勾兑过，没包过
-七哥没和任何一个中国金融机构
-我要想拿牌照
-我能拿方正，我能拿海通
-你想想你七哥啥本事
-我更没靠银行贷款
-而且我告诉你
-我做完河南郑州俺就走啦
-到了北京做完盘古一概不做
-而且我告诉你
-我只搞过一回拆迁，郑州灵山寨
-还是农民还不是政府
-我在北京买的是企业地
-从来不跟政府买
-你告诉我七哥这么早的江湖能做到今天
-你觉得是吹牛能吹出来的吗
-还能盖出那样的楼
-最重要的事情
-大家看到盘古，裕达，证券
-七哥是什么时候套现的
-七哥2006年把所有的资产
-也全部变成资产包了
-坦白的说
-他收走了我感情上肯定受刺激
-但是从经济上一点损失都没有
-为什么，这就是你七哥
-全世界第一个亚洲房地产信托，七哥干的
-我没在大陆拿出一分钱
-可不等于我在外国不拿钱
-咱把这两个事搞清楚了
-我在外国这空中取钱
-为什么，我了解共产党
+被调整都很有数，因为你不相信我嘛
+Those who have been adjusted are all mentally well-informed, because Xi don’t trust me
 
+公检法的大调整，公安部的部长的调整， 政法委的整个的没落
+The major adjustments of the Public Security Bureau, the adjustment of the Minister of the Ministry of Public Security, the declining of the entire Politics and Law Commission
 
+中纪委到处最近抓金融机构和政法委的人
+Recently, the Central Commission for Discipline Inspection has been arresting people from financial institutions and political and legal committees everywhere
 
-发稿：雪梨
+都说明了为冬奥会在做预防性的准备
+All show that preventive preparations are being made for the Winter Olympics game
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/M12.jpg)
+刚刚河北又抓了20多个人
+Just now, Hebei has arrested more than 20 people
 
-**更多资讯，更多关注**
+你看河北政法委会抓多少人，你会看到血流成河
+look at the number of people arrested by the Hebei Political and Legal Committee, you will see the blood river
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+所以说冬奥会绝对是上天送给爆料革命的大礼
+Therefore, the Winter Olympics game is definitely a gift from God to the whistleblower movement
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+无论从国际影响、知名度，在党内引起的
+Regardless of international influence, popularity, or all the shock cause within the Communist Party
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+所有的震撼和未来大家可以预期，任何我们今天讨论发生一件
+and the future you can expect, anything we discuss today will happen
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+都是以共灭共、以美灭共，咱们一个重大的进展
+It’s all about taking down the Communist Party with CCP and with the United States, and we are making a major progress
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+Date: 12/21/2021
+原视频标题: 明年5月份以前 这个世界会相当动荡
+The world will be quite turmoil before May next year
+原视频日期：2021/12/19
+原视频链接：[https://gettr.com/post/pk5lmv17ff](https://gettr.com/post/pk5lmv17ff)
+任务编号：KC360（3297）
+视频时间段 : 0:00-1:29
+中听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – Kevin37L
+
+00：10 相当的动荡 改为 相当地动荡
 
  
 

@@ -2,67 +2,30 @@
 ---
 
 
-## 明年5月份以前 这个世界会相当动荡
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1782393/)
+## 加拿大卫生部将以公共安全和健康为名开始搜集公民手机定位信息
+` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1782470/)
 
-[https://gtv.org/video/id=61c34a4f43ccb726a089d0e7](https://gtv.org/video/id=61c34a4f43ccb726a089d0e7)
+你看过那些关于中共政府以公共安全和健康为名，搜集中国公民位置和社交信息的恐怖图片和文字报道吗？亲爱的朋友们，这样的事正在加拿大发生。我会展示政府自己公布的文件来证明这是真的。
 
-**郭文贵
-Miles Guo**
+我是Rebel News的Sheila Gunn Reid。 我现在100%确信，如果我们任由那些迷恋权力的公共卫生局的人这样继续下去的话，这个疫情永远也不会结束。我认为这些人很享受他们控制民众的权力。这些权力是他们通过非选举方式得到的，而且他们又完全不用为之而负责。
 
-世界上我觉得可能会出大事，严格讲，就是明年5月份以前
-I think something big could happen in the world, strictly speaking, before next May
-这个世界相当的动荡，习太阳，真要是好好思考思考
-The world is quite in turmoil, Xi Sun, he really need think about it
+谭咏诗（加拿大首席卫生官）和她愚蠢又好事的加拿大公共卫生部，正在效仿中共的社会征信系统，跟踪和监视普通加拿大人的生活。他们想知道你在哪、呆了多久、以及见了哪些人。这都是通过手机数据和定位数据来实现的，而这一切都是白纸黑字写着的，这不是阴谋论，全部都在这份公布在政府采购网站buyandsell.gc.ca的公开采购报告中。
 
-包括最近听说军队大调整，这种大调整就是不自信嘛，不相信嘛
-Including I recently heard about a major adjustment in the army, this kind of major adjustment means that Xi are not confident and not believe it
+报告显示，加拿大公共卫生部要求获得安全、处理得当和及时的基站运营商定位数据，此外还需要对安全、法律隐私和透明度考虑进行充分审查，以协助应对COVID19大流病和其他公共卫生应用。这些从手机基站定位数据处理后得到的集成的数据指标，对于分析加拿大人口的活动特征提供重要的信息，并可作为进一步研究的依据。而进一步研究可以提供场景信息，为公共卫生信息发布、公共卫生措施评估、以及其他公共卫生相关项目、计划和准备提供帮助。
 
-被调整都很有数，因为你不相信我嘛
-Those who have been adjusted are all mentally well-informed, because Xi don’t trust me
+其实，考虑到加拿大公共卫生部对中共控制的世卫组织的唯命是从，这一切的发生，应该都不是意外。事实上，谭咏诗就是世卫组织监督小组的七名成员之一。
 
-公检法的大调整，公安部的部长的调整， 政法委的整个的没落
-The major adjustments of the Public Security Bureau, the adjustment of the Minister of the Ministry of Public Security, the declining of the entire Politics and Law Commission
+那么政府拿了这些个人信息到底是想干什么呢？难道是想找到你参与的秘密地下教会？这听起来很像中共国的做法，是不是？或者是想找出复活节或者圣诞节有多少人来你家做客？或是想找出那些不检查疫苗护照就可以卖酒的酒吧？也许政府是想知道你是不是和我这种藐视荒谬的疫情限制令的人有接触？你还相信这些定位信息不会被用于执法么？当你再看到现在的疫苗护照系统，让人们必须把健康史公开给完全陌生的人，才能去工作、看电影、健身或者旅行，你就能明白：整个疫情造成了另外一个被忽视的损失，那就是—个人隐私。
 
-中纪委到处最近抓金融机构和政法委的人
-Recently, the Central Commission for Discipline Inspection has been arresting people from financial institutions and political and legal committees everywhere
+我是Rebel News的记者Sheila Gunn Reid。
 
-都说明了为冬奥会在做预防性的准备
-All show that preventive preparations are being made for the Winter Olympics game
+素材：文倩
 
-刚刚河北又抓了20多个人
-Just now, Hebei has arrested more than 20 people
+翻译：文永
 
-你看河北政法委会抓多少人，你会看到血流成河
-look at the number of people arrested by the Hebei Political and Legal Committee, you will see the blood river
+字幕：文雅
 
-所以说冬奥会绝对是上天送给爆料革命的大礼
-Therefore, the Winter Olympics game is definitely a gift from God to the whistleblower movement
-
-无论从国际影响、知名度，在党内引起的
-Regardless of international influence, popularity, or all the shock cause within the Communist Party
-
-所有的震撼和未来大家可以预期，任何我们今天讨论发生一件
-and the future you can expect, anything we discuss today will happen
-
-都是以共灭共、以美灭共，咱们一个重大的进展
-It’s all about taking down the Communist Party with CCP and with the United States, and we are making a major progress
-
-Date: 12/21/2021
-原视频标题: 明年5月份以前 这个世界会相当动荡
-The world will be quite turmoil before May next year
-原视频日期：2021/12/19
-原视频链接：[https://gettr.com/post/pk5lmv17ff](https://gettr.com/post/pk5lmv17ff)
-任务编号：KC360（3297）
-视频时间段 : 0:00-1:29
-中听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 ：洛杉矶盘古农场 – Kevin37L
-
-00：10 相当的动荡 改为 相当地动荡
+发布：风云小哥
 
  
 

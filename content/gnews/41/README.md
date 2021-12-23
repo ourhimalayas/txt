@@ -2,30 +2,34 @@
 ---
 
 
-## 2021.12.21 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1781798/)
+## 波士顿宣布新的疫苗要求
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1782013/)
 
-1. 12月21日，陕西西安，各大火车车站和跨省道路被封闭，拥有48小时核酸检测阴性证明，沒有街道办、防疫部门开的通行证，也不被允许离开。
-2. 12月18日，陕西西安。长安大学疫情告急，大量救护车和医护人员连夜进驻学校进行防控。
-3. 12月19日，广东广州。男子带儿子就诊时，因对医院防疫措施不满，与医护人员发生冲突。
-4. 12月15日，江苏宜兴。因查验健康码通行问题，女子和工作人员发生冲突。
-5. 12月19日，辽宁沈阳。小伙凌晨欲跳桥轻生，被周围好心人救下。
-6. 12月18日，广西玉林。凌晨十二点，骑车男子停在路边撕心裂肺大哭。
-7. 12月18日，山东济南。男子妻儿出车祸费用不够，在医院大厅急得掩面哭泣。
-8. 12月16日，患者拍下四川成都华西医院大厅人群拥挤的场景，每日如此。
+作者：纽约香草山福音部 –lilian89
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月20日，波士顿市长发布声明表示，该市即将对室内餐饮、健身和娱乐场所实行新的中共病毒疫苗要求，同时政府将加强对该市一万八千名工人的疫苗接种任务。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-23-上午7.45.39.png)
+有关报道显示，该项新规定要求，自2022年1月15日起，该市相关场所12岁以上的顾客将被要求出示中共病毒疫苗的接种证明。而自明年3月1日起，这项规则将延伸至5岁以上的儿童群体。
 
+此外，该市还要求其一万八千名政府雇员在截止日期前完成中共病毒疫苗的接种。为此，波士顿政府取消了雇员可以选择定期接受病毒检测而不需要接种疫苗的规定。该规定还明确，所有未接种中共病毒疫苗的雇员将失去现有的工作机会。
 
-* * *
+对此，波士顿反对强制疫苗令的团体在一份声明中强调，政府没有权利中止、削减或取消美国公民和工人的权利，相反的，每个人都应该有权利选择是否接种中共病毒疫苗。而共和党州长候选人杰夫-迪尔也发表评论称，这些政策明显地侵犯了所有在该市居住、工作或旅行的人的公民权利，这将使波士顿更难从大流行病中恢复。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+参考链接：[Boston Implementing Proof of Vaccination Requirement for Restaurants, Other Indoor Venues](https://www.nbcboston.com/news/local/mayor-wu-to-update-bostons-covid-response-monday/2594963/)
 
+![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-编辑：【英国伦敦喜庄园编辑部】
+总编：Jack Li文阳
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

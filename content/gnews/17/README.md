@@ -2,64 +2,152 @@
 ---
 
 
-## 众议员迈克·加西亚:中共国一次又一次地表现出对美国及其盟友的恶意
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1782265/)
+## 中原佛手 盘古龙头 让习恐惧 秒杀共产党的无神论
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1782344/)
 
-众议员迈克·加西亚： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 一次又一次地表现出对美国及其盟友的恶意。我和我的中国特别工作组立法委员们一起呼吁推特首席执行官追究他们的责任。不应该允许在他们的平台上进行中共宣传。 【附众议院外交委员会共和党官网新闻】
+[https://gtv.org/video/id=61c349a343ccb726a089d0cb](https://gtv.org/video/id=61c349a343ccb726a089d0cb)
 
+**郭文贵
+Miles Guo**
 
+我要告诉大家一个最根本的问题
+Les voy a decir a todos el problema más fundamental
 
-> Time & time again, China has shown their ill intention towards America & its allies. I joined my fellow China Task Force lawmakers in calling on the Twitter CEO to hold them accountable. CCP propaganda should not be allowed on their platform.[https://t.co/hLwJgZxApW](https://t.co/hLwJgZxApW)
-> — Rep. Mike Garcia (@RepMikeGarcia) [December 22, 2021](https://twitter.com/RepMikeGarcia/status/1473788687641198595?ref_src=twsrc%5Etfw)
+盘古把龙头变龟头的根本原因是他（习）相信风水
+La razón fundamental por la que Pangu convirtió la cabeza del dragón a la cabeza de tortuga es que él (Xi) cree en el Feng Shui
 
+他相信我们盘古的黑蛇白蛇的故事
+Él cree en la historia de Pangu sobre la serpiente negra y la serpiente blanca
 
+他相信裕达这个佛手的力量
+Cree en el poder de Yuda, la mano de Buda
 
-参议员瑞克·斯科特： 本周，我与参议员玛莎·布莱克本和其他同事一起敦促政府商务部制裁那些支持 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 对维吾尔人进行种族灭绝以及对少数民族和宗教团体犯下可怕罪行的公司。 【附布莱克本参议员官网新闻】
+而且这个事情谁都做不了决定
+Además, este asunto nadie podrá hacer la decisión
 
+一定是习王孟
+Seguro es Xi, Wang, Meng
 
+所有人 孙力军 傅政华
+Todas las personas, Sun Lijun, Fu Zhenghua
 
-> This week, I joined [@marshablackburn](https://twitter.com/MarshaBlackburn?ref_src=twsrc%5Etfw) & our colleagues urging [@CommerceGov](https://twitter.com/CommerceGov?ref_src=twsrc%5Etfw) to demand sanctions on companies enabling Communist China’s genocide against the Uyghurs & horrific crimes against ethnic & religious groups. [https://t.co/0zrFaHH4CR](https://t.co/0zrFaHH4CR)
-> — Rick Scott (@SenRickScott) [December 22, 2021](https://twitter.com/SenRickScott/status/1473805247030177792?ref_src=twsrc%5Etfw)
+就是Ｎ个人经过核实后
+Es comprobado por N personas
 
+认为这是儿是靠普的 是真的
+Creen que esto es real, es confiable
 
+而且越来越相信
+Además, cada vez creen más en eso
 
-美国国务院： 国务卿布林肯：与一年前相比，我们现在在几乎所有问题上都与我们的盟友和伙伴更加一致，包括俄罗斯对乌克兰及其邻国的侵略、伊朗的核计划以及 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 挑战基于规则的国际次序的企图。
+明年是虎年 让荣光依旧给矇对了
+El próximo año es el año del tigre, Rong Guang aún lo adivinó correctamente
 
+不是（因为）佛手他才怕的
+No es (porque) la mano de Buda por eso le teme
 
+盘古属啥呀
+¿Qué es Pangu?
 
-> .[@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw): We’re much more aligned with our allies and partners now than we were a year ago on nearly every issue, including Russia’s aggression toward Ukraine and its neighbors, Iran’s nuclear program, and China’s efforts to challenge the rules-based international order. [pic.twitter.com/bkByk6DCTO](https://t.co/bkByk6DCTO)
-> — Department of State (@StateDept) [December 22, 2021](https://twitter.com/StateDept/status/1473779127836721161?ref_src=twsrc%5Etfw)
+盘古是什么形象
+¿Cuál es la imagen de Pangu?
 
+盘古是龙
+Pangu es Dragón
 
+明年是虎年
+El año que viene es año del Tigre
 
-第780军事情报旅（网络）： 根据周二发布的一份新报告，[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 发起了一场大规模的宣传运动，旨在以自己的形象重建民主。 【附在[http://therecord.com](https://t.co/fOUMQEWPtW) 发表的该报告】第780军事情报旅（网络）： 中共国在民主（定义）上的话语权之战。 【附在[http://recordedfuture.com](https://t.co/JSPD8cLupN)发表的报告】
+龙虎是什么（关系）
+Qué es (relación) entre el dragón y el tigre
 
+龙虎相争 必有一伤
+Debe haber un herido en la batalla entre el dragón y el tigre
 
+天下最忌讳的是龙虎斗
+La cosa más tabú en el mundo es la pelea de dragones y tigres
 
-> China has unleashed a massive propaganda campaign aimed at recreating democracy in its own image, according to a new report published Tuesday. [https://t.co/LDk7kQ37Cv](https://t.co/LDk7kQ37Cv) [@TheRecord\_Media](https://twitter.com/TheRecord_Media?ref_src=twsrc%5Etfw)
-> — 780th Military Intelligence Brigade (Cyber) (@780thC) [December 22, 2021](https://twitter.com/780thC/status/1473730325868171268?ref_src=twsrc%5Etfw)
+啥叫佛手
+Qué es la mano de Buda
 
+什么事你都逃不开佛祖之手
+Significa que no puedes escapar de la mano de Buda por nada
 
+什么人都跑不了
+Nadie puede escaparse
 
-美国国会及行政当局中国委员会： [#Olympic](https://twitter.com/hashtag/Olympic?src=hashtag_click) 奥林匹克的团结与包容精神因 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 对宗教团体的严厉甚至有时是残酷的限制而遭到玷污，特别是那些寻求不受共产党监视、或与少数民族有关联的宗教团体。 [#奥运囚徒](https://twitter.com/hashtag/%E5%A5%A5%E8%BF%90%E5%9B%9A%E5%BE%92?src=hashtag_click) [#OlympicPrisoner](https://twitter.com/hashtag/OlympicPrisoner?src=hashtag_click)
+在这个整个西游记里边也好
+Así sea dentro del “Viaje al oeste”
 
+降虎之魔那是如来掌
+El demonio para domar el tigre es la palma del Buda
 
+啪嚓是吧
+Una bofetada, cierto
+佛、菩萨
+Buda, Bodhisattva
 
-> The [#Olympic](https://twitter.com/hashtag/Olympic?src=hash&amp;ref_src=twsrc%5Etfw) spirit of unity and inclusiveness is tarnished by the severe and sometimes brutal restrictions placed on religious groups in China, particularly those seeking to be free of Communist Party oversight or those associated with ethnic minorities. [#OlympicPrisoner](https://twitter.com/hashtag/OlympicPrisoner?src=hash&amp;ref_src=twsrc%5Etfw)
-> — China Commission (@CECCgov) [December 22, 2021](https://twitter.com/CECCgov/status/1473745205107085322?ref_src=twsrc%5Etfw)
+连苍蝇都不如 是吧
+Es menos que una mosca, cierto
 
+北有龙头
+Al norte hay la cabeza de dragón
 
+南有中原佛手
+Al sur hay la mano de Buda de las llanuras centrales
 
-众议员迈克·沃尔茨： [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 正在对企业施压，要求他们把立陶宛清除出他们的供应链，在后者支持民主和让 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 开设非官方大使馆之后。 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 会对任何妨碍他们走向统治全球道路的人发动经济战争。 【转路透社，立陶宛面临中共国带领的企业抵制，中国已要求跨国公司与立陶宛断绝关系】
+你说一般人但凡你要是习近平你怕不怕
+Dime tu si una persona normal fuese Xi Jinping le temes o no
 
+关键你信不信
+El punto es que lo crees o no
 
+你要信了 你就怕
+Si crees en eso lo temes
 
-> The [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)’s pressuring corporations to cut Lithuania out of their supply chains after they supported democracy and let Taiwan open an unofficial embassy. 
-> 
-> China will wage economic war on ANYONE who stands in its way in its march towards global domination. [https://t.co/Ro3rQDxamI](https://t.co/Ro3rQDxamI)
-> — Rep. Mike Waltz (@michaelgwaltz) [December 22, 2021](https://twitter.com/michaelgwaltz/status/1473673160503566338?ref_src=twsrc%5Etfw)
+你不信你（就不怕）
+Si no lo crees (no lo temes)
 
+他要不信就不会强令让金融公司一定把龙头给包住
+Si él no lo creyera no obligaría a la compañía financiera a cubrir la cabeza del dragón
 
+这多可怕
+Que terrible es esto
+
+变成个龟头这个形象
+Se convirtió en una imagen de cabeza de tortuga
+
+震惊了世界
+Impactó al mundo
+
+你们没有意识到这件事情对中国共产党的无神论 几乎是秒杀
+Ustedes no tienen idea de que este asunto de ateísmo para el Partido Comunista de China es una destrucción en segundos
+
+共产党内部人就说
+Dentro del Partido Comunista la gente dice
+
+你不相信风水、不相信神你干这干什么
+“Si no crees en el Feng Shui, ni en Dios para qué haces esto”
+
+日期：12/20/2021
+原视频标题：中原佛手 盘古龙头 让习恐惧 秒杀共产党的无神论
+La mano de Buda de las llanuras centrales, la cabeza del dragón de Pangu, le da temor a Xi. Destruye en un segundo el ateísmo del Partido Comunista
+原视频日期：12/19/2021
+原视频网址： [https://gettr.com/post/pk2l535498](https://gettr.com/post/pk2l535498)
+任务编号：KC359(3283)
+视频时间段：0:00-01:39
+西听校：洛杉矶盘古农场 – 小文萱
+翻译：洛杉矶盘古农场 – 霙霙（文霙）
+翻译终校：洛杉矶盘古农场 – 小文萱
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – Kevin37L
+
+00：28 认为这是儿是靠谱的 改为 认为这事儿是靠谱的
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

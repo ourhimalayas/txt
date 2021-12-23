@@ -2,42 +2,52 @@
 ---
 
 
-## 中国电信在美运营授权被撤后，将继续提供部分服务
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1782139/)
+## 土耳其的加密货币交易在里拉困境中创新高
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1782194/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+作者：纽约香草山农场 – 四季
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/china-telecom.jpg)
-
-
- 
-图片来源：www.channelnews.com.au
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
 
-#### 整理/编辑 ：小红帽
 
-**根据路透社12月22日报道，中国电信美国子公司周三表示，计划于2022年继续在美国提供一些服务。中国电信此前被美国监管机构以国家安全为由撤销在美国的电信运营授权。**
 
-美国联邦通讯委员会(FCC)认为**中国电信美洲公司(CTA)“受到中国政府的利用、影响和控制”**，并在10月投票撤销了该电信运营授权。
 
-在FCC“没有做出最终的事实认定和决定”的情况下，中国电信美洲公司打算 “在私人运营商的基础上”继续提供一些服务。该公司以“CTExcel”品牌为消费者提供移动服务。
+据[OAN网站](https://www.oann.com/exclusive-turkeys-cryptocurrency-trades-top-1-million-a-day-amid-lira-woes/)援引路透社12月21日报道，随着土耳其货币跌至一系列创纪录低点，土耳其的加密货币交易数量已经回升至每天100万以上。
 
-中国电信美洲公司给FCC的一封信中提到，该公司打算继续提供的服务不属于FCC要求其停止提供的普通运营商业务。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3-52.jpg)2021年9月27日，在土耳其安卡拉的一个货币兑换处，一名货币兑换商正在清点土耳其里拉纸币。（REUTERS/Cagla Gurdogan/File Photo）
 
-FCC则表示CTExcel的客户需要在1月3日之前转换到新的供应商。
+对土耳其经济政策的担忧使里拉自9月以来暴跌了近40%，这促使土耳其人寻找存放其储蓄之处，以应对通货膨胀飙升的影响。
 
-本月初，联邦上诉法院驳回了中国电信美洲公司要求叫停FCC命令的紧急申诉。
+对土耳其人来说，将里拉兑换成美元或黄金是很常见的，因为自2008年以来，土耳其货币已经损失了90%的价值。但随着政府希望增加这些做法的难度，以及今年加密货币价格的大幅上涨，加密货币交易已获得广泛青睐。
 
-新闻来源： [中国电信计划继续在美国提供部分服务 此前被撤销在美运营授权 | Reuters](https://cn.reuters.com/article/china-telecom-1222-wedn-usa-idCNKBS2J201X)
+根据区块链分析公司Chainalysis和Kaiko的数据，每天100万的门槛在今年早些时候首次被超越。数据还显示，自2019年以来，比特币和Tether — 一种旨在保持稳定价值的 “稳定币”，被广泛用于加密货币交易，在里拉交易中最受欢迎。
 
-***发布：小红帽***
+土耳其副财政部长在9月表示，将出台有关加密货币交易这一新兴资产类别的法规。土耳其中央银行早在4月已经禁止了加密货币用于传统类型的购买，理由是 “不可弥补的 ”损害和交易风险。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月.png)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 
