@@ -2,41 +2,28 @@
 ---
 
 
-## 单伟建派出的杨贝贝坦承爆料革命在全球掀起的反共浪潮
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1782884/)
+## 为镇压反抗的市民，港共警队新购3辆「水炮车」
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1782897/)
 
-最早看到的就是大卫和木兰，这就是说，我让她采访，知道来黑咱来了，我们全程记录，她在镜头前就敢说，是全球掀起的反共浪潮，你说我啥感觉兄弟姐妹们？
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/9-15.jpg)[图片来源](https://www.epochtimes.com/gb/19/11/17/n11660988.htm)
+为了镇压香港市民反抗港共暴政的游行示威，港共警队已额外采购3辆「水炮车」，该批车辆已运港，警队的「水炮车」总数将增至6辆，新车由中共国内地生产。
 
-我告诉大家，这是我一生中很大的一场荣幸，敌人派来的美女尖兵，竟然说你是我们最大的敌人，而且对我们造成了最大的威胁，哇塞！我这太幸福了！当时你看我那个表情，我就幸福的已经不得了啦。
+据悉，警队额外采购的3辆「水炮车」已运抵本港，抵港后由机电工程署作最后验收，警队预计于明年第1季从机电工程署接收该3辆特别用途车。
 
-单伟建，共产党派出来的人，竟然这么说咱，那就是敌方的批评，就是最大的奖励。
+有别于警队现有由外国制的「水炮车」，该3辆新「水炮车」由内地生产商生产，总值约990万港元。中共国产「水炮车」的车身比之前所采用的外国制「水炮车」细，灵活性较高，在本港横街窄巷中相对有较高行动性。另外，中共国产「水炮车」配备的水炮，发射的水力跟之前所采用的外国制「水炮车」一样。
 
-编辑整理：海贼王M.D.LUFFY；
+翻查资料，警方早年斥资1,659万元订购了3辆「水炮车」，首辆于2018年5月下旬运抵本港。该批「水炮车」参考欧洲设计，前期生产工序于法国进行，但并非当时法国警方使用的型号，而是因应本港环境度身订造，体积限制为不可超过7.8米长、2.5米阔及4.1米高，可载4人，车每年可走20,000公里，最少可运作9年。
 
-字幕文件制作：小满；
+该批外国制「水炮车」安装了2大4小，共6支水炮，设有3个水缸供水。根据港府的招标文件，两支主炮每分钟射水最少1,200公升，水压最少有1,000kPa(千帕)，射程50米，水炮需能左右转动180度，以达致360度的全方位覆盖率；也可上下移动。「水炮车」除可喷水及喷泡外，亦可混入催泪烟水剂以及颜料喷出。
 
-视频制作及上传：Cindy；
+消息来源:
 
-G-News发布：小满；
+[香港警队斥990万购装备3辆新水炮车可穿梭横街窄巷](https://www.fonfmedia.com/2021/12/22/%E9%A6%99%E6%B8%AF%E8%AD%A6%E9%98%9F%E6%96%A5990%E4%B8%87%E8%B4%AD%E8%A3%85%E5%A4%873%E8%BE%86%E6%96%B0%E6%B0%B4%E7%82%AE%E8%BD%A6-%E5%8F%AF%E7%A9%BF%E6%A2%AD%E6%A8%AA%E8%A1%97%E7%AA%84%E5%B7%B7/)
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

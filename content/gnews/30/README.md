@@ -2,22 +2,41 @@
 ---
 
 
-## 中共国要求日本撤销核电站处理水排海计划
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1782874/)
+## 单伟建派出的杨贝贝坦承爆料革命在全球掀起的反共浪潮
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1782884/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2021/12/3-48.png)图片来源
-12月22日《时事通信》消息，中共国外交部发言人赵立坚在22日的记者会上表示，他对东京电力公司21日向核监管委员会提出的将福岛第一核电站的处理水释放到海中的计划表示 “严重关切”。
+最早看到的就是大卫和木兰，这就是说，我让她采访，知道来黑咱来了，我们全程记录，她在镜头前就敢说，是全球掀起的反共浪潮，你说我啥感觉兄弟姐妹们？
 
-他要求日本撤回该计划，并说：”日本应认真听取包括邻国在内的国际社会的关切，并撤销其向海中放水的错误决定。国际原子能机构（IAEA）仍在努力核实该工厂的安全性。如果它是安全无害的，为什么不把它释放到国内的湖泊中或用于国内流通”。
+我告诉大家，这是我一生中很大的一场荣幸，敌人派来的美女尖兵，竟然说你是我们最大的敌人，而且对我们造成了最大的威胁，哇塞！我这太幸福了！当时你看我那个表情，我就幸福的已经不得了啦。
 
-信息源：
+单伟建，共产党派出来的人，竟然这么说咱，那就是敌方的批评，就是最大的奖励。
 
-[中国、処理水海洋放出の撤回要求](https://news.yahoo.co.jp/articles/57c3c190efd0c8d88442ddafbfdb8352292aeccb#:~:text=%E3%)
+编辑整理：海贼王M.D.LUFFY；
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+字幕文件制作：小满；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
