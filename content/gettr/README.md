@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/23/2021 10:14 PM (UTC)`
+
+12/23/2021 Miles Guo’s GETTR: HBO/VICE & Isobel Yeung are so evil because they defined the Whistleblowers’ Movement and oversea Chinese as cult and terrorists; Haulacast in WWII and the Anti-Chinese Riots in Indonesia were also invoked by the same or similar rogue media, you’re still hestitant do nothing about it?<br/><br/>12/23/2021 文贵盖特：HBO/VICE和杨贝贝用心险恶，爆料革命和海外华人已被定义为邪教和恐怖分子，二战杀犹太人和印尼排华都是从这样的流氓媒体带风向开始的，你还不站出来反抗吗？<br/><br/>
+![img](https://media.gettr.com/group23/getter/2021/12/23/22/fdb20f5c-29f8-0676-bbac-d9dd698a9f9c/out.jpg)
+
+---
+
 `@miles 12/23/2021 3:52 PM (UTC)`
 
 12月23号：尊敬的战友们好！共产党内部清理官二代·富二代．的时代已经全面开始。北京的冬奥会面临着全球的挑战……即将成为灾难性的笑话……昨天播放the HBO的流氓采访……引起的世界各大媒体的重视，媒体必须遵循法律，抛弃傲慢……<br/>停止与独裁勾结……为了金钱失去良知……触碰法律红线……必须抛弃被共产党的金钱收买！西方媒体……革命时代……即将到来！
@@ -147,13 +154,6 @@ The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO-VICE's Delibe
 
 The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO-VICE's Deliberate Lies After Deceptive Editing [Part-2]：<br/>‼️HBO-VICE discredits Mr. Guo for his large-scale followers <br/><br/>【#HBO #VICE 采访郭文贵先生背后的真相——揭露HBO-VICE精心编织的谎言 Part-2】：<br/>‼️反击HBO-VICE诋毁郭先生进行大规模个人崇拜<br/><br/>YouTube link of full REBUTTAL video  (may be blocked by YouTube‘s rogue rules): https://youtu.be/VTQ91werzk8<br/>GTV link of full REBUTTAL video  (EN and CN subtitles): https://gtv.org/video/id=61c3bb8900f9a119180832eb<br/>GETTR link of full REBUTTAL video  (EN and CN subtitles): https://gettr.com/streaming/pkexq84603
 ![img](https://media.gettr.com/group39/origin/2021/12/23/12/39d6b3f6-d143-1bb7-1c28-69a2b3d26dd2/out.jpg)
-
----
-
-`@miles 12/23/2021 11:58 AM (UTC)`
-
-The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO-VICE's Deliberate Lies After Deceptive Editing [Part-1]：<br/>‼️Isobel Yeung, the HBO-VICE's host of the interview - her background and connection with the CCP <br/><br/>【#HBO #VICE 采访郭文贵先生背后的真相——揭露HBO-VICE精心编织的谎言 Part-1】：<br/>‼️HBO--VICE采访郭先生的记者ISOBEL YEUNG的背景及其亲共证明<br/><br/>YouTube link of full REBUTTAL video  (may be blocked by YouTube‘s rogue rules): https://youtu.be/VTQ91werzk8<br/>GTV link of full REBUTTAL video  (EN and CN subtitles): https://gtv.org/video/id=61c3bb8900f9a119180832eb<br/>GETTR link of full REBUTTAL video  (EN and CN subtitles): https://gettr.com/streaming/pkexq84603
-![img](https://media.gettr.com/group39/origin/2021/12/23/11/78fc3b41-30da-e57c-870d-f3d37f29fce5/out.jpg)
 
 ---
 
