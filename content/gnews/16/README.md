@@ -2,36 +2,59 @@
 ---
 
 
-## 医疗界的法西斯主义：FDA与USPS合谋阻止救命药伊维菌素的运输
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1784690/)
+## 希腊因Omicron担忧禁止圣诞节庆祝活动
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1784721/)
 
-翻译：波士顿五月花  冲天一怒
+作者：Ian Miles Cheong
+翻译：Himasally
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture2-11.jpg)https://i.imgur.com/NpwADkm.jpg
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-291.png)
 
-律师亚伦‧希瑞 (Aaron Siri) 公布了一份他发现的文件：文件显示美国食品和药物管理局 (FDA) 正与美国邮政局 (USPS) 合谋阻止进口的伊维菌素从海外运至美国消费者。
+希腊政府已禁止公共圣诞节庆祝活动，以遏制新冠的高度传染性“温和”Omicron 变体的传播。
 
-在一条推文中，希瑞提到了一封“FDA 行动通知”函，其中解释到USPS 现在正在非法监视包裹。若发现包裹中含有伊维菌素，而收件人无法证明该药物除了治疗中共病毒 (Covid-19) 外还有其他用途，包裹将被扣留并随后销毁。信函中写道：“应FDA的要求，邮局正在扣留从外国寄给您的包裹。”
+正如反叛新闻周三报道的那样，英国政府科学家汇编的数据发现，Omicron 变体的症状比 Delta 更“轻”。调查结果促使英国首相鲍里斯约翰逊暂时保持国家开放，而不是在圣诞节期间关闭。
 
-信中列出的“单个物品现状的摘要”显示一盒 200 片，每片12mg的伊维菌素片被USPS 于 2021 年 11 月 9 日扣留。这批产品还可能包含未列出的其他药品。该通知不保证所涉及的产品符合食品药品和化妆品法案、公共卫生服务法案或其他相关法案的规定，也不排除在产品随后被发现违规时采取行动。
+然而，希腊卫生部门采取了相反的举措，而是选择禁止公共圣诞节和新年前夜庆祝活动，以回应 Omicron。此外，希腊卫生部长周四表示，希腊政府正在重新引入开放空间戴口罩的规定，以试图减缓病毒的传播。
 
-**FDA****希望人****们在没有伊维菌素的情况下死****去**
+该措施将于周五上午生效，将要求所有公民在公共交通工具和超市内佩戴两个口罩或“高防护口罩”。卫生部建议，还“强烈鼓励”外国游客在抵达几天后进行两次 PCR 检测，而不是一次。
 
-收件人被告知，对包裹内容的检查导致 FDA决定这些药物“不符合法律要求”。此外，FDA 已确定每件物品的价值为 2500 美元或更低。由于这些药物不符合法律要求且价值在 2500 美元或以下，它们将被拒绝进入美国并予以行政销毁。根据 FDA 的说法，在中共病毒(福奇病毒)时期，伊维菌素被标注为“误标(不用于治疗Covid-19)”，将不被允许使用。人们现在唯一可以获得的药物是来自“神速行动”的疫苗。
+希腊卫生部长 Thanos Plevris 表示，新的一年将采取额外措施，主要是在娱乐和体育场馆。他说，此举是为了避免再次完全封锁。
 
-信函中补充道：进口药物似乎不遵从或不符合 FDA 个人进口政策下的豁免考虑。收件人可以质疑包裹的拦截，并通过提出有利于其正确接收的申诉来尝试取回包裹。如果在一定时间内不这样做，那么 FDA 和 USPS 计划销毁伊维菌素药片。
+Plevris 在新闻发布会上说：“我们一直在监控病例，看看在 Delta 变体背后是否存在 Omicron 的传播。”
 
-希瑞指出，FDA 本可以比现在更明智地利用资源让人们用自己希望的干预方法对抗中共病毒(福奇病毒)以保持健康。相反，FDA 似乎更希望通过限制伊维菌素的使用令更多人死亡。
+尽管自本月初以来希腊报告的 Omicron 病例相对较少，但还是采取了暂停圣诞节庆祝活动的举措。
 
-FDA 本可以更好地利用其资源公开发布辉瑞提交的文件，颁发其规定的无责任疫苗许可证，而不是等到75 年后。希瑞在写这条推文时，故意用字母V取代了“疫苗”这个单词，以避免在社交媒体平台上被审查。有人在推特上回应这条推文：所以FDA真的是在谋杀我们。
+据《独立报》报道，希腊仅报告了几十起 Omicron 案例。
 
-新闻来源: [MEDICAL FASCISM: FDA conspiring with USPS to block shipments of lifesaving ivermectin](https://www.naturalnews.com/2021-12-17-fascist-fda-conspiring-usps-block-shipments-ivermectin.html)
 
-* * *
+> 希腊去年从第一波大流行中脱颖而出，其状况比其他一些欧洲国家要好，近几个月来一直在努力应对感染激增的问题，这给其医疗保健系统带来了压力。
+> 
+> 当局周三报告了 5,641 例新感染和 69 例相关死亡，使自大流行开始以来的感染总数达到 1,049,936，死亡人数达到 20,126。
+> 
+> 希腊拥有 1100 万人口，迄今已进行了超过 730 万次首次注射。大约 65.7% 的希腊人已全面接种疫苗。
 
-*素材来源：冲天一怒*
 
-*编辑**& 发布：jamie(文胤)*
+希腊关闭庆祝活动的举措符合其他西方政府对其公民施加的限制。站在规范之外的是英国和佛罗里达州，它们似乎比其他一些国家更好地遵循科学，采用了更加疑虑重重的治理方法。
+
+来源：https://www.rebelnews.com/greece\_bans\_christmas\_celebrations\_over\_omicron\_worries
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
