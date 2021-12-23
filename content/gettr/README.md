@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/23/2021 11:07 PM (UTC)`
+
+Who exactly is Miles Guo, terminator of the CCP (Chinese Communist Party)? Stay tuned for Episode 1 of the documentary “Who is Miles Guo”, premiering on December 24th, 2021. Feel free to fact-check!<br/><br/>Fri, Dec 24th at 9:00 pm (Eastern Standard Time)<br/>Sat, Dec 25th at 10:00 am (Beijing Time)<br/><br/>GTV Live: 郭文贵MILES<br/>GETTR Live: @Miles<br/><br/>郭文贵是谁？中国共产党的终结者！2021年12月24日，纪录片《谁是郭文贵》第一集首播，不用听我们说，你们可以自己验证！<br/>播出时间：<br/>12月24日美东周五晚上 九点<br/>12月25日墙内周六早上 十点<br/>GTV直播：郭文贵MILES<br/>盖特直播：@Miles
+![img](https://media.gettr.com/group48/origin/2021/12/23/23/278780c5-b491-3ef0-9775-e5c51ed14353/out.jpg)
+
+---
+
 `@miles 12/23/2021 10:14 PM (UTC)`
 
 12/23/2021 Miles Guo’s GETTR: HBO/VICE & Isobel Yeung are so evil because they defined the Whistleblowers’ Movement and oversea Chinese as cult and terrorists; Haulacast in WWII and the Anti-Chinese Riots in Indonesia were also invoked by the same or similar rogue media, you’re still hestitant do nothing about it?<br/><br/>12/23/2021 文贵盖特：HBO/VICE和杨贝贝用心险恶，爆料革命和海外华人已被定义为邪教和恐怖分子，二战杀犹太人和印尼排华都是从这样的流氓媒体带风向开始的，你还不站出来反抗吗？<br/><br/>
@@ -147,13 +154,6 @@ The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO-VICE's Delibe
 
 The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO-VICE's Deliberate Lies After Deceptive Editing [Part-3]：<br/>‼️HBO-VICE's defamation of Mr. Guo for the use of huge media platforms to spread facts<br/><br/>【#HBO #VICE 采访郭文贵先生背后的真相——揭露HBO-VICE精心编织的谎言 Part-3】：<br/>‼️反击HBO-VICE诋毁郭先生利用巨大媒体平台散播谎言<br/><br/>YouTube link of full REBUTTAL video  (may be blocked by YouTube‘s rogue rules): https://youtu.be/VTQ91werzk8<br/>GTV link of full REBUTTAL video  (EN and CN subtitles): https://gtv.org/video/id=61c3bb8900f9a119180832eb<br/>GETTR link of full REBUTTAL video  (EN and CN subtitles): https://gettr.com/streaming/pkexq84603
 ![img](https://media.gettr.com/group39/origin/2021/12/23/12/3bb6247a-d7aa-fbcf-0b2f-4fb849b5ee18/out.jpg)
-
----
-
-`@miles 12/23/2021 12:00 PM (UTC)`
-
-The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO-VICE's Deliberate Lies After Deceptive Editing [Part-2]：<br/>‼️HBO-VICE discredits Mr. Guo for his large-scale followers <br/><br/>【#HBO #VICE 采访郭文贵先生背后的真相——揭露HBO-VICE精心编织的谎言 Part-2】：<br/>‼️反击HBO-VICE诋毁郭先生进行大规模个人崇拜<br/><br/>YouTube link of full REBUTTAL video  (may be blocked by YouTube‘s rogue rules): https://youtu.be/VTQ91werzk8<br/>GTV link of full REBUTTAL video  (EN and CN subtitles): https://gtv.org/video/id=61c3bb8900f9a119180832eb<br/>GETTR link of full REBUTTAL video  (EN and CN subtitles): https://gettr.com/streaming/pkexq84603
-![img](https://media.gettr.com/group39/origin/2021/12/23/12/39d6b3f6-d143-1bb7-1c28-69a2b3d26dd2/out.jpg)
 
 ---
 

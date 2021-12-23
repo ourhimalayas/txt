@@ -2,28 +2,14 @@
 ---
 
 
-## GTV新闻访谈简报|2021年12月23日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1784397/)
+## 西站出品系列之&#8211;西班牙喜悦农场祝福战友：圣诞快乐，新年快乐
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1784407/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEW-GTV-MOS-LOGO-4.jpg)
+制作：蚂蚁兄弟
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV_-_Google_-23.png)
-文章仅代表作者本人观点，与Gnews无关
+发稿：信心的选择
 
-视频参看：[2021.12.23早GTV新闻访谈](https://gtv.org/video/id=61c4798100f9a119180916a6)
-
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Calender-2.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-5.jpeg)
 
  
 

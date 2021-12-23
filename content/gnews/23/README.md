@@ -2,42 +2,59 @@
 ---
 
 
-## FDA被迫披露的辉瑞疫苗不良反应数据令人震惊
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1784445/)
+## 香港当局拆除天安门大屠杀纪念碑
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1784513/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+作者：Ian Miles Cheong
+翻译：Himasally
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/12/V-4.jpg)futurism.com
-有掩盖真相嫌疑，企图拖延55年，甚至75年才完全公布疫苗研制过程数据的辉瑞公司以及帮凶FDA，在有识之士依据宪法规定的紧逼下，FDA不得不开始了缓慢、仍企图拖延的“信息披露”。从发布的这些数据看来，疫苗的副作用是令人震惊的。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-287.png)
 
-《真相报道》（truth press）12月23日发表文章，题目是“FDA发布了更多关于辉瑞疫苗‘不良反应’的数据”。
+1989 年在天安门广场大屠杀中丧生的学生抗议者的雕像与周三香港大学所谓的 “耻辱柱” 的拆除同步进行。
 
-全文如下：
+这座雕像展示了堆积如山的中国学生尸体，是为了纪念 1989 年被中国当局杀害的数千名民主抗议者的死亡。在被拆除之前，耻辱柱是中国为数不多的公共纪念碑之一的香港纪念事件。
 
-随着美国食品和药物管理局（FDA）准备批准辉瑞公司用于治疗感染中共（新冠）病毒的高危患者的新药，更多有关其疫苗副作用的危险的信息正在曝光。
+2019 年，数十万民主抗议者走上香港街头，反对北京共产党政府强加给该岛的新国安法。此后数百人被捕，数万人在英国、澳大利亚和加拿大等国家寻求庇护。
 
-就在昨天（12月22日），我们报告了新西兰另一例与疫苗有关的死亡病例。现在，FDA发布的文件显示，制药商辉瑞公司在推出中共病毒疫苗的最初几个月内记录了近16万例中共病毒疫苗的不良反应。
+自从接管该岛以来，北京一直在镇压香港所有政界异见人士，曾经允许言论自由，现在可能会被判入狱。
 
-这些数据是由一组被称为“促进透明度的公共健康医疗专业人士”（Public Health and Medical Professionals for Transparency）的医生、教授和记者获得。他们根据《信息自由法》（Freedom of Information Act），向FDA提交了的请求，要求公开文件。第一份文件显示，截至2021年2月，当辉瑞在全球范围内紧急推出该产品时，这家制药商已经收集了超过42，000份病例报告，详细说明了近16万个人对疫苗的不良反应。
+尽管在中国受到高度打压，香港居民对天安门广场抗议活动仍然非常直言不讳，成千上万的中国学生为争取更大的政治自由而游行。
 
-数据显示，大部分严重和非严重的不良事件病例被归类为“一般性疾病”。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-284.png)
-报告的较常见疾病包括发热、疲劳和腹泻等。
+数千人在天安门广场扎营数周，促使军队进驻并用武力清除。中国政府声称只有 200 名平民和几十名安全人员死亡。然而，人权组织提供的估计表明，可能有多达 10,000 人被杀。
 
-整个报告中最令人惊讶的数字是，在美国这些病例中有超过1，000个是致命的。总的来说，超过3，000的死亡与疫苗有关，这与该公司自己的数据相符。批评人士认为，一些死亡人数不能确定与疫苗有关，但其他人坚持认为死亡人数可能仍然少报了。
+该大学在一份声明中说：“关于拆除雕像的决定是基于外部法律建议和风险评估，以确保大学的最佳利益。” 香港大学最初于 10 月下令拆除这座雕像。
 
-请记住，FDA使用了这些数据来宣布辉瑞疫苗是安全的，这是它在8月份为16岁及以上的美国人所做的。自那以后，它已经被批准用于5岁以下的儿童，以及从上周开始用于16岁及以上人群的加强剂。
+声明补充说：“大学也非常关注脆弱的雕像所带来的潜在安全问题。”
 
-读者可以在下面找到“促进透明度的公共健康医疗专业人士”的完整数据分类：文章链接了在斯柯伯德（Scribd）阅读平台发布的信息。
+BBC 的格瑞斯崔报道：
 
-（全文完）
+几十年来，香港以自己是“中国的良心”而自豪，中国领土上唯一没有忘记 1989 年天安门广场大屠杀的地方。
 
-这里再着重强调一下，“整个数字是令人惊讶的”，有人“坚持认为死亡人数可能仍然少报了”，在这样的数据面前，FDA依旧“宣布辉瑞疫苗是安全的”。阴谋集团真地是在玩耍美国人的智商，还不清醒！
+北京允许每年一度的烛光守夜纪念血腥事件，这也成为香港集体记忆的一部分。
 
-原文链接：
+但根据国家安全法，守夜活动组织者，香港支持中国爱国民主运动联盟被迫解散，许多抗议领导人被判入狱。很明显，北京将不再容忍任何公开的蔑视。
 
-[https://truthpress.news/news/fda-releases-more-data-on-adverse-reactions-to-pfizer-vaccine/](https://truthpress.news/news/fda-releases-more-data-on-adverse-reactions-to-pfizer-vaccine/)
+这座纪念碑在校园里屹立了二十多年。现在，即使是在夜深人静的时候，它也必须被拆除和移除。
+
+雕像倒下时，传来了破裂和钻孔的声音，但没有人看到发生了什么。对许多人来说，突然搬迁就像是对这座城市身份的又一次侮辱。
+
+来源：[https://www.rebelnews.com/hong\_kong\_authorities\_remove\_monument\_commemorating\_tianamen\_square\_massacre](https://www.rebelnews.com/hong_kong_authorities_remove_monument_commemorating_tianamen_square_massacre)
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

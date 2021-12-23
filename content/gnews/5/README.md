@@ -2,60 +2,32 @@
 ---
 
 
-## 灭共者之郭氏情报站（六）12月22日版
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1784804/)
+## 马斯克又出奇招，变二氧化碳为火箭燃料
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1785073/)
 
-**出品：纽约香草山设计部**
+**翻译：Sara9**
+**编辑：守望黎明**
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/MuskMars1.jpeg)图片来源：Business Insider
 
+Space X 的首席执行官埃隆・马斯克（Elon Musk）说，他的公司计划把二氧化碳转化为火箭燃料。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+马斯克在推特上说：“SpaceX 正在启动一项计划，将二氧化碳从大气中提取出来，并将其转化为火箭燃料。有兴趣的人欢迎加入。” 他还补充说，这一行动“对火星之行也很重要”，因为这将可以利用火星大气作为未来的燃料来源——这对从火星到地球漫长的回家之路是必须的。亚利桑那州立大学报告称，火星大气中二氧化碳占了95% 。
 
+再回到地球，科学家们将二氧化碳转化为可用燃料的研究也在进行中。根据《大众机械》（Popular Mechanics）的报道，航空公司的首席技术官兼联合创始人斯塔福德・希恩（Stafford Sheehan）解释说：“现在，火箭燃料中无论是  RP-1还是甲烷，构成它们的碳氢化合物都来自地下的化石燃料。在 Space X 的猎鹰 9 中也使用 RP-1。我们现在的二氧化碳出自生物性来源，是生产工业酒精的副产品。但是，我们将来可以使用空气中的二氧化碳制造这些碳氢化合物。我们可以从任何途径获得二氧化碳，包括直接从空气中获取。”
 
+希恩补充说：“直接从大气中获取二氧化碳这一点，对于火箭燃料特别有意义——如果我们把以二氧化碳为基础的燃料用于火箭发射，每次发射就等于向大气少排放715 吨二氧化碳。”
 
+原文链接：[Musk Plans to Convert Greenhouse Gas Into Rocket Fuel](https://www.newsmax.com/scitech/elon-musk-spacex-mars-greenhouse/2021/12/20/id/1049430/)
 
+*发布：盘古相聚*
 
-
-
-
-
-## **灭共者之**郭氏情报站- ** 2021年12月22日**文贵大直播总结提炼：
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-E355EDE0-5408-42EE-BF67-EBC945FF0A8C.jpg)
-**一、中共大外宣媒体Vice记者伊莎贝尔·杨（杨贝贝）在对郭先生的视频中，恶意剪辑以掩盖真相，蔑视、撒谎，制造种族歧视，打击爆料革命。**针对杨贝贝、HBO、VICE、TPG、PAG对爆料革命和战友的污蔑攻击，战友们要拿起法律武器进行自卫反击，一定要多国起诉。法制基金将会百分之百支持战友们的诉讼，绝不会妥协。
-
-**二、新冠疫苗接种给人类带来巨大灾难。**中共新病毒Omicron在全球范围内释放，多个地区同时迅速传播扩散，病源不是非洲。得病后果严重程度被低估，毒素绝对超出大家的想象。伊维菌素、青蒿素目前对Omicron不是绝对管用。没有热毒，是疫苗综合症导致热出血。
-
-**三、爆料革命清楚掌握彭帅的情况。**彭帅被迫澄清，她从未说过或写过遭任何人性侵。彭帅一定会消失，张高丽某天也会消失。抵制冬奥会最新消息：习近平要求高度保持一致，所有媒体都要控制，不惜一切代价，取消反奥运会的杂音。中国人民将白白付出几千亿美元，为习皇帝搞一场政治奥运会。
-
-**上一期：**
-
-[**\[灭共者之郭氏情报站（五）12月19日版 – GNEWS\](https://gnews.org/zh-hans/1775444/)**](https://gnews.org/zh-hans/1769041/)
-
-
-
-**编辑/发稿：小鹿**
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-2.png)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
-
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
