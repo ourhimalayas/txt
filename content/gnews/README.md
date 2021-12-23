@@ -15,116 +15,116 @@
 
 ---
 
-### [东京中共病毒(新冠病毒)感染入院人数较上周几乎翻倍](/content/gnews/1/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [为防土地不当使用，日本内阁专设部门全面摸底重要区域领土](/content/gnews/2/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [HBO Vice Isobel Yeung记者骗取美籍华人采访，影片被剪接编辑成暴徒](/content/gnews/3/README.md)
- ` G-NEWS TAIWAN`
-
-### [日本加大预算总额剑指中共技术剽窃](/content/gnews/4/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [追杀”又喊打，薇娅逃税遭劫难](/content/gnews/5/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [强制疫苗一定会在两个月内被停止](/content/gnews/6/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [12/22/2021 文贵直播：中共谈判专家轮番上阵，以国家的名义威胁彭帅，并打着关心她身心健康的幌子，威胁将其变成精神病；习近平、韩正和栗战书在玉泉山接见彭帅并要她对全世界说谎！](/content/gnews/7/README.md)
+### [12/22/2021 文贵直播：中共在国际媒体界一手遮天，安排了5家媒体采访彭帅；中共举一国之力掩盖彭帅事件的真相与当年炮制马蕊强奸案来陷害文贵的手段如出一辙](/content/gnews/1/README.md)
  ` 秘密翻译组-北美组`
 
-### [2021/12/23 大卫作战室直播精要](/content/gnews/8/README.md)
+### [美25个州起诉拜登政府针对学前儿童的戴口罩强制令](/content/gnews/2/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [一旦西藏、新疆独立 中共周边国家定会群起而攻之](/content/gnews/9/README.md)
+### [东京中共病毒(新冠病毒)感染入院人数较上周几乎翻倍](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [DC大中华时事：香港名校爆退学潮，退学率逾12%](/content/gnews/10/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [12/23/21 香港快讯 国殇之柱「斩件」装箱运走 校委会：续展示或犯法 高志活：震惊](/content/gnews/4/README.md)
+ ` 英喜-粵語組`
 
-### [没有新中国联邦 不可能有西藏独立法案](/content/gnews/11/README.md)
+### [为防土地不当使用，日本内阁专设部门全面摸底重要区域领土](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [杨洁篪和王毅被美国定为最危险人物](/content/gnews/12/README.md)
+### [HBO Vice Isobel Yeung记者骗取美籍华人采访，影片被剪接编辑成暴徒](/content/gnews/6/README.md)
+ ` G-NEWS TAIWAN`
+
+### [日本加大预算总额剑指中共技术剽窃](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [战友打榜证明我们的战友无处不在 所有打榜收入捐给法治基金](/content/gnews/13/README.md)
+### [追杀”又喊打，薇娅逃税遭劫难](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2021年度《我是音雄》总决赛震撼来袭](/content/gnews/14/README.md)
- ` 我是音雄`
-
-### [英特尔强迫拒绝接种疫苗的员工无薪休假](/content/gnews/15/README.md)
- ` GTV新闻访谈`
-
-### [中共又有30多家实体被美商务部拉黑，涉及大脑控制武器](/content/gnews/16/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中国这个民族特勤劳 却被共产党奴役 人人互害](/content/gnews/17/README.md)
+### [强制疫苗一定会在两个月内被停止](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [12/22/2021 文贵直播：国家安全委员会派北京市国安局的紧急处理小组动用谈判专家，采取时而威胁时而示弱的卑鄙手段处理彭帅事件](/content/gnews/18/README.md)
+### [12/22/2021 文贵直播：中共谈判专家轮番上阵，以国家的名义威胁彭帅，并打着关心她身心健康的幌子，威胁将其变成精神病；习近平、韩正和栗战书在玉泉山接见彭帅并要她对全世界说谎！](/content/gnews/10/README.md)
  ` 秘密翻译组-北美组`
 
-### [CCP大外宣猫女郎，谁派你来的？](/content/gnews/19/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [2021/12/23 大卫作战室直播精要](/content/gnews/11/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [习近平只相信自己家人 搞家天下治国](/content/gnews/20/README.md)
+### [一旦西藏、新疆独立 中共周边国家定会群起而攻之](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [八年一轮回 经济循环新旧更迭](/content/gnews/21/README.md)
+### [DC大中华时事：香港名校爆退学潮，退学率逾12%](/content/gnews/13/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [没有新中国联邦 不可能有西藏独立法案](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [加州强制要求当地工作人员接种疫苗加强针](/content/gnews/22/README.md)
+### [杨洁篪和王毅被美国定为最危险人物](/content/gnews/15/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [战友打榜证明我们的战友无处不在 所有打榜收入捐给法治基金](/content/gnews/16/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [2021年度《我是音雄》总决赛震撼来袭](/content/gnews/17/README.md)
+ ` 我是音雄`
+
+### [英特尔强迫拒绝接种疫苗的员工无薪休假](/content/gnews/18/README.md)
  ` GTV新闻访谈`
 
-### [以色列强行推动第四针疫苗接种工作](/content/gnews/23/README.md)
+### [中共又有30多家实体被美商务部拉黑，涉及大脑控制武器](/content/gnews/19/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [中国这个民族特勤劳 却被共产党奴役 人人互害](/content/gnews/20/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [12/22/2021 文贵直播：国家安全委员会派北京市国安局的紧急处理小组动用谈判专家，采取时而威胁时而示弱的卑鄙手段处理彭帅事件](/content/gnews/21/README.md)
+ ` 秘密翻译组-北美组`
+
+### [CCP大外宣猫女郎，谁派你来的？](/content/gnews/22/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [习近平只相信自己家人 搞家天下治国](/content/gnews/23/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [八年一轮回 经济循环新旧更迭](/content/gnews/24/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [加州强制要求当地工作人员接种疫苗加强针](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [西藏的战略位置](/content/gnews/24/README.md)
+### [以色列强行推动第四针疫苗接种工作](/content/gnews/26/README.md)
+ ` GTV新闻访谈`
+
+### [西藏的战略位置](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [MV版Hcoin To the Moon上线第14天位列6国iTunes摇滚MV榜首](/content/gnews/25/README.md)
+### [MV版Hcoin To the Moon上线第14天位列6国iTunes摇滚MV榜首](/content/gnews/28/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [不要想当然认为 新中国联邦接管中国了 一切由中国人决定](/content/gnews/26/README.md)
+### [不要想当然认为 新中国联邦接管中国了 一切由中国人决定](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [喜马拉雅是人类的诺亚方舟](/content/gnews/27/README.md)
+### [喜马拉雅是人类的诺亚方舟](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [里根研究所所长谈美国公司屈服于中共，拜登对中共立场软弱](/content/gnews/28/README.md)
+### [里根研究所所长谈美国公司屈服于中共，拜登对中共立场软弱](/content/gnews/31/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [【Michael.Tonny专栏】接种中共病毒毒疫苗只会加重病情 带来更多死亡](/content/gnews/29/README.md)
+### [【Michael.Tonny专栏】接种中共病毒毒疫苗只会加重病情 带来更多死亡](/content/gnews/32/README.md)
  ` 温哥华扬帆农场`
 
-### [新西兰财经G乐部2021年12月23日:财经新闻整理](/content/gnews/30/README.md)
- ` Finance-GCLUB【新西兰财经G乐部】`
-
-### [德国军舰穿越南海维护国际自由航行秩序](/content/gnews/31/README.md)
+### [德国军舰穿越南海维护国际自由航行秩序](/content/gnews/33/README.md)
  ` GTV新闻访谈`
 
-### [中共用巨额贷款控制拉美国家的政治和军事](/content/gnews/32/README.md)
+### [中共用巨额贷款控制拉美国家的政治和军事](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [英国首例Omicron死亡事件缺乏透明度引众怒](/content/gnews/33/README.md)
+### [英国首例Omicron死亡事件缺乏透明度引众怒](/content/gnews/35/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [秘翻在线：中共称美方发起贸易战是杀敌八百自损一千　关税下降已成定局](/content/gnews/34/README.md)
+### [秘翻在线：中共称美方发起贸易战是杀敌八百自损一千　关税下降已成定局](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [新西兰财经G乐部2021年12月22日:财经新闻整理](/content/gnews/35/README.md)
+### [新西兰财经G乐部2021年12月22日:财经新闻整理](/content/gnews/37/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
-
-### [腾讯和阿里巴巴跌出全球市值前十名](/content/gnews/36/README.md)
- ` 墨尔本雅典娜农场`
-
-### [中国西安市因中共病毒扩散 23日开始封城](/content/gnews/37/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [新西兰财经G乐部2021年12月21日:财经新闻整理](/content/gnews/38/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`

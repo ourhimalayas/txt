@@ -2,35 +2,36 @@
 ---
 
 
-## 英国首例Omicron死亡事件缺乏透明度引众怒
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1783716/)
+## 德国军舰穿越南海维护国际自由航行秩序
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1783724/)
 
-本文作者：Rebecca (一切心皆不可得！)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image001-20.png)
-鲍里斯-约翰逊（Boris Johnson）在访问伦敦西部帕丁顿的一家疫苗接种诊所时透露了英国第一例因奥米克戎（Omicron）死亡的案例。
+作者：东京樱花团 – 在远方
 
-迄今为止，这也是世界首例奥米克戎死亡案例。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-英国卫生安全局（UKHSA）透露，死者是在医院被诊断的。
+当地时间12月22日，据台湾媒体报道，德国海军司令薛恩-巴赫于本周二表示，德国军舰“巴伐利亚”号日前已经穿越南海，并于20日抵达新加坡。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/5-32.jpg)
+巴赫在致辞时提及，德国此番将为维护太平洋地区的国际秩序做出具体贡献，同时，德国也希望通过此举进一步深化与区域内国家的安全与防卫关系。
 
-但这起世界首例奥米克戎死亡事件缺乏透明度，引起了公众的愤怒。
+巴赫指出，当前，中共正在利用自身的政治权力以及剥削来的财富对国际秩序造成压力。虽然海牙国际法院已经裁定，中共在南海的主权声索毫无法律依据，但中共仍然主张其主权涵盖南海的大部分海域，甚至还在南海的人工岛礁上建立了自己的军事据点，引起区域争端。
 
-2021年12月13日, 星期一，抗议接种疫苗的人们在伦敦议会大厦外示威。（如图所示）
+巴赫强调，德国的印太政策是基于国际标准和国际法，并且将一直信守自由及开放的印太地区的承诺。为此，德国计划扩大在印太地区的军事部署，并将与新加坡、日本和韩国商讨，设立非永久性的后勤支援中心，协助德国军舰在印太地区的部署行动。
 
-医学教授和肿瘤顾问克罗尔.西科拉（Karol Sikora）说，政府没有向国家提供关于这起死亡的足够信息。比如，死者的年龄、疫苗接种情况、住院原因、健康状况、甚至连奥米克戎是致死主因，还是有潜在健康状况都没有提及。
+参考链接: [德海軍司令：巴伐利亞號穿越南海 助維護國際秩序](https://cn.rti.org.tw/news/view/id/2120086)
 
-政府应该公布更多这起死亡案例的细节以阻止 “不必要的恐慌”，让人们放心。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-12月15日，卫生部门负责人透露，已经有10位英国人因奥米克戎住院治疗。
+总编：飞虹
+编辑：Kathy文艺
+校正/发稿：Fei797
 
-英国卫生安全局（UKHSA）证实，所有这些人的年龄都在18-85岁之间，大多数患者已接种了两剂新冠疫苗，但拒绝透露他们是否打了加强针。
-
-[新闻来源链接](https://www.sott.net/article/462014-Fury-over-lack-of-transparency-on-UKs-first-Omicron-death-was-victim-fully-jabbed-and-vulnerable)
-
-审核校对：sherryok (水云间)
-
-上传排版：漂流瓶
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
