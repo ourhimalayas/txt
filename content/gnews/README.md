@@ -15,161 +15,161 @@
 
 ---
 
-### [加拿大保守党国会议员迈克尔-库珀：中共通过军事压力挑衅、恐吓民主台湾，加拿大是时候发声了，与台湾站在一起！](/content/gnews/1/README.md)
+### [G时评217期（12.22）直播摘要：大外宣/以色列/马斯克](/content/gnews/1/README.md)
+ ` GISELLE`
+
+### [立陶宛总理与布林肯通话 讨论中共国立陶宛](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [卖房筹钱治病潮即将来临](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [土耳其的加密货币交易在里拉困境中创新高](/content/gnews/4/README.md)
+ ` 纽约香草山MOS02`
+
+### [【中日财经爆】欧盟将对中共国铝箔征收额外关税](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [欧盟将对中共国铝箔征收额外关税](/content/gnews/6/README.md)
+ ` 纽约香草山MOS02`
+
+### [【中日财经爆】新力地产发公告将债务违约](/content/gnews/7/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [加拿大保守党国会议员迈克尔-库珀：中共通过军事压力挑衅、恐吓民主台湾，加拿大是时候发声了，与台湾站在一起！](/content/gnews/8/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [中国电信在美运营授权被撤后，将继续提供部分服务](/content/gnews/2/README.md)
+### [加拿大警察因疫苗强制接种辞职](/content/gnews/9/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [中国电信在美运营授权被撤后，将继续提供部分服务](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [盗国贼的海外伎俩](/content/gnews/3/README.md)
+### [盗国贼的海外伎俩](/content/gnews/11/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [美最高法院同意听取对拜登疫苗强制令的质疑](/content/gnews/4/README.md)
+### [美最高法院同意听取对拜登疫苗强制令的质疑](/content/gnews/12/README.md)
  ` HimalayaRussia`
 
-### [日本将对中共病毒Omicron密接者实施14天隔离措施](/content/gnews/5/README.md)
+### [日本将对中共病毒Omicron密接者实施14天隔离措施](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [英国单日新增感染中共病毒超10万人，连续5天创新高](/content/gnews/6/README.md)
+### [英国单日新增感染中共病毒超10万人，连续5天创新高](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [议员集体质询拜登，何时结束对疫苗制造商法律豁免权](/content/gnews/7/README.md)
+### [议员集体质询拜登，何时结束对疫苗制造商法律豁免权](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [港交所推出SPAC，中共开启新的金融诈骗通道](/content/gnews/8/README.md)
+### [港交所推出SPAC，中共开启新的金融诈骗通道](/content/gnews/16/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [文·贵天成——文贵先生谈“中原佛手、裕达国贸”（十三）](/content/gnews/9/README.md)
+### [文·贵天成——文贵先生谈“中原佛手、裕达国贸”（十三）](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [亚马逊与中国共产党合作进行宣传](/content/gnews/10/README.md)
+### [亚马逊与中国共产党合作进行宣传](/content/gnews/18/README.md)
  ` MG FARM`
 
-### [秘翻在线：佛罗里达州政府将重点清理在中共国投资的公共养老基金](/content/gnews/11/README.md)
+### [秘翻在线：佛罗里达州政府将重点清理在中共国投资的公共养老基金](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中国这个民族特勤劳 却被共产党奴役, 人人互害](/content/gnews/12/README.md)
+### [中国这个民族特勤劳 却被共产党奴役, 人人互害](/content/gnews/20/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [加州大学欧文分校解雇拒绝接种疫苗的教授被起诉](/content/gnews/13/README.md)
+### [加州大学欧文分校解雇拒绝接种疫苗的教授被起诉](/content/gnews/21/README.md)
  ` 向真`
 
-### [特勤局调查被盗的新冠救济资金超过 1000 亿美元](/content/gnews/14/README.md)
+### [特勤局调查被盗的新冠救济资金超过 1000 亿美元](/content/gnews/22/README.md)
  ` MG FARM`
 
-### [淘宝带货一姐薇娅因偷漏税被罚14.61亿人民币](/content/gnews/15/README.md)
+### [淘宝带货一姐薇娅因偷漏税被罚14.61亿人民币](/content/gnews/23/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [米勒先生通过演讲成功向欧洲议员推广盖特](/content/gnews/16/README.md)
- ` GTV新闻访谈`
-
-### [波士顿宣布新的疫苗要求](/content/gnews/17/README.md)
- ` GTV新闻访谈`
-
-### [安大略省适逢圣诞节宣布新的新冠限制](/content/gnews/18/README.md)
- ` MG FARM`
-
-### [中共西藏谎言系列之一：西藏人口增长](/content/gnews/19/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [韩国企业抗议恢复严格的COVID规则](/content/gnews/20/README.md)
- ` 纽约香草山MOS02`
-
-### [彭丽媛的情人原来是他](/content/gnews/21/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [2021/12/22 大卫作战室直播精要](/content/gnews/22/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [大料！Isobel Yeung的污蔑视频是北京欲取消中美贸易关税的阴谋](/content/gnews/23/README.md)
- ` YALUN 亚伦`
-
-### [币圈新闻 &#8211; 第209期](/content/gnews/24/README.md)
- ` 【🌹玫瑰新闻】`
-
-### [美国今年11月的通胀指数升至6.8%](/content/gnews/25/README.md)
- ` 纽约香草山MOS02`
-
-### [前奥运选手呼吁加拿大运动员抵制北京冬奥会](/content/gnews/26/README.md)
- ` MG FARM`
-
-### [12月22号文贵直播：战友亲述与杨贝贝接触的经历以及视频对他们造成的伤害](/content/gnews/27/README.md)
- ` 秘密翻译组-原创组`
-
-### [文·贵天成——文贵先生谈“中原佛手、裕达国贸”（十一）](/content/gnews/28/README.md)
- ` 墨尔本雅典娜农场`
-
-### [2021.12.21 墙内世界](/content/gnews/29/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [12月22日文贵大直播： Omicron危险性比想象大得多 伊维菌素和青蒿素对其有些不是100%管用](/content/gnews/30/README.md)
- ` 秘密翻译组-原创组`
-
-### [佛州州长开始行动：佛州养老基金将与中共脱钩](/content/gnews/31/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [德克萨斯州首次确认美国 Omicron 死亡](/content/gnews/32/README.md)
- ` wenwu`
-
-### [秘翻在线: 疫情严重，古城西安封城](/content/gnews/33/README.md)
+### [短兵相接：中共大外宣再次大肆抹黑郭文贵先生和爆料革命或是好事](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国特勤局:犯罪分子窃取约1000亿的疫情救济金](/content/gnews/34/README.md)
- ` wenwu`
+### [米勒先生通过演讲成功向欧洲议员推广盖特](/content/gnews/25/README.md)
+ ` GTV新闻访谈`
 
-### [DC每日热点1222](/content/gnews/35/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [波士顿宣布新的疫苗要求](/content/gnews/26/README.md)
+ ` GTV新闻访谈`
 
-### [拜登承认他的疫苗强制令不受欢迎](/content/gnews/36/README.md)
- ` HimalayaRussia`
+### [安大略省适逢圣诞节宣布新的新冠限制](/content/gnews/27/README.md)
+ ` MG FARM`
 
-### [文贵爆料 12.22：VICE虚假的采访报道——谁在拨动媒体的琴弦](/content/gnews/37/README.md)
- ` 秘密翻译组-原创组`
+### [中共西藏谎言系列之一：西藏人口增长](/content/gnews/28/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【文贵先生大直播PPT】疫苗大灾难](/content/gnews/38/README.md)
- ` Mr. Miles Guo's News Briefing`
+### [韩国企业抗议恢复严格的COVID规则](/content/gnews/29/README.md)
+ ` 纽约香草山MOS02`
 
-### [Đảng Cộng Sản Trung Quốc đã xâm nhập nghiêm trọng vào quân đội Đài Loan, và an ninh của Thái Anh Văn cũng nằm trong đó](/content/gnews/39/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [彭丽媛的情人原来是他](/content/gnews/30/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [人类从来没有像今天这样被共产主义玩成这样](/content/gnews/40/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [2021/12/22 大卫作战室直播精要](/content/gnews/31/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [共中共拿了10000亿美元现金给俄罗斯就是抗美](/content/gnews/41/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [12/22每日播报｜数十名国会议员在有中共背景的非营利组织做顾问](/content/gnews/42/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [美俄联手让习近平更加疯狂 更加有利于我们灭共](/content/gnews/43/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [【#G时新闻】 顶级心脏病专家警告：新冠疫苗比新冠病毒更危险!](/content/gnews/44/README.md)
- ` G-时新闻`
-
-### [12/22/2021 国际财经快讯：西班牙简化破产程序以获得欧盟复苏资金；尽管有中共病毒奥密克戎变异的威胁，亚洲股市仍然走高](/content/gnews/45/README.md)
- ` 秘密翻译组金融团队`
-
-### [新闻述评：日本公布老布什对天安门事件的忧虑用意何为](/content/gnews/46/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美国国务卿支持立陶宛对抗中共](/content/gnews/47/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [地方政府财政枯竭，乱收费、乱摊派、乱罚款现象频出](/content/gnews/48/README.md)
- ` 墨尔本雅典娜农场`
-
-### [韩国政府屈服于中共的压力，当日取消了唐风的演讲](/content/gnews/49/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共国向日本使馆客人施压，取消了交流活动](/content/gnews/50/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [北京冬奥会脚本提前剧透，丧事喜办愚外患，布置重兵防内乱](/content/gnews/51/README.md)
+### [大料！Isobel Yeung的污蔑视频是北京欲取消中美贸易关税的阴谋](/content/gnews/32/README.md)
  ` YALUN 亚伦`
 
-### [中共严重渗透台湾军方，蔡英文安保也在内](/content/gnews/52/README.md)
+### [币圈新闻 &#8211; 第209期](/content/gnews/33/README.md)
+ ` 【🌹玫瑰新闻】`
+
+### [12月22号文贵直播：战友亲述与杨贝贝接触的经历以及视频对他们造成的伤害](/content/gnews/34/README.md)
+ ` 秘密翻译组-原创组`
+
+### [2021.12.21 墙内世界](/content/gnews/35/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [12月22日文贵大直播： Omicron危险性比想象大得多 伊维菌素和青蒿素对其有些不是100%管用](/content/gnews/36/README.md)
+ ` 秘密翻译组-原创组`
+
+### [佛州州长开始行动：佛州养老基金将与中共脱钩](/content/gnews/37/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [德克萨斯州首次确认美国 Omicron 死亡](/content/gnews/38/README.md)
+ ` wenwu`
+
+### [秘翻在线: 疫情严重，古城西安封城](/content/gnews/39/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [美国特勤局:犯罪分子窃取约1000亿的疫情救济金](/content/gnews/40/README.md)
+ ` wenwu`
+
+### [文贵爆料 12.22：VICE虚假的采访报道——谁在拨动媒体的琴弦](/content/gnews/41/README.md)
+ ` 秘密翻译组-原创组`
+
+### [【文贵先生大直播PPT】疫苗大灾难](/content/gnews/42/README.md)
+ ` Mr. Miles Guo's News Briefing`
+
+### [人类从来没有像今天这样被共产主义玩成这样](/content/gnews/43/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
+
+### [共中共拿了10000亿美元现金给俄罗斯就是抗美](/content/gnews/44/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [12/22每日播报｜数十名国会议员在有中共背景的非营利组织做顾问](/content/gnews/45/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [美俄联手让习近平更加疯狂 更加有利于我们灭共](/content/gnews/46/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [【#G时新闻】 顶级心脏病专家警告：新冠疫苗比新冠病毒更危险!](/content/gnews/47/README.md)
+ ` G-时新闻`
+
+### [12/22/2021 国际财经快讯：西班牙简化破产程序以获得欧盟复苏资金；尽管有中共病毒奥密克戎变异的威胁，亚洲股市仍然走高](/content/gnews/48/README.md)
+ ` 秘密翻译组金融团队`
+
+### [新闻述评：日本公布老布什对天安门事件的忧虑用意何为](/content/gnews/49/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美国国务卿支持立陶宛对抗中共](/content/gnews/50/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [韩国政府屈服于中共的压力，当日取消了唐风的演讲](/content/gnews/51/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [北京冬奥会脚本提前剧透，丧事喜办愚外患，布置重兵防内乱](/content/gnews/52/README.md)
+ ` YALUN 亚伦`
 
 ### [“千人计划”参与者哈佛教授利伯今被判有罪](/content/gnews/53/README.md)
  ` HimalayaRussia`

@@ -2,21 +2,29 @@
 ---
 
 
-## 【文贵先生大直播PPT】疫苗大灾难
-` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1781442/)
+## 德克萨斯州首次确认美国 Omicron 死亡
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1781738/)
 
-撰稿：飞飞（DC) Now 小哥（香草山）庚子灭共（DC）莲心不染（扬帆）
-美工：青山（英喜）
+**编译：西班牙巴塞罗那喜悦农场-wenwu**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/tempsnip03-3.png)人们在德克萨斯州休斯顿的 Covid-19 疫苗诊所前等待并签署豁免。
+照片：布兰登贝尔/盖蒂图片社。
+周一（20日），德克萨斯州的哈里斯县[报告](https://publichealth.harriscountytx.gov/Portals/27/Documents/HCPH%20Reports%20First%20Omicron%20Related%20Death%20sm.pdf?ver=oK77qT2qjHEIryPPhgBoog==)了美国第一例因感染 Omicron 变体而确认的死亡；12月13日，英国[报告](https://www.reuters.com/world/uk/britain-says-omicron-spreading-phenomenal-rate-2021-12-13/)了世界上第一例感染 Omicron 变体的死亡案例。
 
-【2021年12月22日文贵先生大直播PPT：疫苗大灾难】
-![](https://assets.gnews.org/wp-content/uploads/2021/12/11-10.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/12-9.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/13-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/14-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/15-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/16-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/17-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/18-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/19-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/20-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/21-11.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/22-12.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/23-9.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/24-9.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/25-8.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/26-6.jpg)
-**Omicron 从实验室里释放的证据的相关信息源链接：**
+**简评：**
 
-1.[https://rumble.com/vqy7qe-dr.-peter-mccullough-on-nfl-protocols-pregnancy-omicron-and-more.html](https://rumble.com/vqy7qe-dr.-peter-mccullough-on-nfl-protocols-pregnancy-omicron-and-more.html)2.[https://rwmalonemd.substack.com/p/has-omicron-shifted-receptor-binding?r=ta0o1&utm\_campaign=post&utm\_medium=web](https://rwmalonemd.substack.com/p/has-omicron-shifted-receptor-binding?r=ta0o1&amp;utm_campaign=post&amp;utm_medium=web)3.[https://frenchdailynews.com/health/3691-omicron-the-molecular-analysis-of-pr-jacques-fantini 4.https://rwmalonemd.substack.com/p/omicron-today?r=ta0o1&utm\_campaign=post&utm\_medium=web](https://frenchdailynews.com/health/3691-omicron-the-molecular-analysis-of-pr-jacques-fantini%204.https://rwmalonemd.substack.com/p/omicron-today?r=ta0o1&amp;utm_campaign=post&amp;utm_medium=web)5.[https://www.cbsnews.com/news/omicron-variant-covid-in-europe-netherlands-before-alert-raised/ 6.https://www.cnbc.com/2021/12/02/where-did-omicron-covid-variant-come-from-and-where-is-it-circulating.html 7.https://www.who.int/news/item/26-11-2021-classification-of-omicron-(b.1.1.529)-sars-cov-2-variant-of-concern](https://www.cbsnews.com/news/omicron-variant-covid-in-europe-netherlands-before-alert-raised/%206.https://www.cnbc.com/2021/12/02/where-did-omicron-covid-variant-come-from-and-where-is-it-circulating.html%207.https://www.who.int/news/item/26-11-2021-classification-of-omicron-%28b.1.1.529%29-sars-cov-2-variant-of-concern)8.[https://twitter.com/P\_McCulloughMD/status/1473299558281191433?s=20 https://www.msn.com/en-us/health/medical/most-omicron-cases-in-us-have-been-mild-but-most-were-vaccinated-cdc-reports/ar-AARGOxE](https://twitter.com/P_McCulloughMD/status/1473299558281191433?s=20%20https://www.msn.com/en-us/health/medical/most-omicron-cases-in-us-have-been-mild-but-most-were-vaccinated-cdc-reports/ar-AARGOxE) 9.[https://www.msn.com/en-us/health/medical/most-omicron-cases-in-us-have-been-mild-but-most-were-vaccinated-cdc-reports/ar-AARGOxE 10.https://www.voiceforscienceandsolidarity.org/videos-and-interviews/geert-vanden-bossche-speaks-about-omicron-and-mass-vaccination-at-dana-show](https://www.msn.com/en-us/health/medical/most-omicron-cases-in-us-have-been-mild-but-most-were-vaccinated-cdc-reports/ar-AARGOxE%2010.https://www.voiceforscienceandsolidarity.org/videos-and-interviews/geert-vanden-bossche-speaks-about-omicron-and-mass-vaccination-at-dana-show)
+**七哥今日直播特别指出，此次 Omicron 因为出现死亡后需要特别关注。三票先生（[@Mr3rights](https://gettr.com/post/pkdgf43e32)）在盖特上也分享重要信息：中共释放看似温和的Omicron毒株，误导人们以为感染Omicron不一定是坏事，其实这是个阴险的陷阱。事实上 Omicron 病症可能会变得更严重，所有被感染过新冠病毒的人如不进行排毒治疗，将面临50%罹患癌症的风险。**
+
+**也就说，新的一波疫情将是一场针对疫苗接种者的生命的收割“PARTY”。
+**
+**新闻来源**：[axios.com] [First confirmed U.S. Omicron death recorded in Texas](https://www.axios.com/first-confirmed-us-omicron-death-texas-006fb75d-0a84-45bb-b1db-816ba5ca0226.html) | 发布时间：2021年12月21日｜
 
 * * *
 
-发稿：云起时
+***发稿：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GNEWS_CH.-1-3-1.jpeg)
+
+
 
  
 

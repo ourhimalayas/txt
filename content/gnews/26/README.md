@@ -2,80 +2,34 @@
 ---
 
 
-## 前奥运选手呼吁加拿大运动员抵制北京冬奥会
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1781870/)
+## 波士顿宣布新的疫苗要求
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1782013/)
 
-作者：Doyle Potenteau
-翻译：KK
+作者：纽约香草山福音部 –lilian89
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月20日，波士顿市长发布声明表示，该市即将对室内餐饮、健身和娱乐场所实行新的中共病毒疫苗要求，同时政府将加强对该市一万八千名工人的疫苗接种任务。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-23-上午7.45.39.png)
+有关报道显示，该项新规定要求，自2022年1月15日起，该市相关场所12岁以上的顾客将被要求出示中共病毒疫苗的接种证明。而自明年3月1日起，这项规则将延伸至5岁以上的儿童群体。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-283.jpg)
+此外，该市还要求其一万八千名政府雇员在截止日期前完成中共病毒疫苗的接种。为此，波士顿政府取消了雇员可以选择定期接受病毒检测而不需要接种疫苗的规定。该规定还明确，所有未接种中共病毒疫苗的雇员将失去现有的工作机会。
 
-一位前奥运选手表示，加拿大的运动员应该与该国的大使和政界人士一起抵制即将举行的北京冬季奥运会。
+对此，波士顿反对强制疫苗令的团体在一份声明中强调，政府没有权利中止、削减或取消美国公民和工人的权利，相反的，每个人都应该有权利选择是否接种中共病毒疫苗。而共和党州长候选人杰夫-迪尔也发表评论称，这些政策明显地侵犯了所有在该市居住、工作或旅行的人的公民权利，这将使波士顿更难从大流行病中恢复。
 
-曾在 2006 年都灵冬奥会和 2010 年温哥华冬奥会上参加单板滑雪比赛卑诗省的德鲁尼尔森说，运动员想要在一个以侵犯人权着称的国家参加比赛是不合情理的。
+参考链接：[Boston Implementing Proof of Vaccination Requirement for Restaurants, Other Indoor Venues](https://www.nbcboston.com/news/local/mayor-wu-to-update-bostons-covid-response-monday/2594963/)
 
-本月早些时候，美国、澳大利亚、加拿大和英国宣布对北京奥运会进行外交抵制，称运动员可以去，但政界人士和政要要留在家里。
+![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
-加拿大总理贾斯汀·特鲁多 (Justin Trudeau) 12 月 8 日表示：“过去多年来，我们一直非常清楚我们对侵犯人权行为的深切关注，这是我们对侵犯人权行为深切关注的延续。”
+总编：Jack Li文阳
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-从未在奥运会上获得奖牌的尼尔森说，加拿大的抵制也应该包括该国的运动员。
-
-“我只是认为这是一种逃避。当被问及加拿大的抵制时，尼尔森回答说，对于我们作为这个星球上的人类想要说的话，这是一个非常软弱的声明。
-
-尼尔森说，加拿大人应该富有同情心，看看世界其他地方正在发生什么。此外，他指出加拿大正在进行和解，但重申该国正在派遣一个运动员代表团前往一个已知危害人类罪的国家。
-
-“（在中国的危害人类罪）清单不胜枚举，”尼尔森说。“如果（我们）看看冠状病毒发生了什么，他们向世界隐瞒了 30 天。
-
-“像这样记录在案的东西，我们不能让他们逍遥法外。而对于运动员来说，我很反感他们都可以对此视而不见，去那里争夺奖牌，这样他们就可以从中获利，满足他们的比赛欲望。”
-
-他补充说：“我不明白，我完全不明白。”
-
-尼尔森被直截了当地问他是否还在比赛，他会去吗？
-
-“绝对不会，”在弗农长大但现在住在温哥华的尼尔森说。“人类比金牌或金属片更重要。”
-
-此外，尼尔森说他以前从未讨论过的一个方面是运动员的安全。两个月前迈克尔斯的两场传奇已经结束，他想知道加拿大运动员在中国是否会安全。
-
-“如果他们拘留来自另一个国家的人怎么办？” 尼尔森问道。“如果一个运动员站在领奖台上，拉起他们的衬衫，上面有一个‘自由西藏’（标志）怎么办？他们会怎么样？”
-
-尼尔森指出，作为一名前奥运选手，他不必权衡竞争或抵制的艰难决定，他完全意识到许多人可能不同意他的观点。
-
-“我这样做不是为了宣传或经济利益。我这样做是因为我认为这是正确的，”尼尔森说。“无论是不是更晚，或者人们是否会称我为笨蛋或说，’这个人是谁？他没有任何奖牌，’或者’我们为什么要听这个人说话？
-
-“这是关于人权的。这是关于为世界上受苦的人们做正确的事。”
-
-12 月 6 日，在美国，白宫新闻秘书珍·普萨基表示，美国不会向中国派遣任何外交代表参加奥运会，并表示“我们有促进人权的基本承诺”，后来又补充说“我们要为参加奥运会而终生训练的运动员肩负着全球外交的责任。”
-
-尼尔森说，运动员可以选择通过国际奥委会运动员委员会进行抵制，该委员会是运动员和国际奥委会之间的纽带。
-
-“这是在运动员的肩上，”尼尔森说。“他们有一个运动员委员会。
-
-“一个很好的问题是问海莉·维肯海瑟，他是国际奥委会运动员委员会的成员。我想知道她对在这个残暴政权下在这个国家举办的奥运会有何看法。”
-
-尼尔森声称已经联系了几位将在北京比赛的运动员，但尚未收到他们的回复。
-
-“我为那些 1980 年的运动员感到抱歉，但我认为这是正确的做法。我们不能像这样支持侵略。我们不能让这种事情发生。”
-
-全球新闻已联系加拿大奥委会征求意见。
-
-来源：https://globalnews.ca/news/8467316/former-olympian-boycott-beijing-winter-games/amp/
-
-（文章仅代表作者个人观点）
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

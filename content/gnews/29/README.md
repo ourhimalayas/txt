@@ -2,29 +2,52 @@
 ---
 
 
-## 2021.12.21 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1781798/)
+## 韩国企业抗议恢复严格的COVID规则
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1781992/)
 
-1. 12月21日，陕西西安，各大火车车站和跨省道路被封闭，拥有48小时核酸检测阴性证明，沒有街道办、防疫部门开的通行证，也不被允许离开。
-2. 12月18日，陕西西安。长安大学疫情告急，大量救护车和医护人员连夜进驻学校进行防控。
-3. 12月19日，广东广州。男子带儿子就诊时，因对医院防疫措施不满，与医护人员发生冲突。
-4. 12月15日，江苏宜兴。因查验健康码通行问题，女子和工作人员发生冲突。
-5. 12月19日，辽宁沈阳。小伙凌晨欲跳桥轻生，被周围好心人救下。
-6. 12月18日，广西玉林。凌晨十二点，骑车男子停在路边撕心裂肺大哭。
-7. 12月18日，山东济南。男子妻儿出车祸费用不够，在医院大厅急得掩面哭泣。
-8. 12月16日，患者拍下四川成都华西医院大厅人群拥挤的场景，每日如此。
+作者：纽约香草山农场 – 四季
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
 
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+据[OAN 网站](https://www.oann.com/south-korean-businesses-protest-against-return-of-strict-covid-rules/)援引路透社12月22日的报道,周三，大约300名韩国小企业主在首尔抗议当局已恢复的严格的社会疏远规则，并敦促政府对他们的经济损失进行补偿和取消其“疫苗通行证 ”政策。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-1-1.jpg)2021年12月22日，在韩国首尔，韩国小企业主举行集会，反对政府为控制冠状病毒病（COVID-19）感染率激增而恢复的限制措施。（REUTERS/ Heo Ran）
+
+重新实施的限制措施引发了许多担心经济灾难的小企业主的反弹，因为他们已经处在与滚雪球式的损失及债务的博弈中。抗议者认为，政府的一次性财政支持措施远远不能弥补他们的损失。
+
+韩国在本周恢复了原本在11月已放宽的严格疫情限制。尽管疫苗接种率超过92%，但新的感染和严重病例继续创出新的记录，使医疗服务捉襟见肘。
+
+这些措施有效期至1月2日，包括晚上9点的就餐宵禁和禁止4人以上、已经完全接种疫苗者之间的聚会。而未接种疫苗的人只能单独外出就餐，或使用外卖或点餐时使用送餐选项。
+
+韩国周二报告了7456例COVID-19病例，在创下每日7850例的记录后一周，总感染人数已经达到583065人，其中包括234例高传播性的Omicron变体，并有4,906人死亡。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月.png)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 

@@ -2,35 +2,20 @@
 ---
 
 
-## Đảng Cộng Sản Trung Quốc đã xâm nhập nghiêm trọng vào quân đội Đài Loan, và an ninh của Thái Anh Văn cũng nằm trong đó
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1781217/)
+## 秘翻在线: 疫情严重，古城西安封城
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1781701/)
 
-Biên Dịch: 东京樱花团/越南文雄
-![](https://assets.gnews.org/wp-content/uploads/2021/12/6-19.png)
-[Nguồn ảnh:](00)
+撰稿：西枫westca
 
-Reuters ngày 20/12 đưa tin, Các điệp viên Đảng Cộng Sản Trung Quốc đã xâm nhập nghiêm trọng vào quân đội Đài Loan, và bộ phận an ninh của tổng thống Thái Anh Văn cũng không ngoại lệ, và trong thập kỷ qua, ít nhất 21 sĩ quan cảnh sát quân sự cấp cao trở lên đã bị kết án vì tội gián điệp, trong khi 9 cựu chiến binh đang bị xét xử hoặc điều tra vì nghi ngờ tiếp xúc với gián điệp của Đảng Cộng Sản Trung Quốc.
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/12/unnamed-28.jpg)图片来源：网络照片
+据搜狐12月22日报道，西安 将于12月23日零时实行封城。这是继2020年武汉后，再一个被紧急封城的中国一线城市。
 
-Reuters lấy ví dụ về Ông XIE XIZHANG, một điệp Đảng Cộng Sản Trung Quốc hoạt động tại Đài Loan với tư cách là một doanh nhân Hồng Kông, chỉ ra rằng XIE XIZHANG đã nhiều lần đến Đài Loan với tư cách là một doanh nhân Hồng Kông từ năm 1997, nhưng đã bí mật tuyển dụng gián điệp cho Bắc Kinh, thâm nhập thành công vào quân đội Đài Loan thông qua các phương tiện như tặng vàng và tặng quà.
+此轮疫情，在西安出现隐匿性传播，形成一定规模的社区传播。根据西安市新冠肺炎疫情防控指挥部研究决定，全市小区、单位实行封闭式管控，数千家学校停课，非生活必需场所暂时停业，居民若无必要一律足不出户，每户家庭每两天由1人外出购买民生物资，全市长途客运班线全部停运。减少人员的流动性。
 
-Theo Reuters, ông XIE cung cấp toàn bộ chi phí đi lại nước ngoài của các sĩ quan Đài Loan và gia đình họ, hàng ngàn Đô la tiền mặt, đồng thời tặng quà như khăn lụa và thắt lưng cho vợ của sĩ quan. các sĩ quan quân đội cấp cao đã nghỉ hưu, quân đội Hoa Kỳ có kinh nghiệm liên quan đến Đài Loan và các quan chức phản gián của chính phủ hiện tại đều nói với Reuters rằng những trường hợp này cho Đảng Cộng Sản Trung Quốc đã phát động một chiến dịch rộng rãi nhằm phá hoại lãnh đạo quân sự và dân sự của Đài Loan, làm xói mòn ý chí chiến đấu của họ, trích xuất bí mật của vũ khí công nghệ cao và tìm hiểu về kế hoạch quốc phòng của Đài Loan.
+对于到底是何种病毒引发的疫情封城，因中共国当局的一贯不透明做法，外界很难知道真相，许多内情都是由网友传递出来。 日前出现的一波疫情据说是从外国传来的出血热，但有极大可能是因疫苗而引起的， 而西安的疫苗接种率为95%。中共在管控上实施不人道管理，有的小区大门已被电焊焊死，有的超市也无供应货品。 面对这样的情景，我们只能为西安人民祈福，愿他们能从这次灾难中挺过来。
 
-Ngoài ra, Đảng Cộng Sản Trung Quốc thậm chí còn thâm nhập vào các nhân viên an ninh để bảo vệ tổng thống Đài Loan Thái Anh Văn. Báo cáo cho biết một quan chức an ninh tổng thống đã nghỉ hưu và trung tá hiến binh đang phục vụ trong lực lượng chịu trách nhiệm bảo vệ tổng thống đã bị kết án vào đầu năm nay vì tiết lộ thông tin nhạy cảm về sự an toàn của Thái Anh Văn cho các cơ quan tình báo của Đảng Cộng Sản Trung Quốc. theo phán quyết của tòa án tối cao, thông tin này bao gồm một sơ đồ tổ chức của một trung tâm dịch vụ đặc biệt được vẽ tay, đơn vị này chịu trách nhiệm bảo vệ tổng thống. Hai người này cũng bị buộc tội tiết lộ tên, chức vụ và số điện thoại làm việc của các nhân viên an ninh cấp cao bảo vệ Dinh Tổng Thống và nơi cư trú của bà Thái Anh Văn ở trung tâm Đài Bắc, theo Reuters.
-
-Theo hồ sơ tòa án Đài Loan và báo cáo của truyền thông quan phương tại địa phương, trong thập kỷ qua, ít nhất 21 sĩ quan Thượng Uý hoặc ở cấp độ cao hơn đang làm việc hoặc đã nghỉ hưu của Đài Loan đã bị kết án là gián điệp của Đảng Cộng Sản Trung Quốc. 21 sĩ quan bị kết án đã bị kết tội tuyển dụng gián điệp cho Đảng Cộng Sản Trung Quốc hoặc chuyển một loạt thông tin nhạy cảm cho Đảng Cộng Sản Trung Quốc, bao gồm thông tin liên lạc của các sĩ quan quân đội cấp cao của Đài Loan và chi tiết về các người đại lý của Đài Loan tại nước Cộng Sản Trung Quốc.
-
-备注：越南语根据中文稿件进行翻译，本文内容以中文为准。
-
-Bản dịch tiếng Việt dựa trên bản tiếng Trung, nội dung bài dịch này lấy bản tiếng Trung làm chuẩn mực
-
-Nguồn tin:
-
-[中共严重渗透台湾军方，蔡英文安保也在内 – GNEWS](https://gnews.org/zh-hans/1779350/)
-
-Biên Tập: 东京樱花团/知了知了（以Google翻译分段校对）
-Đăng Bài: 东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-1.jpg)
-
+**新闻来源：**[https://www.sohu.com/a/510763782\_115571](https://www.sohu.com/a/510763782_115571)
 
  
 

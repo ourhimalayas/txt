@@ -2,36 +2,41 @@
 ---
 
 
-## 米勒先生通过演讲成功向欧洲议员推广盖特
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1782014/)
+## 港交所推出SPAC，中共开启新的金融诈骗通道
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1782081/)
 
-作者：东京樱花团—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月19日，社交媒体平台盖特的CEO杰森-米勒先生在接受英国媒体的采访时表示，上周，他在法国向欧洲议会成员发表了一场非常成功的演讲，同时，他还向这些议会成员推广了盖特平台。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-23-上午7.45.49.png)
-米勒先生谈到，在他逗留法国的期间里，许多法国的保守派领导人都加入了盖特平台。此外，这些领导人还邀请米勒先生加入欧盟驻欧洲委员会斯特拉斯堡代表团，并就“自由言论、平民主义和永不屈服于全球主义者”这一主题发表演讲。米勒先生提到，演讲现场有来自10个国家的将近50名欧洲议会成员。
+**【国内新闻短评】**
 
-米勒先生表示，盖特现在已经拥有了超过三百万的用户。他还提别提及，在盖特总体的用户增长排行榜上，英国用户的增长幅度大概处于七八名的位置，目前大约有十五万零两百名的英国用户正在使用盖特。
+**财经头条2021年12月2日报道：港交所重大消息！ SPAC正式推出 明年1月1日实施 谁能率先尝鲜？**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/a7cfh-gc2b2-10.jpg)**图片来源：香港01网站**![](https://assets.gnews.org/wp-content/uploads/2021/12/amq6p-x6e25-7.jpg)
+**短评：**
 
-米勒先生强调称，欧洲有很多人相信言论自由，他们坚决反对各国政府目前因中共病毒疫情而实行封城措施，他们也很清楚，政府采取的中共病毒疫苗强制接种政策会毁掉一切。
+**SPAC意思是“特殊目的并购公司”，是美国资本市场特有的一种上市公司形式，英文（Special Purpose Acquisition Company），其目的是为了并购一家
+优质的企业（目标公司），使其快速成为美国主板上市公司。作为一个上市平台（壳公司），SPAC只有现金，而没有实际业务。目标公司与SPAC合并即可实现上市，并同时获得SPAC的资金。 SPAC是区别于传统“IPO上市”和“借壳上市”的第三种上市方式，具有时间快速、费用少、流程简单、融资有保证等特点，对投资者和目标公司来说都具有较大优势。**
 
-参考链接：
-1）[https://gettr.com/post/pkafxz070c](https://gettr.com/post/pkafxz070c)
-2）[About the EU Delegation in Strasbourg](https://eeas.europa.eu/delegations/council-europe_en/1836/About%20the%20EU%20Delegation%20in%20Strasbourg)
+**对于金融，香港在主权移交之前，港英政府执政时，香港市场奉行小政府大市场，政府不干预市场、不干预金融秩序的态度和准则，在大型金融或者市场动荡时，政府最多也只是出台政策引导市场变化，而且还必须以以往法律案例为前车之鉴颁布实施。**
 
-![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+**97回归后，中共积极谋求香港经济市场和政治话语权，红色资本以港府政策倾斜为马前卒，大举进入地产、商业、物流等香港核心市场，特别是香港引以为傲的国际金融中心的香港金融业。 “占中运动”、“反送中运动”都是本土资本和红色资本对抗的具体反映。**
 
-总编：Jack Li文阳
-编辑：诺雅
-校正/发稿：呼吸的雾霾（文小呼吸）
+**强制实施“国安法”之后，香港社会政治环境恶化，立法、司法、执法权全部丧失，香港外汇储备5000亿美金也被中共在2020借去归还无望。中共借香港为人民币国际化，实行“一带一路”，看中的是香港的国际金融地位和名声，利用的是香港金管局和港交所。**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**港交所恰逢其时推出SPAC上市计划，貌似顺应金融发展需要，为资本和科技架设先进融资桥梁，实则是为了开启新的金融诈骗通道，是垄断资本嫁接独裁极权阶级在资本舞台上的一出表演拙略的闹剧而已。**
+
+**极权已经祭出权杖，港交所唯有低头，SPAC、IPO、借壳，随便什么上市方式，在香港也都是换一个名字而已，谁参与买票，谁将付出代价。骗子强盗要骗钱抢钱，伎俩只有对中共抱有幻想、对极权和垄断认识不清的韭菜有用。从这个角度来看，依然和极权勾兑为中共埋单，都是待割的韭菜，不管你来自哪里。**
+
+**文章观点仅代表作者个人，和gnews平台无关。**
+
+**新闻链接**：[https://wap.eastmoney.com/a/202112202218675470.html](https://wap.eastmoney.com/a/202112202218675470.html)
+
+素材：洛杉矶盘古农场 — 鲁西西
+评论：洛杉矶盘古农场 — 文胃
+编审：洛杉矶盘古农场 — 心照
+发布：洛杉矶盘古农场 —彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
