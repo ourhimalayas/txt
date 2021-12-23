@@ -17,6 +17,34 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/23/2021 12:37 PM (UTC)`
+
+The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO-VICE's Deliberate Lies After Deceptive Editing [Part-13]：<br/>‼️HBO-VICE’s discredit Mr. Guo for deceiving his investors. Using deceptive editing, HBO tried to ruin Mr. Guo’s public image. The uncut interview revealed the facts and exposed how HBO manipulated the interview.<br/><br/>【#HBO #VICE 采访郭文贵先生背后的真相——揭露HBO-VICE精心编织的谎言 Part-13】：<br/>‼️ HBO-VICE诋毁郭先生欺骗投资者，混乱剪辑，只留下郭先生不断说她撒谎的片段，故意贬低郭先生形象。我们还原当时的原始采访进行反击，以揭露HBO如何虚假剪辑采访视频。<br/><br/>YouTube link of full REBUTTAL video: https://youtu.be/VTQ91werzk8<br/>GTV link of full REBUTTAL video  (EN and CN subtitles): https://gtv.org/video/id=61c3bb8900f9a119180832eb<br/>GETTR link of full REBUTTAL video  (EN and CN subtitles): https://gettr.com/streaming/pkexq84603
+![img](https://media.gettr.com/group42/origin/2021/12/23/12/a497d64a-2ac9-63ab-c90a-693ee56c9993/out.jpg)
+
+---
+
+`@miles 12/23/2021 12:35 PM (UTC)`
+
+The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO-VICE's Deliberate Lies After Deceptive Editing [Part-12]：<br/>‼️HBO-VICE’s manipulation of Teng Biao's incidence to exaggerate Mr. Guo’s plan to sue the host after its deceptive editing the uncut interview, where the fact is Teng Biao slandered first and the host was setting up the interview to defame Mr. Guo. <br/><br/>【#HBO #VICE 采访郭文贵先生背后的真相——揭露HBO-VICE精心编织的谎言 Part-12】：<br/>‼️ HBO-VICE拿滕彪说事，混乱剪辑，只留下郭先生说要起诉女记者的片段。我们还原当时的原始采访进行反击，滕彪诋毁在先，女记者设陷阱诽谤郭先生。<br/><br/>YouTube link of full REBUTTAL video  (may be blocked by YouTube‘s rogue rules): https://youtu.be/VTQ91werzk8<br/>GTV link of full REBUTTAL video  (EN and CN subtitles): https://gtv.org/video/id=61c3bb8900f9a119180832eb
+![img](https://media.gettr.com/group36/origin/2021/12/23/12/a8ac7db4-e542-cfb2-6066-fbe67e86e5dc/out.jpg)
+
+---
+
+`@miles 12/23/2021 12:32 PM (UTC)`
+
+The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO's Deliberate Lies After Deceptive Editing [Part-11]：<br/>‼️HBO’s unfounded accusation of Mr. Guo’s slandering “Wei Lei” without evidence. HBO again took out of context and edited the uncut interview to discredit Mr. Guo. In the uncut interview recovered, Mr. Guo has never actively attacked others and he pointed out that U.S. citizens have right to protest. <br/>** “Wei Lei” is a person who works for the CCP by infiltrating and spreading misinformation.<br/><br/>【HBO采访郭文贵先生背后的真相——揭露HBO精心编织的谎言 Part-11】：<br/>‼️ HBO针对依法惩贼行动说郭先生在没有证据的情况下诋毁伪类，HBO断章取义进行混乱剪辑。还原当时的原始采访进行反击，从未主动攻击他人，美国公民有权合法抗议。<br/><br/>YouTube link of full REBUTTAL: https://youtu.be/VTQ91werzk8<br/>GTV link (EN/CN subtitles): https://gtv.org/video/id=61c3bb8900f9a119180832eb
+![img](https://media.gettr.com/group17/origin/2021/12/23/12/c4716ceb-d3f4-9d75-d54d-b6604ea91262/out.jpg)
+
+---
+
+`@miles 12/23/2021 12:28 PM (UTC)`
+
+The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO-VICE's Deliberate Lies After Deceptive Editing [Part-10]：<br/>‼️HBO-VICE’s deceptive editing showing Mr. Guo’s slandering “fake news”. Here is the uncut interview recovered. The so called “fake news” by Mr. Guo turned out to be all facts!  <br/><br/>【#HBO #VICE 采访郭文贵先生背后的真相——揭露HBO-VICE精心编织的谎言 Part-10】：<br/>‼️ HBO-VICE断章取义进行混乱剪辑，诋毁郭先生散布虚假信息。还原当时的原始采访进行反击，所谓的“谣言”已成为血淋淋的事实！<br/><br/>YouTube link of full REBUTTAL video  (may be blocked by YouTube‘s rogue rules): https://youtu.be/VTQ91werzk8<br/>GTV link of full REBUTTAL video  (EN and CN subtitles): https://gtv.org/video/id=61c3bb8900f9a119180832eb<br/>GETTR link of full REBUTTAL video  (EN and CN subtitles): https://gettr.com/streaming/pkexq84603
+![img](https://media.gettr.com/group37/origin/2021/12/23/12/f0a9c6aa-30b7-774b-d279-1c26a09fca3e/out.jpg)
+
+---
+
 `@miles 12/23/2021 12:25 PM (UTC)`
 
 The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO's Deliberate Lies After Deceptive Editing [Part-9]：<br/>‼️HBO's interview with "Crab" (Ryan) to denigrate Mr. Guo. In this part, we added Mr. Guo’s live broadcast footage on May 30, 2020 and at the same time used the uncut interview to refute when Mr. Guo was asked about "Crab". Mr. Guo said, "We don't owe 'Crab' (Ryan) a penny."<br/><br/>【HBO采访郭文贵先生背后的真相——揭露HBO精心编织的谎言 Part-9】：<br/>‼️ 反击HBO-VICE采访螃蟹(Ryan)诋毁郭先生的撒谎：我们利用郭先生2020年5月30日直播视频进行回击，同时用郭先生被问到关于螃蟹问题的原始采访进行回应，“我们不欠螃蟹一分钱”。<br/><br/>YouTube link of full REBUTTAL: https://youtu.be/VTQ91werzk8<br/>GTV link of full REBUTTAL (EN/CN subtitles): https://gtv.org/video/id=61c3bb8900f9a119180832eb<br/>GETTR link of full REBUTTAL (EN/CN subtitles): https://gettr.com/streaming/pkexq84603
@@ -126,34 +154,6 @@ The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO-VICE's Delibe
 
 Isobel Yeung, the CCP propagandist dressed as Cat Girl, who sent you here?<br/><br/>CCP大外宣猫女郎-杨贝贝，谁派你来的？
 ![img](https://media.gettr.com/group32/getter/2021/12/23/09/c436ac57-1d4a-f519-1b76-23b55b257fdc/out.jpg)
-
----
-
-`@miles 12/23/2021 6:30 AM (UTC)`
-
-The Truth Behind Mr. Miles Guo's Interview with #HBOVICE<br/><br/>HBO uses the words of a CCP agent to smear Mr. Miles Guo and defame GTV<br/><br/>【反击 #HBOVICE 采访 #郭文贵 先生】<br/><br/>HBO利用中共特务的话来诽谤郭先生和诋毁GTV<br/>
-![img](https://media.gettr.com/group10/getter/2021/12/23/06/d33d91ad-b3dc-5a21-4ada-6b3337e4a100/out.jpg)
-
----
-
-`@miles 12/23/2021 6:18 AM (UTC)`
-
-The Truth Behind Mr. Miles Guo's Interview with #HBOVICE<br/><br/>The real settlement situation between GTV, SARACA and SEC; the CCP has used a few agents and technicians to infiltrate GTV to leverage fake investments to attack and discredit GTV<br/><br/>【反击 #HBOVICE 采访郭文贵先生】<br/><br/>GTV和SARACA与SEC之间真正的和解情况；中共利用少数特务和技术人员混入GTV中做假投资以打击和诋毁GTV<br/>
-![img](https://media.gettr.com/group15/getter/2021/12/23/06/873c49bf-ca83-1adc-fb35-3a4f0e9ed9d7/out.jpg)
-
----
-
-`@miles 12/23/2021 6:00 AM (UTC)`
-
-The Truth Behind Mr. Miles Guo's Interview with #HBOVICE<br/><br/>The true mission of GTV and GNews — a bridge of truth and justice between the Chinese and the West, the only media in the world that dares to tell the truth<br/><br/>【反击 #HBOVICE 采访】<br/><br/>GTV、Gnews的真正使命 —— 中国和西方沟通的真相正义之桥梁，世界上唯一一个敢于说出真相的媒体<br/>
-![img](https://media.gettr.com/group4/getter/2021/12/23/05/8aff53ea-c46b-ff89-27c3-56dc2344c20d/out.jpg)
-
----
-
-`@miles 12/23/2021 5:05 AM (UTC)`
-
-12/22/2021 Miles Guo: Now that the whole world is boycotting the Beijing Winter Olympics, and the CCP is determined to occupy the high grounds of media and public opinion. The release of this manipulated video by VICE at this very moment is to denounce the Whistleblowers’ Movement as a cult and to make the Whistleblowers’ Movement and the overseas Chinese to be the scapegoat for the CCP’s biological weapon - the CCP virus.<br/><br/>12/22/2021 文贵直播：全球抵制北京冬奥会，而中共已决心占领媒体舆论制高点，此时此刻VICE放出这个被剪辑、操纵过的视频，就是要把爆料革命打成邪教、让爆料革命和海外华人给病毒生化武器的罪魁祸首共产党背黑锅<br/>
-![img](https://media.gettr.com/group5/getter/2021/12/23/05/8cee30fd-4666-a74b-23ca-fbca9325d6a9/out.jpg)
 
 ---
 
