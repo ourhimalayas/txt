@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/23/2021 6:30 AM (UTC)`
+
+The Truth Behind Mr. Miles Guo's Interview with #HBOVICE<br/><br/>HBO uses the words of a CCP agent to smear Mr. Miles Guo and defame GTV<br/><br/>【反击 #HBOVICE 采访 #郭文贵 先生】<br/><br/>HBO利用中共特务的话来诽谤郭先生和诋毁GTV<br/>
+![img](https://media.gettr.com/group10/getter/2021/12/23/06/d33d91ad-b3dc-5a21-4ada-6b3337e4a100/out.jpg)
+
+---
+
 `@miles 12/23/2021 6:18 AM (UTC)`
 
 The Truth Behind Mr. Miles Guo's Interview with #HBOVICE<br/><br/>The real settlement situation between GTV, SARACA and SEC; the CCP has used a few agents and technicians to infiltrate GTV to leverage fake investments to attack and discredit GTV<br/><br/>【反击 #HBOVICE 采访郭文贵先生】<br/><br/>GTV和SARACA与SEC之间真正的和解情况；中共利用少数特务和技术人员混入GTV中做假投资以打击和诋毁GTV<br/>
@@ -149,13 +156,6 @@ The CCP is using social media — American companies — to advance its communis
 
 12月20号：昨天我们直播说，盘古可能变成火龙，裕达国贸可能变成火佛手，可能会天然气爆炸……直播一个小时后盘现场马上就去了上百个国安和工程人员．检查天然气和管道共产党快被吓死了……盘古和裕达的个故事，只是刚刚开始咱们走着瞧……
 ![img](https://media.gettr.com/group49/getter/2021/12/20/16/47d009c8-a584-55fc-2690-c010066f05b4/d9c6c1c0045d7e96aeea5c2668f32848.jpg)
-
----
-
-`@miles 12/20/2021 3:55 PM (UTC)`
-
-12月20号：尊敬的战友们好．冬奥会的政治游戏唯一的受伤害的就10亿中国人民……所有的中国人将为这个完全没有任何价值的政治国际上的愚蠢的秀……付出几千亿美元的代价可悲，可怜．可恨至极……这是人类全球最昂贵的一场灾难游戏……昨天的大直播在国内影响巨大……在世界经济即将崩塌之前．我们的爆料革命的声音。是世界上唯一的救人的忠言警告。
-![img](https://media.gettr.com/group38/getter/2021/12/20/15/4f5bc3da-c436-b978-bceb-977342293450/out.jpg)
 
 ---
 
