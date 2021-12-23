@@ -2,43 +2,32 @@
 ---
 
 
-## 荷兰年度新词：疫苗后悔(药)
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1782766/)
+## 盖茨、福奇和谭德赛在法庭文件中被指控犯有种族灭绝
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1782784/)
 
-作者：约瑟夫·萨默斯（Joseph Summers）
-发布日期：2021年12月21日
-新闻来源：LifeSiteNews
-翻译：文虓Bobby
+撰稿：香草山农场教育部-熊嘟嘟
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-1.png)
+在12月6日提交给国际刑事法院的一份长达46页的令人震惊的法律文件中，一位勇敢的律师和七名申请人指控安东尼·福奇、彼得·达扎克、梅琳达·盖茨、威廉·盖茨三世和其他十二人多次违反纽伦堡法典。其中包括《罗马规约》定义的各种危害人类罪和战争罪。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1223.png)
+除了四名主要人物外，还有十二人被提名，包括辉瑞、阿斯利康、Moderna、强生等领先疫苗公司的首席执行官，还有世界卫生组织总干事谭德塞，世界经济论坛主席克劳斯·施瓦布，以及英国首相鲍里斯·约翰逊等对英国卫生负责的领导人。
 
+但对于该事件是否能有进一步行动，多位盖特网友表示怀疑，有评论称“我们需要看到逮捕令”。
 
+新闻链接：[盖茨、福奇和达扎克在法庭文件中被指控犯有种族灭绝罪](https://gettr.com/post/pk9n7722c5)
 
-**疫苗（新冠疫苗）
-中共病毒（新冠病毒covid-19）**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-5.png)
 
-**我们不反疫苗，只针对假疫苗
-我们不反科学，只针对反人类**
+总编/编辑：童谣
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/122301.jpg)
+校正/发稿：浪迹天涯
 
-发起这场推特活动的词典编辑说，“普里克斯皮特（Prikspijt）反映了社会在疫苗和强化疫苗接种方面的两极分化。”
-
-《戴克·范·戴尔词典》（Dikke Van Dale dictionary）以82.2%的得票率从15个词中选出了“普里克斯皮特（Prikspijt）”。最接近的两个竞争词，“woonprotest”(抗议荷兰房地产市场)和“wappiegeluid”(一个贬义词，口语化的意思是阴谋论者)分别获得3.7%和3.6%的选票。约有4.9万人参加了投票，从2020年的1.2万人（增加到现在的4.9万人）。
-
-这个词的定义是“某人因接种了任何传染病疫苗而感到后悔”。
-
-《范·戴尔词典》杂志的编辑顿·登·布恩（Ton den Boon）说，这个词是一些人在推特上发起的一场运动后被选上的。“这是那些不想接种疫苗的人做的，” 登·布恩（Den Boon）告诉无线1台杂志社。
-
-登·布恩（Den Boon）继续说:“这个词反映了社会在疫苗接种和加强注射方面的两极分化。”“这是一个有趣的词。最近也发现了相反的情况:你后悔没有注射（疫苗）。”
-
-无线1台杂志社周二进行了街头采访，看看人们是否在使用这个词，结果发现人们还没有这样做。大多数受访者认为，如果因为逃避注射而被送进医院，人们会懊悔不已。荷兰卫生部长雨果·德·容格（无线1台杂志社）在推特上表达了类似的观点，他说:“如果你因为没有打预防针而住进重症监护室，你才会后悔。”
-
-新冠病毒疫苗一直受到彼得·麦卡洛博士（Peter McCullough）等健康专家的批评。他主张，用mRNA疫苗治疗新冠病毒是危险的，治疗比疾病本身更糟糕。美国疾病控制和预防中心(CDC)的疫苗不良事件报告系统(VAERS)数据显示，接种疫苗已导致2万多人死亡，超过15.55万人受到严重伤害。
-
-[援引原文](https://www.lifesitenews.com/news/new-dutch-word-of-the-year-translates-to-vaccine-regret/?utm_source=top_news&amp;utm_campaign=canada)
-
-审核校对：玫瑰天空
-上传排版：糖果儿
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/23/2021 11:30 AM (UTC)`
+
+【The Truth Behind Mr. Miles Guo's Interview with #HBOVICE 】<br/><br/>HBO asked how many lawsuits Mr. Miles Guo is involved in, and the out-of-context clips and misleading editing only kept Guo's video of the potential lawsuit against the reporter next. Fight back with full video recoveries of the raw interview to reveal the ugly face of HBO and its evil boss CCP<br/><br/>【反击 #HBOVICE 采访 #郭文贵 先生】<br/><br/>HBO询问郭先生有多少诉讼，混乱剪辑只留下郭先生说没准下一个官司就是与女记者的片段，我们还原当时的原始视频进行反击，以此揭露HBO的丑陋嘴脸和其背后势力中共的险恶用心
+![img](https://media.gettr.com/group10/getter/2021/12/23/11/841dde45-8a59-9dd5-9682-f418c69f630e/out.jpg)
+
+---
+
 `@miles 12/23/2021 10:43 AM (UTC)`
 
 【The Truth Behind Mr. Miles Guo's Interview with #HBOVICE 】<br/><br/>HBO defamed Mr. Miles Guo to deceive investors, and the misleading editing only kept Mr. Miles Guo’s video of accusing the reporter as a liar in order to damage Miles Guo’s image. Fight back with full video recoveries of the raw interview<br/><br/>【反击 #HBOVICE 采访 #郭文贵 先生】<br/><br/>HBO诋毁郭先生欺骗投资者，混乱剪辑只留下郭先生不断说对方撒谎的片段，故意贬低郭先生形象，我们还原当时的原始视频进行反击
@@ -149,14 +156,6 @@ The Biden administration all lied about Covid vaccine mandate!
 `@miles 12/22/2021 4:15 AM (UTC)`
 
 21/12/2021 “Hcoin To the Moon" Hits iTunes <br/> No. 1 🥇on 8 Countries Top MV Charts !<br/>No.1🥇 on 7 Countries Rock MV Charts!<br/>No.1🥇 on 4 Countries Rock song Charts!<br/>No.1🥇on 1 countries Hip-pop/Rap song Charts!<br/>Miracle continues…….🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, Laos, Hungary, Macau, Fiji, Philippines, Finland, Greece!🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/1778019/<br/><br/>12月20号，Hcoin To the Moon位列iTunes<br/>8国热门MV榜首🥇！<br/>7国摇滚MV榜首🥇！<br/>4国摇滚歌曲榜首🥇！<br/>1国嘻哈歌曲榜首🥇！<br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港，老挝，匈牙利，澳门，斐济，菲律宾，芬兰，希腊的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@mikepompeo 12/21/2021 4:29 PM (UTC)`
-
-The CCP is using social media — American companies — to advance its communist agenda. Big Tech surely knows this. We must protect our Republic. https://www.nytimes.com/interactive/2021/12/20/technology/china-facebook-twitter-influence-manipulation.html?unlocked_article_code=AAAAAAAAAAAAAAAACEIPuonUyYiZ_tU1Gw5CRWySB4B991rf37-VmPsgi3T-Ki-RTjlTiO8VAo6JvknEbqdpYNwwmiiERcNdPaVqRfp8yvJSOUdgDgyhpJqchZAMPyQyr8SzQmYyldrrbIwPzAXLPCO_Ofstg_q-uQ6LKjG7HfybhWsnLQsypZJmd0Wu2nIJ2quUF-BqiYV1j-NxBch-RTgCMCPe6KP4Gl4pboX9GxLW7wQ0W-tfUSiC3oLPruJdL3gBTA7OX3h94m4j6NhDO9txPa73LR8oecqWkqxGQyUzb9_vX8ttMtCSw7Z6srfNqgiOyN60wpg0FKZVtbDHswWqJbKsuoL1vaoViK0kSAwRrm8&referringSour
 
 ---
 

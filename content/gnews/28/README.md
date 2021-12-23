@@ -2,24 +2,28 @@
 ---
 
 
-## FDA严重拖长病毒疫苗数据开放时间
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1782775/)
+## 美国国家冰球联盟与球员协会将退出北京冬奥会
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1782792/)
 
-撰稿： 纽约香草山翻译部  defiance
+撰稿：纽约香草山文艺部 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-1.png)
+12月21日，据美国ESPN体育频道消息，美国国家冰球联盟NHL与美国国家冰球联盟球员协会NHLPA已达成协议，将不派联盟球员参加2022北京冬奥会。这一决定将在未来24小时内正式公布。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1224.png)
+官网19日的一封新闻稿中早有暗示：鉴于疫情造成的持续不确定性，NHL和NHLPA正在积极讨论是否派球员参加冬奥会的问题。据悉，目前NHL已有118名球员因疫情而隔离，有几支球队已经被迫关闭了训练设施，再加上圣诞假期，推迟的比赛已多达49场。因此从自身经济利益的角度考虑，放弃冬奥会，可以避免推迟比赛引起的经济损失。
 
-据儿童健康守护组织12月17日报道，公共卫生和医疗专业人员透明度组织PHMPT近日对FDA发起了诉讼，要求FDA公布紧急批准辉瑞公司科米纳蒂疫苗的相关文件和数据。但据该组织指出，FDA严重拖长了资料开放所需的时间，并且为此项工作配员不足。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1222.png)
-按每人平均每小时50页的超低审核速度，要审查FDA估计的几十万页材料，该机构也仅需要19名审核员全职工作12周，就能完成所有查验资料和文档制作工作，而不是一家联邦地区法院所评估的75年。
-
-辉瑞有大约18000名员工，19个人只是零头。在口头辩论的前一天，FDA发布了14份文件，最长2030页。PHMPT要求辉瑞在108天内公布所有文件。
+然而，有专业人士指出，冰球运动是冬季奥林匹克的亮点。如果NHL球员不参加北京冬奥会，这会影响整个冬奥会的质量并对收视率构成冲击。中共国2022冬奥会正同时面临严峻的新冠疫情和西方国家外交抵制两大挑战。
 
 
 
-新闻链接：[FDA Should Need Only ‘12 Weeks’ to Release Pfizer Data, Not 75 Years, Plaintiff Calculates](https://childrenshealthdefense.org/defender/fda-pfizer-comirnaty-vaccine-data-twelve-weeks/)
+新闻链接：[NHL not going to Olympics because of COVID-19 surge](https://www.espn.com/nhl/story/_/id/32918026/sources-nhl-not-going-olympics-due-covid)
+
+[Cross-border games postponed through holiday break](https://www.nhl.com/news/nhl-and-nhlpa-agree-to-continue-season/c-329156048)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-5.png)
 
-总编/编辑：童谣
+总编：Ivy001
+
+编辑：童谣
 
 校正/发稿：浪迹天涯
 
