@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/23/2021 6:18 AM (UTC)`
+
+The Truth Behind Mr. Miles Guo's Interview with #HBOVICE<br/><br/>The real settlement situation between GTV, SARACA and SEC; the CCP has used a few agents and technicians to infiltrate GTV to leverage fake investments to attack and discredit GTV<br/><br/>【反击 #HBOVICE 采访郭文贵先生】<br/><br/>GTV和SARACA与SEC之间真正的和解情况；中共利用少数特务和技术人员混入GTV中做假投资以打击和诋毁GTV<br/>
+![img](https://media.gettr.com/group15/getter/2021/12/23/06/873c49bf-ca83-1adc-fb35-3a4f0e9ed9d7/out.jpg)
+
+---
+
 `@miles 12/23/2021 6:00 AM (UTC)`
 
 The Truth Behind Mr. Miles Guo's Interview with #HBOVICE<br/><br/>The true mission of GTV and GNews — a bridge of truth and justice between the Chinese and the West, the only media in the world that dares to tell the truth<br/><br/>【反击 #HBOVICE 采访】<br/><br/>GTV、Gnews的真正使命 —— 中国和西方沟通的真相正义之桥梁，世界上唯一一个敢于说出真相的媒体<br/>
@@ -149,13 +156,6 @@ The CCP is using social media — American companies — to advance its communis
 
 12月20号：尊敬的战友们好．冬奥会的政治游戏唯一的受伤害的就10亿中国人民……所有的中国人将为这个完全没有任何价值的政治国际上的愚蠢的秀……付出几千亿美元的代价可悲，可怜．可恨至极……这是人类全球最昂贵的一场灾难游戏……昨天的大直播在国内影响巨大……在世界经济即将崩塌之前．我们的爆料革命的声音。是世界上唯一的救人的忠言警告。
 ![img](https://media.gettr.com/group38/getter/2021/12/20/15/4f5bc3da-c436-b978-bceb-977342293450/out.jpg)
-
----
-
-`@miles 12/20/2021 3:05 PM (UTC)`
-
-12月20号：尊敬的战友们好，你们健身了吗？传播C C P的病毒和疫苗解药的真相了吗？一切都已经开始！
-![img](https://media.gettr.com/group25/getter/2021/12/20/15/31d5a9f5-af01-4735-7258-e55bf937ebfc/out.jpg)
 
 ---
 

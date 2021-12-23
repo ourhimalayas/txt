@@ -2,27 +2,28 @@
 ---
 
 
-## COVID-19 最新情报｜“后悔接种疫苗”压倒性当选荷兰2021年年度词汇
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1782425/)
+## 中共国下令1300万人的西安市封城
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1782451/)
 
-**撰文｜疫情关注组 / 发布时间｜23/12/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup）](https://gettr.com/user/mightygroup%EF%BC%89)**
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片2-35.png)
+图片来源：网络截图
 
-最近几周，荷兰各大社交媒体，广播电视开始讨论2021年的年度词汇提名，并呼吁市民积极投票。时间从2021 年 12 月 7 日开始， 一直持续到 20 日届满，期间，市民可以从15个提名词汇中，投票选出最具代表性的年度词汇。
+据美联社北京12月23日报道，在中共病毒病例激增后，中共国23日凌晨下令封锁北方城市西安的社区和工作场所，多达1300万人被封锁，在中共国举办冬奥会的几周前引发了恐慌性购买。
 
-官方于21日宣布结果，“prikspijt”一词凭藉82.2%的支持率，压倒性当选为荷兰2021 年的年度词汇收录在荷兰词典“Van Dale”中，它的定义是：一个人很后悔接种了某种传染病的疫苗。
+中共媒体报道说，西安市政府官员命令所有居民呆在家里，除非他们有迫切的理由外出，并暂停除特殊情况以外的所有进出城市的交通。
 
+该命令将于12月23日午夜零时生效，并无限期地持续下去。该命令说，每户人家每两天可以有一人外出购买家庭必需品。
 
+周三，西安市报告了过去24小时内新出现的52例本地传播的中共病毒。
 
-> Als je op de IC ligt omdat je géén prik hebt genomen. Dan heb je pas [#prikspijt](https://twitter.com/hashtag/prikspijt?src=hash&amp;ref_src=twsrc%5Etfw). [https://t.co/oVOHBhEcwX](https://t.co/oVOHBhEcwX)
-> — Hugo de Jonge (@hugodejonge) [December 21, 2021](https://twitter.com/hugodejonge/status/1473198731935862791?ref_src=twsrc%5Etfw)
+中共国根据其零传播计划采取了严格的大流行病控制措施，导致频繁的封锁，普遍的掩蔽和大规模测试，市民外出必须提供48小时核酸检测阴性证明。最近几天，在2月4日北京冬奥会开始之前，这些措施得到了加强。
 
+西安的限制措施是2020年中共国在2019年底首次检测到中共病毒后，对中部城市武汉及其周边地区的1100多万人实施严格封城以来最严厉的限制。
 
+社交媒体的帖子记录了对杂货和家用产品的恐慌性购买，政府说新的供应品将在周四运到。
 
-由于该年度词汇明显反应出荷兰人对于接种完 COVID-19 疫苗后的普遍心态，荷兰卫生部长雨果·德荣格（Hugo de Jonge）立即作出反应，他在推特发文，表达了自己对最新年度词汇的不认同，他的评论是：“如果你因为没有打过新冠疫苗而被送入重症监护室，你才该后悔。”
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Blue-Universal-Space-Channel-Banner-10.jpg)
-来源｜[Van Dale](https://www.vandale.nl/) / [Twitter](https://twitter.com/hugodejonge/status/1473198731935862791)
+新闻来源：[China orders lockdown of up to 13 million people in Xi’an](https://apnews.com/article/coronavirus-pandemic-health-china-beijing-xian-667558cdba28a0043db77f480a90ae95)
 
  
 
