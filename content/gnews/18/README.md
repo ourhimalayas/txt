@@ -2,34 +2,28 @@
 ---
 
 
-## FDA严重拖长病毒疫苗数据开放时间
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1782775/)
+## 【中日财经爆】英特尔为保中共国市场，发文道歉
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1782856/)
 
-撰稿： 纽约香草山翻译部  defiance
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-291.jpg)[图片来源](https://hd.stheadline.com/news/realtime/chi/2291174/%E5%8D%B3%E6%99%82-%E4%B8%AD%E5%9C%8B-%E8%8B%B1%E7%89%B9%E7%88%BE%E5%B0%B1%E6%8B%92%E7%94%A8%E6%96%B0%E7%96%86%E7%94%A2%E5%93%81%E5%85%AC%E5%91%8A%E7%99%BC%E9%81%93%E6%AD%89%E8%81%B2%E6%98%8E)
+美国芯片制造商英特尔近日有关涉疆表述被中共国喉舌和被洗脑的民众攻击。该公司周四（12月23日）就此回应称，相关表述初衷是确保遵守美国法律，并非它意或表达立场，对给中共国客户、合作伙伴和公众带来的困扰“深表歉意”。
 
-据儿童健康守护组织12月17日报道，公共卫生和医疗专业人员透明度组织PHMPT近日对FDA发起了诉讼，要求FDA公布紧急批准辉瑞公司科米纳蒂疫苗的相关文件和数据。但据该组织指出，FDA严重拖长了资料开放所需的时间，并且为此项工作配员不足。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1222.png)
-按每人平均每小时50页的超低审核速度，要审查FDA估计的几十万页材料，该机构也仅需要19名审核员全职工作12周，就能完成所有查验资料和文档制作工作，而不是一家联邦地区法院所评估的75年。
+英特尔中国在其官方微博上并表示，英特尔向供应商发送的年度信函引发了相关的媒体报道和讨论，特别是针对信中相关政府对供应链运营提出的要求，引起热议和质疑。虽然初衷是确保遵守美国法律，但这封信在中国合作伙伴中引起了诸多的疑问和顾虑，“我们深表遗憾”。“借此澄清，信中的关于新疆的段落只出于表述合规合法的初衷，并非它意或表达立场。”
 
-辉瑞有大约18000名员工，19个人只是零头。在口头辩论的前一天，FDA发布了14份文件，最长2030页。PHMPT要求辉瑞在108天内公布所有文件。
+英特尔在最近给其供应商的一封公开信中要求他们不使用任何来自新疆的劳工、采购产品或服务。中共喉舌环球时报称英特尔的涉疆表态“极其荒谬”，并称该公司的做法是“吃饭砸锅”。英特尔去年有26%的收入来自中国市场。歌手王俊凯在微博上表示解除与英特尔品牌一切合作关系。
+
+英特尔并表示，尊重该问题在中国的敏感性。作为一家跨国公司，置身一个不断发展变化和纷繁复杂的全球环境，“我们应当以审慎的态度应对和处理。”
+
+消息来源:
+
+[英特尔称此前涉疆表述初衷是确保遵守美国法律 并非它意或表达立场](https://cn.reuters.com/article/intel-statement-1223-thur-idCNKBS2J20AP?il=0)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
 
 
-
-新闻链接：[FDA Should Need Only ‘12 Weeks’ to Release Pfizer Data, Not 75 Years, Plaintiff Calculates](https://childrenshealthdefense.org/defender/fda-pfizer-comirnaty-vaccine-data-twelve-weeks/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-5.png)
-
-总编/编辑：童谣
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/23/2021 10:19 AM (UTC)`
+
+【The Truth Behind Mr. Miles Guo's Interview with #HBOVICE 】<br/><br/>HBO used Teng Biao to attack Mr. Miles Guo, and the misleading editing only kept Mr. Miles Guo’s video of a potential lawsuit against the reporter. Fight back with full video recoveries of the raw interview: Teng Biao vilified Mr. Miles Guo first and Miles Guo never said Teng Biao is a rapist （Part 1)<br/><br/>【反击 #HBOVICE 采访 #郭文贵 先生】<br/><br/>HBO拿滕彪攻击郭先生，混乱剪辑只留下郭先生说要起诉女记者的片段。还原当时的原始采访进行反击，是滕彪诋毁郭先生在前，而且郭先生从来没有说过滕彪是强奸犯 （第一段）
+![img](https://media.gettr.com/group46/getter/2021/12/23/10/7ce9a630-d03e-142c-8337-c6f52ef0fd1c/out.jpg)
+
+---
+
 `@miles 12/23/2021 10:08 AM (UTC)`
 
 【The Truth Behind Mr. Miles Guo's Interview with #HBOVICE 】<br/><br/>HBO used out of context clips and misleading editing to smear the legal fight against the CCP pawns as Mr. Guo’s baseless slander. Fight back with full video recoveries of the raw interview: Our fellow fighters never made the first move to attack others and the US citizens have the right to protest <br/><br/>【反击 #HBOVICE 采访 #郭文贵 先生】<br/><br/>HBO把依法惩贼行动说成是郭先生在没有证据的情况下对伪类的诋毁，HBO断章取义进行混乱剪辑。还原当时的原始采访进行反击，我们从未主动攻击他人，美国公民有权抗议
@@ -150,13 +157,6 @@ The CCP is using social media — American companies — to advance its communis
 
 12月21号：一个国家副主席沦落成……一个刚当主持人．为习洗脚的角色，真够可怜的啦，王岐山完了，死不了也活不好的状态，对他而言是最痛苦的……
 ![img](https://media.gettr.com/group45/getter/2021/12/21/12/6b85f6c2-bafa-e382-0168-51017426f5c8/2b10a2ea0f3c89d9a9650b21ca77b753.jpg)
-
----
-
-`@miles 12/21/2021 12:18 PM (UTC)`
-
-12月21号：世界卫生组织．疫苗制药厂．几个国家的医疗卫生管理部门，一定会受到人类的大审判，他们的官僚和邪恶力量．充分的利用了人类几百年来共同建立对科学的信任和服从．成了他们的杀人的工具🧰和手段！最终在法庭上。所有的这些杀人犯都将受到审判……真正的灾难！并没有到来，2022年，五月份才应该是打了疫苗人开始不良反应的开周期的开始！
-![img](https://media.gettr.com/group7/getter/2021/12/21/12/e830a709-9ca9-5423-6b23-61c364d696c0/out.jpg)
 
 ---
 
