@@ -2,36 +2,33 @@
 ---
 
 
-## CDC撤回对PCR测试的支持
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1784543/)
+## 泽连科医生推荐小罗伯特·F·肯尼迪在米兰的演讲
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1784587/)
 
-**评论：经过20个月的谎言，CDC再也无法掩饰其使用COVID-19 PCR测试是假的“科学”，但却制造了恐惧**
+作者：纽约香草山翻译部 – defiance
+![](https://assets.gnews.org/wp-content/uploads/2021/12/GTV-Gnews.png)
+12月22日，泽连科医生发盖说：“起来。 反抗。 就当暴徒吧。”
 
-**据《美国前线医生网站》 作者：Yudi Sherman，2021年12月13日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/a7cfh-gc2b2-11.jpg)**图片源自美国前线医生网站**
-美国疾病控制和预防中心（CDC）将在今年年底前不再承认PCR测试是诊断COVID-19的有效方法。 CDC在其网站透露，它将撤销对食品和药物管理局（FDA）提出的“给予检测SARS-CoV-2的PCR测试的紧急使用授权”的延长请求。该请求于2020年2月发出，将于2021年12月31日到期，此举表明CDC不再批准PCR测试作为COVID-19诊断的有效方法。
+并推出了2021年11月13日小罗伯特·F·肯尼迪于意大利米兰的1分40秒的演讲片段，演讲短视频内容如下：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture15-6.jpg)
+在人类历史上没有一个政府会主动放弃权力。他们最近这20个月，从我们这里拿走的权力，他们永不会还。他们弄走了我们的言论自由权，他们关闭了教堂。诉讼那些无良公司的时候，他们跳过了陪审团审理。不管那个公司犯了多大的过失，多莽撞，不管你受的伤多深，你起诉不了那个公司。他们弄走了我们的私有产权。在美国，他们关闭了100万个企业，这持续了一年，不走法律程序，连合理的补偿都没有。他们拿走了没有法院命令就不能被搜查抓捕，政府监控的权力（坏人可以随便搜查、抓人和监视人）。这是冲着地球上的自由民主世界来的全球性政变。所有这些已经被拿走的权力，这些政府说都是临时性的，两周就恢复正常了，会结束的。正在发生着的真实情况你们都看到了。被他们剥夺了的那些权力，他们永远不会还。除非，我们迫使他们交出来。
 
-PCR测试被广泛用于美国和全球的大规模检测，以检测个人体内是否存在COVID-19。疾病预防控制中心在2021年7月做出的决定，是在COVID检测的假阳性结果报告不断增加的情况下做出的。尽管无良媒体齐心协力诋毁此类报告，但假阳性测试结果的攀升率已经获得了国际关注，最明显的是来自真实案例。就在2021年12月，NBA发表声明，确认篮球明星勒布朗-詹姆斯在一次PCR测试中获得假阳性结果，这导致他与家人隔离，错过了对萨克拉门托国王队的比赛。随后，该假阳性结论与另外两次PCR测试相悖，其结果为阴性。
+参考来源：[泽连科医生推荐小罗伯特·F·肯尼迪在米兰的演讲](https://gettr.com/post/pkbn8m9ece)
 
-据报道PCR测试的假阳性率至少为5%。这意味着在英国等国家，每天有超过100万人接受检测，每天约有5万人被诊断为COVID-19阳性，并因此接受严格的措施，如检疫和严格隔离，然而其根本没有被感染。澳大利亚，在400个COVID-19阳性病例被证实，迅速转变为警察国家，假阳性结果会产生巨大的影响。
+![This image has an empty alt attribute; its file name is 12%E6%9C%88-1.png](https://assets.gnews.org/wp-content/uploads/2021/12/12%E6%9C%88-1.png)
 
-自去年以来，COVID测试的准确性总体上受到了质疑。 2020年11月，埃隆-马斯克宣布，他在一天内进行了四次COVID-19测试，其中两次为阳性，两次为阴性。这位世界首富用以下推文嘲讽主流媒体：“一些极其虚假的事情正在发生。今天被检测了四次COVID。两个测试结果为阴性，两个测试结果为阳性。同样的机器，同样的测试，同样的护士。”
+编辑/校对/发稿：Hetangyuese
 
-最近，澳大利亚医疗制造商Ellume公司因高假阳性率而在美国召回了220万组家用COVID测试工具。
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-许多人在质疑CDC取消对PCR测试支持的原因。如果是由于高假阳性率，这将与媒体报道的PCR测试的高准确性相互矛盾，而且这也会让人们质疑一些国家对其公民采取严厉措施所依据的COVID-19病例数量的真实性。相反，如果CDC不关心假阳性率，并认为PCR测试是对COVID-19的准确检测器，那么人们不禁要问还有什么因素导致取消这样一种有效的检测方法。
+![This image has an empty alt attribute; its file name is Gnews-Logo-36-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
-**文章来源:**[https://americasfrontlinedoctors.org/news/post/cdc-withdraws-support-for-pcr-tests/](https://americasfrontlinedoctors.org/news/post/cdc-withdraws-support-for-pcr-tests/)
 
-翻译：洛杉矶盘古农场 – Mike Li
-校对：洛杉矶盘古农场 – Milojai
-评论：洛杉矶盘古农场 –Mike Li
-编辑：洛杉矶盘古农场 –WenXiong
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
