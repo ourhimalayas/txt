@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/23/2021 3:40 PM (UTC)`
+
+12/22/2021 Miles Guo: The CCP dominates the international media and has arranged 5 media outlets to interview Peng Shuai; how the CCP wields the power of the whole country to cover up the truth about the Peng Shuai incident is the same as how they fabricated Ma Rui’s rape case to frame me back then<br/><br/>12/22/2021 文贵直播: 中共在国际媒体界一手遮天，安排了5家媒体采访彭帅；中共举一国之力掩盖彭帅事件的真相与当年炮制马蕊强奸案来陷害文贵的手段如出一辙<br/>
+![img](https://media.gettr.com/group21/getter/2021/12/23/15/f7338f7b-055c-5257-c5b2-943f798c9504/out.jpg)
+
+---
+
+`@miles 12/23/2021 3:33 PM (UTC)`
+
+12/22/2021 Miles Guo: The CCP negotiators took turns to threaten Peng Shuai in the name of the state and threatened to turn her into a mental patient under the guise of caring for her physical and mental health; Xi Jinping, Han Zheng, and Li Zhanshu met Peng Shuai at the Jade Spring Hill and demanded her to lie to the whole world!<br/><br/>12/22/2021 文贵直播：中共谈判专家轮番上阵，以国家的名义威胁彭帅，并打着关心她身心健康的幌子，威胁将其变成精神病；习近平、韩正和栗战书在玉泉山接见彭帅并要她对全世界说谎！<br/>
+![img](https://media.gettr.com/group43/getter/2021/12/23/15/1e0b2f2d-b003-ff8f-d9e9-727fda681407/out.jpg)
+
+---
+
 `@miles 12/23/2021 3:24 PM (UTC)`
 
 12/22/2021 Miles Guo: The CCP’s National Security Commission ordered the Beijing State Security Bureau to have the Emergency Task Force handle the Peng Shuai incident by using negotiation experts and the despicable tactics such that they sometimes posed threat and sometimes pretended to be weak; the CCP ordered that the Peng Shuai incident must be put to an end before the Winter Olympics at all costs!<br/><br/>12/22/2021 文贵直播: 国家安全委员会派北京市国安局的紧急处理小组动用谈判专家，采取时而威胁时而示弱的卑鄙手段处理彭帅事件；中共指示不惜一切代价要在冬奥会之前务必平息此事！<br/>
@@ -140,20 +154,6 @@ The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO-VICE's Delibe
 
 【The Truth Behind Mr. Miles Guo's Interview with #HBOVICE 】<br/><br/>HBO asked how many lawsuits Mr. Miles Guo is involved in, and the out-of-context clips and misleading editing only kept Guo's video of the potential lawsuit against the reporter next. Fight back with full video recoveries of the raw interview to reveal the ugly face of HBO and its evil boss CCP<br/><br/>【反击 #HBOVICE 采访 #郭文贵 先生】<br/><br/>HBO询问郭先生有多少诉讼，混乱剪辑只留下郭先生说没准下一个官司就是与女记者的片段，我们还原当时的原始视频进行反击，以此揭露HBO的丑陋嘴脸和其背后势力中共的险恶用心
 ![img](https://media.gettr.com/group10/getter/2021/12/23/11/841dde45-8a59-9dd5-9682-f418c69f630e/out.jpg)
-
----
-
-`@miles 12/23/2021 10:43 AM (UTC)`
-
-【The Truth Behind Mr. Miles Guo's Interview with #HBOVICE 】<br/><br/>HBO defamed Mr. Miles Guo to deceive investors, and the misleading editing only kept Mr. Miles Guo’s video of accusing the reporter as a liar in order to damage Miles Guo’s image. Fight back with full video recoveries of the raw interview<br/><br/>【反击 #HBOVICE 采访 #郭文贵 先生】<br/><br/>HBO诋毁郭先生欺骗投资者，混乱剪辑只留下郭先生不断说对方撒谎的片段，故意贬低郭先生形象，我们还原当时的原始视频进行反击
-![img](https://media.gettr.com/group4/getter/2021/12/23/10/44161a46-9a14-69a2-6b8f-4d5f06b6c699/out.jpg)
-
----
-
-`@miles 12/23/2021 10:31 AM (UTC)`
-
-【The Truth Behind Mr. Miles Guo's Interview with #HBOVICE 】<br/><br/>HBO used Teng Biao to attack Mr. Miles Guo, and the misleading editing only kept Mr. Miles Guo’s video of a potential lawsuit against the reporter. Fight back with full video recoveries of the raw interview: Teng Biao vilified Mr. Miles Guo first and Miles Guo never said Teng Biao is a rapist （Part 2)<br/><br/>【反击 #HBOVICE 采访 #郭文贵 先生】<br/><br/>HBO拿滕彪攻击郭先生，混乱剪辑只留下郭先生说要起诉女记者的片段。还原当时的原始采访进行反击，是滕彪诋毁郭先生在前，而且郭先生从来没有说过滕彪是强奸犯 （第二段）
-![img](https://media.gettr.com/group25/getter/2021/12/23/10/584bae34-d2a1-eef6-be42-170b28f23e71/out.jpg)
 
 ---
 

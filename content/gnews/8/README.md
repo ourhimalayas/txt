@@ -2,34 +2,53 @@
 ---
 
 
-## 英国首例Omicron死亡事件缺乏透明度引众怒
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1783716/)
+## MV版Hcoin To the Moon上线第14天位列6国iTunes摇滚MV榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1783872/)
 
-本文作者：Rebecca (一切心皆不可得！)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image001-20.png)
-鲍里斯-约翰逊（Boris Johnson）在访问伦敦西部帕丁顿的一家疫苗接种诊所时透露了英国第一例因奥米克戎（Omicron）死亡的案例。
+12/23/2021 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线第14天位列6国iTunes摇滚MV榜榜首。
 
-迄今为止，这也是世界首例奥米克戎死亡案例。
+* * *
 
-英国卫生安全局（UKHSA）透露，死者是在医院被诊断的。
+[【PDF 下载】Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-但这起世界首例奥米克戎死亡事件缺乏透明度，引起了公众的愤怒。
+* * *
 
-2021年12月13日, 星期一，抗议接种疫苗的人们在伦敦议会大厦外示威。（如图所示）
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_11.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_12.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_13.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_14.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_17.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_18.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_20.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_21.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_28.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_35.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_36.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_43.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_45.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_47.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_48.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_49.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_50.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_52.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_57.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_74.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_75.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_82.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_92.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_94.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_95.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_96.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_110.jpg)
 
-医学教授和肿瘤顾问克罗尔.西科拉（Karol Sikora）说，政府没有向国家提供关于这起死亡的足够信息。比如，死者的年龄、疫苗接种情况、住院原因、健康状况、甚至连奥米克戎是致死主因，还是有潜在健康状况都没有提及。
 
-政府应该公布更多这起死亡案例的细节以阻止 “不必要的恐慌”，让人们放心。
+[【PDF 下载】Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Thursday-23-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-12月15日，卫生部门负责人透露，已经有10位英国人因奥米克戎住院治疗。
-
-英国卫生安全局（UKHSA）证实，所有这些人的年龄都在18-85岁之间，大多数患者已接种了两剂新冠疫苗，但拒绝透露他们是否打了加强针。
-
-[新闻来源链接](https://www.sott.net/article/462014-Fury-over-lack-of-transparency-on-UKs-first-Omicron-death-was-victim-fully-jabbed-and-vulnerable)
-
-审核校对：sherryok (水云间)
-
-上传排版：漂流瓶
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
