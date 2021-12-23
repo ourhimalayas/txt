@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/23/2021 2:40 PM (UTC)`
+
+12月23号，尊敬的战友们大家好：为了给大家带来更好的用户体验，@gfashion 网站进行了升级。我们已经给大家发送了邀请邮件（见下图），请所有的客户收到后尽快根据相关指南重新激活您的账户。没有收到邀请邮件的客户请查看您的垃圾邮箱。<br/><br/>再次感谢各位一路以来对G|Fashion的支持与厚爱！如果您在激活账户中遇到任何问题，请与G|Fashion客服团队联系：customer.service@gfashion.com<br/><br/>G|Fashion客服团队<br/>
+![img](https://media.gettr.com/group2/getter/2021/12/23/14/b2b84914-b85f-a3ef-6a25-107da8cbc048/22d0938ad2035af01df815a302a1eeee.jpg)
+
+---
+
 `@miles 12/23/2021 1:34 PM (UTC)`
 
 The Interview by #IsobelYeung from #HBO #VICE was a Premeditated Plan to Defame Mr. Miles Guo [Part-15]：<br/>🔥 Mr. Miles Guo has revealed the evil plans of the CCP to become world hegemony over the past 4 years. He has warned the world multiple times that the darkness has arrived. With his intelligent information and his 30-year knowledge of the CCP, so far, all his revelations have been proven and testified to be true.<br/>‼️HBO-VICE's host of the interview - her background and connection with the CCP <br/><br/>【 HBO VICE ISOBEL YEUNG的采访是对郭文贵先生有计划的诽谤 Part-15】：<br/>🔥 新中国联邦创始人郭先生带领的爆料革命向西方世界揭露中共CCP的邪恶并多次发出警告，最终得到验证，展示了新中国联邦和郭先生的真实实力。<br/> ‼️HBO采访郭先生的记者ISOBEL YEUNG亲共背景证明。<br/><br/>YouTube link of full REBUTTAL: https://youtu.be/VTQ91werzk8<br/>GTV link: https://gtv.org/video/id=61c3bb8900f9a119180832eb
@@ -147,13 +154,6 @@ The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO-VICE's Delibe
 
 【The Truth Behind Mr. Miles Guo's Interview with #HBOVICE 】<br/><br/>HBO used Teng Biao to attack Mr. Miles Guo, and the misleading editing only kept Mr. Miles Guo’s video of a potential lawsuit against the reporter. Fight back with full video recoveries of the raw interview: Teng Biao vilified Mr. Miles Guo first and Miles Guo never said Teng Biao is a rapist （Part 1)<br/><br/>【反击 #HBOVICE 采访 #郭文贵 先生】<br/><br/>HBO拿滕彪攻击郭先生，混乱剪辑只留下郭先生说要起诉女记者的片段。还原当时的原始采访进行反击，是滕彪诋毁郭先生在前，而且郭先生从来没有说过滕彪是强奸犯 （第一段）
 ![img](https://media.gettr.com/group46/getter/2021/12/23/10/7ce9a630-d03e-142c-8337-c6f52ef0fd1c/out.jpg)
-
----
-
-`@miles 12/23/2021 10:08 AM (UTC)`
-
-【The Truth Behind Mr. Miles Guo's Interview with #HBOVICE 】<br/><br/>HBO used out of context clips and misleading editing to smear the legal fight against the CCP pawns as Mr. Guo’s baseless slander. Fight back with full video recoveries of the raw interview: Our fellow fighters never made the first move to attack others and the US citizens have the right to protest <br/><br/>【反击 #HBOVICE 采访 #郭文贵 先生】<br/><br/>HBO把依法惩贼行动说成是郭先生在没有证据的情况下对伪类的诋毁，HBO断章取义进行混乱剪辑。还原当时的原始采访进行反击，我们从未主动攻击他人，美国公民有权抗议
-![img](https://media.gettr.com/group25/getter/2021/12/23/10/06cc015a-f47a-b204-fd49-63a72d468eff/out.jpg)
 
 ---
 
