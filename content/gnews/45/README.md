@@ -2,28 +2,34 @@
 ---
 
 
-## 【中日财经爆】法国雷诺证实与华晨的合资公司已破产
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1782464/)
+## 牧师妻子称自接种疫苗后葬礼不断
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1782727/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1208.png)[图片来源](https://cn.reuters.com/article/france-renault-china-brilliance-jv-1223-idCNKBS2J203E?il=0)
-法国雷诺汽车周三(12月22日)证实，其与中共国汽车制造商华晨汽车集团的合资企业已经耗尽了现金，正在走向破产重组。
+撰稿：东京樱花团—在远方
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-1.png)
+12月22日，郭文贵先生盖特转发了一位牧师妻子的采访视频。被问及疫苗强制接种时，牧师妻子表示，自从开始接种中共病毒疫苗以来，葬礼一个接着一个。人们通常认为疫苗能加强免疫力，但她知道很多注射了两针、甚至三针疫苗的人，仍旧感染了中共病毒，而且病得很重。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1220.png)
+政府在社交媒体平台上塑造虚假的“道德模范”，标榜注射疫苗就是在保护他人，但其实疫苗却在伤害自己。这种mRNA基因细胞技术，作为试验品不起任何免疫作用反而异常危险。牧师妻子表示，即使在疫情高峰期时，她的丈夫也很少主持葬礼，医院也很空。但自从开始接种疫苗以后，她的丈夫不停地接到电话被邀请主持葬礼。杀死人们的正是疫苗造成的损伤，如心脏病、中风、血栓、心肌炎，以及被疫苗诱发的癌症等。
 
-“鉴于(合资公司)无力履行其目前的财务义务，公司董事会已决定启动重组程序，”一位发言人说。
+新闻链接: https://www.gettr.com/post/pkbk734f02
 
-消息人士在9月表示，雷诺正与拥有中共政府背景的中国华晨讨论结束商用车合资事业，藉以整顿旗下陷于困境的中共国业务。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-5.png)
 
-双方的合作可以追溯到2017年，当时雷诺和华晨中国汽车控股有限公司在辽宁省会沈阳成立合资公司，特别是着手推动电动商用车的发展。
+总编: 飞虹
 
-事实证明，中共国市场对一些外国汽车生产商来说是困难的–在中共病毒（新冠病毒）疫情之前销售就陷入了困境，而疫情更是对整个行业造成了打击。
+编辑: 童谣
 
-雷诺去年放弃了在中共国的主要乘用车业务，因为其与东风汽车的合资企业销售不佳。但雷诺正在与吉利控股集团进行新的尝试，在8月宣布双方建立创新型合作伙伴关系，最初将专注于中共国和韩国等核心快速市场开发混合动力汽车。
+校正/发稿：浪迹天涯
 
-消息来源：[法国雷诺证实与华晨的中国合资公司进入重组阶段](https://cn.reuters.com/article/france-renault-china-brilliance-jv-1223-idCNKBS2J203E?il=0)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-1.png)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

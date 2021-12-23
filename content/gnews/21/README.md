@@ -2,54 +2,115 @@
 ---
 
 
-## 12/23/2021 国际财经快讯：日本上调2022年度GDP增速展望至3.2％; 2021年美国IPO市场首触千笔大关，但隐忧不容忽视
-` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1783278/)
+## 12/23每日播报|社媒消息：班农先生 杰森米勒
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1783412/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/2021223-1.jpg)[图片来源](https://cn.nikkei.com/industry/manufacturing/47095-2021-12-23-09-24-05.html)
-**1.美国经济繁荣在全球掀起涟漪**
+BY：[密翻新聞](https://gtv.org/broadcast/watch/61c43a0900f9a1191808efcc)
 
-[美国经济的蓬勃发展在世界各地产生影响，使全球供应链难以跟上增长步伐，并推高了价格水平。美国经济的强劲表现也在吸引外国公司到美国投资，押注美国的增长仍会加速并将超过其他主要经济体。手握数万亿美元财政刺激补助款的美国消费者们正抢购制成品和稀缺材料。亚特兰大联邦储备银行公布的初步产出预估显示，今年第四季度美国经济产出增长折合成年率料将超过7%，高于上一季的约2%。](https://cn.wsj.com/articles/%E7%BE%8E%E5%9B%BD%E7%BB%8F%E6%B5%8E%E7%B9%81%E8%8D%A3%E5%9C%A8%E5%85%A8%E7%90%83%E6%8E%80%E8%B5%B7%E6%B6%9F%E6%BC%AA-11640152243)
+**2021-12-2**3
 
-**2.2021年美国IPO市场首触千笔大关，但隐忧不容忽视**
+**1. 《国家脉动》12月22日在盖特发文：** 即将离任的美国国立卫生研究院NIH院长弗朗西斯·柯林斯 (Francis Collins) 哀叹没有对“人类行为”进行更多研究。 【推文转报道，柯林斯在接受《PBS新闻一小时》 采访时无耻的说，“他对其机构在人类行为研究方面投资不足”表示遗憾，同时对数千万美国人选择不接种新冠疫苗表示哀叹。我在一年前从未想过，会有六千万人拒绝接种疫苗。“在领导NIH期间，柯林斯因为资助了摘取活体胎儿器官而备受争议，同时他还用纳税人的钱资助了几项与中共和中共军方有关联的研究计划，包括武汉实验室的功能增强研究。】
 
-[2021年是首次公开募股(IPO)市场的破纪录之年，交易数量在历史上首次达到1,000笔，然而，临近年底的放缓趋势以及华尔街新秀的糟糕表现可能预示着2022年该市场将回归正常。即使Instacart和Reddit等一众非上市明星企业似乎具备上市条件，但鉴于借壳特殊目的收购公司(SPAC)和中国公司赴美上市等一度炙手可热的IPO趋势降温，2022年的IPO市场恐怕难以追赶2021年的交易活动步伐。此外，加息可能性或影响投资者对高增长科技股的估值。](https://cn.wsj.com/articles/2021%E5%B9%B4%E7%BE%8E%E5%9B%BDipo%E5%B8%82%E5%9C%BA%E9%A6%96%E8%A7%A6%E5%8D%83%E7%AC%94%E5%A4%A7%E5%85%B3-%E4%BD%86%E9%9A%90%E5%BF%A7%E4%B8%8D%E5%AE%B9%E5%BF%BD%E8%A7%86-11640165407)
+[https://gettr.com/post/pkdi3k93ae](https://gettr.com/post/pkdi3k93ae)
 
-**3.花旗将把菲律宾零售银行业务出售给本地银行Union Bank**
+**2. 真正美国之声12月23日发推说：** 美国司法部周二宣布，在新冠大流行期间被释放、然后在家隔离监禁的数千名囚犯，在卫生紧急状况结束后不应自动被重新监禁。 【推文转报道，司法部长梅里克·加兰 指示司法部授予美国监狱管理局（U.S. Bureau of Prisons）自由裁量权，以决定被释放到家中监禁的囚犯是否应被送回联邦设施或仍继续留在他们的家中。自2020年3月以来，已有超过36000名囚犯被释放到家中监禁。许多人已经完成了他们的刑期，有些人则因违反规定而被重新监禁。加兰说：“数千在家监禁的人已经与他们的家人重新取得联系，找到了有报酬的工作，并遵守了规则。我们将行使我们的权力，使那些已经取得康复进展并遵守家庭监禁规定的人，以及那些应该得到机会继续过渡到社会的的人，不会被不必要地送回监狱。”】
 
-[花旗集团(Citigroup Inc., C)将把其菲律宾零售银行业务出售给一家本地银行，资产价值接近18亿美元，这是花旗退出亚洲零售银行业务的战略步骤之一。Union Bank of the Philippines周四宣布，根据交易，还将获得花旗在当地的信用卡、个人贷款、财富管理业务和零售存款业务。花旗集团在一份单独的声明中称，Union Bank of the Philippines将为这些被收购的业务的净资产支付约9.08亿美元的现金溢价。收购资金将通过配股和动用内容资源相结合的方式筹措。](https://cn.wsj.com/articles/%E8%8A%B1%E6%97%97%E5%B0%86%E6%8A%8A%E8%8F%B2%E5%BE%8B%E5%AE%BE%E9%9B%B6%E5%94%AE%E9%93%B6%E8%A1%8C%E4%B8%9A%E5%8A%A1%E5%87%BA%E5%94%AE%E7%BB%99%E6%9C%AC%E5%9C%B0%E9%93%B6%E8%A1%8Cunion-bank-11640228444)
 
-**4.食品商涨价步伐难以跟上通胀速度**
 
-[包装食品生产商的涨价速度似乎还不够快。通用磨坊(General Mills Inc., GIS)周二公布，截至11月28日的第二财季销售强劲，但利润率疲软，导致利润逊于预期，继续受到投入成本和供应干扰的影响。当日其股价下跌4%。该公司表示，剔除收购、剥离和汇兑因素后，内生性销售额较上年同期增长5%，这一点令人印象深刻。不过，这全靠价格上调，而基础销量同比持平。虽然价格上调，但成本也水涨船高，令毛利润率骤降四个百分点，至32.5%。该公司的产品包括Cheerios、Yoplait和Annie’s芝士通心粉。](https://cn.wsj.com/articles/%E9%A3%9F%E5%93%81%E5%95%86%E6%B6%A8%E4%BB%B7%E6%AD%A5%E4%BC%90%E9%9A%BE%E4%BB%A5%E8%B7%9F%E4%B8%8A%E9%80%9A%E8%83%80%E9%80%9F%E5%BA%A6-11640242846)
+> The Justice Department announced Tuesday that thousands of inmates who were released to home confinement during the [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) pandemic should not automatically be re-imprisoned after the health emergency ends.[https://t.co/9eoetZalKs](https://t.co/9eoetZalKs)
+> — Real America's Voice (RAV) (@RealAmVoice) [December 23, 2021](https://twitter.com/RealAmVoice/status/1473819393196912643?ref_src=twsrc%5Etfw)
 
-**5.小松工程机械等在日本提价10％**
 
-[小松12月22日宣布，面向日本国内的液压挖掘机等工程机械与叉车的全部型号自2022年1月起平均提价10％。小松在2008年也曾提高工程机械的价格，但工程机械和叉车的全部型号提价属于首次。该公司认为仅靠削减成本无法完全消化钢材价格和物流费的上涨。受资源价格上涨和基础设施投资扩大的推动，小松工程机械的销售在全球保持强劲，但该公司针对2021财年（截至2022年3月）业绩认为，钢材等原材料价格的上涨将把利润拉低390亿日元，而集装箱船运费等物流费的上涨将拉低85亿日元。](https://cn.nikkei.com/industry/manufacturing/47095-2021-12-23-09-24-05.html)
 
-**6.日本上调2022年度GDP增速展望至3.2％**
+**3. 真正美国之声12月23日发推说：** 看来，福奇和美国国立卫生研究院的其他人正在努力限制医生提供新冠早期治疗的能力。泽伦科医生对此回复说：“扼杀辩论表明他们想隐藏真相。”
 
-[日本政府12月23日在内阁会议上通过了经济展望，预测2022年度剔除物价波动影响的实际国内生产总值（GDP）增长率为3.2％。相较于7月年中估算中提出的2.2％有所上调。此次经济展望描绘的前景是，除了大规模经济对策的效果之外，以此前因新冠疫情而放缓的个人消费为中心，经济将在民间需求主导下复苏。日本政府每年12月制定经济展望，作为在下一年度预算案中估算税收的前提。18家民间机构的预测值平均为3.0％，政府展望高于这一数字。贴近生活实际感受的名义增长率定为3.6％。](https://cn.nikkei.com/politicsaeconomy/epolitics/47103-2021-12-23-13-18-25.html)
 
-**7.日本新型量子计算机最早2030年问世**
 
-[日本的产官学联盟将登上新一代高速计算机量子计算机的世界舞台。NTT和东京大学等12月22日发布消息表示，已开发出使用光子的新型计算机的核心技术，计划到2030年制造出高性能实物机型。量子计算机不仅关乎产业竞争力，还可能会影响国家安全保障。美国和中国也在加紧进行相关开发，呈现出举国家之力参与开发竞争的局面。“光量子计算机”应用的是基于量子力学这一物理学理论的光子的性质。NTT、东京大学和理化学研究所开发出装置，能以优良的品质制造出被称为“压缩光”（对计算起到关键作用）的特殊光。将这种光传输到光纤中，可以导出想要解决的问题的答案。](https://cn.nikkei.com/industry/scienceatechnology/47096-2021-12-23-09-46-18.html)
+> It appears that Dr. Fauci and others at the NIH were working to limit doctors ability to provide [#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw) early treatments and therapeutics. In response, Dr. Valdimir "Zev" Zelenko says that “stifling debate shows a desire to hide the truth.’[@jfradioshow](https://twitter.com/jfradioshow?ref_src=twsrc%5Etfw) [#OutsideTheBeltway](https://twitter.com/hashtag/OutsideTheBeltway?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/11cGqqUDyy](https://t.co/11cGqqUDyy)
+> — Real America's Voice (RAV) (@RealAmVoice) [December 23, 2021](https://twitter.com/RealAmVoice/status/1473808083000254478?ref_src=twsrc%5Etfw)
 
-**8.IQM继续在欧洲扩张**
 
-[(美国商业资讯)– 新设立的IQM法国公司将利用IQM的联合设计方法，与航空、航天和网络安全领域的客户开展密切合作。IQM也是源讯(Atos)Scaler项目的参与公司，其法国子公司将进一步专注于HPC集成，并为全球超级计算中心提供量子加速器。QM Quantum Computers (IQM)在巴黎设立第四家欧洲办事处，巩固了在欧洲的领导地位。之前该公司还发布了以下公告：
-• IQM在芬兰开设独家量子计算机制造厂。
-• IQM与VTT合作达成芬兰量子计算机联合创新项目的首个里程碑；5量子位量子计算机现已投入运行。
-• 作为Q-Exa联盟成员，IQM正在德国建造一台量子计算机，该计算机将首次集成到HPC超级计算机中。](http://www.businesswirechina.com/zh/news/49166.html)
 
-**9.截止今天5：50 喜币价格24小时变化-9.45 %**
+**4. 真正美国之声12月23日发推说：** 几个基督教组织向美国最高法院提出上诉，要求暂停执行美国劳工部的疫苗强制令，他们认为该项强制令违反了宪法第一修正案和1993年的《宗教自由恢复法》（Religious Freedom Restoration Act）。 【推文转报道，位于德克萨斯州的第一自由研究所（First Liberty Institute）代表这些组织提起了诉讼，长达179页的诉讼书要求负责第六巡回法庭的布雷特·卡瓦诺 (Brett Kavanaugh) 大法官发出暂停令，禁止执行美国职业安全与健康管理局OSHA针对拥有百名雇员以上企业的疫苗强制令。这些基督教组织认为，OSHA的规定违反了受法律保护的宗教自由，因为它不允许有任何宗教上的豁免或便利。】
 
-[密翻金融组12月23日5：50报道，喜币（HCN）最后价格为34.500美元（HDO），24小时变化-9.45 %， 24小时最高值为39.750美元(HDO)，24小时最低值为31.300美元(HDO)，24小时交易量为191,707.278HCN。](https://himalaya.exchange/trading?coinpair=HCN/HDO)
 
-评论： HCN价格回落到34.500美元，降低了购买成本，有利于资金不充裕的广大战友抓住时机投资，在较低价位持有更多HCN，以便能够分享到未来能HCN起飞后带来的巨大收益，形成以钱灭共的正向循环，让每个战友有实力支持和参与新中国联邦的灭共行动中，揭露中共利用各国不良媒体在海外让华人陷入种族歧视的阴谋，团结起来，切实维护华人的生命财产安全，树立新中国联邦人“真善狠”的新形象，让针对华人的种族歧视惨剧不再上演。
 
-By 【秘密翻译组-金融组】
-作者：和理非
+> Several Christian organizations have appealed to the US Supreme Court to issue a stay prohibiting the U.S. Department of Labor from enforcing a vaccine mandate that they argue violates the First Amendment and the Religious Freedom Restoration Act of 1993.[https://t.co/3CoLjYeWS8](https://t.co/3CoLjYeWS8)
+> — Real America's Voice (RAV) (@RealAmVoice) [December 22, 2021](https://twitter.com/RealAmVoice/status/1473775359225044994?ref_src=twsrc%5Etfw)
 
+
+
+**5. 班农先生12月22日在盖特发文：** 在其垂死的阵痛中，非法的拜登政权完全没有意识到，也没有做好犯罪的准备，就向仍对新冠疫苗犹豫不决的美国公民开战了。
+
+[https://gettr.com/post/pkcvwgebd1](https://gettr.com/post/pkcvwgebd1)
+
+**6. 新唐人12月22日在盖特发文：** 奥地利林茨市正在雇人寻找未接种新冠疫苗的人，并确保该国宣布了一项全国性的疫苗强制令后让那些人支付罚款。 【盖文转报道，根据林茨市议会官方网站上发布的招聘广告，该职位的月薪至少为2774欧元，职责包括为未接种疫苗的人准备刑事命令、处理对该命令的上诉、对这些人采取措施。当然，这项工作只对已完全接种的奥地利公民开放。自明年2月1日起，所有在奥地利有住所并且年满 14 岁的人都必须接种新冠疫苗。约有20万人口的林茨市是整个奥地利疫苗接种率最低的地区，目前只有63%的市民接种了两剂疫苗。】
+
+[https://gettr.com/post/pkcv547621](https://gettr.com/post/pkcv547621)
+
+**7. 印太新闻 – 关注中共威胁 12月22日发推说： **根据维基解密获得的美国国务院在2009年6月的一份电报，时任美国国务卿的希拉里·克林顿警告法国，武汉实验室的功能增强研究可能会导致“生物武器扩散问题”。 【推文转《en Volve》报道，2009年9月在巴黎举行的澳大利亚集团（Australia Group）全体会议之前，所有成员国的大使馆都收到了这些电报。澳大利亚集团是一个“非正式”的国际出口管制论坛，其目的是确保出口不被用于化学或生物武器的研发和扩散。克林顿在给法国的一封电子邮件中说：“美国认为参与者将从您协助中国在武汉病毒研究所建立生物安全 4 级 实验室时的出口管制和无形技术转让中受益。我们认为必须关注新兴的化学和生物技术、以及与化学武器有关的货物贸易趋势和威胁。”克林顿还要求澳大利亚集团成员交出那些与中共的生物和化学武器计划有关的信息。】
+
+
+
+> Hillary Clinton Warned ‘Biological Weapons’ Being Made at [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) Wuhan Lab on 2009
+> 
+> State Department cables obtained by WikiLeaks reveal Clinton warned [#France](https://twitter.com/hashtag/France?src=hash&amp;ref_src=twsrc%5Etfw) that gain-of-function activities at Wuhan lab were a “biological weapons proliferation concern.”[https://t.co/tKpMj1Spsh](https://t.co/tKpMj1Spsh) [pic.twitter.com/qwixGYeowK](https://t.co/qwixGYeowK)
+> — Indo-Pacific News – Watching the CCP-China Threat (@IndoPac\_Info) [December 22, 2021](https://twitter.com/IndoPac_Info/status/1473557020720517127?ref_src=twsrc%5Etfw)
+
+
+
+**8. 盖特官方12月23日发推说：** 杰森米勒在接受El American采访时说：“硅谷科技寡头公然实行的影子禁令和审查制度并不仅仅适用于保守派，许多自由派人士也正在认识到这一新的现实。我们欢迎他们在盖特上实践他们的言论自由权利。”
+
+
+
+> “The blatant shadow banning and censorship practiced by Silicon Valley doesn’t just apply to conservatives. Many liberals are waking up to this new reality too, and we welcome them to practice their right to free speech here on GETTR.” – [@JasonMillerinDC](https://twitter.com/JasonMillerinDC?ref_src=twsrc%5Etfw)[https://t.co/fHHD0n1xAG](https://t.co/fHHD0n1xAG)
+> — GETTR (@GETTRofficial) [December 22, 2021](https://twitter.com/GETTRofficial/status/1473715269302431767?ref_src=twsrc%5Etfw)
+
+
+
+**9. 《华盛顿时报》12月22日发推说：** 五角大楼的印太司令部最近公布了一个软件应用程序，军方官员说，该程序可以预测中共军队对美国在该地区活动的反应，以缓和紧张局势。 【推文转报道，一些分析家警告说，该应用程序代表着美国对中共的绥靖政策又进一步，美国的决策者们对惹恼北京产生了恐惧，因此他们被中共领导人所操纵。国防部的官员和发言人说，该软件工具旨在系统地衡量中共对美国在该地区行动的反应，比如对台湾的武器销售，在有争议的海域进行海军和空军演习，以及国会访问台湾。一位国防部官员表示，该工具衡量美中“战略摩擦”（strategic friction），该工具研究了自2020年年初以来的数据，评估各种影响美中关系的重大活动。军事领导人和五角大楼的政策制定者将利用它来预测北京将如何应对美国的行动。该软件是拜登政府寻求遏制中共侵略行为的政策的一部分，同时不惜一切代价防止世界上两个最强大的国家和两个最大的经济体之间发生公开冲突。】
+
+
+
+> The Pentagon’s Indo-Pacific Command recently unveiled a software application that military officials say will monitor Chinese military anger at U.S. activities in the region in a bid to reduce tensions. [#TWTFrontPage](https://twitter.com/hashtag/TWTFrontPage?src=hash&amp;ref_src=twsrc%5Etfw)[https://t.co/IWywizx61d](https://t.co/IWywizx61d)
+> — The Washington Times (@WashTimes) [December 22, 2021](https://twitter.com/WashTimes/status/1473660506971979777?ref_src=twsrc%5Etfw)
+
+
+
+**10. Disclose.tv 12月23日发推说： **尽管在过去的12个月，英国政府进行了所有的疫苗接种工作，但疫情仍无法遏制，英国最新的单日新增新冠病例数首次超过了10万。
+
+
+
+> JUST IN – UK reports over 100,000 new [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) cases for the first time despite all vaccination efforts during the last 12 months.
+> — Disclose.tv (@disclosetv) [December 22, 2021](https://twitter.com/disclosetv/status/1473688611572924429?ref_src=twsrc%5Etfw)
+
+
+
+**11. Disclose.tv 12月23日发推说：** 德国慕尼黑的数千市民再次走上街头，抗议防疫限制措施和疫苗强制令。警方可以阻止一两次抗议活动，但无法阻止多次。
+
+
+
+> NOW – Thousands protest in [#Munich](https://twitter.com/hashtag/Munich?src=hash&amp;ref_src=twsrc%5Etfw) against Covid restrictions and compulsory vaccinations again. Police could not stop the large crowd multiple times.[pic.twitter.com/kAvEjaicIs](https://t.co/kAvEjaicIs)
+> — Disclose.tv (@disclosetv) [December 22, 2021](https://twitter.com/disclosetv/status/1473765998851461124?ref_src=twsrc%5Etfw)
+
+
+
+**12. 喜马拉雅战鹰团12月23日在盖特发文：** 彼得·麦卡洛博士说：“最有效的传染控制，是口鼻消毒疗法，任何消毒剂，比如，碘可以消毒。 用一个鼻腔喷雾器或者滴管，喷入口腔，吸入鼻腔深处直到嗓子里，然后再嘴里吐出来。必须从鼻子吸进去，这样才能有效清理鼻腔，然后用剩余的溶液漱口吐出来。最后用Scope或者Listerine漱口水漱口。
+
+[https://gettr.com/post/pkf9zse752](https://gettr.com/post/pkf9zse752)
+
+**13. 郭文贵先生12月23日在盖特发文：** 中共对人类释放的复合性病毒，有快速死亡、慢速死亡、长期死亡。这些病毒正在威胁全人类，为什么全世界的政府不找中共要病毒的真相？ 突发：奥米炕变种浪潮将席卷美国，到明年3月将有 60% 的人受到感染，新感染人数将达到 1.4 亿，但华盛顿大学警告说，90% 的人永远不会出现症状。
+
+[https://gettr.com/post/pkegqnab97](https://gettr.com/post/pkegqnab97)
+
+**以上社交媒体新闻由 巴拉克和Stephanie 联合编译报道**
+
+发布：陸柒陸捌
+
+* * *
+
+**By 【秘密翻译组-即时新闻播报组】**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/秘翻海报.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

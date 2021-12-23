@@ -2,40 +2,24 @@
 ---
 
 
-## 单伟建派出的杨贝贝坦承爆料革命在全球掀起的反共浪潮
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1782884/)
+## 最高法院将于1月初听取强制接种中共病毒疫苗的辩论
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1783005/)
 
-最早看到的就是大卫和木兰，这就是说，我让她采访，知道来黑咱来了，我们全程记录，她在镜头前就敢说，是全球掀起的反共浪潮，你说我啥感觉兄弟姐妹们？
+#### 撰稿：彩虹
 
-我告诉大家，这是我一生中很大的一场荣幸，敌人派来的美女尖兵，竟然说你是我们最大的敌人，而且对我们造成了最大的威胁，哇塞！我这太幸福了！当时你看我那个表情，我就幸福的已经不得了啦。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-35.jpg)图片来源：福克斯
+12月22日，《国会山报》报道，最高法院将于下个月听取针对拜登政府要求雇主强制对员工接种中共病毒疫苗的口头辩论。
 
-单伟建，共产党派出来的人，竟然这么说咱，那就是敌方的批评，就是最大的奖励。
+文章说，周三晚上，大法官们宣布，为此类案件制定了一个快速时间表。在发布的一对命令中，最高法院表示，将于1月7日听取有关拜登总统对大型雇主的强制疫苗接种和测试，以及CMS（医疗保险和医疗补助服务中心）要求医护人员强制接种中共病毒疫苗规定的口头辩论。为了加速这些案件时间表，最高法院推迟了对是否阻止新规定的裁决，直到听完这些法律挑战口头辩论后。
 
-编辑整理：海贼王M.D.LUFFY；
+根据报道，职业安全与健康管理局（OSHA）上个月发布了一项规定，要求员工人数超过100人的公司强制要求其工人接种中共病毒（COVID-19）疫苗或进行定期测试，并采取其他措施来防止中共病毒的传播。而CMS的规定则要求全国几乎所有的医疗工作者都要接种中共病毒疫苗。
 
-字幕文件制作：小满；
+报道认为，由于这两项政府的强制规定将于1月份生效，从而下级法院对这两项规则意见的不一，促使最高法院有了干预的紧迫感。
 
-视频制作及上传：Cindy；
+**新闻来源**
 
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；**
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%25E9%2593%25B6%25E6%25B2%25B3%25E7%25B3%25BB%25E5%2586%259C%25E5%259C%25BA%25E6%2597%25A5%25E6%259C%25AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+[Supreme Court to hear challenges to vaccine mandates in early January](https://thehill.com/regulation/court-battles/587044-supreme-court-to-hear-challenges-to-vaccine-mandates-in-early)
 
  
 
