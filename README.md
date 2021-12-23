@@ -15,98 +15,98 @@
 
 ---
 
-### [灭共者之郭氏情报站（六）12月22日版](/content/gnews/1/README.md)
+### [中共经济熄火，澳洲铁矿石的好日子到头了](/content/gnews/1/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [哥伦比亚大学发现奥米克戎变体具有“惊人 ”的抗疫苗性](/content/gnews/2/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [马斯克又出奇招，变二氧化碳为火箭燃料](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [完全接种疫苗母亲产下口鼻出血婴儿 一天后婴儿死亡](/content/gnews/4/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [灭共者之郭氏情报站（六）12月22日版](/content/gnews/5/README.md)
  ` MOS Designer香草山设计部`
 
-### [12/23/2021 文贵盖特：HBO/VICE和杨贝贝用心险恶，爆料革命和海外华人已被定义为邪教和恐怖分子](/content/gnews/2/README.md)
+### [12/23/2021 文贵盖特：HBO/VICE和杨贝贝用心险恶，爆料革命和海外华人已被定义为邪教和恐怖分子](/content/gnews/6/README.md)
  ` 秘密翻译组-北美组`
 
-### [2021年12月22日文贵大直播简报](/content/gnews/3/README.md)
+### [希腊因Omicron担忧禁止圣诞节庆祝活动](/content/gnews/7/README.md)
+ ` MG FARM`
+
+### [2021年12月22日文贵大直播简报](/content/gnews/8/README.md)
  ` 秘密翻译组-原创组`
 
-### [医疗界的法西斯主义：FDA与USPS合谋阻止救命药伊维菌素的运输](/content/gnews/4/README.md)
+### [医疗界的法西斯主义：FDA与USPS合谋阻止救命药伊维菌素的运输](/content/gnews/9/README.md)
  ` 波士顿五月花农场`
 
-### [丹麦教授：人类会因为Omicron更快获得自然免疫，导致大流行更快地消失](/content/gnews/5/README.md)
+### [丹麦教授：人类会因为Omicron更快获得自然免疫，导致大流行更快地消失](/content/gnews/10/README.md)
  ` 秘密翻译组-原创组`
 
-### [辉瑞撒谎，人死了？公司自有疫苗试验数据显示危害显着](/content/gnews/6/README.md)
+### [辉瑞撒谎，人死了？公司自有疫苗试验数据显示危害显着](/content/gnews/11/README.md)
  ` MG FARM`
 
-### [2021年12月22日郭文贵先生直播全文字版](/content/gnews/7/README.md)
+### [2021年12月22日郭文贵先生直播全文字版](/content/gnews/12/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [新西兰女医生萨姆·贝莉细聊NAC](/content/gnews/8/README.md)
+### [新西兰女医生萨姆·贝莉细聊NAC](/content/gnews/13/README.md)
  ` 纽约香草山MOS01`
 
-### [两名护士谈论新冠大流行、患者对疫苗的反应](/content/gnews/9/README.md)
+### [两名护士谈论新冠大流行、患者对疫苗的反应](/content/gnews/14/README.md)
  ` MG FARM`
 
-### [乔拜登接受妄想，声称经济比大流行前“更强大”](/content/gnews/10/README.md)
+### [乔拜登接受妄想，声称经济比大流行前“更强大”](/content/gnews/15/README.md)
  ` MG FARM`
 
-### [泽连科医生推荐小罗伯特·F·肯尼迪在米兰的演讲](/content/gnews/11/README.md)
+### [泽连科医生推荐小罗伯特·F·肯尼迪在米兰的演讲](/content/gnews/16/README.md)
  ` 纽约香草山MOS01`
 
-### [加利福尼亚学区抗拒疫苗强制令](/content/gnews/12/README.md)
+### [加利福尼亚学区抗拒疫苗强制令](/content/gnews/17/README.md)
  ` HimalayaRussia`
 
-### [CDC撤回对PCR测试的支持](/content/gnews/13/README.md)
+### [CDC撤回对PCR测试的支持](/content/gnews/18/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [波音公司放弃对美国工人的疫苗强制要求](/content/gnews/14/README.md)
+### [波音公司放弃对美国工人的疫苗强制要求](/content/gnews/19/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [家庭反洗脑序列 第41篇 联想](/content/gnews/15/README.md)
+### [家庭反洗脑序列 第41篇 联想](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [因阿里云的网络安全原因中共工信部暂停与其合作](/content/gnews/16/README.md)
+### [因阿里云的网络安全原因中共工信部暂停与其合作](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [香港当局拆除天安门大屠杀纪念碑](/content/gnews/17/README.md)
+### [香港当局拆除天安门大屠杀纪念碑](/content/gnews/22/README.md)
  ` MG FARM`
 
-### [日本对中国采取强硬立场，起草联合美国支持台湾计划](/content/gnews/18/README.md)
- ` MG FARM`
-
-### [奥地利奇粑的疫苗强制令](/content/gnews/19/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [FDA被迫披露的辉瑞疫苗不良反应数据令人震惊](/content/gnews/20/README.md)
+### [FDA被迫披露的辉瑞疫苗不良反应数据令人震惊](/content/gnews/23/README.md)
  ` HimalayaRussia`
 
-### [西站出品系列之&#8211;西班牙喜悦农场祝福战友：圣诞快乐，新年快乐](/content/gnews/21/README.md)
+### [西站出品系列之&#8211;西班牙喜悦农场祝福战友：圣诞快乐，新年快乐](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [GTV新闻访谈简报|2021年12月23日早](/content/gnews/22/README.md)
+### [GTV新闻访谈简报|2021年12月23日早](/content/gnews/25/README.md)
  ` 纽约香草山MOS01`
 
-### [中共要求明星艺人和网络主播限期纠正涉税“违法”行为](/content/gnews/23/README.md)
+### [中共要求明星艺人和网络主播限期纠正涉税“违法”行为](/content/gnews/26/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [郭文贵直播摘要和音频 2021.12.22](/content/gnews/24/README.md)
+### [郭文贵直播摘要和音频 2021.12.22](/content/gnews/27/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [12/22/2021 文贵直播：中共在国际媒体界一手遮天，安排了5家媒体采访彭帅；中共举一国之力掩盖彭帅事件的真相与当年炮制马蕊强奸案来陷害文贵的手段如出一辙](/content/gnews/25/README.md)
+### [12/22/2021 文贵直播：中共在国际媒体界一手遮天，安排了5家媒体采访彭帅；中共举一国之力掩盖彭帅事件的真相与当年炮制马蕊强奸案来陷害文贵的手段如出一辙](/content/gnews/28/README.md)
  ` 秘密翻译组-北美组`
 
-### [美25个州起诉拜登政府针对学前儿童的戴口罩强制令](/content/gnews/26/README.md)
+### [美25个州起诉拜登政府针对学前儿童的戴口罩强制令](/content/gnews/29/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [东京中共病毒(新冠病毒)感染入院人数较上周几乎翻倍](/content/gnews/27/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [12/23/21 香港快讯 国殇之柱「斩件」装箱运走 校委会：续展示或犯法 高志活：震惊](/content/gnews/28/README.md)
+### [12/23/21 香港快讯 国殇之柱「斩件」装箱运走 校委会：续展示或犯法 高志活：震惊](/content/gnews/30/README.md)
  ` 英喜-粵語組`
 
-### [为防土地不当使用，日本内阁专设部门全面摸底重要区域领土](/content/gnews/29/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [HBO Vice Isobel Yeung记者骗取美籍华人采访，影片被剪接编辑成暴徒](/content/gnews/30/README.md)
+### [HBO Vice Isobel Yeung记者骗取美籍华人采访，影片被剪接编辑成暴徒](/content/gnews/31/README.md)
  ` G-NEWS TAIWAN`
-
-### [日本加大预算总额剑指中共技术剽窃](/content/gnews/31/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [强制疫苗一定会在两个月内被停止](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
