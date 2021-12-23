@@ -15,74 +15,74 @@
 
 ---
 
-### [米勒先生通过演讲成功向欧洲议员推广盖特](/content/gnews/1/README.md)
- ` GTV新闻访谈`
+### [加州大学欧文分校解雇拒绝接种疫苗的教授被起诉](/content/gnews/1/README.md)
+ ` 向真`
 
-### [波士顿宣布新的疫苗要求](/content/gnews/2/README.md)
- ` GTV新闻访谈`
-
-### [安大略省适逢圣诞节宣布新的新冠限制](/content/gnews/3/README.md)
+### [特勤局调查被盗的新冠救济资金超过 1000 亿美元](/content/gnews/2/README.md)
  ` MG FARM`
 
-### [中共西藏谎言系列之一：西藏人口增长](/content/gnews/4/README.md)
+### [淘宝带货一姐薇娅因偷漏税被罚14.61亿人民币](/content/gnews/3/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [彭丽媛的情人原来是他](/content/gnews/5/README.md)
+### [米勒先生通过演讲成功向欧洲议员推广盖特](/content/gnews/4/README.md)
+ ` GTV新闻访谈`
+
+### [波士顿宣布新的疫苗要求](/content/gnews/5/README.md)
+ ` GTV新闻访谈`
+
+### [安大略省适逢圣诞节宣布新的新冠限制](/content/gnews/6/README.md)
+ ` MG FARM`
+
+### [中共西藏谎言系列之一：西藏人口增长](/content/gnews/7/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2021/12/22 大卫作战室直播精要](/content/gnews/6/README.md)
+### [彭丽媛的情人原来是他](/content/gnews/8/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [2021/12/22 大卫作战室直播精要](/content/gnews/9/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [大料！Isobel Yeung的污蔑视频是北京欲取消中美贸易关税的阴谋](/content/gnews/7/README.md)
+### [大料！Isobel Yeung的污蔑视频是北京欲取消中美贸易关税的阴谋](/content/gnews/10/README.md)
  ` YALUN 亚伦`
 
-### [币圈新闻 &#8211; 第209期](/content/gnews/8/README.md)
+### [币圈新闻 &#8211; 第209期](/content/gnews/11/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [美国今年11月的通胀指数升至6.8%](/content/gnews/9/README.md)
+### [美国今年11月的通胀指数升至6.8%](/content/gnews/12/README.md)
  ` 纽约香草山MOS02`
 
-### [前奥运选手呼吁加拿大运动员抵制北京冬奥会](/content/gnews/10/README.md)
+### [前奥运选手呼吁加拿大运动员抵制北京冬奥会](/content/gnews/13/README.md)
  ` MG FARM`
 
-### [12月22号文贵直播：战友亲述与杨贝贝接触的经历以及视频对他们造成的伤害](/content/gnews/11/README.md)
+### [12月22号文贵直播：战友亲述与杨贝贝接触的经历以及视频对他们造成的伤害](/content/gnews/14/README.md)
  ` 秘密翻译组-原创组`
 
-### [文·贵天成——文贵先生谈“中原佛手、裕达国贸”（十一）](/content/gnews/12/README.md)
+### [文·贵天成——文贵先生谈“中原佛手、裕达国贸”（十一）](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [新力控股深陷债务危机 无力偿还即将到期的美元债券](/content/gnews/13/README.md)
+### [新力控股深陷债务危机 无力偿还即将到期的美元债券](/content/gnews/16/README.md)
  ` 日本东京方舟农场`
 
-### [乘客完全接种 豪华游轮仍爆发了COVID-19感染](/content/gnews/14/README.md)
+### [乘客完全接种 豪华游轮仍爆发了COVID-19感染](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [台湾累计确诊12例Omicron病例 均属接种疫苗后仍感染案例](/content/gnews/15/README.md)
+### [台湾累计确诊12例Omicron病例 均属接种疫苗后仍感染案例](/content/gnews/18/README.md)
  ` 日本东京方舟农场`
 
-### [FOX主持人质问福奇“杀人疫苗注射”](/content/gnews/16/README.md)
+### [FOX主持人质问福奇“杀人疫苗注射”](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2021.12.21 墙内世界](/content/gnews/17/README.md)
+### [2021.12.21 墙内世界](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [因疫情严峻 陕西西安宣布“封城”](/content/gnews/18/README.md)
+### [因疫情严峻 陕西西安宣布“封城”](/content/gnews/21/README.md)
  ` 日本东京方舟农场`
 
-### [绍尔∙奥马洛娃撤回领导美国货币监理署OCC的提名](/content/gnews/19/README.md)
+### [绍尔∙奥马洛娃撤回领导美国货币监理署OCC的提名](/content/gnews/22/README.md)
  ` 纽约香草山MOS02`
 
-### [12月22日文贵大直播： Omicron危险性比想象大得多 伊维菌素和青蒿素对其有些不是100%管用](/content/gnews/20/README.md)
+### [12月22日文贵大直播： Omicron危险性比想象大得多 伊维菌素和青蒿素对其有些不是100%管用](/content/gnews/23/README.md)
  ` 秘密翻译组-原创组`
-
-### [陕西西安因疫情升温中风险地区数量暴增](/content/gnews/21/README.md)
- ` 日本东京方舟农场`
-
-### [热门文章彰显主流新闻业的智力和道德崩溃](/content/gnews/22/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [恒大：中共努力遏制它的“雷曼时刻”](/content/gnews/23/README.md)
- ` 日本东京方舟农场`
 
 ### [佛州州长开始行动：佛州养老基金将与中共脱钩](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`

@@ -2,36 +2,37 @@
 ---
 
 
-## 米勒先生通过演讲成功向欧洲议员推广盖特
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1782014/)
+## 加州大学欧文分校解雇拒绝接种疫苗的教授被起诉
+` 向真` [轉載自GNews](https://gnews.org/zh-hans/1782043/)
 
-作者：东京樱花团—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月19日，社交媒体平台盖特的CEO杰森-米勒先生在接受英国媒体的采访时表示，上周，他在法国向欧洲议会成员发表了一场非常成功的演讲，同时，他还向这些议会成员推广了盖特平台。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-23-上午7.45.49.png)
-米勒先生谈到，在他逗留法国的期间里，许多法国的保守派领导人都加入了盖特平台。此外，这些领导人还邀请米勒先生加入欧盟驻欧洲委员会斯特拉斯堡代表团，并就“自由言论、平民主义和永不屈服于全球主义者”这一主题发表演讲。米勒先生提到，演讲现场有来自10个国家的将近50名欧洲议会成员。
+#### 加拿大温哥华农场 向真
+![](https://assets.gnews.org/wp-content/uploads/2021/12/IMG_0057.jpeg)prnewswire
+据鸿声传媒12月22日报道，加州大学欧文分校因解雇拒绝接种中共病毒疫苗的精神病学家、天主教徒亚伦·凯里亚蒂（ Aaron Kheriaty），而被凯里亚蒂教授起诉至法院。
 
-米勒先生表示，盖特现在已经拥有了超过三百万的用户。他还提别提及，在盖特总体的用户增长排行榜上，英国用户的增长幅度大概处于七八名的位置，目前大约有十五万零两百名的英国用户正在使用盖特。
+凯里亚蒂在起诉书中称，学校执行的疫苗接种授权，违反了第十四修正案“任何一州，都不得制定或实施限制合众国公民的特权或豁免权的法律。”
 
-米勒先生强调称，欧洲有很多人相信言论自由，他们坚决反对各国政府目前因中共病毒疫情而实行封城措施，他们也很清楚，政府采取的中共病毒疫苗强制接种政策会毁掉一切。
+在博客文章中，曾任欧文分校医学伦理项目主任的凯里亚蒂透露了他被解雇的消息。他说，我想象不到我的大学会以这种粗暴的态度和非法的理由解雇我以及其他不愿意接种疫苗的医生、护士、教职员工和学生。
 
-参考链接：
-1）[https://gettr.com/post/pkafxz070c](https://gettr.com/post/pkafxz070c)
-2）[About the EU Delegation in Strasbourg](https://eeas.europa.eu/delegations/council-europe_en/1836/About%20the%20EU%20Delegation%20in%20Strasbourg)
+该事件被披露后，欧立分校拒绝置评。据悉，该校是在执行拜登政府要求所有学生、教职员工必须接种中共病毒疫苗的授权。
 
-![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+作为天主教徒的凯里亚蒂向学校提出的疫苗接种豁免并不是宗教豁免，而是在去年夏天感染中共病毒后自己已经拥有自然免疫力这个理由。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-391.jpeg)UStravel
+凯里亚蒂称，作为从中共病毒感染中康复的人，我实际上是在校园里最安全的人。他在给学校的书面声明中说，美国有超过1.2亿人感染了中共病毒，但没有一起个人再次感染后将病毒再传播给其他人的医学记录。
 
-总编：Jack Li文阳
-编辑：诺雅
-校正/发稿：呼吸的雾霾（文小呼吸）
+他的豁免在10月被拒绝，同时学校不仅命令凯里亚蒂休假，还禁止他在注射疫苗之前与学生和患者互动，凯里亚蒂选择抗争，直至最近被解雇。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+凯里亚蒂气愤的表示，由于我挑战了他们的授权，所以成为对社区健康和安全的威胁。学校领导层不仅对真实存在的自然免疫力以及疫苗安全性问题、有效性问题视而不见，对正常的科学辩论或道德审议也不感兴趣。
+
+凯里亚蒂坚定认为，我需要遵循源于天主教信仰的良知，同时作为一名伦理学家，我有责任努力维护我所宣扬和教授的医学伦理学的基本原则。
+
+加州大学欧文分校（University of California, Irvine）坐落在美丽的尔湾，是一所常春藤名校，建校56年来已培养出7位诺贝尔奖得主、7位普利策奖得主。
+
+参考：
+
+[UC-Irvine Fires Catholic Ethics Director For Refusing To Abide By COVID Shot Mandate](https://www.redvoicemedia.com/2021/12/uc-irvine-fires-catholic-ethics-director-for-refusing-to-abide-by-covid-shot-mandate/)
+
+编辑/发文：Kent
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
