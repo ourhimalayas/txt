@@ -2,40 +2,40 @@
 ---
 
 
-## FDA发布更多关于辉瑞疫苗不良反应的数据
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1785957/)
+## 日本在中国政府的威胁下批准了创纪录的国防预算
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1786015/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1285.png)资料图
-随着“美国食品药品监督管理局(FDA)”准备批准辉瑞(Pfizer)用于治疗感染新冠病毒的高危患者的新药物，更多关于与其疫苗相关的危险副作用的信息正在被曝光。
-就在昨天，我们报道了在新西兰发生的另一起与辉瑞疫苗有关的死亡事件。如今，FDA发布的文件显示，制药商辉瑞公司在其新冠疫苗推出的最初几个月就记录了近16万起不良反应。
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-这些数据是由一群医生、教授和记者获取的，他们自称是“为透明化奋斗的公共卫生和医疗专业人员”。他们向FDA提交了《信息自由法》请求，要求公布这些数据。第一批公布的文件显示，截至2021年2月，当辉瑞公司的疫苗在全球范围内作为紧急授权被推出时，该制药商已经汇编了超过42000份病例报告，详细描述了近16万个人对疫苗的不良反应。
-数据显示，大部分的不良事件病例，不论严重与否，都被归类为“一般疾病”。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1287.png)
-报告的更常见的症状包括发烧（发热）、疲劳和腹泻等。
-但或许整份报告中最令人惊讶的数字是，在美国有超过1000例的病例是致命的。总体而言，超过3000人的死亡与该疫苗有关，这与辉瑞公司自己的数据是一致的。批评者认为，一些死亡病例不能确定与疫苗有关，但其他人则坚持认为，死亡人数可能仍然被低估了。
-请记住，FDA就是利用这些数据在8月份宣布辉瑞疫苗对16周岁以上的美国人是安全的。而此后截至上周，该疫苗已被批准用于5岁以上的儿童，以及用于16岁及以上人群的加强针。
-
-简评：
-美国食品药品监督管理局配合辉瑞等中共病毒疫苗公司，掩盖并淡化大量有关毒疫苗的不良反应，谎称该疫苗是安全的，向美国及全球民众包括儿童和青少年强推疫苗接种，这不仅是公然欺骗全人类，更对人类安全和种族繁衍构成了巨大的威胁。
-如今，疫苗副作用及其造成的致死、致残案例不断被曝光，世界各国政府却仍然不遗余力地继续以科学的名义，在各自国家强推疫苗接种。足可见世界黑暗力量布局之深已经超出我们所有人的想象。但是，力的作用都是相互的，它们越是掩盖真相，当真相被曝光之后，世界人民给予它们的反击力量也会越大，当疫苗危机爆发，病毒和疫苗真相最终无法掩盖的时候，人民的愤怒必将如山呼海啸一样将这些无良制药商和黑心政客彻底摧毁。
-
-原文链接：[https://www.zerohedge.com/covid-19/fda-releases-more-data-adverse-reactions-pfizer-vaccine](https://www.zerohedge.com/covid-19/fda-releases-more-data-adverse-reactions-pfizer-vaccine)
-
-翻译/简评：Kone\_Neko
-
-PR：Harvey（叶知秋）
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/1200x800.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+图片来源： *Kiyoshi Ota/Bloomberg*
+
+
+#### 编译 ：小红帽
+
+根据Hindustan Times12月24日报道，**日本内阁于周五批准了创记录的5.4万亿日元（472亿美元）的国防预算，用于从4月开始的年度。该预算是为了加强能力来抵御来自中国政府的威胁。**
+
+这一数字标志着日本的年度国防开支连续第10次增长，超过了这个和平主义国家几十年来基本维持的国内生产总值1%的上限。
+
+根据斯德哥尔摩国际和平研究所的数据，与其盟友美国相比，日本的国防预算并不高， 2020年预估为7780亿美元，中国则为2520亿美元。整体预算必须在明年正式颁布前获得议会通过。
+
+在北京当局于2020年镇压香港之后，日本和中国之间的关系变得越来越冷淡。两国的船只继续在位于东中国海的岛屿周围相互追逐。
+
+包括首相岸田文雄在内的日本官员也越来越直言不讳地表示，需要为台湾周边的突发事件做准备。
+
+新闻来源：[Japan approves record defence budget amid China threats | World News – Hindustan Times](https://www.hindustantimes.com/world-news/japan-approves-record-defence-budget-amid-china-threats-101640313873259.html)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

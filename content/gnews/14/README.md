@@ -2,39 +2,43 @@
 ---
 
 
-## 欧洲议会议员反对欧盟主席强制疫苗政策
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1786090/)
+## Nicole 揭露Isobel Yeung 的谎言
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1786099/)
 
-作者：东京樱花团 – 在远方
+**撰稿：Grace**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1138.png)
+**校对：Grace**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-24-at-1.07.00-AM.jpeg)
+Nicole 女士在12月22日的“文贵大直播”中透露，HBO VICE的记者Isobel Yeung  (杨贝贝)不仅骗取了对她的采访，把参加1月6日的华盛顿游行美国的华人说成是 “暴徒”， 还把骗来的这个采访做成了一个想要诋毁郭先生的扭曲真相的纪录片。
 
-盖特12月21日消息，欧洲议员罗伯特-汝斯在议会公开质疑欧盟委员会主席冯德莱恩的强制疫苗政策。
+据Nicole  的描述，Isobel在去年12月14号通过脸书联系了她，说想采访她， 然后做一个关于美国的华人为什么会支持川普的纪录片。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/8-13.png)
+另外， Isobel 还对Nicole说她报道过香港的运动，还报道过新疆的集中营。
 
-汝斯认为，冯德莱恩强迫人们接种中共病毒疫苗的观点与其12月8日民主峰会上的表态相违背。如果冯德莱恩主张民主制度赋予人们言论、行为和选择的自由，那么强制疫苗政策恰恰在剥夺选择的自由，即剥夺民主。
+“有没有说采访过我啊？”郭先生问Nicole。
 
-汝斯表示，过去6个月两针辉瑞疫苗对奥密克戎的抵御力为零，因此科学家不认同疫苗对健康的年轻人有保护作用，所以强制疫苗政策是不合情理且不透明的。汝斯称自己将捍卫公民权利，质疑并要求公开欧盟委员会与疫苗制造商之间的保密合同。
+“没有，”Nicole 答道。
 
-参考链接：
+“这女孩是骗取采访，”郭先生直接地说。
 
-- [https://gettr.com/post/pk7zcd2a3d](https://gettr.com/post/pk7zcd2a3d)
+Nicole  表示，当她发现Isobel没有把对她的采访，做成她先前所说的纪录片，反而是做成了一个攻击郭文贵先生的视频的时候，觉得很震惊。
 
+Nicole接着告诉看直播的观众说，为了这事她发短信给Isobel ，对她说：“你做为一位职业的媒体人，你欺骗了我，因为你没有告诉我你做这个片子的真实的目的。” 可是，“她就跑了，她就不敢再回答我，”Nicole 说。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
+另外，Nicole 表明，她所说的这些事都有截屏。而且她还郑重地对着屏幕前的Isobel说：你当时如果跟我讲你是做一个关于郭文贵先生的一个纪录片的话呢，我不会接受你的采访的。”
 
-总编：Irene木木
-编辑：文徬
-校正/发稿：海阔天空1
+在直播中，Nicole 还表明，她还对Isobel 在视频中把所有的参加1月6日的集会的支持川普的美国华人说成是“暴徒” 的这一做法，感到很 ”担心”和“惊慌失措”。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+“因为在美国，如果你被别人说是暴徒的话，这是很可怕的一件事情，”Nicole 解析说。
+
+Nicole 接着说她在接受Isobel的采访之前有向她说过，1月6日的华人的游行是由”Chinese American Alliance for Trump” 组织的活动。
+
+“他们的这个组织是草根组织，跟郭先生没半毛的关系，” Nicole 愤怒地说道。
+
+Nicole 还表示，她无法理解，为什么Isobel把当天参加游行的美国华人都说成是暴徒，还把这些华人放在一个想要诋毁郭先生的一个扭曲真相的纪录片里面。
+
+**新闻来源： https://gtv.org/video/id=61c324ccbcb7f101bb732568**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

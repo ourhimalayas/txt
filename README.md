@@ -15,134 +15,134 @@
 
 ---
 
-### [中共倾一国之力收买、封杀爆料革命的真实数据](/content/gnews/1/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [网信办打击流量造假黑公关和网络水军](/content/gnews/2/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [港共政府移除“国殇之柱”](/content/gnews/3/README.md)
- ` GTV新闻访谈`
-
-### [欧盟拟对中共国铝箔加征关税](/content/gnews/4/README.md)
- ` GTV新闻访谈`
-
-### [美25州就学前教育者疫苗强制令起诉拜登政府](/content/gnews/5/README.md)
- ` GTV新闻访谈`
-
-### [一周中共病毒及疫苗伤害等信息汇总](/content/gnews/6/README.md)
- ` GTV新闻访谈`
-
-### [加入欧美抵制冬奥，日本不派官员参加](/content/gnews/7/README.md)
- ` 墨尔本雅典娜农场`
-
-### [墙内噤声墙外漂白，彭帅事件继续暴露中共假恶丑](/content/gnews/8/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [【中日财经爆】由于能源价格上涨，日本11月CPI涨幅明显](/content/gnews/9/README.md)
+### [【中日财经爆】许家印夫妇近8亿元股份被斩仓](/content/gnews/1/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [Nicole 揭露Isobel Yeung 的谎言](/content/gnews/10/README.md)
+### [冬奥会一定会有感染病毒，集体事件](/content/gnews/2/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [【中日财经爆】印度对中资企业开展大规模税务调查](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [文贵先生针对流氓媒体的引蛇出洞，到底一剑几雕？](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共倾一国之力收买、封杀爆料革命的真实数据](/content/gnews/5/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [网信办打击流量造假黑公关和网络水军](/content/gnews/6/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [港共政府移除“国殇之柱”](/content/gnews/7/README.md)
+ ` GTV新闻访谈`
+
+### [欧盟拟对中共国铝箔加征关税](/content/gnews/8/README.md)
+ ` GTV新闻访谈`
+
+### [美25州就学前教育者疫苗强制令起诉拜登政府](/content/gnews/9/README.md)
+ ` GTV新闻访谈`
+
+### [一周中共病毒及疫苗伤害等信息汇总](/content/gnews/10/README.md)
+ ` GTV新闻访谈`
+
+### [加入欧美抵制冬奥，日本不派官员参加](/content/gnews/11/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [墙内噤声墙外漂白，彭帅事件继续暴露中共假恶丑](/content/gnews/12/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [【中日财经爆】由于能源价格上涨，日本11月CPI涨幅明显](/content/gnews/13/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [Nicole 揭露Isobel Yeung 的谎言](/content/gnews/14/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [【中日财经爆】日本政府批准了有史以来最大的财政预算案](/content/gnews/11/README.md)
+### [【中日财经爆】日本政府批准了有史以来最大的财政预算案](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [英特尔致信供应商 禁用新疆产品](/content/gnews/12/README.md)
+### [英特尔致信供应商 禁用新疆产品](/content/gnews/16/README.md)
  ` GTV新闻访谈`
 
-### [哈佛教授隐瞒参与中共“千人计划”被定罪](/content/gnews/13/README.md)
+### [哈佛教授隐瞒参与中共“千人计划”被定罪](/content/gnews/17/README.md)
  ` GTV新闻访谈`
 
-### [欧洲议会议员反对欧盟主席强制疫苗政策](/content/gnews/14/README.md)
+### [欧洲议会议员反对欧盟主席强制疫苗政策](/content/gnews/18/README.md)
  ` GTV新闻访谈`
 
-### [美路易斯安那州护士爆料：相较于新冠病毒，更多的孩子死于新冠疫苗](/content/gnews/15/README.md)
+### [美路易斯安那州护士爆料：相较于新冠病毒，更多的孩子死于新冠疫苗](/content/gnews/19/README.md)
  ` 首尔天池农场`
 
-### [拜登总统签署法案，全面禁购新疆产品](/content/gnews/16/README.md)
+### [拜登总统签署法案，全面禁购新疆产品](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2021年12月23日郭先生盖特 — 视频盖特1「9分13秒」](/content/gnews/17/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [浅析“京沪粤浙等地要求艺人、主播自查自纠涉税问题”](/content/gnews/18/README.md)
+### [浅析“京沪粤浙等地要求艺人、主播自查自纠涉税问题”](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [文·贵天成——文贵先生谈“北京冬奥会”（三）](/content/gnews/19/README.md)
- ` 墨尔本雅典娜农场`
-
-### [日本政府摒弃疫苗强制 敦促公民不要歧视未接种者](/content/gnews/20/README.md)
+### [日本政府摒弃疫苗强制 敦促公民不要歧视未接种者](/content/gnews/22/README.md)
  ` GTV新闻访谈`
 
-### [日本在中国政府的威胁下批准了创纪录的国防预算](/content/gnews/21/README.md)
+### [日本在中国政府的威胁下批准了创纪录的国防预算](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [卿本佳人，缘何做贼？](/content/gnews/22/README.md)
+### [卿本佳人，缘何做贼？](/content/gnews/24/README.md)
  ` 首尔天池农场`
 
-### [FDA发布更多关于辉瑞疫苗不良反应的数据](/content/gnews/23/README.md)
+### [FDA发布更多关于辉瑞疫苗不良反应的数据](/content/gnews/25/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [随着英特尔的到来，欧洲将获得先进的芯片](/content/gnews/24/README.md)
+### [随着英特尔的到来，欧洲将获得先进的芯片](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
 
-### [日本外相声称弄清楚驻日美军基地暴发新型疫情的原因](/content/gnews/25/README.md)
+### [日本外相声称弄清楚驻日美军基地暴发新型疫情的原因](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：川普的最新商业伙伴—-一家中共国公司受SEC调查](/content/gnews/26/README.md)
+### [秘翻在线：川普的最新商业伙伴—-一家中共国公司受SEC调查](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [速报 日本政府决定不派遣官员参加北京冬奥会](/content/gnews/27/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [【中日财经爆】中共特色ESG信息披露制度 加速脱钩国际规则](/content/gnews/28/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [史蒂夫·班农：“对未注射疫苗的人的战争即将开始”](/content/gnews/29/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [VICE虚假报导是中共操纵的一场政治大宣传](/content/gnews/30/README.md)
+### [喜马拉雅农场将协助战友对HBO记者Isobel提起诉讼](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [《防止强迫维吾尔人劳动法》正式生效！](/content/gnews/31/README.md)
+### [史蒂夫·班农：“对未注射疫苗的人的战争即将开始”](/content/gnews/30/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [VICE虚假报导是中共操纵的一场政治大宣传](/content/gnews/31/README.md)
+ ` GTV新闻访谈`
+
+### [《防止强迫维吾尔人劳动法》正式生效！](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [视频| VICE采访想将爆料革命定为邪教](/content/gnews/32/README.md)
+### [视频| VICE采访想将爆料革命定为邪教](/content/gnews/33/README.md)
  ` MOSREC`
 
-### [美国政府与莫得纳公司争夺新冠疫苗的专利权](/content/gnews/33/README.md)
+### [美国政府与莫得纳公司争夺新冠疫苗的专利权](/content/gnews/34/README.md)
  ` 喜国公民`
 
-### [GTV新闻访谈简报|2021年12月23日晚](/content/gnews/34/README.md)
+### [GTV新闻访谈简报|2021年12月23日晚](/content/gnews/35/README.md)
  ` 纽约香草山MOS01`
 
-### [有声|三个宗教团体要求最高法院暂停拜登政府对企业的疫苗强制令](/content/gnews/35/README.md)
+### [有声|三个宗教团体要求最高法院暂停拜登政府对企业的疫苗强制令](/content/gnews/36/README.md)
  ` MOSREC`
 
-### [有声|泽连科医生号召人们形成新社群对抗全球主义](/content/gnews/36/README.md)
+### [有声|泽连科医生号召人们形成新社群对抗全球主义](/content/gnews/37/README.md)
  ` MOSREC`
 
-### [有声|全球最大邮轮48人感染其中47人已完整接种疫苗](/content/gnews/37/README.md)
+### [有声|全球最大邮轮48人感染其中47人已完整接种疫苗](/content/gnews/38/README.md)
  ` MOSREC`
 
-### [有声|欧盟将对中共国铝箔征收额外关税](/content/gnews/38/README.md)
+### [有声|欧盟将对中共国铝箔征收额外关税](/content/gnews/39/README.md)
  ` MOSREC`
 
-### [有声|美媒揭露中共利用网军操控社交平台舆论](/content/gnews/39/README.md)
+### [有声|美媒揭露中共利用网军操控社交平台舆论](/content/gnews/40/README.md)
  ` MOSREC`
 
-### [英、法、澳，新增感染中共病毒人数均创新高](/content/gnews/40/README.md)
+### [英、法、澳，新增感染中共病毒人数均创新高](/content/gnews/41/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [斯蒂芬.K.班農獲得國家脈動2021年度“愛國者”獎](/content/gnews/41/README.md)
+### [斯蒂芬.K.班農獲得國家脈動2021年度“愛國者”獎](/content/gnews/42/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [中共以一国之力把张高丽的性侵犯罪变爱情故事](/content/gnews/42/README.md)
+### [中共以一国之力把张高丽的性侵犯罪变爱情故事](/content/gnews/43/README.md)
  ` YALUN 亚伦`
-
-### [丹麦教授：人类会因为Omicron更快获得自然免疫，导致大流行更快地消失](/content/gnews/43/README.md)
- ` 秘密翻译组-原创组`
 
 ### [HBO Vice Isobel Yeung记者骗取美籍华人采访，影片被剪接编辑成暴徒](/content/gnews/44/README.md)
  ` G-NEWS TAIWAN`

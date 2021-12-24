@@ -2,20 +2,41 @@
 ---
 
 
-## 卿本佳人，缘何做贼？
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1786013/)
+## 日本政府摒弃疫苗强制 敦促公民不要歧视未接种者
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1786036/)
 
-撰稿—韩国首尔天池农场战友
-校对/上传—无明逆流
+作者：纽约香草山信息部 – 诺雅
 
-12月21日文贵先生直播中，讲述Vice媒体记者杨贝贝拍摄的所谓记录片。这位女记者杨贝贝，英文名叫Isobel Yeung，战友挖出她曾经在中共党媒CCTV和上海外语频道中，担任吃喝玩乐节目的主持人。此次炮制的所谓纪录片，歪曲事实，欺骗被采访人，剪辑被采访人讲话视频，断章取义，制造假新闻，抹黑郭先生和爆料革命，污蔑1月6日参加和平集会的在美华人是暴徒，煽动种族仇恨与反华情绪。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1138.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/7c_500x0.png)
+12月21日外媒消息，在中共病毒疫苗政策上，日本摒弃了其他西方国家一致采用的强制令，明确表示，只有在人们自愿和完全同意的情况下才进行疫苗接种，并告诉国民不要歧视未接种疫苗者。
 
-纵观杨贝贝同志本次展现的流氓手段，深得中共之精髓，无耻下作的风格跟其主子如出一辙，可以领狗粮了！文贵先生引领爆料革命这几年，见过太多太多中共豢养的爪牙，一波波一群群，你方唱罢我登场。中共不要妄想用这样低级的谎言和虚假的表演，来动摇爆料革命一丝一毫的信心，这些垃圾们一次次的登场，只能展示中共多么心虚，只能展现鹰犬们多么下贱！只能让爆料革命战友更加团结，更加坚定灭共的信念！
+![](https://assets.gnews.org/wp-content/uploads/2021/12/7-11.png)
 
-郭先生有悲天悯人的情怀，爆料革命有海纳百川的气量。即便如杨贝贝之流，我们仍然相信她是被共产党蛊惑，希望她能够迷途知返，回头是岸。积极与中共划清界线，交代与中共勾结的内幕，寻求被伤害者的原谅，如果继续为虎作伥残害正义人士，爆料革命战友必将依法追究，杨贝贝必将受到法律的严惩！
+日本厚生劳动省的官网上清楚表示，尽管我们鼓励所有公民接种新冠疫苗，但这不是强制性的，也不是必须的。只有向民众提供信息并得到同意后才给予接种。请民众了解疫苗对传染病预防的效果，及副作用的风险后，自行决定。未经民众同意，不可施打任何疫苗。并强调，不要强迫工作场所或周围的人接种疫苗；即使某人没有接种疫苗，也不许出现歧视性待遇，如解雇，鼓励辞职或欺凌。首相官邸的网站上也有类似声明。
 
+参考链接：
+
+- [Japanese Government Tells Citizens: “Don’t Discriminate Against the Unvaccinated”](https://dailysceptic.org/2021/12/21/do-not-discriminate-against-the-unvaccinated-japanese-government-tells-citizens/)
+- [“Do Not Discriminate” Against the Unvaccinated, Japanese Government Tells Citizens](https://dailysceptic.org/2021/12/21/do-not-discriminate-against-the-unvaccinated-japanese-government-tells-citizens/)
+- [COVID-19 Vaccines](https://www.mhlw.go.jp/stf/covid-19/vaccine.html)
+- [新型コロナウイルスに関するQ&A（一般の方向け）](https://www.mhlw.go.jp/stf/seisakunitsuite/bunya/kenkou_iryou/dengue_fever_qa_00001.html#Q1-9)
+- [新型コロナワクチンの接種を望まない場合、受けなくてもよいですか](https://www.cov19-vaccine.mhlw.go.jp/qa/0053.html)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
+
+总编：Jack Li文阳
+编辑：Kathy文艺
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

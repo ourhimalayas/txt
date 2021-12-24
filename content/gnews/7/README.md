@@ -2,41 +2,39 @@
 ---
 
 
-## 加入欧美抵制冬奥，日本不派官员参加
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1786120/)
+## 港共政府移除“国殇之柱”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1786160/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+作者：东京樱花团 – 在远方
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/np_file_128779.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1138.png)
+
+台湾媒体消息，12月23日凌晨，在香港黑警严密的安全警戒下，香港大学将已经矗立了24年之久的“国殇之柱”雕塑移除。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/6-45.jpg)
+
+据悉，“国殇之柱”描绘了50副极度痛苦的面孔，以及相互堆叠、惨遭酷刑的尸体，以纪念1989年“六四”事件中，在天安门广场被中共残忍杀害的民主抗议人士。该雕塑的创作者高志活将这座8米高、两顿重的铜铸雕像，永久出借给香港支联会。自1997年以来，这座雕像一直屹立在香港大学校园内。
+
+自去年港版《国安法》强行实施，今年支联会被迫解散后，港共政府要求港大移除此雕像，香港也因此失去了这个纪念“八九六四”国殇日的地方。
+
+参考链接：
+
+- [屹立24年已成歷史 香港大學證實拆除國殤之柱](https://cn.rti.org.tw/news/view/id/2120189)
 
 
-#### 整理/编辑 ：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
 
-根据德国之声中文网12月24日报道，由日本媒体引述多名日本政府相关人士报道称，**日本体育代表团将按计划参加冬奥会，但确定不派政府高官参加。**
+总编：Irene木木
+编辑：飞虹
+校正/发稿：海阔天空1
 
-日本正式加入美英等国外交抵制北京冬奥会的行列。
-
-日本放送协会（NHK）报道，日本内阁官方长官松野博今天表示，日本政府将不派内阁成员或政府相关人员出席明年的北京冬季奥运会。
-
-中央社报导称，北京冬奥会将由冬奥组委会主席桥本圣子等3人代表出席。
-
-美国和其他西方国家因担心中国的人权问题而宣布对冬奥会进行外交抵制，但日本迄今采取了温和的语气。
-
-另外，日本前首相安倍晋三也于23日与岸田文雄举行会谈，似乎要求其尽早表明态度。基于岸田“重视人权”的立场，日方得出了难以派遣高官的结论。
-
-作为美国的亲密盟友，日本的举动一直备受关注。日本在一段时间以来不断表达来自中国政府的威胁正在增长的忧虑。
-
-新闻来源：[加入欧美行列  日本不派官员参加北京冬奥 | 德国之声 来自德国 介绍德国 | DW | 24.12.2021](https://www.dw.com/zh/%E5%8A%A0%E5%85%A5%E6%AC%A7%E7%BE%8E%E8%A1%8C%E5%88%97-%E6%97%A5%E6%9C%AC%E4%B8%8D%E6%B4%BE%E5%AE%98%E5%91%98%E5%8F%82%E5%8A%A0%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5/a-60248947)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
