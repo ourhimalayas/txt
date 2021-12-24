@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/24/2021 12:07 AM (UTC)`
+
+12/23/2021 Miles Guo’s GETTR: It’s said that Jack Ma and Xu Jiayin are waiting for something bad to happen to Xi Jinping, aren’t they? The arrest of Liu Yazhou (retired PLA general) indicates that Xi will surely be able to eliminate the “red second generation”, the second generation of the CCP’s military officers, and the second generation of the CCP cadres, and even the second generation of the rich will inevitably be annihilated by Xi<br/><br/>12/23/2021 文贵盖特：听说马云、许家印等着习出事？刘亚洲被捕预示着习一定会干掉能对其大位产生威胁的红二代、军二代、官二代，富二代也逃不脱习的手心<br/>
+![img](https://media.gettr.com/group38/getter/2021/12/24/00/5e906b57-a7a9-bc2e-6848-53792114f67e/out.jpg)
+
+---
+
 `@miles 12/23/2021 11:07 PM (UTC)`
 
 Who exactly is Miles Guo, terminator of the CCP (Chinese Communist Party)? Stay tuned for Episode 1 of the documentary “Who is Miles Guo”, premiering on December 24th, 2021. Feel free to fact-check!<br/><br/>Fri, Dec 24th at 9:00 pm (Eastern Standard Time)<br/>Sat, Dec 25th at 10:00 am (Beijing Time)<br/><br/>GTV Live: 郭文贵MILES<br/>GETTR Live: @Miles<br/><br/>郭文贵是谁？中国共产党的终结者！2021年12月24日，纪录片《谁是郭文贵》第一集首播，不用听我们说，你们可以自己验证！<br/>播出时间：<br/>12月24日美东周五晚上 九点<br/>12月25日墙内周六早上 十点<br/>GTV直播：郭文贵MILES<br/>盖特直播：@Miles
@@ -147,13 +154,6 @@ The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO-VICE's Delibe
 
 The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO-VICE's Deliberate Lies After Deceptive Editing [Part-4]：<br/>‼️HBO-VICE's abuse of the Wall Street Journal's ‘double agent’ report to discredit Mr. Guo<br/><br/>【#HBO #VICE 采访郭文贵先生背后的真相——揭露HBO-VICE精心编织的谎言 Part-4】：<br/>‼️反击HBO-VICE利用华尔街日报的双面间谍报道来诋毁郭先生<br/><br/>YouTube link of full REBUTTAL video  (may be blocked by YouTube‘s rogue rules): https://youtu.be/VTQ91werzk8<br/>GTV link of full REBUTTAL video  (EN and CN subtitles): https://gtv.org/video/id=61c3bb8900f9a119180832eb<br/>GETTR link of full REBUTTAL video  (EN and CN subtitles): https://gettr.com/streaming/pkexq84603
 ![img](https://media.gettr.com/group39/origin/2021/12/23/12/39e95db1-1e45-93cf-1871-52df70c53c77/out.jpg)
-
----
-
-`@miles 12/23/2021 12:03 PM (UTC)`
-
-The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO-VICE's Deliberate Lies After Deceptive Editing [Part-3]：<br/>‼️HBO-VICE's defamation of Mr. Guo for the use of huge media platforms to spread facts<br/><br/>【#HBO #VICE 采访郭文贵先生背后的真相——揭露HBO-VICE精心编织的谎言 Part-3】：<br/>‼️反击HBO-VICE诋毁郭先生利用巨大媒体平台散播谎言<br/><br/>YouTube link of full REBUTTAL video  (may be blocked by YouTube‘s rogue rules): https://youtu.be/VTQ91werzk8<br/>GTV link of full REBUTTAL video  (EN and CN subtitles): https://gtv.org/video/id=61c3bb8900f9a119180832eb<br/>GETTR link of full REBUTTAL video  (EN and CN subtitles): https://gettr.com/streaming/pkexq84603
-![img](https://media.gettr.com/group39/origin/2021/12/23/12/3bb6247a-d7aa-fbcf-0b2f-4fb849b5ee18/out.jpg)
 
 ---
 

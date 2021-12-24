@@ -2,59 +2,60 @@
 ---
 
 
-## 希腊因Omicron担忧禁止圣诞节庆祝活动
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1784721/)
+## 灭共者之郭氏情报站（六）12月22日版
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1784804/)
 
-作者：Ian Miles Cheong
-翻译：Himasally
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-291.png)
-
-希腊政府已禁止公共圣诞节庆祝活动，以遏制新冠的高度传染性“温和”Omicron 变体的传播。
-
-正如反叛新闻周三报道的那样，英国政府科学家汇编的数据发现，Omicron 变体的症状比 Delta 更“轻”。调查结果促使英国首相鲍里斯约翰逊暂时保持国家开放，而不是在圣诞节期间关闭。
-
-然而，希腊卫生部门采取了相反的举措，而是选择禁止公共圣诞节和新年前夜庆祝活动，以回应 Omicron。此外，希腊卫生部长周四表示，希腊政府正在重新引入开放空间戴口罩的规定，以试图减缓病毒的传播。
-
-该措施将于周五上午生效，将要求所有公民在公共交通工具和超市内佩戴两个口罩或“高防护口罩”。卫生部建议，还“强烈鼓励”外国游客在抵达几天后进行两次 PCR 检测，而不是一次。
-
-希腊卫生部长 Thanos Plevris 表示，新的一年将采取额外措施，主要是在娱乐和体育场馆。他说，此举是为了避免再次完全封锁。
-
-Plevris 在新闻发布会上说：“我们一直在监控病例，看看在 Delta 变体背后是否存在 Omicron 的传播。”
-
-尽管自本月初以来希腊报告的 Omicron 病例相对较少，但还是采取了暂停圣诞节庆祝活动的举措。
-
-据《独立报》报道，希腊仅报告了几十起 Omicron 案例。
+**出品：纽约香草山设计部**
 
 
-> 希腊去年从第一波大流行中脱颖而出，其状况比其他一些欧洲国家要好，近几个月来一直在努力应对感染激增的问题，这给其医疗保健系统带来了压力。
-> 
-> 当局周三报告了 5,641 例新感染和 69 例相关死亡，使自大流行开始以来的感染总数达到 1,049,936，死亡人数达到 20,126。
-> 
-> 希腊拥有 1100 万人口，迄今已进行了超过 730 万次首次注射。大约 65.7% 的希腊人已全面接种疫苗。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
 
-希腊关闭庆祝活动的举措符合其他西方政府对其公民施加的限制。站在规范之外的是英国和佛罗里达州，它们似乎比其他一些国家更好地遵循科学，采用了更加疑虑重重的治理方法。
 
-来源：https://www.rebelnews.com/greece\_bans\_christmas\_celebrations\_over\_omicron\_worries
 
-（文章仅代表作者个人观点）
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
 
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-**关注我们**
 
-Discord 账号
+## **灭共者之**郭氏情报站- ** 2021年12月22日**文贵大直播总结提炼：
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-E355EDE0-5408-42EE-BF67-EBC945FF0A8C.jpg)
+**一、中共大外宣媒体Vice记者伊莎贝尔·杨（杨贝贝）在对郭先生的视频中，恶意剪辑以掩盖真相，蔑视、撒谎，制造种族歧视，打击爆料革命。**针对杨贝贝、HBO、VICE、TPG、PAG对爆料革命和战友的污蔑攻击，战友们要拿起法律武器进行自卫反击，一定要多国起诉。法制基金将会百分之百支持战友们的诉讼，绝不会妥协。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+**二、新冠疫苗接种给人类带来巨大灾难。**中共新病毒Omicron在全球范围内释放，多个地区同时迅速传播扩散，病源不是非洲。得病后果严重程度被低估，毒素绝对超出大家的想象。伊维菌素、青蒿素目前对Omicron不是绝对管用。没有热毒，是疫苗综合症导致热出血。
 
-Gettr 账号
+**三、爆料革命清楚掌握彭帅的情况。**彭帅被迫澄清，她从未说过或写过遭任何人性侵。彭帅一定会消失，张高丽某天也会消失。抵制冬奥会最新消息：习近平要求高度保持一致，所有媒体都要控制，不惜一切代价，取消反奥运会的杂音。中国人民将白白付出几千亿美元，为习皇帝搞一场政治奥运会。
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+**上一期：**
+
+[**\[灭共者之郭氏情报站（五）12月19日版 – GNEWS\](https://gnews.org/zh-hans/1775444/)**](https://gnews.org/zh-hans/1769041/)
+
+
+
+**编辑/发稿：小鹿**
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-2.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
 
  
 
