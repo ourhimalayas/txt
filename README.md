@@ -15,109 +15,109 @@
 
 ---
 
-### [【粤语配音】2021年12月23日：西方媒体故意抹黑华人，必将受到法律的制裁](/content/gnews/1/README.md)
+### [12/24每日播报｜澳大利亚首都地区在圣诞节前重新推出强制性口罩规定](/content/gnews/1/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [【粤语配音】2021年12月23日：西方媒体故意抹黑华人，必将受到法律的制裁](/content/gnews/2/README.md)
  ` MOS香港部`
 
-### [西媒头条 — 第138期](/content/gnews/2/README.md)
+### [【#G时新闻】 辉瑞和拜恩泰科疫苗中含有未被批准用于人体的成分！](/content/gnews/3/README.md)
+ ` G-时新闻`
+
+### [西媒头条 — 第138期](/content/gnews/4/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共为了使韭菜多生孩子，又出了什么损招？](/content/gnews/3/README.md)
+### [中共为了使韭菜多生孩子，又出了什么损招？](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [12/24每日播报|社媒消息:娜塔莉温特斯 彼得·麦卡洛博士](/content/gnews/4/README.md)
+### [12/24每日播报|社媒消息:娜塔莉温特斯 彼得·麦卡洛博士](/content/gnews/6/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [还有人相信白头偕老吗？](/content/gnews/5/README.md)
+### [还有人相信白头偕老吗？](/content/gnews/7/README.md)
  ` 纽约香草山MOS03`
 
-### [7·24系列——投资川普媒体的瑞寰资本Arc Capital](/content/gnews/6/README.md)
+### [7·24系列——投资川普媒体的瑞寰资本Arc Capital](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [佟丽娅再婚，榜上高官就会幸福吗?](/content/gnews/7/README.md)
+### [佟丽娅再婚，榜上高官就会幸福吗?](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [借贸易管制共产私人财产](/content/gnews/8/README.md)
+### [借贸易管制共产私人财产](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [全球和澳洲疫情疫苗统计信息更新（2021年 12月24日）](/content/gnews/9/README.md)
+### [全球和澳洲疫情疫苗统计信息更新（2021年 12月24日）](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [阿曼马斯喀特俱乐部足球运动员突发倒地身亡](/content/gnews/10/README.md)
+### [阿曼马斯喀特俱乐部足球运动员突发倒地身亡](/content/gnews/12/README.md)
  ` G-NEWS TAIWAN`
 
-### [中共虚伪恩恤 以自由为代价的自由](/content/gnews/11/README.md)
+### [中共虚伪恩恤 以自由为代价的自由](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [迷信谎言，共匪派出了杨贝贝](/content/gnews/12/README.md)
+### [迷信谎言，共匪派出了杨贝贝](/content/gnews/14/README.md)
  ` 银河勇气之星`
 
-### [清除民主雕像 肃清大学校园](/content/gnews/13/README.md)
+### [清除民主雕像 肃清大学校园](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本避谈“外交抵制”冬奥 将派体育官员随队前往北京](/content/gnews/14/README.md)
+### [日本避谈“外交抵制”冬奥 将派体育官员随队前往北京](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2021/12/22 墙内世界](/content/gnews/15/README.md)
+### [2021/12/22 墙内世界](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [12/15郭文贵直播：参加终共街头抗议行动要注意三防及两个准备（粤语配音）](/content/gnews/16/README.md)
+### [12/15郭文贵直播：参加终共街头抗议行动要注意三防及两个准备（粤语配音）](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [12/15郭文贵直播：美国推动的《西藏独立法案》意义深远（粤语配音）](/content/gnews/17/README.md)
+### [12/15郭文贵直播：美国推动的《西藏独立法案》意义深远（粤语配音）](/content/gnews/19/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [12/15郭文贵直播：青蒿素比伊维菌素神奇亿万倍，却被中共老杂毛雪藏（粤语配音）](/content/gnews/18/README.md)
+### [12/15郭文贵直播：青蒿素比伊维菌素神奇亿万倍，却被中共老杂毛雪藏（粤语配音）](/content/gnews/20/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [12/15郭文贵直播：《西藏独立法案》意味着什么？（粤语配音）](/content/gnews/19/README.md)
+### [12/15郭文贵直播：《西藏独立法案》意味着什么？（粤语配音）](/content/gnews/21/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [12/12郭文贵直播：习的疯狂将让他自取灭亡（粤语配音）](/content/gnews/20/README.md)
+### [12/12郭文贵直播：习的疯狂将让他自取灭亡（粤语配音）](/content/gnews/22/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [12/12郭文贵直播： Hcoin To the Moon霸榜惹恼了谁？（粤语配音）](/content/gnews/21/README.md)
+### [12/12郭文贵直播： Hcoin To the Moon霸榜惹恼了谁？（粤语配音）](/content/gnews/23/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [12/24每日播报｜新闻简讯： 感染中共病毒暴增 邮储行长挪用储户存款](/content/gnews/22/README.md)
+### [12/24每日播报｜新闻简讯： 感染中共病毒暴增 邮储行长挪用储户存款](/content/gnews/24/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [樱花灭共诗——大神决（新韵）](/content/gnews/23/README.md)
+### [樱花灭共诗——大神决（新韵）](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [视频| 揭露HBO-VICE精心编织的谎言（十）](/content/gnews/24/README.md)
+### [视频| 揭露HBO-VICE精心编织的谎言（十）](/content/gnews/26/README.md)
  ` MOSREC`
 
-### [视频| 揭露HBO-VICE精心编织的谎言（十一）](/content/gnews/25/README.md)
+### [视频| 揭露HBO-VICE精心编织的谎言（十一）](/content/gnews/27/README.md)
  ` MOSREC`
 
-### [视频| 揭露HBO-VICE精心编织的谎言（十二）](/content/gnews/26/README.md)
+### [视频| 揭露HBO-VICE精心编织的谎言（十二）](/content/gnews/28/README.md)
  ` MOSREC`
 
-### [视频| 揭露HBO-VICE精心编织的谎言（十三）](/content/gnews/27/README.md)
+### [视频| 揭露HBO-VICE精心编织的谎言（十三）](/content/gnews/29/README.md)
  ` MOSREC`
 
-### [视频| 揭露HBO-VICE精心编织的谎言（十四）](/content/gnews/28/README.md)
+### [视频| 揭露HBO-VICE精心编织的谎言（十四）](/content/gnews/30/README.md)
  ` MOSREC`
 
-### [视频| 揭露HBO-VICE精心编织的谎言（八）](/content/gnews/29/README.md)
+### [视频| 揭露HBO-VICE精心编织的谎言（八）](/content/gnews/31/README.md)
  ` MOSREC`
 
-### [文贵视角:舍身圈住一群狼的郭文贵先生](/content/gnews/30/README.md)
+### [文贵视角:舍身圈住一群狼的郭文贵先生](/content/gnews/32/README.md)
  ` 秘密翻译组-原创组`
 
-### [Omicron对各类关键岗位的一线员工造成了一轮新的打击](/content/gnews/31/README.md)
+### [Omicron对各类关键岗位的一线员工造成了一轮新的打击](/content/gnews/33/README.md)
  ` 澳喜特战旅Gnews`
 
-### [12/24每日播报｜加拿大安大略省中共病毒新增病例创单日历史新高](/content/gnews/32/README.md)
+### [12/24每日播报｜加拿大安大略省中共病毒新增病例创单日历史新高](/content/gnews/34/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [视频| 揭露HBO-VICE精心编织的谎言（七）](/content/gnews/33/README.md)
- ` MOSREC`
-
-### [视频| 揭露HBO-VICE精心编织的谎言（六）](/content/gnews/34/README.md)
- ` MOSREC`
-
-### [视频| 揭露HBO-VICE精心编织的谎言（五）](/content/gnews/35/README.md)
+### [视频| 揭露HBO-VICE精心编织的谎言（七）](/content/gnews/35/README.md)
  ` MOSREC`
 
 ### [视频| 揭露HBO-VICE精心编织的谎言（九）](/content/gnews/36/README.md)
