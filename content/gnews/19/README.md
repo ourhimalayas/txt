@@ -2,34 +2,52 @@
 ---
 
 
-## 拜登总统正式签署《防止强迫维吾尔人劳动法》
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1788294/)
+## 以色列开始推广第四针疫苗接种
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1788344/)
 
-**撰稿：日本东京方舟农场 Kevin wang**
+作者：纽约香草山农场 – 四季
 
-12月23日，美国总统拜登正式签署《防止强迫维吾尔人劳动法》（The Uyghur Forced Labor Prevention Act），该法案正式生效成法。法案将禁止任何新疆产品进口至美国，除非企业能提供明确且令人信服的证据，证明产品非由强迫劳动制造。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-据美国之音报道，获得国会两党广泛关注和支持的《防止强迫维吾尔人劳动法》最终协调版，在上个星期先后获得国会众议院和参议院的一致通过。并于23日由拜登总统正式签署成法，该法案将禁止任何新疆的产品进入美国市场，出口企业需提供确切证据，证明其从新疆进口至美国的产品供应链中无强迫劳动，才能获准进口。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-307.png)图片来自GNEWS
 
-报道称，该法案包含的一项核心概念为“可反驳的推定”（rebuttable presumption）制度。意即除非得到美国当局的无强迫劳动的认证，否则一律推定凡在新疆制造的产品均使用了强迫劳动，因此会按照《1930年关税法》（1930 Tariff Act）禁止进口这些产品，依据法案规定，有关禁令将在法案生效的180天后开始实施。
 
-对此，人权团体对该法案的实施效果表达了担忧。据德国之声报道，美国国际宗教自由委员会维吾尔裔的副主席努里-特克尔（Nury Turkel）表示，如果拜登政府向公司提供豁免，这个法案的效力可能被减弱。
 
-*参考链接：*
+据[网关专家](https://www.thegatewaypundit.com/2021/12/booster-hysteria-israel-begins-rollout-4th-covid-jab-despite-health-officials-admitting-no-data-effectiveness-mild-omicron/)12月24日报道，以色列将成为第一个对某些高危人群——包括60岁以上老人和医护人员注射第四剂实验性中共病毒疫苗的国家。
 
-[正式生效！美总统拜登签署法案 禁止新疆强迫劳动产品进入美国](https://www.voachinese.com/a/president-biden-signs-uyghur-bill-to-ban-xinjiang-forced-labor-products-20211223/6367122.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1847.jpg)图片来源：网关专家
 
-[拜登签署新疆强迫劳动法案 北京：美国搞阴谋诡计](https://www.dw.com/zh/%E6%8B%9C%E7%99%BB%E7%AD%BE%E7%BD%B2%E6%96%B0%E7%96%86%E5%BC%BA%E8%BF%AB%E5%8A%B3%E5%8A%A8%E6%B3%95%E6%A1%88-%E5%8C%97%E4%BA%AC%E7%BE%8E%E5%9B%BD%E6%90%9E%E9%98%B4%E8%B0%8B%E8%AF%A1%E8%AE%A1/a-60248268)
+尽管以色列是世界上第一个接种第三针加强疫苗的国家，已有大约58%的人口接种了三针，但对新的Omicron变体的担心仍然促使公共卫生官员组成的政府小组在本周早些时候建议进行新一轮的接种。
 
-* * *
+那些有资格获得第四剂的人，只要是在接种第三剂后的四个月内，就可以获得第四剂疫苗的接种。
 
-*素材采编：Kevin wang*
+周三，以色列总理内夫塔利·贝内特 (Neftali Bennett) 称这一宣布是 “好消息”，并担心该国正处于大流行病“第五波”的边缘。
 
-*编辑：文顺*
+到目前为止，以色列卫生部只确认了341个Omicron病例。
 
-*发布：Ranting*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月.png)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 

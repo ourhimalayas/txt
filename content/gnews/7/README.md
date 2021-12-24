@@ -2,39 +2,41 @@
 ---
 
 
-## 高疫苗接种率不能阻止Omicron在纽约蔓延
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1788443/)
+## G系列生态是新中国联邦的核心力量，喜联储必将一统天下
+` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/1788468/)
 
-撰稿：纽约香草山健身部— Ivy001
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-截至12月23日，纽约州的完成第一针疫苗接种的有16126203人（一千六百多万），接种率达到82.9%，完成两针接种疫苗的有13874220人（一千三百多万），疫苗接种率达到71.3%。纽约市至少完成一针的疫苗接种率达到80%，完成两针疫苗的接种率达到72%。远高于美国至少一针的疫苗接种率70%，两针疫苗接种率的61.7%。
+新西兰伊甸农场Gnews组 财经G乐部 – 亚伦
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/shutterstock_240592135.jpg)
+12月24日郭文贵先生于GTV、Gettr大直播中把整个G系列生态做了更为深入的呈现，并表示这些平台一定是新中国联邦的核心支柱力量。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/西班牙巴塞罗那喜悦农场-3.png)图片来源Gnews西班牙农场
 
-按照之前世卫专家所说，当疫苗接种率达到70%，疫情就会得到有效的控制。然而，事实并不如此。纽约的Omicron爆发，是美国最严重的区域之一，相比之下，新增病例远远超过美国南部疫苗接种率不到50%的州，例如路易斯安那州，密西西比州，阿拉巴马州，乔治亚州。
 
-由于Omicron影响，近期纽约州的病例数快速增加，12月16日以来纽约州单日新增病例一直在2万例以上，22日更是暴增至3.8万例。纽约市14日和15日两天单日新增病例均超过1.4万例，20日新增1.3万多例。
+Gnews的核心价值来源于三个板块：
 
-美国前线医生组织成员指出，目前证据显示，mRNA疫苗并不能有效防止中共病毒扩散，政府不应聚焦在强制执行疫苗接种上。
+一、倚靠强大的搜索功能，AI科技。
 
-[https://www.google.com/search?q=New+York+City+Vaccination+Rates&client=safari&ei=RCPGYfTfAq67ggfos6XwCQ&oq=New+York+City+Vaccination+Rates&gs\_lcp=ChNtb2JpbGUtZ3dzLXdpei1zZXJwEAMyBQgAEIAEMgUIABCABDIGCAAQFhAeMgUIIRCgATIFCCEQqwIyBQghEKsCOggIABCABBCwAzoFCCkQgAQ6AggpOgYIKRANEAo6CwgpEIAEEMcBEK8BOg4IABCPARDqAhCMAxDlAkoECEEYAVC4pgJYuKYCYP\_5AmgDcAB4AIABaogBtwGSAQMxLjGYAQCgAQGgAQKwAR7IAQHAAQE&sclient=mobile-gws-wiz-serp](https://www.google.com/search?q=New+York+City+Vaccination+Rates&amp;client=safari&amp;ei=RCPGYfTfAq67ggfos6XwCQ&amp;oq=New+York+City+Vaccination+Rates&amp;gs_lcp=ChNtb2JpbGUtZ3dzLXdpei1zZXJwEAMyBQgAEIAEMgUIABCABDIGCAAQFhAeMgUIIRCgATIFCCEQqwIyBQghEKsCOggIABCABBCwAzoFCCkQgAQ6AggpOgYIKRANEAo6CwgpEIAEEMcBEK8BOg4IABCPARDqAhCMAxDlAkoECEEYAVC4pgJYuKYCYP_5AmgDcAB4AIABaogBtwGSAQMxLjGYAQCgAQGgAQKwAR7IAQHAAQE&amp;sclient=mobile-gws-wiz-serp%20https://www.google.com/search?q=纽约市新增病例&amp;client=safari&amp;ei=fSPGYej4IM-xggeJ_oGoBA&amp;oq=纽约市新增病例&amp;gs_lcp=ChNtb2JpbGUtZ3dzLXdpei1zZXJwEAMyBQgAEMQCOgUIKRCABDoCCCk6BggpEA0QCjoLCCkQgAQQxwEQrwE6DggAEI8BEOoCEIwDEOUCOgQIABBDOgQILhBDOgsILhCABBCxAxCDAToNCC4QgAQQxwEQ0QMQCjoFCAAQgAQ6BQguEIAEOgYILhAKEEM6BwgAEIAEEAw6BQghEKABSgUIPhIBMUoECEEYAFCnRVizhgFg-44BaAhwAXgEgAHcAYgBwAqSAQU5LjUuMZgBAKABAbABHsABAQ&amp;sclient=mobile-gws-wiz-serp%20https://www1.nyc.gov/site/doh/covid/covid-19-data-vaccines.page#people)
+据云基础设施公司（Cloudflare）公布最新统计数据显示，抖音（TikTok）互联网访问量已超越谷歌（Google）成为最受欢迎的网站。抖音成功的秘诀就是通过使用AI技术，实现了最重要的信息筛选和推送功能。我们的Gnews、 GTV、Gettr未来能否成功，主要依靠的是搜索技术、精准的信息分类和定点推送功能。
 
-[https://www.google.com/search?q=纽约市新增病例&client=safari&ei=fSPGYej4IM-xggeJ\_oGoBA&oq=纽约市新增病例&gs\_lcp=ChNtb2JpbGUtZ3dzLXdpei1zZXJwEAMyBQgAEMQCOgUIKRCABDoCCCk6BggpEA0QCjoLCCkQgAQQxwEQrwE6DggAEI8BEOoCEIwDEOUCOgQIABBDOgQILhBDOgsILhCABBCxAxCDAToNCC4QgAQQxwEQ0QMQCjoFCAAQgAQ6BQguEIAEOgYILhAKEEM6BwgAEIAEEAw6BQghEKABSgUIPhIBMUoECEEYAFCnRVizhgFg-44BaAhwAXgEgAHcAYgBwAqSAQU5LjUuMZgBAKABAbABHsABAQ&sclient=mobile-gws-wiz-serp https://www1.nyc.gov/site/doh/covid/covid-19-data-vaccines.page#people](https://www.google.com/search?q=New+York+City+Vaccination+Rates&amp;client=safari&amp;ei=RCPGYfTfAq67ggfos6XwCQ&amp;oq=New+York+City+Vaccination+Rates&amp;gs_lcp=ChNtb2JpbGUtZ3dzLXdpei1zZXJwEAMyBQgAEIAEMgUIABCABDIGCAAQFhAeMgUIIRCgATIFCCEQqwIyBQghEKsCOggIABCABBCwAzoFCCkQgAQ6AggpOgYIKRANEAo6CwgpEIAEEMcBEK8BOg4IABCPARDqAhCMAxDlAkoECEEYAVC4pgJYuKYCYP_5AmgDcAB4AIABaogBtwGSAQMxLjGYAQCgAQGgAQKwAR7IAQHAAQE&amp;sclient=mobile-gws-wiz-serp%20https://www.google.com/search?q=纽约市新增病例&amp;client=safari&amp;ei=fSPGYej4IM-xggeJ_oGoBA&amp;oq=纽约市新增病例&amp;gs_lcp=ChNtb2JpbGUtZ3dzLXdpei1zZXJwEAMyBQgAEMQCOgUIKRCABDoCCCk6BggpEA0QCjoLCCkQgAQQxwEQrwE6DggAEI8BEOoCEIwDEOUCOgQIABBDOgQILhBDOgsILhCABBCxAxCDAToNCC4QgAQQxwEQ0QMQCjoFCAAQgAQ6BQguEIAEOgYILhAKEEM6BwgAEIAEEAw6BQghEKABSgUIPhIBMUoECEEYAFCnRVizhgFg-44BaAhwAXgEgAHcAYgBwAqSAQU5LjUuMZgBAKABAbABHsABAQ&amp;sclient=mobile-gws-wiz-serp%20https://www1.nyc.gov/site/doh/covid/covid-19-data-vaccines.page#people)
+二、也是最核心的，把Gnews打造成世界的情报市场、信息交易市场。抖音之所以成功，因为其完美地利用数字技术，成长为集美食、娱乐、资讯、风情，网商为一体的综合即时平台。
 
-编辑/校对/发稿：菩提树
+三、Gnews吸纳全世界最可靠的精英，坚持以人为本，最终成为一个有良知的、由不同领域的人共同参与的智库型大平台。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-1-1.png)
+随着科技的日新月异，通过生物电脑、量子电脑、全球无线WiFi 、5G和 6G技术的全面发展，使得未来视频的清晰度和传输速度突飞猛进，甚至达到“元宇宙”级别的视觉、味觉、听觉的全新体验。
 
-**更多资讯，更多关注**
+可以说，Gnews是全人类共同交流的精神平台、文化平台和信仰平台。
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+但是，GTV永远是王。Gclub是通行证（新中国联邦早期护照），Gfashion是文化和尊严的外在展现，Gettr是与西方沟通的桥梁， Hcoin（喜币）要成为天下统一之币。目前世界需要一个不受政治影响的、没有政府操纵的、超越国界的、保护个人隐私安全的、保证个人财富升值的货币，这就是我们的Hcoin（喜币）。在冲出数字货币“春秋群雄“的过程当中，GTV、Gnews、Gettr这些平台将发挥重要的作用，引导更多的用户如何聪明地使用Hcoin（喜币），充分发挥Hcoin（喜币）数字货币的价值。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/00598bb590f0fed805c39ee3930b5115.jpg)图片来源新西兰农场
+除了Hcoin（喜币）之外，我们还会有自己的NFT。英国是世界上做NFT最好的国家，正在和喜联储合作。NFT就是把财富和艺术国际化、空气化、去中心化、分子化，也是未来任何有价值的东西数字化的开始。任何GTV和Gettr的直播，包括Gnews上有价值的信息都可以NFT化，把定价权数字化，打破政府垄断强制使用法币衡量的定价权。
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+最终的目标是，无需流血和战争，各国箪食壶浆迎接喜联储一统天下。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+\*“元宇宙”是由增强现实（AR）、虚拟现实（VR）、三维技术（3D）、人工智能（AI）等技术支持的虚拟现实的网络世界。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+\*NFT（Non-Fungible Token）是一种特殊的加密生成的代币，它使用区块链技术与无法复制的独特数字资产进行链接。具有非同质化的代币，具有不可分割、不可替代、独一无二等特点。
 
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/721281c1341c0f3b8ee310882aac4026.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

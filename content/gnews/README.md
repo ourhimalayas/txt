@@ -15,80 +15,80 @@
 
 ---
 
-### [美军方宣布可预防病毒变体的新型疫苗](/content/gnews/1/README.md)
+### [加拿大魁省疫情失控重返重灾区](/content/gnews/1/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [白宫发言人就英特尔下跪中共的表态](/content/gnews/2/README.md)
+### [英国疫苗伤害及其灾难逐渐降临](/content/gnews/2/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [加拿大疫情严峻单日感染再创新高](/content/gnews/3/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [美军方宣布可预防病毒变体的新型疫苗](/content/gnews/4/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [白宫发言人就英特尔下跪中共的表态](/content/gnews/5/README.md)
  ` HimalayaRussia`
 
-### [【玫瑰看新闻】每日快讯-2021年12月21日（新西兰时间）](/content/gnews/3/README.md)
+### [【玫瑰看新闻】每日快讯-2021年12月21日（新西兰时间）](/content/gnews/6/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [G系列生态是新中国联邦的核心力量，喜联储必将一统天下](/content/gnews/4/README.md)
+### [G系列生态是新中国联邦的核心力量，喜联储必将一统天下](/content/gnews/7/README.md)
  ` YALUN 亚伦`
 
-### [《共同社》:日美制定行动草案，以应对台湾紧急情况](/content/gnews/5/README.md)
+### [《共同社》:日美制定行动草案，以应对台湾紧急情况](/content/gnews/8/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【玫瑰看新闻】每日快讯-2021年12月22日（新西兰时间）](/content/gnews/6/README.md)
+### [【玫瑰看新闻】每日快讯-2021年12月22日（新西兰时间）](/content/gnews/9/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [高疫苗接种率不能阻止Omicron在纽约蔓延](/content/gnews/7/README.md)
+### [梵蒂冈发布对所有员工和访客的疫苗接种令](/content/gnews/10/README.md)
  ` 纽约香草山MOS02`
 
-### [【玫瑰看新闻】每日快讯-2021年12月23日（新西兰时间）](/content/gnews/8/README.md)
- ` 【🌹玫瑰新闻】`
-
-### [航空公司由于疫情影响 数百圣诞航班被取消](/content/gnews/9/README.md)
+### [高疫苗接种率不能阻止Omicron在纽约蔓延](/content/gnews/11/README.md)
  ` 纽约香草山MOS02`
 
-### [【玫瑰看新闻】每日快讯-2021年12月24日（新西兰时间）](/content/gnews/10/README.md)
+### [【玫瑰看新闻】每日快讯-2021年12月23日（新西兰时间）](/content/gnews/12/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [2021年12月24日郭先生大直播文字同步精要](/content/gnews/11/README.md)
+### [航空公司由于疫情影响 数百圣诞航班被取消](/content/gnews/13/README.md)
+ ` 纽约香草山MOS02`
+
+### [【玫瑰看新闻】每日快讯-2021年12月24日（新西兰时间）](/content/gnews/14/README.md)
+ ` 【🌹玫瑰新闻】`
+
+### [2021年12月24日郭先生大直播文字同步精要](/content/gnews/15/README.md)
  ` 焦點20分`
 
-### [中共国地方债务，中央不救助](/content/gnews/12/README.md)
+### [中共国地方债务，中央不救助](/content/gnews/16/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [拜登签署《防止维吾尔族强迫劳动法案》](/content/gnews/13/README.md)
+### [拜登签署《防止维吾尔族强迫劳动法案》](/content/gnews/17/README.md)
  ` 焦點20分`
 
-### [串珠499:盘古裕达一定会自燃自爆成为火龙、火佛手](/content/gnews/14/README.md)
+### [串珠499:盘古裕达一定会自燃自爆成为火龙、火佛手](/content/gnews/18/README.md)
  ` 郭爆料串珠`
 
-### [以色列开始推广第四针疫苗接种](/content/gnews/15/README.md)
+### [以色列开始推广第四针疫苗接种](/content/gnews/19/README.md)
  ` 纽约香草山MOS02`
 
-### [串珠498:习访朝鲜深受刺激毫不犹豫要做金氏家族](/content/gnews/16/README.md)
+### [串珠498:习访朝鲜深受刺激毫不犹豫要做金氏家族](/content/gnews/20/README.md)
  ` 郭爆料串珠`
 
-### [恒大多地员工罢工 抗议拖欠工资及福利待遇](/content/gnews/17/README.md)
+### [恒大多地员工罢工 抗议拖欠工资及福利待遇](/content/gnews/21/README.md)
  ` 日本东京方舟农场`
 
-### [串珠497:新中国联邦2022年春节全球联合大行动](/content/gnews/18/README.md)
- ` 郭爆料串珠`
-
-### [拜登总统正式签署《防止强迫维吾尔人劳动法》](/content/gnews/19/README.md)
- ` 日本东京方舟农场`
-
-### [串珠496:冬奥被抵制中共报复文贵家人和盘古员工](/content/gnews/20/README.md)
- ` 郭爆料串珠`
-
-### [购买影响力：中共如何操纵脸书和推特-揭秘一场中共宣传攻势](/content/gnews/21/README.md)
+### [购买影响力：中共如何操纵脸书和推特-揭秘一场中共宣传攻势](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [新一轮“打土豪分田地”洗劫你的财富](/content/gnews/22/README.md)
+### [新一轮“打土豪分田地”洗劫你的财富](/content/gnews/23/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [12.22文贵爆料 新中国联邦人坚决反击CCP和西方媒体施行种族歧视](/content/gnews/23/README.md)
+### [12.22文贵爆料 新中国联邦人坚决反击CCP和西方媒体施行种族歧视](/content/gnews/24/README.md)
  ` 秘密翻译组-原创组`
 
-### [马萨诸塞州近一半的COVID病例“完全接种了疫苗”](/content/gnews/24/README.md)
+### [马萨诸塞州近一半的COVID病例“完全接种了疫苗”](/content/gnews/25/README.md)
  ` 喜马拉雅农场新西兰站`
-
-### [灭共漫画——真相永远赢](/content/gnews/25/README.md)
- ` MOS Designer香草山设计部`
 
 ### [2021/12/23 墙内世界](/content/gnews/26/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
