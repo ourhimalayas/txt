@@ -2,42 +2,30 @@
 ---
 
 
-## FDA被迫披露的辉瑞疫苗不良反应数据令人震惊
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1784445/)
+## 丹麦教授：人类会因为Omicron更快获得自然免疫，导致大流行更快地消失
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1784675/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+撰稿：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screenshot-2021-12-23-at-22.46.58.png)
+图片来源：TV2
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/12/V-4.jpg)futurism.com
-有掩盖真相嫌疑，企图拖延55年，甚至75年才完全公布疫苗研制过程数据的辉瑞公司以及帮凶FDA，在有识之士依据宪法规定的紧逼下，FDA不得不开始了缓慢、仍企图拖延的“信息披露”。从发布的这些数据看来，疫苗的副作用是令人震惊的。
+一些研究人员说， Omikron 的病程比 Delta 更温和。例如，苏格兰周三发布，11 月 1 日至 12 月 19 日期间有近 30,000 个 Omikron 病例和近 127,000 个 Delta 病例。根据这项尚未经过同行评审的研究，研究人员认为与 Delta 变体相比，Omikron 的入院风险降低了三分之二。来自苏格兰的研究似乎验证并确认了来自南非的数据。 来自南非威特沃特斯兰德大学和开普敦大学国家传染病研究所的研究涵盖了 10 月 1 日至 12 月 6 日期间的 161,328 例南非病例，根据该研究，与感染Delta的人相比，感染 Omikron 的人住院风险降低了 80%。
 
-《真相报道》（truth press）12月23日发表文章，题目是“FDA发布了更多关于辉瑞疫苗‘不良反应’的数据”。
+最近几周，传染性特别强的 Omikron 变种已经席卷丹麦，感染率创历史新高，随之而来的是新的限制。全世界都在关注丹麦，因为很少有国家像丹麦一样拥有如此出色的数字。
 
-全文如下：
+12月22号和23号，丹麦首都医院的传染病教授Jens Lundgren在接受丹麦TV2采访时说，有迹象表明 Omicron 变体“可能不像 Delta 那样具有引起肺炎的致病性。但现在下结论还为时过早。一路走来，我们只得到了一些碎片，在 1 月期间，我希望我们能更加明智地判断它是否更温和”。
 
-随着美国食品和药物管理局（FDA）准备批准辉瑞公司用于治疗感染中共（新冠）病毒的高危患者的新药，更多有关其疫苗副作用的危险的信息正在曝光。
+现在开始有更多来自荷兰、美国、英国和丹麦的数据，根据Jens Lundgren的说法，这些国家具有数据基础设施，能够确定变体的特征并了解疾病在未接种疫苗者和接种疫苗者中的情况。
 
-就在昨天（12月22日），我们报告了新西兰另一例与疫苗有关的死亡病例。现在，FDA发布的文件显示，制药商辉瑞公司在推出中共病毒疫苗的最初几个月内记录了近16万例中共病毒疫苗的不良反应。
+Jens Lundgren解释Omicron为什么可能比较温和的部分原因不一定是病毒本身导致的疾病比较温和，而是因为如果它影响到已经获得免疫的人（无论是通过感染还是接种疫苗，编者注），那么他们就有更好的能力来应对病毒感染。教授评估说，尽管丹麦的高感染率在短期内是造成了问题，但这也可能意味着我们可以迅速渡过感染浪潮。冠状病毒感染可以使身体在未来更好地应对病毒。如果它传播得如此之快，以至于许多人被感染，我们自然会在人群中获得更好的免疫力。
 
-这些数据是由一组被称为“促进透明度的公共健康医疗专业人士”（Public Health and Medical Professionals for Transparency）的医生、教授和记者获得。他们根据《信息自由法》（Freedom of Information Act），向FDA提交了的请求，要求公开文件。第一份文件显示，截至2021年2月，当辉瑞在全球范围内紧急推出该产品时，这家制药商已经收集了超过42，000份病例报告，详细说明了近16万个人对疫苗的不良反应。
+尽管这种变体有可能使医疗保健系统崩溃，但也可能证明是冠状病毒大流行结束的开始。教授认为，冠状病毒不太可能发展出更具传染性的新变种了。实际上可能是病毒将自己推到了无法前进的角落。也就是说，它无法制造与 Omicron 相竞争的新变体，这种特别具有传染性的变种将会导致大流行更快地消失。
 
-数据显示，大部分严重和非严重的不良事件病例被归类为“一般性疾病”。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-284.png)
-报告的较常见疾病包括发热、疲劳和腹泻等。
+来源：
 
-整个报告中最令人惊讶的数字是，在美国这些病例中有超过1，000个是致命的。总的来说，超过3，000的死亡与疫苗有关，这与该公司自己的数据相符。批评人士认为，一些死亡人数不能确定与疫苗有关，但其他人坚持认为死亡人数可能仍然少报了。
+[https://nyheder.tv2.dk/samfund/2021-12-22-jens-lundgren-virus-kan-have-presset-sig-selv-op-i-et-hjoerne](https://nyheder.tv2.dk/samfund/2021-12-22-jens-lundgren-virus-kan-have-presset-sig-selv-op-i-et-hjoerne)
 
-请记住，FDA使用了这些数据来宣布辉瑞疫苗是安全的，这是它在8月份为16岁及以上的美国人所做的。自那以后，它已经被批准用于5岁以下的儿童，以及从上周开始用于16岁及以上人群的加强剂。
-
-读者可以在下面找到“促进透明度的公共健康医疗专业人士”的完整数据分类：文章链接了在斯柯伯德（Scribd）阅读平台发布的信息。
-
-（全文完）
-
-这里再着重强调一下，“整个数字是令人惊讶的”，有人“坚持认为死亡人数可能仍然少报了”，在这样的数据面前，FDA依旧“宣布辉瑞疫苗是安全的”。阴谋集团真地是在玩耍美国人的智商，还不清醒！
-
-原文链接：
-
-[https://truthpress.news/news/fda-releases-more-data-on-adverse-reactions-to-pfizer-vaccine/](https://truthpress.news/news/fda-releases-more-data-on-adverse-reactions-to-pfizer-vaccine/)
+[https://nyheder.tv2.dk/samfund/2021-12-23-nye-studier-viser-at-omikron-giver-faerre-indlaeggelser-men-det-viser-de-danske](https://nyheder.tv2.dk/samfund/2021-12-23-nye-studier-viser-at-omikron-giver-faerre-indlaeggelser-men-det-viser-de-danske)
 
  
 
