@@ -2,55 +2,46 @@
 ---
 
 
-## 文·贵天成——文贵先生谈“北京冬奥会”（一）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1785702/)
+## 国务卿安东尼·布林肯：中共国 和俄罗斯等国家在试图破坏国际体系
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1785766/)
 
-**整理：BENJ1**
-**编辑：文泓**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-296.png)**图片来源：墨尔本雅典娜农场设计组（614）**
-**郭文贵先生2019年10月15日：**
+美国国务院： 国务卿安东尼·布林肯[@SecBlinken](https://twitter.com/SecBlinken)：在应对 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click)、气候变化和其他紧迫挑战方面，我们的基础更加稳固。[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 和俄罗斯等国家在试图破坏国际体系，而我们在与他们打交道时处于更有利的地缘政治地位。
 
-NBA所有的跟腾讯和国内（签署的）转播权一年也就3亿多美元，加上2022年的冬奥会才15亿美元——它那是生意呀，它还得赚钱，赚30个亿回来。
 
-**郭文贵先生2019年10月23日：**
 
-刚才大家看到了，我在直播前、报平安前，播放CNBC采访美国参议员里克·斯科特（RICK SCOTT）。（他）刚刚接受的采访，就是提出来要取消中共2022年的冬奥会——在北京举行的第二十四届冬奥会。
+> .[@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw): We’re on stronger footing when it comes to COVID, climate, and other urgent challenges. And we’re in a stronger geopolitical position to deal with countries like China and Russia, as they seek to undermine the international system. [pic.twitter.com/wsWtlaTJfL](https://t.co/wsWtlaTJfL)
+> — Department of State (@StateDept) [December 24, 2021](https://twitter.com/StateDept/status/1474167948524679174?ref_src=twsrc%5Etfw)
 
-我可以告诉大家，大家最近都没看到班农，（他）最近都没出现吧，班农就是去干这件事情去了。班农先生当时在欧洲，（当）NBA事件发生，他第一个就说，必须把它的冬奥会给灭掉。我完全支持，必须把冬奥会给灭掉。
 
-接下来不仅要议员出来讲，美国国家要行动，禁止运动员到中共去参加任何活动。而且美国接下来NBA以及所有的体育节目都不允许去中共（国）。这开启了什么时代，战友们？把战场拉向国际，你们现在觉得这仅仅只是一句话吗?
 
-**郭文贵先生2021年5月20日盖特：**
+参议员泰德·克鲁兹: 大型科技公司在 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 面前卑躬屈膝. 实际上:“我们非常抱歉,我们甚至认为奴隶劳动可能是错误的!当然,我们会继续支持你们的野蛮集中营!!能够为共产主义压迫提供资金是一种真正的特权.” 【转推称:英特尔告诉供应商不要在新疆使用奴隶劳工生产的产品之后,又向 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 道歉认错】
 
-今天，民主党的众议院议员奥马尔竟然支持拜登总统别和中共勾兑—说他们不允许，和拜登最铁的南希·佩洛西（也）反对参加中共国冬奥会。今天和昨天，我亲身经历的这些社交媒体的大佬投资者纷纷从中共（国）撤资。兄弟姐妹们，信不信由你，我们不在乎别人信不信。你信也不给我两窝窝头吃，你不信我也不会少吃一个，是吧?我每天还得节食还得健身，也不在乎你这三瓜两枣。我只告诉你真相，我的良知让我告诉你。
 
-**郭文贵先生2021年8月5日盖特：**
 
-咱们战友，还有美国的很多朋友给我发信息，他们希望要一份新中国联邦第一次签署由文贵代表的新中国联邦官方文件——要求取消冬季奥运会的文件。大家想要，然后总共我签了50份，大概现在有700人想要，不可能我签700份，我只能签50份，看看怎么分配给大家。签的就是一个“龙”字，我签的太多了，签了多少钱啊?你想想兄弟姐妹们，这个签名可值钱了，（想想）我签署的文件合同值多少钱吧。签完了，这个帽子大家没看过，太棒了。这50份看看哪个战友能获得吧，都是原件，一半给外国人，一半给咱们战友，原件，都是原件！签的跟狗爬子似的，但是有人要，谢谢！
+> Big Tech grovels before CCP. 
+> 
+> In effect: “We are SO very sorry we even suggested slave labor might be wrong! Of course, we’ll continue to support your barbaric concentration camps!! It’s a true privilege to help fund your communist oppression.” [https://t.co/kB2lF5fbio](https://t.co/kB2lF5fbio)
+> — Ted Cruz (@tedcruz) [December 24, 2021](https://twitter.com/tedcruz/status/1474186595444133896?ref_src=twsrc%5Etfw)
 
-**郭文贵先生2021年8月6日盖特：**
 
-我们昨天给奥林匹克委员会写的信震撼很大，今天我们的法治基金、新中国联邦一大早，我们委托的战友又写了一封信，就美国国会最近出台了一系列的法案——很多人要提议废除共产党，包括因违反人类大屠杀、种族大屠杀，在西方世界（建立）合法代表中国人的权利（的组织），我们也写了信。今天早上（信）出来了，我现在发给了新中国联邦政治顾问委员会、新中国联邦法治委员会，我等他们回复，我可能今天又签了第二份（文件），是吧，第二份，大家记住多了真不行，只能是一次给个40到50份，大家（可以）收藏原件，多了不可能，那就没有意义了，而且七哥真没时间，我今天可能再签第二份了。有第一第二了，一生二，二生三，三不就生万物了吗，对不?咱接着弄。
 
-没想到影响那么大，昨天晚上（老领导）警告来了：文贵，不要再跨过红线了，冬奥会我们是一定要办的。我说冬奥会你们的病情、疫苗、灾难都将发生，你搞啥?你搞不成！
+参议员马可·卢比奥： 任何一家美国公司因为关注奴工问题而向 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 道歉都是荒谬的 但它恰恰是英特尔公司，一个许多人希望它成为美国唯一的国内半导体制造商，这令人震惊 【附BBC新闻报道：美科技公司英特尔在遭到强烈反对后向中共国道歉 （该公司向供应商发函要求排除新疆产品）】
 
-哎，到我们搞的时候全世界就没有病毒了……听到了吗?听到了吗?他们绝对知道疫苗不管用，疫苗就是赚钱，还有其它险恶目的；第二，到他们搞冬奥的时候就没有病了，意味着啥?他们可控。
 
-**郭文贵先生2021年8月13日：**
 
-我们看到这个的时候，今天这个影响特别大。还有一个你要看到美国，美国现在和欧洲欧联盟，大概是今天你们起床以后，今天欧联盟议会从早上开始起草关于病毒的溯源和集体要求制裁，包括共产党必须无条件提供所有的武汉整个实验室所有的数据，不提供的话欧洲将一系列措施，就像这个冬奥会一样。
+> US technology firm Intel apologises to China after letter backlash [https://t.co/TNJ3Qfvf22](https://t.co/TNJ3Qfvf22)
+> — BBC News (World) (@BBCWorld) [December 23, 2021](https://twitter.com/BBCWorld/status/1473999593729843205?ref_src=twsrc%5Etfw)
 
-我们就反对你，就制裁你。你看着这就叫“以毒灭共行动”。
 
-资料来源：郭先生GTV和盖特直播视频。
 
-*发布：*去中心化Math
+众议员肯·巴克： 独裁在黑暗中蔓延。在夜幕的掩盖下，[#香港](https://twitter.com/hashtag/%E9%A6%99%E6%B8%AF?src=hashtag_click) 的 [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 傀儡政府拆除了一座 [#天安门大屠杀](https://twitter.com/hashtag/%E5%A4%A9%E5%AE%89%E9%97%A8%E5%A4%A7%E5%B1%A0%E6%9D%80?src=hashtag_click) 死难者的纪念碑。 【转华盛顿邮报，香港拆除纪念天安门广场大屠杀遇难者的耻辱柱】
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
+> Tyranny thrives in darkness. Under cover of night, Hong Kong’s puppet CCP government demolished a memorial to the victims of the Tiananmen Square massacre.[https://t.co/yc3eX23xn1](https://t.co/yc3eX23xn1)
+> — Rep. Ken Buck (@RepKenBuck) [December 23, 2021](https://twitter.com/RepKenBuck/status/1473829157238984706?ref_src=twsrc%5Etfw)
+
+
 
  
 
