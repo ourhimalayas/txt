@@ -2,85 +2,36 @@
 ---
 
 
-## 中共倾一国之力收买、封杀爆料革命的真实数据
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1786184/)
+## 文贵先生针对流氓媒体的引蛇出洞，到底一剑几雕？
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1786196/)
 
-[https://gtv.org/video/id=61c5688843ccb726a08a955c](https://gtv.org/video/id=61c5688843ccb726a08a955c)
+撰稿：东京樱花团/皓月当空郭
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1301.png)[图片来源](https://gettr.com/post/pkfy68304b)
+第一，让世界人看到文贵先生很帅，即便是在HBO故意用灰暗色调降低真实形象情况下！
 
-**郭文贵
-Miles Guo**
+第二，唯真不破，用与中共控制的世界媒体交手的真实经历，用视频真实记录的方式让新中国联邦人开眼明智！
 
-为什么大家没有任何人包括Rachel, 所有人, 文斌你们在这直播的，Eric
-Why are you no believing me? including Rachel, Wen Bin, Eric you guys are broadcasting here
+第三，让世界人看到了很多世界媒体被中共和邪恶力量的操控，手段之卑劣，那么再看这些新闻媒体时，不禁要打个问号？他说的是真的吗？他有什么用意？这就是信任度大大降低，降低和避免新闻媒体对思想的误导，反而激发人们的逆向思维！
 
-你们没有一个人真正相信七哥说过的，谷歌、苹果商店、亚马逊都改咱们的后台数据
-none of you really believe what I said, Google, Apple Store, and Amazon have all changed our back-end data
+第四，通过这个无良媒体的宣传，反而让世界的人们了解到有一个人、一群人的正义组织，在揭露、反对、消灭这个世界毒瘤共产主义的中共，就像我刚开始听说过的文贵先生，是在中共宣传污蔑文贵先生中得知，后来经过验证，发现污蔑者才是邪恶的人，而被污蔑者才是真正的好人！
 
-你们没有认真研究并相信过，我说过咱每播一次都会超过一亿次被观看
-You haven’t studied it carefully and believed it, I said that every time we broadcast, we will be watched more than 100 million times
+第五，通过文贵先生和中共针锋相对的法律超限战，已经了解到，美国的司法系统遭到中共的利用和破坏，那么这一次谣化文贵先生的HBO媒体，更是让美国认识到美国媒体被中共的渗透、控制、利用！
 
-否则不可能在4年前5年前，共产党以一国一党之力，要征服全世界都力量
-Otherwise, it would be impossible at four or five years ago, the Communist Party use all the country’s power to conquer the whole world
+第六，有助于美国政府相关部门查找出背后的中共潜伏力量！
 
-打任何一个国家，像立陶宛、日本、法国都跪下，英国都跪下
-attack any country, like Lithuania, Japan, France, and Britain, they all on their knees
+第七，正如文贵先生所说，从没有见一个亚洲人反击世界媒体，文贵先生这次有力反击，让所有敢直面邪恶的人，更加有勇气的反击，真是鼓舞人心，增强我们的斗志！
 
-美国人连病毒都不敢问，来对付我们什么，
-Americans don’t even dare to ask about where the virus come from, then why are CCP targets us?
+第八，HBO的谣化抹黑宣传，与真实采访过程视频的对比，包括马上对伊莎贝儿的起诉，让世界人们看清当今的世界主流媒体被操控事实，这些主流媒体已经沦为邪恶力量的工具，他们不去关心病毒疫苗真相、不去报道新疆集中营、不去报道香港真相、这更加突出了GTV、GNEWS、GETTR在传播真相揭露黑暗方面的重要意义，提高了世界人们的认可和欢迎程度！
 
-亚马逊要跟中宣部做交易, 苹果大家记住，有史以来被告就是因为要把当时的郭媒体APP下架
-Amazon wants to make a deal with the CCP’s Central Propaganda Department, everyone remember Apple, it was sued in history because they wanted to remove the Guo Media’s App at the time
+文贵先生说，媒体是现代社会的核武器，无疑我们爆料革命新中国联邦坚持唯真不破，在与中共打手媒体的核较量中，谁胜谁败？到底一剑几雕？每个人自有判断！我深深体会到，唯真不破就是我们战胜邪恶最有力武器，好人必须凝聚在一起，必须去反击，否则永远被邪恶力量威胁和伤害，只有凝聚在一起，并且用实力用智慧用勇气去消灭邪恶，才能有安全自由的生存发展环境！
 
-所有全世界的媒体当时跟我们的，最后全反我们
-All the media in the world talked to us at the time, and finally turned against us
+信息来源： The Truth Behind Mr. Miles Guo’s Interview with [#HBOVICE](https://gettr.com/hashtag/%23HBOVICE)
 
-华尔街日报、纽约时报、BBC把七哥的访问拿下
-The Wall Street Journal, the New York Times, and the BBC take away Miles’s interview
+[https://gettr.com/post/pkfy68304b](https://gettr.com/post/pkfy68304b)
 
-什么哈德逊研究所，把七哥的预定直接给拿掉
-and Hudson Institute, cancelled Miles’s reservation directly
-
-世界上所有的大报，像美联社、塔斯社都是派去中国人, 一个月换仨月
-All major newspapers in the world, such as the Associated Press and TASS, they all send Chinese people, one month for three months
-
-然后中国人写一篇报道，郭文贵是双面间谍，郭文贵是强奸犯，郭文贵是骗子
-Then the Chinese wrote a report that Miles Guo was a double agent, Miles Guo was a rapist, and Miles Guo was a liar
-
-过去5年，倾其力之大，你就看看如果共产党不怕咱
-In the past 5 years, they have done so much, you look at it if the Communist Party is not afraid of us
-
-它能把龙头变成龟头，能变成鸟头吗
-Can it turn a dragon’s head into a tortoise head or a bird’s head?
-
-它能把裕达这样的佛手给你干掉，给你施巫术在盘古前面, 给你埋上一个(印)
-It can get rid of Buddha’s hands of Yuda, cast a witchcraft in front of Pangu, and put a spell on you
-
-没有神信仰的共产党, 埋一个巫术的一个印
-The Communist Party which has no faith in God, put a spell on you
-
-要把郭文贵给怎么着了, 它不怕咱, 他能那么做吗？
-To take down Guo Wengui, If the CCP is not afraid of us, could they do that?
-
-* * *
-
-Date: 12/22/2021
-原视频标题: 中共倾一国之力收买、封杀爆料革命的真实数据
-the CCP has used the country power to buy and block the real data of the whistleblower movement
-原视频日期：2021/12/19
-原视频链接：[https://gettr.com/post/pkcwwo942c](https://gettr.com/post/pkcwwo942c)
-任务编号：3313
-视频时间段 : 0:00-2:10
-中听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 ：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

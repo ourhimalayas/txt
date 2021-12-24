@@ -2,32 +2,28 @@
 ---
 
 
-## 一周中共病毒及疫苗伤害等信息汇总
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1786157/)
+## 美25州就学前教育者疫苗强制令起诉拜登政府
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1786158/)
 
-作者：Zion文恩
+作者：纽约香草山文艺部 – 宁文静
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1138.png)
 
-2021年12月14日至21日，除中共国外，全球累计确诊中共病毒四百七十九万余例，同比上周增长百分之9.36；本周累计死亡四万七千九百零五例，同比上周下降百分之2.46。自疫情爆发以来，中共掩盖真相，其数据毫无可信度。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/10-11.png)
-一周内，全球累计接种62.4亿剂疫苗，同比上周增长百分之2.88；全球疫苗接种趋于稳定，未因奥米克戎毒株的爆发而显著上升。
+12月21日，美国路易斯安那州、阿拉巴马州、阿拉斯加州、阿肯色州、亚利桑那州、佛罗里达州等25个州起诉拜登政府，指控其对学前教育员工的疫苗强制接种令。据美国卫生与公众服务部的相关规定，从事学前教育的工作人员需在1月底前完成疫苗接种。
 
-据世界卫生组织表示，目前，已在全球89个国家发现奥米克戎变种病毒。在欧洲，奥米克戎毒株的传染趋势有所减缓，而北美地区流行趋势正逐步扩大。值得注意的是，在已经建立“群体免疫”的地区，奥米克戎仍有很高的传染率。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture8-3.png)
 
-尽管如此，各国政府仍在推行激进的强制疫苗政策。与此同时，辉瑞和莫德纳两家疫苗厂商继续鼓吹加强针。然而，初步的研究表明，接种疫苗加强针后，人体抵御奥米克戎毒株的能力已普遍下降。
-
-本栏目将在每周四持续推出全球疫情、疫苗灾难的每周汇总信息，敬请关注。
+路易斯安那州总检察长杰夫·兰德里在一份声明中说，拜登政府的疫苗政策不仅超出了政府的权限，违反了《国会审查法》和第十修正案，降低地区的就业率，还将削减贫困家庭、单身母亲、抚养子孙的老人所依赖的资金和儿童保育项目。德州总检察长帕克斯顿也表示，这项违宪的强制规定在美国没有立足之地，德州不会迫使本州人民接种疫苗。
 
 参考链接：
 
-- [COVID-19 vaccine doses administered](https://ourworldindata.org/grapher/cumulative-covid-vaccinations?time=2021-12-14..2021-12-21&amp;country=IND~RUS~USA~JPN~ISR~Asia~Africa~World+excl.+China~Europe)
-- [Weekly confirmed COVID-19 cases](https://ourworldindata.org/grapher/weekly-covid-cases?tab=chart&amp;time=2021-12-14..latest&amp;country=USA~IND~JPN~ISR~BRA~KOR~South+America~Africa~Asia+excl.+China~World+excl.+China)
+- [Twenty-five states sue Biden admin over mask mandate for kids in Head Start](https://www.foxnews.com/politics/25-states-sue-biden-admin-for-enforcing-vaccine-mandate-masks-on-children-and-staff-in-head-start-programs)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
 
-编辑：雪梨
+总编：Irene木木
+编辑：飞虹/雪梨
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

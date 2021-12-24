@@ -2,39 +2,26 @@
 ---
 
 
-## 哈佛教授隐瞒参与中共“千人计划”被定罪
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1786091/)
+## 【中日财经爆】日本政府批准了有史以来最大的财政预算案
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1786093/)
 
-作者：纽约香草山医疗部 – 云豹
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1138.png)
-波士顿法庭陪审团于当地时间12月21日裁定，前哈佛大学化学系主任，李柏教授，因为对参与中共的“千人计划”陈述不实，及不如实报税等行为，被判定6项罪名。
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1288.png)[图片来源](https://news.yahoo.co.jp/articles/9a4e828e3c107ddc59052a0333d238eb90df3ee7#:~:text=2022%E5)
+据《每日新闻》网站12月24日报道，今天，政府批准了2022年的财政初步预算计划。普通账户的总支出为107,5964万亿日元，比2021年的初步预算106,6097万亿日元增加了9867亿日元（0.9%），是有史以来连续10年的最大支出。这也是连续第四年初始预算计划超过了100万亿日元。仅以税收收入将不足以支付支出，总支出的约30%，即36,9260万亿日元，将用于发行新债券。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/10-9.jpg)
+这是岸田文雄政府制定的第一份初步预算，它将与12月20日批准的2021年财年补充预算（35,9895万亿日元）挂钩，成为”16个月的预算”，政策。以实现政府提出的”增长和分配的良性循环”。初步预算将在明年年初提交给国会，预计将在明年3月底前获得批准。
 
-千人计划是中共从2008年开始执行，计划性收买海外高级研究人员，借此盗取各国高科技战略信息的情报战的一个手段。
+政府政策的一般支出被设定为67,3476万亿日元，比2021年的初步预算增加0.7%。在这个总数中，社会保障支出增长了1.2%,（4393亿日元），达到36.2735万亿日元的历史最高水平。增长的主要原因是，由于75岁以上国民的医疗和护理费用不断上升，以及应对中共国日益增长的军事实力，国防预算也是有史以来最大的，其中包括下一代战斗机的研发费用。
 
-李柏教授在2011年被中共收买，成为武汉理工大学的「战略科学家」，加入千人计划。
+政府决定拨出5万亿日元用于无需国会决议即可使用的“新型冠状病毒（中共病毒）对策储备金”，这些资金将用于确保第三轮疫苗（新冠疫苗）接种和应对Omicron。
 
-川普总统任内，对中共盗取科研情报的行为开始进行反制调查，李柏教授此次被定罪只是其中的一个案例。
+除上述之外，对地方政府的财源也有调整。
 
-参考链接：
+信息源：[2022年度当初予算案を閣議決定　過去最大、4年連続100兆円超](https://news.yahoo.co.jp/articles/9a4e828e3c107ddc59052a0333d238eb90df3ee7#:~:text=2022%E5)
 
-- [隱瞞參與中國千人計畫 哈佛大學教授遭定罪](https://www.cna.com.tw/news/aopl/202112220055.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
-
-总编：童谣
-编辑：童谣
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*编辑：东京樱花团/知了知了
+发行：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

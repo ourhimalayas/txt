@@ -2,28 +2,28 @@
 ---
 
 
-## 美25州就学前教育者疫苗强制令起诉拜登政府
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1786158/)
+## 欧盟拟对中共国铝箔加征关税
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1786159/)
 
-作者：纽约香草山文艺部 – 宁文静
+作者：纽约香草山 – 侠肝义胆
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1138.png)
 
-12月21日，美国路易斯安那州、阿拉巴马州、阿拉斯加州、阿肯色州、亚利桑那州、佛罗里达州等25个州起诉拜登政府，指控其对学前教育员工的疫苗强制接种令。据美国卫生与公众服务部的相关规定，从事学前教育的工作人员需在1月底前完成疫苗接种。
+周三，欧盟在其官方刊物上表示，在发现中共国生产商受益于过度和不公平的补贴后，欧盟决定对来自中共国的铝箔征收额外关税，将特定薄等级铝转炉箔的关税范围调整为 8.6% 至 18.2%，并于周四正式生效。这是在现有 6.0% 至 28.5% 的反倾销税基础上做的相关补充。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture8-3.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture7-1.jpg)
 
-路易斯安那州总检察长杰夫·兰德里在一份声明中说，拜登政府的疫苗政策不仅超出了政府的权限，违反了《国会审查法》和第十修正案，降低地区的就业率，还将削减贫困家庭、单身母亲、抚养子孙的老人所依赖的资金和儿童保育项目。德州总检察长帕克斯顿也表示，这项违宪的强制规定在美国没有立足之地，德州不会迫使本州人民接种疫苗。
+据悉，在收到来自意大利和德国等六家生产商的投诉后，欧盟委员会进行了相关调查，称中共将铝箔列为重点行业，采取优惠融资、免税，和政府以低于市场价格提供土地使用权和电力等补贴形式，干预市场的自由发展。
 
 参考链接：
 
-- [Twenty-five states sue Biden admin over mask mandate for kids in Head Start](https://www.foxnews.com/politics/25-states-sue-biden-admin-for-enforcing-vaccine-mandate-masks-on-children-and-staff-in-head-start-programs)
+- [EU to impose extra tariffs on China aluminium foil over subsidies](https://www.reuters.com/markets/commodities/eu-impose-extra-tariffs-china-aluminium-foil-over-subsidies-2021-12-22/)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
 
-总编：Irene木木
-编辑：飞虹/雪梨
+总编：飞虹
+编辑：雪梨
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

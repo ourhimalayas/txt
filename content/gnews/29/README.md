@@ -2,41 +2,41 @@
 ---
 
 
-## 加入欧美抵制冬奥，日本不派官员参加
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1786120/)
+## 一周中共病毒及疫苗伤害等信息汇总
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1786157/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+作者：Zion文恩
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/np_file_128779.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1138.png)
+
+2021年12月14日至21日，除中共国外，全球累计确诊中共病毒四百七十九万余例，同比上周增长百分之9.36；本周累计死亡四万七千九百零五例，同比上周下降百分之2.46。自疫情爆发以来，中共掩盖真相，其数据毫无可信度。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/10-11.png)
+一周内，全球累计接种62.4亿剂疫苗，同比上周增长百分之2.88；全球疫苗接种趋于稳定，未因奥米克戎毒株的爆发而显著上升。
+
+据世界卫生组织表示，目前，已在全球89个国家发现奥米克戎变种病毒。在欧洲，奥米克戎毒株的传染趋势有所减缓，而北美地区流行趋势正逐步扩大。值得注意的是，在已经建立“群体免疫”的地区，奥米克戎仍有很高的传染率。
+
+尽管如此，各国政府仍在推行激进的强制疫苗政策。与此同时，辉瑞和莫德纳两家疫苗厂商继续鼓吹加强针。然而，初步的研究表明，接种疫苗加强针后，人体抵御奥米克戎毒株的能力已普遍下降。
+
+本栏目将在每周四持续推出全球疫情、疫苗灾难的每周汇总信息，敬请关注。
+
+参考链接：
+
+- [COVID-19 vaccine doses administered](https://ourworldindata.org/grapher/cumulative-covid-vaccinations?time=2021-12-14..2021-12-21&amp;country=IND~RUS~USA~JPN~ISR~Asia~Africa~World+excl.+China~Europe)
+- [Weekly confirmed COVID-19 cases](https://ourworldindata.org/grapher/weekly-covid-cases?tab=chart&amp;time=2021-12-14..latest&amp;country=USA~IND~JPN~ISR~BRA~KOR~South+America~Africa~Asia+excl.+China~World+excl.+China)
 
 
-#### 整理/编辑 ：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
 
-根据德国之声中文网12月24日报道，由日本媒体引述多名日本政府相关人士报道称，**日本体育代表团将按计划参加冬奥会，但确定不派政府高官参加。**
+编辑：雪梨
+校正/发稿：海阔天空1
 
-日本正式加入美英等国外交抵制北京冬奥会的行列。
-
-日本放送协会（NHK）报道，日本内阁官方长官松野博今天表示，日本政府将不派内阁成员或政府相关人员出席明年的北京冬季奥运会。
-
-中央社报导称，北京冬奥会将由冬奥组委会主席桥本圣子等3人代表出席。
-
-美国和其他西方国家因担心中国的人权问题而宣布对冬奥会进行外交抵制，但日本迄今采取了温和的语气。
-
-另外，日本前首相安倍晋三也于23日与岸田文雄举行会谈，似乎要求其尽早表明态度。基于岸田“重视人权”的立场，日方得出了难以派遣高官的结论。
-
-作为美国的亲密盟友，日本的举动一直备受关注。日本在一段时间以来不断表达来自中国政府的威胁正在增长的忧虑。
-
-新闻来源：[加入欧美行列  日本不派官员参加北京冬奥 | 德国之声 来自德国 介绍德国 | DW | 24.12.2021](https://www.dw.com/zh/%E5%8A%A0%E5%85%A5%E6%AC%A7%E7%BE%8E%E8%A1%8C%E5%88%97-%E6%97%A5%E6%9C%AC%E4%B8%8D%E6%B4%BE%E5%AE%98%E5%91%98%E5%8F%82%E5%8A%A0%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5/a-60248947)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

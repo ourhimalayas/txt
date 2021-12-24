@@ -2,26 +2,34 @@
 ---
 
 
-## 【中日财经爆】许家印夫妇近8亿元股份被斩仓
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1786218/)
+## 郭先生提醒：务必重视奥米克戎变体病毒
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1786229/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1304.png)[图片来源](https://www.sohu.com/a/282206026_100001551)
-港交所周五(12月24日)权益披露资料显示，中国恒大主席许家印与妻子所持3亿股恒大物业股份于12月20日被斩仓。
+撰稿：银河勇气星—骄子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-1.png)
+在12月22日的大直播中，郭先生强调，在美国，奥米克戎变体病毒感染及引发的综合症非常严重，提醒战友们务必引起重视。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1278.png)
+郭先生谈到，仅在一周时间内，爆料革命纽约新办公室的七人管理层中，已有五人感染。与新中国联邦合作的政治公关团队、战友等均为家庭式感染。合作的律师团队中的某律师家人，感染病毒后过世。在美国，不仅纽约的病毒检测棒断货，医疗资源极度紧缺，就连在德州，丧葬业务都要长时间排队。
 
-以当日恒大物业2.66港元的收市价计算，涉及金额7.98亿港元，持股比例从60.96%降至58.18%。
+郭先生提醒大家，据科学家评估，奥米克戎致死率虽不高，但伊维菌素和青蒿素对奥米克戎并不是百分百管用。郭先生还建议大家尽量减少外出，合理地佩戴口罩、手套，勤洗手。
 
-港交所资料显示，许家印及其妻子丁玉梅旗下鑫鑫（BVI）有限公司对恒大物业的持股减少3亿股，原因是“有关方面已采取步骤以针对你执行股份的保证权益或持有作为保证的股份的权利”。
+新闻来源：[2021年12月22日 文贵大直播](https://gtv.org/video/id=61c324ccbcb7f101bb732568)
 
-恒大物业周五一度挫2.6%，后收跌1.5%报2.63港元。港股周五因圣诞前夜只有半天市。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-5.png)
 
-此前12月初许家印抵押的超过2.778亿股恒大股份遭强制执行出售（斩仓），以出售当天收市价计算股份价值逾5亿港元。
+总编：飞虹
 
-消息来源：[许家印夫妇所持3亿股恒大物业股份被斩仓 持股比例降至58.18%（更新版）](https://cn.reuters.com/article/china-evergrande-hui-stock-sale-1224-idCNKBS2J30B1?il=0)
+编辑：雪梨
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
