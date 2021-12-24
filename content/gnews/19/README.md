@@ -2,39 +2,36 @@
 ---
 
 
-## 郭先生：VICE虚假视频是为美国取消中共贸易关税做铺垫
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1786252/)
+## 中共房地产开发商面临巨额债务到期
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1786260/)
 
-#### 撰稿：日本东京方舟农场  幽蘭自得
+撰稿：MOS-柳是多水土透
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-1.png)
+据美国媒体12月22日报道，中共的房地产企业在发生部分债务违约、股票债券遭到抛售，以及评级下调等问题后，又将马上面临更大规模的到期债务等财务挑战。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1310.png)
+据悉，中共房企面临的严峻财务压力主要来自三个方面，一是需要在农历年末之前向农民工支付共1.1万亿元人民币的拖欠工资；二是地方政府一直在收紧托管银行账户中的预售资金限制；三是即将到期的离岸美元债券，从今年第四季度的102亿美元，增加到2022年第一季度的198亿美元和第二季度的185亿美元。与此同时，中共国由于经济、病毒等原因，新房销售量持续下降。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/D3558F8F-B412-4BDA-9297-1405DECBF0A6.jpeg)（图片来自日本东京方舟农场）
-
-12月22日，新中国联邦创始人郭文贵先生在大直播中揭露，VICE媒体的虚假视频是中共操控下的一场政治大宣传，目的是将中美矛盾转嫁给新中国联邦，为美国取消对中共追加的贸易关税做铺垫。
-
-日前，美国媒体Vice News播放了其记者Isobel Yeung（杨贝贝）采访郭文贵先生的篡改视频。该视频没有播放完整、真实的采访内容，而是有目的地截取部分片段，强行把散播虚假消息、个人报复、个人崇拜等标签贴在郭先生身上。另外，该节目还将爆料革命支持者合法、和平的抗议游行和几段华人暴力视频（视频中的人物不是爆料革命支持者）拼凑在一起，以污蔑爆料革命并误导观众。
-
-对此，郭先生在直播中爆料，中共正在不惜一切代价，让美国拜登政府取消对中共追加的贸易关税，Vice播放的虚假视频是中共别有用心的一场政治大外宣事件，。他强调：“这件事日后一定会发生。”
-
-郭先生指出，Vice的虚假视频一箭双雕，一方面把新中国联邦打成邪教、恐怖分子，成为中美关系、海外华人所有威胁的替罪羊，把所有中共做的恶转嫁到新中国联邦身上。另一方面，与中共勾结的美国政府可以以此为说辞，取消对中共追加的贸易关税。
-
-“这次Vice的采访，是和PAG、TPG、单伟健有关的虚假、捏造、威胁的报道，是帮助北京拿得冬奥会，帮助美国和中共取消最高关税贸易，做的一场政治大宣传行动。”郭先生说。
-
-此外，郭先生当日稍晚在盖特播放了Vice采访原始资料，还原真相予以反击。（[The Truth Behind Mr. Miles Guo’s Interview with HBO Vice](https://www.gettr.com/post/pkexq84603)）
-
-*参考链接：*
-
-1. [*https://www.gettr.com/post/pkf5bbde41*](https://www.gettr.com/post/pkf5bbde41)
-2. [*https://gtv.org/video/id=61c324ccbcb7f101bb732568*](https://gtv.org/video/id=61c324ccbcb7f101bb732568)
+根据郭文贵先生的分析，被中共控制的房地产企业的巨额债务暴雷，不仅将会带动中共国银行、保险等金融部门相继倒塌，也将会成为世界经济崩溃的导火索。
 
 
-* * *
 
-*素材采编：幽蘭自得*
+链接：[China’s property developers have more than just big bond payments coming up](https://www.cnbc.com/2021/12/22/chinas-property-developers-have-more-than-big-bond-payments-coming-up.html)
 
-*编辑：文顺*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-5.png)
 
-*发布：miumiu*
+总编：Irene木木
 
+编辑：飞虹
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
