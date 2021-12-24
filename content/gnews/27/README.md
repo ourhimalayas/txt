@@ -2,27 +2,23 @@
 ---
 
 
-## 拜登总统签署《防止强迫维吾尔人劳动法》
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1787601/)
+## 达扎克在中共病毒问题上有重大利益冲突
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1787602/)
 
-作者：日本方舟农场 Andy5
+作者：纽约香草山文艺部 – 宁文静
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月23日，据当地媒体报道，美国总统拜登正式签署了《防止强迫维吾尔人劳动法》，其在送抵白宫的三天后成为美国正式法律。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-24-下午11.55.57.png)
-资料显示，该法案由美国两党议员于2020年在国会协力推动，并于本月稍早通过参、众两院的表决。随后，本月20日，该法案被送交白宫。
+12月23日，据美国媒体报道称，顶级医学杂志《柳叶刀》的编辑理查德·霍顿承认，彼得·达扎克在中共病毒问题上存在着“重大的”“令人遗憾的”利益冲突，且这些冲突导致他在大流行初始时没有及时披露该病毒的相关信息。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-24-下午11.56.06.png)
+资料显示，2020年2月19日，彼得·达扎克联合了20多位科学家在《柳叶刀》杂志上发表文章，斥责中共病毒实验室起源的说法是阴谋论。这篇文章也扼杀了世界对中共病毒起源的调查，导致病毒的溯源工作至今尚无任何进展。同时，相关新闻机构和立法者依靠这种所谓的“权威”认定，打击了中共病毒的起源真相——即该病毒出自福奇资助的中共武汉病毒实验室。
 
-根据美国关税法第307款规定，禁止所有开采、生产、制造涉及强迫劳动的商品被进口至美国，而《防止强迫维吾尔人劳动法》则授权美国海关和边境保护局对新疆出产的相关产品作出认定。据了解，进口企业需提供明确且令人信服的证据表明其商品与强迫劳动无关，否则，他们的产品将被禁止进入美国。
+报道提及，在面对“科学和技术特别委员会”中英国议员的质询时，霍顿博士承认了上述观点。而霍顿博士的这一指认也使得达扎克及一帮科学家在去年2月发布的声明沦为废纸。据了解，早在今年6月22日，《柳叶刀》就已经更新了冠状病毒委员会的资料，当中，与石正丽合作的生态健康联盟主席彼得·达扎克被委员会以回避为由除名。
 
-国务卿布林肯表示，此举展现出美国在对抗强迫劳动问题上的承诺。同时，布林肯还敦促中共政府立即停止其针对新疆维吾尔人以及其他少数民族进行的种族灭绝与反人道行为。布林肯与承诺，美国将竭尽所能地帮助那些渴望摆脱强迫劳动的人们，让他们得以恢复尊严。
-
-参考链接：
-1）[拜登簽署防止維吾爾強迫勞動法案 限制新疆產品進口](https://www.cna.com.tw/news/firstnews/202112240008.aspx)
-2）[拜登签署法案 禁止新疆强迫劳动产品进入美国](https://www.zaobao.com/realtime/world/story20211224-1226117)
+参考链接：[Lancet Editor Admits Peter Daszak Has ‘Significant, Regrettable’ Conflicts Of Interest.](https://thenationalpulse.com/news/lancet-editor-admits-daszak-had-significant-conflict-of-interest/)
 
 ![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
 总编：文真
-编辑：Jack Li文阳
+编辑：Irene木木
 校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
