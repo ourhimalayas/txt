@@ -2,36 +2,32 @@
 ---
 
 
-## 医疗界的法西斯主义：FDA与USPS合谋阻止救命药伊维菌素的运输
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1784690/)
+## 马斯克又出奇招，变二氧化碳为火箭燃料
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1785073/)
 
-翻译：波士顿五月花  冲天一怒
+**翻译：Sara9**
+**编辑：守望黎明**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture2-11.jpg)https://i.imgur.com/NpwADkm.jpg
+![](https://assets.gnews.org/wp-content/uploads/2021/12/MuskMars1.jpeg)图片来源：Business Insider
 
-律师亚伦‧希瑞 (Aaron Siri) 公布了一份他发现的文件：文件显示美国食品和药物管理局 (FDA) 正与美国邮政局 (USPS) 合谋阻止进口的伊维菌素从海外运至美国消费者。
+Space X 的首席执行官埃隆・马斯克（Elon Musk）说，他的公司计划把二氧化碳转化为火箭燃料。
 
-在一条推文中，希瑞提到了一封“FDA 行动通知”函，其中解释到USPS 现在正在非法监视包裹。若发现包裹中含有伊维菌素，而收件人无法证明该药物除了治疗中共病毒 (Covid-19) 外还有其他用途，包裹将被扣留并随后销毁。信函中写道：“应FDA的要求，邮局正在扣留从外国寄给您的包裹。”
+马斯克在推特上说：“SpaceX 正在启动一项计划，将二氧化碳从大气中提取出来，并将其转化为火箭燃料。有兴趣的人欢迎加入。” 他还补充说，这一行动“对火星之行也很重要”，因为这将可以利用火星大气作为未来的燃料来源——这对从火星到地球漫长的回家之路是必须的。亚利桑那州立大学报告称，火星大气中二氧化碳占了95% 。
 
-信中列出的“单个物品现状的摘要”显示一盒 200 片，每片12mg的伊维菌素片被USPS 于 2021 年 11 月 9 日扣留。这批产品还可能包含未列出的其他药品。该通知不保证所涉及的产品符合食品药品和化妆品法案、公共卫生服务法案或其他相关法案的规定，也不排除在产品随后被发现违规时采取行动。
+再回到地球，科学家们将二氧化碳转化为可用燃料的研究也在进行中。根据《大众机械》（Popular Mechanics）的报道，航空公司的首席技术官兼联合创始人斯塔福德・希恩（Stafford Sheehan）解释说：“现在，火箭燃料中无论是  RP-1还是甲烷，构成它们的碳氢化合物都来自地下的化石燃料。在 Space X 的猎鹰 9 中也使用 RP-1。我们现在的二氧化碳出自生物性来源，是生产工业酒精的副产品。但是，我们将来可以使用空气中的二氧化碳制造这些碳氢化合物。我们可以从任何途径获得二氧化碳，包括直接从空气中获取。”
 
-**FDA****希望人****们在没有伊维菌素的情况下死****去**
+希恩补充说：“直接从大气中获取二氧化碳这一点，对于火箭燃料特别有意义——如果我们把以二氧化碳为基础的燃料用于火箭发射，每次发射就等于向大气少排放715 吨二氧化碳。”
 
-收件人被告知，对包裹内容的检查导致 FDA决定这些药物“不符合法律要求”。此外，FDA 已确定每件物品的价值为 2500 美元或更低。由于这些药物不符合法律要求且价值在 2500 美元或以下，它们将被拒绝进入美国并予以行政销毁。根据 FDA 的说法，在中共病毒(福奇病毒)时期，伊维菌素被标注为“误标(不用于治疗Covid-19)”，将不被允许使用。人们现在唯一可以获得的药物是来自“神速行动”的疫苗。
+原文链接：[Musk Plans to Convert Greenhouse Gas Into Rocket Fuel](https://www.newsmax.com/scitech/elon-musk-spacex-mars-greenhouse/2021/12/20/id/1049430/)
 
-信函中补充道：进口药物似乎不遵从或不符合 FDA 个人进口政策下的豁免考虑。收件人可以质疑包裹的拦截，并通过提出有利于其正确接收的申诉来尝试取回包裹。如果在一定时间内不这样做，那么 FDA 和 USPS 计划销毁伊维菌素药片。
+*发布：盘古相聚*
 
-希瑞指出，FDA 本可以比现在更明智地利用资源让人们用自己希望的干预方法对抗中共病毒(福奇病毒)以保持健康。相反，FDA 似乎更希望通过限制伊维菌素的使用令更多人死亡。
-
-FDA 本可以更好地利用其资源公开发布辉瑞提交的文件，颁发其规定的无责任疫苗许可证，而不是等到75 年后。希瑞在写这条推文时，故意用字母V取代了“疫苗”这个单词，以避免在社交媒体平台上被审查。有人在推特上回应这条推文：所以FDA真的是在谋杀我们。
-
-新闻来源: [MEDICAL FASCISM: FDA conspiring with USPS to block shipments of lifesaving ivermectin](https://www.naturalnews.com/2021-12-17-fascist-fda-conspiring-usps-block-shipments-ivermectin.html)
-
-* * *
-
-*素材来源：冲天一怒*
-
-*编辑**& 发布：jamie(文胤)*
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

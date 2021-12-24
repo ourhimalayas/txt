@@ -2,62 +2,59 @@
 ---
 
 
-## 加利福尼亚学区抗拒疫苗强制令
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1784582/)
+## 希腊因Omicron担忧禁止圣诞节庆祝活动
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1784721/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+作者：Ian Miles Cheong
+翻译：Himasally
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/12/N-4.jpg)majorgrossprofit.com
-反抗拜登政府的疫苗强制令仍在各行各业、各地蔓延，左州加利福尼亚的巴斯蒂安（Bastian）学区，无视极左州长纽森（Newsom）的命令，宣布他们不会对学生或教职员工执行强制疫苗令。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-291.png)
 
-《门道专家》12月22日晚间发表文章，题目是，“‘公共卫生令不是法律’——加利福尼亚学区无视纽森，宣布他们不会对学生或教职员工执行强制疫苗令”。
+希腊政府已禁止公共圣诞节庆祝活动，以遏制新冠的高度传染性“温和”Omicron 变体的传播。
 
-全文如下：
+正如反叛新闻周三报道的那样，英国政府科学家汇编的数据发现，Omicron 变体的症状比 Delta 更“轻”。调查结果促使英国首相鲍里斯约翰逊暂时保持国家开放，而不是在圣诞节期间关闭。
 
-教育机构——特别是在加利福尼亚州的巴斯蒂安地区——罕见地表现出了坚韧，一个学区正在全力反对该州激进州长施加的医疗暴政，强调它将无视对学生和教职员工的疫苗强制令。
+然而，希腊卫生部门采取了相反的举措，而是选择禁止公共圣诞节和新年前夜庆祝活动，以回应 Omicron。此外，希腊卫生部长周四表示，希腊政府正在重新引入开放空间戴口罩的规定，以试图减缓病毒的传播。
 
-在家长和社区成员对加文·纽森（Gavin Newsom）10月份宣布所有符合条件的学生都必须为即将到来的春季学期接种疫苗表示强烈反对后，“奥克代尔联合统一学区”（the Oakdale Joint Unified School District）以压倒性多数通过了一项决议，表示该学区将不遵守州长的独裁强制令，并将向州官员请愿，要求将该行政令降级为一项建议。
+该措施将于周五上午生效，将要求所有公民在公共交通工具和超市内佩戴两个口罩或“高防护口罩”。卫生部建议，还“强烈鼓励”外国游客在抵达几天后进行两次 PCR 检测，而不是一次。
 
-有时，只需简单地说一声“不”，尤其是当问题与任何法律无关时——拒绝遵守武断、不科学的公共卫生令不构成犯罪。
+希腊卫生部长 Thanos Plevris 表示，新的一年将采取额外措施，主要是在娱乐和体育场馆。他说，此举是为了避免再次完全封锁。
 
-学校董事会以4票对1票通过了这项措施，他们称之为“绝对必要”，因为这项措施使家长能够自由地就孩子的健康作出自己的明智决定。
+Plevris 在新闻发布会上说：“我们一直在监控病例，看看在 Delta 变体背后是否存在 Omicron 的传播。”
 
-来自“奥克代尔联合统一学区”的公告：
+尽管自本月初以来希腊报告的 Omicron 病例相对较少，但还是采取了暂停圣诞节庆祝活动的举措。
 
-“董事会意识到中共病毒疫苗的安全性，许多家长担心，家长对健康决策的选择是绝对必要的。”
+据《独立报》报道，希腊仅报告了几十起 Omicron 案例。
 
-关于疫苗强制令本身，该决议澄清了学区不会因为他们的中共病毒疫苗接种状况与“拒绝雇佣”或“学生自身接受教育（的权利）”相关联。
 
-当然，激进的公共卫生官僚对该学区的公告并不满意，据“莫德斯托蜜蜂”（the Modesto Bee）组织称，加利福尼亚州教育部立即威胁要削减违反州长疫苗强制令的学校基于出勤率的资金。
+> 希腊去年从第一波大流行中脱颖而出，其状况比其他一些欧洲国家要好，近几个月来一直在努力应对感染激增的问题，这给其医疗保健系统带来了压力。
+> 
+> 当局周三报告了 5,641 例新感染和 69 例相关死亡，使自大流行开始以来的感染总数达到 1,049,936，死亡人数达到 20,126。
+> 
+> 希腊拥有 1100 万人口，迄今已进行了超过 730 万次首次注射。大约 65.7% 的希腊人已全面接种疫苗。
 
-来自“莫德斯托蜜蜂”：
 
-加利福尼亚州教育部发言人说，如果学生亲自上学但没有按照州的要求接种疫苗，各区将失去基于出勤率的资金。
+希腊关闭庆祝活动的举措符合其他西方政府对其公民施加的限制。站在规范之外的是英国和佛罗里达州，它们似乎比其他一些国家更好地遵循科学，采用了更加疑虑重重的治理方法。
 
-州教育总监（State Superintendent）托尼·瑟蒙德（Tony Thurmond）尊重当地的控制措施，理解各区需要作出的艰难选择，以保持学校的开放和安全，并保持所有学生的学习。发言人斯科特·罗克（Scott Roark）通过电子邮件说，“然而，不遵守当前的免疫要求会有审计后果。”
+来源：https://www.rebelnews.com/greece\_bans\_christmas\_celebrations\_over\_omicron\_worries
 
-虽然削减经费的威胁是学校面临的一个可怕的前景，但是当你考虑到加利福尼亚的疫苗强制令已经被州的大部分地区推到2022秋季学期开始的时候，这种威胁就显得有些空洞了，包括州第三大区洛杉矶联合区。
+（文章仅代表作者个人观点）
 
-即使他们真地信守削减资金的承诺，他们至少在6个月内无法对该地区实施任何惩罚。
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-“奥克代尔”的挑战远未结束，但从现在开始很多事情都会发生变化。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
 
-简言之，如果更多的学校和机构只是简单地说不，而不是推迟强制令，那么州长就不能执行他的独裁令。
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-理论上，这很容易。
+**关注我们**
 
-因为，再强调一次，公共卫生令不是法律，只有你和其他人都遵守，命令才能有效。
+Discord 账号
 
-2022年秋季学期还有很长的路要走，其他的每个学区都应该以“奥克代尔”的方式，坚决拒绝这种暴政。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-（原文完）
+Gettr 账号
 
-的确，必须上升到这在实施暴政的意识，是民主国家的天敌，阴谋集团通过施打疫苗获得了经济利益，也在尝试控制人类的手段。如果他们得逞，他们会更加穷凶极恶，我们必须警觉。
-
-原文链接：
-
-[https://www.thegatewaypundit.com/2021/12/public-health-orders-not-laws-california-school-district-defies-newsom-announces-will-simply-not-enforce-vaccine-mandate-students-staff/](https://www.thegatewaypundit.com/2021/12/public-health-orders-not-laws-california-school-district-defies-newsom-announces-will-simply-not-enforce-vaccine-mandate-students-staff/)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
