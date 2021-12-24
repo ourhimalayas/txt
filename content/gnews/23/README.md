@@ -2,20 +2,37 @@
 ---
 
 
-## 中共虚伪恩恤 以自由为代价的自由
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1787140/)
+## 7·24系列——投资川普媒体的瑞寰资本Arc Capital
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1787181/)
 
-作者：东京樱花团丨阿恩
-![](https://lh6.googleusercontent.com/LnIj-X0r1Ixdyep36WxbrVlR0OYUxlaeVKUh3IMWkYmIJfX0its9U-RsCmTsyZQrhjMaCP0Cqb0uAnw2u9n61A8X42wodXp5K8FoGuZzfM3zT-cvJUtGcoRCJiahkryjEAcOuX3_)
-「光城者」多名年轻成员早前被拘控，涉嫌违反国安法。被控串谋煽动颠覆国家政权罪的16岁男学生向高等法院申请保释，由母亲和4位老师作人事担保，国安法官批准附带非常严苛条件的保释，包括每天9小时宵禁，星期六日活动受限制；不可发表、转载或赞好任何政治和时事评论，若警方要求检查电话须配合解锁，被告须提交5万元保释金，母亲也被要求提供5万元现金作人事担保，4名老师则被要求各提交2万元作人事担保。被告不得离开香港，须交出旅游证件及BNO护照(如有)，居住在报称地址，搬屋须事先申请，每天到警署报到。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/arc-capital-ie-finance-talent-forum-madrid-ie-business-school.jpg)图片来源：ARC Captial
 
-年关临近，被羁押待审的政治犯仍期望申请保释获得与家人团聚的机会。中共对于那些民主领军人物都采取十分强硬的态度，拒绝保释长期羁押，而且对探访也有严格的限制。被羁押的政治犯有许多是未成年人，他们虽然身在囚室，但外面的家人和师长都为其牵肠挂肚，奔波法庭为孩子们求情。香港的司法体系已经成为中共打压异己的工具，对于这些弱小的孩子们，中共惯用“恩威并重“的方法，以回应政棍们在媒体上呼吁给年青人机会，因此国安法官大多判处社会服务令或判入住更生中心，律政司也极少向这些案件提起司法复核。那些被羁押的孩子们经常会被中共安排的神职人员或社工接触，不断游说他们相信追求民主和自由是罪，而且还抛出附带条件的”承诺“，诱使孩子们认罪减刑。中共是一个连自己体制内的人也杀无赦的邪物，根本不能对它有任何的幻象，用自由为代价的自由是多么荒谬，难怪那些民主斗士纷纷放弃申请保释的机会，不懈配合中共向世界上演香港司法仍有”民主自由“的闹剧。
 
-资料来源：[**「光城者」涉串谋煽动颠覆案 高院平安夜首批准16岁学生以严苛条件保释**](https://www.hkcnews.com/article/49593/%E5%85%89%E5%9F%8E%E8%80%85-%E6%9D%8E%E9%81%8B%E9%A8%B0-%E5%9C%8B%E5%AE%89%E6%B3%95-49599/%E3%80%8C%E5%85%89%E5%9F%8E%E8%80%85%E3%80%8D%E6%B6%89%E4%B8%B2%E8%AC%80%E7%85%BD%E5%8B%95%E9%A1%9B%E8%A6%86%E6%A1%88-%E9%AB%98%E9%99%A2%E5%B9%B3%E5%AE%89%E5%A4%9C%E9%A6%96%E6%89%B9%E5%87%8616%E6%AD%B2%E5%AD%B8%E7%94%9F%E4%BB%A5%E5%9A%B4%E8%8B%9B%E6%A2%9D%E4%BB%B6%E4%BF%9D%E9%87%8B)
+**整理：**BENJ1、翼族
+**编辑：**翼族
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
+美国时间12月24日，《华盛顿邮报》发出一篇题为[《川普的最新商业伙伴：一家历史上被美国证券交易委员会调查过的中国公司》](https://www.washingtonpost.com/business/2021/12/23/trump-spac-deal-sec/)的报道，投资川普新媒体Digital World Acquisition（数字世界）的这家中国公司，是总部位于上海的Arc Capital，英文全称Arc Capital Holdings Limited，即瑞寰资本控股有限公司，简称**瑞寰资本**。
+
+如果说瑞寰资本名不见经传的话，那么说起大名鼎鼎的海航，想必没有人会陌生。早在2007年12月，瑞寰资本就注资七千万美元完成了对海航集团的首轮融资，随后海航就开始了令人瞠目结舌的“腾飞”。
+![此图像的alt属性为空；文件名为11-11.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/11-11.jpg)图片来源：投资界
+2006年初，瑞寰资本宣布收购上海家得利连锁超市股权。2007年至2008年，瑞寰资本通过其设于上海的投资公司前后注资约6亿元收购了家得利连锁超市100%的股权。全盘接手家得利后，瑞寰资本又将股份卖给了海航集团旗下的海航商业。
+
+经查，瑞寰资本曾于2006年6月27日在伦敦证券交易所另类投资市场（Alternative Investment Market，简称AIM）上市，另类投资市场是伦敦证券交易所的第二板交易市场，容许一些小型公司在较主板市场宽松的财务条例下将股份上市。但根据[stockmarketwire网站](https://www.stockmarketwire.com/article/5133968/ARC-Capital-delisted-from-AIM.html)，瑞寰资本2015年9月15日已被停牌，并于2015年10月16日在AIM正式注销，因为它无法就任命替代的指定顾问达成协议。
+
+瑞寰资本属于**太盟资本集团PAG**旗下公司，在[investegate网站](https://www.investegate.co.uk/arc-capital-holdings--arch-/rns/weijian-shan-named-group-chai/201006231150551150O/)上可以看到瑞寰资本2010年6月21日发布的公告中称，**单伟建（Weijian Shan）**被提名为太盟PAG的主席和首席执行官。公告中明确称，ARC（瑞寰资本）是PAG（太盟集团）的成员。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/13-7.jpg)图片来源：Investegate.co.uk
+根据《华盛顿邮报》的报道，川普媒体的交易核心正是瑞寰资本（Arc Capital），这是一家在华尔街几乎不为人知的中国小公司，但华盛顿的一些监管机构表示他们多年来一直在研究这家公司，并对其非常规的商业行为表示担忧。
+
+从海航到太盟PAG，再到川普的新媒体公司，这家“几乎不为人知”的瑞寰资本一直躲在背后，但是随着太盟PAG诉郭文贵先生案件的一步步进展，牛鬼蛇神也不得不悄然现身，中共高级特务单伟建的低级伎俩终将大白于天下。
+
+*发布：翼族*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

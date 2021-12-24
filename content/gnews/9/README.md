@@ -2,47 +2,41 @@
 ---
 
 
-## 辉瑞疫苗效果完全免责，争抢市场却毫不手软
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1787478/)
+## 坚决反击HBO VICE利用中共特务诽谤爆料革命
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1787538/)
 
-原文作者：Ethan Huff
+作者：纽约香草山教育部- Noemi
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+12月23日，郭文贵先生在盖特平台上明确表示，对于HBO VICE利用中共党媒CCTV主持人的虚假言论对GTV和GNews进行一系列诽谤与诋毁的行为，新中国联邦及爆料革命的全体战友将采取坚决的反击。
 
-翻译：尚勁哥
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image003-4.png)
-英国第 4 频道制作的一部名为《疫苗战争：辉瑞的真相》的新纪录片，曝光辉瑞与英国政府签订了一份特殊合同，在发生法律争议时免除所有责任。同时揭露了这家制药巨头对新冠病毒疫苗市场的腐败垄断。据称，对辉瑞的调查是由于该公司的股东从 COVID 变种 Omicron 的到来引起的最新疫苗狂潮中获利约 39 亿英镑。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide1-26.jpeg)
 
-这份秘密合同的基本内容是，如果辉瑞的疫苗出现问题，英国当局现在无法将此事告上法庭。** **相反，任何出现争议的事情都必须通过**“**秘密仲裁小组**”**来处理。
+郭先生强调，GTV及GNews这一系列媒体平台是当前世界上唯一敢于说出真相的媒体，也是唯一敢于直接抨击中共及其背后黑暗势力的媒体。
 
-“英国在法律上有义务不说明是否与辉瑞有争议，争议是什么，或者秘密仲裁结果如何，”Great Game India 报道。  “英国显然仍然是唯一同意遵守辉瑞这一要求的发达国家。”
+郭先生也解释道，自诞生的那一刻起，GTV及GNews平台就是携带着使命而来的，它们也一定会成为中国与西方世界沟通真相和正义的桥梁。因此，新中国联邦和爆料革命决不允许中共及其爪牙HBO VICE对GTV和GNews进行任何形式的诽谤及诋毁。
 
-对自家出品的疫苗效果完全不负责任，但赚钱的时候却毫不含糊。这部记录片证明了辉瑞付钱给“专家”散布关于其疫苗竞争对手的谎言，包括来自阿斯利康和牛津大学的病毒载体注射。据说辉瑞曾贿赂医生和其他人，要求医生恐吓患者不要注射阿斯利康疫苗，理由是它会损害他们的免疫系统。 与此同时，辉瑞（Pfizer）注射剂正在引发年轻人的心肌炎。
+郭先生还提到，仅针对旧版GTV平台而言，中共曾指派特务混入平台内部，还伪装向旧GTV做出了虚假投资。同时，中共还利用卑劣的手段来打击和诋毁旧版GTV，并随之引发了美国SEC监管机构对旧GTV投资合法性的一系列调查行动——这些调查的结果也证明了GTV不存在任何不当行为，而郭先生与战友们更是在这场“GTV申诉保卫战”中取得了全面的胜利。
 
-影片进一步解释说，辉瑞在去年组织的一次幻灯片演示会上，与会者集思广益，讨论恶意策略，针对阿斯利康发起攻击计划。
+针对此次HBO VICE对G系列如此明目张胆的诽谤和诋毁，郭先生严正声明道，我们将采取一切法律措施并坚决反击到底。
 
-纪录片同时指出辉瑞每次注射的费用比它的实际生产成本高出 3,000%，这是价格欺诈。 对此辉瑞解释说，人们忽视了疫苗还有临床研究、制造和全球扩展和分销相关的其他成本。
+参考链接：
+1）[https://www.gettr.com/post/pkfmyveb9a](https://www.gettr.com/post/pkfmyveb9a)
+2）[【反击 #HBOVICE 采访郭文贵先生】](https://www.gettr.com/post/pkfifbd159)
+3）[【反击 #HBOVICE 采访】](https://www.gettr.com/post/pkf2f2ea8d)
 
-当人们生活在病毒恐惧，承受着疫苗带来的副作用时，辉瑞却日进斗金。据报道 “南非于 11 月 24 日向世界发出关于变异毒株的警告后，制药巨头的股票截至 11 月 30 日，7 天内上涨了 7.4%。”
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
 
-在公司的媒体宣布“Omicron”变种病毒（变位词形式的 Moronic）之后的几天里，投资公司 Vanguard Group Inc. 迅速从从辉瑞的股票中最大获利，资产总价值提高至13 亿英镑。
+总编：文特
+编辑：文特
+校正/发稿：谐趣园
 
-辉瑞 (Pfizer) 首席执行官 Albert Bourla 也大赚一把，在短短一周内就增加了 257,000 英镑的资产
-
-译者简评：
-
-在这场人类的疫苗灾难中，善与恶是显而易见的，我们不是反疫苗，我们是根据情报，得知疫苗的目的是杀人，所以我们反对所有中共病毒疫苗，反对毒疫苗，我们反对疫苗的目的是救人，而在本文中，提到的纪录片对于辉瑞的指控，让我们看到了疫苗公司为了巨大利益，通过不正当手段营销和攻击对方；更让人觉得后怕的是辉瑞与英国政府签署的秘密合同，居然不承担后果，作恶者为了赚更多的带血钱，哪管什么罪恶滔天，因果报应！“任何政府在关键时刻，都会牺牲掉老百姓的利益” （郭文贵先生言），所以我们要坚决反对和揭露。在这个记录片的播放频道网页写道：辉瑞疫苗在全世界已经拯救了数已百万的生命，但是高价的疫苗和创纪录的公司利润，是它们正在从这场大流行中牟取暴利吗？所以很明显，纪录片制作者的立场和我们是不同的，他们针对的是辉瑞，不反中共病毒疫苗，非善也。
-
-
-
-[援引原文1](https://www.naturalnews.com/2021-12-13-documentary-pfizer-paying-experts-lies-covid-vaccines.html)
-
-[援引原文2](https://www.channel4.com/programmes/vaccine-wars-truth-about-pfizer-dispatches)
-
-
-
-审核校对：sherryok (水云间)
-
-上传排版：漂流瓶
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

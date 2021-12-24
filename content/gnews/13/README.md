@@ -2,27 +2,36 @@
 ---
 
 
-## 【#G时新闻】 辉瑞和拜恩泰科疫苗中含有未被批准用于人体的成分！
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/1787337/)
+## 新歌打榜和大直播彰显实力 震撼中共
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1787496/)
 
-最近的研究结果显示，辉瑞和拜恩泰科品牌的疫苗主要成分中包括了一些未被批准用于人体的成分，复必泰接种疫苗成分中都包含什么呢？
+作者：纽约香草山教育部 – Naughty(文行)
 
-研究人员发现了两种物质，一个是ALC-0315，而另一个则是ALC-0159，这些成分虽然看上去较为复杂，但其实就是我们常说的纳米脂质材料。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-这种脂质纳米颗粒ALC-0159是由一家美国公司生产和经销的，产品说明书上明确写着：“该成分不能用于人体”。
+在12月22日的大直播中，郭文贵先生提到了一则由党内人士透露的消息：爆料革命歌曲《Hcion to the moon》的新歌打榜让中共真正看到了新中国联邦在全球的力量。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3-57.jpg)
+郭先生提及，自该曲上线以来，其一直霸占着新歌排行榜单的高位。截止目前，该曲在香港、台湾、老挝、匈牙利、澳门、斐济、菲律宾、芬兰、新加坡的排行榜上仍居首位，其在柬埔寨和美国的榜单上也位列亚、季军。
 
-另一方面，在辉瑞疫苗的接种说明书中还提到，在使用复必泰之前应该注意，ALC-0315和ALC-0159等质粒可能会让人出现过敏反应， 如果患者对于这些活性物质有任何不良反应，都不应该使用。
+另外，郭先生还透露，据这位党内人士的爆料，许多中共党内人士最初都是带着批评和怀疑的态度观看《文贵大直播》，但由于每位直播参与者分享的都是自己的真实感受和经历，现在这些党内观看者的态度巨变，成为了大直播的忠实观众。
 
-在辉瑞12月7日发布的安全数据报告中 ，没有任何关于上述物质的独立学评价，例如是否会致癌，是否会与其他药物的相互作用。并且纳米脂质以及纳米颗粒ALC-0315和ALC-0159只能用于研究目的应用。是由一家技术公司生产而并不是制药公司。这些都是对药品法的大规模违犯。
+这位党内爆料人士表示，《文贵大直播》的成功标志着爆料革命已经从刚开始的郭先生孤身作战，发展到如今的“将在后，兵在前”的集体作战模式。与此同时，大直播在全球的影响力足以让中共震撼。
 
-依据法律，任何参与这些疫苗接种的人都将面临高达十年的监禁。
+参考链接: [2021年12月22日 文贵大直播：iTunes全球打榜记录- Hcoin To The Moon；中美之间会取消关税，Vice的报导在冬奥会之前帮助中共做的一场政治宣传，中国老百姓将付出巨大代价；莘县古城鸳鸯饼和河南胡辣汤；疫苗灾难的最新数据；彭帅为何公开否认性侵](https://gtv.org/video/id=61c324ccbcb7f101bb732568)
 
-盖特：[https://gettr.com/post/pkaaad05b2](https://gettr.com/post/pkaaad05b2)
-播报：文雅
-翻译：LuLu1312
-制作：文雅&七觉花
-编辑/上传：七觉花
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
 
+总编：雪梨
+编辑：Kathy文艺
+校正/发稿：Fei797
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
