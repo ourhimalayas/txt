@@ -2,40 +2,32 @@
 ---
 
 
-## 日本在中国政府的威胁下批准了创纪录的国防预算
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1786015/)
+## 美路易斯安那州护士爆料：相较于新冠病毒，更多的孩子死于新冠疫苗
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1786076/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+翻译：坤哥
+校对：zzballack
+上传：无明逆流
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/1200x800.jpg)
+据《The COVID World》 12月23日报道：本月初，从业十七年的护士科莱特·马丁（Collette Martin）在路易斯安那州卫生和福利委员会（Health And Welfare Committee）的听证会上，谈到了她在新冠大流行期间所看到的医院情况。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1291.png)图片来源：原新闻
 
+科莱特说，她和她的同事们目睹了人们接种新冠疫苗后的“可怕”后果，但是她们对新冠疫苗的担忧却被忽视和驳回。
 
-图片来源： *Kiyoshi Ota/Bloomberg*
+科莱特还说，像VAERS（Vaccine Adverse Event Reporting System）这样的疫苗伤害报告数据库很少被使用，以至于大多数医生和护士甚至不知道它的存在，更不用说如何提交报告。”我们的大多数护士、护士长和一些医生甚至不知道VAERS是什么。我曾与我们的首席医药经理（chief medicine managers）和其他护士谈过，为什么我们不向VAERS报告，但是最常见的回答是：’VAERS是什么？‘。“
 
+这还不算最糟糕的，她接着说，没有一家医院提交任何关于新冠疫苗不良反应的数据，这意味着即使有人调查新冠疫苗造成的不良反应，也没有数据可查。”不仅仅是我工作的地方存在这种情况。我知道许多护士、朋友和路易斯安那州东南部的其他地方医院都是同样的说法。”
 
-#### 编译 ：小红帽
+科莱特护士对新冠疫苗的潜在长期副作用的说法令人震惊。”我们看到的仅仅是新冠疫苗短期内的严重急性不良反应，对其导致的任何长期不良反应我们一无所知。比如是否会诱发癌症、自身免疫系统疾病、不孕不育等，我们一概不知。我们有可能因为惧怕死亡而牺牲了我们的孩子。孩子即使感染了新冠病毒，也有99%的存活率。”
 
-根据Hindustan Times12月24日报道，**日本内阁于周五批准了创记录的5.4万亿日元（472亿美元）的国防预算，用于从4月开始的年度。该预算是为了加强能力来抵御来自中国政府的威胁。**
+科莱特最后说，这些新冠疫苗的副作用被掩盖了，它被归咎于由新变种病毒引起。”截至目前，我们有更多的儿童死于新冠疫苗，而不是病毒本身。但是卫生部这时却出来说，新变种病毒引发的症状囊括了我们目前看到的所有疫苗副作用。
 
-这一数字标志着日本的年度国防开支连续第10次增长，超过了这个和平主义国家几十年来基本维持的国内生产总值1%的上限。
+这让人抓狂，我不明白为什么更多的人没有看到这一点。我认为他们看到了，但他们害怕说出来，甚至更糟糕的是，他们害怕被解雇”。
 
-根据斯德哥尔摩国际和平研究所的数据，与其盟友美国相比，日本的国防预算并不高， 2020年预估为7780亿美元，中国则为2520亿美元。整体预算必须在明年正式颁布前获得议会通过。
+随着新冠疫苗副作用逐渐地大规模地爆发，很多国家的政府用所谓的病毒新变种来掩盖事实和逃避责任。最悲哀地是主流媒体集体失声，民众看不到真相。灾难接踵而来，民众如待宰的羔羊，被黑心的政客们玩弄于股掌之中。爆料革命犹如暗夜中一道光，撕下流氓政府虚伪的面纱，将真相曝光，引领全球民众大觉醒。
 
-在北京当局于2020年镇压香港之后，日本和中国之间的关系变得越来越冷淡。两国的船只继续在位于东中国海的岛屿周围相互追逐。
-
-包括首相岸田文雄在内的日本官员也越来越直言不讳地表示，需要为台湾周边的突发事件做准备。
-
-新闻来源：[Japan approves record defence budget amid China threats | World News – Hindustan Times](https://www.hindustantimes.com/world-news/japan-approves-record-defence-budget-amid-china-threats-101640313873259.html)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+原文来源：[Louisiana Nurse Blows the Whistle: “We Have Had More Children Die From The COVID Vaccine Than Of COVID Itself”](https://thecovidworld.com/nurse-blows-the-whistle-we-have-had-more-children-die-from-the-covid-vaccine-than-of-covid-itself/)
 
  
 

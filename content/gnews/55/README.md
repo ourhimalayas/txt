@@ -2,39 +2,28 @@
 ---
 
 
-## 绝大多数美国人认为冠状病毒大流行源于中国武汉的实验室
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1781834/)
+## 【中日财经爆】法国雷诺证实与华晨的合资公司已破产
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1782464/)
 
-2021-12-23
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1208.png)[图片来源](https://cn.reuters.com/article/france-renault-china-brilliance-jv-1223-idCNKBS2J203E?il=0)
+法国雷诺汽车周三(12月22日)证实，其与中共国汽车制造商华晨汽车集团的合资企业已经耗尽了现金，正在走向破产重组。
 
-作者：推推党宣传部长
-![](https://assets.gnews.org/wp-content/uploads/2021/12/https-specials-images.forbesimg.com-imageserve-1210149339-TOPSHOT-CHINA-HEALTH-VIRUS-960x0.jpgcropX10cropX23048cropY1173cropY21888.jpeg)图片来源：[Hector RETAMAL/AFP](https://www.forbes.com/sites/jackbrewster/2021/06/09/nearly-half-of-americans-believe-covid-19-leaked-from-chinese-lab-poll-finds/?sh=6c406e2c6431)
-来自12月的民意调查显示，绝大多数美国人认为冠状病毒大流行源于中共国武汉的实验室泄漏。然而，中共政府随后对此撒谎。
+“鉴于(合资公司)无力履行其目前的财务义务，公司董事会已决定启动重组程序，”一位发言人说。
 
-罗纳德·里根研究所的 2021 年国防调查（The Ronald Reagan Institute’s 2021 National Defense Survey）提出了许多与中国及其对美国的立场有关的问题，其中包括一个关于中共病毒 （ COVID-19 ）起源的问题。
+消息人士在9月表示，雷诺正与拥有中共政府背景的中国华晨讨论结束商用车合资事业，藉以整顿旗下陷于困境的中共国业务。
 
-里根研究所的一份报告在讨论民意调查结果时说：“当被问及冠状病毒是由在武汉实验室工作的科学家开发并意外泄露以及中共国政府对此撒谎的问题的时，近四分之三 （72%） 的美国人认为这是可能的，其中 42% 说它非常有可能，”
+双方的合作可以追溯到2017年，当时雷诺和华晨中国汽车控股有限公司在辽宁省会沈阳成立合资公司，特别是着手推动电动商用车的发展。
 
-在接受调查的共和党人中，86% 认为 COVID-19 可能是从武汉实验室泄露的。同时，61%的民主党和67%的独立党派人士也持相同观点。
+事实证明，中共国市场对一些外国汽车生产商来说是困难的–在中共病毒（新冠病毒）疫情之前销售就陷入了困境，而疫情更是对整个行业造成了打击。
 
-此外，所有三个团体中的大多数人都同意，如果中共政府被确定确实掩盖了病毒起源于武汉实验室，则应承担相应的后果。
+雷诺去年放弃了在中共国的主要乘用车业务，因为其与东风汽车的合资企业销售不佳。但雷诺正在与吉利控股集团进行新的尝试，在8月宣布双方建立创新型合作伙伴关系，最初将专注于中共国和韩国等核心快速市场开发混合动力汽车。
 
-里根研究所表示：“如果这一理论得到证实，76% 的美国人认为中共国应该向其他国家支付赔款作为惩罚，其中包括 82% 的共和党人和 72% 的民主党人和独立党派人士。”
+消息来源：[法国雷诺证实与华晨的中国合资公司进入重组阶段](https://cn.reuters.com/article/france-renault-china-brilliance-jv-1223-idCNKBS2J203E?il=0)
 
-而根据 6 月 4 日至 7 日对 2,200 名成年人进行的民意调查显示，只有 46% 的美国成年人认为 Covid -19起源于实验室泄漏。在那份报道中虽然高达 70% 的共和党人相信Covid -19起源于武汉病毒实验室。但只有百分32%的民主党人和41%的独立人士相信病毒起源于起源于武汉病毒实验室。
-
-短短的半年中，相信冠状病毒大流行源于中共国武汉的实验室的美国增加了1.5倍。现在绝大多数美国人认为冠状病毒大流行源于中共国武汉的实验室泄漏。然而中共政府随后对此撒谎，中共政府应该要承担相应的后果。截至至12月22日, 美国与新冠病毒相关的死亡人数达到81万。根据路透社的分析，美国的新冠死亡人数从60万升至70万用了111天。接下来的10万只用了73天。由于天气转冷，而且具有高度传染性的奥密克戎（Omicorn）变种正在迅速传播，美国正准备应对感染人数的激增。
-
-资料来源:
-
-[https://www.reaganfoundation.org/reagan-institute/centers/peace-through-strength/reagan-institute-national-defense-survey/](https://www.reaganfoundation.org/reagan-institute/centers/peace-through-strength/reagan-institute-national-defense-survey/)
-
-[https://www.forbes.com/sites/jackbrewster/2021/06/09/nearly-half-of-americans-believe-covid-19-leaked-from-chinese-lab-poll-finds/?sh=1b259da64315](https://www.forbes.com/sites/jackbrewster/2021/06/09/nearly-half-of-americans-believe-covid-19-leaked-from-chinese-lab-poll-finds/?sh=1b259da64315)
-
-[https://www.nationalreview.com/news/majority-of-americans-believe-covid-19-leaked-from-wuhan-lab-new-poll-finds/](https://www.nationalreview.com/news/majority-of-americans-believe-covid-19-leaked-from-wuhan-lab-new-poll-finds/)
-
-校对发布：MQ
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9C%80%E6%96%B0%E7%89%88%E6%A8%B1%E8%8A%B1%E7%BD%91%E5%9D%80.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

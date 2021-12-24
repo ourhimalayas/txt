@@ -2,32 +2,30 @@
 ---
 
 
-## 日本政府摒弃疫苗强制 敦促公民不要歧视未接种者
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1786036/)
+## 欧洲议会议员反对欧盟主席强制疫苗政策
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1786090/)
 
-作者：纽约香草山信息部 – 诺雅
+作者：东京樱花团 – 在远方
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1138.png)
 
-12月21日外媒消息，在中共病毒疫苗政策上，日本摒弃了其他西方国家一致采用的强制令，明确表示，只有在人们自愿和完全同意的情况下才进行疫苗接种，并告诉国民不要歧视未接种疫苗者。
+盖特12月21日消息，欧洲议员罗伯特-汝斯在议会公开质疑欧盟委员会主席冯德莱恩的强制疫苗政策。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/7-11.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/8-13.png)
 
-日本厚生劳动省的官网上清楚表示，尽管我们鼓励所有公民接种新冠疫苗，但这不是强制性的，也不是必须的。只有向民众提供信息并得到同意后才给予接种。请民众了解疫苗对传染病预防的效果，及副作用的风险后，自行决定。未经民众同意，不可施打任何疫苗。并强调，不要强迫工作场所或周围的人接种疫苗；即使某人没有接种疫苗，也不许出现歧视性待遇，如解雇，鼓励辞职或欺凌。首相官邸的网站上也有类似声明。
+汝斯认为，冯德莱恩强迫人们接种中共病毒疫苗的观点与其12月8日民主峰会上的表态相违背。如果冯德莱恩主张民主制度赋予人们言论、行为和选择的自由，那么强制疫苗政策恰恰在剥夺选择的自由，即剥夺民主。
+
+汝斯表示，过去6个月两针辉瑞疫苗对奥密克戎的抵御力为零，因此科学家不认同疫苗对健康的年轻人有保护作用，所以强制疫苗政策是不合情理且不透明的。汝斯称自己将捍卫公民权利，质疑并要求公开欧盟委员会与疫苗制造商之间的保密合同。
 
 参考链接：
 
-- [Japanese Government Tells Citizens: “Don’t Discriminate Against the Unvaccinated”](https://dailysceptic.org/2021/12/21/do-not-discriminate-against-the-unvaccinated-japanese-government-tells-citizens/)
-- [“Do Not Discriminate” Against the Unvaccinated, Japanese Government Tells Citizens](https://dailysceptic.org/2021/12/21/do-not-discriminate-against-the-unvaccinated-japanese-government-tells-citizens/)
-- [COVID-19 Vaccines](https://www.mhlw.go.jp/stf/covid-19/vaccine.html)
-- [新型コロナウイルスに関するQ&A（一般の方向け）](https://www.mhlw.go.jp/stf/seisakunitsuite/bunya/kenkou_iryou/dengue_fever_qa_00001.html#Q1-9)
-- [新型コロナワクチンの接種を望まない場合、受けなくてもよいですか](https://www.cov19-vaccine.mhlw.go.jp/qa/0053.html)
+- [https://gettr.com/post/pk7zcd2a3d](https://gettr.com/post/pk7zcd2a3d)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
 
-总编：Jack Li文阳
-编辑：Kathy文艺
+总编：Irene木木
+编辑：文徬
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

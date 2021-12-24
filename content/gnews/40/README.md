@@ -2,26 +2,42 @@
 ---
 
 
-## 中共以一国之力把张高丽的性侵犯罪变爱情故事
-` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/1785110/)
+## UK Data Shows Double and Triple Vaxxed Are Much More Likely to Become Infected by the Omicron Variant
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1785153/)
 
-新西兰伊甸农场Gnews组 财经G乐部 – 亚伦
+By MOS Education Team – Maverick
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%96%B0-4.png)
+According to the recent data released by the UK Office for National Statistics, people who are double and triple vaxxed are much more likely to be infected with the Omicron variant.
 
-12月22日GTV、Gettr大直播中郭文贵先生再次重申，彭帅事件是中央国家安全委员会紧急处理小组亲自出面解决的。由北京市国安局（人数上千人，相当于小半个安全部）安排紧急处理小组，及时地对微博等有关信息和链接进行封杀，对彭帅的父母和家人（包括表亲）采取全面控制措施。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/ezgif.com-gif-maker-2.jpg)图片来源Adrian DENNIS AFP
+The data is summarized by Daily Specific’s Will Jones. It shows that the double-vaxxed are 2.3 times more likely to be infected with the Omicron, and the triple vaxxed are 4.5 times more likely to be infected with this variant.
 
+The data also comes to the conclusion that the Omicron is “effective at evading vaccines”. Jones writes: “It does not tell us that vaccines are making things worse overall, only that they are making it much more likely that a vaccinated person is infected with Omicron than another variant”, and he also states “The fact that the triple-vaccinated are much more likely to be infected with the Omicron than the double vaccinated confirms this vaccine evading ability.”
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Capture1-24.jpg)
+Regardless of people’s opinion on the vaccine, these data completely demolish claims that the Omicron outbreak is a “pandemic of the unvaccinated”. Jones’s claim that NHS hospitals are being overwhelmed by the unvaccinated isn’t backed by any actual evidence.
 
-处理小组迅速向中共中央提出两条政治评估：第一、彭帅事件会对北京冬奥会产生剧烈影响，会被西方反华势力所利用，后果不堪想象；第二、彭帅说的是事实，而且很有可能还有一系列后续行动。
+Nonetheless, the UK Health Secretary blamed unvaccinated people for this new wave of pandemic and occupying many of the hospital beds, and condemned them for the damages they are doing to society.
 
-最后中央决定不惜一切代价、不考虑一切后果（可以随时要彭帅死），要把彭帅事件在北京冬奥会前安全平息。各部门启动了紧急制动机制，中共国安系统的牛人（一位少见姓的女同志）面对彭帅和其家人的时候说，“从今日起，你不是彭帅，你们也不是彭帅的父母，你们已经成为民族罪人，现在就是死一万次也无法平息对中国的伤害。” 跟随她的所谓四五个谈判专家，花费长达20多个小时跟彭帅及家人分别地”谈心“。
+Intelligence from Mr. Miles Guo and the Whistleblower Movement exposed almost a month ago (On the live broadcast on November 28th) that the Omicron variant will spread more ferociously among the vaccinated, and the more vaccinations a person gets, the more vulnerable he/she will be. While the American CDC has previously admitted that most of those who were infected with Omicron are “fully vaccinated”, this is further proof that the vaccine makes people more vulnerable to the virus. This has again overthrown the statements made by medical authorities in various Western countries who claim it is the unvaxxed who are causing the new wave of the pandemic.
 
-大体“谈心“内容就是彭帅被性侵的经历很理解，但党和国家利益更重要。这里关系到中共外交的巨大失利，国家和民族的伟大复兴，总之后果很严重。张高丽是党和国家领导人，张和彭代表了 14亿中国人的对外形象，不要毁灭所有运动员的前程。然后开始为彭帅检查身体，造成彭帅精神高度紧张，距离精神病仅差一步之遥。彭帅本身在过去11年一直服用治疗抑郁症的药物，外加多次堕胎导致也有妇科疾病。
+Sources: 
+1. [UK Data Shows Double and Triple Vaxxed Are Much More Likely to Become Infected by the Omicron Variant](https://gettr.com/post/pkdwzsa718)
+2. [UK Data Shows Double and Triple Vaxxed Are Much More Likely to Become Infected by the Omicron Variant](https://www.infowars.com/posts/tripled-vaxxed-4-5-times-more-likely-to-test-positive-for-omicron-than-unvaxxed/)
 
-最令人震惊的是，彭帅本人被接入玉泉山，直接面见了习近平、韩正和栗战书。他们表面上想听听彭帅对冬奥会的建议（向一位网球运动员咨询冰雪项目的建议），关切彭帅的身体状况，讲讲中国人曾经的屈辱历史，却一句不提事件核心张高丽。在玉泉山“谈心”后，要求彭帅以党和国家利益为重站出来澄清，并安排了5家世界级的媒体采访，接下来还有大量外国的媒体采访。
+Edited by: Hetangyuese
+Proofread by: Hetangyuese
+Posted by: Hetangyuese
 
-从党中央到体育界，和最高端的谈判专家轮番轰炸、恩威并用式的“谈心”，无外乎就是要以一国之力让彭帅承认性侵是自愿的，一切只是关乎哲学的爱情。彭帅的家人被明确告知，永远不可能出国，永远不可能有自由，只要不听党的话就是国家的千古罪人，并且马上开始审判。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-12-08-at-20.35.58-4.png](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-4.png)
 
-彭帅目前正处于严密的监控状态，最终一定是要被消失的，或以精神病自杀、车祸死、拍照死、躲猫猫死。因为彭帅事件，习近平也已下定决心当党需要的时候，曾任中国副总理的张高丽也会悄无声息地消失。
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%96%B0.png)
+
 
  
 

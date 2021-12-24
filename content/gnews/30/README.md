@@ -2,34 +2,40 @@
 ---
 
 
-## 美国政府与莫得纳公司争夺新冠疫苗的专利权
-` 喜国公民` [轉載自GNews](https://gnews.org/zh-hans/1785661/)
+## 视频| VICE采访想将爆料革命定为邪教
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1785844/)
 
-By：喜国公民
-视频来自网络
-美国国家卫生研究院和新冠疫苗制造商莫得纳之间就新冠疫苗专利权进行了长达数月的一场法律纠纷，最近突然出现在公众视野中。莫得纳提出与政府分享其新冠疫苗专利的所有权。
+## 摘自2021.12.22郭先生大直播
 
-同时，[一份长达](https://www.documentcloud.org/documents/6935295-NIH-Moderna-Confidential-Agreements)[153页的莫得纳和美国政府之间的保密协议](https://www.documentcloud.org/documents/6935295-NIH-Moderna-Confidential-Agreements)，也揭示出美国政府是莫得纳新冠疫苗的主要资助者。
-
-在2015年，美国卫生研究院管辖的美国国家过敏和传染病研究所，与制药商莫得纳签订了合作开发研究新冠疫苗的协议。该协议导致了一笔未公开的资金和研究援助。
-
-此外，在新冠疫情爆发后，莫得纳还从生物医学高级研究与发展局获得了近10 亿美元的资金，该笔资金专门用于新冠疫苗的开发。研究人员计算出，美国政府总共为莫得纳的新冠疫苗的开发和商业化提供了近25 亿美元。
-
-值得注意的是，该份协议显示出美国政府以及莫得纳与巴里克博士合作。而巴里克博士与武汉病毒研究所的石正丽的团队在冠状病毒研究领域一直有着深度的合作。
-
-巴里克与石正丽曾在2015年发表了一篇题为“[显示了感染人类的潜力的一个类似于](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC4797993/)[SARS的蝙蝠冠状病毒循环集群](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC4797993/)”。二人多年来一直从事新冠病毒功能增强试验方面的研究。
-
-全球范围的新冠病毒大流行爆发后，[巴里克等人公开诋毁任何提出实验室泄漏理论的人](https://gnews.org/zh-hans/1745295/)。他们极力掩盖实验室泄漏。甚至提出不要去武汉病毒研究所检查。其行为极为异常，不打自招。
-
-越来越多的人开始质疑新冠疫苗的有效性，认为只有追溯新冠病毒的来源，才能从根本上解决新冠大流行。
-
-消息来源：[Why Moderna won’t share rights to the COVID-19 vaccine with the government that paid for its development](https://theconversation.com/why-moderna-wont-share-rights-to-the-covid-19-vaccine-with-the-government-that-paid-for-its-development-172008)
-
-[The confidential agreement between NIH and Moderna](https://www.documentcloud.org/documents/6935295-NIH-Moderna-Confidential-Agreements)
-
-[A SARS-like cluster of circulating bat coronaviruses shows potential for human emergence](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC4797993/)
+制作：香草山香港部
 
 
+
+就在冬奥会全球都在反击的时候，大家你看到共产党来干什么？中国的习近平要保持高度集中统一，所有的媒体全部控制。据我掌握的情报，共产党说我们不惜一切代价。要在西方媒体上占领制高点，一定要想尽一切办法，消灭一切反对冬奥和杂音。第三个，共产党说，一定要让那些支持北京冬奥的人赶快站出来发声，兄弟姐妹们，你们查一查在过去的3个月，共产党给所有的各国免掉的债务多少钱？在未来的三、四十天，你看还有哪些国家被免除所谓债务。不会超过2个星期，一会你会看到很多国家表态支持北京冬奥。
+
+我可以今天告诉大家，没有一个，我直播之后，表态支持冬奥的，背后没有交易的，我敢负一切法律责任。那么你再看一看是多少媒体反对冬奥会的，甚至转换声音的。而且共产党做出决定，不惜一切代价要叫美国拜登总统政府，马上取消对中国追加的关税，一定会发生的。我今天第一个说，一定会发生的。
+
+所有今天这个伊萨贝拉这个造假的犯罪的直播，都是给美国取消对中国的关税铺底的，是这帮人搞得中美之间的仇恨，跟我们政府绝对没关系，拜登政府一定会取消关税。200多个美国运动员会出现在北京，歌颂北京，完美的冬奥。所以你要知道，媒体的力量有多大。这个一箭双雕的VICE采访，把我们消灭，把我们变成恐怖邪教、犯罪分子，让我们处在恐惧之中，把我们称为中美之间和中国海外华人所有威胁的替罪羊，然后让中美政府之间进行勾兑的时候，取消关税和中美人民贸易取消。记住我今天说的话，全世界没有人说，这是我今天说的，今天是2021年12月22号，郭文贵说的，中美之间会取消贸易关税。
+
+这一次的Vice、Isobel 杨，怀疑她是中共操控的结果，和PAG、TPG、单伟建有关的虚假、捏造、威胁的报道，是帮助北京拿得冬奥会和帮助美国和中共取消最高关税贸易，做的一场政治大宣传的一场行动。对我们个人和爆料革命灭共的所有人都造成了威胁，以后只要在全世界，只要反对共产党的都是邪教，只要是反对冬奥的，全部都是暴力分子，只要是对共产党任何的屠杀，新疆、西藏、香港和台湾的事件中，表示异声的，你都是暴力分子，支持川普的极端分子，造成了中美贸易的摩擦，这个报道之凶险、之邪恶，超出你的想像，然后给搞了一个政治冬奥会
+
+
+
+发稿：雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/M12.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
