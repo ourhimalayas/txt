@@ -2,33 +2,38 @@
 ---
 
 
-## 美路易斯安那州护士爆料：相较于新冠病毒，更多的孩子死于新冠疫苗
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1786076/)
+## 英特尔致信供应商 禁用新疆产品
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1786092/)
 
-翻译：坤哥
-校对：zzballack
-上传：无明逆流
+作者：纽约香草山文艺部 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-08-30-at-7.37.59-PM-3.png)
+12月21日，英特尔公司被发现在其官网致信供应商，禁止采购来自新疆地区的产品或服务。
 
-据《The COVID World》 12月23日报道：本月初，从业十七年的护士科莱特·马丁（Collette Martin）在路易斯安那州卫生和福利委员会（Health And Welfare Committee）的听证会上，谈到了她在新冠大流行期间所看到的医院情况。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/9-16.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1291.png)图片来源：原新闻
+这封信是该公司12月对供应商的最新要求，以简体中文、繁体中文、英语、日语等多种语言发布的。英特尔明确表示：禁止任何形式的贩卖人口或非自愿劳工行为，如强迫劳动、债务劳工、契约劳工或奴役。多个国家与地区的政府已对来自新疆地区的产品实行限制。因此，英特尔需要确保供应链中不使用任何来自新疆地区的劳工、采购产品或服务。
 
-科莱特说，她和她的同事们目睹了人们接种新冠疫苗后的“可怕”后果，但是她们对新冠疫苗的担忧却被忽视和驳回。
+据英特尔财报显示，中共国自2015年开始已是该公司第一大营收来源地。2020财年，来自中共国的营收为202.6亿美元。但英特尔坦言：公司在诚信和专业精神开展业务方面毫不妥协，期望所有供应商都能遵守责任商业联盟的行为准则。
 
-科莱特还说，像VAERS（Vaccine Adverse Event Reporting System）这样的疫苗伤害报告数据库很少被使用，以至于大多数医生和护士甚至不知道它的存在，更不用说如何提交报告。”我们的大多数护士、护士长和一些医生甚至不知道VAERS是什么。我曾与我们的首席医药经理（chief medicine managers）和其他护士谈过，为什么我们不向VAERS报告，但是最常见的回答是：’VAERS是什么？‘。“
+参考链接：
 
-这还不算最糟糕的，她接着说，没有一家医院提交任何关于新冠疫苗不良反应的数据，这意味着即使有人调查新冠疫苗造成的不良反应，也没有数据可查。”不仅仅是我工作的地方存在这种情况。我知道许多护士、朋友和路易斯安那州东南部的其他地方医院都是同样的说法。”
+- [不使用非自愿劳工？英特尔禁止供应链使用新疆产品](https://m.sohu.com/a/510583854_115831/?pvid=000115_3w_a)
+- [https://www.intel.com/content/www/us/en/supplier/governance/forms/documents/annual-supplier-letter-chinese-traditional.html](https://www.intel.com/content/www/us/en/supplier/governance/forms/documents/annual-supplier-letter-chinese-traditional.html)
 
-科莱特护士对新冠疫苗的潜在长期副作用的说法令人震惊。”我们看到的仅仅是新冠疫苗短期内的严重急性不良反应，对其导致的任何长期不良反应我们一无所知。比如是否会诱发癌症、自身免疫系统疾病、不孕不育等，我们一概不知。我们有可能因为惧怕死亡而牺牲了我们的孩子。孩子即使感染了新冠病毒，也有99%的存活率。”
 
-科莱特最后说，这些新冠疫苗的副作用被掩盖了，它被归咎于由新变种病毒引起。”截至目前，我们有更多的儿童死于新冠疫苗，而不是病毒本身。但是卫生部这时却出来说，新变种病毒引发的症状囊括了我们目前看到的所有疫苗副作用。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
 
-这让人抓狂，我不明白为什么更多的人没有看到这一点。我认为他们看到了，但他们害怕说出来，甚至更糟糕的是，他们害怕被解雇”。
+总编：Jack Li文阳
+编辑：飞虹
+校正/发稿：海阔天空1
 
-随着新冠疫苗副作用逐渐地大规模地爆发，很多国家的政府用所谓的病毒新变种来掩盖事实和逃避责任。最悲哀地是主流媒体集体失声，民众看不到真相。灾难接踵而来，民众如待宰的羔羊，被黑心的政客们玩弄于股掌之中。爆料革命犹如暗夜中一道光，撕下流氓政府虚伪的面纱，将真相曝光，引领全球民众大觉醒。
-
-原文来源：[Louisiana Nurse Blows the Whistle: “We Have Had More Children Die From The COVID Vaccine Than Of COVID Itself”](https://thecovidworld.com/nurse-blows-the-whistle-we-have-had-more-children-die-from-the-covid-vaccine-than-of-covid-itself/)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

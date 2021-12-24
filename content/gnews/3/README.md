@@ -2,28 +2,30 @@
 ---
 
 
-## 欧盟拟对中共国铝箔加征关税
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1786159/)
+## 港共政府移除“国殇之柱”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1786160/)
 
-作者：纽约香草山 – 侠肝义胆
+作者：东京樱花团 – 在远方
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1138.png)
 
-周三，欧盟在其官方刊物上表示，在发现中共国生产商受益于过度和不公平的补贴后，欧盟决定对来自中共国的铝箔征收额外关税，将特定薄等级铝转炉箔的关税范围调整为 8.6% 至 18.2%，并于周四正式生效。这是在现有 6.0% 至 28.5% 的反倾销税基础上做的相关补充。
+台湾媒体消息，12月23日凌晨，在香港黑警严密的安全警戒下，香港大学将已经矗立了24年之久的“国殇之柱”雕塑移除。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture7-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/6-45.jpg)
 
-据悉，在收到来自意大利和德国等六家生产商的投诉后，欧盟委员会进行了相关调查，称中共将铝箔列为重点行业，采取优惠融资、免税，和政府以低于市场价格提供土地使用权和电力等补贴形式，干预市场的自由发展。
+据悉，“国殇之柱”描绘了50副极度痛苦的面孔，以及相互堆叠、惨遭酷刑的尸体，以纪念1989年“六四”事件中，在天安门广场被中共残忍杀害的民主抗议人士。该雕塑的创作者高志活将这座8米高、两顿重的铜铸雕像，永久出借给香港支联会。自1997年以来，这座雕像一直屹立在香港大学校园内。
+
+自去年港版《国安法》强行实施，今年支联会被迫解散后，港共政府要求港大移除此雕像，香港也因此失去了这个纪念“八九六四”国殇日的地方。
 
 参考链接：
 
-- [EU to impose extra tariffs on China aluminium foil over subsidies](https://www.reuters.com/markets/commodities/eu-impose-extra-tariffs-china-aluminium-foil-over-subsidies-2021-12-22/)
+- [屹立24年已成歷史 香港大學證實拆除國殤之柱](https://cn.rti.org.tw/news/view/id/2120189)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
 
-总编：飞虹
-编辑：雪梨
+总编：Irene木木
+编辑：飞虹
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

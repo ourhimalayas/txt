@@ -2,24 +2,41 @@
 ---
 
 
-## 【中日财经爆】由于能源价格上涨，日本11月CPI涨幅明显
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1786101/)
+## 一周中共病毒及疫苗伤害等信息汇总
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1786157/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1294.png)[图片来源](https://news.yahoo.co.jp/articles/40497791eca44750022f8ef50b62f84db60e9eb1#:~:text=%EF)
-据《读卖新闻》网站12月24日报道，日本总务省11月24日公布了11月消费者价格指数，不包括新鲜食品的11月消费者价格指数比上年同期上升0.5%。这是连续第三个月该指数为正值。并且从10月份的0.1%明显扩大。这一增长反映了由于油价上涨和日元疲软而导致的汽油和其他能源相关项目的价格上涨，涨幅是一年零九个月以来最大的一次。
+作者：Zion文恩
 
-整体能源价格上涨15.6%，远高于10月份11.3%。自2008年8月油价飙升至17.0%以来的第一次。这一增长是13年零3个月以来的最大增幅。在能源产品中，汽油和煤油的价格分别上涨27.1%和36.2%。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1138.png)
 
-另一方面，由于从今年春天开始推出了一系列更便宜的资费计划，移动电话通信费用下降了53.6%。因此，如果将新鲜食品和能源排除在总数之外，消费价格下降了0.6%。
+2021年12月14日至21日，除中共国外，全球累计确诊中共病毒四百七十九万余例，同比上周增长百分之9.36；本周累计死亡四万七千九百零五例，同比上周下降百分之2.46。自疫情爆发以来，中共掩盖真相，其数据毫无可信度。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/10-11.png)
+一周内，全球累计接种62.4亿剂疫苗，同比上周增长百分之2.88；全球疫苗接种趋于稳定，未因奥米克戎毒株的爆发而显著上升。
 
-据农林中金综合研究所的首席研究员南武志说：”目前，能源价格的急剧上升是显著的，与欧洲和美国的通货膨胀不同，后者是由需求快速增长引起的。对消费者来说，这非常不好，因为日常生活用品会变得更加昂贵。
+据世界卫生组织表示，目前，已在全球89个国家发现奥米克戎变种病毒。在欧洲，奥米克戎毒株的传染趋势有所减缓，而北美地区流行趋势正逐步扩大。值得注意的是，在已经建立“群体免疫”的地区，奥米克戎仍有很高的传染率。
 
-信息源：[１１月の消費者物価指数、０・５％上昇と大きく拡大…昨年２月以来の上昇幅](https://news.yahoo.co.jp/articles/40497791eca44750022f8ef50b62f84db60e9eb1#:~:text=%EF)
+尽管如此，各国政府仍在推行激进的强制疫苗政策。与此同时，辉瑞和莫德纳两家疫苗厂商继续鼓吹加强针。然而，初步的研究表明，接种疫苗加强针后，人体抵御奥米克戎毒株的能力已普遍下降。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+本栏目将在每周四持续推出全球疫情、疫苗灾难的每周汇总信息，敬请关注。
+
+参考链接：
+
+- [COVID-19 vaccine doses administered](https://ourworldindata.org/grapher/cumulative-covid-vaccinations?time=2021-12-14..2021-12-21&amp;country=IND~RUS~USA~JPN~ISR~Asia~Africa~World+excl.+China~Europe)
+- [Weekly confirmed COVID-19 cases](https://ourworldindata.org/grapher/weekly-covid-cases?tab=chart&amp;time=2021-12-14..latest&amp;country=USA~IND~JPN~ISR~BRA~KOR~South+America~Africa~Asia+excl.+China~World+excl.+China)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
+
+编辑：雪梨
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

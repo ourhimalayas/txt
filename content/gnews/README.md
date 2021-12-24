@@ -15,71 +15,71 @@
 
 ---
 
-### [网信办打击流量造假黑公关和网络水军](/content/gnews/1/README.md)
+### [中共倾一国之力收买、封杀爆料革命的真实数据](/content/gnews/1/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [港共政府移除“国殇之柱”](/content/gnews/2/README.md)
+### [网信办打击流量造假黑公关和网络水军](/content/gnews/2/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [港共政府移除“国殇之柱”](/content/gnews/3/README.md)
  ` GTV新闻访谈`
 
-### [欧盟拟对中共国铝箔加征关税](/content/gnews/3/README.md)
+### [欧盟拟对中共国铝箔加征关税](/content/gnews/4/README.md)
  ` GTV新闻访谈`
 
-### [加入欧美抵制冬奥，日本不派官员参加](/content/gnews/4/README.md)
+### [美25州就学前教育者疫苗强制令起诉拜登政府](/content/gnews/5/README.md)
+ ` GTV新闻访谈`
+
+### [一周中共病毒及疫苗伤害等信息汇总](/content/gnews/6/README.md)
+ ` GTV新闻访谈`
+
+### [加入欧美抵制冬奥，日本不派官员参加](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [墙内噤声墙外漂白，彭帅事件继续暴露中共假恶丑](/content/gnews/5/README.md)
+### [墙内噤声墙外漂白，彭帅事件继续暴露中共假恶丑](/content/gnews/8/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【中日财经爆】由于能源价格上涨，日本11月CPI涨幅明显](/content/gnews/6/README.md)
+### [【中日财经爆】由于能源价格上涨，日本11月CPI涨幅明显](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [Nicole 揭露Isobel Yeung 的谎言](/content/gnews/7/README.md)
+### [Nicole 揭露Isobel Yeung 的谎言](/content/gnews/10/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [【中日财经爆】日本政府批准了有史以来最大的财政预算案](/content/gnews/8/README.md)
+### [【中日财经爆】日本政府批准了有史以来最大的财政预算案](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [英特尔致信供应商 禁用新疆产品](/content/gnews/9/README.md)
+### [英特尔致信供应商 禁用新疆产品](/content/gnews/12/README.md)
  ` GTV新闻访谈`
 
-### [哈佛教授隐瞒参与中共“千人计划”被定罪](/content/gnews/10/README.md)
+### [哈佛教授隐瞒参与中共“千人计划”被定罪](/content/gnews/13/README.md)
  ` GTV新闻访谈`
 
-### [欧洲议会议员反对欧盟主席强制疫苗政策](/content/gnews/11/README.md)
+### [欧洲议会议员反对欧盟主席强制疫苗政策](/content/gnews/14/README.md)
  ` GTV新闻访谈`
 
-### [美路易斯安那州护士爆料：相较于新冠病毒，更多的孩子死于新冠疫苗](/content/gnews/12/README.md)
+### [美路易斯安那州护士爆料：相较于新冠病毒，更多的孩子死于新冠疫苗](/content/gnews/15/README.md)
  ` 首尔天池农场`
 
-### [拜登总统签署法案，全面禁购新疆产品](/content/gnews/13/README.md)
+### [拜登总统签署法案，全面禁购新疆产品](/content/gnews/16/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2021年12月23日郭先生盖特 — 视频盖特1「9分13秒」](/content/gnews/14/README.md)
+### [2021年12月23日郭先生盖特 — 视频盖特1「9分13秒」](/content/gnews/17/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [浅析“京沪粤浙等地要求艺人、主播自查自纠涉税问题”](/content/gnews/15/README.md)
+### [浅析“京沪粤浙等地要求艺人、主播自查自纠涉税问题”](/content/gnews/18/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [文·贵天成——文贵先生谈“北京冬奥会”（三）](/content/gnews/16/README.md)
+### [文·贵天成——文贵先生谈“北京冬奥会”（三）](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [日本政府摒弃疫苗强制 敦促公民不要歧视未接种者](/content/gnews/17/README.md)
+### [日本政府摒弃疫苗强制 敦促公民不要歧视未接种者](/content/gnews/20/README.md)
  ` GTV新闻访谈`
 
-### [日本在中国政府的威胁下批准了创纪录的国防预算](/content/gnews/18/README.md)
+### [日本在中国政府的威胁下批准了创纪录的国防预算](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [卿本佳人，缘何做贼？](/content/gnews/19/README.md)
+### [卿本佳人，缘何做贼？](/content/gnews/22/README.md)
  ` 首尔天池农场`
-
-### [美佛州州长德桑蒂斯：美国精英是让中共现今如此强大的首要原因](/content/gnews/20/README.md)
- ` 首尔天池农场`
-
-### [透过燕子杨贝贝聚焦中共的称霸大阴谋](/content/gnews/21/README.md)
- ` 丁过`
-
-### [加拿大警察辞职 认为疫苗强制等同于大屠杀](/content/gnews/22/README.md)
- ` GTV新闻访谈`
 
 ### [FDA发布更多关于辉瑞疫苗不良反应的数据](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
