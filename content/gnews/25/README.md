@@ -2,62 +2,39 @@
 ---
 
 
-## 加利福尼亚学区抗拒疫苗强制令
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1784582/)
+## 辉瑞撒谎，人死了？公司自有疫苗试验数据显示危害显着
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1784669/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+作者：Tamara Ugolini
+翻译：Himasally
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/12/N-4.jpg)majorgrossprofit.com
-反抗拜登政府的疫苗强制令仍在各行各业、各地蔓延，左州加利福尼亚的巴斯蒂安（Bastian）学区，无视极左州长纽森（Newsom）的命令，宣布他们不会对学生或教职员工执行强制疫苗令。
 
-《门道专家》12月22日晚间发表文章，题目是，“‘公共卫生令不是法律’——加利福尼亚学区无视纽森，宣布他们不会对学生或教职员工执行强制疫苗令”。
 
-全文如下：
+来自加拿大新冠护理联盟 (CCCA) 的一组审查人员，该联盟由 500 多名独立的加拿大医生、科学家、研究人员和健康从业人员组成，他们深入研究了辉瑞为期六个月的临床试验，他们声称注射弊大于利。
 
-教育机构——特别是在加利福尼亚州的巴斯蒂安地区——罕见地表现出了坚韧，一个学区正在全力反对该州激进州长施加的医疗暴政，强调它将无视对学生和教职员工的疫苗强制令。
+完整的40 分钟视频演示包括重合的 PDF 幻灯片，并展示了辉瑞公司歪曲数据以掩盖与试验中的安慰剂组相比，他们的新冠注射剂导致患病和死亡风险增加的事实的证据。他们使用了误导性的人口统计数据，没有跟踪生物标志物，甚至在试验开始仅两个月后就对参与者进行了脱离！
 
-在家长和社区成员对加文·纽森（Gavin Newsom）10月份宣布所有符合条件的学生都必须为即将到来的春季学期接种疫苗表示强烈反对后，“奥克代尔联合统一学区”（the Oakdale Joint Unified School District）以压倒性多数通过了一项决议，表示该学区将不遵守州长的独裁强制令，并将向州官员请愿，要求将该行政令降级为一项建议。
+在这份报告中，我强调了 CCCA 发现的一些差异，并采访了成员迪安娜.麦克劳德，她是负责数据审查的五人之一。虽然她的主要重点是肿瘤学研究，但她还拥有免疫学预科课程，并且在临床研究以及药品营销和销售方面经验丰富。迪安娜还是 万花筒战略公司的创始人，该公司进行肿瘤学研究和分析，权衡证据以确定新疗法的安全性和有效性。
 
-有时，只需简单地说一声“不”，尤其是当问题与任何法律无关时——拒绝遵守武断、不科学的公共卫生令不构成犯罪。
+我们讨论了辉瑞自己数据显示的内容，以及这一重要的危害证据是如何通过加拿大卫生部的审查人员的。
 
-学校董事会以4票对1票通过了这项措施，他们称之为“绝对必要”，因为这项措施使家长能够自由地就孩子的健康作出自己的明智决定。
+来源：https://www.rebelnews.com/pfizer\_lied\_people\_died\_companys\_own\_vaccine\_trial\_data\_shows\_significant\_harm
 
-来自“奥克代尔联合统一学区”的公告：
+（文章仅代表作者个人观点）
 
-“董事会意识到中共病毒疫苗的安全性，许多家长担心，家长对健康决策的选择是绝对必要的。”
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-关于疫苗强制令本身，该决议澄清了学区不会因为他们的中共病毒疫苗接种状况与“拒绝雇佣”或“学生自身接受教育（的权利）”相关联。
+**关注我们**
 
-当然，激进的公共卫生官僚对该学区的公告并不满意，据“莫德斯托蜜蜂”（the Modesto Bee）组织称，加利福尼亚州教育部立即威胁要削减违反州长疫苗强制令的学校基于出勤率的资金。
+Discord 账号
 
-来自“莫德斯托蜜蜂”：
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-加利福尼亚州教育部发言人说，如果学生亲自上学但没有按照州的要求接种疫苗，各区将失去基于出勤率的资金。
+Gettr 账号
 
-州教育总监（State Superintendent）托尼·瑟蒙德（Tony Thurmond）尊重当地的控制措施，理解各区需要作出的艰难选择，以保持学校的开放和安全，并保持所有学生的学习。发言人斯科特·罗克（Scott Roark）通过电子邮件说，“然而，不遵守当前的免疫要求会有审计后果。”
-
-虽然削减经费的威胁是学校面临的一个可怕的前景，但是当你考虑到加利福尼亚的疫苗强制令已经被州的大部分地区推到2022秋季学期开始的时候，这种威胁就显得有些空洞了，包括州第三大区洛杉矶联合区。
-
-即使他们真地信守削减资金的承诺，他们至少在6个月内无法对该地区实施任何惩罚。
-
-“奥克代尔”的挑战远未结束，但从现在开始很多事情都会发生变化。
-
-简言之，如果更多的学校和机构只是简单地说不，而不是推迟强制令，那么州长就不能执行他的独裁令。
-
-理论上，这很容易。
-
-因为，再强调一次，公共卫生令不是法律，只有你和其他人都遵守，命令才能有效。
-
-2022年秋季学期还有很长的路要走，其他的每个学区都应该以“奥克代尔”的方式，坚决拒绝这种暴政。
-
-（原文完）
-
-的确，必须上升到这在实施暴政的意识，是民主国家的天敌，阴谋集团通过施打疫苗获得了经济利益，也在尝试控制人类的手段。如果他们得逞，他们会更加穷凶极恶，我们必须警觉。
-
-原文链接：
-
-[https://www.thegatewaypundit.com/2021/12/public-health-orders-not-laws-california-school-district-defies-newsom-announces-will-simply-not-enforce-vaccine-mandate-students-staff/](https://www.thegatewaypundit.com/2021/12/public-health-orders-not-laws-california-school-district-defies-newsom-announces-will-simply-not-enforce-vaccine-mandate-students-staff/)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
