@@ -2,32 +2,77 @@
 ---
 
 
-## 达扎克在中共病毒问题上有重大利益冲突
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1787602/)
+## 12/24/21 香港快讯 中大清晨移走民主女神像 岭大拆六四浮雕 涂去壁画
+` 英喜-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1787651/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-12月23日，据美国媒体报道称，顶级医学杂志《柳叶刀》的编辑理查德·霍顿承认，彼得·达扎克在中共病毒问题上存在着“重大的”“令人遗憾的”利益冲突，且这些冲突导致他在大流行初始时没有及时披露该病毒的相关信息。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/截屏2021-12-24-下午11.56.06.png)
-资料显示，2020年2月19日，彼得·达扎克联合了20多位科学家在《柳叶刀》杂志上发表文章，斥责中共病毒实验室起源的说法是阴谋论。这篇文章也扼杀了世界对中共病毒起源的调查，导致病毒的溯源工作至今尚无任何进展。同时，相关新闻机构和立法者依靠这种所谓的“权威”认定，打击了中共病毒的起源真相——即该病毒出自福奇资助的中共武汉病毒实验室。
+**搜集****/****整理：卡西欧**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1224fenmian.jpg)
+封面素材：立场新闻
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-24-at-10.54.45-AM.png)
+**1.****【抹走六四记亿】中大清晨移走民主女神像****   ****岭大拆六四浮雕****   ****涂去壁画**
 
-报道提及，在面对“科学和技术特别委员会”中英国议员的质询时，霍顿博士承认了上述观点。而霍顿博士的这一指认也使得达扎克及一帮科学家在去年2月发布的声明沦为废纸。据了解，早在今年6月22日，《柳叶刀》就已经更新了冠状病毒委员会的资料，当中，与石正丽合作的生态健康联盟主席彼得·达扎克被委员会以回避为由除名。
+[据【立场新闻】12月24日讯，港大移走竖立校园内逾20年的「国殇之柱」后，分别位于中文大学及岭南大学的「新民主女神像」及「六四浮雕」今日（24 日）同样遭拆走。](https://www.thestandnews.com/politics/中大民主女神像清晨被移走-嶺大學生編委校內六四浮雕被拆)
 
-参考链接：[Lancet Editor Admits Peter Daszak Has ‘Significant, Regrettable’ Conflicts Of Interest.](https://thenationalpulse.com/news/lancet-editor-admits-daszak-had-significant-conflict-of-interest/)
+[香港中文大学今早发声明指出，今晨从大学站广场移走一个「未经许可摆放的雕像」，中大指出，从未准许该雕像于校园展示，亦没有任何组织为该雕像的维修及管理承担责任。曾参与安排雕像于校园展示的两个组织支联会及中大学生会现已解散或无实际运作，大学作为校园管理者，经内部评估后决定移走该雕像。](https://www.thestandnews.com/politics/中大民主女神像清晨被移走-嶺大學生編委校內六四浮雕被拆)
 
-![This image has an empty alt attribute; its file name is 12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/12%E6%9C%88%E5%B0%8F%E5%9B%BE.jpg)
+[香港民主女神像，又称新民主女神像，是仿 1989 年天安门事件民主女神所制的民主女神像，身高6.4米，铜制，由陈维明所雕。学生会表示谴责、失望和遗憾。](https://www.thestandnews.com/politics/中大民主女神像清晨被移走-嶺大學生編委校內六四浮雕被拆)
 
-总编：文真
-编辑：Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
+[另外，岭南大学梁銶锯楼外、同样由雕塑家陈维明创作的六四浮雕，今早被移走。在岭大校内民主女神像壁画同样被涂去。](https://www.thestandnews.com/politics/中大民主女神像清晨被移走-嶺大學生編委校內六四浮雕被拆)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[岭大发言人表示，大学最近重新检视及评估校园内可能构成法律或安全风险的物品，为保障大学社群的整体利益，相关物品已被清除或移除，并妥为储存。](https://www.thestandnews.com/politics/中大民主女神像清晨被移走-嶺大學生編委校內六四浮雕被拆)
+
+[新民主女神像及六四浮雕的作者陈维明表示，对事件非常遗憾，批评两间大学事前没有通知自己，会咨询律师意见采取进一步行动，包括起诉。](https://www.thestandnews.com/politics/中大民主女神像清晨被移走-嶺大學生編委校內六四浮雕被拆)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-24-at-10.55.00-AM.png)
+**2. ****城大学生会：收校方口头警告****   ****要求移走民女****   ****理大民女正复修****   ****学生会原打算重新展出**
+
+[据【立场新闻】12月24日讯，继港大移走「国殇之柱」后，中文大学及岭南大学今日（24日）清晨亦分别移除放置校园内的民主女神像和六四浮雕。城市大学校内今日仍展出其民主女神像，但城市大学生会署理会长谢民熹今日向《立场》表示，已收到校方口头警告，称摆放民主女神像可能违反《国安法》，加上批准摆放的文件已过期，故要求学生会自行搬走女神像。](https://www.thestandnews.com/politics/城大學生會收校方口頭警告-要求移走民女-理大民女正復修-學生會原打算重新展出)
+
+[理大的民主女神像，在今年 10 月因出现裂痕，由学生会运走修补，学生会指原打算重新展出，但会长胡伟权今日接受查询时称，情况变得复杂，须考虑重新展出后果。](https://www.thestandnews.com/politics/城大學生會收校方口頭警告-要求移走民女-理大民女正復修-學生會原打算重新展出)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-24-at-10.55.10-AM.png)
+**3. ****林卓廷被控披露游乃强受查****   ****控方：与****721****不能混为一谈　辩方：披露刺中****721****最丑陋环节**
+
+[据【立场新闻】12月24日讯，民主党前立法会议员林卓廷因披露在元朗 7.21 事件中负责调查案件的现任新界北总区刑事部重案组警司游乃强，被廉署调查有否行为失当。林及后被指披露游因受贿被查，他否认 3 项「披露调查人身份」罪受审，控辩双方今（24 日）在东区裁判法院作结案陈词。控方指，虽认同 721 事件对公众安全有严重性，但与林披露游受查「不能混为一谈」。辩方反驳称，游因 721 事件受查仍可被调任查该案的警区，林的披露是「剌中了事件核心，是 721 事件中最丑陋的一个环节」，基于公众利益，即使违例亦有合理辩解。](https://www.thestandnews.com/court/林卓廷被控披露游乃強受查-控方與-721-不能混為一談-辯方披露刺中-721-最醜陋環節)
+
+[案件押后至 2022 年 1 月 26 日裁决，期间林卓廷因他案须还押。散庭后，林卓廷返回羁留室前，有旁听人士向他挥手及高呼「加油」、「圣诞快乐」，林大呼回应：「圣诞快乐、平安健康！」](https://www.thestandnews.com/court/林卓廷被控披露游乃強受查-控方與-721-不能混為一談-辯方披露刺中-721-最醜陋環節)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-24-at-10.55.19-AM.png)
+**4. ****澳门一名前高官涉嫌受贿****   ****移交检察院跟进**
+
+[据【香港电台】12月24日讯，澳门廉政公署再揭发有前高官涉嫌受贿并长期潜逃内地，已由内地公安协助截获，将透过司警局移交廉署跟进调查。澳广视报道，涉案高官是土地工务运输局前局长李灿烽。](https://news.rthk.hk/rthk/ch/component/k2/1625851-20211224.htm?spTabChangeable=0)
+
+[廉署新闻稿无点名前高官的姓名，只透露在调查一宗贪污贿赂案时，揭发土地工务运输局前领导涉嫌受贿，他亦涉嫌收取另一名商人的巨额利益，在土地使用期即将过期前，绕过程序加速验收工程和发出使用准照。又在审批一宗土地合并发展申请时，要求下属撰写有利发展商的意见，成功批出申请，令发展商得以高价出售土地赚出巨额利润。](https://news.rthk.hk/rthk/ch/component/k2/1625851-20211224.htm?spTabChangeable=0)
+
+[澳门廉署表示，会以受贿行贿作不法行为、清洗黑钱和伪造文件罪，将案中涉案人士移交检察院跟进。](https://news.rthk.hk/rthk/ch/component/k2/1625851-20211224.htm?spTabChangeable=0)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-24-at-10.55.29-AM.png)
+**5. ****长实近****43****亿美元出售飞机租赁业务**
+
+[据【香港电台】12月24日讯，长实集团计划出售飞机租赁业务，包括持有的125架飞机，总代价42.81亿美元，相当于331.8亿港元。](https://news.rthk.hk/rthk/ch/component/k2/1625772-20211224.htm)
+
+[集团表示，疫情导致飞机租赁行业转变，风险与回报变得不稳定及难以预测，行业内为减轻波动而出现更多整合及并购活动。集团认为交易是疫情中退出飞机租赁行业并加强战略重点的时机，预计交易将产生约1.7亿美元利润。](https://news.rthk.hk/rthk/ch/component/k2/1625772-20211224.htm)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-24-at-10.55.40-AM.png)
+**6. ****海航机场板块实际控制权利正式移交**
+
+[据【Now新闻台】12月24日讯，海航集团正式移交机场业务实际控制权利。](https://news.now.com/home/finance/player?newsId=461061)
+
+[海航表示，机场业务实际控制权利正式移交至战略投资者海南省发展控股。集团又指，破产重整计划执行工作有序及如期推进，而集团风险处置工作已进入最后阶段。](https://news.now.com/home/finance/player?newsId=461061)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-24-at-10.55.48-AM.png)
+**7. ****中移****A****股引入国寿、京东等****19****战投**
+
+[据【Now新闻台】12月24日讯，中国移动A股上市战略投资者名单出炉。](https://news.now.com/home/finance/player?newsId=461062)
+
+[中移动A股上市，引入19家战略投资者，包括中国人寿、中国人民保险及太平人寿等大型保险公司。至于京东集团、一汽集团、集成电路基金及中国社保基金等亦于名单内，19家战略投资者合共认购4.22亿股，涉及243亿元人民币。](https://news.now.com/home/finance/player?newsId=461062)
+
+[中移动A股发行价每股57.58元人民币，预期集资最多560亿元人民币，有望成为A股逾11年以来，最大型招股上市活动。](https://news.now.com/home/finance/player?newsId=461062)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-24-at-10.55.59-AM.png)
+**8. ****汇控以****4.25****亿美元购印度基金公司****LTIM**
+
+[据【Now新闻台】12月24日讯，汇丰控股以逾4亿美元，收购一间印度基金公司。](https://news.now.com/home/finance/player?newsId=461016)
+
+[汇控旗下全资附属与印度金融服务公司L&T金融控股签订协议，全购L&T金融控股的附属基金公司LTIM，作价4亿2500万美元，折合港币约33亿元，收购仍有待监管机构批准。资金将由汇控内部资源支付，预料会令普通股权一级资本充足率下降约5点子，并可即时提供盈利。](https://news.now.com/home/finance/player?newsId=461016)
+
+[截至9月底，LTIM管理的资产108亿美元，截至今年3月底的年度，税前盈利2500万美元。](https://news.now.com/home/finance/player?newsId=461016)
+
+校对 / 封面合成：文粤 / 发布：流光飞舞
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

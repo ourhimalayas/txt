@@ -2,41 +2,63 @@
 ---
 
 
-## 阿曼马斯喀特俱乐部足球运动员突发倒地身亡
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1787141/)
+## 全球和澳洲疫情疫苗统计信息更新（2021年 12月24日）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1787151/)
 
-作者 台湾宝岛农场 Y.M.O
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-400.jpeg)
-北京时间12月23日晚间,亚洲足坛传来噩耗,马斯咯特俱乐部后卫哈立德·拉卡迪不幸去世,年仅29岁。拉卡迪身高体壮,很少受伤,身体也一直非常健康,他的去世也让人感到意外和震惊。
+**整理：枳实**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-300.png)图片：雅典娜农场设计组 精灵蓝
+**一，全球疫情基本数据**
 
-这起意外发生在12月22日阿曼足球联赛第6轮的比赛前,马斯喀特主场对阵苏维克。赛前，两队的球员都在进行着例行的热身，一切看起来都相当正常。突然，拉卡迪毫无征兆径直倒下失去了意识。意识到了情况的危急队医赶紧进场，但拉卡迪已经失去了呼吸和心跳。守候在球场内的救护车拉着拉卡迪奔向医院，两队的球员都停止了热身，等待着拉卡迪的消息。虽然一切的急救措施和手段都相当及时，但仍然无法挽回拉卡迪的生命。
+感染总数：2.78亿（日新增 97.1万）
+死亡总数：539万（日新增 9192人）
+每万人感染人数：351.9672人
 
-得知这一噩耗,球队的工作人员直接瘫软在地,痛哭不止。当值主裁判决定本场比赛延期，他独自从场地中央走到了场外，泪流满面。在退场前，马斯喀特的球员围成一圈，仿佛拉卡迪也在身旁。赛后，有报道称拉卡迪的死因为心脏病发作。马斯喀特俱乐部也在Twitter和Instagram上发布了讣告，表示俱乐部董事会及其所有附属机构以虔诚的心向拉卡迪的家人表示深切的慰问。
+**二，全球“疫苗”毒针统计数据**
 
-也许因为事发突然以及笔者本人不熟悉阿拉伯语，目前在网上能找到和能看懂的信息有限。不过我想有一定常识的人都应该了解足球运动员死于心脏病发作的可能性本应该是0的。即使足球世界排名相对较低，但足球运动员的健康检查也比我们普通人要严密得多，除了骨折、肌肉、韧带和软组织的伤病防范最严密的应该就是心脏和呼吸系统了吧。也就是说最晚在本赛季开赛前完全可以检查出来相关病症。本着对俱乐部的信任，我们可以认为球员本人是没有心脏病史的，那就只能是某种外力让球员有了心脏病发作的可能。
+“疫苗”毒针注射总数：88.1亿
+完全“接种”：37.7亿人
+完全“接种”百分比：48.3%
+![](https://assets.gnews.org/wp-content/uploads/2021/12/2-77.png)图片来源：Our World in Data
+以上是整理数据时挖出来的一副澳洲，美国，英国三个国家疫苗接种每百人每日新增接种数据，比较可见，美国人在疫情进展的情况下，疫苗接种不升反降，而英国和澳洲人则继续踊跃接受毒针注射，英国人尤其积极。这其中的意义何在，值得深思。
 
-就现在能够查找到的数字来看，阿曼至少接种一剂中共病毒疫苗的人数占了总人口的61.1%，完整接种人数占了总人口的56.6%。在俱乐部发表的这条讣告推特的评论中目前唯一一条英文评论是这么写的，Unfortunately, there will be people blaming the vaccine for the episode even without knowing if the athlete was immunized. Rest in peace…去掉感情抒发的部分，这条评论讲的算是实话。结合上一段的相关常识，如果我们要找一个能够改变运动员身体健康的外力最有可能的无非就是中共病毒或者中共病毒疫苗。但一来在官方宣传里中共病毒是需要战胜的敌人，中共病毒疫苗是帮助战胜敌人的援军，二来接种中共病毒疫苗的人肯定比感染中共病毒的人多，所以就算是用赌博的心态看哪种可能性最大我想也只能选择中共病毒疫苗带来的副作用吧。
+**三，澳洲疫情和“疫苗”数据**
 
-不过由于推特世界对于中共病毒疫苗真相的封杀，并不能确定这位评论者的具体观点，也许他是用隐晦的文字来表述立场。但即使他是支持疫苗的人现在也意识到中共病毒疫苗正在被越来越多的人所质疑。目前维基百科停止了报告截至2021年10月在比赛中死亡的足球运动员人数，如果真的都是自然死亡那维基百科也不用害怕成这样，哈立德·拉卡迪的死就应该要被如实记录上去让大家都知道。
+感染总数：282，589（今日新增 9128人）
+死亡总数：2182人
+每万人感染人数：105.8863人
+“疫苗”毒针注射总数：42,075,916（今日新增192,049针）
+第二针“接种”：1874.7144万人
+第二针“接种”百分比：76.6%
+16岁以上人口接种至少一剂疫苗的比例：94.1%
+16岁以上人口接种至少两剂疫苗的比例：91.0%
 
-新闻链接
+**四，澳洲中共病毒“疫苗“副作用每周报告关键信息**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/3-51.png)图片来源：Our World in Data
+今日澳大利亚病例暴增九千余例，如上图所示，远超历史记录。考虑到澳洲16岁以上人口疫苗接种率已高达90.9%，所谓“疫苗”对疫情的作用如果不是火上浇油的话，至少也是毫无用处。昨天恰逢TGA每周疫苗副作用报告发布，报告中的数据虽然已经相当扭曲，可是仍然能从中看出这些毒针给澳洲人带来的明显伤害。
 
-[https://www.omanobserver.om/article/1111552/sports/football/muscat-player-mukhaled-al-raqadi-passes-away](https://www.omanobserver.om/article/1111552/sports/football/muscat-player-mukhaled-al-raqadi-passes-away)
+报告给TGA 的接种后疫苗死亡的案例已达719例（比上周增加14例）
+疑似心包炎：1991例 （比上周增加110例）
+疑似心肌炎：960例（比上周增加69例）
+胸痛已经被该报告列入18岁以下人群的常见疫苗副作用之首
+接种疫苗后发生的格林巴利综合征168例（比上周增加14例）。
 
+格林巴利综合征是一种神经元脱髓鞘疾病，它会导致全身瘫痪甚至呼吸困难，心律失常，通常需要重症监护病房抢救。在澳大利亚每年发病率仅340人，而现在中共病毒疫苗在澳洲推行不足一年竟然已经有168人在注射这种所谓“疫苗“后发生此病，本周与上周相比已经增加了14人，病例增加的速度为“疫苗”推广之前的2倍（年发病率340人，也就是说平均每天增加的病人数不足1人）
 
+数据来源：
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+[covidlive.com.au](https://covidlive.com.au/)
 
-> [#تعزية\_ومواساة](https://twitter.com/hashtag/%D8%AA%D8%B9%D8%B2%D9%8A%D8%A9_%D9%88%D9%85%D9%88%D8%A7%D8%B3%D8%A7%D8%A9?src=hash&amp;ref_src=twsrc%5Etfw)[#نادي\_مسقط\_الرياضي](https://twitter.com/hashtag/%D9%86%D8%A7%D8%AF%D9%8A_%D9%85%D8%B3%D9%82%D8%B7_%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/a7zYY4pjdD](https://t.co/a7zYY4pjdD)
-> — نادي مسقط الرياضي (@muscat\_club) [December 22, 2021](https://twitter.com/muscat_club/status/1473676151818178561?ref_src=twsrc%5Etfw)
+发布：去中心化Math
 
-
-
-* * *
-
-***更多资讯***
-[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
-[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
-[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
