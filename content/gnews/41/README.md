@@ -2,33 +2,30 @@
 ---
 
 
-## HBO Vice Isobel Yeung记者骗取美籍华人采访，影片被剪接编辑成暴徒
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1784279/)
+## 丹麦教授：人类会因为Omicron更快获得自然免疫，导致大流行更快地消失
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1784675/)
 
-12月20日Vice推出最新的预告，节目的采访记者名为伊莎贝尔·杨（Isobel Yeung），题为“与前中国房地产大亨郭文贵，探讨他的虚假资讯网路。”
-**HBO VICE Isobel Yeung采访恶意剪接、移花接木、断章取义的编辑**
-**在12月22日文贵大直播中，播放还原当时现场采访视频，证明HBO VICE Isobel Yeung采访视频后刻意剪辑采访片段，编辑出反对中共支持共和党的美籍华人是都是暴徒的印象，其中Isobel Yeung记者 在12月骗取美籍华人Nicole女士1月6日支持川普和平活动中的采访，采访的影片被剪接编辑成暴徒，**企图制造支持川普和支持共和党的美籍华人是支持阴谋论，暗示美籍华人冲进国会山，并且该记者没有证据的直接指称GTV、GNEWS利用媒体影响力传播谎言。
+撰稿：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screenshot-2021-12-23-at-22.46.58.png)
+图片来源：TV2
 
-**Isobel Yeung记者骗取美籍华人Nicole女士过程**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/CCPisobel-Scam-reporter.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/CCPisobel-Scam-reporter1.png)
-根据12月22日文贵大直播中Nicole女士表示：「我就想跟大家分享，这个Isobel真的在说谎，因为去年12月14号她是通过脸书联系我，她说想做一个纪录片，关于美国华人为什么会支持川普，她说看到很多资料显示美国华人为什么支持川普。」
+一些研究人员说， Omikron 的病程比 Delta 更温和。例如，苏格兰周三发布，11 月 1 日至 12 月 19 日期间有近 30,000 个 Omikron 病例和近 127,000 个 Delta 病例。根据这项尚未经过同行评审的研究，研究人员认为与 Delta 变体相比，Omikron 的入院风险降低了三分之二。来自苏格兰的研究似乎验证并确认了来自南非的数据。 来自南非威特沃特斯兰德大学和开普敦大学国家传染病研究所的研究涵盖了 10 月 1 日至 12 月 6 日期间的 161,328 例南非病例，根据该研究，与感染Delta的人相比，感染 Omikron 的人住院风险降低了 80%。
 
-Nicole：「这个不是我说的，是她给我的WhatsApp、脸书她自己写的，我都有凭证，有截屏，当时在12月14号，她跟我讲是VICE HBO，要做一个美国华人为什么支持川普的documentary，所以她是通过这个借口来找我的。她说想去采访华盛顿DC游行的美国华人，问我能不能告诉她我会不会去，或者有没有其他华人，这是她来找我的目的。我不知道她是谁，我说你以前采访报导是吗内容，她说她报导香港运动、还报导过新疆集中营，听起来，**她没有说任何关于郭先生的 (Isobel Yeung记者没有告知采访影片会编辑在”与前中国房地产大亨郭文贵，探讨他的虚假资讯网路”的影片)。**
+最近几周，传染性特别强的 Omikron 变种已经席卷丹麦，感染率创历史新高，随之而来的是新的限制。全世界都在关注丹麦，因为很少有国家像丹麦一样拥有如此出色的数字。
 
-Nicole：所以后来看到播出的节目，我就很震惊，不是做一个美国华人为什么支持川普的纪录片，怎么就变成了攻击郭文贵先生，我还问她来着，她收到短信后就跑了，不回答我的问题，**我说你作为职业媒体人你欺骗了我，你没有告诉我你采访的真实目的，这是她自己的截屏，白纸黑字，不是我自己说的，我希望Isobel杨贝贝，如果你今天坐在电视机前在看这个的话，我可以跟你公堂对薄，我们之间所有的对话我都有截屏，**你当时跟我讲说做关于一个郭文贵先生的纪录片，我是不会接受你的采访，因为你讲的是采访华盛顿DC和平集会的美国华人，我还今天有问她我说**为什么把1/6所有参与和平集会的人都说成是rioters, 就是一个暴力的暴动者，这些华人你是在污蔑、抹黑这些和平抗议的华人，他们是美国公民、宪法赋予的权力、和平的集会，你把所有的参加活动的和平履行自己宪法的美籍华人都说成自己是暴乱者。**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/PAG.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/TPG.jpg)
-Vice Media2017年从私募股权公司 TPG 资本获得了 4.5 亿美元的投资，这笔交易将使 Vice Media的估值约为 57 亿美元。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/c6-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/c7-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/12/c5-1.jpg)
-**中共海外BGY特务单伟健曾**带领TPG一举收购韩国第一银行和拿下深发展过手给平安成功套现，单伟健现已从TPG离开，转战到**PAG香港太盟投资集团，PAG背后正是中共海航王岐山，用一国之力量打击文贵先生，中共在美国对文贵先生的67个法律诉讼，背后都指向中共在美国的代理人吴征Bruno Wu，并和Elliot Briody、Steve Wynn、Jho Low刘特佐、美国那些大佬、Higginbotham和司法部的人，而这些都是中共长期在背后布局，这就是HBO Vice Isobel Yeung记者采访团队和中共策画，假借采访文贵先生后，恶意剪接、移花接木、断章取义的编辑成影片，塑造想要消灭中共的海外华人都是暴徒，目的就是要消灭文贵先生、爆料革命，把战友们都变成极端恐怖分子。**
+12月22号和23号，丹麦首都医院的传染病教授Jens Lundgren在接受丹麦TV2采访时说，有迹象表明 Omicron 变体“可能不像 Delta 那样具有引起肺炎的致病性。但现在下结论还为时过早。一路走来，我们只得到了一些碎片，在 1 月期间，我希望我们能更加明智地判断它是否更温和”。
 
-本文仅代表个人立场
-**祈祷万佛万神加持文贵先生与新中国联邦战友**
-台湾宝岛农场 撰文.发布:Amitofu 审核:Athena雅典娜
+现在开始有更多来自荷兰、美国、英国和丹麦的数据，根据Jens Lundgren的说法，这些国家具有数据基础设施，能够确定变体的特征并了解疾病在未接种疫苗者和接种疫苗者中的情况。
 
-- [2021年12月22日 文貴大直播-1:05分Nicole女士還原Isobel Yeung記者騙取採訪過程](https://gtv.org/video/id=61c324ccbcb7f101bb732568)
-- [2021.12.22 關於郭文貴先生接受HBO Vice採訪的背後真相](https://gtv.org/video/id=61c3bb8900f9a119180832eb)
-- [期待感受同时播出Vice艺术片和采访实录的震撼](https://gnews.org/zh-hans/1778386/)
+Jens Lundgren解释Omicron为什么可能比较温和的部分原因不一定是病毒本身导致的疾病比较温和，而是因为如果它影响到已经获得免疫的人（无论是通过感染还是接种疫苗，编者注），那么他们就有更好的能力来应对病毒感染。教授评估说，尽管丹麦的高感染率在短期内是造成了问题，但这也可能意味着我们可以迅速渡过感染浪潮。冠状病毒感染可以使身体在未来更好地应对病毒。如果它传播得如此之快，以至于许多人被感染，我们自然会在人群中获得更好的免疫力。
 
+尽管这种变体有可能使医疗保健系统崩溃，但也可能证明是冠状病毒大流行结束的开始。教授认为，冠状病毒不太可能发展出更具传染性的新变种了。实际上可能是病毒将自己推到了无法前进的角落。也就是说，它无法制造与 Omicron 相竞争的新变体，这种特别具有传染性的变种将会导致大流行更快地消失。
+
+来源：
+
+[https://nyheder.tv2.dk/samfund/2021-12-22-jens-lundgren-virus-kan-have-presset-sig-selv-op-i-et-hjoerne](https://nyheder.tv2.dk/samfund/2021-12-22-jens-lundgren-virus-kan-have-presset-sig-selv-op-i-et-hjoerne)
+
+[https://nyheder.tv2.dk/samfund/2021-12-23-nye-studier-viser-at-omikron-giver-faerre-indlaeggelser-men-det-viser-de-danske](https://nyheder.tv2.dk/samfund/2021-12-23-nye-studier-viser-at-omikron-giver-faerre-indlaeggelser-men-det-viser-de-danske)
 
  
 

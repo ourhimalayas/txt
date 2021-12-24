@@ -2,46 +2,26 @@
 ---
 
 
-## 国务卿安东尼·布林肯：中共国 和俄罗斯等国家在试图破坏国际体系
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1785766/)
+## 史蒂夫·班农：“对未注射疫苗的人的战争即将开始”
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1785879/)
 
-美国国务院： 国务卿安东尼·布林肯[@SecBlinken](https://twitter.com/SecBlinken)：在应对 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click)、气候变化和其他紧迫挑战方面，我们的基础更加稳固。[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 和俄罗斯等国家在试图破坏国际体系，而我们在与他们打交道时处于更有利的地缘政治地位。
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2021/12/图片1-121.png)
+图片来源：网络截图
 
+据零对冲12月23日报道，前川普白宫总战略师史蒂夫·班农本周二在他的《作战室》节目中说，对未接种疫苗者的战争只是刚刚开始。
 
+白宫向全国发出信息，要么接种加强针，要么死亡！每个谈话者都在不厌其烦地重复这个信息。政府强调这是未接种疫苗者的大流行病而且向人们灌输接种疫苗是一种爱国行为。
 
-> .[@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw): We’re on stronger footing when it comes to COVID, climate, and other urgent challenges. And we’re in a stronger geopolitical position to deal with countries like China and Russia, as they seek to undermine the international system. [pic.twitter.com/wsWtlaTJfL](https://t.co/wsWtlaTJfL)
-> — Department of State (@StateDept) [December 24, 2021](https://twitter.com/StateDept/status/1474167948524679174?ref_src=twsrc%5Etfw)
+尽管目前病毒的突破非常常见，疫苗效力已经崩溃，奥米克戎病毒基本上是一种普通的感冒，但不要指望这种‘归咎于未接种疫苗者’的宣传很快就会停止。
 
+班农本周二的《作战室大流行》节目中说，如果你不以一种极其荒谬的、生硬的的方式来阻止病毒，那么群体免疫就会降临到我们身上，这就是大规模的疫苗接种。
 
+“这确实是对未接种疫苗者的战争即将开始，我是说战争。”
 
-参议员泰德·克鲁兹: 大型科技公司在 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 面前卑躬屈膝. 实际上:“我们非常抱歉,我们甚至认为奴隶劳动可能是错误的!当然,我们会继续支持你们的野蛮集中营!!能够为共产主义压迫提供资金是一种真正的特权.” 【转推称:英特尔告诉供应商不要在新疆使用奴隶劳工生产的产品之后,又向 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 道歉认错】
+从美国各蓝营州的三针疫苗、四针疫苗和口罩强制令的病毒式传播来看，班农被证明是正确的，而且很可能中共病毒疫苗的强制令会一直到中期选举（以及需要为每个人准备邮寄选票，无论生死）。
 
-
-
-> Big Tech grovels before CCP. 
-> 
-> In effect: “We are SO very sorry we even suggested slave labor might be wrong! Of course, we’ll continue to support your barbaric concentration camps!! It’s a true privilege to help fund your communist oppression.” [https://t.co/kB2lF5fbio](https://t.co/kB2lF5fbio)
-> — Ted Cruz (@tedcruz) [December 24, 2021](https://twitter.com/tedcruz/status/1474186595444133896?ref_src=twsrc%5Etfw)
-
-
-
-参议员马可·卢比奥： 任何一家美国公司因为关注奴工问题而向 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 道歉都是荒谬的 但它恰恰是英特尔公司，一个许多人希望它成为美国唯一的国内半导体制造商，这令人震惊 【附BBC新闻报道：美科技公司英特尔在遭到强烈反对后向中共国道歉 （该公司向供应商发函要求排除新疆产品）】
-
-
-
-> US technology firm Intel apologises to China after letter backlash [https://t.co/TNJ3Qfvf22](https://t.co/TNJ3Qfvf22)
-> — BBC News (World) (@BBCWorld) [December 23, 2021](https://twitter.com/BBCWorld/status/1473999593729843205?ref_src=twsrc%5Etfw)
-
-
-
-众议员肯·巴克： 独裁在黑暗中蔓延。在夜幕的掩盖下，[#香港](https://twitter.com/hashtag/%E9%A6%99%E6%B8%AF?src=hashtag_click) 的 [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 傀儡政府拆除了一座 [#天安门大屠杀](https://twitter.com/hashtag/%E5%A4%A9%E5%AE%89%E9%97%A8%E5%A4%A7%E5%B1%A0%E6%9D%80?src=hashtag_click) 死难者的纪念碑。 【转华盛顿邮报，香港拆除纪念天安门广场大屠杀遇难者的耻辱柱】
-
-
-
-> Tyranny thrives in darkness. Under cover of night, Hong Kong’s puppet CCP government demolished a memorial to the victims of the Tiananmen Square massacre.[https://t.co/yc3eX23xn1](https://t.co/yc3eX23xn1)
-> — Rep. Ken Buck (@RepKenBuck) [December 23, 2021](https://twitter.com/RepKenBuck/status/1473829157238984706?ref_src=twsrc%5Etfw)
-
-
+新闻来源：[Steve Bannon: “War On The Unvaxx’d Is About To Commence”](https://www.zerohedge.com/covid-19/steve-bannon-war-unvaxxd-about-commence)
 
  
 

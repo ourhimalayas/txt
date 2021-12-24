@@ -2,167 +2,37 @@
 ---
 
 
-## 被病毒感染过的人，将来得癌症的几率超过50%
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1785741/)
+## VICE虚假报导是中共操纵的一场政治大宣传
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1785846/)
 
-[https://gtv.org/video/id=61c5300243ccb726a08a8064](https://gtv.org/video/id=61c5300243ccb726a08a8064)
+撰稿：香草山农场-雪梨
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-1.png)
+12月22日，郭文贵先生在大直播中震撼爆料，VICE对郭先生和爆料革命战友的虚假报导，是中共为成功举办北京冬奥会，与美国勾兑、取消对中共国加增关税所做的铺垫。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1276.png)
 
-**郭文贵
-Miles Guo**
 
-所有得过冠状病毒的兄弟姐妹们
-Todos los hermanos y hermanas que se han contagiado del COVID-19
+据郭先生情报，中共当局做出指示，控制所有西方媒体，占领制高点，不惜一切代价，推动北京冬奥会，消灭一切反对冬奥会的声音。中共将以免除债务为诱饵，迫使更多的国家站出来支持冬奥会。郭先生还郑重强调，此次直播之后，任何支持冬奥会的国家，都与中共达成了幕后交易。
 
-我在这里严正声明
-Declaro solemnemente por este medio
+此外，VICE的虚假报导，将爆料革命定义为邪教，让爆料革命成为中美之间所有威胁的替罪羊，为美国与中共勾兑、取消对中共国加征关税做铺垫。郭先生还表示，美国一定会取消加征关税，届时，200多位美国运动员也将出席北京冬奥会。如此一来，任何反对共产党的团体都会被认为是邪教组织，任何反冬奥会、对中共在新疆、西藏、香港的大屠杀和中共对台事件上有异见的人士，均会被视为暴力分子。
 
-在过去的大概一个多月
-Hace como un mes atrás
+VICE的此次虚假报导，实际上是中共消灭异议声音、大搞政治冬奥会的一场政治大宣传。
 
-我们跟国内的跑出来的科学家和病毒的知情者
-Hablamos con científicos internos y expertos informados del virus en China
 
-我们一再论证接触后
-Hemos argumentado repetidamente y después de haber contactado mutuamente
 
-我被授权今天向大家公告这个事情
-El día de hoy estoy autorizado a anunciar este asunto a todos
+链接：[12/22/2021 文贵直播](https://gettr.com/post/pkf5bbde41)
 
-第一个
-Primeo
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-5.png)
 
-你们所有得过病毒的人
-Todos ustedes los que han contraído el virus
+编辑：文特
 
-在未来的10年内
-En un futuro de 10 años
+校正/发稿：浪迹天涯
 
-也就3到10年内
-Dentro de 3 a 10 años
-
-几乎超过50%的概率会染上癌症
-Casi más del 50% contraerán cáncer
-
-最重要的是
-Lo más importante es
-
-就是这个刺突蛋白mRNA在你身体里边
-Quiere decir que estas espículas de glicoproteína ARNm que están en tu cuerpo
-只要没有100%被消除
-Si no se elimina el 100%
-
-（就会）在你身体造成两个地方是永远都是发癌的
-En dos partes de tu cuerpo estará ocasionando siempre cáncer
-
-一个是淋巴
-Una es en la linfa
-
-最可怕的是淋巴
-Lo más terrible es la linfa
-
-第二个就是你身体上的免疫力
-El segundo es la inmunidad de tu cuerpo
-
-由于它长时间的在内部的整个对细胞的改变
-Debido a sus cambios internos a largo plazo en las células
-
-你的血液很有可能要出问题
-Es probable que tu sangre tenga algún problema
-
-这两种病一定要听进去
-Y estas dos enfermedades deben escucharlo
-
-女性妇科最容易得病
-La ginecología es la que más fácil se enferma
-
-因为妇科是所有聚集病毒不能排除的地方
-Porque la ginecología es un lugar donde no se pueden descartar todos los virus
-
-（还有）男性前列腺
-(también) la próstata masculina
-
-你唯一的办法，现在看到
-La única forma, ahora vemos
-
-一定要吃青蒿素和伊维菌素
-Hay que tomar la Artemisinina y la Ivermectina
-而且是合理地吃
-Y hay que tomarlo razonablemente
-
-你别一天天吃完的 没有用的
-No termines de comerlo diariamente, no sirve
-
-你只要不100%清除掉（刺突蛋白）你解决了症状
-Si no lo eliminas al 100% (las espículas de glicoproteína), y resolver los síntomas
-
-你无法100%从身体清除（刺突蛋白）
-No podrás eliminar al 100% (las espículas de glicoproteína)
-
-它就有这种可能
-Tiene esta posibilidad
-
-而且超过50%可能
-Además, sobrepasa del 50%
-
-你一定要保持长时间中长时间身体检查
-Debe mantener un examen físico a largo plazo y a medio-largo plazo durante un tiempo
-
-每年都检查一次甚至两次
-Haga revisión una o incluso dos veces al año
-
-血液检查
-Examen de la sangre
-
-淋巴检查
-Examen de la linfa
-
-任何咱们所说的就是羟氯奎、锌
-Cualquiera que hablamos, sea Hidroxicloroquina, Zinc
-
-包括青蒿素
-Incluyendo la Artemisinina
-
-就是保健品青蒿素
-El producto de salud
-
-伊维菌素
-La Ivermectina
-
-一定要分期分段，根据症状去吃
-Tienen que separarlo en periodos y en segmentos, tomarlo de acuerdo al síntoma
-
-而且一定要会停
-Además, deben saber detener
-
-再一个吃这些药的时候一定要（该）补铁的补铁
-Al tomar estos medicamentos, debe tomar suplementos de hierro si es necesario
-
-特别要补维他命的补维他命
-Especialmente suplementos vitamínicos si es necesario
-
-说维他命和铁和这个相互地吃是最关键的
-Dicen que las vitaminas y el hierro, tomar ambos es lo más importante
-
-* * *
-
-日期：12/22/2021
-原视频标题：被病毒感染过的人，将来得癌症的几率超过50%
-Las personas que han sido infectadas por el virus tienen más del 50% de posibilidades de contraer cáncer en el futuro
-
-原视频日期：12/20/2021
-原视频网址：[https://gettr.com/post/pk5o457b7a](https://gettr.com/post/pk5o457b7a)
-任务编号：3299
-视频时间段：0:00-2:20
-西听校：洛杉矶盘古农场 – 小文萱
-翻译：洛杉矶盘古农场 – 霙霙（文霙）
-翻译终校：洛杉矶盘古农场 – 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 ：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，更多关注**
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
  
 

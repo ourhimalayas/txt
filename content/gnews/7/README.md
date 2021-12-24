@@ -2,21 +2,41 @@
 ---
 
 
-## 日本外相声称弄清楚驻日美军基地暴发新型疫情的原因
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1785945/)
+## 日本政府摒弃疫苗强制 敦促公民不要歧视未接种者
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1786036/)
 
-#### 撰稿：待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/12/5b095622fb97d5c832899efb5d2eaad.png)
-自12月15日以来，在冲绳县的美国海军陆战队基地汉森营地发生了232人感染新型冠状病毒的大规模疫情。 驻日美军曾多次爆发疫情，但这次的疫情却出乎意料地大。
+作者：纽约香草山信息部 – 诺雅
 
-日本外相林芳正24日在记者会上就美国海军陆战队汉森营地（冲绳县金镇等）中共病毒（新冠病毒）集群感染问题做如下说明：美方考虑到疫苗接种的进展，今年9月3日宣布了“驻日美军所有设施的美军士兵在出发时免于病毒检测”的决定。值得思考的是，既然这些士兵都已经接种过疫苗，为什么还会被感染呢？ 据称，目前已开始对这些士兵进行检测。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1138.png)
 
-根据日美联合委员会的协议，美军士兵将不接受日本机场检疫，因为美方将在抵达美军设施时执行检疫程序。 这与日本政府的边境措施不符，难免会受到驻日美军基地所在地政府的强烈反对。
+12月21日外媒消息，在中共病毒疫苗政策上，日本摒弃了其他西方国家一致采用的强制令，明确表示，只有在人们自愿和完全同意的情况下才进行疫苗接种，并告诉国民不要歧视未接种疫苗者。
 
-林芳正外相表示：我们将进一步加强日美之间的合作。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/7-11.png)
 
-[信息来源](https://news.yahoo.co.jp/articles/0e067ac76bfed49251858a6501036e6267ba5d43)
+日本厚生劳动省的官网上清楚表示，尽管我们鼓励所有公民接种新冠疫苗，但这不是强制性的，也不是必须的。只有向民众提供信息并得到同意后才给予接种。请民众了解疫苗对传染病预防的效果，及副作用的风险后，自行决定。未经民众同意，不可施打任何疫苗。并强调，不要强迫工作场所或周围的人接种疫苗；即使某人没有接种疫苗，也不许出现歧视性待遇，如解雇，鼓励辞职或欺凌。首相官邸的网站上也有类似声明。
 
+参考链接：
+
+- [Japanese Government Tells Citizens: “Don’t Discriminate Against the Unvaccinated”](https://dailysceptic.org/2021/12/21/do-not-discriminate-against-the-unvaccinated-japanese-government-tells-citizens/)
+- [“Do Not Discriminate” Against the Unvaccinated, Japanese Government Tells Citizens](https://dailysceptic.org/2021/12/21/do-not-discriminate-against-the-unvaccinated-japanese-government-tells-citizens/)
+- [COVID-19 Vaccines](https://www.mhlw.go.jp/stf/covid-19/vaccine.html)
+- [新型コロナウイルスに関するQ&A（一般の方向け）](https://www.mhlw.go.jp/stf/seisakunitsuite/bunya/kenkou_iryou/dengue_fever_qa_00001.html#Q1-9)
+- [新型コロナワクチンの接種を望まない場合、受けなくてもよいですか](https://www.cov19-vaccine.mhlw.go.jp/qa/0053.html)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
+
+总编：Jack Li文阳
+编辑：Kathy文艺
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
