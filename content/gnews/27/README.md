@@ -2,36 +2,17 @@
 ---
 
 
-## 显贵阶层的子女将成为独裁统治的陪葬品
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1787542/)
+## 文贵大直播 12/24 FAKE MEDIA 采访真相之一 屠华历史重演近在咫尺
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1787586/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生在12月23日的盖特直播中解析了刘亚洲被捕的象征意义，即，该事件标志着中共国内达官显贵及军阀的子女们正式进入被清算的行列。
+撰稿：回响 【秘翻Gnews原创组】
+![](https://assets.gnews.org/wp-content/uploads/2021/12/snapshot-12.jpg)图片来源 GTV
+圣诞前日，也是亚洲平安夜，爆料革命发起人、新中国联邦创始人郭文贵先生在美国纽约，借大直播平台，以HBO对他本人的采访为范本，刨析假媒体、假新闻的真面目，并严肃质问：当今所有海外特别是在美华人，如骇人听闻之印尼大屠杀一样的历史重演，照此发展还会远吗？！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Slide2-23.jpeg)
+无论从整体节目策划和现场各种细节，郭先生给现场嘉宾和上百万千万观众做了进一步通报和分析，经过和嘉宾们的问答互动，文贵先生一针见血地指出其采访公然造假的背后，是把爆料革命、新中国联邦甚至所有在美华人，都打成美国政治的威胁、邪教嫌疑的组织、充满暴力和欺骗的恐怖分子们，这是非常阴险毒辣的媒体战计划，是中共冬奥会前国际政治外交战的重要组成部分。
 
-郭先生透露，刘亚洲是中共军队的上将，也是李先念的女婿，其出身“红二代”的太子党，也常发惊人之语。另外，作为理论派的军二代，刘亚洲从骨子里看不起习、王及姚家。为此，郭先生曾于半年前联系过刘亚洲，劝诫他不要多生是非，以免身陷牢狱之灾，但刘亚洲仍于两周前被捕。
+【来源链接】https://gtv.org/broadcast/watch/61c5c61e00f9a1191809b5c6
 
-郭先生解释，一旦大权在握，独裁者最大的敌人就不再是老百姓，而是那些曾经与之过从甚密、知根知底并且对其有谋权夺位威胁的“官二代”，“军二代”，“富二代”等——这就好比当年列宁、斯大林、希特勒的行事手段，他们身边的知情者全数被灭。
-
-郭先生表示，与刘亚洲身处同样境地的还包括刘少奇的儿子刘源将军。郭先生感叹，中共的绞肉机体制注定了这些人最终都会成为独裁统治的陪葬品。
-
-参考链接：[https://gettr.com/post/pkh954d77a](https://gettr.com/post/pkh954d77a)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12月小图.jpg)
-
-总编：Irene木木
-编辑：Kathy文艺 
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
