@@ -15,56 +15,56 @@
 
 ---
 
-### [2021/12/23 墙内世界](/content/gnews/1/README.md)
+### [灭共漫画——真相永远赢](/content/gnews/1/README.md)
+ ` MOS Designer香草山设计部`
+
+### [2021/12/23 墙内世界](/content/gnews/2/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [日本不会派政府代表团出席北京冬奥会](/content/gnews/2/README.md)
+### [日本不会派政府代表团出席北京冬奥会](/content/gnews/3/README.md)
  ` 日本东京方舟农场`
 
-### [美日拟定联合作战方案以应对台海危机](/content/gnews/3/README.md)
+### [美日拟定联合作战方案以应对台海危机](/content/gnews/4/README.md)
  ` 日本东京方舟农场`
 
-### [丹麦研究表明接种疫苗更容易感染 Omicron](/content/gnews/4/README.md)
+### [丹麦研究表明接种疫苗更容易感染 Omicron](/content/gnews/5/README.md)
  ` MG FARM`
 
-### [七哥谈起诉（2021-12-22摘录）](/content/gnews/5/README.md)
+### [七哥谈起诉（2021-12-22摘录）](/content/gnews/6/README.md)
  ` MG FARM`
 
-### [七哥谈玉泉山会面（2021-12-22摘录）](/content/gnews/6/README.md)
+### [七哥谈玉泉山会面（2021-12-22摘录）](/content/gnews/7/README.md)
  ` MG FARM`
 
-### [MV版Hcoin To the Moon上线第15天位列6国iTunes摇滚MV榜首](/content/gnews/7/README.md)
+### [MV版Hcoin To the Moon上线第15天位列6国iTunes摇滚MV榜首](/content/gnews/8/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [七哥谈鸳鸯饼（2021-12-22摘录）](/content/gnews/8/README.md)
+### [七哥谈鸳鸯饼（2021-12-22摘录）](/content/gnews/9/README.md)
  ` MG FARM`
 
-### [美副总统哈里斯袒护中共淡化病毒来源](/content/gnews/9/README.md)
+### [美副总统哈里斯袒护中共淡化病毒来源](/content/gnews/10/README.md)
  ` HimalayaRussia`
 
-### [七哥谈自愿战斗（2021-12-22摘录）](/content/gnews/10/README.md)
+### [七哥谈自愿战斗（2021-12-22摘录）](/content/gnews/11/README.md)
  ` MG FARM`
 
-### [七哥谈舍不得孩子打不到狼（2021-12-22摘录）](/content/gnews/11/README.md)
+### [七哥谈舍不得孩子打不到狼（2021-12-22摘录）](/content/gnews/12/README.md)
  ` MG FARM`
 
-### [七哥谈中美之间会取消贸易关税（2021-12-22摘录）](/content/gnews/12/README.md)
+### [七哥谈中美之间会取消贸易关税（2021-12-22摘录）](/content/gnews/13/README.md)
  ` MG FARM`
 
-### [七哥谈留学生签证（2021-12-22摘录）](/content/gnews/13/README.md)
+### [七哥谈留学生签证（2021-12-22摘录）](/content/gnews/14/README.md)
  ` MG FARM`
 
-### [2021年12月24日郭先生大直播文字同步精要](/content/gnews/14/README.md)
+### [2021年12月24日郭先生大直播文字同步精要](/content/gnews/15/README.md)
  ` 焦點20分`
 
-### [2021年12月24日文贵先生直播摘要及音频—银河系农场](/content/gnews/15/README.md)
+### [2021年12月24日文贵先生直播摘要及音频—银河系农场](/content/gnews/16/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [七哥谈中共对西方媒体的渗透（2021-12-22摘录）](/content/gnews/16/README.md)
+### [七哥谈中共对西方媒体的渗透（2021-12-22摘录）](/content/gnews/17/README.md)
  ` MG FARM`
-
-### [太子党、红二代、富二代都将是习近平打击的对象](/content/gnews/17/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [文贵爆料 12.24：无尽的源头之毒——Omicron后中共要再次放毒](/content/gnews/18/README.md)
  ` 秘密翻译组-原创组`

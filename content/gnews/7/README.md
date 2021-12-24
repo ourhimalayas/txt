@@ -2,51 +2,33 @@
 ---
 
 
-## MV版Hcoin To the Moon上线第15天位列6国iTunes摇滚MV榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1787969/)
+## 七哥谈玉泉山会面（2021-12-22摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1788059/)
 
-12/24/2021 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线第15天位列6国iTunes摇滚MV榜榜首。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-* * *
+来源：郭先生2021-12-22直播13:06:39 摘录
 
-[【PDF 下载】Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+到玉泉山直接习近平、韩正、栗战书亲自跟她谈。大家去想一想，这个运动员你想想，郝海东先生和钊颖妹妹在国内干这事儿，我估计常委全出来谈了。然后他俩要在国内，我估计这七个人，一人拎着一把枪就把他俩给毙了。亲自啊，习在玉泉山小餐厅，玉泉山小餐厅小会议室是啥概念你们知道吗？整个的墙2米3厚水泥墙，地下室9米高，小会议室全封闭。那个墙上用那个小金丝木雕刻的叫做大团圆。你们没有去过，那你们看过那个共产党的奢侈，你真的，你一个照片都找不着。就它那个墙上的那个翡翠，就像徐才厚他家一样。那个翡翠在当时2011年我去时候。当时2011年刚开始翡翠的评估，说就值20亿。习去那个餐厅亲自见她，苦口婆心说。一句不谈张高丽的事情，一句不谈她。听听她对冬奥会的一些建议，很关心你的身体，给你讲讲中国人的屈辱历史。然后坐那块儿还吃了点小餐，然后就送走了。彭帅你知道去哪了嘛从那个玉泉山出来？所有的刚才你说的那些名人，什么体育界，什么姚明，都来了。直接是送到安全部，万寿路，大家看看去查查，安全部在里面的西边，有一个钓鱼山庄，就钓鱼山庄旁边的一个秘密的就安全部地点，上面就处于监管状态，所有人陪着你。最后说明她要按照国家，维护国家民族利益，你要说话。安排的媒体是谁家知道嘛？安排了五家。这你就能看到共产党在世界媒体有多牛。新加坡媒体，谁来采访，看到了没有？你就想想它有多牛，它在世界媒体上。然后呢还要准备接受CNN的采访。还有BBC采访，还定了日本媒体采访。最后要叫国际奥林匹克会，国际奥林匹克会有电视台的，有航空公司的。你待会儿记住，安排什么采访，五家世界级媒体采访。接下来彭帅还有马上被采访出来的，还有记者，大量的这个外籍媒体采访。当然采访的人，一定是自己人了，不能让外人。当你看到刚才大卫兄弟咱们战友们做的这个PPT的时候。你千万，兄弟姐妹们，你要闻到这种的味道，14亿人的一个国家政权在全人类面前，谁都知道她本人是被性侵了，这个年龄的老人跟一个这样的女人发生了十七、八年的关系，它是不正常的！而且他是个官员，这种官员和那个年龄发生关系这是不对的，是犯法的，是犯罪的。它现在要变成不是性侵，是我自愿。这个世界上真的是我强奸了你，让你说咱是爱情，我没强奸你，何况当时她是一个刚刚的少女。更重要的事情，长达一二十年的保持这种关系。其中三任男友，一个被关在监狱里，两个消失找不着了。他要没有利用政治权利，他怎么能达到这个？他要没有这种政治权力，怎么可能！
 
-* * *
+校对：HimaFaFA
+发布：HimaBoy
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_11.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_12.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_14.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_15.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_16.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_18.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_19.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_35.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_36.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_41.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_44.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_46.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_47.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_48.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_49.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_50.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_57.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_74.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_75.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_82.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_94.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_95.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_96.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_110.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_111.jpg)
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
 
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-[【PDF 下载】Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/12/Friday-24-Dec-2021-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+**关注我们**
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
