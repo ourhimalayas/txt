@@ -2,22 +2,46 @@
 ---
 
 
-## 冬奥会后至少有5000万人看清楚中共要完了
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1785749/)
+## 国务卿安东尼·布林肯：中共国 和俄罗斯等国家在试图破坏国际体系
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1785766/)
 
-他们会看到一个结果，垂死挣扎。大撒币的事情大家会问，为什么撒了那么多币，就来了这几个人？
+美国国务院： 国务卿安东尼·布林肯[@SecBlinken](https://twitter.com/SecBlinken)：在应对 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click)、气候变化和其他紧迫挑战方面，我们的基础更加稳固。[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 和俄罗斯等国家在试图破坏国际体系，而我们在与他们打交道时处于更有利的地缘政治地位。
 
-**【郭先生直播摘要】**** 2021.12.19 ****冬奥会后至少有****5000****万人看清楚中共要完****了**
 
-**郭先生**
 
-所以我告诉国内的人， 你们去想想， 哪一个站在现场是为了爱习太阳，爱中共去？只有三种人。 人家是因为以前签了合同为了钱来的， 怎么也得表演一把。 第二条， 就是你找的泰国公主和摩纳哥二世， 尼日利亚和坦桑尼亚， 是为了钱里的， 或者安哥拉， 卖油不能不来，包括中东最起码去五到四家， 七个国家到六个国家之间。
+> .[@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw): We’re on stronger footing when it comes to COVID, climate, and other urgent challenges. And we’re in a stronger geopolitical position to deal with countries like China and Russia, as they seek to undermine the international system. [pic.twitter.com/wsWtlaTJfL](https://t.co/wsWtlaTJfL)
+> — Department of State (@StateDept) [December 24, 2021](https://twitter.com/StateDept/status/1474167948524679174?ref_src=twsrc%5Etfw)
 
-伊朗肯定去， 巴基斯坦肯定去， 是吧。 巴基斯坦伊朗肯定去， 沙特肯定去， 这已经三个了。卡塔尔肯定去， 四个了。 UAE不会去什么领导人， 但是会去个部级干部代表， 迪拜那里这就五个了， 然后以色列肯定去， 阿曼也派代表去。 塔利班去不去？塔利班肯定去， 百分之百去， 阿巴肯定去，弄几个火烧，混几个火烧也得去， 何况还有600多种美食， 更得去了。带着自己的几个处女的媳妇要去的， 这大概十个人左右， 十个国家你看看你数就数完了。
 
-所以说它这个去了以后你说对咱有啥好处， 兄弟姐妹们， 没有再好的广告了， 这点你放心十四亿人这点它还是看得明白的， 它总得有电视， 你不能把拜登的头像给放那去， 绝大多数的， 在城市中的人口3.5亿人最起码五千万人能看懂， 完了， 这个国家完了， 直接混回到第三世界的末尾去了， 然后他们会看到一个结果， 垂死挣扎， 大撒币的事情大家会问， 为什么撒了那么多币， 就来了这几个人。
 
-视频剪辑：小腾腾说 | 听写：雨山溪桥客 |翻译： Arthur | 校对： 烟波浩淼 | 视频制作+字幕: CG. | 编剧&发布：断播
+参议员泰德·克鲁兹: 大型科技公司在 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 面前卑躬屈膝. 实际上:“我们非常抱歉,我们甚至认为奴隶劳动可能是错误的!当然,我们会继续支持你们的野蛮集中营!!能够为共产主义压迫提供资金是一种真正的特权.” 【转推称:英特尔告诉供应商不要在新疆使用奴隶劳工生产的产品之后,又向 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 道歉认错】
+
+
+
+> Big Tech grovels before CCP. 
+> 
+> In effect: “We are SO very sorry we even suggested slave labor might be wrong! Of course, we’ll continue to support your barbaric concentration camps!! It’s a true privilege to help fund your communist oppression.” [https://t.co/kB2lF5fbio](https://t.co/kB2lF5fbio)
+> — Ted Cruz (@tedcruz) [December 24, 2021](https://twitter.com/tedcruz/status/1474186595444133896?ref_src=twsrc%5Etfw)
+
+
+
+参议员马可·卢比奥： 任何一家美国公司因为关注奴工问题而向 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 道歉都是荒谬的 但它恰恰是英特尔公司，一个许多人希望它成为美国唯一的国内半导体制造商，这令人震惊 【附BBC新闻报道：美科技公司英特尔在遭到强烈反对后向中共国道歉 （该公司向供应商发函要求排除新疆产品）】
+
+
+
+> US technology firm Intel apologises to China after letter backlash [https://t.co/TNJ3Qfvf22](https://t.co/TNJ3Qfvf22)
+> — BBC News (World) (@BBCWorld) [December 23, 2021](https://twitter.com/BBCWorld/status/1473999593729843205?ref_src=twsrc%5Etfw)
+
+
+
+众议员肯·巴克： 独裁在黑暗中蔓延。在夜幕的掩盖下，[#香港](https://twitter.com/hashtag/%E9%A6%99%E6%B8%AF?src=hashtag_click) 的 [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 傀儡政府拆除了一座 [#天安门大屠杀](https://twitter.com/hashtag/%E5%A4%A9%E5%AE%89%E9%97%A8%E5%A4%A7%E5%B1%A0%E6%9D%80?src=hashtag_click) 死难者的纪念碑。 【转华盛顿邮报，香港拆除纪念天安门广场大屠杀遇难者的耻辱柱】
+
+
+
+> Tyranny thrives in darkness. Under cover of night, Hong Kong’s puppet CCP government demolished a memorial to the victims of the Tiananmen Square massacre.[https://t.co/yc3eX23xn1](https://t.co/yc3eX23xn1)
+> — Rep. Ken Buck (@RepKenBuck) [December 23, 2021](https://twitter.com/RepKenBuck/status/1473829157238984706?ref_src=twsrc%5Etfw)
+
+
 
  
 

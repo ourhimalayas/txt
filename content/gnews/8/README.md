@@ -2,34 +2,28 @@
 ---
 
 
-## 美国政府与莫得纳公司争夺新冠疫苗的专利权
-` 喜国公民` [轉載自GNews](https://gnews.org/zh-hans/1785661/)
+## 英特尔不堪中共国网民围攻向供应商“致歉”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1785681/)
 
-By：喜国公民
-视频来自网络
-美国国家卫生研究院和新冠疫苗制造商莫得纳之间就新冠疫苗专利权进行了长达数月的一场法律纠纷，最近突然出现在公众视野中。莫得纳提出与政府分享其新冠疫苗专利的所有权。
+![资料照：纳斯达克市场网站上的英特尔标识](https://gdb.voanews.com/f492b8a7-1233-4c1e-a7c9-ba3e799437fd_cx0_cy9_cw0_w1023_r1_s.jpg)资料图
+据美国之音12月24日报道，美国芯片企业英特尔公司之前致供应商的一封信函在中共媒体曝光。信函要求供应商避免使用与新疆有关的产品、劳工和服务，禁止任何形式的贩卖人口或非自愿劳工行为。信函公开后，中共国网民纷纷涌入英特尔官方微博账号对该公司“口诛笔伐”，甚至呼吁抵制英特尔产品。中共国微博上有关这一话题的热搜量已经超过2.5亿人次。在遭到中共国网民围攻之后，英特尔23日向中共国客户和合作伙伴公开道歉。
 
-同时，[一份长达](https://www.documentcloud.org/documents/6935295-NIH-Moderna-Confidential-Agreements)[153页的莫得纳和美国政府之间的保密协议](https://www.documentcloud.org/documents/6935295-NIH-Moderna-Confidential-Agreements)，也揭示出美国政府是莫得纳新冠疫苗的主要资助者。
+最近几年，越来越多的证据显示，中共政府多年来在新疆对维吾尔和其他少数民族穆斯林展开了系统性迫害，多达百万的穆斯林被关押在所谓的再教育营，遭受各种迫害。中共国网民生活在监控严密的防火墙里，信息完全封锁，只能接受中共党媒的报道。中共引导风向，民众盲目跟随，完全不明白新疆发生的人间惨剧。英特尔这样的企业为新疆发声，反而遭到攻击，可悲的中共国网民，可恨的中国共产党。
 
-在2015年，美国卫生研究院管辖的美国国家过敏和传染病研究所，与制药商莫得纳签订了合作开发研究新冠疫苗的协议。该协议导致了一笔未公开的资金和研究援助。
+新闻参考链接：[https://www.voachinese.com/a/Intel-Apologizes-To-Contractors-Over-Xinjiang-Issue-20211223/6367003.html](https://www.voachinese.com/a/Intel-Apologizes-To-Contractors-Over-Xinjiang-Issue-20211223/6367003.html)
 
-此外，在新冠疫情爆发后，莫得纳还从生物医学高级研究与发展局获得了近10 亿美元的资金，该笔资金专门用于新冠疫苗的开发。研究人员计算出，美国政府总共为莫得纳的新冠疫苗的开发和商业化提供了近25 亿美元。
+编辑：胖丁
 
-值得注意的是，该份协议显示出美国政府以及莫得纳与巴里克博士合作。而巴里克博士与武汉病毒研究所的石正丽的团队在冠状病毒研究领域一直有着深度的合作。
+* * *
 
-巴里克与石正丽曾在2015年发表了一篇题为“[显示了感染人类的潜力的一个类似于](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC4797993/)[SARS的蝙蝠冠状病毒循环集群](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC4797993/)”。二人多年来一直从事新冠病毒功能增强试验方面的研究。
-
-全球范围的新冠病毒大流行爆发后，[巴里克等人公开诋毁任何提出实验室泄漏理论的人](https://gnews.org/zh-hans/1745295/)。他们极力掩盖实验室泄漏。甚至提出不要去武汉病毒研究所检查。其行为极为异常，不打自招。
-
-越来越多的人开始质疑新冠疫苗的有效性，认为只有追溯新冠病毒的来源，才能从根本上解决新冠大流行。
-
-消息来源：[Why Moderna won’t share rights to the COVID-19 vaccine with the government that paid for its development](https://theconversation.com/why-moderna-wont-share-rights-to-the-covid-19-vaccine-with-the-government-that-paid-for-its-development-172008)
-
-[The confidential agreement between NIH and Moderna](https://www.documentcloud.org/documents/6935295-NIH-Moderna-Confidential-Agreements)
-
-[A SARS-like cluster of circulating bat coronaviruses shows potential for human emergence](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC4797993/)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

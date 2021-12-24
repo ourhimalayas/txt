@@ -15,113 +15,113 @@
 
 ---
 
-### [传宗接贷 贷贷相传？吉林出新招鼓励贷款生娃](/content/gnews/1/README.md)
+### [郭文贵先生2021年12月23日盖特视频（9分13秒）全文字版](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [传宗接贷 贷贷相传？吉林出新招鼓励贷款生娃](/content/gnews/2/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [感染过中共病毒恢复后得癌症的概率依然很大](/content/gnews/2/README.md)
+### [感染过中共病毒恢复后得癌症的概率依然很大](/content/gnews/3/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [国务卿安东尼·布林肯：中共国 和俄罗斯等国家在试图破坏国际体系](/content/gnews/3/README.md)
+### [国务卿安东尼·布林肯：中共国 和俄罗斯等国家在试图破坏国际体系](/content/gnews/4/README.md)
  ` 美国政要直译推`
 
-### [冬奥会后至少有5000万人看清楚中共要完了](/content/gnews/4/README.md)
+### [冬奥会后至少有5000万人看清楚中共要完了](/content/gnews/5/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [美国签署新疆强迫劳动法案，各界表示赞赏](/content/gnews/5/README.md)
+### [美国签署新疆强迫劳动法案，各界表示赞赏](/content/gnews/6/README.md)
  ` 墨尔本雅典娜农场`
 
-### [文·贵天成——文贵先生谈“北京冬奥会”（一）](/content/gnews/6/README.md)
+### [文·贵天成——文贵先生谈“北京冬奥会”（一）](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [英特尔不堪中共国网民围攻向供应商“致歉”](/content/gnews/7/README.md)
+### [英特尔不堪中共国网民围攻向供应商“致歉”](/content/gnews/8/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国政府与莫得纳公司争夺新冠疫苗的专利权](/content/gnews/8/README.md)
+### [美国政府与莫得纳公司争夺新冠疫苗的专利权](/content/gnews/9/README.md)
  ` 喜国公民`
 
-### [GTV新闻访谈简报|2021年12月23日晚](/content/gnews/9/README.md)
+### [GTV新闻访谈简报|2021年12月23日晚](/content/gnews/10/README.md)
  ` 纽约香草山MOS01`
 
-### [日本决定外交抵制北京冬奥会](/content/gnews/10/README.md)
+### [日本决定外交抵制北京冬奥会](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [拜登总统签署法案 禁止新疆强迫劳动产品进入美国](/content/gnews/11/README.md)
+### [拜登总统签署法案 禁止新疆强迫劳动产品进入美国](/content/gnews/12/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|三个宗教团体要求最高法院暂停拜登政府对企业的疫苗强制令](/content/gnews/12/README.md)
+### [有声|三个宗教团体要求最高法院暂停拜登政府对企业的疫苗强制令](/content/gnews/13/README.md)
  ` MOSREC`
 
-### [有声|泽连科医生号召人们形成新社群对抗全球主义](/content/gnews/13/README.md)
+### [有声|泽连科医生号召人们形成新社群对抗全球主义](/content/gnews/14/README.md)
  ` MOSREC`
 
-### [有声|全球最大邮轮48人感染其中47人已完整接种疫苗](/content/gnews/14/README.md)
+### [有声|全球最大邮轮48人感染其中47人已完整接种疫苗](/content/gnews/15/README.md)
  ` MOSREC`
 
-### [有声|欧盟将对中共国铝箔征收额外关税](/content/gnews/15/README.md)
+### [有声|欧盟将对中共国铝箔征收额外关税](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [有声|美媒揭露中共利用网军操控社交平台舆论](/content/gnews/16/README.md)
+### [有声|美媒揭露中共利用网军操控社交平台舆论](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [有声|美国务院和财政部将制裁五名中共官员](/content/gnews/17/README.md)
+### [有声|美国务院和财政部将制裁五名中共官员](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [有声|李嘉诚面临英国反垄断调查](/content/gnews/18/README.md)
+### [有声|李嘉诚面临英国反垄断调查](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [有声|“叮咚买菜”被曝强制员工无薪排休](/content/gnews/19/README.md)
+### [有声|“叮咚买菜”被曝强制员工无薪排休](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [英、法、澳，新增感染中共病毒人数均创新高](/content/gnews/20/README.md)
+### [英、法、澳，新增感染中共病毒人数均创新高](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本政府税制改革目标2022年减税1530亿](/content/gnews/21/README.md)
+### [日本政府税制改革目标2022年减税1530亿](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2021/12/23 文贵先生盖特精要](/content/gnews/22/README.md)
+### [2021/12/23 文贵先生盖特精要](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [12/23/2021 文贵盖特：文贵先生舍身套狼，让世人看到西方主流媒体的傲慢和流氓嘴脸](/content/gnews/23/README.md)
+### [12/23/2021 文贵盖特：文贵先生舍身套狼，让世人看到西方主流媒体的傲慢和流氓嘴脸](/content/gnews/24/README.md)
  ` 秘密翻译组-北美组`
 
-### [美国精英正是中共迅速崛起成为超级大国的罪魁祸首](/content/gnews/24/README.md)
+### [美国精英正是中共迅速崛起成为超级大国的罪魁祸首](/content/gnews/25/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [12/23/2021 文贵盖特：马云、许家印等着习出事？刘亚洲被捕预示着习一定会干掉能对其大位产生威胁的红二代、军二代、官二代，富二代也逃不脱习的手心](/content/gnews/25/README.md)
+### [12/23/2021 文贵盖特：马云、许家印等着习出事？刘亚洲被捕预示着习一定会干掉能对其大位产生威胁的红二代、军二代、官二代，富二代也逃不脱习的手心](/content/gnews/26/README.md)
  ` 秘密翻译组-北美组`
 
-### [美国情报和卫星图像显示，中共帮助沙特制造弹道导弹](/content/gnews/26/README.md)
+### [美国情报和卫星图像显示，中共帮助沙特制造弹道导弹](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
 
-### [33名国会议员任职咨询委员会的机构与中共附属组织有关联](/content/gnews/27/README.md)
+### [33名国会议员任职咨询委员会的机构与中共附属组织有关联](/content/gnews/28/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共电信无视FCC撤销令 计划在美继续运营](/content/gnews/28/README.md)
+### [中共电信无视FCC撤销令 计划在美继续运营](/content/gnews/29/README.md)
  ` 日本东京方舟农场`
 
-### [《柳叶刀》的专家来信，戳破了疫苗的童话](/content/gnews/29/README.md)
+### [《柳叶刀》的专家来信，戳破了疫苗的童话](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美最高法院将受理针对疫苗强制令的诉讼](/content/gnews/30/README.md)
+### [美最高法院将受理针对疫苗强制令的诉讼](/content/gnews/31/README.md)
  ` 日本东京方舟农场`
 
-### [香港大学移除“国殇支柱”](/content/gnews/31/README.md)
+### [香港大学移除“国殇支柱”](/content/gnews/32/README.md)
  ` 日本东京方舟农场`
 
-### [俄勒冈州爆622名完全接种疫苗者死于中共病毒](/content/gnews/32/README.md)
+### [俄勒冈州爆622名完全接种疫苗者死于中共病毒](/content/gnews/33/README.md)
  ` HimalayaRussia`
 
-### [斯蒂芬.K.班農獲得國家脈動2021年度“愛國者”獎](/content/gnews/33/README.md)
+### [斯蒂芬.K.班農獲得國家脈動2021年度“愛國者”獎](/content/gnews/34/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [中共以一国之力把张高丽的性侵犯罪变爱情故事](/content/gnews/34/README.md)
+### [中共以一国之力把张高丽的性侵犯罪变爱情故事](/content/gnews/35/README.md)
  ` YALUN 亚伦`
 
-### [俄军在乌克兰边境附近集结265,000名士兵](/content/gnews/35/README.md)
+### [俄军在乌克兰边境附近集结265,000名士兵](/content/gnews/36/README.md)
  ` MG FARM`
-
-### [【信仰之声】不要胆怯，乃要警醒、刚强、仁爱、谨守](/content/gnews/36/README.md)
- ` 纽约香草山MOS03`
 
 ### [2021年12月22日文贵大直播简报](/content/gnews/37/README.md)
  ` 秘密翻译组-原创组`

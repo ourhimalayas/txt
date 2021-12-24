@@ -2,46 +2,30 @@
 ---
 
 
-## 国务卿安东尼·布林肯：中共国 和俄罗斯等国家在试图破坏国际体系
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1785766/)
+## 感染过中共病毒恢复后得癌症的概率依然很大
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1785780/)
 
-美国国务院： 国务卿安东尼·布林肯[@SecBlinken](https://twitter.com/SecBlinken)：在应对 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click)、气候变化和其他紧迫挑战方面，我们的基础更加稳固。[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 和俄罗斯等国家在试图破坏国际体系，而我们在与他们打交道时处于更有利的地缘政治地位。
+我被授权今天向大家公告这个事情，你们所有得过病毒的人，在未来的十年内，几乎超过50%的概率会得癌症。青蒿素、伊维菌素可以清除病毒影响。
 
+**【郭先生直播摘要】**** 2021.12.17 ****染过中共病毒恢复后得癌症的概率依然很大**
 
+**郭先生：**
 
-> .[@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw): We’re on stronger footing when it comes to COVID, climate, and other urgent challenges. And we’re in a stronger geopolitical position to deal with countries like China and Russia, as they seek to undermine the international system. [pic.twitter.com/wsWtlaTJfL](https://t.co/wsWtlaTJfL)
-> — Department of State (@StateDept) [December 24, 2021](https://twitter.com/StateDept/status/1474167948524679174?ref_src=twsrc%5Etfw)
+所有得过冠状病毒的兄弟姐妹们， 我在这里严正申明， 世界上第一个是七哥现在告诉你们。 在过去的大概一个多月， 我们跟国内的跑出来的科学家和病毒的知情者。 我们一再论证接触后， 我被授权今天向大家公告这个事情。 第一个，你们所有得过病毒的人
 
+在未来的十年内， 也就3到10年内， 几乎超过50%的定律会染上癌症。 不分老少，不分男女， 不分大小，不分症状。 原理我就不再解释了， 给我讲一大堆，我都不一定记得住，我怕给说错了。
 
+最重要的是就是这个突刺蛋白， mRNA 在你身体里边， 只要不会百分之百被消除， 在你身体造成两个地方，是永远都可能发癌的。 一个是淋巴， 最可怕的是淋巴。 第二个就是你身体上的免疫。由于它长时间的在内部的整个对细胞的改变， 你的血液很有可能出问题。 这两种病一定要听进的， 女性妇科最容易得病， 因为妇科是所有的聚集病毒不能排除的地方。 男性前列腺， 你唯一的办法现在看到， 一定要吃青蒿素和伊维菌素。 而且是合理的吃， 你别一天天吃完没有用的。
 
-参议员泰德·克鲁兹: 大型科技公司在 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 面前卑躬屈膝. 实际上:“我们非常抱歉,我们甚至认为奴隶劳动可能是错误的!当然,我们会继续支持你们的野蛮集中营!!能够为共产主义压迫提供资金是一种真正的特权.” 【转推称:英特尔告诉供应商不要在新疆使用奴隶劳工生产的产品之后,又向 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 道歉认错】
+说你只要不百分之百清除掉，你解决了症状， 你无法百分之百从身体清除， 它就有这种可能。 而且超过50的可能。 所以说你现在， 科学家非常严肃的告诉， 他说一定告诉咱们战友， 特别是你得过病恢复过的， 你一定要保持中长期时间身体检查， 每年都检查一次甚至两次， 血液检查，淋巴检查， 然后一定吃， 定期的就是不要每天吃， 而且一再给大家警告。
 
+伊维菌素也好，羫氯喹也好， 锌也好，青蒿素也好， 每天吃一定是坏处大于利处。 我再重申一遍， 任何咱们所说的就是羫氯喹、锌， 包括青蒿素，就是保健品青蒿素， 伊维菌素，包括地塞米松。 只要你长期吃一定坏处大于好处。 所以一定要分期、分段根据症状去吃， 而且一定要会停。 在一个吃这些药的时候一定要补铁的， 特别补维他命，补维他命。 说维他命和铁和这个相互的吃是最关键的。 所以说大卫也好，飞飞也好， 所有这些染（过病毒的）一定要听住咱们科学家说的话。
 
+定期检查， 然后吃青蒿素啊， 不要乱吃， 而且特别补维他命， 而且染过这个病毒的人在运动健身、生活方式上一定要注意。 一定要注意， 特别他说的剧烈的运动一定要避免，在短时间内一定要避免。 所有天下的兄弟姐妹们， 我知道我们很多战友染上冠状病毒，这是非常不幸的。 虽然你今天好了， 但是你一定要知道， 这个病并没有在你身里边彻底的消除。 他不可能彻底的消除， 他需要时间， 然后我问科学家。
 
-> Big Tech grovels before CCP. 
-> 
-> In effect: “We are SO very sorry we even suggested slave labor might be wrong! Of course, we’ll continue to support your barbaric concentration camps!! It’s a true privilege to help fund your communist oppression.” [https://t.co/kB2lF5fbio](https://t.co/kB2lF5fbio)
-> — Ted Cruz (@tedcruz) [December 24, 2021](https://twitter.com/tedcruz/status/1474186595444133896?ref_src=twsrc%5Etfw)
+如果按照科学家的想法， 能不能百分之百的保证这个病没。 他说一定会的， 只要你不要愚蠢的认为我的病毒好了， 我不需要吃这个青高素， 或者吃这种这个辅助运动， 辅助的这种治疗。 长时间检查， 他说你就有50%以上机会得癌症3年到10年， 然后如果按照这个的话。 他说你是几乎是完全可以保证没有问题的， 所以这今天这是个非常非常坏的消息， 但是我觉得这是个， 对每个人都是救命的， 你们会感受到的。
 
-
-
-参议员马可·卢比奥： 任何一家美国公司因为关注奴工问题而向 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 道歉都是荒谬的 但它恰恰是英特尔公司，一个许多人希望它成为美国唯一的国内半导体制造商，这令人震惊 【附BBC新闻报道：美科技公司英特尔在遭到强烈反对后向中共国道歉 （该公司向供应商发函要求排除新疆产品）】
-
-
-
-> US technology firm Intel apologises to China after letter backlash [https://t.co/TNJ3Qfvf22](https://t.co/TNJ3Qfvf22)
-> — BBC News (World) (@BBCWorld) [December 23, 2021](https://twitter.com/BBCWorld/status/1473999593729843205?ref_src=twsrc%5Etfw)
-
-
-
-众议员肯·巴克： 独裁在黑暗中蔓延。在夜幕的掩盖下，[#香港](https://twitter.com/hashtag/%E9%A6%99%E6%B8%AF?src=hashtag_click) 的 [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 傀儡政府拆除了一座 [#天安门大屠杀](https://twitter.com/hashtag/%E5%A4%A9%E5%AE%89%E9%97%A8%E5%A4%A7%E5%B1%A0%E6%9D%80?src=hashtag_click) 死难者的纪念碑。 【转华盛顿邮报，香港拆除纪念天安门广场大屠杀遇难者的耻辱柱】
-
-
-
-> Tyranny thrives in darkness. Under cover of night, Hong Kong’s puppet CCP government demolished a memorial to the victims of the Tiananmen Square massacre.[https://t.co/yc3eX23xn1](https://t.co/yc3eX23xn1)
-> — Rep. Ken Buck (@RepKenBuck) [December 23, 2021](https://twitter.com/RepKenBuck/status/1473829157238984706?ref_src=twsrc%5Etfw)
-
-
+视频剪辑：小腾腾说 |听写/校对：烟波浩淼 | 翻译： Polaris | 视频制作+字幕：CG.|编剧&发布：断播
 
  
 
