@@ -2,44 +2,50 @@
 ---
 
 
-## 班农先生荣获《国家脉动》第二届年度爱国者奖
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1762894/)
+## “班农先生不睬案”审理日期已确定
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1737586/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/8121-2.jpg)图片来源：Gnews
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/12/B-4.jpg)hurriyetdailynews.com
+“班农先生不睬案”的定义详见Gnews文章。【1】
 
-#### 整理报道：文泓
+司法部企图回避班农先生团队要求公布更多的文件，希望速战速决，快速了解此案，提出明年4月份审理的要求，而班农先生需要追究这起诉讼案更深的背景，提出明年10月份进行法庭审理，法官则进行了折中，确定在2022年7月18日进行。【2】
 
-美国时间12月16日，《国家脉动》主编宣布，史蒂夫·班农先生荣获《国家脉动》第二届年度爱国者奖。
-现年68岁的班农在2016年引起了全国的关注，帮助带领川普竞选团队以惊人的优势击败希拉里克林顿和民主党机器。从那以后，班农一直担任白宫首席战略官，并与前川普通讯主管杰森米勒和国家脉搏总编辑拉希姆·卡萨姆一起创立了非常成功的《班农战争室》：大流行播客。
+《门道专家》对司法部的行径进行了指责，“对班农先生的案子希望隐藏证据、光速结案——而对1.6抗议者无审判日期，要他们牢底坐穿”。【3】
 
-班农出生于弗吉尼亚州诺福克，是多丽丝和马丁班农的儿子。他曾就读于弗吉尼亚理工大学，在加入美国海军之前成为学生会主席，同时获得国家安全研究硕士学位，然后在哈佛商学院获得MBA。
-班农曾在保罗·福斯特号航空母舰服役，然后在弗吉尼亚州五角大楼担任海军作战部长的特别助理。
+全文如下：
 
-离开海军后，班农去了高盛工作，在那里他会花几年时间了解他现在每天两次的节目所反对的那些精英阶层的全球主义商业运作。
-几年后，他在好莱坞建立了自己的业务，其本人制作了多部电影，包括里根史诗《直面邪恶》和2012年的《揭露占领》。
+有关史蒂夫·班农藐视国会案的有关信息今天公布。
 
-2009年金融危机后不久，班农与传奇性的保守派火爆人物安德鲁·布赖特巴特合作，他们搭档继续为布赖特巴特新闻网站制定发展计划。布雷特巴特于2012年去世，班农担任执行主席。他将该网站建成了一个民粹主义/民族主义保守主义的全球中心，这令建制派媒体和政治阶层感到震惊和恐惧。
+美国《伟大》（American Greatness）杂志撰稿人朱莉·凯利（Julie Kelly）在推特上发布了大量描述班农在其案件中的战略信息。
 
-2016年8月，班农应邀加入川普竞选团队，担任其首席执行官。当时，该竞选团队在几乎所有摇摆州都处于下风。正是班农的坚定性和纪律性帮助竞选团队重新调整并顺利度过了臭名昭著的“比利·布什周末”，在这个周末，一盘以候选人川普私下发表猥亵言论为主题的录音带被公布。
+班农的团队计划向美国检察官办公室、司法部、白宫和美国众议院索取信息。
 
-自从离开白宫和布莱巴特新闻网后，班农以《战争室》播客的形式建立了一个右翼势力。该节目现在被视为全球所有政治和新闻媒体中最重要的节目之一，并且是第一个在世界卫生组织、安东尼·福奇等人之前就认识到即将到来的大流行的危险的节目。
-**事实证明，班农和他的团队对中国共产党（他心中的对手）和病毒起源的判断是正确的。**
-自1月6日美国国会大厦发生骚乱以来，班农一直是1月6日欺诈委员会的焦点，被控蔑视国会，并再次被企业左翼媒体视为仇恨人物。
+司法部很害怕，试图阻止班农向媒体发布信息，班农的团队提醒法官，媒体希望看到这些信息。
 
-《国家脉动》主编强调，政治迫害是我们今年要向班农致敬的原因之一：
+文章附上了凯利的推文。
 
-当我听说史蒂夫被国会蔑视时，我给他发了短信，让他知道，世界上没有任何机构比现在的国会更希望被藐视了。这是一个荣誉的徽章，应该如此佩戴。我们很高兴向史蒂夫颁发第二届年度爱国者奖，**这不仅是因为他敢于站出来反对腐败的政治精英、中国共产党和世界各地的激进伊斯兰主义者，还因为他对整个西方世界的保守主义运动的不懈的努力，以及他对这个共和国的建国原则的恒久承诺。我很自豪地称史蒂夫为导师、朋友和****2021年国家脉搏的年度爱国者。**
+法官似乎站在腐败犯罪的司法部一边。
 
-新闻链接：[National Pulse Patriot of The Year 2021: Stephen K. Bannon. (thenationalpulse.com)](https://thenationalpulse.com/news/national-pulse-patriot-of-the-year-2021-stephen-k-bannon/)
+班农正在追捕腐败和非法的1.6委员会。
 
-**发布：文泓**
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+共和党人迷路了，他们在树林里寻找出路，他们根本帮不上忙。
+
+1.6（抗议者的）案件被推迟，但班农的案子必须以光速行动？
+
+掌管我们司法部和美国政府的是一个多么腐败的集团啊。这一切都始于奥巴马。
+
+（原文完）
+
+有关链接：
+
+【1】[https://gnews.org/zh-hans/1706104/](https://gnews.org/zh-hans/1706104/)
+
+【2】[https://thehill.com/regulation/court-battles/584703-judge-sets-july-trial-date-in-bannon-case](https://thehill.com/regulation/court-battles/584703-judge-sets-july-trial-date-in-bannon-case)
+
+【3】[https://www.thegatewaypundit.com/2021/12/doj-steve-bannons-court-case-wants-withhold-evidence-move-light-speed-j6-protesters-held-jail-still-dont-court-dates/](https://www.thegatewaypundit.com/2021/12/doj-steve-bannons-court-case-wants-withhold-evidence-move-light-speed-j6-protesters-held-jail-still-dont-court-dates/)
 
  
 

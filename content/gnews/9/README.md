@@ -2,24 +2,34 @@
 ---
 
 
-## 【中日财经爆】印度对中资企业开展大规模税务调查
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1786206/)
+## 郭先生提醒：务必重视奥米克戎变体病毒
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1786229/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1302.png)[图片来源](https://6do.news/article/5457066-45)
-据印度《商业标准报》23日报导，印度财政部税收局21日和22日在对全印手机制造商和分销商的一次重大打击行动中，对来自中共国的手机制造商小米、Oppo、一加、富士康等在印度的办公室和制造厂进行了突击搜查，有消息称，这些在印度市场占有率合计超过46%的中共国企业涉嫌“做假账”。
+撰稿：银河勇气星—骄子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-1.png)
+在12月22日的大直播中，郭先生强调，在美国，奥米克戎变体病毒感染及引发的综合症非常严重，提醒战友们务必引起重视。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1278.png)
+郭先生谈到，仅在一周时间内，爆料革命纽约新办公室的七人管理层中，已有五人感染。与新中国联邦合作的政治公关团队、战友等均为家庭式感染。合作的律师团队中的某律师家人，感染病毒后过世。在美国，不仅纽约的病毒检测棒断货，医疗资源极度紧缺，就连在德州，丧葬业务都要长时间排队。
 
-印度财政部消息人士称，该部门收到可靠情报，表明上述企业通过做假账逃税。另据印度洲新闻国际通讯社（ANI）消息，搜查行动自当地时间21日开始，覆盖20多处经营场所。“德里、孟买、班加罗尔、大诺伊达、加尔各答、古瓦哈提、印多尔和其他一些地方，突袭行动正在进行。”消息人士告诉ANI。消息人士还声称，一些金融科技公司也在搜索行动的范围内，这些公司的首席执行官都在调查范围内，目前他们正在接受问询。
+郭先生提醒大家，据科学家评估，奥米克戎致死率虽不高，但伊维菌素和青蒿素对奥米克戎并不是百分百管用。郭先生还建议大家尽量减少外出，合理地佩戴口罩、手套，勤洗手。
 
-消息来源：
+新闻来源：[2021年12月22日 文贵大直播](https://gtv.org/video/id=61c324ccbcb7f101bb732568)
 
-[印度对中企开展大规模调查 中国驻印使馆：希望印方提供非歧视营商环境](https://cn.reuters.com/article/india-probe-chinese-business-firms-1224-idCNKBS2J303I?il=0)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-5.png)
 
-[印度税务部门以“逃税”为由对中企发起“大规模突袭搜查”](https://world.huanqiu.com/article/465v73X7zEU)
+总编：飞虹
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+编辑：雪梨
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

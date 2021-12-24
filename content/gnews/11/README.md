@@ -2,80 +2,158 @@
 ---
 
 
-## 中共倾一国之力收买、封杀爆料革命的真实数据
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1786184/)
+## 冬奥会一定会有感染病毒，集体事件
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1786214/)
 
-[https://gtv.org/video/id=61c5688843ccb726a08a955c](https://gtv.org/video/id=61c5688843ccb726a08a955c)
+[https://gtv.org/video/id=61c568f743ccb726a08a9589](https://gtv.org/video/id=61c568f743ccb726a08a9589)
 
 **郭文贵
 Miles Guo**
 
-为什么大家没有任何人包括Rachel, 所有人, 文斌你们在这直播的，Eric
-Why are you no believing me? including Rachel, Wen Bin, Eric you guys are broadcasting here
+这次奥运会到北京
+Esta vez los Juegos Olímpicos llegará a Beijing
 
-你们没有一个人真正相信七哥说过的，谷歌、苹果商店、亚马逊都改咱们的后台数据
-none of you really believe what I said, Google, Apple Store, and Amazon have all changed our back-end data
+一定会有染（感染病毒）
+Seguro habrá contagios (contagio del virus)
 
-你们没有认真研究并相信过，我说过咱每播一次都会超过一亿次被观看
-You haven’t studied it carefully and believed it, I said that every time we broadcast, we will be watched more than 100 million times
+一定还有集体事件
+Debe haber un incidente colectivo
 
-否则不可能在4年前5年前，共产党以一国一党之力，要征服全世界都力量
-Otherwise, it would be impossible at four or five years ago, the Communist Party use all the country’s power to conquer the whole world
+一定会很严格的治理 隔离
+Habrá una gobernanza y una cuarentena muy estricta
 
-打任何一个国家，像立陶宛、日本、法国都跪下，英国都跪下
-attack any country, like Lithuania, Japan, France, and Britain, they all on their knees
+一定会发生
+Seguro sucederá
 
-美国人连病毒都不敢问，来对付我们什么，
-Americans don’t even dare to ask about where the virus come from, then why are CCP targets us?
+我说的是一定啊
+Yo digo “seguramente”
 
-亚马逊要跟中宣部做交易, 苹果大家记住，有史以来被告就是因为要把当时的郭媒体APP下架
-Amazon wants to make a deal with the CCP’s Central Propaganda Department, everyone remember Apple, it was sued in history because they wanted to remove the Guo Media’s App at the time
+不是像晓理一样你矇出来的
+No es como Xiaoli que lo adivinó
 
-所有全世界的媒体当时跟我们的，最后全反我们
-All the media in the world talked to us at the time, and finally turned against us
+这绝对不是像文斌你们想像出来的Rachel
+Tampoco es como Wenbing y Rachel que se lo imaginaron
 
-华尔街日报、纽约时报、BBC把七哥的访问拿下
-The Wall Street Journal, the New York Times, and the BBC take away Miles’s interview
+你想当然就预测到这的
+Si lo piensas seguro lo puedes predecir hasta aquí
 
-什么哈德逊研究所，把七哥的预定直接给拿掉
-and Hudson Institute, cancelled Miles’s reservation directly
+Eric兄弟
+Hermano Eric
 
-世界上所有的大报，像美联社、塔斯社都是派去中国人, 一个月换仨月
-All major newspapers in the world, such as the Associated Press and TASS, they all send Chinese people, one month for three months
+你是跟着他的思维
+Tu le sigues el pensamiento
 
-然后中国人写一篇报道，郭文贵是双面间谍，郭文贵是强奸犯，郭文贵是骗子
-Then the Chinese wrote a report that Miles Guo was a double agent, Miles Guo was a rapist, and Miles Guo was a liar
+你没有逆向思维
+No aplicas el pensamiento inverso
 
-过去5年，倾其力之大，你就看看如果共产党不怕咱
-In the past 5 years, they have done so much, you look at it if the Communist Party is not afraid of us
+你只是个逻辑性思维的结果
+Tu resultado es sólo pensando con la lógica
+你要逆向思维
+Tienes que pensar inverso
 
-它能把龙头变成龟头，能变成鸟头吗
-Can it turn a dragon’s head into a tortoise head or a bird’s head?
+这主要体现习太阳和中国的治理能力
+Esto principalmente refleja la habilidad de gobernanza de Xi sol y de China
 
-它能把裕达这样的佛手给你干掉，给你施巫术在盘古前面, 给你埋上一个(印)
-It can get rid of Buddha’s hands of Yuda, cast a witchcraft in front of Pangu, and put a spell on you
+在全球治理能力
+La habilidad en gobernanza global
 
-没有神信仰的共产党, 埋一个巫术的一个印
-The Communist Party which has no faith in God, put a spell on you
+治理能力是什么
+Qué es la habilidad de gobernanza
 
-要把郭文贵给怎么着了, 它不怕咱, 他能那么做吗？
-To take down Guo Wengui, If the CCP is not afraid of us, could they do that?
+反应快 检查快 治理快
+Reacción rápida, inspección rápida y la gobernancia rápida
+
+照顾得好中国人的感情
+Cuida muy bien el sentimiento de los chinos
+
+然后有人站出来说话
+Y habrá alguien que saldrá a hablar
+
+天呐 鼻涕一把泪一把的
+¡Dios! Con mocos y lágrimas
+
+中国共产党太伟大了
+La República Popular de China es tan grandioso
+
+太讲感情啦
+Son muy afectivos
+
+这样的病毒在美国1年都得不到制止
+Un virus de este tipo no se ha detenido en los Estados Unidos durante un año
+
+川普为啥病好了 因为他是官僚
+Por qué Trump se pudo curar, porque él es un burócrata
+
+他吃了当时的鸡尾酒法
+Se tomó el método del cóctel en ese momento
+在美国你是吃不了的
+En Estados Unidos no podrás tomarte eso
+
+你看中央电视台
+Mira CCTV
+
+展（示）出来的说
+Lo muestran diciendo
+
+美国是世界上治理病情最差的死亡最多的 最不民主的
+Estados Unidos tiene la peor condición de gobernanza en el mundo y tiene la mayor cantidad de fallecidos, es el menos democrático
+
+你就知道它要干啥了
+Así sabrás qué es lo que van a hacer
+
+共产党他们想干啥
+Qué es lo que el PCCh quiere hacer
+
+晚上来吃饭
+Vienen a cenar en la noche
+
+这个人一来我就知道今天晚上他想干啥
+Esta persona llega y ya yo se a qué viene hoy en la noche
+
+他为谁来的 我就知道
+Por quién ha venido, yo lo sé
+
+我就会让他心满意足的回去
+Yo lo mando contento y satisfecho de regreso
+
+就我一看中央电视台这几天的讲法
+Yo con sólo ver la forma en que hacen reportaje el CCTV estos días
+
+我一看我就明白了
+Yo ya entiendo al verlo
+
+然后国内情报战友说
+Entonces los camaradas de inteligencia nacional me dijeron
+
+七哥 最近不能跟你联系了
+Miles, este tiempo no te puedo contactar
+
+我们手机全收了
+Nos van a recoger el celular a todos
+
+我去哪里报到去了 准备冬奥委会了
+Me iré a presentar, a preparar el Comité Olímpico de Invierno
+
+我这啥都懂了
+Y ya entendí todo
 
 * * *
 
-Date: 12/22/2021
-原视频标题: 中共倾一国之力收买、封杀爆料革命的真实数据
-the CCP has used the country power to buy and block the real data of the whistleblower movement
-原视频日期：2021/12/19
-原视频链接：[https://gettr.com/post/pkcwwo942c](https://gettr.com/post/pkcwwo942c)
-任务编号：3313
-视频时间段 : 0:00-2:10
-中听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
+日期：12/23/2021
+原视频标题：冬奥会一定会有感染病毒，集体事件
+Los Juegos Olímpicos de Invierno definitivamente habrá contagiados con el virus, será un incidente colectivo
+原视频日期：12/21/2021
+原视频网址：[https://gettr.com/post/pk8m7n810f](https://gettr.com/post/pk8m7n810f)
+任务编号：KC362（3306）
+视频时间段：0:00-01:43
+西听校：洛杉矶盘古农场- 小文萱
+翻译：洛杉矶盘古农场- 霙霙（文霙）
+翻译终校：洛杉矶盘古农场- 小文萱
+字幕+视频制作：天涯行
+审片：银龙
 发布 ：洛杉矶盘古农场 – Kevin37L
+
+01：21 心满意足的回去 改为 心满意足地回去
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

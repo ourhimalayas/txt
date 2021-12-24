@@ -2,36 +2,44 @@
 ---
 
 
-## 中共房地产开发商面临巨额债务到期
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1786260/)
+## 告密者与爱国主义遮羞布告密者与爱国主义遮羞布
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1786414/)
 
-撰稿：MOS-柳是多水土透
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-1.png)
-据美国媒体12月22日报道，中共的房地产企业在发生部分债务违约、股票债券遭到抛售，以及评级下调等问题后，又将马上面临更大规模的到期债务等财务挑战。
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1310.png)
-据悉，中共房企面临的严峻财务压力主要来自三个方面，一是需要在农历年末之前向农民工支付共1.1万亿元人民币的拖欠工资；二是地方政府一直在收紧托管银行账户中的预售资金限制；三是即将到期的离岸美元债券，从今年第四季度的102亿美元，增加到2022年第一季度的198亿美元和第二季度的185亿美元。与此同时，中共国由于经济、病毒等原因，新房销售量持续下降。
+**作者：太行薛满山**
+[![](https://express.adobe.com/page/6wg8y6TnlHjUc/images/6135c031-65d0-4744-a5e1-6feacebac10f.jpg?asset_id=8a335fbc-e1ef-40ea-8007-e94c8512facf&amp;img_etag=%22d66d8ebc8cc0dcef42111972db183662%22&amp;size=1024)](https://express.adobe.com/page/6wg8y6TnlHjUc/images/6135c031-65d0-4744-a5e1-6feacebac10f.jpg?asset_id=8a335fbc-e1ef-40ea-8007-e94c8512facf&amp;img_etag=%22d66d8ebc8cc0dcef42111972db183662%22&amp;size=1024)电影《返校》来源：flickr.com
+这几天震旦学校比较火，一个学生把老师上课的内容录下来，并且掐头去尾后上传到网上，指控这个老师不爱国。有关方面迅速行动，把这个老师开除了。
 
-根据郭文贵先生的分析，被中共控制的房地产企业的巨额债务暴雷，不仅将会带动中共国银行、保险等金融部门相继倒塌，也将会成为世界经济崩溃的导火索。
+这件事情在网上引起了老百姓的恐慌。因为谁都有说错话的时候，只要中共官方认为你不能说这样的话，你就有可能被人告密，然后失去工作，这个事情太可怕了。于是，这几天在网上引起了斥责告密学生的舆论大潮。
 
+民情汹涌，引起了中共官方的高度关注。12月18日，中共党媒旗下《环球时报》发表社评，称震旦学校的告密学生不是告密者，而是吹哨人。另外中共共青团组织也带领一批所谓的网络爱国大V，大肆鼓吹那个告密学生是所谓的民族英雄。
 
+对于这件事我想谈三点：
 
-链接：[China’s property developers have more than just big bond payments coming up](https://www.cnbc.com/2021/12/22/chinas-property-developers-have-more-than-big-bond-payments-coming-up.html)
+**第一、**震旦学校的这位老师是不是否认南京大屠杀？肯定不是。这位老师首先肯定了南京大屠杀的存在，她只是认为，南京大屠杀到底死了多少人目前缺乏事实认证，这也说明我们中国人的历史研究是相当马虎的。我认为这位老师的观点是正确的，我们中国人做事缺乏认真严谨的态度。中共一直对外宣称南京大屠杀死了30万人，但是目前能够找到名字的只有1万多人。震旦学校的这位老师无非是从做事态度的角度希望国人在对待历史研究方面应该做到严谨认真，这又何错之有？
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-12-08-at-20.35.58-5.png)
+**第二、**那个告密的学生会不会是一个吹哨人？肯定也不是。为了公共利益，冒着被政府镇压的风险，勇敢的提示民众，让民众躲避特定的灾难，这样的人才能叫吹哨人。吹哨人有两个特征，一是为了公共利益，二是可能会受到政府镇压。但是，这个告密的学生提交的那段视频是经过剪辑的、掐头去尾篡改了老师原来的意思。这肯定不是为了公共利益，这是罗织构陷。另外，这个告密的学生为了迎合官方爱国主义的宣传，他早就把利害关系考虑的清清楚楚，他是不可能被官方镇压的，相反，当他给官方提供可疑人员的信息，便已经成了官方镇压机器的一个组成部分。从这两个方面来看，这个学生干的事情明明白白就是告密，和吹哨人一毛钱关系都没有。
 
-总编：Irene木木
+**第三、**中共党媒和共青团完全不顾廉耻，不顾事实，不讲道理，直接上场把这个告密的学生说成是民族英雄，这只能证明中共已经何其疯狂。以前中共虽然讲的是歪理，但他们毕竟还是需要讲一讲的，现在就连强词夺理的过程都省了。中共党媒完全知道存在一个完整的视频版本，但是他们偏偏拿那个被剪辑过的版本说事。中共官方如此迅速的开除这位女老师，就足以证明中共官方的恐慌。
 
-编辑：飞虹
+中共官方为什么对所谓的爱国主义如此敏感？任何人只要对他们所谓的爱国主义提出一点点不同的看法，他们就会暴跳如雷，利用一切可能的手段打击民间的理性思考。 为什么他们会像一个神经质的狂人？其实原因也很简单，最近几年，习大神胡作非为，对内搞垮了经济，对外自不量力挑战美国，国内矛盾和国际矛盾都已经达到了激化的临界点。为了转移矛盾，习大神唯一的出路就是挑起台海战争，而要挑起战争就需要鼓动民族主义。在这种形势下，所谓的爱国主义就成了中共政权的玻璃心，不可触碰，不可质疑。爱国主义是中共盗国贼集团最后的遮羞布，任何试图扯下这块遮羞布的人，都会受到中共盗国贼集团疯狂报复。
+[![](https://express.adobe.com/page/6wg8y6TnlHjUc/images/6ca3b7c0-e594-41d9-b065-802291fa70ba.jpg?asset_id=8a353ac4-39a8-456d-9ede-c794116ad22f&amp;img_etag=%221a3b0323fa78dcc3e808eddc212f4d57%22&amp;size=1024)](https://express.adobe.com/page/6wg8y6TnlHjUc/images/6ca3b7c0-e594-41d9-b065-802291fa70ba.jpg?asset_id=8a353ac4-39a8-456d-9ede-c794116ad22f&amp;img_etag=%221a3b0323fa78dcc3e808eddc212f4d57%22&amp;size=1024)
+电影《返校》来源：flickr.com
 
-校正/发稿：浪迹天涯
+中国正在急剧左转，习大神的文革2.0已经开始。毛泽东当年的个人威望远远高于习大神，以毛泽东的天纵邪才尚且不能控制文革的形势，区区一个小学毕业的习大神又怎么可能把文革2.0搞“成功”呢？
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image-40-1-1.png)
+习大神必死无疑了！
+
+2021年12月19日于伦敦听雪斋
+
+*编辑：【英国伦敦喜庄园编辑部】*
+
+*校对： 仙女儿-文善 | 审核：文明明 | Page: Daoiii*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+[![](https://express.adobe.com/page/6wg8y6TnlHjUc/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://express.adobe.com/page/6wg8y6TnlHjUc/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
