@@ -2,31 +2,48 @@
 ---
 
 
-## 2021/12/23 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1788131/)
+## 灭共漫画——真相永远赢
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1788186/)
 
-1. 12月23日，陕西西安疫情防控升级。全市小区、单位被实行封闭式管理。每户家庭每2天只允许1人外出采购生活物资，其他人外出需持单位、社区开具的证明。
-2. 河北秦皇岛为了所谓治理环境污染，一刀切治理封柴封灶，要清洁不要取暖，老百姓冻得直哭。
-3. 12月22日，河南新乡。男子在看守所内15根肋骨骨折，取保后神智不清。
-4. 12月19日，广东深圳。女子凌晨背三个月宝宝在垃圾桶捡菜叶，宝宝在背上嚎啕大哭。
-5. 近日，山西吕梁。网曝一家长因孩子背不出来知识点狂扇巴掌打孩子。
-6. 12月20日，四川乐至。丈夫欲给尿毒症妻子换肾，手持结婚证却被医院要求再开夫妻关系证明。
-7. 12月22日，江苏苏州。一小区内3工人在房子外立面改造施工时，由于施工平台发生倾斜导致工人掉落坠亡。
-8. 菜农在“疑惑”这几年是啥原因导致大家的消费能力如此大幅度的下降，菜都卖不动。
-9. 广东省韶关市翁源县，被污染河流如地狱般的场景。
-10. 西安一邮件分拣员通宵夜班后猝死，11月曾20天上班时间达到264个小时。
+**出品：纽约香草山设计部**
 
 
-* * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1-2021-11-22_16.46.44.png)![](https://assets.gnews.org/wp-content/uploads/2021/12/2-2021-12-24_03.10.08.png)
+
+
+**编辑/发稿：小鹿**
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月-2.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
 
  
 
