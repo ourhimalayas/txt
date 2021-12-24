@@ -2,30 +2,52 @@
 ---
 
 
-## 恒大多地员工罢工 抗议拖欠工资及福利待遇
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1788328/)
+## 以色列开始推广第四针疫苗接种
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1788344/)
 
-**撰稿：日本东京方舟农场 海星**
+作者：纽约香草山农场 – 四季
 
-12月22日，恒大多地公司的员工相继在该公司大门贴出罢工声明，抗议公司方拖欠工资以及相关福利待遇。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-据《自由亚洲电台》报道，自12月22日开始，恒大位于山西、广西及湖南等地的公司员工陆续在该公司大门上贴出罢工声明表示，恒大公司拖欠员工工资、社保、公积金等相关福利待遇，因此全体员工罢工，罢工期间所有业务停办，具体复工时间待定。宣布罢工的公司包括湖南长沙恒大珺悦府工程部、广西南宁恒大国际中心、恒大山西公司、恒大广西公司等。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1-319.jpg)图片来源：微博
 
-10月中旬，恒大位于天津、重庆、郑州、珠三角、成都、西安、武汉、沧州的公司就已向员工发出《停工留职通知书》，期间每月只发放最低保障工资。截至2020年底，恒大员工总数已超12万人，与其工程项目相关的就业人数则高达300万人。
 
-*参考链接：*
 
-[恒大山西广西等地员工罢工 抗议拖欠工资及福利待遇](https://www.rfa.org/mandarin/yataibaodao/ql1-12242021053003.html)
+据[网关专家](https://www.thegatewaypundit.com/2021/12/booster-hysteria-israel-begins-rollout-4th-covid-jab-despite-health-officials-admitting-no-data-effectiveness-mild-omicron/)12月24日报道，以色列将成为第一个对某些高危人群——包括60岁以上老人和医护人员注射第四剂实验性中共病毒疫苗的国家。
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/12/1847.jpg)图片来源：网关专家
 
-*素材采编：海星*
+尽管以色列是世界上第一个接种第三针加强疫苗的国家，已有大约58%的人口接种了三针，但对新的Omicron变体的担心仍然促使公共卫生官员组成的政府小组在本周早些时候建议进行新一轮的接种。
 
-*编辑：文顺*
+那些有资格获得第四剂的人，只要是在接种第三剂后的四个月内，就可以获得第四剂疫苗的接种。
 
-*发布：Ranting*
+周三，以色列总理内夫塔利·贝内特 (Neftali Bennett) 称这一宣布是 “好消息”，并担心该国正处于大流行病“第五波”的边缘。
+
+到目前为止，以色列卫生部只确认了341个Omicron病例。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/12月.png)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 

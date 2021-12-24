@@ -2,52 +2,30 @@
 ---
 
 
-## 以色列开始推广第四针疫苗接种
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1788344/)
+## 拜登签署《防止维吾尔族强迫劳动法案》
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1788360/)
 
-作者：纽约香草山农场 – 四季
+据《路透社》最新报道，拜登总统于周四签署立法，禁止从中共国新疆地区进口，因为担心强迫劳动，这是华盛顿继续反击北京对待该国维吾尔穆斯林少数民族的一部分。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/download-3-1.jpg)
 
+参议院以一致同意的方式通过了《防止维吾尔族强迫劳动法》，将其送交白宫，拜登总统表示他将签署该法案，使其成为法律。众议院星期二以全票通过了该法案。
 
+在立法者达成妥协，消除了众议院和参议院提出的法案之间的分歧之后，这项措施本周匆匆通过了国会。
 
+两院的共和党人和民主党人在维吾尔族立法问题上争论了几个月。这一争议使年度国防授权法案的通过变得更加复杂，并阻碍了参议院对拜登的一些大使候选人的确认，包括他选择尼古拉斯-伯恩斯担任驻中国大使。
 
+简评：
 
-据[网关专家](https://www.thegatewaypundit.com/2021/12/booster-hysteria-israel-begins-rollout-4th-covid-jab-despite-health-officials-admitting-no-data-effectiveness-mild-omicron/)12月24日报道，以色列将成为第一个对某些高危人群——包括60岁以上老人和医护人员注射第四剂实验性中共病毒疫苗的国家。
+2021年初，蓬佩奥先生已将中共国对新疆维吾尔族及其他穆斯林少数民族实施的恶行，定义为种族灭绝与反人类罪。前些天英国、比利时、荷兰和加拿大的立法机构也指控中共犯下种族灭绝罪。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/1847.jpg)图片来源：网关专家
+郭先生早些时候曾在直播中透露，已有中共残害新疆维吾尔族及其他穆斯林少数民族的证据，并交给美国取证。爆料革命最早说出在新疆有集中营，关押着超过百万的维吾尔人。美国已签署钳制来自新疆的产品的法案，并制裁了与新疆问题有关的数十名官员，最高级别达到副国级。相信未来会有更多针对中共的法案出台，中共已时限不多、命不久矣，我们继续用行动参与灭共。
 
-尽管以色列是世界上第一个接种第三针加强疫苗的国家，已有大约58%的人口接种了三针，但对新的Omicron变体的担心仍然促使公共卫生官员组成的政府小组在本周早些时候建议进行新一轮的接种。
+原文链接：[https://www.reuters.com/world/us/biden-signs-bill-clamp-down-products-chinas-xinjiang-2021-12-23/](https://www.reuters.com/world/us/biden-signs-bill-clamp-down-products-chinas-xinjiang-2021-12-23/)
 
-那些有资格获得第四剂的人，只要是在接种第三剂后的四个月内，就可以获得第四剂疫苗的接种。
+文案简评：Ange7
 
-周三，以色列总理内夫塔利·贝内特 (Neftali Bennett) 称这一宣布是 “好消息”，并担心该国正处于大流行病“第五波”的边缘。
-
-到目前为止，以色列卫生部只确认了341个Omicron病例。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/12月.png)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+校对：理工男文峰
 
  
 
