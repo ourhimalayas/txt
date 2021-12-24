@@ -2,52 +2,12 @@
 ---
 
 
-## 视频| 揭露HBO-VICE精心编织的谎言（十一）
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1787011/)
+## 12/15郭文贵直播：美国推动的《西藏独立法案》意义深远（粤语配音）
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1787053/)
 
-制作：英国喜庄园，秘密翻译组
+12/15/2021 郭文贵直播：美国推动的《西藏独立法案》意义深远──共产党只有两个选择：1）和美国开战、2）中共国进入黑暗期；中共只剩下挣扎了，但结果一定是完蛋！
 
-
-
-
-
-[视频| 揭露HBO-VICE精心编织的谎言（序）](https://gnews.org/zh-hans/1786954/)
-
-[视频| 揭露HBO-VICE精心编织的谎言（一）](https://gnews.org/zh-hans/1786948/)
-
-[视频| 揭露HBO-VICE精心编织的谎言（二）](https://gnews.org/zh-hans/1786949/)
-
-[视频| 揭露HBO-VICE精心编织的谎言（三）](https://gnews.org/zh-hans/1786950/)
-
-[视频| 揭露HBO-VICE精心编织的谎言（四）](https://gnews.org/zh-hans/1786951/)
-
-[视频| 揭露HBO-VICE精心编织的谎言（五）](https://gnews.org/zh-hans/1786952/)
-
-[视频| 揭露HBO-VICE精心编织的谎言（六）](https://gnews.org/zh-hans/1786953/)
-
-[视频| 揭露HBO-VICE精心编织的谎言（七）](https://gnews.org/zh-hans/1786967/)
-
-[视频| 揭露HBO-VICE精心编织的谎言（八）](https://gnews.org/zh-hans/1787007/)
-
-[视频| 揭露HBO-VICE精心编织的谎言（九）](https://gnews.org/zh-hans/1786870/)
-
-[视频| 揭露HBO-VICE精心编织的谎言（十）](https://gnews.org/zh-hans/1787012/)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/M12.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 12/24/2021 1:08 PM (UTC)`
+
+2021年12月24日 文贵大直播：HBO采访真假大相径庭；Omicron病毒感染剧增；北京冬奥会最新重大信息；圣诞节看社会经济环境
+![img](https://media.gettr.com/group17/origin/2021/12/24/12/aec57b4a-2c76-b209-0de6-67abadf680fe/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 12/24/2021 12:54 AM (UTC)`
 
 12/23/2021 Miles Guo: By agreeing to be interviewed by VICE, Miles Guo sacrificed himself as the bait to show the world the true face of the self-proclaimed Western MSM - They are arrogant and hooligans; HBO/VICE is so morally broken that it has no bottom line, nor does it comply with the basic principles of the media, and what they have done will surely be the negative example for future media professionals<br/><br/>12/23/2021 文贵盖特：文贵先生舍身套狼，让世人看到西方主流媒体的傲慢和流氓嘴脸；HBO/VICE已堕落到毫无底线、不遵守媒体基本原则，他们的所作所为未来一定会成为媒体专业的反面教材<br/>
@@ -147,13 +154,6 @@ The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO's Deliberate 
 
 The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO-VICE's Deliberate Lies After Deceptive Editing [Part-6]：<br/>‼️HBO-VICE’s questioning about Mr. Guo's revelation of the source code of the Dominion voting machine<br/><br/>【 #HBO #VICE 采访郭文贵先生背后的真相——揭露HBO-VICE精心编织的谎言 Part-6】：<br/>‼️反击HBO-VICE质疑郭先生对于多米尼投票机源代码的爆料<br/><br/>YouTube link of full REBUTTAL video  (may be blocked by YouTube‘s rogue rules): https://youtu.be/VTQ91werzk8<br/>GTV link of full REBUTTAL video  (EN and CN subtitles): https://gtv.org/video/id=61c3bb8900f9a119180832eb<br/>GETTR link of full REBUTTAL video  (EN and CN subtitles): https://gettr.com/streaming/pkexq84603
 ![img](https://media.gettr.com/group8/origin/2021/12/23/12/6489e8c5-8678-f9d5-99ad-81471097ffaf/out.jpg)
-
----
-
-`@miles 12/23/2021 12:09 PM (UTC)`
-
-The Truth Behind Mr. Miles Guo's Interview with #HBO #VICE — HBO-VICE's Deliberate Lies After Deceptive Editing [Part-5]：<br/>‼️HBO-VICE's unfounded accusation of Mr. Guo for spreading conspiracy theories and building personal power and influence, as well as Mr. Guo's refutation on the mainstream media portraying Mr. Steve Bannon as a racist<br/><br/>【 #HBO #VICE 采访郭文贵先生背后的真相——揭露HBO-VICE精心编织的谎言 Part-5】：<br/>‼️反击HBO-VICE诋毁郭先生传播阴谋论、筑造个人权力和影响力，以及反击主流媒体把班农先生塑造成种族主义者<br/><br/>YouTube link of full REBUTTAL video  (may be blocked by YouTube‘s rogue rules): https://youtu.be/VTQ91werzk8<br/>GTV link of full REBUTTAL video  (EN and CN subtitles): https://gtv.org/video/id=61c3bb8900f9a119180832eb<br/>GETTR link of full REBUTTAL video  (EN and CN subtitles): https://gettr.com/streaming/pkexq84603
-![img](https://media.gettr.com/group8/origin/2021/12/23/12/69711be3-0060-b83b-d354-06acbad59677/out.jpg)
 
 ---
 

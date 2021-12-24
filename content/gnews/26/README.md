@@ -2,56 +2,42 @@
 ---
 
 
-## 醫生譴責新州考慮向未接種新冠疫苗的患者收取醫療費
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1786938/)
+## 视频| 揭露HBO-VICE精心编织的谎言（七）
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1786967/)
 
-擬稿：金生水
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Picture1-17.png)圖片來自網絡
-衛報近日報道，澳大利亞的頂級醫生團體批評了新南威爾士州政府正在考慮向未接種新冠疫苗的人收取醫療費用的「不道德」提案。
+制作：英国喜庄园，秘密翻译组
 
-該州衛生部長布拉德·哈紮德表示，政府正在考慮強製向那些未接種新冠疫苗的人支付醫療費用，如果他們因感染新冠需要住院治療。
 
-這事首先由2GB報道，衛生廳長哈紮德周三晚發表聲明表示「這是新州政府在正在考慮的一個選項。」
 
-衛生部長沒有提供有關此類計劃如何運作的任何進一步細節，也沒有回答進一步的問題。
+[视频| 揭露HBO-VICE精心编织的谎言（序）](https://gnews.org/zh-hans/1786954/)
 
-這個建議和澳洲的全民醫療系統的做法相悖，遭致強烈的譴責。
+[视频| 揭露HBO-VICE精心编织的谎言（一）](https://gnews.org/zh-hans/1786948/)
 
-澳大利亞醫學協會主席奧馬爾·霍爾希德博士稱該提議是「不道德的」。
+[视频| 揭露HBO-VICE精心编织的谎言（二）](https://gnews.org/zh-hans/1786949/)
 
-他說「基於人們過去的衛生選擇而限製他們接觸醫療，這是不道德的，也不是正確的事。
+[视频| 揭露HBO-VICE精心编织的谎言（三）](https://gnews.org/zh-hans/1786950/)
 
-「如果你遵循同樣的邏輯，你會要求吸煙者為他們的醫療保健買單嗎？
+[视频| 揭露HBO-VICE精心编织的谎言（四）](https://gnews.org/zh-hans/1786951/)
 
-「我認為，如果我們在這場大流行中失去同情心、人性和對澳大利亞同胞的關懷，我們會照顧哪怕做出了我們認為不明智不正確甚至完全反社會的選擇的澳大利亞人。」
+[视频| 揭露HBO-VICE精心编织的谎言（五）](https://gnews.org/zh-hans/1786952/)
 
-霍爾希德表示，他不確定這樣的提議是否合法，或者是否會違反州和聯邦之間達成的國家醫療改革協議，公立醫院資金通過該協議流動。
+[视频| 揭露HBO-VICE精心编织的谎言（六）](https://gnews.org/zh-hans/1786953/)
 
-「對此的任何改變都將對我們的公立醫院產生非常重大的影響，」他說。
 
-鑒於感染中共病毒後入住 ICU 的費用是「天文數字」，而且普通澳大利亞人「沒有辦法」支付這筆費用，他還質疑如何執行該法案。
 
-在新南威爾士州，93.4% 的 16 歲及以上居民接種了疫苗，但重癥監護室的大多數人未接種疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/M12.jpg)
 
-過去一周，新南威爾士州住院的中共病毒患者人數幾乎翻了一番。
+**更多资讯，更多关注**
 
-周三，有302人感染了病毒，其中40人在重癥監護室，12人需要呼吸機。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-在11 月，新南威爾士州前州長鮑勃卡爾呼籲澳大利亞效仿新加坡，因為新加坡政府宣布將開始向「選擇未接種疫苗」的人收取醫療費用。
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-對此澳洲總理斯科特·莫裏森表示，這是一種他不支持的「高壓手段」。
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-「作為聯邦政府，我們沒有強製性的疫苗接種政策，這不是我們應該做的事情，」
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-「我們生活在一個不會妖魔化那些想要做出自己選擇的人的國家，我認為這非常重要。」
-
-筆者認為這篇報道表面上稱述客觀事實，但在文章末尾的數據有妖魔化未接種新冠疫苗人士的嫌疑，暗示他們是醫療系統承受巨大壓力的罪魁禍首。事實上澳洲政府自己在防疫方面嚴重失責，確診人數連創新高，居然把所有的希望都押寶在疫苗身上，瘋狂打壓伊維菌素，現在又要向未接種新冠疫苗的患者收取醫藥費。明明是政府自己的工作沒有做到位，為什麽需要使用強權讓納稅人為之買單？
-
-參考鏈接：
-
-[‘Unethical’: doctors condemn NSW government for considering charging unvaccinated patients for Covid care](https://www.theguardian.com/australia-news/2021/dec/23/unethical-doctors-condemn-nsw-government-for-considering-charging-unvaccinated-patients-for-covid-care)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/澳喜图标2-1-1.jpg)
-
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

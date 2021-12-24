@@ -2,36 +2,48 @@
 ---
 
 
-## 12/24每日播报｜加拿大安大略省中共病毒新增病例创单日历史新高
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1786972/)
+## 视频| 揭露HBO-VICE精心编织的谎言（十）
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1787012/)
 
-**By:[秘翻新闻](https://gtv.org/broadcast/watch/61b85c7e56f4921401b77b8b)**
+制作：英国喜庄园，秘密翻译组
 
-**2021-12-**24
 
-加拿大CP24新闻电视台12月23日报道，周四，加拿大安大略省报告了5790例中共病毒新增病例，这是有史以来报告的最高单日病例数，超过了4月16日第三波大流行高峰时期的4812例确诊病例。
 
-安大略省连续7天平均新增病例为4001例，较上周同期增长1.6倍，较前两周增长2.79倍。与此同时，病毒检测阳性率持续飙升，在过去24小时处理的样本的阳性率为16%。
+[视频| 揭露HBO-VICE精心编织的谎言（序）](https://gnews.org/zh-hans/1786954/)
 
-据统计，在过去24小时里，安大略省的实验室处理了6万8千多次检测，接近该系统的日处理极限，目前该系统的处理上限是7万6千个样本。
+[视频| 揭露HBO-VICE精心编织的谎言（一）](https://gnews.org/zh-hans/1786948/)
 
-周四上午，安大略省医学实验室、专业人员协会首席执行官米歇尔·霍德表示，由于未来病毒检测数量将持续增加，建议人们在节假日尽量呆在家里，否则，安省卫生系统将面临崩溃。
+[视频| 揭露HBO-VICE精心编织的谎言（二）](https://gnews.org/zh-hans/1786949/)
 
-据称，“奥米炕”变种 的传染性是德尔塔病毒的4至8倍。随着病例数和阳性率的急剧增加，“奥米炕”占所有新增感染病例的87%。安大略科学咨询表还估计，涉及“奥米炕”的病例平均每3.3天翻一倍。
+[视频| 揭露HBO-VICE精心编织的谎言（三）](https://gnews.org/zh-hans/1786950/)
 
-据数据显示，病毒感染大都发生在娱乐设施场所、酒吧、餐馆和零售商店，在多伦多尤为明显。周四，多伦多报告了1527例感染病例，创下单日新高。
+[视频| 揭露HBO-VICE精心编织的谎言（四）](https://gnews.org/zh-hans/1786951/)
 
-周四早些时候，加拿大卫生官员艾琳·德·维拉医生呼吁，人们在这个假期保证安全的情况下保持联系。请考虑在户外或网上与朋友和家人见面。如果在室内开会，请考虑开窗以增加通风。
+[视频| 揭露HBO-VICE精心编织的谎言（五）](https://gnews.org/zh-hans/1786952/)
 
-秘翻新闻主编  冰糖葫芦喵编译报道
+[视频| 揭露HBO-VICE精心编织的谎言（六）](https://gnews.org/zh-hans/1786953/)
 
-发布：文小明
+[视频| 揭露HBO-VICE精心编织的谎言（七）](https://gnews.org/zh-hans/1786967/)
 
-* * *
+[视频| 揭露HBO-VICE精心编织的谎言（八）](https://gnews.org/zh-hans/1787007/)
 
-**By 【秘密翻译组-即时新闻播报组】**
-![](https://assets.gnews.org/wp-content/uploads/2021/12/秘翻海报.jpg)
+[视频| 揭露HBO-VICE精心编织的谎言（九）](https://gnews.org/zh-hans/1786870/)
 
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/M12.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
