@@ -2,38 +2,24 @@
 ---
 
 
-## 英特尔致信供应商 禁用新疆产品
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1786092/)
+## 【中日财经爆】由于能源价格上涨，日本11月CPI涨幅明显
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1786101/)
 
-作者：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Screen-Shot-2021-08-30-at-7.37.59-PM-3.png)
-12月21日，英特尔公司被发现在其官网致信供应商，禁止采购来自新疆地区的产品或服务。
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image-1294.png)[图片来源](https://news.yahoo.co.jp/articles/40497791eca44750022f8ef50b62f84db60e9eb1#:~:text=%EF)
+据《读卖新闻》网站12月24日报道，日本总务省11月24日公布了11月消费者价格指数，不包括新鲜食品的11月消费者价格指数比上年同期上升0.5%。这是连续第三个月该指数为正值。并且从10月份的0.1%明显扩大。这一增长反映了由于油价上涨和日元疲软而导致的汽油和其他能源相关项目的价格上涨，涨幅是一年零九个月以来最大的一次。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/9-16.jpg)
+整体能源价格上涨15.6%，远高于10月份11.3%。自2008年8月油价飙升至17.0%以来的第一次。这一增长是13年零3个月以来的最大增幅。在能源产品中，汽油和煤油的价格分别上涨27.1%和36.2%。
 
-这封信是该公司12月对供应商的最新要求，以简体中文、繁体中文、英语、日语等多种语言发布的。英特尔明确表示：禁止任何形式的贩卖人口或非自愿劳工行为，如强迫劳动、债务劳工、契约劳工或奴役。多个国家与地区的政府已对来自新疆地区的产品实行限制。因此，英特尔需要确保供应链中不使用任何来自新疆地区的劳工、采购产品或服务。
+另一方面，由于从今年春天开始推出了一系列更便宜的资费计划，移动电话通信费用下降了53.6%。因此，如果将新鲜食品和能源排除在总数之外，消费价格下降了0.6%。
 
-据英特尔财报显示，中共国自2015年开始已是该公司第一大营收来源地。2020财年，来自中共国的营收为202.6亿美元。但英特尔坦言：公司在诚信和专业精神开展业务方面毫不妥协，期望所有供应商都能遵守责任商业联盟的行为准则。
+据农林中金综合研究所的首席研究员南武志说：”目前，能源价格的急剧上升是显著的，与欧洲和美国的通货膨胀不同，后者是由需求快速增长引起的。对消费者来说，这非常不好，因为日常生活用品会变得更加昂贵。
 
-参考链接：
+信息源：[１１月の消費者物価指数、０・５％上昇と大きく拡大…昨年２月以来の上昇幅](https://news.yahoo.co.jp/articles/40497791eca44750022f8ef50b62f84db60e9eb1#:~:text=%EF)
 
-- [不使用非自愿劳工？英特尔禁止供应链使用新疆产品](https://m.sohu.com/a/510583854_115831/?pvid=000115_3w_a)
-- [https://www.intel.com/content/www/us/en/supplier/governance/forms/documents/annual-supplier-letter-chinese-traditional.html](https://www.intel.com/content/www/us/en/supplier/governance/forms/documents/annual-supplier-letter-chinese-traditional.html)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/Dec-4-3.png)
-
-总编：Jack Li文阳
-编辑：飞虹
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
